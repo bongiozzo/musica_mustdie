@@ -1,0 +1,25 @@
+# Gus G.
+
+Дискография
+"Guitar Master" 2001, Instrumental
+"I Am the Fire" 2014, Heavy Metal
+"Brand New Revolution" 2015, Heavy Metal
+
+## Отношения с другими группами
+
+
+## Обсуждения
+
+
+## Упоминания
+
+### НОВИНКИ 2006 &gt;&gt;
+
+Dimas 08.02.2006 15:21:
+продолжаем...<BR><BR>ЧЁРНЫЙ КОФЕ - 2006 - TBA (tba)<BR>Новый альбом грандов российской тяжелой сцены. Не впечатляет... Безликий вокал (не ожидал, что Варшавский разучился петь), слабый музыкальный материал (лучшее на альбоме - две инструментальных композиции), все песни являются жалким подобием прошлого творчества. В общем, не альбом, а сплошное разочарование.<BR><BR>ДОМ МЯСНИКА - 2006 - Дом мясника (Sound Age)<BR>Дебютный альбом воскресенской брутальной формации, в составе которых играет бывший ударник ROSSOMAHAAR. Среднетемповый качовый брутал дэт, очень техничный, слушается без зевоты.<BR><BR>CASKETGARDEN - 2006 - Open The Casket, Enter The Garden (Metal Age Productions)<BR>Вторая работа венгерского колллектива, на мой взгляд, явно превосходящая их дебют 2003 года. Мелодик дэт трэш напоминающий мне смесь раннего DISMEMBER и AT THE GATES. <BR><BR>GORY BLISTER - 2006 - Skymorphosis (Mascot Records)<BR>Вторая работа интересного итальянского коллектива. Образовавшись в 1991 году, группа выпустила несколько демо-записей, которые имели успех в андерграунде. В 99 году группа все-таки выпустила первый альбом как selfreleased, который подвергся нормальному изданию на Sekhmet Records в 2003 году. Все критики отмечали высокий уровень музыкантов и их технику, главный минус был в том, что по сути у группы было маловато своих собственных идеи, многие называли ее просто копиркой великих DEATH. И вот вторая работа спустя годы, на довольно хорошем лейбле. Надо признать, что музыка стала намного оригинальнее, не потеряла в техничности, но стала несколько скучнее. Теперь это просто техничный мелодик дэт, умный, серьезный, но какой-то безэмоциональный. Влияние DEATH все еще чувствуется, но уже меньше (особенно со сменой вокалиста). В конце - кавер 1000 Eyes. Я ожидал от этого альбома большего...<BR><BR>LIV KRISTINE - 2006 - Rnter My Religion (Roadrunner Records)<BR>Второй сольник известной норвежской певицы, обитающей в Германии. Потрясающая работа! Не метал, скорее софт хард, мягкие баллады, припопсованно роковые гитарные риффы. Все песни реально имеют шансы стать хитами. Очень неплохой кавер "Улиц Филадельфии". Почему-то при прослушивании вспомнился проект Таргтрена PAIN...<BR><BR>MYSTIC PROPHECY - 2006 - Savage Souls (Massacre Records)<BR>Четвертая работа немецких музыкантов, уже без Gus G. Может именно поэтому, он мне и понравился поменьше двух своих сильных предшественников. Тем не менее, это вовсе не провал. Этот альбом не так уж и плох. Мелодичный и очень жесткий павер, любители будут довольны. <BR><BR>LORDI - 2006 - The Arockalypse (Drakkar Records)<BR>Третий альбом финских супермонстров, не считая прошлогоднего сборника. Очень сильная работа. Всё та же смесь KISS, WASP и AC/DC. По количеству хитов приближается к дебюту. А вот вещица "They Only Come Out At Night", где Лорди поет дуэтом с Удо Диркшнайдером явно отдает классическим ACCEPT.
+
+### Продаётся и покупается некоторое количество говнЯшков.
+
+НиколайНС 06.08.2014 08:43:
+niknetl (пёс) rambler ((.)) ru<BR><BR>Century Media:<BR><BR>Entombed A.D. - Back to the Front (lim. digibook + bonus).<BR>Finntroll - Nattf&#246;dd (10th anniversary edition inc. tracks from Trollhammaren EP).<BR>Gus G. - I am the Fire (lim. digipack).<BR>Massacra - Days of the Massacra.<BR>Monuments - The Amanuensis (lim. diigpack + bonus).<BR>Nachtmystium - The World We Left Behind.<BR><BR><BR>Nuclear Blast:<BR><BR>Deathstars - The Perfect Cult (lim. digipack + bonus).<BR>Decrepit Birth - Polarity (lim. digipack + bonus, NB USA).<BR>Equilibrium - Erdentempel (lim. 2CD digibook).<BR>Kataklysm:<BR>- The Prophecy (Stigmata of the Immaculate);<BR>- Epic: The Poetry of War;<BR>- Shadows and Dust.<BR>Origin - Omnipresent (+ bonus track, NB USA).<BR>Overkill:<BR>- The Electric Age (lim. CD+DVD mediabook).<BR>- White Devil Armory (lim. digipack + bonus).<BR>Sabaton: <BR>- Heroes (lim. 2CD artbook);<BR>- Heroes (lim. blue/yellow splatter vinyl, NB USA).<BR>Sonata Arctica - Pariah's Child (lim. 2LP blue colored).<BR>Suicide Silence - You Can't Stop Me (lim. CD+DVD digipack, NB USA).<BR>Vader:<BR>- Tibi Et Igni (lim. digipack + 2 bonus tracks, NB Germany);<BR>- Tibi Et Igni (lim. digipack + 2 bonus tracks, NB USA).<BR><BR><BR>Unique Leader:<BR><BR>Alterbeast - Immortal.<BR>Beneath - The Barren Throne.<BR>Fallujah: <BR>- The Harvest Wombs;<BR>- The Flesh Prevails. <BR>Inanimate Existence - A Never-Ending Cycle of Atonement.<BR>Near Death Condition - Evolving Towards Extinction.<BR>Pillory - Evolutionary Miscarriage.<BR>Soreption - Engineering the Void.<BR>The Kennedy Veil - Trinity of Falsehood.<BR><BR><BR>Прочее:<BR><BR>Arstidir Lifsins - Thaettir Ur Sogu Nordrs (digipack, Van Records).<BR>Dagoba - Post Mortem Nihil Est (CD+DVD digipack, Veryrecords).<BR>Deals Death - Point Zero Solution (Spinefarm).
+

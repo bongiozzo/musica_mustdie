@@ -1,0 +1,1 @@
+select band_id, band from bands;

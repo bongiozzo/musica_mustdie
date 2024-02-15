@@ -1,0 +1,6 @@
+{
+  "dependencies": {
+    "mariadb": "^3.2.3",
+    "mustache": "^4.2.0"
+  }
+}

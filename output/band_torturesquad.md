@@ -1,0 +1,28 @@
+# Torture Squad
+
+Дискография
+"Hellbound" 2008, Thrash
+
+## Отношения с другими группами
+
+
+## Обсуждения
+
+
+## Упоминания
+
+### Фирменные диски от MUSICA Prod
+
+Vit Belov 10.11.2005 12:38:
+Gathering Darkness	Beholders Of The Pain Planet	2004	Grotesque	Испания	Death-metal	270 руб<BR>Ghoulunatics	Sabacthany	2004	Galy records	Канада	Horror Death-thrash-metal	270 руб<BR>Gorath	Elite	2004	Black Owl Rec	США	Black-metal	270 руб<BR>Atavism/Drain Of Impurity/Mincer	split CD	2003	Coagulated	Италия	Death-grind	270 руб<BR>Gaias Pendulum	Scarlet Visions	2004	Hateworks	Колумбия	Doom-metal	270 руб<BR>Thram	Lost Mind	2004	HFM	Бразилия	Heavy-metal	270 руб<BR>Aryos	Maitre Des Dominations Cerebrales	2004	Goetie	Франция	Progressive-symphonic-black-metal	270 руб<BR>Thespian	Marching To The Future	2003	Cogumelo	Бразилия	Power-metal	270 руб<BR>Northaunt	The Ominous Silence	2001	Fluttering Dragon	Польша	Dark Ambient	270 руб<BR>Artefact	Son Of Solstice	2003	Self-prod	Франция	Viking-black-metal	270 руб<BR>Torture Squad	Pandemonium	2004	Paradoxx	Бразилия	Death-metal	270 руб<BR>Anarchus	Demo 88 Total Hate	1988		Мексика	split ANARCHUS/DEMOGORGON/DISTORTED HARMONY	270 руб<BR>1917/Slow Death/Slow Agony	split CD	2002	Hurling	Аргентина	Death-grind	270 руб<BR>Sinisthra	Last Of The Stories Of Long Past Glories	2005	Arise	Испания	Gothic-metal	270 руб<BR>Outbreak	Master Stroke	1993	Hot Metal	Европа	Heavy-metal	270 руб<BR>Overload	Never Again	2005	Sleaszy Rider	Греция	Progressive-power	270 руб<BR>Unnatural	Life	2004	Burning Dogma	США	Death-metal	270 руб<BR>Elvaron	The Buried Crowm	2005	Manitou	Франция	Progressive	270 руб<BR>Manoash	Par-Antra I: Vir	2004	Aural		Ambient	270 руб<BR>Argon/Damukis	split CD	2004	Broken Noise	Малайзия	Punk/Hardcore	270 руб<BR>Falchion	Legacy Of Heathens	2005	World Chaos	Япония	Melodic folk-black-metal (KORPIKLAANI member)	270 руб<BR>
+
+### Новинки 2008
+
+ixtiandr 24.04.2008 20:14:
+Любителям трэсха советую обратить внимание на новую работу бразильцев <B>Torture Squad "Hellbound" </B>(они выиграли в прошлом году на Вакене Metal Battle).<BR><BR>Любителям немецкого павера/спида/хэви со стажем порекомендую новый альбом <B>Stormwarrior "Heading Northe"</B>. Более подробно можно прочитать в разделе рецензий.
+
+### Продаётся и покупается некоторое количество говнЯшков.
+
+Ласковый Бык 10.09.2008 06:55:
+Фанаты, налетай !! Стафф на обмен, хотя продажа также приветствуется.<BR><BR>Фирменные диски:<BR><BR><B>FAILED HUMANITY - The sound of razors through flesh</B> (2001, Candlelight records)<BR>Английский death/grind, в составе участники EXTREME NOIZE TERROR.<BR><BR><B>ANCIENT NECROPSY - Apocalyptic Empire</B> (2007, Mutilated records)<BR>Третий альбом группы из Колумбии, играющей мелодичный brutal death metal.<BR><BR><B>HYPNOS - Rabble Manifesto</B> (2005, Morbid records)<BR>Последний альбом одной из самых авторитетных death metal групп Чехии.<BR>В составе участники KRABARTHOR.<BR><BR><B>CREMASTER - Pumpernikel</B> (2007, Ukragh prods.)<BR>Веселый стебовый польский grind/thrash.<BR><BR><B>SKULL COLLECTOR - Depravity indulged through flesh corporal parts</B> (2007, RTTC)<BR>Бельгийский old school death metal в духе CANNIBAL CORPSE.<BR><BR><B>IMPERIOUS - In the splendour</B> (2003, Retribute records)<BR>Скоростной и техничный death metal из Швеции, фанатам MORBID ANGEL и IMMOLATION.<BR><BR><B>ORDER FROM CHAOS - Stillbirth Machine</B> (1993, Decapitated records)<BR>Культовый релиз от пионеров североамериканского black/thrash metal.<BR>В составе участники ANGEL CORPSE и REVENGE.<BR><BR><B>DISGRACE - Grey Misery</B> (2004, Extreem records)<BR>Вся дискография легенды финского death metal на одном диске.<BR><BR><B>UNDER MOONLIGHT SADNESS - After the cosmic gate</B> (1998, Oz records)<BR>Мексиканский melodic death metal с этническими влияниями.<BR><BR><B>UNDER MOONLIGHT SADNESS - Geneticsis</B> (2001, X-Rated records)<BR>Второй альбом оригинальной melodic death metal формации из Мексики.<BR><BR><B>TORTURE SQUAD - The wild stream of eternal sin</B> (2000, World Chaos prods.)<BR>Мелодичный thrash metal из Японии в духе последних работ KREATOR.<BR><BR><B>DEATHSPAWNED DESTROYER - The first bestial butchery</B> (2004, Bestial Burst)<BR>Мрачнейший финский old school death metal. Фанатам раннего INCANTATION.<BR><BR><B>PULVERIZED - Spheres of depraved philosophy</B> (2003, The Art Of Murder)<BR>Традиционный death metal в духе DROWNED IN BLOOD и HYPNOS.<BR><BR><B>GEMISUADI - Live lake an animal, fuck like an animal</B> (2004, Amputated Vein)<BR>Американский ядреный grindcore. Фанатам LENG TCHE и REGURGITATE.<BR><BR><B>FROM BEYOND - Endtime</B> (2005, Sonic Temple records)<BR>Классический медленный death metal в духе CIANIDE и BOLT THROWER.<BR><BR><B>EVER DARK - Armageddon's Birth</B> (1997, Full Moon prods.)<BR>Мрачный американский black/death, изданный культовым лейблом FUll Moon prods.<BR><BR><B>SEEKING OBSCURE - Seeking obscure</B> (2007, Metalbolic records)<BR>Традиционный штатовский death metal в духе HUMAN ARTIFACTS и LIVIDITY.<BR><BR><B>UNBURIED / SEEKING OBSCURE - split cd</B> (2006, Metalbolic records)<BR>Сплит от двух подпольных американских death metal команд.  <BR><BR><B>BLOODY SIGN / LUCTIFERU / CROMB / MORTIFICY - 4 way split</B> (2005, Gruft prods.)<BR>Интернациональный сплит четырех групп, нарезающих old school death metal. <BR>На диске присутствуют кавера классических вещей AUTOPSY и GOREFEST.<BR><BR><B>HYDROPHOBIA - Human Shredder</B> (2008, World Chaos prods.)<BR>Свеженький релиз японских адептов grinding death metal.<BR><BR><B>BAD RELIGION - No Substance</B> (1998, Sony Music)<BR>Традиционный американский pop punk от самих родоначальников жанра.<BR><BR>Контакт: papavader (a) mail.ru 
+

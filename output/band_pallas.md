@@ -1,0 +1,179 @@
+# Pallas
+
+Дискография
+"Arrive Alive" 1981, Progressive
+"The Sentinel" 1984, Progressive
+"The Wedge" 1986, Progressive
+"Beat the Drum" 1999, Progressive
+"The Cross & The Crucible" 2001, Progressive
+"The Blinding Darkness" 2003, Progressive
+"Dreams of Men" 2005, Progressive
+
+## Отношения с другими группами
+
+
+## Обсуждения
+
+
+## Упоминания
+
+### 5 лучших концертов
+
+Sasha 08.07.2001 18:07:
+1. Deep Purple, Rod Laver Arena, Melbourne,  1999<BR>2. Ingwee Malmsтeen, Лужники, Москва, 1989<BR>3. Deep Purple, Rod Laver Arena, Melbourne,  2001<BR>4. Ingwee Malmsтeen, Pallas, Melbourne, 1999<BR>5. AC/DC, Rod Laver Arena, Melbourne,  2001 /  Uriah Heep, Олимпийский, Москва,  1987<BR><BR>NP No Name 'The Other  Side'<BR><BR>
+
+### Новинки 2
+
+Doff 05.08.2001 18:08:
+Продолжим пожалуй, интересно ведь, кто-что пропустил :))<BR>ASIA - Aura<BR>EMBRAZE - Endless Journey<BR>UMBRA ET IMAGO - Donkle Energie <BR>LACUNA COIL - Unleashed Memories<BR>BEYOND TWILIGHT - The Devil's Hall of Flame<BR>PALLAS - The Cross & the Crucible<BR>MIND ODYSSEY - Schizophrenia<BR>ELO - Zoom<BR>ATTENTION DEFICIT - The Idiot King<BR>CAIRO - Cairo<BR>SAVATAGE - Fight For the Rock
+
+### Новинки 2
+
+Impaler 06.08.2001 03:08:
+Cairo - первый? :-O <BR><BR>а Attention Deficit - милая такая настроенческая музыка, мне понравилось - я даже сам удивился. :)<BR><BR>Что из себя представляет Pallas?
+
+### Новинки 2
+
+Doff 07.08.2001 12:09:
+2 Jacob  Beyond Twilight - самый интересный альбом, который я прослушал в этом году, пожалуй.<BR>Такого вокала давно не слышал, столько экспрессии. Ураган просто.<BR>А по музыке. В принципе, похоже на усложненного последнего Дио :))<BR>Павера там даже рядом не стояло. <BR>2 ixtiandr  - если понравился предыдущий Мариллион, понравится и этот. Я въехал со второй прокрутки.<BR>Да... Pallas - хорош. Помпезный немного, но удивительно мелодичный. Сильнее на Pink Floyd стал похож, раньше то больше под Эйшу косили :) <BR><BR><BR><BR>
+
+### Новинки-9
+
+Impaler 30.09.2001 22:09:
+2Nightblade - нет, еще не вышел, просто я выпросил у друга эту промо-кассету. Трудно делать какие-то выводы, когда вещи обрываются на самом интересном месте (по 2 минуты где-то), но судя по всему, альбом хороший и вполне в духе предыдущего. Есть несколько песен и в духе "старого" Элиса... <BR><BR>Еще забыл -<BR><BR>Blue Oyster Cult "Curse of Hidden Mirror" - лично мне ОЧЕНЬ понравилось. На первый взгляд музыка совершенно непритязательная, но весьма милая, а потом как-то втягиваешься и начинаешь ее просто обожать...<BR><BR>Embraze - мрачный финский (?) love-metal, с голосом а-ля "чистый" Дэн Свано (плюс немного рыка), мелодично, сурово и красиво, пусть и немного неестественно. Аналогии с поздним Amorphis, Sentenced.<BR><BR>Pallas "Cross and the Crucible" - сорри, но это просто херь какая-то. Напоминает Genesis сразу после ухода Хаккета - беспомощно, вяло и скучно.<BR><BR>
+
+### Новинки-9
+
+Doff 30.09.2001 22:10:
+2Impaler - беспомощно, вяло и скучно - это про Embraze. А у Pallas вполне симпатичный альбомчик.<BR><BR>NP AC/DC "Highway to Hell"
+
+### CIRCLE OF PAIN 'Paradox of destitution'
+
+Lex 07.12.2001 04:26:
+Мне не понравилось. Точнее, понравилось, но ровно наполовину. Там песен полным-полно, и если половину слить, то получится хороший диск. <BR>Послушай лучше Pallas :)
+
+### CIRCLE OF PAIN 'Paradox of destitution'
+
+Sasha 07.12.2001 04:30:
+Pallas я слышал. Cicle of Pain похож на Pallas ?<BR>
+
+### CIRCLE OF PAIN 'Paradox of destitution'
+
+Lex 07.12.2001 04:33:
+Весьма отдаленно. Просто из последнего прога Pallas очень порадовал, вот и предлагаю всем при случае :)
+
+### НОвинки 21
+
+Doff 26.12.2001 09:26:
+Вот... послушая я еще кое что из купленного на прошлой неделе...<BR>JORN “Worldchanger” 01 (CD-Мaximum)<BR>Супер. Мелодичный и главное, хитовый хард’н’хэви сейчас редкость, а уж с таким экспрессивным голосом, вообще случай почти уникальный. Ланде суперкрут… 6 из 6.<BR>DAYLIGHT TORN “New Skin” 01 (CD-Мaximum)<BR>Действительно – новая кожа. Не знаю, что, и кто остался от прежней группы (не нашел в сетке никакой инфы), но дебютный Death Alone... эта работа не напоминает абсолютно. Был приятный, хоть и не оригинальный готик-дум. Стал тоже приятный, и тоже не оригинальный, мягкий готик-метал. Понравится любителям T/D/F и Lullacry. Очень радует тягучая и красивая гитара. Голос у вокалистки так себе… ей бы альтернативу петь… 4 из 6<BR>ELEGY “Labyrinth Of Dreams” 99<BR>Павер, как павер. Стандартный, как прокатный лист. Сыгранный безупречно. Не тронуло. 3 из 6.<BR>SILENT STREAM OF GODLESS ELEGY “Themes” 00 (Irond)<BR>Чего тут только не намешано. И In Flames, и фолк-денсинг типа Финтролей и Скайклэд, и еще... куча чего-то так и не узнаного :)… плюс 4 вида вокала, включая шершавый женский и солирующую виолончель со скрипкой вместе… определить стиль мне сложно. Нафиха я вообще это купил? Явно не моё. Брал как готику… Но вообще, этих чехов слушать можно. 4 из 6.<BR>THE MOON REVISITED. A TRIBUTE TO PINK FLOYD<BR>Несмотря на звездный состав – Cairo, Shadow Gallery, Magellan, Enchant итд – слушать тут, кроме магеллановской версии Money, нечего. Всё очень блико к оригиналу.  2 из 6.<BR>HAUTEVILLE “Hauteville” 98 (CD-Maximum)<BR>Приличный, спокойный, прог из Франции. Своя фишка одна. Двойной вокал. Поет мужик высоким голосом и одновременно, украшая его, очень органично вплетается в него женский. Жаль, что девушке не дали основных партий, её тембр мне нравится больше, хотя голоса очень похожи. 4 из 6.<BR>KANSAS “Leftoverture” 77<BR>Классика. Штатовский арт-рок во всей красе. 5 из 6.<BR>KANSAS “Freaks Of Nature” 95<BR>Отлично аранжированная, великолепно сыгранная, но мало цепляющая меня музыка. Кроме, пожалуй, Hope Once. Ну, конечно, скрипка рулит. Пожалуй, лучшее её применение в роке. Не припомню настолько грамотного использования этого инструмента. 5 из 6.<BR>PALLAS “The Sentinel” 84<BR>Первый официальный диск группы. Тоска смертная. Приятно, что из такого ужаса выросла вполне приличная команда. 3 из 6.<BR>PALLAS “Arrive Alive” 99<BR>Концертник, записанный в Шотландии аж в 81 году. Убогий и скучный прог. Отвратительный вокал.  2 из 6.<BR><BR>
+
+### ОТКРЫТИЕ ГОДА или новоуслышанная музыка в уходящем 2001...
+
+Doff 31.12.2001 18:39:
+GREEN CARNATION<BR><BR>А вообще я согласен, это был год Ланде...<BR><BR>2Cadaver EnCorpus до конца хоть дослушал Pallas? Жуткое дерьмо, не знаю, зачем они вообще это выпустили...
+
+### ОТКРЫТИЕ ГОДА или новоуслышанная музыка в уходящем 2001...
+
+мясоголовый 31.12.2001 20:07:
+2 Doff: (31.12.2001 18:39):<BR><BR>не знаю... не могу сказать ничего про " Pallas 1984 57:30 The Sentinel", т.к. слушал в первый раз, я вообще купил кота в мешке, т.к. на слышал этой группы.<BR><BR>Запись - говно. Это точно, музыка... Ну... так... местами очень даже.... Вообще, мне диск понравился. Но... такое долго-долго слушать не могу... В отличие от того же Арктурус, Pan-Thy-Monium, Садист или Cynic.. :)))<BR>
+
+### ОТКРЫТИЕ ГОДА или новоуслышанная музыка в уходящем 2001...
+
+мясоголовый 01.01.2002 04:31:
+2 Doff: (31.12.2001 22:23):<BR><BR>не могу сказать, что мне это [Pallas 1984] ОЧЕНЬ понравилось, к сожалению...<BR><BR>Смею заметить, то из прогрессива и арт-рока мне ничего так не нравицца, как группа Emerson, Lake & Palmer..<BR><BR>Emerson, Lake & Palmer	1971	37:55	Pictures At An Exhibition (Live)<BR>Emerson, Lake & Palmer	1973	45:13	Brain Salad Surgery<BR><BR>И ещё 1-й King Crimson, где пел Григ Лэйк (для остальных я ещёне созрел, наверное :)<BR>King Crimson	1969	43:54	In The Court Of The Crimson King<BR><BR>Ну... ещё весьма хорош:<BR>King Crimson	1974		Red<BR><BR><BR>А у Dream Theater мне тоже не всё нравиЦЦа... :(	<BR><BR>только это:<BR><BR>1992	75:00	Images And Words<BR>1994	75:00	Awake<BR>1989	51:38	When dream and day unite
+
+### Кто что из прогрессива мне посоветует послушать?
+
+Sasha 09.01.2002 03:35:
+Nazareth "прог - о@#$%ь...!!!" (c) GrindBox<BR>2Malfet:<BR>В добавление к тому, что посоветовали выше <BR>Yes<BR>Rush<BR>ELP<BR>King Crimson<BR>Jethro Tull<BR>The Flower Kings<BR>Spock's Beard<BR>Transatlantic<BR>Арк<BR>Under The Sun<BR>Cairo<BR>Tiles<BR>ранний Kamelot<BR>Conception<BR>Tad Morose<BR>King Diamond<BR>Genesis и их клоунов - Marillion, Pallas, Arena, IQ, Pendragon и т. д.<BR><BR>чу для начала я думаю тебе хватит ...
+
+### Новинки, что ли...
+
+Doff 19.02.2002 23:15:
+пока некоторые новинки слушают, лан лейнов фсяких, другие старинками всё довольствуются. и завидуют. черной завистью, между прочим... :))<BR><BR><BR>ESTATIC FEAR “A Sombre Dance” 97 (CD-Maximum)<BR>Классика. Атмосферный готик-дум. Жаль, что группа больше ничего не выпустила. Прогресс явный. Somnium Obmutum выглядит по сравнению с этим альбомом бедным родственником. 5 из 6.<BR>PALLAS “The Wedge” 85 (неизвестный прозводитель)<BR>Тоска. Но прогрессивная. J 3 из 6.  <BR>STEVE VAI “Flex-Able Leftovers” 84 (тоже неизвестный, но, явно, очень хороший)<BR>Хулиганский и очень интересный дебют восемнадцатилетнего гитариста.<BR>Чего только стоит первая вещь - #?@! Yourself – в ней я насчитал 32 варианта слова fuck.<BR>Или очень эмоциональный и проникновенный текст в Bledsoe Bluvd – вот кусочек:<BR>Bew-wo-de-du-la-de-le, lew,  do, do, do, do, do, do, dent.<BR>Ba-ba-be-yewp, ba bewp ba da....<BR>Я в восторге, давно не слышал столь разнообразного альбома, каждый трек которого несет какие то сюрпризы. 6 из 6.<BR><BR><BR>
+
+### Неопрог - какие команды вам нравятся больше всего
+
+Sasha 26.03.2002 03:12:
+2Leon: &lt;&lt; Кто знает еще команды похожего направления? Порекомендуйте плиз.<BR>Shadowland (группа Нолана до Арины) , Sylvan, IQ, Pallas, No Name  и .т.д.<BR>Сходи на <A HREF="http://www.webforum.ru/wb.php?board=13176&ord=0" target="_blank">http://www.webforum.ru/wb.php?board=13176&ord=0</A> <BR>там такую музыку любят ( не все правда), если попросишь, тебе штук 50 Дженезивских клонов назовут момемнтально ... :)<BR>
+
+### Кто что из прогрессива мне посоветует послушать?
+
+W.L.Cross 12.08.2002 20:04:
+"Genesis и их клоунов - Marillion, Pallas, Arena, IQ, Pendragon и т. д." - блиа... слог нету. Дастали тру-умники! <BR>
+
+### Кто что из прогрессива мне посоветует послушать?
+
+Sasha 13.08.2002 05:52:
+2W.L.Cross: <BR>&lt;&lt; "Genesis и их клоунов - Marillion, Pallas, Arena, IQ, Pendragon и т. д." - блиа... слог нету. Дастали тру-умники! <BR>Весь неопрог - упрощенный и "синтезированный" Genesis - меланхолия, слащавость и приторный мелодизм. <BR>Какие проблемы? Разве это не так?<BR>  
+
+### Новинки... 2004
+
+Appendics 01.07.2004 01:33:
+Blindman: Кавер на альбоме Редмановский - Carved In Stone, а на японии ещё другой какой-то. На самом диске вещь My Sharona - это и есть кавер ( The Knack).<BR><BR>Keeper: "Выкидываешь, продаешь, держишь про запас?"<BR><BR>Выкидываешь...это сильное предположение, даже как-то в голову не приходило,- надо подумать..:))<BR><BR>Раньше я кое-что раздаривал, потом продавал за символический "стольник", затем пожалел об этом,а сейчас решил ничего никуда не выносить.  Пусть будет как есть.<BR><BR>Кстати, Inside Out Music как-то последнее время очень настырно экспансирует переиздание своего каталога. Вот, например, в этот раз раздобыл довольно интересные вещицы:<BR><BR>Переиздание ранних альбомов ( дистриб.SPV) <BR>Spock's Beard -The Light<BR>The Pallas - The Sentinel<BR> Roine Stolt - The Flower King <BR>В этом нет ничего удивительного( диски выходили году в 2000), но такого издания я ещё не встречал: - Тройные дигипачные развороты размером 20 на 20 см., с такими же огромными буклетами, плакатами и 3-я открытками. Всё это ремастировано, пронумеровано и strictly limited 3000 copies edition.( Хотя, справедливости ради, дебютник Цветочного короля имеет номер 3291. Как-то не срастается с заявленным тиражём). Конечно приобрёл все три альбома.<BR><BR>Ещё пустил ностальгическую слезу, купив диск Tommy группы The Who на SASD, изданный в De Luxe варианте на 2-х дисках. Когда-то давно была у меня эта запись на бобине, а вот сейчас история возвращается.<BR><BR>agmer: Насчёт Тондерстоуна,- почитай топик повыше. Было там, кажись про него. Хорошая вещь.
+
+### О чем думают промоутеры? или AMORPHIS+ROYAL HUNT+DEAD CAN DANCE (4 ноября в Москве)
+
+Karas Barabas 04.08.2005 16:27:
+Moлодые люди, я вполне понимаю, что рискую навлечь на себя ваш гнев, но тем не менее, позвольте мне всё же как-то попытаться отвратить вас от пагубного влияния, так скажем, не совсем качественой музыки.<BR>Я предложил бы всё же не обращать ваши взоры на коллективы, обсуждаемые в этом топике, поверьте, они не стоят того.<BR>Приходите-ка лучше в Голден Паллас, 4 ноября там ожидаются, не мнимые, а самые настоящие звёзды - Борис Моисеев и Сергей Пенкин.<BR>Будьте так любезны.<BR><A HREF="http://goldenpallas.ru" TARGET="_blank">http://goldenpallas.ru</A><BR>Вот в какие клубы надо ходить. А не в те, где пахнет, извините, мочой и протухшим пивом.<BR>Там вас ничему хорошему не научат.<BR><BR>Всегда ваш Кар.Бар.<BR>
+
+### Новинки от СОЮЗа
+
+promoter 17.11.2005 12:49:
+2steeler.<BR>1. Coroner-ы и Voivod-ы само собой с Нойза, с кем же ещё контракт у Союза.<BR>2. Всё остальное с Нойза тоже будет выходить постепенно.<BR>3. Гамма Рэи какие на фирме, такие и будут на лицензии.<BR>4. Касаемо Accept, сначала они лицензировались с Брэйкера, потом SPV купили лицензию у УДО на издание этих позиций у себя, поэтому и сделали буклеты полнее и прочее.<BR><BR>Надеюсь, что будет и Вачтоверы и релизы с Докъярда.<BR><BR>Далее. Появился в продаже лицензионный digi-mini Mrs. God. Также и фирменный двойник Keeper 3 -Legacy с видео-бонусом.<BR>3 новинки с Inside Out:<BR>- CARPTREE "Man Made Machine" - неопрогрессив в духе Marillion.<BR>- the TEA PARTY "Seven Circles" - современная группа, играющая в духе THE DOORS & LED ZEPPELIN.<BR>- Новейший альбом шотландских проггеров PALLAS "The Dreams Of Men". Некоторые критики теперь ставят их в один ряд с Genesis, Marillion & Rush.<BR><BR>Также реца от LEGACY на белорусских PULSAR вышедших на MetalAgen.<BR><BR>PULSAR - Civilization<BR>(Metalagen/Soyuz Music)<BR><BR>Наверное это был один из моих счастливых дней, так как настроение поднялось на все 100%.<BR>Мне помнится, что только в 80-е западная публика могла ещё с таким же воодушевлением принимать русские группы, тогда это был Автограф. Но теперь, это в прошлом, так как PULSAR доказывает, что в России появился достойный ответ зарубежной Melodic Metal сцене, и в частности, таким группам как RHAPSODY. <BR>Я думаю, что русские теперь едва ли уступают в чем-то своим западным коллегам.<BR>Немного жаль, что у нас пока очень мало информации о русских исполнителях, однако эти проблемы меркнут, когда ты слушаешь “Civilization”, материал которого говорит сам за себя.<BR>Оформление альбома мне показалось несколько стереотипным, опять всё те же фэнтэзи мотивы, но что ещё нужно более для альбома мелодик-метал группы?  А вот если говорить о самой программе, то её построение довольно-таки неплохое, на общем фоне которой, акустические гитары выгодно отличаются. Так же к небольшим минусам можно отнести и то, что большая часть песен исполнена на русском языке. Но  этот минус лишь для западного слушателя, который не знаком с кириллическим письмом и не сможет понять смысла текстов.  Сами же мелодии очень положительны, как их отдельная структура, так и создаваемое ими настроение в общем.<BR>Тексты песен, впрочем, не совсем соотвествуют фэнтэзийным темам, как обложка альбома и больше являются нормальной лирикой. Но музыка создаёт определённую атмосферу и захватывает внимание слушателя полностью, во многом благодаря неплохим клавишным, которые здесь вполне уместны в отличие от многих других альбомов подобного жанра.<BR>При этом последняя песня представляет собой чудесную балладу, способную украсить любой хэвиметаллический альбом. <BR><BR>14 из 15  (Legacy #39 осень 2005)
+
+### Итоги года 2005&gt;&gt;
+
+R. 22.12.2005 14:23:
+Вопчем, по результатам уходящего года у меня определилась тройка призёров:<BR><BR>1.Apotygma Berzerk (за то, что ищут и находят в музыке Мелодию и делают красивые развесистые аранжировки).<BR><BR>2.Kate Bush (за то, что продолжила петь. Материал, кстати, слабоват, но голос... Другие дамы на Катькином фоне ваще гибнут. Ну, разумеется, кроме Сюзи Кватро и Дженис Джоплин).<BR><BR>3.Neil Young (за то, что сделал очередной, ...дцатый по счёту Harvest и не стал экспериментировать. Ну их, эти эксперименты).<BR><BR>Пожалуй, покуда всё. Из отбракованного надысь - новинки от Beseech (куда что подевалось после Souls Highway), Jack Frost (против пары сильнейших вещей - несколько кусков говна. Обидно), Santana (заебал уже), Pallas и Pendragon (об этих двух ничего плохого говорить не хочу, но хотелось бы мне яркости, как в прежние времена. А её нету...) и Demon (зачем же вы на старости лет так утяжелились?.. Что на предыдущем альбоме, что на этом... А где мелодизьм?.. Вас ведь не за тяжесть любили и легковесность завсегда прощали... Ыыыы...) <BR><BR>
+
+### KISS FOREVER BAND в Москве 18 марта
+
+promoter 15.02.2006 16:09:
+2pafos.<BR>&lt;эти группы играют у себя на родинах по обычным клубам...&gt;<BR><BR>Всё правильно. Только это клубы типа наших Кристалла и Golden Pallas, побольше немножко.<BR>Вот там это всё смотрится, так надо.
+
+### На продажу - родные (фирменные) CD. Много.
+
+Vsevolod 01.03.2006 01:09:
+И еще 3 CD на продажу:<BR><BR>GUNS N'ROSES "Best Of Guns N'Roses - Live In Concert" (1992) - бутлег с хорошим качеством звука = 200 руб.<BR>PALLAS "Arrive Alive" (1981) - издание 1999 = 200 руб.<BR>YES "The Age Of Buggles" (1992) - бутлег, запись концерта 1980 = 150 руб.
+
+### А были ли Вы здесь, за Стеной, на Обратной стороне Луны?
+
+R. 30.06.2006 16:22:
+Я в кинематографе не разбираюсь, по мне, так лучше "Кавказской пленницы" только "Бриллиантовая рука". А из мировой классики - "Всемирная история" Мэла Брукса. Люблю хорошие комедии, не в эльдаррязановском духе, а такие, как "Тупой и ещё тупее" :))) А Гайдай - БОГ!<BR><BR><BR>Что касается Pendragon, то, как ни странно, первые два альбома мне нравятся больше всего, пожалуй. Хотя и творчество девяностых радует. Просто мне нравится английский помпезный недопрогрессив восьмидесятых годов. В духе ранних Pallas.
+
+### Неопрог - какие команды вам нравятся больше всего
+
+Максим - LOGIN! 30.07.2006 13:41:
+вот решил расширить свои познания, ткнул на ласт.фм в "similar artists..." и стал качать в сусле...<BR>короч.<BR>Кэмел прикольный коллектиффчик.<BR>Дж.Джайант чота не понравился (ранний), до познего не дошёл, но брателло говорит, что группа распалась как раз после того как ударилась в коммерцию и утратила уникальную индивидуальную атмосферу.<BR><BR>Yes тоже прикольно, ггг<BR>(помню лет 8 назад слушашал фриджайл - не вкатил, а щас очень свежо звучит)<BR>в середине дискографии напоролси на откровенно отстойные и слабые альбомы попахивающие коммерцией же, дальше не слушал пока что.<BR><BR>Магма и Фауст чо та не понра.<BR><BR>На очереди Канзас, Грифон, Фокус, Гонг, Джетро Тулл (кое чо послушал не фкатило пока что), более подробное ознакомление с Van Der Graaf Generator (фцелом Питер жжот весьма хорошо!).<BR><BR>фпрочем о чом ето я?<BR><BR>это всё аццы, а группэ типа Pallas, Дрим Тятра, Симхони Х и прочее что хоть как-то хоть кто-то можэт назвать неопрогом - нюхают носки, вощемто, мне так кажецца...<BR><BR>вощем у мя всё как всегда в кучу, на ранней стадии переработки :)
+
+### Продаётся и покупается некоторое количество говнЯшков.
+
+SeeNoEvil 08.05.2007 22:33:
+Evoken 	quietus	avantgarde 	<BR>FaderHead	fh1	irond	<BR>Finntroll	nattfod	fono	<BR>Finntroll	trollhammaren	fono digi	<BR>Finnugor	black flames	adipocere 	*<BR>Finnugor	darkness need us	Irond	<BR>Forgive Me Not	Suicide Сервис	Irond	<BR>gloom	gloom	self rel.	*<BR>Gloria Morti	Lifestream Corrosion (limited edition)	World Chaos	<BR>godgory	ressurection	Irond	<BR>godkiller	deliverance	avantgarde	*<BR>golden dawn	masquerade	Napalm digi	<BR>Gorguts	From Wisdom to Hate	Season of Mist 	<BR>grave digger	heart of darlness	GUN digi	<BR>Green Carnation	the quiet offspring	CDM	<BR>grip ing	first album	Metal blade	*<BR>haggard	thou shalt seer	Irond	<BR>Heavenwood	Swallow	Massacre	<BR>helloween 	better than raw	raw power, Lim ed with slipcase + poster	*<BR>hollenthon 	with vilest …	irond	*<BR>Illnath	Cast into Fields of Evil Pleasure	Irond	<BR>IMMOLATION	Unholy Cult	fono	<BR>IMMOLATION	еще альбом 	fono	*<BR>IMMOLATION	чета там кристинезайд …:)	fono	*<BR>Immortal	battles in the north	Fono digi	<BR>In Flames	Reroute to Remain	Irond	<BR>In Flames	Soundtrack to your Escape	Irond	<BR>Infernorama	for the heartless	mystic empire	*<BR>intenstine baalism	второй альбум	cdm	*<BR>kampfar	kvass	Irond	<BR>Katatonia	black sessions	peaceville box	*<BR>Katatonia	Brave Yester Days	Irond	<BR>Katatonia	Discouraged Ones	Avantgarde	<BR>Katatonia	Last Fair Deal Gone Down	Soyuz	<BR>katatonia	sounds of decay ep	avantgarde digi	<BR>KEEP OF KALESSIN	Agnen: A Journey Through The Dark	 avantgarde	<BR>Khors	первый альбом	oriana 	<BR>King Diamond	The Graveyard	massacre	<BR>King Diamond	Voodoo	massacre digi 	<BR>Korn	Untouchables	Sony	<BR>korova	a kiss of charnel fields	Napalm	<BR>korovakill	waterhells	Irond	<BR>Kovenant	nexus Polaris	Irond	<BR>kristendon 	inferno	cdm	<BR>Lacrimas Profundere	fall, I will follow	Irond	<BR>Lacrimosa	satura\alles luge	Irond	<BR>Leaves' Eyes	Lovelorn	Irond	<BR>legion of doom	god is dead	self released 	*<BR>liciferion	the apostasy	cdm	<BR>Lock up	hate breeds suffering	NB 	<BR>Macabre	Murder Metal	Cd-Maximum	<BR>MACBETH	Romantic Tragedy&#180;s Crescendo	amg	<BR>MACBETH	Vanitas	amg	<BR>Mechanical Poet	Woodland prattlers/Handmade Essence	Cd-Maximum digibook	<BR>Metallica	St. Andeg	vertigo cd+dvd digi 	<BR>Misanthrope	Immrtal	Fono	<BR>Misanthrope	Metal Hurlant	Holy- double digi 	<BR>Misanthrope	Sadistic Sex deamon	Irond	<BR>moonsorrow	of strength and honour	fono	<BR>moonsorrow	viides luku	fono	*<BR>Moonspell	darknessand hope	fono	*<BR>Moonspell	second skin	fono 2cd digi	<BR>Moonspell	the antidote	fono	<BR>Naervaer	skiftninger	Irond	<BR>nasum 	shift	irond	<BR>Negura Bunget	trilogy box	negura music	*<BR>nocturnal winds	of art & suffering	Irond; Aftermath	<BR>noumena	anatomy of life	fono	*<BR>Novembre	classica	mystic empire	*<BR>Novembre	novembrine walrz	mystic empire	*<BR>old dead tree	The Nameless Disease	cdm 	<BR>OLD MAN&#180;S CHILD	Born Of The Flickering	century media digi	<BR>OLD MAN&#180;S CHILD	In Defiance Of Existence	fono<BR>Pallas	the cross of the crucible	inside out digibook <BR>Pantera	vulgar display of power	ATCO<BR>Paragon of Beauty	comfort me, infinity	Irond<BR>Parardise lost	 Reflection	MFN digi<BR>Parardise lost	As I Die	MFN<BR>Parardise lost	Draconian Times	MFN <BR>Parardise lost	Draconian Times	MFN 2 cd A5 digipack<BR>Parardise lost	Fader	emi <BR>Parardise lost	Forever Failure	MFN digi<BR>Parardise lost	Gothic	peaceville not re-release <BR>Parardise lost	Icon	MFN digi<BR>Parardise lost	Say Just Words 	MFN common edition <BR>Parardise lost	Say Just Words 	MFN lim ed with blue cover<BR>Parardise lost	Seals The Sense	MFN <BR>Parardise lost	Symbol of Life	GUN digi<BR>Primordial	storm before calm	irond	<BR>primordial 	the gathering wilderness	fono	*<BR>Provenance	25th hour; bleeding	Irond	<BR>Radigost	for the honour …	stygian crypt digi 	<BR>Radigost	nocturne	stygian crypt	<BR>rage	soundchaser	soyuz	<BR>Rage	speak of t5he dead	cdm digibook	<BR>ram-zet	Escape	fono	<BR>ram-zet	Pure Therapy	fono	<BR>Rapture	Futile	Fono	<BR>Rapture	Silent Stage	Irond	<BR>raunchy	confusion bay	Irond	<BR>Rotting Christ 	a dead poem	fono	*<BR>Rotting Christ 	genesis	fono	*<BR>Rotting Christ 	khronos	fono	*<BR>
+
+### Продаётся и покупается некоторое количество говнЯшков.
+
+bashmachok 24.08.2009 03:33:
+Распродажа фирменных дисков, в Москве. <BR>По всем вопросам звоните по тел: 8-909-630-38-56 (Павел). <BR>Звонить можно в течение рабочей недели (понедельник-пятница), с 13.00 до 19.00, но лучше всего - вечером, <BR>с 21.00 и до 24.00 (т.к. на рабочем месте связь не очень стабильная). <BR>В выходные дни телефон недоступен. <BR>Постоянного доступа в сеть у продавца нет, так что все нюансы просьба уточнять именно по телефону)) <BR><BR>ALMIGHTY -1996 “Just Add Life” / Chrysalis -300<BR>ATHENA -2000 ”Twilight of Days” / Noise -200<BR>ATROX -2000 “Contentum” / Season Of Mist -250<BR>BARATHRUM -2002 “Venomous” / Spinefarm -220<BR>BETHLEHEM -1994 “Dark Metal” Red Stream -200<BR>BILLY IDOL -1993 “Cyberpunk” / Chrysalis -230<BR>BLOODTHORN -2001 “Under the Reign of Terror” / Red Stream -230<BR>CADAVER INC -2001 “Discipline” / Earache Rec -220<BR>CRASH KELLY -2006 “Electric Satisfaction” / Liquor and Poker Music -270<BR>DECEMBER -2003 “Praying.Hoping.Nothing” / Earache -200<BR>DEFLESHED -1995/96 “My Belle Scalpelle + Abrah Cadavrah” / Hammerheart -200<BR>DIVISION ALPHA -2000 “Fazium One” / Holy Rec -200<BR>FURIOUS TRAUMA -1997 “Strange Ways”(mini-CD) / Euphonious Rec -130<BR>FURIOUS TRAUMA 1999 “Roll the Dice” / Season Of Mist -170<BR>GARY MOORE -1992 “After Hours” / Virgin -250<BR>GEOFF MANN BAND -1991 “Ministry of Interior” / Food For Thought -200<BR>HESS -2003 “Just Another Day”(vocal from Harem Scarem) / Frontiers Rec -200<BR>IMPELLITTERI -2000+1996 (2CD) “Crunch”+”Screaming Symphony” / Dreamcatcher –350<BR>IMPELLITTERI- 1987 (mini-CD) “S/T” / Century Media -200<BR>JOE SATRIANI / ERIC JOHNSON / STEVE VAI -1997 “G-3 Live in Concert” / Epic-200<BR>KOVENANT -2003 “Seti” / Nuclear Blast -280<BR>LANA LANE -1999 “Queen of the Ocean” / Limb Music -250<BR>LANA LANE -2000 “Secrets of Astrology” / Limb Music -250<BR>LANA LANE -2002 “Project Shangri-La” / Limb Music -250<BR>LONG VOYAGE BACK -1999 “Long Voyage II” / Modern Invasion -200<BR>LOVE LIKE BLOOD -1995 “Exposure” / SPV/Rebel Rec -200<BR>MAYHEM -2003 “Chimera” / Season of Mist -220<BR>METALIUM -2002 “Hero Nation - Chapter Three”(2CD) / Massacre Rec.-200<BR>NIGHT IN GALES -2000 “Nailwork” / Nuclear Blast Rec -220<BR>NIGHTMARE -2001 “Cosmovision” / Napalm Rec -200<BR>NIRNAETH -1997 “Haudh’en’Nirnaeth” / Abstract Emotions -200<BR>ODA RELICTA -2008 “Leper Mass” / Twilight Rec -200<BR>PALLAS -1999 “Beat the Drum” / Inside Out Music -250<BR>QUEENSRYCHE -2008 “Collection” (sampler) / EMI -130<BR>SAGA -2004 “Network” / SPV -200<BR>SAVAGE -1983 “Loose’N Lethal” / NEAT Rec (Japan edition <B>без OBI</B>) - 400<BR>SEVERANCE -2003 “What Lies Ahead” / Blackend -200<BR>SOUTHFORK -2001 “Straight Ahead” Black Mark -200<BR>SUGAR -1994 ”File Under: Easy Listening” (Bob Mould from Husker Du) / Rykodisk -100 <BR>SUPERJOINT RITUAL -2002 “Use Once and Destroy” (Phil Anselmo) / Sanctuary Rec -200<BR>SWEET SAVAGE -1996 (early 80’s) / NEAT Rec (Japan edition <B>без OBI</B>) -400<BR>TANK -2002 “Still at War” / Spiritual Beast Rec (Japan edition <B>без OBI</B>) -420<BR>TERRORVISION -1993 “Formaldehyde” / Total Vegas Rec -200<BR>THINK ABOUT MUTATION -1997 “Virus” / Motor Music -230<BR>TRACII GUNS -1999 “Killing Machine” / Deadline Rec -200<BR>USURPER -2002 “Visions from the Gods” / Earache -200<BR>WAYLANDER -1998 “Reawakening Pride Once Lost” / Century Media -200<BR>WISHBONE ASH -1997 “Trance Visionary” / Invisible Hands Music -200
+
+### Продаётся и покупается некоторое количество говнЯшков.
+
+bashmachok 08.09.2009 02:39:
+Распродажа фирменных дисков, в Москве. <BR>По всем вопросам звоните по тел: 8-909-630-38-56 (Павел). <BR>Звонить можно в течение рабочей недели (понедельник-пятница), с 13.00 до 19.00, но лучше всего - вечером, <BR>с 21.00 и до 24.00 (т.к. на рабочем месте связь не очень стабильная). <BR>В выходные дни телефон недоступен. <BR>Постоянного доступа в сеть у продавца нет, так что все нюансы просьба уточнять именно по телефону))<BR><BR><BR>ALMIGHTY -1996 “Just Add Life” / Chrysalis -300<BR>AMEBIX -1985 “Arise”/ Alternative Tentacles Rec -200<BR>ANATOMY -1999 “The Witches Of Dathomir” / Bleed Rec -150 (used CD)<BR>AND OCEANS -2001 “A.M.God” / Century Media -230<BR>AND OCEANS -2002 “Cypher” / Century Media -230<BR>ATROX -2000 “Contentum” / Season Of Mist -250<BR>BETHLEHEM -1994 “Dark Metal” Red Stream -200<BR>BETHZAIDA -1996 “Nine Worlds” / Season Of Mist -200<BR>BILLY IDOL -1993 “Cyberpunk” / Chrysalis -230<BR>BLOODTHORN -2001 “Under the Reign of Terror” / Red Stream -230<BR>CADAVER INC -2001 “Discipline” / Earache Rec -220<BR>CATAMENIA -1998 “Halls Of Frozen North” / Massacre Rec -230<BR>CHRISTIAN DEATH -2000 “Born Again Anti Christian” / Candelight -200<BR>COLLAPSE 7 -2004 “In Deep Silence” / Napalm Rec -230<BR>CRASH KELLY -2006 “Electric Satisfaction” / Liquor and Poker Music -270<BR>DECEMBER -2003 “Praying.Hoping.Nothing” / Earache -200<BR>DIE APOKALYPTISCHEN REITER -2000 “All You Need is Love” / Hammerheart -230<BR>DIE KRUPPS -1996 “Odyssey of the Mind” (with bonus remixes) / Cleopatra -170 (used CD)<BR>DISMAL EUPHONY -1999 “Lady Ablaze”(mini-CD) -150<BR>DISMAL EUPHONY -2001 “Python Zero” / Nuclear Blast -200<BR>DIVISION ALPHA -2000 “Fazium One” / Holy Rec -200<BR>DOMINUS -2000 “Godfallos” / Die Hard -200<BR>FACE DOWN -1997 “The Twisted Rule The Wicked” / Nuclear Blast -200<BR>FURIOUS TRAUMA -1997 “Strange Ways”(mini-CD) / Euphonious Rec -130<BR>FURIOUS TRAUMA 1999 “Roll the Dice” / Season Of Mist -170<BR>GARY MOORE -1992 “After Hours” / Virgin -250<BR>GEOFF MANN BAND -1991 “Ministry of Interior” / Food For Thought -200<BR>HELLVETO -2006 “Stos” / Seven Kingdoms -160<BR>HESS -2003 “Just Another Day”(vocal from Harem Scarem) / Frontiers Rec -200<BR>IMPELLITTERI -2000+1996 (2CD) “Crunch”+”Screaming Symphony” / Dreamcatcher –350<BR>IMPELLITTERI- 1987 (mini-CD) “S/T” / Century Media -200<BR>JOE SATRIANI / ERIC JOHNSON / STEVE VAI -1997 “G-3 Live in Concert” / Epic-200<BR>LANA LANE -1999 “Queen of the Ocean” / Limb Music -250<BR>LANA LANE -2000 “Secrets of Astrology” / Limb Music -250<BR>LANA LANE -2002 “Project Shangri-La” / Limb Music -250<BR>LONG VOYAGE BACK -1999 “Long Voyage II” / Modern Invasion -200<BR>MENTORS -1986 “Up The Dose” / Maximum Metal -200<BR>MERIDIAN -2002 “The Seventh Sun” / Season Of Mist -200<BR>METALIUM -2002 “Hero Nation - Chapter Three”(2CD) / Massacre Rec.-200<BR>MYRIADS -2002 “Introspection” / Napalm Rec -200<BR>NACHTMYSTIUM -2004 “Demise” / BCR/AKR -150<BR>NIGHT IN GALES -2000 “Nailwork” / Nuclear Blast Rec -220<BR>NIRNAETH -1997 “Haudh’en’Nirnaeth” / Abstract Emotions -200<BR>ODA RELICTA -2008 “Leper Mass” / Twilight Rec -200<BR>PALLAS -1999 “Beat the Drum” / Inside Out Music -250<BR>QUEENSRYCHE -2008 “Collection” (sampler) / EMI -130<BR>RAISE HELL -2002 “Wicked is My Game” / Nuclear Blast -200<BR>SAGA -2004 “Network” / SPV -200<BR>SAVAGE -1983 “Loose’N Lethal” / NEAT Rec (Japan edition без OBI) – 400<BR>SHINING -2002 “Angst” / Avantgarde Music -200<BR>SKYMNING -2001 “Artificial Supernova” / Candelight Rec -220<BR>SOUTHFORK -2001 “Straight Ahead” Black Mark -200<BR>SPK (SePpuKu)-93 “Auto Da Fe” (при участии B. Lustmord) / Grey Area -250<BR>STRATTSON -1985 “Auf Metal” / Brennus -200<BR>SUGAR -1994 ”File Under: Easy Listening” (Bob Mould from Husker Du) / Rykodisk -100 <BR>SUMMON -2002 “And the Blood Runs Black” / Moribund Rec -220<BR>SUPERJOINT RITUAL -2002 “Use Once and Destroy” (Phil Anselmo) / Sanctuary Rec -200<BR>SWEET SAVAGE -1996 (early 80’s) / NEAT Rec (Japan edition без OBI) -400<BR>TANK -2002 “Still at War” / Spiritual Beast Rec (Japan edition без OBI) -420<BR>TERRORVISION -1993 “Formaldehyde” / Total Vegas Rec -200
+
+### Продаётся и покупается некоторое количество говнЯшков.
+
+bashmachok 27.10.2009 17:45:
+EM.SINFONIA -2001 “Intimate Portrait” (digipack) / Hammerheart -200<BR>FACE DOWN -1997 “The Twisted Rule The Wicked” / Nuclear Blast -200 <BR>FOREFATHER -1999 “Deep Into Time” / Angelics Ent. -170<BR>FURIOUS TRAUMA -1997 “Strange Ways”(mini-CD) / Euphonious Rec -130 <BR>FURIOUS TRAUMA 1999 “Roll the Dice” / Season Of Mist -170 <BR>GARY MOORE -1992 “After Hours” / Virgin -250 <BR>GEOFF MANN BAND -1991 “Ministry of Interior” / Food For Thought -200 <BR>GOWAN -2004 “Homefield” / Majestic Rock -200<BR>HELLVETO -2006 “Stos” / Seven Kingdoms -160 <BR>HERBERT -2000 “Steppin’ Off to Eden” / Fueled Up Rec. -180<BR>HESS -2003 “Just Another Day”(vocal from Harem Scarem) / Frontiers Rec -200 <BR>HORNA -2006 “Aania Yossa”-220<BR>JOE SATRIANI / ERIC JOHNSON / STEVE VAI -1997 “G-3 Live in Concert” / Epic-200 <BR>JOHN MAYALL -1992 “Room to Move 1969-74”(sampler 2CD) -170<BR>JONATHAN CAIN -1998 “For a Lifetime” / Higher Octave Rec. -200 <BR>LANA LANE -1999 “Queen of the Ocean” / Limb Music -250 <BR>LANA LANE -2000 “Secrets of Astrology” / Limb Music -250 <BR>LANA LANE -2002 “Project Shangri-La” / Limb Music -250 <BR>LONG VOYAGE BACK -1999 “Long Voyage II” / Modern Invasion -200 <BR>LOUDSHINE -1994 “S/t” / Long Island -220<BR>MADMAN AND SINNERS -2004 “S/t” (feat. James La Brie) / Frontiers Rec. -250<BR>MALIGNANT ETERNAL -1999 “Alarm” / Napalm Rec. -220<BR>MARATHON -1996 “Norm” / SPV -220<BR>MARILYN MANSON -1994 “Portrait of an American Family” / Interscope -200<BR>MEAT PUPPET -1993 “Too High to Die” / London -130<BR>MENTORS -1986 “Up The Dose” / Maximum Metal -200 <BR>MERIDIAN -2002 “The Seventh Sun” / Season Of Mist -200 <BR>MINDFUNK -1995 “People Who Fell the Sky” / MFN -200<BR>MORIFADE -1999 “Possession by Power” / Loud’n’Proud Rec. -220<BR>MORTUS -2001 “Exploring New Horizons” / CCP Rec. -200<BR>MR.BIG -1993 “Bump Ahead” / Atlantic -220<BR>MYRIADS -2002 “Introspection” / Napalm Rec -200 <BR>NIGHT IN GALES -2000 “Nailwork” / Nuclear Blast Rec -220 <BR>NIRNAETH -1997 “Haudh’en’Nirnaeth” / Abstract Emotions -200 <BR>NOMICON -2001 “Halla” / Sagittarius -200<BR>OASIS -1994 “Definitely Maybe” -100<BR>ODA RELICTA -2008 “Leper Mass” / Twilight Rec -200 <BR>PALLAS -1999 “Beat the Drum” / Inside Out Music -250 <BR>PANGEA -1998 “The First” / Frontiers Rec. -220<BR>PESSIMIST -1997 “Cult of Initiated’ / Lost Disciple -200<BR>PESSIMIST -1999 “Blood for the Gods” / Lost Disciple -200<BR>POWER OF EXPRESSION -1995 “X-Territorial” (vocal from Morgoth) / Century Media -200<BR>QUEENSRYCHE -2008 “Collection” (sampler) / EMI -130 <BR>RAISE HELL -2002 “Wicked is My Game” / Nuclear Blast -200 <BR>REBAELIUN -2000 “Burn the Promised Land” / Hammerheart -200<BR>REIGN OF EREBUS -2001 “Human Rasist” / Blackend -200<BR>SEPSISM -2003 “To Prevail in Disgust” / From Beyond -200<BR>SHINING -2002 “Angst” / Avantgarde Music -200 <BR>SKEPTICISM -1997 “Ethere” / Red Stream -200<BR>SKYMNING -2001 “Artificial Supernova” / Candelight Rec -220 <BR>SOUTHFORK -2001 “Straight Ahead” Black Mark -200 <BR>SPK (SePpuKu)-93 “Auto Da Fe” (при участии B. Lustmord) / Grey Area -250 <BR>STEVE EARLE -1986 “Guitar Town” / MCA/Universal (re-edition 2002) -220<BR>STEVE MILLER BAND -1995 “Wide River” / Sailor Rec. -150<BR>SUGAR -1994 ”File Under: Easy Listening” (Bob Mould from Husker Du) / Rykodisk -100 <BR>SUMMON -2002 “And the Blood Runs Black” / Moribund Rec -220 
+
+### Новинки 2011
+
+Дофф 03.04.2011 22:55:
+Pallas - XXV - неплох. Правда, расслушал не с первого разаю Добротный прог. Даже с мелодиями. Буклет красивый.<BR>Правда, альбом 2010. Ошибся.
+
+### Продаётся и покупается некоторое количество говнЯшков.
+
+valentine7 06.04.2017 00:10:
+Куплю:<BR>Eternal Solstice "The Wish Is Father To The Thought" (1994) 1500<BR>DEATH 1987 SCREAM BLOODY GORE 1 PRESS COMBAT 2500<BR>Obscenity “The 3rd Chapter“ Morbid Records MR 030 Germany P+O Pallas 1st press 1500<BR>Obscenity "Perversion Mankind 1993 D&S rec 6500r<BR>DISCIPLES OF POWER - OMINOUS PROPHECY offer 6000r<BR>Vomitory (Germany) - Hour Of Truth (D & S Records 1991) 2500r<BR>Incubator "Symphonies Of Spiritual Cannibalism" Morbid Music 084-57072 Germany 1st press 1500<BR>INCUBATOR 1992 McGillroy the Housefly WVR 1 PRESS 1200<BR>Cemetary "An Evil Shade Of Grey" Black Mark BMCD 20 Germany CDT-Berlin 1st press 3500<BR>
+

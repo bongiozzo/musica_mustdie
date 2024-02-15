@@ -1,0 +1,35 @@
+# Voodoo Circle
+
+Дискография
+"Voodoo Circle" 2008, Hard Rock
+"Broken Heart Syndrome" 2011, Hard Rock
+
+## Отношения с другими группами
+
+C группой "Sinner" Alex Beyrodt, Mat Sinner
+
+## Обсуждения
+
+
+## Упоминания
+
+### Новинки 2009
+
+Jacob 31.03.2009 10:00:
+Очень понравился Alex Beyrodt's Voodoo Circle с Дэвидом Ридманом на вокале. Здесь нет никакой пристовщины, скорее, смесь Радуги, Ингви периода Трилогии, и PC69. Ридман как всегда на высоте. Альбом конца прошлого года.
+
+### Продаётся и покупается некоторое количество говнЯшков.
+
+stepa 20.10.2013 22:35:
+Unleashed -Across The Open Sea -  LP<BR>Unleashed -Shadows In The Deep - LP<BR>Veles - Black Hateful Metal<BR>Veles - Night On the Bare Mountain<BR>Venom "Hell" picture disc<BR>Vital Remains - Dechristianize / 2 LP<BR>Vital Remains - Horrors Of Hell LP + 7Inch LP+7inch<BR>Vital Remains -Icons Of Evil - black 2LP<BR>Voivod - Target Earth 2LP<BR>Voodoo Circle - More Than One Way Home 2 LP<BR>Watain - Casus Luciferi 2LP<BR>Watain - Lawless Darkness 2LP<BR>Watain - Rabid Death's Curse 2LP<BR>Watain - Sworn to the dark 2LP<BR>Wigrid - Die Asche Eines Lebens  LP<BR>Witchery - Witchkrieg / Black Vinyl LP<BR>Woodtemple -The call from the pagan woods<BR>Алиса - Саботаж 2LP красно-черный винил<BR>Алиса - Саботаж 2LP красный винил<BR>Алиса - Саботаж 2LP черный винил<BR>Алиса - Ъ 2LP красно-черный винил<BR>Алиса - Ъ 2LP красный винил<BR>Алиса -20.12 LP красно-черный винил<BR>Алиса -20.12 LP красный винил<BR>Алиса -20.12 LP черный винил<BR>Алиса -Ъ 2LP черный винил<BR>Ария - Армагеддон 2LP оранжевый винил<BR>Ария - Армагеддон 2LP черный винил<BR>Ария - Герой асфальта 20 лет спустя 3LP box<BR>Аркона  "Гой Роде Гой"  2LP (Sold out!!! Последние копии!!!)<BR>Аркона  "От Сердца к Небу" 2LP<BR>Аркона  "От Сердца к Небу" 2LP (picture disc)<BR>Гр. Об - Исполняет песни группы Инструкция по выживанию 2LP<BR>Гр. Об. - Поганая молодежь<BR>Гр.Об "Звездопад 2LP<BR>Гр.Об (Коммунизм)  "Солдатский сон "<BR>Гр.Об (Коммунизм)  "Хроника пикирующего бомбардировщика 2LP<BR>Кино - 45<BR>Кино - Группа Крови<BR>Кино - Звезда по имени Солнце<BR>Кино - Начальник Камчатки<BR>Кино - Ночь<BR>Кино - Последний Герой<BR>Кино - Черный альбом<BR>Кино - Это не любовь<BR>Кипелов  "Жить вопреки" 2LP<BR>Коррозия Металла "Война Миров"<BR>Коррозия Металла "Жизнь в Октябре"<BR>Коррозия Металла "Компьютер-Гитлер"<BR>
+
+### Продаётся и покупается некоторое количество говнЯшков.
+
+stepa 19.05.2014 19:29:
+Pain - Cynic Paradise LP<BR>Paradise Lost - Tragic Illusion 25 LP 10" + CD<BR>Pathology - Legacy of the Ancients (LP coloured)<BR>Pest -Daudafaerd- LP<BR>Pest -Desecration- Gatefold LP<BR>Pest -In total contempt- Gatefold LP<BR>Phantasm - Keeper of Death<BR>Pill Box - Tired LP<BR>Pohjast "Thou Strong, Stern Death" (estonian pagan black) LP<BR>Poisonblack - A Dead Heavy Day<BR>Profane Prayer -Tales of Vagrancy and Blasphemy- LP (black Vinyl! ltd.to 300 copies)<BR>Queensr&#255;che - Queensr&#255;che (Black LP + CD)<BR>Rage - Strings To A Web LP<BR>Rhapsody of Fire - Dark Wings of Steel 2LP red<BR>Rhapsody of Fire - Live From Chaos to Eternity 3LP<BR>Ross The Boss (Manowar) - Hailstorm<BR>Rotten Sound - Consume To Contaminate<BR>Rotting Christ - Khronos 2LP<BR>Rotting Christ - Sanctus Diavolos LP<BR>Rotting Christ - Sleep Of The Angels<BR>Sacramentum - Far Away From The Sun (black LP)<BR>Sacramentum - Far Away From The Sun (Picture LP)<BR>Saint Vitus - Born too late LP<BR>Saint Vitus - Lillie: F-65 LTD LP two colored + download card<BR>Satanic Warmaster - Opferblut - clear blue vinyl<BR>Saxon "Call To Arms"<BR>Sentenced -Shadows Of The Past - black Vinyl<BR>Septicflesh - Mystic Places of Dawn (2Lp Gatefold Transparent Coloured + dropcard)<BR>Septicflesh - Esoptron (Solid grey 2LP + download card)<BR>Sepultura - Beneath The Remains<BR>Sepultura - Chaos A.D. LP<BR>Seth - Les Blessures de l'Ame 2LP + download card<BR>Shadows Fall - Threads of Life LP + 7EP<BR>Sinbreed - Shadows LP<BR>Sinner - Crash and Burn<BR>Souless "Destroy the Light" 7" EP<BR>Stormwarrior - Heading Northe<BR>Stormwarrior - Heathen Warrior<BR>Strapping Young Lad - City - solid mint vinyl LP<BR>Suffocation - Suffocation LP<BR>Suffocation "Beginning of Chapter" picture , mega rare<BR>Suicide Silence - The Black Crown / LP+CD<BR>Suidakra "Book Of Dowth"<BR>Terror - Keepers of the Faith - transparent blue<BR>Thanatos - Emerging From the Netherworlds<BR>Thanatos - Realm Of Extasy<BR>The Dillinger Escape Plan - Option Paralysis<BR>The Haunted - Versus<BR>The Meads of Asphodel "Life is Shit" 7" EP<BR>Theatre of Tragedy - Aegis 2LP<BR>Tiamat - Sumerian Cry - black Vinyl<BR>Tiamat - The Scarred People<BR>Tremors - Eternal Question 7" EP<BR>Turisas - Battle Metal / Ltd. Gold Vinyl<BR>Turisas - The Varangian Way<BR>Turisas - Turisas 2013 LP + CD<BR>Tymah - Transylvanian Dreams Ltd. 300 copies green vinyl<BR>Tyr - The Lay of Thrym LP<BR>U.D.O. - Animal House 2LP<BR>U.D.O. - Faceless World 2LP<BR>U.D.O. - Mean Machine LP<BR>U.D.O. - Steelhammer 2LP yellow<BR>U.D.O. - Timebomb LP<BR>Unleashed -Across The Open Sea - LP<BR>Unleashed -Shadows In The Deep - LP<BR>Vattnet Viskar - Sky Swallower LP<BR>Veles - Black Hateful Metal<BR>Veles - Night On the Bare Mountain<BR>Vital Remains - Dechristianize / 2 LP<BR>Vital Remains - Horrors Of Hell LP + 7Inch LP+7inch<BR>Vital Remains -Icons Of Evil - black 2LP<BR>Voivod - Target Earth 2LP<BR>Voodoo Circle - More Than One Way Home 2 LP<BR>Warbringer - IV: Empires Collapse LP + poster<BR>Watain - All They May Bleed - picture 7"EP<BR>Watain - Casus Luciferi 2LP<BR>Watain - Lawless Darkness 2LP<BR>Watain - Rabid Death's Curse 2LP<BR>Watain - Sworn to the dark 2LP<BR>Wigrid - Die Asche Eines Lebens LP<BR>Witchery - Witchkrieg / Black Vinyl LP<BR>Woodtemple -The call from the pagan woods<BR>Аркона "Гой Роде Гой" 2LP (Sold out!!! Последние копии!!!)<BR>Аркона "От Сердца к Небу" 2LP (picture disc)<BR>Аркона "Слово" 2LP<BR>Аркона "Явь" 2LP silver<BR>Кипелов "Жить вопреки" 2LP<BR>Коррозия Металла "Война Миров"<BR>Коррозия Металла "Жизнь в Октябре"<BR>Коррозия Металла "Компьютер-Гитлер"<BR>Коррозия Металла - Russian Vodka<BR>Крода - Towards The Firmaments Verge Of Life... 2LP<BR>Легион - Knight Of Cross<BR>Мастер - Maniac Party<BR>Новый Завет - Apocalypse
+
+### Новинки 2016
+
+Dimas 25.03.2016 16:09:
+был очень удивлен услышав новый альбом португальцев HEAWENWOOD - The Tarot of the Bohemians, они вернулись к death-doom корням, и мелодика восстановилась, даже они стали еще жестче и тяжелей, в общем неплохой альбомец<BR>также советую заценить Almanac - Tsar (2016) - новый проект Виктора Смольского с вокалистами Andy B. Franck (Brainstorm, ex-Symphorce, ex-Ivanhoe) и David Readman (Pink Cream 69, Voodoo Circle) <BR>для любителей скоростного мелодик блэка советую новый Gloria Morti - 2016 - Kuebiko<BR>любителям готического дум-дэта типа Тристании советую новый альбом Evig Natt - Evig Natt (2016)<BR>ну и еще неплох новый Wyrd - Death Of The Sun (2016), атмосферный мелодичный блэк-дум, местами напоминающий старую Кататонию, местами Сваллоу Зе Сан
+

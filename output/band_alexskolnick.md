@@ -1,0 +1,34 @@
+# Alex Skolnick
+
+Дискография
+
+## Отношения с другими группами
+
+C группой "Testament" Guitar
+C группой "Savatage" Guitar
+
+## Обсуждения
+
+
+## Упоминания
+
+### Новинки 2
+
+Forest Elf 06.08.2001 11:09:
+Забыл сказать...<BR><BR>приобрёл видео Инфлэймс, потом у Взрослого-Малого Стаса коллектив Attension Deficit (feat. Alex Skolnick), пока не слушал, а также The Crown, изданный ФОНО<BR><BR>N.P. ICED EARTH Horror Show
+
+### METALLICA &amp; Рик Рубин
+
+supernova 25.08.2008 15:30:
+"Ребята, которые ещё чего-то от них ждут, напоминают мне тёток, которых мужья лупят, лупят, а те все преданно годами терпят и в глаза им смотрят и ждут "а вдруг всё изменится?..."<BR>Гыгыг. А люди которые считают что они должны были после Master Of Puppets делать такие же альбомы всегда, напоминают мне невинных барышень, которых в первый раз трахнули, им понравилось и они всю жизнь хотят чтоб было как в первый раз. да только так не бывает.<BR>"Наивный чукотский дяденька.<BR>Guitar World и Курта Кобейна в эту сотню ставил. И что?"<BR><BR>Вот это список.<BR>Где там Курт Кобейн?<BR><BR>01. Tony Iommi (Black Sabbath) <BR>02. Kirk Hammett & James Hetfield (Metallica) <BR>03. Angus & Malcolm Young (AC/DC) <BR>04. Randy Rhoads (Ozzy Osbourne) <BR>05. Eddie Van Halen (Van Halen) <BR>06. Jimmy Page (Led Zeppelin) <BR>07. Dimebag Darrell (Pantera, Damageplan) <BR>08. Zakk Wylde (Ozzy Osbourne, Black Label Society) <BR>09. Adam Jones (Tool) <BR>10. Kerry King & Jeff Hanneman (Slayer) <BR>11. Dave Murray & Adrian Smith (Iron Maiden) <BR>12. Jimi Hendrix <BR>13. Glen Tipton & K.K. Downing (Judas Priest) <BR>14. Ace Frehley & Paul Stanley (KISS) <BR>15. Slash (Guns N' Roses) <BR>16. Ritchie Blackmore (Deep Purple, Rainbow) <BR>17. Yngwie Malmsteen <BR>18. Joe Perry & Brad Whitford (Aerosmith) <BR>19. Dave Mustaine & Marty Friedman (Megadeth) <BR>20. Chuck Schuldiner (Death) <BR>21. Brian May (Queen) <BR>22. Michael Schenker (MSG, UFO) <BR>23. Nigel Tufnel (Spinal Tap) <BR>24. Jeff Beck <BR>25. Tom Morello (Rage Against The Machine) <BR>26. Head & Munky (Korn) <BR>27. John Petrucci (Dream Theater) <BR>28. Kim Thayil (Soundgarden) <BR>29. Vivian Campbell (Def Leppard) <BR>30. Daron Malakian (System Of A Down) <BR>31. Scott Ian (Anthrax) <BR>32. Tom G. Warrior (Celtic Frost) <BR>33. Chris Degarmo & Michael Wilton (Queensryche) <BR>34. C.C. Deville <BR>35. Marten Hagstrom & Fredrik Thorndendal (Meshuggah) <BR>36. Alex Lifeson (Rush) <BR>37. Paul Gilbert (Mr. Big, Racer X) <BR>38. Jerry Cantrell (Alice In Chains) <BR>39. Mantas (Venom) <BR>40. Jason Becker (Dave Lee Roth) <BR>41. Phil Collen & Steve Clarke (Def Leppard) <BR>42. Mikael Akerfeldt & Peter Lindgren (Opeth) <BR>43. Fast Eddie Clarke (Motorhead) <BR>44. Nuno Bettencourt (Extreme) <BR>45. Warren DeMartini (Ratt) <BR>46. Mick Mars (Motley Crue) <BR>47. George Lynch (Dokken) <BR>48. Ted Nugent <BR>49. Jake E. Lee (Ozzy Osbourne, Badlands) <BR>50. Rudolf Schenker & Uli John Roth (Scorpions) <BR>51. Oystein "Euronymous" Aarseth (Mayhem) <BR>52. Scott Gorham & Brian Robertson (Thin Lizzy) <BR>53. Steve Vai (Dave Lee Roth) <BR>54. Reb Beach (Winger, Dokken) <BR>55. Trey Azagthoth (Morbid Angel) <BR>56. John Sykes (Thin Lizzy, Blue Murder) <BR>57. Hank Shermann & Michael Denner (Mercyful Fate) <BR>58. Richie Sambora (Bon Jovi) <BR>59. Jon Donais & Matt Backhand (Shadows Fall) <BR>60. Stephen Carpenter (Deftones) <BR>61. Alex Skolnick & Eric Peterson (Testament) <BR>62. Brian Tatler (Diamond Head) <BR>63. John Christ (Danzig) <BR>64. Scott "Wino" Weinrich (The Obsessed) <BR>65. Pepper Keenan & Woody Weatherman (C.O.C.) <BR>66. Tommy Victor (Prong) <BR>67. Leslie West (Mountain) <BR>68. Vernon Reid (Living Colour) <BR>69. Glen Buxton & Michael Bruce (Alice Cooper) <BR>70. Bjorn Gelotte & Jesper Stromblad (In Flames) <BR>71. Jim Matheos (Fates Warning) <BR>72. Gary Holt & Rick Hunolt (Exodus) <BR>73. Donald Buck Dharma Roeser (Blue Oyster Cult) <BR>74. Michael Amott (Arch Enemy) <BR>75. Robert Fripp (King Crimson) <BR>76. Andre Olbrich (Blind Guardian) <BR>77. Joe Satriani <BR>78. Frank Hannon & Tommy Skeoch (Tesla) <BR>79. Ty Tabor (KING'S X) <BR>80. Mark Morton & Will Adler (Lamb Of God) <BR>81. Dino Cazares (Fear Factory) <BR>82. Pete Townshend (The Who) <BR>83. Jon Schaffer (Iced Earth) <BR>84. Timo Tolkki (Stratovarius) <BR>85. Neil Young <BR>86. Abbath Doom Occulta (Immortal) <BR>87. Kai Hansen (Gamma Ray) <BR>88. Uffe Cederlund & Alex Hellid (Entombed) <BR>89. Leigh Stephens (Blue Cheer) <BR>90. Jim Martin (Faith No More) <BR>91. Michael Romeo (Symphony X) <BR>92. Bill Steer (Carcass) <BR>93. Piggy (Voivod) <BR>94. Tony Bourge (Budgie) <BR>95. Sammy Hagar (Van Halen) <BR>
+
+### Новинки 2015
+
+Keeper 24.09.2015 08:58:
+	State Oppression:(23.09.2015 17:45)	  <BR> 	<BR>Из указанного выше суперпроекта знаю только двоих((( кто все остальные?<BR><BR>Line Up:<BR><BR>PHILIP H. ANSELMO<BR>CHARLIE BENANTE<BR>CHUCK BILLY<BR>D. RANDALL BLYTHE<BR>REX BROWN<BR>RON ‘BUMBLEFOOT’ THAL<BR>PHIL DEMMEL<BR>DAVID ELLEFSON<BR>ALISSA WHITE-GLUZ<BR>MATTHEW K. HEAFY<BR>GARY HOLT<BR>JAMEY JASTA<BR>CHRIS JERICHO<BR>ANDREAS KISSER<BR>MISHA MANSOOR<BR>MARK MENGHI<BR>MARK OSEGUEDA<BR>DUG PINNICK<BR>MIKE PORTNOY<BR>TIM “RIPPER” OWENS<BR>TROY SANDERS<BR>CRISTINA SCABBIA<BR>ALEX SKOLNICK<BR>BEN WEINMAN<BR>STEVE “ZETRO” SOUZA<BR><BR>По прежнему никого не узнаешь? -))))<BR><A HREF="http://www.metalallegiance.com/about.php" TARGET="_blank">http://www.metalallegiance.com/about.php</A>
+
+### Новинки 2015
+
+Dimas 24.09.2015 11:32:
+не, Стейт. похоже по именам только музыкантов Железной Девы знает<BR>надо так хотя бы:<BR>Фрэнк Белло (Frank Bello) из Anthrax.<BR>Чарли Бенанте (Charlie Benante) из Anthrax.<BR>Чак Билли (Chuck Billy) из Testament.<BR>Крис Бродерик (Chris Broderick) ex-Megadeth.<BR>Рекс Браун (Rex Brown) из Pantera, Kill Devil Hell.<BR>Дэвид Эллефсон (David Ellefson) из Megadeth.<BR>Гэри Холт (Gary Holt) из Exodus и Slayer.<BR>Скотт Ян (Scott Ian) из Anthrax.<BR>Андреас Киссер (Andreas Kisser) из Sepultura.<BR>Марк Осегуда (Mark Osegueda) из Death Angel.<BR>Майк Портной (Mike Portnoy) из The Winery Dogs и ex-Dream Theater.<BR>Трой Сандерс (Troy Sanders) из Mastodon.<BR>Алекс Cкольник (Alex Skolnick) из Testament.<BR>Джон Темпеста (John Tempesta) из The Cult и ex-Exodus.<BR>Тим Риппер Оуэнс из Judas Priest<BR>Кристина Скаббиа из Lacuna Coil<BR>Стив Зетро Соуза из Exodus<BR>ну и так далее...<BR>кроме того, на альбоме эпизодически отметились Geezer Butler (BLACK SABBATH), Phil Campbell/Mickey Dee (MOTORHEAD), Steve Vai and Billy Sheehan <BR><BR>ничего, конечно, нового, но качественно (еще бы!) и вызывает ностальгию<BR><BR><BR>кстати, вот скачал новинку Hanging Garden - Blackout Whiteout (2015), очень когда-то нравилась эта группа, но счас немного поменяла свой стиль, я пока не понял, лучше или хуже...<BR><A HREF="http://rusfolder.com/44250146" TARGET="_blank">http://rusfolder.com/44250146</A><BR>
+

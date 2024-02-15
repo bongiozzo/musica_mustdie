@@ -1,0 +1,211 @@
+# Phantom Lord
+
+Дискография
+"In Twilight World" 1999, Power Metal
+"Evil's Domain" 2000, Power Metal
+"Circle Of The Wasted" 2002, Power Metal
+"Imperial Fall" 2005, Power Metal
+
+## Отношения с другими группами
+
+
+## Обсуждения
+
+
+## Упоминания
+
+### А в какаом стиле творит Estatic Fear?
+
+George Dysangelist 08.08.2000 19:08:
+Ладно, Золотце, так уж и быть... а впрочем, вот<BR>тут Phantom Lord чудную статейку сочинил про них. <BR>Единственное в чём он, очевидно, ошибается, <BR>так это в том, что называет EF соло-проектом, а<BR>между делом, так было не всегда. Первый<BR>альбом, конечно, не дотягивает до "Мрачного<BR>Танца", но в то же время он определённо менее <BR>эклектичен, и пожалуй, даже, чуть мрачнее....
+
+### Крутое соло!!!!!
+
+Yermola 28.09.2000 08:09:
+2 Phantom Lord:<BR>Согласен насчет Петруччи! Мощный гитарила! После Change of Seasons я просто улетел! Теперь другими ушами остальной проговый Театр слушаю.<BR>2 D1:<BR>В пауэре/спид/мелодик стиле после 1997 появились и крепко стоят на ногах Rhapsody и Symphony X. Вот тебе парочка групп со своим почерком и узнаваемым лицом.
+
+### Фильмы
+
+Asmodeus 04.12.2000 06:12:
+2 Phantom Lord. Гонишь ты дружище, нету там лишних полчаса. Уж скорее не хватает оных. Фильм просто самый супер, смотрится на одном дыхании, каждый эпизод продуман и просмакован. Лучший фильм Мэла Гибсона, а у него плохих вообще не бывает.
+
+### MESHUGGAH
+
+Lex 19.02.2001 22:02:
+Спасибо, Илья :)<BR>Я, в общем, давно подозревал, что Мешугги играют отнюдь не на шару. Что смущало, так это их потрясающая сыгранность. Одно дело сыграть кучу постоянно смещающихся фрагментов в студии, где можно запрограммировать метроном, выдающий акценты в нужном месте и т.д., а совсем другое - на сейшне с барабанщиком, когда гитарные акценты не соответствуют тем, что играет барабанщик. Здесь ровняк нужен стопудовый, и я даже не знаю, сколько времени они репетируют каждую вещь. Думаю - немало (хотя они профи все-таки ;))).<BR>Кстати, вокалист, насколько я понял, в куплетах в основном работает заодно с барабанщиком, хотя под кого играет басист - для меня загадка :)<BR>P.S. А вот "технику подмены" я что-то не особо себе представляю (на барабанах умею играть только ГрОб и вступление из "Phantom Lord" :).<BR>Ты не можешь рассказать поподробнее?
+
+### MESHUGGAH
+
+grave 20.02.2001 09:02:
+Я конечно не знаю что такое ГрОб и вступление из "Phantom Lord", но тожа на барабане чё-нить слабать смогу :))<BR>Ок, ты бы сказал на чём играешь, так сказать, чем владеешь... А то для кого я тут всё это расказываю, может ты и ноты не знаешь :)) А вообще, сейчас на обед сгоняю и продолжу рассказ :)<BR>...
+
+### Нужны ли соляки???
+
+Grom 01.11.2001 12:15:
+2  Phantom Lord <BR> "Создается впечатление что соляки у Слейеров ваще не гитарные, а какую то электро дрель врубили и её звуки и писки записали от балды.."  <BR>не зря же мы все тут слушаем Heavy Metal !!!<BR>давай еще скажем, что гроулинг это тоже просто хрип раненого медведя ...<BR>
+
+### Нужны ли соляки???
+
+Grom 01.11.2001 12:30:
+2  Phantom Lord <BR>мож просто на твоем 286-ом быстродействия не хватает ? :))
+
+### Нужны ли соляки???
+
+Martin 01.11.2001 12:33:
+2 Phantom Lord: Идея о том, что Слэйер и Малмстин - это две крайности, здравая. Только вот у Слэйера кроме соло в музыке есть масса всего интересного, а у Малмстина на этих соло все построено и убери их - ничего и не останется.
+
+### Нужны ли соляки???
+
+Martin 01.11.2001 12:53:
+2 Phantom Lord: согласен - Пайнкиллер и есть золотая середина - там и того и другого хватает
+
+### Нужны ли соляки???
+
+Diamond 01.11.2001 13:01:
+2 Phantom Lord: грязновато???<BR>даже на 1998-м в SENTENCED TO BURN???<BR><BR>круто каннибалы играют и даж нестандартные фишки юзают классные
+
+### Нужны ли соляки???
+
+Grom 01.11.2001 13:39:
+2  Phantom Lord <BR>дык надрочите а мы послушаем !
+
+### Нужны ли соляки???
+
+Grom 01.11.2001 13:49:
+2  Phantom Lord <BR>плз. напиши пару -тройку банд, которые супертехнично лабают , но в тоже время дерьмо !
+
+### Нужны ли соляки???
+
+Diamond 01.11.2001 15:42:
+2 Phantom Lord: Ну вот мне кажеца что эти аранжировки у них не слишком интересны и попсовы - потому как стандартны. Хотя канечно у всех разные вкусы...
+
+### Нужны ли соляки???
+
+Yermola 01.11.2001 16:05:
+два Phantom Lord:<BR><BR>Вот они эти великие слова: "...только вот лень учить управжнение сплошные гамообразные фигурации и больше нифуя....короче учить такое, нафига?"<BR><BR>Ты сам на гитаре играть не пробовал? Просто (не гордясь особенно этим) я немножко играю ... :-)) И могу тасказать чонибудь из того и из другога забацать...<BR><BR>А ты стало быть достиг понимания мироздания чисто умозрительным путем? ... :-)) <BR><BR>Могу добавить напоследок, что у тебя уйдет не один год (а то и десяток), что бы приблизится к технике шведского "онаниста"...<BR><BR>(с) Гром:  ...ведь как известно пиз*еть , не мешки таскать !  
+
+### Нужны ли соляки???
+
+Seducer 01.11.2001 16:23:
+2 Phantom Lord:  Да, заслуженно! Это же надо - всю метлу переиграть! :))))))))<BR>Мужики, снимайте перед ФантомЛордом шляпы, а девчонки - лифчики и трусики долой! :)
+
+### Техника игры на соло гитаре
+
+Sasha 02.11.2001 11:03:
+2Phantom Lord: Да, сочинить может любой, но родоначальником неоклассики почему то считается Малмстин ...  
+
+### Техника игры на соло гитаре
+
+Diamond 02.11.2001 11:06:
+Sasha: не совсем так... Я почувствовал что могу так сыграть если буду дрочить до опупения. И на этом остановился. Потому что дрочить до опупения времени нету<BR><BR>Phantom Lord: совершенно согласен
+
+### Нужны ли соляки???
+
+Grom 02.11.2001 12:26:
+2  Phantom Lord <BR>а еще был такой факт, когда Мастэйн еще в метелице играл, на концертах народ кричал:<BR>Мастэйн - бог !!!
+
+###  Существует ли дружба между мужчиной и женщиной???:-)))
+
+Pigface 09.07.2002 19:05:
+<BR>Phantom Lord:<BR>"....умный мусчина не упустит поибацца с (любой) женсчиной, и пустит весь свой ум на достижение этого... "<BR><BR>Что, я охуел чтоль ипаца с любой.... Не нахуй нада! К моему хую допускаюцца только отборные женшшины.<BR>
+
+###  Существует ли дружба между мужчиной и женщиной???:-)))
+
+Гердка-Гердка 09.07.2002 19:14:
+Phantom Lord: кстати, нет такого слова "проститутство"... хотя наверное есть, где-нить в чуме так выражаются...
+
+### Люди, извините за тупой топик, но что вы находите в black-metal'е?
+
+R. 14.08.2002 12:39:
+Для меня black metal начался, собственно, не с норвежцев. Сначала был Веном. Сейчас уже не припомню точно, но впервые я услышал эту группу году так в 83-84. Сначала мне не понравилось: бред какой-то, мелодий нет, у вокалиста проблемы со слухом и т.п... Потом я послушал их еще раз. И еще. И допёр, что дело-то не в мелодии. Музыка создавала некую атмосферу, довольно плотную. И очень тёмную. Средневековая пыточная камера. Стоны истязаемых. Звенят цепи. Палачи хохочут... Меня зацепило.<BR><BR>Затем много чего было: Possessed, Hellhammer, Carrion, Phantom Lord... Позже появились норвежцы. <BR><BR>Сырой блэк - он ведь очень разный. Что-то нравится, что-то нет. Главное - не подходить к блэку так, как к паверу и пр.мелодичной музыке. Не ищи там мелодий. Просто слушай музыку. Поймешь или не поймешь - лотерея.<BR><BR>Кстати, в точности так же следует подходить и к краут-року, и к РИО, и ко многим кентерберийцам... Оно само должно в тебя проникнуть. И это "оно" - не мелодизм. Скорее даже антимелодизм.
+
+### VENOM - блек, с какого?
+
+R. 18.11.2002 16:08:
+По сабжу: с такого, что VENOM - это и есть BLACK FUCKING METAL!!!! :)<BR><BR>Они авторы термина. Они авторы соответствующей атмосферы. Они заиграли эту музыку так, что технические характеристики звука и самих музыкантов уже никого не интересовали. <BR>Минус - они не породили тренд. Поэтому время от времени и оспаривается их первородство. Близкая по духу Ophthalamia не в счет, равно как и многочисленные современники-подражатели с более трэшевым уклоном - Onslaught, Holosade, Atomkraft... А ближе всех к творческому осмыслению наследия Venom подошли немцы Phantom Lord году в 87-м... Но их уже мало кто помнит... <BR><BR>А Bathory - скорее прародители норвежского блэкового тренда. Тоже блэк, но другой :)
+
+### За что вы - металисты не любите группу NIRVANA???
+
+Тимофей 19.11.2002 12:24:
+2 ATHEIST:<BR><BR>1) грандж - слишком узкий термин для этой группы<BR><BR>Может быть, но мне все равно не нравится (а порой даже бесит) дешевый грязный звук гитар и фальшивые ноты вокалиста, поющего обдолбанным голосом. Именно то, о чем писал уже Phantom Lord. И то, что это в очередной раз породило тенденцию - сейчас модно петь обдолбанным голосом и играть на дешевых примочках с грязным звуком.<BR><BR>2) Курт Кобэйн НЕ КОНЧАЛ С СОБОЙ!!!<BR><BR>Докажите иную версию! Пока нет убедительных доказательств, я считаю все эти разговоры об его убийстве очередной спекуляцией на смерти. Опять же некоторые тру-киноманы говорят, что Цою подстроил автокатастрофу КГБ - какой-то пьяный чувак на Арбате году в 95-м мне это с пеной у рта пытался доказать.<BR><BR>3) Smells Like Teen Spirit это все, что вы слышали у сабжа, я эту пестню не лублу, а нравится мне творчество до 1991 и анплагед.<BR><BR>Почему же, я слушал Bleach, Insecticide, Nevermind, Unplugged и последний альбом (не помню, как называется - за давностью). <BR><BR>4) где вы услышали в текстах нарко-идеологию? Именно это они и пытались скрыть подальше...тока не вышло<BR><BR>А я говорил, что она присутствует в текстах? Она - в имидже. Когда на сцену чел выходит обдолбанный, хулиганит и.т.д. - это разве не есть пропаганда такого образа жизни? Музыкант может быть каким угодно в жизни: пьяницей, хулиганом, бабником, сволочью, даже нарком, но на сцене он - музыкант, и все свои вредные привычки не должны мешать творчеству. Иначе это уровень арбатских лабухов, которые без бутылки не играют.<BR><BR>5) про мёртых звезд...правда, то, что их популярнось не соответствует истине...ну и что? А вот например (сейчас, кажется, задену болезненную тему борды) Чак (вы знаете какой) и его 2 группы станут популярны и даже мэйнстримны? В чем они виноваты? Виноваты те, кто состригает деньги.....ух....<BR><BR>Для того, чтобы можно было спекулировать на чьей-то смерти, требуется определенный уровень раскрутки при жизни. А у Чака как при жизни, так и после его смерти будут поклонники, которых интересует прежде всего его музыка. Нирвана и при жизни Кобейна была перераскручена, но если бы он не умер в такой момент, то осталась бы однодневкой - успеха Nevermind им повторить бы не удалось.
+
+### Образ современного гопника.
+
+Malfet 19.11.2002 18:22:
+Phantom Lord, ты забываешь про шлюх. Правда, Шмель?
+
+### Принцессы
+
+R. 19.11.2002 18:58:
+Phantom Lord, малчик, это у тебя возрастное... Пройдёт...
+
+### Принцессы
+
+R. 19.11.2002 19:02:
+Phantom Lord, как раз тебе принцесса не нужна. Так что ты, скорее всего, ошибся топиком. <BR><BR>Еще раз прошу постящих глупостями топик не засирать. 
+
+### Новинки 20-22 декабря
+
+ixtiandr 25.12.2002 12:35:
+Моя тачка с гавном.<BR><BR>1) A Tribute To The Four Horsemen'02 - v/a. Айронды выпускают уже 3-ий, если не ошибаюсь, трибютник ненасытных до денег боссов НБ. На этот раз почитают Металлику, что в коммерческом плане так же выгодно, как трибюты мейденам и пристам, хули. Один из главных минусов этой компиляции в том, что более половины треков никакой не эксклюзивный, как можно было бы логично предположить, материал, а вещи, понадерганные с японских изданий (Дестракшн, Рейдж), просто сборников (Антракс), обычных альбомов (Берден оф Гриф) и, что бесит больше всего, предыдущих трибютов той же Металлике (Дарк Транквилити, Ин Флеймс, Примус). Тотальный рип офф, бля. Лишь треки Праймал Фир, терион, Соната Арктика, Крематори и Синнер ранее не были изднаы. Негусто, блйа. В целом альбом оставил довольно ровное впечатление. Вполне неплохи оказались паверщики (Primal Fear "Seek & Destroy", Sonata Arctica "Fade To Black", Sinner "Wherever I May Roam"), совершенно имхо никакие версии сыграли Burden Of Grief (Master Of Pappets), Dark Tranquility (My Friend Of Misery), Crematory (One - вообще надо было додуматься им замахнуться на эту вещь), In Flames (Eye Of The Beholder - еще с чистым вокалом, ну и гавно), Primus (The Thing That Should Not Be) и Rage (Motorbreath). Неожиданно приятно удивили Therion (fight Fire With Fire), принадлежащие  к группам, которым просто противопоказано играть кавера: несмотря на начало в своем ублюдочном стиле, они затем отыграли песню практически одни в один. Органичнее других - что неудивительно - смотрятся на компиляции Destruction (Whiplash) и Anthrax (Phantom Lord). Средненький сборник.<BR><BR>2) Deranged'02 - Plainfield Cemetery. Хотя в трио сменился басист/вокалист, никаких изменений более не произошло, и не будь этой инфы в буклете, замены я бы не заметил, тем более, что студия, продюсер и микшер остались прежние. В этот раз группа решилась напечатать текста, хотя оформление предшественника было повеселее. Неплохой кусок брутального мяса, но без особых "специй", длящийся немногим более 35 минут. Не думаю, что сей релиз будет особенно выделяться среди себе подобных, хотя всё сделано очень качественно.<BR><BR>3) Carcass'89 - Symphonies Of Sickness. Взял на союзовской лицензии, пиратка уползает на продажу, блиа.<BR><BR>4) Lacrimosa'99 - Elodia + Alleine zu zweit. Действительно шикарный двойной дигипак от Айронда (правда, кармашек для буклета у меня уже порвался, да и хуйъ бы с ним). Стоит это дело 250 рэ, не знаю, готовы ли фэны отдать двойную цену за него, но будем надеяться, что Еньди не останется, сцука, без "миллера". Описывать сей релиз смысла нет, это последний нормальный студийник Льющего Слезы Клоуна. Выглядит действительно красиво, так что всем рекомендую приготовить 8 баксов. По словам главреда посово-готического издания ДаркСсыте, Айронд планирует выпускать по одному новому дигипаку в неделю, так что копите бабло. Добавлю лишь, что сей релиз я смог найти только на одной точке из всех, торгующих лицензионным барахлом.<BR><BR>5) Behemoth'95&97 - Thunders To Erupt. Лоханулся я с этим диском. Бегемоты такого образца мне совершенно не катят, а материал этот, видимо, раньше выходил под другим названием, также есть ранее не выпускавшиеся бонусы (кавера на "Total Disaster" Destruction и "Freezing Moon" Mayhem). С удовольствием отдам за полцены фэнам.<BR><BR>6) The Dillinger Escape Plan'98 - Under The Running Board. Доставшийся мне в довесок к приобретенным Бинамб сингл (с некойе примечательной надписью на зданей обложке :О)), спасибо Тёме. Давать какие-либо комментсы к ДЕП на маздае смысла нет.<BR><BR>7) Skinless'01 - Foreshadowing Our Demise. Абсолютно ничем не примечательный дэт-грайнд из Нью-Йорка с типично релапсовским оформлением альбома. Такого барахла делают тоннами, и более интересного притом. Покупка отменяется.
+
+### Металл 80-х
+
+R. 25.12.2002 16:32:
+Из относительных редкостей имеются также Discharge, Holocaust, Tank, Girl,  Re-Animator, Carrion, Kazjurol, Heavy Pettin', Death Angel, Laaz Rockit, Watchtower, Hades, Stone, Sudden Impact, Trust, Abattoir, Acrophet, Armored saint, Jag Wire, Kix, Omen, Racer X, Phantom Lord ну и прочиая, прочая, прочая...<BR><BR>...продолжаем мериться пиписками :))))<BR><BR>Nick M., насчет оцифровки с винила - хорошая мысля, но, боюсь, дороговатая :(  Вот если бы у кого-нибудь была уже готовая мини-станция для оцифровки, можно было бы подумать, как кой-какие раритеты оцифровать для узкого, так сказать, круга... :)))
+
+### Металл 80-х
+
+R. 25.12.2002 19:59:
+Извините за словестный понос, но я там и Phantom Lord нашел! Тоже редчайшая вещь, особенно первый диск (и его когда-то мне бох послал, гы, отпечатанный на фирме Devil, хехе) Только в инфе неверно указано, что они америкосы - они немцы... Были и америкосы с таким названием, но дисков, вроде бы, не выпускали... Чума, что кто-то этих протоблэкеров помнит...
+
+### Новинки 31.01.2003
+
+папа Хэлл 03.02.2003 11:47:
+гм... Чет наш самаритянин разбушевался:-))) <BR>Игорь! я тебе давно сказал, что завязывай ты слушать павер вообще - тебе ж нравится среднетемповое грузилово, а тут скоростных вещей дофига...:-)) <BR><BR>ну я тож кой чего прикупил...<BR>1. Stratovarius - Elements. Part 1 (Айронд) - Ждать от Страто чего-то нового, это тоже самое, что ожидать, что Моторы заиграют в духе Майкла Джексона! :-))<BR>Конечно тут нет таких боевиков типа Hunting High..., однако альбом выглядит более целостным, чтоли. Самое интересно, что исчез некий стратовский депресс - новые песни оченна светлые получились. И ничего плохого в этом не вижу. По мне лучше скорость и светлость, чем мрачность и грузилово среднетемповое. Опять же скоростных вещей побольше тут. Особенено меня прибила Статофоротресс! хе-хе... Тимо показал г-ну Мальмстину, как надо играть, чтобы это не выглядело ЗАНУДСТВОМ!<BR>про качество записи, сведения, и т.п. говорить бессмысленно - ВЫСШИЙ КЛАСС! Буклет тоже супер, хотя обложечка несколько размыто смотрится... На Инфинити была горааааааааздо симпатичней!))) С другой сторный Дерек Риггс ерунду не делает...<BR>в общем 4+ из 5.<BR>Phantom Lord - Circle of the Wasted (сд мАКСИМУМ) - В ГРЕЦИИ ЕСТЬ ВСЕ!!! Павер в том числе... хотя это не новость - один хрецкий паверный релиз уже был - Wolfcry. Признаюсь с опаской ставил диск, т.к. уже упомянутый Вольфкрай мне не покатил... совсем. В данном случае все оказалось гораааааааздо лучше - типичный качественный европавер (скорее скандинавского разлива). Все на месте - хоры, соляки, скоростные вещи. НЕльзя сказать что новое слово, но ИМХО приятная пластинка для паверщика, че и говорить. в общем 3,5 из 5<BR><BR>Урбан Тейл не успел послушать... Хотя кажется мне, что я не разочаруюсь... Спасибо Яше, что подсказал приобресть данный релиз.<BR>Кстати, на Горбе послушал один диск Unrully Child под названием III... гм... вроде все на месте - американская харда с вокалом а-ля Лу Гремм... Однако настолько пресно звучит, что одуреть можно... никаких цепляющих элементов... НИЧЕГО! брать не стал... 
+
+### Самый прикольный кавер
+
+Flamestrike 31.05.2004 09:42:
+Phantom Lord: как это не дошли? А те же немоляевские "Ну где же вы, девчонки?" :))<BR><BR>автору топика спасибо за упоминание кавера Аморфис. Нашел этот трек, долго смеялся :)
+
+### адски новые GRAVE и UNLEASHED
+
+R. 02.10.2004 14:58:
+Блять... А сколько ещё групп дожидаются костоломских топиков...<BR><BR>ANVIL BITCH<BR>DESTRUCTOR<BR>PILEDRIVER<BR>PHANTOM LORD<BR>CARRION<BR>V2<BR>OSTROGOTH<BR>SATAN<BR>MANDATOR<BR>GRIM REAPER<BR>HEATHEN<BR>RAZOR<BR>ZED YAGO<BR>TYSONDOG<BR>KAZJUROL<BR><BR>.......
+
+### Новинки... 2004
+
+Dimas 05.10.2004 17:29:
+ANAAL NATHRAKH - 2004 - Domine Non Es Dignus (Season Of Mist)<BR>Третья разрушительная работа британских блэкстеров, которая пронесется около вас как торнадо сметая все на пути своем. Предыдущие две работы группы были альбомами месяца в британском Террорайзере. А дебютный еще и в Керранге. Музыку этой группы называют саундтрэком к армагеддону. Она являет собой само воплощение зла, ненависти и насилия. Новая же работа группы убирает предыдущие работы по всем параметрам. Скоростной блэк-метал, с дисторшн-вокалом, хаотичными клавишными, нойзовыми гитарами, совершенно нестандартными ходами, а в некоторых местах неожиданной мелодикой. Колоссальная работа, которую я рекомендую всем любителям экстремального искусства.<BR><BR>TSJUDER - 2004 - Desert Northern Hell (Season Of Mist)<BR>Снова блэк-метал, уже из Норвегии, от группы с десятилетним стажем и третьим своим альбомом. Бескомпромиссный тру блэк метал в духе ранних Имморталов и Мэйхема. Довольно привлекательная со всех сторон классическая работа, хоть и стандартная до предела. Во всяком случае, все блэкстеры будут неимоверно рады этому кругляшу.<BR><BR>FATAL PORTRAIT - 2004 - Adventum (self-production)<BR>Дебютный альбом испанской блэковой формации представляющей материал в духе DIMMU BORGIR и EMPEROR. Что искренне радует, так это желание испанцев не тупо следовать канонам жанра, а пытаться самим выдумывать и воплощать свои фантазии на деле. При этом, материал группы отличается необычайной мелодичностью. На это веротяно повлияло то, что басист и гитарист раньше играли в паверных группах. Интересная работа.<BR><BR>BLOODSTAINED - 2004 - Greetings From Hell (Cult Metal Classics)<BR>Дебютный альбом греческой команды вдохновенно играющей свой heavy power metal. Но на самом деле, этот альбом лишний раз подтверждает, что с пауэром в Греции большая беда. Достаточно вспомнить PHANTOM LORD или WOLFCRY. Эта группа не лучше их, но и не хуже. Для Греции может и хорошо, но в мировом масштабе - это совершенно посредственная продукция.<BR><BR>PURE INC. - 2004 - Pure Inc. (AFM Records)<BR>Дебютник швейцарской команды, аж на самом АФМе - это наверное должно что-то значить. Однако, я не нашел здесь совершенно ничего глобального. Милый хэви-рок, но не более. Все качественно, есть интересные моменты, но в целом, довольно скучноватая продукция.
+
+### НОВИНКИ 2005. Первый топик года
+
+Dimas 19.05.2005 18:57:
+просто шквал всевозможных новинок, даже нет времени все это описать...<BR><BR>вот чуток, пока свободная минута на самое последнее...<BR><BR>ARCANA XXII - 2005 - Your Fatal Embrace (Einheit Produktione)<BR>Европейское издание четвертого альбома первой и единственной тяжелой группы из Намибии. Метаясь от стиля к стилю, они наконец-то добрались до пагана на основе традиционного мелодичного хэви. Продукт оригинальный, но ничем не выдающийся.<BR><BR>ODROERIR - 2005 - G&#246;tterlieder (Einheit Produktione)<BR>Дебютный альбом нового проекта музыкантов MENHIR и XIV DARK CENTURIES. Монументально... Любители фолка и пагана будут вне себя от радости при этих звуках.<BR><BR>THE LUST - 2005 - My Dear Emptiness (Sleaszy Rider Records)<BR>Вторая работа питерской группы, играющей готик метал с женским вокалом (вокалистка еще вроде в школе учится). Альбом сводился и проходил мастеринг в греческой студии, всем этим занимался вокалист MYSTIC PROPHECY. Качество получилось гораздо лучше, чем на дебютнике, а вот в хитовости материала новая работа немного уступает. если вам понравился дебют, то смело берите и этот альбом, в противном случае, он не изменит вашего мнения о группе. <BR><BR>CROSSOVER - 2004 - Dogma (Sleaszy Rider Records)<BR>Второй альбом греков. Очень даже неплохой симфо атмосферик блэк метал. Напоминает ранний DIMMU BORGIR, ANCIENT и ROTTING CHRIST. Гостевой вокалист - Kaiaphas (ANCIENT).<BR><BR>WASTEFALL - 2004 - Soulrain (Sleaszy Rider Records)<BR>Еще одни греки со своим вторым альбомом пытаются ошеломить мир своими прогрессивными идеями. Сами музыканты позиционируют свою музыку, как смесь PAIN OF SALVATION, OPETH, NEVERMORE и SLIPKNOT. В общем-то, местами, это действительно так. Каечтсво хорошее, техника на высоте, может мелодий не хватает, но, в целом, релиз интересный.<BR><BR>DEPRESSION - 2004 - Legions Of The Sick (Sleaszy Rider Records)<BR>Второй альбом греков, после семилетнего молчания. В составе группы ударник Akis (ex-SEPTIC FLESH). Не знаю, это или ччто-то другое повлияло на то, что в музыке группы есть довольно много похожих мест из творчества SEPTIC FLESH. Прогрессив-готик-дум с чистыми вокалами (мужской и женский), очень мелодичный и интересный, хотя тяжести ему порой не хватает.<BR><BR>KINETIC - 2004 - The Chains That Bind Us (Sleaszy Rider Records)<BR>Дебют еще одних греков, выдержанный в лучших традициях ARCH ENEMY и IN FLAMES. Качество слегка хромает, отсутствие свежих идей, в общем, так себе, но для коллекции пойдет.<BR><BR>Еще несколько альбомов с Sleaszy Rider Records чисто для коллекции, особого внимания они не заслуживают:<BR>OVERLOAD - 2005 - Never Again - special for fans STRATOVARIUS & SONATA ARCTICA, только с гораздо худшим качеством <BR>PHANTOM LORD - 2005 - Imperial Fall - четвертая работа греков, которая, как и все предыдущие, не впечатляет, недопавер короче<BR>NOCTA - 2005 - Wicked Woman - опять греки, на сей раз хэвидумстонерхардрок, вот так, ни больше ни меньше, в состав затесался ударник George Kollias (NIGHTFALL, NILE), больше ничего примечательного<BR>WINDFALL - 2005 - Infector - смесь традиционного хэвипавера с агрессивным американским нюметаллом<BR>FUNERAL REVOLT - 2005 - The Perfect Sin - а вот это кстати, неплохо...Модерн метал с индустриальными элементами и брутальным вокалом.<BR>
+
+### Вот вам и блэкметал...
+
+R. 22.02.2006 18:02:
+Ахуеть.<BR><BR>Объясняю для тех, кто не в танке.<BR><BR>Изначально Venom и были black-metal. Изначально это _так_ и задумывалось. С английской несерьёзностью.<BR><BR>Но затем в дело вступили скандинавы. Появился грим, убитые и немеряный пафос. <BR><BR>Таким вот нонешние дети и получили black metal. И они уверены в том, что он такой и задумывался.<BR><BR>Только хуйъ там.<BR><BR>Давайте возьмём еще двух типичных прото-блэкеров. В Phantom Lord играл гитарист Virgin Steele Стар, он утверждал, что проект (с "немецкими" именами-фамилиями и пр.) и был задуман, как стёб. Сотона, все дела. Как и у Веном. Теперь Carrion. Там то же самое, я с ВО Пульвером по этому поводу лет 5 назад переписывался. Тоже был элемент стёба, только музыка была записана сочно и не без влияния Destruction.<BR><BR>Вот такой блэк.
+
+### Фирменные диски от MUSICA Prod
+
+Vit Belov 31.10.2008 08:57:
+Psychotron	Pray For Salvation	Sleaszy Rider	Power-progressive	350 руб<BR>Deva Noctua Entropia	Be Sinking in Marshland	Sleaszy Rider	Death-industrial	300 руб<BR>Odious	Mirror Of Vibrations	Sleaszy Rider	Oriental Sympho-black-metal	350 руб<BR>Imagika	My Bloodied Wings	Sleaszy Rider	Thrash-metal	350 руб<BR>Duster 69	Nothing Left	Sleaszy Rider	Stoner	350 руб<BR>Enemynside	In The Middle Of Nowhere	Sleaszy Rider	Progressive	350 руб<BR>W.E.B.	Don't Wake Futility	Sleaszy Rider	Death-Doom	350 руб<BR>Mike G.	The Black Gibson Soundtrack	Sleaszy Rider	Guitar Instrumental	350 руб<BR>Vinder	Visions Of Time	Sleaszy Rider	Thrash-metal	300 руб<BR>Space Mirrors	Memories Of The Future	Sleaszy Rider	Space-rock/Progressive/	300 руб<BR>Phantom Lord	Imperial Fall	Sleaszy Rider	Power-metal	350 руб<BR>Weeping Silence	End Of An Era	Sleaszy Rider	Gothic-doom	350 руб<BR>Nocta	Wicked Woman	Sleaszy Rider	Progressive	350 руб<BR>Bomb And Scary	Black Wishing Well	Sleaszy Rider	Thrash'n'roll	350 руб<BR>
+
+### Фирменные диски от MUSICA Prod
+
+Vit Belov 16.05.2009 08:52:
+1917	Testimonial	Concerto	Death-metal	300 руб<BR>Adytum	Echoes Of Refuge	Northern Storm	Death-doom	300 руб<BR>Agathocles	Amoclen	Lecter Music	Grindcore	350 руб<BR>Agorhy	Ruptura	Humanosmortos	Hardcore/Metalcore	350 руб<BR>Ancient	Eerily Howling Winds	Sleaszy Rider	Black-metal	350 руб<BR>Aneurysm	Shades	Old Ones	Prog-metal	350 руб<BR>Anthelion	Bloodshed Rebefallen		Sympho-black-metal (digi)	350 руб<BR>Apolion	Hungry Of Souls	Billec Tum	Black-metal	300 руб<BR>Armored Saint	Nod The Old School	Metal Blade	LTD 2CD	450 руб<BR>Artrosis	Koncert w Trojce	Metal Mind	Live (digi)	350 руб<BR>Ashdautus	Shadow Plays of Grief And Pain	Triol	Black-metal	300 руб<BR>Ashes To Ashes	Darker Side	Escape	Hard'n'Heavy	350 руб<BR>ASP	Weltunter	Over Rainbow	Gothic (digi)	350 руб<BR>Athanator	Earth Of Blood	Ateneo	Melodic death-metal	300 руб<BR>Atheiste	…The End Of Christian Age…	Erpland	Gothic-black-metal	350 руб<BR>Baby Stab Horror	In The Name Of Satan	Rotting Corpse	Death-metal	300 руб<BR>Batalion D'Amour	W Teatrze Snow	Metal Mind	Heavy-metal	350 руб<BR>Battalion	Winter Campaign	Shiver	Death-metal	350 руб<BR>Beto Vasquez Infinity	Infinity	BMG	T. Turunen, Candice Night	350 руб<BR>Black Comedy	Synthesis	Angel Production	Industrial  	300 руб<BR>Cain	Alliance Of Spite	Sleaszy Rider	Progressive-metal	350 руб<BR>Coherent Liquid Form	New Existence	Archives	Melodic Death-black	300 руб<BR>Crossover	Dogma	Sleaszy Rider	Sympho-black	300 руб<BR>Depression	Legions Of The Sick	Sleaszy Rider	Progressive	300 руб<BR>Dol Ammad	Ocean Dynamics 	Electronic Art Metal	Sympho-metal (DC COOPER, Alex Holzwarth)	400 руб<BR>Duster 69	Angel King	Sleaszy Rider	Stoner/Doom	350 руб<BR>Fahrenheit	Chain Reaction	Sleaszy Rider	Glam/Hard-rock	350 руб<BR>Fragile Vastness	A Tribute to Life	Sleaszy Rider	2CD-digi-pack/Progressive	450 руб<BR>Funeral Revolt	The Perfect Sin	Sleaszy Rider	Industrial 	300 руб<BR>Imagika	My Bloodied Wings	Sleaszy Rider	Thrash-metal	350 руб<BR>Kinetic	The Chauns That Bind Us	Sleaszy Rider	Digi-pack	350 руб<BR>Lust, The	Memirane	Sleaszy Rider	Gothic-metal	300 руб<BR>Masquerade	Flux	Metal Blade	Hard-rock	350 руб<BR>Mike G.	The Black Gibson Soundtrack	Sleaszy Rider	Guitar Instrumental	350 руб<BR>Misericordia	Dechristianize	Downfall Records	Black-metal	300 руб<BR>Moat	The Sun Is Destroyig Us All	Black Flame Records	Fantasy Black-metal	300 руб<BR>Mors In Tabula	Blemish	Sleaszy Rider	industrial	300 руб<BR>Mort	Raw&Cold	Pestilence	Black-metal	300 руб<BR>Mort	The Denial Of Christ	Pestilence	Black-metal	300 руб<BR>Necropsya	Slaves Of The Magic	Gate Of Horror	Thrash-metal	300 руб<BR>New Plague, The	Shackled and Enslaved	Cursed	Death-thrash-metal	300 руб<BR>Nocta	Wicked Woman	Sleaszy Rider	Progressive	350 руб<BR>Nomenmortis	Exterminating The Bastard Forces	Downfall Records	Death-grind	300 руб<BR>Octagon	Death Fetish	Regimental	Black-metal	300 руб<BR>Odious	Mirror Of Vibrations	Sleaszy Rider	Oriental Sympho-black-metal	350 руб<BR>Ordog	Life is Too Short	Violent Journey	Doom-metal	350 руб<BR>Patan	Acero	Icarus	Heavy-metal	350 руб<BR>Pettalom	Wine Of The Night	Demise records	Gothic-metal	320 руб<BR>Phantom Lord	Imperial Fall	Sleaszy Rider	Power-metal	350 руб<BR>Powerful	Welcome to the Slaughterhouse	My Graveyard	Heavy-metal	350 руб<BR>
+
+### Продаётся и покупается некоторое количество говнЯшков.
+
+Non Serviam 09.10.2009 13:39:
+necrophil - cannibal sex / death/grind<BR>necrotic - among the nauseating depravity / death metal<BR>necrotic flesh - gore gourmet / death metal<BR>negative reaction - tales from the insomniac / doom/sludge metal<BR>nekrokaos - chaos ii / black metal<BR>new plague, the - insatiable / death/black metal<BR>nexus 6 - a strange habitat / technical black metal<BR>nightfall - i am jesus / melodic death metal<BR>nightwish - amaranth (dvd-single) / melodic metal<BR>no emotions - my will / death metal<BR>nocta - wicked woman / heavy metal<BR>nocte - who lies behind? / gothic metal<BR>noctis - for futureґs past / extreme prog. metal<BR>nokturne/noctifier - wargod domination / black metal<BR>non opus dei - vi: the satanachist's credo / black metal<BR>nord 'n' commander - hermeneutics / folk/black metal<BR>northern breeze - sailing to the north / black metal<BR>oathean - fading away into the grave of nothingness / melodic death/black metal<BR>obduktion - ii / death metal<BR>obscure - shedded blood (+bonus) / black metal<BR>occidens - glorification of the antichrist / black metal<BR>october file - a long walk on a short pier (slipcase) / hardcore<BR>ominous - intercorpse / death metal<BR>omnium gatherum - spirits and august light / death metal<BR>one step beyond - beyond good and evil / experimental death metal<BR>onirik - spectre / black metal<BR>onward - reawaken / power metal<BR>ordo tyrannis - vasa iniquitatis / industrial black/doom metal<BR>orkus - the gate / black metal<BR>ouija/anasarca - riding into the funeral paths - god machine (2-cd) / black/death metal<BR>pagan - oz : in transcendence / black metal<BR>pannychida - new worldґs end / death/thrash<BR>paper chase, the - what big teeth you have (ep) / avant rock<BR>paranoia - paranoia / grindcore/death<BR>passenger - in reverse (cds) / melodic metal<BR>paul clark - shredz at an exhibition / melodic metal/shred<BR>peeping tom - mojo / experimental rock<BR>pentsign - cacophonous march of the dark / death/black metal<BR>perimeter - healing by festering / technical death<BR>perimeter - odium humani generis / technical death<BR>phantom lord - imperial fall / progressive power metal<BR>pokolgйp - momentum / heavy metal<BR>postnecrum - estruendo de legiones / melodic black metal<BR>preludium - eternal wrath / black/death metal<BR>prodigy, the - always outnumbered, never outgunned / electropunk<BR>profundis tenebrarum - pathogenesis / black metal<BR>project: failing flesh - a beautiful sickness / thrash metal<BR>promises - in the pharmacy / gothic/power metal<BR>prop 13 - change is good / punk<BR>protest - have a rest, please / brutal death<BR>psychobolia - fisting you all / brutal black metal<BR>psychopathia/decomposed - overcome fear / meeting the life / grind/death<BR>psychotron - pray for salvation / power/thrash metal<BR>pump - breakdown to breakthrough / heavy metal<BR>pyuria - oubliette ontology / death/thrash metal<BR>rakoth - tiny deaths / bombastic metal<BR>recourse - weakening the structure / death metal/hc<BR>redemptor hominis - premices i-iv / black metal<BR>reign of terror, the - sacred ground / power metal<BR>reincarnation - seed of hate/void / death metal<BR>rellik - heritage of abomination / death metal<BR>renegade - straight to the top / heavy metal<BR>reprisal scars - killing art of self-deception / death/thrash<BR>requiem aeternam - philosopher / black metal<BR>resurrected - blood spilled / brutal death<BR>ricky warwick - love many trust few / rock<BR>rigorism - cold & pain / death metal<BR>rigorism - human fear / death metal<BR>riphead/drogheda - land of ruin/violencia (split-cd) / death metal<BR>sacriversum - beckettia / gothic metal<BR>salem - strings attached / death metal<BR>santa'agostino - la morte marcia sui terreni k / noise/drone<BR>saralee - dance (cds) / gothic rock/metal<BR>saralee/gotham o.d/velvetcut - 3-way-split mcd / melancholic metal<BR>saruman - ride on the darkside / atmospheric death metal
+
+### Продаётся и покупается некоторое количество говнЯшков.
+
+stepa 10.02.2010 02:17:
+Paradise Lost	1991	Gothic	Peaceville	<BR>Paradise Lost	1992	Shades Os God	Music For Nations	<BR>Paradise Lost	1993	Icon	Music For Nations	DP<BR>Paradise Lost	1993	As I Die	Music For Nations	<BR>Paradise Lost	1994	Seals The Sense	Music For Nations	<BR>Paradise Lost	1994	Gothic Ep	Peaceville	<BR>Paradise lost	1995	Live tracks, demos & b-side		<BR>Paradise Lost	1995	The Last Time	Music For Nations	<BR>Paradise Lost	1997	One Second	Music For Nations	<BR>Paradise Lost	1997	Say Just Words	Music For Nations	<BR>Paradise Lost	1999	Host	EMI	<BR>Paradise Lost	2002	Symbol Of Life	GUN	Limited Edition<BR>Paradise Lost		As We Die For…	Holy	<BR>Paradise lost 	1995	Draconian times 		<BR>Paramaecium	1996	Within The Ancient Forest	Pleiteggeier records	<BR>Pearl Jam	1994	Vitalogy	Epic	<BR>Peccatum	1999	Strangling From Within	Candle	<BR>Pegazus	1998	Wings Of Destiny	Nuclear Blast	<BR>Phantom Lords		A Tribute To Metallica	Adrenaline Records	<BR>Phlebotomized	1997	Skycontact	Cyber Music	<BR>Phlebotomized 	1995	Immense intense suspense 	Cyber Music	cyber cd 12<BR>Phlebotomized/single/ 	1994	Preach eternal gospels 		<BR>Pith Shifter	1990	Industrial	Vile Music	<BR>Pith Shifter	1993	Desensitized	Earache	<BR>Poverty’s No Crime	1995	Symbiosis	Modern Music	<BR>Poverty’s No Crime	1996	The Autumn Years	Modern Music	<BR>Pretty Maids	1997	Spooked	Massacre	<BR>Primal Fear	1998	Primal Fear	Nuclear Blast	<BR>Primal Fear	1999	Jaws Of Death	Nuclear Blast	<BR>Psychotic Waltz	1990	A Social Grace		<BR>Psychotic Waltz	1992	Into The Everflow	IRS	<BR>Psychotic Waltz	1996	Bleeding	Bullet Proof	cdvest 74<BR>Pungent Stench	1993	Dirty Rhymes And Psychtronic Beats	Nuclear Blast	<BR>Pyogenesis	1992	Pyogenesis	Osmose	<BR>Pyogenesis	1994	Wave Of Erotasia	Nuclear Blast	<BR>Pyogenesis	1997	Unpop	Nuclear Blast	<BR>Pyogenesis	1998	Mono.. Or It Ever...	Nuclear Blast	<BR>Rage	1986	Reign Of Fear	Noise	<BR>Rage	1987	Execution Guaranteed	Noise	<BR>Rage	1988	perfect Man	Noise	<BR>Rage	1989	Secrets In A Weird World	Noise	<BR>Rage	1990	Reflections Of A Shadow	Noise	<BR>Rage	1991	Extended Power	Noise	Japan<BR>Rage	1992	Beyond The Wall		Japan<BR>Rage	1992	Trapped!		Japan<BR>Rage	1993	The Missing Link	Noise	<BR>Rage	1994	The Anniversary Album	Dark Wings	<BR>Rage	1995	Black In Mind	Gun	<BR>Rage	1996	Higher Than The Sky	Gun	Japan<BR>Rage	1996	Lingua Mortis	GUN	gun090<BR>Rage	1996	End off All Days	GUN	gun101<BR>Rage	1998	Thirteen	Stereo Jasrac	vicp-60314<BR>Rage	1999	Featuring Lingua Mortis Orchestra Sounds	GUN	gun185<BR>Rage	2001	Welcome To The Other Side	Gun	<BR>Razor	1997	Decibels	Hypnotic Records	hyp 1058<BR>Rhapsody	1998	Symphony Of Enchanted Lands	Limb Music	<BR>Riot	1998	Inishmore	Metal Blade	<BR>Roland Grapow	1997	The Four Seasons Of Life	Grapow	<BR>Rossomahaar	1999	Imperium Tenebrarum	More Hate	<BR>Rossomahaar	2002	Quaerite Lux In Tenebris	Sound Age	<BR>
+

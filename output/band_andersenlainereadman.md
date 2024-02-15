@@ -1,0 +1,18 @@
+# Andersen/Laine/Readman
+
+Дискография
+"Three" 2006, Hard Rock
+
+## Отношения с другими группами
+
+
+## Обсуждения
+
+
+## Упоминания
+
+### Продаётся и покупается некоторое количество говнЯшков.
+
+krux 06.02.2012 16:14:
+Продам CD лицензия. 100 рублей. По всем вопросам на vv-pobeda@mail.ru<BR><BR>A Tribute to Judas Priest с автографами Therion на обложке<BR>Agathodaimon serpents embrace<BR>Agatodaimon – chapter III лицензия<BR>Allen lande – the battle<BR>Amon Amarth – The crusher<BR>Andersen/Laine/Readman - Three<BR>Angra – rebirth<BR>Annihilator – all for you<BR>antimatter savior<BR>Anvil - 2001 - Plenty Of Power<BR>At Vance - 1999 - No Escape<BR>At Vance - 2001 - Dragonchaser<BR>At Vance - 2002 - Heart Of Steel<BR>At Vance - 2005 - Chained<BR>At The Gates – Slaughter of the soul<BR>Autopsy mental funeral<BR>AXE - The Crown 2000 Cd-Maximum лицензия<BR>Axenstar perpetual twilight<BR>Bathory – Nordland-1<BR>Bathory – Nordland-2<BR>Baton Rouge – The hottest…<BR>Blake – starbringer gothic doom<BR>Bolt trower – honour valour pride<BR>bonfire - double X<BR>Borknagar – quintessence<BR>Burns/Blue – what if…<BR>Carcass – misshapen operation 150 рублей<BR>Communic – conspiracy in mind<BR>Communic – waves of visual decay<BR>Crematory – act seven<BR>Crematory – believe gothic<BR>Crematory – revolution gothic<BR>Destruction – Inventor of evil<BR>Die apokaliptischen reiter –riders on the storm<BR>Dimmu Borgir – death cult Armageddon<BR>Dimmu borgir – in sorte diaboli<BR>Domain – last days of utopia<BR>Domain – the sixth dimension<BR>DSG – Ashes to ashes<BR>Dyslesia my own revolution<BR>Eddi Ojeda – axes 2 axes<BR>edenbridge sunrise in eden<BR>Eidolon – Hallowed apparition<BR>Evergrey – Monday morning apocalypse<BR>Evergrey – recreation day<BR>Evidence one – criticize the truth<BR>Evil masquerade – theatrical madness<BR>exodus - bonded by blood<BR>EZ Living – after the fire<BR>Fair warning – 4 лицензия<BR>Fair Warning – Brothers keeper<BR>Fair Warning - Go! 2000 CD-Maximum.<BR>Fall of empyrean –anhedonia gothic doom<BR>Firewind- between…<BR>GB Arts – The lake<BR>Genius ( Rock Opera) - - episode 1<BR>Grave – back from grave<BR>Greedom Call – Eternity<BR>Green Carnation – Journey to the end of light<BR>GZR – ohmwork лицензия<BR>Hartmann – out in the cole<BR>Heaven and Earth – windows to the world<BR>Helloween – Rabbit don’t come easy<BR>Human Race – dirt eater<BR>Hurricane liquifury<BR>Hypocrisy – into the abyss<BR>Hypocrisy – virus<BR>Immortal – at the heart of winter<BR>Immortal – damned in black<BR>Immortal – sons of northern darkness<BR>Impetigo - 1992 - Horror Of The Zombies<BR>In conspiracy with satan – a Tribute to Bathory<BR>Infestdead – Hellfuck/ killing Christ<BR>J.S. Soto – prism<BR>Jacobs dream drama og ages<BR>Jacobs dream –theater of war<BR>John West – Earth maker<BR>Karelia – usual tragedy<BR>Keepers of Jericho – a tribute to Helloween<BR>Kickhunter – hearts and bones<BR>King Diamond - 2002 - Abigail II The Revenge<BR>Laudamus – lost in vain<BR>Lordi monster show<BR>M. Boals – ring of fire лицензия<BR>M.Boals – edge of the world<BR>Macabre gloom<BR>Machine man – scars and wounds<BR>Manilla road – circus maximus<BR>Masi – eternal struggle<BR>Massacre – from beyond<BR>Metallium – Chapter One<BR>Million get millionized<BR>Mourning beloveth – dust gothic doom<BR>My dying Bride – a live of deathless kings<BR>My dying bride- songs of darkness…лицензия doom death<BR>personal war-different but same<BR>Persuader – evolution purgatory<BR>Persuader – When eden burns<BR>Perzonal War - 2004 – Faces лицензия<BR>Perzonal war – when times turn red лицензия<BR>Powergod – Bleed for the gods<BR>Powergod – Evilution P.III – nemesis<BR>Powergod – Long live the loud<BR><BR>
+

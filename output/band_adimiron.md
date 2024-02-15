@@ -1,0 +1,50 @@
+# Adimiron
+
+Дискография
+"Burningsouls" 2004, Techno Death
+"When Reality Wakes Up" 2008, Techno Death
+"K2" 2011, Techno Death
+
+## Отношения с другими группами
+
+
+## Обсуждения
+
+
+## Упоминания
+
+### за что металлеры не любят християн ;)
+
+henk 06.10.2000 15:10:
+2 adimiron: шустро бьешь по клаве :) ты кто по профессии?
+
+### за что металлеры не любят християн ;)
+
+Undead 21.10.2000 03:10:
+А по мне так с темой то все ок! Тема за что металлеры (пусть даже не все) не любят христиан (не христианство!). Потому что эти самые христиане такие-то и сякие. Не хочется повторятся, но есть отношение к религии в целом, а есть отношение к ее носителям. Суть сабжа - отношение к носителям. Лично мое отношение к ним... эээ... можно сказать никакое. Я прошел через христианство и его отвержение (юношеский максимализм видимо), а теперь для меня христиане просто как явление природы, хотя иногда и вызывают некоторую антипатию. adimiron хорошо и толково разжевал что есть что. Но это так сказать аксиомы и в данном случае они немного недостаточны так как не могут составить цельной парадигмы, в результате чего на базе этих аксиом можно сделать разные выводы. Это как если стереть аксиомы евклидовой и неевклидовой геометрий, которые различаются, из реальности, то мы бы получили вечный спор сторонников одной и другой.<BR>И все таки мне кажется, что в основном металлерам нет дела до христиан вообще.
+
+### Фест 28 июня - результаты
+
+Uneral 29.06.2003 15:42:
+ 2 Adimiron Black. Да, "хочу мяса" было забавно, но ведь был народ ещё колоритнее. Ты наверное не застал, но во второй половине феста появились два перца с разукрашенными лицами, изрядно рубибшиеся перед сценой...Кто видел - тот понял!
+
+### Продаётся и покупается некоторое количество говнЯшков.
+
+urgammal pionjдr (99) 23.09.2008 08:50:
+Dunkelgrafen Baphomet's aeon CD Last Episode<BR>Edge of Sanity Crimson 2 MDG black mark<BR>Edge of Sanity Crimson 2 MCD black mark<BR>Edge of Sanity Unothrodox MCD black mark<BR>Edge of Sanity When all is said (2 CD) DCD black mark<BR>Ephel Duath Pain Necessary To Know CD earache<BR>Falkenbach ...en their medh riki fara... CD no colours<BR>Falkenbach Magni blandinn ok megintiri CD napalm rec.<BR>Finntroll Jaktens Tid CD Spinefarm rec.<BR>Gehenna Adimiron Black CD moonfog<BR>Gehenna Deadlights CD moonfog<BR>Gehenna Murder CD moonfog<BR>Gehenna WW CD moonfog<BR>Gloomy Grim Blood monster darkness CD Holy<BR>Gorgoroth Antichrist ltd DG Season of Mist<BR>Gorgoroth Pentagram ltd DG Season of Mist<BR>Gorgoroth Under the Sign of Hell ltd DG Season of Mist<BR>Graveland Carpathian wolves CD no colours<BR>Graveland In the Glare of burning Churches CD no colours<BR>Himinbjorg Haunted shores CD Red Stream<BR>Horna Envaatnags Eflos Solf Esgantaavne CD Woodcut<BR>Horna – Behexen Split CD CD Debemur Morti<BR>In flames Soundtrack to your escape CD Nuclear Blast<BR>In the woods THREE TIMES SEVEN ON A... CD Properchy rec.<BR>Infernum ...taur nu fuin.. CD <BR>Isengard Hшstmшrke CD moonfog<BR>Kalmah They will return CD Spinefarm rec.<BR>Katatonia Brave murder day CD Avantgarde Music<BR>Katatonia Discouraged ones CD Avantgarde Music<BR>Keep of kalessin Agnen: a journey trough the dark CD Avantgarde Music<BR>Keep of kalessin Through times of war CD Avantgarde Music<BR>Khold Phantom CD moonfog<BR>Korpiklaani Spirit Of The Forest CD napalm rec.<BR>Korpiklaani Tales Along This Road CD napalm rec.<BR>Korpiklaani Tervaskanto CD napalm rec.<BR>Korpiklaani Tervaskanto cd+dvd DG napalm rec.<BR>Korpiklaani Voice Of Wilderness CD napalm rec.<BR>Lacrimas profundere Filthy Notes For Froze Hearts CD napalm rec.<BR>Leaves' eyes Lovelorn CD napalm rec.<BR>Leaves' eyes Vinland Saga CD napalm rec.<BR>Ljе Til avsky for livet cd <BR>LIV KRISTINE DEUS EX MACHINA CD Massacre rec.<BR>Lugubrum DE TOTEM CD Red stream <BR>Lux occulta Dyonisos CD Pagan records<BR>Magog Unholy German Black Metal cd <BR>Mеnegarm Dodsfard CD Displeased<BR>Mеnegarm Vargaresa the beginning CD Displeased<BR>Manes HOW THE WORLD CAME TO AN END CD Candelight <BR>Marduk Fuck me Jesus CD osmose<BR>Mayhem Chimera DG season of Mist<BR>Mayhem European Legions CD season of Mist<BR>Mayhem Freezing moon CD Supernal Music<BR>Mayhem Grand Declaration of War CD season of Mist<BR>Mayhem Live in Leipzig DG peaceville <BR>Mayhem Mediulanum capta est CD Avantgarde Music<BR>Mayhem Ordo Ad Chao CD season of Mist<BR>Mayhem Pure fucking armaggeddon CD <BR>Mayhem – Darkthrone The true legends in black CD Warhammer<BR>Megadeath Capitol punishment CD Capitol<BR>Megadeath So far so good so wh CD Capitol<BR>Megadeath The world needs a hero CD Metal is<BR>
+
+### Продаётся и покупается некоторое количество говнЯшков.
+
+dmc_bot 15.04.2009 14:37:
+Abigor (600 рэ):<BR>-Apokalypse<BR>-Supreme Immortal Art<BR>-Channeling the Quintessence of Satan<BR>-Orkblut - The Retaliation<BR><BR>Gehenna "Adimiron Black" - 400<BR>Gehenna "Black Seared Heart" (Holycaust rec.) -тыща<BR>Bathory "Under The Sign Of The Black Mark" (firstpress) тыща<BR>Bathory "Hammerheart" (firstpress) тыща<BR><BR>dmc-bot@hotmail.com
+
+### Продаётся и покупается некоторое количество говнЯшков.
+
+Non Serviam 09.10.2009 13:38:
+eskhaton@rambler.ru<BR><BR>новые, в среднем по 400 р<BR><BR>8 foot sativa - season for assault / melodic death metal<BR>absent - audi... vide... sile / death metal<BR>acephala - infraction cerebral occupation / brutal death<BR>adastra - the last sunset / heavy metal<BR>adimiron - burning souls / death metal<BR>aerium, the - song for the dead king / gothic metal<BR>agathocles - mince core history 1996-1997 / grindcore<BR>age of silence - acceleration / atmospheric symphonic metal<BR>age of silence - complications (ep) / avantgarde metal<BR>agents of man - count your blessings / hardcore/metal<BR>agony scene, the - the agony scene / melodic death metal<BR>alev - we live in paradise / alternative metal<BR>alien blakk, the - modes of alienation (digi) / instrumental<BR>all too human - entropy / prog. metal<BR>alltheniko - devasterpiece / thrash metal<BR>al'virius - beyond the human nation / symphonic thrash<BR>ambrazura - storm in your brains / progressive death metal<BR>amen - gun of a preacher man / punkmetal<BR>amulet - all that is solid melts into air (slipcase) / punk/hardcore<BR>anal thunder - cheap wine and quality time / punk/hardcore<BR>andy winter - shades of light through black and white / melancholic<BR>another one dead - come what may / hardcore metal<BR>antigama/nyia - split cd / grind/death<BR>antiregimen - aun recuerdo / punk<BR>antisilence - suffer hits / thrash/speed metal<BR>aphoom zhah - symbol of new aeon / raw black metal<BR>aphoom zhah / smiercieslan - biessmjarotny czorny mietal / raw black metal<BR>aphrodisiac - nonsense chamber / noise/dark ambient<BR>apocryphal voice - the sickening / avant black metal<BR>arachnes - apocalypse / symph. power metal<BR>arallu - the demon from the ancient world / black/death<BR>arathyr - curse man's blame (digisleeve) / black metal<BR>ars moriendi - lґoppression du rien / atmospheric black/dark<BR>art in exile - art in exile / dark/gothic metal<BR>artes negras - let there be death / black/thrash metal<BR>as all die - victory / noisy dark ambient<BR>asgaroth - red shift (digi) / black metal<BR>asrai - touch in the dark / gothic metal<BR>au revoir - keys of misery / old school thrash metal<BR>autumn verses - tunes of disconsolation / melodic death<BR>avenger - godless (...assuming the throne of immortality...) / black/death metal<BR>azure emote - chronicles of an aging mammal / experimental electro death metal<BR>barse - if you can't fuck 'em, cut 'em up! / punk<BR>barse - they said it couldn't happen here... and it didn't / punk<BR>beautiful cafillery - reciprocal transfusion / death metal/hc<BR>bitterness - sweet suicide solutions / melodic death<BR>black elk - always a six never a nine (digisleeve) / noiserock<BR>blackend - mental game messiah / heavy/thrash metal<BR>blackend - the last thing undone / thrash metal<BR>blackthru - is tamsos... / black metal<BR>blastmasters - twisted metal (+3 bonus) / death/grind<BR>blind beyond - out of faith / death metal<BR>blizzard - pure filth and mayhem / speed/thrash metal<BR>bloodshot - ultimate hatred / groove-core<BR>bombensturm - machtwerk / black/viking metal<BR>born of sin - let it begin / death metal<BR>bowel - rotten fecal duct / death metal/grindcore<BR>brobdingnagian - torture stained disaster / black metal/noise/doom<BR>bullcharge - a near extinction level / death/metalcore<BR>burden a.d. - anno dominator / thrash metal<BR>cadaveric crematorium - grindpeace / grindcore<BR>callisto - true nature unfolds / sludge doomcore<BR>callous - descension / modern metal<BR>calmsite - elvisdeath / melodic deathrock<BR>canyon creep - hijack the world! / southern metal<BR>captor - alien six / thrash metal<BR>cardiac necropsy - 16 years of anal addict / death/grind<BR>carnal grief - nine shades of pain / melodic death metal<BR>casketgarden - open the casket, enter the garden / melodic death/thrash<BR>cerebral effusion - smashed & splattered organs / brutal deathgrind<BR>chariot - everything is alive, everything is breathing, nothing is dead and nothing is bleeding / hardcore
+
+### Продаётся и покупается некоторое количество говнЯшков.
+
+Non Serviam 20.01.2010 22:15:
+within temptation	mother earth	dsfa	1999	eu	<BR>zz top	afterburner	warner	1983	usa	original<BR>akhenaton	divine symphonies	adipocere records			<BR>bloody dead and sexy	narcotic room	alice in…			<BR>december wolves	til ten years	hammerheart productions			<BR>diabolique (swe)	wedding the grotesque	black sun records			<BR>gehenna	adimiron black 	moonfog productions			<BR>loits	ei kahetse midagi	ledo takas//witchcraft records (for south america only)			<BR>menhir (ger)	buchonia ep	ars metalli records			<BR>nergal	the wizard of nerath	unisound records			<BR>paragon belial	hordes of the darklands	folter records			<BR>risvegli	burning gates	northern darkness records			<BR>shade (pol)	sounds of memory (chapter...echo)	serenades records			<BR>tenebrae (fin)	hypnotech	shiver records			<BR>thanatos (hol)	angelic encounters	hammerheart records
+

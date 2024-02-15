@@ -1,0 +1,42 @@
+# Save The World
+
+Дискография
+
+## Отношения с другими группами
+
+
+## Обсуждения
+
+
+## Упоминания
+
+### интересно, кто-нить на досуге пописывает тексты?
+
+Antoni Gutslasher 25.01.2005 13:27:
+Lesbian Pussy Shredding<BR><BR>Tortured girl<BR>Lies on floor<BR>Face is smashed<BR>Legs are spread<BR><BR>Lesbians are <BR>Useless scum<BR>Save the world <BR>From this shit<BR><BR>Take the knife, you, butcher<BR>Stab it in her cunt<BR>Cut the clit and pussylips<BR>Replace the womb and gut<BR><BR>Slice her face vith violence<BR>Stream of blood will flow<BR>Let her die from bloody loss<BR>Dismember with chainsaw<BR><BR>Bloody limbs<BR>On the floor<BR>Guts are trashed<BR>From the window<BR><BR>Head is smashed<BR>In the fridge<BR>Breasts are shred<BR>In the blender<BR><BR>Mangled lesbian body<BR>Preparing to be cooked<BR>Bones - in boiling water<BR>Legs - as meat to soup<BR><BR>Bowels are fed wih spices<BR>Cunt is roasted well<BR>Buttocks trashed away<BR>I hate that cellulite smell<BR><BR>Lesbian pussy shredding x4<BR><BR>Вот такой вот садизм
+
+###  IRON MAIDEN свой логотип тоже когда то скопировали
+
+spn 08.06.2008 11:53:
+Вспомнил тут как то....лого Мэйдэнов, с которого драли многие группы, в свою очередь один в один скопировано с названия альбома Save The World, группы GEORDIE 76 года.....ну мало ли может кто и не знал:)<BR><BR><A HREF="http://i31.tinypic.com/xe3ius.jpg" TARGET="_blank">http://i31.tinypic.com/xe3ius.jpg</A>
+
+###  IRON MAIDEN свой логотип тоже когда то скопировали
+
+R. 08.06.2008 21:35:
+Оригинал Save The World выходил с другой обложкой, дорогие знатоки :)))<BR><BR>А это - переиздание на ЦД (которое ещё было сляпано с винила, запись щас почистили, а обложку оставили почему-то).
+
+### Продаётся и покупается некоторое количество говнЯшков.
+
+metallian 02.08.2009 16:25:
+Лицензия (100 руб.):<BR>Affair - No Substitute (2002)<BR>Alice Cooper - Dirty Diamonds (2005)<BR>Arthemis - The Damned Ship (2002)<BR>Benny Jansson - Save The World (2002)<BR>Burning Rain (1999) (с Дуги Олдриджем из Whitesnake)<BR>Burning Rain - Pleasure To Burn (2000) (с Дуги Олдриджем из Whitesnake)<BR>Condition Red (2003) (с Алексом Мази)<BR>Demons And Wizards - Touched by the Crimson King (2005)<BR>DivineFire - Hero (2005) (ударник из Am I Blood)<BR>Dogface - Unleashed (2000)<BR>Dragonheart - Throne Of The Alliance (2002)<BR>E-Force - Evil Forces (2003)<BR>Empire - Raven Ride (2006)<BR>Eternal Flame - King Of The King (2002)<BR>Excalion - Primal Exhale (2005)<BR>Fires Of Babylon (2008) (на вокале Роб Рок)<BR>Holy Moses - Queen Of Siam (1986) (переиздание с бонус-треками)<BR>Jack Starr's Guardians Of The Flame - Under A Savage Sky (2003)<BR>JK Northrup - Play It On 11 (Best Of) (2002)<BR>Kee Marcello's K2 - Melon Demon Divine (2004) (бывший гитарист Europe)<BR>Labyrinth - No Limits (1995) (переиздание с 2 бонус-треками)<BR>Labyrinth - Freeman (2005)<BR>Lunatica - Fables And Dreams (2004)<BR>Lunatica - The Edge Of Infinity (2006)<BR>Manowar - Warriors Of The World (2002)<BR>Mark Boals - Edge Of The World (2002) (вокалист Ингви Мальмстина и Royal Hunt)<BR>MCM - Ritual Factory (2004) (с Алексом Мази)<BR>Myon - Ghost In Paradise (2002)<BR>Nanowar - Other Bands Play, Nanowar Gay! (2006)<BR>Odyssea - Tears In Floods (2004) (гитарист Labyrinth)<BR>Perfect World (2003) (на вокале Келли Хансен)<BR>Phenomena - PsychoFantasy (2006)<BR>Pontus Norgren - Damage Done (2000) (гитарист HammerFall)<BR>President Evil - Trash'n'Roll Asshole Show (2006)<BR>Redkey - Rage Of Fire (2007) (на вокале Томас Реттке из Heavens Gate)<BR>Running Wild - Under Jolly Roger (1987)<BR>Running Wild - Port Royal (1988)<BR>Russell Allen's Atomic Soul (2005) (вокалист Symphony X)<BR>Stream - Nothing Is Sacred (1998)<BR>The Tracelords - Sex, Money, Rock'n'Roll (2001)<BR>Threshold - Extinct Instinct (1997)<BR>Thunder - Shooting At The Sun (2003)<BR>Time Requiem (2002) (ex-Majestic)<BR>TNT - New Religion (2004)<BR>Unchained (2005)<BR>Vampiria - Wicked Charm (2002)<BR>Victory - Fuel To The Fire (2006) (сборник с перезаписанными вещами)<BR>Warning SF - Aftermath (2002)<BR>Winter Parade - Midnight In Paradise (2002)<BR>Zar - Hard To The Beat (2003)<BR>+<BR>Blackomore's Night - Past Times With Good Company (2CD) - 150 руб.<BR>Edguy - Lavatory Love Machine (EP) - 50 руб.<BR>
+
+### Продаётся и покупается некоторое количество говнЯшков.
+
+metallian 19.09.2010 14:42:
+продаются диски - лицензионные и пиратка с буклетом. цена каждого диска - 100 рублей. двойные и дигипаки - 150 рублей. сингл Edguy - 50 рублей.<BR>контакт - 8-903-5183544 или angra55t@yahoo.com<BR><BR>CD-Maximum:<BR>Affair - No Substitute (басист Bonfire)<BR>Alice Cooper - Dirty Diamonds<BR>Arthemis - The Damned Ship<BR>Burning Rain - s/t<BR>Burning Rain - Pleasure To Burn<BR>Condition Red - II<BR>Crush 40 - s/t (вокалист Axel Rudi Pell)<BR>Dark Moor - Beyond Light And Darkness<BR>Dionysus - Sign Of Truth (вокалист Luca Turilli)<BR>Dionysus - Anima Mundi (вокалист Luca Turilli)<BR>DogFace - Unleashed (вокалист At Vance)<BR>Doro - Classic Diamonds / Let Love Rain On Me (дигипак)<BR>Doro - For Love And Friendship / We're Like Thunder<BR>Doro - Warrior Soul (дигипак)<BR>Dragonheart - Throne Of The Alliance<BR>E-Force - Evil Forces (музыканты Voivod)<BR>Enzign - Cast The First Stone (музыканты Ten)<BR>Evidence One - Critisize The Truth (бывший вокалист Domain)<BR>Harem Scarem - The Early Years<BR>Hess - Just Another Day (вокалист Harem Scarem)<BR>Hodson - This Strange World (музыканты Ten)<BR>Jack Starr's Guardians Of The Flame - Under A Savage Sky<BR>JK Northrup - Play It On 11<BR>Kee Marcello's K2 - Melon Demon Drive (бывший гитарист Europe)<BR>Last Autumn's Dream - s/t (бывший гитарист Fair Warning)<BR>Mark Boals - Edge Of The World (бывший вокалист Yngwie Malmsteen)<BR>Myon - Ghost In Paradise<BR>Odyssea - Tears In Floods (гитарист Labyrinth)<BR>Opus Atlantica - s/t<BR>Perfect World - s/t (бывший вокалист Hurricane, Unruly Child)<BR>Pontus Norgren - Damage Done (гитарист Hammerfall)<BR>President Evil - Trash'n'Roll Asshole Show (вокалист Powergod)<BR>Pulse - s/t<BR>Pulse - Worlds Apart<BR>Reb Beach - Masquerade (гитарист Winger, Whitesnake)<BR>Shaman - Reason (музыканты Angra)<BR>Silent Voices - Infernal<BR>Silver - Addiction (вокалист Michael Schenker Group)<BR>Silver Seraph<BR>Stream - Nothing Is Sacred (бывший вокалист Giuffria)<BR>Thunder - Shooting At The Sun<BR>Time Requiem - s/t (бывший клавишник Majestic)<BR>TNT - My Religion<BR>Virtuosity - Secret Visions<BR>Virtuosity - Northern Twilight Symphony<BR>Winter Parade - Midnight In Paradise<BR>Zillion - s/t (басист Grave Digger)<BR>Рогатые Трупоеды - Девки, секс и трупный яд<BR><BR>Irond:<BR>Alex Masi - In The Name Of Mozart<BR>Benny Jansson - Save The World<BR>Chris Poland - Return To Metalopolis (бывший гитарист Megadeth)<BR>Edguy - Lavatory Love Machine (EP)<BR>Holy Moses - Queen Of Siam<BR>Last Autumn's Dream - s/t<BR>Labyrinth - No Limits<BR>Labyrinth - Freeman<BR>Manowar - Warriors Of The World<BR>The Trophy - The Sign Of Life (бывший вокалист Jaded Heart)<BR>Victory - Fuel To The Fire<BR><BR>AMG:<BR>Duke - Escape From Reality (бывший вокалист Scanner)<BR>Eternal Flame - King Of The King<BR>Powergod - Bleed For The Gods (That's Metal - Lesson 1) (бывший гитарист Sodom)<BR>Powergod - Nemesis (бывший гитарист Sodom)<BR>The Tracelords - Sex, Money, Rock'n'Roll (2 экземпляра) (бывший гитарист Sodom)<BR>Zar - Hard To The Beat<BR><BR>Soyuz:<BR>Angra - Rebirth<BR>Angra - Temple Of Shadows<BR>Axel Rudi Pell - Shadow Zone<BR>Axel Rudi Pell - Kings And Queens<BR>Axel Rudi Pell - The Ballads III<BR>Axel Rudi Pell - Diamonds Unlocked<BR>Blackmore's Night - Past Times With Good Company (2CD)<BR>Cans - Beyond The Gates (вокалист Hammerfall)<BR>Demons & Wizards - Touched By The Crimson King (музыканты Blind Guardian, Iced Earth)<BR>Redkey - Rage Of Fire (музыканты Heavens Gate)<BR>Running Wild - Under Jolly Roger<BR>Running Wild - Port Royal<BR>Russel Allen's Atomic Soul - s/t (вокалист Symphony X)<BR><BR>Fono:<BR>Consortium Project - III (бывший вокалист Vengenace, Elegy)<BR><BR>Mystic Empire:<BR>Altaria - The Fallen Empire<BR>Divinefire - Hero<BR>Empire - Raven Ride<BR>Excalion - Primal Exhale<BR>Millenium - Jericho<BR>Phenomena - PsychoFantasy<BR>Unchained - s/t<BR>Vampiria - Wicked Charm<BR>
+
+### Новинки 2012
+
+no more links 06.02.2012 22:48:
+Lord Wind новый появился - "Ales Stenar" (2012), надо дождаться, пока Белиал закотирует и рецу накропает, хе-хе)) <BR>и ещё Wolfsbane - "Wolfsbane Save the World" (2012)
+

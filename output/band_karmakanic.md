@@ -1,0 +1,46 @@
+# Karmakanic
+
+Дискография
+"Entering The Spectra" 2002, Progressive
+"Wheel Of Life" 2004, Progressive
+"Who's The Boss In The Factory?" 2008, Progressive
+
+## Отношения с другими группами
+
+C группой "Flower Kings, The" Zoltan Choersz
+C группой "Flower Kings, The" Jonas Reingold
+C группой "Malmsteen, Yngwie" Goeran Edman
+C группой "Bodin Tomas" Tomas Bodin
+C группой "Flower Kings, The" Tomas Bodin
+C группой "Flower Kings, The" Roine Stolt
+
+## Обсуждения
+
+
+## Упоминания
+
+### Уже декабрь! ПОРА ПОДВОДИТЬ ИТОГИ НАВЕРНОЕ??!!!
+
+Vsevolod 06.12.2004 19:16:
+У меня предварительные итоги такие:<BR><BR>Фирменные CD Top-10:<BR>1. THE FLOWER KINGS "Adam & Eve" (Inside Out Music / SPV)<BR>2. THE TANGENT "The Tangent II: The World That We Drive Through" (Inside Out Music / SPV)<BR>3. JOE STUMP "Speed Metal Messiah" (Lion Music)<BR>4. BANG TANGO "Ready To Go" (Shrapnel / Mascot)<BR>5. ICED EARTH "The Glorious Burden" (Steamhammer / SPV)<BR>6. IQ "Dark Matter" (Giant Electric Pea)<BR>7. TILES "Window Dressing" / "Presence In Europe 1999" (Inside Out Music / SPV)<BR>8. ANDRE ANDERSEN "OceanView" (North Point Productions / AMG)<BR>9. TNT "My Religion" (Mayhem)<BR>10. KARMAKANIC "Wheel Of Life" (Regain)<BR><BR>Русские CD Top-3:<BR>1. ARCHONTES "Book One: The Child Of Two Worlds" (Valiant Music)<BR>2. ДИАЛОГ "Антология" (6 CD) (Монолит)<BR>3. Hieronymos Bosch "Human Abstract" (CD-Maximum)<BR><BR>Музыкальные DVD Top-3:<BR>1. DREAM THEATER "Live At Budokan" (2 DVD) (Atlantic / Rhino)<BR>2. DREAM THEATER "Images And Words: Live In Tokyo" / "5 Years In A LIVEtime" (2 DVD) (Atlantic / Rhino)<BR>3. THRESHOLD "Critical Energy" (2 DVD) (Inside Out Music / SPV)
+
+### НОВИНКИ 2005. Первый топик года
+
+Дофф 24.04.2005 22:56:
+TIME REQUIEM - The Inner Circle Of Reality - 2004 (CDM)<BR>Вторая работа бывших Majesty. Клавишные соло, естественно поражают. Малмстин прям какой то. Но вот с мелодиями здесь хуже, чем на дебютнике. Любителям неоклассического павера и клавишникам мастхэв. 6 из 10<BR>KARMAKANIC - Weel Of Life - 2004 (CDM)<BR>Состав сильно изменился. Слот - гостевой музыкант, клавиники тоже приглашенные.<BR>Оснавная фигура - Jonas Reingold и он просто охуителен. А вот Горан Эдман мне совсем не понравился. Его заслуга в том, что он не испортил этот альбом, его просто незаметно. <BR>А музыка шикарная. Классический импровизационный арт-рок.<BR>8 из 10
+
+### НОВИНКИ 2005. Первый топик года
+
+R. 24.05.2005 14:18:
+Чем дальше, тем меньше радуют меня новинки... Старею...<BR><BR>Van Der Graaf Generator - Present (2CD). Возвращение, подобное выходу из-за печки. Это не раскаты грома в майском небе, это всего лишь пукнул сосед за стеной. Правда, сосед заслуженный, но уже старенький, дряхлый... <BR><BR>Хэммилл-Бентон-Эванс-Джексон последний совместный альбом записали в 1976-м году. И вот - реюньон. Ждал я его жаднее, чем возвращения Джудасприста и Кэндлмэсса. И вот дождался. Тридцатишестиминутная вокально-инструментальная пластинка практически безнадёжна. Безжизненна. Чем был хорош ранний и средний Ван Дер Грааф? Тем, что английские журналисты окрестили "панковским прогрессивом" или "музыкой без тормозов". Теперь есть тормоза и нет музыки. Второй, чисто инструментальный диск поживей немного, но скука... мама дорогая... Оценку ставить не буду. Разочарование года, куда там пристам.<BR><BR><BR>Kino - Picture. Звёздные неопрогрессивщики перетусовались, но ничего путного из этого не вышло. Это не смесь из Arena, Marillion и Porcupine Tree, как вы могли подумать, взглянув на состав, это безликий и безвкусный пирожок с ливером, из тех что продаются возле метро. Съел и просрался. Нда... Ни одной мало-мальски запоминающейся вещи, ни одной свежей мысли. А ведь музыканты-то - не пуп царапать... Двойка, вопчем.<BR><BR><BR>Karmakanic - Wheel Of Life. Насколько замечательный был дебютник, настолько же поганое продолжение. Это как разговор с болтуном: тарахтит человек о чём-то без умолку, и вы сначала недоумеваете - о чём это он? - а чуть погодя начинаете засыпать, убаюканные монотонным тарахтением. И здесь два балла. <BR><BR><BR> 
+
+### Новинки от СОЮЗа
+
+promoter 09.02.2006 16:19:
+Вышли и представлены к продаже:<BR><BR>VIRGIN STEELE "Life Among The Ruins" (1993)<BR>- стал первым студийным альбомом группы за пять лет, и ознаменовал триумфальное возвращение VIRGIN STEELE на большую сцену. Этот альбом стал первой работой коллектива в 90-х и великолепным напоминанием всем поклонникам стиля о том, что VIRGIN STEELE были одними из тех, чьими усилиями закалялась американская сталь в 80-е. Группа вступила в 90-е, высоко держа штандарт американского пауэра, и "Life Among The Ruins" - ярчайшее тому свидетельство. Артем ГОЛЕВ, ALIVE <BR><BR>Скоро подойдёт вторая часть Мэрридж и можно считать, что с Вёрджин Стилом покончено. У-у-х! Наконец-то...<BR><BR>И вот интересная вещщичка, обязательно обратите внимание. 2006 год!<BR>THE TANGENT "A Place In The Queue"<BR>Новый студийный (третий по счету) альбом уже нашумевшей английско-шведской прог-формации. Roine Stolt покинул проект, вместо него на гитару пришел Krister Jonsson (KARMAKANIC). Звучание альбома во многом напоминает лучшие образцы "кентерберийской сцены", а участие в составе Theo Travis’а, работавшего с David’ом Sinclair’ом и DAEVID ALLEN’S GONG только усиливает это сходство.<BR>Некоторые критики уже утверждают, что нас ожидает открытие нового музыкального стиля - "ретро-кантербурий", а пластинка обязательно станет самой яркой звездой современного прогрессивного мира!<BR>
+
+### Shit for sale, spring 2006
+
+ixtiandr 14.03.2006 02:21:
+Часть 1-я. CD-Maximum for free (диски без коробок):<BR><BR>Dark Suns – Existence<BR>Deathbound - Doomsday Comfort<BR>Deatchain – Deadmeat Disciples<BR>Defleshed – Reclaim The Beat<BR>Deranged – High On Blood<BR>Dissenter – Apocalypse Of The Damned <BR>E-Force – Evil Forces<BR>Eddie Hardin’s Wizard’s Convention – The Masters (2 CD)<BR>Elysium – Feedback <BR>Fifth Reason – Within Or Without <BR>Fuirach – Chaospawner <BR>Haemorrhage - Loathesongs<BR>Hair Of The Dog – Rise<BR>Horned God – Chaos, Bringer Of All Revelations <BR>Houwitser – Rage Inside The Womb<BR>Illogicist – Subjected<BR>Impaled Nazarene – Death Comes In 26 Carefully Selected Pieces<BR>Infinited Hate – Revel In Bloodshed<BR>Kabbal – Synthetically Revived<BR>Lunatic Gods – Sitting By The Fire<BR>Noekk – The Water Sprite<BR>Parricide – Ill-Treat<BR>Polterchrist – Engulfed By The Swarm<BR>Stranglers, The – Coup de Grace<BR>Trivium – Ember To Inferno<BR><BR>+ (в каропке)<BR><BR>This Is Menace – No End In Sight (Irond)<BR><BR>Часть 2-я. Лицензия - 70 рэ если не указано иное:<BR><BR>Abaddon Incarnate – Nadir (I)<BR>Abaddon Incarnate – The Last Supper (CDM) 50 рэ<BR>Agressor – Medieval Rites (CDM)<BR>Alias Eye – Field Of Names (CDM) 50 рэ<BR>Anathema – The Silent Enigma (S)<BR>Anathema – Resonance (S)<BR>Antares - :[made in fear]: (CDM) 50 рэ<BR>Apokalyptischen Reiter, Die – Soft & Stronger (I)<BR>Apokalyptischen Reiter, Die – All You Need Is Love (F)<BR>Benediction – Grind Bastard (I)<BR>Bethlehem – Schatten aus der Alexander Welt (I)<BR>Black League, The – Utopia A.D. (F)<BR>Bolt Thrower – War Master (S)<BR>Bolt Thrower - ... For Victory (S)<BR>Bride Adorned - Blessed Stillness? (S)<BR>Clinic - Winchester Cathedral (S)<BR>Crown, The – Deathrace King (F)<BR>Defecation – Intention Surpassed (I) 50 рэ<BR>Diabolos Rising – Blood, Vampirism & Sadism (CDM)<BR>Dimmu Borgir – Enthrone Darkness Triumphant (I)<BR>Disinter – Demonic Portraiture (CDM) 50 рэ<BR>Divine Rapture – The Burning Passion (CDM)<BR>Evemaster – Wither (CDM)<BR>Fairlight Children - 808 Bit (S)<BR>Fields Of The Nephilim - Mourning Sun (S)<BR>Frameshift – Unweaving The Rainbow (CDM)<BR>Grave – Back From The Grave (F)<BR>Houwitser – Embrace Damnation (CDM) 50 рэ<BR>Hughes, Glenn – Soul Mover (I)<BR>Hypocrisy – Osculum Obscenum (I)<BR>Impending Doom – Apocalypse III. The Manifested Purgatorium (CDM) 50 рэ<BR>Iced Earth - The Glorious Burden (S)<BR>Jorn – Out Of Everu Nation (CDM) digi<BR>Ka-Pel, Edward - Kissing Frog Is Fine (S)<BR>Karmakanic – Entering The Spectra (CDM)<BR>Kataklysm – The Prophecy (I)<BR>Kataklysm – Shadows & Dust (I)<BR>Kataklysm – The Temple Of Knowledge (Kataklysm part III) (I)<BR>Kino - Picture (S)<BR>Klimt1918 – Undressed Momento (CDM)<BR>Lacrimas Profundere – Fall, I Will Follow (I)<BR>Lacrimas Profundere – Memorandum (I)<BR>Laika & The Cosmonauts - Local Warning (S)<BR>Legendary Pink Dots, The - All The King's Horses (S)<BR>Masterplan – Aeronautics (CDM)<BR>Monstrosity – Enslaving The Masses (2 CD) (F) 100 рэ<BR>Murder Corporation – s/t (CDM) 50 рэ<BR>Negative - Sweet Is Deceitful (S)<BR>Pretty Maids – Spooked (CDM)<BR>Rebaelliun – Annihilation (F) 50 рэ<BR>Samael – Reign Of Light (CDM)<BR>Severe Torture - Fall Of The Despised (S)<BR>Shape Of Despair – Ilussion’s Play (F)<BR>Six Feet Under – True Carnage (F)<BR>Skinny Puppy - Doomsday... (S)<BR>Sorg – Enigma Grotesque (I)<BR>Spock's Beard - Octane (S)<BR>Urbane, The - Glitter (S)<BR>v/a – A Tribute To The Priest (I) 50 рэ<BR>v/a - The Texas Chainsaw Massacre - The Album (S)<BR>Vanishing Point - Embrace The Silnece (S)<BR>Vomitory – Raped In Their Own Blood (CDM)<BR>Wasara – Kailen kauniin loppu (CDM)<BR>W.A.S.P. - The Neon God: part 2 - The Demise (S)<BR>Young, Michelle – Marked For Madness (CDM)<BR>
+

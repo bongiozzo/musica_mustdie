@@ -1,0 +1,27 @@
+# Whiteout
+
+Дискография
+
+## Отношения с другими группами
+
+
+## Обсуждения
+
+
+## Упоминания
+
+### Diablo Swing Orchestra, Москва, клуб Точка,22/05/10 
+
+promoter 23.05.2010 01:57:
+Таки-кто на разогреве был... Whiteout?<BR>У них есть сраничка на муспасе или сайт? Тожа послухать хотел... А их диск кто издал?<BR>Если можно, дайте сцылке...
+
+### Новинки 2015
+
+Dimas 24.09.2015 11:32:
+не, Стейт. похоже по именам только музыкантов Железной Девы знает<BR>надо так хотя бы:<BR>Фрэнк Белло (Frank Bello) из Anthrax.<BR>Чарли Бенанте (Charlie Benante) из Anthrax.<BR>Чак Билли (Chuck Billy) из Testament.<BR>Крис Бродерик (Chris Broderick) ex-Megadeth.<BR>Рекс Браун (Rex Brown) из Pantera, Kill Devil Hell.<BR>Дэвид Эллефсон (David Ellefson) из Megadeth.<BR>Гэри Холт (Gary Holt) из Exodus и Slayer.<BR>Скотт Ян (Scott Ian) из Anthrax.<BR>Андреас Киссер (Andreas Kisser) из Sepultura.<BR>Марк Осегуда (Mark Osegueda) из Death Angel.<BR>Майк Портной (Mike Portnoy) из The Winery Dogs и ex-Dream Theater.<BR>Трой Сандерс (Troy Sanders) из Mastodon.<BR>Алекс Cкольник (Alex Skolnick) из Testament.<BR>Джон Темпеста (John Tempesta) из The Cult и ex-Exodus.<BR>Тим Риппер Оуэнс из Judas Priest<BR>Кристина Скаббиа из Lacuna Coil<BR>Стив Зетро Соуза из Exodus<BR>ну и так далее...<BR>кроме того, на альбоме эпизодически отметились Geezer Butler (BLACK SABBATH), Phil Campbell/Mickey Dee (MOTORHEAD), Steve Vai and Billy Sheehan <BR><BR>ничего, конечно, нового, но качественно (еще бы!) и вызывает ностальгию<BR><BR><BR>кстати, вот скачал новинку Hanging Garden - Blackout Whiteout (2015), очень когда-то нравилась эта группа, но счас немного поменяла свой стиль, я пока не понял, лучше или хуже...<BR><A HREF="http://rusfolder.com/44250146" TARGET="_blank">http://rusfolder.com/44250146</A><BR>
+
+### настоящий doom - это sludge!!!
+
+Ghast 18.01.2016 22:05:
+Да прикольных коллективов тьма. Вот мой топ 20 только за прошлый год в стиле:<BR><BR>1. The Mire - Vice Regalia<BR>Британцы выдали такого качества материал, что у меня на протяжении первого прослушивания челюсть так и не оторвалась от стола.<BR>https://themire.bandcamp.com/album/vice-regalia<BR>2. Monolord - Vaenir<BR>Чумовой звук и классные композиционные ходы от шведов.<BR>https://monolord.bandcamp.com/album/v-nir<BR>3. Ufomammut - Ecate<BR>Чумовой звук и классные композиционные ходы от итальянцев.<BR>https://ufomammut.bandcamp.com/album/ecate<BR>4. High On Fire - Luminoferous<BR>Есть ещё у Пайка ягоды в ягодицах. "The Cave" - мега шлягер!<BR>5. Isah - Sistere<BR>Давно музыка не обволакивала. И тут вдруг как обволокла! Ух прям...<BR>https://izahband.bandcamp.com/album/sistere<BR>6. Intronaut - The Direction Of Last Things<BR>Стабильно на высоте, хоть откровения остались на ранних этапах творчества. Клип с дельфинами зачёт)<BR>7. Ahab - The Boats Of Glen Carrig<BR>Немцы от фьюнерала постепенно идут к постоте и дрону. В итоге получилась необычная работа, которую слушать не скучно ни секунды.<BR>https://ahabfuneraldoom.bandcamp.com...he-glen-carrig<BR>8. Weedpecker - II<BR>Забавно: за что поляки в металле не возьмутся - всё у них ладится. Вот и в психоделик стонере появилась интереснейшая банда.<BR>https://weedpecker.bandcamp.com/album/ii<BR>9. Baroness - Purple<BR>Не знаю, что особо здесь написать. Многие считают, что это провал. Я расслушиваю очередной альбом Баронесс как правило где-то через полгода после его появления, так что пока подожду с выводами.<BR>10. Kalpa - Sequences*<BR>Греческий сладж/пост метал. Нормально? Вполне!<BR>https://kalpaband.bandcamp.com/album/sequences<BR>11. Clutch - Psychic Warfare<BR>Старички зажигают по-бодрому. И хотя это скорее хард, чем стонер, не отметить их в этом году не могу. Отдельный респект за видос к "X-Ray Visions".<BR>12. Dopethrone - Hochelaga<BR>Ну, тут из названия всё понятно) Уже четвертый опус канадцев.<BR>https://dopethrone.bandcamp.com/album/hochelaga-3<BR>13. Hanging Garden - Whiteout Blackout<BR>Эта группа кардинально меняет жанр с каждым новым альбомом. Теперь по постоте зачем-то вдарили. Неплохо, традиционно очень мелодично. Существенный минус - мастеринг "в кирпич", кровь из ушей... а оно нам надо в наши-то годы?<BR>14. The Moth Gatherer - The Earth Is The Sky<BR>А вот эти раньше обволакивали)), а сейчас не получилось. Но в любом случае пара цепляющих мест есть.<BR>https://agoniarecords.bandcamp.com/a...rth-is-the-sky<BR>15. Kylesa - Exhausting Fire<BR>Сразу скажу: слушал по диагонали. Хитов наподобии "Unspoken" с предыдущего не заметил. Возможно, ошибаюсь. Открывашка вроде тянет.<BR>https://kylesasom.bandcamp.com/album/exhausting-fire<BR>16. Minsk - The Crash And The Draw<BR>В этих парнях чувствуется мощный потенциал, который с каждым новым альбомом так и остается нереализованыым. Может, в следующий раз...<BR>https://minskband.bandcamp.com/album...h-and-the-draw<BR>17. Phantom Winter - KVLT<BR>Вроде как это Omega Massif с вокалом. Так вот, по моему очень зря, что с вокалом((<BR>https://goldenantennarecords.bandcamp.com/album/cvlt<BR>18. Weedeater - Goliathan<BR>Каждый последующий альбом группы демонстрирует нам ступени деградации от употребления. Познавательно, но не более того.<BR>https://weedeater.bandcamp.com/album/goliathan<BR>19. Dark Buddha Rising - Inversum<BR>Наверное, неплохо. Но для меня слишком депрессивно.<BR>https://darkbuddharising.bandcamp.com/album/inversum<BR>20. Rosetta - Quintessential Ephemera<BR>Что это было? Ну то есть я реально не понял.<BR>https://theanaesthete.bandcamp.com/a...ntial-ephemera
+

@@ -1,0 +1,13 @@
+# Lost Conception
+
+Дискография
+"Paroxysm of Despair" 2011, Techno Death
+
+## Отношения с другими группами
+
+
+## Обсуждения
+
+
+## Упоминания
+

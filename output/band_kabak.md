@@ -1,0 +1,54 @@
+# Kabak
+
+Дискография
+"Descomposicion Cerebral" 1999, Deathcore
+"Cronicas Del Quirofano" 2002, Deathcore
+
+## Отношения с другими группами
+
+
+## Обсуждения
+
+
+## Упоминания
+
+### Новинки, для...
+
+Madman 02.12.2002 18:39:
+Попытаюсь дебютировать в этом топике:<BR>1)Nile'02 "In Their Darkened Shrines" - об этом альбоме здесь<BR>много писАли, поэтому буду краток: шедевр однозначно.10/10;<BR>2)Nasum'00 "Human 2.0" - весьма интересный быстрый грайнд, не <BR>лишенный некоторой мелодичности. 8/10;<BR>3)Regurgitate'00 "Carnivorous Erection" - типовой goregrind,<BR>без каких-либо открытий, но весьма достойный. 33 минуты - 38<BR>песенок, очень добрая и веселая музыка. Отдельно хотелось бы<BR>отметить вокальные партии. 8,5/10;<BR>4)Exuviate'00 "Exuviate" - снова грайнд, но на этот раз весьма<BR>необычный - авангардизм в духе Gorguts "Obscura". Желательная в<BR>таких случаях техника исполнения присутствует. 9/10;<BR>5)Kabak'02 "Cronicas Del Quirofano" - death/grind, отдаленно <BR>напоминающий мексканских Disgorge. Сочинено, сыграно и записано<BR>весьма прилично. На каком языке исполнены песни данного ВИА, понять<BR>не удалось из-за чрезвычайно мощного рыка вокалиста и барабанщика<BR>по совместительству, хотя подозреваю, что это испанский.8.5/10;<BR>6)Abaddon Incarnate'01 "Nadir" - опять death/grind, но на этот раз<BR>довольно скучный, что-либо интересное услышать не получилось.<BR>Айронд в очередной раз не порадовал. 5/10;<BR>7)Exhumed'98 "Gore Metal" - и опять death/grind. Качественный<BR>альбом мясной направленности. Два вокала - скриминг, коий <BR>соседствует с мощным гроулингом (как и предыдущего коллектива, кстати).<BR>Песни быстрые, присутствуютнехарактерные для данного стиля гитарные <BR>соло(!). Наличествует неплохо сделанный кавер Sodom ("Sodomy And Lust").<BR>В целом альбомне хуже и не лучше поледовавшего за ним второго альбома<BR> этого ВИА - "Slaughtercult". 8.5/10.
+
+### GORE GRIND
+
+Madman 05.12.2002 18:07:
+Не сказал бы, что disgorge-goregrind.<BR>По сабжу: американский disgorge, mortician, kabak, malignancy, imperilal foeticide.<BR>Не совсем то, но все же: deeds of flesh, deranged.
+
+### Крутой сайт по Грайндкору! Не реклама!!
+
+Vovan 24.03.2003 23:55:
+У кого-то в натуре слабовато - ну что такое двадцать наименований - один день прослушать.Ну а вот моя двадцатка (постараюсь именно грайдкора)<BR>Regurgitate<BR>Cephalic Carnage - hydro-grind<BR>Carcass <BR>Napalm Death<BR>Last Day Of Humanity<BR>Lymphatic Phlegm<BR>Haemorrhage<BR>Ghoul (типа старого каркаса)<BR>The County Medical Examiners (типа старого каркаса)<BR>Birdflesh<BR>Anal Blast<BR>Sublime Cadaveric Decomposition<BR>Torsofuck<BR>Birdflesh<BR>Cock And Ball Torture<BR>Blood<BR>Impetigo<BR>Adnauseam<BR>Intense Hammer Rage<BR>Utopia<BR>Machetazo<BR>Это только грайднкор<BR>Могу и слегка детом приправить:<BR>Deeds Of Flesh<BR>Dying Fetus<BR>SikFuk<BR>Bound And Gagged<BR>Deaden<BR>Ton<BR>Skinless<BR>Kabak<BR>Internal Suffering<BR>Severe Torture<BR>Disawoved<BR>Pyaemia<BR>Lust Of Decay<BR>Bodequin<BR>Mortal Decay<BR>Lividity<BR>Severed Savior<BR>Vile <BR>Cattle Decapitation<BR>Ну что-то я устал<BR>Ну а насчет техничности - у каждого свое видение этого понятия. Хотя понятие техно с бруталом - помоему малость несовместимо. Уж слишком часто техно-дет - явление крайне заумное. Для любителя мяса - чем тупее музыка, тем лучше
+
+### ROTTING CHRIST 29 октября &quot;Релакс&quot;
+
+Максим - LOGIN! 31.10.2005 08:02:
+уж коли зажгли, как говорят, значть не обломались сильно, а может и наоборот - порадорвались.<BR><BR>ващето, чесно говоря, релакс покурче чем некоторые виденные мной (на видеобутлегах) клубешники в той же омерике, во тетсь у меня пара бутлегов devourment, kabak, dying fetus ну и там ещё дестяток групп падобнава толка, я про это говорю.<BR><BR>хз конечно какой там у них звук на сцене, но сервис через камеру выглядит пездец как помойно, ободрано и почти что убого...
+
+### ANJ В АМЕРИКЕ 
+
+Antoni Gutslasher 16.05.2008 09:30:
+Предлагаю вместо Казачок петь Кабачок =)<BR>real kabak man<BR>и Gorbachev - kabachok<BR>=)
+
+### Лучший death альбом года в Мире в этом году
+
+no more links 03.06.2013 11:39:
+ага, можно. Orth, правда, оставил меня равнодушным, но то дело личных вкусов и предпочтений. Можно еще и Regurgitate 2000 внести в список, Immolation "Unholy Cult" (2002), Fuck…I'm Dead “Bring on the Dead” (2001) и ещё ряд других "имён". Совсем уж мэйнстримовых команд я старался намеренно избегать, ибо всякие там номерные альбомы C.Corpse, Six Feet Under & Nile (к примеру) - каждый может отслушать целиком, в виде дискографий, и решить для себя - насколько это ценно. Допустим, по тому же Nile я для себя сделал вывод, что мне интересен только их дебютный полноформатник 1998 года.<BR>По ранее запощённому - Vuvr в обязательном порядке следует ценить фанатам "умного" и техничного дэзняка, остальное - опционально))<BR>Вот, по новому "году", например, есть парочка не столь уж знаменательных опусов, но, вместе с тем, вполне себе "крепких середнячков", в духе старого Дисайда. Вам нравиццо Дисайд? тогда безбоязненно пробуйте слушать Corpsefucking Art “Splatter Deluxe” и Kabbal “Synthetically Revived”.<BR><BR>2002 - это, имхо, год грайнда, мясного и задорного)) судите сами:<BR><BR>Ahumado Granujo “Splatter Tekk”<BR>Cock and Ball Torture “Sadochismo”<BR>Disgorge (US) “Consume the Forsaken”<BR>Enmity “Vomit Forth Intestinal Excrement” (EP)<BR>Fornicator “Fornicator”<BR>God Dethroned “Ravenous”<BR>Grossmember “Leave Us Alone”<BR>Kabak “Cronicas del Quirofano”<BR>Kadath “Chasing the Devil”<BR>Intestinal Disgorge “Whore Splattered Walls”<BR>Negligent Collateral Collapse “Reprocess Segment Database Extender”<BR>Neuraxis “Truth Beyond” <BR>Prophecy (US) “Our Domain”<BR>Pustulated “Pathognomonic Purulency” (EP)<BR>Regurgitate “Hatefilled Vengeance” (EP)<BR>Squash Bowels “The Mass Rotting - The Mass Sickening”<BR>Sublime Cadaveric Decomposition “Sublime Cadaveric Decomposition” <BR>The County Medical Examiners “Forensic Fugues and Medicolegal Medleys”<BR>Tu Carne “…Me Quedo Con Tu Dolor!”<BR>Wolfen Society (ex-Acheron, D.Funeral) “Conquer Divine” (EP)
+
+### Лучший death альбом года в Мире в этом году
+
+no more links 03.06.2013 11:59:
+В список “2001” надо в обязательном порядке добавить штатовский Gorgasm “Bleeding Profusely” & Skinless “Foreshadowing Our Demise” и Pyaemia "Cerebral Cereal" <BR>Плюс, ко всему перечисленному:<BR><BR>Contrastic “Contrastic” (2000)<BR>Internal Suffering “Unmercyful Extermination” (EP) (2001)<BR>Perversist “Necrophilarmony” (2001)<BR>Purulent “Garavito's Pedophilia Tales” (2001)<BR>Traumatism “Grossly Unfair” (2000)<BR>Vomit Remnants “Indefensible Vehemence”  (EP)<BR><BR>2003:<BR><BR>Amoebic Dysentery “Mongoloid Metal”<BR>Kataplexia (ex-Kabak) “Morgue's Reality”<BR>Macabre “Murder Metal”<BR>Malignancy “Cross Species Transmutation” (EP)<BR>MeatKnife “Vaginal Blast”<BR>Mutilated “Devirginated Genital Pulp”<BR>Patologicum “Hecatomb Aberration”<BR>Purulent Spermcanal “Have the Munchies”<BR>Putrid Pile “Collection of Butchery”<BR>Rompeprop “Hellcock's Pornflakes”<BR>Sanatorium “Goresoaked Reincarnation”<BR>Soils of Fate “Crime Syndicate”<BR>Vital Remains "Dechristianize"<BR>Wormed “Planisphaerium”
+
+### Продаётся и покупается некоторое количество говнЯшков.
+
+no more links 28.03.2017 14:09:
+Хряпну-ка я свой список. Вернее, самое начало, там ещё разгребать и разгребать)) продаю как своё, так и кое-что от знакомого, который настолько обленился, что доверить данную процедуру ему нет никакой возможности :D<BR>короче говоря, кому что надо - пишите на darkthrone-gods@mail.ru<BR>обмена нет, и ради 500-1000 рублей я не побегу на почту или встречу в городе (Мск). но, в целом, можно договориться, я так полагаю.<BR>для начала, совсем немного <I>валентиньщины</I> (по ценам):<BR><BR>Abominable Putridity "In the End of Human Existence" (digi, Lacerated Enemy, rare) - 1500<BR>As Serenity Fades "Earthborn" (mCD) (1st press, Adipocere Records, 1994) - 1200<BR>Septic Flesh "Mystic Places of Dawn" - 1st press (Holy) - 2500<BR><BR>Cannibal Corpse "15-Year Killing Spree" (Compilation-box, 3CD+Dvd+комикс, буклет и др.), Metal Blade, rare - 5000<BR><BR>Cannibal Corpse "Classic Box" (первые три альбома + миник, в digi-формате, а также три постера к альбомам. <BR>в комплекте нет только наклейки с лого группы) - 4000<BR><BR>Abominant "Upon Black Horizons" (Deathgasm) - 300<BR>Abominant "The Way After" (Deathgasm) - 300<BR>Beneath the Massacre "Mechanics Of Dysfunction" (Prosthetic Records) - 350<BR>Choronzon "Magog Agog" (Nocturnal Art Prod., 1998) - 300<BR>Corpsefucking Art "The Art of the Fucking Corpse" (Despise the Sun, 2004) - 300<BR>Darth "Buttfucked by Destiny" (Crude, 2003) - 200<BR>Demons & Wizards "Touched by the Crimson King" (Steamhammer, 2005) - 500<BR>Desdemonia "Paralyzed" (2001, self-released) - 300<BR>Destruction "The Antichrist" (L.E., Brown O-Card, N.Blast Germany, 2001) - 800<BR>Disavowed "Stagnated Existence" (Neurotic) - 500<BR>Disgorge (Mex) "Gorelics" - 350<BR>Edge of Sanity "Crimson" (Black Mark) - 550<BR>Engorge "Dead...Fuck...Blackness" (Dark Horizon, 2002) - 300<BR>Fallen Yggdrasil "In No Sense Innocence" (self-released, 2002) - 300<BR>Gods of Emptiness " Disobedience" (P.Taste) - 350<BR>Gorefest "False" / "Erase" (+ EP's, MCD's & more) 2CD, N.Blast, USA 2005 - 750<BR>Gorefest "Soul Survivor" / "Chapter 13" (+ EP's, demos, live & more) 2CD, N.Blast, Germany, 2005 - 750<BR>Grave "You'll Never See... / ...And Here I Die...Satisfied" (C.Media USA, 2000) - 750<BR>Grave "Soulless / Hating Life" (C.Media USA, 2003) - 750<BR>Head-Trauma "Psychotic Episode" (Primitive Recordings) - 250<BR>I.N.R.I. "Hyper Bastard Breed" (2002, Cold Blood Industries) - 200<BR>Imbrue "Cado Datur Verbs" (2001 Necromance Records) - 250<BR>Inhuman Dissiliency / Vomitous "Supreme Engorgement Of Exquisite Disembowelment" (split-CD, Sevared) - 550<BR>Digested Flesh / Inhuman Dissiliency "Accumulation Of Eviscerated Remnants" (split-CD, Macabre Mementos) - 550 <BR>Kabak "Cronicas del Quirofano" (2001, American Line) - 200<BR>Kabbal "Synthetically Revived" (2003, Diamond Records) - 300<BR>Kataklysm "Sorcery & The Mystical Gate of Reincarnation" (digi, 1998, N.Blast) - 900<BR>Kataklysm "Temple Of Knowledge & The Vortex Of Resurrection" (digi, 2003, N.Blast) - 1000<BR>Kreator "Violent Revolution" (Steamhammer, 2001) - 600<BR>Lapsus Dei "Beyond the Truth" (Rawforce Prod.) - 300<BR>Morbid Angel "Altars of Madness" (Earache, 2002) - 500<BR>Mortification "The Silver Cord is Severed" (2CD, L.E., N.Blast Germany) - 500<BR>Overkill "Bloodletting" (Steamhammer, Germany, 2000) - 600<BR>Paradise Lost "Shades of God" (digi, rare, Metal Mind, 2008) - 1000<BR>Paradise Lost "Host" (1st press) - 500<BR>Paradise Lost "One Second" (1st press, UK) - 500<BR>Putrefied "Live, Plugged and Crushing" (Sevared) - 250<BR>Rotting Christ "Triarchy of the Lost Lovers" (1st press, Century Black, US) - 600
+

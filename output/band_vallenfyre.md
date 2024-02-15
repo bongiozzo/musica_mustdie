@@ -1,0 +1,35 @@
+# Vallenfyre
+
+Дискография
+"A Fragile King" 2011, Death Metal
+"Splinters" 2014, Death Metal
+"The Last of Our Kind (single)" 2015, Death Metal
+
+## Отношения с другими группами
+
+
+## Обсуждения
+
+
+## Упоминания
+
+### Продаётся и покупается некоторое количество говнЯшков.
+
+НиколайНС 16.11.2012 22:26:
+niknetl (пёс) rambler ((.)) ru<BR><BR>AFM Records:<BR><BR>Avantasia - The Metal Opera - Gold Edition (lim. 2CD A5 digibook).<BR>Elvenking - Era (lim. digipack + bonus).<BR>Graveworm:<BR>- When Daylight is Gone / Underneath the Creschent Moon;<BR>- As the Angels Reach the Beauty;<BR>- Scourge of Malice.<BR>Helstar - 30 Years of Hel (lim. DVD+2CD digipack).<BR>Orden Ogan: <BR>- To the End (lim. CD+DVD digipack);<BR>- To the End (lim. 2LP colored).<BR><BR><BR>Century Media:<BR><BR>Asphyx - Deathhammer (lim. 2CD digibook).<BR>Evocation ­- Illusions of Grandeur (lim. digipack + bonus).<BR>Gorement ­- Within the Shadow of Darkness ­- The Complete Recordings (2CD).<BR>Grave - Endless Procession of Souls (lim. 2CD box).<BR>Napald Death - Utilitarian (lim. digipack + bonus).<BR>Thanatos: <BR>- Emerging From the Netherworlds;<BR>- Realm of Ecstasy.<BR>Vallenfyre - A Fragile King (lim. digipack + bonus).<BR><BR><BR>Nuclear Blast USA:<BR><BR>Enslaved: <BR>- Riitiir (lim. CD+DVD digipack);<BR>- Riitiir (lim. 2LP colored).<BR>Sylosis - Monolith (digipack).<BR>Symphony X - Iconoclast (lim. 2CD digipack).<BR><BR><BR>Прочее:<BR><BR>Ahab - The Giant (lim. digipack + bonus, Napalm).<BR>Devin Townsend - Epicloud (lim. 2CD digipack, InsideOut).<BR>Exumer:<BR>- Possessed by Fire (digipack re-release, Ens of the Light);<BR>- Rising from the Sea (digipack re-release, Ens of the Light).<BR>Solstice - Pray for the Sentencing (2CD re-release: Solstice (1992) + Pray (1995) + Pray (2011 remix)).<BR>Vision Divine - Destination Set to Nowhere (lim. 2CD digipack, Armory).<BR>Zonaria - Arrival of the Red Sun (slipcase, Listenable).
+
+### Продаётся и покупается некоторое количество говнЯшков.
+
+НиколайНС 24.06.2014 08:08:
+niknetl (пёс) rambler ((.)) ru<BR><BR>Century Media:<BR><BR>Aborted - The Necrotic Manifesto (lim. box).<BR>Dawn: <BR>- The Eternal Forest - Demo Years 91-93;<BR>- N&#230;r S&#243;len Gar Ni&#254;er For Evogher (1994/2014 re-release);<BR>- Sorgh Pa Svarte Vingar Fl&#248;gh (1996/2014 re-release, ep);<BR>- Slaughtersun (Crown of the Triarchy)(1998/2014 re-release).<BR>Eyehategod - Eyehategod (lim. digipack).<BR>Lacuna Coil - Broken Crown Halo (lim. CD+DVD digipack).<BR>Massacra:<BR>- Final Holocaust (1990/2014 re-release);<BR>- Final Holocaust (lim. colored vinyl, 1990/2014 re-release);<BR>- Enjoy the Violence (1990/2014 re-release);<BR>- Enjoy the Violence (lim. colored vinyl, 1991/2014 re-release);<BR>- Signs of the Decline (1990/2014 re-release);<BR>- Signs of the Decline (lim. colored vinyl, 1992/2014 re-release).<BR>Triptykon: <BR>- Melana Chasmata (lim. digibook);<BR>- Melana Chasmata (lim. box).<BR>Vallenfyre - Splinters (lim. digipack).<BR><BR><BR>Season of Mist:<BR><BR>Cannabis Corpse - From Wisdom to Baked. <BR>Mayhem - Esoteric Warfare (lim. digipack).<BR>Septicflesh: <BR>- Titan (lim. 2CD digipack);<BR>- Titan (lim. box + TS).<BR><BR><BR>Прочее:<BR><BR>Agalloch - The Serpent & the Sphere (digipack, Eisenton).<BR>Impaled Nazarene - Vigorous and Liberating Death (Osmose).<BR>Incantation - Dirges of Elyzium (lim. digipack, Osmose).<BR>
+
+### Блекхейм выпер Дэна Свано из BLOODBATH!!!
+
+no more links 18.09.2014 09:39:
+странновато выглядит, пожалуй... но, тем интереснее будет послушать полноформатник с дядей Ником у микрофона))<BR>Грег Макинтош, например, уже отметился на данном поприще, в проекте Vallenfyre.
+
+### Продаётся и покупается некоторое количество говнЯшков.
+
+Non Serviam 16.02.2017 01:18:
+Adorned Brood	Erdenkraft	Moonstorm	2002	7/10					viking metal, 1st press<BR>Ajattara	Kuolema	Spikefarm	2003	новый					dark metal, 1st press<BR>Antimatter	Lights Out	Strangelight	2003	9/10					melancholic rock, 1st irish press<BR>Apotheosis	Black And Blue Reality	MDD	1997	9/10					gothic doom, 1st press<BR>Barren Earth	The Devil's Resolve	Peaceville	2012	9/10					prog death, ltd 1st press w/bonuses<BR>Blazing Eternity	Times And Unknown Waters	Prophecy	2000	(как) новый (inlay 9,5/10)					black doom, 1st press<BR>Blazing Eternity	Times And Unknown Waters	Prophecy	2000	новый					black doom, 1st press<BR>Blazing Eternity	A World To Drown In (digi)	Prophecy	2003	9/10 (digi is NM-)					gothic doom, 1st press<BR>Blazing Eternity	A World To Drown In (digi)	Prophecy	2003	запечатан					gothic doom, 1st press<BR>Children Of Bodom	In Your Face (DVD-single)	Spinefarm	2005	новый (но кейс с трещинами)					cvlt melodic death, 1st press<BR>Children Of Bodom	Blooddrunk CD/DVD (digi)	Spinefarm	2008	новый					cvlt melodic death, 1st press<BR>Children Of Bodom	Blooddrunk (single)	Spinefarm - 1762736	2008	новый (но кейс потерт)					cvlt melodic death, 1st press<BR>Delain	Lucidity	Roadrunner	2006	новый					super gothic, 1st press<BR>Diorama	The Art Of Creating Confusing Spirits	Accession (EFA 23450-2)	2002	9/10					EMB synth pop darkwave, 1st press<BR>Diorama	A Different Life	Accession	2007	(как) новый					EMB synth pop darkwave, 1st press<BR>Entwine	The Pit (single)	Spikefarm	2002	(как) новый					gothic, 1st press<BR>Faun	Renaissance (digi)	Curzweyhl (Rough Trade)	2005	9/10					cvlt neo-folk rock, 1st press, rare<BR>Katatonia	Dethroned & Uncrowned CD/DVD (digibook)	Kscope	2013	(как) новый					melancholic rock, 1st irish press<BR>Lordi	Get Heavy	RCA / Terrier / BMG Finland	2002	9/10					heavy, 1st press<BR>Moonspell	Memorial (digi)	Steamhammer	2006	9,5/10 (NM)					gothic, 1st press<BR>Mourning Beloveth	A Disease For The Ages	Grau	2008	новый					death doom, 1st press BLACK CD<BR>Mystic Circle	Open The Gates Of Hell (digi)	Massacre	2003	новый					black, 1st press<BR>On Thorns I Lay	Crystal Tears (digi)	Holy	1999	8/10 (EX+/EX+)					gothic doom, 1st press<BR>Saturnus	Martyre (digi)	Euphonious	2010	новый					cvlt doom, remastered, bonus<BR>Sentenced	Down	Century	1996	9/10					cvlt stuff! repress mid 90-x<BR>Soulrelic	Love Is A Lie We Both Believed	Spinefarm	2005	новый					gothic, 1st press<BR>Subway To Sally	Engelskrieger	Motor	2002	бумага near mint, диск "прыгает"					folk metal, 1st press<BR>Subway To Sally	Nord Nord Ost (digi)	Nuclear Blast	2005	6,5/10 (EX+ digi, VG CD)					folk metal, 1st press<BR>Subway To Sally	Mitgift AZ/MMXV EP (cardsleeve)	Sonic Seducer	2015	новый					folk metal, 1st press<BR>Sundown	Glimmer (digi)	Century	1999	9,5/10 (NM)					industrial gothic, 1st press<BR>Vallenfyre	A Fragile King (digi)	Century	2011	новый					death doom, 1st press<BR>Viikate	Kuu Kaakon Yll&#228;	Ranka	2009	(как) новый					gothic heavy, 1st press<BR>Viikate	Kes&#228;vainaja EP	Ranka	2009	9/10					gothic heavy, 1st press<BR>Viikate	Pet&#228;j&#228;ver&#228;j&#228;t	Ranka	2012	(как) новый					gothic heavy, 1st press<BR>Within Temptation	Ice Queen (6-tr GOLDEN single)	DSFA 1026	2001	новый					cvlt sympho gothic, 1st press<BR>Within Temptation	Ice Queen (6-tr SILVER single)	DSFA 1026	2001	8/10					cvlt sympho gothic, 1st press<BR>
+

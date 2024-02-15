@@ -1,0 +1,48 @@
+# Thorns of the Carrion
+
+Дискография
+"The Garden Of Dead Winter" 1995, Death Doom
+
+## Отношения с другими группами
+
+
+## Обсуждения
+
+
+## Упоминания
+
+### Продаётся и покупается некоторое количество говнЯшков.
+
+Ares73 01.09.2008 20:39:
+Куплю только оригинальные диски в хорошем состоянии:<BR> <BR>Ataraxie 2002 The Other Path <BR>Decomposed 1993 Hope Finally Died… <BR>Deinonychus 1996 The Weeping of a Thousand Years <BR>Desire 1996 Infinity... A Timeless Journey Through An Emotional Dream <BR>Desire 1998 Pentacrow...Misanthropic Tragedy [EP] <BR>Dissolving Of Prodigy 1997 Time Ruins Also Beauty <BR>Morphia 1998 Unfulfilled Dreams <BR>Mythological Cold Towers 2000 Remoti Meridiani Hymni <BR>October Tide 1997 Rain Without End <BR>Paramaecium 1997 Repentance <BR>Phlebotomized 1997 Skycontact <BR>Symphony Of Grief 1994 Our Blessed Conqueror [EP] <BR>Thorns Of The Carrion 1997 The Scarlet Tapestry <BR>Thorns Of The Carrion 2000 Eve Songs [EP] <BR>Thorns Of The Carrion 2001 At Sudsy Malone's [EP] <BR>Thorns Of The Carrion 2002 The Story of the Leaves [EP] <BR>Perpetual Dying Mirror, A 2002Towards A Constellation View <BR>Mindrot1995Foriorn [EP] <BR>Mindrot1998Soul <BR>Mystic Charm1993Shadows Of The Unknown <BR>Reclusiam2004Reclusiam <BR>Tragedian2004The Malediction Of Manifestation [Demo] <BR>Woods Of Belial1997Baxabaxaxaxaxabaxaxaxaxa! 666 Yndstr Draconis [Demo] <BR>Wreck Of The Hesperus2004Terminal Dirge [Demo] <BR>Wreck Of The Hesperus2005Eulogy For The Sewer Dwellers [Demo]<BR><BR>Связь:report678@mail.ru
+
+### Самый раритетный CD в вашей коллекции?
+
+AB/CD 30.11.2009 15:15:
+наверное самый редкий цд у меня это Thorns of the Carrion "The Scarlet Tapestry". из америцы прислали лет десять назад. группа выпускала его сама в количестве 500 копий. к сожалению, это единственный альбом действительно хороший у них.<BR>ну и как правило многие андеграундные диски почти всегда раритет. а вот у именитых конечно такого значительно меньше и денег это стоит часто не малых. помню когда магазин паши с винилом обитал на шаболовке там раритеты висели на стене и запомнился ценник на бутлег queen с несколькими песнями на 45ке начала 80х выпущеный как там было написано в количестве 100 штук. так вот стоил он тогда под три штукаря зелени и это был далеко не самый верхний край в цене.
+
+### Продаётся и покупается некоторое количество говнЯшков.
+
+Non Serviam 10.01.2013 23:20:
+Godkiller (Mon)	The End Of The World	1998	cardboard sleeve promo-CD	Wounded Love Records<BR>Godkiller (Mon)	Deliverance	2000	CD	Wounded Love Records<BR>Golgotha (Spa)	New Life	2005	CD	Metal Age Productions<BR>Gorement (Swe)	Darkness Of The Dead	2004	CD	Necroharmonic<BR>Gorgoroth (Nor)	Antichrist	1996	cardboard sleeve promo-CD	Malicious Records<BR>Grabak (De)	Encyclopaedia Infernalis	2001	CD	CCP Records<BR>Graveworm (It)	Diabolical Figures 1st press	2009	CD in 3 panel digioack limited	Massacre Records<BR>Handful Of Hate (It)	Qliphothic Supremacy	1997	CD	Northern Darkness Records<BR>Handful Of Hate (It)	Hierarchy 1999	1999	CD	Northern Darkness Records<BR>Hate Forest (Ukr)	Nietzscheism	2005	CD	Supernal Music<BR>Hate Forest (Ukr)	Sorrow	2005	CD	Supernal Music<BR>Hate Forest (Ukr)	Scythia	1999/2004	CD	Supernal Music<BR>Hate Forest (Ukr)	The Gates	2001/2003	CD	Elegy Records<BR>Hydra Head Nine (Swe)	KOD	2002	CD	Old Europa Cafй<BR>Inanna Unveiled (De)	Inanna Unveiled	1998	digi-CD	Solistitium Records<BR>L`Ame Immortelle (Aus)	Auf Deinen Schwingen	2006	CD	GUN Records, Sony BMG Music Entertainment<BR>Maschinenzimmer 412 (Swe)	Macht Durch Stimme	1990/2003	CD	Dark Vinyl Records<BR>Mayfair (Aus)	Behind	1993	CD	General Inquisitor Torquemado`s Releases<BR>Mitochondrion (Can)	Archaeaeon 1st press	2008	CD limited to 666	selfreleased<BR>Mordor (Swi)	Csejthe	1992/1995	CD	Wild Rags Records<BR>Murk (De)	All Is Lцst limited edition	2008	CD in 2 panel digipack handnumbered 76/99	No Colours Records<BR>My Dying Bride (UK)	Turn Loose The Swans	1993	CD	Peaceville Records, Futurist<BR>Nagelfar (De)	Hьnengrab Im Herbst	1997	CD	Kettenhund Records<BR>Nailbomb (Bra)	Point Blank 1st press	1994	CD	Roadrunner Records<BR>Nod (Swe)	The Story Of The Three Little Pigs And The Big Bad Wolf	2003	digi-CD limited to 1000	Cold Meat Industry<BR>November`s Doom (US)	The Novella Reservoir	2007	CD in stickered jewel case	The End records<BR>Overkill (US)	The Electric Age	2012	CD, DVD in A5 digibook	Nuclear Blast Records<BR>Paragon Impure (Bel)	To Gaius (For The Delivery Of Agrippina) EP	2005	CD	GoatowaRex<BR>Portal (AU)	Outre'	2007	CD in fold-out digisleeve limited	Profound Lore Records<BR>Psychotic Waltz (US)	A Social Grace	1990	CD	Bullet Proof Records<BR>Raison D`Etre (Swe)	Enthraled By The Wind Of Lonelienes	1994	digi-CD	Cold Meat Industry<BR>Saturnus (Den)	Veronika Decides To Die	2006	CD	Grau<BR>Satyricon (Nor)	Nemesis Divina	1996	cardboard sleeve promo-CD	Moonfog Productions<BR>Satyricon (Nor)	Megiddo EP 1st press	1997	CD in printed jewel case singed by Satyr, Frost	Moonfog Productions<BR>Satyricon (Nor)	Ten Horns - Ten Diadems	2002	CD in 3 panel digipack in cardbox sibged by Satyr, Frost	Moonfog Productions<BR>Sophia (Swe)	Herbstwerk	2001/2006	CD	Cold Meat Industry<BR>Supuration (Fra)	The Cube 1st press	1993	CD	Reincarnate<BR>Symphony Of Grief (US)	Our Blessed Conqueror	1995	CD	Wild Rags Records<BR>Thanatos (Ned)	Emerging From The Netherworlds with bonus demo tapes	1990/1999	CD	Unveiling The Wicked<BR>Thor`s Hammer (Pol)	Fidelity Shall Triumph 2nd press	1998/2006	CD	Supernal Music<BR>Thor`s Hammer (Pol)	The Fate Worse Than Death 2nd press	2002/2005	CD	No Colours Records<BR>Thorns Of The Carrion (US)	The Gardens Of Dead Winter	1994	CD	Wild Rags Records<BR>Tiamat (Swe)	Wildhoney	1994	cardboard sleeve promo-CD	Century Media<BR>Twilight Opera (Fin)	Shadows Embrace The Dark 1st press	1998	CD	Cacophonous Records<BR>Type O Negative (Fin)	Slow, Deep And Hard	1991	CD	Roadracer Records<BR>Utumno (Swe)	Across The Horizon	1993/2009	CD	Cyanide Syndicate Records, Vic Records<BR>Velvet Cacoon (US)	Dextronaut	2002/2006	2 CDs	Full Moon Productions<BR>Warhammer (Ger)	Towards The Chapter Of Chaos	2003	CD	Nuclear Blast Records<BR>Windir (Nor)	Likferd 1st press	2003	CD	Head Not Found<BR>Wynjara (US)	Wynjara 1st press	2000	CD	Nocturnal Art Productions<BR>
+
+### самый дорогой диск в вашей коллекции
+
+AB/CD 05.08.2013 23:06:
+Один из дорогих раритетов - селфрелизд альбом американских думстеров Thorns Of The Carrion - "The Sсarlet Tapestry" присланный еще в 90-х самими музыкантами. Только эти бакланы кинули его без коробки в пакет вместе с обложками, диском мексиканских Argentum, еще какой-то хрени андеграундной, и он приехал весь дюже пошарпаный, но играет и это главное! Весьма атмосферная и несмотря на жанр, разнообразная пластинка. До сих пор не надоедает. Недавно сдохла дека CD старая, когда брал другую, б.у, тестировал этим диском. 
+
+### Death-Doom девяностых. Советуем классику
+
+no more links 08.10.2014 04:45:
+Torchure немчурский (дебютник) и группа Thorns of the Carrion - тоже "из этой серии"... чёто, вот, вспомнились))<BR>а ваще, конечно, мега-список на сотню названий я бы и сам с интересом поценил... вдруг, пропустил что-то интересное! <BR>тогда, в 90х, на слуху Имена были... мне, например, этого хватало. а сейчас интересно всё подряд, по теме, так сказать.<BR>
+
+### Distant Sun - нахваливаем первый EP
+
+Кукан Войны 19.01.2015 14:28:
+Thorns Of The Carrion, видимо.
+
+### Продаётся и покупается некоторое количество говнЯшков.
+
+Ares73 01.11.2015 23:06:
+S.C.A.L.P. - Чужая Война, 2009, BadMoodMan/Wroth Emitter/Fantazone, 3$<BR>Sad/Sapthuran - Black WInter Of Desolation, 2010, Regimental Records, 4$<BR>Sale Freux - Subterraneus, 2011, Misanthropic Art, 8$<BR>Scarlet Leaves - Outlining States Of Mind, 2008, Wave Propaganda, 10$<BR>Selonath - Light In Might, Neverheard Distro, 3$<BR>Serenity - Then Came Silence, Holy Records, 6$<BR>Shambless - Abkas Itulia, 2004, Stygian Crypt Productions, 3,5$<BR>Silentium - Altum, 2001, FONO Ltd., 3,5$<BR>Silentium - Sufferion - Hamartia Of Prudence, 2003, FONO Ltd., 5$<BR>The Sins Of Thy Beloved - Lake Of Sorrow, 1998, Irond Ltd., 5$<BR>The Sins Of Thy Beloved - Perpetual Desolation, 2000, Irond Ltd., 5,5$<BR>The Slow Death - Ark, 2015, Chaos Records [Digi-pack], 10$<BR>Solarfall - In Depths And Despair [EP], 2006, Discord Records, 10$<BR>Sortilegium / Inner Hell - Requiem Aeternam / Rising Hate Split CD, 2001, Coffin Production, 6$<BR>Soulcide / Nuclear Winter - Misanthropy / Beyond The Nought, 2003,Possession Productions, 3$<BR>Starless Night - Emotionally Scarred And Dead..., 2013, Rigorism Production, 6$<BR>Spherical Unit Provided - Angelus, 2002, Irond Ltd., 5$<BR>Stronghold - Prayers From a Yearning Heart, 2000, Nordic Mission, 11$<BR>Stumm - I, Aesthetic Death Records, 5$<BR>Suicidal Anorexia - MHIIMB|MSBFAR, 2010,Rigorism Production, 3$<BR>Supplicium - The Pleasures Of Immuted / Doomed Zombies, 2011, Non Servian Records/Occultelo Him, 10$<BR>Switchblade - Switchblade, Cyclop Media, 8$<BR>Symphony Of Grief - Symphony Of Grief [Limited Edition Of 100], 2011, Infernal Creations, 10$<BR>Tapetum Lucidum - Machteloos Bestaan, 2008, Sun And Moon Records, 5$<BR>Tenochtitlan - Эпоха Пятого Солнца, 2005, Metalism Records, 3,5$<BR>Theatre Of Tragedy - Aegis, 1998, Art Music Group, 5$<BR>These Are They - Who Manifest [EP], 2009, The End Records, 6$<BR>Throes Of Dawn - Quicksilver Clouds, 2004, Irond Ltd., 4$<BR>Thorns of the Carrion - Tragedy In Remembrance (3xCD, Comp, Ltd, Jew), 30$<BR>Thorns of the Carrion - Tragedy In Remembrance (3xCD, Comp, Ltd, Digi), 60$<BR>Thurisaz - Circadian Rhythm, Shiver Records, 2$<BR>Todesstoss - Spiegel Der Urangste / Sehnsucht, Wroth Emitter, 3$<BR>Torrens Conscientium - Four Exits [Demo], 2012, Selfreleased, 12$
+
