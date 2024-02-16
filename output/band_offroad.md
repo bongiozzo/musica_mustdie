@@ -1461,11 +1461,6 @@ Vsevolod 21.08.2005 18:27:
 schulze 05.08.2006 05:12:
 Аццкий промоутер поди (таки) издал первые альбомы In Folio на CD. Все дело вкуса, безусловно, но для меня они ценней опусов Маников (кои ниибаца супертру) и Мораил... Но если ниибаца Сайус сойдет с небес и выложит пару трэков... - то может еще два/три долбоеба купят диски этага ИнФолега? <BR><BR>А и хуй с ним! Если кто любит Led Zeppelin (+ чуть-чуть The Doors) - ищите субж. Ну и не помешает: Кураж, Pushking, Offroad... да уж хули там - и Автограф можно послушать! <BR><BR>Но это все не митал, парни....
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Gary 15.01.2008 21:24:
-пиратка с буклетами продажа(70 )/обмен:<BR><BR>Beyond Twilight-06<BR>Paradise Lost-07<BR>Grave Diger-94<BR>Der. Sherinian-06<BR>Poisonblack-06<BR>Vanden Plas-06<BR>Black Magesty-07<BR>White Skull-06<BR>Mob Rules-06<BR>Rose Tatoo-07<BR>Paul Stanley-06<BR>Megadeth-07<BR>Evegrey-06<BR>Strapping young Lad-06<BR>Tony Levin-06<BR>Blind Guardian-90/EP95<BR>Gillan-81<BR>Shakra-03<BR>Dragonforce-05<BR>Offroad-I<BR>Vanishing Point-07<BR>Soul Asylum-06<BR>Dickinson-05<BR>Kingdome Come-89<BR>Axxis-95<BR>Gamma Ray-93<BR>Zanister(Chastain)-99<BR>Ratt-90<BR>Pretty Maids-92<BR>Gamma ray-07<BR>MSG-92<BR>Rhapsodya-97/EP00<BR>Nocturnal Rites-02<BR>Dominici-07<BR>Kingdom Come-06<BR>Slavior-07<BR>DAD-06<BR>Skid Row-06<BR>Rush-07<BR>Faith no more-92<BR>Dio-04<BR>Ted Nugent-07<BR>Helowen-07<BR>The Answer-07<BR>Pink Floyd-73;75<BR>Porcupine Tree-99<BR>Nopfler-06<BR>Therapy-03<BR>Osbourne-down to earth<BR>luger61@mail.ru;<BR><BR><BR>
-
 ### Умер барабанщик Дмитрий Сачко...
 
 Шульц 21.07.2012 08:31:
@@ -1475,9 +1470,4 @@ Gary 15.01.2008 21:24:
 
 Stas Hoffmann 15.04.2013 13:49:
 У нас нет современных банд этого толка, думается мне. Потуги есть, типа Baby Doll, ещё децкая волна была 3-5 лет назад типа Kittie Dammer...<BR><BR>Есть ещё Offroad - но я их ни разу не слушал. Они что, правда круты? <BR><BR>Вообще, вторая паверная волна отразилась в России, а третья глэм - почему захлебнулась...
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-gynter 05.02.2017 14:26:
-компакт диски производства России по 100 руб с буклетами<BR><BR>Chris  Caffrey 2005 ( ex Savatage )<BR>Dave Gahan  2007 ( ex Depesh Mode )<BR>Darkmoore  2008<BR>Dream  Theatre ‘’Official  Bootleg ‘’ Metallica Master of papets<BR>Dream Theatre Live Japan 1995 2CD<BR>Depesh Mode Violator 1990 <BR>Dionisus 2002 cd- max<BR>Dionisus 2004 cd-max<BR>Gary  Glitter The  Best  2CD<BR>Дива Ангел Света 2008<BR>Helloween Live in Sao Paulo 2005/2006 2CD<BR>Halford 2010<BR>Judas Priest  Nostradamus 2008 <BR>Iron Maden  Fear of the Dark <BR>Jack Bruce 2003<BR>James Christian 1999 ( ex House Of Lords )<BR>Kruger 2005 Душа Изувера  cd- max<BR>Lilian  Axe 1988 +5 Bonus<BR>Led Zeppelin  Coda + 4 Bonus 1993<BR>Lucifer’s Friend  Mean Machine 1981 ( John Lawton )<BR>Lordi  2005 Cоюз<BR>Michael  Bormann 2006 ( ex Jaded Heart )<BR>M. Bormann Capture the moment<BR>Moray Eel 2006 Soyz<BR>Nazareth  Cinema +4 Bonus cd- max<BR>Nocturnal  Rites  2007 Fono<BR>Offroad make it through<BR>Pilot  The Best<BR>Paul Mauriat  The Russian album<BR>Philip Bardowell 2005 Irond<BR>Peter Gabriel 1983 Plays Live 2 CD<BR>Placido Domingo 2006<BR>Ride The Sky 2007 ( Uli Kusch ) Irond<BR>Roger Taylor 2013<BR>Scorpio A  Rohanas<BR>Status Quo in the army now<BR>Sturm & Drang 2007<BR>Sturm & Drang 2009<BR>Saxon 2011<BR>Shakra  2003<BR>Squealer 2000 cd- max<BR>Sinner 1996<BR>Saliva 2004<BR>Skagarack  1986<BR>Talisman 1990 cd- max <BR>Ten 2000 Babylon cd- max<BR>Ten 2001 cd – max<BR>TNT 2008<BR>Token 2004 cd- max<BR>Treat 1989<BR>Tom Jones  The Best<BR>Warpipes 1991<BR>Wasp 2004<BR><BR>
 

@@ -16,36 +16,6 @@
 3lodeus 26.06.2005 17:41:
 Лазарь, а чтож вас не будет?<BR>Блин!халява,я ещё сесию сдал,ехать нада!<BR>А подробнее мона?<BR>Где палатку ставить,кто охраняетъ?<BR><BR>Хочю послухать Велимор-Руян :))
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Evgen 16.05.2009 11:33:
-Куплю CD в идеальном состоянии. Только Москва. Связь kesha64@yandex.ru<BR><BR>Dissection `06 - Reinkaos<BR>Dissection `04 - Maha Kali<BR>Darkthrone `08 - Dark Thrones And Black Flags <BR>Darkthrone `03 - Hate Them <BR>Nokturnal Mortum `97 - Return of the Vampire Lord<BR>Ashen Light `03 - В Страдании К Отверженным, Осужденным - Ад!<BR>Ashen Light `05 - Причащение Огнём<BR>Ashen Light `08 - Реальная Жизнь - Жизнь Здесь и Сейчас!<BR>Велимор '04 - Во Славу Рода - Руян<BR>Велимор '05 - Наследие<BR>M8l8th `09 - Непоколебимая Вера<BR>M8l8th `04 - Чёрным Крылом<BR>Forest '08 - Forest<BR>My Dying Bride `92 - As the Flower Withers<BR>Dreadful Shadows `98 - Beyond the Maze<BR>Walknut '07 - Graveforests And Their Shadows<BR>Raven Dark '06 - Autumn Roar<BR><BR>В любом состоянии<BR><BR>Nitberg/Волкотень - Hammerharte (split)<BR>Branikald - Winterkald<BR>Branikald - Хмель Мизантропии
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Evgen 23.05.2009 12:50:
-Куплю CD. Москва. kesha64@yandex.ru<BR><BR>Dissection `06 - Reinkaos<BR>Dissection `04 - Maha Kali<BR>Darkthrone `08 - Dark Thrones And Black Flags <BR>Darkthrone `03 - Hate Them <BR>Nokturnal Mortum `97 - Return of the Vampire Lord<BR>Велимор '04 - Во Славу Рода - Руян<BR>Nitberg/Волкотень - Hammerharte (split)<BR>Branikald - Winterkald<BR>Branikald - Хмель Мизантропии<BR>Blazebirth Hall - Hammerkrieg<BR>Raven Dark - В Луче Последнем - Ruler's Age
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Evgen 31.05.2009 11:03:
-Куплю CD. связь kesha64@yandex.ru<BR><BR>Branikald - Winterkald<BR>Blazebirth Hall - Hammerkrieg<BR>Raven Dark - В Луче Последнем - Ruler's Age<BR>Raven Dark - Verdandi/Berustet Av Krigsdronnet<BR>Vargleide - Лишь Прах Окалину и Выжженую Землю Оставляя<BR><BR>Куплю в Москве:<BR>Dissection `06 - Reinkaos<BR>Dissection `04 - Maha Kali<BR>Darkthrone `08 - Dark Thrones And Black Flags <BR>Darkthrone `03 - Hate Them <BR>Nokturnal Mortum `97 - Return of the Vampire Lord<BR>Велимор '04 - Во Славу Рода - Руян
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Evgen 21.06.2009 11:17:
-Куплю CD. связь kesha64@yandex.ru<BR>(По этим дискам о цене договоримся)<BR><BR>Branikald - Winterkald<BR>Blazebirth Hall - Hammerkrieg<BR>Raven Dark - В Луче Последнем - Ruler's Age<BR>Raven Dark - Verdandi/Berustet Av Krigsdronnet<BR>Vargleide - Лишь Прах Окалину и Выжженую Землю Оставляя<BR><BR>Куплю в Москве:<BR>Dissection `06 - Reinkaos<BR>Dissection `04 - Maha Kali<BR>Darkthrone `08 - Dark Thrones And Black Flags <BR>Darkthrone `03 - Hate Them <BR>Nokturnal Mortum `97 - Return of the Vampire Lord<BR>Велимор '04 - Во Славу Рода - Руян
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Orange Krunch 19.11.2009 15:09:
-Может оно тут кому приглянется...part V<BR>цены с доставкой по России от 3 экземпляров.<BR>вопросы об издании позиций в мыло<BR>mutiilation@list точка ру<BR><BR>THUNDERBOLT - The Burning Deed Of Deceit - CD - 400<BR>THY SERPENT  - Forests Of Witchery / Lords Of Twilight - CD - 500<BR>TIAMAT - Commandments - An Anthology - CD - 500<BR>TIAMAT - The Church Of Tiamat - DVD - 700<BR>TJOLGTJAR - The Tjolgtjarian Mass - CD - 300<BR>TJOLGTJAR - The Tjolgtjarian Mass - CD - 400<BR>TOTALT JAVLA MORKER - Totalt Javla Morker - CD - 450<BR>TRAIL OF TEARS - A New Dimension Of Might - CD - 400<BR>TRAIL OF TEARS - Free Fall Into Fear - digipak - 450<BR>TRAIL OF TEARS - Free Fall Into Fear - CD - 400<BR>TRELLDOM - Til Et Annet... - CD - 450<BR>TRISTANIA - World Of Glass - CD - 400<BR>TSJUDER - Demonic Possesion - CD - 450<BR>TSJUDER - Desert Northern Hell - digipak - 450<BR>TSJUDER - Kill For Satan - PLP - 550<BR>TSJUDER - Kill For Satan - CD - 450<BR>TWILIGHT IS MINE - The Egregor Of Evil - CD - 200<BR>TWIN OBSCENITY - Bloodstone - CD - 400<BR>TYRANNY - Tides Of Awakening - CD - 450<BR>ULVHEDIN - Pagan Manifest - CD - 450<BR>URGEHAL - Atomkinder - CD - 450<BR>V/A - Doom-Art.ru compilation - CD - 200<BR>V/A - Killing By The Sound - CD - 200<BR>V/A - Valiant Forces - Russian Attack, Vol. I - CD - 200<BR>V/A - Blackmark - Out Of The Box 1 - MCD - 350<BR>V/A - Blackmark - Out Of The Box 2 - MCD - 350<BR>V/A - Blackmark - Out Of The Box 3 - MCD - 350<BR>VARYAG - Memory - CD - 200<BR>VINTERSORG - Till Fjalls - CD - 450<BR>VOCIFERIAN - Universal Hate Decades Ultimatum - CD - 300<BR>WAFFEN SS - The New Dawn Of White Power - CD - 450<BR>WASP - Kill, Fuck, Die - CD - 400<BR>WOLFSWINTER - Nordal - CD - 400<BR>WOODTEMPLE  - Hidden In Eternal Shadow - MCD - 350<BR>WURDALAK - Severed Eyes Of Possession - CD - 400<BR>WYRD - HAIVE - KEHRA - split CD - CD - 450<BR>XASTHUR - Xasthur - MCD - 400<BR>АРКОНА - Лепта - CD - 200<BR>АРКОНА - Жизнь Во Славу - DVD - 350<BR>ВЕЛИМОР - Наследие - CD - 200<BR>ВЕЛИМОР - Во Славу Рода! \ Руян - CD - 200<BR>КРОДА - Поплач Менi, Рiчко... - CD - 200<BR>КРОДА \ ВЕЛИМОР - Молотом Духу Та Едиiстю Кровi - CD - 200<BR>КРОДА \ ОПРИЧЬ - Легенда \ Волчья Верность - CD - 200<BR>РУСИЧ - В Вiках Тисячолiть - CD - 200<BR>ТЕМНОЯРЬ - Гиперборейская Дилогия - CD - 250<BR><BR><BR>ну вроде и всё. одноразовый пост "простыни" в 5 частях без антракта...
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Evgen 20.11.2009 21:25:
-Куплю СД в Москве <BR>Велимор - Во Славу Рода - Руян<BR>Велимор - Наследие<BR>Связь kesha64@yandex.ru
-
 ### Лучшая российская группа года в doom-metal.
 
 Lazar 26.10.2010 08:56:

@@ -30,11 +30,6 @@ JUN 19 	MANOWAR "The Lord Of Steel"<BR>JUN 29 	Luca Turilli's Rhapsody "Ascendin
 metallian 23.06.2012 08:55:
 очень понравился новый Luca Turilli's Rhapsody - намного лучше чем последние диски Rhapsody Of Fire. а кавер на Helloween "March Of Time" - это вообще нечто!
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-НиколайНС 28.07.2012 12:30:
-niknetl (пёс) rambler ((.)) ru<BR><BR>Cyclone Empire:<BR><BR>Evocation - Dead Calm Chaos.<BR>Facebreaker:<BR>- Bloodred Hall;<BR>- Infected (lim. digipack).<BR>Orphaned Land - The Beloved's Cry (digipack re-release).<BR>Paganizer:<BR>- Scandinawian Warmachine;<BR>- Into the Catacombs.<BR>Puteraeon:<BR>- The Esoteric Order (lim. digipack).<BR>- Cult Cthulhu.<BR>The Foreshadowing: <BR>- Oionos (lim. digipack)<BR>- Second World (lim. digipack).<BR>The Grotesquery:<BR>- Tales Of The Coffin Born;<BR>- The Facts and Terrifying Testament of Mason Hamilton: Tsathoggua Tales.<BR>Warning - Watching from a Distance.<BR><BR><BR>Nuclear Blast:<BR><BR>Gotthard - Firebirth (lim. digipack).<BR>Luca Turilli's Rhapsody - Ascending to Infinity (lim. CD+DVD digibook).<BR>Rage - 21 (lim. 2CD digibook).<BR><BR><BR>Прочее:<BR><BR>Botanist - I: The Suicide Tree / II: A Rose from the Dead (2CD digisleeve, tUMULt).<BR>Delain - Lucidity (digipack, Sensory);<BR>Delain - April Rain (digipack, Sensory).<BR>I the Breather - Truth and Purpose (Sumerian).<BR>Nightwish - Lokikirja (8CD box from "Angels Fall First" to "Dark Passion Day", Spinefarm).<BR>Tardy Brothers - Bloodline (Candlelight USA).<BR>Wretched End - Inroads (Candlelight).<BR>Wuthering Heights - Salt (Scarlet).
-
 ### Новинки 2015
 
 Dimas 18.06.2015 21:31:

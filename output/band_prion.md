@@ -16,11 +16,6 @@
 Romi 13.10.2003 01:00:
 = AC/DC Tribute "Thunderbolt" 1997 Japan<BR>= Gotthard "D-Frosted" 1997 unplugged live<BR>= Gotthard "Homerun" 2001<BR>= Great White "Psycho City" 1992<BR>= Guns N' Roses "Appetite For Destruction" 1987<BR>= Hardcore Superstar "Bad Sneakers And Pina Colada" 2000 swedish glam in Hanoi Rocks style<BR>= Hardcore Superstar "Thank You For LEtting Us Be Ourselves" 2001 swedish glam in Hanoi Rocks style<BR>= Human Clay "U4IA" 1997 J.S.Soto & Marcel Jacob<BR>= Hurricane Jane "Walkin' The Edge" 1994 blues rock in Quireboys style<BR>= Kingdom Come "Kingdom Come" 1988<BR>= Kingdom Come "In Your Face" 1989<BR>= Tommy Lee "Never A Dull Moment" 2003 ex-Motley Crue drummer<BR>= Motley Crue "New Tattoo" 2000 european + 1 bonus track<BR>= Rob Rock "Rage Of Creation" 2000 ex-A.R.Pell, ex-Joshua, ex-Impellitteri vocalist<BR>= Scoprions "Pure Instinct" 1996<BR>= Scorpions "Moment Of Glory" 2000 with orchestra<BR>= Jeff Scott Soto "Love Parade" 1995 ex-Y.J.Malmsteen. ex-A.R.Pell, Human Clay, Talisman, Takara vocalist<BR>= The Suicide Twins "Silver Missiles And Nightingales" 1986 Andy McCoy & Andy Suicide, ex-Hanoi Rocks, ex-Cherry Bombz <BR>= Thunder "Back Street Symphony" 1990<BR>= Thunder "Laughing On Judgement Day" 1992<BR>= Thunder "BehindClosed Door" 1995<BR>= Thunder "They Think It's All Acoustic... ...It Is Now" 2001 acoustic live limited edition of 5.000 copies<BR>= Torme "Back To Babylon" 1986 Phil LEwis of L.A. Guns, ex-Girl<BR><BR>e-mail: spetsagent@yandex.ru
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-ixtiandr 19.02.2009 15:41:
-Народ, тут еще мальца на сейл. Тока сорри право "первой ночи" пока за юзером Ghast.<BR><BR>A Perfect Circle - Mer de Noms (Virgin) 300<BR>Tool - Lateralus (Volcano) 350<BR>Tool - Opiate EP (Volcano) 300<BR>Tool - Salival (CD+DVD box) (Volcano) 1st edition with misprints. Но он used и даже мне трудно его оценить если честно :) Детали такие: cd & dvd - a couple of scratches; transparent cover & booklet like new. Но вот картонное основание коробки как бы "рассохлось", хоть и сохранило форму - так бывает когда на картон попадает вода, а потом высыхает, соответственно. Готов выслушать ваши предложения.<BR><BR>И еще такой вот диск:<BR>Prion - Time Of Plagues (Furias) 150
-
 ### Нужна помощь в покупке CDs через eBay.
 
 stepa 15.04.2014 23:23:

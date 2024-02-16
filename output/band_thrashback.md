@@ -27,11 +27,6 @@ Pig the Assassin 28.11.2004 16:05:
 Anklav 01.12.2004 01:59:
 Наконец появились все закачанные мною альбомы Orphaned Land.<BR><BR>Только что залил 2 (а больше у них и нет) альбома Dark Reality <BR>первый альбом фолк метал с элеметнами дет-дума.<BR>Второя легинький фолк рок (во как деградирвоали товарищи). Но собственно и тот и другой хороши, но первый вне конкуренции.<BR><BR>Еще там появились альбомы, что я закачивал по просьбе кого-то:<BR><BR>Abigor (1996) Opus IV<BR>Sadus (1992) A Vision Of Misery<BR>Whiplash (1998) Thrashback<BR><BR>Mortician (1997) Chainsaw Dismemberment<BR>Mortician (2001) Domain Of Death<BR>Mortician (2003) Darkest Day Of Horror<BR>Black Countess (2000) Blood, Desire and Dead Nenumphars<BR>Black Countess (2003) Carnivorous Romance<BR>Black Countess (2003) Королева Зимы
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Kostolom 08.04.2013 23:29:
-никто не горит желанием продать WHIPLASH "Thrashback" и "Sit Stand Kneel Pray"?
-
 ### Thrash - Metal
 
 Headcrusher 17.03.2015 12:32:

@@ -11,11 +11,6 @@
 
 ## Упоминания
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-JFofEDP 05.02.2011 21:04:
-Всё что тут - обновляеться тут :<BR><A HREF="http://www.endless-desperation.ru/ru/catalogue.php" TARGET="_blank">http://www.endless-desperation.ru/ru/catalogue.php</A><BR><BR>Новое<BR><BR>DPERD	2010	Io Sono Un Errore	Dark Wave	My Kingdom Music	300	A5 digiCD<BR>AGALLOCH	2002	The mantle	Atmospheric Doom	GRAU	250	CD<BR>AGALLOCH	2004	Ashes against the grain	Atmospheric Doom	GRAU	250	CD<BR>DEINONYCHUS	2007	Warfare Machines	Suicidal Metal	My Kingdom Music	230	SlipcaseCD<BR>DEMETRA SINE DIE	2008	Council From Kaos	Gothic Dark	My Kingdom Music	200	CD<BR>FLOWING TEARS & WITHERED FLOWERS 	1996	Swansongs	Atm Doom	Seven Art Music	250	CD<BR>LLVME	2010	Fogeira De Suenos	Pagan Doom Metal	My Kingdom Music	220	CD<BR>LONGING FOR DAWN	2010	Between elation and despair	Funeral Doom	GRAU	250	CD<BR>MAEL MORDHA	2010	Manann&#225;n	Celtic Doom	GRAU	250	CD<BR>MAJESTIC DOWNFALL	2009	Temple Of Guilt	Doom Death Metal	My Kingdom Music	220	CD<BR>MORGION	2004	Cloaked by ages, crowned in earth	Doom Death	Dark Symphonies	220	CD<BR>NIHIL NOVI SUB SOLE	2010	Jupiter Temple	Ambient Martial Music	My Kingdom Music	300	A5 digiCD<BR>RESONANCE ROOM	2009	Unspoken	Doom Dark Metal	My Kingdom Music	220	CD
-
 ### Фирменные диски от MUSICA Prod
 
 Vit Belov 04.10.2011 18:59:

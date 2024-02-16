@@ -31,11 +31,6 @@ Headcrusher 25.07.2017 15:30:
 steeler 27.02.2009 00:19:
 Страйпс...не сказал бы, что стоунер, хотя сами стонерщики считают своими "предками" не только Саббат и Хендрикса, но и Цеппелин (с которым Страйпс схожи). Но что отличный - это точно :)<BR><BR>2Fucker: послушай Kyuss, Ahkmed, Atomic Bitchwax, The Backerton Group, Dozer и наших The Re-Stoned. Ах да, и непременно - Clutch и Acid King.
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-stepa 28.11.2010 17:37:
-Культовый стафф:<BR>Mayhem/ Meads of Asphodel cult split 300<BR>Meads of Asphodel /Old Corspe Road split cd. 250<BR>Meads of Asphodel 'The early years' 250<BR> Britannia infernos 2 x cd British occult compilation'<BR> featuring, Venom, Black Sabbath, Angelwitch, Sabbatt, Hell, Onslaught, Cradle of filth, Meads of Asphodel, Bal Sagoth, Black Widow, Cloven Hoof, Satan, Hecate enthroned, Anaal Nathrakh, and more<BR>250<BR>Tribute to Hawkwind 'acid daze' 2xcd  featuring ; Sigh, Meads of Asphodel, Amorphis, Enchanted,Acid mothers temple, acid king, brainstorm, quarkspace, Tim Blake, HuwLloyd, Langton, Bedouin, and more 250<BR>Meads of Asphodel Exhuming the grave of yeshua' 250<BR>Meads of Asphodel Damascus Steel 250<BR> Meads of Asphodel Excommunication of Christ 250<BR>писать grind_02 @mail.ru
-
 ### southern metal\stoner metal
 
 Ghast 26.09.2012 22:48:

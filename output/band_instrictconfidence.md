@@ -85,8 +85,3 @@ Headcrusher 17.02.2011 01:28:
 Non Serviam 31.03.2011 23:19:
 пунто омега хороша, остальное из насоветованного так себе, на мой вкус<BR>из не-агрессивного дарквэв/синти я завсегда знакомым советую средний период diary of dreams, раннюю diorama и in strict confidence
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Non Serviam 10.04.2011 14:38:
-фор сэйл:<BR>Lake Of Tears "A Crimson Cosmos" Black Mark, 650<BR>1st press, Rough Trade код на заднике, все дела...<BR><BR><BR>на обмэн (не себе) исчо ищутся:<BR><BR>VISCIOUS CRUSADE Freedom Сomes <BR>IN STRICT CONFIDENCE Love KIlls!<BR>MANTUS Liebe Und Tod, Abshied, Demut<BR>BLACK HEAVEN Obscurity, Negativ
-

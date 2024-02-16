@@ -51,11 +51,6 @@ THOR 26.12.2007 01:59:
 Ramon 16.11.2008 22:57:
 В  Юго-Восточный округе.<BR>То, что цена на колу варьируется это знаю, просто есть пара мест, где ее можно было взять за такую цену...<BR><BR>Колу люблю...дурная привычка, но у всех есть свои плохие привычки :)<BR><BR>BAD HABITS DIE HARD : )<BR><BR>В америке тоже ударило не хило, у нас мужик на работе ездил на обучение в октябре, там цены на жрачку возрасли, да и в магазинах тоже.
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Kostolom 23.06.2010 12:38:
-Продаётся лот:<BR><BR>FORCEFIELD III to hell and back<BR>GARY MOORE bad for you baby<BR>GRAHAM BONNETT no bad habits<BR>HEAVENS GATE hell for sale!<BR>HEAVENS GATE lyvin' in hysteria<BR>MARK FREE long way from love<BR>MINISTRY the last sucker<BR>SHY excess all areas<BR>STEELHEART good 2b alive<BR>STRYPER against the law<BR>UFO force it (винил-реплика)<BR>UFO lights out (винил-реплика)<BR>UFO phenomenon (винил-реплика)<BR>WHITE LION big game<BR>WHITE LION fight to survive<BR>WHITE LION pride<BR><BR>Цена лота: 550 рублей.<BR>Диски левые - копии оригинальных cd (с буклетами).<BR><BR>Контакт: kostolom_fb (at) rambler (dot) ru<BR>
-
 ### Новинки 2010
 
 Jacob 03.10.2010 23:29:

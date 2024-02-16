@@ -12,11 +12,6 @@
 
 ## Упоминания
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-НиколайНС 03.07.2010 22:59:
-niknetl (тут) рамблер.ру<BR><BR>Понеслась:<BR><BR>Aeon - Path of Fire (Metal blade).<BR>Brain Drill - Quantum Catastrophe (digi, Metal Blade).<BR>Dark Fortress - Ylem (slipsleeve + bonus, Century Media).<BR>Exodus - The Atrocity Exhibition: Exhibit A (Ltd. Red Double Vinyl).<BR>Exodus - Bonded By Blood (ltd. deluxe edition, Century Media).<BR>Exodus - Pleasures Of The Flesh (ltd. deluxe edition, Century Media).<BR>Exodus - Fabulous Disaster (ltd. deluxe edition, Century Media).<BR>Exodus - Exhibit B: The Human Condition (lim. slipcase, exclusive US bonus track, NB USA). <BR>Heaven Shall Burn - Invictus (ltd CD/DVD box, Century Media).<BR>Istapp - Blekinge (Metal Blade).<BR>Kataklysm - Prevail - Deluxe Tour Edition (lim. to 1000 copies 2CD/DVD, NB USA).<BR>Kataklysm - Prevail (Gatefold Picture Disc Vinyl).<BR>Kivimetsan Druidi - Betrayal, Justice, Revenge (lim. digi + 2 bonus, Century Media).<BR>Lightning Swords Of Death - The Extra Dimensional Wound (Metal Blade).<BR>Nachtmystium - Addicts: Black Meddle Part II (Century USA).<BR>Nile - Those Whom The Gods Detest (lim. sand colored 2LP + CD).<BR>Skyforger - Kurbads (digi, Metal Blade).<BR>Whitechapel - A New Era of Corruption (digi, Metal Blade).<BR><BR>
-
 ### Новинки 2013
 
 belial 15.03.2013 23:06:

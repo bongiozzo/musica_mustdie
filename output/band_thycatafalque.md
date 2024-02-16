@@ -37,18 +37,3 @@ Thy Catafalque Roka Hasa Radio Epidemie Avantgarde (digi-pack) 350 руб<BR><BR
 Шуреги любят вас!!! 16.05.2011 22:50:
 ну чет не много на самом деле понравившегося в последнее время. что-то бел упоминал, повторюсь<BR><BR>Blutmond	Thirteen urban ways 4 groovy bohemian days<BR>Kalisia	Cybion<BR>Lantl&#244;s	.Neon<BR>Oranssi pazuzu	Muukalainen puhuu<BR>Panopticon	Collapse<BR>Pens&#233;es nocturnes	Grotesque<BR>Sanctus daemoneon	Nothingless nothingness<BR>Thy catafalque	R&#243;ka hasa r&#225;di&#243; <BR>Todtgelichter	Angst<BR>Transcending Bizarre? The misanthrope's fable<BR>Vladimir Bozar 'n' ze Sheraf orkest&#228;r	Universal sprache<BR><BR>ну и негуру послушал поди? тоже вполне авантгардно. и вирус последний как всегда на уровне<BR>
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-НиколайНС 03.12.2011 23:37:
-Century Media:<BR><BR>Dark Trabquillity - We are the Void (2011 new version: lim. A5 CD+DVD digipack + bonus material).<BR>Iced Earth - Dystopia (lim. digipack + patch).<BR>Insomnium - One For Sorrow (lim. box: digipack + значки + напульсник).<BR><BR>Season of Mist:<BR><BR>Cynic: <BR>- Carbon-Based Anatomy (lim. digipack);<BR>- Carbon-Based Anatomy (lim. LP colored).<BR>Esoteric - Paragon of Dissonance (2CD).<BR>Thy Catafalque - Regneteg (lim. digipack).<BR><BR>Прочее:<BR>Pain of Salvation - Road Salt Two (lim. digipack; Inside Out).<BR>Van Canto - Break the Silence (lim. digipack + bonus, Napalm Records).
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-НиколайНС 20.03.2012 20:40:
-niknetl (пёс) rambler ((.)) ru<BR><BR>AFM Records:<BR><BR>Black Messiah - The Final Journey (CD+DVD).<BR>Stahlmann - Quiecksilber (lim. digipack + bonus).<BR><BR><BR>Century Media:<BR><BR>Paradise Lost:<BR>- Draconian Times MMXI (lim. 2DVD+CD A5 digisleeve);<BR>- Drown in Darkness (The Early Demos).<BR>The Man Eating Tree - Harvet (lim. CD+DVD digipack).<BR>Warbringer - Worlds Torn Asunder (lim. digipack + bonus). <BR><BR><BR>Napalm:<BR><BR>Iron Fire - Voyage of the Damned (lim. digipack + bonus).<BR>Nachtblut - (lim. digipack + bonus tracks).<BR><BR><BR>Season of Mist:<BR><BR>Dodecahedron: <BR>- Dodecahedron (lim. digipack);<BR>- Dodecahedron (lim. vinyl).<BR>Drudkh:<BR>- Eternal Turn of the Wheel (lim. digipack);<BR>- Eternal Turn of the Wheel (lim. vinyl).<BR>Esoteric - Paragon of Dissonance (2CD).<BR>Kells - Anachromie (lim. CD+DVD digipack).<BR>Nothnegal - Decadence (lim. digipack).<BR>Terroriser - Hordes of Zombiees (lim. digipack + bonus tracks).<BR><BR><BR>Willowtip:<BR><BR>Dim Mak - The Emergence of Reptilian Altars.<BR>Vile - Metamorphosis.<BR><BR><BR>Прочее:<BR><BR>Eisregen - Rosrot (lim. A5 digipack, Massacre).<BR>Necrophagia - Holocausto de la Morte/Black Blood Vomitorium (lim. to 125 copies, authographed by Killjoy!).<BR>Thy Catafalque - Rengeteg (lim. digipack, Season of Mist).<BR>Wasara - Henku (Inverse Records).<BR>Your Shapeless Beauty - Sycamore Grove (digipack, Adipocere).
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Flowergatherer 17.07.2012 14:37:
-<BR> Куплю ( По разумным ценам) Москва.<BR> <BR>Аmaranthe - Amaranthe 2011<BR>Depressive Age - Symbols for the Blue Times 1994<BR>Anathema - We are here<BR>Ancient Rites -Fatherland<BR>Thy catafalque -Regneteg<BR><BR>flowergatherer At yandex DOT ru
-

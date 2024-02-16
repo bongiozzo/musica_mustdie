@@ -41,11 +41,6 @@ After our set, we go out to watch Pantera. And let me just say, that to<BR>watch
 diableried 31.03.2005 22:57:
 MuDvAyNe, Static-X (Начиная с 3 альбома - Shadow Zone), ill nino, Flaw, Saliva, Slipknot, KoЯn (Хотя его больше на рэпкор кинуть надо), Adema, Five Pointe O, System of a Down, Coal Chamber, 36 Crazyfists... Если хотите узнать, что такое качественный Nu-Metal, зайдите на <A HREF="http://www.roadrunnerrecords.com/" TARGET="_blank">http://www.roadrunnerrecords.com/</A> в пунктArtists - там столько качественных Nu-Metal команд, что глаза разбегаются!<BR><BR>P.S. Но там ещё много чего, например: Nightwish и Cradle of Filth =)
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-valentine7 09.10.2009 11:35:
-Stereomud "Perfect self" universal-150<BR>Strata s/t wind up-200<BR>Injected "burn it black" island-150<BR>Trapt s/t warner-150<BR>Flaw "trought the eyes" republic-200<BR>Five bolt main "Venting" rock ridge-200<BR>It dies today "sirens" trustkill-200<BR>bed lights for blue eyes "the down" trustkill-150<BR>Seether "karma and effect" wind up-200<BR>Nodes of ranvier "lost sences more innocence" facedown-150<BR>Boys night out "trainwerck" ferret-200<BR>Tacking back sunday "Louder now" warner-200<BR>Endwell "Homeland insecurity" victory-200<BR>Swift "absolute uncontrolleble" tribunal-150<BR>Boy sets fire "the day the sun went out"-100<BR>Baroness "Red album" relapse-350<BR>tilitili06@rambler.ru
-
 ### А когда люди в России в целом жили лучше чем сейчас?
 
 Максим - LOGIN! 07.06.2017 00:27:

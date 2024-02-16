@@ -331,11 +331,6 @@ MORTH METAL DIVISION и ITEMBAND.RU представляют<BR><BR>9 марта
 Пылвынты Ытлыгын 01.04.2007 00:23:
 ...а на западе, между прочим, про обрыганов уже готовы дисеры защищать:<BR><A HREF="http://www.roadrunnerrecords.com/blabbermouth.net/news.aspx?mode=Article&newsitemID=69598" TARGET="_blank">http://www.roadrunnerrecords.com/blabbermouth.net/news.aspx?mode=Article&newsitemID=69598</A><BR>
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-zharkosha 12.04.2007 19:24:
-ищу Behemoth - Demonica (limited). вот сцыла:<BR><A HREF="http://www.blackmetal.com/cgi-bin/gold/category.cgi?category=search&item=RR077CD&type=store" TARGET="_blank">http://www.blackmetal.com/cgi-bin/gold/category.cgi?category=search&item=RR077CD&type=store</A>
-
 ### Поговорим об аудиоаппаратуре...
 
 R. 19.04.2007 21:03:
@@ -401,65 +396,20 @@ kerrang 18.12.2007 13:46:
 Seducer 18.01.2008 18:04:
 Собственно...<BR><A HREF="http://www.roadrunnerrecords.com/blabbermouth.net/news.aspx?mode=Article&newsitemID=88730" TARGET="_blank">http://www.roadrunnerrecords.com/blabbermouth.net/news.aspx?mode=Article&newsitemID=88730</A><BR>
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-fixedk 23.01.2008 11:49:
-ну вот пример<BR><BR>там еще прайс воршлаген есть<BR><BR><A HREF="http://cgi.ebay.de/VENOM-THE-WASTE-LANDS-KLASSIKER-TOP_W0QQitemZ140180806362QQihZ004QQcategoryZ33288QQrdZ1QQssPageNameZWD1VQQtrksidZp1638.m118.l1247QQcmdZViewItem" TARGET="_blank">http://cgi.ebay.de/VENOM-THE-WASTE-LANDS-KLASSIKER-TOP_W0QQitemZ140180806362QQihZ004QQcategoryZ33288QQrdZ1QQssPageNameZWD1VQQtrksidZp1638.m118.l1247QQcmdZViewItem</A><BR><BR><BR>а во! еще мне еще чуваг один список кидал<BR>дома гляну - там вроде по дешевле был<BR>
-
 ### Этно дум проект-RAXA-”Oxlahun Ti Ku”
 
 Lefthander 23.01.2008 16:02:
 Рецензии об альбоме Raxa "Oxlahun ti ku" на славном сайте Stygian Crypt<BR><BR><A HREF="http://www.stygiancrypt.com/press_ru.php" TARGET="_blank">http://www.stygiancrypt.com/press_ru.php</A><BR><BR>раздел Raxa "Oxlahun ti ku"<BR><BR>читаем<BR><BR>___________________________________<BR><BR>итальянос экзекуторс<BR><A HREF="http://www.ondalternativa.it/modules.php?name=Reviews&rop=showcontent&id=1959" TARGET="_blank">http://www.ondalternativa.it/modules.php?name=Reviews&rop=showcontent&id=1959</A><BR><BR><A HREF="http://www.metalcrypt.com/pages/review.php?revid=3626" TARGET="_blank">http://www.metalcrypt.com/pages/review.php?revid=3626</A><BR><BR>еще одна на иврите<BR><A HREF="http://www.metal-revolution.com/plugins/content/content.php?content.1106" TARGET="_blank">http://www.metal-revolution.com/plugins/content/content.php?content.1106</A><BR><BR>кто бы мне перевел...<BR><A HREF="http://www.possessed.de/index.php?do=reviews&id=2329" TARGET="_blank">http://www.possessed.de/index.php?do=reviews&id=2329</A><BR><BR>на немецком<BR><A HREF="http://www.amboss-magazin.de/reviews/Archiv2/08/r08-01/raxa.html" TARGET="_blank">http://www.amboss-magazin.de/reviews/Archiv2/08/r08-01/raxa.html</A><BR><BR><BR>Злобный клоун внизу справа предлагает заказать диск<BR><A HREF="http://www.dis-order.com/shop/item/Raxa/Oxlahun-ti-ku/CD/NL/" TARGET="_blank">http://www.dis-order.com/shop/item/Raxa/Oxlahun-ti-ku/CD/NL/</A><BR><BR>психоделичная реца<BR><A HREF="http://www.metalteamuk.net/cdreviews-raxa.htm" TARGET="_blank">http://www.metalteamuk.net/cdreviews-raxa.htm</A><BR><BR><BR>этот альбом наводит мысли о политике;)<BR><A HREF="http://metalass.livejournal.com/tag/" TARGET="_blank">http://metalass.livejournal.com/tag/</A>политика<BR><BR>да-было бы ДЕЙСТВИТЕЛЬНО интересно записать альбом со Штефаном<BR><A HREF="http://www.lastfm.com.tr/music/Raxa?setlang=tr" TARGET="_blank">http://www.lastfm.com.tr/music/Raxa?setlang=tr</A><BR><BR><BR><A HREF="http://www.pavillon666.fr/groupe.php?groupe=2376" TARGET="_blank">http://www.pavillon666.fr/groupe.php?groupe=2376</A><BR><BR>я играю фолк<BR><A HREF="http://www.lemetalstore.com/newarrivals.html" TARGET="_blank">http://www.lemetalstore.com/newarrivals.html</A><BR><BR><BR>привет из Нидерландов:)<BR><A HREF="http://www.lordsofmetal.nl/showreview.php?id=10852&lang=en" TARGET="_blank">http://www.lordsofmetal.nl/showreview.php?id=10852&lang=en</A><BR><BR>кто следит ОТТУДА за всем этим?<BR><A HREF="http://www.metal-archives.com/band.php?id=73639" TARGET="_blank">http://www.metal-archives.com/band.php?id=73639</A><BR><BR><A HREF="http://atlantis-tales.net/data/2007/raxa_rabinal_achi.html" TARGET="_blank">http://atlantis-tales.net/data/2007/raxa_rabinal_achi.html</A><BR><A HREF="http://metalik.ucoz.ru/publ/2-1-0-3" TARGET="_blank">http://metalik.ucoz.ru/publ/2-1-0-3</A><BR><A HREF="http://www.darksymphonies.com/Merchant2/merchant.mv?Screen=PROD&Store_Code=DS_666&Product_Code=6008" TARGET="_blank">http://www.darksymphonies.com/Merchant2/merchant.mv?Screen=PROD&Store_Code=DS_666&Product_Code=6008</A><BR><BR><BR><BR><BR><BR><BR><BR>
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-LeathermaniaC 26.01.2008 23:28:
-Фирма: <BR>UNLEASHED 1992 "Shadows In The Deep" (limited black disc collector’s item, (p)Century Media 2006,+ 6 live bonus tracks, новый, запечатанный) – 360 руб<BR>UNLEASHED 1995 "Victory" (limited black disc collector’s item, (p)Century Media 2006,+ 6 live bonus tracks, новый, запечатанный)  – 330 руб<BR>DECEASED 2004  The Blueprints For Madness (Thrash corner records, 11 tracks + 1 bonus) - 180 руб <BR>ANTHRAX 1987 Among The Living (Island 422-842-447-2, США, новый, запечатанный) – 500 руб<BR>ASIA 1992 Aqua (Франция, Bandhall, состояние хорошее) – 300 руб<BR>GRAVE DIGGER 2005 The Last Supper + 2 бонуса (digipack, как новый, Nuclear Blast, Германия) – 400 руб<BR>MY DYING BRIDE 1993 Turn Loose The Swans (Великобритания, digipack 2003 года, Peaceville, запечатан) – 360 руб<BR>MY DYING BRIDE 1995 The Angel And The Dark River (Великобритания, digipack 2003 года, Peaceville, запечатан) - 360 руб <BR>RIOT 1988 Thundersteel (новый, запечатанный) - 400 руб<BR>SLAYER 1988 South Of Heaven (новый, American recordings/RRE,LLC/Warner, Великобритания, 50-51011-6040-2-7) – 400 руб.<BR>+ <BR>(под заказ, почтовые расходы - 180 руб за посылку (от 1 до 5 cd в посылке)<BR>Annihilator -Never Neverland (1990, Канада, roadrunner) – 430<BR>Annihilator - Set The World On Fire (2002, wea/roadrunner)- 400<BR>Armored Saint - Saints Will Conquer – 360<BR>Death - Symbolic (2002, wea/roadrunner) - 430<BR>Destruction - Mad Butcher - Eternal Devastation (2006) - 400<BR>Halford, Rob -Resurrection - Box Limited Edition - 500<BR>Loudblast - Fragments - 360<BR>Loudblast -The Time Keeper - 380<BR>Marduk -Infernal Eternal (2000,regain)-  400<BR>Pretty Maids -Sin-Decade - 400<BR>Dee Snider - Never Let The Bastards Wear - 360<BR>+<BR>По 360-400 руб<BR>Benediction Organized Chaos<BR>Benediction Subconscious Terror & Dark Is The Session<BR>Benediction The Grand Leveller<BR>Bewitched Atrocities By A Minor<BR>Cannibal Corpse Gore Obsessed<BR>Cannibal Corpse The Wretched Spawn<BR>Dark Throne Plaguewielder<BR>Darkthrone Hate Them<BR>Darkthrone Preparing For War<BR>Darkthrone Ravishing Grimness<BR>Darkthrone The Cult Is Alive<BR>Deicide Deicide<BR>Emperor Prometheus<BR>Enthroned Armoured Bestial Hell<BR>God Dethroned Into The Lungs Of Hell <BR>God Dethroned Ravenous <BR>Gorefest Chapter 13<BR>Gorefest False - Erase<BR>Grave As Rapture Comes<BR>Grave Fiendish Regression<BR>Immolation Unholy Cult<BR>Impaled Nazarene All That You Fear<BR>Impaled Nazarene Nihil<BR>Impaled Nazarene Pro Patria Finlandia - Digipack<BR>Incantation Decimate Christendom<BR>Loudblast Planet Pandemonium - <BR>Malevolent Creation Envenomed - <BR>Malevolent Creation Eternal – <BR>Malevolent Creation  In Cold <BR>Malevolent Creation Will To Kill<BR>Massacra Sick - <BR>Mayhem Ordo Ad Chao - <BR>Monstrosity Rise To Power<BR>Monstrosity Spiritual Apocalypse - <BR>Napalm Death  Death By Manipulation<BR>Napalm Death Diatribes –<BR>Napalm Death Enemy Of The Music Business - <BR>Napalm Death Harmony Corruption - <BR>Napalm Death Smear Campaign<BR>Napalm Death Code Is Red...Long – limited edition  - <BR>Nightfall Athenian Echoes - <BR>Nocturnus Ethereal Tomb (Digipack) <BR>Samael Ceremony Of Opposites<BR>Sinister Afterburner<BR>Sinister Creative Killings - <BR>Sinister Hate<BR>Sinister Savage Or Grace - <BR>Six Feet Under Bringer Of Blood - <BR>Six Feet Under Haunted - <BR>Six Feet Under Maximum Violence - <BR>Six Feet Under True Carnage - Digipack<BR>Six Feet Under 13<BR>Suffocation Suffocation <BR>Therion Secret Of The Runes - <BR>Vader Reborn In Chaos<BR>Vader Revelations (Digipack) <BR>Vader The Beast<BR>Vomitory Primal Massacre
 
 ### Цены на лиц. продукцию. Версия N.0
 
 Soulside 28.01.2008 14:40:
 Мы видимо ниразу ни коллекционеры раз не понимаем в этом ничего...<BR><A HREF="http://cgi.ebay.com/Opeth-Still-day-Beneath-the-sun-7-TESTPRESS_W0QQitemZ150198174692QQihZ005QQcategoryZ306QQrdZ1QQssPageNameZWD1VQQtrksidZp1638.m118.l1247QQcmdZViewItem" TARGET="_blank">http://cgi.ebay.com/Opeth-Still-day-Beneath-the-sun-7-TESTPRESS_W0QQitemZ150198174692QQihZ005QQcategoryZ306QQrdZ1QQssPageNameZWD1VQQtrksidZp1638.m118.l1247QQcmdZViewItem</A>
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-ixtiandr 30.01.2008 20:25:
-Гыгы, 20000 говорите? Вот это гавнище ушло недавно за US $1,025:<BR><BR>MORTIIS Fodt Til A Herske/ Promo Tape 93 Emperor SIGNED<BR><BR>Кто не верит, вот линк (пока еще жив но фотку уже убрали):<BR><A HREF="http://cgi.ebay.com/ws/eBayISAPI.dll?ViewItem&item=110201355757&ssPageName=ADME" TARGET="_blank">http://cgi.ebay.com/ws/eBayISAPI.dll?ViewItem&item=110201355757&ssPageName=ADME</A>:B:EOIBUAA:US:1123
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Soulside 31.01.2008 19:59:
-to Ixti А касательно этого шведского чела<BR>вот загляни в его магаз<BR><A HREF="http://stores.ebay.com/CherryBombRecords_W0QQtrksidZp1638.m118.l1247" TARGET="_blank">http://stores.ebay.com/CherryBombRecords_W0QQtrksidZp1638.m118.l1247</A><BR>там много раритетных вещей - только дорого<BR>И мотор там один есть, но вроде ты говорил он у тебя уже имеется.<BR><A HREF="http://cgi.ebay.com/Motorhead-Bomber-Lp-Blue-vinyl_W0QQitemZ150171363340QQihZ005QQcategoryZ306QQtcZphotoQQcmdZViewItem" TARGET="_blank">http://cgi.ebay.com/Motorhead-Bomber-Lp-Blue-vinyl_W0QQitemZ150171363340QQihZ005QQcategoryZ306QQtcZphotoQQcmdZViewItem</A><BR>Вот и скажи дорого это или нет?
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-R. 31.01.2008 22:56:
-<A HREF="http://cgi.ebay.com/Korrozia-Metalla-Cannibal-Lp-Russian-Metal-RARE_W0QQitemZ150197886832QQihZ005QQcategoryZ306QQtcZphotoQQcmdZViewItem" TARGET="_blank">http://cgi.ebay.com/Korrozia-Metalla-Cannibal-Lp-Russian-Metal-RARE_W0QQitemZ150197886832QQihZ005QQcategoryZ306QQtcZphotoQQcmdZViewItem</A><BR><BR>Аааааааааааа!!!!!!!!!!!!!!!! Раре!!!!!!!!<BR>
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-R. 31.01.2008 22:58:
-<A HREF="http://cgi.ebay.com/Dream-Police-S-T-Lp-Norwegian-Melodic-Metal-1990_W0QQitemZ150197885515QQihZ005QQcategoryZ306QQtcZphotoQQcmdZViewItem" TARGET="_blank">http://cgi.ebay.com/Dream-Police-S-T-Lp-Norwegian-Melodic-Metal-1990_W0QQitemZ150197885515QQihZ005QQcategoryZ306QQtcZphotoQQcmdZViewItem</A><BR><BR>Зато реально редкая пластинка, которую хуйъ где найдёшь, стоит сущую хуйню...
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Шуреги любят вас!!! 01.02.2008 05:18:
-<A HREF="http://cgi.ebay.com/SORT-VOKTER-Folkloric-Necro-LP-500X-ildjarn-emperor_W0QQitemZ150210234479QQihZ005QQcategoryZ68066QQrdZ1QQssPageNameZWD2VQQcmdZViewItem?_trksid=p1638.m122" TARGET="_blank">http://cgi.ebay.com/SORT-VOKTER-Folkloric-Necro-LP-500X-ildjarn-emperor_W0QQitemZ150210234479QQihZ005QQcategoryZ68066QQrdZ1QQssPageNameZWD2VQQcmdZViewItem?_trksid=p1638.m122</A><BR><BR>ну позырь чем кончится, узнаешь
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-State Oppression 01.02.2008 10:18:
-Кстати про True BM, вспомнил советский журнал "Кругозор", амуденная штука была.<BR>Так вот True BM неплохо бы издавать на таких нордичных пластинках, полностью чёрных, ни одной буквы, и чтоб стерео- проигрыватели не могли их воспроизводить. Только моно, толщиной тру- иглы не менее толщины мизинца взрослого человека. <BR>И наконец. Вершина. Никаких вилок. Никаких розеток. Никакого электричества. Только суровые стальные шестерёнки и благородное нордичное дерево. Слушать можно прямо в лесу.<BR>Смотрите и плачьте, самый тру- проигрыватель. Я до сих пор в ауте, не знал, что были такие аппараты:<BR><A HREF="http://cgi.ebay.com/EDISON-H-STANDARD-PHONOGRAPH-W-HORN-SUPER-NICE-COND_W0QQitemZ110218412532QQcmdZViewItem?hash=item110218412532" TARGET="_blank">http://cgi.ebay.com/EDISON-H-STANDARD-PHONOGRAPH-W-HORN-SUPER-NICE-COND_W0QQitemZ110218412532QQcmdZViewItem?hash=item110218412532</A>#ebayphotohosting<BR>
-
 ### Thrash - Metal
 
 USA 07.02.2008 11:21:
 Testament снова к нам собираются:<BR><BR><A HREF="http://www.roadrunnerrecords.com/blabbermouth.net/news.aspx?mode=Article&newsitemID=90169" TARGET="_blank">http://www.roadrunnerrecords.com/blabbermouth.net/news.aspx?mode=Article&newsitemID=90169</A>
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-LeathermaniaC 16.02.2008 05:33:
-Продано:<BR>ANTHRAX 1987 Among The Living – 400 руб <BR>RIOT 1988 Thundersteel - 500 руб <BR>SLAYER 1988 South Of Heaven – 400 руб. <BR><BR>Обновленный список (16.02.08): <BR>Контакт: leathermaniac @ mail . ru <BR><BR>CD. Фирма: <BR>MEGADETH 1992  "Countdown To Extiction" (не ремастер, CDP 0777 79853120, Голландия) – 330 руб<BR>MEGADETH 1995 "Hidden Treasures" (CDP 7243 8 33670 2 3, США, множественные царапины,  но читаемость - 100%) – 350 руб<BR>SUICIDAL TENDENCIES 1983 "Suicidal Tendencies" (CDV 2495, Голландия) – 300 руб<BR>VENOM 1989 "Prime Evil" (CD FLAG 36, Франция) – 700 руб<BR>YNGWIE MALMSTEEN 1986 "Trilogy" (831 073-2, Германия, как новый) – 360 руб<BR>YNGWIE MALMSTEEN 1994 "The Seventh Sign" (CDMFN 158, Британия) – 360 руб<BR>WINDS OF SIRIUS 1999 "Beyond All Temples And Myths" (SOM 026, Франция) – 350 руб<BR>+<BR>ASIA 1992 Aqua (Франция, Bandhall, состояние хорошее) – 300 руб <BR>DECEASED 2004  The Blueprints For Madness (Thrash corner records, 11 tracks + 1 bonus) - 150 руб <BR>GRAVE DIGGER 2005 The Last Supper + 2 бонуса (digipack, как новый, Nuclear Blast, Германия) – 400 руб <BR>MY DYING BRIDE 1993 Turn Loose The Swans (Великобритания, digipack 2003 года, Peaceville, запечатан) – 350 руб <BR>MY DYING BRIDE 1995 The Angel And The Dark River (Великобритания, digipack 2003 года, Peaceville, запечатан) - 350 руб <BR>UNLEASHED 1992 "Shadows In The Deep" (limited black disc collector’s item, (p)Century Media 2006,+ 6 live bonus tracks, новый, запечатанный) – 400 руб <BR>UNLEASHED 1995 "Victory" (limited black disc collector’s item, (p)Century Media 2006,+ 6 live bonus tracks, новый, запечатанный)  – 330 руб <BR>+ <BR>Headhunter  1991 A Bizarre Gardening Accident  (оригинальное издание, как новое) – 700 руб (минус 50 руб. при одновременной покупке Headhunter 1994) <BR>Headhunter 1994 Rebirth (оригинальное здание, как новое) – 700 руб (минус 50 руб. при одновременной покупке Headhunter 1991) <BR><BR>Винил:<BR>TRANCE 1983 "Power Infusion" (Франция) – 380 руб <BR>VENOM 1989 "Prime Evil" (Франция) – 700 руб<BR>WARLOCK 1985 Hellbound (Франция) – 350 руб <BR>W.A.S.P. 1985 "Blind In Texas" (shape picture disc) – 900 руб<BR><BR>CD. Лицензия: <BR>MANOWAR 2006 Sons Of Odin (новый) – 100 руб  <BR>PINK CREAM 69 1997 Food For Thought (новый) – 100 руб  <BR>ZERAPHINE 2002 Kalte Sonne (x-Dreadful Shadows)(как новый) - 60 руб <BR><BR>CD. Не лицензия: <BR>SHADOW GALLERY 1992 Shadow Gallery (буклет) – 70 руб <BR>SUICIDAL TENDENCIES 1994 Suicidal for life (буклет) – 70 руб <BR>KING DIAMOND 1998  Voodoo  – 50 руб <BR>+ <BR>Еще один список позиций - <A HREF="http://www.geocities.com/irrider/xlam.xls" TARGET="_blank">http://www.geocities.com/irrider/xlam.xls</A> <BR>ДЕШЕВО! <BR>Контакт: chelenkov@hotmail.com 
 
 ### Satyricon снова едут к нам
 
@@ -516,20 +466,10 @@ Slaanesh 13.03.2008 19:17:
 otec_SERGIY 09.04.2008 13:42:
 у этой сабрины?<BR><BR><BR> <A HREF="http://artconcert.net/index.php?option=com_content&task=view&id=5&Itemid=2" TARGET="_blank">http://artconcert.net/index.php?option=com_content&task=view&id=5&Itemid=2</A><BR><BR>
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-LeathermaniaC 10.04.2008 21:35:
-Обновленный список (10.04.08): <BR>CD. Фирма: <BR><BR>W.A.S.P. 1995  Black Forever I (Skin Walker, One Tribe) (EP, Британия) – 350 руб<BR>W.A.S.P. 1995  Black Forever II (Long Way To The Top, Whole Lotta Rosie) (EP, Британия) – 350 руб<BR>METALLICA 1998 The Unforgiven II (CD-single, part one of a 3 CD set, bonus free poster, запечатан) – 80 руб <BR>PENNYWISE 1995 About a Time – 260 руб<BR>MEGADETH 1995 "Hidden Treasures" (CDP 7243 8 33670 2 3, США, множественные царапины,  но читаемость - 100%) – 250 руб<BR>SUICIDAL TENDENCIES 1983 "Suicidal Tendencies" (CDV 2495, Голландия) – 270 руб<BR>VENOM 1989 "Prime Evil" (CD FLAG 36, Франция) – 700 руб<BR>YNGWIE MALMSTEEN 1986 "Trilogy" (831 073-2, Германия, как новый) – 350 руб<BR>YNGWIE MALMSTEEN 1994 "The Seventh Sign" (CDMFN 158, Британия) – 350 руб<BR>WINDS OF SIRIUS 1999 "Beyond All Temples And Myths" (SOM 026, Франция) – 350 руб<BR>ASIA 1992 Aqua (Франция, Bandhall, состояние хорошее) – 300 руб <BR>DECEASED 2004  The Blueprints For Madness (Thrash corner records, 11 tracks + 1 bonus) - 150 руб <BR>GRAVE DIGGER 2005 The Last Supper + 2 бонуса (digipack, как новый, Nuclear Blast, Германия) – 400 руб <BR>UNLEASHED 1992 "Shadows In The Deep" (limited black disc collector’s item, (p)Century Media 2006,+ 6 live bonus tracks, новый, запечатанный) – 350 руб <BR>UNLEASHED 1995 "Victory" (limited black disc collector’s item, (p)Century Media 2006,+ 6 live bonus tracks, новый, запечатанный)  – 330 руб<BR><BR>Винил (состояние: картон; винил):<BR>ADX 1990 Weird Visions (Германия 1990) – 360 руб (VG +; VG) <BR>ACCEPT 1982 Restless And Wild (Франция 1983) - 260 руб (VG + ; VG +)<BR>BON JOVI 1984 Bon Jovi (Британия 1984) – 300 руб (VG ++ ; VG +)<BR>BON JOVI 1986 Slippery When Wet (Британия 1986) – 300 руб (VG ++ ; VG +)<BR>IRON MAIDEN 1981 Killers  (Франция 1981) -  300 руб (VG ++ ; VG ++&VG+) * внутренний конверт отсутствует <BR>IRON MAIDEN 1986 – Somewhere In Time  (Британия 1986)  -  150 руб (конверт отсутствует, внутренний конверт NM; винил VG+) <BR>M.S.G. 1980 M.S.G. (Британия) – 350 руб (VG + ; VG +)<BR>M.S.G. 1981  (Франция 1981) – 260 руб (VG ++ ; VG)<BR>PEER GUNT 1987 Good Girls Don’t… (Франция) – 150 руб (VG +; VG++)<BR>KICK AXE 1984 Vices (Голландия 1984) - 260 руб (VG + ; VG ++&VG+)<BR>SCORPIONS 1979 - Lovedrive (Франция 1979) - 300 руб (VG ++ ; VG +)<BR>TWISTED SISTER 1985 Come Out And Play (Германия 1985) – 350 руб (VG ++ ; VG +) <BR>STARS – Hear ‘n’Aid  (7’, Франция 1985) – 100 руб (G; VG +)<BR>WARLOCK 1986 (Германия 1986) – 400 руб (VG ++ ; VG ++)<BR>WARLOCK 1987 Triumph And Agony (gatefold, Германия 1987) – 200 руб (VG - ; VG-/G)<BR>W.A.S.P. 1985 "Blind In Texas" (shape picture disc) – 870 руб<BR>W.A.S.P. 1989 "Forever Free" (special autographed disc,  poster) – 770 руб<BR>W.A.S.P. 1989 "Real Me" (+poster) – 870 руб<BR>+<BR>CD. Лицензия: <BR>MANOWAR 2006 Sons Of Odin (новый) – 100 руб  <BR>PINK CREAM 69 1997 Food For Thought (новый) – 100 руб  <BR>ZERAPHINE 2002 Kalte Sonne (x-Dreadful Shadows)(как новый) - 50 руб <BR><BR>CD. Не лицензия: <BR>SHADOW GALLERY 1992 Shadow Gallery (буклет) – 50 руб <BR>SUICIDAL TENDENCIES 1994 Suicidal for life (буклет) – 50 руб <BR>KING DIAMOND 1998  Voodoo  – 30 руб <BR><BR>Контакт: leathermaniac @ mail . ru 
-
 ### ВИНИЛ - хочу всё знать
 
 ixtiandr 18.04.2008 10:38:
 Maybe it can help.<BR><BR>Matrix:   An engraving or stamped code. For vinyl items, this describes the code etched into the run-out grooves on each side of the record. For CDs, the code can be found on the metallic ring in the center of the disc. (Many CDs may also have an IFPI code printed on the inner plastic ring). The number is assigned by the record company at the time of recording, or sometimes in advance. Generally it is a rough guide to the dating of the recording, and sometimes indicates which take or performance of several done in one session the recording actually represents. The matrix number may, also, indicate, usually in the prefix or suffix positions, additional data such as method of recording (i.e. electrical or acoustical), dubbing, recording engineer, place and original manufacturer. When dealing with records reissued under new issue numbers the matrix number is the chief means of verifying whether the reissue is the same take or performance as an earlier issue. <BR><BR>
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-LeathermaniaC 27.04.2008 17:21:
-Обновленный список (27.04.2008): <BR>CD. Фирма: <BR><BR>W.A.S.P. 1995  Black Forever I (Skin Walker, One Tride) (EP, Британия) – 350 руб<BR>W.A.S.P. 1995  Black Forever II (Long Way To The Top, Whole Lotta Rosie) (EP, Британия) – 350 руб<BR>METALLICA 1998 The Unforgiven II (CD-single, part one of a 3 CD set, bonus free poster, запечатан) – 60 руб <BR>MEGADETH 1995 "Hidden Treasures" (CDP 7243 8 33670 2 3, США, множественные царапины,  но читаемость - 100%) – 250 руб<BR>SUICIDAL TENDENCIES 1983 "Suicidal Tendencies" (CDV 2495, Голландия) – 250 руб<BR>VENOM 1989 "Prime Evil" (CD FLAG 36, Франция) – 700 руб<BR>YNGWIE MALMSTEEN 1986 "Trilogy" (831 073-2, Германия, как новый) – 350 руб<BR>YNGWIE MALMSTEEN 1994 "The Seventh Sign" (CDMFN 158, Британия) – 350 руб<BR>WINDS OF SIRIUS 1999 "Beyond All Temples And Myths" (SOM 026, Франция) – 350 руб<BR>ASIA 1992 Aqua (Франция, Bandhall, состояние хорошее) – 300 руб <BR>DECEASED 2004  The Blueprints For Madness (Thrash corner records, 11 tracks + 1 bonus) - 120 руб <BR>GRAVE DIGGER 2005 The Last Supper + 2 бонуса (digipack, как новый, Nuclear Blast, Германия) – 400 руб <BR>UNLEASHED 1992 "Shadows In The Deep" (limited black disc collector’s item, (p)Century Media 2006,+ 6 live bonus tracks, новый, запечатанный) – 350 руб <BR>UNLEASHED 1995 "Victory" (limited black disc collector’s item, (p)Century Media 2006,+ 6 live bonus tracks, новый, запечатанный)  – 330 руб<BR>RAGE 1989 Secrets in a weird world (не ремастер) (состояние посредственное) – 100 р<BR>RAGE 1996  Lingua mortis – (состояние посредственное) - 100 р<BR><BR>Винил (состояние: картон; винил):<BR>RIOT 1988 Thundersteel (Голландия 1988) – 360 руб (VG++, VG+)<BR>SAVAGE GRACE 1985 Master Of Disguise (Франция 1985) – 360 руб (VG, VG)<BR>TWISTED SISTER 1984 Stay Hungry (США, конверт в углу пробит) – 330 руб (VG+, VG++)<BR>HELLOWEEN 1987 Keeper… I (Франция, gatefold) – 360 руб (VG++, VG+)<BR>EUROPE 1986 Final Countdown (Британия, обложка <A HREF="http://www.todocoleccion.net/lote.cfm?Id_Lote=8084949" TARGET="_blank">http://www.todocoleccion.net/lote.cfm?Id_Lote=8084949</A>, постер отсутствует) - 300 руб (VG++ ; VG+)<BR>POISON 1986 Look What The Cat Dragged In (Франция) - 150 руб (VG++ ; VG+)<BR>ADX 1990 Weird Visions (Германия 1990) – 360 руб (VG +; VG) <BR>ACCEPT 1982 Restless And Wild (Франция 1983) - 300 руб (VG + ; VG +)<BR>BON JOVI 1984 Bon Jovi (Британия 1984) – 300 руб (VG ++ ; VG +)<BR>BON JOVI 1986 Slippery When Wet (Британия 1986) – 300 руб (VG ++ ; VG +)<BR>IRON MAIDEN 1981 Killers  (Франция 1981) -  300 руб (VG ++ ; VG ++&VG+) <BR>IRON MAIDEN 1986 – Somewhere In Time  (Британия 1986)  -  100 руб (конверт отсутствует, внутренний конверт NM; винил VG+) <BR>M.S.G. 1980 M.S.G. (Британия) – 350 руб (VG + ; VG +)<BR>M.S.G. 1981  (Франция 1981) – 260 руб (VG ++ ; VG)<BR>PEER GUNT 1987 Good Girls Don’t… (Франция) – 100 руб (VG +; VG++)<BR>KICK AXE 1984 Vices (Голландия 1984) - 260 руб (VG + ; VG ++&VG+)<BR>SCORPIONS 1979 - Lovedrive (Франция 1979) - 300 руб (VG ++ ; VG +)<BR>TWISTED SISTER 1985 Come Out And Play (Германия 1985) – 350 руб (VG ++ ; VG +) <BR>STARS – Hear ‘n’Aid  (7’, Франция 1985) – 100 руб (G; VG +)<BR>WARLOCK 1986 (Германия 1986) – 360 руб (VG ++ ; VG ++)<BR>WARLOCK 1987 Triumph And Agony (gatefold, Германия 1987) – 200 руб (VG - ; VG-/G)<BR>W.A.S.P. 1989 Forever Free (special autographed disc,  poster) – 770 руб<BR>W.A.S.P. 1989 Real Me (+poster) – 870 руб<BR>W.A.S.P. 1989 Mean Man (Британия, gatefold) – 770 руб (VG ++ ; VG ++)<BR>+<BR>CD. Лицензия: <BR>MANOWAR 2006 Sons Of Odin (новый) – 100 руб  <BR>PINK CREAM 69 1997 Food For Thought (новый) – 100 руб  <BR>ZERAPHINE 2002 Kalte Sonne (x-Dreadful Shadows)(как новый) - 50 руб <BR><BR>Контакт: leathermaniac @ mail . ru <BR>
 
 ### Thrash - Metal
 
@@ -605,11 +545,6 @@ Druid_bc 27.06.2008 19:57:
 
 ixtiandr 28.06.2008 17:02:
 <I> Ну я так понимаю если они предъявят квитанцию и посылка незастрахована, то это уже мои проблемы. Да и многие селлеры пишут, что типа not responsible for lost or stolen items. </I><BR><BR>Ну в общем, да. Хотя тут ситуевина тоже неоднозначная. Ведь получается, по большому счету, для "надежной" пересылки они тебе навязывают более дорогую услугу, т.е. тот самый регистеред мейл или ЕМС (притом не надо забывать, что селлеры почти всегда еще мальца наваривают на почтовых услугах). А так - он может ведь сказать, что отправил, а сам хуй что отправил. А если он, скажем, из страны, языка которой ты не знаешь - что тебе даст этот квиток почтовый, в котором ты ваще хуй что понимаешь? На кетайском, например.
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-godswill 28.06.2008 22:23:
-смотри здесь:<BR><A HREF="http://disc.dp.ua/info/music/motorhead/item/10000" TARGET="_blank">http://disc.dp.ua/info/music/motorhead/item/10000</A>
 
 ### Thrash - Metal
 
@@ -736,16 +671,6 @@ ixtiandr 14.11.2008 00:35:
 Seeteufel 25.11.2008 11:05:
 Вот здесь ещё есть отчёт с фотками:<BR><A HREF="http://www.moskva.com/relax/reviews/?ItemID=18677512" TARGET="_blank">http://www.moskva.com/relax/reviews/?ItemID=18677512</A>
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-State Oppression 04.12.2008 16:47:
-Так, кто поглазастее, это оно?<BR><A HREF="http://cgi.ebay.com/CD-Single-Case-Ten-For-1-Disc-Jewel-Style_W0QQitemZ360093784327QQcmdZViewItemQQptZUK_Home_Garden_CD_DVDStorage_SM?hash=item360093784327" TARGET="_blank">http://cgi.ebay.com/CD-Single-Case-Ten-For-1-Disc-Jewel-Style_W0QQitemZ360093784327QQcmdZViewItemQQptZUK_Home_Garden_CD_DVDStorage_SM?hash=item360093784327</A>
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Майор 10.12.2008 13:08:
-нда? вот у людей башки нет)) вот показательный пример))<BR><BR><A HREF="http://cgi.ebay.com/Iron-Maiden-Eddies-Archive-6-CD-JAPAN-BOX-NEW-SEALED_W0QQitemZ140285355014QQcmdZViewItemQQptZMusic_CDs?_trksid=p3286.m20.l1116" TARGET="_blank">http://cgi.ebay.com/Iron-Maiden-Eddies-Archive-6-CD-JAPAN-BOX-NEW-SEALED_W0QQitemZ140285355014QQcmdZViewItemQQptZMusic_CDs?_trksid=p3286.m20.l1116</A>
-
 ### Барабанщика Арконы сбила машина
 
 X-KON 08.01.2009 17:03:
@@ -760,11 +685,6 @@ Jacob 04.02.2009 16:54:
 
 Майор 05.02.2009 13:15:
 тоже ничего так:<BR><BR><A HREF="http://cgi.ebay.com/ws/eBayISAPI.dll?ViewItem&ssPageName=STRK" TARGET="_blank">http://cgi.ebay.com/ws/eBayISAPI.dll?ViewItem&ssPageName=STRK</A>:MEWAX:IT&item=150323933935
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-State Oppression 09.02.2009 09:49:
-Купите у братка дисочков немножко, за гроши ведь отдаёт:<BR><A HREF="http://cgi.ebay.com/HEAVY-METAL-MUSIC-CD-COLLECTION-4200-CDS-IRON-MAIDEN_W0QQitemZ400028119926QQcmdZViewItemQQptZMusic_CDs?hash=item400028119926&_trksid=p3286.c0.m14&_trkparms=72%3A1199%7C66%3A2%7C65%3A12%7C39%3A1%7C240%3A1318%7C301%3A0%7C293%3A10%7C294%3A50" TARGET="_blank">http://cgi.ebay.com/HEAVY-METAL-MUSIC-CD-COLLECTION-4200-CDS-IRON-MAIDEN_W0QQitemZ400028119926QQcmdZViewItemQQptZMusic_CDs?hash=item400028119926&_trksid=p3286.c0.m14&_trkparms=72%3A1199%7C66%3A2%7C65%3A12%7C39%3A1%7C240%3A1318%7C301%3A0%7C293%3A10%7C294%3A50</A>
 
 ### Аркона, вы целы?
 
@@ -801,11 +721,6 @@ Headcrusher 24.02.2009 03:41:
 Keeper 24.02.2009 07:51:
 Не знаю, можно ли это назвать очередным "ебейским безумием"<BR><BR><A HREF="http://cgi.ebay.com/ws/eBayISAPI.dll?ViewItem&item=280314126870" TARGET="_blank">http://cgi.ebay.com/ws/eBayISAPI.dll?ViewItem&item=280314126870</A><BR><BR>но я хотел побицца за него. После 4 го десятка желение отпало...
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-State Oppression 24.02.2009 14:34:
-Гость, не забудь прикупить тру -монопроигрыватель, например "АККОРД":<BR><BR><A HREF="http://www.molotok.ru/item538450699_proigryvatel_akkord_v_ideale.html" TARGET="_blank">http://www.molotok.ru/item538450699_proigryvatel_akkord_v_ideale.html</A>#gallery<BR><BR>для полной аутентичности Звучания!!!
-
 ### DESTRUCTION в России 21-23 февраля
 
 ZaGul 24.02.2009 16:01:
@@ -815,11 +730,6 @@ ZaGul 24.02.2009 16:01:
 
 Shot-gun 24.02.2009 17:54:
 Дискан Визарда за 71 баксов, действительно ничего сильно жуткого. Кому то он был очень нужен.<BR><BR>Вот это кажется большим безумием.<BR><A HREF="http://cgi.ebay.com/Slipknot-Mate-Feed-Kill-Repeat-ORIGINAL-RARE_W0QQitemZ260364342470QQcmdZViewItemQQptZMusic_CDs?hash=item260364342470&_trksid=p3286.c0.m14&_trkparms=66%3A2" TARGET="_blank">http://cgi.ebay.com/Slipknot-Mate-Feed-Kill-Repeat-ORIGINAL-RARE_W0QQitemZ260364342470QQcmdZViewItemQQptZMusic_CDs?hash=item260364342470&_trksid=p3286.c0.m14&_trkparms=66%3A2</A>|65%3A3|39%3A1|240%3A1318<BR>
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Ghast 02.03.2009 08:07:
-В последий раз <B>Lucifugum: "А колесо все скрипит"</B> DUKE Records, 2002 ушел за <A HREF="http://cgi.ebay.de/Lucifugum-And-the-Wheel-keeps-crunching-CD-neu_W0QQitemZ390023473130QQcmdZViewItemQQptZB&" TARGET="_blank">пысят евроу</A>.
 
 ### Поговорим о редких дисках
 
@@ -831,30 +741,10 @@ ixtiandr 02.03.2009 20:49:
 fixedk 06.03.2009 10:19:
 <A HREF="http://cgi.ebay.com/VALENTINE-Soul-Salvation-CD-AOR-Hugo-on-Vocals-NEW_W0QQitemZ260362747244QQcmdZViewItemQQptZMusic_CDs?hash=item260362747244&_trksid=p3286.c0.m14&_trkparms=72%3A1205%7C66%3A2%7C65%3A12%7C39%3A1%7C240%3A1318%7C301%3A0%7C293%3A1%7C294%3A50" TARGET="_blank">http://cgi.ebay.com/VALENTINE-Soul-Salvation-CD-AOR-Hugo-on-Vocals-NEW_W0QQitemZ260362747244QQcmdZViewItemQQptZMusic_CDs?hash=item260362747244&_trksid=p3286.c0.m14&_trkparms=72%3A1205%7C66%3A2%7C65%3A12%7C39%3A1%7C240%3A1318%7C301%3A0%7C293%3A1%7C294%3A50</A><BR><BR><BR><A HREF="http://cgi.ebay.com/VALENTINE-same-CD-mint-Motley-Crue-Skagarack_W0QQitemZ370167271899QQcmdZViewItemQQptZLH_DefaultDomain_0?hash=item370167271899&_trksid=p3286.c0.m14&_trkparms=72%3A1205%7C66%3A2%7C65%3A12%7C39%3A1%7C240%3A1318%7C301%3A0%7C293%3A2%7C294%3A50" TARGET="_blank">http://cgi.ebay.com/VALENTINE-same-CD-mint-Motley-Crue-Skagarack_W0QQitemZ370167271899QQcmdZViewItemQQptZLH_DefaultDomain_0?hash=item370167271899&_trksid=p3286.c0.m14&_trkparms=72%3A1205%7C66%3A2%7C65%3A12%7C39%3A1%7C240%3A1318%7C301%3A0%7C293%3A2%7C294%3A50</A><BR><BR><A HREF="http://cgi.ebay.com/VANDENBERG-HEADING-FOR-A-STORM-1983-JAPAN-CD-w-OBI_W0QQitemZ300278753702QQcmdZViewItemQQptZMusic_CDs?hash=item300278753702&_trksid=p3286.c0.m14&_trkparms=72%3A1205%7C66%3A2%7C65%3A12%7C39%3A1%7C240%3A1318%7C301%3A0%7C293%3A1%7C294%3A50" TARGET="_blank">http://cgi.ebay.com/VANDENBERG-HEADING-FOR-A-STORM-1983-JAPAN-CD-w-OBI_W0QQitemZ300278753702QQcmdZViewItemQQptZMusic_CDs?hash=item300278753702&_trksid=p3286.c0.m14&_trkparms=72%3A1205%7C66%3A2%7C65%3A12%7C39%3A1%7C240%3A1318%7C301%3A0%7C293%3A1%7C294%3A50</A><BR><BR>вощемта найдено с первого же запроса.<BR>остальное не смотрел
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-fixedk 07.03.2009 22:15:
-май твин<BR><A HREF="http://cgi.ebay.com/KATATONIA-MY-TWIN-CD-2006-DIGIPAK-IMPORT-EP-METAL_W0QQitemZ110356229876QQcmdZViewItemQQptZMusic_CDs?_trksid=p3286.m20.l1116" TARGET="_blank">http://cgi.ebay.com/KATATONIA-MY-TWIN-CD-2006-DIGIPAK-IMPORT-EP-METAL_W0QQitemZ110356229876QQcmdZViewItemQQptZMusic_CDs?_trksid=p3286.m20.l1116</A><BR><BR><A HREF="http://cgi.ebay.com/KATATONIA-MY-TWIN-NEU-OVP_W0QQitemZ180315609311QQcmdZViewItemQQptZB%C3%BCcher_Unterhaltung_Music_CDs?_trksid=p3286.m20.l1116" TARGET="_blank">http://cgi.ebay.com/KATATONIA-MY-TWIN-NEU-OVP_W0QQitemZ180315609311QQcmdZViewItemQQptZB%C3%BCcher_Unterhaltung_Music_CDs?_trksid=p3286.m20.l1116</A>
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-fixedk 10.03.2009 09:56:
-бери и покупай.<BR><BR><A HREF="http://shop.ebay.com/items/_W0QQLHQ5fPrefLocZ2?_nkw=and" TARGET="_blank">http://shop.ebay.com/items/_W0QQLHQ5fPrefLocZ2?_nkw=and</A>+the+mortal+room&_sacat=0&_fromfsb=&_trksid=m270&_odkw=mental+home&_osacat=0
-
 ### Поговорим о редких дисках
 
 R. 11.03.2009 22:19:
 Вот ещё примерчик разницы в цене. Я тут с месяцок или более назад в ПЛ прикупил пять CD Matia Bazar. Итальянские, не переиздания, 91-й год, как положено (их и не переиздавали, по ходу). Брал что-то рублей так по 600. Щас смотрю цены на ебае - не розыгрыш, а бай ит нау. Итак:<BR><BR><A HREF="http://cgi.ebay.com/New-MATIA-BAZAR-Berlino-Parigi-Londra-CD-1982-OOP_W0QQitemZ350160467582QQcmdZViewItem" TARGET="_blank">http://cgi.ebay.com/New-MATIA-BAZAR-Berlino-Parigi-Londra-CD-1982-OOP_W0QQitemZ350160467582QQcmdZViewItem</A><BR>QQptZMusic_CDs?_trksid=p3286.m20.l1116<BR><BR>40 баксов плюс шиппинг<BR><BR><A HREF="http://cgi.ebay.com/Matia-Bazar-Melancholia-CD-SEALED-RARE_W0QQitemZ360110534414QQcmdZView" TARGET="_blank">http://cgi.ebay.com/Matia-Bazar-Melancholia-CD-SEALED-RARE_W0QQitemZ360110534414QQcmdZView</A><BR>ItemQQptZMusic_CDs?_trksid=p3286.m20.l1116<BR><BR>25 баксов плюс шиппинг.<BR><BR>Остальных на ебае нет, зато, пока искал, скока ж это всё-таки стоит, наткнулся в нете на объяву, мол, куплю эти аутофпринтные издания 91 года по 80 евро. Нормально так. Ищет, кстати, итальянец, казалось бы, своего-то гогна должно быть в избытке. Фантастика, вопчем.
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Non Serviam 12.03.2009 20:12:
-gonna sell "like-new" item:<BR><BR>primordial "storm before calm" /karmageddon, 2005 yr re-issue w/"the burning season" as bonus-track<BR><BR>mail to eskhaton@rambler.ru
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Non Serviam 17.03.2009 18:39:
-eskhaton@rambler.ru<BR><BR>rare item for sale:<BR><BR>Eternal Oath - Through The Eyes Of Hatred /Pulverised Rec, Singapore<BR>Original 1st press 1999<BR>melodic death metal from Sweden
 
 ### Музыкальные конфликты!!!)))
 
@@ -865,11 +755,6 @@ steeler, ты уж не запёздывайся совсем про The Haunted
 
 USA 25.03.2009 13:16:
 Выложили обложку нового сингла Slayer - который про Чикатило. Во что бы то ни стало, надо будет достать когда выйдет))) <A HREF="http://www.roadrunnerrecords.com/blabbermouth.net/news.aspx?mode=Article&newsitemID=116729" TARGET="_blank">http://www.roadrunnerrecords.com/blabbermouth.net/news.aspx?mode=Article&newsitemID=116729</A><BR><BR>
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Non Serviam 31.03.2009 14:42:
-неужели никому не нужен? )))<BR><BR>The Gathering - Almost A Dance (foundation 2000) original '93 press запечатан<BR><BR>типа этого, только немецкий принт<BR><A HREF="http://cgi.ebay.com/THE-GATHERING-Almost-a-dance-CD-93-1-pr-FOUNDATION2000_W0QQitemZ370082142853QQcmdZViewItemQQptZMusic_CDs?hash=item370082142853&_trksid=p3286.m20.l1116" TARGET="_blank">http://cgi.ebay.com/THE-GATHERING-Almost-a-dance-CD-93-1-pr-FOUNDATION2000_W0QQitemZ370082142853QQcmdZViewItemQQptZMusic_CDs?hash=item370082142853&_trksid=p3286.m20.l1116</A><BR><BR>и Eternal Oath - Through The Eyes Of Hatred (pulverised) original '99 press<BR>
 
 ### ВИНИЛ - хочу всё знать
 
@@ -1031,11 +916,6 @@ Soulside 31.10.2009 13:31:
 IronFelix 18.11.2009 12:36:
 <A HREF="http://metallica.com/index.asp?item=602748" TARGET="_blank">http://metallica.com/index.asp?item=602748</A><BR><BR>More Tour Announcements<BR>11/18/2009<BR><BR>"Europe??" you're thinking, "weren't you guys just talking about Latin America a minute ago?" Well, yes, but we thought we would mix it up a little here and jump ahead to April to tell you about some shows happening then. In our effort to get the info out to you as soon as the dates are officially confirmed, here are three more for you:<BR><BR>April 13 Oslo, Norway Telenor Arena On Sale November 23<BR>April 24 Moscow, Russia Olimpiski Arena To be announced<BR>April 25 Moscow, Russia Olimpiski Arena To be announced<BR><BR>So keep watching here . . . we'll be back several times during the next week with more European and Latin American dates. Were looking forward to visiting our friends all over the world!<BR>
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Non Serviam 28.11.2009 03:18:
-кстати, охотникам до винтерланда:<BR><BR><A HREF="http://cgi.ebay.com/VINTERLAND-Welcome-my-last-Chapter-FIRST-PRESS_W0QQitemZ170410494871QQcmdZViewItemQQptZMusic_CDs?hash=item27ad41cb97" TARGET="_blank">http://cgi.ebay.com/VINTERLAND-Welcome-my-last-Chapter-FIRST-PRESS_W0QQitemZ170410494871QQcmdZViewItemQQptZMusic_CDs?hash=item27ad41cb97</A><BR><BR>кто-то еще может успеть
-
 ### Нужна помощь в покупке CDs через eBay.
 
 Druid_bc 28.11.2009 22:50:
@@ -1116,11 +996,6 @@ Keeper 16.12.2009 13:23:
 ixtiandr 18.12.2009 20:35:
 The mighty IRON MAIDEN will play next year's edition of the legendary Wacken Open Air festival in Northern Germany!<BR><BR>After their triumphant show in 2008, this will mark the second show of the British metal legends at Wacken. Their gig on Thursday, August 5, 2010 will also be their only German show next year.<BR><BR>Comments IRON MAIDEN's Steve Harris: "We had a fantastic time playing at Wacken last year so when we decided to play a few festivals in Europe next summer it seemed a great idea to return. What could be better in Germany than to play again to the 75,000 true metalheads who go to Wacken!"<BR><BR><A HREF="http://www.roadrunnerrecords.com/blabbermouth.net/news.aspx?mode=Article&newsitemID=132061&utm_source=feedburner&utm_medium=feed&utm_campaign=Feed%3A" TARGET="_blank">http://www.roadrunnerrecords.com/blabbermouth.net/news.aspx?mode=Article&newsitemID=132061&utm_source=feedburner&utm_medium=feed&utm_campaign=Feed%3A</A>+blabbermouth+%28Blabbermouth.net%27s+Daily+Headlines%29<BR><BR>Так что копите бабло на Германию, фанаты :)
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-valentine7 20.12.2009 22:48:
-Rare item:<BR>Razor "violent restitution"1988 rcd9486 orig!-1400rur<BR>tilitili06@rambler.ru
-
 ### Нужна помощь в покупке CDs через eBay.
 
 Soulside 22.12.2009 14:56:
@@ -1130,11 +1005,6 @@ Soulside 22.12.2009 14:56:
 
 Appendics 28.12.2009 14:46:
 Вообще, частенько просто смотрю за торгами, - бл...ь, ведь и покупают люди хрен его пойми что. Особенно америкос один, улетает за немелкий прайс многое у него, например:<BR><A HREF="http://cgi.ebay.com/ws/eBayISAPI.dll?ViewItem&item=350294021557&ssPageName=STRK" TARGET="_blank">http://cgi.ebay.com/ws/eBayISAPI.dll?ViewItem&item=350294021557&ssPageName=STRK</A>:MEWAX:IT<BR>Наверно кто-то без этого плохо спит:)))
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-fixedk 31.12.2009 09:28:
-вот какойто жек фрост<BR><BR><A HREF="http://cgi.ebay.com/Jack-Frost-Jack-Frost-1991-13-trks-the-church_W0QQitemZ330374028995QQcmdZViewItemQQptZMusic_CDs?hash=item4cebd39ec3" TARGET="_blank">http://cgi.ebay.com/Jack-Frost-Jack-Frost-1991-13-trks-the-church_W0QQitemZ330374028995QQcmdZViewItemQQptZMusic_CDs?hash=item4cebd39ec3</A>
 
 ### Нужна помощь в покупке CDs через eBay.
 
@@ -1246,11 +1116,6 @@ Help!<BR>Мне выслали диски из США. На сайте USPS пр
 Сергий 21.02.2010 22:06:
 вот тут<BR><BR><A HREF="http://www.plastichead.com/catalogue.asp?ex=fitem&verb=F&target=BYE001CD" TARGET="_blank">http://www.plastichead.com/catalogue.asp?ex=fitem&verb=F&target=BYE001CD</A>
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-zharkosha 26.02.2010 22:03:
-2 ранних Мастерс хаммера щас к примеру появились у поляка, у которого я беру, и вообще по смешной цене, че то вроде 20 баксов диск. Диски запечатанные, леваком он не торгует. взял бы себе, да дижипак двойной есть, нахера они надо.<BR><BR><A HREF="http://www.allegro.pl/item937360462_master_s_hammer_the_jilemnice_occultist_cd_folia.html" TARGET="_blank">http://www.allegro.pl/item937360462_master_s_hammer_the_jilemnice_occultist_cd_folia.html</A><BR><BR><A HREF="http://www.allegro.pl/item937360474_master_s_hammer_ritual_cd_nowa_folia.html" TARGET="_blank">http://www.allegro.pl/item937360474_master_s_hammer_ritual_cd_nowa_folia.html</A>
-
 ### Нужна помощь в покупке CDs через eBay.
 
 State Oppression 02.03.2010 09:11:
@@ -1275,11 +1140,6 @@ Appendics 08.03.2010 16:05:
 
 Кукан Войны 08.03.2010 16:22:
 <A HREF="http://cgi.ebay.com/ADX-Suprematie-La-terreur-CD-Rare-88-1-pr-SYDNEY_W0QQitemZ200284522566QQcmdZViewItemQQptZMusic_CDs?hash=item2ea1e34846" TARGET="_blank">http://cgi.ebay.com/ADX-Suprematie-La-terreur-CD-Rare-88-1-pr-SYDNEY_W0QQitemZ200284522566QQcmdZViewItemQQptZMusic_CDs?hash=item2ea1e34846</A><BR>Здесь тоже весело. Равно как и всё у этого чеха. Чехи - все спекулянты в самом худшем смысле слова
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-fixedk 10.03.2010 10:04:
-сик<BR><BR>а вот такое не недо ? ))<BR><BR><A HREF="http://cgi.ebay.de/c6141-MECHANICAL-POET-woodland-prattlers-SHCD1-0066-CD_W0QQitemZ370341361956QQcmdZViewItemQQptZMusic_CDs?hash=item563a10b924" TARGET="_blank">http://cgi.ebay.de/c6141-MECHANICAL-POET-woodland-prattlers-SHCD1-0066-CD_W0QQitemZ370341361956QQcmdZViewItemQQptZMusic_CDs?hash=item563a10b924</A>
 
 ### Нужна помощь в покупке CDs через eBay.
 
@@ -1631,20 +1491,10 @@ State Oppression 21.07.2010 09:23:
 Docuch 23.07.2010 07:38:
 попросил друг диск прикупить, трудно русский индастриал на родине ему находить<BR><A HREF="http://cgi.ebay.com/VELEHENTOR-Sak-Yelga-m-CD-Ltd-333-russian-industrial-/310184675085?cmd=ViewItem&pt=UK_CDsDVDs_CDs_CDs_GL&hash=item483872870d" TARGET="_blank">http://cgi.ebay.com/VELEHENTOR-Sak-Yelga-m-CD-Ltd-333-russian-industrial-/310184675085?cmd=ViewItem&pt=UK_CDsDVDs_CDs_CDs_GL&hash=item483872870d</A><BR>в описании указано - если вы из at risk countries, то напишите перед тем как диск заказывать<BR>написал, сказал что из России и купить хочу. получил ответ - покупай на здоровье, всё ок<BR>купил, оплатил<BR>и вот получаю инвойс ещё на 4,25 фунта с таким текстом<BR>Hello, thanks for your order. Unfortunately Russia is on our 'At Risk' list (we have experienced very high theft to Russia). It is bad for both seller and buyer when items are stolen. Please pay for the registered mail so we can process your order. We hope you understand. Best wishes, COLD SPRING<BR><BR>ведь специально идиоту написал, как он просил - всё замечательно было. что теперь с ним делать? могу я послать его с этим инвойсом и заставить выслать диск обычной почтой?
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-zharkosha 30.07.2010 21:27:
-<A HREF="http://cgi.ebay.com/ws/eBayISAPI.dll?ViewItem&item=200492302980&ssPageName=STRK" TARGET="_blank">http://cgi.ebay.com/ws/eBayISAPI.dll?ViewItem&item=200492302980&ssPageName=STRK</A>:MEWAX:IT<BR><BR>беринихачу
-
 ### Х****(censored)!!!!!!!!!
 
 Шульц 07.08.2010 01:25:
 зато культ, Риска купил диск на ебае за 60 долл. - говно ж музон то..., но типа модно старое говно....<BR><A HREF="http://cgi.ebay.com/ws/eBayISAPI.dll?ViewItem&item=200484062336" TARGET="_blank">http://cgi.ebay.com/ws/eBayISAPI.dll?ViewItem&item=200484062336</A><BR>(51 диск + 9 почта)<BR><BR>и цены на СЫР (кое-как и хз-где СЫРозаписанное спид-трэш-метал-музло) тока растут<BR><BR>60 - это сейчас, через 10 лет будет 300-500 стоить...<BR><BR>студии волшебные с ушастиками именитыми не всем помогут - время ушло, а евген в угаре этого еще не понял - ну да и хуй с ним... спн уже это осознал, но есть кому еще гавно лить в уши... - пусть хавают...
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-zharkosha 17.08.2010 07:59:
-за дуреко в стекле надо машину продать. да и шансов купить кетай думаю что полно. вот сцыло посмеяцо: <A HREF="http://cgi.ebay.com/ws/eBayISAPI.dll?ViewItem&item=130409251211&ssPageName=STRK" TARGET="_blank">http://cgi.ebay.com/ws/eBayISAPI.dll?ViewItem&item=130409251211&ssPageName=STRK</A>:MEWAX:IT
 
 ### Нужна помощь в покупке CDs через eBay.
 
@@ -1665,11 +1515,6 @@ maidenvinyls 02.09.2010 15:30:
 
 stepa 05.09.2010 23:28:
 Хочу бабе своей доску новую купить.<BR>Просьба к постоянно заказывающим с E-bay, посмотреть этот лот, а точнее охарактеризовать продавца, в плане надежности.<BR><A HREF="http://cgi.ebay.com/SAVE-300-2009-BURTON-FEELGOOD-152-/360287700879?pt=Snowboarding&hash=item53e2d2078f" TARGET="_blank">http://cgi.ebay.com/SAVE-300-2009-BURTON-FEELGOOD-152-/360287700879?pt=Snowboarding&hash=item53e2d2078f</A><BR>Смотрю feedbackи продавца, как-то стремновато. У него всего на складе 2 вида товара, мало продал за все время и как-то все задешево.<BR>
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-urgammal pionjдr (99) 08.09.2010 03:32:
-продаётся тру говняшка. не могу сказать что мегакультовая т.к. новая,ну и вобще это спорный вопрос <BR>короче мембранная куртка арктис. нифига не промокает(реально) и не продувается (все горнолыжные экипировки и весь мильтек рядом не валялись, в штанах с такой же тканью без подстёжек всяких и термобелья при минус 15-20 спал на снегу)<A HREF="http://www.voentorg.ru/show_product.asp?item_id=262" TARGET="_blank">http://www.voentorg.ru/show_product.asp?item_id=262</A>   датский камуфляж.  размер м(вобще там можно ещё например флис толстый одеть размера 50-52 поэтому не совсем м) куртка новая, куплена в августе, прошла всего один переход через хардангервидду. не прокурена, не заблёвана, не пропахла костром, не запачкана тушёнкой, оленями и волками не погрызена,песни типа милая моя солнышко лесное и как здорово что все мы здесь сегодня собрались в ней не пелись и не слушались. просто всё таки флектарн и сплинтертарн всех уделывают(даже новомодный мультикам) поэтому хочу себе другой цвет 
 
 ### THE VISION BLEAK в Москве, 5 февраля 2011
 
@@ -1716,20 +1561,10 @@ Appendics 23.09.2010 21:10:
 promoter 25.09.2010 00:25:
 Спрашивали фото с Глобал Иста...<BR>Никто так и не дал...<BR><A HREF="http://piligrim-rock.ru/ru/foto/item2198" TARGET="_blank">http://piligrim-rock.ru/ru/foto/item2198</A><BR><BR><BR>Особенно интересна вот эта... Как раньше говорили... стычка города с деревней... Тут же стычка христиан с сатанистами...<BR><A HREF="http://imageshost.ru/photo/44740/id155734.html" TARGET="_blank">http://imageshost.ru/photo/44740/id155734.html</A>
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-fixedk 27.09.2010 07:33:
- Non Serviam:(23.09.2010 01:44)     <BR>в коллекцию фетишисту требуются синглы/ep Theatre Of Tragedy.<BR><BR>специально для фетишистов есть сингол Тятра Cassandra<BR><BR><BR>а для совсем офанатевщих фетишистов, ибей предлагает<BR>ЕП Тятра со спермой другого офанатевшего фетишиста <BR>и всего то за 6 евро.<BR><A HREF="http://cgi.ebay.com/Theatre-of-Tragedy-A-Rose-for-the-Dead-CD-Germany-/250698103229?pt=B%C3%BCcher_Unterhaltung_Music_CDs&hash=item3a5ec579bd" TARGET="_blank">http://cgi.ebay.com/Theatre-of-Tragedy-A-Rose-for-the-Dead-CD-Germany-/250698103229?pt=B%C3%BCcher_Unterhaltung_Music_CDs&hash=item3a5ec579bd</A>
-
 ### Нужна помощь в покупке CDs через eBay.
 
 Docuch 28.09.2010 18:02:
 <A HREF="http://cgi.ebay.com/ws/eBayISAPI.dll?ViewItem&item=250700785398&category=164061&_trksid=p5197.c0.m619&_trkparms=1876%3A1" TARGET="_blank">http://cgi.ebay.com/ws/eBayISAPI.dll?ViewItem&item=250700785398&category=164061&_trksid=p5197.c0.m619&_trkparms=1876%3A1</A><BR>мега-лот от Мегадетх
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-valentine7 04.10.2010 15:01:
-Tourniquet "stop the bleeding" 1990 orig first album Intense rec mint!-1200<BR>Tyrranicide "God Save The Scene "org press1989 bad  taste rec 001!!-1600 mint<BR>Hexx "Morbid reality" cm orig 1991 usa-750(exellent)<BR>Aversion "Feet to be tide"1992 steamhammer orig!-800<BR>Helloween "Walls of jarico"+Judas+mini lp noise orig! no ifpi-600 mint<BR>S.D.I. -"Mistreated" hot blood orig 1989! mint-1100<BR>Swedish Erotica -"Swedish erotica"( 1 ый альбом) Japan with obi vjcp-11 mint-1600<BR>Pyogenesis "Sweet X-rates" nuclear blast 1994 orig!-700<BR>penance "Parallel corners" century media1994-300<BR>Lavatory "To Protest and to serve" massacre rec 1993 orig thrash hardcore-500<BR>F.U.C.T.-Dimensional Depth Perception 90 US Thrash Carlyle rec orig! Rare item near mint-800<BR>Meliah rage "Solitare solitude" cbs sony orig(дырка в штрихкоде задника)-600р<BR>TOXIN Cloned CD 1995 MEGA RARE (exellent) -1600<BR>Epidemic "Decameron" cd zorro50 orig press 1992-1300<BR>DESTRUCTION / Release From Agony + Eternal Devastation japan with obi near mint 25DN-90!!! first japan press!-2000r<BR>Oracle "As darkness reigns" japan cd TECX-25687no obi mint-700<BR>Cyclone temple "I hate therefore i am" japan press prig mint-1500<BR>DBC "Universe + Dead Brain Cells" CD (Rough Justice 89)-1300r mint<BR>Devastation "signs of life japan press 1989 orig-1200<BR>R.D.P. / Anarkophobia FEMS JAPAN CD 1991 thrash obi(exellent)-1300<BR>Forbidden "forbidden evil" 1988 rare japan press no obi-1300 mint<BR>PYRACANDA / Thorns CD 1992 thrash orig aaarrg-1300 mint<BR>anthrax "spreading the desease" 1985 90-press very good-350<BR>Kinetic dissent "I will fight no more forever" Roadracer orig!-800<BR>Venom "Prime evil" under one flag36 cd orig! mint-1000<BR>Apocrypha "the eye of time" roadrunner/shrapnel 1988-800<BR>Morgoth "The eternal fall/ressurection absurd" century media 1990 rare! cd84 9708-2<BR>релиз первых двух епишек89-90near mint-1000<BR>Hallows eve "monument" 1988 enigma/metal blade(1994)-800r(mint) old school us thrash<BR>PIECE DOGS "Exes for Eyes" 1992 energy rec-500<BR>Cromok-FOREVER IN TIME CD '93 MALAYSIA THRASH emi like new-400r<BR>Сromok "Yours Truly" emi1996-300r<BR>Vicious rumors "Welcome to the ball" 1991 japan obi! original press amcy-272-500р<BR>Mercyful fate "Melissa" Roadrunner rec orig!RR349898-800<BR><BR>tilitili06@rambler.ru<BR>
 
 ### Нужна помощь в покупке CDs через eBay.
 
@@ -1951,11 +1786,6 @@ Stas Hoffmann 02.05.2011 17:30:
 Шульц 03.05.2011 10:27:
 первопрессные схлетнулись, за 5 дней до окончания уже на 400 грин набидовали, причем даже отсутствие оби (самой главной составляющей) не пугает...<BR><BR><A HREF="http://cgi.ebay.com/ws/eBayISAPI.dll?ViewItem&item=330558564738" TARGET="_blank">http://cgi.ebay.com/ws/eBayISAPI.dll?ViewItem&item=330558564738</A>
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-КTT 04.05.2011 23:50:
-Non Serviam,<BR>что-то с этим Futurist`ом не так все просто<BR>вон, на ебэе за такой же диск, как у меня, бьются очень даже...<BR><A HREF="http://cgi.ebay.com/CORONER-GRIN-CD-/180661940209?pt=Music_CDs&hash=item2a104a6ff1" TARGET="_blank">http://cgi.ebay.com/CORONER-GRIN-CD-/180661940209?pt=Music_CDs&hash=item2a104a6ff1</A>
-
 ### Нужна помощь в покупке CDs через eBay.
 
 Appendics 07.05.2011 13:59:
@@ -2070,16 +1900,6 @@ Ed the Hunter-2 23.06.2011 10:24:
 
 Dimas 28.06.2011 13:55:
 на авито можно найти по бросовым ценам<BR>вот, например<BR><BR><A HREF="http://www.avito.ru/items/moskva_noutbuki_4yadra_acer5742_geforce420_4gig_hd500_31121627" TARGET="_blank">http://www.avito.ru/items/moskva_noutbuki_4yadra_acer5742_geforce420_4gig_hd500_31121627</A>
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Шульц 03.07.2011 13:30:
-Trizna "Out of Step"<BR><A HREF="http://cgi.ebay.com/ws/eBayISAPI.dll?ViewItem&item=130540576229" TARGET="_blank">http://cgi.ebay.com/ws/eBayISAPI.dll?ViewItem&item=130540576229</A>
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Шульц 03.07.2011 14:47:
-Совсем забыл :)<BR><A HREF="http://cgi.ebay.com/ws/eBayISAPI.dll?ViewItem&item=130540578051" TARGET="_blank">http://cgi.ebay.com/ws/eBayISAPI.dll?ViewItem&item=130540578051</A>
 
 ### Нужна помощь в покупке CDs через eBay.
 
@@ -2261,11 +2081,6 @@ Non Serviam 18.01.2012 22:02:
 123456 17.02.2012 23:03:
 Здесь моя песня есть - <A HREF="http://demyanck.ru/index.php?option=com_content&view=article&id=9&Itemid=15" TARGET="_blank">http://demyanck.ru/index.php?option=com_content&view=article&id=9&Itemid=15</A>
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Дофф 28.02.2012 09:53:
-никто не хочет прикупить лотик?<BR><A HREF="http://www.ebay.de/itm/AUFLOSUNG-SCHALLPLATTEN-CD-LADEN-E-BAY-SHOP-/170790804202?pt=B%C3%BCcher_Unterhaltung_Music_CDs&hash=item27c3ecdaea" TARGET="_blank">http://www.ebay.de/itm/AUFLOSUNG-SCHALLPLATTEN-CD-LADEN-E-BAY-SHOP-/170790804202?pt=B%C3%BCcher_Unterhaltung_Music_CDs&hash=item27c3ecdaea</A>
-
 ### SUICIDE COMMANDO и [X]-RX в Москве (16 марта)
 
 Headcrusher 04.03.2012 14:08:
@@ -2315,11 +2130,6 @@ Appendics 16.05.2012 17:25:
 
 State Oppression 21.05.2012 23:01:
 <A HREF="http://www.ebay.com/itm/Scorpions-Fly-To-The-Rainbow-Japan-R28P-1108-/251062487517?pt=Music_CDs&hash=item3a747d89dd&autorefresh=true" TARGET="_blank">http://www.ebay.com/itm/Scorpions-Fly-To-The-Rainbow-Japan-R28P-1108-/251062487517?pt=Music_CDs&hash=item3a747d89dd&autorefresh=true</A>#ht_767wt_1270<BR><BR><BR>а пиздец я лошара, до последних секунд думал, что уйдёт за полтос
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-kerrang 01.06.2012 12:30:
-QubbiQ: а зачем, когда есть такой вариант да еще и с наклеечкой<BR><BR><A HREF="http://www.ebay.com/itm/FAIR-WARNING-Go-1997-JAPAN-1ST-CD-w-OBI-3D-COVER-AOR-MHR-DREAMTIDE-SOUL-DOCTOR-/390424912108?pt=Music_CDs&hash=item5ae72360ec" TARGET="_blank">http://www.ebay.com/itm/FAIR-WARNING-Go-1997-JAPAN-1ST-CD-w-OBI-3D-COVER-AOR-MHR-DREAMTIDE-SOUL-DOCTOR-/390424912108?pt=Music_CDs&hash=item5ae72360ec</A>
 
 ### KREATOR Phantom Antichrist
 
@@ -2431,20 +2241,10 @@ State Oppression 16.01.2013 21:06:
 State Oppression 18.01.2013 17:29:
 стёпа, это оно?<BR><A HREF="http://www.ebay.de/itm/3-GENEPI-NATURE-SAVIO-4-RABATT-/271094952104?pt=Spirituosen&hash=item3f1e84b0a8" TARGET="_blank">http://www.ebay.de/itm/3-GENEPI-NATURE-SAVIO-4-RABATT-/271094952104?pt=Spirituosen&hash=item3f1e84b0a8</A>#ht_3393wt_809
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Гвоздев 06.02.2013 21:41:
-Господа, а кто-нибудь подобные "издания" покупал или может в коллекции имеет? <BR><BR>например:<BR> <BR><A HREF="http://www.ebay.com/itm/NIGHTWISH-CD-24-Carat-Gold-Disc-ONCE-/150909333794?pt=UK_Music_Music_Memorabilia_LE&hash=item2322e5b122" TARGET="_blank">http://www.ebay.com/itm/NIGHTWISH-CD-24-Carat-Gold-Disc-ONCE-/150909333794?pt=UK_Music_Music_Memorabilia_LE&hash=item2322e5b122</A><BR><BR><A HREF="http://www.ebay.com/itm/NIGHTWISH-CD-Platinum-Disc-DARK-PASSION-PLAY-/150490399562?pt=UK_Music_Music_Memorabilia_LE&hash=item2309ed434a" TARGET="_blank">http://www.ebay.com/itm/NIGHTWISH-CD-Platinum-Disc-DARK-PASSION-PLAY-/150490399562?pt=UK_Music_Music_Memorabilia_LE&hash=item2309ed434a</A><BR><BR>
-
 ### Нужна помощь в покупке CDs через eBay.
 
 Питер Грант фром Хевен 20.02.2013 13:13:
 это акки, с которых охотних за жопами ставки накручивает<BR><BR>aorheaven_korea <BR><BR><A HREF="http://cgi6.ebay.com/ws/eBayISAPI.dll?ViewBidItems&userid=aorheaven_korea&sort=9&page=&rows=0&completed=1&all=1" TARGET="_blank">http://cgi6.ebay.com/ws/eBayISAPI.dll?ViewBidItems&userid=aorheaven_korea&sort=9&page=&rows=0&completed=1&all=1</A> <BR><BR> metal72forever <BR><BR><A HREF="http://cgi6.ebay.com/ws/eBayISAPI.dll?ViewBidItems&userid=metal72forever&sort=9&page=&rows=0&completed=1&all=1" TARGET="_blank">http://cgi6.ebay.com/ws/eBayISAPI.dll?ViewBidItems&userid=metal72forever&sort=9&page=&rows=0&completed=1&all=1</A> <BR><BR> hysystem <BR><BR><A HREF="http://cgi6.ebay.com/ws/eBayISAPI.dll?ViewBidItems&userid=hysystem&sort=9&page=&rows=0&completed=1&all=1" TARGET="_blank">http://cgi6.ebay.com/ws/eBayISAPI.dll?ViewBidItems&userid=hysystem&sort=9&page=&rows=0&completed=1&all=1</A> <BR><BR>в прошлом еще были:<BR>darker_than_darkness <BR>www_diskheaven_co_kr <BR>happy-gloria<BR>arterror
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Гвоздев 27.02.2013 22:44:
-ОБНОВЛЕНИЕ. ПОНИЖЕНИЕ ЦЕН<BR><BR>ФИРМЕННЫЕ ДИСКИ (подороже)<BR><BR>ARCH ENEMY Khaos Legions (A5 digibook, Century Media) 700 руб.<BR>OPETH Live concert at the Royal Albert Hall (2dvd+3cd digipack, Roadrunner) 800 руб.<BR><BR>RAMMSTEIN Made in Germany (2xCD digipack, Universal) 650 руб.<BR><BR>DROPKICK MURPHYS Goind Out In Style (2xCD digipack) 650 руб.<BR><BR>ARCH ENEMY Root of All Evil (digibook, Century Media) 500 руб.<BR>NOSOUND A Sence of loss (CD+DVD digipack, Kscope Records) - 500 руб.<BR><BR>AGALLOCH The Mantle (Grau) 450 руб.<BR>CHILDREN OF BODOM Relentless Reckless Forever (CD+DVD digipack, Spinefarm) запечатан, 450 руб.<BR>KAMELOT Poetry for the poisoned (CD+DVD digibook, Ear Music) 450 руб.<BR>KORPIKLAANI Ukon Wacka (digipack, Nuclear Blast) 450 руб.<BR>FALKENBACH Tiurida (digipack, Napalm Records) 450 руб.<BR>ENSIFERUM Ensiferum (2008 edition, Spinefarm) 450 руб.<BR>ENSFEIRUM Irond (2008 edition, Spinefarm) 450 руб.<BR>BATTLELORE Doombound (CD+DVD digipack, Napalm Records) запечатан 450 руб.<BR>THEATRE OF TRAGEDY Last Curtain Call (DVD digipack) 450 руб.<BR>THE MOON AND THE NIGHT SPIRIT Osforras (A5 digibook) 450 руб.<BR>THE MOON AND THE NIGHT SPIRIT Rego Reitem (A5 digipack) 450 руб.<BR>OF THE WAND AND THE MOON Lucifer (Euphonious Records) запечатан, 450 руб.<BR>OF THE WAND AND THE MOON Emptiness, Emptiness, Emptiness (digipack, Euphonious Records) запечатан, 450 руб.<BR>OF THE WAND & THE MOON The Lone Descent (Heidrunar Myrkrunar) 400 руб.<BR><BR><BR>ФИРМЕННЫЕ ДИСКИ (подешевле)<BR><BR>OF THE WAND AND THE MOON Midnight Will (Heidrunar Myrkrunar) запечатан, 350 руб.<BR>FOO FIGHTERS Greatest Hits (CD+DVD digibook, Sony Records) 350 руб.<BR>СHILDREN OF BODOM Bloodrunk (CD+DVD digipack, Spinefarm) 300 руб.<BR>OOMPH Truth of Dare (The End Records / Sony DE) запечатан, 200 руб<BR>ISIS In The Absence of Truth (slipcase, Ipeacoc Recordings) 350 руб.<BR>I (Abbath, Armagedda, Ice Dale) Between Two Worlds (Nuclear Blast) 200 руб.<BR><BR><BR>Лицензионные диски / Отечественные команды<BR><BR>NIGHTWISH Once + Wish I had an angel (2xCD digipack, Fono) - 300 руб.<BR>DIMMU BORGIR Stormblast (CD+DVD digipack, Irond) - 250 руб.<BR>MOON FAR AWAY Minnesang (Shadowplay records) - 150 руб.<BR>PENITENT The Beauty of Pain (Irond) - 150 руб.<BR>BATTLELORE - Evernight (Irond) - 50 руб.<BR>BUTTERFLY TEMPLE - Тропою крови по воле Рода (Irond) - 50 руб.<BR>BUTTERFLY TEMPLE - За солнцем вслед (digibook, CD-Maximum) - 150 руб.<BR>DEMONOID Riders of Apocalypse (Irond) - 50 руб.<BR>ENSIFERUM Victory songs (Fono) - 50 руб.<BR>MOB RULES Savage Lands (CD-Maximum) - 50 руб.<BR>MOB RULES Temple of Two Suns (CD-Maximum) - 50 руб.<BR>SENTENCED Funeral Album (digipack, Fono) - 100 руб.<BR>THERION Live Gothic (2XCD digipack) - 100 руб.<BR>TENOCHTITLAN Chac och-ut (Metalism Records) - 50 руб.<BR>TENOCHTITLAN Tezcatl (Metalism Records) - 50 руб.<BR>TENOCHTITLAN Эпоха Пятого Солнца (Metalism Records) - 50 руб.<BR><BR>Связь: lepaca_burunduk@mail.ru<BR><BR>Территориально: Москва
 
 ### Нужна помощь в покупке CDs через eBay.
 
@@ -2516,11 +2316,6 @@ Stas Hoffmann 14.06.2013 10:01:
 Tarik67 30.06.2013 21:00:
 Ну и как вам:<BR><A HREF="http://www.ebay.de/itm/S-D-I-2-First-Press-CDs-Collection-Speed-Thrash-/221245134307?pt=B%C3%83%C2%BCcher_Unterhaltung_Music_CDs&hash=item33833cd5e3&autorefresh=true" TARGET="_blank">http://www.ebay.de/itm/S-D-I-2-First-Press-CDs-Collection-Speed-Thrash-/221245134307?pt=B%C3%83%C2%BCcher_Unterhaltung_Music_CDs&hash=item33833cd5e3&autorefresh=true</A>
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Кукан Войны 05.07.2013 12:12:
-Покупай<BR><A HREF="http://www.ebay.com/itm/Impaled-Nazarene-Suomi-Finland-Perkele-ORG-94-Osmose-/400521966108?pt=Music_CDs&hash=item5d40f8321c" TARGET="_blank">http://www.ebay.com/itm/Impaled-Nazarene-Suomi-Finland-Perkele-ORG-94-Osmose-/400521966108?pt=Music_CDs&hash=item5d40f8321c</A>
-
 ### ВИНИЛ - хочу всё знать
 
 maidenvinyl 07.07.2013 17:12:
@@ -2550,11 +2345,6 @@ Tarik67 28.07.2013 07:53:
 
 tem1979версия 3.0 17.08.2013 14:37:
 To tich666:Какой нах каркас, какие бля рецензии, ты это совсем того, тебе в каждом тексте мерещатся моя писанина.<BR>Я вообще к каркасу довольно таки спокойно отношусь, даже ни одного альбома нет ни  на сд ни на виниле, Вот решил переиздание хеартворк заказать, недавно. Новый альбом пару раз прослушал не догнал пока я его.<BR>Тем более куда мне рецензии писать то.<BR><BR><BR>А по каверам сейчас только ленивые группы с подачи лейблов не записывают кавера,они идут либо как бонусы, либо как самостоятельные релизы.<BR><BR>У Dying Fetus -в 2011 вышел  отличный History Repeats...<BR>1. Fade Into Obscurity (Dehumanized cover)<BR> 2. Unchallenged Hate (Napalm Death cover)<BR> 3. Gorehog (Broken Hope cover)<BR> 4. Rohypnol<BR> 5. Unleashed Upon Mankind (Bolt Thrower cover)<BR> 6. Twisted Truth (Pestilence cover)<BR> 7. Born In A Casket (Cannibal Corpse cover)<BR><BR><BR>Evocation - совсем скоро выпустит Excised And Anatomised EP(2013)<BR><A HREF="http://www.cmdistro.de/Item/Evocation_-_Excised_And_Anatomised_EP_-white_LP-/1581" TARGET="_blank">http://www.cmdistro.de/Item/Evocation_-_Excised_And_Anatomised_EP_-white_LP-/1581</A><BR><BR>Side 1 <BR>01. ... For Victory ( Bolt Thrower) (04:38) <BR> 02. corporal Jigsore Quandary (Carcass) (05:30) <BR> 03. you Suffer (Napalm Death) (00:04) <BR><BR><BR>Side 2 <BR>01. enigma (Edge Of Sanity) (06:50) <BR> 02. terminal Spirit Disease (At The Gates) (03:45)<BR> <BR>Думаю неплохой диск будет.<BR><BR><BR><BR>
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-КTT 18.09.2013 19:54:
-Без всяких ifpi, ажно две штуки. Бери - не хочу<BR><BR><A HREF="http://www.ebay.co.uk/itm/AGRESSOR-Toward-s-beyond-CD-ORG-1st-Press-Black-Mark-1992-Loudblast-witches-/190737154753?pt=Music_CDs&hash=item2c68d202c1" TARGET="_blank">http://www.ebay.co.uk/itm/AGRESSOR-Toward-s-beyond-CD-ORG-1st-Press-Black-Mark-1992-Loudblast-witches-/190737154753?pt=Music_CDs&hash=item2c68d202c1</A><BR><BR><A HREF="http://www.ebay.co.uk/itm/AGRESSOR-Towards-beyond-ORG-cd-Black-Mark-92-Loudblast-/360727758459?pt=Music_CDs&hash=item53fd0cc67b" TARGET="_blank">http://www.ebay.co.uk/itm/AGRESSOR-Towards-beyond-ORG-cd-Black-Mark-92-Loudblast-/360727758459?pt=Music_CDs&hash=item53fd0cc67b</A>
 
 ### BLACK COUNTESS &quot;Feetish&quot; на виниле
 
@@ -2736,31 +2526,6 @@ tich666 14.02.2015 01:18:
 State Oppression 24.02.2015 08:19:
 Смотрите, какой чудесный лот www.ebay.com/itm/SDL-Steam-Punk-military-hat-with-handmade-optical-goggles-with-green-lens-/300774773026?pt=LH_DefaultDomain_3&hash=item460792d122<BR><BR>алекс_виват прислал заценить
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Гвоздев 13.03.2015 15:36:
-Стейт, а какой звук у этих дисков?<BR><A HREF="http://www.discogs.com/sell/item/224206182" TARGET="_blank">http://www.discogs.com/sell/item/224206182</A><BR><A HREF="http://www.discogs.com/sell/item/224206072" TARGET="_blank">http://www.discogs.com/sell/item/224206072</A>
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-kerrang 13.03.2015 17:42:
-ну тогда почем:<BR><A HREF="http://www.discogs.com/sell/item/220857277" TARGET="_blank">http://www.discogs.com/sell/item/220857277</A><BR><A HREF="http://www.discogs.com/sell/item/220704007" TARGET="_blank">http://www.discogs.com/sell/item/220704007</A><BR><A HREF="http://www.discogs.com/sell/item/224204608" TARGET="_blank">http://www.discogs.com/sell/item/224204608</A>
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Vlad 13.03.2015 20:59:
-А это добро почем:<BR><BR><A HREF="http://www.discogs.com/sell/item/224213817" TARGET="_blank">http://www.discogs.com/sell/item/224213817</A><BR><A HREF="http://www.discogs.com/sell/item/224213673" TARGET="_blank">http://www.discogs.com/sell/item/224213673</A><BR><A HREF="http://www.discogs.com/sell/item/224203692" TARGET="_blank">http://www.discogs.com/sell/item/224203692</A><BR><BR>- ?<BR>
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-kerrang 20.03.2015 15:54:
-вот, как бы, показатель цен у нас и за бугром: вот этот альбомчек у Стейта стоит 1200, на ябее по байнау он лежит за 900 из Жапана (ну курс понятен я думаю). понятно, что доставка, но палюбе дешевле<BR><BR><A HREF="http://www.discogs.com/sell/item/220857277" TARGET="_blank">http://www.discogs.com/sell/item/220857277</A><BR><BR>
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-kerrang 05.04.2015 15:37:
-вот так, блиа, православно, по-русски надо барыжить. а я еще на Стейта ругался немножка :)<BR><BR><A HREF="http://www.ebay.com/itm/King-Diamond-Mercyful-Fate-Them-BRAND-NEW-SEALED-Japan-CD-Press-APCY-8027-/181694150677?pt=LH_DefaultDomain_0&hash=item2a4dd0b815" TARGET="_blank">http://www.ebay.com/itm/King-Diamond-Mercyful-Fate-Them-BRAND-NEW-SEALED-Japan-CD-Press-APCY-8027-/181694150677?pt=LH_DefaultDomain_0&hash=item2a4dd0b815</A>
-
 ### 11.04.2015 ROSSOMAHAAR -  Единственный (и неповторимый) концерт!  
 
 Hopolainen 11.04.2015 14:45:
@@ -2786,11 +2551,6 @@ EDUCATED SCUM ищет вокалиста для формирования "жи�
 Appendics 26.02.2016 18:02:
 Я, конечно, понимаю мастдайские традиции - растекаться мыслью по древу, но топик-то про Стратов. Вернее, - их непринятие. Ну и пагер тут в тему будет, - нравится он, или нет. <BR>Я похож на Хруща  - Эдгай, - это и есть в павере высшая категория. Если знаком с их полной дискографией. Последние творения уже, конечно, бледноваты, но ранние, года до 2010-го, - от шедевральных, до просто крепких. Чисто Эдгай, - без всяких Авантазий. Тоби - просто гений, современный Бетховен. Оно и понятно, - он немец, а не американец. У него историческая музыкальная преемственность в крови. На подсознательном уровне.<BR>Гвоздев, - а что, с ебея в лом заказать? За запрашиваемую сумму можно взять классные издания 2012 года в хороших кейсах, например:<A HREF="http://www.ebay.com/itm/Intermission-Infinite-Stratovarius-Audio-CD-/141894846463?hash=item21099787ff" TARGET="_blank">http://www.ebay.com/itm/Intermission-Infinite-Stratovarius-Audio-CD-/141894846463?hash=item21099787ff</A>:g:LT0AAOSw--1Wsoys<BR>А так, конечно, цены-то подросли в связи с новыми курсами. У меня некоторые издания вообще тыс. по 25 уже стали ( из винила ). А по 10-15 - вообще куча, например тест-прессы Акцепта, начиная с 79 года. Тест вообще печатали штук по 10 всего, - для контроля и отладки перед печатью. Напримр :<BR><A HREF="http://s020.radikal.ru/i701/1602/f6/2f2028062ee0.jpg" TARGET="_blank">http://s020.radikal.ru/i701/1602/f6/2f2028062ee0.jpg</A><BR>Или ошибочная печать удовского винила ( сравнить дорожки дисков ), которых  если 2-3 штуки вообще есть в мире, то хорошо:<BR><A HREF="http://s020.radikal.ru/i712/1602/79/ad8a23b8bdac.jpg" TARGET="_blank">http://s020.radikal.ru/i712/1602/79/ad8a23b8bdac.jpg</A><BR>Сколько сейчас стоит, - даже не знаю.
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-valentine7 01.07.2016 10:02:
-Dissect "Swallow Swouming Mass" Cyber 1 PRESS NEAR MINT 3500r такой https://www.discogs.com/sell/item/338813843<BR>Tankard - chemical invasion 1988 CD ORIGINAL NOISE NO IFPI! 1200r<BR>Mezzrow 1990 Then came the killing Active 1 PRESS! RARE! CD ATV 11 3500r<BR>PESTILENCE "Testimony of the ancients"cd Roadrunner 91 USA 1 PRESS! 2100r<BR>POSSESSED "Seven churches" ORG cd Roadracer 90 Price Killers RARE! NM 2400r<BR>OVERDOSE "Circus of death"cd Cogumelo 1992 1PRESS MEGARARE! BRAZILIAN THRASH! MATRIX STDP-078788 1 6500r
-
 ### METALLICA
 
 Appendics 11.10.2016 15:19:
@@ -2801,20 +2561,10 @@ Appendics 11.10.2016 15:19:
 Soulside 10.11.2016 07:17:
 Пора заказывать винил!!!<BR><A HREF="http://www.cmdistro.de/Item/Dark_Tranquillity_-_Atoma_-Gatefold_transp-_red_LP-CD-/2844" TARGET="_blank">http://www.cmdistro.de/Item/Dark_Tranquillity_-_Atoma_-Gatefold_transp-_red_LP-CD-/2844</A>
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-State Oppression 16.11.2016 09:03:
-Ноныч. <BR>Меня кто-то с полгода назад всерьёз спрашивал тут, то ли Фгриндыч, то ли Керранг, то ли Дм, почему я такой отмороженный и продаю вот это<BR><BR><A HREF="http://www.discogs.com/sell/item/224213000" TARGET="_blank">http://www.discogs.com/sell/item/224213000</A><BR><BR>за 69 с оффером, в то время, как он видит <B>этот Мегадет</B><BR><BR><A HREF="http://www.discogs.com/Megadeth-So-Far-So-Good-So-What/release/665821" TARGET="_blank">http://www.discogs.com/Megadeth-So-Far-So-Good-So-What/release/665821</A><BR><BR>за 5 долларов в минте.<BR><BR>Повторюсь, спрашивал без подъёба, он действительно не понимал, почему я так поступаю.<BR><BR>Поэтому тут я стараюсь очень аккуратно и ненавязчиво объяснять.<BR><BR>)))<BR><BR>
-
 ### ЭПИДЕМИЯ - Непрочность надежд (Лаптев/Мелисов/Боров) 
 
 Stas Hoffmann 27.01.2017 23:08:
 &gt;Ав! Ав!<BR><BR>это овервойс, или как там - намеренное искажение трека голосовыми вставками, для защиты от пиратства<BR><BR>Я тут давече узнал, что Задора был менеджером Арии. Мир полон открытий...<BR><BR>зы. О, как: <A HREF="http://laptevepidemia.ru/index.php/ct-menu-item-5" TARGET="_blank">http://laptevepidemia.ru/index.php/ct-menu-item-5</A><BR><BR>Блин, туда бы Самосвата или Окунева, и будет почти как REFUGE!
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-valentine7 06.02.2017 08:38:
-Nokturnal Mortum &#8206;– Нехристь 1999/2004 ORIANA MUSIC ORIG PRESS 900r<BR>https://www.discogs.com/sell/item/375746457<BR><BR>Аркона &#8206;– Возрождение 2004 Sound Age Productions &#8206;– SAPCD 027 300р
 
 ### Тенденции рынков
 

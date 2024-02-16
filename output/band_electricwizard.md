@@ -91,11 +91,6 @@ Broken 10.09.2010 14:39:
 Bloodred 23.10.2010 02:45:
 Electric Wizard<BR>Triptykon<BR>Star One<BR>и мож таки Авантазию с Киске и Хансеном кто довезёт?...
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-thule666 29.01.2012 19:03:
-ДОБАВЛЕНО!!!<BR><BR>Классика стоунер дума!!!<BR>DLP Electric Wizard - Witchcult Today (Rise Above Records) двойной черный винил.<BR>DLP Electric Wizard - Black Masses (Rise Above Records) двойной прозрачный винил.<BR>DLP Electric Wizard - Dopethrone (Rise Above Records) двойной салатовый винил.<BR>DLP Electric Wizard - Come My Fanatics... (Rise Above Records) двойной черный винил.<BR><BR><BR>LP Legion of Doom - For Those of the Blood (Zyklon-B) белый винил. лимит 500 копий.<BR>DLP Funeral Mist - Maranatha (Norma Evangelium Diaboli) думаю рекомендации тут излишни.<BR>DLP Secrets of the Moon - Antithesis (Lupus Lounge) двойной черный винил.<BR>LP Enslaved - Yggdrasill (Peaceville) свежее переиздание культового демо.<BR>LP Clandestine Blaze - Falling Monuments (Northern Heritage)<BR>LP Frostkrieg - Majest&#228;tik Eines Kalten Elements (Art of Propaganda)<BR>LP Grey Waters - Below the Ever Setting Sun (Eisenwald Tonschmiede)<BR>LP Stabat Mater - Stabat Mater (Northern Heritage)<BR>LP Inner Helvete - Total Bloodshedding Devastation (Ordealis)
-
 ### JUCIFER (С.Ш.А.) в Москве (9 июня 2012 г.)
 
 Headcrusher 02.06.2012 12:37:

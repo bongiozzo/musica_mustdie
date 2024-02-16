@@ -31,13 +31,3 @@ Arcturus - Shipwrecked in Oslo<BR>Emperor - Emperial Live Ceremony<BR>Ancient Ri
 Георгинушко the true 18.10.2007 10:59:
 Arcturus "Shipwrecked in Oslo" очень понравился. Театрально и гротескно))<BR>Сексуальный Арктурус))))))))) (с)<BR>про Дарк Фьюнерал лучше промолчу. бэ
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-stepa 09.06.2009 12:24:
-DVD TSJUDER - Norwegian Apocalypse (Oslo vs Sandness) 350<BR>DVD ARCTURUS - Shipwrecked in Oslo 350<BR>Тоже бразильские издания.<BR>DVD HARD AS IRON-5 Фестиваль немецкого pagan 2.5 часа. made in Germany 350 руб. 
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Non Serviam 19.03.2017 15:31:
-Лицензия / отечественное / СНГ	<BR><BR>Arcturus	Shipwrecked In Oslo DVD<BR>Blind Passengers	Timemachine<BR>Crowbar	Equilibrium<BR>Crowbar	Lifesblood For The Downtrodden <BR>Crowbar	Odd Fellows Rest<BR>Deos	Fortitude.Pain.Suffering (digi)<BR>Elvira Madigan	Blackarts<BR>Forever Slave	Alice's Inferno<BR>Grayscale	When The Ghosts Are Gone<BR>Immortal	Sons Of Northern Darkness CD/DVD (digi)<BR>In Lacrimaes Et Dolor	Beyond The Grave (digi)<BR>Jack Frost	Gloom Rock Asylum<BR>Mastodon	Crack The Skye<BR>Megaherz	Himmelfahrt<BR>Nokturnal Mortum	Мировоззрение<BR>Parzival	Anathema Maranatha<BR>Pazuzu	Awaken The Dragon<BR>Season's End	The Failing Light<BR>Sieben	Desire Rite<BR>Sieben	High Broad Field<BR>S&#243;lstafir	Til Valhallar<BR>S&#243;lstafir	&#205; Bl&#243;&#240;i Og Anda<BR>sToa	Silmand<BR>Tanzwut	Live<BR>Thanateros	Circle Of Life<BR>На Север	Корни Льдов<BR>Antimatter	The Last Laugh<BR>Dorn	Spiegel Der Unendlichkeit /promo<BR>Tanzwut	Labyrinth Der Sinne<BR>White Owl	Pepper<BR>Эпидемия	Жизнь В Сумерках<BR>Aerosmith	Honkin' On Bobo<BR>David Guetta	Guetta Blaster<BR>&#197;квариум	Беспечный Русский Бродяга<BR>Finntroll	Jaktens Tid<BR>Dimmu Borgir	Death Cult Armageddon<BR>Forgive Me Not	Heavenside<BR>Guano Apes	Planet Of The Apes<BR>Guano Apes	Walking On A Thin Line<BR>Silk Percussion	Drum Circle Vol.1<BR>Velvet Revolver	Contraband<BR>Агата Кристи	Триллер Часть 1<BR>Finntroll	Nattf&#246;dd<BR>Garbage	Bleed Like Me<BR>L'&#194;me Immortelle	Als Die Liebe Starb<BR>Marilyn Manson	The Golden Age Of Grotesque<BR>Therion	Lemuria<BR>Lacrimosa	Echos / Durch Nacht Und Flut<BR>Tanzwut	Ihr Wolltet Spass<BR>Nightwish	Once<BR>Би-2	Бесполая И Грустная Любовь 2CD digi<BR>Chiron	Bleed<BR>
-

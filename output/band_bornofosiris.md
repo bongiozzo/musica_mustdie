@@ -12,16 +12,6 @@
 
 ## Упоминания
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-НиколайНС 05.05.2010 21:52:
-Диски SUMERIAN RECORDS!<BR><BR>After the Burial - Rareform - Reissue (melodic death/deathcore).<BR>Born of Osiris - A higher Place (progressive death/metalcore).<BR>Born of Osiris - The New Reign (progressive death/metalcore).<BR>Circle of Contempt - Artifacts in Motion (melodic avangarde death/metalcore + ускоренный psychodelic trip-hop!!! Поправьте меня, если я не правильно определил).<BR>Enfold Darkness - Our Cursed Rapture (melodic death/black: как если бы в 1997 году In Flames сыграли что-то из Cradle of Filth 2003-2004 годов!).<BR>The Faceless - Akeldama (modern technical death/avangarde deathcore).<BR>The Faceless - Planetary Duality (modern technical death/avangarde deathcore).<BR>Upon a Burning Body - The World is Ours (melodic modern deathcore).<BR>Veil of Maya - The Common Man's Collapse (death metalcore).<BR>Veil of Maya - ID (death metalcore).<BR>
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-НиколайНС 16.06.2011 09:41:
-niknetl (пёс) rambler ((.)) ru<BR><BR>AFM Records:<BR><BR>UDO - Rev-Raptor (lim. digipack + bonus tracks).<BR>UDO - Rev-Raptor (lim. fanbox: digipack, ремень, пряжка и фляжка с лого).<BR><BR>Doro - Fear No Evil (lim. fanbox: digipack, "золотая" кисть прекрасной дамы - Доро в стеклянной коробке, сертификат). <BR>Mekong Delta - Lurking Fear (lim. CD+DVD digipack).<BR><BR>Elvenking - Red Silent Tides (picture vinyl).<BR><BR><BR>Candlelight USA:<BR><BR>Anaal Nathrakh - Passion.<BR>Ihsahn - After (special CD+DVD slipcase).<BR>Insomnium:<BR>- In the halls of Awaiting.<BR>- Since the Day All Came Down.<BR>- Above the Weeping World.<BR>- Across the Dark (limited CD+DVD, + 2 bonus tracks).<BR>The Wretched End - Ominous<BR><BR><BR>Season of Mist:<BR><BR>Aborym - Psychogrotesque (lim. digipack).<BR>Ava Inferi - Onyx (lim. digipack).<BR><BR><BR>Sumerian Records:<BR><BR>Born of Osiris - The Discovery.<BR>The Faceless:<BR>- Akeldama.<BR>- Planetary Duality (slipcase).<BR><BR><BR>Victory Records:<BR><BR>Between the Buried and Me:<BR>- Alaska.<BR>- Colours (slipcase).<BR>- The Great Misdirect (limited CD+DVD digipack).
-
 ### Музыкальные итоги уходящего 2015 года
 
 Ghast 02.01.2016 12:09:

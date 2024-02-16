@@ -15,16 +15,6 @@
 
 ## Упоминания
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-НиколайНС 03.07.2010 22:59:
-niknetl (тут) рамблер.ру<BR><BR>Понеслась:<BR><BR>Aeon - Path of Fire (Metal blade).<BR>Brain Drill - Quantum Catastrophe (digi, Metal Blade).<BR>Dark Fortress - Ylem (slipsleeve + bonus, Century Media).<BR>Exodus - The Atrocity Exhibition: Exhibit A (Ltd. Red Double Vinyl).<BR>Exodus - Bonded By Blood (ltd. deluxe edition, Century Media).<BR>Exodus - Pleasures Of The Flesh (ltd. deluxe edition, Century Media).<BR>Exodus - Fabulous Disaster (ltd. deluxe edition, Century Media).<BR>Exodus - Exhibit B: The Human Condition (lim. slipcase, exclusive US bonus track, NB USA). <BR>Heaven Shall Burn - Invictus (ltd CD/DVD box, Century Media).<BR>Istapp - Blekinge (Metal Blade).<BR>Kataklysm - Prevail - Deluxe Tour Edition (lim. to 1000 copies 2CD/DVD, NB USA).<BR>Kataklysm - Prevail (Gatefold Picture Disc Vinyl).<BR>Kivimetsan Druidi - Betrayal, Justice, Revenge (lim. digi + 2 bonus, Century Media).<BR>Lightning Swords Of Death - The Extra Dimensional Wound (Metal Blade).<BR>Nachtmystium - Addicts: Black Meddle Part II (Century USA).<BR>Nile - Those Whom The Gods Detest (lim. sand colored 2LP + CD).<BR>Skyforger - Kurbads (digi, Metal Blade).<BR>Whitechapel - A New Era of Corruption (digi, Metal Blade).<BR><BR>
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-НиколайНС 14.10.2010 22:41:
-Asphyx – Live Death Doom (DVD/ 2CD Digi Slipsleeve, Century Media).<BR>Brain Drill – Quantum Catastrophe (digifile, Metal Blade USA).<BR>Decrepit Birth – Polarity (digipack + 1 bonus, Nuclear Blast USA).<BR>Exodus – Bonded By Blood (limited deluxe slipcase edition, Century Media).<BR>Exodus – Fabulous Disaster (limited deluxe slipcase edition, Century Media).<BR>Exodus – Pleasures Of The Flesh (limited deluxe slipcase edition, Century Media).<BR>Insidious Disease – Shadowcast (All Stars Death Metal Act: Dimmu Borgir, Old Man's Child, Napalm Death, Morgoth, ex-Nile; limited edition + bonus).<BR>Manegarm – Vargstenen (limited digibook, Blacklodge).<BR>Nachtmystium - Assassins: Black Meddle Pt. 1 (Century USA).<BR>Obtenebris – Dust of Time (for fans of Amon Amarth).<BR>Whitechapel – A New Era of Corruption (digifile, Metal Blade USA).<BR>
-
 ### Новинки 2013
 
 ScapeGod 02.06.2013 15:34:

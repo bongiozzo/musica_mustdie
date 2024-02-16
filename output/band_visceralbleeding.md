@@ -33,16 +33,6 @@ VM 09.11.2005 23:54:
 VM 10.11.2005 21:04:
 Да, Morgoth  - немцы, точняк. Это я ошибся. Ну, все равно мне только 'Cursed' нравится. <BR>Также нельзя не согласиться с тем, что почти все перечисленные группы  - старье и не брутал. <BR><BR>AEON - это не "гавно с элементами Фир Фэктри", это скандинавский DEICIDE. <BR>Visceral Bleeding и Exmortem не яркие группы, точно. Вторые вообще малость бесят. <BR>А вот SOILS OF FATE очень даже ничего!
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-НиколайНС 02.10.2010 19:37:
-niknetl (где?) rambler () ru<BR><BR>Willowtip:<BR>Fleshgod Apocalypse - Mafia (ep).<BR>Defeated Sanity - Chapters of Repugnance.<BR>The Year of our Lord - Dead to You (2CD).<BR>Visceral Bleeding - Remnants Revieved.<BR>Visceral Bleeding - Transcend into Ferocity.<BR>Prostitute Disfigurement - Left in Grisly Fashion.<BR>Gorod - Process of a New Decline.<BR>Fleshgod Apocalypse - Oracles.<BR>Ulcerate - Everything is Fire.<BR>As Eden Burns - The Great Celestial Delusion.<BR>Prostitute Disfigurement - Descendants of Depravity (CD+DVD).<BR>Ulcerate - Of Fracture and Failure.<BR>Spawn of Possession - Noctambulant.<BR>Disavowed - Stagnated Existence.<BR>Odious Mortem - Cryptic Implosion.<BR>Gorod - Leading Vision.<BR>Neuraxis - Trilateral Progression.<BR>Necrophagist - Onset of Putrefaction.<BR>Commit Suicide - Human Larvae.<BR>
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-в чем сила брат? 18.05.2011 12:13:
-самый вменяемый продавец который мне попадался в говняшках за все время -это дима который продавал родные диски по 150 рублей,не парясь первопресс не первопрес ,дигипак,али какой редкий диск.<BR>у него я купил  :<BR>SCEPTIC	2001	Pathetic Being<BR>DOMINA NOCTIS	2009	Second Rose<BR>KAPTAIN SUN	2003	Rainbowride<BR>INTESTINE BAALISM	2003	Banquet In The Darkness<BR>DISARMONIA MUNDI	2001	Nebularium<BR>ROTTING CHRIST	1995	Non Serviam<BR>VISCERAL BLEEDING	2005	Remnants Revived (Remnants of Deprivation remastered, videos, 2005)<BR>VISCERAL BLEEDING	2004	Transcend Into Ferocity<BR>YATTERING	2004	Live Extermination<BR>LUNATIC GODS	2001	<BR>LUNATIC GODS	1998	Sitting By The Fire<BR>HOUWITSER	1999	Death But Not Buried<BR>HATESPHERE	2004	Ballet Of The Bride<BR>VARIOUS ARTISTS	2002	The Metal Zeppelin - The Music Remains The Same<BR>SCULPTURED	1998	The Spear Of The Lily Is Aureoled<BR>WASTEFALL	2004	Soulrain 21 (2 CD)<BR>BLIND DOG	2000	The Last Adventures Of Captain Dog<BR>SACRILEGE	2005	Lost In The Beauty You Slay (remastered 1996)<BR>SACRILEGE	2005	The Fifth Season (remastered 1997)<BR>не говоря уже о том что все эти Сд максимум , фйронд, фоно -он продает по 50рублей.<BR>вот это я понимаю когда  продажа не идет ради принципа наебать,нажится,втюхать или еще чего в этом плане.<BR>дима тебе привет!!!!
-
 ### Нужна помощь в покупке CDs через eBay.
 
 stepa 15.04.2014 23:22:

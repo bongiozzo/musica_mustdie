@@ -91,11 +91,6 @@ Hopolainen 13.04.2010 11:57:
 Брючный Змей 20.05.2007 18:11:
 двойной концертный альбом Swans страшный, Jarboe 'The Conduit', совместный Neurosis & Jarboe тоже невеселый...<BR><BR>Bohren & Der Club Of Gore<BR><BR>некоторые вещи Andrew Liles<BR><BR>Sunn O))) детская хуета какая-то...
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Sleeper 16.02.2009 02:53:
-Куплю фирму в Москве на этой неделе:<BR><BR>Bohren & der Club of Gore - Sunset Mission 2005<BR>Bohren & der Club of Gore - Black Earth 2002<BR>Canvas Solaris - Cortical Tectonics 2007<BR>Disillusion - Gloria 2005<BR>Giant Squid - Metridium Fields 2006<BR>Green Carnation - Light of Day, Day of Darkness 2003<BR>Kayo Dot - Choirs of the Eye 2003<BR>Kayo Dot - Dowsing Anemone with Copper Tongue 2006<BR>Riverside - Out of Myself 2003<BR>Sieges Even - Sophisticated 1995<BR>Spiral Architect - A Sceptic's Universe 2000<BR>Twisted into Form - Then Comes Affliction to Awaken the Dreamer 2006<BR>Virus - Carheart 2003<BR>Zero Hour - The Towers of Avarice 2001<BR><BR>sleeperrr на рамблер.ру
-
 ### Джаз. С чего начать
 
 Soulside 16.12.2009 10:19:

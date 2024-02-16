@@ -32,11 +32,6 @@ Soubbterranean 25.12.2010 15:12:
 Frithz 27.12.2010 03:53:
 Ну долго не думая - The Shadow Theory и Mekong Delta последний...<BR><BR>офтоп: клон Диссекшн - Thulcandra - кал полный и обжалованию не подлежит
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Non Serviam 03.05.2011 03:18:
-<A HREF="http://www.darkside.ru/forum/viewtopic.php?f=7&t=12596" TARGET="_blank"><B><U>фирменные диски, обновлено</U></B></A><BR><BR>+<BR>thulcandra - fallen angel's dominion (napalm) old-school death black for dissection fans запечатан 550<BR>stahlmann - stahlmann (digi) (afm) industrial (megaherz-like) запечатан 550<BR>fen - the malediction fields (digi) (code666) '09 atmospheric black, ambient influenced -650 запечатан<BR>iskald - shades of misery (digi) (indie) '06 black, rare norwegian digi version -700 запечатан
-
 ### Новинки 2011
 
 Dimas 05.10.2011 20:19:
@@ -51,11 +46,6 @@ Thulcandra ужасные плагиатчики Dissection! структуры 
 
 Seducer 08.10.2011 01:09:
 Мне в Thulcandra не хватает хуковых мелодий, что были у Dissection. По форме и настроению все четко соблюдено, но хоть ты тресни, "залипающих", подобно The Somberlain, Where Dead Angels Lie или Night's Blood треков у них, увы, не наблюдается...
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Non Serviam 04.08.2012 16:44:
-Neun Welten	Valg (digi)	Auerbach	2004	400<BR>Neun welten	Vergessene Pfade (promo)	Auerbach	2006	30<BR>Neun Welten	Dammerung - Die Destrunken Demos (digi)	Auerbach	2009	400<BR>Nightwish	Angels Fall First (w/bonus track)	Spinefarm	1997/2002	350<BR>Nightwish	Century Child	Spinefarm	2002	350<BR>Nightwish	Tales From The Elvenpath	Drakkar	2004	350<BR>Nightwish	Amaranth 2СD (digisleeve single)	Nuclear Blast	2007	200<BR>Odhinn	From A Splendourus Battle EP	Napalm	1998	250<BR>Odroerir	G&#246;tterlieder	Einheit	2005	250<BR>Of The Wand & The Moon	Emptiness:Emptiness:Emptiness	Euphonious	2001	350<BR>Ophthalamia	A Journey In Darkness	Avantgarde	1994/200?	450<BR>Penitent	Reflections Of Past Memories	Counter Attack	2001	50<BR>Red Harvest	New World Rage Music	Nocturnal Art	2001	100<BR>Satyricon	Intermezzo II EP	Nuclear Blast	1999	300<BR>SaraLee	Darkness Between	Firebox	2006	250<BR>Sentenced	North From Here	Century	1993	600<BR>Seven Seraphim	Believe In Angels (digi)	Scarlet	2003	100<BR>Shrine & Lingua Fungi	Wander / Strange Growths (LTD 500, digi)	Corvus	2008	150<BR>Shrine	The Final Asylum (digi)	Corvus	2006	150<BR>SIG:AR:TYR	Beyond The North Winds	Morbid Winter	2008	150<BR>Sleipnir	Ein Teil Von Mir	PC	2002	150<BR>Soulsearch	Gwynedd: The Ethnic Truth	Serenades	1997	600<BR>Soulsearch	Abred vs Annwn: Behind The Archaic Alliance	Serenades	1998	600<BR>Stahlmann	Stahlmann (digi)	AFM	2010	400<BR>Stigmathe&#239;st	It All Ends Today	Euphonious	1999	400<BR>Stream Of Passion	Embrace The Storm	Inside Out	2005	300<BR>Subway To Sally	Schrei! (digi)	BMG Ariola	2000	300<BR>Subway To Sally	Sieben (single)	Nuclear Blast	2005	150<BR>Surturs Lohe	Wo Einst Elfen Tanzten	Christhunt	2001	250<BR>The Bronx Casket Co	The Bronx Casket Co (digi)	Massacre	1999	250<BR>The Crest	Vain City Chronicles (promo)	Season Of Mist	2005	30<BR>The Embraced	In My Dreams... I Am Armageddon	Aftermath	1998	300<BR>The Foreshadowing	Oionos (digi)	Cyclone Empire	2010	400<BR>Theatre Of Tragedy 	Closure:Live (digibook)	Massacre	2001	450<BR>Thromdarr	NorthStorm Arrives	Solistitium	2000	200<BR>Thulcandra	Fallen Angel's Dominion	Napalm	2010	300<BR>Tiamat	Cold Seed (digi single)	Century	1997	250<BR>Tiamat	Prey (digi)	Century	2003	400<BR>Tiamat	Commandments - An Anthology	Century, US	2007	250<BR>To/Die/For	Epilogue	Spinefarm	2001	400<BR>To/Die/For	IV (Japan)	Wood Bell	2005	400<BR>Tristania	Rubicon (digi)	Napalm	2010	350<BR>Tronus Abyss	The King Of Angels In The Abyss	Pagan Moon	1997	100<BR>Tsjuder	Kill For Satan	Drakkar	2000/2005	300<BR>Urgehal	Rise Of The Monument	Folter	2006	300<BR>V/A	Beauty In Darkness Vol.1 (digi)	Nuclear Blast	1996	200<BR>V/A	Beauty In Darkness Vol.3 (digi)	Nuclear Blast	1998	200<BR>Vampiria	Wicked Charm	American Line	2002	100<BR>Voyvoda	The Confederacy (digi)	Corvus	2009	100<BR>Vrani Volosa	Where The Heart Burns (digi)	Arma	2005	150<BR>Vulture Industries	The Dystopia Journals (digi)	Dark Essence	2007	250<BR>Wasara	Kivisade (single) 2tr	Firebox	2003	30<BR>Your Phobia	Unsettled (promo)	Casket	2007	30<BR><BR>eskhaton @ rambler . ru
 
 ### Новинки 2015
 

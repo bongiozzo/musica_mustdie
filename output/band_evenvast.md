@@ -33,38 +33,3 @@ thorax 20.04.2004 15:48:
 Vit Belov 22.12.2007 00:20:
 Social Revolver	Drive On	Prodisk	Death'n'Roll	300 руб<BR>Brief Respite	Uneveness	Prodisk	Melodic Death	300 руб<BR>Paroxysm	Scars of The Art	Prodisk	Death-metal	300 руб<BR>Ashes Of Eden	Thre human: Conditioned	Prodisk	Melodic Death	300 руб<BR>Spirit Of The Forest	A Brew Of Lightning	Prodisk	Melodic black	300 руб<BR>Fredrik Klingwall	Chronicles In Decay	Last Entertaiment	Neoclassic dark ambient	350 руб<BR>Dreamlike Horror	Delightful Suicides	Sleaszy Rider	Horror gothic	350 руб<BR>Ancient	Eerily Howling Winds	Sleaszy Rider	Black-metal	350 руб<BR>Ancient	Det Glemte Riker	Sleaszy Rider	Black-metal	350 руб<BR>Rain Paint	Disillusion Of Purity	My Kingdom Music	Gothic-metal	350 руб<BR>Even Vast	Teach Me How To Bleed	My Kingdom Music	Gothic-metal (женский вокал)	350 руб<BR>Sun Of Weakness, The	Rowpe Loil	My Kingdom Music	Gothic-metal	350 руб<BR>Shivan	When Wishes Sicken	My Kingdom Music	Gothic-metal	350 руб<BR>And Harmony Dies	Flames: Everywhere	My Kingdom Music	Gothic-black-metal	350 руб<BR>Oblivio	Dreams Are Distant Memories	My Kingdom Music	Gothic-metal	350 руб<BR>Orient Express	Illusion	My Kingdom Music	Gothic-metal	350 руб<BR>Wayd	Ghostwalk	Hrom	Techno-Death	300 руб<BR>Nothing	Prvopramen	Hrom	Рок на словацком языке	300 руб<BR>Lunatic Gods	Ante Portas	Hrom	Techno-Death	300 руб<BR>Lunatic Gods	Ante Portas	Hrom	Techno-Death (digi)	350 руб<BR>Gorguts	Live In Rotterdam	Prodisk	Death-grind (live)	300 руб<BR>Nourriture/Disionktation	split CD	Prodisk	Death-grind	300 руб<BR>Act Noir	Automatisme Psychique	My Kingdom Music	Gothic-rock (ANATHEMA type)	300 руб<BR>Flagellation	Incinerate Disintegrate	Last Entertaiment	Death-metal	250 руб<BR>Masacre	Cancer De Nuestros Dias	Obliteration	Death-metal	350 руб<BR>Dead Infection	Brain Corrosion	Obliteration	Death-grind	350 руб<BR>Mournful Congregation	The Monad Of Creation	Weird Truth	Funeral Doom-metal	350 руб<BR>Atarxie	Slow Transcending Agony	Weird Truth	Funeral Doom-metal	350 руб<BR>Indesinence	Neptunian	Weird Truth	Funeral Doom	350 руб<BR>Dysanchely	Nausea	Hrom	Melodic Death-metal	300 руб<BR>Rosa Antica	Seven	My Kingdom Music	Melodic Death-Doom-metal 	350 руб<BR>Intestinal Strangulation	Pathological	Prodisk	Death-grind	300 руб<BR>Machinery	Degeneration	Last Entertaiment	Metalcore	300 руб<BR>In Grey	Liyah	Last Entertaiment	Death-doom	300 руб<BR>Talamyus	…In this Days Of Violence	Prodisk	Viking-melodic-death-metal	300 руб<BR>In Grey	Sulphur Tears	Last Entertaiment	Death-doom-metal	300 руб<BR>Subcyde	Subcyde	Last Entertaiment	Death-thrash	300 руб<BR>Imindain	And The Living…	Weird Truth	Digi-pack	350 руб<BR>
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-kergarn 27.12.2009 12:17:
-Куплю продукцию лейбла My Kingdom Music:<BR>Even Vast 2007 - Teach Me How To Bleed<BR>Resonance Room 2009 - Unspoken<BR>The Void 2008 - Vision Of The Truth<BR>Oblivio 2007 - Dreams Are Distant Memories<BR>En Declin 2009 - Domino / Consequence
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-kergarn 29.12.2009 22:54:
-Куплю продукцию лейбла My Kingdom Music:<BR>Even Vast 2007 - Teach Me How To Bleed<BR>Resonance Room 2009 - Unspoken<BR>The Void 2008 - Vision Of The Truth<BR>Oblivio 2007 - Dreams Are Distant Memories<BR>En Declin 2009 - Domino / Consequence<BR><BR>Пока никто не откликнулся...<BR><BR>kergarn@mail.ru
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-kergarn 04.01.2010 13:47:
-Куплю продукцию лейбла My Kingdom Music:<BR>Even Vast 2007 - Teach Me How To Bleed<BR>Resonance Room 2009 - Unspoken<BR>The Void 2008 - Vision Of The Truth<BR>Oblivio 2007 - Dreams Are Distant Memories<BR>En Declin 2009 - Domino / Consequence<BR><BR>(только в Москве)<BR>kergarn@mail.ru 
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-kergarn 13.01.2010 15:28:
-И еще раз: Куплю продукцию лейбла My Kingdom Music:<BR>Even Vast 2007 - Teach Me How To Bleed<BR>Resonance Room 2009 - Unspoken<BR>The Void 2008 - Vision Of The Truth<BR>Oblivio 2007 - Dreams Are Distant Memories<BR>En Declin 2009 - Domino / Consequence<BR><BR>(только в Москве)<BR>kergarn@mail.ru
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-kergarn 22.01.2010 08:16:
-И еще раз: Куплю продукцию лейбла My Kingdom Music:<BR>Even Vast 2007 - Teach Me How To Bleed<BR>Resonance Room 2009 - Unspoken<BR>The Void 2008 - Vision Of The Truth<BR>Oblivio 2007 - Dreams Are Distant Memories<BR>En Declin 2009 - Domino / Consequence<BR><BR>(только в Москве)<BR>kergarn@mail.ru
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-kergarn 03.02.2010 23:08:
-Куплю диски:<BR>Even Vast 2007 - Teach Me How To Bleed<BR>Resonance Room 2009 - Unspoken<BR>Oblivio 2007 - Dreams Are Distant Memories<BR>En Declin 2009 - Domino / Consequence<BR><BR>Москва kergarn@mail.ru
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-kergarn 20.02.2010 09:28:
-Куплю продукцию лейбла My Kingdom Music:<BR><BR>Even Vast 2007 - Teach Me How To Bleed<BR>Resonance Room 2009 - Unspoken<BR>Oblivio 2007 - Dreams Are Distant Memories<BR>En Declin 2009 - Domino / Consequence<BR><BR>Москва. kergarn@mail.ru
-

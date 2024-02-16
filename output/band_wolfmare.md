@@ -47,11 +47,6 @@ Wolfsangel раньше назывались, но европейцы испуж
 stepa 03.06.2013 15:21:
 Питерская команда Wolfmare представляет свой новый альбом The Sacred Mushroom and the Crows.<BR>Издающий лейбл - SoundAge. Диски и футболки будут скоро доступны на сайте лейбла.<BR>https://www.youtube.com/watch?v=Um1DP-FrAVs
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-stepa 31.07.2013 19:05:
-CCP records немного. 250 стекло, 350 digi-pack<BR>писать soundage@mail.ru<BR>SPECTRAL	Gateway To Death	DIGI-CD	Thrashing Black Metal with raw melodies (2012)						<BR>STRYDEGOR	In The Shadow Of Remembrance	DIGI-CD	Viking Metal with epic melodies and driving rhythms (2012)						<BR>THORONDIR	Aus jenen Tagen	CD	New masterpiece f the german Viking/Pagan Metal band (2011)						<BR>ANGELI DI PIETRA	Conquest of Anthems	CD	The Power Folk metal band from Belgium strikes back for theit second attack!(2011)						<BR>LOST SHADE	R&#252;ckkehr nach Asgard	CD 	Viking Black Metal highlight from Germany!						<BR>WOLFMARE	Hand Of Glory	CD	Folk Metal masterpiece from Russia!						<BR>AURINGON HAUTA	Muinaisia muisteloita.. 	CD	Folk Metal masterpiece from Finland (former known as Solgrav)						<BR>WOODLAND 	Dreamality 	CD	Folk Metal masterpiece from Germany						<BR>SPECTRAL 	Evil Iron Kingdom 	CD	Viking Metal highlight of 2009!						<BR>ATRITAS	Celestial Decay	CD	Black Metal horde strikes back with their second attack!						<BR>STRYDEGOR	 Back On Ancient Traces	CD	Epic Pagan/Viking Metal from Germany						<BR>
-
 ### Folk Summer Fest 2015: Finntroll, Tanzwut, Dalriada, Аркона и др. (17,18,19 июля)
 
 rock house 08.07.2015 14:15:

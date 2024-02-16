@@ -10,11 +10,6 @@
 
 ## Упоминания
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Opasnoe Leto 18.09.2009 00:48:
-продаю фирму в Москве <BR><BR>antestor - the forsaken digi<BR>antestor - martyrium <BR>antestor - det tapte liv ltd edition black box<BR>pantokrator / sanctifica split cd<BR>pantokrator - songs of solomon<BR>pantokrator - blod<BR>pantokrator - aurum<BR>sanctifica - spirit of purity<BR>drottnar - spiritual battle<BR>drottnar - anamorphosis<BR>drottnar - wetlwerk digi<BR>frosthardr - makteslos<BR>natan - akeldama<BR>natan - nevel<BR>vaakevandring - vaakevandring<BR>slechtvalk - s/t<BR>crimson moonlight - veil of remembrance<BR><BR>opasnoeleto@yandex.ru
-
 ### Новинки 2016
 
 Dimas 24.12.2016 12:41:

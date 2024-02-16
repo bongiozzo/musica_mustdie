@@ -35,7 +35,7 @@ async function main() {
         conn = await pool.getConnection();
         const styles = await conn.query(styles_sql);
         if (!styles.length) return;
-        exec("rm output/*");
+//        exec("rm output/*");
         let style_albums = [];
         let index = 0;
         do {
@@ -57,7 +57,7 @@ async function main() {
             const albums = await conn.query(albums_sql, [band.band_id]);
             const relations = await conn.query(relations_sql, [band.band_id, band.band_id]);
             const topics = await conn.query(topics_sql, [band.band_id]);
-            const mentions = await conn.query(mentions_sql, [band.band_id, `%${band.band}%`]);
+            const mentions = band.band.length > 2 ? await conn.query(mentions_sql, [band.band_id, `%${band.band}%`]) : [];
             
             for (let index = 0; index < topics.length; index++) {
                 const element = topics[index];

@@ -58,60 +58,10 @@ secth 24.05.2004 23:57:
 e_zann 10.11.2005 18:26:
 Morgoth безусловно из Германии :)<BR>Я бы к перечисленным добавил финский DEMILICH - Nespithe с выдающимся для 1993 года гроулом, датский ILLDISPOSED, норвегов MOLESTED, а также не мясных, но техно-дэтовых AFFLICTED с прекрасным альбомом Prodigal Sun и виртуозов THEORY IN PRACTICE
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-ekasel 29.01.2008 20:48:
-Обменяю или продам<BR><BR>Abscess - Urine Junkies (Relapse)<BR>Acrostichon - Engraved in Black <BR>Afflicted - Prodigal Sun (Nuclear Blast)<BR>Anathema - the Crestfallen ep (peaceville)<BR>Avulsed - Eminence in Putrescence (Repulse records 10 track)<BR>Blodulv/Aska - The Purest Cold Precision<BR>Burzum - Burzum/Aske digi (misanthropy)<BR>Barathrum - Eerie (Nazgul Eyrie prod.)<BR>Belenos - errances oniriques (Sacral Prod)<BR>Branikald - Varg Fjerne A Tornet (autistiartilli ltd. 500)<BR>Desultory - Bitterness (Metal Blade)<BR>Dimhymn/Hypothermia Sjuklig Intention<BR>Fleurety - Min Tid Skal Komme (Misanthropy)<BR>Molested - Blod-draum (Effigi records)<BR>Morte Incandescente/Onirik - Our Funeral Yet to Come<BR>Sorhin - I Det Glimrande Morkrets Djup (Near Dark production)<BR>Szron - The Purificating Flame of Annihilation<BR>Suffer (Swe) - Global Warming (Napalm 02)<BR>War - We are Total War (Orion\Necropolis)<BR>Wewelsburg - The Antiarchitect<BR>marduk1996собакаmail.ru
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Metal Hatchet 29.01.2008 21:05:
-Afflicted - Prodigal Sun (Nuclear Blast)<BR><BR>Это почем?
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-vinphis 29.01.2008 22:55:
-Продублирую вопрос про Afflicted...
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-ekasel 21.02.2008 19:20:
-Обменяю или продам. Я не из Москвы, пишите на мыло.<BR><BR>Abscess - Urine Junkies (Relapse)<BR>Acrostichon - Engraved in Black<BR>Afflicted - Prodigal Sun (Nuclear Blast)<BR>Anathema - the Crestfallen ep (peaceville)<BR>Avulsed - Eminence in Putrescence (Repulse records 10 track)<BR>Blodulv/Aska - The Purest Cold Precision<BR>Burzum - Burzum/Aske digi (misanthropy)<BR>Barathrum - Eerie (Nazgul Eyrie prod.)<BR>Belenos - errances oniriques (Sacral Prod)<BR>Branikald - Varg Fjerne A Tornet (autistiartilli ltd. 500)<BR>Carcass - Symphonies of Sickness/Reek of Putrefaction(ltd. long box) <BR>Dimhymn/Hypothermia Sjuklig Intention<BR>Fleurety - Min Tid Skal Komme (Misanthropy)<BR>Morte Incandescente/Onirik - Our Funeral Yet to Come<BR>Sorhin - I Det Glimrande Morkrets Djup (Near Dark production)<BR>Szron - The Purificating Flame of Annihilation<BR>Valhalla -Winterbastard (ltd. 666)<BR>War - We are Total War (Orion\Necropolis)<BR>Wewelsburg - The Antiarchitect<BR>marduk1996собакаmail.ru
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-nefelin 26.03.2009 23:49:
-AFFLICTED "Prodigal Sun" 1992 ORIGINAL CD<BR>Nuclear blast records NB 063 CD 1. press<BR>подробности по nefelin@com.mels.ru
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-nefelin 27.03.2009 14:04:
-&gt; Ласковый Бык:(27.03.2009 06:26)<BR>&gt; 2 nefelin - и чо за конспирация, ебана?<BR><BR>А мыло для кого оставил ?<BR><BR>Продается первопресс:<BR>AFFLICTED "Prodigal Sun" 1992 ORIGINAL CD<BR>Nuclear blast records NB 063 CD 1. press<BR>Цена: 350 руб.<BR><BR>Кому нужны сканы вышлю.<BR>подробности по nefelin@com.mels.ru
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-nefelin 27.03.2009 17:01:
-ПРОДАН:<BR>AFFLICTED "Prodigal Sun" 1992 ORIGINAL CD<BR>Nuclear blast records NB 063 CD 1. press<BR>Цена: 350 руб.
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-valentine7 18.09.2009 22:06:
-На продажу цд, цены снижены чуток:<BR>Afflicted "Prodigal sun" nb 063 spv77-140032)-600 <BR>Voivod "dimension hatross" noise 88 orig n 0106-3-550 <BR>Exodus "impact is imminent"uk cd capitol orig!-900 <BR>&gt; Non-fiction "in the know" steamhammer92-450 <BR>&gt; Non-fiction "Its a wonderful lie" spv1995-450 <BR>&gt; Defiance "void terra ferma" japan obi repress2003-700 <BR>&gt; mental crypt "Extreme unction" black mark98-350 <BR>&gt; entombed "to ride, shoot straight and speak the truth" 1997 mfn-400 <BR>&gt; Requiem "soulmachine" shark rec 1994-250 <BR>&gt; Overkill "under the influence"1988 ifpi-350 <BR>&gt; devastation "Signs of life" combat orig!-800 <BR>&gt; overkill-"years of decay" atlantic ger-350 <BR>&gt; Destruction "Cracked brain" 1990 orig noise germ-750 <BR>Exodus "Bonded by blood" combat/relativity press1989-400r(царапины-на <BR>игру не влияют) <BR>Destruction "Sentence of death/infernal overkill spv 85-7529 (допечатка <BR>середины 90-х)-400 <BR>Galactic cowboys "Space in your face" japan obi-500r <BR>Cemetary "Black vanity"1994 tecx- 25984 obi-450 <BR>Thunderhead "Crime pays" vicp-5121 obi-500 <BR>Thunderhead "Killing with style" vicp-5312 -550 <BR>Thunderhead "Where you told truth about hell" vicp-5565-550 <BR>STS8 Mission "Blind" tecx-25678 obi-650 <BR>Dearly beheaded "Temptation" limited edition cd book! bonus track "wrench"-600<BR>tilitili06@rambler.ru<BR>
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-valentine7 28.09.2009 21:39:
-В продаже:<BR>Rostok vampires "The Torment of Transformation"-700 nuclear blast053<BR>Overkill "Under the influence" atlantic -350<BR>Anthrax "spreading the desise" island orig!-450<BR>Anacrusis "manic impressions" 1991(1999 reissue)-350<BR>Destruction "sentence of death/infernal overkill" spv-400<BR>voivod "dimension hatross" noise orig-550<BR>Forbidden "Forbidden evil" combat-400<BR>RDP-"Anarkophobia" roadracer orig 91!-500(пробит буклет и задник)<BR>Devastation "Signs of life" combat orig!1989-800<BR>Exoto "thousend dreams ago" black mark 1995-700<BR>Afflicted "Prodigal sun" nuclear blast orig!-550<BR>Dearly beheaded "Temptation" limited edition cd book! bonus track "wrench"-600<BR>Exodus "Bonded by blood" combat/relativity press1989-400r(царапины-на <BR>игру не влияют)<BR>oppressor "agony"-550<BR><BR>торг уместен при покупке 3 и более сд<BR>tilitili06@rambler.ru
-
 ### Продаются CD - Atheist, Disharmonic Orchestra, Dismember,...
 
 Smoor 23.07.2014 11:55:
 Импортные по 500 рублей:<BR><BR>Afflicted 1992 Prodigal sun  NB062 CD (SPV77-140032)<BR>Agathocles  Razor sharp daggers  Cyber CD 19<BR>Atheist 1990  Piece of time  CDATV 8 Made in France<BR>Atheist 1991  Unquestionable presence  CDATV 20 Made in France<BR>Benediction 1995  The dreams you dread  NB120-2<BR>Bolt Thrower 1992  The IVth Crusade  Relativity/Earache 88561-1157-2 Made in USA<BR>Crowbar 1996 Broken glass  CDVEST 77 Made in England<BR>Disharmonic Orchestra 1990  Expositions prophylaxe  NB 037 SPV84-29812 Made in Germany<BR>Disharmonic Orchestra 1992  Not to be undimensional conscious  NBA RED 6035-2 Made in USA<BR>Disharmonic Orchestra 1993  Pleasuredome  SPV 084-76772 Made in Germany<BR>Dismember 1995  Massive killing capacity  CD NB 123-2/27361 61232<BR>Entombed 1991 Clandestine  MOSH CD 37 Made in the EC<BR>Grave 1994 Soulless  77070-2<BR>Grave 1996 Hating life  7806-2<BR>Human Error/Lycantrophy  Ahead to Nowhere/...they believed!  ECR-022 Made in Japan<BR>Tiamat Wildhoney 7780-2<BR><BR><BR>Российские лицензионные по 50 рублей:<BR><BR>Abaddon Incarnate 2002  Nadir  IROND CD 02-344<BR>Benediction 2001  Organised chaos  IROND CD 01-104<BR>Bolt Thrower 1994 ... for victory<BR>Bolt Thrower 2005  Those once loyal  FO543CD<BR>Disharmonic Orchestra 2002  Ahead  IROND CD 02-318<BR>Dismember 2004  Where ironcrosses grow  IROND CD 04-755<BR>Grave 1992  You'll Never See...  FO561CD<BR>Grave 2002  Back from the grave  FO187CD<BR>Grave 2004  Fiendish regression  FO402CD<BR>Haemorrhage 2004 Morgue sweet home  CDM 0604-1862<BR>Hostile Breed 2004  The second cut  IROND CD 04-771<BR>Mnemic 2004  The audio injected soul  IROND CD 04-874<BR>Raunchy 2004  Confusion bay  IROND  CD 04-751<BR>Six Feet Under 2001  True Carnage  FO78CD<BR><BR>Все диски в хорошем состоянии, большинство даже в отличном. Лицензионные и пиратские есть ещё, спрашивайте, если интересует. Можно торговаться. Я в Москве, встреча в метро.<BR><BR>Пишите на krazyrocket at mail dot ru.
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Dimas 23.07.2014 13:29:
-Smoor:(23.07.2014 12:55)     <BR>  <BR>Импортные по 500 рублей:<BR><BR>Afflicted 1992 Prodigal sun NB062 CD (SPV77-140032)<BR>Agathocles Razor sharp daggers Cyber CD 19<BR>Atheist 1990 Piece of time CDATV 8 Made in France<BR>Atheist 1991 Unquestionable presence CDATV 20 Made in France<BR>Benediction 1995 The dreams you dread NB120-2<BR>Bolt Thrower 1992 The IVth Crusade Relativity/Earache 88561-1157-2 Made in USA<BR>Crowbar 1996 Broken glass CDVEST 77 Made in England<BR>Disharmonic Orchestra 1990 Expositions prophylaxe NB 037 SPV84-29812 Made in Germany<BR>Disharmonic Orchestra 1992 Not to be undimensional conscious NBA RED 6035-2 Made in USA<BR>Disharmonic Orchestra 1993 Pleasuredome SPV 084-76772 Made in Germany<BR>Dismember 1995 Massive killing capacity CD NB 123-2/27361 61232<BR>Entombed 1991 Clandestine MOSH CD 37 Made in the EC<BR>Grave 1994 Soulless 77070-2<BR>Grave 1996 Hating life 7806-2<BR>Human Error/Lycantrophy Ahead to Nowhere/...they believed! ECR-022 Made in Japan<BR>Tiamat Wildhoney 7780-2<BR><BR><BR>Российские лицензионные по 50 рублей:<BR><BR>Abaddon Incarnate 2002 Nadir IROND CD 02-344<BR>Benediction 2001 Organised chaos IROND CD 01-104<BR>Bolt Thrower 1994 ... for victory<BR>Bolt Thrower 2005 Those once loyal FO543CD<BR>Disharmonic Orchestra 2002 Ahead IROND CD 02-318<BR>Dismember 2004 Where ironcrosses grow IROND CD 04-755<BR>Grave 1992 You'll Never See... FO561CD<BR>Grave 2002 Back from the grave FO187CD<BR>Grave 2004 Fiendish regression FO402CD<BR>Haemorrhage 2004 Morgue sweet home CDM 0604-1862<BR>Hostile Breed 2004 The second cut IROND CD 04-771<BR>Mnemic 2004 The audio injected soul IROND CD 04-874<BR>Raunchy 2004 Confusion bay IROND CD 04-751<BR>Six Feet Under 2001 True Carnage FO78CD<BR><BR>Все диски в хорошем состоянии, большинство даже в отличном. Лицензионные и пиратские есть ещё, спрашивайте, если интересует. Можно торговаться. Я в Москве, встреча в метро.<BR><BR>Пишите на krazyrocket at mail dot ru. <BR>
 
 ### Какой Хипокриси взять?
 

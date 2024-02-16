@@ -11,21 +11,6 @@
 
 ## Упоминания
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-НиколайНС 05.11.2011 11:21:
-niknetl (пёс) rambler ((.)) ru<BR><BR>Indie Rec.:<BR>1349 - Demonoir (lim. box: 2CD digipack, plectrum, authographed card);<BR>Einherjer - Norron (digipack);<BR>Iskald - The Sun I Carried Alone;<BR>Kvelertak - s/t (CD+DVD digipack).<BR><BR><BR>Peaceville, KScope:<BR>Cradle of Filth:<BR>- Dusk... And Her Embrace (lim. 2LP);<BR>- Cruelty and the Beast (lim. 2LP);<BR>- Midian (lim. 2LP);<BR>- Darkly Darkly Venus Aversa (lim. 2LP colored).<BR>Evoken:<BR>- Antithesis of Light;<BR>- Quietus.<BR>My Dying Bride:<BR>- Turn Loose the Swans (digipack);<BR>- Turn Loose the Swans (lim. 2LP);<BR>- The Angel and the Dark River/For Darkest Eyes (CD/DVD);<BR>- A Line of Deathless Kings (lim. UK box edition).<BR>Ulver:<BR>- Wars of the Roses (digibook);<BR>- Wars of the Roses (LP).
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-НиколайНС 09.01.2012 19:21:
-niknetl (пёс) rambler (( . )) ru<BR><BR>Indie Rec.:<BR>1349 - Demonoir (lim box: 2CD digipack + медиатор, нашивка, открытка с автографами).<BR>Cronian - Enterprise.<BR>Einherjer: <BR>- Norron (digipack);<BR>- Norron (vinyl).<BR>Insense - Burn in Beautiful Fire.<BR>Iskald - The Sun I Carried Alone.<BR>Keep of Kalessin - Reclaim (re-release + bonus tracks).<BR>Kvelertak - s/t (deluxe CD+DVD digipack).<BR>Vreid - V (2LP).<BR><BR><BR>Massacre Rec.:<BR>Arven - Music of Light.<BR>Coronatus - Terra Incognita (lim. digipack + bonus).<BR>Descending - New Death Celebrity.<BR>Mystic Prophecy - Ravenlord (lim. digipack + bonus).<BR><BR>Catamenia: <BR>- Eskhata;<BR>- Chaos Born;<BR>- Winterlight Tragedies.<BR>Crematory: <BR>- Transmigration (digipack);<BR>- ...Just Dreaming (digipack);<BR>- Illusions (digipack).<BR>Descending - Enter Annihilation.<BR>Graveworm - Diabolical Figures (lim. digipack + bonus).<BR>Malevolent Creation - Doomsday X (lim. digipack).<BR>Mystic Prophecy - Fireangel (lim. 2CD digipack).<BR>Resurrection - Mistaken for Dead (lim. CD+DVD digipack).<BR>Stormwarrior - Heathenwarrior (lim. digipack + bonus).<BR>Theatre of Tragedy:<BR>- Theatre of Tragedy;<BR>- Velvet Darkness They Fear.<BR><BR><BR>Прочее:<BR>Christ Agony - NocturN (digipack, Mystic Prod.).<BR>Gromth - The Immortal (symphonic extreme metal, 2CD digipack, Worlds Apart Rec.).<BR>Okular - Probiotic (melodic prog-death, Regenerative Prod.).
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-НиколайНС 28.06.2012 13:29:
-niknetl (пёс) rambler ((.)) ru<BR><BR>Angelus Apatrida - The Call (lim. slipcase + bonus, Century Media).<BR>Asphyx - Deathhammer (lim. 2CD digibook, Sentury Media).<BR>Calibal - I Am Nemesis (lim. 2CD digipack, Century Media).<BR>Candlemass - Psalms of the Dead (lim. CD+DVD <BR>digibook, Napalm).<BR>Fear Factory (lim. digibook + bonus tracks, Candlelight USA).<BR>Gorefest:<BR>- Mindloss + Demos (2CD, Nuclear Blast USA);<BR>- False + Erase (2CD, Nuclear Blast USA);<BR>- Soul Survivor + Chapter 13 (2CD, Nuclear Blast USA).<BR>Holy Terror - Terror and Submission / Mind Wars (2CD, Candlelight USA).<BR>Ihsahn - Eremita (lim. digibook + bonus, Candlelight UK).<BR>iwrestledabearonce - Ruining It For Everybody (CD+DVD digipack, Century Media USA).<BR>Marduk - Serpent Sermon (lim. digibook + bonus, Century Media).<BR>Naglfar - T&#233;ras (lim. digipack + bonus, Century Media).<BR>Napalm Death - Utilitarian (lim. digipack + bonus, Century Media).<BR>Nile - Those Whom the Gods Detest (lim. digipack, Nuclear Blast).<BR>Six Feet Under - Undead (lim. digipack, Metal Blade).<BR>Vildhjarta - M&#229;sstaden (digipack, Century Media USA).<BR><BR><BR>INDIE RECORDINGS:<BR>Aura Noir - Out to Die (digipack).<BR>Blodhemn - Holmengraa.<BR>Borknagar - Universal (lim. 2LP).<BR>Djerv - Djerv (digipack).<BR>Dunderbeist  - Black Arts & Crooked Tails.<BR>Kr&#229;ke - Conquering Death.<BR>Kvelertak:<BR>- Kvelertak (lim. CD+DVD digipack, 6 bonus tracks);<BR>- Kvelertak (lim. 2LP).<BR>Nekromantheon - Rise, Vulcan Spectre.<BR>Purified in Blood - Flight of a Dying Sun.<BR>The Fallen Divine - The Binding Cycle.<BR> <BR>
-
 ### southern metal\stoner metal
 
 Ghast 26.09.2012 22:48:

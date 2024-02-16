@@ -40,11 +40,6 @@ DropDead 02.07.2006 01:17:
 Максим - LOGIN! 14.04.2007 18:12:
 придлагаю постить здеся списак того? что бы мы хотели видеть!<BR><BR>Итак:<BR><BR>Birdflesh<BR>Brutal Truth<BR>Cryptopsy<BR>Depths  Of  Depravity<BR>Devourment<BR>Dying Fetus<BR>Gorgasm (usa)<BR>Gorod (Fr, ex-Gorgasm)<BR>Immolation<BR>Internal Suffering<BR>Necrophagist<BR>Negativia (ex-Gorguts)<BR>Spawn Of Possession<BR>Suffocation<BR><BR><BR>Across Five Aprils<BR>Animosity<BR>Beneath The Massacre<BR>Between The Buried And Me<BR>Botch<BR>Buckethead<BR>Burnt By The Sun<BR>Candiria<BR>Chimaira<BR>Circle Takes the Square<BR>Continuo Renacer <BR>Converge<BR>Coprofago<BR>Darkest Hour<BR>Despised Icon<BR>Godless Truth<BR>Horse The Band<BR>Ion Dissonance<BR>Isis<BR>Lamb Of God<BR>Me And Him Call It Us<BR>Meshuggah<BR>Misery Index<BR>Neurosis<BR>Norma Jean<BR>Stray From The Path<BR>The Fall of Troy<BR><BR><BR>ну так примерный списочег, на что бы я подумал ещё сходить.. ваще меня интересует может около 100 групп такова плана.<BR><BR>тока палюбэ повезут чо нить чт омне не нужно =)
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Valar 31.03.2009 21:16:
-Продаю(в Москве) Фирменные диски( состояние хорошее):<BR>1) Staind – Chapter V (2005); 400 руб.<BR>2) Adversaty- Singularity (2008); 400 руб.<BR>3) Norma Jean- The Anti Mother (2008); 400 руб.<BR>4) The Acacia Strain- Continent (2008); 400 руб.<BR>5) Hollenthon - Opus Magnum (2008); 400 руб.<BR>6) Between the Buried and Me - The Silent Circus (2006)+DVD; 400 руб.<BR>7) Scars of Tomorrow- The Failure in Drowning (2006); 400 руб.<BR>8) Breaking Benjamin – Phobia (2006); 400 руб.<BR>9) Esoterica – The Fool (2008); 400 руб<BR>10) Deinonnchus – Warfare Machines (2006). 300 руб.<BR><BR>helliswonder@yandex.ru <BR> 
-
 ### Global East Fest Open Air, Киев, СК &quot;Чайка&quot; 1-2 августа.
 
 Максим - LOGIN! 17.05.2009 13:12:

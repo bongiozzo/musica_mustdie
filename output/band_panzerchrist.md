@@ -59,25 +59,10 @@ belial 03.09.2009 09:03:
 belial 04.09.2009 09:53:
 Итак, я думаю, можно объявить конкурс на самый великий музыкальный перл Моздая. Накопилось за 10 лет столько всего, что это нужно увековечить. Заодно участники конкурса (полазив в старых топиках) смогут проследить все метаморфозы происходящие с этим ресурсом. Поверьте мне, это интересно. Да и труда это никакого не составляет, нужно только иметь свободное время.<BR>Правила таковы.<BR>1)	в этот топик копируются прикольные, абсурдные и прочие (на Ваш взгляд) высказывания юзеров, которые касаются миталла во всех его проявлениях;<BR>2)	просто ссылки не подходят (так неинтересно);<BR>3)	высказывания не должны быть просто вырваны из контекста, должно быть понятно, о чем идет речь;<BR>4)	обязательно должен быть указан топик и дата поста, а вот ник автора не нужно указывать;<BR>5)	и не нужно выкладывать целые листы срача или что-либо не относящееся напрямую к музлу.<BR><BR>Срок проведения конкурса – месяц (до 04.10.2009).<BR>В понедельник 05 октября подводим итоги.<BR>По результатам обсуждения, юзер, нашедший самый интересный перл объявляется победителем и получает любые 2 фирмовых диска на свой вкус из нижеуказанного списка.<BR><BR>MARDUK "Rom 5:12" (Regain)<BR>OPETH "Ghost Reveries" (Roadrunner)<BR>ANCIENT RITES "Rubicon" (DIGIPACK) (Season Of Mist)<BR>DRUDKH "Кров У Наших Криницях" (Supernal)<BR>HEAVENLY "Virus" (DIGIPACK) (AFM)<BR>APOCALYPTIC VISIONS "Doomsday Device" (self-released)<BR>MANTICORA "The Black Circus Part I - Letters" (Massacre)<BR>PANZERCHRIST "Battalion Beast" (Neurotic)<BR>BLUT AUS NORD "Mort" (Candlelight)<BR>NOVEMBERS DOOM "The Novella Reservoir" (The End)<BR>FURZE "UTD" (DIGIPACK) (Candlelight)<BR>CATACOMBS "In The Depths Of R'lyeh" (Moribund)<BR>IMMOLATION "Shadows In The Light" (Listenable)<BR>BORKNAGAR "Origin" (Century Media)<BR>STERBEND "Dwelling Lifeless" (No Colours)<BR><BR>Так же, мне бы не хотелось, если будут обиды или развернется срач. Я считаю, что конкурс проводится для поднятия настроения местного населения, и независимо от того, какое у кого серьезное отношение к любимым командам или стилям, нужно отнестись к этому с юмором.<BR><BR>P.S. Диски победителю я высылать не буду никуда. Я 2-3 раза в месяц бываю в Москве и готов встретиться и передать выигранные диски тому, кого укажет победитель. Время и дату встречи согласуем. <BR>
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Non Serviam 15.12.2009 00:24:
-обмен на позиции из want-list'а приветствуются<BR><BR>altar - provoke - 1998 - displeased<BR>altar - red harvest - 2001 - pavement<BR>ancient ceremony - synagoga diabolica - 2000 - alister<BR>arathorn - niemals kroenender als was einst war - 1997 - folter<BR>avatar - memoriam draconis - 1996 - shiver<BR>hermh - angeldemon - 1997 - pagan<BR>hermh - taran - 1996 - last epitaph<BR>liar of golgotha - dwell within the mysterious dark - 1998 - mascot<BR>moon - daemon's heart - 1997 - pagan<BR>panzerchrist - soul collector - 2000 - mighty music<BR>ritual carnage - every nerve alive - 2000 - osmose<BR>sodom - masquerade in blood - 1995 - steamhammer/spv
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Максим - LOGIN! 15.12.2009 03:52:
-да я почти всё это слышал есьна, когда выходило.<BR><BR>altar - вроде ничо диск Ego Art остальное гавно с уклоном в мелодик ДМ.<BR>ancient ceremony - synagoga diabolica - вощем-то хуйло.<BR>arathorn - niemals kroenender als was... наверное, слышал не помню, атм случаем не т никого из Ulver?<BR><BR>liar of golgotha - dwell within the mysterious dark - скучненнй дум, слышался в иснте в 1998-1999<BR><BR>moon - daemon's heart - 1997 - pagan<BR>вроде поляки, или украина? или изданы белорусским лейблом. так себе на любителя.<BR><BR>panzerchrist - soul collector - 2000 - mighty music<BR>кажеца то же безликое гавно<BR><BR>sodom - masquerade in blood - 1995<BR>не люблю содом, скучное дрочилово
-
 ### Лучший death альбом года в Мире в этом году
 
 tich666 06.06.2013 19:51:
 Houwitser, Hypnos, Desinter, Panzerchrist, Shredded Corpse, Haemorrhage, Martyr (Чех) - это к 2000му. Hypnos так же к 2001ому. Охуенный альбом.
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-НиколайНС 01.10.2013 00:15:
-niknetl (at) rambler ((.)) ru<BR><BR>Candlelight USA:<BR><BR>Havok - Unnatural Selection;<BR>Nonexistence - Antarctica;<BR>Shade Empire - Omega Arcane.<BR><BR><BR>Cyclone Empire:<BR><BR>Demonical - Darkness Unbound (lim. digipack + 2 bonus tracks).<BR>Ereb Altor: <BR>- Fire Meets Ice;<BR>- Fire Meets Ice (lim. white colored vinyl).<BR>October Tide - Tunnel of No Light (lim. white colored vinyl).<BR>Paganizer - Dedicated to the Flesh lim. (digipack).<BR><BR><BR>Peaceville:<BR><BR>Autopsy - The Headless Ritual (lim. digibook);<BR>My Dying Bride - The Manuscript.<BR><BR><BR>Разное:<BR><BR>Annihilator - Feast (lim. LP, UDR).<BR>Panzerchrist - 7th Offensive (Listenable).<BR>Protector - Reanimated Homunculus (lim. blue colored vinyl, High Roller).<BR>Tyr - Valkyrja (lim. fan box, Metal Blade).
 
 ### Новинки 2013
 

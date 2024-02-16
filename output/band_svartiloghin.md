@@ -11,11 +11,6 @@
 
 ## Упоминания
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Non Serviam 23.10.2009 18:56:
-Svartby - Kom I Min Kittel (Trollzorn) new<BR>Svarti Loghin - Empty World (digi) (ATMF) new<BR>Windir - Soknardalr (HNF) new<BR>Griftegеrd -Solemn. Sacred. Severe (digi) (Van) new<BR>Funeral - As The Light Does The Shadow (Indie) new<BR>Funeral - From These Wounds (Tabu) new<BR>+ Lunar Aurora 5 альбомов
-
 ### Новинки 2010
 
 belial 10.10.2010 21:42:

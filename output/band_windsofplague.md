@@ -24,11 +24,6 @@
 ScapeGod 15.05.2010 20:17:
 Ну что, стряхнём пыль с древнего топика и расчехлим говномёты? Итак, для затравочки - <BR>французы Benighted "Icon", <BR>DevilDriver (весь, кроме дебютника), <BR>Destinity "Synthetic existence", <BR>фр.No return "Manipulated mind", <BR>The Amenta "Occasus" <BR>Winds of plague "Decimate the weak".<BR>Vishapakahr "Vishapakahr"
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-НиколайНС 16.06.2011 09:42:
-Century Media:<BR><BR>Arch Enemy - Khaos Legions (lim. 2CD kingsize mediabook)<BR>Norther - Circle Regenerated (lim. digipack + bonus tracks)<BR>Soulburn - Feeding on Angels (+ bonus tracks)<BR>Turisas - Stand Up and Fight (vinyl LP)<BR><BR>Metal Blade:<BR><BR>Amon Amarth - Wrath Of The Norsemen (3DVD digipack)<BR>Cannibal Corpse - Global Evisceration (DVD digipack)<BR>Hate Eternal - Phoenix Amongst The Ashes (digifile)<BR><BR><BR>Napalm Records:<BR><BR>Kampfar - Mare (lim. digipack)<BR>Leaves' Eyes - Meredead (lim. CD+DVD digibook)<BR>Midnattsol - The Metamorphosis Melody (lim. CD+DVD digipack)<BR><BR>Nuclear Blast:<BR><BR>Amorphis - Forging the Land of Thousand Lakes (lim. 2DVD+2CD digisleeve)<BR>Therion - The Miskolc Experience (lim. DVD+2CD digisleeve)<BR><BR>Nuclear Blast USA:<BR><BR>Amorphis - Far from the Sun (slipcase + bonus tracks)<BR>Augury - Fragmentary Evidence<BR>Origin - Entity (lim. CD+DVD digipack)<BR>Sylosis - Conclusion Of An Age<BR>Sylosis - Edge of the Earth<BR>Winds of Plague - Against the World (die-cut slipcase)<BR><BR>Прочее:<BR><BR>And You Will Know Us By The Trail Of Dead - Tao Of The Dead (lim. 2CD mediabook, Superball)<BR>Arch Enemy - Wages of Sin (2CD, Century Media USA)<BR>Augury - Concealed (digipack + bonus tracks, Sonic Unyon)<BR>Enforsaken - The Forever Endeavor (Olympic)<BR>The Foreshadowing - Oionos (lim. digipack)<BR>Gorguts - From Wisdom to Hate (digipack, Deepsend)<BR>Gorguts - From Wisdom to Hate (LP, War on Music)<BR>Novembers Doom - Aphotic (The End)
-
 ### Новинки 2011
 
 Максим - LOGIN! 05.08.2011 01:34:
@@ -38,11 +33,6 @@ Century Media:<BR><BR>Arch Enemy - Khaos Legions (lim. 2CD kingsize mediabook)<B
 
 ScapeGod 23.08.2011 09:04:
 Его Мясожопаэ Величество, немного трезвый Санитар, ага, удалил уже, кроме трех последних песен ничо такова нет. А я чот подсел на Winds of plague'2011, ну я уже говорил. Конечно, Decimate the week лучший, а вот их предыдущий (2010) так себе.
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-НиколайНС 12.10.2011 20:56:
-niknetl (пёс) rambler ((.)) ru<BR><BR>Century Media:<BR>Grave:<BR>- Into the Grave (limited colored vinyl);<BR>- You'll Never See (limited colored vinyl);<BR>Unleashed:<BR>- Across the Open Sea (limited colored vinyl);<BR>- Shadows in the Deep (limited colored vinyl);<BR>Iced Earth (mini LP reissue series):<BR>- Burnt Offering (2CD);<BR>- Enter The Realm Of The Gods (2CD);<BR>- Horror Show;<BR>- Iced Earth;<BR>- ­Night Of The Stormrider;<BR>-­ Something Wicked This Way Comes;<BR>- The Dark Saga.<BR>In Flames:<BR>- Sounds of a Playground Fading (lim. CD+DVD digipack);<BR>- Sounds of a Playground Fading (lim. box).<BR>Suicide Silence - The Black Crown (lim. box).<BR>Winds of Plague - Against the World (slipcase).<BR><BR>Nuclear Blats USA:<BR>All Shall Perish -­ This Is Where It Ends (lim. digipack + bonus).<BR>Decrepit Birth ­- Polarity (lim. digipack + bonus).<BR>Symphony X - Iconoclast (2CD digipack).<BR>Vader ­- Welcome To The Morbid Reich (lim. digipack + bonus).<BR>World Under Blood -­ Tactical (agressive melodic death).<BR><BR>Прочее:<BR>Blood Stain Child - Epsilon (lim. digipack + bonus, Coroner Records).<BR>Flotsam and Jetsam - Dreams of Death (2011 re-release, Goomba Music).<BR>Martyr - Feeding the Abscess (Galy Rec.).<BR>Obtenebris - Dust of Time (for fans of Amon Amarth).<BR>Pestilence - Doctrine (Mascot).<BR>Yggdrasil -­ Irrblos (folk metal, Grand Master Music).<BR>Yggdrasil -­ Kvallningsvindar Over Nordront Land (2011 re-release + bonus, Grand Master Music).
 
 ### Новинки 2012
 

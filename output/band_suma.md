@@ -59,8 +59,3 @@ Ghost - Infestissumam (2013)<BR><BR>Не назвал бы дебютник пр
 Хорёк 20.07.2013 21:52:
 предлагаю батл, любопытно насколько непртедвзятое восприятие у юзверей:<BR><BR><BR><BR>GHOST -  INFESTISSUMAM           vs.         BLACK SABBATH -13<BR><BR><BR><BR>кто за кого? это битва поколений<BR><BR>
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-НиколайНС 05.08.2013 08:47:
-2:<BR><BR>Century Media:<BR><BR>Cryptopsy - Whisper Supremacy (Century Media USA).<BR>Dark Tranquillity - Construct (lim. LP + 7", grey colored; Century Media USA).<BR>Finntroll - Blodsvept (lim. box).<BR>Starkill - Fires of Life (Century Media USA).<BR><BR><BR>Napalm Records:<BR><BR>Fejd - Nagelfar (+ bonus).<BR>Lonewolf - The Fourth and Final Horseman (lim. digipack + bonus).<BR>Manegarm - Legions of the North (lim. digipack + bonus).<BR>Serenity - War of Ages (lim. digipack + bonus).<BR>Tristania - Darkest White (lim. digipack + bonus).<BR><BR><BR>+:<BR><BR>Aborym - Dirty (2CD digipack, Agony Records).<BR>Ghost B.C. - Infestissumam (deluxe edition: expanded booklet + 2 bonus tracks).<BR>Martyr - Hopeless Hopes (Martyr/Galy).<BR>Pendact - Days of War.<BR>Sangre Eterna - Asphyxia (Maple Metal).<BR>Wormed - Exodromos (Willowtip).<BR><BR>
-

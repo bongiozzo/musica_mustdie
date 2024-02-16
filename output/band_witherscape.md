@@ -40,11 +40,6 @@ no more links 31.07.2013 05:23:
 Dimas 31.07.2013 11:28:
 вообще-то зачатки WITHERSCAPE уже обсуждали<BR>никто не заметил?<BR><A HREF="http://musica.mustdie.ru/ru/topic/130423/" TARGET="_blank">http://musica.mustdie.ru/ru/topic/130423/</A>
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-НиколайНС 05.08.2013 08:42:
-niknetl (at) rambler ((.)) ru<BR><BR>1:<BR><BR>Candlelight USA:<BR><BR>Nonexistence - Antarctica.<BR>Woe - Withdraval.<BR><BR><BR>Century Media:<BR><BR>Dark Tranquillity - Construct (lim. 2CD box).<BR>Napalm Death:<BR>- Time Waits for No Slave (lim. digipack = bonus);<BR>- Utilitarian (lim. digipack = bonus).<BR>Necropsy - Tomb Of The Forgotten - The Complete Demo Recordings (3CD box).<BR>Orphaned Land - All Is One (lim. CD+DVD digibook).<BR>Thanatos - Angelic Encounters (re-release + bonus tracks).<BR>Witherscape - The Inheritance (lim. digibook + bonus tracks).<BR><BR><BR>Cyclone Empire:<BR><BR>A Canorous Quintet - The Quintessence (2CD digipack).<BR>Ophis - Effiges of Desolation (2CD digipack).<BR><BR><BR>Metal Blade:<BR><BR>Amon Amarth - Deceiver of the Gods (lim. 2CD box).<BR>Entrails - Raging Death (lim. 2CD digipack).<BR><BR><BR>Northern Silence / Eyes Like Snow:<BR><BR>Amesoeurs - Amesoeurs (lim. 2LP colored).<BR>Angantyr - Forvist (lim. digipack).<BR>Heretoir - Heretoir (lim. digipack).<BR>Soror Dolorosa - No More Heroes (lim. digisleeve). <BR>The Flight Of Sleipnir - Saga (lim. A5 digipack).<BR>Woods of Desolation: <BR>- Toward the Depths (lim. digipack);<BR>- Toward the Depths (lim. LP red colored).<BR><BR><BR>Season of Mist:<BR><BR>Arckanum:<BR>- Fenris Kindir;<BR>- Fenris Kindir (lim. LP yellow colored).<BR>Carach Angren: <BR>- Lammendam (2013 re-release);<BR>- Death Came Through A Phantom Ship (2013 re-release).<BR>Kylesa - Ultraviolet (lim. digipack).<BR>Necronomicon - Rise of the Elder Ones.<BR>Septicflesh: <BR>- Mystic Places of Dawn (lim. 2LP colored);<BR>- Esoptron (lim. digipack re-release = bonus tracks);<BR>- Esoptron (lim. 2LP colored).<BR>Seth - The Howling Spirit (lim. digipack).<BR>The Monolith Deathcult - Tetragrammaton (lim. digipack).<BR><BR><BR>+:<BR><BR>Chthonic - Bu Tik (Spinefarm).<BR>Cynic - Focus (lim. LP, Roadrunner/Cynic; authographed by Masvidal and Reinert).<BR>Fractal Gates - Beyond the Self (digipack, Great Dane).<BR>Heavenwood - Abyss Masterpiece (Listenable).<BR>Officium Triste - Mors Viri (Hammerheart).<BR>Sodom: <BR>- Epitome of Torture (lim. digipack + bonus tracks);<BR>- Epitome of Torture (lim. 2LP colored).
-
 ### Новинки 2013
 
 Dark 14.08.2013 21:21:
@@ -54,11 +49,6 @@ Dark 14.08.2013 21:21:
 
 tem1979версия 3.0 23.08.2013 21:27:
 Весьма любопытен и интересен релиз от даньки Сване- Witherscape.<BR>Кто соскучился по Edge of Sanity периода Кримсон  и группе опет середины 2000х, смело рекомендую.<BR>можно послушать тут  - <A HREF="http://www.youtube.com/watch?v=QtDqrGxA4IU" TARGET="_blank">http://www.youtube.com/watch?v=QtDqrGxA4IU</A>
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-НиколайНС 02.09.2013 19:35:
-niknetl (at) rambler ((.)) ru<BR><BR>Century Media Germany:<BR><BR>In This Moment - Blood (2CD, 2013 re-release).<BR>Orphaned Land - All Is One (lim. CD+DVD digibook, + 3 bonus tracks).<BR>Tiamat - The Ark of the Covenant - The Complete Century Media Years (lim. 12CD+DVD box).<BR>Turisas - Turisas2013 (lim. digipack + bonus, inc. patch).<BR>Watain - The Wild Hunt (lim. digibook + bonus).<BR>Watain - The Wild Hunt (lim. box: 2LP + 7" + digibook + more).<BR>Witherscape - The Inheritance (lim. digibook + 2 bonus tracks).<BR><BR><BR>Nuclear Blast Germany:<BR><BR>Amorphis - Circle (lim. 2LP bone colored vinyl).<BR>Children of Bodom - Halo of Blood (lim. CD+DVD digipack).<BR>Hypocrisy - End of Disclosure (lim. digipack + bonus).<BR>Immolation - Kingdom of Conspiracy (lim. digipack).<BR>Soilwork - The Living Infinite (lim. 2CD 12" artbook).<BR>Suffocation - Pinnacle of Bedlam (lim. CD+DVD digipack).<BR><BR><BR>Прочее:<BR>Edenbridge - The Bonding (lim. 2CD digibook, SPV).<BR>Kreator - Hordes of Chaos - Ultra Riot (lim. 2CD box, SPV)<BR>Summoning - Old Mornings Dawn (lim. 2LP white colored vinyl, Napalm Records).
 
 ### Новинки 2013
 
@@ -74,11 +64,6 @@ Witherscape -<A HREF="http://s020.radikal.ru/i721/1309/26/e52c2a9fc99c.jpg" TARG
 
 tem1979версия 3.0 14.09.2013 11:38:
 Пятерка наиболее слушаемых 5 альбомов с середины августа по середину сентября.<BR> <BR>1.We Butter the Bread with Butter - Project Herz (EP) (2012) его я слушал чаще всего, если верить статистике в айтюнсе прослушан он не менее чем 14 раз , за месяц.<BR><BR>2. Ленинград -«Вечерний Ленинград» (2012)Удивительная способность группы и Шнура  писать и исполнять не только развеселые матерные песни, а еще и писать и отличные инструментальные композиции.При прослушивании в новых интересных аранжировках старых до боли песен, виден талант группы , который увы не пропьешь. Альбом кстати недавно издан на виниле. Огорчает всего в этом альбоме одно -Уж очень он короткий меньше 30 минут.<BR><BR>3.Witherscape - The Inheritance  2013(проект Дан Свано альбом понравится тем кто любит Edge of Sanity за альбомы Crimson и Crimson II)<BR> <BR>4.Watain -The Wild Hunt 2013( альбом зацепил сначала  двумя  песнями в духе Bathory- периода Twilight Of The Gods", а дальше просто весь понравился).<BR><BR>5.System of a Down - Toxicity (2001) <BR>
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-НиколайНС 21.10.2013 23:42:
-niknetl (at) rambler ((.)) ru<BR><BR>Century Media:<BR><BR>Broken Hope - Omen of Disease (+ bonus tracks).<BR>Necrowretch - Putrid Death Sorcery.<BR>Treblinka - Shrine of the Pentagram (lim. 3CD A5 mediabook).<BR>Witherscape - The inheritance (lim. digibook + bonus tracks).<BR><BR><BR>Season of Mist:<BR><BR>Cannabis Corpse: <BR>- Tube of the Resinated;<BR>- Beneath Grow Lights Thou Shalt Rise.<BR>Gorguts - Colored Sands (lim. 2LP clear).<BR>Saint Virus:<BR>- C.O.D. (2013 re-release + bonus);<BR>- Die Healing (2013 re-release + bonus).<BR>Vulture Industries - The Tower (lim digipack).<BR><BR><BR>Прочее:<BR><BR>Cathedral - The Last Spire (slipcase, Rise Above).<BR>Cynic - Focus (remastered + bonus tracks, Roadrunner).<BR>Darkestrah - Манас (Osmose).<BR>Death - Symbolic (bonus tracks, Roadrunner).<BR>Deeds of Flesh - Portals to Canaan (Unique Leader).<BR>Hatesphere - Murderlust (lim. digipack + bonus, Massacre).<BR>Mystic Prophecy - Killhammer (lim. CD+DVD A5 digipack, Massacre).<BR>Onslaught - VI (lim. digipack + bonus, AFM).<BR>Powerwolf - Preachers of the Night (lim. 2CD digibook, Napalm).<BR>Protector - Reanimated Homunculus (High Roller).<BR>Stortregn: <BR>- Uncreation (digipack, Great Dane);<BR>- Evocation of Light (digipack, Great Dane).<BR>Sulphur Aeon - Swallowed by the Ocean's Tide (F.D.A. Rekotz).
 
 ### ВИНИЛ - хочу всё знать
 

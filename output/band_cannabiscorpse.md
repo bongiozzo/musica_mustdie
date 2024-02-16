@@ -85,20 +85,10 @@ Headcrusher 30.08.2011 03:59:
 Максим - LOGIN! 05.08.2011 01:34:
 О как, лофко прикинулся шлангом... скрыв правдо. Из тебя конечно же, пелять!<BR><BR>Слушабельно, но ничего особо интересного:<BR>Cianide, 2011, Gods Of Death<BR>Cannabis Corpse, 2011, Beneath Grow Lights Thou Shalt Rise<BR>Fetus In Fetu, 2011, Abnormal Disfigurement<BR>Winds Of Plague, 2011, Against The World<BR><BR>А вот это ваще не покатило:<BR><BR>Novembers Doom, 2011, Aphotic<BR>Prognan, 2011, Vuk
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-НиколайНС 21.10.2013 23:42:
-niknetl (at) rambler ((.)) ru<BR><BR>Century Media:<BR><BR>Broken Hope - Omen of Disease (+ bonus tracks).<BR>Necrowretch - Putrid Death Sorcery.<BR>Treblinka - Shrine of the Pentagram (lim. 3CD A5 mediabook).<BR>Witherscape - The inheritance (lim. digibook + bonus tracks).<BR><BR><BR>Season of Mist:<BR><BR>Cannabis Corpse: <BR>- Tube of the Resinated;<BR>- Beneath Grow Lights Thou Shalt Rise.<BR>Gorguts - Colored Sands (lim. 2LP clear).<BR>Saint Virus:<BR>- C.O.D. (2013 re-release + bonus);<BR>- Die Healing (2013 re-release + bonus).<BR>Vulture Industries - The Tower (lim digipack).<BR><BR><BR>Прочее:<BR><BR>Cathedral - The Last Spire (slipcase, Rise Above).<BR>Cynic - Focus (remastered + bonus tracks, Roadrunner).<BR>Darkestrah - Манас (Osmose).<BR>Death - Symbolic (bonus tracks, Roadrunner).<BR>Deeds of Flesh - Portals to Canaan (Unique Leader).<BR>Hatesphere - Murderlust (lim. digipack + bonus, Massacre).<BR>Mystic Prophecy - Killhammer (lim. CD+DVD A5 digipack, Massacre).<BR>Onslaught - VI (lim. digipack + bonus, AFM).<BR>Powerwolf - Preachers of the Night (lim. 2CD digibook, Napalm).<BR>Protector - Reanimated Homunculus (High Roller).<BR>Stortregn: <BR>- Uncreation (digipack, Great Dane);<BR>- Evocation of Light (digipack, Great Dane).<BR>Sulphur Aeon - Swallowed by the Ocean's Tide (F.D.A. Rekotz).
-
 ### Новинки 2014
 
 Кукан Войны 05.01.2014 21:06:
 Ну появилась например такая хрень Cannabis Corpse & Ghoul - Splatterhash (2014) Правда сам не слушал ещё
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-НиколайНС 24.06.2014 08:08:
-niknetl (пёс) rambler ((.)) ru<BR><BR>Century Media:<BR><BR>Aborted - The Necrotic Manifesto (lim. box).<BR>Dawn: <BR>- The Eternal Forest - Demo Years 91-93;<BR>- N&#230;r S&#243;len Gar Ni&#254;er For Evogher (1994/2014 re-release);<BR>- Sorgh Pa Svarte Vingar Fl&#248;gh (1996/2014 re-release, ep);<BR>- Slaughtersun (Crown of the Triarchy)(1998/2014 re-release).<BR>Eyehategod - Eyehategod (lim. digipack).<BR>Lacuna Coil - Broken Crown Halo (lim. CD+DVD digipack).<BR>Massacra:<BR>- Final Holocaust (1990/2014 re-release);<BR>- Final Holocaust (lim. colored vinyl, 1990/2014 re-release);<BR>- Enjoy the Violence (1990/2014 re-release);<BR>- Enjoy the Violence (lim. colored vinyl, 1991/2014 re-release);<BR>- Signs of the Decline (1990/2014 re-release);<BR>- Signs of the Decline (lim. colored vinyl, 1992/2014 re-release).<BR>Triptykon: <BR>- Melana Chasmata (lim. digibook);<BR>- Melana Chasmata (lim. box).<BR>Vallenfyre - Splinters (lim. digipack).<BR><BR><BR>Season of Mist:<BR><BR>Cannabis Corpse - From Wisdom to Baked. <BR>Mayhem - Esoteric Warfare (lim. digipack).<BR>Septicflesh: <BR>- Titan (lim. 2CD digipack);<BR>- Titan (lim. box + TS).<BR><BR><BR>Прочее:<BR><BR>Agalloch - The Serpent & the Sphere (digipack, Eisenton).<BR>Impaled Nazarene - Vigorous and Liberating Death (Osmose).<BR>Incantation - Dirges of Elyzium (lim. digipack, Osmose).<BR>
 
 ### Новинки 2014
 

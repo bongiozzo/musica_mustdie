@@ -132,16 +132,6 @@ BattleGrim 30.05.2005 13:42:
 man 14.06.2005 18:34:
 DEVILYN отменяется, будет один ANCIENT. Но ожидается супер шоу, с участием танцовщиц, вампиров и всякой блек-металической нечести!!!!
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Nitro 04.04.2007 11:52:
-Немножко лицензии на продажу<BR> ABOMINATOR Nuctemeron Descent CDM 90<BR> AKERCOCKE Choronzon Soyuz 100<BR> DEATH ANGEL The Art Of Dying Irond 90<BR> DEATHBOUND Doomsday Comfort CDM 90<BR> DECEMBERWOLVES	Blasterpiece Theatre Soyuz 90<BR> DESTRUCTION Metal Discharge Irond 90<BR> DEVILYN Artefact CDM 90<BR> ENTWINE Gone Fono 90<BR> FATUM Obsession Of Loneliness Serpents Lair 90<BR> FINNUGOR Darkness Needs Us Irond 90<BR> LOST SOUL Ubermencsh CDM 90<BR> MYSTIC CIRCLE Open The Gates Of Hell AMG 90<BR> PRO - PAIN Prophets Of Doom Irond 1	00<BR> ROSSOMAHAAR Quaerite lux In Tenebris Sound Age 90<BR> RUDRA The Aryan Crusade Irond 100<BR> SYCRONOMICA Gate 2007 Irond 100<BR> THEATRE OF TRAGEDY Storm 2006 CDM 100<BR><BR>+ еще неменого пиратки<BR><BR> CALLENISH CIRCLE My Passion//Your Pain Monsters Of Rock (booklet)50<BR> SOULFLY 3 (booklet) 50<BR> SEPULTURA Roots + Bonus CD (Booklet) 100<BR> OBITUARY Frozen In Time (Booklet) 50<BR> CRYPTOPSY Once Was Not 2005 (Booklet) 50<BR> MOONSORROW Suden Uni (Booklet) 50<BR> NAPALM DEATH  Diatribes / Bootlegged In Japan AGAT 50<BR> NAPALM DEATH  Inside The Torn Apart / Words From The Exit Wound AGAT 50<BR> HELLOWEN Master of the rings (Booklet) 50<BR> LOBOTOMY lobotomy 40<BR> DRAGONLORD Rapture 40<BR> ESTATIC FEAR Somnium Obmutum 40<BR> <BR>+ CD-R вдогонку  (обсуждается отдельно)<BR><BR>Контакт: Nitro666(собака)Mail(точка)ru<BR><BR><BR>
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Nitro 27.04.2007 22:58:
-Лицензио<BR><BR> ABOMINATOR Nuctemeron Descent CDM 90<BR> AKERCOCKE Choronzon Soyuz 90<BR> DEATH ANGEL The Art Of Dying Irond 90<BR> DEATHBOUND Doomsday Comfort CDM 90<BR> DECEMBERWOLVES	Blasterpiece Theatre Soyuz 90<BR> DESTRUCTION Metal Discharge Irond 90<BR> DEVILYN Artefact CDM 90<BR> ENTWINE Gone Fono 90<BR> FATUM Obsession Of Loneliness Serpents Lair 90<BR> FINNUGOR Darkness Needs Us Irond 90<BR> LOST SOUL Ubermencsh CDM 90<BR> PRO - PAIN Prophets Of Doom Irond 90<BR> ROSSOMAHAAR Quaerite lux In Tenebris Sound Age 90<BR> RUDRA The Aryan Crusade Irond 90<BR> THEATRE OF TRAGEDY Storm 2006 CDM 90<BR><BR>+ еще неменого пиратко<BR><BR> CALLENISH CIRCLE My Passion//Your Pain Monsters Of Rock (booklet)50<BR> SOULFLY 3 (booklet) 50<BR> SEPULTURA Roots + Bonus CD (Booklet) 100<BR> OBITUARY Frozen In Time (Booklet) 50<BR> CRYPTOPSY Once Was Not 2005 (Booklet) 50<BR> NAPALM DEATH  Diatribes / Bootlegged In Japan AGAT 50<BR> NAPALM DEATH  Inside The Torn Apart / Words From The Exit Wound AGAT 50<BR> HELLOWEN Master of the rings (Booklet) 50<BR> LOBOTOMY lobotomy 40<BR> DRAGONLORD Rapture 40<BR> ESTATIC FEAR Somnium Obmutum 40<BR> <BR>+ CD-R вдогонку  (обсуждается отдельно)<BR><BR>Контакт: Nitro666(собака)Mail(точка)ru<BR>
-
 ### Нелюбимая метал-группа (которая особенно бесит)
 
 no more links 11.02.2015 16:35:

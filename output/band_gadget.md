@@ -31,16 +31,6 @@ Deep Purple – Machine Head (Warner Bros, made in USA) 250<BR>Haemorrhage – M
 mr.Kult 31.07.2008 09:27:
 <A HREF="http://turist.ru/goods/gadgets/49805.shtml" TARGET="_blank">http://turist.ru/goods/gadgets/49805.shtml</A><BR>Очень полезная штука. Надо на Нашествие такие было покупать :))
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-ixtiandr 08.10.2008 16:32:
-Народ, вы меня канешна сорри, но я всё ж думаю просто сделать очередной топек.<BR><BR>Жаркоша, у тебя было следующее:<BR><BR>Deep Purple – Machine Head (Warner Bros, made in USA) 250<BR>Haemorrhage – Morgue Sweet Home (Morbid Records, made in Germany) 150<BR>Merzbow – Batztoutai With Material Gadgets / Loop Panic Limited (2CD) cardboard sleeve (RRRecords, made in USA) 300<BR><BR>Тока я уже не помню, до чего мы договорились :))
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-КTT 22.11.2008 09:54:
-Продам: (связь pers1602@yandex.ru)<BR><BR>Фирма: (у всех состояние идеальное)<BR><BR>Dimmu Borgir - Death Cult Armageddon (Limited Ed. выполненное в виде книги с металлическими страницами, фото по запросу)<BR>Dimmu Borgir - In Sorte Diaboli (Limited Ed. digi CD+DVD+зеркало для чтения текстов)<BR>Metallica - The Memory Remains (single)<BR>Metallica - ReLoad<BR>Metallica - The Four Horsemen (3CD live box, Italy.) (rare)<BR>Metallica - Fuel (pt.1) Single<BR>Metallica - Fuel (pt.2) Single<BR>Napalm death - Mentally murdered (rare)<BR>Helloween - Chameleon<BR>Death - ... is just the beginning II<BR>Type O Negative - October Rust<BR>Exciter - O.T.T.<BR>Exciter - Unveiling The Wicked<BR>Annihilator - Metal (Promo)<BR>Judas Priest - Jugulator<BR>Accept - Death Now<BR>Royal Hunt - The Mission (Japan, OBI есть)<BR>Royal Hunt - Fear  (Japan, OBI есть)<BR>Winger - In The Heart Of The Young<BR>Kiss - Crazy Nights<BR>Sepultura - Dante XXI (Promo, Slip Box)<BR>Amorphis - Fear From The Sun<BR>Godsmack - Faceless<BR>Biohazard - Urban Discipline (digipack) <BR>Dismember - Death Metal<BR>Venom - Eine Kleine Nachtmusik <BR>Necroterio - A Rotten Pile Of Dead Humans<BR>Genocide - Blood Spilled <BR>Atavism\Putrefied Genitalia - Split CD<BR>Poppy Seed Grinder - Opressed Reality<BR>Gadget, Disfear, Asssel, Genocide Superstar, Sayyadina, Birdflesh - Split CD<BR>Deathrow - Raging Steel Thrash<BR>Death Angel - Killing Season (CD+DVD)<BR>Necronomicon - Escalation<BR><BR><BR>связь pers1602@yandex.ru<BR>  <BR> <BR>
-
 ### Brutal Assault 2009
 
 Максим - LOGIN! 05.07.2009 06:27:

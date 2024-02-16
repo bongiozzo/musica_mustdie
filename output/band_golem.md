@@ -826,20 +826,10 @@ vasiyama felix 04.11.2007 18:23:
 steeler 21.11.2007 00:32:
 2Iron Golem - вот тебе бутлег: <A HREF="http://rapidshare.com/files/60824715/Paradise_Lost_-_Alcatraz_-_Milano__Italy_23.09.rar" TARGET="_blank">http://rapidshare.com/files/60824715/Paradise_Lost_-_Alcatraz_-_Milano__Italy_23.09.rar</A> Тот самый, про который Железный Феликс выше отпостил.
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Ласковый Бык 18.01.2008 12:46:
-Поменяю следующий стафф:<BR><BR>Agathocles / H.407 2006 For What? For Who? (split) grind <BR>Antiphrasis 2004 Gutsfuck black <BR>Antisemitex 2005 No hope, no future, just WAR NS-metal <BR>Archontes 2004 Book One: The Child Of Two Worlds <BR>Axemaster 2002 Death Before Dishonour heavy <BR>Capricornus 2004 Alone Against All NSBM <BR>Datura 2005 Impulse 80 grind <BR>Deepred 2001 Prophetic Luster death <BR>Demiurg 2004 Bastinado avantgarde black <BR>Dreams Of Sanity 1998 Komodia <BR>Edenbeast 2005 Shortcuts Of Erotic Violence melodic death <BR>Gallhammer 2004 Gloomy Lights japan black <BR>Godz At War 2003 Postmortem melodic death <BR>Goliard 2004 Artissimae Tenebrae black (ukraine) <BR>Hate Forest 2001 The Gates <BR>Infidel 2006 Killing For Immortality death <BR>Low Twelve 2006 This Side Toward Enemy angry thrash metal <BR>Lucifugum 2005 Vector 33 cult BM <BR>Maple Cross 2003 Next Chapter melodic death <BR>Morbid Savouring 2003 Insensitivicious goregrind <BR>Mysogynist Pussyslasher & Creamface 2005 Split pornogrind <BR>Mystical Gate 2004 In Sadness Gloom… doom <BR>Ordem Maligna 2003 Automated Universal Dictatorship black (CDR с фирменной вкладкой) <BR>Pogrom 2005 ..oe yeltovlec hal opououc white power (CDR с фирменной вкладкой) <BR>S.O.G. 2004 Az Almok Valora Valnak… NS death <BR>Satarial 2001 Heidenlarm <BR>Sic Seed 2003 Psychotic Bloodline thrash <BR>Slamfist 2000 Skullsmasher death <BR>Stagnatus 2002 Utima Thule sypho black <BR>Svartkraft 2004 Den Onda Pesten black <BR>Swirling Sunwheels 2003 The Strong Shall Prevail NS ambient <BR>Terror Squad – The wild stream of eternal sin (2000), japan thrash <BR>Tonka 1999 …This Present Darkness… thrash <BR>Trance Opera 1996 Magical Classic Dreams   <BR>Wewelsburg 2006 Vier Jahre des Kampfes NS industrial metal <BR>Wulfhere 2004 Wer rasted, der Roste NSBM <BR>Xenophobia 2006 Reclaming Celtic Glory NSBM <BR>Адонирам 2005 Мой демон black-ambient <BR>Варяг 2006 Память NS pagan <BR>Патриарх 2006 Темный мир людей black <BR><BR>Лицензия: <BR>Ancient Drive 2000 Black Orgies gothic rock <BR>Aura Noir 2001 Increased Damnation <BR>Avec Tristesse 2002 Ravishing Beauty sympho black <BR>Barathrum 2000 Okkult <BR>Darzamat 2002 In The Opium Of Black Veil (1998) <BR>Deathonator – The endsville (2005), death <BR>Dein Schatten 2002 Das Ewige Eis industrial <BR>Dimmu Borgir 2003 Death Cult Armageddon <BR>Dismal Euphony 2000 Python Zero <BR>Dissection 2006 Reinkaos <BR>Divercia 2002 Modus Operandi gothic doom metal <BR>Dreadful Shadows 1995 Homeless (EP) <BR>Edenbridge 2003 Aphelion <BR>Edenbridge 2000 Sunrise In Eden <BR>Elis 2003 God’s Silence, Devil’s Temptation gothic doom <BR>Embraze 2002 Katharsis gothic metal <BR>Entwine 2001 Gone gothic doom <BR>Evemaster 2004 Wither melodic death <BR>Galadriel 2002 From Ashes & Dust doom <BR>Golem 2003 Death Never Dies melodic death <BR>Hortus Animae 2003 Waltzing Mephisto sympho black <BR>Inner Shrine 2002 Fallen Beauty <BR>Megaherz 2005 5 <BR>Nightwish 2004 Once <BR>Old Mans Child 2002 In Defiance Of Existance <BR>Rakoth 2001 Jabberworks <BR>Ram-Zet 2000 Pure Therapy <BR>Saints Of Eden 2003 Proteus EBM <BR>Seraphim 2004 Ai like nightwish <BR>Suidakra 2000 The Arcanum <BR>Sunchariot 2001 Harvest black <BR>Sunterra 2005 Graceful Times <BR>Tenebre 2000 Mark Ov The Beast gothic metal <BR>The Rasmus 2003 Dead Letters <BR>Throes Of Dawn 2004 Quicksilver Clouds <BR>Tyr 2003 How Far Asgaard - <BR>Valhalla 2004 Hail To The Fallen Majesty black <BR><BR>Интересует death metal, hardcore, doomdeath<BR>Контакт: papavader@mail.ru <BR>
-
 ### Неужели распад???
 
 slesar 21.01.2008 14:25:
 Iron Golem:(21.01.2008 14:12) <BR>Да там звук плавает...особенно в самой первой. Видео этому сам понимаешь, 17 лет...И хранилась кассета в последние лет 10 кое-как...<BR>Не знаю, сможет ли современная компьютерная техника чтоньть сделать в этом случае...<BR>А там ещё дописочка клёвая...Аки-Даки (доннингтон) 90-го года...Чума ваще.
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Ласковый Бык 31.01.2008 12:48:
-======= ЛИЦЕНЗИЯ ============<BR><BR>Лицензия: <BR><BR>Ancient Drive 2000 Black Orgies gothic rock<BR>Aura Noir 2001 Increased Damnation <BR>Avec Tristesse 2002 Ravishing Beauty sympho black<BR>Dein Schatten 2002 Das Ewige Eis industrial<BR>Dismal Euphony 2000 Python Zero <BR>Divina Enema - Under Phoenix Phenomenon (avant metal)<BR>Dreadful Shadows 1995 Homeless (EP) <BR>Embraze 2002 Katharsis gothic metal<BR>Evemaster 2004 Wither melodic death<BR>Galadriel 2002 From Ashes & Dust doom<BR>Golem 2003 Death Never Dies melodic death<BR>Hortus Animae 2003 Waltzing Mephisto sympho black<BR>Love Lies Bleeding 2000 Behold My Vein Sacrifide gothic doom black<BR>Megaherz 2005 5 <BR>Old Mans Child 2002 In Defiance Of Existance <BR>Rakoth 2001 Jabberworks <BR>Ram-Zet 2000 Pure Therapy <BR>Saints Of Eden 2003 Proteus EBM<BR>Scar Symmetry 2006 Pitch Black Progress modern melodic death <BR>Tenebre 2000 Mark Ov The Beast gothic metal<BR>Thee Maldoror Kollective 2002 New Era Viral Order (Dogma Slaughterhouse… industrial black <BR>The Rasmus 2003 Dead Letters <BR>Tyr 2003 How Far Asgaard -<BR>Valhalla 2004 Hail To The Fallen Majesty black<BR>Visions Of Atlantis 2004 Cast Away sympho-power<BR>Артерия - Лети на свет (heavy) <BR>Волколак - Подвиг седого короля (pagan folk) <BR>Волколак - Слава Яриле (pagan folk) <BR>Волколак - Темный блеск чешуи (pagan metal) <BR>Волколак / ХорСС - Белые амурские волки (pagan folk / RAC, pro CD-R) <BR>Лютень - Полагаясь только на себя (nsbm, compilation of unreleased stuff, pro CD-R) <BR>Мор - Лесоморие. Касание смерти (exp black ambient + 2 ремикса от Севера (Лихолесье))  <BR>Навь - Чертоги смерти (raw black, первое издание) <BR>Сварга - Явь воздымает (nsbm) <BR>
 
 ### Турнир спорт-прогнозов
 
@@ -1155,11 +1145,6 @@ ixtiandr 02.03.2009 11:51:
 
 vasiyama felix 15.03.2009 22:36:
 <B>Первый тур</B><BR>Динамо(М) — Москва 1:0<BR>Рубин — Кубань 3:0<BR>Амкар — Ростов 0:0<BR>Локомотив(М) — Химки 1:1<BR>Терек — Спартак(Нч) 1:0<BR>Спартак(М) — Зенит 1:1<BR>Сатурн — ЦСКА 0:3<BR>Томь — Крылья Советов 0:1<BR><BR>В стартовом туре уверенно победили <B>Dronor & Pankrat</B>.<BR>Очень удачно запрыгнул на подножку уходящево поэзда <B>LexRock</B>, угадавший все четыре ризалта.<BR><BR>Dronor 14<BR>Pankrat 14<BR>bucketcat 11<BR>mySh 11<BR>LexRock 10<BR>Torvald 10<BR>I'Tiok 8<BR>Loveroses 8<BR>Крылатый 8<BR>Iron Golem 7<BR>DragonLord 6<BR>kirilll 6<BR>Пьяный перегор32 2<BR>Хорёк-Пыжик 666 2<BR><BR>Штож, сезон начался :aaa:<BR>Надеюсь, ещё подтянутся такиэ проверенныэ бойцы, как PAlex, Soubbterranean, White Scull, wsz...<BR>Слава всем нам!
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Headcrusher 20.03.2009 03:26:
-<B>Protector</B> "Echoes From The Past..." <I>(I Hate Records)</I><BR><BR><U><B>350</B> руб.</U><BR><BR><A HREF="http://www.ihate.se/images/releases/ihate004.jpg" TARGET="_blank">http://www.ihate.se/images/releases/ihate004.jpg</A><BR><BR>Released 2006-03-31 in a digipak version.<BR><BR>Re-release of Protector's classic <B>-86 two track demo</B>, <B>-87 Misanthropy</B> MLP and <B>-88 Golem</B> LP on one CD! The material has still NOT been re-mastered, in order to preserve the devastating rawness of the songs! The 24 page booklet is crammed with exclusive photos and comes with an extensive biography written by original singer Martin Missy. Limited to 1000 copies.<BR>
 
 ### Турнир спорт-прогнозов
 
@@ -1881,11 +1866,6 @@ Iron Golem 05.10.2011 03:21:
 Iron Golem 16.10.2011 21:40:
 27-й тур<BR>	<BR>ЦСКА — Терек 2:2<BR>Зенит — Динамо 0:0<BR>Кр.Советов — Волга 0:0<BR>Краснодар — Ростов 2:0<BR>Локомотив — Томь 3:0<BR>Рубин — Спартак (М) 3:0<BR>Амкар — Кубань 3:1<BR>Спартак (Нч) — Анжи 1:1<BR><BR>Soubbterranean - 6<BR>Dron Liberten - 1<BR>Hopolainen - 2<BR>Панкрат - 1<BR>kirilll - 6<BR>Iron Golem - 1<BR>Ancient Ceremony - 6<BR>Крылатый - 4<BR>Shadowspawn - 3<BR>I'Tiok - 4<BR>kratk - 5<BR>Пьяный перегор32 - 4<BR>dokoleepta - 1<BR>Dronor - 2<BR>Loveroses - 6<BR>Ed the Hunter-2 - 4<BR>LexRock - 4<BR>Torvald - 3<BR><BR>Турнирная таблица:<BR><BR>01. Shadowspawn - 195<BR>02. Крылатый - 188<BR>03. I'Tiok - 187<BR>04-05. Dronor - 179<BR>04-05. Пьяный перегор32 - 179<BR>06. Dron Liberten - 167<BR>07. Iron Golem - 164<BR>08. Torvald - 163<BR>09-10. dokoleepta - 162<BR>09-10. Loveroses - 162<BR>11. Hopolainen - 159<BR>12. kirilll - 156<BR>13. Панкрат - 155<BR>14. kratk - 154<BR>15. LexRock - 150<BR>16. Ed the Hunter - 145<BR>17. Soubbterranean - 144<BR>18. Ancient Ceremony - 143<BR><BR>Проверяйте свои очки.
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-valentine7 20.10.2011 12:48:
-Всем привет. Вот несколько позиций за которые готов заплатить хороший прайс:<BR>ACRIDITY FOR FREEDOM I CRY Prophecy rec <BR>Accuser "the conviction/experimental errors koch 1997<BR>Asphyxia "Exit reality"<BR>Arhaic Torse "Sneak Attack" 1992 1MF rec<BR>Dethrone "let the day begin" UOF<BR>Eudoxis "Open fire" fringe<BR>Disciples of power Powertrap 1989 fringe<BR>Disciples of Power - Ominous Prophecy <BR>Lunacy "face no more" 1990<BR>Nuclear Assault - Survive / ORG 88 UOF <BR>Protector "golem" atom h 1988 <BR>Protector "the heritage" major 1993 <BR>Torture "storm Alert"metalcore 1989<BR>Toxic Shock "Between good and evil" massacre 1992<BR>Morbid Saint Spectrum of Death 1988 grind core rec 1992<BR>Loudblast "Sublimine dementia" 1993 Semetary rec original<BR>Loudblast "Cross the treshold" 1993 EP semetary rec<BR>Monstrosity "Imperial doom" nuclear blast 1992<BR>Monstrosity "Millenium" 1996<BR>Sadus "Swallowed in black" 1991 roadracer <BR>Sadus "A Vision of Misery" 1992 roadracer<BR><BR>Единственно-без почты. Ток москва.
-
 ### Турнир спорт-прогнозов
 
 Iron Golem 25.10.2011 15:05:
@@ -1915,11 +1895,6 @@ Iron Golem 28.11.2011 13:15:
 
 eddie 29.12.2011 15:58:
 Iron Golem:(29.12.2011 15:48)<BR><BR>готов обсудить каждый конкретный факт.<BR>При этом проблемы России в этой области - системные, тут отдельными случаями не обойтись. <BR>Думаю, пока Айрон Големов много, так и будет продолжаться.
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-valentine7 07.02.2012 23:22:
-Куплю:<BR>Loudblast "Sensorial Treatment" 1989 jungle hop <BR>Protector "Golem" Atom H 1988<BR>Agressor &gt; Towards Beyond 1992 black mark<BR>Asphyxia "Exit Reality" Rumble rec 1991<BR>Prestige "selling the salvation" poko 1990<BR>Disciples of power-Powertrap 1989 fringe<BR>Wrath "Fit of Anger" medusa 1988<BR>Rigor Mortis "Rigor Mortis" 1989 capitol<BR><BR>Дорого, некоторые очень дорого<BR><BR><BR>tilitili06@rambler.ru
 
 ### а если переиздать старье Metal Agen на винилах?
 
@@ -1966,11 +1941,6 @@ Dronor 22.07.2013 12:53:
 Dronor 25.07.2013 19:23:
 2 тур<BR>Динамо - Анжи 2:1<BR>Терек - Амкар 1:1<BR>Томь - Кубань 1:2<BR>Волга - Локомотив 1:2<BR>Ростов - Краснодар 2:2<BR>Рубин - Зенит 2:1<BR>Урал - Спартак 0:2<BR>ЦСКА - Крылья Советов 2:1<BR>Тур выиграл Пьяный перегор32-11. Он же возглавил таблицу<BR>kirilll-10<BR>Панкрат-5<BR>Пьяный перегор32-11<BR>Ed the Hunter-2-7<BR>Dronor-5<BR>Iron Golem-6<BR>1.Пьяный перегор32-20<BR>2.Ed the Hunter-2-17<BR>3-4.kirilll-12<BR>3-4.Iron Golem-12<BR>5. Панкрат-10<BR>6. Dronor-7<BR><BR>
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Кукан Войны 26.07.2013 10:30:
-BLACKTHORN (Mex) ( 2012 ) The Rotten Ways Of Human Misery.. (Gates Of Hell) 600p<BR>НАДО СКАЗАТЬ ПАРУ СЛОВ ОБ ЭТОМ ДИСКЕ!!! Впервые альбом был выпущен в 1992 году легендарной фирмой Avanzada Metalica. переиздан в 2012 году тиражом всего лишь 500 копий!!! Не упустите свой экземпляр!!! Великолепный дэт, сравнимый с таким гениальным альбомом как DEATH Leprosy!<BR>Послушать здесь<BR><A HREF="http://www.youtube.com/watch?v=Cze40tI8Pxs" TARGET="_blank">http://www.youtube.com/watch?v=Cze40tI8Pxs</A><BR><BR><BR>PUNGENT STENCH ( 1994 ) Club Mondo Bizarre. (Nuclear Blast) 1500 /на обложке обезьяна/<BR>PROCER VENEFICUS ( 2006 ) Ghostvoices. (God Is Myth) Ltd 350 NEW<BR>PYREXIA ( 2011 ) System Of The Animal. (Pathologikally Excplicit) 500<BR>PYREXIA ( 2007 ) Age Of The Wicked. (Unique Leader) 450<BR>PROTECTOR ( 2003 ) Echoes From The Past.Misanthropy+Golem. (I Hate Records) 950<BR><BR>SAMAEL ( 1994 ) Ceremony Of Opposites. (Century Media USA 1st) 550<BR>SAMAEL ( 1999 ) Eternal. (Century Media) Digipack 550<BR>SAMAEL ( 2007 ) Solar Soul. (Nuclear Blast) Digipack  550<BR><BR>И многое другое вы найдёте на дарк(censored)айде.
-
 ### Турнир спорт-прогнозов
 
 Dronor 30.07.2013 13:51:
@@ -2015,11 +1985,6 @@ Dronor 17.09.2013 16:05:
 
 Dronor 23.09.2013 14:05:
 9-й тур<BR>Волга - Анжи 2:1<BR>Динамо - Локомотив 1:3<BR>Крылья Советов - Урал 1:1<BR>Кубань - Амкар 0:3<BR>Спартак - ЦСКА 3:0<BR>Ростов - Зенит 0:4<BR>Рубин - Томь 1:2<BR>Терек - Краснодар 0:1<BR><BR>Не особо предсказуемый Тур выиграл Iron Golem -6 очков<BR><BR>Пьяный перегор 32-3<BR>Iron Golem -6<BR>Dronor-3<BR>Панкрат-5<BR>Ed the Hunter-2-5<BR>kirilll-прогноз не найден<BR><BR>1.Пьяный перегор32-80<BR>2.Ed the Hunter-2-70<BR>3.Iron Golem-62<BR>4.kirilll-54<BR>5.Панкрат-53<BR>6.Dronor-50 
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-valentine7 26.09.2013 17:06:
-Продано:<BR>Bethzaida	Nine Worlds	96	ORG	Season Of Mist<BR>Fimbulwinter	Servants Of Sorcery	94	ORG	Hot Records<BR>Mandator	Perfect Progeny	89	BOOTLEG	Disaster<BR>Protector	Golem	88	ORG	Atom H<BR>Vex	Act Of Revenge	95	ORG	D&S Records<BR>Agathocles	Theatric Symbolisation Of Life	92	ORG	Cyber Music<BR>Bathory	Blood Fire Death	88	ORG	Under One Flag<BR>Behemoth	...From The Pagan Vastlands	95	ORG	Wild Rags Records<BR>Cenotaph	Riding Our Black Oceans	94	ORG	Cyber Music<BR>Cogency	The Cogency Revenge	93	ORG	D&S Records<BR>Destruction	Cracked Brain	90	ORG	Noise Records / BMG<BR>Deztroyer	Climate Change	90/2000	R/R	Self Release<BR>Drogheda	Pogromist	96	ORG	Wild Rags Records<BR>Grotesque	In The Embrace Of Evil	96	ORG	Black Sun Records<BR>Mythological Cold Towers	Sphere Of Nebaddon	96	ORG	Sound Riot Records<BR>Napalm Death	From Enslavement To Obliteration + Scum	88	ORG	Earache<BR>Protector	A Shedding Of Skin	91	ORG	C&C, Major Records International<BR>Psychopath	Making The Transition	91	ORG	Major Records<BR>Sub-Machine	Horror under Street	95	ORG	D&S Recording<BR>Torch	Torch	90	ORG	Enigma / Metal Blade<BR>Loudblast "Sublimine dementia" 1993 noise like new!<BR>Shah	Beware	90	ORG	Teichiku Records - 3300r<BR>
 
 ### Турнир спорт-прогнозов
 

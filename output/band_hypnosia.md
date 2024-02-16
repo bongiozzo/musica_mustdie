@@ -61,33 +61,3 @@ Blasphemer 15.05.2007 18:51:
 Кукан Войны 08.02.2014 13:12:
 Из трэшака следует оценит ебуче-ядовитый HYPNOSIA Extreme Hatred.  Ну и Тич рекомендовал охуенных LICH KING (только не 8-битный альбом:).<BR>Кстати, последний PROTECTOR Reanimated Homunculus не забываем!
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-valentine7 26.12.2014 16:46:
-Under black clouds "As darkness falls" 1996 ARS METALI ARS001 near mint 300<BR>Amorphis Elegy 1996 orig relapse 350r<BR>Helloween - Treasure Chest compilation 2 cd 2002 orig press near mint 300<BR>все-800<BR><BR>EXODUS "Force Of Habit" ORG 1st press USA mint 600r<BR>HYPNOSIA Extreme Hatred / Violent Intensity EP (Kill Again Records) RARE SWEDISH THRASH! 650r<BR>DESTRUCTION - LIVE WITHOUT SENSE ORIGINAL CD 4807-2-U 1989 USA 1press пропилен кейс и буклет 450р<BR>Teatament 1990 Souls of Black 1PRESS orig atlantic germany NM 450r<BR>за все 1800<BR><BR>HOLY MOSES "Strength, Power, Will, Passion" 2005 amg orig near mint digipack 500р<BR>Fates Warning 1991 Parallels 1 press USA metal blade mint! 500r<BR>Mercyful Fate	Into The Unknown	1996 orig 1 press metal blade mint 300r<BR>	<BR>Threnody 1993 The heavens fall 1 press masscre-600р как нов<BR>
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-valentine7 25.11.2015 12:05:
-Machine Head 1997 The more things change RR8860-5 Mint DIGIPACK+3BONUS 600r<BR>Sacred Reich - Heal 1996 1 PRESS 450<BR>Flotsam And Jetsam - High 1997 1 PRESS GERM. MINT 400<BR>WIDOWMAKER - STAND BY FOR PAIN CMC 1994 ORG RARE! 1 PRESS 700<BR>Helloween 1988 Keeper of the seven keys II NOISE Matrix-GZ NO IFPI NM 600r<BR>Phantom "Cyberchrist" 1993 shark orig 1PRESS in mint!! 700<BR>HYPNOSIA Extreme Hatred / Violent Intensity EP (Kill Again Records) RARE SWEDISH THRASH! 750<BR>
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-valentine7 15.12.2015 10:24:
-HEATHEN - Victims Of Deception cd (Original Roadracer USA 1991) NO IFPI 1 PRESS 1500r<BR>Sacrament 1995 "Agony" Under siege rec RARE! 2000r<BR>FAITH OR FEAR Punishment Area CD 1989 ORIG 1st PRESS USA COMBAT! 1300r NM<BR>Deathrow 1992 "Life beyond" WVR 1 PRESS MINT! 100% orig. 3000r<BR>Epidemic 1992 Decameron USA Thrash DEATH METAL ! RARE! METAL BLADE/ZORRO NM 2400r<BR>Helloween Walls of Jericho 1985/1986 Noise/USA international RARE! 1300r NM<BR>Running Wild 1991 Blazon Stone EMI/NOISE 1C 564 7962280-2 NM 1000r<BR>Running Wild – Gates To Purgatory 1984/1992 Noise (GZ E72616 NCD 001, no ifpi code) 1300<BR>Flotsam And Jetsam 1992 Cuatro DADC AUSTRIA 1 PRESS 900r<BR>Sacred Reich - Heal 1996 1 PRESS USA 500<BR>WIDOWMAKER - STAND BY FOR PAIN CMC 1994 ORG RARE! 1 PRESS 600<BR>Helloween 1988 Keeper of the seven keys II NOISE Matrix-GZ NO IFPI NM 700r<BR>Phantom "Cyberchrist" 1993 shark orig 1PRESS in mint!! 700<BR>HYPNOSIA Extreme Hatred / Violent Intensity EP (Kill Again Records) RARE SWEDISH THRASH! 750<BR>Dark Tranquillity 1993/1996 Skydancer/Chaos and eternal night" Spinefarm ORIG PRESS SPI34 CD Mint-Like new! 1500<BR>Metallica - Kill 'Em All 1983 JAPAN MINI VINYL +OBI  (UICY-94662) в ориг.пакете. 1500 как нов.<BR>Accept 1985 Metal Heart JAPAN+OBI EPIC 25&#12539;8P-5241 NO IFPI! NM 1800r<BR>Dream Theatre 1997 Falling Into Infinity+ mini CD AMCY-2315 + 1200<BR>Dream Theatre 1999 Scenes From A Memory AMCY-7087 + 1200<BR>Annihilator 2002 Waking The Fury CRCL-4800 +оби 1200<BR>GRIP INC 1997 "NEMESIS" JAPAN + OBI VICTOR VICP-5820 MINT 1200r (LOMBARDO SORYCHTA-EX DESPAIR)<BR>Vektor - Outer Isolation Japan CD IUCP-16127 +OBI + 2 Bonus mint 1900r<BR>ВИНИ:<BR>Holy moses 2014 Redefined Mayhem 2LP+BONUS CD Steamhammer orig NEW 2100r<BR>Sacrilege BC Too cool To Pray 1988 MEDUSA NM 1400r<BR>COVEN BLESSED IS THE BLACK 1987 LP w/ LYRIC SLEEVE NM 1500р
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-valentine7 08.08.2016 11:42:
-Продажа:<BR>Incubator 1993 Hirnnektar 1 PRESS NM! SPV 084-76732 800r<BR>MALEVOLENT CREATION 1997 IN COLD BLOOD system shock 1 PRESS СD-NM 800r<BR>Testament 2000 Live at fillmore 1 PRESS SPITFIRE REC NM 500<BR>Death Angel 1990 Fall from Grace ENIGMA 1 PRESS NM 600<BR>Panic - Epidemic 1991 metal blade 1 press 600r<BR>Leviathan - deepesh secrets beneath CD ORIGINAL RTN 1994 как нов. 700<BR>Threnody 1993 AS THE HEAVENS FALL MASSACRE 1 PRESS MINT! 600r<BR>Tiamat 1992 Clouds USA 1 PRESS (hole in barcode) 300r<BR>Altar - Red Harvest / ORG 2001 Spitzenburg Dutch Death NM 550<BR>Cro-Mags 1992 Alfa-Omega 1 press CM GERM/ 600<BR>Hypnosia "Extreme Hatred" KILL AGAIN REC 500<BR>Defiance The PRophecy 2009 Candlelight rec mint-like new! USA PRESS 500r<BR>Forbidden Omega Wave 2010 DIGI NUCLEAR BLAST USA 500<BR>Fates Warning - Perfect Symmetry ROADRUNNER RECORDS 1989 1 PRESS MINT 600<BR>Fates Warning 1991 Parallels Metal Blade USa 1 PRESS Mint 500<BR>Forgotten Silence Bya Bamahe Neem EP 2004 Czech Republic Epidemie Records EPR047 400<BR>Candlemass Epicus Doomicus Metallicus orig Powerline 2CD Reliese PLRCD 02 mint 600r <BR>Manowar 1988 Kings Of Metal Atlantic 1 germany press Near mint 500 <BR>Megadeth 1992 Foreclosure Of Dream (EP) CAPITOL 1PRESS USA 200<BR>King Diamond 1986 Fatal Portrait Reissue Gold Series 1998 Like new! (2 bonus) 700
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-valentine7 19.06.2017 13:33:
-LIVING SACRIFICE 1992/1999 NONEXISTENT orig re-reliese SOLID STATE REC near mint 550 <BR>HYPNOSIA "EXTREME HATRED" 2000\2010 KILL AGAIN REC 2010 Re-release by Kill Again Records with Violent Intensity EP and My Belief (Possessed Cover) as bonus tracks 700<BR>Grave &#8206;– Into The Grave/Tremendous Pain 1991/1990 DEMO 2001 Reliese CENTURY MEDIA MINT 500r<BR>ENTROPY "Transcendence" ORG 1st INAZONE press 1995 Rare canadian post thrash
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-valentine7 12.08.2017 10:00:
-BLOODSTONE "Hour Of The Gate" Dark Symphonies(old school swedish death) obi mint-like new 600<BR>MORDRED 1993 VISIONS fUTURIST NM ORIG PRESS USA 500<BR>NEVERMORE 1996 IN MEMORY 1 USA PRESS DIGI MINT 650r<BR>Overdose 1994 Progress of Decadence ( RDP SEPULTURA Brasilian thrash!) OUF CDFLAG 83 Rare! 750r<BR>EXTREMA Tension At The Seams Rosemary`s 1993 BABE 5 CD nm 800<BR>CREMATORY - Denial CD - 2nd Necroharmonic Press - 2009 900р<BR>Woslom - Evolustruction / Thrash Metal / 2014 / Brazil / Jewel CD / Punishment 18 350<BR>SEPULTURA "Arise" ORG 1991 RC press USA NO IFPI DIDX NM 900<BR>OBITUARY - Xecutioner's Return CD slipcase (Candlelight 2007) минт 400р УЦенено!<BR>HYPNOSIA "EXTREME HATRED" 2000\2010 KILL AGAIN REC 2010 Re-release by Kill Again Records with Violent Intensity EP and My Belief (Possessed Cover) as bonus tracks 700<BR>ENTOMBED 1993 HOLLOWMAN EP 6 TRACK. MOSH 94 CD минт 900<BR>
-

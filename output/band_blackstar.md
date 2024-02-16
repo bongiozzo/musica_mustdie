@@ -118,11 +118,6 @@ Vit Belov 01.06.2005 13:09:
 phi1in 04.02.2006 15:52:
 правильный сабж! <BR>вот вам навскидку:<BR><BR>Ози - No More Tears (91) - Саботаж - Opiumniy dim<BR><BR>Audioslave - your_time_has_come (05) - Metallica - Bad Seed (97)<BR><BR>Entombed - The Itch (00) - RATM - Freedom (92)<BR><BR>Pantera - Primal Concrete Sledge (90) - RHCP - Punk rock classic (89)<BR><BR>Blackstar - instrumental (97) - Illdisposed - Not A Vision - 1991 (97)<BR><BR>Testament - As The Seasons Grey (92) - Testament - The_Burning_Times (96)<BR><BR> Gorefest - Burn Out (98) - Metallica - Mama Said (96)<BR><BR>Ambeon - Lost Message (01) - Ayreon - Valley Of The Queens (98)<BR><BR>DIO - Challis (00) - Pantera - Cat_Scratch_Fever<BR><BR>Katatonia - Inside The City Of Glass (05) - Paradise Lost - Deus Misereatur (93)
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Headcrusher 04.04.2007 21:38:
-Продам:<BR><BR><B>Illdisposed</B> "There's Something Rotten..." 1999 <I>Pavement Music</I> <U>250 руб.</U><BR><B>Blackstar</B> "Barbed Wire Soul" 1997 <I>Metal Blade</I> <U>300 руб.</U><BR><B>Sorrow</B> "Hatred And Disgust" 1992 <I>Roadrunner</I> <U>300 руб.</U><BR><B>Hades</B> "The Downside" 2000 <I>Metal Blade</I> <U>250 руб.</U><BR><B>Speckman Project</B> "S/T" 1991 <I>Nuclear Blast</I> <U>300 руб.</U><BR><B>Flotsam And Jetsam</B> "High" 1997 <I>Metal Blade</I> <U>300 руб.</U><BR><BR>Новьё! :-)<BR>
-
 ### ПЕСНЯ ГОДА 2007
 
 Grim Reaper 05.12.2007 22:06:
@@ -138,11 +133,6 @@ hobotok 27.04.2010 19:05:
 Moonster 17.05.2010 22:46:
 Хороши:<BR>Kissin Dynamite<BR>Blackstar Halo<BR>Anacrusis<BR>Crashdiet<BR>Danko Jones<BR>
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-bashmachok 06.08.2010 00:51:
-Продаются фирм.компакт-диски, в Москве. <BR>По вопросам приобретения пишите на e-mail - bloodcraving@yandex.ru<BR><BR>BAAL -2003 “State Of Agression” / American Line -100<BR>BON JOVI –2005 “Have A Nice Day” (dual disc: cd/dvd) / Island -230<BR>BORKNAGAR -1997 “The Olden Domain” / Black Metal Attack (бразильское издание) -250<BR>BRIAN MAY -1993 “Back To The Light” (orig press) / Hollywood -400<BR>CREMATORY -1997 “Awake” (orig press) / Nuclear Blast -350<BR>DEPECHE MODE -1986 “Black Celebration” / Sire -350<BR>FAIR WARNING -1997 “Go!” / Zero Corp. (Japan) -400<BR>FALL FROM GRACE -1995 “Within The Savage Garden” / Bootsie Music -250<BR>HARDINGROCK -2007 “Grimen” / Candelight -300<BR>KATATONIA -1993 “Dance Of Decembre Souls” / Century Media USA -350<BR>LORD BELIAL -2007 “Revelation – The 7th Seal” / Regain -350<BR>MOAHNI MOAHNA -1994 “Temple Of Life” / SMC -350<BR>MYOPIA -2007 “Enter Insect Masterplan” / Selfmageddon -200<BR>RISK -1993 “Turpitude” / SPV -350<BR>SIX FEET UNDER -1996 “Alive and Dead” / Metal Blade -250<BR>STREAM -1998 “Nothing is Sacred” / USG Rec. -250<BR>THOUGHT INDUSTRY -1993 “Mods Carve the Pig” / Metal Blade -200<BR>TORI AMOS -1999 “To Venus and Back” (2CD) / Atlantic -250<BR>VOX INTERIUM -2003 “Yearning” / New Aeon Media -180<BR><BR>AGRESSOR -2004 “The Merciless Onslaught” / DeadSun -400<BR>ALMIGHTY -2000 “The Almighty” / Sanctuary -250<BR>BLACKSTAR -1997 “Barbed Wire Soul” (<B>1st press</B>) / Peacevile -550<BR>BRUCE DICKINSON -1996 “Skunkworks” (2CD deluxe edition 2005) / Sanctuary -350<BR>BURNING POINT -2001 “Salvation By Fire” / Limb Music -250<BR>CHRIS POLAND -1990 “Return to Metalopolis” / Fuel 2000 (edition 1998).-350<BR>CONCEPTION -1993 “Parallel Minds” Noise (Japan edition БЕЗ OBI) -350<BR>DEADEN -2006 “Displaying the Art of Carnage” -320<BR>HELICON -1994 “Mysterious Skip Jack” / Noise (Japan +2 bonus) -450<BR>JAMES BYRD’s ATLANTIS RISING -1990 “S/T” / Shrapnel -300<BR>LIVIDITY -2006 “Used, Abused, And Left for Dead” -350<BR>NIGHTWISH -1997 “Angels Fall First” (2002 re-release) / Universal -400<BR>OZZY OSBOURNE -1995 “Ozzmosis” Epic (USA) -350<BR>SAXON -2007 “The Inner Sanctum” (CD+DVD) / SPV -350<BR>SHAPE OF DESPAIR -2004 “Illusion’s Play” / Season of Mist -350<BR>SIRIUS -2000 “Aeons Of Magick” / Nocturnal Art -400<BR>SONATA ARCTICA -2007 “Unia” (digipack) / Nuclear Blast -350<BR>THEATRE OF TRAGEDY -2002 “Assembly” (digipack) / Nuclear Blast -350<BR>VIRUS 7 -2000 “Sick in the Head” / Metal Blade -150<BR><BR>BETRAY MY SECRETS 1999 “Betray My Secrets”/ Serenades -400 (used)<BR>BLIND GUARDIAN -1988 “Battalions Of Fear” / Virgin -350<BR>DAWN OF DREAMS -1998 “Fragments” / Candlelight -500<BR>FORBIDDEN -1997 “Green” / GUN -550<BR>GOATLORD -2003 “Distorted Birth: The Demos” (2CD) / From Beyond -300<BR>LEAVE’S EYES -2004 “Lovelorn” / Napalm -300<BR>NIGHTMARE VISIONS -2006 “Gates Of Delirium” / Casket -300<BR>SATARIEL -1998 “Lady Lust Lilith” (Re-release 2003 + bonus) / Hammerheart -400<BR>SEA OF TRANQUILLITY -1998 “The Omega Ruins” / Cursed Prod -300<BR>SIX DEGREES OF SEPARATION -2002 “Moon 2002: Nocturnal Breed” / Elysion Music -250<BR>SOL -2007 “Let There Be A Massacre” (digipack) / Van -370<BR>SOLID “Darkside Moments” / Die Hard -400<BR>THE DUSKFALL -2002 “Frailty” / Black Lotus -300<BR>TENEBRAE -1994 “Dysanchelium” / Spinefarm -550<BR><BR>ENTOMBED -1991 “Clandestine” (Re-issue 1999 / Earache) -350<BR>COERCION -1999 “Delete” / Perverted Taste -500<BR>DEEDS OF FLESH -1996 “Trading Pieces” (re-release 2002 / Displeased) -320<BR>GORGASM (France) -2004 “Neurotripsicks” / Deadsun -400<BR>LEAD -1999 “Meditation Of Flesh” (MCD/Self-released) -350<BR>MALICIOUS ONSLAUGHT -1992 “Rebelious Mayhem” / Brain Crusher -350<BR>NECROPHAGIA -1998 “Holocausto De La Morte” / Red Stream -180
-
 ### посоветуйте дэт-н-ролла
 
 tich666 20.05.2011 10:17:
@@ -153,11 +143,6 @@ tich666 20.05.2011 10:17:
 Grigory 20.05.2011 14:02:
 Любой металл, в том числе и Blackstar можно найти тут. <A HREF="http://darksound.ru/death-metal/" TARGET="_blank">http://darksound.ru/death-metal/</A>
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Headcrusher 09.08.2012 18:06:
-<B>Blackstar</B> "Barbed Wire Soul" 500 р.<BR><BR>Москва, gatesofdarkness@yandex.ru
-
 ### Группы которые слушаешь пару недель запоем, а потом годами не слушаешь вообще
 
 Кукан Войны 31.10.2013 22:05:
@@ -167,9 +152,4 @@ Headcrusher 09.08.2012 18:06:
 
 Vit Belov 31.08.2015 14:01:
 Не знаю, как вам, а мне "Swansong" и последовавший за ним BLACKSTAR очень нравились. <BR><BR>Новая группа гитариста CARCASS на этих альбомах MONSTRANCE скоро выпустит альбом. Пока можно послушать отрывки. Может чего весёленькое выпустят?
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-valentine7 28.06.2017 09:08:
-Blackstar (CARCASS) 1997 = &#12502;&#12521;&#12483;&#12463;&#12473;&#12479;&#12540;* &#8206;– Barbed Wire Soul Toy's Factory &#8206;– TFCK-87140 MINT 1500<BR>Judas Priest - Nostradamus / Japan + OBI 2CD SICP 1914~5 mint 1500
 

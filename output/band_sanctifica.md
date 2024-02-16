@@ -32,18 +32,3 @@ A-n 07.10.2003 17:00:
 Kai Mathias Stalhammar 07.10.2003 17:06:
 Sanctifica - христианский симфо-блэк. Вполне качественный.<BR>Pantokrator - христианский дэт на шведском языке. Вполне так. <BR>Правда, дебютные альбомы у этих команд на голову лучше сплита..
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Opasnoe Leto 18.09.2009 00:48:
-продаю фирму в Москве <BR><BR>antestor - the forsaken digi<BR>antestor - martyrium <BR>antestor - det tapte liv ltd edition black box<BR>pantokrator / sanctifica split cd<BR>pantokrator - songs of solomon<BR>pantokrator - blod<BR>pantokrator - aurum<BR>sanctifica - spirit of purity<BR>drottnar - spiritual battle<BR>drottnar - anamorphosis<BR>drottnar - wetlwerk digi<BR>frosthardr - makteslos<BR>natan - akeldama<BR>natan - nevel<BR>vaakevandring - vaakevandring<BR>slechtvalk - s/t<BR>crimson moonlight - veil of remembrance<BR><BR>opasnoeleto@yandex.ru
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-НиколайНС 15.12.2011 17:32:
-niknetl (пёс) rambler ((.)) ru<BR><BR>Debemur Morti:<BR><BR>Arckanum:<BR>- Fran Marder (digibook);<BR>- Kostogher (digibook);<BR>- Kampen (digibook).<BR>Blut Aus Nord: <BR>- 777 - The Desanctification (digipack);<BR>- 777 - The Desanctification (vinyl).<BR>Haemoth: <BR>- In Nomine Odium (digipack);<BR>- In Nomine Odium (vinyl).<BR>Infestus - E x | I s t.<BR>Jumalh&#228;m&#228;r&#228; - Resignaatio (digipack).<BR>NunFuckRitual - In Bondage To The Serpent (digipack).<BR>R&#234;x M&#252;ndi - IHVH.<BR><BR><BR>Nuclear Blast:<BR><BR>Demonaz - Marche of the Norse (lim. digipack + bonus).<BR>Graveworm - Fragments of Death (lim. digipack + bonus).<BR>Samael - Lux Mundi (lim. digipack).<BR><BR><BR>Roadrunner:<BR><BR>Dream Theater - A Dramatic Turn of Events (lim. CD+DVD digipack).<BR>Machine Head - Unto the Locust (lim. CD+DVD digipack).<BR>Mastodon - The Hunter (lim. CD+DVD digipack).<BR>Opeth - Heritage (lim. CD+DVD digipack с голографической обложкой).
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-НиколайНС 25.03.2013 13:44:
-niknetl (пёс) rambler ((.)) ru<BR><BR>Blut Aus Nord - 777 - Sect(s) (digipack, Debemur Morti).<BR>Blut Aus Nord - 777 - The Desanctification (digipack, Debemur Morti).<BR>Blut Aus Nord - 777 - Cosmosophy (digipack, Debemur Morti).<BR>Celtic Frost - Monotheist (lim. digipack + bonus, Century Media).<BR>Darkthrone - The Undergrouund Resistance (lim. digibook, Peaceville).<BR>Death Wolf - II: Black Armoured Death (lim. digipack + patch, Century Media).<BR>Defeated Sanity - Passage into Deformity (CD+DVD, Willowtip).<BR>Evoken - Atra Mors (digipack, Profound Lore).<BR>Incantation - Vanquish in Vengeance (Listenable).<BR>In Mourning - The Weight of Oceans (Spinefarm).<BR>Kontinuum - Earth Blood Magic (candlelight).<BR>October Falls - The Plague of a Coming Age (digipack, Debemur Morti).<BR>Triptykon - Eparistera Daimones (lim. digibook, Century Media).<BR>Waylander - Kindred Spirits (Listenable).<BR>Wintersun - Time I (lim. CD+DVD mediabook, Nuclear Blast).
-

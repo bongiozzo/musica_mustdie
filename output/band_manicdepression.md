@@ -3511,11 +3511,6 @@ Headcrusher 08.05.2009 01:11:
 ward 10.05.2009 23:47:
 Фотографии с Метал-фест 'Ну, холи ты, Мозес?' (SEDUCER'S EMBRACE, FOREST STREAM, HIERONYMUS BOSCH, MANIC DEPRESSION) в Москве 2 мая<BR><A HREF="http://headbanger.ru/reports/1770?show_images=1" TARGET="_blank">http://headbanger.ru/reports/1770?show_images=1</A><BR>
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Кукан Войны 09.07.2009 21:15:
-Инфо по фирмовым металическим дискам можно слать сюды theviy@bk.ru, если в Краснодыр отправка возможна.<BR>У меня така бяка есть - всё родное, если не указано иное:<BR>Melancholy - Abeyance   60<BR>Melancholy - Prophet mcd  130<BR>Melancholy - Nano   130<BR>Северные Врата - Правь (упрощёнка Мистерии Звука) 60<BR>Девушкин Сон - Сны Жестоки 60<BR>Екклесиаст (имеется 2 альбома) по 130<BR>Raventale (2 albums)  по 130<BR>Sculptor - Тёмный Октябрь 130<BR>Abstract Spirit   130<BR>Soulless vs Kamaloka (death) 140<BR>Manic Depression - Planned Spiritual Decay (ваще новый)150<BR>Пикник Дым (фирменный) 200<BR>Lake Of Depression\Crepuscularia\Source of Deep Ырфвщцы\Квазар - 4 doom <BR>split   140<BR>Death Du Jour - Gamachinoc (death) 180<BR>Pagan - ....and Darkness Is Above All (немного шоркан, но играет <BR>отлично)  200<BR>Darzamat - Oniriad   300<BR>Murder Corporation - Tagged And Bagged   250<BR>Death Du Jour - Fragments Of Perdition   300<BR>Letargy Dream - Осколки Памяти 140<BR>Hidden - 2 albums по 220<BR>Necrostellar - Pulsing Zero  150<BR>Death Vomit   110<BR>DVD Tartharia - Over The Top  180<BR>Ungraved - A Life Elder 2006   160<BR>Extol - The Blueprint Dives (Century Media) 350<BR>Mortician - Zombie Apocalypse (Relapse first press) 350<BR>Vinterrikket - Landschaften....(Ketzer издание в DVD-кейсе)    350<BR>Incriminated - Hypocricide mCD  150<BR>Русич - Ледяным Эхом CD-R 120<BR>Русич - Любимый край родной земли CD-R 120<BR>Jerry Tebler - Silverwing (digipack)Black Mark 400<BR>Лицуха Bathory - Destroyer Of Worlds 100<BR>обыденно, но всё же...
-
 ### вопросы о звуке на концертах
 
 Fucker 04.10.2009 21:33:
@@ -3931,11 +3926,6 @@ spn 31.07.2013 22:02:
 Муpлакотам 31.07.2013 22:41:
 &gt; я говорю, мне понравилась пестня Manic Depression, а ты сказал это толсто..<BR><BR>мне друг дал диск послушать какой-то Металлики, альбом называется Мастер оф Паппетс. внезапно очень вкатило. кто-нибудь знает кто это? есть у них что-нибудь такого же уровня?
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-promoter 16.09.2013 09:52:
-Куплю CD, которые я выпускал на Союзе и ранее...<BR>- END ZONE "First Bequest";<BR>- FORGIVE ME NOT "Spaceapple" (Союз);<BR>- MELISSA "In Mourning";<BR>- MORTIFER "Blind Faith";<BR>- ALKONOST "Alkonost";<BR>- ALKONOST "Beetween The Worlds";<BR>- MANIC DEPRESSION "Who Deals The Pain";<BR>- STALWART "Dive To Nowhere";<BR>- BLACK COUNTESS "Feetish" (в слим-боксе);<BR>- DIVERSIA	"Resalvation";<BR>- STIGMATIC CHORUS "Autodafe";<BR>- V/A ROMANTIC DARK BALLADS<BR><BR>Впрочем, рассмотрю предложения и по всем другим позициям.<BR>Полный список тут: <A HREF="http://ru.wikipedia.org/wiki/MetalAgen_Records" TARGET="_blank">http://ru.wikipedia.org/wiki/MetalAgen_Records</A><BR>
-
 ### Калашников - всё...
 
 Fucker 25.12.2013 19:38:
@@ -4081,26 +4071,6 @@ no more links 15.02.2015 12:01:
 Vlad 01.03.2015 23:49:
 Никаких оскорблений Лазаря, только чистая правда. Читал своими глазами, любой может повторить этот несложный трюк.<BR><BR>Мне ты лично безразличен, так как ценности твоей не вижу. Неприятна сама ситуация, создаваемая подобными тебе людьми. Вы засоряете мое жизненное пространство и информационную среду, в которой я живу. Те же Manic Depression, Distant Sun, Аркона или Россомаха воспринимаются мной спокойно, так как себя не пиарят - за них говорят дела. Если я не хочу их слушать (а группы Лазаря я слушать не хочу) - они не лезут мне под нос. Их темы на маздае не ползут вверх при каждом пуке Лазаря. А в музыкальном плане он не то что напукал - он такую кучу навалил уже... Но он ведет себя прилично в плане уважения личного пространства других людей. Да и музыка у всех перечисленных групп хорошая, несмотря на их маркетинговую скромность. У вас же все наоборот.<BR>Вы навалили кучу информационного мусора - и всю ради одной паршивой песенки, ценность которой тут уже определили самые разные люди.<BR><BR>Поэтому ты видишь мою реакцию на ситуацию в целом. Ты же, увы, этой реакции не стоишь вообще. Я могу только строить гипотезы о том, почему она возникла. Что и произошло выше.
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Fucker 11.03.2015 22:36:
-куплю по вменяемым ценам первые 4 альбома MANIC DEPRESSION. в первую очередь интересует Impending Collapse
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-tich666 11.03.2015 23:19:
-"куплю по вменяемым ценам первые 4 альбома MANIC DEPRESSION. в первую очередь интересует Impending Collapse"<BR>Кустомно изготовленное из флаков с офигенным качеством полиграфии, напечатанной на крутом принтере  пойдет? Только там четырехстраничный буклет (типа упрощенка)) и задник. Но по качеству вышло офигенно. Хорошо кто-то сосканил оригинал. Зато раритет, по одной копии каждый был выпущен. Накатка на диск тоже присутствует. Цена - 1000 рублей. Каждый.
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-judo777 23.05.2015 23:11:
-Куплю - только фирменные CD, можно и японию<BR>     Burzum "S&#244;l Austan, M&#226;ni Vestan" и посл.<BR>     Opeth "Pale Communion"<BR>     U.D.O. "Steelhammer" и "Decadent" <BR>     Exodus "Tempo Of The Damned"<BR>     Маврин "Химический сон" с буклетом<BR>     Catharsis "Крылья"  с буклетом<BR>     Manic Depression "Impending Collapse"<BR>хорошее состояние обязательно...<BR>  8903-126-68-13      vlart7@yandex.ru
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-judo777 04.06.2015 23:23:
-ИЗМЕНЕНИЕ:<BR>Куплю - только фирменные CD, можно и японию<BR> Burzum "S&#244;l Austan, M&#226;ni Vestan" и посл.<BR>  U.D.O. "Steelhammer" <BR> Exodus "Tempo Of The Damned"<BR> Маврин "Химический сон" с буклетом<BR> Catharsis "Крылья" с буклетом<BR> Manic Depression "Impending Collapse"<BR>хорошее состояние обязательно...<BR> 8903-126-68-13 vlart7@yandex.ru<BR><BR>Now playing: judo777
-
 ### Рыбалка в Солнечногорске 2015
 
 Vlad 20.06.2015 20:53:
@@ -4171,25 +4141,10 @@ Stas Hoffmann 07.12.2016 13:27:
 Fucker 25.01.2017 16:00:
 Всем привет! В преддверии выхода новейшего русскоязычного альбома ветеранов трэша, московского коллектива MANIC DEPRESSION «10 Приступов Депрессии», коллектив предлагает вашему вниманию сингл «Суицид На Поле Боя».<BR><BR>Слушать: <A HREF="http://youtu.be/sbMTehg8jfY" TARGET="_blank">http://youtu.be/sbMTehg8jfY</A><BR><BR>Запись: Меаt Sound, POLIGON Studio. Инженер: Дмитрий Костючик. Реампинг, сведение, мастеринг: Георгий Щелбанин (<A HREF="http://vk.com/deviantnation" TARGET="_blank">http://vk.com/deviantnation</A>).<BR><BR>В оформлении использована картина В.В. Верещагина “Апофеоз Войны” в обработке гуру метал-арта Владимира “Smerdulak” Чебакова.<BR><BR>Каждый из вас может поддержать запись русскоязычного альбома и стать частью нас.<BR><BR><A HREF="http://planeta.ru/campaigns/43341/" TARGET="_blank">http://planeta.ru/campaigns/43341/</A> <BR><BR>Друзья, 100-200 рублей не мелочь…это именно то, что поможет нам и вам получить новый качественный продукт. Мы любим вас, и то, что мы сочиняем и творим-это только для вас! <BR><BR>Long Live Rock-n-Roll!<BR><BR><A HREF="http://vk.com/manicdepression" TARGET="_blank">http://vk.com/manicdepression</A>
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Гвоздев 02.02.2017 15:27:
-Leaves' Eyes &#8206;2005 - Vinland Saga (2cd digipack) (Irond &#8206;– IROND CD 05-1023) с автографом	500<BR>Les Discrets &#8206;- 2011 - Septembre Et Ses Derni&#232;res Pens&#233;es (cd+dvd artbook) (Prophecy Productions &#8206;– PRO 103 LU)	4000<BR>Les Discrets &#8206;- 2013 - Ariettes Oubli&#233;es... (2cd artbook) (Prophecy Productions &#8206;– PRO 123 LU)	2500<BR>Les Discrets &#8206;- 2015 - Live At Roadburn (box-set) (Prophecy Productions &#8206;– PRO174LU)	2000<BR>Lumsk &#8206;- 2003 - Asmund Fr&#230;gdegjevar (Фоно &#8206;– FO304CD)	100<BR>Lumsk &#8206;- 2005 - Troll (Фоно &#8206;– FO536CD)	100<BR>Manic Depression - 2015 - Technocracy (digipack) (Meat Sound – MS-CD 006) с автографом	300<BR>Moonspell - 1995 - Wolfheart (2cd digibook) (Century Media &#8206;– 77698-8) 2007 re-issue	1000<BR>Negur&#259; Bunget - 2013 - G&#238;nd A-Prins 7" LP (Lupus Lounge &#8206;– WOLF055)	500<BR>Nest &#8206;- 2003 - Woodsmoke (Irond &#8206;– IROND CD 03-683)	1600<BR>Nest &#8206;- 2007 - Trail Of The Unwary (Irond &#8206;– IROND CD 07-1309)	800<BR>Nest &#8206;- 2014 - Within A Decade (3cd digibook) (Infinite Fog Productions &#8206;– IF-40)	2000<BR>Nightwish - 1998 - Oceanborn (Spinefarm - spi67cd)	500<BR>Nightwish - 2002 - Bless The Child (MiniAlbum) (Spinefarm Records - SPI160SP) 	300<BR>Nightwish - 2006 - End Of An Era (dvd+2cd digipack in slipcase) (Nuclear Blast - NB 1678-0)	1200<BR>Nightwish &#8206;– 2011 - Imaginaerum (2LP Picture Vinyl, Ltd, Gatefold) [Nuclear Blast - NB 2789-9]	2000<BR>Nightwish &#8206;– 2011 - Imaginaerum (Nuclear Blast - NB 2789-2)	800<BR>Nightwish &#8206;– 2011 - Storytime (10" dark blue vinyl) [Nuclear Blast &#8206;– NB 2801-1] запечатан	1000<BR>Norther - 2006 - Till Death Unites Us (Spinefarm Records - SPI229CD)	650<BR>October Falls - 2003 - Tuoni (Dark Horizon Records &#8206;– DHR 028) издание 2005 года	700<BR>October Falls &#8206;- 2005 - Marras (Dark Horizon Records &#8206;– DHR 029)	500<BR>October Falls &#8206;- 2014 - Kaarna (2cd digipack, black cd) (Debemur Morti Productions &#8206;– DMP0107)	1200<BR>October Tide &#8206;- 1999 - Grey Dawn (digipack) (Peaceville &#8206;– CDVILED163) rare 2007 reissue	1200<BR>Opeth &#8206;– 2002 - Deliverance (digipack) (Music For Nations &#8206;– cdmfnx291)	1000<BR>Opeth &#8206;- 2003 - Damnation (digipack) (Music For Nations &#8206;– cdmfnx294)	1000<BR>Opeth - 2008 - The Roundhouse Tapes (dvd digibook in slipcase) (Peaceville - DVDVILE11)	500<BR>Paradise Lost &#8206;- 1995 - Draconian Times (Globus International &#8206;– 21 0173-2 311)	600<BR>Rhapsody - 2004 - Symphony Of Enchanted Lands II (cd+dvd digibook) (Steamhammer - SPV 088-69610 CD+DVD)	1200<BR>Sentenced - 1996 - Down (digibook) (Century Media - 77695-8) 2007 reissue	800<BR>Shadow Host &#8206;– Apocalyptic Symphony (Metalism Records &#8206;– MR 111-13)	300<BR>Silentium - 2003 - Sufferion - Hamartia Of Prudence (Spikefarm Records - naula 035)	650<BR>Sirenia - 2002 - At Sixes And Sevens (Napalm Records &#8206;– NPR 105)	800<BR>Six Dead Bulgarians Vs Moon Far Away &#8206;– Матица DIGIPACK (Shadowplay Release &#8206;– SPR 056)	500<BR>Stillife &#8206;– 2001 - Raining December (Irond &#8206;– IROND CD 01-134)	200<BR>Stillife / Endraum / Silentport &#8206;– Stillife / Endraum / Silentport 7" LP (Stillife &#8206;– STIL02)	500
-
 ### 04 Марта ZVON MONET METAL DAY
 
 Fucker 19.02.2017 01:34:
 04 марта в клубе JIMI произойдёт мощнейший гиг, содержащий в себе уникальную, поистине разнокалиберную обойму! <BR><BR>Готовимся опустошать бар, трясти башкой, показывать козу и миталить с ломовейшими ансамблями отечественной сцены:<BR><BR>MANIC DEPRESSION,<BR>РОГАТЫЕ ТРУПОЕДЫ,<BR>SHADOW HOST,<BR>ВИА ТРОЯ,<BR>PERFECT CRIME<BR><BR><A HREF="http://goo.gl/f6Yo5O" TARGET="_blank">http://goo.gl/f6Yo5O</A><BR><BR>
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-no more links 28.03.2017 14:11:
-Sacrilege "Lost in the Beauty You Slay / The Fifth Season" (Century Media US, 2002) - 800<BR>Samael "Passage" (1st press, Century Media US) - 500<BR>Sons of Chaos "Redwork" (Bloodsoaked) - 250<BR>Stratovarius "Infinity" (2CD, slipcase L.E., N.Blast, 2000) - 500<BR>Testament "Demonic" (1st press, digi, MFN) - 1000<BR>Testament "The New Order" - 1st press (Megaforce/Atlantic, 1st press Europe, 1988) - 1000<BR>Testament "Low" (Atlantic, 1st press Europe, 1994) - 600<BR>The Forsaken "Traces of the Past" (Century Media, 2003) - 300<BR>Theatre of Tragedy "Theatre of Tragedy" (Century Media, US, 1998) - 550<BR>Theatre of Tragedy "Velvet Darkness They Fear" (Century Media, US, 1997) - 550<BR>Theatre of Tragedy "A Rose for the Dead" (digi mCD, Massacre, 1st press) - 500<BR>Tiamat "The Astral Sleep / In the Eyes of Death" (C.Media USA, 2001) - 700<BR>Vital Remains ""Dechristianize" (Olympic Recordings, 2003, slipcase) - 600<BR>Windir "Arntor" (Head Not Found) - 900<BR>Windir "Likferd" (1st press, HNF) - 900<BR>Windir "1184" (Head Not Found) - 900<BR>Windir "Valfar, ein Windir (2CD-compilation digi, 1st press, TABU) - 1100<BR><BR>Europe "Europe" (Hot International/Epic, EU) - 500<BR>Europe "Wings of Tomorrow" (Epic, US pressing) - 500<BR>Europe "The Final Countdown" (re-release 2001, US) - 500<BR>Europe "Out of this World" (CBS/Epic, EU, Repress) - 500<BR>Europe "Prisoners in Paradise" (OBI, Japan edition 2004) - 1500<BR>Europe "Start from the Dark" (T&T, EU, 2004)- 500<BR>Europe "Secret Society" (T&T/Sanctuary, EU, 2006) - 550<BR>Europe "1982-2000" (Epic, Compilation, Remastered, EU, 1999) - 350<BR><BR>Metallica "Kill'em All" (Vertigo, West Germany, 1989) - 600<BR>Metallica "Ride the Lightning" (Vertigo, West Germany, 1989) - 600<BR>Metallica "Master of Puppets" (Elektra, Canada, 1996) - 650<BR>Metallica "...and Justice for All" (1st press, Vertigo, Germany 1988) - 650<BR><BR>Nightwish "Angels Fall First" (1st press, Spinefarm Records, 1997) - 550<BR>Nightwish "Oceanborn" (2nd Spinefarm release, incl. "Sleeping Sun", 1999) - 550<BR>Nightwish "Over the Hills and Far Away" (Century Media US, 2001) - 600<BR>Nightwish "Century Child" (Spinefarm Records, Europe, 2002) - 550<BR>Nightwish "Once" (slipcase L.E., N.Blast, ?2004) - 600<BR>Nightwish "Nemo" (CD-single, Nuclear Blast, 2004) - 400<BR>Nightwish "Wish I Had an Angel" (CD-single, Nuclear Blast, 2004) - 400<BR>Nightwish "Siren" (CD-single, Nuclear Blast, 2005) - 400<BR><BR>И ещё, следом, 4 группы, так или иначе, копирующие Найтов:<BR><BR>Magica "The Scroll of Stone" (L.E., Divenia Records) - 500<BR>Moondive "Dive with Me" (Rock Express, 2004) - 400<BR>Rain Fell Within "Refuge" (Dark Symphonies, 2002) - 550<BR>Visions of Atlantis "Eternal Endless Infinity" (The Art Records, digi) - 500<BR><BR>Лицензия + наши группы, изданные в России: <BR><BR>Condemned Cell "Shadows of the Past" - 200<BR>Diathra "Wistful Autumn Dance" - 300<BR>Manic Depression "Who Deals the Pain" (Mazzar) - 400<BR>Manic Depression "Planned Spiritual Decay" (Mazzar) - 400<BR>Edenbridge "The Grand Design" (digi, Mystic Empire) - 250<BR>Katatonia "Dance of December Souls / Jhva Elohim Meth" (digi, Mystic Empire) - 350<BR>Paradise Lost "In Requiem" (digi, Mystic Empire) - 250<BR><BR>Также имеется в наличии подборка Lake of Tears & Therion, первые все, кроме пары последних, вторые - с 1995 по 2001). <BR>По 200 руб за диск. Кому надо, обращайтесь.<BR>Лицухи ещё много, но её ещё предстоит разгрести. <BR><BR>На всё имеется фото, если кому надо, дайте знать. Там не супер-подробно, но общее представление составить можно, ятд.
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Fucker 29.03.2017 16:01:
-Гость, дам 500 за оба <BR>Manic Depression "Who Deals the Pain" (Mazzar) - 400<BR>Manic Depression "Planned Spiritual Decay" (Mazzar) - 400
 
 ### MANIC DEPRESSION споют по-рузске!
 

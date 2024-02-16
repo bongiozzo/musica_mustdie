@@ -16,16 +16,6 @@
 
 ## Упоминания
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Headcrusher 02.04.2008 12:42:
-Chimaira - Ressurection cd/dvd - 350р<BR>Haunted - The dead eye - cd/dvd - 400p<BR>Unearth - In the eyes of fire - 250p<BR>Parkway drive - Killing with smile - 280p<BR><BR><BR>8 905 547-92-10 <I>(Валентин)</I>
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-valentine7 14.06.2009 18:38:
-Продажа всякого...<BR>Jag panzer "Decade of the nail..."2003 century-400 2cd<BR>White trash-s/t 1991 electra-300<BR>Agony column "brave words &bloody knuckles"195 koch-500<BR>Angkor wat When obscenity/corpus-500<BR>Savatage "poets and madmen" jap obi slipcase-550<BR>Beliver"Sanity obscure"Rex!original 1990-600<BR>Flotsam and jetsam "drift"-350<BR>Flotsam and jetsam 1990 "When the storm comes down"-450 mca<BR>Abomination -Debut metalmind digi-400<BR>Купившему два или более сд-бонус DAM "Human wreckage"(сд в плохом состоянии)noise 1989!<BR><BR><BR>Далее:<BR>Chimaira "resurrection"cd/dvd-350<BR>Parkway drive"Killing with style"epitaph-300<BR>All that remains "This darkened heart"-250<BR>All that remains "Behind silence and solitude"-250<BR>Farmer boys "Countrified"-400<BR>Farmer boys "The outher side" digi-200<BR>Itdies today "Sirens"-300trustkill<BR>Badlight for blue eyes"The dawn" -200trustkill<BR><BR>
-
 ### Новинки 2010
 
 hobotok 19.06.2010 18:04:

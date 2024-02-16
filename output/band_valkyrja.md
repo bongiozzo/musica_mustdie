@@ -21,13 +21,3 @@ VALKYRJA “Contamination” – 2010 (блэк-метал)<BR>Второй ре
 Seducer 12.09.2013 15:33:
 И я скажу по поводу нового TYR "Valkyrja". По мне, так сильно уступает предшественнику в хитовости. Но 10 трек держит марку. Этой вещью надо было начать альбом, а то с самого начала как-то несколько тоскливо все и, когда начинает звучать отличная Lady Of The Slain, уже порядочно устаешь.<BR>Плюс эти невнятные размазывания соплей вместе с Лив Кристин - нафиг надо было?
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-НиколайНС 01.10.2013 00:15:
-niknetl (at) rambler ((.)) ru<BR><BR>Candlelight USA:<BR><BR>Havok - Unnatural Selection;<BR>Nonexistence - Antarctica;<BR>Shade Empire - Omega Arcane.<BR><BR><BR>Cyclone Empire:<BR><BR>Demonical - Darkness Unbound (lim. digipack + 2 bonus tracks).<BR>Ereb Altor: <BR>- Fire Meets Ice;<BR>- Fire Meets Ice (lim. white colored vinyl).<BR>October Tide - Tunnel of No Light (lim. white colored vinyl).<BR>Paganizer - Dedicated to the Flesh lim. (digipack).<BR><BR><BR>Peaceville:<BR><BR>Autopsy - The Headless Ritual (lim. digibook);<BR>My Dying Bride - The Manuscript.<BR><BR><BR>Разное:<BR><BR>Annihilator - Feast (lim. LP, UDR).<BR>Panzerchrist - 7th Offensive (Listenable).<BR>Protector - Reanimated Homunculus (lim. blue colored vinyl, High Roller).<BR>Tyr - Valkyrja (lim. fan box, Metal Blade).
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-НиколайНС 05.11.2013 21:05:
-niknetl (at) rambler ((.)) ru<BR><BR><BR>Peaceville:<BR><BR>At the Gates - The Red in the Sky is Ours (lim. LP).<BR>Kvist - For Kunsten Maa Vi Evig Vike (lim. LP).<BR>My Dying Bride - Like Gods of the Sun (lim. 2LP).<BR><BR><BR>Season of Mist:<BR><BR>Inquisition: <BR>- Obscure Verses for the Multiverse (lim. digibox);<BR>- Obscure Verses for the Multiverse (lim. 2LP colored).<BR>Necrophobic - Womb of Lilithu (lim. digipack).<BR>Septicflesh: <BR>- Ophidian Wheel (lim. digipack re-release + bonus);<BR>- Ophidian Wheel (lim. 2LP colored).<BR><BR><BR>Vic Records:<BR><BR>Bornholm - March for lory and Revenge (lim. digipack).<BR>October Tide - Rain Without End (digipack re-release).<BR>Odyssey - Reinventing the Past (+ bonus tracks: Odyssey ep).<BR><BR><BR>Прочее:<BR><BR>Orphaned Land - Sahara (lim. 2LP colored, Holy Records).<BR>Tarja - Colours in the Dark (lim. fanbox: digibook + 12" photobook + TS + poster, earMUSIC).<BR>Tyr - Valkyrja (lim. 2LP blue/haze colored, Metal Blade).<BR>
-

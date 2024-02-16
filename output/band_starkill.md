@@ -10,11 +10,6 @@
 
 ## Упоминания
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-НиколайНС 05.08.2013 08:47:
-2:<BR><BR>Century Media:<BR><BR>Cryptopsy - Whisper Supremacy (Century Media USA).<BR>Dark Tranquillity - Construct (lim. LP + 7", grey colored; Century Media USA).<BR>Finntroll - Blodsvept (lim. box).<BR>Starkill - Fires of Life (Century Media USA).<BR><BR><BR>Napalm Records:<BR><BR>Fejd - Nagelfar (+ bonus).<BR>Lonewolf - The Fourth and Final Horseman (lim. digipack + bonus).<BR>Manegarm - Legions of the North (lim. digipack + bonus).<BR>Serenity - War of Ages (lim. digipack + bonus).<BR>Tristania - Darkest White (lim. digipack + bonus).<BR><BR><BR>+:<BR><BR>Aborym - Dirty (2CD digipack, Agony Records).<BR>Ghost B.C. - Infestissumam (deluxe edition: expanded booklet + 2 bonus tracks).<BR>Martyr - Hopeless Hopes (Martyr/Galy).<BR>Pendact - Days of War.<BR>Sangre Eterna - Asphyxia (Maple Metal).<BR>Wormed - Exodromos (Willowtip).<BR><BR>
-
 ### Новинки 2013
 
 belial2012 02.11.2013 16:35:

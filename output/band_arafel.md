@@ -84,11 +84,6 @@ Lazar 29.04.2004 14:05:
 Lazar 18.05.2004 10:56:
 Arafel утверждают, что в польской "Селании" сэмплы раставлялись якобы с помощью какого-то плугина под Logic Audio.<BR>Но у них барабаны звучат вообще не динамично. У Hostile Breed подчеркнуты все ньюансы игры Апашкина.<BR><BR>Все известные мне люди (Дай, Черный Обелиск) мучаются вручную. Хотя хрен знает, мучаются или нет. Время студийное идет же
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-НиколайНС 18.02.2011 23:24:
-niknetl (пёс) rambler ((.)) ru<BR><BR>Передовики из тель-авивских кибуц порадовали: Arafel – For Battles I Fought (Noise Art)<BR><BR>Cyclone Empire:<BR>Demiurg – Slakthus Gamleby (progressive death/melodic, feat Dan Swano)<BR>Evocation – Apocalyptic (melodic death, CD/DVD digi)<BR>Facebreaker – Infected (melodic death/thrash, limited 1st edt. digi)<BR><BR>Napalm Records:<BR>Artas – Riotology <BR>Battlelore – Doombound (limited CD/DVD digi)<BR>Falkenbach – Tiurida (limited digipack)<BR>Jaldaboath – The Rise Of The Heraldic Beasts<BR>Necronomicon – The Return Of The Witch<BR><BR>Atrocity – Atlantis (digibook) <BR>Einherjer – Dragons Of The North <BR>Enthroned – Tetra Karcist (limited digipack)<BR>Falkenbach – Magni Blandinn Ok Megintiri<BR>Falkenbach – Ok Nefna Tysvar Ty<BR>Hollenthon – Tyrants And Wraiths<BR>Summoning Dol Guldur<BR>Summoning Stronghold<BR><BR>Nuclear Blast:<BR>Belphegor – Blood Magic Necromance (limited slipcase)<BR>Sirenia – The Enigma of Life (limited digipack)<BR><BR>Accept – Blood of the Nations (limited mailorder edition: box + flag)<BR>Immortal – The Seventh Date of Blashyrkh (limited mailorder edition: box + flag)<BR>Therion – Sitra Ahra (limited mailorder edition: box + exclusive bracelet)<BR><BR>Hypocrisy – A Taste of Extreme Divinity (limited digipack + bonus)<BR>Hypocrisy – The Final Chapter/Hypocrisy (2CD)<BR>Samael – Above (limited digipack + bonus)<BR>Vader – Necropolis (limited CD/DVD digipack)<BR><BR><BR>Прочее:<BR>Infernal Torment – Man’s True Nature (Diehard, cult brutal death)<BR>My Dying Bride (Peaceville):<BR>- A Line of Deathless Kings (limited box)<BR>- For Lies I Sire (limited digipack + extended booklet + plectrum)<BR>- Songs of Darkness, Words of Light (limited box)<BR><BR><BR>
-
 ### Новинки 2011
 
 belial 13.07.2011 22:05:

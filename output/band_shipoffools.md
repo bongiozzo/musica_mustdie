@@ -31,8 +31,3 @@ Supric 03.11.2002 21:13:
 Appendics 09.12.2002 22:55:
 Ну по количеству прослушиваний данного релиза, видать,я вообще -Александр Матросов.Раз двадцать точно пропилил.Неплохие темы на вещах:<BR>4. Ship of Fools<BR>7.Stronghold<BR>9.In the Name of God<BR>14.Iron Clad ... и всё.. Но когда слушаешь диск первый раз, то неминуемо сравниваешь с более ранними вещами, а потом просто привыкаешь, и уже гоняешь его  сам по-себе. При этом меняется и восприятие.Хотя не шедевр,-однозначно.
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-vinphis 19.06.2007 00:34:
-Я, пожалуй, продолжу тему:<BR><BR>Ушло:<BR>MEGADETH Rust In Peace (Holland)<BR>KING DIAMOND Them<BR>KING DIAMOND Conspiracy<BR><BR>Добавлена лицензия:<BR>KATATONIA The Great Cold Distance<BR>DISMEMBER Death Metal<BR>SHIP OF FOOLS Let’s Get This Mother Outta Here<BR>
-

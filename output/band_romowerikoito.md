@@ -26,8 +26,3 @@ Morsus 10.10.2004 13:52:
 Landscronar / Landscrona 11.10.2004 02:22:
 а я знаю Romowe Rikoito =)))))<BR>я очень готичен =)
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Your Dying Groom 28.09.2008 03:50:
-Куплю фирменные диски в хорошем состоянии:<BR><BR>ROMOWE RIKOITO "l'Automne Eternel"<BR>NEUTRAL "...Of Shadow and Its Dream"<BR>SOPHIA "Herbstwerk" (CD+MCD)<BR><BR>Контакт: yourdyinggroom@mail.ru
-

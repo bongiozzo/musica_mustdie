@@ -52,95 +52,20 @@ secth 15.07.2004 18:23:
 ward 30.10.2005 12:39:
 Роттинги офигенно выступили-столько энергии-у солиста она просто через край била)).Жаркие греческие парни,несмотря на недавние перестановки в составе дали всем прикурить своим dark black metal.Все исполняемые ими композиции порадовали,приятным бальзамом на сердце стали для меня такие композиции как Non Serviam и Sorrowfull Farewell,которую играли на бис. <BR>Одним словом,Эллины зажгли! <BR>Наши команды тоже были очень достойными,особенно запомнились мне Sinful,которые помимо собственных песен исполнили еще и кавер на Dimmu Borgir,а также ярославские ребята Mind Eclipse,работающие в стиле death metal и порадовавшие кавером Vader. <BR>Сет-лист Rotting Christ вроде бы был таким: <BR>Satani <BR>The Wings Thy Horns Thy Sin <BR>Athanatoi Este <BR>In Domine Sathana <BR>King Of A Stellar War <BR>Visions Of A Blind Order <BR>Sanctus Diavolos <BR>Sign Of Evil Existence <BR>Archon <BR>Non Serviam <BR>After Dark I Feel <BR>Thou Art Blind <BR>Under The Name Of A Legion <BR>encore: <BR>You Are I <BR>Sorrowfull Farewell
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Druid_bc 08.05.2008 20:32:
-Продажа. Все в отличном состоянии.<BR>Детали обговариваются при переписке. Живу не в Москве.<BR>Пересылка от 3 cd (либо на сумму 300 руб) - бесплатно, &lt;3 cd  - 40 руб. <BR>icq: 329-280-986<BR><BR>Фирма<BR>The River - Drawing Down The Sun 2006 / doom / retribute / 150<BR>Papercut Homicide - From Filth Comes Grace 2002 / hardcore / retribute / 150<BR><BR>Диски местных лейблов<BR>Architype - Trinity 2008 / deathcore / soulflesh collector / 80<BR>Who I Am - A Little Touched 2006 / core / imbecil ent./ 50<BR>Neotruth - 32'42'' Short Infinity 2000 / doom / metal agen / 80<BR>Nosferatos - Pandemonium 2003 / death / blacksmith / 80<BR>Condemned Cell - Shadows Of The Past 2004 / dark / discultured / 80<BR>Extrovert - Серебряная Нить 2007 / progressive / blacksmith / 80<BR>Sanctus Infernum - Sanctus Infernum 2008 / death doom / badmoodman / 100<BR><BR>Лиценз<BR>Catharsis - Верни Им Небо DVD 2005 / power / irond / 200<BR>D.N.O. - Do Not Open 2006 / death / mystic empire / 80<BR>And Oceans - A.M.G.O.D. 2001 / sympho black / mystic empire / 80<BR>Limbonic Art - Legacy Of Evil 2007 / sympho black / mystic empire / 80<BR>Bal-Sagoth - The Chtonic Chronicles 2006 / sympho / irond / 80<BR>Suidakra - Command To Charge 2005 / melodic death / irond / 80<BR>Coldseed - Completion Makes The Tragedy 2006 / modern rock / irond / 80<BR>Rage - Speak Of The Dead [digibook] 2006 / heavy / cd-maximum / 170<BR>Royal Hunt - Clown In The Mirror 1993 / prog power / amg / 80<BR>Royal Hunt - Moving Target 1995 / prog power / amg / 80<BR>Royal Hunt - Paper Blood [digipack] 2005 / prog power / amg / 170<BR>Chimaira - Resurrection 2007 / hardcore / irond / 80<BR>Inside You - Lost In The Faith 2005 / crematory-style / cd-maximum / 80<BR>Obituary - Frozen In Time 2005 / death / universal russia / 80<BR>Krisiun - Assassination 2006 / death / mystic empire / 80<BR>God Dethroned - The Toxic Touch 2006 / death / fono / 80<BR>Hypocrisy - Virus [digipack cd+dvd] 2006 / death / irond / 230<BR>Exodus - The Atrocity Exhibition 2007 / thrash / irond / 80<BR>Pan-Thy-Monium - Khaooohs And Con-fus-ion 1996 / prog death / mystic empire / 80<BR>Cathedral - The Ethereal Mirror 1993 / stoner doom / soyuz / 80<BR>Rotting Christ - Passage To Arcturo (Reissue 2006) 1991 / cd-maximum / 80<BR>Rotting Christ - Non Serviam (Reissue 2006) 1994 / cd-maximum / 80
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Druid_bc 17.05.2008 20:14:
-Продажа. Все в отл/хор состоянии.<BR>Детали обговариваются при переписке.<BR>Пересылка от 300 руб - бесплатно, иначе - 40 руб. <BR>icq: 329-280-986<BR><BR>Фирма<BR>The River - Drawing Down The Sun 2006 / doom / retribute / 150<BR>Papercut Homicide - From Filth Comes Grace 2002 / hardcore / retribute / 150<BR>Internal Bleeding - Driven To Conquer 1999 / brutal death / pavement / 320<BR>Leng Tch'E - The Process Of Elimination 2005 / grindcore / relapse / 350<BR><BR>Диски местных лейблов<BR>Condemned Cell - Shadows Of The Past 2004 / dark / discultured / 80<BR>Extrovert - Серебряная Нить 2007 / progressive / blacksmith / 80<BR><BR>Лиценз<BR>Catharsis - Верни Им Небо DVD 2005 / power / irond / 200<BR>And Oceans - A.M.G.O.D. 2001 / sympho black / mystic empire / 80<BR>Limbonic Art - Legacy Of Evil 2007 / sympho black / mystic empire / 80<BR>Bal-Sagoth - The Chtonic Chronicles 2006 / sympho / irond / 80<BR>Suidakra - Command To Charge 2005 / melodic death / irond / 80<BR>Coldseed - Completion Makes The Tragedy 2006 / modern rock / irond / 80<BR>Rage - Speak Of The Dead [digibook] 2006 / heavy / cd-maximum / 170<BR>Royal Hunt - Clown In The Mirror 1993 / prog power / amg / 80<BR>Royal Hunt - Moving Target 1995 / prog power / amg / 80<BR>Royal Hunt - Paper Blood [digipack] 2005 / prog power / amg / 170<BR>Chimaira - Resurrection 2007 / hardcore / irond / 80<BR>Obituary - Frozen In Time 2005 / death / universal russia / 80<BR>Krisiun - Assassination 2006 / death / mystic empire / 80<BR>God Dethroned - The Toxic Touch 2006 / death / fono / 80<BR>Hypocrisy - Virus [digipack cd+dvd] 2006 / death / irond / 230<BR>Exodus - The Atrocity Exhibition 2007 / thrash / irond / 80<BR>Pan-Thy-Monium - Khaooohs And Con-fus-ion 1996 / prog death / mystic empire / 80<BR>Rotting Christ - Passage To Arcturo (Reissue 2006) 1991 / cd-maximum / 80<BR>Rotting Christ - Non Serviam (Reissue 2006) 1994 / cd-maximum / 80
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Druid_bc 16.06.2008 14:01:
-Продажа. Все диски в отл/хор состоянии.<BR>Детали обговариваются при переписке.<BR>Пересылка от 300 руб - бесплатно, иначе - 40 руб. <BR>icq: 329-280-986<BR><BR>Фирма<BR>The River - Drawing Down The Sun 2006 / doom / retribute / 150<BR>Sanatorium - Internal Womb Cannibalism 2002 / brutal death / crash / 150<BR>Cryptopsy - And Then You'll Beg 2000 / brutal death / century media / 300<BR>Birds Of Prey - Sulfur & Semen 2008 / sludge-stoner / relapse / 400<BR>У диска Cryptopsy небольшое повреждение на боковинке задника. Могу предоставить фотку.<BR><BR>Диски местных лейблов<BR>Condemned Cell - Shadows Of The Past 2004 / dark / discultured / 80<BR>Extrovert - Серебряная Нить 2007 / progressive / blacksmith / 80<BR><BR>Лиценз<BR>Catharsis - Верни Им Небо DVD 2005 / power / irond / 200<BR>And Oceans - A.M.G.O.D. 2001 / sympho black / mystic empire / 80<BR>Limbonic Art - Legacy Of Evil 2007 / sympho black / mystic empire / 80<BR>Bal-Sagoth - The Chtonic Chronicles 2006 / sympho / irond / 80<BR>Suidakra - Command To Charge 2005 / melodic death / irond / 80<BR>Coldseed - Completion Makes The Tragedy 2006 / modern rock / irond / 80<BR>Rage - Speak Of The Dead [digibook] 2006 / heavy / cd-maximum / 170<BR>Royal Hunt - Clown In The Mirror 1993 / prog power / amg / 80<BR>Royal Hunt - Moving Target 1995 / prog power / amg / 80<BR>Royal Hunt - Paper Blood [digipack] 2005 / prog power / amg / 170<BR>Chimaira - Resurrection 2007 / hardcore / irond / 80<BR>Obituary - Frozen In Time 2005 / death / universal russia / 80<BR>Krisiun - Assassination 2006 / death / mystic empire / 80<BR>God Dethroned - The Toxic Touch 2006 / death / fono / 80<BR>Hypocrisy - Virus [digipack cd+dvd] 2006 / death / irond / 230<BR>Exodus - The Atrocity Exhibition 2007 / thrash / irond / 80<BR>Pan-Thy-Monium - Khaooohs And Con-fus-ion 1996 / prog death / mystic empire / 80<BR>Rotting Christ - Passage To Arcturo (Reissue 2006) 1991 / cd-maximum / 80<BR>Rotting Christ - Non Serviam (Reissue 2006) 1994 / cd-maximum / 80
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Druid_bc 04.07.2008 12:13:
-Продажа. Все диски в отл/хор состоянии.<BR>Детали обговариваются при переписке.<BR>Пересылка от 300 руб - бесплатно, иначе - 50 руб.<BR>e-mail: yin1@yandex.ru icq: 329-280-986<BR><BR>Фирма<BR>Amorphis - Silent Waters 2008 / nuclear blast / 250<BR>Birds Of Prey - Sulfur & Semen 2008 / relapse / 400<BR>Cryptopsy - And Then You'll Beg 2000 / century media / 250<BR>Internal Bleeding - Driven To Conquer 1999 / pavement / 300<BR>Mastodon - Blood Mountain 2006 / reprise / 250<BR>Putrefy - Putrefy 2006 / redrum / 200<BR>Sanatorium - Internal Womb Cannibalism 2002 / crash / 150<BR>The River - Drawing Down The Sun 2006 / retribute / 150<BR>Cryptopsy, Amorphis - небольшое повреждение на back cover.<BR><BR>Диски местных лейблов<BR>Condemned Cell - Shadows Of The Past 2004 / discultured / 80<BR>Extrovert - Серебряная Нить 2007 / blacksmith / 80<BR>Tales Of Dark - Fragile Monuments 2006 / solitude / 100<BR><BR>Лиценз<BR>Amorphis - Eclipse 2006 / irond / 80<BR>Anathema - The Silent Enigma 1995 / soyuz / 100<BR>Anathema - The Crestfallen+Pentecost III 1996 / soyuz / 100<BR>Anthrax - Fistful Of Metal 1985 / soyuz / 160<BR>At The Gates - Suicidal Final Art 2000 / soyuz / 80<BR>Bal-Sagoth - The Chtonic Chronicles 2006 / irond / 80<BR>Catharsis - Верни Им Небо DVD 2005 / irond / 220<BR>Children Of Bodom - Something Wild 1999 / fono / 160<BR>Children Of Bodom - Are You Dead Yet?  2005 / universal russia / 140<BR>Combichrist - Get Your Body Beat 2006 / irond / 80	<BR>Coroner - Punishment For Decadence 1988 / soyuz / 100	<BR>Die Apokalyptischen Reiter - Riders On The Storm 2006 / irond / 80<BR>Doom - Total Doom 1989 / soyuz / 80<BR>God Dethroned - The Toxic Touch 2006 / fono / 80<BR>Grave - Fiendish Regression 2004 / fono / 140<BR>Grave - As Rapture Comes 2006 / fono / 100<BR>Hatesphere - The Sickness Within / soyuz / 80<BR>Heimataerde - Kadavergehorsam 2006 / gravitator / 100<BR>Illogicist - Subjected 2004 / cd-maximum / 80<BR>Jungle Rot - Fueled By Hate 2004 / coyote / 80<BR>Krisiun - Assassination 2006 / mystic empire/ 100<BR>Moonspell - Irreligious 1996 / fono / 100<BR>My Dying Bride - The Light At The End Of The World 1999 / soyuz / 100<BR>Nile - In Their Darkened Shrines / irond / 100<BR>Novembre - Novembrine Waltz 2001 / mystic empire / 100<BR>Novembre - Classica 2000 / mystic empire / 100<BR>Obituary - Frozen In Time 2005 / universal russia / 80<BR>Pan-Thy-Monium - Khaooohs And Con-fus-ion 1996 / mystic empire / 80<BR>Regurgitate - Sickening Bliss 2007 / irond / 100<BR>Rotting Christ - Passage To Arcturo (Reissue 2006) 1991 / cd-maximum / 80<BR>Rotting Christ - Non Serviam (Reissue 2006) 1994 / cd-maximum / 80<BR>Royal Hunt - Moving Target 1995 / amg / 80<BR>Sadist - Tribe (Reissue 2006) 1996 / cd-maximum / 80<BR>Silentium - Seducia 2006 / fono / 80<BR>Suidakra - Command To Charge 2005 / irond / 80<BR>Summoning - Oath Bound 2006 / irond / 80<BR>Terminal Choise - New Born Enemies 2006 / irond / 80<BR>Testament - Live In London 2006 / cd-maximum / 80<BR>Trivium - The Crusade 2006 / irond / 160
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-forn666 22.08.2008 19:43:
-EVOL 1996 Dreamquest =250=<BR>EWIGKEIT 1997 Battle Furies =250=<BR>EWIGKEIT  Land Of Fog =250=<BR>EWIGKEIT  Radio Ixtlan =250=<BR>FINNTROLL 2001 Jaktens Tid =250=<BR>FOREFATHER 1999 Deep Into Time =250=<BR>FUNERAL ORATION 1996 Sursum luna (digi) =250=<BR>GODKILLER 2001 Deliverance =250=<BR>IMMORTAL 2002 Sons Of Northern Darkness (limited digi) =600=<BR>INFERNAL BEAUTY 1997 Drakensquar (digi) =250=<BR>ISEGRIM 2000 Dominus Inferus Ushanas =250=<BR>ISEGRIM 2001 Gloria Deo, Domino Inferi =250=<BR>ISENGARD 1995 Hostmorke =600=<BR>KOROVAKILL 2001 WaterHells =250=<BR>LACRIMAS PROFUNDERE 1999 Memorandum =250=<BR>LOVE LIES BLEEDING 2001 S.I.N. =250=<BR>LOVE LIES BLEEDING 2002 Ex Nihilo =250=<BR>LOVE LIES BLEEDING 2004 Ellipse =250=<BR>LUX OCCULTA 1996 Forever Alone Immortal =400=<BR>LUX OCCULTA 1998 Dionysos =400=<BR>LUX OCCULTA 1999 My Guardian Anger =400=<BR>LUX OCCULTA 1999 Major Arcana =400=<BR>MACTATUS 2000 The Complex Bewitchment =250=<BR>MAYHEM 1997 Wolf's Lair Abyss =400=<BR>MAYHEM 2000 Grand Declaration Of War =400=<BR>MALEFICIUM 1994 This Illusion Of Humanity =400=<BR>MARTYR 2000 Murder X (The End Of The Game) =200=<BR>MEPHISTOPHELES 1997 Landscape symphonies =250=<BR>MEPHYSTOPHELES 1999 Songs Of The Desolate Ones =250=<BR>MEPHISTOPHELES  Modern Instinct's Purity =250=<BR>MERCYLESS 2000 Sure to be pure =200=<BR>MITHOTYN 1997 In the sign of the ravens (Invasion Rec.!!!) =1000=<BR>MITHOTYN 1998 King of the distant forest (Invasion Rec.!!!) =1000=<BR>MITHOTYN 1999 Gathered Around The Oaken Table (Invasion Rec.!!!) =1000=<BR>MYSTIC CIRCLE 1996 Morgenrote - der schrei nach finsternis =250=<BR>MYSTIC CIRCLE 1998 Drachenblut =250=<BR>MYSTIC CIRCLE 1999 Infernal Satanic Verses =250=<BR>MYSTIC CIRCLE 2000 Kriegsgotter II =250=<BR>NECROMANTIA 2000 IV Malice =250=<BR>NINNGHIZHIDDA 1998 Blasphemy =250=<BR>OBSIDIAN GATE 2001 Colossal Christhunt =250=<BR>ODES OF ECSTASY 1999 Embossed Dream In Four Acts =250=<BR>OLD MAN'S CHILD 1998 Ill-Natured spiritual invasion =300=<BR>ORDO DRACONIS  In Speculis Noctis =250=<BR>OTYG Alvefard =800=<BR>OTYG Sagovindars Boning =800=<BR>PAGAN WINTER 1998 Inferos =200=<BR>RAM-ZET 2000 Pure Therapy =250=<BR>RIGER 1999 Hamingja =250=<BR>RIVENDELL 2000 The Ancient Glory =250=<BR>ROOT 1997 Kargeras =600=<BR>ROTTING CHRIST 1994 Non Serviam =600=<BR>
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-forn666 19.09.2008 12:44:
-MEPHISTOPHELES 1997 Landscape symphonies =250=<BR>MEPHYSTOPHELES 1999 Songs Of The Desolate Ones =250=<BR>MEPHISTOPHELES  Modern Instinct's Purity =250=<BR>MERCYLESS 2000 Sure to be pure =200=<BR>MYSTIC CIRCLE 1996 Morgenrote - der schrei nach finsternis =250=<BR>MYSTIC CIRCLE 1998 Drachenblut =250=<BR>MYSTIC CIRCLE 1999 Infernal Satanic Verses =250=<BR>MYSTIC CIRCLE 2000 Kriegsgotter II =250=<BR>NECROMANTIA 2000 IV Malice =250=<BR>NINNGHIZHIDDA 1998 Blasphemy =250=<BR>OBSIDIAN GATE 2001 Colossal Christhunt =250=<BR>ORDO DRACONIS  In Speculis Noctis =250=<BR>OTYG Alvefard =800=<BR>OTYG Sagovindars Boning =800=<BR>PAGAN WINTER 1998 Inferos =200=<BR>RAM-ZET 2000 Pure Therapy =250=<BR>RIGER 1999 Hamingja =250=<BR>RIVENDELL 2000 The Ancient Glory =250=<BR>ROTTING CHRIST 1994 Non Serviam =600=<BR>SEAR BLISS 2001 Grand Destiny =250=<BR>SEAR BLISS 2002 Glory And Perdition =250=<BR>SEAR BLISS  Forsaken Symphony =250=<BR>SEPTIC FLESH 1998 A Fallen Tample (digi) =600=<BR>SEPTIC FLESH 2000 Forgotten Paths (The Early Days) (digi) =200=<BR>SETH 1998 Les blessures de L’ame =250=<BR>SICKNESS 1995 Verbrannte erde =250=<BR>SIEBENBURGEN 1998 Grimjaur =250=<BR>SIEBENBURGEN 2000 Delictum =250=<BR>SIEGFRIED 2001 Drachenherz =250=<BR>SOULGRIND 1998 Whitsongs =250=<BR>SOULGRIND 2001 Elixir Mistica =250=<BR>SOULGRIND  Into The Dark Vales of Death =250=<BR>STAHLHAMMER 1999 Feind Hort Mit (limited digi)=600=<BR>STORM Nordavind =800=<BR>SUSPERIA 2001 Predominance =250=<BR>SWAN CHRISTY 1998 One With The Swan =250=<BR>THE BLACK LEAGUE 2000 Ichor =250=<BR>THE BLACK LEAGUE 2001 Utopia A.D. =250=<BR>THE GATHERING 1992 Always =800=<BR>THE GATHERING 1993 Almost A Dance =800=<BR>THE KOVENANT 1999 Animatronic =250=<BR>THEATRE DES VAMPIRES 1996 Vampyrisme... =250=<BR>THEATRE OF TRAGEDY 1995 Theatre of Tragedy =800=<BR>THEATRE OF TRAGEDY 1996 Velvet Darkness They Fear =800=<BR>TIAMAT 1990 Sumerian Cry =400=<BR>TIAMAT 1991 The Astral Sleep =800=<BR>TIAMAT 1992 Clouds =800=<BR>TIAMAT 1994 Wildhoney =800=<BR>USER NE  Nibelum Oas Uhort (digi) =400=<BR>VAMPIRIA 2003 Wicked Charm =250=<BR>VANITAS 2000 Das Leben Ein Traum =250=<BR>VANITAS 2004 Lichtgestalten =250=<BR>VLADIMIR 1998 Mother (E.P.) =200=<BR>VOBISCUM 1999 Traum Ewiger Finsternis =250=<BR><BR>Писать на asehty@yandex.ru
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-urgammal pionjдr (99) 23.09.2008 08:52:
-Messiah Powerthrash – The infernal thrashing CD Iron Pegasus<BR>Midnatsol Where Twilight Dwells CD napalm rec.<BR>Morbid Angel Covenant CD earache<BR>Morbid Angel Entangled In Chaos CD earache<BR>Morbid Angel Formulas Fatal To The Flesh CD earache<BR>Morbid Angel Gateways To Anihilation CD earache<BR>Myrk Icons of the dark CD Kelzer<BR>Mysticum Demons never CD <BR>Napalm Death Noise for Musics Sake DCD earache<BR>Napalm Death LEADERS NOT FOLLOWERS MCD DREAMCATCHER<BR>Nargaroth Black Metal ist Krieg CD no colours<BR>Nargaroth Geliebte des Regens CD no colours<BR>Nargaroth Semper Fidelis CD no colours<BR>Nattefrost Blood and Vomit CD season of Mist<BR>Nattefrost Terrorist DG season of Mist<BR>Necrophobic The third antichrist CD Hammerheart<BR>Neptune Towers Caravans to Empire Algol CD moonfog<BR>Novembers doom The novella Reservoir CD The End<BR>Novembers doom The pale haunt departure CD The End<BR>Opera IX Anphisbena CD Avantgarde Music<BR>Opera IX Maleventum DG Avantgarde Music<BR>Opera IX Sacro culto-remastered CD Avantgarde Music<BR>Ophatalamia a journey in darkness cd Avantgarde music<BR>Pagan forest Pure harmony of the night CD Alles stenar<BR>Paradise lost LOST PARADISE DG peaceville <BR>Pest (fin) Hail the black metal wolves of belial CD Red Stream<BR>Quorthon Purity of essence (2cd) DCD black mark<BR>Rotting christ Non serviam CD The End<BR>Rotting christ Passage to Arcturo CD The End<BR>Runemagick Darkness Death Doom CD Aftermath<BR>Runemagick on funeral wings cd Aftermath<BR>Sadistic execution fuck 2 cd osmose<BR>Samael Rebellion MCD century media<BR>Satanic Warmaster Strength & honour cd <BR>Satyricon Dark Medieval Times CD moonfog<BR>Satyricon Nemesis Divina CD moonfog<BR>Satyricon Rebel Extravaganza CD moonfog<BR>Satyricon Ten Horns – Ten Diadems CD moonfog<BR>Satyricon The Shadowthrone CD moonfog<BR>Satyricon/Enslaved Split CD moonfog<BR>Sepultura Nation CD <BR>Shining III : Angst CD Avantgarde Music<BR>Shining IV : The eerie cold CD Avantgarde Music<BR>Shining The darkroom sessions CD Perverted Taste<BR>SiebenbЬrgen Darker Designs & Images DG napalm rec.<BR>SiebenbЬrgen Darker Designs & Images CD napalm rec.<BR>SiebenbЬrgen Delictum CD napalm rec.<BR>SiebenbЬrgen Grimjaur CD napalm rec.<BR>SiebenbЬrgen PLAGUED BE THY ANGEL CD napalm rec.<BR>Skepticism FARMAKON CD Red stream <BR>Skepticism stormcrowfleet cd Red stream <BR>Solefald The linear scaffold – Reissue CD Avantgarde Music<BR>Summoning Lug Burz CD napalm rec.<BR>Summoning Minas Morgul CD napalm rec.<BR>Svartskogg Helvete 666 CD Perish in Light<BR>Taake     Nekro       MDG KARISMA RECORDS<BR>Thorns Thorns CD moonfog<BR>Thorns Vs Emperor Thorns Vs Emperor CD moonfog<BR>Tjolgtjarian The Tjolgtjarian Mass CD Baphomet<BR>Trail of tears Existentia CD napalm rec.<BR>Tristania World of glass CD napalm rec.<BR>Troll TROLLSTORM OVER NIDINGJUV MCD head not found <BR>Tsjuder Desert Northern Hell DG Season of Mist<BR>Tyr Eric The Red CD napalm rec.<BR>Tyr Ragnarok CD napalm rec.<BR>Tyranny TIDES OF AWAKENING CD firedom<BR>Ulvhedin Pagan manifest CD Einheit<BR>Ulvhedner-Galdner Split CD Northern Silence<BR>Unholy From the shadows CD Avantgarde Music<BR>Unholy Gracefallen CD Avantgarde Music<BR>Unholy Rapture CD Avantgarde Music<BR>Urgehal Atomkinder CD Agonia<BR>V/A Avantgarde – In decay we trust CD Avantgarde Music<BR>V/A Moonfog 2000 – A Different Perspective DCD moonfog<BR>V/A Moonfog – crusade from the north CD moonfog<BR>Vinterriket Retrospective CD nord sturm pr.<BR>Vintersorg Till Fjдlls CD napalm rec.<BR>Wongraven Fjelltronen CD moonfog<BR>Woodtemple The call from the pagan woods CD no colours<BR>Wyrd – Haive – Kehra Split CD Northern Silence <BR>
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-klop 18.11.2008 18:56:
-Продам: (связь ktt78@yandex.ru)<BR><BR>Фирма:<BR><BR>Dark Tranquillity - The Mind`s I <BR>Mystic Circle - Unholy Chronicles (CD+DVD)<BR>Chalice - Shotgun Alley [2CD] Massacre<BR>Omnium Gatherum - Years In Waste<BR>Lanvall [guitar EDENBRIDGE] - Melolydian Garden<BR>Disgorge - ''Chronic Corpora Infest'' (запечатан)<BR>Disgorge - ''Live Germany'' (Японец) (запечатан)<BR>Mayhem - ''The Dawn Of The Black Hearts'' (запечатан)<BR>Parricide - ''Illtreat'' (запечатан)<BR>Rotting Christ - ''Non Serviam Tour-Live In Mexico City'' (запечатан)<BR>Vader - ''The Darkest Age Live'93'' (запечатан)<BR>Avulsed - ''Goresplattered Suicide'' (запечатан)<BR>Nokturnal Mortum - Мировоззрение<BR><BR><BR>Лицензия : (все по 70) (все, как новые)<BR><BR>Agnostic Front - Cause For Alarm<BR>Avulsed ''Cybergore''<BR>Diary Of Dreams - Cholymelan [Irond] (gothic / darkwave)<BR>Lacrimas Profundere - Fall, I Will Follow [Irond] (gothic)<BR>Lacrimas Profundere - Burning: A Wish [Irond] (gothic)<BR>New Dawn Foundation - Moment Of Clarity [Фоно] (gothic)<BR>Decoded Feedback - Combustion [Irond] (Industrial, EBM)<BR>Turisas - Battle Metal [Фоно] (Viking Metal)<BR>Seraphim - Ai [CD Maximum] (Power/Gothic Metal)<BR>Finntroll - Visor Om Slutet [Фоно] (folk metal)<BR>Finntroll - Midnattens Widunder [Фоно] (folk metal)<BR>Sarcoma Inc. - Torment Rides Forever [Irond] (black-death metal)<BR>Season`s End - The Failing Light [Mazzar/Mystic Empire] (gothic)<BR>Inside You - Night Hunt [CD - Maximum] (gothic-doom-death)<BR>Bloodthorn - Genocide [Irond] (black-death)<BR>Autumn - Summers`s End [Mazzar/Mystic Empire] (gothic-doom)<BR>Beyond Twilight - For Love And The Art Of The Making [Mazzar/Mystic Empire] (power-progressive metal)<BR>Grenouer - Try [DFMO] (modern death)<BR>Dark Illusion - Beyond The Shadows [Mazzar/Mystic Empire] (power)<BR>Inkubus Sukkubus - Vampyre Erotica [CD Maximum] (gothic)<BR>Flowing Tears - Serpentine [Mazzar/Mystic Empire] (gothic)<BR>Pantheist - 0 Solitude [CD Maximum] (doom)<BR>Pantheist - Amartia [CD Maximum] (doom)<BR>Shaman - RituAlive [CD Maximum] (power)<BR>Dark Tranquillity - Skydancer/Of Chaos and Eternal Night [Mystic Empire]<BR>Dark Tranquillity - Fiction (Digipack) [Mystic Empire] 120 рублей<BR>Невидь - Зов Новой Гипербореи<BR>Nomans Land - Hammerfroft<BR>Nomans Land - TheLast Son Of The Fjord
-
 ### Реюнион Ольги Романовой! :)
 
 promoter 03.02.2009 11:08:
 Я согласился бы на роль Балбеса... Мне всегда Никулин больше других нравился... Гы :)))<BR>Кинясик точно Трус, так как он никогда со мной встречаться не хотел...<BR>А колдакморда пусть будет дэвушка Нино... Хе-хе... :)))<BR><BR>А вот реально, без смеха, здравая мысль :<BR><BR>Non Serviam:(02.02.2009 20:27)     <BR>"это есть просто древняя мужская традиция... "меряться членами" называется. а так, судя по слэнгу и фактам-доводам, обе стороны друг друга достойны. пиар коллективу обеспечили. хотя бы в рамках мастдая... топик в горячую пятерку попал ::thundering applauds:: "<BR><BR>Я полностью согласен.<BR><BR>А так... всего-то... действительно делов-то...<BR>Ну опубликовал некотрые итоги...<BR>Но вот не дают они покоя некоторым, ох как не дают...<BR>А всё отчего? От ущербности и жадности...<BR>Я всегда говорил, если человек жаден, то он автоматически зол и туп.... (и не видал больших залуп... ха-ха-ха... :)))<BR> <BR>И Ваня ничего лучшего не придумал, как в очередной раз подмазаться...<BR>"поскольку я сдизайнил в свое врямя для Прайса несколько работ, а потом уехал в Европу, то он безусловно может говорить, про "своего артиста (artist)...которого он на запад вытащил..."<BR><BR>Вот объясните мне неразумному, что он этим хотел сказать?<BR>Себя выгородить в очередной раз, чем он тут всю жизнь на Мастдае и занимался?<BR><BR>Ну.... жду ответную телегу на полстраницы...<BR>Можно и тезисно... :)
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Kostolom 14.02.2009 16:44:
-2 Non Serviam: а зачем тебе нужен этот бокс вообще? Я его купил летом прошлого года и он меня не особо порадовал, честно говоря... из ништяков там только - аудио-дорожка к неавторизованному группой DVD "In Motion", а всё остальное выхдило и по отдельности. Кроме того, диски упакованы в конверты типа промо, а буклет - один, пусть и большой (включающий в себя репринты буклетов от альбомов).
 
 ### Аркона «Славься Русь». Поддержи русский клип на «Metal Storm Awards» 2008 
 
 Lazar 22.02.2009 01:46:
 "Pankrat:(21.02.2009 22:05)     <BR>  Поучаствовал! :) "<BR><BR>Брат Панкрат)))<BR><BR>Посмотрел также номированный Мунспелл и не по себе стало)<BR><BR>"Non Serviam:(22.02.2009 01:09)     <BR>  ...это ответ на пилигримовский "Слава России"? <BR><BR>то есть ответ? на какой вопрос? на этот что -ли:<BR><BR>"татарин и русский и бурят и еврей / И чеченец и чукча и башкир и карел "<BR><BR>????<BR><BR><BR><BR>
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-wanter 24.02.2009 15:34:
-Non Serviam: Экономическое, но совсем из другой оперы. <BR><BR>Я понимаю, что одно другому не мешает. Просто прокомментировал динамику приведения аргументов - сначала телега про валюту (Типа, вот где корень зла), потом еще одна - про FC (с тем же окрасом - вот где корень зла, не перепутайте). 
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-ixtiandr 24.02.2009 15:42:
-2Non Serviam: не, это-то всё понятно, насчет аренды и т.д. Но смотри сам: да, ставки аренды пока никто не снижал, но разве их повышали? Если да, то сорри. Зато вполне возможно, что снизили зарплаты персоналу - хотя я этого утверждать естессна не могу.<BR>И вот еще. Я, например, могу купить на ебее -как физическое лицо у физческого лица - совершенно новые, запечатанные диски намного дешевле (даже учитывая доставку), чем в С или ПЛ. Притом я покупаю не партиями, а по одной штуке. По идее, С или ПЛ имеют договора с лейблами или дистрибютерами на оптовую продажу/покупку, где уже цена наверняка будет еще меньше. Так или нет?<BR>Про лицензию. Те кто когда-нибудь брал напрямую диски у СДМ или там Союза, те знают, насколько отличается их цена от цены в магазине. А сами шопы берут у лейблов не десяточек дисков, а сотни и, видимо, еще дешевле. Тут уж никакие колебания курса не причем. Да, лейбл наши немного повысили свои отпускные цены (ибо с западниками у них в валюте конртакты), но не на 50 или 30 процентов. Понятно, что всем надо на что-то жить, но я просто про голые цифры говорю.
-
 ### Поговорим о редких дисках
 
 Шульц 28.02.2009 02:11:
 Non Serviam, не периживай, доброжелатели всегда найдутся, ибо держатели серьезных коллекций известны нужным людям. Я уж не говорю, что их травить\мочить будут и всякое такое... Но скупить с самовывозом "весь хлам" процентов за 5 от реальной стоимости - запросто.
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Kostolom 01.03.2009 20:18:
-2 Non Serviam: а что за бонус-треки? У меня, например, есть этот альбом и тоже в дигипаке, причем выпущенным Firebox, но там какие-либо трэки не помечены как бонуса.
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Ы 01.03.2009 21:41:
-aesir\non serviam<BR>пачиму вас так многа?
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-ixtiandr 03.03.2009 19:57:
-2Non Serviam: а это как на ебее, мать его. Про одно и то же состояние японец пишет "экселлент минус", а америкос - "минт" :))) 
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Opasnoe Leto 03.03.2009 20:41:
-Non Serviam<BR><BR>В таких случаях, смотрят диск на месте, и, если что-то не устраивает говорят что именно на месте. Ты же ничего такого не сделал. <BR><BR>К списку:<BR><BR>Darkthrone - A Blaze in the Northern Sky digi (Peaceville)<BR>Darkthrone - Under a Funeral Moon digi (Peaceville)<BR>Darkthrone - Transilvanian Hunger digi(Peaceville)<BR>Darkthrone - Panzerfaust (Moonfog)<BR>Zyklon B - Blood Must Be Shed (Blackend)
 
 ### По поводу ператства
 
@@ -217,40 +142,15 @@ Non Serviam, ежли ты так интересуешься, щёлкни, по
 Максим - LOGIN! 25.03.2009 02:21:
 <DIV CLASS="quote"><B>Non Serviam:(25.03.2009 01:36) 	  </B><BR> 	"противно, честно говоря, читать здесь как вы обсираете девушку"<BR><BR>+1<BR><BR>группа, может быть, и впрямь не великая, и амбиции донельзя наивны, но учитывая тот факт, что большинство комментаторов в стиле "полное гагно" и "ну не нравиццо и все тут" сами в жизни люди, прямо скажем, не Нобелевские лауреаты, то не обсуждение, господа, а полная херь и отсутствие приличий.<BR><BR>о как завернул!..</DIV><BR>давай, ебани именной список кто тут не лоуреат нобелевский.<BR>лично я нобельский лауреат, и не пиздедь мне там дистанцыонна! *капут*
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Kostolom 25.03.2009 22:24:
-2 Non Serviam и zharkosha:<BR>1.000,- рублей за VINTERLAND. Оригинальное издание, идеальное состояние. 
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-zharkosha 25.03.2009 23:31:
-2Костолом - ну вроде как Non Serviam раньше меня был. если он не будет брать - я готов забрать.
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Kostolom 25.03.2009 23:58:
-<DIV CLASS="quote">zharkosha:(25.03.2009 23:31) 	  <BR> 	2Костолом - ну вроде как Non Serviam раньше меня был. если он не будет брать - я готов забрать.</DIV><BR>Хорошо.<BR>	<DIV CLASS="quote">Non Serviam:(25.03.2009 23:54) 	  <BR> 	2 Kostolom<BR>Давай я тебе в субботу про VINTERLAND напишу. я его пока очень фрагментарно на мп3 слышал. потерпишь? штукарь устраивает. отпиши мне тест-мэйл, я твоего не знаю</DIV><BR>Вроде мы уже переписывались, ну да неважно. Конечно, время терпит.
-
 ### ФИНАНСОВЫЙ КРИЗИС 2008
 
 SYMPHOHELL 27.03.2009 17:42:
 Non Serviam:(27.03.2009 17:09)     <BR>  что касается карты - если именно КРЕДИТНАЯ, а не дебетовая - у Райффа по умолчанию твои средства на карте застрахованы от несанкционированного ее использования. проверь договор.<BR><BR>...и нехуй юзать кредитку для оплаты в инете! заведи дебетовую карту, с нее нельзя снять больше, чем на ней есть))) <BR><BR>не учи отца ЕБАТЬСЯ!)))<BR>с дебетовой нельзя потратить больше, чем у тебя есть, к тому же ты не прав: дебетовая уходит в овердрафи и там проценты уже будут ахтунговые и ты Охуеешь. Что касается страховых программ, они оплачиваются отдельно и обговариваются соответственно тоже.  Ты бы мне цитатку написал))))  по брацки, может я тебя или вообще чо то недопонял.<BR><BR>фрукт и хорёк гыгушечки)))<BR><BR><BR>
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Kostolom 28.03.2009 23:55:
-2 Non Serviam: дико извиняюсь, не успел ответить<BR>я отпишу на мыло в профайл )
-
 ### Кого хотите? (честно: мониторинг)
 
 steeler 03.04.2009 21:26:
 Non Serviam - ты на каком языке постишь ?))) На исландском, что ли ? O_o
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-John DS Sinterson 03.04.2009 22:30:
-TH: взял бы Kamelot "Ghost Opera" (ltd., CD+DVD, digipack, SPV) 300 рублей<BR><BR><BR>Non Serviam: интересуют Timo Tolkki - Hymn To Life (nuclear blast) VG 150<BR>Children Оf Bodom - Follow The Reaper (fono) 90<BR><BR>sinterson@bk.ru
 
 ### Кого хотите? (честно: мониторинг)
 
@@ -282,30 +182,10 @@ Non Serviam - you're right, я так давно не говорил на род
 Evilbaboon 11.04.2009 00:00:
 Non Serviam - как известно, бобры размножаются почкованием и делением, в зависимости от времени года. Ваша information неверна.
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-dmc_bot 14.04.2009 21:46:
-Non Serviam: ответил) не боись.. все в порядке очереди
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Orange Krunch 18.04.2009 08:57:
-2 Non Serviam "сграблены пара треков на комп"<BR>нет, я конечно не против, но не дешевле было просто скачать в инете? =)
-
 ### Христос воскрес!
 
 Панкрат 18.04.2009 22:36:
 	Dimas 	18.04.2009 22:06 <BR> 	Удалено сообщение от 18.04.2009 21:33 пользователя "bucketdog" в топике "Христос воскрес!"<BR><BR> 	Dimas 	18.04.2009 22:06 <BR> 	Удалено сообщение от 18.04.2009 21:14 пользователя "Хорёк-Пыжик 666" в топике "Христос воскрес!"<BR><BR> 	Dimas 	18.04.2009 22:06 <BR> 	Удалено сообщение от 18.04.2009 21:13 пользователя "Non Serviam" в топике "Христос воскрес!"<BR><BR> 	Dimas 	18.04.2009 22:06 <BR> 	Удалено сообщение от 18.04.2009 21:12 пользователя "Хорёк-Пыжик 666" в топике "Христос воскрес!"<BR><BR> 	Dimas 	18.04.2009 22:06 <BR> 	Удалено сообщение от 18.04.2009 20:45 пользователя "Ruslan" в топике "Христос воскрес!"<BR><BR> 	Dimas 	18.04.2009 22:06 <BR> 	Удалено сообщение от 18.04.2009 20:21 пользователя "Pankrat" в топике "Христос воскрес!"<BR><BR><BR><BR><BR>Какие некоторые моздайцы нетолерантные, однако! )))
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Orange Krunch 19.04.2009 12:18:
-2 Non Serviam,<BR>не, ULVERы только стекольные остались.
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Гвоздев 28.04.2009 22:25:
-Non Serviam, ты данный релиз лучше на каких-нибудь "фолкерских" порталах поспрашивай. а лучше непосредственно у группы закажи.
 
 ### Научно-исследовательский категориальный топ по поводу БУХЛА
 
@@ -357,11 +237,6 @@ Stas Hoffmann 23.05.2009 01:47:
 eddie 23.05.2009 23:26:
 Non Serviam:(23.05.2009 23:04)<BR><BR>к примеру название месяцев - в укрише славянские, в русише - латинские.
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-valentine7 24.05.2009 13:35:
-to non serviam:<BR>Agent steel интересует Отписал на почту
-
 ### гримасы так называемой ЗАПАДНОЙ ТОЛЕРАНТНОСТИ
 
 Soulside 24.05.2009 17:52:
@@ -392,11 +267,6 @@ Non Serviam:(02.06.2009 01:13) <BR><BR>"СМИ - это бизнес, бизне
 Fucker 03.06.2009 01:51:
 Non Serviam:(03.06.2009 00:39)     <BR>  "А я, в принципе, против русского народа ничего не имею. Он мне дал Пушкина и Достоевского, Булгакова и Лермонтова." © Eddie<BR><BR>... и ГАЗЗЗЗЗЗЗЗ!<BR><BR>не забывайте платить, Европа тоже волнуется *) <BR>ну а если и заплатят... ты эти лавэ увидишь????или они опять осядут на счетах швейцарских у могендавидов?
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-fixedk 03.06.2009 13:01:
-2 Non Serviam<BR>The Gathering - Almost A Dance (Foundation 2000) 1st press запечатан 1000<BR><BR><BR>не пойму за что такая цена у сабжа.<BR>памоему это самый сраный и не слушабелдьный в принципе альбом. <BR>в особенности изза вокалиста..<BR><BR>могу понять цену на Always голландского происхождения 92 года. но на это....<BR>
-
 ### гримасы так называемой ЗАПАДНОЙ ТОЛЕРАНТНОСТИ
 
 Non Serviam 04.06.2009 03:51:
@@ -422,11 +292,6 @@ Non Serviam, поменьше смотри Первый, попивая копх
 Максим - LOGIN! 04.06.2009 21:55:
 <DIV CLASS="quote"><B>Non Serviam:(04.06.2009 15:58) 	  </B><BR> 	по числу комментов - топик уже трушнее, чем сами Иммортал</DIV><BR>так ты на счотчег что ли дрочишь?
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Гвоздев 06.06.2009 18:08:
-Non Serviam, посмотри здесь<BR><A HREF="http://katatonia-collection.narod.ru/the_great_cold_distance.html" TARGET="_blank">http://katatonia-collection.narod.ru/the_great_cold_distance.html</A><BR>
-
 ### гримасы так называемой ЗАПАДНОЙ ТОЛЕРАНТНОСТИ
 
 Максим - LOGIN! 07.06.2009 14:23:
@@ -436,11 +301,6 @@ Non Serviam, посмотри здесь<BR><A HREF="http://katatonia-collection
 
 Максим - LOGIN! 09.06.2009 07:15:
 <DIV CLASS="quote"><B>Non Serviam:(09.06.2009 00:35) 	  </B><BR> 	"Бля господа, вы как читаете ?" © chaosgenerator<BR><BR>в этом топе, походу, каждый читает только то, с чем согласен. остальное остается "за кадром" сознания. convenient reading так сказать...</DIV><BR>Сказал он, поправляя складку узла на галстуке своего стоп-листа.
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Orange Krunch 11.06.2009 23:24:
-2 Non Serviam<BR>есть мнение, что Black Mark теперь распространяется только через PHD. но список ограничен. бэк-каталога не жди..
 
 ### Нужна помощь в покупке CDs через eBay.
 
@@ -502,11 +362,6 @@ Astraladventure 27.06.2009 17:59:
 НиколайНС 27.06.2009 22:34:
 К вопросу повышения ставок за пользование торговыми площадями: московские власти, насколько мне известно, наоборот пошли в направлении существенного снижения арендной платы, дабы предприниматели не разбежались кто куда. Действительно, пройдешься по улицам столицы, а кругом, там где еще недавно были кабак, шла торговля или располагался банк, висят похожие друг на друга объявления: "Аренда или продажа". Это я все к тому, что, будучи сегодня на Горбухе, никаких подобных изменений не узрел - все те же и там же.<BR><BR>Другое дело - это девальвация рубля. Ведь отечественные лицензионщики платят западным правообладателям в USD или в EUR. Значит теперь тем же IROND выпуск выходящих скоро Immortal или Hypocrisy обойдется дороже почти в 1,5 раза в сравнении с затратами на предыдущие альбомы названных ВИА. Правда падение курса национальной валюты повлекло за собой удорожание фирменных CDs. Любопытно, никто из присутствующих не сопоставлял, чьи цены в итоге поднялись сильнее?<BR><BR><BR>2 Non Serviam<BR><BR>А Вы, сударь, не пробовали обращаться по вопросу поставки CD в наши дистро? Мне кажется, с ними как-то проще: общаешься непосредственно с человеком, который, так сказать, собственными руками будет осуществлять мероприятия по заказу и доставке столь необходимых кругляшек.
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-vinphis 06.07.2009 09:36:
-to Non Serviam:<BR><BR>Заезжай в Союз на Ленинском - там фирменные синглы со всякой шнягой по 29руб на стенде распродажи
-
 ### Есть ли люди, знающие английский в совершенстве, нуждающиеся в небольшой подработке?
 
 Lazar 10.07.2009 23:56:
@@ -552,26 +407,6 @@ Agen Price 15.07.2009 10:51:
 Keeper 31.07.2009 07:39:
 Druid: ну наверное. Другого объяснения все равно нет.<BR><BR>Non Serviam: пободаццо можно, тока.. а вдруг ставко сыграет? Как платить тогда? Одним негативным фидбэком не отделаешься -)))
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-zharkosha 18.08.2009 09:46:
-Non Serviam: упал паццтул
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-State Oppression 21.08.2009 09:09:
-Ради спортивного интереса, а почему "Скиталец" с автографом стоит 1000 рур, ещё и с царапками, а Откровение (дигибук) с автографом стоит 180 рур? Раре издание чтоли какое- то?<BR><BR>Non Serviam, я просто дигипак этого альбома заполучил, посмотрел и на стеклянное издание, и на дигипачное, мне понравилось, что изданий два, и я совсем решил не продавать этот диск ;))))
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-AB/CD 21.08.2009 21:34:
-Non Serviam: по-этому поводу кстати, ты на сто % прав! кстати, в ступор это никого не вгоняет. в "соузе мяча и анала" могу точно сказать он перезапаковыается многие разы раз.
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-dimonamarth 22.08.2009 20:21:
-Non Serviam,AB/CD: аккуратно послушать-Ripнуть CD мона, но за жирные пальцы на полиграфии надо лишать конечностей...
-
 ### Новинки 2009
 
 Максим - LOGIN! 23.08.2009 16:23:
@@ -591,11 +426,6 @@ Non Serviam:(24.08.2009 19:35) 	  <BR> 	<BR>"пока жив топик "бор�
 
 Dark 24.08.2009 22:47:
 2Non Serviam<BR>Ну вот и я туда больше не хочу ехать.<BR>А вот Хорватия говорят интересней в разы, но я там ещё не был.<BR><BR>Про фастфуд:<BR><BR>Недавно, мне довелось поколесить на машине по таким европейским странам как Польша, Чехия, Словакия. Ну так вот, везде в этих странах MacAuto разный. Больше всего мне понравились бургеры в Польше, там мяса больше. В Словакии такое ощущение, что мясо пересушивают. А про Чехию я сказать ничего не могу, лет 10 назад там было так же с этим, как и Московие, что сейчас там и как пусть ответит, если соизволит, Всея Мазайский Чех.<BR>Но самое интересное, что там, в противовес нашим реалиям, Мac-и не популярны, т.к. за тот же прайс можно очень сытно и вкусно поесть в кафе-забегаловке.<BR><BR>P.S.: Дабы не вводить в заблуждения MacAuto (здеся) = MacDrive (тама)
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Максим - LOGIN! 25.08.2009 02:08:
-Non Serviam ты от какога лейбла трудишьса?<BR><BR>the red chord - prey for eyes (metal blade)<BR>я бы взял да больно дохуя бабак)
 
 ### Женская глэм группа ищет вокалистку
 
@@ -622,11 +452,6 @@ no more links 01.09.2009 02:20:
 LexRock 02.09.2009 12:38:
 2Non Serviam последняя фраза про хард рок кафе штатовский
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Keeper 02.09.2009 19:50:
-Non Serviam: я тебе письмишко на почту отправил, ты получил?
-
 ### Самые крутой ФАСТФУД!!!!
 
 Максим - LOGIN! 02.09.2009 20:53:
@@ -647,30 +472,10 @@ Non Serviam, зачёт! :super: это в мемориз, блиа))
 Dark 16.09.2009 08:38:
 Пост Non Serviam-а от 16.09.2009 02:20 ввёл меня в некий культурный ступор.<BR>А демократии на Кавказе действительно так много, что он-ПОБЕДИТЕЛЬ Давид Барами её к нам решил привезти, делов то.<BR>
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-eddie 21.09.2009 15:32:
-Non Serviam:(21.09.2009 15:23) <BR><BR>К сожалению я смогу отправить почтой только диски, указанные в сообщении. <BR><BR>-)))<BR><BR>
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-zharkosha 24.09.2009 19:39:
-2 Non Serviam: NIHIL 12CD 10403151 02 & MADE IN U.K. BY PDO<BR><BR>у меня такая....
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Dimas 28.09.2009 19:02:
-Non Serviam:(28.09.2009 16:30, 91.77.183.65)    промки недорого:<BR> <BR>это сколько недорого нынче?
-
 ### гримасы так называемой ЗАПАДНОЙ ТОЛЕРАНТНОСТИ
 
 Максим - LOGIN! 05.10.2009 20:24:
 Эх, Хорёк... Судя по тому, что ты написла только что, ты находишься в овощном состоянии и объяснять тебе что-либо - бесоплезно, да и пустое это.<BR><BR><BR>Non Serviam, следишь за мной?<BR>Вуайерист-извращениц.<BR>Кстати, попробуй футбольные матчи каментировать, к тому идёт, по идее должен уже уметь оперативно генерить шутки юмора в режиме реального времени :)
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Shch 06.10.2009 10:57:
-Non Serviam, если  Tiamat - The Ark Of The Covenant  не ушел, я бы забрал на следующей неделе.
 
 ### гримасы так называемой ЗАПАДНОЙ ТОЛЕРАНТНОСТИ
 
@@ -701,11 +506,6 @@ Non Serviam, мальчик, кто ты? Я хочу знать! Твое вы�
 
 colddarknord 07.10.2009 08:53:
 Non Serviam, видать ты и вправду виртуал, если у тебя даже имени нету собственного. В  игнор.<BR><BR>Князь, ты русский патриот, ты давно на себя в зеркало-то глядел? Смех ей-богу!
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Шуреги любят вас!!! 09.10.2009 19:48:
-Non Serviam:(09.10.2009 13:38)<BR><BR>вах, откуда столько говнищщща, треть которого ещё и местного производства?
 
 ### гримасы так называемой ЗАПАДНОЙ ТОЛЕРАНТНОСТИ
 
@@ -757,65 +557,15 @@ State Oppression 20.10.2009 18:21:
 The Nuclear Titbit 23.10.2009 22:39:
 Non Serviam:<BR><BR>Йазычество - это нынче дика модная тема. Типа чти  прэдкоф и землю русскую верь в "истинных" богофф и ты ды! <BR>В общем, мало чем отличается от зверского "ислама" кавказа да и остальных народов задержавшихся в 14-ом веке. <BR>Собственно данное течение стало пробиваться в мейнстрим с 2000-х годов. Сейчас, судя по последним событиям власть имущие не сильно впечатлились данной идеей некоторых индивидуумов. 
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Orange Krunch 25.10.2009 01:15:
-2Non Serviam <BR>за это барахло дам тебе посмотреть на остатки магазина Lesoskog (фото в разных ракурсах. коробки могут быть расставлены в пикантных позах и одеты в костюмы раба, медсестры. также эксклюзивно, по случаю 25 октября - Дня таможенника - в таможенную форму)..
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Максим - LOGIN! 31.10.2009 00:13:
-<DIV CLASS="quote">non serviam 		 Re: sale! редкие фирменные диски и прочее…<BR>Добавлено: Сб 31.10.2009, 01:02 <BR>.........<BR>.........<BR>arcturus - aspera hiems symphony/constellation/my angel 2cd (candlelight)<BR>arcturus - disguised masters (jester)<BR>arcturus - la masquerade infernale (candlelight)<BR>......<BR>ulver - 1993-2003: 1st decade in the machines (jester)<BR>ulver - a quick fix of melancholy (flamme noire) mlp 10’’<BR>ulver - bergtatt (head not found) cult pagan black<BR>ulver - blood inside (box) (jester)<BR>ulver - blood inside (jester)<BR>ulver - blood inside (ltd velvet box) (jester)<BR>ulver - kveldsjanger (head not found)<BR>ulver - lyckantropen themes (jester)<BR>ulver - memoirs (prophecy)<BR>ulver - shadows of the sun (jester)<BR>ulver - svidd neger (jester)<BR>ulver - teachings in silence (jester)<BR>ulver - themes from william blakeґs 2cd (jester)<BR></DIV><BR><BR>ты ж сказал в почте пару дней назад, что у тебя их нету!
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Orange Krunch 01.11.2009 23:44:
-2 Non Serviam<BR>к тебе это тоже относится =)
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-wanter 03.11.2009 16:42:
-Non Serviam, можно кагбе раз в два дня напоминать про свой основной лист на дарксайде (или где он там) - одной строкой. И раз в неделю выкидывать простыню, в которой за это время действительно - а не в твоем воображении - может появиться что-то новое. <BR><BR>"да, кстати, чтобы немного разнообразить"<BR><BR>Разнообразил просто блеск. <BR><BR>
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Тундра 03.11.2009 17:18:
-Non Serviam: wanter прав в том что не стоит огромные списки обновленные заново вешать - достаточно новинки дописывать. Или скидывай большие прайсы ссылкой.
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Максим - LOGIN! 04.11.2009 03:20:
-Non Serviam ты гонишь!
-
 ### гримасы так называемой ЗАПАДНОЙ ТОЛЕРАНТНОСТИ
 
 фрукт 04.11.2009 12:30:
 Non Serviam, так и ты съябывай, войди в список мойшдайских мученников
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Максим - LOGIN! 05.11.2009 22:50:
-<DIV CLASS="quote"><B>Non Serviam:(05.11.2009 21:35) 	  <BR> 	если б ты Мясо не хуйней страдал и глаза имел, ты б наверное заметил, что тут один селлер (ТЫ НЕ ПОВЕРИШЬ!) нужный тебе Арктурус продает.</B></DIV><BR>Этот селлер - ты?<BR>Если нет, то из-за твоих, Non Serviam, мегасодержательных простыней, в которых, как оказалось, ещё "половина уже обещана Васе, который 20го получит зарплату" я и пропускаю чё-та нужное.<BR><BR>Если бы ты договрился с ним и перепродал мне, раз я с тобой начал общаться. Я бы разницы не заметил, даже если бы ты сказал, что на 200 р. дороже, к примеру. Но на нет и суда нет.
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Non Serviam 06.11.2009 01:54:
-порезаны цены на некоторе залежавшееся хламцо + добавлены новинки:<BR><BR><A HREF="http://www.darkside.ru/forum/viewtopic.php?f=7&t=9475" TARGET="_blank">http://www.darkside.ru/forum/viewtopic.php?f=7&t=9475</A><BR><BR>для тех у кого не открывается линк: FORUM &gt; TRADE CAVE &gt; 'sale! новинки + порезаны цены на старое' (non serviam)
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Максим - LOGIN! 09.11.2009 20:50:
-Non Serviam, solefald - the circular drain <BR>такой?<BR><A HREF="http://s43.radikal.ru/i102/0911/dc/fe4942eed77b.jpg" TARGET="_blank">http://s43.radikal.ru/i102/0911/dc/fe4942eed77b.jpg</A>
-
 ### 05/11/09 Hieronymus Bosch Клуб Точка
 
 AlexStuff 10.11.2009 12:40:
 Non Serviam, какие откаты? Бред не надо нести, ога?<BR><BR>Йад Сам, так это... что там про "заплатить сначала"? =)
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Ed the Hunter 11.11.2009 16:15:
-To Non Serviam: в "Настроении" на Тишинке, дом 1 (м."Белорусская" либо "Маяковская") присутствует Tractor Bowling в числе прочего "русского рока".
 
 ### Х**** какая-то...
 
@@ -842,11 +592,6 @@ Non Serviam:(16.11.2009 22:38)<BR><DIV CLASS="quote"> 	<BR>я прям гото�
 Soubbterranean 19.11.2009 03:28:
 2Non Serviam:<BR>да лана те :)) переца от Толкиена (даже по молодости), жечь церкви и сувать бритвы в мороженое - это ж детсад и идиотизм! и вы можете скока угодно тут распинаца о гениальности и неземной мудрости Гришнака...
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Orange Krunch 19.11.2009 15:07:
-Может оно тут кому приглянется...part IV<BR>цены с доставкой по России от 3 экземпляров.<BR>вопросы об издании позиций в мыло<BR>mutiilation@list точка ру<BR><BR>NIRNAETH ARNOEDIAD - Nirnaeth Arnoediad - CD - 300<BR>NOVEMBERS DOOM - The Novella Reservoir - CD - 450<BR>NOVEMBERS DOOM - The Pale Haunt Departure (Candlelight) - CD - 500<BR>NOVEMBERS DOOM - The Pale Haunt Departure (The End Records) - CD - 450<BR>NOVEMBERS DOOM - To Welcome The Fade (Blackend Records) - DCD - 450<BR>NOVEMBERS DOOM - To Welcome The Fade (The End Records) - DCD - 550<BR>NOW - Nowia - CD - 400<BR>OBITUARY - Xecutioners Return - CD - 500<BR>OBSCURE VORTEX - Was Einst War... - CD - 400<BR>OPERA IX - Anphisbena - CD - 450<BR>OPERA IX - Maleventum - digipak - 450<BR>OPERATION RACEWAR \ WEWELSBURG - No More Cold War! - CD - 400<BR>OPHIOLATRY - Infernal Dominion - CD - 400<BR>PAGAN FOREST - Pure Harmony Of The Night - CD - 450<BR>PAGAN WINTER - The Cult Of Flesh - CD - 400<BR>PARADISE LOST - In Requiem - CD - 500<BR>PARADISE LOST - Paradise Lost - CD - 450<BR>PECCATUM - The Moribund People - MCD - 400<BR>PROSCRIPTOR - The Venus Belonna - digipak - 450<BR>RAGNAROK - Nattferd - CD - 500<BR>RAM-ZET - Intra - CD - 450<BR>REGNATOR \ NORTHDARK - When The Plague Reigns - CD - 200<BR>REIDO - F:\all - CD - 200<BR>REUNION - Stream Of Hate - CD - 200<BR>ROSSOMAHAAR - Live And Die In Moscow - CD - 200<BR>ROSSOMAHAAR - Quaerite Lux In Tenebris... - CD - 200<BR>ROSSOMAHAAR - Regnum Somni - CD - 200<BR>ROTTING CHRIST - Non Serviam - CD - 450<BR>ROTTING CHRIST - Passage To Arcturo - CD - 450<BR>RUNEMAGICK - Resurrection In Blood - CD - 400<BR>RUNES OF DIANCEHT - Eternal Call Of Darkness - CD - 400<BR>SADISTIC GRIMNESS - Vicious Torture - CD - 400<BR>SADISTIK EXEKUTION - Fuck II - CD - 450<BR>SALTUS - Slowianska Duma - CD - 400<BR>SAMAEL - Reign Of Light - PLP - 500<BR>SAMAEL - Aeonics - An Anthology - CD - 500<BR>SAPTHURAN - To The Edge Of Land - CD - 400<BR>SATARIAL - Tanz Mit...Tod... - CD - 200<BR>SATARIAL - Heidenlarm - CD - 200<BR>SATARIAL - Larm - CD - 200<BR>SATARIAL - The Queen Of The Elves Land - CD - 200<BR>SCALD - Will Of The Gods Is Great Power - CD - 150<BR>SCREAM IN DARKNESS - Scream In Darkness - CD - 200<BR>SENTENCED - No One There - CD - 300<BR>SEPULTURA  - Roorback (ltd) - digiDCD - 600<BR>SERPENS - The Cult - CD - 200<BR>SHINING - The Darkroom Sessions - CD - 450<BR>SHINING - Through Year Of Oppression     - CD - 450<BR>SIEBENBURGEN - Darker Designs & Images - CD - 450<BR>SIEBENBURGEN - Delictum - CD - 450<BR>SIEBENBURGEN - Grimjaur - CD - 450<BR>SIEBENBURGEN - Plagued Be Thy Angel - CD - 450<BR>SIGH - Imaginary Sonicscape - CD - 450<BR>SINFUL - Omyt - CD - 200<BR>SINPULARCTOS - The Voidance Of Man - CD - 400<BR>SKEPTICISM - Aes - MCD - 400<BR>SKYFIRE - Haunted By Shadows - MCD - 350<BR>SLAYER  - Live Undead - CD - 500<BR>SOLEFALD - The Linear Scaffold - CD - 450<BR>SOLSTAFIR - In Blut Und Lekt - CD - 300<BR>SOMBRE CHEMIN \ ORNAMENTS OF SIN - Durch Ruinen Und D?stere Kriegsfelder - CD - 450<BR>SORATH / UNCLEAN - Matache Chavala / Tam Kdesi V Hlubin?ch - CD - 450<BR>SPETALSK - Perverted Commandment - MCD - 400<BR>STONE TO FLESH - Some Wounds Bleed Forever - CD - 350<BR>STUCK MOJO - Rising - CD - 400<BR>STUCK MOJO - Violate This - CD - 400<BR>STUCK MOJO - Violated - digiMCD - 350<BR>SUHRIM - Happy Hours - CD - 400<BR>SUICIDAL WINDS - Crush Us With Fire - MCD - 300<BR>TAAKE - Nekro - MCD - 400<BR>TAETRE - The Art - digipak - 450<BR>TAVARON - Suizid - CD - 350<BR>THE BEAST - Fixed By The Devil - MCD - 350<BR>THE BERZERKER  - The Animosity - CD - 450<BR>THE CHOSEN - For The Glory Of The Empire - CD - 400<BR>THE MUSHROOM RIVER BAND - Simsalabim - CD - 450<BR>THE SPLINTERS - Ambivalence - CD - 200<BR>THEATRE OF TRAGEDY - Velvet Darkness They Fear - CD - 450<BR>THORASINE - Geneticide - CD - 400<BR>THORNS vs. EMPEROR  - Thorns vs. Emperor - CD - 500<BR>THORNSPAWN - Blood Of The Holy Taint Thy Steel - CD - 400<BR>THOU SHALL FALL - The Path Of Memories - MCD - 350<BR>THOU SHALT SUFFER - Into The Woods Of Belial - CD - 450<BR>THOUS WHO BRING THE TORTURE - Thous Who Bring The Torture - CD - 400<BR>
-
 ### Будущее
 
 Максим - LOGIN! 25.11.2009 22:25:
@@ -867,20 +612,10 @@ promoter 27.11.2009 23:04:
 Non Serviam 28.11.2009 02:50:
 &gt; Адам Мунспелов... какое интересное фамилие... тоже из графьёв? (с) Non Serviam<BR><BR>promoter, вы почто мое цитато искажаете? =) я не пишу многоточиями
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-R. 28.11.2009 03:14:
-Non Serviam:(28.11.2009 00:46) Есть только Офталамия, но я её не меняю и не продаю 8-)
-
 ### Среднестатистический влёт организаторОГ))
 
 promoter 28.11.2009 23:02:
 " пора идтить в церковь за святой водицей наверное" (с) Non Serviam<BR><BR>Если это ко мне обращено... то совершенно правильно... и к месту, и ко времени...<BR><BR>Рождественский пост начался... Завтра с раннего утра еду в Оптину Пустынь...<BR>Храни Вас Христос!
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Anton_Borden 29.11.2009 23:18:
-Non Serviam, а чего тебе не нравится то, я не понял? 
 
 ### Самый раритетный CD в вашей коллекции?
 
@@ -902,11 +637,6 @@ Non Serviam:(30.11.2009 21:28)     <BR>  а с этими?<BR><BR>Отдел п�
 Soulside 03.12.2009 09:50:
 Non Serviam:(03.12.2009 01:50) 	  <BR> 	<BR>аффтар, а что ты расчитываешь услышать в ответ на свое "А как вы пришли к джазу???"<BR><BR>не на что такое, о чем ты написал выше, я не рассчитываю.  Наверное на такой ответ, который дал Ихти.  Потому что возникает желание послушать этот "Серкл ин зэ раунд".<BR><BR>А на джазовые форумы хер ли ходить. РЕгится, общаться с незнакомыми людьми, и все такое. Тут хотя бы я знаю от кого что ожидать. Знал я, что появится Мясо с Русланом и 	ixtiandr что-то посоветует и к их мнению я прислушаюсь. А вот если Йад сам вылезет или Путрид Брайд, то пожалуй этих мифических персонажей я проигнорирую.<BR><BR>colddarknord: качаю  Witchi-Tai-To" Jan Garbarek - Bobo Stenson Quartet посмотрим что это за сказка.<BR><BR><BR>
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Максим - LOGIN! 04.12.2009 23:34:
-<DIV CLASS="quote">Non Serviam:(04.12.2009 16:42) 	  <BR>Sirrah - 1998 - Did Tomorrow Come… (Metal Mind) в "заднике" аккуратная дырка от офисного дырокола</DIV><BR>мне казалось, что назывался <B>Will</B> Tomorrow Come…?
-
 ### Невский экспресс, хромая лошадь. Что дальше?
 
 R. 05.12.2009 18:54:
@@ -922,11 +652,6 @@ Non Serviam,<BR><BR>феномен Некиса как раз заключает
 Burzum 15.12.2009 18:17:
 Non Serviam<BR><BR>Так это кто тут ранимый?
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Максим - LOGIN! 15.12.2009 23:39:
- Non Serviam, ну уподобляйса гомогеям. Это касаемо уменьшительно ласкательного производного от моего имени.<BR> Короче, я имею представление об этих позициях с тех времён как они вышли. Если Что-то там "симфоблек" или "дум" - скучность не прощает (кстати, перепутал с другим гавном - Лакримас Профундере, так как слушалось с 1й кассеты).<BR> Соратнеки твоё направление не слушают, обсуждаем технодет, технобрутал и немного джазку с артроком. И что занчит "ездят по ушам"? Такой термин был в ходу в конце 90х начале 2000, пока незя было из Инета накачать и самому слушать.<BR><BR> У товарища выше:<BR>SADIST Tribe 1996 Beyond 900 p<BR> Чё та дороговато. Я у Коёта покупал за 300.
-
 ### вот это уже пипец!!
 
 dmc_bot 16.12.2009 01:58:
@@ -941,16 +666,6 @@ Non Serviam: "... дык если их закроют, целый легион �
 
 Хорёк 21.12.2009 00:20:
 NS - Non Serviam?<BR>Вроде по смыслу подходит....
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Orange Krunch 25.12.2009 22:52:
-2Non Serviam<BR>первопрессы чтоль ищешь?<BR>discogs.com поможет... там частенько инфу о матрицах встретить можно.<BR>в частности... osmose вроде все свои релизы на фабриках с оборудованием sony штампует, но ранние релизы выходили под маркой sony dadc austria, а поздние (и допечатки) выходят с маркой sony dadc (без австрии)
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-zharkosha 26.12.2009 23:02:
-Non Serviam: Burzum - Hlidskjalf (Misanthropy) недорого это сколько?
 
 ### Какой ИДИОТ придумал дигипаки?
 
@@ -1122,16 +837,6 @@ zharkosha:<BR>а до кого доебаться - все умерли давн
 eddie 08.01.2010 01:15:
 Non Serviam:(08.01.2010 01:09)<BR><BR>не только. Англия и особенно Франция- мировые лидеры в этой области. Когда отомрет - тогда поговорим, а пока это неудовлетворенные фантазии миши леонтьева.<BR>Последний абзац вообще не комментирую, а предлагаю еще больше смотеть ОРТ-РТР-НТВ. Там ответы на все вопросы-).<BR><BR>zharkosha:(08.01.2010 01:12)<BR><BR>вопросы с падением уровня жизни надо решать, ну так до кризиса и решали, нет? Кризис не только у нас, у нас сильнее, да, нефти нет, и экономика дикая и коррумпированная, все это и усилило эффект.<BR>Я не фанат церквушек и мемориалов, но тему считаю правильно поднимает.
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Максим - LOGIN! 10.01.2010 01:50:
-Non Serviam, зокеж фото болванки с морозными узорами, очень интересно воще-то о чём речь...<BR><BR>Кстати, а что значит пришлось боксов много менять чтобы что-то там без пальцев было, это как воще? :-О
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Orange Krunch 12.01.2010 23:54:
-2 Non Serviam<BR>а было время, когда я эти Хардангервидды не знал куда бы пристроить..и стоили они 400 и 350 соответственно =)<BR>
-
 ### Странная страна
 
 Максим - LOGIN! 17.01.2010 11:56:
@@ -1217,11 +922,6 @@ Non Serviam:(23.01.2010 18:45): Колдыркнорду есть чем гор�
 stepa 30.01.2010 10:09:
 Ну, Non Serviam особо не напиздил насчет доллара. За год курс доллара к рублю упал рублей на 7. Не обрушился, конечно, но почти 20% - это немало.
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-zharkosha 30.01.2010 10:27:
-2 non serviam:<BR>dadc austria ifpi l551 a0000018966-0101 21 a2 <BR>вот такая матрица на моем, взятом на ебее год назад за 15 баксов где то<BR>это че, очень тру издание? или не очень? :)
-
 ### Тимошенко vs. Янукович
 
 eddie 30.01.2010 11:33:
@@ -1231,16 +931,6 @@ Non Serviam:(30.01.2010 03:42)<BR><BR>помнят везде, а в Запад�
 
 Sarokhael 30.01.2010 13:07:
 Non Serviam, а законы экономики могут прогнуться под США?<BR>Это же не физика.
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Gatecrasher 01.02.2010 15:36:
-Свежачок-с (контакт - e5150invader@gmail.com)<BR><BR>Фирма:<BR>Bal-Sagoth - The Power Cosmic 450<BR>Bal-Sagoth - Atlantis Ascendant 450<BR>Bal-Sagoth - The Chthonic Chronicles 450<BR><BR>Лицензия:<BR>Bal-Sagoth - A Black Moon Broods Over Lemuria<BR>Bal-Sagoth - Starfire Burning Upon The Ice-Veiled Throne Of Ultima Thule<BR>Bal-Sagoth - Battle Magic<BR>Bal-Sagoth - The Power Cosmic 150<BR>Bal-Sagoth - The Chthonic Chronicles<BR>Enslaved - Eld 150 (зарезервирован)<BR>Rotting Christ - Passage To Arcturo<BR>Rotting Christ - Thy Mighty Cotnract<BR>Rotting Christ - Non Serviam<BR>Rotting Christ - Triarchy Of The Lost Lovers<BR>Storm - Nordavind<BR>Summoning - Lugburz<BR>Summoning - Minas Morgul<BR>Summoning - Dol Guldur<BR>Summoning - Nightshade Forests<BR>Summoning - Stronghold<BR>Summoning - Let Mortal Heroes Sing Your Fame<BR>Summoning - Lost Tales<BR>Summoning - Stronghold<BR>+<BR>Isengard - Hoestmoerke / Vinterskugge (труЪ-ператко начала 2000-х годов с нормальным буклетом и задником + печатью на самом диске) 150
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Gatecrasher 07.02.2010 12:11:
-Лицензия + прочие российские диски (по 100 рублей за штуку, если не указано иначе): <BR>Abstract Spirit - Liquid Dimensions Change <BR>Absu - The Sun Of Tiphareth <BR>Absu - The Third Storm Of Cythraul <BR>Agent Steel - Skeptics Apocalypse <BR>Agent Steel - Unstoppable Force <BR>Amorphis - The Karelian Isthmus / Privilege Of Evil <BR>Amorphis - Tales From The Thousand Lakes / Black Winter Day <BR>Anathema - Crestfallen / Pentecost III <BR>Asphyx - The Rack <BR>Asphyx - Last One On Earth <BR>Autumn - And We Are Falling Leaves <BR>Autumn - Чёрные Крылья <BR>Autumnblaze - DammerElbenTragodie <BR>Autumnblaze - Bleak <BR>Bal-Sagoth - A Black Moon Broods Over Lemuria <BR>Bal-Sagoth - Starfire Burning Upon The Ice-Veiled Throne Of Ultima Thule <BR>Bal-Sagoth - Battle Magic <BR>Bal-Sagoth - The Power Cosmic 150 <BR>Bal-Sagoth - The Chthonic Chronicles <BR>Black Abyss - Land Of Darkness <BR>Blind Guardian - A Twist In The Myth <BR>Blind Guardian - A Twist In The Myth (2xCD) (digipack) 200 <BR>Bolt Thrower - Those Once Loyal <BR>Candlemass - Epicus Doomicus Metallicus (2xCD) 150 <BR>Candlemass - Nightfall (2xCD) 150 <BR>Candlemass - Ancient Dreams (2xCD) 150 <BR>Candlemass - Tales Of Creation (2xCD) 150 <BR>Candlemass - Live <BR>Candlemass - Doomed For Live (2xCD) 150 <BR>Candlemass - Candlemass <BR>Catacombs - Echoes Through The Catacombs 150 <BR>Celtic Frost - To Mega Therion <BR>Celtic Frost - Into The Pandemonium <BR>Celtic Frost - Vanity / Nemesis<BR>Celtic Frost - Parched With Thirst Am I And Dying <BR>Cemetery - An Evil Shade Of Grey <BR>Comatose Vigil - Not A Gleam Of Hope 200 <BR>Comatose Vigil - Narcosis 150 <BR>Corona Borealis - Cantus Paganus <BR>Count Raven - Storm Warning <BR>Count Raven - Destruction Of The Void <BR>Count Raven - High On Infinity <BR>Count Raven - Messiah Of Confusion <BR>Dark Angel - Leave Scars <BR>Dark Angel - Time Does Not Heal <BR>Deofel - Aposni Ritual <BR>Destruction - Eternal Devastation / Mad Butcher <BR>Destruction - Live Without Sense <BR>Destruction - Release From Agony <BR>Destruction - Cracked Brain <BR>Destruction - Alive Devastation <BR>Dismember - Like An Everflowing Stream <BR>Dismember - Pieces <BR>Dismember - Indecent And Obscene <BR>Dismember - The God That Never Was <BR>Dismember - Dismember <BR>Dissection - Storm Of The Light's Bane (2006) <BR>Enochian Crescent - Telocvovim <BR>Full Decay - Full Decay <BR>Gae Bolg - Requiem <BR>Grave - Into The Grave <BR>Grave - You'll Never See... <BR>Grave Digger - 25 To Live (2xCD) (digipack) 200 <BR>Groves In Mist - Mood Diary <BR>Hekate - Ten Years Of Endurance <BR>Helloween - Walls Of Jericho (2xCD) (slipcase) 200 <BR>Hierophant - The Tome 150 <BR>Iron Savior - Condition Red<BR>Iron Savior - Battering Ram<BR>Karl Sanders - Saurian Meditation <BR>Katatonia - Dance Of December Souls (digipack) 150 <BR>Living Death - Vengeance Of Hell <BR>Living Death - Metal Revolution <BR>Living Death - Protected From Reality <BR>Living Death - Worlds Neuroses <BR>Majesty - Doomsday Machine <BR>Morgoth - Resurrection Absurd / The Eternal Fall <BR>Nazgul - De Expugnatione Elfmuth <BR>Necromantia - Cults Of The Shadow (2xCD) (digipack) 200 <BR>Nile - In The Beginning <BR>Nile - Amongst The Catacombs Of Nephren-Ka <BR>Nile - Black Seeds Of Vengeance <BR>Nile - In Their Darkened Shrines <BR>Nile - Annihilation Of The Wicked <BR>Nile - Ithyphallic <BR>Nocturnus - The Key <BR>Nocturnus - Thresholds <BR>Obituary - Frozen In Time <BR>Откровения Дождя - Мраморные Тона Отчаяния <BR>Protector - Welcome To Fire <BR>Puissance - Grace Of God <BR>Rotting Christ - Passage To Arcturo <BR>Rotting Christ - Thy Mighty Cotnract <BR>Rotting Christ - Non Serviam <BR>Rotting Christ - Triarchy Of The Lost Lovers <BR>Running Wild - Rivalry <BR>Running Wild - Victory <BR>S.C.A.L.P. - In Memory Of Madness <BR>Sceptic - Pathetic Being <BR>Sea Of Desperation - To My Beloved... <BR>Sea Of Desperation - Spiritual Lonely Pattern <BR>Sea Of Desperation - Dread Poems Of The Fall <BR>Sentenced - Shadows Of The Past <BR>Sentenced - North From Here <BR>
 
 ### Тимошенко vs. Янукович
 
@@ -1256,16 +946,6 @@ eddie 09.02.2010 16:23:
 
 eddie 10.02.2010 00:13:
 Non Serviam:(10.02.2010 00:00)<BR><BR>окатыш + сляб - это полуфабрикаты, а не руда. <BR>так что корректно считать уголь+руда, так и быть вс нефть и газ 
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-vinphis 10.02.2010 02:35:
-to Non Serviam:   <BR><BR>...поделитесь плиз матрицей<BR><BR>CDMFN135  MASTERED BY MAYKING (гравировка на внешней стороне)<BR>
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Вежливый 12.02.2010 16:44:
-Non Serviam<BR>в принципе соглашусь с тобой! 300 рублей может и маловато, но и до 400 оптовая сделка не может дотягивать
 
 ### Нужна помощь в покупке CDs через eBay.
 
@@ -1287,25 +967,10 @@ Non serviam,  шведский, норвежский и датский почт�
 Gargona 23.02.2010 21:07:
 Non Serviam:(23.02.2010 17:18) 	  <BR> вот странные вы, женщины...<BR>"Здоровья, счастья и прочих материальных благ!)))" ©<BR><BR>да ладно, про материальные ценности это я так , в шутку написала, а то начали за здравье, а продолжение глядишь, виртуальные боевые действия развернутся
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Gatecrasher 26.02.2010 17:11:
-+<BR>Enochian Crescent - Telocvovim <BR>Full Decay - Full Decay <BR>Gae Bolg - Requiem <BR>Grave - Into The Grave <BR>Grave - You'll Never See... <BR>Grave Digger - 25 To Live (2xCD) (digipack) 150 <BR>Groves In Mist - Mood Diary <BR>Hekate - Ten Years Of Endurance <BR>Helloween - Walls Of Jericho (2xCD) (slipcase) 150 <BR>Hierophant - The Tome 150 <BR>Iron Savior - Condition Red<BR>Iron Savior - Battering Ram<BR>Katatonia - Dance Of December Souls (digipack) <BR>Living Death - Vengeance Of Hell <BR>Living Death - Metal Revolution <BR>Living Death - Protected From Reality <BR>Living Death - Worlds Neuroses <BR>Morgoth - Resurrection Absurd / The Eternal Fall <BR>Nazgul - De Expugnatione Elfmuth <BR>Necromantia - Cults Of The Shadow (2xCD) (digipack) 150 <BR>Nile - In The Beginning <BR>Nile - Amongst The Catacombs Of Nephren-Ka <BR>Nile - Black Seeds Of Vengeance <BR>Nile - In Their Darkened Shrines <BR>Nile - Annihilation Of The Wicked <BR>Nile - Ithyphallic <BR>Obituary - Frozen In Time <BR>Откровения Дождя - Мраморные Тона Отчаяния <BR>Rotting Christ - Passage To Arcturo <BR>Rotting Christ - Thy Mighty Cotnract <BR>Rotting Christ - Non Serviam <BR>Rotting Christ - Triarchy Of The Lost Lovers <BR>Running Wild - Rivalry <BR>Running Wild - Victory <BR>S.C.A.L.P. - In Memory Of Madness <BR>Sceptic - Pathetic Being <BR>Sea Of Desperation - To My Beloved... <BR>Sea Of Desperation - Spiritual Lonely Pattern <BR>Sea Of Desperation - Dread Poems Of The Fall <BR>Slayer - Show No Mercy <BR>Slayer - Hell Awaits <BR>Slayer - Reign In Blood <BR>Slayer - South Of Heaven <BR>Slayer - Seasons In The Abyss <BR>Sodom - Better Off Dead<BR>Sodom - Tapping The Vein<BR>Sodom - M-16<BR>Sodom - The Final Sign Of Evil <BR>Solitude Aeturnus - Into The Depths Of Sorrow <BR>Solitude Aeturnus - Beyond The Crimson Horizon <BR>Solitude Aeturnus - Through The Darkest Hour <BR>Solitude Aeturnus - Downfall <BR>Solitude Aeturnus - Adagio <BR>Solitude Aeturnus - Alone <BR>Solstafir - Til Valhallar 150 <BR>Summoning - Lugburz <BR>Summoning - Minas Morgul <BR>Summoning - Dol Guldur <BR>Summoning - Nightshade Forests <BR>Summoning - Stronghold <BR>Summoning - Let Mortal Heroes Sing Your Fame <BR>Summoning - Lost Tales <BR>Summoning - Oath Bound <BR>Tumulus - Winter Wood <BR>Unleashed - Where No Life Dwells...<BR>Unleashed - Where No Life Dwells... (digipack)<BR>Unleashed - Midvinterblot <BR>Usurper - Twilight Dominion<BR>Virgin Steele - Virgin Steele<BR>Virgin Steele - Guardians Of The Flame<BR>Virgin Steele - Noble Savage<BR>Virgin Steele - Age Of Consent<BR>Virgin Steele - The Marriage Of Heaven & Hell Part 1<BR>Virgin Steele - The Marriage Of Heaven & Hell Part 2<BR>Virgin Steele - Invictus<BR>Virgin Steele - House Of Atreus Act 1<BR>Virgin Steele - House Of Atreus Act 2<BR>Virgin Steele - Hymns To Victory<BR>Virgin Steele - The Book Of Burning<BR>Virgin Steele - Visions Of Eden<BR>Void Of Silence - Criteria Ov 666 <BR>Void Of Silence - Human Antithesis <BR>Warhammer - Curse Of The Absolute Eclipse <BR>Wolfenmond - Finisterre (Die Reise Am Ende Der Welt) <BR>+ <BR>Isengard - Hoestmoerke / Vinterskugge (труЪ-ператко начала 2000-х годов с нормальным буклетом и задником + печатью на самом диске) 100<BR><BR>Примечание: двухчастные альбомы Virgin Steele продаются только вместе, равно как и Hymns To Victory + The Book Of Burning.
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-ignore321 01.03.2010 06:05:
-to Non Serviam<BR>эти цд еще вчера стоили по 300 рэ, а за сколько продашь их ты?:-))) меня серьезно это интересует
-
 ### 30.01.10 Релакс Презентация нового альбома НЕВИДЬ.
 
 Шульц 07.03.2010 11:27:
 Non Serviam, я ж тебе предлагал дисочек. Ты это, обращайсо, если чо.
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Gatecrasher 11.03.2010 13:45:
-Count Raven - Storm Warning <BR>Count Raven - Destruction Of The Void <BR>Count Raven - High On Infinity <BR>Count Raven - Messiah Of Confusion <BR>Dark Angel - Leave Scars <BR>Dark Angel - Time Does Not Heal <BR>Deofel - Aposni Ritual <BR>Destruction - Eternal Devastation / Mad Butcher <BR>Destruction - Live Without Sense <BR>Destruction - Release From Agony <BR>Destruction - Cracked Brain <BR>Destruction - Alive Devastation <BR>Dismember - Like An Everflowing Stream <BR>Dismember - Pieces <BR>Dismember - Indecent And Obscene <BR>Dismember - The God That Never Was <BR>Dismember - Dismember <BR>Enochian Crescent - Telocvovim <BR>Full Decay - Full Decay <BR>Gae Bolg - Requiem <BR>Grave - Into The Grave <BR>Grave - You'll Never See... <BR>Grave Digger - 25 To Live (2xCD) (digipack) 150 <BR>Groves In Mist - Mood Diary <BR>Hekate - Ten Years Of Endurance <BR>Helloween - Walls Of Jericho (2xCD) (slipcase) 150 <BR>Hierophant - The Tome 150 <BR>Iron Savior - Condition Red<BR>Iron Savior - Battering Ram<BR>Katatonia - Dance Of December Souls (digipack) <BR>Living Death - Vengeance Of Hell <BR>Living Death - Metal Revolution <BR>Living Death - Protected From Reality <BR>Living Death - Worlds Neuroses <BR>Morgoth - Resurrection Absurd / The Eternal Fall <BR>Nazgul - De Expugnatione Elfmuth <BR>Necromantia - Cults Of The Shadow (2xCD) (digipack) 150 <BR>Nile - In The Beginning <BR>Nile - Amongst The Catacombs Of Nephren-Ka <BR>Nile - Black Seeds Of Vengeance <BR>Nile - In Their Darkened Shrines <BR>Nile - Annihilation Of The Wicked <BR>Nile - Ithyphallic <BR>Obituary - Frozen In Time <BR>Откровения Дождя - Мраморные Тона Отчаяния <BR>Rotting Christ - Passage To Arcturo <BR>Rotting Christ - Thy Mighty Cotnract <BR>Rotting Christ - Non Serviam <BR>Running Wild - Death Or Glory <BR>Running Wild - Rivalry <BR>Running Wild - Victory <BR>S.C.A.L.P. - In Memory Of Madness <BR>Sceptic - Pathetic Being <BR>Sea Of Desperation - To My Beloved... <BR>Sea Of Desperation - Spiritual Lonely Pattern <BR>Sea Of Desperation - Dread Poems Of The Fall <BR>Slayer - Show No Mercy <BR>Slayer - Hell Awaits <BR>Slayer - Reign In Blood <BR>Slayer - South Of Heaven <BR>Slayer - Seasons In The Abyss <BR>Sodom - Better Off Dead<BR>Sodom - M-16<BR>Sodom - The Final Sign Of Evil <BR>Solitude Aeturnus - Into The Depths Of Sorrow <BR>Solitude Aeturnus - Beyond The Crimson Horizon <BR>Solitude Aeturnus - Through The Darkest Hour <BR>Solitude Aeturnus - Downfall <BR>Solitude Aeturnus - Adagio <BR>Solitude Aeturnus - Alone <BR>Solstafir - Til Valhallar 150 <BR>Summoning - Lugburz <BR>Summoning - Minas Morgul <BR>Summoning - Dol Guldur <BR>Summoning - Nightshade Forests <BR>Summoning - Stronghold <BR>Summoning - Let Mortal Heroes Sing Your Fame <BR>Summoning - Lost Tales <BR>Summoning - Oath Bound <BR>Tumulus - Winter Wood <BR>Unleashed - Where No Life Dwells...<BR>Unleashed - Where No Life Dwells... (digipack)<BR>Unleashed - Midvinterblot <BR>Usurper - Twilight Dominion<BR>Virgin Steele - Virgin Steele<BR>Virgin Steele - Guardians Of The Flame<BR>Virgin Steele - Noble Savage<BR>Virgin Steele - Age Of Consent<BR>Virgin Steele - The Marriage Of Heaven & Hell Part 1<BR>Virgin Steele - The Marriage Of Heaven & Hell Part 2<BR>Virgin Steele - Invictus<BR>Virgin Steele - House Of Atreus Act 1<BR>Virgin Steele - House Of Atreus Act 2<BR>Virgin Steele - Hymns To Victory<BR>Virgin Steele - The Book Of Burning<BR>Virgin Steele - Visions Of Eden<BR>Void Of Silence - Criteria Ov 666 <BR>Void Of Silence - Human Antithesis <BR>Warhammer - Curse Of The Absolute Eclipse <BR>Wolfenmond - Finisterre (Die Reise Am Ende Der Welt) <BR>+ <BR>Isengard - Hoestmoerke / Vinterskugge (труЪ-ператко начала 2000-х годов с нормальным буклетом и задником + печатью на самом диске) 100<BR><BR>Примечание: двухчастные альбомы Virgin Steele продаются только вместе, равно как и Hymns To Victory + The Book Of Burning.
 
 ### нужен мастер татуировщик
 
@@ -1372,11 +1037,6 @@ To NON Serviam. Говорил, же коллекция не моя. Олига�
 V 18.04.2010 02:04:
 Non Serviam, чет нехорошо.<BR>если это способ "выделиться из толпы воздыхающих", то момент выбран явно неудачно, поскольку люди слушающие T.O.N определенного типа, твое дело считать их музыку говном или чем ты там считаешь. Необязательно об этом здесь громогласно заявлять). и я ничего не скажу о твоем возрасте, если он верен.<BR>да, меня последние альбомы тоже не сильно тронули, но - спасибо за всё остальное, его было предостаточно.<BR>Destruction, а расскажи еще чего-нибудь о Пите, пожалуйста. :)
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Gatecrasher 25.04.2010 12:40:
-Продолжение:<BR><BR>Dismember - Like An Everflowing Stream <BR>Dismember - Pieces <BR>Dismember - Indecent And Obscene <BR>Dismember - The God That Never Was <BR>Dismember - Dismember <BR>Enochian Crescent - Telocvovim <BR>Full Decay - Full Decay <BR>Gae Bolg - Requiem <BR>Grave - Into The Grave <BR>Grave Digger - 25 To Live (2xCD) (digipack) 150 <BR>Groves In Mist - Mood Diary <BR>Hekate - Ten Years Of Endurance <BR>Helloween - Walls Of Jericho (2xCD) (slipcase) 150 <BR>Hierophant - The Tome 150 <BR>Iron Savior - Condition Red<BR>Iron Savior - Battering Ram<BR>Katatonia - Dance Of December Souls (digipack) <BR>Living Death - Vengeance Of Hell <BR>Living Death - Metal Revolution <BR>Living Death - Protected From Reality <BR>Living Death - Worlds Neuroses <BR>Morgoth - Resurrection Absurd / The Eternal Fall <BR>Nazgul - De Expugnatione Elfmuth <BR>Necromantia - Cults Of The Shadow (2xCD) (digipack) 150 <BR>Nile - Amongst The Catacombs Of Nephren-Ka <BR>Obituary - Frozen In Time <BR>Откровения Дождя - Мраморные Тона Отчаяния <BR>Rotting Christ - Passage To Arcturo <BR>Rotting Christ - Thy Mighty Cotnract <BR>Rotting Christ - Non Serviam <BR>Running Wild - Victory <BR>S.C.A.L.P. - In Memory Of Madness <BR>Sceptic - Pathetic Being <BR>Sea Of Desperation - To My Beloved... <BR>Sea Of Desperation - Spiritual Lonely Pattern <BR>Sea Of Desperation - Dread Poems Of The Fall <BR>Slayer - Show No Mercy <BR>Slayer - Hell Awaits <BR>Slayer - Seasons In The Abyss <BR>Sodom - Better Off Dead<BR>Sodom - M-16<BR>Sodom - The Final Sign Of Evil <BR>Solitude Aeturnus - Into The Depths Of Sorrow <BR>Solitude Aeturnus - Beyond The Crimson Horizon <BR>Solitude Aeturnus - Through The Darkest Hour <BR>Solitude Aeturnus - Downfall <BR>Solitude Aeturnus - Adagio <BR>Solitude Aeturnus - Alone <BR>Solstafir - Til Valhallar 150 <BR>Summoning - Lugburz <BR>Summoning - Minas Morgul <BR>Summoning - Dol Guldur <BR>Summoning - Nightshade Forests <BR>Summoning - Let Mortal Heroes Sing Your Fame <BR>Summoning - Lost Tales <BR>Summoning - Oath Bound <BR>Tumulus - Winter Wood <BR>Unleashed - Where No Life Dwells...<BR>Usurper - Twilight Dominion<BR>Virgin Steele - Virgin Steele<BR>Virgin Steele - Guardians Of The Flame<BR>Virgin Steele - Noble Savage<BR>Virgin Steele - Age Of Consent<BR>Virgin Steele - The Marriage Of Heaven & Hell Part 1<BR>Virgin Steele - The Marriage Of Heaven & Hell Part 2<BR>Virgin Steele - Invictus<BR>Virgin Steele - House Of Atreus Act 1<BR>Virgin Steele - House Of Atreus Act 2<BR>Virgin Steele - Hymns To Victory<BR>Virgin Steele - The Book Of Burning<BR>Virgin Steele - Visions Of Eden<BR>Void Of Silence - Criteria Ov 666 <BR>Void Of Silence - Human Antithesis <BR>Warhammer - Curse Of The Absolute Eclipse <BR>Wolfenmond - Finisterre (Die Reise Am Ende Der Welt) <BR>+ <BR>Isengard - Hoestmoerke / Vinterskugge (труЪ-ператко начала 2000-х годов с нормальным буклетом и задником + печатью на самом диске) 100<BR><BR>Примечание: двухчастные альбомы Virgin Steele продаются только вместе, равно как и Hymns To Victory + The Book Of Burning.
-
 ### 8 tripping horses. 
 
 Гордея 05.05.2010 23:42:
@@ -1402,11 +1062,6 @@ Gatecrasher 25.04.2010 12:40:
 Гордея 09.05.2010 19:30:
 Non Serviam, ой, да полноте, вон, Хорёк сейчас подберет в контакте - там гордей до чорта.
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Erik 15.05.2010 04:11:
-Фирменные CD, обмен, Москва.<BR>практически все диски новые. интересует в основном старый классический heavy, thrash, death, black. рассмотрю любые издания на фирме.<BR><BR>продажа возможна.<BR><BR>Abigor - Apocalypse (Napalm records, NPR027)<BR>Bloodthorn - In the Shadow of Your Black Wings (Season Of Mist)<BR>Def Leppard - Adrenalize (1992, Bludgeon Riffola/Phonogram)<BR>Def Leppard - Retro Active (1993, Bludgeon Riffola/Phonogram)<BR>Def Leppard - Slang (1996, Bludgeon Riffola/Phonogram)<BR>Hellhammer - Satanic Rites (bootleg, slipcase)<BR>Rotting Christ - Non Serviam (Unruly sounds)<BR>Sadus - Chemical exposure (1988, Metal mind, digi, limited 2000 copies)<BR>Sadus - Swallowed in black (1990, Metal mind, digi, limited 2000 copies)<BR>Shub Niggurath - Evilness and Darkness Prevail (1994, Guttural, cult death metal)<BR>Thorns - Thorns (originator of the Norwegian black metal, 2001, Moonfog)<BR>Tiamat - Clouds (Century Media)
-
 ### реюнион GODS TOWER
 
 promoter 15.05.2010 23:11:
@@ -1416,11 +1071,6 @@ promoter 15.05.2010 23:11:
 
 Fucker 18.05.2010 02:04:
 Вот прочитал  в соседнем топе:<BR>Non Serviam:(18.05.2010 01:16)     <BR>  : имхо лучшая российская банда - Атолл Нерат. потом или рядом Темнозорь. где-то дальше поставил бы Аркону наверное и следом Форгив-Ми-Нот<BR><BR>вот как-то так мой хит-парад отечественного экстремального шансона выглядит<BR><BR>все остальное фуфел и тренд :)<BR><BR>да, "Кровь-Реку" Сварги забыл еще. эту композицию персонально в список и привет wolfenhirt-y, ггг <BR> <BR>И просто офигел- Мой хит парад существенно отличается от Сервиамовского..значит я люблю фуфел и тренд??? или просто он чудак на букву М??? вы как считаете и что котируете?<BR>Мой хит-парад:<BR>1) Manic Depression <BR>2) Moray Eel<BR>3) Stalwart<BR>4) Illidiance<BR>5) Hatecraft<BR><BR>из несуществующих:<BR>1) Shah<BR>2) Forgive Me Not<BR>3) Hieronimus Bosch<BR><BR>как-то так
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Gatecrasher 20.05.2010 09:16:
-Актуально только для Москвы и области. Контактный e-mail: e5150invader@gmail.com<BR><BR>При покупке свыше 15 альбомов - скидка 10% <BR>При покупке свыше 25 альбомов - скидка 20% <BR>При покупке свыше 35 альбомов - скидка обговаривается индивидуально <BR><BR>Фирма: <BR>Aphotic - Stillness Grows 150 <BR>Bal-Sagoth - The Power Cosmic 350 <BR>Bal-Sagoth - Atlantis Ascendant 350 <BR>Bal-Sagoth - The Chthonic Chronicles 350 <BR>Catacombs - In The Depths of R'Lyeh 300 <BR>Enslaved - Vikingligr Veldi / Hordanes Land (2xCD) 500 <BR>Evoken - Antithesis Of Light 150 <BR>Fafner & Nominon - Daemons Of The Past 100<BR>Forgotten Woods - Race Of Cain (digibook) 300 <BR>Horrified - In The Garden Of The Unearthly Delights (digipack) 200<BR>Кобь - Давние Покровы Рипейских Древочащ 200<BR>Лихолесье / МОР / Stielas Storhett - Death Comes From The North (первый тираж в jewel case) 250<BR>Лихолесье / МОР / Stielas Storhett - Death Comes From The North (die-hard edition) - предлагайте свою цену!<BR>Medieval Demon - Daemonolatreia 50 (или бесплатно при покупке более 10 дисков) <BR>МОР - Лесоморие / Касание Смерти (jewel case) 300<BR>МОР - Земля и Кровь 300<BR>Mortuary Drape - Into The Catachthonium 200 <BR>Nergal - Absinthos 200 <BR>Old Wainds - Религия Духовного Насилия (Negative Existence) 300<BR>Old Wainds - Обжигающий Холодный (digi) (Assault) 300<BR>Old Wainds - Обжигающий Холодный (Negative Existence) 300<BR>Old Wainds - Death Nord Kult (digi) (Debemur Morti) 400<BR>Stielas Storhett - Vandrer... 250<BR>Strid - Strid (Ars Mysteriorum bootleg) 300 <BR>Twilight (Grc) - And With The Twilight, They Return 100<BR>Unholy Archangel - The Demos 100<BR>Unholy Archangel - The Wrath Of Kosmosistis 100<BR>Vorphalack - Lullbies Of A Vampire 100<BR>Yaotl Mictlan - Guerreros De La Tierra De Los Muertos 100 <BR><BR>Лицензия + прочие российские диски (по 100 рублей за штуку, если не указано иначе): <BR>Abstract Spirit - Liquid Dimensions Change <BR>Absu - The Sun Of Tiphareth <BR>Absu - The Third Storm Of Cythraul <BR>Anathema - Crestfallen / Pentecost III <BR>Autumn - And We Are Falling Leaves <BR>Autumn - Чёрные Крылья <BR>Autumnblaze - Bleak <BR>Bal-Sagoth - Starfire Burning Upon The Ice-Veiled Throne Of Ultima Thule <BR>Bal-Sagoth - Battle Magic <BR>Bal-Sagoth - The Power Cosmic <BR>Bal-Sagoth - The Chthonic Chronicles <BR>Black Abyss - Land Of Darkness <BR>Blind Guardian - A Twist In The Myth <BR>Blind Guardian - A Twist In The Myth (2xCD) (digipack) 150 <BR>Candlemass - Live <BR>Candlemass - Doomed For Live (2xCD) 150 <BR>Catacombs - Echoes Through The Catacombs<BR>Comatose Vigil - Not A Gleam Of Hope 150 <BR>Comatose Vigil - Narcosis <BR>Corona Borealis - Cantus Paganus <BR>Count Raven - Storm Warning <BR>Count Raven - Destruction Of The Void <BR>Count Raven - High On Infinity <BR>Count Raven - Messiah Of Confusion <BR>Deofel - Aposni Ritual <BR>Destruction - Live Without Sense <BR>Destruction - Alive Devastation <BR>Dismember - The God That Never Was <BR>Dismember - Dismember <BR>Enochian Crescent - Telocvovim <BR>Full Decay - Full Decay <BR>Gae Bolg - Requiem <BR>Grave - Into The Grave <BR>Grave Digger - 25 To Live (2xCD) (digipack) 150 <BR>Groves In Mist - Mood Diary <BR>Hekate - Ten Years Of Endurance <BR>Helloween - Walls Of Jericho (2xCD) (slipcase) 150 <BR>Hierophant - The Tome 150 <BR>Iron Savior - Condition Red<BR>Iron Savior - Battering Ram<BR>Living Death - Vengeance Of Hell <BR>Living Death - Metal Revolution <BR>Living Death - Protected From Reality <BR>Living Death - Worlds Neuroses <BR>Morgoth - Resurrection Absurd / The Eternal Fall <BR>Nazgul - De Expugnatione Elfmuth <BR>Necromantia - Cults Of The Shadow (2xCD) (digipack) 150 <BR>Nile - Amongst The Catacombs Of Nephren-Ka <BR>Obituary - Frozen In Time <BR>Откровения Дождя - Мраморные Тона Отчаяния <BR>Rotting Christ - Passage To Arcturo <BR>Rotting Christ - Thy Mighty Cotnract <BR>Rotting Christ - Non Serviam <BR>Running Wild - Victory <BR>S.C.A.L.P. - In Memory Of Madness <BR>Sceptic - Pathetic Being <BR>Sea Of Desperation - To My Beloved... <BR>Sea Of Desperation - Spiritual Lonely Pattern <BR>Sea Of Desperation - Dread Poems Of The Fall <BR>
 
 ### В Белгороде запрещают Heavy Metal
 
@@ -1432,20 +1082,10 @@ Gargona 21.05.2010 01:02:
 eddie 28.05.2010 00:40:
 Non Serviam:(27.05.2010 23:56)<BR><BR>ты шутишь? ООН - легитимная международная организация, за раздел Палестины голосовало все международное сообщество, более 2/3 голосов за. А так как там не было никакого государства, ООН имело все основания принять такое решение. В 1947 году не могло быть территории, которая никому не принадлежит. Это несравнимо с убийством на национальной почве. <BR><BR>Так понятно - украинского государства не біло, вот СССР и распоряжался. Насколько логично, настолько и трагично. Но ты чувствуешь разницу между ООН и СССР?
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-sven-gali 28.05.2010 09:51:
-to Non Serviam<BR>ты почту смотришь? <BR>Hurricane Over The Edge 1988 Enigma если старый пресс то интересен<BR>напиши ценник. обмен?<BR><BR>acid-monkey@yandex.ru
-
 ### Политический оффтоп. Про Украину и прочая...
 
 eddie 30.05.2010 00:49:
 Non Serviam:(29.05.2010 22:15)<BR><BR>пример очередного неаргументированного утверждения
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Gatecrasher 31.05.2010 10:43:
-Также доступны:<BR><BR>Фирма: <BR>Aphotic - Stillness Grows 150 <BR>Bal-Sagoth - The Power Cosmic 350 <BR>Bal-Sagoth - Atlantis Ascendant 350 <BR>Bal-Sagoth - The Chthonic Chronicles 350 <BR>Catacombs - In The Depths of R'Lyeh 300 <BR>Enslaved - Vikingligr Veldi / Hordanes Land (2xCD) 500 <BR>Evoken - Antithesis Of Light 150 <BR>Fafner & Nominon - Daemons Of The Past 100<BR>Forgotten Woods - Race Of Cain (digibook) 300 <BR>Horrified - In The Garden Of The Unearthly Delights (digipack) 200<BR>Кобь - Давние Покровы Рипейских Древочащ 200<BR>Лихолесье / МОР / Stielas Storhett - Death Comes From The North (первый тираж в jewel case) 250<BR>Лихолесье / МОР / Stielas Storhett - Death Comes From The North (die-hard edition) - предлагайте свою цену!<BR>Medieval Demon - Daemonolatreia 50 (или бесплатно при покупке более 10 дисков) <BR>МОР - Лесоморие / Касание Смерти (jewel case) 300<BR>МОР - Земля и Кровь 300<BR>Mortuary Drape - Into The Catachthonium 200 <BR>Nergal - Absinthos 200 <BR>Old Wainds - Религия Духовного Насилия (Negative Existence) 300<BR>Old Wainds - Обжигающий Холодный (digi) (Assault) 300<BR>Old Wainds - Обжигающий Холодный (Negative Existence) 300<BR>Old Wainds - Death Nord Kult (digi) (Debemur Morti) 400<BR>Stielas Storhett - Vandrer... 250<BR>Strid - Strid (Ars Mysteriorum bootleg) 300 <BR>Twilight (Grc) - And With The Twilight, They Return 100<BR>Unholy Archangel - The Demos 100<BR>Unholy Archangel - The Wrath Of Kosmosistis 100<BR>Vorphalack - Lullbies Of A Vampire 100<BR>Yaotl Mictlan - Guerreros De La Tierra De Los Muertos 100 <BR><BR>Лицензия + прочие российские диски (по 100 рублей за штуку, если не указано иначе): <BR>Abstract Spirit - Liquid Dimensions Change <BR>Absu - The Sun Of Tiphareth <BR>Absu - The Third Storm Of Cythraul <BR>Anathema - Crestfallen / Pentecost III <BR>Autumn - And We Are Falling Leaves <BR>Autumn - Чёрные Крылья <BR>Autumnblaze - Bleak <BR>Bal-Sagoth - Starfire Burning Upon The Ice-Veiled Throne Of Ultima Thule <BR>Bal-Sagoth - Battle Magic <BR>Bal-Sagoth - The Power Cosmic <BR>Bal-Sagoth - The Chthonic Chronicles <BR>Black Abyss - Land Of Darkness <BR>Blind Guardian - A Twist In The Myth <BR>Blind Guardian - A Twist In The Myth (2xCD) (digipack) 150 <BR>Candlemass - Live <BR>Candlemass - Doomed For Live (2xCD) 150 <BR>Catacombs - Echoes Through The Catacombs<BR>Comatose Vigil - Not A Gleam Of Hope 150 <BR>Comatose Vigil - Narcosis <BR>Corona Borealis - Cantus Paganus <BR>Count Raven - Storm Warning <BR>Count Raven - Destruction Of The Void <BR>Count Raven - High On Infinity <BR>Count Raven - Messiah Of Confusion <BR>Deofel - Aposni Ritual <BR>Destruction - Live Without Sense <BR>Destruction - Alive Devastation <BR>Dismember - The God That Never Was <BR>Dismember - Dismember <BR>Enochian Crescent - Telocvovim <BR>Full Decay - Full Decay <BR>Gae Bolg - Requiem <BR>Grave - Into The Grave <BR>Grave Digger - 25 To Live (2xCD) (digipack) 150 <BR>Groves In Mist - Mood Diary <BR>Hekate - Ten Years Of Endurance <BR>Helloween - Walls Of Jericho (2xCD) (slipcase) 150 <BR>Hierophant - The Tome 150 <BR>Iron Savior - Condition Red<BR>Iron Savior - Battering Ram<BR>Living Death - Vengeance Of Hell <BR>Living Death - Metal Revolution <BR>Living Death - Protected From Reality <BR>Living Death - Worlds Neuroses <BR>Morgoth - Resurrection Absurd / The Eternal Fall <BR>Nazgul - De Expugnatione Elfmuth <BR>Necromantia - Cults Of The Shadow (2xCD) (digipack) 150 <BR>Nile - Amongst The Catacombs Of Nephren-Ka <BR>Obituary - Frozen In Time <BR>Откровения Дождя - Мраморные Тона Отчаяния <BR>Rotting Christ - Passage To Arcturo <BR>Rotting Christ - Thy Mighty Cotnract <BR>Rotting Christ - Non Serviam <BR>Running Wild - Victory <BR>S.C.A.L.P. - In Memory Of Madness <BR>Sceptic - Pathetic Being <BR>Sea Of Desperation - To My Beloved... <BR>Sea Of Desperation - Spiritual Lonely Pattern <BR>Sea Of Desperation - Dread Poems Of The Fall <BR>Slayer - Show No Mercy <BR>Slayer - Hell Awaits <BR>Slayer - Seasons In The Abyss <BR>Sodom - Better Off Dead<BR>Sodom - M-16<BR>Sodom - The Final Sign Of Evil 
 
 ### Политический оффтоп. Про Украину и прочая...
 
@@ -1472,30 +1112,10 @@ eddie 02.06.2010 14:18:
 promoter 10.06.2010 23:34:
 2Non Serviam.  Тут ведь как... без претензий на всеохватность...<BR>Тут чиста ТОПы Мистерии...<BR>Понятно, что например, в Айронде... в ТОПах будут... Лакра, Катарсис, Дима и т.д. и т.п.<BR><BR>Но только тут одна фишка есть...<BR>Мистерия сама по себе мало кого сейчас выпускает... всё больше продаёт... как самый сильный игрок на сегодняшнем рынке дистрибуторов в России...<BR>Потому у них и чарты... всё больше не чиста свои... а сводные... как грится... "с миру по нитке"...
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Erik 01.07.2010 14:44:
-желателен обмен, но продажа возможна. территориально в Москве, высылаю по почте.<BR>почти все диски в идеальном состоянии, большинство новые. интересует в основном старый классический thrash, death, black. рассмотрю любые издания на фирме.<BR><BR>Abigor – Apocalypse (Napalm records, NPR027)<BR>Aeternus – Beyond the Wandering Moon (Karmageddon)<BR>Aeternus – ...And So the Night Became (Karmageddon)<BR>Aeternus – Shadows of Old (Karmageddon)<BR>At the gates – Slaughter of the soul (Earache)<BR>Baphomet (USA) – The Dead Shall Inherit (Peaceville Records, digi)<BR>Black Funeral – Vampyr – Throne of the Beast (digi, Drakkar Productions, limited to 1000 copies)<BR>Bloodbath – Nightmares Made Flesh (Century media)<BR>Bloodthorn – In the Shadow of Your Black Wings (Season Of Mist)<BR>Cradle Of Filth – Midian, Koch Records<BR>Darkthrone – Panzerfaust (Moonfog)<BR>Def Leppard – Adrenalize (1992, Bludgeon Riffola/Phonogram)<BR>Def Leppard – Retro Active (1993, Bludgeon Riffola/Phonogram)<BR>Def Leppard – Slang (1996, Bludgeon Riffola/Phonogram)<BR>Enslaved – Vikingligr Veldi/Hordanes Land (Candlelight USA)<BR>Enslaved – Eld (Season of mist)<BR>Enslaved – Blodhemn (Osmose Productions, OPCD 063, SPV 084-20922 CD)<BR>Houwitser – Rage Inside The Womb (Osmose)<BR>Immolation – Dawn of Possession (Metal Mind digi)<BR>Jaaportit – Avarrus (2006), Epidemie Records<BR>Judas Iscariot – To Embrace The Corpses Bleeding (Red Stream)<BR>Limbonic art – In abhorrence dementia (NAP)<BR>Marduk – La Grande Danse Macabre (Century media)<BR>Marduk – World Funeral (Candlelight USA)<BR>Marduk – Plague Angel (Candlelight USA)<BR>Mystifier – Goetia & Wicca Boxed set digipack, Osmose<BR>Origin (USA) – Antithesis (Relapse Records)<BR>Overkill – Under the influence (Megaforce)<BR>Paradise Lost – Shades of god (Sony BMG Music Entertainment, Music For Nations)<BR>Paradise Lost – Icon (Sony BMG Music Entertainment, Music For Nations)<BR>Paradise Lost – Draconian times (Sony BMG Music Entertainment, Music For Nations)<BR>Rotting Christ – Non Serviam (Unisound)<BR>Sadus – Chemical exposure (Metal mind, digi, limited 2000 copies)<BR>Sadus – Swallowed in black (Metal mind, digi, limited 2000 copies)<BR>Sadus – A vision of misery (Metal mind, digi, limited 2000 copies)<BR>Sarcolytic – Thee Arcane Progeny (Unique Leader) – Technical Brutal Death, Guest vocals by Luc Lemay (Gorguts)<BR>Sepultura – Schizophrenia (Roadrunner)<BR>Shub Niggurath – Evilness and Darkness Prevail (1994, Guttural, cult death metal)<BR>Sodom – Agent Orange (Steamhammer)<BR>Thorns vs. Emperor (Moonfog)<BR>Thorns – Thorns (originator of the Norwegian black metal, 2001, Moonfog)<BR>Thorns – Stigma Diabolicum (Kyrck Productions, Limited to 1000 copies)<BR>Thou Art Lord – "Eosforos" and "Apollyon" (Uniforce Records)<BR>Tiamat – Clouds (Century Media)<BR>Vader – Sothis (Metal Mind)<BR>War – We are total war (Necropolis)<BR>Wehrmacht – Shark Attack (Rusty diamond)<BR><BR>еще:<BR><BR>Nokturnal Mortum – Lunar Poetry<BR>Nokturnal Mortum – Goat Horns<BR>Nokturnal Mortum – To the Gates of Blasphemous Fire<BR>Nokturnal Mortum – Нехристь<BR>Nokturnal Mortum – Return of the Vampire Lord – Marble Moon<BR>– все на Oriana<BR><BR>связь ss-krieger@bk.ru
-
 ### OktoBIERfest 2010: 23.10.10. Crashdiet, Van Canto, Black Messiah
 
 promoter 08.07.2010 22:49:
 просто в отличие от Вас, Non Serviam, в DMC никто некромантию и вудуизм не практикует
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-ignore321 11.07.2010 09:49:
-Non Serviam, вот такие матрицы, скорее всего первые два цд поздние допечатки<BR>AR02 PUTRID OFFAL/EXULCERATION Split - Matrix: CDAR002  11  A1<BR>AR016 PURULENCE/AMAYMON Split - Matrix: CDAR016  23  A1<BR>AR08 GOD FORSAKEN Dismal Gleams of Desolation -  Matrix: CDV CDAR 008<BR>жду комментарии от специалистов :-)<BR>
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-ignore321 12.07.2010 09:15:
-Non Serviam, очередная благодарность. конечно, ближе к истине, но вопрос остается открытым:-)
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-ignore321 13.07.2010 07:17:
-Non Serviam, возможности нет провести подобные манипуляции с цд. Да и за это время уже установили, что цд оригинал:-) остались только эти <BR>AR02 PUTRID OFFAL/EXULCERATION Split - Matrix: CDAR002 11 A1<BR>AR016 PURULENCE/AMAYMON Split - Matrix: CDAR016 23 A1
 
 ### Мелочи, которые вас бесят
 
@@ -1572,11 +1192,6 @@ Lazar 24.08.2010 12:13:
 eidtsum 24.08.2010 12:16:
 О жизни Non Serviam можно почитать в книжке "Жизнь вымирающих животных"!
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-lifesblood 30.08.2010 19:17:
-to non serviam<BR><BR>The 3rd And The Mortal The Nightswan (ep) with Kari Ruesl&#229;tten on vocals<BR><BR>начиная с этого релиза вокалисткой была A. M. Edvardsen
-
 ### Если металл - то длинные волосы.
 
 Kitiara 23.09.2010 13:39:
@@ -1597,11 +1212,6 @@ Non Serviam, гугл-перевотчег тебе в помощь! ваще, �
 promoter 26.09.2010 15:40:
 2  Non Serviam:(25.09.2010 23:47) <BR><BR>Ну да... давай ещё сравнивать отдельные современные группы с творчеством Баха, Бетховена, Моцарта...<BR><BR>Дорогой... успешность их творчества веками проверена....<BR><BR>В их же времена... всё не так было... Бетховена похоронили в могиле для бомжей... Считали... хуйню чувак писал... Моцарта... тоже... за его попсовость хаили на каждом углу...<BR><BR>Брать же современное искусство... Тех же Битлов... поносили на чем свет стоит...<BR>Тем не менее... Маккартни уверенно вошёл, входит и будет входить дальше... в число самых успешных и значимых композиторов ХХ века...
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-fixedk 27.09.2010 07:33:
- Non Serviam:(23.09.2010 01:44)     <BR>в коллекцию фетишисту требуются синглы/ep Theatre Of Tragedy.<BR><BR>специально для фетишистов есть сингол Тятра Cassandra<BR><BR><BR>а для совсем офанатевщих фетишистов, ибей предлагает<BR>ЕП Тятра со спермой другого офанатевшего фетишиста <BR>и всего то за 6 евро.<BR><A HREF="http://cgi.ebay.com/Theatre-of-Tragedy-A-Rose-for-the-Dead-CD-Germany-/250698103229?pt=B%C3%BCcher_Unterhaltung_Music_CDs&hash=item3a5ec579bd" TARGET="_blank">http://cgi.ebay.com/Theatre-of-Tragedy-A-Rose-for-the-Dead-CD-Germany-/250698103229?pt=B%C3%BCcher_Unterhaltung_Music_CDs&hash=item3a5ec579bd</A>
-
 ### Мастдай - сайт музыкантов, о музыкантах и для музыкантов
 
 promoter 17.10.2010 00:03:
@@ -1611,11 +1221,6 @@ promoter 17.10.2010 00:03:
 
 promoter 17.10.2010 00:15:
 "пленка, запечатка, наклейка..." (с) Non Serviam<BR><BR>А что хоть за диск-то?<BR><BR><BR>"НЕ ВЕРЮ!" (с)Станиславский :) (с) Lexy Dance<BR><BR>Вот и другие не верили... а...
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Vlad 17.10.2010 22:57:
-2Non Serviam:<BR><BR>Купил бы за 1000 руб. такой лот:<BR>Dead Soul Tribe A Murder Of Crows (slipcase) Inside Out /нов<BR>Entombed Sons Of Satan 2CD Music For Nations /нов<BR><BR>vorontsov-mgtu@yandex.ru<BR><BR>
 
 ### 14.11.2010 - Большой концерт Mental Home, Forest Stream , The Morningside.
 
@@ -1677,16 +1282,6 @@ Non Serviam, да его дед небось полицаем у немцев с
 Максим - LOGIN! 25.01.2011 02:40:
 Non Serviam:(25.01.2011 01:00)<BR>Ты чо-та написал до хуя умных слов, сразу видно - учоный!<BR>Но я не понял нихуа (я не учоный и степеней и дипломов в области анг. и психологии у меня нет), уж прости, бросил четадь с середины этот не прикольный бред, к хуйам.<BR><BR>Если хошь свой генеальный высер донести, то переведи на доступный (технодетовый или гор-детовый), и без академических выебонов плиз (у нас тут есть один чел, любящий блеснуть окадемическими познаниями, но они у него и правда есть и это выглядит уместно по кр. мере), а то, чюю, если прознаю кто ты таков, и встречу случайно в реале, то не удержусь и уебашу поджопнег :) Но не больно, а так, слегка по децки. Типа щитаю пендаля тебе нада отвесить. А то и правда савсэм ахуэл.... .. ....Блеад
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-tem1979 28.01.2011 10:30:
-Non Serviam у тебя раньше были  on thorns i lay -есть че из этого ?<BR>On Thorns I Lay - "Sounds Of Beautiful Experience" – 1995<BR>On Thorns I Lay- "Orama" – 1997<BR>On Thorns I Lay- "Crystal Tears" – 1999<BR>On Thorns I Lay -"Future Narcotic" – 2000
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Максим - LOGIN! 31.01.2011 08:29:
-<DIV CLASS="quote"><B>Non Serviam:(29.01.2011 15:06) 	</B>  <BR>	2 Максим, фэн говна унд дрочьбы левой рукой<BR><BR>дарагой, об тебе ж беспокоюсь. глядишь, поменяет хэдкрашер свои седе на койотовские, ты у него че-нить и купишь. а узреть выгоду в дисках, которые уж месяца 4 как не продаются по 300-400, только ты можешь, хе</DIV><BR>ояебумбо!!!<BR>какой ранимый.. *sarcastic_hand*
-
 ### МЕСТЬ МОНТЕСУМЫ: дебютное видео.
 
 Headcrusher 31.01.2011 13:18:
@@ -1737,11 +1332,6 @@ Non Serviam:(16.02.2011 22:05)     <BR>  на зеркалку снимали? <
 Максим - LOGIN! 24.02.2011 00:56:
 Non Serviam, пешы исчо... и про себя не забудь, а то ты как-то всё про других да про чужих, самоирония тебе не свойственна вовсе. Д'Артаньян?
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-R. 15.03.2011 02:22:
-Non Serviam, а Wallachia - From Behind The Light с цветной или чёрно-белой обложкой?..<BR><BR>Чёта давненько я блэка не покупал...
-
 ### SPAINT - &quot;Вкус земли - Цвет неба&quot; 2011
 
 Seducer 16.03.2011 00:31:
@@ -1752,11 +1342,6 @@ Seducer 16.03.2011 00:31:
 Myke 16.03.2011 16:13:
 Non Serviam,<BR><BR>Согласен. Учебник Розенталя для общей грамотности - хорошо. Всем полезно.<BR><BR>Но авторские знаки препинания - это отдельный разговор. Они несут в себе определенную смылсовую, стилистическую и ритмико-интонационную нагрузку, которую не всегда выразишь общими нормативными правилами.<BR><BR>В нашем случае можно было бы вместо тире и слэш поставить или цветочек нарисовать ))) Но тире, на наш взгляд, более уместно, так как несет концептуально обусловленную двойственность: противопоставления и уравнения понятий. )))
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-spn 23.03.2011 19:33:
-2Non Serviam<BR>написал на почту по поводу обмена на Risk.
-
 ### гримасы так называемой ЗАПАДНОЙ ТОЛЕРАНТНОСТИ
 
 R. 28.03.2011 04:24:
@@ -1766,11 +1351,6 @@ Non Serviam:(28.03.2011 00:19) 	  <BR> 	<BR>книаз - самый главны
 
 Хорёк 28.03.2011 18:55:
 Non Serviam:  (28.03.2011 18:41 !!!!!!!!!!!!!!!!!!!!!)<BR><BR>Не поыал!? Нука марш работать, Роялти обосновывать!!!!!<BR><BR>Топ не читал.<BR>Но я думаю что будем.<BR>Вот я зафтра на 2 собеседования по работе еду.<BR>Хуйпеста.<BR><BR>Кстати дико радуют предъявы товарищей Фело и Р. по поводу "работать нех на форуме сидеть"<BR>Сами еще года 2-3 назад флудили гектарами<BR>А было господам 31 - 40 лет по моим подсчетам в тот момент.
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-НиколайНС 31.03.2011 23:01:
-niknetl (пёс) rambler ((.)) ru<BR><BR>Season of Mist!<BR>2011:<BR><BR>Benighted - Asylum Cave (limited special French version incl. exclusive bonus track, digipack)<BR>Вообще-то издание предназначено исключительно для Франции, но в качестве дружеского шага они поделились с нашим братом.<BR><BR>Benighted - Asylum Cave (vinyl LP)<BR>Defiled - In Crisis (digipack, brutal death from Japan)<BR>The Project Hate MCMXCIX - Bleeding the New Apocalypse (Cum Victriciis In Manibus Armis)<BR><BR><BR>Cynic - Traced in Air (lim. digibook + poster)<BR>Rotting Christ - Aealo (lim. CD+DVD digipack)<BR>Rotting Christ - Non Serviam - A 20 Year Apocryphal Story (lim. 2DVD+2CD digipack)<BR>The Crest - Letters from Fire (digipack, поёт девочка из theatre of Tragedy)<BR>The Crest - Vain City Chronicles (digipack)<BR>Trepalium - XIII<BR>Winds of Sirius - Beyond All Temples and Myths (gothic doom)<BR><BR>Попутно:<BR>Abigor - Fractal Possession (digibook, End All Life)<BR>Deathspell Omega - Si Monumentum Requires, Circumspice (Norma Evangelium Diaboli)<BR>Ofermod - Tiamtu (Norma Evangelium Diaboli)<BR>
 
 ### НОВИНКИ 2006 &gt;&gt;
 
@@ -1817,11 +1397,6 @@ Non Serviam, радуйся, что это не <B>г-жа Landser</B>! а то 
 Stas Hoffmann 29.04.2011 00:47:
 &gt;Non Serviam:(28.04.2011 23:16) 	  <BR> &gt;с целью выяснить, тянешь на старпёра аль нет )<BR><BR>вряд ли с этой целью...<BR>с 17-ти я тута ошиваюсь... осенью этого года - 10 лет как:)<BR>йубилей
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-КTT 04.05.2011 23:50:
-Non Serviam,<BR>что-то с этим Futurist`ом не так все просто<BR>вон, на ебэе за такой же диск, как у меня, бьются очень даже...<BR><A HREF="http://cgi.ebay.com/CORONER-GRIN-CD-/180661940209?pt=Music_CDs&hash=item2a104a6ff1" TARGET="_blank">http://cgi.ebay.com/CORONER-GRIN-CD-/180661940209?pt=Music_CDs&hash=item2a104a6ff1</A>
-
 ### гримасы так называемой ЗАПАДНОЙ ТОЛЕРАНТНОСТИ
 
 Soulside 05.05.2011 03:12:
@@ -1836,16 +1411,6 @@ Kniaz 05.05.2011 16:17:
 
 tich666 13.05.2011 02:07:
 Non Serviam  "два - адын"<BR><BR>Спасибо большое., Нон. Телека нету, инет есть. Но он используется только для мастдая). Но что-то счет какой-то задротский для хоккея))))
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-в чем сила брат? 18.05.2011 12:13:
-самый вменяемый продавец который мне попадался в говняшках за все время -это дима который продавал родные диски по 150 рублей,не парясь первопресс не первопрес ,дигипак,али какой редкий диск.<BR>у него я купил  :<BR>SCEPTIC	2001	Pathetic Being<BR>DOMINA NOCTIS	2009	Second Rose<BR>KAPTAIN SUN	2003	Rainbowride<BR>INTESTINE BAALISM	2003	Banquet In The Darkness<BR>DISARMONIA MUNDI	2001	Nebularium<BR>ROTTING CHRIST	1995	Non Serviam<BR>VISCERAL BLEEDING	2005	Remnants Revived (Remnants of Deprivation remastered, videos, 2005)<BR>VISCERAL BLEEDING	2004	Transcend Into Ferocity<BR>YATTERING	2004	Live Extermination<BR>LUNATIC GODS	2001	<BR>LUNATIC GODS	1998	Sitting By The Fire<BR>HOUWITSER	1999	Death But Not Buried<BR>HATESPHERE	2004	Ballet Of The Bride<BR>VARIOUS ARTISTS	2002	The Metal Zeppelin - The Music Remains The Same<BR>SCULPTURED	1998	The Spear Of The Lily Is Aureoled<BR>WASTEFALL	2004	Soulrain 21 (2 CD)<BR>BLIND DOG	2000	The Last Adventures Of Captain Dog<BR>SACRILEGE	2005	Lost In The Beauty You Slay (remastered 1996)<BR>SACRILEGE	2005	The Fifth Season (remastered 1997)<BR>не говоря уже о том что все эти Сд максимум , фйронд, фоно -он продает по 50рублей.<BR>вот это я понимаю когда  продажа не идет ради принципа наебать,нажится,втюхать или еще чего в этом плане.<BR>дима тебе привет!!!!
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-в чем сила брат? 18.05.2011 12:32:
-все понятно,кто продает ,всячески пытается отстоять ту цену которую он выставил,и херня что диски по этим ценам годами продаются и лежат в прайсах. я прайсы шерстю. год прошел как лежали у non serviama определенные диски ,за год не продались , он и цену понизил, и разослал скидки бонусы, захожу как ни кто не брал определеные позиции так и не берет.<BR> <BR>а прессс оби мейдена мне нах не нужен,если этот диск звучит один в один если сравнивать с лицензией,или скачанным лослесом и записанным на диск-то как говорится в рекламе так зачем платить больше? 
 
 ### Конец света
 
@@ -1901,11 +1466,6 @@ Non Serviam<BR><BR>зачем это.. зачем то..тут слишком д
 
 Психастеноподобный истерошизоид 09.07.2011 20:21:
 Non Serviam мне говорил, что Кинг - это дроун-дум. Вот Побег из шоушенка точно совершенно. Сейчас только раскрутили на то, чтобы посмотреть его. А я хотел (хоть и не особо ожидал) смеси Кинга Даймонда с Дрим Театром))))
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Metalian 11.07.2011 19:54:
-Non Serviam, мое письмо за 6 число не дошло что ли? Или ответ твой похерился?
 
 ### SPLAV (Modern Gothic Metal) Проект музыкантов BLACK COUNTESS, Marie
 
@@ -2096,11 +1656,6 @@ Non Serviam:(03.11.2011 02:57)<BR><BR>и ради того, чтоб немно�
 
 eddie 05.11.2011 17:55:
 Non Serviam:(05.11.2011 01:43) <BR><BR>старые ограничение только в договорах ЕС, новые в конституциях будут.<BR><BR>любящий вас Вуглускр:(05.11.2011 02:39) <BR>русский - ведь твой родной язык, "видимо" - означает предположение, а не утверждение.<BR>МК я яказал, Сов секретно это ж вроде скандалы - интриги-расследования)). Аргументы недели и версии да, не знал об их существовании.<BR>Печатная пресса вообще имеет аудиторию явно меньшую чем ТВ. Даже МК.<BR>Часть людей имеет конечно, но думаю менее половины даже.<BR>  <BR>"если человеку в принципе что-то интересно, он найдёт где узнать-прочесть-посмотреть"<BR>с этим согласен, но представь сбе тетю машу. Она ничем не интересуется, интернета у нее нет, а газеты не выписывает, может денег не хватает, а скорее - не надо. Если ей по всем каналам показывать постоянно Солнцеликого и его верного табаки, то она и будет в них пялиться, а если все таки дать ей выбор, может о чем то и задумается.<BR><BR>в Англии народу чуть не в 3 раза меньше чем в РФ, да + инет развит, так что тиражи английских газет умножай на 3.
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-metallian 05.11.2011 21:08:
-2 Non Serviam & stepa: интересно, а зачем оба диска Jack Frost переиздавать, когда они на Amazon.com новые продаются за 15 баксов???
 
 ### гримасы так называемой ЗАПАДНОЙ ТОЛЕРАНТНОСТИ
 
@@ -2372,11 +1927,6 @@ non serviam ,через 30 лет  поймет  что ifpi   придумал�
 tem1979версия 3.0 02.07.2013 01:13:
 Валик:(30.06.2013 15:47<BR><BR>как говорил мну выше<BR><BR>от релиза зависит и от мастеринга<BR><BR>не пожалела группа денег, сделала 2 мастера - для CD и винила отдельно - смысл купить пластинку есть<BR><BR>классический пример - METALLICA "Death Magnetic"<BR><BR>CD компрессован и звучит как из помойки<BR><BR>Винил - гораздо лучше <BR><BR><BR>металлика даже 2 разных мастеринга делала для винила.-для версии на 2 пластинках, 33 скорость.<BR><BR>Бокс Сет из пяти пластинок на 45 скорости, где каждой песни выделили по целой стороне на каждой пластинке , другой мастеринг.<BR>У меня есть как раз это издание <A HREF="http://www.discogs.com/viewimages?release=1462090" TARGET="_blank">http://www.discogs.com/viewimages?release=1462090</A>  звучит просто охуительно.<BR><BR>Non Serviam по поводу :блеать, одно дело, брать хороший винил, ап котором доподлинно известно, что был хороший мастеринг именно под этот носитель<BR><BR>ну во первых есть дисгогс, там все можно отследить кто чего как и зачем выпускал.<BR>Второе поспрашивать на форумах в том же в контакте целые группы по винилу, по тяжмету, практически сейчас любой винил у того или иного чела уже есть вам без напряга скажут хорош или нет тот или иной релиз.<BR><BR>Плюс как ни крути приходят например многие вещи с опытом  так возьмем  професи продакшен , у меня 6 пластинок с этого лейбла все записаны отлично, мало того к каждому изданию отличная полиграфия,хорошие фото, информативные сливы внутренние где есть вся информация и текста к альбому, всегда плакат к каждому изданию,виниловый пакет с кармашком . Не вижу причин если что то интересное для меня выйдет  на этом лейбле,  просто взять и купить.Иногда  достаточно взглянуть на лейбл чтоб понять каков релиз ожидать.<BR><BR>По поводу маленьких контор я б тут поспорил, бывает есть не большой лейбл, на котором кучкуется 20 команд, из них на виниле  вообще выходит всего 8-10 релизов , ребята так скрупулезно подходят к тому что издают, что купив раз хочется еще купить у них если что то интересное выйдет у них.<BR><BR>И наоборот бывает лейбл большой навроде нуклеар бласта , а сука экономит порой на всем, и порой не угадаешь с тем или иным релизом. Могут конверты внутренние пылесборники с дыркой посередине сделать, да и порой что интересное тупо выпустить на пикчер виниле, который лично мне нах не сдался.<BR><BR>Бывает выпуск каждого релиза доводится кем то из группы, это как визитная карточка, мол если делать то только заебись без всяких там сделано на отъебись.Вот сделают хороший грамотный релиз, и народ к ним потянется, а там глядишь и другим смогут потом релизы делать.Заслужить уважение сейчас дорого стоит.Вот к примеру Long Distance Calling у меня есть два альбома выпущенными ими на виниле, печатались они на разных лейблах,и что характерно на всех релизах на сбеге стоит ручная гравировка что мастеринг делался человеком.Звучание в обоих случаях замечательное, вот со дня на день третий релиз получу, я вот почему то уверен что там с записью все будет отлично.<BR><BR>По поводу цен, совершенно не влияет издание за 10 баксов или  за 40 бакинских вы купите пластинку ,что мол только в дорогие издания бабки вкладываются и звук там лучше, нежели чем у обычного издания.Нет это увы не так.Есть конечно тенденция что в более дорогое если есть альтернатива как в случае с металикой хочешь покупай на 33 скорости нате,хочешь на 45 тоже нате.<BR>Многое как я уже сказал зависит от самих музыкантов, от их отношения к делу,от лейбла.<BR>Ведь каждый наверное музыкант хочет в своей жизни издать альбом не просто издал и забыл, а чтоб и звук был отличным и чтоб релиз как внешне так и по содержанию, было приятно иметь в коллекции.<BR><BR><BR><BR>
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-tem1979версия 3.0 05.07.2013 00:45:
-Non Serviam:(03.07.2013 23:22)	  <BR> 	<BR>мода но новодельный винил - она как эмо. то их дохуя, то они вымерли. по крайней мере, мне так кажется. время покажет.<BR><BR>Тут я с тобой не соглашусь, я тоже ведь думал что пару лет назад что винил для многих сродни моде, купить что бы быть в тренде, компаниям и лейблам , дабы замутить лишнего бабла.<BR>Из чего складывалось представление об этом у окружающих,все банально,то в стране днем с огнем винилу не сыщешь(это если не в теме), либо если предлагали какие умельцы,  то задорого, и не понятно на чем его крутить где взять нормальную вертушку.<BR><BR>Потом винил как то в нашей стране стал чаше появляться, то тут то там, то в медиа маркт вдруг стихийно во все магазины завезли москвы, года три назад.<BR><BR>Проблема тут не в тренде, а просто нужно было  более крупным игрокам выводить этот продукт на рынок, и от этого он стал вдруг как многим показалось вдруг элитарным модным и в тренде.<BR><BR>на самом деле винил в европе как продавался  что в 1990 годы что в двух тысячные, (об этом я понял когда шерстил дисгогс, лейблы не стояли  на месте, они и 1999 и в 2001 и 2003  и в 2006-2008 и тд.выпускали новинки для того времени, это мы просто до глобального интернету до ебея амазон, до заграничных поездок доросли последние пять лет.Это сейчас нам кажется что сейчас мода на винил, ни хера подобного.Винил слушали всегда.<BR>А с приходом всяких рутрекеров, когда пошла подмена понятий в музыке,продажи цифрового контента,народ кто до этого изредка интересовался винилом, посмотрели на него повнимательней.<BR><BR>У меня есть пару знакомых меломанов, так вот они не прекращали покупать винил,ни три ни пять ни 7 лет назад. они его покупали,через друзей, через привоз под заказ, через выставки и тематические площадки.<BR><BR>Мой прогноз, компакт диски вымрут, их заменият цифровые файлы, винил,дигибуки ,и прочие экслюзивные вещи все равно останутся.И глупо думать что метал лейблы на нас делают деньги, вся метал индустрия, это бля тот еще гемор. Этим занимаются энтузиасты, и явно не ради того чтоб какой нить имортал продать тиражем как пинк флойд или лед цепелин.
-
 ### Новинки 2013
 
 eddie 12.07.2013 12:08:
@@ -2622,11 +2172,6 @@ Non Serviam:(07.08.2013 17:22)<BR><BR>неужели в 7 лет, в перво�
 Dronor 04.09.2013 12:27:
 я бы добавил бы жиркова на пике продали за 15-18 лямов не помню точно(купили тыщ за двести), ЖО в 21-22 года в Манчестер Сити за двадцать лямов примерно, это к слову о вечности в ЦСКА и продать во время не умееют. Красич, жирков, жо были проданы в расцвете сил. На них не ебаться заработано, плюс они помогли клубу до этого отлично, и никто из них позже ни где не заиграл нормально. Это был их пик. <BR>А Non Serviam говорит не умееют вовремя. Да и про репутацию ЦСКА вообще смешно читать. Она в европе сто раз лучше, чем у мясных. Единственное мясо мож бабок тока по-больше предложить может<BR>Хорек, а кого СПам продал больше десятки?<BR>Я че-то кроме Эменнике таких не помню, да его практически за такие бапки и купили(разница ляма два-три)Вроде больше десятки должны стоить хорошие игроки а я таких давно у Спама не видел, Алекс тока полтора года хорош был...
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Vlad 07.09.2013 18:51:
- 	Non Serviam:<BR>Вместе за 650<BR>Children Of Bodom Hatebreeder (Re-loaded Ed) Spinefarm 1999/08<BR>Children Of Bodom Follow The Reaper (Re-loaded Ed) Spinefarm 2000/08<BR><BR>Был бы вместо третьего альбома первый - купил бы.
-
 ### Отчего и когда скончался SCANNER?
 
 eddie 09.09.2013 22:19:
@@ -2757,11 +2302,6 @@ Non Serviam, ты лучше скажи, сколько миллионов ты 
 Максим - LOGIN! 26.11.2013 04:25:
 Non Serviam, уточни плиз, что именно там в порядке вещей?
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-no more links 01.12.2013 05:10:
-а, вот, как по вашему, за Септик Флеш'евский "Mystic Places Of Dawn" CD (Holy Records, подразумевается перво-пресс, я так понимаю) цена в... 3000 рублей - это много или мало?! :спай: наткнулся на такое предложение в сети, сижу и о'Куеваю :D что скажет по этому поводу Non Serviam, например?
-
 ### SHADOW HOST &quot;Apocalyptic Symphony&quot; 2013
 
 no more links 15.12.2013 08:33:
@@ -2817,11 +2357,6 @@ Non Serviam: почитал твои бредни и вот ,вердикт:<BR>
 Dronor 12.02.2014 16:24:
 дронор, тебе, кстати, комфортно будет жить при курсе, скажем, 40 рублей за доллар? а 45? )) или ты только в сочах отдыхаешь и покупаешь только отечественное?<BR><BR>Non Serviam, ну не то, чтобы совсем комфортно, но жить будет мона, и не думаю что сильно хуже, чем жил до олимпиады. На зарплатную карточку че-то капает стабильно. и по хую мне на курс. Будет доллар 45 или нет это дело мне не поменяет ничего. В сочах не отдыхаю. На поездку зарубеж думаю и по 45 баксы мона купить раз-два в год, ничего страшного. Заказываю из-за рубежа мало и только по почте. Так, что Олимиада в России УРА!!!
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-no more links 15.05.2014 18:44:
-"Forgive-Me-Not - Perfect Innocence." - если ничё не путаю, встречалось сие в списках от Non Serviam'a, на дарксайде. Можно поспрашивать, вдруг ещё не ушло))
-
 ### Политический оффтоп. Про Украину и прочая...
 
 Almuqabala 09.06.2014 09:16:
@@ -2872,21 +2407,6 @@ Europe "The Final Countdown" полюбил немыслимо весной 1987
 Appendics 23.11.2014 20:30:
 Non Serviam - гречка дорожает.<BR>И дрочка.<BR>Реальная ху..ня, уж простите. Детский сад.
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-State Oppression 06.12.2014 08:46:
-Non Serviam:(05.12.2014 22:16)<BR><BR>До снижения курса рубля эта цена была актуальна в рур. за такой ЦД с ОБИ в минте. Без оби ему цена косарь примерно.
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-fixedk 19.12.2014 15:09:
-Non Serviam скинь свое мыло. есть вопрос один
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-покойный Иван Петрович Белкин 07.01.2015 14:24:
-&lt;&lt; 	это жэ культовые канадские попизделадошечники! стыдно не знать  &gt;&gt; &copy; Non Serviam<BR><BR>Стыдно. Не знаю.
-
 ### Международный метал проект TAIPAN
 
 Сергей Мордашов 25.01.2015 23:59:
@@ -2911,24 +2431,4 @@ Dimas 13.02.2016 15:37:
 
 Гвоздев 13.08.2016 08:27:
 <DIV CLASS="quote">Non Serviam:(11.08.2016 00:42)   <BR><BR>ОГ показался УГ в свое время</DIV><BR>Аналогично, кстати. Надо, думаю, переслушать при случае.<BR><BR>
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-COD label and distribution 24.08.2016 16:08:
-Немного Season Of Mist. Франция.<BR><BR>KAMPFAR (NOR) - Kampfar - CD SLIMCASE<BR>ROTTING CHRIST (GRE) - Passage To Arcturo + Non Serviam - DCD<BR>ROTTING CHRIST (GRE) - AEALO - CD, DVD DIGIPACK<BR>INQUISITION (COL) - Invoking The Majestic Throne Of Satan - CD DIGIPACK<BR>INQUISITION (COL) - Magnificent Glorification Of Lucifer - CD DIGIPACK<BR>INQUISITION (COL) - Nefarious Dismal Orations - CD DIGIPACK<BR>INQUISITION (COL) - Inquisition - Ominous Doctrines of the Perpetual Mystical Macrocosm - CD DIGIPACK<BR><BR><A HREF="http://vk.com/codmusicdistro" TARGET="_blank">http://vk.com/codmusicdistro</A><BR>codmusicdistro@gmail.com
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Гвоздев 20.03.2017 10:18:
-<DIV CLASS="quote">Non Serviam:(19.03.2017 15:31)<BR>Rapture	Songs For The Withering	Spikefarm </DIV>хороший альбом, я бы взял в коллекцию, да дорого, чую
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-no more links 31.03.2017 11:12:
-Non Serviam - это на неделю, если без адского затара )) 
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-no more links 10.05.2017 06:32:
-новая порция фирмы:<BR><BR>Acheron &#8206;– Lex Talionis / Satanic Victory (Blackend, 2005) - 1000<BR>Anal Cunt &#8206;– Old Stuff, Part Two (compilation) (Devour, 1994) - 650<BR>Avulsed &#8206;– Eminence in Putresence / Carnivoracity (2CD, Blackend, 2003) reissue - 800<BR>Blasphemy – Fallen Angel of Doom (Wild Rags) bootleg, rare! - 1500<BR>Blasphemy – Gods of War / Blood Upon the Altar (Osmose Prod., digi reissue, 2001) - 800<BR>Dark Tranquillity &#8206;– Projector (Century Media US, 1999) - 400<BR>Dawn of Decay &#8206;– New Hell (VOD Records, 1998) - 300<BR>Exhorder &#8206;– Slaughter in the Vatican / The Law (2CD, Roadrunner Records, 2003) reissue - 1400<BR>Expulsion &#8206;– Overflow (Godhead, 1994) - 450<BR>Gorguts &#8206;– From Wisdom to Hate (Olympic Recordings, 2001) 1st press! - 800<BR>Immolation &#8206;– Dawn of Possession (R/C Records, 1991, Germany) rare! - 2000<BR>Immolation &#8206;– Stepping on Angels... Before Dawn (Repulse Records, 1995, rare! used CD) - 2000<BR>Lawnmower Deth &#8206;– Billy (Earache, UK first press) - 500<BR>Machetazo &#8206;– Carne De Cementerio (Razorback Records, 2000) - 750<BR>Mortician &#8206;– House by the Cemetery / Mortal Massacre (Relapse Records, 2004) reissue - 700<BR>Mortician &#8206;– Hacked Up for Barbecue / Zombie Apocalypse (Relapse Records, 2004) reissue - 700<BR>Nightwish &#8206;– Angels Fall First (Spinefarm Records, repress 2002) - 360<BR>Oxiplegatz &#8206;– Worlds and Worlds (Fairytale Records, 1996) - 450<BR>Oxiplegatz &#8206;– Sidereal Journey (Season of Mist, 1998, digi, 1st press) - 450<BR>Reincarnation – Seed of Hate / Void (Blackend, 2003) reissue - 500<BR>Repulsion &#8206;– Horrified (2CD, Relapse Records, 2003) reissue - 850<BR>Rotting Christ &#8206;– Non Serviam (Unisound, 2002) reissue - 500<BR>Tiamat &#8206;– Wildhoney / Gaia (EP) (Century Media USA 2001) - 450<BR>Tormentor – Recipe Ferrum! (Avantgarde Music, 2000) digi 1st press! - 850<BR>Ulver &#8206;– Nattens Madrigal - Aatte Hymne Til Ulven I Manden (Avantgarde Music, reissue 2003) - 600<BR>Unholy Grave &#8206;– Crucified (Eclipse Records, 1995) - 500<BR><BR>писать на darkthrone-gods@mail.ru
 

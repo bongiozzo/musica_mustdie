@@ -22,11 +22,6 @@ C группой "Ribspreader" Rogga Johansson
 
 ## Упоминания
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-НиколайНС 17.10.2010 22:28:
-Napalm Records:<BR><BR>Hollenthon - Opus Magnum (limited digipack)<BR>Hollenthon - Tyrants And Wraiths (ep)<BR>Kampfar - Kvass<BR>Leaves' Eyes - Njord – (special 2CD fan edition; CD1 – digipack + 2 bonus; CD2 - At Heaven's End: 7 songs + video)<BR>Nox Aurea - Ascending In Triumph (doom)<BR>Summoning - Dol Guldur<BR>Summoning - Stronghold<BR>The 11th Hour - Burden Of Grief (doom)<BR>Tristania - Rubicon (limited digipack)<BR>Van Canto - A Storm To Come (re-release)<BR>Van Canto - Hero (re-release)<BR>Van Canto - Tribe Of Force (CD + DVD digipack)
-
 ### Новинки 2012
 
 belial 01.11.2012 11:47:

@@ -106,11 +106,6 @@ Garvarg 28.06.2004 21:49:
 Hurricane 30.06.2004 14:03:
 То что осталось:<BR>The Devin Townsend band “Accelerated evolution” deluxe edition 2cd (Inside out) 300r<BR>The Chasm “Conjuration of the spectral empire” Ltd (Witches brew) 150r<BR>Summon “Baptized by fire” (The plague) 200r<BR>Demimonde “Mutant star” (Epidemie) 200r<BR>Mystic circle “Damien” digi (Massacre) 200 r<BR>Sacred sin “Hekaton” (Demolition) 200 r<BR>Furthest shore “Chronicles of heatheness” (Scaldic art) 200r<BR>Sieben “Sex & wildflovers” (Trisol) 200r<BR>Satariel “Lady lust Lilith” (HHR) 200r<BR>Die Form “Archives & documents III” digi 2cd (Trisol) 300r<BR>Reflection “Odyssea” (Sacred port) 200r<BR>Tindersticks “Can our love” (Beggars banquet) 200r<BR>Bleeding like mine "Never again will i dream" (Palace of worms) 200r<BR>Vinterrikett “Finsternis” (Black Castle) 150r<BR>Deinonychus “Mournument” digi (My Kingdom) 150r<BR>En velours noir “Else” digi (Beyond) 150r<BR>Die Form “In Human” Ltd. Cd-box (Trisol) 15 euro<BR>Paul Chain “Park of reason” (Beyond) 200r<BR>Divina Enema “At the conclave” (Grind It) 200r<BR>Tangorodrim “Those who unleashed” (Agressor) 200r<BR>Aghiatrias “Regions of limen” (Epidemie) 150r<BR>V/A Obscene extreme 2003 (Obscene) 200r<BR>
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Шуреги любят вас!!! 22.09.2004 01:31:
-Куплю дорого:<BR>Opeth “Deliverance” only digi (Peaceville)<BR>Jack frost “Glow dying sun” (CCP)<BR>Jaramar “Languas” (Option sonico)<BR>Очень дорого:<BR>Six feet deep “It came from Six feet deep” (Matt monster)<BR>Sopor Aeturnus “Voyager-the jugglers of jusa” (ApoVis)<BR><BR>Продам:<BR><BR>Anal cunt “Morbid florist” (Relapse) 150r<BR>The Chasm “Conjuration of the spectral empire” Ltd (Witches brew) 150r<BR>Demimonde “Mutant star” (Epidemie) 150r<BR>Mystic circle “Damien” digi (Massacre) 150 r<BR>In flames “Soundtrack to your escape” digi (NB) 300r<BR>Sacred sin “Hekaton” (Demolition) 150 r<BR>Furthest shore “Chronicles of heatheness” (Scaldic art) 150r<BR>Sieben “Sex & wildflovers” (Trisol) 150r<BR>Die Form “Archives & documents III” digi 2cd (Trisol) 300r<BR>Reflection “Odyssea” (Sacred port) 150r<BR>Tindersticks “Can our love” (Beggars banquet) 150r<BR>Bleeding like mine "Never again will i dream" (Palace of worms) 200r<BR>Deinonychus “Mournument” digi (My Kingdom) 150r<BR>En velours noir “Else” digi (Beyond) 150r<BR>Die Form “In Human” Ltd. Cd-box (Trisol) 15 euro<BR>Paul Chain “Park of reason” (Beyond) 150r<BR>Divina Enema “At the conclave” (Grind It) 150r<BR>Carpatian forest “Skiend hans lik” (SOM) 300r<BR>Tangorodrim “Those  who unleashed” (Agressor) 150r<BR>Aghiatrias “Regions of limen” digi (Epidemie) 150r<BR>Eisregen “Farbeneinstornis” (Last episode) 150r<BR>Argile “The monotonous moment of a monologue” (Holy) 150r<BR>Winds “The imaginary direction of time” (Blackened) 300r<BR>Vectorscope “Monitoring the blind” (Maor Appelbaum prod.) 150r<BR>Gilla bruja “Tooth & Nail” (Retribute) 150r<BR>Ravenous “Blood delirium” digi (Red stream) 200r<BR>V/A Obscene extreme 2003 (Obscene) 150r<BR>Ra “Sinnocence” (Tribal) 150r<BR>Diabolique “The diabolique” (Listenable) 150r<BR>Diabolical breed “Compendium infernos” (World chaos) 150r<BR>Red harvest “Cold dark matters+New rage…” (Relapse) 150r<BR>Division alpha “Replika” 2CD ltd. (Holy)<BR>Sui generic umbra “Coma” digi (Metal mind) 150r<BR><BR>den.oriongrant@mail.ru
-
 ### Soulfly-впечатления
 
 Frithz 16.05.2005 15:15:
@@ -316,11 +311,6 @@ stepa 14.05.2010 23:30:
 ward 21.08.2010 14:51:
 14 Oct 2010 Russia KALININGRAD - RUSSIAN FEDERATION <BR><BR>17 Oct 2010 Russia ST-PETERSBURG -RUSSIAN FEDERATION <BR><BR>19 Oct 2010 Russia NIZNIJ NOVGOROD - RUSSIAN FEDERATION <BR><BR>20 Oct 2010 Russia KAZAN - RUSSIAN FEDERATION <BR><BR>21 Oct 2010 Russia SARANSK - RUSSIAN FEDERATION <BR><BR>22 Oct 2010 Russia VORONEZH - RUSSIAN FEDERATION <BR><BR>23 Oct 2010 Russia MOSCOW - RUSSIAN FEDERATION <BR><BR>24 Oct 2010 Russia SMOLENSK - RUSSIAN FEDERATION <BR><BR>25 Oct 2010 Belarus MINSK - BELARUS <BR><BR>26 Oct 2010 Belarus MOGILEV - BELARUS <BR><BR>27 Oct 2010 Belarus GOMEL - BELARUS <BR><BR>28 Oct 2010 Ukraine KIEV - UKRAINE <BR><BR>29 Oct 2010 Ukraine ILYICHEVSK - UKRAINE <BR><BR>30 Oct 2010 Moldova KISHINEV - MOLDOVA <BR><BR>31 Oct 2010 Ukraine Lvov - UKRAINE <BR><BR><A HREF="http://www.myspace.com/sadistribe" TARGET="_blank">http://www.myspace.com/sadistribe</A>
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-НиколайНС 02.10.2010 19:37:
-niknetl (где?) rambler () ru<BR><BR>Willowtip:<BR>Fleshgod Apocalypse - Mafia (ep).<BR>Defeated Sanity - Chapters of Repugnance.<BR>The Year of our Lord - Dead to You (2CD).<BR>Visceral Bleeding - Remnants Revieved.<BR>Visceral Bleeding - Transcend into Ferocity.<BR>Prostitute Disfigurement - Left in Grisly Fashion.<BR>Gorod - Process of a New Decline.<BR>Fleshgod Apocalypse - Oracles.<BR>Ulcerate - Everything is Fire.<BR>As Eden Burns - The Great Celestial Delusion.<BR>Prostitute Disfigurement - Descendants of Depravity (CD+DVD).<BR>Ulcerate - Of Fracture and Failure.<BR>Spawn of Possession - Noctambulant.<BR>Disavowed - Stagnated Existence.<BR>Odious Mortem - Cryptic Implosion.<BR>Gorod - Leading Vision.<BR>Neuraxis - Trilateral Progression.<BR>Necrophagist - Onset of Putrefaction.<BR>Commit Suicide - Human Larvae.<BR>
-
 ### Митол 21го века. Воскресная школа.
 
 Dark 22.10.2010 23:57:
@@ -330,11 +320,6 @@ Dark 22.10.2010 23:57:
 
 Панкрат 28.12.2010 17:14:
 <A HREF="http://i.vgorode.ua/m/300x245/75687.jpg" TARGET="_blank">Сборная Таджикистана по квиддичу</A>
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-НиколайНС 02.02.2011 00:30:
-niknetl (пёс) rambler((.))ru<BR><BR>Willowtip:<BR><BR>!!! Macabre - Grim Scary Tales (новейшая работа американских юмористов, приуроченная к двадцатипятилетию группы! На диске не 13, а 14 песен - присутствует бонус)<BR><BR>!!! Ulcerate - The Destroyers of All (новая работа 2011 года)<BR><BR><BR>Alarum - Eventuality (a-la Atheist и ранние Cynic)<BR>Corpus Mortale - A New Species Of Deviant (brutal Death)<BR>Defeated Sanity - Chapters Of Repugnance (brutal Death)<BR>Fleshgod Apocalypse - Oracles<BR>Gorod - Process of a New Decline<BR>Gorod - Leading Vision<BR>Gorod - Neurotripsicks<BR>Grief - Come to Grief (1994 american death/doom, 2010 re-issue + bonus)<BR>Odious Mortem - Cryptic Implosion (technical brutal death)<BR>Prostitute Disfigurement - Left In Grisly Fashion<BR>Prostitute Disfigurement - Descendants Of Depravity (CD/DVD)<BR>Rune - The End Of Nothing (doom/death + bonus tracks)<BR>Sickening Horror - When Landscapes Bled Backwards<BR>Spawn of Possession - Noctambulant (technical brutal death)<BR>The Year of Our Lord - Dead to You (2CD, melodic death)<BR><BR><BR>
 
 ### Что-таки ви открыли для себя в етам году, кг'оме музеки, бле-ать?
 

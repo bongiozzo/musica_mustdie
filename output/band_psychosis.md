@@ -46,11 +46,6 @@ steeler 03.04.2009 21:15:
 Максим - LOGIN! 11.12.2009 06:48:
 исчё меня удивила облога<BR>Rainbow, 1981, Difficult To Cure<BR><BR><A HREF="http://keep4u.ru/imgs/b/080711/2a/2ae6e949d0ed7b8b90.jpg" TARGET="_blank">http://keep4u.ru/imgs/b/080711/2a/2ae6e949d0ed7b8b90.jpg</A><BR><BR><A HREF="http://batzbatz.com/uploads/posts/2008-08/thumbs/1218113834_920fcf495adbbcfd79be862f37ddffc1_full.jpg" TARGET="_blank">http://batzbatz.com/uploads/posts/2008-08/thumbs/1218113834_920fcf495adbbcfd79be862f37ddffc1_full.jpg</A><BR><BR>прямо таки есть определённое сходство с этим:<BR><A HREF="http://www.artpsychosis.ru/aut1.jpg" TARGET="_blank">http://www.artpsychosis.ru/aut1.jpg</A>
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Soldier Of Fortune 03.02.2010 14:09:
-To Ekasel<BR>Приветствую! Что-то письма на мыло указанное в профиле не хотят идти. Интересуют следующие позиции:<BR>Armageddon (Sweden) - Crossing The Rubicon (War)<BR>Dark Millennium - Diana Read Peace (massacre)<BR>Living Sorrow - Red Morning Sky (Active)<BR>Therion - Symphony Masses: Ho Drakon Ho Megas (Megarock)<BR>Torchure - The Essence (1MF)<BR>Traumatic Voyage - Traumatic Voyage (West Virgina Records)<BR><BR>Могу предложить следующее:<BR>SEPULTURA – Shizophrenia (1990 Roadrunner)<BR>PUNCTURE – Immune (1996 MIA Records)<BR>DIMMU BORGIR - For All Tid (1997 Nuclear Blast, Digipack – немного<BR>потерта кромка на сгибе)<BR>TENEBRAE – Hypnotech (1996 Shiver Records)<BR>FUNNY FARM – Pseconds (1993 Progress)<BR>RED HARVEST - Cold Dark Matter (2000 Nocturnal Art)<BR>EIDOLON - Nightmare World (2000 Metal Blade)<BR>VORE - Lord Of Storms (2001 Frozen Solid)<BR>PHAZE I (members of Darkane & Soilwork) - Phaze I (2006 Scarlet Records,<BR>Digipack)<BR>SARKOMA - Integrity (1994 Red Light)<BR>454 BIG BLOCK - Your Jesus (1995 Century Media)<BR>PIST ON - Number One (1996 Fierce/Futurist)<BR>PSYCHOSIS - Squirm (1993 Massacre)<BR>GRAVEYARD RODEO - Sowing Discord In The Haunts Of Man (1993 Century<BR>Media (USA))<BR>STONEFLOW - Skullpture (1995 C&C/Major)<BR><BR>Если ничего не заинтересует, то почем можешь продать диски из<BR>приведенного выше списка? <BR>toyfel75@rambler.ru
-
 ### Новинки 2011
 
 belial 09.08.2011 22:06:
@@ -70,19 +65,4 @@ KATALEPSY “Autopsychosis” – 2013 (модерновый дэт-метал)<
 
 no more links 05.11.2013 19:09:
 есть мнение, что испанцы Wormed очень даже по теме!<BR>Lyrical themes: space, psychosis, human evolution, science.
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-valentine7 28.07.2014 10:40:
-немного висяка))<BR>Psychosis - Squirm / ORG 93 Massacre US Thrash 350<BR>Mercyful Fate	Into The Unknown	1996 orig 1 press metal blade mint 350r<BR>Napalm Death - The World Keeps Turning EP / ORG 92 Earache 400<BR>Fear Factory - Soul Of A New Machine 1992 orig Roadrunner 1 press no ifpi! 400r<BR>ICED EARTH "The Dark Saga" ORG 1st press 1996 Сentury media orig MINT 500<BR>Darkane(Agretator-ex) 1998 Rusted Angel WAR009 mint-like new 500r<BR>Wrath 1990 Insane Society japan 1 press 600r<BR>Heaven's Cry - Food For Thought Substitute 1996 hypnotic orig press! mint 350r<BR>BETHZAIDA nine worlds CD ORG 1st Press 1996 Season of Mist SOM002!!like new 400r<BR>Suffocation Despise the sun 2002 relapse 400р минт<BR>Obituary - The End Complete 1992 1 press germany 300r no ifpi code!<BR>Thanatos Realm of ecxtacy+demo 1989 HUW008 mint 350<BR><BR>
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-valentine7 19.11.2014 13:03:
-еще немного никому не нужного хэви))<BR>Requiem - Soulmachine RARE SHARK RECORDS 1994 ORG 400<BR>Under black clouds "As darkness falls" 1996 ARS METALI ARS001 near mint 350<BR>Amorphis Elegy 1996 orig relapse 400r<BR>DESTINY - The undiscovered country CD Rare 1998 1. p GNW 01 like new 400r<BR>Helloween - Treasure Chest compilation 2 cd 2002 orig press near mint 300<BR>MACHINE HEAD "Burn My Eyes" 1994 orig 400r<BR>Nevermore - The Politics Of Ecstasy / CENTURY MEDIA RECORDS 1996 300р<BR>Aversion "The ugly truth"1990 medusa usa orig! near mint-350<BR>Cenotaph "Epic Rites (9 Epic Tales and Death Rites)" 1996 OZ prod. near mint-350r<BR>Viper Brazil Evolution 1991 Massacre 1 press MASS CD 009 mint 450r<BR>Living Sacrifice REborn 2007 Solod State orig 400r<BR>Teatament 1990 Souls of Black 1PRESS orig atlantic germany NM 500r<BR>Sodom 1992 Tapping the vain 1 press orig Steamhammer! 400r<BR>Psychosis Squirm 1994 massacre orig 1 press mint NM 300r<BR>Tiamat «Clouds», 1992 Century Media 1 PRESS (mastered by nimbus) 400р <BR>Captor DOgface DEIHARD ORIG PRESS! mint 400r
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-valentine7 19.12.2014 11:17:
-Sodom 1992 Tapping the vain 1 press orig Steamhammer! 300r!!!<BR>Psychosis Squirm 1994 massacre orig 1 press mint NM 200r<BR>Cenotaph "Epic Rites (9 Epic Tales and Death Rites)" 1996 OZ prod. near mint-350r<BR>Viper Brazil Evolution 1991 Massacre 1 press MASS CD 009 mint 350r<BR>все сразу -1000р
 

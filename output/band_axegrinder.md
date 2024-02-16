@@ -12,8 +12,3 @@
 
 ## Упоминания
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-valentine7 03.08.2013 17:30:
-Axegrinder "Rise of the serpent men 1988/2006 reissue digipack mint CDVILED125-350
-

@@ -43,30 +43,10 @@ Headcrusher 07.12.2004 03:15:
 Kostolom 05.03.2006 01:30:
 Andrew (Doff), продай мне! А я взамен тебе что-нибудь хорошее сделаю! Например, публично признаюсь, что был неправ и буду слушать расмус! :)<BR><BR><DIV CLASS="quote">Жень, не мешай вести бизнес. Это - моя поляна. Я тебе потом дам картинки поразглядывать;)</DIV><BR>Сама не мешай ;) Я тебе сам чё хочешь дам :) Например, группу D.A.M. или там D.A.D.... :-O
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-valentine7 23.05.2009 21:17:
-Annihilator "King of the kill" 1994press hypnotic canada-350rur<BR>Angkor wat 2 in 1 metal blade1995-500<BR>Купившему оба сд в догонку D.A.M. "Human wreckage" (состояние плохое)
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Non Serviam 26.05.2010 20:09:
-Abismo Eterno La Ultima Elegia Del Guardian 2002 Black Castle Records<BR>Allegiance Destitution 1994 Independent<BR>Artillery Fear of Tomorrow 1985/1998 Axr Killer<BR>Artillery Terror Squad 1987/1998 Axr Killer<BR>Assassin (Ger) The Upcoming Terror 1986/1998 AxeKiller<BR>Benighted Leams Caliginous Romantic Myth 1996 Supernal Music<BR>Benighted Leams Ferly Centesms 2004 Supernal Music<BR>Bewitched (Chl) Somewhere Beyond The Mist 2001 Conquistador Records<BR>D.A.M. Inside Out 1991 Noise<BR>Drudkh Lebedynyy Shlyakh (The Swan Road) 2005 Supernal Music<BR>Eterne Deadauthor 1996 Candlelight<BR>Genocidio Genocidio 1988 Voice Music<BR>Grinder The 1st EP 1990 No Remorse Records<BR>Hawaii One Nation Underground 1983/1992 Reborn Classic<BR>Hurricane Over The Edge 1988 Enigma<BR>In the Woods A Return to the Isle of Men 1996 Hammerheart records<BR>Lawnmower Deth Billy 1993 Earache Records<BR>Lunatic Gods Inhuman and Insensible 1996 Polyphemus Records<BR>Malevolent Creation Retribution 1992 Roadracer<BR>Oceans of Sadness Laughing Tears * Crying Smile 2002 LSP Company<BR>Pleurisy/Asgaia split Unholy Spheres / Waves 1997 Magnificence<BR>Protector Leviathan`s Desire/Urm The Mad 1990 (Jap) Teichiku Rec.<BR>Visceral Evisceration Incessant Desire For Palatable Flesg 1994/2001 Napalm Records
-
 ### Новинки 2010
 
 belial 28.05.2010 21:27:
 D.A.M.N. (DIARY ABOUT MY NIGHTMARES) “Forbidden Anger” – 2010 (стандартный трэшевый мелодэт без претензий)<BR>Немецкая дэт-метал команда. Отличительная особенность – телка на вокале. Некая Антонина Мрусек. Я их раньше не слышал. Ну что же, познакомимся. Но обложке этого диска изображена дама, в состоянии перехода от человека к демону и частично уже тронутая гниением. <BR>Музло тут незамысловатое, быстренькое такое, но без сюрпризов. Этакий, Амон Амарт для нищих. Встречаются трэшевые куски и они вносят долю разнообразия. Вокал сразу видно что девичий, т.к. он иногда неотличим от гомосяцкого металкоровского орания. Сочности в гроуле, конечно не хватает. Женщины, что с них взять, кроме утех! <BR>Стандартная и весьма посредственная команда. Басуху не слыхать. Сведено как-то стремно. Струны дергают, стучат и кричат, но не думаю, что выйдет толк. Слушать особенно нечего. Мелодэт, он и с бабами мелодэт. А, еще пизданули сэмпл из кино Восставший Из Ада. Но это не новость. А так, банальщина.  <BR>Не понравилось. Проходняк.<BR>Заценил концертное видео. Девчонка-блондинка ведет себя на сцене уж больно фривольно, явно из металкоровой тусы. Отмечу басилу, который безостановочно крутил мельницу своим длиннющим хайром. Но все же, провинциальный уровень.<BR>Моя оценка: 3 из 5    <BR>
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-valentine7 27.03.2016 20:26:
-Death Angel - The Ultra-Violence 1987 1 PRESS REstless CANADA EX 2000<BR>Death Angel 1990 Fall from Grace 1 Press Enigma! NM 850r<BR>оба за 2500р<BR><BR>HYPOCRISY "Penetralia" ORG 1st NB 067 VG+ 2000<BR>D.A.M: INSIDE OUT CD '91 1ST PRESS UK THRASH 1800r<BR>Heaven 1990 Your Dying Day REX 1 PRESS 1500r<BR><BR>Carnage/Cadaver 1989 SPLIT Necro 3/4 CD EX+ 3700<BR>Cadaver 1992 IN PAINS Earache MINT! 2300<BR>оба 5500р<BR>налетай на рарики! Пишем в почту.<BR>tilitili06@rambler.ru
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-valentine7 06.04.2016 18:29:
-Не говняшки)<BR>Miscreant - Dreaming Ice RARE ORG 1st PRESS WRONG AGAIN RECORDS WAR004 LIKE NEW! 2500<BR>LAAZ ROCKIT-"Annihilation principle" Enigma 1 PRESS 1989 1700r<BR>Exhumator(GER.) In your face /Self. NM 1200r Rare! GERM/THRASH<BR>Megace – Human Errors 1991 1 press 1MF! NM 1600 руб.<BR>Death Angel - The Ultra-Violence 1987 1 PRESS REstless CANADA EX+1800<BR>DBC: UNIVERSE CD '89 1ST PRESS CANADIAN THRASH 1989 USA COMBAT! 1200r<BR>D.A.M: INSIDE OUT CD '91 1ST PRESS UK THRASH 1600r<BR>HYPOCRISY "Penetralia" ORG 1st NB 067 1800r<BR>Heaven 1990 Your Dying Day REX 1 PRESS NM 1600r
 
 ### Новинки 2017
 

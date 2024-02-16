@@ -88,11 +88,6 @@ NoPain 28.12.2009 14:11:
 Максим - LOGIN! 03.03.2014 22:11:
 Не сильно ошибусь, сказав, что почти весь немецкий треш убог, дуболомен и прямолинеен в сравнении с американцами Hades и Watchtower, например...<BR><BR>Violator просасывает Vektor'у)) Но, в принципе, неплох. А две друге группы щас качну.
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-valentine7 15.12.2015 10:24:
-HEATHEN - Victims Of Deception cd (Original Roadracer USA 1991) NO IFPI 1 PRESS 1500r<BR>Sacrament 1995 "Agony" Under siege rec RARE! 2000r<BR>FAITH OR FEAR Punishment Area CD 1989 ORIG 1st PRESS USA COMBAT! 1300r NM<BR>Deathrow 1992 "Life beyond" WVR 1 PRESS MINT! 100% orig. 3000r<BR>Epidemic 1992 Decameron USA Thrash DEATH METAL ! RARE! METAL BLADE/ZORRO NM 2400r<BR>Helloween Walls of Jericho 1985/1986 Noise/USA international RARE! 1300r NM<BR>Running Wild 1991 Blazon Stone EMI/NOISE 1C 564 7962280-2 NM 1000r<BR>Running Wild – Gates To Purgatory 1984/1992 Noise (GZ E72616 NCD 001, no ifpi code) 1300<BR>Flotsam And Jetsam 1992 Cuatro DADC AUSTRIA 1 PRESS 900r<BR>Sacred Reich - Heal 1996 1 PRESS USA 500<BR>WIDOWMAKER - STAND BY FOR PAIN CMC 1994 ORG RARE! 1 PRESS 600<BR>Helloween 1988 Keeper of the seven keys II NOISE Matrix-GZ NO IFPI NM 700r<BR>Phantom "Cyberchrist" 1993 shark orig 1PRESS in mint!! 700<BR>HYPNOSIA Extreme Hatred / Violent Intensity EP (Kill Again Records) RARE SWEDISH THRASH! 750<BR>Dark Tranquillity 1993/1996 Skydancer/Chaos and eternal night" Spinefarm ORIG PRESS SPI34 CD Mint-Like new! 1500<BR>Metallica - Kill 'Em All 1983 JAPAN MINI VINYL +OBI  (UICY-94662) в ориг.пакете. 1500 как нов.<BR>Accept 1985 Metal Heart JAPAN+OBI EPIC 25&#12539;8P-5241 NO IFPI! NM 1800r<BR>Dream Theatre 1997 Falling Into Infinity+ mini CD AMCY-2315 + 1200<BR>Dream Theatre 1999 Scenes From A Memory AMCY-7087 + 1200<BR>Annihilator 2002 Waking The Fury CRCL-4800 +оби 1200<BR>GRIP INC 1997 "NEMESIS" JAPAN + OBI VICTOR VICP-5820 MINT 1200r (LOMBARDO SORYCHTA-EX DESPAIR)<BR>Vektor - Outer Isolation Japan CD IUCP-16127 +OBI + 2 Bonus mint 1900r<BR>ВИНИ:<BR>Holy moses 2014 Redefined Mayhem 2LP+BONUS CD Steamhammer orig NEW 2100r<BR>Sacrilege BC Too cool To Pray 1988 MEDUSA NM 1400r<BR>COVEN BLESSED IS THE BLACK 1987 LP w/ LYRIC SLEEVE NM 1500р
-
 ### Новинки 2016
 
 Ghast 06.05.2016 22:56:
@@ -112,11 +107,6 @@ fgrind 05.09.2016 10:57:
 
 Ghast 07.09.2016 22:20:
 По прогу и всячине с проговыми элементами следующее:<BR>Orphaned Land не удивили, скажем так,<BR>Gojira - помимо песен с клипов разочарование,<BR>The Vision Bleak - прекрасная атмосферная работа,<BR>Steven Wilson - приятно, но я подустал от его подачи. Хочу Поркупайнов обратно!<BR>Ihsahn уже альбома три углубляется в авангард, проблема та же, что и у Уилсона.<BR>Порадовали очень Black Crown Initiate, Cult Of Luna, Frostbite, Harakiri For The Sky, Haken неплох, Latitudes, In Mourning, Be'lakor, Skuggsja, Todtgelichter, Sulphur, Vektor, Witherscape. Из заново открытого старого по кругу гоняю Shaolin Death Squad и Another Perfect Day (миник особенно хорош)<BR><BR>Из Madder Mortem наиболее очевидным вариантом послушать будет Deadlands и Eight Ways. Уникальная мелодика и отменная подача вокалистки не дадут основания адекватному слушателю посчитать эту музыку унылой.
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-НиколайНС 20.03.2017 16:38:
-И вот эти ещё:<BR><BR>Season of Mist:<BR>Benighted:<BR>- Necrobreed (lim. box: digipack + 2 bonus tracks, carabiner key strap w/bottle opener, poster, sticker);<BR>- Necrobreed (lim. transparent red LP, 150 copies).<BR>D&#200;parte:<BR>- Failure, Subside (lim. digipack);<BR>- Failure, Subside (lim. 2LP white colored, 150 copies).<BR>Incantation - Tribute to the Goat (lim. LP gold colored, 333 copies).<BR>Shape of Despair: <BR>- Alone in the Mist (lim. 2LP, 666 copies).<BR>- Monotony Fields (lim. digipack + bonus track).<BR>The Great Old Ones: <BR>- EOD: A Tale of Dark Legacy (digipack);<BR>- EOD: A Tale of Dark Legacy (lim. hardcover book).<BR>Vipassi:<BR>- Sunyata (lim. digipack);<BR>- Sunyata (lim. LP clear, 100 copies).<BR><BR>Прочее:<BR>Ex Deo - The Immortal Wars (digipack, Napalm Records).<BR>Grave Digger - Healed by Metal (digipack + 2 bonus tracks, Napalm Records).<BR>At the Gates - Slaughter of the Soul (re-relesae with 6 bonus tracks, Earache).<BR>Running Wild:<BR>- Rapid Foray (digipack, SPV);<BR>- Rapid Foray (lim. 2LP gold colored, SPV);<BR>- Rapid Foray (lim. 2LP clear, SPV);<BR>- Resilient (lim. 2LP blue colored, SPV).<BR>Vektor:<BR>- Black Future (re-release, Earache);<BR>- Outer Isolation (re-release, Earache).
 
 ### Новинки 2017
 

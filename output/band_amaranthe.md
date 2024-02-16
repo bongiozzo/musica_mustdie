@@ -123,21 +123,6 @@ Stas Hoffmann 29.04.2013 09:54:
 spn 30.04.2011 14:18:
 После Amaranthe - Hunger как то слишком слабо. Хотя в раше понравится кому нить.
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Flowergatherer 03.07.2011 12:49:
-Куплю родные<BR><BR>Amaranthe - Amaranthe<BR>Lake of Tears : Illwill, Moons and Mushrooms<BR><BR>flowergatherer AT yandex DOT ru
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Non Serviam 20.07.2011 22:09:
-ACCUSER - Confusion Romance (in special jewel)<BR>AMARANTHE - Amaranthe<BR>ANGELZOOM - Fairyland (single)<BR>CRUACHAN - Blood On The Black Robe (slipcase)<BR>ENSLAVED - Isa (slipcase)<BR>EPOCH OF UNLIGHT - Within The Night /self-released<BR>MYSTIFIER - The World Is So Good That Who Made It Doesn't Live Here<BR>OF THE WAND AND THE MOON - Lucifer<BR>PARADISE LOST - As I Die EP<BR>SODOM - Aber Bitte Mit Sahne EP<BR>SODOM - Ausgebombt EP<BR>SUBWAY TO SALLY - Sieben (single)<BR>TRISTANIA - Rubicon (digi)<BR>WITHIN TEMPTATION - The Dance /dsfa<BR>YYRKOON - Oniric Transition<BR><BR>eskhaton @ rambler . ru
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Non Serviam 23.09.2011 22:30:
-Amaranthe - 2011 - Amaranthe (Spinefarm) goth power -500 <BR>Burzum - 1993/1994 - Det Som Engang Var (digi) (Misanthropy / Cymophane) DADC Austria matrix! -1000 <BR>Cradle Of Filth - 2004 - Nymphetamine 2CD (digi) (Roadrunner) bonus CD w/remixes -650 <BR>Mandragora Scream - 2009 - Volturna (Massacre) gothic <U>запечатан</U> 600<BR>Sigh - 1999 - Scenario IV: Dread Dreams (Cacophonous) avant black, rare 1st press -700 <BR>Tiamat - 1994 - Gaia EP (digi) (Century) DURECO matrix! -550 <BR><BR>+ на многое серьезно снижены цены:<BR><A HREF="http://www.darkside.ru/forum/viewtopic.php?f=7&t=12596" TARGET="_blank"><B><U>фирменные диски</U></B></A>
-
 ### Новинки 2011
 
 belial 02.10.2011 18:03:
@@ -148,20 +133,10 @@ AMARANTHE “Amaranthe” – 2011 (данс-поп-метал)<BR>Жил-был
 покойный Иван Петрович Белкин 18.05.2012 16:34:
 Более-менее выкристаллизовался мой "итог 2011":<BR>из метал-рока шедевров не нашлось в этом году, но понравилось такое<BR>DEMONAZ "March Of The Norse" эпично<BR>SHINING "VII-Fodd Forlorare" депрессивно и мощно с вкраплениями пинкфлойдовщины<BR>AMARANTHE "Amaranthe" мелодично-зажигательно<BR>WOODS OF INFINITY "Forlat" образец мракобесия в 2011-м. лирика на шведском - это плюс. голос оратора тоже на высоте в своём жанре конечно.<BR>CADAVEROUS CONDITION "Burn Brightly Alone" сильно отличается от первых альбомов группы, стал разнообразнее, поэтому слушается легко и вообще как-то порадовали.<BR>MANILLA ROAD "Playground Of The Damned" необычное для нынешних времён звучание, атмосфера 80-х, ну и материал цепляющий.<BR><BR>Не метал-рок ни разу:<BR>THE JAN HOLDBERG PROJECT "Sense Of Time" шедевр <BR>Просто отличные пластинки переполненные бриллиантовым материалом:<BR>BLACKFIELD "Welcome To My DNA" <BR>BONFIRE "Branded"<BR>8-IS "Frame Of Us"<BR>KEN HENSLEY & LIVE FIRE "Faster"<BR>ROB MORATTI "Victory"<BR><BR>И по традиции для тех, кто кроме музыки интересуется окружающим миром - ещё одни итоги 2011: <A HREF="http://media-mera.ru/politics/fursov" TARGET="_blank">http://media-mera.ru/politics/fursov</A>#SID7070_3_tgl<BR><BR>
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Flowergatherer 17.07.2012 14:37:
-<BR> Куплю ( По разумным ценам) Москва.<BR> <BR>Аmaranthe - Amaranthe 2011<BR>Depressive Age - Symbols for the Blue Times 1994<BR>Anathema - We are here<BR>Ancient Rites -Fatherland<BR>Thy catafalque -Regneteg<BR><BR>flowergatherer At yandex DOT ru
-
 ### Хочу общатца! Skype?
 
 Панкрат 14.10.2012 07:31:
 С горя зырю Amaranthe - Amaranthine .. Пичалько ((
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Flowergatherer 27.12.2012 12:01:
-Куплю фирму:<BR><BR>Wintersun -Time<BR>Autumnblaze - 98<BR><BR>Аmaranthe - Amaranthe 2011<BR> <BR>Anathema - We are here 2010<BR> <BR>Ancient Rites - Blasphimia eternal 96, Fatherland 98 (Mascot)<BR><BR>Depressive Age - Symbols for the Blue Times 1994<BR>Phlebotomized -all.<BR><BR>(flowergatherer AT yandex DOT ru)
 
 ### Новинки 2013
 
@@ -193,11 +168,6 @@ Amaranthe вполне жырный первый альбом записали, 
 Хорёк 02.03.2013 17:26:
 Далана вам на Доффа гнать, он старенький уже, диски у него с молодостью ассоциируются, вот он их и покупает<BR><BR>На подходе Amaranthe, Ghost, The Ocean, Amorphis, Leprous ждемс
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Flowergatherer 15.03.2013 22:24:
-Куплю ( Желательно Москва)<BR><BR>Аmaranthe - Amaranthe 2011<BR><BR>Anathema - We are here 2010<BR><BR>Ancient Rites - Fatherland 98 (Mascot)<BR><BR>Depressive Age - Symbols for the Blue Times 1994<BR><BR>Saturnus - Saturn in Ascention дежательно digi.<BR><BR>flowergatherer AT yandex Dot ru
-
 ### Новинки 2013
 
 Хорёк 02.04.2013 10:29:
@@ -227,14 +197,4 @@ Dimas 04.11.2014 15:20:
 
 Ымперскый Ымператоръ 30.03.2015 14:56:
 Лёш, самая успешная в мире фолк метал группа:<BR><A HREF="http://eluveitie.ch/wp_live/wp-content/uploads/2014/08/home_eluveitie_bandfoto_01.jpg" TARGET="_blank">http://eluveitie.ch/wp_live/wp-content/uploads/2014/08/home_eluveitie_bandfoto_01.jpg</A><BR><BR>Сколько рыл на картинке? ))<BR><BR>А на счет места под софитами - вспомним Therion и Amaranthe, например... <BR><BR>Я еще давно задумался, что, возможно дико скучно писать 30 лет музло под ОДИН И ТОТ ЖЕ голос. На новом альбоме у нас будут ВСЕ виды голосов. И Конинг тоже.<BR><BR>А вообще весело - сначала 2 года все орали что ЧСВ Аора никогда не позволит ему сменить вокалиста, а потом говорят что непонятно, почему он это сделал... Впрочем, общественное мнение всегда такое, так что я рад что им не руководствуюсь :)
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Flowergatherer 17.06.2016 17:05:
-Куплю в Москве:<BR><BR>Subterranean Masquerade -Great Bazzar ( Можно digi pack)<BR><BR>Amaranthe - Nexus<BR><BR>Родные. Запечатанные.<BR>Связь : skyclimer AT mail DOT ru<BR><BR>
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Flowergatherer 29.08.2016 23:08:
-Куплю в Москве. Только фирма. Запечатанные.<BR><BR>Menhir -Ziuwari<BR>Subterranean Masquerade - The Great Bazaar<BR>Amaranthe - Nexus<BR><BR>Связь : skyclimer AT mail DOT ru
 

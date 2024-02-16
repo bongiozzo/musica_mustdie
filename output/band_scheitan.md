@@ -122,8 +122,3 @@ Seducer 08.05.2009 16:07:
 Dimas 20.05.2011 11:34:
 а что же это, если не дэт-н-ролл?<BR>еще можно отчасти вспомнить Hearse, Scheitan, Convulse
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Non Serviam 11.03.2016 23:19:
-The Fall Of Every Season	From Below	Aftermath	2007	death doom, 1st press, rare<BR>Nox Mortis	7 Lies (digi)	Prophecy	1999	gothic doom, 1st press<BR>Jess And The Ancient Ones	Astral Sabbat EP (digisleeve)	Svart	2013	psychedelic rock, 1st press<BR>October Falls	Tuoni EP	Dark Horizon	2003/05	ethereal neofolk, rare<BR>Old Season	Volume One (digi)	Alderwood	2004	super doom heavy, 1st press, rare<BR>Vreid	Welcome Farewell (digi)	Indie	2013	melodic black, 1st press (ex-Windir members)<BR>Rotting Christ	A Dead Poem 2CD	Century Black	1997	cvlt dark metal, case with orig sticker<BR>ShamRain	Empty World Excursion	Watch Me Fall	2003	gothic rock, 1st press<BR>Lux Occulta	Forever Alone. Immortal	Pagan	1996	cvlt dark metal, 1st press<BR>Scheitan	Nemesis	Century	1999	goth death, 1st press (напоминает Cryhavoc)<BR>Entwine	Painstained	Spinefarm	2009	gothic, 1st press<BR>Sentenced	Frozen	Century	1998	cvlt gothic, 1st press<BR>The Sins Of Thy Beloved	Lake Of Sorrow	Napalm	1998	cvlt gothic doom, 1st press<BR>Thyrfing	Thyrfing	Hammerheart	1998	cvlt viking black, 1st press<BR>Viikate	Kuutamourakat - Riippumattomat Pienjulkaisut - 1998 - 2003	Longplay	2004	gothic heavy, 1st press<BR>Old Man's Child	Vermin	Century	2005	black, 1st press<BR>Katatonia	For Funerals To Come... EP	Avantgarde	1995	cvlt death doom, 1st press<BR>Katatonia	Discouraged Ones	Avantgarde	1998	cvlt death doom, 1st press<BR>Katatonia	Discouraged Ones	Avantgarde	1998	cvlt death doom, Sony DADC matrix<BR>
-

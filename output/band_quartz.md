@@ -14,11 +14,6 @@
 
 ## Упоминания
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Kurz 06.03.2009 01:34:
-фирменные, новые, не Москва<BR>вопросы, плз, на мыло<BR>kurz20008 _ gmail _ com<BR><BR>40 Grit --- Heads --- Metal Blade --- 300,00<BR>Am I Blood --- Agitation --- Nuclear Blast --- 350,00<BR>Ancient --- The Halls Of Eternity --- Metal Blade --- 350,00<BR>Benediction --- The Grotesque / Ashen Epitaph --- Nuclear Blast America --- 350,00<BR>Brainstorm --- Ambiguity --- Metal Blade --- 350,00<BR>Chinchilla --- The Last Millennium --- Metal Blade --- 350,00<BR>Chinchilla --- Madtropolis --- Metal Blade --- 350,00<BR>Dies Irae --- Immolated --- Metal Blade --- 350,00<BR>Flotsam And Jetsam --- High --- Metal Blade --- 350,00<BR>Flotsam And Jetsam --- Unnatural Selection --- Metal Blade --- 350,00<BR>Galactic Cowboys --- The Horse That Bud Bought --- Metal Blade --- 350,00<BR>Gardenian --- Soulburner --- Nuclear Blast --- 350,00<BR>Grip Inc. --- Nemesis --- Metal Blade --- 350,00<BR>Grip Inc. --- Solidify --- Metal Blade --- 350,00<BR>Hades --- The Downside --- Metal Blade --- 350,00<BR>Jacobs Dream --- Theater Of War --- Metal Blade --- 350,00<BR>Mundanus Imperium --- The Spectral Spheres Coronation --- Nuclear Blast --- 350,00<BR>Night In Gales --- Nailwork --- Nuclear Blast --- 350,00<BR>Pro-Pain --- Foul Taste Of Freedom --- Nuclear Blast America --- 350,00<BR>Quartz --- Resurrection --- Metal Blade --- 300,00<BR>Raven --- Raw Tracks --- Metal Blade --- 300,00<BR>Savatage --- Ghost In The Ruins --- Nuclear Blast America --- 350,00<BR>Sculpture --- Sculpture --- Nuclear Blast --- 350,00<BR>Sinner --- The Nature Of Evil --- Nuclear Blast --- 350,00<BR>Skrew --- Burning In Water, Drowning In Flame --- Metal Blade --- 300,00<BR>Skrew --- Angel Seed XXIII --- Metal Blade --- 300,00<BR>Soul Reaper --- Written In Blood --- Nuclear Blast --- 350,00<BR>Stahlhammer --- Feind Hort Mit --- Nuclear Blast --- 350,00<BR>Supershine --- Supershine --- Metal Blade --- 300,00<BR>Sweet Savage --- Killing Time --- Metal Blade --- 300,00<BR>Talas --- If We Only Knew Then What We Know Now… --- Metal Blade --- 300,00<BR>Thought Industry --- Black Umbrella --- Metal Blade --- 300,00<BR>V/A --- Guitars That Rule The World Vol.2 - Smell The Fuzz --- Metal Blade --- 300,00
-
 ### ВИНИЛ - хочу всё знать
 
 Dimmi'd'roll 07.12.2011 16:04:

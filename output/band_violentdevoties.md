@@ -12,11 +12,6 @@
 
 ## Упоминания
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-stepa 20.05.2009 21:12:
-все<BR>	Tabor Radosti	Lamat		<BR>	Tacit Fury	The Invented pain (Russian doom-metal)		<BR>	Terrorama	Horrid Efface		<BR>	Thirst	Ritual for Blood (black metal)		<BR>	THORNSBREED	The Splendour of the		<BR>	Tjolgtjar	Five Tjolgtjarian Keys (pagan black)		<BR>	Tomcat\Ustredne Kurenie	Punkerfaust\Aj Tak Sa Da (split, punk)		<BR>	TROLLECH\HEIDEN	split (digipac) pagan-black		<BR>	Tyranny	In Times Of Tyranny thrashing		<BR>	TYRANT	Grimoires (digi-pack, japan)		<BR>	Ululate	We Are Going To Eat You… (raw black metal)		<BR>	UNCHRIST	On Leather Wings (black metal)		<BR>	UTERUS	Goatgod (black metal)		<BR>	V.A.C.K.(Vinland Anti Christian Kommando)	L'ombre De la Solitude (black metal Canada)		<BR>	Veiled Allusions	Visions Of The World (metal)		<BR>	Vexed	Hellblast Extinction (black metal)		<BR>	Vinterriket	Retrospective (dark ambient)		<BR>	Violent Devoties	Entwined By Vengeance		<BR>	Visionaries of the Macabre vol.2	An Evil Elite сборник black metal from USA		<BR>	VOLKEINBLUCHT	To Consume the Darkness Whole(black metal)		<BR>	Wayd	Decadence (metal, Slovakia)		<BR>	Wojnar	When The... (ex-Nokturnal Mortum,slavonic pagan)		<BR>	WRAITH	Shadows (black metal)		<BR>	Xibalba	Ancients (Cult Black Metal)		<BR>	Xibalba	Ah Dzam poop Ek (Cult Black Metal)		<BR>	Yaotl Mictlan	Guerreros De La Tierra De Los Muertos		<BR>	Zillah	Substitute For A Catastrophe (post metal)		<BR>
-
 ### Фирменные диски от MUSICA Prod
 
 Vit Belov 15.11.2009 09:18:

@@ -35,11 +35,6 @@ Headcrusher 18.03.2016 16:00:
 
 ## Упоминания
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Non Serviam 08.03.2013 17:17:
-интересны релизы следующих банд:<BR><BR>1/ Uncle Acid and the Deadbeats:<BR>Volume 1          Full-length 2010  <BR>White Nights of Murder / I'll Cut You Down       Split 2011  <BR>Blood Lust                Full-length 2011 <BR>Poison Apple            Single 2013  <BR>Mind Control         Full-length 2013  <BR><BR>2/ Evil Blood<BR><A HREF="http://www.metal-archives.com/bands/Evil_Blood/52426" TARGET="_blank">http://www.metal-archives.com/bands/Evil_Blood/52426</A><BR><BR>3/ Gehenna:<BR>First Spell                      Full-length 1994  <BR>Seen Through the Veils of Darkness (The Second Spell)                     Full-length 1995 <BR>Malice (Our Third Spell)              Full-length 1996   (Вот этот альбом особо ищу)<BR>Black Seared Heart                Compilation 1996 <BR>Deadlights                       EP 1998<BR><BR><BR>eskhaton @ rambler . ru
-
 ### Новинки 2013
 
 Dark 26.08.2013 18:54:

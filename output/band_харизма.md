@@ -1265,16 +1265,6 @@ Deviant syndrome обосрались со звуком, была полная �
 Appendics 17.09.2011 14:24:
 Андрюша, у Беркута мужской, чуть грубоватый вокал. А у Михаила слушается как-то более академично, правильно. Чуток бы хрипотцы не помешало, думаю. А так, - отличный чистый, высокий вокал. Харизматичность многое решает. Мне он нравится больше Беркутовского.
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Non Serviam 19.09.2011 22:35:
-Mandragora Scream - Volturna (Massacre) gothic с харизматичной итальянкой на вокале -600
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Non Serviam 20.09.2011 22:46:
-eskhaton @ rambler . ru<BR><BR>Ajattara - 2001 - Itse (Spinefarm) dark metal, 1st press c австрийской матрицей -500<BR>Ajattara - 2003 - Kuolema (Spinefarm) dark metal, 1st press c австрийской матрицей -500<BR>Amorphis - 1999 - Tuonela (digi) (Nuclear Blast) folk influenced melancholic post doom, светлый диск БЕЗ видео -800<BR>Ancient Rites - 2001 - Dim Carcosa (digi) (HHR) viking black -1000<BR>Dream Theater - 1997 - Falling Into Infinity (EastWest) prog -350<BR>Dissection - The Past Is Alive (The Early Mischief) (Karmageddon) cvlt black death -500<BR>Elend - 2004 - Sunwar The Dead (digisleeve) (Holy) dark neo-classic, 1st press -400<BR>Enid - 2004 - Gradwanderer (digi) (Code 666) prog black -400<BR>Estatic Fear - 1997 - Somnium Obmutum (CCP) cvlt dark metal -800<BR>Immortal - 1999 - At The Heart Of Winter (Osmose) cvlt black -500<BR>Mandragora Scream - 2009 - Volturna (Massacre) gothic с харизматичной итальянкой на вокале -600<BR>Mortal Love - 2002 - All The Beauty... (Massacre) gothic -500<BR>Mystifier - 1993/97 - Wicca (w/ bonus T.E.A.R. EP) (Demise Records) black, немного волнистая задняя вкладка, торг
-
 ###   “IX MOSCOW SYNTHETIC SNOW FESTIVAL” 03 декабря 2011: DEINE LAKAIEN, RABIA SORDA, SOLAR FAKE...   
 
 maxinabox 21.11.2011 02:08:

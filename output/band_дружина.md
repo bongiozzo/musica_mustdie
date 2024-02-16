@@ -72,11 +72,6 @@ Lazar 02.02.2009 08:45:
 Sarokhael 12.11.2009 16:31:
 Дружина политический инструмент, а Маша вне политики)
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Torrment 15.11.2009 13:09:
-Также имеются:<BR>Darkthrone - The Cult Is Alive + Too Old, Too Cold EP (Black Metal Attack Records) (200) (бразильская лицензия)<BR>Darkthrone - F.O.A.D. (союз) (150)<BR>Darkthrone - Dark Thrones and Black Flags (союз) (150)<BR>Immortal - At The heart Of Winter (фоно) (150)<BR>Аркона - От Сердца К Небу (Sound Age Productions) (200)<BR>Дружина - Echoes of Distant Battles (Sound Age Productions) (150)<BR>Дружина - Kosmonoetika (Sound Age Productions) (150)<BR><BR>E-mail - см. в предыдущем посте.
-
 ### 25.12.БОЛЬШОЙ КОНЦЕРТ ГРУППЫ ПИЛИГРИМ И ПРЕЗЕНТАЦИЯ АЛЬБОМА МАРТА
 
 stepa 26.12.2010 14:45:

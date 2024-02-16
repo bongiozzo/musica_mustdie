@@ -21,8 +21,3 @@ a. 23.01.2001 03:01:
 Barghest 05.01.2003 01:12:
 DEAD WORLD, CANDIRU, MEATHOOK SEED,  SKIN CHAMBER, HYBERNOID, ранний GODFLESH, PITCHSHIFTER, можеть  ещё FUDGE TUNNEL, NAILBOMB, INNER THOUGHT
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Non Serviam 09.01.2010 19:57:
-btw, никому на обмен не нужны?<BR><BR>Inner Thought - Wordly Separation (Witchhunt)<BR>Madrigal - I Die, You Soar (Nuclear Blast)
-

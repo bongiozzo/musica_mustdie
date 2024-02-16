@@ -229,21 +229,6 @@ Seducer 22.08.2005 15:42:
 Kostolom 29.07.2006 00:57:
 <DIV CLASS="quote">Ты сам ответил на свой вопрос. "По российским меркам". Босх или Тризна были круты тогда объективно, а не по российским меркам. И самое главное, что играли со своим почерком, оригинально, а не "под каннибалов" или "миталеку", например. :)<BR></DIV><BR>Судя по одной песенке Некроканнибалов, у них тоже имелся свой почерк, вот ей-Богу! :) <BR>Ну даже если по мировым меркам они были вторичны, так что же их, сразу в "копролиты" записывать? Так можно и Sadus туда же записать, мол, на пятки Слееру наступают, и не более, и Cathedral , и про Ceremonial Oath даже таксказать! Может, я не совсем прав и тебе виднее (хотя ты наверняка последний раз слушал Некроканнибала чорт знает сколько лет тому назад ;) ), но мне показалось, что какой-то откровенной вторичности (как, например, на единственном слышанном мной альбоме Мортема "death is my name" или первых двух альбомах Мерлин) у них нет. Кстати, те же Bosch - согласись, что Death они не переплюнули. Но это же не мешает всем здравомыслящим ценителям музыки считать как минимум первый их альбом шедевром :)
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-НиколайНС 01.03.2013 12:04:
-niknetl (пёс) rambler ((.)) ru<BR><BR>Aural Music/Code666:<BR><BR>Blutmond - The Revolution is Dead! (digipack).<BR>Eternal Deformity - The Beauty of Chaos.<BR>Fen - The Malediction Fields.<BR>Fen - Epoch (lim. A5 artbook).<BR>Fen - Dustwalker (lim. box inc. pendant).<BR>Konkhra - Reality Check.<BR>Nachtvorst - Silence.<BR>Ne Obliviscaris - Portal of I (digipack).<BR>Saille - Irreversible Decay.<BR>Saille - Ritu (digipack).<BR>+<BR>Majestic Dowfall - The Blood Dance (digipack, My Kingdom Music).<BR>Monads - Intellectus Iudicat Veritatem (A5 digipack, Aural)<BR>Void Of Sleep - Tales Between Reality and Madness (digipack, Aural).<BR><BR><BR>Century Media:<BR><BR>Dark Tranquillity - The Gallery (lim. 2LP red colored).<BR>Dark Tranquillity - The Mind's Eye (lim. LP red colored).<BR>Evocation - Illusions of Grandeur (lim. digipack + bonus tracks).<BR><BR>Серия переизданий альбомов нескольких шведских групп, игравших и оказавших несомненное влияние на дальнейшее развитие black/death & melodic death:<BR>Ceremonial Oath - The Book of Truth (2CD).<BR>Ceremonial Oath - The Book of Truth (lim. 2LP gold colored).<BR>Sacramentum - Far Away from the Sun (1994/2013 re-release).<BR>Sacramentum - Far Away from the Sun (1994/2013 re-release, lim. blue colored vinyl).<BR>The Everdawn - Poems - Burn the Past (1997/2012 re-release, lim. black CD)<BR>The Moaning - Blood From Stone (1997/2013 re-release, lim. black CD).<BR><BR>Переиздания, приуроченные к 25-летию Century Media:<BR>Dark Tranquillity - Character (lim. 2CD slipcase). <BR>Moonspell - The Antidote (lim. 2CD slipcase).<BR>Nevermore - Dead Heart in a Dead World (lim. 2CD slipcase).<BR>Paradise Lost - In Requiem (lim. 2CD slipcase).<BR>Tiamat - A Deeper Kind of Slumber (lim. 2CD slipcase).<BR>Turisas - Battle Metal (lim. 2CD slipcase).<BR><BR><BR>Earache:<BR>Decapitated:<BR>- The Negation;<BR>- Organic Hallucinosis.<BR>Entombed - Clandestine (CD+DVD classic series).<BR>Evile: <BR>- Infected Nations (redux. 2CD edition);<BR>- Five Serpent's Teeth.<BR>The Soulless - Isolated.<BR><BR><BR>Listenable:<BR>Moonloop - Deeply from the Earth.<BR>Outcast - Awaken the Reason.<BR>Zonaria - Arrival of the Red Sun (slipcase).
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-valentine7 25.02.2015 22:48:
-Hammerhawk - The Future Written In The Past RARE DUTCH METAL INDIE 1998 2000р<BR>ORACLE - AS DARKNESS REIGNS CD 1993 · MASSACRE MASS GERMAN CD 012 mint 1500р<BR>CRYSTAL AGE – FAR BEYOND DIVINE HORIZONS VIC RECORDS 1995(Swedish Death with Ceremonial Oath / Hammerfall members. Ultra rare!) offer или обмен<BR>Deliverance 1994 Learn INTENSE 1 PRESS! FLD9454 1000
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-valentine7 08.04.2015 10:14:
-Crystal age "Far Beyond Divine Horizons" 1995 RARE! VIC rec! NM 2300r(members from Ceremonial Oath, Hammerfall, Dimension Zero)<BR>The Crucified - The Pillars Of Humanity / OCEAN RECORDS 1991 RARE mint 1900r
-
 ### Новинки 2015
 
 Dimas 13.01.2016 19:30:

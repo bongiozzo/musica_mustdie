@@ -117,16 +117,6 @@ DEADSHOP 26.01.2010 13:06:
 Зодиак 09.08.2010 13:18:
 Серые туманы - Demons Of Guillotine))))))))))
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-valentine7 12.08.2010 13:07:
-Guillotine (Swe) - Under the Guillotine necropolis1997 orig-500
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Max87 04.09.2010 12:36:
-КУПЛЮ следующие CD:<BR><BR>ALKONOST "Between The Worlds"<BR>DEMONS OF GUILLOTINE (ex - The Demons) "Sweet Rosemary"<BR>DUB BUK "Иду на Вы"<BR>LUCIFUGUM "Назад к порубанным корням"<BR>NOKTURNAL MORTUM "Weltanschauung" (англ.версия "Мировоззрения")<BR>STIGMATIC CHORUS "Autodafe"<BR>ВЕЛИАР "Чёрный легион"<BR>ЛЮТОМЫСЛ "Вызов"<BR>ЛЮТОМЫСЛ "I(')mqui(nt)ess/cence"<BR>ЧУР "Брате вiтре"<BR><BR>Контакт: maxim-chum@mail.ru
-
 ### Новинки 2011
 
 Зодиак 15.05.2011 12:21:

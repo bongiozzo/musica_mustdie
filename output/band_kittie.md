@@ -122,13 +122,3 @@ DANGER DANGER - "Revolve" (2009)<BR><BR>Долгожданный новый ст
 Stas Hoffmann 15.04.2013 13:49:
 У нас нет современных банд этого толка, думается мне. Потуги есть, типа Baby Doll, ещё децкая волна была 3-5 лет назад типа Kittie Dammer...<BR><BR>Есть ещё Offroad - но я их ни разу не слушал. Они что, правда круты? <BR><BR>Вообще, вторая паверная волна отразилась в России, а третья глэм - почему захлебнулась...
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Кукан Войны 17.06.2013 10:06:
-TERATISM (2004) Service For The Damned (Pathos Prod) 350<BR>TRAUMA (2006) Determination (Unique Leader) 400<BR>VITALITY (USA) (2006) Voracious Malignity (Comatose Music) 350<BR>ZEENON (2005) Blood Vessel Criteria (Retribute) 350<BR><BR>COAL CHAMBER (1997) Coal Chamber (Roadrunner) 450<BR>COAL CHAMBER (1999) Chamber Music (Roadrunner) 450<BR>MACHINE HEAD (1997) The More Things Change (Roadrunner) 450<BR>KORN (1998) Follow The Leader (Epic) 450<BR>KITTIE (2001) Oracle (Artemis Rec) 450<BR>SEPULTURA (2001) Nation digi (Roadrunner) 500<BR>BABYLON WHORES (1997) Cold Heaven (Misanthropy/Heroine) 500<BR>CAVALERA CONSPIRACY (2008) Inflikted (Roadrunner) 450<BR>COLD (2000) 13 Ways To Bleed On Stage (Flip/Geffen) 450
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-AB/CD 13.12.2013 00:03:
-Pineapple Thief, The &#8206;– 3000 Days 2CD - 500<BR>Rain Fell Within	- Refuge 200 (ex)<BR>Spazztic Blurr -	Spazztic Blurr 300<BR>Pelican -	City Of Echoes 400<BR>Nazca -	Straight Hope Tissue EP 200<BR>Nadja - 	Sky Burial EP ltd 400<BR>Nadja - Skins Turns To Glass 400<BR>My Ruin- The Horror Of Beauty 300<BR>Mogwai	- Ten Rapid 200 (ex)<BR>Mogwai -	EP+2 300<BR>Mogwai	- My Father My King EP 200<BR>Misstrip	- Sibylline 300<BR>Meisner, Randy	- Randy Meisner 200<BR>Kittie -	Until The End 300<BR>Death SS	- Do What Thou Wilt 300 
-

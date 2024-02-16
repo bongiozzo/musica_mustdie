@@ -39,11 +39,6 @@ Zella 13.06.2005 14:39:
 Zella 24.06.2005 14:09:
 2 ClitEater: пятёрка за дедукцыю, мальчек :-D но ты нихуя не прав! Я мрачное блэкготическое существо и я никогда не шучу. Можеш спросить у Антония Гатслэшера
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-stepa 10.02.2011 17:00:
-Все CD по 300 новые, DVD - 400<BR>писать grind_02@mail.ru<BR>DVD Le Scrawl Full Frontal Nudity<BR>INHUME (NL)-moulding the deformed <BR>DEAD (Ger)  in  the bondage of vice<BR>POSTMORTEM(Ger)-seeds of devastation <BR>CLITEATER(NL)- the great southern clitkill<BR>DEFLORATION (Ger) abused with gods blessing  <BR>SPAWN (Ger)human toxin <BR>GRIND INC. (Ger) - executed<BR>GRIND INC.(Ger) - inhale the violence <BR>THE SIXTH INCUBATOR (Ger) - inphonoir<BR>IRATE ARCHITECTS (Ger)-visitors<BR>JACK SLATER (Ger) - metzgore<BR>MALEDICTIVE PIGS (Ger) - soul surgery<BR>MASTIC SCUM (A)-mind<BR>HOLOCAUSTO CANIBAL (Por)- opus genetalia<BR>DISASTROUS MURMUR (A)-marinate your meat <BR>PROFANATION (Ger)- lustful screams of torture<BR>DARK DISCIPLE (US) unholy hate gore<BR>DEATH REALITY (Ger)  bloodprints<BR>CRITERION (N) - the dominant<BR>RESURRECTED (Ger)- endless sea of loss 
-
 ### Нужна помощь в покупке CDs через eBay.
 
 stepa 15.04.2014 23:20:

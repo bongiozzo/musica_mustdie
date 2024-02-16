@@ -1739,11 +1739,6 @@ ward 20.11.2007 01:10:
 Максим - LOGIN! 10.12.2007 23:09:
 Мля... лучше бы он собирал не <B>Black Sabbath</B> и фсякий <B>ДИП ПУРПЛЕ</B>, а чо нить более реальное, например, <A HREF="http://masterkiller.apopheoz.ru/" TARGET="_blank">MASTER KILLER</A>, <B>ANAL NOSORIG</B>, <B>МУТАНТ ФАКТОР</B>, <B>ПРЕЧЮДЛЕВЫЙ ЗАРОДЫШ</B>, <B>EDUCATED SCUM</B>. Или нереальное: <B>NECROk.i.l.l.DOZER</B>, <B>CORPSE</B>...<BR>Ну или хотя бы ANAL CUNT и NAPALM DEATH.<BR>Было п веселей.
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-bashmachok 09.04.2010 13:20:
-Продаются CD отечественного пр-ва, в Москве.<BR>По вопросам приобретения пишите на e-mail - bloodcraving@yandex.ru<BR><BR>CADAVERIC INCUBATOR/FETAL DECAY/MORTALIZED -2005 Split CD / Soulflesh Collector -100<BR>EDUCATED SCUM/FIGHT BACK -2004 Split CD / Not Like Most - 170<BR>FETAL DECAY/DETRIMENTAL -2002 Split CD / Relics -150<BR>GRINDFATHER/EBANATH -2004 Split CD / Imbecil/Eclectic - 130<BR><BR><B>3 альбома с участием Aнал Носорога:</B><BR><BR>ANAL NOSOROG "You Are A Fat Putridity"<BR>ANAL NOSOROG "The Beautiful People"<BR>POSTHUMOUS BLASPHEMER/MUTANT FACTOR/ANAL NOSOROG/PRICHUDLIVIY ZARODISH -2005 Split CD / More Hate<BR><BR>за 300 рублей<BR><BR><B>Шесть альбомов группы FORGIVE ME NOT:</B><BR><BR>Tearfall (1998, Metal Agen, original press)<BR>Spaceapple (1998/2000, Metal Agen, original press)<BR>Swallow Songs (2002, CD-single, , Metal Agen)<BR>Perfect Innocence (2002, Союз)<BR>Behind (2003, mini-CD, Союз)<BR>Heavenside (2004, slipcase edition, Metal Agen/Союз)<BR><BR>за 1000 рублей<BR><BR>Цена на отдельные CD-позиции A.Nosorog & FMN - обсуждается, если кого-то заинтересует. Пишите на e-mail.<BR><BR>Полный список на продажу (журналы, книги, винил отеч.пр-ва, dvd и др) находится здесь - <A HREF="http://www.darkside.ru/forum/viewtopic.php?f=7&t=9714" TARGET="_blank">http://www.darkside.ru/forum/viewtopic.php?f=7&t=9714</A><BR>(Последние поступления - в конце топика)
-
 ### Новинки 2012
 
 Максим - LOGIN! 03.01.2012 09:48:

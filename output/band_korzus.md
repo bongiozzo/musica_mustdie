@@ -17,11 +17,6 @@
 
 ## Упоминания
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-888 02.05.2007 09:55:
-Продажа/обмен в Москве.<BR>Все предметы в отличном состоянии<BR><BR>CDs: <BR>Anaon-Les Rites de cromlech MCD (Drakkar prod., 1998)- 200<BR>Carbonized-Disharmonization (Foundation 2000, 1992)-500<BR>Castle-S/T (M.M.I. rec., 1993)- 500<BR>Malhavoc-Premeditated Murder (Devotion Records, 1992)-400<BR>Meshuggah-None, MCD (Nuclear Blast, 1994)-500<BR>Nordic Metal-A tribute to Euronimous (Necropolis, 1995)-700<BR>Paradise Lost-As I Die MCD (Music For Nations, 1992)- 500<BR>Xentrix-Dilute to taste MCD (Roadracer, 1991)-400 сост. -не идеальное<BR><BR>Vinyls:<BR>Ancient Rites-Dim Carcosa (Hammerheart, fold out, insert)-500<BR>Axe-Nemesis (Atco, 1983)-500<BR>Korzus-Pay for your lies (Devil Discos, insert, brazilian thrash)-500<BR>Led Zeppelin-II (Atlantic, 1972)-300<BR>Led Zeppelin-Physical graffiti, 2 LPs (windows, Swang Song, 1975)-400<BR>Napalm-Zero to black (Steamhammer, 1990, insert)-500<BR><BR><BR>DVD (in English)<BR>Night of the living dead (1968, Duane Jones)/The Terror (1963, J. Nicholson)<BR>On Disc Plaza, Canada<BR><BR>Интересуют 80-90 гг. на СД<BR><BR>Связь:   non-metal@inbox.ru<BR><BR>Спасибо.<BR>Игорь<BR>
-
 ### Митол 21го века. Воскресная школа.
 
 Dimas 19.10.2010 23:39:

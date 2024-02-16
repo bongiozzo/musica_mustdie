@@ -146,30 +146,10 @@ Seeteufel 05.05.2007 11:35:
 Seeteufel 09.07.2007 17:33:
 Steve Thorne, Kino, Blackfield.<BR><BR>Хотя знаю, щас кто-нибудь объявится и станет кричать, что это лажа.
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-TH 21.10.2007 15:28:
-Продаётся лицензия. Цена - 80 рублей, если не указано иное.<BR><BR>Bob Catley "Legends"<BR>Bob Catley "Middle Earth<BR>Enchant "Tug Of War"<BR>Gamma Ray "Majestic"<BR>Jorn "The Gathering"<BR>Katatonia "Viva Emptiness"<BR>Kino "Picture" (50 рублей)<BR>Kopecky "Sunset Gun"<BR>Magnum "Breath Of Life"<BR>Pain of salvation "Scarsick"<BR>Persuader "When Eden Burns"<BR>Savatage "Handful Of Rain" (50 рублей)<BR>Sieges Even "Steps"<BR>Sieges Even "A Sense Of Change"<BR><BR>При покупке всего списка оптом цена за каждый диск - 50 рублей.<BR><BR>связь: truehelgi@mail.ru
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-TH 22.10.2007 14:09:
-Обновлённый список. Цена - 80 рублей за диск, если не указано иное:<BR><BR>Bob Catley "Legends"<BR>Bob Catley "Middle Earth<BR>Enchant "Tug Of War"<BR>Jorn "The Gathering"<BR>Katatonia "Viva Emptiness"<BR>Kino "Picture" (50 рублей)<BR>Kopecky "Sunset Gun"<BR>Magnum "Breath Of Life"<BR>Pain Of Salvation "Scarsick"<BR>Paradise Lost "In Requiem" (100 рублей)<BR>Persuader "When Eden Burns"<BR>Savatage "Handful Of Rain" (50 рублей)<BR><BR><BR>связь: truehelgi@mail.ru
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-TH 02.11.2007 01:12:
-лицензия на продажу. Цена - 80 рублей за диск, если не указано иное:<BR><BR>Bob Catley "Legends"<BR>Bob Catley "Middle Earth<BR>Enchant "Tug Of War"<BR>Jorn "The Gathering"<BR>Katatonia "Viva Emptiness"<BR>Kino "Picture" (50 рублей)<BR>Kopecky "Sunset Gun"<BR>Magnum "Breath Of Life"<BR>Pain Of Salvation "Scarsick"<BR>Paradise Lost "In Requiem" (100 рублей)<BR>Persuader "When Eden Burns"<BR>Savatage "Handful Of Rain" (50 рублей)<BR><BR>связь: truehelgi@mail.ru
-
 ### Хорошее кино
 
 Hopolainen 08.03.2008 12:01:
 "Беспредел" (1989, СССР)<BR>"Петухи взбунтовались" (с)<BR><BR><A HREF="http://www.kino-teatr.ru/kino/art/a3/137/" TARGET="_blank">http://www.kino-teatr.ru/kino/art/a3/137/</A><BR><A HREF="http://www.intv.ru/view/?film_id=30407" TARGET="_blank">http://www.intv.ru/view/?film_id=30407</A>
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-TH 09.05.2008 12:48:
-Продаю в Москве:<BR><BR>ФИРМА:<BR><BR>Kreator "Cause For Conflict" (GUN) 200 р.<BR><BR>ЛИЦЕНЗИЯ по 100 рублей:<BR><BR>Pain Of Salvation "Scarsick" (Soyuz)<BR>Bob Catley "Legends" (CD-Maximum)<BR>Bob Catley "Middle Earth" (CD-Maximum)<BR>Magnum "Breath Of Life" (Soyuz)<BR>Katatonua "Viva Emptiness" (Soyuz)<BR>Jorn "The Gathering" (Irond)<BR>Kopecky "Sunset Gun" (Mals)<BR>Paradise Lost "In Requiem" (Mystic Empire)<BR>Alarum "Eventuality" (Soyuz)<BR>Persuader "When Eden Burns" (Soyuz)<BR><BR>ЛИЦЕНЗИЯ по 80 рублей:<BR><BR>Enchant "Tug OF War" (Soyuz)<BR>Kino "Picture" (Soyuz)<BR>Savatage "Handful Of Rain" (Soyuz)<BR><BR>Связь: truehelgi_пёс_mail.ru
 
 ### Manowar - Зеленый театр, 24.07.2009?
 

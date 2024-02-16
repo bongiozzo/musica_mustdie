@@ -736,16 +736,6 @@ LEXY DANCE 24.11.2008 23:54:
 colddarknord 26.11.2008 23:26:
 Aor / Revelance / Metal Militia Productions:(26.11.2008 23:02) 	  <BR><BR>&lt;&lt;&lt;Тема дичайше интересная, и потенциально очень продутивная. Спасибо автору за то, что ее поднял.<BR>Однако писать я тут щас ничего не буду - слищшком многов сего надоу честь и проанализировать. <BR>Так что я собираюсь посидеть, подумать, проанализировать ве мнения, еще пообщаться с профессионалами и написать статью на эту тему. Может быть, она будет кому-то полезно, и очень надеюсь, что она уляжется в дискуссию.&gt;&gt;&gt;<BR><BR>Бля, я наконец понял кого из литературных героев мне Аор напоминает - Васисуалия Лоханкина из Теленка. <BR><BR>"Сам Васисуалий никогда и нигде не служил. Служба помешала бы ему думать о значении русской интеллигенции, к  каковой социальной  прослойке  он  причислял  и себя. Таким образом, продолжительные думы Лоханкина сводились к приятной  и близкой теме: "Васисуалий Лоханкин и его значение", "Лоханкин и трагедия  русского  Либерализма", "Лоханки и его роль в русской революции". Обо  всем  этом  было  легко  и  покойно   думать, разгуливая   по   комнате в фетровых  сапожках,  купленных  на Варварины деньги, и поглядывая на  любимый  шкаф,  где  мерцали<BR>церковным  золотом  корешки брокгаузовского энциклопедического словаря."(с)<BR><BR>Ну в ноль прямо!
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Alexi_Wraith 23.02.2009 18:03:
-Продается на родных дисках с буклетами собрание сочинений Украинского LUCIFUGUM:<BR>LUCIFUGUM "Gates Of Nocticula" 1996 digi-CD (Oskorei)<BR>LUCIFUGUM "Instinct Prevelance" 1998 CD (Dark Horizon)<BR>LUCIFUGUM "На Крючья да в клочья" 2002 CD (какой-то буржуйский лейбл, не могу разобрать чего написано =)<BR>LUCIFUGUM "...А Колесо всё скрипит..." 2004 digi-CD (Oskorei)<BR>LUCIFUGUM "Клеймо Эгоизма" CD (Drakkar Prod.)<BR>LUCIFUGUM "Vector 33" 2005 CD (Propaganda)<BR><BR>Все диски слушались по 1 разу, без царапин, и вообще выглядят как новые. <BR>Каждый отдам по 110 рублей, либо все за 550 руб.<BR>Кому интересно, пишите либо сюда, либо alexiwrrr@yandex.ru Встречаться удобно в районе метро Савеловская либо Менделеевская.
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Alexi_Wraith 01.03.2009 23:29:
-Продается на родных дисках с буклетами собрание сочинений Украинского LUCIFUGUM:<BR>LUCIFUGUM "Gates Of Nocticula" 1996 digi-CD (Oskorei)<BR>LUCIFUGUM "Instinct Prevelance" 1998 CD (Dark Horizon)<BR>LUCIFUGUM "На Крючья да в клочья" 2002 CD (Oaken Shield)<BR>LUCIFUGUM "...А Колесо всё скрипит..." 2004 digi-CD (Oskorei)<BR>LUCIFUGUM "Клеймо Эгоизма" CD (Drakkar Prod.)<BR>LUCIFUGUM "Vector 33" 2005 CD (Propaganda)<BR><BR>Все диски слушались по 1 разу, без царапин, и вообще выглядят как новые. <BR>Каждый отдам по 110 рублей, либо все за 550 руб.<BR>Кому интересно, пишите либо сюда, либо alexiwrrr@yandex.ru Встречаться удобно в районе метро Савеловская либо Менделеевская.
-
 ### Свершилось! Ура!!!
 
 Vit Belov 25.03.2009 13:55:
@@ -760,16 +750,6 @@ State Oppression 29.03.2009 11:18:
 
 фрукт 29.03.2009 19:41:
 Aor / Revelance / Metal Militia Productions, чисто по-человечески, ты идьётас. Амбиции - это хорошо, но надо и меру знать 
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Non Serviam 01.09.2009 21:21:
-eskhaton@rambler.ru<BR><BR>Vinterland - Welcome My Last Chapter (No Fashion) 1st press, vg - melodic sympho-black, rarity<BR>Mithotyn	- King Of The Distant Forest (Hammerheart US) like new - viking black, rarity<BR><BR>Lucifugum - Stigma Egoism (Drakkar Productions)<BR>Lcifugum	- …And The Wheel Keeps Crunching… (D.U.K.E.)<BR>Lucifugum - On Hooks To Pieces! (Oaken Shield)<BR>Lucifugum - On The Sortilage Of Christianity (Chanteloup Creations)<BR>Lucifugum - Instinct Prevelance (Dark Horizon Records)<BR><BR>Dimmu Borgir - Stormblеst '96 (Irond) sold out!	200<BR>Dissection - Reinkaos (Irond) sold out!	200
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Max87 24.07.2010 22:03:
-КУПЛЮ ДОРОГО следующие CD:<BR><BR>LUCIFUGUM "Instinct Prevelance"<BR>LUCIFUGUM "На Крючья Да в Клочья!"<BR>LUCIFUGUM "...А Колесо все Скрипит"<BR>LUCIFUGUM "Назад к порубанным корням"<BR>LUCIFUGUM "Социопат - Философия Цинизма"<BR>LUCIFUGUM "Involtation"<BR>DUB BUK "Иду на Вы"<BR>STIGMATIC CHORUS "Autodafe"<BR>ЛЮТОМЫСЛ "Зима людства"<BR><BR><BR>Контакт: maxim-chum@mail.ru
 
 ### Перестал Маздай тусить... Эх!..
 

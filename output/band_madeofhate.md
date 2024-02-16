@@ -11,11 +11,6 @@
 
 ## Упоминания
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-НиколайНС 24.10.2010 21:14:
-niknetl (пес) rambler (точка) ru<BR><BR>AFM Records:<BR><BR>CIRCLE II CIRCLE - Consequence Of Power (limited digipack + 1 bonus)<BR>DESTRUCTION - D.E.V.O.L.U.T.I.O.N. – (fanbox)<BR>EISBRECHER - S&#252;nde (Winter edition limited fanbox)<BR>EISBRECHER - Eiszeit (tour edition box: 2CD + DVD) <BR>ELVENKING - Red Silent Tides – (2CD digipack)<BR>MADE OF HATE - Pathogen <BR>MASTERPLAN - Time To Be King (digipack)<BR>STAHLMANN - Stahlmann (digipack; for Fans of Rammstein, Eisbrecher)<BR>THEATRE OF TRAGEDY - Storm (digibook)<BR>THEATRE OF TRAGEDY - Forever Is The World – (limited touredition 2CD edition: 2009 digi + 2010 ep)<BR>
-
 ### SYMPHO BLACK 2001
 
 tich666 10.01.2015 19:42:

@@ -26,8 +26,3 @@ Einar 23.08.2001 00:09:
 Костолом 19.06.2005 02:24:
 Прошу заметить. Вот рядом Бельгия. Страна - тоже не ахти какая. Но великих групп произвела...прямо скажем, немало. Я вот только Cyclone могу вспомнить. Нидерланды - тема, конечно. Там есть очень крутые группёшники (мои любимые - the Gathering и Ayeron, ещё были Kayak, Callenish Circle, God Dethroned...), но их сложно назвать патриархальными в своём жанре...<BR>А вот Франция по размерам будет поболее Бенелюкса и Швейцарии, вместе взятых.. Но из тамошних групп можно вспомнить разве что Anorexia Nevrosa, Treponem Pal, Loudblast да No Return. И...? Это культовые, дико авторитетные коллективы? :-0 Вряд ли... <BR>То же касается Чехии, Италии, Дании... И т. д.<BR><BR>2 Гость: ты бы лучше, вместо того, чтобы напиваццо (кстати, чем?) No Return послушал - адская семсь Пантеры и Напалм Дэтх
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-bashmachok 06.04.2010 00:55:
-Продаются фирм.CD, в Москве.<BR>По вопросам приобретения пишите на e-mail - bloodcraving@yandex.ru<BR><BR>INTRICATE -1993 “[Va:l]” (<B>orig 1993 press</B>) / Century Media -300<BR>TREPONEM PAL -1993 “Excess & Overdrive” (<B>orig 1993 press</B>) / Roadrunner -300<BR>SKIN AREA -2002 “New Skin” / Cold Meat Industry (<B>digipack</B>) –450<BR>YCOSAHATERON -2007 “La Nuit” / Baphomet Records -300<BR><BR><DIV CLASS="quote">YCOSAHATERON is for those that enjoy kaos and lust and Noize Industrial Armageddon!<BR><BR>This sick release includes ATTIA CSIHAR from MAYHEM and KILLJOY from NECROPHAGIA!</DIV><BR><BR>Полный список здесь - <A HREF="http://www.darkside.ru/forum/viewtopic.php?f=7&t=9261" TARGET="_blank">http://www.darkside.ru/forum/viewtopic.php?f=7&t=9261</A>
-

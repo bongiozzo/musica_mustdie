@@ -11,11 +11,6 @@
 
 ## Упоминания
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Max87 04.09.2010 12:36:
-КУПЛЮ следующие CD:<BR><BR>ALKONOST "Between The Worlds"<BR>DEMONS OF GUILLOTINE (ex - The Demons) "Sweet Rosemary"<BR>DUB BUK "Иду на Вы"<BR>LUCIFUGUM "Назад к порубанным корням"<BR>NOKTURNAL MORTUM "Weltanschauung" (англ.версия "Мировоззрения")<BR>STIGMATIC CHORUS "Autodafe"<BR>ВЕЛИАР "Чёрный легион"<BR>ЛЮТОМЫСЛ "Вызов"<BR>ЛЮТОМЫСЛ "I(')mqui(nt)ess/cence"<BR>ЧУР "Брате вiтре"<BR><BR>Контакт: maxim-chum@mail.ru
-
 ### Beer Bear &quot;Мед&quot; дебютный альбом в продаже с 13 ноября!
 
 Lazar 02.12.2010 00:38:

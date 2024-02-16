@@ -21,23 +21,3 @@
 Seducer 26.08.2003 12:22:
 Спиногрыз, Хаммерфолл бы организован Оскаром Дроньяком (ex-Ceremonial oath, Crystal Age) и Йеспером Стрёмбладом из In Flames. При этом Стрёмблад из In Flames никуда не уходил. Сделал с Дроньяком Хаммерфолл и свалил, по-моему, даже до выхода первого альбома.<BR>А насчёт того, что группа стала портиться после смены состава - есть такое. После Whoracle ушли гитарист Гленн Льюнгтрём и басист Йохан Ларссон. Последний теперь хуй знает где, а вот с Льюнгстрёмом у Стрёмблада до сих пор есть пиздатейший сайд-проект Dimension Zero. Кстати, музыка этого коллектива показывает, что Стрёмблад ещё умеет писать пиздатую злую музыку, а в In Flames решил зарабатывать бабло на таких парнях, как наши приятели из группы Inexist. :)<BR>А In Flames стухать стал, подозреваю, оттого, что Бьорн Гелотты пересел после Whoracle с барабанов на гитару и стал активно участвовать в написании вещей.
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-LeathermaniaC 14.12.2014 12:48:
-Москва. Возможна отправка почтой.  constrid @ rambler . ru<BR><BR>CD Фирма:<BR>CEMETARY 1996 Sundown фирм CD Black Mark BMCD 70 Germany хорошее сост = 350<BR>BON JOVI 1986 Slippery When Wet JAPAN CD + OBI Universal 1986/2004 Как новый = 500<BR>DORO 1993 Angels Never Die фирм CD Germany, без IFPI, matrix 514309-2 (a)1, как новый = 350<BR>CHROMING ROSE 1992 Pressure фирм CD, JAPAN, + бонус Fire In Your Eyes , без IFPI! как новое =600<BR>TWISTED SISTER 1983 You Can’t Stop Rock n Roll CD запечатан + 3 BONUS, Armoury , Germany = 400<BR>THE ORIGINAL IRON MEN I 1995 фирм CD DiAnno + Stratton ASB CD 004, Mac/Scratch КАК НОВЫЙ = 900<BR>MARQUIS 1993  Alive in a Crystal Age фирм CD + OBI (ЯПОНИЯ) = 900 <BR>THE HEAT 1994 CD (Long Island 1994, 6 tracks, Germany, LIR 00006, без IFPI, КАК НОВЫЙ) = 300<BR>BLIND GUARDIAN 1992 Somewhere Far Beyond CD (matrix sonopress 263 066, без IFPI, 13 песен) = 200<BR><BR>ВИНИЛ:<BR><BR>ACCEPT 2012 Stalingrad YELLOW 2LP LTD TO 150 COPIES Metalizer Records SEALED, = 1300<BR>ACCEPT 2012 Stalingrad CLEAR VINYL 2LP LTD TO 250 COPIES. SEALED= 1300<BR>ACCEPT 2012 Stalingrad BLUE VINYL 2LP LTD TO 150 COPIES. SEALED = 1300<BR>ACCEPT 2012 Stalingrad BROWN VINYL 2LP LTD TO 150 COPIES. SEALED = 1300<BR>ACCEPT 2012 Stalingrad WHITE 2LP LTD TO 150 COPIES. UNPLAYED, HRR RECORDS, = 1600<BR>ACCEPT 1993 Objection overruled LP, VG+/EX, Holland, BMG Records 74321 12466 1 = 2700<BR>KING DIAMOND - Abigail II 2 LP SPLATTER LTD TO 200 COPIES. SEALED Metal Blade, = 1500<BR>RUNNING WILD 2011 The Final Jolly Roger LTD 2LP SEALED Cargo records, Germany 2011 SEALED = 950<BR>RUNNING WILD 2012 Shadowmaker MARBLED LP LTD TO 300 COPIES Steamhammer records SEALED = 950<BR>MOTORHEAD 2013 Aftershock AMBER MARBLED VINYL LTD TO 1000 COPIES, SEALED, = 6500<BR>MOTORHEAD 2010 The World Is Yours LP Sealed = 1300<BR>UNISONIC 2012 LP + CD Edel ЗАПЕЧАТАН = 1300<BR>W.A.S.P. "Wild Child In Warsaw" - 2 LP. Live In Poland LTD TO 99 copies = 6500<BR>DORO 2012 Raise Your Fist CLEAR VINYL LTD TO 250 COPIES SEALED. HANDNUMBERED = 1400<BR>TIAMAT 2012 The Scarred People CLEAR VINYL LTD TO 100 COPIES, SEALED = 1400<BR>
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-valentine7 25.02.2015 22:48:
-Hammerhawk - The Future Written In The Past RARE DUTCH METAL INDIE 1998 2000р<BR>ORACLE - AS DARKNESS REIGNS CD 1993 · MASSACRE MASS GERMAN CD 012 mint 1500р<BR>CRYSTAL AGE – FAR BEYOND DIVINE HORIZONS VIC RECORDS 1995(Swedish Death with Ceremonial Oath / Hammerfall members. Ultra rare!) offer или обмен<BR>Deliverance 1994 Learn INTENSE 1 PRESS! FLD9454 1000
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-valentine7 27.03.2015 19:41:
-BEYOND BELIEF - TOWARDS THE DIABOLICAL EXPERIMENT/ SHARK RECS 1 PRESS!1993 ORG RARE МИНТ ! 2700р<BR>CRYSTAL AGE - Far Beyond Divine Horizon cd (1st press Vic Records 1995) ниар минт 2500р<BR>BAPHOMET - THE DEAD SHALL INHERIT / RARE! 1992 1PRESS - PEACEVILLE RECS VILE 31CD EX+NM 2500r<BR>Psychotic Waltz - Bleeding RARE METAL / BULLET PROOF RECORDS 1996 ORG EХ 1300<BR>MERCYLESS - ABJECT OFFERINGS / RESTLESS-VINYL SOLUTION 1992 1800<BR>
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-valentine7 08.04.2015 10:14:
-Crystal age "Far Beyond Divine Horizons" 1995 RARE! VIC rec! NM 2300r(members from Ceremonial Oath, Hammerfall, Dimension Zero)<BR>The Crucified - The Pillars Of Humanity / OCEAN RECORDS 1991 RARE mint 1900r
-

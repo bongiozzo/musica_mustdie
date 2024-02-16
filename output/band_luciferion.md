@@ -232,11 +232,6 @@ VM 09.11.2005 23:54:
 Frithz 12.02.2007 05:35:
 первый Sheitan нах =)<BR>Luciferion, Deicide, Scanner и еще куча всего... заипузь вспоминать
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-VM 20.04.2008 20:40:
-Death metal/grindcore/etc.<BR>ABSCESS Thirst For Blood, Hunger For Flesh<BR>ALARUM Eventuality<BR>ANAL BLEEDING Two Cocks In The Same Hole<BR>BEYOND FATAL Sanctuary In Misery<BR>BLOODY GORE Stench Of Your Perversions<BR>BRAZILIANASSAULTCompilation<BR>BURNING INSIDE The Eve Of The Entities<BR>CAEDERE Mass Emission<BR>CARNAL True Blasphemy<BR>CARPHARNAUM Fractured<BR>CEMETERY (Indonesia) Detriment Image<BR>CIRCLE OF DEAD CHILDREN Zero Comfort Margin<BR>COFFIN TEXTS Gods Of Creation, Death & Afterlife<BR>DEADEN Feast On The Flesh Of The Dead<BR>DECEPTION Permanent Torment<BR>DEEPRED Prophetic Luster<BR>DEGRADE Hanged And Disemboweled<BR>DEICIDE Amon… Feasting The Beast<BR>DEPRAVITY Silence Of The Centuries EP<BR>DESPONDENCY God On Acid<BR>DEVOURMENT Molesting The Decapitated<BR>DISCIPLES OF MOCKERY Prelude To Apocalypse<BR>DISGORGE (Mex.) Chronic Corpora Infest<BR>DISLIMB Bleeding Anxiety<BR>DISLIMB/DYSCRASIA split CD<BR>DIVINE EMPIRE Redemption<BR>ENTER SELF Awaken In Agony<BR>ETERNAL RUIN/LEUKKORHEA split CD<BR>EULOGY The Essence EP<BR>EXMORTEM Berzerker Campaign<BR>EXMORTEM Dejected In Obscurity<BR>FATE Odyssey<BR>FLESHART Art Brut EP<BR>FLESHART/HARMONY DIES Derangement... (split CD)<BR>FLESHFEAST Fleshfeast<BR>FLESHGORE Killing Absorbtion<BR>FLESHGRIND Live In Germany EP<BR>FLESHGRIND Murder Without End<BR>FORNICATION Descendants Of The Degenerated Race<BR>GOMORRHA Sexual Perversity By Autopsy<BR>GORATORY/VOMIT REMNANTS/WORMED split 3 CD (tour edition)<BR>GOREFUCK Lust For Torture<BR>GORGUTS …And Then Comes Lividity (Demo Anthology)<BR>HORNED GOD Absit<BR>HORNED GOD Chaos, Bringer Of All Revelations<BR>HUMAN MINCER Embryonized<BR>HUMAN MINCER Devoured Flesh<BR>IMPURE In Disrespect To Mankind<BR>IMPURE (Spain) Corpses... Intense Stench<BR>INCINERATE Dissecting The Angels<BR>INFAMY The Blood Shall Flow<BR>INFECTED MALIGNITY The Malignity Born From Despair<BR>INSIDIOUS DECREPANCY The Innerancy Of Profanation<BR>INSIDIOUS DECREPANCY Decadent Orgy Of Atrocious Suffering<BR>INSISION The Dead Live On EP<BR>INVERACITY Circle Of Perversion<BR>KRETAN Christian Corpse Mutilation EP<BR>LEVAL BLESSING Leval Blessing<BR>LUCIFERION Demonication (The Manifest)<BR>MALIGNANCY Motivated By Hunger EP<BR>MASSMURDER Slaughtered For Snuff<BR>MOLESTED SENSES No Friends Here<BR>MORTAL DECAY Forensic<BR>MORTAL DECAY Cadaver Art<BR>MYOPIA Dancing On Landmines<BR>NILE In The Beginning<BR>NOMENMORTIS How I Learn To Bleed… For The Things I Wish…<BR>NOMENMORTIS The Day You've Lose Your Head<BR>OZ LIVE - Disgorge (Mex), Dies Irae, Shamash, Buried Dreams<BR>PARRICIDE Crude<BR>PARRICIDE Illtreat<BR>PERVERSITY In The Garment Of Lust<BR>PHANTASMA Jahve<BR>POLISH ASSAULT Compilation<BR>PREJUDICE Broken Promises<BR>PROFANITY Slaughtering Thoughts<BR>PURGATORY Blessed With Flames Of Hate<BR>PUSTULATED Pathognomonic Purulency EP<BR>PUSTULATED Haematoma<BR>PYREXIA Cruelty Beyond Submission<BR>R
-
 ### Х**** какая-то...
 
 Frithz 16.11.2009 18:11:
@@ -252,11 +247,6 @@ Luciferion - Demonication<BR>Sheitan - Travelling Throught the Ancient Times<BR>
 tich666 14.12.2011 09:11:
 Самые, на мой взгляд, Идеальные. Идеальней некуда-<BR><BR>At The Gates'95 "Slaughter Of The Soul"<BR>Vader'95 "De Profundis"<BR>Luciferion'95 "Demonication (The Manifest)"<BR>Kalmah'00 "Swamplord"<BR><BR>это те, что вспомнились и чаще всего прослушиваются.
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-stepa 17.03.2012 21:38:
-Польский отборный black, все новые: писать soundage@mail.ru<BR>Furia	- Grudzien za grudniem (black) -250<BR>North	- Na Polach bitew (pagan metal) -250<BR>Stillborn -	Manifesto de Blasfemia (death black) -250<BR>Strandhogg	- Ritualistic plague… (black metal) -250<BR>Throneum	- Deathcult conspiracy (death black) -250<BR>Tribute to KAT -15 bands paying homage to the legendary KAT - godfathers of Back/Thrash Metal music in Poland (formed in 1981). Covers are performed by such well known bands like VADER, BEHEMOTH, LUX OCCULTA, LUCIFERION (with Snowy Show of ex-KING DIAMOND/MERCYFUL FATE on backing vocals), DAMNATION and others! digi-pack 350
-
 ### САМЫЙ ТУПОЙ ТОПИК!!! Каверы, которые лучше оригиналов.
 
 tich666 30.08.2012 23:49:
@@ -266,9 +256,4 @@ Luciferion "Fight Fire With Fire"<BR>Xe-None "Вечером на лавочке
 
 tich666 02.02.2014 21:18:
 Определился пока с этим-<BR>1. Judas Priest "Painkiller"<BR>2. Running Wild "Port Royal"<BR>3. Morbid Angel "Blessed Are The Sick"<BR>4. Entombed "Clandestine"<BR>5. Carcass "Necroticism...."<BR><BR>далее идут<BR><BR>6. Luciferion " Demonication. The Manifest"<BR>7. UDO "Timebomb"<BR>8. Summoning "Dol Guldur"<BR>9. Аркона "Лепта"<BR>10. Ария "Герой асфальта"<BR>
-
-### Продаётся и покупается некоторое количество говнЯшков.
-
-Soulside 21.04.2016 21:01:
-Ищу CD or LP<BR>temple of absurd - 95 absurd<BR>Luciferion - 95 Demonication<BR>Asphix - 2012 Deathhammer<BR>Accept - 89 Eat The Heat<BR>Ahumado Granujo - Splatter Tekk<BR>Altar - 94 Youth Against Christ<BR>Cynic - Focus<BR>Defaced Creation - 99 Serenity In Chaos<BR>Mortification - 96 <BR>Overkill - 91<BR>Coroner - 91 Mental Vortex<BR>Celtic Frost - 90 Vanity Nemesis<BR>Satyricon - 2006 Now Diabolical<BR>Europe - 89<BR>Azag Thoth - 96 Reign Supreme<BR>Crown Of thorns 95 The Burning<BR>Dementor - 99 The art...<BR>почта: demonofthefall[собако]list.ru
 

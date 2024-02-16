@@ -45,11 +45,6 @@ Dr. Feelgood 20.03.2005 23:41:
 Дофф 21.03.2005 00:15:
 Vsevolod:21.03.2005 00:10<BR>  Кому интересно - сет-лист сегодняшнего выступления Europe в Государственном Кремлевском дворце (общее время концерта - 1 час 50 мин.):<BR><BR>- Got To Have Faith (2004)<BR>- Ready Or Not (1988)<BR>- Superstitious (1988)<BR>- America (2004)<BR>- Wings Of Tomorrow (1984)<BR>- Let The Good Times Rock (1988)<BR>- Hero (2004)<BR>- Wake Up Call (2004)<BR>- Keyboards Solo / Sign Of The Times (1988)<BR>[Joey Tempest introduces the band]<BR>- Aphasia (1984) / Girl From Lebanon (1991)<BR>- Start From The Dark (2004)<BR>- Carrie (Acoustic - Joey Tempest solo)* (1986)<BR>- Flames (2004)<BR>- Yesterday's News (1991)<BR>- Rock Tonight (1986)<BR><BR>Encore:<BR>- Seven Door Hotel (1983)<BR>- Cherokee (1986)<BR>- The Final Countdown (1986)<BR><BR>JOEY TEMPEST - lead vocals, rhythm guitar, acoustic guitar*<BR>JOHN NORUM - lead guitar, vocals<BR>MIC MICHAELLI - keyboards, vocals<BR>JOHN LEVEN - bass guitar<BR>IAN HAUGLAND - drums, vocals<BR> <BR>
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-bashmachok 01.03.2008 12:45:
-Немножко новых позиций, в распродажу:<BR> <BR>Bowes & Morley 2002 “Moving Swiffly Along” (melodic rock, Eagle) – 200  <BR>Britney Fox 2003 “Springhead Motorshark” (glam metal, Spitfire) – 180 <BR>Devin Townsend 1998 “Ocean Machine – Biomech” (USG) – 220<BR>Gorefest 2005 “ La Muerte” (cd + DVD, Nuclear Blast) – 250<BR>Joe Satriani, Eric Johnson, Steve Vai 1997 “G3 – Live in Concert” (Sony) – 200 <BR>Joey Tempest 1997 “ Azalea Place” (Polydor) – 180 <BR>Rage 2003 “Soundchaser” (digipack, SPV) – 230<BR>Ratt 1985 “Invasion of Your Privacy” (Atlantic) – 200 <BR>Rolf Munkes 2005 “No More Obscurity” (Lion) – 180  <BR>Vigilance 1996 “Behind the Mask” (prog metal, WMMS) – 200  <BR><BR>Подробности (как и где забирать + полный список дисков) смотрим здесь - <BR><BR><A HREF="http://www.metalland.net/cgi-bin/board/topic.cgi?forum=13&topic=1029" TARGET="_blank">http://www.metalland.net/cgi-bin/board/topic.cgi?forum=13&topic=1029</A><BR>
-
 ### 1 DVD и 299 CD на продажу
 
 Vsevolod 19.05.2008 14:43:

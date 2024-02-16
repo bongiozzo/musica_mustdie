@@ -98,11 +98,6 @@ Ed the Hunter-2 04.05.2011 17:59:
 Психастеноподобный истерошизоид 05.05.2011 14:53:
 tich 666, когда это Влад играл в натиске?<BR>Там видимо какой-то другой Влад. Этот был в Lady Prowler, Santa Maria и всей Лазаревской тусовкой, да. А сейчас полсостава (даже более - 3/5) Санта Марии, включая Влада, когда у него свободное от Арконы время, играет в стиле рока 60-х с женским вокалом на 4 языках.<BR>Санта Мария и Натиск связаны только последним вокалистом, который был также в Ретриеме. 
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-OldWise 04.08.2011 00:37:
-виниловые пластинки<BR><BR>LADY PROWLER (EP)<BR>MAD FORCE - Mix-Up (EP)<BR>NEKROK.I.L.L.DOZER - Misunderstood... (1993,EP, Final Holocaust)<BR>CORPSE (EP, Final Holocaust)<BR>КЛИНИКА - ПТУ-Metal-Rock (1990, ЕР, Мелодия)<BR>СТЕЛЛА (1990, ЕР, Мелодия)<BR>СПРУТ (1990, ЕР, Мелодия)<BR>РОК-АТЕЛЬЕ И ОЛЬГА КОРМУХИНА (1988, ЕР, Мелодия)<BR>АЛЕКСАНДР НЕВСКИЙ (1990, ЕР, Мелодия)<BR>ГАЛАКТИКА (1988, ЕР, Мелодия)<BR>ГРАН-ПРИ (1989, ЕР, Мелодия)<BR>СТАЙЕР (1989, ЕР, Мелодия)<BR><BR>Также в поиске некоторые оригинальные диски венгерских групп:<BR><BR><B>POKOLGEP</B><BR><BR>“Adj Uj Erot” (1991, Quint)<BR>“Vedd el,ami jar!” (1992, Sindex)<BR>“Az utolso merenylet” (1995, Sony/Columbia)<BR>“The Best Of Regi Gep” (1995, Hungaroton)<BR>“Ancient Fever” (2001, Nephilim)<BR>“Live” (2CD, 2001, Nephilim)<BR><BR><B>OSSIAN</B><BR><BR>“Kitores” (1992, Hungaroton)<BR>“KOncert” (1998, Hammer Records, буклет-раскладушка на 4 страницы)<BR>“Gyujtopontban” (2000, Hammer Records, digipack, slipcase)<BR>“Arnyekbol a fenybe” (2002, Hammer Records, slipcase)<BR><BR><B>OMEN</B><BR><BR>“Idegen anyag” (1997)<BR>“Tiszta szivvel” (2003)<BR>“A hetedik nap” (2006, Hammer Records)<BR>“Agymosas” (2006, Hammer Records)<BR><BR><B>EDDA MUVEK</B><BR><BR>“1.” (1980)<BR>“2.” (1981)<BR> “Viszlat!” (1984)<BR>“5. Koncert” (1985)<BR>“6.” (1986)<BR>“Valtozo idok” (1987)<BR>“Szaga van” (1988)<BR>“The Best Of Edda ’80-‘90” (1991)<BR>“13. Szellemvilag” (1992)<BR>“Az EDDA ket arca” (2CD, 1992)<BR>“Hazatersz” (MCDpromo, 1995)<BR>“Karaoke Edda” (1995)<BR>“20.” (1997)<BR>“A legjobbak 1988-1998” (1998)<BR>“Nekem nem kell mas” (1999)<BR>“A szerelem hullamhosszan” (2006, Pataky Management)<BR>“Atok es aldas” (2009, Pataky Management)
-
 ### ВИНИЛ - хочу всё знать
 
 skull124 29.01.2012 20:35:

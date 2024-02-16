@@ -41,8 +41,3 @@ In the wake of the bizarre and tragic shooting that claimed the life of Pantera/
 Shell 31.08.2006 17:56:
 Понравилось. Есть отголоски Aegis в виде Fade и Senseless, в остальном, на мой взгляд, стилистика и структура песени выдержана в духе Musique. Тока без электроники. Мне лично весь альбом понравился, не знаю почему многим как раз наоборот.
 
-### Продаётся и покупается некоторое количество говнЯшков.
-
-888 23.10.2007 11:24:
-Продажа/обмен в Москве.<BR>НЕ СЛИВ!!!<BR>Новое:<BR>CD:<BR>Opeth-Orchid (Candlelight)<BR>Opeth-My arms, your hearse (Candlelight, 2000)<BR>Opeth-Blackwater park (Koch, 2001)<BR>Opeth-Ghost reveries (Roadrunner, 2005)<BR>Opeth-Damnation (Koch, 2003)<BR>Opeth-Deliverance (Koch, 2002)<BR><BR>Винилы:<BR>Deathcore-Spontaneous underground (Nuclear Blast, 1990)<BR>Indestroy-Senseless theories (New Renaissance, 1989)<BR>Sinister-Putrefying remains, 7`` (Witchhunt records)<BR>Triumph-Thunder seven (MCA, 1984, inlet)<BR><BR><BR>Былое:<BR>CD: <BR>Anaon-Les Rites de cromlech MCD (Drakkar prod., 1998)<BR>Meshuggah-None, MCD (Nuclear Blast, 1994)<BR>Nordic Metal-A tribute to Euronimous (Necropolis, 1995)<BR><BR>Винилы:<BR>DIMMU BORGIR- Inn I Evighetens Morke 7" HAT RECORDS 1994(<BR>Led Zeppelin-II (Atlantic, 1972)<BR>Led Zeppelin-Physical graffiti, 2 LPs (windows, Swang Song, 1975)<BR>Ozzy-Blizzard of Ozz (Jet, 1980)<BR><BR><BR>Интересуют 80-90 гг. на СД<BR><BR>Связь:   non-metal@inbox.ru<BR><BR>Спасибо.<BR>Игорь<BR>
-
