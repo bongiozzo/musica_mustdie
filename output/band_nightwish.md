@@ -1,39 +1,531 @@
 # Nightwish
 
-Дискография
-"Angels Fall First" 1997, Power Metal
-"The Carpenter (single)" 1997, Power Metal
-"Oceanborn" 1998, Metal
-"Sacrament of Wilderness (single)" 1998, Metal
-"Sleeping Sun (single)" 1999, Metal
-"Walking in the Air (single)" 1999, Metal
-"Wishmaster" 2000, Power Metal
-"Deep Silent Complete (single)" 2000, Power Metal
-"Wishmastour" 2000, Power Metal
-"From Wishes to Eternity - Live (video)" 2001, Power Metal
-"Over the Hills and Far Away" 2001, Power Metal
-"Century Child" 2002, Power Metal
-"Bless the Child (single)" 2002, Power Metal
-"Ever Dream (single)" 2002, Power Metal
-"The Kinslayer (single)" 2003, Power Metal
-"Once" 2004, Power Metal
-"Nemo (single)" 2004, Power Metal
-"Tales from the Elvenpath" 2004, Power Metal
-"Wish I Had An Angel (single)" 2004, Metal
-"Kuolema tekee taiteilijan" 2004, Power Metal
-"The Siren (single)" 2005, Metal
-"Eva (single)" 2007, Power Metal
-"Amaranth (single)" 2007, Gothic
-"Dark Passion Play" 2007, Gothic
-"Erдmaan Viimeinen (single)" 2007, Gothic
-"Bye Bye Beautiful (single)" 2008, Gothic
-"The Islander (single)" 2008, Gothic
-"The Sound Of Nightwish Reborn (compilation)" 2008, Gothic
-"Made In Hong Kong (And In Various Other Places) [CD/DVD]" 2009, Gothic
-"Storytime (single)" 2011, Gothic
-"Imaginaerum" 2011, Gothic
-"Elan (single)" 2015, Gothic
-"Endless Forms Most Beautiful" 2015, Gothic
+finnish power metal with classical female vocal
+
+## Дискография
+
+### "Angels Fall First" 1997, Power Metal
+
+1. Elvenpath - 4.38
+2. Beauty and The Beast - 6.22
+3. The Carpenter - 5.56
+4. Astral Romance - 5.11
+5. Angels Fall First - 5.34
+6. Tutankhamen - 5.30
+7. Nymphomaniac Fantasia - 4.45
+8. Know Why the Nightingale Sings? - 4.13
+9. Lappi (Lapland)
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;I. Er&auml;maaj&auml;rvi - 2.15
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;II. Witchdrums - 1.19
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;III. This Moment Is Eternity - 3.12
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;IV. Eti&auml;inen - 2.34
+
+
+Emppu - electric-, acoustic, and bassguitars
+Jukka - drums and percussions
+Tuomas - synths, vocals
+Tarja - vocals
+
+Recorded, engineered and mixed by Tero Kinnunen at Kitee Huvikeskus studio.
+Songs 3, 4, 5, 7, 9 April-May '97 & 1, 2, 6, 8 September '97
+Mastered at Finnvox Studios by Mika Jussila.
+Produced by Tuomas & Nightwish
+
+All music by Nightwish
+Lyrics by Tuomas
+Arrangements by Nightwish
+
+Backing vocals by Nightwish
+Flutes perfomed by Mr. Esa Lehtinen
+
+Band photo by Toni H&auml;rk&ouml;nen
+Cover photo by Garry Black
+
+
+Contact adress:
+
+Nightwish
+Tuomas Holopainen
+Potoskavaarantie 46
+82500 KITEE
+FINLAND
+
+&copy; 1997 Ranka Publishing/Spinefarm Songs
+
+### "The Carpenter (single)" 1997, Power Metal
+
+The Carpenter
+Children of Bodom - Red Light In My Eyes, Part 2
+Thy Serpent - Only Dust Moves
+
+### "Oceanborn" 1998, Metal
+
+<ol>
+<li>Stargazers - 4'28
+<li>Gethsemane - 5'22
+<li>Devil & the Deep Dark Ocean - 4'46
+<li>Sacrament of Wilderness - 4'12
+<li>Passion and the Opera - 4'50
+<li>Swanheart - 4'44
+<li>Moondance - 3'31
+<li>The Riddler - 5'15
+<li>The Pharaoh Sails to Orion - 6'26
+<li>Walking in the Air - 5'30 (Faber Music Ltd./EMI Music Publ. Scand.)
+<li>Sleeping Sun - 4'04
+</ol>
+
+Tarja - Vocals
+Emppu - Guitars
+Sami - Bass
+Jukka - Drums & Percussion
+Tuomas - Synthesizers & Piano
+
+All music & lyrics by Tuomas except #4 music by Emppu/Tuomas & #10 lyrics & music by Howard Blake.
+Arrangements (except #10) by Nightwish & Tero Kinnunen.
+
+Nightguests: Esa Lehtinen - Flute, Plamen Dimov - Violin, Kaisli J. Kaivola - Violin, Markku Palola - Viola, Erkki Hirvikangas - Cello, Wilska - "Devilvoice" & "Pharaohvoice".
+
+Recorded at Caverock Studio by Tero Kinnunen in August-October '98.
+Mixed at Finnvox Studios by Mika Jussila.
+Artwork by Maria Sandell.
+
+<small>&copy; 1998 Ranka Publishing/Spinefarm Songs except #10 &copy; Faber Music Ltd./EMI Music Publ. Scand.
+&copy; 1999 Drakkar</small>
+
+### "Sacrament of Wilderness (single)" 1998, Metal
+
+Sacrament of Wilderness
+Eternal Tears of Sorrow - Buring Flames Embrace
+Darkwoods My Betrothed - The Crow and the Warrior
+
+### "Sleeping Sun (single)" 1999, Metal
+
+1. Sleeping Sun
+2. Walking In The Air
+3. Swanheart
+4. Angles Fall First
+
+Produced by Nightwish, except #4 produced by Tuomas Holopainen & Nightwish
+
+(p) 1999 Drakkar RecordsNightquest
+
+### "Walking in the Air (single)" 1999, Metal
+
+Walking in the Air
+Nightquest
+Tutankhamen
+
+### "Wishmaster" 2000, Power Metal
+
+1. She Is My Sin - 4'46
+2. The Kinslayer - 3'59
+3. Come Cover Me - 4'34
+4. Wanderlust - 4'50
+5. Two for Tragedy - 3'51
+6. Wishmaster - 4'23
+7. Bare Grace Misery - 3'39
+8. Crownless - 4'26
+9. Deep Silent Complete - 3'57
+10. Dead Boy's Poem - 6'47
+11. FantasMic - 8'18
+12. Sleepwalker - 2'55 (CD Bonus)
+
+
+Tarja Turunen: Vocals
+Tuomas Holopainen: Synthesizers
+Jukka Nevalainen: Drums & Percussions
+Emppu Vuorinen: Guitars
+Sami V&auml;nsk&auml;: Bass
+
+Produced by Nightwish & Tero Kinnunen
+All music by T. Holopainen
+except # 3, 7 & 8 by T. Holopainen / E. Vuorinen
+All lyrics by T. Holopainen
+Arrangements by Nightwish & Tero Kinnunen
+
+Flute by Esa Lehtinen
+Dead Boy's Voice by Sam Hardwick
+Kinslayer Voice by Ike Vil
+(Appears courtesy of Necropolis Records)
+
+Ville Laaksonen (tenor)
+Matias Kaila (tenor)
+Kimmo Kallio (baritone)
+Riku Salminen (bass)
+Anssi Honkanen (bass)
+Choir arrangements by V. Laaksonen
+
+Recorded & Engineered by
+Tero Kinnunen at Caverock Studios and
+Mikko Karmila at Finnvox Studios
+January-March 2000
+Mixed by Mikko Karmila at Finnvox April 2000
+Mastered by Mika Jussila at Finnvox
+
+Cover artwork by Markus Mayer
+Inlay artwork by Maria Sandell
+Band photography by Toni H&auml;rk&ouml;nen
+
+www.nightwish.com
+
+Published by Ranka Publishing
+
+### "Deep Silent Complete (single)" 2000, Power Metal
+
+Deep Silent Complete
+Sleepwalker (previously unreleased version)
+
+### "Wishmastour" 2000, Power Metal
+
+1. Wishmaster 
+2. Sleepwalker (heavy version) 
+3. Passion and the opera (edit version) 
+4. Nightquest 
+5. A return to the sea 
+6. Once upon a troubadour 
+7. Sleeping sun (cd-rom videoclip) 
+8. Sacrament of Wilderness (cd-rom live bonus)
+
+### "From Wishes to Eternity - Live (video)" 2001, Power Metal
+
+The Kinslayer 
+She Is My Sin 
+Deep Silent Complete 
+The Pharaoh Sails to Orion 
+Come Cover Me 
+Wanderlust 
+Instrumental (Crimson Tide/Deep Blue Sea) 
+Swanheart 
+Elvenpath 
+FantasMic part 3 
+Dead Boy's Poem 
+Sacrament of Wilderness 
+Walking in The Air 
+Beauty & The Beast 
+Wishmaster
+
+### "Over the Hills and Far Away" 2001, Power Metal
+
+Over The Hills & Far Away (5:03)
+10th Man Down (5:20)
+Away (4:32)
+Astral Romance (5:18)
+The Kinslayer (4:12)
+She Is My Sin (4:45)
+Sacrament Of Wilderness (5:01)
+Walking In The Air (5:11)
+Beaty and The Beast (6:40)
+Wishmaster (5:03)
+
+### "Century Child" 2002, Power Metal
+
+01. Bless The Child (6:11) 
+02. End Of All Hope (3:51) 
+03. Dead To The World (4:19) 
+04. Ever Dream (4:42) 
+05. Slaying The Dreamer (4:31) 
+06. Forever Yours (3:50)
+07. Ocean Soul (4:11) 
+08. Feel For You (3:51) 
+09. The Phantom Of The Opera (4:07) 
+10. Beauty Of The Beast (10:44)
+      - Long Lost Love
+      - One More Night To Live
+      - Christabel
+
+### "Bless the Child (single)" 2002, Power Metal
+
+Mini CD 8 Titres (Spinefarm Records)
+01 - Bless The Child
+02 - The Wayfarer  
+03 - Come Cover Me (live) 
+04 - Dead Boy's Poem (live) 
+05 - Once Upon A Troubador 
+06 - A Return To The Sea
+07 - Sleepwalker 
+08 - Nightquest
+
+Maxi CD 3 Titres (Spinefarm Records)
+01 - Bless The Child (edit)
+02 - Bless The Child (album) 
+03 - Lagoon
+
+Maxi CD 3 Titres (Drakkar Records)
+01 - Bless The Child (edit)
+02 - Lagoon 
+03 - The Wayfarer
+
+CD/DVD (Drakkar Records)
+FACE CD:
+01 - Bless The Child (edit)
+02 - Lagoon 
+03 - The Wayfarer
+FACE DVD:
+01 - Over The Hills... (clip)
+02 - Bless The Child (clip)
+03 - Interview
+04 - Promo Trailer
+
+Maxi CD 4 Titres (Spinefarm Records)
+01 - Bless The Child
+02 - The Wayfarer 
+03 - Sleepwalker
+04 - Nightquest
+
+Maxi CD-CDROM (Spinefarm Records)
+01 - Bless The Child
+02 - Once Upon A Troubadour 
+03 - A Return To The Sea
+04 - Come Cover Me (live)
+05 - clip video
+
+CD-CDROM (XIIIBis Records)
+01 - Bless The Child (edit)
+02 - Bless The Child (original)
+03 - Lagoon 
+04 - The Wayfarer
+05 - Bless The Child (clip)
+02 - Over The Hills... (clip)
+
+Vinyle 7" (Spinefarm Records)
+01 - Bless The Child
+02 - Lagoon
+
+### "Ever Dream (single)" 2002, Power Metal
+
+1. Ever Dream 
+2. The Phantom Of The Opera 
+3. The Wayfarer
+
+### "The Kinslayer (single)" 2003, Power Metal
+
+1. The Kinslayer
+
+### "Once" 2004, Power Metal
+
+01. Dark Chest Of Wonders
+02. Wish I Had An Angel
+03. Nemo
+04. Planet Hell
+05. Creek Mary's Blood
+06. The Siren
+07. Dead Gardens
+08. Romanticide
+09. Ghost Love Score
+10. Kuolema Tekee Taiteilijan
+11. Higher Than Hope
+
+The following bonus tracks will be published as single b-sides:
+
+01. White Night Fantasy
+02. Live To Tell The Tale
+03. Where Were You Last Night (ANKIE BAGGER cover)
+
+### "Nemo (single)" 2004, Power Metal
+
+1. Nemo 
+2. Planet Hell 
+3. White Night Fantasy 
+4. Nemo (Orchestral version) 
+5. (Video: studio footage)
+
+### "Tales from the Elvenpath" 2004, Power Metal
+
+1.  Wishmaster
+2.  Sacrament Of Wilderness
+3.  End Of All Hope
+4.  Bless The Child
+5.  Sleeping Sun
+6.  She Is My Sin
+7.  Walking In The Air
+8.  Stargazers
+9.  Over The Hills And Far Away
+10.  The Kinslayer
+11.  Dead Boy's Poem
+12.  Sleepwalker
+13.  Nightquest
+14.  Lagoon
+15.  Wayfarer
+
+### "Wish I Had An Angel (single)" 2004, Metal
+
+1. Wish I Had An Angel (Album version) 
+2. Ghost Love Score (Instrumental score) 
+3. Where Were You Last Night 
+4. Wish I Had An Angel (Demo version)
+
+### "Kuolema tekee taiteilijan" 2004, Power Metal
+
+1. Kuolema tekee taiteilijan 03:41
+2. Creek Mary's Blood (instrumental orchestral version) 07:19  
+3. Symphony of Destruction (Megadeth-cover-live) 04:19
+
+### "The Siren (single)" 2005, Metal
+
+1. 'The Siren' – edited version 3:46 Min. 
+2. 'The Siren' – album version 4:45 Min. 
+3. 'The Siren' – live version 4:47 Min. 
+4. 'Symphony Of Destruction' – live version of MEGADETH classic 4:19 Min. 
+5. ' Kuolema Tekee Taiteilijan' – live version 3:52 Min
+
+Line-up
+- Tarja Turunen / lead vocals 
+- Marco Hietala / bass, backing vocals 
+- Tuomas Holopainen / keyboards 
+- Jukka Nevalainen / drums 
+- Emppu Vuorinen / guitars
+
+### "Eva (single)" 2007, Power Metal
+
+1. Eva (4:24)
+
+### "Amaranth (single)" 2007, Gothic
+
+1. Amaranth
+2. Reach (Amaranth Demo Version)
+3. Eva (Orchestral Version)
+4. While Your Lips Are Still Red (Theme from 'Lieksa!' film)
+
+### "Dark Passion Play" 2007, Gothic
+
+1. The Poet And The Pendulum 
+2. Bye Bye Beautiful 
+3. Amaranth 
+4. Cadence Of Her Last Breath 
+5. Master Passion Greed 
+6. Eva 
+7. Sahara 
+8. Whoever Brings The Night 
+9. For The Heart I Once Had 
+10. The Islander 
+11. Last Of The Wilds 
+12. 7 Days To The Wolves 
+13. Meadows Of Heaven
+
+### "Erдmaan Viimeinen (single)" 2007, Gothic
+
+1. Erдmaan Viimeinen 05:10
+2. Erдmaan Viimeinen (Instrumental Version) 05:40 
+
+Line-up:
+
+Anette Olzon Blyckert - Vocals
+Tuomas Holopainen - Keyboards
+Erno ''Emppu'' Vuorinen - Guitars
+Marco Hietala - Bass, Vocals
+Jukka "Julius" Nevalainen - Drums
+
+'Erдmaan Viimeinen' is 'Last of the Wilds' from the "Dark Passion Play" album
+with Finnish lyrics sung by Jonsu (Johanna Salomaa), the singer of Finnish rock
+band Indica.
+
+The instrumental version of 'Erдmaan Viimeinen' is almost identical to the
+original song, 'Last of the Wilds', because that song originally is an
+instrumental. The biggest difference however, are the 'stormy samples' you can
+hear at the very beginning of 'Last of the Wilds', they are absent in the
+instrumental version of 'Erдmaan Viimeinen'. 
+
+### "Bye Bye Beautiful (single)" 2008, Gothic
+
+1. Bye Bye Beautiful 04:14
+2. The Poet and the Pendulum (Demo Version) 13:41
+3. The Escapist 04:59
+4. Bye Bye Beautiful (DJ Orkidea remix) 12:07 
+
+Line-up:
+
+Anette Olzon Blyckert - Vocals
+Tuomas Holopainen - Keyboards
+Erno ''Emppu'' Vuorinen - Guitars
+Marco Hietala - Bass, Vocals
+Jukka "Julius" Nevalainen - Drums
+
+### "The Islander (single)" 2008, Gothic
+
+1. The Islander 04:58 
+2. The Escapist (Instrumental Version) 04:59  
+3. Meadows of Heaven (Orchestral Version) 07:10 
+
+### "The Sound Of Nightwish Reborn (compilation)" 2008, Gothic
+
+1. "Eva" (demo version) - Demo session, pre-album * 04:15
+2. "Reach" ("Amaranth" demo) - Demo session, pre-album * 03:52
+3. "While Your Lips Are Still Red" - B-side, pre-album 04:18 
+4. "Escapist" - B-side, Album session 04:56 
+5. "The Poet and The Pendulum" - Demo version, pre-album * 13:40 
+6. "Bye Bye Beautiful (DJ Orkidea remix)" - Album session 12:06
+7. "Meadows of Heaven" - Orchestral version, album session 07:10
+8. "Amaranth" - Orchestral version, album session 03:46  
+9. "The Escapist" - Instrumental Version, album session 04:56  
+
+### "Made In Hong Kong (And In Various Other Places) [CD/DVD]" 2009, Gothic
+
+1. Bye Bye Beautiful (Live) 04:33
+2. Whoever Brings The Night (Live) 04:24
+3. Amaranth (Live) 04:17
+4. The Poet And The Pendulum (Live) 13:59
+5. Sahara (Live) 06:09
+6. The Islander (Live) 05:25
+7. Last Of The Wilds (Live) 06:31
+8. 7 Days To The Wolves (Live) 07:11 
+9. Escapist 04:56
+10. While Your Lips Are Still Red 04:19 
+11. Cadence Of Her Last Breath (Demo) 04:13 
+
+Line-up:
+Anette Olzon Blyckert - Vocals
+Erno ''Emppu'' Vuorinen - Guitars
+Marco Hietala - Bass, Vocals
+Jukka "Julius" Nevalainen - Drums
+Tuomas Holopainen - Keyboards
+
+The set contains a DVD documentary (with a running time of approximately 45
+minutes) of the world tour in support of the band's latest album, "Dark Passion
+Play", directed by Ville Lipiдinen.
+
+DVD (running time - 49:52)
+
+* Documentary (Dark Passion Play World Tour)
+* Video Clips:
+01. Amaranth
+02. Bye Bye Beautiful
+03. The Islander 
+
+### "Storytime (single)" 2011, Gothic
+
+1. Storytime (Album version)
+2. Storytime (Radio edit)
+3. Storytime (Instrumental version) 
+
+### "Imaginaerum" 2011, Gothic
+
+1. Taikatalvi
+2. Storytime
+3. Ghost River
+4. Slow, Love, Slow
+5. I Want My Tears Back
+6. Scaretale
+7. Arabesque
+8. Turn Loose The Mermaids
+9. Rest Calm
+10. The Crow, The Owl And The Dove
+11. Last Ride Of The Day
+12. Song Of Myself
+13. Imaginaerum 
+
+
+### "Elan (single)" 2015, Gothic
+
+01. Elan (Album Version) 04:44 
+02. Sagan (Non-Album Bonus Track) 04:41 
+03. Elan (Alternate Version) 04:22 
+04. Elan (Radio Edit) 04:01
+
+### "Endless Forms Most Beautiful" 2015, Gothic
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,10 +1,56 @@
 # Spawn of Possession
 
-Дискография
-"The Forbidden (demo)" 2000, Deathcore
-"Church of Deviance (demo)" 2001, Deathcore
-"Cabinet" 2003, Deathcore
-"Noctambulant" 2006, Deathcore
+Technical brutal death metal from Sweden
+
+## Дискография
+
+### "The Forbidden (demo)" 2000, Deathcore
+
+1. Intro (Sick) 
+2. Dead & Grotesque 
+3. The Forbidden 
+4. Dirty Priest 
+
+### "Church of Deviance (demo)" 2001, Deathcore
+
+1. Inner Conflict 
+2. Spawn of Possession (unfinished version) 
+3. Church of Deviance 
+
+### "Cabinet" 2003, Deathcore
+
+Lamashtu 
+Swarm of the Formless 
+Hidden in Flesh 
+A Presence Inexplicable 
+Dirty Priest 
+Spawn of Possession 
+Inner Conflict 
+Cabinet 
+The Forbidden 
+Church of Deviance 
+Uncle Damfee 
+
+
+Guitar : Jonas Bryssling
+Guitar : Jonas Karlsson
+Bass : Niklas Dewerud 
+Drums : Dennis R&#246;ndum 
+Vocals on this recording by Dennis
+
+### "Noctambulant" 2006, Deathcore
+
+1. Inception  01:58    
+2. Lash by Lash  04:10  
+3. Solemn They Await  03:26
+4. Render My Prey  03:56   
+5. Eve of Contempt  04:13   
+6. Sour Flow  05:54  
+7. By a Thousand Deaths Fulfilled  04:07
+8. Dead & Grotesque  04:19 
+9. In My Own Greed  05:25  
+10. Scorched  04:02 
+
 
 ## Отношения с другими группами
 

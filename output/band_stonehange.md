@@ -1,7 +1,32 @@
 # Stonehange
 
-Дискография
-"Death Is The Crown Of All" 1992, Industrial
+Brutal Death Industrial
+
+## Дискография
+
+### "Death Is The Crown Of All" 1992, Industrial
+
+1. Behind Reality
+2. See You In Hell
+3. I Prefer Reality And Reality Is Dead
+4. Sign Of Hate
+5. My Last Way
+6. People Of War
+7. Blood For Children
+8. Hate Me, Leave Me
+9. Take My Life
+10.Voices From The Darkside
+
+ Rebutler - Vocals
+ Glenswen - Guitars
+ Nickpath - Bass
+ Dandesarc - Drums
+
+All Songs By STONEHANGE
+Produced By Andy Classen
+
+(p)&(c) 1992 WEST VIRGINIA Records
+
 
 ## Отношения с другими группами
 

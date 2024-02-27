@@ -1,7 +1,21 @@
 # Krest
 
-Дискография
-"Apocollapsys" 2007, Thrash
+
+
+## Дискография
+
+### "Apocollapsys" 2007, Thrash
+
+1. Technopogost
+2. Collapse
+3. Into the void
+4. Oblivion
+5. Gods & prayers
+6. Slaughter
+7. Demon of retribution
+8. Worm the conqueror
+9. Prophetic revelations (PESTILENCE cover)
+
 
 ## Отношения с другими группами
 

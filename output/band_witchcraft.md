@@ -1,7 +1,13 @@
 # Witchcraft
 
-Дискография
-"The Voice From Inside" 2008, Gothic
+
+
+## Дискография
+
+### "The Voice From Inside" 2008, Gothic
+
+
+
 
 ## Отношения с другими группами
 

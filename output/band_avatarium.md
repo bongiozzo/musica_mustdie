@@ -1,9 +1,32 @@
 # Avatarium
 
-Дискография
-"Avatarium" 2013, Metal
-"ALL I Want (EP)" 2014, Metal
-"The Girl With The Raven Mask" 2015, Metal
+
+
+## Дискография
+
+### "Avatarium" 2013, Metal
+
+
+
+### "ALL I Want (EP)" 2014, Metal
+
+1. All I Want
+2. Deep Well 	
+3. Pandora’s Egg (live)
+4. Tides of Telepathy (live)
+5. Bird of Prey (live) 
+
+### "The Girl With The Raven Mask" 2015, Metal
+
+01. Girl With The Raven Mask
+02. The January Sea
+03. Pearls And Coffins
+04. Hypnotized
+05. Ghostlight
+06. Run Killer Run
+07. Iron Mule
+08. The Master Thief
+
 
 ## Отношения с другими группами
 

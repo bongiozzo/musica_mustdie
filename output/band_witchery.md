@@ -1,12 +1,96 @@
 # Witchery
 
-Дискография
-"Restless And Dead" 1998, Thrash
-"Witchburner" 1999, Thrash
-"Dead, Hot And Ready" 1999, Thrash
-"Symphony For The Devil" 2001, Thrash
-"Don’t Fear the Reaper" 2006, Thrash
-"Witchkrieg" 2010, Thrash
+
+
+## Дискография
+
+### "Restless And Dead" 1998, Thrash
+
+01. The reaper
+02. Witchery
+03. Midknight at the graveyard
+04. The hangman
+05. Awaiting the exorcist
+06. All evil
+07. House of raining blood
+08. Into Purgatory
+09. Born in the night
+10. Restless & dead
+
+### "Witchburner" 1999, Thrash
+
+01. Fast as a shark
+02. I wanna be somebody
+03. Riding on the wind
+04. Neon knights
+05. The howling
+06. The executioner
+07. Witchburner 
+
+### "Dead, Hot And Ready" 1999, Thrash
+
+01. Demonication
+02. A paler shade of death
+03. The guillotine
+04. Resurrection
+05. Full moon
+06. The devil and the damage done
+07. Dead, hot and ready
+08. The devilґs triangle
+09. Call of the coven
+10. On a black horse thru hell...
+
+### "Symphony For The Devil" 2001, Thrash
+
+01. The Storm
+02. Unholy Wars
+03. Inquisition
+04. Omens
+05. Bone Mill
+06. None Buried Deeper...
+07. Wicked
+08. Called For By Death
+09. Hearse Of The Pharaohs
+10. Shallow Grave
+11. Enshrined (bonustrack)
+12. The One Within (bonustrack)
+
+### "Don’t Fear the Reaper" 2006, Thrash
+
+1. Disturbing the Beast 02:41  
+2. Stigmatized 04:12 
+3. Draw Blood 03:19  
+4. The Ritual 04:03  
+5. Ashes 04:18 
+6. Plague Rider 03:56 
+7. Damned in Hell 03:56 
+8. Crossfixation 04:09  
+9. The Wait of the Pyramids 03:56  
+10. Immortal Death 01:31  
+11. Styx 04:54  
+12. War Piece 02:22  
+13. Cannonfodder 02:40
+
+
+Toxine (Tony Kampner) - Vocals 
+Patrik Jensen - Guitars 
+Richard Corpse - Guitars 
+Sharlee D'Angelo - Bass 
+Martin Axe - Drums
+
+### "Witchkrieg" 2010, Thrash
+
+1. Witchkrieg 03:44
+2. Wearer Of Wolf's Skin 02:27
+3. The God Who Fell From Earth 04:39
+4. Conqueror's Return 03:25
+5. The Reaver 03:17 
+6. From Dead To Worse 03:34 
+7. Devil Rides Out 04:10
+8. One Foot In The Grave 02:58
+9. Hellhound 02:45  
+10. Witch Hunter 03:27 
+
 
 ## Отношения с другими группами
 

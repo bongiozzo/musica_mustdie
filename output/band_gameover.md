@@ -1,11 +1,48 @@
 # Game Over
 
-Дискография
-"For Humanity" 2012, Thrash
-"Burst Into The Quiet" 2014, Thrash
-"Crimes Against Reality" 2016, Thrash
-"Blessed Are the Heretics (EP)" 2017, Thrash
-"Claiming Supremacy" 2017, Thrash
+
+
+## Дискография
+
+### "For Humanity" 2012, Thrash
+
+1.	 Abyss of a Needle	04:16	 
+2.	 Dawn of the Dead	03:54	 
+3.	 Mountains of Madness	03:50	 
+4.	 War of Nations	03:45	 
+5.	 Overgrill (El Grillador loco)	04:34	 
+6.	 N.S.A.	00:24	 
+7.	 Bleeding Green	03:57	 
+8.	 Another Dose of Thrash	03:11	 
+9.	 Evil Clutch	04:25	 
+10.	 Tupa Tupa or Die	03:13	 
+
+### "Burst Into The Quiet" 2014, Thrash
+
+
+
+### "Crimes Against Reality" 2016, Thrash
+
+
+
+### "Blessed Are the Heretics (EP)" 2017, Thrash
+
+
+
+### "Claiming Supremacy" 2017, Thrash
+
+01. Onward To Blackness
+02. Two Steps Into The Shadows
+03. Last Before The End
+04. My Private Nightmare
+05. Blessed Are The Heretics
+06. Eleven
+07. Broken Trails
+08. Shattered Souls
+09. Lysander
+10. Show Me What You Got
+11. Metal Thrashing Mad (ANTHRAX cover – Japanese bonus track)
+
 
 ## Отношения с другими группами
 

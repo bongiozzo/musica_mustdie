@@ -1,13 +1,95 @@
 # Negative
 
-Дискография
-"War Of Love" 2003, Glam
-"Sweet & Deceitful" 2004, Gothic
-"Anorectic" 2006, Glam
-"Karma Killer" 2008, Glam
-"In The Eye Of The Hurricane [DVD]" 2008, Glam
-"God Likes Your Style" 2009, Glam
-"Neon" 2010, Glam
+
+
+## Дискография
+
+### "War Of Love" 2003, Glam
+
+
+
+### "Sweet & Deceitful" 2004, Gothic
+
+01. Intro
+02. Frozen to Lose it All
+03. Creeping Inside
+04. Locked in the Dark Side
+05. In My Heaven
+06. My MY/Hey Hey (Out of the Blue) [Neil Young Cover]
+07. Neverending Parade
+08. L.A. Feeding Fire
+09. Until You’re Mine
+10. About My Sorrow
+11. Secret Forgiveness
+12. Angels Won’t Lie
+
+### "Anorectic" 2006, Glam
+
+
+
+### "Karma Killer" 2008, Glam
+
+
+
+### "In The Eye Of The Hurricane [DVD]" 2008, Glam
+
+Live At Pakkahuone, Tampere, Finland, December 8,
+2006:
+
+01. Glory of the Shame
+02. My My Hey Hey (Out of the Blue)
+03. Last Hero
+04. Reflections
+05. Sinners' Night / Misty Morning
+06. Naive
+07. Embracing Past
+08. Frozen to Love It All
+09. Lost Soul (instrumental)
+10. One Last Shot
+11. Planet of the Sun
+12. L.A Freeding Fire
+13. The Moment of Our Love
+14. In Memorian (Immortal Song)
+15. Still Alive / A Song for the Broken Hearted
+16. Until Your're Mine
+17. In My Heaven
+
+Disc 1 total running time: 1h 56 min
+
+Disc 2:
+
+Music Videos:
+
+18. The Moment of Our Love
+19. Frozen to Lose It All + Making Of
+20. In My Heaven + Making of
+21. Planet of the Sun + Making of
+22. Sinners' Night / Misty Morning
+
+Extras:
+
+* Interview 2007 18min
+* Members (playing cards) Jonne Aaron - Mr. Snack
+- Larry Love - Sir Christus - Antti Anatomy - Jay
+Slammer
+* Around The World Documentary 1h 44min
+* Fan Video Live at Konzerthaus Schuur, Lucerne,
+Switzerland, November 16, 2006 15min
+- Intro / Glory Of The Shame
+- Planet Of The Sun
+- The Moment Of our Love
+* Fan Photos
+* Photo Gallery
+Disc 1 total running time: 3h 29min
+
+### "God Likes Your Style" 2009, Glam
+
+
+
+### "Neon" 2010, Glam
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,16 +1,164 @@
 # Jag Panzer
 
-Дискография
-"Ample Destruction" 1984, Thrash
-"Dissident Alliance" 1994, Power Metal
-"The Fourth Judgement" 1997, Power Metal
-"The Age of Mastery" 1998, Power Metal
-"Thane To The Throne" 2000, Power Metal
-"Mechanized Warfare" 2001, Power Metal
-"Decade Of The Nail Spiked Bat" 2003, Power Metal
-"Casting The Stone" 2004, Power Metal
-"Chain of Command" 2004, Power Metal
-"The Scourge of the Light" 2011, Power Metal
+American power metal
+
+## Дискография
+
+### "Ample Destruction" 1984, Thrash
+
+1. Licensed To Kill
+2. Warfare
+3. Symphony Of Terror
+4. Harder Than Steel
+5. Generally Hostile
+6. The Watching
+7. Reign Of Tyrants
+8. Cardiac Arrest
+9. The Crucifix
+
+(p)&(c) 1990 METALCORE Records
+
+### "Dissident Alliance" 1994, Power Metal
+
+
+
+### "The Fourth Judgement" 1997, Power Metal
+
+
+
+### "The Age of Mastery" 1998, Power Metal
+
+1. Iron Eagle
+2. Lustful And Free
+3. Twilight Years
+4. Sworn To Silence
+5. False Messiah
+6. The Age Of Mastery
+7. Viper
+8. Displacement
+9. Chain Of Command
+10.Take this Pain away
+11.Burning Heart
+12.The Moors
+
+Harry 'The Tyrant' Conklin - Vocals
+Mark Briody - Guitar, Keyboards
+Chris Broderick - Guitar
+John Tetley - Bass
+Rikard Stjernquist - Drums
+
+Additional Musicians
+Todd Ehle - Violin
+Karen Kenedy - Backing Vocals 
+Derek  'Deke' Blake - Backing Vocals
+John Lutzow - Backing Vocals
+Jim Morris - Backing Vocals
+Tammy Briody - Backing Vocals
+
+### "Thane To The Throne" 2000, Power Metal
+
+Thane of Cawdor 
+King At A Price 
+Bloody Crime 
+The Premonitions 
+Treachery's Stain 
+Spectres of the Past 
+Banquo's Final Rest 
+Three Voices of Fate 
+Hell to Pay 
+The Prophecies (Fugue In D minor) 
+Insanity's Mind 
+Requiem for Lady Macbeth 
+Face of Fear 
+Fall of Dunsinane 
+Fate's Triumph 
+The Downward Fall 
+Tragedy of Macbeth 
+
+### "Mechanized Warfare" 2001, Power Metal
+
+1. Take to the Sky (Broderick / Conklin)
+2. Frozen in Fear (Briody / Conklin)
+3. Unworthy (Briody / Conklin)
+4. The Silent (Broderick / Conklin)
+5. The Scarlet Letter (Briody / Conklin)
+6. Choir of Tears (Broderick / Conklin)
+7. Cold is the Blade (And the Heart that Wields it) (Briody / Conklin)
+8. Hidden in My Eyes (Broderick / Conklin)
+9. Power Surge (Broderick / Conklin)
+10. All Things Renewed (Briody / Conklin)
+
+
+Century Media Records 2001
+Released August 7 in the U.S.
+Released July 23 in all other territories
+Available on cd, digipack and vinyl (digipack and vinyl in Europe only)
+Produced by Jim Morris
+Engineered by Jim Morris
+Additional engineering by Mark Briody, Aaron Caillier
+Recorded at The Living Room Sound Works, Mesa Arizona
+Weatherpus Recordings, Bearville Colorado
+Morrisound Studios, Tampa Florida
+Artwork by Travis Smith
+Photography by Ted Banks
+
+Harry 'The Tyrant' Conklin - Vocals 
+Chris Broderick - Guitar, Keyboards 
+Mark Briody - Guitar, Keyboards 
+John Tetley - Bass, Backing Vocals 
+Rikard Stjernquist - Drums
+
+Additional Musicians
+
+Todd Ehle - Violin
+Kimberly Kendall - Choir
+Brian Miller - Choir
+Keith Spargo - Choir
+Rhiannon Conklin - Choir
+Jim Morris - Choir
+The Monks from The Order of Saint Hubbins - Gregorian chants
+
+
+
+
+
+
+
+### "Decade Of The Nail Spiked Bat" 2003, Power Metal
+
+
+
+### "Casting The Stone" 2004, Power Metal
+
+01. Feast Or Famine
+02. The Mission (1943)
+03. Vigilant
+04. Achilles
+05. Temptest
+06. Legion Immortal
+07. Battered & Bruised
+08. Cold
+09. Starlight's Fury
+10. The Harkening
+11. Precipice
+
+### "Chain of Command" 2004, Power Metal
+
+
+
+### "The Scourge of the Light" 2011, Power Metal
+
+1. Condemned to Fight 04:23  
+2. The Setting of the Sun 03:26  
+3. Bringing on the End 05:03  
+4. Call to Arms 03:26  
+5. Cycles 04:08  
+6. Overlord 05:27  
+7. Let It Out 03:34  
+8. Union 05:15  
+9. Burn 06:04  
+10. The Book of Kells 08:01 
+
 
 ## Отношения с другими группами
 

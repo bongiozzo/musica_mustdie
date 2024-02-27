@@ -1,12 +1,113 @@
 # Hypnos
 
-Дискография
-"Hypnos (MCD)" 2000, Death Metal
-"In Blood We Trust" 2000, Death Metal
-"The Revenge Ride" 2001, Death Metal
-"Rabble Manifesto" 2005, Death Metal
-"Halfway To Hell (EP)" 2010, Death Metal
-"Heretic Commando – Rise of the New Antikrist" 2012, Death Metal
+Czech Death Metal Band
+
+## Дискография
+
+### "Hypnos (MCD)" 2000, Death Metal
+
+
+
+### "In Blood We Trust" 2000, Death Metal
+
+1. Incantation
+2. Burn The Angels Down
+3. Fatal Shine Of The Sky
+4. Infernational
+5. Lovesong
+6. Open The Gates Of Hell
+7. Sacrilegious
+8. Across The Battlefields
+9. Breeding The Scum
+10. In Blood We Trust
+11. After The Carnage
+
+### "The Revenge Ride" 2001, Death Metal
+
+1. Raven's Opera D'Moll (0:40)
+2. Crystal Purity of Treachery (5:16)
+3. Evil Awaken (3:22)
+4. Regicide (3:33)
+5. Journey Into Doom (4:54)
+6. Endorsed by Satan (3:01)
+7. Spider-Werk (3:44)
+8. I am the Wind (5:08)
+9. Lost (1:33)
+10. Heroism of New Era (4:12)
+
+
+Produced by Harris Johns
+
+David M. - Guitar
+Bruno - Bass, Vocals
+Pegas - Drums
+
+Session live 2nd guitarist Alex (www.pandemia-deathmetal.com)
+
+All songs by HYPNOS
+
+Recorded and Mixed at SPIDERHOUSE Studio, Lutte (Germany) in May-June 2001.
+Engineered and Mixed by Harris Johns.
+Effects and Keyboards at EXPONENT Studio, Hlohovec (Slovakia) by Tomas Kmet.
+Mastered at MORRISOUND Studiom Tampa (USA).
+
+Photos by Robert Svitana.
+Graphic Work by Allan Kudrna (allan@kios.sk).
+Saints Design by Rene Hilek.
+
+
+Band Contact:
+c/o Bruno
+Kopanky 1726
+686 03 STARE MESTO
+Czech Republic - Earth
+
+Phone: ++420-632-543 727
+E-mail: bruno.hypnos@post.cz
+
+
+Booking and Management:
+Petr Hejtmanek
+Ostrozska Lhota 140
+687 23 Uherske Hradiste
+Czech Republic
+
+Phone: ++420-632-598 722
+Fax: 00420-632-598 994
+Mobil: ++420-602-704 592
+E-mail: pedro.dvt@post.cz
+
+&copy; 2001 MORBID Records
+
+### "Rabble Manifesto" 2005, Death Metal
+
+1. Drowned In Burial Mud 
+2. The Cleansing Extrema 
+3. Supernatural Race Disharmony  
+4. Black Nymph Reveals 
+5. Firecult 
+6. 3x6x37 Adrenaline Code   
+7. The Quisling Celebration  
+8. Krieg-The Alpha Paradox 
+9. At Death's Door
+
+### "Halfway To Hell (EP)" 2010, Death Metal
+
+
+
+### "Heretic Commando – Rise of the New Antikrist" 2012, Death Metal
+
+1. Nailed To The Golden Throne
+2. Inverted / Chasing The Apostles
+3. Cholera / Mor
+4. Burning Again / Hymn Of Eternal Fire
+5. Alliance Of Snakes / Reptilian Conception 
+6. In Love With Death
+7. Decadence / Art Of Modern Misery
+8. Extremely Dark Days
+9. Versus The Void
+10. Urbi At Morbid / Farewell To Sanctity
+
 
 ## Отношения с другими группами
 

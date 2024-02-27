@@ -1,7 +1,27 @@
 # Funeral Oration
 
-Дискография
-"Sursum Luna" 1996, Black Metal
+
+
+## Дискография
+
+### "Sursum Luna" 1996, Black Metal
+
+1.  Beltane's Night
+2.  Pregnant Whore
+3.  Intermezzo I
+4.  Mc A Morte Libera Domine
+5.  Intermezzo II
+6.  The Age Of Apotheosis
+7.  Intermezzo III
+8.  Sursum Luna (Funesta Trilogia)
+9.  Intermezzo IV
+10.Stigmata
+11.Intermezzo V
+12.Pagan Joy
+13.Finale
+
+(p)(c) 1996 AVANTGARDE  Av 017
+
 
 ## Отношения с другими группами
 

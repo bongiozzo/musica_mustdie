@@ -1,9 +1,38 @@
 # Nausea
 
-Дискография
-"Crime Against Humanity" 1991, Grindcore
-"The Suffering Continues (Compilation)" 2002, Grindcore
-"Condemned To The System" 2014, Grindcore
+
+
+## Дискография
+
+### "Crime Against Humanity" 1991, Grindcore
+
+1. Mind Dead 03:41
+2. Blind 01:41 
+3. Point of Discharge 02:29
+4. System Break-Down 02:26
+5. Production Ends 02:53
+6. Make More Profit 03:49
+7. Enemy Alliance (Majesty cover) 02:21
+8. Dreams and Prophecies 03:26
+
+### "The Suffering Continues (Compilation)" 2002, Grindcore
+
+
+
+### "Condemned To The System" 2014, Grindcore
+
+01. Freedom Of Religion
+02. Does God Need Help?
+03. World Left In Confinement
+04. Cries Of Pain
+05. Hate & Deception
+06. Corporation Pull-In
+07. Fuck The World
+08. Falsely Accused
+09. Condemn Big Business
+10. And We Suffer
+11. Absence Of War
+
 
 ## Отношения с другими группами
 

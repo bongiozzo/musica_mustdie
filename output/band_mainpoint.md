@@ -1,8 +1,25 @@
 # Mainpoint
 
-Дискография
-"Heaven/Earth" 2001, Gothic
-"Planet Paradise" 2003, Gothic
+
+
+## Дискография
+
+### "Heaven/Earth" 2001, Gothic
+
+1. Under The Cross
+2. Frozen Girl
+3. Again
+4. The Faithless Power Of Jesus Christ
+5. Heaven And Earth
+6. Times
+7. Misanthropy
+8. Anaemic State
+9. Contaminated
+
+### "Planet Paradise" 2003, Gothic
+
+
+
 
 ## Отношения с другими группами
 

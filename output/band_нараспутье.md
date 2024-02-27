@@ -1,9 +1,42 @@
 # На Распутье
 
-Дискография
-"The Throne of Immortal Ones/Hammer of Holocaust" 2009, Black Metal
-"Seven Winds Above The Funeral Pile" 2009, Black Metal
-"Upon the Abyss" 2010, Black Metal
+
+
+## Дискография
+
+### "The Throne of Immortal Ones/Hammer of Holocaust" 2009, Black Metal
+
+1. Ulfrun	 
+2. Gardariket		 
+3. Hail to Heroes	 
+4. The Throne of Immortal Ones	 
+5. Northwards	 
+6. Rebellion	 
+7. Hammer of Holocaust	 
+8. The Sky will Stain with Blood	 
+9. So as to burn for ever...	 
+10. Sky-blue upon the Russian Land
+
+### "Seven Winds Above The Funeral Pile" 2009, Black Metal
+
+1. Grief	 
+2. Lost Unfettered Winds Of Homeland...	 
+3. Wolf's Sun		 
+4. Bright Ardent Flare	 
+5. Seven Winds Above The Funeral Pile	 
+6. Blizzard Enchantress	 
+7. As The Sparks To The Black Sky
+
+### "Upon the Abyss" 2010, Black Metal
+
+1. Wellen der Dunkelheit	 
+2. Agony	 
+3. In the Round Dance of Marsh Fires	 
+4. The Majesty	 
+5. Naglfar	 
+6. Upon the Abyss	 
+7. North
+
 
 ## Отношения с другими группами
 

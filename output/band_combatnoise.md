@@ -1,8 +1,34 @@
 # Combat Noise
 
-Дискография
-"After the War... the Wrath Continues" 2004, Death Metal
-"Frontline Offensive Force" 2010, Death Metal
+death-metal from Cuba
+
+## Дискография
+
+### "After the War... the Wrath Continues" 2004, Death Metal
+
+1. Introduction to Warhead	 
+2. Mercenary	 
+3. Marching to Devastation	 
+4. Soldiers Must Like to Kill	 
+5. Deformed by Heactomb	 
+6. Inmolation Command	 
+7. Kamikaze	 
+8. Black Troops of Death	 
+9. Come from Underground
+
+### "Frontline Offensive Force" 2010, Death Metal
+
+1. The Soldier Who'll Never Come Back	 
+2. Paratroopers	 
+3. Sniper Is in Position	 
+4. Into the Killing Zone	 
+5. AK-47	 
+6. Psychobelic	 
+7. Storming the Gates	 
+8. Platoon	 
+9. Cuba Death Metal	 
+10. The Empire Strikes First
+
 
 ## Отношения с другими группами
 

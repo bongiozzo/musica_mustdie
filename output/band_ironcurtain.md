@@ -1,9 +1,21 @@
 # Iron Curtain
 
-Дискография
-"Road to Hell" 2012, Heavy Metal
-"Jaguar Spirit" 2013, Heavy Metal
-"Guilty as Charged" 2016, Heavy Metal
+
+
+## Дискография
+
+### "Road to Hell" 2012, Heavy Metal
+
+
+
+### "Jaguar Spirit" 2013, Heavy Metal
+
+
+
+### "Guilty as Charged" 2016, Heavy Metal
+
+
+
 
 ## Отношения с другими группами
 

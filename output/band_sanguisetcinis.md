@@ -1,17 +1,141 @@
 # Sanguis Et Cinis
 
-Дискография
-"Requiem 1791 (Demo MC)" 1995, Gothic
-"2nd Demo (Demo MC)" 1995, Gothic
-"Schicksal" 1996, Gothic
-"Collection 1993-1995 (Demo MC)" 1996, Gothic
-"unfreiwillig abstrakt (MCD)" 1997, Gothic
-"...wie der unberuhrte traum einer jungfrau" 1998, Gothic
-"Fremde Federn (MCD)" 1999, Gothic
-"InSeCt (MCD)" 1999, Gothic
-"Madrigal" 1999, Gothic
-"Amnesia" 2000, Gothic
-"Tragic Years (2CD)" 2000, Gothic
+austrian goth-rock band
+
+## Дискография
+
+### "Requiem 1791 (Demo MC)" 1995, Gothic
+
+
+
+### "2nd Demo (Demo MC)" 1995, Gothic
+
+
+
+### "Schicksal" 1996, Gothic
+
+1. Introtius
+2. der Bewahrer des Siegels
+3. Schicksalswolfe
+4. Kind Der Unschuld (Part I)
+5. Kind Der Unschuld (Part II)
+6. ... an einem Wintertag
+7. Wein der Sunde
+8. Flucht
+9. zwischen Narziss und Selbsthass
+10. Tempel der Erkenntnis
+
+Limited edition bonustracks:
+11. Gedankensplitter (thought splinters)
+12. Tempel der Erkenntnis (demo version)
+
+All songs written by Sanguis Et Cinis.
+Produced by Sanguis Et Cinis.
+
+Celine Cecilia Angel
+Arthur
+Evangel
+Ashley Dayour
+Richard Lederer
+
+(P)(C) 1996 M.O.S. Records
+
+### "Collection 1993-1995 (Demo MC)" 1996, Gothic
+
+
+
+### "unfreiwillig abstrakt (MCD)" 1997, Gothic
+
+1. ...als hatte ich nichts mehr zu sagen
+2. Sententia
+3. lebende Fackel 
+4. ein Drama als Komodie verstanden
+
+### "...wie der unberuhrte traum einer jungfrau" 1998, Gothic
+
+1. Phoenix
+2. Teufel an der Wand
+3. nicht mein Schicksal ?
+4. die Braut im Regen
+5. Reprise
+6. die Braut im Regen 2.0
+7. X
+8. das glaserne Zimmer
+9. verwundbar und schwach
+10. Sanguis et Cinis
+
+### "Fremde Federn (MCD)" 1999, Gothic
+
+1. 1986
+2. Ama Deus
+3. X ( Dust of Basement-Mix )
+4. die Braut im Regen 2.0 ( In Strict Confidence-Mix )
+5. die Braut im Regen 2.0 ( Fiction 8-Mix )
+6. die Braut im Regen 2.0 ( The Second Sight-Mix )
+7. die Braut im Regen 2.0 ( 3 minus-Mix by ADORE )
+
+### "InSeCt (MCD)" 1999, Gothic
+
+1. Isabelle (Album edit)
+2. Isabelle (acoustic version)
+3. das glaeserne Zimmer 99
+4. Mysteryland
+
+### "Madrigal" 1999, Gothic
+
+1. Prinzessin
+2. Phantom
+3. ein blinder Spiegel
+4. Isabelle
+5. ein Brief an...
+6. Personenkult
+7. Unconscious lovesong
+8. Jesus Dragqueen No.1
+9. Metropolis
+10. im Angesicht der Sonne und im Auge des Lichts
+11. zerbrich mich
+
+### "Amnesia" 2000, Gothic
+
+1. Prologue
+2. Immaculata
+3. Atlantis - Babylon
+4. Secret & sin
+5. Amnesia
+6. Annie Time
+7. the catholic girls
+8. Please love me, please hate me
+9. Whore disciple
+10. Roses & forget-me-not
+
+### "Tragic Years (2CD)" 2000, Gothic
+
+CD 1
+
+1 . Introitus
+2 . ...als Hatte Ich Nichts Mehr Zu Sagen
+3 . Sentetia
+4 . Lebende Fackel
+5 . ein Drama Als Komodie (Death In Paris-Mix)
+6 . die Braut Im Regen (Different Mix)
+7 . lebende Fackel (The Lost In Tibet-Mix) 
+8 . lebende Fackel (The Holy Heart Of Mary-Mix)
+9 . Engelssturz (Live 1995)
+10 . Tempel der Erkenntnis (should have been "Aborta" (Live 1995) but because of some mistakes of the CD manufacturer it's that song for some reason...)
+
+CD 2
+
+1 . der Bewahrer des Siegels
+2 . Schicksalswolfe
+3 . Kinder Der Unschuld
+4 . Kinder Der Unschuld 2
+5 . ...an Einem Wintertag
+6 . the Making Of ...an Einem Wintertag
+7 . Wein Der Sande
+8 . Flucht
+9 . zwischen Narzia Und Selbsthass
+10 . Tempel Der Erkenntnis
+
 
 ## Отношения с другими группами
 

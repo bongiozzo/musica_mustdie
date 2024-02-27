@@ -1,10 +1,57 @@
 # Svartby
 
-Дискография
-"Kom i Min Kittel" 2007, Metal
-"Riv, Hugg och Bit" 2009, Metal
-"Elemental Tales" 2012, Metal
-"Swamp, My Neighbour" 2015, Metal
+
+
+## Дискография
+
+### "Kom i Min Kittel" 2007, Metal
+
+1. Hдxby 01:26  
+2. Kom I Min Kittel 02:52
+3. Skogens Ursinne 04:00
+4. Om Trollbryggning 03:42
+5. Solnedgеng Цver Trдsk 02:13  
+6. Flykt Цver Sцmnigt Land 03:04 
+7. Skada Цver Er!! 03:36 
+8. Moder Av Alla Hдxor 05:46  
+9. Julen Av Vedergдllning 04:08
+10. Stjдrnfull Natt 02:35 
+
+### "Riv, Hugg och Bit" 2009, Metal
+
+1. Dv&#228;rgby 01:45  
+2. Trollkarlar Av Dv&#228;rgfolk 03:10
+3. Dv&#228;rgars Bastu 03:42
+4. &#214;lfrun 02:47
+5. Ensam Ensling 03:59
+6. Groda, Ryttare 03:35 
+7. Solens Ljus 04:27
+8. Kv&#228;vande Gruvor 02:45 
+9. Regnb&#229;gen 01:16  
+10. Liv Eller Guld 02:57
+11. Humus 03:28
+12. Riv, Hugg och Bit 03:35
+13. Snubbar, Snubbar 02:20
+14. Vinterkv&#228;ll 03:23 
+
+### "Elemental Tales" 2012, Metal
+
+
+
+### "Swamp, My Neighbour" 2015, Metal
+
+1. Morbid Quag  03:39
+2. Trojansk rеtta  03:21
+3. Goat Crack  03:27
+4. Karl's Egg Farm  03:23
+5. Dead Boys  03:55 
+6. Iron Stone  02:26 
+7. Herbal Giants  01:56 
+8. Bog Bar  02:10 
+9. Den svarta honungen  03:50
+10. Clock Tower  03:48 
+11. Eisenstein  02:26 
+
 
 ## Отношения с другими группами
 

@@ -1,18 +1,335 @@
 # Freedom Call
 
-Дискография
-"Stairway to Fairyland" 1999, Power Metal
-"Taragon" 1999, Power Metal
-"Crystal Empire" 2001, Power Metal
-"Eternity" 2002, Power Metal
-"Live Invasion (2CD)" 2004, Power Metal
-"A Circle Of Life" 2005, Power Metal
-"Dimensions" 2007, Power Metal
-"Legend of the Shadowking" 2010, Power Metal
-"Live in Hellvetia [DVD]" 2011, Power Metal
-"Land of the Crimson Dawn" 2012, Power Metal
-"Beyond" 2014, Power Metal
-"Master of Light" 2016, Power Metal
+German Fantasy Melodic Speed-Power
+
+## Дискография
+
+### "Stairway to Fairyland" 1999, Power Metal
+
+1 - Over The Rainbow
+2 - Tears Falling
+3 - Faryland
+4 - Shine On
+5 - We Are One
+6 - Hymn To The Brave
+7 - Tears Of Taragon
+8 - Graceland
+9 - Holy Knight
+10 - Another Day
+
+### "Taragon" 1999, Power Metal
+
+1. Warriors of Light 4:11 
+2. Dancing with tears in my eyes 3:52  
+3. Heart of the Brave 5:16  
+4. Kingdom Come 4:54  
+5. Tears of Taragon (Story Version) 9:50 
+
+
+
+Chris Bay Vocals, guitar, keyboards 
+Daniel Zimmermann Drums 
+Ilker Ersin Bass 
+Sascha Gerstner Guitar 
+ 
+
+
+Info  Recorded at Karo Studios Brackel and C.C.C. Studios Brauningshof in September 1999
+Mixed at Hansen Studios Hamburg
+
+### "Crystal Empire" 2001, Power Metal
+
+1. The King of the Crystal Empire (0:30)
+2. Freedom Call (5:32)
+3. Rise Up (4:04)
+4. Farewell (4:04)
+5. Pharao (4:41)
+6. Call of Fame (4:13)
+7. Heart of the Rainbow (4:35)
+8. The Quest (7:33)
+9. Ocean (5:09)
+10. Palace of Fantasy (4:46)
+11. The Wanderer (3:45)
+
+
+The Band:
+Chris Bay - Vocals, Guitars
+Dan Zimmermann - Drums
+Ilker Ersin - Bass
+Sascha Gerstner - Guitars
+
+Keyboards performed by Chris Bay
+Special Tanks to Dirk Schl&auml;chter
+and Michael K&ouml;tzner for their great
+keyboard live performance
+
+Guest Musicians:
+The choir crew: Rolf K&ouml;hler, Olaf Senkbeil,
+Janie Dixon, Mitch Schmitt, Freedom Call
+
+Basses on tracks 4, 6, 7 and 9 by Stefan Hiemer
+
+Bavarian Solo on "Ocean" performed by
+Sashi und die "Urchinol Reichswalder Bederlersboum"
+
+Voice of "Ramzezh" and other Evil Voices
+grunted by Mitch Schmitt
+
+Piano Interlude on "The Quest" and
+Keyboards of the first verse of "The Wanderer"
+performed by Ferdy Doernberg
+
+All music and lyrics written by Chris Bay and Dan Zimmermann
+All songs arranged by Freedom Call
+
+Produced and mixed by Charlie Bauefeind, Dan Zimmermann and Chris Bay
+for Freedom Call Productions GbR
+
+Recorded throughout December 1999 - September 2000
+by Charlie Bauefeind and Chris Bay
+at Hansen Studio Hamburg, Karo Studio Brackel,
+C.C.C. Studios Br&auml;uningshof and FC Studios N&uuml;rnberg
+
+&copy; Copyright Control
+
+Cover by Paul Raymond Gregory
+Story by Dan Zimmermann
+DigitalArtworx and BookletDesign by Henjo Richter
+Photos by Axel Jusseit
+Lyrical Assistance: Ann Poplat
+
+Contact:
+Freedom Call Fanclub
+"Knights of Taragon"
+Postfach 120 327
+90110 N&uuml;rnberg
+
+E-Mail: freedom-call@13-a.de
+
+Check out the Freedom Call homepage @:
+www.freedom-call.com
+
+Charlie Bauefeind Internet:
+www.charlie-bauefeind.com
+
+Booking:
+ALL ACCESS
+Neuer Kamp 25
+D-20359 Hamburg - Germany
+Phone: +49 (0) 40/432 833 0
+Fax: +49 (0) 40/432 833 23
+E-Mail: all-access@online.de
+Internet: www.all-access.de
+
+&copy; 2001 STEAMHAMMER, a divison of SPV GmbH
+
+### "Eternity" 2002, Power Metal
+
+1. Metal Invasion 6:48 
+2. Flying High 4:09  
+3. Ages of Power 4:41  
+4. The Spell 0:54 
+5. Bleeding Heart 4:58  
+6. Warriors 4:20 
+7. The Eyes of the World 3:55  
+8. Flame in the Night 4:57 
+9. Land of Light 3:54 
+10. Island of Dreams 4:16 
+11. Turn back time 5:04 
+
+
+
+Chris Bay – vocals, guitars & keyboards
+Dan Zimmermann - drums
+Ilker Esrin – bass
+Cedric Dupont – guitars
+
+
+Recorded at Hansen Studio Hamburg and FC Studios Nuremberg from january to march 2002
+Mixed at Twilight Hall Krefeld.
+
+### "Live Invasion (2CD)" 2004, Power Metal
+
+
+
+### "A Circle Of Life" 2005, Power Metal
+
+
+
+### "Dimensions" 2007, Power Metal
+
+1. Demons Dance 
+2. Innocent World 
+3. United Alliance 
+4. Mr. Evil 
+5. Queen Of My World 
+6. Light Up The Sky 
+7. Words Of Endeavour 
+8. Blackened Sun 
+9. Dimensions 
+10. My Dying Paradise 
+11. Magic Moments 
+12. Far Away
+
+
+Christian Bay - Vocals & Guitar 
+Lars Rettkowitz - Guitar
+Nils Neumann - Keyboards 
+Armin Donderer - Bass 
+Dan Zimmermann - Drums
+
+### "Legend of the Shadowking" 2010, Power Metal
+
+1. Out of the Ruins 04:21
+2. Thunder God 03:31 
+3. Tears of Babylon 03:38
+4. Merlin - Legend of the Past 04:17
+5. Resurrection Day 03:34
+6. Under the Spell of the Moon 05:08 
+7. Dark Obsession 04:45
+8. The Darkness 05:06 
+9. Remember! 04:21 
+10. Ludwig II - Prologue 02:19  
+11. The Shadowking 05:13  
+12. Merlin - Requiem 02:34
+13. Kingdom of Madness 03:59 
+14. A Perfect Day 03:58 
+
+
+
+Lineup:
+Chris Bay – vocals, guitar 
+Lars Rettkowitz – guitar 
+Samy Saemann – bass 
+Dan Zimmermann – drums 
+
+### "Live in Hellvetia [DVD]" 2011, Power Metal
+
+1. We Are One    
+2. United Alliance    
+3. Thunder God    
+4. Tears of Babylon     
+5. Blackenend Sun    
+6. Queen of My World   
+7. Out of the Ruins   
+8. Hunting High and Low   
+9. Drum Solo  
+10. Metal Invasion    
+11. Merlin - Requiem    
+12. Merlin - Legend of the Past  
+13. The Quest   
+14. Warriors    
+15. A Perfect Day   
+16. Far Away     
+17. Mr. Evil     
+18. Land of Light     
+19. Freedom Call    
+20. Hymn to the Brave  
+
+### "Land of the Crimson Dawn" 2012, Power Metal
+
+Disc 1  
+1. Age of the Phoenix  03:25   
+2. Rockstars  04:57   
+3. Crimson Dawn  06:03   
+4. 66 Warriors  05:17   
+5. Back into the Land of Light  05:11   
+6. Sun in the Dark  04:42  
+7. Hero on Video  03:42  
+8. Valley of Kingdom  04:11   
+9. Killer Gear  04:32   
+10. Rockin' Radio  04:03   
+11. Terra Liberty  03:40   
+12. Eternity  04:17   
+13. Space Legends  03:53  
+14. Power & Glory  03:25   
+
+Disc 2  
+1. Flame in the Night   05:02 
+2. Hunting High and Low   03:21 
+3. Fairylandz   05:14  
+4. Palace of Fantasy   04:55 
+5. Land of the Light  03:51 
+6. Warriors  03:21 
+
+
+CD 2 presents a collection of Freedom Call covers, performed by the following bands, respectively:
+ 1. PowerWorld, Germany
+ 2. Downspirit, Germany
+ 3. Secret Sphere, Italy
+ 4. Manimal, Sweden
+ 5. Neonfly, UK
+ 6. Hannes Braun of Kissin' Dynamite, Germany
+
+### "Beyond" 2014, Power Metal
+
+Disc 1  
+1. Union of the Strong  05:02   
+2. Knights of Taragon  04:44  
+3. Heart of a Warrior  03:13  
+4. Come on Home  04:03  
+5. Beyond  07:49  
+6. Among the Shadows  03:45   
+7. Edge of the Ocean  03:37  
+8. Journey into Wonderland  03:59   
+9. Rhythm of Light  04:03   
+10. Dance Off the Devil  03:45   
+11. Paladin  04:09   
+12. Follow Your Heart  03:51  
+13. Colours of Freedom  04:15   
+14. Beyond Eternity  03:03   
+
+Disc 2 (Bonus)  
+1. Back into the Land of Light (live)   05:43   
+2. Hero on Video (live)   03:56 
+3. Rockstars (live)  05:03   
+4. Farewell (live)  05:25  
+5. Mr. Evil (special version) (live)   05:13  
+6. Power & Glory (live)  03:32
+7. Freedom Call (unplugged)   05:39 
+8. The Quest (unplugged)  08:25  
+9. Warriors (unplugged)  04:30   
+10. Power & Glory (unplugged)   03:42 
+11. Farewell (unplugged)   04:51    
+12. Mr. Evil (Reggae) (masqueraded)  04:17 
+13. Rockin' Radio (Killerbilly) (masqueraded)   04:27 
+
+
+Recorded throughout September 9th, 2013 and November 22nd, 2013 at Separate Sound Studio and additionally at FC Studio, Nuremberg/Germany.
+
+Mixed and mastered at Separate Sound Studio, Nuremberg/Germany.
+
+Bonus disc details:
+ Tracks 1-6: "Live in the Black Forest"
+ Recorded on June 29th, 2013 in Seewald/Germany.
+ Recorded by Felix Piccu, mixed and mastered by Ilker Ersin.
+ Tracks 7-13: "Unplugged and masqueraded live"
+ Recorded on September 3rd, 2013 in Nurnberg/Germany at Rockfabrik.
+ Recorded, mixed and mastered by Felix Piccu.
+
+### "Master of Light" 2016, Power Metal
+
+1. Metal Is for Everyone  04:52    
+2. Hammer of the Gods  03:11  
+3. A World Beyond  05:54    
+4. Masters of Light  05:29    
+5. Kings Rise and Fall  04:02   
+6. Cradle of Angels  05:03   
+7. Emerald Skies  03:39   
+8. Hail the Legend  03:58   
+9. Ghost Ballet  03:07   
+10. Rock the Nation  03:11    
+11. Riders in the Sky  04:15  
+12. High Up  03:03 
+
+Disc 2  (Bonus)
+1. Beyond (grand piano version)  
+2. Paladin (grand piano version)  
+3. Emerald Skies (grand piano version) 
+4. Hymn to the Brave (grand piano version)  
+
+Recorded at Little Sun Creek Lounge Studio, Germany.
+
 
 ## Отношения с другими группами
 

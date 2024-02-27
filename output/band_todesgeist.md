@@ -1,6 +1,9 @@
 # Todesgeist
 
-Дискография
+(Russian progressive metal)
+
+## Дискография
+
 
 ## Отношения с другими группами
 

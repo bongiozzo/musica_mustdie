@@ -1,9 +1,50 @@
 # My Sixth Shadow
 
-Дискография
-"My Sixth Shadow" 2000, Gothic
-"10 Steps 2 Your Heart" 2003, Gothic
-"Lovefading Innocence" 2005, Gothic
+New Wave Of Gothic Metal
+
+## Дискография
+
+### "My Sixth Shadow" 2000, Gothic
+
+1. Nepenthe Sleep   
+2. Wanna Let You Down   
+3. Chrisalis Of Hate   
+4. She's A Maniac   
+5. Legion   
+6. Thru A Veil Of Dark   
+7. Original Sin   
+8. Icarus   
+9. TV's Horror Show
+
+### "10 Steps 2 Your Heart" 2003, Gothic
+
+1. Intoxicate my heart 
+2. Death is my rebirth   
+3. Throw me away 
+4. Life is nothing for me (acoustic)   
+5. Rain (The Cult cover)
+6. Aeteria   
+7. Sacrifice 
+8. Carry on  
+9. Die in me  
+10. Life is nothing for me
+
+### "Lovefading Innocence" 2005, Gothic
+
+1. Useless   
+2. Lonely Darkest Days   
+3. So Far   
+4. As You Hurt Me   
+5. Shadows In My Love   
+6. Forever   
+7. Broken Mirror   
+8. Hate Loving Heart   
+9. Invite The Poison   
+10. Complete   
+11. Crushed   
+12. Shades Of Grey   
+13. With Or Without You (U2 Cover)
+
 
 ## Отношения с другими группами
 

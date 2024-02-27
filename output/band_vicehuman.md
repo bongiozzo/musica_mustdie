@@ -1,11 +1,75 @@
 # Vice Human
 
-Дискография
-"Vice Human" 1984, Heavy Metal
-"Metal Attack" 1985, Heavy Metal
-"Set Me Free" 2003, Heavy Metal
-"Beyond this life" 2004, Heavy Metal
-"Escape" 2006, Heavy Metal
+
+
+## Дискография
+
+### "Vice Human" 1984, Heavy Metal
+
+1. Stand Up  02:58    
+2. I Need Power  03:52   
+3. Life Don't Be Blind  03:08 
+4. I Long to Kill You Beast  03:00   
+5. Damned World  03:32    
+6. You're Gonna Work All the Time  02:39    
+7. Can You Feel the Night  03:29   
+8. Running Always  02:47   
+9. Dust into My Nose  02:57   
+10. Vice Human  04:13  
+11. Make it in Time  03:35 
+
+### "Metal Attack" 1985, Heavy Metal
+
+1. Heavy Metal  04:16 
+2. We are the Future  05:27   
+3. Hell Has Broken Loose  04:19    
+4. Hooligan Hero  04:03  
+5. Alive in the Night  05:14  
+6. Two Wheels  04:54 
+7. Metal Wars  03:21  
+8. Get a Woman  04:48 
+9. My Friend the Gun  03:06 
+
+### "Set Me Free" 2003, Heavy Metal
+
+1. Set Me Free  03:38   
+2. Rock Dreamer  02:57  
+3. Wind  02:54    
+4. Express to high  03:33    
+5. Born for rock  03:14   
+6. Pay my pride  03:31 
+7. I still remember  03:09    
+8. Living the world  03:49   
+9. Night hunter  04:00 
+
+### "Beyond this life" 2004, Heavy Metal
+
+1. Time to Pray  04:21   
+2. No Way Out  04:18 
+3. I Need Someone  03:47   
+4. Cursed is this Love  04:33 
+5. Falling Free  04:37 
+6. Martyr of My Pain  04:40
+7. Children of Doom  04:33
+8. Metal Wars  03:34    
+9. Hooligan Hero  03:26  
+10. Alive in the Night  05:46  
+11. Heavy Metal  04:47    
+12. We are the Future  04:16 
+
+### "Escape" 2006, Heavy Metal
+
+1. Through The Rain,Through The Wind  02:38    
+2. Once More  03:30    
+3. Each Day Comes And Goes  03:04 
+4. As I Walk Around  03:35    
+5. Moving Down  05:51    
+6. Escape  02:59    
+7. The Gods Will Die  04:16  
+8. I've Got Love  03:47    
+9. I'm Gonna Let You Go  03:25  
+10. Sing The Song  03:10 
+
 
 ## Отношения с другими группами
 

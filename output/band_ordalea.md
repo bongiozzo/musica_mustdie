@@ -1,6 +1,9 @@
 # Ordalea
 
-Дискография
+progressive/thrash/death from Moscow
+
+## Дискография
+
 
 ## Отношения с другими группами
 

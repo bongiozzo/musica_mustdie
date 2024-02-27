@@ -1,11 +1,29 @@
 # HALO
 
-Дискография
-"Lunatic Ride" , Metal
-"Neverending I, II" , Metal
-"Sanctimonious I, II" , Metal
-"Guattari" 2001, Metal
-"Cold Light Of Day" 2002, Metal
+true-sludge
+
+## Дискография
+
+### "Lunatic Ride" , Metal
+
+
+
+### "Neverending I, II" , Metal
+
+
+
+### "Sanctimonious I, II" , Metal
+
+
+
+### "Guattari" 2001, Metal
+
+
+
+### "Cold Light Of Day" 2002, Metal
+
+
+
 
 ## Отношения с другими группами
 

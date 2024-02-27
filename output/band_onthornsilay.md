@@ -1,12 +1,110 @@
 # On Thorns I Lay
 
-Дискография
-"Sounds Of Beautiful Experience" 1995, Death Doom
-"Orama" 1997, Death Doom
-"Crystal Tears" 1999, Doom
-"Future Narcotic" 2000, Gothic
-"Angeldust" 2002, Gothic
-"Egocentric" 2003, Gothic
+Death-Doom From Greece
+
+## Дискография
+
+### "Sounds Of Beautiful Experience" 1995, Death Doom
+
+1. Voluptuous Simplicity Of The Line
+2. All Is Silent
+3. A Sparrow Dances
+4. Cleopatra
+5. A Dreamer Can Touch The Sky
+6. Rainy Days
+7. Sunrise Of A New Age
+8. On Thousand Times
+
+All Songs Written By ON THORNS I LAY.
+Produced By ON THORNS I LAY & Yiorgos Zahoropoulos.
+Engineered By M.W.Daoloth.
+Recorded & Mixed At Storm Studio, Winter 1995.
+
+Jim - Bass
+Fotis - Drums
+Steven - Vocals
+Chris - Guitars,Keyboards
+
+(P)&(C) 1995 HOLY Records
+
+### "Orama" 1997, Death Doom
+
+01. Atlantis I - 6:16
+02. The Song of the Sea - 1:39
+03. Oceans - 6:35
+04. In Heaven's Island - 4:24
+05. Atlantis II - 7:07
+06. Atlantis III - 2:36
+07. If I Could Fly - 5:15
+08. Aura - 5:42
+09. The Blue Dream - 8:11 
+
+
+### "Crystal Tears" 1999, Doom
+
+01. Crystal Tears - 4:49
+02. My Angel - 5:13
+03. Obsession - 4:24
+04. Crystal Tears II (Loosing Her) - 2:26
+05. Ophelia - 3:40
+06. Eden - 5:01
+07. Enigma - 4:34
+08. Midnight Falling - 1:59
+09. All Is Silent - 5:13
+10. Feelings - 7:05
+11. True Belief (Bonus)
+12. Oceans (Bonus)
+13. All Is Silent (Bonus) 
+
+
+Basse / Vocals : Stefanos Kintzoglou
+Guitars : Chris Dragamestianos
+Bass : Michael Knoflach
+Viola : Elena Doroftei
+Drums : Andrew Olaru
+Keyboard : Ionna Doroftei
+
+
+
+
+### "Future Narcotic" 2000, Gothic
+
+01. Infinity - 1:44
+02. Future Narcotic - 5:53
+03. The Threat of Seduction - 5:12
+04. Feed Her Lust - 5:01
+05. Love Can Be a Wave - 4:44
+06. Ethereal Blue - 6:43
+07. Heaven's Passager - 3:05
+08. Desire - 5:12
+09. Back To That Enigma - 5:01
+10. The K Song - 5:09 
+
+### "Angeldust" 2002, Gothic
+
+1. Sick Screams  4:35 
+2. A light in paradise  4:30 
+3. Black Cold Nights  6:44 
+4. Angeldust  5:14 
+5. Moving cities  4:16 
+6. Deep Thoughts  4:00 
+7. Independence  3:50 
+8. Neverending hope  4:53 
+
+
+### "Egocentric" 2003, Gothic
+
+1.  Life Can Be  
+2.  Poster On A Wall  
+3.  Afraid To Believe  
+4.  Unsung Songs  
+5.  Lack In Resorts  
+6.  Gallant Nights  
+7.  When I'm Gone  
+8.  Rampant Of K-ism  
+9.  Dawn Of Loss  
+10.  Quotation For Listening
+
 
 ## Отношения с другими группами
 

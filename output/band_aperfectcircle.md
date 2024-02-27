@@ -1,10 +1,61 @@
 # A Perfect Circle
 
-Дискография
-"Mer de Noms" 2000, Rock
-"Thirteenth Step" 2003, Rock
-"eMOTIVe" 2004, Alternative
-"Three Sixty (Compilation)" 2013, Alternative
+
+
+## Дискография
+
+### "Mer de Noms" 2000, Rock
+
+Billy Howerdel composer and guitar
+Maynard James Keenan words and vocals
+Josh Freese drums
+Jeordie White bass guitar
+James Iha guitar
+
+### "Thirteenth Step" 2003, Rock
+
+
+
+### "eMOTIVe" 2004, Alternative
+
+1 Annihilation   
+2 Imagine   
+3 (What’s So Funny ’Bout) Peace Love And Understanding   
+4 What’s Going On  
+5 Passive   
+6 Gimmie Gimmie Gimmie   
+7 People are People  
+8 Freedom of Choice   
+9 Let’s Have A War   
+10 Counting Bodies Like Sheep to the Rhythm of the War Drums   
+11 When the Levee Breaks   
+12 Fiddle and the Drum 
+
+
+### "Three Sixty (Compilation)" 2013, Alternative
+
+CD1:
+ 1. The Hollow
+ 2. Rose
+ 3. Judith
+ 4. Orestes
+ 5. 3 Libras
+ 6. The Package
+ 7. Weak And Powerless
+ 8. The Noose
+ 9. The Outsider
+ 10. Blue
+ 11. Imagine
+CD2:
+ 1. Passive
+ 2. People Are People (Live)
+ 3. Counting Bodies Like Sheep To The Rhythm Of The War Drums
+ 4. When The Levee Breaks
+ 5. By And Down
+ 6. 3 Libras (Live)
+ 7. Gravity (Live)
+ 8. Fiddle and The Drum (Live)
+
 
 ## Отношения с другими группами
 

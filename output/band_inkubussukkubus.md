@@ -1,17 +1,175 @@
 # Inkubus Sukkubus
 
-Дискография
-"Belladonna & Aconite" 1993, Gothic
-"Wytches" 1994, Gothic
-"Heartbeat of the Earth" 1995, Gothic
-"Beltaine" 1996, Gothic
-"Vampyre Erotica" 1997, Gothic
-"Away with the Faeries" 1998, Gothic
-"Wild" 1999, Gothic
-"Supernature" 2001, Gothic
-"Away with the Faeries (Re-release)" 2001, Gothic
-"Wytches (Re-release)" 2002, Gothic
-"The Beast With Two Backs" 2003, Gothic
+Pagan gothic rock
+
+## Дискография
+
+### "Belladonna & Aconite" 1993, Gothic
+
+I . Beltaine 
+II. Midnight Queen 
+III. Trinity 
+IV. Belladonna & Aconite 
+V. Soul Inside 
+VI. Song of the Siren 
+VII. Vampyres 
+VIII. Eternity 
+IX. Incubus 
+X. All the Devil's Men 
+XI. I am the One 
+XII. Old Hornie 
+XIII. Vlad 
+XIV. Samhain 
+  
+
+
+### "Wytches" 1994, Gothic
+
+1. Wytches
+ 2. Queen Of The May
+ 3. Pagan Born
+ 4. Gypsy Lament
+ 5. Leveller
+ 6. Call Out My Name
+ 7. Conquistadors
+ 8. Burning Times
+ 9. Song To Pan
+10. Enchantment
+11. Catherine
+12. Church Of Madness
+13. Tha Rape Of Maude Bowen
+14. Dark Mother
+15. Devils
+
+(C) 1994
+
+### "Heartbeat of the Earth" 1995, Gothic
+
+  1. Heartbeat Of The Earth
+  2. Young Lovers
+  3. Underworld
+  4. Prince Of Shadows
+  5. Craft Of The Wise
+  6. Corn King
+  7. Witch Hunt (Fly, Sister, Fly)
+  8. Fire Of Love
+  9. Love Spell
+ 10. Song For Our Age
+ 11. Intercourse With The Vampyre
+ 12. Sabrina
+ 13. Catherine
+ 14. Take My Hunger
+
+
+### "Beltaine" 1996, Gothic
+
+I . Beltaine
+II. Wytches
+III. Pagan Born
+IV. Song to Pan
+V. Goblin Jig
+VI. Midnight Queen
+VII. Trinity
+VIII. I am the One
+IX. Vampyre Kiss
+X. Wytches II
+XI. In Defence
+XII. Burning Times
+XIII. The Leveller
+XIV. Church of Madness
+XV. Wytches (chant)
+
+### "Vampyre Erotica" 1997, Gothic
+
+I . Heart of Lilith 
+II. Woman to Hare 
+III. Hail the Holly King 
+IV. Wake of the Christian Knights 
+V. Paint it Black 
+VI. All Along the Crooked Way 
+VII. The Witch of Berkeley 
+VIII. Danse Vampyre 
+IX. Vampyre Erotica 
+X. Wild Hunt 
+XI. Sweet Morpheus 
+XII. Hell-fire 
+XIII. Whore of Babylon
+
+### "Away with the Faeries" 1998, Gothic
+
+1). Wytches Chant '98 
+2). Away with the Faeries 
+3). Come to Me 
+4). Turnera 
+5). Starchild 
+6). Io Pan 
+7). Woman to Hare * 
+8). Paint it Black * 
+9). Craft of the Wise * 
+10). Heartbeat of the Earth * 
+11). Witch Hunt * 
+12). Queen of the May * 
+13). Take my Hunger * 
+14). Vampyre Erotica * 
+15). Belladonna & Aconite *
+
+### "Wild" 1999, Gothic
+
+1. Rune
+2. Wounded
+3. Kiss of Hades
+4. Struwwelpeter
+5. Bright Star
+6. Lord of the Flame
+7. Aradia
+8. Storm
+9. Smile of Torment
+10. Reptile
+11. Nymphomania
+12. Lammas Song
+13. Wild
+14. Delilah
+15. Atrocity (Bonus track)
+
+### "Supernature" 2001, Gothic
+
+1. Supernature
+2. Lucifer Rising
+3. Take the Kiss
+4. Fey 
+5. Hang Around
+6. Concubine
+7. Vermilion Rush
+8. Whore of Heaven
+9. Wings of Desire
+10. We Belong with the Dead
+11. Preacher Man
+12. Gypsies, Tramps & Thieves
+
+### "Away with the Faeries (Re-release)" 2001, Gothic
+
+
+
+### "Wytches (Re-release)" 2002, Gothic
+
+
+
+### "The Beast With Two Backs" 2003, Gothic
+
+1 Hecate Cerrydwyn
+2 Lily Bolane 
+3 Star of Venus 
+4 Hedonistic Gene 
+5 Vampyra
+6 The Beast with two Backs
+7 Can't get you out of my Head 
+8 Vampyre Punk Rockers from Hell 
+9 She is gone 
+10 City of the Dead 
+11 Take my Lust 
+12 Erotic Angel 
+13 Jagermeister
+
 
 ## Отношения с другими группами
 

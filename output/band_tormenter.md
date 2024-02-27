@@ -1,7 +1,24 @@
 # Tormenter
 
-Дискография
-"Pulse Of Terror" 2010, Thrash
+US thrash-metal
+
+## Дискография
+
+### "Pulse Of Terror" 2010, Thrash
+
+1. Gallery of Reality
+2. Absolution
+3. No Anesthesia 
+4. Pulse of Terror 
+5. Hunger For Violence 
+6. Messiah On Trial 
+7. Inhumanity Personified 
+8. A Season in the Plague  
+9. Severe Enforcement
+10. Assault from Beyond the Grave
+11. Dismantle the World 
+12. Pantheon of Lunacy
+
 
 ## Отношения с другими группами
 

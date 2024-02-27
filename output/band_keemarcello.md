@@ -1,10 +1,25 @@
 # Kee Marcello
 
-Дискография
-"Shine On" 1995, Hard Rock
-"Redux: Europe" 2011, Hard Rock
-"Judas Kiss" 2013, Hard Rock
-"Scaling Up" 2016, Hard Rock
+
+
+## Дискография
+
+### "Shine On" 1995, Hard Rock
+
+
+
+### "Redux: Europe" 2011, Hard Rock
+
+
+
+### "Judas Kiss" 2013, Hard Rock
+
+
+
+### "Scaling Up" 2016, Hard Rock
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,51 @@
 # Seventh One
 
-Дискография
-"Sacrifice" 2002, Power Metal
-"What Should Not Be" 2004, Power Metal
+
+
+## Дискография
+
+### "Sacrifice" 2002, Power Metal
+
+1. Spiritual Awakening (Intro)
+2. Eternal Life In Lies
+3. Sacrifice
+4. The Seventh Eye
+5. Hallowed Ground
+6. Eternally
+7. The Fall
+8. Remembrance
+9. Crimson Sky
+10. Shadow Of Your Soul
+
+All songs written by SEVENTH ONE
+Produced, engineered and mixed by Lars Ratz for Armageddon Products
+Recorded and mixed between Feb - July 2002 at Tornado Studio Hamburg, Germany
+Mastered by Lars Ratz and Chris von Rautenkranz at Soundgarden Mastering, Hamburg
+Keyboards by Peter "Pewe" Werner, additional Keyboards by Lars Ratz
+All songs published by Tornado International / Warner Chappell
+Front cover art by Markus Mayer
+Design & Layout by DawnLand Design Inc
+
+
+Rino Fredh - Lead and Background Vocals
+Christoffer Hermansson - Guitars
+Johannes Losback - Guitars and Backgound Vocals
+Jorgen Olsson - Bass
+Tobias R.Kellgren - Drums
+
+### "What Should Not Be" 2004, Power Metal
+
+01. Eyes Of The Nation 
+02. How Many Years 
+03. Mercenaries Call 
+04. Ancient Oath 
+05. Gallows Pole 
+06. Awaken Visions 
+07. What Should Not Be 
+08. Where Infinity Ends 
+09. Shattered Glass 
+10. Scattered (bonus track, Japan)
+
 
 ## Отношения с другими группами
 

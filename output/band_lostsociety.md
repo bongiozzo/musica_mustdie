@@ -1,9 +1,58 @@
 # Lost Society
 
-Дискография
-"Fast Loud Death" 2013, Thrash
-"Terror Hungry" 2014, Thrash
-"Brain Dead" 2016, Thrash
+
+
+## Дискография
+
+### "Fast Loud Death" 2013, Thrash
+
+01. N.W.L.
+02. Trash All Over You
+03. E.A.G.
+04. KILL (Those Who Oppose Me)
+05. Bitch, Out’ My Way
+06. Fast Loud Death
+07. Lead Through The Head
+08. Diary Of A Thrashman
+09. Toxic Avenger
+10. This Is Me
+11. Braindead Metalhead
+12. Piss Out My Ass
+13. Fatal Anoxia
+
+Bonus tracks:
+14. Escape From Delirium
+15. I Stole Your Love
+
+### "Terror Hungry" 2014, Thrash
+
+01. Spurgatory  01:31    
+02. Game Over  04:13
+03. Attaxic  03:52   
+04. Lethal Pleasure  04:01    
+05. Terror Hungry  02:57  
+06. Snowroad Blowout  03:02  
+07. Tyrant Takeover  05:30   
+08. Overdosed Brain  05:08 
+09. Thrashed Reality  03:35    
+10. F.F.E.  02:40
+11. Brewtal Awakening  05:13    
+12. Mosh It Up  03:53  
+13. Wasted After Midnight  03:20    
+
+### "Brain Dead" 2016, Thrash
+
+01. I Am The Antidote
+02. Riot
+03. Mad Torture
+04. Hollow Eyes
+05. Rage Me Up
+06. Hangover Activator
+07. Only (My) Death Is Certain
+08. P.S.T.88
+09. Terror Hungry (Californian Easy Listening Version)
+10. Overdosed Brain (Live)
+
 
 ## Отношения с другими группами
 

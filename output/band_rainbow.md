@@ -1,15 +1,217 @@
 # Rainbow
 
-Дискография
-"Ritchie Blackmore's Rainbow" 1975, Hard Rock
-"Rainbow Rising" 1976, Hard Rock
-"On Stage" 1977, Hard Rock
-"Long Live Rock'n'Roll" 1978, Hard Rock
-"Down To Earth" 1979, Hard Rock
-"Difficult To Cure" 1981, Hard Rock
-"Straight Between The Eyes" 1982, Hard Rock
-"Bent Out Of Shape" 1983, Hard Rock
-"Stranger In Us All" 1995, Hard Rock
+(Hard-rock Legend)
+
+## Дискография
+
+### "Ritchie Blackmore's Rainbow" 1975, Hard Rock
+
+1 Man On The Silver Mountain 4:37 (Richie Blackmore's) 
+2 Self Portrait 3:12 (Richie Blackmore's) 
+3 Black Sheep Of The Family 3:19 (Richie Blackmore's) 
+4 Catch the Rainbow 6:36 (Richie Blackmore's) 
+5 Snake Charmer 4:30 (Richie Blackmore's) 
+6 Temple of the King 4:42 (Richie Blackmore's) 
+7 If You Don'T Like Rock & Roll 2:36 (Richie Blackmore's) 
+8 Sixteenth Century Greensleeves 3:29 (Richie Blackmore's) 
+9 Still I'm Sad 3:53 (Richie Blackmore's) 
+
+
+ Ritchie Blackmore - guitar
+ Ronnie James Dio - vocals
+ Gary Driscoll - drums
+ Craig Gruber - bass
+ Micky Lee Soule - keyboards
+
+
+
+### "Rainbow Rising" 1976, Hard Rock
+
+1. Tarot Woman
+2. Run With The Wolf
+3. Starstruck
+4. Do You Close Your Eyes
+5. Stargazer
+6. Light In The Black
+
+
+Ritchie Blackmore - guitar
+
+Ronnie James Dio - vocals
+
+Cozy Powell - drums
+
+Jimmy Bain - bass
+
+Tony Carey - keyboards
+
+
+### "On Stage" 1977, Hard Rock
+
+1 Kill the King 5:31 (Rainbow) 
+2 Medley: Man On The Silver Mountain/Blues/Starstruck 11:15 (Rainbow) 
+3 Catch the Rainbow 15:36 (Rainbow) 
+4 Mistreated 13:07 (Rainbow) 
+5 Sixteenth Century Greensleeves 7:37 (Rainbow) 
+6 Still I'm Sad 11:05 (Rainbow 
+
+
+### "Long Live Rock'n'Roll" 1978, Hard Rock
+
+1. Long Live Rock'n'Roll
+2. Lady Of The Lake
+3. L.A. Connection
+4. Gates Of Babylon
+5. Kill The King
+6. The Shed ( Subtle )
+7. Sensitive To Light
+8. Rainbow Eyes
+
+
+Ritchie Blackmore - guitar
+
+Ronnie James Dio - vocals
+
+Cozy Powell - drums
+
+Bob Daisley - bass
+
+David Stone - keyboards
+
+
+### "Down To Earth" 1979, Hard Rock
+
+1. All Night Long
+2. Eyes Of The World
+3. No Time To Lose
+4. Makin' Love
+5. Since You Been Gone
+6. Love's No Friend
+7. Danger Zone
+8. Lost In Hollywood
+
+
+Ritchie Blackmore - guitar
+
+Graham Bonnet - vocals
+
+Cozy Powell - drums
+
+Roger Glover - bass
+
+Don Airey - keyboards
+
+ 
+
+
+### "Difficult To Cure" 1981, Hard Rock
+
+1. I Surrender
+2. Spotlight Kid
+3. No Release
+4. Magic
+5. Vielleicht Das Naechste Mal
+6. Can't Happen Here
+7. Freedom Fighter
+8. Midtown Tunnel Vision
+9. Difficult To Cure
+
+
+
+Ritchie Blackmore - guitar
+
+Joe Lynn Turner - vocals
+
+Bob Rondinelli - drums
+
+Roger Glover - bass
+
+Don Airey - keyboards
+
+ 
+
+
+### "Straight Between The Eyes" 1982, Hard Rock
+
+1. Death Alley Driver
+2. Stone Cold
+3. Bring On The Night (Dream Chaser)
+4. Tite Squeeze
+5. Tearin' Out My Heart
+6. Power
+7. MISS Mistreated
+8. Rock Fever
+9. Eyes Of Fire
+
+
+Ritchie Blackmore - guitar
+
+Joe Lynn Turner - vocals
+
+Bob Rondinelli - drums
+
+Roger Glover - bass
+
+David Rosenthal - keyboards
+
+ 
+
+
+### "Bent Out Of Shape" 1983, Hard Rock
+
+1. Stranded
+2. Can't Let You Go
+3. Fool For The Night
+4. Fire Dance
+5. Anybody There
+6. Desperate Heart
+7. Street Of Dreams
+8. Drinking With The Devil
+9. Snowman
+10. Make Your Move
+
+
+Ritchie Blackmore - guitar
+
+Joe Lynn Turner - vocals
+
+Chuck Burgi - drums
+
+Roger Glover - bass
+
+David Rosenthal - keyboards
+
+
+### "Stranger In Us All" 1995, Hard Rock
+
+1. Wolf To The Moon
+2. Cold Hearted Woman
+3. Hunting Humans (Insatiable)
+4. Stand And Fight
+5. Ariel
+6. Too Late For Tears
+7. Black Masquerade
+8. Silence
+9. Hall Of The Mountain King
+10. Still I'm Sad
+
+
+
+Ritchie Blackmore - guitar
+
+Doogie White - vocals
+
+Candice Night - vocals
+
+John O.Reilly - drums
+
+Greg Smith - bass
+
+Paul Morris - keyboards
+
+ 
+
+
 
 ## Отношения с другими группами
 

@@ -1,23 +1,280 @@
 # Ministry
 
-Дискография
-"With Sympathy" 1983, Industrial
-"Twitch" 1986, Industrial
-"The Land Of Rape And Honey" 1988, Industrial
-"The Mind Is A Terrible Thing To Taste" 1989, Industrial
-"In Case You Didn't Feel Like Showing Out (Live)" 1990, Industrial
-"Psalm 69" 1992, Industrial
-"Just One Fix" 1992, Industrial
-"Filth Pig" 1996, Industrial
-"The Fall / Reload" 1996, Industrial
-"The Dark Side Of The Spoon" 1999, Industrial
-"Animositisomina" 2003, Industrial
-"Houses Of The Mole" 2004, Industrial
-"Rantology" 2005, Industrial
-"Rio Grande Blood" 2006, Industrial
-"The Last Sucker" 2007, Industrial
-"Relapse" 2012, Industrial
-"From Beer to Eternity" 2013, Industrial
+
+
+## Дискография
+
+### "With Sympathy" 1983, Industrial
+
+1. Work For Love
+2. Do The Etawa
+3. I Wanted To Tell Her *
+4. Say You're Sorry
+5. Here We Go
+6. Effigy
+7. Revenge
+8. She's Got A Cause
+9. Should Have Known Better
+
+ Alain Jourgensen
+ Stephen George
+
+All Songs By A.Jourgensen
+Except * By A.Jourgensen & Shay Jones
+Produced By Ian Taylor & Vince Ely
+Engineered By Ian,David Wooley & Flood
+Recorded At Syncro Sound Studios, Boston
+
+(p)&(c) 1983 ARISTA Records, Inc
+
+### "Twitch" 1986, Industrial
+
+1. Just Like You
+2. We Believe
+3. All Day Remix
+4. Where You At Now ? / Crash And Burn / Twitch (Version II)
+5. The Angel
+6. Over The Shoulder
+7. My Possession
+8. Over The Shoulder   (12" Version)
+9. Isle Of Men     (Version II)
+
+ A.Jourgensen
+ S.George
+
+All Songs By A.Jourgensen
+
+(p)&(c) 1986 SIRE Records Comp.
+
+### "The Land Of Rape And Honey" 1988, Industrial
+
+1. Stigmata 5.45
+2. The Missing 2.55
+3. Deity 3 20
+4. Golden Dawn 5 42
+5. Destruction 3.30
+6. Hizbollah 3.58
+7. The Land Of Rape And Honey 5.10
+8. You Know What You Are 4.43
+9. I Prefer 2.15
+10.Flashback 4 50
+11.Abortive 4.23 *
+
+ Alan Jourgenson
+ Paul Barker
+
+(P)(c) 1988 SIRE Records
+
+### "The Mind Is A Terrible Thing To Taste" 1989, Industrial
+
+1. Thieves
+2. Burning Inside
+3. Never Believe
+4. Cannibal Song
+5. Breathe
+6. So What
+7. Test
+8. Faith Collapsing
+9. Dream Song
+
+ Alien Jourgensen - Vocals, Guitars, Programming
+ Paul Barker - Bass, Programming
+
+Produced By Hypo Luxa & Hermes Pan
+Engineered By Keith Auerbach, David Ogilvie & Jeff Newell
+Recorded & Mixed At Chicago Trax Studios
+
+(p)&(c) 1989 SIRE Records Comp.
+
+### "In Case You Didn't Feel Like Showing Out (Live)" 1990, Industrial
+
+1. The Missing
+2. Deity
+3. So What
+4. Burning Inside
+5. Thieves
+6. Stigmata
+
+Produced By Luxa / Pan
+
+(p)&(c) 1990 SIRE Records
+
+### "Psalm 69" 1992, Industrial
+
+1. N.W.O.
+2. Just One Fix
+3. TV II
+4. Hero
+5. Jesus Built My Hotrod
+6. Scare Crow
+7. Psalm 69
+8. Corrosion
+9. Grace
+
+All Songs Written By MINISTRY
+Produced By Luxa / H.Pan
+
+(p)&(c) 1992 SIRE Records Comp.
+
+### "Just One Fix" 1992, Industrial
+
+1. Just One Fix (12 " Edit)
+2. Just One Fix (Video Edit)
+3. Quick Fix
+
+Produced By Luxa/ Pan
+Engineers: Critter Newell & Paulo Manno
+
+(p)&(c) 1992 SIRE Records
+
+### "Filth Pig" 1996, Industrial
+
+1. Reload
+2. Filth Pig 
+3. Lava
+4. Crumb
+5. Useless
+6. Dead Guy
+7. Game Show
+8. The Fall
+9. Lay Lady Lay
+10. Brick Windows
+
+All Songs Written By MINISTRY
+Produced By Luxa / H.Pan
+
+(P)&(C) 1996 WARNER BROS Records
+
+### "The Fall / Reload" 1996, Industrial
+
+1. The Fall (Single Version)
+2. Reload (Long Edit)
+3. TV III
+
+All songs written by MINISTRY
+Produced by Hypo Luxa and Hemes Pan
+
+Alain Jourgensen : vox,gtrs,kbds
+Paul Barker : bass,programming,vox
+
+(p)(c) 1996 WARNER BROS. Records
+
+### "The Dark Side Of The Spoon" 1999, Industrial
+
+
+
+### "Animositisomina" 2003, Industrial
+
+1. Animosity
+2. Unsung
+3. Piss
+4. Lockbox
+5. Broken
+6. The Light Pours Out of Me
+7. Shove
+8. Impossible
+9. Stolen
+10. Leper
+
+### "Houses Of The Mole" 2004, Industrial
+
+1. No W
+2. Waiting
+3. Worthless
+4. Wrong
+5. Warp City
+6. WTV
+7. World
+8. WKYJ
+9. Worm
+10. Psalm 23
+11. Walrus
+
+### "Rantology" 2005, Industrial
+
+
+
+### "Rio Grande Blood" 2006, Industrial
+
+01. Rio Grande Blood 
+02. Seсor Peligro
+03. Gangreen (featuring Sgt. Major) 
+04. Fear (Is Big Business) 
+05. Lieslieslies 
+06. The Great Satan Remix 
+07. Yellow Cake 
+08. Palestina 
+09. Ass Clown (featuring Jello Biafra)
+10. Khyber Pass
+
+### "The Last Sucker" 2007, Industrial
+
+1. Let's Go 04:52  
+2. Watch Yourself 05:28  
+3. Life is Good 04:15  
+4. The Dick Song 05:50 
+5. The Last Sucker 05:59  
+6. No Glory 03:41
+7. Death & Destruction 03:31
+8. Roadhouse Blues (Doors cover) 04:26  
+9. Die in a Crash 04:03 
+10. End of Days Part One 03:22 
+11. End of Days Part Two 10:26 
+
+
+Produced by : Alien Jourgensen & Dave Donnelly
+Engineered by : John Bilberry
+Recorded & Mixed at 13th Planet Studios, El Paso, TX
+Drum Programming : Alien Jourgensen & John Bilberry
+Mastered by Dave Donnelly/DNA Mastering, Studio City, CA
+Art Direction, Design & Layout : Lawton Outlaw
+
+Al Jourgensen - voices & various instruments
+Tommy Victor - guitar
+Mike Scaccia - guitar
+Sin - guitar
+Paul Raven - bass
+Joey Jordison - drums
+John Bechdel - keyboards
+According to an interview with Al Jourgensen, "The Last Sucker" will be the
+last studio album ever recorded by Ministry.
+
+Fear Factory frontman Burton C. Bell contributed vocals on "Die in a Crash",
+and "End of Days Parts One and Two".
+Casey Chaos (Amen, Scum (Nor)) : vocal on "Roadhouse Blues".
+
+### "Relapse" 2012, Industrial
+
+1. Ghouldiggers
+2. Double Tap
+3. FreeFall
+4. Kleptocracy
+5. United Forces (S.O.D. cover)
+6. 99 Percenters
+7. Relapse
+8. Weekend Warrior
+9. Git up Get Out 'n Vote
+10. Bloodlust
+11. Relapse Defibrillator Mix (Special Limited Edition)
+
+### "From Beer to Eternity" 2013, Industrial
+
+1. Hail To His Majesty
+2. Punch In The Face
+3. PermaWar
+4. Perfect Storm
+5. Fairly Unbalanced
+6. The Horror
+7. Side FX include Mikey's Middle Finger (T.V.4)
+8. Lesson Unlearned
+9. Thanx But No Thanx
+10. Change Of Luck
+11. Enjoy The Silence 
+
+
+This is going to be Ministry's final album. 
+It was recorded and finished right before the death of guitarist Mike Scaccia. 
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,32 @@
 # Decomposed
 
-Дискография
-"Hope Finally Died ..." 1994, Deathcore
+
+
+## Дискография
+
+### "Hope Finally Died ..." 1994, Deathcore
+
+1. Inscriptions
+2. Taste The Dying
+3. Falling Apart
+4. At Rest
+5. Instrumental
+6. Procession
+7. (Forever) Lying In State
+
+ Harry Armstrong - Bass, Vocals
+ Pete Snasdell - Rhythm Guitar
+ James Ogawa - Lead Guitar
+ Tim Spear  - Drums
+
+All Music By DECOMPOSED
+All Lyrics By Harry Armstrong
+Produced By Paul Johnson
+Recorded At Rhythm Studio, Bidford-On-Avon,
+April 1993
+
+(p)&(c) 1994 CANDLE LIGHT Records
+
 
 ## Отношения с другими группами
 

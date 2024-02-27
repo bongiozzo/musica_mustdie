@@ -1,7 +1,21 @@
 # Mortal Torment
 
-Дискография
-"Resuscitation" 2011, Death Metal
+
+
+## Дискография
+
+### "Resuscitation" 2011, Death Metal
+
+1. Amphetamine Murder 
+2. Exhumed Tormentors	 
+3. Chainsaw Revenge	 
+4. Decomposition in Vomit 
+5. Mortal Torment 
+6. Profane	 
+7. Infernal Audium Schizophrenia 
+8. Resuscitation	 
+9. Carnivorous Surgery
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,28 @@
 # Blotted Science
 
-Дискография
-"The Machinations of Dementia" 2007, Instrumental
+
+
+## Дискография
+
+### "The Machinations of Dementia" 2007, Instrumental
+
+1. Synaptic Plasticity
+2. Laser Lobotomy
+3. Brain Fingerprinting
+4. Oscillation Cycles
+5. Activation Synthesis Theory
+6. REM
+7. Night Terror
+8. Bleeding In The Brain
+9. Vegetation
+10. Narcolepsy
+11. EEG Tracings
+12. Sleep Deprivation
+13. The Insomniac
+14. Amnesia
+15. Adenosine Breakdown	
+16. Adenosine Buildup
+
 
 ## Отношения с другими группами
 

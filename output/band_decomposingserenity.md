@@ -1,6 +1,9 @@
 # Decomposing Serenity
 
-Дискография
+sick grindcore
+
+## Дискография
+
 
 ## Отношения с другими группами
 

@@ -1,11 +1,72 @@
 # Havok
 
-Дискография
-"Burn" 2009, Thrash
-"Time Is Up" 2011, Thrash
-"Point Of No Return" 2012, Thrash
-"Unnatural Selection" 2013, Thrash
-"Conformicide" 2017, Thrash
+
+
+## Дискография
+
+### "Burn" 2009, Thrash
+
+01. Wreckquiem (1:35)
+02. The Root Of Evil (5:33)
+03. Path To Nowhere (3:41)
+04. Morbid Symmetry (4:55)
+05. Identity Theft (4:43)
+06. The Disease (4:27)
+07. Scabs Of Trust (4:46)
+08. Ivory Tower (3:48)
+09. To Hell (4:10)
+10. Category Of The Dead (5:36)
+11. Melting The Mountain (2:43)
+12. Afterburner (3:26)
+
+### "Time Is Up" 2011, Thrash
+
+01. Prepare For Attack (03:57)
+02. Fatal Intervention (04:28)
+03. No Amnesty (03:30)
+04. D.O.A. (03:43)
+05. Covering Fire (04:15)
+06. Killing Tendencies (05:32)
+07. Scumbag In Disguise (04:34)
+08. The Cleric (04:46)
+09. Out Of My Way (03:20)
+10. Time Is Up (04:00) 
+
+### "Point Of No Return" 2012, Thrash
+
+01. Point Of No Return (4:37)
+02. Cradle To The Grave (5:02)
+03. Arise (Sepultura cover) (3:25)
+04. Postmortem/Raining Blood (Slayer cover) (7:17)
+
+### "Unnatural Selection" 2013, Thrash
+
+01. I Am The State
+02. Give Me Liberty… Or Give Me Death
+03. It Is True
+04. Under The Gun
+05. Waste Of Life
+06. Living Nightmare
+07. Chasing The Edge
+08. Worse Than War
+09. Children Of The Grave (Black Sabbath cover)
+10. Unnatural Selection
+
+### "Conformicide" 2017, Thrash
+
+01. F.P.C.
+02. Hang 'Em High
+03. Dogmaniacal
+04. Intention to Deceive
+05. Ingsoc
+06. Masterplan
+07. Peace Is In Pieces
+08. Claiming Certainty
+09. Wake Up
+10. Circling the Drain
+11. String Break
+12. Slaughtered (Pantera cover)
+
 
 ## Отношения с другими группами
 

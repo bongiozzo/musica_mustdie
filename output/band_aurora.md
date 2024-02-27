@@ -1,11 +1,55 @@
 # Aurora
 
-Дискография
-"Iґll Cry Alone" 1997, Death Metal
-"Sadiam" 1998, Death Metal
-"Eos" 1998, Death Metal
-"Devotion" 2000, Melodic Death Metal
-"Dead Electric Nightmares" 2002, Melodic Death Metal
+
+
+## Дискография
+
+### "Iґll Cry Alone" 1997, Death Metal
+
+
+
+### "Sadiam" 1998, Death Metal
+
+
+
+### "Eos" 1998, Death Metal
+
+
+
+### "Devotion" 2000, Melodic Death Metal
+
+
+
+### "Dead Electric Nightmares" 2002, Melodic Death Metal
+
+1. Black Heavy Cat 
+2. Metaphysical Electric 
+3. New God Rising 
+4. Martyr Of Life 
+5. A Perfect Light 
+6. Watching, Falling, Breathing 
+7. Two Dice And A Silent Disguise 
+8. Causa Sui 
+9. Jack 
+10. Chains Of God 
+
+Anders Vestergaard - Guitar
+Carsten Terp - Bass
+Claus Frolund - Vocals
+Morten G. Sorensen - Drums
+Thomas Broberg - Guitar
+
+Recorded in Aabenraa Studiet November 2001. 
+Produced, engineered and mixed by Jacob Hansen and Aurora.
+
+Lyrics by Claus Frolund. 
+Music by Anders Vestergaard and Carsten Terp.
+Artwork and layout by Chaos Design.
+
+Photos by Nick Hunter. 
+
+
+
 
 ## Отношения с другими группами
 

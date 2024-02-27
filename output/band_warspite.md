@@ -1,8 +1,17 @@
 # Warspite
 
-Дискография
-"We Are With God (7'' EP)" 1999, Death Metal
-"Gallery of the Macabre" 2003, Death Metal
+Death Metal from Germany
+
+## Дискография
+
+### "We Are With God (7'' EP)" 1999, Death Metal
+
+
+
+### "Gallery of the Macabre" 2003, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

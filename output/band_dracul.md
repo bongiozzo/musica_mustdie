@@ -1,9 +1,70 @@
 # Dracul
 
-Дискография
-"Die Hand Gottes" 1994, Gothic
-"Speichel Und Blut" 1999, Gothic
-"Follow Me" 2003, Gothic
+
+
+## Дискография
+
+### "Die Hand Gottes" 1994, Gothic
+
+01.Intro (Bloody Night)
+02.Queen Of The Night
+03.Land Of Sun
+04.Hand Of God
+05.Dracul
+06.Seelen Sex
+07.No Church
+08.Church Song
+09.Outro
+
+Mozart - vocals, lyrics
+
+Music: DRACUL
+VOICES / LYRICS: MOZART
+PROGRAMMING, LOOPS: ALEX PERIN
+MIXING-PRODUKTION: P+R TONSTUDIO FREIBURG
+EXECUTIVE PRODUCTION: ALEX PERIN / MOZART
+COVER MODEL / VOICES: KRIS
+PHOTOS: NICOLAS PLAKIDAS MUNCHEN FON 089/1 236849
+COVERKONZEPT AND DESIGN: LOGO WERBEKOMMUNICATION,
+KARLSRUHE FON 07 21 / 85 97 00
+SPECIAL THANKS To: PAT JONES, WALDO, MY
+WOLFSWOMEN, ROB FROM "VAMPIRE INTERNATIONAL" AND
+ALL VAMPIRES OF THE WORLD
+GUEST MUSICAN: JULIUS RENNER: DRUMS NAIL:
+KEYBOARDS KLAUS: BANDMOTIVATION
+MARKETED BY: SPIRIT PRODUKTION KARLSRUHE SPECIAL
+GREETINGS: ALL THE VAMPIRES
+OF THE DAY AND NIGHT!
+
+### "Speichel Und Blut" 1999, Gothic
+
+01. Prolog: Spiechel und Blut
+02. Spiechel und Blut
+03. Human Bastard
+04. Das letzte Gebet der Maria Stuart
+05. Child In The Womb
+06. tanzen
+07. Zum Lobe das Herrn
+08. Choral Eins
+09. Die grofe Leere
+10. Der Sinn des lebens
+11. Angie
+12. Epilog: Der Alptraum
+
+### "Follow Me" 2003, Gothic
+
+01. Follow Me
+02. Der Garten
+03. Erlkonig
+04. Gothic Blues
+05. Das Netzwerk
+06. Sommerlied
+07. leben
+08. Weck das Tier
+09. Macht
+10. Knochenball
+11. Zum Lobe des Herrn
+
 
 ## Отношения с другими группами
 

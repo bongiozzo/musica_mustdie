@@ -1,7 +1,45 @@
 # Dismembered Fetus
 
-Дискография
-"Generation Of Hate" 1996, Grindcore
+Very extremal noisy harsh grindcore with the elements of hardcore (like Cerebral Turbulency)
+
+## Дискография
+
+### "Generation Of Hate" 1996, Grindcore
+
+01. Intro 1
+02. Maggots
+03. Noise 1
+04. Colfax
+05. Noise 2
+06. Ebole
+07. Noise 3
+08. Bloody Vomit
+09. Noise 4
+10. Ode To Nathan
+11. Noise 5
+12. Beaten To Death
+13. Noise 6
+14. Whores
+15. Noise 7
+16. Shit On Everyone
+17. Noise 8
+18. Panic Attack 
+19. Noise 9 
+20. Dogrape 
+21. Lesbian Grandma 
+22. Ooka Mooka (Festering Puke Cover) 
+23. Bloody Vaginal Discharge 
+24. Noise 10 
+25. Gutted 
+26. Noise 11 
+27. Godfuk 
+28. Noise 12 
+29. Violent Planet 
+30. Noise 13 
+31. Generation Of Hate
+
+(c)&(p) 1996 Pibeoneck Records
+
 
 ## Отношения с другими группами
 

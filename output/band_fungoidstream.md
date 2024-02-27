@@ -1,8 +1,27 @@
 # Fungoid Stream
 
-Дискография
-"Celaenus Fragments" 2004, Doom
-"Oceanus" 2010, Doom
+
+
+## Дискография
+
+### "Celaenus Fragments" 2004, Doom
+
+1. The Book
+2. The Key
+3. The Howler
+4. Celaenus Fragments
+5. The Window
+
+### "Oceanus" 2010, Doom
+
+1. Star Winds 05:52  
+2. Antarktos 07:31  
+3. The Gardens of Yin 06:52  
+4. Interlude - The Pnakotic Manuscripts 02:21  
+5. Night-Gaunts 05:18  
+6. Oceanus 07:36  
+7. Nemesis 06:48 
+
 
 ## Отношения с другими группами
 

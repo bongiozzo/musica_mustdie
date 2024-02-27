@@ -1,10 +1,63 @@
 # Legen Beltza
 
-Дискография
-"Istorio Triste Bat" 2001, Thrash
-"Insanity" 2003, Thrash
-"Dimension Of Pain" 2006, Thrash
-"Need To Suffer" 2010, Thrash
+
+
+## Дискография
+
+### "Istorio Triste Bat" 2001, Thrash
+
+1. Alaitz infernuan	 
+2. Heriotz antzerkia	 
+3. Braulio	 
+4. Hizkuntza	 
+5. Ikus gabea	 
+6. Maitasunaren indarra	 
+7. Iсor jauna		 
+8. Mio	 
+9. Bidegurutzean	 
+10. Paranoia	 
+11. Nebaren galdera
+
+### "Insanity" 2003, Thrash
+
+1. Hate
+2. Legen Beltza
+3. Insanity
+4. Black Star
+5. Dying
+6. Nuclear Winter
+7. Klaustrophobia
+8. Eternal Life
+9. Alaitz	 
+10. Only Human
+11. Awaits You
+
+### "Dimension Of Pain" 2006, Thrash
+
+1. Cannibalistic Revolution	 
+2. Meet Me In The Dark	 
+3. Fucking Dawn of The Dead	 
+4. When the Moon Falls	 
+5. Dimension of Pain	 
+6. Calling the Black Storm	 
+7. Satanic Neighborhood	 
+8. Ilunpean Dituzu	 
+9. War of Wars	 
+10. War of Wars (Hope without Hope)
+
+### "Need To Suffer" 2010, Thrash
+
+1. Vaporized	 
+2. Deathpidemic	 
+3. Midnight meat train	 
+4. Adan’s children	 
+5. Suicide	 
+6. Church burning	 
+7. Death control	 
+8. Global dictatorship	 
+9. Mutant from the red hill		 
+10. Amaierarik ez da
+
 
 ## Отношения с другими группами
 

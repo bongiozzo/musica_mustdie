@@ -1,7 +1,34 @@
 # Graveside
 
-Дискография
-"Sinful Accession" 1993, Deathcore
+Russian Deathcore
+
+## Дискография
+
+### "Sinful Accession" 1993, Deathcore
+
+1. Pray, Pray To Your Asshole Mortals
+2. Helpless Swollen Creature
+3. Confession
+4. Sinful Accession
+5. We All Will Be Dead !!!
+6. Voices Of Devastation
+7. Magnificient Blasphemy
+8. Prayersick
+9. In The Name Of Incarnation Of The Great Faith...
+10. Unsinful Suicide
+
+ Roman Zybin - Lead Guitars
+ Igor Logatchev - Vocals, Bass & Keyboards
+ Igor Lesnevsky - Drums
+ Sergeu Grishin - Rhythm Guitars
+
+Produced By GRAVESIDE
+Engineered By Evgeny Trushin
+Mixed By Trushin & GRAVESIDE
+Recorded At SNC Studio April - June 1993
+
+(p)&(c) 1993 MOROZ Records
+
 
 ## Отношения с другими группами
 

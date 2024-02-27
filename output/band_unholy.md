@@ -1,9 +1,60 @@
 # Unholy
 
-Дискография
-"From The Shadows" 1993, Death Doom
-"The Second Ring Of Power" 1994, Death Doom
-"Gracefallen" 1999, Death Doom
+Satanic Death-Doom
+
+## Дискография
+
+### "From The Shadows" 1993, Death Doom
+
+1. Alone
+2. Gray Blow *
+3. Creative Lunacy
+4. Autumn *
+5. Stench Of Ishtar
+6. Colossal Vision *
+7. Time Has Gone
+8. The Trip Was Infra Green
+9. Passe Tiermes *
+
+ Jarkko Toivonen - Guitar & Acoustic Guitar
+ Pasi Aijo  - Bass & Lead Vocals
+ Ismo Toivonen - Guitar & Keyboard
+ Jan Kuhanen - Drums & Percussion
+
+* All Female Vocals By Tanja Wehsely.
+All Songs By UNHOLY.
+Prodsuced By Mitchi Zastoupil.
+Recorded & Mixed At Vienna Powerstation '92.
+
+(p)&(c) 1993 LETHAL Records
+
+### "The Second Ring Of Power" 1994, Death Doom
+
+1. The Second Ring Of Power
+2. Languish For Bliss
+3. Lady Babylon
+4. Neverending Day
+5. Dreamside
+6. Procession Of Black Doom
+7. Covetous Glance
+8. Air
+
+ Pasi Aijo - Bass & Vocals
+ Jarkko Toivonen - Guitars
+ Ismo Toivonen - Keyboards, Violin & Acoustic Guitars
+ Jan Kuhanen - Drums
+ Merja Salmela - Female Vocals
+
+All Songs Written By UNHOLY
+Produced By Roberto Mammarella
+Engineered  & Mixed At Music-Bros Studios, Imatra, 1994 By Ville Soininen, Petri Kiisseli & UNHOLY
+
+(p)&(c) 1994 AVANTGARDE Music
+
+### "Gracefallen" 1999, Death Doom
+
+
+
 
 ## Отношения с другими группами
 

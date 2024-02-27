@@ -1,9 +1,46 @@
 # Carpe Tenebrum
 
-Дискография
-"Majestic Nothingness" 1997, Black Metal
-"Mirrored Hate Painting" 1999, Black Metal
-"Dreaded Chaotic Reign" 2002, Death Metal
+Black Metal. Main project of Astennu (ex- Dimmu Borgir)
+
+## Дискография
+
+### "Majestic Nothingness" 1997, Black Metal
+
+Temptress luna           6.58
+Requiem spell            4.37
+Velvet claws             5.15
+Drain the labyrinth      7.23
+Perpetual danger         4.53
+Sullen becometh          7.24
+Blood dance              7.03
+
+
+### "Mirrored Hate Painting" 1999, Black Metal
+
+1. The Abyss's Mystic Haze
+2. Lured Like You Thought (instr)
+3. The Painting
+4. Mirrored In Scarry Skies
+5. And Forever
+6. Ludus
+7. Void Dress
+8. Dreaded Chaotic Reign (instr)
+
+
+### "Dreaded Chaotic Reign" 2002, Death Metal
+
+1. Abiding Our Time
+2. To See Your Name
+3. The Telling
+4. Aetherial Benefaction
+5. What Of This Place
+6. Hope Is Near
+7. Sense Of Face
+8. Conscious Hide!
+9. Nothingness
+
+(p) 2002 Hammerheart
+
 
 ## Отношения с другими группами
 

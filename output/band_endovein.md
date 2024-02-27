@@ -1,7 +1,22 @@
 # Endovein
 
-Дискография
-"Waiting for Disaster" 2010, Thrash
+
+
+## Дискография
+
+### "Waiting for Disaster" 2010, Thrash
+
+1. Endless Prophecy  04:13   
+2. Forrest Gunner  03:05  
+3. Lynched by Fate  04:09  
+4. Fallout Terror  01:51 
+5. Problem of Humanity  04:24   
+6. Kick in Your Ass  03:44  
+7. Slaves of the Matrix  03:43 
+8. Sono Stufo!  01:32   
+9. Don't Forget  04:13  
+10. Endovein Are Adrenaline... for Your Fuckin' Summer!!!  04:08 
+
 
 ## Отношения с другими группами
 

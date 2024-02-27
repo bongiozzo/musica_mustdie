@@ -1,7 +1,28 @@
 # Synthphonia Suprema
 
-Дискография
-"Synthphony 001" 2006, Power Metal
+power metal
+
+## Дискография
+
+### "Synthphony 001" 2006, Power Metal
+
+01 Fileader 001
+02 Nothing can stop me 001
+03 Synth Metal 001
+04 Uncosmic Justice 001
+05 My War 001
+06 Black Cat 001
+07 Shield Saviour 001
+08 Fatherland 001
+09 Glacier Inside 001 - *Bonus track 
+10 Battle of the leaving dead - *Bonus track
+
+Band line-up:
+Dany All: Keyboards, Keybass & Machines
+Matkracker: Lead & Artificial vocals
+Fryderyk T.: Lead, Rhythm & Synth guitars
+Ismat: Drums & Future hammerblows
+
 
 ## Отношения с другими группами
 

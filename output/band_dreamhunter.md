@@ -1,8 +1,35 @@
 # Dreamhunter
 
-Дискография
-"The Hunt Is On" 2006, Heavy Metal
-"Roll Back" 2011, Heavy Metal
+
+
+## Дискография
+
+### "The Hunt Is On" 2006, Heavy Metal
+
+1. The Good	05:26	 
+2. Dreamhunter	05:02	 
+3. Hope	06:44	 
+4. Thunder	04:34	 
+5. Can't Get It Out	05:37	 
+6. Slave to the Piston	04:12	 
+7. Ride into My Mind	05:40	 
+8. Vanity	07:20	
+
+### "Roll Back" 2011, Heavy Metal
+
+1. My Beginning	01:27	 
+2. The Night I Left	04:29	 
+3. Roll Back	05:23	 
+4. Superstition	04:46	 
+5. The First Time I Met Her	06:35	 
+6. The Middle	04:30	 
+7. Honest World	04:31	 
+8. New Chance	02:45	 
+9. Try Again	07:11	 
+10. Memories of the Hunter	06:39	 
+11. Small Gods	06:04	 
+12. Sunshine	02:28	
+
 
 ## Отношения с другими группами
 

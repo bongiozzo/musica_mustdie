@@ -1,7 +1,17 @@
 # Seul
 
-Дискография
-"Suicidal & Emotional Black Metal" 2009, Black Metal
+
+
+## Дискография
+
+### "Suicidal & Emotional Black Metal" 2009, Black Metal
+
+1. Act 2 10:58  
+2. Act 3 pt.1 04:08  
+3. Act 3 pt.2 04:05  
+4. Act 4 07:14  
+5. Act 5 07:19 
+
 
 ## Отношения с другими группами
 

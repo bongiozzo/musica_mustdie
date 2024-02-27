@@ -1,8 +1,28 @@
 # Stahlhammer
 
-Дискография
-"Feind Hort Mit" 1999, Gothic
-"Eisenherz" 2002, Industrial
+Gothic / industrial
+
+## Дискография
+
+### "Feind Hort Mit" 1999, Gothic
+
+Was ist das
+Am liebsten von hinten
+Feind hцert mit
+Der Mann mit dem Koks
+Herz aus Stahl
+Schlag mich
+Messerschmied
+Jeanny
+Kein schoener Land
+Strom der Zeit
+
+
+
+### "Eisenherz" 2002, Industrial
+
+
+
 
 ## Отношения с другими группами
 

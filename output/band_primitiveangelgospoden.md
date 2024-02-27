@@ -1,7 +1,13 @@
 # Primitive Angel Gospoden
 
-Дискография
-"T.S.A." 2004, Black Metal
+
+
+## Дискография
+
+### "T.S.A." 2004, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,13 +1,80 @@
 # Black Countess
 
-Дискография
-"Child Of The Demonic Moon" 1999, Black Metal
-"Blood, Desire and Dead Nenuphars" 2000, Black Metal
-"Carnivorous Romance" 2004, Black Metal
-"Королева Зимы" 2005, Black Metal
-"The Language Of Flesh" 2006, Black Metal
-"Blood, Desire and Dead Nenuphars (re-issue)" 2006, Black Metal
-"Feetish" 2007, Black Metal
+(Russian Gothic Black Metal)
+
+## Дискография
+
+### "Child Of The Demonic Moon" 1999, Black Metal
+
+1. Desire
+2. Tempting By The Cunt
+3. In The Abyss Of Fear
+4. Carpathian Legends
+5. The Queen Of The Fourth Dimension
+
+Recorded at BC Official Studio (spring 1999)
+
+Ilya – vocals, guitars, drums
+Michail – bass
+Dmitry – guitars
+
+Session musicians: 
+Katerina – keyboards
+Natalia and Kate Black – female vocals
+
+
+### "Blood, Desire and Dead Nenuphars" 2000, Black Metal
+
+1. Female Masturbation For My Ill-Natured Pleasure
+2. Lesbian Moon
+3. Lustful Embrace Of Whore
+4. The Portrait
+5. Nocturnal Episode
+6. Vestal Part I (Flame Between Her Thighs)
+7. Princess With Mermaid's Soul
+8. Vestal Part II (Blood Between Her Thighs)
+9. Black Countess' Erotic Poetry
+
+Recorded at Morbit Studio (February - April 2000)
+
+Ilya – vocals, guitars, drums
+Michail – fretless bass
+Dmitry – guitars
+
+Session musicians: 
+Katerina – keyboards
+Kate Black and Natalia – female voices and sounds of secret desire
+
+
+### "Carnivorous Romance" 2004, Black Metal
+
+
+
+### "Королева Зимы" 2005, Black Metal
+
+
+
+### "The Language Of Flesh" 2006, Black Metal
+
+
+
+### "Blood, Desire and Dead Nenuphars (re-issue)" 2006, Black Metal
+
+
+
+### "Feetish" 2007, Black Metal
+
+1. In the Moonlight I Kiss Her Bare Feet
+2. Brunette in Black Stockings
+3. Sweaty Thighs of Dominant Sluts
+4. Through the Emerald Gates
+5. Showing the Cards
+6. Passing the Death Valley (including Shining Palace)
+7. Return to the Sinful Earth
+ 
+Recorded at the Shining Palace between February & April 2007
+All music & lyrics written & performed by Ilya
+
 
 ## Отношения с другими группами
 

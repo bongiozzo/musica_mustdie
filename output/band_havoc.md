@@ -1,7 +1,22 @@
 # Havoc
 
-Дискография
-"Elimination Process" 2008, Thrash
+
+
+## Дискография
+
+### "Elimination Process" 2008, Thrash
+
+1. Dead Man's Corner 04:15  
+2. Covenants With Death 02:32  
+3. Exceeding The Limits Of Chaos 03:02  
+4. Verbal Abuse 02:00  
+5. AK-47 04:54  
+6. Elimination Process 03:19  
+7. Den Of Inequity 04:06  
+8. Mortal Kombat 03:39  
+9. Desperate Solutions 03:45  
+10. War Zone 03:50 
+
 
 ## Отношения с другими группами
 

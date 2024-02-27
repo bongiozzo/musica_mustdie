@@ -1,9 +1,78 @@
 # Unanimated
 
-Дискография
-"In The Forest Of Dreaming Dead" 1993, Death Metal
-"Ancient God Of Evil" 1995, Melodic Death Metal
-"In The Light Of Darkness" 2009, Death Metal
+Melodic Death Metal
+
+## Дискография
+
+### "In The Forest Of Dreaming Dead" 1993, Death Metal
+
+1. At Dawn
+2. Whispering Shadows
+3. Blackness Of The Fallen Star
+4. Fire Storm
+5. Storms From The Skies Of Grief
+6. Through The Gates
+7. Wind Of A Dismal Past
+8. Silence Ends
+9. Mournful Twilight
+10.In The Forest Of Dreaming Dead
+11.Cold Northern Breeze
+
+ Micke Jansson - Vox
+ Jonas Mellberg - Guitar
+ Jojje Bohlin - Guitar
+ Daniel Lofthagen - Bass
+ Peter StJarnvind - Drums
+
+All Music By UNANIMATED
+Mixed And Produced By Anders Olsson,
+Micke Lindh & UNANIMATED
+Engineered By A.Olsson & M.Lindh
+Recorded At Unicorn/Moose Studios,Noble House
+Studios During May/June 1992
+
+(p)&(c) 1993 NFR
+
+### "Ancient God Of Evil" 1995, Melodic Death Metal
+
+1. Life Demise
+2. Eye Of The Greyhound
+3. Oceans Of Time
+4. Dead Calm
+5. Mireille
+6. The Depths Of A Black Sea
+7. Ruins
+8. Dying Emotions Domain
+9. Die Alone
+
+ Micke Janson - Vocals
+ Jonas Mellberg - Guitar
+ Johan Bohlin - Guitar
+ Richard Daemon - Bass
+ Peter Stjarnvind - Drums
+
+All Songs Written By UNANIMATED
+Produced By UNANIMATED
+Engineered By Dan Swano
+Recorded & Mixed At Unisound Studios,
+In August 1994
+
+(p)&(c) 1995 NO FASHION Records
+
+### "In The Light Of Darkness" 2009, Death Metal
+
+1. Ascend With The Stench Of Death 01:49  
+2. Retribution In Blood 06:43  
+3. The Endless Beyond 05:50  
+4. Diabolic Voices 04:52  
+5. In The Light Of Darkness 04:52  
+6. The Unconquered One 03:36  
+7. Enemy Of The Sun 05:48  
+8. Serpent's Curse 04:44  
+9. Death To Life 05:22  
+10. Strategia Luciferi 02:10 
+
+
 
 ## Отношения с другими группами
 

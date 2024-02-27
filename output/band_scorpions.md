@@ -1,29 +1,366 @@
 # Scorpions
 
-Дискография
-"Lonesome Crow" 1972, Hard Rock
-"Fly To The Rainbow" 1974, Hard Rock
-" In Trance" 1975, Hard Rock
-"Virgin Killer" 1976, Hard Rock
-"Taken By Force" 1977, Hard Rock
-"Lovedrive" 1979, Hard Rock
-"Animal Magnetism" 1980, Hard Rock
-"Blackout" 1982, Hard Rock
-"Love At First Sting" 1984, Hard Rock
-"Savage Amusement" 1988, Hard Rock
-"Crazy World" 1990, Hard Rock
-"Still Loving You" 1992, Hard Rock
-"Face The Heat" 1993, Hard Rock
-"Pure Instinct" 1996, Hard Rock
-"Eye To Eye" 1999, Hard Rock
-"Moment Of Glory" 2000, Hard Rock
-"Unbreakable" 2004, Hard Rock
-"One night In Vienna DVD" 2005, Hard Rock
-"Humanity, Hour 1" 2007, Hard Rock
-"Sting In The Tail" 2010, Heavy Metal
-"Comeblack" 2011, Hard Rock
-"We Built This House (single)" 2014, Hard Rock
-"Return to Forever" 2015, Hard Rock
+
+
+## Дискография
+
+### "Lonesome Crow" 1972, Hard Rock
+
+1. I'm Going Mad
+2. It All Depends
+3. Leave Me
+4. In Search Of The Peace Of Mind
+5. Inheritance
+6. Action
+7. Lonesome Crow
+
+(P)&c 1972 POLYGRAM Records
+
+### "Fly To The Rainbow" 1974, Hard Rock
+
+1. Speedy's Coming
+2. They Need A Million
+3. Drifting Sun
+4. Fly People Fly
+5. This Is My Song
+6. Far Away
+7. Fly To The Rainbow
+
+(P)&c 1974 POLYGRAM Records
+
+### " In Trance" 1975, Hard Rock
+
+1.  Dark Lady
+2.  In Trance
+3.  Life's Like A River
+4.  Top Of The Bill
+5.  Living And Dying
+6.  Robot Man
+7.  Evening Wind
+8.  Sun In My Hand
+9.  Longing For Fire
+10. Night Lights
+
+(P)&c 1975 POLYGRAM Records
+
+### "Virgin Killer" 1976, Hard Rock
+
+1. Pictured Life
+2. Catch Your Train
+3. In Your Park
+4. Backstage Queen
+5. Virgin Killer
+6. Hell Cat
+7. Crying Days
+8. Polar Nights
+9. Yellow Raven
+
+(P)&c 1976 POLYGRAM Records
+
+### "Taken By Force" 1977, Hard Rock
+
+1. Steamrock Fever
+2. We'll Burn The Sky
+3. I've Got To Be Free
+4. The Riot Of Your Time
+5. The Sails Of Charon
+6. Your Light
+7. He's A Woman-She's A Man
+8. Born To Touch Your Feelings
+
+(P)&c 1977 POLYGRAM Records
+
+### "Lovedrive" 1979, Hard Rock
+
+1. Loving You Sunday Morning
+2. Another Piece Of Meat
+3. Always Somewhere
+4. Coast To Coast
+5. Can't Get Enough
+6. Is There Anybody There?
+7. Lovedrive
+8. Holiday
+
+(P)&c 1979 POLYGRAM Records
+
+### "Animal Magnetism" 1980, Hard Rock
+
+1. Make It Real
+2. Don't Make No Promises
+(Your Body Can't Keep)
+3. Hold Me Tight
+4. Twentieth Century Man
+5. Lady Starlight
+6. Falling In Love
+7. Only A Man
+8. The Zoo
+9. Animal Magnetism
+ 
+(P)&c 1980 POLYGRAM Records
+
+### "Blackout" 1982, Hard Rock
+
+1. Blackout
+2. Can't Live Without You
+3. No One Like You
+4. You Give Me All I Need
+5. Now!
+6. Dynamite
+7. Arizona
+8. China White
+9. When The Smoke Is Going Down         
+
+(P)&c 1982 POLYGRAM Records
+
+### "Love At First Sting" 1984, Hard Rock
+
+1. Bad Boys Running Wild
+2. Rock You Like A Hurricane
+3. I'm Leaving You
+4. Coming Home
+5. The Same Thrill
+6. Big City Nights
+7. As Soon As The Good Times Roll
+8. Crossfire
+9. Still Loving You
+
+(P)&c 1984 POLYGRAM Records
+
+### "Savage Amusement" 1988, Hard Rock
+
+1. Don't Stop At The Top
+2. Rhythm Of Love
+3. Passion Rules The Game
+4. Media Overkill
+5. Walking On The Edge
+6. We Let It Rock...You Let It Roll
+7. Every Minute Every Day
+8. Love On The Run
+9. Believe In Love
+
+(P)&c 1990 POLYGRAM Records
+
+### "Crazy World" 1990, Hard Rock
+
+1.  Tease Me, Please Me
+2.  Don't Believe Her
+3.  To Be With You In Heaven
+4.  Wind Of Change
+5.  Restless Nights
+6.  Lust Or Love
+7.  Kicks After Six
+8.  Hit Between The Eyes
+9.  Money And Fame
+10. Crazy World
+11. Send Me An Angel
+
+Produced By Keith Olsen & SCORPIONS.
+
+(P)&c 1990 POLYGRAM Records
+
+### "Still Loving You" 1992, Hard Rock
+
+1.  I Believe In Love (88)
+2.  Still Loving You (84)
+3.  Walking On The Edge (88)
+4.  Born To Touch Your Feelings (77) *
+5.  Lady Starlight (80)
+6.  Wind Of Change (90)
+7.  Is There Anybody There ? (79)
+8.  Always Somewhere (79)
+9.  Holiday (79) **
+10.When The Smoke Is Going Down (82)
+11.Living For Tomorrow (88)
+
+Klaus Meine - Vocals, Back Vocals
+Rudolf Shenker - Lead Guitar, Slide Guitar, Rhythm Guitar, Acoustic Guitar, Back Vocals
+Matthias Jabs - Rhythm Guitar, Lead Guitar
+Francis Buchholz - Bass
+Herman Rarebel - Drums
+
+On * Uli Jon Roth - Lead Guitars
+** Michael Schenker - Acoustic Guitars
+
+Produced By Dieter Dierks
+
+(P)(C) 1992 ELECTROLA Records
+
+### "Face The Heat" 1993, Hard Rock
+
+1.  Alien Nation
+2.  No Pain No Gain
+3.  Someone To Touch
+4.  Under The Same Sun
+5.  Unholy Alliance
+6.  Woman
+7.  Hate To Be Nice
+8.  Taxman Woman
+9.  Ship Of Fools
+10. Nightmare Avenue
+11. Lonely Nights
+12. His Latest Flame (Marie's The Name)
+13. Destiny  *
+14. Daddy's Girl  *
+
+* on the German import
+
+(P)&c 1993 POLYGRAM Records
+
+### "Pure Instinct" 1996, Hard Rock
+
+1.  Wild Child
+2.  But The Best For You
+3.  Does Anyone Know
+4.  Stone In My Shoe
+5.  Soul Behind The Face
+6.  Oh Girl (I Wanna Be With You)
+7.  When You Came In My Life
+8.  Where The River Flows
+9.  Time Will Call Your Name
+10.You And I
+11.Are You The One ?
+
+(P)c 1996
+
+### "Eye To Eye" 1999, Hard Rock
+
+1. Mysterious
+2. To Be No. 1
+3. Obsession
+4. 10 Light Years Away
+5. Mind Like A Tree
+6. Eye To Eye
+7. What U Give U Get Back
+8. Skywriter
+9. Yellow Butterfly
+10. Freshly Squeezed
+11. Priscilla
+12. Du Bist So Schmutzig (Und Doch So Schon)
+13. Aleyah
+14. A Moment In A Million Years
+
+
+
+
+### "Moment Of Glory" 2000, Hard Rock
+
+1. Hurricane 2000
+2. Moment Of Glory
+3. Send Me An Angel
+4. Wind Of Change
+5. Crossfire
+6. Deadly Sting Suite
+7. Here In My Heart
+8. Still Loving You
+9. Big City Nights
+10. Lady Starlight
+
+
+### "Unbreakable" 2004, Hard Rock
+
+01. New Generation
+02. Love 'em Or Leave 'em
+03. Deep And Dark
+04. Borderline
+05. Blood Too Hot
+06. Maybe I Maybe You 
+07. Someday Is Now 
+08. My City My Town
+09. Through My Eyes
+10. Can You Feel It
+11. This Time
+12. She Said
+13. Remember The Good Times
+
+### "One night In Vienna DVD" 2005, Hard Rock
+
+1. New Generation 05:01
+2. Love 'em Or Leave 'em 04:32 
+3. Bad Boys Running Wild 03:56 
+4. The Zoo 06:21 
+5. Deep And Dark 03:59 
+6. Coast To Coast 04:33 
+7. Holiday 04:25 
+8. Through My Eyes 05:02 
+9. Blackout 03:56 
+10. Blood Too Hot 04:11 
+11. Big City Nights 05:25 
+12. Still Loving You 06:14 
+13. Wind Of Change 05:21 
+14. Rock You Like A Hurricane 07:21 
+15. A German Rock Legend 08:05 
+16. Remember The Good Times 03:17
+
+### "Humanity, Hour 1" 2007, Hard Rock
+
+01. Hour I
+02. The Game Of Life
+03. We Were Born To Fly
+04. The Future Never Dies
+05. You're Lovin' Me To Death
+06. 321
+07. Love Will Keep Us Alive
+08. We Will Rise Again
+09. Your Last Song
+10. Love Is War
+11. The Cross
+12. Humanity
+
+### "Sting In The Tail" 2010, Heavy Metal
+
+1. Raised On Rock 03:57  
+2. Sting In The Tail 03:12  
+3. Slave Me 02:44  
+4. The Good Die Young (feat. Tarja Turunen) 05:14  
+5. No Limit 03:24  
+6. Rock Zone 03:17  
+7. Lorelei 04:31  
+8. Turn You On 04:25  
+9. Let's Rock 03:21  
+10. SLY 05:15  
+11. Spirit Of Rock 03:43  
+12. The Best Is Yet To Come 04:34 
+
+
+The band's final studio album. Recorded at a studio in Hannover, Germany with
+Swedish producers Mikael "Nord" Andersson and Martin Hansen.
+
+### "Comeblack" 2011, Hard Rock
+
+1. Rhythm of Love  03:39   
+2. No One Like You  04:07  
+3. The Zoo  05:38   
+4. Rock You Like a Hurricane  04:16   
+5. Blackout  03:51   
+6. Still Loving You  06:44  
+7. Wind of Change  05:10   
+8. Tainted Love (Gloria Jones cover)  03:28  
+9. Children of the Revolution (T. Rex cover)  03:35  
+10. Across the Universe (The Beatles cover)  03:19   
+11. Tin Soldier (Small Faces cover)  03:15   
+12. All Day and All of the Night (The Kinks cover)  03:16  
+13. Ruby Tuesday (The Rolling Stones cover)  03:55 
+
+### "We Built This House (single)" 2014, Hard Rock
+
+1. We Built This House  03:54   
+
+### "Return to Forever" 2015, Hard Rock
+
+1. Going Out with a Bang      
+2. We Built This House      
+3. Rock My Car      
+4. House of Cards      
+5. All for One      
+6. Rock 'n' Roll Band      
+7. Catch Your Luck and Play      
+8. Rollin' Home      
+9. Hard Rockin' the Place      
+10. Eye of the Storm      
+11. The Scratch      
+12. Gypsy Life  
+
+
 
 ## Отношения с другими группами
 

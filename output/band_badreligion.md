@@ -1,15 +1,271 @@
 # Bad Religion
 
-Дискография
-"Suffer" 1988, Punk
-"No Control" 1989, Punk
-"Against The Grain" 1990, Punk
-"Generator" 1992, Punk
-"Recipe For Hate" 1993, Punk
-"Stranger Than Fiction" 1994, Punk
-"All Ages" 1995, Punk
-"The Gray Race" 1996, Punk
-"The Process Of Belief" 2002, Punk
+
+
+## Дискография
+
+### "Suffer" 1988, Punk
+
+1. You Are (The Government) 
+2. 1,000 More Fools 
+3. How Much Is Enough? 
+4. When? 
+5. I Give You Nothing (Tom Clement...) 
+6. Land of Competition 
+7. Forbidden Beat 
+8. Best For You 
+9. Suffer 
+10.Delirium Of Disorder 
+11.Part II (The Numbers Game) 
+12.What Can You Do? 
+13.Do What You Want 
+14.Part IV (The Index Fossil) 
+15.Pessimistic Lines 
+
+Greg Graffin - Vocals & Harmonies
+Jay Bentley - Bass Guitar
+Mr. Brett - Lead & Rhythm Guitar
+Greg Hetson - Lead & Rhythm Guitar
+Pete Finestone - Drums
+
+(P)&(C) 1988 EPITAPH Records
+
+### "No Control" 1989, Punk
+
+1. Change Of Ideas
+2. Big Bang 
+3. No Control 
+4. Sometimes It Feels Like... *?!%+!*
+5. Automatic Man
+6. I Want To Conquer The World 
+7. Sanity 
+8. Henchman
+9. It Must Look Pretty Appealing 
+10.You 
+11.Progress 
+12.I Want Something More
+13.Anxiety
+14.Billy 
+15.The World Won't Stop Without You 
+
+Greg Graffin - Vocals & Harmonies
+Jay Bentley - Bass Guitar
+Mr. Brett - Lead & Rhythm Guitar
+Greg Hetson - Lead & Rhythm Guitar
+Pete Finestone - Drums
+
+(P)&(C) 1989 EPITAPH Records
+
+### "Against The Grain" 1990, Punk
+
+1. Modern Man
+2. Turn On The Light
+3. Get Off
+4. Blenderhead
+5. The Positive Aspect Of Negative Thinking
+6. Anasthesia
+7. Flat Earth Society
+8. Faith Alone 
+9. Entropy
+10.Against The Grain
+11.Operation Rescue
+12.God Song
+13.21st Century (Digital Boy) 
+14.Misery And Famine
+15.Unacceptable
+16.Quality Or Quantity
+17.Walk Away
+
+(P)&(C) 1990 EPITAPH Records
+
+### "Generator" 1992, Punk
+
+1. Generator
+2. Too Much To Ask
+3. No Direction
+4. Tomorrow
+5. Two Babies In The Dark
+6. Heaven Is Falling
+7. Atomic Garden
+8. The Answer
+9. Fertile Crescent
+10.Chimaera
+11.Only Entertainment
+
+ Greg Graffin - Vocals & Harmonies
+ Mr.Brett - Lead & Rhythm Guitars
+ Greg Hetson - Lead & Rhythm Guitars
+ Jay Bentley - Bass Guitar
+ Bobby Schayer - Drums
+
+Produced By BAD RELIGION.
+Recorded At Westbeach Recrder,Hollywood,CA,
+May 1991.
+
+(p)&(c) 1992 EPITAPH Records
+
+### "Recipe For Hate" 1993, Punk
+
+1. Recipe For Hate
+2. Kerosene
+3. American Jesus
+4. Portrait Of Authority
+5. Man With A Mission
+6. All Good Soldiers
+7. Watch It Die
+8. Struck A Nerve
+9. My Poor Friend Me
+10.Lookin' In
+11.Don't Pray On Me
+12.Modern Day Catastrophies
+13.Skyscraper
+14.Stealth
+
+ Greg Graffin - Vocals & Harmonies
+ Mr.Brett - Lead & Rhythm Guitars
+ Greg Hetson - Lead & Rhythm Guitars
+ Jay Bentley - Bass Guitar
+ Bobby Schayer - Drums
+
+Produced By BAD RELIGION.
+Recorded At Westbeach Recrder,Hollywood,CA.
+
+(p)&(c) 1993 EPITAPH Records
+
+### "Stranger Than Fiction" 1994, Punk
+
+1. Incomplete
+2. Leave Mine To Me
+3. Stranger Than Fiction
+4. Tiny Voices 
+5. The Handshake
+6. Better Off Dead
+7. Infected
+8. Television
+9. Individual
+10. Hooray For Me...
+11. Slumber
+12. Marked
+13. Inner Logic
+14. What It Is
+15. 21st Century (Digital Boy)
+16. News From The Front
+17. Markovian Process
+
+ Jay Bentley - Bass
+ Greg Graffin - Voices
+ Mr. Brett - Lead & Rhythm Guitars
+ Greg Hetson - Lead & Rhythm Guitars
+ Bobby Schayer - Drums
+
+Produced By Andy Wallace & BAD RELIGION
+Mixed By Andy Wallace
+Recorded At Rumbo Recorders
+
+(p)&(c) 1994 SICK MUSE SONGS
+
+### "All Ages" 1995, Punk
+
+1.  I Want To Conquer The World
+2. Do What You Want
+3. You Are (The Government)
+4. Modern Man
+5. We're Only Gonna Die
+6. The Answer
+7. Flat Earth Society
+8. Against The Grain
+9. Generator
+10.Anesthesia
+11.Suffer
+12.Faith Alone
+13.No Control
+14.21st Century Digital Boy
+15.Atomic Garden
+16.No Direction
+17.Automatic Man
+18.Change Of Ideas
+19.Sanity
+20.Walk Away
+21.Best For You
+22.Fuck  Armageddon This Is Hell
+
+Mr.Brett - Guitar
+Greg Graffin - Vocals
+Jay Bentley - Bass
+Greg Hetson - Guitar
+Pete Finestone - Drums
+
+(P)&(C) 1995 EPITAPH Records
+
+### "The Gray Race" 1996, Punk
+
+1. The Gray Race (2.06)
+2. Them And Us (2.51)
+3. A Walk (2.09)
+4. Parallel (3.25)
+5. Punk Rock Song (2.27)
+6. Empty Causes (2.52)
+7. Nobody Listens (1.57)
+8. Pity The Dead (2.56)
+9. Spirit Shine (2.11)
+10.The Streets Of America (3.50)
+11.Ten In 2010 (2.23)
+12.Victory (2.36)
+13.Drunk Sincerity (2.13)
+14.Come Join Us (2.04)
+15.Cease (2.35)
+16.Punk Rock Song (German Version)
+  (2 .27)
+
+All songs written by BAD RELIGION
+Produced by Ric Ocasek and BAD
+  RELIGION
+Engineered by Bruce Calder
+Recorded and mixed at Electric Lady
+Studios, NYC
+
+Greg Graffin - Singing
+Brian Baker - Guitars
+Greg Hetson - Guitars
+Jay Bentley - Bass Guitar
+Bobby Schayer - Drums
+
+(p)(c) 1996 SONY MUSIC Records
+
+### "The Process Of Belief" 2002, Punk
+
+ 1. Supersonic
+ 2. Prove It
+ 3. Can't Stop It
+ 4. Broken
+ 5. Destined For Nothing
+ 6. Materialist
+ 7. Kyoto Now!
+ 8. Sorrow
+ 9. Epiphany
+ 10. Evangeline
+ 11. The Defense
+ 12. The Lie
+ 13. You Don't Belong
+ 14. Bored And Extremely Dangerous
+
+
+Produced by Brett Gurewitz and Greg Graffin
+Recorded by Billy Joe Bowers
+Mixed by Brett Gurewitz
+Mastered by Bob Ludwig
+Art Direction Mackie Osborne
+
+Bass Jay Bentley
+Ld Vocals Greg Graffin
+Guitar Brian Baker
+Guitar Greg Hetson
+Guitar Brett Gurewitz
+Drums Brooks Wackerman
+Oozin' Aahs Jay, Brett and Greg
+
+
+
 
 ## Отношения с другими группами
 

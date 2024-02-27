@@ -1,12 +1,122 @@
 # Extreme
 
-Дискография
-"Extreme" 1989, Hard Rock
-"Pornograffiti" 1990, Hard Rock
-"III Sides To Every Story" 1992, Hard Rock
-"Waiting For The Punchline" 1995, Hard Rock
-"Saudades De Rock" 2008, Hard Rock
-"Take Us Alive (Live)" 2010, Hard Rock
+
+
+## Дискография
+
+### "Extreme" 1989, Hard Rock
+
+1. Little Girls 
+2. Wind Me Up 
+3. Kid Ego 
+4. Watching, Waiting 
+5. Mutha (Don't Wanna Go To School Today) 
+6. Teacher's Pet 
+7. Big Boys Don't Cry 
+8. Smoke Signals 
+9. Flesh 'N' Blood 
+10.Rock A Bye Bye 
+11.Play With Me 
+
+(P)&c 1989 A&M Records
+
+### "Pornograffiti" 1990, Hard Rock
+
+1. Decadence Dance 
+2. Li'l Jack Horny 
+3. When I'm President 
+4. Get The Funk Out 
+5. More Than Words 
+6. Money (In God We Trust) 
+7. It's A Monster 
+8. Pornograffiti 
+9. When I First Kissed You 
+10.Suzi (Wants Her All Day What?) 
+11.Flight Of The Wounded Bumble Bee 
+12.He Man Woman Hater 
+13.Song For Love 
+14.Hole Hearted 
+
+(P)&c 1990
+
+### "III Sides To Every Story" 1992, Hard Rock
+
+1. Warheads
+2. Rest In Peace
+3. Politicalamity
+4. Color Me Blind
+5. Cupid's Dead
+6. Peacemaker Die
+7. Seven Sundays
+8. Tragic Comic
+9. Our Father
+10. Stop The World
+11. God Isn't Dead?
+12. Everything Under The Sun
+13. I.Rise 'N Shine
+14. II.Am I Ever Gonna Change
+15. III.WhoCares                      
+
+(P)&(C) 1992
+
+### "Waiting For The Punchline" 1995, Hard Rock
+
+1. There Is No God
+2. Cinical
+3. Tell Me Something I Don't Know
+4. Hip Today
+5. Naked
+6. Midnight Express
+7. Leave Me Alone
+8. No Respect
+9. Evilangelist
+10.Shadow Boxing
+11.Unconditionally
+12.Fair - Weather Faith
+
+Patrick Badger
+Nuno Bettencourt
+Gary Cherone
+Mike Mangini
+
+(P)&(C) 1995
+
+### "Saudades De Rock" 2008, Hard Rock
+
+1. Star
+2. Comfortably Dumb
+3. Learn To Love
+4. Take Us Alive
+5. Run
+6. Last Hour
+7. Flower Man
+8. King Of The Ladies
+9. Ghost
+10. Slide
+11. Interface
+12. Sunrise
+13. Peace (saudade)
+
+### "Take Us Alive (Live)" 2010, Hard Rock
+
+1. Decadence Dance
+2. Comfortably Dumb
+3. Rest in Peace
+4. It (‘s a Monster)
+5. Star
+6. Tell me Something I Don’t Know
+7. Medley: Kid Ego, Little Girls, Teacher's Pet
+8. Play With Me
+9. Midnight Express
+10. More Than Words
+11. Ghost
+12. Cupid’s Dead
+13. Take us Alive
+14. Flight of the Wounded Bumblebee
+15. Get the Funk Out
+16. Am I Ever Gonna Change
+17. Hole Hearted
+
 
 ## Отношения с другими группами
 

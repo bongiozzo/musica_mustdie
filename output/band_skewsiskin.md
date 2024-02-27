@@ -1,8 +1,51 @@
 # Skew Siskin
 
-Дискография
-"Electric Chair Music" 1996, Punk
-"Album Of The Year" 2003, Hard Rock
+Punk + Hardcore with Female vocals
+
+## Дискография
+
+### "Electric Chair Music" 1996, Punk
+
+1.  Intro - Verdet
+2.  My Worst Enemy
+3.  No Solution
+4.  Trick Or Treat
+5.  Metamorphosis
+6.  Revolution Of Illusions
+7.  It's Alright
+8.  Liquid
+9.  Invisible Retreat
+10.Communication Breakdown
+11.Lowside Ghetto
+12.Bloody Hierarchy
+13.Dreams OF Black
+14.Young Man
+15.I Can Take It
+16.Fuck You
+17.Dead One
+18.B 4
+19.Shadows Of War
+20.Genocide
+
+(P)(C) 1996 GUN Records
+
+### "Album Of The Year" 2003, Hard Rock
+
+We hate 
+Girl on a mission 
+Shake me 
+All fired up 
+Hate lies 
+Lips 
+White trash 
+Jesus of cool 
+2 much 4 you 
+The Goddess 
+Strike me blind 
+War and peace song 
+Another good man 
+Torn apart
+
 
 ## Отношения с другими группами
 

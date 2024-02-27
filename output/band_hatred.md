@@ -1,7 +1,13 @@
 # Hatred
 
-Дискография
-"The Offering" 2000, Thrash
+
+
+## Дискография
+
+### "The Offering" 2000, Thrash
+
+
+
 
 ## Отношения с другими группами
 

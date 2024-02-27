@@ -1,7 +1,26 @@
 # Serpenterium
 
-Дискография
-"The Withered Spirit Of A Shattered Reality" 2005, Black Metal
+
+
+## Дискография
+
+### "The Withered Spirit Of A Shattered Reality" 2005, Black Metal
+
+1. Towards The Shadows   
+2. Enter Into The Infinity of Darkness   
+3. Confusion   
+4. Dying   
+5. Unholy Flames   
+6. Final Words   
+7. False Faith   
+8. Calmness of The Soul   
+9. Forever In Darkness   
+10. One With Darkness 
+
+all music and lyrics by arnaldo except final words music by arnaldo and jose,logo by reinaldo ramos,cover concept by serpenterium and amanda pelaez,final lay out by arnaldo.
+
+drum tracks recorded at nova studios,guitar,bass keyboards and vocals recorded at venomous studios by serpenterium. mastered at los angered recording by andy la rocque. 
+
 
 ## Отношения с другими группами
 

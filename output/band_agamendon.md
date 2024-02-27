@@ -1,9 +1,39 @@
 # Agamendon
 
-Дискография
-"The Toxic Way of Life" 2004, Melodic Death Metal
-"Nuclear Rodeo" 2008, Melodic Death Metal
-"Charleston City" 2011, Melodic Death Metal
+
+
+## Дискография
+
+### "The Toxic Way of Life" 2004, Melodic Death Metal
+
+1.	 Awaken	04:02	 
+2.	 Selected & Dead	03:52	 
+3.	 Toxic Zombie	03:00	 
+4.	 The Picture	02:15	 
+5.	 Outbreak	03:17	 
+6.	 Revenge	03:08	 
+7.	 Anger	02:47	 
+8.	 The Last Way	05:02	
+
+### "Nuclear Rodeo" 2008, Melodic Death Metal
+
+
+
+### "Charleston City" 2011, Melodic Death Metal
+
+1.	 Introduction		 
+2.	 Charleston City		 
+3.	 New Economy		 
+4.	 Gangs & Graveyards		 
+5.	 Folterthron		 
+6.	 Prohibition		 
+7.	 Point Of No Return		 
+8.	 Traitor		 
+9.	 Feeding The Pigs		 
+10.	 Shoes Of Concrete		 
+11.	 Polarity		 
+12.	 Tribunal
+
 
 ## Отношения с другими группами
 

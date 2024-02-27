@@ -1,17 +1,80 @@
 # Avulsed
 
-Дискография
-"Carnivoracity" 1995, Death Metal
-"Eminence In Putrescence" 1996, Death Metal
-"Cybergore" 1998, Death Metal
-"Stabwound Orgasm" 1999, Death Metal
-"Seven Years Of Decay (Compilation)" 1999, Death Metal
-"Bloodcovered (EP)" 2001, Death Metal
-"Yearning For The Grotesque" 2003, Death Metal
-"Gorespattered Suicide" 2005, Death Metal
-"Reanimations" 2006, Death Metal
-"Nullo (The Pleasure Of Self-mutilation)" 2009, Death Metal
-"Ritual Zombi" 2013, Death Metal
+Brutal Death Metal
+
+## Дискография
+
+### "Carnivoracity" 1995, Death Metal
+
+
+
+### "Eminence In Putrescence" 1996, Death Metal
+
+1. Hidden Perversions
+2. Sweet Lobotomy
+3. Powdered Flesh
+4. Goreality
+5. Gangrened Divined Stigma
+6. Frozen Meat
+7. Ecstasy For Decayed Chunks
+8. Killing Astral Projections
+9. Bodily Ransack
+
+Dave Rotten - Vocals
+Cabra - Guitars
+Juancar - Guitars
+Lucky - Bass
+Furni - Drums
+
+(P)(C) 1996 REPULSE Records // RPS 017
+
+### "Cybergore" 1998, Death Metal
+
+
+
+### "Stabwound Orgasm" 1999, Death Metal
+
+
+
+### "Seven Years Of Decay (Compilation)" 1999, Death Metal
+
+
+
+### "Bloodcovered (EP)" 2001, Death Metal
+
+
+
+### "Yearning For The Grotesque" 2003, Death Metal
+
+
+
+### "Gorespattered Suicide" 2005, Death Metal
+
+1. Gorespattered Suicide 03:46  
+2. Burnt But Not Carbonized 04:38  
+3. Filth Injected 04:47  
+4. Infernal Haemorrhoids 00:15  
+5. 4 N Sick 04:07  
+6. Harvesting the Blood 05:10  
+7. Let Me Taste Your Flesh 04:42  
+8. Hoax Therapy (instrumental) 02:00  
+9. Divine Wine 04:04  
+10. Protervia 04:18  
+11. Eat Foetal Mush 04:26  
+12. Aces Of Spades (MOTORHEAD cover) 02:35
+
+### "Reanimations" 2006, Death Metal
+
+
+
+### "Nullo (The Pleasure Of Self-mutilation)" 2009, Death Metal
+
+
+
+### "Ritual Zombi" 2013, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

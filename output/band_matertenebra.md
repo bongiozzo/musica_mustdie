@@ -1,8 +1,33 @@
 # Mater Tenebra
 
-Дискография
-"Necrocturna demoniaca" 1998, Black Metal
-"Sangue" 2001, Black Metal
+
+
+## Дискография
+
+### "Necrocturna demoniaca" 1998, Black Metal
+
+
+
+### "Sangue" 2001, Black Metal
+
+1.The death to the side
+2. Scythe of stone
+3. Through the Arch of Stone "the last episode"
+4. Samhain " during the nights of dead" 
+5. Blood
+6. The Last Offer
+7. The time has come
+8. Burning blood
+9. Seek the black in my magic
+10. King of Shadow
+
+
+AionVII (guitar and voice)
+Horkam (drums)
+IborVII (bass)
+
+
+
 
 ## Отношения с другими группами
 

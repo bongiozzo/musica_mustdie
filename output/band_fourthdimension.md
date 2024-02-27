@@ -1,7 +1,22 @@
 # Fourth Dimension
 
-Дискография
-"Inevitability" 2003, Death Metal
+
+
+## Дискография
+
+### "Inevitability" 2003, Death Metal
+
+1. Illusion Of Reality
+2. Inhumanity
+3. Master Without Property
+4. Butcher
+5. Degenerating
+6. The Children Of Sin
+7. Black Infection
+8. Kingdom Of Pleasures
+9. Requiem
+10. Inevitability
+
 
 ## Отношения с другими группами
 

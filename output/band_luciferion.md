@@ -1,8 +1,59 @@
 # Luciferion
 
-Дискография
-"Demonication (The Manifest)" 1995, Death Metal
-"The Apostate" 2003, Death Metal
+Highspeed Death Metal
+
+## Дискография
+
+### "Demonication (The Manifest)" 1995, Death Metal
+
+1. Intro
+2. On The Wings Of The Emperor
+3. Graced By Fire
+4. Rebel Souls
+5. Satan's Gift (The Crown Of Thorns)
+6. The Manifest
+7. Christ Dethroned
+8. Hymns Of Immortals
+9. Blasphemer *
+10.The Voyager
+
+All Songs Written By LUCIFERION
+* Except Written By SODOM.
+Produced By Wojtek Lisicki.
+Recorded,Engineered & Mixed By
+Fredrik Nordstrom & LUCIFERION.
+Recorded At Studio Fredman,Gothenburg,
+Sweden.
+
+Michael Nicklasson - Guitar,Bass,Back
+Vocals
+Wojtek Lisicki - Vocals,Guitar,Bass
+Peter Weiner - Drums
+Johan Lund - All Samples
+
+
+
+### "The Apostate" 2003, Death Metal
+
+01. Intro 02:59 
+02. The Apostate 09:29 
+I. Under The Eyes Of Serpents
+II. Transcendental Fusion
+III. Gods Bring You Away From Yourself
+IV. A Strain From Depths (instr.)
+V. The Force Dwells Within
+VI. And All The Waste Will Fade
+03. Become or Be Gone 06:17 
+04. Destroying by Will 05:20 
+05. New World to See 07:16 
+06. Circle of the Tyrants 04:28 
+07. Rebel Souls 05:45 
+08. The Voyager 05:20 
+09. Satans Gift 03:32 
+10. Graced by Fire 02:50 
+11. Hymns of Immortals 05:04 
+
+
 
 ## Отношения с другими группами
 

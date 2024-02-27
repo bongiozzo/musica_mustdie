@@ -1,12 +1,210 @@
 # Jimi Hendrix
 
-Дискография
-"Are You Experienced? [US]" 1967, Hard Rock
-"Axis: Bold as Love" 1967, Hard Rock
-"Are You Experienced? [UK]" 1967, Hard Rock
-"Electric Ladyland" 1968, Hard Rock
-"Band of Gypsys" 1970, Hard Rock
-"The Cry of Love" 1971, Hard Rock
+(the real genius)
+
+## Дискография
+
+### "Are You Experienced? [US]" 1967, Hard Rock
+
+  1.   Purple Haze (Hendrix) 
+  2.   Manic Depression (Hendrix) - 3:42 
+  3.   Hey Joe (Roberts) - 3:30 
+  4.   Love or Confusion (Hendrix) - 3:12 
+  5.   May This Be Love (Hendrix) - 3:10 
+  6.   I Don't Live Today (Hendrix) - 3:54 
+  7.   The Wind Cries Mary (Hendrix) - 3:20 
+  8.   Fire (Hendrix) - 2:43 
+  9.   Third Stone from the Sun (Hendrix) - 6:44 
+  10.   Foxey Lady (Hendrix) - 3:18 
+  11.   Are You Experienced? (Hendrix) - 4:16 
+  12.   Stone Free (Hendrix) - 3:35 
+  13.   51st Anniversary (Hendrix) - 3:15 
+  14.   Highway Chile (Hendrix) - 3:32 
+  15.   Can You See Me (Hendrix) - 2:32 
+  16.   Remember (Hendrix) - 2:48 
+  17.   Red House (Hendrix) - 3:51 
+
+
+
+Noel Redding  -  Bass (Electric), Guitar (Electric), Vocals (bckgr) 
+Chas Chandler  -  Remastering Producer 
+Jimi Hendrix  -  Guitar (Electric), Vocals 
+Eddie Kramer  -  Engineer, Remastering 
+George Marino  -  Remastering 
+Mitch Mitchell  -  Drums, Vocals (bckgr) 
+Mike Ross  -  Engineer 
+Dave Siddle  -  Engineer 
+Dave Marsh  -  Liner Notes 
+Jimi Hendrix Experience  -  Performer 
+Janie Hendrix  -  Remastering Supervisor 
+John McDermott  -  Remastering Supervisor 
+
+
+### "Axis: Bold as Love" 1967, Hard Rock
+
+  1.   EXP (Hendrix) - 1:55 
+  2.   Up from the Skies (Hendrix) - 2:55 
+  3.   Spanish Castle Magic (Hendrix) - 3:00 
+  4.   Wait Until Tomorrow (Hendrix) - 3:00 
+  5.   Ain't No Telling (Hendrix) - 1:46 
+  6.   Little Wing (Hendrix) - 2:24 
+  7.   If 6 Was 9 (Hendrix) - 5:32 
+  8.   You Got Me Floatin' (Hendrix) - 2:45 
+  9.   Castles Made of Sand (Hendrix) - 2:46 
+  10.   She's So Fine (Redding) - 2:37 
+  11.   One Rainy Wish (Hendrix) - 3:40 
+  12.   Little Miss Lover (Hendrix) - 2:20 
+  13.   Bold as Love (Hendrix) - 4:09 
+
+
+
+Graham Nash     
+Noel Redding  -  Bass 
+Roy Wood  -  Vocals 
+Terry Brown  -  Engineer 
+Trevor Burton  -  Vocals 
+Chas Chandler  -  Producer 
+Joe Gastwirt  -  Remastering 
+Jimi Hendrix  -  Guitar, Vocals, Performer 
+Eddie Kramer  -  Engineer, Photography, Remastering 
+Gary Leeds     
+George Marino  -  Remastering 
+Linda McCartney  -  Photography 
+Mitch Mitchell  -  Drums 
+Rob O'Connor  -  Design 
+Michael Fairchild  -  Liner Notes 
+Roger Law  -  Design, Cover Design 
+Jimi Hendrix Experience  -  Performer 
+Ed Thrasher  -  Art Direction, Photography 
+Gered Mankowitz  -  Photography 
+David King  -  Design, Cover Design 
+Baron Wolman  -  Photography 
+David Sygall  -  Photography 
+Smay Vision  -  Design 
+Janie Hendrix  -  Remastering Supervisor 
+Bruce Fleming  -  Photography 
+John McDermott  -  Remastering Supervisor 
+Leni Sinclair  -  Photography 
+Ron Rafaelli  -  Photography 
+
+
+### "Are You Experienced? [UK]" 1967, Hard Rock
+
+
+
+### "Electric Ladyland" 1968, Hard Rock
+
+  1.   ...And the Gods Made Love (Hendrix) - 1:21 
+  2.   Have You Ever Been (To Electric Ladyland) (Hendrix) - 2:12 
+  3.   Crosstown Traffic (Hendrix) - 2:25 
+  4.   Voodoo Chile (Hendrix) - 15:05 
+  5.   Little Miss Strange (Redding) - 2:50 
+  6.   Long Hot Summer Night (Hendrix) - 3:30 
+  7.   Come on, Pt. 1 (King) - 4:10 
+  8.   Gypsy Eyes (Hendrix) - 3:46 
+  9.   Burning of the Midnight Lamp (Hendrix) - 3:44 
+  10.   Rainy Day, Dream Away (Hendrix) - 3:43 
+  11.   1983... (A Merman I Should Turn to Be) (Hendrix) - 13:46 
+  12.   Moon, Turn the Tides...Gently Gently Away (Hendrix) - 1:01 
+  13.   Still Raining, Still Dreaming (Hendrix) - 4:24 
+  14.   House Burning Down (Hendrix) - 4:35 
+  15.   All Along the Watchtower (Dylan) - 4:01 
+  16.   Voodoo Child (Slight Return) (Hendrix) - 5:14 
+
+
+Al Kooper  -  Piano, Keyboards 
+Dave Mason  -  Guitar (Acoustic), Guitar, Vocals (bckgr) 
+Buddy Miles  -  Drums 
+Steve Winwood  -  Organ 
+David Montgomery  -  Photography 
+Mike Finnigan  -  Organ, Bass 
+Mike Mandel  -  Piano 
+Noel Redding  -  Bass, Guitar (Bass), Guitar (Rhythm), Vocals 
+The Sweet Inspirations  -  Vocals (bckgr) 
+Jack Casady  -  Bass 
+Larry Faucette  -  Conductor, Conga 
+Joe Gastwirt  -  Remastering 
+Jimi Hendrix  -  Bass, Guitar, Piano, Arranger, Director, Harpsichord, Vocals, Producer, Liner Notes, Mixing 
+Jeanette Jacobs  -  Vocals 
+Gary Kelgren  -  Engineer 
+Glen Kolotkin  -  Engineer 
+Eddie Kramer  -  Engineer, Remastering 
+George Marino  -  Remastering 
+Linda McCartney  -  Photography, Back Cover 
+Mitch Mitchell  -  Drums 
+Rob O'Connor  -  Design 
+Fred Smith  -  Horn, Saxophone, Sax (Tenor) 
+Derek Taylor  -  Liner Notes, Essay 
+Gary Kellgren  -  Engineer 
+Michael Fairchild  -  Liner Notes 
+Vartan  -  Reissue Art Director 
+Jimi Hendrix Experience  -  Performer 
+Ed Thrasher  -  Art Direction, Photography 
+Michael Diehl  -  Reissue Design 
+Gered Mankowitz  -  Photography 
+David King  -  Design 
+Karl Ferris  -  Photography, Cover Design, Back Cover 
+Gary Kellgram  -  Engineer 
+Jeff Leve  -  Writer 
+David Montgomery  -  Photography 
+David Sygall  -  Photography 
+Janie Hendrix  -  Remastering Supervisor 
+Chris Wood  -  Flute 
+John McDermott  -  Remastering Supervisor 
+John Adler  -  Photography 
+Axel Rad  -  Photography 
+Richard Montgomery  -  Photography, Back Cover 
+
+
+### "Band of Gypsys" 1970, Hard Rock
+
+  1.   Who Knows? (Hendrix) - 9:32 
+  2.   Machine Gun (Hendrix) - 12:33 
+  3.   Changes (Miles) - 5:10 
+  4.   Power to Love (Hendrix) - 6:53 
+  5.   Message to Love (Hendrix) - 5:22 
+  6.   We Gotta Live Together (Miles) - 5:46 
+
+
+Billy Cox  -  Bass 
+Wally Heider  -  Engineer 
+Jimi Hendrix  -  Guitar, Vocals, Mixing 
+Eddie Kramer  -  Remixing, Mixing, Remastering, Engineering Supervisor 
+George Marino  -  Remastering 
+Heaven Research  -  Producer 
+Joseph Sia  -  Photography 
+Janie Hendrix  -  Remastering Supervisor 
+Jan Blom  -  Photography 
+John McDermott  -  Liner Notes, Remastering Supervisor 
+
+
+### "The Cry of Love" 1971, Hard Rock
+
+1.   Freedom (Hendrix) - 3:25 
+  2.   Drifting (Hendrix) - 3:48 
+  3.   Ezy Ryder (Hendrix) - 4:10 
+  4.   Night Bird Flying (Hendrix) - 3:50 
+  5.   My Friend (Hendrix) - 4:38 
+  6.   Straight Ahead (Hendrix) - 4:42 
+  7.   Astro Man (Hendrix) - 3:32 
+  8.   Angel (Hendrix) - 4:25 
+  9.   In from the Storm (Hendrix) - 3:41 
+  10.   Belly Button Window (Hendrix) - 3:37 
+
+
+
+Stephen Stills  -  Piano 
+Steve Winwood  -  Keyboards 
+Buzzy Linhart  -  Vibraphone 
+Paul Caruso  -  Harmonica 
+Billy Cox  -  Bass 
+Ghetto Fighters  -  Vocals 
+Jimi Hendrix  -  Guitar, Vocals, Producer 
+Eddie Kramer  -  Producer 
+Emmeretta Marks  -  Vocals 
+Mitch Mitchell  -  Drums, Producer 
+Chris Wood  -  Wind
+
 
 ## Отношения с другими группами
 

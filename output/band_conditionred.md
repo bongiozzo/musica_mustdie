@@ -1,8 +1,35 @@
 # Condition Red
 
-Дискография
-"Condition Red" 2000, Progressive
-"II" 2003, Progressive
+neo-classic/progressive
+
+## Дискография
+
+### "Condition Red" 2000, Progressive
+
+
+
+### "II" 2003, Progressive
+
+The Warning 
+Eye Of A Storm 
+Cycles 
+Time Passes By 
+The Eagle's Return 
+It's Not Too Late 
+Rondo 
+Why Won't You Hear Me 
+Seven Stars 
+Your Freedom 
+In/Out 
+Train Insane 
+Out Of The Red
+
+Ella Grussner - vocals
+Gerald Kloos - drums
+Alexander King - keyboards
+Alex Masi - guitar
+Lars Eric Mattsson - guitars, bass and addition keys
+
 
 ## Отношения с другими группами
 

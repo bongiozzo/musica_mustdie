@@ -1,12 +1,100 @@
 # Dream Evil
 
-Дискография
-"DragonSlayer" 2002, Power Metal
-"Evilized" 2003, Power Metal
-"The Book Of Heavy Metal" 2004, Power Metal
-"The First Chapter (single)" 2004, Power Metal
-"United" 2006, Power Metal
-"In the Night " 2010, Power Metal
+swedish power star-project
+
+## Дискография
+
+### "DragonSlayer" 2002, Power Metal
+
+1. Chasing The Dragon (4:01)
+2. In Flames You Burn (4:34)
+3. Save Us (3:39)
+4. Kingdom Of The Damned (3:54)
+5. The Prophecy (4:14) 
+6. The Chosen Ones (5:02)
+7. Losing You (5:56)
+8. The 7th Day (3:33)
+9. Heavy Metal In The Night (4:54)
+10. H.M.J (2:46) 
+11. Hail To The King (3:30)
+12. Outro (0:15) 
+
+
+
+Fredrik Nordstrom - Guitars & Keyboards 
+Gus G. - Guitars 
+Niklas Isfeldt - Vocals 
+Peter Stalfors - Bass 
+Snowy Shaw - Drums 
+
+
+### "Evilized" 2003, Power Metal
+
+
+
+### "The Book Of Heavy Metal" 2004, Power Metal
+
+01. The Book Of Heavy Metal (March Of The Metallians) [5:25] 
+02. Into The Moonlight [4:20] 
+03. The Sledge [2:59] 
+04. No Way [3:19] 
+05. Crusaders' Anthem [4:21] 
+06. Let's Make Rock [4:03] 
+07. Tired [3:49] 
+08. Chosen Twice [4:22] 
+09. M.O.M. [3:33] 
+10. The Mirror [3:46] 
+11. Only For The Night [4:11] 
+12. Unbreakable Chain [5:51]
+
+### "The First Chapter (single)" 2004, Power Metal
+
+01. The Book Of Heavy Metal [edit] [3:48] 
+02. Tired [3:49] 
+03. Point Of No Return [3:51]
+
+### "United" 2006, Power Metal
+
+1. Fire! Battle! In Metal! 03:11  
+2. United 03:33  
+3. Blind Evil 04:23  
+4. Evilution 04:28  
+5. Let Me Out 04:28  
+6. Higher On Fire 04:29  
+7. Kingdom At War 03:11  
+8. Love Is Blind 04:47  
+9. Falling 04:01  
+10. Back From The Dead 04:28  
+11. Doomlord 04:42  
+12. My Number One 03:09
+
+### "In the Night " 2010, Power Metal
+
+1. Immortal 04:38  
+2. In The Night 03:15
+3. Bang Your Head 03:51 
+4. See The Light 03:39 
+5. Electric 03:50 
+6. Frostbite 03:30
+7. On The Wind 03:45 
+8. The Ballad 04:51 
+9. In The Fires Of The Sun 04:41 
+10. Mean Machine 04:05 
+11. Kill, Burn, Be Evil 02:51 
+12. The Unchosen One 03:35 
+
+
+
+Line-up:
+
+Nick Night - Vocals
+Dannee Demon - Guitars
+Ritchie Rainbow - Guitars
+Pete Pain - Bass
+Pat Power - Drums
+
+Produced at Fredrik Nordstrцm's Studio Fredman, Sweden. 
+
 
 ## Отношения с другими группами
 

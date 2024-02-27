@@ -1,11 +1,73 @@
 # Mortal Sin
 
-Дискография
-"Mayhemic Destruction" 1986, Thrash
-"Face of Despair" 1989, Thrash
-"Every Dog Has Its Day a.k.a. Rebellious Youth" 1991, Thrash
-"An Absence of Faith" 2007, Thrash
-"Psychology Of Death" 2011, Thrash
+
+
+## Дискография
+
+### "Mayhemic Destruction" 1986, Thrash
+
+1. The Curse  02:22   
+2. Women In Leather  04:49   
+3. Lebanon  07:22   
+4. Liar  04:19   
+5. Blood, Death, Hatred  03:54   
+6. Mortal Slaughter  03:13  
+7. Into The Fire  04:41  
+8. Mayhemic Destruction  05:12 
+
+### "Face of Despair" 1989, Thrash
+
+1. I Am Immortal  04:42 
+2. Voyage Of The Disturbed  05:03   
+3. The Infantry Corps  03:51 
+4. For Richer For Poorer  04:45
+5. Martyrs Of Eternity  05:11  
+6. Innocent Torture  04:12 
+7. Suspended Animation  04:56  
+8. H  03:19 
+9. Terminal Reward  04:34  
+10. Robbie Soles  02:32 
+
+### "Every Dog Has Its Day a.k.a. Rebellious Youth" 1991, Thrash
+
+1. Inside Out  05:38 
+2. Access Denied  05:22
+3. Every Dog Has its Day  03:52
+4. Behind the Lies  05:12   
+5. Wasted Days  04:31 
+6. From the Gutter to the Grave  05:31 
+7. Side Effect  03:15  
+8. Blackout  04:45   
+9. See No Evil  03:29   
+10. The Price of Peace  04:18   
+11. Rebellious Youth  02:53   
+12. Why?  05:13 
+
+### "An Absence of Faith" 2007, Thrash
+
+1. Out of the Darkness  03:38   
+2. Deadman Walking  05:45   
+3. Tears of Redemption  08:53 
+4. Before the Bough Breaks  04:53 
+5. Rise or Fall  03:53 
+6. My Nightmare  03:48  
+7. Say Your Prayers  04:24  
+8. Lost Within  04:09  
+9. Eye in the Sky  04:36   
+10. Broken Promises  03:42 
+
+### "Psychology Of Death" 2011, Thrash
+
+1. Psychology Of Death   
+2. Blood Of My Enemies    
+3. Paralysed      
+4. Burned Into Your Soul    
+5. Deny   
+6. Doomed To Annihilation      
+7. Kingdom Of Pain  
+8. Down In The Pit  
+9. Hatred  
+
 
 ## Отношения с другими группами
 

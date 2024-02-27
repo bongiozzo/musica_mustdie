@@ -1,19 +1,255 @@
 # Ektomorf
 
-Дискография
-"Hangok" 1996, Metal
-"Ektomorf" 1998, Metal
-"Kalyi Jag" 2000, Metal
-"I Scream Up To The Sky" 2002, Metal
-"Destroy" 2004, Metal
-"Instinct" 2005, Metal
-"Outcast" 2006, Metal
-"What Doesn't Kill Me…" 2009, Metal
-"Redemption" 2010, Metal
-"The Acoustic" 2012, Rock
-"Black Flag" 2012, Metal
-"Retribution" 2014, Metal
-"Aggressor" 2015, Metal
+
+
+## Дискография
+
+### "Hangok" 1996, Metal
+
+01. NEKEM NE MONDD MEG
+02. SHALOM
+03. ENGEDELYEZETT GYILKOSSAG
+04. HANGOK
+05. UVOLTO FELELEM
+06. KIVULROL NEZVE
+07. JOVATEHETETLEN
+08. TERROR
+09. A ROMOK ALATT
+10. JEZUS VAR
+11. STATISZTIKA
+12. BELULROL
+13. ELLENALLAS
+14. A VILAGSZENVED
+15. HABORU SZINDROMA
+
+
+- FARKAS ZOLTAN (VOC/GUIT)
+- FARKAS CSABA (BS)
+- JANO MIHALY (GUIT)
+- TERNOVAN CSABA (DR)
+
+
+### "Ektomorf" 1998, Metal
+
+01. NEM ENGEDEM
+02. VER
+03. 393
+04. OROK VESZTESEK
+05. MAGAMERT
+06. 100 % GYULOLET
+07. FEREG
+08. ERVAGAS
+09. EZ VAGYOK EN
+10. MENEKULES
+11. EUTANAZIA
+12. EGYEDUL
+
+
+- FARKAS ZOLTAN (VOC/GUIT)
+- FARKAS CSABA (BS)
+- MARKSTEINER BЙLA (GUIT)
+- TERNOVAN CSABA (DR)
+
+
+### "Kalyi Jag" 2000, Metal
+
+1. SON OF THE FIRE
+2. SUNTO DEL MULO
+3. FREELY
+4. ROMUNGRO
+5. FOR YOU
+6. FOR THE LAST TIME
+7. ALWAYS BELIEVE IN YOURSELF
+8. OPEN UP YOUR EYES
+9. SAVE MY SOUL
+10. THE WAY I DO
+11. BROTHERSONG
+12. DON'T NEED
+13. FLY
+14. KALYI JAG
+15. FORGOTTEN FIRE
+
+
+- FARKAS ZOLTAN (VOC/GUIT)
+- FARKAS CSABA (BS)
+- SZAKACZ JOZSEF (DR)
+
+
+### "I Scream Up To The Sky" 2002, Metal
+
+1. I SCREAM UP TO THE SKY
+2. YOU LEECH
+3. FIRE
+4. I MISS YOU
+5. AN LES DEVLA
+6. I'M FREE
+7. A HARD DAY'S NIGHT
+8. IF I WEREN'T
+9. FAJDALOM KONNYEI
+10. YOU ARE
+11. SCUM
+12. SERIAL MEN
+13. BLOOD IN BLOOD
+
+
+Farkas Zoltan - vocals/guitars
+Farkas Csaba - bass
+Kovacs Laszlo - guitars
+Szakacs Jozsef - drums
+
+
+Intro - Farago Janos (1938-1983) recorded 1960
+female vocal on I miss you and blood in blood
+Farago Piroska (1949-1998) recorded 1960
+vocal on Fajdalom Koyei - Csato Peti
+scratching - DJ Pozsi
+manager - Alagyi Robert
+
+recorded, mixed and engineered
+by Scheer MAX Victor at HSB studio
+mastered by Regenye "regi" Zoltan
+at HSB studio / 2002-03-04
+H-2120 Dunakeszi. Repuloteri ut 1
+
+All Music by Ektomorf
+Except A Hard Day's Night
+(Lennon & MC Cartney)
+Design by Nesic Aleksandar
+
+
+
+
+### "Destroy" 2004, Metal
+
+01. I Know Them
+02. Destroy
+03. Gypsy
+04. No Compromise
+05. Everything
+06. From Far Away
+07. Painful But True
+08. Only God
+09. You Are My Shelter
+10. A.E.A.
+11. From My Heart
+12. Tear Apart
+
+Farkas Zoltan - vocals, guitars, acoustic guitars
+Schrottner Tamas - guitars
+Farkas Csaba - bass
+Szakacs Jazsef - drums
+
+All lyrics and music by Farkas Zoltan.
+Sitar on "From My Heart", "From Far Away" and "You
+Are My Shelter" by Tue Madsen.
+Vocal gang on "A.E.A." by Jakob Bredhal & Mircea
+Gabriel Eftemie.
+Percussions on "From My Heart" by Mikell
+Christiansen.
+Produced by Tue Madsen & Ektomorf 2003 at Antfarm
+Studios, Denmark.
+
+### "Instinct" 2005, Metal
+
+1. Set Me Free
+2. Show Your Fist
+3. Instinct
+4. Burn
+5. The Holy Noise
+6. Fuck You All
+7. United Nations
+8. Land Of Pain
+9. I Break you
+10. You Get What You Give
+11. Until The End
+12. I Will
+
+### "Outcast" 2006, Metal
+
+1. Outcast
+2. I Choke
+3. Ambush In The Night
+4. I'm Against
+5. We Rise
+6. Red I
+7. Who Can I Trust (Prayer)
+8. Leave Me Alone
+9. Fuel My Fire (PRODIGY cover)
+10. I Confront My Enemy
+11. Hell Is Here
+12. Chamunda
+
+### "What Doesn't Kill Me…" 2009, Metal
+
+01. Rat War
+02. Nothing Left
+03. What Doesn't Kill Me... 
+04. Revenge To All
+05. Love And Live
+06. Can See You
+07. I Got It All
+08. New Life
+09. Sick Of It All
+10. It's Up To You
+11. Envy
+12. Scream
+13. Breed The Fire
+
+### "Redemption" 2010, Metal
+
+1 - Last Fight 
+2 - Redemption 
+3 - I’m In Hate 
+4 - God Will Cut You Down 
+5 - Stay Away 
+6 - Never Should 
+7 - Sea Of My Misery 
+8 - The One (feat. Danko Jones) 
+9 - Revolution 
+10 - Cigany 
+11 - Stigmatized 
+12 - Anger
+
+
+### "The Acoustic" 2012, Rock
+
+01. I Know Them
+02. I’m in Hate
+03. Be Free
+04. Redemption
+05. Simple Man
+06. To Smoulder
+07. Folsom Prison Blues
+08. Again
+09. Through Your Eyes
+10. Fate
+11. Stigmatized
+12. Who Can I Trust
+
+### "Black Flag" 2012, Metal
+
+01. War Is My Way
+02. Unscarred
+03. The Cross
+04. Cut It Out
+05. Black Flag
+06. Private Hell
+07. 12 Angels
+08. Enemy
+09. Fuck Your God
+10. Never Surrender
+11. Sick Love
+12. Feel Like This
+13. Kill It
+
+### "Retribution" 2014, Metal
+
+
+
+### "Aggressor" 2015, Metal
+
+
+
 
 ## Отношения с другими группами
 

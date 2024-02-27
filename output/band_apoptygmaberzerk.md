@@ -1,11 +1,80 @@
 # Apoptygma Berzerk
 
-Дискография
-"Soli Deo Gloria" 1993, Gothic
-"7" 1996, Gothic
-"The Apopcalyptic Manifesto" 1998, Gothic
-"Welcome To Earth" 2000, Gothic
-"Harmonizer" 2002, Gothic
+
+
+## Дискография
+
+### "Soli Deo Gloria" 1993, Gothic
+
+1.    Like blood from the beloved
+2.    Bitch
+3.    Burning Heretic (album version)
+4.    Stitch
+5.    Walk with me
+6.    Backdraft
+7.    ARP (808 edit)
+8.    Spiritual reality
+9.    Skyscraping
+10.    All tomorrows parties
+11.    The sentinel
+12.    Ashes to ashes'93
+13.    Like blood from the beloved (part 2)
+
+### "7" 1996, Gothic
+
+1.    Love never die
+2.    Mourn
+3.    Non-stop violence
+4.    25 Cromwell St.
+5.    Rebel
+6.    Deep red
+7.    Nearer
+8.    Half asleep
+9.    Love never dies (part 2)
+bonus track
+10.    Mourn (APB RMX)
+
+### "The Apopcalyptic Manifesto" 1998, Gothic
+
+1.    APB goes 64 (intro)
+2.    Deep red
+3.    Bitch
+4.    Stitch
+5.    Spiritual reality
+6.    Electronic warfare
+7.    All tomorrowa parties
+8.    ARP
+9.    Burnin' heretic (album version)
+10.  Lidelsens mening
+11.  Backdraft
+12.  Ashes to ashes (german slam version)
+13.  The approach of death
+
+bonuses
+14.    Ashes to ashes (original 12" version)
+15.    Wrack em to pieces
+16.    Burning heretic (crisp version)
+
+### "Welcome To Earth" 2000, Gothic
+
+1.    Everything we know is wrong
+2.    Starsign
+3.    Eclipse
+4.    Help me!
+5.    Kathy's song (come lie next to me)
+6.    Untitled 3
+7.    Moment of tranquillity
+8.    Fade to black
+9.    64 k
+10.    Paranoia
+11.    Soultaker
+12.    LNDP3
+13.    Time to move on
+
+### "Harmonizer" 2002, Gothic
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,70 @@
 # Lunatica
 
-Дискография
-"Fables & Dreams" 2004, Gothic
-"The Edge Of Infinity" 2006, Gothic
+
+
+## Дискография
+
+### "Fables & Dreams" 2004, Gothic
+
+1. The Search Goes On
+2. Avalon
+3. Elements
+4. Fable Of Dreams
+5. Still Believe
+6. The Spell
+7. The Neverending Story
+8. Hymn
+9. Silent Scream (2004)
+10. A Little Moment Of Desperation
+
+
+Andrea - vocals
+Andy - guitars
+Sandro - guitars
+Alex - keyboards
+Ermes - drums
+
+Recorded at Gate-Studio, Wolfsburg, Germany.
+Engineered by Olaf Reitmeier.
+Editing by Olaf Reitmeier & Annie at Privat
+Universe-Studio.
+Keyboards recorded at HitHouse-Studio,
+Switzerland.
+Engineered by Domenico Livrano.
+Mixed & mastered by Sascha Paeth at Pathway
+Studios,
+Wolfsburg, Germany, except "The Search Goes On"
+mixed by Miro at Gate-Studio.
+All songs arranged and produced by Lunatica &
+Domenico Livrano,
+except "The Search Goes On" and "Fable Of Dreams"
+arranged and
+produced by Alex & Domenico Livrano.
+Bass played by Olaf Reitmeier.
+Male vocals at "The Spell" by Marc Torretti.
+Backing vocals by Andrea, Annie & Olaf Reitmeier,
+except "Fable Of
+Dreams" by Jean-Marc Viller, Andrea & Annie.
+Miro: strings and choir-pad at "The Search Goes
+On".
+Voice at "The Search Goes On" by Billy.
+Booklet artwork by PW-Graphics (Philipp Wehrli).
+Photographs by Bjorn and Fabio Diena.
+
+### "The Edge Of Infinity" 2006, Gothic
+
+1. Introduction (feat. Dieter Meier)
+2. The Edge Of Infinity
+3. Sons Of The Wind
+4. Who You Are
+5. Out!
+6. Song For You (feat. John Payne)
+7. Together
+8. The Power Of Love
+9. Words Unleashed
+10. EmOcean
+11. EmOcean (feat. Oliver Hartmann – Bonus Track)
+
 
 ## Отношения с другими группами
 

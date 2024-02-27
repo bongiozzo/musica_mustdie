@@ -1,12 +1,87 @@
 # Dark Age
 
-Дискография
-"The Fall" 1999, Melodic Death Metal
-"Insurrection" 2000, Melodic Death Metal
-"The Silent Republic" 2002, Melodic Death Metal
-"Dark Age" 2004, Melodic Death Metal
-"Minus Exitus" 2008, Melodic Death Metal
-"Acedia" 2009, Melodic Death Metal
+
+
+## Дискография
+
+### "The Fall" 1999, Melodic Death Metal
+
+1. Dark Age 06:37 
+2. Tears of Rancour 04:55
+3. The Awakening 04:37
+4. Nighttime Heroes 06:54
+5. Storm 04:58 
+6. Black Evergate 05:35
+7. The Fall 08:53 
+
+### "Insurrection" 2000, Melodic Death Metal
+
+1. Trial by Fire 06:57
+2. Killing Crisis 05:18
+3. Fearing Tommorow 05:07 
+4. Terror to the Masses 05:33
+5. Heartfall 05:34
+6. Chaos of the Gods 05:15
+7. Break of the Elements 04:52
+8. Eden Calling 06:29 
+9. For Whom the Bell Tolls (digipack bonus track) 04:44 
+
+### "The Silent Republic" 2002, Melodic Death Metal
+
+1. Introduction 01:14  
+2. The Silent Republic 04:15
+3. Daily Combat 03:41
+4. Know Me Strong 04:14 
+5. Suicide Crew 02:40
+6. Cut the Flesh 03:49
+7. Return 04:42
+8. Last Words 05:24
+9. Now or Never 04:39
+10. We Who Suffer 05:59
+11. Hell's Bells (AC/DC Cover - digipack bonus track) 04:42 
+
+### "Dark Age" 2004, Melodic Death Metal
+
+1. Fix the Focus 04:32
+2. Zero 04:58
+3. Dare to Collapse 03:54
+4. Pulse of Minority 04:11
+5. Neokillers 03:50 
+6. Nikita 04:54
+7. My Own Darkness 03:09 
+8. Neurosis 404 04:02
+9. The Elegy of a Forgotten Science 03:34
+10. Suicide Solution (Ozzy Osbourne cover) 03:40 
+
+### "Minus Exitus" 2008, Melodic Death Metal
+
+1. Minus Exitus 04:16
+2. Black September 03:59
+3. Outside the Inside 03:44
+4. The Dying Art of Recreation 04:06 
+5. Exit Wounds 04:06 
+6. Seven 03:21
+7. No Way Home 04:56 
+8. Cold 04:53 
+9. Instrumental 04:27  
+10. Life for Blood 04:00
+11. The Echoes Discipline 04:17
+12. Outro / October (U2 Cover) 02:56 
+
+### "Acedia" 2009, Melodic Death Metal
+
+1. Kingdom Nevercome 04:32
+2. Devote Yourself to Nothing 04:07
+3. Neon Gardens 04:22
+4. Snake of June 04:05
+5. Zeitgeist (Ghost in a Machine) 03:16
+6. 10 Steps to Nausea 03:38
+7. Halo Meridian 04:22
+8. Underneath these Burdens 04:31
+9. All the Unfullfilled 03:36
+10. Babylon Riots 03:18 
+11. Myself heretic 04:16 
+
 
 ## Отношения с другими группами
 

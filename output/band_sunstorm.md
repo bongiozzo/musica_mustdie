@@ -1,7 +1,24 @@
 # Sunstorm
 
-Дискография
-"Sunstorm" 2006, Hard Rock
+
+
+## Дискография
+
+### "Sunstorm" 2006, Hard Rock
+
+01. Keep Tonight
+02. Fame And Fortune
+03. Heart Over Mind
+04. This Is My Heart
+05. Strength Over Time
+06. Another You
+07. Fist Full Of Heat
+08. Love?s Gone Wrong
+09. Night Moves
+10. Danger Of Love
+11. Making Up For Lost Time
+12. Arms Of Love
+
 
 ## Отношения с другими группами
 

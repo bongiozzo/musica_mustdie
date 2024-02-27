@@ -1,7 +1,46 @@
 # Proscriptor
 
-Дискография
-"The Venus Bellona" 1997, Ambient
+Avantgarde Neo-Classic Gothic
+
+## Дискография
+
+### "The Venus Bellona" 1997, Ambient
+
+1.  An Initium For You
+2.  I Am The One
+3.  Our Blood And Veins From The McCovern Regiment
+4.  Hi Ri Ri Tha E Tichinn
+5.  Lady Day Eve
+6.  Madeleine
+7.  Kiss Of Shame
+8.  Tractatus
+9.  My Legacy: A Cryskine
+10.  Serpentine Of Six-Fold Stars
+11.  The Barren Stones Of Lughnasadh
+12.  Far Away From Balkan Hill
+13.  De La Fletus Des Athroll (After The massacre Of Glencoe) Part II
+14.  Chomere !
+15.  Commanding The Dragon Of Keppoch
+16.  Ground's A Fire
+17.  Defeat
+18.  We Raise Our Silver Goblets In Triumph
+19.  We Produced The Non-Existence Of Xalteun
+20.  Finem Habere Flames For You - I Ran (So Far Away)
+
+Recorded and Mixed at Prenatal Productions.
+Produced by Proscriptor Mc Govern.
+Engineered by Michael Lougbridge and Proscriptor McGovern.
+
+Proscriptor McGovern
+Sawickyzus
+Equitant
+Ellisile
+Vordhr Dzokhk
+Mythopoetikon of Malkuth
+Sir James Oliver of Firth
+
+(P)(C) 1997 CRUEL MOON International
+
 
 ## Отношения с другими группами
 

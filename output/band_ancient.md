@@ -1,16 +1,195 @@
 # Ancient
 
-Дискография
-"Svartalvheim" 1995, Black Metal
-"The Cainian Chronicle" 1996, Black Metal
-"Trolltaar" 1996, Black Metal
-"Mad Grandiose Bloodfiends" 1997, Black Metal
-"Det Glemte Riket" 1999, Black Metal
-"The Halls Of Eternity" 2000, Black Metal
-"God Loves the Dead" 2001, Black Metal
-"Proxima Centauri" 2001, Black Metal
-"Night Visit" 2004, Black Metal
-"Back to the Land of the Dead" 2016, Black Metal
+Black Metal
+
+## Дискография
+
+### "Svartalvheim" 1995, Black Metal
+
+1. Svartalvheim
+2. Trumps Of An Archangel
+3. Huldradans
+4. The Call Of The Absu Deep
+5. Det Glemte Riket
+6. Paa Evig Vandring
+7. Ved Trollfjern
+8. Ferily Howling Winds
+9. Likferd
+
+ Aphazel - Guitars, Bass & Keyboards
+ Grimm - Drums & Vocals
+
+All Songs Written By ANCIENT
+Produced & Engineered By Cato Langnes.
+Co-Produced By ANCIENT.
+Recorded, Mixed & Mastered At Hindu Lyd, 1994.
+
+(p)&(c) 1995 LISTENABLE Records
+
+### "The Cainian Chronicle" 1996, Black Metal
+
+1. Ponderous Moonlighting (Instrumental)
+2. Part I: The Curse
+3. Part II: Lilith's Embrace
+4. Part III: Disciplines Of Caine
+5. Part IV: Zillah And The Crone
+6. At The Infernal Portal (Canto III)
+7. Cry Of Mariamne (Instrumental)
+8. Prophecy Of Gehenna
+9. Song Of Kaiaphas
+10. Exu (Instrumental)
+11. The Pagan Cycle
+12. Homage To Pan
+
+All songs written by ANCIENT.
+Produced by Dan Swano and ANCIENT.
+Engineered and mixed by Dan Swano.
+Recorded and mixed at Unisound Studios.
+
+Aphazel - All Guitars, Bass and Synth
+Lord Kaiaphas - Vocals, Drums on З
+Kjetil - Drums
+Kimberly Goss - Vocals and Synth
+
+(p)c 1996 METAL BLADE Records
+
+### "Trolltaar" 1996, Black Metal
+
+1. Trolltaar
+2. Nattens Skonnhet
+3. Fjellets Hemmelightet
+
+   Aphazel - Guitars, Bass & Keyboards
+   Grimm - Drums & Vocals
++ Knut Arne Kringstad - Euphonium
++ Lise Kari H.Stalheim - Female Vocals
+
+All Songs Written By ANCIENT
+Produced By ANCIENT & Michael Omlid.
+Recorded, Mixed & Mastered At Warlust Studios.
+
+(P)&(C) 1996 DAMNATION Records
+
+### "Mad Grandiose Bloodfiends" 1997, Black Metal
+
+1. Malkavian Twilight (Instrumental)
+2. A Mad Blood Scenario
+3. The Draining
+4. Um Sonho Psycodelico
+5. Sleeping Princess Of The Arges
+6. Her Northern Majesty
+7. Blackeyes
+8. The Emerald Tablet
+9. Willothewisp
+10.Neptune (Instrumental)
+11.5 (Instrumental)
+12.Hecate, My Love And Lust
+13.Vampirize Natasha
+14.Black Funeral
+15.Morte El Potere (Japanese Bonus Track)
+
+### "Det Glemte Riket" 1999, Black Metal
+
+1. Trolltaar
+2. Nattens Skjonnhet
+3. Eerily Howling Winds
+4. Det Glemte Riket
+5. Huldra Dans
+6. Paa Evig Vandring
+7. Fjellets Hemmelighet
+8. Algol
+9. Sweet Leaf
+
+### "The Halls Of Eternity" 2000, Black Metal
+
+1. Cast Into The Unfathomed Deeps
+2. Born In Flames
+3. The Battle Of The Ancient Warriors
+4. A Woeful Summoning
+5. Cosmic Exile
+6. Spiritual Supremacy
+7. The Heritage
+8. I, Madman
+9. From Behind Comes The Sword
+10.The Halls Of Eternity
+11.Arrival
+
+### "God Loves the Dead" 2001, Black Metal
+
+God loves the dead       3.49
+Trolltaar 2000           6.39
+Powerslave               8.00
+The draining (Remix)     5.28
+Um somho psycodelicho (Remix)   4.01
+----------VIDEO--------------
+God loves the dead        
+Um somho psycodelico
+
+### "Proxima Centauri" 2001, Black Metal
+
+1) A lurking threat 
+2) Proxima Centauri 
+3) The ancient horadrim 
+4) in the abyss of the cursed souls 
+5) the witch 
+6) apophis 
+7) Satan's children 
+8) beyond the realms of insanity 
+9)Audrina my sweet... 
+10) on blackest wings 
+11) eyes of the dead 
+12) incarnating the malignant deity 
+
+
+Aphazel : guitars / vocals / keyboards
+Deadly Kristin : vocals
+Dilhorz : bass
+Grom : drums of destruction
+Jesus Christ !: keyboards 
+
+
+Produced by : ANCIENT & Jacob Hansen
+Recorded in May 2001 at Los Angered Recording, Sweden
+Recorded and Engineered by : Jacob Hansen
+Co-Engineered by : Kristian ‘Risza’ Isaksson
+Mastered at Sterling Sound, New York City, by : Chris Athens
+Front Cover & Artwork by : Air-Brush Perre
+Front Cover Concept by : GroM & Air-Brush Perre
+Layout by : GroM & Aphazel
+
+
+### "Night Visit" 2004, Black Metal
+
+01. Envision the Beast
+02. Rape the Children of Abel
+03. Horroble
+04. Night Visit
+05. Lycanthropy
+06. Night of the Stygian Souls
+07. Fuel the Flames
+08. The Truth Unveiled
+Bonus tracks:
+09. The Arctic Mirage
+10. Out in the Haunted Woods
+
+### "Back to the Land of the Dead" 2016, Black Metal
+
+1. Land of the Dead  04:07  
+2. Beyond the Blood Moon  03:42   
+3. The Sempiternal Haze  04:25  
+4. The Empyrean Sword  05:45    
+5. The Ancient Disarray  05:45    
+6. Occlude the Gates  05:22   
+7. Part I: Defiance and rage  05:13   
+8. Part II: The Prodigal Years  00:45   
+9. Part III: The Awakening  04:47  
+10. Death Will Die  05:34   
+11. The Spiral  06:19 
+12. Petrified by Their End  09:27 
+13. 13 Candles (Bathory cover)  04:19 
+
+Mastered by Mika Jussila at Finnvox Studios, Helsinki
+
 
 ## Отношения с другими группами
 

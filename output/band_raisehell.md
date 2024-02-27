@@ -1,9 +1,55 @@
 # Raise Hell
 
-Дискография
-"Holy Target" 1998, Melodic Death Metal
-"Not Dead Yet" 2000, Melodic Death Metal
-"Wicked Is My Game" 2002, Thrash
+
+
+## Дискография
+
+### "Holy Target" 1998, Melodic Death Metal
+
+01. The march of devil's soldiers 
+02. Raise the devil 
+03. Beautiful as fire 
+04. Holy target 
+05. Legions of creeps 
+06. The red ripper 
+07. Black visions 
+08. Mattered out 
+09. Superior powers
+
+### "Not Dead Yet" 2000, Melodic Death Metal
+
+01. Dance with the devil 
+02. Babes 
+03. Back attack 
+04. Devilyn 
+05. Not dead yet 
+06. No puls 
+07. User of poison 
+08. He is coming 
+09. Soulcollector 
+
+### "Wicked Is My Game" 2002, Thrash
+
+01. Hellborn
+02. Nightwatcher
+03. The Haunted House
+04. Wicked Is My Game
+05. In My Cell
+06. Another Side
+07. Death Race
+08. Devil May Care
+09. Destiny Deceiver
+Wicked is my game was recorded between 3/7-11/7
+and 8/8-13/8 2002 in Flat planet studio
+All music and lyrics by Raise Hell, except the
+intro on Hellborn composed by John Carpenter
+(Halloween main theme), performed by Raise Hell
+Mastered at TTM Mastering Studio, Berlin, by Tom
+Muller
+Photos taken by Ulf Nilsson
+Data work by Robin Ljungqwist
+Layout by Robin Verho and Raise Hell
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,36 @@
 # Carnage
 
-Дискография
-"Dark Recollections" 1990, Death Metal
+Father Of Sweden Death
+
+## Дискография
+
+### "Dark Recollections" 1990, Death Metal
+
+1. Dark Recollections
+2. Torn Apart
+3. Blasphemies Of The Flesh
+4. Infestation Of Evil
+5. Gentle Exuming
+6. Derange From Blood
+7. Malignant Epitaph
+8. Self Dissection
+9. Death Evocation
+10.Outro
+
+ Matti Karki - Vocal
+ Fred Estby - Drums
+ David Blumkuist - Guitar
+ Johnny Dordevic - Bass
+ Michael Amott - Guitar
+
+Music & Lyrics By M.Amott,F.Estby & CARNAGE.
+Produced By Thomas Skogsberg,Fred Estby & Michael Amott.
+Engineered By Thomas Skogsberg.
+Recorded At Studio Sunlight,Feb. 1990.
+
+(p)&(c) 1990 NECROSIS Records Necro 003
+(p)&(c) 1990 EARACHE NECROSIS
+
 
 ## Отношения с другими группами
 

@@ -1,17 +1,198 @@
 # Dark Funeral
 
-Дискография
-"Dark Funeral [EP]" 1994, Black Metal
-"The Secrets of the Black Arts" 1996, Black Metal
-"Vobiscum Satanas" 1998, Black Metal
-"Teach Children to Worship Satan [EP]" 2000, Black Metal
-"In the Sign... [MCD]" 2000, Black Metal
-"Diabolis Interium" 2001, Black Metal
-"De Profundis Clamavi ad te Domine (live)" 2004, Black Metal
-"Attera Totus Sanctus" 2005, Black Metal
-"Angelus Exuro pro Eternus " 2009, Black Metal
-"Nail Them to the Cross (EP)" 2015, Black Metal
-"Where Shadows Forever Reign" 2016, Black Metal
+Swedish Antichristian Evil Satanic Black Metal from Stockholm
+
+## Дискография
+
+### "Dark Funeral [EP]" 1994, Black Metal
+
+1. Open The Gates - 4:34
+2. Shadows Over Transylvania - 4:22
+3. My Dark Desires - 3:52
+4. In The Sight Of The Horns - 3:44
+
+ Themgoroth - Vocals & Bass
+ Ahriman - Guitars
+ Blackmoon - Guitars, Bass On This Recording
+ Draugen - Drums
+
+All Music & Lyrics By DARK FUNERAL
+Produced By DARK FUNERAL & Dan Swano
+Recorded & Mixed At Hellspawn, Unisound Studios Anno Satanas, Jan 1994
+
+(p)&(c) 1994 HELLSPAWN Records
+
+### "The Secrets of the Black Arts" 1996, Black Metal
+
+1. The Dark Age Has Arrived (Intro) - 0:16
+2. The Secrets Of The Black Arts - 3:42
+3. My Dark Desires - 3:47
+4. The Dawn No More Rises - 3:59
+5. When Angels Forever Die - 4:07
+6. The Fire Eternal - 3:55
+7. Satan's Mayhem - 4:53
+8. Shadows Over Transylvania - 3:41
+9. Bloodfrozen - 4:20
+10.Satanic Blood - 2:12
+11.Dark Are The Path To Eternity (A Summoning Nocturnal) - 5:59
+
+All songs written by DARK FUNERAL
+Produced by DARK FUNERAL and
+    Peter Tagtgren
+Recorded and mixed at Studio Abyss
+
+Themgoroth - Demonic Vocals and Bass
+Ahriman - Death Guitars
+Blackmoon - Guitars
+Equimanthorn - Drums
+
+(p)(c) 1996 NO FASHION Records
+
+### "Vobiscum Satanas" 1998, Black Metal
+
+1. Ravenna Strigoi Mortii - 4:27
+2. Enriched By Evil - 4:43
+3. Thy Legions Come - 4:13
+4. Evil Prevail - 4:28
+5. Slava Satan - 3:59
+6. The Black Winged Horde - 4:37
+7. Vobiscum Satanas - 5:00
+8. Ineffable King Of Darkness - 3:38
+
+### "Teach Children to Worship Satan [EP]" 2000, Black Metal
+
+1. An Apprentice of Satan - 6:05
+2. The Trial (King Diamond cover) - 5:29
+3. Dead Skin Mask (Slayer cover) - 4:47
+4. Remember The Fallen (Sodom cover) - 4:16
+5. Pagan Fears (Mayhem cover) - 6:32
+
+There are collection of cover songs.
+
+Released: March 27th, 2000 
+
+Line-Up:
+Lord Ahriman - Guitars
+Emperor Magus Caligula - Bass/Vocals
+Dominion - Guitars
+Gaahnfaust - Drums
+
+Special guest performance:
+Larsa - Solo Guitars (tracks # 2, 3, 4)
+Dee Moe - Backing Vocals (tracks 2, 3)
+
+Contains the live video for "An Apprentice of Satan" CD-Extra MPEG-video.
+
+### "In the Sign... [MCD]" 2000, Black Metal
+
+01. Open The Gates 
+02. Shadows Over Transylvania 
+03. My Dark Desires 
+04. In The Sign Of The Horns 
+05. Call From The Grave 
+06. Equimanthorn
+
+Emperor Magus Caligula (Vocals)
+Lord Ahriman (Guitar)
+Chaq Mol (Guitar)
+Matte Modin (Drums)
+Lord K. (Live Bassist)
+
+### "Diabolis Interium" 2001, Black Metal
+
+1. The Arrival Of Satans Empire - 3:47
+2. Hail Murder - 5:02
+3. Goddess Of Sodomy - 4:11
+4. Diabolis Interium - 4:21
+5. An Apprentice Of Satan - 6:05
+6. Thus I Have Spoken - 4:59
+7. Armageddon Finally Comes - 3:21
+8. Heart Of Ice - 4:34
+
+### "De Profundis Clamavi ad te Domine (live)" 2004, Black Metal
+
+1. Intro
+2. The Arrival Of Satan’s Empire
+3. An Apprentice Of Satan
+4. The Dawn No More Rises
+5. Thy Legions Come
+6. Hail Murder
+7. Goddess Of Sodomy
+8. The Secrets Of The Black Arts
+9. Vobiscum Satanas
+10. Shadows Over Transylvania
+11. Open The Gates
+12. Ineffable Kings Of Darkness
+13. Thus I Have Spoken
+14. My Dark Desires
+15. Armageddon Finally Comes
+
+### "Attera Totus Sanctus" 2005, Black Metal
+
+1. King Antichrist - 04:39
+2. 666 Voices Inside - 04:38
+3. Attera Totus Sanctus - 05:37
+4. Godhate - 05:06  
+5. Atrium Regina - 05:33
+6. Angel Flesh Impaled - 05:53
+7. Feed on the Mortals - 05:41 
+8. Final Ritual - 05:44
+
+### "Angelus Exuro pro Eternus " 2009, Black Metal
+
+1. The End of Human Race 04:43  
+2. The Birth of the Vampiir 04:50  
+3. Stigmata 05:06  
+4. My Funeral 05:30  
+5. Angelus Exuro pro Eternus 05:04  
+6. Demons of Five 04:48  
+7. Declaration of Hate 05:24  
+8. In My Dreams 06:30  
+9. My Latex Queen 05:21 
+
+
+Bonus DVD (limited edition only):
+Live at Peace & Love festival on June 28, 2008 in Borlдnge, Sweden:
+01. Intro
+02. King Antichrist
+03. Diabolis Interium
+04. The Secrets of The Black Arts
+05. The Arrival of Satan's Empire
+06. Goddess of Sodomy
+07. 666 Voices Inside
+08. Vobiscum Satanas
+09. Hail Murder
+10. Atrum Regina
+11. An Apprentice of Satan
+
+A video clip was made for My Funeral. The video was shot in and outside an old
+and closed mental hospital. Uncensored and censored versions of the video exist. 
+
+### "Nail Them to the Cross (EP)" 2015, Black Metal
+
+1. Nail Them to the Cross  04:42   
+2. Temple of Ahriman  05:21 
+
+
+Recorded at Dugout Studios, Uppsala Nov 2014.
+Music by Lord Ahriman, 
+Lyrics by Heljarmadr & Lord Ahriman.
+
+### "Where Shadows Forever Reign" 2016, Black Metal
+
+1. Unchain My Soul  05:20   
+2. As One We Shall Conquer  04:43    
+3. Beast Above Man  04:44  
+4. As I Ascend  06:18   
+5. Temple of Ahriman  05:21   
+6. The Eternal Eclipse  04:14    
+7. To Carve Another Wound  04:44 
+8. Nail Them to the Cross  04:42  
+9. Where Shadows Forever Reign  05:32  
+
+Recorded at the Dugout Studios in Uppsala.
+
+
 
 ## Отношения с другими группами
 

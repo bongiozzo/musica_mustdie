@@ -1,7 +1,13 @@
 # Beating Dead Meat
 
-Дискография
-"A Rude Awakening" 2015, Death Metal
+
+
+## Дискография
+
+### "A Rude Awakening" 2015, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

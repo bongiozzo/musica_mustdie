@@ -1,15 +1,45 @@
 # Vengeance
 
-Дискография
-"Vengeance" 1984, Metal
-"We Have Ways To Make You Rock " 1986, Metal
-"Take It Or Leave It" 1987, Metal
-"Arabia" 1989, Metal
-"The Last Of The Fallen Heroes" 1994, Metal
-"Back From Flight 19" 1997, Metal
-"Back In The Ring" 2006, Metal
-"Same/Same... But Different (Alive)" 2007, Metal
-"Soul Collector" 2009, Metal
+
+
+## Дискография
+
+### "Vengeance" 1984, Metal
+
+
+
+### "We Have Ways To Make You Rock " 1986, Metal
+
+
+
+### "Take It Or Leave It" 1987, Metal
+
+
+
+### "Arabia" 1989, Metal
+
+
+
+### "The Last Of The Fallen Heroes" 1994, Metal
+
+
+
+### "Back From Flight 19" 1997, Metal
+
+
+
+### "Back In The Ring" 2006, Metal
+
+
+
+### "Same/Same... But Different (Alive)" 2007, Metal
+
+
+
+### "Soul Collector" 2009, Metal
+
+
+
 
 ## Отношения с другими группами
 

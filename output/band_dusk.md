@@ -1,8 +1,28 @@
 # Dusk
 
-Дискография
-"My Infinite Nature Alone" 2000, Death Doom
-"The Slumber (split w/APHOTIC)" 2005, Death Doom
+
+
+## Дискография
+
+### "My Infinite Nature Alone" 2000, Death Doom
+
+ARS MORIENDI 
+RETURNING TO PATHOS 
+FORTY SEASONS FROM NOW 
+AWAIT 
+CHAIRSCURO 
+FORTRESS OF SOLITUDE 
+STILL BLACK AND WHITE 
+BEAUTIFUL UNFORTUNATE 
+
+### "The Slumber (split w/APHOTIC)" 2005, Death Doom
+
+1. An Aerial View
+2. Steal My Soul
+3. The Slumber
+4. Perpetual Shrieks
+5. Moonbeams
+
 
 ## Отношения с другими группами
 

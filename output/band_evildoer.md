@@ -1,7 +1,23 @@
 # Evildoer
 
-Дискография
-"Terror Audio" 2005, Thrash
+
+
+## Дискография
+
+### "Terror Audio" 2005, Thrash
+
+1. Please Lord
+2. By the flag
+3. FearDotGov
+4. Day of torment
+5. Gunshell revenge
+6. Right hand servant
+7. On bleeding knees
+8. The deviant
+9. Ten times the pain
+10. Absolute hate
+10. Die now!
+
 
 ## Отношения с другими группами
 

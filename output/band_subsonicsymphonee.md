@@ -1,7 +1,13 @@
 # Subsonic Symphonee
 
-Дискография
-"Extreme Evolution" 2004, Electronic
+cybergoth-septet from Australia
+
+## Дискография
+
+### "Extreme Evolution" 2004, Electronic
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,9 +1,21 @@
 # Acid Bath
 
-Дискография
-"When The Kite String Pops" 1994, Metal
-"Paegan Terrorism Tactics" 1996, Metal
-"Demos: 1993-1996 (compilation)" 2005, Metal
+
+
+## Дискография
+
+### "When The Kite String Pops" 1994, Metal
+
+
+
+### "Paegan Terrorism Tactics" 1996, Metal
+
+
+
+### "Demos: 1993-1996 (compilation)" 2005, Metal
+
+
+
 
 ## Отношения с другими группами
 

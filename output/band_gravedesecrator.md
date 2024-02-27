@@ -1,9 +1,32 @@
 # Grave Desecrator
 
-Дискография
-"Sign of Doom" 2008, Black Metal
-"Insult" 2010, Black Metal
-"Dust to Lust" 2016, Black Metal
+
+
+## Дискография
+
+### "Sign of Doom" 2008, Black Metal
+
+
+
+### "Insult" 2010, Black Metal
+
+
+
+### "Dust to Lust" 2016, Black Metal
+
+1. Intro (Dust to Lust) 
+2. Temple of Abominations 
+3. Funeral Mist 
+4. Gods of Death 
+5. A Witching Whore 
+6. Host Desecration 
+7. Anathema Bloodlust 
+8. Bleed for Worship 
+9. Memento Mori 
+10. One More Soul 
+11. Mephistophallus in Occultopussy 
+12. Perpetual Oath 
+
 
 ## Отношения с другими группами
 

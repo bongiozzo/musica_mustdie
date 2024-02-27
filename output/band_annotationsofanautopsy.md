@@ -1,9 +1,21 @@
 # Annotations Of An Autopsy
 
-Дискография
-"Welcome To Sludge City (EP)" 2006, Deathcore
-"Before The Throne Of Infection" 2008, Deathcore
-"The Reign Of Darkness" 2010, Deathcore
+
+
+## Дискография
+
+### "Welcome To Sludge City (EP)" 2006, Deathcore
+
+
+
+### "Before The Throne Of Infection" 2008, Deathcore
+
+
+
+### "The Reign Of Darkness" 2010, Deathcore
+
+
+
 
 ## Отношения с другими группами
 

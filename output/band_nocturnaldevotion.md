@@ -1,7 +1,20 @@
 # Nocturnal Devotion
 
-Дискография
-"Virus…" 2003, Death Metal
+
+
+## Дискография
+
+### "Virus…" 2003, Death Metal
+
+01 Into
+02 The Life You Gave Me
+03 Only One
+04 Virus On The Inside
+05 Bleeding Purposely
+06 Second Place For Nature
+07 Feels Like Suicide
+08 Define To Survive
+
 
 ## Отношения с другими группами
 

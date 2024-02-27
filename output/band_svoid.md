@@ -1,8 +1,27 @@
 # Svoid
 
-Дискография
-"To Never Return" 2013, Gothic
-"Storming Voices of Inner Devotion" 2016, Gothic
+
+
+## Дискография
+
+### "To Never Return" 2013, Gothic
+
+
+
+### "Storming Voices of Inner Devotion" 2016, Gothic
+
+1. Through the Horizon 
+2. Crown of Doom 
+3. Never to Redeem 
+4. Death, Holy End 
+5. Eternal 
+6. A Mind in Chains 
+7. Lefelй a setйt mйlysйgbe 
+8. Forlorn Heart 
+9. Bloodline 
+10. Long I've Gone (Where All Sinks) 
+11. In Damnation Vast
+
 
 ## Отношения с другими группами
 

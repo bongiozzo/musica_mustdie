@@ -1,8 +1,28 @@
 # Celestiial
 
-Дискография
-"Desolate North" 2006, Doom
-"Where Life Springs Eternal" 2010, Doom
+
+
+## Дискография
+
+### "Desolate North" 2006, Doom
+
+1. Into this Earth of Shallow Intent  02:00 
+2. Haunting Cries Beneath the Lake Where Our Queen Once Walked  08:56   
+3. Lamentations in the Citadel of God  10:48  
+4. Desolate North  02:47 
+5. Thule  08:08   
+6. Hinterland  02:16
+7. Waldl&#228;nder im Herbst  08:59  
+8. Ashen  02:11 
+
+### "Where Life Springs Eternal" 2010, Doom
+
+1. Spell Over Still Water  04:15   instrumental  
+2. Great Storms Carry My Sadness  30:45 
+3. From Elm Blossoms a Rose  02:37   instrumental  
+4. Offering in Cedar Smoke  16:43   
+5. Songbirds Depart Through the Passing Near the Garden  02:04   instrumental  
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,22 @@
 # Ravage
 
-Дискография
-"The Face Of Infamy" 2002, Power Metal
-"Curse Of Heaven EP" 2003, Power Metal
+(heavy metal / powermetal band from Boston MA USA)
+
+## Дискография
+
+### "The Face Of Infamy" 2002, Power Metal
+
+1. Into The Shackles Of The Night
+2. The Face Of Infamy
+3. Spider On The World
+4. Bring Down The Hellhammer
+
+
+
+### "Curse Of Heaven EP" 2003, Power Metal
+
+
+
 
 ## Отношения с другими группами
 

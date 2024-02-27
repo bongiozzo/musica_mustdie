@@ -1,14 +1,114 @@
 # Trouble
 
-Дискография
-"Psalm 9" 1984, Doom
-"The Skull" 1985, Doom
-"Run to the Light" 1987, Doom
-"Trouble" 1990, Doom
-"Manic Frustration" 1992, Doom
-"Plastic Green Head" 1995, Doom
-"Simple Mind Condition" 2007, Doom
-"The Distortion Field" 2013, Doom
+
+
+## Дискография
+
+### "Psalm 9" 1984, Doom
+
+1. The Tempter  06:37 
+2. Assassin  03:13   
+3. Victim of the Insane  05:10   
+4. Revelation (Life or Death)  05:06   
+5. Bastards Will Pay  03:43
+6. The Fall of Lucifer  05:44  
+7. Endtime  04:59 
+8. Psalm 9  04:49 
+
+### "The Skull" 1985, Doom
+
+1. Pray for the Dead  05:54 
+2. Fear No Evil  04:12  
+3. The Wish  11:35
+4. The Truth Is, What Is  04:39   
+5. Wickedness of Man  05:46
+6. Gideon  05:10 
+7. The Skull  05:51 
+
+### "Run to the Light" 1987, Doom
+
+1. The Misery Shows  05:36   
+2. Thinking of the Past  03:52   
+3. On Borrowed Time  05:26
+4. Run to the Light  06:02 
+5. Peace of Mind  03:03  
+6. Born in a Prison  04:49  
+7. Tuesday's Child  03:25
+8. The Beginning  05:26 
+
+### "Trouble" 1990, Doom
+
+1. At the End of My Daze  03:13 
+2. The Wolf  04:33   
+3. Psychotic Reaction  03:15 
+4. A Sinner's Fame  04:18   
+5. The Misery Shows (Act II)  07:21 
+6. R.I.P.  04:08   
+7. Black Shapes of Doom  03:47  
+8. Heaven On My Mind  04:09 
+9. E.N.D.  02:23   
+10. All Is Forgiven  05:12 
+
+### "Manic Frustration" 1992, Doom
+
+1. Come Touch The Sky  02:54  
+2. 'Scuse Me  03:25   
+3. The Sleeper  03:14   
+4. Fear  03:38   
+5. Rain  04:17   
+6. Tragedy Man  04:17  
+7. Memory's Garden  04:24  
+8. Manic Frustration  04:10 
+9. Hello Strawberry Skies  03:04 
+10. Mr. White  03:26   
+11. Breathe...  06:30 
+
+### "Plastic Green Head" 1995, Doom
+
+1.  Plastic Green Head
+2.  The Eye
+3.  Flowers
+4.  Porpoise Song *
+5.  Opium - Eater
+6.  Hear The Earth
+7.  Another Day
+8.  Requiem
+9.  Below Me
+10.Long Shadows Fall
+11.Tomorrow Never Knows **
+
+ Eric Wagner - Vocals
+ Bruce Franklin - Guitars
+ Rick Wartell - Guitars
+ Ron Holzner - Bass
+ Jeff Olson - Drums
+
+All Songs Written By TROUBLE, Except * By Gerald Goffin & Carole King; ** By Lennon - McCartney
+Produced By TROUBLE & Vince Wojno
+Recorded At Indigo Ranch - Malibu, CA, Fantasy Studios - Brkly, CA, Scream - Studio City, CA
+
+(p)&(c) 1995 BULLET PROOF Recodrs
+
+### "Simple Mind Condition" 2007, Doom
+
+
+
+### "The Distortion Field" 2013, Doom
+
+01. When The Sky Comes Down (5:26)
+02. Parnoia Conspiracy (3:49)
+03. The Broken Have Spoken (3:55)
+04. Sink Or Swim (5:38)
+05. One Life (5:57)
+06. Have I Told You (4:20)
+07. Hunters Of Doom (4:07)
+08. Glass Of Lies (4:47)
+09. Butterflies (4:35)
+10. Sucker (3:26)
+11. The Greying Chill Of Autumn (5:05)
+12. Bleeding Alone (1:18)
+13. Your Reflection (5:30)
+
 
 ## Отношения с другими группами
 

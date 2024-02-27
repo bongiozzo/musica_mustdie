@@ -1,8 +1,34 @@
 # Endless Gloom
 
-Дискография
-"Corpsporation" 2007, Death Metal
-"Audiodead" 2010, Death Metal
+
+
+## Дискография
+
+### "Corpsporation" 2007, Death Metal
+
+1. Intro 01:47  
+2. Grave New World 02:42
+3. I Fuck Your Bloody Body 04:08
+4. Let Me Out 03:05
+5. I Am No More 03:21
+6. Corpsporation 04:02
+7. Rotting Existence 04:42
+8. Purgatory 01:39
+9. Incubus 02:31
+10. Died Unborn 05:18 
+
+### "Audiodead" 2010, Death Metal
+
+1. Feet First 03:42  
+2. Eyes That Will Never Open Again 03:39  
+3. Join Us! 03:47  
+4. Terminal State 03:08  
+5. Ex-Dead 03:31  
+6. I Will Lock You Up 03:17  
+7. Meat Cleaver Slaughter 02:17  
+8. Confession 03:42  
+9. Status: Myortv 03:15 
+
 
 ## Отношения с другими группами
 

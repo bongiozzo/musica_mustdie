@@ -1,9 +1,35 @@
 # Coprofago
 
-Дискография
-"Empty Creature" 1999, Progressive
-"Images of Despair" 1999, Progressive
-"Genesis" 2001, Techno Death
+
+
+## Дискография
+
+### "Empty Creature" 1999, Progressive
+
+
+
+### "Images of Despair" 1999, Progressive
+
+-Nailed Race
+-Blind Downfall
+-Empty Creature
+-Subconcious Call 
+-Without Faith
+-Devotes of Pain
+-Contemplacion
+-Ghost Inside  
+
+### "Genesis" 2001, Techno Death
+
+-Time Zero
+-Chaos
+-La idea de Borde
+-The Domain of Logic 
+-Human Nature
+-Back to Corporeal State
+
+-"La Idea de Borde" MPEG video 
+
 
 ## Отношения с другими группами
 

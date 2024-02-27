@@ -1,9 +1,66 @@
 # Viking
 
-Дискография
-"Do Or Die" 1987, Thrash
-"Man Of Straw" 1989, Thrash
-"No Child Left Behind" 2015, Thrash
+
+
+## Дискография
+
+### "Do Or Die" 1987, Thrash
+
+ Side One:
+1. Warlord 
+2. Hellbound 
+3. Militia Of Death
+4. Prelude / Scavenger
+5. Valhalla
+ Side Two:
+1. Burning From Within
+2. Berserker
+3. Killer Unleashed
+4. Do Or Die
+
+Ron Eriksen - Vocals & Lead Guitars
+Matt Jordan - Drums
+Brett Eriksen - Lead Guitars
+James Lareau - Bass
+
+(p) 1987 METAL BLADE Records
+(c) 1988 METAL BLADE Records
+
+### "Man Of Straw" 1989, Thrash
+
+ Side One:
+1. White Death 
+2. They Raped The Land 
+3. Twilight Fate 
+4. The Trial 
+5. Case Of The Stubborns 
+ Side Two:
+1. Winter 
+2. Hell Is For Children 
+3. Creative Divorce 
+4. Man Of Straw 
+
+(p)&(c) 1989 UNDER ONE FLAG Records
+
+### "No Child Left Behind" 2015, Thrash
+
+1) 9:02 On Flight 182
+2) By The Brundlefly
+3) Blood Eagle
+4) Debt To Me
+5) An Ideal Opportunity
+6) Eaten By A Bear
+7) Wretched Old Mildred
+8) A Thousand Reasons I Hate You
+9) Helen Behind The Door
+10) Burning From Within
+
+Line-up:
+Ron Daniel Eriksen - Vocals/Guitar
+Gene Hoglan - Drums
+Justin Zych - Lead Guitar
+Mike Gonzalez - Bass
+
 
 ## Отношения с другими группами
 

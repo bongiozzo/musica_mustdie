@@ -1,8 +1,34 @@
 # Transgressor
 
-Дискография
-"Ether For The Scapegoat" 1993, Death Metal
-"Recollected Limbs" 2001, Death Metal
+
+
+## Дискография
+
+### "Ether For The Scapegoat" 1993, Death Metal
+
+1. Whiteness
+2. Immense Extinction **
+3. Mortal Agony *
+4. Feathfile
+5. Disembodied / Suffocation
+6. Transmigration
+7. Limbless Doom
+
+ Kimihide Kumagai - Guitar, Vocals
+ Yoshio Hasegawa - Guitar, Vocals
+ Akihito Kikuchi - Bass, Vocals
+ Takashi Tanaka - Drums, Vocals
+
+All Songs Written By TRANSGRESSOR
+Recorded & Mixed By Sadahide Shimizu
+Recorded At Studio Penta, May-June 1992
+
+(p)&(c) 1993 CYBER MUSIC
+
+### "Recollected Limbs" 2001, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

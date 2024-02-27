@@ -1,8 +1,37 @@
 # Spirit Of The Forest
 
-Дискография
-"A Brew of Lightning and Terror" 2007, Black Metal
-"Kingdom of Despair" 2010, Black Metal
+
+
+## Дискография
+
+### "A Brew of Lightning and Terror" 2007, Black Metal
+
+1. Awakening (Intro) 02:02  
+2. The Forest 07:05 
+3. The Calm Before the Tempest 05:08
+4. Lord of the Storms 04:43
+5. Feasting Trees 05:02  
+6. In the Name of the Lost Warrior 06:32
+7. The Shades Invade 06:39 
+
+### "Kingdom of Despair" 2010, Black Metal
+
+1. Mystic Caves 05:07  
+2. Animosity 05:42  
+3. A Strange Forest 02:08  
+4. Echoes of Deepness 06:08  
+5. Blackhearts 07:53  
+6. An Eternal Forest 01:12  
+7. Battle of the Northern Seas pt.I 05:59  
+8. Battle of the Northern Seas pt.II 05:44  
+9. A Forgotten Forest 01:30  
+10. Sadistic Nights 06:31  
+11. Solitude 05:15  
+12. A Shining Forest 01:39  
+13. Gathering 07:09  
+14. A Forest of Revelations 02:12  
+15. Ways Toward Release 05:35 
+
 
 ## Отношения с другими группами
 

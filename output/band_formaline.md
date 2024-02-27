@@ -1,9 +1,21 @@
 # Formaline
 
-Дискография
-"Gore Conveyer (promo 2005)" 2005, Grindcore
-"Tales From The Morgue" 2007, Grindcore
-"Corpscience" 2016, Death Metal
+ex FORMALIN
+
+## Дискография
+
+### "Gore Conveyer (promo 2005)" 2005, Grindcore
+
+
+
+### "Tales From The Morgue" 2007, Grindcore
+
+
+
+### "Corpscience" 2016, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

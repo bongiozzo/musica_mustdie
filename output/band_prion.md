@@ -1,7 +1,13 @@
 # Prion
 
-Дискография
-"Time Of Plagues" 2003, Thrash
+
+
+## Дискография
+
+### "Time Of Plagues" 2003, Thrash
+
+
+
 
 ## Отношения с другими группами
 

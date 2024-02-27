@@ -1,6 +1,9 @@
 # Anarchus
 
-Дискография
+legendary old mexican grindcore band
+
+## Дискография
+
 
 ## Отношения с другими группами
 

@@ -1,10 +1,54 @@
 # Oblomov
 
-Дискография
-"The Final Destination" 2002, Melodic Death Metal
-"Wishing The Renaissance" 2003, Melodic Death Metal
-"Mighty Cosmic Dances" 2005, Techno Death
-"Communitas (Deconstructing the Order)" 2009, Techno Death
+
+
+## Дискография
+
+### "The Final Destination" 2002, Melodic Death Metal
+
+Disintrogation 
+Elements 
+Fire walk with me 
+Cradle for the bleeding child 
+Final destination
+
+### "Wishing The Renaissance" 2003, Melodic Death Metal
+
+Disintroharmony 
+Wishing the renaissance 
+Coincidenta oppositorum  
+Panta rhei
+
+### "Mighty Cosmic Dances" 2005, Techno Death
+
+1. Into the R.O.	 
+2. Mentality Failure
+3. Redefinition of the Past	
+4. Lost Between Emotions
+5. Starsend
+6. 1 of the 4
+7. Nostalgic Idealization
+8. Dreamworks
+9. Out of the R.O.
+
+### "Communitas (Deconstructing the Order)" 2009, Techno Death
+
+1. The Carnival	 
+2. Masquerade
+3. Deconstructing the Order
+4. SEPARATION	 
+5. Ship of Fools on Its Way to Timelessness
+6. Wings of the Silver Drake
+7. LIMINALITY	 
+8. Romans 1580
+9. INCORPORATION	 
+10. Farewell to the Flesh
+11. Mysterium Tremendum
+12. 1206 (The Shadow of Burchan Chaldun)	 
+13. Jeke Mongol Ulus
+14. Silencio y Tranquilidad
+15. Silencio
+
 
 ## Отношения с другими группами
 

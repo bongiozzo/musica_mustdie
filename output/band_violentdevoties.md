@@ -1,8 +1,33 @@
 # Violent Devoties
 
-Дискография
-"Grind Bitch Perversions" 2001, Deathcore
-"Entwined By Vengeance" 2005, Deathcore
+
+
+## Дискография
+
+### "Grind Bitch Perversions" 2001, Deathcore
+
+1. Brutal Carnage 03:35  
+2. Zombie Amok 04:02  
+3. Violent Devoties 03:53  
+4. Bowels And Nails 04:44  
+5. More Dead Than Death 03:33  
+6. Bloodlust 04:27  
+7. Knife Masturbation 03:45  
+8. Grind Bitch 04:25  
+9. Violator 04:10 
+
+### "Entwined By Vengeance" 2005, Deathcore
+
+1. Scarlet Horrors 05:13  
+2. Paradise Massacre 05:49  
+3. Goddamn Jesus 04:42  
+4. Cemetery Slut 05:35  
+5. Hunger For Angels 03:33  
+6. The Dark Art Of Slave Trade 05:15  
+7. Harmonic Devilish Insane 04:23  
+8. Sick Sex Seconds 01:23  
+9. Entwined By Vengenace 03:27 
+
 
 ## Отношения с другими группами
 

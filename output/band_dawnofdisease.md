@@ -1,9 +1,52 @@
 # Dawn of Disease
 
-Дискография
-"Legends Of Brutality" 2011, Death Metal
-"Crypts of the Unrotten" 2012, Death Metal
-"Worship the Grave" 2016, Melodic Death Metal
+
+
+## Дискография
+
+### "Legends Of Brutality" 2011, Death Metal
+
+1.	 Gasping for Life (Intro)	01:57	 
+2.	 Above the Gods *	03:47	 
+3.	 Impervious Mind	04:12	 
+4.	 Legends of Brutality	04:31	 
+5.	 Soul Harvest	05:00	 
+6.	 When White Turns Red	05:01	 
+7.	 Death Shall Be Mine	03:16	 
+8.	 Justified Retaliation	03:30	 
+9.	 Out of Breath	04:43	 
+10.	 Sinister Rapture *	07:25	 
+11.	 Bitter Fate	03:50	 
+12.	 Silence Prevails (Outro)	02:31
+
+### "Crypts of the Unrotten" 2012, Death Metal
+
+1.	 Descent Into Another World (Intro)	01:34	 
+2.	 Alone With the Dead	03:46	 
+3.	 Knife Vs Flesh	03:14	 
+4.	 The Unrotten	04:34	 
+5.	 Skinless and Impaled	03:08	 
+6.	 Enter the Gates	03:50	 
+7.	 Calcined Bones	04:30	 
+8.	 Catacombs	05:29	 
+9.	 Final Resurrection	04:26	 
+10.	 Devouring Obscurity	02:03	 
+11.	 But Death Goes On	05:05	 
+12.	 Soulless Shape	05:58
+
+### "Worship the Grave" 2016, Melodic Death Metal
+
+1. Worship the Grave 
+2. The Saviour's Tomb 
+3. Ashes	 
+4. On Trails of Death 
+5. Prayer for the Dawn 
+6. Cult of the Fading Light 
+7. Through Nameless Ages
+8. Outsourcing the Brain 
+9. Enwrapped in Guts 
+10. The Sky Is Empty
+
 
 ## Отношения с другими группами
 

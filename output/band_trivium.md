@@ -1,12 +1,153 @@
 # Trivium
 
-Дискография
-"Ember To Inferno" 2003, Melodic Death Metal
-"Ascendancy" 2005, Melodic Death Metal
-"The Crusade" 2006, Metalcore
-"Shogun" 2008, Metalcore
-"In Waves" 2011, Metalcore
-"Vengeance Falls" 2013, Metalcore
+Melodic Death Metalcore
+
+## Дискография
+
+### "Ember To Inferno" 2003, Melodic Death Metal
+
+1. Inception The Bleeding Skies
+2. Pillars Of Serpent
+3. If I Could Collapse The Masses
+4. Fugue ( A Revelation)
+5. Requiem
+6. Ember To Inferno
+7. Ashes
+8. To Burn The Eye
+9. Failing To Grey
+10. My Hatred
+11. When All Light Dies
+12. A View Of Burning Empires
+
+
+Engineered by Jason Suecof. Sanford, Florida (USA) in June 2003. 
+Mastered by Tom Morris in Morrisound Studios. Tampa, Florida (USA) in July 2003.
+Music and lyrics written by Matthew K. Heafy. 
+All musical arrangement by Matthew Heafy and Travis Smith. 
+Contributions by Travis Smith and Brent Young. 
+
+
+Mattew Heafy - Lead and Rhythm guitars, classical guitar, Lead and Backup vocals. 
+Travis Smith - drums. 
+Brent Young - bass
+
+### "Ascendancy" 2005, Melodic Death Metal
+
+1. The End Of Everything 01:20 
+2. Rain 04:11 
+3. Pull Harder On The Strings Of Your Martyr 04:51 
+4. Drowned And Torn Asunder 04:17 
+5. Ascendancy 04:25
+6. A Gunshot To The Head Of Trepidation 05:55  
+7. Like Light To The Flies 05:40 
+8. Dying In Your Arms 02:53
+9. The Deceived 05:11  
+10. Suffocating Sight 03:47  
+11. Departure 05:41 
+12. Declaration 07:00
+
+### "The Crusade" 2006, Metalcore
+
+1. Ignition  03:54    
+2. Detonation  04:30    
+3. Entrance of the Conflagration  04:34   
+4. Anthem (We are the Fire)  04:03    
+5. Unrepentant  04:51    
+6. And Sadness Will Sear  03:34   
+7. Becoming the Dragon  04:43    
+8. To the Rats  03:42   
+9. This World Can't Tear Us Apart  03:30    
+10. Tread the Floods  03:33   
+11. Contempt Breeds Contamination  04:28   
+12. The Rising  03:45    
+13. The Crusade  08:18 
+
+
+Bonus track for Japan:
+14. Broken One (05:49)
+
+Digital bonus tracks (iTunes):
+14. Broken One (05:49)
+15. Vengeance (03:36) 
+
+
+### "Shogun" 2008, Metalcore
+
+1. Kirisute Gomen  
+2. Torn Between Scylla And Charybdis   
+3. Down From The Sky   
+4. Insurrection   
+5. Into The Mouth Of Hell We March   
+6. Throes Of Perdition   
+7. He Who Spawned The Furies   
+8. Of Prometheus And The Crucifix   
+9. The Calamity   
+10. Like Callisto To A Star In Heaven   
+11. Shogun 
+
+
+There are also 3 three bonus tracks,
+
+12. Upon the Shores
+13. Poison, Knife, and the Noose
+14. Iron Maiden (Iron Maiden Cover)
+
+The Special Edition of the album will also contain a bonus DVD with a making of documentary 
+
+### "In Waves" 2011, Metalcore
+
+1. Capsizing the Sea      
+2. In Waves  05:03    
+3. Inception of the End      
+4. Watch the World Burn      
+5. Dusk Dismantled      
+6. Black      
+7. Built to Fall      
+8. Caustic are the Ties that Bind      
+9. A Skyline's Severance      
+10. Forsake Not the Dream      
+11. Of All These Yesterdays      
+12. Chaos Reigns      
+13. Leaving this World Behind  
+
+
+
+Special Edition Tracklisting:
+1. Capsizing the Sea 
+2. In Waves
+3. Inception of the End 
+4. Dusk Dismantled 
+5. Watch the World Burn 
+6. Black
+7. A Skyline's Severance 
+8. Ensnare the Sun 
+9. Built To Fall
+10. Caustic Are the Ties That Bind 
+11. Forsake Not the Dream 
+12. Drowning In Slow Motion 
+13. A Grey So Dark 
+14. Chaos Reigns
+15. Of All These Yesterdays
+16. Leaving This World Behind 
+17. Shattering The Skies Above
+18. Slave New World (Selpultura Cover) 
+
+
+### "Vengeance Falls" 2013, Metalcore
+
+01. Brave This Storm
+02. Vengeance Falls
+03. Strife
+04. No Way To Heal
+05. To Believe
+06. At The End Of This War
+07. Through Blood And Dirt And Bone
+08. Villainy Thrives
+09. Incineration: The Broken World
+10. Wake (The End Is Nigh) 
+
+
+
 
 ## Отношения с другими группами
 

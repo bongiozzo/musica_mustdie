@@ -1,11 +1,86 @@
 # Aeon
 
-Дискография
-"Dark Order [EP]" 2001, Death Metal
-"Bleeding the False" 2005, Death Metal
-"Rise to Dominate" 2007, Death Metal
-"Path of Fire" 2010, Death Metal
-"Aeons Black" 2012, Death Metal
+
+
+## Дискография
+
+### "Dark Order [EP]" 2001, Death Metal
+
+Dark Order - MCD
+Debute release on DeathVomit / Necropolis Records
+Catalog code: DVR009
+
+Tracklist:
+1. The Return of Apolluon (3:01)
+2. Eternal Hate (3:05)
+3. With Blood They Pay (4:13)
+4. The Awakening (3:33)
+5. Bloodlust (3:26)
+6. Hell Unleashed (4:05)
+
+Produced by Johan Hjelm
+Engineered, mixed & mastered by Johan Hjelm
+Recorded & mixed at Courthouse Studios in Цstersund / Sweden, Summer 2000 
+Cover artwork & layout by Jose Montemayor
+
+Line-up:
+Zeb Nilsson - Guitars
+Morgan Nordbakk - Guitars
+Arttu Malki - Drums
+Tommy Dahlstrцm - Vocals
+Johan Hjelm - Bass
+
+All rhythm guitars on this record are played by Zeb Nilsson
+
+### "Bleeding the False" 2005, Death Metal
+
+1. Cenobites 01:05  
+2. Soulburner 04:13
+3. Morbid Desire To Burn 03:12
+4. Biblewhore 04:32 
+5. Forever Nailed 04:13
+6. Satanic Victory 03:22
+7. Enchanter 01:32  
+8. Bleeding The False 03:36
+9. Doorknocker 02:42
+10. Bow Your Head 04:47
+11. I Hate Your Existence 02:58
+12. God Gives Head In Heaven 03:48
+13. Hell Unleashed 03:55 
+
+### "Rise to Dominate" 2007, Death Metal
+
+1. Helel Ben-Shachar 03:29
+2. Spreading Their Disease 03:41
+3. Living Sin 03:08
+4. Hate Them 02:45 
+5. You Pray To Nothing 04:31
+6. Caressed By The Holy Man 03:58
+7. House Of Greed 04:48
+8. Godless 02:49
+9. When The War Comes 04:09
+10. There Will Be No Heaven For Me 04:41
+11. Luke 4:5-7 03:50
+12. No One Escapes Us 03:19 
+
+### "Path of Fire" 2010, Death Metal
+
+1. Forgiveness Denied 04:07
+2. Kill Them All 03:13
+3. Inheritance 03:41
+4. Abomination To God 03:46
+5. Total Kristus Inversus 01:38  
+6. Of Fire 04:06
+7. I Will Burn 03:15
+8. Suffer The Soul 03:36
+9. The Sacrament 04:23 
+10. Liar In The Name Of God 04:17
+11. God Of War 05:56 
+
+### "Aeons Black" 2012, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

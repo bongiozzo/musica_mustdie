@@ -1,7 +1,21 @@
 # Faust [ITA]
 
-Дискография
-"From Glory to Infinity" 2009, Death Metal
+
+
+## Дискография
+
+### "From Glory to Infinity" 2009, Death Metal
+
+1. Purple Children 05:36
+2. Wet Veils 05:58
+3. Sentimental Worship 04:21
+4. Golden Wine Countess 04:17
+5. Servants of Morality 04:51
+6. Carnal Beatitude 05:28
+7. Pig God Dog 02:27
+8. Holy Hole 04:51
+9. A Religion-Free World's Dream 02:06 
+
 
 ## Отношения с другими группами
 

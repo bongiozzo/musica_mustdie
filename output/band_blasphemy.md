@@ -1,8 +1,61 @@
 # Blasphemy
 
-Дискография
-"Fallen Angel Of Doom" 1990, Black Metal
-"Gods Of War" 1993, Black Metal
+
+
+## Дискография
+
+### "Fallen Angel Of Doom" 1990, Black Metal
+
+1. Intro
+2. Fallen Angel Of Doom
+3. Hording Of Evil Vengeance
+4. Darkness Prevails
+5. Desecration
+6. Ritual
+7. Weltering In Blood
+8. Demoniac
+9. Goddess Of Perversity
+10.The Desolate One (Outro)
+
+All Songs Written By BLASPHEMY.
+
+(p)&(c) 1990 WILD RAGS Records
+
+### "Gods Of War" 1993, Black Metal
+
+1. Intro: Elders Of The Apocalypse
+2. Blood Upon The Alter
+3. Blasphemous Attack
+4. Gods Of War
+5. Atomic Nuclear Desolation
+6. Nocturnal Slayer
+7. Emperor Of The Black Abyss
+8. Blasphemy
+9. Necrosadist
+10.War Command
+11.Empty Chalice
+12. Ross Bay Intro
+13. War Command
+14. Demoniac
+15. Weltering In Blood
+16. Ritual
+17. Nocturnal Slayer
+18. Blasphemy
+19. Blasphemous Attack
+20. Guitar Effect Outro
+
+ Caller Of The Storms - All Lead Guitar & Effects
+ Nocturnal Grave Desecrator And Black Winds - Vocal
+ Gustapo Necrosleezer And Vaginal Commands - Bass,Back Vox
+ 3 Black Hearts Of Damnation And Impurity   - Drums
+
+12-20 Additional Bonus Tracks Of 1989
+"Blood Upon The Alter"
+Engineered By Jeff Trebilcock & Len Osanic.
+Recorded At Fiasco Bros. Studio, September, December 1992.
+
+(p)&(c) 1993 OSMOSE Productions
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,22 @@
 # Ocean Of Grief
 
-Дискография
-"Fortress of My Dark Self (EP)" 2016, Death Doom
-"After a Long Time (single)" 2017, Death Doom
+Greek Melodic Doom/Death Metal
+
+## Дискография
+
+### "Fortress of My Dark Self (EP)" 2016, Death Doom
+
+1. Spiritual Fortress  04:33  
+2. House of Misery  06:22   
+3. Futile Regrets  05:22   
+4. Drowned in Nostalgia  05:38  
+5. The Birth of Chaos  05:04  
+
+
+### "After a Long Time (single)" 2017, Death Doom
+
+1. After a Long Time  05:50 
+
 
 ## Отношения с другими группами
 

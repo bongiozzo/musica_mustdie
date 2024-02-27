@@ -1,7 +1,22 @@
 # Gloria Morti
 
-Дискография
-"Lifestream Corrosion" 2004, Death Metal
+
+
+## Дискография
+
+### "Lifestream Corrosion" 2004, Death Metal
+
+1) Xanadu  
+2) Ephemeral Lifespan
+3) The Ennightement
+4) Suffering Of The Lamb
+5) Pulchritude Of Rotting
+6) In Thier Dreaded Howling
+7) The Orphanage 
+8) Abattoir
+9) Clifes Of Geburah
+10)  Xanadu ( Eikind Remix )  for only Ltd version
+
 
 ## Отношения с другими группами
 

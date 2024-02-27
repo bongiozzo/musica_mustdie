@@ -1,38 +1,563 @@
 # HammerFall
 
-Дискография
-"Glory to the Brave" 1997, Power Metal
-"Glory to the Brave [single]" 1997, Power Metal
-"Legacy of Kings" 1998, Power Metal
-"Heeding the Call [single]" 1998, Power Metal
-"I Want Out [single]" 1999, Power Metal
-"The First Crusade [DVD]" 1999, Power Metal
-"Renegade" 2000, Power Metal
-"Renegade [single]" 2000, Power Metal
-"Always Will Be [single]" 2001, Power Metal
-"Crimson Thunder" 2002, Power Metal
-"Hearts on Fire [single]" 2002, Power Metal
-"Crimson Thunder [single]" 2002, Power Metal
-"The Templar Renegade Crusades [DVD]" 2002, Power Metal
-"Hearts on Fire [DVD]" 2002, Power Metal
-"One Crimson Night [CD/DVD]" 2003, Power Metal
-"Chapter V: Unbent, Unbowed, Unbroken" 2005, Power Metal
-"Blood Bound [single]" 2005, Power Metal
-"Threshold" 2006, Power Metal
-"The Fire Burns Forever [single]" 2006, Power Metal
-"Natural High [single]" 2006, Power Metal
-"Last Man Standing [download single]" 2007, Power Metal
-"Steel Meets Steel: 10 Years of Glory [Compilation]" 2007, Power Metal
-"Masterpieces" 2008, Heavy Metal
-"Rebels With A Cause - Unruly, Unrestrained, Uninhibited [DVD]" 2008, Power Metal
-"No Sacrifice No Victory" 2009, Power Metal
-"Any Means Necessary [single]" 2009, Power Metal
-"One More Time (single)" 2011, Power Metal
-"Infected" 2011, Power Metal
-"Bushido (single)" 2014, Heavy Metal
-"(r)Evolution" 2014, Heavy Metal
-"Hammer High (single)" 2016, Power Metal
-"Built to Last" 2016, Power Metal
+Power Metal from Sweden
+
+## Дискография
+
+### "Glory to the Brave" 1997, Power Metal
+
+1. The Dragon Lies Bleeding
+2. The Metal Age
+3. Hammerfall
+4. I Believe
+5. Child Of The Damned
+6. Steel Meets Steel
+7. Stone Cold
+8. Unchained
+9. Glory To The Brave
+Joacim Cans - Lead vocal & Background harmonies
+Oscar Dronjak - Guitars & backing vocals
+Fredrik Larsson - Bass guitar & backing vocals
+Glenn Ljungstrom - Guitars
+Jesper Stormblad - Drums
+(p)(c)1997 Nuclear Blast
+
+### "Glory to the Brave [single]" 1997, Power Metal
+
+01. Glory To The Brave 
+02. Ravenlord 
+03. Metal Age 
+04. Glory To The Brave 
+
+### "Legacy of Kings" 1998, Power Metal
+
+1. Heeding The Call
+2. Legacy Of Kings
+3. Let The Hammerfall
+4. Dreamland
+5. Remember Yesterday
+6. At The End Of The Rainbow
+7. Back To Back
+8. Stronger Than All
+9.Warriors Of Faith
+10. The Fallen One
+
+### "Heeding the Call [single]" 1998, Power Metal
+
+01. Heeding The Call 
+02. Eternal Dark 
+03. The Metal Age (live) 
+04. Steel Meets Steel (live) 
+05. Stone Cold (live)
+
+### "I Want Out [single]" 1999, Power Metal
+
+01. I Want Out 
+02. At The End Of The Rainbow 
+03. Man On The Silver Mountain 
+0+ Glory To The Brave (video clip)
+
+### "The First Crusade [DVD]" 1999, Power Metal
+
+1. Introduction   
+2. Steel Meets Steel - 1st live show
+3. Glory To The Brave - clip 1 05:46 
+4. HammerFall 
+5. Introducing: Magnus Rosen   
+6. Steel Meets Steel - live 
+7. Glory To The Brave - clip 2 06:08
+8. The Making Of Glory To The Brave   
+9. Ravenlord - live (Stormwitch cover) 
+10. The Metal Age - live 
+11. Nominated For The Swedish Grammy Award   
+12. Stone Cold - live 
+13. Listening Session   
+14. German TV Advertisement   
+15. Releaseparty For Legacy Of Kings   
+16. Head Over Heels
+17. Balls to the Wall (Accept cover)
+18. Breaking The Law (Judas Priest cover) 
+19. Outtakes and Sign Off 
+
+Tracks 1, 5, 13, 15 and in-between-segments skits filmed and directed by Roger
+Johansson. 
+Track 2 recorded live at Flunsеsparken, Gцteborg, Sweden, May 11th, 1996.
+Track 3, 4 produced, filmed and directed by Alfonso Еgren.
+Track 6 recorded live at Down Under, Gцteborg, Sweden, June 27th, 1997. Filmed
+by Parick Nordqvist. 
+Track 7 and 8 produced by Roxanne Film, directed by Thomas Wolff.
+Track 9 recorded live at Bang Your Head II, Stefan Hartmannhalle, Tьbingen,
+Germany, September 14th, 1997.
+Track 10 recorded live at Musikens Hus, Gцteborg, Sweden, January 30th, 1998.
+Filmed and directed by Roger Johansson.
+Track 12 recorded live at Dynamo Open Air, Endhoven, Holland, May 30th, 1998.
+Produced by Van Wingarden Produktion, directed by Thomas Wolff.
+Tracks 16-19 recorded live at Kеren, Gцteborg Sweden, September 19th, 1998.
+Filmed and directed by Roger Johansson.
+Track 20 taken from Metal Warriors video magazine, Australia.
+
+* * *
+
+Track 2: featuring Jesper Strцmblad, Fredrik Larsson and Glenn Ljungstrцm.
+Track 9: featuring Andy Mьck.
+Track 16: featuring Udo Dirkschneider.
+Track 17: featuring Udo Dirkschneider and Mikkey Dee.
+
+* * *
+
+Line-up:
+Joacim Cans - lead and backing vocals
+Oscar Dronjak - guitar and backing vocals
+Stefan Elmgren - lead guitar
+Magnus Rosйn - bass guitar
+Patrik Rдfling - drums 
+
+### "Renegade" 2000, Power Metal
+
+01 - Renegade  
+02 - Run with the devil - Heavyload cover  
+03 - Song from preproduction of Legacy of Kings  
+04 - HammerFall in WireWorld - Video  
+05 - HammerFall in WireWorld - Screensaver  
+
+
+### "Renegade [single]" 2000, Power Metal
+
+01. Renegade  
+02. Run With The Devil 
+03. Head Over Heels
+
+### "Always Will Be [single]" 2001, Power Metal
+
+1. Always Will Be 04:49
+2. The Fallen One 04:21
+3. Always Will Be (acoustic) 04:48
+4. Breaking The Law (Judas Priest cover) 02:12 
+
+### "Crimson Thunder" 2002, Power Metal
+
+01 - Riders Of The Storm     4:34
+02 - Hearts On Fire          3:51
+03 - On The Edge Of Honour   4:49
+04 - Crimson Thunder         5:05
+05 - Lore Of The Arcane      1:27
+06 - Trailblazers            4:39
+07 - Dreams Come True        4:02
+08 - Angel Of Mercy          5:38
+09 - The Unforgiving Blade   3:40
+10 - In Memoriam             4:21
+11 - Hero's Return           5:23
+12 - Rising Force (bonus)
+
+
+
+Vocals: Joacim Cans
+Guitar: Oscar Dronjak
+Bass: Magnus Rosen
+Guitars: Stefan Elmgren
+Drums: Anders Johansson
+
+
+
+All songs written by Oscar Dronjak & Joacim Cans
+except Dreams Come True and Lore Of The Arcane by
+Oscar Dronjak, In Memoriam by Stefan Elmgren and
+Angel Of Mercy by David T. Chastain.
+Produced, mastered, mixed and engineered by
+Charlie Bauerfeind
+Recorded at Wisseloord Studios, Holland, twilight
+Studios, Germany and Mi Sueno,Tenerife, May - June
+2002
+Rising Force: written by Yngwie J.Malmsteen and
+Joe Lynn Turner and recorded in JM Studios,
+Sweden,April 2002 by martin Kronlund and
+Hammerfall
+Drums recorded in Heptagon Studio (Der Bunker),
+Sweden by Anders Johansson
+Mixed and mastered in Mi Sueno by Charlie
+Bauerfeind, July 2002
+Keyboard mastery by Jens Johansson, appearing
+courtesy of Heptagon Records AB.
+Cover art by Samwise Didier following an original
+idea by Joacim Cans and Oscar Dronjak
+Layout by Thomas Ewerhard
+All photos by Michael Johansson
+Additional backing vocals by Mat Sinner, Rolf
+Kohler & Mats Rendlert
+plus Maekus Wosgein, daniel Bohm and Christoph
+Lutz on track 9
+Keyboard programming by Oscar Dronjak and Stefan
+Elmgren
+Additional keyboard programming by Pat Benzner and
+Johan Bergquist
+Cello by Boris Matchin
+Clavinet by Martin Meyer
+Recorded at Capell Meister Studios
+Add. keyboards and strings by Patrick Benzer,
+assisted by Jan Rubach
+
+
+
+### "Hearts on Fire [single]" 2002, Power Metal
+
+
+
+### "Crimson Thunder [single]" 2002, Power Metal
+
+1. Riders Of The Storm 04:34  
+2. Hearts On Fire 03:51  
+3. Crimson Thunder 05:03  
+4. Dreams Come True 04:04 
+
+### "The Templar Renegade Crusades [DVD]" 2002, Power Metal
+
+1. I Want Out (video montage from Hansen Studios)
+2. Unchained (live in Switzerland)
+3. Legacy Of Kings (live in U.S.A.)  
+4. Remember Yesterday (live in Japan)
+5. Warriors Of Faith (live in Chile)
+6. Let The Hammer Fall (live in Sweden)
+7. I Believe (live in Sweden)  
+8. Breaking The Law (video montage)
+9. WireWorld Studios (The making of "Renegade")   
+10. Renegade (video clip)
+11. Always Will Be (video clip) 
+12. Raise The Hammer (live in Switzerland)   
+13. Stronger Than All (live in Chile)
+14. Templars Of Steel (live in Germany) 
+15. Let The Hammer Fall (live in Germany) 
+16. Renegade (live in Germany) 
+17. HammerFall (live in Germany)  
+18. Heeding The Call (live in Sweden, acoustic version)
+19. Gold Album Party   
+20. A Legend Reborn (video montage)
+21. Renegade (live)
+22. Slaktmora   
+23. Castle Garden   
+24. Bed-Lam   
+25. Making of "Renegade" 
+
+### "Hearts on Fire [DVD]" 2002, Power Metal
+
+1. Hearts On Fire 03:53
+2. The Making Of Hearts On Fire   
+3. Heeding The Call 04:53
+4. A Legend Reborn 05:07
+5. Always Will Be 04:44
+6. Renegade 04:20 
+
+### "One Crimson Night [CD/DVD]" 2003, Power Metal
+
+1.  Lore Of The Arcane  
+2.  Riders Of The Storm  
+3.  Heeding The Call  
+4.  Stone Cold  
+5.  Hero's Return  
+6.  Legacy Of Kings  
+7.  Bass Solo: Magnus Rosйn  
+8.  At The End Of The Rainbow  
+9.  The Way Of The Warrior  
+10.  The Unforgiving Blade  
+11.  Glory To The Brave  
+12.  Guitar Solo: Stefan Elmgren  
+13.  Let The Hammer Fall  
+14.  Renegade  
+15.  Steel Meets Steel  
+16.  Crimson Thunder  
+17.  Templars Of Steel  
+18.  Gold Album Award  
+19.  Hearts On Fire  
+20.  Hammerfall
+
+### "Chapter V: Unbent, Unbowed, Unbroken" 2005, Power Metal
+
+01. Secrets
+02. Blood Bound
+03. Fury Of The Wild
+04. Hammer Of Justice
+05. Never, Ever
+06. Born To Rule
+07. The Templar Flame
+08. Imperial
+09. Take The Black
+10. Knights Of The 21st Century
+
+### "Blood Bound [single]" 2005, Power Metal
+
+
+
+### "Threshold" 2006, Power Metal
+
+1. Threshold 04:43  
+2. The Fire Burns Forever 03:20  
+3. Rebel Inside 05:32  
+4. Natural High 04:13  
+5. Dark Wings, Dark Words 05:01  
+6. Howlin' With The Pac 04:04  
+7. Shadow Empire 05:13  
+8. Carved In Stone 06:10  
+9. Reign Of The Hammer 02:48  
+10. Genocide 04:41  
+11. Titan 04:24
+
+### "The Fire Burns Forever [single]" 2006, Power Metal
+
+
+
+### "Natural High [single]" 2006, Power Metal
+
+1. Natural High 04:14 
+2. Natural High (Karaoke Version) 04:15  
+3. The Fire Burns Forever (Feat. Robert Kronberg) 03:20
+4. Raise The Hammer (Live) 03:37  
+5. The Fire Burns Forever (Video) 03:20 
+
+### "Last Man Standing [download single]" 2007, Power Metal
+
+
+
+### "Steel Meets Steel: 10 Years of Glory [Compilation]" 2007, Power Metal
+
+Disc 1 
+1. The Abyss 02:14  
+2. Last Man Standing 04:30
+3. HammerFall v2.0.07 04:47
+4. The Dragon Lies Bleeding 04:23
+5. Steel Meets Steel 04:00
+6. Glory to the Brave 07:20 
+7. Heeding the Call 04:31
+8. At the End of the Rainbow 04:06
+9. Legacy of Kings 04:13
+10. Let the Hammer Fall (Live) 05:52
+11. Templars of Steel 05:27 
+12. Renegade 04:23
+13. Always Will Be 04:52 
+14. Keep the Flame Burning 04:40
+15. Riders of the Storm 04:34 
+Disc 2 
+1. Hearts on Fire 03:51
+2. Crimson Thunder 05:05
+3. Hero's Return 05:21
+4. Blood Bound 03:48
+5. Secrets 06:06
+6. Fury of the Wild 04:45
+7. Never, Ever 04:07
+8. Threshold 04:45 
+9. Natural High 04:15
+10. Dark Wings, Dark Words 05:03
+11. The Fire Burns Forever 03:22
+12. Restless Soul 05:29
+13. The Metal Age (Live) 04:25
+14. Stone Cold (Live) 07:00 
+
+### "Masterpieces" 2008, Heavy Metal
+
+01. "Child of the Damned" (Warlord cover)
+02. "Ravenlord” (Storimwitch cover)
+03. "Eternal Dark" (Picture cover)
+04. "Back to Back" (Pretty Maids cover)
+05. "I Want Out" (Helloween cover)
+06. "Man On The Silver Mountain" (Rainbow cover)
+07. "Head Over Heels" (Accept cover)
+08. "Run With the Devil" (Heavy Load cover)
+09. "We?re Gonna Make It" (Twisted Sister cover)
+10. "Breaking The Law" (Judas Priest cover)
+11. "Angel Of Mercy" (Chastain cover)
+12. "Rising Force" (Yngwie J. Malmsteen cover)
+13. "Detroit Rock City" (Kiss cover)
+14. "Crazy Nights" (Loudness cover)
+15. "Nar Vindarna Viskar Mitt Namn" (Roger Pontare cover)
+16. "Flight Of The Warrior" (Riot cover) *
+17. "Youth Gone Wild" (Skid Row cover) *
+18. "Aphasia" (Europe cover) *
+
+WE'RE GONNA MAKE It was produced, engineered and mixed by Martin Kronlund & HammerFall at JM Studios, Goteborg, Sweden, 1999. Previously mleased on "Hearts On Fire" (CDS, 2002).
+BREAKING The Law was produced, engineered and mixed by Martin Kronlund & HammerFall at JM Studios, Goteborg, Sweden, 1999. Previously released on "Always Will Be" (CDS, 2000).
+ANGEL Of MERCY was produced, mastered, mixed and engineered by Charlie Bauerfeind. Recorded at Wisseloord Studios, Holland, Twilight Studios, Germany, and Mi Sueno, Tenerife, May-July 2002. Previously released on "Crimson Thunder" (CD, 2002).
+Rising Force, Detroit Rock City & Crazy Nights were necorded in JM Studios, Sweden, April 2002 by Martin Kronlund and HammerFall. Drums recorded in Heptagon Studio (Der Bunker, Anderslov, Sweden) by Anders Johansson. Produced, mixed and mastered in Mi Sueno, Tenerife, by Charlie Bauerfeind, July 2002. Previously released on "Crimson Thunder" (CD, 2002; European, North American & Japanese version respectively)
+NAR VlNDARNA VlSKAR Mitt Namn was produced, recorded and mixed at Der Bunker, Anderslov, Studio Runkbas, Molndal, Sweden & Division One, Goteborg, Sweden, by Arnold Lindgren, Tom S Englund & HammerFall in February 2005. Previously released on "Melodifestivalen 50 Ar" (CD, 2005).
+Flight Of The Warrior, Youth Gone Wild & Aphasia were engineered, produced and mixed by Jens Bogren at Fascination Street, Orebro, Sweden in December 2006 and January 2008. Backing vocals on Youth Gone Wild by Ronny Milianowic/., Kaj Roth, Fredrik Nordin & Toya Johansson. Previously unreleased.
+CHILD Of TI|e Dam\i d was engineered, mixed and produced by Fredrik Nordstrom & HammerFall at Studio FreAnan, Goteborg, Sweden, in November 1996. Previously released on "Glory to the Brave" 
+KAVENLORD was Fredman, Goteb<1 produced by Fredrik Nordstrom & HammerFall at Studio bviously released on "Glory To The Brave" (CDS, 1997).
+ETERNAL DARK was engineered, mixed and produced by Fredrik Nordstrom at Studio Fredman, Goteborg, Sweden, April-June 1998. Produced by Fredrik Nordstrom and Oscar Dronjak, co-prodced by Joacim Cans. Previously released on "HeedingThe Call" (CDS, 1998).
+BACK To BACK was engineered, miied and produced by Fredrik Nordstrom at Studio Fredman, Goteborg, Sweden, April-June 1998. Produced by Fredrik Nordstrom and Oscar Dronjak, co by Joacim Cans. Previously released on "Legacy Of Kings" (CD, 1998)
+1 Want Out & Man On The Silver Mountain were recorded and mixed by Kai Hansen and Dirk Schlachter at Hansen Studios, Hamburg, Germany, in October 1998. Previously released on "I Want Out" (CDS, WW).
+Head Over Heels was recc. d by Kai Hansen and Dirk Schlachter at Hansen Studios, Hamburg, Germany, in October 1998. Previously released on "Renegade" (CDS, 2000).
+Run WITH The DEVIL was engineered and mixed by Ragne and Styrbjorn Wahlqvist at Ragnarok Studios, Stockholm, Sweden, in May 1999. Produced by the Wahlqvist Brothers & HammerFall. Previously released on "Renegade" (CDS, 2000).
+
+Artwork by: Samwise Didier following an original concept by Joacim Cans / Layout by: Thomas d / Photos by: Michael Johansson / 
+World Wide Booking & Management: All Access ¦ Neuer Kamp 25 ¦ 20359
+Hamburg ¦ Germany ¦ info@all-access.de /
+Management Scandinavian Rebella Management •
+malin(®rebella.se / Booking Scandinavia: Live
+Nation ¦ Box 53045 * 40014 Goteborg ¦ Sweden ¦
+Edward.janson@livenation.se
+
+### "Rebels With A Cause - Unruly, Unrestrained, Uninhibited [DVD]" 2008, Power Metal
+
+1. Rebels With A Cause - Unruly, Unrestrained, Uninhibited (documentary)   
+2. Blood Bound (Trackslistan) (TV clip)   
+3. Blood Bound (Lanz i P3) (TV clip)   
+4. Nдr Vindarna Viskar Mitt Namn (Alla Tiders Melodifestival) (TV clip)   
+5. The Fire Burns Forever (European Athletics Championships 2006) (TV clip)   
+6. Rundgеng (SVT) (TV clip)   
+7. Templars Of Steel (live) 06:06  
+8. Unchained (live) 08:08  
+9. The Templar Flame (live) 03:59  
+10. Knights Of The 21st Century (Live Filharmonie, Filderstadt, Germany, April 22nd 2005) 10:33  
+11. Secrets (collage Scandinavium, Gцteborg, Sweden, April 30th 2005) 06:08  
+12. Hearts On Fire (video) 03:55  
+13. Blood Bound (video) 04:04  
+14. Hearts On Fire (Olympic version) ([video) 03:32  
+15. The Fire Burns Forever (video) 03:22  
+16. Natural High (video) 04:33  
+17. Last Man Standing (video) 04:34  
+18. Hearts On Fire (Behind The Scenes) 06:08  
+19. Natural High (Behind The Scenes)   
+20. Proppsmдllaren / Svullohomage 01 / Svullohomage 02 (short video)   
+21. Car Trouble / Macho Madness / Parking Trouble (short video)   
+22. Pool The Plug / Somersault / Macho Madness (short video)   
+23. Clumsies / Joacim Saves / Gooooooooooal (short video)   
+24. Skorpionen / Drumsolo 1 & 2 / Santiago 2007 (short video) 
+
+### "No Sacrifice No Victory" 2009, Power Metal
+
+01. Any Means Necessary
+02. Life Is Now
+03. Punish And Enslave
+04. Legion
+05. Between Two Worlds
+06. Hallowed Be My Name
+07. Something For The Ages
+08. No Sacrifice, No Victory
+09. Bring The Hammer Down
+10. One Of A Kind
+11. My Sharona
+
+The band
+Anders Johansson
+Pontus Nordgren
+Joacim Cans
+Oscar Dronjak
+Fredrik Larsson
+
+Produced, mixed, mastered and engineered by Charlie Bauerfeind. Recorded at Pama Studios, Torsas, Sweden & Sonic Train Studios, Varberg, Sweden between August and November 2008.
+Additional recordings at Rekorder Studio, Hamburg, Germany & Brighton Electric Studio, Brighton, England. Mixed and mastered at G-Tracks Studios. Ebermannstadt, Germany. 
+Church organ on "Between Two Worlds" and keyboard solo on "Something For The Ages" by Jens Johansson. Additional guitar solo on "Bring The Hammer Down" by Stefan Elmgren.
+Additional backing vocals by: Biff Byford, Dave Hill, Nicky Moore, Billy King, Olaf Zenkbiel, Mats Rendlert, Johan Aremyr, Joacim Lundberg, Markus Skold & Edward Janson. And Leo.
+Photos by Michael Johansson. Artwork by Sam Didier. Layout by Thomas Ewerhard
+
+
+### "Any Means Necessary [single]" 2009, Power Metal
+
+
+
+### "One More Time (single)" 2011, Power Metal
+
+1. One More Time 4:08
+
+
+
+
+### "Infected" 2011, Power Metal
+
+1. Patient Zero  06:01   
+2. Bang Your Head  03:47    
+3. One More Time  04:06    
+4. The Outlaw  04:10   
+5. Send Me A Sign  04:00    
+6. Dia De Los Muertos  05:07    
+7. I Refuse  04:32    
+8. 666 - The Enemy Within  04:29    
+9. Immortalized  03:59    
+10. Let's Get It On  04:05    
+11. Redemption  07:02  
+
+
+Line-up:
+Joacim Cans - Vocals
+Oscar Dronjak - Guitar
+Pontus Norgren - Guitar
+Fredrik Larsson - Bass
+Anders Johansson - Drums
+
+Produced and mixed by James Michael (Motley Crue, Scorpions, Meat Loaf) in Nashville, Tennessee, USA.
+
+The original cover had to be changed because it was similar to the band logo of the hardcore band "Biohazard" that announced to consider a possible a lawsuit if the cover would not be changed.
+
+The limited "Special Edition" of the album contains a bonus DVD called "All guts, no glory" and shows the performance of five new songs live in the studio:
+
+1. Patient Zero
+2. Bang your head
+3. One more time
+4. The outlaw
+5. Send me a sign 
+
+
+### "Bushido (single)" 2014, Heavy Metal
+
+1. Bushido  04:39    
+2. The Way of the Warrior  04:07 
+
+
+### "(r)Evolution" 2014, Heavy Metal
+
+1. Hector's Hymn      
+2. (r)Evolution      
+3. Bushido      
+4. Live Life Loud      
+5. Ex Inferis      
+6. We Won't Back Down      
+7. Winter Is Coming 
+8. Origins      
+9. Tainted Metal      
+10. Evil Incarnate      
+11. Wildfire  
+
+
+Oscar Dronjak - Guitars  
+Fredrik Larsson - Bass  
+Joacim Cans - Vocals  
+Anders Johansson - Drums  
+Pontus Norgren - Guitars  
+
+
+### "Hammer High (single)" 2016, Power Metal
+
+1. Hammer High 04:38
+
+### "Built to Last" 2016, Power Metal
+
+Disc 1 (CD)  
+1. Bring It!  
+2. Hammer High   
+3. The Sacred Vow  
+4. Dethrone and Defy 
+5. Twilight Princess   
+6. Stormbreaker   
+7. Built to Last     
+8. The Star of Home  
+9. New Breed     
+10. Second to None   
+
+Disc 2 (DVD)  
+1. Hector's Hymn 
+2. Any Means Necessary  
+3. Renegade  
+4. B.Y.H.  
+5. Blood Bound  
+6. Let The Hammer Fall 
+7. Live Life Now  
+8. Guitar Solo: Pontus Norgren  
+9. Medley (Genocide, Hero's Return, Secrets, The Dragon Lies Bleeding, Trailblazers, Riders Of The Storm, Fury Of The Wild)  
+10. Threshold  
+11. Last Man Standing  
+12. HammerFall  
+13. Bushido  
+14. Hearts On Fire  
+
+
+
 
 ## Отношения с другими группами
 

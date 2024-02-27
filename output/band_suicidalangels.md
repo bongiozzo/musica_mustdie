@@ -1,13 +1,98 @@
 # Suicidal Angels
 
-Дискография
-"Armies Of Hell" 2006, Thrash
-"Eternal Domination" 2007, Thrash
-"Sanctify The Darkness" 2009, Thrash
-"Dead Again" 2010, Thrash
-"Bloodbath" 2012, Thrash
-"Divide And Conquer" 2014, Thrash
-"Division Of Blood" 2016, Thrash
+
+
+## Дискография
+
+### "Armies Of Hell" 2006, Thrash
+
+1. Crematory
+2. Slaughtering Christianity
+3. Armies Of Hell
+4. Screams Of Homicide
+
+### "Eternal Domination" 2007, Thrash
+
+01. Quench Your Thirst With Christian Souls
+02. Evil Attack
+03. The Prophecy
+04. Crematory
+05. Slaughtering Christianity
+06. Sacred Prayers to Expiation
+07. Demon's Bloodwrath
+08. Armies of Hell
+09. Screams of Homicide
+10. Vomit On the Cross
+11. Eternal Darkness
+
+### "Sanctify The Darkness" 2009, Thrash
+
+01. Bloodthirsty 
+02. The Pestilence Of Saints 
+03. Inquisition 
+04. Apokathilosis 
+05. …Lies 
+06. No More Than Illusion 
+07. Atheist 
+08. Beyond The Laws Of Church 
+09. Mourning Of The Cursed 
+10. Dark Abyss (Your Fate Is Colored Black) 
+11. Child Molester
+eenchanced part: Apokathilosis (video clip) + Beyond The Laws Of Church (video clip)
+
+### "Dead Again" 2010, Thrash
+
+01. Damnation
+02. Reborn In Violence
+03. Bleeding Holocaust
+04. The Trial
+05. Suicide Solution
+06. Beggar Of Scorn
+07. Victimized
+08. Violent Abuse
+09. The Lies Of Resurrection
+10. Search For Recreation
+11. Dead Again
+12. Final Dawn
+
+### "Bloodbath" 2012, Thrash
+
+01. Bloodbath
+02. Moshing Crew
+03. Chaos (The Curse Is Burning Inside)
+04. Face Of God
+05. Morbid Intention To Kill
+06. Summoning Of The Dead
+07. Legacy Of Pain
+08. Torment Payback
+09. Skinning The Undead
+10. Bleeding Cries
+
+### "Divide And Conquer" 2014, Thrash
+
+01. Marching Over Blood
+02. Seed Of Evil	 
+03. Divide And Conquer
+04. Control The Twisted Mind 
+05. In the Grave
+06. Terror Is My Scream 
+07. Pit Of Snakes
+08. Kneel To The Gun
+09. Lost Dignity
+10. White Wizard
+
+### "Division Of Blood" 2016, Thrash
+
+01. Capital Of War
+02. Division Of Blood
+03. Eternally To Suffer
+04. Image Of The Serpent
+05. Set The Cities On Fire
+06. Frontgate
+07. Bullet In A Chamber
+08. Cold Blood Murder
+09. Of Thy Shall Bring The Light
+
 
 ## Отношения с другими группами
 

@@ -1,9 +1,21 @@
 # Obsidian Kingdom
 
-Дискография
-"Mantiis - An Agony in Fourteen Bites" 2012, Progressive
-"Torn & Burnt - The Mantiis Remixes" 2013, Progressive
-"A Year with No Summer" 2016, Progressive
+
+
+## Дискография
+
+### "Mantiis - An Agony in Fourteen Bites" 2012, Progressive
+
+
+
+### "Torn & Burnt - The Mantiis Remixes" 2013, Progressive
+
+
+
+### "A Year with No Summer" 2016, Progressive
+
+
+
 
 ## Отношения с другими группами
 

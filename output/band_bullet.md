@@ -1,11 +1,79 @@
 # Bullet
 
-Дискография
-"Heading For The Top" 2006, Heavy Metal
-"Bite The Bullet" 2008, Heavy Metal
-"Highway Pirates" 2011, Heavy Metal
-"Full Pull" 2012, Heavy Metal
-"Storm Of Blades" 2014, Heavy Metal
+
+
+## Дискография
+
+### "Heading For The Top" 2006, Heavy Metal
+
+01. Midnight Riders (Riding Free)
+02. Turn It Up Loud
+03. Heading For The Top
+04. Rambling Man
+05. Hard Luck Lady
+06. Speeding In The Night
+07. One Deal With The Devil
+08. Rock Steady
+09. Leather Love
+10. Raise Hell
+11. Bang Your Head
+
+### "Bite The Bullet" 2008, Heavy Metal
+
+01. Pay The Price
+02. Roadking
+03. Bite The Bullet
+04. Dusk Til Dawn
+05. Nailed To The Ground
+06. City Of Sins
+07. Waste My Time
+08. Rock 'N' Roll Remedy
+09. Rock Us Tonight
+10. Wheels Keep On Turning
+11. The Rebels Return 
+
+### "Highway Pirates" 2011, Heavy Metal
+
+1. Highway Pirates  04:50   
+2. Back On The Road  03:58 
+3. Stay Wild  02:45  
+4. Blood Run Hot  02:51  
+5. Fire And Dynamite  04:34   
+6. Down And Out  03:38   
+7. Knuckleduster  02:55  
+8. Heavy Metal Dynamite  03:52  
+9. Citylights  04:00 
+10. Into The Night  05:45 
+
+### "Full Pull" 2012, Heavy Metal
+
+01. Midnight Oil (3:51)
+02. Full Pull (2:27)
+03. Running Away (2:29)
+04. All Fired Up (3:38)
+05. Rolling Home (6:11)
+06. In The Heat (2:38)
+07. High On The Hog (2:57)
+08. Rush Hour (3:43)
+09. Freeriding (2:54)
+10. Gutterview (3:10)
+11. Warriors (4:23)
+12. Get On (Bonus Track) (3:24)
+
+### "Storm Of Blades" 2014, Heavy Metal
+
+01. Uprising
+02. Storm Of Blades
+03. Riding High
+04. Tornado
+05. Hawk Eyes
+06. This One's For You
+07. Hammer Down
+08. It’s On
+09. Crossfire
+10. Run With The Hunted
+11. Coming In Loud
+
 
 ## Отношения с другими группами
 

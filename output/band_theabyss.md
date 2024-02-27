@@ -1,8 +1,51 @@
 # The Abyss
 
-Дискография
-"The Other Side" 1995, Black Metal
-"Summon The Beast" 1996, Black Metal
+Black Metal
+
+## Дискография
+
+### "The Other Side" 1995, Black Metal
+
+1. Marutukku
+2. Tjanare Af Besten
+3. Psycomantum
+4. Massacra *
+5. Morkrets Vandring
+6. Sorgens Dal
+7. Slukad
+8. Forintelsens Tid Aro Kommen
+
+ Peter Tagtgren - Vocals, Bass, Drums
+ Mikael Hedlund - Vocals, Guitars
+ Lars Szoke - Vocals, Guitars
+
+All Songs Written By THE ABYSS, Except * By CELTIC FROST.
+Produced By Peter Tagtgren.
+Recorded At The Abyss Studio, October 1994
+
+(p)&(c) 1995 NUCLEAR BLAST Records
+
+### "Summon The Beast" 1996, Black Metal
+
+1. Satans Majestic Empire
+2. Blessed With The Wrath Of Evil
+3. Damned
+4. Summon The Beast
+5. The Hymn
+6. Cursed
+7. Feasting The Remains Of Heaven
+8. The Arrival
+
+Produced and Mixed by P. Tagtgren
+Recorded and Mixed at Abyss Studio
+All music and lyrics by THE ABYSS
+
+Mikael Hedlund - Vocals, Guitars
+Lars Szoke - Guitars
+Peter Tagtgren - Drums, Bass
+
+(P)c 1996 NUCLEAR BLAST // NB 209
+
 
 ## Отношения с другими группами
 

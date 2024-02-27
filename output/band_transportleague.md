@@ -1,8 +1,44 @@
 # Transport League
 
-Дискография
-"Superevil" 1998, Death Metal
-"Satanic Panic" 2000, Death Metal
+
+
+## Дискография
+
+### "Superevil" 1998, Death Metal
+
+  1.   Lost in the Desert (Hunyadi/Jelenovich) - 5:13 
+  2.   Proud Cuts (Jelenovich) - 3:10 
+  3.   Jesus Came (Jelenovich) - 4:58 
+  4.   Magnetic Star (Jelenovich) - 4:35 
+  5.   High Riding Witch (Hunyadi/Jelenovich) - 5:55 
+  6.   Rotten Soil (Jelenovich) - 3:35 
+  7.   Filthy Old Liar (Jelenovich) - 3:26 
+  8.   Led Poison (Hunyadi/Jelenovich/Sandin) - 4:30 
+  9.   Mantha (Jelenovich) - 3:17 
+  10.   Bloodblinder (Jelenovich/Sandin) - 5:04 
+  11.   Superevil (Jelenovich) - 5:24 
+
+
+### "Satanic Panic" 2000, Death Metal
+
+  1.   Hell Predicted (Jelecovich/Sten) - 3:28 
+  2.   Plague Ship (Hunyadi/Jelecovich/Sten) - 5:03 
+  3.   Neck Draft (Jelecovich/Sten) - 3:26 
+  4.   Shut to Drown (Jelecovich) - 5:22 
+  5.   Man Sized Drain (Hunyadi/Jelecovich/Sten) - 3:31 
+  6.   Tar (Hunyadi/Jelecovich/Sadin/Sten) - 4:30 
+  7.   Lord of a Thousand (Huyandi/Jelecovich/Sten) - 3:38 
+  8.   Psycho Connected (Jelecovich) - 3:32 
+  9.   Un-Man Conquer (Huyandi/Jelecovich/Sten) - 4:00 
+  10.   Last (Huyandi/Jelecovich) - 4:15 
+  11.   Creep Provider (Huyandi/Jelecovich) - 4:35 
+
+
+Torbjцrn Samuelsson  -  Mastering 
+Pierre J  -  Keyboards 
+Transport League  -  Arranger, Vocals (bckgr), Mixing 
+
+
 
 ## Отношения с другими группами
 

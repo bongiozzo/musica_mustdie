@@ -1,23 +1,240 @@
 # Das Ich
 
-Дискография
-"Satanische Verse" 1990, Industrial
-"Die Propheten" 1991, Industrial
-"Stigma (Single)" 1993, Industrial
-"Staub" 1994, Industrial
-"Feuer" 1995, Industrial
-"Die_Liebe (Atrocity feat. Das Ich)" 1995, Industrial
-"Die Propheten (USA Edition)" 1996, Industrial
-"Das_Innere_Ich" 1996, Industrial
-"Kindgott (Single)" 1996, Industrial
-"Egodram" 1997, Industrial
-"Destillat (Single)" 1997, Industrial
-"Morgue" 1998, Industrial
-"Re-Kapitulation" 1999, Industrial
-"Re-Laborat" 2000, Industrial
-"Antichrist" 2002, Industrial
-"Lava:Glut" 2004, Industrial
-"Lava:Asche" 2004, Industrial
+Electro-industrial
+
+## Дискография
+
+### "Satanische Verse" 1990, Industrial
+
+1. Gottes Tod
+2. Des Satans neue Kleider
+3. Kain und Abel
+4. Jericho
+5. Ein Tag vergeht
+6. Irrlicht
+7. Sonne Mond und Sterne
+
+### "Die Propheten" 1991, Industrial
+
+1. Es ist ja Krieg
+2. Kain & Abel
+3. Die Propheten
+4. Des Satans neue Kleider
+5. Gottes Tod
+6. Der Hass
+7. Lьgen & Das Ich
+8. Frevel
+
+### "Stigma (Single)" 1993, Industrial
+
+1. Von der Armut (Single Edit)
+2. Von der Armut (Extended Edit)
+3. Der Schrei
+4. Von der Armut (Reverse Edit)
+
+### "Staub" 1994, Industrial
+
+1. Sagenlicht (5:19)
+2. Unschuld Erde (6:06)
+3. Von der Armut (4:59)
+4. Im Ich (5:47)
+5. Gier (2:13)
+6. Dein Leben (5:17)
+7. Aura (5:15)
+8. Staub (5:27)
+
+Running time: 40:23 
+
+Produced and mixed at Danse Macabre Studios by Bruno Kramm.
+Additional engineering by Chad Blinman, Jцrg Hьtter, Horst Braun.
+Mastered at Sound Studio "N", Cologne by Radu Marinescu.
+Photographies by Bernhard Gutter. Coverartwork by Bruno Kramm.
+
+(P)(C) 1994  DANSE MACABRE Records
+
+### "Feuer" 1995, Industrial
+
+1. Sagenlicht (5:05)
+2. Von Der Armut (7:03)
+3. Dein Leben (6:48)
+4. Das Ich Im Ich (5:25)
+5. Unschuld Erde (6:47)
+6. Kain Und Abel (6:57)
+7. Lьgen Und Das Ich (3:44
+8. Der Schrei (6:06)
+9. Jericho (3:57)
+10.Gottes Tod (8:29)
+11.Des Satans Neue Kleider 	8:31
+
+Running time: 68:52 
+
+"Feuer" was recorded live in: 
+Tracks 4, 7 and 10: Bielefeld, PC 69 - 24.03.95 
+Tracks 2, 6, 9 and 11: Bochum, Zeche - 28.03.95 
+Tracks 1, 3, 5 and 8: Potsdam, Lindenpark - 01.04.95 
+
+Line-up:
+
+Stefan Ackermann - Vocals 
+Bruno Kramm - Keyboards, Add. Vocals 
+Chad Blinman - Drums 
+Daniel Galda - Keyboards, Add. Vocals 
+
+All songs by Kramm/Ackermann.
+Produced and mixed at Danse Macabre studios by Bruno Kramm.
+Live engineered and recorded by Oliver Schneider.
+Cover artwork by Bruno Kramm.
+
+(P)c 1995 DANSE MACABRE Records
+
+### "Die_Liebe (Atrocity feat. Das Ich)" 1995, Industrial
+
+1. Die Liebe
+2. Moonstrucker
+3. Bloodlust
+4. Misdirected
+5. Parentalia
+6. Trail by Ordeal
+7. Unschuld
+8. Von Leid und Elend und Seelenqualen
+9. Die Todgeweihten
+
+### "Die Propheten (USA Edition)" 1996, Industrial
+
+
+
+### "Das_Innere_Ich" 1996, Industrial
+
+1. Das ewige Licht
+2. Zweisamkeit
+3. Mikrokosmos
+4. Das Innere Ich
+5. Kokon
+6. Das ewige Licht II
+7. Epilog
+8. Bin Ich es denn...
+
+### "Kindgott (Single)" 1996, Industrial
+
+1. Kindgott
+2. Kindgott (childhood mix)
+3. Kindgott (extended mix)
+4. Gott ist tot (Nietzsche Mix)
+
+### "Egodram" 1997, Industrial
+
+1. Egodram
+2. Kindgott
+3. Firmament
+4. Destillat
+5. He Mensch
+6. Schwanenschrei
+7. Krieger
+8. Dorn
+9. Chroma
+10. Reflex
+11. Blutquell
+
+### "Destillat (Single)" 1997, Industrial
+
+1. Destillat (club version)
+2. Destillat (X-tended mix)
+3. Destillat (original version)
+4. Chroma (Soldano version)
+
+### "Morgue" 1998, Industrial
+
+1. Kleine Aster
+2. Drohung
+3. Mann und Frau gehen durch die Krebsbaracke
+4. Saal der kreisenden Frauen
+5. Curettage
+6. Schцne Jugend
+7. Requiem
+8. Negerbraut
+9. Mutter
+10. Kreislauf
+11. Der Arzt II
+12. Erde ruft
+
+### "Re-Kapitulation" 1999, Industrial
+
+1. Gott ist Tod (98)
+2. Destillat
+3. Von der Armut
+4. Der Schrei
+5. Kain und Abel
+6. Unschuld Erde
+7. Erde Ruft
+8. Die Propheten
+9. Schwanenschrei
+10. Bin ich es denn
+11. Kindgott
+12. Re-Animat
+
+### "Re-Laborat" 2000, Industrial
+
+CD 1
+1. Der Schrei (Lab X)
+2. Das Ich im Ich (And One)
+3. Unschuld Erde (Funker Vogt)
+4. Erde Ruft (Kramm)
+5. He Mensch (Deine Lakaien)
+6. Dem Ich den Traum (LґAme Immortelle)
+7. Gottes Tod (Dance Or Die)
+8. Aura (Wumpscut)
+9. Destillat (VNV Nation)
+10. Der HaЯ (ISC)
+11. Schwanenschrei (Silke Bischoff)
+12. Des Satans Neue kleider (Atrocity)
+13. Kain und Abel (Kalte Farben)
+CD 2
+1. Kain und Abel (Girls under Glass)
+2. Die Propheten (Catastrophe Ballet)
+3. Kindgott (The Fair Sex)
+4. Von der Armut (The Eternal Afflict)
+5. Erde Ruft (PNE)
+6. Des Satans Neue Kleider (Aghast View)
+7. Gottes Tod (Cat Rapes Dog)
+8. Dein Leben (Imminent Starvation)
+9. Von der Armut (Reverse Edit)
+10. Der Schrei
+11. Re-Animat
+
+### "Antichrist" 2002, Industrial
+
+1. Engel
+2. Keimzeit
+3. Grund Der Seele
+4. Vater
+5. Krieg im Paradies
+6. Tor zur Hцlle
+7. Garten Eden
+8. Das dunkle Land
+9. Sodom und Gomorra
+10. Der achte Tag
+
+### "Lava:Glut" 2004, Industrial
+
+
+
+### "Lava:Asche" 2004, Industrial
+
+01. Schwarzer Stern
+02. Uterus (vergih mir)
+03. Meine Wiege
+04. Vulkan
+05. Seele Tanzt (lass mich frei)
+06. Tot Im Kopf
+07. Sehnsucht
+08. Fieber (stirh mit mir)
+09. Schwarzer Stern (reworked by Terminal Choice)
+10. Vulkan (reworked by wumpscut)
+
+Stefan Ackermann - Vocals, Lyrics
+Bruno Kramm - Music, Backing Vocals, Production
+Kain Gabriel Simon - Backing Vocals
+
 
 ## Отношения с другими группами
 

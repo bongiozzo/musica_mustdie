@@ -1,8 +1,50 @@
 # Isengard
 
-Дискография
-"Vinterskugge" 1994, Black Metal
-"Hostmorke" 1995, Black Metal
+Solo project of Fenriz
+
+## Дискография
+
+### "Vinterskugge" 1994, Black Metal
+
+Chapter One - Vandreren (1993)
+1.  Vinterskugge
+2.  Gjennom Skogen Til Bllatjeuene
+3.  Ut I Vannets Dyp Hvor Morket Huiler
+4.  Dommedagssalme
+5.  In The Halls And Chambers Of Stardust The Crystallic Heavens Open
+6.  Fanden Lokker Til Stupet (Nytrad)
+7.  Naglfar
+Chapter Two - Isengard Demo (1989) August Spectres Over Gorgoroth
+8.  Thy Gruesome Death
+9.  Deathcult
+10.Rise From Below
+11.Dark Lord Of Gorgoroth
+12.Trollwandering (Outro)
+Chapter Three - Horizons
+13.The Fog  (Early 1991)
+14.Storm Of Evil
+15.Bergtrollets Gravferd
+16.Our Lord Will Come
+
+All Lyrics & Music By Fenriz.
+
+(P)(C) 1994 PEACEVILLE Records
+
+### "Hostmorke" 1995, Black Metal
+
+01 - Neslepaks
+02 - Landet og havet
+03 - I kamp med Kvitekrist
+04 - I ei gran borti Nordre Usen
+05 - Over de syngende ode moer
+06 - Thornspawn chalice
+07 - Total Death
+
+Recorded from May 1994 'til March 1995.
+Engineered and produced by Fenris in Necrohell Studios.
+
+Moonfog Productions 1995
+
 
 ## Отношения с другими группами
 

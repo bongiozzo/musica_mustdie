@@ -1,7 +1,13 @@
 # Code Of Perfection
 
-Дискография
-"Last Exit For The Lost" 2006, Power Metal
+
+
+## Дискография
+
+### "Last Exit For The Lost" 2006, Power Metal
+
+
+
 
 ## Отношения с другими группами
 

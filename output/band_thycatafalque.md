@@ -1,13 +1,45 @@
 # Thy Catafalque
 
-Дискография
-"Sublunary Tragedies" 1999, Alternative
-"Microcosmos" 2001, Alternative
-"Tыnх idх tбrlat" 2004, Alternative
-"Rуka hasa rбdiу" 2009, Alternative
-"Rengeteg" 2011, Alternative
-"Sgщrr" 2015, Alternative
-"Meta" 2016, Alternative
+
+
+## Дискография
+
+### "Sublunary Tragedies" 1999, Alternative
+
+
+
+### "Microcosmos" 2001, Alternative
+
+
+
+### "Tыnх idх tбrlat" 2004, Alternative
+
+
+
+### "Rуka hasa rбdiу" 2009, Alternative
+
+
+
+### "Rengeteg" 2011, Alternative
+
+
+
+### "Sgщrr" 2015, Alternative
+
+
+
+### "Meta" 2016, Alternative
+
+1. Urбnia		 
+2. Sirбly		 
+3. 10^(-20) Еngstrцm		 
+4. Ixiуn Dььn		 
+5. Osszel otthon		 
+6. Malmok jбrnak		 
+7. Vonatъt az йjszakбban		 
+8. Mezolit		 
+9. Fehйrvasбrnap
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,20 @@
 # Caedes Cruenta
 
-Дискография
-"Skies Daimonon" 2009, Black Metal
+
+
+## Дискография
+
+### "Skies Daimonon" 2009, Black Metal
+
+1. The Path where the Dark Legion Dwells	 
+2. Eosphorus	
+3. Maccabre Sacrifices beneath the Hollowed Graves
+4. Cold Eternal Night	 
+5. Through the Forest of Wolf's Possession	 
+6. ????? ???????? (Skies Daimonon)	 
+7. Religion of Blasphemy	 
+8. Into the Ashes of the Unforgotten Woods
+
 
 ## Отношения с другими группами
 

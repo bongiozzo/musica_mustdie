@@ -1,8 +1,69 @@
 # Nattvindens Grat
 
-Дискография
-"A Bard's Tale" 1996, Death Doom
-"Chaos Without Theory" 1997, Death Doom
+
+
+## Дискография
+
+### "A Bard's Tale" 1996, Death Doom
+
+1. The Road Goes Ever On
+2. The Echo
+3. Skyfires Dance
+4. Towards The Sea
+5. Song Of The Tide Waves
+6. A Lonely October Night
+7. Stormwind The Soothsayer
+8. Vagabond's Dusk
+9. The Two Oaks
+
+All songs written by NATTVINDENS
+GRAT.
+Produced by Tuomo Valtonen and
+NATTVINDENS GRAT.
+Co-Produced by Tero Kinnunen.
+Engineered by Tuomo Valtonen.
+Recorded at Walltone Studio.
+
+  Teemu - Electric Guitars, Speeches
+  Tuomas - Keyboards, Clarinet
+  Sami - Electric Bass Guitar
+  Teiv - Drums, Cymbals
+
+  Session musicians:
+  Wilsa - Lead Vocals
+  Pasi - Guitars, Vocals
+  Suvi - Female Vocals
+
+  (p)(c) 1996 SOLISTITIUM Records
+
+### "Chaos Without Theory" 1997, Death Doom
+
+1. Sethian Seal
+2. The Dance From Beyond
+3. Sleep Eternal In Gothic Archways
+4. Thelemite
+6. Sadoeroticart
+7. Chaos Without Theory
+8. Liquid Silent Dreams
+9. Sorrow's Shroud
+
+Teemu - Guitars
+Wilska - Human Voices
+Tero - Drums
+Sami - Bass
+Tuomas - Keyboards
+Puukko - Guitars
+
+Chaos without theory was found at Tico Tico Studio
+during six days in march 1997
+Engineered by Ahti Kortelainen
+Produced by NATTVINDES GRAT
+All music composed by Teemu
+All Lyrics written by Wilska & Teemu
+Mastered at Finnvox by Mika Jussila
+
+(p)(c)1997 Solistium
+
 
 ## Отношения с другими группами
 

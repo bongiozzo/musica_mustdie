@@ -1,13 +1,157 @@
 # Sacred Steel
 
-Дискография
-"Reborn in Steel" 1997, Speed Metal
-"Wargods of Metal" 1998, Speed Metal
-"Bloodlust" 2000, Speed Metal
-"Slaughter Prophecy" 2002, Speed Metal
-"Iron Blessings" 2004, Speed Metal
-"Hammer of Destruction" 2006, Speed Metal
-"Carnage Victory" 2009, Speed Metal
+German Speed Metal
+
+## Дискография
+
+### "Reborn in Steel" 1997, Speed Metal
+
+1. Metal Reigns Supreme
+2. Battle Angel
+3. Trapped In Hell
+4. True Force Of Iron Glory
+5. Reborn In Steel
+6. Purified By Rain
+7. Sword Of The King
+8. In The Mouth Of Madness
+9. Kill The Deceiver
+10. Sacred Steel
+
+
+
+Gerrit P. Mutz - Sirens Of Metal
+Jorg M. Knittel - Lead guitar
+Oliver Grosshans - Rhytm Guitar
+Jens Sonnenberg - Bass
+Mathias Straub - Drums
+
+
+All music and lyrics by SACRED STEEL
+Produced by SACRED STEEL
+Engineered and mixed by Frank Wendler
+Recorded and mixed August and September 1997 at JAM Studio, Kirchberg
+Cover artwork by Michael Bдhre
+SACRED STEEL logo by Jцrg M. Knittel 
+
+
+### "Wargods of Metal" 1998, Speed Metal
+
+Blessed By The Gods 
+Wargods Of Metal 
+Tonight The Witches Ride 
+Iron Legions 
+Carnage Rules The Fields Of Death 
+Army Of Metalheads  
+Battle Cry 
+Dethrone The Tyrant King 
+By Steel We Rule 
+Crusaders Of The Metal Blade 
+Empire Of Steel 
+Declaration Of War 
+Heavy Metal To The End
+
+
+
+All music and lyrics by SACRED STEEL
+except ‘Battle Cry’ by Powell/Kimball. Produced by Bill Metoyer
+Engineered by Bill Metoyer and Detlef Mohrmann, mixed by Bill Metoyer
+Recorded and mixed July 1998 at Tonstudio Mohrmann, Bochum
+Mastered by Eddy Schreyer at Oasis Mastering
+Cover artwork by Michael Bдhre
+All songs published by Limb Music Publishing, except ‘Battle Cry’ published by Bloody Skull Music/Amgine Music, Bug Music BMI © 1984
+‘Blessed By The Gods’ spoken by Bill Metoyer
+
+
+### "Bloodlust" 2000, Speed Metal
+
+Stormhammer 
+The Oath Of Blood 
+By The Wrath Of The Unborn 
+Blood On My Steel  
+Metal Is War  
+Journey To The City Of The Dreaming Dead (Vinyl Bonus Track) 
+Sacred Warriors Of Steel 
+Dark Forces Lead Me To The Brimstone Gate 
+Master Of Thy Fate 
+Lust For Blood  
+Throne Of Metal 
+
+
+
+All music and lyrics by SACRED STEEL
+Produced by SACRED STEEL and Achim Kцhler
+Engineered and mixed by Achim Kцhler at
+House Of Music, Winterbach in January 2000
+Mastered by Achim Kцhler and Jцrg M. Knittel
+Cover artwork by Jan Meininghaus
+All songs published by Limb Music Publishing 
+
+Backing Vocals:
+Klaus Sperling, Renй Pfeiffer, Jens Sonnenberg, Alexander “Apollo” HeiЯ, Gerrit P. Mutz
+Ralf Gaiser, Mirko Holzwarth and Oliver “Shorty” Short 
+
+Guest Vocals:
+Alan Tecchio, Renй Pfeiffer and Andreas Reissnauer
+
+
+
+
+### "Slaughter Prophecy" 2002, Speed Metal
+
+I. The Immortal Curse 0:14 
+II. Slaughter Prophecy (Vengeance For The Dead) 3:33
+III. Sacred Bloody Steel 3:40
+IV. The Rites Of Sacrifice 3:58
+V. Raise The Metal Fist 4:45
+VI. Pagan Heart 3:12
+VII. Faces Of The Antichrist 4:03
+VIII. Lay Me To My Grave 5:45
+IX. Crush The Holy, Save The Damned 3:31
+X. Let The Witches Burn 3:52
+XI. Invocation Of The Nameless 9:17
+
+### "Iron Blessings" 2004, Speed Metal
+
+1. Open Wide The Gate 
+2. Your Darkest Saviour 
+3. Screams Of The Tortured 
+4. All The Sabbat Of The Possessed 
+5. Beneath The Iron Hand 
+6. Anointed By Bloodshed 
+7. Victory Of Black Steel 
+8. I am The Conqueror 
+9. Cruzified In Heaven 
+10. The Chains Of The Nazarene 
+11. We Die Fighting
+
+### "Hammer of Destruction" 2006, Speed Metal
+
+1. Hammer of Destruction 04:11
+2. Where Demons Dare to Tread 04:32 
+3. Maniacs of Speed 03:27  
+4. Blood and Thunder 03:37
+5. Impaled by Metal 05:48
+6. Descent of a Lost Soul 01:14  
+7. Black Church 08:52
+8. Generally Hostile (Jag Panzer cover) 03:14 
+9. Plague of Terror 03:55
+10. Sword and Axes 04:53
+11. The Torch of Sin 04:28 
+
+### "Carnage Victory" 2009, Speed Metal
+
+1. Charge Into Overkill 03:46  
+2. Don't Break the Oath 03:48  
+3. Carnage Victory 05:56  
+4. Broken Rites 05:46  
+5. Crosses Stained With Blood 04:57  
+6. Ceremonial Magician of the Left Hand Path 05:04  
+7. The Skeleton Key 05:34  
+8. Shadows of Reprisal 01:33  
+9. Denial of Judas (Heaven Betrayed) 05:24  
+10. Metal Underground 04:22  
+11. By Vengeance and Hatred We Ride 05:16 
+
 
 ## Отношения с другими группами
 

@@ -1,11 +1,81 @@
 # Dagoba
 
-Дискография
-"Dagoba" 2003, Thrash
-"What Hell Is About" 2006, Thrash
-"Face the Colossus" 2008, Thrash
-"Poseidon" 2010, Thrash
-"Post Mortem Nihil Est" 2013, Thrash
+French Modern Metal
+
+## Дискография
+
+### "Dagoba" 2003, Thrash
+
+1. From Torture To Enslavement 00:41  
+2. Maniak 03:16  
+3. The White Guy (And The Black Ceremony) 03:29
+4. Something Stronger 06:22
+5. Another Day 04:47  
+6. Fate Contained In A Crystal Ball 00:50  
+7. Year Of The Scape Goat 04:05  
+8. Dopesick 04:13  
+9. Act 1, Part 2 03:03  
+10. Rush 04:54  
+11. The Chaos We're Involved In 00:31  
+12. Here We Are 04:03  
+13. 4.2 Destroy 02:21 
+14. Pornscars 02:37
+15. Gods Forgot Me 20:46 
+
+
+Track 1, 6 and 11 are instrumentals.
+
+At the end of the last track, there are a few minutes of silence followed by a
+hidden track. 
+
+### "What Hell Is About" 2006, Thrash
+
+
+
+### "Face the Colossus" 2008, Thrash
+
+1. Abyssal 00:49  
+2. Face the Colossus 04:54  
+3. Back from Life 04:25
+4. Somebody Died Tonight 05:55 
+5. The World in Between 06:09 
+6. Transylvania 01:37  
+7. Orphan of You 06:09 
+8. The Nightfall and All Its Mistakes 05:44  
+9. Silence #3 04:17  
+10. The Crash 06:54  
+11. Sudden Death 03:46 
+
+
+### "Poseidon" 2010, Thrash
+
+1. 43 17'n / 5 22'e 01:00  
+2. Dead Lion Reef 05:41  
+3. Columnae 04:22  
+4. The Devil's Triangle 03:51  
+5. Degree Zero 03:46  
+6. The Horn Cape 02:48  
+7. Black Smokers (752 Farenheit) 03:11  
+8. Ha Long Shen Lung 00:54  
+9. I Sea Red 04:15  
+10. There's Blood Offshore 05:00  
+11. Waves of Doom 04:42 
+
+
+### "Post Mortem Nihil Est" 2013, Thrash
+
+1. When Winter...
+2. Oblivion Is For The Living
+3. The Realm Black
+4. Yes We Die
+5. I, Reptile
+6. Nevada
+7. The Day After The Apocalypse
+8. By The Sword
+9. Kiss Me Kraken
+10. The Great Wonder
+11. Son Of A Ghost 
+
 
 ## Отношения с другими группами
 

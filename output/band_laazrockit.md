@@ -1,13 +1,68 @@
 # Laaz Rockit
 
-Дискография
-"City's Gonna Burn" 1984, Thrash
-"No Stranger To Danger" 1985, Thrash
-"Know Your Enemy" 1987, Thrash
-"Annihilation Principle" 1989, Thrash
-"Nothing's Sacred" 1991, Thrash
-"Taste Of Rebellion (Live)" 1992, Thrash
-"Left For Dead" 2008, Thrash
+
+
+## Дискография
+
+### "City's Gonna Burn" 1984, Thrash
+
+
+
+### "No Stranger To Danger" 1985, Thrash
+
+
+
+### "Know Your Enemy" 1987, Thrash
+
+ Side One:
+1. Demolition 1.14
+2. Last Breath 4.34
+3. Euroshima 3.52
+4. Most Dangerous Game 5.07
+5. Shot To Hell 4.54
+ Side Two:
+1. Say Goodby M.F. 4.14
+2. Selfdestruct 5.37
+3. Means To And End 4.47
+4. I'm Electric 3.03
+5. Mad Axe Attack 2.13
+6. Shits Ugly 1.37
+
+Michael Coons - Vocals
+Aaron Jellum - Guitars
+Phil Kettner - Guitars
+Willy Lange - Bass & Back Vocals
+Victor Agnello - Drums
+
+(p)&(c) 1987
+
+### "Annihilation Principle" 1989, Thrash
+
+
+
+### "Nothing's Sacred" 1991, Thrash
+
+1. In The Name Of The Father And Gun
+2. Into The Asylum
+3. Greed Machine
+4. Too Far Gone
+5. Curiosity Kills
+6. Suicide City
+7. The Enemy Within
+8. Nobody`s Child
+9. Silence Is A Lie
+10.Necropolio
+
+(p)&(c) 1991 ROADRACER Records
+
+### "Taste Of Rebellion (Live)" 1992, Thrash
+
+
+
+### "Left For Dead" 2008, Thrash
+
+
+
 
 ## Отношения с другими группами
 

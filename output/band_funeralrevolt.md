@@ -1,7 +1,22 @@
 # Funeral Revolt
 
-Дискография
-"The Perfect Sin" 2005, Death Industrial
+
+
+## Дискография
+
+### "The Perfect Sin" 2005, Death Industrial
+
+1.	 Meta Data 
+2.	 Six Was Nine
+3.	 Fear Formula
+4.	 Battle Art
+5.	 Chapter Zero	 
+6.	 Pistol Silhouette
+7.	 Mind Stitch	 
+8.	 The Perfect Sin
+9.	 We Maximize
+10.	 ....But Not Forgotten
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,13 @@
 # Fuzztones
 
-Дискография
-"Salt For Zombies" 2004, Psychedelic
+
+
+## Дискография
+
+### "Salt For Zombies" 2004, Psychedelic
+
+
+
 
 ## Отношения с другими группами
 

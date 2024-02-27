@@ -1,7 +1,36 @@
 # Absurd Existence
 
-Дискография
-"Angelwings" 1996, Death Doom
+
+
+## Дискография
+
+### "Angelwings" 1996, Death Doom
+
+1. Sorrow
+2. Black Sun
+3. Beyond All Beauty
+4. Dawn Of Lies
+5. ...And We Dream
+6. At The Gates Of Nemesis
+7. Ode To The Setting Sun
+8. Silence
+9. Carried By The Wings Of An Angel
+
+[4] - Ha cтopoнe B
+
+All  songs  written  by ABSURD EXISTENCE.
+Recorded and mixed at Phoneart Studios, Regensburg
+
+Bernhard Handke - Rhythm Guitar
+Stefan Wochnik - Bass Guitar
+Markus Ammer - Lead Guitar
+Marcel Beischl - Vocals
+Volker Rossener - Drums
+
+Additional Keyboards by Frank Hartl
+
+(p)(c) 1996 FORCE Music
+
 
 ## Отношения с другими группами
 

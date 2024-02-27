@@ -1,17 +1,181 @@
 # Emperor
 
-Дискография
-"Wrath of the Tyrant (demo)" 1992, Black Metal
-"Emperor E.P." 1993, Black Metal
-"In the Nightside Eclipse" 1994, Black Metal
-"Reverence E.P." 1997, Black Metal
-"Anthems to the Welkin at Dusk" 1997, Black Metal
-"IX Equilibrium" 1999, Black Metal
-"Thorns Vs. Emperor" 1999, Black Metal
-"Emperial Live Ceremony (VHS)" 1999, Black Metal
-"Emperial Live Ceremony" 2000, Black Metal
-"Prometheus: The Discipline of Fire and Demise" 2001, Black Metal
-"Emperial Live Ceremony (DVD)" 2001, Black Metal
+True Black Metal
+
+## Дискография
+
+### "Wrath of the Tyrant (demo)" 1992, Black Metal
+
+    Introduction             2.20
+    Ancient queen            3.17
+    My empire's doom         4.35
+    Forgotten centuries      2.52
+    Night of 
+      the graveless souls    2.57
+    Moon over Kara-Shehr     4.27
+    Witches sabbat           5.43
+    Lord of the storms       2.10
+    Wrath of the tyrant      3.59
+    Witches sabbat           5.57
+    Ancient queen            3.39
+
+
+### "Emperor E.P." 1993, Black Metal
+
+
+
+### "In the Nightside Eclipse" 1994, Black Metal
+
+1. Into the Infinity of Thoughts <small>(9:05)</small>
+2. The Burning Shadows of Silence <small>(5:35)</small>
+3. Cosmic Keys to My Creations & Times <small>(6:06)</small>
+4. Beyond the Great Vast Forest <small>(6:00)</small>
+5. Towards the Pantheon <small>(5:57)</small>
+6. The Majesty of the Nightsky <small>(4:53)</small>
+7. I am the Black Wizards <small>(6:00)</small>
+8. Inno a Satana <small>(4:48)</small>
+
+
+Line-Up:
+
+Ihsahn – lead guitar, vocals & keyboards
+Samoth – guitar
+Tchort – bass
+Faust – drums
+
+Recorded during the seventh fullmoon
+anno 1993 at Grieghallen Studios.
+Mixed winter anno 1994.
+Produced by Pytten & The Emperors.
+Mastered at Turan Audio by Tim Turan & The Emperors.
+
+Front Cover by Necrolord.
+Logo by C. Szpajdel.
+"Telemark" photo by Johan Brun.
+"Transylvania Ruins" photo by Vasomi Tamas.
+"Demongate" photo by Marco Deplano.
+All other nature photos by Samoth.
+Frames by Frost.
+Layout by Samoth & Adrian Wear.
+
+<i>In memory of Euronymous (1968–1993)</i>
+
+&copy; 1994 Candlelight Records
+
+
+Info:
+
+/ Some releases have a first track as "Introduction" or "Intro" (0:51), non-including in the "Into the Infinity of Thoughts".
+
+/ Russian release (2003 Irond Ltd.) include bonus tracks:
+
+9. A Fine Day to Die * <small>(8:31)</small>
+10. Gypsy ** <small>(2:57)</small>
+
+* Recorded at Grieghallen Studios, October anno 1996.
+Produced by Pytten & The Emperors.
+
+** Recorded at Akkerhaugen Lydstudio, June anno 1997.
+Produced by Thorbjorn Akkerhaugen & The Emperors.
+
+*/** Trym (drums) & Alver (bass)
+** Charmand G. (keyboards)
+
+### "Reverence E.P." 1997, Black Metal
+
+
+
+### "Anthems to the Welkin at Dusk" 1997, Black Metal
+
+    Alsvartr (The oath)      4.18
+    Ye entrancemperium       5.14
+    Thus spake
+      the nightspirit        4.30
+    Encorcelled by Rhaos     6.39
+    The loss and curse
+      of reverence           6.09
+    The acclamation of bonds 5.54
+    With strength I burn     8.17
+    The wanderer             2.54
+
+
+### "IX Equilibrium" 1999, Black Metal
+
+    Curse you all men        4.36
+    Decrystallizing reason   6.17
+    An elegy of Icaros       6.32
+    The source of icon E     3.39
+    Sworn                    4.25
+    Nonus aequilibrium       5.43
+    The warriors
+      of morden death        4.52
+    Of blindness
+      & subsequent seers     7.11
+
+
+### "Thorns Vs. Emperor" 1999, Black Metal
+
+
+
+### "Emperial Live Ceremony (VHS)" 1999, Black Metal
+
+
+
+### "Emperial Live Ceremony" 2000, Black Metal
+
+  1.   I Am the Black Wizards (Mortiis) - 11:51 
+  2.   Curse You All Men! - 5:43 
+  3.   Thus Spake the Nightspirit - 4:25 
+  4.   I Am the Black Wizards (Mortiis) - 5:33 
+  5.   An Elegy of Icaros - 6:11 
+  6.   With Strength I Burn - 7:47 
+  7.   Sworn - 4:31 
+  8.   Night of the Graveless Souls (Mortiis) - 3:09 
+  9.   Inno a Satana (Mortiis) - 5:07 
+  10.   Ye Entrancemperium - 6:09 
+
+
+The Emperors  -  Overdubs 
+Trym  -  Drums, Liner Notes 
+Ihsahn  -  Guitar, Vocals, Liner Notes 
+Thorb Jorn Akkerhaugen  -  Engineer, Overdubs, Mixing 
+Asgeir Mickelson  -  Photography 
+Samoth  -  Guitar 
+Lukasz Jaszak  -  Photography 
+
+
+### "Prometheus: The Discipline of Fire and Demise" 2001, Black Metal
+
+  1.   The Eruption (Ihsahn) - 6:28 
+  2.   Depraved (Ihsahn) - 6:32 
+  3.   Empty (Ihsahn) - 4:16 
+  4.   The Prophet (Ihsahn) - 5:41 
+  5.   The Tongue of Fire (Ihsahn) - 7:10 
+  6.   In the Wordless Chamber (Ihsahn) - 5:12 
+  7.   Grey (Ihsahn) - 5:05 
+  8.   He Who Sought the Fire (Ihsahn) - 5:28 
+  9.   Thorns on My Grave (Ihsahn) - 5:55 
+ 
+Trym  -  Percussion, Drums 
+Ihsahn  -  Bass, Guitar, Arranger, Keyboards, Programming, Vocals, Producer 
+Thorb Jorn Akkerhaugen  -  Mixing 
+Tom Kvеlsvoll  -  Mastering 
+Samoth  -  Guitar 
+
+
+### "Emperial Live Ceremony (DVD)" 2001, Black Metal
+
+01. Curse You All Men! - 5:43
+02. Thus Spake the Nightspirit - 4:25
+03. I Am the Black Wizards (Mortiis) - 5:33
+04. An Elegy of Icaros - 6:11
+05. With Strength I Burn - 7:47
+06. Sworn - 4:31
+07. Night of the Graveless Souls (Mortiis) - 3:09
+08. Inno a Satana (Mortiis) - 5:07
+09. Ye Entrancemperium - 6:09
+10. The Loss And Curse of Reverence (video)
+
 
 ## Отношения с другими группами
 

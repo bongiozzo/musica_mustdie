@@ -1,8 +1,124 @@
 # Radioactive
 
-Дискография
-"Ceremony Of Innocence" 2001, Hard Rock
-"Yeah" 2003, Hard Rock
+
+
+## Дискография
+
+### "Ceremony Of Innocence" 2001, Hard Rock
+
+1. The Story Of Love 
+2. Crimes Of Passion 
+3. On My Own 
+4. Grace
+5. Waiting For A Miracle
+6. LA Movies
+7. Ceremony Of Innocence
+8. Liquid
+9. Haunt Me Tonight
+10. A Case Of Right Or Wrong
+11. Silent Cries
+12. When You're In Love
+
+
+
+### "Yeah" 2003, Hard Rock
+
+1. YEAH (Tommy Denander - Ricky Delin)
+
+MIKAEL ERLANDSSON - Lead & backing vocals
+TOMMY DENANDER - Guitars, bass, keyboards, programming
+PAT THERN - Drums
+CHRIS DEMMING - Backing vocals
+KRISTOFFER LAGERSTROM - Backing vocals
+
+2. DEMON (Tommy Denander - Ricky Delin)
+
+FERGIE FREDERIKSEN - Lead vocals
+TOMMY DENANDER - Guitars, keyboards, programming
+PAT THERN - Drums
+MARCEL JACOB - Bass
+CHRIS DEMMING - Backing vocals
+
+3. DON'T GIVE UP (Tommy Denander - Geir Rцnning)
+
+GEIR RONNING - Lead & backing vocals
+TOMMY DENANDER - Guitars, bass, keyboards, programming
+PAT THERN - Drums
+CHRIS DEMMING - Backing vocals
+
+4. LIES FEED ON LIES (Tommy Denander - Chris Demming)
+
+STEVE OVERLAND - Lead & backing vocals
+TOMMY DENANDER - Guitars, keyboards, programming
+TONY FRANKLIN - Bass
+PAT THERN - Drums
+
+5. I SHOULD HAVE KNOWN BETTER (Tommy Denander - Chris Demming)
+
+MIKAEL ERLANDSSON - Lead & backing vocals
+TOMMY DENANDER - Guitars, bass, keyboards, programming
+PAT THERN - Drums
+CHRIS DEMMING - Backing vocals
+KRISTOFFER LAGERSTROM - Backing vocals
+
+6. OVER YOU (Tommy Denander - Ricky Delin)
+
+GEIR RONNING - Lead vocals
+TOMMY DENANDER - Guitars, bass, keyboards, programming
+PAT THERN - Drums
+CHRIS DEMMING - Backing vocals
+
+7. FIRE WITHIN (Tommy Denander - Chris Demming)
+
+MIKAEL ERLANDSSON - Lead & backing vocals
+TOMMY DENANDER - Guitars, keyboards, programming
+MARCEL JACOB - Bass
+PAT THERN - Drums
+CHRIS DEMMING - Backing vocals
+KRISTOFFER LAGERSTROM - Backing vocals
+
+8. NOT THAT INNOCENT (Tommy Denander - Kristoffer Lagerstrцm)
+
+KIMMO BLOM - Lead & backing vocals
+TOMMY DENANDER - Guitars, bass, keyboards, programming
+PAT THERN - Drums
+CHRIS DEMMING - Backing vocals
+ERKKA KORHONEN - Backing vocals
+
+9. MAKE IT MINE (Tommy Denander - Chris Demming)
+
+MIKAEL ERLANDSSON - Lead & backing vocals
+TOMMY DENANDER - Guitars, bass, keyboards, programming
+PAT THERN - Drums
+CHRIS DEMMING - Hammond solo & backing vocals
+KRISTOFFER LAGERSTROM - Backing vocals
+
+10. SOULS ON FIRE (Tommy Denander - Geir Rцnning)
+
+GEIR RONNING - Lead & backing vocals
+TOMMY DENANDER - Guitars, bass, keyboards, programming
+PAT THERN - Drums
+
+11. 7 AM (Tommy Denander - Ricky Delin)
+
+FERGIE FREDERIKSEN - Lead vocals
+KIMMO BLOM - Lead & backing vocals
+TOMMY DENANDER - Guitars, keyboards, programming
+MARCEL JACOB - Bass
+PAT THERN - Drums
+CHRIS DEMMING - Backing vocals
+ERKKA KORHONEN - Backing vocals
+
+12. UNTIL I CHANGE YOUR HEART (Tommy Denander - Chris Demming)
+
+MATTI ALFONZETTI - Lead vocals
+TOMMY DENANDER - Guitars, keyboards, programming
+MARCEL JACOB - Bass
+PAT THERN - Drums
+CHRIS DEMMING - Backing vocals
+
+
+
 
 ## Отношения с другими группами
 

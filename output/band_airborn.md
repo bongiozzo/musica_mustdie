@@ -1,7 +1,43 @@
 # Airborn
 
-Дискография
-"Against The World" 2002, Power Metal
+Power Metal
+
+## Дискография
+
+### "Against The World" 2002, Power Metal
+
+01. Infernal Machine (intro)
+02. Against The World
+03. Born To Fly
+04. The Hero
+05. Projectile
+06. Cry Now
+07. New Hope
+08. Wings
+09. Return To The Sky
+10. No More Kings
+11. Sky City
+12. Infernal Machine Two (outro).
+
+Alessio Perardi (vocals, guitars & keyboards)
+Roberto Capucchio (guitars)
+Alberto Leschi (bass)
+Tony Serra (drums)
+
+Produced by Piet Sielck & AIRBORN All songs music
+& lyrics by Alessio Perardi, arranged by AIRBORN
+(with some very welcome hint from Piet)
+Keyboards, guitars and bass recorded by AIRBORN at
+AIRBORN Studio
+Vocals, drums and additional guitars recorded by
+Piet Sielck at Powerhouse
+Engineered, mixed and mastered by Piet Sielck at
+Powerhouse
+Backing vocals, duet lead vocals on "Wings", first
+guitar solo on "Cry Now" and last minute
+additional lead guitars performed by Piet "Chief
+O'Brien" Sielck
+
 
 ## Отношения с другими группами
 

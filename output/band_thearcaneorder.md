@@ -1,8 +1,41 @@
 # The Arcane Order
 
-Дискография
-"The Machinery of Oblivion" 2006, Thrash
-"In The Wake Of Collisions" 2008, Ambient
+
+
+## Дискография
+
+### "The Machinery of Oblivion" 2006, Thrash
+
+1. Prologue: the Machinery of Oblivion 00:36  
+2. Infinite Ghost Anathema 05:07  
+3. The Superior Collision 05:14  
+4. In A Hail of Deadly Bullets 05:23  
+5. Servants of A Darker World 04:18  
+6. Bloodlust 05:12  
+7. A Sevenfold Condemnation 05:07  
+8. Breathe the Poison 04:43  
+9. Flames of Liberation 04:40  
+10. The Sanity Insane 06:05
+
+### "In The Wake Of Collisions" 2008, Ambient
+
+1. Death Is Imminent 06:26  
+2. Between Reason And Hubris 05:27  
+3. The Serpent Tower 05:10  
+4. Eruptions Of Red 07:14  
+5. When Oceans Become Deserts (instrumental) 02:27  
+6. Unleash The Tyrant 05:07  
+7. The Reaping Reverence 04:10  
+8. Sanctity Of Allegiance 06:44  
+9. Horizons Buried 05:59 
+
+
+Kasper Thomsen - Vocals
+Kasper Kirkegaard - Rhythm Guitar 
+Flemming C. Lund - Lead/Rhythm Guitar 
+Boris Tandrup - Bass 
+Morten Lшwe Sшrensen - Drums
+
 
 ## Отношения с другими группами
 

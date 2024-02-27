@@ -1,25 +1,295 @@
 # Sonata Arctica
 
-Дискография
-"UnOpened (Single)" 1999, Power Metal
-"Ecliptica" 1999, Power Metal
-"Successor (MCD)" 2000, Power Metal
-"Silence" 2001, Power Metal
-"Songs of Silence - Live in Tokyo" 2002, Power Metal
-"Winterheart's Guild" 2003, Power Metal
-"Reckoning Night" 2004, Power Metal
-"Don't Say A Word (single)" 2004, Power Metal
-"Unia" 2007, Power Metal
-"The Days Of Grays" 2009, Power Metal
-"The Last Amazing Grays" 2009, Power Metal
-"Live in Finland [DVD]" 2011, Power Metal
-"Stones Grow Her Name" 2012, Power Metal
-"I Have a Right (single)" 2012, Power Metal
-"Alone in Heaven (single)" 2013, Power Metal
-"The Wolves Die Young (single)" 2014, Power Metal
-"Cloud Factory (single)" 2014, Power Metal
-"Pariah's Child" 2014, Power Metal
-"The Ninth Hour" 2016, Progressive
+finnish power heavy metal
+
+## Дискография
+
+### "UnOpened (Single)" 1999, Power Metal
+
+1. UnOpened
+2. Mary-Lou
+
+### "Ecliptica" 1999, Power Metal
+
+1. Blank File
+2. My Land
+3. 8th Commandment
+4. Replica
+5. Kingdom for a Heart
+6. FullMoon
+7. Letter to Dana
+8. UnOpened
+9. Picturing the Past
+10. Destruction Preventer
+11. Mary-Lou (Japanese bonus track)
+
+### "Successor (MCD)" 2000, Power Metal
+
+1. FullMoon (edit)
+2. Still Loving You (Scorpions cover)
+3. I Want Out (Helloween cover)
+4. San Sebastian
+5. Shy
+6. Replica (live, Finnish bonus track)
+7. My Land (live, Finnish bonus track)
+
+### "Silence" 2001, Power Metal
+
+1...of Silence
+2.Weballergy
+3.False News Travel Fast
+4.The End of This Chapter
+5.Black Sheep
+6.Land of the Free
+7.Last Drop Falls
+8.San Sebastian (revisited)
+9.Sing In Silence
+10.Revontulet (Instr.)
+11.Tallulah
+12.Wolf & Raven
+13.Respect the Wilderness (Japanese bonus track)
+14.The Power of One 
+     
+
+Line-up
+
+Tony Kakko - Vocals, additional keyboards
+Jani Liimatainen - Guitars
+Tommy Portimo - Drums
+Mikko Hдrkin - Keyboards
+Marko Paasikoski - Bass
+
+
+All Songs written by T.Kakko
+Arrangements by Sonata Arctica
+
+
+Recorded at Tico Tico Studio, www.ticotico.fi by Ahti Kortelainen during fall 2000 and spring 2001.
+
+
+Grand piano on #4 and #11 recorded at Finnvox Studios by Mikko Karmila 
+
+Spoken parts recorded Mika Niilonen 
+
+Male voices on #1, #4, #7 and #13 by Nik Van-Eckmann
+Female voice on #by Renay Gonzalez 
+
+Mixed by Mikko Karmila at Finnvox Studios in April 2001
+Mastered by Mika Jussila at Finnvox Studios
+
+
+Cover art and logo by Eric Philipp
+Inlay drawings by Tero Junkkila
+Original logo concept by Janne Pitkдnen 
+
+Art Direction and background photos by T. Kakko
+Band photo by Toni Hдrkцnen
+
+
+
+### "Songs of Silence - Live in Tokyo" 2002, Power Metal
+
+01. Intro
+02. Weballergy
+03. Kingdom for a Heart
+04. Sing in Silence
+05. False News Travel Fast
+06. Last Drop Falls
+07. Respect the Wilderness
+08. FullMoon
+09. The End of This Chapter
+10. The Power of One (Japanese bonus)
+11. Replica
+12. My Land
+13. Black Sheep
+14. Wolf & Raven
+
+### "Winterheart's Guild" 2003, Power Metal
+
+1.Abandoned, Pleased, Brainwashed, Exploited
+2.Gravenimage
+3.The Cage
+4.Silver Tongue
+5.The Misery
+6.Victoria's Secret
+7.Champagne Bath
+8.Broken
+9.The Ruins Of My Life
+10.Draw Me
+
+### "Reckoning Night" 2004, Power Metal
+
+01. Misplaced 
+02. Blinded No More 
+03. Ain't Your Fairytale 
+04. Reckoning Day, Reckoning Night…
+05. Don't Say A Word 
+06. The Boy Who Wanted To Be A Real Puppet 
+07. My Selene 
+08. Wildfire 
+09. White Pearl, Black Oceans… 
+10. Shamandalie 
+11. Wrecking the Sphere (Japan only)
+
+### "Don't Say A Word (single)" 2004, Power Metal
+
+01. Don`t Say A Word (edit)
+02. Ain`t Your Fairytale
+03. World In My Eyes
+04. Two Minds, One Soul
+
+Tony Kakko - vocals, keyboards
+Jani Liimatainen - guitar
+Marko Paasikoski - bass
+Henrik Klingenberg - keyboards
+Tommy Portimo - drums
+
+Recorded at Tico-Tico Studio by Ahti Kortelainen
+during March, April and June 2004.
+Tracks 1 & 2 mixed at Finnvox Studios by Mikko
+Karmila.
+Tracks 3 & 4 mixed at Tico-Tico Studio by Ahti
+Kortelainen.
+Mastered at Finnvox Studios by Mika Jussila, June
+2004.
+Produced by Sonata Arctica.
+Executive producer: Marcus Staiger.
+Artwork by Janne 'ToxicAngel' Pitkanen.
+Art "misdirection" by Tony Kakko.
+
+### "Unia" 2007, Power Metal
+
+01. In Black And White
+02. Paid In Full
+03. For The Sake Of Revenge
+04. It Won't Fade
+05. Under Your Tree
+06. Caleb
+07. The Vice
+08. My Dream's But A Drop Of Fuel For A Nightmare
+09. The Harvest
+10. The Worlds Forgotten, The Words Forbidden
+11. Fly With The Black Swan
+12. Good Enough Is Good Enough
+
+### "The Days Of Grays" 2009, Power Metal
+
+
+
+### "The Last Amazing Grays" 2009, Power Metal
+
+1. The Last Amazing Grays (Single Edit) 04:13 
+2. Flag In The Ground (Video Edit) 04:08 
+3. The Last Amazing Grays (Orchestral Version) 05:09 
+
+
+### "Live in Finland [DVD]" 2011, Power Metal
+
+Disc 1
+1. Intro (Everything Fades to Gray)
+2. Flag in the Grounds
+3. Last Amazing Grays
+4. Juliet
+5. Replica
+6. Blank File
+7. As If the World Wasn't Ending
+8. Paid in Full
+9. Victoria's Secret
+10. Instrumental Exhibition
+11. The Misery	
+12. Fullmoon
+13. In Black & White
+14. Mary-Lou
+15. Shy
+16. Letter to Dana
+17. Caleb
+18. Don't Say a Word
+19. Outro (Vodka/Everything Fades to Gray)
+ 
+Disc 2
+1. White Pearl, Black Oceans
+2. Draw Me
+3. In Black & White
+4. Don't Say a Word
+
+### "Stones Grow Her Name" 2012, Power Metal
+
+1. Only The Broken Hearts (Make You Beautiful)
+2. Shitload of Money
+3. Losing My Insanity
+4. Somewhere Close To You
+5. I Have A Right
+6. Alone In Heaven
+7. The Day
+8. Cinderblox
+9. Don’t Be Mean
+10. Wildfire II
+11. Wildfire III 
+bonus track on the limited edition: 
+12. Tonight I Dance Alone 
+
+### "I Have a Right (single)" 2012, Power Metal
+
+1. I Have a Right  04:48
+
+### "Alone in Heaven (single)" 2013, Power Metal
+
+1. Alone in Heaven  04:31      
+2. Somewhere Close to You (Acoustic Reprise)  03:28  
+
+
+### "The Wolves Die Young (single)" 2014, Power Metal
+
+1. The Wolves Die Young  04:13    
+2. The Wolves Die Young (Single Edit)  03:51  
+
+Tommy Portimo - Drums  
+Tony Kakko - Vocals  
+Henrik Klingenberg - Keyboards  
+Elias Viljanen - Guitars  
+Pasi Kauppinen - Bass  
+
+
+
+### "Cloud Factory (single)" 2014, Power Metal
+
+1. Cloud Factory 04:17
+2. Cloud Factory (Single Edit) 03:58
+
+
+### "Pariah's Child" 2014, Power Metal
+
+1. The Wolves Die Young 04:13
+2. Running Lights 04:26
+3. Take One Breath 04:19
+4. Cloud Factory 04:17
+5. Blood 05:54
+6. What Did You Do in the War, Dad? 05:13
+7. Half a Marathon Man 05:43
+8. X Marks the Spot 05:20
+9. Love 03:50
+10. Larger Than Life 09:57
+
+
+Japanese bonus track:
+ 11. No Pain
+ 
+A music video was shot for 'The Wolves Die Young'. 
+
+### "The Ninth Hour" 2016, Progressive
+
+1. Closer to an Animal 
+2. Life 
+3. Fairytale 
+4. We Are What We Are 
+5. Till Death's Done Us Apart 
+6. Among the Shooting Stars 
+7. Rise a Night 
+8. Fly, Navigate, Communicate 
+9. Candle Lawns 
+10. White Pearl, Black Oceans (Part II: By the Grace of the Ocean) 
+11. On the Faultline (Closure to an Animal) 
+
 
 ## Отношения с другими группами
 

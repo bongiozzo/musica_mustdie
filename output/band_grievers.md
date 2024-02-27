@@ -1,7 +1,20 @@
 # Grievers
 
-Дискография
-"Reflecting Evil" 2010, Melodic Death Metal
+
+
+## Дискография
+
+### "Reflecting Evil" 2010, Melodic Death Metal
+
+1. Universe	 
+2. An Untruthful Shape	 
+3. Concept Of Wisdom	 
+4. Born Again	 
+5. Reflecting Evil	 
+6. Something Beyond	 
+7. Living Paradox	 
+8. One God In The Space
+
 
 ## Отношения с другими группами
 

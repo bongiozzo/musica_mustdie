@@ -1,8 +1,52 @@
 # Furbowl
 
-Дискография
-"Those Shredded Dreams" 1993, Death Doom
-"The Autumn Years" 1994, Death Doom
+
+
+## Дискография
+
+### "Those Shredded Dreams" 1993, Death Doom
+
+1. Damage Done *
+2. Nothing Forever *
+3. Razorblades
+4. Desertion
+5. Sharkheaven
+6. Those Shredded Dreams +
+
+ Johan Axeisson - Vocals & Strings
+ Max Thornell - Drums & Keyboards
+
+Guest Lead Guitar On * By Michael Amott.
+Guest Satanic Violin Of Doom On + By Lach`n Jonsson.
+Produced By Michael Amott Of CARCASS.
+Recorded By Lach`n At Forest Studio,January 1992
+
+(p)&(c) 1993 STEP ONE Records
+
+### "The Autumn Years" 1994, Death Doom
+
+1. Bury The Hatchet
+2. Cold World
+3. Dead & Gore
+4. The Needle
+5. Is This Dignity?
+6. Weakend
+7. Baby Burn
+8. Stabbed
+9. Road Less Travelled
+10. Still Breathing
+
+ Johan Axelsson - Vocals/Bass
+ Nicklas Stenemo - Guitars/Piano
+ Max Thornell - Drums/Backing vocals
+ Additional musican: Lach'n Jonsson - demonic Violin of Satan's anger
+
+All music & lyrics by FURBOWL
+Produced by Lach'n & FURBOWL
+This record was recorded in The Forest in August/September ' 93
+
+(P)&(C) 1994 BLACK MARK Production
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,21 @@
 # Primate
 
-Дискография
-"Draw Back A Stump (EP)" 2011, Grindcore
+
+
+## Дискография
+
+### "Draw Back A Stump (EP)" 2011, Grindcore
+
+01. Draw Back A Stump
+02. Global Division
+03. Hellbound
+04. Drinking and Driving (Black Flag Cover)
+05. Wasted Youth
+06. Pride
+07. Reform?
+08. Draw Back A Stump [Demo]
+09. Global Division [Demo]
+
 
 ## Отношения с другими группами
 

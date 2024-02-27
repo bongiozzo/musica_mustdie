@@ -1,7 +1,23 @@
 # Der Bote
 
-Дискография
-"Kalt!" 2005, Industrial
+
+
+## Дискография
+
+### "Kalt!" 2005, Industrial
+
+Intro 
+Lebendig begraben
+Ohne Worte 
+Schuldig
+Und es regnet 
+Ich bin gekommen 
+Einsam 
+Kalt! 
+Todgeweiht 
+Vorbei 
+Outro
+
 
 ## Отношения с другими группами
 

@@ -1,11 +1,38 @@
 # For The Fallen Dreams
 
-Дискография
-"Changes" 2008, Metalcore
-"Relentless" 2009, Metalcore
-"Back Burner" 2011, Metalcore
-"Wasted Youth" 2012, Metalcore
-"Heavy Hearts" 2014, Metalcore
+
+
+## Дискография
+
+### "Changes" 2008, Metalcore
+
+
+
+### "Relentless" 2009, Metalcore
+
+
+
+### "Back Burner" 2011, Metalcore
+
+
+
+### "Wasted Youth" 2012, Metalcore
+
+
+
+### "Heavy Hearts" 2014, Metalcore
+
+01. Emerald Blue
+02. Choke
+03. Lights
+04. Dream Eater (feat. Garret Rapp)
+05. Bombay
+06. Mimic
+07. Endless
+08. Amnesia
+09. Unfinished Business
+10. Smelling Salt
+
 
 ## Отношения с другими группами
 

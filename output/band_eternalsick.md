@@ -1,10 +1,44 @@
 # Eternal Sick
 
-Дискография
-"Hobbit Monster Man" 1997, Thrash
-"BEYOND..." 1999, Thrash
-"ПЕРЕДОЗА" 2000, Thrash
-"Lost in Dreams" 2002, Thrash
+
+
+## Дискография
+
+### "Hobbit Monster Man" 1997, Thrash
+
+1. Hobbit Monster Man
+2. Dancing Kayot
+3. Leatal Way
+4. Alkogolichka
+5. K.V.D.
+6. Кобыла
+7. Black  Alladin
+8. Song of Embrion
+9. Юрич,Баня of Death
+10. Marongo Degetal
+11. Sevet
+
+### "BEYOND..." 1999, Thrash
+
+1. Beyond...
+2. This Death for You
+3. You Open Face
+4. Song of Love
+
+### "ПЕРЕДОЗА" 2000, Thrash
+
+1. Передоза
+2. Чипполино  is not Death
+3. Wellcome To Hell
+4. My Terror
+
+### "Lost in Dreams" 2002, Thrash
+
+1. Lost in Dreams
+2. Eastern Predictor
+3. Illusion
+4. Second World
+
 
 ## Отношения с другими группами
 

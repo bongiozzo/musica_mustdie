@@ -1,8 +1,26 @@
 # Mortuary
 
-Дискография
-"Blackened Images" 1992, Death Metal
-"Agony in Red" 2003, Death Metal
+
+
+## Дискография
+
+### "Blackened Images" 1992, Death Metal
+
+1. Abyss Angel
+2. Sikish Disease
+3. Sacrilegious
+4. Asphyxiation
+5. Reign Of Dead
+6. Blood Storm
+7. Rites Of Death
+8. Blackened Images
+
+(p)&(c) 1992 JL AMERICA Records
+
+### "Agony in Red" 2003, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,23 @@
 # Prodigal Earth
 
-Дискография
-"Zenith II Zero" 2009, Heavy Metal
+
+
+## Дискография
+
+### "Zenith II Zero" 2009, Heavy Metal
+
+1. Disaster 121	 
+2. Broken World	 
+3. Lonely gods	 
+4. Once Upon a Crime	 
+5. Crossroads	 
+6. God's Children	 
+7. The Young Ones	 
+8. Will to Live	 
+9. The End (Ashes of Desire Pt.1)	 
+10. Pro Defunctis	 
+11. Pro Defunctis (Bonus - Alternate Version)
+
 
 ## Отношения с другими группами
 

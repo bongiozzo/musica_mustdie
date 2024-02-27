@@ -1,9 +1,36 @@
 # Pleurisy
 
-Дискография
-"Experience the Sacrilege" 1999, Death Metal
-"Dazed & Deranged" 2003, Death Metal
-"Seizure" 2007, Death Metal
+
+
+## Дискография
+
+### "Experience the Sacrilege" 1999, Death Metal
+
+
+
+### "Dazed & Deranged" 2003, Death Metal
+
+1.	 My Tyranny	05:07	 
+2.	 Dazed & Deranged	04:37	 
+3.	 The Enemy Within	05:30	 
+4.	 No Tears For Mankind	04:31	 
+5.	 The Haunted Past	06:26	 
+6.	 Darkness Reigns Supreme	06:16	 
+7.	 Bridge Of Fire	07:18	 
+8.	 Terror-tory	05:50
+
+### "Seizure" 2007, Death Metal
+
+1.	 The Need For Speed	05:09	 
+2.	 Maze Of Deceit	03:18	 
+3.	 Fear Of God	06:23	 
+4.	 Whisper Misery	05:24	 
+5.	 War In Pride	04:54	 
+6.	 Crushed	04:26	 
+7.	 Bleed To Breathe	05:31	 
+8.	 The Downward Spiral	05:11	 
+9.	 Death's Design	04:33	
+
 
 ## Отношения с другими группами
 

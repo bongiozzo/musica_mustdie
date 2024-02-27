@@ -1,11 +1,72 @@
 # Wolfchant
 
-Дискография
-"The Fangs Of The Southern Death" 2004, Metal
-"The Herjan Triology" 2004, Metal
-"Bloody Tales of Disgraced Lands" 2005, Metal
-"Determined Damnation" 2009, Metal
-"Call of the Black Winds " 2011, Metal
+Epic Pagan Metal
+
+## Дискография
+
+### "The Fangs Of The Southern Death" 2004, Metal
+
+1. A Wolfs Tale   
+2. The Desire of a Wolf   
+3. Fenrir - Formed by Fire   
+4. By Crimson Moonlight   
+5. The Ballad of the Elder   
+6. A Life in the Angels Hall   
+7. In a Cold Winter Night   
+8. Leather Rebell ( Bonus Track)
+
+### "The Herjan Triology" 2004, Metal
+
+1. Part I - The Birth of the Berserks 21:27  
+2. Part II - Warcry 04:38  
+3. Part III - By Herjans Side 04:37
+
+### "Bloody Tales of Disgraced Lands" 2005, Metal
+
+1. A Tale From The Old Fields 02:09  
+2. Clan Of Cross 05:22 
+3. I Am War 04:28 
+4. Mourning Red 05:49
+5. Of Honour And Pride 04:49
+6. Ride To Ruhn 04:36 
+7. The Betrayal 04:37
+8. Sacrifice 05:41
+9. Blood For Blood 06:07 
+10. Clankiller 03:48
+11. Revenge 07:21 
+12. Visions Of Death 01:33 
+13. Praise To All 04:26
+
+### "Determined Damnation" 2009, Metal
+
+1. Determination Begins 01:14
+2. World In Ice 04:28
+3. Until the End 05:46 
+4. Determined Damnation 04:35
+5. In War 04:08 
+6. Fate of the Fighting Man 04:23
+7. Kein Engel hцrt dich flehen 03:41
+8. A Raven's Flight 04:02
+9. Never Too Drunk 04:00  
+10. Schwerter der Erde 04:55
+11. Auf Blut gebaut 05:33
+12. Under the Wolves Banner 04:45 
+
+### "Call of the Black Winds " 2011, Metal
+
+1. Black Winds Rising (Prelude) 02:06 
+2. Stormwolves 05:37  
+3. Eremit 04:23  
+4. Black Fire 04:20  
+5. Naturgewalt 05:33  
+6. Heathen Rise 06:09  
+7. Never Will Fall 04:08  
+8. Die Nacht Der Wцlfe 04:19  
+9. The Last Farewell 04:20  
+10. Der Stahl In Meinem Feinde 04:54  
+11. Call Of The Black Winds 08:57 
+
+
 
 ## Отношения с другими группами
 

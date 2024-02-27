@@ -1,11 +1,110 @@
 # Dimension Zero
 
-Дискография
-"Penetrations from the Lost World" 1997, Melodic Death Metal
-"Silent Night Fever" 2001, Thrash
-"This is Hell" 2003, Thrash
-"Penetrations From The Lost World (re-release)" 2003, Melodic Death Metal
-"He Who Shall Not Bleed" 2007, Thrash
+Melodic death "All stars project", featuring In Flames, Crystal Age and Luciferion members
+
+## Дискография
+
+### "Penetrations from the Lost World" 1997, Melodic Death Metal
+
+Through the Virgin Sky 
+Dead Silent Shriek 
+Forgotten... but not Forgiven 
+Everlasting Neverness 
+ 
+Line-Up
+G. Ljungstrцm - Guitar 
+J. Strцmbland - Guitar, Bass 
+J. Gцthberg - Vocals 
+H. Nilsson - Drums 
+F. Johansson - Lead Guitar 
+ 
+
+
+### "Silent Night Fever" 2001, Thrash
+
+01. Silent Night Fever 
+02. The Murder-Inn 
+03. Through The Virgin Sky
+04. Your Darkest Hour
+05. Not Even Dead Yet
+06. They Are Waiting To Take Us
+07. Until You Die
+08. End
+09. Slow Silence
+
+Music by Ljungstrцm, Strцmblad & Nilsson, lyrics by Gцthberg. Recorded at Phlat Planet, autumn 2001. Produced by Anders Fridйn and Dimension Zero. Engineered by Anders Fridйn. Co-engineered by Arnold Lindberg and Fredrik Reinedahl. Mastered by Gцran Finnberg at the mastering room. Artwork and design by Niklas Sundin/Cabinfevermedia 
+
+### "This is Hell" 2003, Thrash
+
+1. The Introduction To What This Is
+2. Dimension Zero
+3. Immaculate
+4. Blood On The Streets
+5. Into & Out Of Subsistence
+6. The Final Destination
+7. Amygdala
+8. Killing My Sleep
+9. This Light
+10. Di'I Minores 
+
+
+
+Recorded at Phlat planet, Feb. 2003.
+Produced by Anders Friden and Dimension Zero. 
+Engineered by Anders Friden. 
+Co-engineered by Fredrik Reinedahl. 
+Mastered by G&#246;ran Finnberg and Daniel Antonsson. 
+Art direction and design by Cabin Fever Media. 
+Band photos by Karim Hatoum. 
+All lyrics by J.Gothberg.
+
+### "Penetrations From The Lost World (re-release)" 2003, Melodic Death Metal
+
+01. Through the Virgin Sky
+02. Dead Silent Shriek
+03. Forgotten...But not Forgiven
+04. Everlasting Neverness
+05. Condmned (bonus track)
+06. Helter Skelter (Beatles cover, bonus track)
+07. Silent Night Fever (Japan live, bonus track)
+08. Not Even Dead (Japan live, bonus track)
+09. The Murder Inn (Japan live, bonus track)
+10. They are Waiting to Take Us (Japan live, bonus track)
+11. Through the Virgin Sky (Japan live, bonus track)
+
+
+A re-issue of the EP "Penetrations From The Lost World", 
+originally released as a 4 song mini CD in 1998, 
+finally available again with 7 bonus songs making it somewhat more substantial. 
+Featuring 2 previously unreleased studio songs and 5 songs recorded live on the successful Japan tour 2002. 
+All lyrics by J.Gothberg (except for Helter Skelter).
+
+### "He Who Shall Not Bleed" 2007, Thrash
+
+1. He Who Shall Not Bleed 02:25  
+2. Unto Others 02:32  
+3. A Paler Shade of White (A Darker Side of Black) 02:33  
+4. Hell Is Within 03:02  
+5. Red Dead Heat 01:57  
+6. I Can Hear the Dark 03:11  
+7. Going Deep 02:33  
+8. Is 03:12  
+9. Deny 03:30  
+10. The Was 03:10  
+11. Way to Shine 04:05 
+Bonus track for Japan:
+12. Stayin' Alive (02:01) 
+
+Recorded at IF Studios in December 2006.
+Mixed and produced by Dimension Zero and Arnold Lindberg.
+
+
+Jocke Gothberg - Vocals 
+Hans Nilsson - Drums 
+Jesper Stromblad - Guitars 
+Daniel Antonsson - Guitars 
+Niclas Andersson - Session Bass
+
 
 ## Отношения с другими группами
 

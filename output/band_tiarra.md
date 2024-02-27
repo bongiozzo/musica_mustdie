@@ -1,7 +1,22 @@
 # Tiarra
 
-Дискография
-"Post Scriptum" 2008, Gothic
+
+
+## Дискография
+
+### "Post Scriptum" 2008, Gothic
+
+1.	 Prologue	 
+2.	 Ielele
+3.	 In The Arms Of An Angel
+4.	 Tiarra
+5.	 Everything For Her
+6.	 Requiem (Pentru Un Erou)
+7.	 Post Scriptum
+8.	 Broken Echoes
+9.	 Epilogue
+10.	 Door Of Innocence (Bonus Track)
+
 
 ## Отношения с другими группами
 

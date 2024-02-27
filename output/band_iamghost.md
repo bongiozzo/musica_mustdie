@@ -1,8 +1,17 @@
 # I Am Ghost
 
-Дискография
-"We Are Always Searching" 2005, Emo
-"Lovers' Requiem" 2006, Emo
+
+
+## Дискография
+
+### "We Are Always Searching" 2005, Emo
+
+
+
+### "Lovers' Requiem" 2006, Emo
+
+
+
 
 ## Отношения с другими группами
 

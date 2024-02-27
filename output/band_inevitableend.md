@@ -1,8 +1,37 @@
 # Inevitable End
 
-Дискография
-"The Severed Inception" 2009, Deathcore
-"The Oculus" 2011, Deathcore
+
+
+## Дискография
+
+### "The Severed Inception" 2009, Deathcore
+
+1. The Severed Inception
+2. Dreamsight Synopsis
+3. Embracing the Origin
+4. Persevering Incitement
+5. Collapse in Reverse
+6. Distorted
+7. Firstborn of All Dead
+8. Apprentice Luminous Acquaintance
+9. The Art of Corruption
+
+### "The Oculus" 2011, Deathcore
+
+1. Tell Us, Parasites
+2. Escaping The Black Hole
+3. Zen
+4. Dogmaties Paralies
+5. The Supreme Treachery
+6. The Oculus
+7. While Surpassing Ether
+8. Vergelmer
+9. Chamber Of Apathy
+10. Memento
+11. Me Tem Psy Cho Sis
+12. Cadaver Inc.
+13. Of Sublime Dimensions
+
 
 ## Отношения с другими группами
 

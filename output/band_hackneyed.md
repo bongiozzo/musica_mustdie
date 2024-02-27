@@ -1,8 +1,51 @@
 # Hackneyed
 
-Дискография
-"Death Prevails" 2008, Death Metal
-"Burn After Reaping" 2009, Death Metal
+
+
+## Дискография
+
+### "Death Prevails" 2008, Death Metal
+
+1. Unseen Enemy 02:12  
+2. Gut Candy 04:11  
+3. Ravenous 02:44  
+4. Axe Splatter 03:36  
+5. Neon Sun 03:56  
+6. Worlds Collide 04:44  
+7. Symphony Of Death 03:44  
+8. Bone Grinder 04:13  
+9. Again 01:17 
+
+
+Philipp Mazal - vocals
+Felix Papp - guitar
+Devin Cox - guitar
+Alex - BГјttner - bass
+Tim Cox - drums
+
+
+### "Burn After Reaping" 2009, Death Metal
+
+01. Burn...
+02. Finger On The Trigger
+03. Deatholution
+04. Weed Flavoured Meat
+05. March Of The Worms
+06. Bloodshed
+07. Redying
+08. Kingdom Of Thoughts
+09. Home Meat Home
+10. Putrid
+11. Last Man On Earth
+12. Mental Mantication
+13. Guantanamo Bay Holiday
+12. ...After Reaping
+
+Enchanced Part
+Deatholution (video clip)
+Photo Gallery
+Wallpapers
+
 
 ## Отношения с другими группами
 

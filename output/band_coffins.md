@@ -1,9 +1,29 @@
 # Coffins
 
-Дискография
-"Mortuary In Darkness" 2005, Death Doom
-"The Other Side Of Blasphemy" 2006, Death Doom
-"Buried Death" 2008, Death Doom
+
+
+## Дискография
+
+### "Mortuary In Darkness" 2005, Death Doom
+
+
+
+### "The Other Side Of Blasphemy" 2006, Death Doom
+
+
+
+### "Buried Death" 2008, Death Doom
+
+1. Under The Stench 05:34 
+2. Buried Death 03:31 
+3. Cadaver Blood 06:21 
+4. Altars In Gore 05:09 
+5. Mortification To Ruin 07:11 
+6. Deadly Sinners 04:43 
+7. Purgatorial Madness 03:58 
+8. The Frozen Styx 07:42
+
+
 
 ## Отношения с другими группами
 

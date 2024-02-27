@@ -1,8 +1,30 @@
 # The Heretic
 
-Дискография
-"The Book Of Fate" 1998, Black Metal
-"Fallen From Heaven" 2000, Black Metal
+Melodic Black Metal with elements of Doom
+
+## Дискография
+
+### "The Book Of Fate" 1998, Black Metal
+
+1. Overture: Dream Master's Fall
+2. Daemons Ride The Wind
+3. Era
+4. Karmic Wheel (Or The Neverending Pass Of Time)
+
+
+### "Fallen From Heaven" 2000, Black Metal
+
+1. The I
+2. False idol
+3. Earth of Untruth
+4. Human nature
+5. Nocturnal Guest
+6. No answer
+7. Nightflight
+8. Frontal collision
+9. Global suicide century
+
+
 
 ## Отношения с другими группами
 

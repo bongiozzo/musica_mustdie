@@ -1,10 +1,361 @@
 # Disinter
 
-Дискография
-"Desecrated" 1996, Death Metal
-"Welcome to Oblivion" 2000, Death Metal
-"Demonic Portraiture" 2001, Death Metal
-"As We Burn" 2003, Death Metal
+
+
+## Дискография
+
+### "Desecrated" 1996, Death Metal
+
+Born To Die
+Die!
+This is my life
+Invasion of my privacy
+Do not make my decisions
+I oust myself from society
+Why vote for anyone
+When nothing gets done
+Wasting all our time
+Just for them
+To get fucked
+
+Middle Eastern peace talks
+Accomplishes nothing
+Wank Geneva summit
+Watch stocks plummet
+News fucking depressing
+Nothing but foreign violence
+One hand washes the other
+Let them fucking suffer
+
+Born to be played
+In this game of life
+Entering the world
+With intention of strife
+Policies, boundaries
+Rules and restrictions
+Keep us consumed
+In stress and misfortune
+
+Middle eastern peace talks
+Accomplishes nothing
+Wank Geneva summit
+News fucking depressing
+Nothing but foreign violence
+One hand washes the other
+Let them fucking suffer
+
+Storm Of The Witch
+I am night, fly with me
+
+Follow my dreams and we shall see
+In a pool of blood I stand
+Waiting for my sacrifice
+As they crucify me to the ground
+They will watch me slowly fucking die
+
+I am night, fly with me
+Follow my dreams and we shall see
+It is time to rise and make them pay
+My revenge is worth the wait
+If you're alive when I come back
+In the wake of evil you'll be hunted
+
+In a pool of blood I stand
+Waiting for my sacrifice
+As they crucify me to the ground
+They will watch me slowly fucking die
+
+I am night, fly with me
+Follow my dreams and we shall see
+
+Only To Suffer
+Putrid stench in the air
+Purified by rot
+Maggots infest
+Bodies decay
+It's a fucking nightmare
+
+The fight has begun
+Blood and guts are everywhere
+
+Slaughtered bodies piled high
+Left to die, only to suffer
+
+Suffering alone as soldiers march
+Preying on misery
+There's no god above me
+
+The fight has begun
+Blood and guts are everywhere
+
+Slaughtered bodies piled high
+Only to suffer
+
+Tortures Of The Damned
+Wings of death
+Carry them away
+The sky is black
+For the tortured prey
+
+Filled with sorrow
+Laugh in disgust
+Cry with hate
+Determine their fate
+
+Slugs of cold flesh fill the air
+Waiting to be worked on by the hands of doom
+
+As the embalmer cries at what he sees
+The eerie surroundings; no one leaves
+
+Trapped between life and death as your soul begs for mercy
+The demons of air and night find the light for your time
+
+Tonight
+Tortures of the Damned
+Die!
+Tortures of the Damned
+Die!
+
+Ashes to ashes, dust to dust
+Autopsy cremation, land of lust
+Burning flesh fills the air
+Showing no mercy, no lives to spare
+
+Escape Through Pain
+Mass seclusion corroding my thoughts
+Stolen memories reach out to be caught
+Brought into this world only to die
+You ask who's to blame? It is only I
+
+Escape through pain, waiting to die
+Standing alone, unaware of the pain
+Nerve wreckage, breakdown and distraught
+Led to believe that this is no dream
+
+Escape through pain, waiting to die
+Standing alone, unaware of the pain
+Living to serve... living to slave
+Waiting to die... Waiting to kill
+
+Now where to hide, nowhere to die
+Accumulations of borrowed lies
+
+Living to serve... Living to slave
+Waiting to die... Wanting to kill
+Living to serve... Living to slave
+Waiting to die... Wanting to kill
+Pain!
+
+The Place Of Bones
+I have seen the gates
+What lies you heard
+Living god that is dead
+Unknown to mankind
+
+The dark one's spawn taking what is theirs
+Humans cry to god, eyes bleed horrified
+Horrified eyes cry
+
+I have seen the dawn of dark prophecy
+Soon to complete
+As I see them rise
+
+The dark one's spawn taking what is theirs
+Humans cry to god, eyes bleed horrified
+Horrified eyes cry
+
+The end is near
+The end is here
+
+Desecrated Corpse
+Alone at night in her grave
+Sweetly rotting away
+Her cold carcass I crave
+The feel of her skull
+
+Waiting to be caressed
+I open the grave
+I cannot control myself
+My lust must be satisfied
+
+Desecrated corpse
+Unearthing the bodies from below
+No one can stop me now
+As my addiction slowly grows
+
+Lustful impulse
+To copulate with the dead
+Life and death are joined
+Warm and cold flesh
+
+Desecrated corpse
+Unearthing the bodies from below
+No one can stop me now
+As my addiction slowly grows
+
+Rotting corpses rising from their grave
+Ready to be torn away
+I decapitate their heads
+Demon lord takes your soul!
+
+Steel Death Bed
+Life has ended
+My journey begins
+Soul left to wander
+Dead body behind
+
+My rotting carcass
+So still and so cold
+Mortician awaits
+To lay me in my
+Steel.. death.. bed
+
+My deadtime story
+Of an autopsy
+Cuts and incisions
+Brutally told
+
+My rotting carcass
+So still and so cold
+Mortician awaits
+To lay me in my
+Steel.. death.. bed
+
+Silence
+Eternal everlasting
+Light
+Never seen again
+
+My rotting carcass
+So still and so cold
+Mortician awaits
+To lay me in my
+Steel.. death.. bed
+
+Death And Resurrection
+I am fighting
+To stay alive but my life has ended
+I see darkness through my eyes
+
+Silence surrounds me
+I fall on my knees
+Begging for forgiveness
+Why is death reaching out for me
+
+Escape through pain
+Only to suffer death!
+
+Follow the light
+It will choose my path, resurrection!
+
+I was fighting
+To stay alive but my life has ended
+I saw darkness through my eyes
+
+With The Blood
+Death by anger
+Seared with pain
+Soul who wanders
+What is thy name
+Intrigue thy master
+From far below
+With life anew
+Into thy soul!
+
+Bolted doors and windows barred
+Won't protect you in your bed
+Nothing will from the dead
+
+Empty eyes my body lies
+Black defined alive my mind
+
+Invoked... With the blood of the damned
+Revenge... For the demon dead
+Banished... To unholy places
+
+Death's arrived cast aside
+Oblong box from the outside locks
+Six feet under, eternal slumber
+Purgatory, end of story
+
+Bolted doors and windows barred
+Won't protect you in your bed
+Nothing will from the dead!
+
+### "Welcome to Oblivion" 2000, Death Metal
+
+01. The Sleeper Awakens [3:05]
+02. Welcome to Oblivion [3:18]
+03. Followed from Death [2:10]
+04. That Which Is Owned [4:20]
+05. Decendants of Darkness [3:34]
+06. Holy Parasites [4:09]
+07. The Battle Rages On [1:53]
+08. Twisted Soul [2:14]
+09. Field of Screams [7:57]
+10. Earthen Interment /
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Torn from the Grave [3:53]
+
+
+Zion - Vocals
+Preston - Guitar
+Mike - Guitar
+Bats - Bass
+Tom - Drums
+
+Recorded at Studio One, Racine Wisconsin August 1999.
+Engineered by Chris Djuricic.
+Produced and Mixed by Disinter and Chris Djuricic.
+Mastered at Jam Studios, Niles Illinois by Jay Walsh.
+Cover Art by Brian Coundiff.
+Graphic Design and Layout by Paul Kuhr.
+Band Photo by Chris Anda.
+Live Photos by Angel, Andy, and Jo.
+
+Bandcontact:
+DISINTER/ Mike Legros
+P.O. Box 34919
+Chicago, iL 60634-34919 USA
+E-mail: disinter666@yahoo.com
+
+&copy; 2000 MORBID Records
+
+### "Demonic Portraiture" 2001, Death Metal
+
+1. The First and Last in Battle / Strength & Honour
+2. An Eternity of Pain
+3. Where We Are Mortal
+4. The Hunter's Moon
+5. Woven With Pestilence and War
+6. What Once Was, Again Shall Be
+7. Cyclopean Ruins
+8. Upon the Winds of Vengeance
+9. Whirling Spectral Voices
+10. Demonic Portraiture Blinded by Fear
+	(Originally Recorded by At the Gates)
+
+
+Mastered at Jem Studios by Jay Walsh & Disinter
+Final Mastered by Peter Neuber
+at Mega Wimp Sound Berlin (Poserslaughter@bossmail.de)
+Recorded at Studio One, Racine, Wi.
+Engineered and Mixed by Chris Djuricic & Disinter
+Front cover, logo and all illustrations by Jaromir "Deather" Bezruc
+Lay-Out by David Najbrt and Jaromir "Deather" Bezruc (Indeedhell@seznam.cz)
+
+This album was mastered on 9/11/01.
+Our Thoughts Ride Upon the Winds of Vengeance
+To Those Who Fell in the Terrorist Attacks on the U.S.
+It Seems Out Society Will Always Laden With Pestilence and War
+We Shall Forever Fight With Strength and Honour!!
+
+&copy; 2001 MORBID Records
+
+### "As We Burn" 2003, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

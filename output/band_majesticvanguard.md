@@ -1,7 +1,36 @@
 # Majestic Vanguard
 
-Дискография
-"Beyond The Moon" 2005, Power Metal
+power-metal
+
+## Дискография
+
+### "Beyond The Moon" 2005, Power Metal
+
+1. One Journey (1.22); 
+2. The Great Eternity (4.44); 
+3. Emotions Of A Picture (6.43); 
+4. Beyond The Moon (5.35); 
+5. Tears In Neverland (5.29); 
+6. The Angels Dance (1.55); 
+7. Don't Want To Be An Actor (4.59); 
+8. Take Me Home (7.25); 
+9. Footprints (4.45); 
+10. Mystic Eye (8.01)
+
+All songs written by MAJESTIC VANGUARD
+Produced by Daniel Eskilsson
+Co-Produced by Johan Abelson
+Engineered and mixed by Johan Abelson and Daniel Eskilsson
+Recorded at Studio X, Falkoping, Mars
+
+Samuel Freden - Keyboards
+Andreas Andersson - Bass
+Peter Sigfridsson - Vocals
+Daniel Eskilsson - Drums, Percussion and Backing Vocals
+Johan Abelson - Guitars
+
+Keyed Fiddle by Emanuel Carlsson
+
 
 ## Отношения с другими группами
 

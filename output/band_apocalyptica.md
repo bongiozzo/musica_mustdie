@@ -1,15 +1,148 @@
 # Apocalyptica
 
-Дискография
-"Plays Metallica by Four Cellos" 1996, Instrumental
-"Inquisition Symphony" 1998, Instrumental
-"Cult" 2000, Instrumental
-"Seemann (single)" 2003, Hard Rock
-"Reflections" 2003, Instrumental
-"Apocalyptica" 2005, Hard Rock
-"Worlds Collide" 2007, Metal
-"7th Symphony" 2010, Metal
-"Shadowmaker (single)" 2014, Metal
+Plays Metal by Four Cellos
+
+## Дискография
+
+### "Plays Metallica by Four Cellos" 1996, Instrumental
+
+01. Enter Sandman [03:40] 
+02. Master of Puppets [07:16] 
+03. Harvester of Sorrow [06:14] 
+04. The Unforgiven [05:21] 
+05. Sad But True [04:48] 
+06. Creeping Death [05:05] 
+07. Wherever I May Roam [06:09] 
+08. Welcome Home (Sanitarium) 
+
+### "Inquisition Symphony" 1998, Instrumental
+
+01. Harmageddon [04:54] 
+02. From Out of Nowhere [03:09] 
+03. For Whom the Bell Tolls [03:08] 
+04. Nothing Else Matters [04:44] 
+05. Refuse / Resist [03:11] 
+06. M.B. [03:57] 
+07. Inquisition Symphony [04:56] 
+08. Fade to Black [04:59] 
+09. Dominator [03:29] 
+10. Toreador [04:19] 
+11. One [05:43] 
+
+### "Cult" 2000, Instrumental
+
+1. Path 
+2. Struggle 
+3. Romance 
+4. Pray! 
+5. In Memoriam 
+6. Hyperventilation 
+7. Beyond Time 
+8. Hope 
+9. Kaamos 
+10. Coma 
+11. Hall Of The Mountain King 
+12. Until It Sleeps 
+13. Fight Fire With Fire 
+
+
+### "Seemann (single)" 2003, Hard Rock
+
+
+
+### "Reflections" 2003, Instrumental
+
+01 Prologue (Apprehension)
+02 No Education
+03 Faraway
+04 Somewhere Around Nothing
+05 Drive
+06 Cohkka
+07 Conclusion
+08 Resurrection
+09 Heat
+10 Cortйge
+11 Pandemonium
+12 Toreador II
+13 Epilogue (Relief)
+
+### "Apocalyptica" 2005, Hard Rock
+
+1. Life Burns 
+2. Quutamo 
+3. Distraction 
+4. Bittersweet 
+5. Misconstruction 
+6. Fisheye 
+7. Farewell 
+8. Fatal Error 
+9. Betrayal/Forgiveness 
+10. Ruska 
+11. Deathzone
+
+### "Worlds Collide" 2007, Metal
+
+1. Worlds Collide 04:28  
+2. Grace (with Tomoyasu Hotei) 04:09  
+3. I'm Not Jesus (with Corey Taylor) 03:34  
+4. Ion 03:46  
+5. Helden (with Till Lindemann) 04:18  
+6. Stroke 04:32  
+7. Last Hope 04:47  
+8. I Don't Care (with Adam Gontier) 03:57 
+9. Burn 04:16  
+10. S.O.S.(Anything But Love) ( with Cristina Scabbia) 04:19  
+11. Peace 05:49 
+
+
+
+It will include special guests Corey Taylor (Slipknot/Stone Sour), Dave Lombardo
+(Slayer), Tomoyasu Hotei, Cristina Scabbia (Lacuna Coil), Till Lindemann
+(Rammstein) and Adam Gontier (Three Days Grace).
+
+Deluxe Edition Bonus DVD:
+01. I'm Not Jesus Video
+02. Making Of I'm Not Jesus
+03. Interview
+04. Photo Gallery
+
+Deluxe Edition bonus songs:
+12. Ural
+13. Dreamer 
+
+
+Eicca Toppinen - Cello 
+Perttu Kivilaakso - Cello
+Paavo Lutjonen - Cello
+Mikko Siren - Drums
+
+Sessions : 
+Antero Manninen - Cello 
+Dave Lombardo - Drums 
+Mats Leven - Vocals
+Cristina Scabbia - Vocals
+Sami Kuoppamaki - Drums
+
+### "7th Symphony" 2010, Metal
+
+1. At the Gates of Manala  07:04  
+2. End of Me  03:29   
+3. Not Strong Enough  03:36  
+4. 2010  04:32  
+5. Through Paris in a Sportscar  03:50  
+6. Beautiful  02:16   
+7. Broken Pieces  03:52  
+8. On the Rooftop with Quasimodo  04:57  
+9. Bring Them to Light  04:42   
+10. Sacra  04:20  
+11. Rage of Poseidon  08:39  
+12. The Shadow of Venus  04:10  
+
+
+### "Shadowmaker (single)" 2014, Metal
+
+1. Shadowmaker  07:34  
+
 
 ## Отношения с другими группами
 

@@ -1,12 +1,72 @@
 # Karg
 
-Дискография
-"Von den Winden der Sehnsucht" 2009, Black Metal
-"Von den Winden der Sehnsucht - 2" 2010, Black Metal
-"Scherben (EP)" 2011, Black Metal
-"Apathie" 2012, Black Metal
-"Malstrom" 2014, Black Metal
-"Weltenasche" 2016, Black Metal
+
+
+## Дискография
+
+### "Von den Winden der Sehnsucht" 2009, Black Metal
+
+1. Dammerung im Herbst (...und die Schatten empfingen mich als einen der ihren)  07:25    
+2. Wundextrakte (Dem Wort ein Schwert der Flamme die Narben)  13:02   
+3. Sterbend besungen (Schlaflos traumt die Morgenrote)  18:27    
+4. Durch Midwinters Tor (...und welk ward die Blute die ich umgarnte...)  05:32   
+5. Angst (Weil alles einst zerbrechen muss)  15:56   
+6. Zeitenwende (Vorbei am gestern und vorbei am Morgen)  14:40  
+7. Eines Finders Fruhlingslied (...und meine Trane erstarb auf deinen Lippen...)  03:42 
+
+
+### "Von den Winden der Sehnsucht - 2" 2010, Black Metal
+
+1. Ich bin gefallen (...und aus den Kerkern still es hallt...)  03:13    
+2. Wahntraum (Exekutionsromanze am Rande fremder Krypta)  16:10 
+3. Ruhe unsanft (Mein rastlos Lied dem Augenblick)  13:50  
+4. Sturm deiner Sommer (...und mit den Schwдnen teile ich mein' Durst...)  02:57  
+5. Grabestau (Des Morpheus Gesдnge in der Ewigkeit Ohren)  20:41    
+6. Wehmut (Eine Lethargie in knappen Lettern)  17:34 
+7. In die Ferne (...und so ziehe ich fort, doch wo sind meine Spuren...?!)  03:05   
+
+### "Scherben (EP)" 2011, Black Metal
+
+1. Scherben  07:03   
+2. Welkend  08:13  
+3. Heimatlos  06:00  
+4. Fernweh  10:29 
+
+
+### "Apathie" 2012, Black Metal
+
+1. Von gelebter Ekstase & wьster Raserei  10:18   
+2. (Im)Puls  08:52   
+3. K-E-T-A-M-I-N  03:37   
+4. Wie nur ein einziger Tag  04:57   
+5. 21.August  06:47   
+6. Koma  04:56   
+7. Briefe ans Gestern  08:12 
+
+
+### "Malstrom" 2014, Black Metal
+
+1. Neurasthenie  10:53   
+2. Malstrom  07:54   
+3. Katharsis  02:48    
+4. Dekarnation  06:12  
+5. Melancholia A.D.  03:50 
+6. Apnoe  13:21 
+
+
+
+### "Weltenasche" 2016, Black Metal
+
+1. Crevasse  10:47    
+2. Alles wird in Flammen stehen  09:42   
+3. Le couloir des ombres  11:15  
+4. Tor zu tausend Wusten  07:11  
+5. Spuren im Schnee  05:20   
+6. Solange das Herz schlagt..  07:04  
+7. ...und blicke doch mit Wut zuruck  10:44 
+8. MMXVI/Weltenasche  09:43  
+
+
 
 ## Отношения с другими группами
 

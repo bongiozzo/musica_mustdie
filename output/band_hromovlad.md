@@ -1,8 +1,36 @@
 # Hromovlad
 
-Дискография
-"Vladca Lesov, Skalnych Stien" 2005, Black Metal
-"Ohna Hlad, Vody Chlad" 2007, Black Metal
+
+
+## Дискография
+
+### "Vladca Lesov, Skalnych Stien" 2005, Black Metal
+
+01. V objatн stromov
+02. Vlбdca lesov, skalnэch stien
+03. Ћiќ stromom
+04. Triste Est Mori
+05. Tiene minulosti
+06. Balada skazy
+07. Hrom do toho!
+08. Hromovlad
+09. Bytosti lesnй
+10. Raw
+
+### "Ohna Hlad, Vody Chlad" 2007, Black Metal
+
+01. Lesom i иasom
+02. Vнќazstvo noci
+03. Brieћdenie
+04. Tvбre ћivlov zimnэch dnн
+05. Poslednэ z poslednэch
+06. Ohтa hlad, vody chlad
+07. Zabudnutэ sen
+08. Lithewa
+09. V ohni zhynie ѕudskэ tvor
+10. Nбrek stromov
+11. Bolo i nebolo
+
 
 ## Отношения с другими группами
 

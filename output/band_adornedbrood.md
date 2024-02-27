@@ -1,14 +1,158 @@
 # Adorned Brood
 
-Дискография
-"Hiltia" 1996, Black Metal
-"Wigand" 1998, Black Metal
-"Asgard" 2000, Black Metal
-"Erdenkraft" 2002, Black Metal
-"Heldentat" 2006, Folk
-"Noor" 2009, Black Metal
-"Hammerfeste" 2010, Black Metal
-"Kuningaz" 2012, Folk
+Folk-Black Metal
+
+## Дискография
+
+### "Hiltia" 1996, Black Metal
+
+1.  Intro
+2.  For Honour And Land
+3.  Hiltia
+4.  Unehrenhaftes Feindesblut
+5.  Furor Teutonicus
+6.  Donerhamer
+7.  Undisclosed Treasures Of The Mortal
+8.  Adora
+9.  Kissing The Heathen Amulet
+10.Die Rede Des Erhabeneri
+11.Outro
+
+Recorded and Mixed at Studio 109
+Engineered and Mixed by Frank "Ari" Aretz, Mark Kascbke and AB
+Cover artwork by Robert Danic
+Band residence: Germany
+
+Ingeborg Anna - Flute, Fairy Voices
+Teutobod Frost - Bass, Lead Vocals, Heathen Voices
+Oberon - Guitars, Abyssic Voices
+Pagan - Guitars, Backing Screams
+Ariovist - Wooden Fortress
+
+(P)c 1996 FOLTER Records // FR 005
+
+### "Wigand" 1998, Black Metal
+
+1. Voluspa 01:10  
+2. The Way Of The Sword 05:48
+3. Spiritual Weaponry 06:27
+4. Wapen 10:34
+5. The Oath 06:01
+6. Wigand 08:13 
+7. Zeichen Von Zauberkraft 10:31
+8. Jord Dvalin 09:56 
+
+
+Line-up:
+Ingeborg Anna - Flute, Fairy Voices
+Teutobod Frost - Bass, Lead Vocals, Heathen Voices
+Pagen - Guitar, Backing Screams
+Ariovist - Wooden Fortress
+Widar - Guitar
+
+Re-released as a double CD Hiltia/Wigand in 2008. 
+
+### "Asgard" 2000, Black Metal
+
+1. Intro 01:26  
+2. A God Ruled Time 04:51
+3. Asgard 06:18  
+4. Black Beasts 09:21 
+5. Twilight in Midgard 01:55  
+6. Pride Was My Desire 04:37  
+7. The Ambush 06:31  
+8. Magic Nights 04:37 
+9. Mighty Swords 04:39 
+10. Arrival 00:50  
+11. Die Wiederkehr 04:32 
+
+
+Line-up:
+Teutobod Frost - vocals, bass
+Widar - lead guitar, backing vocals
+Pagen - guitar
+Fjalar - drums, piano
+Ingeborg Anna - flute, vocals
+
+Recorded at Soundstation Studios. 
+
+### "Erdenkraft" 2002, Black Metal
+
+1. Welcome Our Friends 05:31
+2. Totenmarsch 02:39 
+3. Lebenslied 04:13
+4. Old Great Master 05:40 
+5. Erdenkraft 03:52
+6. Der Fluch 05:19
+7. Gцttersehnsucht 03:49
+8. Enchantment 01:36  
+9. Liar 04:36 
+10. Jenseits des Horizonts 02:35 
+
+
+### "Heldentat" 2006, Folk
+
+1. Es ist Zeit... 00:51  
+2. Tanze mit dem Tod 04:49
+3. in Vitro 03:31 
+4. Farewell 03:57 
+5. Sandmann 03:28 
+6. gezeichnet!!! 04:41
+7. der Albtraum 04:17
+8. Tierra del Fuego 02:54  
+9. 7 Tage 03:36  
+10. Felidae 04:11
+11. Heldentat 03:36 
+12. …mit neuer Kraft 09:32 
+
+
+Frost - Vocals, Bass
+Ingeborg Anna - Vocals and Flute
+Thorsten - Guitars
+Benjamin - Guitars 
+Tim - Drums
+
+### "Noor" 2009, Black Metal
+
+1. Intro 02:39  
+2. Storm 05:39 
+3. Am Grunde Des Meeres 03:53
+4. Sons of the Damned 05:24
+5. Noor 05:42
+6. Adorned Brood 04:24 
+7. Schiff Der Toten 05:26
+8. Trollmelody 03:55
+9. Under Yggdrasil 05:26  
+10. Drunken Sailor 02:30 
+
+### "Hammerfeste" 2010, Black Metal
+
+1. Intro 03:59  
+2. Hammerfeste 05:17  
+3. Pagan Knights 03:59  
+4. In Battle 03:53  
+5. Death In Disguise 04:18  
+6. Triumph 05:15  
+7. Hellea 05:56  
+8. Lead My Ship 04:25  
+9. Kaperfahrt 05:21  
+10. Bless Our Warriors 04:50 
+
+
+### "Kuningaz" 2012, Folk
+
+1. Einkehr 
+2. Kuningaz 
+3. Call Of The Wild 
+4. Victory Or Valhall 
+5. Hugin 
+6. Men 
+7. Kreuzeslast 
+8. Just A Fight 
+9. Munin 
+10. A War Poem 
+11. We Are Legion
+
 
 ## Отношения с другими группами
 

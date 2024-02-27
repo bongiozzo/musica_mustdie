@@ -1,18 +1,164 @@
 # Black Label Society
 
-Дискография
-"Sonic Brew" 1999, Heavy Metal
-"Stronger Than Death" 2000, Heavy Metal
-"Alcohol Fueled Brewtality Live!" 2001, Heavy Metal
-"1919 Eternal" 2002, Heavy Metal
-"The Blessed Hellride" 2003, Heavy Metal
-"Hangover Music, Vol. VI" 2004, Heavy Metal
-"Mafia" 2005, Heavy Metal
-"Kings of Damnation 98–04 (Compilation)" 2005, Heavy Metal
-"Shot To Hell" 2006, Heavy Metal
-"Order Of The Black" 2010, Heavy Metal
-"The Song Remains Not The Same" 2011, Heavy Metal
-"Catacombs Of The Black Vatican" 2014, Heavy Metal
+Zakk Wylde's project
+
+## Дискография
+
+### "Sonic Brew" 1999, Heavy Metal
+
+1. Bored To Tears 
+2. The Rose Petalled Garden 
+3. Hey You (Batch Of Lies) 
+4. Born To Lose 
+5. Peddlers Of Death 
+6. Mother Mary 
+7. Beneath The Tree 
+8. Low Down 
+9. T.A.Z. 
+10. Lost My Better Half 
+11. Black Pearl 
+12. World Of Trouble 
+13. Spoke In The Wheel 
+14. The Beginning... At Last 
+
+### "Stronger Than Death" 2000, Heavy Metal
+
+1. All For You 
+2. Phoney Smiles & Fake Hellos 
+3. 13 Years Of Grief 
+4. Rust 
+5. Superterrorizer 
+6. Counterfeit God 
+7. Ain't Life Grand 
+8. Just Killing Time 
+9. Stronger Than Death 
+10. Love Reign Down 
+
+### "Alcohol Fueled Brewtality Live!" 2001, Heavy Metal
+
+Disc 1 
+1. Lowdown 
+2. 13 Years Of Grief 
+3. Stronger Than Death 
+4. All For You 
+5. Superterrorizer 
+6. Phoney Smiles & Fake Hellos 
+7. Lost My Better Half 
+8. Bored To Tears 
+9. A.N.D.R.O.T.A.Z. 
+10. Born To Booze 
+11. World Of Trouble 
+12. No More Tears 
+13. The Beginning... At Last 
+
+
+Disc 2 
+1. Heart Of Gold 
+2. Snowblind 
+3. Like A Bird 
+4. Blood In The Wall 
+5. The Beginning... At Last 
+
+### "1919 Eternal" 2002, Heavy Metal
+
+1. Bleed For Me
+2. Lords Of Destruction
+3. Demise Of Sanity
+4. Life, Birth, Blood, Doom
+5. Bridge To Cross
+6. Battering Ram
+7. Speedball
+8. Graveyard Disciples
+9. Genocide Junkies
+10. Lost Heaven
+11. Refuse To Bow Down
+12. Mass Murder Machine
+13. Berserkers
+14. America The Beautiful
+
+### "The Blessed Hellride" 2003, Heavy Metal
+
+
+
+### "Hangover Music, Vol. VI" 2004, Heavy Metal
+
+
+
+### "Mafia" 2005, Heavy Metal
+
+1. Fire It Up
+2. What's In You
+3. Suicide Messiah 
+4. Forever Down
+5. In This River
+6. You Must Be Blind
+7. Death March
+8. Dr. Octavia
+9. Say What You Will
+10. Too Tough To Die
+11. Electric Hellfire
+12. Spread Your Wings
+13. Been A Long Time
+14. Dirt On The Grave
+
+### "Kings of Damnation 98–04 (Compilation)" 2005, Heavy Metal
+
+
+
+### "Shot To Hell" 2006, Heavy Metal
+
+01. Concrete Jungle
+02. Black Mass Reverends
+03. Blacked Out World
+04. The Last Goodbye
+05. Give Yourself to Me
+06. Nothing's the Same
+07. Hell Is High
+08. New Religion
+09. Sick of It All
+10. Faith Is Blind
+11. Blood Is Thicker Than Water
+12. Devil's Dime
+13. Lead Me to Your Door
+
+### "Order Of The Black" 2010, Heavy Metal
+
+01. Crazy Horse (04:04)
+02. Overlord (06:05)
+03. Parade of the Dead (03:36)
+04. Darkest Days (04:17)
+05. Black Sunday (03:23)
+06. Southern Dissolution (04:56)
+07. Time Waits for No One (03:36)
+08. Godspeed Hell Bound (04:43)
+09. War of Heaven (04:09)
+10. Shallow Grave (03:37)
+11. Chupacabra (00:49)
+12. Riders of the Damned (03:23)
+13. January (02:21)
+14. Junior's Eyes (Best Buy Exclusive Bonus Track) (Black Sabbath Cover) (05:24)
+15. Helpless (Best Buy Exclusive Bonus Track) (Neil Young Cover) (04:34)
+
+### "The Song Remains Not The Same" 2011, Heavy Metal
+
+
+
+### "Catacombs Of The Black Vatican" 2014, Heavy Metal
+
+01. Fields Of Unforgiveness
+02. My Dying Time
+03. Believe
+04. Angel Of Mercy
+05. Heart Of Darkness
+06. Beyond The Down
+07. Scars
+08. Damn The Flood
+09. I've Gone Away
+10. Empty Promises
+11. Shades Of Gray
+12. Dark Side of the Sun (Bonus Track)
+13. Nomad (Bonus Track)
+
 
 ## Отношения с другими группами
 

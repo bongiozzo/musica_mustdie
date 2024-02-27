@@ -1,8 +1,49 @@
 # Sundown
 
-Дискография
-"Design 19" 1997, Gothic
-"Glimmer" 1999, Gothic
+
+
+## Дискография
+
+### "Design 19" 1997, Gothic
+
+1.  Aluminum
+2.  19
+3.  Judgement Ground
+4.  Voyager
+5.  Synergy
+6.  As Time Burns
+7.  Don't Like To Live Today
+8.  Slither
+9.  Emotional
+10.112 / Ghost In Machine
+
+Produced, mixed & engineered by Silver, Hagel, Lodmalm.
+Recorded & Mixed at Studiomega.
+Mastered at Cutting Room by Peter Dahl.
+
+Mathias Lodmalm - Vocals
+Andreas Johansson - Guitars
+Johnny Hagel - Bass
+Christian Silver - Drums
+
+Programming & keyboards - Hagel.
+All guitars on this recording & additional keyboards - Lodmalm.
+
+(P)(C) 1997 CENTURY MEDIA Records
+
+### "Glimmer" 1999, Gothic
+
+1. Lifetime
+2. Divine
+3. Halo
+4. Prey
+5. Star
+6. Glimmer
+7. Stab
+8. [22]
+9. Wired
+10. Silencer
+
 
 ## Отношения с другими группами
 

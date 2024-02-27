@@ -1,16 +1,92 @@
 # De/Vision
 
-Дискография
-"Zehn" 1998, Synthpop
-"Monosex" 1998, Synthpop
-"Void" 1999, Synthpop
-"Two" 2001, Synthpop
-"Unplugged" 2001, Synthpop
-"Remixed" 2002, Synthpop
-"Devolution" 2003, Synthpop
-"6 Feet Underground" 2004, Synthpop
-"Unplugged" 2004, Synthpop
-"Pictures of the Past DVD" 2004, Synthpop
+синти-поп
+
+## Дискография
+
+### "Zehn" 1998, Synthpop
+
+
+
+### "Monosex" 1998, Synthpop
+
+
+
+### "Void" 1999, Synthpop
+
+
+
+### "Two" 2001, Synthpop
+
+
+
+### "Unplugged" 2001, Synthpop
+
+
+
+### "Remixed" 2002, Synthpop
+
+
+
+### "Devolution" 2003, Synthpop
+
+
+
+### "6 Feet Underground" 2004, Synthpop
+
+1. I'm Not Enough
+2. I'm Not Dreaming Of You
+3. Unputdownable
+4. Turn Me On
+5. 6 Feet Underground
+6. Aimee
+7. Right On Time
+8. Take Me Over
+9. You Are The One
+10. Beside You
+11. Klangmonaut
+12. Take Me To Heaven
+
+### "Unplugged" 2004, Synthpop
+
+
+
+### "Pictures of the Past DVD" 2004, Synthpop
+
+DVD "Video 95":
+01 Free From Cares
+02 Call My Name
+03 Dinner Without Grace
+04 Soul-Keeper
+05 Dress Me When I Bleed
+06 Moments We Shared
+07 Your Hands On My Skin
+08 Love Me Again
+09 Like A See Of Flames
+10 Blue Moon
+11 Get Over The Wall
+12 Try To Forget
+13 Endlose Trдume
+14 Hunters
+
+"Video 96":
+15 Intro
+16 Today's Life
+17 Get Over The Wall
+18 Keep Your Dreams Alive
+19 I Regret
+20 Sweet Life
+21 Bleed Me White
+22 Harvester
+23 Dinner Without Grace
+24Daydreamin'
+25 Take Me To The Time
+26 Blue Moon
+27 Your Hands On My Skin
+28 Moments We Share
+29 Try To Forget
+30 Outro
+
 
 ## Отношения с другими группами
 

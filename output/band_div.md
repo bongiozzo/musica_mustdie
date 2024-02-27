@@ -1,7 +1,34 @@
 # D.I.V.
 
-Дискография
-"Mein Kampf" 1993, Thrash
+Russian Thrash
+
+## Дискография
+
+### "Mein Kampf" 1993, Thrash
+
+1. Фредди
+2. London Beat
+3. Зона
+4. Decoration After Sin
+5. Mein Kampf
+6. Хеш
+7. Living Death
+8. Анархия
+9. Проклятый Мир
+10. Сукин Сын
+
+ Cергей Николаич Тайдаков - Vocals
+ Игорь Ермаков - Guitars, Back Vocals
+ Виктор Лемков - Guitars
+ Сергей Подрезенко - Drums
+ Виктор Колганов - Bass
+
+Produced By D.I.V.
+Recorded At SNC Studio
+Engineered & Mixed By Евгений Трушин
+
+(p)&(c) 1993 MOROZ Records
+
 
 ## Отношения с другими группами
 

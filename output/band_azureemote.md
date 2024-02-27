@@ -1,7 +1,23 @@
 # Azure Emote
 
-Дискография
-"Chronicles Of An Aging Mammal" 2007, Alternative
+
+
+## Дискография
+
+### "Chronicles Of An Aging Mammal" 2007, Alternative
+
+1. Clarity Thru Apathy 
+2. Complex 25 
+3. Joy On the Face of Extinction 
+4. Justified End 
+5. Cosmic Tear 
+6. Procreation Abnegation 
+7. Behind These Speechless Eyes 
+8. Submerged (In Hollow Realistics) 
+9. March of Chemical Pessimism 
+10. Misanthropic Disgust 
+11. Dementia (Reflections of the Elderly and Infirmed)
+
 
 ## Отношения с другими группами
 

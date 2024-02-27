@@ -1,14 +1,59 @@
 # AOR
 
-Дискография
-"Secret Obsession" 1984, Metal
-"L.A Rendez-Vous" 1992, Metal
-"L.A Concession" 2000, Metal
-"Next Stop: L.A" 2001, Metal
-"L.A Reflection" 2002, Metal
-"Dreaming Of L.A" 2003, Metal
-"Nothing But The Best" 2004, Metal
-"L.A Attraction" 2006, Metal
+AOR
+
+## Дискография
+
+### "Secret Obsession" 1984, Metal
+
+
+
+### "L.A Rendez-Vous" 1992, Metal
+
+
+
+### "L.A Concession" 2000, Metal
+
+
+
+### "Next Stop: L.A" 2001, Metal
+
+
+
+### "L.A Reflection" 2002, Metal
+
+
+
+### "Dreaming Of L.A" 2003, Metal
+
+
+
+### "Nothing But The Best" 2004, Metal
+
+
+
+### "L.A Attraction" 2006, Metal
+
+01. HOW COULD I EVER FORGIVE HER 
+02. DON'T EVER SAY GOODBYE 
+03. ONE MORE CHANCE 
+04. LIKE AN OPEN BOOK 
+05. THE HOUSE OF LOVE 
+06. TEARS IN THE RAIN 
+07. I WON'T GIVE UP ON YOU 
+08. THE SPARK OF MY SOUL 
+09. LAST CHANCE AT LOVE 
+10. L.A WINDS 
+11. GIVE A LITTLE LOVE 
+12. LOST IN YOUR EYES 
+
+FR&#201;D&#201;RIC SLAMA - Guitars, Keyboards 
+TOMMY DENANDER - Rhythm & Lead Guitars, Keyboards, Bass (RADIOACTIVE, PRISONER) 
+JOEY HEREDIA - Drums 
+
+Guest musicians: 
+STEVE LUKATHER, PHILIP BARDOWELL, RICK RISO, J.LYNN JOHNSTON, DANE DONOHUE, PETER FRIESTEDT, DAVID DIGGS and MICHAEL LANDAU
+
 
 ## Отношения с другими группами
 

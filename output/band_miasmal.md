@@ -1,7 +1,13 @@
 # Miasmal
 
-Дискография
-"Miasmal" 2011, Death Metal
+
+
+## Дискография
+
+### "Miasmal" 2011, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

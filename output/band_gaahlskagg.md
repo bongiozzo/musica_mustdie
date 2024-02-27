@@ -1,7 +1,13 @@
 # Gaahlskagg
 
-Дискография
-"Erotic Funeral" 2000, Black Metal
+сырой индустриальный black-metal
+
+## Дискография
+
+### "Erotic Funeral" 2000, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

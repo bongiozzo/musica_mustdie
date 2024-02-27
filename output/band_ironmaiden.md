@@ -1,59 +1,949 @@
 # Iron Maiden
 
-Дискография
-"The Soundhouse Tapes" 1979, Heavy Metal
-"Iron Maiden" 1980, Heavy Metal
-"Running Free" 1980, Heavy Metal
-"Sanctuary" 1980, Heavy Metal
-"Women In Uniform" 1980, Heavy Metal
-"Killers" 1981, Heavy Metal
-"Twilight Zone" 1981, Heavy Metal
-"Purgatory" 1981, Heavy Metal
-"Maiden Japan" 1981, Heavy Metal
-"The Number Of The Beast" 1982, Heavy Metal
-"Run To The Hills" 1982, Heavy Metal
-"The Number Of The Beast (single)" 1982, Heavy Metal
-"Piece Of Mind" 1983, Heavy Metal
-"Flight Of Icarus" 1983, Heavy Metal
-"The Trooper" 1983, Alternative
-"Powerslave" 1984, Heavy Metal
-"2 minutes To Midnight" 1984, Heavy Metal
-"Aces High" 1984, Heavy Metal
-"Live After Death" 1985, Heavy Metal
-"Running Free" 1985, Heavy Metal
-"Run To The Hills" 1985, Heavy Metal
-"Somewhere In Time" 1986, Heavy Metal
-"Wasted Years" 1986, Heavy Metal
-"Stranger In A Strange Land" 1986, Heavy Metal
-"Seventh Son Of The Seventh Son" 1988, Heavy Metal
-"Can I Play With Madness" 1988, Heavy Metal
-"The Evil That Men Do" 1988, Heavy Metal
-"The Clairvoyant" 1988, Heavy Metal
-"Infinite Dreams" 1989, Heavy Metal
-"No Prayer For The Dying" 1990, Heavy Metal
-"All In Your Mind" 1990, Heavy Metal
-"Fear Of The Dark" 1992, Heavy Metal
-"A Real LIVE One" 1993, Heavy Metal
-"A Real DEAD One" 1993, Heavy Metal
-"Live at Donington" 1993, Heavy Metal
-"The X Factor" 1995, Heavy Metal
-"Virus" 1996, Heavy Metal
-"Best of The Beast" 1996, Heavy Metal
-"Virtual XI" 1998, Heavy Metal
-"Ed Hunter" 1999, Heavy Metal
-"Brave New World" 2000, Heavy Metal
-"Rock In Rio" 2002, Heavy Metal
-"Dance Of Death" 2003, Heavy Metal
-"Rainmaker (single)" 2003, Heavy Metal
-"The Legacy Of The Beast (DVD)" 2004, Heavy Metal
-"Death On The Road (CD/DVD)" 2005, Heavy Metal
-"Essential Iron Maiden (compilation)" 2005, Heavy Metal
-"A Matter Of Life And Death" 2006, Heavy Metal
-"The Final Frontier" 2010, Heavy Metal
-"From Fear To Eternity - The Best Of 1990-2010 (Compilation)" 2011, Heavy Metal
-"En Vivo! (Live)" 2012, Heavy Metal
-"Maiden England '88 (Live)" 2013, Heavy Metal
-"The Book Of Souls" 2015, Heavy Metal
+Greatest British Heavy Metal
+
+## Дискография
+
+### "The Soundhouse Tapes" 1979, Heavy Metal
+
+
+
+### "Iron Maiden" 1980, Heavy Metal
+
+1.  Prowler
+2.  Remember Tomorrow
+3.  Running Free
+4.  Phantom Of The Opera
+5.  Transylvania
+6.  Strange World
+7.  Charlotte The Harlot
+8.  Iron Maiden
+9.  Sanctuary
+10. Burning Ambition
+11. Drifter (Live)
+12. I've Got The Fire (Live)
+
+Paul Di'Anno - Lead Vocals
+Steve Harris - Bass & Vocals
+Dennis Stratton - Guitar & Vocals
+Dave Murray - Guitar
+Clive Burr - Drums
+
+(P)c 1980
+
+### "Running Free" 1980, Heavy Metal
+
+1. Running Free
+2. Burning Ambition
+ 
+1 - By Harris / Di'Anno
+2 - By Harris 
+ 
+Paul Di'Anno - Vocals
+Dave Murray - Guitars
+Dennis Stratton - Guitars
+Steve Harris - Bass
+Clive Burr - Drums
+
+### "Sanctuary" 1980, Heavy Metal
+
+1. Sanctuary
+2. Drifter 
+3. I've Got The Fire 
+ 
+1 - By Harris / Murray / Di'Anno
+2 - By Harris - Recorded live at The Marquee Club, London, 3th April 1980
+3 - By Montrose - Recorded live at The Marquee Club, London, 3th April 1980
+ 
+Paul Di'Anno - Vocals
+Dave Murray - Guitars
+Dennis Stratton - Guitars
+Steve Harris - Bass
+Clive Burr - Drums
+
+### "Women In Uniform" 1980, Heavy Metal
+
+1. Women In Uniform
+2. Invasion
+3. Phantom Of The Opera
+ 
+1 - By Macainsh
+2 - By Harris 
+3 - By Harris - Recorded live at The Marquee Club, London, 4th July 1980
+ 
+Paul Di'Anno - Vocals
+Dave Murray - Guitars
+Dennis Stratton - Guitars
+Steve Harris - Bass
+Clive Burr - Drums
+
+### "Killers" 1981, Heavy Metal
+
+1.  The Ides Of March
+2.  Wrathchild
+3.  Murders In The Rue Morgue
+4.  Another Life
+5.  Genghis Khan
+6.  Innocents Exile
+7.  Killers
+8.  Prodigal Son
+9.  Purgatory
+10. Drifter
+
+Paul Di'Anno - Lead Vocals
+Steve Harris - Bass & Vocals
+Dave Murray - Guitar
+Clive Burr - Drums
+
+(P)c 1981
+
+### "Twilight Zone" 1981, Heavy Metal
+
+1. Twilight Zone
+2. Wrathchild
+ 
+1 - By Murray / Harris
+2 - By Harris 
+ 
+Paul Di'Anno - Vocals
+Dave Murray - Guitars
+Adrian Smith - Guitars
+Steve Harris - Bass
+Clive Burr - Drums
+
+### "Purgatory" 1981, Heavy Metal
+
+1. Purgatory
+2. Genghis Khan
+ 
+1 - By Harris
+2 - By Harris
+ 
+Paul Di'Anno - Vocals
+Dave Murray - Guitars
+Adrian Smith - Guitars
+Steve Harris - Bass
+Clive Burr - Drums
+
+### "Maiden Japan" 1981, Heavy Metal
+
+1. Running Free
+2. Remember Tomorrow
+3. Killers
+4. Innocent Exile
+ 
+1 - By Harris / Di'Anno
+2 - By Harris / Di'Anno
+3 - By Harris / Di'Anno
+4 - By Harris
+ 
+All tracks recorded live at The Kosei Nenkin Hall, Nagoya, 23th May 1981
+ 
+Paul Di'Anno - Vocals
+Dave Murray - Guitars
+Adrian Smith - Guitars
+Steve Harris - Bass
+Clive Burr - Drums
+
+### "The Number Of The Beast" 1982, Heavy Metal
+
+1. Invaders
+2. Children Of The Damned
+3. The Prisoner
+4. 22, Acacia Avenue
+5. The Number Of The Beast
+6. Run To The Hills
+7. Gangland
+8. Hallowed Be Thy Name
+
+Bruce Dickinson - Vocals
+Dave Murray - Guitar
+Adrian Smith - Guitars
+Steve Harris - Bass
+Nicko McBrian - Drums
+
+(P)&(C) 1982 EMI Records
+
+### "Run To The Hills" 1982, Heavy Metal
+
+1. Run To The Hills
+2. Total Eclipse
+ 
+1 - By Harris
+2 - By Harris / Murray / Burr
+ 
+Bruce Dickinson - Vocals
+Dave Murray - Guitars
+Adrian Smith - Guitars
+Steve Harris - Bass
+Clive Burr - Drums
+
+### "The Number Of The Beast (single)" 1982, Heavy Metal
+
+1. The Number Of The Beast
+2. Remember Tomorrow (live)
+ 
+1 - By Harris
+2 - By Harris / Di'Anno - Recorded live in Italy
+ 
+Bruce Dickinson - Vocals
+Dave Murray - Guitars
+Adrian Smith - Guitars
+Steve Harris - Bass
+Clive Burr - Drums
+
+### "Piece Of Mind" 1983, Heavy Metal
+
+1. Where Eagles Dare
+2. Revelations
+3. Flight Of Icarus
+4. Die With Your Boots On
+5. The Trooper
+6. Still Life
+7. Quest For Fire
+8. Sun And Steel
+9. To Tame A Land 
+
+Bruce Dickinson - Vocals
+Dave Murray - Guitar
+Adrian Smith - Guitars
+Steve Harris - Bass
+Nicko McBrian - Drums
+
+(P)&(C) 1983 EMI Records
+
+### "Flight Of Icarus" 1983, Heavy Metal
+
+1. Flight Of Icarus
+2. I've Got The Fire
+ 
+1 - By Smith / Dickinson
+2 - By R.Montrose
+ 
+Bruce Dickinson - Vocals
+Dave Murray - Guitars
+Adrian Smith - Guitars
+Steve Harris - Bass
+Nicko McBrain - Drums
+
+### "The Trooper" 1983, Alternative
+
+1. The Trooper
+2. Cross Eyed Mary
+ 
+1 - By Harris
+2 - By I.Anderson
+ 
+Bruce Dickinson - Vocals
+Dave Murray - Guitars
+Adrian Smith - Guitars
+Steve Harris - Bass
+Nicko McBrain - Drums
+
+### "Powerslave" 1984, Heavy Metal
+
+1. Aces High
+2. 2 Minutes To Midnight
+3. Losfer Words (Big 'Orra)
+4. Flash Of The Blade
+5. The Duellists
+6. Back In The Village
+7. Powerslave
+8. Rime Of The Ancient Mariner
+
+Produced, Engineered & Mixed  By Martin Birch.
+
+Bruce Dickinson - Vocals
+Dave Murray - Guitar
+Adrian Smith - Guitars
+Steve Harris - Bass
+Nicko McBrian - Drums
+
+(P)&(C) 1984 EMI Records
+
+### "2 minutes To Midnight" 1984, Heavy Metal
+
+1. 2 Minutes To Midnight
+2. Rainbow's Gold
+3. Mission From 'Arry
+ 
+1 - By Smith / Dickinson
+2 - By Slesser / Mountain
+3 - By Harris / McBrain
+ 
+Bruce Dickinson - Vocals
+Dave Murray - Guitars
+Adrian Smith - Guitars
+Steve Harris - Bass
+Nicko McBrain - Drums
+
+### "Aces High" 1984, Heavy Metal
+
+1. Aces High
+2. King Of Twilight
+3. The Number Of The Beast (live)
+ 
+1 - By Harris
+2 - By Nektar
+3 - By Harris 
+ 
+Bruce Dickinson - Vocals
+Dave Murray - Guitars
+Adrian Smith - Guitars
+Steve Harris - Bass
+Nicko McBrain - Drums
+
+### "Live After Death" 1985, Heavy Metal
+
+1.  Aces High (Harris) 4:07 
+2.  2 Minutes to Midnight (Smith/Dickinson) 5:52 
+3.  The Trooper (Harris) 3:59
+4.  Revelations (Dickinson) 5:59 
+5.  Flight of Icarus (Smith/Dickinson) 3:21 
+6.  Rime of the Ancient Mariner (Harris) 13:03
+7.  Powerslave (Dickinson) 7:06
+8.  The Number of the Beast (Harris) 4:48
+9.  Hallowed Be Thy Name (Harris) 7:17
+10. Iron Maiden (Harris) 4:11
+11. Run to the Hills (Harris) 3:52
+12. Running Free (Harris/Di'anno) 8:16
+13. Wrathchild (Harris) 2:54
+14. 22 Acacia Avenue (Harris/Smith) 6:04
+15. Children of the Damned (Harris) 4:19
+16. Die With Your Boots On (Smith/Dickinson/Harris) 4:51
+17. Phantom of the Opera (Harris) 7:01 
+
+ Bruce Dickinson - Vocals
+Dave Murray - Lead & Rhythm Guitars
+Adrian Smith - Lead & Rhythm Guitars
+Steve Harris - Bass                  
+Nicko McBrain - Drums                
+
+The album was recorded over 4 nights at Hammersmith Odeon, London, England
+(October 8, 9, 10 and 12 1984) and 4 nights at Long Beach Arena, Los Angeles,
+USA (March 14, 15, 16 and 17 1985).
+Sides 1, 2, and 3 were recorded at Long Beach. Side 4 was recorded at
+Hammersmith.
+
+Recording Credits
+ 
+Hammersmith:
+Recording Facility: Rolling Stones Mobile
+Assistant Engineers: Mick McKenna, Charlie McPherson,
+Long Beach:
+Recording Facility: Record Plant Mobile No. 3
+Engineer: Ricky Delena
+Second Engineer: Nick (Beemer) Basich
+Crew: Craig Engel, Robert Winder, Mark Eshelman
+Mixed at Record Plant Studio A, Los Angeles, July 8 - August 3, 1985.
+Second Engineer: Nick (Beemer) Basich
+All recordings on Ampex 456 tape
+Mastered at: Capital Records, Hollywood, CA.
+Mastering Engineer: Wally Traugott
+
+(P)c 1985
+
+### "Running Free" 1985, Heavy Metal
+
+1. Runing Free (live)
+2. Sanctuary (live)
+3. Murders In The Rue Morgue (live)
+ 
+1 - By Harris / Di'Anno - Recorded live at Long Beach Arena, USA, March 1985
+2 - By Harris / Murray / Di'Anno - Recorded live at Long Beach Arena, USA, March 1985
+3 - By Harris - Recorded live at the Hammersmith Odeon, London, October 1984
+ 
+Bruce Dickinson - Vocals
+Dave Murray - Guitars
+Adrian Smith - Guitars
+Steve Harris - Bass
+Nicko McBrain - Drums
+
+### "Run To The Hills" 1985, Heavy Metal
+
+1. Run To The Hills (live)
+2. Phantom Of The Opera (live)
+3. Losfer Words (Big 'Orra) (live)
+ 
+1 - By Harris - Recorded live at Long Beach Arena, USA, March 1985
+2 - By Harris - Recorded live at the Hammersmith Odeon, London, October 1984
+3 - By Harris - Recorded live at the Hammersmith Odeon, London, October 1984
+ 
+Bruce Dickinson - Vocals
+Dave Murray - Guitars
+Adrian Smith - Guitars
+Steve Harris - Bass
+Nicko McBrain - Drums
+
+### "Somewhere In Time" 1986, Heavy Metal
+
+1. Caught Somewhere In Time
+2. Wasted Years
+3. Sea Of Madness
+4. Heaven Can Wait
+5. The Loneliness Of The Long Distance Runner
+6. Stranger In A Strange Land
+7. Deja-Vu
+8. Alexander The Great
+
+Produced, Engineered & Mixed  By Martin Birch.
+
+Bruce Dickinson - Vocals
+Dave Murray - Guitar
+Adrian Smith - Guitars
+Steve Harris - Bass
+Nicko McBrian - Drums
+
+(P)&(C) 1986 EMI Records
+
+### "Wasted Years" 1986, Heavy Metal
+
+1. Wasted Years
+2. Reach Out
+3. Sheriff Of Huddersfield
+ 
+1 - By Smith
+2 - By Colwell
+3 - By Iron Maiden
+ 
+Bruce Dickinson - Vocals
+Dave Murray - Guitars
+Adrian Smith - Guitars
+Steve Harris - Bass
+Nicko McBrain - Drums
+
+### "Stranger In A Strange Land" 1986, Heavy Metal
+
+1. Stranger In A Strange Land
+2. That Girl
+3. Juanita
+ 
+1 - By Smith
+2 - By Barnett / Goldsworth / Jupp
+3 - By Barnacle / O'Neil
+ 
+Bruce Dickinson - Vocals
+Dave Murray - Guitars
+Adrian Smith - Guitars
+Steve Harris - Bass
+Nicko McBrain - Drums
+
+### "Seventh Son Of The Seventh Son" 1988, Heavy Metal
+
+1. Moonchild
+2. Infinite Dreams
+3. Can I Play With Madness
+4. The Evil That Man Do
+5. Seventh Son Of The Seventh Son
+6. The Prophecy
+7. The Clairvoyant
+8. Only The Good Die Young
+
+(P)&(C) 1988 EMI Records
+
+### "Can I Play With Madness" 1988, Heavy Metal
+
+1. Can I Play With Madness
+2. Black Bart Blues
+3. Massacre
+ 
+1 - By Smith / Dickinson / Harris
+2 - By Harris / Dickinson
+3 - Lynott / Gorham / Downey
+ 
+Bruce Dickinson - Vocals
+Dave Murray - Guitars
+Adrian Smith - Guitars
+Steve Harris - Bass
+Nicko McBrain - Drums
+
+### "The Evil That Men Do" 1988, Heavy Metal
+
+1. The Evil That Men Do
+2. Prowler '88
+3. Charlotte The Harlot '88
+ 
+1 - By Smith / Dickinson / Harris
+2 - By Harris
+3 - By Murray
+ 
+Bruce Dickinson - Vocals
+Dave Murray - Guitars
+Adrian Smith - Guitars
+Steve Harris - Bass
+Nicko McBrain - Drums
+
+### "The Clairvoyant" 1988, Heavy Metal
+
+1. The Clairvoyant (live)
+2. The Prisoner (live)
+3. Heaven Can Wait (live)
+ 
+1 - By Harris
+2 - By Smith / Harris
+3 - By Harris
+ 
+All tracks recorded live at Monsters of Rock, Donington Park, 20th August 1988
+ 
+Bruce Dickinson - Vocals
+Dave Murray - Guitars
+Adrian Smith - Guitars
+Steve Harris - Bass
+Nicko McBrain - Drums
+
+### "Infinite Dreams" 1989, Heavy Metal
+
+1. Infinite Dreams (live)
+2. Killers (live)
+3. Still Life (live)
+ 
+1 - By Harris
+2 - By Di Anno / Harris
+3 - By Murray / Harris
+ 
+All tracks recorded live at Birmingham NEC, 27th & 28th November 1988
+ 
+Bruce Dickinson - Vocals
+Dave Murray - Guitars
+Adrian Smith - Guitars
+Steve Harris - Bass
+Nicko McBrain - Drums
+
+### "No Prayer For The Dying" 1990, Heavy Metal
+
+1. Tailgunner
+2. Holy Smoke
+3. No Prayer For The Dying
+4. Public Enema Number One
+5. Fates Warning
+6. The Assassin
+7. Run Silent Run Deep
+8. Hooks In You
+9. Bring Your Daughter...To The Slaughter
+10.Mother Russia
+
+Produced, Engineered & Mixed By Martin Birch.
+
+(P)&(C) 1990 EMI Records
+
+### "All In Your Mind" 1990, Heavy Metal
+
+1. All In Your Mind
+2. Kill Me Ce Soir
+3. I'm A Power
+4. Communication Breakdown
+
+1 - By D.Bromham
+2 - By G.Kooymans / B.Hay / J.Fenton
+3 - By P.Rogers / A.Fraser
+4 - Bonham / Jones / Page / Plant (LED ZEPPELIN)
+
+Bruce Dickinson - Vocals
+Dave Murray - Guitars
+Janick Gers - Guitars
+Steve Harris - Bass
+Nicko McBrain - Drums
+
+Produced, Engineered & Mixed By Martin Birch.
+
+(P)(C) 1990
+
+### "Fear Of The Dark" 1992, Heavy Metal
+
+1. Be Quick Or Be Dead
+2. From Here To Eternity
+3. Afraid To Shoot Strangers
+4. Fear Is The Key
+5. Childhood's End
+6. Wasting Love
+7. The Fugitive
+8. Chains Of Misery
+9. The Apparition
+10.Judas Be My Guide
+11.Weekend Warrior
+12.Fear Of The Dark
+
+Engineered & Produced By Martin
+(The Juggler) Birch & Steve Harris.
+
+(P)&(C) 1992 EMI Records
+
+### "A Real LIVE One" 1993, Heavy Metal
+
+1. Be Quick Or Be Dead
+2. From Here To Eternity
+3. Can I Play With Madness
+4. Wasting Love
+5. Tailgunner
+6. The Evil That Man Do
+7. Afraid To Shoot Strangers
+8. Bring Your Daughter...To The Slaughter
+9. Heaven Can Wail
+10.The Clairvoyant
+11.Fear Of The Dark
+
+ Bruce Dickinson - Vocals
+ Dave Murray - Guitars
+ Janick Gers - Guitars
+ Steve Harris - Bass
+ Nicko McBrain - Drums
+
+(p)&(c) 1993 EMI Records
+
+### "A Real DEAD One" 1993, Heavy Metal
+
+1.  The Number Of The Beast
+2.  The Trooper
+3.  Prowler
+4.  Transylvania
+5.  Remember Tomorrow
+6.  Where Eagles Dare
+7.  Sanctuary
+8.  Running Free
+9.  Run To The Hills
+10.  Minutes To Midnight
+11.  Iron Maiden
+12.  Hallowed Be Thy Name
+
+Bruce Dickinson - Vocals
+Steve Harris - Bass
+Dave Murray - Guitars
+Janick Gers - Guitars
+Nicko McBrain - Drums
+
+(P)c 1993
+
+### "Live at Donington" 1993, Heavy Metal
+
+1. Be Quick Or Be Dead 
+2. The Number Of The Beast
+3. Wrathchild 
+4. From Here To Eternity 
+5. Can I Play With Madness
+6. Wasting Love
+7. Tailgunner  
+8. The Evil That Men Do 
+9. Afraid To Shoot Strangers
+10. Fear Of The Dark  
+11. Bring You Daughter... To The Slaughter   
+12. The Clairvoyant 
+13. Heaven Can Wait  
+14. Run To The Hills 
+15. 2 Minutes To Midnight 
+16. Iron Maiden  
+17. Hallowed Be Thy Name 
+18. The Trooper 
+19. Sanctuary  
+20. Running Free 
+
+
+### "The X Factor" 1995, Heavy Metal
+
+1. Sign Of The Cross
+2. Lord Of The Flies
+3. Man On The Edge
+4. Fortunes Of War
+5. Look For The Truth
+6. The Aftermath
+7. Judgement Of Heaven
+8. Blood On The World's Hand
+9. The Edge Of Darkness
+10. 2 A.M.
+11.The Unbeliever
+
+Blaze Bayley - Vocals
+Dave Murray - Guitars
+Janick Gers - Guitars
+Steve Harris - Bass
+Nicko McBrain - Drums
+
+(P)&(C) 1995
+
+### "Virus" 1996, Heavy Metal
+
+1. Virus
+2. Rhymes Of Ancient Mariner (Live)
+
+Blaze Bayley - Vocals
+Dave Murray - Guitars
+Janick Gers - Guitars
+Steve Harris - Bass
+Nicko McBrain - Drums
+
+Produced & Mixed By Steve Harris & Nigel Green.
+Engineered By Nigel Green.
+
+(P)(C) 1996 EMI Records
+
+### "Best of The Beast" 1996, Heavy Metal
+
+1. Virus  
+2. Sign Of The Cross 
+3. Afraid To Shoot Strangers (Live)  
+4. Man On The Edge  
+5. Be Quick Or Be Dead 
+6. Fear Of The Dark (Live) 
+7. Holy Smoke 
+8. Bring Your Daughter... To The Slaughter
+9. Seventh Son Of A Seventh Son 
+10. Can I Play With Madness 
+11. The Evil That Men Do 
+12. The Clairvoyant
+13. Heaven Can Wait 
+14. Wasted Years
+15. 2 Minutes To Midnight 
+16. Running Free (Live) 
+17. Rime Of The Ancient Mariner (Live) 
+18. Aces High  
+19. Where Eagles Dare 
+20. The Trooper 
+21. The Number Of The Beast 
+22. Revelations (Live) 
+23. The Prisoner 
+24. Run To The Hills 
+25. Hallowed Be Thy Name 
+26. Wrathchild 
+27. Killers 
+28. Remember Tomorrow 
+29. Phantom Of The Opera 
+30. Sanctuary 
+31. Prowler 
+32. Invasion 
+33. Strange World 
+34. Iron Maiden  
+
+
+### "Virtual XI" 1998, Heavy Metal
+
+1. Futureal  
+2. The Angel and the Gambler 
+3. Lightning Strikes Twice  
+4. The Clansman 
+5. When Two Worlds Collide  
+6. The Educated Fool  
+7. Don't Look To The Eyes Of A Stranger  
+8. Como Estais Amigos 
+
+
+### "Ed Hunter" 1999, Heavy Metal
+
+DISC 1:   
+ 1. Tail Gunner  
+ 2. The Trooper
+ 3. The Number Of The Beast
+ 4. Wrathchild
+ 5. Futureal
+ 6. Fear Of The Dark
+ 7. Be Quick Or Be Dead
+ 8. 2 Minutes To Midnight
+ 9. Man On The Edge
+10. Aces High
+11. The Evil That Men Do
+12. Wasted Years
+13. Powerslave
+14. Hallowed Be Thy Name
+15. Wrathchild '99 (hidden track)  
+ 
+DISC 2:   
+ 1. Run To The Hills  
+ 2. Clansmen, The  
+ 3. Phantom Of The Opera  
+ 4. Killers  
+ 5. Stranger In A Strange Land  
+ 
+DISC 3:   
+1. Ed Hunter (CD-Rom)  
+
+### "Brave New World" 2000, Heavy Metal
+
+The Wicker Man 
+Ghost Of The Navigator 
+Brave New World 
+Blood Brothers 
+The Mercenary 
+Dream Of Mirrors 
+The Fallen Angel 
+The Nomad 
+Out Of The Silent Planet 
+The Thin Line Between Love & Hate 
+
+### "Rock In Rio" 2002, Heavy Metal
+
+CD 1
+1. Intro
+2. The Wicker Man
+3. Ghost of the Navigator
+4. Brave New World
+5. Wrathchild
+6. 2 Minutes to Midnight
+7. Blood Brothers
+8. Sign of the Cross
+9. The Mercenary
+10. The Trooper
+
+CD 2
+1. Dream of Mirrors
+2. The Clansman
+3. The Evid That Men Do
+4. Fear of the Dark
+5. Iron Maiden
+6. The Number of the Beast
+7. Hallowed be Thy Name
+8. Sanctuary
+9. Run to the Hills
+
+### "Dance Of Death" 2003, Heavy Metal
+
+1. Wildest Dreams 
+2. Rainmaker 
+3. No More Lies 
+4. Montsegur 
+5. Dance Of Death 
+6. Gates Of Tomorrow 
+7. New Frontier 
+8. Paschendale 
+9. Face in The Sand 
+10. Age Of Innocence 
+11. Journeyman 
+
+
+- Steve Harris: bass
+- Dave Murray: guitars
+- Janick Gers: guitars
+- Adrian Smith: guitars
+- Bruce Dickinson: vocals
+- Nicko McBrain: drums
+
+### "Rainmaker (single)" 2003, Heavy Metal
+
+CD Single: 
+Rainmaker 
+Dance of Death (Orchestral Version) 
+More Tea Vicar 
+
+DVD Single: 
+Rainmaker Promotional video (5.1 & DTS) 
+The Wicker Man (Live) 
+Children of The Damned (Live) 
+Video stills slide show 
+
+7” coloured vinyl 
+Rainmaker / Dance of Death (Orchestral Version)
+
+### "The Legacy Of The Beast (DVD)" 2004, Heavy Metal
+
+
+
+### "Death On The Road (CD/DVD)" 2005, Heavy Metal
+
+Wildest Dreams 
+Wrathchild
+Can I Play With Madness 
+Trooper 
+Dance Of Death 
+Rainmaker
+Brave New World 
+Paschendale
+Lord Of The Flies 
+No More Lies
+Hallowed By Thy Name 
+Fear Of The Dark
+Iron Maiden
+Journeyman
+The Number Of The Beast
+Run To The Hills
+
+### "Essential Iron Maiden (compilation)" 2005, Heavy Metal
+
+Disc One
+
+1. Paschendale 
+2. Rainmaker 
+3. The Wicker Man 
+4. Brave New World 
+5. Futureal 
+6. The Clansman 
+7. Sign Of The Cross 
+8. Man On The Edge 
+9. Be Quick Or Be Dead 
+10. Fear Of The Dark (Live) 
+11. Holy Smoke 
+12. Bring Your Daughter... To The Slaughter 
+13. The Clairvoyant
+
+Disc Two 
+
+1. The Evil That Men Do 
+2. Wasted Years 
+3. Heaven Can Wait 
+4. 2 Minutes To Midnight 
+5. Aces High 
+6. Flight Of Icarus 
+7. The Trooper 
+8. The Number Of The Beast 
+9. Run To The Hills 
+10. Wrathchild 
+11. Killers 
+12. Phantom Of The Opera 
+13. Running Free (Live) 
+14. Iron Maiden (Live)
+
+### "A Matter Of Life And Death" 2006, Heavy Metal
+
+1. Different World (Smith/Harris) 4.17 
+2. These Colours Don't Run (Smith/Harris/Dickinson) 6.52 
+3. Brighter Than a Thousand Suns (Smith/Harris/Dickinson) 8.44 
+4. The Pilgrim (Gers/Harris) 5.07 
+5. The Longest Day (Smith/Harris/Dickinson) 7.48 
+6. Out Of the Shadows (Dickinson/Harris) 5.36 
+7. The Reincarnation of Benjamin Breeg (Murray/Harris) 7.21 
+8. For The Greater Good of God (Harris) 9.24 
+9. Lord Of Light (Smith/Harris/Dickinson) 7.23 
+10. The Legacy (Gers/Harris) 9.20
+
+### "The Final Frontier" 2010, Heavy Metal
+
+1. Satellite 15... The Final Frontier 08:40  
+2. El Dorado 06:49
+3. Mother of Mercy 05:20  
+4. Coming Home 05:52  
+5. The Alchemist 04:29  
+6. Isle of Avalon 09:06  
+7. Starblind 07:48  
+8. The Talisman 09:03  
+9. The Man Who Would Be King 08:28  
+10. When the Wild Wind Blows 10:59 
+
+
+### "From Fear To Eternity - The Best Of 1990-2010 (Compilation)" 2011, Heavy Metal
+
+
+
+### "En Vivo! (Live)" 2012, Heavy Metal
+
+
+
+### "Maiden England '88 (Live)" 2013, Heavy Metal
+
+
+
+### "The Book Of Souls" 2015, Heavy Metal
+
+Disc 1
+1. If Eternity Should Fail (Dickinson) 8:28
+2. Speed Of Light (Smith/ Dickinson) 5:01
+3. The Great Unknown (Smith/ Harris) 6:37
+4. The Red And The Black (Harris) 13:33
+5. When The River Runs Deep (Smith/ Harris) 5:52
+6. The Book Of Souls (Gers/ Harris) 10:27
+
+Disc 2
+7. Death Or Glory (Smith/ Dickinson) 5:13
+8. Shadows Of The Valley (Gers/ Harris) 7:32
+9. Tears Of A Clown (Smith/ Harris) 4:59
+10. The Man Of Sorrows (Murray/ Harris) 6:28
+11. Empire Of The Clouds (Dickinson) 18:01
+
 
 ## Отношения с другими группами
 

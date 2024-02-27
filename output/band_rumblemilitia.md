@@ -1,7 +1,28 @@
 # Rumble Militia
 
-Дискография
-"Fuck Off Commercial" 1987, Hardcore
+
+
+## Дискография
+
+### "Fuck Off Commercial" 1987, Hardcore
+
+1. Full Of Danger 3.17
+2. Dead End Kids 4.00
+3. Treason 5.22
+4. Band 'Till Death 4.30
+5. Nuclear Warfare The First 1.31
+6. Fright Of Stupidity 7.31
+7. Rumble Attack 5.20
+8. Nuclear Warfare The Last 0.31
+9. Full Of Comercial 4.04
+
+ Staffi - Guitars & Vocals
+ Hacki - Lead Guitar
+ Klomann - Bass & Chor
+ Olli - Drums & Chor
+
+(p)&(c) 1987 ATOM H Records
+
 
 ## Отношения с другими группами
 

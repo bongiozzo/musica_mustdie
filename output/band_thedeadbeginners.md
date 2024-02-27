@@ -1,7 +1,13 @@
 # The Dead Beginners
 
-Дискография
-"Sinner's Rebellion" 2000, Black Metal
+
+
+## Дискография
+
+### "Sinner's Rebellion" 2000, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,13 @@
 # Rikket
 
-Дискография
-"Kvist Nord og Ild" 2000, Ambient
+
+
+## Дискография
+
+### "Kvist Nord og Ild" 2000, Ambient
+
+
+
 
 ## Отношения с другими группами
 

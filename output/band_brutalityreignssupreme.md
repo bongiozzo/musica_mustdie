@@ -1,6 +1,9 @@
 # Brutality Reigns Supreme
 
-Дискография
+grindcore from Holland (Sexorcist members)
+
+## Дискография
+
 
 ## Отношения с другими группами
 

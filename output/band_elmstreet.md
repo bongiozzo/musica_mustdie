@@ -1,7 +1,21 @@
 # Elm Street
 
-Дискография
-"Barbed Wire Metal" 2011, Heavy Metal
+
+
+## Дискография
+
+### "Barbed Wire Metal" 2011, Heavy Metal
+
+1. Barbed Wire Metal 03:45
+2. The Devil's Servants 04:00
+3. Elm St's Children 05:41
+4. Heavy Metal Power 05:43
+5. King of Kings 04:50
+6. Leatherface 05:06
+7. Merciless Soldier 03:55
+8. Metal is the Way 06:15
+
+
 
 ## Отношения с другими группами
 

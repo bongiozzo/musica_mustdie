@@ -1,8 +1,36 @@
 # Autumn Rain Melancholy
 
-Дискография
-"Night Forever" 2002, Black Metal
-"Seven Steps To Infinity" 2003, Black Metal
+
+
+## Дискография
+
+### "Night Forever" 2002, Black Metal
+
+1. Night Forever
+2. The Love Song
+3. Illusion 
+4. My Brain Die
+5. Ghost
+
+### "Seven Steps To Infinity" 2003, Black Metal
+
+1. The Beginning
+2. The Tears Of Autumn
+3. Snow
+4. ...
+5. Before The Steps Of Infinity
+6. When Angels Die
+7.1 The Ending: Part One - My World
+7.2 The Ending: Part Two - It's Over
+
+
+Rain (drums), 
+Ghost (screaming), 
+Mist (keyboards), 
+Wind (guitars), 
+Paul (guitars, clean vocals), 
+Twilight (bass)
+
 
 ## Отношения с другими группами
 

@@ -1,6 +1,9 @@
 # Cadaverous Suppuration
 
-Дискография
+goregrind from Germany
+
+## Дискография
+
 
 ## Отношения с другими группами
 

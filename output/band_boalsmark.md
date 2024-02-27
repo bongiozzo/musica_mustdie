@@ -1,9 +1,96 @@
 # Boals, Mark
 
-Дискография
-"Ring Of Fire" 2000, Progressive
-"Oracle" 2001, Heavy Metal
-"Edge Of The World" 2002, Heavy Metal
+(ex-Yngwie Malmsteen vocal)
+
+## Дискография
+
+### "Ring Of Fire" 2000, Progressive
+
+1. Ring Of Fire
+2. Atlantis
+3. Bringer Of Pain
+4. Betrayer
+5. Keeper Of The Flame
+6. The Hunted
+7. The Quest
+8. Dreamer
+9. Death Row
+10. Alone
+11. Battle Of The Titans
+12. Nessun Dorma (bonus for Japan)
+
+Produced by Mark Boals
+Engineered and mixed by Barry Conley 
+ 
+   
+
+--------------------------------------------------------------------------------
+ 
+Line-up:
+
+Mark Boals - vocals, bass
+Tony MacAlpine - guitars, bass
+Vitalij Kuprij - keyboards
+Virgil Donati - drums
+
+
+
+### "Oracle" 2001, Heavy Metal
+
+1. Prelude For The Oracle
+2. Circle Of Time
+3. Shadow In The Dark
+4. Vengeance For Blood
+5. Samurai
+6. City Of The Dead
+7. Dreams Of Empire
+8. The Oracle
+9. Interlude
+10. Land Of Illusion
+11. Take Me Home
+12. Face The Fire
+13. (Secret Bonus For Japan)
+
+Mark Boals - Vocals
+Vitalij Kuprij - Keyboards
+George Bellas - Guitars
+Philip Bynoe - Bass 
+Virgil Donati - Drums
+
+Produced by Mark Boals and Vitalij Kuprij
+Engineered by Neil Citron and Erik Norlander
+Recorded at The Mothership, Think Tank Media, and The Greeen Room Studios
+Photos by Alex Solca and Edouard Ternes
+Art Work Design by Eric Philippe
+
+All lyrics and vocal melodies written by Mark Boals
+All musical arrangements written by Vitalij Kuprij
+
+ 
+
+
+
+
+### "Edge Of The World" 2002, Heavy Metal
+
+Fly 
+World On Fire 
+Lady Babylon 
+Taking Control 
+Up To You 
+Between Two Mirrors 
+Garden Of Pain 
+Through The Endless Night 
+Trouble In Paradise 
+Crossfire 
+The Criminal 
+Hold On (To Our Love)
+
+Erik Norlander - keyboards 
+Vinny Appice - drums 
+Virgil Donati, Tony MacAlpine, Chris Brooks, Neil Citron, Jeff Kollman - guitars 
+Mark Boals - bass&rythm guitars
+
 
 ## Отношения с другими группами
 

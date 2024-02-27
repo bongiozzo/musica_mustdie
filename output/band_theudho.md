@@ -1,10 +1,63 @@
 # Theudho
 
-Дискография
-"Treachery" 2004, Metal
-"The Volsunga Saga" 2006, Metal
-"Cult of Wuotan" 2008, Metal
-"When Ice Crowns the Earth" 2012, Metal
+
+
+## Дискография
+
+### "Treachery" 2004, Metal
+
+1. Awakening of the Emperor	04:41
+2. Tuisto	04:52
+3. Amandus	04:31
+4. Blуt	04:44
+5. The Architect	05:15
+6. Foreboding Dreams	05:26
+7. Rнgsюula	05:12
+8. The Sword of Cheru	04:34
+9. The Frozen Seas of Atland	04:08
+10. Treachery	05:02
+
+### "The Volsunga Saga" 2006, Metal
+
+1. Varg Н Veum	05:38
+2. Vцlsung	04:04
+3. The Blade of Урinn	04:18
+4. Sinfjцtli	04:28
+5. Sigurрr Sigmundarson	03:46
+6. Uttergдlden	03:17
+7. Gram	01:11
+8. The Journey to Lyngvi	03:47
+9. Fбfnirs Blut	04:04
+10. Helreiр Brynhildar	03:36
+11. Fall of the Niflungs	06:04	
+12. Guрrъn's Revenge	04:09
+
+### "Cult of Wuotan" 2008, Metal
+
+1. Zeitenwende	02:15
+2. Terror Cimbricus	05:53
+3. Thumelicus	04:42
+4. Harjaz	04:38
+5. Silence Reigned Over the Bog	04:48
+6. The Fall of Rome	05:51
+7. Veleda	05:01
+8. Ahnenkult	04:19
+9. Wuotanes Her	05:30
+10. Prophecies in Flames	04:11
+11. Ergriffenheit	01:56
+
+### "When Ice Crowns the Earth" 2012, Metal
+
+1.War into the World 05:42 
+2.When Ice Crowns the Earth 04:44 
+3.The Second Coming 04:48 
+4.Nidr ok Nordr 04:58 
+5.Heracleidae (Seevolkersturm) 05:22 
+6.Sacrifice the King 04:16 
+7.Lokabrenna 07:37 
+8.The Straw Death 04:35
+
+
 
 ## Отношения с другими группами
 

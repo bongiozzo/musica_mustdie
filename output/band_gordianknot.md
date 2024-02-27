@@ -1,8 +1,55 @@
 # Gordian Knot
 
-Дискография
-"Gordian Knot" 1999, Progressive
-"Emergent" 2003, Progressive
+(Prog supergroup featuring former CYNIC members Sean Malone (bass), Jason Gobel (guitar), and Sean Reinert)
+
+## Дискография
+
+### "Gordian Knot" 1999, Progressive
+
+1.   Galois (Malone) - 2:03 
+2.   Code/Anticode (Malone) - 6:47 
+3.   Reflections (Malone/Reinert/Snelwar) - 6:49 
+4.   Megrez (Gunn/Malone) - 3:57 
+5.   Singularity (Malone/Reinert/Snelwar) - 4:45 
+6.   Redemption's Way (Malone) - 6:59 
+7.   Komm Susser Tod, Komm Sel'ge (Bach) - 2:21 
+8.   Rivers Dancing (Malone/Reinert/Snelwar) - 7:36 
+9.   Srikara Tal (Malone) - 9:25 
+10.  Grace - 7:25 
+
+
+Trey Gunn  -  Guitar, Producer, Mixing 
+Bob Katz  -  Mastering 
+John Myung  -  Stick 
+Mark Prator  -  Mixing 
+Sean Malone  -  Bass, Keyboards, Stick, Producer 
+Tim Spear  -  Design 
+
+
+
+### "Emergent" 2003, Progressive
+
+1.Arsis
+2.Muttersprache
+3.A Shaman’s Whisper
+4.Fischer’s Gambit
+5.Grace (Live)
+6.Some Brighter Thing
+7.The Brooke The Ocean
+8.Singing Deep Mountain
+
+
+
+Sean Malone - bass/Stick (Cynic)
+Jason Gobel - guitars (Cynic)
+Bill Bruford - drums, percussion (King Crimson, Yes, Genesis)
+Steve Hackett - guitars (Genesis)
+Jim Matheos - guitars (Fates Warning, OSI)
+Sean Reinert - drums, percussion (Cynic)
+Paul Masvidal - guitar (Cynic)
+
+
+
 
 ## Отношения с другими группами
 

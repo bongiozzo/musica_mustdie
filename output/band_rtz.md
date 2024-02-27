@@ -1,7 +1,38 @@
 # RTZ
 
-Дискография
-"Lost And Found & Delp And Goudreau 2cd" 2004, Hard Rock
+
+
+## Дискография
+
+### "Lost And Found & Delp And Goudreau 2cd" 2004, Hard Rock
+
+Disc 1:
+
+01. One Step Away
+02. Fool For Love
+03. Such A Fool
+04. Rise Above It All
+05. Social Disease
+06. I'm On A Roll
+07. Rock The Night
+08. Winners And Lovers
+09. Power Of Love
+10. Show Me
+11. Better And Better
+
+Disc 2:
+
+01. What You Leave Behind
+02. Hands Of Time
+03. Let It Roll
+04. Out Of My Hands
+05. Keep On Runnin'
+06. Everyday
+07. I Need Your Love
+08. The Rhythm Won't Stop
+09. Reconciliation
+10. My One True Love
+
 
 ## Отношения с другими группами
 

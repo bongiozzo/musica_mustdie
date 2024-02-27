@@ -1,12 +1,95 @@
 # Occult
 
-Дискография
-"Prepare To Meet Thy Doom" 1994, Black Metal
-"The Enemy Within" 1996, Death Metal
-"Of Flesh And Blood" 1999, Thrash
-"Rage To Revenge" 2001, Thrash
-"Elegy For The Weak" 2004, Thrash
-"Malevolent Creation" 2005, Thrash
+Death-thrash-black metal
+
+## Дискография
+
+### "Prepare To Meet Thy Doom" 1994, Black Metal
+
+1. Leader In War
+2. The Black Are Rising
+3. After Triumph
+4. Prepare To Meet Thy Doom
+5. And Darkness Shall Begin
+6. Almighty Horde
+7. Whispering Tear
+8. The Nazarene Whore
+9. Elements In Black
+10.Quest For The Spirits
+
+Produced By Henk Maas.
+Engineered By H.M.
+
+Sephiroth - Vocals
+Erik - Drums
+Leon - Guitars
+Sjors - Bass
+
+(P)&(C) 1994 FOUNDATION 2000
+
+### "The Enemy Within" 1996, Death Metal
+
+1. Souls
+2. Inquisition Of The Holy
+3. Crossing The Boundaries (Of Life And Death)
+4. Selfbetrayel
+5. Twisted Words (My Darkest Emotions)
+6. Through Dark And Light I Dwell
+7. One Way Out
+8. Passive Relations
+9. Eyes Of Blood
+10.Until The Battle
+11.Delusions
+
+All Songs Written By OCCULT.
+Produced By Harris Johnes.
+Engineered By Harris Johnes & Martin Erfurt.
+Recorded & Mixed At MusicLab, Berlin.
+
+Sephiroth - Vocals
+Erik - Drums
+Leon - Guitars
+Sjors - Bass
+Rachel - Vocals
+Richard - Guitars
+
+(P)c 1996 FOUNDATION 2000
+
+### "Of Flesh And Blood" 1999, Thrash
+
+
+
+### "Rage To Revenge" 2001, Thrash
+
+
+
+### "Elegy For The Weak" 2004, Thrash
+
+1. Disturbing The Dead
+2. Nuclear Torment
+3. Nocturnal Predator
+4. Feel The Blade
+5. Expire
+6. Warbeast
+7. Obsessed By The Grave
+8. Slaughtering The Pigs
+9. Reapers Call
+10. Slut Of Sodom
+11. Until The Battle (digipack bonus track)
+
+### "Malevolent Creation" 2005, Thrash
+
+1. Legion of the Damned
+2. Death's Head March
+3. Werewolf Corpse
+4. Into the Eye of the Storm
+5. Malevolent Rapture
+6. Demonfist
+7. Taste of the Whip
+8. Bleed for Me
+9. Scourging the Crowned King
+10. Killing for Recreation (bonus)
+
 
 ## Отношения с другими группами
 

@@ -1,9 +1,21 @@
 # Chaos Theory
 
-Дискография
-"Scarred For Life" 1996, Heavy Metal
-"UnholyTrinity" 1999, Heavy Metal
-"Chaostheory" 2001, Heavy Metal
+Band from USA
+
+## Дискография
+
+### "Scarred For Life" 1996, Heavy Metal
+
+
+
+### "UnholyTrinity" 1999, Heavy Metal
+
+
+
+### "Chaostheory" 2001, Heavy Metal
+
+
+
 
 ## Отношения с другими группами
 

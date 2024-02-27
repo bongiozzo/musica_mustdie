@@ -1,7 +1,22 @@
 # Minhyriath
 
-Дискография
-"Gondolyn" 2008, Black Metal
+
+
+## Дискография
+
+### "Gondolyn" 2008, Black Metal
+
+1. Intro 01:51  
+2. Shylob 05:24  
+3. Lothloryen 04:07  
+4. Escaroth 05:29  
+5. Balrox 04:44  
+6. Ithylien 03:59  
+7. Valynor 03:36  
+8. Gondolyn 05:38  
+9. Turyn 05:13  
+10. Telperyon and Laurelyn 04:23 
+
 
 ## Отношения с другими группами
 

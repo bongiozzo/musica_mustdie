@@ -1,6 +1,9 @@
 # Despondency
 
-Дискография
+Blasting US-Death Metal
+
+## Дискография
+
 
 ## Отношения с другими группами
 

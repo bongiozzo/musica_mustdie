@@ -1,10 +1,71 @@
 # The Provenance
 
-Дискография
-"25th Hour; Bleeding" 2001, Black Metal
-"Still At Arms Length" 2003, Black Metal
-"How Would You Like To Be Spat At" 2005, Gothic
-"Red Flags" 2006, Alternative
+
+
+## Дискография
+
+### "25th Hour; Bleeding" 2001, Black Metal
+
+1. Deluded Into Delirium        
+2. For Whom I Bleed    
+3. Shut Down    
+4. Ignominy Embodied    
+5. 25th Hour; Bleeding    
+6. Frequencynic    
+7. All Of Reality    
+8. Listening    
+9. Painted A Life 
+
+
+
+Recorded and mixed at Boiler Room Studios between Thursday 17th of February and Sunday 16th of April in the year 2000. Engineered by Tobias Martinsson, Joel Lindell and Joakim Rosйn. Mixed by Tobias Martinsson. Mastered at Mastering Room by Gцran Finnberg.
+
+
+### "Still At Arms Length" 2003, Black Metal
+
+1. Climbing Ideals        
+2. Tearful, Bitter, Broken    
+3. Carousel Of Descent    
+4. The Ardbeg Experience    
+5. Mimic    
+6. At Random Choose    
+7. World Of Hurt    
+8. At Arms Length 
+
+
+
+Recorded at Oral Majority Recordings by Roberto Laghi, 
+assisted by Hans Asteberg, between June 7th and July 2nd 2002. 
+Mastered at Digitalfabriken by Kenneth Svensson.
+
+Emma Hellstrum - Vocals, Flute, Hammond and Keyboards 
+Tobias Martinsson - Vocals, Guitars     
+Joel Lindell - Drums, Lyrics 
+Joakim Rosen - Lead Guitar 
+Jonnie Alakopsa Tall - Bass  
+
+Additional musicians:
+   Roberto Laghi - Oriental guitars
+   Hans Asteberg - Kashmir strings
+
+
+### "How Would You Like To Be Spat At" 2005, Gothic
+
+1. WoH II Tsc
+2. Heroine
+3. Catching scarlet in the sun
+4. How would you like to be spat at
+5. Some gossip on stealing a spouse 
+6. Going down
+7. Considering the gawk, the drool, the bitch and the fool
+8. Kick you so hard
+9. About a whore, about a kill
+10. Speeding to get by
+
+### "Red Flags" 2006, Alternative
+
+
+
 
 ## Отношения с другими группами
 

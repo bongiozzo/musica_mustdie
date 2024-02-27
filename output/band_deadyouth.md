@@ -1,8 +1,40 @@
 # Dead Youth
 
-Дискография
-"Intense Brutality" 1991, Grindcore
-"The Writhing" 1993, Grindcore
+Extreme Sexual Grindcore
+
+## Дискография
+
+### "Intense Brutality" 1991, Grindcore
+
+
+
+### "The Writhing" 1993, Grindcore
+
+1. Kama Sutra
+2. Spit Forth
+3. Castration
+4. Whorrified
+5. Rectum Wreckage
+6. Force Intercourse
+7. Execrate
+8. Sacramental Molestation
+9. Beyond Recosnition
+10.Family Of Sodom
+11.Hideous Reproduction
+12.Submission
+
+ Dave Piekarz - Vocals
+ Rick Sprague - Guitar
+ John Karnes - Bass
+ Joe Schaeffer - Drums
+
+All Songs By DEAD YOUTH.
+Produced By Eric "Griffy" Greif-Solvbjerg.
+Recorded & Mixed By Griffy & Alan Pangelinan 
+At Digital Studios,Gurnee,Illinois / USA.
+
+(p)&(c) 1993 GRIND CORE Records
+
 
 ## Отношения с другими группами
 

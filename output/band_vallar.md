@@ -1,6 +1,9 @@
 # Vallar
 
-Дискография
+(Gothic-Doom project from Kazakhstan)
+
+## Дискография
+
 
 ## Отношения с другими группами
 

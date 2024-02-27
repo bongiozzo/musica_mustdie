@@ -1,11 +1,111 @@
 # Lullacry
 
-Дискография
-"SWEET DESIRE" 1999, Gothic
-"Be My God" 2001, Gothic
-"Crucify My Heart" 2003, Gothic
-"Vol. 4" 2005, Gothic
-"Where Angels Fear" 2012, Black Metal
+
+
+## Дискография
+
+### "SWEET DESIRE" 1999, Gothic
+
+01. For Evermore
+02. Alone 
+03. All For Nothing 
+04. Sweet Desire 
+05. My Dear Skinwalker 
+06. Downwards 
+07. Whisper In The Chaos 
+08. I Will Make My Paradise 
+09. The Chant 
+10. Feardance 
+11. The Autumn 
+
+Produced by Sami Vauhkonen and Tapio Pennanen. 
+Recorded 12.-22.7.1999 and mixed 2.-6.8.1999 at LALA Records, Helsinki, Finland. Mastered by Mika Jussila at Finnvox. 
+Mixed and Engineered by T. Pennanen. 
+
+HTR1319-2 Heart, Trust and Respect Records 1999. 
+Distributed in Finland by Spinefarm.
+ 
+
+
+### "Be My God" 2001, Gothic
+
+  1.   Embrace Me (Kivilahti/Vauhkonen) - 3:19 
+  2.   Be My God (Vauhkonen) - 3:40 
+  3.   Without the Dreamer (Kivilahti/Vauhkonen) - 3:37 
+  4.   Into Your Heart (Kivilahti/Vauhkonen) - 4:32 
+  5.   Trust (Kivilahti/Vauhkonen) - 3:07 
+  6.   Pain, Walk With Me (Heavy/Kivilahti/Vauhkonen) - 4:09 
+  7.   I Don't Mind (Kivilahti/Tanya/Vauhkonen) - 4:45 
+  8.   Damn You (Kivilahti/Vauhkonen) - 3:11 
+  9.   Bonfires of Time (Kivilahti/Vauhkonen) - 3:30 
+  10.   Thorn of the Rose (Kivilahti/Vauhkonen) - 3:56 
+  11.   Firequeen (Vauhkonen) - 5:12 
+
+
+Mikko Karmila  -  Producer, Engineer, Mastering, Mixing 
+Niklas Sundin  -  Illustrations 
+Jussi Jauhiainen  -  Producer, Engineer 
+Lullacry  -  Arranger 
+
+Produced by Sami Vauhkonen.
+Co-produced by Jussi Jauhiainen and Mikko Karmila. Recorded at Astia Studio A, Lappeenranta in Feb 2001 by J. Jauhiainen. Assistant Engineering by Sauli Impola.
+Vocals and additional guitars recorded at Finnvox C Studios, Helsinki in May 2001 by M. Karmila. Mixed at Finnvox C Studios in May 2001 by M. Karmila. Mastered at Finnvox Studios by M. Karmila.
+
+SPI127CD Spinefarm Records 2001.
+CM 77391-2 Century Media 2001. (Germany, Austria, Switzerland, BeNeLux)
+Century Media USA, Canada and Brazil 2001.
+XIII Bis Records 2001.(France)
+FO56CD Fono 2001. (Russia)
+King Records 2001.(Japan)
+
+Distribution; Spinefarm in Finland, SPV in Germany, MNW in Scandinavia , PHD in UK, NSM Records in Austria, Suburban in BeNeLux, Phonag in Switzerland.
+
+
+### "Crucify My Heart" 2003, Gothic
+
+01. Alright Tonight
+02. Crucify My Heart
+03. Don?t Touch The Flame
+04. Every Single Day
+05. Pitch Black Emotions
+06. Unchain
+07. Nothing To Lose
+08. Heart Of Darkness
+09. This Time
+10. Over Me
+11. Better Days
+
+Produced by Sami Vauhkonen и Mikko Karmila at Finnvox Studios 
+
+
+
+### "Vol. 4" 2005, Gothic
+
+01. Perfect Tonight 
+02. Love, Lust, Desire 
+03. Fire Within 
+04. Stranger In You 
+05. Heart Shaped Scars 
+06. Soul In Half 
+07. Killing Time 
+08. I Want You 
+09. King Of Pain 
+10. Zero
+
+### "Where Angels Fear" 2012, Black Metal
+
+01. Antidote To You
+02. Still An Angel
+03. Thousand Suns
+04. Feel My Revenge
+05. Bad Blood
+06. All Behind
+07. Gone Are The Days
+08. I Am
+09. Broken (Into Pieces)
+10. Where Angels Fear
+11. Stay
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,98 @@
 # Enter Chaos
 
-Дискография
-"Dreamworker" 2002, Death Metal
-"Aura Sense" 2004, Death Metal
+Polish death metal
+
+## Дискография
+
+### "Dreamworker" 2002, Death Metal
+
+1. Blood Desire
+2. Chaos
+3. ...And The Angels Sing
+4. Dreamworker
+5. Lethal Dreams
+6. Electronic Zombies
+7. Industrial Disease
+8. Synthetic Future
+9. Lost In Ecstasy
+10. Cold (At The Gates cover)
+
+
+The Chaotic Team: 
+"MARTEX" - throat
+"D." - diabolical high & low axe
+"OZZ" - riff & bass master
+"VERYMETAL" - strings' terror
+"BLASPHEMO" - schizofrenic riffs & low sound
+"L.RAMBO" - noise battery
+"RAIDEN" - fast synthetic tracker fx
+"B.LOW" - bass e.xtreme*
+* Does not appear on this recording due to school service 
+
+
+The Guest: 
+Seb-Off (of Dar Semai) - guitars & bass
+Noctivagus (of Luna Ad Noctum) - keys
+
+D. appears courtesy of AZARATH (http://azarath.black.art.pl)
+Ozz & B.Low appears courtesy of DEMISE (www.demise.metal.pl)
+Blasphemo appears courtesy of LUNA AD NOCTUM (www.lunaadnoctum.metal.pl)
+Verymetal appears courtesy of DAR SEMAI
+L.Rambo appears courtesy of DEMISE & DAMNATION
+Raiden appears courtesy of AURAL PLANET (http://www.auralplanet.com)
+
+
+Music by BLASPHEMO, VERYMETAL, OZZ, D. & RAIDEN, except track "Cold" written by A. & J. Bjorler/At The Gates (published by Earache Records 1995) Arrangements by ENTER CHAOS
+
+Lyrics by MARTA, except tracks "Industrial Disease", "Electronic Zombies", "...And The Angels Sing" written by MACIEK JAKUBSKI and track "Cold" written by Tompa Lindberg
+
+DREAMWORKER was created at Hertz Studio, May/June 2002
+Produced, mixed & mastered by SLAWEK & WOJTEK WIESLAWSCY
+Cover art & design by GRAAL (graal@webmedia.pl) 
+
+
+### "Aura Sense" 2004, Death Metal
+
+1. Fire In The Hole 
+2. Sell Out
+3. Out Of Fury
+4. No Name
+5. d.Evil Inside
+6. Baby The Handgun
+7. Aura Sense
+8. Crisis Connection
+9. Trouble Maker
+10. One Day Hero
+11. Hypocrisy
+12. Baby The Handgun (remix)
+
+
+
+MARTEX - throat
+L. RAMBO - drums 
+ZENEK - guitars
+OZZ - guitars
+SEB-OFF - guitars
+B. LOW - bass
+
+
+guest musicians: 
+Szymon Czech - guitars on "Crisis Connection" & "Out Of Fury"
+Henri Sorvali - electronics on "Baby The Handgun" 
+
+Szymon Czech appears courtesy of NYIA & THIRD DEGREE
+Henri Sorvali appears courtesy of MOONSORROW/FINNTROLL
+Ozz, L.Rambo & B.Low appear courtesy of DEMISE
+
+Music and arrangements by Enter Chaos
+Lyrics by Marta, except where indicated. Lyrics translated by JesuSatan 
+
+This Aura Sense was born at Studio X during October 2003
+Produced by Szymon Czech & Enter Chaos
+Engineered, Mixed & Mastered by Szymon Czech
+Released December 2003 Catalogue number MMP 233
+Cover artwork by Niklas Sundin
+
 
 ## Отношения с другими группами
 

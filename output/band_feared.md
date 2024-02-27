@@ -1,13 +1,37 @@
 # Feared
 
-Дискография
-"Feared" 2010, Thrash
-"Rejects" 2011, Thrash
-"Refeared" 2012, Thrash
-"Furor Incarnatus" 2013, Thrash
-"Vinter" 2013, Thrash
-"Synder" 2015, Thrash
-"Reborn" 2016, Thrash
+thrash death from Sweden
+
+## Дискография
+
+### "Feared" 2010, Thrash
+
+
+
+### "Rejects" 2011, Thrash
+
+
+
+### "Refeared" 2012, Thrash
+
+
+
+### "Furor Incarnatus" 2013, Thrash
+
+
+
+### "Vinter" 2013, Thrash
+
+
+
+### "Synder" 2015, Thrash
+
+
+
+### "Reborn" 2016, Thrash
+
+
+
 
 ## Отношения с другими группами
 

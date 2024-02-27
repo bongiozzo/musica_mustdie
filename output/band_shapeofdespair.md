@@ -1,12 +1,76 @@
 # Shape Of Despair
 
-Дискография
-"Shades of" 2000, Doom
-"Angels of Distress" 2001, Doom
-"Illusion's Play" 2004, Doom
-"Shape Of Despair" 2005, Doom
-"Written in My Scars (single)" 2010, Doom
-"Monotony Fields" 2015, Doom
+
+
+## Дискография
+
+### "Shades of" 2000, Doom
+
+1....in the Mist
+
+2.  Woundheir
+
+3.  Shadowed Dreams
+
+4.  Down into the Stream
+
+5.  Sylvan-night
+
+
+
+### "Angels of Distress" 2001, Doom
+
+1.  Fallen
+
+2.  Angels of Distress
+
+3.  Quiet these Paintings are
+
+4.  ...to live for my Death
+
+5.  Night's Dew
+
+
+
+### "Illusion's Play" 2004, Doom
+
+
+
+### "Shape Of Despair" 2005, Doom
+
+01. Sleeping Murder 
+02. Night's Dew 
+03. Sylvan-Night 
+04. Quiet These Paintings Are - Outro 
+05. Woundheir 
+06. To Adorn 
+07. In The Mist 
+
+Line-Up: 
+Pasi Koskinen – Vocals 
+Natalie Koskinen – Vocals 
+Tomi Ullgren - Guitars 
+Jarno Salomaa – Guitars & Synth 
+Samu Ruotsalainen – Drums 
+Sami Uusitalo – Bass
+
+### "Written in My Scars (single)" 2010, Doom
+
+1. Written in My Scars 06:01  
+2. The Bliss of Sudden Loss 05:47 
+
+
+### "Monotony Fields" 2015, Doom
+
+1. Reaching the Innermost  10:48    
+2. Monotony Fields  10:56    
+3. Descending Inner Night  10:20  
+4. The Distant Dream of Life  06:02  
+5. Withdrawn  10:13    
+6. In Longing  07:50   
+7. The Blank Journey  12:08    
+8. Written in My Scars  08:03 
+
 
 ## Отношения с другими группами
 

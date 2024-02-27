@@ -1,13 +1,132 @@
 # Cattle Decapitation
 
-Дискография
-"Human Jerky [EP]" 1999, Death Metal
-"Homovore [EP]" 2000, Deathcore
-"To Serve Man" 2002, Deathcore
-"Humanure" 2004, Deathcore
-"Karma. Bloody. Karma" 2006, Deathcore
-"The Harvest Floor" 2009, Deathcore
-"Monolith of Inhumanity" 2012, Deathcore
+Brutal deathcore with gory lyrics
+
+
+## Дискография
+
+### "Human Jerky [EP]" 1999, Death Metal
+
+01. Bludgeoned, Beaten And Barbecued
+02. Bodysnatcher (Viscera Intact-Ripe For Devourment)
+03. Bovine, Swine And Human-Rinds
+04. Cloned For Carrion
+05. Colon Blo
+06. Costipation Camp
+07. Flesh-Eating Disease (Flu-Like Symptoms Of E-Coli With Complete Digestive Shut-Down)
+08. Gestation Of Smegma
+09. Intro To Carnage
+10. Cream Of The Crop
+11. Mad Cow Conspiracy (Bloated Bovine-Home To Flies And Anthrax Spores)
+12. Mute Rain
+13. Parasitic Infestation (Extracted Pus Mistaken For Yogurt And Gargled)
+14. Roadkill Removal Technician
+15. Stench From The Dumpster
+16. Unclogged And Ready For Spewage
+17. Veal And The Cult Of Torture
+
+
+
+Travis Ryan     : vocals
+Josh Elmore     : guitars
+Troy Oftedal    : bass 
+Dave Astor      : drums 
+
+
+
+
+
+### "Homovore [EP]" 2000, Deathcore
+
+01. Mauled
+02. Joined At The Ass
+03. Open Human Head Experiments With Bleach, Lacquer And Epoxy
+04. Diarrhea Of The Mouth
+05. Headcheese
+06. Colostomy Jigsaw Puzzle
+07. Pepe's Trepes
+08. Release The Gimp
+09. The Roadside Dead (Detrunked Stumpification Through Roadrash)
+10. A Carnal Fecophelia Due To Prolonged Exposure To Methane
+11. Icepick Gag Reflex
+12. Bathing in a Grease Disposal Unit
+13. Molested/Digested
+14. Wine Of Sanguine
+15. Ride 'em Cowboy
+16. Human Jerky And The Active Cultures
+
+### "To Serve Man" 2002, Deathcore
+
+1. Testicular Manslaughter
+2. I Eat Your Skin
+3. Writhe In Putressence
+4. Land Of The Severed Meatus
+5. The Regurgitation Of Corpses
+6. Everyone Deserves To Die
+7. To Serve Man
+8. Colonic Villus Biopsy Performed On The Gastro-Intestinally Incapable
+9. Pedeadstrians
+10. Long-Pig Chef And The Hairless Goat
+11. Hypogastric Combustion By C-4 Plastique
+12. Deadmeal
+13. Chunk Blower
+
+### "Humanure" 2004, Deathcore
+
+1.	 Scatology Domine (Intro)
+2.	 Humanure
+3.	 Reduced to Paste
+4.	 Bukkake Tsunami
+5.	 Cloacula: the Anthropophagic Copromantik
+6.	 Chummified
+7.	 Applied Human Defragmentation
+8.	 The Earthling
+9.	 Polyps
+10.	 Lips & Assholes
+11.	 Men Before Swine (Outro)
+
+### "Karma. Bloody. Karma" 2006, Deathcore
+
+1.	 Intro	 
+2.	 Unintelligent Design
+3.	 Success Is...(Hanging By the Neck)
+4.	 One Thousand Times Decapitation
+5.	 The Carcass Derrick
+6.	 Total Gore?
+7.	 Bereavement
+8.	 Suspended in Coprolite
+9.	 Alone At the Landfill
+10.	 Karma. Bloody. Karma.
+11.	 The New Dawn
+12.	 Of Human Pride & Flatulence
+
+### "The Harvest Floor" 2009, Deathcore
+
+1.	 The Gardeners of Eden
+2.	 A Body Farm
+3.	 We Are Horrible People
+4.	 Tooth Enamel and Concrete
+5.	 The Ripe Beneath the Rind
+6.	 The Product Alive
+7.	 In Axetasy
+8.	 Into the Public Bath
+9.	 The Harvest Floor
+10.	 Regret & the Grave
+
+### "Monolith of Inhumanity" 2012, Deathcore
+
+01. The Carbon Stampede
+02. Dead Set On Suicide
+03. A Living, Breathing Piece Of Defecating Meat
+04. Forced Gender Reassignment
+05. Gristle Licker
+06. Projectile Ovulation
+07. Lifestalker
+08. Do Not Resuscitate
+09. Your Disposal
+10. The Monolith
+11. Kingdom Of Tyrants
+
 
 ## Отношения с другими группами
 

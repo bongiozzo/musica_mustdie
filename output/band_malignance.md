@@ -1,7 +1,13 @@
 # Malignance
 
-Дискография
-"Regina Umbrae Mortis" 2003, Black Metal
+Extreme, Aggressive Black Metal
+
+## Дискография
+
+### "Regina Umbrae Mortis" 2003, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,10 +1,55 @@
 # Stalwart
 
-Дискография
-"Jerk" 2000, Thrash
-"Dive To Nowhere" 2003, Thrash
-"Abyss Ahead" 2008, Thrash
-"Annihilation Begins" 2009, Thrash
+thrash-metal from Russia
+
+## Дискография
+
+### "Jerk" 2000, Thrash
+
+Dark Domain
+Gurge Of War
+Mantrap
+Still Alive
+Dictator
+Brainless Beholders
+
+### "Dive To Nowhere" 2003, Thrash
+
+1. Dive To Nowhere
+2. Machines Deadly Breath
+3. Envenomed With Reality
+4. Wall Of Solitude
+5. Captive Of Madness
+6. Betrayed
+7. Beyond The Horizon
+8. Tower Of Babel
+9. Egypt (by MERCYFUL FATE)
+
+### "Abyss Ahead" 2008, Thrash
+
+1. Void (Enter The Abyss)
+2. System Is Insane
+3. My Destination
+4. Souls Prison
+5. The Warning
+6. Divine Damnation
+7. Naked Core
+8. New Dimension
+9. Virus Of Aggression
+10. THe Heretic
+11. Exit (Reality Over)
+
+### "Annihilation Begins" 2009, Thrash
+
+1. Annihilation Begins 04:34  
+2. Inconsistent 04:48  
+3. Truth That Kills 03:21  
+4. Collective Mentality Detune 03:50  
+5. Riding the Edge of Catastrophe 03:43  
+6. Selfpointing to Self-Extermination 04:52  
+7. Casus Belli 04:57  
+8. Terminal Silence 07:20 
+
 
 ## Отношения с другими группами
 

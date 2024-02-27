@@ -1,21 +1,106 @@
 # Praying Mantis
 
-Дискография
-"Metal for Muthas" 1980, Hard Rock
-"Time Tells No Lies" 1981, Hard Rock
-"Throwing Shapes (Stratus Album)" 1984, Hard Rock
-"Live At Last (Praying Mantis with Paul Di Anno and Denis Stratton)" 1990, Hard Rock
-"Predator In Disguise" 1991, Hard Rock
-"A Cry For The New World" 1993, Hard Rock
-"Only The Children Cry" 1993, Hard Rock
-"To The Power Of Ten" 1995, Hard Rock
-"Captured Alive In Tokyo City" 1996, Hard Rock
-"Forever In Time" 1998, Hard Rock
-"Nowhere To Hide" 2000, Hard Rock
-"The Journey Goes On" 2003, Hard Rock
-"The Best Of Praying Mantis" 2004, Hard Rock
-"Sanctuary" 2009, Hard Rock
-"Legacy" 2015, Hard Rock
+
+
+## Дискография
+
+### "Metal for Muthas" 1980, Hard Rock
+
+
+
+### "Time Tells No Lies" 1981, Hard Rock
+
+
+
+### "Throwing Shapes (Stratus Album)" 1984, Hard Rock
+
+
+
+### "Live At Last (Praying Mantis with Paul Di Anno and Denis Stratton)" 1990, Hard Rock
+
+
+
+### "Predator In Disguise" 1991, Hard Rock
+
+
+
+### "A Cry For The New World" 1993, Hard Rock
+
+
+
+### "Only The Children Cry" 1993, Hard Rock
+
+
+
+### "To The Power Of Ten" 1995, Hard Rock
+
+
+
+### "Captured Alive In Tokyo City" 1996, Hard Rock
+
+
+
+### "Forever In Time" 1998, Hard Rock
+
+
+
+### "Nowhere To Hide" 2000, Hard Rock
+
+
+
+### "The Journey Goes On" 2003, Hard Rock
+
+1. Tonight 
+2. The Escape 
+3. The Journey Goes On
+4. Silent War 
+5. Beast Within 
+6. Hold On For Love 
+7. If Tomorrow Never Comes
+8. Lost World 
+9. The Voice 
+10. Naked  
+
+
+Tino Troy - guitars, keyboards, vocals
+Dennis Stratton - guitars, vocals
+Chris Troy - guitars, keyboards, vocals
+John Sloman - vocals 
+Doogie White - vocals 
+Martin Johnson - drums
+
+
+
+
+### "The Best Of Praying Mantis" 2004, Hard Rock
+
+
+
+### "Sanctuary" 2009, Hard Rock
+
+
+
+### "Legacy" 2015, Hard Rock
+
+1. Fight for your honour
+2. The one
+3. Believable
+4. Better man
+5. All I see
+6. Here to stay
+7. The Runner
+8. Eyes of a child
+9. Here to Stay
+10. Tokyo
+11. Fallen Angel
+12. Second time around
+
+John Cuijpers – Lead Vocals
+Tino Troy – Guitars & Vocals
+Chris Troy – Bass & Vocals
+Andy Burgess – Guitars + Vocals
+Hans in ‘t Zandt – Drums
+
 
 ## Отношения с другими группами
 

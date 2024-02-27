@@ -1,11 +1,110 @@
 # My Darkest Hate
 
-Дискография
-"Massive Brutality" 2001, Death Metal
-"To Whom It May Concern" 2002, Death Metal
-"At War" 2004, Death Metal
-"Combat Area" 2006, Death Metal
-"Anger Temple" 2016, Death Metal
+old school death metal
+
+## Дискография
+
+### "Massive Brutality" 2001, Death Metal
+
+Massive Brutality
+Torment
+Blood Pounding Black
+Bleed For Me
+Hellspawn
+Pain For Lust
+War
+Tank
+Now And Forever
+The End  
+
+
+Rene Pfeiffer - Vocals / Bass
+Jorg M. Knittel - Guitar
+Oliver Grosshans - Guitar
+Klaus Sperling - Drums 
+ 
+     
+All music and lyrics by Jorg M. Knittel except "War", "Torment" and "Hellspawn" by Rene Pfeiffer. Produced by My Darkest Hate and Achim Kohler.
+Engineered and mixed by Achim Kohler at House of Music, Winterbach, Germany, in September / October 2000.
+Cover Artwork by Jan Meininghaus. Layout by Jorg M. Knittel. 
+ 
+
+
+### "To Whom It May Concern" 2002, Death Metal
+
+1. As Ye Have Sewn
+2. Built By Gods
+3. Scars
+4. Eye For An Eye
+5. Army Of Vengeance
+6. God Am I
+7. Fallen From Grace
+8. Brain Dead *
+9. Not A Victim
+10. A Thought Of Anger
+11. My Darkest Hate
+
+All songs written by MY DARKEST HATE
+except * written by EXODUS
+Produced by MY DARKEST HATE and Achim Kohler
+Engineered by Ingmar Schelzel
+Recorded and mixed at House of Music, Winterbach, Germany
+
+Chris Simper - Vocals
+Oliver Schort - Bass
+Jorg M.Knittel - Guitars
+Oliver Grosshans - Guitars
+Klaus Sperling - Drums
+
+### "At War" 2004, Death Metal
+
+01. I Am At War
+02. Only The Weak
+03. Above The Sky
+04. Voyeur
+05. Mary
+06. Catch The Bullet
+07. Justice
+08. Assassin
+09. I Will Follow
+10. No Wonder
+
+### "Combat Area" 2006, Death Metal
+
+1. Enter Combat; 
+2. When Smoke Has Settled; 
+3. Bow Before Me; 
+4. Nothing Lasts Forever; 
+5. They Shall Fall; 
+6. Number Seven; 
+7. Fall Of Eden; 
+8. Under My Wing; 
+9. The Principle Of War; 
+10. Under One Flag
+
+All songs written by MY DARKEST HATE
+Produced by Andy Classen at Stage One Studio
+Produced by Jorg M. Knittel at Massive Sound Studio
+Engineered and mixed by Andy Classen
+
+Chris Simper - Vocals
+Oliver Schort - Bass
+Jorg M.Knittel - Guitars
+Oliver Grosshans - Guitars
+Klaus Sperling - Drums
+
+### "Anger Temple" 2016, Death Metal
+
+1. You Shall Know Them
+2. My Inner Demons
+3. Division Zero
+4. Rise And Rise Again
+5. Me, The Cure
+6. Our Sign Is Victory
+7. Awaken From Slumber
+8. Master Of Lies
+9. My Anger, My Temple
+
 
 ## Отношения с другими группами
 

@@ -1,22 +1,84 @@
 # Whitesnake
 
-Дискография
-"Snakebite" 1977, Hard Rock
-"Trouble" 1978, Hard Rock
-"Love Hunter" 1979, Hard Rock
-"Live at Hammersmith (Live)" 1980, Hard Rock
-"Live in the Heart of the City (Live)" 1980, Hard Rock
-"Come An' Get It" 1981, Hard Rock
-"Saints & Sinners" 1982, Hard Rock
-"Slide It In" 1984, Hard Rock
-"1987" 1987, Hard Rock
-"Whitesnake" 1987, Hard Rock
-"Slip of the Tongue" 1989, Hard Rock
-"Restless Heart" 1998, Hard Rock
-"Starkers in Tokyo (Live)" 1998, Hard Rock
-"Live... In The Shadow Of The Blues (2 CD)" 2006, Hard Rock
-"Good To Be Bad" 2008, Hard Rock
-"Forevermore" 2011, Hard Rock
+Greatest Hard Rock band from England
+
+## Дискография
+
+### "Snakebite" 1977, Hard Rock
+
+
+
+### "Trouble" 1978, Hard Rock
+
+
+
+### "Love Hunter" 1979, Hard Rock
+
+
+
+### "Live at Hammersmith (Live)" 1980, Hard Rock
+
+
+
+### "Live in the Heart of the City (Live)" 1980, Hard Rock
+
+
+
+### "Come An' Get It" 1981, Hard Rock
+
+
+
+### "Saints & Sinners" 1982, Hard Rock
+
+
+
+### "Slide It In" 1984, Hard Rock
+
+
+
+### "1987" 1987, Hard Rock
+
+
+
+### "Whitesnake" 1987, Hard Rock
+
+
+
+### "Slip of the Tongue" 1989, Hard Rock
+
+
+
+### "Restless Heart" 1998, Hard Rock
+
+
+
+### "Starkers in Tokyo (Live)" 1998, Hard Rock
+
+
+
+### "Live... In The Shadow Of The Blues (2 CD)" 2006, Hard Rock
+
+
+
+### "Good To Be Bad" 2008, Hard Rock
+
+
+
+### "Forevermore" 2011, Hard Rock
+
+1. Steal Your Heart Away 
+2. All Out Of Luck 
+3. Love Will Set You Free 
+4. Easier Said Than Done 
+5. I Need You (Shine The Light) 
+6. One Out These Days 
+7. Love & Treat Me Right 
+8. Dogs In The Street 
+9. Fare Thee Well 
+10. Whipping Boy Blues 
+11. My Evil Ways 
+12. Forevermore 
+
 
 ## Отношения с другими группами
 

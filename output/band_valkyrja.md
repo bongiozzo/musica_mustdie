@@ -1,7 +1,22 @@
 # Valkyrja
 
-Дискография
-"Contamination" 2010, Black Metal
+
+
+## Дискография
+
+### "Contamination" 2010, Black Metal
+
+1. Advent... 01:37  
+2. Oceans to Dust 05:21  
+3. Catharsis (Contaminate the Earth) 07:59  
+4. Solstice in Withdrawal 05:21  
+5. Laments of the Destroyed 05:49  
+6. Ambience of the Dead 06:02  
+7. The Womb of Disease 05:57  
+8. Welcoming Worms 03:43  
+9. A Cursed Seed in the World 07:53  
+10. The Adversarial Incentive Within All 07:06 
+
 
 ## Отношения с другими группами
 

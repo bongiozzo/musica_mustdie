@@ -1,10 +1,65 @@
 # System of a Down
 
-Дискография
-"System Of A Down" 1998, Nu Metal
-"Toxicity" 2001, Nu Metal
-"Steal This Album!" 2002, Nu Metal
-"Mesmerize/Hypnotize" 2005, Nu Metal
+Splendid american-armenian nu metal band
+
+## Дискография
+
+### "System Of A Down" 1998, Nu Metal
+
+1. Suite-Pee
+2. Know
+3. Sugar
+4. Suggestions
+5. Spiders
+6. Ddevil
+7. Soil
+8. War?
+8. Mind
+9. Peephole
+10. CUBErt
+11. Darts
+12. P.L.U.C.K. (Politically Lying, Unholy, Cowardly Killers)
+
+### "Toxicity" 2001, Nu Metal
+
+1. Prison Song
+2. Needles
+3. Deer Dance
+4. Jet Pilot
+5. X
+6. Chop Suey! (Suicide)
+7. Bounce
+8. Forest
+9. A.T.W.A.
+10. Science
+11. Shimmy
+12. Toxicity
+13. Psycho
+14. Aerials
+
+### "Steal This Album!" 2002, Nu Metal
+
+1. Chic 'n' Stu
+2. Innervision 
+3. Bubbles 
+4. Boom! 
+5. Nuguns 
+6. A.D.D. (American Dream Denial) 
+7. Mr. Jack 
+8. I-E-A-I-A-I-O 
+9. 36 
+10. Pictures 
+11. Highway Song 
+12. Fuck The System 
+13. Ego Brain 
+14. Thetawaves 
+15. Roulette 
+16. Streamline
+
+### "Mesmerize/Hypnotize" 2005, Nu Metal
+
+
+
 
 ## Отношения с другими группами
 

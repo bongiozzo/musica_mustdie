@@ -1,34 +1,451 @@
 # Grave Digger
 
-Дискография
-"Heavy Metal Breakdown" 1984, Heavy Metal
-"Witch Hunter" 1985, Heavy Metal
-"War Games" 1986, Heavy Metal
-"The Reaper" 1993, Heavy Metal
-"The Best Of The Eighties (Compilation)" 1993, Heavy Metal
-"Symphony Of Death (EP)" 1994, Heavy Metal
-"Heart Of Darkness" 1995, Heavy Metal
-"Tunes Of War" 1996, Heavy Metal
-"The Dark Of The Sun (EP)" 1997, Heavy Metal
-"Knights Of The Cross" 1998, Heavy Metal
-"Excalibur" 1999, Heavy Metal
-"The Grave Digger" 2001, Heavy Metal
-"Tunes Of Wacken (Live)" 2002, Heavy Metal
-"Rheingold" 2003, Heavy Metal
-"The Last Supper" 2005, Heavy Metal
-"25 To Live (2 CD)" 2005, Heavy Metal
-"Yesterday (EP)" 2006, Heavy Metal
-"Liberty Or Death" 2007, Heavy Metal
-"Pray (EP)" 2008, Heavy Metal
-"Ballads Of A Hangman" 2009, Heavy Metal
-"The Clans Will Rise Again" 2010, Heavy Metal
-"The Ballad Of Mary (EP)" 2011, Heavy Metal
-"The Clans Are Still Marching (DVD)" 2011, Heavy Metal
-"Home At Last (EP)" 2012, Heavy Metal
-"Clash Of The Gods" 2012, Heavy Metal
-"Return Of The Reaper" 2014, Heavy Metal
-"Exhumation - The Early Years" 2015, Heavy Metal
-"Healed by Metal" 2017, Heavy Metal
+Heavy Metal band from Germany
+
+## Дискография
+
+### "Heavy Metal Breakdown" 1984, Heavy Metal
+
+1. Headdanging Man
+2. Heavy Metal Breakdoww
+3. Back Frbm The War
+4. Yesterday
+5. We Wanna  Rock You
+6. Legion Of The Lost
+7. Tyrant
+8. 2000 Light Years From Home
+9. Heart Attack
+
+(p)&(c) 1984
+
+### "Witch Hunter" 1985, Heavy Metal
+
+1. Witch Hunter
+2. Night Drifter
+3. Get Reaay For Power
+4. Love Is A Game
+5. Get Away
+6. Fight For Freedom
+7. School's Out
+8. Friends Of Mine
+9. Here I Stand
+
+(p)&(c) 1985
+
+### "War Games" 1986, Heavy Metal
+
+1. Keep On Rocking
+2. Heaven Can Wait
+3. Fire In Your Eyes
+4. Let Your Heads Roll
+5. Love Is Breaking Me Heart
+6. Paradise
+7. (Enola Gay) Drop The Bomb
+8. Fallout
+9. Playin' Fools
+10.The End
+
+C.F.Brank,Albert Eckardt,
+Chris Boltendahl,Peter Masson
+
+(P)&(C) 1986
+
+### "The Reaper" 1993, Heavy Metal
+
+1. Tribute To Death
+2. The Reaper
+3. Ride On
+4. Shadows Of A Moonless Night
+5. Play Your Game (And Kill)
+6. Wedding Day
+7. Spy Of Mas`On
+8. Under My Flag
+9. Fight The Fight
+10.Legion Of The Lost (Part II)
+11.And The Devil Plays Piano
+12.Ruler Mr.H
+
+ Chris Boltendahl
+ Tomi Gottlich
+ Uwe Lulis
+ Jorg Michael
+
+All Music By Boltendahl/Lulis.
+All Lyrics By Boltendahl/Gцttlich/Lulis.
+Mixed,Engineered & Co-Produced By Piet Sielck.
+Recorded & Mixed At Karo Studios.
+
+(p)&(c) 1993 GUN Records
+
+### "The Best Of The Eighties (Compilation)" 1993, Heavy Metal
+
+
+
+### "Symphony Of Death (EP)" 1994, Heavy Metal
+
+1. Intro
+2. Symphony Of Death
+3. Back To The Roots
+4. House Of Horror
+5. Shout It Out
+6. World Of Fools
+7. Wild And Dangerous
+
+(P)&(C)  1994
+
+### "Heart Of Darkness" 1995, Heavy Metal
+
+1. Tears Of Madness
+2. Shadow Maker
+3. The Grave Dancer
+4. Demon's Day
+5. Warchild
+6. Heart Of Darkness
+7. Hate
+8. Circle Of Witches
+9. Black Death
+
+ Chris Boltendahl - Vocals
+ Tomi Gottlich - Bass
+ Uwe Lulis - Guitars
+ Frank Ullrich - Drums
+
+All Songs Written By Chris Boltendahl & GRAVE DIGGER
+Produced By Chris Boltendahl & Uwe Lulis
+Mixed & Engineered By Suno Fabitch
+Recorded & Mixed At Principal Studios, Senden, Munster
+
+(p)&(c) 1995 GUN Records
+
+### "Tunes Of War" 1996, Heavy Metal
+
+1. The Brave (Intro)
+2. Scotland United
+3. The Dark Of The Sun
+4. William Wallace (Braveheart)
+5. The Bruce
+6. The Battle Of Flodden
+7. The Ballad Of Mary (Queen Of Scots)
+8. The Truth
+9. Cry For Freedom (James The VI)
+10.Killing Time
+[11].Rebellion (The Clans Are Marching)
+[12].Culloden Muir
+[13].The Fall Of The Brave (Outro)
+
+[11]-[13] - На стороне B
+
+ Chris Boltendahl - Vocals
+ Tomi Gottlich - Bass
+ Uwe Lulis - Guitars
+ Stefan Arnold - Drums
+
+All Songs Written By GRAVE DIGGER.
+Produced By Chris Boltendahl & Uwe Lulis.
+Mixed & Engineered By Suno Fabitch
+Recorded & Mixed At Principal Studios, Senden, Munster
+
+(p)&(c) 1996 GUN Records
+
+### "The Dark Of The Sun (EP)" 1997, Heavy Metal
+
+1. Rebellion (live in Athens) / The Dark Of The Sun 05:12
+2. Heavy Metal Breakdown 04:31
+3. Witch Hunter 03:14
+4. Headbanging Man 03:53
+
+### "Knights Of The Cross" 1998, Heavy Metal
+
+
+
+### "Excalibur" 1999, Heavy Metal
+
+
+
+### "The Grave Digger" 2001, Heavy Metal
+
+Son of Evil 
+The Grave Digger 
+Raven 
+Scythe of Time 
+Spirits of the Dead 
+The House 
+King Pest 
+Sacred Fire 
+Haunted Palace 
+Funeral Procession 
+Silence 
+Bonus Tracks:
+
+Black Cat 
+Running Free (Iron Maiden Cover) 
+
+
+### "Tunes Of Wacken (Live)" 2002, Heavy Metal
+
+
+
+### "Rheingold" 2003, Heavy Metal
+
+01. The Ring (Overture)
+02. Rheingold
+03. Valhalla
+04. Giants
+05. Maidens Of War
+06. Sword
+07. Dragon
+08. Liar
+09. Murderer
+10. Twilight Of The Gods
+bonus
+11. Hero
+12. Goodbye
+
+Chris Boltendahl - Vocals
+Manni Schmidt - Guitars
+Jens Becker - Bass
+Stefan Arnold - Drums
+H.P. Katzenburg - Keys
+
+Special guest on rheinhold:
+Das Letzte Einhorn (Michi Rhein from In Extremo) -
+Vocals
+
+Inspired by The Ring Of The Nibelungs by Richard
+Wagner
+Produced by Chris Boltendal & Resetti Brothers
+
+recording engineers: Resetti Brothers (Jorg
+Umbreit & Vincent Sorg)
+Assistance: Daniel Teusner
+Recorded and mixed by the Resetti Brothers at
+Principal Studios - Senden / Munster
+from October 2002 - January 2003
+Orchestra arrangements by HP Katzenburg and Chris
+Boltendahl, played by the Virtual Symphonic
+Orchestra / Cologne - conducted by Maestro
+Katzenburg
+Preproduction recorded by HP Katzenburg -
+Graveyard studios / Neitherlands
+Mastered by Vincent Sorg at Principal Studios
+All songs composed and arranged by Grave Digger
+All lyrics written by Boltendahl & supervised by
+Steven D. Rice / san Jose / California
+Backing vocals by Olaf Senkbell & Chris Boltendahl
+& Hacky Hackmann
+Cover concept by Chris Boltendahl
+Cover artwork & booklet design by Markus Mayer
+Photos by Stefan Malzkorn
+
+### "The Last Supper" 2005, Heavy Metal
+
+01. Passion
+02. The Last Supper
+03. Desert Rose
+04. Grave in the No Man's Land
+05. Hell to Pay
+06. Soul Savior
+07. Crucified
+08. Divided Cross
+09. The night before
+10. Black Widows
+11. Hundred Days
+12. Always and Eternally
+
+### "25 To Live (2 CD)" 2005, Heavy Metal
+
+
+
+### "Yesterday (EP)" 2006, Heavy Metal
+
+1. Yesterday 05:19  
+2. The Reapers Dance 04:35  
+3. No Quarter 06:57  
+4. Yesterday (Orchestra Version) 04:07 
+
+
+Yesterday is a re-record of a music of the first album.
+The Reaper's Dance is a new song who will not appear in the next studio release.
+No Quarter is a cover song of the Led Zeppelin
+
+### "Liberty Or Death" 2007, Heavy Metal
+
+1.Liberty or Death 06:34
+2.Ocean of Blood 04:12
+3.Highland Tears 06:16
+4.The Terrible One 04:09
+5.Until the Last King Died 05:47
+6.March of the Innocent 05:56
+7.Silent Revolution 06:25
+8.Shadowland 06:26
+9.Forecourt to Hell 05:03
+10.Massada 05:59
+11.Bonustrack 05:05
+
+### "Pray (EP)" 2008, Heavy Metal
+
+1. Pray (Extended Version) 04:01  
+2. Overkill (MOTORHEAD cover) 04:33  
+3. My Blood Will Live Forever 04:02  
+4. When the Sun Goes Down 03:51 
+
+
+### "Ballads Of A Hangman" 2009, Heavy Metal
+
+1. The Gallows Pole 00:47 
+2. Ballad Of A Hangman 04:45
+3. Hell Of Disillusion 03:55 
+4. Sorrow Of The Dead 03:35  
+5. Grave Of The Addicted 03:33  
+6. Lonely The Innocent Dies 05:46 
+7. Into The War 03:32 
+8. The Shadow Of Your Soul 04:14  
+9. Funeral For A Fallen Angel 04:30  
+10. Stormrider 03:17
+11. Pray 03:36 
+
+
+### "The Clans Will Rise Again" 2010, Heavy Metal
+
+1. Days Of Revenge 01:58  
+2. Paid In Blood 03:57  
+3. Hammer Of The Scots 04:01  
+4. Highland Farewell 04:07  
+5. The Clans Will Rise Again 05:01  
+6. Rebels 04:40  
+7. Valley Of Tears 04:09  
+8. Execution 04:45  
+9. Whom The Gods Love Die Young 06:12  
+10. Spider 03:19  
+11. The Piper Mcleod 00:49  
+12. Coming Home 04:22  
+13. When Rain Turns To Blood 06:14 
+
+
+
+The Clans Will Rise Again is a loose sequel of the Tunes Of War album, but this
+time not a concept album about the Scottish history, rather a work about
+Scotland, it's mysticism and it's people. 
+
+### "The Ballad Of Mary (EP)" 2011, Heavy Metal
+
+
+
+### "The Clans Are Still Marching (DVD)" 2011, Heavy Metal
+
+1. Intro: Scotland The Brave (feat. Bauluy Muluy Pipes & Drums Band)   
+2. Scotland United 
+3. The Dark Of The Sun 
+4. William Wallace (Braveheart)
+5. The Bruce 
+6. The Battle Of Flodden 
+7. The Ballad Of Mary (feat. Doro)
+8. The Truth
+9. Cry For Freedom
+10. Killing Time
+11. Rebellion (feat. Hansi Kьrsch)
+12. Culloden Muir 
+13. Ballad Of A Hangman 
+14. Excalibur 
+15. Heavy Metal Breakdown 
+
+### "Home At Last (EP)" 2012, Heavy Metal
+
+01. Home At Last
+02. Rage Of The Savage Beast (Non Album Track)
+03. Metal Will Never Die (Non Album Track)
+04. Ballad Of A Hangman (Live in Wacken 2010)
+05. Excalibur (Live in Wacken 2010))
+06. Heavy Metal Breakdown (Live in Wacken 2010)
+
+### "Clash Of The Gods" 2012, Heavy Metal
+
+01. Charon
+02. God Of Terror
+03. Hell Dog
+04. Medusa
+05. Clash Of The Gods
+06. Death Angel & The Grave Digger
+07. Walls Of Sorrow
+08. Call Of The Sirens
+09. Warriors Revenge
+10. With The Wind
+11. Home At Last
+Bonus tracks on limited European digibook editiion:
+12. Saints of the Broken Souls (05:26)
+13. Home at Last (Zurьck Nach Haus) (German version) (04:01)
+ 
+Recorded, mixed and mastered at Principal Studios, Munster, March - May 2012.
+ Guitars recorded at Meadow Recording Studios, Weiterstadt, Germany. 
+
+### "Return Of The Reaper" 2014, Heavy Metal
+
+1. Return of the Reaper  01:16    
+2. Hell Funeral  03:01    
+3. War God  03:46    
+4. Tattooed Rider  04:03    
+5. Resurrection Day  02:58    
+6. Season of the Witch  05:04   
+7. Road Rage Killer  03:18   
+8. Dia de los Muertos  04:15    
+9. Satan's Host  02:56    
+10. Grave Desecrator  04:22  
+11. Death Smiles at All of Us  03:52 
+12. Nothing to Believe  04:33  
+
+
+
+ Recorded ad Principal Studios in Senden, Germany.
+
+ Limited mediabook edition bonus CD:
+ 1. The Emperors Death
+ 2. Rebel of Damnation
+ 3. The Round Table
+ 4. The Dark of the Sun
+ 5. The Curse of Jaques
+ 6. The Ballad of Mary
+ 7. The Last Supper
+ 8. Yesterday
+ 9. Rebellion
+ 10. Heavy Metal Breakdown
+
+ On bonus CD: tracks 1 & 2 are bonus tracks, tracks 3-10 recorded live at the acoustic show. 
+
+
+### "Exhumation - The Early Years" 2015, Heavy Metal
+
+01. Headbanging Man
+02. Fire In Your Eyes
+03. Witch Hunter
+04. Shoot Her Down
+05. Stand Up And Rock
+06. Heavy Metal Breakdown
+07. Enola Gay - Drop The Bomb
+08. Get Away
+09. We Wanna Rock You
+10. Playing Fools
+11. Here I Stand
+12. Tyrant
+13. Paradise
+14. My Private Morning Hell (Bonus Track)
+15. Young And Dangerous (Bonus Track)
+
+### "Healed by Metal" 2017, Heavy Metal
+
+1. Healed by Metal  03:43   
+2. When the Night Falls  03:54   
+3. Lawbreaker  03:05  
+4. Free Forever  03:21   
+5. Call for War  03:19  
+6. Ten Commandments of Metal  03:25  
+7. The Hangman's Eye  03:05    
+8. Kill Ritual  03:41    
+9. Hallelujah  03:28    
+10. Laughing with the Dead  05:15    
+11. Kingdom of the Night (bonus) 04:05   
+12. Bucket List (bonus) 03:02  
+
+
 
 ## Отношения с другими группами
 

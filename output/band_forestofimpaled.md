@@ -1,9 +1,45 @@
 # Forest Of Impaled
 
-Дискография
-"Demonvoid" 1999, Black Metal
-"Forward the Spears" 2003, Black Metal
-"Rise and Conquer" 2007, Black Metal
+
+
+## Дискография
+
+### "Demonvoid" 1999, Black Metal
+
+1.	 For Ours Is the Kingdom (Desecrate the Heavens)
+2.	 Beyond the Black Mountain Realm
+3.	 The Impaler
+4.	 I Metamorphosis (Birth of the Seventh)
+5.	 II Diabolisis (The Seventh Dominion)
+6.	 Wings of Apocalypse
+7.	 Demonvoid 
+8.	 The Gateway of the Gods
+9.	 Mortis Dei
+
+### "Forward the Spears" 2003, Black Metal
+
+1.	 Forward the Spears	05:29
+2.	 The Fall of the Trinity	05:13
+3.	 Thy Mighty Servant	03:26
+4.	 I Am the Temple to Eternal Death	04:46
+5.	 Hand of Vengeance	03:44
+6.	 Sons of Cain	02:48
+7.	 The Call of Death's Dark Horn	03:57
+8.	 Orgy of Unearthly Delights	02:50
+9.	 Into the Mouth of Oblivion	04:07
+10.	 Death, I Have Become Thee	04:22
+
+### "Rise and Conquer" 2007, Black Metal
+
+1.	 Rise and Conquer	04:58
+2.	 Beyond All	05:54
+3.	 Take the Throne	05:31
+4.	 Cleansing Ablaze	04:40
+5.	 Nil Desperandum	06:50
+6.	 Blessed Are We	05:36
+7.	 When Warriors Led	05:38
+8.	 Schizophrenia	07:28
+
 
 ## Отношения с другими группами
 

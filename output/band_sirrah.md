@@ -1,9 +1,84 @@
 # Sirrah
 
-Дискография
-"Acme" 1996, Death Doom
-"Will Tomorrow Come?" 1997, Death Doom
-"Thrill You (single)" 2013, Gothic
+
+
+## Дискография
+
+### "Acme" 1996, Death Doom
+
+1. Acme
+2. Passover 1944
+3. On The Verge
+4. A.U. Tomb
+5. Iridium
+6. Pillbox Impressions
+7. Panacea
+8. Bitter Seas
+9. In The Final Moment
+
+All songs written by SIRRAH
+Produced by Tommy D.
+
+Matt - Guitars. Scream
+Tom - Vocal, Declamation, Sore Throat
+Bai'Sahr - Guitars
+Michael - Drums
+Christopher - Bass
+Magdelena - Viola
+Chris - Keyboards
+Maya - Vocals
+
+ (p)c 1996 MUSIC FOR NATIONS
+
+### "Will Tomorrow Come?" 1997, Death Doom
+
+1. To Bring Order.
+2. … For The Sake Of Nothing.
+3. Patron.
+4. Lash.
+5. Will Tomorrow Come?
+6. High Treason.
+7. Sepsis.
+8. Rhea.
+9. Madcap.
+10. Floor's Embrace.
+
+(p)&©1997 METAL MIND  PRODUCTIONS,
+MUSIC FOR NATIONS
+
+MICHAEL – Drums
+MAGDALENA – Viola, vocals
+CHRISTOPHER – Bass
+MATT – Guitar, vocals
+CHRIS – Keyboards
+ROGER – Guitar
+TOM – Vocals
+Guest appearance – Maggie –Soprano
+
+Recorded Fabruary/March 1997 in Fonoplastycon Studio Wroclaw and Studio of Radio Opole.
+Sound engineers: Jas Kidawa, Barbek Straburzynski.
+Mix, editing, experiments: Barbek Straburzynski.
+Mastering: Jaroslaw Regulski (Buffo Studio, Warsaw).
+Photos: Jola Laitl.
+Cover design: Zygmund Druzbicki, Mariusz Bruchacki, Bart Kopec, Jola Laitl.
+Executive producer: Tomasz Dziubinski for MMP
+
+### "Thrill You (single)" 2013, Gothic
+
+1. Thrill You  06:28    
+2. E.L.Lies  06:41  
+
+
+
+Krzysztof Passowicz - Keyboards  
+Roman Bereznicki - Bass, Vocals  
+Tomo Їyzyk - Vocals  
+Magda Brudzinska - Vocals, Viola  
+Michaі Bereznicki - Drums  
+Roger Trela - Guitars  
+Paweі Nafus - Guitars  
+
+
 
 ## Отношения с другими группами
 

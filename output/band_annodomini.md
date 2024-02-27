@@ -1,7 +1,49 @@
 # Annodomini
 
-Дискография
-"Sixtrinity Secret" 2008, Gothic
+
+
+## Дискография
+
+### "Sixtrinity Secret" 2008, Gothic
+
+01. Death, My Bride
+02. Catherina
+03. You're So Beautiful
+04. Undressed For Sunset
+05. Drunk On Despair
+06. Gone
+07. C[u]ntinue My Prayer In The Dark
+08. Oceans Of Wine
+09. Dark Heart
+10. Stigmata
+
+Andres Danchin - vocals
+Roman "Ater" Kalashnikoff - guitars
+Den Zolotukhin - bass
+Olga "Lil" Spasskina - keyboards
+Roman "Dassler" Safonov - drums
+
+Credits:
+
+Sixtrinity Secret was recorded between February
+and June 2008 at Mindcrusher Labs.
+The album was produced by Andres Danchin and Roman "Ater" Kalashnikoff.
+Mixed and mastered at Mindcrusher Labs by Roos Maslennikov.
+Band photos by Nick Nikolaev.
+Artwork photos by Peny Pujiati, Denis Monaev.
+Coverart, layout and design by Roman "Ater" Kalashnikoff.
+Sixtrinity is the official symbol and property of
+the band, created and entitled by Andres Danchin,
+modernized by Roman "Ater" Kalashnikoff.
+
+Music written by Andres Danchin and Roman "Ater" Kalashnikoff.
+Lyrics by Andres Danchin.
+Arrangements by ANNODOMINI.
+
+Additional vocals by Roos Maslennikov (Undressed
+For Sunset, Stigmata, C[u]ntinue My Prayer In The Dark).
+Stigmata guitar solo by Vladimir Vopilov.
+
 
 ## Отношения с другими группами
 

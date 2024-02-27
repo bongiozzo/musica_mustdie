@@ -1,22 +1,165 @@
 # Belphegor
 
-Дискография
-"Kruzifixion (demo tape)" 1991, Black Metal
-"Bloodbath In Paradise (demo)" 1992, Black Metal
-"Obscure And Deep (EP)" 1994, Black Metal
-"The Last Supper" 1995, Black Metal
-"Blutsabbath" 1997, Black Metal
-"The Last Suppper (re-release)" 1999, Black Metal
-"Necrodaemon Terrorsathan" 2001, Black Metal
-"Infernal Live Orgasm" 2002, Black Metal
-"Lucifer Incestus" 2003, Black Metal
-"Goatreich - Fleshcult" 2005, Death Metal
-"Pestapokalypse VI" 2006, Death Metal
-"Bondage Goat Zombie" 2008, Death Metal
-"Walpurgis Rites - Hexenwahn" 2009, Death Metal
-"Blood Magick Necromance" 2011, Death Metal
-"Conjuring The Dead" 2014, Death Metal
-"Totenritual" 2017, Death Metal
+
+
+## Дискография
+
+### "Kruzifixion (demo tape)" 1991, Black Metal
+
+
+
+### "Bloodbath In Paradise (demo)" 1992, Black Metal
+
+
+
+### "Obscure And Deep (EP)" 1994, Black Metal
+
+
+
+### "The Last Supper" 1995, Black Metal
+
+1. The Last Supper
+2. A Funeral Without A Cry
+3. Impalement Without Mercy
+4. Much Of The Dead
+5. The Rapture Of Cremation
+6. Engulfed In Eternal Frost
+7. D.I.E.
+8. In Remembrance Of Hate And Sorrow
+9. Bloodbath In Paradise (Part II)
+10.Crucifixion
+
+ Marr - Vocals, Bass
+ Hellmuth - Chainsaw
+ Chris - Drums
+ Sigurt - Distortion
+ Heifo Hante - Keyboards
+
+All Songs By BELPHEGOR
+Produced & Mixed By Andy Classen
+Engineered By Xaber Naudascher
+Recorded & Mixed At Stage One Studio, Caffel, Germany
+
+(p)&(c) 1995 LETHAL Records
+
+### "Blutsabbath" 1997, Black Metal
+
+
+
+### "The Last Suppper (re-release)" 1999, Black Metal
+
+
+
+### "Necrodaemon Terrorsathan" 2001, Black Metal
+
+
+
+### "Infernal Live Orgasm" 2002, Black Metal
+
+1. March Of The Dead 
+2. Purity Through Fire 
+3. Necrodaemon Terrorsathan 
+4. The Last Supper 
+5. No Resurrection 
+6. Swarm Of Rats 
+7. Diabolical Possession 
+8. Blackest Ecstasy 
+9. Requiem Of Hell 
+10. Der Untergang Pt II 
+11. Graves Of Sorrow 
+12. Hellbound 
+13. Vomit Upon The Cross (Video) 
+14. Purity Through Fire (Video)
+
+### "Lucifer Incestus" 2003, Black Metal
+
+1. Intro: Inflamate Christianos 
+2. The Goatchrist 
+3. Diaboli Virtus In Lumbar Est 
+4. Demonic Staccato Erection 
+5. Paradise Regained 
+6. Fukk The Blood Of Christ 
+7. Lucifer Incestus 
+8. The Sin-Hellfucked 
+9. Fleischrequiem 69/Outro
+
+### "Goatreich - Fleshcult" 2005, Death Metal
+
+01. The Cruzifixus – Anus Dei
+02. Bleeding Salvation
+03. Fornicationium et Immundus Diabolus
+04. Sepulture of Hypocrisy
+05. The Goatreich – Fleshcult
+06. Swarm of Rats
+07. Kings Shall Be Kings
+08. The Crown Massacre
+09. Festum Asinorum/Chapt. 2
+10. Heresy of Fire (digipak/LP bonus track)
+
+### "Pestapokalypse VI" 2006, Death Metal
+
+I Belphegor - Hells Ambassador
+II Seyn Todt In Schwartz
+III Angel Of Retribution
+IV Chants For The Devil 1533
+V Pest Teufel Apokalypse
+VI The Ancient Enemy
+VII Bluhtsturm Erotika
+VIII Sanctus Perversum
+IX Das Pesthaus / Miasma Epilog
+
+### "Bondage Goat Zombie" 2008, Death Metal
+
+1. Bondage Goat Zombie 04:00  
+2. Stigma Diabolicum   
+3. Armageddon's Raid   
+4. Justine: Soaked In Blood   
+5. Sexdictator Lucifer   
+6. Shred For Sathan   
+7. Chronicles Of Crime   
+8. The Sukkubus Lustrate   
+9. Der Rutenmarsch
+
+### "Walpurgis Rites - Hexenwahn" 2009, Death Metal
+
+1. Walpurgis Rites 03:09
+2. Veneratio Diaboli - I Am Sin 07:02  
+3. Hail The New Flesh 05:33  
+4. Reichswehr In Blood 04:37  
+5. The Crosses Made Of Bone 04:26  
+6. Der Geistertreiber 03:42  
+7. Destroyer Hekate 03:37  
+8. Enthralled Toxic Sabbath 04:33  
+9. Hexenwahn - Totenkult 02:44 
+
+### "Blood Magick Necromance" 2011, Death Metal
+
+1. In Blood - Devour This Sanctity 05:31  
+2. Rise to Fall and Fall to Rise 06:01  
+3. Blood Magick Necromance 07:00  
+4. Discipline Thorugh Punishment 04:05  
+5. Angeli Mortis De Profundis 03:00  
+6. Impaled Upon the Tongue of Sathan 05:42  
+7. Possessed Burning Eyes 05:33  
+8. Sado Messiah 03:50 
+
+
+### "Conjuring The Dead" 2014, Death Metal
+
+
+
+### "Totenritual" 2017, Death Metal
+
+1. Baphomet
+2. The Devil's Son
+3. Swinefever - Regent Of Pigs
+4. Apophis - Black Dragon
+5. Totenkult - Exegesis Of Deterioration
+6. Totenbeschworer [Instrumental]
+7. Spell Of Reflection
+8. Embracing A Star
+9. Totenritual
+
 
 ## Отношения с другими группами
 

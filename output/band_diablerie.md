@@ -1,7 +1,40 @@
 # Diablerie
 
-Дискография
-"Seraphyde" 2001, Black Metal
+finnish millenium black metal
+
+## Дискография
+
+### "Seraphyde" 2001, Black Metal
+
+1. Dystopia Show 
+2. Nervine
+3. Float 
+4. Astronomicon
+5. Weltschmerz
+6. Until Death Do Us Apart 
+7. Nations Collide 
+8. Bitter Utopia 
+9. Death-wired to the Bleak 
+10. Seraphyde 
+11. Oppression
+
+
+Recorded and mixed by Tuomo Valtonen @ Sundi Coop, Finland. 
+Mastered by Alberto Cutolo at Massive Arts -studio, Italy. 
+All lyrics by H.J. Villberg.
+All music composed by Diablerie.
+
+J. Suorsa -keyboards and electronics
+K. Tukiainen -guitars 
+E. Lundйn -guitars
+A. Ahokas -bass
+A. Ruokola -drums
+H.J. Villberg -voice
+Additional vocals by Karoliina Kallio.
+
+
+
+
 
 ## Отношения с другими группами
 

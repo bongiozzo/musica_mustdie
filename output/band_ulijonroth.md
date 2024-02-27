@@ -1,14 +1,192 @@
 # Uli Jon Roth
 
-Дискография
-"Earthquake" 1979, Hard Rock
-"Fire Wind" 1981, Hard Rock
-"Electric Sun" 1985, Hard Rock
-"Beyond the Astral Skies" 1996, Instrumental
-"Sky of Avalon" 1998, Hard Rock
-"Transcendental Sky Guitar" 2000, Hard Rock
-"Legends of rock - Live at castle donington" 2003, Hard Rock
-"Under A Dark Sky" 2008, Metal
+(ex-Scorpions in a way of Jimi Hendrix)
+
+## Дискография
+
+### "Earthquake" 1979, Hard Rock
+
+   1.   Electric Sun 
+   2.   Lilac 
+   3.   Burning Wheels Turning 
+   4.   Japanese Dream 
+   5.   Sundown 
+   6.   Winter Days 
+   7.   Still So Many Lives Away 
+   8.   Earthquake 
+
+
+### "Fire Wind" 1981, Hard Rock
+
+   1.   Cast Away Your Chains (Roth) - 3:56 
+   2.   Indian Dawn - 5:16 
+   3.   I'll Be Loving You Always - 5:00 
+   4.   Fire Wind - 5:03 
+   5.   Prelude in Space Minor - 1:22 
+   6.   Just Another Rainbow - 3:54 
+   7.   Children of the Sea - 3:23 
+   8.   Chaplin and I - 5:45 
+   9.   Hiroshima: Enola Gay/Tune of Japan/Attack... - 10:37 
+
+
+Doug Bennett  -  Engineer 
+Laurence Burridge  -  Overdubs 
+Brian Burrows  -  Sleeve Remix 
+Uli Ritgen  -  Bass 
+Uli Jon Roth  -  Guitar, Vocals 
+Thomas Kuckuck  -  Bass, Vocals, Mixing 
+Manfred Brunwey  -  Percussion, Vocals 
+George Kalantzis  -  Layout Design, Sleeve Art 
+
+
+
+### "Electric Sun" 1985, Hard Rock
+
+   1.   The Beyond the Astral Skies: Night the... (Roth) 
+   2.   Beyond the Astral Skies: What Is Love? (Roth) 
+   3.   Beyond the Astral Skies: Why? (Roth) 
+   4.   Beyond the Astral Skies: I'll Be There (Roth) 
+   5.   Beyond the Astral Skies: Return (Chant of... (Roth) 
+   6.   Beyond the Astral Skies: Icebreaker (Roth) 
+   7.   Beyond the Astral Skies: I'm a River (Roth) 
+   8.   Beyond the Astral Skies: Angel of Peace (Roth) 
+   9.   Beyond the Astral Skies: Eleison (Roth) 
+   10.   Beyond the Astral Skies: Son of Sky (Roth) 
+   11.   Earthquake: Electric Sun (Roth) 
+   12.   Earthquake: Lilac (Roth) 
+   13.   Earthquake: Burning Wheels Turning (Roth) 
+   14.   Earthquake: Japanese Dream (Roth) 
+   15.   Earthquake: Sundown (Roth) 
+   16.   Earthquake: Winterdays (Roth) 
+   17.   Earthquake: Still So Many Lives Away (Roth) 
+   18.   Earthquake: Earthquake (Roth) 
+   19.   Fire Wind: Cast Away Your Chains (Roth) 
+   20.   Fire Wind: Indian Dawn (Roth) 
+   21.   Fire Wind: I'll Be Loving You Always (Roth) 
+   22.   Fire Wind: Prelude in Space Minor (Roth) 
+   23.   Fire Wind: Just Another Rainbow (Roth) 
+   24.   Fire Wind: Children of the Sea (Roth) 
+   25.   Fire Wind: Chaplin and I (Roth) 
+   26.   Fire Wind: Hiroshima: Enola Gay/Tune of... (Roth) 
+
+
+Jeremy Allom  -  Mixing 
+Doug Bennett  -  Engineer, Mixing 
+Aldo Bocca  -  Engineer, Mixing 
+Clive Bunker  -  Percussion, Drums 
+Laurence Burridge  -  Engineer, Tape Operator 
+Robert Curtis  -  Violin, Viola 
+Clive Edwards  -  Drums 
+Jenni Evans  -  Harmony Vocals 
+Michael Flechsich  -  Vocals, Harmony Vocals 
+Siddartha Gautama  -  Drums 
+Tony Harris  -  Engineer, Editing 
+Jo Julian  -  Engineer 
+Elizabeth MacKenzie  -  Saxophone, Soprano (Vocal), Alto (Vocal) 
+Nicky Moore  -  Harmony Vocals 
+Uli Ritgen  -  Bass, Harmony Vocals 
+Uli Jon Roth  -  Bass, Guitar, Keyboards, Vocals, Producer 
+Zeno Roth  -  Harmony Vocals 
+Ben Ward  -  Engineer 
+Guy Bidmead  -  Mixing 
+David Jacob  -  Mixing 
+John Dent  -  Pre-Production 
+David Hamilton-Smith  -  Engineer 
+Thomas Kuckuck  -  Engineer, Mixing 
+Ian Morais  -  Mixing 
+Bill  -  Tape Operator 
+Jan Nemec  -  Engineer 
+Manfred Brunwey  -  Engineer 
+Chris Musto  -  Artwork 
+Rainer Przywara  -  Harmony Vocals 
+Barry Grint  -  Mastering 
+Phill Brown  -  Engineer, Mixing 
+
+
+
+### "Beyond the Astral Skies" 1996, Instrumental
+
+
+
+### "Sky of Avalon" 1998, Hard Rock
+
+   1.   Bridge to Heaven (Puccini/Sky Of Avalon) - 4:46 
+   2.   Thunder Bay (Roth) - 2:02 
+   3.   Pegasus (Roth) - 2:31 
+   4.   Starships of Dawn (Roth) - 2:12 
+   5.   Winds of War (Roth) - 5:55 
+   6.   Sky Valley (Roth) - 1:08 
+   7.   The Wings of Avalon (Roth) - 2:55 
+   8.   Until the End of Time (Roth) - 2:14 
+   9.   Tod und Zerstцrung (Roth) - 1:10 
+   10.   E Lucevan le Stelle (Puccini/Sky of Avalon) - 1:39 
+   11.   Starlight (Roth) - 4:41 
+
+
+Lionheart  -  Technical Assistance, Technical Support 
+Chris Adams  -  Technical Assistance, Technical Support 
+Brian Burrows  -  Sleeve Remix 
+Michael Flexig  -  Vocals, Harmony 
+Erwin Musper  -  Engineer 
+Uli Jon Roth  -  Bass, Guitar, Director, Keyboards, Engineer, Artwork, Design, Photography, Concept, Computer Engineering, Musician 
+Roger Smith  -  Cello 
+Chris Wright  -  Technical Assistance, Technical Support 
+Steve Bentley-Klein  -  Violin 
+William Hames  -  Photography 
+George Chin  -  Photography 
+Rich Warfield  -  Logo 
+Sharon  -  Choir, Chorus 
+Tommy Heart  -  Vocals, Harmony 
+
+
+
+### "Transcendental Sky Guitar" 2000, Hard Rock
+
+   1.   Sky Overture (Roth) - 8:48 
+   2.   Rondo Alla Turca (Mozart) - 2:00 
+   3.   Sehnsucht (Mozart) - 4:12 
+   4.   Tuona E Fulmina (Vivaldi) - 3:07 
+   5.   Baba-Yaga (Mussorgskij) - 5:38 
+   6.   Earthquake (Roth) - 7:51 
+   7.   Meditation (Massenet) - 4:10 
+   8.   Paganini Paraphrase (Paganini/Roth) - 1:37 
+   9.   Fairy Dance (Mendelssohn/Roth) - 3:22 
+   10.   Beethoven Paraphrase (Beethoven/Roth) - 3:24 
+   11.   Recuerdos de la Alhambra (Tarrega) - 2:30 
+   12.   Air de Aranjuez (Rodrigo) - 3:43 
+   13.   Hiroshima (Roth) - 6:44 
+   14.   Villanova Gem (Hendrix) - 5:06 
+   15.   Voodoo Chile (Hendrix) - 9:18 
+   16.   Stormy Passage (Roth) - 3:18 
+   17.   Gypsy Czardas (Monti) - 3:17 
+   18.   Spanish Fantasy (Roth) - 5:30 
+   19.   Freeflow Gem (Roth) - 7:01 
+   20.   Scherzo Alla Paganini (Roth) - 3:16 
+   21.   Atlantis (Hendrix) - 4:58 
+   22.   Turn the Time (Roth) - 5:13 
+   23.   Event Horizon (Airey/Roth) - 8:21 
+   24.   Mighty Wing Cadenza (Roth) - 5:40 
+   25.   Air de Bach (Bach) - 2:58 
+
+
+John Boswell  -  Guitar Technician 
+Don Airey  -  Keyboards 
+Uli Jon Roth  -  Guitar, Vocals, Engineer, Artwork, Mixing, Photography, Text, Art Conception 
+Barry Sparks  -  Bass 
+Shane Gaalaas  -  Drums 
+Dave Kenny  -  Technical Support 
+Phil Woodward  -  Technical Support 
+
+
+
+### "Legends of rock - Live at castle donington" 2003, Hard Rock
+
+
+
+### "Under A Dark Sky" 2008, Metal
+
+
+
 
 ## Отношения с другими группами
 

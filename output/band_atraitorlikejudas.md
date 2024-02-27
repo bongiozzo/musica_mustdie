@@ -1,7 +1,13 @@
 # A Traitor Like Judas
 
-Дискография
-"Nightmare Inc." 2005, Metalcore
+
+
+## Дискография
+
+### "Nightmare Inc." 2005, Metalcore
+
+
+
 
 ## Отношения с другими группами
 

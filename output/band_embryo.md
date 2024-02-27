@@ -1,7 +1,33 @@
 # Embryo
 
-Дискография
-"Chaotic Age" 2005, Melodic Death Metal
+
+
+## Дискография
+
+### "Chaotic Age" 2005, Melodic Death Metal
+
+1. Intro; 
+2. Chaotic Age; 
+3. What Lies Behind My Hate; 
+4. Disturbing The Silence; 
+5. "Precious" Existence; 
+6. Kill Your Gods; 
+7. Nuclear Healing; 
+8. I'll Watch You Die; 
+9. Words Of Ancient Wisdom; 
+10. Prelude To The End; 
+11. Dressed In Blood; 
+12. Inhuman Anger
+
+All songs written by EMBRYO
+Recorded and mixed at Beat Bazar Studio, Italy
+
+Uge - Guitars
+Ivan - Drums
+Gigi - Keyboards
+Christian - Bass
+Roberto - Voice
+
 
 ## Отношения с другими группами
 

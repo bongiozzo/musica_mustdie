@@ -1,13 +1,47 @@
 # Ghoul
 
-Дискография
-"We Came For The Dead" 2002, Thrash
-"Maniaxe" 2003, Thrash
-"Splatterthrash" 2006, Thrash
-"Transmission Zero" 2011, Thrash
-"Intermediate Level Hard-Core (EP)" 2013, Punk
-"Hang Ten (EP)" 2014, Thrash
-"Dungeon Bastards" 2016, Thrash
+
+
+## Дискография
+
+### "We Came For The Dead" 2002, Thrash
+
+
+
+### "Maniaxe" 2003, Thrash
+
+
+
+### "Splatterthrash" 2006, Thrash
+
+
+
+### "Transmission Zero" 2011, Thrash
+
+1. The Lunatic Hour 04:06
+2. Off With Their Head 03:16
+3. Destructor 03:05
+4. Death in the Swamp 01:34
+5. The Mark of Voodoo 02:52
+6. Brain Jerk 04:30
+7. Blood Feast 03:43
+8. Morning of the Mezmetron 08:17
+9. Transmission Zero 03:29
+10. Tooth and Claw 02:28
+11. Metallicus Ex Mortis 02:29
+
+### "Intermediate Level Hard-Core (EP)" 2013, Punk
+
+
+
+### "Hang Ten (EP)" 2014, Thrash
+
+
+
+### "Dungeon Bastards" 2016, Thrash
+
+
+
 
 ## Отношения с другими группами
 

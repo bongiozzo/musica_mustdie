@@ -1,8 +1,33 @@
 # Soulfallen
 
-Дискография
-"World Expiration" 2007, Metal
-"Grave New World" 2009, Metal
+
+
+## Дискография
+
+### "World Expiration" 2007, Metal
+
+1. Machiavellian Night Descends  03:29   
+2. Third Day of the Eclipse  06:14   
+3. Expiration  03:43   
+4. Like Beasts Upon Their Prey  04:33   
+5. Withdrawal  03:01 
+6. Another Pariah  03:10  
+7. Death of the Tyrant  04:27   
+8. I Am Becoming  04:54 
+9. No More Than Thieves  06:03 
+
+### "Grave New World" 2009, Metal
+
+1. A Hearse With No Name  08:07 
+2. Devour  04:43   
+3. To the Wolves at My Door  04:48   
+4. This World is Bleeding Flies  04:14 
+5. Grave New World  04:39  
+6. Towers of Silence  04:15  
+7. Embrace the Scythe  04:08
+8. Serenity's Throne  04:49 
+9. We Are the Sand  07:02 
+
 
 ## Отношения с другими группами
 

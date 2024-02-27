@@ -1,8 +1,22 @@
 # Grimfaith
 
-Дискография
-"Sex In Heaven" 2005, Gothic
-"Grime" 2008, Gothic
+
+
+## Дискография
+
+### "Sex In Heaven" 2005, Gothic
+
+1. Spinalonga 
+2. Jack is Back 
+3. Ruins of My Heart 
+4. Funeral of Last Hope(переписанный вариант) 
+5. Vampire to become(переписанный вариант) 
+6. Sex in Heaven
+
+### "Grime" 2008, Gothic
+
+
+
 
 ## Отношения с другими группами
 

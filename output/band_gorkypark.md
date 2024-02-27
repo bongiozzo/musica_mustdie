@@ -1,10 +1,128 @@
 # Gorky Park
 
-Дискография
-"Gorky Park" 1989, Hard Rock
-"Moscow Calling" 1993, Hard Rock
-"Stare" 1996, Hard Rock
-"Protivofazza" 1998, Hard Rock
+Russian Rock Legend
+
+## Дискография
+
+### "Gorky Park" 1989, Hard Rock
+
+1.  Bang
+2.  Try To Find Me
+3.  Hit Me With The News
+4.  Sometimes At Night
+5.  Peace In Our Time
+6.  My Generation
+7.  Within Your Eyes З
+8.  Child Of Wind
+9.  Fortress
+10.  Danger З
+11.  Action З
+
+Nikolay Noskov - Vocals
+Alexandre Minkov - Guitar
+Alexandre Lvov - Drums
+Alexandre Janenkov - Bass
+Alexei Belov - Guitar
+
+All Songs Written By GORKY PARK, except 5 By Bon Jovi  & Ritchi, 6 by THE WHO.
+Produced By Stas Namin.
+З - CD's Bonus Tracks
+
+(P)c 1989 SNC Records
+
+Jon Bon Jovi  -  Producer 
+Richie Sambora  -  Producer 
+Gabriel Hardeman  -  Choir, Chorus 
+Gorky Park  -  Producer, Engineer, Mixing 
+Nick DiDia  -  Assistant Engineer, Mixing Assistant 
+Patti Drosins  -  Art Direction 
+Bruce Fairbairn  -  Producer, Mixing 
+Michael Fraser  -  Engineer, Mixing 
+Mitch Goldfarb  -  Producer, Engineer, Mixing 
+Charlene Holloway  -  Choir, Chorus 
+Carrie Hamilton  -  Design 
+Annette Hardeman  -  Choir, Chorus 
+Paula Holloway  -  Choir, Chorus 
+Ken Lomas  -  Assistant Engineer 
+Obie O'Brien  -  Engineer, Mixing 
+Brian Stover  -  Assistant Engineer, Mixing Assistant 
+Alexei Belov  -  Guitar, Balalaika, Keyboards, Vocals (bckgr) 
+Jan Ianenkov  -  Guitar (Acoustic), Guitar 
+Sasha Lvov  -  Drums 
+Big Sasha Minkov  -  Bass, Vocals (bckgr) 
+Nikolai Noskov  -  Guitar, Vocals (bckgr) 
+Caroline Greyshock  -  Photography 
+Michael Bays  -  Art Direction 
+Sheryl Lutz-Brown  -  Design 
+Brooke Hendricks  -  Assistant Engineer, Mixing Assistant 
+Yuri Balashov  -  Design 
+John Moyer  -  Assistant Engineer, Mixing Assistant 
+
+
+### "Moscow Calling" 1993, Hard Rock
+
+1.  Moscow Calling
+2.  All Roads
+3.  Politics Of Love
+4.  Tomorrow
+5.  Stranger
+6.  Volga Boatman (Instr.)
+7.  Strike
+8.  Welcome To The G.P.
+9.  Two Candles
+10.I'm Going Down
+11.  City Of Pain
+12.  Don't Pull The Trigger
+13.  Tell Me Why
+
+Alexandre Minkov "Big Sasha" - Guitar, Back Vocals
+Alexandre Lvov "Little Sasha" - Drums
+Alexandre Janenkov "Jan" - Bass, Vocals
+Alexei Belov - Guitar, Back Vocals
+
+Back Vocals on 9 By Richard Marx.
+Guitar Solo on 12 By Steve Lucather (Toto).
+Sax on 4 By Scott Page (Pink Floyd).
+Additional Guitars on all album by Dwezill Zappa.
+Arranged & Produced By Belov.
+Mixed By Erwin Musper.
+Sound By Sergei Soloviev.
+
+(P)c 1993 M.I.R. Records USA
+
+### "Stare" 1996, Hard Rock
+
+    1.   Stare 
+    2.   California Promises 
+    3.   Five Wheel Drive 
+    4.   Ego 
+    5.   Stop the World... 
+    6.   Taiga 
+    7.   Don't Make Me Stay 
+    8.   Live for... 
+    9.   Scared 
+    10.   Animal Shelter 
+    11.   Ocean 
+
+
+Alexandre Minkov "Marshall"
+Alexandre Lvov
+Alexandre Janenkov "Jan"
+Alexei Belov
+
+Produced By GORKY PARK.
+Recorded At MIR Studios In Los Angeles (1,2).
+Additional Vocal Engineering by Tim Bamba.
+Recorded At Home In New York (3,4), 1990.
+Album Mixed At "One To One" Studios In Los Angeles By Erwin Musper.
+Engineered By Sergei Soloviev.
+
+(P)c 1996 СОЮЗ Records
+
+### "Protivofazza" 1998, Hard Rock
+
+
+
 
 ## Отношения с другими группами
 

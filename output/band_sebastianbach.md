@@ -1,10 +1,51 @@
 # Sebastian Bach
 
-Дискография
-"Bring 'Em Bach Alive" 1999, Hard Rock
-"Angel Down" 2007, Hard Rock
-"Kicking & Screaming" 2011, Hard Rock
-"Give 'Em Hell" 2014, Hard Rock
+ex-SKID ROW
+
+## Дискография
+
+### "Bring 'Em Bach Alive" 1999, Hard Rock
+
+Rock & Roll
+Done Bleeding 
+Superjerk, Superstar, Supertears 
+Blasphemer 
+Counterpunch 
+Slave to the Grind [Live] 
+Frozen [Live]
+18 & Life [Live] 
+Beat Yourself Blind [Live] 
+Riot Act [Live] 
+Mudkicker [Live] 
+In a Darkened Room [Live] 
+Monkey Business/Godzilla [Live] 
+The Most Powerful Man in the World [Live] 
+I Remember You [Live] 
+Youth Gone Wild [Live]
+
+### "Angel Down" 2007, Hard Rock
+
+
+
+### "Kicking & Screaming" 2011, Hard Rock
+
+
+
+### "Give 'Em Hell" 2014, Hard Rock
+
+01. Hell Inside My Head
+02. Harmony
+03. All My Friends Are Dead
+04. Temptation
+05. Push Away
+06. Dominator
+07. Had Enough
+08. Gun To A Knife Fight
+09. Rock N Roll Is A Vicious Game
+10. Taking Back Tomorrow
+11. Disengaged
+12. Forget You
+
 
 ## Отношения с другими группами
 

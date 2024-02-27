@@ -1,13 +1,54 @@
 # Orchid
 
-Дискография
-"Through The Devil's Doorway (EP)" 2009, Doom
-"Capricorn" 2011, Doom
-"Heretic (EP)" 2012, Doom
-"Wizard Of War (EP)" 2013, Doom
-"The Mouths Of Madness" 2013, Doom
-"The Zodiac Sessions (Compilation)" 2013, Doom
-"Sign Of The Witch" 2015, Doom
+
+
+## Дискография
+
+### "Through The Devil's Doorway (EP)" 2009, Doom
+
+1. Into The Sun
+2. Eastern Woman
+3. Son Of Misery
+4. No On Makes A Sound
+
+### "Capricorn" 2011, Doom
+
+1. Eyes Behind The Wall (7:13)
+2. Capricorn (4:40)
+3. Black Funeral (6:28)
+4. Masters Of It All (6:37)
+5. Down Into The Earth (6:24)
+6. He Who Walks Alone (6:49)
+7. Cosmonaut Of Three (5:44)
+8. Electric Father (7:19)
+9. Albatross (5:54)
+
+### "Heretic (EP)" 2012, Doom
+
+01. Heretic
+02. Falling Away
+03. Saviours Of The Blind
+04. He Who Walks Alone
+
+### "Wizard Of War (EP)" 2013, Doom
+
+
+
+### "The Mouths Of Madness" 2013, Doom
+
+
+
+### "The Zodiac Sessions (Compilation)" 2013, Doom
+
+
+
+### "Sign Of The Witch" 2015, Doom
+
+01. Sign Of The Witch
+02. John The Tiger
+03. On Strange Winds
+04. Burning Eastern Skies
+
 
 ## Отношения с другими группами
 

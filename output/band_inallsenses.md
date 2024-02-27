@@ -1,8 +1,34 @@
 # InAllSenses
 
-Дискография
-"The Experience" 2008, Thrash
-"Hysterical Psychosis" 2010, Thrash
+
+
+## Дискография
+
+### "The Experience" 2008, Thrash
+
+1. The Experience	 
+2. Return No More	 
+3. Inviolated	 
+4. Lady Nature	 
+5. Horror Without End	 
+6. Heaven Of Prises	 
+7. I Will Kill You	 
+8. Bad Society	 
+9. Light The Dark
+
+### "Hysterical Psychosis" 2010, Thrash
+
+1. Last Breath	 
+2. Red Line	 
+3. They Suck Your Soul	 
+4. Tommy's Grave	 
+5. Come Back To Hell	 
+6. Psycho Killer	 
+7. In The Gash	 
+8. This World		 
+9. Evil Time	 
+10. War and Death	 
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,41 @@
 # Ice Cube
 
-Дискография
-"The Predator" 1992, Rap Metal
-"Lethal Injection" 1993, Rap Metal
+
+
+## Дискография
+
+### "The Predator" 1992, Rap Metal
+
+1.  When Will They Shoot ?
+2.  I'm Scared (Insert)
+3.  Wicked
+4.  Now I Gotta Wet 'Cha
+5.  The Predator
+6.  It Was A Good Day
+7.  We Had To Tear This Fuck Up
+8.  Fuck'em (Insert)
+9.  Dirty Mack
+10.Gangsta's Fairytale 2
+11.Check Yo Self (Featuring Das EFX)
+12.Who Got The Camera ?
+
+(P)c 1992
+
+### "Lethal Injection" 1993, Rap Metal
+
+1.  The Shot (Intro)
+2.  Really Doe
+3.  Ghetto Bird
+4.  You Know How We Do It
+5.  Cave Bitch
+6.  Bop Gun (One Nation) (Featuring George Clinton)
+7.  What Can I Do
+8.  Lil Ass Gee
+9.  Make It Ruff, Make It Smooth (Featuring K-Dee)
+10.Down For Whatever
+
+(P)c 1993
+
 
 ## Отношения с другими группами
 

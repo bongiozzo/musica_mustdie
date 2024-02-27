@@ -1,9 +1,42 @@
 # Groinchurn
 
-Дискография
-"Sixtimesnine" 1997, Grindcore
-"Fink" 1998, Grindcore
-"Whoami" 2000, Grindcore
+
+
+## Дискография
+
+### "Sixtimesnine" 1997, Grindcore
+
+
+
+### "Fink" 1998, Grindcore
+
+  1.   Generic (Groinchurn) - 2:33 
+   2.   Repetition Works (Groinchurn) - 2:24 
+   3.   Already Dead (Groinchurn) - 2:49 
+   4.   Whole (Groinchurn) - 1:33 
+   5.   Ugly People (Groinchurn) - 1:04 
+   6.   Bridges Burn (Groinchurn) - 2:41 
+   7.   Principles of Mass Suggestion (Groinchurn) - :56 
+   8.   The Big Picture (Groinchurn) - 2:46 
+   9.   Just Passing Through (Groinchurn) - 2:59 
+   10.   More Different Than Different (Groinchurn) - 1:23 
+   11.   Being Ripped Off (Groinchurn) - 1:03 
+   12.   Open (Groinchurn) - 1:52 
+   13.   What About Them Injuries (Groinchurn) - 1:44 
+   14.   Sein (Chapman/Groinchurn/Tyrell) - 1:01 
+   15.   The Clock Is Ticking (Groinchurn) - 1:05 
+   16.   I Want to Be White (Groinchurn) - 1:57 
+   17.   Hollow (Groinchurn) - 1:38 
+   18.   Ninety-Nine (Groinchurn) - 1:51 
+   19.   I Will Say It (Groinchurn) - :32 
+   20.   - 2:22 
+   21.   - :06 
+
+
+### "Whoami" 2000, Grindcore
+
+
+
 
 ## Отношения с другими группами
 

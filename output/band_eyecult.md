@@ -1,7 +1,19 @@
 # Eyecult
 
-Дискография
-"Morituri Te Salutamus" 2009, Black Metal
+
+
+## Дискография
+
+### "Morituri Te Salutamus" 2009, Black Metal
+
+1. Aeternum 04:15  
+2. Saligia 04:01  
+3. Furor 04:36  
+4. Skuld 04:02  
+5. Oblivaeon 05:19  
+6. Ashes 04:14  
+7. Slave 05:56 
+
 
 ## Отношения с другими группами
 

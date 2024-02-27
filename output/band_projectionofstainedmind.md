@@ -1,7 +1,13 @@
 # Projection of Stained Mind
 
-Дискография
-"Projection of Stained Mind" 1991, Death Metal
+Collection of Sweden Brutal Bands
+
+## Дискография
+
+### "Projection of Stained Mind" 1991, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

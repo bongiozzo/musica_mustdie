@@ -1,6 +1,9 @@
 # Downthroat
 
-Дискография
+death/grind from Portugal
+
+## Дискография
+
 
 ## Отношения с другими группами
 

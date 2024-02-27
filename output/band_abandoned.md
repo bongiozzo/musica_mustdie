@@ -1,8 +1,17 @@
 # Abandoned
 
-Дискография
-"Thrash Notes" 2006, Thrash
-"Thrash You!" 2007, Thrash
+
+
+## Дискография
+
+### "Thrash Notes" 2006, Thrash
+
+
+
+### "Thrash You!" 2007, Thrash
+
+
+
 
 ## Отношения с другими группами
 

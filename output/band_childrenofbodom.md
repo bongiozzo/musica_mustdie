@@ -1,26 +1,296 @@
 # Children of Bodom
 
-Дискография
-"Shining (Demo)" 1996, Melodic Death Metal
-"Something Wild" 1997, Melodic Death Metal
-"Children of Bodom (single)" 1997, Melodic Death Metal
-"Downfall (single)" 1998, Melodic Death Metal
-"Hatebreeder" 1999, Melodic Death Metal
-"Tokyo Warhearts (live)" 1999, Melodic Death Metal
-"Follow the Reaper" 2000, Melodic Death Metal
-"Hate Me! (single)" 2000, Melodic Death Metal
-"You're Better Off Dead! (single)" 2002, Melodic Death Metal
-"Hate Crew Deathroll" 2003, Melodic Death Metal
-"Trashed, Lost & Strungout (single, EP, DVD-EP)" 2004, Melodic Death Metal
-"Are You Dead Yet?" 2005, Melodic Death Metal
-"In Your Face (single)" 2005, Melodic Death Metal
-"Chaos Ridden Years - Stockholm Knockout Live DVD/CD" 2006, Melodic Death Metal
-"Blooddrunk" 2008, Melodic Death Metal
-"Skeletons in the Closet" 2009, Melodic Death Metal
-"Relentless Reckless Forever" 2011, Melodic Death Metal
-"Halo of Blood" 2013, Melodic Death Metal
-"I Worship Chaos" 2015, Melodic Death Metal
-"I Worship Chaos (single)" 2015, Melodic Death Metal
+Very Professional and Technical Music
+
+## Дискография
+
+### "Shining (Demo)" 1996, Melodic Death Metal
+
+1. Talking Of The Trees - 5:19
+2. Vision Of Eternal Sorrow - 5:02
+3. Homeland I - 4:42
+4. Homeland II - Shining - 3:00
+
+### "Something Wild" 1997, Melodic Death Metal
+
+1. Deadnight Warrior
+2. In The Shaddows
+3. Red Light In My Eyes, pt. 1
+4. Red Light In My Eyes, pt. 2
+5. Lake Bodom
+6. The Nail
+7. Touch Like Angel Of Death
+
+(p)(c) 1997
+
+### "Children of Bodom (single)" 1997, Melodic Death Metal
+
+1. Children of bodom 
+2. Cryhavoc: Repent
+3. Wizzard: Iron, steel, metal
+
+### "Downfall (single)" 1998, Melodic Death Metal
+
+1.Downfall
+2.No commands
+
+### "Hatebreeder" 1999, Melodic Death Metal
+
+1. Warheart (4:08) 
+2. Silent Night, Bodom Night (3:12) 
+3. Hatebreeder (4:19) 
+4. Bed Of Razors (3:57) 
+5. Towards Dead End (4:54) 
+6. Black Widow (3:58) 
+7. Wrath Within (3:52) 
+8. Children Of Bodom (5:13) 
+9. Downfall (4:33)
+
+### "Tokyo Warhearts (live)" 1999, Melodic Death Metal
+
+1.Intro  
+2.Silent night...  
+3.Lake bodom  
+4.Warheart 
+5.Bed of razors 
+6.War of razors  
+7.Deadnight warrior 
+8.Hatebreeder
+9.Touch like angel of death  
+10.Downfall 
+11.Towards dead end
+
+### "Follow the Reaper" 2000, Melodic Death Metal
+
+1. Mask Of Sanity 
+2. Follow The Reaper 
+3. Northern Comfort 
+4. Every Time I Die 
+5. Taste Of My Scythe 
+6. Bodom After Midnight 
+7. Hate Me 
+8. Children Of Decadence 
+9. Kissing The Shadows 
+10. Shot In The Dark (Ozzy Osbourne cover) 
+
+### "Hate Me! (single)" 2000, Melodic Death Metal
+
+1.Hate me!
+2.Hellion
+
+### "You're Better Off Dead! (single)" 2002, Melodic Death Metal
+
+1. You're Better Of Dead! - 4:05
+2. Somebody Put Something In My Drink (Ramones Cover) - 3:19
+
+### "Hate Crew Deathroll" 2003, Melodic Death Metal
+
+1. Needled 24/7
+2. Sixpounder
+3. Chokehold (cocked'n'loaded)
+4. Bodom Beach Terror
+5. Angel's  don't Kill
+6. Triple Corpse Hammerblow
+7. You're Better Off Dead
+8. Lil' Bloodred Ridin' Hood
+9. Hate Crew Deathroll
+
++ bonus tracks
+10. Silent Scream
+11. Don't Stop At The Top
+
+### "Trashed, Lost & Strungout (single, EP, DVD-EP)" 2004, Melodic Death Metal
+
+CD-Single:
+
+01. Trashed, Lost & Strungout
+02. She Is Beautiful (ANDREW W.K. cover)
+
+CD-EP:
+
+01. Trashed, Lost & Strungout
+02. Knuckleduster
+03. Bed of Nails (ALICE COOPER cover)
+04. She Is Beautiful (ANDREW W.K. cover)
+
+Enhanced Portion:
+
+* "Trashed, Lost & Strungout" video
+* "Trashed, Lost & Strungout" live in Helsinki
+* Video footage of CHILDREN OF BODOM's night out
+
+DVD-EP:
+
+01. Trashed, Lost & Strungout (video / 5.1 & stereo)
+02. Knuckleduster (audio / 5.1 & stereo)
+03. Bed of Nails (audio / stereo / ALICE COOPER cover)
+04. She Is Beautiful (audio / stereo / ANDREW W.K. cover)
+05. ANDREW W.K. greets CHILDREN OF BODOM (video footage from Japan)
+06. Angels Don't Kill (remix) (5.1 & stereo)
+07. "Trashed, Lost & Strungout" live in Helsinki + video footage of COB's night out (stereo)
+08. Sixpounder (video / 5.1 & stereo)
+09. Downfall (live at Tuska festival) (video / 5.1 & stereo)
+10. Everytime I Die (live at Tuska festival) (video / 5.1 & stereo)
+
+### "Are You Dead Yet?" 2005, Melodic Death Metal
+
+01. Living Dead Beat 
+02. Are You Dead Yet? 
+03. If You Want Peace... Prepare for War 
+04. Punch Me I Bleed 
+05. In Your Face
+06. Next in Line 
+07. Bastards of Bodom 
+08. Trashed, Lost & Strungout 
+09. We're Not Gonna Fall
+
+### "In Your Face (single)" 2005, Melodic Death Metal
+
+1. In Your Face 
+2. Oops I Did It Again (Britney Spears cover) 
+3. In Your Face (censored version)
+
+### "Chaos Ridden Years - Stockholm Knockout Live DVD/CD" 2006, Melodic Death Metal
+
+Living Dead Beat
+Sixpounder
+Silent Night, Bodom Night
+Hate Me!
+We're Not Gonna Fall
+Angels Don't Kill
+Deadbeats I (drum solo)
+Bodom After Midnight /
+Bodom Beach Terror - medley
+Follow the Reaper 
+Needled 24/7
+Clash of the Booze Brothers (solo battle)
+In Your Face
+Hate Crew Deathroll
+Are You Dead Yet?
+Solo: Roope Latvala - Guitar
+Lake Bodom
+Everytime I Die
+Downfall
+
+Total running time 97 minutes
+
+
+Disc 1
+1. Living Dead Beat
+2. Sixpounder
+3. Silent Night, Bodom Night
+4. Hate Me!
+5. We're Not Gonna Fall
+6. Angels Don't Kill
+7. Deadbeats I 
+8. Bodom After Midnight /
+Bodom Beach Terror - medley
+9. Follow the Reaper 
+
+Disc 2 
+1. Needled 24/7
+2. Clash of the Booze Brothers 
+3. In Your Face
+4. Hate Crew Deathroll
+5. Are You Dead Yet?
+6. Latvala - Guitar Solo
+7. Lake Bodom
+8. Everytime I Die
+9. Downfall
+
+### "Blooddrunk" 2008, Melodic Death Metal
+
+1. Hellhounds On My Trail 03:58  
+2. Blooddrunk 04:05  
+3. LoBodomy 04:24  
+4. One Day You Will Cry 04:05  
+5. Smile Pretty For The Devil 03:54  
+6. Tie My Rope 04:14  
+7. Done With Everything, Die For Nothing 03:29  
+8. Banned From Heaven 05:05  
+9. Roadkill Morning 03:32 
+
+Bonus track:
+10. Ghost Riders In The Sky 
+
+
+Blooddrunk was recorded and produced by Mikko Karmila, in Petrax and Finnvox
+Studios, Finland, during October, November and December 2007, except vocals
+recorded by Peter Tдgtren and keyboards recorded by Janne Wirman in Petrax
+Studios, Finland, during October, November and December 2007. Mixed at Finnvox
+by Mikko Karmila in November 2007, Mastered at Finnvox by Mika Jussila in
+December 2007.
+
+### "Skeletons in the Closet" 2009, Melodic Death Metal
+
+1. Lookin' Out My Back Door (Creedence Clearwater Revival) 02:09
+2. Hell is for Children (Pat Benatar) 04:01
+3. Somebody Put Something In My Drink (Ramones) 03:17
+4. Mass Hypnosis (Sepultura) 04:03
+5. Donґt Stop at the Top (Scorpions) 03:25
+6. Silent Scream (Slayer) 03:18
+7. She is Beautiful (Andrew W.K.) 03:27
+8. Just Dropped In (To See What Condition My Condition Was In) (Kenny Rogers) 02:39
+9. Bed of Nails (Alice Cooper) 03:54
+10. Hellion (W.A.S.P.) 03:01
+11. Aces High (Iron Maiden) 04:30
+12. Rebel Yell (Billy Idol) 04:12
+13. No Commands (Stone) 04:49  
+14. Antisocial (Trust) 03:36
+15. Talk Dirty To Me (Poison) 03:36
+16. War Inside My Head (Suicidal Tendencies) 03:25
+17. Ooops!... I Did It Again (Britney Spears) 
+
+### "Relentless Reckless Forever" 2011, Melodic Death Metal
+
+1. Not My Funeral   
+2. Shovel Knockout   
+3. Roundtrip to Hell and Back   
+4. Pussyfoot Miss Suicide   
+5. Relentless Reckless Forever   
+6. Ugly   
+7. Cry of the Nihilist   
+8. Was It Worth It?   
+9. Northpole Throwdown   
+10. Party All the Time (Eddie Murphy cover) 
+
+
+### "Halo of Blood" 2013, Melodic Death Metal
+
+1. Waste Of Skin
+2. Halo Of Blood
+3. Scream For Silence
+4. Transference
+5. Bodom Blue Moon (The Second Coming)
+6. The Days Are Numbered
+7. Dead Man's Hand On You
+8. Damage Beyond Repair
+9. All Twisted
+10. One Bottle And A Knee Deep 
+
+### "I Worship Chaos" 2015, Melodic Death Metal
+
+1. I Hurt      
+2. My Bodom (I Am the Only One)      
+3. Morrigan  
+4. Horns     
+5. Prayer for the Afflicted  
+6. I Worship Chaos     
+7. Hold Your Tongue   
+8. Suicide Bomber     
+9. All for Nothing     
+10. Widdershins      
+11. Mistress of Taboo (Plasmatics cover)
+12. Danger Zone (Kenny Loggins cover)  
+13. Black Winter Day (Amorphis cover)  
+
+Recorded at Danger Johnny Studios in Helsinki, Finland.
+Mixed and mastered at Finnvox Studios in Helsinki, Finland.
+
+### "I Worship Chaos (single)" 2015, Melodic Death Metal
+
+
+
 
 ## Отношения с другими группами
 

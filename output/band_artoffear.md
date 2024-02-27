@@ -1,7 +1,13 @@
 # Art of Fear
 
-Дискография
-"Master Of Pain" 2004, Power Metal
+power-metal from Austria
+
+## Дискография
+
+### "Master Of Pain" 2004, Power Metal
+
+
+
 
 ## Отношения с другими группами
 

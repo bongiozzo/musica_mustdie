@@ -1,10 +1,78 @@
 # In Mourning
 
-Дискография
-"Shrouded Divine" 2008, Death Doom
-"Monolith" 2010, Death Doom
-"The Weight Of Oceans" 2012, Death Doom
-"Afterglow" 2016, Melodic Death Metal
+
+
+## Дискография
+
+### "Shrouded Divine" 2008, Death Doom
+
+1. The Shrouded Divine 07:11  
+2. Amnesia 03:35  
+3. In The Failing Hour 04:22  
+4. By Others Considered 06:24  
+5. Grind Denial 04:28  
+6. The Art Of A Mourning Kind 05:29  
+7. The Black Lodge 08:13  
+8. Past October Skies 06:33 
+
+
+ 
+Recorded, Produced, Mixed and Mastered at Black Lounge Studio, Avesta,
+By Jonas Kjellgren. August 2007.
+
+All music by Tobias Netzell and In Mourning.
+Artwork and layout by Mattias Lindstr&#246;m.
+
+Lineup:
+Tobias Netzell - Guitar & Vocals
+Bj&#246;rn Pettersson - Guitar
+Tim Nederg&#229;rd - Guitar
+Pierre Stam - Bass
+Christian Netzell - Drums
+
+### "Monolith" 2010, Death Doom
+
+1. For You To Know 
+2. Debris 
+3. The Poet And The Painter Of Souls 
+4. The Smoke 
+5. A Shade Of Plague 
+6. With You Came Silence 
+7. Pale Eye Revelation 
+8. The Final Solution (Entering The Black Lodge)
+
+
+### "The Weight Of Oceans" 2012, Death Doom
+
+01. Colossus 09:33 
+02. A Vow To Conquer The Ocean 07:24 
+03. From A Tidal Sleep 06:52 
+04. Celestial Tear 07:44 
+05. Convergence 08:35 
+06. Sirens 01:32 
+07. Isle Of Solace 04:53 
+08. The Drowning Sun 04:53 
+09. Voyage Of A Wavering Mind 05:50
+
+
+Pierre Stam - Bass 
+Christian Netzell - Drums 
+Tobias Netzell - Guitars, Vocals 
+Bjцrn Pettersson - Guitars 
+Tim Nedergеrd - Guitars
+
+Recorded in sessions during later parts of 2011 in the Abyss and Black Lounge studios in Sweden, again together with engineer Jonas Kjellgren. 
+
+### "Afterglow" 2016, Melodic Death Metal
+
+1. Fire and Ocean 
+2. The Grinning Mist 
+3. Ashen Crown 
+4. Below Rise to the Above 
+5. The Lighthouse Keeper 
+6. The Call to Orion 
+7. Afterglow 
+
 
 ## Отношения с другими группами
 

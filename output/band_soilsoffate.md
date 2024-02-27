@@ -1,7 +1,13 @@
 # Soils of Fate
 
-Дискография
-"Crime Syndicate" 2003, Death Metal
+
+
+## Дискография
+
+### "Crime Syndicate" 2003, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

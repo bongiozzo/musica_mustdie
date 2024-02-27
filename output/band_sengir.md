@@ -1,8 +1,49 @@
 # Sengir
 
-Дискография
-"Guilty Water" 2003, Gothic
-"Sign Of Devotion" 2006, Gothic
+
+
+## Дискография
+
+### "Guilty Water" 2003, Gothic
+
+1. Intro 01:24  
+2. Soul's Alive 04:11 
+3. Moonlight Reflection 06:49  
+4. Times Of Change 05:39  
+5. Feel 03:07 
+6. Cry Before The War 04:57  
+7. ACS 05:28  
+8. Ultimate Rest 04:01  
+9. Out Of Hurt 03:07  
+10. Guilty Water 07:34  
+11. Outro 01:05 
+
+Recorded & produced by Xavier Carion (of Channel Zero fame).
+Mastered by Alan Ward.
+Artwork by Kitty Van Der Veer for Caretaker Creations.
+
+### "Sign Of Devotion" 2006, Gothic
+
+1. Calling 03:56  
+2. Time 05:36  
+3. Conscience's Awake 03:29  
+4. Close to the Bone 04:36  
+5. My Defence 02:54  
+6. Day You Take Me Over 04:42  
+7. Back To Reason 04:09  
+8. Silver Ligning 03:24  
+9. Disbelief 06:59  
+10. Prove Me Wrong 04:35  
+11. Lose the Moment 04:15 
+
+
+Ellen Schutyser - Vocals
+Pieter De Lannoy - Guitars
+Wim Schockaert - Keyboards
+Olivier Roelandt - Bass
+Bruno Goedhuys - Drums
+Frederik De Dobbeleer - Guitars
+
 
 ## Отношения с другими группами
 

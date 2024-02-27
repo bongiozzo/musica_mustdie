@@ -1,15 +1,209 @@
 # Benediction
 
-Дискография
-"Subconcscious Terror" 1990, Death Metal
-"The Grand Leveller" 1991, Death Metal
-"Dark Is the Season [EP]" 1992, Death Metal
-"Transcend the Rubicon" 1993, Death Metal
-"The Grotesque - Ashen Epitaph [EP]" 1994, Death Metal
-"The Dreams You Dread" 1995, Death Metal
-"Grind Bastard" 1998, Death Metal
-"Organised Chaos" 2001, Death Metal
-"Killing Music" 2006, Death Metal
+Classic English Death
+
+## Дискография
+
+### "Subconcscious Terror" 1990, Death Metal
+
+1. Intro-Portal To Your Phobias
+2. Subconscious Terror
+3. Artefacted Irreligion
+4. Grizzled Finale
+5. Eternal Eclipse
+6. Experimental Stage
+7. Suspended Animation
+8. Divine Ultimatum
+9. Spit Forth The Dead
+
+ Ian Treacy - Drums
+ Peter Rewinski - Lead Guitar
+ Mark "Barney" Greenway - Vocal
+ Paul Adams - Bass
+ Darren Brookes - Rhythm Guitar
+
+Produced By Mick Harris & BENEDICTION.
+Recorded & Mixed At Soundcheck Studios,
+Birmingham In September 1989 And January 1990.
+Engineered By Pete (Sonic) Gault.
+
+(p)&(c) 1990 NUCLEAR BLAST Records NB033
+
+### "The Grand Leveller" 1991, Death Metal
+
+1. Vision In The Shroud
+2. Graveworm
+3. Jumping At Shadows
+4. Opulence Of The Absolute
+5. Child Of Sin
+6. Undirected Aggression
+7. Born In A Fever
+8. The Grand Leveller
+
+ Dave Ingram - Vocal
+ Ian Treacy - Drums
+ Peter Rewinski - Guitar
+ Paul Adams - Bass
+ Darren Brookes - Guitar
+
+Produced By Paul Johnson & BENEDICTION.
+Recorded At Silverbirch Studios,Birmingham,
+England,May 1991.
+Engineered By Gez Finnegam.
+
+(p)&(c) 1991 NUCLEAR BLAST Records NB048
+
+### "Dark Is the Season [EP]" 1992, Death Metal
+
+1. Foetus Noose
+2. Forged In Fire
+3. Dark In The Season
+4. Jumping At Shadows
+5. Experimental Stage
+
+ Dave Ingram - Vocal
+ Ian Treacy - Drums
+ Peter Rewinski - Guitar
+ Paul Adams - Bass
+ Darren Brookes - Guitar
+
+(p)&(c) 1992 NUCLEAR BLAST Records NB059
+
+### "Transcend the Rubicon" 1993, Death Metal
+
+1. Unfound Mortality
+2. Nightfear
+3. Paradox Alley
+4. I Bow To None
+5. Painted Skulls
+6. Violation Domain
+7. Face Without Soul
+8. Breakhouse
+9. Blood From Stone
+10.Wrong Side Of The Grave *
+
+ Dave Ingram - Vocal
+ Ian Treacy - Drums
+ Peter Rewinski - Guitar
+ Paul Adams - Bass
+ Darren Brookes - Guitar
+
+All Music By BENEDICTION.
+Except * By ACCUSED.
+Produced By Paul Johnson & BENEDICTION.
+Engineered & Mixed By Paul Johnson.
+Recorded At Rhythm Studios, Bidford, England,
+During October 1992.
+
+(p)&(c) 1993 NUCLEAR BLAST Records
+
+### "The Grotesque - Ashen Epitaph [EP]" 1994, Death Metal
+
+1. The Grotesque
+2. Ashen Epitaph
+3. Violation Domain  / Live
+4. Subconscious Terror / Live
+5. Vision In The Shroud / Live
+
+(p)(c) 1994 Nuclear Blast
+
+### "The Dreams You Dread" 1995, Death Metal
+
+1. Down On Whores (Leave Them All For Dead) 5:23
+2. Certified... ? 2:30
+3. Soulstream 4:13
+4. Where Flies Are Born 4:41
+5. Answer To Me 4:38
+6. Griefgiver 4:59
+7. Denial 5:29
+8. Negative Growth 3:41
+9. Path Of The Serpent 3:32
+10.Saneless Theory 4:12
+11.The Dreams You Dread 2:13
+
+Peter Rew
+Darren Brookes
+Dave Ingram
+Frank Healy
+Neil Hutton
+
+Production team by Crazy Al King & Paul Johnston
+Technicians : Lee _Fat Bloke_ Smith & The Colonel
+Management by Craig Fenney for Rubicon Management
+Paperwork by John, Seeley & Jeene Jones
+
+'The Dreams You Dread' was recorded at Rhythm Studios during
+February 1995. Produced by Benediction, Paul Johnston 
+& Markus Staiger
+
+Cover art by David Palsar
+
+(P)c 1995 NUCLEAR BLAST Records
+
+### "Grind Bastard" 1998, Death Metal
+
+1. Deadfall 
+2. Agonised 
+3. West of Hell 
+4. Magnificat (Irenicon) 
+5. Nervebomb 
+6. Electric Eye 
+7. Grind Bastard 
+8. Shadow World 
+9. Bodiless 
+10.Carcinoma Angel 
+11.We the Freed 
+12.Destroyer 
+13.I 
+14. We Are The League (Bonustrack)
+
+Darren Brookes (Guitar)
+Peter Rew (Guitar)
+Dave Ingram (Vocals)
+Frank Healy (Bass)
+Neil Hutton (Drums)
+
+Al King Producer
+Andy Sneap Producer
+Paul Johnston Producer
+
+
+### "Organised Chaos" 2001, Death Metal
+
+Suicide Rebellion
+Stigmata
+Suffering Feeds Me
+Diary Of A Killer
+The Temple Of Set
+Nothing On The Inside
+Easy Way To Die
+Don`t Look In The Mirror
+This Graveyard Earth
+Charon
+I Am The Disease
+Organised Chaos
+
+
+
+Darren Brookes - guitars
+Peter Rew - guitars
+Neil Hutton - drums
+Frank Healy - bass
+Dave Hunt - vocals
+
+
+
+All songs written by Darren Brookes
+Produced by Andy Sneap
+Engineered by Paul 'PJ' Johnson
+
+
+
+
+### "Killing Music" 2006, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

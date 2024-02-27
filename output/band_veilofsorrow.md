@@ -1,7 +1,22 @@
 # Veil of Sorrow
 
-Дискография
-"Dark Rivers of the Heart" 2001, Gothic
+
+
+## Дискография
+
+### "Dark Rivers of the Heart" 2001, Gothic
+
+1.	 In the Midnight Hour	04:09
+2.	 Soulcaptive	05:42
+3.	 The Dark Within	03:42
+4.	 Scars	04:00
+5.	 Shades of Grey	06:18
+6.	 Remnants of a Dying Sun	06:17
+7.	 Well of Broken Wishes	05:51
+8.	 Silent Fall	06:04
+9.	 Disconnected	06:34
+10.	 Words Mean Nothing	05:06	
+
 
 ## Отношения с другими группами
 

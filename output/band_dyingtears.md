@@ -1,8 +1,61 @@
 # Dying Tears
 
-Дискография
-"Amnesia" 2001, Death Doom
-"Spleen & Hope" 2003, Gothic
+French gothic doom metal
+
+## Дискография
+
+### "Amnesia" 2001, Death Doom
+
+1- Intro 
+2- Insanity's Gates 
+3- Melusine (Or The Well Of Thursty Gladness) 
+4- Rain Dance 
+5- Interlude 
+6- Once Upon Hypocrisy 
+7- Bleed For Us 
+8- The Journey 
+9- It's Coming 
+10- Amnesia 
+
+
+Rose VIGNAT : Vocals
+Johann BRIENT : Vocals
+Nicolas VILLETELLE : Lead Guitar
+Julie HENAU : Keyboard
+Wojtek JEZAK : Rythm Guitar
+Fred WELKER : Drums
+Ghislain DE MORANT : Bass
+Claire SERRA : Cello  
+
+### "Spleen & Hope" 2003, Gothic
+
+1. SPLEEN
+2. SAD
+3. BENEATH THE SOILS
+4. NOTHING TO LOSE
+5. LAST KISS: DOWN
+6. LAST KISS: DEEP
+7. THE DOORS OF HEAVEN
+8. FLAMES
+9. GREYVOLUTION
+10. THE OTHER WORLD
+11. HOPE
+
+
+Jenni SIGNORINO : Vocals
+Stephane MONTIEL : Vocals
+Nicolas VILLETELLE : Lead Guitar
+Julie HENAU : Keyboard
+Wojtek JEZAK : Rythm Guitar
+Fred W. : Drums
+Ghislain DE MORANT : Bass
+Claire SERRA : Cello  
+
+Special Guests :
+Yann GARNIER : Flute
+Marie-Dannielle DAUBE : Violin
+Jean ETEVE : Saxophone
+
 
 ## Отношения с другими группами
 

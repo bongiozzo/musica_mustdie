@@ -1,8 +1,29 @@
 # Majesty
 
-Дискография
-"The Crown Of Scorpio" 1996, Doom
-"Doomsday Machine" 2001, Doom
+Romantic Gothic Dark Doom Metal
+
+## Дискография
+
+### "The Crown Of Scorpio" 1996, Doom
+
+1.  Nothingness Fornevermore
+2.  Upon The Blood Red
+3.  Blessed Aloof
+
+(P)c 1996 TER-006
+
+### "Doomsday Machine" 2001, Doom
+
+1. Embraced by Dawn 
+2. Reptilian Temptation 
+3. Realm of Confusion 
+4. Deadwood 
+5. I Walk Without a Sound     
+6. Doomsday Machine 
+
+All music and lyrics and performed by Marco "Gravehill" Hautamaki
+All instruments by Marco "Gravehill" Hautamaki
+
 
 ## Отношения с другими группами
 

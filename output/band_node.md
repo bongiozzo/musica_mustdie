@@ -1,12 +1,97 @@
 # Node
 
-Дискография
-"Ask" 1996, Death Metal
-"Technical Crime" 1998, Melodic Death Metal
-"Sweatshops" 2002, Melodic Death Metal
-"Das Kapital" 2004, Melodic Death Metal
-"As God Kills" 2006, Melodic Death Metal
-"In The End Everything Is A Gag" 2010, Melodic Death Metal
+
+
+## Дискография
+
+### "Ask" 1996, Death Metal
+
+1.  Virtual God
+2.  Gyves Of Lies
+3.  Empty Spaces
+4.  Ask
+5.  Unaffected
+
+Recorded and Mixed at Music House Studio
+Produced by Steve Minelli and NODE
+Engineered by Paul Sannazzaro
+Cover artwork by Ricky "The pinball wizard" Andreoni.
+
+(P)c 1996 LUCRETIA Records
+
+### "Technical Crime" 1998, Melodic Death Metal
+
+1. As God Wills	 
+2. Introspection	 
+3. New xxx	 
+4. Fall in Your Eyes	 
+5. Ask (1997 Version)	 
+6. Children	 
+7. Beautiful Crime	 
+8. Tronic Prophecy	 
+9. Hymn 43 (Jethro Tull cover)
+
+### "Sweatshops" 2002, Melodic Death Metal
+
+1. History Seeds
+2. Jerry Mander
+3. Sacristan’ Scorn Towards Water
+4. Bloody Hills
+5. Behaviours
+6. Last Doctor
+7. No Title, No Bible
+8. Thanathophobia
+9. The Plot Thickens
+
+### "Das Kapital" 2004, Melodic Death Metal
+
+1. War Goes On
+2. Twenties
+3. Outpost
+4. The East-Ghost
+5. Das Kapital
+6. Retreat '42
+7. Weaknessphere
+8. The Plot Sickens
+9. One Way Media
+10. Empire (Queensryche cover)
+11. Few Words Agai
+
+### "As God Kills" 2006, Melodic Death Metal
+
+1. Shotgun Blast Propaganda; 
+2. As God Kills; 
+3. Hellywood; 
+4. Cancer; 
+5. RedRum; 
+6. Old Nick; 
+7. Watcher Of A Failed Generation; 
+8. Through Fail And Foul; 
+9. Truth Is Out; 
+10. The Manhattan Project
+
+All songs written by NODE
+Produced by Pelle Saether and NODE
+Engineered and mixed by Pelle Saether
+Recorded and mixed at UNderground Studios, Sweden
+
+Daniel Botti - Vocals, Guitars
+Gary D'Eramo - Guitars, Lead Guitars, Clean Vocals
+Klaus Mariani - Bass
+Marco Di Salvia - Drums
+
+### "In The End Everything Is A Gag" 2010, Melodic Death Metal
+
+1. 100% Hate	 
+2. The White Is Burning	 
+3. When I Believed In God	 
+4. This Ocean	 
+5. New Order	 
+6. Mia Follow Me Down	 
+7. All My Faults	 
+8. The Masks Of Life	 
+9. In Death You Live
+
 
 ## Отношения с другими группами
 

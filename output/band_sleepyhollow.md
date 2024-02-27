@@ -1,8 +1,25 @@
 # Sleepy Hollow
 
-Дискография
-"Sleepy Hollow" 1991, Heavy Metal
-"Skull 13" 2011, Heavy Metal
+
+
+## Дискография
+
+### "Sleepy Hollow" 1991, Heavy Metal
+
+1. Darkness  00:53   
+2. Last Rites  02:33  
+3. Freedom Condemned  05:22   
+4. Hazardous  03:50  
+5. Eighth Wonder  06:04  
+6. Final Conflict  05:41   
+7. Children of the Sea (Black Sabbath cover)  05:37   
+8. Darkness (Reprise)  00:56 
+9. Iggy's Audi  00:33 
+
+### "Skull 13" 2011, Heavy Metal
+
+
+
 
 ## Отношения с другими группами
 

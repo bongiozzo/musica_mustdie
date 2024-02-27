@@ -1,14 +1,97 @@
 # Vicious Crusade
 
-Дискография
-"Life That Kills" 1997, Death Doom
-"Faces Of Vice" 1997, Death Doom
-"The Unbroken" 2000, Death Doom
-"Messiah...Isn't It Me?" 2001, Death Doom
-"Forbidden Tunes" 2002, Death Doom
-"My Cruel Mirror (single)" 2008, Folk
-"Freedom Comes" 2009, Folk
-"End Of Line (single)" 2011, Folk
+Whiterussian Death-Doom-Thrash
+
+## Дискография
+
+### "Life That Kills" 1997, Death Doom
+
+
+
+### "Faces Of Vice" 1997, Death Doom
+
+
+
+### "The Unbroken" 2000, Death Doom
+
+Masquerade Of Piety
+The Unbroken
+Dogs Of Justice
+Land Of Lakes
+Vicious Circle
+Exalted Liar
+Theodore's Song
+Who Are These Men?
+Patriot Games
+Polka
+Final Chapter
+The Verge Of Extinction (bonus)
+Pariah (bonus)
+
+### "Messiah...Isn't It Me?" 2001, Death Doom
+
+
+
+### "Forbidden Tunes" 2002, Death Doom
+
+ 
+ 1. Forbidden Tunes (4:15)
+ 2. Lost Generation (4:56)
+ 3. Get Stripped! (4:25)
+ 4. Hurt (5:06)
+ 5. Requiem To Innocence (5:36)
+ 6. Messiah... Isn't It Me? (5:49)
+ 7. Let It Burn (4:19)
+ 8. Dancing On The Ledge (7:12)
+ 9. Vogue™ (4:45)
+10. Breath Of Life (3:39)
+11. Stigmata (3:54)
+ 
+
+
+
+### "My Cruel Mirror (single)" 2008, Folk
+
+1. My Cruel Mirror 
+2. Айчына (Live) 
+
+Состав:
+Дмитрий Басик - вокал, соло-гитара
+Татьяна Лабода - вокал
+Баграт Вартанян - скрипка
+Алексей Вертель - ритм-гитара
+Сергей Одинец - бас
+Алексей Гладыш - барабаны
+
+
+
+### "Freedom Comes" 2009, Folk
+
+1. Dress Me Black 03:45  
+2. Bang The Drum 05:06  
+3. Freedom Comes 05:09  
+4. The Man With Heart Of Gold 04:42  
+5. Another Hero 06:18  
+6. My Cruel Mirror 06:05 
+7. Dreaming 05:34  
+8. Hellbound 03:42  
+9. A Day To Feel Alive 05:13  
+10. For The Last Time 03:55  
+11. Rock You Up! 05:43 
+
+
+
+Dmitrij Basik - Guitar, Vocals
+Tatjana Laboda - Vocals
+Aleksej Vertel - Guitar
+Sergej 'Markus' Odinec - Bass 
+Aleksey Gladysh - Drums
+Bagrat Vartanjan - Violin
+
+### "End Of Line (single)" 2011, Folk
+
+1. End Of Line 04:14
+
 
 ## Отношения с другими группами
 

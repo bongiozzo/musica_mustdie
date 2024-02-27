@@ -1,11 +1,85 @@
 # Khors
 
-Дискография
-"The Flame of Eternity's Decline" 2005, Black Metal
-"Cold" 2006, Black Metal
-"Cold Ways [DVD]" 2008, Black Metal
-"Mysticism" 2008, Black Metal
-"Return To Abandoned" 2010, Black Metal
+
+
+## Дискография
+
+### "The Flame of Eternity's Decline" 2005, Black Metal
+
+1. Wounds of the past 04:39
+2. Eyes of eternal lonelyness 04:30
+3. Throne of antiquity 05:10 
+4. Trees are remembers... 04:50 
+5. Breath 02:08  
+6. Moan of the grief 05:30 
+7. Spirit of fury 04:09
+8. Flame of eternity 06:44 
+
+Recorded in AudioALchemia Studio/Kharkiv/Ukraine December 2004 - January 2005
+Engineered by Dmitriy Bondarenko
+Mixed and mastered in Buddha-Cat Studio/Moscow/Russia in February 2005
+Engineered by Michael "Maiden" Smirnoff
+Produced by Khorus
+All music written by Khorus
+All lyrics written by Khorus, except "Eyes Of Eternal Lonelyness" & "Trees are
+remembers..." by Helg
+Arranged by Khorus, Helg, Khaoth, Saturious
+Art direction and concept by Sir Gorgoroth & Khorus
+Design by Sir Gorgoroth
+Logo by Aquarius 
+
+### "Cold" 2006, Black Metal
+
+1. Cold 05:20
+2. Ashes 04:24 
+3. Garnet 04:39 
+4. Misery 06:47
+5. Concious Burning 05:33
+6. Whispers 02:25  
+7. In the Depths of the Black Hills 05:27
+8. The Abyss 03:21 
+
+### "Cold Ways [DVD]" 2008, Black Metal
+
+1. Cold 05:26  
+2. Ashes 04:22  
+3. Spirit Of Fury 03:57  
+4. Moan Of The Grief 05:02  
+5. In The Depths Of Black Hills 05:29  
+6. Garnet 04:41  
+7. Trees Are Remembers... 05:11  
+8. Garnet 04:38  
+9. Ashes 04:20  
+10. Trees Are Remembers... 05:16 
+
+DVD includes live show in
+01-07 - Hot Jam Club, Lugansk, Ukraine, 07.11.2007
+08-10 - And bonus tracks from live show in
+Relax Club, Moscow, Russia, 02.02.2008 
+
+### "Mysticism" 2008, Black Metal
+
+1. Through the Rays of Fading Moon 02:54  
+2. Raven's Dance 07:20  
+3. Milk of Heavens 04:07  
+4. Winterfall 06:28  
+5. In the Cold Embrace of Mist 05:27  
+6. Pagan Scars 03:37  
+7. Mysticism 04:36  
+8. Red Mirrors 04:11 
+
+### "Return To Abandoned" 2010, Black Metal
+
+1. The Arrival (intro) 00:46  
+2. Lost Threads 03:52  
+3. Asgard's Shining 06:18  
+4. Song of the Void 05:44  
+5. The Fog (...and Grief Still Moans) 05:56  
+6. Mysteries Cosmos 04:27  
+7. The Seas Burn of Omnipotence 09:52  
+8. Sacrament of Buyan 05:30 
+
+
 
 ## Отношения с другими группами
 

@@ -1,22 +1,845 @@
 # TOTO
 
-Дискография
-"TOTO" 1978, Metal
-"Hydra" 1979, Metal
-"Turn Back" 1981, Metal
-"TOTO IV" 1982, Metal
-"Isolation" 1984, Metal
-"Fahrenheit" 1986, Metal
-"The Seventh One" 1988, Metal
-"Past To Present" 1990, Metal
-"Kingdom of Desire" 1992, Metal
-"Tambu" 1995, Metal
-"Dune" 1997, Metal
-"Mindfields" 1999, Metal
-"Throught The Looking Glass" 2003, Metal
-"Falling To Between" 2006, Metal
-"Bottom Of Your Soul" 2006, Metal
-"Falling In Between Live (2CD)" 2007, Metal
+AOR
+
+## Дискография
+
+### "TOTO" 1978, Metal
+
+CHILD'S ANTHEM 
+(Instrumental)
+Writer: David Paich 
+I'LL SUPPLY THE LOVE 
+Lead Vocal: Bobby Kimball
+Writer: David Paich
+
+GEORGY PORGY 
+Lead Vocal: Steve Lukather
+Writer: David Paich
+
+MANUELA RUN 
+Lead Vocal: David Paich
+Writer: David Paich
+
+YOU ARE THE FLOWER 
+Lead Vocal: Bobby Kimball
+Writer: Bobby Kimball
+
+GIRL GOODBYE
+Lead Vocal: Bobby Kimball
+Writer: David Paich
+
+TAKIN' IT BACK
+Lead Vocal: Steve Porcaro
+Writer: Steve Porcaro
+
+ROCKMAKER
+Lead Vocal: David Paich
+Writer: David Paich
+
+HOLD THE LINE
+Lead Vocal: Bobby Kimball
+Writer: David Paich
+
+ANGELA
+Lead Vocal: Steve Lukather
+Writer: David Paich
+
+David Hungate - Bass
+Bobby Kimball - Vocals
+Steve Lukather - Guitars, Vocals
+David Paich - Keyboards, Vocals
+Jeff Porcaro - Drums, Percussion
+Steve Porcaro - Keyboards, Vocals
+
+### "Hydra" 1979, Metal
+
+HYDRA
+Lead Vocals: David Paich
+Writers: David Paich, Steve Porcaro, Jeff Porcaro, Steve Lukather, Bobby Kimball, David Hungate
+
+
+ST. GEORGE AND THE DRAGON
+Lead Vocal: Bobby Kimball
+Writer: David Paich
+
+99
+Lead Vocal: Steve Lukather
+Writer: David Paich
+
+LORRAINE
+Lead Vocal: David Paich
+Writer: David Paich
+
+ALL US BOYS
+Lead Vocal: David Paich
+Writer: David Paich
+
+MAMA
+Lead Vocal: Bobby Kimball
+Writers: David Paich and Bobby Kimball
+
+WHITE SISTER
+Lead Vocal: Bobby Kimball
+Writers: David Paich and Bobby Kimball
+
+A SECRET LOVE
+Lead Vocal: Steve Porcaro
+Writers: Steve Porcaro, David Paich and Bobby Kimball
+
+David Hungate - Bass
+Bobby Kimball - Vocals
+Steve Lukather - Guitars, Vocals
+David Paich - Keyboards, Vocals
+Jeff Porcaro - Drums, Percussion
+Steve Porcaro - Keyboards, Vocals
+
+### "Turn Back" 1981, Metal
+
+GIFT WITH A GOLDEN GUN 
+Lead Vocals: Bobby Kimball
+Writer: David Paich and Bobby Kimball 
+ENGLISH EYES 
+Lead Vocal: Bobby Kimball
+Writer: David Paich, Bobby Kimball, Jeff Porcarao and Steve Porcaro
+
+LIVE FOR TODAY 
+Lead Vocal: Steve Lukather
+Writer: Steve Lukather
+
+A MILLION MILES AWAY 
+Lead Vocal: Bobby Kimball
+Writer: David Paich
+
+GOODBYE ELENORE 
+Lead Vocal: Bobby Kimball
+Writer: David Paich
+
+I THINK I COULD STAND YOU FOREVER
+Lead Vocal: Steve Lukater
+Writer: David Paich
+
+TURN BACK
+Lead Vocal: Bobby Kimball
+Writer: Bobby Kimball and Stever Lukather
+
+IF IT'S THE LAST NIGHT
+Lead Vocal: Steve Lukather
+Writer: David Paich
+
+David Hungate - Bass
+Bobby Kimball - Vocals
+Steve Lukather - All Guitars, Vocals
+David Paich - Keyboards, Sythesizer, Vocals
+Jeff Porcaro - Drums, Percussion
+Steve Porcaro - Keyboards, Electronics
+
+### "TOTO IV" 1982, Metal
+
+ROSANNA 
+Lead Vocals: Bobby Kimball and Steve Lukather
+Writer: David Paich
+
+Congas and Percussion: Lenny Castro
+Saxophone: Tom Scott, Jim Horn
+Trumpet: Jerry Hey, Gary Grant
+Background Vocals: Steve Lukather, Bobby Kimball, David Paich, Tom Kelly
+Horn arrangements: Herry Hey and David Paich 
+
+MAKE BELIEVE 
+Lead Vocal: Bobby Kimball
+Writer: David Paich
+
+Saxophone: Jon Smith
+Background Vocals: Steve Lukather, Bobby Kimball, David Paich, Tom Kelly 
+I WON'T HOLD YOU BACK 
+Lead Vocal: Steve Lukather
+Writer: Steve Lukather
+
+Background Vocals: Timothy B. Schmitt, Steve Lukather
+Orchestral arrangements: James Newton Howard, David Paich and Marty Paich
+Strings performed by the Martin Ford Orchestra, Conducted by James Newton Howard and recorded by John Kurlander 
+GOOD FOR YOU 
+Lead Vocal: Bobby Kimball
+Writer: Steve Lukather and Bobby Kimball
+
+Piano: Steve Lukather
+Congas and Percussion: Lenny Castro
+Cello: Mike Porcaro
+Background Vocals: Timothy B. Schmitt, Bobby Kimball
+Synthesizer Programming: Roger Linn
+
+IT'S A FEELING 
+Lead Vocal: Steve Porcaro
+Writer: Steve Porcaro
+
+Percussions: Joe Porcaro, Lenny Castro
+Congas: Lenny Castro
+Background Vocals: David Paich
+Orchestral arrangements: James Newton Howard and David Paich
+Strings performed by the Martin Ford Orchestra, Conducted by James Newton Howard and recorded by John Kurlander 
+AFRAID OF LOVE
+Lead Vocal: Steve Lukather
+Writer: David Paich, Steve Lukather and Jeff Porcaro
+
+Xylophone: Joe Porcaro
+Background Vocals: Bobby Kimball, Steve Lukather and David Paich
+Orchestral arrangements: James Newton Howard and David Paich
+Strings performed by the Martin Ford Orchestra, Conducted by James Newton Howard and recorded by John Kurlander 
+LOVERS IN THE NIGHT
+Lead Vocal: David Paich
+Writer: David Paich
+
+Congas and Percussion: Lenny Castro
+Tympani: Joe Porcaro
+Saxophone: Jim Horn, Tom Scott
+Synthesizers: Ralph Deck
+Background Vocals: Bobby Kimball, Steve Lukather and David Paich
+Orchestral arrangements: James Newton Howard and David Paich
+Strings performed by the Martin Ford Orchestra, Conducted by James Newton Howard and recorded by John Kurlander 
+WE MADE IT
+Lead Vocal: Bobby Kimball
+Writer: David Paich and Jeff Porcaro
+
+Background Vocals: Bobby Kimball, Steve Lukather and David Paich
+
+David Hungate - Bass
+Bobby Kimball - Vocals
+Steve Lukather - Guitars, Vocals
+David Paich - Keyboards, Vocals
+Jeff Porcaro - Drums, Percussion
+Steve Porcaro - Keyboards, Electronics
+
+### "Isolation" 1984, Metal
+
+CARMEN 
+Lead Vocals: David Paich and Fergie Frederiksen
+Writer: David Paich and Jeff Porcaro
+
+LION 
+Lead Vocal: Fergie Frederiksen
+Writer: David Paich and Bobby Kimball
+
+STRANGER IN TOWN 
+Lead Vocal: David Paich
+Writer: David Paich and Jeff Porcaro
+
+ANGEL DON'T CRY 
+Lead Vocal: Fergie Frederiksen
+Writer: David Paich and Fergie Frederiksen
+
+HOW DOES IT FEEL 
+Lead Vocal: Steve Lukather
+Writer: Steve Lukather
+
+ENDLESS
+Lead Vocal: Fergie Frederiksen
+Writer: David Paich
+
+ISOLATION
+Lead Vocal: Fergie Frederiksen
+Writer: Steve Lukather, David Paich and Fergie Frederiksen
+
+MR. FRIENDLY
+Lead Vocal: Fergie Frederiksen
+Writer: Steve Lukather, David Paich, Mike Porcaro, and Fergie Frederiksen
+
+CHANGE OF HEART
+Lead Vocal: Fergie Frederiksen
+Writer: David Paich and Fergie Frederiksen
+
+HOLYANNA
+Lead Vocal: David Paich
+Writer: David Paich and Jeff Porcaro
+
+Fergie Frederiksen - Vocals
+Steve Lukather - Guitars, Vocals
+David Paich - Keyboards, Vocals
+Jeff Porcaro - Drums, Percussion
+Mike Porcaro - Bass
+Steve Porcaro - Keyboard
+
+### "Fahrenheit" 1986, Metal
+
+TILL THE END 
+Lead Vocals: Joseph Williams
+Writer: David Paich and Joseph Williams
+
+WE CAN MAKE IT TONIGHT 
+Lead Vocal: Joseph Williams
+Writer: Joseph Williams, Jeff Porcaro and B. Bergman
+
+WITHOUT YOUR LOVE 
+Lead Vocal: Steve Lukather
+Writer: David Paich
+
+CAN'T STAND IT ANY LONGER 
+Lead Vocal: Joseph Williams
+Writer: David Paich, Steve Lukather and Joseph Williams
+
+I'LL BE OVER YOU 
+Lead Vocal: Steve Lukather
+Writer: Steve Lukather and Randy Goodrum
+
+FAHRENHEIT
+Lead Vocal: Joseph Williams
+Writer: David Paich; Jeff Porcaro and Joseph Williams
+
+SOMEWHERE TONIGHT
+Lead Vocal: Joseph Williams
+Writer: Steve Lukather, David Paich and Jeff Porcaro
+
+COULD THIS BE LOVE
+Lead Vocal: Joseph Williams
+Writer: David Paich and Joseph Williams
+
+LEA
+Lead Vocal: Joseph Williams
+Writer: Steve Porcaro
+
+DON'T STOP ME NOW
+Instrumental
+Writer: Steve Lukather and David Paich
+
+Steve Lukather - Guitars, Vocals
+David Paich - Keyboards, Vocals
+Jeff Porcaro - Drums, Percussion
+Mike Porcaro - Bass
+Steve Porcaro - Keyboard
+Joseph Williams - Vocals
+
+### "The Seventh One" 1988, Metal
+
+PAMELA 
+Lead Vocals: Joseph Williams
+Writer: David Paich and Joseph Williams
+
+Additional Background Vocals: Tom Kelly
+Vibes: Joe Porcaro
+Horns arranged by Tom Scott
+
+YOU GOT ME 
+Lead Vocal: Joseph Williams
+Writer: Joseph Williams and David Paich
+
+Additional Background Vocals: Patti Austin
+Additional Percussion: Lenny Castro, Jim Keltner
+Horns arranged by Jerry Hey and David Paich
+
+ANNA 
+Lead Vocal: Steve Lukather
+Writer: Steve Lukather and Randy Goodrum
+
+Additional Percussion: Michael Fisher, Joe Porcaro
+Strings arranged by Marty Paich, David Paich and James Newton Howard, Conducted by Marty Paich
+
+STOP LOVING YOU 
+Lead Vocal: Joseph Williams
+Writer: David Paich and Steve Lukather
+
+Additional Background Vocals: Jon Anderson
+Additional Percussion: Michael Fisher
+Additional Keyboards: Bill Payne
+Horns arranged by Tom Scott
+
+MUSHANGA 
+Lead Vocal: Joseph Williams
+Writer: David Paich and Jeff Porcaro
+
+Additional Background Vocals: Patti Austin
+Additional Percussion: Joe Porcaro
+Steel drums: Andy Narrel
+Recorders and Flute: Jim Horn
+
+STAY AWAY
+Lead Vocal: Joseph Williams
+Writer: David Paich and Steve Lukather
+
+Additonal Background Vocals: Linda Ronstadt
+Lap Steel: David Lindley
+
+STRAIGHT FOR THE HEART
+Lead Vocal: Joseph Williams
+Writer: David Paich and Joseph Williams
+
+Additional Background Vocals: Patti Austin
+Saxophone: Jim Horn
+
+ONLY THE CHILDREN
+Lead Vocal: Joseph Williams
+Writer: David Paich, Steve Lukather, and Joseph Williams
+
+Additional Background Vocals: Tom Kelly
+
+A THOUSAND YEARS
+Lead Vocal: Joseph Williams
+Writer: Joseph Williams, Mark T. Williams, and David Paich
+
+Arranged by Mark T. Williams and TOTO
+Strings arranged and conducted by David Paich
+
+THESE CHAINS
+Lead Vocal: Steve Lukather
+Writer: Steve Lukather and Randy Goodrum
+
+Vibes: Joe Porcaro
+Horns arranged by Ton Scott
+Strings arranged and conducted by David Paich
+
+HOME OF THE BRAVE
+Lead Vocal: Joseph Williams and David Paich
+Writer: David Paich, Steve Lukather, Jimmy Webb and Joseph Williams
+
+Strings arranged by David Paich, conducted by Marty Paich
+
+Steve Lukather - Guitars, Vocals
+David Paich - Keyboards, Vocals
+Jeff Porcaro - Drums, Percussion
+Mike Porcaro - Bass
+Joseph Williams - Vocals
+
+### "Past To Present" 1990, Metal
+
+LOVE HAS THE POWER 
+Lead Vocals: Jean-Michel Byron
+Writer: Jean-Michel Byron and John Capek
+
+AFRICA
+Lead Vocal: David Paich
+Writer: David Paich and Jeff Porcaro
+
+HOLD THE LINE
+Lead Vocal: Bobby Kimball
+Writer: David Paich
+
+OUT OF LOVE 
+Lead Vocal: Jean-Michel Byron
+Writer: Steve Lukather and Jean-Michel Byron
+
+GEORGY PORGY 
+Lead Vocal: Steve Lukather
+Writer: David Paich
+
+I'LL BE OVER YOU 
+Lead Vocal: Steve Lukather
+Writer: Steve Lukather and Randy Goodrum
+
+CAN YOU HEAR WHAT I'M SAYING 
+Lead Vocal: Jean-Michel Byron
+Writer: David Paich, Mike Porcaro, and Jean Michel Byron
+
+ROSANNA 
+Lead Vocals: Bobby Kimball and Steve Lukather
+Writer: David Paich
+
+I WON'T HOLD YOU BACK 
+Lead Vocal: Steve Lukather
+Writer: Steve Lukather
+
+STOP LOVING YOU 
+Lead Vocal: Joseph Williams
+Writer: David Paich and Steve Lukather
+
+
+99
+Lead Vocal: Steve Lukather
+Writer: David Paich
+
+PAMELA 
+Lead Vocals: Joseph Williams
+Writer: David Paich and Joseph Williams
+
+ANIMAL 
+Lead Vocal: Jean-Michel Byron
+Writer: David Paich and Jean-Michel Byron
+
+Jean-Michel Byron - Vocals
+Steve Lukather - Guitars, Vocals
+David Paich - Keyboards, Vocals
+Jeff Porcaro - Drums, Percussion
+Mike Porcaro - Bass
+
+### "Kingdom of Desire" 1992, Metal
+
+GYPSY TRAIN
+Lead Vocals: Steve Lukather
+Writers: Toto
+
+Background Vocals: John Elefante 
+DON'T CHAIN MY HEART
+Lead Vocal: Steve Lukather
+Writer: Toto
+
+Background Vocals: Philip Ingram, Fred White, Alex Brown, Angel Rogers 
+NEVER ENOUGH 
+Lead Vocals: Steve Lukather
+Writer: Toto and Fee Waybill
+
+Additonal Percussion: Lenny Castro
+Horns: Gary Herbig - Sax, Don Menza - Sax, Chuck Findley - Trumpet
+
+HOW MANY TIMES 
+Lead Vocal: Steve Lukather
+Writer: Toto
+
+Background Vocals: Richard Page and Steven George 
+2 Hearts
+Lead Vocal: Steve Lukather
+Writer: Toto
+
+Background Vocals: Richard Page 
+WINGS OF TIME 
+Lead Vocal: Steve Lukather
+Writer: Toto
+
+Background Vocals: Richard Page 
+SHE KNOWS THE DEVIL
+Lead Vocal: Steve Lukather
+Writer: Toto
+
+Additional Percussion: Lenny Castro
+Background Vocals: Bobby Womack 
+THE OTHER SIDE
+Lead Vocal: Steve Lukather
+Writer: David Paich, W. Sherwood, R. Kaplan
+
+ONLY YOU 
+Lead Vocal: Steve Lukather
+Writer: Toto
+
+Additional Percussion: Joe Porcaro 
+KICK DOWN THE WALLS*
+Lead Vocal: Steve Lukather
+Writer: D. Korchmar and S. Lynch
+
+KINGDOM OF DESIRE 
+Lead Vocal: Steve Lukather
+Writer: Danny Kortchmar
+
+JAKE TO THE BONE
+Instrumental
+Writer: Toto
+
+Steve Lukather - Guitars, Lead Vocals
+David Paich - Keyboards
+Jeff Porcaro - Drums, Percussion
+Mike Porcaro - Bass
+
+### "Tambu" 1995, Metal
+
+GIFT OF FAITH
+Lead Vocals: Steve Lukather
+Writers: Steve Lukather, David Paich, and Stan Lynch
+
+Percussion: Lenny Castro
+Background Vocals: Jenny Douglas-McRae and Steve Lukather
+S.P.Chant: Mike Porcaro, Steve Lukather, Stan Lynch, Elliot Scheiner, Jim Giddens 
+I WILL REMEMBER
+Lead Vocal: Steve Lukather
+Writer: Steve Lukather and Stan Lynch
+
+Acoustic Piano: David Paich
+Piano and Synthesiter: Steve Lukather
+Percussion: Lenny Castro
+Additional Background Vocals: Jenny Douglas-McRae, John James and Steve Lukather
+Strings arranged and conducted by David Paich 
+SLIPPED AWAY 
+Lead Vocals: Steve Lukather
+Writer: Steve Lukather, David Paich, Mike Porcaro, Simon Phillips, and Stan Lynch
+
+Background Vocals: Jenny Douglas-McRae and Steve Lukather 
+IF YOU BELONG TO ME 
+Lead Vocal: Steve Lukather
+Writer: Steve Lukather, David Paich, and Stan Lynch
+
+Background Vocals: Jenny Douglas-McRae and Steve Lukather
+Percussion: Michael Fisher
+Strings arranged and conducted by David Paich
+
+BABY HE'S YOUR MAN
+Lead Vocal: Steve Lukather and Jenny Douglas-McRae
+Writer: Steve Lukather, David Paich, and Siedah Garret
+
+Drum Loops: Steve Porcaro and Simon Phillips
+Bass Fills: Steve Lukather
+Percussion: Paulinho Da Costa
+Background Vocals: Phillip Ingram, Ricky Nelson, Jenny Douglas-McRae, John James and Steve Lukather
+Special backgrounds: David Paich 
+THE OTHER END OF TIME 
+Lead Vocal: Steve Lukather
+Writer: Steve Lukather and Randy Goodrum
+
+Synthesizer: David Paichy
+Piano and Synthesizer: Steve Lukather
+Drums and 808: SimonPhillips
+Percussion: Lenny Castro
+
+THE TURNING POINT
+Lead Vocal: Steve Lukather, Jenny Douglas-McRae, and David Paich
+Writer: Steve Lukather, Mike Porcaro, Simon Phillips, David Paich, and Stan Lynch
+
+Rhodes, Synthesizer and B-3: David Paich
+Additional Keyboards: Mike Porcaro and Simon Phillips
+Percussion: Paulinho Da Costa
+Background Vocals: Phillip Ingram, Ricky Nelson, Jenny Douglas-McRae, John James, Steve Lukather and David Paich
+
+TIME IS THE ENEMY
+Lead Vocal: Steve Lukather
+Writer: Steve Lukather, David Paich, and Fee Waybill
+
+Percussion: Paulinho Da Costa
+Background Vocals: Jenny Douglas-McRae, John James and Steve Lukather
+
+JUST CAN'T GET TO YOU 
+Lead Vocal: Steve Lukather
+Writer: Steve Lukather, David Paich, and Glen Ballard
+
+Rhodes and Hammond: David Paich
+Acoustic Piano: Steve Lukather
+Background Vocals: Jenny Douglas-McRae and Steve Lukather
+Strings arranged and conducted by David Paich 
+DRAG HIM TO THE ROOF
+Lead Vocal: David Paich, Steve Lukather, John James
+Writer: Steve Lukather; David Paich and Stan Lynch
+
+Background Vocals: Phillip Ingram, Jenny Douglas-McRae and Steve Lukather
+
+DAVE'S GONE SKIING 
+Instrumental
+Writer: Steve Lukather, Mike Porcaro, and Simon Phillips
+
+THE ROAD GOES ON
+Lead Vocal: Steve Lukather
+Writer: Steve Lukather, David Paich, and Glen Ballard
+
+Guitars and Mandolin: Steve Lukather
+Background Vocals: Jenny Douglas-McRae and Steve Lukather
+Strings arranged and conducted by David Paich
+
+Steve Lukather - Guitars, Lead Vocals
+David Paich - Keyboards
+Simon Phillips - Drums, Percussion
+Mike Porcaro - Bass
+
+### "Dune" 1997, Metal
+
+1. Prologue/Main Title
+
+2. Guild Report *
+
+3. House Atreides *
+
+4. Paul Atreides *
+
+5. Robot Fight
+
+6. Leto's Theme
+
+7. The Box
+
+8. The Floating Fat Man (The Baron)
+
+9. Departure *
+
+10. The Trip to Arrakis
+
+11. Sandworm Attack *
+
+12. The Betrayal/Shields Down * 
+
+13. First Attack
+
+14. The Duke's Death *
+
+15. Sandworm Chase *
+
+16. The Fremen *
+
+17. Secrets of the Fremen *
+
+18. Paul Meets Chani
+
+19. Destiny *
+
+20. Riding the Sandworm *
+
+21. Reunion with Gurney *
+
+22. Prelude (Take My Hand)
+
+23. Paul Takes the Water of Life
+
+24. The Sleeper Has Awakened! * 
+
+25. Big Battle 
+
+26. Paul Kills Feyd 
+
+27. Final Dream 
+
+28. Dune (Desert Theme) 
+
+29. Dune Main Title - Demo Version 
+
+30. Take My Hand 
+
+David Paich - Keyboards 
+Jeff Porcaro - Drums and Percussion 
+Steve Porcaro - Keyboards 
+Mike Porcaro - Electric Bass, Acoustic Bass & Percussion 
+Steve Lukather - Guitars
+
+### "Mindfields" 1999, Metal
+
+CRUEL
+Lead Vocals: Bobby Kimball
+Writers: Jed Leiber, Simon Phillips, Bobby Kimball, and Steve Lukather
+
+
+CAUGHT IN THE BALANCE
+Lead Vocal: Bobby Kimball
+Writer: Steve Lukather, David Paich, Simon Phillips, Mike Porcaro, Stan Lynch, and Bobby Kimball
+
+
+AFTER YOU'VE GONE 
+Lead Vocals: Steve Lukather
+Writer: Steve Lukather and Phil Soussan
+
+
+MYSTERIOUS WAYS 
+Lead Vocal: Bobby Kimball
+Writer: Mark Hudson, Steve Lukather, David Paich, and Dean Grakal
+
+LAST LOVE
+Lead Vocal: Steve Lukather
+Writer: Steve Lukather and David Paich
+
+
+MINDFIELDS 
+Lead Vocal: Bobby Kimball
+Writer: Bobby Kimball, Steve Lukather, David Paich, Simon Phillips, and Mike Porcaro
+
+SELFISH
+Lead Vocal: Bobby Kimball
+Writer: Steve Lukather, Stan Lynch, and David Paich
+
+
+NO LOVE
+Lead Vocal: Steve Lukather
+Writer: David Paich, Steve Lukather, and Randy Goodrum
+
+HIGH PRICE OF HATE 
+Lead Vocal: Bobby Kimball
+Writer: Steve Lukather, Stan Lynch, David Paich, Simon Phillips, and Mike Porcaro
+
+MAD ABOUT YOU
+Lead Vocal: Bobby Kimball
+Writer: David Paich and Joseph Williams
+
+MELANIE 
+Lead Vocal: Steve Lukather
+Writer: Steve Lukather, David Paich, and Randy Goodrum
+
+ONE ROAD
+Lead Vocal: Bobby Kimball
+Writer: Steve Lukather, David Paich, and Randy Goodrum
+
+Better World
+Lead Vocal: Steve Lukather
+Writer: Steve Lukather, David Paich, and Simon Phillips
+
+Spanish Steps*
+Lead Vocal: David Paich
+Writer: Steve Lukather and David Paich
+Bobby Kimball - Vocals
+Steve Lukather - Guitars, Vocals
+David Paich - Keyboards
+Simon Phillips - Drums, Percussion
+Mike Porcaro - Bass
+
+### "Throught The Looking Glass" 2003, Metal
+
+COULD YOU BE LOVED
+Lead Vocals: Bobby Kimball
+Writers: Bob Marley
+
+
+BODHISATTVA
+Lead Vocal: Bobby Kimball
+Writer: Walter Becker and Donald Fagan
+
+
+WHILE MY GUITAR GENTLY WEEPS 
+Lead Vocals: Steve Lukather
+Writer: George Harrison
+
+
+I CAN'T GET NEXT TO YOU 
+Lead Vocal: Bobby Kimball
+Writer: Barret Strong & Norman Whitfield
+
+LIVING FOR THE CITY
+Lead Vocal: Bobby Kimball
+Writer: Stevie Wonder
+
+
+MAIDEN VOYAGE / BUTTERFLY 
+Instrumental
+Writer: Herbie Hancock
+
+BURN DOWN THE MISSION
+Lead Vocal: Bobby Kimball
+Writer: Elton John & Bernie Taupin
+
+
+SUNSHINE OF YOUR LOVE
+Lead Vocal: Steve Lukather
+Writer: Jack Bruce, Peter Constant & Eric Clapton
+
+HOUSE OF THE RISING SUN 
+Lead Vocal: Bobby Kimball
+Writer: Traditional
+
+WATCHING THE DETECTIVES
+Lead Vocal: Steve Lukather
+Writer: Elvis Costello
+
+IT TAKES A LOT TO LAUGH,
+IT TAKES A TRAIN TO CRY 
+Lead Vocal: David Paich
+Writer: Bob Dylan
+
+
+Bobby Kimball - Vocals
+Steve Lukather - Guitars, Vocals
+David Paich - Keyboards
+Simon Phillips - Drums, Percussion
+Mike Porcaro - Bass
+
+### "Falling To Between" 2006, Metal
+
+1. Falling In Between 
+2. Dying On My Feet 
+3. Bottom Of Your Soul 
+4. King Of The World 
+5. Hooked 
+6. Simple Life 
+7. Taint The World 
+8. Let It Go 
+9. Spiritual Man 
+10. No End In Sight
+
+### "Bottom Of Your Soul" 2006, Metal
+
+1. Bottom Of Your Soul
+2. Gypsy Train
+3. Africa/Rosanna/Bottom Of Your Soul
+4. Bottom Of Your Soul
+
+### "Falling In Between Live (2CD)" 2007, Metal
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,10 +1,73 @@
 # Enthral
 
-Дискография
-"Demo 1996" 1996, Black Metal
-"Prophecies of The Dying" 1997, Black Metal
-"The Mirror`s Opposite End" 1998, Black Metal
-"Subterranean Movement" 2003, Black Metal
+
+
+## Дискография
+
+### "Demo 1996" 1996, Black Metal
+
+The Majestic Elegance of Dancing Shadows 
+Den Skuggelause 
+Nordafjells 
+Trollbunden Av Det Vakre Vemod 
+
+All music and lyrics written by Enthral anno 1995-1996
+
+Kjetil Hektoen - Drums, vocals
+Gunnhild Bratset - Guitars, acc. guitars
+Thomas Kj&#248;rnes - Bass
+
+### "Prophecies of The Dying" 1997, Black Metal
+
+Salig Er Den Som Lir 
+Prophecies of The Dying - kundalini (serpent power) 
+Prophecies of The Dying - part II 
+A Divine Tragedy 
+Enchanted By The Serpent Spell 
+Thy Passionate Despair
+
+
+Kjetil Hektoen - Drums and percussion, voices
+Gunnhild Bratset - Lead, rhytm and acoustic guitars
+Martin Rafoss - Bass
+Synth performed by Hektra
+
+### "The Mirror`s Opposite End" 1998, Black Metal
+
+When The Sky Touched The Earth 
+In Passion Swept 
+Weltschmerz 
+The Sins of Man 
+Salvation Mother 
+Monochrome 
+The 9th Sphere 
+Call of The Horned Piper (The Sabbat Song) 
+The Leper Play 
+
+
+Kjetil Hektoen - Drums and percussion, voices
+Martin Rafoss - Bass and cello
+Gunnhild Bratset - Lead, rhytm and acoustic guitars
+Espen Simonsen - Lead, rhytm and acoustic guitars
+Stian Aarstad - Keyboards
+
+### "Subterranean Movement" 2003, Black Metal
+
+Earth left behind
+Death immaculate
+Inject hate
+Subterranean movement
+Our Justice be Done
+To the bone
+Slaves of one tongue
+Charge of the I
+
+
+Kjetil Hektoen - Drums / voice
+Martin Rafoss - Bass
+Ronny Hansen - Guitars
+Gunnhild Bratset - Guitars
+
 
 ## Отношения с другими группами
 

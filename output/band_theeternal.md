@@ -1,8 +1,33 @@
 # The Eternal
 
-Дискография
-"The Sombre Light of Isolation" 2004, Doom
-"Sleep of Reason" 2005, Doom
+Australian Melodic Doom Metal
+
+## Дискография
+
+### "The Sombre Light of Isolation" 2004, Doom
+
+1. Commemorate the Misery
+2. A Cruel Misfortune
+3. The Eternal
+4. Down 
+5. The Sombre Light of Isolation
+6. Black Serenity
+7. Crimson Sacrifice
+8. Harmony of Dissonance
+9. Remembrance Scars
+10. All Hope Lost
+
+
+Mark Kelson: vocals/guitar
+Chris Burton: guitar
+Chris Stevenson: Keyboards
+James Hunt: Bass Guitar
+Ryan Buesnel: Drums
+
+### "Sleep of Reason" 2005, Doom
+
+
+
 
 ## Отношения с другими группами
 

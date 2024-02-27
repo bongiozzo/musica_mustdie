@@ -1,8 +1,50 @@
 # Incubator
 
-Дискография
-"Symphonies Of Spiritual Cannibalism" 1991, Death Metal
-"McGillroy The Housefly" 1992, Death Metal
+Original Techno Death Metal
+
+## Дискография
+
+### "Symphonies Of Spiritual Cannibalism" 1991, Death Metal
+
+1. Puppenmord
+2. Mother
+3. Chemical Experience
+4. Plants Of Bizarre
+5. Nightmare From The Past
+6. Pseudo Call
+7. Sigus
+8. Symphonies Of Spiritual Cannibalism
+9. Stop The Madness
+10.You (The Death Ballad)
+
+(p)&(c) 1991 MORBID MUSIC
+
+### "McGillroy The Housefly" 1992, Death Metal
+
+1. Thinkin` Green Believe In Grey
+2. Prisons Of Gore
+3. (No Name)
+4. Raper By A Stranger
+5. Chaos Ego
+6. Identitat
+7. Stories Enter Controlled Dept
+8. Brain Eliminator
+9. Games Of Moonmurder
+10.Forced
+11.Playing A Game
+
+ Chris - Vocal-Grunz-Acrobatics
+ Sven - Guitar
+ Micha - Guitar
+ Steve - Bass
+ Dominique - Drums
+
+All Songs By Sven Schade.
+Engineered,Mixed & Recorded By Andy Classen
+At Stage 1 Studio,Buhne,Germany.
+
+(p)&(c) 1992 WEST VIRGINIA Records
+
 
 ## Отношения с другими группами
 

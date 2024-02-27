@@ -1,7 +1,24 @@
 # Wardruna
 
-Дискография
-"Runaljod - Gap Var Ginnunga" 2009, Folk
+Gaahl and Kvitrafn
+
+## Дискография
+
+### "Runaljod - Gap Var Ginnunga" 2009, Folk
+
+1. Ar Var Alda  02:19
+2. Hagal  07:40  
+3. Bjarkan  05:53 
+4. Loyndomsriss  03:15 
+5. Heimta Thurs  04:18  
+6. Thurs  01:16 
+7. Jara  05:02
+8. Laukr  04:05 
+9. Kauna  02:34 
+10. Algir - Stien Klarnar  04:17  
+11. Algir - Tognatale  05:39  
+12. Dagr  05:38
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,33 @@
 # Christ Denied
 
-Дискография
-"...Got What He Deserved" 1996, Death Metal
+Antichristian-Antireligious-Death
+
+## Дискография
+
+### "...Got What He Deserved" 1996, Death Metal
+
+1. Banish Vanished
+2. A Monk's Wetdream
+3. Pay To Prey
+4. Deserved No Less
+5. Useless Sinless Life
+6. No Salvation
+7. Misery
+8. Body Of Christ
+9. Hierarchy Of Hypocrisy
+
+Dave Rotten - Vocals
+Dave Nigger - Guitars, Bass
+Session musicians:
+Julio Iglesias - drums on 1,2,5,7,9,10
+Frank Sinatra - drums on 3,4,6,8
+
+Recorded at Codigo Track Studio.
+Mixed at El Jardin Parametrico Studio.
+Cover artwork by Patricia Bixareo.
+
+(p)(c) 1996 GULLI  Records GR 005
+
 
 ## Отношения с другими группами
 

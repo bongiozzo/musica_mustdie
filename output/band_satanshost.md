@@ -1,13 +1,106 @@
 # Satan's Host
 
-Дискография
-"Metal from Hell" 1986, Heavy Metal
-"Archidoxes of Evil" 2000, Death Metal
-"Burning the Born Again...(A New Philosophy)" 2004, Death Metal
-"Satanic Grimoire: A Greater Black Magick" 2006, Death Metal
-"The Great American Scapegoat 666" 2008, Death Metal
-"Power ~ Purity ~ Perfection...999" 2009, Death Metal
-"By the Hands of the Devil" 2011, Heavy Metal
+
+
+## Дискография
+
+### "Metal from Hell" 1986, Heavy Metal
+
+1. Prelude: Flaming Host  01:22 
+2. Black Stel&#233;  03:53   
+3. Into the Veil  04:26   
+4. Metal from Hell  04:17   
+5. King of Terror  04:35   
+6. Strongest of the Night  04:33  
+7. Standing at Death's Door  03:19
+8. Hell Fire  05:46   
+9. Souls in Exile  07:59 
+
+### "Archidoxes of Evil" 2000, Death Metal
+
+1. Intro  01:57    
+2. Lilith, Consorting Lucifer  04:40   
+3. Devils Orison  05:50  
+4. Spheric Denstiny  04:19    
+5. Nightside of Eden  05:27 
+6. Plight of the Magus  04:50    
+7. Circle of Khaos  01:54    
+8. Melektaus  02:54   
+9. Purified in Pain  03:39
+10. Clan of the Hellions  02:42    
+11. Ode to Lucifer  06:46 
+
+### "Burning the Born Again...(A New Philosophy)" 2004, Death Metal
+
+1. Ecliptic Equinox  06:27  
+2. Sinners in Sanctuary  06:58 
+3. H.E.L.L.  04:08  
+4. A Darkmoon Gathering  06:25   
+5. Burning the Born Again  04:45 
+6. The Unholy Sabbath  07:23  
+7. Satanic Magistrerium  06:17   
+8. Inverted Jesus  08:35 
+9. Satan's Host  06:52  
+10. Inside the Castle of Euphoric Blasphemy  08:01 
+
+### "Satanic Grimoire: A Greater Black Magick" 2006, Death Metal
+
+1. World Wide 9... The Calling  02:03 
+2. Necromantic Art  08:33  
+3. 666... Mega Therion  04:13   
+4. Satanic Grimoire  06:46   
+5. Black Magick  06:39  
+6. Chameleon of Witchery  05:38  
+7. Incantations Vibrating from Shadow Demons  01:58  
+8. Metal from Hell... 22nd Century  05:32 
+9. My Will, My Law: Evil  04:48   
+10. Lesser Keys  06:44   
+11. Evoking Asmoday  03:42   
+12. 418  05:58   
+13. Infernal Calling  06:51 
+
+### "The Great American Scapegoat 666" 2008, Death Metal
+
+1. Invocation 666  01:16   
+2. Ave. Lucifer  06:36   
+3. Dragons - Darkness  05:07  
+4. Azrael: Death Wing Angel  04:45 
+5. Great American Scapegoat  06:28 
+6. Hail Satan  05:29   
+7. 7 Strings, Sin  00:47    
+8. Black Order  06:22  
+9. Pyromancy, The Art of Fire  06:34   
+10. Xeper 22  06:05   
+11. Cursing, "Vampyric Evil-Eye"  05:16   
+12. Infernal Victory  01:58 
+13. Throne of Baphomet  07:18 
+
+### "Power ~ Purity ~ Perfection...999" 2009, Death Metal
+
+1. Sitra~Ahra (Power 9)  05:40   
+2. Dark Priest (Lord Ahriman)  06:43  
+3. Buer  01:33    
+4. 333 (Purity 9)  08:09   
+5. End All, Be All 2012  06:55   
+6. 9 Lords, 9 Keys...Abyss-King  07:58   
+7. Paimon  01:14    
+8. Luciferian Spirit (Perfection 9)  08:29  
+9. Satanic Magick (Evil Divine)  06:54
+10. Xem Deitus 999  05:35 
+
+### "By the Hands of the Devil" 2011, Heavy Metal
+
+1. By the Hands of the Devil  06:25   
+2. Shades of the Unlight  06:03   
+3. Demontia  05:55   
+4. Before the Flame  08:01  
+5. Bleeding Hearts of the Damned  03:42   
+6. Black Hilted Knife  06:22   
+7. Revival  05:41   
+8. Fallen Angel  06:05   
+9. Inferior Worlds  07:08 
+10. Norwegian Wood (The Beatles cover) (bonus track)  03:25 
+
 
 ## Отношения с другими группами
 

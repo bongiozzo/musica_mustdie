@@ -1,7 +1,22 @@
 # Kvist
 
-Дискография
-"For Kunstenmaa Vi Evig Vike" 1996, Black Metal
+
+
+## Дискография
+
+### "For Kunstenmaa Vi Evig Vike" 1996, Black Metal
+
+1.  Ars Manifestia
+2.  Forbannet Vaere Iorden Iec Car Pa
+3.  Stupet
+4.  Svartedal
+5.  Mm Lekam Er Meg Blott En Byrde
+6.  Vettenetter
+
+Recorded & Mixed At Endless Sound Studio, Oslo, Anno, 1995.
+
+(P)c 1996 AVANTGARDE Records
+
 
 ## Отношения с другими группами
 

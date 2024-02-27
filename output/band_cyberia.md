@@ -1,7 +1,13 @@
 # Cyberia
 
-Дискография
-"Mindcontrol" 2002, Power Metal
+power metal
+
+## Дискография
+
+### "Mindcontrol" 2002, Power Metal
+
+
+
 
 ## Отношения с другими группами
 

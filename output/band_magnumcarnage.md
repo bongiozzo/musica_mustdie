@@ -1,7 +1,22 @@
 # Magnum Carnage
 
-Дискография
-"Nightmare Factory" 2000, Melodic Death Metal
+
+
+## Дискография
+
+### "Nightmare Factory" 2000, Melodic Death Metal
+
+1 "Stay Insane"
+2 "I Watched Them Die"
+3 "Demons"
+4 "Possessed"
+5 "Psalm Of Transformation"
+6 "Dragon's Lair"
+7 "Midnight"
+8 "Deathscythe"
+
+
+
 
 ## Отношения с другими группами
 

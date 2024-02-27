@@ -1,9 +1,33 @@
 # Refuse
 
-Дискография
-"Soulditch" 1998, Hardcore
-"Live StageRage" 2000, Nu Metal
-"Bout a Word" 2001, Nu Metal
+Downcore Grunge NuMetal From the Netherlands
+
+## Дискография
+
+### "Soulditch" 1998, Hardcore
+
+1 Sweet Loving Enemy 2:37
+2 Lost Hope Man 4:01
+3 Ay 4:36
+4 Misery 2:31
+5 Routine 3:33
+
+### "Live StageRage" 2000, Nu Metal
+
+1 Gain 3:09
+2 Click 2:47 
+3 Muck 5:32
+4 StageRage 4:09
+5 Ay 3:14
+
+### "Bout a Word" 2001, Nu Metal
+
+1 Alotta 2:55 
+2 Gain 3:11  
+3 Some 3:08  
+4 Jer 3:08
+5 StageRage 3:45
+
 
 ## Отношения с другими группами
 

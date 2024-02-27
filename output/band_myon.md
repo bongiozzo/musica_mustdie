@@ -1,10 +1,77 @@
 # Myon
 
-Дискография
-"Heaven's Garden" 1998, Hard Rock
-"Ghost In Paradise" 2002, Hard Rock
-"Slideshow" 2005, Hard Rock
-"Frameworks" 2007, Hard Rock
+
+
+## Дискография
+
+### "Heaven's Garden" 1998, Hard Rock
+
+01. Heaven's Garden    
+02. Point Of View     
+03. Fatal Way     
+04. Every Other Day     
+05. I Wanna Be     
+06. Can You Forgive Me    
+07. Broken Arrow     
+08. Transvestite Dance    
+09. Lonely     
+10. How Can I Cry  
+
+
+Sami Huotari - vocals 
+Risto Silenius - guitars 
+Mika Pohjola - keyboards 
+Keijo Koivikko - bass 
+Matti Torro - drums 
+
+
+### "Ghost In Paradise" 2002, Hard Rock
+
+1. Dead Of The Dawn 
+2. Tournament 
+3. The Quest 
+4. In Me 
+5. Heart Of The Hollowood 
+6. Follow The Sign 
+7. Nostradamus 
+8. Mary Celeste 
+9. Avenue 
+10. Ancient Rites
+
+
+Sami Huotari - vocals
+Risto Silenius - guitars
+Mika Pohjola - keyboards
+Keijo Koivikko - bass
+Matti Torro - drums
+
+### "Slideshow" 2005, Hard Rock
+
+1. Still Alive	 
+2. Scars of the heart	 
+3. Forgive Not Forget	 
+4. Died for the Moment	 
+5. Take Your Side		 
+6. Before or Too Late	 
+7. Human Nature	 
+8. So Long	 
+9. How Does It Feel	 
+10. Livinґthe Fantasy	 
+11. The Letter	 
+12. Fire/Water	 
+13. Wind Him Up (bonus track)
+
+### "Frameworks" 2007, Hard Rock
+
+1. Akrofobia	 
+2. Behind the Scene	 
+3. Stress Code	 
+4. Freak of Nature	 
+5. Moving Emotions (Frames of Moving Target)	 
+6. Silent Farewell	 
+7. Sand from My Hand	 
+8. Blame
+
 
 ## Отношения с другими группами
 

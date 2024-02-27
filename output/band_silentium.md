@@ -1,11 +1,89 @@
 # Silentium
 
-Дискография
-"Infinita Plango Vulnera" 1999, Gothic
-"Altum" 2001, Gothic
-"Sufferion - Hamartia of Prudence" 2003, Gothic
-"Seducia" 2006, Gothic
-"Amortean" 2008, Gothic
+melancholic gothic-doom-death from Finland
+
+## Дискография
+
+### "Infinita Plango Vulnera" 1999, Gothic
+
+1. Solicitude 
+2. Forever Sleep 
+3. Redemption 
+4. Autumn Heart 
+5. Whatever the Pain 
+6. Maiden of the Forest 
+7. Requiem 
+8. With Blood Adorned 
+9. At the Dawn I Wept 
+10. Solicitude 
+   
+
+Line-Up
+Matti Aikio - Bass & Vocals
+Tiina Lehvonen - Vocals
+Sami Boman - Keyboards
+Jani Laaksonen - Violin
+Toni Lahtinen - Guitar 
+Juha Lehtioksa - Guitar
+Janne Ojala - Drums
+
+
+### "Altum" 2001, Gothic
+
+1. Revangelis 
+2. Blasphemer 
+3. To My Beloved One 
+4. Painless 
+5. ...Repent.. . 
+6. Into the Arms of the Night 
+7. The Lusticon 
+8. The Sinful 
+9. The Propheter of the Unenthroned 
+   
+
+Line-Up
+Matti Aikio - Bass & Vocals
+Tiina Lehvonen - Vocals
+Sami Boman - Keyboards
+Jani Laaksonen - Violin
+Toni Lahtinen - Guitar 
+Juha Lehtioksa - Guitar
+Janne Ojala - Drums
+
+Recorded at Studio Watercastle in July-September 2000 by Arttu Sarvanne
+Mixed at Finnvox in January 2001 by Mikko Karmila
+Mastered at Finnvox in january 2001 by Mika Jussila
+Artwork by Janne-Matti Nurminen 
+
+
+### "Sufferion - Hamartia of Prudence" 2003, Gothic
+
+
+
+### "Seducia" 2006, Gothic
+
+01. Hangman's Lullaby
+02. Serpentized
+03. Dead Silent
+04. Unbroken
+05. Frostnight
+06. Children Of Chaos
+07. Empress Of The Dark
+08. Seducia
+
+### "Amortean" 2008, Gothic
+
+1. Leave The Fallen Behind 03:58  
+2. The Messenger 06:01  
+3. A Knife In The Back 06:10  
+4. The Fallen Ones With You Tonight 08:43  
+5. My Broken Angel 04:55  
+6. The Cradle Of Nameless 06:01  
+7. Storm Sight Solicitude 02:51  
+8. Embrace The Storm 04:07  
+9. La Fin du Monde 07:40 
+
+
 
 ## Отношения с другими группами
 

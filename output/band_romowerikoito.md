@@ -1,7 +1,13 @@
 # Romowe Rikoito
 
-Дискография
-" L'automne Eternel" 2000, Gothic
+folk-gothic acoustic
+
+## Дискография
+
+### " L'automne Eternel" 2000, Gothic
+
+
+
 
 ## Отношения с другими группами
 

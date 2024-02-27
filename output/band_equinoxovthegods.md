@@ -1,8 +1,29 @@
 # Equinox Ov The Gods
 
-Дискография
-"Images Of Forgotten Memories" 1996, Death Doom
-"Where Angels Dare Not Tread" 2002, Death Doom
+High Class Death-Doom a-la Lake Of Tears
+
+## Дискография
+
+### "Images Of Forgotten Memories" 1996, Death Doom
+
+1.  Welcome Home...
+2.  Necropolis
+3.  On The Threshold
+4.  The Lord Of The Crossroads
+5.  Winternight Shadows
+6.  N.L.S.
+7.  The Waiting
+8.  Resurrected
+9.  Death Wish
+10.The Dance Of The Dead
+11.The Arrival (On All Hallows Eve)
+
+(P)c 1996 UNISOUND Records // USR 024
+
+### "Where Angels Dare Not Tread" 2002, Death Doom
+
+
+
 
 ## Отношения с другими группами
 

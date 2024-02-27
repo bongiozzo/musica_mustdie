@@ -1,18 +1,157 @@
 # Shakra
 
-Дискография
-"Shakra" 1998, Hard Rock
-"Moving Force" 1999, Hard Rock
-"The Live Side (live)" 2000, Hard Rock
-"And Life Begins" 2000, Hard Rock
-"Power Ride" 2001, Hard Rock
-"Rising" 2003, Hard Rock
-"Fall" 2005, Hard Rock
-"Infected" 2007, Hard Rock
-"Everest" 2009, Hard Rock
-"Back On The Track" 2011, Hard Rock
-"Powerplay" 2013, Hard Rock
-"High Noon" 2016, Hard Rock
+
+
+## Дискография
+
+### "Shakra" 1998, Hard Rock
+
+
+
+### "Moving Force" 1999, Hard Rock
+
+
+
+### "The Live Side (live)" 2000, Hard Rock
+
+
+
+### "And Life Begins" 2000, Hard Rock
+
+
+
+### "Power Ride" 2001, Hard Rock
+
+1. Power ride
+2. Why don't you call me
+3. Watching you
+4. The sun will shine
+5. Out in the rain
+6. In your eyes
+7. Get it all out
+8. A dollar too much
+9. She's my pride
+10. Tell me
+11. The way back home
+12. Too close
+13. Take my hand
+
+### "Rising" 2003, Hard Rock
+
+1. Now or never 
+2. Done me wrong 
+3. Too good for me 
+4. I will be there 
+5. Rising high 
+6. Little stories
+7. My life - My world
+8. Sign in the sky
+9. Run away
+10. Fight the fire
+11. Anything
+12. Trapped
+
+### "Fall" 2005, Hard Rock
+
+Chains of Temptation
+Out of Control 
+Take Me Now 
+All Or Nothing 
+RHow It Feels 
+Fall 
+Walk On Water 
+Sheґs My Ecstasy 
+Make It Alright 
+Nightlife 
+Do You Know 
+Immortal
+
+### "Infected" 2007, Hard Rock
+
+Make Your Day 
+Inferno 
+The One 
+Playing With Fire 
+Dance With Madness 
+Love Will Find A Way 
+Vertigo 
+The Conquest 
+Higher Love 
+Cardiophobia 
+Look At Me 
+The Other Side 
+Let'em Have It (bonus track)
+Acherons Way
+Chains Of Temptation (bonus video)
+
+Mark Fox - вокал
+Thomas Muster - гитары
+Thom Blunier - гитары
+Roger Tanner - ударные
+Oli Linder - бас
+
+### "Everest" 2009, Hard Rock
+
+1. Ashes To Ashes 03:51  
+2. Love & Pain 03:19  
+3. Let Me Lie My Life To You 03:38  
+4. The Illusion Of Reality 04:38  
+5. Why 03:45  
+6. The Journey 07:54  
+7. Regressive Evolution 03:51  
+8. Anybody Out There 03:24  
+9. Right Between The Eyes 05:15  
+10. Dirty Money 03:24  
+11. Insanity 04:48  
+12. Hopeless 03:45 
+
+
+### "Back On The Track" 2011, Hard Rock
+
+1. B True B You 03:55  
+2. I'll Be 03:35  
+3. Crazy 03:42  
+4. Back On Track 03:30  
+5. When I See You 03:59  
+6. MMTWGR 03:34  
+7. Yesterday's Gone 05:00  
+8. Someday 04:05  
+9. Lonesomeness 03:37  
+10. Unspoken Truth 04:44  
+11. Brand New Day 03:53  
+12. Stronger Than Ever 04:29 
+
+### "Powerplay" 2013, Hard Rock
+
+01.Life Is Now 
+02.The Mask 
+03.Higher 
+04.Wonderful Life 
+05.Dear Enemy 
+06.Save You From Yourself 
+07.Don’t Keep Me Hanging 
+08.Dream Of Mankind 
+09.Stevie 
+10.Because Of You 
+11.Secret Hideaway 
+12.Too Good To Be True
+
+### "High Noon" 2016, Hard Rock
+
+1. Hello  04:16    
+2. High Noon  05:06    
+3. Into Your Heart  03:55    
+4. Around the World  04:24    
+5. Eye to Eye  03:52    
+6. Is It Real  04:02    
+7. Life's What You Need  04:14    
+8. The Storm  04:15    
+9. Raise Your Hands  03:46    
+10. Stand Tall  04:10    
+11. Watch Me Burn  04:03    
+12. Wild and Hungry  04:08  
+
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,17 @@
 # Leprous
 
-Дискография
-"Aeolia" 2006, Progressive
-"Tall Poppy Syndrome" 2009, Progressive
+
+
+## Дискография
+
+### "Aeolia" 2006, Progressive
+
+
+
+### "Tall Poppy Syndrome" 2009, Progressive
+
+
+
 
 ## Отношения с другими группами
 

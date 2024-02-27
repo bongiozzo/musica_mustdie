@@ -1,7 +1,23 @@
 # Misanthropic
 
-Дискография
-"Soulreaver" 2003, Death Metal
+
+
+## Дискография
+
+### "Soulreaver" 2003, Death Metal
+
+Intro
+Restless Life
+Fly
+Admission Fee
+The Play
+Zwischenspiel
+The Lie
+Into The Night
+Living You
+Nervous Breakdown
+Outro
+
 
 ## Отношения с другими группами
 

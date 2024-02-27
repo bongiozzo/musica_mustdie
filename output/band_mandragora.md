@@ -1,8 +1,33 @@
 # Mandragora
 
-Дискография
-"At the End" 2005, Melodic Death Metal
-"Carnal Cage" 2011, Melodic Death Metal
+
+
+## Дискография
+
+### "At the End" 2005, Melodic Death Metal
+
+1. Mandragon
+2. Dancing On The Edge
+3. Crossroads
+4. Hero In Action
+5. Confession
+6. My Enemy
+7. Unfinished Games
+8. Melody Of Self Destruction
+9. The End Of War
+
+### "Carnal Cage" 2011, Melodic Death Metal
+
+1. Masquerade	 
+2. In Doubt	 
+3. Desolated Fields	 
+4. Unconsciousness	 
+5. Curse of Existence 
+6. Walk to Fall	 
+7. The Unknown	 
+8. Sand and Dust	 
+9. After (instrumental)
+
 
 ## Отношения с другими группами
 

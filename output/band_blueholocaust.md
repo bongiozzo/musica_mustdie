@@ -1,6 +1,9 @@
 # Blue Holocaust
 
-Дискография
+one man horror-grind from France
+
+## Дискография
+
 
 ## Отношения с другими группами
 

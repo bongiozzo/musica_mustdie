@@ -1,7 +1,23 @@
 # Fatal Portrait
 
-Дискография
-"Adventum" 2006, Black Metal
+
+
+## Дискография
+
+### "Adventum" 2006, Black Metal
+
+1. The End Of The Show 04:57  
+2. Conqueror's Mask 04:14  
+3. In Emptyness I Dwell 03:27  
+4. The Crusade 04:32  
+5. For Your Gods 04:46  
+6. Look At The Dust 04:10  
+7. Black Spirit 04:43  
+8. War Horn Sound 05:08  
+9. Hanging On The Edge 04:35  
+10. Is That You, Melissa (Mercyful Fate Cover) 04:30  
+11. Emperor Of The Unforgiven Ones 04:59 
+
 
 ## Отношения с другими группами
 

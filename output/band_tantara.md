@@ -1,7 +1,15 @@
 # Tantara
 
-Дискография
-"Human Mutation (EP)" 2010, Thrash
+
+
+## Дискография
+
+### "Human Mutation (EP)" 2010, Thrash
+
+1. The Debate 06:42 
+2. Human Mutation 06:02 
+3. The Killing of Mother Earth 05:53
+
 
 ## Отношения с другими группами
 

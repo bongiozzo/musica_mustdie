@@ -1,7 +1,13 @@
 # Von Groove
 
-Дискография
-"The Seventh Day" 2003, Hard Rock
+hard-rock
+
+## Дискография
+
+### "The Seventh Day" 2003, Hard Rock
+
+
+
 
 ## Отношения с другими группами
 

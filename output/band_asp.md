@@ -1,10 +1,107 @@
 # ASP
 
-Дискография
-"Duett" 2001, Gothic
-"Weltunter" 2003, Gothic
-"Hast Du Mich Vermisst" 2004, Gothic
-"Aus Der Tiefe" 2006, Gothic
+
+
+## Дискография
+
+### "Duett" 2001, Gothic
+
+01. Die Kleine Ballade Vom Schwarzen Schmetterling
+(5:51)
+02. Schwarz f4:34)
+03.The Linie Big Man (5:27)
+04. Kokon (4:20)
+05. Maybe Я:55)
+06. Besessen (4:28)
+07. Versuchung (5:32)
+08. Tiles (4:37)
+09. Fading Away [A Vision] (10:06)
+
+### "Weltunter" 2003, Gothic
+
+01. Intro
+02. Welcome
+03. Weltunter
+04. Stille der Nacht (Ein Weihnachtsmarchen)
+05. Geisterjagd (Trane Im Meer)
+06. She wore Shadows
+07. Demon Love
+08. Ich will brennen
+09. Eleison
+10. Hasslich
+11. Lykantrophie (Es Tobt Ein Krieg In Mir)
+12. Die Ruhe vor dem Sturm
+
+Asp: all vocals
+Matthias Ambre: programming, bass, guitar
+
+Additional drums by Oliver Himmighoffen
+Cello on "Demon Love'" by Martin Hofert
+(Persephone)
+Violin on "Geisterjagd" by Tina Kogel (Chamber)
+Produced and recorded by Matthias Ambre at Das
+Zwerk / Frankfurt
+Assistant engineer: Andreas "Tossi" Gross
+Mixed by Thomas Schmitt-Zijnen at Art of June /
+Frankfurt
+Mastered by Thomas Korge at Magic Masters /
+Frankfurt
+Songs arranged by Matthias Ambre with Asp
+Artwork by Ingo Romling
+Photos by Friedhelm Spiecker
+Schwarzer schmetterling make-up by Claudia
+Heinzelmann
+Editir and muse: Claudia Neitzel
+
+All songs written by Alexander Frank Spreng
+
+ASP performing live are:
+Asp (vocals), Matthias (guitar), Andreas "Tossi"
+Gross (bass)
+Holger "Mein Engelchen" Hartgen (backing vocals),
+Oliver Himmighoffen (drums),
+Marcus Testory (backing vocals).
+
+### "Hast Du Mich Vermisst" 2004, Gothic
+
+01. Intro - In Meiner Vorstellung
+02. Schwarzer Schmetterlimg
+03. Where Do The Gods Go
+04. Dancing
+05. Kuss Mich
+06. Sing Child
+07. Teach Me War
+08. Imbecile Anthem
+09. Und Wir Tanzten (Ungeschickte Liebesbriefe)
+10. Blinded
+11. Where Do The Gods Go (Re-unleashed Club Edit)
+12. Where Do The Gods Go (Exklusive Club Single
+Edit)
+13. Where Do The Gods Go (Art Of Erbus RMX)
+14. Where Do The Gods Go (Hecq RMX)
+
+### "Aus Der Tiefe" 2006, Gothic
+
+01. Beschwцrung 6:31
+02. Willkommen zuruck 2:18
+03. Schwarzes Blut 3:33
+04. Im Dunklen Turm 1:41
+05. Me 4:38
+06. Schattenschreie 0:22
+07. Hunger 5:21
+08. Fremde Erinnerungen 1:12
+09. Ballade von der Erweckung 8:54
+10. Tiefenrausch 4:06
+11. Schmetterling, du kleines Ding 0:42
+12. Ich komm dich holn 4:17
+13. Werben 4:29
+14. Spiegelauge Part I [Aus der Tiefe] 3:18
+15. Spiegelauge Part II [Spiegelaugen] 3:24
+16. Spiegelauge Part III [Tiefenrausch (Reprise)]
+1:07
+17. Spiegelauge Part IV [Panik] 4:12
+18. Spiegel 5:31
+
 
 ## Отношения с другими группами
 

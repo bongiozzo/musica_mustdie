@@ -1,8 +1,46 @@
 # Confessor
 
-Дискография
-"Condemned" 1991, Techno Death
-"Unraveled" 2005, Doom
+High Class Vocal, Techno Doom Metal
+
+## Дискография
+
+### "Condemned" 1991, Techno Death
+
+1. Alone
+2. Prepare Yourself
+3. Collapse Into Despair
+4. Defining Happines
+5. Uncontrolled
+6. Condemned
+7. Eve Of Salvation
+8. The Stain
+9. Suffer
+
+ Scott Jeffreys - Vocals
+ Brian Shoaf - Guitar
+ Ivan Colon - Guitar
+ Cary Rowells - Bass
+ Stephen Shelton - Drums
+
+Produced By CONFESSOR & Mark Williams
+Engineered By Mark Williams
+Recorded & Mixed At Reflection Sound Studios,
+Charlotte, NC
+
+(p)&(c) 1991 EARACHE Records Mosh 044 
+
+### "Unraveled" 2005, Doom
+
+1. Cross the Bar 04:24  
+2. Until Tomorrow 05:01  
+3. Wig Stand 04:35  
+4. Blueprint Soul 05:33  
+5. The Downside 05:09  
+6. Sour Times 05:56  
+7. Hibernation 05:33  
+8. Strata of Fear 04:34  
+9. *Bonus Track 06:04
+
 
 ## Отношения с другими группами
 

@@ -1,10 +1,33 @@
 # Dryados
 
-Дискография
-"A Day of Mine (demo)" 2002, Black Metal
-"L'amour n'enleve pas vraiment la depression...." 2003, Black Metal
-"L'amour N'enleve Pas Vraiment La Depression..." 2004, Black Metal
-"The Traces And Bits Of Former Passion (EP)" 2005, Black Metal
+
+
+## Дискография
+
+### "A Day of Mine (demo)" 2002, Black Metal
+
+
+
+### "L'amour n'enleve pas vraiment la depression...." 2003, Black Metal
+
+
+
+### "L'amour N'enleve Pas Vraiment La Depression..." 2004, Black Metal
+
+Following The Bliss
+The Most Beautiful Day They Ever Seen
+Who's Your God Now?
+Murdered By Fear And Weakness
+A Day Of Mine
+Tragedy Of Ignorance
+Phantasm
+Of Flesh In Bloom
+L'amour N'enleve Pas Vraiment La Depression...
+
+### "The Traces And Bits Of Former Passion (EP)" 2005, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,24 @@
 # Greifenstein
 
-Дискография
-"Von Inneren Welten" 2008, Black Metal
+
+
+## Дискография
+
+### "Von Inneren Welten" 2008, Black Metal
+
+1. Intro  02:22  
+2. Manifestation der Wirklichkeit  05:51   
+3. Nat&#252;rliche Selektion  03:15
+4. Erhabenheit  03:56  
+5. Wintersonne  06:57   
+6. Trachten nach dem Ursprung  04:59 
+7. Melancholie  05:28  
+8. Ewige Finsternis  05:23
+9. Greifenturm  07:57  
+10. Dunkle W&#228;lder  04:17 
+11. Search for Asgard  05:56 
+12. Finaler Ansturm  04:00 
+
 
 ## Отношения с другими группами
 

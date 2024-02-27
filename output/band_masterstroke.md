@@ -1,7 +1,21 @@
 # Masterstroke
 
-Дискография
-"Apocalypse" 2006, Heavy Metal
+
+
+## Дискография
+
+### "Apocalypse" 2006, Heavy Metal
+
+Evil Forces (Never Die) 
+I'll Take My Time
+Theater of Madness
+Children of the War
+Calling
+Memory of...
+Seven Deadly Sins
+Eye of the Needle
+Rusty Angel
+
 
 ## Отношения с другими группами
 

@@ -1,9 +1,47 @@
 # Hammer Horde
 
-Дискография
-"Under The Mighty Oath" 2009, Viking Metal
-"Vinlander" 2012, Viking Metal
-"Fed To The Wolves" 2015, Viking Metal
+
+
+## Дискография
+
+### "Under The Mighty Oath" 2009, Viking Metal
+
+01. Storm Of Pagan Skies-Pelude
+02. Pierced By Odin's Spear
+03. Under The Mighty Oath
+04. In The Name Of Winter's Wrath
+05. Howl Of Himinbjorg
+06. Farewell To The Fallen
+07. Triumph Of Sword And Shield
+08. Through Celestial Seascapes
+09. Of Legends And Lore
+10. Seafarer
+
+### "Vinlander" 2012, Viking Metal
+
+01. Infinite Warthirst
+02. Vinlander
+03. Hero's Hear
+04. Oathkeeper
+05. Hymn Of The Fjords
+06. Riders Of Annihilation
+07. Archaic Offerings
+08. Led By The Ancient Light
+09. Midg&#229;rdian Revelry
+10. Hoddm&#237;mir's Holt
+11. The Curse Of Andvari
+
+### "Fed To The Wolves" 2015, Viking Metal
+
+1. Starborn
+2. Tale Of The Wayward Voyager
+3. Fed To The Wolves
+4. Unholy Harbingers Of War
+5. Hail And Kill (Manowar Cover)
+6. Ortum Aurorae
+7. The Scourge Of Man
+8. As Embers Fade
+
 
 ## Отношения с другими группами
 

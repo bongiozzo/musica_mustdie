@@ -1,10 +1,63 @@
 # Kari
 
-Дискография
-"Demo Recordings" 1995, Folk
-"Spindelsinn" 1997, Folk
-"Mesmerised" 1998, Folk
-"Pilot" 2002, Rock
+Kari Rueslаtten ex The 3rd And The Mortal, Storm
+
+## Дискография
+
+### "Demo Recordings" 1995, Folk
+
+1. The Homecoming Song  3:27 
+2. Vеkenatt 3:54 
+3. The Gathering 2:58 
+4. Rapunsel 5:04 
+5. Forsaken 4:48 
+6. The Shadowchant 3:10 
+7. In Here 5:17 
+8. Dead 4:03 
+9. In A Day 1:09
+
+### "Spindelsinn" 1997, Folk
+
+1. I Mеnens Favn
+2. Spindelsinn
+3. Skogens Kjole
+4. Agatha
+5. Trollferd
+6. Vintersol
+7. Jeg Kommer Inn
+8. Hшr Min Sang 
+9. Som Av Meg
+10. Nordnatt
+
+### "Mesmerised" 1998, Folk
+
+1. My Lover
+2. All You Had In Me
+3. Different Angle
+4. Balcony Boulevard
+5. Happy. Amused
+6. Cinderella
+7. Make Me A Stone
+8. Borrowing You 
+9. «Little Low»
+10. Images Of You
+11. Paint My Wings
+
+### "Pilot" 2002, Rock
+
+Calling You 
+River 
+Never Fly Away 
+Denial 
+Snow 
+Exile 
+Pilot 
+Smile In Your Sleep 
+Leaving 
+Beautiful Morning 
+Love I Gave 
+Butterfly-Milk
+
 
 ## Отношения с другими группами
 

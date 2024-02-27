@@ -1,7 +1,13 @@
 # Bleeding Nature
 
-Дискография
-"My winter" 2005, Synthpop
+
+
+## Дискография
+
+### "My winter" 2005, Synthpop
+
+
+
 
 ## Отношения с другими группами
 

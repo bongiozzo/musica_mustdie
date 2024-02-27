@@ -1,12 +1,111 @@
 # Mechanical Poet
 
-Дискография
-"Trace of the Dead Leaf" 2002, Progressive
-"Handmade Essence" 2003, Progressive
-"Woodland Prattlers" 2004, Progressive
-"Creepy Tales For Freaky Children" 2007, Progressive
-"Who Did It To Michelle Waters?" 2007, Progressive
-"Eidoline: The Arrakeen Code" 2008, Progressive
+Russian orchestral progressive gothic metal band
+
+## Дискография
+
+### "Trace of the Dead Leaf" 2002, Progressive
+
+[ 1 ] Overture : Oceanlights
+[ 2 ] The Almighty Glutton
+[ 3 ] Burning Coast
+[ 4 ] Maverick
+[ 5 ] Story of the Mad Man
+[ 7 ] Yahawdie
+[ 8 ] The Deep : Roundelay of Fries
+[ 8 ] The Deep : Dance of Gleaming Shells
+[ 9 ] The Deep : Ballet of Abyssal Snakes
+
+Line-Up :
+Lex Plotnikoff : [ guitars , bass , keyboards ]
+Tom Tokmakoff : [ drums , bass , keyboards ]
+Sebastian Trifonoff : [ keyboards , vocals ]
+
+Recorded and mixed at ' Noisy Hive '
+Engineered and mixed by Tony Esipoff
+Cover artwork by Doc Brown
+
+### "Handmade Essence" 2003, Progressive
+
+[ 1 ] Handmade Essence 
+[ 2 ] Frozen Nile 
+[ 3 ] Hermetical Orchard 
+[ 4 ] Clue of a Scarecrow 
+[ 5 ] Clockwork Shrimps
+[ 6 ] Waltzing Skip-Jack
+
+Line-Up :
+Max Samosvat : [ lead and background vocals ]
+Lex Plotnikoff : [ guitars , bass , keyboards ]
+Tom Tokmakoff : [ drums , bass , keyboards ]
+
+Recorded and mixed at ' Hermetic Art Entertainment '
+Engineered and mixed by Tom Tokmakoff
+Mastered by Max Samosvat
+All music by Mechanical Poet
+All lyrics by Lex Plotnikoff
+Cover artwork by Nicholas
+Photo by Jake Plotnikoff
+Digital design by Mia Lade
+Logotype by Eugene Brown
+
+### "Woodland Prattlers" 2004, Progressive
+
+Main Titles 
+Stormchild 
+Bogie In A Coal-Hole 
+Sirens from the Underland 
+Will O’ The Wisp 
+Strayed Moppet 
+Old Year’s Merry Funeral 
+Natural Quaternion: 
+- Sylphs 
+- Gnomes 
+- Undines 
+- Salamanders 
+Shades on a Casement 
+Swamp-Stamp-Polka 
+End Credits
+
+### "Creepy Tales For Freaky Children" 2007, Progressive
+
+Welcome To Creepy Tales
+Urban Dreams
+Bubble Bath
+Spikyhead + Miremaid
+Vesperghosts Of Milford Playhouse
+A Rose For Michelle
+Dolly
+Lamplighter
+The Afterguide
+The Dead, The Living And The City
+Hide And Seek With Cary Nage
+Once Upon A Day
+Жизнь, смерть и вечный город
+Последний фрегат
+Призраки старого театра
+
+### "Who Did It To Michelle Waters?" 2007, Progressive
+
+
+
+### "Eidoline: The Arrakeen Code" 2008, Progressive
+
+Virus
+Fantasies
+Crawlers
+Rain
+Fremen
+Frontline
+Answers
+Ghouls
+God
+Cathedral
+Machines
+Witches
+Sands
+Stars
+
 
 ## Отношения с другими группами
 

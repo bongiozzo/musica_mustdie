@@ -1,8 +1,90 @@
 # Ophelia's Dream
 
-Дискография
-"All Beauty Is Sad" 2002, Metal
-"Not A Second Time" 2004, Metal
+neo classic
+
+## Дискография
+
+### "All Beauty Is Sad" 2002, Metal
+
+01. Rise
+02. Mystere
+03. Reflexions
+04. Piece For Solo Oboe
+05. Tears
+06. Arabesque
+07. Sophia`s Prayer
+08. Saltarello
+09. Sophia`s Reprise
+10. A Fragment
+11. Dreams
+12. Fairy-Dance
+13. Fall
+
+Original release: Hyperium 1997
+
+Bonustracks:
+14. Stabat Mater Dolorosa
+15. Cuius Animam Gementem (interlude)
+16. O Quam Tristis Et Afflicta
+17. Quae Moerebat Et Dolebat (interlude)
+18. Quis Est Home, Qui Non Fleret
+19. Vidit Suum Dulcem Natum
+20. Fae Ut Aldeat Cor Meum
+21. Quando Corpus Morietur
+22. Fac, Ut Ardeat (piano-version)
+23. Arabesque (demo-homerecording)
+24. Saltarello (demo-homerecording)
+
+Instruments, programming, design: Dietmar Greulich
+ 
+Mezzosoprano: Julia Tiedje
+Bonus tracks: Susanne Stierle
+Composition, lyrics: Dietmar Greulich
+Stabat Mater composed by G.B.Pergolesi
+
+Sound recording:
+Weisser Herbst, Frankfurt
+Separate Sound, Erlangen
+Tonstudio Hiltpoltstein
+
+Bonustracks:
+Nova Tonstudio, Beilstein
+Ophelia`s Dream-Homestudio
+
+Audio engineering:
+Roman Rutten
+Christoph Beyerlein
+Hubert Bachinger & Chris Schultheis
+
+Bonustracks:
+Uwe H. Kohler
+Dietmar Greulich
+
+Photography
+Persephone & Dietmar Greulich 1997
+
+Tracks 14-19, 21 could be remastered from the
+original master tapes
+An alternate Recording of Julia`s Voice was used
+for Track 9
+
+### "Not A Second Time" 2004, Metal
+
+01. Lady Magdalen
+02. Egredimini
+03. Exsolutio
+04. Saltarno
+05. De Torrente
+06. Amica Mea
+07. All Beauty Is Lost
+08. Il Vecchio Castello
+09. Interlude I
+10. Ladonna Wosh
+11. Interlude II
+12. Quae Dementia
+13. Lady Magdelen's Reprise
+14. Danse Macabre
+
 
 ## Отношения с другими группами
 

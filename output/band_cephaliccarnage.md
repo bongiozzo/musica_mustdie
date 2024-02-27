@@ -1,19 +1,101 @@
 # Cephalic Carnage
 
-Дискография
-"Scrape My Lungs /demo/" 1994, Grindcore
-"Fortuitous Oddity /demo/" 1996, Grindcore
-"Conforming To Abnormality" 1996, Grindcore
-"Waiting For The Millenium/Extreme Of Paranoia /promo/" 1997, Grindcore
-"Exploiting Dysfunction" 1998, Grindcore
-"Cephalic Carnage/Adnauseam /split/" 1998, Grindcore
-"Cephalic Carnage/Impaled /split/" 1999, Grindcore
-"Perversion... And The Guilt After /EP/" 2001, Grindcore
-"Halls Of Amenti /EP/" 2002, Grindcore
-"Lucid Interval" 2002, Grindcore
-"Anomalies" 2005, Grindcore
-"Xenosapien" 2007, Grindcore
-"Misled By Certainty" 2010, Grindcore
+
+
+## Дискография
+
+### "Scrape My Lungs /demo/" 1994, Grindcore
+
+
+
+### "Fortuitous Oddity /demo/" 1996, Grindcore
+
+
+
+### "Conforming To Abnormality" 1996, Grindcore
+
+
+
+### "Waiting For The Millenium/Extreme Of Paranoia /promo/" 1997, Grindcore
+
+
+
+### "Exploiting Dysfunction" 1998, Grindcore
+
+1. Hybrid   
+2. Driven To Insanity   
+3. Rehab   
+4. Observer To The Obliteration Of Planet Earth   
+5. On Six   
+6. Gracias   
+7. Cryptosporidium   
+8. The Ballad Of Moon   
+9. 9' Of Smoke   
+10. Warm Hand On A Cold Night (A Tale Of Onesomes)   
+11. Invertus Indica (The Marijuana Convictions)   
+12. Molestandos Plantas Muertos!   
+13. Eradicate Authority   
+14. Paralyzed By Fear   
+15. Exploiting Dysfunction   
+16. Redundan (Bonus Track)   
+66. Untitled
+
+### "Cephalic Carnage/Adnauseam /split/" 1998, Grindcore
+
+
+
+### "Cephalic Carnage/Impaled /split/" 1999, Grindcore
+
+
+
+### "Perversion... And The Guilt After /EP/" 2001, Grindcore
+
+
+
+### "Halls Of Amenti /EP/" 2002, Grindcore
+
+
+
+### "Lucid Interval" 2002, Grindcore
+
+
+
+### "Anomalies" 2005, Grindcore
+
+
+
+### "Xenosapien" 2007, Grindcore
+
+1. Endless Cycle of Violence 04:17 
+2. Divination and Violation 04:22
+3. Molting 02:53
+4. Touched by an Angel 02:57
+5. Vaporized 01:47 
+6. Heptarchy (In the U.K.) 03:24
+7. G.lobal O.verhaul D.evice 05:52
+8. Let Them Hate So Long as They Fear 01:12
+9. The Omega Point 02:24
+10. Megacosm of the Aquaphobics 04:05
+11. Ov Vicissitude 04:14
+12. [hidden track] 06:45 
+
+### "Misled By Certainty" 2010, Grindcore
+
+1. The Incorrigible Flame
+2. Warbots A.M.
+3. Abraxas of Filth
+4. Pure Horses
+5. Cordyceps Humanis
+6. Raped by an Orb
+7. P.G.A.D.
+8. Dimensional Modulation Transmography
+9. Ohrwurm
+10. When I Arrive
+11. A King and a Thief
+12. Power and Force
+13. Repangaea
+14. Aeyeuchg!
+
 
 ## Отношения с другими группами
 

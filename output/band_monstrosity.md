@@ -1,11 +1,91 @@
 # Monstrosity
 
-Дискография
-"Imperial Doom" 1992, Deathcore
-"Millenium" 1996, Deathcore
-"In Dark Purity" 1999, Deathcore
-"Enslaving The Masses" 2001, Deathcore
-"Rise To Power" 2003, Deathcore
+Florida's death metal band
+
+## Дискография
+
+### "Imperial Doom" 1992, Deathcore
+
+1. Imperial Doom
+2. Definite Inquistion
+3. Vicious Mental Thirst
+4. Immense Malignancy
+5. Ceremonial Void
+6. Burden Of Evil
+7. Horror Infinity
+8. The Final Cremation
+9. Darkest Dream
+
+ George "Corpsegrinder" - Vocals
+ Jason Goble - Guitar
+ Jon Rubin - Guitar
+ Mark Van Erp - Bass
+ Lee Harrison - Drums
+
+Produced & Engineered By Jim Morris &
+MONSTROSITY.
+Executive Producer: Markus Staiger.
+Recorded At Morrisound Studios,Tampa,Florida.
+
+(p)&(c) 1992 NUCLEAR BLAST Records
+
+
+### "Millenium" 1996, Deathcore
+
+1.  Fatal Millennium
+2.  Devious Instinct
+3.  Manic
+4.  Dream Messiah
+5.  Fragments Of Resolution
+6.  Manipulation Strain
+7.  Slaves & Masters
+8.  Mirrors Of Reason
+9.  Stormwinds
+10.Seize Of Change
+
+Recorded and Mixed at Morrisound Recording Studios by Scott Burns
+Add mixing by Keith Rose and Scott Kieklak at Criteria Recording
+Produced by Scott Burns and MONSTROSITY
+
+Lee Harrison - Drums
+Kelly Conlou - Bass
+George "Corpsegrinder" Fisher - Vocals
+Jason Morgan - Guitars
+
+(P)c 1996 NUCLEAR BLAST // NB 208
+
+### "In Dark Purity" 1999, Deathcore
+
+Jason Avery - vocals
+Tony Norman - guitars
+Lee Harrison - drums
+Kelly Conlan - bass  
+
+### "Enslaving The Masses" 2001, Deathcore
+
+
+
+### "Rise To Power" 2003, Deathcore
+
+1. The Exordium
+2. Awaiting Armageddon
+3. Wave Of Annihilation
+4. The Fall Of Eden
+5. Chemical Reaction
+6. A Casket For The Soul
+7. Rise To Power
+8. Visions Of Violence
+9. From Wrath To Ruin
+10. Abysmal Gods
+11. Shadow Of Obliteration
+
+
+Jason Avery - Vocals, 
+Tony Norman - Guitars, 
+Lee Harrison - Drums, 
+Sam Molina - Guitars, 
+Mike Poggione - Bass.
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,18 @@
 # Sangre Eterna
 
-Дискография
-"Amor Vincit Omnia" 2008, Gothic
+
+
+## Дискография
+
+### "Amor Vincit Omnia" 2008, Gothic
+
+1. My Darkest Dreams 04:56
+2. Saint 02:49
+3. Beautiful Enormity 05:15
+4. Eternal Sleep 03:13  
+5. Ad Vitam Aeternam 06:56
+6. And Fallen One (Martyr's Grace) 05:47 
+
 
 ## Отношения с другими группами
 

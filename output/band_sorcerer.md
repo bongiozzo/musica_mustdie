@@ -1,7 +1,13 @@
 # Sorcerer
 
-Дискография
-"In the Shadow of the Inverted Cross" 2015, Doom
+
+
+## Дискография
+
+### "In the Shadow of the Inverted Cross" 2015, Doom
+
+
+
 
 ## Отношения с другими группами
 

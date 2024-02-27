@@ -1,26 +1,180 @@
 # Root
 
-Дискография
-"Deep in Hell (demo)" 1988, Black Metal
-"Reap of Hell (demo)" 1988, Black Metal
-"War of Rats (demo)" 1988, Black Metal
-"Messengers from Darkness (demo)" 1989, Black Metal
-"The Trial (demo)" 1989, Black Metal
-"Zjeveni" 1990, Black Metal
-"666 / 7 Black Horsemen (single)" 1990, Black Metal
-"Hell Symphony" 1992, Black Metal
-"The Temple in the Underworld" 1992, Black Metal
-"Kargeras" 1996, Black Metal
-"The Book" 1999, Black Metal
-"Zjeveni / The Temple in the Underworld (re-release)" 1999, Black Metal
-"Black Seal" 2001, Black Metal
-"Hell Symphony / Kargeras (re-release)" 2001, Black Metal
-"Dema (re-release)" 2002, Black Metal
-"Madness of the Graves" 2003, Black Metal
-"Casilda (MSD)" 2006, Black Metal
-"Daemon Viam Invenient" 2007, Black Metal
-"Heritage of Satan" 2011, Black Metal
-"Kargeras - Return from Oblivion" 2016, Black Metal
+Black Gothic Death Doom
+
+## Дискография
+
+### "Deep in Hell (demo)" 1988, Black Metal
+
+
+
+### "Reap of Hell (demo)" 1988, Black Metal
+
+
+
+### "War of Rats (demo)" 1988, Black Metal
+
+
+
+### "Messengers from Darkness (demo)" 1989, Black Metal
+
+
+
+### "The Trial (demo)" 1989, Black Metal
+
+
+
+### "Zjeveni" 1990, Black Metal
+
+1. Intro
+2. Zjeveni
+3. Aralyon
+4. Vyslech
+5. Upaleni
+6. Pisen pro Satana
+7. 666
+8. 7 cernych jezdcu
+9. Demon
+10. Znameni
+11. Cesta zkazy
+
+### "666 / 7 Black Horsemen (single)" 1990, Black Metal
+
+
+
+### "Hell Symphony" 1992, Black Metal
+
+1. Belzebub
+2. Belial
+3. Lucifer
+4. Abaddon
+5. Asmodeus
+6. Satan
+7. Leviathan
+8. Astaroth
+9. Loki
+10. The Prayer
+
+### "The Temple in the Underworld" 1992, Black Metal
+
+1. Intro
+2. Casilda's Song
+3. The Temple in the Underworld
+4. Aposiopesis
+5. The Solitude
+6. Voices from...
+7. The Wall
+8. The Old Ones
+9. Message
+10. My Name...
+
+### "Kargeras" 1996, Black Metal
+
+1. Lykorian
+2. Kargeras Prologue
+3. Kargeras
+4. Prophet's Song
+5. Rulbrah
+6. Rodaxx
+7. Old Man
+8. Old Woman
+9. Equirhodont - Grandiose Magus
+10. Dygon - Monstrosity
+11. Trygan - Sexton
+12. Dum Vivimus, Vivamus
+
+### "The Book" 1999, Black Metal
+
+1. The Book
+2. The Mystical Words of the Wise
+3. The Curse - Durron
+4. Why?
+5. Corabeu - part one
+6. Corabeu - part two
+7. The Birth
+8. Lykorian
+9. The Message of the Time
+10. Remember Me!
+11. Darkoutro - ...Toccata - prestissimo molto
+
+### "Zjeveni / The Temple in the Underworld (re-release)" 1999, Black Metal
+
+
+
+### "Black Seal" 2001, Black Metal
+
+1. The Festival of Destruction
+2. The Incantation of Thessalonian Women
+3. Nativity
+4. His Eyes Were Dark
+5. Black Seal
+6. The Faith
+7. Salamandra
+8. Necromancy
+9. Theriak
+10. The Mirror Of Soul
+11. Liber Prohibitus
+12. ...Before I Leave!
+
+### "Hell Symphony / Kargeras (re-release)" 2001, Black Metal
+
+
+
+### "Dema (re-release)" 2002, Black Metal
+
+
+
+### "Madness of the Graves" 2003, Black Metal
+
+1. Omen 
+2. Then 
+3. Madness Of The Graves 
+4. Talking Bones 
+5. Endowment 
+6. Tree 
+7. Autumn 
+8. In The Heart Of Darkness 
+9. The Last Gate 
+10. Afterwards
+
+### "Casilda (MSD)" 2006, Black Metal
+
+1. Little Wing (Jimi Hendrix cover)
+2. Strawberry Fields Forever (The Beatles cover)
+3. Casilda's Song (Hyperion verison)
+4. Casilda's Song (Illegal Orchestra version)
+5. Human
+
+### "Daemon Viam Invenient" 2007, Black Metal
+
+
+
+### "Heritage of Satan" 2011, Black Metal
+
+1.	 Introprincipio
+2.	 In Nomine Sathanas
+3.	 Legacy of Ancestors
+4.	 Revenge of Hell
+5.	 Darksome Prophet
+6.	 Fiery Message
+7.	 Son of Satan
+8.	 His Coming
+9.	 Greetings from the Abyss
+10.	 The Apocalypse
+
+### "Kargeras - Return from Oblivion" 2016, Black Metal
+
+1. Life Of Demons
+2. Osculum Infame
+3. Moment Of Fright
+4. The Book Of Death
+5. Black Iris
+6. Moment Of Hope
+7. The Key To The Empty Room
+8. New Empire
+9. Up To The Down
+10. Do You Think Is It The End?
+
 
 ## Отношения с другими группами
 

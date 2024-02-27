@@ -1,8 +1,31 @@
 # Vavel
 
-Дискография
-"Vavel" 1986, Heavy Metal
-"The Second Death" 2002, Heavy Metal
+
+
+## Дискография
+
+### "Vavel" 1986, Heavy Metal
+
+1. Vavel  05:55   
+2. Follow Your Mind  03:27   
+3. Fight With Metal  03:31   
+4. Remember  05:12   
+5. Atomic Energy  04:16
+6. Stand Up  02:47   
+7. Another Chance  07:41   
+8. Bach's Toccata by Vavel  04:35 
+
+### "The Second Death" 2002, Heavy Metal
+
+1. Just For Rock  03:17  
+2. Confusion  03:17   
+3. Let Me Try  04:23 
+4. Christmas Time  05:11
+5. The Second Death  04:00    
+6. Let Me Try  03:50    
+7. United  05:08    
+8. Lies In Your Eyes  02:45 
+
 
 ## Отношения с другими группами
 

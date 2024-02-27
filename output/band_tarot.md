@@ -1,19 +1,80 @@
 # Tarot
 
-Дискография
-"Spell Of Iron Album" 1986, Heavy Metal
-"Follow Me Into Madness" 1988, Heavy Metal
-"To Live Forever" 1993, Heavy Metal
-"To Live Again (Live)" 1994, Heavy Metal
-"Stigmata" 1995, Heavy Metal
-"For The Glory Of Nothing" 1998, Heavy Metal
-"Shining Black Compilation (Japanese Edt.)" 1998, Heavy Metal
-"Suffer Our Pleasures" 2003, Heavy Metal
-"Shining Black Compilation" 2003, Heavy Metal
-"You" 2006, Heavy Metal
-"Crows Fly Black" 2007, Heavy Metal
-"Undead Indeed [DVD]" 2008, Heavy Metal
-"Gravity of Light" 2010, Heavy Metal
+finnish metal band, featuring Nightwish bassplayer Marco Hietala
+
+## Дискография
+
+### "Spell Of Iron Album" 1986, Heavy Metal
+
+
+
+### "Follow Me Into Madness" 1988, Heavy Metal
+
+
+
+### "To Live Forever" 1993, Heavy Metal
+
+
+
+### "To Live Again (Live)" 1994, Heavy Metal
+
+
+
+### "Stigmata" 1995, Heavy Metal
+
+
+
+### "For The Glory Of Nothing" 1998, Heavy Metal
+
+
+
+### "Shining Black Compilation (Japanese Edt.)" 1998, Heavy Metal
+
+
+
+### "Suffer Our Pleasures" 2003, Heavy Metal
+
+
+
+### "Shining Black Compilation" 2003, Heavy Metal
+
+
+
+### "You" 2006, Heavy Metal
+
+1. You   
+2. Veteran of the Psychic Wars (Blue Oyster Cult cover)
+
+### "Crows Fly Black" 2007, Heavy Metal
+
+Crows Fly Black
+Traitor
+Ashes To The Stars
+Messenger Of Gods
+Before The Skies Come Down
+Tides
+Bleeding Dust
+You
+Howl!
+Grey
+
+### "Undead Indeed [DVD]" 2008, Heavy Metal
+
+
+
+### "Gravity of Light" 2010, Heavy Metal
+
+1. Satan is Dead 04:14 
+2. Hell Knows 06:04 
+3. Rise! 04:30
+4. Pilot Of All Dreams 03:42
+5. Magic and Technology 05:50
+6. Calling Down the Rain 04:11
+7. Caught in the Deadlights 04:42
+8. I Walk Forever 04:50
+9. Sleep in the Dark 04:46
+10. Gone 07:02 
+
 
 ## Отношения с другими группами
 

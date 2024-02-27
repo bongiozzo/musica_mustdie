@@ -1,9 +1,47 @@
 # Kenos
 
-Дискография
-"Intersection" 2004, Melodic Death Metal
-"The Craving" 2007, Melodic Death Metal
-"X-Torsion" 2010, Melodic Death Metal
+modern death-metal from Italy
+
+## Дискография
+
+### "Intersection" 2004, Melodic Death Metal
+
+1. The age of terror	 
+2. Chemical insomnia	 
+3. Blood of saints	 
+4. Clouded by chimeras	 
+5. Usteria's ruin	 
+6. Eyes of hurricane	 
+7. Intersection	 
+8. Rigor mortis	 
+9. Dracona
+
+### "The Craving" 2007, Melodic Death Metal
+
+1. The Craving	 
+2. Majestic Persecution	 
+3. Mutant Creation	 
+4. Icon	 
+5. D-Mansion		 
+6. Teaben Rising	 
+7. Who.Is.Key.	 
+8. Aries (Pt. 1)	 
+9. Aries (Pt. 2)	 
+10. Cassandra's Tale	
+
+### "X-Torsion" 2010, Melodic Death Metal
+
+1. Room Sexteen	 
+2. 2012 Omega Assimilation	 
+3. Encounter	 
+4. I Remember	 
+5. X-Torsion	 
+6. Bitchswitch	 
+7. Erocktika (Desert Dancing Raven Queen)	 
+8. Revolver Revival	 
+9. AddictionXtinction	 
+10. Eyes Of Hurricane part. 2
+
 
 ## Отношения с другими группами
 

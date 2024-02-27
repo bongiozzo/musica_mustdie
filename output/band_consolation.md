@@ -1,7 +1,40 @@
 # Consolation
 
-Дискография
-"Brave Melvin From The Southern Point" 1996, Deathcore
+
+
+## Дискография
+
+### "Brave Melvin From The Southern Point" 1996, Deathcore
+
+1. Murder
+2. Ephemera
+3. Godmode
+4. A Clean Whistle/American Meat
+5. Moribund
+6. Truckload Of Hatred
+7. Red Rum
+8. Stahlhelm
+9. The Truth
+10.Dominion Fails
+11.Brave Melvin From The Southern
+Point
+12.Sin
+13.The Darkest Black
+
+All songs written by CONSOLATION
+Produced by Berthus and
+CONSOLATION.
+Engineered by Berthus Westerhuis
+Recorded in the Fall
+
+Manoloxx - Vocals
+2ein - Bass
+Toep - Drums
+Jehudi - Guitars
+Dennis - Guitars
+
+(p)(c) 1996 DISPLEASED Records
+
 
 ## Отношения с другими группами
 

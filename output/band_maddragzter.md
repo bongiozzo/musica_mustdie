@@ -1,7 +1,13 @@
 # Mad Dragzter
 
-Дискография
-"Strong Mind" 2004, Thrash
+Brazilian thrash-metal
+
+## Дискография
+
+### "Strong Mind" 2004, Thrash
+
+
+
 
 ## Отношения с другими группами
 

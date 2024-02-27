@@ -1,7 +1,33 @@
 # Solution 13
 
-Дискография
-"Solution 13" 2002, Heavy Metal
+related: Sentenced
+
+## Дискография
+
+### "Solution 13" 2002, Heavy Metal
+
+1. Never Le You Go
+2. Sink To My Level
+3. Isolation
+4. Demi-God
+5. Regression
+6. Breathe
+7. Hate
+8. Grace
+9. Hallow Void
+10. No Reply
+11. Imitation Of Me
+
+
+
+Ilkka Jarvenpaa - Vocals
+Sami Kukkohovi - Bass
+Petri Saasko - Guitars
+Tape Kanerva - Drums 
+
+
+
+
 
 ## Отношения с другими группами
 

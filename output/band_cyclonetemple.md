@@ -1,8 +1,17 @@
 # Cyclone Temple
 
-Дискография
-"I Hate Therefore I Am" 1991, Thrash
-"My Friend Lonely" 1994, Thrash
+
+
+## Дискография
+
+### "I Hate Therefore I Am" 1991, Thrash
+
+
+
+### "My Friend Lonely" 1994, Thrash
+
+
+
 
 ## Отношения с другими группами
 

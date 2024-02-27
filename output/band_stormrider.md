@@ -1,8 +1,27 @@
 # Stormrider
 
-Дискография
-"Into Battle (demo)" 2001, Thrash
-"First Battle Won" 2003, Thrash
+death-black old school from Sweden
+
+## Дискография
+
+### "Into Battle (demo)" 2001, Thrash
+
+
+
+### "First Battle Won" 2003, Thrash
+
+1-Into Battle 
+2-The Other Side 
+3-Completely Dead 
+4-Killer 
+5-God is Dead 
+6-Odin's Ride 
+7-Kill Yourself 
+8-The Beast 
+9-Addiction 
+10-Dead Love of Mine Pt1 
+11-Dead Love of Mine Pt2
+
 
 ## Отношения с другими группами
 

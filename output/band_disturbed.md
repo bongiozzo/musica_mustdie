@@ -1,11 +1,89 @@
 # Disturbed
 
-Дискография
-"The Sickness" 2000, Nu Metal
-"Believe" 2002, Nu Metal
-"Ten Thousand Fists" 2005, Nu Metal
-"Indestructible" 2008, Nu Metal
-"The Vengeful One (Single) " 2015, Nu Metal
+
+
+## Дискография
+
+### "The Sickness" 2000, Nu Metal
+
+Voices
+The Game
+Stupify
+Down With The Sickness
+Violence Fetish
+Fear
+Numb
+Want
+Conflict
+Shout 2000
+Droppin' Plates
+Meaning Of Life
+
+
+### "Believe" 2002, Nu Metal
+
+Prayer
+Liberate
+Awaken
+Believe
+Remember
+Intoxication
+Rise
+Mistress
+Breathe
+Bound
+Devour
+Darkness
+
+
+David Draiman— vocals
+Dan Donegan — guitars
+John Moyer— bass
+Mike Wengren — drums
+
+### "Ten Thousand Fists" 2005, Nu Metal
+
+10,000 Fists
+Just Stop
+Guarded
+Deify
+Stricken
+I'm Alive
+Sons Of Plunder
+Overburdened
+Decadance
+Forgiven
+Land Of Confusion
+Sacred Lie
+Pain Redefined
+Avarice
+Monster [Bonus Track]
+
+
+David Draiman - vocals
+Dan Donegan - guitars, keyboards
+John Moyer - bass
+Mike Wengren - drums
+
+### "Indestructible" 2008, Nu Metal
+
+1 Indestructible 
+2 Inside the Fire 
+3 Deceiver 
+4 The Night 
+5 Perfect Insanity 
+6 Haunted 
+7 Enough 
+8 The Curse 
+9 Torn 
+10 Criminal 
+11 Divide 
+12 Facade 
+
+### "The Vengeful One (Single) " 2015, Nu Metal
+
+1. The Vengeful One  04:12
+
 
 ## Отношения с другими группами
 

@@ -1,11 +1,29 @@
 # КПП
 
-Дискография
-"Never Old For Heavy Metal" 1988, Hard Rock
-"Механизм дал сбой" 1989, Hard Rock
-"Беспредел" 1992, Hard Rock
-"Кулак тебе в челюсть, топор тебе в череп" 1995, Hard Rock
-"Never Old For Heavy Metal — 9 Years Of Motherf" 1997, Hard Rock
+Rock-n-roll/hard rock
+
+## Дискография
+
+### "Never Old For Heavy Metal" 1988, Hard Rock
+
+
+
+### "Механизм дал сбой" 1989, Hard Rock
+
+
+
+### "Беспредел" 1992, Hard Rock
+
+
+
+### "Кулак тебе в челюсть, топор тебе в череп" 1995, Hard Rock
+
+
+
+### "Never Old For Heavy Metal — 9 Years Of Motherf" 1997, Hard Rock
+
+
+
 
 ## Отношения с другими группами
 

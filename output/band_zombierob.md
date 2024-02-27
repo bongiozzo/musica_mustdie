@@ -1,16 +1,138 @@
 # Zombie, Rob
 
-Дискография
-"Hellbilly Deluxe" 1998, Metal
-"American Made Music to Strip By" 1999, Metal
-"Sinister Urge" 2001, Metal
-"Educated Horses" 2006, Metal
-"Zombie Live" 2007, Metal
-"Hellbilly Deluxe 2" 2010, Metal
-"Mondo Sex Head" 2012, Metal
-"Venomous Rat Regeneration Vendor" 2013, Metal
-"Spookshow International: Live" 2015, Metal
-"The Electric Warlock Acid Witch Satanic Orgy Celebration Dispenser" 2016, Metal
+(ex-White Zombie)
+
+## Дискография
+
+### "Hellbilly Deluxe" 1998, Metal
+
+  1.   Call of the Zombie (Humphrey/Zombie) 
+  2.   Superbeast (Humphrey/Zombie) 
+  3.   Dragula (Humphrey/Zombie) 
+  4.   Living Dead Girl (Humphrey/Zombie) 
+  5.   Perversion 99 (Humphrey/Zombie) 
+  6.   Demonoid Phenomenon (Humphrey/Zombie) 
+  7.   Spookshow Baby (Humphrey/Zombie) 
+  8.   How to Make a Monster (Humphrey/Zombie) 
+  9.   Meet the Creeper (Humphrey/Zombie) 
+  10.   The Ballad of Resurrection Joe and Rosa... (Humphrey/Zombie) 
+  11.   What Lurks on Channel X? (Humphrey/Zombie) 
+  12.   Return of the Phantom Stranger (Humphrey/Zombie) 
+  13.   The Beginning of the End (Humphrey/Zombie) 
+
+
+Chris Lord-Alge  -  Mixing 
+Tom Baker  -  Mastering 
+Paul DeCarli  -  Programming 
+Scott Humphrey  -  Programming, Producer, Engineer, Mixing 
+Tommy Lee  -  Drums 
+Rob Zombie  -  Vocals, Producer 
+Danny Lohner  -  Bass, Guitar 
+Frank Gryner  -  Engineer 
+Mark Matcho  -  Bass, Guitar 
+Tempesta  -  Drums 
+Blasko  -  Bass 
+Riggs  -  Guitar 
+
+
+
+### "American Made Music to Strip By" 1999, Metal
+
+  1.   Dragula (Zombie) - 4:37 
+  2.   Superbeast (Zombie) - 3:58 
+  3.   How to Make a Monster (Zombie) - 4:02 
+  4.   Living Dead Girl (Zombie) - 4:09 
+  5.   Spookshow Baby (Zombie) - 4:35 
+  6.   Demonoid Phenomenon (Zombie) - 4:36 
+  7.   The Ballad of Resurrection Joe and Rosa... (Zombie) - 5:38 
+  8.   What Lurks on Channel X? [XXX Mix] (Zombie) - 4:07 
+  9.   Meet the Creeper (Zombie) - 4:47 
+  10.   Return of the Phantom Stranger (Zombie) - 3:32 
+  11.   Superbeast [Girl on a Motorcycle Mix] (Zombie) - 3:49 
+  12.   Meet the Creeper [Brute Man & Wonder Girl Mix] (Zombie) - 3:45 
+
+
+
+Praga Khan  -  Mixing 
+Oliver Adams  -  Mixing 
+Charles Clouser  -  Mixing 
+DJ Lethal  -  Mixing 
+Scott Humphrey  -  Producer 
+Rob Zombie  -  Vocals, Producer, Art Direction, Design, Photography, Illustrations 
+Mark Weiss  -  Photography 
+Gene Kirkland  -  Photography 
+Chris Vrenna  -  Mixing 
+Chapman Baehler  -  Photography 
+Frank Gryner  -  Engineer 
+Joe Giron  -  Photography 
+Steve Duda  -  Mixing 
+
+
+### "Sinister Urge" 2001, Metal
+
+1. Sinners Inc.  
+2. Demon Speeding   
+3. Dead Girl Superstar   
+4. Never Gonna Stop (The Red, Red Kroovy)   
+5. Iron Head 
+6. (Go to) California  
+7. Feel So Numb  
+8. Transylvania 
+9. Bring Her Down (To Crippletown)  
+10. Scum of the Earth  
+11. House of 1000 Corpses  
+
+
+
+### "Educated Horses" 2006, Metal
+
+01. Sawdust in the Blood
+02. American Witch
+03. Foxy, Foxy
+04. Seventeen Year Locust
+05. The Scorpion Sleeps
+06. 100 Ways
+07. Let It All Bleed Out
+08. Death of it All
+09. Ride
+10. The Devil's Rejects
+11. Lords of Salem
+
+### "Zombie Live" 2007, Metal
+
+
+
+### "Hellbilly Deluxe 2" 2010, Metal
+
+
+
+### "Mondo Sex Head" 2012, Metal
+
+
+
+### "Venomous Rat Regeneration Vendor" 2013, Metal
+
+
+
+### "Spookshow International: Live" 2015, Metal
+
+
+
+### "The Electric Warlock Acid Witch Satanic Orgy Celebration Dispenser" 2016, Metal
+
+01. The Last Of The Demons Defeated
+02. Satanic Cyanide! The Killer Rocks On!
+03. The Life And Times Of A Teenage Rock God
+04. Well, Everybody's Fucking In A U.F.O.
+05. A Hearse Overturns With The Coffin Bursting Open
+06. The Hideous Exhibitions Of A Dedicated Gore Whore
+07. Medication For The Melancholy
+08. In The Age Of The Consecrated Vampire We All Get High
+09. Super-Doom-Hex-Gloom Part One
+10. In The Bone Pile
+11. Get Your Boots On! That's The End Of Rock And Roll
+12. Wurdalak
+
 
 ## Отношения с другими группами
 

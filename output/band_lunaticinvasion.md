@@ -1,7 +1,34 @@
 # Lunatic Invasion
 
-Дискография
-"Totentanz" 1995, Death Metal
+
+
+## Дискография
+
+### "Totentanz" 1995, Death Metal
+
+1. Totentanz
+2. Haut
+3. Deads Paradise
+4. Sturm
+5. Asche Zu'Asche
+6. Fallen Angel
+7. Gathering Of Bones
+8. Dance Macabre
+9. Prozession
+10.The Haunted Palace
+11.Blut Gott
+
+All Songs By LUNATIC INVASION.
+Recorded & Mixed By Toni Lambrusco & LUNATIC INVASION.
+Recorded At White Wedding Studio, Berlin.
+
+Ramlow - Vocals, Keyboards
+Wulfert - Guitars, Keyboards
+Hellbach - Bass
+Majewski - Drums
+
+(P)&(C) 1995 INVASION Records
+
 
 ## Отношения с другими группами
 

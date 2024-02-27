@@ -1,7 +1,27 @@
 # Butthole Surfers
 
-Дискография
-"Electric Larry Land" 1996, Punk
+
+
+## Дискография
+
+### "Electric Larry Land" 1996, Punk
+
+1.  Birds
+2.  Cough Syrup
+3.  Pepper
+4.  Thermador
+5.  Ulcer Breakout
+6.  Jingle Of A Dog's Collar
+7.  TV Star
+8.  My Brother's Wife
+9.  Ah Ha
+10.The Lord Is A Monkey
+11.Let's Talk About Cars
+12.L.A.
+13.Space
+
+(P)(C) 1996 CAPITOL Records
+
 
 ## Отношения с другими группами
 

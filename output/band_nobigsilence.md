@@ -1,7 +1,22 @@
 # No-Big-Silence
 
-Дискография
-"War in Wonderland" 2006, Industrial
+эстонский кибер метал
+
+## Дискография
+
+### "War in Wonderland" 2006, Industrial
+
+01. Gore Gore Girls 
+02. She's Got Hyper Power 
+03. Dreamriders 
+04. Diabolic Speed 
+05. Robot Super Lover Boy 
+06. The Outer Suns 
+07. Red Sky 
+08. War In Wonderland 
+09. Psycho Creeping 
+10. My Tears Are Fire
+
 
 ## Отношения с другими группами
 

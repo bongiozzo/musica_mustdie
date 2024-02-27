@@ -1,14 +1,138 @@
 # Manegarm
 
-Дискография
-"Nordstjarnans Tidsalder" 1998, Black Metal
-"Havets Vargar" 2000, Black Metal
-"Dodsfard" 2003, Black Metal
-"Vargaresa - The Beginning" 2004, Black Metal
-"Vredens Tid" 2005, Black Metal
-"Vargstenen" 2007, Black Metal
-"Nattvasen" 2009, Black Metal
-"Legions of the North" 2013, Black Metal
+
+
+## Дискография
+
+### "Nordstjarnans Tidsalder" 1998, Black Metal
+
+01. Nordstjarnans Sken
+02. Fadernas Kall 
+03. Drakeld
+04. Den Dodes Drommar
+05. Nordanblod
+06. Fallen Harskare
+07. Ymer
+08. Vindar Fran Glцmda Tider
+09. Blod, Jord Och Stjarneglans
+10. Det Sargade Landet
+11. Tiden Som Komma Skall
+
+### "Havets Vargar" 2000, Black Metal
+
+01. Havets Vargar
+02. Tradartanke, Fadar Tids Dцd 
+03. I Gryningstimma
+04. En Del Av Allt Som Blivit Glцmt
+05. Fadarness Lord
+06. Vargtorna
+07. Vanvett 
+08. Spjutsang
+09. Ett Gammalt Bergtroll
+10. Fylgians Dans
+11. Den Sista Striden
+12. Vinternattskvade
+
+### "Dodsfard" 2003, Black Metal
+
+1. Intro
+2. I Evig Tid
+3. Ravenous
+4. Agirs Vrede
+5. Dodsfard
+6. Fimbultrollet
+7. Daudr
+8. Vrede
+9. Pagan War
+10. Ursjalens Visdom
+11. Outro
+
+
+Jonas Almquist - Guitars
+Markus Andi - Guitars
+Pierre Wilhelmson - Bass
+Erik Grawsio - Drums + vocals
+
+### "Vargaresa - The Beginning" 2004, Black Metal
+
+1. Vargaresa 
+2. Hymn till vinternatt 
+3. Blod pе min Klinga 
+4. Nattens jungfru 
+5. Intro 
+6. Daughters of Eve  
+7. Ett gammelt troll 
+8. Det sargade landet 
+9. Ur nattvindar
+
+### "Vredens Tid" 2005, Black Metal
+
+
+
+### "Vargstenen" 2007, Black Metal
+
+01. Uppvaknande
+02. Ur Sjдlslig Dцd
+03. En Fallen Fader
+04. Den Gamle Talar
+05. Genom Vдrldar Nio
+06. Visioner pе Isen
+07. Vargbrodern Talar
+08. I Underjorden
+09. Nio Dagar, Nio Nдtter
+10. Vargstenen
+11. Vedergдllningens Tid
+12. Eld
+
+Markus Ande Guitar
+Erik Grawsjo Drums, vocals
+Jan Liljekvist Violin, flute etc...
+Jonas Almqvist Guitar
+Pierre V Wilhelmsson Bass
+
+The concept "Yargstenen" was recorded, mixed and
+produced by Felle Saether & Manegarm at Studio
+Underground, 2-22 October 2006. Mastered by Henke
+at Masters of audio.
+All paintings by Kris Verivimp. Layout by Mats
+Redestad.
+All music was composed by Jonas Almqvist and Erik
+Grawsio. All lyrics by
+Pierre V Wilhelmsson. Female vocals by Umer
+Mossige-Norheim. English translations by
+Umer Mossige-Norheim and Felle Safstrom.
+The first man to salute is Felle Saether; we hail
+you in the name of Rock n' Roll.
+
+### "Nattvasen" 2009, Black Metal
+
+1. Mina Fдders Hall 05:12
+2. Nattsjдl, Drцmsjдl 05:54  
+3. Bergagasten 05:10  
+4. I den Svartaste Jord 07:17  
+5. Hraesvelg 01:48  
+6. Vetrarmegin 04:59
+7. Draugen 04:17  
+8. Nattvдsen 05:51 
+9. Delling 04:38 
+
+
+### "Legions of the North" 2013, Black Metal
+
+01. Arise [02:26]
+02. Legions Of The North [04:43]
+03. Eternity Awaits [05:16]
+04. Helvegr [00:16]
+05. Hordes Of Hel [05:06]
+06. Tor Hjalpe [05:14]
+07. Wake The Gods [03:46]
+08. Vigverk [00:37]
+09. Sons Of War [05:35]
+10. Echoes From The Past [06:40]
+11. Fallen [05:21]
+12. Forged In Fire [06:13]
+13. Raadh [03:16]
+
 
 ## Отношения с другими группами
 

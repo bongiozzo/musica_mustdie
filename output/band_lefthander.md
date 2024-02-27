@@ -1,7 +1,24 @@
 # Lefthander
 
-Дискография
-"Condemned" 2004, Melodic Death Metal
+melodic death metal проект из Нововоронежа.
+
+## Дискография
+
+### "Condemned" 2004, Melodic Death Metal
+
+. Instead the love
+2. Disbelief
+3. Condemned 
+4. Battle Fury
+5. Tir Na Nogth
+6. Dark Fatal Games 
+7. Midnight Mirror  
+8. Grove of Unicorn 
+9. Macross (cover)
+
+Состав:
+Alex Lefthander - всё
+
 
 ## Отношения с другими группами
 

@@ -1,9 +1,91 @@
 # Dreams of Sanity
 
-Дискография
-"Komodia" 1997, Gothic
-"Masquerade" 1999, Gothic
-"The Game" 2000, Gothic
+
+
+## Дискография
+
+### "Komodia" 1997, Gothic
+
+1. Komodia I: The Beginning. (5.45)
+2. Beatrice (0.45)
+3. Komodia II: The Dream. (9.09)
+4. Komodia III: The Meeting. (13.43)
+5. Komodia IV: The Ending. (7.59)
+6. The Prophet. (8.28)
+7. Treesitter. (4.00)
+8. Blade of Doom. (5.03)
+
+(p)&(c)1997 HALL OF SERMON
+
+SANDRA SCHLERET - vocals
+MARTINA HORNBACHER - vocals
+CHRISTIAN MARX - guitar
+ANDREAS WILDAUER - guitar
+SREPHAN MANGES - keyboard
+MICHAEL KNOFLACH - bass
+ROMED ASTNER - drums
+
+Words and music by Dreams of Sanity. 
+Recorded and engineered by Robert Romagna at Zero Point Studios, Kramsach. Mixed by Gottfried Koch at Impuls 
+Studios, Hamburg. Masterd by Benno Hofer at Tonart, Basel
+
+### "Masquerade" 1999, Gothic
+
+1. Opera.
+2. The Phantom Of The Opera.
+3. Masquerade Act 1.
+4. Masquerade Act 2.
+5. Masquerade-Interlude.
+6. Masquerade Act 3.
+7. Masquerade Act 4.
+8. Within (The Dragon).
+9. The Maiden And The River.
+10. Lost Paradise '99.
+
+(c)&(p) 1999 HALL OF SERMON
+
+SANDRA SCHLERET - vocals
+CHRISTIAN MARX – guitar
+ANDREAS WILDAUER - guitar
+MICHAEL KNOFLACH - bass
+FREDERIC HEIL – keys
+HARALD OBEXER - drums
+
+### "The Game" 2000, Gothic
+
+1. In...
+2. The Creature That You Came To See
+3. Time To Set The Stones
+4. The Beginning That Lies
+5. The Empress - Through The Looking Glass (A Dream?)
+6. Window To The Sky
+7. And So (I Walk On)
+8. We.ll.sea
+9. The Creature That You Came To See... (Reprise)
+10. ...Finity
+
+Frederic Heil - keyboards
+Michael Knoflach - bass
+Christian Marx - guitars
+Harald Obexer - drums
+Sandra Schleret - vocals
+Andreas Wildauer - guitars
+
+Words Michael Knoflach, Music Christian Marx
+except "The Beginning that lies", "A Window to the Sky", "In.." and
+"...finity" by Frederic Heil and "we.ll.sea" by Andreas Wildauer.
+Guest appearance of J.P.Genkel with the great guitar solo on
+"The Creature that you came to see... (reprise)" and bass on
+"The Empress ..."
+
+Recorded, engineered and mixed by J.P.Genkel and Gottfried Koch at
+Impuls Studios, Hamburg.
+Produced by Dreams of Sanity.
+Photography by Joachim Bergauer, Salzburg
+Cover artwork and layout by Andreas Seebacher
+
+(p) Hall Of Sermon
+
 
 ## Отношения с другими группами
 

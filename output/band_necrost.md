@@ -1,8 +1,17 @@
 # Necrost
 
-Дискография
-"Necrost" 2000, Techno Death
-"Conception of Noise" 2004, Techno Death
+
+
+## Дискография
+
+### "Necrost" 2000, Techno Death
+
+
+
+### "Conception of Noise" 2004, Techno Death
+
+
+
 
 ## Отношения с другими группами
 

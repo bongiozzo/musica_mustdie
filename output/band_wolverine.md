@@ -1,11 +1,99 @@
 # Wolverine
 
-Дискография
-"Fervent Dream [EP]" 1999, Progressive
-"The Window Purpose" 2001, Progressive
-"Cold Light Of Monday" 2003, Progressive
-"The Window Purpose (re-issue)" 2005, Progressive
-"Still" 2006, Progressive
+Swedish progressive band
+
+## Дискография
+
+### "Fervent Dream [EP]" 1999, Progressive
+
+1.Whispers On The Wind
+2.Echoes
+3.More Than Grief
+4.Again?
+5.Last Words
+
+
+Performed by:
+Marcus Losbjer - drums and death vocals
+Stefan Zell - bass and clean vocals
+Mikael Zell - guitar
+C-H Landegren - guitar and backing vocals
+
+Additional musicians:
+Andreas Baglien - keyboards
+Kevin Sumner - didjeridoo
+The Heden string quartet:
+Tuva Mode&#1081;r - violin
+Elin Hedlund - violin
+Caroline Sj&#1094;berg - viola
+Helena Bohman - cello
+
+
+
+### "The Window Purpose" 2001, Progressive
+
+1. End (inst.) 0:45 (Baglien)
+2. My Room 8:04 (M. & S. Zell, Baglien)
+3. His Cold Touch 9:42 (Wolverine)
+4. Three Dots (inst.) 1:52 (Brodesson)
+5. Leaving Yesterday 7:11
+   (M. Zell, Brodesson)
+6. Towards Loss 5:55
+   (M. Zell, Baglien, Brodesson, Losbjer)
+7. The Storm Inside 7:56
+   (M. & S. Zell, Brodesson, Losbjer)
+8. Coma 7:25 (Brodesson, M. Zeil, Baglien)
+9. Release (inst.) 2:12 (Baglien)
+10. Post Life 5:57 (S. Zeil)
+
+Mikael Zell - guitars
+Stefan Zell - bass; vocals
+Andreas Baglien - keyboards
+Marcus Losbjer - drums; growls
+Per Brodesson - guitars 
+
+### "Cold Light Of Monday" 2003, Progressive
+
+1. Dawn
+2. Sarah
+3. New Best Friends
+4. Tightrope
+5. Carousel
+6. Trust
+7. Pantomime
+8. Red Canvas
+9. Dusk
+10. Tied With Sin
+11. The Final Redemption 
+
+### "The Window Purpose (re-issue)" 2005, Progressive
+
+
+
+### "Still" 2006, Progressive
+
+1. A House Of Plague 06:52 
+2. Bleeding 05:21 
+3. Taste Of Sand 06:02 
+4. Nothing More 04:11 
+5. Sleepy Town 04:13 
+6. Liar On The Mount 05:43 
+7. Hiding 04:14  
+8. This Cold Heart Of Mine 07:52  
+9. And She Slowly Dies 07:40
+
+Recorded and mixed at Spacelab studios, Germany (June-August 2005) by Oliver
+Phillips and Christian "Moschus" Moos.
+Drums recorded at Studio Soundcreation, Sweden by Per Ryberg.
+Additional programming for "Sleepy Town" and percussion for "Hiding" recorded
+at Marcus apartment, Sweden by himself.
+Fender Rhodes and Glockenspiel for "Nothing More" recorded at FoxFace studio,
+Sweden by Andreas Baglien.
+Double bass for "Hiding" recorded at Petri's apartment, Stockholm, Sweden py
+Petri Tuulik.
+Mastered by Eroc at Eroc's Mastering Ranch.
+Artwork and design by Marcus Losbjer. 
+
 
 ## Отношения с другими группами
 

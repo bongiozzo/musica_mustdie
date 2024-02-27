@@ -1,10 +1,41 @@
 # Arkhon Infaustus
 
-Дискография
-"Hell Injection" 2001, Death Metal
-"Filth Catalyst" 2003, Death Metal
-"Perdition Insanabilis" 2004, Death Metal
-"Orthodoxyn" 2007, Death Metal
+
+
+## Дискография
+
+### "Hell Injection" 2001, Death Metal
+
+
+
+### "Filth Catalyst" 2003, Death Metal
+
+
+
+### "Perdition Insanabilis" 2004, Death Metal
+
+1.	 Genesis Of Loss	01:17	 
+2.	 M33 Constellation	05:47
+3.	 Abortion Of The Kathavatthu	05:15	 
+4.	 Six Seals Salvation	05:51	 
+5.	 Saturn Motion Theology	05:15	 
+6.	 Oratio Descendere	05:06	 
+7.	 Profanis Codex LXVI	05:00	 
+8.	 Whirlwind Journey	05:42	 
+9.	 Absurd Omega Revelation	02:19	
+
+### "Orthodoxyn" 2007, Death Metal
+
+1.	 Trigrammaton	06:02
+2.	 When They Have Called	06:11
+3.	 Magnificat Satanas	06:11
+4.	 Behind The Husk of Faith	05:14
+5.	 La Particule de Dieu	05:34
+6.	 Narcofili Sancti	05:32
+7.	 Evanggelion Youdas	06:03
+8.	 Annunciation To the Holy Ghost	05:05
+9.	 Orthodoxyn	03:08
+
 
 ## Отношения с другими группами
 

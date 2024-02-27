@@ -1,7 +1,23 @@
 # Odyssea
 
-Дискография
-"Tears In Floods" 2004, Progressive
+
+
+## Дискография
+
+### "Tears In Floods" 2004, Progressive
+
+Intro 
+Fly 
+The King 
+Falling Star 
+Burning Time 
+Try Again 
+Angel Cries 
+Tears In Floors pt.1 (El Ultimo Canto) 
+Tears In Floors pt.2 (Miserable Man) 
+Apocalypse pt.I 
+Creatures
+
 
 ## Отношения с другими группами
 

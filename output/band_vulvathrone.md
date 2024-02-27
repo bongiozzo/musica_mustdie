@@ -1,8 +1,39 @@
 # Vulvathrone
 
-Дискография
-"Bukkake" 2007, Deathcore
-"Passion of Perversity" 2009, Deathcore
+
+
+## Дискография
+
+### "Bukkake" 2007, Deathcore
+
+1. The Allure Of Domination 03:49
+2. Porn Porn Porn 00:34  
+3. Forced Oral Fuck 01:47  
+4. Piss-Bukkake 03:49  
+5. Maxxed Out (Tribute To Max Hardcore) 03:55  
+6. Strije 00:04  
+7. Plastered With Semen 04:02  
+8. Bleed For Me 03:31  
+9. Toilet Slut 04:35
+10. Tarja You Cunt 03:06  
+11. Marquise De Rous 00:48  
+12. Bitch Suck My Tich (extended version) 00:48 
+
+### "Passion of Perversity" 2009, Deathcore
+
+1. Psychopathia Sexualis 03:32  
+2. Bitch Hunt 03:36  
+3. Reduced to a Sexual Object 04:03  
+4. She Will Never Do Porn Again 02:26  
+5. Kurbovje 03:30  
+6. Kurva 04:17  
+7. Cum-Socket 04:10  
+8. Caviar 03:26  
+9. Metaphysics of Torture 02:37  
+10. The Cult of Vulva 02:37  
+11. Seba 00:28  
+12. Bitch, Suck My Tich (Xtended version) 01:08 
+
 
 ## Отношения с другими группами
 

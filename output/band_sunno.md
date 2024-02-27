@@ -1,10 +1,34 @@
 # Sunn O)))
 
-Дискография
-"White 1" , Metal
-"The Grimmrobe Demos" 1998, Metal
-"00VOID" 2000, Metal
-"Flight of the Behemoth" 2001, Metal
+ex-Thorr's Hammer
+
+## Дискография
+
+### "White 1" , Metal
+
+
+
+### "The Grimmrobe Demos" 1998, Metal
+
+Black Wedding [14:59]
+Defeating: Earths' Gravity [19:17]
+Dylan Carlson [21:28]
+
+### "00VOID" 2000, Metal
+
+Richard
+NN O)))
+Rabbits' Revenge
+Ra At Dusk
+
+### "Flight of the Behemoth" 2001, Metal
+
+Mocking Solemnity
+Death Becomes You
+O)))BOW 1
+O)))BOW 2
+F.W.T.B.T
+
 
 ## Отношения с другими группами
 

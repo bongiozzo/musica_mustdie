@@ -1,10 +1,51 @@
 # Vanishing Point
 
-Дискография
-"IN THOUGHT" 1999, Progressive
-"TANGLED IN DREAM" 2000, Progressive
-"Embrace The Silence" 2005, Progressive
-"In Thought (re-issue)" 2006, Progressive
+Progressive Metal
+
+## Дискография
+
+### "IN THOUGHT" 1999, Progressive
+
+The Only One
+ 
+Vanishing Point 
+In Company of Darkness 
+Dream Maker 
+Sunlit Windows 
+Blind 
+Forgotten Self 
+A Memory 
+Inner Peace 
+
+
+### "TANGLED IN DREAM" 2000, Progressive
+
+Surreal 
+Samsara 
+Closer Apart 
+Bring on the Rain 
+Never Walk Away 
+The Real You 
+Two Minds One Soul 
+I Will Awake 
+Dancing with the Devil 
+Father (7 Years) 
+Tangled in Dream 
+Inner Peace
+On the Turning Away 
+(Australian Release) 
+Tangled in Europe
+(Europe Release) 
+
+
+### "Embrace The Silence" 2005, Progressive
+
+
+
+### "In Thought (re-issue)" 2006, Progressive
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,13 @@
 # Enter Shikari
 
-Дискография
-"Take To The Skies" 2007, Metalcore
+
+
+## Дискография
+
+### "Take To The Skies" 2007, Metalcore
+
+
+
 
 ## Отношения с другими группами
 

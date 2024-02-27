@@ -1,7 +1,24 @@
 # Loits
 
-Дискография
-"Vere Kutse Kohustab" 2004, Metal
+Estland pagan-metal
+
+## Дискография
+
+### "Vere Kutse Kohustab" 2004, Metal
+
+1. Soomepoiss 
+2. Eesti Auks
+3. Aeg Дrgata 
+4. Vхitluslipp 
+5. Tuleristsed 
+6. Vanade Leegionдride Laul 
+7. Eluruun 
+8. Nimeta Haud 
+9. Kodu 
+10. Furor Aesticus 
+11. Oskar Ruut 
+12. Raiugem Ruunideks
+
 
 ## Отношения с другими группами
 

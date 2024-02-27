@@ -1,11 +1,29 @@
 # Lemonator
 
-Дискография
-"Yellow" 1997, Rock
-"MAISON RILAX" 1998, Rock
-"THE WALTZ" 2000, Rock
-"Grandpop" 2003, Rock
-"YESTERDAY WAS GOOD" 2004, Rock
+rock
+
+## Дискография
+
+### "Yellow" 1997, Rock
+
+Playing With Dinosaur/Over Now/ You Could Be A Monster/Zoo/Superb/A Place/Sun/Bottle Up, Bye Bye/I Love Trampoline/Tourist/Heavy/A Good Year
+
+### "MAISON RILAX" 1998, Rock
+
+Maison Rilax/Not Your Game/Accidental Coincidence/Safe/Same Old Same/Headlights/On The Windowpane/Crashed/Lost/Song For The Last Act
+
+### "THE WALTZ" 2000, Rock
+
+One Last Day/California/That One Touch/I Don't Want To Live Forever/Stars & Satellites/In Your World/You're Left, I'm Right/The Unbreakable Two/Once I Killed A Boy With A Girl/ You Stole My Heart/Everybody Knows
+
+### "Grandpop" 2003, Rock
+
+84 Seconds In The West/The Killer I/ Glass Boy/Broken Record/We'll Be The Flowers On Our Grave/Yearbook 2001/ Poor Happy Man/Is It You?/Can't Fall In Love/Ballerina /The Best Friends
+
+### "YESTERDAY WAS GOOD" 2004, Rock
+
+California/Black Coffee/Broken Record/Once I Killed a Boy with a Girl/(We Go) Round/Is it You?/Headlights/I Don’t Want To Live Forever/Bottle Up, Bye Bye/Not Your Game/One Last Day/Glass Boy/The Same/Safe/You Stole My Heart/The Killer I/Over Now/Crashed/You’re Left, I’m Right/Superb
+
 
 ## Отношения с другими группами
 

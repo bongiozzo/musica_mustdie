@@ -1,7 +1,23 @@
 # Garbo Talks
 
-Дискография
-"Garbo Talks" 1998, Hard Rock
+Melodic Hard
+
+## Дискография
+
+### "Garbo Talks" 1998, Hard Rock
+
+1. Only love
+2. Hard times
+3. This could be the night
+4. Elenah
+5. Give you my lovin'
+6. Standing in the same room
+7. Fire me up
+8. Foolish heart
+9. Easy come, easy go
+10. I live for you
+11. Game of love
+
 
 ## Отношения с другими группами
 

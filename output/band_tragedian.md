@@ -1,7 +1,23 @@
 # Tragedian
 
-Дискография
-"Dreamscape" 2008, Power Metal
+
+
+## Дискография
+
+### "Dreamscape" 2008, Power Metal
+
+1. Tartarus 01:26  
+2. The Eternal Fight 04:04  
+3. Turn Back Time 04:25  
+4. Immortality 03:36  
+5. Dreamscape 03:38  
+6. Broken Dream 04:39  
+7. New Promise Land 03:33  
+8. Napoleon 03:53  
+9. Trials Of Fire 05:19  
+10. Conquerors 03:52  
+11. Conquerors (Orchestral Version) 07:28 
+
 
 ## Отношения с другими группами
 

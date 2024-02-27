@@ -1,7 +1,16 @@
 # Spasmodic
 
-Дискография
-"Carve Perfection (EP)" 2010, Death Metal
+
+
+## Дискография
+
+### "Carve Perfection (EP)" 2010, Death Metal
+
+1. Cutting Room
+2. Snip Snip Sweetheart
+3. Carve Perfection
+4. Self Starvation
+
 
 ## Отношения с другими группами
 

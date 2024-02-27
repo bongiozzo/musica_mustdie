@@ -1,9 +1,73 @@
 # Psychic TV
 
-Дискография
-"Pagan Day" 1984, Hardcore
-"Towards Thee Infinite Beat" 1990, Hardcore
-"Beyond Thee Infinite Beat" 1990, Hardcore
+
+
+## Дискография
+
+### "Pagan Day" 1984, Hardcore
+
+1. Cadaques
+2. We Kiss
+3. Opium
+4. Cold Steel
+5. Lost Angeles
+6. Iceland
+7. Translucent Carriages
+8. Paris
+9. Baby's Gone Away
+10.Alice
+11.New Sexuality
+12.Farewell
+
+All Songs Written By Genesis 
+P-Orridge And Alex Fergusson.
+
+(p)&(c) 1984 TEMPLE Records
+
+### "Towards Thee Infinite Beat" 1990, Hardcore
+
+1. Infinite Beat
+2. Bliss
+3. Drone Zone
+4. S.M.I.L.E.
+5. I.C.Water
+6. Black Rainbow
+7. A Short Sharp Taste
+   Of Mistress Mix
+8. Horror House
+9. Jigsaw
+10.Alien Be-In
+11.Stick Incest
+12.Money For E...
+
+ Genesis P-Orridge
+ Paula P-Orridge
+ Daniel Black
+ Fred Gianelli
+ Mattew Best
+
+Produced By Fred Gianelli/G.P-Orridge.
+Engineered By Andy Falconer.
+
+(p)&(c) 1990 WAX TRAX! Records
+
+### "Beyond Thee Infinite Beat" 1990, Hardcore
+
+1. Money For E...
+2. S.M.I.L.E.
+3. Bliss
+4. Horror House
+5. I.C.Water *
+6. Stick Incest
+7. Money For E...
+
+All Tracks Remixed At THE BEAT FARM
+Blore Court,London During January 1990
+Except * Which Was Remixed by Evil Eddie
+Richards At Dynamix.
+
+(p)&(c) 1990 TEMPLE Records
+
 
 ## Отношения с другими группами
 

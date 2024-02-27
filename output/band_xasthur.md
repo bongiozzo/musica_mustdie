@@ -1,14 +1,116 @@
 # Xasthur
 
-Дискография
-"Nocturnal Poisoning" 2002, Black Metal
-"The Funeral of Being" 2003, Black Metal
-"Telepathic with the Deceased" 2004, Black Metal
-"To Violate the Oblivious" 2004, Black Metal
-"Subliminal Genocide" 2006, Black Metal
-"Defective Epitaph" 2007, Black Metal
-"All Reflections Drained" 2009, Black Metal
-"Portal of Sorrow" 2010, Black Metal
+
+
+## Дискография
+
+### "Nocturnal Poisoning" 2002, Black Metal
+
+1. In the Hate of Battle 09:04
+2. Soul Abduction Ceremony 07:44
+3. A Gate Through Bloodstained Mirrors 08:05
+4. Black Imperial Blood (Mьtiilation cover) 05:50
+5. Legion of Sin and Necromancy 11:40  
+6. A Walk Beyond Utter Blackness 06:27  
+7. Nocturnal Poisoning 15:20  
+8. Forgotten Depths of Nowhere 04:50 
+
+### "The Funeral of Being" 2003, Black Metal
+
+1. The Awakening to the Unknown Perception of Evil 07:12  
+2. Tyrant of Nightmares 06:47  
+3. Intro 01:02  
+4. Sigils Made of Flesh and Trees 05:18
+5. Blood From the Roots of the Forest, Part 2 01:32  
+6. Blood From the Roots of the Forest, Part 1 08:50  
+7. Intro 01:11  
+8. Bleak Necrotic Paleness 02:29  
+9. Reflecting Hateful Energy 07:55
+10. Tyrant of Nightmares (Darkened Winter Promo '01 version) 05:29  
+11. Outro 01:03 
+
+### "Telepathic with the Deceased" 2004, Black Metal
+
+1. Entrance into Nothingness 03:50  
+2. Slaughtered Useless Beings in a Nihilistic Dream 04:49
+3. Abysmal Depths Are Flooded 06:51 
+4. May Your Void Become As Deep As My Hate! 03:27
+5. Telepathic With the Deceased 09:43
+6. A Walk Beyond Utter Blackness 07:42  
+7. Cursed Revelations 05:39 
+8. Drown into Eternal Twilight 03:00
+9. Murdered Echoes of the Mind 10:03 
+10. Exit 02:33 
+
+### "To Violate the Oblivious" 2004, Black Metal
+
+1. Intro 02:06  
+2. Xastur Within 06:14 
+3. Dreams Blacker Than Death 05:24  
+4. Screaming At Forgotten Fears 08:24
+5. Consumed By a Dark Paranoia 03:40  
+6. Marked By Shadows 06:43
+7. Apparitional Void of Failure 04:37  
+8. A Gate Through Bloodstained Mirrors 12:06
+9. Walker of Dissonant Worlds 05:40 
+
+### "Subliminal Genocide" 2006, Black Metal
+
+1. Disharmonic Convergence 01:50  
+2. The Prison of Mirrors 12:42
+3. Beauty is Only Razor Deep 07:00  
+4. Trauma Will Always Linger 08:29
+5. Pyramid of Skulls 02:36  
+6. Arcane and Misanthropic Projection 09:40  
+7. Victim of Your Dreams 06:12  
+8. Through a Trance of Despondency 03:30  
+9. Loss and Inner Distortion 04:04  
+10. Subliminal Genocide 08:49  
+11. Malice Hidden in Surrealism 06:37 
+
+### "Defective Epitaph" 2007, Black Metal
+
+1. Soulless Elegy 02:42  
+2. Purgatory Spiral 04:29  
+3. Cemetery of Shattered Masks 06:03  
+4. Malignant Prophecy 05:40  
+5. Oration of Ruin 07:23  
+6. Legacy of Human Irrelevance 05:36  
+7. Dehumanizing Procession 04:52  
+8. Funerals Drenched in Apathy 05:29  
+9. Worship (The War Against) Yourself 07:34  
+10. A Memorial to the Waste of Life 08:44  
+11. The Only Blood That Pours is Yours 08:15  
+12. Unblessed Be 08:13 
+
+### "All Reflections Drained" 2009, Black Metal
+
+1. Dirge Forsaken 05:41  
+2. Maze Of Oppression 05:13
+3. Achieve Emptiness, Pt. 2 04:39  
+4. Masquerade Of Incisions 15:33 
+5. Damage Your Soul 04:52  
+6. Inner Sanctum Surveillance 07:02  
+7. Obfuscated In Oblivion 05:25  
+8. All Reflections Drained 07:57 
+
+### "Portal of Sorrow" 2010, Black Metal
+
+1. Portal of Sorrow 04:09  
+2. Broken Glass Christening 03:51
+3. Shrine of Failure 04:28  
+4. Stream of Subconsciousness 07:51  
+5. Karma/Death 04:20  
+6. Horizon of Plastic Caskets 03:50
+7. Mesmerized by Misery 02:53  
+8. This Abyss Holds the Mirror 07:31  
+9. Mourning Tomorrow 02:08  
+10. Miscarriage of the Soul 03:27 
+11. Obeyer's of Their Own Deaths 02:31
+12. Released From this Earth 04:28  
+13. The Darkest Light 04:37 
+14. Hiver de Glace 01:56 
+
 
 ## Отношения с другими группами
 

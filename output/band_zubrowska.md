@@ -1,8 +1,37 @@
 # Zubrowska
 
-Дискография
-"One on Six" 2003, Deathcore
-"Family Vault" 2005, Deathcore
+
+
+## Дискография
+
+### "One on Six" 2003, Deathcore
+
+01. Intro
+02. Forkebabh
+03. Sex, Drugs & Basketball
+04. Do I Look Well?
+05. Happy Pink Town
+06. Smells Like Suicide
+07. I Hate Teen Visions
+08. One On Six
+09. I Talk To The Wind
+10. This Rose For You
+11. Sad Sick World
+12. When Satan Plays Disco People Die
+
+### "Family Vault" 2005, Deathcore
+
+01. From Hell
+02. Ode to my black sun
+03. C.O.V.E.D
+04. Maniac rockers from darkness
+05. Vapmire Killing Kit
+06. Pay to pay
+07. 'Cause I just can love some dead persons
+08. Through the sky
+09. In the house of the seven dead
+10. What a wonderful world
+
 
 ## Отношения с другими группами
 

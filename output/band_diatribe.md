@@ -1,7 +1,13 @@
 # Diatribe
 
-Дискография
-"Ruins of a shining heritage" 2002, Death Metal
+
+
+## Дискография
+
+### "Ruins of a shining heritage" 2002, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

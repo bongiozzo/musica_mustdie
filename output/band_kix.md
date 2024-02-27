@@ -1,14 +1,41 @@
 # Kix
 
-Дискография
-"Kix" 1981, Hard Rock
-"Cool Kids" 1983, Hard Rock
-"Midnite Dynamite" 1985, Hard Rock
-"Blow My Fuse" 1988, Hard Rock
-"Hot Wire" 1991, Hard Rock
-"Live" 1993, Hard Rock
-"Show Business" 1995, Hard Rock
-"Rock Your Face Off" 2014, Hard Rock
+
+
+## Дискография
+
+### "Kix" 1981, Hard Rock
+
+
+
+### "Cool Kids" 1983, Hard Rock
+
+
+
+### "Midnite Dynamite" 1985, Hard Rock
+
+
+
+### "Blow My Fuse" 1988, Hard Rock
+
+
+
+### "Hot Wire" 1991, Hard Rock
+
+
+
+### "Live" 1993, Hard Rock
+
+
+
+### "Show Business" 1995, Hard Rock
+
+
+
+### "Rock Your Face Off" 2014, Hard Rock
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,34 @@
 # Sarah Jezebel Deva
 
-Дискография
-"A Sign of Sublime" 2010, Gothic
-"The Corruption of Mercy" 2011, Gothic
+
+
+## Дискография
+
+### "A Sign of Sublime" 2010, Gothic
+
+1. Genesis  02:11  
+2. A Sign Of Sublime  04:04   
+3. She Stands Like Stone  04:12  
+4. The Devil's Opera  05:16   
+5. They Called Her Lady Tyranny  04:54
+6. The Road To Nowhere  05:03 
+7. Your Woeful Chair  06:09   
+8. A Newborn Failure  02:06   
+9. Daddy's Not Coming Home  04:07 
+
+### "The Corruption of Mercy" 2011, Gothic
+
+1. No Paragon Of Virtue
+2. The World Won't Hold Your Hand
+3. A Matter Of Convenience
+4. Silence Please
+5. Zombie
+6. Pretty With Effects 
+7. What Lies Before You
+8. Sirens
+9. The Eyes That Lie
+10. The Corruption Of Mercy
+
 
 ## Отношения с другими группами
 

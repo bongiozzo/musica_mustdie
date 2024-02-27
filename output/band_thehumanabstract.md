@@ -1,8 +1,38 @@
 # The Human Abstract
 
-Дискография
-"Nocturne" 2006, Progressive
-"Midheaven" 2008, Progressive
+
+
+## Дискография
+
+### "Nocturne" 2006, Progressive
+
+1. Harbinger
+2. Self Portraits Of The Instincts
+3. Nocturne
+4. Crossing The Rubicon
+5. Sotto Voce
+6. Mea Culpa
+7. Movement From Discord
+8. Channel Detritus
+9. Polaris
+10. Echelons To Molotovs
+11. Desiderata
+12. Vela, Together We Await The Storm
+
+
+### "Midheaven" 2008, Progressive
+
+1.A Violent Strike 6:52
+2.Procession of the Fates 4:13
+3.Breathing Life Into Devices 5:11
+4.This World is a Tomb 3:57
+5.Metanoia 3:18
+6.The Path 3:03
+7.Echoes of the Spirit 4:31
+8.Calm in the Chaos 2:46
+9.Counting Down the Days 5:48
+10.A Dead World at Sunrise 4:18
+
 
 ## Отношения с другими группами
 

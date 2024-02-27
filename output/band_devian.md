@@ -1,8 +1,37 @@
 # Devian
 
-Дискография
-"Ninewinged Serpent" 2007, Death Metal
-"God To The Illfated" 2008, Death Metal
+
+
+## Дискография
+
+### "Ninewinged Serpent" 2007, Death Metal
+
+1. Serenade For the Fallen (Intro) 01:27  
+2. Dressed In Blood 05:07
+3. Heresy 05:05 
+4. Scarred 03:50
+5. Suffer the Fools 04:37
+6. Fatalist 04:03 
+7. Gemini Is the Snake 06:35
+8. Instigator 05:11
+9. Remnant Song 04:13 
+10. Ninewinged Serpent 05:07 
+
+### "God To The Illfated" 2008, Death Metal
+
+1. Mask Of Virtue 03:19  
+2. Assailant 03:42  
+3. The Unspoken 03:45  
+4. Saintbleeder 04:42  
+5. I'm The Pariah 03:35  
+6. God To The Illfated 04:19  
+7. Summerdeath 04:32  
+8. South Of Halo 05:38  
+9. Awaiting Doom 03:58  
+10. When The Vultures Have Left 07:20  
+11. Reap The Storm 04:20  
+12. Raison D'etre 04:19 
+
 
 ## Отношения с другими группами
 

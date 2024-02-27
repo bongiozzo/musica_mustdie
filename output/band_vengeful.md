@@ -1,8 +1,31 @@
 # Vengeful
 
-Дискография
-"Karma" 2007, Death Metal
-"The Omnipresent Curse" 2009, Death Metal
+
+
+## Дискография
+
+### "Karma" 2007, Death Metal
+
+1. Sentenced 01:55
+2. Cold Ways 03:41
+3. Burial 04:27 
+4. Counterfeit Deity 10:15
+5. Burial Pt.2 04:43
+6. Cleansing 01:51
+7. Karma 03:18
+8. Tempted 08:02 
+
+### "The Omnipresent Curse" 2009, Death Metal
+
+1. Forsaken 04:45
+2. Beholder 02:16 
+3. Anguish 05:31 
+4. Detention 04:55
+5. Lapsus 04:46  
+6. Nightmare 03:55
+7. Sanctioned 02:42
+8. Transcending 21:02 
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,53 @@
 # Madsword
 
-Дискография
-"Evolution" 1996, Progressive
-"The Global Village" 2000, Progressive
+prog-metal
+
+## Дискография
+
+### "Evolution" 1996, Progressive
+
+01. Tsushima 10:49 
+02. Evolution 8:53 
+03. Through The Sky 8:19 
+04. Digital Trick 5:48 
+05. The Ytse Jam 6:06 
+
+All songs written by: 
+G. Guerra - Zanelli - Caroti
+except track 5 written by:
+Moore, Myung, Petrucci, Portnoy
+
+
+
+Dante Zanelli - Lead & Backing Vocals- Guitars & Keyboards Sequencing
+Simon Rosani - Bass
+Walter Pod - Drums
+
+
+### "The Global Village" 2000, Progressive
+
+ 1. Connect - (0.47)
+ 2. Time in the Ice - (8.04)
+ 3. How much Progress - (7.15)
+ 4. Darkened Rooms - (6.59)
+ 5. Living Hexadecimal - (7.27)
+ 6. Mind’s Bug - (6.53)
+ 7. Traveling through a Wire - (5.36)
+ 8. Behind the Consciousness of Memory - (2.20)
+ 9. A new Beginning? - (10.16)
+
+
+Music and lyrics by Madsword
+
+
+Andrea 'Bedo' Bedin - Vocals
+Gianni Guerra - Guitars
+Lorenzo Castellarin - Keyboards
+Simon Rosani - Bass
+Walter Pod - Drums
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,33 @@
 # Beelzebul
 
-Дискография
-"The Powerful Essence of Lucifthian in Times of Obscurantism" 2000, Black Metal
-"Lies Of God" 2011, Black Metal
+
+
+## Дискография
+
+### "The Powerful Essence of Lucifthian in Times of Obscurantism" 2000, Black Metal
+
+1. The Mysterys Of Creation In The Seven Key Of Power	 
+2. Hadez (Kingdom Of Death Against Christ)	 
+3. Melekthaus (The Great Conqueror Rises From The Deeps)
+4. The Black Return Of Leviathan
+5. Depraved Church	 
+6. The Jackals Wisdom	 
+7. Always Morbid And Insane	 
+8. The Terrible Expansion Of Heavens
+
+### "Lies Of God" 2011, Black Metal
+
+1. Intro	 
+2. The Invocation	 
+3. Devastation	 
+4. Hymn To Shaytan
+5. Sabbath	 
+6. Lies Of God	 
+7. Amon	 
+8. Pure Evil 
+9. Condemned To Hell (Impaled Nazarene Cover)	 
+10. The Day Of My Birth
+
 
 ## Отношения с другими группами
 

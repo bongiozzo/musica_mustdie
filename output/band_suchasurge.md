@@ -1,10 +1,99 @@
 # Such a Surge
 
-Дискография
-"Against The Stream" 1994, Rap Metal
-"Under Pressure" 1995, Rap Metal
-"Agoraphobic Notes" 1996, Rap Metal
-"Alpha" 2005, Rap Metal
+RAP Style
+
+## Дискография
+
+### "Against The Stream" 1994, Rap Metal
+
+1. Against The Stream
+2. Declaration Of Independence
+3. Gegen Den Strom
+4. Leave Me Alone (Scratch ReMix)
+
+Produced & Performed By SUCH A
+SURGE.
+
+Crash - Vocals
+Hell - Vocals
+Dennis - All Guitars
+A.B.H. - Bass
+Long Island  - Drums
+
+(P)&(C) 1994 RAP NATION Records
+
+### "Under Pressure" 1995, Rap Metal
+
+1.  I'm Real
+2.  Trapped
+3.  Gegen Den Strom ('95)
+4.  Under Pressure
+5.  Flatlines
+6.  Schatten
+7.  Pour Toujours
+8.  S.U.R.G.E.
+9.  Down To Earth
+10.Ich Bin Ein Traeumer
+11.Joy And Pain
+12.Gegen Den Strom ('93)
+
+Produced, Recorded, Mixed & Engineered by Alex Perialas
+Co-Produced by Carlos Fleischmann
+Recorded at Pyramid Sound Recording Studios, Ithaca, N.Y., U.S.A. in July/August'94
+
+Olli S. - Vocals
+Michael B. - Vocals
+Dennis G.- Guitars
+Axel H. - Bass
+D.J.Royal 1 - Scratches 
+Daniel L. - Drums
+
+(P)(C) 1995 SONY MUSIC Entertainment (Germany GmbH)
+
+### "Agoraphobic Notes" 1996, Rap Metal
+
+1.  Intro
+2.  Ideale ?!
+3.  ...Amok
+4.  Memories
+5.  Agoraphobia
+6.  T'as Perdu
+7.  Raw And Pure
+8.  You Say I Will
+9.  Ich Sehe Dich
+10.Floating
+11.Mein Freund
+
+All Songs Written By SUCH A SURGE.
+Produced By Stefan Fischer.
+Co-Produced By SUCH A SURGE.
+Recorded & Mixed By Marco Birkner.
+Recorded & Mixed at David Vella's Temple Studios.
+
+Olli S. - Vocals
+Michael B. - Vocals
+Dennis G.- Guitars
+Axel H. - Bass
+D.J.Royal T. - Scratches 
+Carsten R. - Drums
+
+(P)(C) 1996 SONY MUSIC Entertainment (Germany GmbH)
+
+### "Alpha" 2005, Rap Metal
+
+01. Uberfall
+02. O.K.
+03. Was jetzt?
+04. Alles war mir fehlt
+05. Zu allem bereit
+06. Radiosong
+07. Mein Tag
+08. Instant Replay
+09. Nachtaktiv
+10. Blender
+11. Mission erfullt
+12. Monster
+
 
 ## Отношения с другими группами
 

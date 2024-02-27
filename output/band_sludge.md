@@ -1,11 +1,43 @@
 # Sludge
 
-Дискография
-"Sweet Daisy (EP)" 1996, Death Doom
-"The Well" 1997, Death Doom
-"Scarecrow Messiah" 2000, Death Doom
-"Yellow Acid Rain" 2004, Death Doom
-"Lava" 2008, Death Doom
+Death Doom
+
+## Дискография
+
+### "Sweet Daisy (EP)" 1996, Death Doom
+
+1.  Sweet Daisy
+2.  Fly Away
+3.  Loneliness
+4.  Long I Thought
+
+Recorded and Mixed at Sunlight Studio
+Produced by Tomas Skogsberg and Fred Estby.
+Mastered by Fred Estby at Cutting Room
+
+Nico - Laments
+Marco - Larsens
+Christophe - Wall Of Sound
+Patrick - Tribal Conception
+
+(P)c 1996 GODHEAD // GOD 021
+
+### "The Well" 1997, Death Doom
+
+
+
+### "Scarecrow Messiah" 2000, Death Doom
+
+
+
+### "Yellow Acid Rain" 2004, Death Doom
+
+
+
+### "Lava" 2008, Death Doom
+
+
+
 
 ## Отношения с другими группами
 

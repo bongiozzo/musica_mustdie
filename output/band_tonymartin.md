@@ -1,8 +1,25 @@
 # Tony Martin
 
-Дискография
-"Back Where I Belong" 1992, Hard Rock
-"Scream" 2005, Hard Rock
+ex-BLACK SABBATH singer
+
+## Дискография
+
+### "Back Where I Belong" 1992, Hard Rock
+
+
+
+### "Scream" 2005, Hard Rock
+
+1. Raising Hell
+2. Bitter Sweet
+3. Faith In Madness
+4. I'm Gonna Live Forever
+5. Scream
+6. Surely Love Is Dead
+7. The Kids Of Today Don't Understand The Blues
+8. Wherever You Go
+9. Field Of Lies
+
 
 ## Отношения с другими группами
 

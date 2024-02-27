@@ -1,20 +1,124 @@
 # Diamond Head
 
-Дискография
-"Lightning To The Nations" 1980, Heavy Metal
-"Borrowed Time" 1982, Heavy Metal
-"Canterbury" 1983, Heavy Metal
-"Behold the Beginning" 1986, Heavy Metal
-"Am I Evil?" 1987, Heavy Metal
-"Singles" 1992, Heavy Metal
-"Death And Progress" 1993, Heavy Metal
-"Evil Live" 1994, Heavy Metal
-"To Heaven from Hell" 1997, Heavy Metal
-"Lightning To The Nations (remastered)" 1997, Heavy Metal
-"Diamond Nights" 2000, Heavy Metal
-"All Will Be Revealed" 2005, Heavy Metal
-"What's in Your Head?" 2007, Heavy Metal
-"Diamond Head" 2016, Heavy Metal
+(Legend of NWBHM)
+
+## Дискография
+
+### "Lightning To The Nations" 1980, Heavy Metal
+
+
+
+### "Borrowed Time" 1982, Heavy Metal
+
+
+
+### "Canterbury" 1983, Heavy Metal
+
+
+
+### "Behold the Beginning" 1986, Heavy Metal
+
+1 Am I Evil? (Diamond Head) 
+2 It's Electric (Diamond Head) 
+3 Prince (Diamond Head) 
+4 Sucking My Love (Diamond Head) 
+5 Streets of Gold (Diamond Head) 
+6 Play It Loud (Diamond Head) 
+7 Shoot out the Lights (Diamond Head) 
+8 Sweet and Innocent (Diamond Head) 
+9 Waited Too Long (Diamond Head) 
+10 Helpless (Diamond Head) 
+
+
+### "Am I Evil?" 1987, Heavy Metal
+
+1 Am I Evil? 7:39 (Diamond Head) 
+2 Heat Of The Night 5:51 (Diamond Head) 
+3 Don't You Ever Leave Me 5:35 (Diamond Head) 
+4 Borrowed Time 6:47 (Diamond Head) 
+5 To Heaven from Hell 6:27 (Diamond Head) 
+6 Dead Reckoning 6:22 (Diamond Head) 
+7 Lightning To The Nations 4:11 (Diamond Head) 
+8 Sucking My Love 9:29 (Diamond Head) 
+
+
+### "Singles" 1992, Heavy Metal
+
+
+
+### "Death And Progress" 1993, Heavy Metal
+
+
+
+### "Evil Live" 1994, Heavy Metal
+
+
+
+### "To Heaven from Hell" 1997, Heavy Metal
+
+1 Dead Reckoning 6:29 (Diamond Head) 
+2 Heat of the Night 5:53 (Diamond Head) 
+3 Borrowed Time 6:45 (Diamond Head) 
+4 Don't You Ever Leave Me 5:36 (Diamond Head) 
+5 To Heaven from Hell 6:30 (Diamond Head) 
+
+
+### "Lightning To The Nations (remastered)" 1997, Heavy Metal
+
+Lightning To The Nations
+The Prince
+Sucking My Love
+Am I Evil
+Sweet and Innocent
+It's Electric
+Helpless
+Streets Of Gold
+Shoot Out The Lights
+Waited Too Long
+Play It Loud
+Diamond Lights
+We Won't Be Back
+I Don't Got
+It's Electric (remix)
+
+
+
+
+### "Diamond Nights" 2000, Heavy Metal
+
+1 We Won't Be Back 4:15 (Diamond Head) 
+2 Sweet and Innocent 3:10 (Diamond Head) 
+3 Streets Of Gold 3:30 (Diamond Head) 
+4 Prince 6:24 (Diamond Head) 
+5 Helpless 6:51 (Diamond Head) 
+6 I Don't Got 4:21 (Diamond Head) 
+7 Lightning To The Nations 4:13 (Diamond Head) 
+8 Play It Loud 3:30 (Diamond Head) 
+9 It's Electric [Remix] 3:34 (Diamond Head) 
+10 Am I Evil? 7:40 (Diamons Head) 
+11 Waited Too Long 3:49 (Diamond Head) 
+12 Sucking My Love 9:28 (Diamond Head) 
+13 Shoot Out The Lights 4:15 (Diamonds Head) 
+14 It's Electric 3:34 (Diamond Head) 
+15 Diamond Lights 3:27 (Diamond Head) 
+ 
+
+ 
+ 
+
+
+### "All Will Be Revealed" 2005, Heavy Metal
+
+
+
+### "What's in Your Head?" 2007, Heavy Metal
+
+
+
+### "Diamond Head" 2016, Heavy Metal
+
+
+
 
 ## Отношения с другими группами
 

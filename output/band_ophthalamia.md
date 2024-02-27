@@ -1,9 +1,70 @@
 # Ophthalamia
 
-Дискография
-"A Journey In Darkness" 1994, Black Metal
-"Via Dolorosa" 1995, Black Metal
-"Dominion" 1998, Black Metal
+Melodic Black-Doom Metal
+
+## Дискография
+
+### "A Journey In Darkness" 1994, Black Metal
+
+1. A Cry From The Halls Of Blood/Empire Of Lost Dreams
+2. Enter The Darkest Thoughts Of The Chosen/ Agony's Silent Paradise
+3. Journey In Darknees/ Entering The Forest
+4. Shores Of Kaa-Ta-Nu/The Eternal Walk Pt.2
+5. A Lonely Soul/Hymn To A Dream
+6. Little Child Of Light/Degradation Of Holyness
+7. Castle Of No Repair/Lies From A Blackened Heart
+8. This Is The Pain Called Sorrow/To The Memory Of  Me
+9. I Summon Thee Of Father/ Death Embrace Me
+
+All songs by OPHTHALAMIA.
+Produced by Dan Swano & OPHTHALAMIA.
+Engineered by Dan Swano.
+Recorded In Spring 1993 at Unisound Studio, Sweden.
+
+ Shadow - Vocals
+ It - Guitars
+ Mourning - Bass
+ Winter - Drums
+
+(p)(c) 1994 AVANTGARDE Music
+
+### "Via Dolorosa" 1995, Black Metal
+
+1. Intro: Under Ophtalamian Skies /
+To The Benighted
+2. Black As Sin Pale As Death /
+Autumn Whispers
+3. After A Releasing Death /
+Castle Of A No Repair (Pt. 2)
+4. Slowly Passing The Frostlands /
+A Winterlands Tear
+5. Via Dolorosa / My Springnights Sacrifice
+[6].Ophtalamia / The Eternal Walk (Pt.3)
+[7].Nightfall Of Mother Earth / Summer
+Distress
+[8].Outro: Message To Those After Me / Death Embrace Me (Pt.2)
+[9].A Lonely Ceremony / The Eternal Walk
+[10].Deathcrush *
+
+[6,7,8,9] на стороне B
+
+All Songs Written By OPHTHALAMIA, Except * By MAYHEM.
+Produced By OPHTHALAMIA.
+Engineered By Dan Swano.
+Recorded & Mixed At "The 
+Ophthalamian Studios"
+
+Night - Bass, Acoustic Guitar, Screams
+It - Guitars, Add. Vocals, Talk, Screams
+Winter - Drums, Percussion, Screams
+Legion - Lead Vocals, Screams
+
+(P)&(C) 1995 AVANTGARDE Music
+
+### "Dominion" 1998, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

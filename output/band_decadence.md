@@ -1,7 +1,21 @@
 # Decadence
 
-Дискография
-"Theatre of eclipse" 2002, Black Metal
+Symphonic\Melodic Black metal
+
+## Дискография
+
+### "Theatre of eclipse" 2002, Black Metal
+
+1. Intro - Decaydance
+2. I. Movement - Light Collapse
+3. II. Movement - E.C.L.I.P.S.E.
+4. Interlude - Part I
+5. Interlude - Part II
+6. III. Movement - The Infinite Aiming
+7. IV. Movement - Ethereal... And The Thorns
+8. V. Movement - Near The Altar Of Madness
+9. Outro - Midnight Requiem
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,23 @@
 # Egemony
 
-Дискография
-"Baptism of the Unborn" 2009, Death Metal
+
+
+## Дискография
+
+### "Baptism of the Unborn" 2009, Death Metal
+
+1. Soul's Trasmigration 00:54  
+2. Blasphemous Flesh Creation 02:36  
+3. The Horrors of Omega 03:05  
+4. Law of Karmic Retribution 02:36  
+5. Obsessing the Infidel 02:57  
+6. Illusions of Blood And Flesh 02:45  
+7. Ten King's Judgement 05:01  
+8. Baptysm of the Unborn 02:48  
+9. Prophets of Incoming Disgust 03:56  
+10. Abominated Hierarchy (Septycal Gorge Cover) 04:08  
+11. Guttural Orgy ( Keepers of the "Uinity" ) 06:15 
+
 
 ## Отношения с другими группами
 

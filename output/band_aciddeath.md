@@ -1,7 +1,13 @@
 # Acid Death
 
-Дискография
-"_" , Death Metal
+Death Metal from Greece
+
+## Дискография
+
+### "_" , Death Metal
+
+
+
 
 ## Отношения с другими группами
 

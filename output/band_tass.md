@@ -1,8 +1,37 @@
 # T.A.S.S.
 
-Дискография
-"Manifesto" 1994, Industrial
-"Turn Me Off" 1996, Industrial
+
+
+## Дискография
+
+### "Manifesto" 1994, Industrial
+
+1.  Гимн (Hymn)
+2.  Snakedance
+3.  If You Don't Like My Dog
+4.  7 Deadly Sins
+5.  Never Say Never
+6.  Shame
+7.  All Gods Children
+8.  Hit The Whip
+9.  Metaliturgy 
+10.California Uber Alles
+11.Dolls
+12.Ever Get The Feeling ?
+13.Гимн (Hymn/Chaos Reprise)
+
+Produced By T.A.S.S.: Collier, Dr.Rabe & The Voodoo
+
+(p)(c) 1994 GUN Records
+
+### "Turn Me Off" 1996, Industrial
+
+1. Turn Me Off
+2. The Company Of Strangers
+3. Turn Me Off (Remote Control - Mix)
+
+(P)(C) 1996 GUN Records // GUN089
+
 
 ## Отношения с другими группами
 

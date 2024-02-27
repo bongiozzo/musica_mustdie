@@ -1,7 +1,31 @@
 # Ritual
 
-Дискография
-"The Summoning" 1995, Black Metal
+Atmospheric Black Doom Metal
+
+## Дискография
+
+### "The Summoning" 1995, Black Metal
+
+1. Intro
+2. Pagan Warfare
+3. In The Forest
+4. Visions Of Souls Once Lost
+5. Blood Moon
+6. Journey Into The Frozen Wasteland
+7. Ancient God Of Winter
+8. Hail The Dark Lord
+9. Dark Cathedrals
+
+Recorded & Mixed At Time Capsule Studios.
+Engineered By Gilbert Valdez.
+Cover Artwork By Will Lee / Bad Influence.
+
+Jan - Guiatrs, Vocals, Keyboards, Drum Patterns
+Mike - Guitars, Backing Vocals
+Robert - Bass
+
+(P)(C) 1995 WILD RAGS Records // WRR 067
+
 
 ## Отношения с другими группами
 

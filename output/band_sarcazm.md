@@ -1,8 +1,17 @@
 # Sarcazm
 
-Дискография
-"Speed Of Death" 2005, Thrash
-"Just Hate Us" 2008, Thrash
+
+
+## Дискография
+
+### "Speed Of Death" 2005, Thrash
+
+
+
+### "Just Hate Us" 2008, Thrash
+
+
+
 
 ## Отношения с другими группами
 

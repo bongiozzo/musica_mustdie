@@ -1,8 +1,39 @@
 # Damaged
 
-Дискография
-"Token Remedies Research" 1997, Hardcore
-"Purified in Pain" 2000, Hardcore
+(Australian hard-core)
+
+## Дискография
+
+### "Token Remedies Research" 1997, Hardcore
+
+1 Token Remedies Research (Damaged) 
+2 Change (Damaged) 
+3 Eternal Dismemberment Complex (Damaged) 
+4 Mirror Perils (Damaged) 
+5 Cold Blood Eraser (Damaged) 
+6 Soul Vaxation Accidental (Damaged) 
+7 Swine Eyed Sheep (Damaged) 
+8 Ingrained (Damaged) 
+9 Glass Spines & Hearts Like Junkies (Damaged) 
+10 Dust (Damaged) 
+
+
+### "Purified in Pain" 2000, Hardcore
+
+1 Broken 3:16 (Damaged) 
+2 Cyberwar 2:51 (Damaged) 
+3 Lifestyles 3:34 (Damaged) 
+4 Head Trauma 2:41 (Damaged) 
+5 Into Annihilation 2:41 (Damaged) 
+6 Con Man 3:14 (Damaged) 
+7 Breathe Deep 3:32 (Damaged) 
+8 Follow the Man 2:53 (Damaged) 
+9 After World Obliteration 3:09 (Damaged) 
+10 Open Season 3:46 (Damaged) 
+11 Freeks and Geeks 3:11 (Damaged) 
+12 For a Good Time 3:43 (Damaged) 
+
+
 
 ## Отношения с другими группами
 

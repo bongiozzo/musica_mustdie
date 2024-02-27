@@ -1,8 +1,28 @@
 # Simple Minds
 
-Дискография
-"Neon Lights" 2001, Rock
-"Cry" 2002, Rock
+
+
+## Дискография
+
+### "Neon Lights" 2001, Rock
+
+Gloria (Morrison) 
+The Man Who Sold The World (Bowie) 
+Homosapien (Pete Shelley) 
+Dancing Barefoot (Kral/Smith) 
+Neon Lights (Kraftwerk) 
+Hello, I Love You (Doors) 
+Bring On The Dancing Horses (Echo And The Bunnymen) 
+The Needle And The Damage Done (Neil Young) 
+For Your Pleasure 
+(Roxy Music) 
+All Tomorrow's Parties 
+(Velvet Underground)
+
+### "Cry" 2002, Rock
+
+
+
 
 ## Отношения с другими группами
 

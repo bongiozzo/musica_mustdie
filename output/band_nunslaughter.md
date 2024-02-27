@@ -1,10 +1,98 @@
 # Nunslaughter
 
-Дискография
-"Hell's Unholy Fire" 2000, Death Metal
-"Goat" 2003, Death Metal
-"Hex" 2007, Death Metal
-"Грехи Отца [compilation]" 2008, Death Metal
+
+
+## Дискография
+
+### "Hell's Unholy Fire" 2000, Death Metal
+
+1. I Am Death 02:56
+2. Death by the Dead 01:14
+3. Cataclysm 01:33
+4. The Dead Plague 01:38
+5. Hells Unholy Fire 01:49
+6. Killed by the Cross 01:57
+7. Burning Away 01:03 
+8. NunSlaughter 02:28
+9. Burn in Hell 02:05
+10. Blasphemy 01:39 
+11. Seas of Blood 01:06 
+12. Inverted Churches 01:57 
+13. Blood for Blood 01:41
+14. Impale the Soul... 01:41
+15. Altar of the Dead 01:00
+16. Buried Alive 01:42
+17. Perversion of Gore 01:44
+18. Satanic 00:48 
+
+### "Goat" 2003, Death Metal
+
+1. The Crowned and Conquering Hag 02:55
+2. You Bleed 01:17 
+3. She Lives by Night 01:50
+4. Sacrificial Zombie 01:33
+5. Immune to Poison 02:18
+6. Raid the Convent 02:20
+7. As the Cacodemons Feast 02:46
+8. Church of Disgust 02:07
+9. Satanic Slut 02:08
+10. Ritual of Darkness 01:57 
+11. The Guts of Christ 00:59 
+12. Thou Art in the Kingdom of Hell 02:17
+13. Angel Hunt 02:48
+14. The Sephiroth 03:06
+15. Jesus Is Doomed 00:49 
+
+### "Hex" 2007, Death Metal
+
+1. This Is Fucking War 01:40 
+2. I Hate Christians 01:42 
+3. Pyre 01:38 
+4. To Defile 02:06
+5. Immortalize 01:02
+6. Ogrish 01:56 
+7. Unbaptized 02:07
+8. Hex 02:22
+9. Smell the Burning Churches 02:30
+10. Face of Evil 01:13
+11. Lucifer 01:48 
+12. My Evil Concubine 02:04 
+13. Slaughter the Heavens 01:49 
+14. No Place for the Cross 01:40
+15. Rebuilding Sodom 01:35
+16. Riders of the Apocalypse 01:54
+17. Power of Darkness 01:50 
+
+### "Грехи Отца [compilation]" 2008, Death Metal
+
+1. I Hate Christians 01:45
+2. Smell The Burning Churches 02:32 
+3. She Lives By Night 01:49 
+4. Raid The Convent 02:18
+5. Satanic Slut 02:08
+6. I Am Death 02:56
+7. NunSlaughter 02:27
+8. Blood For Blood 01:41
+9. Altar Of The Dead 00:59
+10. In The Graveyard 02:46 
+11. Emperor In Hell 02:33
+12. It Is I 03:30
+13. Hellchild (Venom Cover) 03:57
+14. God Has Lied 01:28
+15. How Cold The Grave 01:43
+16. We Bite (Misfits Cover) 01:05
+17. From The Sea 03:34
+18. Power Of Darkness 02:41
+19. Cerebus 02:18 
+20. Healing The Possessed 02:53
+21. I.N.R.I. 00:43
+22. Devil Metal 02:28
+23. Midnight Mass 01:38 
+24. Resurrection 01:58  
+25. Black Horn Of The Ram 01:38 
+26. The Guts Of Christ 01:13
+27. Fuck The Bastard Christ (first version) 02:37 
+
 
 ## Отношения с другими группами
 

@@ -1,15 +1,94 @@
 # Ephel Duath
 
-Дискография
-"Opera (demo tape)" 1998, Black Metal
-"Phormula" 2000, Black Metal
-"RePhormula" 2002, Black Metal
-"The Painter's Palette" 2003, Black Metal
-"Pain Necessary To Know" 2005, Alternative
-"Pain Remixes The Known" 2007, Alternative
-"Through My Dog's Eyes" 2009, Alternative
-"On Death And Cosmos (EP)" 2012, Alternative
-"Hemmed By Light, Shaped By Darkness" 2013, Alternative
+cyber black
+
+## Дискография
+
+### "Opera (demo tape)" 1998, Black Metal
+
+
+
+### "Phormula" 2000, Black Metal
+
+1. Embossed 
+2. The Greyness Grows Already Old 
+3. Danza 
+4. A Flickering Warmth 
+5. Myriad 
+6. Pursuing The Instinct 
+7. The Blow’s Rhymer 
+8. Elapsed * 
+
+* Unreleased piece from the "Opera" period
+
+
+### "RePhormula" 2002, Black Metal
+
+1. Embossed
+2. The Greyness Grows Already Old   
+3. Danza   
+4. A Flickering Warmth   
+5. Myriad   
+6. Phormula   
+7. The Blow’s Rhymer   
+8. Insomnia's desert
+Bonus Tracks:
+9. Embossed (on the corpse) (remix) 
+10. Instinkt (remix) 
+11. Opera I (demo tape "Opera") 
+12. Adulta Hieme: the Magnificence (demo tape "Opera") 
+13. Falling... (demo tape "Opera") 
+
+
+### "The Painter's Palette" 2003, Black Metal
+
+1) The Passage (pearl grey) 
+2) The Unpoetic Circle (bottle green) 
+3) Labyrinthine (crimson) 
+4) Praha (ancient gold) 
+5) The Picture (bordeaux) 
+6) Ruins (deep blue and violet) 
+7) Ironical Communion (amber) 
+8) My Glassy Shelter (dirty white) 
+9) The Other's Touch (amaranth) 
+
+ 
+Davide Tiso - guitars 
+Fabio Fecchio - bass 
+Davide Piovesan - acoustic drums 
+Luciano Lorusso George - screams 
+Davide Tolomei - skimming vocals 
+
+
+
+### "Pain Necessary To Know" 2005, Alternative
+
+1. New Disorder
+2. Vector, third movement
+3. Pleonasm
+4. Few stars, no refrain and a cigarette (instrumental)
+5. Crystalline Whirl
+6. I killed Rebecca
+7. Vector
+8. Vector, second movement (instrumental)
+9. Imploding
+
+### "Pain Remixes The Known" 2007, Alternative
+
+
+
+### "Through My Dog's Eyes" 2009, Alternative
+
+
+
+### "On Death And Cosmos (EP)" 2012, Alternative
+
+
+
+### "Hemmed By Light, Shaped By Darkness" 2013, Alternative
+
+
+
 
 ## Отношения с другими группами
 

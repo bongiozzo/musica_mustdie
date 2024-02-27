@@ -1,8 +1,31 @@
 # Medievil
 
-Дискография
-"Black Rat's Liturgy" 2000, Black Metal
-"Across The Gloomy Realm" 2002, Black Metal
+
+
+## Дискография
+
+### "Black Rat's Liturgy" 2000, Black Metal
+
+1.From Heathen Forest 
+2.Times of War for the Motherland
+3.Dead Single King
+4.Black Rat's Liturgy 
+5.Follow Your Master! (Black Rats' Lithurgy)
+6.Dragon's Fire
+
+
+### "Across The Gloomy Realm" 2002, Black Metal
+
+1.Of Twilight 
+2.К Чертям! 
+3.Темень ночи черных крыльев
+4.Сярод Вятроу 
+5.Магiльны Сон
+6.The Last Night Overture 
+7.Where The Winter Wind Reigns
+8.Толькi Сосны I Неба У Начы
+
+
 
 ## Отношения с другими группами
 

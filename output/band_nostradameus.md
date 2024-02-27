@@ -1,12 +1,125 @@
 # Nostradameus
 
-Дискография
-"Words Of Nostradameus" 2000, Power Metal
-"The Prophet Of Evil" 2001, Power Metal
-"The Third Prophecy" 2003, Power Metal
-"Hellbound" 2004, Power Metal
-"Pathway" 2007, Power Metal
-"Illusion's Parade" 2009, Power Metal
+
+
+## Дискография
+
+### "Words Of Nostradameus" 2000, Power Metal
+
+01. Words Of Nostradameus
+02. The Vision 
+03. Out Of This World
+04. Nightmare Prophecy
+05. Without Your Love
+06. Master Of The Night
+07. Black Fate
+08. The Crownґs Inn
+09. Resurrection
+10. Brother In Chains
+11. One For All, All For One
+
+### "The Prophet Of Evil" 2001, Power Metal
+
+01. The Prophet Of Evil
+02. Hymn To Theese Lands 
+03. Evil Prophecies
+04. Murder
+05. Requiem (I will honour thy name)
+06. In Prison
+07. The Escape
+08. The Powerґs In Your Hand
+09. Gathering Resistance
+10. The Final Battle
+11.* Scream Of Anger
+
+* Limited edition bonus track.
+
+Recorded: May 2001 in Gain studios, Gothenburg 
+by Magnus Lundb&auml;ck.
+Mixed: Finnvox studios, Helsinki, by Mikko Karmila
+Mastered: Finnvox studios, Helsinki, by Mika Jussila
+Producers: Jake Fred&eacute;n and Freddy Persson 
+
+Line up: 
+Freddy Persson, Vocals.
+Jake Fred&eacute;n, Guitars and backing vocals. 
+Michael &Aring;berg, Guitars and backing vocals. 
+Thomas Antonsson, Bass
+Jesse Lindskog, Drums. 
+
+
+
+
+### "The Third Prophecy" 2003, Power Metal
+
+1. Far too strong  
+2. Randall Flagg Listen 
+3. Those things you did  
+4. The future will show  
+5. If we believe (in our dreams)  
+6. Revenge is mine  
+7. 1986  
+8. H.M.S. Ulysses  
+9. In harmony  
+10. Towards the sleep (Stalingrad) 
+11. One For All, All For One (bonus - live in Stockholm)
+
+
+Recorded: KEG House, Bjorko, Sweden.
+Mixed by: Fredrik Nordstrom, Fredman Studios, Gothenburg, Sweden.
+Mastered by: Goran Finnberg, The Mastering Room, Gothenburg, Sweden. 
+
+
+
+
+### "Hellbound" 2004, Power Metal
+
+01. Never Turning Back
+02. Your Betrayal
+03. The Reapers Image
+04. Hellbound
+05. One Step Away
+06. Fight
+07. Cuts Like Blades
+08. Seven
+09. One World To Live In
+10. I Am Free
+
+### "Pathway" 2007, Power Metal
+
+1. Welcome To Living   
+2. Wall Of Anger    
+3. Until The End    
+4. Demon Voices     
+5. MDCC pt 1   
+6. MDCC pt 2     
+7. P.I.R    
+8. No Traces Of Madness   
+9. Not Only Women Bleed  
+10. Death By My Side 
+11. The Untouchables
+
+### "Illusion's Parade" 2009, Power Metal
+
+1. Art of Deception 05:08  
+2. Mariner 04:02  
+3. Walk of Pain 04:52  
+4. Nothing 04:54  
+5. Virgin Mary 04:38  
+6. Eclipse of the Sun Cult 10:46  
+7. Illusions Parade 02:16  
+8. Armageddon Forever 04:26  
+9. Time for Madness 05:16  
+10. The Voyager 
+
+
+Line-up :
+Freddy Persson: Vocals
+Jake Fredйn: Guitar, Backing vocals
+Michael Еberg: Guitar, Backing vocals
+Thomas Antonsson: Bass
+Jesse Lindskog: Drums 
+
 
 ## Отношения с другими группами
 

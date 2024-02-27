@@ -1,15 +1,177 @@
 # Macabre
 
-Дискография
-"Grim Reality" 1987, Grindcore
-"Gloom" 1989, Grindcore
-"Sinister Slaughter" 1993, Grindcore
-"Behind The Wall Of Sleep" 1994, Grindcore
-"Unabomber" 1999, Death Metal
-"Dahmer" 2000, Death Metal
-"Murder Metal" 2003, Death Metal
-"True Stories of Slaughter and Slaying (dvd)" 2006, Death Metal
-"Grim Scary Tales" 2011, Metal
+Very Intense
+
+## Дискография
+
+### "Grim Reality" 1987, Grindcore
+
+1. Embalmer
+2. Trampled To Death
+3. Holidays Of Horror
+4. Fritz Haarmann The Butcher
+5. Evil Ole Soul
+6. Harvey Glataman (Your Soul Will Forever Rot)
+7. McMassacre
+8. David Brom Took An Axe
+9. Cremator
+10. Nostradamus
+11. I Need To Kill
+12. Ultra Violent
+13. Rat Man
+14. Hey Laurie Dann
+15. Patrick Purdy Killed Five And Wounded Thirty
+16. Exhumer
+17. Dr. Holmes (He Stripped Their Bones)
+18. The Green River Murderer (He's Still Out There)
+19. Funeral Home
+
+### "Gloom" 1989, Grindcore
+
+1. Serial Killer
+2. Mr. Albert Fish (Was Children Your Favorite Dish?)
+3. Disease
+4. Mass Murder
+5. Son Of Sam
+6. Hot Rods To Hell
+7. Ed Gein
+8. Natural Disaster
+
+
+### "Sinister Slaughter" 1993, Grindcore
+
+1. Night Stalker (Richard Ramirez)
+2. The Ted Bundy Song (Ted Bundy)
+3. Sniper In The Sky (Charles Whitman)
+4. Montreal Massacre (Mark Lupine)
+5. Zodiac (Identity Unknown)
+6. What The Hell Did You Do? (James Edward Pough)
+7. The Boston Strangler (Albert De Salvo)
+8. Mary Bell
+9. Mary Bell (Part Two)
+10. Killing Spree (Patrick Sherrill)
+11. Is It Soup Yet? (Daniel Rakowitz)
+12. White Hen Decapitator (Michael Bethke)
+13. Howard Unrah (What Have You Done Now ?!)
+14. Gacy's Lot (John Wayne Gacy)
+15. There Was A Young Man Who Blew Up A Plane (Jack Gilbert Graham)
+16. Vampire Of Dusseldorf (Peter Kurtin)
+17. Shotgun Peterson (Christopher Peterson)
+18. What's That Smell? (Jeffery Dahmer )
+19. Edmond Kemper Had A Horrible Temper ( Edmond Kemper )
+20. What The Heck Richard Speck; Eight Nurses You Wrecked!
+21. Albert Was Worse Then Any Fish In The Sea (Albert Fish)
+
+
+### "Behind The Wall Of Sleep" 1994, Grindcore
+
+1. Fishtales
+2. Behind The Wall Of Sleep
+3. Slaughter Thy Poser
+4. Freeze Dried Man
+
+
+
+### "Unabomber" 1999, Death Metal
+
+1. The Unabomber
+2. Ambassador Hotel
+3. The Brain
+4. David Brom Took An Axe
+5. Dr Holmes He Stripped Their Bones
+6. Ed Gein
+7. Serial Killer
+
+
+### "Dahmer" 2000, Death Metal
+
+1. Dog Guts
+2. Hitchhiker
+3. In The Army Now
+4. Grandmother's House
+5. Blood Bank
+6. Exposure
+7. Ambassador Hotel
+8. Cup Of Coffee
+9. Bath House
+10. Jeffrey Dahmer And The Chocolate Factory
+11. Apartment 213
+12. Drill Bit Lobotomy
+13. Jeffrey Dahmer Blues
+14. McDahmers
+15. Into The Toilet With You
+16. Coming To Chicago
+17. Scrub A Dub Dub
+18. Konerak
+19. Media Circus
+20. Temple Of Bones
+21. Trial
+22. Do The Dahmer
+23. Baptized
+24. Christopher Scarver
+25. Dahmer's Dead
+26. The Brain
+
+
+### "Murder Metal" 2003, Death Metal
+
+1. Acid Bath Vampire
+2. You're Dying To Be With Me
+3. Fatal Foot Fetish
+4. The Hillside Stranglers
+5. Dorthea's dead Folks Home
+6. The Iceman
+7. Poison
+8. Werewolf Of Bedburg
+9. Morbid Minister
+10. The Wustenfeld Man Eater
+11. Diary Of Torture
+12. Jack The Ripper
+13. Fritz Haarman Der Metzger
+
+### "True Stories of Slaughter and Slaying (dvd)" 2006, Death Metal
+
+Zodiac 
+Jack the Ripper 
+Serial Killer 
+The Wustenfeld Man Eater 
+Dog Guts 
+Fritz Haarman der Metzger 
+Coming to Chicago 
+The Vampire of Dusseldorf 
+Acid Bath Vampire 
+Ed Gein 
+Dr. Holmes 
+Fatal Foot Fetish & The Diary of Torture 
+-bonus tracks-
+Scrub A Dub Dub 
+Mary Bell 
+The Hitchhiker 
+Albert Was Worse Than Any Fish In The Sea 
+Behind the scenes & out and about with Corporate Death and Dennis The Menace 
+Dog Guts 
+Hitchhiker 
+Mary Bell 
+Drill Bit Lobotomy
+
+### "Grim Scary Tales" 2011, Metal
+
+1. Locusta 02:57  
+2. Nero's Inferno 02:43  
+3. The Black Knight 04:05  
+4. Dracula 05:10  
+5. The Big Bad Wolf 04:06  
+6. Countess Bathory (Venom cover) 03:26  
+7. Burke and Hare 04:17  
+8. Mary Ann 03:27  
+9. The Bloody Benders 02:46  
+10. Lizzy Borden 01:33  
+11. The Ripper Tramp from France 03:38  
+12. Bella the Butcher 03:00  
+13. The Kiss of Death 03:24  
+14. The Sweet Tender Meat Vendor 05:04 
+
+
 
 ## Отношения с другими группами
 

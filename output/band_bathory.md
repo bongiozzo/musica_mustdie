@@ -1,20 +1,250 @@
 # Bathory
 
-Дискография
-"Bathory" 1984, Black Metal
-"The Return..." 1985, Black Metal
-"Under the Sign of Black Mark" 1986, Black Metal
-"Blood Fire Death" 1988, Black Metal
-"Hammerheart" 1990, Black Metal
-"Twilight of the Gods" 1991, Black Metal
-"Jubileum, Volume 1" 1992, Black Metal
-"Jubileum, Volume 2" 1993, Black Metal
-"Requiem" 1994, Black Metal
-"Octagon" 1995, Thrash
-"Blood on Ice" 1996, Heavy Metal
-"Destroyer of Worlds" 2001, Viking Metal
-"Nordland I" 2002, Black Metal
-"Nordland II" 2003, Black Metal
+Classic Black Metal
+
+## Дискография
+
+### "Bathory" 1984, Black Metal
+
+1. Storm Of Damnation (Intro)
+2. Hades
+3. Reaper
+4. Necromansy
+5. Sacrifice
+6. In Conspiracy With Satan
+7. Armageddon
+8. Raise The Dead
+9. War
+10.Intro
+
+Produced By Boss & Quorthon.
+Recorded At Heavenshore, Stockholm.
+
+(p)&(c) 1984 BLACK MARK Productions
+
+
+### "The Return..." 1985, Black Metal
+
+1. Revelation Of Doom
+2. Total Destruction
+3. Born For Burning
+4. Wind Of Mayhem
+5. Bestial Lust
+6. Possessed
+7. The Rite Of Darkness
+8. Reap Of Evil
+9. Son Of The Damned
+10.Sadist (Tormentor)
+11.The Return Of The Darkness & Evil
+12. Intro
+
+All Songs Written By Quorthon.
+Produced By Quorthon & Boss.
+All Songs Published By Tyfon Music.
+
+(p) 1985 TYFON GRAMMOFON AB
+(c) 1985 UNDER ONE FLAG
+
+
+### "Under the Sign of Black Mark" 1986, Black Metal
+
+1. Nocternal Obeisance
+2. Massacre
+3. Woman Of Dark Desires
+4. Call From The Grave
+5. Equimanthorn
+6. Enter The Eternal Fire
+7. Chariots Of Fire
+8. 13 Candles
+9. Of Doom ...
+10.Intro
+All Songs Written By Quorthon.
+Produced By Quorthon & Boss.
+Recorded And Mixed At Heavenshore,
+Stockholm, Sweden
+
+(p)&(c) 1987 BLACK MARK Productions
+
+
+### "Blood Fire Death" 1988, Black Metal
+
+1. Odens Ride Over Norland (Intro)
+2. A Fine Day To Die
+3. The Golden Walls Of Heaven
+4. Pace `Til Death
+5. Holocaust
+6. For All Those Who Died
+7. Dies Irae
+8. Blood Fire Death
+9.Intro
+All Songs Written By Quorthon.
+Produced By Quorthon & Boss.
+Recorded And Mixed At Heavenshore,
+Stockholm, Sweden
+
+(p)&(c) 1988 BLACK MARK Productions
+
+### "Hammerheart" 1990, Black Metal
+
+1. Shores In Flames
+2. Valhalla
+3. Baptised In Fire & Ice
+4. Father To Son
+5. Song To Hall Up High
+6. Home Of Once Brave
+7. One Rode To Asa Bay
+
+ Quorthon - Vocal & Guitar
+ Vuornth - Drums
+ Kothaar - Bass
+
+Hammerheart Was Recorded At The Heavenshore,
+Studio, Stockholm, Sweden, June-August 1989
+Hammerheart Was Produced By Boss And Quorthon
+Album Cover Photography Of The Masterpiece
+"A Viking's Last Journey" By Sir Frank Dicksee
+
+(p)+(c) 1990 BLACK MARK Productions
+
+
+
+### "Twilight of the Gods" 1991, Black Metal
+
+1. Prologue
+    Twilight Of The Gods
+    Epilogue
+2. Through Blood By Thunder
+3. Blood And Iron
+4. Under The Runes
+5. To Enter Your Mountain
+6. Bond Of Blood
+7. Hammerheart
+
+Produced By Boss.
+All Lyrics & Music By Quorthon.
+Except Hammerheart By Gustav Holst (1914).
+
+(p)&(c) 1991 BLACK MARK Productions
+
+### "Jubileum, Volume 1" 1992, Black Metal
+
+
+
+### "Jubileum, Volume 2" 1993, Black Metal
+
+1. The Return Of The Darkness And Evil 4:57
+2. Burnin? Leather 3:52
+3. One Rode To Asa Bay 9:19
+4. The Golden Walls Of Heaven 5:22
+5. Call From The Grave 4:57
+6. Die In Fire 3:33
+7. Shores In Flames 10:42
+8. Possessed 2:39
+9. Raise The Dead 3:39
+10. Total Destruction 3:49
+11. Bond Of Blood 7:35
+12. Twilight Of The Gods 13:39
+
+### "Requiem" 1994, Black Metal
+
+1. Requiem
+2. Crosstitution
+3. Necroticus
+4. War Machine
+5. Blood And Soil
+6. Pax Vobiscum
+7. Suffocate
+8. Distinguish To Kill
+9. Apocalypse
+
+Produced By Quorthon
+
+(p)&(c) 1994 BLACK MARK Production
+           BMCD-666-10
+
+### "Octagon" 1995, Thrash
+
+1. Immaculate Pinetreeroad #930
+2. Born To Die
+3. Psychopath
+4. Sociopath
+5. Grey
+6. Century
+7. 33 Something
+8. War Supply
+9. Schizianity
+10.Judgement Oppostcrity
+11.Deuce
+
+All Songs Written Quorthon
+
+(p)&(c) 1995 BLACK MARK Production
+
+### "Blood on Ice" 1996, Heavy Metal
+
+1. Intro (1.45)
+2. Blood On Ice (5.41)
+3. Man Of Iron l2.47)
+4. One Eyed Old Man (b.21)
+5. The Sword (4.07)
+6. The Stallion (5.13)
+7. The Woodwoman (6.17)
+8. The Lake (6.42)
+9. Gods Of Thunder Of Wind And Of Rain (5.42)
+10.The Ravens (1.09)
+11.The Revenge Of The Blood On Ice (9.52)
+
+All music and lyrics written by QUORTHON.
+Produced by QUORTHON and Boss
+Engineered by Boss and Rex Luger
+Recorded and mixed at Heavenshore Studio, Stockholm, Sweden
+
+(p)(c) 1996 BLACK MARK Production
+
+### "Destroyer of Worlds" 2001, Viking Metal
+
+01. Lake OF Fire (5:43) 
+02. Destroyer Of Worlds (4:51) 
+03. Ode (6:22) 
+04. Bleeding (3:53) 
+05. Pestilence (6:50) 
+06. 109 (3:35) 
+07. Death From Above (4:34) 
+08. Krom (2:50) 
+09. Liberty & Justice (3:50) 
+10. Kill Kill Kill (3:09) 
+11. Suden Death (3:19) 
+12. White Bones (8:32) 
+13. Day Of Wrath (8:11)
+
+
+
+### "Nordland I" 2002, Black Metal
+
+1. Prelude
+2. Nordland
+3. Vinterblot
+4. Dragons Breath
+5. Ring Of Gold
+6. Foreverdark Woods
+7. Broken Sword
+8. Great Hall Awaits A Fallen Brother
+9. Mother Earth Father Thunder
+10. Heimfard
+
+### "Nordland II" 2003, Black Metal
+
+1. Fanfare
+2. Blooded Shore
+3. Sea Wolf
+4. Vinland
+5. The Land
+6. Death And Resurrection Of A Northern Son
+7. The Messenger
+8. Flash Of The Silverhammer
+9. The Wheel Of Sun
+10. Instrumental
+
 
 ## Отношения с другими группами
 

@@ -1,9 +1,84 @@
 # Master's Hammer
 
-Дискография
-"The Filemnice Occultist" 1993, Black Metal
-"Ritual" 1995, Black Metal
-"Slagry" 1996, Black Metal
+
+
+## Дискография
+
+### "The Filemnice Occultist" 1993, Black Metal
+
+1. Overture
+2. Among The Hills A Winding Way ...
+3. I Don`t Want,Sirs To Pester ...
+4. A Dark Forest Spreads All Around ...
+5. That Magnificient Deer Has Vanished ...
+6. My Captain ...
+7. By The Misery Of Fate I`m Haunted ...
+8. Oh, My Precious Sir ...
+9. Everything That Just On My Whim ...
+10.Glory ,Herr Hauptmann ...
+11.Sucharda`s
+
+ Storm - Vocals,Guitar
+ Necrocock - Lead Guitar
+ Monster - Bass
+ Voral - Keyboards
+ Valenta - Drums
+ Silenthell - Tympans
+
+All Songs By Storm & MASTER`S HAMMER.
+Engineered & Mixed By Vlastimil Voral.
+Recorded At Ivories Studio,Prague,
+During Oct. And Nov. 1992.
+
+(p)&(c) 1993 OSMOSE Productions
+
+
+### "Ritual" 1995, Black Metal
+
+1. Intro
+2. Pad Modly
+3. Razdy Z Nas ... !
+4. Ritual
+5. Geniove
+6. Gerna Svatozar
+7. Vecny Navrat
+8. Zapalili Isme Onen Svet
+9. Vydoupenni
+10. Atof
+
+ Storm - Vocals,Guitar
+ Necrocock - Lead Guitar
+ Monster - Bass
+ Voral - Keyboards
+ Valenta - Drums
+ Silenthell - Tympans
+
+All Songs By MASTER'S HAMMER
+
+(p)&(c) 1995 OSMOSE Records
+
+### "Slagry" 1996, Black Metal
+
+1. Savlovy Tanec (3.28)
+2. Ach, Syncu, Syncu (7.53)
+3. Liydem Spolu Do Betleta (3.39)
+4. Indianska Pisen Hruzy (5.14)
+5. Carl Czerny op.849 (0.23)
+6. Rock'n'Roll Music (5.07)
+7. Vzpominam Na Zlate Casy (3.34
+8. Nabucco (4.11)
+9. HIava Modernistova (6.19)
+
+All songs written by MASTER'S
+HAMMER.
+Recorded and mixed at Ivories Studio,
+Prague.
+
+ MASTER'S HAMMER is: Frantisek
+     Storm and Vlastimil Voral
+
+(p)(c) 1996 OSMOSE Production
+
 
 ## Отношения с другими группами
 

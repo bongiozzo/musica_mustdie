@@ -1,8 +1,42 @@
 # Lords Of Decadence
 
-Дискография
-"Cognitive Note Of Discord" 2005, Melodic Death Metal
-"Bound to Fall" 2006, Melodic Death Metal
+
+
+## Дискография
+
+### "Cognitive Note Of Discord" 2005, Melodic Death Metal
+
+1. Relationship: Erased   
+2. Ronin Revolution   
+3. Double-Edged Razortongue   
+4. Cognitive Note Of Discord   
+5. Go To Blazes!   
+6. The DreamCatcher   
+7. 1st Division Triplehorns   
+8. Apocalypse   
+9. Under the Banner of the Unholy Spirit   
+10. When Rain is Pain... 
+
+
+Norbert Leitner - Guitar, Vocals
+Andreas Tuma - Bass, Vocals
+Bernd Kladler - Guitar
+Paul Tikal - Drums
+
+### "Bound to Fall" 2006, Melodic Death Metal
+
+1. This Feeling	 
+2. Set it off!	 
+3. Point of No Return	 
+4. Drifting Away	 
+5. The Hero's Day	 
+6. Demons in my Veins	 
+7. Open Wounds	 
+8. Hearts & Minds	 
+9. Flawless Failure	 
+10. Vert-I-Go	 
+11. Living a Li(f)e
+
 
 ## Отношения с другими группами
 

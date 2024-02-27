@@ -1,12 +1,66 @@
 # Halloween
 
-Дискография
-"Don't Metal with Evil" 1985, Heavy Metal
-"No One Gets Out" 1991, Heavy Metal
-"Victims of the Night" 1997, Heavy Metal
-"4.0 - Tricks, Treats, and Other Tales from the Crypt" 2003, Heavy Metal
-"Horror Fire" 2006, Heavy Metal
-"Terrortory" 2012, Heavy Metal
+
+
+## Дискография
+
+### "Don't Metal with Evil" 1985, Heavy Metal
+
+
+
+### "No One Gets Out" 1991, Heavy Metal
+
+
+
+### "Victims of the Night" 1997, Heavy Metal
+
+
+
+### "4.0 - Tricks, Treats, and Other Tales from the Crypt" 2003, Heavy Metal
+
+
+
+### "Horror Fire" 2006, Heavy Metal
+
+1.	 I Am	02:11	 
+2.	 Wake Up Screaming	05:41	 
+3.	 Halloween Night	03:32	 
+4.	 The Crush	03:36	 
+5.	 Exist	05:33	 
+6.	 Candles	04:13	 
+7.	 The Seer	03:57	 
+8.	 The End and the Beginning	01:52	 
+9.	 Nobody's Home	05:08	 
+10.	 Rage	02:29	 
+11.	 Ways of Man	03:59	 
+12.	 Head Against a Wall	02:39	 
+13.	 Coming to Life	03:21	 
+14.	 Sin	00:46	 
+15.	 Go to Hell (Alice Cooper cover)	04:28	 
+16.	 Fire Still Burns	03:50	 
+17.	 The Battle	04:04	 
+18.	 Fighting Words	05:02	 
+19.	 H.F.B.D.T.Y.	01:45	 
+
+### "Terrortory" 2012, Heavy Metal
+
+1.	 Traipsing Through the Blood	05:29	 
+2.	 At the Gates	01:27	 
+3.	 Terrortory	04:46	 
+4.	 Images Quite Horrible	03:52	 
+5.	 Her Ghost Comes Out to Play	04:28	 
+6.	 Caught in the Webs	04:12	 
+7.	 Scare You	04:08	 
+8.	 Not One	08:35	 
+9.	 Darkside, Inside	03:36	 
+10.	 Re-Inventing Fear	04:49	 
+11.	 I Lie Awake	05:15	 
+12.	 Hands Around My Throat	04:36	 
+13.	 Say Your Prayers	03:55	 
+14.	 Where Is Michael?	06:30	 
+15.	 Dead On...	04:23	 
+16.	 Into the Afterlife	02:10	
+
 
 ## Отношения с другими группами
 

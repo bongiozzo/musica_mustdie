@@ -1,8 +1,40 @@
 # Shadowcast
 
-Дискография
-"Desperate Accuse Dimensions" 2002, Metal
-"Near Life Experience" 2003, Metal
+Electro/Synth metal
+
+## Дискография
+
+### "Desperate Accuse Dimensions" 2002, Metal
+
+1. Attention Deficit Disorder
+2. A Farewell To Nowwhere
+3. Pharmakon
+4. Project Judgement
+5. Anticipated Recurrection
+6. Hybrid Tech Messiah
+7. Desperate Accuse Dimension
+8. Plan 9 From Outer Space
+9. Strain
+
+
+### "Near Life Experience" 2003, Metal
+
+01. Mindgames 
+02. Permanent Crackdown 
+03. Mass-Placebo 
+04. Antisense 
+05. eXisTenCe 
+06. Snow Crash 
+07. Playing God 
+08. Near Life Experience
+09. No Man’s Land 
+10. Pitch-Black Insomnia
+
+[:mC] Clemens Mayr – synths, prog-aiming, six-string-machinery & vocal-defragmentation 
+[:luX] Lukas Lindenberger – voices of a disturbed generation 
+[:mO] Moritz Neuner – the beat off life 
+
+
 
 ## Отношения с другими группами
 

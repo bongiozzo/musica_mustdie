@@ -1,7 +1,28 @@
 # Cowers
 
-Дискография
-"Pity Park" 2001, Thrash
+
+
+## Дискография
+
+### "Pity Park" 2001, Thrash
+
+Cowers 
+Pity Park 
+Eternal Youth 
+My Deception 
+New Bad Dream 
+Weak 
+My Last Pain 
+Only I Know 
+
+
+
+Franck Senecal -g -v 
+J.P. Senecal -d 
+Steve Salins -b 
+Aurelien Simon -g 
+
+
 
 ## Отношения с другими группами
 

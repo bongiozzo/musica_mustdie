@@ -1,8 +1,27 @@
 # Ivory Tower
 
-Дискография
-"Ivory Tower" 1998, Progressive
-"Beyond The Stars" 2000, Progressive
+power-prog
+
+## Дискография
+
+### "Ivory Tower" 1998, Progressive
+
+
+
+### "Beyond The Stars" 2000, Progressive
+
+Silence 
+Secret In Me 
+Foreboding 
+Game Of Life 
+Peeping Tom 
+Beyond The Stars 
+When Thoughts Are Running Wild 
+Flight Into The Self 
+Treehouse Theme 
+Treehouse
+
+
 
 ## Отношения с другими группами
 

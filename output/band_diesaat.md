@@ -1,9 +1,48 @@
 # Die Saat
 
-Дискография
-"Niedergang" 2002, Black Metal
-"der Schlachten Tribut" 2003, Black Metal
-"Wir laden zum feste" 2006, Black Metal
+
+
+## Дискография
+
+### "Niedergang" 2002, Black Metal
+
+1. Niedergang 02:02  
+2. Askr 05:58  
+3. Erstarren den Sonnenzyklus 07:01  
+4. Adler der Asgard 05:41  
+5. Sonnenglanz 06:28  
+6. Thurisaz 07:41  
+7. Sturm der Vergeltung 04:40  
+8. Armageddon 05:23 
+
+### "der Schlachten Tribut" 2003, Black Metal
+
+1. Der Schlachten Tribut 02:38  
+2. Zu Ehren Wotans 04:23  
+3. Der Ahnen Sage 06:20
+4. Die Saat 07:04  
+5. Elfentanz 07:11  
+6. Division Nord 04:05  
+7. Und die Hoffnung Ruht... 05:07  
+8. Nordland 06:20  
+9. Krieg 04:58  
+10. Der Tod des Glaubens 01:06
+11. Black Metal 03:15
+12. Thuringia 06:28 
+13. Der Scherben Ernte 00:42 
+
+### "Wir laden zum feste" 2006, Black Metal
+
+1. Willkommen 00:45
+2. Midgards Erben 04:19  
+3. Wir Laden Zum Feste 04:31  
+4. Skеl! 05:02  
+5. Hermundurenlied 04:10  
+6. Legenden Leben (...Sterben Nicht) 05:23  
+7. Asatru 05:06  
+8. Tusen Takk 04:50  
+9. Heimgang 05:22 
+
 
 ## Отношения с другими группами
 

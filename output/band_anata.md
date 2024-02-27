@@ -1,10 +1,54 @@
 # Anata
 
-Дискография
-"The Infernal Depths Of Hatred" 1998, Melodic Death Metal
-"Dreams Of Death And Dismay" 2001, Melodic Death Metal
-"Under A Stone With No Inscription" 2004, Death Metal
-"The Conductor's Departure" 2006, Death Metal
+
+
+## Дискография
+
+### "The Infernal Depths Of Hatred" 1998, Melodic Death Metal
+
+01. Released When You're Dead 
+02. Let the Heavens Hate 
+03. Under Azure Skies 
+04. Vast Lands/Infernal Gates 
+05. Slain upon His Altar 
+06. Those Who Lick the Wounds of Christ 
+07. Dethrone the Hypocrites 
+08. Aim Not at the Kingdom High
+
+### "Dreams Of Death And Dismay" 2001, Melodic Death Metal
+
+01. Die Laughing
+02. Faith, Hope, Self Deception
+03. God Of Death
+04. Metamorphosis By The Well Of Truth 
+05. Dreamon
+06. Canґt Kill Whatґs Already Dead
+07. Insurrection
+08. The Enigma Of Number Three
+09. Drain Of Blood
+10. The Temple/Erratic
+
+Additional info:
+Recorded, mixed and mastered at StudioMega studios, February/March 2000
+Season of Mist (European release) / Relapse (USA) / CD-Maximum (Russia)
+
+### "Under A Stone With No Inscription" 2004, Death Metal
+
+
+
+### "The Conductor's Departure" 2006, Death Metal
+
+1. Downward spiral into madness
+2. Complete Demise
+3. Better grieved than fooled
+4. The great juggler
+5. Cold heart forged in hell
+6. I would dream of blood
+7. Disobedience pays
+8. Children's laughter
+9. Renunciation
+10. The Conductor's Departure
+
 
 ## Отношения с другими группами
 

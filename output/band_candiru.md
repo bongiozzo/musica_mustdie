@@ -1,7 +1,34 @@
 # Candiru
 
-Дискография
-"Unvolved And Weeded Out" 1992, Industrial
+
+
+## Дискография
+
+### "Unvolved And Weeded Out" 1992, Industrial
+
+1. Wish I Woulda Kill You (Fix 2)
+2. Sunburnt Innards
+3. Poison Mouth
+4. Blind Temple
+5. Opaque Sun
+6. Chapter To The Pagan
+7. I`ll Fix You
+8. Anti-Bed
+9. Angles
+10.Repeat After Me *
+11.Extermination Program (Fix 3)
+
+ Pat McCahan
+ Kipp Johnson
+
+All Words,Music,Lyrics & Sounds By CANDIRU.
+Produced By F.Gruden & CANDIRU.
+Engineered By Frank Gruden.
+Recorded & Mixed At Holland Sound Studio,
+Scranton,Pennsylvania.
+
+(p)&(c) 1992 RELAPSE Records
+
 
 ## Отношения с другими группами
 

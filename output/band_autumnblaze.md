@@ -1,11 +1,88 @@
 # Autumnblaze
 
-Дискография
-"DammerElbenTragodie" 1999, Black Metal
-"Bleak" 2000, Gothic
-"Mute boy, sad girl" 2002, Gothic
-"Words Are Not What They Seem" 2004, Gothic
-"Perdition Diaries" 2009, Metal
+
+
+## Дискография
+
+### "DammerElbenTragodie" 1999, Black Metal
+
+1. mo(u)rningdance 
+2. flamedoves 
+3. aonenturm 
+4. those evenings we yearned 
+5. dreaming moonspark fairylands 
+6. dryadsong 
+7. her golden robe in silence veiled 
+8. garden of slumber 
+9. the emerald widower 
+10. heraldic 
+
+### "Bleak" 2000, Gothic
+
+1. someone’s picture 
+2. I shiver 
+3. scared 
+4. bleak 
+5. so close yet so far 
+6. bruderseele 
+7. the wind and the broken girl 
+8. thoughts by a weary man’s side 
+9. …and we fall 
+
+### "Mute boy, sad girl" 2002, Gothic
+
+1. mute boy sad girl 
+2. it never felt like this before 
+3. the nature of music 
+4. can't save anyone 
+5. kiss my fear away 
+6. i am water 
+7. cold
+8. a crow on my shoulder 
+9. shells and butterflies 
+
+
+Markus B. (vocals, all guitars, arrangements, lyrics)
+Schwadorf (drums, low frequencies, ProTools) 
+
+
+### "Words Are Not What They Seem" 2004, Gothic
+
+1. Where Is My Soul 05:12  
+2. To The River 07:07  
+3. Barefoot On Sunrays 05:36  
+4. Message From Nowhere 04:43  
+5. Heaven 05:06  
+6. I'm Drifting 07:00  
+7. Falling 04:10  
+8. Slave 05:38  
+9. Happy Faces 04:34  
+10. Blue Star 09:59 
+
+There is also a limited edition, with a bonus cd:
+1. Blue Trip
+2. Falling + Part of Laura’s Theme
+3. Sounds without words
+
+### "Perdition Diaries" 2009, Metal
+
+1. Wir Sind Was Wir Sind 04:55 
+2. Who Are You? 04:02 
+3. I Had To Burn This Fucking Kingdom 03:39  
+4. Haughtiness and Puerile Dreams 04:42  
+5. Brudermord 04:19  
+6. Empty House 05:26  
+7. Neugeburt 03:17  
+8. Ways 04:46  
+9. The Forge 03:45 
+10. Saviour 03:11 
+
+
+Lineup:
+Eldron
+Schwadorf
+Arisjel 
+
 
 ## Отношения с другими группами
 

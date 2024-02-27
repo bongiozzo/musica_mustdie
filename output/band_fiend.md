@@ -1,7 +1,20 @@
 # Fiend
 
-Дискография
-"The Blooming Tremble" 2009, Melodic Death Metal
+
+
+## Дискография
+
+### "The Blooming Tremble" 2009, Melodic Death Metal
+
+1. Time Before The End(intro)	01:26	
+2. Dream	03:25	
+3. Forgive Me	07:00
+4. The Fiend	03:50	
+5. My Last Words	06:05
+6. The Blooming Tremble	03:31
+7. The Seconds Behind(outro)	01:49	
+8. Forgive Me (russian version) (bonus track)	08:10
+
 
 ## Отношения с другими группами
 

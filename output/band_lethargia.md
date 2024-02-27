@@ -1,7 +1,20 @@
 # Lethargia
 
-Дискография
-"The Kingdom Of Unrealizable Hopes" 2006, Doom
+Doom-metal
+
+## Дискография
+
+### "The Kingdom Of Unrealizable Hopes" 2006, Doom
+
+Prophetic Dreams (intro)
+The land of everlasting fog
+The gates to infinity
+Dead  Earth
+Darkness changed the light
+Dream about everlasting rain
+The Kingdom of unrealizable hopes
+Lethargia (Invisible World) (Outro)
+
 
 ## Отношения с другими группами
 

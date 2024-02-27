@@ -1,7 +1,35 @@
 # Gallows Pole
 
-Дискография
-"Exorcism" 2001, Heavy Metal
+
+
+## Дискография
+
+### "Exorcism" 2001, Heavy Metal
+
+1.	ENEMY MAKER
+2.	TURN OF THE FORTUNE
+3.	ASTRONOMY DOMINE
+4.	POLITICIANS
+5.	THE MAN THAT WAS USED UP
+6.	OUTTA HERE
+7.	SOUL SURVIVOR
+8.	FREEDOM TO FLY
+9.	WAITING FOR GODOT
+10.	EXORCISM (PART 1&2)
+
+
+
+GALLOWS POLE are:
+
+John A.B.C. Smith Lead & Rhythm Guitar, Accoustic Guitar, Bass, Vocal
+Zokk Milosh Lead & Rhythm Guitar, Accoustic Guitar, Vocals
+Adrian Davidoff Lead & Rhythm Guitar
+Hakan Topcu Drums
+
+Recorded in Dust Music Studio Hilschenbach (Germany) in January 2001
+
+
+
 
 ## Отношения с другими группами
 

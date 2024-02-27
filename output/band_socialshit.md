@@ -1,9 +1,71 @@
 # Social Shit
 
-Дискография
-"Sounds of Destruction" 2003, Grindcore
-"Grinder Kaos" 2007, Grindcore
-"LSD Sexxxperience" 2010, Grindcore
+
+
+## Дискография
+
+### "Sounds of Destruction" 2003, Grindcore
+
+1. Shit Noise 00:41  
+2. Without Pain 01:58  
+3. Impossible Mission 01:46  
+4. Agony 01:42  
+5. It Forces Supreme 01:58  
+6. Wait 02:14  
+7. Shorty 00:35  
+8. I Lost 01:37  
+9. Track 01 01:26  
+10. Expression 02:05  
+11. L.A.R.K. 01:45  
+12. Neither a Memory 01:44  
+13. I Will Kim Them All 01:42  
+14. Good Night Mr. Death 02:45  
+15. You' re Dreaming 02:04  
+16. What 02:00  
+17. The Terror 01:55  
+18. Suicidal Rugbier 01:19  
+19. Damned 01:20  
+20. Get Ready to Die 01:30 
+
+### "Grinder Kaos" 2007, Grindcore
+
+1. C.H.O.L.A. 01:47  
+2. Tortured Mashed 02:42  
+3. Destroy 02:10  
+4. Blood 02:12  
+5. Grinder Kaos 01:52  
+6. Splattered Fucked Bitch 02:42  
+7. Pedophilo Necrosatyriasis 01:50  
+8. K.E.I.P. 02:08  
+9. Ingrowing (Drugs) 02:06  
+10. Go 00:06  
+11. Perver Pig Song 01:53  
+12. Sick Madness 01:37  
+13. Alcoholic Mosh 02:15  
+14. Noise 00:17  
+15. Human Fucktory 01:40  
+16. Social Shit 01:48  
+17. Spreading the Disease 01:43  
+18. M.B.D. 01:59  
+19. Wormed 02:33  
+20. Krusty 00:59 
+
+### "LSD Sexxxperience" 2010, Grindcore
+
+1. Drunk Porno Junky 01:43  
+2. Cop Woman - Cock Suker 01:56  
+3. I Loose My Weeding Ring Into Your Ass During A Fistfuck (My Wife Is Gonna Cut My Balls) 02:05  
+4. Shit Around My Dick 02:30  
+5. To Fuck A Shemale Is Gay 02:08  
+6. Macho Milk Breakfast For My Slut 02:27  
+7. Bolivian Surfer (Drowning In The Shit) 00:49  
+8. There Is Nothing Better Than A Teethless Blowjob 02:08  
+9. Crazy Pig Fucker Dumbass Pussy Piece Of Shit 01:30  
+10. Electric Grind Gorechestra 00:31  
+11. Antichrist Super Pornostar 02:17  
+12. Emo Guys Shit Splattered Walls Massacre 02:03  
+13. Old Mama Fuck Fest 01:39 
+
 
 ## Отношения с другими группами
 

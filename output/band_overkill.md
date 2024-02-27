@@ -1,30 +1,429 @@
 # Overkill
 
-Дискография
-"Feel The Fire" 1985, Thrash
-"Taking Over" 1987, Thrash
-"Fuck You (EP)" 1988, Thrash
-"Under The Influence" 1988, Thrash
-"The Year Of Decay" 1989, Thrash
-"Horrorscope" 1991, Thrash
-"I Hear Black" 1993, Thrash
-"W.F.O." 1994, Thrash
-"Wrecking Your Neck  - Live" 1995, Thrash
-"The Killing Kind" 1996, Thrash
-"From The Underground And Below" 1997, Thrash
-"Necroshine" 1999, Thrash
-"Coverkill" 1999, Thrash
-"Bloodletting" 2000, Thrash
-"Wrecking Everything - Live" 2002, Thrash
-"Hello From The Gutter - The Best Of Overkill" 2002, Thrash
-"Killbox 13" 2003, Thrash
-"ReliXIV" 2005, Thrash
-"Immortalis" 2007, Thrash
-"Ironbound " 2010, Thrash
-"Electric Rattlesnake (single)" 2012, Thrash
-"The Electric Age" 2012, Thrash
-"White Devil Armory" 2014, Thrash
-"The Grinding Wheel" 2017, Thrash
+Thrash metal
+
+## Дискография
+
+### "Feel The Fire" 1985, Thrash
+
+Side One:
+1. Raise The Dead 4.16
+2. Rotten to The Core 4.56
+3. There's No Tomorrow 3.18
+4. Second Son 3.50
+5. Sonic Reducer 3.50
+ Side Two:
+1. Hammerhead 3.56
+2. Feel The Fire 5.48
+3. Blood And Iron 2.35
+4. Kill At Command 4.42
+5. Overkill 3.20
+
+Bobby "Blitz" Ellsworth - Vocals
+"Rat" Scates - Drums
+D.D. Verni - Bass
+Bobby Gustafson - Guitar
+
+(p)&(c) 1985 NOISE / MEGAFORCE Records
+
+### "Taking Over" 1987, Thrash
+
+1. Deny The Cross
+2. Wrecking Crew
+3. Fear His Name
+4. Use Your Head
+5. Fatal If Swallowed
+6. Powersurge
+7. In Union We Stand
+8. Electro-Violence
+9. Overkill II (The Nightmare Continues)
+
+(p) 1987 Megaforce Records
+
+### "Fuck You (EP)" 1988, Thrash
+
+
+
+### "Under The Influence" 1988, Thrash
+
+1. Shred
+2. Never Say Never
+3. Hello From The Gutter
+4. Mad Gone World
+5. Brainfade
+6. Drunken Wisdom
+7. End Of The Line
+8. Head First
+9. Overkill III (Under The Influence)
+
+(p) 1988 Megaforce Records
+
+### "The Year Of Decay" 1989, Thrash
+
+1. Time To Kill
+2. Elimination
+3. I Hate
+4. Nothing To Die For
+5. Playing With Spiders / Skullkrusher
+6. Birth Of Tension
+7. Who Tends The Fire
+8. The Years Of Decay
+9. Evil Never Dies
+
+(p) 1989 Megaforce Records
+
+### "Horrorscope" 1991, Thrash
+
+1. Coma
+2. Infectious
+3. Blood Money
+4. Thankx For Nothin'
+5. Bare Bones
+6. Horrorscope
+7. New Machine
+8. Frankenstein
+9. Live Young, Die Free
+10. Nice Day... For A Funeral
+11. Solitude
+
+(p) 1991 Megaforce Records
+
+### "I Hear Black" 1993, Thrash
+
+1. Dreaming In Columbion    4.00
+2. I Hear Black     5.37
+3. World Of Hurt     5.20
+4. Feed My Head     5.36
+5. Shades Of Grey     5.19
+6. Spiritual Void     5.14
+7. Ghost Dance     1.46
+8. Weight Of World     4.07
+9. Ignorance & Innocence    5.00
+10.Undying     5.25
+11.Just Like You     4.14
+
+ Rob Cannavino - Guitar & Vox
+ Mekeitt Gant - Guitar & Vox
+ D.D. Verni - Bass & Vox
+ Tim Mallare - Drums
+ Bobby Ellsworth - Vocals
+
+All Songs Written By OVERKILL.
+Produced By Alex Perialas & OVERKILL.
+Recorded At Pyramid Sound,Ithaca,NY.
+Engineered By Rob Hunter & Alex Perialas.
+
+(p)&(c) 1993 ATALNTIC Records
+
+### "W.F.O." 1994, Thrash
+
+1. Where It Hurts
+2. Fast Jankie
+3. The Wait - New High In Lows
+4. They Eat Their Young
+5. What's Your Problem
+6. Under One
+7. Supersonic Hate
+8. R.I.P. (Undone)
+9. Up To Zero
+10.Bastard Nation
+11.Gasoline Dream
+
+Bobby "Blitz" Ellsworth - Vocals
+DD Verni - Bass/Back Vocals
+Merritt Gant - Guitars
+Rob Cannaviio - Rhythm & Acoustic Guitars/Back Vocals
+Tim Mallare - Drums
+
+(p)&(c) 1994 ATLANTIC Records
+
+### "Wrecking Your Neck  - Live" 1995, Thrash
+
+
+
+### "The Killing Kind" 1996, Thrash
+
+1.  Battle
+2.  God-Like
+3.  Certifiable
+4.  Burn You Down/To Ashes
+5.  Let Me Shut That For You
+6.  Bold Face Pagan Stomp
+7.  Feeding Frenzy
+8.  The Cleansing
+9.  The Mourning After/Private Bleeding
+10.Cold, Hard Fact
+
+Produced by OVERKILL.
+Engineered by Andy Kats and John
+Montagnese.
+Recorded at Carriage House Studio,
+Stamford.
+
+Blitz - Vocals
+Joe Comeau - Guitar, Vocals
+Tim Mallare - Drums
+Sebastian Marino - Guitar
+D.D.Verni - Bass
+
+(p)(c) l996 ROBA Music
+
+### "From The Underground And Below" 1997, Thrash
+
+1.It Lives
+2. Save Me
+3. Long Time Dyin'
+4. Genocya
+5. Hale Past Dead
+6. F.U.C.T.
+7. I'm Alright
+8. The Rip N'Tear
+9. Promises
+10. Little Bit O'Murder
+Bobby Blitz Ellsworth - Vocals
+D.D. Verni - Bass, Backing vocals
+Tim Mallare - Drums
+Sebastian Marino - Guitar
+Joe Comeau - Guitar, Vocals
+Produced by OVERKILL
+(p)(c) 1997 Steamhammer
+
+### "Necroshine" 1999, Thrash
+
+1. Necroshine		6:01
+2. My December		5:01
+3. Let Us Prey		6:43
+4. 80 Cycles		5:50
+5. Revelation		4:40
+6. Stone cold Jesus	5:19
+7. Forked Tongue Kiss	4:03
+8. I Am Fear		4:29
+9. Black Line		4:16
+
+All songs written by OVERKILL
+Produced by OVERKILL and Andy Katz
+Engineered by Andy Katz
+Recorded at Carriage House Studio, Stamford
+
+Bobby Blitz Ellsworth - Vocals
+Joe Comeau - Guitars, Vocals
+Tim Mallare - Drums
+Sebastien Marino - Guitar
+D.D. Verni - Bass, Backing Vocals
+
+(p)(c)1999 Steamhammer
+
+### "Coverkill" 1999, Thrash
+
+1. Overkill
+2. No Fellings
+3. Hymn 43
+4. Changes
+5. Space Truckin'
+6. Deuce
+7. Never Say Die
+8. Death Tone
+9. Cornucopia
+10. Tyrant
+11. Ain't Nothing To Do
+12. I'm Against It
+
+### "Bloodletting" 2000, Thrash
+
+1. Thunderhead
+2. Bleed Me
+3. What I'm Missin'
+4. Death Comes Out To Play
+5. Let It Burn
+6. I, Hurricane
+7. Left Hand Man
+8. Blown Away
+9. My Name Is Pain
+10. Can't Kill A Dead Man
+
+### "Wrecking Everything - Live" 2002, Thrash
+
+
+
+### "Hello From The Gutter - The Best Of Overkill" 2002, Thrash
+
+CD1:
+1. Hello From The Gutter (live)
+2. Necroshine
+3. God-like
+4. Powersurge (live)
+5. Never Say Die (cover version)
+6. Coma (live)
+7. The Rip n'Tear
+8. Battle
+9. Electro-Violence (live)
+10. Thunderhead 
+11. Overkill
+12. Fuck You
+
+CD2
+1. Rotten To The Core
+2. Bleed Me
+3. Long Time Dyin'
+4. Fatal If Swallowed
+5. Elimination (live)
+6. Black Line
+7. Overkill (cover version)
+8. World Of Hurt (live)
+9. Hammerhead
+10. Skullcrusher (live)
+11. Kill At Command
+12. Bastard Nation (live)
+
+### "Killbox 13" 2003, Thrash
+
+1. Devil By The Tail
+2. Damned
+3. No Lights
+4. The One
+5. Crystal Fear
+6. The Sound Of Dying
+7. Until I Die
+8. Struck Down
+9. Unholy
+10. I Rise
+
+
+### "ReliXIV" 2005, Thrash
+
+01. Within Your Eyes
+02. Love
+03. Loaded Rack
+04. Bats In The Belfry
+05. A Pound Of Flesh
+06. Keeper
+07. Wheelz
+08. The Mark
+09. Play The Ace
+10. Old School
+
+### "Immortalis" 2007, Thrash
+
+1. Devils in the Mist 04:34  
+2. What It Takes 04:28  
+3. Skull and Bones 05:54  
+4. Shadow of a Doubt 04:51  
+5. Hellish Pride 05:16  
+6. Walk Through Fire 04:08  
+7. Head On 05:21  
+8. Charlie Get Your Gun 04:28  
+9. Hell Is 04:40  
+10. Overkill V 05:36 
+
+"Skull and Bones" features Randall Blythe (Lamb of God) on vocals. 
+
+Bobby "Blitz" Ellsworth - Vocals 
+Carlos "D.D." Verni - Bass 
+Dave Linsk - Lead Guitar 
+Derek ''Skull'' Tailer - Rhythm Guitar 
+Ron Lipnicki - Drums
+
+### "Ironbound " 2010, Thrash
+
+1. The Green And Black 08:14  
+2. Ironbound 06:35  
+3. Bring Me The Night 04:18  
+4. The Goal Is Your Soul 06:43  
+5. Give A Little 04:44  
+6. Endless War 05:43  
+7. The Head And Heart 05:13  
+8. In Vain 05:15  
+9. Killing For A Living 06:16  
+10. The SRC 05:03 
+
+
+Line-up:
+
+Bobby "Blitz" Ellsworth - Lead vocals
+Dave Linsk - Lead guitar, Backing vocals
+Derek Tailer - Rhythm guitar, Backing vocals
+D.D. Verni - Bass, Backing vocals
+Ron Lipnicki - Drums
+
+
+* Limited digipak
+* CD Jewelcase
+* LP (180g vinyl) in gatefold
+* LP (180g green vinyl) in gatefold (Nuclear Blast Mail order exclusive)
+* Strictly limited mail order edition
+
+Mixing by Overkill and Peter Tagtgren
+
+Album will be distributed by E1/Koch for N. America and Nuclear Blast Records
+for the rest of the world. 
+
+### "Electric Rattlesnake (single)" 2012, Thrash
+
+1. Electric Rattlesnake 06:19
+
+### "The Electric Age" 2012, Thrash
+
+1. Come and Get It 06:17
+2. Electric Rattlesnake 06:19
+3. Wish You Were Dead 04:19
+4. Drop the Hammer 03:55
+5. Save Yourself 03:43
+6. Black Daze 06:25
+7. 21st Century Man 04:12
+8. Old Wounds, New Scars 04:11
+9. All Over But the Shouting 05:30
+10. Good Night 05:36
+
+  
+
+
+### "White Devil Armory" 2014, Thrash
+
+1. XD  00:49    
+2. Armorist  03:53   
+3. Down to the Bone  04:04  
+4. Pig  05:21    
+5. Bitter Pill  05:48    
+6. Where There's Smoke...  04:20    
+7. Freedom Rings  06:52    
+8. Another Day to Die  04:56    
+9. King of the Rat Bastards  04:09    
+10. It's All Yours  04:26    
+11. In the Name  06:03 
+
+
+Limited first pressing digipak includes the bonus tracks:
+ 12. The Fight Song
+ 13. Miss Misery
+
+
+### "The Grinding Wheel" 2017, Thrash
+
+1. Mean Green Killing Machine  07:29   
+2. Goddamn Trouble  06:21    
+3. Our Finest Hour  05:49   
+4. Shine On  06:03    
+5. The Long Road  06:45    
+6. Let's All Go to Hades  04:55   
+7. Come Heavy  04:59   
+8. Red White and Blue  05:05 
+9. The Wheel  04:51    
+10. The Grinding Wheel  07:55  
+11. Emerald (Thin Lizzy cover)  03:52  
+12. Sanctuary (Iron Maiden cover - only in Japan)  
+
+Exclusive Japanese live DVD features excerpts from the band's performance at 
+Thrash Domination 2015 at Club Citta, Kawasaki, Japan on March 21 and 22, 2015: 
+1. Armorist  
+2. Electric Rattlesnake  
+3. Bring Me the Night  
+4. Hello From the Gutter  
+5. Ironbound  
+6. Bitter Pill  
+7. Elimination  
+8. Fuck You 
+
+
 
 ## Отношения с другими группами
 

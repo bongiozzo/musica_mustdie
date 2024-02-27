@@ -1,8 +1,17 @@
 # Thorr's Hammer
 
-Дискография
-"Dommedagsnatt" 1994, Death Doom
-"Fidelity Shall Triumph" 1998, Death Doom
+
+
+## Дискография
+
+### "Dommedagsnatt" 1994, Death Doom
+
+
+
+### "Fidelity Shall Triumph" 1998, Death Doom
+
+
+
 
 ## Отношения с другими группами
 

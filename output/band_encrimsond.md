@@ -1,7 +1,18 @@
 # Encrimson'D
 
-Дискография
-"Agrarian Menace" 2004, Black Metal
+melodic black
+
+## Дискография
+
+### "Agrarian Menace" 2004, Black Metal
+
+1. Red Boar Inn Revolt - 7:39
+2. The Piper's Tale - 9:09 
+3. Old Man - 7:41
+4. My Feast - 7:47
+5. Amber Shades - 6:57
+6. As Echoes Down Fall - 7:44
+
 
 ## Отношения с другими группами
 

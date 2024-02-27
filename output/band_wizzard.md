@@ -1,7 +1,13 @@
 # Wizzard
 
-Дискография
-"Wizzard" 2000, Black Metal
+
+
+## Дискография
+
+### "Wizzard" 2000, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

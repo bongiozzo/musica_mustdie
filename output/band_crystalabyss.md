@@ -1,10 +1,45 @@
 # Crystal Abyss
 
-Дискография
-"First Born Snow" 1999, Black Metal
-"Promo-single" 2000, Black Metal
-"Sageness Fallen" 2001, Black Metal
-"Word Of The Darkest Ages" 2007, Black Metal
+Black Metal
+
+## Дискография
+
+### "First Born Snow" 1999, Black Metal
+
+1. First Born Show
+2. Visions Of The Past
+
+### "Promo-single" 2000, Black Metal
+
+Visions Of The Past
+Winds Of Golden Mountain Paths (instr)
+
+### "Sageness Fallen" 2001, Black Metal
+
+First Born Snow
+Sageness Fallen
+...Of Glory And Pain
+Winds Of Golden Mountain Paths
+Visions Of The Past
+
+### "Word Of The Darkest Ages" 2007, Black Metal
+
+1. Rebellion of Heresy (prologue)
+2. First Born Snow
+3. Visions of the Past
+4. Word of the Darkest Ages
+5. Winds of Golden Mountain Paths
+6. Sageness Fallen
+7. …of Glory and Pain
+8. As the Fear Grows
+9. Still Smouldering (epilogue)
+
+
+Sarquanaar - whisper of madness, astral hurricane
+Myphares - lashing of souls
+Sinctriah - infernal symphony
+Perfumer - abyss heartbeat
+
 
 ## Отношения с другими группами
 

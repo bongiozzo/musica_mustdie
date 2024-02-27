@@ -1,8 +1,32 @@
 # Julie Laughs Nomore
 
-Дискография
-"When Only Darkness Remains" 1999, Melodic Death Metal
-"From The Mist Of The Ruins" 2001, Melodic Death Metal
+
+
+## Дискография
+
+### "When Only Darkness Remains" 1999, Melodic Death Metal
+
+1. Only Darkness Remains 
+2. Morbid Dreams 
+3. Domains of Madness     
+4. The Cold Awakening  
+5. In The Ashes of The Midnight Sun    
+6. Silent Waters     
+7. Everything Dies  
+
+
+### "From The Mist Of The Ruins" 2001, Melodic Death Metal
+
+1.Mistress of death 
+2.Children of the empty cross    
+3. From the mist of the ruins 
+4. Bringer of misery    
+5. The iron gate   
+6. Eternity is just one step away    
+7. Lords of pleasure    
+8. 200 years 
+
+
 
 ## Отношения с другими группами
 

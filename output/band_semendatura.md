@@ -1,7 +1,22 @@
 # Semen Datura
 
-Дискография
-"This Love Is Dead" 2001, Black Metal
+emotional dark metal
+
+## Дискография
+
+### "This Love Is Dead" 2001, Black Metal
+
+1. This Love Is Dead
+2. Bishop Of Blood
+3. Scream
+4. Price Of Liberty
+5. Rabenmensch
+6. Quellen
+7. Follower
+8. Finaler Geist
+9. Die Rache Ist Mein
+10. Hear The Blade RIngs
+
 
 ## Отношения с другими группами
 

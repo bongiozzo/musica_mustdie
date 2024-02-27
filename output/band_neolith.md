@@ -1,7 +1,20 @@
 # Neolith
 
-Дискография
-"Immortal" 2004, Death Metal
+
+
+## Дискография
+
+### "Immortal" 2004, Death Metal
+
+1. No Longer Fearing Death
+2. Metamorphoses Verses
+3. Hues of the Universe
+4. The key i am
+5. Eight
+6. Colossal time Void
+7. Thin invisible line
+8. Snakes tongues
+
 
 ## Отношения с другими группами
 

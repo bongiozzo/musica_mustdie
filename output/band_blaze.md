@@ -1,9 +1,66 @@
 # Blaze 
 
-Дискография
-"Silicon Messiah" 2000, Heavy Metal
-"Tenth Dimension" 2002, Heavy Metal
-"Blood and Belief" 2004, Heavy Metal
+band of former Iron Maiden vocalist 
+
+## Дискография
+
+### "Silicon Messiah" 2000, Heavy Metal
+
+1. Ghost in the Machine (Bayley, Wray, Slater, Naylor) 
+2. Evolution (Bayley, Naylor, Slater, Wray, Singer)
+3. Silicon Messiah (Bayley, Naylor, Slater)
+4. Born as a Stranger (Bayley, Naylor, Slater)
+5. Hunger (Bayley, Slater, Wray, Singer)
+6. The Brave (Bayley, Naylor, Wray)
+7. Identity (Bayley, Naylor, Slater, Wray)
+8. Reach for the Horizon (Bayley, Hilborne)
+9. The Launch (Bayley, Wray, Naylor, Singer)
+10. Stare at the Sun (Bayley, Slater, Wray, Naylor)
+11. The Day I Fell to Earth (Bayley, Naylor)  * ~ 
+12. Motherf*ckers R Us (Bayley, Naylor, Wray)  ~ 
+13. Tough as Steel (Bayley)  ~
+(*) Available on the Japanese version of Silicon Messiah
+(~) Available on the South American version of Silicon Messiah also features mutimedia section
+
+### "Tenth Dimension" 2002, Heavy Metal
+
+CD1:
+1. Forgotten Future (Bayley, Wray, Slater, Naylor) 
+2. Kill and Destroy (Bayley, Naylor, Slater, Wray, Singer)
+3. End Dream (Bayley, Singer, Slater, Wray)
+4. The Tenth Dimension (Bayley, Naylor, Slater, Wray)
+5. Nothing Will Stop Me (Bayley, Naylor, Wray)
+6. Leap of Faith (Bayley, Naylor, Singer, Wray)
+7. The Truth Revealed (Bayley, Slater, Wray)
+8. Meant to Be (Bayley, Wray)
+9. Land of the Blind (Bayley, Wray, Naylor, Slater)
+10. Stealing Time (Bayley, Slater, Wray, Naylor)
+11. Speed of Light (Bayley, Slater, Wray)
+12. Stranger to the Light (Bayley, Naylor, Slater, Wray)
+CD2:
+1. The Launch (Live) (Bayley, Wray, Singer, Naylor) 
+2. Futureal (Live) (Bayley, Harris)
+3. Tough as Steel (Live) (Wolfsbane)
+4. Evolution (Live) (Bayley, Naylor, Slater, Wray, Singer)
+5. Living Someone Else's Life (Bayley, Naylor, Wray, Slater, Singer)
+6. Silicon Messiah (MP3)
+7. Born as a Stranger (MP3)
+8. Ghost in the Machine (Video)
+9. Inside the Tenth Dimension (EPK)
+
+### "Blood and Belief" 2004, Heavy Metal
+
+01. Alive
+02. Ten Seconds
+03. Blood and Belief
+04. Life and Death
+05. Tearing Myself to Pieces
+06. Hollow Head
+07. Will to Win
+08. Regret
+09. The Path and the Way
+10. Soundtrack of my Life
+
 
 ## Отношения с другими группами
 

@@ -1,9 +1,44 @@
 # Act Of God
 
-Дискография
-"...For Demon" 2002, Black Metal
-"The Place Of Worship" 2005, Black Metal
-"Life Denied [EP]" 2007, Death Metal
+Apocalyptic sympho-black with female vocal
+
+## Дискография
+
+### "...For Demon" 2002, Black Metal
+
+1. Summoning 
+2. Dead Jesus 
+3. Lyric 
+4. The Doors  
+5. Black Sun  
+6. ...For Demon 
+7. Ceremony Hate
+
+Recorded at "R-Line studio" Perm, Russia in Nov/March 2001/2002 
+Engineered by S. Luzin
+
+### "The Place Of Worship" 2005, Black Metal
+
+1. Dirty Worms
+2. God Don't Forgive
+3. They're Beside
+4. Atheism For Dead
+5. Act Of God
+6. The Beast In My Soul
+7. Centuries To Kill
+8. Frozen Moon (MAYHEM cover)
+9. In Darkness
+10. Outro
+
+Recorded at "NavahoHut studio" Moskow, Russia in Dec/Jan 2004/2005
+Engineered by A. Navaho
+
+### "Life Denied [EP]" 2007, Death Metal
+
+Life Denied
+We Are Omen Of Coming Reign
+Bleeding Creature
+
 
 ## Отношения с другими группами
 

@@ -1,12 +1,170 @@
 # Nasum
 
-Дискография
-"Industrislaven" 1995, Grindcore
-"World In Turmoil" 1996, Grindcore
-"Inhale/Exhale" 1998, Grindcore
-"Human 2.0" 2000, Grindcore
-"Helvete" 2003, Grindcore
-"Shift" 2004, Grindcore
+Grindcore from Sweden a-la early Napalm Death
+
+## Дискография
+
+### "Industrislaven" 1995, Grindcore
+
+1. Industrislaven
+2. Loepande - Bands Principen
+3. Cut to Fit
+4. Fantasibilder
+5. Distortion & Disinformtion
+6. Brinn
+7. Krigets Skoerd
+8. Mer Rens
+9. Ditt Oede
+10.Ingenting Att Ha!
+11.Revolution
+12.Den Moerka Tiden
+13.Forcefed Opinion
+14.Domedagen
+15.Dolt Under Ytan
+16.I Helvetet
+17.Skithus
+18.Soendermald
+
+### "World In Turmoil" 1996, Grindcore
+
+01 - World In Turmoil
+02 - The Final Confrontation
+03 - The Dream
+04 - Zombie Society
+05 - Sheer Horror
+06 - Awake
+07 - En Varld Utan Hopp
+08 - End
+09 - As Time Goes By
+10 - Our Revolution
+11 - Masquerade
+12 - Ripped
+13 - Rage
+14 - Law And Order
+15 - Rise
+16 - Killed By Your Greed
+
+### "Inhale/Exhale" 1998, Grindcore
+
+1.   This Is... (Jakobson) 
+2.   Masked Face (Jakobson) 
+3.   Digging In (Talarczyk) 
+4.   Time to Act! (Talarczyk) 
+5.   Disdain and Contempt (Jakobson) 
+6.   I See Lies (Jakobson) 
+7.   Inhale/Exhale (Jakobson) 
+8.   Too Naked to Distort (Talarczyk) 
+9.   There's No Escape (Talarczyk) 
+10.   Rest Is Over (Jakobson) 
+11.   Disappointed 
+12.   L&#1076;gg Om! (Talarczyk) 
+13.   You're Obsolete (Jakobson) 
+14.   Tested (Talarczyk) 
+15.   Shapeshifter (Jakobson) 
+16.   Feed Them, Kill Them, Skin Them (Talarczyk) 
+17.   When Science Falls (Jakobson) 
+18.   Closing In (Talarczyk) 
+19.   World That You Made (Jakobson) 
+20.   System Has Failed Again (Talarczyk) 
+21.   For What Cause? (Talarczyk) 
+22.   Fullmated (Talarczyk) 
+23.   Screwed (Talarczyk) 
+24.   Shaping the End (Talarczyk) 
+25.   New Firing Song (Jakobson) 
+26.   No Sign of Improvement (Talarczyk) 
+27.   My Philosophy (Jakobson) 
+28.   I'm Not Silent (Jakobson) 
+29.   Breathing Furnace (Jakobson) 
+30.   Information Is Free (Jakobson) 
+31.   Burning Inside (Jourgensen) 
+32.   Request for Guidance (Jakobson) 
+33.   Grey (Jakobson) 
+34.   Worldcraft (Talarczyk) 
+35.   It's Never Too Late (Jakobson) 
+36.   Du &#1044;r Bevakad (Talarczyk) 
+37.   Blinded (Jakoson) 
+38.   Cand de Lach (Jakoson) 
+
+### "Human 2.0" 2000, Grindcore
+
+1. Mass Hypnosis 
+2. A Welcome Breeze of Stinking Air 
+3. Fatal Search 
+4. Shadows [mp3] 
+5. Corrosion [mp3] 
+6. Multinational Murderers Network 
+7. Parting Is Such Sweet Sorrow 
+8. The Black Swarm 
+9. Sixteen 
+10. Alarm 
+11. Detonator 
+12. Gargoyles and Grotesques  
+13. Nдr Dagarna... 
+14. Resistance 
+15. The Idiot Parade 
+16. Den Svarta Fanan 
+17. We're Nothing But Pawns 
+18. Defragmentation 
+19. Sick System 
+20. The Professional League 
+21. Old and Tired? 
+22. Words To Die For 
+23. Riot 
+24. The Meaningless Trial 
+25. Sometimes Dead Is Better  
+
+### "Helvete" 2003, Grindcore
+
+1. Violation 00:38  
+2. Scoop 02:21 
+3. Living Next Door to Malice 01:45 
+4. Stormshield 02:23 
+5. Time to Discharge 01:20 
+6. Bullshit 00:46
+7. Relics 02:34 
+8. We Curse You All 01:03 
+9. Doombringer 02:00 
+10. Just Another Hog 02:17 
+11. Drop Dead 00:45
+12. I Hate People 01:36 
+13. Go! 01:26
+14. The Final Sleep 01:41
+15. Slaves to the Grind 01:11
+16. Breach of Integrity 02:13 
+17. The Everlasting Shame 01:25
+18. Your Words Alone 00:51
+19. Preview of Hell 01:49 
+20. Illogic 01:27
+21. Whip 01:34
+22. Worst Case Scenario 01:58
+
+### "Shift" 2004, Grindcore
+
+01. Particles
+02. The Engine of Death
+03. Twinkle, Twinkle Little Scar
+04. No Paradise for The Damned
+05. Wrath
+06. Fear is your Weapon
+07. The Deepest Hole
+08. High on Hate
+09. Pathetic
+10. Circle of Defeat
+11. Like Cattle
+12. Ros
+13. The Smallest Man
+14. Cornered
+15. Strife
+16. The Clash
+17. Hets
+18. Closer to The End
+19. Fury
+20. Fight Terror with Terror
+21. Ett Inflammerat Sеr
+22. Deleted Scenes
+23. Creature
+24. Darkness Falls
+
 
 ## Отношения с другими группами
 

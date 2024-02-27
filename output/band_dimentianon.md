@@ -1,8 +1,32 @@
 # Dimentianon
 
-Дискография
-"Seven Suicides" 2003, Death Metal
-"Hossanas Novus Ordo Seclurum" 2007, Death Metal
+
+
+## Дискография
+
+### "Seven Suicides" 2003, Death Metal
+
+1. Self Inflicted Abuse 06:04 
+2. A Song For Elizabeth When She Is Dead 03:57
+3. Souless Extinction 03:48 
+4. Last of Seven 04:51  
+5. Brotherhood of The 7th Day 04:03  
+6. Razorblade Catharsys (Selmordkoening) 03:50
+7. Dead & Forgotten 05:32 
+
+### "Hossanas Novus Ordo Seclurum" 2007, Death Metal
+
+1. Your Flesh Is Mine To Exploit 05:54  
+2. Terriblis Est Locus Iste 03:21  
+3. Bloodshed From A Black Rose 05:24  
+4. To Be Crowned King And Stabbed To Death 05:21  
+5. Human Rot (Rigor Sardonicus Cover) 02:43  
+6. Dawn ov Shadows 04:38  
+7. Netzach 04:33  
+8. Azrael 05:48  
+9. For Those Who Have Left, And Those Left Behind 01:11  
+10. To Return That Which is Above, To That Which is Below 23:51 
+
 
 ## Отношения с другими группами
 

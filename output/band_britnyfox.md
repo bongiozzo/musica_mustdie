@@ -1,10 +1,40 @@
 # Britny Fox
 
-Дискография
-"Britny Fox" 1988, Glam
-"Boys In Heat" 1989, Glam
-"Bite Down Hard" 1991, Hard Rock
-"Springhead Motorshark" 2003, Hard Rock
+Hard rock
+
+## Дискография
+
+### "Britny Fox" 1988, Glam
+
+
+
+### "Boys In Heat" 1989, Glam
+
+
+
+### "Bite Down Hard" 1991, Hard Rock
+
+
+
+### "Springhead Motorshark" 2003, Hard Rock
+
+1 Pain    
+2 Freaktown    
+3 T.L.U.C.    
+4 L.A.    
+5 Springhead Motorshark    
+6 Is It Real  
+7 Coup D'etat  
+8 Far Enough  
+9 Lonely Ones  
+10 Memorial  
+11 Sri Lanka 
+
+Tommy Paris vocals and guitars 
+Michael Kelly Smith guitars 
+Billy Childs bass 
+Johnny Dee drums
+
 
 ## Отношения с другими группами
 

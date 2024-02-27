@@ -1,7 +1,24 @@
 # Accessory
 
-Дискография
-"Within Your Mind" 1992, Thrash
+
+
+## Дискография
+
+### "Within Your Mind" 1992, Thrash
+
+1. Drowing In Tears
+2. Deceptions End
+3. Indifferent
+4. Racional Decline
+5. The Fall Of The Wise
+6. Long Forgotten Place
+7. Kissing The Dead
+8. Within The Mind
+
+Produced & Mixed By Peter Walcheim.
+
+(p)&(c) 1992 WEST VIRGINIA Records
+
 
 ## Отношения с другими группами
 

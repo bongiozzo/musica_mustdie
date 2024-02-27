@@ -1,7 +1,24 @@
 # John 5
 
-Дискография
-"Songs For Sanity" 2005, Instrumental
+
+
+## Дискография
+
+### "Songs For Sanity" 2005, Instrumental
+
+01. Death Valley
+02. Sin
+03. Damaged
+04. Denouement
+05. Blues Balls
+06. Gods And Monsters
+07. Die
+08. Perineum
+09. Fiddler`s
+10. Gein With Envy
+11. Behind The Nut Love
+12. Soul Of A Robot
+
 
 ## Отношения с другими группами
 

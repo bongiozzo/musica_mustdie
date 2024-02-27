@@ -1,7 +1,13 @@
 # Stoner Kings
 
-Дискография
-"Brimstone Blues" 2002, Stoner
+Stoner rock from Finland
+
+## Дискография
+
+### "Brimstone Blues" 2002, Stoner
+
+
+
 
 ## Отношения с другими группами
 

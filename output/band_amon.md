@@ -1,7 +1,32 @@
 # Amon
 
-Дискография
-"Shemhamforash" 1996, Black Metal
+
+
+## Дискография
+
+### "Shemhamforash" 1996, Black Metal
+
+1.  Into The Black Order (Intro) 
+2.  The Diatribe 
+3.  Summerian Death Call 
+4.  Das Tierdrama 
+5.  Words Of Warning 
+6.  The Morning Of Black Magic 
+7.  Dethroned Of Sophisms 
+8.  Destructive Organism 
+9.  Lucifer Dwells Within 
+10.Eternal Darkness And Winter Storms 
+11.Lost Souls 
+12.So It Is Done
+
+Dan B.Zahed - Guitars
+Pete 5chuler  Drums
+Satorius - Bass
+Reto Jager - Guitars
+Lothar - Vocals
+
+(p)(c) 1996 WITCHHUNT RecC // WIHU 9622
+
 
 ## Отношения с другими группами
 

@@ -1,15 +1,203 @@
 # Edge Of Sanity
 
-Дискография
-"Nothing But Death Remains" 1991, Death Metal
-"Unorthodox" 1992, Death Metal
-"The Spectral Sorrows" 1993, Death Metal
-"Until Eternity Ends" 1994, Melodic Death Metal
-"Purgatory Afterglow" 1994, Melodic Death Metal
-"Crimson" 1996, Melodic Death Metal
-"Infernal" 1997, Melodic Death Metal
-"Cryptic" 1997, Melodic Death Metal
-"Crimson II" 2003, Melodic Death Metal
+Swedish death metal legend
+
+## Дискография
+
+### "Nothing But Death Remains" 1991, Death Metal
+
+1. Tales
+2. Human Abberation
+3. Maze Of Existence
+4. The Dead
+5. Decepted By The Cross
+6. Angel Of Distress
+7. Impulsive Necroplasma
+8. Immortal Souls
+
+(p)&(c) 1991 BLACK MARK Productions
+
+
+### "Unorthodox" 1992, Death Metal
+
+1. The Unorthodox
+2. Enigma
+3. Incipience to The Butchery
+4. In The Veins /  Darker Than Black
+5. Everlasting
+6. After Afterlife
+7. Beyond The Unknown
+8. Nocturnal
+9. A Gurfew For The Damned
+10.Cold Sun
+11.The Day Of Maturity
+12.Requiscon By Page
+13.Dead But Dreaming
+14.When All Is Said
+
+ Dan Swano - Vocals
+ Sami Nerberg - Guitar
+ Andreas Axelsson - Guitar
+ Anders Lindberg - Bass
+ Benny Larsen - Drums
+
+Produced By EDGE OF SANITY.
+Engineered By Rex Gisslen.
+Recorded At Montezuma Recording.
+
+(p)&(c) 1992 BLACK MARK Productions
+
+
+### "The Spectral Sorrows" 1993, Death Metal
+
+1. The Spectral Sorrows
+2. Darkday
+3. Livin` Hell
+4. Lost
+5. The Masque
+6. Blood Of My Enemies
+7. Jesus Cries
+8. Across The Fields Of Forever
+9. On The Other Side
+10.Sacrificed
+11.Waiting To Die
+12.Feedin` The Charlatan
+13.A Serenade For The Dead
+
+ Dan Swano - Throat
+ Dread - Rhythm/Lead Guitars
+ Sami Nerberg - Rhythm/Lead Guitars
+ Anders Lindberg - Bass
+ Benny Larsson - Drums
+
+All Songs By EDGE OF SANITY,Except *
+Music & Lyrics By MANOWAR.
+Produced By EDGE OF SANITY.
+Mixed & Engineered By Dan Swano.
+Recorded On 16 Tracks In Unisound Recordings,
+July / August 1993.
+
+(p)&(c) 1993  BLACK MARK Productions
+
+### "Until Eternity Ends" 1994, Melodic Death Metal
+
+1. Until Eternity Ends
+2. Eternal Eclipse
+3. Bleed
+4. Invisible Sun *
+
+ Benny Larsson - Drums
+ Anders Lindberg - Bass
+ Sami Nerberg - Rhythm Guitars
+ Dread - Rhythm Guitars
+ Dan Swano - Throat
+
+All Songs By EDGE OF SANITY, Except * By STING
+Produced By EDGE OF SANITY
+Rehearsed & Recorded At Unisound, April 1994
+
+(p)&(c) 1994 BLACK MARK Product.
+
+### "Purgatory Afterglow" 1994, Melodic Death Metal
+
+1. Twilight
+2. Of Darksome
+3. Blood-Colored
+4. Silent
+5. Black Tears
+6. Elegy
+7. Velvet Dreams
+8. Enter Chaos
+9. The Sinner And The Sadness
+10. Song Of Sirens
+
+ Benny Larsson - Drums
+ Anders Lindberg - Bass
+ Sami Nerberg - Rhythm Guitars
+ Dread - Rhythm Guitars
+ Dan Swano - Throat
+
+Produced By EDGE OF SANITY
+Recorded & Mixed In Unisound, Sweden, By Dan Swano In July 1994
+
+... To The Memory Of Kurt Cobain
+
+(p)&(c) 1994 BLACK MARK Records
+
+### "Crimson" 1996, Melodic Death Metal
+
+1.  Crimson (40.00)
+
+Recorded & Mixed At Unisound by
+Dan Swano and Pro Mix 01.
+Mastered and Digitally edited by Peter in de Betou 
+and Dan Swano at Cutting Room.
+Cover artwork by Duncan C. Storr.
+Cover Concept by Dan Swano.
+
+Andreas Axelsson - Right Guitar
+Benny Larsson - Dnims, Inspiration
+Anders Lindberg - Bass
+Sami Nerberg - Left Guitar
+Dan Swano - Center Rhythm and Harmony Guitar, 
+Clean and Acoustic Guitar, Keyboards, Vocals
+
+Additional Musicians:
+Anders Mareby - Death-Cello Bizarre
+Mike Akerfeldt - Vocals & Lead Guitar
+
+(P)&(C) 1996 BLACK MARK Productions
+
+### "Infernal" 1997, Melodic Death Metal
+
+1. Hell Is Where The Heart Is
+2. Helter Skelter
+3. 15:36
+4. The Bleakness Of It All
+5. Damned (By The Damned)
+6. Forever Together Forever
+7. Losing Myself
+8. Hollow
+9. Inferno
+10.Burn The Sun
+11.The Last Song
+
+Recorded & Mixed By Peter Tagtgren.
+Recorded In Abyss Studio, Parlby, Sweden.
+
+Andreas Axelsson - All Guitars
+Benny Larsson - Drums
+Anders Lindberg - Bass
+Dan Swano - Center Rhythm and Harmony Guitar,
+Clean and Acoustic Guitar, Keyboards, Vocals
+
+(P)c 1997 BLACK MARK Productions
+
+### "Cryptic" 1997, Melodic Death Metal
+
+1. Hell Written
+2. Uncontrol Me
+3. No Destiny
+4. Demon I
+5. Not Of This World
+6. Dead I Walk
+7. Born, Breed, Bleeding
+8. Bleed You Dry
+
+Anders Lindberg - bass
+Benny Larsson - Drums
+Robban Karlsson - Vocals
+Dread - Guitar
+Sami Nerberg - Guitar
+
+Produced By Rony Lahti and dge Of Sanity
+
+(p)(c)1997 Black Mark Production
+
+### "Crimson II" 2003, Melodic Death Metal
+
+
+
 
 ## Отношения с другими группами
 

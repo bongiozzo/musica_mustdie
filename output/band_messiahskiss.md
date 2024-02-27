@@ -1,9 +1,32 @@
 # Messiah's Kiss
 
-Дискография
-"Prayer For The Dying" 2002, Heavy Metal
-"Metal" 2004, Heavy Metal
-"Dragonheart" 2007, Heavy Metal
+Heavy metal
+
+## Дискография
+
+### "Prayer For The Dying" 2002, Heavy Metal
+
+1. The Rising
+2. Light In The Black
+3. Reign Of Fire
+4. Dream Evil
+5. Blood, Sweat & Tears
+6. Thunderball
+7. Prayer For The Dying
+8. Night Comes Down
+9. Mortal Sin
+10. Final Warning
+11. Pride & Glory
+12. Blood Of The Kings
+
+### "Metal" 2004, Heavy Metal
+
+
+
+### "Dragonheart" 2007, Heavy Metal
+
+
+
 
 ## Отношения с другими группами
 

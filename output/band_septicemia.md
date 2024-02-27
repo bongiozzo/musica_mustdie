@@ -1,8 +1,36 @@
 # Septicemia
 
-Дискография
-"Revenge On Mankind " 1998, Techno Death
-"Hopeless Age" 2000, Thrash
+
+
+## Дискография
+
+### "Revenge On Mankind " 1998, Techno Death
+
+1. Seine Gцttliche Gnade   
+2. Morbid Cry   
+3. Eternal Knabverkakh   
+4. Beast   
+5. Step Before Death   
+6. Helpless Manifest   
+7. The End   
+8. Misery   
+9. Epitaph On Earth 
+
+### "Hopeless Age" 2000, Thrash
+
+1. Intro 01:27  
+2. Enter Me 02:55  
+3. Distress Of The Night 05:14  
+4. Hopeless Age 06:14  
+5. Coming Of Chaos 05:33  
+6. God Save The Queen 03:42  
+7. Deeper 00:34  
+8. Origin Of This World 05:01  
+9. Get Through The Opposite 05:00  
+10. Possessed By Bloodlust 03:02  
+11. Morbid Cry 03:27  
+12. The Arrival 07:22 
+
 
 ## Отношения с другими группами
 

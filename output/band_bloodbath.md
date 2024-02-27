@@ -1,11 +1,86 @@
 # Bloodbath
 
-Дискография
-"Breeding Death (MCD)" 1999, Death Metal
-"Resurrection Through Carnage" 2002, Death Metal
-"Nightmares Made Flesh" 2004, Death Metal
-"The Fathomless Mastery " 2008, Death Metal
-"Grand Morbid Funeral" 2014, Ambient
+swedish all-star project
+
+## Дискография
+
+### "Breeding Death (MCD)" 1999, Death Metal
+
+1. Breeding Death
+2. Ominous Bloodvomit
+3. Furnace Funeral
+
+### "Resurrection Through Carnage" 2002, Death Metal
+
+01. Ways To The Grave
+02. So You Die
+03. Mass Strangulation
+04. Death Delirium
+05. Buried By The Dead
+06. The Soulcollector
+07. Bathe In Blood
+08. Trail Of Insects
+09. Like Fire
+10. Cry My Name
+
+### "Nightmares Made Flesh" 2004, Death Metal
+
+01. Outnumbering The Day 
+02. Year Of The Cadaver Race 
+03. Draped In Disease 
+04. Cancer Of The Soul 
+05. The Ascension 
+06. Eaten 
+07. Brave New Hell 
+08. Stillborn Saviour 
+09. Feeding The Undead 
+10. Bastard Son Of God 
+11. Soul Evisceration 
+12. Blood Vortex
+
+### "The Fathomless Mastery " 2008, Death Metal
+
+1. At the Behest of their Death 
+2. Process of Disillumination 
+3. Slaughtering the Will to Live 
+4. Mock the Cross
+5. Treasonous 
+6. Iesous
+7. Drink from the Cup of Heresy 
+8. Devouring the Feeble 
+9. Earthrot 
+10. Hades Rising 
+11. Wretched Human Mirror
+
+
+### "Grand Morbid Funeral" 2014, Ambient
+
+1. Let the Stillborn Come to Me  04:37   
+2. Total Death Exhumed  03:51   
+3. Anne  03:43   
+4. Church of Vastitas  03:37  
+5. Famine of God's Word  04:56 
+6. Mental Abortion  03:47   
+7. Beyond Cremation  04:41
+8. His Infernal Necropsy  03:35 
+9. Unite in Pain  03:52 
+10. My Torturer  04:17  
+11. Grand Morbid Funeral  05:35 
+
+
+
+Recorded Ghost Ward & City of Glass (March - September, 2014)
+Mixed at Ghost Ward, Stockholm (September, 2014)
+Mastered at Stockholm Mastering, Stockholm (Sptember, 2014)
+
+Jonas Renkse - Bass  
+Nick Holmes - Vocals  
+Per "Sodomizer" Eriksson - Guitars  
+Martin Axenrot - Drums  
+Anders "Blakkheim" Nystrцm - Guitars, Vocals (backing)  
+
+
+
 
 ## Отношения с другими группами
 

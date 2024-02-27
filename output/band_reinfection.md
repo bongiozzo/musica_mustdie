@@ -1,7 +1,42 @@
 # Reinfection
 
-Дискография
-"Peace Through Killing" 2006, Deathcore
+
+
+## Дискография
+
+### "Peace Through Killing" 2006, Deathcore
+
+1. Peace Through Killing 03:26  
+2. Out Of Mind 00:13  
+3. Unchallenged Hate (Napalm Death cover) 02:02 
+4. The Pedophile's Odour (new deep version) 03:47  
+5. H.O.P.E. (Brutal Truth cover) 01:53  
+6. Devastation In Mind Of Psychopathic Killer 03:27  
+7. An Institute Of Bloody Anatomy 03:08  
+8. They Die For Nothing 02:22  
+9. The Pedophile's Odour 03:43  
+10. I Feel Smell Of My Victim 01:42  
+11. Abrupt Decease 03:17  
+12. Skin Torn Off The Genitals 01:57  
+13. The Limit Of A Virginal Weakness 03:20  
+14. A Morgue Filled With Rotting Corpses 02:38  
+15. Take This Knife and Cut My Neck 02:51  
+16. ...And Cut My Neck (demo version) 02:51  
+17. They Die For Nothing (demo version) 02:24  
+18. I Feel Smell Of My Victim (demo version) 01:45  
+19. Abrupt Decease (demo version) 03:17 
+
+Songs 1-5 were Recorded and Mixed at Kokszoman Studio - July 2004
+Engineered by Marecki and Reinfection
+Songs 6-15 were Recorded and Mixed at Izabelin Studio - May 1999
+Engineered by Andrzej Karp and Piotr Zygo
+Songs 16-19 were Recorded at Zamek Studio - November 1997
+Engineered by Darek Kwasniewski and Reinfection
+Mastered by Jake Perlman at Affordable Sound Studio - December 2004
+All intro's by Reinfection
+Front cover design by Bartek Berdyga
+Inlay graphic design by Brian Gosnell (Sonic Commerce) 
+
 
 ## Отношения с другими группами
 

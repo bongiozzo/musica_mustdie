@@ -1,8 +1,39 @@
 # Pride Of Lions
 
-Дискография
-"The Destiny Stone" 2004, Metal
-"Pride Of Lions" 2004, Metal
+AOR
+
+## Дискография
+
+### "The Destiny Stone" 2004, Metal
+
+01. The Courage To Love Somebody
+02. Parallel Lines
+03. Back To Camelot
+04. Born To Believe In You
+05. What Kind Of Fool
+06. Man Behind The Mask
+07. Light From A Distant Shore
+08. Letter To The Future
+09. The Destiny Stone
+10. Second Hand Life
+11. Falling Back To Then
+12. The Gift Of Song
+
+### "Pride Of Lions" 2004, Metal
+
+It's Criminal  
+Gone 
+ Interrupted Melody  
+ Sound Of Home  
+ Prideland  
+Unbreakable 
+First Time Around The Sun 
+Turn To Me 
+Madness Of Love 
+Love Is On The Rocks 
+Last Safe Place  
+Music And Me
+
 
 ## Отношения с другими группами
 

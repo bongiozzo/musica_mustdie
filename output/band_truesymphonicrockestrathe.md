@@ -1,7 +1,13 @@
 # True Symphonic Rockestra, The
 
-Дискография
-"Concerto In True Minor" 2008, Metal
+Grishko / LaBrie / Dewald
+
+## Дискография
+
+### "Concerto In True Minor" 2008, Metal
+
+
+
 
 ## Отношения с другими группами
 

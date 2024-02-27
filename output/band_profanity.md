@@ -1,8 +1,32 @@
 # Profanity
 
-Дискография
-"Shadows to Fall" 1997, Death Metal
-"SLAUGHTERING THOUGHTS" 2000, Death Metal
+
+
+## Дискография
+
+### "Shadows to Fall" 1997, Death Metal
+
+1.Soulburn... the weeping willow
+2.Shalow ruins
+3.Fall of the shadows
+4.Like a razorblade
+5.Darkened watersky
+6.Into the unforseen
+7.Bloodflow
+8.An age of growing tradegy
+
+### "SLAUGHTERING THOUGHTS" 2000, Death Metal
+
+1.Intro
+2.During the hours of Darkness
+3.Drowned in dusk
+4.Soultornado - Hate burn inside
+5.The springs within
+6.Giants of void vortex
+7.Soulitude
+8.Strangulated with thoughts
+9.When colour becomes pallor
+
 
 ## Отношения с другими группами
 

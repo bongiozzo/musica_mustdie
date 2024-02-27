@@ -1,9 +1,59 @@
 # Kelly Simonz's BLIND FAITH
 
-Дискография
-"Sign Of The Times" 1998, Heavy Metal
-"Silent Scream" 1999, Heavy Metal
-"The Rule Of Right" 2002, Heavy Metal
+Neoclassic guitar music from Japan
+
+## Дискография
+
+### "Sign Of The Times" 1998, Heavy Metal
+
+04:30  Eternal Flame  
+04:15  Still  
+04:51  King Of The Castle  
+02:40  Solitude  
+06:14  Blind Faith  
+05:38  Sign Of The Times  
+01:53  Suite In B Minor BWV1067  
+04:37  Cry For You  
+04:39  Serpent In A Paradise  
+02:41  Pain  
+06:37  Stay In My Heart  
+06:45  Blind Faith (Live)  
+
+
+### "Silent Scream" 1999, Heavy Metal
+
+05:24  Silent Scream  
+05:14  Time  
+01:58  One And Only Love  
+04:47  Girl... I Give My Life For You  
+05:45  Angel Eyes  
+04:31  Fly Away  
+09:01  Paradise Lost  
+04:36  Forever  
+01:36  Lies  
+05:50  Tears In Your Eyes  
+05:24  Aftermath  
+06:06  Blue Monday  
+04:44  Without You  
+
+
+### "The Rule Of Right" 2002, Heavy Metal
+
+04:59  Destiny  
+05:24  Till The End Of Time  
+04:13  Still (2002 Version)  
+04:19  The Rule Of RIght  
+03:25  Desperado  
+05:02  King Of The Castle (2002 Version)  
+05:55  Time Of Revelation  
+02:51  Partita BWV826  
+05:03  Now Your Turn  
+03:19  Sprendid Grief  
+04:21  Dancing On The Edge  
+02:22  Blind Faith (Jungle Mix)  
+01:33  Etude  
+
+
 
 ## Отношения с другими группами
 

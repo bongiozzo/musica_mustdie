@@ -1,7 +1,23 @@
 # Harmony Dies
 
-Дискография
-"Impact" 2003, Death Metal
+
+
+## Дискография
+
+### "Impact" 2003, Death Metal
+
+Narcotic 
+Blessing 
+Toxicated 
+Illfated 
+Impact 
+Farewell 
+Inside 
+Suffering 
+InstruMetal 
+Silence 
+Subliminal
+
 
 ## Отношения с другими группами
 

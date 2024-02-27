@@ -1,8 +1,92 @@
 # Blood Duster
 
-Дискография
-"Yeest" 1996, Deathcore
-"Blood Duster" 2004, Deathcore
+Sex-Perverting-Anal-Fucking-Core
+
+## Дискография
+
+### "Yeest" 1996, Deathcore
+
+1. Albert
+2. Northcote
+3. Motherfuckin'
+4. Chuck
+5. Showered With Affection Pt.2
+6. Strop
+7. Nasty Chicks
+8. Intro
+9. Vulgar Taste
+10.Kill, Kill, Kill
+11.Bitch
+12.Intro
+13.Mortician
+14.Sadomasifuck
+15.Rectal Spawn
+16.Intro
+17.Grossman The Mertman
+18.Bloodfart
+19.Knee Deep In Menstrual Blood Pt.2
+20.Intro
+21.Chunky Bit
+22.Intro
+23.Simultaneous Pleasure Pinch
+24.Intro
+25.Theatre Of Macabre
+26.Gimme Some Lovin'
+27.Raping The Elderly
+28.Intro
+29.Anal Feast
+30.Fisting The Dead
+31.Intro
+32.Derek
+
+Produced By BLOOD DUSTER.
+Engineered By Doug Saunders.
+Recorded & Mixed At Toybox.
+
+Tony - Cockstaplin'deadhomievox
+Fin Allman - Leadcockbladeguitarmagedon
+Matt Rizzo - Meatpoundingbeatslut
+Jason P.C. - Cockslappin'bassbitch
+
+(P)c 1996 RELAPSE Records
+
+### "Blood Duster" 2004, Deathcore
+
+1 ForThoseAboutToFuck 
+2 Idi 
+3 SixSixSixteen 
+4 CockJunkie 
+5 Sellout N 
+6 IWannaDoItWithADonna 
+7 FruityRelationships 
+8 HeroinPunk 
+9 Sk8ergrrl  
+10 BadHabbits 
+11 OnTheStage 
+12 VeganFeast  
+13 DrinkFightFuck 
+14 TonyGoesToCourt (Skit) 
+15 OnTheHunt 
+16 CurrentTrends 
+17 Underground 
+18 DrugFiend 
+19 Achin’ForAn’A’Cup 
+20 DahmerTheEmbalmer 
+21 She’sAJunkie 
+22 NuCorprate 
+BONUS TRACKS : 
+23 orneryhornery 
+24 66.6ONYOURFMDIAL 
+25 TICKETTORIDE + PAINFULLNOISEENTITLED”HTABBASKCALB” 
+26 LETS FUCK
+
+
+M-lo (guitar)
+Tony Lee Roth (vocals)
+Matt Rizzo (drums)
+Belt Thrower (guitar)
+Jason P.C. (bass)
+
 
 ## Отношения с другими группами
 

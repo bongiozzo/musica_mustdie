@@ -1,8 +1,38 @@
 # Run DMC
 
-Дискография
-"Run DMC" 1984, Rap Metal
-"King Of Rock" 1985, Rap Metal
+
+
+## Дискография
+
+### "Run DMC" 1984, Rap Metal
+
+1.  Hard Times
+2.  Rock Box
+3.  Jam-Master Jay
+4.  Hollis Crew
+5.  Sucker M. C's
+6.  It's Like
+7.  Wake Up
+8.  30 Days
+9.  Jay's Game
+
+(P)&c 1984
+
+### "King Of Rock" 1985, Rap Metal
+
+1.  Rock The House
+2.  King Of Rock
+3.  You Talk Too Much
+4.  Jam-Master Jammin'
+5.  Roots, Rap, Reggae
+6.  Can You Rock It
+7.  Like This
+8.  You're Blind
+9.  It's Not Funny
+10.  Daryll And Joe
+
+(P)&c 1985
+
 
 ## Отношения с другими группами
 

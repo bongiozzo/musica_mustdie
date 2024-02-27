@@ -1,7 +1,24 @@
 # Dreamlike Horror
 
-Дискография
-"Delightful Suicides" 2005, Metal
+
+
+## Дискография
+
+### "Delightful Suicides" 2005, Metal
+
+1.	 Night Hunt
+2.	 The House That Breathes With Ghosts
+3.	 Moonshine
+4.	 Damien
+5.	 A Solitary Moment
+6.	 The Labyrinth Of Qena 
+7.	 La Vendetta
+8.	 Your Lying Body
+9.	 Wedding In Horror
+10.	 The Owl's Secret	 
+11.	 Delightful Suicides
+12.	 Funeral March
+
 
 ## Отношения с другими группами
 

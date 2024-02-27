@@ -1,7 +1,24 @@
 # Jezabel
 
-Дискография
-"Legiones Del Sur" 2003, Power Metal
+
+
+## Дискография
+
+### "Legiones Del Sur" 2003, Power Metal
+
+Glaciares 
+Sigue Un Paso Mas 
+Alas De Acero 
+Signes (10 X) 
+Elegia 
+Legiones Del Sur 
+El Tempo Dira 
+Grito De Libertad 
+S.A.F. 
+Fe 
+Miro Atras 
+Imagen Del Mundo
+
 
 ## Отношения с другими группами
 

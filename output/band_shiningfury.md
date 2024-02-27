@@ -1,7 +1,33 @@
 # Shining Fury
 
-Дискография
-"Last Sunrise" 2004, Power Metal
+Power metal from Italy
+
+## Дискография
+
+### "Last Sunrise" 2004, Power Metal
+
+01. Intro
+02. Broken Hopes
+03. 060501
+04. Sleepin' Coma
+05. Snake's Game
+06. Last Sunrise
+07. Memories
+08. Speed Of Life
+09. Declaration Of A Cheat
+10. Net Love
+11. Rosanna
+
+(c)&(p) 2004 Metal Blade Records
+Recorded in FP Recording Studios
+
+Line-up:
+Francesco Neretti (vocals)
+Tommy Pellegrini (guitars)
+Toniello (guitars)
+Alessandro Cola (bass)
+Ross Lukather (drums)
+
 
 ## Отношения с другими группами
 

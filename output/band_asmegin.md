@@ -1,9 +1,91 @@
 # Asmegin
 
-Дискография
-"Naar Rimkalkene Heves (Demo)" 1999, Folk
-"Hin Vordende Sod Og So" 2003, Folk
-"Arv" 2008, Folk
+folk-metal
+
+## Дискография
+
+### "Naar Rimkalkene Heves (Demo)" 1999, Folk
+
+1. Valgalder 
+2. Alvesang Fager 
+3. Over Havet 
+4. Vargdans
+
+Valgalder Records - 01.09.1999
+Music by Marius & Auрrvinr, except 3 by Marius
+Lyrics by Marius, except 1 & 4 by Auрrvinr
+Arranged by Marius, Tomas with Anders on drums, except 4 by Martin
+
+Recorded & mixed at Valgalder Studios by Marius & Tomas
+Produced by Marius, Tomas & Anders
+
+Paintings by Alan Lee
+Layout by Marius
+
+Line-up:
+Marius Olaussen - Lead and rythm guitars, synth, vocals
+Tomas Torgersbrеten - Basses, backing vocals
+Martin Kneppen - Drums on 4, backing vocals
+Anders Torp - Drums on 1, 2 & 3
+Auрrvinr Sigurdsson - Lead vocals
+
+### "Hin Vordende Sod Og So" 2003, Folk
+
+1. Af Helvegum 
+2. Bruderov Paa Hжgstadtun 
+3. Huldradans - Hin Grшnnkledde 
+4. Til Rondefolkets Herskab 
+5. Over Жgirs vidstragte Sletter 
+6. Slit Livets Baand 
+7. Efterbyrden 
+8. Op Af Bisterlitiern 
+9. Vargr i Vйum - Eilivs Bane 
+10. Blodhevn 
+11. Valgalder 
+
+Napalm Records - 25.08.2003
+Music by Marius, except 6 by Lars F., 10, 11 by Marius & Auрrvinr
+Lyrics by Marius, except 3, 11 by Auрrvinr.
+Arranged by Бsmegin, except 3 by Marius
+
+Recorded at TopRoom Studios by Bшrge Finstad & Marius
+Mixed at TopRoom Studios by Bшrge Finstad & Marius
+Produced by Bшrge Finstad & Marius
+
+Paintings by Fredrik Rahmqvist
+Layout by Elena Schirenc
+Band logo by Skrymer
+Band photos by Emile M. Ashley
+
+Line-up:
+Bjшrn Olav Holter - Grim and soar throat
+Marius Olaussen - Lead and rythm guitars, accordion
+Raymond Hеkenrud - Lead and rythm guitars
+Tommy Brandt - Drums and percussion, backing vocals
+Tomas Torgersbrеten - Basses, backing vocals
+
+Guest musicians:
+Lars A. Nedland - Clean vocals
+Anja Hegge Thorsen - Jew's harp
+Oddrun Hegge - Norwegian zither
+Lars F. Frшislie - Pianos, Mellotrons and additional keys
+Sareeta - Fiddle, female chants and profound screams of terror
+Anne Marie Hveding - Wood-nymph chants
+Bшrge "Smuldra Glans" Finstad - Percussion on track 3
+Gunhild Fшrland - Country flutes
+Nikolai Brandt - Internal womb screams
+
+### "Arv" 2008, Folk
+
+1. Fandens Mжlkebшtte 04:10  
+2. Hiertbrand 04:08  
+3. Generalen Og Troldharen 05:27  
+4. Arv 05:40  
+5. Yndifall 06:38  
+6. Gengangeren 04:32  
+7. Prunkende, Stolt I Jokumsol 02:41  
+8. En Myrmylne 09:00 
+
 
 ## Отношения с другими группами
 

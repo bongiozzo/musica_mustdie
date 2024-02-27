@@ -1,7 +1,37 @@
 # Treponem Pal
 
-Дискография
-"Excess & Overdrive" 1993, Industrial
+
+
+## Дискография
+
+### "Excess & Overdrive" 1993, Industrial
+
+1. Out Of Reach*     4.27
+2. Pushing You Too Far    7.23
+3. Excess & Overdrive     4.37
+4. For Progress     4.12
+5. Crimson Garden     7.27
+6. Stoned      4.31
+7. Nowhere Land     7.04
+8. Blow Me Out     6.26
+9. Sometimes*     4.20
+10.Full Moon     3.39
+11.Excess (Trance Mix)    4.28
+
+ Marco Neves - Vocals
+ Michel Bassin - Guitar
+ Alain Fornasari - Bass & Guitars
+ Amadou Sall - Bass
+ Didier Serbourdin - Drums
+
+All Music By TREPONEM PAL
+Except * By TREPONEM PAL & Laurent Bizet
+Produced By Franz Treichler
+Recorded At Studio Des Forces Motrices By David Weber
+Mixed At Relief Studio By Bertrand Siffert
+
+(p)&(c) 1993 ROADRUNNER Prod. B.V.
+
 
 ## Отношения с другими группами
 

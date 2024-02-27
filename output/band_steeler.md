@@ -1,10 +1,58 @@
 # Steeler
 
-Дискография
-"Steeler" 1984, Heavy Metal
-"Rulin' the Earth" 1985, Heavy Metal
-"Strike Back" 1986, Heavy Metal
-"Undercover Animal" 1988, Heavy Metal
+
+
+## Дискография
+
+### "Steeler" 1984, Heavy Metal
+
+1. Chains are Broken 03:52  
+2. Gonna Find Some Place in Hell 03:06  
+3. Heavy Metal Century 05:07  
+4. Sent from the Evil 04:22  
+5. Long Way 03:53  
+6. Call her Princess 03:05  
+7. Love for Sale 04:12  
+8. Hydrophobia 03:45  
+9. Fallen Angel 06:18 
+
+### "Rulin' the Earth" 1985, Heavy Metal
+
+1. The Resolution 01:06 
+2. Ruling the Earth 04:40 
+3. Shellshock 05:15 
+4. Let the Blood Run Red 05:13
+5. Heading for the End 06:35  
+6. Maniac 05:07 
+7. Run with the Pack 04:10 
+8. S.F.M. 1 02:55  
+9. Turning Wheels 05:52 
+
+### "Strike Back" 1986, Heavy Metal
+
+1. Chain Gang 03:57 
+2. Money Doesn't Count 04:52 
+3. Danger Comeback 03:36 
+4. Icecold 04:20
+5. Messing Around with Fire 04:20
+6. Rockin' the City 03:57 
+7. Strike Back 04:06 
+8. Night After Night 05:07
+9. Waiting for a Star 04:39 
+
+### "Undercover Animal" 1988, Heavy Metal
+
+1. (I'll be) Hunter or Hunted 03:40
+2. Undercover Animal 04:50
+3. Shadow in the Redlight 04:23
+4. Hard Breaks 03:49
+5. Criminal 03:56
+6. Rely on Rock 04:17
+7. Stand Tall 03:28
+8. The Deeper the Night 05:10 
+9. Knock Me Out 03:15 
+10. Bad to the Bone 02:36 
+
 
 ## Отношения с другими группами
 

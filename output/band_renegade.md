@@ -1,9 +1,48 @@
 # Renegade
 
-Дискография
-"Too Hard to Die" 2006, Heavy Metal
-"Straight To The Top" 2008, Heavy Metal
-"W:A:R" 2010, Heavy Metal
+
+
+## Дискография
+
+### "Too Hard to Die" 2006, Heavy Metal
+
+1. Le Matin des Magiciens	 
+2. The End Is Near
+3. Fear of the Fire
+4. Hot Again
+5. Kali
+6. As a Stone
+7. Lies
+8. In the Heat of the Night
+9. Las Vegas
+10. Too Hard to Die
+11. Nothing to See
+
+### "Straight To The Top" 2008, Heavy Metal
+
+1. Straight to the Top	02:56	 
+2. Really Think You're Clean?	03:57	 
+3. City Night	04:02	 
+4. R'n'R Dj	03:52	 
+5. I Can Live Without You	04:52	 
+6. Nasty Boy Blues	02:55	 
+7. Kid "The Hurricane"	04:32	 
+8. Cold as Ice	08:04	 
+9. Tell Me What to Do	05:46	
+
+### "W:A:R" 2010, Heavy Metal
+
+1. First Blood	03:43	 
+2. Masquerade	05:41	 
+3. Wired	04:28	 
+4. Under My Skin	02:46	 
+5. Where Time Stands Still	05:10	 
+6. Wild Days	04:03	 
+7. Burning Highway	03:28	 
+8. No Reason in Love	04:41	 
+9. W:A:R	05:05	 
+10. Can't Stop the Fire	02:58	
+
 
 ## Отношения с другими группами
 

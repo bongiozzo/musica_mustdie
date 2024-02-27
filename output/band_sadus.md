@@ -1,11 +1,93 @@
 # Sadus
 
-Дискография
-"Illusions" 1988, Techno Death
-"Swallowed In Black" 1990, Techno Death
-"A Vision Of Misery" 1992, Techno Death
-"Elements Of Anger" 1999, Techno Death
-"Out For Blood" 2006, Techno Death
+
+
+## Дискография
+
+### "Illusions" 1988, Techno Death
+
+1. Certain Death
+2. Undead
+3. Sadus Attack
+4. And Then You Die
+5. Hands Of Fate
+6. Twisted Face
+7. Fight Or Die
+8. Illusions (Chemical Exposure)
+
+ Jon Allen - Drums
+ Rob Moore - Guitar
+ Steve DiGiorgio - Bass
+ Darren Travis - Guitars & Vocals
+
+(p)&(c) 1988 SADUS Records USA
+(p)&(c) 1988 SMOKE FOUR OB`s MUSIC-ASCAP
+
+
+### "Swallowed In Black" 1990, Techno Death
+
+1. Black
+2. Man Infestation
+3. Last Abide
+4. The Wake
+5. In Your Face
+6. Good Rid'nz
+7. False Incarnation
+8. Images
+9. Powers Of Hate
+10.Arise
+11.Oracle Of Obmission
+
+ Darren Travis - Vocals, Guitar
+ Jon Allen - Drums
+ Rob Moore - Guitar
+ Steve DiGiorgio - Bass
+
+(p)&(c) 1990 ROADRUNNER
+
+### "A Vision Of Misery" 1992, Techno Death
+
+1. Through The Eyes Of Greed
+2. Valley Of Dry Bones
+3. Machines
+4. Slave To Misery
+5. Throwing Away The Day
+6. Facelift
+7. Deceptive Perceptions
+8. Under The Knife
+9. Echoes Of Forever
+
+ Darren Travis - Guitar & Vocals
+ Rob Moore - Guitar
+ Steve DiGiorgio - Bass
+ Jon Allen - Drums
+
+All Songs Written By SADUS
+Produced By Bill Metoyer & SADUS
+Recorded, Engineered & Mixed By Bill Metoyer
+In Jan.-Feb. '92
+
+(p)&(c) 1992 ROADRUNNER Records
+
+
+### "Elements Of Anger" 1999, Techno Death
+
+1 Aggresion (Sadus) 
+2 Crutch (Sadus) 
+3 Words of War (Sadus) 
+4 Safety in Numbers (Sadus) 
+5 Mask (Sadus) 
+6 Fuel (Sadus) 
+7 Power of One (Sadus) 
+8 Stronger Than Life (Sadus) 
+9 Unreality (Sadus) 
+10 In the End (Sadus) 
+
+
+### "Out For Blood" 2006, Techno Death
+
+
+
 
 ## Отношения с другими группами
 

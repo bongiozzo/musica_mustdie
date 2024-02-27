@@ -1,7 +1,13 @@
 # Posthumous Blasphemer
 
-Дискография
-"Putrespermfaction vs. Fertiholyzation" 2004, Death Metal
+techno brutal death from Minsk
+
+## Дискография
+
+### "Putrespermfaction vs. Fertiholyzation" 2004, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

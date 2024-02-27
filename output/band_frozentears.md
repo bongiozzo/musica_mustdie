@@ -1,7 +1,22 @@
 # Frozen Tears
 
-Дискография
-"Metal Hurricane" 2004, Heavy Metal
+
+
+## Дискография
+
+### "Metal Hurricane" 2004, Heavy Metal
+
+Inner Vision
+Forgotten Words 
+Your Life Slows Down
+The Sound Of Infinity 
+The Right Side Of The World 
+Fear Of Tomorrow 
+Western Sun 
+The Evil 
+Rebel Souls 
+Some Heads Are Gonna Roll
+
 
 ## Отношения с другими группами
 

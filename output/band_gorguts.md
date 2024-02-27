@@ -1,10 +1,112 @@
 # Gorguts
 
-Дискография
-"Considered Dead" 1991, Techno Death
-"The Erosion Of Sanity" 1993, Techno Death
-"Obscura" 1998, Techno Death
-"From Wisdom To Hate" 2001, Techno Death
+Classic Death Metal
+
+## Дискография
+
+### "Considered Dead" 1991, Techno Death
+
+1. ...And Then Comes Lividity +
+2. Stiff And Cold
+3. Disincarnated
+4. Considered Dead
+5. Rotten Atomy *
+6. Bodily Corrupted *
+7. Waste Of Mortality
+8. Drifting Remains
+9. Hematological Allergy *
+10.Inoculated Life **
+
+ Luc Lemay - Vocals & Guitar
+ Sylvain Marcoux - Guitar
+ Eric Giguere - Bass
+ Stephane Provencher - Drums
+
+Guest Solo On ** By James Murphy.
+On * Back Vocals By Chris Barnes (CANNIBAL CORPSE).
+All Music Composed By GORGUTS,Except + By Luc Lemay.
+All Lyrics Written By Luc Lemay.
+Produced By Scott Burns & GORGUTS.
+Engineered & Mixed By Scott Burns.
+Recorded & Mixed At Morrisound Studios,Tampa,Florida.
+Mastered By Michael Sarsfield At Frankford / Wayne,N.Y.
+
+(p) 1991 THE ALL BLACKS B.V./ ROADRUNNER Productions B.V.
+(c) 1991 THE ALL BLACKS B.V.
+
+
+### "The Erosion Of Sanity" 1993, Techno Death
+
+1. With Their Flesh, He'll Create
+2. Condemned To Obscurity **
+3. The Erosion Of Sanity
+4. Orphans Of Sickness
+5. Hideous Infirmity
+6. A Path Beyond Premonition
+7. Odors Of Existence
+8. Dormant Misery *
+
+ Luc Lemay - Vocals & Guitar
+ Sylvain Marcoux - Guitar
+ Eric Giguere - Bass
+ Stephane Provencher - Drums
+
+Acoustic Guitar In * Written By Sylvain Marcoux
+And Luc Lemay.
+Piano In ** By Luc Lemay.
+All Lyrics Written By Luc Lemay.
+All Music By GORGUTS.
+Produced By GORGUTS & Steve Harris.
+Recorded & Engineered By Steve Harris At Studio Victor,
+Montreal, Quebec.
+Mixed By Colin Richardson & Steve Harris At The Windings,
+North Wales, England.
+
+(p)&(c) 1993 ROADRUNNER PRODUCTIONS B.V.
+
+
+### "Obscura" 1998, Techno Death
+
+1. Obscura (4:04)
+2. Earthly Love (4:04)
+3. The Carnal State (3:07)
+4. Nostalgia (6:10)
+5. The Art of Sombre Ecstasy (4:20)
+6. Clouded (9:32)
+7. Subtle Body (3:23)
+8. Rapturous Grief (5:27) 
+9. La Vie est Prйlude... (La Mort Orgasme) (3:28)
+10. Illuminatus (6:15)
+11. Faceless Ones (3:50)
+12. Sweet Silence (6:45) 
+
+
+
+Luc Lemay : Guitars, vocals
+Steeve Hurdle : Guitars, vocals
+Steve Cloutier : Bass
+Patrick Robert : Drums 
+
+### "From Wisdom To Hate" 2001, Techno Death
+
+1. Inverted 04:22  
+2. Behave Through Mythos 05:10
+3. From Wisdom To Hate 05:06  
+4. The Quest for Equilibrium 06:47  
+5. Unearthing the Past 05:02  
+6. Elusive Treasures 06:19  
+7. Das Martyrium Des... 04:33 
+8. Testimonial Ruin 03:20 
+
+
+Line Up:
+Steve Cloutier - bass
+Luc Lemay - guitar, vocals
+Steve Macdonald - drums
+Daniel Mongrain - guitar
+
+Intro for "The Quest For Equilibrium" by Luc Lemay. 
+
 
 ## Отношения с другими группами
 

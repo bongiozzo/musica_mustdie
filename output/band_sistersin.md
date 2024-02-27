@@ -1,12 +1,51 @@
 # Sister Sin
 
-Дискография
-"Dance Of The Wicked" 2003, Metal
-"Smash The Silence (EP)" 2007, Metal
-"Switchblade Serenades" 2008, Metal
-"True Sound Of The Underground" 2010, Metal
-"Now And Forever" 2012, Metal
-"Black Lotus" 2014, Metal
+
+
+## Дискография
+
+### "Dance Of The Wicked" 2003, Metal
+
+
+
+### "Smash The Silence (EP)" 2007, Metal
+
+
+
+### "Switchblade Serenades" 2008, Metal
+
+
+
+### "True Sound Of The Underground" 2010, Metal
+
+
+
+### "Now And Forever" 2012, Metal
+
+01. MMXII
+02. End of the Line
+03. Fight Song
+04. In It for Life
+05. Hearts of Cold
+06. The Chosen Few?
+07. Hang 'Em High
+08. I'm Not You
+09. Running Low
+10. Shades of Black
+11. Morning After (Randy Piper's Animal cover)
+
+### "Black Lotus" 2014, Metal
+
+1. Food For Worms
+2. Chaos Royale
+3. Au Revoir
+4. Desert Queen
+5. Count Me Out
+6. Stones Thrown
+7. The Jinx
+8. Ruled By None
+9. Sailed North
+
 
 ## Отношения с другими группами
 

@@ -1,13 +1,57 @@
 # High On Fire
 
-Дискография
-"The Art Of Self Defense" 2000, Stoner
-"Surrounded By Thieves" 2002, Stoner
-"Blessed Black Wings" 2005, Stoner
-"Death Is This Communion" 2007, Stoner
-"Snakes For The Divine" 2010, Stoner
-"De Vermis Mysteriis" 2012, Stoner
-"Luminiferous" 2015, Stoner
+
+
+## Дискография
+
+### "The Art Of Self Defense" 2000, Stoner
+
+1. Baghdad 05:15 
+2. 10,000 Years 07:53 
+3. Blood From Zion 04:55
+4. Last 06:36 
+5. Fireface 08:35
+6. Master of Fists 10:06
+
+### "Surrounded By Thieves" 2002, Stoner
+
+1. Eyes and Teeth 05:02 
+2. Hung, Drawn and Quartered 04:26
+3. Speedwolf 04:36 
+4. The Yeti 07:07
+5. Nemisis 03:04
+6. Thraft of Caanan 08:05 
+7. Surrounded By Thieves 04:19
+8. Razor Hoof 03:25
+
+### "Blessed Black Wings" 2005, Stoner
+
+1. Devilution 04:46  
+2. The Face Of Oblivion 06:40  
+3. Brother In The Wind 05:36  
+4. Cometh Down Hessian 05:15  
+5. Blessed Black Wings 07:43  
+6. Anointing Of Seer 05:39  
+7. To Cross The Bridge 07:20  
+8. Silver Back 03:14  
+9. Sons Of Thunder 07:10
+
+### "Death Is This Communion" 2007, Stoner
+
+
+
+### "Snakes For The Divine" 2010, Stoner
+
+
+
+### "De Vermis Mysteriis" 2012, Stoner
+
+
+
+### "Luminiferous" 2015, Stoner
+
+
+
 
 ## Отношения с другими группами
 

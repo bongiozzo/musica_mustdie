@@ -1,8 +1,57 @@
 # KYPCK
 
-Дискография
-"Черно" 2008, Doom
-"Ниже" 2011, Doom
+
+
+## Дискография
+
+### "Черно" 2008, Doom
+
+1. Gidrolokator 
+2. Rozhdestvo v Murmanske 
+3. Predatel 
+4. 1917 
+5. Chernaya Dyra 
+6. Stalingrad 
+7. Ne Prosti 
+8. Ocherednye 
+9. Odin Den iz Zhizni Yegora Kuznetsova 
+10. Demon 
+
+### "Ниже" 2011, Doom
+
+1. Гифарус 01:49  
+2. После 07:36 
+3. Аллея Сталина 04:03 
+4. Чужой 09:16 
+5. Фелица 05:34  
+6. Разрыв 07:35 
+7. Бурлаки на Волге 05:52 
+8. Бардак 04:56  
+9. Товарищам 06:29 
+10. Вальс Смерти 04:06 
+
+
+
+The album is titled ниже, pronounced /nizhe/ and translating to 'Lower'
+
+Translation of songs:
+01. Gifarus
+02. After
+03. The Alley of Stalin
+04. Stranger
+05. Felitsa
+06. Rupture
+07. Burlaks On The Volga
+08. Brothel
+09. Comrades
+10. Death Waltz
+
+Line up:
+E. Seppanen – Vocals
+S. S. Lopakka – Guitars
+J. T. Yl&#228;-Rautio – Bass
+K. H. M. Hiilesmaa – Drums 
+
 
 ## Отношения с другими группами
 

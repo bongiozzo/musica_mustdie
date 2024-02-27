@@ -1,10 +1,78 @@
 # Cypress Hill
 
-Дискография
-"Pigs" 1991, Rap Metal
-"Black Sunday" 1993, Rap Metal
-"III Temples Of Boom" 1995, Rap Metal
-"Unreleased & Revamped" 1996, Rap Metal
+west coast rap, latin, alternative & hardcore rap from L.A.
+
+## Дискография
+
+### "Pigs" 1991, Rap Metal
+
+1.  Pigs
+2.  How I Could Just Hill A Man
+3.  Hand On The Pump
+4.  Hole In The Head
+5.  Ultraviolet Dreams
+6.  Light Another
+7.  The Phuncky Feel One
+8.  Break It Up
+9.  Real Estate
+10.Stoned Is The Way Of The Walk
+11.Psycobetabuckdown
+12.Something For The Blunted
+13.Latin Lingo
+14.The Funky Cypress Hill Shit
+15.Tres Equis
+16.Born To Get Busy
+
+(P)c 1991
+
+### "Black Sunday" 1993, Rap Metal
+
+1.  I Wanna Get High
+2.  I Ain't Goin' Out Like That
+3.  Insane In The Brain
+4.  When The Sh - Goes Down
+5.  Lick A Shot
+6.  Cock The Hammer
+7.  Lock Down
+8.  S Lil' Putos
+9.  Legalize It
+10.Hits Form The Bong
+11.What Go Around Come Around, Kit
+12.A To The K
+13.Hand On The Glock
+14.Break Ein Off
+
+(P)c 1993
+
+### "III Temples Of Boom" 1995, Rap Metal
+
+1.  Spark Another Owl
+2.  Throw Your Set In The Air
+3.  Stoned Raiders
+4.  Illusions
+5.  Killa Hill
+6.  Boom Biddy Bye Bye
+7.  No Rest For The Wicked
+8.  Make A Move
+9.  Funk Freakers
+10.Locates
+
+(P)c 1995
+
+### "Unreleased & Revamped" 1996, Rap Metal
+
+1. Boom Biddy Bye Bye
+2. Throw Your Hands In The Air
+3. Intellectual Davs
+4. Hand On The Pump
+5. Watta You Know
+6. Hits From The Bong
+7. Illusions
+8. Latin Lingo
+9. When The Ship Goes Down
+
+(P)c 1996
+
 
 ## Отношения с другими группами
 

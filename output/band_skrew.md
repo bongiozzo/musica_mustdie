@@ -1,8 +1,63 @@
 # Skrew
 
-Дискография
-"Dusted" 1994, Industrial
-"Shadow Of Doubt" 1996, Industrial
+
+
+## Дискография
+
+### "Dusted" 1994, Industrial
+
+1. In Tongues
+2. Seeded
+3. Picasso Trigger
+4. Albatross
+5. Jesus Skrew Superstar
+6. Skrew Saves
+7. Season For Whither
+8. Sour
+9. Mouthfull Of Dust
+10. Godsdog
+
+Programming: H.Benno, A. Grossman, Critter, B. Leisgang, J. Vollentine
+ Adam Grossman - Lead Vocals, Guitars
+ Opossum - Guitars
+ Brandon Workman - Bass
+ Clay Campbell - Guitars
+ Mark Dufour - Drums
+ Jim Vollentine - Keyboards
+
+Produced & Engineered By Critter & H. Benno
+
+(p)&(c) 1994 DEVOTION / METAL BLADE
+
+
+### "Shadow Of Doubt" 1996, Industrial
+
+l. She Said (5.04)
+2. Black Eye (5.09)
+3. Knotted Twigg (5. l 8)
+4. Head (5.48)
+5. Swallow (5.08)
+6. Sam I Am (4.26)
+7. Going Down (5.57)
+8. Generator (4.45)
+[9]. Dark Ride (6.00)
+10. Crawl (8.05)
+
+[9] -  Ha cтoрoнe B
+
+All  songs written by SKREW
+Produced and recorded by Neil Kernon
+Mixed by Bill Metoyer
+
+Adam Grossman - Lead Vocals, Guitars
+Opossum - Guitar
+Brandon Workman - Bass
+Clay Campbell - Guitar
+Mark Dufour - Drums
+Jim Vollentine - Keyboards
+
+(p)(c) 1996 METAL BLADE Records
+
 
 ## Отношения с другими группами
 

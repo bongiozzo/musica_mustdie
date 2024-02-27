@@ -1,18 +1,160 @@
 # Within Temptation
 
-Дискография
-"Enter" 1997, Death Doom
-"The Dance" 1998, Death Doom
-"Mother Earth" 2000, Gothic
-"The Silent Force" 2004, Gothic
-"What Have You Done (single)" 2007, Gothic
-"The Heart of Everything" 2007, Gothic
-"The Unforgiving" 2011, Gothic
-"Grenade [single]" 2012, Gothic
-"Paradise [single]" 2012, Gothic
-"Somebody That I Used To Know [single]" 2012, Gothic
-"Paradise (What About Us?)" 2013, Gothic
-"Hydra" 2014, Gothic
+doom-death from Holland with female voice
+
+## Дискография
+
+### "Enter" 1997, Death Doom
+
+Restless
+Enter
+Pearls Of Light
+Deep Within
+Grace
+The Gatekeeper
+Blooded
+Candles
+
+### "The Dance" 1998, Death Doom
+
+The Dance
+Another Day
+The Other half (of me)
+Remix Restless
+Remix Candles & Pearls of Light
+
+### "Mother Earth" 2000, Gothic
+
+Mother Earth          5:29
+Ice Queen             5:20
+Our Farewell          5:18
+Caged                 5:46
+The Promise           8:00
+Never-Ending Story    4:02
+Deceiver Of Fools     7:34
+Intro                 1:05
+Daek Wings            4:14
+In Perfect Harmony    6:58
+
+
+### "The Silent Force" 2004, Gothic
+
+1. Intro 
+2. See Who I Am 
+3. Jillian (I'd Give My Heart) 
+4. Stand My Ground 
+5. Pale 
+6. Forsaken 
+7. Angels 
+8. Memories 
+9. Aquarius 
+10. It's The Fear 
+11. Somewhere 
+12. Video Stand My Ground
+
+### "What Have You Done (single)" 2007, Gothic
+
+1. What Have You Done (single version)
+2. What Have You Done (rock mix)
+
+
+"What Have You Done" features a duet with Keith Caputo of LIFE OF AGONY
+
+### "The Heart of Everything" 2007, Gothic
+
+1. The Howling 05:32  
+2. What Have You Done   
+3. Frozen 03:29  
+4. The Heart of Everything 05:32  
+5. All I Need 04:48  
+6. Our Solemn Hour 04:14  
+7. Hand of Sorrow   
+8. The Cross   
+9. Final Destination   
+10. Forgiven   
+11. The Truth Beneath the Rose
+
+### "The Unforgiving" 2011, Gothic
+
+1. Why Not Me   
+2. Shot In The Dark   
+3. In The Middle Of The Night   
+4. Faster   
+5. Fire And Ice   
+6. Iron   
+7. Where Is The Edge?  
+8. Sinйad   
+9. Lost   
+10. Murder   
+11. A Demon's Fate   
+12. Stairway To The Skies 
+
+
+
+The tracklist forms a sentence:
+"Sinйad, why not murder me faster in the middle of the night on the stairway
+to the skies with iron, fire and ice? Don’t get lost it’s your demon’s fate and
+you know where the edge is, so take that shot in the dark.
+
+Special edition comes with a bonus DVD:
+1. Faster short film and music performance video 
+2. Sinйad short film and music performance video 
+3. Shot in the Dark short film and music performance video
+4. Where Is the Edge video
+5. Utopia (feat. Chris Jones) video
+6. The Unforgiving the making of the videos, parts 1,2,& 3 
+7. The Unforgiving: The Prequel comic photo gallery
+
+### "Grenade [single]" 2012, Gothic
+
+1. Grenade (Bruno Mars Cover)  03:37
+
+### "Paradise [single]" 2012, Gothic
+
+1. Paradise (Coldplay cover) 03:24
+
+### "Somebody That I Used To Know [single]" 2012, Gothic
+
+01. Somebody That I Used To Know (Gotye Cover)
+
+### "Paradise (What About Us?)" 2013, Gothic
+
+1. Paradise (What About Us?) [feat. Tarja Turunen] 05:21     
+2. Let Us Burn (demo version)  05:38      
+3. Silver Moonlight (demo version)  05:14      
+4. Dog Days (demo version)  04:56  
+
+
+EP will include three demos of songs that will appear on the band's sixth studio album. 
+
+### "Hydra" 2014, Gothic
+
+1. Let Us Burn  05:13    
+2. Dangerous  04:53   
+3. And We Run  03:50   
+4. Paradise (What About Us?)  05:22   
+5. Edge of the World  04:55    
+6. Silver Moonlight  05:17    
+7. Covered by Roses  04:48    
+8. Dog Days  04:47    
+9. Tell Me Why  06:12    
+10. Whole World Is Watching  04:03 
+
+
+The digital premium album, complete with digi-booklet, includes 18 audio tracks and a music video.
+
+ 11. Radioactive (originally performed by Imagine Dragons)
+ 12. Summertime Sadness (originally performed by Lana del Rey)
+ 13. Let Her Go (originally performed by Passenger)
+ 14. Dirty Dancer (originally performed by Enrique Iglesias)
+ 15. And We Run- evolution track
+ 16. Silver Moonlight – evolution track
+ 17. Covered by Roses – evolution track
+ 18. Tell Me Why – evolution track
+ 19. Paradise (What About Us?) feat. Tarja – Music Video (exclusive to iTunes premium version)
+
+
+
 
 ## Отношения с другими группами
 

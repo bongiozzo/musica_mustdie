@@ -1,7 +1,25 @@
 # Sid Vicious
 
-Дискография
-"Sid Vicious" 1979, Punk
+Ex- Sex Pistols
+
+## Дискография
+
+### "Sid Vicious" 1979, Punk
+
+1. Born To Lose
+2. I Wanna Be Your Dog
+3. Take A Chance On Me
+4. Stepping Stone
+5. My Way
+6. Belsen
+7. Something Else
+8. Chatterbox
+9. Search And Destroy
+10.Chinese Rocks
+11.I Killed The Cat
+
+(p)&(c) 1979 VIRGIN Records
+
 
 ## Отношения с другими группами
 

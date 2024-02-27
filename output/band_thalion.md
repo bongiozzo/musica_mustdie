@@ -1,7 +1,66 @@
 # Thalion
 
-Дискография
-"Another Sun" 2004, Power Metal
+
+
+## Дискография
+
+### "Another Sun" 2004, Power Metal
+
+1. Atmospherer
+2. Follow the Way
+3. Show Me the Answers
+4. Wait for Tomorrow
+5. Another Sun
+6. Solitary World
+7. Life is Poetry
+8. The Journey
+9. Long Farewell
+10. The Encounter
+
+
+Alexandra Liambos - vocals
+Rodrigo Vinhas - guitar
+Fabio Russo - guitar
+David Shalom - bass
+Giancarlo Scairato - drums
+
+
+Arranged and performed by Thalion
+Produced by Philip Colodetti, co-produced by
+Rodrigo Vinhas
+Recorded, engineered by Philip Colodetti, Ricardo
+Nagata and Glenn Zolotar
+Recorded at Creative Sound Studios
+december/2003-march/2004
+Mixed and mastered by hilip Colodetti at Creative
+Sound Studios march/2004-april/2004
+All songs written by Rodrigo Vinhas except "The
+Journey" written by Fabio Russo
+All lyrics written by Rodrigo Vinhas except "The
+Journey" written by Rodrigo Vinhas and Alexandra
+Liambos
+All vocal lines written by Rodrigo Vinhas except
+"The Journey" written by Fabio Russo
+Choirs and backing vocal arrangements by Rodrigo
+Vinhas Alexandra Liambos and Fabio Laguna
+All pianos and keyboards composed by Rodrigo
+Vinhas
+All pianos and keyboards assisted and performed by
+Fabio Laguna
+Keyboards and orchestral arrangements "The
+Encounter" by Miro
+"Atmospheres" arranged and performed by Fabio
+Ribeiro and Miro
+Cover concept by Rodrigo Vinhas and Isabel de
+Amorim
+Cover artwork by Isabel de Amorim
+Sleeve design by Isis Sousa and Rodrigo Cruz
+Logo concept by Thalion / logo Design by Rodrigo
+Cruz
+Photos by Tatyana Alives
+Lead vocals on "The Encounter" by Michael Kiske
+Executive producer: Moises Della Monica
+
 
 ## Отношения с другими группами
 

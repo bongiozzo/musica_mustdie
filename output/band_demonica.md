@@ -1,7 +1,22 @@
 # Demonica
 
-Дискография
-"Demonstrous" 2010, Thrash
+
+
+## Дискография
+
+### "Demonstrous" 2010, Thrash
+
+01. Demon Class
+02. Ghost Hunt
+03. My Tongue
+04. Luscious Damned
+05. Below Zero
+06. Alien Six
+07. Palace Of Glass
+08. Fast And Furious
+09. Summoned
+10. Astronomica
+
 
 ## Отношения с другими группами
 

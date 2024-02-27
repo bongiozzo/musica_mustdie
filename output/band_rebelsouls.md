@@ -1,7 +1,13 @@
 # Rebel Souls
 
-Дискография
-"The Forces of Darkness" 2016, Death Metal
+
+
+## Дискография
+
+### "The Forces of Darkness" 2016, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

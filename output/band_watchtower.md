@@ -1,9 +1,29 @@
 # Watchtower
 
-Дискография
-"Energetic Disassembly" 1985, Progressive
-"Control & Resistance" 1989, Progressive
-"Demonstrations In Chaos (Compilation)" 2002, Progressive
+(Progressive Metal Pioneers)
+
+## Дискография
+
+### "Energetic Disassembly" 1985, Progressive
+
+
+
+### "Control & Resistance" 1989, Progressive
+
+1 Instruments of Random Murder 4:06 (Watchtower) 
+2 Eldritch 3:16 (Watchtower) 
+3 Mayday in Kiev 5:47 (Watchtower) 
+4 Fall of Reason 8:01 (Watchtower) 
+5 Control and Resistance 6:57 (Watchtower) 
+6 Hidden Instincts 3:51 (Watchtower) 
+7 Life Cycles 6:47 (Watchtower) 
+8 Dangerous Toy 4:22 (Watchtower) 
+
+
+### "Demonstrations In Chaos (Compilation)" 2002, Progressive
+
+
+
 
 ## Отношения с другими группами
 

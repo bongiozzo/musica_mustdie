@@ -1,9 +1,74 @@
 # Massacre
 
-Дискография
-"From Beyond" 1991, Death Metal
-"Inhuman Condition" 1992, Death Metal
-"Promise" 1996, Death Metal
+ex-Death
+
+## Дискография
+
+### "From Beyond" 1991, Death Metal
+
+1. Dawn Of Eternity
+2. Cryptic Realms
+3. Biohazard
+4. Chamber Of Ages
+5. From Beyond
+6. Defeat Remains
+7. Succubus
+8. Symbolic Immortality
+9. Corpsegrinder
+
+ Kam Lee - Vocals
+ Rick Rozz - Guitar
+ Terry Butler - Bass
+ Bill Andrews - Drums
+
+(p)&(c) 1991 EARACHE Records
+
+### "Inhuman Condition" 1992, Death Metal
+
+1. Inhuman Condition
+2. Plains Of Insanity
+3. Warhead *
+4. Provoked Accurser
+
+ Kam Lee - Vocals
+ Rick Rozz - Guitar
+ Steve Swansom - Guitar
+ Terry Butler - Bass
+ Bill Andrews - Drums
+
+Mayhemicness Of Torment Vocals & BufFalo
+Bass On * - Cronos
+Recorded At Morrisound Recording,December 1991
+Engineered By Massacre
+Artwork By Edward J. Repka
+
+(p)&(c) 1992 EARACHE Mosh060
+
+
+### "Promise" 1996, Death Metal
+
+1.  Nothing
+2.  Forever Torn
+3.  Black Soil Nest
+4.  Promise
+5.  Bitter End
+6.  Unnameable
+7.  Where Dwells Sadness
+8.  Suffering
+9.  Inner Demon
+
+All Songs Written By MASSACRE.
+Produced By Rick, Sy.Pete & Andrew.
+Engineered By Dana Cornock & Tom Gallagher.
+Recorded At Wolf's Head Studios.
+
+Rick Rozz - Guitars
+Kam Lee - Vocals
+Pete Sison - Bass
+Syrus Peters - Drums
+
+(P)c 1996 EARACHE Records
+
 
 ## Отношения с другими группами
 

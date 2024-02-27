@@ -1,6 +1,9 @@
 # Cardiovascular Sub-Hypotermia
 
-Дискография
+USA techno brutal death/grind
+
+## Дискография
+
 
 ## Отношения с другими группами
 

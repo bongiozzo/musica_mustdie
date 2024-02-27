@@ -1,7 +1,23 @@
 # Eternal Flight
 
-Дискография
-"Positive Rage" 2004, Progressive
+
+
+## Дискография
+
+### "Positive Rage" 2004, Progressive
+
+The Masks Will Fall
+Guardians
+All We Are
+New World
+Real
+Secret Place
+Beyond (The Golden Gates)
+Prelude (-Ath Is Not The End)
+Back Into The Light (Renaissance)
+Morphoenix
+The Moon King
+
 
 ## Отношения с другими группами
 

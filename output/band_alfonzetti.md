@@ -1,8 +1,36 @@
 # Alfonzetti
 
-Дискография
-"Ready" 2000, Hard Rock
-"Machine" 2002, Death Doom
+
+
+## Дискография
+
+### "Ready" 2000, Hard Rock
+
+1. Blowing Up Detroit
+2. Better Than Goodbye
+3. I'm Ready
+4. Angel
+5. Blue Hero
+6. Out In The Cold
+7. No Way Out
+8. Am I Fooling Myself
+9. Let Me In
+10. Don't Let Our Love Go Down
+11. In The Groove
+12. Things That Make You Cry
+
+### "Machine" 2002, Death Doom
+
+1. My Machine
+2. It Speaks
+3. Barbie Doll
+4. Happy Guy
+5. Boss Of Me
+6. The Bitter End
+7. Welcome To My Mind
+8. Live In Sin
+9. Give It All Away
+
 
 ## Отношения с другими группами
 

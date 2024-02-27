@@ -1,11 +1,82 @@
 # End Of Green
 
-Дискография
-"Infinity" 1996, Gothic
-"Believe, My Friend..." 1998, Gothic
-"Songs For A Dying World" 2002, Gothic
-"Last Night On Earth" 2003, Gothic
-"Dead End Dreaming" 2005, Gothic
+
+
+## Дискография
+
+### "Infinity" 1996, Gothic
+
+1. Left My Way
+2. Away
+3. Seasons Of Black
+4. Infinity
+5. Tomorrow Not Today
+6. Sleep
+7. You
+8. Nice Day To Die
+9. No More Pleasure
+
+All songs written by END OF GREEN
+Recorded at Nightmare Studios by Ecki
+Erlenbusch
+
+Mixed at Music Lab, Berlin by Harris
+Johns
+
+Rainer H. - Bass
+Oliver M. - Guitar
+Michael H. - Vocals, Guitar
+Matthias Sifferniann - Drums
+
+(p)(c) 1996 NUCLEAR BLAST Records
+
+### "Believe, My Friend..." 1998, Gothic
+
+
+
+### "Songs For A Dying World" 2002, Gothic
+
+1. Motor
+2. Only one
+3. Death in Veins
+4. I hate
+5. Astrobastard
+6. Everywhere
+7. Godsick
+8. Mirror
+9.  Black No. 1 (type o negative Cover)
+10. Myra 
+
+### "Last Night On Earth" 2003, Gothic
+
+01. Evergreen
+02. Tormented Sundown
+03. Demons
+04. Dying In Moments
+05. Queen Of My Dreams
+06. Tragedy Insane
+07. Highway 69
+08. Melancholic
+09. Emptiness/Lost Control
+
+Mike Huburn - Guitar and Vocals
+Michael Setzer - Guitar
+Matthias Siffermann - Drums
+Oliver Merkle - Guitar
+Rainer Hampel - Bass
+
+All songs written by End Of Green.
+Additional piano of darkness by J.-Cunthunter of
+The Apokalypse-Laser.
+Recorded and mixed by Marc Martin and Mitch
+Meister at Sundown
+(@ dersoundmann.de) Studios.
+Mastered at Church Mastering by Uli Friedl.
+
+### "Dead End Dreaming" 2005, Gothic
+
+
+
 
 ## Отношения с другими группами
 

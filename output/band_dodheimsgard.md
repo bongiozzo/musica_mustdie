@@ -1,8 +1,44 @@
 # Dodheimsgard
 
-Дискография
-"Monumental Possession" 1995, Black Metal
-"Satanic Art" 1999, Black Metal
+
+
+## Дискография
+
+### "Monumental Possession" 1995, Black Metal
+
+1. Intro.
+2. Utopia Running Scarlet.
+3. The Crystal Specter.
+4. Bluebell Heart.
+5. Monumental Possession.
+6. Fluency.
+7. Angel Death.
+8. Lost In Faces.
+9. The Ultimate Reflection.
+
+(c)&(p) MALICIOUS RECORDS (MR 010)
+
+Dodheimsgard is:
+ALDRAHN
+APOLLYON
+ALVER
+VICOTNIK
+
+Recorded at S.R.F. studios 15-17 Des. 1995.
+Engineered by Bard Vorheim & Rai Hatvorsen.
+Produced by Dodheimsgard.
+Masterd in Strype Audio Harm.
+Cover design by Dodheimsgard
+Music by Dodheimsgard.
+All lyrics written by Aldrahn.
+2, 6, 8 performed by Vicotnik; 
+3, 5, 7 performed by Aldrahn;
+4 performed by Apollyon
+
+### "Satanic Art" 1999, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

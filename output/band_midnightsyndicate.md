@@ -1,12 +1,50 @@
 # Midnight Syndicate
 
-Дискография
-"Midnight Syndicate" 1997, Ambient
-"Born Of The Night" 1998, Ambient
-"Realm Of Shadows" 2000, Ambient
-"Gates Of Delirium" 2001, Ambient
-"Vampyre - Symphonies From The Crypt" 2002, Ambient
-"Dungeons & Dragons: Official Roleplaying Soundtrack" 2003, Ambient
+
+
+## Дискография
+
+### "Midnight Syndicate" 1997, Ambient
+
+
+
+### "Born Of The Night" 1998, Ambient
+
+
+
+### "Realm Of Shadows" 2000, Ambient
+
+
+
+### "Gates Of Delirium" 2001, Ambient
+
+
+
+### "Vampyre - Symphonies From The Crypt" 2002, Ambient
+
+1. Awakening
+2. Graveyard
+3. Unhallowed Ground
+4. Crypt of the Forsaken
+5. Winged Fury
+6. Blackest Rose
+7. Ravages of Time
+8. Catacombs
+9. Unseen Eyes
+10. Undead Hunters
+11. Ancient Tomes
+12. Dusk
+13. Spectral Masquerade
+14. Vampyre
+
+Written and produced by Edward Douglas and Gavin Goszka
+Cover artwork by Keith Parkinson
+
+
+### "Dungeons & Dragons: Official Roleplaying Soundtrack" 2003, Ambient
+
+
+
 
 ## Отношения с другими группами
 

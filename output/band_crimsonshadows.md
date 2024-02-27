@@ -1,10 +1,51 @@
 # Crimson Shadows
 
-Дискография
-"Death, Power, Glory" 2007, Melodic Death Metal
-"Glory on the Battlefield" 2012, Melodic Death Metal
-"Sails of Destiny" 2013, Melodic Death Metal
-"Kings Among Men" 2014, Melodic Death Metal
+Melodic Power/Death Metal from Toronto
+
+## Дискография
+
+### "Death, Power, Glory" 2007, Melodic Death Metal
+
+1. Betrayed by Thy King  08:24  
+2. Dark Winters Night  05:47    
+3. Death, Power, Glory  06:11    
+4. Servant of the Shadowed Moon  07:32    
+
+
+### "Glory on the Battlefield" 2012, Melodic Death Metal
+
+1. Glory on the Battlefield  02:28  
+2. Battle Hard  06:43  
+3. Beyond the Mountain Wasteland  05:50  
+4. For the Glory of the Throne  07:03  
+5. Kingdom of Ale  06:14   
+6. Quest for the Sword  06:22  
+7. Lost in a Dark Forest  06:22   
+8. Journey's End  05:02 
+
+
+### "Sails of Destiny" 2013, Melodic Death Metal
+
+1. Upon the Waves (Intro)  01:29   
+2. Freedom and Salvation  04:58 
+3. Maiden's Call  05:57    
+4. Moonlit Skies and Bloody Tides  09:06 
+
+
+### "Kings Among Men" 2014, Melodic Death Metal
+
+1. March of Victory  01:10    
+2. Rise to Power  04:16   
+3. Heroes Among Us  04:33   
+4. A Gathering of Kings  05:28   
+5. Maidens Call  06:23   
+6. Braving the Storm  06:54   
+7. On the Eve of Battle  00:57 
+8. Freedom and Salvation  04:42   
+9. Dawn of Vengeance  05:20   
+10. Moonlit Skies and Bloody Tides  10:14 
+
+
 
 ## Отношения с другими группами
 

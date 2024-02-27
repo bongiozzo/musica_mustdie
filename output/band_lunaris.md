@@ -1,8 +1,44 @@
 # Lunaris
 
-Дискография
-"...The Infinite" 2002, Black Metal
-"Cyclic" 2004, Progressive
+Progressive black metal
+
+## Дискография
+
+### "...The Infinite" 2002, Black Metal
+
+1. In the Eyes of the Heretic
+2. Arise
+3. ...of the One
+4. Si Vis Pacem, Para Bellum
+5. Mother of Storms
+6. Growth Denied
+7. Primal Construction
+8. In Contempt of Humanity
+9. A Final Journey
+10. Soulcrush
+
+### "Cyclic" 2004, Progressive
+
+1. Mendacities of a Corporate Messiah
+2. I.A.D.
+3. Lessons in Futility
+4. Cyclic
+5. Slaves of Opinion
+6. When it Ends
+7. Casualties of Peace
+8. Existence Unveiled
+9. Altruismens Gravol
+10. In Nothing
+11. Mot Natt
+
+
+
+M - Guitars, Bass & Vocals
+Balfori - Lead Vocals
+Ray - Keyboards
+Janos - Drums
+Maztema - Fretless Bass & Vocals
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,17 @@
 # Coldworld
 
-Дискография
-"TheStarsAreDeadNow" 2006, Black Metal
+
+
+## Дискография
+
+### "TheStarsAreDeadNow" 2006, Black Metal
+
+1. This Empty Life 07:22  
+2. Hate 04:00  
+3. Cancer 03:38  
+4. Suicide 05:15  
+5. The Old Ghost In The Well 07:48
+
 
 ## Отношения с другими группами
 

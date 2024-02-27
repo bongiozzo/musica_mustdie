@@ -1,9 +1,21 @@
 # Dark Castle
 
-Дискография
-"Flight Of Pegasus" 2007, Metal
-"Spirited Migration" 2009, Metal
-"Surrender To All Life Beyond Form" 2011, Metal
+
+
+## Дискография
+
+### "Flight Of Pegasus" 2007, Metal
+
+
+
+### "Spirited Migration" 2009, Metal
+
+
+
+### "Surrender To All Life Beyond Form" 2011, Metal
+
+
+
 
 ## Отношения с другими группами
 

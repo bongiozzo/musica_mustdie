@@ -1,7 +1,47 @@
 # Floodland
 
-Дискография
-"Decay" 2002, Gothic
+gothic-doom metal
+
+## Дискография
+
+### "Decay" 2002, Gothic
+
+01. enthymeme
+02. dorian
+03. morning won?t come tonight
+04. rainchild
+05. dark town
+06. pile of delusion
+07. coincidence
+08. decay
+09. rejected
+10. first flower after the flood
+
+Christian "lv" Meyer (vocals, programming)
+Harald "l.f.o." Schmid (bass, keyboards,
+soundscapes)
+Markus "808" Schmid (drums, loops)
+Bernhard "burn" Wieser (guitars, patterns)
+
+all songs arranged by floodland except "decay"
+arranged by j.p. mullen.
+recorded, produced and mixed by milos »dodo«
+dolezal at hacienda studios, zirovnice (cz).
+mastered by milos "dodo" dolezal and doc butch for
+d.o. prod., los angeles (usa).
+
+ivan myslikovjan - alto sax on "coincidence".
+ivan myslikovjan appears courtesy of warner music
+(cz).
+hana kosnovska - female voice on "coincidence".
+
+photographs by c.s. hauser, waiter simunek, markus
+schmid and harald schmid.
+artwork by david maninger.
+
+dedicated to all who didn't support us - nothin'
+compares to you ...
+
 
 ## Отношения с другими группами
 

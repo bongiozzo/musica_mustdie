@@ -1,8 +1,37 @@
 # Dawn of Oblivion
 
-Дискография
-"Yorick" 1997, Gothic
-"Mephistos Appealing" 2001, Gothic
+Gothic Rock from Sweden
+
+## Дискография
+
+### "Yorick" 1997, Gothic
+
+November 
+Xenophobia 
+Into the Dungeon 
+Concealed Behind the Chequered Flag 
+Question of Sacrifice 
+Ubiquitous 
+Last Rites 
+The Suffocated Ground 
+Face the New World 
+Faith (Ressurection Mix) 
+Nazgul (Morgul Version)
+
+### "Mephistos Appealing" 2001, Gothic
+
+Suicide 
+The Hellfire Sermon 
+Under Siege 
+Repulsion 
+Brain Drain 
+Time to Leave 
+G.O.D. 
+Haunted 
+Free 
+Nuclear Winter 
+Lullaby
+
 
 ## Отношения с другими группами
 

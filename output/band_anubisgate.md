@@ -1,11 +1,106 @@
 # Anubis Gate
 
-Дискография
-"Purification" 2004, Progressive
-"A Perfect Forever" 2005, Progressive
-"Andromeda Unchained" 2007, Progressive
-"The Detached" 2009, Progressive
-"Anubis Gate" 2011, Progressive
+Melodic Progressive Power Metal from Denmark
+
+## Дискография
+
+### "Purification" 2004, Progressive
+
+1. Hall of Two Truths 01:30  
+2. Downward Spiral 05:37  
+3. Purification 05:45  
+4. Hypernosis 06:42  
+5. In the Comfort of Darkness 06:38  
+6. Before Anubis 03:02  
+7. I, Demon 05:59  
+8. The Shadow 05:23  
+9. Discrowned 08:23  
+10. Kingdom of Duat 02:37
+
+### "A Perfect Forever" 2005, Progressive
+
+1. Sanctified 06:36 
+2. Kingdom Come 03:58  
+3. Future Without Past 06:15 
+4. Curfew 04:59 
+5. Children Of The Pauper King 06:42 
+6. Approaching The Inner Circle 05:37  
+7. The Wanton Blades of Lust 05:32  
+8. Epitome Of Delusion 06:41  
+9. Endless Grief 00:46 
+10. A Perfect Forever 12:31 
+
+
+Torben Askholm - lead & backing vocals
+Henrik Fevre - bass & backing + lead vocals
+Jesper M. Jensen - guitars & bass
+Kim Olesen - guitars & synthesizers
+Morten Sшrensen - drums
+
+All bass on this album played by Jesper M. Jensen
+
+Henrik Fevre sings lead vocals on p, and verses on 4
+Jesper M. Jensen play additional synthesizers on 3 & 4
+Kim Olesen - answering voice on 10
+Martin Harboe - ghost speak on 8
+Jacob Hansen - choir on 10, synth on the choruses of 5
+
+Produced and mixed by Jacob Hansen at Hansen Studios.
+Engineered by Jacob Hansen & Kim Olesen
+Additional recordsings at Sphere Music, Engineered by Kim Olesen.
+
+### "Andromeda Unchained" 2007, Progressive
+
+1. Freak Storm At Post Zeta...One Child Missing...   
+2. Snowbound   
+3. Waking Hour   
+4. Andromeda Unchained   
+5. Banished from Sector Q   
+6. Beyond Redemption   
+7. Resurrection Time   
+8. Escape Pod   
+9. This White Storm Through My Mind   
+10. The Final Overture   
+11. Take Me Home   
+12. Point of No Concern   
+13. The End of Millenium Road   
+14. The Stars of Canis Minor 
+
+
+Jacob Hansen - Vocals, additional guitars
+Morten Sшrensen - Drums
+Jesper M. Jensen - Guitars
+Kim Olesen - Guitars, synthesizers
+Henrik Fevre - Bass, lead vocals on "Take Me Home"
+
+### "The Detached" 2009, Progressive
+
+1. On The Detached  00:41  
+2. Find A Way (Or Make One)  05:48  
+3. Yiri  07:22 
+4. Lost In Myself  05:28   
+5. Dodecahedron  05:48   
+6. Pyramids  08:47  
+7. Out Of Time  05:51 
+8. Bloodoath  06:29   
+9. Ammonia Snow  02:54  
+10. Options - Going Nowhere  09:26 
+11. A Lifetime To Share  06:18
+12. The End  00:23
+
+### "Anubis Gate" 2011, Progressive
+
+01. Hold Back Tomorrow
+02. The Re-Formation Show
+03. Facing Dawn
+04. World In A Dome
+05. Desiderio Omnibus
+06. Oh My Precious Life
+07. Golden Days
+08. Telltale Eyes
+09. River
+10. Circumstanced
+
 
 ## Отношения с другими группами
 

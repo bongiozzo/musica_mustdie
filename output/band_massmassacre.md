@@ -1,7 +1,26 @@
 # Mass Massacre
 
-Дискография
-"Repentance in Gangrene" 2010, Deathcore
+
+
+## Дискография
+
+### "Repentance in Gangrene" 2010, Deathcore
+
+1. Drowning in to Carnage	 
+2. Psychotropic Injection		 
+3. Funeral Office	 
+4. Dehumanized	 
+5. Hopeless Civilization	 
+6. Vomited Society	 
+7. Autophobia	 
+8. Repentance in Gangrene	 
+9. Curse	 
+10. Human-Grill	 
+11. Entrails on the Railways (Zombie Train)	 
+12. Invitation to Grave	 
+13. Dance of Chainsaw (Krovyanka)	 
+14. Torture Time
+
 
 ## Отношения с другими группами
 

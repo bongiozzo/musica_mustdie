@@ -1,11 +1,39 @@
 # Winger
 
-Дискография
-"Winger" 1988, Ambient
-"In the Heart of the Young" 1990, Hard Rock
-"Pull" 1993, Hard Rock
-"IV" 2006, Hard Rock
-"Karma" 2009, Hard Rock
+
+
+## Дискография
+
+### "Winger" 1988, Ambient
+
+
+
+### "In the Heart of the Young" 1990, Hard Rock
+
+
+
+### "Pull" 1993, Hard Rock
+
+
+
+### "IV" 2006, Hard Rock
+
+1. Right Up Ahead
+2. Blue Suede Shoes
+3. Four Leaf Clover
+4. M16
+5. Your Great Escape
+6. Disappear
+7. On A Day Like Today
+8. Livin' Just To Die
+9. Short Flight To Mexico
+10. Generica
+11. Can't Take It Back
+
+### "Karma" 2009, Hard Rock
+
+
+
 
 ## Отношения с другими группами
 

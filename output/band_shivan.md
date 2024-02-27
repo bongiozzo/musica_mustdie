@@ -1,9 +1,47 @@
 # Shivan
 
-Дискография
-"Whatever lot's above" 2002, Black Metal
-"When Wishes Sicken" 2004, Black Metal
-"When Wishes Sicken [Re-release]" 2007, Black Metal
+sympho-black from Italy
+
+## Дискография
+
+### "Whatever lot's above" 2002, Black Metal
+
+1. Grieved   
+2. Slave to Greed   
+3. Only Wicked Never Trail   
+4. Dregs Upon Us   
+5. Forlorn   
+6. Daring   
+7. One More for the Blind   
+8. Silent Crying   
+9. Heed not Sighs 
+
+### "When Wishes Sicken" 2004, Black Metal
+
+1. Kingdom of Deceit 07:29  
+2. Hoarder of Illusion 06:17  
+3. Cold Winter Nights 05:32  
+4. Alone Again 07:58  
+5. Ain't No World 05:51  
+6. Past the Mid Route 02:39  
+7. Bereft 06:11  
+8. The Murkiest Den 07:10  
+9. Cold Winter Nights (short version) 04:12  
+10. Alone Again (short version) 06:21  
+11. Bereft (remix) 03:42 
+
+### "When Wishes Sicken [Re-release]" 2007, Black Metal
+
+1. Kingdom Of Deceit
+2. Hoarder Of Illusions
+3. Cold Winter Nights
+4. Alone Again
+5. Ain't No World
+6. Past The Mid Route
+7. Bereft
+8. The Murkiest Den
+9. Alone Again (Remix) 
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,20 @@
 # Icewind Blast
 
-Дискография
-"Necropolis" 2008, Melodic Death Metal
+melodic death
+
+## Дискография
+
+### "Necropolis" 2008, Melodic Death Metal
+
+1. "Detestation"
+2. "Bloodspiller"
+3. "Icewind Blast"
+4. "Necropolis"
+5. "Burnland"
+6. "Where the Icy Wind Blows"
+7. "Ghosts of Dawn"
+8. "Coming to the Deadline"
+
 
 ## Отношения с другими группами
 

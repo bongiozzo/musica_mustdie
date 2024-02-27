@@ -1,15 +1,149 @@
 # Dokken
 
-Дискография
-"Breaking the Chains" 1982, Heavy Metal
-"Tooth and Nail" 1984, Heavy Metal
-"Under Lock and Key" 1985, Heavy Metal
-"Back For The Attack" 1987, Heavy Metal
-"Beast from the East" 1988, Heavy Metal
-"Dysfunctional" 1995, Heavy Metal
-"Shadowlife" 1997, Heavy Metal
-"Erase the Slate" 1999, Heavy Metal
-"Hell To Pay" 2004, Heavy Metal
+
+
+## Дискография
+
+### "Breaking the Chains" 1982, Heavy Metal
+
+1 Breaking the Chains (Dokken) 
+2 In the Middle (Dokken) 
+3 Felony (Dokken) 
+4 I Can't See You (Dokken) 
+5 Live to Rock (Rock to Live) (Dokken) 
+6 Nightrider (Dokken) 
+7 Seven Thunders (Dokken) 
+8 Young Girls (Dokken) 
+9 Stick to Your Guns (Dokken) 
+10 Paris Is Burning (Dokken) 
+
+
+### "Tooth and Nail" 1984, Heavy Metal
+
+1 Without Warning 1:35 (Dokken) 
+2 Tooth and Nail 3:40 (Dokken) 
+3 Just Got Lucky 4:35 (Dokken) 
+4 Heartless Heart 3:29 (Dokken) 
+5 Don't Close Your Eyes 4:06 (Dokken) 
+6 When Heaven Comes Down 3:43 (Dokken) 
+7 Into the Fire 4:30 (Dokken) 
+8 Bullets to Spare 3:32 (Dokken) 
+9 Alone Again 4:20 (Dokken) 
+10 Turn on the Action 4:15 (Dokken) 
+
+
+### "Under Lock and Key" 1985, Heavy Metal
+
+1 Unchain the Night 5:17 (Dokken) 
+2 Hunter 4:06 (Dokken) 
+3 In My Dreams 4:18 (Dokken) 
+4 Slippin' Away 3:46 (Dokken) 
+5 Lightnin' Strikes Again 3:47 (Dokken) 
+6 It's Not Love 5:01 (Dokken) 
+7 Jaded Heart 4:13 (Dokken) 
+8 Don't Lie to Me 3:38 (Dokken) 
+9 Will the Sun Rise? 4:09 (Dokken) 
+10 Till the Livin' End 3:56 (Dokken) 
+
+
+### "Back For The Attack" 1987, Heavy Metal
+
+1.  Kiss Of Death
+2.  Prisoner
+3.  Night By Night
+4.  Standing In The Shadows
+5.  Heaven Sent
+6.  Mr.Scary
+7.  So Many Tears
+8.  Burning Like  A Flame
+9.  Lost Behind The Wall
+10.  Stop Fighting Love
+11.  Cry Of The Gypsy
+12.  Sleepless Nights
+13.  Dream Warriors
+
+(P)c 1987 ELECTRA / ASYLUM Records
+
+### "Beast from the East" 1988, Heavy Metal
+
+1 Unchain the Night 5:38 (Dokken) 
+2 Tooth and Nail 3:18 (Dokken) 
+3 Dream Warriors 4:09 (Dokken) 
+4 Kiss of Death 5:21 (Dokken) 
+5 When Heaven Comes Down 3:44 (Dokken) 
+6 Into the Fire 5:02 (Dokken) 
+7 Mr. Scary 7:00 (Dokken) 
+8 Heaven Sent 5:12 (Dokken) 
+9 It's Not Love 6:14 (Dokken) 
+10 Alone Again 5:34 (Dokken) 
+11 Just Got Lucky 5:02 (Dokken) 
+12 Breaking the Chains 5:21 (Dokken) 
+13 In My Dreams 5:02 (Dokken) 
+14 Walk Away 4:30 (Dokken) 
+
+
+### "Dysfunctional" 1995, Heavy Metal
+
+1 Inside Looking Out 4:08 (Dokken) 
+2 Hole in My Head 4:33 (Dokken) 
+3 Maze 4:50 (Dokken) 
+4 Too High to Fly 7:10 (Dokken) 
+5 Nothing Left to Say 4:30 (Dokken) 
+6 Shadows of Life 4:33 (Dokken) 
+7 Long Way Home 5:12 (Dokken) 
+8 Sweet Chains 5:46 (Dokken) 
+9 Lesser of Two Evils 4:03 (Dokken) 
+10 What Price 5:45 (Dokken) 
+11 From the Beginning 4:12 (Dokken) 
+
+
+### "Shadowlife" 1997, Heavy Metal
+
+1 Puppet on a String 4:21 (Dokken) 
+2 Cracks in the Ground 5:01 (Dokken) 
+3 Sky Beneath My Feet 4:35 (Dokken) 
+4 Until I Know 2:17 (Dokken) 
+5 Hello 3:11 (Dokken) 
+6 Convenience Store Messiah 4:28 (Dokken) 
+7 I Feel 4:23 (Dokken) 
+8 Hard to Believe 4:49 (Dokken) 
+9 Sweet Life 4:23 (Dokken) 
+10 Bitter Regret 3:59 (Dokken) 
+11 I Don' Mind 3:18 (Dokken) 
+12 Until I Know (Slight Return) [Version] 3:18 (Dokken) 
+
+
+### "Erase the Slate" 1999, Heavy Metal
+
+1 Erase the Slate 3:47 (Dokken) 
+2 Change the World 4:35 (Dokken) 
+3 Maddest Hatter 4:38 (Dokken) 
+4 Drown 4:53 (Dokken) 
+5 Shattered 4:40 (Dokken) 
+6 One 3:10 (Dokken) 
+7 Who Believes 4:23 (Dokken) 
+8 Voice of the Soul 4:12 (Dokken) 
+9 Crazy Mary Goes Round 3:00 (Dokken) 
+10 Haunted Lullabye 4:47 (Dokken) 
+11 In Your Honor 4:31 (Dokken) 
+12 Untitled 1:16 (Dokken) 
+
+
+### "Hell To Pay" 2004, Heavy Metal
+
+01. The Last Goodbye
+02. Don't Bring Me Down
+03. Escape
+04. Haunted
+05. Prozac Nation
+06. Care For You
+07. Better Off Before
+08. Still I'm Sad
+09. I Surrender
+10. Letter To Home
+11. Can You See
+12. Care For You (Unplugged Version)
+
 
 ## Отношения с другими группами
 

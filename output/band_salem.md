@@ -1,13 +1,159 @@
 # Salem
 
-Дискография
-"Creating Our Sins" 1992, Death Doom
-"Kaddish (a prayer for the dead)" 1994, Death Doom
-"A Moment Of Silence" 1998, Death Doom
-"Collective Demise" 2002, Death Doom
-"Live Demise (DVD)" 2004, Death Doom
-"Strings Attached" 2005, Death Doom
-"Necessary Evil" 2007, Death Doom
+
+
+## Дискография
+
+### "Creating Our Sins" 1992, Death Doom
+
+Masquerade in... 
+Creating our sins
+Old wounds
+Millions Slaughtered
+Children don't fight
+Execution
+Necromancy
+Fields of death
+Voices from hell
+Fucking maniac 
+Old wounds
+Emotional demants
+Slow death
+Children don't fight
+Fields of death 
+
+### "Kaddish (a prayer for the dead)" 1994, Death Doom
+
+The fading
+Above the ground
+Eyes to match a soul
+Kaddish
+Fear of the future
+Dying Embers
+Desert Prayer
+The edge of the void
+Ha'ayara Bo'eret
+The one that no one... 
+
+
+
+
+
+
+
+
+### "A Moment Of Silence" 1998, Death Doom
+
+A moment of silence
+Winter's tear 
+Hour Glass
+Flames
+Set the controls for the... 
+Another dimension 
+The Worst To Come
+An unwanted guest 
+Symbiosis
+Eyes to match a soul
+Who will comfort me now
+
+### "Collective Demise" 2002, Death Doom
+
+1. Broken yet united 
+2. Coming end of reason 
+3. Slave
+4. Act of terror
+5. Act of war
+6. Collective demise
+7. Dead Eyes
+8. Feed on your grief
+9. Decadence in solitude
+10. Recall 
+11. Al taster
+12. Inhuman greed 
+
+
+Zeev Tananboim - Vocals
+Lior Mizrachi - Guitar
+Michael Goldstein - Bass
+Nir Gutraiman - Guitar
+Nir Nakav - Drums
+
+Produced by the band and recorded in D.B. Studios (Drums, Bass, and Guitars) and Noise Studios (Vocals and mix) in Israel 
+
+
+### "Live Demise (DVD)" 2004, Death Doom
+
+1 Act of Terror 
+2 Act of War 
+3 Collective Demise 
+4 Decadence in Solitude 
+5 Eyes to Match a Soul
+6 Flames 
+7 F***ing Maniac 
+8 Symbiosis 
+9 Edge of the Void 
+10 A Moment of Silence 
+11 Creating our Sins 
+12 Execution 
+13 Al Taster 
+14 Broken yet United 
+15 Children Don’t Fight 
+Promo Videos 
+1 Act of War 
+2 Al Taster 
+3 Broken yet United 
+4 Fear of the Future 
+5 Ha'ayara Bo'eret
+6 Masquerade in... 
+7 Slave 
+
+
+Produced - Masterdisk 
+Directed - Nir Nakav 
+Animation - Moshe Freed 
+Artwork & Design - Nir Gutraima
+
+### "Strings Attached" 2005, Death Doom
+
+1. A Moment of Silence
+2. Anno Domini (new song)
+3. Coming End of Reason
+4. Dying Embers
+5. Winter's Tear
+6. Ha'ayara Bo'eret
+7. Eyes to Match a Soul
+8. Slave (string version)
+9. Old Wounds
+10. Hourglass
+11. The Fading
+12. Recall
+13. Old Wounds (guest vocalists version)
+14. The 2nd Coming (an alternate take on "Coming End of Reason")
+
+### "Necessary Evil" 2007, Death Doom
+
+1. Blood   
+2. Amona   
+3. Idol Worship   
+4. Mindless   
+5. Hypatia   
+6. Strife   
+7. Resentment   
+8. Making a Difference   
+9. More Blood   
+10. Once Upon a Lifetime part I   
+11. Once Upon a Lifetime part II   
+12. Once Upon a Lifetime part III   
+13. Once Upon a Lifetime part IV   
+14. Once Upon a Lifetime part V 
+
+
+Michael Goldstein - Bass 
+Nir Gutraiman - Guitar (Lehavoth) 
+Lior Mizrahi - Guitar
+Nir Nakav - Drums (Nail Within) 
+Ze'ev Tananboim - Vocals
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,26 @@
 # Coronach Records
 
-Дискография
-"Compilation-II: Tunes of Dusk" 2002, Metal
+Death / black / doom / gothic / industrial / ambient
+
+## Дискография
+
+### "Compilation-II: Tunes of Dusk" 2002, Metal
+
+Forest Stream "Mel Kor"
+Factura "My Sorrow"
+Somnolence "... and Dusk hath Fallen"
+By Autumn Embraced "One Step Towards the Fading Sun"
+Blut Formicarium "Ante Scortum Mortum"
+Necrost "Divine"
+Nova Art "Freedom of a Closed Space"
+Nordream "Of a Hope"
+Uncrossed "Absurd Philosophy"
+Forest Stream "Last Season Purity"
+Slot "Clone"
+Azazello & Divo "Divo"
+Somnolence "Woods Gothic"
+Alpha Scorpii "Arctica"
+
 
 ## Отношения с другими группами
 

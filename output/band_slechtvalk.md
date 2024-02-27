@@ -1,6 +1,9 @@
 # Slechtvalk
 
-Дискография
+melodic and brutal black metal
+
+## Дискография
+
 
 ## Отношения с другими группами
 

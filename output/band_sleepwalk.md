@@ -1,7 +1,31 @@
 # Sleepwalk
 
-Дискография
-"Door To Insomnia..." 1996, Gothic
+
+
+## Дискография
+
+### "Door To Insomnia..." 1996, Gothic
+
+1. Door To Insomnia - Ouverture (4.11)
+2. Grip To The Needle (5.29)
+3. Tides Of Eternity (5.02)
+4. Goddess Of Delight (A Tergo) (3.48)
+5. Baby Tormentor (Re-Voiced) (4.40)
+6. Soul Of Hate (3.A3)
+7. Bleeding (5.38)
+8. Whale In The Ocean (5.01)
+9. Supression (4.14)
+10. My Revenge (3.51)
+
+All songs written by SLEEPWAI.K
+Recorded at Hysteria Studio, Bern,
+Switzerland
+
+Ofiver Spring - Voice, Lyrics
+Bruao Ruch - Programming, Noise
+
+(p)(c) 1996 KHAZAD-DUM
+
 
 ## Отношения с другими группами
 

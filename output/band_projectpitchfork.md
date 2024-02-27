@@ -1,44 +1,193 @@
 # Project Pitchfork
 
-Дискография
-"Demoniac puppets (Tape)" 1990, Gothic
-"K.N.K.A. (Tape)" 1990, Gothic
-"Dhyani" 1991, Gothic
-"Psychic torture (MaxiCD)" 1991, Gothic
-"Va Luce (VHS)" 1992, Gothic
-"lam-&#180;bras" 1992, Gothic
-"Entities" 1992, Gothic
-"Entities Tour 1993 (VHS)" 1993, Gothic
-"Souls / Island (MCD)" 1993, Gothic
-"Carrion (MCD)" 1993, Gothic
-"IO" 1994, Gothic
-"Renascence (MCD)" 1994, Gothic
-"Glowing Like IO (VHS)" 1994, Gothic
-"Corps d&#180;amour (MCD)" 1995, Gothic
-"Alpha Omega" 1995, Gothic
-"CH&#180;I (MCD)" 1995, Gothic
-"The Early Years &#180;89 - &#180;93" 1996, Gothic
-"Alpha Omega Live (VHS)" 1996, Gothic
-"en garde! (MaxiCD)" 1996, Gothic
-"Live 97" 1997, Gothic
-"!CHAKRA:Red!" 1997, Gothic
-"Steelrose (MaxiCD)" 1998, Gothic
-"Carnival (MaxiCD)" 1998, Gothic
-"Eon:Eon" 1998, Gothic
-"Live 99 (VHS)" 1999, Gothic
-"I live your dream (MaxiCD)" 1999, Gothic
-"Existence (MaxiCD)" 2001, Gothic
-"Existence 2 (MaxiCD)" 2001, Gothic
-"Daimonion" 2001, Gothic
-"Timekiller (MaxiCD)" 2001, Gothic
-"Collector – adapted for the screen (DVD)" 2002, Gothic
-"Inferno" 2002, Gothic
-"View from a Throne (MaxiCD)" 2002, Gothic
-"Trialog (MaxiCD)" 2002, Gothic
-"collector - fireworks and colorchange" 2003, Gothic
-"live 2003/2001" 2003, Gothic
-"live 2003 (DVD)" 2003, Gothic
-"Kaskade" 2005, Gothic
+Electronic Avant-Garde + Death-Doom
+
+## Дискография
+
+### "Demoniac puppets (Tape)" 1990, Gothic
+
+
+
+### "K.N.K.A. (Tape)" 1990, Gothic
+
+
+
+### "Dhyani" 1991, Gothic
+
+
+
+### "Psychic torture (MaxiCD)" 1991, Gothic
+
+
+
+### "Va Luce (VHS)" 1992, Gothic
+
+
+
+### "lam-&#180;bras" 1992, Gothic
+
+
+
+### "Entities" 1992, Gothic
+
+
+
+### "Entities Tour 1993 (VHS)" 1993, Gothic
+
+
+
+### "Souls / Island (MCD)" 1993, Gothic
+
+
+
+### "Carrion (MCD)" 1993, Gothic
+
+
+
+### "IO" 1994, Gothic
+
+1.  Io (As A Symbol)
+2.  The Gate
+3.  The Silverthread 
+4.  Carrion
+5.  The Seeker
+6.  The Swamp Of Secrecy 
+7.  Terra Incognita 
+8.  Renascence
+9.  Antidote
+10.  Equilibrium
+
+All songs and lyrics by Spilles, Scheuber, Nigiani
+Produced by Spilles
+Engineered by M.Rewig  at NHB Studios
+
+(P)c 1994 OFF BEAT Records
+
+### "Renascence (MCD)" 1994, Gothic
+
+
+
+### "Glowing Like IO (VHS)" 1994, Gothic
+
+
+
+### "Corps d&#180;amour (MCD)" 1995, Gothic
+
+
+
+### "Alpha Omega" 1995, Gothic
+
+
+
+### "CH&#180;I (MCD)" 1995, Gothic
+
+
+
+### "The Early Years &#180;89 - &#180;93" 1996, Gothic
+
+
+
+### "Alpha Omega Live (VHS)" 1996, Gothic
+
+
+
+### "en garde! (MaxiCD)" 1996, Gothic
+
+
+
+### "Live 97" 1997, Gothic
+
+
+
+### "!CHAKRA:Red!" 1997, Gothic
+
+1. human crossing
+2. 2069 A. D.
+3. malicious delight
+4. alien crossing
+5. time
+6. god wrote
+7. rush
+8. december sadness
+9. temptation
+10. tower of lust
+11. celeste
+12. I&#180;ll find my way home
+
+### "Steelrose (MaxiCD)" 1998, Gothic
+
+1. steelrose
+2. steelrose (Front 242 black to red Mix)
+3. steelrose (talla 2XLC Mix)
+4. steelrose (apoptygma berzerk Mix)
+5. angels
+6. steelrose (Front 242 overdose Mix)
+7. steelrose (long version)
+
+### "Carnival (MaxiCD)" 1998, Gothic
+
+
+
+### "Eon:Eon" 1998, Gothic
+
+
+
+### "Live 99 (VHS)" 1999, Gothic
+
+
+
+### "I live your dream (MaxiCD)" 1999, Gothic
+
+
+
+### "Existence (MaxiCD)" 2001, Gothic
+
+
+
+### "Existence 2 (MaxiCD)" 2001, Gothic
+
+
+
+### "Daimonion" 2001, Gothic
+
+
+
+### "Timekiller (MaxiCD)" 2001, Gothic
+
+
+
+### "Collector – adapted for the screen (DVD)" 2002, Gothic
+
+
+
+### "Inferno" 2002, Gothic
+
+
+
+### "View from a Throne (MaxiCD)" 2002, Gothic
+
+
+
+### "Trialog (MaxiCD)" 2002, Gothic
+
+
+
+### "collector - fireworks and colorchange" 2003, Gothic
+
+
+
+### "live 2003/2001" 2003, Gothic
+
+
+
+### "live 2003 (DVD)" 2003, Gothic
+
+
+
+### "Kaskade" 2005, Gothic
+
+
+
 
 ## Отношения с другими группами
 

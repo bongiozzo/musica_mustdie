@@ -1,7 +1,13 @@
 # With Passion
 
-Дискография
-"In The Midst Of Bloodied Soil" 2005, Death Metal
+
+
+## Дискография
+
+### "In The Midst Of Bloodied Soil" 2005, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

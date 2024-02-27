@@ -1,13 +1,140 @@
 # Cemetary
 
-Дискография
-"An Evil Shade Of Grey" 1992, Death Doom
-"Godless Beauty" 1993, Death Doom
-"Black Vanity" 1994, Death Doom
-"Sundown" 1996, Death Doom
-"Last Confessions" 1997, Death Doom
-"Phantasma" 2005, Gothic
-"TBA" 2007, Death Doom
+Sweden Melodic Death-Doom
+
+## Дискография
+
+### "An Evil Shade Of Grey" 1992, Death Doom
+
+1. Dead Red
+2. Where The Rivers Of Madness Stream
+3. Dark Illusions
+4. An Evil Shade Of Grey
+5. Sidereal Passing
+6. Scars
+7. Nightmare Lake
+8. Souldrain
+
+ Mathias Lodmalm - Vocal & Lead Guitar
+ Cristian Saarinen - Rhythm Guitar
+ Zrinko Culjak - Bass
+ Juha Sievers  - Drums
+
+Produced,Mixed & Engineered By
+Mathias Lodmalm & Thomas Skogsberg.
+
+(p)&(c) 1992 BLACK MARK Productions
+
+### "Godless Beauty" 1993, Death Doom
+
+1. Now She Walks The Shadows
+2. The Serpent`s Kiss
+3. And Julie Is No More
+4. By My Own Hand
+5. Chain
+6. Adrift In Scarlet Twilight
+7. In Black
+8. Sunrise (Never Again)
+9. Where The Fire Forever Burns
+
+ Mathias Lodmalm - Vocal & Lead Guitar
+ Anton Hedberg - Rhythm Guitar
+ Zrinko Culjak  - Bass
+ Juha Sievers - Drums
+
+All Lyrics By M.Lodmalm.
+Produced,Mixed & Engineered By
+CEMETARY,Lars Linden,Thomas Skogsberg.
+Recorded & Mixed At Sunlight Studio,
+Feb.- Mar. 1993.
+
+(p)&(c) 1993 BLACK MARK Productions
+
+### "Black Vanity" 1994, Death Doom
+
+1. Bitter Seed
+2. Ebony Rain*
+3. Hunger Of The Innocent
+4. Scapecrow
+5. Black Flowers Of Passion
+6. Last Departure / Serpentine Parade
+7. Sweet Tragedy
+8. Pale Autumn Fire
+9. Out In Sand
+10.Rosemary Taste The Sky
+
+ Mathias Lodmalm - Vocals,Guitars, Keys
+ Anders Iwers - Guitars
+ Tomas Josefsson - Bass
+ Markus Nordberg - Drums
+ Helena Ohberg - Vocal & Narration
+ Alexander Molin - Tambourine
+ Christopher Johnsson - Solo On*
+
+Produced By Mathias Lodmalm
+Engineered By Rex Gisslen
+Recorded & Mixed At MONTEZUMA Recording,Stockholm  May-June 1994.
+
+(p)&(c) 1994 BLACK MARK Productions
+
+### "Sundown" 1996, Death Doom
+
+1.  Elysia
+2.  Closer To The Pain
+3.  Last Transmission
+4.  Sundown
+5.  Ophidian
+6.  Primal
+7.  New Dawn Coming
+8.  The Embrace
+9.  Morning Star
+10.  The Wake
+ 
+Mathias Lodmalm - Vocals,Guitars, Keys
+ Anders Iwers - Guitars
+ Tomas Josefsson - Bass
+ Markus Nordberg - Drums
+ 
+Produced By Mathias Lodmalm
+Engineered By Rex Gisslen
+Recorded & Mixed At MONTEZUMA Recording, Stockholm  May-June 1994.
+
+(p)&(c) 1996 BLACK MARK Productions
+
+### "Last Confessions" 1997, Death Doom
+
+1. Forever.
+2. Caress The Damned.
+3. So Sad Your Sorrow.
+4. 1213 - Trancegalactica.
+5. Twin Reactor.
+6. Fields Of Fire.
+7. One Burning Night.
+8. Carbon Heart.
+
+(p)&(c) 1997 BLACK MARK Productions
+
+Music and lyrics by Mathias Lodmalm
+Track 4 - lyrics by Mathias Lodmalm and Daniel Srebrenaric
+Produced by Mathias Lodmalm
+
+
+### "Phantasma" 2005, Gothic
+
+1. Far From God   
+2. Plasma Phantasma   
+3. Basic Black   
+4. Down Cold   
+5. Coma Burn   
+6. 2nd Last To Nowhere   
+7. Wavecell   
+8. Drowning Out The World   
+9. Tapes Of Their Voices
+
+### "TBA" 2007, Death Doom
+
+
+
 
 ## Отношения с другими группами
 

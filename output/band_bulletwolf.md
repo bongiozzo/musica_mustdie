@@ -1,7 +1,21 @@
 # Bulletwolf
 
-Дискография
-"Double Shots of Rock and Roll" 2008, Stoner
+
+
+## Дискография
+
+### "Double Shots of Rock and Roll" 2008, Stoner
+
+1. Half Drunk 04:48  
+2. White Trash Whiplash 05:30  
+3. Car Bar Super Star 03:24  
+4. Sleizard 06:59  
+5. Get The Horse Out 04:02  
+6. Usetoo 04:06  
+7. Fuckfight 05:27  
+8. Hungoveritz 04:31  
+9. Into The Fire (Deep Purple cover) 04:14 
+
 
 ## Отношения с другими группами
 

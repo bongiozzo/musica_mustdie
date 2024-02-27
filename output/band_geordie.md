@@ -1,11 +1,29 @@
 # Geordie
 
-Дискография
-"Hope You Like It" 1973, Heavy Metal
-"Masters of Rock" 1974, Heavy Metal
-"Don't Be Fooled by the Name" 1974, Heavy Metal
-"Save the World" 1976, Heavy Metal
-"Brian Johnson & Geordie" 1981, Heavy Metal
+(mostly known for their lead vocalist, Brian Johnson, who would later join AC/DC)
+
+## Дискография
+
+### "Hope You Like It" 1973, Heavy Metal
+
+
+
+### "Masters of Rock" 1974, Heavy Metal
+
+
+
+### "Don't Be Fooled by the Name" 1974, Heavy Metal
+
+
+
+### "Save the World" 1976, Heavy Metal
+
+
+
+### "Brian Johnson & Geordie" 1981, Heavy Metal
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,31 +1,441 @@
 # U.D.O.
 
-Дискография
-"Animal House" 1987, Heavy Metal
-"Mean Machine" 1989, Heavy Metal
-"Faceless World" 1990, Heavy Metal
-"Time Bomb" 1991, Heavy Metal
-"Solid" 1997, Heavy Metal
-"No Limits" 1999, Heavy Metal
-"Holy" 2000, Heavy Metal
-"Live from Russia" 2001, Heavy Metal
-"Man And Machine" 2002, Heavy Metal
-"Nailed To Metal (The Missing Tracks)" 2003, Heavy Metal
-"Thunderball" 2004, Heavy Metal
-"24/7 EP" 2005, Heavy Metal
-"Mission No. X" 2005, Heavy Metal
-"Mastercutor" 2007, Heavy Metal
-"Mastercutor Alive [2DVD/2CD]" 2008, Heavy Metal
-"Mastercutor Alive (2 DVD)" 2008, Heavy Metal
-"Mastercutor Alive (2 CD)" 2008, Heavy Metal
-"Infected" 2009, Heavy Metal
-"Dominator" 2009, Heavy Metal
-"Leatherhead" 2011, Heavy Metal
-"Rev-Raptor" 2011, Heavy Metal
-"Celebrator [2CD]" 2012, Heavy Metal
-"Steelhammer" 2013, Heavy Metal
-"Decadent" 2015, Heavy Metal
-"Navy Metal Night (2CD - Live)" 2015, Heavy Metal
+(Accept's vocalist Udo Dirkschneider project)
+
+## Дискография
+
+### "Animal House" 1987, Heavy Metal
+
+  1.   Animal House (Baltes/Deaffy/Dirkschneider/Fischer/Hoffman/Kaufmann) - 4:20 
+  2.   Go Back to Hell (Baltes/Deaffy/Dirkschneider/Fischer/Hoffman/Kaufmann) - 4:33 
+  3.   They Want War (Baltes/Deaffy/Dirkschneider/Fischer/Hoffman/Kaufmann) - 4:11 
+  4.   Black Widow (Baltes/Deaffy/Dirkschneider/Fischer/Hoffman/Kaufmann) - 4:32 
+  5.   In the Darkness (Baltes/Deaffy/Dirkschneider/Fischer/Hoffman/Kaufmann) - 4:05 
+  6.   Lay Down the Law (Baltes/Deaffy/Dirkschneider/Fischer/Hoffman/Kaufmann) - 3:48 
+  7.   We Want It Loud (Baltes/Deaffy/Dirkschneider/Fischer/Hoffman/Kaufmann) - 4:07 
+  8.   Hot Tonight (Baltes/Deaffy/Dirkschneider/Fischer/Hoffman/Kaufmann) - 4:44 
+  9.   Warrior (Baltes/Deaffy/Dirkschneider/Fischer/Hoffman/Kaufmann) - 4:23 
+  10.   Coming Home (Baltes/Deaffy/Dirkschneider/Fischer/Hoffman/Kaufmann) - 3:42 
+  11.   Run for Cover (Baltes/Deaffy/Dirkschneider/Fischer/Hoffmann/Kaufmann) - 4:46 
+
+
+Udo Dirkschneider  -  Vocals 
+Mark Dodson  -  Producer, Engineer, Mixing 
+Gerd Rautenbach  -  Mixing 
+Mathias Dieth  -  Guitar 
+Thomas Franke  -  Cymbals, Drums 
+Mathias Keith  -  Guitar 
+Frank Rittel  -  Bass 
+Peter Szegeti  -  Guitar 
+Donald Campbell  -  Concept, Cover Art Concept, Cover Image, Realization 
+
+
+### "Mean Machine" 1989, Heavy Metal
+
+  1.   Don't Look Back (Dieth/Dirkschneider/Susemihl) - 3:12 
+  2.   Break the Rules (Dieth/Dirkschneider/Susemihl) - 4:00 
+  3.   We're History (Dieth/Dirkschneider/Susemihl) - 3:30 
+  4.   Painted Love (Dieth/Dirkschneider/Susemihl) - 4:57 
+  5.   Mean Machine (Dieth/Dirkschneider/Susemihl) - 3:53 
+  6.   Dirty Boys (Dieth/Dirkschneider/Susemihl) - 3:47 
+  7.   Streets on Fire (Dieth/Dirkschneider/Susemihl) - 3:50 
+  8.   Lost Passion (Dieth/Dirkschneider/Susemihl) - 4:10 
+  9.   Sweet Little Child (Dieth/Dirkschneider/Susemihl) - 4:49 
+  10.   Catch My Fall (Dieth/Dirkschneider/Susemihl) - 3:56 
+  11.   Still in Love With You (Dirkschneider) - 0:48 
+
+
+Udo Dirkschneider  -  Composer, Vocals 
+Mark Dodson  -  Producer 
+Uli Baronowsky  -  Engineer 
+Mathias Dieth  -  Guitar, Composer 
+Thomas S.  -  Guitar (Bass) 
+Stefan Schwarzmann  -  Composer, Drums 
+Andy Susemihl  -  Guitar, Composer 
+
+
+### "Faceless World" 1990, Heavy Metal
+
+  1.   Heart of Gold - 4:59 
+  2.   Blitz of Lightning - 4:22 
+  3.   System of Life - 4:11 
+  4.   Faceless World - 6:30 
+  5.   Stranger - 5:14 
+  6.   Restricted Area - 3:10 
+  7.   Living on a Frontline - 4:18 
+  8.   Trip to Nowhere - 4:42 
+  9.   Born to Run - 3:25 
+  10.   Can't Get Eneough - 3:22 
+  11.   Unspoken Words - 5:12 
+  12.   Future Land - 5:12 
+
+
+Udo Dirkschneider  -  Vocals (bckgr) 
+Stefan Kaufmann  -  Mixing 
+Uli Baronowsky  -  Engineer, Mixing 
+Stefan Schwarzmann  -  Drums 
+Thomas Smuszynski  -  Guitar (Bass) 
+
+
+### "Time Bomb" 1991, Heavy Metal
+
+  1.   The Gutter [instrumental] (Dirkschneider/Kaufmann) - 1:04 
+  2.   Metal Eater (Deaffy/Dieth/Dirkschhneider/Dirkschneider) - 3:42 
+  3.   Thunderforce (Deaffy/Dirkschneider/Dirkschneider/Schwarzmann) - 3:39 
+  4.   Overloaded (Dirkschneider/Kaufmann) - 1:04 
+  5.   Burning Heat (Deaffy/Dirkchneider/Dirkschneider/Kaufmann) - 3:13 
+  6.   Back in Pain (Deaffy/Dieth/Dirkschneider/Dirkschneider) - 3:46 
+  7.   Timebomb (Deaffy/Dieth/Dirkschneider/Dirkschneider/Schwarzmann/Smuszynski) - 3:57 
+  8.   Powersquad (Deaffy/Deith/Dieth/Dirkschneider/Dirkschneider) - 4:12 
+  9.   Kick in the Face (Deaffy/Dieth/Dirkschneider/Dirkscneider/Kaufmann) - 3:46 
+  10.   Soldiers of Darkness (Deaffy/Dirkschneider/Dirkschneider/Kaufmann) - 4:11 
+  11.   Metal Maniac Master Mind (Deaffy/Dirkschnedier/Dirkschneider/Smuszynski/Smuszynski) - 5:41 
+
+
+Udo Dirkschneider  -  Vocals 
+Stefan Kaufmann  -  Arranger, Producer 
+Mathias Dieth  -  Guitar 
+Stefan Schwarzmann  -  Drums 
+Thomas Smuszynski  -  Bass 
+
+
+### "Solid" 1997, Heavy Metal
+
+  1.   Independence Day 
+  2.   Two Faced Woman 
+  3.   Desperate Balls 
+  4.   The Punisher 
+  5.   Devil's Dice 
+  6.   Bad Luck 
+  7.   Preachers of the Night 
+  8.   Hate Stinger 
+  9.   Braindead Hero 
+  10.   Pray for the Hunted 
+  11.   The Healer 
+
+
+### "No Limits" 1999, Heavy Metal
+
+
+
+### "Holy" 2000, Heavy Metal
+
+  1.   Holy - 4:56 
+  2.   Radiers of Beyond - 4:11 
+  3.   Shout It Out - 4:55 
+  4.   Recall the Sin - 4:36 
+  5.   Thunder in the Tower - 5:04 
+  6.   Back Off - 3:03 
+  7.   Friends Will Be Friends - 3:33 
+  8.   State Run Operation - 3:51 
+  9.   Danger - 3:23 
+  10.   Ride the Storm - 3:58 
+  11.   Cut Me Out - 3:59 
+
+
+Udo Dirkschneider  -  Vocals, Producer 
+Stefan Kaufmann  -  Guitar, Producer, Engineer, Mixing 
+Andreas Marshall  -  Cover Art 
+
+
+### "Live from Russia" 2001, Heavy Metal
+
+
+
+### "Man And Machine" 2002, Heavy Metal
+
+1. Man And Machine   
+2. Private Eye   
+3. The Dawn Of The Gods     
+4. Silent Cry     
+5. Like A Lion     
+6. Black Heart     
+7. Network Nightmare   
+8. Animal Instinct     
+9. Dancing With An Angel     
+10. Hard To Be Honest     
+11. Unknown Traveler   
+
+
+Produced by Stefan Kaufmann and Udo Dirkschneider
+Recorded at Roxx Studio  
+
+
+Voc: Udo Dirkschneider
+Guitar/Voc: Stefan Kaufmann
+Guitar/Voc: Jurgen Graf-Biardi
+Bass/Voc: Fitty Weinhold
+Drums: Stefan Schwarzmann
+
+
+
+### "Nailed To Metal (The Missing Tracks)" 2003, Heavy Metal
+
+Holy
+Raiders & Beyond
+Metal Heart
+X-T-C
+Drum Solo
+Fast As A Shark
+Princess Of The Dawn
+Restless And Wild
+Thunder In The Tower
+Hard Attack
+Balls To The Wall
+
+### "Thunderball" 2004, Heavy Metal
+
+1. Thunderball
+2. The Arbiter 
+3. Pull The Trigger 
+4. Fistful Of Anger 
+5. The Land Of The Midnight Sun 
+6. Hell Bites Back 
+7. Trainride In Russia (Poezd Po Rossii) 
+8. The Bullet And The Bomb 
+9. The Magic Mirror 
+10. Tough Luck II 
+11. Blind Eyes
+
+### "24/7 EP" 2005, Heavy Metal
+
+1. 24/7
+2. Mean Streets (single version)
+3. Number For A Number
+4. Scream Killers
+5. Hardcore Lover (feat. Mathias Dieth, guitar solo)
+6. Enhanced Multimedia Part :-) (4 Wallpapers... ha ha ha)
+
+### "Mission No. X" 2005, Heavy Metal
+
+1. Mission No. X
+2. 24/7
+3. Mean Streets
+4. Primecrime On Primetime
+5. Eye Of The Eagle
+6. Shell Shock Fever
+7. Stone Hard
+8. Breaking Down The Border
+9. Cry Soldier Cry
+10. Way Of Life
+11. Mad For Crazy
+
+### "Mastercutor" 2007, Heavy Metal
+
+
+
+### "Mastercutor Alive [2DVD/2CD]" 2008, Heavy Metal
+
+Dvd 1 
+Mastercutor 
+24/7 
+They Want War 
+The Bullet And The Bomb 
+Midnight Mover 
+Vendetta 
+Mission No. X 
+Midnight Highway 
+The Wrong Side Of Midnight 
+Breaker 
+Guitar Solo 
+Princess Of The Dawn 
+One Lone Voice 
+Winterdreams 
+Living For Tonight 
+Thunderball 
+Drum Solo 
+Man And Machine 
+Animal House
+Metal Heart 
+Holy 
+Balls To The Wall 
+Fast As A Shark 
+Burning 
+Outro 
+I'm A Rebel
+
+Dvd 2 
+- Road movie Russia tour (15 minutes)
+- Road movie South America tour (15 minutes)
+- Concert Belarus (30 minutes)
+
+### "Mastercutor Alive (2 DVD)" 2008, Heavy Metal
+
+
+
+### "Mastercutor Alive (2 CD)" 2008, Heavy Metal
+
+
+
+### "Infected" 2009, Heavy Metal
+
+1. Infected 03:36  
+2. Systematic Madness 03:34  
+3. Bodyworld 04:44  
+4. Platchet Soldat (Russian version) 05:50  
+5. Poezd Po Rossii (Live in Moscow 2008 - russian chorus) 06:33 
+
+
+
+Will be released as a limited edition of 2222 pieces worldwide.
+
+Udo Dirkschneider - Vocals
+Igor Gianola - Guitars
+Stefan Kaufmann - Guitars
+Fitty Wienhold - Bass
+Francesco Jovino - Drums 
+
+### "Dominator" 2009, Heavy Metal
+
+1. The Bogeyman
+2. Dominator
+3. Black And White
+4. Infected
+5. Heavy Metal Heaven
+6. Doom Ride
+7. Stillness Of Time
+8. Devil's Rendezvous
+9. Bleeding Heart (Japanese bonus)
+10. Pleasure In The Darkroom (digipack bonus)
+11. Speed Demon
+12. Whispers In The Dark
+
+
+### "Leatherhead" 2011, Heavy Metal
+
+1. Leatherhead 04:09  
+2. Rock`NґRoll Soldiers * 04:16  
+3. Free Or Rebellion** 04:38  
+4. Run! ** 05:56  
+5. Jingle Balls (video clip)   
+6. Leatherhead (video clip) 
+
+
+
+-“Leatherhead” and “RockґNґRoll Soldiers” taken from REV-Raptor
+-Run!” and “Free Or Rebellion”, both previously only available on the
+“Thundervision” DVD from 2004
+-The video clips “Leatherhead” and “Jingle Balls” (from a cooperation
+with the “Evil Disposition” band of EMP mailorder) round off this release 
+
+### "Rev-Raptor" 2011, Heavy Metal
+
+1. Rev-Raptor   
+2. Leatherhead   
+3. Renegade   
+4. I Give As Good As I Get   
+5. Dr. Death   
+6. Rock'n'Roll Soldiers   
+7. Terrorvision   
+8. Underworld   
+9. Pain Man   
+10. Fairy Tales Of Victory   
+11. Motor-Borg   
+12. True Born Winners   
+13. Days Of Hope And Glory 
+
+
+### "Celebrator [2CD]" 2012, Heavy Metal
+
+CD1:
+01. Stormbreaker ("Rev-Raptor" Japan BONUS)
+02. Tallyman (Taken from the "Rev-Raptor" recording session)
+03. Run! (Remix)
+04. Free Or Rebellion (bonus "Leatherhead" Single)
+05. Bleeding Heart ("Dominator" Japan bonus)
+06. The Silencer (Taken from the "Dominator" recording session)
+07. Bodyworld (bonus "Infected" Single)
+08. Systematic Madness (bonus "Infected" Single)
+09. HAMMERFALL feat. Udo Dirkschneider - Head Over Heels
+10. Balls To The Wall (piano version)
+11. Artificialized (Taken from the "Mastercutor" recording session)
+12. LORDI feat. Udo Dirkschneider - They Only Come Out At Night
+13. Streets Of Sin (bonus "Wrong Side Of Midnight" single)
+
+
+CD2:
+01. Tears Of A Clown ("Classical Version")
+02. Man A King Ruler ("Mastercutor" Japan bonus)
+03. Hardcore Lover (remix from "24/7" single)
+04. Scream Killers (bonus "24/7" single)
+05. U.D.O. feat. Faktor2 - Platchet Soldat (remix with national Russian artist)
+06. Borderline ("Thunderball" Japan bonus)
+07. U.D.O. feat. Doro - Dancing With An Angel (remix)
+08. X-T-C (remix from "A Tribute To ACCEPT Vol. 2")
+09. Azrael (remix from "No Limits")
+10. The Key (remix from "No Limits" Japan bonus)
+11. Metal Gods (from "A Tribute To Judas Priest")
+12. RAVEN feat. Udo Dirkschneider - Born To Be Wild
+
+### "Steelhammer" 2013, Heavy Metal
+
+1.	 Steelhammer	03:23	 
+2.	 A Cry of a Nation	05:41	 
+3.	 Metal Machine	04:46	 
+4.	 Basta Ya	04:33	 
+5.	 Heavy Rain	02:25	 
+6.	 Devil's Bite	05:05	 
+7.	 Death Ride	04:08	 
+8.	 King of Mean	04:07	 
+9.	 Timekeeper	04:26	 
+10.	 Never Cross My Way	04:23	 
+11.	 Take My Medicine	05:07	 
+12.	 Stay True	04:04	 
+13.	 When Love Becomes a Lie	04:12	 
+14.	 Book of Faith	05:12	
+
+### "Decadent" 2015, Heavy Metal
+
+1. Speeder  03:44  
+2. Decadent  04:49   
+3. House of Fake  04:25  
+4. Mystery  04:35   
+5. Pain  05:10   
+6. Secrets in Paradise  05:00  
+7. Meaning of Life  04:33   
+8. Breathless  05:19   
+9. Let Me Out 03:55 (only digipack)
+10. Under Your Skin  04:22   
+11. Untouchable  05:09 
+12. Shadow Eyes 04:20 (only digipack)
+13. Rebels of the Night  04:40  
+14. Words in Flame  07:35 
+15. Fallen Angels 04:55 (only Japan)
+
+
+
+Udo Dirkschneider - Vocals  
+Fitty Wienhold - Bass  
+Francesco Jovino - Drums  
+Andrey Smirnov - Guitars  
+Kasperi Heikkinen - Guitars  
+
+
+
+### "Navy Metal Night (2CD - Live)" 2015, Heavy Metal
+
+CD1:
+1. Das Boot (Intro)
+2. Das Boot
+3. Future Land
+4. Independence Day
+5. Animal Instinct
+6. The Hall Of The Mountain King
+7. Heart Of Gold
+8. Man And Machine
+9. Dancing With An Angel
+10. Faceless World
+
+CD2:
+1. Ride
+2. Days Of Hope And Glory
+3. Cut Me Out
+4. Trainride In Russia (Poezd Po Rossii)
+5. Stillness Of Time
+6. King Of Mean
+7. Book Of Faith
+8. Animal House
+
 
 ## Отношения с другими группами
 

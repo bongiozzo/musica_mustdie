@@ -1,7 +1,22 @@
 # Lindemann
 
-Дискография
-"Skills In Pills" 2015, Metal
+
+
+## Дискография
+
+### "Skills In Pills" 2015, Metal
+
+01. Skills In Pills
+02. Ladyboy
+03. Fat
+04. Fish On
+05. Children Of The Sun
+06. Home Sweet Home
+07. Cowboy
+08. Golden Shower
+09. Yukon
+10. Praise Abort
+
 
 ## Отношения с другими группами
 

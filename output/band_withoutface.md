@@ -1,8 +1,22 @@
 # Without Face
 
-Дискография
-"Deep Inside" 2000, Fusion
-"Astronomicon" 2002, Fusion
+Doom / gothic / progressive
+
+## Дискография
+
+### "Deep Inside" 2000, Fusion
+
+
+
+### "Astronomicon" 2002, Fusion
+
+1. Weird Places
+2. Pit And Pendulum
+3. ... In The Garden
+4. The Violin Of Erich Zann
+5. Talamasca
+6. Daimonion
+
 
 ## Отношения с другими группами
 

@@ -1,11 +1,54 @@
 # Sea Of Desperation
 
-Дискография
-"To My Beloved... [demo]" 2002, Death Doom
-"To My Beloved..." 2005, Doom
-"Spiritual Lonely Pattern" 2005, Doom
-"Dread Poems Of The Fall" 2007, Death Doom
-"The Shards-Witness theatre part 2" 2011, Death Doom
+Russian death-doom metal
+
+## Дискография
+
+### "To My Beloved... [demo]" 2002, Death Doom
+
+1. Benighted in The Sea
+2. Hauntings At Night
+3. Insomnia
+4. Rain Of Spring
+5. Erasing
+6. Depth
+7. Reminiscent
+
+All music and lyrics by Lefthander
+Recorded and mixed in autumn 2002 by Lefthander
+
+### "To My Beloved..." 2005, Doom
+
+
+
+### "Spiritual Lonely Pattern" 2005, Doom
+
+
+
+### "Dread Poems Of The Fall" 2007, Death Doom
+
+1. Bardo	 
+2. Lighthouse	 
+3. Face That Never Be Forgotten	 
+4. Oasis	 
+5. Darkness In Your Eyes		 
+6. Neolalia	 
+7. T 
+8. Poem Of The Fall
+
+### "The Shards-Witness theatre part 2" 2011, Death Doom
+
+1. Three beggars
+2. Performer
+3. Upon the place
+4. Midsummer night's dream
+5. Bride of nothingness
+6. Witness theatre
+7. Rejected lover
+8. From the diary, left in the garden
+9. Gasted
+10. Sad spring
+
 
 ## Отношения с другими группами
 

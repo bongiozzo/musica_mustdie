@@ -1,18 +1,209 @@
 # Umbra Et Imago
 
-Дискография
-"Traume, Sex Und Tod" 1992, Gothic
-"Infantile Spiele" 1993, Gothic
-"Remember Dito" 1994, Gothic
-"Gedankein Eines Vampires" 1995, Gothic
-"Mystica Sexialis" 1996, Gothic
-"Machina Mundi" 1998, Gothic
-"Dunkle Energie" 2000, Gothic
-"Mea Culpa" 2001, Gothic
-"Memento Mori" 2004, Gothic
-"Motus Animi" 2005, Gothic
-"Imago Picta [DVD]" 2006, Gothic
-"Opus Magnus" 2010, Gothic
+
+
+## Дискография
+
+### "Traume, Sex Und Tod" 1992, Gothic
+
+1. Never  5:25  
+2. Her Sleep  7:35  
+3. Rider In The Train  9:59  
+4. Desiderium  3:39  
+5. Falling  7:13  
+6. Last Dream  10:29 
+7. Erotica (Erotic Mix)  9:40  
+8. Vision  13:43
+
+### "Infantile Spiele" 1993, Gothic
+
+1. Away  7:25  
+2. Hash Dreams  10:08 
+3. Gothic Erotic  11:18 
+4. Parent Song  10:48 
+5. Endorphin  13:49 
+6. Vampir Song  11:17 
+7. Gefuhle Zerplatzt  9:04
+
+### "Remember Dito" 1994, Gothic
+
+1. Remember Dito  5:25 
+2. Action Speak Louder Than Words  5:48 
+3. Actions Instrumental  5:49 
+4. Erotica (Zollermussesspielen Mix)  9:15 
+5. Erotica Instrumental  9:15 
+6. Umbra et Imago - Session  2:35
+
+### "Gedankein Eines Vampires" 1995, Gothic
+
+
+
+### "Mystica Sexialis" 1996, Gothic
+
+1. Requiem Mit Dem Ich Meine Mit-Menschen Um Verzeihung Bitten...
+2. Horst Du Mein Ruben
+3. Es Was Einaml Eien "O"
+4. You Are Poison For Me
+5. Kleine Schwester
+6. Der Trieb
+7. Hass
+8. Black Waves
+[9].Madeira
+[10].Wintertage
+
+[9] - [10] - На стороне B
+
+All sonsg written by UMBRA ET IMAGO.
+Produced By Spirit Production.
+Engineered By Jochen Ritter & Lutz Demmler.
+Recorded & Mixed At Twilight Sound Studios, Karlsruhre.
+
+Mozart - Vocals, Lyrics, Performance
+Peter Heppner - Vocals, Backing Vocals
+Lutz Demmler - Programming, Bass
+Jochen Ritter - Drums
+Achim Vogel - Keys, Programming
+Andi Lehnert - Guitars
+
+(P)(C) 1996 SPIRIT Production
+
+### "Machina Mundi" 1998, Gothic
+
+1. Ein kleines Marchen (Intro)  3:29 
+2. Erwachet  5:44 
+3. Es Brennt die Sehnsucht  6:32 
+4. Machina Mundi  4:42 
+5. Oneway Love  6:46 
+6. Alles Schwarz  5:37 
+7. Milch  5:01 
+8. Der Kampf des Mannes  4:23 
+9. Gothic Ritual  8:05 
+10. Don't Stop to Learn  6:17 
+11. Mein Herz und meine Seele  9:58
+
+### "Dunkle Energie" 2000, Gothic
+
+1. Intro  2:10 
+2. Feuer und Licht  4:41 
+3. Dunkle Energie  3:59 
+4. Mein Buch  5:01 
+5. She Is Calling  7:11 
+6. Schweigen ist Gold  3:11 
+7. Dionysos  6:04 
+8. Traurig  4:49 
+9. White Wedding  4:04 
+10. TV macht krank  5:09 
+11. Outro  3:25 
+12. Gothic Erotic (brainstorm 2001 mix)  8:44
+
+### "Mea Culpa" 2001, Gothic
+
+1. Intro  1:02 
+2. Lieber Gott...  3:58 
+3. Schmerz  4:38 
+4. Mea Culpa  4:47 
+5. Goth' Music  6:45 
+6. Prinz Vogelfrei  4:07 
+7. Teutonenlied  4:14 
+8. Jahr und Tag  5:09 
+9. Aufrecht  5:12 
+10. Weinst Du ?  4:16 
+11. 1780  1:38 
+12. Rock Me Amadeus  4:29 
+13. Vater (Bonus Track)  7:26
+
+### "Memento Mori" 2004, Gothic
+
+01. Marchenland 05:50
+02. Sweet Gwendoline 04:38
+03. Sagt Nein 04:27
+04. Memento Mori 04:35
+05. Schlag Mich 05:25
+06. Ein Letztes Mal 06:01
+07. Der Wahnsinn 04:29
+08. Egoismus 04:15
+09. Money 03:35
+10. Stoppt Die Lugen 03:41
+11. Der Pralat 04:40
+12. Mach Was 03:43
+
+Mozart: Vocal, Lyrics, Performance
+Lutz: Programming, Bass, Keyboards
+Migge: Drums
+Soren: Guitars
+
+Additional keyboards, programming: Acimo
+Backing vocals: Martina & Karo
+Schlagmich-vocals: Regina Halmich, Mozart
+Make-up & styling: Melanie Jechorek / Sabine
+Bologni
+Cover models: Annett, Nanne, Lisa, Doro
+Artwork: Ingo Romling
+Photo: Gregor Skowronek
+
+Music: Umbra Et Imago
+Lyrics: Mozart
+Produced by Lutz Demmler at Twilight Sound Studio
+Karlsruhe
+Mastered at House Of Audio by Jurgen Lusky
+Executive Production: Mozart
+
+### "Motus Animi" 2005, Gothic
+
+01. Intro (Funeral March For Queen Mary)
+02. Horst Du Mein Rufen (Version 2005)
+03. Sagt Nein (monozelle mix)
+04. Stalker
+05. Lieber Gott (Dracul Remix)
+06. Kokon (Umbra et Imago Version)
+07. Horst Du Mein Rufen (Retrosic Remix)
+08. Sweet Gwendoline (ASP Version)
+09. Ein Letztes Mal (Leaves Eyes Remix/Version)
+10. Horst Du Mein Rufen (Wumpscut Remix)
+11. Stalker (Birkenbeil Remix)
+12. Horst Du Mein Rufen (Suicide Commando vs.
+Diskonnekted Mix)
+
+### "Imago Picta [DVD]" 2006, Gothic
+
+01. Marchenlied
+02. Sweet Gwendoline
+03. Egoismus
+04. Schlag mich
+05. Devotion
+06. Horst du mein Rufen
+07. Sagt Nein
+08. Memento Mori
+09. Stalker
+10. Money
+11. Der Pralat
+12. Ein letztes Mal
+13. Alles Schwarz
+14. Lieber Gott
+15. Rock me Amadeus
+
+Bonus:
+
+- Lutz und Mozart in der Pfalz
+- Umbra et Imago history
+- Extra bonus track
+
+### "Opus Magnus" 2010, Gothic
+
+01. Ohne Dich Single E. (06:40)
+02. Perfect Baby (04:15)
+03. Depressionen (04:46)
+04. Gebet Nr. 1 (05:28)
+05. Liebeslied (05:38)
+06. Kokainsong (03:57)
+07. Is This Love (04:26)
+08. Hexxenhammer (04:37)
+09. Ignoranz (04:52)
+10. Ode An Die Musik (04:46)
+11. Sonntagsandacht (05:53)
+Bonus Track:
+12. Wanderers Nachtlied (01:27)
+
 
 ## Отношения с другими группами
 

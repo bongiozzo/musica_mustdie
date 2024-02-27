@@ -1,7 +1,23 @@
 # Midnight Sun
 
-Дискография
-"Metalmachine" 2001, Power Metal
+
+
+## Дискография
+
+### "Metalmachine" 2001, Power Metal
+
+  1 - Metal Gods 
+  2 - Dungeons of Steel 
+  3 - Temple of the Graal 
+  4 - Steel to Steel 
+  5 - Metal MAchine 
+  6 - Fight 
+  7 - Distorted Eyes 
+  8 - Your Blood Burns in Hell 
+  9 - Keeper of the Gate 
+  10 - Metal Will Stand Tall 
+
+
 
 ## Отношения с другими группами
 

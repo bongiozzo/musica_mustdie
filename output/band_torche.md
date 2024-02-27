@@ -1,10 +1,25 @@
 # Torche
 
-Дискография
-"Torche" 2005, Metal
-"Meanderthal" 2008, Metal
-"Harmonicraft" 2012, Metal
-"Restarter" 2015, Metal
+
+
+## Дискография
+
+### "Torche" 2005, Metal
+
+
+
+### "Meanderthal" 2008, Metal
+
+
+
+### "Harmonicraft" 2012, Metal
+
+
+
+### "Restarter" 2015, Metal
+
+
+
 
 ## Отношения с другими группами
 

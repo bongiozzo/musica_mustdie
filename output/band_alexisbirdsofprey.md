@@ -1,7 +1,24 @@
 # Alexis Birds of Prey
 
-Дискография
-"Birds of Prey" 2010, Heavy Metal
+
+
+## Дискография
+
+### "Birds of Prey" 2010, Heavy Metal
+
+1. Intro
+2. Shadows	 
+3. Golden Path	 
+4. Friendly Fire	 
+5. Birds of Prey	 
+6. Breaking the Spell 
+7. Without You	 
+8. Forest
+9. Metallizer II	 
+10. The Witchblade	 
+11. Inside my Heart	 
+12. Killing Truth
+
 
 ## Отношения с другими группами
 

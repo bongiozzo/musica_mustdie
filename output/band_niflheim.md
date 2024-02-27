@@ -1,8 +1,17 @@
 # Niflheim
 
-Дискография
-"A Feast Of Darkness EP" 2003, Black Metal
-"Dreaming Under The Moon EP" 2004, Black Metal
+sympho-black-metal from Korea
+
+## Дискография
+
+### "A Feast Of Darkness EP" 2003, Black Metal
+
+
+
+### "Dreaming Under The Moon EP" 2004, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

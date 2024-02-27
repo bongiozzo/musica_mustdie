@@ -1,14 +1,105 @@
 # Blut Aus Nord
 
-Дискография
-"Ultima Thulee" 1995, Black Metal
-"Fathers Of The Icy Age" 1996, Black Metal
-"The Mystical Beast Of Rebellion" 2001, Black Metal
-"The Work Which Transforms God" 2003, Black Metal
-"Thematic Emanation Of Archetypal Multiplicity" 2005, Death Industrial
-"MoRT" 2006, Death Industrial
-"The Destruction of Reason by Illumination" 2007, Black Metal
-"Memoria Vetusta II: Dialogue with the Stars" 2009, Black Metal
+Black Atmospheric Doom
+
+## Дискография
+
+### "Ultima Thulee" 1995, Black Metal
+
+1.  The Son Of Hearfrost
+2.  The Pain Of Ida
+3.  From Hlidskjalf
+4.  My Prayer Beyond Ginnungagap
+5.  Till I Perceive Bifrost
+6.  On The Way To Vigrid
+7.  Rigsthula
+8.  The Last Journey Of Kingdom
+
+(P)c 1996 IMPURE CREATION Records // ICR 002
+
+### "Fathers Of The Icy Age" 1996, Black Metal
+
+1.  Slaughterday (The Heathen Blood Of Ours)
+2.  On The Path Of Wolf...Towards Dwarfhill
+3.  Sons Of Wisdom, Master Of Elements
+4.  The Forsaken Voices Of The Ghostwood's Shadowy Realm
+5.  The Territory Of Wishes - Guardians Of The Dark Lake
+6.  Day Of Revenge (The Impure Blood Of Theirs)
+7.  Fathers Of The Icy Age
+
+All compositions by BAN.
+6-strings bass lines by Ira Aeterna.
+Recorded and Mixed by Vindsval.
+
+(P)(C) 1997 IMPURE CREATION Records // ICR 005
+
+### "The Mystical Beast Of Rebellion" 2001, Black Metal
+
+1. The Fall, Chapter I 06:39  
+2. The Fall, Chapter II 07:43  
+3. The Fall, Chapter III 03:38  
+4. The Fall, Chapter IV 06:51  
+5. The Fall, Chapter V 06:01  
+6. The Fall, Chapter VI 10:23
+
+### "The Work Which Transforms God" 2003, Black Metal
+
+1. End 01:50  
+2. The Choir of the Dead 06:42  
+3. Axis 03:36  
+4. The Fall 01:31  
+5. Metamorphosis 05:22  
+6. The Supreme Abstract 02:59  
+7. Our Blessed Frozen Cells 07:55  
+8. Devilish Essence 02:06  
+9. The Howling of God 06:19  
+10. The Inner Mental Cage 02:57  
+11. Density 00:18  
+12. Procession of the Dead Clowns 09:55
+
+### "Thematic Emanation Of Archetypal Multiplicity" 2005, Death Industrial
+
+1. Enter (The Transformed God Basement) 04:47  
+2. Level-1 (Nothing is) 07:58  
+3. Level-2 (Nothing is not) 07:10  
+4. Level-3 (Nothing Becomes) 07:14  
+5. Exit (Towards the Asylum) 01:01
+
+### "MoRT" 2006, Death Industrial
+
+1. Chapter I 06:04  
+2. Chapter II 04:44  
+3. Chapter III 05:08  
+4. Chapter IV 05:41  
+5. Chapter V 06:35  
+6. Chapter VI 05:01  
+7. Chapter VII 06:38  
+8. Chapter VIII 07:19 
+
+### "The Destruction of Reason by Illumination" 2007, Black Metal
+
+1. Intro 01:29  
+2. An Element of Flesh 05:30  
+3. The Sounds of the Universe 05:27  
+4. Odinist 05:02  
+5. A Few Shreds of Thoughts 04:51  
+6. Ellipsis 03:07  
+7. Mystic Absolu 04:30  
+8. The Cycle of the Cycles 05:19  
+9. Outro 01:38 
+
+### "Memoria Vetusta II: Dialogue with the Stars" 2009, Black Metal
+
+1. Acceptance (Aske) 01:30  
+2. Disciple's Libration (Lost in the Nine Worlds) 09:07  
+3. The Cosmic Echoes of Non-Matter (Immaterial Voices of the Fathers) 06:30  
+4. Translucent Body of Air (Sutta Anapanasati) 02:24  
+5. The Formless Sphere (Beyond the Reason) 07:54  
+6. ...the Meditant (Dialogue With the Stars) 10:14  
+7. The Alcove of Angels (Vipassana) 08:44  
+8. Antithesis of the Flesh (...and Then Arises a New Essence) 09:28  
+9. Elevation 04:11 
+
 
 ## Отношения с другими группами
 

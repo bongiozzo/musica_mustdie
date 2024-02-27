@@ -1,9 +1,30 @@
 # Dissenter
 
-Дискография
-"Bloodlust & Blasphemy" 2000, Death Metal
-"Apocalypse of the Damned" 2002, Death Metal
-"Contamination" 2003, Death Metal
+(brutal death metal from Poland)
+
+## Дискография
+
+### "Bloodlust & Blasphemy" 2000, Death Metal
+
+
+
+### "Apocalypse of the Damned" 2002, Death Metal
+
+
+
+### "Contamination" 2003, Death Metal
+
+Intro 
+Contamination 
+Unholy Sight 
+In Flames of Hate 
+Dawn of Dignity 
+Ugly Corpse of the Angel 
+Born From the Dead 
+Dirge of the Deceased 
+Death Bringer 
+Misty Mankind
+
 
 ## Отношения с другими группами
 

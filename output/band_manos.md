@@ -1,7 +1,36 @@
 # Manos
 
-Дискография
-"Terrible Reality" 1996, Death Metal
+
+
+## Дискография
+
+### "Terrible Reality" 1996, Death Metal
+
+1. From The Cradle To The Grave
+2. Metal Attack
+3. Suicidal Confusion
+4. Hell-Phantom
+5. We Mosh
+6. Terrible Rality
+7. Insidious Attack
+8. Blutige Luseht
+9. Voice Of Satan
+10.Acid War
+11.Ulehule
+12.Dirty Vision
+13.Fuck Yourself
+14.Hypocritical World
+15.Ballade Von Den Sechsen
+16.Evasion
+
+All songs written by MANOS.
+Recorded, mixed and engineered by
+Sven Conquest.
+Recorded and mixed at Powerplay
+Studio, Berlin.
+
+(p)(c) 1996 POSERSLAUGHTER Records
+
 
 ## Отношения с другими группами
 

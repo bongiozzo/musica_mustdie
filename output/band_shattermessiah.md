@@ -1,7 +1,13 @@
 # Shatter Messiah
 
-Дискография
-"Never To Play The Servant" 2006, Thrash
+
+
+## Дискография
+
+### "Never To Play The Servant" 2006, Thrash
+
+
+
 
 ## Отношения с другими группами
 

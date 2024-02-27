@@ -1,7 +1,23 @@
 # Rival
 
-Дискография
-"State Of Mind" 2004, Power Metal
+Power metal from US
+
+## Дискография
+
+### "State Of Mind" 2004, Power Metal
+
+1. State Of Mind 
+2. Extreme Agression 
+3. Reach 
+4. Insane 
+5. Tyrant 
+6. Brink 
+7. Remember You
+8. Lord Of The Knight
+9. Hell Train 
+
+(c)&(p) 2004 Metal Blade Records
+
 
 ## Отношения с другими группами
 

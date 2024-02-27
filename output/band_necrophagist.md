@@ -1,7 +1,20 @@
 # Necrophagist
 
-Дискография
-"Onset Of Putrefaction" 2000, Deathcore
+Very similar to DYING FETUS brutal death metal
+
+## Дискография
+
+### "Onset Of Putrefaction" 2000, Deathcore
+
+1. Foul Body Autopsy
+2. To Breathe In A Casket
+3. Mutilate The Stillborn
+4. Intestinal Incubation
+5. Culinary Hyperversity
+6. Advanced Corpsetumor
+7. Extreme Unction
+8. Fermented Offal Discharge
+
 
 ## Отношения с другими группами
 

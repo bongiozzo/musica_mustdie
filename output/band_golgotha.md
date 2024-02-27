@@ -1,9 +1,57 @@
 # Golgotha
 
-Дискография
-"Cave Of Mind" 1995, Death Doom
-"Melancholy" 1996, Death Doom
-"Elemental Changes" 1999, Death Doom
+
+
+## Дискография
+
+### "Cave Of Mind" 1995, Death Doom
+
+1.  Lake Of Memories
+2.  Calachos Julisbol (Memories)
+3.  Embrace Me (Into The Cold Darkness)
+4.  Immaterial Deceptions
+5.  Snow Blind
+
+Recorded and Mixed at Desgrabaciones Studios,1993
+Engineered and Mixed by Vicente, Angelo and Mabe
+
+Vicente Paya - Guitar, Bass
+Gustavo Garciolo - Guitar, Bass
+David Garciolo - Drums
+Amon Lopez - Vocals
+
+(P)c 1995 DROWNED PROD / HAEMORRHAGE PROO // BAJS 021 / UNGR 006
+
+### "Melancholy" 1996, Death Doom
+
+1.  Lonely
+2.  Lake Of Memories
+3.  Nothing
+4.  Raceflections
+5.  Lost
+6.  Immaterial Deceptions
+7.  Stillness
+8.  Virtualis Demens
+9.  Caves Of Mind
+
+Recorded and Mixed and Produced by Angelo Borras and GOLGOTHA at Desgrabaciones Studios,1995
+
+Toni Soler - Bass
+Amon Lopez - All Male Vocals
+Jose Nunez - Keyboards
+Vicente J. Paya - Guitars
+Ivan Ramos - Guitars
+Ruben Alarcon - Drums
+
+Carmen Jaime - Female Vocals
+Angelo Borras - Acoustic Guitar Solo
+
+(P)c 1996 REPULSE REC // RPS 011
+
+### "Elemental Changes" 1999, Death Doom
+
+
+
 
 ## Отношения с другими группами
 

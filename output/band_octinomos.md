@@ -1,7 +1,24 @@
 # Octinomos
 
-Дискография
-"Octinomos" 1995, Black Metal
+
+
+## Дискография
+
+### "Octinomos" 1995, Black Metal
+
+1. The Ground Shall Sorrow Be
+2. Slaves
+3. Awaiting The Ungod
+4. Still Those Stars Shine
+5. As All Is Lost
+6. On The Demiurge
+7. Moribound World
+
+All Songs Written By F.Soderlund.
+Recorded & Mixed By F.Soderlund & Matti Bjorkman.
+
+(P)&(C) 1995 FULL MOON Production
+
 
 ## Отношения с другими группами
 

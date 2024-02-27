@@ -1,12 +1,118 @@
 # God Forbid
 
-Дискография
-"Reject The Sickness" 2000, Metalcore
-"Determination" 2001, Metalcore
-"Gone Forever" 2004, Metalcore
-"IV : Constitution Of Treason" 2005, Metalcore
-"Earthsblood" 2009, Metalcore
-"Equilibrium " 2012, Metalcore
+
+
+## Дискография
+
+### "Reject The Sickness" 2000, Metalcore
+
+1. Admendment 03:02 
+2. Reject the Sickness 03:26 
+3. N2 03:21 
+4. No Sympathy 02:36 
+5. Assed Out 03:57 
+6. Ashes of Humanity (Regret) 03:51 
+7. Dark Waters 02:11 
+8. Heartless 03:41 
+9. Weather the Storm 03:54
+10. The Century Fades 01:19
+
+
+### "Determination" 2001, Metalcore
+
+Dawn Of The Millenia
+Nothing
+Broken Promise
+Divide My Destiny
+Network
+Wicked
+Determination Pt #1
+Determination Pt #2
+Go Your Own Way
+God's Last Gift
+A Reflection of The Past
+Dead Words on Dead Ears
+
+
+
+
+### "Gone Forever" 2004, Metalcore
+
+
+
+### "IV : Constitution Of Treason" 2005, Metalcore
+
+01. End Of The World, The 
+02. Chains Of Humanity 
+03. Into The Wasteland 
+04. The Lonely Dead 
+05. Divinity 
+06. Under This Flag 
+07. To The Fallen Hero 
+08. Welcome To The Apocalypse (Preamble) 
+09. Constitution Of Treason 
+10. Crucify Your Beliefs
+
+### "Earthsblood" 2009, Metalcore
+
+01 The Discovery 01:42 
+02 The Rain 05:20 
+03 Empire Of The Gun 04:45 
+04 War Of Attrition 04:27 
+05 The New Clear 06:36 
+06 Shallow 03:31 
+07 Walk Alone 06:14 
+08 Bat The Angels 06:06 
+09 Earthsblood 09:03 
+10 Gaia (The Vultures) 07:17
+
+
+All songs written and arranged by God Forbid.
+ Recorded at Trax East Recording Studio, South River, New Jersey.
+ Produced by Eric Rachel and God Forbid.
+ Engineered and edited by Eric Rachel.
+ Additional engineering and editing by Eric Kvortek.
+ Drum setup and assisting by Kyle Neely.
+ Vocals recorded at Archetype Studio, Reseda, California.
+ Vocals produced by Christian Olde Wolbers.
+ Vocals engineered and edited by Wesley Seidman and Christian Olde Wolbers.
+ Mixed and mastered by Jens Bogren at Fascination Street Studios, Orebro, Sweden.
+ 
+Pre-production produced and engineered by Steve Lagudi.
+ Drums on "Shallow" and additional vocals recorded by Steve Lagudi.
+ Additional editing, recording and formatting by Steve Lagudi.
+ Piano on "The Discovery" by Kevin Coyle AKA Dad Forbid.
+ Orchestration on "The Discovery" and "Gaia" recorded and performed by Michael Romeo (Symphony X).
+ Keyboards on "Bat the Angels" and "Earthsblood" by Michael Pinella (Symphony X).
+ Keyboards on "The Rain," "War of Attrition" and "Gaia" by Dallas Coyle, Doc Coyle and Christian OIde Wolvers.
+ Guest guitar solos on "Shallow" by Peter Joseph (The Absence) and Patrick Pintavalle (The Absence).
+ Guest guitar solo on "Earthsblood" by Kris Norris.
+ 
+Artwork and layout by Gustavo Sazes / Abstrata
+ Band photography by Clay Patrick McBride. 
+
+Bonus track for Japan:
+ 11. Stockholm Syndrome (Muse cover)
+ 
+Some issued with bonus disc "Live at the Starland Ballroom"
+ 1. Force-Fed
+ 2. Chains of Humanity
+ 3. Divide My Destiny
+ 4. Go Your Own Way
+ 5. Anti-Hero
+ 6. Better Days
+ 7. Lonely Dead
+ 8. Reject the Sickness
+ 9. Gone Forever
+ 10. Broken Promise
+ 11. To the Fallen Hero
+ 12. The End of the World
+ 13. Crucify Your Beliefs 
+
+### "Equilibrium " 2012, Metalcore
+
+
+
 
 ## Отношения с другими группами
 

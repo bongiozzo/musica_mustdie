@@ -1,7 +1,32 @@
 # Storm
 
-Дискография
-"Nordavind" 1995, Death Doom
+
+
+## Дискография
+
+### "Nordavind" 1995, Death Doom
+
+1.  Inferd
+2.  Mellom Bakkar Og Berg
+3.  Haavard Hedde
+4.  Villemann
+5.  Nagellstev
+6.  Oppi Fiellet
+7.  Langt Borti Lia
+8.  Lokk
+9.  Norvegsgard
+10.Ufferd
+
+S.Wongraven - All Guitars, Synths, Vocals
+Herr Nagel - All Drums, Vocals
+Kari Ruoslatten - Vocals
+
+Recorded In Waterfall Studios, November 1994.
+Produced By S.Wongraven.
+Engineered By Kenneth Moen.
+
+(P)c 1995 MOONFOG Productions
+
 
 ## Отношения с другими группами
 

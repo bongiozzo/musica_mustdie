@@ -1,6 +1,9 @@
 # Christian Rivel's Audiovision
 
-Дискография
+Narnia frontman solo-project
+
+## Дискография
+
 
 ## Отношения с другими группами
 

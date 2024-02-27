@@ -1,9 +1,43 @@
 # Grabak
 
-Дискография
-"Der Prophet der Chaos" 1999, Black Metal
-"Encyclopaedia Infernalis" 2001, Black Metal
-"The Serpent Within Paradise" 2003, Black Metal
+Saxonian Black Metal
+
+## Дискография
+
+### "Der Prophet der Chaos" 1999, Black Metal
+
+
+
+### "Encyclopaedia Infernalis" 2001, Black Metal
+
+Die Wiege der Flammen 
+Daemonenblut 
+Das Legat 
+Das Labyrinth der Stille 
+Visionen im Eis 
+Bluttaufe 
+Erfuellte Prophezeiungen 
+Grand Grimoire 
+Im Angesicht des Drachen
+
+### "The Serpent Within Paradise" 2003, Black Metal
+
+1. Prologue (The Heritage)
+2. Lucifugus
+3. The Serpent Within Paradise (part I: Of Men's First Fall)
+4. Der Antichrist
+5. Bloodspawn
+6. Saxonia (743-807)
+7. Lillith
+8. The Serpent Within Paradise (part I: Of Men's Final Disobedience)
+9. Inferno
+10. Epilogue (The Dark Lord's Return)
+
+
+recorded in April 2003 at ccp - studio linz / austria
+mixed by Claus Prellinger & GRABAK
+
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,23 @@
 # Ambeon
 
-Дискография
-"Fate of a Dreamer" 2001, Progressive
+
+
+## Дискография
+
+### "Fate of a Dreamer" 2001, Progressive
+
+1. Estranged
+2. Ashes  
+3. High
+4. Cold Metal
+5. Fate (instrumental)
+6. Sick ceremony  
+7. Lost Message
+8. Surreal
+9. Sweet Little Brother
+10. Dreamer (instrumental)
+
+
 
 ## Отношения с другими группами
 

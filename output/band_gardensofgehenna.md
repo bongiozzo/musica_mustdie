@@ -1,7 +1,13 @@
 # Gardens of Gehenna
 
-Дискография
-"Mechanism Masochism" 2001, Metal
+dark-metal from Germany
+
+## Дискография
+
+### "Mechanism Masochism" 2001, Metal
+
+
+
 
 ## Отношения с другими группами
 

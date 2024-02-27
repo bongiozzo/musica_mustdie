@@ -1,9 +1,21 @@
 # Antidote
 
-Дискография
-"The Truth" 1992, Thrash
-"Total" 1994, Thrash
-"Mind Alive" 1996, Thrash
+
+
+## Дискография
+
+### "The Truth" 1992, Thrash
+
+
+
+### "Total" 1994, Thrash
+
+
+
+### "Mind Alive" 1996, Thrash
+
+
+
 
 ## Отношения с другими группами
 

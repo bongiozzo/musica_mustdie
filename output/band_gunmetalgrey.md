@@ -1,6 +1,9 @@
 # Gunmetal Grey
 
-Дискография
+Bay Area California Metal Band
+
+## Дискография
+
 
 ## Отношения с другими группами
 

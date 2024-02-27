@@ -1,13 +1,76 @@
 # Himinbjorg
 
-Дискография
-"Where Ravens Fly" 1998, Viking Metal
-"In The Raven's Shadow" 2000, Viking Metal
-"Third" 2001, Viking Metal
-"Haunted Shores" 2002, Viking Metal
-"Europa" 2005, Viking Metal
-"Chants d'hier, Chants de guerre, Chants de la Terre " 2010, Black Metal
-"Wyrd" 2015, Black Metal
+Viking metal
+
+## Дискография
+
+### "Where Ravens Fly" 1998, Viking Metal
+
+
+
+### "In The Raven's Shadow" 2000, Viking Metal
+
+
+
+### "Third" 2001, Viking Metal
+
+
+
+### "Haunted Shores" 2002, Viking Metal
+
+1. The Olves  
+2. War 
+3. The Haunted Shores 
+4. Of Desire And Lust 
+5. The Eternal  
+6. Lonely  
+7. The Voices Of Revenge 
+
+
+### "Europa" 2005, Viking Metal
+
+1. Intro 00:44  
+2. Entering Odin's Huge Palace 05:48  
+3. It was In Europe 04:39  
+4. Untitled 01:19  
+5. The Inner Mirror 03:54  
+6. The Law Of The Worship 06:36  
+7. Yon 01:40  
+8. The Alienated 05:47  
+9. Like A Shadow 04:56  
+10. Untitled 01:59  
+11. Daily Desillusions 04:41  
+12. Untitled 00:46  
+13. Les Strates 04:26  
+14. Last Day In Alesia 04:43
+
+### "Chants d'hier, Chants de guerre, Chants de la Terre " 2010, Black Metal
+
+1. Convictions 04:07  
+2. Songe de l'Elfe 05:40  
+3. Black 03:36  
+4. Grandes Chevauchees 03:11  
+5. Destin de Sang 04:46  
+6. Futhark 06:26  
+7. Chant de la Lune 02:51  
+8. Contre Vents et Marees 04:45  
+9. Lonely 05:09  
+10. Chant pour les Ancetres 03:11 
+
+
+### "Wyrd" 2015, Black Metal
+
+1. Intro - Call to the Being  01:39 
+2. The Sword of Dignity  07:16    
+3. The World of Men Without Virtue - The Circle of Disillusion  07:37    
+4. The Circle of Warriors  05:26    
+5. Initiation  05:27    
+6. The Mirror of Suffering - The Circle of Ghosts  06:10    
+7. The Shamanic Whisper  06:08    
+8. Another Shore  03:15  
+9. The Eternal Light  05:02  
+
+
 
 ## Отношения с другими группами
 

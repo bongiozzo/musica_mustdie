@@ -1,8 +1,26 @@
 # Jinjer
 
-Дискография
-"Cloud Factory" 2014, Groove
-"King of Everything" 2016, Metalcore
+
+
+## Дискография
+
+### "Cloud Factory" 2014, Groove
+
+
+
+### "King of Everything" 2016, Metalcore
+
+Prologue
+Captain Clock
+Words of Wisdom
+Just Another
+I Speak Astronomy
+Sit Stay Roll Over
+Under the Dome
+Dip a Sail
+Pisces
+Beggars' Dance
+
 
 ## Отношения с другими группами
 

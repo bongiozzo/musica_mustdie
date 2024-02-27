@@ -1,9 +1,38 @@
 # Persuader
 
-Дискография
-"The Hunter" 2000, Power Metal
-"Evolution Purgatory" 2004, Power Metal
-"When Eden Burns" 2006, Power Metal
+
+
+## Дискография
+
+### "The Hunter" 2000, Power Metal
+
+1. Fire At Will 04:41 
+2. As You Wish 04:58  
+3. Cursed 04:46
+4. The Hunter 07:19
+5. Secrets 02:11  
+6. Escape 05:26 
+7. Heart and Steel 04:37  
+8. And There Was Light 04:42  
+9. My Life For You 06:14
+
+### "Evolution Purgatory" 2004, Power Metal
+
+1. Strike Down 04:42
+2. Sanity Soiled 05:13 
+3. Masquerade 04:51
+4. Godfather 04:33 
+5. Turn to Dust 05:10  
+6. Passion Pain 04:30  
+7. Raise Hell 04:39 
+8. To the End 03:56 
+9. Fire at Will 04:27 
+10. Wipe Out 04:53
+
+### "When Eden Burns" 2006, Power Metal
+
+
+
 
 ## Отношения с другими группами
 

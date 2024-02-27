@@ -1,7 +1,26 @@
 # Epysode
 
-Дискография
-"Obsessions" 2011, Progressive
+
+
+## Дискография
+
+### "Obsessions" 2011, Progressive
+
+1.	 File 41807	01:07
+2.	 Silences Of Dawn (Poetry)	01:26
+3.	 First Blood	04:39
+4.	 Obsessions	04:17
+5.	 Invisible Nations	05:04
+6.	 Gemini Syndrom	05:42
+7.	 Fallen's Portrait	05:16
+8.	 Season Of Redemption	04:10
+9.	 The Other Side	04:08
+10.	 Shadow Lord	04:42
+11.	 One Chance	06:53
+12.	 Divine Whispers	05:32
+13.	 March Of The Ghosts	07:11
+14.	 Last Sunset	04:37	
+
 
 ## Отношения с другими группами
 

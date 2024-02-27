@@ -1,8 +1,17 @@
 # Hauser
 
-Дискография
-"Stu" 2011, Deathcore
-"(des)razao" 2016, Deathcore
+
+
+## Дискография
+
+### "Stu" 2011, Deathcore
+
+
+
+### "(des)razao" 2016, Deathcore
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,24 @@
 # Horrorscope
 
-Дискография
-"Pictures Of Pain" 2001, Thrash
+
+
+## Дискография
+
+### "Pictures Of Pain" 2001, Thrash
+
+Rising 
+Inferno 
+Highway of The Lost 
+Macabra Cadabra 
+Darkest Future 
+The Deal 
+Deal With The Devil 
+Read The Signs 
+The Aztec Sun 
+Aargh Leons 
+Count The Dead 
+Pictures of Pain
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,21 @@
 # Pit, The
 
-Дискография
-"Disrupted Human Symmetry" 2008, Thrash
+
+
+## Дискография
+
+### "Disrupted Human Symmetry" 2008, Thrash
+
+1. Wrathful Machinery   
+2. Nobody Dwells   
+3. Scorched Horizon   
+4. Inner Flux of Rage   
+5. Rusted Will   
+6. Killing Messiah   
+7. Hellspeed Detonation   
+8. Black Bullet   
+9. Night of Knives 
+
 
 ## Отношения с другими группами
 

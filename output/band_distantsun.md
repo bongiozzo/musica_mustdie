@@ -1,8 +1,17 @@
 # Distant Sun
 
-Дискография
-"Dark Matter" 2015, Power Metal
-"Into the Nebula" 2016, Power Metal
+
+
+## Дискография
+
+### "Dark Matter" 2015, Power Metal
+
+
+
+### "Into the Nebula" 2016, Power Metal
+
+
+
 
 ## Отношения с другими группами
 

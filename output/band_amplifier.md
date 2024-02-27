@@ -1,7 +1,13 @@
 # Amplifier
 
-Дискография
-"Insider" 2006, Alternative
+
+
+## Дискография
+
+### "Insider" 2006, Alternative
+
+
+
 
 ## Отношения с другими группами
 

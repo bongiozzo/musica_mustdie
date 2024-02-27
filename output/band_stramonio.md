@@ -1,8 +1,34 @@
 # Stramonio
 
-Дискография
-"Seasons of Imagination" 2000, Progressive
-"Mother Invention" 2002, Progressive
+prog-metal
+
+## Дискография
+
+### "Seasons of Imagination" 2000, Progressive
+
+AWAKE THE JESTER
+ASHES IN THE WIND 
+I SWIM IN THE AIR
+GET LOST IN TIME 
+WITHOUT YOU
+THE SONG OF THE HARVEST FLY
+VITAL ELATION 
+ 
+
+
+### "Mother Invention" 2002, Progressive
+
+DESERT NIGHT
+APPOINTMENT WITH LIFE
+SNOW CRYSTAL
+IN MY EYES
+LOOSE FROM A DAM
+ANTARTIC OASIS
+HERE I AM
+TIME
+SOMEONE LIKE ME
+
+
 
 ## Отношения с другими группами
 

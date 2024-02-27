@@ -1,7 +1,31 @@
 # Inner Thought
 
-Дискография
-"Wordly Separation" 1994, Death Metal
+Melodic Techno Death Metal
+
+## Дискография
+
+### "Wordly Separation" 1994, Death Metal
+
+1. Madness
+2. Wordly Separation
+3. Drowning In Sorrow
+4. In Ourselfves We Trust
+5. War
+6. Diseased Infected Earth
+7. Forever Distant
+8. Disorder Of Battles
+9. Ethnic Cleansing
+
+ Kelly Mantico - Vocals
+ Roland Murray - Guitars
+ Bob Sadzak - Lead Guitars, Bass, Keyboards
+
+All Songs Written By INNER THOUGHT
+Produced By Mark Peters & Bob Sadzak
+Engineered At The Metal Works, Ontario, Canada
+
+(p)&(c) 1994 WITCHHUNT Records
+
 
 ## Отношения с другими группами
 

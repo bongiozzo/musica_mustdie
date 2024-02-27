@@ -1,9 +1,53 @@
 # Revolting
 
-Дискография
-"Dreadful Pleasures" 2009, Death Metal
-"The Terror Threshold" 2010, Death Metal
-"In Grisly Rapture" 2011, Death Metal
+
+
+## Дискография
+
+### "Dreadful Pleasures" 2009, Death Metal
+
+1. Tenafly Viper
+2. Terror Has No Shape
+3. Overtaken by the Crawling
+4. They're Not Human
+5. Moonshine Mutation
+6. Video Vixen
+7. Brainwaves of Death
+8. Sheetar the Bloodqueen
+9. Dreadful Pleasures
+
+### "The Terror Threshold" 2010, Death Metal
+
+1. Gulp the Blood...
+2. The Grip of Death	 
+3. Grotesque Beyond Belief	 
+4. Heads in the Fridge 
+5. Rise of the Revolter
+6. Harvest the Humans	 
+7. Trigger the Trap	 
+8. Bloodthirsty Bitches	 
+9. Destructive Organism	 
+10. Horror Hooker	 
+11. Gorezone Obsession	 
+12. Vengeance of the Nails	 
+13. Slimetime	 
+14. Grizzly Aftermath	 
+15. Welcome to the Shredshed	 
+16. Bonesaw Leftovers	 
+17. Skull Scavengers
+
+### "In Grisly Rapture" 2011, Death Metal
+
+1. Hell in Dunwich
+2. The Plague of Matul
+3. Human Exterminator
+4. Dr. Freudstein
+5. "Died of Fright" 
+6. Sucked Into the Sand 
+7. (Beyond) the Book of Eibon
+8. The Devil Witch  
+9. Hideous & Revolting
+
 
 ## Отношения с другими группами
 

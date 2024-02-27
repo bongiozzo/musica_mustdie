@@ -1,7 +1,23 @@
 # Resonance Room
 
-Дискография
-"Unspoken" 2009, Gothic
+
+
+## Дискография
+
+### "Unspoken" 2009, Gothic
+
+1. Unreason 01:45  
+2. Escape 05:51  
+3. Far from Grace 04:53  
+4. Maybe You Are... 08:02  
+5. The Warmth of Life 04:04  
+6. Frost And Emptiness 05:44  
+7. Bloodred 04:22  
+8. A Prayer 04:35  
+9. Instants of Madness 04:23  
+10. While I'll Burn 05:26  
+11. Unspoken 08:30 
+
 
 ## Отношения с другими группами
 

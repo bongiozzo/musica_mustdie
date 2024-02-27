@@ -1,7 +1,20 @@
 # Spermbirds
 
-Дискография
-"Get Off The Stage" 1996, Punk
+
+
+## Дискография
+
+### "Get Off The Stage" 1996, Punk
+
+1.  Only A Phase
+2.  Pop Song
+3.  Melt The Ice
+4.  Your Opinion
+
+Recorded and Mixed at Kulturzentrum Kaiserlughtern, 1995.
+
+(P)&c 1996 GUN Records
+
 
 ## Отношения с другими группами
 

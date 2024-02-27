@@ -1,8 +1,31 @@
 # Juggernaut
 
-Дискография
-"Baptism Under Fire" 1986, Thrash
-"Trouble Within" 1987, Thrash
+
+
+## Дискография
+
+### "Baptism Under Fire" 1986, Thrash
+
+ Side One:
+1. Impaler 3.24
+2. Slow Death 2.00
+3. Cast The First Stone 2.39
+4. Rains Of Death 3.09
+5. Cutthroat 1.58
+6. Hallows Eve 3.17
+ Side Two:
+1. Burn Tonight 2.35
+2. Juggernaut 2.29
+3. Purgatory's Child 3.41
+4. Blizzards 2.35
+5. Hang 'Em All 3.18
+
+(p)&(c) 1986 METAL BLADE Records
+
+### "Trouble Within" 1987, Thrash
+
+
+
 
 ## Отношения с другими группами
 

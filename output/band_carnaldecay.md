@@ -1,9 +1,21 @@
 # Carnal Decay
 
-Дискография
-"Carnal Pleasures" 2006, Death Metal
-"Chopping Off the Head" 2008, Death Metal
-"On Top of the Food Chain" 2011, Death Metal
+
+
+## Дискография
+
+### "Carnal Pleasures" 2006, Death Metal
+
+
+
+### "Chopping Off the Head" 2008, Death Metal
+
+
+
+### "On Top of the Food Chain" 2011, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

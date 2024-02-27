@@ -1,7 +1,25 @@
 # Soulless
 
-Дискография
-"Forever Defiant" 2007, Thrash
+USA thrash
+
+## Дискография
+
+### "Forever Defiant" 2007, Thrash
+
+1. What Remains 
+2. The Price Of Life
+3. To The Death
+4. The Devil's Hand
+5. Of Liar And Thieves
+6. As Darkness Dawns 
+7. D-Composition
+8. The Hunt
+9. Deadly Sins
+10. Betray The Light
+11. Prey On The Weak
+12. Dead To Me
+13. Straight To Hell
+
 
 ## Отношения с другими группами
 

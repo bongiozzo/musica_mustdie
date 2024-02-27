@@ -1,7 +1,22 @@
 # Eyes Of Eden
 
-Дискография
-"Faith" 2007, Gothic
+
+
+## Дискография
+
+### "Faith" 2007, Gothic
+
+01. Winter Night (3:35)
+02. When Gods Fall (3:37)
+03. Star (3:47)
+04. Pictures (4:09)
+05. Dancing Fire (3:15)
+06. Sleeping Minds (3:59)
+07. Daylight (4:03)
+08. Man In The Flame (4:21)
+09. From Heaven Sent (4:16)
+10. Not Human Kind (10:01)
+
 
 ## Отношения с другими группами
 

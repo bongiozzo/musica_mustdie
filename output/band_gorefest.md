@@ -1,16 +1,233 @@
 # Gorefest
 
-Дискография
-"Mindloss" 1991, Death Metal
-"False" 1992, Death Metal
-"The Eindhoven Insanity" 1993, Death Metal
-"Erase" 1994, Death Metal
-"Fear" 1994, Death Metal
-"Soul Survivor" 1996, Death Metal
-"Freedom" 1996, Death Metal
-"Chapter 13" 1998, Death Metal
-"La Muerte" 2005, Death Metal
-"Rise to Ruin" 2007, Death Metal
+Highest Holland's League
+
+## Дискография
+
+### "Mindloss" 1991, Death Metal
+
+1. Intro
+2. Mental Misery *
+3. Putrid Stench Of Human Remains
+4. Foetal Carnage
+5. Tangled In Gore
+6. Confessions Of A Serial Killer *
+7. Horrors In A Retarded Mind
+8. Loss Of Flesh *
+9. Decomposed
+10.Gorefest *
+
+ Jan-Chris De Koeyer - Vocals & Bass
+ Frank Haarthoorn - Guitars
+ Alex Van Schaik - Guitars
+ Marc Hoogedoorn - Drums
+
+All Songs By GOREFEST,Except Of * By Alex Van Schaik.
+Produced By Colin Richardson.
+Engineered By Willem Steenijes.
+
+(p)&(c) 1991 FOUNDATION 2000 Records
+
+### "False" 1992, Death Metal
+
+1. The Glorious Dead
+2. State Of Mind
+3. Reality-When You Die
+4. Get-A-Life
+5. False
+6. Second Face
+7. Infamous Existence
+8. From Ignorance To Oblivion
+9. The Mass Insanity
+
+ Jan-Chris De Koeyer - Vocals & Bass
+ Frank Haarthoorn - Guitars
+ Boudewyn Bonebakker - Guitars
+ Ed Warby - Drums
+
+Recorded At Ron Konings Studio Vrouwenpolder,
+Netherlands,26.6-24.7,1992.
+Engineered By Colin Richardson.
+Mixed At Windings Residential Studio,
+Wrexham,England 21-26.9,1992.
+Engineered By Pete Coleman.
+Produced By Colin Richardson.
+Executive Producer Markus Staiger.
+
+(p)&(c) 1992 NUCLEAR BLAST Records NB069
+
+### "The Eindhoven Insanity" 1993, Death Metal
+
+1. The Glorious Dead
+2. State Of Mind
+3. Get-A-Life
+4. Mental Misery
+5. From Ignorance To Oblivion
+6. Reality - When You Die
+7. The Mass Insanity
+8. Confessions Of A Serial Killer
+9.Eindhoven Roar
+
+ Jean-Chris De Koeyer - Bass & Vocals
+ Frank Harthoorn  - Guitar
+ Baudewijn Bonebakker - Guitar
+ Ed Warby   - Drums
+
+Recorded Live At "Dynamo Open Air"
+30.05.1993 By Eric Van De Berg
+Produced By GOREFEST,
+Tim Buktu & M.Staiger
+
+(p)&(c) 1993 NUCLEAR BLAST Records
+
+### "Erase" 1994, Death Metal
+
+1. Low
+2. Erase
+3. I Walk My Way
+4. Fear
+5. Seeds Of Hate
+6. Peace Of Paper
+7. Goddess In Black
+8. To Hell And Back
+
+ Jean-Chris De Koeyer - Bass & vocals
+ Frank Harthoorn - Guitar
+ Baudewijn Bonebakker - Guitar
+ Ed Warby - Drums
+
+All Songs Written & Arranged By GOREFEST.
+Produced & Engineered By Pete Coleman.
+Recorded & Mixed At T&T Studio, Gelsenkirchen,Germany 1994.
+
+(P)&(C) 1994 NUCLEAR BLAST Records
+
+### "Fear" 1994, Death Metal
+
+1.Fear
+2.Raven
+3.Horror '94
+4.Fear (Live) 
+
+Jean-Chris De Koeyer - Bass & vocals
+ Frank Harthoorn - Guitar
+ Baudewijn Bonebakker - Guitar
+ Ed Warby - Drums
+
+All Songs Written & Arranged By GOREFEST.
+Produced & Engineered By Pete Coleman.
+Recorded & Mixed At T&T Studio, Gelsenkirchen,Germany 1994.
+
+(P)&(C) 1994 NUCLEAR BLAST Records
+
+### "Soul Survivor" 1996, Death Metal
+
+1. Freedom
+2. Fourty Shades
+3. River
+4. Electric Poet
+5. Soul Survivor
+6. Blood Is Thick
+7. Dogday
+8. Demon Seed
+9. Chameleon
+10.Dragonman
+
+(p)&(c) 1996 NUCLEAR BLAST Records
+
+### "Freedom" 1996, Death Metal
+
+1. Freedom (Single Edit)
+2. Tired Moon
+3. Goddess In Black
+4. Freedom
+
+All songs written by GOREFEST
+Produced by Oscar Holleman and GOREFEST.
+Engineered by Oscar Holleman
+Recorded and mixed at Bauwhaus Studio, Amsterdam, Holland
+
+Jan-Chris de Koeijer - Vocals, Bass
+Boudewijn Bonebakker - Lead Guitar
+Frank Harthoorn - Guitar
+Ed Warby - Drums
+
+'Goddess In Black' was previously performed at the
+"with a little help from my friends" concert Paradiso Amsterdam.
+
+(p)c 1996 NUCLEAR BLAST Records
+
+### "Chapter 13" 1998, Death Metal
+
+1. Chapter Thirteen 03:05
+2. Broken Wing 04:04  
+3. Nothingness 02:23  
+4. Smile 03:08 
+5. The Idiot 03:37  
+6. Repentance 05:04 
+7. Bordello 02:54  
+8. F.S. 2000 06:09  
+9. All is Well 03:30  
+10. Unsung 05:54  
+11. Burn Out 03:15 
+12. Super Reality 03:16  
+13. Serve the Masses 05:01 
+
+
+### "La Muerte" 2005, Death Metal
+
+1. For the Masses 04:47  
+2. When The Dead Walk the Earth 04:46   
+3. You Could Make Me Kill 05:45  
+4. Malicious Intent 05:47   
+5. Rogue State 07:09 
+6. The Call 04:52  
+7. Of Death and Chaos (A Grand Finale) 04:14  
+8. Exorcism 04:09 
+9. Man to Fall 03:50  
+10. The New Gods 04:08   
+11. 'Till Fingers Bleed 05:18    
+12. La Muerte 09:54  
+
+
+
+Jan-Chris De Koeijer - vocals, bass 
+Boudewijn Bonebakker - lead guitar 
+Frank Harthoorn- guitar 
+Ed Warby - drums
+
+### "Rise to Ruin" 2007, Death Metal
+
+1. Revolt 05:27  
+2. Rise to Ruin 04:48
+3. The War on Stupidity 04:14 
+4. A Question of Terror 05:35  
+5. Babylon's Whores 09:09
+6. Speak When Spoken to 04:19 
+7. A Grim Charade 05:08 
+8. Murder Brigade 04:15
+9. The End of It All 05:46 
+
+
+Recorded at Excess Studios, Rotterdam, March 2007.
+Engineered by Hans Pieters and Dennis Leijdelmeijer.
+Produced by Gorefest.
+
+Vocals recorded at Antfarm, Aarhus, April 2007 by Tue Madsen.
+
+Additional vocals on 'Revolt' and 'Speak When Spoken To' by Jacob Bredahl.
+Jacob appears courtsey of Hatesphere and SPV Records.
+
+Cover artwork bt Rob 'Mid' Middleton.
+Layout by S. Kahnert at Nuclear Blast.
+
+Released on September 25th in the U.S.
+
+Digipak version features two bonus tracks:
+10. Surrealism (04:29)
+11. Dehumanization (03:32) 
+
+
 
 ## Отношения с другими группами
 

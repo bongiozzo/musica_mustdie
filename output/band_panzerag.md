@@ -1,7 +1,27 @@
 # Panzer AG
 
-Дискография
-"This Is My Battlefield" 2004, Industrial
+
+
+## Дискография
+
+### "This Is My Battlefield" 2004, Industrial
+
+01. Introduction Of The Damned
+02. Filth God
+03. Battlefield
+04. Chemical Breed
+05. When Death Embrace Me
+06. Bereit
+07. Totale Luftherrschaft
+08. Sick Is The One Who Adores Me
+09. Panzer
+10. Tides That Kill (Panzer AG vs. Symbiont)
+11. God Eats God
+12. It Is All In Your Head
+13. Behind A Gasmask
+14. Pure Tension
+15. Drukne I Taarer
+
 
 ## Отношения с другими группами
 

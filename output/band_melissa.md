@@ -1,10 +1,109 @@
 # Melissa
 
-Дискография
-"In Mourning" 1995, Death Doom
-"In Peace..." 1999, Heavy Metal
-"Living in a Daymare" 2002, Metal
-"In The Face Of Death" 2011, Thrash
+
+
+## Дискография
+
+### "In Mourning" 1995, Death Doom
+
+1. Hate  
+2. Dark Deeds 
+3. Beyond  
+4. Vampire  
+5. Suicide  
+6. Distraught with Grief  
+7. Narcotherapy  
+8. Evil Beauty  
+9. All 4-1  
+10.Exhausted  
+
+
+
+Nick T. - guitar, vocals
+Paul G. - guitar, bass
+Paul D. - drums
+Additional bass solo on "Hate" by Sergey O.  
+Recorded and mixed by Paul Droban at MELISSA studio, April 1995  
+Mastered by Vladimir Holstinin at ARIA Records, Moscow, May 1995  
+Produced by MELISSA   
+Executive producer Agen Price.  
+
+
+
+
+### "In Peace..." 1999, Heavy Metal
+
+1. Down and Fall    
+2. Innocent Peace  
+3. This Time  
+4. Doncha Feel the Sky?  
+5. Pizza Song  
+6. Mindrape  
+7. Scars  
+8. Burning  
+9. Knife in a Back  
+
+
+Nikolai Touzov - guitars, vocals  
+Pavel Ginkin - guitars  
+Sergey Olkhovsky - bass  
+Alexander Arzamastsev - drums
+Guitar solos :  
+ 1, 2, 3, 7, 8 - Pavel G.  
+ 4, 9 - Yuri Rusakov  
+ 8 - Nikolai T.
+Keyboards : Sergey Bondarenko  
+Acoustic guitar : Nikolai T.  
+Saxophone : Alexander Mamonov  
+Recorded at “Signal Studio” by Valery Muzyka.  
+Mixed at "MELISSA Studio” by Valery Muzyka, assisted by Nick T.   
+Music written by Nick T. except track 7 by Nick T. and Paul G. and track 5 by Alexander A., Nick T. and Sergey O.   
+Vocals on track 5 by Nick T. and Alexander A.   
+Bass guitar on track 4 by Paul G.  
+All lyrics by Nick T.   
+Produced by Nick T. and MELISSA   
+
+Recorded and mixed digitally in February/March ‘98, Obninsk.   
+
+
+### "Living in a Daymare" 2002, Metal
+
+01.So Loud
+02.Kill for me
+03.Trepanation
+04.Two weeks a day
+05.Inside
+06.Crack
+07.Yes
+08.Simple things
+09.Re
+10.Landing
+
+
+### "In The Face Of Death" 2011, Thrash
+
+1. Burning
+2. I Hate You
+3. Today
+4. Narcotherapy
+5. Dual Personality
+6. Void
+7. Dark Deeds
+8. Distraught with Grief
+9. To You
+10. Vampire
+
+Николай Тузов - вокал, гитара
+Павел Гинкин - гитара, бас
+Сергей Бондаренко - бас, клавишные
+Андрей Ищенко - барабаны
+
+Snowy Shaw - барабаны (1,2)
+Andy LaRocque - соло-гитара (3,10)
+Сергей Ольховский - бас (4,10)
+Олег Жиляков - вокал (10)
+Валерий Саркисов - соло-гитара (2)
+
 
 ## Отношения с другими группами
 

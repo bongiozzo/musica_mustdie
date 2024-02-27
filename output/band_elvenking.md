@@ -1,16 +1,250 @@
 # Elvenking
 
-Дискография
-"To Oak Woods Bestowed" 2000, Heavy Metal
-"Heathenreel" 2001, Heavy Metal
-"Wyrd" 2004, Heavy Metal
-"The Winter Wake" 2006, Heavy Metal
-"The Scythe" 2007, Heavy Metal
-"Two Tragedy Poets (...And a Caravan of Weird Figures)" 2008, Folk
-"Red Silent Tides" 2010, Heavy Metal
-"Era" 2012, Heavy Metal
-"Elvenlegions (single)" 2014, Heavy Metal
-"The Pagan Manifesto" 2014, Heavy Metal
+Melodical heavy with mediaeval folk-music elements
+
+## Дискография
+
+### "To Oak Woods Bestowed" 2000, Heavy Metal
+
+01 - To Oak Woods Bestowed
+02 - White Willow
+03 - Banquet Of Bards
+04 - Oakenshield
+05 - Under The Tree Of Us'dum
+
+Line-up: 
+Damnagoras - vocals and bass
+Jarpen - guitars, growls, b.v.
+Aydan - guitars, b.v.
+Zender - drums
+
+Guest Musicians: 
+Paolo Giacomini - keyboards and orchestration arrangements
+Pauline Tacey - soprano female vocals 
+Fabio Bonacotta - backing vocals
+Paolo Polesel - fiddles 
+Umberto Corazza - flutes
+Luigi Stefanini - additional arrangements
+
+
+### "Heathenreel" 2001, Heavy Metal
+
+1. TO OAK WOODS BESTOWED
+(M/L Damnagoras)
+2. PAGAN PURITY
+(M/L Aydan, Damnagoras, Jarpen)
+3. THE DWELLER OF RHYMES
+(M/L Jarpen)
+4. THE REGALITY DANCE
+(M/L Jarpen, Damnagoras, Aydan)
+5. WHITE WILLOW
+(M/L Damagoras)
+6. SKYWARDS
+(M: Damagoras, Jarpen, Aydan L: Damnagoras)
+7. OAKENSHIELD
+(M/L Aydan)
+8. HOBS AN' FEATHERS
+(M/L Damnagoras)
+9. CONJURING OF THE 14Th
+(M/L Aydan)
+10. A DREADFUL STRAIN
+(M/L Jarpen)
+11. SEASONSPEECH
+(M: Aydan, Damnagoras, Jarpen L: Aydan)
+
+12. PENNY DREADFUL
+Skyclad - Japan bonus track
+    
+      
+  Line-up: 
+Damnagoras - vocals
+Jarpen - guitars, growls, b.v.
+Aydan - guitars, b.v.
+Gorlan - 5 strings
+Zender - drums   
+      
+       
+ Guest Musicians: 
+Cristiano Bergamo - keyboards arrangements on tracks 4,6,7,9,10
+Paolo Torresani - keyboards arrangements on tracks 2,3,5
+Pauline Tacey - soprano female vocals 
+Laura De Luca - backing vocals, "spring" vocals on track 11
+Paolo Polesel - fiddles 
+Umberto Corazza - flutes
+Luigi Stefanini - additional arrangements  
+
+
+
+ Recorded by Luigi Stefanini at NEW SIN Audio Design, Loria (TV), Italy, February 2001
+Mixed by Fredrik Nordstrom at STUDIO FREDMAN, Goteborg, Sweden, March 2001
+Mastered by Goran Finnberg at THE MASTERING ROOM, Goteborg, Sweden, March 2001
+Cover artwork by Travis Smith
+Logo design by J.P. Fournier 
+
+
+### "Wyrd" 2004, Heavy Metal
+
+01. The Losers' Ball
+02. Pathfinders
+03. Jigsaw Puzzle
+04. The Silk Dilemma
+05. Disappearing Sands (ltd. edition bonus track)
+06. Moonchariot
+07. The Perpetual Knot
+08. Another Haven
+09. A Fiery Stride (ltd. edition bonus track)
+10. Midnight Circus
+11. A Poem For The Firmament
+
+### "The Winter Wake" 2006, Heavy Metal
+
+
+
+### "The Scythe" 2007, Heavy Metal
+
+1. The Scythe 05:36
+2. Lost Hill of Memories 04:58 
+3. Infection 05:24  
+4. Poison Tears 04:30
+5. A Riddle of Stars 05:22
+6. Romance & Wrath 08:14 
+7. The Divided Heart 04:39 
+8. Totentanz 02:28  
+9. Death and the Suffering 05:11  
+10. Dominhate 08:57 
+
+
+
+The CD was mixed at Sonic Pump Studios in Helsinki, Finland. The mastering took
+place on April 10 at Finnvox Studios with Mika Jussila and Nino Laurenne.
+
+A video for the song "The Divided Heart" was shot with director Mirco Andreis
+(Eldritch, Macbeth, Disarmonia Mundi).
+
+Line-up:
+Damnagoras Vocals
+Aydan Guitars
+Elyghen Keyboards & Violin
+Gorlan Bass
+Zender Drums
+
+Guest Player:
+Mike Wead Guitar Solo On “The Scythe” & 2nd Solo On “A Riddle Of Stars”
+Laura De Luca Female Vocals On “Romance And Wrath” & “Dominhate”
+Jared Shackleford Poetry Of Death
+Mauro Bortolani Piano 
+Isabella Tuni The Lady With The Scythe On “Romance And Wrath” 
+Laura De Luca, Pauline Tacey, Claudio Coassin & Aydan Backing Vocals 
+Claudio Coassin, Damnagoras, Aydan & Jarpen Scream & Growls
+
+The String Quartet:
+Eleonora Steffan - Violin
+Valentina Mosca - Violin
+Elyghen - Viola
+Marco Balbinot - Cello
+
+The digipack edition contains a bonus song called "Horns Ablaze" (4:23) between
+"The Divided Heart" and "Totentanz". The bonus track gets tracknumber 8, and the
+rest of the songs (8, 9, 10) move down one place (and thus become 9,10 and 11).
+
+The Japanese version contains the bonus track 'The Open Breach' (04:56) as
+track #12. (Recorded during the sessions for the 'Winter Wake' album). 'Horns
+Ablaze' is also on the Japanese Edition of the album. 
+
+### "Two Tragedy Poets (...And a Caravan of Weird Figures)" 2008, Folk
+
+1. The Caravan of Weird Figures 01:16  
+2. Another Awful Hobs Tale 03:09  
+3. From Blood to Stone 04:11  
+4. Ask a Silly Question 03:30  
+5. She Lives at Dawn 01:24  
+6. The Winter Wake 04:11  
+7. Heaven is a Place on Earth 04:11  
+8. My Own Spider's Web 04:21  
+9. Not My Final Song 04:44  
+10. The Blackest of My Hearts 03:30  
+11. The Wanderer (digipack bonus) 04:54  
+12. Miss Conception 04:50  
+13. My Little Moon 03:47 
+
+
+This is an entirely acoustic album. "The Winter Wake" and "The Wanderer" are
+re-recordings of existing Elvenking songs.
+
+The Japanese version of the album has a bonus track:
+14. Skywards 2008 
+
+### "Red Silent Tides" 2010, Heavy Metal
+
+1. Dawnmelting 04:09  
+2. The Last Hour 04:39  
+3. Silence De Mort 04:27  
+4. The Cabal 04:20  
+5. Runereader 05:23  
+6. Possession 04:07  
+7. Your Heroes Are Dead 03:54  
+8. Those Days 04:06  
+9. This Nightmare Will Never End 04:46  
+10. What's Left Of Me 04:39  
+11. The Play Of The Leaves 05:30 
+
+
+The CD was recorded at the Piranha Studio in Karsdolf, Germany with producer
+Dennis Ward (Angra, Pink Cream 69, Primal Fear). The album's cover artwork was
+created by Samuel Araya (Cradle of Filth). 
+
+### "Era" 2012, Heavy Metal
+
+01. The Loser 04:58 
+02. I Am The Monster 05:11 
+03. Midnight Skies, Winter Sighs 04:33 
+04. A Song For The People 01:45 
+05. We, Animals 04:07 
+06. Through Wolf's Eyes 03:18 
+07. Walking Dead 03:44 
+08. Forget-Me-Not 05:39 
+09. Poor Little Baroness 05:18 
+10. The Time Of Your Life 04:19 
+11. Chronicle Of Frozen Era 06:40 
+12. Ophale 02:46
+13. Khanjar 04:26
+
+There are three different versions of this album:
+ 
+- The regular edition includes twelve songs.
+ 
+- The "Deluxe edition" includes one bonus track:
+ 13. Khanjar (04:26)
+ 
+- The "Limited digipack edition" that omits "Khanjar" and includes two other bonus songs instead:
+ 13. Grey Inside (04:16)
+ 14. I Am The Monster (only Damna's vocals) (05:13) 
+
+### "Elvenlegions (single)" 2014, Heavy Metal
+
+1. Elvenlegions 03:52
+
+
+### "The Pagan Manifesto" 2014, Heavy Metal
+
+1. The Manifesto 
+2. King of the Elves 
+3. Elvenlegions 
+4. The Druid Ritual of Oak 
+5. Moonbeam Stone Circle 
+6. The Solitaire 
+7. Towards the Shores 
+8. Pagan Revolution 
+9. Grandier's Funeral Pyre 
+10. Twilight of Magic 
+11. Black Roses for the Wicked One 
+12. Witches Gather 
+
+
+The digipak version has 2 bonus tracks:
+ 13. Amethyst
+ 14. Cyfarwydd 
+
 
 ## Отношения с другими группами
 

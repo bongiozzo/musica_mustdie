@@ -1,7 +1,23 @@
 # Epicurean
 
-Дискография
-"A Consequence Of Design" 2008, Melodic Death Metal
+
+
+## Дискография
+
+### "A Consequence Of Design" 2008, Melodic Death Metal
+
+1. The Author And The Architect 
+2. Behind The Chapel Walls 
+3. Lithograph 
+4. The Burden Of Eternity 
+5. Illumination 
+6. Dividing The Distance 
+7. Of Malice And Majesty 
+8. Anathema: The Gate Keeper 
+9. Darkest Of Days 
+10. To Cast The Mourning Shadow 
+11. The Departure
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,27 @@
 # Almanac
 
-Дискография
-"Self-Blinded Eyes [single] " 2016, Heavy Metal
-"Tsar" 2016, Heavy Metal
+the new band formed by Victor Smolski (ex-RAGE)
+
+## Дискография
+
+### "Self-Blinded Eyes [single] " 2016, Heavy Metal
+
+1. Self-Blinded Eyes 06:00
+
+Andy B. Franck - vocals 
+David Readman - vocals 
+Jeannette Marchewka - vocals 
+Victor Smolski - guitar 
+Armin Alic - bass 
+Michael Kolar - drums 
+Enric Garcia - keyboards & piano 
+feat. Orquestra Barcelona Filharmonia 
+
+
+### "Tsar" 2016, Heavy Metal
+
+
+
 
 ## Отношения с другими группами
 

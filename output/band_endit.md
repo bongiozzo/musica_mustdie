@@ -1,6 +1,9 @@
 # End It
 
-Дискография
+thrash-metal from Detroit, MI USA
+
+## Дискография
+
 
 ## Отношения с другими группами
 

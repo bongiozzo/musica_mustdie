@@ -1,7 +1,33 @@
 # Werwolf
 
-Дискография
-"Zeitenwende - Only The Strong Survive..." 1996, Black Metal
+
+
+## Дискография
+
+### "Zeitenwende - Only The Strong Survive..." 1996, Black Metal
+
+1. Prelude
+2. Warwolf
+3. War Is King And Father Of All
+4. The True God Lives In The Mind
+5. On The Edge To A New Age
+6. Only The Strong Survive
+7. Under The Flag Of The Sunwheel
+8. Eclipsed By The Moon
+9. March Till Death
+
+All Songs Written By WERWOLF.
+Produced By Cornelius Dix.
+Mixed By Cornelius Dix & Hagen.
+Recorded & Mixed At Cosmix Studios, Vienna.
+
+Hagen - All Vocals
+Trifixion Of The Horned King - Drums, Keyboards
+Wolf - Guitars, Bass
+Harold Jehova - Guitars
+
+(P)&(C) 1996 LETHAL Records
+
 
 ## Отношения с другими группами
 

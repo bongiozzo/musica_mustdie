@@ -1,7 +1,36 @@
 # Heresy
 
-Дискография
-"Face Up To It" 1989, Alternative
+
+
+## Дискография
+
+### "Face Up To It" 1989, Alternative
+
+1. Consume
+2. Face Up To It
+3. Too Close To Home
+4. Flowers In Concrete Belief
+5. Network Of Friends
+6. When Unity Become Solidarity
+7. Acceptance
+8. Cornered Rat
+9. Dedication From Inspiration
+10.Against The Grain
+11.Sick Of Stupidity
+12.Trapped In A Scene
+13.Believing A Lie
+14.Into The Grey
+15.Build Up-Knock Down
+16.The Streets Enters House
+17.Make The Connection
+
+ John - Vocals
+ Kalv - Bass
+ Baz - Guitars
+ Steve - Drums
+
+(p)&(c) 1989 IN YOUR FACE Records
+
 
 ## Отношения с другими группами
 

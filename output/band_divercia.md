@@ -1,8 +1,46 @@
 # Divercia
 
-Дискография
-"Modus Operandi" 2002, Gothic
-"Cycle Of Zero" 2004, Gothic
+
+
+## Дискография
+
+### "Modus Operandi" 2002, Gothic
+
+01.LEAD IN 
+02.TRANSYLVANIAN (LOVE) 
+03.EVERLASTING 
+04.THE HEART OF ATLANTIS 
+05.AS MIST DESCENDS 
+06.MODUS OPERANDI 
+07.TO FORGIVE 
+08.HOLLOWED 
+09.EIGHTHUNDRED AND SEVENTYNINE 
+10.VAYA CON DIABLOS 
+11.PLANETEER
+
+
+Jyri Aarniva CANTANTE 
+Sami Inkilainen CHITARRA 
+Jarno Laakso CHITARRA 
+Jukka Hoffren BASSO 
+Jarno Hanninen BATTERIA 
+Jarno Hanninen TASTIERE 
+
+
+
+
+### "Cycle Of Zero" 2004, Gothic
+
+1. Of Steel & Man
+2. Iron Hearted Cross
+3. Overwhelming
+4. Cycle of Zero
+5. Underground
+6. 7,62
+7. 2nd Ghost
+8. Start at the End
+9. God for Gold
+
 
 ## Отношения с другими группами
 

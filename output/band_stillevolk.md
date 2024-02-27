@@ -1,7 +1,41 @@
 # Stille Volk
 
-Дискография
-"Satyre Cornu" 2001, Folk
+
+
+## Дискография
+
+### "Satyre Cornu" 2001, Folk
+
+01. Le Satyre Cornu
+02. Rassa Tan Creis
+03. Pan Domna Poc
+04. Les Crapauds
+05. Le Reveil De Pan
+06. Marche Nocturne
+07. La Vengeance De Pan
+08. Quan L'Herba Fresca
+09. Invocation A Pan
+10. Adoumestica Una Terro
+11. Le Satyre Cornu
+
+Patrick Lafforgue - (vocals, wind instruments)
+Patrice Roques - (strings)
+
+Instruments a cordes: luth arabe (oud), guitares,
+bouzouki, dulcimer, violin, mandoline, psalterion,
+vielle a roue
+Instruments a vents: chalemie, cornemuse,
+bombarde, flutes, orgue, portatif, guimbarde
+Percussions F E petiteau: cornemuse landaise,
+gaita, corne, d`appel, crecelle, tambourin a
+cordes.
+
+Enregistre par Stille Volk durant l`hiver
+1000-2001 a la chapelle de Montoulieu et au Studio
+Abellion
+Mixe par: Stille Volk
+Mise en page: Stephan Mur
+
 
 ## Отношения с другими группами
 

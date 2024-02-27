@@ -1,20 +1,65 @@
 # Joy Division
 
-Дискография
-"An Ideal For Living /EP/" 1977, Punk
-"Short Circuit /sampler/" 1978, Punk
-"Unknown Pleasure" 1979, Punk
-"A Factory Sample /sampler/" 1979, Punk
-"Earcom 2: Contradiction /sampler/" 1979, Punk
-"Closer" 1980, Punk
-"Still /compilation/" 1981, Punk
-"Substance /compilation/" 1988, Punk
-"Peel Sessions /EP/" 1990, Punk
-"Permanent: Joy Division 1995 /compilation/" 1995, Punk
-"Preston Warehouse, 28 February 1980 /live/" 1999, Punk
-"The Complete BBC Recordings /compilation/" 2000, Punk
-"Heart And Soul /4CD-compilation/" 2001, Punk
-"Les Bains Douches, 18 December 1979 /live/" 2001, Punk
+
+
+## Дискография
+
+### "An Ideal For Living /EP/" 1977, Punk
+
+
+
+### "Short Circuit /sampler/" 1978, Punk
+
+
+
+### "Unknown Pleasure" 1979, Punk
+
+
+
+### "A Factory Sample /sampler/" 1979, Punk
+
+
+
+### "Earcom 2: Contradiction /sampler/" 1979, Punk
+
+
+
+### "Closer" 1980, Punk
+
+
+
+### "Still /compilation/" 1981, Punk
+
+
+
+### "Substance /compilation/" 1988, Punk
+
+
+
+### "Peel Sessions /EP/" 1990, Punk
+
+
+
+### "Permanent: Joy Division 1995 /compilation/" 1995, Punk
+
+
+
+### "Preston Warehouse, 28 February 1980 /live/" 1999, Punk
+
+
+
+### "The Complete BBC Recordings /compilation/" 2000, Punk
+
+
+
+### "Heart And Soul /4CD-compilation/" 2001, Punk
+
+
+
+### "Les Bains Douches, 18 December 1979 /live/" 2001, Punk
+
+
+
 
 ## Отношения с другими группами
 

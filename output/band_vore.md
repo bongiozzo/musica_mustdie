@@ -1,9 +1,21 @@
 # Vore
 
-Дискография
-"Lord of Storms" 2001, Death Metal
-"Maleficus" 2005, Death Metal
-"Gravehammer" 2011, Death Metal
+
+
+## Дискография
+
+### "Lord of Storms" 2001, Death Metal
+
+
+
+### "Maleficus" 2005, Death Metal
+
+
+
+### "Gravehammer" 2011, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,10 +1,93 @@
 # Celestial Season
 
-Дискография
-"Forever Scarlet Passion" 1993, Death Doom
-"Solar Lovers" 1995, Death Doom
-"Sonic Orb" 1996, Death Doom
-"Chrome" 1999, Death Doom
+
+
+## Дискография
+
+### "Forever Scarlet Passion" 1993, Death Doom
+
+1. Cherish My Pain 
+2. The Merciful
+3. In Sweet Butterness
+4. Ophelia
+5. Together In Solitude
+6. Mother Of All Passions
+7. Flowerskin
+8. Afterglow
+9. For Eternity
+
+ Stefan Ruiters - Vocals
+ Ieroen Haverkamp - Guitar
+ Robert Ruiters - Guitar
+ Lucas Van Slegtenhorst - Bass
+ Jason Kohnen - Drums
+Additional Musicians:
+ Edith Mathout - Violin
+ Sylvestr Piyel - Keyboards
+
+All songs written & composed by CELISTIAL SEASON
+Produced by ADIPOCERE Records
+Engineered by Ton Bouwens
+Recorded at Tape Productions Raamsdonksveer-Spring 1993
+
+(p)(c) 1993 ADIPOCERE Records
+
+
+### "Solar Lovers" 1995, Death Doom
+
+1. Decamerone
+2. Solar Child
+3. Body As Canvas
+4. Soft Embalmers Of The Still Midnight
+5. Will You Wait For The Sun ?
+6. The Holy Snake
+7. Dancing To A Thousand Symphonies
+8. Fandango
+9. The Scent Of Eve
+10. A Tune From The Majestic Queen's Garden
+
+ Stefan - Vocals
+ Robert - Guitars
+ Pim - Guitars
+ Olly - Bass
+ Jason - Drums
+ Jisca - Violins
+ Maaike - Violins
+
+All Songs By SELESTIAL SEASON
+Produced & Mixed By Lex Vogellar
+Recorded At Tape Productions Studio, Holland, Autumn 1994
+
+(p)&(c) 1995 DISPLEASED Records
+
+### "Sonic Orb" 1996, Death Doom
+
+1. Astral Dub
+2. Icarus With You
+3. Pegasus
+4. King Lizard
+
+All songs written by CELESTIAL
+SEASON.
+Produced by Vincent Dijkers.
+Engineered by Michel Brunsveld.
+Recorded at Studio Boventoon,
+Amsterdam.
+
+Cyril - Vocals
+Robert - Guitars
+Pim - Guitars
+Olly - Bass
+Jason - Drums
+Maaike - Violins
+Jiska - Violins
+
+(p)(c) 1996 DISPLEASED Records
+
+### "Chrome" 1999, Death Doom
+
+
+
 
 ## Отношения с другими группами
 

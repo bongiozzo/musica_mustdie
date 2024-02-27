@@ -1,7 +1,17 @@
 # Absorbcia
 
-Дискография
-"DeaTH (demo)" 2002, Death Metal
+Ukrainian Death Metal Band
+
+## Дискография
+
+### "DeaTH (demo)" 2002, Death Metal
+
+1. Интро
+2. Зверская Агрессия
+3. Облик Войны
+4. Дракула
+5. Ангел Смерти
+
 
 ## Отношения с другими группами
 

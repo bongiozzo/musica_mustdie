@@ -1,15 +1,169 @@
 # Eluveitie
 
-Дискография
-"Vкn" 2004, Folk
-"Spirit" 2006, Folk
-"Slania" 2008, Folk
-"Evocation I - The Arcane Dominion" 2009, Folk
-"Everything Remains As It Never Was" 2010, Folk
-"Meet the Enemy (single)" 2011, Melodic Death Metal
-"Helvetios" 2012, Melodic Death Metal
-"Origins" 2014, Melodic Death Metal
-"Evocation II: Pantheon" 2017, Ambient
+Celtic/Folk Metal
+
+## Дискография
+
+### "Vкn" 2004, Folk
+
+1. DґVкritы Agвge DґBitu 02:26  
+2. Uis Elveti 04:14 
+3. Фrф 02:16  
+4. Lament 04:10 
+5. Druid 06:37  
+6. Jкzaпg 04:46
+
+### "Spirit" 2006, Folk
+
+1. Spirit 02:32
+2. Uis Elveti 04:24 
+3. Your Gaulish War 05:11  
+4. Of Fire, Wind & Wisdom 03:05 
+5. Aidы 03:10
+6. The Song Of Life 04:01
+7. Tegernakф 06:42  
+8. Siraxta 05:39 
+9. The Dance Of Victory 05:24 
+10. The Endless Knot 06:58
+11. AnDro 03:41
+
+### "Slania" 2008, Folk
+
+1. Samon   
+2. Primordial Breath   
+3. Inis Mona  
+4. Gray Sublime Archon   
+5. Anagantios   
+6. Bloodstained Ground   
+7. The Somber Lay   
+8. Slanias Song   
+9. Giamonios   
+10. Tarvos   
+11. Calling The Rain   
+12. Elembivos
+
+### "Evocation I - The Arcane Dominion" 2009, Folk
+
+
+
+### "Everything Remains As It Never Was" 2010, Folk
+
+01. Otherworld [01:57] 
+02. Everything Remains as it Never Was [04:25] 
+03. Thousandfold [03:20] 
+04. Nil [03:43] 
+05. The Essence of Ashes [03:59] 
+06. Isara [02:44] 
+07. Kingdom Come Undone [03:22] 
+08. Quoth the Raven [04:42] 
+09. (Do)Minion [05:07] 
+10. Setlon [02:36] 
+11. Sempiternal Embers [04:52] 
+12. Lugd'non [04:01]
+13. The Liminal Passage [02:15] 
+
+### "Meet the Enemy (single)" 2011, Melodic Death Metal
+
+1. Meet the Enemy 03:47
+
+First single from the record "Helvetios". 
+It was published for free on the official website of the band as well as on Facebook and YouTube. 
+
+### "Helvetios" 2012, Melodic Death Metal
+
+1. Prologue 
+2. Helvetios 
+3. Luxtos 
+4. Home 
+5. Santonian Shores 
+6. Scorched Earth 
+7. Meet The Enemy 
+8. Neverland 
+9. A Rose For Epona 
+10. Havoc 
+11. The Uprising 
+12. Hope 
+13. The Siege 
+14. Alesia 
+15. Tullianum 
+16. Uxellodunon 
+17. Epilogue 
+
+
+Limited digipak incl. bonustrack and DVD
+ (2 video clips, making ofs, interview, 4 live videos recorded @ Feuertanz 2010:
+ 18. A Rose For Epona (Acoustic version) (Digipack only)
+ 
+DVD:
+ 01. A Rose For Epona (video clip)
+ 02. Havoc (video clip)
+ 03. Making Of A Rose For Epona
+ 04. Making Of Havoc
+ 05. A Closer Look @ The Lyrics (interview)
+ 06. Live @ Feuertanz 2010 (4 songs live) 
+
+### "Origins" 2014, Melodic Death Metal
+
+1. Origins  
+2. The Nameless     
+3. From Darkness 
+4. Celtos      
+5. Virunus      
+6. Nothing      
+7. The Call of the Mountains     
+8. Sucellos  
+9. Inception    
+10. Vianna      
+11. The Silver Sister    
+12. King   
+13. The Day of Strife  
+14. Ogmios    
+15. Carry the Torch  
+16. Eternity 
+
+
+### "Evocation II: Pantheon" 2017, Ambient
+
+Disc 1  
+1. Dureqqu   
+2. Epona  03:47  
+3. Svcellos II (Sequel) 
+4. Nantosvelta      
+5. Tovtatis      
+6. Lvgvs      
+7. Grannos      
+8. Cernvnnos      
+9. Catvrix    
+10. Artio      
+11. Aventia     
+12. Ogmios     
+13. Esvs    
+14. Antvmnos  
+15. Tarvos II (Sequel)    
+16. Belenos      
+17. Taranis      
+18. Nemeton      
+  
+Disc 2  (instrumental)
+1. Dureqqu  
+2. Epona 
+3. Svcellos II (Sequel)  
+4. Nantosvelta  
+5. Tovtatis  
+6. Lvgvs 
+7. Grannos 
+8. Cernvnnos  
+9. Catvrix  
+10. Artio  
+11. Aventia  
+12. Ogmios  
+13. Esvs  
+14. Antvmnos  
+15. Tarvos II (Sequel)  
+16. Belenos  
+17. Taranis  
+18. Nemeton  
+
 
 ## Отношения с другими группами
 

@@ -1,9 +1,50 @@
 # Psychotron
 
-Дискография
-"Chaos Cosmic Time" 1999, Thrash
-"Open the Gate" 2004, Thrash
-"Pray for Salvation" 2006, Thrash
+
+
+## Дискография
+
+### "Chaos Cosmic Time" 1999, Thrash
+
+1.	 Intro	01:58	 
+2.	 Psychotron	05:53	 
+3.	 This Illusion	05:54	 
+4.	 Alternative Suicide	06:53	 
+5.	 Melancholia	01:09	 
+6.	 Eternal Stream	05:46	 
+7.	 The Raging Pit	05:00	 
+8.	 Belief	07:30	 
+9.	 Waiting For Last Summer	07:43	 
+10.	 The Crossroads	04:07	 
+11.	 Autumn Suite In Dark Red Minor + Hidden Track	06:14
+
+### "Open the Gate" 2004, Thrash
+
+1.	 Intro	02:26	 
+2.	 Open the Gate	04:30	 
+3.	 God Nihil	04:45	 
+4.	 The Ticket (To Insanity)	05:25	 
+5.	 Meine H&#246;lle	01:25	 
+6.	 Private Hell	03:42	 
+7.	 Beauty of Sadness	05:33	 
+8.	 Closing Doors	08:27	 
+9.	 Lightbringer	07:10	 
+10.	 Necromantia (Welcome to the Dead)	04:27	 
+11.	 Instrumental	08:17
+
+### "Pray for Salvation" 2006, Thrash
+
+1.	 Pray for Salvation	01:02	 
+2.	 Arms of Morpheus	05:05	 
+3.	 Traitor	04:51	 
+4.	 At the Graves	04:49	 
+5.	 Chasing Shadows	04:58	 
+6.	 The Awakening	08:47	 
+7.	 Circle of the Damned	07:45	 
+8.	 The Hourglass	06:46	 
+9.	 Life on Borrowed Time	04:43	 
+10.	 Shattered Illusion	07:49
+
 
 ## Отношения с другими группами
 

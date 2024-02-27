@@ -1,7 +1,24 @@
 # Raza De Odio
 
-Дискография
-"La Nueva Alarma" 2004, Thrash
+
+
+## Дискография
+
+### "La Nueva Alarma" 2004, Thrash
+
+La nueva alarma 
+Raza de odio 
+Destroy 
+Malafama 
+Otra vez 
+Matando gueros (BRUJERIA cover) 
+Vente pa madrid (KETAMA cover) 
+Mienten 
+Una luz 
+Odiados 
+United Forces (SOD cover) 
+El tiempo
+
 
 ## Отношения с другими группами
 

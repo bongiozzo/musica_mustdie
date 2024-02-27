@@ -1,7 +1,22 @@
 # Out Of Yesteryear
 
-Дискография
-"The Blackness" 2010, Death Metal
+
+
+## Дискография
+
+### "The Blackness" 2010, Death Metal
+
+1. The World Of The Prophet 00:49  
+2. Sirens Of Doom 00:56  
+3. Running In Circles 04:08  
+4. Smile For The Camera 03:24  
+5. Indifference 04:03  
+6. Mercy Is Definitely Not My Name 03:44  
+7. Devoid Of Light 03:35  
+8. The Blackness 04:20  
+9. The Lake Of Metanoia 03:11  
+10. Every Tomorrow 04:15 
+
 
 ## Отношения с другими группами
 

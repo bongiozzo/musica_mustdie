@@ -1,9 +1,27 @@
 # Stilla
 
-Дискография
-"Till stilla falla" 2013, Black Metal
-"Ensamhetens andar" 2014, Black Metal
-"Skuggflock" 2016, Black Metal
+
+
+## Дискография
+
+### "Till stilla falla" 2013, Black Metal
+
+
+
+### "Ensamhetens andar" 2014, Black Metal
+
+
+
+### "Skuggflock" 2016, Black Metal
+
+1. Irrfдrd
+2. Vеrens sista цnskan
+3. Skuggflock
+4. Till den som skall komma
+5. I tystnad vilar sjдlen
+6. Av maran riden
+7. Ett inre helvete - ett yttre helvete
+
 
 ## Отношения с другими группами
 

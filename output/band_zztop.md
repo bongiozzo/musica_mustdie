@@ -1,22 +1,310 @@
 # ZZ Top
 
-Дискография
-"First Album" 1970, Hard Rock
-"Rio Grande Mud" 1972, Hard Rock
-"Tres Hombres" 1973, Hard Rock
-"Fandango" 1975, Hard Rock
-"Tejas" 1976, Hard Rock
-"Deguello" 1979, Hard Rock
-"El Loco" 1981, Hard Rock
-"Eliminator" 1983, Hard Rock
-"Afterburner" 1985, Hard Rock
-"Recycler" 1990, Hard Rock
-"One Foot In The Blues" 1994, Hard Rock
-"Antenna" 1994, Hard Rock
-"Rhythmeen" 1996, Hard Rock
-"XXX" 1999, Hard Rock
-"Mescalero" 2003, Hard Rock
-"Live From Texas" 2008, Hard Rock
+
+
+## Дискография
+
+### "First Album" 1970, Hard Rock
+
+1. (Somebody Else Been) Shaking Your Tree
+2. Brown Sugar
+3. Squank
+4. Goin' Down To Mexico
+5. Old Man
+6. Neighbor, Neighbor
+7. Certified Blues
+8. Bedroom Thang
+9. Just Got Back from Baby's
+10. Backdoor Love Affair
+
+Frank Beard - drums
+Billy Gibbons - guitar, vocals
+Dusty Hill - bass, vocals
+Rube Beard - drums
+
+(p) 1970 Warner Brothers
+
+### "Rio Grande Mud" 1972, Hard Rock
+
+1. Francine
+2. Just Got Paid
+3. Mushmouth Shoutin'
+4. Ko Ko Blue
+5. Chevrolet
+6. Apologies To Pearly
+7. Bar-B-Q
+8. Sure Got Cold After The Rain Fell
+9. Whiskey'n Mama
+10. Down Brownie
+
+Frank Beard - drums
+Billy Gibbons - guitar, harmonica, vocals, slide guitar
+Dusty Hill - bass, vocals
+Pete Tickle - guitar
+
+(p) 1972 Warner Brothers
+
+### "Tres Hombres" 1973, Hard Rock
+
+1. Waitin' For The Bus
+2. Jesus Just Left Chicago
+3. Beer Drinkers & Hell Raisers
+4. Master Of Sparks
+5. Hot, Blue And Righteous
+6. Move Me On Down The Line
+7. Precious And Grace
+8. La Grange
+9. Shiek
+10. Have You Heard?
+
+Frank Beard - drums
+Billy Gibbons - guitar, vocals
+Dusty Hill - bass, vocals
+
+(p) 1973 Warner Brothers
+
+### "Fandango" 1975, Hard Rock
+
+1. Thunderbird
+2. Jailhouse Rock
+3. Backdoor Medley:
+   I. Backdoor Love Affair
+   II. Mellow Down Easy
+   III. Backdoor Love Affair No. 2
+   IV. Long Distance Boogie
+4. Nasty Dogs And Funky Kings
+5. Blue Jean Blues
+6. Balinese
+7. Mexican Blackbird
+8. Heard It On The X
+9. Tush
+
+Frank Beard - drums
+Billy Gibbons - guitar, harmonica, vocals, slide guitar
+Dusty Hill - bass, vocals
+
+(p) 1975 Warner Brothers
+
+### "Tejas" 1976, Hard Rock
+
+1. It's Only Love
+2. Arrested For Driving While Blind
+3. El Diablo
+4. Snappy Kakkie
+5. Enjoy And Get It On
+6. Ten Dollar Man
+7. Pan Am Highway Blues
+8. Avalon Hideaway
+9. She's A Heartbreaker
+10. Asleep In The Desert
+
+Frank Beard - drums
+Billy Gibbons - guitar, vocals
+Dusty Hill - bass, vocals
+
+(p) 1976 Warner Brothers
+
+### "Deguello" 1979, Hard Rock
+
+1. I Thank You
+2. She Loves My Automobile
+3. I'm Bad, I'm Nationwide
+4. A Fool For Your Stockings
+5. Manic Mechanic
+6. Dust My Broom
+7. Lowdown In The Street
+8. Hi Fi Mama
+9. Cheap Sunglasses
+10. Esther Be The One
+
+Frank Beard - drums
+Billy Gibbons - guitar, vocals
+Dusty Hill - bass, vocals
+
+(p) 1979 Warner Brothers
+
+### "El Loco" 1981, Hard Rock
+
+1. Tube Snake Boogie
+2. I Wanna Drive You Home
+3. Ten Foot Pole
+4. Leila
+5. Don't Tease Me
+6. It's So Hard
+7. Pearl Necklace
+8. Groovy Little Hippie Pad
+9. Heaven, Hell Or Houston
+10. Party On The Patio
+
+Frank Beard - drums
+Billy Gibbons - guitar, vocals
+Dusty Hill - bass, vocals
+
+(p) 1981 Warner Brothers
+
+### "Eliminator" 1983, Hard Rock
+
+1.  Gim'me All Your Lovin'
+2.  Got Me Under Pressure
+3.  Sharp Dressed Man
+4.  I Need You Tonight
+5.  I Got The Six
+6.  Legs
+7.  Thug
+8.  TV Dinners
+9.  Dirty Dog
+10.If I Could Only Flag Her Down
+11.Bad Girl
+
+Produced By Bill Ham.
+Engineers - Terry Manning, Bob Ludwig.
+
+Billy Gibbons - Guitars, Vocals
+Dusty Hill - Bass, Vocals
+Frank Beard - Drums
+
+(P)(C) 1983 WARNER Bros Records
+
+### "Afterburner" 1985, Hard Rock
+
+1.  Sleeping Bag
+2.  Stages
+3.  Woke Up With Wood
+4.  Rough Boy
+5.  Can't Stop Rockin'
+6.  Planet Of Women
+7.  I Got The Message
+8.  Velcro Fly
+9.  Dipping Low (In The Lap Of Luxury)
+10.Delirious
+
+Produced By Bill Ham.
+Engineers - Joe Hardy, Bob Ludwig.
+
+Billy Gibbons - Guitars, Vocals
+Dusty Hill - Bass, Vocals
+Frank Beard - Drums
+
+(P)(C) 1985 WARNER Bros Records
+
+### "Recycler" 1990, Hard Rock
+
+1. Concrete And Steel
+2. Lovething
+3. Penthouse Eyes
+4. Tell It
+5. My Head's In Mississippi
+6. Decision Or Collision
+7. Give It Up
+8. 2000 Blues
+9. Burger Man
+10. Doubleback
+
+Frank Beard - drums
+Billy Gibbons - guitar, vocals
+Dusty Hill - bass, vocals
+
+(p) 1990 Warner Brothers
+
+### "One Foot In The Blues" 1994, Hard Rock
+
+1. Brown Sugar
+2. Just Got Back From Baby's
+3. A Fool For Your Stockings
+4. I Need You Tonight
+5. She Loves My Automobile
+6. Hi Fi Mama
+7. Hot, Blue And Righteous
+8. My Head's in Mississippi
+9. Lowdown In The Street
+10. If I Could Only Flag Her Down
+11. Apologies To Pearly
+12. Sure Got Cold After The Rain Fell
+13. Bar-B-Q
+14. Old Man
+15. Certified Blues
+16. 2000 Blues
+17. Heaven, Hell Or Houston
+
+Frank Beard - drums
+Billy Gibbons - guitar, vocals
+Dusty Hill - bass, vocals
+
+(p) 1994 Warner Brothers
+
+### "Antenna" 1994, Hard Rock
+
+1. Pincushion
+2. Breakaway
+3. World Of Swirl
+4. Fuzzbox Voodoo
+5. Girl In A T-Shirt
+6. Antenna Head
+7. PCH
+8. Cherry Red
+9. Cover Your Rig
+10. Lizard Life
+11. Deal Goin' Down
+12. Everything (bonus track)
+
+Frank Beard - drums
+Billy Gibbons - guitar, vocals
+Dusty Hill - bass, vocals
+
+(p) 1994 RCA
+
+### "Rhythmeen" 1996, Hard Rock
+
+1. Rhythmeen
+2. Bang Bang
+3. Black Fly
+4. What's Up With That
+5. Vincent Price Blues
+6. Zipper Job
+7. Hairdresser
+8. She's Just Killing Me
+9. My Mind is Gone
+10. Loaded
+11. Prettyhead
+12. Hummbucking, Part 2
+
+Frank Beard - drums, vocals
+Billy Gibbons - guitar, vocals
+Dusty Hill - bass, vocals
+
+(p) 1996 RCA
+
+### "XXX" 1999, Hard Rock
+
+1. Poke Chop Sandwich
+2. Crucifixx-A-Flatt
+3. Fearless Boogie
+4. 36-22-36
+5. Made Into A Movie
+6. Beatbox
+7. Trippin'
+8. Dreadmonboogaloo
+9. Live Intro by Ross Mitchell
+10. Sinpusher
+11. (Let Me Be Your) Teddy Bear
+12. Hey Mr. Millionaire
+13. Belt Buckle
+
+Frank Beard - drums
+Billy Gibbons - guitar, vocals
+Dusty Hill - bass, vocals
+Jeff Beck - vocals
+
+(p) 1999 RCA
+
+### "Mescalero" 2003, Hard Rock
+
+
+
+### "Live From Texas" 2008, Hard Rock
+
+
+
 
 ## Отношения с другими группами
 

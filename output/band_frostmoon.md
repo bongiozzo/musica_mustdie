@@ -1,7 +1,23 @@
 # Frostmoon
 
-Дискография
-"Tordenkrig" 2000, Black Metal
+
+
+## Дискография
+
+### "Tordenkrig" 2000, Black Metal
+
+Skogsrosl 
+Vikingmakt 
+Iskaldt Raseri 
+Norgesriket Hylles 
+Bersker Au Morkel 
+For Alltid 
+A Funeral Memorial 
+Behind the Snowcovered Mountains 
+Attack of the Northern Frostwinds 
+Black Bestial Funeral 
+
+
 
 ## Отношения с другими группами
 

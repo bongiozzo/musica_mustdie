@@ -1,7 +1,32 @@
 # Black Rose
 
-Дискография
-"Into The Glass House" 1995, Gothic
+
+
+## Дискография
+
+### "Into The Glass House" 1995, Gothic
+
+1. Into The Glass House
+2. Always Return
+3. Day Dreams
+4. Instants
+5. The Love I Fear
+6. Running Waters
+7. For Some Dearest Ones
+8. Piano Solo
+9. The Time Has Come
+10.Osare Pensare
+
+All Songs By BLACK ROSE.
+Produced By BLACK ROSE.
+Recorded & Mixed By BLACK ROSE
+At Black Rose Studios.
+
+Erri - Piano, Guitars, Synths, Accordion
+Mara - Vocals
+
+(P)&(C) 1995 HYPERIUM Records
+
 
 ## Отношения с другими группами
 

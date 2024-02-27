@@ -1,9 +1,47 @@
 # Behind the Scenery
 
-Дискография
-"Nocturnal Beauty Of A Dying Land" 1997, Melodic Death Metal
-"...Of Honesty Forbidden" 2000, Melodic Death Metal
-"Retroviseur" 2004, Melodic Death Metal
+
+
+## Дискография
+
+### "Nocturnal Beauty Of A Dying Land" 1997, Melodic Death Metal
+
+1.  Rain
+2.  Apostle Of Greed
+3.  Blinded By Abnormity
+4.  Lost Love
+5.  Nocturnal Beauty
+6.  Towards The Edge Of Degeneration
+7.  Emotion Obscurity
+
+### "...Of Honesty Forbidden" 2000, Melodic Death Metal
+
+1.    Prologue
+2.    Kneel To Pray
+3.    Another Stranger
+4.    Pierce The Eyes
+5.    Under A Frozen Sun
+6.    Innermost Emotions
+7.    No Sinners, No Saints
+8.    Compressed Individuality
+9.    Pure Evil
+10.  Epilogue
+
+### "Retroviseur" 2004, Melodic Death Metal
+
+1. Retroviseur 05:38  
+2. Me And The Sun 04:32  
+3. Journey 03:06  
+4. Silence Within 06:48  
+5. No Second Silence 04:53  
+6. De-Revelation 03:25  
+7. Human 2.0 04:16  
+8. Response To Solitude 05:13  
+9. Elevation 04:48  
+10. Fassadenspiel 04:29  
+11. The Architect 03:27  
+12. Late Night (Instrumental) 04:20
+
 
 ## Отношения с другими группами
 

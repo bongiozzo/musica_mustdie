@@ -1,9 +1,47 @@
 # Windfall
 
-Дискография
-"Adamantia" 2001, Power Metal
-"Time of the Haunted" 2003, Progressive
-"Infector" 2005, Progressive
+
+
+## Дискография
+
+### "Adamantia" 2001, Power Metal
+
+1. Adamantia  03:46   
+2. Emerald Seas  04:58
+3. Frozen Rose  04:48   
+4. Missing Pages  04:21   
+5. Sleeping Sounds  03:36
+6. Obsession  03:57  
+7. Walk of a Dreamer  03:58   
+8. Inviting Pictures  03:25 
+9. The Circle of Souls  04:09
+10. Isolated  04:20 
+
+### "Time of the Haunted" 2003, Progressive
+
+1. Time of the Haunted  04:49   
+2. A Will Denied  03:53   
+3. Nightmare  04:26   
+4. Cursed  04:02   
+5. A Broken Scream  04:39  
+6. Final Rite  04:11  
+7. On Thorns I'm Dreaming  03:41    
+8. Last Moments  01:57    
+9. Human Petrified  04:53 
+
+### "Infector" 2005, Progressive
+
+1. Poisoned Mastermind  04:16    
+2. Hatedrops  03:53    
+3. Scenes of My Pestilence  04:26   
+4. Clone Generation  03:38 
+5. Catacomb Princess  04:26    
+6. Injection Mutiny  04:03  
+7. Liquid Flesh Divine  04:11   
+8. Asylum Grave  03:54  
+9. The Infector  04:15 
+10. Last Dance on Fire  06:18 
+
 
 ## Отношения с другими группами
 

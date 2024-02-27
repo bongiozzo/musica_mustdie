@@ -1,7 +1,24 @@
 # Diadema Tristis
 
-Дискография
-"Ways Of Relief" 2005, Folk
+
+
+## Дискография
+
+### "Ways Of Relief" 2005, Folk
+
+1. The Woods Remain Sad
+2. Howls are my Lovesongs
+3. A Lost Heart in Fog
+4. Snowfall of Tears
+5. Speech of the Trees
+6. Skies in Sorrow
+7. Hollow Ground
+8. Dea Tristitia
+9. Myth from the Ruins
+10. Desert
+11. Hidden Mourning Thoughts
+12. In Poema Memoralis
+
 
 ## Отношения с другими группами
 

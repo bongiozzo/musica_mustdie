@@ -1,10 +1,48 @@
 # Beneath The Massacre
 
-Дискография
-"Evidence Of Inequity (EP)" 2005, Techno Death
-"Mechanics Of Dysfunction" 2007, Techno Death
-"Dystopia" 2008, Techno Death
-"Maree Noire (EP)" 2010, Techno Death
+
+
+## Дискография
+
+### "Evidence Of Inequity (EP)" 2005, Techno Death
+
+
+
+### "Mechanics Of Dysfunction" 2007, Techno Death
+
+1. The Surface 02:41
+2. Society's Disposable Son 03:28
+3. The System's Failure 03:29
+4. The Stench of Misery 02:57
+5. Untitled 00:59  
+6. Modern Age Slavery 03:22
+7. The Invisible Hand 03:08 
+8. Better Off Dead 02:36 
+9. Long Forgotten 03:34 
+10. Sleepless 03:46 
+
+### "Dystopia" 2008, Techno Death
+
+1. Condemned 04:20
+2. Reign of Terror 03:33
+3. Our Common Grave 03:43
+4. Skit 1 00:10 
+5. Harvest of Hate 03:15 
+6. The Wasteland 03:38
+7. Bitter 02:45
+8. No Future 00:52
+9. Lithium Overdose 03:41
+10. Never More 03:43
+11. Procreating the Infection 02:44 
+
+### "Maree Noire (EP)" 2010, Techno Death
+
+1. The Casket You Sleep In
+2. Black Tide
+3. Drill Baby Drill
+4. Designed To Strangle
+5. Anomi
+
 
 ## Отношения с другими группами
 

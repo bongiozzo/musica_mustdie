@@ -1,10 +1,76 @@
 # Nomenmortis
 
-Дискография
-"How I Learn to Bleed... For the Things I Wish to Forget" 2000, Deathcore
-"The Day You'll Lose Your Head" 2002, Deathcore
-"Exterminating the Bastard Forces" 2005, Deathcore
-"Forget Arcadia" 2011, Deathcore
+
+
+## Дискография
+
+### "How I Learn to Bleed... For the Things I Wish to Forget" 2000, Deathcore
+
+1. Mercy Dies Right Now (Intro)	 
+2. War Chant Of The Hated Spawn
+3. Maggot Tribe
+4. Tedd Deireadh - Conjunction For Armaggeddon
+5. Left There Something To Live For?
+6. Seen Through The Thorns Of Despair	
+7. Empyrium Of Mist
+8. Something Almost Buried
+9. Another Starblaze... Another Tragedy? - The Swans Are Flying Towards The Flames
+10. Unholy Voices Of Reason - Godexpeller
+11. Outcry Of Senseless Sacrificed - Let Me Die At Last
+12. Eternal Shadow Has Arrived (Outro)
+
+### "The Day You'll Lose Your Head" 2002, Deathcore
+
+1. On Silent Waves Of Terror	 
+2. Stunning Sweetness Of Revenge
+3. Infected Bastard Planet	
+4. De/ad/Generation Of The Millenium Hysteria
+5. Steel Wind Symphony
+6. Mitgefangen, Mitgehangen (Neckbreaking Consequences)
+7. Last Dawn Of The Cursed	 
+8. Something Almost Buried (2001 Re-Recording)
+9. Tedd Deireбdh (2001 Version)
+10. The Awakener (Kataklysm cover)
+
+### "Exterminating the Bastard Forces" 2005, Deathcore
+
+1. Unleashing the Hordes of Vengeance (Intro)	 
+2. In the Sign of Punishment, Victory and Doom
+3. Beyond the Landscape of Dreaming Mind
+4. Enemyslayer - Bloodfreezing Warcry of N'De
+5. A Voyage Through the Wrong Places and Times (Ire Lokke, Ire Tedd)
+6. Mutants from Decaying Scumgarden
+7. On the Thunderwings of Spirit Forever Free
+8. Scourged into Abyssic Firewhirls
+9. 1598 - Christmas with the Deathriders
+10. Across the Plains of Ruin
+11. Loss, Fury and Eternity
+12. Entering the Catacombs of Insanity (Outro)
+
+### "Forget Arcadia" 2011, Deathcore
+
+1. Erinye's Call (Intro)	 
+2. Ageless Feasts of Morbid Pleasures	 
+3. For Emperors, Gods and Fatherlands	 
+4. Monuments of Postmortal Degradation	 
+5. Melchior the Shooter	 
+6. RйvoLouison	 
+7. To Those of No Forever		 
+8. Born on Samhain	 
+9. Deathriders of Temьr Tenger Etseg	 
+10. The Last One Belongs to Hell	 
+11. Blasphemy, Infidelity, Victory	 
+12. Dreadful Fruit of the Leafless Tree	 
+13. Monstronomicon	 
+14. Armourggeddon / Outro 
+15. 1598 – Christmas with the Deathriders (2011 re-recording) (bonus track) 
+16. Intro/ Ageless Feasts of Morbid Pleasures (bonus track)	 
+17. Hooray for Dystopia (bonus track)	 
+18. Execute the Sheeplords (bonus track) 
+19. Born on Samhain (bonus track)	 
+20. Depressed (bonus track)	 
+21. Epitaph de sangre (bonus track)
+
 
 ## Отношения с другими группами
 

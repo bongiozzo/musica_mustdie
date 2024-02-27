@@ -1,7 +1,21 @@
 # Reaver
 
-Дискография
-"Corvus" 2010, Melodic Death Metal
+melodic death
+
+## Дискография
+
+### "Corvus" 2010, Melodic Death Metal
+
+1. God Weapon  05:36    
+2. Duality Exposed  07:04   
+3. Disappearing Act  04:50 
+4. Wither and Fade  01:25  
+5. Barricade  06:36   
+6. Unholy Justice  05:47 
+7. The Mute Harbinger  06:57    
+8. Inverted Coma  05:30 
+9. Corvus  07:27 
+
 
 ## Отношения с другими группами
 

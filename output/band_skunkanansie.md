@@ -1,7 +1,33 @@
 # Skunk Anansie
 
-Дискография
-"Paranoid And Sunburnt" 1996, Alternative
+
+
+## Дискография
+
+### "Paranoid And Sunburnt" 1996, Alternative
+
+1. Selling Jesus
+2. Intellectualize My Blackness
+3. I Can Dream
+4. Little Baby Swastikkka
+5. All In The Name Of Pity
+6. Charity
+7. It Takes Blood & Guts To Be This
+   Cool But I'm Still Just A Cliche
+8. Weak
+9. And Here I Stand
+10.100 Ways To Be A Good Girl
+11.Rise Up
+
+All songs written By Skin, Len Arran.
+All tracks produced and recorded by
+Sylvia Massy and SKUNK ANANSIE.
+Mixed by Andy Wallace.
+Recorded at Great Linford Manor
+Studios.
+
+(p)(c) 1996 SONY Music
+
 
 ## Отношения с другими группами
 

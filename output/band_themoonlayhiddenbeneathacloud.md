@@ -1,13 +1,37 @@
 # The Moon Lay Hidden Beneath A Cloud
 
-Дискография
-"The Moon Lay Hidden Beneath A Cloud" 1993, Darkwave
-"Amara Tanta Tyri" 1994, Darkwave
-"A New Soldier Follows A Path Of A New King" 1995, Darkwave
-"Were You Of Silver, Were You Of Gold" 1996, Darkwave
-"A Night In Fear (with Deutsch Nepal)" 1996, Darkwave
-"The Smell Of Blood But Victory" 1997, Darkwave
-"Rest On Your Arms Reversed" 1999, Darkwave
+
+
+## Дискография
+
+### "The Moon Lay Hidden Beneath A Cloud" 1993, Darkwave
+
+
+
+### "Amara Tanta Tyri" 1994, Darkwave
+
+
+
+### "A New Soldier Follows A Path Of A New King" 1995, Darkwave
+
+
+
+### "Were You Of Silver, Were You Of Gold" 1996, Darkwave
+
+
+
+### "A Night In Fear (with Deutsch Nepal)" 1996, Darkwave
+
+
+
+### "The Smell Of Blood But Victory" 1997, Darkwave
+
+
+
+### "Rest On Your Arms Reversed" 1999, Darkwave
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,13 +1,210 @@
 # The Cult
 
-Дискография
-"Dreamtime" 1984, Alternative
-"Love" 1985, Alternative
-"Electric" 1987, Alternative
-"Ceremony" 1991, Alternative
-"Cult" 1994, Alternative
-"Rare Cult" 2000, Alternative
-"Beyond Good And Evil" 2001, Alternative
+
+
+## Дискография
+
+### "Dreamtime" 1984, Alternative
+
+1 Horse Nation (Cult) 
+2 Butterflies (Cult) 
+3 Flower in the Desert (Cult) 
+4 Bad Medicine Waltz (Cult) 
+5 Spiritwalker (Cult) 
+6 83rd Dream (Cult) 
+7 Go West (Cult) 
+8 Gimmick (Cult) 
+9 Dreamtime (Cult) 
+10 Rider in the Snow (Cult) 
+
+
+### "Love" 1985, Alternative
+
+1 Nirvana 5:26 (The Cult) 
+2 Big Neon Glitter 4:51 (The Cult) 
+3 Love 5:29 (The Cult) 
+4 Brother Wolf Sister Moon 6:47 (The Cult) 
+5 Rain 3:56 (The Cult) 
+6 Phoenix 5:06 (The Cult) 
+7 Hollow Man 4:45 (The Cult) 
+8 Revolution 5:26 (The Cult) 
+9 She Sells Sanctuary 4:23 (The Cult) 
+10 Black Angel 5:22 (The Cult) 
+
+
+### "Electric" 1987, Alternative
+
+1 Wild Flower 3:38 (Cult) 
+2 Peace Dog 3:34 (Cult) 
+3 Lil' Devil 2:44 (Cult) 
+4 Aphrodisiac Jacket 4:11 (Cult) 
+5 Electric Ocean 2:49 (Cult) 
+6 Bad Fun 3:34 (Cult) 
+7 King Contrary Man 3:12 (Cult) 
+8 Love Removal Machine 4:17 (Cult) 
+9 Born to Be Wild [*] 3:55 (Cult) 
+10 Outlaw 2:52 (Cult) 
+11 Memphis Hipshake 4:00 (Cult) 
+
+
+### "Ceremony" 1991, Alternative
+
+1 Ceremony 6:27 (The Cult) 
+2 Wild Hearted Son 5:41 (The Cult) 
+3 Earth Mofo 4:42 (The Cult) 
+4 White 7:56 (The Cult) 
+5 If 5:25 (The Cult) 
+6 Full Tilt 4:51 (The Cult) 
+7 Heart of Soul 5:55 (The Cult) 
+8 Bangkok 5:47 (The Cult) 
+9 Indian 4:53 (The Cult) 
+10 Sweet Salvation 5:25 (The Cult) 
+11 Wonderland 6:10 (The Cult) 
+
+
+### "Cult" 1994, Alternative
+
+1 Gone 3:49 (Cult) 
+2 Coming Down (Drug Tongue) 6:37 (Cult) 
+3 Real GRRRL 4:26 (Cult) 
+4 Black Sun 6:19 (Cult) 
+5 Naturally High 4:23 (Cult) 
+6 Joy 4:50 (Cult) 
+7 Star 5:01 (Cult) 
+8 Sacred Life 5:47 (Cult) 
+9 Be Free 3:49 (Cult) 
+10 Universal You 5:15 (Cult) 
+11 Emperor's New Home 4:21 (Cult) 
+12 Saints Are Down 6:54 (Cult) 
+
+
+### "Rare Cult" 2000, Alternative
+
+1 Ghost Dance [Radio Session] 3:20 (Cult) 
+2 Bad Medicine Waltz [Radio Edit] 4:25 (Cult) 
+3 Resurrection Joe [Radio Session] 5:11 (Cult) 
+4 Go West [Crazy Spinning Circles] 4:15 (Cult) 
+5 Bone Bag 3:46 (Cult) 
+6 Sea And Sky 3:30 (Cult) 
+7 She Sells Sanctuary 8:26 (Cult) 
+8 No. 13 4:40 (Cult) 
+9 Snake 8:09 (Cult) 
+10 (Here Comes The) Rain 6:19 (Cult) 
+11 Little Face 4:53 (Cult) 
+12 Spiritwalker [Radio Session] 3:57 (Cult) 
+13 Revolution [Radio Session] 6:01 (Cult) 
+14 All Souls Avenue [Radio Session] 4:18 (Cult) 
+15 Big Neon Glitter 4:35 (Cult) 
+16 Revolution [Full Length Remix] 5:29 (Cult) 
+17 Judith 5:29 (Cult) 
+18 Sunrise 5:11 (Cult) 
+19 All Souls Avenue 4:45 (Cult) 
+20 Electric Ocean [Original Version] 4:02 (Cult) 
+21 Go Go Guru [Original Version] 4:05 (Cult) 
+22 Love Removal Machine [Radio Session] 4:02 (Cult) 
+23 Conquistador [Radio Session] 2:48 (Cult) 
+24 King Contrary Man [Radio Session] 3:53 (Cult) 
+25 Electric Ocean 4:10 (Cult) 
+26 Zap City [Demo] 4:44 (Cult) 
+27 Love Trooper [Demo] 3:53 (Cult) 
+28 Progresso [Backing Track Demo] 2:45 (Cult) 
+29 Peace (Dog) 4:06 (Cult) 
+30 Oink [Version One] 3:50 (Cult) 
+31 Waltz [Backing Track Demo] 3:49 (Cult) 
+32 Untitled [One] [Backing Track Demo] 2:49 (Cult) 
+33 Groove Co. [Demo] 3:36 (Cult) 
+34 Untitled [Two] [Backing Track Demo] 2:29 (Cult) 
+35 Love Removal Machine 5:16 (Cult) 
+36 Wild Flower 4:11 (Cult) 
+37 Peace Dog 5:09 (Cult) 
+38 Aphrodisiac Jacket 4:26 (Cult) 
+39 Electric Ocean 4:14 (Cult) 
+40 Bad Fun 6:25 (Cult) 
+41 Conquistador 2:53 (Cult) 
+42 Zap City 5:16 (Cult) 
+43 Love Trooper 3:56 (Cult) 
+44 Outlaw 5:08 (Cult) 
+45 Groove Co. 4:21 (Cult) 
+46 Walk My Way 8:56 (Cult) 
+47 Wild Flower [Extended Rock Mix] 5:50 (Cult) 
+48 Outlaw [Alternate Mix] 2:53 (Cult) 
+49 Wolf Child's Blues 7:20 (Cult) 
+50 Go Go Guru [Rubin Version] 3:59 (Cult) 
+51 Down So Long 5:58 (Cult) 
+52 Soldier Blue [Werman Mix] 4:38 (Cult) 
+53 Zodiac [Demo] 3:29 (Cult) 
+54 Yes Man [Demo] 5:08 (Cult) 
+55 Citadel [Demo] 4:15 (Cult) 
+56 Crystal Ocean [Demo] 5:08 (Cult) 
+57 Lay Down Your Gun (Version One) [Demo] 6:52 (Cult) 
+58 Bite On The Bullet [Demo] 5:06 (Cult) 
+59 Iron Star [Demo] 4:24 (Cult) 
+60 Star Child [Demo] 3:39 (Cult) 
+61 Messin' Up The Blues 5:44 (Cult) 
+62 [Untitled Track] 0:30 (Cult) 
+63 Fire Woman [NYC Rock Mix] 7:21 (Cult) 
+64 Medicine Train 4:31 (Cult) 
+65 New York City [Demo] 5:00 (Cult) 
+66 Sweet Soul Sister [Rock's Remix] 6:55 (Cult) 
+67 Bleeding Heart Graffiti 4:58 (Cult) 
+68 River 6:51 (Cult) 
+69 Indian (Early Version) [Demo] 3:39 (Cult) 
+70 Spanish Gold [Demo] 5:51 (Cult) 
+71 Host Of Angels [Demo] 5:48 (Cult) 
+72 Northern Man [Demo] 4:53 (Cult) 
+73 Auto [Demo Jam] 3:27 (Cult) 
+74 Red Jesus 4:54 (Cult) 
+75 Join Hands 5:03 (Cult) 
+76 Edie (Ciao Baby) [Acoustic] 4:17 (Cult) 
+77 Love Removal Machine [Live Session] 5:12 (Cult) 
+78 Faith Healer 5:17 (Cult) 
+79 Full Tilt [Live Session] 4:53 (Cult) 
+80 Earth Mofo [Live Session] 4:48 (Cult) 
+81 Heart Of Soul [Acoustic] 4:32 (Cult) 
+82 Witch [Full Version] 6:56 (Cult) 
+83 Coming Down (Put The Boot In) 7:08 (Cult) 
+84 Breathing Out 5:59 (Cult) 
+85 Gone (Degenerate) 4:19 (Cult) 
+86 Down On Me 5:15 (Cult) 
+87 Beauty's On The Street 4:42 (Cult) 
+88 Splurge/Relapse 5:07 (Cult) 
+89 North 4:36 (Cult) 
+90 Sacred High 6:05 (Cult) 
+91 In The Clouds [Alternate Edit] 3:56 (Cult) 
+92 Resurrection Joe [Long Version] 6:07 (Cult) 
+93 Assault On Sanctuary 7:30 (Cult) 
+94 Love Removal Machine [Extended Version] 5:39 (Cult) 
+95 Wild Flower [Guitar Dub] 3:38 (Cult) 
+96 Soldier Blue [Extended Version] 5:59 (Cult) 
+97 Fire Woman [LA Rock Mix] 10:04 (Cult) 
+98 Witch [Remix] 10:25 (Cult) 
+99 Coming Down [Butchered] 7:08 (Cult) 
+100 Gone [Dub Vocal] 5:05 (Cult) 
+101 Love Removal Machine [Small Soldiers Mix] 6:19 (Cult) 
+102 Resurrection Joe [Hep Cat Mix Long Version] 6:04 (Cult) 
+ 
+
+
+ 
+ 
+
+
+### "Beyond Good And Evil" 2001, Alternative
+
+War (The Process) 
+The Saint 
+Rise 
+Take the Power 
+Breathe 
+Hey Nico 
+American Gothic 
+Ashes & Ghosts 
+Shape the Sky 
+Speed of Light
+True Believers
+My Bridges Burn 
+
+
 
 ## Отношения с другими группами
 

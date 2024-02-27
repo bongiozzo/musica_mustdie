@@ -1,20 +1,256 @@
 # Threshold
 
-Дискография
-"Wounded Land" 1993, Progressive
-"Psychedelicatessen" 1994, Progressive
-"Extinct Instinct" 1997, Progressive
-"Clone" 1998, Progressive
-"Hypothetical" 2001, Progressive
-"Critical Mass" 2002, Progressive
-"Critical Energy" 2004, Progressive
-"Subsurface" 2004, Progressive
-"Critical Energy DVD" 2004, Progressive
-"Dead Reckoning" 2007, Progressive
-"The Ravages Of Time - The Best Of Threshold (2CD)" 2007, Progressive
-"March of Progress" 2012, Progressive
-"For the Journey" 2014, Progressive
-"Legends Of The Shires" 2017, Progressive
+Progressive Metal from England
+
+## Дискография
+
+### "Wounded Land" 1993, Progressive
+
+1. Consume To Live (8.11) 
+2. Days Of Dearth (5.26) 
+3. Sanity's End (10.21) 
+4. Paradox (7.15)    
+5. Surface To Air (10.14) 
+6. Mother Earth (5.52)    
+7. Siege Of Baghdad (7.44)    
+8. Keep It With Mine (2.27)    
+9. Intervention (6.38) * 
+   
+(* Japanese version only)
+
+
+Musicians
+
+
+Damian Wilson: vocals
+Karl Groom: guitar and bass pedals
+Nick Midson: guitar
+Jon Jeary: bass, acoustic guitar and backing vocals
+Richard West: keyboards and orchestration
+Tony Grinham: drums
+Ian Salmon: acoustic guitar (track 7)
+
+
+
+ 
+
+### "Psychedelicatessen" 1994, Progressive
+
+1. Sunseeker (8.14) 
+2. A Tension Of Souls (7.07) 
+3. Into The Light (10.00) 
+4. Will To Give (4.57)    
+5. Under The Sun (3.03)    
+6. Babylon Rising (4.32) 
+7. He Is I Am (5.50) 
+8. Innocent (4.34) 
+9. Devoted (7.43)    
+10. Lost (2.42) *    
+11. Intervention (7.52) *    
+
+(* Remastered / Japanese versions only)
+
+
+Musicians
+
+
+Glynn Morgan: vocals
+Karl Groom: guitar / acoustic
+Nick Midson: guitar
+Jon Jeary: bass / additional vocals
+Richard West: keyboards
+Nick Harradence: drums
+
+
+ 
+
+### "Extinct Instinct" 1997, Progressive
+
+1. Exposed (6.25) 
+2. Somatography (6.22) 
+3. Eat The Unicorn (10.00) 
+4. Forever (4.34)    
+5. Virtual Isolation (5.34)    
+6. The Whispering (7.52) 
+7. Lake Of Despond (6.22)    
+8. Clear (3.32)    
+9. Life Flow (5.50)    
+10. Part Of The Chaos (8.14) 
+
+
+Musicians
+
+
+Damian Wilson: vocals
+Karl Groom: guitar / acoustic
+Nick Midson: guitar / acoustic
+Jon Jeary: bass / acoustic / backing vocals
+Richard West: keyboards / backing vocals
+Mark Heaney: drums
+
+
+  
+
+
+### "Clone" 1998, Progressive
+
+1. Freaks (5.32) 
+2. Angels (6.42) 
+3. The Latent Gene (8.00) 
+4. Lovelorn (5.41)   
+5. Change (4.33) 
+6. Life's Too Good (5.27)   
+7. Goodbye Mother Earth (7.58)   
+8. Voyager II (9.04) 
+9. Sunrise On Mars (5.47) 
+
+
+Musicians
+
+
+Mac: vocals
+Karl Groom: guitar/acoustic
+Nick Midson: guitar/acoustic
+Jon Jeary: bass
+Richard West: keyboards
+Mark Heaney: drums
+
+
+
+
+### "Hypothetical" 2001, Progressive
+
+Light & Space
+Turn On Tune In 
+The Ravages Of Time
+Sheltering Sky 
+Oceanbound 
+Long Way Home
+Keep My Head 
+Narcissus
+
+### "Critical Mass" 2002, Progressive
+
+01. Phenomenon 	05:30
+02. Choices 	08:19
+03. Falling Away 	06:52
+04. Fragmentation 	06:34
+05. Echoes Of Life 	08:55
+06. Round And Round 	05:26
+07. Avalon 	04:45
+08. Critical Mass (Part 1-3) 	13:35
+
+
+
+Line-Up:
+Andrew “Mac” Dermott (vocals)
+Karl Groom (guitars)
+Nick Midson (guitars)
+Jon Jeary (bass)
+Richard West (keyboards)
+Johanne James (drums)
+
+
+### "Critical Energy" 2004, Progressive
+
+
+
+### "Subsurface" 2004, Progressive
+
+01. Mission Profile (8:15)
+02. Ground Control (7:10)
+03. Opium (6:47)
+04. Stop Dead (4:18)
+05. The Art Of Reason (10:17)
+06. Pressure (5:13)
+07. Flags And Footprints (4:57)
+08. Static (5:06)
+09. The Destruction Of Words (6:10)
+10. What About Me (4:19 - bonus track)
++ multimedia section
+
+### "Critical Energy DVD" 2004, Progressive
+
+
+
+### "Dead Reckoning" 2007, Progressive
+
+1. Slipstream 04:53  
+2. This Is Your Life 03:41  
+3. Elusive 06:10  
+4. Hollow 04:00  
+5. Pilot In The Sky Of Dreams 09:44  
+6. Fighting for Breath 08:16  
+7. Disappear 04:17  
+8. Safe To Fly 05:06  
+9. One Degree Down 08:33 
+
+
+
+Dan Swano - backing vocals
+
+"Dead Reckoning" was produced by guitarist Karl Groom and keyboardist Richard
+West at Thin Ice Studios.
+
+### "The Ravages Of Time - The Best Of Threshold (2CD)" 2007, Progressive
+
+
+
+### "March of Progress" 2012, Progressive
+
+01. Ashes 06:51 
+02. Return of the Thought Police 06:09 
+03. Staring at the Sun 04:26 
+04. Liberty Complacency Dependency 07:49 
+05. Colophon 06:01 
+06. The Hours 08:15 
+07. That's Why We Came 05:41 
+08. Don't Look Down 08:13 
+09. Coda 05:23 
+10. Rubicon 10:22 
+11. Divinity (Bonus Track) 06:28
+
+THRESHOLD’s new album is the follow-up to 2007’s Dead Reckoning and marks the return of original THRESHOLD vocalist Damian Wilson 
+
+Karl Groom - Guitars (lead) 
+Richard West - Keyboards 
+Damian Wilson - Vocals 
+Johanne James - Drums 
+Steve Anderson - Bass 
+Pete Morten - Guitars (rhythm)
+
+### "For the Journey" 2014, Progressive
+
+1. Watchtower on the Moon  
+2. Unforgiven      
+3. The Box      
+4. Turned to Dust      
+5. Lost in your Memory     
+6. Autumn Red      
+7. The Mystery Show      
+8. Siren Sky  
+
+
+### "Legends Of The Shires" 2017, Progressive
+
+CD 1:
+01. The Shire (Part 1) 2:03
+02. Small Dark Lines 5:24
+03. The Man Who Saw Through Time 11:51
+04. Trust The Process 8:44
+05. Stars And Satellites 7:20
+06. On The Edge 5:20
+
+CD 2:
+07. The Shire (Part 2) 5:24
+08. Snowblind 7:03
+09. Subliminal Freeways 4:51
+10. State Of Independence 3:37
+11. Superior Machine 5:01
+12. The Shire (Part 3) 1:22
+13. Lost In Translation 10:20
+14. Swallowed 3:54
+
 
 ## Отношения с другими группами
 

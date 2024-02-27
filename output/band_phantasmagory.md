@@ -1,9 +1,21 @@
 # Phantasmagory
 
-Дискография
-"Anamorphosis of dreams" 2003, Techno Death
-"Odd Sounds" 2005, Techno Death
-"Phantasmagoria" 2005, Techno Death
+techno-death from Ukraine
+
+## Дискография
+
+### "Anamorphosis of dreams" 2003, Techno Death
+
+
+
+### "Odd Sounds" 2005, Techno Death
+
+
+
+### "Phantasmagoria" 2005, Techno Death
+
+
+
 
 ## Отношения с другими группами
 

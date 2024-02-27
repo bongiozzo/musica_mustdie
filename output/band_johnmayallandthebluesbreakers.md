@@ -1,7 +1,13 @@
 # John Mayall And The Bluesbreakers
 
-Дискография
-"In The Palace Of The King" 2007, Blues
+
+
+## Дискография
+
+### "In The Palace Of The King" 2007, Blues
+
+
+
 
 ## Отношения с другими группами
 

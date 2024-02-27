@@ -1,10 +1,55 @@
 # Vanexa
 
-Дискография
-"Vanexa" 1983, Heavy Metal
-"Back from the Ruins" 1988, Heavy Metal
-"Against the Sun" 1994, Heavy Metal
-"Metal City Live" 2011, Heavy Metal
+
+
+## Дискография
+
+### "Vanexa" 1983, Heavy Metal
+
+1. Metal City Rockers	03:56	 
+2. Lost War Sons	03:59	 
+3. I Wanna See Fires	04:23	 
+4. 1000 Nights	02:53	 
+5. If You Fear the Pain	04:56	 
+6. Across the Ruins	05:55	 
+7. Rainbow in the Dark	04:52	
+
+### "Back from the Ruins" 1988, Heavy Metal
+
+1. Midnight Wolves	03:13	 
+2. Bloodmoney	03:01	 
+3. Creation	05:25	 
+4. It's Over	04:55	 
+5. Hanged Man	03:48	 
+6. Night Rain on the Ruins	04:39	 
+7. We All Will Die	03:13	 
+8. Hiroshima	03:03
+
+### "Against the Sun" 1994, Heavy Metal
+
+1. Against the Sun	04:26	 
+2. Cafe' de Paris	06:24	 
+3. In the Shadow of the Cross	05:24	 
+4. Nervous	03:09	 
+5. Stick to Me	03:30	 
+6. Rage'n Roll	03:19	 
+7. Drunk	04:26	 
+8. Genocide	05:04	 
+9. Dark Lady	07:05	 
+10. Night Rain on the Ruins	04:40	
+
+### "Metal City Live" 2011, Heavy Metal
+
+1. Shadow of the Cross	04:55	 
+2. I Wanna See Fires	05:06	 
+3. Hanged Man	03:16	 
+4. Against the Sun	04:11	 
+5. Midnight Wolves	04:36	 
+6. Night Rain on the Ruins	04:55	 
+7. One Thousend Nights	03:31	 
+8. Metal City Rockers	05:30	 
+9. Rainbow in the Night	06:53	
+
 
 ## Отношения с другими группами
 

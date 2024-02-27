@@ -1,11 +1,88 @@
 # Dixie Dregs
 
-Дискография
-"Free Fall" 1977, Instrumental
-"What If" 1978, Instrumental
-"Night of the Living Dregs" 1979, Instrumental
-"King Biscuit Presents Dixie Dregs" 1997, Instrumental
-"California Screamin'" 2000, Instrumental
+(formed by Steve Morse - Deep Purple guitar player)
+
+## Дискография
+
+### "Free Fall" 1977, Instrumental
+
+1 Free Fall 4:40 (Dixie Dregs) 
+2 Holiday 4:29 (Dixie Dregs) 
+3 Hand Jig 3:16 (Dixie Dregs) 
+4 More Down 3:49 (Dixie Dregs) 
+5 Refried Funky Chicken 3:16 (Dixie Dregs) 
+6 Sleep 1:53 (Dixie Dregs) 
+7 Cruise Control 6:14 (Dixie Dregs) 
+8 Cosmopolitan Traveler 3:01 (Dixie Dregs) 
+9 Dig the Ditch 3:50 (Dixie Dregs) 
+10 Wages of Weirdness 3:45 (Dixie Dregs) 
+11 Northern Lights 3:12 (Dixie Dregs) 
+
+
+### "What If" 1978, Instrumental
+
+1 Take It off the Top 4:07 (Dixie Dregs) 
+2 Odyssey 7:35 (Dixie Dregs) 
+3 What If 5:01 (Dixie Dregs) 
+4 Travel Tunes 4:34 (Dixie Dregs) 
+5 Ice Cakes 4:39 (Dixie Dregs) 
+6 Little Kids 2:03 (Dixie Dregs) 
+7 Gina Lola Breakdown 4:00 (Dixie Dregs) 
+8 Night Meets Light 7:47 (Dixie Dregs) 
+
+
+### "Night of the Living Dregs" 1979, Instrumental
+
+1 Punk Sandwich 3:14 (Dixie Dregs) 
+2 Country House Shuffle 4:12 (Dixie Dregs) 
+3 Riff Raff 3:16 (Dixie Dregs) 
+4 Long Slow Distance 6:32 (Dixie Dregs) 
+5 Night of the Living Dregs 4:18 (Dixie Dregs) 
+6 Bash 4:29 (Dixie Dregs) 
+7 Leprechaun Promenade 3:47 (Dixie Dregs) 
+8 Patchwork 4:46 (Dixie Dregs) 
+
+
+### "King Biscuit Presents Dixie Dregs" 1997, Instrumental
+
+1 Intro :08 (Dixie Dregs) 
+2 Free Fall 4:31 (Dixie Dregs) 
+3 Country House Shuffle 3:52 (Dixie Dregs) 
+4 Moe Down 3:52 (Dixie Dregs) 
+5 Ice Cakes 5:46 (Dixie Dregs) 
+6 Travel Tunes 4:04 (Dixie Dregs) 
+7 Night of the Living Dregs 4:06 (Dixie Dregs) 
+8 Night Meets Light 9:08 (Dixie Dregs) 
+9 Punk Sandwich 3:22 (Dixie Dregs) 
+10 Bash 6:29 (Dixie Dregs) 
+11 Cruise Control 6:41 (Dixie Dregs) 
+12 Take It off the Top 4:42 (Dixie Dregs) 
+ 
+
+
+
+### "California Screamin'" 2000, Instrumental
+
+1 Wages of Weirdness 4:10 (Dixie Dregs) 
+2 Peaches En Regalia 3:23 (Dixie Dregs) 
+3 Free Fall 4:40 (Dixie Dregs) 
+4 Aftershock 3:46 (Dixie Dregs) 
+5 Bash 6:48 (Dixie Dregs) 
+6 Night Meets Light 9:00 (Dixie Dregs) 
+7 Refried Funky Chicken 4:05 (Dixie Dregs) 
+8 Jesscia 7:19 (Dixie Dregs) 
+9 What If 5:10 (Dixie Dregs) 
+10 Sleevlss In Seattle 4:15 (Dixie Dregs) 
+11 Ionized 3:49 (Dixie Dregs) 
+12 Great Spectacular 3:30 (Dixie Dregs) 
+13 Dixie 1:30 (Dixie Dregs) 
+ 
+
+
+   
+  
+
+
 
 ## Отношения с другими группами
 

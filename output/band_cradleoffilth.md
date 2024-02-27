@@ -1,32 +1,555 @@
 # Cradle of Filth
 
-Дискография
-"Invoking the Unclean (demo)" 1992, Black Metal
-"The Black Goddess Rise (demo)" 1992, Black Metal
-"Orgiastic Pleasures (demo)" 1992, Black Metal
-"Total Fucking Darkness (demo)" 1993, Black Metal
-"The Principle of Evil Made Flesh" 1994, Black Metal
-"Vempire or Dark Faerytales in Phallustein" 1996, Black Metal
-"Dusk... And Her Embrace" 1996, Black Metal
-"Cruelty and the Beast" 1998, Black Metal
-"Cruelty and the Beast [special edition]" 1998, Black Metal
-"From the Cradle to Enslave (EP)" 1999, Black Metal
-"Midian" 2000, Black Metal
-"Bitter Suites to Succubi" 2001, Black Metal
-"Live Bait for the Dead" 2002, Black Metal
-"Lovecraft and Witch Hearts" 2002, Black Metal
-"Damnation and a Day" 2003, Black Metal
-"Nymphetamine" 2004, Black Metal
-"Thornography" 2006, Black Metal
-"Thornography - Harder Darker Faster" 2008, Black Metal
-"Godspeed On The Devil's Thunder" 2008, Black Metal
-"Darkly, Darkly, Venus Aversa" 2010, Black Metal
-"Evermore Darkly (EP)" 2011, Black Metal
-"The Manticore and Other Horrors" 2012, Black Metal
-"Right Wing of the Garden Triptych (single)" 2015, Black Metal
-"Hammer of the Witches" 2015, Black Metal
-"Heartbreak and Seance (Single)" 2017, Black Metal
-"Cryptoriana - The Seductiveness of Decay" 2017, Black Metal
+Highest Band of Vampiric Black Style
+
+## Дискография
+
+### "Invoking the Unclean (demo)" 1992, Black Metal
+
+
+
+### "The Black Goddess Rise (demo)" 1992, Black Metal
+
+
+
+### "Orgiastic Pleasures (demo)" 1992, Black Metal
+
+
+
+### "Total Fucking Darkness (demo)" 1993, Black Metal
+
+
+
+### "The Principle of Evil Made Flesh" 1994, Black Metal
+
+1. Darkness Our Bride (Jugular Wedding) - 2:00
+2. The Principle of Evil Made Flesh - 4:34
+3. The Forest Whispers My Name - 5:06
+4. Iscariot - 2:33
+5. The Black Goddess Rises - 6:48
+6. One Final Graven Kiss - 2:15
+7. A Crescendo of Passion Bleeding - 5:30
+8. To Eve the Art of Witchcraft - 5:28
+9. Of Mist and Midnight Skies - 8:09
+10. In Secret Love We Drown - 1:29
+11. A Dream of Wolves in the Snow - 2:10
+12. Summer Dying Fast - 5:39
+
+
+Paul A. - Despondent Night Chords
+Benjamin - Gothic Vampiric Overtures
+Nicholas - Winter Evening Storms
+Robin - Nocturnal Pulse
+Paul R. - Satanic War Noise
+Dani - Dark Immortal Screams
+
+All Music by CRADLE OF FILTH, All Lyrics by Dani.
+Vocals on "A Dream of Wolves in the Snow" by Darren (Anathema).
+All female vocals arranged and performed by Andrea Meyer.
+Cello accompaniment by Soror Proselemos.
+"Imperium Tenebrarum" written and invoked by Frater Nihil.
+
+Mixed and produced by Mags at Academy Studios.
+Recorded in the Autumn Twilight 1993 e.h.
+
+&copy; 1994 CACOPHONOUS Records
+
+### "Vempire or Dark Faerytales in Phallustein" 1996, Black Metal
+
+1. Ebony Dressed for Sunsets.
+2. The Forest Whispers My Name.
+3. Queen of Winter, Throned.
+4. Nocturnal Supremacy.
+5. She Mourns a Lengthening Shadow.
+6. The Rape and Ruin of Angels.
+
+(p)&©1996 CACOPHONOUS RECORDS (NIHIL 6CD)
+
+ROBIN - Nocturnal Pulse
+STUART - Flesh upon the Razor Wire
+DAMIEN - Poenarian Fugue and Choir
+JARED - Funeral Dirge
+DANI - Sepulchral Voice
+NICHOLAS - Impaler Troop Movements
+LADY JEZEBED DEVA - Dulcet Ghostly Song
+CNEAJNA - Seducer of Ravens and Angels
+
+This second opus was performed with the accompaniment of: - Danielle, Rachel, Sarah - Tortured Orgasm Chorus and 
+elicated the involvement of the following: - Eileen, Vida, Scarlet, Luna, Gabrielle - Model Succubi.
+Jared Demeter appears as session musisian at this recording courtesy of December Moon. Dark Room Alchemy by 
+Chris Bell, with Art Direction by Nigel Wingroove. Fatal Portraits captured by Leviathan Productions. Graven Imagen 
+by Frater Nihil.Grand Design by Plasma Art, Invasion Plans by Digitalis.
+Evoked in Winter Shadow 1995/1996 e. h. Under guidance of Mags at Academy Studios. Assistant therionship by Keith 
+Appleton. Mastered by Nilesh at The Exchange.
+Nicholas beats Zildjan and Pearl. All lyrics remain the copyrights of Dani. Music written by Cradle of Filth. Published 
+by Schnozza Music Ltd.
+
+"Those who Trespass against us, Beware the Shadows of Dusk"
+
+### "Dusk... And Her Embrace" 1996, Black Metal
+
+1. Humana Inspired To Nightmare
+2. Heaven Torn Asunder
+3. Funeral In Carpathia
+4. A Gothic Romance (Red Roses For The Devil's Whore)
+5. Noctumal Supremacy '96
+6. Malice Through The Looking Glass
+7. Dusk And Her Embrace
+8. The Graveyard By Moonlight
+9. Beauty Slept In Sodom
+10.Haunted Shores
+
+This perverse funebrial rite was vexed to wargasm 
+through divulged fantasies by Sarah Jezebel 
+Deva - Dulcet Ghostly Song & Daniele Cneajna
+Cottington - Velvet Invocation.
+"Dusk..." was summoned under torture and dusk influence
+of the Leonine tearing into Virgo,as Summer day dying,
+1996 EH, at D.E.P. Studios.
+Kit Woolven - Producer of ravens and angels
+Dan Sprigg - Assistant maelstrom strategy
+Mike Exorcist - Further seance
+
+Stuart - Requiems of war and woe
+Dani - Desires better unsung
+Damien - Orchestral manoeuveres in the dark
+Robin - Nocturnal pulse
+Nicholas - Hammer of the gods
+Gian - Ravening black massacre
+
+(P)c 1996 MUSIC FOR NATIONS // MFNX 208
+
+### "Cruelty and the Beast" 1998, Black Metal
+
+1. Once upon atrocity
+2. Thirteen autumns and a widow
+3. Cruelty brought thee orchids
+4. Beneath the howling stars
+5. Venus in fear
+6. Desire in voilent overture
+7. The twisted nails of faith
+8. Bathory aria
+     I. Benighted like Usher
+    II. A murder of ravens in fudge
+   III. Eyes that witnessed madness
+9. Portrait of the dead countess
+10.Lustmord and wargasm
+
+
+### "Cruelty and the Beast [special edition]" 1998, Black Metal
+
+ 1. Once Upon Atrocity    
+ 2. Thirteen Autumns and a Widow 
+ 3. Cruelty Brought Thee Orchids   
+ 4. Beneath the Howling Stars   
+ 5. Venus in Fear 
+ 6. Desire in Violent Overture
+ 7. The Twisted Nails of Faith  
+ 8. Bathory Aria
+ 9. Lustmord and Wargasm (The Relicking of Cadaverous Wounds)
+10. Black Metal  
+11. Hallowed Be Thy Name (Shallow Be My Grave)
+12. Sodomy & Lust
+13. Twisting Further Nails (The Cruci-Fiction Mix)
+
+### "From the Cradle to Enslave (EP)" 1999, Black Metal
+
+1  From the Cradle to Enslave 
+2  Of Dark Blood and Fucking    
+3  Death Comes Ripping  
+4  Sleepless
+5* Pervert's Church (From the Cradle to Deprave) 
+6  Funeral in Carpathia (Be Quick or Be Dead version)
+7* Dawn of Eternity  
+
+* - track 7 replaces track 5 on US version of the album
+
+
+### "Midian" 2000, Black Metal
+
+1. At The Gates Of Midian 
+2. Cthulhu Dawn 
+3. Saffron's Curse 
+4. Death Magick For Adepts 
+5. Lord Abortion 
+6. Amor E Morte 
+7. Creatures That Kissed In Cold Mirrors 
+8. Her Ghost In The Fog 
+9. Satanic Mantra 
+10. Tearing The Veil From Grace 
+11. Torture Soul Asylum
+12*.  For Those Who Died  
+
+* - track appears on Japanese version
+
+
+### "Bitter Suites to Succubi" 2001, Black Metal
+
+01 - Sin deep my wicked angel         [02:23]
+02 - All hope in eclipse              [06:39]
+03 - Born in a burial gown            [04:46]
+04 - Summer dying fast                [05:21]
+05 - No time to cry *                 [03:22]
+06 - The principle of evil made flesh [04:49]
+07 - Suicide and other comforts       [06:57]
+08 - Dinner at deviant's palace       [02:59]
+09 - The black goddess rises II       [07:22]
+10 - Scorched earth erotica           [04:57]
+
+* originally performed by Sisters of Mercy
+
+### "Live Bait for the Dead" 2002, Black Metal
+
+
+
+### "Lovecraft and Witch Hearts" 2002, Black Metal
+
+
+
+### "Damnation and a Day" 2003, Black Metal
+
+01. A Bruise Upon The Silent Moon
+02. The Promise Of Fever
+03. Hurt And Virtue
+04. An Enemy Led The Tempest
+05. Damned In Any Language ( A Plague On Words)
+06. Better To Reign In Hell
+07. Serpent Tongue
+08. Carrion
+09. The Mordant Liquor Of Tears
+10. Presents From The Poison-Hearted
+11. Doberman Pharaoh
+12. Babalon A.D. (So Glad For The Madness)
+13. A Scarlet Witch Lit The Season
+14. Mannequin
+15. Thank God For The Suffering
+16. The Smoke Of Her Burning
+17. End Of Daze 
+
+Dani Filth - Scripture And Howls
+Paul - Unrepentant White Noise
+Martin Foul - Keys To Ransacked Eden
+David Pubis - Poisoned Heart Throb
+Adrian - Savage Repercussion
+
+...all closed books on virtue
+
+Sarah Jezebel Deva - Lead angelic voice
+
+Narration - Dave McEwen
+Fellation - Madame Slam from
+Madame Slam's Bedtime stories
+
+Additional guitar by Martin Foul
+
+Over produced by Doug Cook and Cradle Of Filth
+
+Mixed by Rob Caggiano (for Scrap 60)
+and Cradle Of Filth
+Mix Engineered by Doug Cook and Steve Regina
+
+Engineered by Doug Cook - Assisted by Dan Turner
+
+Recorded at Parkgate Studios, Battle, with
+additional work undertaken at New Rising Studios,
+Peldon, late Summer and Autumn 2002
+
+Orchestral passages arranged and mixed by Daniel Presley
+
+Performed by The Budapest Film Orchestra and Budapest Film Choir - Conducted By Lazslo Zadori
+
+Mastered by Ray Staff at Sony Studios,
+Whitfield Street, London
+
+
+### "Nymphetamine" 2004, Black Metal
+
+01. Satyriasis (Intro)
+02. Gilded Cunt
+03. Nemesis
+04. Gabrielle
+05. Absinthe with Faust
+06. Nymphetamine (Overdose) (feat. Liv Kristine)
+07. Painting Flowers White Never Suited My Palette (Instrumental)
+08. Medusa and Hemlock 
+09. Coffin Fodder 
+10. English Fire 
+11. Filthy Little Secret 
+12. Swanson For A Raven 
+13. Mother of Abominations
+
+### "Thornography" 2006, Black Metal
+
+1. Under Pregnant Skies she Comes Alive Like Miss Leviathan   
+2. Dirge Inferno 
+3. Tonight in Flames   
+4. Libertina Grimm   
+5. Byronic Man   
+6. I am the Thorn   
+7. Cemetery and Sundown   
+8. Lovesick for Mina   
+9. The Foetus of a New Day Kicking   
+10. Rise of the Pentagram   
+11. Under Huntress Moon   
+12. Temptation
+
+### "Thornography - Harder Darker Faster" 2008, Black Metal
+
+Album (DVD Audio):
+
+01. Under Pregnant Skies She Comes Alive Like Miss Leviathan
+02. Dirge Inferno
+03. Tonight In Flames
+04. Libertina Grimm
+05. The Byronic Man
+06. I Am The Thorn
+07. Cemetery And Sundown
+08. Lovesick For Mina
+09. The Foetus Of A New Day Kicking
+10. Rise Of The Pentagram
+11. Under Huntress Moon
+12. Temptation
+
+"Harder, Darker, Faster...":
+
+01. Murder In The Thirst
+02. The Snake-Eyed and The Venomous
+03. Halloween III - Season Of The Bitch (MISFITS cover) (remix)
+04. Courting Baphomet
+05. Stay (SHAKESPEARS SISTER cover)
+06. Devil To The Metal
+
+Videos:
+
+01. Tonight In Flames
+02. The Foetus Of A New Day Kicking
+03. Temptation
+
+Extra content includes:
+
+* "The Making Of The Video" for "The Foetus Of A New Day Kicking"
+* MP3s of entire album (same tracklisting as DVD audio)
+
+The following tracks come in U Myx format which allows you to remix the tracks:
+
+a) Dirge Inferno
+b) The Foetus Of A New Day Kicking
+
+* Mobile Content
+* Wallpapers, photos and truetones
+
+### "Godspeed On The Devil's Thunder" 2008, Black Metal
+
+1. In Grandeur And Frankincense Devilment Stirs (2:27)
+2. Shat Out Of Hell (5:03)
+3. The Death Of Love (7:13)
+4. The 13th Caesar (5:35)
+5. Tiffauges (2:14)
+6. Tragic Kingdom (5:59)
+7. Sweetest Maleficia (5:59)
+8. Honey And Sulphur (5:37)
+9. Midnight Shadows Crawl To Darken Counsel With Life (8:58)
+10. Darkness Incarnate (8:55)
+11. Ten Leagues Beneath Contempt (4:58)
+12. Godspeed On The Devil's Thunder (5:36)
+13. Corpseflower (2:41)
+
+
+Dani Filth (Daniel Lloyd Davey) - Vocals 
+Paul Allender - Guitar 
+Dave Pybus - Bass 
+Martin "Marthus" Skaroupka - Drums
+
+### "Darkly, Darkly, Venus Aversa" 2010, Black Metal
+
+1. The Cult of Venus Aversa 07:07 
+2. One Foul Step From the Abyss 04:53
+3. The Nun with the Astral Habit 04:55
+4. Church of the Sacred Heart 03:56  
+5. The Persecution Song 05:34  
+6. Deceiving Eyes 06:32] 
+7. Lilith Immaculate 06:12 
+8. The Spawn of Love and War 06:19 
+9. Harlot on a Pedestal 05:09 
+10. Forgive Me Father (I Have Sinned) 04:33 
+11. Beyond the Eleventh Hour 07:16 
+
+
+
+Line-up:
+Dani Filth - Vocals
+Paul Allender - Guitars
+James McIlroy - Guitars
+Dave Pybus - Bass
+Ashley Ellyllon - Keyboards, Backing Vocals
+Martin Љkaroupka - Drums
+
+Guest members:
+Lucy Atkins - Female Vocals
+Dora Kemp - Backing Vocals
+Mark Newby-Robson - Orchestration
+Andy James - Guitars
+
+Choirs:
+- Ruth McCabe
+- Tim Cutts
+- Craig Miller
+- Philippa Mann
+- Dora Kemp
+- Anna Asbach-Cullen 
+
+Produced by Scott Atkins, Doug Cook and Dani Filth 
+Mixed by Scott Atkins
+Engineered by Scott Atkins and Doug Cook
+With roadside assistance by Rupert Matthews and Andy Sneap
+
+Recorded and mixed at Monkey Puzzle House Studio, Woolpit, Suffolk, England,
+spring - summer 2010.
+
+Mastered at Backstage studios, Sneapy Hollow, Derbyshire, England, August 2010
+E.H
+
+All music written by Paul Allender, James McIlroy, Mark Newby-Robson, Ashley
+Ellyllon, Dave Pybus and Martin Skaroupka
+
+Lyrics by Dani Filth
+Published by Cradle Of Filth Music Ltd.
+
+
+Limited edition bonus disc:
+01. Beast of Extermination (05:32)
+02. Truth and Agony (05:56)
+03. Mistress From the Sucking Pit (07:00) 
+04. Behind the Jagged Mountains (05:44)
+
+Special Fan Edition bonus disc:
+01. Beast of Extermination (05:32)
+02. Truth & Agony (05:56)
+03. Adest Rosa Secreta Eros
+04. Mistress From the Sucking Pit (07:00)
+05. Behind the Jagged Mountains (05:54)
+06. The Cult of Venus Aversa (Demo version) 
+07. The Nun With the Astral Habit (Demo version) 
+08. Deceiving Eyes (Demo version)
+
+The special fan edition comes packaged in a deluxe hard box also containing:
+- DVD - the promo video for "Forgive Me Father (I Have Sinned)", plus a
+documentary on the making of the video
+- A 64 page hard-back book containing band photos, musings and artwork
+- An exclusive t-shirt available only in this box
+- A stunning limited edition lenticular 3D image of the album cover art, ready
+for framing
+- Five photographic prints
+- An official certificate of authenticity from the band
+
+
+### "Evermore Darkly (EP)" 2011, Black Metal
+
+1. Transmission from Hell 
+2. Thank Your Lucky Scars 
+3. Forgive Me Father (I Have Sinned) - Elder version 
+4. Lilith Immaculate (Extended Length) 
+5. The Persecution Song - Elder version 
+6. Forgive Me Father (I'm in a Trance) 
+7. The Spawn of Love And War - Elder version 
+8. Summer Dying Fast ("Midnight in The Labyrinth" breadcrumb trail)
+
+
+Bonus DVD:
+1. You Can't Polish a Turd, But You Can Roll It in Glitter (Documentary) 
+2. Lilith Immaculate (promo video) 
+3. Humana Inspired to Nightmare (intro) 
+4. Heaven Torn Asunder 
+5. Honey and Sulphur 
+6. Lilith Immaculate 
+7. Her Ghost in the Fog 
+8. Nymphetamine 
+9. The Principle of Evil Made Flesh 
+10. Ebony Dressed for Sunset 
+11. The Forest Whispers My Name 
+12. Cruelty Brought Thee Orchids 
+13. From the Cradle to Enslave 
+14. Summer Dying Fast (orchestral outro)
+
+
+
+### "The Manticore and Other Horrors" 2012, Black Metal
+
+01. The Unveiling Of O 
+02. The Abhorrent 
+03. For Your Vulgar Delectation 
+04. Illicitus 
+05. Manticore 
+06. Frost On Her Pillow 
+07. Huge Onyx Wings Behind Despair 
+08. Pallid Reflection 
+09. Siding With The Titans 
+10. Succumb To This 
+11. Nightmares Of An Ether Drinker 
+Deluxe edition bonus tracks:
+12. Death, the Great Adventure
+13. Sinfonia
+ 
+The Bestiary
+Cradle Of Filth on this phonographic recording were:
+Dani Filth - Dictionary of the Vulgar Tongue
+Paul Allender - Rampant Guitarsonism
+Martin ‘Marthus’ Skaroupka - Gцtterdrummerung und Orchestration
+
+Album's produced by Scott Atkins, Dani Filth, Paul Allender and Martin Skaroupka under severe cosmic circumstances.
+ 
+Recorded, mixed and mastered at Grindstone Studio, Suffolk by Scott Atkins.
+ 
+Bass ache by Daniel Firth.
+Lead female voice by Lucy Atkins.
+Choir conducted and arranged by Will Graney.
+Mantichoral Pleasures - Jill Fallow, Scarlet Summer, Lucy Atkins,
+India Price, Janet Granger, Petra Stiles-Swinton, Anita Kilpatrick,
+Robert L. Friars, Daniel Oxblood, Joseph Kelly, Jasper Conway.
+ 
+Music written by Paul Allender, Martin Skaroupka, and DJ Gunnarson.
+All lyrics by Dani Filth. 
+
+### "Right Wing of the Garden Triptych (single)" 2015, Black Metal
+
+1. Right Wing of the Garden Triptych  05:54  
+
+### "Hammer of the Witches" 2015, Black Metal
+
+1. Walpurgis Eve  01:29    
+2. Yours Immortally…  06:00    
+3. Enshrined in Crematoria  05:46    
+4. Deflowering the Maidenhead, Displeasuring the Goddess  06:56    
+5. Blackest Magick in Practice  06:50    
+6. The Monstrous Sabbat (Summoning the Coven)  01:51    
+7. Hammer of the Witches  06:28    
+8. Right Wing of the Garden Triptych  05:54   
+9. The Vampyre at My Side  05:45    
+10. Onward Christian Soldiers  06:59    
+11. Blooding the Hounds of Hell  02:10    
+12. King of the Woods (bonus) 06:17    
+13. Misericord (bonus) 06:19  
+
+
+### "Heartbreak and Seance (Single)" 2017, Black Metal
+
+1. Heartbreak and Seance  06:24
+
+### "Cryptoriana - The Seductiveness of Decay" 2017, Black Metal
+
+1. Exquisite Torments Await  02:15   
+2. Heartbreak and Seance  06:24
+3. Achingly Beautiful  07:02    
+4. Wester Vespertine  07:29   
+5. The Seductiveness of Decay  07:38   
+6. Vengeful Spirit  06:00  
+7. You Will Know the Lion by His Claw  07:22    
+8. Death and the Maiden  08:48    
+9. The Night at Catafalque Manor  07:31 
+10. Alison Hell  05:01 
+
+Recorded at Grindstone Studios in Suffolk, UK.
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,46 @@
 # Nitzer Ebb
 
-Дискография
-"Showtime" 1990, Alternative
-"Ebbhead" 1991, Alternative
+
+
+## Дискография
+
+### "Showtime" 1990, Alternative
+
+1. Getting Closer
+2. Nobody Knows
+3. One Man's Burden
+4. Allover
+5. My Heart
+6. Lightning Man
+7. Robe
+8. Holdon
+9. Fun To Be Had
+
+Produced By Flood.
+Recorded & Mixed At Swan Yard 
+Studio,London.
+
+(p)&(c) 1990 GEFFEN Records
+
+### "Ebbhead" 1991, Alternative
+
+1. Reasons
+2. Lakeside Drive
+3. I Give To You
+4. Sugar Sweet
+5. Djvd
+6. Time
+7. Ascend
+8. Godhead
+9. Trigger Happy
+10.Mamily Man
+
+Produced By Alan Wilder & Flood.
+Written & Programmed At Sync City.
+Recorded At Konk Studio,London.
+
+(p)&(c) 1991 GEFFEN Records
+
 
 ## Отношения с другими группами
 

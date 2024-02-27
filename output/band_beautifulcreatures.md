@@ -1,7 +1,26 @@
 # Beautiful Creatures
 
-Дискография
-"Beautiful Creatures" 2001, Alternative
+
+
+## Дискография
+
+### "Beautiful Creatures" 2001, Alternative
+
+1. 1 A.M. 
+2. Wasted 
+3. Step Back 
+4. Ride 
+5. Wish 
+6. Kick Out 
+7. Blacklist 
+8. Kickin For Days 
+9. Time And Time Again 
+10. Goin Off 
+11. New Orleans 
+12. I Got It All 
+ 
+
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,27 @@
 # Superior
 
-Дискография
-"Ultima Ratio" 2002, Progressive
+
+
+## Дискография
+
+### "Ultima Ratio" 2002, Progressive
+
+5-2-12 (Intro) 
+Ultra 
+Reflections 
+Breeze Of Insanity 
+Propaganda X 
+My Fate 
+Reach For Reign 
+The Unwanted 
+Terminus Interlude 
+Fallen 
+Terror Fantasy 
+Broken World 
+UR Resistance 
+Judgement Day 
+Eternity
+
 
 ## Отношения с другими группами
 

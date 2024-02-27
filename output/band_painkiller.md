@@ -1,10 +1,77 @@
 # Painkiller
 
-Дискография
-"Guts Of A Virgin" 1991, Grindcore
-"Buried Secrets" 1992, Grindcore
-"Execution Ground" 1995, Grindcore
-"Guts Of A Virgin / Buried Secrets" 1998, Deathcore
+NAPALM DEATH, NAKED CITY Member
+
+## Дискография
+
+### "Guts Of A Virgin" 1991, Grindcore
+
+1. Scud Attack
+2. Deadly Obstacle Collage
+3. Damage To The Mask
+4. Guts Of A Virgin
+5. Handjob
+6. Portent
+7. Hostage
+8. Lathe Of God
+9. Dr. Phibes
+10.Purgatory Of Fiery Vulvas
+11.Warhead
+12.Devil`s Eve
+
+ John Zorn  - Alto Sax,Vocals
+ Bill Laswell - Bass
+ Mick Harris - Drums & Vocals
+
+All Songs Written By PAINKILLER.
+
+(p)&(c) 1991 EARACHE Records
+
+### "Buried Secrets" 1992, Grindcore
+
+1. Tortured Souls
+2. One-Eyed Pessary
+3. Trailmaker
+4. Blackhole Dub
+5. Buried Secrets *
+6. The Ladder
+7. Executioner
+8. Black Chamber
+9. Skinned
+10.The Toll *
+
+John Zorn - Alto Sax,Vocals
+Bill Laswell - Bass
+Mick Harris - Drums & Vocals
+Special Guests On *:
+Justin Broadrick - Guitar,Drum Machine, Vocals
+G.C.Green - Bass
+
+Recorded & Mixed Aug.& Oct. 1991 By Oz Fritz At Greenpoint, Brooklyn.
+Engineered By Imad Mansour.
+
+(p)&(c) 1992 EARACHE Records
+
+### "Execution Ground" 1995, Grindcore
+
+1. Parish Of Tama (Ossuary Dub)
+2. Morning Of Balachaturdasi
+3. Pashupatinath
+
+All Songs By PAINKILLER.
+Engineered By Oz Fritz.
+Recorded & Mixed At Greenpoint Studio, Brooklyn, NY.
+
+John Zorn - Sax, Voice
+Bill Laswell - Basses, Samples
+Mick Harris - Drums, Samples, Voice
+
+(P)&(C) 1995 SUBHARMONIC Records
+
+### "Guts Of A Virgin / Buried Secrets" 1998, Deathcore
+
+
+
 
 ## Отношения с другими группами
 

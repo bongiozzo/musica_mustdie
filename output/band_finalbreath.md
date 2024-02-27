@@ -1,7 +1,34 @@
 # Final Breath
 
-Дискография
-"Mind Explosion" 2002, Thrash
+death-thrash metal
+
+## Дискография
+
+### "Mind Explosion" 2002, Thrash
+
+Heiko Krumpholz - drums
+Jorg Breitenbach - guitar
+Jorgen "Eumel" Aumann - vocals
+Werner "Space" Muller - guitar
+Thomas Wissel - bass
+ 
+01. Under Pressure
+02. Mind Explosion
+03. Killed By Lust
+04. Break Down
+05. Nondescript
+06. White Prison
+07. When Lover Turns To Hate
+08. The Punisher
+09. To Live And To Die
+10. Careless
+
+Produced by Andy Classen in Stage-One-Studios
+Special thanx to:
+Andy Siry & Edit Syrus Oli Weinsheimer for
+supporting us and to Andy & Schorsch Classen for
+great time in Stage One Studio.
+
 
 ## Отношения с другими группами
 

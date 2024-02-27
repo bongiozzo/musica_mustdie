@@ -1,14 +1,163 @@
 # Falconer
 
-Дискография
-"Falconer" 2001, Power Metal
-"Chapters from a Vale Forlorn" 2002, Power Metal
-"The Sceptre of Deception" 2003, Power Metal
-"Grime vs. Grandeur" 2005, Power Metal
-"Northwind" 2006, Power Metal
-"Among Beggars and Thieves" 2008, Folk
-"Armod" 2011, Folk
-"Black Moon Rising" 2014, Power Metal
+Folk-Melodic Heavy/Power Metal
+
+## Дискография
+
+### "Falconer" 2001, Power Metal
+
+01 Up on the Grave Of Guilt 4:57  
+02 Hersey In Disguise 4:19 
+03 Wings Of Serenity 5:00 
+04 A Quest For The Crown 4:14 
+05 Mindtraveller 5:45 
+06 Entering Eternity 5:14 
+07 Royal Galley 4:16 
+08 Substitutional World 7:42 
+09 Lord Of The Blacksmiths 4:43 
+10 The Past Still Live On 4:34 
+11 Per Tyrssons Dottrar I Vange (bonustrack) 4:51
+
+### "Chapters from a Vale Forlorn" 2002, Power Metal
+
+01 Decadence Of Dignity 4:22 
+02 Enter The Glade 3:48 
+03 Lament Of A Minstrel 4:13 
+04 For Life And Liberty 6:23 
+05 We Sold Our Homesteads 4:10 
+06 The Clarion Call 5:47 
+07 Portals Of Light 4:07 
+08 Stand In Veneration 3:33 
+09 Busted To The Floor 4:17 
+10 En Kungens Man (Japanese Bonus Track) 3:58
+
+### "The Sceptre of Deception" 2003, Power Metal
+
+1. The Coronation
+2. Trail Of Flames
+3. Under The Sword
+4. Night Of Infamy
+5. Hooves Over Northland
+6. Pledge For Freedom
+7. Ravenhair
+8. The Sceptre Of Deception
+9. Hear Me Pray
+10. Child Of Innocence 
+
+
+Kristoffer Gobel: Vocals 
+Stefan Weinerhall: Guitar
+Anders Johansson: Guitar
+Peder Johnsson: Bass
+Karsten Larsson: Drums
+
+### "Grime vs. Grandeur" 2005, Power Metal
+
+01. Emotional Skies 
+02. Purgatory Time 
+03. I Refuse 
+04. Humanity Overdose 
+05. The Assailant 
+06. Power 
+07. No Tears For Strangers 
+08. The Return 
+09. Jack The Knife 
+10. Child Of The Wild 
+
+Line-up: 
+Kristoffer Gobel – Vocals 
+Stefan Weinerhall – Guitar 
+Jimmy Hedlund – Guitar 
+Magnus Linhardt – Bass 
+Karsten Larsson - Drums
+
+### "Northwind" 2006, Power Metal
+
+1. Northwind   
+2. Waltz With the Dead   
+3. Spirit of the Hawk   
+4. Legend and the Lore   
+5. Catch the Shadows   
+6. Tower of the Queen   
+7. Long Gone By   
+8. Perjury and Sanctity   
+9. Fairyland Fanfare   
+10. Himmel sе Trind   
+11. Blinded   
+12. Delusion   
+13. Home of the Knave   
+14. Black Tarn (instrumental) 
+
+
+Line-up:
+Mathias Blad - Vocals and Keyboards
+Stefan Weinerhall - Rhythm and Lead Guitar
+Jimmy Hedlund - Lead Guitar
+Magnus Linhardt - Bass
+Karsten Larsson - Drums
+
+Japanese bonustrack:
+15. Child of the Wild 2006
+
+Digipack version includes a bonus CD with the tracklist: 
+1. Kristallen den Fina 
+2. Ridom Ridom 
+3. Liten Vate 
+4. Vеvindar Friska 
++ Video documentary of the recording.
+
+### "Among Beggars and Thieves" 2008, Folk
+
+1. Field Of Sorrow 
+2. Man Of The Hour 
+3. A Beggar Hero 
+4. Vargaskall 
+5. Carnival Of Disgust 
+6. Mounting Men 
+7. Viddernas Man 
+8. Pale Light Of Silver Moon 
+9. Boiling Led 
+10. Skula, Skorpa, Skalk 
+11. Dreams And Pyres
+
+
+### "Armod" 2011, Folk
+
+1. Svarta Ankan  06:55    
+2. Dimmornas Drottning  04:17    
+3. Griftefrid  04:20    
+4. O, Tysta Ensamhet  04:08    
+5. Vid Rosornas Grav  05:52    
+ 6. Grimborg  03:31    
+7. Herr Peder Och Hans Syster  07:17    
+8. Eklundapolskan  02:56    
+9. Grimasch Om Morgonen  02:29    
+10. Fru Silfver  04:32    
+11. Gammal Fabodpsalm  03:23  
+
+Limited edition digipak contains 4 bonus tracks:
+12. Black Widow (06:55)
+13. Grimborg (03:31)
+14. By The Rose's Grave (05:52)
+15. O, Silent Solitude (04:06)
+
+
+
+
+### "Black Moon Rising" 2014, Power Metal
+
+ 1. Locust Swarm
+ 2. Halls And Chambers
+ 3. Black Moon Rising
+ 4. Scoundrel And The Squire
+ 5. Wasteland
+ 6. In Ruins
+ 7. At The Jester's Ball
+ 8. There's A Crow On The Barrow
+ 9. Dawning Of A Sombre Age
+ 10. Age Of Runes
+ 11. The Priory
+
 
 ## Отношения с другими группами
 

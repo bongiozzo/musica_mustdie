@@ -1,8 +1,32 @@
 # Zavorash
 
-Дискография
-"In Odium Veritas 1996-2002 [compilation]" 2003, Black Metal
-"Nihilistic Ascension & Spiritual Death" 2006, Black Metal
+
+
+## Дискография
+
+### "In Odium Veritas 1996-2002 [compilation]" 2003, Black Metal
+
+1. The Disciple Of David
+2. Intro	 
+3. In Odium Veritas
+4. The Superior Creed
+5. Dreams For Ingrates
+6. Human Delirium
+7. Thorn
+8. Bluescreen/The Enemy
+
+### "Nihilistic Ascension & Spiritual Death" 2006, Black Metal
+
+1. The Legion of Vengeance
+2. Never Blame Her
+3. Isolation Icon and the Blackguard
+4. Sjдlslig slutsats
+5. Worthlessness	 
+6. Virtuous Hatred
+7. World Dominion
+8. The Conjuration of the Dead God
+9. Truth & Consequence
+
 
 ## Отношения с другими группами
 

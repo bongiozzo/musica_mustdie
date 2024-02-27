@@ -1,9 +1,56 @@
 # S.O.D.
 
-Дискография
-"Speak English Or Die" 1985, Hardcore
-"Live At Budokan" 1992, Hardcore
-"Bigger Than Devil" 1999, Hardcore
+Kings Of Brutal Hardcore, ex-Anthrax,Nuclear Assault, now Brutal Truth
+
+## Дискография
+
+### "Speak English Or Die" 1985, Hardcore
+
+1. Sergeant "D" And The S.O.D.
+2. Kill Yourself
+3. Milano Mosh
+4. United Forces
+5. Speak English Or Die
+6. Pi Alpha Nu
+7. Freddy Kruger
+8. Milk
+9. Pre-Menstrual Princess Blues
+10. Pussy Whipped
+11. Fuck The Middle East
+12. Douche crew
+13. Fist Banging Mania
+14. No Turning Back
+
+### "Live At Budokan" 1992, Hardcore
+
+
+
+### "Bigger Than Devil" 1999, Hardcore
+
+Bigger Than The Devil
+The CrackHead Song
+Kill The Assholes
+Monkeys Rule
+School Bus
+King at The King/Evil is in
+Black War
+Celtic Frosted Flakes
+Charlie Don't Cheat
+The Song That Don't Go Fast
+Shenanigans
+Dog on The Track
+Make Room, Make Room
+Free Dirty Needles
+Fugu
+We all bleed red
+Frankenstein and his Hirse
+Every Tiny Molecule
+Aren't you hungry?
+L.A.T.K.C.H.
+Ballad of Michael H.
+Ballad Of Phil H.
+Moment Of Truth
+
 
 ## Отношения с другими группами
 

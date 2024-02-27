@@ -1,8 +1,25 @@
 # Bog~Morok
 
-Дискография
-"Azoic" 2003, Death Doom
-"Stadiae II" 2006, Death Industrial
+
+
+## Дискография
+
+### "Azoic" 2003, Death Doom
+
+1. Penitento
+2. Ignis Fatuus
+3. Flagrant
+4. Azoic
+5. Verve
+6. Athwart
+7. Exegesis
+8. Alas
+9. Defragmentized
+
+### "Stadiae II" 2006, Death Industrial
+
+
+
 
 ## Отношения с другими группами
 

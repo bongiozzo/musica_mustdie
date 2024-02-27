@@ -1,10 +1,94 @@
 # Sacriversum
 
-Дискография
-"Soteria" 1998, Gothic
-"Beckettia" 2000, Gothic
-"Shadow of The Golden Fire - Early Days" 2001, Gothic
-"Mozartia" 2003, Gothic
+
+
+## Дискография
+
+### "Soteria" 1998, Gothic
+
+Majesty is Blind
+Meditates
+Sacred Betrayal
+Soteria
+Overwhelming Monuments
+Paradise
+Hybris (instrumental)
+Hamartia 
+
+
+Alexandra (voc.)
+Remo (bass, voc.)
+Mario (guit.)
+Sunrise (guit.)
+Burger (keys.)
+Slepy (dr.) 
+
+
+### "Beckettia" 2000, Gothic
+
+Intro
+Waiting for Godot
+Vision (instrumental)
+The Krapp's Last Tape
+Happy Days
+Spectral Trio
+An Act Without Words
+Lullaby
+Not Me
+Nacht und Traume 
+
+
+Kate (voc.)
+Remo (bass, voc.)
+Mario (guit.)
+Sunrise (guit.)
+Burger (keys.)
+Zombie Attack (dr.) 
+
+
+### "Shadow of The Golden Fire - Early Days" 2001, Gothic
+
+Laudate Dominum (intro)
+Revenger
+Defended Land
+Dreams of Destiny
+Taste of Defeat
+The Prayer (outro) 
+Whispers
+Pure Evil
+In Emotional Garden
+Never Give Up
+From Your Blood
+Tears (instrumental)
+Wounded Flames 
+
+
+Remo (bass, voc.)
+Herszt (guit.)
+Baran (keys)
+Slepy (dr.) 
+
+
+### "Mozartia" 2003, Gothic
+
+1. Born To Be The Best
+2. Painful Fame
+3. Young Traveller
+4. Count Coloredo
+5. Lorenzo Da Ponte
+6. Stanzerl
+7. Haffner In D,
+8. Salieri
+9. A Body Left Under The Hedge
+
+Jate (voc.)
+Remo (bass, voc.)
+Mario (guit.)
+MacKozer (guit.)
+Annie (keys.)
+Kruku (dr.) 
+
+
 
 ## Отношения с другими группами
 

@@ -1,10 +1,34 @@
 # Black Fate
 
-Дискография
-"Uncover" 2003, Progressive
-"A Piece of Dream " 2003, Progressive
-"Deliverance of Soul" 2009, Progressive
-"Between Visions & Lies" 2014, Progressive
+power-progressive from Greece
+
+## Дискография
+
+### "Uncover" 2003, Progressive
+
+1) Intro
+2) No mask
+3) Exile In Dreams
+4) Why?
+5) Queen Of The Night
+6) Part Of The Act
+7) Bleeding (In Your Arms)
+8) Mind's Game
+9) Out Of This Place
+10) Desperate
+
+### "A Piece of Dream " 2003, Progressive
+
+
+
+### "Deliverance of Soul" 2009, Progressive
+
+
+
+### "Between Visions & Lies" 2014, Progressive
+
+
+
 
 ## Отношения с другими группами
 

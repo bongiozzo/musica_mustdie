@@ -1,10 +1,56 @@
 # Thanatoschizo
 
-Дискография
-"Insomnious Night Lift" 2002, Death Doom
-"Turbulence" 2004, Death Doom
-"Zoom Code" 2008, Death Doom
-"Origami" 2011, Death Doom
+
+
+## Дискография
+
+### "Insomnious Night Lift" 2002, Death Doom
+
+1. Reminder
+2. Of Lunar Water...
+3. A Promenade Portrait
+4. Sublime Loss
+5. Upshot Veil
+6. The Journey’s Shiver
+7. Insomnious Night Lift
+8. Dance of the Tender Leaves
+9. Slow-Chamber Candles’ Choir
+10. Nightly Lift?
+
+
+### "Turbulence" 2004, Death Doom
+
+
+
+### "Zoom Code" 2008, Death Doom
+
+1. Thick 'n' Blurry
+2. L.
+3. Hereafter Path
+4. (Un)bearable Certainty	
+5. Pleasure Pursuit
+6. The Shift
+7. Last of the Few
+8. Pale Blue Perishes
+9. Pervasive Healing
+10. Nothing As it Seems	
+11. Awareness
+
+### "Origami" 2011, Death Doom
+
+1. inExistence	 
+2. (Un)bearable Certainty	 
+3. Nightmares Within	 
+4. Pervasive Healing	 
+5. RAWoid	 
+6. Sublime Loss	 
+7. Dance of the Tender Leaves	 
+8. Sweet Suicidal Serenade	 
+9. The Journey's Shiver	 
+10. Hereafter Path	 
+11. Last of the Few	 
+12. Pale Blue Perishes
+
 
 ## Отношения с другими группами
 

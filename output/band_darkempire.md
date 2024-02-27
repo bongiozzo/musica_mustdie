@@ -1,7 +1,30 @@
 # Dark Empire
 
-Дискография
-"Distant Tides" 2006, Power Metal
+
+
+## Дискография
+
+### "Distant Tides" 2006, Power Metal
+
+1. We Will Never Die 06:13 
+2. The Alchemist 05:42
+3. A Soul Divided 05:34 
+4. Distant Tides 06:40 
+5. Northern Sky 05:06 
+6. The Final Vision 07:41 
+
+
+Line-up:
+Matt Moliti - guitars 
+Jens Carlsson - vocals 
+Noah Martin - bass 
+Teemu Tahkanen - drums 
+
+Produced by Matt Moliti & Jeremy Krull 
+Art and design by Gustavo Sazes 
+All songs by Matt Moliti
+
+
 
 ## Отношения с другими группами
 

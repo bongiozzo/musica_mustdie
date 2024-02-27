@@ -1,18 +1,267 @@
 # Asphyx
 
-Дискография
-"Mutilating Process" 1990, Death Metal
-"The Rack" 1991, Death Metal
-"Crush The Cenotaph" 1992, Death Metal
-"Last One On Earth" 1992, Death Metal
-"Asphyx" 1994, Death Metal
-"God Cries" 1996, Death Metal
-"Embrace The Death" 1996, Death Metal
-"On The Wings Of Inferno" 2000, Death Metal
-"Death... The Brutal Way" 2009, Death Metal
-"Live Death Doom [DVD]" 2010, Death Metal
-"Deathhammer" 2012, Death Metal
-"Incoming Death" 2016, Death Metal
+
+
+## Дискография
+
+### "Mutilating Process" 1990, Death Metal
+
+1. Mutilating Process
+2. Streams Of Ancient Wisdom
+
+ Eric - Guitar
+ Theo - Bass & Vocals
+ Tonny - Guitar
+ Bob - Drums
+
+(p)&(c) 1990 GORE Records (Gore 003)
+
+### "The Rack" 1991, Death Metal
+
+1. The Quest Of Absurdity
+2. Vermin
+3. Diabolic Existence
+4. Evocation
+5. Wasteland Of Terror
+6. The Sickening Dwell
+7. Ode To Nameless Grave
+8. Pages Of Blood
+9. The Rack
+
+ Martin Van Drunen - Vocals & Bass
+ Bob Bagchus - Drums
+ Eric Daniels - Guitar
+
+(p)&(c) 1991 CENTURY MEDIA Records
+
+### "Crush The Cenotaph" 1992, Death Metal
+
+1. Crush The Cenotaph
+2. Rite Of Shades
+3. The Krusher
+4. Evocation  (Live)
+5. Wasteland Of Terror (Live)
+
+ Martin Van Drunen - Vocals & Bass
+ Bob Bagchus - Drums
+ Eric Daniels - Guitar
+
+Side A Recorded At Woodhouse Studio, Dortmund 1991.
+Side B Recorded Live In Stockholm, Sweden On 30-th,
+November 1991.
+
+(p)&(c) 1992 CENTURY MEDIA Records
+
+### "Last One On Earth" 1992, Death Metal
+
+1. M.S. Bismarck
+2. The Krusher
+3. Serenade In Lead
+4. Last One On Earth
+5. The Incarnation Lust
+6. Streams Of Ancient Wisdom
+7. Food For The Ignorant
+8. Asphyx (Forgotten War)
+
+ Martin Van Drunen - Vocals & Bass
+ Bob Bagchus - Drums
+ Eric Daniels - Guitar
+ Ron Van Pol - Bass (Session)
+
+Recorded And Mixed At Harrow Studio, Holland 1992.
+Produced By ASPHYX / Wijering.
+Engineered By Harry Wijering .
+
+(p)&(c) 1992 CENTURY MEDIA Records
+
+### "Asphyx" 1994, Death Metal
+
+1. Prelude Of The Unhonoured Funeral
+2. Depths Of Eternity
+3. Emperors Of  Salvations
+4. Til Death Do Us apart
+5. Initiation Into The Ossuary
+6. Incarcerated Chimaeras
+7. Abomonation Echoes
+8. Back Into Eternity
+9. Valleys In Oblivion
+10. Thoughts Of An Atheist
+
+ Sander Van Hoof - Drums
+ Ron Van Pol - Vocals, bass
+ Erie Daniels - Guitars 
+ Keyboards by Heiko Hanke
+
+All music & luric by ASPHYX
+Produced by ASPHYX & Andy Classen
+Engineered  & mixed by  Andy Classen & ASPHYX
+Recorded at Stage One Studio, Buhne, Germany, Jan-Feb 1994
+
+(p)(c) 1994CENUTRY MEDIA Records
+
+### "God Cries" 1996, Death Metal
+
+1. God Cries 
+2. It Always 
+3. My Beloved Enemy 
+4. Died Yesterday 
+5. Cut-Throat Urges 
+6. Slaughtered In Sodom 
+7. Frozen Soul 
+8. Fear My Greed 
+9. The Blood I Spilled
+
+All Music By Loomans & Baghus.
+All lyrics by Loomans.
+Recorded and Mixed at Harrow Studio,
+Losser,1996
+Produced and Engineered by Harry
+Wijering.
+
+Ronny Van Der Wey - Guitars
+Bob Baghus - Drums
+Thes Loomans - Bass, Vocals, All guitars
+on this album
+
+(P)&(C) 1996 CENTURY MEDIA Records
+
+### "Embrace The Death" 1996, Death Metal
+
+1.  Intro
+2.  Embrace The Death
+3.  The Sickened Dwell
+4.  Streams Of Ancient Wisdom
+5.  Thoughts Of An Atheist
+6.  Crush The Cenotaph
+7.  Denying The Goat
+8.  Vault Of Vailing Souls
+[9].Circle Of The Secluded
+10.To Succubus A Whore
+11.Eternity's Depths
+12.Outro
+13.Mutilating Process *
+14.Streams Of Ancient Wisdom *
+
+* Extra Bonus Tracks (7" - Mutilating Process)
+
+Eric Daniels - Guitar
+Theo Loomans - Bass & Vocals
+Bob Baghus - Drums
+
+(p)(c) 1996 CENTURY MEDIA Records
+
+### "On The Wings Of Inferno" 2000, Death Metal
+
+Summoning The Storm 
+The Scent Of Obscurity 
+For They Ascend... 
+On The Wings Of Inferno 
+06/06/2006 
+Waves Of Fire 
+Indulge In Frenzy 
+Chaos In The Flesh 
+Marching Towards The Styx 
+
+
+### "Death... The Brutal Way" 2009, Death Metal
+
+1. Scorbutics 04:26  
+2. The Herald 03:33  
+3. Bloodswamp 03:56  
+4. Death The Brutal Way 03:52 
+5. Asphyx II (They Died As They Marched) 06:40  
+6. Eisenbahnmцrser 05:42 
+7. Black Hole Storm 05:35  
+8. Riflegun Redeemer 05:40
+9. Cape Horn 06:53  
+10. The Saw, The Torture, The Pain 03:10 
+
+
+
+Line-up:
+
+Martin Van Drunen - Vocals 
+Wannes Gubbels - Bass, Vocals 
+Bob Bagchus - Drums 
+Paul Baayens - Guitars
+
+The album was recorded at the Sonic Assault Studio and engineered by Frank
+Klein Douwel. Mixing duties were handled Dan Swanц at the Unisound Studio in
+Sweden.
+
+The limited-edition version of "Death...The Brutal Way" will contain additional
+slipcase packaging as well as a bonus DVD featuring the band's entire,
+unforgettable reunion show from 2007's Party.San festival in Bad Berka,
+Germany.
+
+01. Vermin
+02. M.S. Bismarck
+03. Serenade In Lead
+04. The Sickening Dwell
+05. Food For The Ignorant
+06. The Krusher
+07. Wasteland Of Terror
+08. Asphyx (Forgotten War)
+09. Pages In Blood
+10. The Rack
+11. Last One On Earth 
+
+### "Live Death Doom [DVD]" 2010, Death Metal
+
+1. Vermin	04:56
+2. Scorbutics	05:33
+3. MS Bismarck	05:46
+4. Bloodswamp	04:51
+5. Death The Brutal Way	04:25
+6. The Sickening Dwell	05:30
+7. Asphyx II (They Died As They Marched)	06:19
+8. Abomination Echoes	03:23	
+9. Eisenbahnmцrser	05:24
+10. The Krusher	06:38
+11. Riflegun Redeemer	05:00
+12. Asphyx (Forgotten War)	07:26
+13. Wasteland Of Terror	03:08
+14. The Rack	11:13
+15. Cape Horn	07:55
+16. Last One On Earth	07:16
+17. Rite Of Shades	03:16
+18. Pages In Blood	05:54
+19. Diabolical Existence	04:43
+
+### "Deathhammer" 2012, Death Metal
+
+1. Into the Timewastes 
+2. Deathhammer 
+3. Minefield 
+4. Of Days When Blades Turned Blunt 
+5. Der Landser 
+6. Reign of the Brute 
+7. The Flood 
+8. We Doom You to Death 
+9. Vespa Crabro 
+10. As the Magma Mammoth Rises 
+
+
+Bob Bagchus - Drums 
+Martin van Drunen - Vocals 
+Paul Baayens - Guitars 
+Alwin Zuur - bass
+
+
+### "Incoming Death" 2016, Death Metal
+
+1. Candiru
+2. Division Brandenburg
+3. Wardroid
+4. The Feeder
+5. It Came From The Skies
+6. The Grand Denial
+7. Incoming Death
+8. Forerunners Of The Apocalypse
+9. Subterra Incognita
+10. Wildland Fire
+11. Death: The Only Immortal
+
 
 ## Отношения с другими группами
 

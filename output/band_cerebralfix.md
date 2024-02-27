@@ -1,11 +1,74 @@
 # Cerebral Fix
 
-Дискография
-"Life Sucks... And Then You Die!" 1988, Thrash
-"Tower of Spite" 1990, Thrash
-"Bastards" 1991, Thrash
-"Death Erotica" 1992, Thrash
-"Disaster Of Reality" 2016, Thrash
+
+
+## Дискография
+
+### "Life Sucks... And Then You Die!" 1988, Thrash
+
+
+
+### "Tower of Spite" 1990, Thrash
+
+
+
+### "Bastards" 1991, Thrash
+
+1. Bastards
+2. Descent Into The Unconsciousness
+3. Veil Of Tears
+4. Beyond Jerusalem
+5. Return To Infinity
+6. Sphereborn
+7. I Lost A Friend
+8. Ritual Abuse
+9. Mammonite
+10.Middle Third (Mono-Culture) I
+11.Named To Beg *
+
+* CD Extra Track
+
+ Simon Forrest - Vocals
+ Tony Warburton - Lead Guitar
+ Gregg Fellows - Rhythm Guitar
+ Frank Healey - Bass
+ Kev Frost - Drums
+
+All Songs Written By CEREBRAL FIX.
+Produced By Paul Johnston.
+
+(p)&(c) 1991 ROADRUNNER Prod. B.V.
+
+### "Death Erotica" 1992, Thrash
+
+1. Death Erotica    1.01
+2. World Machine    5.11
+3. Clarissa     5.42
+4. Haunted Eyes    5.40
+5. Mind Within Mine    4.27
+6. Still In Mind    1.44
+7. The Raft Of Medusa   6.13
+8. Splintered Wings    5.43
+9. Creator Of Outcasts    5.49
+10.Never Again * +    2.32
+11.Burning *    1.05
+
+ Simon Forrest - Vocals
+ Tony Warburton - Lead Guitar
+ Gregg Fellows - Rhythm Guitar
+ Frank Healey - Bass
+ Kev Frost  - Drums
+
+All Songs Written By CEREBRAL FIX,
+Except + By DISCHARGE.Produced By CEREBRAL FIX.
+Engineered By Paul Johnston.
+
+(p)&(c) 1993 UNDER ONE FLAG
+
+### "Disaster Of Reality" 2016, Thrash
+
+
+
 
 ## Отношения с другими группами
 

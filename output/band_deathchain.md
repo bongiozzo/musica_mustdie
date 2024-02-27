@@ -1,12 +1,134 @@
 # Deathchain
 
-Дискография
-"Deadmeat Disciples" 2003, Thrash
-"Deathrash Assault" 2005, Thrash
-"Cult Of Death" 2007, Thrash
-"Death Eternal" 2008, Thrash
-"Death Gods" 2010, Death Metal
-"Sotajumala / Deathchain [split]" 2010, Metal
+death-thrash from Finland
+
+## Дискография
+
+### "Deadmeat Disciples" 2003, Thrash
+
+1. Chaos Wartech 03:47
+2. Rabid Vultures 03:37  
+3. Poltergeist (The Nemesis) 03:10 
+4. March of the Thousand Legions 03:34
+5. Carnal Damage 03:25
+6. Undertaker 03:33 
+7. Skeletal Claws 03:21 
+8. Carrier of Pestilence 04:25 
+9. Deadmeat Disciples 03:58 
+
+
+
+Line-up:
+Rotten - Vocals
+Bobby Undertaker - Guitar
+Corpse - Guitar
+Kuolio - Bass
+Kassara - Drums
+
+Recorded by Sami Jдmsйn & Deathchain at Studio Perkele. 
+
+### "Deathrash Assault" 2005, Thrash
+
+1. Return of the Nemesis 03:29
+2. Venom Preacher 03:44
+3. Lepra Lord 04:52 
+4. Graveyard Witchery 04:13
+5. Deathrash Legions 03:55 
+6. Napalm Satan 03:50 
+7. Panzer Holocaust 04:39
+8. Morbid Mayhem 03:33  
+9. Valley of the Corpses 06:51 
+
+
+Line-up:
+Rotten - Vocals
+Bobby Undertaker - Guitar
+Corpse - Guitar
+Kuolio - Bass
+Kassara - Drums
+
+Recorded by Sami Jдmsйn & Deathchain at Studio Sound
+
+Bonus track for Japan:
+10. Black Magic 
+
+### "Cult Of Death" 2007, Thrash
+
+1. Deathammer 05:42
+2. Hour of the Exorcist 04:26
+3. Pit of the Possessed 04:35
+4. Serpent of the Deep 06:32 
+5. In the Crypt of Vengeance 05:08 
+6. Witchstorm 05:36  
+7. Necrophiliac Lust 04:17 
+8. Cult of Death 07:10 
+
+
+Line-up:
+K.J. Khaos - Vocals
+Bobby Undertaker - Guitar
+Corpse - Guitar
+Kuolio - Bass
+Kassara - Drums
+
+Available in digipack cd. 
+
+Originally to be titled "Circle of Death" but the band changed their mind
+because Slugathor released an album by the same name.
+
+Produced by Deathchain & Jari Tuomainen.
+
+Also released in numbered 300 copies limited edition bulletbox special edition
+with poster, post cards, keychain and pin.
+
+Music video: Pit Of The Possessed.
+
+Reissued in 2009 on Deus Mortuus Productions with bonus track "Remember the
+Fallen" (Sodom cover) 
+
+### "Death Eternal" 2008, Thrash
+
+1. Titans of Black Earth 04:03  
+2. Sworn Beneath 04:14  
+3. Awaken... Horrors of This Earth 04:02  
+4. Plaguethrone 03:56  
+5. Song of Chaos and the Void 04:11  
+6. The Ancient and the Vile 05:39  
+7. Monolith of Death 04:42  
+8. Spheres of Blasphemy 03:59  
+9. Incantations of Shub-Niggurath 07:30 
+
+
+Line-up:
+K.J. Khaos - Vocals
+Cult - Guitar
+Corpse - Guitar
+Kuolio - Bass
+Kassara - Drums
+
+Music video was made of "Titans of the Black Earth". 
+
+### "Death Gods" 2010, Death Metal
+
+1. Storming the Death Gods 04:56  
+2. Scimitar 04:23  
+3. The Crawling Chaos 04:26  
+4. The Lion-Head 05:09  
+5. We Are Unearthed 06:33  
+6. The Beyond 04:15  
+7. Howling of the Blind 06:00  
+8. Cthulhu Rising 12:13 
+
+
+### "Sotajumala / Deathchain [split]" 2010, Metal
+
+Sotajumala 
+1. Sinun virtesi 06:34  
+2. Prowler (Iron Maiden cover) 04:02  
+Deathchain 
+3. The Crawling Chaos 04:16  
+4. Purgatory (Iron Maiden cover) 03:22 
+
 
 ## Отношения с другими группами
 

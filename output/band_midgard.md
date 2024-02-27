@@ -1,7 +1,21 @@
 # Midgard
 
-Дискография
-"From Ashes..." 2005, Doom
+
+
+## Дискография
+
+### "From Ashes..." 2005, Doom
+
+1. Self Liberty 04:56  
+2. Power machine 05:49  
+3. False 04:29  
+4. For Midgardґs Sake 08:36  
+5. World of Illusion 03:48  
+6. Light off the Candles 03:56  
+7. The Dark Feeling of Darkness 05:37  
+8. Echoes in Eternity 03:17  
+9. Solitude 05:47 
+
 
 ## Отношения с другими группами
 

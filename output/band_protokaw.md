@@ -1,8 +1,17 @@
 # Proto-Kaw
 
-Дискография
-"Before Became After" 2004, Progressive
-"The Wait Of Glory" 2006, Progressive
+art rock, progressive
+
+## Дискография
+
+### "Before Became After" 2004, Progressive
+
+
+
+### "The Wait Of Glory" 2006, Progressive
+
+
+
 
 ## Отношения с другими группами
 

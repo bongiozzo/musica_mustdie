@@ -1,18 +1,406 @@
 # Thin Lizzy
 
-Дискография
-"Thin Lizzy" 1971, Hard Rock
-"Shades of a Blue Orphanage" 1972, Hard Rock
-"Vagabonds of the Western World" 1973, Hard Rock
-"Night Life" 1974, Hard Rock
-"Fighting" 1975, Hard Rock
-"Johnny the Fox" 1976, Hard Rock
-"Jailbreak" 1976, Hard Rock
-"Bad Reputation" 1977, Hard Rock
-"Chinatown" 1980, Hard Rock
-"Renegade" 1982, Hard Rock
-"Thunder and Lightning" 1983, Hard Rock
-"One Night Only" 2000, Hard Rock
+(Ireland Hard Rock Legend)
+
+## Дискография
+
+### "Thin Lizzy" 1971, Hard Rock
+
+   1.   The Friendly Ranger at Clontarf Castle (Bell/Lynott) - 2:57 
+   2.   Honesty Is No Excuse (Lynott) - 3:34 
+   3.   Diddy Levine (Lynott) - 3:52 
+   4.   Ray Gun (Bell) - 2:58 
+   5.   Look What the Wind Blew In (Lynott) - 3:16 
+   6.   Eire (Lynott) - 2:04 
+   7.   Return of the Farmer's Son (Downey/Lynott) - 4:05 
+   8.   Clifton Grange Hotel (Lynott) - 2:22 
+   9.   Saga of the Ageing Orphan (Lynott) - 3:39 
+   10.   Remembering, Pt. 1 (Lynott) - 5:57 
+   11.   Dublin (Lynott) - 2:27 
+   12.   Remembering, Pt. 2 (New Day) (Bell/Downey/Lynott) - 5:06 
+   13.   Old Moon Madness (Lynott) - 3:56 
+   14.   Things Ain't Workin' Out Down at the Farm (Lynott) - 4:32 
+
+
+
+Phil Lynott  -  Guitar (Acoustic), Bass, Vocals, Producer 
+Eric Bell  -  Guitar, Guitar (12 String) 
+Brian Downey  -  Percussion, Drums 
+Scott English  -  Producer 
+Anthony Hawkins  -  Remastering 
+Ivor Raymond  -  Keyboards 
+Nick Tauber  -  Producer 
+Peter Rynston  -  Engineer 
+John Tracy  -  Compilation 
+
+
+
+### "Shades of a Blue Orphanage" 1972, Hard Rock
+
+   1.   Rise and Dear Demise of the Funk 
+   2.   Buffalo Gal 
+   3.   I Don't Want to Forget How To 
+   4.   Sarah (Lynott/Moore) 
+   5.   Brought Down 
+   6.   Baby Face 
+   7.   Chatting Today 
+   8.   Call the Police 
+   9.   Shades of a Blue Orphanage 
+
+
+Phil Lynott  -  Guitar (Acoustic), Bass, Vocals, Producer 
+Louie Austin  -  Engineer 
+Eric Bell  -  Guitar (Acoustic), Guitar 
+Brian Downey  -  Percussion, Drums 
+Dick Plant  -  Assistant Engineer 
+Clodagh Simonds  -  Harpsichord, Keyboards, Mellotron 
+Nick Tauber  -  Producer 
+Desmond Majekodunmi  -  Assistant Engineer 
+John Tracy  -  Liner Notes 
+Tony Duggan  -  Assistant Engineer 
+Desmond Najekodanni  -  Assistant Engineer 
+
+
+
+### "Vagabonds of the Western World" 1973, Hard Rock
+
+   1.   Mama Nature Said - 4:52 
+   2.   The Hero and the Madman - 6:08 
+   3.   Slow Blues - 5:14 
+   4.   The Rocker - 5:12 
+   5.   Vagabond of the Western World - 4:44 
+   6.   Little Girl in Bloom - 5:12 
+   7.   Gonna Creep up on You - 3:27 
+   8.   A Song for While I'm Away - 5:10 
+   9.   Whiskey in the Jar - 5:44 
+   10.   Black Boys on the Corner - 3:21 
+   11.   Randolph's Tango - 3:49 
+   12.   Broken Dreams - 4:26 
+
+
+Joan Armatrading  -  Piano 
+Phil Lynott  -  Bass, Arranger, Guitar (Bass), Vocals, Producer 
+Kofi Ayivor  -  Conductor 
+Eric Bell  -  Guitar, Arranger, Vocals, Guitar (12 String) 
+Brian  -  Percussion 
+Brian Downey  -  Percussion, Arranger, Drums 
+Eric Gaffney  -  Guitar, Vocals 
+Tony Harris  -  Viola 
+David Jenson  -  Vocals 
+Paul Mosby  -  Oboe, Cor Anglais 
+Peter Oxer  -  Violin 
+Godfrey Salmon  -  Violin 
+Jan Schelhaas  -  Organ 
+Allen Sloan  -  Violin 
+Fiachra Trench  -  Strings, String Arrangements 
+Ian McKinnon  -  Violin 
+Philip Lynott  -  Guitar (Bass), Vocals 
+Alan Merrick  -  Violin 
+John Tracy  -  Liner Notes 
+Donald McVay  -  Viola 
+Quentin William  -  Cello 
+
+
+### "Night Life" 1974, Hard Rock
+
+   1.   She Knows (Gorham/Lynott) - 5:12 
+   2.   Night Life (Lynott) - 3:57 
+   3.   It's Only Money (Lynott) - 2:47 
+   4.   Still in Love With You (Lynott) - 5:38 
+   5.   Frankie Carroll (Lynott) - 2:02 
+   6.   Showdown (Lynott) - 4:31 
+   7.   Banshee (Lynott) - 1:26 
+   8.   Philomena (Lynott) - 3:42 
+   9.   Sha La La (Downey/Lynott) - 3:25 
+   10.   Dear Heart (Lynott) - 4:31 
+
+
+Gary Moore  -  Guitar 
+Thin Lizzy  -  Group 
+Jimmy Horowitz  -  Strings, Arranger 
+Phil Lynott  -  Bass, Guitar, Vocals, Producer 
+Brian Downey  -  Percussion, Drums 
+Scott Gorham  -  Guitar, Vocals 
+Ron Nevison  -  Producer, Engineer, Mixing 
+Brian Robertson  -  Guitar 
+Jean Roussel  -  Keyboards 
+Ted Sharp  -  Engineer 
+Jean Rouselle  -  Keyboards 
+Dennis Drake  -  Mastering 
+Frankie Miller  -  Vocals 
+Dave Field  -  Design, Cover Design 
+Alan Field  -  Design, Cover Design 
+Jim Fitzpatrick  -  Design 
+
+
+
+
+### "Fighting" 1975, Hard Rock
+
+   1.   Rosalie (Seger) - 3:11 
+   2.   For Those Who Love to Live (Downey/Lynott) - 3:08 
+   3.   Suicide (Lynott) - 5:12 
+   4.   Wild One (Lynott) - 4:18 
+   5.   Fighting My Way Back (Lynott) - 3:12 
+   6.   King's Vengeance (Gorham/Lynott) - 4:08 
+   7.   Spirit Slips Away (Lynott) - 4:35 
+   8.   Silver Dollar (Robertson) - 3:26 
+   9.   Freedom Song (Gorham/Lynott) - 3:32 
+   10.   Ballad of a Hard Man (Gorham) - 3:14 
+
+
+Roger Chapman  -  Vocals 
+Phil Lynott  -  Guitar (Acoustic), Bass, Guitar (Bass), Vocals, Producer 
+Ian McLagan  -  Piano 
+Brian Downey  -  Percussion, Drums 
+Scott Gorham  -  Guitar 
+Keith Harwood  -  Engineer 
+Gilbert Kong  -  Mastering 
+Keith Morris  -  Photography 
+Brian Robertson  -  Guitar, Vocals 
+Jeremy Gee  -  Assistant Engineer 
+Dennis Drake  -  Mastering 
+Jim Ladwig  -  Photography 
+ 
+
+
+
+### "Johnny the Fox" 1976, Hard Rock
+
+   1.   Johnny (Lynott) - 4:26 
+   2.   Rockey (Downey/Gorham/Lynott) - 3:42 
+   3.   Borderline (Lynott/Robertson) - 4:35 
+   4.   Don't Believe a Word (Lynott) - 2:18 
+   5.   Fools Gold (Lynott) - 3:51 
+   6.   Johnny the Fox Meets Jimmy the Weed (Downey/Gorham/Lynott) - 3:43 
+   7.   Old Flame (Lynott) - 3:10 
+   8.   Massacre (Downey/Gorham/Lynott) - 3:01 
+   9.   Sweet Marie (Gorham/Lynott) - 3:58 
+   10.   Boogie Woogie Dance (Lynott) - 3:07 
+
+
+Phil Collins  -  Percussion 
+Kim Beacon  -  Vocals 
+Phil Lynott  -  Guitar (Acoustic), Bass, Guitar (Bass), Vocals, Vocals (bckgr), Producer 
+John Alcock  -  Producer 
+Will Reid-Dick  -  Engineer 
+Brian Downey  -  Percussion, Drums 
+Scott Gorham  -  Guitar 
+Neil Hornby  -  Associate Producer 
+Brian Robertson  -  Guitar 
+Fiachra Trench  -  Strings 
+John Alcock  -  Producer 
+Will Reid Dick  -  Engineer 
+Philip Lynott  -  Guitar (Acoustic), Guitar (Bass), Vocals, Vocals (bckgr) 
+Dennis Drake  -  Mastering 
+
+
+### "Jailbreak" 1976, Hard Rock
+
+   1.   Jailbreak (Lynott) - 4:01 
+   2.   Angel from the Coast (Lynott/Robertson) - 3:03 
+   3.   Running Back (Lynott) - 3:13 
+   4.   Romeo and the Lonely Girl (Lynott) - 3:55 
+   5.   Warrior (Gorham/Lynott) - 4:09 
+ review     6.   The Boys Are Back in Town (Lynott) - 4:27 
+   7.   Fight or Fall (Lynott) - 3:45 
+   8.   Cowboy Song (Downey/Lynott) - 5:16 
+   9.   Emerald (Downey/Gorham/Lynott/Robertson) - 4:03 
+
+
+Phil Lynott  -  Guitar (Acoustic), Bass, Guitar, Guitar (Bass), Vocals, Producer 
+John Alcock  -  Producer 
+Brian Downey  -  Percussion, Drums 
+Scott Gorham  -  Guitar 
+Brian Robertson  -  Guitar 
+John Alcock  -  Producer 
+
+
+
+### "Bad Reputation" 1977, Hard Rock
+
+   1.   Soldier of Fortune (Lynott) - 5:18 
+   2.   Bad Reputation (Downey/Gorham/Lynott) - 3:09 
+   3.   Opium Trail (Downey/Gorham/Lynott) - 3:58 
+   4.   Southbound (Lynott) - 4:27 
+   5.   Dancing in the Moonlight (It's Caught Me... (Lynott) - 3:26 
+   6.   Killer Without a Cause (Gorham/Lynott) - 3:33 
+   7.   Downtown Sundown (Lynott) - 4:08 
+   8.   That Woman's Gonna Break Your Heart (Lynott) - 3:25 
+   9.   Dear Lord (Gorham/Lynott) - 4:26 
+
+
+Thin Lizzy  -  Producer 
+Phil Lynott  -  Bass, Strings, Guitar (Bass), Harp, Vocals, Producer 
+Jon Bojic  -  Vocals, Vocals (bckgr), Assistant Engineer 
+Brian Downey  -  Percussion, Drums 
+Scott Gorham  -  Guitar 
+John Helliwell  -  Clarinet, Saxophone 
+Mary Hopkin  -  Vocals, Vocals (bckgr) 
+Kenny Morris  -  Vocals 
+Brian Robertson  -  Guitar, Keyboards, Voice Box 
+Tony Visconti  -  Piano, Recorder, Producer, Engineer 
+Ed Stone  -  Assistant Engineer 
+Ken Morris  -  Vocals (bckgr), Assistant Engineer 
+Philip Lynott  -  Guitar (Bass), Harp, Vocals, String Machine 
+Chris Morrison     
+Mary Hopkin-Visconti  -  Vocals (bckgr) 
+Sutton Cooper  -  Art Direction 
+Chris O'Donnell  -  Art Coordinator 
+
+
+
+### "Chinatown" 1980, Hard Rock
+
+  1.   We Will Be Strong (Lynott) - 5:11 
+   2.   Chinatown (Downey/Gorham/Lynott/White) - 4:43 
+   3.   Sweetheart (Lynott) - 3:29 
+   4.   Sugar Blues (Downey/Gorham/Lynott/White) - 4:22 
+   5.   Killer on the Loose (Lynott) - 3:55 
+   6.   Having a Good Time (Lynott/White) - 4:38 
+   7.   Genocide (The King of the Buffalo) (Lynott) - 5:06 
+   8.   Didn't I (Lynott) - 4:28 
+   9.   Hey You (Downey/Lynott) - 5:09 
+
+
+Thin Lizzy  -  Producer 
+Ultravox  -  Vocals (bckgr) 
+Midge Ure  -  Vocals, Vocals (bckgr), Vox Organ 
+Roger Chapman  -  Layout Design 
+Phil Lynott  -  Bass, Guitar (Bass), Keyboards, Vocals, Producer 
+Snowy White  -  Guitar, Harmony Vocals 
+Jim Barber  -  Bass Technician 
+Brian Downey  -  Drums 
+Gordon Fordyce  -  Assistant Engineer 
+Scott Gorham  -  Guitar, Vocals (bckgr), Harmony Vocals 
+Tim Hinkley  -  Keyboards 
+Linda McCartney  -  Artwork, Layout Design 
+Eddie Schreyer  -  Digital Remastering 
+Fiachra Trench  -  Strings, Arranger, String Arrangements 
+Tony Visconti     
+Darren Wharton  -  Keyboards, Vocals, Vocals (bckgr) 
+Kit Woolven  -  Producer, Engineer 
+Tim Hinckley  -  Piano (Electric) 
+Ian Cooper  -  Engineer, Cutting Engineer 
+Philip Lynott  -  Guitar (Bass), Keyboards, Vocals 
+Chris Morrison     
+John Paul  -  Photography 
+Brian Slagel  -  Digital Remastering 
+Jim Fitzpatrick  -  Artwork 
+Peter Eustace  -  Engineer 
+Scott Gotham  -  Guitar, Vocals (bckgr) 
+Chris O'Donnell     
+Roger  -  Artwork 
+Fay Samurell  -  Research 
+Fuacgra Trench  -  String Arrangements 
+Giachra Trench  -  String Arrangements 
+Alf     
+Handsome Harvey Baker  -  Stage Manager 
+Gus Curtis     
+Pete Gross  -  Drum Technician 
+Micky Lawford     
+Andy Moore  -  Guitar Technician 
+Finbarr Quinn  -  Lighting Design 
+Tex Yodel Read     
+John Salter  -  Management 
+Dave Seal  -  Keyboards, Amplifiers 
+
+
+### "Renegade" 1982, Hard Rock
+
+  1.   Angel of Death (Lynott/Wharton) - 6:17 
+   2.   Renegade (Lynott/White) - 6:07 
+   3.   The Pressure Will Blow (Gorham/Lynott) - 3:46 
+   4.   Leave This Town (Gorham/Lynott) - 3:49 
+   5.   Hollywood (Down on Your Luck) (Gorham/Lynott) - 4:10 
+   6.   No One Told Him (Gorham/Lynott) - 3:36 
+   7.   Fats (Lynott/Snowy White) - 4:02 
+   8.   Mexican Blood (Lynott) - 3:40 
+   9.   It's Getting Dangerous (Gorham/Lynott) - 5:30 
+
+
+Thin Lizzy  -  Producer 
+Phil Lynott  -  Bass, Vocals, Producer 
+Snowy White  -  Guitar 
+Brian Downey  -  Drums 
+Scott Gorham  -  Guitar 
+Eddie Schreyer  -  Digital Remastering 
+Chris Tsangarides  -  Producer, Engineer 
+Andrew Warwick     
+Darren Wharton  -  Keyboards, Vocals 
+Kit Woolven  -  Engineer 
+Ian Cooper     
+Philip Lynott     
+Graham Hughes  -  Design, Photography 
+Brian Slagel  -  Digital Remastering 
+ 
+
+
+### "Thunder and Lightning" 1983, Hard Rock
+
+   1.   Thunder and Lightning (Downey/Lynott) - 4:55 
+   2.   This Is the One (Lynott/Wharton) - 4:02 
+   3.   The Sun Goes Down (Lynott/Wharton) - 6:18 
+   4.   The Holy War (Lynott) - 5:13 
+   5.   Cold Sweat (Lynott/Sykes) - 3:06 
+   6.   Someday She Is Going to Hit Back (Downey/Lynott/Wharton) - 4:05 
+   7.   Baby Please Don't Go (Lynott) - 5:11 
+   8.   Bad Habits (Gorham/Lynott) - 4:05 
+   9.   Heart Attack (Gorham/Lynott/Wharton) - 3:38 
+
+
+Thin Lizzy  -  Producer 
+Phil Lynott  -  Bass, Vocals, Producer 
+Snowy White  -  Guitar 
+John Sykes  -  Guitar 
+Brian Downey  -  Drums 
+Scott Gorham  -  Guitar 
+Gordon Johnson  -  Tape Operator 
+Chris Ludwinsky  -  Engineer, Tape Operator 
+Eddie Schreyer  -  Digital Remastering 
+Chris Tsangarides  -  Producer, Engineer 
+Andrew Warwick  -  Engineer, Tape Operator 
+Darren Wharton  -  Keyboards, Vocals 
+Dave Stewart     
+Liam Kelly  -  Tape Operator 
+Chris Morrison  -  Tape Operator 
+Brian Slagel  -  Digital Remastering 
+Bob Elsdale  -  Photography, Sleeve Photo 
+Denis O'Regan  -  Photography 
+John Slater  -  Tape Operator 
+Peter Eustace  -  Tape Operator 
+Mark Hardy     
+Dayne Marshall  -  Cymbals 
+Andrew Prewett  -  Design, Sleeve Design 
+Mick Tyas     
+ 
+
+
+
+### "One Night Only" 2000, Hard Rock
+
+   1.   Jailbreak (Lynott/Thin Lizzy) - 4:41 
+   2.   Waiting for an Alibi (Lynott/Thin Lizzy) - 3:42 
+   3.   Don't Believe a Word (Lynott/Thin Lizzy) - 2:38 
+   4.   Cold Sweat (Lynott/Thin Lizzy) - 3:30 
+   5.   The Sun Goes Down (Lynott/Thin Lizzy) - 7:40 
+   6.   Are You Ready (Lynott/Thin Lizzy) - 3:06 
+   7.   Bad Reputation (Lynott/Thin Lizzy) - 3:46 
+   8.   Suicide (Lynott/Thin Lizzy) - 5:54 
+   9.   Still in Love With You (Lynott/Thin Lizzy) - 8:44 
+   10.   Cowboy Song (Lynott/Thin Lizzy) - 5:43 
+   11.   The Boys Are Back in Town (Lynott/Thin Lizzy) - 5:11 
+   12.   Rosalie (Lynott/Thin Lizzy) - 8:36 
+   13.   Black Rose (Lynott/Thin Lizzy) - 7:41 
+
+
+John Sykes  -  Guitar, Vocals, Producer 
+Tommy Aldridge  -  Drums 
+Scott Gorham  -  Guitar, Vocals 
+Darren Wharton  -  Keyboards, Vocals 
+Marco Mendoza  -  Bass, Vocals 
+
+
 
 ## Отношения с другими группами
 

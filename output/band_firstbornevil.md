@@ -1,7 +1,13 @@
 # Firstborn Evil
 
-Дискография
-"Rebirth Of Evil" 1998, Black Metal
+
+
+## Дискография
+
+### "Rebirth Of Evil" 1998, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

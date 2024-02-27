@@ -1,9 +1,32 @@
 # Civil War
 
-Дискография
-"The Killer Angels" 2013, Power Metal
-"Gods and Generals" 2015, Power Metal
-"The Last Full Measure" 2016, Power Metal
+
+
+## Дискография
+
+### "The Killer Angels" 2013, Power Metal
+
+
+
+### "Gods and Generals" 2015, Power Metal
+
+
+
+### "The Last Full Measure" 2016, Power Metal
+
+1. Road to Victory		 
+2. Deliverance		 
+3. Savannah		 
+4. Tombstone		 
+5. America		 
+6. A Tale That Never Should Be Told		 
+7. Gangs of New York		 
+8. Gladiator		 
+9. People of the Abyss		 
+10. The Last Full Measure		 
+11. Strike Hard Strike Sure 		 
+12. Aftermath 
+
 
 ## Отношения с другими группами
 

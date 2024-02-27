@@ -1,10 +1,59 @@
 # Andralls
 
-Дискография
-"Massacre, Corruption, Destruction..." 2000, Thrash
-"Force Against Mind" 2003, Thrash
-"Inner Trauma" 2005, Thrash
-"Andralls" 2009, Thrash
+
+
+## Дискография
+
+### "Massacre, Corruption, Destruction..." 2000, Thrash
+
+1. Hate  03:53 
+2. Chaotic World  02:31   
+3. Shadows in the Mirror  05:40
+4. The Future of Life  04:14 
+5. Andralls on Fire  03:32  
+6. No Chance to Escape  05:05
+7. Behind the Light  03:13  
+8. Fury in Your Eyes  02:34
+9. Lady Death  03:23   
+10. The Truth  03:10 
+
+### "Force Against Mind" 2003, Thrash
+
+
+
+### "Inner Trauma" 2005, Thrash
+
+1. Unexpected  01:09    
+ 2. Fear Is My Ally  02:39
+3. Down the Jokers  03:52  
+4. Hidden Enemies  03:47 
+5. The Age of Rage  02:45 
+6. Awake and Dead  03:36 
+7. Developed Underground  03:15   
+8. Unconscious Choice  03:59 
+9. Non-Shooting War  04:24  
+10. Subhuman Worms  03:21 
+11. Heads or Tails?  03:28   
+12. Mercy Mass  00:40   
+13. Panic Syndrome  03:44 
+
+### "Andralls" 2009, Thrash
+
+1. Two Sides (free mp3) 
+2. Crosses Shall Burn
+3. In The Eyes of the Killer
+4. You Mean Shit
+5. Last Enemy
+6. Blind Leads The Blind
+7. My Hate Never Die
+8. Dynamite
+9. Global Decadence
+10. No dead Yet
+11. Lets Kill Again
+12. Rage Empire
+13. Rotten Money * (Bonus)
+14. Andralls On Fire* (Bonus)
+
 
 ## Отношения с другими группами
 

@@ -1,12 +1,138 @@
 # EverEve
 
-Дискография
-"Seasons" 1997, Death Doom
-"Stormbirds" 1998, Death Doom
-"Regret" 1999, Gothic
-"E-mania" 2001, Gothic
-".enetics" 2003, Gothic
-"Tried And Failed" 2005, Gothic
+
+
+## Дискография
+
+### "Seasons" 1997, Death Doom
+
+1. Prologue: The Bride Wears Black.
+2. A New Winter.
+3. The Phoenix Spring.
+4. The Dancer Under A Summer Sky.
+5. Twilight.
+6. Autumn Leaves.
+7. Untergehen und Auferstehen.
+8. To Learn Silent Oblivion.
+9. A Winternight Depression.
+10. Epilogue.
+
+
+
+TOM SEDOTSCHENKO - vocals
+THORSTEN WEISSENBERGER - guitar
+STEPHAN KIEFER - guitar
+MICHAEL ZEISSL - synthesizer
+STEFAN MULLER - bass
+MARC WERNER - drums
+
+Recorded and produced at Impuls Studio, Hamburg in August 1996 by Jan-Peter Genkel & Gottfried Koch. Co-
+engineered by Oliver Hoffman. Executive producer: Markus Staiger. Mixed by Jan-Peter Genkel. Mastered at Central 
+Sound Studios, Hamburg by Jan-Peter Genkel & Norbert Achtelik.
+
+### "Stormbirds" 1998, Death Doom
+
+1. Embittered. 1:31
+2. Fields Of Ashes. 6:00
+3. Escape… 0:43
+4. …On Lucid Wings. 4:15
+5. Martirium. 5:34
+6. The Failure... 0:48
+7. …The Downfall. 6:23
+8. Dedications. 1:19
+9. Stormbirds. 6:04
+10. As I Breathe The Dawn. 6:28
+11. Spleen. 4:18
+12. Universe. 6:47
+13. A Part Of You. 2.26
+14. Valse Bizarre. 9:30
+15.  (Salvation)  
+
+
+MICHAEL ZEISSL - synthesizer
+THORSTEN WEISSENBERGER - guitar
+TOM SEDOTSCHENKO - vocals
+STEFAN KIEFER - guitar
+STEFAN MULLER - bass
+MARC WERNER - drums
+
+Recorded at Impuls Recording Studios, Hamburg, Germany in 09/97 by Jan-Peter Genkel & Gottfried Koch. Produced 
+by Jan-Peter Genkel. Engineered by Oliver Hoffman. Executive producer Markus Staiger. Mixed by Jan-Peter Genkel. 
+Mastered at Central Sound Studios, Hamburg by Jan-Peter Genkel & Norbert Achtelik.
+
+Female voice by Sharlie Pryce - Guest vocals by Yorck Rysel. Featuring the Barmbeck Symphony Orchestra. 
+Conducted by Jan-Peter Genkel. 
+"Spleen" is based upon a poem written by Charles Boudelaire (1821-1867). 
+Grand piano performed by Michael Zeissl.
+
+### "Regret" 1999, Gothic
+
+01.  Misery's Dawn  
+02.  Fall Into Oblivion  
+03.  Kolyma  
+04.  Redemption  
+05.  House Of The Rising Sun  
+06.  The Eclipse Of The Seventh Sun  
+07.  Passion And Demise  
+08.  Dies Irae (Grave New World)  
+09.  Where No Shadows Fall  
+10.  House Of The Rising Sun (Club Edit)  
+
+
+### "E-mania" 2001, Gothic
+
+01. K.M. (Most Terrible God)
+02. Pilgrimage
+03. The Flesh Divine
+04. Someday
+05. This Is Not
+06. Suzanne
+07. Demons
+08. Ligeia
+09. See The Truth
+10. To Our Denial
+11. Fade To Grey
+12. 515151
+
+### ".enetics" 2003, Gothic
+
+1. this heart 
+2. the more she knows 
+3. a-braz la luz
+4. her last summer 
+5. silvergod
+6. x-istance
+7. december wounds
+8. along comes a fool 
+9. one more day 
+10. eat grow decay
+11. 1951
+
+### "Tried And Failed" 2005, Gothic
+
+1. Thighs Wide Shut - Overture; 
+2. Tried And Failed; 
+3. You're Mine; 
+4. A Scornful Love; 
+5. Desire; 
+6. Pine Oil Heaven; 
+7. I'm Not Afraid (Of Losing You Again); 
+8. Anima Sola; 
+9. On Thin Ice; 
+10. Hide From Me; 
+11. Thighs Wide Shut - Reprise; 
+12. Forsaken; 
+13. Before Sunrise; 
+14. Epilogue 2005
+
+All songs written by EVER EVE
+Produced, engineered and mixed by Gerhard Magin
+Orchestral arrangements by Joerg Huettner
+Recorded and mixed at Gerassi Park Studio
+
+Lisa Mosinski - Female Vocals
+Gerassi - Harmony Voice
+
 
 ## Отношения с другими группами
 

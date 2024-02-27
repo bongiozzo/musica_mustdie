@@ -1,8 +1,42 @@
 # Ice Age
 
-Дискография
-"Great Divide" 1999, Progressive
-"Liberation" 2001, Progressive
+
+
+## Дискография
+
+### "Great Divide" 1999, Progressive
+
+1 Perpetual Child 10:29 (Ice Age) 
+2 Sleepwalker 5:24 (Ice Age) 
+3 Join 5:55 (Ice Age) 
+4 Spare Chicken Parts [Instrumental] 8:50 (Ice Age) 
+5 Because of You 5:32 (Ice Age) 
+6 Bottom Line 4:44 (Ice Age) 
+7 Ice Age 11:08 (Ice Age) 
+8 One Look Away 5:40 (Ice Age) 
+9 Miles to Go 5:01 (Ice Age) 
+10 To Say Goodbye: Worthless Words [Instrumental]/On Our Way 11:31 (Ice Age) 
+ 
+
+ 
+ 
+
+
+### "Liberation" 2001, Progressive
+
+1 Lhasa Road (No Surrender) 8:39 
+2 March of the Red Dragon 1:06 
+3 Blood of Ages 7:16 
+4 Thousand Years 6:11 
+5 When You're Ready 8:57 
+6 Musical Cages 6:30 
+7 Monolith 1:17 
+8 Guardian of Forever 6:48 
+9 Howl 1:41 
+10 Wolf 4:41 
+11 To Say Goodbye, Pt. 1: Still Here 8:20 
+12 Tong-Len 1:33 
+
 
 ## Отношения с другими группами
 

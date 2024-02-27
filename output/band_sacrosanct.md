@@ -1,9 +1,21 @@
 # Sacrosanct
 
-Дискография
-"Truth Is - What Is" 1990, Thrash
-"Recesses For The Depraved" 1991, Thrash
-"Tragic Intense" 1993, Thrash
+
+
+## Дискография
+
+### "Truth Is - What Is" 1990, Thrash
+
+
+
+### "Recesses For The Depraved" 1991, Thrash
+
+
+
+### "Tragic Intense" 1993, Thrash
+
+
+
 
 ## Отношения с другими группами
 

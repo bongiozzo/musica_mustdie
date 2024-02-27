@@ -1,10 +1,110 @@
 # Penumbra
 
-Дискография
-"Emanate" 1999, Gothic
-"The Last Bewitchment" 2002, Gothic
-"Seclusion" 2003, Gothic
-"Era 4.0" 2015, Gothic
+
+
+## Дискография
+
+### "Emanate" 1999, Gothic
+
+1. Intro
+2. Lycanthrope
+3. New Scaring Senses
+4. Bloody Experience
+5. Falling Into My Soul
+6. Turn Them Off
+7. Doppleganger
+8. Underwater Dream
+
+
+Line up of the recording:
+
+Jarlaath - vocals, oboe
+Dorian - guitar
+Neo - guitar
+Zoltan - keyboards
+Hekchen - drums
+Aldric - bass guitar
+Medusa - lyric vocals
+Aramis - baritone
+Elise - soprano
+
+
+Additional musicians:
+
+Franck Chipouka - guitar (Bloody Experience)
+Arnaud H. Chipouka - vocals (New Scaring Senses
+ 
+
+
+
+### "The Last Bewitchment" 2002, Gothic
+
+1 Neutral 
+2 Priestess of my dreams 
+3 The last bewitchment 
+4 Moaning on earth 
+5 Insurrection 
+6 Testament 
+7 The young martyr 
+8 A torrent of fears 
+9 Pie Jesu
+
+
+Produced by Penumbra
+Additionnal production by Hidden Association & Terje Refsnes 
+
+Line up of the recording :
+Jarlaath - vocals, oboe
+Dorian - rhythm, lead & acoustic guitars
+Neo - rhythm, lead & acoustic guitars
+Zoltan - keyboards
+Garlic - drums
+Agone - bass guitar
+Medusa - lyric vocals 
+
+Orchestra : Anne Tremoulet - Violin, Sandra Kares - Violin, Magali Prevot - Viola, Mika Gouinguene - Cello 
+
+Choir : Akemi Hirosaki - Soprano, Yukari - Soprano, Happy Night - Mezzo, Maria Moreno - Mezzo, Bruno Carry - Tenor, Stйphane Hйzode - Tenor, Martial Olivier - Alto, baritone, Jack Bird - Bass
+
+Lead Vocal on "Testament" & additionnal vocal on "Priestess" by Anita Covelli, Additionnal guitars by Corrosive Bob & Franck Kobolt
+
+
+
+
+### "Seclusion" 2003, Gothic
+
+1 Tragical Memories 
+2 Cursed Destiny 
+3 Seclusion 
+4 The Prophetess 
+5 Hope 
+6 Crimson Tail 
+7 Conception 
+8 Enclosed
+
+
+Agone – bass
+Anita Covelli – female vocals
+Arathelis – drums 
+Dorian – guitars
+Jarlaath – vocals, oboe
+Neo – guitars
+Zoltan – keyboards
+
+### "Era 4.0" 2015, Gothic
+
+1. New Era  01:58    
+2. Insane  02:43    
+3. Charon  04:02    
+4. Save My World  04:44    
+5. Exhumed  04:21    
+6. Insidious  04:03    
+7. Eerie Shelter  05:32    
+8. Before Oblivion  04:54    
+9. Avalon  04:26   
+10. Malice in Wonderland  03:27   
+
+
 
 ## Отношения с другими группами
 

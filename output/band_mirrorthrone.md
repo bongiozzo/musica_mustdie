@@ -1,9 +1,36 @@
 # Mirrorthrone
 
-Дискография
-"Of Wind and Weeping" 2003, Black Metal
-"Carriers of Dust" 2006, Black Metal
-"Gangrene" 2008, Black Metal
+
+
+## Дискография
+
+### "Of Wind and Weeping" 2003, Black Metal
+
+1. Racines Dйnudйes 11:05
+2. Florilиge Lunatique Occultement Rйvйlateur et Nйantisation Caduque Engendrйe 08:07
+3. The Four Names of the Living Threatening Stone 08:29
+4. Aborted 03:23  
+5. Beyond the Mirrorthrone 06:53
+6. The Notion of Perfect 05:38 
+7. Moi Mort... 05:42 
+8. Of Wind and Weeping 03:20 
+
+### "Carriers of Dust" 2006, Black Metal
+
+1. A Scream to Express the Hate of a Race 09:22
+2. Mortphose 04:49
+3. De l'Йchec et de son Essentialitй (point I. Marginalitй Dйmystifiйe) 10:22
+4. Ils Brandiront leurs Idoles 22:10 
+
+### "Gangrene" 2008, Black Metal
+
+1. Dismay 11:34
+2. No One by My Side 10:26
+3. The Fecal Rebellion 15:03
+4. Ganglion 08:52
+5. Une Existence dont plus Personne ne Jouit 12:06 
+6. So Frail 06:40 
+
 
 ## Отношения с другими группами
 

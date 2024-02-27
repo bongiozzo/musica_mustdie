@@ -1,8 +1,17 @@
 # Structures
 
-Дискография
-"All Of The Above (EP)" 2010, Metal
-"Divided By" 2011, Metal
+
+
+## Дискография
+
+### "All Of The Above (EP)" 2010, Metal
+
+
+
+### "Divided By" 2011, Metal
+
+
+
 
 ## Отношения с другими группами
 

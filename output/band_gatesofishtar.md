@@ -1,9 +1,58 @@
 # Gates Of Ishtar
 
-Дискография
-"A Bloodred Path" 1996, Melodic Death Metal
-"The Dawn Of Flames" 1997, Melodic Death Metal
-"At Dusk And Forever" 1998, Melodic Death Metal
+Excellent Swedish Melodic Death Metal
+
+## Дискография
+
+### "A Bloodred Path" 1996, Melodic Death Metal
+
+1. Inanna
+2. Where The Winds Of Darkness
+3. The Silence
+4. Tears
+5. The Dreaming Glade
+6. When Day Light's Gone
+7. Into Seasons Of Frost
+8. A Bloodred Path
+9. I Wanna Be Somebody З
+
+All Songs Written By GATES OF ISHTAR, except З written By W.A.S.P.
+Recorded and Mixed at Tico-Tico Studios, Finland.
+Engineered By Ahti Kortelainen.
+Produced by GATES OF ISHTAR
+
+Niklas Svensson - Bass
+Tomas Jutenfaldt - Guitar
+Mikael Sandorf - Vocals
+Amdreas Johansson - Guitar
+Oscar Karlsson - Drums
+
+(p)c 1996 SPINEFARM Records
+
+### "The Dawn Of Flames" 1997, Melodic Death Metal
+
+1. Perpetual Dawn (The Arrival of Eternity/End My Pain)
+2. Trail of Tears
+3. Forever Scarred
+4. Dreamfields
+5. Dawn of Flames
+6. Eternal Sin
+7. No Time
+8. The Embrace of Winter
+
+
+
+### "At Dusk And Forever" 1998, Melodic Death Metal
+
+1. Wounds
+2. The Nightfall
+3. At Dusk And Forever
+4. Battles To Come
+5. The Burning Sky
+6. Never Alone Again
+7. Always
+8. Forever Beach
+
 
 ## Отношения с другими группами
 

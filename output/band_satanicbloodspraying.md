@@ -1,7 +1,20 @@
 # Satanic Bloodspraying
 
-Дискография
-"At The Mercy Of Satan" 2012, Black Metal
+
+
+## Дискография
+
+### "At The Mercy Of Satan" 2012, Black Metal
+
+01. Draining Blood 1:47
+02. Satanic Skullfuck 02:24
+03. Tetragrammaton 3:15
+04. Necro Dominatrix 3:07
+05. March The Dead 04:13
+06. Wrath Of Baal 2:18
+07. The Day The Earth Stood Still 3:34
+08. At The Mercy Of Satan 03:37
+
 
 ## Отношения с другими группами
 

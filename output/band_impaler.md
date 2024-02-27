@@ -1,7 +1,35 @@
 # Impaler
 
-Дискография
-"Charnel Deity" 1992, Death Metal
+Good Band
+
+## Дискография
+
+### "Charnel Deity" 1992, Death Metal
+
+1. The Dead Know Dreams / Avowal To Hell
+2. Imminence Of The Final Punishment
+3. Malignant Dreams
+4. Accursed Domain
+5. Internally Rotting
+6. Impaler Of Souls
+7. Astral Corpse
+8. Engulfed
+9. Total Carnage
+10.Repel Your Faith
+
+ Chris Drew - Guitar, Bass
+ Nick Adams - Drums
+ Paul Mariotti - Guitar
+ Edd - Vocal
+
+Produced And Engineering By Paul Johnson.
+Recorded At Mables Hut, Lemington SPA .
+Mixed At Rhythm Studios, Feckenham.
+Mixed By Paul Johnson And IMPALER.
+
+(p)&(c) 1992 DEAF Records
+
+
 
 ## Отношения с другими группами
 

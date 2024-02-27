@@ -1,11 +1,103 @@
 # Disarmonia Mundi
 
-Дискография
-"Nebularium" 2001, Melodic Death Metal
-"Fragments Of D-Generation" 2004, Melodic Death Metal
-"Mind Tricks" 2006, Melodic Death Metal
-"The Restless Memoirs" 2009, Melodic Death Metal
-"The Isolation Game" 2009, Melodic Death Metal
+Melodic death band from Italy
+
+## Дискография
+
+### "Nebularium" 2001, Melodic Death Metal
+
+1. Into D.M.
+2. Blue Lake
+3. Mechanichell
+4. Guilty Claims
+5. Burning Cells
+6. Demiurgo
+7. Nebularium
+8. Awakening  
+
+
+
+Benny Bianco Chinto - vocals
+Ettore Rigotti - guitars, drums, keys, backing vocals
+Simone Palermiti - guitars
+Mirco Andreis - bass guitars
+
+
+
+
+
+### "Fragments Of D-Generation" 2004, Melodic Death Metal
+
+01. Common State Of Inner Violence
+02. Morgue Of Centuries
+03. Red Clouds 
+04. Quicksand Simmetry 
+05. Swallow The Flames
+06. OceanGrave 
+07. A Mirror Behind
+08. Come Forth My Dreadful One 
+09. Shattered Lives And Broken Dreams 
+10. Colors Of A New Era
+
+### "Mind Tricks" 2006, Melodic Death Metal
+
+1. Resurrection Code 04:25  
+2. Mindtricks 03:52  
+3. Celestial Furnace 03:48  
+4. Nihilistic Overdrive 04:51  
+5. Parting Ways 04:01  
+6. Venom Leech and the Hands of Rain 05:03  
+7. Liquid Wings 04:36  
+8. Process of Annihilation 03:44  
+9. Last Breed 03:37  
+10. A Taste of Collapse 03:33  
+11. Mouth for War 03:52 
+
+
+
+Claudio Ravinale - vocals
+Ettore Rigotti - guitars, drums, vocals, keyboards
+Speed Strid - vocals
+
+### "The Restless Memoirs" 2009, Melodic Death Metal
+
+1. Across the Burning Surface 04:12  
+2. Flare 03:08  
+3. Spiral Dance 03:40  
+4. Kneeling on Broken Glass 03:48  
+5. Chester 03:56  
+6. Ghost Song 03:15 
+
+
+Bjцrn "Speed" Strid - Vocals 
+Claudio Ravinale - Vocals 
+Ettore Rigotti - Guitars, Drums, Vocals, Keyboards
+
+
+### "The Isolation Game" 2009, Melodic Death Metal
+
+1. Cypher Drone 04:29  
+2. Structural Wound 03:18  
+3. Perdition Haze 04:20 
+4. Building an Empire of Dust 04:23  
+5. Stepchild of Laceration 05:01  
+6. The Isolation Game 04:05  
+7. Blacklight Rush 03:47  
+8. Glimmer 02:01  
+9. Ties That Bind 04:05  
+10. Losing Ground 04:14  
+11. Same Old Nails for a New Messiah 03:58  
+12. Digging the Grave of Silence 04:18  
+13. Beneath a Colder Sun 01:25 
+
+
+
+The CD was recorded, produced, mixed and mastered at The Metal House Studio by
+Ettore Rigotti and features guest appearances by Bjцrn "Speed" Strid (Soilwork)
+on vocals and guitarist Olof Mцrck (Nightrage) on solos on some tracks.
+
+Japanese release includes the bonus track "The Shape of Things to Come". 
+
 
 ## Отношения с другими группами
 

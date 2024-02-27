@@ -1,14 +1,185 @@
 # Pungent Stench
 
-Дискография
-"Pungent Stench" 1989, Grindcore
-"Extreme Deformity (EP)" 1989, Grindcore
-"For God Your Soul... For Me Your Flesh" 1990, Grindcore
-"Been Caught Buttering" 1991, Grindcore
-"Dirty Rhymes And Psychotronic Beats" 1993, Grindcore
-"Club - "Mondo Bizzare" - For Members Only" 1994, Grindcore
-"Masters Of Moral - Servants Of Sin" 2001, Grindcore
-"Ampeauty" 2004, Grindcore
+Great grindcore
+
+## Дискография
+
+### "Pungent Stench" 1989, Grindcore
+
+1. Pulsating Protoplasma
+2. Dead Body Love
+3. Miscarriage
+4. In The Vault
+5. Rip You Without Care
+6. Festered Offals
+7. Pungent Stench
+
+
+ Martin Shirenc - Vocals & Guitars
+ Jacek Perkowski - Bass
+ Alex Wank - Drums
+
+(p)&(c) 1989 NUCLEAR BLAST Records
+
+### "Extreme Deformity (EP)" 1989, Grindcore
+
+1. Extreme Deformity
+2. Mucous Secretion
+3. Molecular Disembowelment
+
+ Martin Shirenc - Vocals & Guitars
+ Jacek Perkowski - Bass
+ Alex Wank - Drums
+
+(p)&(c) 1989 NUCLEAR BLAST Records
+
+
+
+### "For God Your Soul... For Me Your Flesh" 1990, Grindcore
+
+1. Intro (Extreme Deformity)
+2. Hypnos
+3. For God Your Soul...For Me Your Flesh
+4. Just Let Me Rot
+5. Pungent Stench
+6. Bonesawer
+7. Embalmed In Sulphuric Acid
+8. Blood,Pus & Gastric Juice
+9. Suspended Animation
+10.A Small Lunch
+
+ Martin Shirenc - Vocals & Guitars
+ Jacek Perkowski - Bass
+ Alex Wank - Drums
+
+Recorded & Mixed: Masterplan Studios,
+West Germany,December `89.
+Produced & Engineered: Stefan Grujic,
+Gregor Znort & PUNGENT STENCH.
+
+(p)&(c) 1990 NUCLEAR BLAST Records
+
+
+### "Been Caught Buttering" 1991, Grindcore
+
+1. Shrunken & Mummified Bitch
+2. Happy Re-Birthday
+3. Games Of Humiliation
+4. S.M.A.S.H.
+5. Brainpan Blues
+6. And Only Hunger Remains
+7. Sputter Supper
+8. Sick Bizarre Defaced Creation
+9. Splatterday Night Fever
+
+ Martin Shirenc - Angry Pitbull Terrier
+ Jacek Perkowski - Vokills,Pilot & Bonesaw
+ Alex Wank - Inhuman Beatbox
+
+Produced & Engineering By Gz
+Gregore Schwarzenegger.
+Recorded & Mixed At Donnersound
+Studios,August `91.
+
+(p)&(c) 1991 NUCLEAR BLAST Records
+
+### "Dirty Rhymes And Psychotronic Beats" 1993, Grindcore
+
+1. Praise The Names Of The Musical Assassins
+2. Viva La Muerte
+3. Why Can The Bodies Fly *
+4. Blood,Pus & Gastrick Juice (Rare-Groove-Mix)
+5. Horny Little Piggy Bank
+6. Four `F` Club
+7. Blood,Pus & Gastrick Juice (Tekkno-House-Mix)
+8. Choked Just For A Joke
+
+ Grandmaster Flesh - Vocals & Guitar
+ Pitbull Jack - Bass
+ Mr. Stench - Drums
+ + Richard Osterreicher III - Keyboards & Computer Programming
+
+Music By PUNGENT STENCH.
+Except * By Ed Vanguard & M.Yonder.
+Produced By Schwarzenegger & Schirenc.
+Engineered By Gregore Schwarzenegger.
+Recorded & Mixed At Sing Sang Studios,
+Vienna,November 1992.
+
+(p)&(c) 1993 NUCLEAR BLAST Records
+
+
+### "Club - "Mondo Bizzare" - For Members Only" 1994, Grindcore
+
+1. True Life
+2. Klyster Boogie
+3. Choked Just For A Joke
+4. Hydrocephalus
+5. I'm A Family Man
+6. Treatment Of Pain
+7. In The Search Of The Perfect Torture
+8. Practice Suicide
+9. Fuck Bizzare
+10.Rape - Parar Conla Misma Moneda
+
+ Grandmaster Flesh - Vocals & Guitar
+ Pitbull Jack - Bass
+ Mr. Stench - Drums
+
+All Songs By PUNGENT STENCH
+Produced & Engineered By Gregore Schwarzenegger
+Recorded & Mixed At Sing Sang Studios, 
+Vienna, May-June 1993
+
+(p)&(c) 1994 NUCLEAR BLAST Records
+
+
+### "Masters Of Moral - Servants Of Sin" 2001, Grindcore
+
+Loot, Shoot, Electrocute
+School's Out Forever
+Diary of a Nurse
+The Convent of Sin
+Rex Paedophilus
+Retaliation
+Suffer the Little Children to Come Unto Me
+Viva Il Vaticano
+Mortuary Love Affair
+The Testament of Stench
+
+
+
+
+Marius (Reverend Mausna) - bass and promiscuity
+Alex Wank (Rector Stench) - drums and rectal
+inspections
+Martin Schirenk (Don Cochino) - vocals, guitars,
+and sexual deviancy
+
+Recorded at House Of Music Studio, Winterbach,
+Germany 2001
+Produced by Martin Schirenc and Achim Kohler
+Engineered by Achim Kohler
+Mastered by Misko Tanner
+Photos by Klaus Pichler
+Cover art & layout by Martin Schirenc
+
+
+
+
+### "Ampeauty" 2004, Grindcore
+
+01. Lynndie (She-wolf Of Abu Gharib)
+02. Invisible Empire
+03. The Amp Hymn
+04. The Passion Of Lucifer
+05. Got Milf?
+06. Human Garbage
+07. Apotemnophiliac
+08. No Guts, No Glory
+09. Same Shit - Different Asshole
+10. Fear The Grand Inquisitor
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,35 @@
 # Ground Control
 
-Дискография
-"Insanity" 2006, Thrash
-"Dragged" 2010, Thrash
+
+
+## Дискография
+
+### "Insanity" 2006, Thrash
+
+1. Intro	 
+2. Days of Justice	 
+3. Insanity (In My Mind)	 
+4. Alone	 
+5. Vortex of Violence	 
+6. Truth	 
+7. Oriental Sorrow	 
+8. Face This Night	 
+9. Free Your Soul	 
+10. Metal Thrashing Mad (Anthrax Cover)
+
+### "Dragged" 2010, Thrash
+
+1. Intro	 
+2. Pray & Die	 
+3. Lost	 
+4. Breath	 
+5. Final Solution	 
+6. For What?	 
+7. Wasted	 
+8. Days in Rage	 
+9. Leave Me Alone	 
+10. Outro
+
 
 ## Отношения с другими группами
 

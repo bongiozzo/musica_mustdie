@@ -1,8 +1,39 @@
 # Thunderblast
 
-Дискография
-"Warzone" 2004, Heavy Metal
-"Invaders from Another World" 2011, Heavy Metal
+
+
+## Дискография
+
+### "Warzone" 2004, Heavy Metal
+
+1.	 Prime Destruction	01:57	 
+2.	 Cyber Titan	05:14	 
+3.	 Ignition	04:15	 
+4.	 Annihilator	04:12	 
+5.	 Army of One	05:01	 
+6.	 Spirit of Vengeance	04:59	 
+7.	 Warzone	04:33	 
+8.	 Firebinder	04:19	 
+9.	 Rampage	05:14	 
+10.	 Alliance to Vindicate	04:21	 
+11.	 Turbo	04:01	 
+12.	 Devastators	04:04	
+
+### "Invaders from Another World" 2011, Heavy Metal
+
+1	Intro (We Are Not Alone)	2:14	 
+2	Core Domain	5:33	
+3	Horror At Outpost 10	5:10	
+4	Human Torch	5:16	 
+5	Target Earth	6:39	 
+6	Invaders From Another World	5:07	
+7	When Zombies Rise	3:55	
+8	Screams At Haunted Hill	5:42	 
+9	Mutate	3:40	 
+10	War Of The Monsters	4:01	
+11	Lab From Hell	6:13	 
+12	Units Of Pain	3:58	
+
 
 ## Отношения с другими группами
 

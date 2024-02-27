@@ -1,13 +1,50 @@
 # Asia
 
-Дискография
-"The Deathship Has A New Captain" 1990, Metal
-"Aqua" 1992, Metal
-"Aria" 1994, Metal
-"Arena" 1996, Metal
-"Silent Nation" 2004, Metal
-"Architect Of Time" 2006, Metal
-"Omega" 2010, Metal
+AOR
+
+## Дискография
+
+### "The Deathship Has A New Captain" 1990, Metal
+
+Time Again 
+Sole Survivor 
+Don’t Cry 
+Keyboard Solo (вкл. Video Killed The Radio Star) 
+Only Time Will Tell 
+Rock And Roll Dream 
+Starless 
+Book Of Saturday 
+The Smile Has Left Your Eyes (Parts I & II) 
+Wildest Dreams 
+The Heat Goes On 
+Go 
+Heat Of The Moment 
+Open Your Eyes
+
+### "Aqua" 1992, Metal
+
+
+
+### "Aria" 1994, Metal
+
+
+
+### "Arena" 1996, Metal
+
+
+
+### "Silent Nation" 2004, Metal
+
+
+
+### "Architect Of Time" 2006, Metal
+
+
+
+### "Omega" 2010, Metal
+
+
+
 
 ## Отношения с другими группами
 

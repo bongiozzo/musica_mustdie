@@ -1,7 +1,30 @@
 # Zar
 
-Дискография
-"Hard To The Beat" 2003, Hard Rock
+Hard Rock
+
+## Дискография
+
+### "Hard To The Beat" 2003, Hard Rock
+
+1. Cryin For Love 
+2. Never So Alone 
+3. Hard To The Beat 
+4. Hundred Rivers 
+5. Perfect Day 
+6. Visions Of You
+7. Waiting For The Storm
+8. Evolution 
+9. Ni-ten 
+10. Living For The City 
+11. Why Donґt You Talk To Me 
+12. Schizophrenia 
+
+
+Andre Sauber (vocals)
+Tommy Clauss (guitars)
+Lars Nippa (drums)
+
+
 
 ## Отношения с другими группами
 

@@ -1,14 +1,41 @@
 # Godsmack
 
-Дискография
-"Godsmack" 1998, Metal
-"Awake" 2000, Metal
-"Faceless" 2003, Metal
-"The Other Side (EP)" 2004, Metal
-"IV" 2006, Metal
-"Good Times, Bad Times... Ten Years of Godsmack (Compilation)" 2007, Metal
-"The Oracle" 2010, Metal
-"Live And Inspired (Live)" 2012, Metal
+
+
+## Дискография
+
+### "Godsmack" 1998, Metal
+
+
+
+### "Awake" 2000, Metal
+
+
+
+### "Faceless" 2003, Metal
+
+
+
+### "The Other Side (EP)" 2004, Metal
+
+
+
+### "IV" 2006, Metal
+
+
+
+### "Good Times, Bad Times... Ten Years of Godsmack (Compilation)" 2007, Metal
+
+
+
+### "The Oracle" 2010, Metal
+
+
+
+### "Live And Inspired (Live)" 2012, Metal
+
+
+
 
 ## Отношения с другими группами
 

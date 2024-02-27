@@ -1,10 +1,65 @@
 # Cirith Gorgor
 
-Дискография
-"Onwards to the Spectral Defile" 1999, Black Metal
-"Unveiling The Essence" 2001, Black Metal
-"Firestorm Apocalypse" 2004, Black Metal
-"Cirith Gorgor" 2007, Black Metal
+
+
+## Дискография
+
+### "Onwards to the Spectral Defile" 1999, Black Metal
+
+The Declaration of Our Neverending War
+Winter Embraces Lands Beyond
+Through Burning Wastelands
+Sons of the New Dawn
+A Hymn to the Children of Heimdall
+Darkness Returns
+Wandering Cirith Gorgor
+Ephel Duath (a Warrior's Tale)
+Shadows over Isengard
+Thorns of Oblivion
+
+Produced by Cirith Gorgor & E. Hermsen
+Recorded at BBA November-December 1998
+Mixed by E. Hermsen at RSA
+Picture disc limited to 300 copies
+
+### "Unveiling The Essence" 2001, Black Metal
+
+Conquering The Shadowworld 
+Unveiling The Essence 
+Bellum Germanicum 
+Northern Spell Of Warcraft 
+Into A Nightly Silence 
+A Twilight Serenade 
+The Stormrulers (The Art Of Megalomania)
+Visions Of A Distant Past
+
+### "Firestorm Apocalypse" 2004, Black Metal
+
+The Gates Of Hell
+Degeneration Of Mankind
+Arcane Illusion
+Prelude To The Final Holocaust
+Fields Of Eternal Glory
+Perishing Nights
+Eternal Damnation
+Firestorm Apocalypse-The Coming Of A Greater Era
+
+### "Cirith Gorgor" 2007, Black Metal
+
+Total Annihilation
+The Black Hordes
+Demonic Incarnation
+Ritual
+Master of Dark Sorcery
+Warcry of the Southern Lands
+Der Untergang / Победа!!!
+
+Produced by Cirith Gorgor & E. Hermsen
+Recorded at Toneshed Recording Studio April,
+September, October 2006
+Mixed & mastered by E. Hermsen & Cirith Gorgor
+October 2006
+
 
 ## Отношения с другими группами
 

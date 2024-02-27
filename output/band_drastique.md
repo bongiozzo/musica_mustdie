@@ -1,8 +1,71 @@
 # Drastique
 
-Дискография
-"Thieves of Kisses" 1998, Black Metal
-"Pleasureligion" 2003, Black Metal
+(ex-Drastic)
+
+## Дискография
+
+### "Thieves of Kisses" 1998, Black Metal
+
+1. Stream Of Unconsciousness
+2. Unearthly
+3. Idle Worlds
+4. ...By Untrodden Paths
+5. Sringjail
+6. Blue Light Prisoners
+7. Two Infinities
+8. Voyage Dans La Lune (Extra Special Bonus Track)
+
+
+Chris "One-Star-Galaxy" Buchman - Jupiterhymes & Venushouts, Plutonichords & (St)Rings Of Saturn, Marsynths & Neptunes, Mercurhythm & Uranusounds
+Chiara Donaggio & Alessia De Boni - Unearthly Female Vocals
+
+
+PRODUCED BY Tommy Talamanca & Chris Buchman 
+CO-PRODUCED BY Marco Biolcati
+RECORDED & MIXED AT "Nadir Studios", Genoa
+VOCALS RECORDED AT "M.B. Studios", Sottomarina (Venice)
+MASTERED BY Alberto Cutolo AT "Elettroformati", Milan
+EXECUTIVE PRODUCER Giovanni Indorato & Beyond...Prod.
+ALL SONGS WRITTEN & ARRANGED BY Chris Buchman
+ALL LYRICS BY Chris Buchman
+POETIC QUOTATIONS BY W. Blake, C.A. Swinburne, The Thistle, Lord Byron, J. Keats, S.T. Coleridge, J. Sztaundynger, J. Tuwim
+COVER BY Richard Newton
+PHOTO BY Angelo Marzola
+ARTWORK BY Daniele Barillari
+LOGO BY Chris Buchman
+
+### "Pleasureligion" 2003, Black Metal
+
+1. 5enses
+2. The Succubus
+3. Legacy of Fascination
+4. Perfect Nothing
+5. Maria Magdalena
+6. Immortal Beloved
+7. Voyage Dans La Femme
+
+
+
+Chris “One-Soul-Inferno” Buchman - Pleasurhymes & Guitarapture, Rhythmalice & Sin-thesizers
+Fay - Temptress in Black
+Mahavira - Thundering Echoes of Silence
+
+
+PRODUCED BY Chris Buchman
+RECORDED AT “Unearthly Studios”, Sottomarina (Venice)
+MIXED AND MASTERED BY Paolo Valenti AT “Loud Music Studios”, Genoa
+EXECUTIVE PRODUCER Beyond Productions
+ALL SONGS WRITTEN AND ARRANGED BY Chris Buchman
+ALL LYRICS BY Chris Buchman
+EXCEPT “Maria Magdalena” (Kemmler/Lorh/Cretu) © 1985 Virgin Schallplatten GmbH
+
+POETIC INSPIRATION AND QUOTATIONS BY D. Alighieri, W. Blake, S.T. Coleridge, R. Graves, R. Herrick, A.E. Housman, J. Keats, J. Kochanowski, D.H. Lawrence, G. Meredith, D.G. Rossetti, P.B. Shelley, A.C. Swinburne
+
+COVER BY Jan Saudek
+ARTWORK AND LOGO BY Chris Buchman
+DIGITAL TREATMENTS BY Gerolamo Lucisano
+
+
 
 ## Отношения с другими группами
 

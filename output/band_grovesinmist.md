@@ -1,8 +1,37 @@
 # Groves In Mist
 
-Дискография
-"Mood Diary" 2006, Gothic
-"Remembrance Is The Suffering" 2007, Rock
+
+
+## Дискография
+
+### "Mood Diary" 2006, Gothic
+
+1. Intro 
+2. Fall Through The Window 
+3. Amnesia 
+4. Murder And Confession 
+5. Remission Tide 
+6. Luna Comes In Pain 
+7. Too Last Elegy 
+8. Sick 
+9. Join To Misery 
+10. Madman's Diary 
+11. Providence With Blake
+
+### "Remembrance Is The Suffering" 2007, Rock
+
+As the love weeps dying
+Alone
+Twilight me	
+Nocturn	
+Autumn again	
+Blame occupied
+Moongalde
+Regrets
+RITS
+P.M
+Сумрак Мой
+
 
 ## Отношения с другими группами
 

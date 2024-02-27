@@ -1,7 +1,40 @@
 # Filthy Christians
 
-Дискография
-"Mean" 1990, Grindcore
+
+
+## Дискография
+
+### "Mean" 1990, Grindcore
+
+1. Introitus
+2. Obey To Get Independence
+3. Go Your Own Way
+4. The Scene
+5. Drunk Driver
+6. Zombie Holocaust
+7. Extremely Bad Breath
+8. Who Cares ?
+9. Party And Fight For Your Right ?
+10. The Disease
+11. Bum (Let Those Bastards)
+12. Your Goals
+13. Herring Attack
+14. Just Another Metal Band
+15. If You`re Hardcore...I`m Not !
+16. Old, But Not So Wise
+17. Dom Ljuger
+18. A Case For Teddy
+
+ Per Thunell - Vocals
+ Gregor Bennstrom - Bass
+ Daniel Hammars - Guitar
+ Patrick Forsberg - Guitar
+ Ola Stralin  - Drums
+
+All Songs By FILTHY CHRISTIANS.
+
+(p)&(c) 1990 EARACHE Records
+
 
 ## Отношения с другими группами
 

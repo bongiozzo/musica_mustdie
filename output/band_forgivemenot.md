@@ -1,13 +1,186 @@
 # Forgive-Me-Not
 
-Дискография
-"Tearfall" 1997, Doom
-"Spaceapple" 1999, Doom
-"Swallow Songs" 2002, Gothic
-"Perfect Innocence" 2002, Gothic
-"Behind" 2003, Gothic
-"Heavenside" 2004, Gothic
-"Suicide Сервис" 2006, Gothic
+Ultra Melodic Heavy
+
+## Дискография
+
+### "Tearfall" 1997, Doom
+
+Tearfall 
+Bird-Hearted 
+Neverland 
+Heaven Island 
+You And Me 
+Werewolf 
+Shining Brightly 
+Mylene 
+Soothe My Heart  
+Void 
+Midnight World 
+Since My Holy childhood (outro) 
+
+
+VIC - bass & vocals 
+MIGUEL - guitars & keyboards 
+ANDY - drums 
+
+All songs by FORGIVE-ME-NOT. 
+
+Female vocal on "Heaven Island" and "Werewolf" by Irina. 
+Spoken words on "Werewolf" by Igor Tatynski. 
+
+Recorded and mixed at "T-Studio", Tula, Russia, 
+August-October 1997. 
+Sound by Gennagy Terekhov. 
+
+Design concept & computer graphics - Eugene A. Currant. 
+
+### "Spaceapple" 1999, Doom
+
+Tomorrow 
+The Last Morning 
+A Sudden Smile 
+When Comes The Light 
+Shadowdream 
+Uncontrolled Feeling 
+Spaceapple 
+Her Beautiful Rose 
+Every... 
+A Delicate Touch Of The Rain 
+
+
+
+VIC - bass & vocals 
+MIGUEL - guitar 
+MICHAEL - guitar 
+ELENA - keyboards 
+ANDY - drums 
+
+All songs by FORGIVE-ME-NOT 
+except "Shadowdream" by A. Malakhov & FORGIVE-ME-NOT. 
+
+All female vocals by Irina. 
+
+Recorded and mixed by Gennagy Terekhov at "T-Studio", Tula, Russia, 
+August-September 1998. 
+
+Cover design by Vadim Shulgin. 
+Photo by Roman Romanov. 
+
+### "Swallow Songs" 2002, Gothic
+
+The Dying Star Pilot 
+A Voyage with Gods 
+A Tiny Swallow Song 
+The City Of Angels (single version/radio mix) 
+In Danger (single version/radio mix) 
+
+
+
+VIC - bass & vocals 
+MIGUEL - guitar 
+MICHAEL - guitar 
+ELENA - keyboards 
+ANDY - drums 
+
+All words and music by FORGIVE-ME-NOT 
+
+Produced by FORGIVE-ME-NOT and Gennady Terekhov. 
+
+Recorded and mixed by Gennady Terekhov 
+
+Recorded and mixed at T-Studio and 107,5 Studio, Tula, Russia 
+
+Mastered by Andrew Subbotin at Saturday Mastering Studio, January 2002 
+
+Photo of FORGIVE-ME-NOT by M.B.Gindin 
+
+Executive producer - Eugeny Aksenov 
+
+
+### "Perfect Innocence" 2002, Gothic
+
+1. Our Separate Ways
+2. Lonely
+3. Skygirl
+4. The Dying Star Pilot
+5. The City Of Angels
+6. The Rain Inside Me
+7. The Way Of Rose
+8. Saint
+9. In Danger
+10. Released
+11. Silent Goodbyes
+12. Four Winds
+13. AMAZEing
+
+ELENA - keyboards
+MIGUEL - guitars
+VIC - bass & vocals
+MICHAEL - guitars
+ANDY - drums
+
+All words and music by FORGIVE-ME-NOT
+Produced by FORGIVE-ME-NOT and Gennady Terekhov
+Recorded and mixed by Gennady Terekhov
+Recorded and mixed at T-Studio and 107,5 Studio, Tula, Russia
+Mastered by Day Studio / Evgeny Vinogradov, Moscow, 2002
+Photo of FORGIVE-ME-NOT by M.B.Gindin
+Design - Ivashkevich Viktor
+Executive producer - Eugeny Aksenov
+
+(p) 2002 Soyuz
+
+### "Behind" 2003, Gothic
+
+01. Time in Timeout
+02. Behind
+03. Crime
+04. Escape
+05. Cold Sand
+06. Freezing Point
+07. Gypsy Road
+
+Mikhail Guz — guitars
+Victor Kukoverov — bass & vocals
+Mikhail Karasyov — guitars
+Elena Gorbunova — keyboards
+Andrey Sukhanov — drums
+
+Female vocals on Escape by Svetlana Glukharyova
+
+All music by Mikhail Guz and FORGIVE-ME-NOT, except Gypsy Road
+
+Lyrics by: Victor Kukoverov (3, 5, 6), Elena Gorbunova (2, 4), Sergey Prokofev (1)
+
+Time in Timeout and Gypsy Road recorded and mixed in July 2003 by Eugeny Vinogradov (DAI Records)
+
+Behind, Crime, Escape and Cold Sand recorded and mixed in August 2002 by Vitaly Chulcov (New Studio)
+
+Freezing Point recorded and mixed in July 2001 by Gennady Terekhov (T-Studio)
+
+Executive produced by Eugeny Axenov
+
+Designed by Ivan S. Bragin
+
+### "Heavenside" 2004, Gothic
+
+
+
+### "Suicide Сервис" 2006, Gothic
+
+1. SC.071
+2. Сгорая в тебе
+3. Звездой
+4. Встречай меня
+5. Сладкий Suicide
+6. Опуститься в рай
+7. Петля
+8. Последний рассвет
+9. Под водой
+10. Разбиваемся в небо
+11. Через тысячи лет...
+
 
 ## Отношения с другими группами
 

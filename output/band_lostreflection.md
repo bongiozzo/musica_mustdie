@@ -1,7 +1,22 @@
 # Lost Reflection
 
-Дискография
-"Florida" 2011, Heavy Metal
+
+
+## Дискография
+
+### "Florida" 2011, Heavy Metal
+
+1. Media Violence  02:59   
+2. Bad Love  03:49    
+3. On Your Skin  03:16  
+4. Blame It On Love  02:54  
+5. Crucified  03:02  
+6. Don't Leav Me Alone  03:52  
+7. Here We R  02:17  
+8. Wings Of Glory  03:40 
+9. Our Drug Is Our Heart  02:51 
+10. Nitefall  05:17 
+
 
 ## Отношения с другими группами
 

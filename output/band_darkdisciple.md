@@ -1,8 +1,49 @@
 # Dark Disciple
 
-Дискография
-"Unholy Hate Gore" 2004, Death Metal
-"Kill Everything - Worship Nothing" 2006, Deathcore
+
+
+## Дискография
+
+### "Unholy Hate Gore" 2004, Death Metal
+
+1. Jesus Loves You
+2. Serving The Priest
+3. Annihilation Of The Living
+4. A 1000 Corpses
+5. Vile Infection
+6. Reign Of Terror
+7. 666 Stab Wounds
+8. Human Killing Machine
+9. Welcome To Purgatory
+10. Unholy Hate Gore
+
+
+Music by Dark Disciple
+Lyrics by Mat Sicko
+
+Mat-Vocals of Sickness
+Rez-Lead Guitar/vocals
+"G"-Bass Guitar/vocals
+Josh-Rhythm Guitar
+Maddog-Drums
+
+### "Kill Everything - Worship Nothing" 2006, Deathcore
+
+Eat A Bowl Of Fuck
+Bottle Of Piss
+Kill U, Fuck U, Shit U Out
+In Gods Hands
+Wet T-Shirt Contest
+Prey For Death
+One In The Chamber
+Bound, Gagged & Hatefucked
+Pussy Is The Enemy
+Sadistic Statistics
+A Skull Full Of Maggots
+Premeditated Malice
+Meetings Of The Mindless
+Kill Everything - Worship Nothing
+
 
 ## Отношения с другими группами
 

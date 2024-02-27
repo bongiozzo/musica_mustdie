@@ -1,10 +1,25 @@
 # Acid Reign
 
-Дискография
-"Moshkinstein	(EP)" 1988, Thrash
-"The Fear" 1989, Thrash
-"Obnoxious" 1990, Thrash
-"The Worst Of Acid Reign" 1991, Thrash
+
+
+## Дискография
+
+### "Moshkinstein	(EP)" 1988, Thrash
+
+
+
+### "The Fear" 1989, Thrash
+
+
+
+### "Obnoxious" 1990, Thrash
+
+
+
+### "The Worst Of Acid Reign" 1991, Thrash
+
+
+
 
 ## Отношения с другими группами
 

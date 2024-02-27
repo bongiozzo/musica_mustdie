@@ -1,18 +1,328 @@
 # Novembers Doom
 
-Дискография
-"Amid Its Hallowed Mirth" 1995, Doom
-"Of Sculptured Ivy and Stone Flowers" 1999, Doom
-"The Knowing" 2000, Doom
-"To Welcome the Fade" 2002, Doom
-"Reflecting In Grey Dusk" 2004, Death Doom
-"The Pale Haunt Departure" 2005, Death Doom
-"The Novella Reservoir" 2007, Death Metal
-"The Novella Vosselaar (DVD)" 2008, Death Doom
-"Into Night's Requiem Infernal" 2009, Death Doom
-"Aphotic" 2011, Death Doom
-"Bled White" 2014, Death Doom
-"Hamartia" 2017, Death Doom
+
+
+## Дискография
+
+### "Amid Its Hallowed Mirth" 1995, Doom
+
+1. Aurora's Garden
+2. Amour Of The Harp
+3. Tears Of The Beatyful
+4. My Agony, My Extasy
+5. Best Of My Desire
+6. Chorus Of Jasmine
+7. Dance Of The Laises
+8. Sadness Rain
+
+ Paul Kuhr III - Vocals
+ Cathy Jo Hejna - Vocals
+ Steve Nicholson - Guitars, Bass
+ Joe Hernandez - Drums
+
+All Songs Written By NOVEMBERS DOOM
+Produced By Jim Harvey, Ron Reild & NOVEMBERS DOOM
+Recorded At Breakthrough Studio
+
+(p)&(c) 1995 AVANTGARDE Music
+
+### "Of Sculptured Ivy and Stone Flowers" 1999, Doom
+
+1. With Rue And Fire 05:41 
+2. The Jealous Sun 06:09 
+3. Suffer The Red Dream 07:58 
+4. All The Beauty Twice Again 04:17 
+5. Reaping Forest Calm 05:30 
+6. Before The Wind 03:10 
+7. For Every Leaf That Falls 04:35 
+8. Serenity Forgotten 02:10 
+9. Forever With Unopened Eye 04:17
+10. Dawn Breaks 06:06
+
+### "The Knowing" 2000, Doom
+
+1. Awaken 03:33 
+2. Harmony Divine 05:17  
+3. Shadows of Light 04:38  
+4. Intervene 01:52  
+5. Silent Tomorrow 05:13 
+6. In Faith 05:18 
+7. Searching the Betrayal 04:40 
+8. Last God 09:43 
+9. In Memories Past 05:02 
+10. The Day I Return 05:14
+11. Aura Blue 07:58 
+12. Silent Tomorrow (Dark Edit) 05:11 
+
+
+
+Released 2000 on Dark Symphonies
+Produced by Novembers Doom
+Recorded and Mixed by Chris Djuricic
+Completed at Studio One, Racine, Wisconsin
+Cover Art by Travis Smith
+Design and Layout by Paul Kuhr
+Music arranged by Novembers Doom
+Music written by Eric Burnley & Larry Roberts
+Lyrics by Paul Kuhr
+
+Album Lineup:
+
+Paul Kuhr - Vocals
+Eric Burnley - Guitar, Keyboard
+Larry Roberts - Guitar
+Mary Bielich -Bass
+Joe Nunez - Drums, Percussion
+
+Additional Musicians
+
+Sarah Wilson - Vocals
+Sophie Kopecky - Voice
+
+
+
+### "To Welcome the Fade" 2002, Doom
+
+1. Not The Strong 5:00
+2. Broken 7:36
+3. Lost In A Day 5:31
+4. Within My Flesh 4:52
+5. If Forever	3:47
+6. The Spirit Seed 7:13
+7. Torn 5:46
+8. The Lifeless Silhouette 5:56
+9. Dreams To Follow 1:37
+10. Dark Fields For Brilliance 7:36
+
+Produced, recorded and mixed by Neil Kernon for Auslander
+Additional engineering by Justin Leeah
+Digital editing / ProTools - Justin Leeah and Neil Kernon
+Completed at Sonic Ranch, Tornillo Texas
+Mastered at Ocean View Digital Mastering by Ramon Breton
+Artwork by Travis Smith - www.seempieces.com
+Graphic design and layout by Paul Kuhr
+Music arranged by Novembers Doom
+Music written by Eric Burnley and Larry Roberts
+"Within My Flesh" written and arranged by
+Eric Burnley, Ron Holzner, and Larry Roberts
+Lyrics by Paul Kuhr
+
+Paul Kuhr - vocals
+Eric Burnley - guitar, keyboard
+Larry Roberts - guitar
+Joe Nunez - drums, percussion
+
+Additional musicians:
+Brian Gordon - bass
+Nora O"Conner - female voice
+Additional solo guitar in "Dark Fields For Brillance" and 
+keyboard in "If Forever" by Neil Kernon
+
+
+### "Reflecting In Grey Dusk" 2004, Death Doom
+
+1. In the Absence of Grace 08:16  
+2. Not the Strong 05:00  
+3. Lost In a Day 05:31  
+4. Dark Fields for Brilliance 07:37  
+5. Silent Tomorrow 05:14  
+6. Harmony Divine 05:18  
+7. With Rue and Fire 05:42  
+8. Dawn Breaks 06:06  
+9. Amour of the Harp 07:22  
+10. Chorus of Jasmine 07:13  
+11. Revelation (Mother Earth) 06:03 
+
+
+This is a promo that November's Doom was distributing during their American Tour
+to promote the upcoming album "Ascension".
+Track 01 - A demo version from the upcoming album.
+Tracks 02-04 - From "To Welcome the Fade"
+Tracks 05-06 - From "The Knowing"
+Tracks 07-08 - From "Of Sculptured Ivy and Stone Flowers"
+Tracks 09-10 - From "Amid Its Hallowed Mirth"
+Track 11 - From "Legend of a Madman: Ozzy Osbourne Tribute"
+
+### "The Pale Haunt Departure" 2005, Death Doom
+
+1. The Pale Haunt Departure 06:07 
+2. Swallowed By the Moon 06:37  
+3. Autumn Reflection 06:10 
+4. Dark World Burden 08:10 
+5. In the Absence of Grace 05:58 
+6. The Dead Leaf Echo 07:31 
+7. Through a Child's Eyes 05:45  
+8. Collapse of the Falling Throe 05:32 
+
+
+Produced by Novembers Doom and Chris Djuricic
+Engineering and Editing by Chris Djuricic, Studio One, Racine, WI, USA
+Mixed by Dan Swano at Square One, Orebro, Sweden
+Mastered by James Murphy at The Safe Room, Florida
+Mastered at Ocean View Digital Mastering by Ramon Breton
+Music written and arranged by Novembers Doom
+Lyrics by Paul Kuhr
+Design and Illustration by Attila Kis (www.demateria.com)
+Photography by Mark Coatsworth (www.still-live.com)
+Legal Representation: Chip Cox
+
+
+Paul Kuhr - Vocals
+Larry Roberts - Guitar, Keyboard
+Vito Marchese - Guitar
+Joe Nunez - Drums, Percussion
+Mike LeGros - Bass
+
+Additional Musicians
+Dan Swano - Guitar (end solo on Dark World Burden)
+Eric Burnley - Keyboard
+Tommy Crucianelli - Keyboard
+
+### "The Novella Reservoir" 2007, Death Metal
+
+1. Rain 04:16 
+2. The Novella Reservoir 05:22 
+3. Drown the Inland Mere 06:00  
+4. Twilight Innocence 05:58  
+5. The Voice of Failure 05:51 
+6. They Were Left to Die 05:30 
+7. Dominate the Human Strain 05:30 
+8. Leaving This 07:27 
+
+
+Produced by Novembers Doom and Chris Djuricic
+Engineering and Editing by Chris Djuricic, Studio One, Racine, WI, USA
+Mixed by Dan Swano at Square One, Orebro, Sweden
+Mastered by James Murphy at The Safe Room, Florida
+Music written and arranged by Novembers Doom
+Lyrics by Paul Kuhr
+Design and Illustration by Travis Smith
+Photography by Mark Coatsworth
+Legal Representation: Chip Cox
+
+Instrumentation:
+Paul Kuhr - Vocals
+Larry Roberts - Guitar
+Vito Marchese - Guitar
+Joe Nunez - Drums, Percussion
+Chris Djuricic - Bass
+
+Additional Musicians:
+Ed "Shreddy" B - Keyboard
+
+
+### "The Novella Vosselaar (DVD)" 2008, Death Doom
+
+1. Rain 06:35  
+2. The Novella Reservoir 05:36 
+3. Dark World Burden 06:24  
+4. With Rue and Fire 04:27  
+5. Autumn Reflection 06:23 
+6. For Every Leaf That Falls 05:24 
+7. The Day I Return 05:15  
+8. Not The Strong 05:41  
+9. The Voice of Failure 05:51
+10. Silent Tomorrow 05:12  
+11. Within My Flesh 05:16 
+12. Drown the Inland Mere 07:00  
+13. The Pale Haunt Departure 06:48 
+
+BONUS MATERIAL
+
+Promotional Videos:
+
+01. Rain
+02. Autumn Reflection
+03. The Pale Haunt Departure
+
+Fan Made Videos:
+
+01. Twilight Innocence
+02. Dark World Burden
+03. Broken
+04. The Lifeless Silhouette 
+
+
+Lineup:
+
+Paul Kuhr - Vocals 
+Vito Marchese - Guitar 
+Larry Roberts - Guitar 
+Chris Djuricic - Bass
+Joe Nunez - Drums
+
+
+
+
+### "Into Night's Requiem Infernal" 2009, Death Doom
+
+1. Into Night's Requiem Infernal   
+2. Eulogy for the Living Lost   
+3. Empathy's Greed 
+4. The Fifth Day of March   
+5. Lazarus Regret   
+6. I Hurt Those I Adore   
+7. The Harlots Lie   
+8. When Desperation Fills the Void 
+
+
+The CD was recorded at Belle City Sound studio in Racine, Wisconsin with Chris
+Рuriиiж producing and Dan Swanц mixing at Unisound in Цrebro,
+Sweden. 
+
+### "Aphotic" 2011, Death Doom
+
+1. The Dark Host  08:08   
+2. Harvest Scythe  05:42    
+3. Buried  06:32    
+4. What Could Have Been  06:33    
+5. Of Age and Origin - Part 1: A Violent Day  05:04    
+6. Of Age and Origin - Part 2: A Day of Joy  03:19  
+7. Six Sides  07:47    
+8. Shadow Play  07:46 
+
+
+Paul Kuhr  Vocals  
+Sasha Horn  Drums  
+Larry Roberts  Guitars / Vocals  
+Vito Marchese  Guitars  
+Mike Feldman  Bass  
+ 
+Anneke Van Giersbergen (AGUA DE ANNIQUE, THE GATHERING) - Vocals on What Could Have Been
+Rachel Barton Pine (EARTHEN GRAVE) - Violin on What Could Have Been and The Dark Host
+Dan Swanц (NIGHTINGALE, EDGE OF SANITY, BLOODBATH) - vocals on Of Age and Origin
+
+Mixed by Dan Swanц 
+
+
+### "Bled White" 2014, Death Doom
+
+1. Bled White     
+2. Heartfelt  
+3. Just Breathe    
+4. Scorpius      
+5. Unrest     
+6. The Memory Room 
+7. The Brave Pawn      
+8. Clear     
+9. The Grand Circle    
+10. Animus     
+11. The Silent Dark  
+
+### "Hamartia" 2017, Death Doom
+
+1. Devils Light    
+2. Plague Bird    
+3. Ghost   
+4. Ever After   
+5. Hamartia    
+6. Apostasy    
+7. Miasma    
+8. Zephyr     
+9. Waves in the Red Cloth    
+10. Borderline  
+
+
 
 ## Отношения с другими группами
 

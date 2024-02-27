@@ -1,23 +1,166 @@
 # Diary of Dreams
 
-Дискография
-"Cholymelan" 1994, Gothic
-"End Of Flowers" 1995, Gothic
-"Bird Without Wings" 1997, Gothic
-"Psychoma ?" 1998, Gothic
-"Moments Of Bloom" 1999, Gothic
-"Cholymelan (re-release)" 1999, Gothic
-"One Of 18 Angels" 2000, Gothic
-"O'Brother Sleep (single)" 2001, Gothic
-"Amok (single)" 2002, Gothic
-"Freak Perfume" 2002, Gothic
-"PaniK Manifesto (mini-album)" 2002, Gothic
-"Dream Collector" 2003, Gothic
-"Giftraum (single)" 2004, Gothic
-"Nigredo" 2004, Synthpop
-"Menschfeind" 2005, Synthpop
-"Nine In Numbers [DVD]" 2006, Synthpop
-"(If)" 2009, Synthpop
+Synth Pop Goth Band
+
+## Дискография
+
+### "Cholymelan" 1994, Gothic
+
+
+
+### "End Of Flowers" 1995, Gothic
+
+
+
+### "Bird Without Wings" 1997, Gothic
+
+
+
+### "Psychoma ?" 1998, Gothic
+
+
+
+### "Moments Of Bloom" 1999, Gothic
+
+1. Cholymelan
+2. False affection, false creation
+3. End of Flowers
+4. Retaliation
+5. But the wind was stronger
+6. Ex-ile
+7. Methusalem
+8. Moments of bloom
+9. Touch
+10. Reality of mine
+11. Predictions
+
+### "Cholymelan (re-release)" 1999, Gothic
+
+
+
+### "One Of 18 Angels" 2000, Gothic
+
+ 1. Rumous About Angels 	8:25
+ 2. Butterfly: Dance!    	6:53 
+ 3. Mankind 		 	6:21 
+ 4. Winter Souls        	5:42 
+ 5. No-body Left To Blame       6:04 
+ 6. Chemicals           	5:50 
+ 7. Babylon             	8:11 
+ 8. Colorblind          	5:19 
+ 9. People Watcher      	6:28 
+ 10. Darker 	  	 	6:48 
+bonus
+ 11. Dead Souls Dreaming  	5:51
+
+### "O'Brother Sleep (single)" 2001, Gothic
+
+1. O'Brother Sleep (Sleepwalker Mix) 
+2. She 
+3. O'Brother Sleep 
+4. She (Demonic Mix)
+
+### "Amok (single)" 2002, Gothic
+
+1. Amok 
+2. Victimized (upgrade 02) 
+3. Ex-ile (upgrade 03) 
+4. Butterfly:Dance! (upgrade 02)
+
+### "Freak Perfume" 2002, Gothic
+
+1. Traum:A 
+2. the Curse 
+3. O'Brother Sleep 
+4. Chrysalis 
+5. Traumtanzer 
+6. Rebellion 
+7. Bastard 
+8. AmoK 
+9. She 
+10. Verdict 
+11. Play God! 
+12. She and her darkness 
+          Bonustracks: 
+13. the Curse (freak-edit)
+14. AmoK (Dj Gb: Shock Mix)
+15. Stranger than Rebellion 
+
+### "PaniK Manifesto (mini-album)" 2002, Gothic
+
+
+
+### "Dream Collector" 2003, Gothic
+
+
+
+### "Giftraum (single)" 2004, Gothic
+
+
+
+### "Nigredo" 2004, Synthpop
+
+01. Dead Letter (7:17)
+02. Giftraum (4:14)
+03. kindrom (5:12)
+04. Reign of Chaos (5:35)
+05. Charma Sleeper (5:44)
+06. Tales of the silent City (5:42)
+07. Portrait of a Cynic (4:38)
+08. UnMensch (5:40)
+09. the Witching Hour (4:34)
+10. Psycho-Logic (4:45)
+11. krank:Haft (4:56)
+12. Cannibals (5:17)
+13. Mask of Shame (6:58)
+
+### "Menschfeind" 2005, Synthpop
+
+01. Menschfeind 6:05
+02. Haus Der Stille 5:48
+03. Day-X-Relic 5:16
+04. Killers 6:16
+05. Treibsand 4:59
+06. The Cage 5:29
+07. Pentaphobia 7:48
+
+### "Nine In Numbers [DVD]" 2006, Synthpop
+
+01. MenschFeind
+02. Reign Of Chaos
+03. The Curse
+04. Giftraum
+05. Methusalem
+06. Chemicals
+07. Play God!
+08. Butterfly: Dance!
+09. Soul Stripper
+10. Psycho-Logic
+11. Traumatanzer
+12. AmoK
+
+Specials:
+
+- fragment-collection
+- iceland (making of)
+- iceland (photoshow)
+- interview
+
+### "(If)" 2009, Synthpop
+
+01. the Wedding 
+02. Requiem 4.21
+03. Odyssey Asylum
+04. Poison Breed
+05. Wahn!Sinn?
+06. the Colors of Grey
+07. Choir Hotel
+08. the Chain
+09. King of Nowhere
+10. 21 Grams of Nothing
+11. Mind over Matter
+12. Kingdom of Greed
+
 
 ## Отношения с другими группами
 

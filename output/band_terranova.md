@@ -1,7 +1,24 @@
 # Terranova
 
-Дискография
-"Escape" 2005, Hard Rock
+
+
+## Дискография
+
+### "Escape" 2005, Hard Rock
+
+01. Long live rock ‘n’ roll 4:41
+02. Rock bottom 4:03
+03. Hold the line 6:28
+04. Heaven knows 4:43
+05. Escape 4:32
+06. War on war 3:58
+07. You are the 4:52
+08. Sole survivor 4:10
+09. Lonely is the night 4:46
+10. Back in the eighties 4:04
+11. Part of the game 3:28
+12. Yesterday 4:35
+
 
 ## Отношения с другими группами
 

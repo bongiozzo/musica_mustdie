@@ -1,8 +1,29 @@
 # Beyond Twilight
 
-Дискография
-"Section X" 2005, Progressive
-"For The Love Of Art And The Making" 2006, Progressive
+
+
+## Дискография
+
+### "Section X" 2005, Progressive
+
+
+
+### "For The Love Of Art And The Making" 2006, Progressive
+
+1. For The Love Of Art And The Making
+
+All songs written by Finn Zierler and Jacob Hansen
+Produced by Finn Zierler
+Engineered and mixed by Finn Zierler and Jacob Hansen
+Recorded at Hansen Studios and Jailhouse Studios
+
+Devillian - Bass
+Exo - Rhythm and Lead Guitars
+Jacob Hansen - Rhythm Guitars
+Tomas Freden - Drums
+Finn Zierler - Keyboards
+Bjorn Jansson - Vocals
+
 
 ## Отношения с другими группами
 

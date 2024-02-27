@@ -1,17 +1,180 @@
 # Evergrey
 
-Дискография
-"The Dark Discovery" 1998, Progressive
-"Solitude, Dominance, Tragedy" 1999, Progressive
-"In Search Of Truth" 2001, Progressive
-"Recreation Day" 2003, Progressive
-"The Inner Circle" 2004, Progressive
-"A night to remember (live)" 2005, Progressive
-"Monday Morning Apocalypse" 2006, Progressive
-"Torn" 2008, Progressive
-"Glorious Collision" 2011, Progressive
-"Hymns for the Broken" 2014, Progressive
-"The Storm Within" 2016, Progressive
+
+
+## Дискография
+
+### "The Dark Discovery" 1998, Progressive
+
+01. Blackened Dawn
+02. December 26th
+03. Dark Discovery
+04. As Light Is Our Darkness
+05. Beyond Salvation
+06. Closed Eyes
+07. Trust And Betrayal
+08. Shadowed
+09. When The River Calls
+10. For Every Tear That Falls
+11. To Hope Is To Fear
+
+### "Solitude, Dominance, Tragedy" 1999, Progressive
+
+01. Solitude Within
+02. Nosferatu
+03. The Shocking Truth
+04. A Scattered Me
+05. She Speaks To The Dead
+06. When Darkness Falls
+07. Words Mean Nothing
+08. Damnation
+09. The Corey Curse
+
+### "In Search Of Truth" 2001, Progressive
+
+01. The Masterplan
+02. Rulers Of The Mind
+03. Watching The Skies
+04. State Of Paralysis
+05. The Encounter
+06. Mark Of The Triangle
+07. Dark Waters
+08. Different Worlds
+09. Misled
+
+### "Recreation Day" 2003, Progressive
+
+01. The Great Deceiver
+02. End of Your Days
+03. As I Lie Here Bleeding
+04. Recreation Day
+05. Visions
+06. I'm Sorry
+07. Blinded
+08. Fragments
+09. Madness Caught Another Victim
+10. Your Darkest Hour
+11. Unforgivable
+12. Trilogy of the Damned
+
+### "The Inner Circle" 2004, Progressive
+
+01. A Touch Of Blessing
+02. Ambassador
+03. In The Wake Of The Weary
+04. Harmless Wishes
+05. Waking Up Blind
+06. More Than Ever
+07. The Essence Of Conviction
+08. Where All Good Sleep
+09. Faith Restored
+10. When The Walls Go Down
+
+### "A night to remember (live)" 2005, Progressive
+
+CD 1: 
+1. Intro (1:38)
+2. Blinded (4:45)
+3. End Of Your Days (4:38)
+4. More Than Ever (5:17)
+5. She Speaks To The Dead (4:16)
+6. Rulers Of The Mind (5:33)
+7. Blackened Dawn (4:04)
+8. Waking Up Blind (4:05)
+9. AS I Lie Here Bleeding (4:42)
+10. Mislead (7:24)
+11. Mark Of The Triangle (6:57) 
+
+CD 2: 
+1. When The Walls Go Down (5:28)
+2. Harmless Wishes (4:38)
+3. Essence Of Conviction (6:07)
+4. Solitude Within (5:47)
+5. Nosferatu (5:41)
+6. Recreation Day (7:24)
+7. For Every Tear That Falls (5:22)
+8. Touch Of Blessing (7:18)
+9. The Masterplan (11:13)
+
+### "Monday Morning Apocalypse" 2006, Progressive
+
+1. Monday Morning Apocalypse 03:11  
+2. Unspeakable 03:55  
+3. Lost 03:14  
+4. Obedience 04:14  
+5. The Curtain Fall 03:09  
+6. In Remembrance 03:34  
+7. At Loss For Words 04:14  
+8. Till Dagmar 01:40  
+9. Still In The Water 05:18  
+10. The Dark I Walk You Through 04:20  
+11. I Should 04:52  
+12. Closure 03:09
+
+### "Torn" 2008, Progressive
+
+1. Broken Wings 04:42
+2. Soaked 04:59 
+3. Fear 04:16  
+4. When Kingdoms Fall 05:33  
+5. In Confidence 04:03 
+6. Fail 04:50  
+7. Numb 05:18
+8. Torn 04:43  
+9. Nothing Is Erased 04:41 
+10. Still Walk Alone 04:44 
+11. These Scars 05:51 
+
+
+### "Glorious Collision" 2011, Progressive
+
+1. Leave It Behind Us 05:09
+2. You 06:23 
+3. Wrong 05:07 
+4. Frozen 04:57 
+5. Restoring The Loss 04:40 
+6. To Fit The Mold 05:20  
+7. Out Of Reach 03:40  
+8. The Phantom Letters 05:31  
+9. The Disease ... 04:10  
+10. It Comes From Within 04:22  
+11. Free 03:42  
+12. I'm Drowning Alone 04:11  
+13. ... And The Distance 03:47 
+14. ... And The Distance (Carina bonus track)
+
+### "Hymns for the Broken" 2014, Progressive
+
+1. The Awakening 01:42
+2. King of Errors 05:42
+3. A New Dawn 04:37
+4. Wake A Change 04:50
+5. Archaic Rage 06:28
+6. Barricades 04:59
+7. Black Undertow 05:03
+8. The Fire 04:12
+9. Hymns for the Broken 04:58
+10. Missing You 03:27
+11. The Grand Collapse 07:48
+12. The Aftermath 07:27
+
+
+### "The Storm Within" 2016, Progressive
+
+1. Distance  05:38   
+2. Passing Through  05:01 
+3. Someday  04:58    
+4. Astray  05:22    
+5. The Impossible  03:18  
+6. My Allied Ocean  04:06   
+7. In Orbit  05:38    
+8. The Lonely Monarch  05:28  
+9. The Paradox of the Flame  05:40  
+10. Disconnect  06:59    
+11. The Storm Within  06:15    
+12. Paranoid  (bonus)  
+
+
 
 ## Отношения с другими группами
 

@@ -1,18 +1,159 @@
 # Haemorrhage
 
-Дискография
-"Emetic Cult" 1995, Grindcore
-"Grume" 1996, Grindcore
-"Anatomical Inferno" 1998, Grindcore
-"Loathesongs" 2001, Grindcore
-"Morgue Sweet Home" 2002, Grindcore
-"Apology For Pathology" 2005, Grindcore
-"Haematology (The Singles Collection)" 2007, Grindcore
-"The Kill Sessions" 2007, Grindcore
-"Hospital Carnage" 2011, Grindcore
-"Punk Carnage (EP)" 2012, Grindcore
-"Live Carnage: Feasting on Maryland (Live)" 2013, Grindcore
-"We Are The Gore" 2017, Grindcore
+
+
+## Дискография
+
+### "Emetic Cult" 1995, Grindcore
+
+1. Necromantik (Prelude) / Uncontrollable Proliferation Of Neoplasm
+2. Decrepit Dejection
+3. Delacerate The Sweet Diabetic Diabolism
+4. Deranged For Loadsome
+5. Excavating The Iliac Fossa
+6. Grotesque Embriopathology
+7. Intravenous Molestation Of Obstructionist Arteries (O-Pus)
+8. Via Anal Introspection
+9.  Fermented Post-Mortem Disgorgement
+10. Cadaveric Metamorphose
+11.Anatomized
+12.Pernicious Dyseptic Inoculation
+13.Foctal Mincer
+14.Expectorating Pulmonary Mucu - Purulence
+
+Ana - Rhythmic Guitar
+Jose - Drums
+Luisma - Lead Guitar & Backing Vocals
+Ramon - Bass
+Lugubrious - Maligna Vox
+
+Recorded and mixed at El Jardin
+Parametrico Studio.
+All title written by HAEMORRHAGE.
+
+### "Grume" 1996, Grindcore
+
+1)Incinerator of cadaveric leftovers 
+2)Exquisite eschatology 
+3)Torrent like eventeration 
+4)Dissect, exhume, devour... 
+5)Putrescent necromorphism 
+6)Cartilageous pulped offals 
+7)Decom-posers 
+8)Fragments (Anatomical relics) 
+9)In nephritic blue 
+10)Ectopic eye 
+11)Intravenous molestation of obstructionist arteries(o-pus 2) 
+12)Rectovaginal fistula 
+13)Formaldehyde 
+14)Far beyond the forensic pathology 
+
+
+Recorded and mixed at GOREACTOR STUDIO (July '96-November '96) 
+All mu-sick decomposed by Haemorrhage (1994-1996) Lyrix by Luisma.
+
+### "Anatomical Inferno" 1998, Grindcore
+
+1)Enshrouded in putrilage 
+2)A cataleptic rapture 
+3)Surgery for the dead
+4)Treasures of anatomy 5)Necrotic garbage 
+6)Putritorium 
+7)Dawn in the rotting paradise 
+8)Aftertaste of putrefaction 
+9)Worminfested cavities 
+10)I'm a pathologist 
+11)Cirrhoetic liver distillation 
+12)Witness of forensic horror 
+13)Dying on a mass of chyme and rancid excrement 
+14)Set the morgue on fire 
+
+
+
+Recorded and mixed at Goreactor Studio (October'98)
+-Engineered by Moncho
+-All mu-sick decomposed by Haemorrhage (1997-1998)
+-All Gorepoetry was written by Luisma
+-Anatomical drawings by Luisma
+-Infernal design by Lucky
+
+### "Loathesongs" 2001, Grindcore
+
+1)Intro-Megaton (Defecation) 
+2)Vestiges of Earthly Remains (Defecation)
+3)Pyosified (Rotten to the Gore) (Carcass) 
+4)Premature autopsy (Entombed) 
+5)Disgorging Foetus
+6)Oozing Molten Gristle
+7)Dear uncle creepy (Impetigo) 
+8)Fascist pig (Suicidal Tendencies) 
+9)M.A.D. (Cryptic Slaughter) 
+10)Satanic masowhore (Impaled Nazarene) 
+11)Doctor doctor (UFO) 
+
+Recorded at Reactor Studio, March 2000
+Engineered and mixed by Moncho. 
+Produced by Haemorrhage.
+
+### "Morgue Sweet Home" 2002, Grindcore
+
+1) Mortuary Riot
+2) Oozing Molten Gristle
+3) Midnight Mortician
+4) Virulent Mass Necropsy
+5) Funeral Carnage
+6) Obnoxious (Surgeon of the Dead)
+7) Exhuming Impulse
+8) Unlock the Morgue
+9) Sublime Surgical Epitaph 
+10) Morgue Sweet Home
+11) Mangled Surgical Epitaph
+12) The Forensic Requiems 
+13) Dirge for the Sick
+14) Intravenous Molestation of Obstructionist Arteries (O-Pus IV)
+
+Recorded at Cube Studio – Madrid (Jan 11-21, 2002)
+Produced by Jose Angel de Alvaro & Haemorrhage.
+Engineered by Flor.
+All Music by Haemorrhage.
+All Lyrix by Luisma (1999-2001)
+
+
+Lugubrious – Maligna Voc
+Luisma – Guitar, Backing Vocals
+Ana – Guitar
+Ramon – Bass
+Rojas - Drums
+
+
+### "Apology For Pathology" 2005, Grindcore
+
+
+
+### "Haematology (The Singles Collection)" 2007, Grindcore
+
+
+
+### "The Kill Sessions" 2007, Grindcore
+
+
+
+### "Hospital Carnage" 2011, Grindcore
+
+
+
+### "Punk Carnage (EP)" 2012, Grindcore
+
+
+
+### "Live Carnage: Feasting on Maryland (Live)" 2013, Grindcore
+
+
+
+### "We Are The Gore" 2017, Grindcore
+
+
+
 
 ## Отношения с другими группами
 

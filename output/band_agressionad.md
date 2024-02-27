@@ -1,7 +1,13 @@
 # Agression AD
 
-Дискография
-"Forgotten Skeleton" 2004, Thrash
+
+
+## Дискография
+
+### "Forgotten Skeleton" 2004, Thrash
+
+
+
 
 ## Отношения с другими группами
 

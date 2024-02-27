@@ -1,13 +1,46 @@
 # Jucifer
 
-Дискография
-"Calling All Cars On The Vegas Strip" 1998, Metal
-"Lambs (EP)" 2001, Metal
-"I Name You Destroyer" 2002, Metal
-"War Bird (EP)" 2004, Metal
-"If Thine Enemy Hunger" 2006, Metal
-"L'Autrichienne" 2008, Metal
-"Throned In Blood" 2010, Metal
+
+
+## Дискография
+
+### "Calling All Cars On The Vegas Strip" 1998, Metal
+
+
+
+### "Lambs (EP)" 2001, Metal
+
+
+
+### "I Name You Destroyer" 2002, Metal
+
+
+
+### "War Bird (EP)" 2004, Metal
+
+
+
+### "If Thine Enemy Hunger" 2006, Metal
+
+
+
+### "L'Autrichienne" 2008, Metal
+
+
+
+### "Throned In Blood" 2010, Metal
+
+1. Throned In Blood
+2. Contempt
+3. Work Will Make Us Free
+4. Return Of The Native
+5. Disciples Of An Expanding Sun
+6. Hiroshima
+7. Rifles
+8. Good Provider
+9. Spoils To The Conqueror
+10. Armageddon
+
 
 ## Отношения с другими группами
 

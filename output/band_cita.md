@@ -1,8 +1,38 @@
 # CITA
 
-Дискография
-"Relapse Of Reason." 1995, Hard Rock
-"Heat Of Emotion" 1996, Hard Rock
+melodic hard rock
+
+## Дискография
+
+### "Relapse Of Reason." 1995, Hard Rock
+
+Everytime (I Close My Eyes) 
+Through The Years 
+Relapse Of Reason 
+Two Hearts 
+These Eyes 
+No Heroes 
+Stand Or Fall 
+Steal Another Fantasy 
+The Fall 
+Who Will You Run To 
+Changes 
+Silent Soldiers
+
+### "Heat Of Emotion" 1996, Hard Rock
+
+Far Behind 
+Heat Of Emotion 
+Life Goes On 
+Endless Summer 
+Livin' 4 Somebody Else 
+Fly Angel Fly 
+Miles Away 
+Say A Prayer 
+Can't We Make It 
+I'll Cry No More 
+Find My Way
+
 
 ## Отношения с другими группами
 

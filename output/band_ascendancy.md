@@ -1,6 +1,9 @@
 # Ascendancy
 
-Дискография
+Melodic death from St.Peterburg (Rus)
+
+## Дискография
+
 
 ## Отношения с другими группами
 

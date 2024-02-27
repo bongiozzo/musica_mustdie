@@ -1,12 +1,87 @@
 # Amoral
 
-Дискография
-"Wound Creations" 2004, Techno Death
-"Decrowning" 2005, Techno Death
-"Reptile Ride" 2007, Techno Death
-"Show Your Colors" 2009, Heavy Metal
-"Beneath" 2011, Heavy Metal
-"Fallen Leaves & Dead Sparrows" 2014, Heavy Metal
+
+
+## Дискография
+
+### "Wound Creations" 2004, Techno Death
+
+1. The Verge 01:47  
+2. Atrocity Evolution 06:13  
+3. Silent Renewal 02:23  
+4. Solvent 04:41  
+5. The Last Round 08:40  
+6. Other Flesh 05:42  
+7. Distract 03:42  
+8. Nothing Daunted (Gallows Pole Rock 'n Roll) 08:08  
+9. Languor Passage 06:10  
+10. Metamorphosis (Bonus Track) 05:07 
+
+
+Niko Kalliojarvi - vocals 
+Silver Ots - guitars
+Ben Varon - guitars
+Juhana Karlsson - drums
+Erkki Silvennoinen - bass
+
+### "Decrowning" 2005, Techno Death
+
+1. Showdown 06:09
+2. Lacrimal Gland 04:11
+3. Decrowning 04:35
+4. Tiebreaker 03:42
+5. Drug of Choice 02:52
+6. Denial 101 04:45
+7. Control Cancer 04:45
+8. Raptus 02:38
+9. Warp 02:16  
+10. Bleeder 05:06 
+
+### "Reptile Ride" 2007, Techno Death
+
+1. Leave Your Dead Behind 05:01
+2. Nervasion 04:28
+3. Hang Me High 03:11 
+4. Mute 04:32 
+5. Few and Far Between 05:44  
+6. Snake Skin Saddle 04:21  
+7. D-Drop Bop 03:08  
+8. Apocalyptic Sci-Fi Fun 05:40  
+9. Pusher 05:45 
+
+### "Show Your Colors" 2009, Heavy Metal
+
+1. Random Words 01:51  
+2. Release 05:56
+3. A Shade of Gray 04:10  
+4. Year of the Suckerpunch 05:04
+5. Perfection Design 03:59  
+6. Sex N' Satan 02:47  
+7. Song for the Stubborn 03:21  
+8. Vivid 04:03  
+9. Gave Up Easy 04:02  
+10. Last October 03:14  
+11. Exit 06:23 
+
+### "Beneath" 2011, Heavy Metal
+
+01. Beneath
+02. Wrapped in Barbwire
+03. Silhouette
+04. Things Left Unsaid
+05. (Won't Go) Home
+06. Closure
+07. Same Difference
+08. Hours of Simplicity
+09. Wastelands
+10. This Ever Ending Game
+11. No Future
+12. Of Silent Stares & Fire Lost
+
+### "Fallen Leaves & Dead Sparrows" 2014, Heavy Metal
+
+
+
 
 ## Отношения с другими группами
 

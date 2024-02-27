@@ -1,17 +1,121 @@
 # Incantation
 
-Дискография
-"Onward To Golgotha" 1992, Death Metal
-"Mortal Throne Of Nazarene" 1994, Death Metal
-"The Forsaken Mourning Of Angelic Anguish (EP)" 1997, Death Metal
-"Diabolical Conquest" 1998, Death Metal
-"The Infernal Storm" 2000, Death Metal
-"Blasphemy" 2002, Death Metal
-"Decimate Christendom" 2004, Death Metal
-"Primordial Domination" 2006, Death Metal
-"Blasphemous Cremation (EP)" 2008, Death Metal
-"Vanquish In Vengeance" 2012, Death Metal
-"Dirges Of Elysium" 2014, Death Metal
+Satanic brutal death metal
+
+## Дискография
+
+### "Onward To Golgotha" 1992, Death Metal
+
+1. Golgotha
+2. Devoured Death
+3. Blasphemous Cremation
+4. Rotting Spiritual Embodiment
+5. Unholy Massacre
+6. Entrantment Of Evil
+7. Christening The Afterbirth
+8. Immortal Cessation
+9. Profanation
+10.Deliverance Of Horrific Prophecies
+11.Eternal Torchure
+
+ Craig Pillard - Guitar,Vocals
+ Jim Roe - Drums
+ Ronny Deo - Bass
+ John McEntree - Lead Guitar
+
+All Songs Written By INCANTATION.
+Produced & Engineered By Steve Evetts.
+Recorded At Trax East Studios,Sept.-Nov.1991.
+Mixed In January `92.
+
+(p)&(c) 1992 RELAPSE Records
+
+### "Mortal Throne Of Nazarene" 1994, Death Metal
+
+1. Demonic Incarnate (Kemp/McEntee/Pillard) - 5:51 
+2. Emaciated Holy Figure (McEntee/Pillard) - 3:44 
+3. Iconoclasm of Catholicism (McEntee/Pillard) - 3:19 
+4. Essence Ablaze (McEntee/Pillard) - 3:23 
+5. Nocturnal Dominium (Kamp/McEntee/Pillard) - 5:57 
+6. Ibex Moon (McEntee/Pillard) - 4:34 
+7. Blissful Bloodshower (McEntee/Pillard) - :48 
+8. Abolishment of Immaculate Serenity (McEntee/Pillard) - 8:20 
+
+
+### "The Forsaken Mourning Of Angelic Anguish (EP)" 1997, Death Metal
+
+1. Shadows from the Ancient Empire (McEntee/Severn) 
+2. Lusting Congregation of Perpetual... (McEntee/Severn) 
+3. Triumph in Blasphemy (Interlude) (McEntee/Severn) 
+4. Forsaken Mourning of Angelic Anguish (McEntee/Severn) 
+5. Scream Bloody Gore (Death/Schuldiner) 
+6. Twisted Sacrilegious Journey into Our... (McEntee/Severn) 
+7. Outro 
+8. Ibex Moon [*] 
+9. Blasphemous Cremation [*] 
+10.Essence Ablaze [*] 
+11.Blissful Bloodshower [*] 
+
+
+### "Diabolical Conquest" 1998, Death Metal
+
+1. Impending Diabolical Conquest (McEntee/Severn) 
+2. Desecration (Of the Heavenly Graceful) (Corchardo/McEntee/Severn) 
+3. Disciples of Blasphemous Reprisal (McEntee/Severn) 
+4. Unheavenly Skies (Corchado/McEntee/Severn) 
+5. United in Repungence (McEntee/Severn) 
+6. Shadows of the Ancient Empire (McEntee/Severn) 
+7. Ethereal Misery (McEntee/Severn) 
+8. Unto Infinite Twilight/Majesty of Infernal (McEntee/Severn) 
+
+
+### "The Infernal Storm" 2000, Death Metal
+
+1. Anoint the Chosen (Yench) - 3:53 
+2. Extinguishing Salvation (Yench) - 4:07 
+3. Impetuous Rage (Yench) - 5:03 
+4. Sempiternal Pandemonium (Yench) - 6:18 
+5. Lustful Demise (Yench) - 5:14 
+6. Heaven Departed (Yench) - 7:32 
+7. Apocalyptic Destroyer of Angels (Yench) - 3:19 
+8. Nocturnal Kingdom of Demonic Enlightenment (McEntee) - 4:28 
+
+
+### "Blasphemy" 2002, Death Metal
+
+
+
+### "Decimate Christendom" 2004, Death Metal
+
+Decimate Christendom 
+Dying Divinity 
+Oath of Armageddon 
+Blaspheme the Sacraments 
+Merciless Tyranny 
+Horns of Eradication 
+Unholy Empowerment of Righteous Deprivation 
+Thorns of Everlasting Persecution 
+No Paradise Awaits 
+Eternal Darkness Under Conquered Skies 
+Feeble Existence 
+Exiling Righteousness (bonus track)
+
+### "Primordial Domination" 2006, Death Metal
+
+
+
+### "Blasphemous Cremation (EP)" 2008, Death Metal
+
+
+
+### "Vanquish In Vengeance" 2012, Death Metal
+
+
+
+### "Dirges Of Elysium" 2014, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

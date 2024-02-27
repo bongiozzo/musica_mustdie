@@ -1,7 +1,20 @@
 # Swordfish
 
-Дискография
-"Age Of Exploration" 2008, Thrash
+
+
+## Дискография
+
+### "Age Of Exploration" 2008, Thrash
+
+1. Survival Concept   
+2. Of Triumph And Loss   
+3. There's No Gain Without Pain   
+4. Crematoria   
+5. Berserkgang   
+6. Thrash Talk   
+7. Snatching Your Fate   
+8. Victims 
+
 
 ## Отношения с другими группами
 

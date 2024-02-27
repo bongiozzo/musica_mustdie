@@ -1,13 +1,146 @@
 # Mactatus
 
-Дискография
-"In Sorrow (demo)" 1993, Black Metal
-"Sorgvinter (demo)" 1996, Black Metal
-"Blot" 1997, Black Metal
-"A Dark Journey [EP]" 1998, Black Metal
-"Provenance of Cruelty" 1999, Black Metal
-"The Complex Bewitchment" 2000, Black Metal
-"Suicide" 2002, Black Metal
+Norwegian Black Metal from Telemark
+
+## Дискография
+
+### "In Sorrow (demo)" 1993, Black Metal
+
+1. In Sorrow
+2. Abuse
+3. Blaspheming God
+4. Waiting
+
+&copy; 1993 Mact&auml;tus
+
+### "Sorgvinter (demo)" 1996, Black Metal
+
+1. Intro
+2. Sorgvinter (06:06)
+3. Hat og Kulde (05:21)
+4. Et Kaldt Rike (06:37)
+5. Vandring (06:27)
+
+&copy; 1996 Mact&auml;tus
+
+### "Blot" 1997, Black Metal
+
+1. Black Poetry (7:18)
+2. Sorgvinter (6:06)
+3. Knust Kristendom (3:54)
+4. Et Kaldt Rike (6:37)
+5. I Trollriket (02:40)
+6. Vandring (06:27)
+7. Nar Et Kristent Liv Er Fortapt (04:00)
+8. Hat Og Kulde (05:21)
+
+
+&copy; 1997 Embassy Productions
+&copy; 2000 Napalm Records
+
+### "A Dark Journey [EP]" 1998, Black Metal
+
+
+
+### "Provenance of Cruelty" 1999, Black Metal
+
+1. Draped in Shadows of Satan's Pride (4:58)
+2. King of the Dark Side (5:11)
+3. Sleepless Souls (5:02)
+4. The Emperor's Trial (5:14)
+5. En Trone Vevd av Tid (6:19)
+6. S&oslash;nn av Torden (6:14)
+7. Dark Journey (6:47)
+8. Provenance of Cruelty (5:43)
+
+
+Line-Up:
+Istar - Bass
+Ty - Guitar
+Mjolne - Drums
+Hate Rodvitnesson - Vocal
+Gaut - Guitar
+Forn - Synth
+
+"Provenance of Cruelty" was recorded at Akkerhaugen Lydstudio, Norway, the month of August and September 1998.
+Mixed and engineered to Torbj&oslash;rn Akkerhaugen.
+Produced by Torbj&oslash;rn Akkerhaugen, Mact&auml;tus and Samoth.
+Mastered by Tom Kv&aring;lsvoll at Strype Audio.
+
+Cover by Petagno and logo by the Riddick Brothers.
+Layout by Mact&auml;tus and Napalm Records.
+Photos by L. Christiansen, T. Christiansen & Fredrik Pedersen.
+
+All music and lyrics by Mact&auml;tus.
+except lyrics on "Draped in Shadows of Satan's Pride" by Nocturno Culto
+and lyrics on "Sleepless Souls" by Tony Abrahamsen.
+
+Female vocals by Kathrine Abrahamsen.
+Clean male vocals on "Sleepless Souls" by Tony Abrahamsen.
+
+&copy; 1999 Napalm Records
+
+### "The Complex Bewitchment" 2000, Black Metal
+
+1. Ornament of Pettiness (4:19)
+2. Another Dimension (4:02)
+3. The Passage (To the Kingdom of No Return)  (4:57)
+4. Speak the Word of the Winds (5:30)
+5. With Excellence... (4:11)
+6. Iron Handed (5:08)
+7. Complexity in Vain (5:08)
+8. Dance of Might (5:02)
+
+
+Line-up:
+Hate Rodvitnesson: Vocals
+Ty: Guitars
+Forn: Synth & Piano
+Gaut: Guitars
+Mjolne: Drums
+Mefistofeles: Bass
+
+"The Complex Bewitchment" was recorded at Akkerhaugen Lydstudio, Norway, October - December 1999.
+
+All music & lyrics by Mact&auml;tus.
+Mixed & engineered by Torbj&oslash;rn Akkerhaugen.
+Produced by Torbj&oslash;rn Akkerhaugen and Mact&auml;tus.
+Mastered by Tom Kv&aring;lsvoll at Strype Audio.
+
+Artwork, design & lettering by Tor S&oslash;reide Design.
+Photography by Petter Hegre.
+Bandphotos by Trine Mikkelsen.
+Logo by Riddick Brothers.
+
+&copy; 2000 Napalm Records
+
+### "Suicide" 2002, Black Metal
+
+1. Dead and Alive (01:48)
+2. Epilogue - The Tale of the Psychotic (03:34)
+3. The Whisperers (03:37)
+4. Sanctity in Murder (04:40)
+5. Language of Disloyalty (03:51)
+6. Bringer of Silence (03:33)
+7. To Distance Death from Life (04:57)
+8. Measurement of Discipline (04:40)
+9. Concluding Act of Violence (05:17)
+10. Broken Dreams of Death (05:29)
+
+
+Hate Rodvitnesson - Arranger, Screams, Voices
+Forn - Keyboards, Piano
+Mefistofeles - Bass
+Ty - Guitar (Lead & Rhythm)
+Mjolne - Drums
+Gaut - Guitar (Rhythm)
+
+Mact&auml;tus - Arranger, Producer
+Lars Sz&ouml;ke - Producer
+Trine Mikkelsen - Photography
+
+&copy; 2002 Napalm Records
+
 
 ## Отношения с другими группами
 

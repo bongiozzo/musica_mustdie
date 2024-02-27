@@ -1,9 +1,29 @@
 # Woslom
 
-Дискография
-"Time To Rise" 2010, Thrash
-"Evolustruction" 2013, Thrash
-"A Near Life Experience" 2016, Thrash
+
+
+## Дискография
+
+### "Time To Rise" 2010, Thrash
+
+
+
+### "Evolustruction" 2013, Thrash
+
+
+
+### "A Near Life Experience" 2016, Thrash
+
+1. Underworld Of Aggression
+2. A Near Life Experience
+3. Brokenbones
+4. Lapses Of Sin
+5. Redemption
+6. Unleash Your Violence
+7. Lords Of War
+8. Total Speed Thrash
+9. Thrasher's Return
+
 
 ## Отношения с другими группами
 

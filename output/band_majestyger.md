@@ -1,10 +1,73 @@
 # Majesty (Ger)
 
-Дискография
-"Keep It True" 2001, Heavy Metal
-"Sword & Sorcery" 2002, Heavy Metal
-"Reign In Glory" 2003, Heavy Metal
-"Hellforces" 2006, Heavy Metal
+
+
+## Дискография
+
+### "Keep It True" 2001, Heavy Metal
+
+1. "Keep It True"   
+2. "Strong As Steel"
+3. "Hail To Majesty"
+4. "Son Of Metal"
+5. "Into The Night"
+6. "Metal Force"
+7. "We Will Ride"
+8. "Last Revolution
+
+ 
+
+
+### "Sword & Sorcery" 2002, Heavy Metal
+
+1. "Sword & Sorcery"
+2. "Fields Of War"
+3. "Heavy Metal" 
+4. "Epic War"
+5. "Ride Silent!"
+6. "Fist Of Steel"
+7. "Aria Of Bravery"
+8. "Metal To The Metalheads"
+
+Vinyl Bonustrack: "Ride And Fight"
+
+ 
+
+
+### "Reign In Glory" 2003, Heavy Metal
+
+
+
+### "Hellforces" 2006, Heavy Metal
+
+1. The Blessings; 
+2. Hellforces; 
+3. Dance With The Demon; 
+4. Sons Of A New Millennium; 
+5. Heavy Metal Desire; 
+6. March For Victory; 
+7. Like A Raptor; 
+8. Guardians Of The Dragon Grail; 
+9. Freedom Heart; 
+10. Fight Forever; 
+11. Nowhere Man; 
+12. Metal Law 2006 *
+
+All songs written by Tarek Maghary
+Produced by Stefan Kaufmann
+Engineered by Stefan Kaufmann
+Recorded and mixed at Roxx Studio, Cologne, Germany
+
+Tarek Maghary - Vocals, Keyboards
+Bjorn Daigger - Rhythm Guitars
+Marcus Bielenberg - Bass
+Michael Grater - Drums
+Rolf Munkes - Lead and Rhythm Guitars
+
+Additional Vocals on* by Udo Dirkschneider
+Female Vocals by Johanna Mott
+Piano by Tom Graber
+
 
 ## Отношения с другими группами
 

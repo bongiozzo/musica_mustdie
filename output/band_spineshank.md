@@ -1,9 +1,82 @@
 # Spineshank
 
-Дискография
-"Strictly Diesel" 1998, Nu Metal
-"The Height Of Callousness" 2000, Nu Metal
-"Self Destructive Pattern" 2003, Nu Metal
+Energetic, harsh, slightly industrial nu-metal from Los Angeles, CA, USA
+
+## Дискография
+
+### "Strictly Diesel" 1998, Nu Metal
+
+01. Intake 
+02. Stovebolt 
+03. Shinebox 
+04. Where We Fall 
+05. Detached 
+06. Slipper 
+07. 40 Below 
+08. Strictly Diesel 
+09. Grey 
+10. 28 
+11. While My Guitar Gently Weeps 
+12. If It Breathes 
+13. Mend 
+14. Stain 
+
+(p)(c)1998 Roadrunner Records
+
+
+Spineshank:
+Johnny Santos	vocals    
+Mike Sarkisyan 	guitars    
+Rob Garcia 		bass    
+Tom Decker 		drums
+
+### "The Height Of Callousness" 2000, Nu Metal
+
+01. Asthmatic 
+02. The Height Of Callousness 
+03. Synthetic 
+04. New Disease 
+05. (Can't Be) Fixed 
+06. Cyanide 2600 
+07. Play God 
+08. Malnutrition 
+09. Seamless 
+10. Negative Space 
+11. Transparent 
+
+(p)(c)2000 Roadrunner Records
+
+
+Spineshank:
+Johnny Santos	vocals    
+Mike Sarkisyan 	guitars    
+Rob Garcia 		bass    
+Tom Decker 		drums
+
+### "Self Destructive Pattern" 2003, Nu Metal
+
+01. Violent Moodswings 
+02. Slavery 
+03. Smothered 
+04. Consumed (Obsessive Compulsive) 
+05. Beginning Of The End 
+06. Forgotten 
+07. Violent Moodswings 
+08. Slavery 
+09. Smothered 
+10. Consumed (Obsessive Compulsive) 
+11. Beginning Of The End 
+12. Forgotten 
+
+(p)(c)2003 Roadrunner Records
+
+
+Spineshank:
+Johnny Santos - vocals    
+Mike Sarkisyan - guitars    
+Rob Garcia - bass    
+Tom Decker - drums
+
 
 ## Отношения с другими группами
 

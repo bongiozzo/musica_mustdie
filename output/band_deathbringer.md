@@ -1,7 +1,22 @@
 # Deathbringer
 
-Дискография
-"Homo Divisus" 2007, Techno Death
+
+
+## Дискография
+
+### "Homo Divisus" 2007, Techno Death
+
+1. Prisoner 06:09  
+2. Keeper Of Pain 09:36  
+3. I Am What I Am 07:16  
+4. Castigatio 06:29  
+5. Aversion 06:13  
+6. Labores Semper Tecum 05:43  
+7. Aisthetes (Instrumental) 04:40  
+8. Black Pilgrim 14:23  
+9. No Mean City (Nazareth Cover) 08:01
+10. Flesh And The Power It Holds (Death Cover) 08:21 
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,48 @@
 # Paris
 
-Дискография
-"The Devil Made Me Do It" 1990, Rap Metal
-"Guerrilla Funk" 1994, Rap Metal
+
+
+## Дискография
+
+### "The Devil Made Me Do It" 1990, Rap Metal
+
+1.  Intro
+2.  Scarface Groove
+3.  This Is A Test
+4.  Panther Power
+5.  Break The Grip Of Shame
+6.  Warning
+7.  Ebony
+8.  Bruntal
+9.  On The Prowl
+10.  The Devil Made Me Do It
+11.  The Hate That Hate Made
+12.  Mellow Madness
+13.  I Call Him Mad
+14.  Escape From Babylon
+15.  Wretched
+16.  Break The Grip Of Shame
+17.  The Devil Made Me Do It (Mix)
+
+(P)&c 1990
+
+### "Guerrilla Funk" 1994, Rap Metal
+
+1.  Prelude
+2.  It's Real
+3.  One Time Fd'Yamino
+4.  Guerrilla Funk
+5.  Black & Blues
+6.  Bring It To Ya
+7.  Whatcha See ?
+8.  40 Ounces And A Fool
+9.  Back It The Days
+10.  Guerrilla Funk (Real Mix)
+11.  It's Real (Extended)
+12.  Shouts Out
+
+(P)&c 1994
+
 
 ## Отношения с другими группами
 

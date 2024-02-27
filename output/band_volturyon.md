@@ -1,8 +1,35 @@
 # Volturyon
 
-Дискография
-"Blood Cure" 2008, Death Metal
-"Coordinated Mutilation" 2011, Death Metal
+
+
+## Дискография
+
+### "Blood Cure" 2008, Death Metal
+
+1. Naked Blood 03:30
+2. Forever Suffer 03:50
+3. Blood Cure 03:53
+4. Unorthodox Spawn Deleted 02:49
+5. Phantasm 03:16
+6. Invert Birth 03:31 
+7. Initiate The Killing 03:49 
+8. Drenched In Human Sludge 03:33  
+9. Addicted To Cadaverine 02:48  
+10. The Way Of The Slay 02:39 
+
+### "Coordinated Mutilation" 2011, Death Metal
+
+1. Bloodsoaked Solution 03:06  
+2. Savage Gluttony 03:52  
+3. Eight Corner of Slaughter 02:42  
+4. Euphoria Through Execution 03:27  
+5. Ravaged 03:07  
+6. Coordinated Mutilation 03:55  
+7. Abide Under Eminence 03:03  
+8. Sadistic Molestation 03:28  
+9. Sanguinolency 03:00  
+10. Intense Convulsions 04:58 
+
 
 ## Отношения с другими группами
 

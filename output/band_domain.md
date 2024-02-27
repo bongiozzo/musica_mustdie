@@ -1,13 +1,181 @@
 # Domain
 
-Дискография
-"Lost In The City" 1987, Hard Rock
-"Before The Storm" 1989, Hard Rock
-"Crack In The Wall" 1991, Hard Rock
-"One Million Lightyears From Home" 2001, Hard Rock
-"The Artefact" 2002, Hard Rock
-"The Sixth Dimension" 2003, Hard Rock
-"The Last Days of Utopia" 2005, Hard Rock
+
+
+## Дискография
+
+### "Lost In The City" 1987, Hard Rock
+
+(1)            Lost In The City   
+(2)            The Run   
+(3)            We Got Love   
+(4)            Sign From Your Heart   
+(5)            Waiting For Love   
+(6)            Riding Through The Night   
+(7)            Rolin'   
+(8)            Love Child   
+(9)            On The Line   
+(10)       Back From Hell 
+
+  
+
+PRODUCER: Cliff Jackson 
+
+LINE UP: 
+Bernie Kolbe (Lead Vocals, Bass) 
+Cliff Jackson (Lead Guitars, Vocals) 
+Volker Sassenberg (Keyboards, Vocals) 
+Freddy Diedrichs (Drums) 
+Axel Ritt (Guitar, Backing Vocals) 
+
+
+### "Before The Storm" 1989, Hard Rock
+
+(1)            Caught In The Flame   
+(2)            Beg, Steal Or Borrow   
+(3)            I Don't Wanna Die   
+(4)            Edge Of The Knife   
+(5)            Keep Running   
+(6)            Hideaway   
+(7)            All For One   
+(8)            Lost Without Trace   
+(9)            Harden My Heart 
+(10)          I Can See The Light   
+(11)          Hearts Of Stone (CD bonus track) 
+
+
+PRODUCER: Albert Boekholt 
+
+LINE UP: 
+Bernie Kolbe (Lead Vocals, Bass) 
+Cliff Jackson (Guitars, Vocals) 
+Axel Ritt (Guitars, Vocals) 
+Volker Sassenberg (Keyboards, Vocals) 
+Thorsten Preker (Drums) 
+
+
+### "Crack In The Wall" 1991, Hard Rock
+
+(1)            Five Way Switch   
+(2)            Hard Road To Midnight   
+(3)            Crack In The Wall   
+(4)            Run For Your Life   
+(5)            Ode For The Children   
+(6)            Into The Night   
+(7)            Juicy Lucy   
+(8)            Hold On Tomorrow   
+(9)            East Of Eden   
+(10)       Prisoners 
+
+  
+
+PRODUCER: Kalle Trapp and DOMAIN 
+
+LINE UP:
+Bernie Kolbe (Lead Vocals, Bass) 
+Cliff Jackson (Lead and Rhythm Guitars, Vocals) 
+Axel Ritt (Lead and Rhythm Guitars, Vocals) 
+Markus Schmitz (Drums) 
+
+
+### "One Million Lightyears From Home" 2001, Hard Rock
+
+(1)            One Million Lightyears From Home   
+(2)            Trail Of Fools   
+(3)            Can't Stand (What You Do To Me)   
+(4)            Wings Of Destiny   
+(5)            Move On   
+(6)            Price Of Time   
+(7)            Fumble Fingers   
+(8)            New Horizon   
+(9)            When It Comes To Love   
+(10)       Blistered Soul   
+(11)       Gary-Boy 
+  
+
+PRODUCER: Axel Ritt
+LINE UP:
+Axel Ritt (Guitar, Backing Vocals) 
+Carsten "Lizard" Schulz (Lead Vocals) 
+Dirk Beckers (Bass, Backing Vocals) 
+Erdmann Lange (Keyboards, Backing Vocals) 
+Edgar Schmidt (Drums) 
+
+
+### "The Artefact" 2002, Hard Rock
+
+1)       Discover The Artefact    
+2)       Charade    
+3)       Mystery Stone    
+4)       Day Tripper    
+5)       Strangers From The Heart    
+6)       Blackhole Visions    
+7)       Seasons (The Circles Around The Moon) 
+8)       Don't Count On Love
+9)       Spirit Of The Sun
+10)    Almost Eden
+11)    Downtown Babylon
+12)    Heart On The Line
+13)    Experience XTC
+
+  
+
+PRODUCER: Axel Ritt
+LINE UP:
+Axel Ritt (Guitar, Backing Vocals) 
+Carsten "Lizard" Schulz (Lead Vocals) 
+Dirk Beckers (Bass) 
+Erdmann Lange (Keyboards) 
+Edgar Schmidt (Drums) 
+
+
+### "The Sixth Dimension" 2003, Hard Rock
+
+(1)          World Gone Crazy
+
+(2)          Your Favourite Curse
+
+(3)          King's Tears
+
+(4)          One Perfect Moment
+
+(5)          Burning Red
+
+(6)          Warpath
+
+(7)          Time Machine
+
+(8)          Skylighter
+
+(9)          Young Hearts Can Fly
+
+(10)    Last Exit Moon
+
+(11)    Talk To The Wind
+
+(12)    Rats In The Cellar (Bonus Track)
+
+(13)    Charade (Bonus Clip)
+
+ 
+
+PRODUCER: Axel Ritt 
+
+LINE UP:
+Carsten "Lizard" Schulz (Vox) 
+
+Axel "Ironfinger" Ritt (Lead and Rhythm Guitars, Backing Vocals)
+
+Erdmann "Erdi" Lange (Keyboards, Piano)
+
+Sandro Lo Guidice (Bass)
+
+Stefan K&#246;llner (Drums)
+
+### "The Last Days of Utopia" 2005, Hard Rock
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,18 +1,234 @@
 # Machine Head
 
-Дискография
-"Burn My Eyes" 1994, Thrash
-"Old (EP)" 1995, Thrash
-"The More Things Change..." 1997, Thrash
-"The Burning Red" 1999, Hardcore
-"Supercharger" 2001, Hardcore
-"Hellalive" 2003, Hardcore
-"Through the Ashes of Empires" 2004, Hardcore
-"The Blackening" 2007, Hardcore
-"Locust (single)" 2011, Thrash
-"Unto The Locust" 2011, Thrash
-"Bloodstone & Diamonds" 2014, Thrash
-"Is There Anybody Out There? (single)" 2016, Hardcore
+Intense Thrash & Seattle Wave
+
+## Дискография
+
+### "Burn My Eyes" 1994, Thrash
+
+1.  Davidian
+2.  Old
+3.  A Thousand Lifs
+4.  None But My Own
+5.  The Rage To Overcome
+6.  Death Church
+7.  A Nation On Fire
+8.  Blood For Blood
+9.  I'm Your God Now
+10.Real Eyes. Realize. Real Lies
+11.Block
+
+ Robb Flynn - Vocals,Guitar
+ Logan Mader - Guitar
+ Adam Duce - Bass,Backing Vocals
+ Chris Kontos - Drums
+
+Produced By Colin Richardson
+Recorded And Engineered By Vincent Wojno
+Co-Produced By Machine Head
+Recorded At Fantasy Studios Berkeley, CA.
+Mixed By Colin Richardson & Vincent Wojno
+Mixed At Scream Studios, Studio City CA.
+Mastered By Eddy Schreyer At Disk, CA.
+
+(P)&(C) 1994 ALL BLACKS B.V. Records
+
+### "Old (EP)" 1995, Thrash
+
+1. Old
+2. Alan's On Fire *
+3. Davidian (Live)
+4. Hard Times (Live) *
+
+*Previously Unreleased Track.
+All Songs Written By MACHINE HEAD.
+Except * By POISON IDEA.
+Produced By Colin Richardson & MACHINE HEAD.
+
+Robb Flynn - Vocals / Guitars
+Logan Mader - Guitars
+Adam Duce - Bass,Back Vocals
+Chris Kontos - Drums
+
+(P)&(C) 1995 ROADRUNNER Records
+
+### "The More Things Change..." 1997, Thrash
+
+1.  Ten Ton Hammer
+2.  Take My Scars
+3.  Struck A Nerve
+4.  Down To None
+5.  The Frontlines
+6.  Spine
+7.  Bay Of Pigs
+8.  Violate
+9.  Blistering
+10. Blood Of The Zodiac
+[11].My Misery
+
+
+Robb Flynn - Vocals, Guitar
+Logan Mader - Guitar
+Adam Duce - Bass, Backing Vocals
+Davfe McClain - Drums
+
+Produced & Mixed By Colin Richardson.
+Engineered By Vincent Wojno.
+Recorded At Plant Sausalito, CA Berkeley, CA and Hyde Street, San Francisco, CA.
+
+(P)(C) 1997 ROADRUNNER Records
+
+### "The Burning Red" 1999, Hardcore
+
+01. Enter The Phoenix
+02. Desire To Fire
+03. Nothing Left
+04. The Blood, The Sweat, The Tears
+05. Silver
+06. From This Day
+07. Exhale The Vile
+08. Message In A Bottle
+09. Devil With The King's Card
+10. I Defy
+11. Five
+12. The Burning Red
+
+Produced by Ross Robinson
+Mixed by Terry Date
+Engineered by Chuck Johnson
+Second Engineers: Rob Agnello & Kevin Bosley
+Recorded at Indigo Ranch, Malibu, CA.
+Mixed at Larrabee Sound Studios, W. Hollywood, CA.
+Assistant Engineer: Ted Regier
+Mastered by Ted Jensen at Sterling Sound, New York, NY.
+A&R: Monte Conner
+Cover and band photography by Dean Karr
+Cover illustration/package design and digital imaging by T42Design
+
+
+
+### "Supercharger" 2001, Hardcore
+
+01. The Declaration
+02. Bulldozer 
+03. White-Knuckle Blackout!
+04. Crashing Around You 
+05. Kick You When You're Down
+06. Only The Names
+07. All In Your Head
+08. American High
+09. Brown Acid
+10. Nausea
+11. Blank Generation
+12. Trephination
+13. Deafening Silence 
+14. Supercharger
+15. Hole in the Sky*
+16. Ten Fold*
+17. The Blood, The Sweat, The Tears (live)*
+18. Desire to Fire (live)*
+
+* - bonus 
+
+
+
+### "Hellalive" 2003, Hardcore
+
+01. Bulldozer
+02. The Blood, The Sweat, The Tears
+03. Ten Ton Hammer
+04. Old
+05. Crashing Around You
+06. Take My Scars
+07. I'm Your God Now
+08. None But My Own
+09. From This Day
+10. American High
+11. Nothing Left
+12. The Burning Red
+13. Davidian
+14. Supercharger
+
+### "Through the Ashes of Empires" 2004, Hardcore
+
+1. Imperium 06:41 
+2. Bite The Bullet 03:22  
+3. Left Unfinished 05:46 
+4. Elegy 03:55  
+5. In The Presence Of My Enemies 07:08  
+6. Days Turn Blue To Gray 05:29  
+7. Vim 05:13  
+8. Seasons Wither 06:18  
+9. All Falls Down 04:29  
+10. Wipe The Tears 03:55  
+11. Descend the Shades of Night 07:45
+
+### "The Blackening" 2007, Hardcore
+
+1. Clenching the Fists of Dissent 10:35  
+2. Beautiful Mourning 04:49  
+3. Aesthetics of Hate 06:34  
+4. Now I Lay Thee Down 05:34  
+5. Slanderous 05:17  
+6. Halo 09:03  
+7. Wolves 09:04  
+8. A Farewell to Arms 10:12
+
+### "Locust (single)" 2011, Thrash
+
+1. Locust
+
+### "Unto The Locust" 2011, Thrash
+
+1. I Am Hell (Sonata In C#) 
+2. Be Still And Know 
+3. Locust 
+4. This Is The End 
+5. Darkness Within 
+6. Pearls Before The Swine 
+7. Who We Are
+
+
+Adam Duce - Bass 
+Robb Flynn - Guitars, Vocals 
+Dave McClain - Drums 
+Phil Demmel - Guitars 
+
+ 
+Song 1 - I Am Hell (Sonata in C#) is made up of three songs:
+ 1. Sangre Sani (Blood Saint)
+ 2. I Am Hell
+ 3. Ashes to the Sky
+ 
+Limited Digi-Pack Edition incl. 3 Bonus Tracks and DVD (Documentary - Making of the Album)
+8. The Sentinel (Judas Priest cover) (Digi-Pack Bonus) 05:13
+9. Witch Hunt (Rush cover) (Digi-Pack Bonus) 04:46
+10. Darkness Within (Acoustic) (Digi-Pack Bonus) 05:05
+
+Japanese bonus track
+11. "Halo" (Live) 
+Metal Hammer special fan pack bonus track
+8. "Locust" (Live) 
+
+### "Bloodstone & Diamonds" 2014, Thrash
+
+01. Now We Die
+02. Killers & Kings
+03. Ghosts Will Haunt My Bones
+04. Night Of Long Knives
+05. Sail Into The Black
+06. Eyes Of The Dead
+07. Beneath The Silt
+08. In Comes The Flood
+09. Damage Inside
+10. Game Over
+11. Imaginal Cells (instrumental)
+12. Take Me Through The Fire
+
+### "Is There Anybody Out There? (single)" 2016, Hardcore
+
+1. Is There Anybody Out There?  04:32 
+
 
 ## Отношения с другими группами
 

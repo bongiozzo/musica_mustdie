@@ -1,7 +1,24 @@
 # Rotting Head
 
-Дискография
-"Backwardness" 1994, Death Metal
+
+
+## Дискография
+
+### "Backwardness" 1994, Death Metal
+
+1. Lying Oneself 03:11  
+2. I`m a Fanatic 03:44  
+3. Infanticide 03:12  
+4. Hoffnungsvolle Jugend 01:11  
+5. A.I.D.S. 04:07  
+6. Face Reality 02:04  
+7. Survive Slaves 03:19  
+8. Confidence 03:06  
+9. Like Machines 04:06  
+10. No - rmal 01:38  
+11. Programmes 04:07  
+12. Moving Backward 02:22 
+
 
 ## Отношения с другими группами
 

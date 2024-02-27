@@ -1,9 +1,51 @@
 # Mystery
 
-Дискография
-"Angelo Perlepes Mystery" 1992, Hard Rock
-"Tales of the Unexpected" 1999, Hard Rock
-"Fatal Passion" 2002, Hard Rock
+Angelo Perlepes group
+
+## Дискография
+
+### "Angelo Perlepes Mystery" 1992, Hard Rock
+
+
+
+### "Tales of the Unexpected" 1999, Hard Rock
+
+Tracklist
+
+ 1. Prelude - (1.22)
+ 2. Tales... of the Unexpected - (3.54)
+ 3. Lady Evil - (3.42)
+ 4. (Feels Like) I've Done It Before - (4.36)
+ 5. Worship the Night - (4.01)
+ 6. The Hawk and the Wolf - (5.31)
+ 7. Fools Overture - (1.27)
+ 8. Witche's Cry - (3.54)
+ 9. The Final Battle - (6.31)
+10. Judgement Day - (4.06)
+11. Woman without Shadow - (4.02)
+
+### "Fatal Passion" 2002, Hard Rock
+
+Intro 
+Never Ending Flame 
+Fatal Passion 
+(Under the) Spell of the Spotlight 
+The Final Sign 
+Demon's Night (the Unholy) 
+1999 
+Eastern Star 
+Broken Sword 
+Fatal Passion - Finale 
+
+
+
+Dimitris Sirgiannis -v 
+Angelo Perpeles -g -b -v 
+Takis Avramopoulos -b -v 
+John Christopulos -d 
+
+
+
 
 ## Отношения с другими группами
 

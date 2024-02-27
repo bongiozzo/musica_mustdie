@@ -1,9 +1,49 @@
 # Suicide Silence
 
-Дискография
-"The Cleansing" 2008, Metalcore
-"No Time To Bleed" 2009, Metalcore
-"The Black Crown" 2011, Metalcore
+
+
+## Дискография
+
+### "The Cleansing" 2008, Metalcore
+
+1. Revelations
+2. Unanswered
+3. Hands Of A Killer
+4. The Price Of Beauty
+5. The Fallen
+6. No Pity For A Coward
+7. The Disease
+8. Bludgegned To Death
+9. Girl Of Glass
+10. In A Photograph
+11. Eyes Sewn Shut
+12. Green Monster
+
+All music by SUICIDE SILENCE
+All lyrics written by Mitch Lucker
+Produced and engineered by John Travis
+Recorded at King Size Soundlabs, CA
+Mixed by Tue Madsen at Antfarm Studio, Denmark
+
+
+### "No Time To Bleed" 2009, Metalcore
+
+
+
+### "The Black Crown" 2011, Metalcore
+
+1. Slaves to Substance
+2. O.C.D.
+3. Human Violence
+4. You Only Live Once
+5. Fuck Everything
+6. March to the Black Crown
+7. Witness the Addiction (featuring Jonathan Davis of Korn) 
+8. Cross-Eyed Catastrophe
+9. Smashed (featuring Frank Mullen of Suffocation) 
+10. The Only Thing That Sets Us Apart
+11. Cancerous Skies
+
 
 ## Отношения с другими группами
 

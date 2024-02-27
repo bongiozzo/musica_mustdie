@@ -1,8 +1,25 @@
 # Subterranean Masquerade
 
-Дискография
-"Temporary Psychotic State" 2004, Metal
-"Suspended Animation Dreams" 2005, Ambient
+
+
+## Дискография
+
+### "Temporary Psychotic State" 2004, Metal
+
+Temporary Psychotic State
+Observation through Metamorphosis
+
+### "Suspended Animation Dreams" 2005, Ambient
+
+S.A.D
+Wolf Among Sheep
+No Place Like Home
+Kind of a Blur
+The Rock N Roll Preacher
+Six Strings to cover fear
+Awake
+X
+
 
 ## Отношения с другими группами
 

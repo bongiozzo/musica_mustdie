@@ -1,9 +1,44 @@
 # Torture Killer
 
-Дискография
-"For Maggots To Devour" 2003, Death Metal
-"Swarm!" 2006, Death Metal
-"Sewers" 2009, Death Metal
+
+
+## Дискография
+
+### "For Maggots To Devour" 2003, Death Metal
+
+
+
+### "Swarm!" 2006, Death Metal
+
+1. Swarm! 
+2. Forever Dead 
+3. A Funeral For the Masses 
+4. Multiple Counts of Murder 
+5. Obsessed With Homicide 
+6. Sadistic 
+7. Cannibal Gluttony 
+8. I Killed You 
+9. Heading Towards the Butchery 
+10. A Violent Scene of Death 
+
+Line-Up: 
+Chris Barnes-Vocals 
+Jari Laine -Guitars 
+Tuomas Karppinen-Guitars 
+Kim Torniainen-Bass 
+Tuomo Latvala-Drums
+
+### "Sewers" 2009, Death Metal
+
+1. Crypts 04:21
+2. I Bathe In Their Blood 04:11 
+3. The Art Of Impalement 03:48
+4. By Their Corpse 03:38 
+5. Coffins 03:21 
+6. Rats Can Sense The Murder 02:48 
+7. Scourging At The Pillar 03:48 
+8. Sewers 03:14 
+
 
 ## Отношения с другими группами
 

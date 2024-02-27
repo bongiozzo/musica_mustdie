@@ -1,11 +1,108 @@
 # Psycroptic
 
-Дискография
-"The Isle of Disenchantment" 2001, Death Metal
-"The Scepter of the Ancients" 2003, Death Metal
-"Symbols of Failure" 2006, Death Metal
-"Ob (Servant)" 2008, Techno Death
-"The Inherited Repression" 2012, Techno Death
+Australian Brutal Death
+
+## Дискография
+
+### "The Isle of Disenchantment" 2001, Death Metal
+
+Beneath the Ground We Dwell
+Carnival of Vulgarity
+Condemned by Discontent
+Isle of Disenchantment
+Netherworld Reality 
+Of Dull Eyes Borne
+Psycroptipath
+Sword of Uncreation
+The Labyrinth
+
+### "The Scepter of the Ancients" 2003, Death Metal
+
+The Color of Sleep
+Battling the Misery of Organon
+Lacertine Forest
+Psycrology
+Skin Coffin
+Cruelty Incarnate
+The Valley of Winds Breath and Dragons Fire
+A Planetary Discipline
+The Scepter of Jaar-Gilon
+
+### "Symbols of Failure" 2006, Death Metal
+
+1. Alpha Breed 
+2. Missionaries of a Future to Come
+3. Merchants of Deceit
+4. Minions: The Fallen
+5. Repairing the Dimensional Cluster
+6. Epoch of the Gods
+7. Our Evolutionary Architecture
+8. An Experiment in Transience
+9. Cleansing a Misguided Path
+
+### "Ob (Servant)" 2008, Techno Death
+
+1. Ob(Servant)
+2. A Calculated Effort
+3. Slaves Of Nil
+4. The Shifting Equilibrium
+5. Removing The Common Bond
+6. Horde in Devolution
+7. Blood Stained Lineage
+8. Immortal Army Of One
+9. Initiate
+
+Cameron Grant (bass)
+Joe Haley (guitars)
+David Haley (drums)
+Jason Peppiatt (Vocals)
+
+DRUMS RECORDED AT RED PLANET STUDIOS MARCH 2008
+GUITARS AND BASS RECORDED AT THE CRAWL SPACE APRIL/MAY 2008
+VOCALS RECORDED AT RED PLANET STUDIOS MAY 2008
+ENGINEERED BY JOE HALEY
+PRODUCED BY JOE & PSYCROPTIC
+MIXED AND MASTERED BY LOGAN MADER FOR DIRTY ICON PRODUCTIONS, JUNE 2008
+ALL MUSIC I1Y I'SYCROI'TIC
+LYRICS AND CONCEPTS BY DAVID HALEY
+ADDITIONAL ELECTRONICA BY THE AMENTA (WWW.THEAMENTA.COM)
+ARTWORK BY RAYMOND SWAN LAND
+LAYOUT BY SCOTT MELLORTHINKTANKDESIGN.COM.AU
+PHOTO BY BRADY @ STYGIAN DESIGN
+PSYCROPTIC USE &. HIGHLY RECOMMEND THE FOLLOWING COMPANIES;
+YAMAHA DRUMS, PAISTE, AXIS, AQUARIAN, ESP, MUSICMAN, ERNIE BALL, DEAN MARKLEY, DRAVEN SHOES & CLOTHING, SIKWORLD CLOTHING 
+CO NTACT/PROPAGANDA:
+WWW.PSYCROPTlC.COM
+WWW.MYSPACF.-COM/PSYCROPT IC
+PSYCROPTTCtaiIOrMAlL.COM
+POSTAL ADDRESS: 70 LOCHNER ST, WEST HOBART,
+TASMANIA 7000 AUSTRALIA
+MANAGEMENT: BRAD WESSON FOR SOUNDWORKS MANAGEMENT
+- SOUNDWORKSl@BIGPOND.COM
+AUSTRALIAN BOOKING: BRAD WESSO.N -
+SOUNDWORKS2@BIGPOND.COM
+NORTH AMERICAN BOOKING: ASH AVILDSEN FORTKO -
+ASHAVILDSEN@TKOCO.COM
+EUROPEAN BOOKING: MARCO WALZEL FORAVOCADO BOOKING
+- MARCO@AVOCADO-BOOKING.COM
+
+### "The Inherited Repression" 2012, Techno Death
+
+1. Carriers of the Plague 
+2. Forward to Submission 
+3. Euphorinasia 
+4. The Throne of Kings 
+5. Unmasking the Traitors 
+6. Become the Cult 
+7. From Scribe to Ashes 
+8. Deprivation 
+9. The Sleepers Have Awoken 
+
+
+Produced, engineered and mixed by Joe Haley.
+Mastering by Alan Douches.
+The album was recorded at Joe Haley's home studio. 
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,13 @@
 # Zix
 
-Дискография
-"Tides of the Final War" 2016, Heavy Metal
+
+
+## Дискография
+
+### "Tides of the Final War" 2016, Heavy Metal
+
+
+
 
 ## Отношения с другими группами
 

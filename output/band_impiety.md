@@ -1,7 +1,27 @@
 # Impiety
 
-Дискография
-"Asateerul Awaleen" 1996, Black Metal
+
+
+## Дискография
+
+### "Asateerul Awaleen" 1996, Black Metal
+
+1. Intromancy: Dzuul Jaheem
+2. Anal-Madonna
+3. Divine Hutamahan Frostfuck
+4. Hymnvocation Of Nazarethian
+5. Magick = Consecration Sodomy
+6. Ceremonial NecroChrist
+7. Bismishyaithan
+8. Blasphemyth The Seventh Goatspawn
+
+Shyaithan - Diamonic Profanities
+Iblyss - Imperial Blackbattery
+Leprophiliac Ren - Gehennic Bass
+Al-Marhum Abyydos - Hellharp
+
+(p)(c) 1996 SHIVADARSHANA Records
+
 
 ## Отношения с другими группами
 

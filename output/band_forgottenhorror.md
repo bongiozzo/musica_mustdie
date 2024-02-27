@@ -1,7 +1,20 @@
 # Forgotten Horror
 
-Дискография
-"The Serpent Creation" 2011, Black Metal
+
+
+## Дискография
+
+### "The Serpent Creation" 2011, Black Metal
+
+1. Destroyer of Time	 
+2. Poison of God	 
+3. For Thy Crimson Glory	 
+4. Burial Ground Prayer	 
+5. She Who Dwells Beyond Death	 
+6. The Serpent Creation	 
+7. Hannibal	 
+8. Dreams of Scipio
+
 
 ## Отношения с другими группами
 

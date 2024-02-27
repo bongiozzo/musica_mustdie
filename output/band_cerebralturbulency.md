@@ -1,12 +1,137 @@
 # Cerebral Turbulency
 
-Дискография
-"As Gravy" 1997, Grindcore
-"Forces Closing Down" 1999, Grindcore
-"Impenetrable" 2001, Grindcore
-"Germ of Error" 2003, Grindcore
-"Crash Test" 2006, Grindcore
-"Segregace K 0" 2008, Grindcore
+Very extremal noisy harsh grindcore with the elements of hardcore (like Dismembered Fetus)
+
+## Дискография
+
+### "As Gravy" 1997, Grindcore
+
+1. ...To The Agony (Intro) 02:05  
+2. A Hunter Of The Children 01:48  
+3. Grind - Hockey 02:36  
+4. Inborn Blindness 02:44  
+5. Dying Fetus 01:57  
+6. Worse Than With The Wire To The Eye 03:15  
+7. Born With The Crap 03:20  
+8. The World Of Joys And Dreams 03:04  
+9. Choice Aims To The Responsibility For Own Decision 01:46  
+10. Fever 39,7 03:28  
+11. Outro 00:41  
+12. Chemical And Bacterial Analysis Of Cadaver * 03:14  
+13. Painful Memories * 02:54 
+
+### "Forces Closing Down" 1999, Grindcore
+
+1. Red Hammer 01:20  
+2. Warning! Jehova! 00:39  
+3. The Second Forever 02:06  
+4. Space Is Inside You 01:00  
+5. TV Children 00:55  
+6. Kruger From Havirov 01:03  
+7. Oldest Lie 00:50  
+8. My Fear, Your Flesh 01:16  
+9. Corrupt Shit 00:55  
+10. Ill-Neglect (BRUTAL TRUTH cover) 02:22  
+11. Smash The Nazi Shitheads 02:14  
+12. Tell Them Who They Are 01:14  
+13. Kind Of Work, Nothing More... 00:48  
+14. I Feel Gore (The Wait For Death) 01:05  
+15. Millenium 00:44  
+16. I`m Afraid Of You World 00:55  
+17. A Same Side 00:53  
+18. Enough (AGATHOCLES cover) 02:19  
+19. Why? 01:15  
+20. Cover Yourself And Live Accordance The Others 01:08  
+21. Unknown Idea 01:32  
+22. I Hate Your Views 01:21  
+23. Kill The Fucking Hypocrisy In Yourself 00:59  
+24. After A Long-Term Mental Crisis 01:17  
+25. Radiohelium Hit (ANAL CUNT cover) 01:34  
+26. Forces Closing Down 00:54 
+
+### "Impenetrable" 2001, Grindcore
+
+01. Feeble Minds Of The Nation 
+02. Different World 
+03. Yes! Legitimate 
+04. Same Choices 
+05. Life Is About Knowledge 
+06. My Inner Mate 
+07. Fear Of Indifferrence 
+08. The Best In The End 
+09. You Are Your Own Limit 
+10. Throw Your Mask Again 
+11. Harsh Future 
+12. Adios A Las Corridas 
+13. For Money But From The Heart 
+14. Don't Let Her Consume! 
+15. Frenzied Imagination 
+16. Loss Of Identity 
+17. Brutes And Animals 
+18. Development 
+19. You're A Poor Wretch 
+20. Kokos 
+21. Harmless Citizen 
+22. Feeling Of Blame 
+23. We Are Also People 
+24. Clean-Shaven Brains 
+25. The More - The Higher 
+26. Suicide 
+
+(c)&(p) 2002 Khaaranus Productions/Cerebral Turbulency
+
+### "Germ of Error" 2003, Grindcore
+
+1. Jump from the fire 00:56
+2. Only one 01:08 
+3. On the edge of tolerance 02:05
+4. It in itslef 01:36
+5. Ensystemated 00:34 
+6. Germ of error 02:13
+7. The strach na vruble 01:27
+8. Sportorico 01:05
+9. Obscure meaing of infinity 01:15
+10. Maybe there 01:12
+11. Mushroom hell 01:28
+12. Impartial 01:22
+13. The others 01:55 
+
+### "Crash Test" 2006, Grindcore
+
+1. TearMeInto 02:20  
+2. Evil Machinegun 02:57  
+3. Strojovka 02:17  
+4. Der Gehirnsturm 02:41  
+5. Vasekino 02:40  
+6. Si Mesise 01:53  
+7. FFF Anilo Rak 01:44  
+8. Lessor 1x, 2x, 3x More 02:58  
+9. Copy Culture 02:57  
+10. Total Agyzavar 02:53  
+11. Final Ensemble 01:59  
+12. Bajaja 02:15  
+13. Lion Ferdi 04:02 
+
+### "Segregace K 0" 2008, Grindcore
+
+1. !dobrэ Den! 00:56  
+2. Co Nli Nenн Rovno, Po Toni Je Nli Hovno! 02:05  
+3. 2v1 01:48  
+4. MimonzleЉtvБn 01:22  
+5. I M N Z B R - Б Б Н E E 01:46  
+6. ObuЉek Z Levhartic 01:33  
+7. Panzer Faust Corpse 01:46  
+8. Love Zonk 02:10  
+9. Bбba Jбba 00:51  
+10. Body P-Arts 01:25  
+11. San Tarzan 02:03  
+12. Metyl Age 01:47  
+13. Cerebral Turbulency 01:46  
+14. Tik-Tak-Tik-Tak-Tik-Tak 01:43  
+15. Bordelized 01:27  
+16. Pocґhali Do Patnбcti 02:06  
+17. Segregace K Nule 00:53 
+
 
 ## Отношения с другими группами
 

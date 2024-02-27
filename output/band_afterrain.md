@@ -1,8 +1,45 @@
 # After Rain
 
-Дискография
-"Beyond the Underground" 2012, Gothic
-"Hammered to the Ice" 2013, Gothic
+
+
+## Дискография
+
+### "Beyond the Underground" 2012, Gothic
+
+1. The Visioner  06:29      
+2. Beyond the Underground  04:33      
+3. Reverse Side of My Heart  06:16      
+4. Wide Awake  07:22      
+5. Children of the Revolution  04:26      
+6. Save the Dead  03:38      
+7. Your Farewell  05:52 
+
+
+
+
+### "Hammered to the Ice" 2013, Gothic
+
+1. Hammered to the Ice  05:49      
+2. Moment of the Truth  05:25     
+3. When the Night Falls  04:17      
+4. Lost Wisdom (Burzum cover)  05:05      
+5. My Red Tears  05:57      
+6. Under the Cross of God  05:44      
+7. After All  06:14 
+
+
+Vlasta Zahradnik - Bass  
+Ivo Placek - Drums  
+Tomas Travnicek - Vocals  
+Radek Popel - Vocals  
+Tomas Kohout - vocals, harmonies  
+Jana Zahradnikova - Vocals  
+Petra Doskova - Keyboards  
+Vaclav Votruba - Guitars, Programming  
+Jakub Vondrka - Guitars  
+Paces - Guitars (acoustic)  
+
+
 
 ## Отношения с другими группами
 

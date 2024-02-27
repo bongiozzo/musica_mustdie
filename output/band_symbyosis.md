@@ -1,8 +1,38 @@
 # Symbyosis
 
-Дискография
-"Crisis" 2001, Death Metal
-"The Fluid" 2001, Death Metal
+French melodic techno-death metal
+
+## Дискография
+
+### "Crisis" 2001, Death Metal
+
+1.       Opening Act
+2.       To Decant Souls
+3.       The Quest Of The Dolphin
+4.       Ephemeral Life Conductor 
+5.       Self Mutation
+6.       Kahl Palyn
+7.       Acrid Nebula
+8.       Triton (The Light Guide)
+9.       The Obscure Periplus Of Thanos
+10.     Der Waltz Von Gehangen
+11.     The Epileptic Modern Artistic Non Believer
+12.     Little Princess
+13.     Synthesis
+
+
+
+
+### "The Fluid" 2001, Death Metal
+
+1.       To Decant Souls
+2.       The Quest
+   Crusades
+3.       Part 1 - Faith
+4.       Part 2 - Thibalt
+5.       Part 3 - Angels
+
+
 
 ## Отношения с другими группами
 

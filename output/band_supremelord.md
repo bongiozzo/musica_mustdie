@@ -1,7 +1,20 @@
 # Supreme Lord
 
-Дискография
-"X99.9" 2004, Death Metal
+
+
+## Дискография
+
+### "X99.9" 2004, Death Metal
+
+1. X99.9 kill your enemies 
+2. Nail him 
+3. Death Metal Beast 
+4. Terrorzone 
+5. Flashback 
+6. Hegemony5 
+7. Dark heresies 
+8. Traitors corpse.
+
 
 ## Отношения с другими группами
 

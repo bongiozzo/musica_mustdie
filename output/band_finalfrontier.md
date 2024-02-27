@@ -1,7 +1,23 @@
 # Final Frontier
 
-Дискография
-"High Tension Wire" 2005, Hard Rock
+
+
+## Дискография
+
+### "High Tension Wire" 2005, Hard Rock
+
+01. High Tension Wire
+02. Two Different Worlds
+03. Angel Of The Lake
+04. Beauty And The Beast
+05. Hearts On Fire
+06. Hollywood Drama
+07. Sunset At Dawn
+08. Something More Than This
+09. Who`s Going To Love You Now
+10. Listen To Your Heart
+11. Let Me Be The One (bonus)
+
 
 ## Отношения с другими группами
 

@@ -1,10 +1,65 @@
 # Lividity
 
-Дискография
-"The Age of Clitoral Decay" 2000, Deathcore
-"...'Til Only the Sick Remain" 2002, Deathcore
-"Used, Abused, And Left for Dead" 2006, Deathcore
-"To Desecrate and Defile" 2009, Deathcore
+
+
+## Дискография
+
+### "The Age of Clitoral Decay" 2000, Deathcore
+
+1. Oozing Vaginal Discharge 03:51
+2. The Urge to Splurge 01:35
+3. Chamber of Bone 04:27
+4. Anal Action Wife 04:38
+5. Stench of Virginity 04:56
+6. Food 03:55
+7. Dismembering Her Lifeless Corpse 05:01
+8. Bloody Pit of Horror (Impetigo Cover) 03:09
+9. Sodomy Ritual 03:06 
+
+### "...'Til Only the Sick Remain" 2002, Deathcore
+
+1. T.L.C. (Tight 'Lil Cunt) 04:22
+2. Coated With My Semen 03:23 
+3. Unrelenting Homicidal Obsession 03:31
+4. A Woman's Place is On My Face 03:00
+5. Second Cumming (Pussy Lover Part 2) 04:29
+6. Snack Size Tits 00:33
+7. Anal Autopsy 04:49
+8. Fetal Scabs 02:26
+9. Conception Through Ingestion 03:50 
+
+### "Used, Abused, And Left for Dead" 2006, Deathcore
+
+1. Raped for Rent 03:00 
+2. Gore Epitomite 00:47  
+3. Seven19 02:58
+4. Deviant Pleasures 02:28
+5. The Cumming of the Trilogy (Pussy Lover Pt. 3) 03:34
+6. Exhibition of Carnage 02:33
+7. Used, Abused and Left for Dead 01:33
+8. Hero of Dementia 03:09 
+9. No Time for Lube 02:51
+10. Stench of Virginity 03:04
+11. The Urge to Splurge 00:47 
+12. Bound in Skin 02:23 
+13. Phallic Beat Down 08:40 
+
+### "To Desecrate and Defile" 2009, Deathcore
+
+1. Sword Of Sodomy 04:39
+2. Adapting The Flesh 01:37  
+3. Surround By Disgust 04:21
+4. Dismantle The Carcass 01:38
+5. Cadaver Dogs 03:09
+6. Mass Genocide 04:54
+7. Gut The Slut Before I Fuck 02:25 
+8. Funerary Chambers 03:29
+9. Engorged With Blood (To Fill You With My Semen) 01:32
+10. Orgasmic Flesh Feed 05:25
+11. Wie Krieger Sterben (Blood-Cover) 03:44 
+12. Roman Whores (Blood-Cover) 01:31
+13. Inner Fetal Dismemberment 03:15 
+
 
 ## Отношения с другими группами
 

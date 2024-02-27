@@ -1,9 +1,52 @@
 # Twilight Guardians
 
-Дискография
-"Tales Of The Brave" 2000, Power Metal
-"Wasteland" 2004, Power Metal
-"Sin Trade" 2006, Power Metal
+Power Metal from Finland
+
+## Дискография
+
+### "Tales Of The Brave" 2000, Power Metal
+
+01 Eternal Glory 00:56  
+02 Land Of The Kings 03:24  
+03 Wings Of The Gods 03:55  
+04 Angel Without Wings 04:00  
+05 Just Let Me 05:27  
+06 Running Wild 04:55  
+07 Snowfall 04:45  
+08 Last Of My Kind 04:37  
+09 Night Of The Black Swan 06:01  
+10 Forgotten Land 08:41  
+11 Gods Of Time 04:48  
+12 Twilight Guardians 04:37 
+
+
+Recorded at Viaborg, Helsinki, Finland in August 1999 at Seawolf studios.
+Produced by Hannu Leiden 
+
+
+### "Wasteland" 2004, Power Metal
+
+
+
+### "Sin Trade" 2006, Power Metal
+
+1. Through The Stars 
+2. Wanderer 
+3. Skin To Skin 
+4. Still 
+5. My Spoiled Reign 
+6. Never Alone 
+7. Room Of Shadow And Light 
+8. Flawless 
+9. Inside 
+
+Line-Up: 
+Vesa Virtanen – Vocals 
+Carl-Johan Gustafsson – Guitar 
+Mikko Tеng – Bass 
+Henri Suominen – Drums 
+Jari Pailamo - Keyboards
+
 
 ## Отношения с другими группами
 

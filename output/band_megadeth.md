@@ -1,30 +1,493 @@
 # Megadeth
 
-Дискография
-"Killing Is My Business... And Business Is Good!" 1985, Speed Metal
-"Peace Sells... But Who's Buying?" 1986, Speed Metal
-"So Far, So Good... So What ?" 1988, Thrash
-"Rust in Peace" 1990, Thrash
-"Countdown to Extinction" 1992, Thrash
-"Youthanasia" 1994, Thrash
-"Hidden Treasures" 1995, Thrash
-"Cryptic Writings" 1997, Thrash
-"Risk" 1999, Thrash
-"Capitol Punishment: The Megadeth Years" 2000, Thrash
-"The World Needs A Hero" 2001, Thrash
-"Killing Is My Business... And Business Is Good! (deluxe edition)" 2002, Thrash
-"Rude Awakening (live)" 2002, Thrash
-"Still Alive... and Well?" 2002, Thrash
-"The System Has Failed" 2004, Thrash
-"Back To The Start (compilation)" 2005, Thrash
-"United Abominations" 2007, Thrash
-"Endgame " 2009, Thrash
-"Public Enemy No. 1 (single)" 2011, Thrash
-"Th1rt3en" 2011, Thrash
-"Super Collider" 2013, Heavy Metal
-"Countdown To Extinction: Live" 2013, Thrash
-"Fatal Illusion (single)" 2015, Thrash
-"Dystopia" 2016, Thrash
+ex-Metallica, but it is better
+
+## Дискография
+
+### "Killing Is My Business... And Business Is Good!" 1985, Speed Metal
+
+1. Last Rites / Loved To Deth
+2. Killing Is My Business...And Business Is Good!
+3. Skull Beneath The Skin
+4. These Boots ...
+5. Rattlehead
+6. Chosen Ones
+7. Looking Down The Cross
+8. Mechanix
+
+ Dave Mustaine - Lead Guitar,Vocal,Piano
+ David Ellefson - Lead Guitar
+ Chris Poland - Bass Guitar,Back-Up Vocal
+ Gar Samuelson - Drums,Tympani (Rattlehead)
+
+(p)&(c) 1985 COMBAT Records
+
+### "Peace Sells... But Who's Buying?" 1986, Speed Metal
+
+1. Wake Up Dead
+2. The Conjuring
+3. Peace Sells
+4. Devils Island
+5. Good Mourning / Black Friday
+6. Bad Omen
+7. I Ain`t Superstitious
+8. My Last Words
+
+ Dave Mustaine - Lead Guitar,Vocal
+ David Ellefson - Bass Guitar
+ Chris Poland - Lead Guitar
+ Gar Samuelson - Drums
+
+(p)&(c) 1986 CAPITOL Records Inc. COMBAT
+
+### "So Far, So Good... So What ?" 1988, Thrash
+
+1. Into The Lungs Of Hell
+2. Set The World Afire
+3. Anarchy In U.K.
+4. Mary Jane
+5. 502
+6. In My Darkest
+7. Liar
+8. Hook In Mouth
+
+ Dave Mustaine - Lead Rhytm & Acoustic Guitar,Vocal
+ David Ellefson - Bass Guitar,Back-Up Vocal
+ Jeff Joung - Lead,Rhytm & Acoustic Guitars
+ Chuck Behler - Drums & Percussion
+
+(p)&(c) 1988 CAPITOL Records Inc.
+
+
+### "Rust in Peace" 1990, Thrash
+
+1. Holy Wars...The Punishment Due
+2. Hangar 18
+3. Take No Prisoners
+4. Five Magics
+5. Poison Was The Cure
+6. Lucretia
+7. Tornado Of Souls
+8. Dawn Patrol
+9. Rust In Peace...Polaris
+
+ Dave Mustaine - Guitar,Vocal
+ David Ellefson - Bass Guitar,Back-Up Vocal
+ Marty Friedman - Guitar
+ Nick Menza - Lead Drums,Back-Up Vocal
+
+(p)&(c) 1990 CAPITOL Records Inc.
+
+
+### "Countdown to Extinction" 1992, Thrash
+
+1.  Skin O' My Teeth
+2.  Symphony Of Destruction
+3.  Architecture Of Aggression
+4.  Foreclosure Of A Dream
+5.  Sweating Bullets
+6.  This Was My Life
+7.  Countdown To Extinction
+8.  High Speed Dirt
+9.  Psychotron
+10.Captive Honour
+11.Ashes In Your Mouth
+
+Dave Mustaine - Lead & Rhythm Guitar, Lead Guitars
+David Ellefson - Bass Guitars, Backing Vocals
+Marty Friedman - Lead, Rhythm & Acoustic Guitar, Backing Vocals
+Nick Menza - Drums, Backing Vocals
+
+Produced By Max Norman
+
+(p)&(c) 1992 CBS Records
+
+### "Youthanasia" 1994, Thrash
+
+1. Reckoning Day.
+2. Train Of Consequences.
+3. Addicted To Chaos.
+4. A Tout Le Monde.
+5. Elysian Fields.
+6. The Killing Road.
+7. Blood Of Heroes.
+8. Family Tree.
+9. Youthanasia.
+10. I Thougt I New It All.
+11. Black Curtains.
+12. Victory.
+
+(c)&(p)1994 CAPITOL RECORDS, Inc.
+
+DAVE MUSTEIN – vocals, guitars
+MARTY FREEDMAN – giutars
+NICK MENZA – drums
+DAVID ELEFSON – bass
+
+Produced by Max Norman & Dave Mustein for Zeus Produce.
+Max Norman appeares courtesy of On Yer Bike Ltd. Mixed by Max Norman & Dave Mustein. Mastered by Bob 
+Ludwig at Gateway Mastering. Assistant engineer: Mike Tacci. Second assistant engineer & dram technician: Bruce 
+Jacoby. Guitar technician: Michael Kaye. Harmonica on tracks 2 and 5 by Jimmie Wood.
+Recorded in Phoenix at Fat Planet in Hangar 18.
+All songs written by Megadeth & arranged by Megadeth & Max Norman.
+
+### "Hidden Treasures" 1995, Thrash
+
+1. No More Mr.Nice Guy
+2. Breakpoint
+3. Go To Hell
+4. Anqry Again
+5. 99 Ways To Die
+6. Paranoid
+7. Diadems
+8. Problems
+
+ Dave Mustaine - Lead & Rhythm Guitar, Lead Guitars
+ David Ellefson - Bass Guitars, Backing Vocals
+ Marty Friedman - Lead, Rhythm & Acoustic Guitar, Backing Vocals
+ Nick Menza - Drums, Backing Vocals
+
+(1) By ALICE COOPER.
+(6) By BLACK SABBATH.
+(8) By SEX PISTOLS.
+Produced By Max Norman & Dave Mustaine.
+Mixed By Max Norman & Dave Mustaine.
+Recorded In Phoenix At Fat Planet In Hangar 18.
+
+(P)&(C) 1995 CAPITOL Records
+
+### "Cryptic Writings" 1997, Thrash
+
+1. Trust.
+2. Almost Honest.
+3. Use The Man.
+4. Mastermind.
+5. The Disintegrators.
+6. I'll Get Even.
+7. Sin.
+8. A Secret Place.
+9. Have Cool, Will Travel.
+10. She – Wolf.
+11. Vortex.
+12. FFF.
+
+(p)&©1997 CAPITOL RECORDS, Inc.
+
+DAVE MUSTEIN – vocals, guitars
+MARTY FREEDMAN – giutars
+NICK MENZA – drums
+DAVID ELEFSON – bass
+
+### "Risk" 1999, Thrash
+
+Megadeth - Risk (Capitol Records, 1999)
+
+Dave Mustaine: vocals, guitars
+Marty Friedman: guitars
+David Ellefson: bass guitars, backup vocals
+Jimmy DeGrasso: drums
+
+1. Insomnia (4:43)
+2. Prince Of Darkness (6:26)
+3. Enter The Arena (0:52)
+4. Crush 'Em (4:57)
+5. Breadline (4:23)
+6. The Doctor Is Calling (5:40)
+7. I'll Be There (4:19)
+8. Wanderlust (5:21)
+9. Ecstasy (4:28)
+10. Seven (5:00)
+11. Time: The Beginning (3:04)
+12. Time: The End (2:26)
+
+### "Capitol Punishment: The Megadeth Years" 2000, Thrash
+
+1. Kill The King (3:43)
+2. Dread & The Fugitive Mind (4:23)
+3. Crush 'Em (4:59)
+4. Use The Man (4:35)
+5. Almost Honest (4:02)
+6. Trust (5:11)
+7. A Tout Le Monde (4:27)
+8. Train Of Consequences (3:26)
+9. Sweating Bullets (5:03)
+10. Symphony Of Destruction (4:02)
+11. Hangar 18 (5:14)
+12. Holy Wars... The Punishment Due (6:36)
+13. In My Darkest Hour (6:16)
+14. Peace Sells (4:04) 
+
+
+Dave Mustaine: vocals, guitars
+Al Pitrelli: guitars
+David Ellefson: bass guitars, backup vocals
+Jimmy DeGrasso: drums
+
+
+
+
+
+### "The World Needs A Hero" 2001, Thrash
+
+1. Disconnect (5:20)
+2. The World Needs A Hero (3:52)
+3. Moto Psycho (3:06)
+4. 1000 Times Goodbye (6:25)
+5. Burning Bridges (5:20)
+6. Promises (4:28)
+7. Recipe For Hate. . . Warhorse (5:18)
+8. Losing My Senses (4:40)
+9. Dread And The Fugitive Mind (4:25)
+10. Silent Scorn (1:42)
+11. Return To Hangar (3:59)
+12. When (9:13)
+
+
+
+
+Dave Mustaine: vocals, guitar
+Al Pitrelli: guitar, backing vocals
+David Ellefson: bass
+Jimmy DeGrasso: drums
+
+
+
+### "Killing Is My Business... And Business Is Good! (deluxe edition)" 2002, Thrash
+
+01. Last Rites/Loved To Death 
+02. Killing Is My Business...And Business Is Good! 
+03. Skull Beneath The Skin 
+04. Rattlehead 
+05. Chosen Ones 
+06. Looking Down The Cross 
+07. Mechanix 
+08. Last Rites/Loved To Death (demo version) 
+09. Skull Beneath The Skin (demo version) 
+10. Killing Is My Business...And Business Is Good! (demo version) 
+11. Mechanix (demo version)
+
+
+
+### "Rude Awakening (live)" 2002, Thrash
+
+
+
+### "Still Alive... and Well?" 2002, Thrash
+
+Live Tracks...
+01.- Time/Use the Man (6:27)
+02.- Conjuring (5:26)
+03.- In My Darkest Hour (5:29)
+04.- Sweating Bullets (4:43)
+05.- Symphony of Destruction (5:24)
+06.- Holy Wars (8:51) 
+From "The World Needs a Hero"...
+07.- Moto Psycho (3:05)
+08.- Dread and the Fugitive Mind (4:24)
+09.- Promises (4:26)
+10.- The World Needs a Hero (3:52)
+11.- Burning Bridges (5:20)
+12.- Return to Hangar (4:00)
+
+
+Produced by Dave Mustaine
+Co-produced by Bill Kennedy
+Metal-Is, 2002
+
+
+Dave Mustaine: vocals, guitar
+Al Pitrelli: guitar, backing vocals
+David Ellefson: bass
+Jimmy DeGrasso: drums
+
+This cd features never released live tracks (taken from the same one out of the two shows as for 'Rude Awakening', the Web Theater in Phoenix, Arizona November 17, 2001) and a selection of previously released studio tracks from 'The World Needs a Hero'.
+
+
+### "The System Has Failed" 2004, Thrash
+
+1.  Blackmail the Universe 
+2.  Die Dead Enough 
+3.  Kick the Chair 
+4.  The Scorpion 
+5.  Tears In A Vial 
+6.  I Know Jack 
+7.  Back In the Day 
+8.  Something I'm Not 
+9.  Truth Be Told 
+10.  Of Mice And Men 
+11. Shadow Of Death
+12. My Kingdom
+
+### "Back To The Start (compilation)" 2005, Thrash
+
+1. Holy Wars...The Punishment Due
+2. In My Darkest Hour
+3. Peace Sells
+4. Sweating Bullets
+5. Angry Again
+6. A Tout Le Monde
+7. Trust
+8. Kill The King
+9. Symphony Of Destruction
+10. Mechanix (2002 Remix)
+11. Train Of Consequences
+12. Wake Up Dead
+13. Hangar 18
+14. Dread And The Fugitive Mind
+15. Skin O' My Teeth
+16. She-Wolf
+17. Prince Of Darkness
+(TRT: 78:15)
+
+Limited Edition Greatest Hits CD/DVD: DVD tracklist
+1. "Kill The King" Mega-Mix video (New video, compiled from clips from Megadeth's top music videos)
+2. 'Megadeth Live' intro screen / Prince Of Darkness
+3. Holy Wars...The Punishment Due
+4. In My Darkest Hour
+5. Hangar 18
+6. Sweating Bullets
+7. Symphony Of Destruction
+8. Peace Sells
+9. Preview for Arsenal Of Megadeth (forthcoming 2-DVD Megadeth release)
+(TRT: 39:09)
+
+### "United Abominations" 2007, Thrash
+
+1. Sleepwalker 05:53  
+2. Washington Is Next! 05:19 
+3. Never Walk Alone... A Call To Arms 03:54  
+4. United Abominations 05:35 
+5. Gears of War 04:25 
+6. Blessed Are the Dead 04:02  
+7. Pray for Blood 03:49  
+8. A Tout le Monde (Set Me Free) 04:11 
+9. Amerikhastan 03:43  
+10. You're Dead 03:18  
+11. Burnt Ice 03:47 
+
+
+Dave Mustaine - Guitars, Vocals 
+Glen Drover - Guitars 
+James Lomenzo - Bass 
+Shawn Drover - Drums 
+
+Guest appearance:
+Christina Scabbia (Lacuna Coil) - vocals on "A Tout le Monde (Set Me Free)"
+
+Japanese bonus track:
+12. Out on the Tiles (Led Zeppelin cover)
+
+Special edition bonus tracks:
+13. Black Swan
+14. The Bodies Left Behind
+15. Special Live Track
+
+### "Endgame " 2009, Thrash
+
+1. Dialectic Chaos   
+2. This Day We Fight!   
+3. 44 Minutes   
+4. 1,320   
+5. Bite The Hand That Feeds   
+6. Bodies Left Behind   
+7. Endgame   
+8. The Hardest Part Of Letting Go... Sealed With A Kiss   
+9. Headcrusher 
+10. How the Story Ends   
+11. Nothing Left To Lose 
+
+
+Dave Mustaine - Vocals, Guitars
+Chris Broderick - Guitars 
+James Lomenzo - Bass 
+Shawn Drover - Drums
+ 
+The CD was recorded at the band's brand new, self-built studio in San Marcos,
+California — Vic's Garage — which was named after the legendary and iconic Vic
+Rattlehead character.  
+
+
+### "Public Enemy No. 1 (single)" 2011, Thrash
+
+1. Public Enemy No. 1  04:23
+
+### "Th1rt3en" 2011, Thrash
+
+01. Sudden Death
+02. Public Enemy No. 1
+03. Whose Life (Is It Anyways?)
+04. We The People
+05. Guns, Drugs & Money
+06. Never Dead
+07. New World Order
+08. Fast Lane
+09. Black Swan
+10. Wrecker
+11. Millennium Of The Blind
+12. Deadly Nightshade
+13. 13
+
+
+### "Super Collider" 2013, Heavy Metal
+
+01. Kingmaker
+02. Super Collider
+03. Burn
+04. Built For War
+05. Off The Edge
+06. Dance In The Rain
+07. Beggining Of Sorrow
+08. The Blackest Crow
+09. Forget To Remember
+10. Don’t Turn Your Back…
+11. Cold Sweat (Thin Lizzy cover) 
+
+### "Countdown To Extinction: Live" 2013, Thrash
+
+01. Trust
+02. Hangar 18
+03. Public Enemy
+04. Skin O’ My Teeth
+05. Symphony Of Destruction
+06. Architecture Of Aggression
+07. Foreclosure Of A Dream
+08. Sweating Bullets
+09. This Was My Life
+10. Countdown To Extinction
+11. High Speed Dirt
+12. Psychotron
+13. Captive Honour
+14. Ashes In Your Mouth
+15. She Wolf
+16. Peace Sells
+17. Holy Wars...The Punishment Due
+
+### "Fatal Illusion (single)" 2015, Thrash
+
+1. Fatal Illusion  04:16
+
+David Ellefson - Bass  
+Dave Mustaine - Guitars, Vocals  
+Kiko Loureiro - Guitars (lead)  
+
+
+### "Dystopia" 2016, Thrash
+
+01. The Threat Is Real (4:22)
+02. Dystopia (4:59)
+03. Fatal Illusion (4:15)
+04. Death from Within (4:47)
+05. Bullet to the Brain (4:29)
+06. Post American World (4:25)
+07. Poisonous Shadows (6:02)
+08. Look Who's Talking (Bonus) (4:14)
+09. Conquer or Die (3:33)
+10. Lying in State (3:34)
+11. The Emperor (3:52)
+12. Last Dying Wish (Bonus) (3:49)
+13. Foreign Policy (Fear cover) (2:28)
+Recorded in Nashville, Tennessee in early 2015.
+
 
 ## Отношения с другими группами
 

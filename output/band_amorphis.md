@@ -1,28 +1,482 @@
 # Amorphis
 
-Дискография
-"The Karelian Isthmus" 1993, Death Metal
-"Privilege of Evil (EP)" 1993, Death Metal
-"Tales from the Thousand Lakes" 1994, Death Doom
-"Black Winter Day" 1995, Death Doom
-"Elegy" 1996, Gothic
-"My Kantele" 1997, Gothic
-"Tuonela" 1999, Gothic
-"Story - 10th Anniversary" 2000, Death Doom
-"Am Universum" 2001, Gothic
-"Far from the Sun" 2003, Gothic
-"Chapters (CD+DVD)" 2003, Death Doom
-"Eclipse" 2006, Gothic
-"Silent Waters" 2007, Death Doom
-"Skyforger" 2009, Death Doom
-"Forging The Land Of Thousand Lakes [2 DVD]" 2010, Death Doom
-"Magic & Mayhem - Tales from the Early Years" 2010, Death Doom
-"You I Need (single)" 2011, Gothic
-"The Beginning of Times" 2011, Gothic
-"Hopeless Days (single)" 2013, Gothic
-"Circle" 2013, Gothic
-"Death of a King (single)" 2015, Metal
-"Under The Red Cloud" 2015, Metal
+High-End Finnish Gothic-Death-Doom
+
+## Дискография
+
+### "The Karelian Isthmus" 1993, Death Metal
+
+1. Karelia
+2. The Gathering
+3. Grail`s Mysteries
+4. Warriors Trial
+5. Black Embrance
+6. Exile Of The Sons Of Uisliu
+7. The Lost Name Of God
+8. The Pilgrimage
+9. Mysery Path
+10.Sign From The North Side
+11.Vulgar Necrolatry
+
+ Tomi Koivusaari - Vocals,Guitar & Acoustic Guitar
+ Esa Holopainen - Guitar & Acoustic Guitar
+ Olli-Pekka Laine - Bass
+ Jan Rechberger - Drums & Keyboard
+
+Produced By Thomas Skogsberg & AMORPHIS.
+Engineered By Thomas Skogsberg.
+Recorded & Mixed At Sunlight Studio,May 1992.
+
+(p)&(c) 1993 RELAPSE Records
+
+### "Privilege of Evil (EP)" 1993, Death Metal
+
+1. Pilgrimage From Darkness
+2. Black Embrace
+3. Privilege Of Evil
+4. Misery Path
+5. Vulgare Necrolatry
+6. Excursing From Existence
+
+Recorded and Mixed  at TTT Studio,
+1991 year
+
+(p)(c)  1993  RELAPSE RECORDS
+
+### "Tales from the Thousand Lakes" 1994, Death Doom
+
+1. Thousand Lakes
+2. Into Hiding
+3. The Castaway
+4. First Doom
+5. Black Winter Day
+6. Drowned Maid
+7. In The Beginning
+8. Forgotten Sunrise
+9. To Father's Cabin
+10.Magic And Mayhem
+
+ Olli-Pekka Laine - Bass
+ Tomi Koivusaari - Vocals & Guitars
+ Esa Holopainen - Guitars
+ Jan Rechberger - Drums, Synthesizers
+ Kasper Martenson - Keyboards, Moogs
+
+All Music Arranged By AMORPHIS.
+Lyrics Are Based On Finnish National Pole Book Kalevala.
+Produced By Thomas Skogsberg & AMORPHIS.
+Engineered By Thomas Skogsberg.
+Recorded & Mixed At Studio Sunlight,Sept. 1993.
+
+(p)&(c) 1994 RELAPSE Records
+
+### "Black Winter Day" 1995, Death Doom
+
+1. Black Winter Day
+2. Folk Of The North
+3. Moon And Sun
+4. Moon And Sun Part II: North's Son
+
+ Olli-Pekka Laine - Bass
+ Tomi Koivusaari - Vocals & Guitars
+ Esa Holopainen - Guitars
+ Jan Rechberger - Drums,Synthesizers
+ Kasper Martenson - Keyboards,Moogs
+
+All Music Arrnged By AMORPHIS
+Produced & Engineered By Tomas Skogsberg & AMORPHIS
+Recorded & Mixed At Sunlight Studios, Sept. 1993
+
+(p)&(c) 1995 RELAPSE Records
+
+### "Elegy" 1996, Gothic
+
+1. Better Unborn
+2. Against Widows
+3. The Orphan
+4. On Rich And Poor
+5. My Kantele
+6. Cares
+7. Song Of The Troubled One
+8. Weeper On The Shore
+9. Elegy
+10.Relief
+11.My Kantele (Acoustic)
+
+Recorded At Sunlight Studio, Stockholm, 
+Sweden (Engineer: Tomas  Skogsberg),
+MD Studio, Helsinki, Finland (Engineer: Kaj Hiilesmaa),
+Finnvox Studios, Helsinki, Finland 
+(Engineer: Mikko Karmila)
+Mixed At Parr Street Studios, Liverpool, England
+Engineer: Pete "Pee Wee" Coleman, 
+Assistant Engineer: Dave Buchanan
+Mastered By Dave Shirk at SAF. Mastering
+Produced By AMORPHIS
+Executive Producers: William J. Yurkiewicz Jr & 
+Matthew F.Jacobson
+
+Tomi Koivusaari - Vocals, Rhythm & Acoustic Guitars,
+Tambourine
+Esa Holopainen - Lead and Acoustic Guitars,
+Electric Sitar
+Olli-Pekka Laine - Bass
+Kim RanTala - Keyboards & Chordian
+Pekka Kasari - Drums
+Pasi Koskinen - Lead Vocals
+
+(P)(C) 1996 RELAPSE Records
+
+### "My Kantele" 1997, Gothic
+
+1. My Kantele
+2. The Brother-Slayer
+3. The Lost Son (The Brother-Slayer Part II)
+4. Levithation
+5. And I Hear You Call
+
+Produced by Amorphis and Kai "Hiili" Hiilesmaa
+
+### "Tuonela" 1999, Gothic
+
+1. The Way
+2. Morning Star
+3. Nightfall
+4. Tounela
+5. Greed
+6. Divinity
+7. Shining
+8. Withered...
+9. Rusty Moon
+10.Summer's End
+
+Recorded and mixed at Finnvox Studios, Helsinki,
+between October and November, 1998
+Produced by Simon Efemey
+Engineered by Russ Russel and Mikko Karmila
+Cover art by LAHCO
+
+
+Band Line-Up:
+PASI KOSKINEN - Vocals
+TOMI KOIVUSAARI - Rhythm Guitars & Sitar
+ESA HOLOPAINEN - Lead & Acoustic Guitars
+OLLI-PEKKA LAINE - Bass
+PEKKA KASARI - Drums & Percussion
+
+(p)(c)1999 Nuclear Blast / Relapse Records
+
+### "Story - 10th Anniversary" 2000, Death Doom
+
+Black winter day 
+Against widows 
+Tuonela 
+Grail&acute;s mysteries 
+The castaway 
+My kantele 
+The way 
+The brother-slayer 
+The orphan 
+Exile of the sons of uisliu 
+On rich and poor 
+Divinity 
+The gathering 
+Drowned maid 
+Summers end 
+Cares (live at club citta/Tokio)
+
+### "Am Universum" 2001, Gothic
+
+Alone 6:18
+Goddess (Of The Sadman) 4:00
+The Night Is Over 4:04
+Shatters Within 5:22
+Crimson Wave 4:45
+Drifting Memories 4:24
+Forever More 4:30
+Veil Of Sin 5:10
+Captured State 4:28
+Grieve Stricken Heart 6:42
+
+
+
+SAXOPHONE (ON TRACKS 1, 5, 6, 8, 10) BV SAKARI KUKKO
+SAW (ON TRACK 10) PLAYED BY ANTTI HALONEN
+
+ALL MUSIC BY AMORPHIS
+ALL LYRICS BY PASI KOSKNEN
+
+RECORDED, MIXED AND MASTERED AT FINNVOX STUDIOS, HELSINKI
+BETWEEN OCTOBER - DECEMBER 2000
+PRODUCED BY SIMON EFEMEY
+EXECUTIVE PRODUCER: MATTHEW F. JACOBSON
+ENGINEERED BY MIKKO KARMILA & SIMON EFEMEY
+MIXED BY MIKKO KARMILA
+MASTERED BY MIKA JUSSILA
+
+
+### "Far from the Sun" 2003, Gothic
+
+Day of your beliefs 
+Planetary misfortune 
+Evil inside 
+Mourning soil 
+Far from the sun 
+Ethereal solitude 
+Killing goodness 
+God of deception 
+Higher ground 
+Smithereens
+
+### "Chapters (CD+DVD)" 2003, Death Doom
+
+CD
+Alone 
+Drifting memories 
+Too much to see 
+The way 
+Northern lights 
+Summer's end 
+The brother-slayer 
+Better unborn 
+My kantele 
+Weeper on the shore 
+Moon and sunb 
+Black winter day 
+The castaway 
+Drowned maid 
+Warrior's trail 
+The exile of the sons of uisliu 
+The lost name of god 
+
+DVD
+Alone 
+Divinity 
+My Kantele 
+Against Widows 
+Black Winter Day
+
+### "Eclipse" 2006, Gothic
+
+1. Two Moons 03:24  
+2. House of Sleep 04:16  
+3. Leaves Scar 03:23  
+4. Born from Fire 04:07  
+5. Under a Soil and Black Stone 04:13  
+6. Perkele (The God of Fire) 03:27  
+7. The Smoke 03:39  
+8. Same Flesh 04:38  
+9. Brother Moon 05:10  
+10. Empty Opening 07:40 
+11. Stonewoman (bonus track) 
+
+
+Tomi Joutsen - Vocals 
+Esa Holopainen - Guitar 
+Tomi Koivusaari - Guitar 
+Niclas EtelпїЅvuori - Bass 
+Santeri Kallio - Keyboards 
+Jan Rechberger - Drums
+
+### "Silent Waters" 2007, Death Doom
+
+01. Weaving The Incantation
+02. A Servant
+03. Silent Waters
+04. Towards And Against
+05. I Of Crimson Blood
+06. Her Alone
+07. Enigma
+08. Shaman
+09. The White Swan
+10. Black River
+11. Sign (bonus track)
+
+### "Skyforger" 2009, Death Doom
+
+1. Sampo   
+2. Silver Bride   
+3. From the Heaven of My Heart   
+4. Sky is Mine   
+5. Majestic Beast   
+6. My Sun   
+7. Highest Star   
+8. Skyforger   
+9. Course of Fate   
+10. From Earth I Rose 
+11. Godlike Machine ( special digipak bonus)
+
+
+
+Line-up:
+Tomi Joutsen - Vocals
+Esa Holopainen - Lead Guitar
+Tomi Koivusaari - Rhythm Guitar
+Niclas Etelдvuori - Bass
+Santeri Kallio - Keyboards
+Jan Rechberger - Drums
+
+The album was recorded at Sonic Pump Studios in Helsinki.
+
+
+
+### "Forging The Land Of Thousand Lakes [2 DVD]" 2010, Death Doom
+
+DVD 1:
+
+The Oulu Show:
+
+01. Silver Bride
+02. Sampo
+03. Towards And Against
+04. The Castaway
+05. Smithereens / The Smoke
+06. Majestic Beast
+07. Alone
+08. Silent Waters
+09. Divinity
+10. Elegy Medley (Against Widows / Cares / On Rich
+And Poor)
+11. From The Heaven Of My Heart
+12. Sky Is Mine
+13. Magic And Mayhem / Black Winter Day
+14. Sign From The Northside
+15. House Of Sleep
+16. My Kantele
+
+DVD 2:
+
+Summer Breeze Open Air 2009:
+
+01. Leaves Scar
+02. Towards And Against
+03. From The Heaven Of My Heart
+04. Against Windows
+05. The Castaway
+06. Sampo
+07. Silver Bride
+08. Alone
+09. The Smoke
+10. My Kantele
+11. House Of Sleep
+12. Magic And Mayhem
+
+Bonus Material:
+
+Video Clips:
+
+01. Black Winter Day
+02. My Kantele
+03. Against Windows
+04. Divinity
+05. Alone
+06. Evil Inside
+07. House Of Sleep
+08. The Smoke
+09. Silent Waters
+10. Silver Bride
+11. From The Heaven Of My Heart
+12. My Kantele (Jyrki TV show, 1996)
+13. Amorphis interview (JYRKI TV show, 1996)
+
+Tales From The 20 Years (documentary)
+Photo gallery
+
+### "Magic & Mayhem - Tales from the Early Years" 2010, Death Doom
+
+1. Magic And Mayhem	05:22	
+2. Vulgar Necrolatry (Abhorrence cover)	04:43	
+3. Into Hiding	03:52	
+4. Black Winter Day	03:54	
+5. On Rich and Poor	05:23	
+6. Exile of the Sons of Uisliu	03:56	
+7. The Castaway	05:55	
+8. Song of the Troubled One	04:13	
+9. Sign from the North Side	05:03	
+10. Drowned Maid	04:10	
+11. Against Widows	04:18	
+12. My Kantele	06:48
+
+Contains songs from their first 3 albums. All songs are re-recorded and re-arranged.
+
+Line-up:
+Tomi Joutsen - Vocals
+Esa Holopainen - Lead Guitar
+Tomi Koivusaari - Rhythm Guitar, Vocals
+Niclas Etelдvuori - Bass
+Santeri Kallio - Keyboards
+Jan Rechberger - Drums
+
+On this album Tomi Koivusaari also performs some vocals for the first time since 1997.
+
+Bonus track:
+13. Light My Fire (The Doors cover) (02:44)
+
+### "You I Need (single)" 2011, Gothic
+
+1. You I Need 04:22 
+
+### "The Beginning of Times" 2011, Gothic
+
+1. Battle For Light   
+2. Mermaid   
+3. My Enemy   
+4. You I Need   
+5. Song of the Sage   
+6. Three Words   
+7. Reformation   
+8. Soothsayer   
+9. On a Stranded Shore   
+10. Escape   
+11. Crack in a Stone   
+12. Beginning of Time 
+Digipak bonus track:
+13. Heart's Song 
+
+### "Hopeless Days (single)" 2013, Gothic
+
+1. Hopeless Days 05:08
+
+
+### "Circle" 2013, Gothic
+
+1. Shades Of Gray
+2. Mission
+3. The Wanderer
+4. Narrow Path
+5. Hopeless Days
+6. Nightbird’s Song
+7. Into The Abyss
+8. Enchanted By The Moon
+9. A New Day 
+10. Dead Man’s Dream (Bonus Track) 
+
+### "Death of a King (single)" 2015, Metal
+
+1. Death of a King  05:14 
+
+### "Under The Red Cloud" 2015, Metal
+
+1. Under the Red Cloud  05:33   
+2. The Four Wise Ones  04:40  
+3. Bad Blood  05:23   
+4. The Skull  05:04   
+5. Death of a King  05:14   
+6. Sacrifice  03:56   
+7. Dark Path  05:08   
+8. Enemy at the Gates  05:07  
+9. Tree of Ages  04:36  
+10. White Night  05:15   
+11. Come the Spring  03:27  
+12. Winter’s Sleep   06:36 
+
+
+Produced, mixed and mastered at Fascination Street Studios in Orebro and Stockholm, Sweden during spring 2015.
+Additional engineering in Orebro, Sweden.
+Grand piano, Hammond and Rhodes engineered at E-Studio in Helsinki, Sweden.
+Church organ engineered at Church of Paavali in Helsinki, Sweden.
+Additional percussion engineered at Johtoaani in Helsinki, Sweden.
+
 
 ## Отношения с другими группами
 

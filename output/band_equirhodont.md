@@ -1,7 +1,13 @@
 # Equirhodont
 
-Дискография
-"Equirhodont Grandiose Magus" 2003, Doom
+
+
+## Дискография
+
+### "Equirhodont Grandiose Magus" 2003, Doom
+
+
+
 
 ## Отношения с другими группами
 

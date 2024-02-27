@@ -1,9 +1,42 @@
 # Harvist
 
-Дискография
-"A Gleam in the Night" 2000, Black Metal
-"Lightning Storm in the Veins..." 2005, Black Metal
-"Wolfskin Clad" 2008, Black Metal
+
+
+## Дискография
+
+### "A Gleam in the Night" 2000, Black Metal
+
+1. A Gleam in the Night
+2. By Hidden Ponds	 
+3. The Roost and the Song
+4. Phantom Feelings
+5. Longing for Twilight Essence
+6. Upon Brazen Wings
+7. As Darkness Ends the Day
+
+### "Lightning Storm in the Veins..." 2005, Black Metal
+
+1. Daybreak On Darkview
+2. Forest Dreaming In My Discontent
+3. A Harvester's Hymn
+4. Defy
+5. Troll's Bane / Water In The Lungs
+6. Turmoil Of The Seed
+7. When Nothing Becomes
+8. The Dawn Will Begin Again
+9. Hollowed (From Within)
+
+### "Wolfskin Clad" 2008, Black Metal
+
+1. Wolfskin Clad
+2. The Lycan Draws Nigh (Clad In Wolfskin)
+3. Farewell To The Old Forest
+4. Hidden In The Woods...
+5. The Mountain River Flows Up, Not Across
+6. Drudgery Of The Craft
+7. A Pox On The House In Which Thee Dwells
+8. The Foreboding Essence
+
 
 ## Отношения с другими группами
 

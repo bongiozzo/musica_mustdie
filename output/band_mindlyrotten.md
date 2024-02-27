@@ -1,8 +1,35 @@
 # Mindly Rotten
 
-Дискография
-"The Most Exquisite Agonies" 2005, Deathcore
-"Proliferation of Disaster" 2011, Deathcore
+
+
+## Дискография
+
+### "The Most Exquisite Agonies" 2005, Deathcore
+
+1. Animal Faith
+2. Theater of Torture and Agony (The Most Exquisite Agonies)
+3. Butchery's Fields (Let the Bastards Kill Themselves)
+4. The Humanity's Fall
+5. Immersed on Chaos
+6. Old Iniquity
+7. Mindly Rotten
+8. Evolution's Endless Struggle
+9. On the Supreme Legions (Against Falling Humanity)
+10. Blood's Taste
+
+### "Proliferation of Disaster" 2011, Deathcore
+
+1. Intro
+2. Primordal Absence (Foreign Presence)	 
+3. Reign of Confussion (Unpredictable Perturbation)	 
+4. Outside Forces (Shall Fragmented Beings)	 
+5. Death's Fatal Flow
+6. Reaching Paths of Madness (The Night of a Pathological Creation)	 
+7. Enigmatic Hallucinations (At the Edge of Chaos)	 
+8. Catastrophic Hecatomb (Collosal Destruction)	 
+9. Abysmal Delirium (Instrumental Reverie)
+10. The Humanity's Fall (New Version)
+
 
 ## Отношения с другими группами
 

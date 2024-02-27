@@ -1,13 +1,78 @@
 # Kingcrow
 
-Дискография
-"Something Unknown" 2001, Heavy Metal
-"Matzmariels EP" 2003, Heavy Metal
-"Insider" 2004, Heavy Metal
-"Timetropia" 2006, Heavy Metal
-"Phlegethon" 2010, Heavy Metal
-"In Crescendo" 2013, Heavy Metal
-"Eidos" 2015, Heavy Metal
+classic prog from Italy
+
+## Дискография
+
+### "Something Unknown" 2001, Heavy Metal
+
+Children Of Technology 
+Envy And Die 
+The Black Tower 
+Can My Soul Fly Free 
+Falling World 
+Something Unknown 
+Kingcrow 
+All I Want 
+My War 
+My War (The story)
+
+### "Matzmariels EP" 2003, Heavy Metal
+
+
+
+### "Insider" 2004, Heavy Metal
+
+01. Friendship
+02. The Project
+03. Temptation
+04. Never Say Die
+05. Eyes Of A Betrayer
+06. Into The Cell
+07. Lies
+08. The Killing Hand
+09. Stardust
+10. Save Me
+11. Finale
+
+### "Timetropia" 2006, Heavy Metal
+
+1. A Perfect Life		 
+2. Fading Out Part I		 
+3. Out Of The Darkness		 
+4. Realusion		 
+5. Between Now And Forever		 
+6. Fractured		 
+7. Home		 
+8. A merry-go-round (Chemical Ecstasy)		 
+9. Fragile certainties		 
+10. A hitch-hiker		 
+11. Turn of events in a drawer		 
+12. Fading Out Part II
+
+### "Phlegethon" 2010, Heavy Metal
+
+1. The Slide	 
+2. Timeshift Box	 
+3. Islands	 
+4. The Great Silence	 
+5. Lullaby For An Innocent		 
+6. Evasion	 
+7. Numb (Incipit, Climax & Coda)	 
+8. Washing Out Memories	 
+9. A New Life	 
+10. Lovocaine	 
+11. Fading Out Pt. III	 
+12. Phlegethon
+
+### "In Crescendo" 2013, Heavy Metal
+
+
+
+### "Eidos" 2015, Heavy Metal
+
+
+
 
 ## Отношения с другими группами
 

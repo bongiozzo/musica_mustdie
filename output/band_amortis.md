@@ -1,10 +1,44 @@
 # Amortis
 
-Дискография
-"A Kiss From The Dusk (demo)" 1997, Black Metal
-"Memories From An Ancient Time" 1998, Black Metal
-"Summoned By Astral Fires" 2000, Black Metal
-"Gift Of Tongues" 2001, Black Metal
+sympho-black-death-metal
+
+## Дискография
+
+### "A Kiss From The Dusk (demo)" 1997, Black Metal
+
+
+
+### "Memories From An Ancient Time" 1998, Black Metal
+
+1. The Graveyard In Moonlight's Shine
+2. A Dream Of dancing Shadows
+3. Memories Of An Ancient Time
+4. The Arrival Of A New Age
+5. In The Spell Of Midnight's Grace
+6. Storm Of Pagan Fire
+
+### "Summoned By Astral Fires" 2000, Black Metal
+
+Centuries of Enslavement 
+A Dream of Dancing Shadows 
+Dark Visions by Candlelight 
+Hortus Animae 
+Like Ravens in the Nightsky 
+In the Spell of Midnight & Grace 
+Storm of Pagan Fire 
+Summoned by Astral Fires 
+outro
+
+### "Gift Of Tongues" 2001, Black Metal
+
+Godless Aphrodite 
+Fear F/X - The Pleasure Mechanism 
+Hyperthalamic Prey 
+The Obscure Dance Of Distress 
+Gift Of Tongues 
+The Human Puzzle 
+Exit Wound 187
+
 
 ## Отношения с другими группами
 

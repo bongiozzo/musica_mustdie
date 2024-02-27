@@ -1,8 +1,42 @@
 # Divine Sin
 
-Дискография
-"Winterland" 1996, Death Metal
-"Thirteen Souls" 1997, Death Metal
+
+
+## Дискография
+
+### "Winterland" 1996, Death Metal
+
+1. Gates Of Everbe (3 .12)
+2. Children Of Conformity (4.31)
+3. Dead Again (3.08)
+4. Memories (4.19)
+5. All Alone (4.16)
+6. A Twilight Dream (4.35)
+7. Winterland (4.07)
+8. Years Of Sorrow (5.38)
+9. Endless Sleep (3.57)
+10.My Best Nightmare (4.06)
+11.In The Wake Of Perfection (3.56)
+
+All songs written by DIVINE SIN
+Produced by Bror Tornell and DIVIlVE
+SIN.
+Engineered by Bror Tornell and Uffe
+Pettersson.
+Recorded at FS Studio, Soderhamn
+
+Fredde Lundberg - Vocals
+Micke Anderson - Guitars
+Peter Halvarsson - Guitars
+Bubby Goude - Bass
+Martin Knutar - Drums
+
+(p)(c) 1996 BLACK MARK Production
+
+### "Thirteen Souls" 1997, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,22 @@
 # Devastate
 
-Дискография
-"Armies of Hate" 2006, Techno Death
+
+
+## Дискография
+
+### "Armies of Hate" 2006, Techno Death
+
+1. Ruins from Demolition	 
+2. Open Fire	 
+3. Devastate	 
+4. Sorrowstorm	 
+5. Mad War	 
+6. Infernal Breed of Cannibals	 
+7. Cold Blooded Carnage	 
+8. Controlling Engines	 
+9. Absolute Chaos	 
+10. Armies of Hate
+
 
 ## Отношения с другими группами
 

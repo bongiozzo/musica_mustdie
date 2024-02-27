@@ -1,9 +1,42 @@
 # Godless Cruelty
 
-Дискография
-"Perversion am Kreuz" 2006, Black Metal
-"Hass Propaganda" 2006, Black Metal
-"Gott... Im Chaos Gestorben" 2007, Black Metal
+
+
+## Дискография
+
+### "Perversion am Kreuz" 2006, Black Metal
+
+1. Intro 02:15  
+2. Das Kreuz ist Gefallen 05:43  
+3. Kf in Namen des Herrn 06:46  
+4. Blasphemy 03:18  
+5. Dornenkrone 04:46  
+6. Perversion am Kreuz 04:17  
+7. Verrecke!!! 04:44  
+8. Outro 02:20 
+
+### "Hass Propaganda" 2006, Black Metal
+
+1. Intro 00:32  
+2. Hass Propaganda 07:54  
+3. Heidnische Gцttin 04:52  
+4. In Flammen (Unreleased) 02:14  
+5. Winde der Weiten 03:56  
+6. Outro - Krieg 02:36  
+7. Armageddon (Bonus) 06:25 
+
+### "Gott... Im Chaos Gestorben" 2007, Black Metal
+
+1. Gottes Huren 04:14  
+2. Totgeburt 07:12  
+3. Maria haengt am Kreuz 03:53  
+4. Jesus Fotze 03:29  
+5. Gott... Im Chaos gestorben 04:28  
+6. Misanthropie 03:36  
+7. Necrophilia 04:16  
+8. Herbstklinge 04:03  
+9. Transilvanian Hunger (Darkthrone cover) 06:01 
+
 
 ## Отношения с другими группами
 

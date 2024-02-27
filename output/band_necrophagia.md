@@ -1,12 +1,106 @@
 # Necrophagia
 
-Дискография
-"Season of the Dead" 1987, Death Metal
-"Ready for Death" 1990, Death Metal
-"Holocausto De La Morte" 1998, Death Metal
-"The Divine Art Of Torture" 2003, Death Metal
-"Harvest Ritual Vol.1: Penance" 2005, Death Metal
-"Deathtrip 69" 2011, Death Metal
+Cult Death Metal
+
+## Дискография
+
+### "Season of the Dead" 1987, Death Metal
+
+Season of the Dead 
+Forbidden Pleasure 
+Bleeding Torment 
+Insane for Blood 
+Reincarnation 
+Ancient Slumber 
+Mental Decay 
+Abomination
+Terminal Vision 
+Painful Discharge 
+Beyond and Back
+
+### "Ready for Death" 1990, Death Metal
+
+1. World Funeral  03:35    
+2. Lust Of The Naked Dead  03:54    
+3. Hemorage  02:30    
+4. Ready For Death  02:56    
+5. Ancient Slumber  04:32    
+6. Black Apparition  07:23    
+7. Blood Thirst  03:13    
+8. Mental Decay  04:01    
+9. Communion Of Death  04:00    
+10. Return To Life  01:53  
+
+
+### "Holocausto De La Morte" 1998, Death Metal
+
+Bloodfreak 
+Embalmed Yet I Breathe 
+The Cross Burns Black 
+Deep Inside, I Plant The Devils Seed 
+Burning Moon Sickness 
+Cadaverous Screams Of My Deceased Lover 
+Children Of The Vortex 
+Hymns Of Divine Genocide
+
+### "The Divine Art Of Torture" 2003, Death Metal
+
+1. Blaspheme the Body 
+2. Upon Frayed Lips of Silence  
+3. Parasite Eve  
+4. Maim Attraction  
+5. Rue Morgue Disciple  
+6. The Sick Room  
+7. Conjuring the Unnamable  
+8. Flowers of Flesh and Blood  
+9. The Divine Art of Torture  
+10. Ze Do Caixao  
+
+
+Killjoy - vocals
+Frediablo - guitar
+Iscariah - Bass
+Fug - Guitar
+Mirai Kawashima - Keyboards
+Titta Tani - Drums 
+
+
+### "Harvest Ritual Vol.1: Penance" 2005, Death Metal
+
+The World, The Flesh, The Devil 
+Dead Skin Slave 
+Unearthed 
+Cadavera X 
+London 13 Demon Street 
+Return To Texas 
+Akumu 
+Stitch Her Further 
+Excommunicated 
+Harvest Ritual
+
+### "Deathtrip 69" 2011, Death Metal
+
+1. Naturan Demonto  04:04    
+2. Beast with Feral Claws  03:49    
+3. Tomb with a View  04:31    
+4. Suffering Comes in Sixes  04:25    
+5. A Funeral for Solange  03:27    
+6. Kyra  02:46    
+7. Bleeding Eyes of the Eternally Damned  05:18    
+8. Trick R' Treat (The Last Halloween)  04:06    
+9. Deathtrip 69  05:21    
+10. Death Valley 69  02:30  
+
+
+Line-up
+Killjoy: vocals
+Boris Randall: guitar
+Damien Mathews: bass
+Shawn Slusarek: drums
+
+ 
+
+
 
 ## Отношения с другими группами
 

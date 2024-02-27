@@ -1,7 +1,13 @@
 # Places Of Power
 
-Дискография
-"Now Is The Hour" 2009, Hard Rock
+
+
+## Дискография
+
+### "Now Is The Hour" 2009, Hard Rock
+
+
+
 
 ## Отношения с другими группами
 

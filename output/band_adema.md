@@ -1,7 +1,26 @@
 # Adema
 
-Дискография
-"Planets" 2005, Nu Metal
+
+
+## Дискография
+
+### "Planets" 2005, Nu Metal
+
+1. Shoot the Arrows 
+2. Barricades in Time 
+3. Tornado 
+4. Sevenfold 
+5. Planets 
+6. Enter the Cage 
+7. Remember 
+8. Chel Listen 
+9. Until Now 
+10. Rise Above 
+11. Better Living Through Chemistry 
+12. Refusing Consciousness 
+13. Vikraphone 
+14. Estrellas
+
 
 ## Отношения с другими группами
 

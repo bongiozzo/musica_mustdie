@@ -1,7 +1,34 @@
 # Murder Rape
 
-Дискография
-"Celebration Of The Supreme Evil" 1995, Black Metal
+
+
+## Дискография
+
+### "Celebration Of The Supreme Evil" 1995, Black Metal
+
+SIDE CELEBRATION
+1.  Intro
+2.  Embassy Of Satan
+3.  The Beginning Of Pain
+4.  Cries From The Abyss
+SIDE SUPREME EVIL
+5.  Goat Worshippers
+6.  Trace Of Omnipotence
+7.  Morbid Desires
+8.  Goat Rules
+9.  Outro
+
+Recorded & Mixed At Solo Studio.
+Produced By MURDER RAPE.
+Cover Artwork By Ipsissimus
+
+Agathodemon - Bass
+Fchthys Niger - Drums
+Ipsissimus - Guitars
+Sabatan - Vocals
+
+(P)c  1995 COGUMELO Records// COG O1O
+
 
 ## Отношения с другими группами
 

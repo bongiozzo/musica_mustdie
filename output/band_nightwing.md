@@ -1,16 +1,116 @@
 # Nightwing
 
-Дискография
-"Barrel Of Pain/Nightwing (EP)" 1980, Hard Rock
-"Something In The Air" 1980, Hard Rock
-"Black Summer" 1982, Hard Rock
-"Treading Water (EP)" 1983, Hard Rock
-"Stand Up And Be Counted" 1983, Hard Rock
-"A Night Of Mystery (EP)" 1984, Hard Rock
-"Strangers Are Welcome/Games To Play (EP)" 1984, Hard Rock
-"My Kingdom Come" 1984, Hard Rock
-"A Night Of Mystery - Alive! Alive!" 1985, Hard Rock
-"Natural Survivors" 1996, Hard Rock
+UK hard-rock
+
+## Дискография
+
+### "Barrel Of Pain/Nightwing (EP)" 1980, Hard Rock
+
+01) Barrel Of Pain
+02) Nightwing
+
+### "Something In The Air" 1980, Hard Rock
+
+01) Fantasia
+02) Nightwing
+03) Cold Love
+04) Edge Of A Knife
+05) Something In The Air
+06) Barrel Of Pain
+07) Boogie Woman
+08) You Keep Me Hanging On
+09) Fantasia Reprise
+
+### "Black Summer" 1982, Hard Rock
+
+01) Overnight Sensation
+02) Bird Has Flown
+03) Carry On
+04) Long Hard Road
+05) Searching
+06) Evil Woman
+07) Black Summer
+08) Don't Want To Lose You
+
+### "Treading Water (EP)" 1983, Hard Rock
+
+01) Treading Water
+02) Call Your Name
+03) Barrel Of Pain
+
+### "Stand Up And Be Counted" 1983, Hard Rock
+
+01) Let Me Be Your Lover (04:42)
+02) Treading Water (04:25)
+03) The Machine (04:48)
+04) Dressed To Kill (03:37)
+05) Stand Up And Be Counted (03:21)
+06) Next Saturday (02:57)
+07) Still In Love With You (04:51)
+08) Games To Play (03:04)
+09) Call Your Name (03:29)
+10) The Last Song (05:30)
+
+Max Bacon - lead and bacjground vocals, Alec Johnson - acoustic and electric guitars, lead and background vocals, Kenny Newton - piano, Hammond organ, mono and polyphonic synthesizer, background vocals, Gordon Rowley - 4- and 8-string bass, fretless bass, background vocals, Steve Bartley - drums, percussion, background vocals
+Berington Van Campen - guitar, keyboards
+
+Produced by Gordon Rowley
+Associate produced by Steve Bartley, Alec Johnson, Kenny Newton
+Recorded at Amazon Studios, Liverpool, UK
+
+(p) 1983 Gull Entertainment Ltd
+
+### "A Night Of Mystery (EP)" 1984, Hard Rock
+
+
+
+### "Strangers Are Welcome/Games To Play (EP)" 1984, Hard Rock
+
+01) Strangers Are Welcome
+02) Games To Play
+03) The Devil Walks Behind You
+04) Cell 151
+
+### "My Kingdom Come" 1984, Hard Rock
+
+01) Back On The Streets
+02) Singers In The Fire
+03) Night Of Mystery
+04) Give Me The Love That I Want
+05) Cell 151
+06) The Devil Walks Behind You
+07) Living Behind The Ball
+08) Men Of War
+09) My Kingdom Come
+
+### "A Night Of Mystery - Alive! Alive!" 1985, Hard Rock
+
+01) Fantasia
+02) Dressed To Kill
+03) Something In The Air
+04) Cell 151
+05) Night Of Mystery
+06) You Keep Me Hanging On
+07) The Devil Walks Behind You
+08) Treading Water
+
+### "Natural Survivors" 1996, Hard Rock
+
+01) Islands
+02) Unrequited Love
+03) I Must Be Dreaming
+04) Natural Survivors
+05) 21st Century
+06) Sahara
+07) Here Comes The Night
+08) All Of My Life
+09) Take The Money And Run
+10) She's The Woman
+11) Nights In White Satin
+12) You've Got Me Falling
+13) Mercenary Man
+14) Islands Reprise
+
 
 ## Отношения с другими группами
 

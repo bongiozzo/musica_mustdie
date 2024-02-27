@@ -1,7 +1,29 @@
 # Skeleton of God
 
-Дискография
-"Urine Garden" 1994, Deathcore
+Very Brutal Deathcore
+
+## Дискография
+
+### "Urine Garden" 1994, Deathcore
+
+1. Urine Garden
+2. Ten Second Infinity
+3. Spiritual Schizophilia
+4. Withered Humans
+5. Smog (Gacy Remix)
+
+ Jeff Kahn - Vocals & Guitars
+ Tim Fouch - Guitar
+ Joel DiPietro  - Bass
+ Erik Stenflo - Drums
+
+All Music By SKELETON OF GOD.
+Produced By SKELETON OF GOD.
+Engineered & Mixed By Kirby Orrick.
+Recorded At Time Capsule Studios,Denver,Colo.
+
+(p)&(c) 1994 CREEPO
+
 
 ## Отношения с другими группами
 

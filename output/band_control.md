@@ -1,7 +1,34 @@
 # Control
 
-Дискография
-"Syndrome" 1996, Industrial
+
+
+## Дискография
+
+### "Syndrome" 1996, Industrial
+
+1.  P.W.H.
+2.  Slave Nation
+3.  Breed
+4.  Turning Point
+5.  Silence Of God
+6.  Mind Control
+7.  Caught In A World
+8.  Carnage
+9.  Mind Control (Mind Over Matter Mix)
+10.Silence Of God (Higher Self Mix)
+
+Produced By CONTROL / Ernie.
+Engineered By Ernie.
+Recorded & Mixed At Apollo Sound Studios.
+
+Matt Jackson - Keyboards, Programming, Samples, Vocals
+Greg Kodric - Keyboards, Programming, Sampels, Vocals
+
+Guitars - Gulliver Giles
+Backing Vocals - Megan Hamilton
+
+(P)(C) 1996 METAL DOG Records
+
 
 ## Отношения с другими группами
 

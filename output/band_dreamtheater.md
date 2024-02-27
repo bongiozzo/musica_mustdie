@@ -1,23 +1,391 @@
 # Dream Theater
 
-Дискография
-"When Dream And Day Unite" 1989, Progressive
-"Images And Words" 1992, Progressive
-"Awake" 1994, Progressive
-"A Change Of Seasons" 1995, Progressive
-"Falling Into Infinity" 1997, Progressive
-"Scenes From The Memory" 1999, Progressive
-"Live Scenes from New York" 2001, Progressive
-"Six Degrees Of Inner Turbulence" 2002, Progressive
-"Train Of Thought" 2003, Progressive
-"Octavarium" 2005, Progressive
-"Systematic Chaos" 2007, Progressive
-"Black Clouds & Silver Linings" 2009, Progressive
-"On The Backs Of Angels (single)" 2011, Progressive
-"A Dramatic Turn of Events" 2011, Progressive
-"The Enemy Inside (single)" 2013, Progressive
-"Dream Theater" 2013, Progressive
-"The Astonishing" 2016, Progressive
+Kings Of Progressive Metal
+
+## Дискография
+
+### "When Dream And Day Unite" 1989, Progressive
+
+1.  A Fortune In Lies
+2.  Status Seeker 
+3.  The Ytse Jam 
+4.  The Killing Hand 
+5.  Light Fuse And Get Away 
+6.  Afterlife 
+7.  The Ones Who Helped To Set The Sun 
+8.  Only A Matter Of Time 
+
+Recorded at Kajem/Victory Studios, July 18 - August 12, 1988. Released 1989. 
+
+Charlie Dominici - Voices
+John Petrucci - Guitar
+John Myuing - Bass
+Mike Portnoy - Drums
+Kevin Moore - Keyboards
+
+(P)c 1989 ATLANTIC Rec.
+
+### "Images And Words" 1992, Progressive
+
+1.  Pull Me Under
+2.  Another Day
+3.  Take The Time
+4.  Surrounded
+5.  Metropolis - Part I
+6.  Under A Glass Moon
+7.  Wait For Sleep
+8.  Learning To Live
+
+James LaBrie - Voices
+John Petrucci - Guitar
+John Myuing - Bass
+Mike Portnoy - Drums
+Kevin Moore - Keyboards
+
+(P)&(C) 1992 ATLANTIC Rec.
+
+### "Awake" 1994, Progressive
+
+1. 6.00. 5:31
+2. Caught In A Web. 5:28
+3. Innocence Faded. 5:43
+4. Erotomania. 6:45
+5. Voices. 9:53
+6. The Silent Man. 3:48
+7. The Mirror. 6:45
+8. Lie. 6:34
+9. Lifting Shadows Off A Dream. 6:05
+10. Scared. 11:00
+11. Space-Dye Vest. 7:29
+
+(c)&(p) 1994 ATLANTIC RECORDING CORP.
+
+JAMES LABRIE – voices
+MIKE PORTNOY – drums & percussion
+KEVIN MOORE – keyboards
+JOHN MYUNG – bass
+JOHN PETRUCCI – guitar
+
+Produced, engineered and mixed by John Purdell and Duane Baron
+
+### "A Change Of Seasons" 1995, Progressive
+
+1. A Change Of Seasons
+ I.The Crimson Sunrise
+II. Innocence
+III.Carpe Diem
+IV.The Darkest Of Winters
+V. Another World
+VI.The Inevitable Summer
+VII.The Crimson Sunset
+2. Funeral For A Friend / Love Lies Bleeding
+3. Perfect Strangers
+[4].The Rover / Achilles Last Stand / The Song Remains The Same
+[5].The Big Medley
+ I. In The Flesh ?
+II.Carry On Wayward Son
+III.Bohemian Rhapsody
+IV.Lovin, Touchin, Squeezin
+VI.Turn It On Again
+[6]. Metropolis
+[7]. A Fortune In Lies
+[8]. Bombay Vindaloo
+
+Produced By David Prator & DREAM THEATER.
+Engineered By Doug Oberkircher.
+Recorded & Mixed At Bear Tracks Studio.
+
+James LaBrie - Voices
+John Petrucci - Guitar
+John Myuing - Bass
+Mike Protnoy - Drums
+Kevin Moore - Keyboards
+
+(P)&(C) 1995 ATLANTIC Rec.
+
+### "Falling Into Infinity" 1997, Progressive
+
+01. New Millennium [08:19] 
+02. You Not Me [04:58] 
+03. Peruvian Skies [06:43] 
+04. Hollow Years [05:53] 
+05. Burning My Soul [05:29] 
+06. Hell's Kitchen [04:16] 
+07. Lines in the Sand [12:05] 
+08. Take Away My Pain [06:03] 
+09. Just Let Me Breathe [05:28] 
+10. Anna Lee [05:51] 
+11. Trial of Tears 
+    - It's Raining 
+    - Deep in Heaven 
+    - The Wasteland [13:05] 
+
+
+### "Scenes From The Memory" 1999, Progressive
+
+Act I
+1. Scene One: Regression  2:06  
+2. Scene Two: I. Overture 1928  8:49  
+3. II. Strange Deja Vu          
+4. Scene Three: I.   Through My Words  7:51  
+5. II.  Fatal Tragedy          
+6. Scene Four: Beyond This Life   11:22  
+7. Scene Five: Through Her Eyes   5:29  
+
+Act II
+8. Scene Six: Home  12:53  
+9. Scene Seven: I.  The Dance Of Eternity  10:00  
+10. II.  One Last Time          
+11.Scene Eight: The Spirit Carries On  6:38  
+12.Scene Nine: Finally Free  12:00  
+
+
+The Orchestra
+
+Vocals - James Labrie
+Bass Guitar - John Myung
+Guitars, Vocals - John Petrucci
+Drums, Percussion, Vocals - Mike Portnoy
+Keyboards - Jordan Rudess
+
+Guest Musicians
+
+Additional vocals on "Through Her Eyes" and 
+"The Spirit Carries On": Theresa Thomason
+
+Gospel choir on "The Spirit Carries On": 
+Theresa Thomason, Mary Canty, Shelia Slappy, 
+Mary Smith, Jeanette Smith, Clarence Burke Jr., 
+Carol Cyrus, Dale Scott
+
+Choir arranged and conducted by Jordan Rudess
+
+### "Live Scenes from New York" 2001, Progressive
+
+Disc #1 
+
+Regression 
+Overture 1928 
+Strange Deja Vu 
+Through My Words 
+Fatal Tragedy 
+Beyond This Life 
+John & Theresa Solo Spot 
+Through Her Eyes 
+Home 
+The Dance Of Eternity 
+
+
+Disc #2 
+
+One Last Time 
+The Spirit Carries On 
+Finally Free 
+Metropolis Pt. 1 
+The Mirror 
+Just Let Me Breathe 
+Acid Rain 
+Caught In A New Millennium 
+Another Day 
+Jordan Rudess' keyboard solo 
+
+
+Disc #3 
+
+A Mind Beside Itself 
+Erotomania 
+Voices 
+The Silent Man 
+Learning To Live 
+A Change Of Seasons 
+
+Another Day (unreleased video) 
+Jordan Rudess' keyboard solo (video)
+
+
+
+### "Six Degrees Of Inner Turbulence" 2002, Progressive
+
+Disc One:
+ Degree 1. The Glass Prison
+ Degree 2. Blind Faith
+ Degree 3. Misunderstood
+ Degree 4. The Great Debate
+ Degree 5. Disappear
+
+Disc Two:
+ Degree 6. Six Degrees of Inner Turbulence
+   I. Overture
+   II. About To Crash
+   III. War Inside My Head
+   IV. The Test That Stumped Them All
+   V. Goodnight Kiss
+   VI. Solitary Shell
+   VII. About To Crash (Reprise)
+   VIII. Losing Time/Grand Finale
+
+
+
+James LaBrie - Vocals
+John Petrucci - Guitars
+John Myung - Bass
+Jordan Rudess - Keyboards
+Mike Portnoy - Drums
+
+
+### "Train Of Thought" 2003, Progressive
+
+01        As I Am 
+02        This Dying Soul 
+03        Endless Sacrifice 
+04        Honor Thy Father 
+05        Vacant 
+06        Stream Of Consciousness 
+07        In The Name Of God 
+
+Produced by:          John Petrucci and Mike Portnoy 
+Engineered by:       Doug Oberkircher 
+Mixed by:                Kevin Shirley
+
+### "Octavarium" 2005, Progressive
+
+1. The Root Of All Evil 08:07  
+2. The Answer Lies Within 05:26 
+3. These Walls 06:59 
+4. I Walk Beside You 04:29 
+5. Panic Attack 07:16
+6. Never Enough 06:33 
+7. Sacrificed Sons 10:42 
+8. Octavarium 24:00
+
+### "Systematic Chaos" 2007, Progressive
+
+1. In the Presence of Enemies, Pt. 1 09:00  
+2. Forsaken 05:36  
+3. Constant Motion 06:55 
+4. The Dark Eternal Night 08:51  
+5. Repentance 10:43  
+6. Prophets of War 06:01  
+7. The Ministry of Lost Souls 14:57  
+8. In the Presence of Enemies, Pt. 2 16:38
+
+### "Black Clouds & Silver Linings" 2009, Progressive
+
+1. A Nightmare to Remember 16:10  
+2. A Rite of Passage 08:35  
+3. Wither 05:25  
+4. The Shattered Fortress 12:49  
+5. The Best of Times 13:07  
+6. The Count of Tuscany 19:16 
+
+
+Produced by Mike Portnoy and John Petrucci, and mixed by Paul Northfield. 
+
+### "On The Backs Of Angels (single)" 2011, Progressive
+
+1. On The Backs Of Angels 08:42
+
+### "A Dramatic Turn of Events" 2011, Progressive
+
+1. On the Backs of Angels 08:42
+2. Build Me Up, Break Me Down 06:59
+3. Lost Not Forgotten 10:11
+4. This Is the Life 06:57
+5. Bridges in the Sky 11:01
+6. Outcry 11:24
+7. Far from Heaven 03:56
+8. Breaking All Illusions 12:25
+9. Beneath the Surface 05:26
+
+
+John Myung - Bass 
+John Petrucci - Guitars, Backing Vocals 
+James LaBrie - Vocals 
+Jordan Rudess - Keyboards 
+Mike Mangini - Drums 
+
+
+First Dream Theater album without founding member Mike Portnoy.
+ 
+Will be released as a standard CD, a CD/DVD pack with the hour-long documentary The Spirit Carries On (showcasing their search for a new drummer), a vinyl LP, and a Deluxe Collector's Edition box set, featuring:
+ 
+-the regular album
+ -a bonus disc with instrumentals of the entire album
+ -DVD with The Spirit Carries On documentary
+ -double LP in gatefold jacket
+ -Dream Theater turntable slipmat
+ -Litho print of album cover
+ 
+
+### "The Enemy Inside (single)" 2013, Progressive
+
+1. The Enemy Inside  06:17 
+
+### "Dream Theater" 2013, Progressive
+
+1. False Awakening Suite  02:42  
+2. The Enemy Inside  06:17  
+3. The Looking Glass  04:53  
+4. Enigma Machine  06:01   
+5. The Bigger Picture  07:40 
+6. Behind the Veil  06:52    
+7. Surrender to Reason  06:34    
+8. Along for the Ride  04:45    
+9. Illumination Theory  22:17 
+
+Track 1 consists of three parts:
+"I. Sleep Paralysis"
+"II. Night Terrors"
+"III. Lucid Dream"
+
+Track 9 consists of five parts:
+"I. Paradoxe de la Lumiиre Noire"
+"II. Live, Die, Kill"
+"III. The Embracing Circle"
+"IV. The Pursuit of Truth"
+"V. Surrender, Trust & Passion" 
+
+### "The Astonishing" 2016, Progressive
+
+Disc 1  
+1. Descent of the NOMACS
+2. Dystopian Overture   
+3. The Gift of Music  04:08   
+4. The Answer     
+5. A Better Life      
+6. Lord Nafaryus   
+7. A Savior in the Square 
+8. When Your Time Has Come   
+9. Act of Faythe  
+10. Three Days     
+11. The Hovering Sojourn    
+12. Brother, Can You Hear Me?  
+13. A Life Left Behind    
+14. Ravenskill      
+15. Chosen      
+16. A Tempting Offer      
+17. Digital Discord    
+18. The X Aspect    
+19. A New Beginning    
+20. The Road to Revolution      
+  
+Disc 2  
+1. 2285 Entr'acte   
+2. Moment of Betrayal  
+3. Heaven's Cove 
+4. Begin Again    
+5. The Path That Divides 
+6. Machine Chatter    
+7. The Walking Shadow  
+8. My Last Farewell     
+9. Losing Faythe      
+10. Whispers on the Wind    
+11. Hymn of a Thousand Voices  
+12. Our New World     
+13. Power Down    
+14. Astonishing      
+
+
 
 ## Отношения с другими группами
 

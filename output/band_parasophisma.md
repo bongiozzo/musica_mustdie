@@ -1,7 +1,21 @@
 # Parasophisma
 
-Дискография
-"A Variable Invariability Varied in Dependency on Variations Caused... " 2007, Techno Death
+
+
+## Дискография
+
+### "A Variable Invariability Varied in Dependency on Variations Caused... " 2007, Techno Death
+
+1. The Contrariety of Someone's Generally Recognized "Common Thoughts" 07:52  
+2. Infiltration of Impossible Ways of Attainment 04:10  
+3. The Vain Effort of Pedanties 06:07  
+4. Slaves' Laughter of Hypocrisy, Dissimulation and Daily Life 04:51  
+5. Paralogism & Sophistry 04:27  
+6. Tips and Tricks for Successful Attaining One's Goal (For Women Only) 05:02  
+7. The Law of Double Negation/Song of Thirsty Dog 05:44  
+8. Who Rejoices is Happy, Who Saddens Not Rejoices 04:42  
+9. ...with Accuracy Exceeding the Possibility of Its Achieving ... 04:24 
+
 
 ## Отношения с другими группами
 

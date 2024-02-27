@@ -1,7 +1,33 @@
 # Dein Schatten
 
-Дискография
-"Das Ewiges Eis" 2002, Gothic
+gothic wave
+
+## Дискография
+
+### "Das Ewiges Eis" 2002, Gothic
+
+01. Woanders sein
+02. Dein Schatten
+03. Schuld und sunde
+04. Er Kommt zuruck
+05. Das tier
+06. Ewiges eis
+07. Free
+08. My name is Luc(if)a
+09. Tranen der seele
+10. Geister in mir
+11. Abschied
+12. Respekt!
+13. Woanders sein (radioedit)
+14. Hallo?
+
+Dieter Bornschlegel (Bornzero)
+
+Songs written by bornzero
+abscheid: zion/bornzero
+My name is. : s.vega/bornzero
+fotos: hermann ploppa
+
 
 ## Отношения с другими группами
 

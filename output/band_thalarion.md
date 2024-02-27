@@ -1,15 +1,123 @@
 # Thalarion
 
-Дискография
-"Black Raven (demo)" 1991, Death Doom
-"Best Art (demo)" 1993, Death Doom
-"Behind The Door Of Sorrow (demo)" 1994, Death Doom
-"Towards The Obscure Slumberland (MC)" 1996, Death Doom
-"Dominion Unfound (demo)" 1996, Death Doom
-"Tales Of The Woods... Thus Was Written" 1998, Death Doom
-"Four Elements Misterium" 2000, Death Doom
-"Tunes Of Despondency" 2002, Death Doom
-"Hellium" 2004, Death Doom
+classic doom death metal band from Slovakia
+
+## Дискография
+
+### "Black Raven (demo)" 1991, Death Doom
+
+
+
+### "Best Art (demo)" 1993, Death Doom
+
+
+
+### "Behind The Door Of Sorrow (demo)" 1994, Death Doom
+
+
+
+### "Towards The Obscure Slumberland (MC)" 1996, Death Doom
+
+
+
+### "Dominion Unfound (demo)" 1996, Death Doom
+
+
+
+### "Tales Of The Woods... Thus Was Written" 1998, Death Doom
+
+1. ...And Pain Silently Sings
+2. Goddess Of Beauty And Wisdom Sleeps For Evermore (Mournful Ode To Lada)
+3. Diva Leaves Me... (In My Loneliness)
+4. Shadow-veiled Nayanna (She Reveals To Me Every Night)
+5. ...Through The Sleeping Nightland
+6. Sonnet Of My Grief 
+7. Where The Twilight Dwells Forever...
+8. Beyond The Incantations Of The White Queen
+9. Perun's Thunder Of Revenge Will Storm Aloud
+10. Kania (My Vampiric Bride)
+
+Thalarion "Tales Of The Woods... Thus Was Written" was recorded & mixed at Exponent Studio, Hlohovec, Slovakia, during the cold month of March MCMXCVIII.
+Engineered by Roman Slavik and Tomas Kmet.
+Produced by Thalarion and Tomas Kmet.
+Digitally mastered at Ossisounds by Bjarke Ahlstrand.
+Executive producers: Michael H. Andersen & Bjarke Ahlstrand.
+ 
+All lyrics written by Juraj Grezdo, except "Sonet Of My Grief" written by Elizabeth B. Browning.
+All music composed, arranged & performed by Thalarion.
+ 
+Band photo by Angelika Schlosserova.
+Logo design by Peter Gergel.
+Cover artwork by Robert Toman.
+Lay-out / graphic design by Bjarke Ahlstrand.
+
+Thalarion:
+Juraj Grezdo - Vocals & Keyboards.
+Juraj Schlosser - Rhythm, Lead & Acoustic Guitar.
+Peter Bartakovic - Bass Guitar.
+Peter Schlosser - Drums.
+
+### "Four Elements Misterium" 2000, Death Doom
+
+01. Cold Waters Of Turbulent Torrents
+02. A Herald Of Sorrow & Wretchedness
+03. A More Than Fiendish Malevolence
+04. Icon Of Hopelessness
+05. Almost Forgotten Empire
+06. Where The Sloes Mature
+07. Carnival
+08. A Staircase To My Soul
+09. In April We Wept
+
+Recorded and mixed during September & October 1999 at Exponent Studio, Slovakia.
+Engineered by Roman Slavik & Sanchez.
+Mixed by Tomas Kmet & Roman Slavik.
+Produced by Tomas Kmet & Thalarion.
+Pre-mastered October 1999 at Station Master, Slovakia, by Tomas Kmet & Juraj Schlosser.
+Digitally mastered & edited April 2000 at Myretuen, Denmark, by Tue Madsen.
+Executive Producers: Michael H. Andersen & Bjarke Ahlstrand.
+ 
+All lyrics by Juraj Grezdo & Nela Horvathova.
+All music composed, arranged and performed by Thalarion.
+ 
+Band photo by Mr. Babka.
+Cover artwork by Juha Vuorma.
+Lay-out & design by Bjarke Ahlstrand.
+
+Peter Schlosser - Drums, Tambourine & Chinese Wind.
+Peter Bartakovic - Bass Guitar.
+Nela Horvathova - Vocals.
+Juraj Schlosser - Rhythm, Lead & Acoustic Guitar.
+Juraj Grezdo - Vocals, Keyboards & Old Slovak Pipe. 
+Concluding vocals on "A Staircase To My Soul" by Roman Slavik.
+
+
+### "Tunes Of Despondency" 2002, Death Doom
+
+1. 911 - As The War Raged 
+2. My Bitter Overstrain 
+3. Tunes Of Despondency 
+4. A Tatrastream Romance 
+5. Tatyana 
+6. My Weakness 
+7. Confined 
+8. The Endless Cacophony 
+9. Fly Away
+
+### "Hellium" 2004, Death Doom
+
+01 Intro - Enter The Hellium 0:54.64
+02 Helliotica 4:05.73
+03 Witch Dance 4:50.50
+04 Quest 5:13.61
+05 Singer In The Mist 4:08.53
+06 ...And My Journey Continues 4:05.27
+07 Revealing The Sarnath 4:20.32
+08 The Way Of King 3:21.40
+09 I Am ... 4:47.59
+10 Realm Of Perfect Visions 3:53.40
+11 Said The Dreamer 5:02.72
+
 
 ## Отношения с другими группами
 

@@ -1,20 +1,128 @@
 # Vicious Rumors
 
-Дискография
-"Soldiers Of The Night" 1986, Heavy Metal
-"Digital Dictator" 1988, Heavy Metal
-"Vicious Rumors" 1990, Heavy Metal
-"Welcome To The Ball" 1990, Heavy Metal
-"Plug In And Hang On - Live In Tokyo" 1992, Heavy Metal
-"Word Of Mouth" 1994, Heavy Metal
-"Something Burning" 1996, Heavy Metal
-"Cyberchrist" 1998, Heavy Metal
-"Sadistic Symphony" 2001, Heavy Metal
-"Crushing The World (DVD)" 2005, Heavy Metal
-"Warball" 2006, Heavy Metal
-"Razorback Killers" 2011, Heavy Metal
-"Live You To Death" 2012, Heavy Metal
-"Concussion Protocol" 2016, Heavy Metal
+
+
+## Дискография
+
+### "Soldiers Of The Night" 1986, Heavy Metal
+
+
+
+### "Digital Dictator" 1988, Heavy Metal
+
+
+
+### "Vicious Rumors" 1990, Heavy Metal
+
+
+
+### "Welcome To The Ball" 1990, Heavy Metal
+
+
+
+### "Plug In And Hang On - Live In Tokyo" 1992, Heavy Metal
+
+
+
+### "Word Of Mouth" 1994, Heavy Metal
+
+
+
+### "Something Burning" 1996, Heavy Metal
+
+1.  Ball Hog
+2.  Mouth
+3.  Out Of My Misery
+4.  Something Burning
+5.  Concentration
+6.  Chopping Block
+7.  Perpetual
+8.  Ship Search
+9.  Make It Real
+10.Free To Go
+
+All songs written by VICIOUS  RUMORS.
+Produced by Geoff Thorpe.
+Engineered and mixed by Vincent Wojno.
+Recorded and mixed at The Plant, Sausalito, California.
+
+Geoff Thorpe - Lead Vocals, Guitars
+Larry Howe - Drums, Vocals
+Tommy Sisco - Bass
+Steve Smyth - Guitars
+
+(p)(c) 1996 MASSACRE Records
+
+### "Cyberchrist" 1998, Heavy Metal
+
+
+
+### "Sadistic Symphony" 2001, Heavy Metal
+
+
+
+### "Crushing The World (DVD)" 2005, Heavy Metal
+
+Down To The Temple (Live)
+On The Edge (Live)
+Digital Dictator (Live)
+Poveglia (Video)
+March Or Die (Live)
+Fight (Live)
+Only Live Twice (Live)
+Don’t Wait For Me (Live)
+Lady Took A Chance (Live & Clips, w/ Carl Albert)
+Broken Wings (Video)
+Abandoned (Live)
+Bonus: Against The Grain (Video)
+Bonus: Children (Video)
+Bonus: Don’t Wait For Me (Video)
+Bonus: The Voice (Video)
+
+### "Warball" 2006, Heavy Metal
+
+
+
+### "Razorback Killers" 2011, Heavy Metal
+
+1. Murderball 04:08  
+2. Black 05:56  
+3. Razorback Blade 04:12  
+4. Blood Stained Sunday 05:50  
+5. Pearl Of Wisdom 06:30  
+6. All I Want Is You 04:27  
+7. Axe To Grind 03:37  
+8. Let The Garden Burn 05:05  
+9. Rite Of Devastation 04:21  
+10. Deal With The Devil 07:03 
+
+
+Line up:
+Larry Howe, Stephen Goodwin, Kiyoshi Morgan, Brian Allen, Geoff Thorpe
+
+Featuring: Mark McGee, Brad Gillis and Eric Peterson on guitars
+
+Recordered on Trident Studios in Pacheco (California), and produced by Juan
+Urteaga and Geoff Thorpe. 
+
+### "Live You To Death" 2012, Heavy Metal
+
+
+
+### "Concussion Protocol" 2016, Heavy Metal
+
+“Concussion Protocol”
+ “Chemical Slaves”
+ “Victims Of A Digital World”
+ “Chasing The Priest”
+ “Last Of Our Kind”
+ “1000 Years”
+ “Circle Of Secrets”
+ “Take It Or Leave It”
+ “Bastards”
+ “Every Blessing Is A Curse”
+ “Life For A Life”
+
 
 ## Отношения с другими группами
 

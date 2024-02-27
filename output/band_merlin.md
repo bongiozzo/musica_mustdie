@@ -1,9 +1,56 @@
 # Merlin
 
-Дискография
-"Deathkoteque" 1997, Death Metal
-"They Must Die" 2000, Death Metal
-"Brutal Constructor" 2004, Death Metal
+brutal death metal from Russia
+
+## Дискография
+
+### "Deathkoteque" 1997, Death Metal
+
+1. TRIUMPH OF DEATH
+2. HOLDER OF THE WAR
+3. DON'T TRY
+4. I'M GLAD 
+5. I GOTTA FALL
+6. THAT'S MY TIME 
+7. BLACK REVENGE 
+8. DIE
+9. WAITING FOR DEATH 
+10. LEAVE ME ALONE
+
+
+### "They Must Die" 2000, Death Metal
+
+1. UNBURIED
+2. I WANT BLOOD
+3. THEY'LL NEVER SEE
+4. THEY MUST DIE 
+5. ENTERING THE GATES OF PARADISE
+6. DON'T WASTE MY TIME
+7. LET THE BLOOD SPILL
+8. SIXTH VICTIM
+9. R.I.P.
+
+
+Mary Abaza - Vocal, Bass 
+Alex Ioffe - Solo, Rythm and Synthesized Guitars 
+Arteom Nazarov- Rythm Guitar 
+Nick Byckoff - Drums
+
+
+### "Brutal Constructor" 2004, Death Metal
+
+1. Spirits Of The Dead
+2. Undead
+3. Brutal Constructor
+4. Memorial To The Dead
+5. Why Did I Kill Them?
+6. Zombie Ritual
+7. Closer Then Ever
+8. Hate Them All
+9. Liar
+10. Slaughter On Ice
+11. Still Alive
+
 
 ## Отношения с другими группами
 

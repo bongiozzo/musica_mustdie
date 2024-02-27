@@ -1,8 +1,34 @@
 # Fangorn
 
-Дискография
-"Mysterious Land" 2010, Metal
-"Where the tales Live On" 2012, Metal
+
+
+## Дискография
+
+### "Mysterious Land" 2010, Metal
+
+1. Mysterious Land 01:57  
+2. Under The Banner Of Berserk 04:36  
+3. Forgotten Hero 04:11  
+4. Beatiful Spring 05:09  
+5. Shield And Sword 08:26  
+6. Trolls strong Beer 04:24  
+7. The Long Way 00:57 
+
+### "Where the tales Live On" 2012, Metal
+
+1.	 Everything's Just Begun	02:12	 
+2.	 Stormbringer	04:43	 
+3.	 Miles Away from Home	06:22	 
+4.	 Siren's Island	06:37	 
+5.	 The Road to Stonehenge	03:13	 
+6.	 Swamp Feast	05:46	 
+7.	 Smoldering Fire	02:01	 
+8.	 Where the Tales Live On	05:13	 
+9.	 "Troll's Hole" Inn	05:16	 
+10.	 Sword of Discord (The First Sword)	05:40	 
+11.	 Last Way	05:47	 
+12.	 Bonus Track	04:30
+
 
 ## Отношения с другими группами
 

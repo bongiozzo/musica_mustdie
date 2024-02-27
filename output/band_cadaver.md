@@ -1,9 +1,62 @@
 # Cadaver
 
-Дискография
-"Hallucinating Anxiety" 1990, Death Metal
-"... In Pains" 1992, Death Metal
-"Necrosis" 2004, Death Metal
+Original Norvegian Band
+
+## Дискография
+
+### "Hallucinating Anxiety" 1990, Death Metal
+
+1. Tuba (Intro)
+2. Ignominous Eczema
+3. Corrosive Delirium
+4. Hallucinating Anxiety
+5. Cannibalistic Dissection
+6. Hypertrophyan
+7. Petrifyed Faces
+8. Innominate
+9. Twisted Collapse
+10.Abnormal Deformity
+11.Maelstrom
+12.Mental Abherrance
+13.Bodily Trauma
+
+ Ole Bjerkebakke - Vocals & Drums
+ Anders Odden - Guitar
+ Rene Jonsen - Bass
+
+(p)&(c) 1990 NECROSIS Records
+
+### "... In Pains" 1992, Death Metal
+
+1. Bypassed
+2. Mr.Tumour`s Misery
+3. Into The Outside
+4. Blurred Visions
+5. Runaway Brain
+6. Inner Persecution
+7. In Distortion
+8. The Misanthrope
+9. Ins-Through-Mental
+10.During The End
+
+ Ole Bjerkebakke - Vocals,Flute & Drums
+ Anders Odden - Rhythm,Lead Guitar & Effects
+ Eilert Solstad - DoubleBass,Electric Bass Guitar
+
+Produced By Kentil Kaellen Johansen.
+Engineered & Mixed By Paul Johnson.
+Recorded At Rhythm Studios,Bidford,April-May 1992.
+Artwork & Band Photo By Bj0rn Steiner Johansen.
+Cover Design By Bj0rn Steiner Johansen &
+Anders Odden.
+
+(p)&(c) 1992 EARACHE Records / RELATIVITY
+
+
+### "Necrosis" 2004, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

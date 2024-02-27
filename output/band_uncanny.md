@@ -1,7 +1,38 @@
 # Uncanny
 
-Дискография
-"Salenium For Nyktophobia" 1994, Death Metal
+Satanic Intense Death Metal
+
+## Дискография
+
+### "Salenium For Nyktophobia" 1994, Death Metal
+
+1. Elohim
+2. Tales From The Tomb
+3. Brain Access
+4. Timeless
+5. Screaming In Phobia
+6. Enkelbiljetten*
+7. Indication Vitalis
+8. Soul Incest
+9. Sprang Skitten
+10.Towards The Endless Throne
+11.Lepra
+12.The Final Conflict / The Pornoflute Pt.2
+13.Splenium For Nyktophobia
+
+ Jens Tornroos - Vocals
+ Fredrik Norrman - Guitars
+ Mats Forsell - Guitars
+ Christoffer Harborg - Bass
+ Kennet Englund - Drums
+
+All Music & Lyric By Uncanny Exept* By G-Anx
+Engineered By Dan Swano
+Recorded At Unisound Recording
+25-28 October 1993
+
+(p) & (c) 1994 Unisound.
+
 
 ## Отношения с другими группами
 

@@ -1,6 +1,9 @@
 # The Ben Jackson Group
 
-Дискография
+ex-Crimson Glory
+
+## Дискография
+
 
 ## Отношения с другими группами
 

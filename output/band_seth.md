@@ -1,12 +1,68 @@
 # Seth
 
-Дискография
-"By Fire, Power Shall Be" 1997, Black Metal
-"Les Blessures de l'Вme" 1998, Black Metal
-"War w/Cultus Sanguine" 2000, Black Metal
-"L'Excellence" 2000, Black Metal
-"Divine-X" 2002, Black Metal
-"Era-Decay" 2004, Black Metal
+French Black Metal band
+
+## Дискография
+
+### "By Fire, Power Shall Be" 1997, Black Metal
+
+1. Until the End 
+2. The Forest of the Damned (Forever Lost)
+3. The Chemerical Quest
+
+### "Les Blessures de l'Вme" 1998, Black Metal
+
+1. La Quintessence du Mal
+2. Hymne Au Vampire (Acte I)
+3. Hymne Au Vampire (Acte II) ...Vers une Nouvelle Ere
+4. Le Cercle de la Renaissance
+5. Les Silences d'Outre-Tombe
+6. Dans les Yeux du Serpent
+7. ...A la Memoire de nos Freres
+
+### "War w/Cultus Sanguine" 2000, Black Metal
+
+1. Corpus et Anima 
+2. Les Sevices de la Peste  
+3. The Calling Illusion (Cultus Sanguine cover)
+4. Behind the Wheel (Depeche Mode cover)
+
+### "L'Excellence" 2000, Black Metal
+
+1. Die Weihe 
+2. Let Me Be The Salt in Your Wound
+3. Bastard Beast
+4. Acid Christ
+5. Corpus Et Anima
+6. Legions Spirituelle Damnatrice
+7. L'Excellence
+8. Leave this Planet
+
+### "Divine-X" 2002, Black Metal
+
+01. Evil-X
+02. The Sons of Seth
+03. Walk on Fire with Me
+04. Addicted to Psychotropic Angeldust
+05. Cosmic Cursed's Shelter
+06. Into the Spheres of Spirituality
+07. Satanik Generation
+08. Divine-X
+
+
+
+### "Era-Decay" 2004, Black Metal
+
+01. Marchemergence
+02. March Of The Consistory
+03. Umbilical Cutting
+04. A Pallbearer's Gloom
+05. Ascention
+06. H-Eradicate
+07. Xtasian Ostix
+08. Co-Existent Species
+09. The Blade Upon Mankind
+
 
 ## Отношения с другими группами
 

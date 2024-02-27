@@ -1,7 +1,22 @@
 # Room With A View
 
-Дискография
-"First Year Departure" 2002, Gothic
+avantgarde gothic metal
+
+## Дискография
+
+### "First Year Departure" 2002, Gothic
+
+1. Departures [Litoranea Imaginaire]
+2. Single Handed [The Days Of The Trumpet Call]
+3. Club Epoque [Febbraio Decade Silente]
+4. End Of Season [Sunset Boulevard]
+5. Hero [Novecento Aufwiedersehen]
+6. Madeleine [Futurismo Y Tradiciуn]
+7. Budapest Song [Music From Baltikum Sheherazade]
+8. L'Enfant Italie [Moderato Cantabile]
+9. Tiergarten [Komrad Kiev]
+
+
 
 ## Отношения с другими группами
 

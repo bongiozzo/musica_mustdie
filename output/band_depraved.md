@@ -1,11 +1,29 @@
 # Depraved
 
-Дискография
-"(Welcome) In Our World of Depravity (demo)" 1994, Grindcore
-"Sexual Killer (demo)" 1995, Grindcore
-"CD 2 Songs" 1997, Grindcore
-"Sexual Depravity... And Pleasure to Suffer" 1999, Death Metal
-"Decadence & Lust" 2001, Death Metal
+French Brutal Death/Grind
+
+## Дискография
+
+### "(Welcome) In Our World of Depravity (demo)" 1994, Grindcore
+
+
+
+### "Sexual Killer (demo)" 1995, Grindcore
+
+
+
+### "CD 2 Songs" 1997, Grindcore
+
+
+
+### "Sexual Depravity... And Pleasure to Suffer" 1999, Death Metal
+
+
+
+### "Decadence & Lust" 2001, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

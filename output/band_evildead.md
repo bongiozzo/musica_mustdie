@@ -1,10 +1,36 @@
 # Evildead
 
-Дискография
-"Annihilation Of Civilization" 1989, Thrash
-"Rise Above (EP)" 1989, Thrash
-"The Underworld" 1991, Thrash
-"From the Depths of the Underworld (live)" 1992, Thrash
+
+
+## Дискография
+
+### "Annihilation Of Civilization" 1989, Thrash
+
+1. F.C.I./ The Awakening
+2. Annihilation of Civilization 
+3. Living Good 
+4. Future Shock 
+5. Gone Shooting 
+6. Holy Trials
+7. Parricide 
+8. Unauthorized Exploitation 
+9. B.O.H.I.C.A.
+10. Rise Above*
+11. Sloe-Death*
+12. Run Again* (*Bonus Tracks)
+
+### "Rise Above (EP)" 1989, Thrash
+
+
+
+### "The Underworld" 1991, Thrash
+
+
+
+### "From the Depths of the Underworld (live)" 1992, Thrash
+
+
+
 
 ## Отношения с другими группами
 

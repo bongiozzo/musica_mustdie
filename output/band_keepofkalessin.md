@@ -1,14 +1,92 @@
 # Keep Of Kalessin
 
-Дискография
-"Through Times Of War" 1997, Black Metal
-"Agnen: A Journey Through The Dark" 1999, Black Metal
-"Reclaim (EP)" 2003, Black Metal
-"Armada" 2006, Black Metal
-"Kolossus" 2008, Black Metal
-"Reptilian" 2010, Black Metal
-"Epistemology" 2015, Black Metal
-"Heaven of Sin (EP)" 2016, Black Metal
+
+
+## Дискография
+
+### "Through Times Of War" 1997, Black Metal
+
+
+
+### "Agnen: A Journey Through The Dark" 1999, Black Metal
+
+
+
+### "Reclaim (EP)" 2003, Black Metal
+
+
+
+### "Armada" 2006, Black Metal
+
+1. Surface 
+2. Crown of the Kings 
+3. The Black Uncharted 
+4. Vengeance Rising 
+5. Many are We 
+6. Winged Watcher 
+7. Into the Fire 
+8. Deluge 
+9. The Wealth of Darkness 
+10. Armada 
+
+Line-Up: 
+Obsidian C.- Compposer, Guitars, Synth, backing vocals 
+Wizziac - Bass 
+Thebon - Lead Vocals 
+Vyl - Drums
+
+### "Kolossus" 2008, Black Metal
+
+01. Origin 
+02. A New Empire"s Birth 
+03. Against the Gods 
+04. The Rising Sign 
+05. Warmonger 
+06. Escape the Union 
+07. The Mark of Power 
+08. Kolossus 
+09. Ascendant
+
+### "Reptilian" 2010, Black Metal
+
+1. Dragon Iconography 07:30  
+2. The Awakening 08:19  
+3. Judgement 05:10  
+4. The Dragontower 04:43 
+5. Leaving The Mortal Flesh 04:25  
+6. Dark As Moonless Night 05:50  
+7. The Divine Land 06:47  
+8. Reptilian Majesty 14:13 
+
+
+Bonus DVD:
+1. Crown of the Kings (Live in Trondheim 2009) (07:18)
+2. Winged Watcher (Live in Trondheim 2009) (03:43)
+3. Many Are We (Live in Trondheim 2009) (05:25) 
+
+### "Epistemology" 2015, Black Metal
+
+1. Cosmic Revelation  01:14   
+2. The Spiritual Relief  09:54  
+3. Dark Divinity  07:34  
+4. The Grand Design  07:38  
+5. Necropolis  07:19   
+6. Universal Core  03:54   
+7. Introspection  05:05   
+8. Epistemology  09:40   
+9. Anima Mundi  02:03   
+10. Novae Ruptis  01:48 
+
+
+### "Heaven of Sin (EP)" 2016, Black Metal
+
+1. Descendant - The Legacy of Kings  05:28 
+2. Typology  04:10    
+3. Heaven of Sin  05:18  
+
+
+Recorded during the Epistemology recording sessions
+
 
 ## Отношения с другими группами
 

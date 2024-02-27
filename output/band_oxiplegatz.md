@@ -1,7 +1,32 @@
 # Oxiplegatz
 
-Дискография
-"Worlds And Worlds" 1996, Death Metal
+
+
+## Дискография
+
+### "Worlds And Worlds" 1996, Death Metal
+
+1. Battle Of Species
+2. First Contact - Conflict
+3. Aftermath
+4. Quest
+5. Graveyard Dream
+6. Usurpers
+7. The End Is Nigh
+8. Abandon Earth
+9. Journey
+
+All songs written by Alf Swensson.
+Produced & engineered by Fredrik Nordstrom.
+Recorded At Studio Fredman.
+
+Sara Svensson - Female Vocals
+Tomas Svensson - Baritone
+
+All music, lyirccs, instruments, plus additional vocals by Myself - that is (ALF).
+
+(P)(C) 1996 FAIRYTALE Records
+
 
 ## Отношения с другими группами
 

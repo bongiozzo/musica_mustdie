@@ -1,10 +1,74 @@
 # Horror of Horrors
 
-Дискография
-"Sounds of Eerie" 1994, Death Metal
-"Fangs, Breaking The Skin" 1996, Death Metal
-"Blood of The Suspicious" 1997, Death Metal
-"Blood, Fangs and Foulness: The Complete Cursed Chronicles [compilation]" 2011, Death Metal
+
+
+## Дискография
+
+### "Sounds of Eerie" 1994, Death Metal
+
+1. Torn  02:54    
+2. Over Fiend  03:02   
+3. Under the Falling  05:30    
+4. Bleed with Us  02:58 
+5. Sounds of Eerie  04:38   
+6. Cursed  02:55   
+7. Dark Horizons  04:11  
+8. Old Burnt Church Road  04:29    
+9. Fever Burning  04:07 
+
+### "Fangs, Breaking The Skin" 1996, Death Metal
+
+1. Gone  03:56    
+2. Blood of the Suspicious  02:14  
+3. Bliss  02:40    
+4. Shackles  04:55    
+5. Tragic  03:03    
+6. Fangs  02:30    
+7. Throne of Horns  03:05
+8. Breaking the Skin  02:20    
+9. Funerals to Clone  03:07 
+10. Old Burnt Church Road  02:28 
+
+### "Blood of The Suspicious" 1997, Death Metal
+
+1. Gone  03:56    
+2. Blood of the Suspicious  02:14    
+3. Bliss  02:40    
+4. Shackles  04:55   
+5. Tragic  03:03    
+6. Fangs  02:30    
+7. Throne of Horns  03:05    
+8. Breaking the Skin  02:20    
+9. Funerals to Clone  03:07    
+10. Old Burnt Church Road  02:28 
+
+### "Blood, Fangs and Foulness: The Complete Cursed Chronicles [compilation]" 2011, Death Metal
+
+Disc 1 
+1. Torn  02:54
+2. Over Fiend  03:02  
+3. Under the Falling  05:30  
+4. Bleed with Us  02:58  
+5. Sounds of Eerie  04:38 
+6. Cursed  02:55   
+7. Dark Horizons  04:11  
+8. Old Burnt Church Road  04:29  
+9. Fever Burning  04:07
+ 
+Disc 2 
+1. Gone  03:56 
+2. Blood of the Suspicious  02:14
+3. Bliss  02:40    
+4. Shackles  04:55   
+5. Tragic  03:03   
+6. Fangs  02:30    
+7. Throne of Horns  03:05   
+8. Breaking the Skin  02:20   
+9. Funerals to Clone  03:07    
+10. Old Burnt Church Road  02:28   
+11. Mound of the Dead (Bonus)  05:09  
+12. The Devil Is Inside Me (Bonus)  04:33  
+
 
 ## Отношения с другими группами
 

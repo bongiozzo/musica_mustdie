@@ -1,7 +1,13 @@
 # Fu Manchu
 
-Дискография
-"Go For It... Live!" 2003, Punk
+punk-rock
+
+## Дискография
+
+### "Go For It... Live!" 2003, Punk
+
+
+
 
 ## Отношения с другими группами
 

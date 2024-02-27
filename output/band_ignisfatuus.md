@@ -1,7 +1,20 @@
 # Ignis Fatuus
 
-Дискография
-"Slowianska trwoga wiecznych" 2008, Black Metal
+
+
+## Дискография
+
+### "Slowianska trwoga wiecznych" 2008, Black Metal
+
+1.	 Intro	00:30	 
+2.	 Trwoga wiecznych	04:16	 
+3.	 Sulimirowe grodziszcze	04:06	 
+4.	 Piastun	03:32	 
+5.	 Szczyt Romsdalu	02:56	 
+6.	 O lasach	04:29	 
+7.	 Schreiben Sie	04:16	 
+8.	 Le&#347;na purchawa	09:34	
+
 
 ## Отношения с другими группами
 

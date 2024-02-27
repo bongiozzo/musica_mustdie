@@ -1,9 +1,31 @@
 # Crisandemia
 
-Дискография
-"Soberano Del Desierto" 2002, Thrash
-"Funcion de la Verdad" 2006, Thrash
-"Reconstruccion" 2011, Thrash
+
+
+## Дискография
+
+### "Soberano Del Desierto" 2002, Thrash
+
+1.	 Hombre	03:40	 
+2.	 Sobrevivencia	03:34	 
+3.	 Conformismo	04:22	 
+4.	 Soberano Del Desierto	03:11	 
+5.	 Pacheco No Muri&#243;	05:09	 
+6.	 El Aguante	04:44	 
+7.	 Superstici&#243;n	03:08	 
+8.	 Crisandemia	03:29	 
+9.	 Quinto mandamiento	03:32	 
+10.	 Carnicerias	04:01	 
+11.	 Avion Comercial	04:33
+
+### "Funcion de la Verdad" 2006, Thrash
+
+
+
+### "Reconstruccion" 2011, Thrash
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,23 @@
 # Stormrider, The
 
-Дискография
-"Criseida" 2003, Power Metal
+
+
+## Дискография
+
+### "Criseida" 2003, Power Metal
+
+1. The Storm 01:52
+2. Shadows of War (Visions) 05:14
+3. Messengers of Fate 06:01
+4. Never (Deep Winter) 10:47
+5. Time is the Punisher, Time is the Avenger 05:10
+6. Ritual 00:32  
+7. Cults of the Shadow 08:03
+8. Windhunter 06:27
+9. Montsacrum (Ready to Die) 06:01 
+10. The Track 06:11
+11. New Reign 02:55 
+
 
 ## Отношения с другими группами
 

@@ -1,12 +1,80 @@
 # Daylight Dies
 
-Дискография
-"Idle" 2000, Death Doom
-"No Reply" 2002, Death Doom
-"Live from the Relapse Contamination Festival" 2005, Death Doom
-"Dismantling Devotion" 2006, Death Doom
-"Lost to the Living " 2008, Death Doom
-"A Frail Becoming" 2012, Death Doom
+
+
+## Дискография
+
+### "Idle" 2000, Death Doom
+
+1. Unending Waves 06:50 
+2. Piano Interlude One 00:41  
+3. Forfeiture of Life 06:42 
+4. Piano Interlude Two 01:07  
+5. Stronger Days 08:16
+
+### "No Reply" 2002, Death Doom
+
+1. The Line That Divides 07:12 
+2. I Wait 06:47 
+3. Hollow Hands 06:07 
+4. Four Corners 08:11 
+5. Unending Waves 07:05 
+6. In The Silence 07:07  
+7. Minutes Pass 08:45  
+8. Back In The World 03:10  
+9. Everything That Belongs 06:44
+
+### "Live from the Relapse Contamination Festival" 2005, Death Doom
+
+1. The Line That Divides   
+2. I Wait   
+3. Hollow Hands   
+4. Four Corners   
+5. Everything That Belongs
+
+### "Dismantling Devotion" 2006, Death Doom
+
+1. A Life Less Lived 08:23  
+2. Dead Air 05:23  
+3. A Dream Resigned 07:28  
+4. All We Had 06:54  
+5. Solitary Refinement 05:23  
+6. Strive to See 06:39  
+7. Lies that Bind 05:53  
+8. Dismantling Devotion 06:59 
+
+
+Nathan Ellis - Vocals 
+Barre Gambling - Guitar 
+Charlie Shackelford - Guitar
+Jesse Haff - Drums 
+Egan O'Rourke - Bass
+
+### "Lost to the Living " 2008, Death Doom
+
+1. Cathedral 07:15  
+2. Descending 05:03  
+3. A Subtle Violence 05:41  
+4. And a Slow Surrender 03:28  
+5. Last Alone 06:27  
+6. Woke Up Lost 05:23  
+7. The Morning Light 05:20  
+8. At a Loss 04:59  
+9. A Portrait in White 07:58 
+
+
+### "A Frail Becoming" 2012, Death Doom
+
+1. Infidel
+2. The Pale Approach
+3. Sunset
+4. Dreaming Of Breathing
+5. A Final Vestige
+6. Ghosting
+7. Hold On To Nothing
+8. Water's Edge
+9. An Heir To Emptiness
+
 
 ## Отношения с другими группами
 

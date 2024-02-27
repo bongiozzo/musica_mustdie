@@ -1,7 +1,32 @@
 # Dawnfall
 
-Дискография
-"Dominance Of Darkness" 1995, Ambient
+Noise-Black Metal
+
+## Дискография
+
+### "Dominance Of Darkness" 1995, Ambient
+
+1. Intro
+2. Reach The Deep
+3. Dominance Of Darkness
+4. Eye Of Haze
+5. The Rise Of The Fields Beyond
+6. Ancient Sounds In The Vault Of Wind
+7. In My Rituals
+8. Black Silence
+9. Eternal Lands
+10.Into The Darkened Season Of Moon
+11.With Dark Winds
+
+All Songs By DAWNFALL.Produced By Opiros.
+Recorded & Mixed At Room 119.
+
+B.F.Rischer - Guitar,Vocals
+C.T.Albert - Drums
+Birgit  - Bass
+
+(P)&(C) 1995 N.E. Production
+
 
 ## Отношения с другими группами
 

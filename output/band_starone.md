@@ -1,9 +1,67 @@
 # Star One
 
-Дискография
-"Space Metal" 2002, Progressive
-"Live On Earth (2CD)" 2003, Progressive
-"Victims of the Modern Age" 2010, Progressive
+all-star project of Arjen "Ayreon" Lucassen
+
+## Дискография
+
+### "Space Metal" 2002, Progressive
+
+Disc One:
+1. Lift-Off
+2. Set Your Controls
+3. High Moon
+4. Songs Of The Ocean
+5. Master Of Darkness
+6. The Eye Of Ra
+7. Sandrider
+8. Perfect Survivor
+9. Intergalactic Space Crusaders
+10. Starchild
+
+Disc Two:
+1. Hawkwind Medley 
+- Master Of The Universe 
+- Silver Machine
+- Psychedelic Warlords
+- Brainstorm
+- Assault And Battery
+- The War I Survived
+- Space Is Deep
+- Spirit Of The Age
+- Lost Chronicles 
+2. Spaced Out
+3. Inseparable Enemies
+4. Space Oddity (Bowie)
+5. Starchild (mixed in Dolby Pro-Logic)
+6. Spaced Out (alternative version)
+
+### "Live On Earth (2CD)" 2003, Progressive
+
+
+
+### "Victims of the Modern Age" 2010, Progressive
+
+1. Down The Rabbit Hole 01:20  
+2. Digital Rain 06:23  
+3. Earth That Was 06:08 
+4. Victim Of The Modern Age 06:27 
+5. Human See, Human Do 05:14
+6. 24 Hours 07:20
+7. Cassandra Complex 05:24  
+8. It’s Alive, She’s Alive, We’re Alive 05:07 
+9. It All Ends Here 09:46 
+
+
+
+Limited edition contains a bonus CD with following tracklist.
+
+10. As the Crow Dies (4:42)
+11. Two Plus Two Equals Five (5:04)
+12. Lastday (4:46)
+13. Closer to the Stars (5:11)
+14. Knife Edge (4:25)
+15. The Making of Victims of the Modern Age (Video) (35:00) 
+
 
 ## Отношения с другими группами
 

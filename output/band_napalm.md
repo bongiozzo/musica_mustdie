@@ -1,7 +1,22 @@
 # Napalm
 
-Дискография
-"Goatwar Suicide (EP)" 2001, Black Metal
+(French Black)
+
+## Дискография
+
+### "Goatwar Suicide (EP)" 2001, Black Metal
+
+1. Intro / Smothered By Chrism
+2. Raw Oblivion Vomit (Glacial Sperm Of Satan)
+3. Goatwar Suicide
+4. Napalm Victory (666Obscuroccult)
+
+
+NecroBlackBaron
+Christormentor
+
+
+
 
 ## Отношения с другими группами
 

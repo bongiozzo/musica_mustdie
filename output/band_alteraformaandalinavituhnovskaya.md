@@ -1,7 +1,13 @@
 # Altera Forma and Alina Vituhnovskaya
 
-Дискография
-"s/t" 2004, Industrial
+industrial, EBM, elctro
+
+## Дискография
+
+### "s/t" 2004, Industrial
+
+
+
 
 ## Отношения с другими группами
 

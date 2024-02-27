@@ -1,17 +1,201 @@
 # Negura Bunget
 
-Дискография
-"From Transilvanian Forest (demo)" 1995, Black Metal
-"Zirnindu-Sa" 1996, Black Metal
-"Sala Molksa" 1998, Black Metal
-"Maiastru Sfetnic" 2000, Black Metal
-"'N Crugu Bradului" 2003, Black Metal
-"Om" 2006, Black Metal
-"Maiestrit" 2010, Black Metal
-"Virstele Pamintului" 2010, Black Metal
-"Poarta de dincolo (EP)" 2011, Black Metal
-"Tau" 2015, Black Metal
-"Zi" 2016, Black Metal
+romanian atmospheric black metal with folk elements
+
+## Дискография
+
+### "From Transilvanian Forest (demo)" 1995, Black Metal
+
+Vallachorum Tyranorum
+Tranylvanian Fullmoon Vampirism
+De Silvae Transilvaniae
+Immortality's Elegy: The Vampirism
+Phovala hula 
+
+
+Hupogrammos Disciple's - guitars/vocals
+Negru  - drums
+Ayvaz Valah Disciple's - keyboards/vocals 
+
+
+### "Zirnindu-Sa" 1996, Black Metal
+
+Blaznit
+Negrii
+In miaz de negru
+Din afundul adincului nitrupat
+Pohvala hula
+De rece singie
+Dupre reci imbre
+Vel proclet 
+
+
+
+Hupogrammos Disciple's - guitars/bass/vocals/keyboards
+Negru - drums  
+
+
+### "Sala Molksa" 1998, Black Metal
+
+Intro
+Suier de solomonar
+Sala molksa - Channeling through art immortal
+Din afundul adincului intrupat 
+
+
+
+Hupogrammos Disciple's - guitars/vocals/keyboards
+Negru - drums/percussion
+Spurcatu  - guitars/bass/vocals 
+
+
+### "Maiastru Sfetnic" 2000, Black Metal
+
+vremea locului sortit
+in-zicnirea apusului
+a-vint in abis
+al locului
+bruiestru
+plecaciunea mortii 
+
+
+Hupogrammos Disciples's - guitars/vocals/keyboards
+Negru - drums/percussion
+Spurcatu - guitars/bass 
+
+
+### "'N Crugu Bradului" 2003, Black Metal
+
+I
+II
+III
+IV
+
+
+
+Hupogrammos Disciple's  - guitars/vocals/keyboards/bass
+Negru  - drums/percussion
+Spurcatu  - guitars/vocals
+
+
+
+### "Om" 2006, Black Metal
+
+1. Ceasuri Rele 03:07  
+2. Tesarul De Lumini 12:48  
+3. Primul Om 04:22  
+4. Cunoaєterea Tгcutг 07:11  
+5. Inarborat 06:22  
+6. Dedesuptul 06:39  
+7. Norilor 03:00  
+8. De Piatrг 05:36  
+9. Cel Din Urmг Vis 10:03  
+10. Hora Soarelui 05:55  
+11. Al Doilea Om 02:03
+
+### "Maiestrit" 2010, Black Metal
+
+1. Vremea locului sortit  07:38    
+2. Оn-zvоcnirea apusului  10:03    
+3. A-vоnt оn abis  06:14    
+4. Al locului  10:26    
+5. Bruiestru  09:45    
+6. Plecгciunea morюii  11:12    
+7. A-vоnt оn abis (Acoustic Version)  08:22    
+8. Plecгciunea morюii (Acoustic Version)  09:45  
+
+
+Maiestrit is an re-intepretation of the "Maiastru sfetnic" album. This record contains the last studio recordings of the classic line-up (Hupogrammos, Sol Faur, Negru). The album is complemented by previously unreleased acoustic versions of "A-vint in abis" and "Plecaciunea mortii".
+
+Regular edition released as digipack cd.
+Also released as deluxe artbook edition, strictly limited to 1000 copies. 
+
+
+### "Virstele Pamintului" 2010, Black Metal
+
+1. Pamint  06:58    
+2. Dacia Hiperboreana  08:52   
+3. Umbra  03:31   
+4. Ochiul Inimii  08:04    
+5. Chei de roua  05:51   
+6. &#538;ara de Dincolo de Negura  05:54   
+7. Jar  04:29    
+8. Arborele Lumii  07:37    
+9. Intoarcerea Amurgului  08:21 
+
+
+Corb - Vocals / Guitars / Hammered Dulcimer   
+Negru - Drums / Percussion  
+Spin - Guitars  
+Ageru Pamantului - Vocals / Percussion / Kaval / Xylophone / Tulnic  
+Gadinet - Bass / Pan Flute  
+ 
+Inia Dinia  Keyboards  
+ 
+
+
+### "Poarta de dincolo (EP)" 2011, Black Metal
+
+1. Hotar  08:34    
+2. La Marginea Lumii  06:46    
+3. Frig in Oase  07:27    
+4. Poarta de Dincolo  05:33 
+
+
+### "Tau" 2015, Black Metal
+
+Disc 1 
+1. Nametenie  10:16   
+2. Izbucul galbenei  06:30   
+3. La hotaru cu cinci culmi  04:11   
+4. Curgerea muntelui  05:25   
+5. Tarim vilhovnicesc  06:39   
+6. Impodobeala timpului  06:12   
+7. Picur viu foc  05:10   
+8. Schimniceste  06:09 
+  
+Disc 2 (CD)  
+1. La hotaru cu cinci culmi (Alternate version)  04:11 
+2. Impodobeala timpului (Alternate version)  06:10 
+
+Disc 3 (DVD)  
+1. Nametenie (Video clip)  
+2. Curgerea muntelui (Video clip) 
+3. Schimniceste (Video clip)  
+
+Includes:
+ - CD Digipak.
+ - Bonus CD with two songs.
+ - bonus DVD with three video clips and interview.
+ - 72 pages with additional artwork, texts and English translations of the lyrics.
+ - Hardcover.
+ - 28 x 28 cm poser.
+
+Recorded at Negurг Music Studio.
+
+
+### "Zi" 2016, Black Metal
+
+CD 1
+1. Tul-ni-ca-rind (Horn-ing)
+2. Gradina stelelor (Garden of Stars)
+3. Brazda da foc (Furrow of Fire)
+4. Baciul Mosneag (The Old Shepherd)
+5. Stanciu Gruiul (Stanciu Gruiul)
+6. Marea Cea Mare (The Vast Sea)
+
+CD 2
+1. Tul-ni-ca-rind (re-mixed version by Daniel Doroban&#539;u)
+2. Brazda da foc (re-mixed version by Silent Strike)
+3. Schimniceste (re-mixed version by Tibor Kati & Ionu&#539; Carja)
+4. Baciu mosneag (re-mixed version by Adrian “Oq” Neagoe & Tragacanth)
+
+Bonus DVD 
+1. ZI - album short film
+2. Tul-ni-ca-rind - visual
+3. Stanciu Gruiul - visual
+
+
 
 ## Отношения с другими группами
 

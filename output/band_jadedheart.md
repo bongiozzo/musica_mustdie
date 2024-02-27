@@ -1,14 +1,78 @@
 # Jaded Heart
 
-Дискография
-"Mystery Eyes" , Hard Rock
-"IV" , Hard Rock
-"Inside Out" 1994, Hard Rock
-"Sla ves & Master" 1997, Hard Rock
-"The Journey Will Never End" 2002, Hard Rock
-"Trust" 2004, Hard Rock
-"Helluva Time" 2005, Hard Rock
-"Perfect Insanity" 2009, Hard Rock
+Melodic Hard
+
+## Дискография
+
+### "Mystery Eyes" , Hard Rock
+
+
+
+### "IV" , Hard Rock
+
+
+
+### "Inside Out" 1994, Hard Rock
+
+
+
+### "Sla ves & Master" 1997, Hard Rock
+
+
+
+### "The Journey Will Never End" 2002, Hard Rock
+
+1. Intro 
+2. Kid Is Going Down 
+3. The Journey Will Never End 
+4. On The Rise 
+5. We'll Drag You Down 
+6. Only Human 
+7. Lucky Son 
+8. I'll Be There 
+9. Larger Than Life 
+10. Dangerous Destiny 
+11. These Are The Good Times 
+12. Sunshine Memories 
+13. Sign Of The Times
+
+### "Trust" 2004, Hard Rock
+
+Anymore 
+Feels like home 
+Healer 
+Burning heart 
+If I lose 
+Trust 
+Masquerade 
+Let it rain 
+Love is magic 
+Sweet summertime 
+Hating you 
+Jaded 
+Give it back
+Bonus:
+The Making Of Trust (video)
+
+### "Helluva Time" 2005, Hard Rock
+
+1. Tomorrow Comes
+2. Hole In My Heart
+3. Somewhere
+4. Dreams You'll Never See  
+5. Who's Foolin'
+6. Paid My Dues
+7. Without You
+8. Love & Desire
+9. No One
+10. Shores Of Paradise
+11. Frozen Heart
+12. Love To Live
+
+### "Perfect Insanity" 2009, Hard Rock
+
+
+
 
 ## Отношения с другими группами
 

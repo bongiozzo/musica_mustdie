@@ -1,8 +1,46 @@
 # Exhorder
 
-Дискография
-"Slaughter In Vatican" 1990, Thrash
-"The Law" 1992, Thrash
+
+
+## Дискография
+
+### "Slaughter In Vatican" 1990, Thrash
+
+1. Death In Vain 5.30
+2. Homicide 3.12
+3. Desecrator 6.08
+4. Exhorder 5.10
+5. The Tragic Period 7.05
+6. Legions Of Death 4.30
+7. Anal Lust 2.34
+8. Slaughter In Vatican 7.18
+
+(p)&(c) 1990 ROADRACER Records
+
+### "The Law" 1992, Thrash
+
+1. Soulsearch Me    4.51
+2. Unforgiven    3.53
+3. I Am The Cross    4.33
+4. Unborn Again    6.05
+5. Into The Void *    6.05
+6. The Truth    3.26
+7. The Law    4.54
+8. Incontinence    3.45
+9. The Dirge    4.33
+
+ Kyle Thomas - Vocals
+ Vinnie LaBella - Guitars
+ Jay Ceravolo - Guitars
+ Franky Sparcello - Bass
+ Chris Nail  - Drums
+
+All Bass Played By Vinni LaBella.
+All Songs By EXHORDER Except * By BLACK SABBATH.
+Produced By Rob Beaton & EXHORDER.
+
+(p)&(c) 1992 ROADRUNNER Records
+
 
 ## Отношения с другими группами
 

@@ -1,11 +1,109 @@
 # Origin
 
-Дискография
-"Origin" 2000, Techno Death
-"Informis Infinitas Inhumanitas" 2002, Techno Death
-"Echoes of Decimation" 2005, Techno Death
-"Antithesis" 2008, Techno Death
-"Entity" 2011, Techno Death
+
+
+## Дискография
+
+### "Origin" 2000, Techno Death
+
+1. Lethal Manipulation (the Bonecrusher Chronicles)  02:26   
+2. Sociocide  04:12    
+3. Vomit You Out  03:20   
+4. Origin  02:55    
+5. Mental Torment  03:49  
+6. Manimal Instincts  03:00    
+7. Infliction  02:51   
+8. Disease Called Man  03:44  
+9. Inner Reflections  03:26  
+
+
+Line up:
+Mark Manning - Vocals
+Paul Ryan - Guitar, Vocals
+Jeremy Turner - Guitar
+Doug Williams - Bass
+John Longstreth - Drums
+
+The intro to Manimal Instincts is taken from the movie Legend. 
+
+
+### "Informis Infinitas Inhumanitas" 2002, Techno Death
+
+1. Larvae of the Lie  03:03   
+2. Inhuman  02:38   
+3. Awaken the Suffering  03:07   
+4. Perversion of Hate  02:53    
+5. Portal  03:17   
+6. Meat for the Beast  03:06    
+7. Mental Torment  02:58    
+8. Insurrection  04:24    
+9. Implosion of Eternity  03:06 
+
+
+
+Line up:
+James Lee - Lead Vocals
+Paul Ryan - Guitar, Vocals
+Jeremy Turner - Guitar, Vocals
+Mike Flores - Bass
+John Longstreth - Drums
+
+Sample at the start of Inhuman is Alan Rickman (Dogma). 
+
+
+### "Echoes of Decimation" 2005, Techno Death
+
+1. Reciprocal  02:26   
+2. Endless Cure  02:21   
+3. The Burner  02:20    
+4. Designed to Expire  03:11    
+5. Cloning the Stillborn  02:13   
+6. Staring From the Abyss  03:57   
+7. Amoeba  02:19   
+8. Debased Humanity  03:39   
+9. Echoes of Decimation  04:02  
+
+
+Line up:
+James Lee - Vocals
+Paul Ryan - Guitar
+Clint Appelhanz - Guitar
+Mike Flores - Bass
+James King - Drums
+
+
+
+### "Antithesis" 2008, Techno Death
+
+1. The Aftermath  04:39   
+2. Algorithm  03:32    
+3. Consuming Misery  04:06    
+4. Wrath of Vishnu  04:44   
+5. Finite  03:08    
+6. The Appalling  02:55   
+7. Void  00:40 
+8. Ubiquitous  05:34   
+9. The Beyond Within  03:20   
+10. Antithesis  09:32 
+
+
+
+
+### "Entity" 2011, Techno Death
+
+1. Expulsion of Fury  02:50    
+2. Purgatory  01:25    
+3. Conceiving Death  04:00    
+4. Swarm  02:15    
+5. Saligia  06:52    
+6. The Descent  01:31   
+7. Fornever  02:09    
+8. Committed  01:56    
+9. Banishing Illusion  01:41    
+10. Consequence of Solution  07:09    
+11. Evolution of Extinction  04:43 
+
+
 
 ## Отношения с другими группами
 

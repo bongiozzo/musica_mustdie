@@ -1,7 +1,26 @@
 # Circle Jerks
 
-Дискография
-"Oddities, Abnormalities And Curiosities" 1995, Punk
+
+
+## Дискография
+
+### "Oddities, Abnormalities And Curiosities" 1995, Punk
+
+1.  Teenage Eclectic
+2.  Anxious Boy 
+3.  22 
+4.  Shining Through The Door 
+5.  I Wanna Destroy You 
+6.  Sinking Ship 
+7.  Brick 
+8.  Fable 
+9.  Dog 
+10.Grey Life 
+11.Exhaust Breath 
+12.Career Day
+
+(P)(C) 1995 MERCURY Records
+
 
 ## Отношения с другими группами
 

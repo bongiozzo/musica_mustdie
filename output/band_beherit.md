@@ -1,12 +1,113 @@
 # Beherit
 
-Дискография
-"The Oath Of The Black Blood" 1992, Black Metal
-"Drawing Down The Moon" 1993, Black Metal
-"H418 ov 21.C" 1994, Ambient
-"Electric Doom Synthesis (Lycanthropia)" 1996, Ambient
-"Engram" 2009, Black Metal
-"At The Devil's Studio 1990" 2011, Black Metal
+Extreme Satanic Black Metal
+
+## Дискография
+
+### "The Oath Of The Black Blood" 1992, Black Metal
+
+1. Intro
+2. Metal Of Death
+3. The Oath Of The Black Blood
+4. Grave Desecration
+5. Witchcraft
+6. Goat Worship
+7. Demonomancy
+8. Black Mass Prayer
+9. Beast Of Damnation
+10.Hail Sathanas
+11.Dawn Of Satan Millenium
+
+Produced By BEHERIT
+Recorded & Mixed At Alaky Studio
+
+(p)&(c) 1992 TURBO Music
+
+### "Drawing Down The Moon" 1993, Black Metal
+
+1. Intro (Tireheb)
+2. Solomon`s Gate
+3. Nocturnal Evil
+4. Sadomatic Rites
+5. Black Arts
+6. The Gate Of Nanna
+7. Nuclear Girl
+8. Unholy Pagan Fire
+9. Down There...
+10.Summerlands
+11.Werewolf,Semen And Blood
+12.Thou Angel Of The Gods
+13.Lord Of Shadows And Goldenwood
+
+ Nuclear Holocausto,Vengeance - Guitars, Vocals
+ Black Jesus - Bass
+ Necroperversor - Drums
+
+Music By Holocaust.
+Produced By Holocaust.
+Recorded And Mixed At Studio Sound,Kuopio,Finland.
+
+(p)&(c) 1993 SPINEFARM Records
+
+### "H418 ov 21.C" 1994, Ambient
+
+1. The Gate Of Innana
+2. Tribal Death
+3. Emotional Ecstasy
+4. Fish
+5. 21st Century
+6. Paradise (Part II)
+7. Mystic Force
+8. Spirit Of The God Of Fire
+9. E-Scape
+
+Music & Magich By BEHERIT
+Recorded 2, 3 1994 In Helsinki
+Mixed 4 1994 In Helsinki By J. Reset,  Holocaust, Gamma-G.
+
+(p)&(c) 1994 SPINEFARM Records
+
+### "Electric Doom Synthesis (Lycanthropia)" 1996, Ambient
+
+1.  Ambush
+2.  We Worship
+3.  Dead Inside
+4.  Beyond Vision
+5.  Deep Night 23rd
+6.  Drawing Down The Moon
+7.  Sense
+8.  Temple Of Lykos
+
+Recorded At M&B 37 Studios
+Mastered At Finnvox By Pauli Saastomoinen.
+Art & Layout By Wowixstorm.
+
+Beherit - Vocals, Percussion, Guitars
+
+(P)c 1996 SPINEFARM Records //SP 128
+
+### "Engram" 2009, Black Metal
+
+1. Axiom Heroine 04:41  
+2. Destroyer of Thousand Worlds 03:05  
+3. All in Satan 03:33  
+4. Pagan Moon 07:16  
+5. Pimeyden Henki 04:45  
+6. Suck My Blood 04:27  
+7. Demon Advance 15:17 
+
+### "At The Devil's Studio 1990" 2011, Black Metal
+
+1. Rehearsal
+2. Grave Desecration Vengeance 
+3. At the Devil's Churns
+4. Nocturnal Evil 
+5. Whores of Belial  
+6. Witchcraft
+7. The Oath of Black Blood  
+8. Six Days with Sadistic Slayer 
+9. Demonomancy
+
 
 ## Отношения с другими группами
 

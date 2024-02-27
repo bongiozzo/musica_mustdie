@@ -1,13 +1,130 @@
 # Burning Point
 
-Дискография
-"Salvation By Fire" 2001, Power Metal
-"Feeding the Flames" 2003, Power Metal
-"Burned Down The Enemy" 2007, Heavy Metal
-"Empyre" 2009, Heavy Metal
-"The Ignitor" 2012, Power Metal
-"Burning Point" 2015, Heavy Metal
-"The Blaze" 2016, Heavy Metal
+
+
+## Дискография
+
+### "Salvation By Fire" 2001, Power Metal
+
+1. The Burning Point (inst.) 00:58  
+2. Under The Dying Sun 04:32
+3. Lake Of Fire 05:50 
+4. Fall Of Thy Kingdom 04:25 
+5. Higher 04:10  
+6. Black Star 04:57 
+7. Stealer Of Light 04:59 
+8. The One 03:36  
+9. Signs Of Danger 04:33 
+10. Salvation By Fire 07:37
+
+### "Feeding the Flames" 2003, Power Metal
+
+1. Into the Fire 03:09 [view lyrics] 
+2. Blackened the Sun 04:25 
+3. Veil of Secrecy 05:16 
+4. Voice From the Past 03:28
+5. I Am the Silent One 04:44 
+6. Stray Bullet 04:05
+7. Nightgames 02:54  
+8. Quicker Than the Eye 04:00
+9. Malmikivi (Instrumental) 01:42  
+10. Resurrection Machine 03:26 
+11. All the Madness 04:59  
+12. Feeding the Flames 08:18
+
+### "Burned Down The Enemy" 2007, Heavy Metal
+
+1. Parasite 05:13  
+2. Heart of gold 05:48  
+3. Dawn of the ancient war 04:09  
+4. Hell awaits 04:12  
+5. From the beginning of it all 05:20  
+6. Icebound 05:04  
+7. Deceiver 03:56  
+8. Eye for an eye 06:37  
+9. To hell and back 04:14  
+10. Against the madness of time 04:35  
+11. Burned down the enemy 08:56  
+12. My reign, my fire (bonus)   
+13. Heart of gold "demo" (bonus)   
+14. The road to hell (bonus)
+
+
+Japanese Limited Edition contains 2 bonus tracks:
+12. Nocturnal sight
+13. Bring me oblivion
+
+
+
+Pete Ahonen - Vocals, Guitar 
+Jari Kaiponen - Drums 
+Pekka Kolivuori - guitar 
+Jussi Ontero - Keyboard
+
+### "Empyre" 2009, Heavy Metal
+
+1. Intro (The Gothfather Theme)
+2. Empyre
+3. Manic Merry-Go-Round
+4. Face The Truth
+5. Fool's Paradise
+6. Was It Me Again
+7. Walls Of Stone
+8. Sacrifice
+9. Cruel World
+10. Blinded By The Darkness
+11. Only The Wrong Will Survive
+
+### "The Ignitor" 2012, Power Metal
+
+1. Eternal Flame (Salvation by Fire Part II)  03:58   
+2. In the Fires of My Self-Made Hell  03:08   
+3. In the Night  03:50   
+4. The Ignitor  04:08   
+5. Silent Scream  04:38   
+6. Heaven Is Hell  04:28   
+7. Losing Sleep  04:02   
+8. Demon Inside of You  03:46  
+9. Everdream  03:41   
+10. Lost Tribe  03:45   
+11. Holier than Thou  04:22   
+12. Ice Queen  03:33    
+13. Blood Will Win   03:13 
+
+
+### "Burning Point" 2015, Heavy Metal
+
+1. In the Shadows  02:55   
+2. All the Madness (2015)  05:04   
+3. Signs of Danger (2015)  04:33   
+4. Find Your Soul  03:53   
+5. Heart of Gold (2015)  04:27   
+6. My Darkest Times  04:12   
+7. Dawn of the Ancient War (2015)  04:00   
+8. Into the Fire (2015)  03:07   
+9. Queen of Fire  04:40   
+10. Blackened the Sun (2015)  04:31   
+11. I've Had Enough (Into the Fire) (KISS cover)  03:59   
+12. Ton of Bricks (Metal Church cover)  
+
+
+Features five new songs and six re-recorded tracks.
+
+### "The Blaze" 2016, Heavy Metal
+
+1. Master Them All  03:31    
+2. Time Has Come  03:48 
+3. Incarnation  03:25   
+4. My Spirit  04:31   
+5. The Lie  03:42    
+6. Dark Winged Angel  03:34   
+7. Chaos Rising  04:01   
+8. Lost in Your Thoughts  04:22   
+9. Things That Drag Me Down  04:08  
+10. The King Is Dead, Long Live the King  04:29  
+11. Metal Queen (Lee Aaron cover)  04:56 
+
+
 
 ## Отношения с другими группами
 

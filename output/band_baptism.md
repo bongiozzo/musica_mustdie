@@ -1,11 +1,36 @@
 # Baptism
 
-Дискография
-"The Beherial Midnight" 2002, Black Metal
-"Morbid Wings of Sathanas" 2005, Black Metal
-"Grim Arts Of Melancholy" 2008, Black Metal
-"As the Darkness Enters" 2012, Black Metal
-"V: The Devil's Fire" 2016, Black Metal
+
+
+## Дискография
+
+### "The Beherial Midnight" 2002, Black Metal
+
+
+
+### "Morbid Wings of Sathanas" 2005, Black Metal
+
+
+
+### "Grim Arts Of Melancholy" 2008, Black Metal
+
+
+
+### "As the Darkness Enters" 2012, Black Metal
+
+
+
+### "V: The Devil's Fire" 2016, Black Metal
+
+1. Natus ex Ignis 
+2. Satananda 
+3. The Sacrament of Blood and Ash 
+4. Devil's Fire 
+5. Abyss 
+6. Cold Eternity 
+7. Malignant Shadows 
+8. Buried with Him 
+
 
 ## Отношения с другими группами
 

@@ -1,24 +1,337 @@
 # Rush
 
-Дискография
-"Rush" 1974, Instrumental
-"Fly by Night" 1975, Instrumental
-"Hemispheres" 1978, Instrumental
-"Permanent Waves" 1980, Instrumental
-"Moving Pictures" 1981, Instrumental
-"Signals" 1982, Instrumental
-"Grace Under Pressure" 1984, Instrumental
-"Power Windows" 1985, Instrumental
-"Hold Your Fire" 1987, Instrumental
-"Presto" 1989, Instrumental
-"Roll the Bones" 1991, Instrumental
-"Counterparts" 1993, Instrumental
-"Test for Echo" 1996, Instrumental
-"Different Stages (Live)" 1998, Instrumental
-"Vapor Trails" 2002, Instrumental
-"Rush In Rio (Live)" 2003, Instrumental
-"Feedback" 2004, Instrumental
-"Snakes & Arrows" 2007, Instrumental
+(Canadian Art-rock Legend)
+
+## Дискография
+
+### "Rush" 1974, Instrumental
+
+1 Finding My Way 5:05 (Rush) 
+2 Need Some Love 2:19 (Rush) 
+3 Take a Friend 4:24 (Rush) 
+4 Here Again 7:34 (Rush) 
+5 What You're Doing 4:22 (Rush) 
+6 In the Mood 3:33 (Rush) 
+7 Before and After 5:34 (Rush) 
+8 Working Man 7:10 (Rush) 
+
+
+### "Fly by Night" 1975, Instrumental
+
+1 Anthem 4:21 (Rush) 
+2 Best I Can 3:25 (Rush) 
+3 Beneath, Between & Behind 3:01 (Rush) 
+4 By-Tor and the Snow Dog 8:37 (Rush) 
+5 Fly by Night 3:21 (Rush) 
+6 Making Memories 2:57 (Rush) 
+7 Rivendell 4:57 (Rush) 
+8 In the End 6:46 (Rush) 
+
+
+### "Hemispheres" 1978, Instrumental
+
+1 Cygnus X-1 Book II Hemispheres: Prelude/Apollo Bringer of Wisdom/Dion 18:04 (Rush) 
+2 Circumstances 3:40 (Rush) 
+3 Trees 4:42 (Rush) 
+4 Villa Strangiato 9:34 (Rush) 
+
+
+### "Permanent Waves" 1980, Instrumental
+
+1 Spirit of Radio (Rush) 
+2 Freewill (Rush) 
+3 Jacob's Ladder (Rush) 
+4 Entre Nous (Rush) 
+5 Different Strings (Rush) 
+6 Natural Science (Rush) 
+
+
+### "Moving Pictures" 1981, Instrumental
+
+1 Tom Sawyer 4:33 (Rush) 
+2 Red Barchetta 6:09 (Rush) 
+3 YYZ 4:24 (Rush) 
+4 Limelight 4:19 (Rush) 
+5 Camera Eye 10:58 (Rush) 
+6 Witch Hunt 4:44 (Rush) 
+7 Vital Signs 4:46 (Rush) 
+
+
+### "Signals" 1982, Instrumental
+
+  1.   Subdivisions (Lee/Lifeson/Peart) - 5:33 
+   2.   The Analog Kid (Lee/Lifeson/Peart) - 4:47 
+   3.   Chemistry (Lee/Lifeson/Peart) - 4:57 
+   4.   Digital Man (Lee/Lifeson/Peart) - 6:20 
+   5.   The Weapon (Lee/Lifeson/Peart) - 6:23 
+   6.   New World Man (Lee/Lifeson/Peart) - 3:42 
+   7.   Losing It (Lee/Lifeson/Peart) - 4:52 
+   8.   Countdown (Lee/Lifeson/Peart) - 5:50 
+
+
+Rush  -  Arranger, Producer 
+Terry Brown  -  Arranger, Producer 
+Geddy Lee  -  Synthesizer, Bass, Guitar, Guitar (Bass), Keyboards, Vocals, Lyricist 
+Alex Lifeson  -  Guitar (Acoustic), Guitar, Guitar (Electric), Lyricist, Bass Pedals 
+Bob Ludwig  -  Mastering 
+Ben Mink  -  Violin, Violin (Electric), Electric Violin 
+Paul Northfield  -  Engineer, Mixing 
+Neil Peart  -  Percussion, Drums, Lyricist 
+Hugh Syme  -  Artwork, Art Direction, Concept, Cover Art Concept 
+Rush Brown  -  Arranger, Producer 
+Deborah Samuel  -  Photography 
+Brian Lee  -  Mastering 
+Steve Kleinberg  -  Redesign 
+Robbie Whelan  -  Assistant Engineer, Mixing Assistant 
+
+
+### "Grace Under Pressure" 1984, Instrumental
+
+   1.   Distant Early Warning (Lee/Lifeson/Peart) - 4:56 
+   2.   Afterimage (Lee/Lifeson/Peart) - 5:03 
+   3.   Red Sector A (Lee/Lifeson/Peart) - 5:09 
+   4.   The Enemy Within (Lee/Lifeson/Peart) - 4:34 
+   5.   The Body Electric (Lee/Lifeson/Peart) - 4:59 
+   6.   Kid Gloves (Lee/Lifeson/Peart) - 4:18 
+   7.   Red Lenses (Lee/Lifeson/Peart) - 4:43 
+   8.   Between the Wheels (Lee/Lifeson/Peart) - 5:44 
+
+
+Rush  -  Producer 
+Jim Burgess  -  Synthesizer, Programming 
+Peter Henderson  -  Producer, Engineer 
+Geddy Lee  -  Synthesizer, Bass, Guitar, Guitar (Bass), Keyboards, Vocals, Producer 
+Alex Lifeson  -  Synthesizer, Guitar, Producer 
+Bob Ludwig  -  Mastering 
+Paul Northfield  -  Synthesizer, Programming 
+Frank Opolko  -  Assistant Engineer 
+Neil Peart  -  Percussion, Drums, Producer, Electronic Percussion 
+Hugh Syme  -  Art Direction, Paintings 
+Jon Erickson  -  Pre-Production Engineer 
+Roberto Di Gioia  -  Assistant Engineer 
+Steve Kleinberg  -  Design 
+
+
+### "Power Windows" 1985, Instrumental
+
+   1.   The Big Money (Lee/Lifeson/Peart) - 5:34 
+   2.   Grand Designs (Lee/Lifeson/Peart) - 5:05 
+   3.   Manhattan Project (Lee/Lifeson/Peart) - 5:05 
+   4.   Marathon (Lee/Lifeson/Peart) - 6:09 
+   5.   Territories (Lee/Lifeson/Peart) - 6:19 
+   6.   Middletown Dreams (Lee/Lifeson/Peart) - 5:15 
+   7.   Emotion Detector (Lee/Lifeson/Peart) - 5:10 
+   8.   Mystic Rhythms (Lee/Lifeson/Peart) - 5:53 
+
+
+Rush  -  Arranger, Producer 
+Peter Collins  -  Arranger, Producer 
+Anne Dudley  -  Strings, Conductor, String Arrangements 
+The Choir  -  Vocals 
+James Barton  -  Engineer 
+Jim Burgess  -  Synthesizer, Programming 
+Stephen Chase  -  Assistant Engineer 
+Andrew Jackman  -  Arranger, Conductor, Vocal Arrangement 
+Geddy Lee  -  Synthesizer, Bass, Guitar, Guitar (Bass), Keyboards, Vocals, Producer, Bass Pedals 
+Alex Lifeson  -  Guitar (Acoustic), Guitar, Guitar (Electric), Producer 
+Bob Ludwig  -  Mastering 
+Dave Meegan  -  Assistant Engineer 
+Heff Moraes  -  Assistant Engineer 
+Neil Peart  -  Percussion, Drums, Producer, Electronic Percussion 
+Andy Richards  -  Keyboards, Programming 
+Hugh Syme  -  Artwork, Art Direction, Cover Design, Paintings 
+Paul Wright  -  Assistant Engineer 
+Jim Barton  -  Engineer 
+Dimo Safari  -  Photography 
+Brian Lee  -  Mastering 
+Liam Birt  -  Executive Producer 
+Steve Kleinberg  -  Cover Design 
+Matt Butler  -  Assistant Engineer 
+
+
+### "Hold Your Fire" 1987, Instrumental
+
+   1.   Force Ten (Dubois/Lee/Lifeson/Peart) - 4:31 
+   2.   Time Stand Still (Lee/Lifeson/Peart) - 5:09 
+   3.   Open Secrets (Lee/Lifeson/Peart) - 5:38 
+   4.   Second Nature (Lee/Lifeson/Peart) - 4:36 
+   5.   Prime Mover (Lee/Lifeson/Peart) - 5:19 
+   6.   Lock and Key (Lee/Lifeson/Peart) - 5:09 
+   7.   Mission (Lee/Lifeson/Peart) - 5:16 
+   8.   Turn the Page (Lee/Lifeson/Peart) - 4:55 
+   9.   Tai Shan (Lee/Lifeson/Peart) - 4:15 
+   10.   High Water (Lee/Lifeson/Peart) - 5:33 
+
+
+Rush  -  Arranger, Producer 
+Peter Collins  -  Arranger, Producer 
+Aimee Mann  -  Vocals 
+Scott Alexander     
+James Barton  -  Engineer 
+Jim Burgess  -  Synthesizer 
+Andrew Jackman  -  Arranger, Conductor 
+Geddy Lee  -  Synthesizer, Bass, Guitar, Guitar (Bass), Keyboards, Vocals, Bass Pedals, Pedals 
+Alex Lifeson  -  Guitar (Acoustic), Guitar, Guitar (Electric) 
+Bob Ludwig  -  Mastering 
+Neil Peart  -  Percussion, Drums, Electronic Percussion 
+Andy Richards  -  Synthesizer, Keyboards 
+Reynold Swan  -  Assistant Engineer 
+Hugh Syme  -  Art Direction 
+Glenn Wexler  -  Photography 
+Williams Fairey Brass Band  -  Horn 
+Michael J. Ade  -  Assistant Engineer 
+Jim Barton  -  Engineer 
+Jon Erickson  -  Reproduction 
+Philippe Cusset  -  Mixing Assistant 
+Martin Lee  -  Assistant Engineer 
+Brian Lee  -  Mastering 
+Liam Birt  -  Executive Producer 
+Van Azzoli  -  Executive Producer 
+William Faery Engineering Brass Band     
+
+
+### "Presto" 1989, Instrumental
+
+  1.   Show Don't Tell (Lee/Lifeson/Peart) - 5:01 
+   2.   Chain Lightning (Lee/Lifeson/Peart) - 4:33 
+   3.   The Pass (Lee/Lifeson/Peart) - 4:51 
+   4.   War Paint (Lee/Lifeson/Peart) - 5:24 
+   5.   Scars (Lee/Lifeson/Peart) - 4:07 
+   6.   Presto (Lee/Lifeson/Peart) - 5:45 
+   7.   Superconductor (Lee/Lifeson/Peart) - 4:47 
+   8.   Anagram (Lee/Lifeson/Peart) - 4:00 
+   9.   Red Tide (Lee/Lifeson/Peart) - 4:29 
+   10.   Hand Over Fist (Lee/Lifeson/Peart) - 4:11 
+   11.   Available Light (Lee/Lifeson/Peart) - 5:03 
+
+
+Rush  -  Arranger, Producer 
+Rupert Hine  -  Arranger, Keyboards, Vocals (bckgr), Producer 
+Geddy Lee  -  Synthesizer, Guitar (Bass), Vocals 
+Alex Lifeson  -  Guitar (Acoustic), Guitar (Electric) 
+Bob Ludwig  -  Mastering 
+Neil Peart  -  Drums, Electronic Percussion 
+Simon Pressey  -  Assistant Engineer 
+Jason Sniderman  -  Keyboards 
+Hugh Syme  -  Art Direction 
+Stephen W. Tayler  -  Engineer 
+Matt Howe  -  Mixing Assistant 
+John Scarapti  -  Photography 
+Val Azzoli  -  Executive Producer 
+Liam Birt  -  Executive Producer 
+Andrew MacNaughtan  -  Photography 
+Jacques Deveau  -  Assistant Engineer 
+Rick Andersen  -  Assistant Engineer 
+
+
+### "Roll the Bones" 1991, Instrumental
+
+  1.   Dreamline (Lee/Lifeson/Peart) - 4:38 
+   2.   Bravado (Lee/Lifeson/Peart) - 4:35 
+   3.   Roll the Bones (Lee/Lifeson/Peart) - 5:30 
+   4.   Face Up (Lee/Lifeson/Peart) - 3:54 
+   5.   Where's My Thing?, Pt. 4: Gangster of... (Lee/Lifeson) - 3:49 
+   6.   The Big Wheel (Lee/Lifeson/Peart) - 5:13 
+   7.   Heresy (Lee/Lifeson/Peart) - 5:26 
+   8.   Ghost of a Chance (Lee/Lifeson/Peart) - 5:19 
+   9.   Neurotica (Lee/Lifeson/Peart) - 4:40 
+   10.   You Bet Your Life (Lee/Lifeson/Peart) - 5:00 
+
+
+Rush  -  Arranger, Producer 
+Rupert Hine  -  Arranger, Keyboards, Vocals, Vocals (bckgr), Producer 
+Geddy Lee  -  Synthesizer, Guitar (Bass), Vocals 
+Alex Lifeson  -  Guitar (Acoustic), Guitar (Electric), Vocals (bckgr) 
+Bob Ludwig  -  Mastering 
+Neil Peart  -  Cymbals, Drums 
+Simon Pressey  -  Assistant Engineer 
+Paul Seeley  -  Assistant Engineer 
+Hugh Syme  -  Art Direction, Design 
+Stephen W. Tayler  -  Engineer 
+John Scarapti  -  Photography 
+Liam Birt  -  Executive Producer 
+Andrew MacNaughtan  -  Photography 
+Joe Berndt  -  Digital Effects 
+Everett Ravestein  -  Pre-Production, Pre-Production Assistant 
+Ben Darlow  -  Assistant Engineer, Mixing Assistant 
+
+
+### "Counterparts" 1993, Instrumental
+
+   1.   Animate (Lee/Lifeson/Peart) - 6:05 
+   2.   Stick It Out (Lee/Lifeson/Peart) - 4:30 
+   3.   Cut to the Chase (Lee/Lifeson/Peart) - 4:49 
+   4.   Nobody's Here (Lee/Lifeson/Peart) - 4:54 
+   5.   Between Sun & Moon (Dubois/Lee/Lifeson/Peart) - 4:37 
+   6.   Alien Shore (Lee/Lifeson/Peart) - 5:45 
+   7.   The Speed of Love (Lee/Lifeson/Peart) - 5:03 
+   8.   Double Agent (Lee/Lifeson/Peart) - 4:51 
+   9.   Leave That Thing Alone (Lee/Lifeson) - 4:06 
+   10.   Cold Fire (Lee/Lifeson/Peart) - 4:27 
+   11.   Everday Glory (Lee/Lifeson/Peart) - 5:10 
+
+
+Rush  -  Producer 
+Peter Collins  -  Producer 
+
+
+### "Test for Echo" 1996, Instrumental
+
+  1.   Test for Echo (Dubois/Lee/Lifeson/Peart) 
+   2.   Driven (Lee/Lifeson/Peart) 
+   3.   Half the World (Lee/Lifeson/Peart) 
+   4.   The Color of Right (Lee/Lifeson/Peart) 
+   5.   Time and Motion (Lee/Lifeson/Peart) 
+   6.   Totem (Lee/Lifeson/Peart) 
+   7.   Dog Years (Lee/Lifeson/Peart) 
+   8.   Virtuality (Lee/Lifeson/Peart) 
+   9.   Resist (Lee/Lifeson/Peart) 
+   10.   Limbo (Lee/Lifeson/Peart) 
+   11.   Carve Away the Stone (Lee/Lifeson/Peart) 
+
+
+Rush  -  Arranger, Producer 
+Peter Collins  -  Arranger, Producer 
+Geddy Lee  -  Synthesizer, Arranger, Guitar (Bass), Vocals, Producer 
+Alex Lifeson  -  Guitar (Acoustic), Arranger, Guitar (Electric), Producer, Mandola 
+Bob Ludwig  -  Mastering 
+Clif Norrell  -  Engineer 
+Neil Peart  -  Dulcimer, Arranger, Cymbals, Drums, Producer, Dulcimer (Hammer) 
+Simon Pressey  -  Assistant Engineer 
+Hugh Syme  -  Art Direction, Design, Digital Illustration 
+Andy Wallace  -  Mixing 
+Tom Heron  -  Assistant Engineer 
+Chris Laidlaw  -  Assistant Engineer 
+Paul Marconi  -  Assistant Engineer 
+Dimo Safari  -  Photography 
+Liam Birt  -  Executive Producer 
+Andrew MacNaughtan  -  Photography 
+Pegi Cecconi  -  Executive Producer 
+Anthony Frederick  -  Photography 
+Hugh Syne  -  Art Direction, Design, Digital Illustration 
+Everett Ravestein  -  Pre-Production 
+
+
+### "Different Stages (Live)" 1998, Instrumental
+
+
+
+### "Vapor Trails" 2002, Instrumental
+
+
+
+### "Rush In Rio (Live)" 2003, Instrumental
+
+
+
+### "Feedback" 2004, Instrumental
+
+
+
+### "Snakes & Arrows" 2007, Instrumental
+
+
+
 
 ## Отношения с другими группами
 

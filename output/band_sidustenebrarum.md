@@ -1,7 +1,20 @@
 # Sidus Tenebrarum
 
-Дискография
-"Born from the Dark Rib" 2009, Black Metal
+
+
+## Дискография
+
+### "Born from the Dark Rib" 2009, Black Metal
+
+1. Exerpts of Fury 06:09  
+2. They Won't Leave 03:35  
+3. Unutterable Worthiness 04:38  
+4. When Mind Collapses 04:31  
+5. Vril 05:09  
+6. Nothing Foreign 04:43  
+7. Lord of the Night 03:16  
+8. Void 05:21 
+
 
 ## Отношения с другими группами
 

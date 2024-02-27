@@ -1,9 +1,32 @@
 # Slammer
 
-Дискография
-"Work Of Idle Hands" 1989, Thrash
-"Insanity Addicts (EP)" 1990, Thrash
-"Nightmare Scenario" 1991, Thrash
+
+
+## Дискография
+
+### "Work Of Idle Hands" 1989, Thrash
+
+
+
+### "Insanity Addicts (EP)" 1990, Thrash
+
+1. Insanity Addicts
+2. Bring The Hammer Down
+3. Maniac
+4. I.O.U.
+
+Paul Tunnicliffe - Vocals
+Enzo Annecchini - Guitars
+Milo Zivanovic - Guitars
+Russell Burton - Bass
+Andy Gagic - Drums
+
+(p)&(c) 1990 HEAVY METAL Records
+
+### "Nightmare Scenario" 1991, Thrash
+
+
+
 
 ## Отношения с другими группами
 

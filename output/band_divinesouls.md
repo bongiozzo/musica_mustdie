@@ -1,8 +1,43 @@
 # Divine Souls
 
-Дискография
-"Embodiment" 2001, Melodic Death Metal
-"The Bitter Selfcaged Man" 2002, Melodic Death Metal
+Melodic Death Metal
+
+## Дискография
+
+### "Embodiment" 2001, Melodic Death Metal
+
+Perished
+As Life And Death Collide
+Razorsharp
+Erase The Burden
+Embodiment
+Scars
+Serenity Of A Departed Soul
+In The Absence Of Life
+
+### "The Bitter Selfcaged Man" 2002, Melodic Death Metal
+
+1. When Life Slips Away
+2. Grief
+3. Simply Shattered
+4. Silhouette
+5. Divided
+6. Bleed
+7. Bitter Selfcaged Man
+8. Empty Words
+9. Last Season In Sin
+10. Elysian Emerald
+
+
+
+Mikael Lindgren - guitar
+Stefan Hogberg - guitar
+Mattias Lilja - vocals 
+Daniel Lindgren - bass
+Daniel Sjolund - drums
+
+
+
 
 ## Отношения с другими группами
 

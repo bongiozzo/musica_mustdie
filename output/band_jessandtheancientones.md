@@ -1,9 +1,29 @@
 # Jess And The Ancient Ones
 
-Дискография
-"Jess And The Ancient Ones" 2012, Psychedelic
-"Astral Sabbat" 2013, Psychedelic
-"Second Psychedelic Coming: The Aquarius Tapes" 2015, Psychedelic
+
+
+## Дискография
+
+### "Jess And The Ancient Ones" 2012, Psychedelic
+
+1. Prayer For Death And Fire
+2. Twilight Witchcraft
+3. Sulfur Giants (Red King)
+4. Ghost Riders
+5. 13th Breath Of The Zodiac
+6. The Devil (In G Minor)
+7. Come Crimson Death
+
+### "Astral Sabbat" 2013, Psychedelic
+
+01. Astral Sabbat
+02. Long And Lonesome Road (Shocking Blue cover)
+03. More Than Living
+
+### "Second Psychedelic Coming: The Aquarius Tapes" 2015, Psychedelic
+
+
+
 
 ## Отношения с другими группами
 

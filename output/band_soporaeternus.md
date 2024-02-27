@@ -1,18 +1,201 @@
 # Sopor Aeternus
 
-Дискография
-"Ich tote mich jedesmal aufs Neue, doch ich bin unsterblich, und ich erstehe wieder auf" 1994, Gothic
-"Todeswunsch - Sous le Soleil de Saturne" 1995, Gothic
-"Ehjeh Ascher Ehjeh" 1995, Gothic
-"Voyager - The Jugglers of Jusa" 1997, Gothic
-"The inexperienced Spiral Traveller (Aus dem Schob der Holle ward geboren die Totensonne)" 1997, Gothic
-"Dead Lovers' Sarabande (Face Two)" 1999, Gothic
-"Dead Lovers' Sarabande (Face One)" 1999, Gothic
-"Songs from the inverted Womb" 2000, Gothic
-"Flowers in Formaldehyde" 2004, Darkwave
-"La Chambre D Echo" 2004, Gothic
-"The Goat" 2005, Darkwave
-"A Strange thing To Say [CD/DVD]" 2010, Darkwave
+gothic ethno-dark ambient
+
+## Дискография
+
+### "Ich tote mich jedesmal aufs Neue, doch ich bin unsterblich, und ich erstehe wieder auf" 1994, Gothic
+
+Travel on Breath (the Breath of the World) 3'46 
+Falling into different Flesh 5'15 
+Birth - Fiendish Figuration 5'00 
+Tanz der Grausamkeit 5:38 
+Im Garten des Nichts (A secret Light in the Garden of my Void) 10'51 
+Time stands still (But stops for no-one) 8'43 
+Do you know my Name? (Falling...-reprise) 4'19 
+Penance & Pain 6'22 
+Holy Water Moonlight 5'49 
+Beautiful Thorn 5'01 
+The Feast of Blood 2'37 
+Dark Delight(s) (dedicated to Victor Bertrand) 4'47 
+Baptisma 4'45 
+Birth - Fiendish Figuration (The inner Hell) 5'29
+
+### "Todeswunsch - Sous le Soleil de Saturne" 1995, Gothic
+
+Flesh Crucifix (Suffering from Objectivity) 1'32 
+Die Bruderschaft des Schmerzes (Die Unbegreiflichkeit des Dunklen Pfades, den die Kinder Saturns gehen) 5'50 
+Shadowsphere (The Monologue-World and the subconscious Symbols) 7'38 
+Saltatio Crudelitatis (Tanz der Grausamkeit, vers.) 5'47 
+Just a Song without a Name 6'28 
+Soror Sui Excidium (Geliebte Schwester Selbstzerstцrung) 4'35 
+Le Thйаtre de la Blessure sacrйe 2'59 
+The Devil's Instrument 5'18 
+Todeswunsch (vers.) 5'38 
+Drama der Geschlechtslosigkeit (part 1) 2'05 
+Freitod-Phantasien 3'24 
+Drama der Geschlechtslosigkeit (part 2) 5'11 
+Saturn-Impressionen 2'48 
+Somnabulist's secret Bardo-Life (Does the Increase of Pain invite the Absence of Time?) 4'17 
+Not dead but dying 5'12 
+Only the Dead in the Mist 4'35 
+This profane Finality 2'00 
+Cage within a Cage... (...within a Cage within a cage...)
+
+### "Ehjeh Ascher Ehjeh" 1995, Gothic
+
+1. Anima (Part I)
+2. Shadowsphere
+3. Salvatio Crudelitatis
+4. Freifod - Phantasien
+5. Anima (Part II)
+6. Tanz Der Grausamkeit
+
+All lyrics and music have been received and performed by SOPOR AETERNUS and The Ensemble Of Shadows.
+Recorded and mixed by Roman Rutten & SOPOR AETERNUS.
+
+### "Voyager - The Jugglers of Jusa" 1997, Gothic
+
+The inexperienced Spiral Traveller: a Fragment (2) 5'06 
+Ein freundliches Wort hat meine Seele berьhrt (defined & fragile) 5'12 
+Memalon (2) 7'25 
+Alone (by Edgar Allan POE) 6'29 
+Modela est 4'35 
+Birth (instr.) 2'51 
+Feralia Genitalia (Arrival of the Jugglers) 6'36 
+Saturn-Impressionen (Jusa, Jusa) 2'49 
+May I kiss your Wound? (Saturn:Orion) 6'05 
+Alone (2) 6'57 
+The inexperienced Spiral Traveller: a Fragment (instr.) 5'06
+
+### "The inexperienced Spiral Traveller (Aus dem Schob der Holle ward geboren die Totensonne)" 1997, Gothic
+
+Sylla'borйal (Embracing the Dead prior to the Service) 5'05 
+Question(s) beyond Terms (Who is confronting the Impossible) 5'45 
+C'ayllagher a Dom'bhrail (There is no need to remind me) 0'59 
+To a loyal Friend (music: anonymus, Ital. 16th Century / lyrics & arr.: SOPOR) 6'59 
+Never trust the Obvious (or: The Innocence of Devils) 6'52 
+The inexperienced Spiral Traveller: a Fragment 5'08 
+Memalon 7'25 
+Memories are Haunted Places (Birth - Fiendish Figuration, vers.) 5'43 
+Die Widerspenstigkeit unerwьnschter Gedanken 2'32 
+Synchronicity (To Saturn:Orion) 0'37 
+Totenlicht (Infant in the Face of Time) 6'02 
+Ein freundliches Wort... (...hat meine Seele berьhrt) 5'11 
+Die Toten kehren wieder mit dem Wind 2'56 
+May I kiss your Wound? 5'48 
+Ein gьtiges Lдcheln auf den Gesichtern der Toten 5'27
+
+### "Dead Lovers' Sarabande (Face Two)" 1999, Gothic
+
+Abschied (orig. music & lyrics by NICO) 7'01 
+The Dog Burial 1'16 
+The House is empty now 2'54 
+No-one is there 6'42 
+Procession / Funeral March 6'47 
+Va(r)nitas, vanitas...
+(...omnia vanitas) 9'06 
+The Hourglass 2'22 
+Transfiguration 5'19 
+Has he come to test me? 2'09 
+If Loneliness was all 8'40 
+Daffodils 7'22
+
+### "Dead Lovers' Sarabande (Face One)" 1999, Gothic
+
+Across the Bridge 4'45 
+On Satur(n)days we used to sleep 8'57 
+Hades "Pluton" 6'15 
+Sieh', mein Geliebter, hier hab' ich Gift 6'22 
+Ich wollte hinaus in den Garten 8'33 
+Gebet: an die glьcklichen Eroberer 1'59 
+Lament / Totenklage 8'18 
+The Sleeper (by Edgar Allan POE) 11'57 
+Die Knochenblume 1'04 
+Inschrift / Epitaph 3'47 
+All good Things are Eleven 2'50
+
+### "Songs from the inverted Womb" 2000, Gothic
+
+Something Wicked this Way comes... 4'39 
+Tales from the inverted Womb 4'50 
+Do you know about the Water of Life ? 4'50 
+...And Bringer of Sadness 6'43 
+Rйsumй...- 8'30 
+Totes Kind / Little dead Boy 7'21 
+May I kiss your Wound ? 7'00 
+Saturn devouring his Children 7'03 
+There was a Country by the Sea 12'95 
+Little velveteen Knight 5'53 
+Eldorado 3'44
+(by Edgar Allan POE)
+
+### "Flowers in Formaldehyde" 2004, Darkwave
+
+
+
+### "La Chambre D Echo" 2004, Gothic
+
+01. The Encoded Cloister
+02. Backbone Practise
+03. Idleness & Consequence
+04. Beyond The Wall Of Sleep
+05. Imhotep
+06. Hearse-Shaped Basins Of Darkest Matter
+07. Interlude - The Quiet Earth
+08. We Have A Dog To Exercise
+09. The Lion`s Promise
+10. Leeches & Deception
+11. The Skeletal Garden 
+12. Feed The Birds
+13. Consolatrix
+14. Day Of The Dead
+
+This Album has been received by SOPOR AETERNUS & THE ENSEMBLE OF SHADOWS.
+
+The invited Guests:
+Liz Hanks ......................... Cello
+Susannah Simmons .................. Violin
+Chris Wilson ...................... Violin
+Tonia Price ....................... Clarinet
+Andrew Pettitt .................... Oboe
+Eoreena Gor ...................... Bassoon
+Miriam Hughes ..................... Flute
+Tim Barber ........................ Trumpet
+James Cunningham .................. Trumpet
+Julian Turner ..................... Trombone
+Anthony Bartley ................... Tuba
+Paul Brook ........................ Lrums
+The Voices: Anna-Varney
+Recorded by John A. Rivers and Richard Evatt at
+Woodbine Studio, Leamington Spa, England, in
+Sept./Oct. 2002 and Sept./Oct. 2003.
+Design and artwork created by Joachim Luetke lor
+Image Eye-Luetke Prod. (www.luetke.com), alter a
+concept by Joachim Luetke and Anna-Varney.
+digital photography by Woligang Voglhuber lor
+Image Eye-Luetke Prod./Vienna, assisted by Michael
+"Eeniield" Lebek.
+Photos shot on location at the
+Pathological-Anatomical Museum (Karrenturm)
+in Vienna, Austria, in September 2003.
+iiany thanks to Headmistress Eoctor Beatrix Patzak
+and her team lor their support.
+Produced and mixed by John A. Rivers and
+Anna-Varney.
+Mastered by John A. Rivers at Woodbine Studio.
+(c) Words and music written by Anna-Varney
+2002/2003.
+
+### "The Goat" 2005, Darkwave
+
+1. The Goat
+2. The Bells Have Stopped Ringing
+
+### "A Strange thing To Say [CD/DVD]" 2010, Darkwave
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,9 +1,58 @@
 # Born From Pain
 
-Дискография
-"In Love With The End" 2005, Hardcore
-"War" 2007, Hardcore
-"Survival" 2008, Hardcore
+
+
+## Дискография
+
+### "In Love With The End" 2005, Hardcore
+
+1. Rise Or Die 
+2. Judgement 
+3. The New Hate 
+4. Kill It Tonight 
+5. Renewal 
+6. Fear This World 
+7. Raging Heart 
+8. Dead Code 
+9. Suicide Nations 
+10. Hour Of The Wolf 
+
+Line-Up: 
+Che - Vocals 
+Stefan - Guitar 
+Karl - Guitar 
+Roel - Drums 
+Rob - Bass
+
+### "War" 2007, Hardcore
+
+1. Relentless 
+2. Behind Enemy Lines 
+3. Stop At Nothing 
+4. Burn Me Fighting 
+5. Crusader (feat. Jan Chris / GOREFEST) 
+6. Grey Life 
+7. The War Is On 
+8. Scorched Earth (feat. Pepe / HATESPHERE) 
+9. Eyes Of The World 
+10. Doomsday Clock (feat. Lou / SICK OF IT ALL) 
+11. Iron Will 
+
+### "Survival" 2008, Hardcore
+
+1. Sound Of Survival 
+2. State Of Mind 
+3. Sons Of A Dying World 
+4. The Wolves Are Loose 
+5. Never Die 
+6. Final Collapse 
+7. Endgame 
+8. Zeitgeist 
+9. The Hydra 
+10.Zero Hour 
+11. Under False Flag
+
+
 
 ## Отношения с другими группами
 

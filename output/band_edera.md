@@ -1,7 +1,35 @@
 # Edera
 
-Дискография
-"Ambiguous" 1996, Gothic
+
+
+## Дискография
+
+### "Ambiguous" 1996, Gothic
+
+1. Good Things (5:11)
+2. Vaguelnklings (4.22)
+3. For You (6.00)
+4. Last Beat Of My Heart З (4.57)
+5. Static Unload (6.34)
+6. Useless Polemical Chap (4.35)
+7. Never (6.24)
+8. Colours Of Indifference (3.57)
+9. Monotone and Ambiguous (424)
+
+
+All songs written, composed and arranged by EDERA.
+except  З  written  by  SIOUXSIE & THE BANSHEES.
+Produced by Oliver Henkel.
+Engineered and mixed by Axel Henninger and Martin Schafer.
+Recorded and mastered at M&S Music, Frankfurt.
+
+EDERA are Catrin Mallon and Oliver Henkel
+
+Guitars and additional Vocals by Martin Schafer
+Drums on З played by Stefan Keller
+
+(p)c 1996 ZOTH OMMOG / MUSIC RESEARCH Records
+
 
 ## Отношения с другими группами
 

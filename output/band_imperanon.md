@@ -1,8 +1,27 @@
 # Imperanon
 
-Дискография
-"Promo" 2003, Melodic Death Metal
-"Stained" 2004, Melodic Death Metal
+
+
+## Дискография
+
+### "Promo" 2003, Melodic Death Metal
+
+
+
+### "Stained" 2004, Melodic Death Metal
+
+01. Blade
+02. Memories To Dust
+03. Stained
+04. Prisoner In Me
+05. Sold
+06. Hollow Man
+07. Rhythm Of Pain
+08. Shadowsouls
+09. Vein (I Bleed)
+10. The End
+11. Jos Jotain Yrittдд (Harva Meistд On Rautaa)
+
 
 ## Отношения с другими группами
 

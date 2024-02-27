@@ -1,7 +1,24 @@
 # Afterworld
 
-Дискография
-"Connecting Animals" 2000, Power Metal
+
+
+## Дискография
+
+### "Connecting Animals" 2000, Power Metal
+
+Second chance 
+Promises 
+Tell me why? 
+Behind your eyes 
+Money money money 
+The world of hypocrates 
+The world of hypocrates (Part 2) 
+The seventh year 
+Ending our days 
+Nothing to lose 
+Let it go 
+After the dark 
+
 
 ## Отношения с другими группами
 

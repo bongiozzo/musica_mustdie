@@ -1,8 +1,56 @@
 # Stormhammer
 
-Дискография
-"FireBall" 2000, Power Metal
-"Cold Desert Moon" 2001, Power Metal
+
+
+## Дискография
+
+### "FireBall" 2000, Power Metal
+
+1. Seven Gates (5:17)
+2. Prisoner (5:39)
+3. High On Devotion (3:55)
+4. Guardians (5:53)
+5. Destiny (3:27)
+6. Holy War (6:50)
+7. Possibilities (6:37)
+8. Sacred Heart (5:11)
+9. Forever (5:33)
+10. FireBall (3:48)
+11. Shadow Dancer (3:09)
+
+Bonus Track: Metal Heart (Japan) 
+
+(The album is only released in Europe yet)
+
+
+
+### "Cold Desert Moon" 2001, Power Metal
+
+Sinner's Soul
+
+The Law 
+
+Breach of Faith
+
+Yells of Rage
+
+Misty Hills
+
+Children of the Dawn
+
+Doomsday
+
+Cold Desert Moon
+
+A Dragon's Tear
+
+Nobody's Child
+
+Masquerade of Life
+
+The Strength of Wisdom 
+
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,13 @@
 # Double Action
 
-Дискография
-"Sokaris" 2001, Power Metal
+power metal
+
+## Дискография
+
+### "Sokaris" 2001, Power Metal
+
+
+
 
 ## Отношения с другими группами
 

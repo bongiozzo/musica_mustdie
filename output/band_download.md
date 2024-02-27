@@ -1,7 +1,24 @@
 # Download
 
-Дискография
-"Furnance" 1995, Industrial
+
+
+## Дискография
+
+### "Furnance" 1995, Industrial
+
+01. Mallade
+02. Seel Hole
+03. Omniman
+04. Cannaya
+05. Sigesang
+06. Stone Grey Soil
+07. Mother Sonne
+08. Attalal
+09. Lebanull
+10. Beehatch
+11. Noh Mans Land
+12. Marred Hevel
+
 
 ## Отношения с другими группами
 

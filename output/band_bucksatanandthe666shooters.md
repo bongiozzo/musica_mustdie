@@ -1,7 +1,24 @@
 # Buck Satan And The 666 Shooters
 
-Дискография
-"Bikers Welcome Ladies Drink Free" 2012, Country
+
+
+## Дискография
+
+### "Bikers Welcome Ladies Drink Free" 2012, Country
+
+01. Quicker Than Liquor
+02. What's Wrong With Me
+03. Medication Nation
+04. Drug Store Truck Drivin' Man
+05. The Only Time I'm Sober is When You're Gone
+06. Cheap Wine, Cheap Ramen
+07. Down The Drain
+08. Sleepless Nights and Bar Room Fights
+09. Friend of The Devil
+10. Ten Long Years in Texas
+11. I Hate Every Bone in Your Body Except Mine
+12. Take Me Away
+
 
 ## Отношения с другими группами
 

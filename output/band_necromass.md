@@ -1,7 +1,26 @@
 # Necromass
 
-Дискография
-"Mysteria Mystica Zofiriana" 1995, Black Metal
+
+
+## Дискография
+
+### "Mysteria Mystica Zofiriana" 1995, Black Metal
+
+1. Night
+2. Necrobarathrum
+3. Mysteria Mystica Zofiriana
+4. Enterjok Circle
+5. Sodomatio Orgy Of Hate
+6. Black Mass Intuition
+7. Sadomasochist Tallow Doll
+8. Into An Image Of Left
+
+All Music & Lyrics By NECROMASS
+Produced By NECROMASS
+Recorded & Mixed At Planet Sound By Luciano Zella
+
+(p)&(c) 1995 UNISOUND Records
+
 
 ## Отношения с другими группами
 

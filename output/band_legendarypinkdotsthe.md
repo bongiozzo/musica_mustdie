@@ -1,9 +1,47 @@
 # Legendary Pink Dots, The
 
-Дискография
-"Curse" 1993, Alternative
-"Malachai" 1993, Alternative
-"All The King's Horses (re-issue)" 2005, Psychedelic
+
+
+## Дискография
+
+### "Curse" 1993, Alternative
+
+1. Love Puppets
+2. Wall Purges Night
+3. Lisa's Party
+4. Arzhklahh Olgevezh !
+5. Pruumptje Kurss
+6. Waving At The Aeroplanes
+7. Hiding
+8. Doll's House
+9. The Palace Of Love
+10.Stoned Obituary
+
+Engineered By Pat Birmingham
+
+(p)&(c) 1993 TK Records
+
+### "Malachai" 1993, Alternative
+
+1. Joey The Canary
+2. Kingdom Of The Fly
+3. Encore Une Fois
+4. Wlidlife Estate
+5. Pavane
+6. Window Of The World
+7. On The Boards
+8. We Bring The Day
+9. Paris 4 a.m.
+
+Produced By Steven Stapleton.
+Engineered By Vincent Hoedt.
+
+(p)&(c) 1993 PLAY IT AGAIN SAM Records
+
+### "All The King's Horses (re-issue)" 2005, Psychedelic
+
+
+
 
 ## Отношения с другими группами
 

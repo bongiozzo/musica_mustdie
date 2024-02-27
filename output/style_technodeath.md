@@ -12,33 +12,23 @@
 Стиль: Techno Death
 Год: 1989
 
+Группа: Atheist
+Альбом: "Piece Of Time"
+Стиль: Techno Death
+Год: 1990
+
 Группа: Sadus
 Альбом: "Swallowed In Black"
 Стиль: Techno Death
 Год: 1990
 
 Группа: Atheist
-Альбом: "Piece Of Time"
-Стиль: Techno Death
-Год: 1990
-
-Группа: Sadist
-Альбом: "Black Screams (Demo)"
-Стиль: Techno Death
-Год: 1991
-
-Группа: Meshuggah
-Альбом: "Contradictions Collapse"
-Стиль: Techno Death
-Год: 1991
-
-Группа: Atheist
 Альбом: "Unquestionable Presence"
 Стиль: Techno Death
 Год: 1991
 
-Группа: Gorguts
-Альбом: "Considered Dead"
+Группа: Confessor
+Альбом: "Condemned"
 Стиль: Techno Death
 Год: 1991
 
@@ -47,8 +37,18 @@
 Стиль: Techno Death
 Год: 1991
 
-Группа: Confessor
-Альбом: "Condemned"
+Группа: Gorguts
+Альбом: "Considered Dead"
+Стиль: Techno Death
+Год: 1991
+
+Группа: Meshuggah
+Альбом: "Contradictions Collapse"
+Стиль: Techno Death
+Год: 1991
+
+Группа: Sadist
+Альбом: "Black Screams (Demo)"
 Стиль: Techno Death
 Год: 1991
 
@@ -62,8 +62,8 @@
 Стиль: Techno Death
 Год: 1993
 
-Группа: Gorguts
-Альбом: "The Erosion Of Sanity"
+Группа: Cynic
+Альбом: "Focus"
 Стиль: Techno Death
 Год: 1993
 
@@ -72,28 +72,28 @@
 Стиль: Techno Death
 Год: 1993
 
+Группа: Gorguts
+Альбом: "The Erosion Of Sanity"
+Стиль: Techno Death
+Год: 1993
+
 Группа: Sentenced
 Альбом: "North From Here"
 Стиль: Techno Death
 Год: 1993
-
-Группа: Cynic
-Альбом: "Focus"
-Стиль: Techno Death
-Год: 1993
-
-Группа: Sadist
-Альбом: "Above The Light"
-Стиль: Techno Death
-Год: 1994
 
 Группа: Meshuggah
 Альбом: "None"
 Стиль: Techno Death
 Год: 1994
 
-Группа: Meshuggah
-Альбом: "Destroy Erase Improve"
+Группа: Sadist
+Альбом: "Above The Light"
+Стиль: Techno Death
+Год: 1994
+
+Группа: Death
+Альбом: "Symbolic"
 Стиль: Techno Death
 Год: 1995
 
@@ -107,8 +107,8 @@
 Стиль: Techno Death
 Год: 1995
 
-Группа: Death
-Альбом: "Symbolic"
+Группа: Meshuggah
+Альбом: "Destroy Erase Improve"
 Стиль: Techno Death
 Год: 1995
 
@@ -122,18 +122,8 @@
 Стиль: Techno Death
 Год: 1996
 
-Группа: Neglected Fields
-Альбом: "Synthinity"
-Стиль: Techno Death
-Год: 1997
-
 Группа: Martyr
 Альбом: "Hopeless Hopes"
-Стиль: Techno Death
-Год: 1997
-
-Группа: Theory in Practice
-Альбом: "Third Eye Function"
 Стиль: Techno Death
 Год: 1997
 
@@ -142,18 +132,23 @@
 Стиль: Techno Death
 Год: 1997
 
+Группа: Neglected Fields
+Альбом: "Synthinity"
+Стиль: Techno Death
+Год: 1997
+
 Группа: Sadist
 Альбом: "Crust"
 Стиль: Techno Death
 Год: 1997
 
-Группа: Prejudice
-Альбом: "Broken Promises"
+Группа: Theory in Practice
+Альбом: "Third Eye Function"
 Стиль: Techno Death
-Год: 1998
+Год: 1997
 
-Группа: Meshuggah
-Альбом: "Chaosphere"
+Группа: Death
+Альбом: "The Sound of Perseverance"
 Стиль: Techno Death
 Год: 1998
 
@@ -162,8 +157,13 @@
 Стиль: Techno Death
 Год: 1998
 
-Группа: Death
-Альбом: "The Sound of Perseverance"
+Группа: Meshuggah
+Альбом: "Chaosphere"
+Стиль: Techno Death
+Год: 1998
+
+Группа: Prejudice
+Альбом: "Broken Promises"
 Стиль: Techno Death
 Год: 1998
 
@@ -172,23 +172,8 @@
 Стиль: Techno Death
 Год: 1998
 
-Группа: Gory Blister
-Альбом: "Art Bleeds"
-Стиль: Techno Death
-Год: 1999
-
 Группа: Alarum
 Альбом: "Fluid Motion"
-Стиль: Techno Death
-Год: 1999
-
-Группа: Sadus
-Альбом: "Elements Of Anger"
-Стиль: Techno Death
-Год: 1999
-
-Группа: Meshuggah
-Альбом: "Contradictions Collapse & None"
 Стиль: Techno Death
 Год: 1999
 
@@ -197,8 +182,23 @@
 Стиль: Techno Death
 Год: 1999
 
-Группа: Origin
-Альбом: "Origin"
+Группа: Gory Blister
+Альбом: "Art Bleeds"
+Стиль: Techno Death
+Год: 1999
+
+Группа: Meshuggah
+Альбом: "Contradictions Collapse & None"
+Стиль: Techno Death
+Год: 1999
+
+Группа: Sadus
+Альбом: "Elements Of Anger"
+Стиль: Techno Death
+Год: 1999
+
+Группа: Martyr
+Альбом: "Warp Zone"
 Стиль: Techno Death
 Год: 2000
 
@@ -207,48 +207,23 @@
 Стиль: Techno Death
 Год: 2000
 
-Группа: Theory in Practice
-Альбом: "The Armageddon Theories"
-Стиль: Techno Death
-Год: 2000
-
-Группа: Martyr
-Альбом: "Warp Zone"
-Стиль: Techno Death
-Год: 2000
-
 Группа: Necrost
 Альбом: "Necrost"
 Стиль: Techno Death
 Год: 2000
 
-Группа: Kalisia
-Альбом: "Skies"
+Группа: Origin
+Альбом: "Origin"
 Стиль: Techno Death
-Год: 2001
+Год: 2000
 
-Группа: Virulence
-Альбом: "A Conflict Scenario"
+Группа: Theory in Practice
+Альбом: "The Armageddon Theories"
 Стиль: Techno Death
-Год: 2001
+Год: 2000
 
-Группа: Tharsis
-Альбом: "Portrait Of My Soul"
-Стиль: Techno Death
-Год: 2001
-
-Группа: Gorguts
-Альбом: "From Wisdom To Hate"
-Стиль: Techno Death
-Год: 2001
-
-Группа: Prejudice
-Альбом: "Reality"
-Стиль: Techno Death
-Год: 2001
-
-Группа: Wayd
-Альбом: "Barriers"
+Группа: Aghora
+Альбом: "Aghora"
 Стиль: Techno Death
 Год: 2001
 
@@ -257,48 +232,48 @@
 Стиль: Techno Death
 Год: 2001
 
-Группа: Meshuggah
-Альбом: "Rare Trax"
-Стиль: Techno Death
-Год: 2001
-
 Группа: Crazer
 Альбом: "Oderint Dum Metuant"
 Стиль: Techno Death
 Год: 2001
 
-Группа: Aghora
-Альбом: "Aghora"
+Группа: Gorguts
+Альбом: "From Wisdom To Hate"
+Стиль: Techno Death
+Год: 2001
+
+Группа: Kalisia
+Альбом: "Skies"
 Стиль: Techno Death
 Год: 2001
 
 Группа: Meshuggah
-Альбом: "Nothing"
+Альбом: "Rare Trax"
 Стиль: Techno Death
-Год: 2002
+Год: 2001
 
-Группа: Uncrossed
-Альбом: "DELetio"
+Группа: Prejudice
+Альбом: "Reality"
 Стиль: Techno Death
-Год: 2002
+Год: 2001
 
-Группа: Mortifilia
-Альбом: "Christ Hunt"
+Группа: Tharsis
+Альбом: "Portrait Of My Soul"
 Стиль: Techno Death
-Год: 2002
+Год: 2001
 
-Группа: Lead Weight
-Альбом: "Penetrator"
+Группа: Virulence
+Альбом: "A Conflict Scenario"
 Стиль: Techno Death
-Год: 2002
+Год: 2001
+
+Группа: Wayd
+Альбом: "Barriers"
+Стиль: Techno Death
+Год: 2001
 
 Группа: Barracuda (CZE)
 Альбом: "Humanimal"
-Стиль: Techno Death
-Год: 2002
-
-Группа: Origin
-Альбом: "Informis Infinitas Inhumanitas"
 Стиль: Techno Death
 Год: 2002
 
@@ -307,28 +282,38 @@
 Стиль: Techno Death
 Год: 2002
 
+Группа: Lead Weight
+Альбом: "Penetrator"
+Стиль: Techno Death
+Год: 2002
+
+Группа: Meshuggah
+Альбом: "Nothing"
+Стиль: Techno Death
+Год: 2002
+
+Группа: Mortifilia
+Альбом: "Christ Hunt"
+Стиль: Techno Death
+Год: 2002
+
+Группа: Origin
+Альбом: "Informis Infinitas Inhumanitas"
+Стиль: Techno Death
+Год: 2002
+
 Группа: Theory in Practice
 Альбом: "Colonizing The Sun"
 Стиль: Techno Death
 Год: 2002
 
-Группа: Neglected Fields
-Альбом: "Mephisto Lettonica"
+Группа: Uncrossed
+Альбом: "DELetio"
 Стиль: Techno Death
-Год: 2003
+Год: 2002
 
-Группа: Psychoparadox
-Альбом: "Reapeiron"
-Стиль: Techno Death
-Год: 2003
-
-Группа: Illogicist
-Альбом: "Dissonant Perspectives"
-Стиль: Techno Death
-Год: 2003
-
-Группа: Wayd
-Альбом: "Decadance"
+Группа: Antares
+Альбом: "Made In Fear"
 Стиль: Techno Death
 Год: 2003
 
@@ -337,13 +322,13 @@
 Стиль: Techno Death
 Год: 2003
 
-Группа: Phantasmagory
-Альбом: "Anamorphosis of dreams"
+Группа: Illogicist
+Альбом: "Dissonant Perspectives"
 Стиль: Techno Death
 Год: 2003
 
-Группа: Antares
-Альбом: "Made In Fear"
+Группа: Neglected Fields
+Альбом: "Mephisto Lettonica"
 Стиль: Techno Death
 Год: 2003
 
@@ -352,18 +337,33 @@
 Стиль: Techno Death
 Год: 2003
 
+Группа: Phantasmagory
+Альбом: "Anamorphosis of dreams"
+Стиль: Techno Death
+Год: 2003
+
+Группа: Psychoparadox
+Альбом: "Reapeiron"
+Стиль: Techno Death
+Год: 2003
+
+Группа: Wayd
+Альбом: "Decadance"
+Стиль: Techno Death
+Год: 2003
+
+Группа: Adimiron
+Альбом: "Burningsouls"
+Стиль: Techno Death
+Год: 2004
+
+Группа: Alarum
+Альбом: "Eventuality"
+Стиль: Techno Death
+Год: 2004
+
 Группа: Ambivalence
 Альбом: "The Splinters"
-Стиль: Techno Death
-Год: 2004
-
-Группа: Meshuggah
-Альбом: "I EP"
-Стиль: Techno Death
-Год: 2004
-
-Группа: L.I.G.O.
-Альбом: "No One Safe"
 Стиль: Techno Death
 Год: 2004
 
@@ -377,23 +377,13 @@
 Стиль: Techno Death
 Год: 2004
 
-Группа: Necrost
-Альбом: "Conception of Noise"
-Стиль: Techno Death
-Год: 2004
-
-Группа: Trepalium
-Альбом: "Through the Absurd"
-Стиль: Techno Death
-Год: 2004
-
 Группа: Illogicist
 Альбом: "Subjected"
 Стиль: Techno Death
 Год: 2004
 
-Группа: Prejudice
-Альбом: "Dominion of Chaos"
+Группа: L.I.G.O.
+Альбом: "No One Safe"
 Стиль: Techno Death
 Год: 2004
 
@@ -402,28 +392,33 @@
 Стиль: Techno Death
 Год: 2004
 
-Группа: Alarum
+Группа: Meshuggah
+Альбом: "I EP"
+Стиль: Techno Death
+Год: 2004
+
+Группа: Necrost
+Альбом: "Conception of Noise"
+Стиль: Techno Death
+Год: 2004
+
+Группа: Prejudice
+Альбом: "Dominion of Chaos"
+Стиль: Techno Death
+Год: 2004
+
+Группа: Trepalium
+Альбом: "Through the Absurd"
+Стиль: Techno Death
+Год: 2004
+
+Группа: Alarium
 Альбом: "Eventuality"
 Стиль: Techno Death
-Год: 2004
-
-Группа: Adimiron
-Альбом: "Burningsouls"
-Стиль: Techno Death
-Год: 2004
-
-Группа: Arsis
-Альбом: "A Celebration of Guilt"
-Стиль: Techno Death
 Год: 2005
 
-Группа: Rentgen
-Альбом: "Lost Castle 2004 / Intrusion From Hell 2005"
-Стиль: Techno Death
-Год: 2005
-
-Группа: Capharnaum
-Альбом: "Fractured"
+Группа: Amoral
+Альбом: "Decrowning"
 Стиль: Techno Death
 Год: 2005
 
@@ -432,8 +427,33 @@
 Стиль: Techno Death
 Год: 2005
 
-Группа: Rest in Pain
-Альбом: "Higher Geometry"
+Группа: Antares
+Альбом: "Mind Collectors"
+Стиль: Techno Death
+Год: 2005
+
+Группа: Arsis
+Альбом: "A Celebration of Guilt"
+Стиль: Techno Death
+Год: 2005
+
+Группа: Arsis
+Альбом: "A Diamond For Disease"
+Стиль: Techno Death
+Год: 2005
+
+Группа: Beneath The Massacre
+Альбом: "Evidence Of Inequity (EP)"
+Стиль: Techno Death
+Год: 2005
+
+Группа: Capharnaum
+Альбом: "Fractured"
+Стиль: Techno Death
+Год: 2005
+
+Группа: Gorod
+Альбом: "Neurotripsicks"
 Стиль: Techno Death
 Год: 2005
 
@@ -442,8 +462,33 @@
 Стиль: Techno Death
 Год: 2005
 
-Группа: Beneath The Massacre
-Альбом: "Evidence Of Inequity (EP)"
+Группа: Hieronymus Bosch
+Альбом: "Artifical Emotions"
+Стиль: Techno Death
+Год: 2005
+
+Группа: Meshuggah
+Альбом: "Catch 33"
+Стиль: Techno Death
+Год: 2005
+
+Группа: Misanthrope Count Mercyful
+Альбом: "Life Is Gone"
+Стиль: Techno Death
+Год: 2005
+
+Группа: Mortifilia
+Альбом: "Redemption"
+Стиль: Techno Death
+Год: 2005
+
+Группа: Neuraxis
+Альбом: "Trilateral Progression"
+Стиль: Techno Death
+Год: 2005
+
+Группа: Oblomov
+Альбом: "Mighty Cosmic Dances"
 Стиль: Techno Death
 Год: 2005
 
@@ -453,72 +498,22 @@
 Год: 2005
 
 Группа: Phantasmagory
-Альбом: "Phantasmagoria"
-Стиль: Techno Death
-Год: 2005
-
-Группа: Gorod
-Альбом: "Neurotripsicks"
-Стиль: Techno Death
-Год: 2005
-
-Группа: Hieronymus Bosch
-Альбом: "Artifical Emotions"
-Стиль: Techno Death
-Год: 2005
-
-Группа: Neuraxis
-Альбом: "Trilateral Progression"
-Стиль: Techno Death
-Год: 2005
-
-Группа: Alarium
-Альбом: "Eventuality"
-Стиль: Techno Death
-Год: 2005
-
-Группа: Meshuggah
-Альбом: "Catch 33"
-Стиль: Techno Death
-Год: 2005
-
-Группа: Amoral
-Альбом: "Decrowning"
-Стиль: Techno Death
-Год: 2005
-
-Группа: Serdce
-Альбом: "Cyberly"
-Стиль: Techno Death
-Год: 2005
-
-Группа: Oblomov
-Альбом: "Mighty Cosmic Dances"
-Стиль: Techno Death
-Год: 2005
-
-Группа: Sieged Mind
-Альбом: "Eternal..."
-Стиль: Techno Death
-Год: 2005
-
-Группа: Phantasmagory
 Альбом: "Odd Sounds"
 Стиль: Techno Death
 Год: 2005
 
-Группа: Misanthrope Count Mercyful
-Альбом: "Life Is Gone"
+Группа: Phantasmagory
+Альбом: "Phantasmagoria"
 Стиль: Techno Death
 Год: 2005
 
-Группа: Arsis
-Альбом: "A Diamond For Disease"
+Группа: Rentgen
+Альбом: "Lost Castle 2004 / Intrusion From Hell 2005"
 Стиль: Techno Death
 Год: 2005
 
-Группа: Mortifilia
-Альбом: "Redemption"
+Группа: Rest in Pain
+Альбом: "Higher Geometry"
 Стиль: Techno Death
 Год: 2005
 
@@ -527,35 +522,15 @@
 Стиль: Techno Death
 Год: 2005
 
-Группа: Antares
-Альбом: "Mind Collectors"
+Группа: Serdce
+Альбом: "Cyberly"
 Стиль: Techno Death
 Год: 2005
 
-Группа: Meshuggah
-Альбом: "Nothing [Re-release]"
+Группа: Sieged Mind
+Альбом: "Eternal..."
 Стиль: Techno Death
-Год: 2006
-
-Группа: Trepalium
-Альбом: "Alchemik Clockwork of Disorder"
-Стиль: Techno Death
-Год: 2006
-
-Группа: Sadus
-Альбом: "Out For Blood"
-Стиль: Techno Death
-Год: 2006
-
-Группа: Obscura
-Альбом: "Retribution"
-Стиль: Techno Death
-Год: 2006
-
-Группа: Arsis
-Альбом: "United In Regret"
-Стиль: Techno Death
-Год: 2006
+Год: 2005
 
 Группа: Aghora
 Альбом: "Formless"
@@ -567,23 +542,13 @@
 Стиль: Techno Death
 Год: 2006
 
+Группа: Arsis
+Альбом: "United In Regret"
+Стиль: Techno Death
+Год: 2006
+
 Группа: Devastate
 Альбом: "Armies of Hate"
-Стиль: Techno Death
-Год: 2006
-
-Группа: Neglected Fields
-Альбом: "Splenetic"
-Стиль: Techno Death
-Год: 2006
-
-Группа: Gory Blister
-Альбом: "Skymorphosis"
-Стиль: Techno Death
-Год: 2006
-
-Группа: Gorod
-Альбом: "Leading Vision"
 Стиль: Techno Death
 Год: 2006
 
@@ -592,8 +557,43 @@
 Стиль: Techno Death
 Год: 2006
 
-Группа: Delirium X Tremens
-Альбом: "CreHated From No_Thing"
+Группа: Gorod
+Альбом: "Leading Vision"
+Стиль: Techno Death
+Год: 2006
+
+Группа: Gory Blister
+Альбом: "Skymorphosis"
+Стиль: Techno Death
+Год: 2006
+
+Группа: Meshuggah
+Альбом: "Nothing [Re-release]"
+Стиль: Techno Death
+Год: 2006
+
+Группа: Neglected Fields
+Альбом: "Splenetic"
+Стиль: Techno Death
+Год: 2006
+
+Группа: Obscura
+Альбом: "Retribution"
+Стиль: Techno Death
+Год: 2006
+
+Группа: Sadus
+Альбом: "Out For Blood"
+Стиль: Techno Death
+Год: 2006
+
+Группа: Trepalium
+Альбом: "Alchemik Clockwork of Disorder"
+Стиль: Techno Death
+Год: 2006
+
+Группа: Amoral
+Альбом: "Reptile Ride"
 Стиль: Techno Death
 Год: 2007
 
@@ -602,13 +602,23 @@
 Стиль: Techno Death
 Год: 2007
 
-Группа: Sadist
-Альбом: "Sadist"
+Группа: Beneath The Massacre
+Альбом: "Mechanics Of Dysfunction"
 Стиль: Techno Death
 Год: 2007
 
-Группа: Beneath The Massacre
-Альбом: "Mechanics Of Dysfunction"
+Группа: Deathbringer
+Альбом: "Homo Divisus"
+Стиль: Techno Death
+Год: 2007
+
+Группа: Delirium X Tremens
+Альбом: "CreHated From No_Thing"
+Стиль: Techno Death
+Год: 2007
+
+Группа: Fractured Insanity
+Альбом: "When Mankind Becomes Diseased..."
 Стиль: Techno Death
 Год: 2007
 
@@ -622,8 +632,8 @@
 Стиль: Techno Death
 Год: 2007
 
-Группа: Fractured Insanity
-Альбом: "When Mankind Becomes Diseased..."
+Группа: Sadist
+Альбом: "Sadist"
 Стиль: Techno Death
 Год: 2007
 
@@ -632,78 +642,13 @@
 Стиль: Techno Death
 Год: 2007
 
-Группа: Amoral
-Альбом: "Reptile Ride"
+Группа: Adimiron
+Альбом: "When Reality Wakes Up"
 Стиль: Techno Death
-Год: 2007
-
-Группа: Deathbringer
-Альбом: "Homo Divisus"
-Стиль: Techno Death
-Год: 2007
+Год: 2008
 
 Группа: Arsis
 Альбом: "We Are The Nightmare "
-Стиль: Techno Death
-Год: 2008
-
-Группа: Relicts
-Альбом: "12 On The Richter Scale"
-Стиль: Techno Death
-Год: 2008
-
-Группа: Hieronymus Bosch
-Альбом: "Equivoke"
-Стиль: Techno Death
-Год: 2008
-
-Группа: Decrepit Birth
-Альбом: "Diminishing Between Worlds"
-Стиль: Techno Death
-Год: 2008
-
-Группа: Carnal Rapture
-Альбом: "Promo 2008"
-Стиль: Techno Death
-Год: 2008
-
-Группа: Mortifilia
-Альбом: "Embrace"
-Стиль: Techno Death
-Год: 2008
-
-Группа: Mencea
-Альбом: "Dark Matter Energy Noir"
-Стиль: Techno Death
-Год: 2008
-
-Группа: Faceless, The
-Альбом: "Planetary Duality"
-Стиль: Techno Death
-Год: 2008
-
-Группа: Psycroptic
-Альбом: "Ob (Servant)"
-Стиль: Techno Death
-Год: 2008
-
-Группа: Incarnator
-Альбом: "Caecus Superstio"
-Стиль: Techno Death
-Год: 2008
-
-Группа: Carnophage
-Альбом: "Deformed Future//Genetic Nightmare"
-Стиль: Techno Death
-Год: 2008
-
-Группа: Meshuggah
-Альбом: "ObZen"
-Стиль: Techno Death
-Год: 2008
-
-Группа: Origin
-Альбом: "Antithesis"
 Стиль: Techno Death
 Год: 2008
 
@@ -712,8 +657,13 @@
 Стиль: Techno Death
 Год: 2008
 
-Группа: Adimiron
-Альбом: "When Reality Wakes Up"
+Группа: Carnal Rapture
+Альбом: "Promo 2008"
+Стиль: Techno Death
+Год: 2008
+
+Группа: Carnophage
+Альбом: "Deformed Future//Genetic Nightmare"
 Стиль: Techno Death
 Год: 2008
 
@@ -722,13 +672,13 @@
 Стиль: Techno Death
 Год: 2008
 
-Группа: Preternatural
-Альбом: "Statical"
+Группа: Decrepit Birth
+Альбом: "Diminishing Between Worlds"
 Стиль: Techno Death
 Год: 2008
 
-Группа: Revocation
-Альбом: "Empire Of The Obscene"
+Группа: Faceless, The
+Альбом: "Planetary Duality"
 Стиль: Techno Death
 Год: 2008
 
@@ -737,23 +687,63 @@
 Стиль: Techno Death
 Год: 2008
 
-Группа: Tantal
-Альбом: "The Beginning of the End"
+Группа: Hieronymus Bosch
+Альбом: "Equivoke"
 Стиль: Techno Death
-Год: 2009
+Год: 2008
 
 Группа: Incarnator
-Альбом: "Under the Death Influence"
+Альбом: "Caecus Superstio"
+Стиль: Techno Death
+Год: 2008
+
+Группа: Mencea
+Альбом: "Dark Matter Energy Noir"
+Стиль: Techno Death
+Год: 2008
+
+Группа: Meshuggah
+Альбом: "ObZen"
+Стиль: Techno Death
+Год: 2008
+
+Группа: Mortifilia
+Альбом: "Embrace"
+Стиль: Techno Death
+Год: 2008
+
+Группа: Origin
+Альбом: "Antithesis"
+Стиль: Techno Death
+Год: 2008
+
+Группа: Preternatural
+Альбом: "Statical"
+Стиль: Techno Death
+Год: 2008
+
+Группа: Psycroptic
+Альбом: "Ob (Servant)"
+Стиль: Techno Death
+Год: 2008
+
+Группа: Relicts
+Альбом: "12 On The Richter Scale"
+Стиль: Techno Death
+Год: 2008
+
+Группа: Revocation
+Альбом: "Empire Of The Obscene"
+Стиль: Techno Death
+Год: 2008
+
+Группа: Angel Of Disease
+Альбом: "Hypercube"
 Стиль: Techno Death
 Год: 2009
 
-Группа: Oblomov
-Альбом: "Communitas (Deconstructing the Order)"
-Стиль: Techno Death
-Год: 2009
-
-Группа: Prejudice
-Альбом: "Megalomanic Infest"
+Группа: Archetype (MEX)
+Альбом: "Rise Of The Blood Slaughter"
 Стиль: Techno Death
 Год: 2009
 
@@ -772,43 +762,18 @@
 Стиль: Techno Death
 Год: 2009
 
-Группа: Gory Blister
-Альбом: "Graveyard of Angels"
-Стиль: Techno Death
-Год: 2009
-
-Группа: Ulcerate
-Альбом: "Everything Is Fire"
-Стиль: Techno Death
-Год: 2009
-
-Группа: Refawn
-Альбом: "Lemur of the Nine"
-Стиль: Techno Death
-Год: 2009
-
 Группа: Gorod
 Альбом: "Process of a New Decline"
 Стиль: Techno Death
 Год: 2009
 
-Группа: Serdce
-Альбом: "The Alchemy Of Harmony"
+Группа: Gory Blister
+Альбом: "Graveyard of Angels"
 Стиль: Techno Death
 Год: 2009
 
-Группа: Angel Of Disease
-Альбом: "Hypercube"
-Стиль: Techno Death
-Год: 2009
-
-Группа: Revocation
-Альбом: "Existence Is Futile"
-Стиль: Techno Death
-Год: 2009
-
-Группа: Archetype (MEX)
-Альбом: "Rise Of The Blood Slaughter"
+Группа: Incarnator
+Альбом: "Under the Death Influence"
 Стиль: Techno Death
 Год: 2009
 
@@ -817,8 +782,8 @@
 Стиль: Techno Death
 Год: 2009
 
-Группа: Pestilence
-Альбом: "Resurrection Macabre"
+Группа: Oblomov
+Альбом: "Communitas (Deconstructing the Order)"
 Стиль: Techno Death
 Год: 2009
 
@@ -827,38 +792,48 @@
 Стиль: Techno Death
 Год: 2009
 
+Группа: Pestilence
+Альбом: "Resurrection Macabre"
+Стиль: Techno Death
+Год: 2009
+
+Группа: Prejudice
+Альбом: "Megalomanic Infest"
+Стиль: Techno Death
+Год: 2009
+
+Группа: Refawn
+Альбом: "Lemur of the Nine"
+Стиль: Techno Death
+Год: 2009
+
+Группа: Revocation
+Альбом: "Existence Is Futile"
+Стиль: Techno Death
+Год: 2009
+
+Группа: Serdce
+Альбом: "The Alchemy Of Harmony"
+Стиль: Techno Death
+Год: 2009
+
+Группа: Tantal
+Альбом: "The Beginning of the End"
+Стиль: Techno Death
+Год: 2009
+
 Группа: Trepalium
 Альбом: "XIII"
 Стиль: Techno Death
 Год: 2009
 
-Группа: Sadist
-Альбом: "Season In Silence"
+Группа: Ulcerate
+Альбом: "Everything Is Fire"
 Стиль: Techno Death
-Год: 2010
-
-Группа: Banisher
-Альбом: "Slaughterhouse"
-Стиль: Techno Death
-Год: 2010
-
-Группа: Fractured Insanity
-Альбом: "Mass Awakeless"
-Стиль: Techno Death
-Год: 2010
-
-Группа: Meshuggah
-Альбом: "Alive [DVD]"
-Стиль: Techno Death
-Год: 2010
+Год: 2009
 
 Группа: Acrania
 Альбом: "Unbreakable Fury"
-Стиль: Techno Death
-Год: 2010
-
-Группа: Beneath The Massacre
-Альбом: "Maree Noire (EP)"
 Стиль: Techno Death
 Год: 2010
 
@@ -867,8 +842,13 @@
 Стиль: Techno Death
 Год: 2010
 
-Группа: Funeral Speech
-Альбом: "E tenebris"
+Группа: Banisher
+Альбом: "Slaughterhouse"
+Стиль: Techno Death
+Год: 2010
+
+Группа: Beneath The Massacre
+Альбом: "Maree Noire (EP)"
 Стиль: Techno Death
 Год: 2010
 
@@ -877,18 +857,28 @@
 Стиль: Techno Death
 Год: 2010
 
-Группа: Ulcerate
-Альбом: "The Destroyers of All"
+Группа: Fractured Insanity
+Альбом: "Mass Awakeless"
 Стиль: Techno Death
-Год: 2011
+Год: 2010
 
-Группа: Gorod
-Альбом: "Transcendence"
+Группа: Funeral Speech
+Альбом: "E tenebris"
 Стиль: Techno Death
-Год: 2011
+Год: 2010
 
-Группа: Revocation
-Альбом: "Chaos Of Forms"
+Группа: Meshuggah
+Альбом: "Alive [DVD]"
+Стиль: Techno Death
+Год: 2010
+
+Группа: Sadist
+Альбом: "Season In Silence"
+Стиль: Techno Death
+Год: 2010
+
+Группа: Adimiron
+Альбом: "K2"
 Стиль: Techno Death
 Год: 2011
 
@@ -897,38 +887,8 @@
 Стиль: Techno Death
 Год: 2011
 
-Группа: Adimiron
-Альбом: "K2"
-Стиль: Techno Death
-Год: 2011
-
 Группа: Delirium X Tremens
 Альбом: "Belo Dunum, Echoes from the past"
-Стиль: Techno Death
-Год: 2011
-
-Группа: Origin
-Альбом: "Entity"
-Стиль: Techno Death
-Год: 2011
-
-Группа: Khariot
-Альбом: "Disymposium"
-Стиль: Techno Death
-Год: 2011
-
-Группа: Illogicist
-Альбом: "The Unconsciousness of Living"
-Стиль: Techno Death
-Год: 2011
-
-Группа: Obscura
-Альбом: "Omnivium"
-Стиль: Techno Death
-Год: 2011
-
-Группа: Natrium
-Альбом: "Elegy For The Flesh"
 Стиль: Techno Death
 Год: 2011
 
@@ -937,13 +897,38 @@
 Стиль: Techno Death
 Год: 2011
 
-Группа: Край
-Альбом: "Чудеса За Деньги"
+Группа: Gorod
+Альбом: "Transcendence"
+Стиль: Techno Death
+Год: 2011
+
+Группа: Illogicist
+Альбом: "The Unconsciousness of Living"
+Стиль: Techno Death
+Год: 2011
+
+Группа: Khariot
+Альбом: "Disymposium"
 Стиль: Techno Death
 Год: 2011
 
 Группа: Lost Conception
 Альбом: "Paroxysm of Despair"
+Стиль: Techno Death
+Год: 2011
+
+Группа: Natrium
+Альбом: "Elegy For The Flesh"
+Стиль: Techno Death
+Год: 2011
+
+Группа: Obscura
+Альбом: "Omnivium"
+Стиль: Techno Death
+Год: 2011
+
+Группа: Origin
+Альбом: "Entity"
 Стиль: Techno Death
 Год: 2011
 
@@ -957,33 +942,23 @@
 Стиль: Techno Death
 Год: 2011
 
-Группа: Replacire
-Альбом: "The Human Burden"
+Группа: Revocation
+Альбом: "Chaos Of Forms"
 Стиль: Techno Death
-Год: 2012
+Год: 2011
 
-Группа: Faceless, The
-Альбом: "Autotheism"
+Группа: Ulcerate
+Альбом: "The Destroyers of All"
 Стиль: Techno Death
-Год: 2012
+Год: 2011
+
+Группа: Край
+Альбом: "Чудеса За Деньги"
+Стиль: Techno Death
+Год: 2011
 
 Группа: Acrania
 Альбом: "An Uncertain Collision"
-Стиль: Techno Death
-Год: 2012
-
-Группа: Perfect Asymmetry
-Альбом: "Stop The Reaction"
-Стиль: Techno Death
-Год: 2012
-
-Группа: Meshuggah
-Альбом: "Koloss"
-Стиль: Techno Death
-Год: 2012
-
-Группа: Inanimate Existence
-Альбом: "Liberation Through Hearing"
 Стиль: Techno Death
 Год: 2012
 
@@ -992,23 +967,13 @@
 Стиль: Techno Death
 Год: 2012
 
+Группа: Faceless, The
+Альбом: "Autotheism"
+Стиль: Techno Death
+Год: 2012
+
 Группа: Gorod
 Альбом: "A Perfect Absolution"
-Стиль: Techno Death
-Год: 2012
-
-Группа: Mencea
-Альбом: "Pyrophoric"
-Стиль: Techno Death
-Год: 2012
-
-Группа: Revocation
-Альбом: "Teratogenesis (EP)"
-Стиль: Techno Death
-Год: 2012
-
-Группа: Psycroptic
-Альбом: "The Inherited Repression"
 Стиль: Techno Death
 Год: 2012
 
@@ -1017,18 +982,58 @@
 Стиль: Techno Death
 Год: 2012
 
+Группа: Inanimate Existence
+Альбом: "Liberation Through Hearing"
+Стиль: Techno Death
+Год: 2012
+
+Группа: Mencea
+Альбом: "Pyrophoric"
+Стиль: Techno Death
+Год: 2012
+
+Группа: Meshuggah
+Альбом: "Koloss"
+Стиль: Techno Death
+Год: 2012
+
 Группа: Obscura
 Альбом: "Illegimitation (Compilation)"
 Стиль: Techno Death
 Год: 2012
+
+Группа: Perfect Asymmetry
+Альбом: "Stop The Reaction"
+Стиль: Techno Death
+Год: 2012
+
+Группа: Psycroptic
+Альбом: "The Inherited Repression"
+Стиль: Techno Death
+Год: 2012
+
+Группа: Replacire
+Альбом: "The Human Burden"
+Стиль: Techno Death
+Год: 2012
+
+Группа: Revocation
+Альбом: "Teratogenesis (EP)"
+Стиль: Techno Death
+Год: 2012
+
+Группа: Arsis
+Альбом: "Unwelcome"
+Стиль: Techno Death
+Год: 2013
 
 Группа: Banisher
 Альбом: "Scarcity"
 Стиль: Techno Death
 Год: 2013
 
-Группа: Arsis
-Альбом: "Unwelcome"
+Группа: Fleshgod Apocalypse
+Альбом: "Labyrinth"
 Стиль: Techno Death
 Год: 2013
 
@@ -1042,16 +1047,6 @@
 Стиль: Techno Death
 Год: 2013
 
-Группа: Fleshgod Apocalypse
-Альбом: "Labyrinth"
-Стиль: Techno Death
-Год: 2013
-
-Группа: Revocation
-Альбом: "Deathless"
-Стиль: Techno Death
-Год: 2014
-
 Группа: Aghast [UK]
 Альбом: "All the Rage"
 Стиль: Techno Death
@@ -1062,23 +1057,23 @@
 Стиль: Techno Death
 Год: 2014
 
-Группа: Inanimate Existence
-Альбом: "A Never-Ending Cycle of Atonement"
-Стиль: Techno Death
-Год: 2014
-
 Группа: Destrage
 Альбом: "Are You Kidding Me? No."
 Стиль: Techno Death
 Год: 2014
 
-Группа: Sadist
-Альбом: "Hyaena"
+Группа: Inanimate Existence
+Альбом: "A Never-Ending Cycle of Atonement"
 Стиль: Techno Death
-Год: 2015
+Год: 2014
 
-Группа: Gorod
-Альбом: "A Maze of Recycled Creeds"
+Группа: Revocation
+Альбом: "Deathless"
+Стиль: Techno Death
+Год: 2014
+
+Группа: Acrania
+Альбом: "Fearless"
 Стиль: Techno Death
 Год: 2015
 
@@ -1087,13 +1082,18 @@
 Стиль: Techno Death
 Год: 2015
 
-Группа: Acrania
-Альбом: "Fearless"
+Группа: Gorod
+Альбом: "A Maze of Recycled Creeds"
 Стиль: Techno Death
 Год: 2015
 
-Группа: Fractured Insanity
-Альбом: "Man Made Hell"
+Группа: Sadist
+Альбом: "Hyaena"
+Стиль: Techno Death
+Год: 2015
+
+Группа: Banisher
+Альбом: "Oniric Delusions"
 Стиль: Techno Death
 Год: 2016
 
@@ -1102,33 +1102,13 @@
 Стиль: Techno Death
 Год: 2016
 
-Группа: Denominate
-Альбом: "Those Who Beheld The End"
-Стиль: Techno Death
-Год: 2016
-
-Группа: Ulcerate
-Альбом: "Shrines of Paralysis"
-Стиль: Techno Death
-Год: 2016
-
-Группа: Meshuggah
-Альбом: "The Violent Sleep Of Reason"
-Стиль: Techno Death
-Год: 2016
-
 Группа: Cognitive
 Альбом: "Deformity"
 Стиль: Techno Death
 Год: 2016
 
-Группа: Fleshgod Apocalypse
-Альбом: "King"
-Стиль: Techno Death
-Год: 2016
-
-Группа: Inanimate Existence
-Альбом: "Calling from a Dream"
+Группа: Denominate
+Альбом: "Those Who Beheld The End"
 Стиль: Techno Death
 Год: 2016
 
@@ -1137,13 +1117,33 @@
 Стиль: Techno Death
 Год: 2016
 
-Группа: Obscura
-Альбом: "Akroasis"
+Группа: Destroying the Devoid
+Альбом: "Paramnesia"
 Стиль: Techno Death
 Год: 2016
 
-Группа: Banisher
-Альбом: "Oniric Delusions"
+Группа: Fleshgod Apocalypse
+Альбом: "King"
+Стиль: Techno Death
+Год: 2016
+
+Группа: Fractured Insanity
+Альбом: "Man Made Hell"
+Стиль: Techno Death
+Год: 2016
+
+Группа: Inanimate Existence
+Альбом: "Calling from a Dream"
+Стиль: Techno Death
+Год: 2016
+
+Группа: Meshuggah
+Альбом: "The Violent Sleep Of Reason"
+Стиль: Techno Death
+Год: 2016
+
+Группа: Obscura
+Альбом: "Akroasis"
 Стиль: Techno Death
 Год: 2016
 
@@ -1152,8 +1152,8 @@
 Стиль: Techno Death
 Год: 2016
 
-Группа: Destroying the Devoid
-Альбом: "Paramnesia"
+Группа: Ulcerate
+Альбом: "Shrines of Paralysis"
 Стиль: Techno Death
 Год: 2016
 

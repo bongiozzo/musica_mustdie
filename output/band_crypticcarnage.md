@@ -1,8 +1,32 @@
 # Cryptic Carnage
 
-Дискография
-"And Another Kingdom Was Born..." 1996, Black Metal
-"Rozelowe" 1998, Black Metal
+
+
+## Дискография
+
+### "And Another Kingdom Was Born..." 1996, Black Metal
+
+1. Beyond The Burning Horizon
+2. And A Star Of Glory Began To Shine
+3. ...And Another Kingdom Was Born...
+4. With The Wind
+5. Illusion
+6. Mephistopheles
+7. Lords Of Blackness
+8. Nameless
+
+Michael A. - Vocals, Bass, Flute
+Mike K.R. - Guitars
+Obscuritas - Keyboards, Vocals
+Nekro - Drums
+Alex S. - Guitars
+
+(P)(C) 1996 FOLTER Records 004
+
+### "Rozelowe" 1998, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

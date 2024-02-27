@@ -1,7 +1,21 @@
 # Strider
 
-Дискография
-"Gearheart" 2007, Thrash
+
+
+## Дискография
+
+### "Gearheart" 2007, Thrash
+
+1. Dark Clouds
+2. No Rest
+3. Shining Twice
+4. Skinless
+5. Gearheart	
+6. Perseverance Pays
+7. Eternal Secondcomer
+8. Green Eyes
+9. North Star
+
 
 ## Отношения с другими группами
 

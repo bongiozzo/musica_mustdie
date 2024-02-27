@@ -1,9 +1,51 @@
 # Resurrecturis
 
-Дискография
-"Nocturnal" 1998, Death Metal
-"The Cuckoo Clocks Of Hell" 2004, Death Metal
-"Non Voglio Morire" 2009, Death Metal
+Italian death-metal band
+
+## Дискография
+
+### "Nocturnal" 1998, Death Metal
+
+1. Freeze Frame 04:26
+2. Il Male Contro Il Male 04:31
+3. Fear No Evil 05:30
+4. Dark Moods 04:28
+5. Born Defeated 01:51
+6. No Dreams Allowed 03:57
+7. Isole 03:58  
+8. Abisso Notturno 04:10
+9. 2 Flashes 05:56
+10. Midnight Letter 04:24 
+
+
+### "The Cuckoo Clocks Of Hell" 2004, Death Metal
+
+1. The Last Sun 04:00 
+2. The Hate 03:25 
+3. Living Reification 05:22
+4. Inversion-Perversion 03:18
+5. Sleeping Reason 03:14  
+6. In Artґs Death 04:51 
+7. Helmet Logic 05:20
+8. I Corpi Privi Di Vita 06:34 
+
+
+### "Non Voglio Morire" 2009, Death Metal
+
+1. The Origin   
+2. Prologue   
+3. Fuck Face   
+4. Corpses Forever   
+5. The Artist   
+6. Save My Anger   
+7. Calling Our Names   
+8. After The Show   
+9. The Fracture   
+10. Away From The Flock   
+11. Where Shall I Go From Here?   
+12. Walk Through Fire   
+13. In Retrospective 
+
 
 ## Отношения с другими группами
 

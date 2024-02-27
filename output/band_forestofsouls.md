@@ -1,7 +1,27 @@
 # Forest Of Souls
 
-Дискография
-"War And Poetry" 1996, Black Metal
+Black Occult Dark Gothic Metal
+
+## Дискография
+
+### "War And Poetry" 1996, Black Metal
+
+1.  War And Poetry - Act I: The Ritual  The Anthem Of Eternity
+2.  War And Poetry - Act II: The Curse
+3.  Into The Infinity Sorrow Of My Mind
+4.  The Time Of Broken Gates
+
+Engineered by Sylvain Carel
+Mixed by Sylvain Carel and Denis Barjettas
+Remixed by Alain Guerci at Plaza Studio
+
+Jerome Deres - Guitars, Vocals,
+Wil&id Rodel - Drums,
+Georges Nogueira - Keyboards,
+Denis Barjettas - Bass, Vocals, Keyboards
+
+(P)c 1996 ADIPOCERE REC // ADS 001
+
 
 ## Отношения с другими группами
 

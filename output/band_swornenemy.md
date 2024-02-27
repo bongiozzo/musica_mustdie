@@ -1,12 +1,42 @@
 # Sworn Enemy
 
-Дискография
-"Negative Outlook (EP)" 2000, Hardcore
-"Integrity Defines Strength (EP)" 2002, Hardcore
-"As Real As It Gets" 2003, Metalcore
-"The Beginning Of The End" 2006, Metalcore
-"Maniacal" 2008, Thrash
-"Total World Domination" 2009, Metalcore
+
+
+## Дискография
+
+### "Negative Outlook (EP)" 2000, Hardcore
+
+
+
+### "Integrity Defines Strength (EP)" 2002, Hardcore
+
+
+
+### "As Real As It Gets" 2003, Metalcore
+
+
+
+### "The Beginning Of The End" 2006, Metalcore
+
+
+
+### "Maniacal" 2008, Thrash
+
+01. Ignorance
+02. Time To Rage
+03. A Place of Solace
+04. Weather The Storm
+05. Destroyer
+06. The American Way
+07. Fear For Failure
+08. No End To This Nightmare
+09. Talk Is Cheap
+10. Said And Done 
+
+### "Total World Domination" 2009, Metalcore
+
+
+
 
 ## Отношения с другими группами
 

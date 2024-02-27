@@ -1,7 +1,24 @@
 # Paul Chain
 
-Дискография
-"Park Of Reason" 2002, Doom
+
+
+## Дискография
+
+### "Park Of Reason" 2002, Doom
+
+1. Solitude man
+2. 8 string sweed
+3. Sanctuary heve
+4. Continuous fix
+5. War abysses
+6. Stajness klaus
+7. Let the end begin
+8. Wings of decadence
+9. Ascension of any pound
+10. Ways of changes
+11(left). Logical slow evolution 
+11(right). ...In time
+
 
 ## Отношения с другими группами
 

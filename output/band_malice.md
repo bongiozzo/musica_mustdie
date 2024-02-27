@@ -1,7 +1,13 @@
 # Malice
 
-Дискография
-"Symphony Of Darkness" 2001, Black Metal
+Black metal
+
+## Дискография
+
+### "Symphony Of Darkness" 2001, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

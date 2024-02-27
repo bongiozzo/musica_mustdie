@@ -1,7 +1,13 @@
 # Abuse
 
-Дискография
-"Like A Virgin" 2001, Grindcore
+Grindcore from Canada
+
+## Дискография
+
+### "Like A Virgin" 2001, Grindcore
+
+
+
 
 ## Отношения с другими группами
 

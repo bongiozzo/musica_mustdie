@@ -1,9 +1,63 @@
 # Infestdead
 
-Дискография
-"Killing Christ" 1995, Death Metal
-"Hellfuck" 1997, Death Metal
-"Jesusatan" 1999, Death Metal
+
+
+## Дискография
+
+### "Killing Christ" 1995, Death Metal
+
+1. The rising (intro) 0:43 
+2. I'll be black 2:25 
+3. In the spell of satan 2:35 
+4. Save me from the hands of Christ 2:06 
+5. Fucked by Satan 0:41 
+6. Burn me (Without the grace of God) 3:07 
+
+total time 11:36 
+
+### "Hellfuck" 1997, Death Metal
+
+1. Rebirth (intro) 0:28 
+2. The desecration of christ 1:53 
+3. Infest the dead 1:41 
+4. The new empire 1:49 
+5. Mercenary, merciless 1:44 
+6. Born, nailed 1:38 
+7. Susej llik ot tolp eht (inverted instrumental) 0:43 
+8. Blaspheme the abyss 1:59 
+9. Polterchrist 1:55 
+10. Sacrifice the saviour 1:59 
+11. Hellfuck 1:25 
+12. Darkness complete 1:39 
+13. Haunting the holy 1:33 
+14. Heaven denied 1:56 
+15. Salvation incomplete (instrumental) 0:59 
+16. Bewitch the virgin 1:55 
+17. Angeldemon 1:24 
+18. World inverted 1:58 
+19. Son of the darkside 1:53 
+20. Hellborn 1:50 
+21. Satanic 1:56 
+22. Amen (outro) 0:31 
+23. Untitled 1:48 
+
+total time 36:36 
+
+### "Jesusatan" 1999, Death Metal
+
+ 1. Re-resurrection		3:27  
+ 2. Christinsanity		3:45  
+ 3. Born to burn		3:55  
+ 4. Jesusatan		3:10  
+ 5. Undead screaming sins	3:20  
+ 6. The burning of the son	3:44  
+ 7. Sinister		3:50  
+ 8. Evil			3:10  
+ 9. Antichristian song #37	4:22  
+10. Black night		2:11  
+
+total time  34:54  
+
 
 ## Отношения с другими группами
 

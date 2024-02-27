@@ -1,10 +1,91 @@
 # Seventh Wonder
 
-Дискография
-"Become " 2005, Progressive
-"Waiting in the Wings" 2006, Progressive
-"Mercy Falls" 2008, Progressive
-"The Great Escape" 2010, Progressive
+
+
+## Дискография
+
+### "Become " 2005, Progressive
+
+1. Day By Day 03:53 
+2. Like Him 05:29 
+3. The Damned 04:30  
+4. Temple In The Storm 06:14 
+5. Blinding My Eyes 03:49 
+6. The Secret 04:13 
+7. What I've Become 08:38 
+8. In The Blink Of An Eye 07:35 
+9. Day By Day (Acoustic) 06:22 
+
+
+Produced by: Seventh Wonder
+Engineered by: Seventh Wonder and Daniel Flores
+Mixed by: Seventh Wonder, assisted by Daniel Flores
+Mastered by: Peter In de Betou at Tailor Maid studios in January 2005
+Recorded in: Sheepvalley Studios, November-December 2004
+Cover Art by: Carl-Andrй Beckston [MonoWasp]
+
+### "Waiting in the Wings" 2006, Progressive
+
+1. Star of David 05:13 
+2. Taint the Sky 06:24 
+3. Waiting in the Wings 09:18] 
+4. Banish the Wicked 05:36  
+5. Not an Angel 06:44 
+6. Devil's Inc. 07:14  
+7. Walking Tall 04:20  
+8. The Edge of My Blade 06:32  
+9. Pieces 04:27 
+
+
+
+Line up:
+Tommy Karevik - vocals
+Andreas Soderin - keyboards
+Johan Liefvendahl - guitar
+Andreas Blomqvist - bass 
+Johnny Sandin - drums, percussion
+
+Produced by: Seventh Wonder.
+Mixed and mastered by: Tommy Hansen.
+Engineered by: Daniel Flores and Seventh Wonder.
+Recorded in Sound vs. Science studio February/March 2006
+Artwork by: Carl-Andrй Beckston [MonoWasp] 
+
+### "Mercy Falls" 2008, Progressive
+
+1. A New Beginning 03:05 [view lyrics] 
+2. There And Back (Overture) 03:02  
+3. Welcome To Mercy Falls 05:11
+4. Unbreakable 07:18
+5. Tears For A Father 01:58 
+6. A Day Away 03:43 
+7. Tears For A Son 01:43 
+8. Paradise 05:44 
+9. Fall In Line 06:09 
+10. Break The Silence 09:29 
+11. Hide And Seek 07:46 
+12. Destiny Calls 06:17 
+13. One Last Goodbye 04:21 
+14. Back In Time 01:14
+15. The Black Parade 06:57 
+
+
+
+Produced by: Andreas Blomqvist
+Recorded by: Seventh Wonder and Daniel Flores in three different studios.
+Mixed and mastered by: Tommy Hansen 
+
+### "The Great Escape" 2010, Progressive
+
+1. Wiseman 05:42  
+2. Alley Cat 06:06  
+3. The Angelmaker 08:29  
+4. King of Whitewater 07:20  
+5. Long Way Home 04:26  
+6. Move on Through 05:04  
+7. The Great Escape 30:14 
+
+
 
 ## Отношения с другими группами
 

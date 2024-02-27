@@ -1,9 +1,110 @@
 # Seraphim
 
-Дискография
-"The Soul That Never Dies" 2001, Power Metal
-"The Equal Spirit" 2002, Power Metal
-"AI" 2004, Power Metal
+Melody power metal with female opera vocal & male death vocal from Taiwan
+
+## Дискография
+
+### "The Soul That Never Dies" 2001, Power Metal
+
+ 1.    PRELUDE                                    0.59                                        
+ 2.    LOVE HATE                                 5.25            
+ 3.    EMPTINESS                                 5.45      
+ 4.    IMMORTAL SILENCE                    5.26
+ 5.    THE SOUL THAT NEVER DIES       6.03                    
+ 6.    SAMSARA                                    5.34
+ 7.    MIND’S SKY                                 9.16
+ 8.    FOREVER                                     5.35
+ 9.    CANTICLE                                    4.51
+10.    LIGHT OF THE SETTING SUN        5.03                  
+11.    MAJESTIC FAREWELL                  10.18
+
+               
+
+released:
+March 11th 2002 Arise Record Spain
+
+produce by Kessier
+recorded & mixed at Sahara Studio, Taipei Taiwan by Kessier
+                   
+mastered at Finnvox Studios, Helsinki Finland by Mika Jussila
+
+
+
+### "The Equal Spirit" 2002, Power Metal
+
+1. Deep 6.00 
+2. Think This World 5.55 
+3. The Pride Of Twilight 6.39 
+4. Song Of Death 5.43
+5. My Heart Is Dying 5.20 
+6. Vanishing Destruction 5.57
+7. Last Memory 8.29
+8. Song Of Farewell 5.26 
+9. Occupied 5.52
+10. To Leave 6.12 
+11. The Equal Spirit 9.33
+12. Finale 1.30 
+
+
+
+
+Vocal--Pay  
+Lead Guitar--Kessier  
+Bass--Jax 
+Rhythm Guitar--Dan  
+Drum--Simon  
+
+
+
+
+### "AI" 2004, Power Metal
+
+1 Intro  1.21 
+2 Tears  5.23 
+3 Resurrect  6.29  
+4 Implementation  5.29 
+5 Desperate   6.09 
+6 Can't Take   4.57 
+7 My  7.25 
+8 In The Air   5.41 
+9 Gone   3.44 
+10 Before   6.34 
+11 Is That?   5.15 
+12 Instantaneous  9.37  
+13 The End   1.24 
+
+
+
+Vocal & Chorus: Pay Lee
+Guitar: Kessier Hsu
+Bass & voc: Jax Yeah
+Drums: Simon "Machine-gun" Lin
+Guitar:Lucas Huang
+
+Additional Players:
+Keyboard : Deen
+Cello : Lin Meng Ying
+Backing vocal : Seraphim 
+
+Publisher - Simon Wang
+Managing Director - Simon Wang
+Executive Director - May Wu
+Marketing - Alan Huang, Michael Lin
+Promotion Coordinator - May Wu
+Internet Marketing - Jim Hong,Luis Wei
+Cover & Booklet Design - Mattias Noren
+Photographer - Regent Wang
+Hair & Makeup - Cher 
+
+Drums recorded at Sunhouse studio (Taipei) by Kessier (June 2003)
+Recorded at Sahara studio (Taipei) by Kessier , Howard (July to Sep 2003) 
+Mixed at Finnvox studios (Helsinki Finland) by Mikko Karmila (Oct 2003)
+Mastered at Finnvox studios (Helsinki Finland) by Mika Jussila (Oct 2003)
+
+Produced by Seraphim
+Arrangement by Seraphim
+Music & lyrics by Kessier
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,13 @@
 # Red Circuit
 
-Дискография
-"Trance State" 2006, Power Metal
+
+
+## Дискография
+
+### "Trance State" 2006, Power Metal
+
+
+
 
 ## Отношения с другими группами
 

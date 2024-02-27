@@ -1,28 +1,297 @@
 # Graveland
 
-Дискография
-"Necromanteion [demo]" 1992, Black Metal
-"Promo June '92 [demo]" 1992, Black Metal
-"Drunemeton [demo]" 1992, Black Metal
-"Epilogue [demo]" 1993, Black Metal
-"In the Glare of Burning Churches [demo]" 1993, Black Metal
-"The Celtic Winter [demo]" 1993, Black Metal
-"The Celtic Winter [EP]" 1994, Black Metal
-"Carpathian Wolves" 1994, Black Metal
-"Thousand Swords" 1995, Black Metal
-"In the Glare of Burning Churches" 1996, Black Metal
-"Following the Voice of Blood [demo]" 1997, Black Metal
-"Following the Voice of Blood" 1997, Black Metal
-"Immortal Pride" 1998, Black Metal
-"Epilogue/In the Glare of Burning Churches" 1999, Black Metal
-"Impaler's Wolves [EP]" 1999, Black Metal
-"Creed of Iron" 2000, Black Metal
-"Raise Your Sword! [EP]" 2001, Black Metal
-"Blood of Heroes [EP]" 2002, Black Metal
-"Memory and Destiny" 2002, Black Metal
-"The Fire of Awakening" 2003, Black Metal
-"Dawn of Iron Blades" 2004, Black Metal
-"Fire Chariot of Destruction" 2005, Black Metal
+Polish Antichristian NS Black Metal from Wroclaw
+
+## Дискография
+
+### "Necromanteion [demo]" 1992, Black Metal
+
+1. Intro - 2:47  
+2. Immortalem - 5:36  
+3. The Quest - 6:30  
+4. Opus Mysteries/Nocturni - 3:54
+5. Storm of Souls - 1:06  
+6. Celts Ride Over Graveland - 6:16  
+7. Sword and Blood - 2:41  
+8. Who Dies First - 5:12 
+
+Originally tracks "Opus Mysteries" and "Nocturni" are released as two separeated tracks.
+
+### "Promo June '92 [demo]" 1992, Black Metal
+
+1. Intro - 2:46  
+2. Cathedral of Shadows - 7:25  
+3. The Dawn of Samhain - 5:23  
+4. Dark Visions - 3:38
+
+### "Drunemeton [demo]" 1992, Black Metal
+
+1. Intro/The Eyes of Balor - 3:24  
+2. Shadows of Doom - 2:25  
+3. The Days of the Black Sun - 5:37  
+4. The Dawn of Battle - 3:02  
+5. Aes Side - 3:28  
+6. Intro - 1:33  
+7. Eternal Winter - 6:24  
+8. Drunemeton - 0:54  
+9. Winds of Winter - 2:50  
+10. The Forest Nemeton - 3:24  
+11. Celtic Sanctuary - 3:38 
+
+Translated from Galatian into English, Drunemeton means, "Oak Sanctuary". 
+
+Release date: November 1992
+
+### "Epilogue [demo]" 1993, Black Metal
+
+1. Intro - 1:55  
+2. The Eyes of Balor - 1:22  
+3. Shadow of Doom - 3:13  
+4. The Forest Nemeton (Part II) - 4:56  
+5. Children of the Moon - 5:38  
+6. Outro - 1:05 
+
+1999 CD re-release limited to 1000 copies on No Colours Records, together with the "In the Glare of Burning Churches" demo.
+
+Also re-released on tape by Ukrakian label Oriana/Kolovrat Prod. in 2001, together with "Impaler's Wolves" EP. 
+
+Release date: January 1993
+
+### "In the Glare of Burning Churches [demo]" 1993, Black Metal
+
+1. Intro - 1:02  
+2. In the Glare of Burning Churches - 4:10
+3. The Night of Fullmoon - 5:03
+4. The Dark Dusk Abyss - 2:19  
+5. Through the Occult Veil - 4:03
+6. For Pagan and Heretic's Blood - 2:44
+7. Outro - 0:48
+
+Reissued on CD in 1996 with 2 extra tracks.
+
+A later release featuring the "Epilogue" demo contained an alternate recording of these songs. 
+
+Released date: May 1993
+
+### "The Celtic Winter [demo]" 1993, Black Metal
+
+1. Intro - 3:16  
+2. Call of the Black Forest - 4:22
+3. Hordes of Empire - 4:38
+4. The Night of Fullmoon - 5:32
+5. Prolog - 3:17  
+6. The Gates to the Kingdom of Darkness - 6:42
+7. The Return of Funeral Winds - 8:25
+
+3 songs were released as an EP by No Colours in 1994, then the entire demo was reissued in 1996. 
+
+Release date: October 1993
+
+### "The Celtic Winter [EP]" 1994, Black Metal
+
+1. Hordes of Empire
+2. The Gates to the Kingdom of Darkness
+3. The Return of Funeral Winds
+
+### "Carpathian Wolves" 1994, Black Metal
+
+1. Carpathian Wolves (Intro) - 3:36
+2. Barbarism Returns - 5:14
+3. Untitled - 1:02  
+4. In the Northern Carpathians - 5:10
+5. Impaler of Wallachia - 8:54
+6. Witches Holocaust - 7:38
+7. At the Pagan Samhain Night - 8:12
+8. Unpunished Herd/Into the War (Outro) - 7:20
+
+
+Rob Darken: vocals, guitars, keyboards
+Capricornus: drums
+Karcharoth: bass
+
+Re-released by No Colours twice, the second time in 2002 with 4 bonus rehearsal tracks.
+
+Bonus tracks (Reh '93):
+
+9. In the Northern Carpathians
+10. Barbarism Returns
+11. At the Pagan Samhain Night
+12. Unpunished Herd
+
+The tracklist on most versions is incorrect. The tracklist shown below is the right one.
+
+### "Thousand Swords" 1995, Black Metal
+
+1. Intro - 1:35  
+2. Blood of Christians on My Sword - 8:05
+3. Thousand Swords - 6:32
+4. The Dark Battlefield - 7:57
+5. The Time of Revenge - 4:50  
+6. Born for War - 8:31
+7. Black Metal War - 1:42  
+8. To Die in Fight - 5:41
+9. Outro - 2:01 
+
+CD was rereleased by Isengard Records in 1996 and by No Colours in 2000. The cover art was black and white for the Isengard release, and in colour for the No Colours reissue. Also reissued by No Colours in 1999 as a digipack with completely different artwork.
+
+### "In the Glare of Burning Churches" 1996, Black Metal
+
+1. Intro/In the Glare of Burning Churches - 5:12
+2. The Night of Fullmoon - 5:04
+3. The Dark Dusk Abyss - 2:20  
+4. Through the Occult Veil - 4:04
+5. For Pagan and Heretic's Blood - 2:44
+6. Instrumental - 3:34  
+7. Hordes of Empire - 4:15  
+8. The Gates to the Kingdom of Darkness/Outro - 6:17 
+
+Re-release of the demo "In the Glare of the Burning Churches" with the last 3 songs as bonus tracks.
+
+### "Following the Voice of Blood [demo]" 1997, Black Metal
+
+1. White Hand's Power - 8:33
+2. And the Horn Was Sounding Far Away - 11:58 
+
+The lyrics for "White Hand's Power" are written by JFN of German band ABSURD.
+
+### "Following the Voice of Blood" 1997, Black Metal
+
+1. Intro - 2:58  
+2. White Hand's Power - 8:33
+3. Thurisaz - 8:49
+4. Following the Voice of Blood - 9:05
+5. Forge of Souls - 2:31  
+6. Raise the Swords - 12:14
+7. And the Horn Was Sounding Far Away - 11:56
+8. Fed by the Beasts - 9:29
+9. Outro - 2:34 
+
+Rereleased in 2001 on LP. The "Impaler's Wolves" EP was included.
+
+### "Immortal Pride" 1998, Black Metal
+
+1. Intro (Day of Fury) - 3:21  
+2. Sons of Fire and Steel - Outro (Servants of War) - 23:39
+3. Sacrifice for Honour - 16:26
+4. Outro (To Die in Glory) - 7:01 
+
+Originaly released by Eastclan Prod. as a MC.
+
+### "Epilogue/In the Glare of Burning Churches" 1999, Black Metal
+
+1. Intro - 1:52  
+2. The Eyes of Balor - 1:21  
+3. Shadow of Doom - 3:13  
+4. The Forest Nemeton - 4:52  
+5. Children of the Moon - 5:37  
+6. Outro - 1:04  
+7. Intro/In the Glare of Burnning Churches - 4:45
+8. The Night of Fullmoon - 4:55
+9. The Dark Dusk Abyss - 2:58  
+10. Through the Occult Veil - 3:57
+11. For Pagan and Heretic's Blood/Outro - 3:32
+
+Limited to 1000 copies. Contains the previously-released "Epilogue" and a previously unreleased version of "In the Glare of Burning Churches".
+
+### "Impaler's Wolves [EP]" 1999, Black Metal
+
+1. Impaler of Wallachia - 12:01
+2. In the Northern Carpathians - 10:25 
+
+Originally released as cassette EP. CD released by No Colours in 2000. Also re-released on tape by Ukrakian label Oriana/Kolovrat Prod. in 2001, together with "Epilogue" demo.
+
+### "Creed of Iron" 2000, Black Metal
+
+1. Blood and Ash - 2:34  
+2. Tyrants of Cruelty - 10:18
+3. No Mercy in My Heart - 9:28
+4. Ancient Blood - 11:17
+5. White Beasts of Wotan - 10:47 
+
+Polish Tracklist:
+1. Krew i Popiol
+2. Tyrani Okrucielstw
+3. Nie Ma Milosierdzia w Moim Sercu
+4. Starozytna Krew
+5. Biale Bestie Swaroga
+
+The name "Creed of Iron" comes from Ron McVan's Wotansvolk book, also titled "Creed of Iron".
+
+The digipack version is limited to 2000 copies.
+
+This album was also released as a limited edition with vocals in Polish (Poland only release) entitled "Prawo Stali", released by Nawia Prod.
+
+LP version limited to 500 copies.
+
+### "Raise Your Sword! [EP]" 2001, Black Metal
+
+1. Till the Final Death - 9:51
+2. Temple of My Hatred - 10:16
+3. W Objecia Smierci - 9:18
+
+LP limited to 888 copies.
+Re-released in 2001 by No Colours, together with Graveland's side on "Raiders of Revenge" split.
+
+### "Blood of Heroes [EP]" 2002, Black Metal
+
+1. I Am What They Fear - 6:26
+2. Blood of Heroes - 7:25
+
+Limited to 1488 copies.
+
+March 2004 CD re-release on No Colours limited to 666 handnumbered copies.
+
+### "Memory and Destiny" 2002, Black Metal
+
+1. Fate of Warrior - 8:49
+2. Jewel of Atlanteans - 9:44
+3. Memory and Destiny - 10:17
+4. Legion of Giants - 9:35
+5. Runes of Rise - 9:37
+
+A5 digibook CD version limited to 2000 copies.
+
+### "The Fire of Awakening" 2003, Black Metal
+
+1. We Shall Prevail - 9:54
+2. Battle of Wotan's Wolves - 8:41
+3. In the Sea of Blood - 10:48
+4. Die for Freedom - 7:29
+5. The Four Wings of the Sun - 10:44
+
+A5 digibook CD version limited to 1000 hand-numbered copies.
+
+### "Dawn of Iron Blades" 2004, Black Metal
+
+1. Iron in the Fog - 09:29
+2. Semper Fidelix - 09:28
+3. Immortal Bloodline - 11:21
+4. To the North of Rubicon - 07:29
+5. Crown Heroic My Departure - 07:39
+6. While I Ride With the Valkyries - 06:04
+
+Some lyrics written by Garhard III.
+
+Released as CD, A5 Digi and Gatefold LP.
+
+Release date: October 2004
+
+### "Fire Chariot of Destruction" 2005, Black Metal
+
+1. War Wolf   
+2. War Wolf Outro   
+3. River of Tears   
+4. Fire Chariot of Destruction   
+5. Flaming Wrathful Hate   
+6. Creator and Destroyer   
+7. Prayer for My Ancestors   
+8. Dance of Axes and Swords   
+9. Motherland 
+
+A5 Digi-CD/CD/Gatefold DLP (with "Impaler's Wolves" as bonus) limited to 500 copies.
+
+Release date: September 30th, 2005
+
 
 ## Отношения с другими группами
 

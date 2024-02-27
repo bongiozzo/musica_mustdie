@@ -1,8 +1,43 @@
 # Fata Morgana
 
-Дискография
-"Fata Morgana" 1996, Ambient
-"Space Race [EP]" 1996, Ambient
+Norwegian Dark Ambient. Side-Project of Mortiis
+
+## Дискография
+
+### "Fata Morgana" 1996, Ambient
+
+1. Stargazer <small>(04:37)</small>
+2. S&oslash;k Din Aring;nd <small>05:40</small>
+3. A Forset Path <small>04:16</small>
+4. Fata Morgana <small>09:08</small>
+5. Distant Thunder <small>05:58</small>
+6. The Last Rainbow King <small>05:23</small>
+7. Purple Sky <small>04:17</small>
+
+
+All music plays by Mortiis.
+
+All music created and arranged by Mortiis.
+Recorded and mixed at Silver Dragon Studio.
+
+Comment:
+Was issued on DDM as limited edition LP, where 500 came on black vinyl, 400 on green vinyl, and 100 on white vinyl. All versions came in gatefold sleeve, with addendum 12" booklet. The CD was had various press runs, all slightly different.
+
+&copy; 1996 Dark Dungeon Music
+
+### "Space Race [EP]" 1996, Ambient
+
+1. Space Race <small>03:29</small>
+2. Robot City <small>04:29</small>
+
+
+It's a 7" EP
+
+All instruments by Mortiis.
+All music by Mortiis.
+
+&copy; 1996 Dark Dungeon Music
+
 
 ## Отношения с другими группами
 

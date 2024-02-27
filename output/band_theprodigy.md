@@ -1,13 +1,128 @@
 # The Prodigy
 
-Дискография
-"Experience" 1992, Industrial
-"Music for the Jilted Generation" 1994, Industrial
-"Music for the Voodoo Crew" 1996, Industrial
-"Everybody in the Place / Selected Mixes" 1997, Industrial
-"The Rest, The Unreleased !, THE LAST" 1997, Industrial
-"Always outnumbered, never outgunned" 2004, Industrial
-"Invaders Must Die" 2009, Electronic
+
+
+## Дискография
+
+### "Experience" 1992, Industrial
+
+1.  Jericho
+2.  Music Reach (1/2/3/4)
+3.  Wind It Up
+4.  Your Love (Remix)
+5.  Hyperspeed (G-Force Part II)
+6.  Charly (Trip Into Drum & Bass Version)
+7.  Out Of Space
+8.  Everybody In The Place (155 And Rising)
+9.  Weather Experience
+10.Fire (Sunrise Version)
+11.Ruff In The Jungle Bizness
+12.Death Of The Prodigy Dancers (Live)
+
+Leeroy
+Liam
+Keith
+Maxim
+All Trax Were Written, Produced, Engineered & Recorded By Liam Howlett At Earthbound Studios.
+
+(P)(C) 1992 ELEKTRA Records
+
+### "Music for the Jilted Generation" 1994, Industrial
+
+1.  Intro
+2.  Break & Enter
+3.  Their Law (Featuring Pop Will Eat Itself)
+4.  Full Throttle
+5.  Voodoo People
+6.  Speedway (Theme From Fastlane)
+7.  The Heat (The Energy)
+8.  Poison
+9.  No Good (Start The Dance)
+10.One Love (Edit)
+The Narcotic Suite:
+11.3 Kilos
+12.Skylined
+13.Claustrophobic Shine
+
+(P)(C) 1994
+
+### "Music for the Voodoo Crew" 1996, Industrial
+
+1.  Break And Enter
+2.  Voodoo People
+3.  Rhythm Of Life
+4.  Poison
+5.  Out Of Space
+6.  Their Law
+7.  Sky Lined
+8.  Rock'N'Roll
+9.  Rhythm Of Life
+10.G-Force
+11.Manic Reach
+12.Fire
+13.Your Love
+14.Death Of The Prodigy
+15.Intro
+16.Voodoo People
+17.Rhythm Of Life
+18.Poison
+
+Tracks 1-9 New Trinity Centre Bristol 21.04.95.
+Tracks 10-14 Waterfornt Horwich 24.04.92.
+Tracks 15-18 Zap Club Brighton 09.09.94.
+
+(P)(C) 1996 BIG KAHUNA MUSIC
+
+### "Everybody in the Place / Selected Mixes" 1997, Industrial
+
+1.  One Love (Johnny L. Remix)
+2.  No Good (Start The Dance) (Bad For You Mix)
+3.  Voodoo People (Dust Brothers Remix)
+4.  GOA (The Heart Of Energy Part II) *
+5.  Poison (Environmental Science Dub Mix)
+6.  Rat Poison *
+7.  Scienide *
+8.  Charly (Beltram Says Mix)
+9.  Everybody In The Place (Fireground Mix)
+10.Your Love (The Original Excursion)
+11.G-Force (Part I)
+12.Breathe
+13.Firestarter
+
+* - Previously Unreleased Tracks
+
+All tracks written by L.Howlet.
+
+(P)(C) 1997 DIAMOND Sound Records
+
+### "The Rest, The Unreleased !, THE LAST" 1997, Industrial
+
+1.  Breathe (Edit)
+2.  No Good (Start The Dance)
+3.  Out Of Space
+4.  Firestarter (Edit)
+5.  Posion
+6.  Everybody in The Place (155 And Rising)
+7.  Voodoo People
+8.  Your Love (Remix)
+9.  One Love (Edit)
+10.Fire (Sunshine Version)
+11.Ruff In The Jungle Bizness
+12.Rhythm Of Life (Original Mix)
+13.Molotov Bitch
+14.The Trick
+15.No Good (Start The Dance) (Edit)
+
+(P)(C) 1997 ELEKTRA Records
+
+### "Always outnumbered, never outgunned" 2004, Industrial
+
+
+
+### "Invaders Must Die" 2009, Electronic
+
+
+
 
 ## Отношения с другими группами
 

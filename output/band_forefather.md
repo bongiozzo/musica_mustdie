@@ -1,14 +1,117 @@
 # Forefather
 
-Дискография
-"Deep Into Time" 1999, Black Metal
-"Legends Untold" 2000, Black Metal
-"The Fighting Man" 2001, Black Metal
-"Engla Tocyme" 2002, Black Metal
-"Deep Into Time" 2002, Black Metal
-"Ours Is The Kingdom" 2004, Black Metal
-"Steadfast" 2008, Viking Metal
-"Last of the Line" 2011, Viking Metal
+epic viking metal from England
+
+## Дискография
+
+### "Deep Into Time" 1999, Black Metal
+
+1. Intro
+2. Natural Chaos 
+3. Deep Into Time
+4. Immortal Wisdom
+5. Visions of Elders
+6. Dusk to Dawn
+7. Ancient Voice 
+8. The Ornamented Sword
+9. The Wilde Dance 
+
+### "Legends Untold" 2000, Black Metal
+
+1. The Fyrdmen Cometh
+2. Winds of Eternal Freedom
+3. Visions of Elders 
+4. These Lands
+5. The Paths of Yesterdays
+6. These Lands II
+7. Ancient Voice 
+
+Note: this album is a collection of old demo recordings, a lost "Deep Into Time" track and an orchestral rendition of Ancient Voice
+
+
+### "The Fighting Man" 2001, Black Metal
+
+1. The Fighting Man 
+2. A New Dawn
+3. Together They Stood
+4. For These Shores 
+5. The Call To Arms
+6. Out Of Darkness
+7. The Paths Of Yesterdays
+8. The Last Battle
+9. When Our England Died
+
+
+
+### "Engla Tocyme" 2002, Black Metal
+
+1. Engla Tocyme
+2. Into The Forever
+3. Iron Hand
+4. Fifeldor
+5. The Swan's Road
+6. Forever In Chains
+7. The Fate Of Kings
+
+### "Deep Into Time" 2002, Black Metal
+
+1. Intro
+2. Natural Chaos
+3. Deep Into Time
+4. Immortal Wisdom
+5. Visions Of Elders
+6. *These Lands
+7. Dusk To Dawn
+8. Ancient Voice
+9. The Ornamented Sword
+10. The Wilde Dance
+
+Note: re-release of 1999 original with *bonus track
+
+
+### "Ours Is The Kingdom" 2004, Black Metal
+
+01. The Shield-Wall
+02. Ours is the Kingdom
+03. Proud to be Proud
+04. The Golden Dragon
+05. Smashed by Fate
+06. The Sea-Kings
+07. To The Mountains They Fled
+08. The Folk That Time Forgot
+09. Threads of Time
+10. Keep Marching On
+11. Rebel of the Marshlands & Wudugast
+
+### "Steadfast" 2008, Viking Metal
+
+1. Brunanburh
+2. Cween of the Mark
+3. Theodish Belief
+4. Hallowed Halls
+5. Steadfast
+6. Three Great Ships
+7. Eostre
+8. Fire from the Sky	
+9. Mellowing of the Mains
+10. Wolfhead's Tree
+11. Miri It Is
+
+### "Last of the Line" 2011, Viking Metal
+
+1.	 Cometh the King	00:54	 
+2.	 Last of the Line	04:44	 
+3.	 Chorus of Steel	04:43	 
+4.	 By Thy Deeds	04:51	 
+5.	 Up High	05:09	 
+6.	 Wolves of Prayer	04:58	 
+7.	 Wyrda Gesceaft	03:06	 
+8.	 Doomsday Dawns	06:43	 
+9.	 Shadows of the Dead	05:25	 
+10.	 Spears of Faith	04:54	 
+11.	 The Downfallen	05:53	 
+12.	 Into the Rising Sun	03:52	
+
 
 ## Отношения с другими группами
 

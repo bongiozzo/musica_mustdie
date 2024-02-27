@@ -1,10 +1,53 @@
 # Solution .45
 
-Дискография
-"For Aeons Past" 2010, Melodic Death Metal
-"Perfecting the Void (single)" 2015, Melodic Death Metal
-"Nightmares in the Waking State - Part 1" 2015, Melodic Death Metal
-"Nightmares In The Waking State – Part II" 2016, Melodic Death Metal
+
+
+## Дискография
+
+### "For Aeons Past" 2010, Melodic Death Metal
+
+1. The Close Beyond 04:32 
+2. Gravitational Lensing 04:54 
+3. Through Night-Kingdomed Gates 05:28
+4. For Aeons Past 04:46
+5. Lethean Tears 06:11
+6. Bladed Vaults 04:19 
+7. Wirethrone 06:00
+8. On Embered Fields Adust 03:35
+9. Into Shadow 05:54
+10. Clandestinity Now 16:13 
+
+### "Perfecting the Void (single)" 2015, Melodic Death Metal
+
+1. Perfecting the Void  05:31 
+
+### "Nightmares in the Waking State - Part 1" 2015, Melodic Death Metal
+
+1. Wanderer From the Fold  05:19    
+2. Perfecting the Void  05:31   
+3. Bleed Heavens Dry  05:10    
+4. Winning Where Losing Is All  05:58    
+5. In Moments of Despair  06:24  
+6. Second to None  05:10  
+7. Targeting Blaze  04:56    
+8. After (The Unbearable Weight of Nothing)  04:31    
+9. Wield the Scepter  05:16  
+10. I, Nemesis  11:33 
+
+
+### "Nightmares In The Waking State – Part II" 2016, Melodic Death Metal
+
+“Dim Are The Pathways”
+“The Faint Pulse Of Light”
+“Mind Mutation”
+“Built On Sand”
+“Inescapable Dream”
+“The Curse That Keeps On Giving”
+“Chain Connector”
+“What Turns The Wheels”
+“Misery Mantra”
+“Heavy Lies The Crown”
+
 
 ## Отношения с другими группами
 

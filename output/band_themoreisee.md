@@ -1,7 +1,13 @@
 # The More I See
 
-Дискография
-"The Wolves Are Hungry" 2004, Nu Metal
+modern metal from England
+
+## Дискография
+
+### "The Wolves Are Hungry" 2004, Nu Metal
+
+
+
 
 ## Отношения с другими группами
 

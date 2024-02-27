@@ -1,8 +1,36 @@
 # Eagleheart
 
-Дискография
-"Moment of Life" 2008, Power Metal
-"Dreamtherapy" 2011, Power Metal
+
+
+## Дискография
+
+### "Moment of Life" 2008, Power Metal
+
+1. Prologue
+2. At The End Of Forever
+3. Into The Sky
+4. Falling
+5. Don't Turn Your Head
+6. Damned By Yourself
+7. Tears Of Rain
+8. Moment of Life
+9. Out Of The Time
+10. In Despair
+11. Life Goes Fast
+
+### "Dreamtherapy" 2011, Power Metal
+
+1. Insomnia
+2. Shades of Nothing
+3. Taste My Pain
+4. Lost in the Dead End
+5. Creator of Time
+6. Nothing Remains
+7. Dreamtherapy
+8. Burned by the Sun
+9. Glass Mountain
+10. Wheel of Sorrow
+
 
 ## Отношения с другими группами
 

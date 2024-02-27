@@ -1,25 +1,308 @@
 # Pretty Maids
 
-Дискография
-"Pretty Maids" 1983, Heavy Metal
-"Red, Hot And Heavy" 1984, Heavy Metal
-"Future World" 1987, Heavy Metal
-"Jump The Gun" 1990, Heavy Metal
-"Sin Decade" 1992, Heavy Metal
-"Stripped" 1993, Heavy Metal
-"Scream" 1995, Heavy Metal
-"Screamin' Live" 1996, Heavy Metal
-"Spooked" 1997, Heavy Metal
-"Anything Worth Doing Is Worth Overdoing" 1999, Heavy Metal
-"Carpe Diem" 2000, Heavy Metal
-"Planet Panic" 2002, Heavy Metal
-"Live At Least (live)" 2003, Heavy Metal
-"Wake Up to the Real World" 2006, Heavy Metal
-"Pandemonium" 2010, Heavy Metal
-"It Comes Alive (Maid In Switzerland) (2 CD / DVD - Live)" 2012, Heavy Metal
-"Motherland" 2013, Heavy Metal
-"Louder than Ever" 2014, Heavy Metal
-"Kingmaker" 2016, Heavy Metal
+Melodic-Power-Heavy Metal
+
+## Дискография
+
+### "Pretty Maids" 1983, Heavy Metal
+
+1. City Light
+2. Fantasy
+3. Shelly The Maid
+4. Bad Boys
+5. Children Of Tomorrow
+6. Nowhere To Run 
+
+### "Red, Hot And Heavy" 1984, Heavy Metal
+
+Fortuna 
+Back To Back 
+Red, Hot and Heavy 
+Waiting For The Time 
+Cold Killer 
+Battle Of Pride 
+Night Danger 
+A Place In The Night 
+Queen Of Dreams 
+Little Darling 
+
+### "Future World" 1987, Heavy Metal
+
+1. Future World
+2. We Came To Rock
+3. Love Games
+4. Yellow Rain
+5. Loud 'n' Proud
+6. Rodeo
+7. Needles In The Dark
+8. Eye Of The Storm
+9. Long Way To Go
+
+### "Jump The Gun" 1990, Heavy Metal
+
+1.  Lethal Heroes
+2.  Don't Settle For Less
+3.  Rock The House
+4.  Savage Heart
+5.  Young Blood
+6.  Headlines
+7.  Jump The Gun
+8.  Partners In Crime
+9.  Attention
+10. Hang Tough
+11. Over And Out
+12. Dream On
+
+### "Sin Decade" 1992, Heavy Metal
+
+1. Running Out
+2. Who Said Money
+3. Nightmare In The Neighbourhood
+4. Sin-Decade
+5. Come On Tough, Come On Nasty
+6. Raise Your Flag
+7. Credit Card Lover
+8. Know It Ain't Easy
+9. Healing Touch
+10. In The Flesh
+11. Please Don't Leave Me
+
+### "Stripped" 1993, Heavy Metal
+
+If It Ain't Gonna Change 
+Please Don't Leave Me (Acoustic version) 
+In The Minds Of The Young 
+Too Late Too Loud 
+Say The Word 
+'39 
+How Does It Feel 
+I'll Be There 
+Savage Heart ( Piano version ) 
+
+### "Scream" 1995, Heavy Metal
+
+Rise
+Scream
+Psycho Time Bomb Planet Earth
+This Love
+Walk Away
+No Messiah
+In A World Of Your Own
+Dont Turn Your Sex On Me
+Adrenalin Junkie
+Anytime Anywhere
+
+### "Screamin' Live" 1996, Heavy Metal
+
+1. Psyco-Time-Bomb Planet-Earth
+2. Rock The House
+3. Rise
+4. Walk Away
+5. Scream
+6. Yellow Rain
+7. Sin-Decade
+8. Savage Heart
+
+All Songs Written By PRETTY MAIDS.
+Produced By Flemming Rasmusen.
+
+Ken Hammer - Guitars
+Kenn Jackson - Bass
+Michael Fast - Drums
+Ronnie Atkins - Vocals
+
+(P)&(C) 1996 MASSACRE Records
+
+### "Spooked" 1997, Heavy Metal
+
+Resurrection 
+Freakshow 
+Dead Or Alive 
+Die With Your Dreams 
+Fly Me Out 
+Live Until It Hurts 
+Spooked 
+Twisted 
+If It Can't Be Love 
+Never Too Late 
+Your Mind Is Where The Money Is 
+Hard Luck Woman 
+The One That should Not Be 
+
+### "Anything Worth Doing Is Worth Overdoing" 1999, Heavy Metal
+
+1. Snakes In Eden
+2. Destination Paradise
+3. Hell On High Heels
+4. When The Angels Cry
+5. Back Off
+6. Only In America
+7. With These Eyes
+8. Anything Worth Doing Is Worth Overdoing
+9. Scent Of My Prey
+10. Face Me
+
+All Songs written by PRETTY MAIDS
+Produced by Ronnie Atkins and Ken Hammer
+Engineered by Ronnie Atkins
+Recorded and Mixed at Puk Studios and Studio One
+
+Ken Hammer - Guitars
+Kenn Jackson - Bass
+Michael Fast - Drums
+Ronnie Atkins - Vocals
+
+All keyboards by Alan Owen
+
+(p)(c)1999 Massacre Records
+
+### "Carpe Diem" 2000, Heavy Metal
+
+Violent Tribe 
+Carpe Diem 
+Tortured Spirits 
+Wouldn't Miss You 
+Clay 
+Poisoned Pleasures 
+Until It Dies 
+The Unwritten Pages 
+For Once In Your Life 
+They're All Alike 
+Time Awaits For No One 
+Invisible Chains 
+
+### "Planet Panic" 2002, Heavy Metal
+
+1.  Virtual Brutality
+2.  Playing God
+3.  He Who Never Lived
+4.  Face Of My Enemy
+5.  Not What You Think
+6.  Natural High
+7.  Whos Gonna Change
+8.  Worthless
+9.  One Way To Rock
+10. Enter Forevermore
+
+
+### "Live At Least (live)" 2003, Heavy Metal
+
+
+
+### "Wake Up to the Real World" 2006, Heavy Metal
+
+1. Wake Up To The Real World
+2. All In The Name of Love
+3. I Am The End
+4. As Guilty As You
+5. Why Die For A Lie
+6. Such A Rush
+7. Where True Beauty Lies
+8. Brave Young New Breed
+9. Terminal Violence
+10. Perfect Strangers
+11. Another Shot Of You Love
+
+### "Pandemonium" 2010, Heavy Metal
+
+1. Pandemonium 
+2. I.N.V.U. 
+3. Little Drops Of Heaven 
+4. One World One Truth 
+5. Final Day Of Innocence 
+6. Cielo Drive 
+7. It Comes At Night 
+8. Old Enough To Know 
+9. Beautiful Madness 
+10. Breathless 
+
+### "It Comes Alive (Maid In Switzerland) (2 CD / DVD - Live)" 2012, Heavy Metal
+
+CD1:
+
+1. Pandemonium
+2. I.N.V.U.
+3. Hell On High Heels
+4. Wake Up To The Real World
+5. Destination Paradise
+6. Another Shot Of Your Love
+7. Scream
+8. Walk Away
+9. It Comes At Night
+10. Queen Of Dreams
+11. Savage Heart
+12. Clay
+
+CD2:
+
+1. Yellow Rain
+2. Rock The House
+3. Back To Back
+4. Rodeo
+5. Lovegames
+6. Future World
+7. Little Drops Of Heaven
+8. Please Don't Leave Me
+9. Red Hot And Heavy
+10. Lethal Heroes (Bonus Track)
+
+DVD:
+
+1. Pandemonium
+2. I.N.V.U.
+3. Hell On High Heels
+4. Wake Up To The Real World 
+5. Destination Paradise
+6. Another Shot Of Your Love
+7. Scream
+8. Walk Away
+9. It Comes At Night
+10. Queen Of Dreams
+11. Savage Heart
+12. Yellow Rain
+13. Rock The House
+14. Back To Back
+15. Rodeo
+16. Love Games
+17. Future World
+18. Little Drops Of Heaven
+19. Please Don't Leave Me
+20. Red Hot & Heavy
+
+### "Motherland" 2013, Heavy Metal
+
+01. Mother Of All Lies
+02. To Fool A Nation
+03. Confession
+04. The Iceman
+05. Sad To See You Suffer
+06. Hooligan
+07. Infinity
+08. Why So Serious
+09. Motherland
+10. I See Ghosts
+11. Bullet For You
+12. Who What Where When Why
+13. Wasted
+
+### "Louder than Ever" 2014, Heavy Metal
+
+
+
+### "Kingmaker" 2016, Heavy Metal
+
+1. When God Took a Day Off	06:01	 
+2. Kingmaker	04:16	 
+3. Face the World	03:59	 
+4. Humanize Me	04:13	 
+5. Last Beauty on Earth	04:05	 
+6. Bull's Eye	03:56	 
+7. King of the Right Here and Now	04:21	 
+8. Heavens Little Devil	03:48	 
+9. Civilized Monsters	04:57	 
+10. Sickening	03:45	 
+11. Was That What You Wanted (Look What You've Got)	05:00
+
 
 ## Отношения с другими группами
 

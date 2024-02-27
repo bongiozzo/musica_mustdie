@@ -1,14 +1,215 @@
 # Rollins Band
 
-Дискография
-"LIFETIME" 1987, Hardcore
-"Hard Volume" 1989, Hardcore
-"The End Of Silence" 1992, Hardcore
-"Weight" 1994, Hardcore
-"Electro Convulse Therapy" 1995, Hardcore
-"Come In And Burn" 1997, Hardcore
-"Get Some Go Again" 2000, Hardcore
-"Nice" 2001, Hardcore
+
+
+## Дискография
+
+### "LIFETIME" 1987, Hardcore
+
+1. Burned Beyond Recognition
+2. What Am I Doing Here?
+3. 1000 Times Blind
+4. Lonely
+5. Wreckage
+6. Gun In Mouth Blues
+7. You Look At You
+8. If You're Alive
+9. Turned Out
+
+Andrew (Weiss) - Baseness (Bass)
+Simeon Cain - Drums
+Chris Haskett - Guitars, Squeegie
+Rollins - Vocals 
+
+Recorded and mixed by Geoff Clout at Off Beat Studios, Leeds, United Kingdom, November 1987
+Technical advisor - Theo Van Eenbergen
+Mastered by John Golden at K-Disc Studios, Los Angeles, California, December 1987
+Produced by Ian MacKaye 
+
+
+### "Hard Volume" 1989, Hardcore
+
+1.Hard    
+2.What Have I Got    
+3.Feel Like This    
+4.Planet Joe        
+5.Love Song         
+6.Turned Inside Out    
+7.Down And Away
+
+Andrew (Weiss) - All about that bass
+Sim Cain - Drums and percussion
+Chris Haskett - Guitar
+Rollins - Rollins (Vocals)
+Theo Van Rock - Audio air strike authority (Sound) 
+
+Recorded and mixed December 1988 at Echo Sound, Los Angeles, by Rae Di Leo
+Produced by Theo Van Rock
+Mastered at Capitol by Wally Traugott 
+
+### "The End Of Silence" 1992, Hardcore
+
+1 LOW SELF OPINION 5:24 
+2 GRIP 4:50 
+3 TEARING 4:58 
+4 YOU DIDN'T NEED 5:30 
+5 ALMOST REAL 8:03 
+6 OBSCENE 8:50 
+7 WHAT DO YOU DO 7:22 
+8 BLUES JAM 11:46 
+9 ANOTHER LIFE 4:51 
+10 JUST LIKE YOU 10:56 
+Total Time 72:43
+
+Vocals: Rollins
+Guitar: Chris Haskett
+Bass: Andrew Weiss
+Drums: Sim Cain
+Sound: Theo Van Rock
+ 
+Produced, mixed & engineered by: Andy Wallace
+Additional engineering, mix consultant & rockjuicer: Theo Van Rock
+Recorded at: Showplace Studios in Dover, New Jersey
+Mixed at Quantum Studios (except LOW SELF OPINION, mixed at Ground Control Studios, Los Angeles)
+Mastered by: Howie Weinberg
+Mastered at: Masterdisk
+
+### "Weight" 1994, Hardcore
+
+1.  Disconnect
+2.  Fool
+3.  Icon
+4.  Civilized
+5.  Divine
+6.  Liar
+7.  Step Back
+8.  Wrong Man
+9.  Volume 4
+10.Tired
+11.Alien Blueprint
+12.Shine
+
+All Songs By ROLLINS BAND.
+Produced By Theo Van Rock.
+Recorded By Peter Rave At Echo 
+Creek Ranch,Myers CA.
+
+Henry Rollins - Vocals
+Chris Haskett - Guitars
+Melvin Gibbs - Bass
+Sim Cain - Drums
+
+(P)&(C) 1994 THE IMAGO Rec. Co.
+
+### "Electro Convulse Therapy" 1995, Hardcore
+
+1. You Didn't Need
+2. Hard
+3. What Have I Got
+4. Crazy Lover
+5. Ghost Rider
+6. Move
+7. Obscene
+
+All Songs By ROLLINS BAND.
+Produced By Theo Van Rock.
+Live Sound By Theo Van Rock.
+Recorded By Kooster McAllister
+On The Record Plant Remote.
+
+Henry Rollins - Vocals
+Chris Haskett - Guitars
+Melvin Gibbs - Bass
+Sim Cain - Drums
+Theo Van Rock - Sound
+
+(P)&(C) 1995 THE IMAGO Rec. Co.
+
+### "Come In And Burn" 1997, Hardcore
+
+ 1. Shame
+ 2. Starve
+ 3. All I Want
+ 4. The End Of Something
+ 5. On My Way To The Cage
+ 6. Thursday Afternoon
+ 7. During A City
+ 8. Neon
+ 9. Spilling Over A Side
+10. Inhale Exhale
+11. Saying Goodbye Again
+12. Rejection
+
+ROLLINS BAND is: 
+Henry Rollins - Vocals
+Sim Cain - Drums
+Melvin Gibbs - Bass
+Chris Haskett - Guitar
+
+All songs written by Rollins Band
+
+Produced by Steve Thompson
+Engineered by Clif Norrell
+Mixed by Steve Thompson and Clif Norrell
+Recorded at Bearsville Studios, Bearsville, NY
+Assisted by Paul Marconi
+Additional Recording and Mixing at Sorceror Studios, New York, NY
+Assisted by Tim Conklin, Patrick Derivaz, Mark Mitchell, Mike Cyr, Vera Beren
+Mastered by George Marino at Sterling Sound, New York, NY
+
+
+
+
+### "Get Some Go Again" 2000, Hardcore
+
+1.Illumination 
+2.Get Some Go Again 
+3.Monster 
+4.Love's So Heavy 
+5.Thinking Cap 
+6.Change It Up 
+7.I Go Day Glo 
+8.Are You Ready? 
+10.On The Day 
+11.You Let Yourself Down 
+12.Brother Interior 
+13.Hotter And Hotter 
+14.Illuminator
+
+Produced by Henry Rollins
+Recorded and mixed by Clif Norrell
+Management: Richard Bishop/Three Artist Management
+All songs written by Rollins Band except track #8 written by Gorham/Lynott and
+track #12 Rollins Band/Kramer
+
+Rollins Band
+Henry Rollins - vocals
+Jim Wilson - guitar
+Marcus Blake - bass
+Jason Mackenroth - drums
+
+### "Nice" 2001, Hardcore
+
+1 One Shot 3:03 
+2 Up For It 4:39 
+3 Gone Inside The Zero 2:39 
+4 Hello 3:04 
+5 What's The Matter Man 2:58 
+6 Your Number Is One 4:27 
+7 Stop Look And Listen 1:48 
+8 I Want So Much More 3:42 
+9 Hangin' Around 5:25 
+10 Going Out Strange 4:51 
+11 We Walk Alone 3:59 
+12 Let That Devil Out 4:21 
+Total Time 44:56 
+
+ROLLINS BAND:
+Henry Rollins: Throat
+Jim Wilson: Guitar, Organ
+Marcus Blake: Bass
+Jason Mackenroth: Drums, Sax
+
 
 ## Отношения с другими группами
 

@@ -1,9 +1,28 @@
 # Violator
 
-Дискография
-"Violent Mosh (EP)" 2004, Thrash
-"Chemical Assault" 2006, Thrash
-"Annihilation Process (EP)" 2010, Thrash
+superb thrash-metal from Brazil
+
+## Дискография
+
+### "Violent Mosh (EP)" 2004, Thrash
+
+
+
+### "Chemical Assault" 2006, Thrash
+
+
+
+### "Annihilation Process (EP)" 2010, Thrash
+
+01. Poisoned by Ignorance
+02. Uniformity is Conformity
+03. Give Destruction or Give me Death
+04. Apocalypse Engine
+05. Deadly Sadistic Experiments
+06. Futurephobia
+07. You’ll Come Back Before Dying (Executer)
+
+
 
 ## Отношения с другими группами
 

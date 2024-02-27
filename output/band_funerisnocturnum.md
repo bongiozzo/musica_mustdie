@@ -1,9 +1,68 @@
 # Funeris Nocturnum
 
-Дискография
-"Pure Satanic Blasphemy" 2000, Black Metal
-"From the Aspect of Darkly Illuminated" 2001, Black Metal
-"Code 666: Religion Syndrome Deceased" 2002, Black Metal
+
+
+## Дискография
+
+### "Pure Satanic Blasphemy" 2000, Black Metal
+
+1. Burying the Last Breath of christianity
+2. Damnation of INRI
+3. Withering Life
+4. Slay and Burn
+5. Pure Satanic Blasphemy
+6. Kuolontoive
+7. Seitsemдs Portti
+8. Threee Steps Closer to the Truth
+9. The August Hammer of Satan
+
+
+### "From the Aspect of Darkly Illuminated" 2001, Black Metal
+
+1. The Betrayal, the Betrayed and an Act of Blasphemy
+2. From the Aspect of Darkly Illuminated
+3. Lucid Dreaming of Withering Lifeforce
+4. I Abhor Thee
+5. Nameless
+6. Deggial Almighty
+7. Profane Angel
+8. Embody the Death
+
+
+ Trmnt.xes - vocals
+ ImpresouvenairMort-nиrgal - guitar
+ Sin'equamnon - guitar
+ Ruho - synths
+ Horgath - bass
+ Draco - drums
+ 
+
+
+
+### "Code 666: Religion Syndrome Deceased" 2002, Black Metal
+
+1. The Sculptor
+2. Cryonics
+3. Yer All Perished
+4. Hypernation Mantic
+5. The Walls Breed Larvae
+6. Infected
+7. Antigod Declaration
+8. Reformation
+9. Vulpine Paralogism
+
+
+
+ Trmnt.xes - vocals
+ ImpresouvenairMort-nиrgal - guitar
+ Sin'equamnon - guitar
+ Ruho - synths
+ Horgath - bass
+ TMON - drums
+ 
+
+
+
 
 ## Отношения с другими группами
 

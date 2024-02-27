@@ -1,8 +1,48 @@
 # Dreamaker
 
-Дискография
-"Human Device" 2004, Power Metal
-"Enclosed" 2005, Power Metal
+Sympho power metal (ex-Dark Moor)
+
+## Дискография
+
+### "Human Device" 2004, Power Metal
+
+1. Dream Machines 
+2. The Eye Of War 
+3. Nightmares Factory 
+4. Without Angels 
+5. Killing 
+6. Enemy 
+7. Forever In Your Arms 
+8. Alone Again 
+9. Welcome To My Hell 
+10. Eternal Love 
+11. Crystaline Eyes 
+12. Awakening
+
+### "Enclosed" 2005, Power Metal
+
+1. I Live My Own Life
+2. Reverse Universe
+3. Over The Edge
+4. Living In Fear
+5. The End Of Your Suicide
+6. Innocent Blood
+7. W.W.666
+8. Face To Face
+9. Enclosed
+10. Perfect Soul
+11. Take Me Higher
+12. Promised Heaven
+
+
+
+Elisa C. Martin - вокал (Fairyland, ex-Dark Moor)
+Albert Maroto - гитары (ex-Dark Moor)
+Matнas Sosa - гитары
+Carlos Peсa - бас
+Nino Ruiz - клавишные
+Jorge Soez - ударные (ex-Dark Moor)
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,73 @@
 # Pushking
 
-Дискография
-"The World As We Love It" 2011, Hard Rock
+
+
+## Дискография
+
+### "The World As We Love It" 2011, Hard Rock
+
+1. Intro   
+2. Nightrider    
+3. It'll Be O.K.    
+4. Troubled Love   
+5. Stranger’s Song   
+6. Cut The Wire   
+7. My Reflections After Seeing The «Schindler's List» Movie   
+8. God Made Us Free    
+9. Why Don't You?    
+10. I believe   
+11. Tonight   
+12. Private Own   
+13. Open Letter To God    
+14. Nature's Child   
+15. I Love You    
+16. Head Shooter    
+17. Heroin    
+18. My Simple Song    
+19. Kukarracha 
+
+Состав:
+Константин (Коха) Шустарев - вокал, бэк-вокал, акустическая гитара
+Андрей «Дрюня» Круглов - ударные
+Дмитрий «Митя» Лосев - гитара, акустическая гитара
+Роман Невелев - бас
+Олег «Иваныч» Бондалетов - клавишные
+Андрей Дейков - звукорежиссер
+
+Участники:
+Paul Stanley – вокал (6,19) 
+Billy F. Gibbons - вокал (2,3), гитара (2) 
+Alice Cooper - вокал (4) 
+Steve Vai - гитара (7) 
+Glenn Hughes - вокал (9,11,12,19) 
+Jorn Lande - вокал (17) 
+Joe Bonamassa - гитара (11) 
+Steve Stevens - гитара (5) 
+Nuno Bettencourt - гитара (3) 
+John Lawton - вокал (5) 
+Keri Kelli - гитара (4) 
+Jeff Scott Soto - вокал (10) 
+Eric Martin - вокал (13) 
+Steve Lukather - гитара (19) 
+Matt Filippini - гитара (12) 
+Dan McCafferty - вокал (15, 18) 
+Graham Bonnet - вокал (8) 
+Joe Lynn Turner - вокал (16) 
+Udo Dirkschneider - вокал (14) 
+Stevie Salas - гитара (6) 
+
+Приглашенные музыканты:
+Eric Ragno - B3 Organ, Piano 
+Al Perkins - Dobro 
+Alex De Rosso – Guitar
+Tony Paoletta - Steel
+Fabrizio Grossi - Bass 
+Константин Колешонок – Sax
+Антон Вишняков - Trombone
+Илья Сергеенко - Trumpet 
+Владимир Молодцов – Pipe
+Константин Кокорин - бас (12)
+
 
 ## Отношения с другими группами
 

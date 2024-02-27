@@ -1,17 +1,264 @@
 # Masterplan
 
-Дискография
-"Enlighten Me" 2002, Heavy Metal
-"Masterplan" 2003, Heavy Metal
-"Back For My Life EP" 2004, Heavy Metal
-"Aeronautics" 2005, Heavy Metal
-"Lost and Gone EP" 2007, Heavy Metal
-"MK II" 2007, Heavy Metal
-"Far From The End Of The World" 2010, Heavy Metal
-"Time To Be King " 2010, Heavy Metal
-"Novum Initium" 2013, Heavy Metal
-"Keep Your Dream aLive (live)" 2015, Heavy Metal
-"PumpKings" 2017, Heavy Metal
+
+
+## Дискография
+
+### "Enlighten Me" 2002, Heavy Metal
+
+01. Enlighten Me(Single Edit)
+02. Kind Hearted Light
+03. Through Thick And Thin
+04. Black Dog
+05. Enlighten Me (Album verson)
+
+
+Produced by Andy Sneap.
+Recorded at Crazy Cat Studio in Hamburg, Germany.
+Mixed by Mikko Karmila at Finnvox Studios in Helsinki, Finland.
+Mastered by Mika Jussila at Finnvox Studios in Helsinki, Finland.
+Mixing Studio: Finnvox Studios in Helsinki, Finland
+Logo and cover artwork by Rainer Laws.
+
+ 
+
+ 
+
+ROLAND GRAPOW guitar 
+JORN LANDE vocals 
+JAN-S ECKERT bass 
+ULI KUSCH drums
+AXEL MACKENROTT keyboards
+
+MICHAEL KISKE guest vocals
+JANNE WIRMAN guest keyboards
+
+
+### "Masterplan" 2003, Heavy Metal
+
+01. Spirit Never Die 
+02. Kind Hearted Light 
+03. Soulburn 
+04. Heroes 
+05. Into The Light 
+06. Enlighten Me 
+07. Crawling From Hell 
+08. Crystal Night 
+09. Bleeding Eyes 
+10. Sail On 
+11. When Love Comes Close 
+
+
+
+Produced by Andy Sneap.
+Recorded at Crazy Cat Studio in Hamburg, Germany.
+Mixed by Mikko Karmila at Finnvox Studios in Helsinki, Finland.
+Mastered by Mika Jussila at Finnvox Studios in Helsinki, Finland.
+Mixing Studio: Finnvox Studios in Helsinki, Finland
+Logo and cover artwork by Rainer Laws.
+
+ 
+
+ 
+
+ROLAND GRAPOW guitar 
+JORN LANDE vocals 
+JAN-S ECKERT bass 
+ULI KUSCH drums
+AXEL MACKENROTT keyboards
+
+MICHAEL KISKE guest vocals
+JANNE WIRMAN guest keyboards
+
+
+
+
+### "Back For My Life EP" 2004, Heavy Metal
+
+
+
+### "Aeronautics" 2005, Heavy Metal
+
+1. Crimson Rider 
+2. Back For My Life 
+3. Wounds 
+4. I'm Not Afraid 
+5. Headbanger's Ballroom 
+6. After This War 
+7. Into The Arena 
+8. Dark From The Dying 
+9. Falling Sparrow 
+10. Black In The Burn 
+11. Treasure World (Bonus track)
+
+### "Lost and Gone EP" 2007, Heavy Metal
+
+1. Intro - The Master Voice   
+2. Lost And Gone   
+3. Dying Just To Live   
+4. Keeps Me Burning
+
+### "MK II" 2007, Heavy Metal
+
+1. Phoenix Rising   
+2. Warrior's Cry   
+3. Lost And Gone   
+4. Keeps me Burning   
+5. Take Me Over   
+6. I'm Gonna Win   
+7. Watching The World   
+8. Call The Gypsy   
+9. Trust In You   
+10. Masterplan   
+11. Enemy   
+12. Heart Of Darkness 
+
+
+Mike DiMeo - Vocals 
+Roland Grapow - Guitars 
+Jan-Soren Eckert - Bass 
+Axel Mackenrott - Keyboards 
+Mike Terrana - Drums
+
+### "Far From The End Of The World" 2010, Heavy Metal
+
+1. Far From The End Of The World (Single Version) 03:22  
+2. Lonely Winds Of War 04:37  
+3. Far From The End Of The World (Album Version) 03:36 
+
+
+Jorn Lande - Vocals
+Roland Grapow - Guitars 
+Jan-Soren Eckert - Bass
+Axel Mackenrott - Keyboards 
+Mike Terrana - Drums
+
+### "Time To Be King " 2010, Heavy Metal
+
+1. Fiddle Of Time 04:22  
+2. Blow Your Winds 03:19  
+3. Far From The End Of The World 03:34 [view lyrics] 
+4. Time To Be King 04:44  
+5. Lonely Winds of War 04:35 [view lyrics] 
+6. The Dark Road 06:22  
+7. The Sun Is In Your Hands 04:27  
+8. The Black One 04:13  
+9. Blue Europa 05:08  
+10. Under The Moon 04:13 
+
+Bonus tracks:
+11.Kisses From You
+12. Never Walk Alone 
+
+
+Current line-up: 
+Jorn Lande - Vocals 
+Roland Grapow - Guitars 
+Jan-Soren Eckert - Bass 
+Axel Mackenrott - Keyboards
+Mike Terrana - Drums 
+
+
+### "Novum Initium" 2013, Heavy Metal
+
+1. Per Aspera ad Astra  01:01  (instrumental)  
+2. The Game  05:30   
+3. Keep Your Dream Alive  03:48   
+4. Black Night of Magic  03:41   
+5. Betrayal  04:44  
+6. No Escape  04:22  
+7. Pray on My Soul  04:35   
+8. Earth Is Going Down  03:46  
+9. Return from Avalon  04:28  
+10. Through Your Eyes  05:04   
+11. Novum Initium  10:17   
+bonus tracks:
+12. 1492  03:49
+13. Fear the Silence  03:48  
+14. Killing in Time (Re-Recording Version)  * 04:33 
+
+### "Keep Your Dream aLive (live)" 2015, Heavy Metal
+
+Disc 1 (CD)  
+1. Intro - Per Aspera ad Astra  01:22 
+2. Enlighten Me  04:47  
+3. Spirit Never Die  05:33
+4. Lost and Gone  03:11   
+5. Crystal Night  05:21  
+6. Betrayal  04:36  
+7. Crimson Rider  04:32  
+8. Back for My Life  04:32  
+9. Time to Be King  04:50   
+10. Keep Your Dream Alive  04:17   
+11. Heroes  03:59  
+12. Soulburn  06:25   
+13. Kind Hearted Light  04:36   
+14. Crawling from Hell  06:45   
+15. Black Night of Magic  03:56   
+
+
+Disc 2 (DVD) - Masters Of Rock Show 
+1. Intro (underscore music: "Per Aspera ad Astra“)  01:22   
+2. Enlighten Me  04:47  
+3. Spirit Never Die  05:33   
+4. Lost and Gone  03:11   
+5. Crystal Night  05:21   
+6. Betrayal  04:36  
+7. Crimson Rider  04:32   
+8. Back for My Life  04:32  
+9. Time to Be King  04:50   
+10. Keep Your Dream Alive  04:21   
+11. Heroes  03:57   
+12. Soulburn  06:24   
+13. Kind Hearted Light  04:36  
+14. Crawling from Hell  06:45 
+
+
+Includes (DVD and BluRay) entire concert from Masters Of Rock festival 2014, as well as Wacken 2014, footage from Asia tour, footage from Prog Power USA and all official MASTERPLAN video clips. 
+The Masters Of Rock show is featured on the CD.
+
+
+DVD Extra 1: Wacken Show
+ 1. Special: Wacken (underscore music: "The Game“)
+ 2. Heroes
+ 3. Keep Your Dream Alive
+ 4. Crystal Night
+ 5. Soulburn
+ 6. Spirit Never Die
+
+DVD Extra Track 2: Asia
+ 1. Special: Asia (underscore music: "Earth Is Going Down“)
+2. Soulburn
+ 3. Heroes
+
+DVD Extra Track 3: Atlanta
+ 1. Special: Atlanta (underscore music: "1492“)
+2. Black Night of Magic
+
+DVD Extra Track 4: Official Videos
+ 1. Enlighten Me
+ 2. Back for My Life
+ 3. Lost and Gone
+ 4. Time to Be King
+ 5. Keep Your Dream Alive
+
+### "PumpKings" 2017, Heavy Metal
+
+1. The Chance (Helloween cover)  03:47   
+2. Someone's Crying (Helloween cover)  04:27   
+3. Mankind (Helloween cover)  06:17   
+4. Step Out of Hell (Helloween cover)  04:25   
+5. Mr. Ego (Take Me Down) (Helloween cover)  07:02  
+6. Still We Go (Helloween cover)  05:02   
+7. Escalation 666 (Helloween cover)  04:40  
+8. The Time of the Oath (Helloween cover)  06:54  
+9. Music (Helloween cover)  07:27   
+10. The Dark Ride (Helloween cover)  08:51  
+11. Take Me Home (Helloween cover)  04:24 
+
+
+A collection of songs originally performed by Helloween written, or co-written, by Roland Grapow.
+
 
 ## Отношения с другими группами
 

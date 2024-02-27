@@ -1,15 +1,123 @@
 # Decapitated
 
-Дискография
-"Cemeteral Gardens Demo" 1997, Death Metal
-"The Eye Of Horus Demo" 1998, Death Metal
-"Winds of Creation" 2000, Death Metal
-"The First Damned" 2000, Death Metal
-"Nihility" 2002, Death Metal
-"The Negation" 2004, Death Metal
-"Organic Hallucinosis" 2006, Death Metal
-"Carnival is Forever" 2011, Death Metal
-"Blood Mantra" 2014, Death Metal
+(Polish Death)
+
+## Дискография
+
+### "Cemeteral Gardens Demo" 1997, Death Metal
+
+Intro
+Destiny
+Way to Salvation
+Ereshkigal
+Cemeteral Gardens
+
+### "The Eye Of Horus Demo" 1998, Death Metal
+
+Intro
+The Eye of Horus
+Blessed
+The First Damned
+Nine Steps
+Danse Macabre (outro)
+Mandatory Suicide (cover Slayer )
+
+### "Winds of Creation" 2000, Death Metal
+
+1. Winds of Creation  4:13 (Decapitated)  
+2. Blessed  5:06 (Decapitated)  
+3. First Damned  5:47 (Decapitated)  
+4. Way to Salvation  3:54 (Decapitated)  
+5. Eye of Horus  5:25 (Decapitated)  
+6. Human's Dust  4:50 (Decapitated)  
+7. Nine Steps  5:11 (Decapitated)  
+8. Dance Macabre  2:48 (Decapitated)  
+9. Mandatory Suicide  3:32 (Decapitated)  
+
+
+Sauron - vocals
+Vogg - guitars
+Martin - bass
+Vitek - drums
+
+
+
+### "The First Damned" 2000, Death Metal
+
+Intro
+The Eye of Horus
+Blessed 
+The First Damned
+Nine Steps
+Dance Macabre
+Mandatory Suicide
+(The eye Of Horus Demo 1998)
+Destiny
+Way To Salvation
+Ereshkigal
+Cemeteral Gardens
+(Cemeteral Gardens Demo 1997)
+ Way To Salvation - live
+Nine Steps - live
+
+### "Nihility" 2002, Death Metal
+
+Perfect Dehumanisation (The Answer?)
+Eternity Too Short
+Mother War
+Nihility (Anti-Human Manifesto)
+Names
+Spheres of Madness
+Babylon's Pride
+Symmetry of Zero
+Suffer The Children (Napalm Death's cover)
+
+### "The Negation" 2004, Death Metal
+
+1. The Fury
+2. Three-Dimensional Defect
+3. Sensual Sickness
+4. Calling
+5. The Negation
+6. Long-Desired Dementia
+7. The Empty Throne
+8. Lying And Weak
+9. Lunatic Of God's Creation (DEICIDE cover, bonus track)
+
+### "Organic Hallucinosis" 2006, Death Metal
+
+1. A Poem About An Old Prison Man 04:39  
+2. Day 69 03:12  
+3. Revelation of Existence (the trip) 04:37  
+4. Post(?) Organic 05:43  
+5. Visual Delusion 05:53  
+6. Flash-B(l)ack 03:39  
+7. Invisible Control 04:46
+
+### "Carnival is Forever" 2011, Death Metal
+
+1. The Knife  04:34  
+2. United  05:26  
+3. Carnival Is Forever  08:51   
+4. Homo Sum  04:35
+5. 404  05:10 
+6. A View from a Hole  06:13  
+7. Pest  03:38  
+8. Silence  04:18 
+
+### "Blood Mantra" 2014, Death Metal
+
+1. Exiled in Flesh 04:05
+2. The Blasphemous Psalm to the Dummy God Creation 02:42
+3. Veins 05:04
+4. Blood Mantra 05:05
+5. Nest 06:25
+6. Instinct 05:49
+7. Blindness 07:37
+8. Red Sun 03:01
+9. Moth Defect 06:21
+
+
 
 ## Отношения с другими группами
 

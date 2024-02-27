@@ -1,16 +1,49 @@
 # Mott the Hoople
 
-Дискография
-"Mott the Hoople" 1969, Hard Rock
-"Mad Shadows" 1970, Hard Rock
-"Wildlife" 1971, Hard Rock
-"Brain Capers" 1971, Hard Rock
-"All the Young Dudes [Columbia]" 1972, Glam
-"Mott" 1973, Glam
-"The Hoople" 1974, Glam
-"Mott the Hoople Live" 1974, Glam
-"Drive On" 1975, Glam
-"Shouting and Pointing" 1976, Glam
+
+
+## Дискография
+
+### "Mott the Hoople" 1969, Hard Rock
+
+
+
+### "Mad Shadows" 1970, Hard Rock
+
+
+
+### "Wildlife" 1971, Hard Rock
+
+
+
+### "Brain Capers" 1971, Hard Rock
+
+
+
+### "All the Young Dudes [Columbia]" 1972, Glam
+
+
+
+### "Mott" 1973, Glam
+
+
+
+### "The Hoople" 1974, Glam
+
+
+
+### "Mott the Hoople Live" 1974, Glam
+
+
+
+### "Drive On" 1975, Glam
+
+
+
+### "Shouting and Pointing" 1976, Glam
+
+
+
 
 ## Отношения с другими группами
 

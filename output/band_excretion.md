@@ -1,7 +1,32 @@
 # Excretion
 
-Дискография
-"Voice Of Harmony" 1995, Black Metal
+
+
+## Дискография
+
+### "Voice Of Harmony" 1995, Black Metal
+
+1. Forever Closed Eyes
+2. I Am
+3. Darkness Fall
+4. That Once Been Given
+5. Life's Passion Ends
+6. Those Silent Days
+7. Suicide Silence
+8. The Final Part Of Sleep
+
+All Songs Written By EXCRETION.
+Produced By EXCRETION & Berno Paulsson.
+Mixed & Engineered By Berno Paulsson.
+Recorded At Berno Studios.
+
+Tomas Wahlstrom - Bass, Vocals
+Anders Hanser - Guitar
+Stolle Holm - Guitar
+Tommy Ottemark - Drums
+
+(P)&(C) 1995 WRONG AGAIN Records
+
 
 ## Отношения с другими группами
 

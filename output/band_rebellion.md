@@ -1,14 +1,146 @@
 # Rebellion
 
-Дискография
-"A Tragedy in Steel - Shakespeare's Macbeth" 2002, Power Metal
-"Born a Rebel" 2003, Power Metal
-"Sagas of Iceland - The History of the Vikings - Volume I" 2005, Power Metal
-"Miklagard - The History of the Vikings - Volume II " 2007, Power Metal
-"Arise: From Ginnungagap To Ragnarok - History of the Vikings, Vol. III" 2009, Power Metal
-"The Clans Are Marching (EP)" 2009, Power Metal
-"Arminius: Furor Teutonicus" 2012, Power Metal
-"The History Of The Saxons" 2015, Heavy Metal
+Band of former Grave Digger members Uwe Lulis and Tommi Goettlich
+
+## Дискография
+
+### "A Tragedy in Steel - Shakespeare's Macbeth" 2002, Power Metal
+
+1. Introduction 
+2. Disdaining Fortune 
+3. The Prophecy 
+4. Husbandry In Heaven 
+5. The Dead Arise 
+6. Evil Speaks 
+7. Letters Of Blood 
+8. Revenge 
+9. Claws Of Madness 
+10. Demons Rising 
+11. Die With Harness On Your Back
+
+### "Born a Rebel" 2003, Power Metal
+
+1. Born A Rebel 
+2. Adrenalin 
+3. One For All 
+4. Word Is War 
+5. Dragons Fly 
+6. Queen Of Spades 
+7. Iron Flames 
+8. Through The Fire 
+9. Devils Child 
+10. Meet Your Demon 
+11. Power Of Evil
+
+### "Sagas of Iceland - The History of the Vikings - Volume I" 2005, Power Metal
+
+1. In Memorandum Lindisfarnae (1.45); 
+2. Ynglinga Saga (To Odin We Call) (7.12); 
+3. The Sons Of The Dragon Slayer (Blood Eagle) (4.21); 
+4. Ragnhild's Dream (4.33); 
+5. Harald Harfager (6.36); 
+6. Eric The Red (5.57); 
+7. Freedom (The Saga Of Gang Hrolf) (4.48); 
+8. Treason (5.28); 
+9. Sword In The Storm (The Saga Of Earl Hakon, Protector Of Norway) (5.02); 
+10. Blood Rains (The Saga Of King Olaf Trygvason) (4.27); 
+11. Ruling The Waves (5.01); 
+12. Canute The Great (The King Of Danish Pride) (4.03); 
+13. Harald Hadrade (4.20)
+
+All songs written by REBELLION
+Produced by Uwe Lulis
+Engineered and mixed by Uwe Lulis
+Recorded and mixed at Black Solaris Studios, Frankfurt, Germany
+
+### "Miklagard - The History of the Vikings - Volume II " 2007, Power Metal
+
+1. Vi seglar mot Miklagard 01:49  
+2. Sweden 04:22 
+3. Free 05:04 
+4. On the Edge of Life 05:59  
+5. Ulfberth 04:42  
+6. The Rus 04:06  
+7. Kiew 04:31  
+8. Aifur 04:08 
+9. Taste of Steel 03:27  
+10. God of Thunder 05:23 
+11. Our Backs to the Wind 05:25
+12. Miklagard 04:34  
+13. The Uprising 07:07 
+
+
+
+Line-up:
+Michael Seifert: vocals
+Uwe Lulis: guitar
+Simone Wenzel: guitar
+Tomi Gцttlich: bass
+Gerd Lьcking: drums
+
+* Vocals on "Vi seglar mot Miklagard" by Charles Rytkonen (MORGANA LEFAY) 
+
+### "Arise: From Ginnungagap To Ragnarok - History of the Vikings, Vol. III" 2009, Power Metal
+
+1. War 03:53  
+2. Arise 04:39  
+3. Asgard 03:19  
+4. Odin 04:39  
+5. Runes 05:14  
+6. Bolverk 03:15  
+7. Thor 09:06  
+8. Evil 04:09  
+9. Loki 04:10  
+10. Prelude 03:42  
+11. Ragnarцk 03:46  
+12. Einherjar 07:21 
+
+
+This is the 3rd and final part of the viking trilogy concept.
+Available as a limited edition with an alternate cover slipcase.
+Produced by Uwe Lulis at Black Solaris studios in Frankfurt.
+
+Line-up:
+Michael Seifert – Vocals 
+Uwe Lulis – Guitar
+Simone Wenzel – Guitar
+Tomi Gцttlich – Bass
+Gerd Lьcking – Drums 
+
+### "The Clans Are Marching (EP)" 2009, Power Metal
+
+
+
+### "Arminius: Furor Teutonicus" 2012, Power Metal
+
+01. Rest In Peace 06:52 
+02. Ala Germanica 04:05 
+03. Prince Of The Cheruscer 04:38 
+04. Dusk Awaiting Dawn 05:23 
+05. Breeding Hate 04:25 
+06. The Seeress Tower 06:33 
+07. Varus 04:30 
+08. The Tribes United 04:08 
+09. Ghost Of Freedom 05:00 
+10. Furor Teutonicus 04:09 
+11. Vae Victis 04:25 
+12. Requiem 05:20
+
+### "The History Of The Saxons" 2015, Heavy Metal
+
+01. Irminsul
+02. God Of Mercy
+03. Sahsnotas
+04. Take To The Sea
+05. Hengist
+06. Runes Of Victory
+07. Slave Religion
+08. The Fall Of Irminsul
+09. Hail Donar
+10. Blood Court
+11. The Killing Goes On
+12. Wyrd Bith Ful Araed
+
 
 ## Отношения с другими группами
 

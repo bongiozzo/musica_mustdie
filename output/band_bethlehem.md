@@ -1,12 +1,93 @@
 # Bethlehem
 
-Дискография
-"Dark Metal" 1994, Black Metal
-"Dictius Te Necare" 1996, Black Metal
-"Sardonischer Untergang" 1998, Black Metal
-"Mein Weg" 2004, Industrial
-"A Sacrificial Offering to the Kingdom of Heaven in a Cracked Dog's Ear" 2009, Black Metal
-"Stoenkfitzchen [EP]" 2010, Black Metal
+
+
+## Дискография
+
+### "Dark Metal" 1994, Black Metal
+
+1. The Eleventh Commandment
+2. Apocalyptic Dance
+3. Second Coming
+4. Vargtimmen
+5. 3rd Nocturnal Player
+6. Funereal Owlblood
+7. Veiled Irrelidion
+8. Gerpriesen Sei Der Untergang
+9. Supplementary Exegesis
+10.Wintermute
+
+ Matton
+ Classen
+ Bartsch
+ Steinholff
+
+All Songs Written By BETHLEHEM
+Produced By BETHLEHEM & Ton Bouwens
+Recorded & Mixed By Ton Bouwens At Tape Productions, Holland, January 1994
+
+(p)&(c) 1994 ADIPOCERE Records
+
+### "Dictius Te Necare" 1996, Black Metal
+
+1. Schatten Aus Der Alexander Welt
+2. Die Anarchische Befreiung Der Augenzeugenreligion
+3. Aphel - Die Schwarze Schlange
+4. Verheieung - Du Krone Des Todeskultes
+5. Verschleierte Irreligionsitot
+6. Tagebuch Einer Totgeburt
+7. Dorn Meiner Allmacht
+
+
+### "Sardonischer Untergang" 1998, Black Metal
+
+1. Durch befleckte Berьhrung meiner Nemesis  5:28 
+2. Du sollst dich tцten  4:20 
+3. Gestern starb ich schon heute  5:11 
+4. Teufelverrьckt Gottdreizehn  9:32 
+5. Tote weiЯe Marder  3:52 
+6. Nexus  5:01 
+7. Luftstehs'lblдh  5:10 
+8. Als ich noch Caulerpa Taxifolia erbrach  4:36 
+9. Tod ist weicher Stuhl in gar fleischlos' Gift  1:13 
+
+
+### "Mein Weg" 2004, Industrial
+
+01. Aalmutter 
+02. Allegoria 
+03. Knochenkorn 
+04. Frl. Deutsch 
+05. Felbel Fittich 
+06. Dr. Miezo 
+07. Elf Soffitten 
+08. Einsargen 
+09. Holo-Baal 
+10. Maschinensatan
+
+### "A Sacrificial Offering to the Kingdom of Heaven in a Cracked Dog's Ear" 2009, Black Metal
+
+1. Devilcrazy God Thirteen 06:26
+2. Thou Shalt Kill Yourself 04:06 
+3. Yesterday I Already Died Today 04:55
+4. Dead White Marten 03:45
+5. Through Stained Touch Of My Nemesis 05:21
+6. Nexus 04:59
+7. Lingering Fart (A Fart Standing Still) 05:07
+8. As I Still Puked Caulerpa Taxifolia 04:29
+9. Vargtimmen 03:43 
+10. Death Is Soft Stool... 02:10  
+11. Reflections On Dying 02:01 
+
+### "Stoenkfitzchen [EP]" 2010, Black Metal
+
+1. Was ihr seid, das waren wir - Was wir sind, das werdet ihr 05:09  
+2. Kalt regelt ab die Krankgeburt 04:55  
+3. Yesterday I Already Died Today 05:03
+4. Kandierte Verlosung zu Ross 04:12  
+5. Pillerthrillaren 05:33  
+6. The 11th Hour 06:19 
+
 
 ## Отношения с другими группами
 

@@ -1,9 +1,47 @@
 # Katra
 
-Дискография
-"Katra" 2007, Gothic
-"Beast Within" 2008, Gothic
-"Out of the Ashes" 2010, Gothic
+
+
+## Дискография
+
+### "Katra" 2007, Gothic
+
+
+
+### "Beast Within" 2008, Gothic
+
+01.Grail Of Sahara (3:27)
+02.Forgotten Bride (4:22)
+03.Beast Within (3:57)
+04.Fade To Gray (4:49)
+05.Swear (3:45)
+06.Promise Me Everything (4:22)
+07.Mystery (3:08)
+08.Flow (4:05)
+09.Scars In My Heart (3:50)
+10.Storm Rider (4:22)
+11.Mist Of Dawn (4:26)
+12.Kuunpoika (4:27)
+
+Katra Solopuro - vocals
+Kristian Kangasniemi - guitars
+Johannes Tolonen - bass
+Jani Wilund - keys
+Jaakko Jarvensivu - drums
+
+### "Out of the Ashes" 2010, Gothic
+
+1. Delirium 03:31
+2. One Wish Away 04:09
+3. If There's No Tomorrow	04:29
+4. Vendetta	04:29
+5. Out of the Ashes	04:19
+6. Envy	04:15
+7. Mirror	04:19
+8. Anthem	04:48
+9. The End of the Scene	04:31
+10. Hide and Seek	05:39
+
 
 ## Отношения с другими группами
 

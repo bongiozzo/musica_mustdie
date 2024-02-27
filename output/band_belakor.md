@@ -1,10 +1,68 @@
 # Be'lakor
 
-Дискография
-"The Frail Tide" 2007, Melodic Death Metal
-"Stone's Reach" 2009, Melodic Death Metal
-"Of Breath and Bone" 2012, Melodic Death Metal
-"Vessels" 2016, Melodic Death Metal
+
+
+## Дискография
+
+### "The Frail Tide" 2007, Melodic Death Metal
+
+1. Neither Shape Nor Shadow 07:41
+2. The Desolation of Ares 08:08
+3. Tre'aste 05:41
+4. A Natural Apostasy 06:38
+5. Paths 06:03
+6. Sanguinary 08:40 
+
+### "Stone's Reach" 2009, Melodic Death Metal
+
+1. Venator 08:37  
+2. From Scythe to Sceptre 06:58  
+3. Outlive the Hand 08:39  
+4. Sun's Delusion 09:09  
+5. Held in Hollows 07:24  
+6. Husks 02:48  
+7. Aspect 05:52  
+8. Countless Skies 10:00 
+
+Album was recorded in the arly months of 2009 in Melbourne, Australia
+All Music and lyrics written/performed by Be'lakor
+Produced by Warren Hammond and Be'lakor
+Recorded with Warren Hammond and Phil Forbes at Pennydrop Audio, Melbourne
+Piano recorded at Sing Sing Recording Studios, Melbourne
+Mastered at Crystal Mastering Melbourne, 2009
+
+
+### "Of Breath and Bone" 2012, Melodic Death Metal
+
+1. Abeyance  08:04  
+2. Remnants  06:14   
+3. Fraught  06:46  
+4. Absit Omen  06:06  
+5. To Stir the Sea  01:29 
+6. In Parting  09:21   
+7. The Dream and the Waking  09:17   
+8. By Moon and Star  08:58 
+
+
+Specifics:
+• All copies signed by band members
+• Two Be'lakor guitar picks
+• A sticker
+
+The cover artwork is a segment of the painting "Little Red Riding Hood" by French portrait painter Gabriel Ferrier.
+
+### "Vessels" 2016, Melodic Death Metal
+
+1. Luma      
+2. An Ember's Arc  
+3. Withering Strands 
+4. Roots to Sever  
+5. Whelm    
+6. A Thread Dissolves   
+7. Grasping Light    
+8. The Smoke of Many Fires  
+
+
 
 ## Отношения с другими группами
 

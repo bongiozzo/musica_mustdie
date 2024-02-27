@@ -1,12 +1,157 @@
 # Lux Occulta
 
-Дискография
-"Forever Alone Immortal" 1996, Black Metal
-"Dionysos" 1997, Black Metal
-"Major Arcana" 1998, Black Metal
-"My Guardian Anger" 1999, Black Metal
-"The Mother And The Enemy" 2001, Black Metal
-"Dymy (Single)" 2013, Alternative
+Atmospheric Gothic Black Doom
+
+## Дискография
+
+### "Forever Alone Immortal" 1996, Black Metal
+
+1. The KIngdom Is Mine (I Saw The Beginning)
+2. Homodeus (Throne Of Fire)
+3. Sweetest Stench Of The Dead (The Battlefield)
+4. The Third Eye (Illuminatio)
+5. Apokathastasis (Out Of Chaos)
+6. Bitter Taste Of Victory
+
+Recorded & Mixed At Zmora Studio By Andrzej Rdultowski.
+Produced BY Mariusz Kurasz And LUX OCCULTA.
+Band Residence: Poland.
+
+Jaro.Slav. - Vocals
+Peter - Guitars
+Jackie - Bass
+U.Reck - Keyboards, Guitars
+Aemil - Drums
+G.Ames - Guitars
+
+(P)(C) 1996 PAGAN Records // MOON 005
+
+### "Dionysos" 1997, Black Metal
+
+ 1. The Birth Of The Race
+ 2. Blessed By The Rain
+ 3. Chalice Of Lunar Blood
+ 4. Nocturnal Dithyramb
+ 5. Ecstasy And Terror
+ 6. Upwards To Conquer Heaven
+
+
+Line-up:
+The responsible ones:
+C'AMES - tragic guitar serenade of raptures
+JACK - low frequency sonic terror
+JARO.SLAV. - guitar violence& omious incantations
+KRISS - thunderdrums of doom
+PETER - six-stringed sword of Damocles
+U.RECK - winged misanthropic symphonies
+
+Silken anglic choirs of passion - Wizenna Nowotarska, Anna Wesolowska
+Magic flutes of Pan on 'Nocturnal Dithyramb' - Marcin Ruminski
+
+Facts:
+The majestic Dionysiac spirit was evoked from the heart of the strom
+and captured in the lusty days of High Sun, 1997 era vulgari,
+at Scalni Studio, Olsztyn.
+
+Engineered, produced, mixed and mastered by Magister of Soundarts -
+Andrzej Bomba, under the sinister supervision of Lux Occulta
+Executive production by Tomasz Krajewski & Pagan Records
+All painful sounds of beauty put together by Lux Occulta.
+All lyrical madness by Jaro. Slav.
+Visual perversion by Tomasz Danuta and Lux Occulta
+
+### "Major Arcana" 1998, Black Metal
+
+1. Love (Garden of Aphrodite)  
+2. Heart of the Devil  
+3. When Horned Souls Awake  
+4. Burn  
+5. Creation  
+6. Love  
+7. War  
+8. Passing Away  
+9. The Path  
+
+
+### "My Guardian Anger" 1999, Black Metal
+
+1. The Heresiarch  6:26 
+2. Kiss My Sword  5:35 
+3. Triangle  1:08 
+4. Opening Of Eleventh Sephirah  9:30 
+5. Nude Sophia  5:49 
+6. Cube  1:01 
+7. Library On Fire  7:07 
+8. Mane - Tekel - Fares  9:02 
+
+
+(c)&(p)1999 PAGAN RECORDS
+
+FOOL (0) – voices
+HERMIT (VIIII) – keyboards
+MAGICIAN (XII) – rhythm guitar
+DEATH (XIII) – drums
+DEVIL (XV) – lead guitar
+SUN (XVIIII) – bass guitar
+
+### "The Mother And The Enemy" 2001, Black Metal
+
+1. Breathe In  0:54 
+2. Mother Pandora  5:46 
+3. Architecture  5:53 
+4. Most Arrogant Life Form  3:50 
+5. Yet Another Armageddon  3:28 
+6. Gambit  6:12 
+7. Midnight Crisis  6:34 
+8. Pied Piper  9:15 
+9. Missa Solemnis  7:44 
+10. Breathe Out  4:09 
+
+
+Jaro.Slav - vocals
+U.Reck - keyboards
+Peter - guitar
+Kriss - drums
+Vogg - guitar
+Martin - bass
+
+Recorded during August/September 2001 on the
+fundaments of Studio 333
+Produced by Bartolomiej Kuzniak & Lux Occulta
+Mixed and mastered by Bartolomiej Kuzniak at
+Studio 333
+Front cover illustration by Travis Smith
+Lyrics & panels visual conception by: Jaroslaw
+Szubrycht
+Cover design & additional panels illustration by
+Hernani Francisco
+
+Guest musicians
+
+India Czajkowska - vocals
+Gerard Niemczyk - drums
+Dawid Kosiarkiewicz - saxophone
+Wlodzimierz Kossak - bassoon & contrabassoon
+Zbigniew Szmatloch - synths
+
+
+
+
+### "Dymy (Single)" 2013, Alternative
+
+1. Dymy
+
+Digital release. Available to downlond on their bandcamp site.
+
+ Recorded, mixed and mastered at Studio T’N’T Music Production.
+ Produced by U. Reck & Lux Occulta.
+
+ This song contains pieces of old Lemko song "Tam za hory kamianoji":
+ Lyrics and music - traditional
+ Voices: Anna Buriak & Anna Bendas
+ It has been recorded in 1985 in Polany, Beskid Niski mountains by Tomasz Traczyk. Used by kind permission.
+ This song also contains pieces of Jean Racine's "Andromaque". 
+
 
 ## Отношения с другими группами
 

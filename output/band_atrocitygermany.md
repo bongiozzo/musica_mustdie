@@ -1,19 +1,333 @@
 # Atrocity (Germany)
 
-Дискография
-"Blue Blood" 1989, Death Metal
-"Hallucinations" 1990, Death Metal
-"Todessehnsucht" 1992, Death Metal
-"B.L.U.T." 1994, Death Metal
-"Calling The Rain" 1995, Death Metal
-"Willenskraft" 1996, Death Metal
-"The Definition Of Kraft And Wille" 1996, Death Metal
-"Werk 80" 1997, Death Metal
-"Atlantis" 2004, Industrial
-"Werk 80 II" 2008, Metal
-"After the Storm " 2010, Folk
-"Die Gottlosen Jahre [DVD]" 2012, Death Metal
-"Okkult" 2013, Death Metal
+Melodic Classic Death Metal
+
+## Дискография
+
+### "Blue Blood" 1989, Death Metal
+
+1. Blue Blood
+2. When The Fire Burns Over Sea
+3. Humans Lost Humanity
+
+(p)&(c) 1989 NUCLEAR BLAST Records
+
+### "Hallucinations" 1990, Death Metal
+
+1. Deep In Your Subconscious
+2. Life Is A Long And Silent River
+3. Fatal Step
+4. Hallucinations
+5. Defeated Intellect
+6. Abyss Of Addiction
+7. Hold Out (To The End)
+8. Last Temptation
+
+ Mathias Roderer - Guitar
+ Alex Krull - Vocals
+ Oliver Klassen - Bass
+ Michael Schwarz - Drums
+ Richard Scharf - Guitar
+
+Produced By Scott Burns & ATROCITY.
+Mixed By Scott Burns & Tom Morris.
+Executive Producer Markus Staiger.
+Recorded & Mixed At Morrisound Recording,
+Tampa,Florida, June / July 1990.
+Cover Illustration By H.R.Giger Work No 93
+"Hommage An S.Becketti" 100x80 cm.
+
+(p)&(c) 1990 NUCLEAR BLAST Records
+
+### "Todessehnsucht" 1992, Death Metal
+
+1)  Todessehnsucht
+2)  Godless Years
+3)  Unspoken Names
+4)  Defiance
+5)  Triumph At Dawn
+6)  Introduction
+7)  Sky Turned Red
+8)  Necropolis
+9)  A Prison Called Earth
+10)  Todessehnsucht (Reprise)
+11)  Archangel
+
+
+ATROCITY ARE:
+
+Alex Krull.............. vocal
+Oliver Klasen......... bass
+Mathias Rцderer.... guitar
+Richard Scharf........ guitar
+Michael Schwartz.. drums
+
+
+### "B.L.U.T." 1994, Death Metal
+
+1. Trial
+2. Miss Directed
+3. In My Veins
+4. B.L.U.T.
+5. I'm In Darkness
+6. Calling The Rain
+7. Moon - Struck
+8. Ever And Anon
+9. Begotten Son (Of Wrath)
+10. Into The Maze
+11. Leichenfeier
+12. Goddess In Black
+13. Threnody (The Spirit Never Dies)
+14. Soul Embrace
+15. Land Beyond The Forest
+
+ Alex Krull - Vocals
+ Mathias Roderer - Guitars
+ Richard Scharf - Guitars
+ Markus Knapp - Bass
+ Michael Schwarz - Drums
+
+Produced By Atrocity
+Recorded At B-14 Studio,Waiblingen March/April 1994
+Guest Vocals Appearance By Yasmin Krull
+Keyboards & Sequenzer By Alex Krull
+Artwork Of Band Members & Female Voice On "B.L.U.T." By Ana Pop
+
+(p) 1994 Warner / Chappell Music
+(c) 1994 Massacre Records.
+
+### "Calling The Rain" 1995, Death Metal
+
+1. Calling The Rain (Video-Edit)
+2. Back From Eternity
+3. Departure
+4. Land Beyond The Forest (New Version)
+5. Migrants' Shade
+6. Die Geburt Eines Baumes
+7. Calling The Rain (Remix)
+8. Ancient Sadness
+
+All Songs Written By ATROCITY.
+Produced & Mixed By Alex Krull.
+Engineered By Andreas Konstandaras & Falk Gruber.
+Recorded & Mixed At B-14  Music, Waiblingen.
+
+Alex Krull -   Vocals,Percussion, Keyboards
+Yasmin Krull - Vocals,Flute
+Mathias Roderer - Guitars
+Richard Scharf - Guitars
+Torsten Bauer - Guitars
+Markus Knapp - Bass
+Michael Schwarz - Drums
+
+(P)&(C) 1995 MASSACRE Records
+
+### "Willenskraft" 1996, Death Metal
+
+1.  Intro
+2.  Scorching Breath
+3.  Deliverance
+4.  Blood-Stained Prophecy
+5.  Love Is Dead
+6.  We Are Degeneration
+7.  Willenskraft
+8.  For Ever And A Day
+9.  Seal Of Secrecy
+10.Down Below
+11.The Hunt
+
+All Songs Written By ATROCITY.
+Produced By Alex Krull & Bruno Kramm.
+Engineered By Bruno Kramm, Eva Istok & Nils Rohl.
+Recorded & Mixed At Dance Macabre Studio, Bayreuth.
+
+Alexander Krull -   Vocals
+Mathias Roderer - Guitars
+Torsten Bauer - Guitars
+Chris Lukhaup - Bass
+Michael Schwarz - Drums
+
+(P)c 1996 MASSACRE Records
+
+### "The Definition Of Kraft And Wille" 1996, Death Metal
+
+1. Deliverance (Come To My World - Mix)
+2. Willenskraft (Remix)
+3. Scorching Breath (Remix)
+4. Gottes Tod *
+
+All Songs Written By ATROCITY.
+except * written by DAS ICH.
+Produced By Alex Krull & Bruno Kramm.
+Engineered By Bruno Kramm, Eva Istok & Nils Rohl.
+Recorded & Mixed At Danse Macabre Studio, Bayreuth.
+
+Alexander Krull -   Vocals
+Mathias Roderer - Guitars
+Torsten Bauer - Guitars
+Chris Lukhaup - Bass
+Michael Schwarz - Drums
+
+(P)c 1996 MASSACRE Records
+
+### "Werk 80" 1997, Death Metal
+
+1. Shout (Orzabal/Stanley)
+2. Rage Hard (Gill/Johnson/O Toole/Nash)
+3. Wild Boys (Taylor/Taylor/Taylor/Rhodes/LeBon)
+4. The Great Commandment (H.Maile/M.Meyn/O.Kreyssig)
+5. Send Me An Angel (D.Sterry/R.Zatorsky)
+6. Tainted Love (E.D.Cobb)
+7. Der Mussolini (R.Gorl/G.Delgado-Lopez)
+8. Being Boiled (Oakey/Ware/Marsh)
+9. Don't Go (Moyet/Clarke)
+10. Let's Dance (D.Bowie)
+11. Maid Of Orleans (McCluskey)
+12. Die Deutchmaschine (J.Jay/S.Naghavi/R.Schah)
+
+Alexander Krull - vocals
+Mathias Roderer - guitars
+Thorsten Bauer - guitars
+Chris Laukhaup - bass
+Michael Schwarz - drums
+
+Produced by Alexander Krull & Bruno Kramm.
+Recorded and mixed at Dance Macabre Studio, Bayreuth 
+in spring/summer 1997.
+Engineered by Bruno Kramm, Eva Istok & Ingo Beitz.
+Mixed by Bruno Kramm and Alexander Krull.
+Keyboards and sampling by Bruno Kramm.
+Guest Vocal on 1,2,5,7,11 by Liv Kristine Espenoes
+(THEATRE OF TRAGEDY).
+Classical Voice on 2 by Sofia Solovej.
+
+(p)(c)1997 MASSACRE MUSIC
+
+### "Atlantis" 2004, Industrial
+
+01. Reich of Phenomena
+02. Superior Race
+03. Gods of Nations
+04. Ichor 
+05. Enigma
+06. Morbid Mind
+07. Omen
+08. Cold Black Days
+09. Atlantean Empire
+10. Clash of the Titans
+11. Apocalypse
+12. Lost Eden
+13. The Sunken Paradise
+14. Aeon
+15. Ein Volk
+
+### "Werk 80 II" 2008, Metal
+
+01. People Are People (DEPECHE MODE)
+02. Smalltown Boy (BRONSKI BEAT)
+03. Relax (FRANKIE GOES TO HOLLYWOOD)
+04. Don't You (Forget About Me) (SIMPLE MINDS)
+05. The Sun Always Shines on TV (A-HA)
+06. Hey Little Girl (ICEHOUSE)
+07. Fade To Grey (VISAGE)
+08. Such A Shame (TALK TALK)
+09. Keine Heimat (IDEAL)
+10. Here Comes The Rain Again (EURYTHMICS)
+11. Forever Young (ALPHAVILLE)
+12. Feels Like Heaven (FICTION FACTORY) (bonus track for special edition)
+
+### "After the Storm " 2010, Folk
+
+1. A New Arrival 03:42  
+2. Call Of Yesteryear 03:27  
+3. After The Storm 02:47  
+4. Silvan Spirit 03:33  
+5. Black Mountain 05:32  
+6. As The Sun Kissed The Sky 03:15  
+7. Transilvania 03:27  
+8. The Flight Of Abbas Ibn Firnas 01:59  
+9. Goddess Of Fortune and Sorrow 04:42  
+10. The Otherworld 05:27  
+11. Eternal Nightside 04:38 
+
+
+Line-up:
+Alexander Krull - Vocals, Keyboards, Programming, Samples
+Sander van der Meer - Guitars
+Thorsten Bauer - Guitars
+Alla Fedynitch - Bass
+Roland Navratil - Drums
+
+Session members:
+Yasmin Krull - Vocals
+
+Produced by Alexander Krull at the Mastersound Studio.
+Artwork by Stefan Heilemann.
+
+Available exclusively as noble matt printed digipak, moreover, as strictly
+limited "Deluxe Edition" with a noble matt printed slipcase including both
+digipacks, "After the Storm" and the remastered "Calling the Rain" including a
+bonus track. 
+
+### "Die Gottlosen Jahre [DVD]" 2012, Death Metal
+
+1. Prolog (DVD I: The Atrocity Documentary) 
+2. Untergrund (DVD I: The Atrocity Documentary) 
+3. Aufbruch (DVD I: The Atrocity Documentary) 
+4. Turbulenzen (DVD I: The Atrocity Documentary) 
+5. Transilvanien (DVD I: The Atrocity Documentary) 
+6. Weltmusik (DVD I: The Atrocity Documentary) 
+7. Zusammenkunft (DVD I: The Atrocity Documentary) 
+8. Hass und Feuer (DVD I: The Atrocity Documentary) 
+9. Neue Ufer (DVD I: The Atrocity Documentary) 
+10. Zweigeist (DVD I: The Atrocity Documentary) 
+11. Verlorenes Paradies (DVD I: The Atrocity Documentary) 
+12. Dunkle Sch&#246;nheit (DVD I: The Atrocity Documentary) 
+13. Stimmen der Vergangenheit (DVD I: The Atrocity Documentary) 
+14. Epilog (DVD I: The Atrocity Documentary) 
+15. No Sleep ‘Til Wacken (DVD II: Live in Wacken 2010) 
+16. Fatal Step (DVD II: Live in Wacken 2010) 
+17. Necropolis (DVD II: Live in Wacken 2010) 
+18. Blut (DVD II: Live in Wacken 2010) 
+19. Willenskraft (DVD II: Live in Wacken 2010) 
+20. Seasons in Black (DVD II: Live in Wacken 2010) 
+21. Clash of the Titans (DVD II: Live in Wacken 2010) 
+22. Die Todgeweihten (DVD II: Live in Wacken 2010) 
+23. Danse Macabre (DVD II: Live in Wacken 2010) 
+24. The Great Commandment (DVD II: Live in Wacken 2010) 
+25. Fade To Grey (DVD II: Live in Wacken 2010) 
+26. The Sun Always Shines on TV (DVD II: Live in Wacken 2010) 
+27. Shout (DVD II: Live in Wacken 2010) 
+28. Blut (DVD II: Bonus Clip) 
+29. Cold Black Days (DVD II: Bonus Clip) 
+30. The Sun Always Shines on TV (DVD II: Bonus Clip) 
+31. Reich of Phenomena (Liveclip) (DVD II: Bonus Clip) 
+32. Die Liebe (feat. Das Ich) (DVD II: Bonus Clip) 
+33. Taste of Sin (DVD II: Bonus Clip) 
+34. Shout (Liveclip) (DVD II: Bonus Clip) 
+35. Love is Dead (DVD II: Bonus Clip) 
+36. Fade to Grey (Liveclip) (DVD II: Bonus Clip) 
+37. Calling the Rain (feat. Yasmin) (DVD II: Bonus Clip) 
+38. The Great Commandment (Liveclip) (DVD II: Bonus Clip) 
+39. Miss Directed (DVD II: Bonus Clip) 
+40. Dreath - Sidestory "Underground" (DVD II: Bonus Clip) 
+41. Fatal Step (Bonus CD: Live in Wacken 2010) 
+42. Necropolis (Bonus CD: Live in Wacken 2010) 
+43. Blut (Bonus CD: Live in Wacken 2010) 
+44. Willenskraft (Bonus CD: Live in Wacken 2010) 
+45. Seasons in Black (Bonus CD: Live in Wacken 2010) 
+46. Clash of the Titans (Bonus CD: Live in Wacken 2010) 
+47. Die Todgeweihten (Bonus CD: Live in Wacken 2010) 
+48. Danse Macabre (Bonus CD: Live in Wacken 2010) 
+49. The Great Commandment (Bonus CD: Live in Wacken 2010) 
+50. Fade To Grey (Bonus CD: Live in Wacken 2010) 
+51. The Sun Always Shines on TV (Bonus CD: Live in Wacken 2010) 
+52. Shout (Bonus CD: Live in Wacken 2010) 
+
+### "Okkult" 2013, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

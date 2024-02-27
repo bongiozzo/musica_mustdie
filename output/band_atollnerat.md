@@ -1,9 +1,40 @@
 # Atoll Nerat
 
-Дискография
-"Art Of Ancient Seers" 2003, Black Metal
-"Two Pipes To Heaven" 2006, Black Metal
-"Путешествия в отдельные реальности" 2012, Metal
+
+
+## Дискография
+
+### "Art Of Ancient Seers" 2003, Black Metal
+
+1) Witch
+2) Non-Organic World
+3) Skepticism
+4) Art Of Ancient Seers
+5) Benefactor's Flight
+6) Witch (Part 2)
+7) Doors Of Perception
+8) Dark Zone
+
+### "Two Pipes To Heaven" 2006, Black Metal
+
+01. Raven 3:36
+02. Fall 6:36
+03. Hau!!! 6:57
+04. Witch (part 3) 5:34
+05. Two Pipes To Heaven 6:08
+06. Winter 6:05
+
+### "Путешествия в отдельные реальности" 2012, Metal
+
+1. Жизнь (часть 1) / Life (Trip 1)
+2. Ведьма (часть 4) / Witch (Part 4)
+3. Путник / Wanderer (Hau! Birds Part 3)
+4. Всадник / Rider (Hau! Birds Part 2)
+5. Весна / Spring (Dream. Trip 3)
+6. Жизнь (часть 2) / Life (Trip 2)
+7. Небо / Sky
+8. Булонский лес / Le bois de Boulogne (re-recorded demo 1996)
+
 
 ## Отношения с другими группами
 

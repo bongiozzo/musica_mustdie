@@ -1,15 +1,95 @@
 # Europe
 
-Дискография
-"Europe" 1983, Hard Rock
-"Wings of Tomorrow" 1984, Hard Rock
-"The Final Countdown" 1986, Hard Rock
-"Out of This World" 1988, Hard Rock
-"Prisoners in Paradise" 1991, Hard Rock
-"Start From the Dark" 2004, Hard Rock
-"Hero (single)" 2004, Hard Rock
-"Last Look At Eden" 2009, Hard Rock
-"Bag of bones" 2012, Hard Rock
+Sweden Hard Rock
+
+## Дискография
+
+### "Europe" 1983, Hard Rock
+
+
+
+### "Wings of Tomorrow" 1984, Hard Rock
+
+
+
+### "The Final Countdown" 1986, Hard Rock
+
+1.  The Final Countdown
+2.  Rock The Night
+3.  Carrie
+4.  Danger On The Track
+5.  Ninja
+6.  Cherokee
+7.  Time Has Come
+8.  Heart Of Stone
+9.  On The Loose
+10.  Love Chaser
+
+Mic Michaeli
+John Leven
+Joey Tempest
+John Norum
+Ian Haugland
+
+(P)c 1986
+
+### "Out of This World" 1988, Hard Rock
+
+1 Superstitious 4:35 (Europe) 
+2 Let the Good Times Rock 4:04 (Europe) 
+3 Open Your Heart (Europe) 
+4 More Than Meets the Eye 3:20 (Europe) 
+5 Coast to Coast 4:00 (Europe) 
+6 Ready or Not 4:05 (Europe) 
+7 Sign of the Times 4:15 (Europe) 
+8 Just the Beginning 4:32 (Europe) 
+9 Never Say Die 4:00 (Europe) 
+10 Lights and Shadows (Europe) 
+11 Tower's Callin' 3:48 (Europe) 
+12 Tomorrow (Europe)
+
+### "Prisoners in Paradise" 1991, Hard Rock
+
+1. All or Nothing
+2. Halfway to Heaven
+3. I'll Cry for You
+4. Little Bit of Lovin'
+5. Talk to Me
+6. Seventh Sign
+7. Prisoners in Paradise
+8. Bad Blood
+9. Home Land
+10. Got Your Mind in the Gutter
+11. 'Til My Heart Beats Down Your Door
+12. Girl from Lebanon
+
+### "Start From the Dark" 2004, Hard Rock
+
+01. Got to Have Faith
+02. Start from the Dark
+03. Flames
+04. Hero
+05. Wake Up Call
+06. Reason
+07. Song #12
+08. Run With You
+09. Sucker
+10. Spirit of the Underdog
+11. America
+12. Settle for Love
+
+### "Hero (single)" 2004, Hard Rock
+
+
+
+### "Last Look At Eden" 2009, Hard Rock
+
+
+
+### "Bag of bones" 2012, Hard Rock
+
+
+
 
 ## Отношения с другими группами
 

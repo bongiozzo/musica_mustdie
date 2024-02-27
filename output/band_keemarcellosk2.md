@@ -1,7 +1,29 @@
 # Kee Marcello's K2
 
-Дискография
-"Melon Demon Divine" 2004, Hard Rock
+ex Europe
+
+## Дискография
+
+### "Melon Demon Divine" 2004, Hard Rock
+
+Pre-Fix 
+E.M.D. 
+Enemies 
+Blood 
+Epic 
+Raptor 
+If 
+Falling Apart 
+Hey Romeo 
+Evil Ways 
+Tatto For Patto 
+Comin’ Home 
+Ride On
+
+Bonus: 
+Can I B The 1 
+Raptor (instrumental version)
+
 
 ## Отношения с другими группами
 

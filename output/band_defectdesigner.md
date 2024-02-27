@@ -1,7 +1,24 @@
 # Defect Designer
 
-Дискография
-"Wax" 2009, Death Metal
+
+
+## Дискография
+
+### "Wax" 2009, Death Metal
+
+1. Composing the End	 
+2. Stillborn	 
+3. You Are No More	 
+4. Unsorted	 
+5. Defamation	 
+6. Almost Ready	 
+7. Heads	 
+8. Vegetable	 
+9. Choice Cuts	 
+10. Forms of Illusions	 
+11. When Your Face Doesn't Melt Snowflakes	 
+12. Idemnity
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,13 @@
 # Eteritus
 
-Дискография
-"Following the Ancient Path" 2016, Death Metal
+
+
+## Дискография
+
+### "Following the Ancient Path" 2016, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

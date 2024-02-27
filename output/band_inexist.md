@@ -1,9 +1,32 @@
 # Inexist
 
-Дискография
-"Evidence" 2002, Melodic Death Metal
-"Am I Senseless?" 2004, Melodic Death Metal
-"Relax and Feel Free" 2006, Melodic Death Metal
+melodic-death-metal
+
+## Дискография
+
+### "Evidence" 2002, Melodic Death Metal
+
+
+
+### "Am I Senseless?" 2004, Melodic Death Metal
+
+1.Nonsense
+2.Fashion death
+3.www.Animal-status.com
+4.Real Fear
+5.Tapiola
+6. Instincts and Desires
+7. Acoustic medley pt.2
+8.Whom does it care
+9.Pain
+10.The exit
+11.Inner Comfort
+12.Nervous
+
+### "Relax and Feel Free" 2006, Melodic Death Metal
+
+
+
 
 ## Отношения с другими группами
 

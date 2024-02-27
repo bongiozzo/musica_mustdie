@@ -1,7 +1,21 @@
 # Oracle Sun
 
-Дискография
-"Deep Inside" 2006, Progressive
+
+
+## Дискография
+
+### "Deep Inside" 2006, Progressive
+
+1. Lost In Silence	 
+2. Stand Alone	 
+3. Changes	 
+4. Light of Life	 
+5. Everlasting	 
+6. New Sunrise	 
+7. Your Eyes Again	 
+8. Riding the Sun (instrumental)	 
+9. Stone Angel	
+
 
 ## Отношения с другими группами
 

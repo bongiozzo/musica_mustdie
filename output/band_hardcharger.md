@@ -1,7 +1,13 @@
 # Hard Charger
 
-Дискография
-"Bad Omens" 2016, Hardcore
+
+
+## Дискография
+
+### "Bad Omens" 2016, Hardcore
+
+
+
 
 ## Отношения с другими группами
 

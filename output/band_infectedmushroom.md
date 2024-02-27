@@ -1,7 +1,13 @@
 # Infected Mushroom
 
-Дискография
-"The Gathering" 1999, Metal
+goa-trance
+
+## Дискография
+
+### "The Gathering" 1999, Metal
+
+
+
 
 ## Отношения с другими группами
 

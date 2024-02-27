@@ -1,10 +1,34 @@
 # Mortillery
 
-Дискография
-"Mortillery (EP)" 2010, Thrash
-"Murder Death Kill" 2011, Thrash
-"Origin Of Extinction" 2013, Thrash
-"Shapeshifter" 2016, Thrash
+
+
+## Дискография
+
+### "Mortillery (EP)" 2010, Thrash
+
+
+
+### "Murder Death Kill" 2011, Thrash
+
+
+
+### "Origin Of Extinction" 2013, Thrash
+
+01. Battle March
+02. No Way Out
+03. Cease to Exist
+04. Creature Possessor
+05. Seen in Death
+06. Feed the Fire
+07. The Hunter's Lair
+08. F.O.A.D.
+09. Maniac
+10. Sunday Morning Slasher
+
+### "Shapeshifter" 2016, Thrash
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,9 +1,38 @@
 # Menhir
 
-Дискография
-"Die Ewigen Steine" 1997, Black Metal
-"Buchonia" 1998, Black Metal
-"Thuringia" 1999, Black Metal
+
+
+## Дискография
+
+### "Die Ewigen Steine" 1997, Black Metal
+
+1. Menhir  5:32 
+2  Winter  5:19  
+3  Die Auserwahlten  3:00 
+4  Warrior Of The North  5:15  
+5  Schwertzeit  4:17  
+6  Barditus  8:08  
+7  Tag Der Bergeltung  4:22
+
+### "Buchonia" 1998, Black Metal
+
+1. Sonnenwende
+2. Germanenkunst
+3. Buchonia
+4. Falkenburgstein
+
+### "Thuringia" 1999, Black Metal
+
+Intro 
+Die Kelten 
+Schwertes Bruder 
+Thuringia 
+Einherjer 
+Das kleine Volk 
+Bonifatus 
+Instrumental 
+Woman Of Dark Desires
+
 
 ## Отношения с другими группами
 

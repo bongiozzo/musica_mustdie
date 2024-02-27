@@ -1,10 +1,59 @@
 # Atanab
 
-Дискография
-"The Garden of Sad Souls" 1997, Gothic
-"Goddes of the Flesh" 2003, Death Metal
-"Black Magic" 2006, Death Metal
-"Black Magic (re-edition)" 2010, Death Metal
+
+
+## Дискография
+
+### "The Garden of Sad Souls" 1997, Gothic
+
+1. Atanab (Oda)	 
+2. Garden of Black Roses	 
+3. Blood on the Reign	 
+4. Decadencia Final	 
+5. The Magian	 
+6. Moon Nights	 
+7. Sociego de Almas
+
+### "Goddes of the Flesh" 2003, Death Metal
+
+1. Intro: Slave to the She	 
+2. Demonio
+3. Goddes of the Flesh
+4. Blood Divine
+5. Princess of the Lust
+6. Warrior
+7. Evil
+8. Dark Desires
+9. Paradise Lost
+10. Outro: Alone
+
+### "Black Magic" 2006, Death Metal
+
+1. Intro Is Sentence of Satan		 
+2. Sons of Evil		 
+3. Fury		 
+4. Nightmares With Him		 
+5. Rites of Death		 
+6. Black Magic		 
+7. Witchs Of The Jagua		 
+8. Decadencia Final		 
+9. Blood of the Reign		 
+10. Llantos de Sue&#241;o		 
+11. Born of Blasfemy Soul 1666
+
+### "Black Magic (re-edition)" 2010, Death Metal
+
+1. Is Sentence of Satan (Intro)	 
+2. Sons of Evil	 
+3. Fury	 
+4. Nightmares with Him	 
+5. Rites of Death	 
+6. Black Magic	 
+7. Witches of the Jagua	 
+8. Alma Oscura	 
+9. Divine Sin	 
+10. Born of Blasphemy Soul 1666 (Instrumental)
+
 
 ## Отношения с другими группами
 

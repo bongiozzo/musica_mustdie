@@ -1,17 +1,186 @@
 # Death Angel
 
-Дискография
-"The Ultra-Violence" 1987, Thrash
-"Frolic Through The Park" 1988, Thrash
-"Act III" 1990, Thrash
-"Fall From Grace" 1990, Thrash
-"The Art Of Dying" 2004, Thrash
-"Killing Season" 2008, Thrash
-"Sonic Beatdown - Live in Germany" 2009, Thrash
-"Relentless Retribution " 2010, Thrash
-"The Dream Calls For Blood" 2013, Thrash
-"The Bay Calls For Blood - Live In San Francisco (Live)" 2015, Thrash
-"The Evil Divide" 2016, Thrash
+
+
+## Дискография
+
+### "The Ultra-Violence" 1987, Thrash
+
+1. Thrashers
+2. Evil Priest 
+3. Voracious Souls
+4. Kill As One
+5. The Ultra-Violence 
+6. Mistress Of Pain
+7. Final Death
+8. I.P.F.S.
+
+Andy Galeon - Drums
+Gus Pepa - Guitar
+Mark Osegueda - Vocals
+Rob Cavestany - Lead Guitar
+Dennis Pepa - Bass
+
+(p)&(c) 1987 ENIGMA Records
+
+### "Frolic Through The Park" 1988, Thrash
+
+1. 3rd Floor
+2. Road Mutants
+3. Why You Do This
+4. Bored
+5. Confused
+6. Guilty Of Innocense
+7. Open Up
+8. Of Sin
+9. Gold Gin *
+10. Mind Rape
+
+All Songs By DEATH ANGEL,Except Of * By KISS.
+
+(p)&(c) 1988 ENIGMA Records
+
+### "Act III" 1990, Thrash
+
+
+
+### "Fall From Grace" 1990, Thrash
+
+
+
+### "The Art Of Dying" 2004, Thrash
+
+01. Thrown To The Wolves
+02. 5 Steps To Freedom
+03. Thicker Than Blood
+04. The Devil Incarnate
+05. Famine
+06. Prophecy
+07. No
+08. Spirit
+09. Land Of Blood
+10. Never Me
+11. Word To The Wise
+
+Mark Osegueda - lead vocals
+Ted Aguilar - electric guitar
+Dennis Pepa - bass/vocals
+Rob Cavestany - electric and acoustic
+guitars/vocals
+Andy Galeon - drums/vocals
+
+Produced: Brian Joseph Dobbs and Death Angel.
+Engineered, mixed: Brian Joseph Dobbs.
+Assisted: Tony Espinoza and Boon Spooner.
+Digital editing: Dan Burns.
+Recorded & mixed: San Francisco Soundworks.
+Mastered by: Dave Collins.
+Design: D. Pepa.
+Assisted by: Tobe, Andy, Rob and Mark.
+Photos: Robert John (studio shots),
+Jerome Chiarandini (live photos),
+R. Cavestany (cover photo),
+D. Pepa (angel photos).
+
+### "Killing Season" 2008, Thrash
+
+01. Lord Of Hate
+02. Sonic Beatdown
+03. Dethroned
+04. Carnival Justice
+05. Buried Alive
+06. Soulless
+07. The Noose
+08. When Worlds Collide
+09. God Vs God
+10. Steal The Crown
+11. Resurrection Machine
+
+Mark Osegueda - lead vocals
+Ted Aguilar - electric guitar
+Dennis Pepa - bass/vocals
+Rob Cavestany - electric and acoustic guitars/vocals
+Andy Galeon - drums/vocals
+
+Produced by Nick Raskulinecz
+Co-Produced by Rob Cavestany
+Mixed by Nick Raskulinecz
+Mastered by Brian Gardner
+Recorded and mixed at Studio 606 (Northridge, CA)
+Mastered at Bernie Grundman Mastering (Hollywood, CA)
+Engineered by Paul Fig, John (Lou) Lousteau and Nick Raskulinecz
+Drum tech by Jon Nicholson at Drum Fetish, Guitar
+Setup by Dave Issac
+A&R - Jaap Wagemaker
+Financials - Zachary E. Zeisler
+Legal - Ian J. Friedman, Esq.
+Cover Artwork: "A Newflivinity", copyright 2007 by Kris Kuksi www.kuksi.com
+Art Direction & layout: Dennis Pepa Band Photos: Teresa Faye Hill
+Gang vocals by Scott Ian, Brian Posehn, Rob, Andy, Den & Mark
+All songs written by Cavestany, Galeon, Oseguedi & Pepa
+Published by Prophecies Publishing
+Neurotic Bliss Music (BMI), Angry Drum Music (BMI),
+I Am Hungry You Are Food Publishing (BMI), My Cousinz A Martian Music (BMI)
+For lyrics, tour dates and all things DA go to www.deathangel.com
+
+### "Sonic Beatdown - Live in Germany" 2009, Thrash
+
+
+
+### "Relentless Retribution " 2010, Thrash
+
+1. Relentless Revolution 04:28  
+2. Claws In So Deep 07:44  
+3. Truce 03:31  
+4. Into The Arms Of Righteous Anger 04:31  
+5. River Of Rapture 04:35  
+6. Absence Of Light 04:32  
+7. This Hate 03:33  
+8. Death Of The Meek 05:15  
+9. Opponents At Sides 06:21  
+10. I Chose The Sky 04:06  
+11. Volcanic 03:34  
+12. Where They Lay 04:30 
+
+
+Recorded at Audiohammer Studios in Sanford, Florida with producer Jason Suecof.
+cover artwork created by Brent Elliot White (JOB FOR A COWBOY, CARNIFEX,
+WHITECHAPEL)
+
+Guest appearances: RODRIGO Y GABRIELA on Claws In So Deep
+Guitar solo on Truce done by Jason Suecof
+
+### "The Dream Calls For Blood" 2013, Thrash
+
+
+
+### "The Bay Calls For Blood - Live In San Francisco (Live)" 2015, Thrash
+
+01. Left For Dead
+02. Fallen
+03. Buried Alive
+04. The Dream Calls For Blood
+05. Execution / Don't Save Me
+06. Truce
+07. Detonate
+08. Bored
+09. Caster Of Shame
+10. Territorial Instinct / Bloodlust
+
+### "The Evil Divide" 2016, Thrash
+
+01. The Moth (4:38)
+02. Cause For Alarm (3:22)
+03. Lost (4:57)
+04. Father Of Lies (5:05)
+05. Hell To Pay (3:12)
+06. It Can't Be This (4:16)
+07. Hatred United/United Hate (5:17)
+08. Breakaway (4:01)
+09. The Electric Cell (4:38)
+10. Let The Pieces Fall (5:56)
+11. Wasteland (Bonus Track) (5:18)
+
 
 ## Отношения с другими группами
 

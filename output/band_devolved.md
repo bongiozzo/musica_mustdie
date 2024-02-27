@@ -1,6 +1,9 @@
 # Devolved
 
-Дискография
+futuristic death metal from Australia
+
+## Дискография
+
 
 ## Отношения с другими группами
 

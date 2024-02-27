@@ -1,13 +1,125 @@
 # Firewind
 
-Дискография
-"Between Heaven and Hell" 2002, Power Metal
-"Burning Earth" 2003, Power Metal
-"Forged By Fire" 2005, Power Metal
-"Allegiance" 2006, Power Metal
-"The Premonition" 2008, Power Metal
-"Days of Defiance" 2010, Power Metal
-"Few Against Many" 2012, Power Metal
+
+
+## Дискография
+
+### "Between Heaven and Hell" 2002, Power Metal
+
+
+
+### "Burning Earth" 2003, Power Metal
+
+
+
+### "Forged By Fire" 2005, Power Metal
+
+1. Kill To Live (3:41) 
+2. Beware The Beast (4:22) 
+3. Tyranny (3:30) 
+4. The Forgotten Memory (3:42) [featuring James Murphy] 
+5. Hate World Hero (5:50) 
+6. Escape From Tomorrow (3:57) 
+7. Feast Of The Savages (4:25) [instrumental, feat. Marty Friedman] 
+8. Burn In Hell (4:37) 
+9. Perished In Flames (4:51) 
+10. Land Of Eternity (5:54) 
++ Tyranny (video clip enhancement) 
++ Making Of/Live Footage (video enhancement)
+
+### "Allegiance" 2006, Power Metal
+
+1. Allegiance 04:41  
+2. Insanity 04:29  
+3. Falling To Pieces 04:03  
+4. Ready To Strike 04:35  
+5. Breaking The Silence 04:03  
+6. Deliverance 06:07  
+7. Till The End Of Time 04:36  
+8. Dreamchaser 04:07  
+9. Before The Storm 03:42  
+10. The Essence 04:19  
+11. Where Do We Go From Here? 03:57 
+
+
+
+Line-up:
+Apollo Papathanasio - Vocals
+Gus G - Guitars
+Bob Katsionis - Keyboards
+Petros Christo - Bass
+Mark Cross - Drums
+
+### "The Premonition" 2008, Power Metal
+
+1. Into the Fire 06:29  
+2. Head Up High 03:46  
+3. Mercenary Man 03:28  
+4. Angels Forgive Me 04:57  
+5. Remembered 03:38  
+6. My Loneliness 04:04  
+7. Circle of Life 04:14  
+8. The Silent Code 04:48  
+9. Maniac 04:55  
+10. Life Foreclosed 04:52
+
+### "Days of Defiance" 2010, Power Metal
+
+1. The Ark of Lies 04:43  
+2. World on Fire 04:38  
+3. Chariot 04:38  
+4. Embrace the Sun 04:04  
+5. The Departure 00:44  
+6. Heading for the Dawn 04:00  
+7. Broken 03:23  
+8. Cold as Ice 04:33  
+9. Kill in the Name of Love 04:27  
+10. SKG 05:19  
+11. Losing Faith 04:11  
+12. The Yearning 04:53  
+13. When All Is Said and Done 05:05 
+
+
+
+Line-up:
+Apollo Papathanasio - Vocals
+Gus G. - Guitars
+Petros Christo - Bass
+Michael Ehre - Drums
+Bob Katsionis - Keyboards
+
+Limited Deluxe Mediabook Edition bonus tracks:
+14. Wild Rose
+15. Ride to the Rainbow's End
+16. Breaking the Law (Judas Priest cover)
+
+iTunes bonus track:
+14. Riding on the Wind
+
+Japanese bonus tracks:
+14. Halcyon Days
+15. Breaking the Law (Judas Priest Cover)
+
+Cover art by Gustavo Sazes. 
+
+### "Few Against Many" 2012, Power Metal
+
+1. Wall Of Sound 
+2. Losing My Mind 
+3. Few Against Many 
+4. The Undying Fire 
+5. Another Dimension 
+6. Glorious 
+7. Edge Of A Dream (feat. Apocalyptica) 
+8. Destiny 
+9. Long Gone Tomorrow 
+10. No Heroes, No Sinners
+
+
+Digipack bonus tracks: 
+11. Battleborn
+12. No Heroes, No Sinners (acoustic version) 
+
 
 ## Отношения с другими группами
 

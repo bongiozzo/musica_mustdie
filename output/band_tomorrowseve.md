@@ -1,8 +1,56 @@
 # Tomorrow's Eve
 
-Дискография
-"The Unexpected World" 2000, Progressive
-"Mirror Of Creation" 2003, Progressive
+prog-metal
+
+## Дискография
+
+### "The Unexpected World" 2000, Progressive
+
+01. Intro
+02. Success
+03. Voyager
+04. Outside
+05. Silent Dream
+06. Changes
+07. Descent Into Insanity
+08. Conflict
+09. The Unexpected World
+
+Peter Webel (vocals)
+Rainer Grund (guitar)
+Sascha Hilles (bass)
+Oliver Schwickert (keyboards)
+Ralf Gottlieb (drums & percussion)
+
+
+### "Mirror Of Creation" 2003, Progressive
+
+1. Prof. Brandon   1:00
+
+2. Optimization  8:02
+
+3. Cold Sience   0:56
+
+4. If Eyes Turn Blind  9:22
+
+5. Lost  10:26
+
+6. Live Your Dream   8:55
+
+7. Next Chapter  0:30
+
+8. New Orders  8:10
+
+9. Crazed Gunman   7:07
+
+10. Mirror Of Creation   2:51
+
+11. Too Many Lies  2:06
+
+12. Point Of No Return   9:27
+
+13. Tomorrow?  1:12
+
 
 ## Отношения с другими группами
 

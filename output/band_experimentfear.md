@@ -1,7 +1,40 @@
 # Experiment Fear
 
-Дискография
-"Assuming The Godform" 1996, Deathcore
+
+
+## Дискография
+
+### "Assuming The Godform" 1996, Deathcore
+
+l. Thy Will Is Strong... (1.19)
+2. Assuming The God Form (3.59)
+3. Shallow Disbelief (3.30)
+4. Comatose (3.52)
+5. Existence Denied (2.56)
+6. Jester Of The Anxious (3.47)
+7. ...Thy Flesh Is Weak (1.42)
+8. Give Us This Day (4.59)
+9. Compelled (3.48)
+10.Cryopsy Incomplete (2.48)
+11.In Extremis (1.03)
+12.Judgement Of The Dead (4.48)
+13.The Passing (0.48)
+
+All songs written by EXPERIMENT
+FEAR.
+Produced, engineered and mixed by
+Brian Griffin
+Recorded and mixed at Wave Digital
+Studios,Gurnee, IL
+
+Scott Ebbens - Guitars
+Joe Schermitzler - Bass
+Phil DesLauriers - Vocals, Guitars,
+Keyboards
+Jon Griesbach - Drums
+
+(p)(c) 1996 MASSACRE Records
+
 
 ## Отношения с другими группами
 

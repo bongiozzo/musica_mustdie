@@ -1,8 +1,17 @@
 # Inner Shrine
 
-Дискография
-"Fallen Beauty" 2000, Death Doom
-"Samaya" 2004, Gothic
+
+
+## Дискография
+
+### "Fallen Beauty" 2000, Death Doom
+
+
+
+### "Samaya" 2004, Gothic
+
+
+
 
 ## Отношения с другими группами
 

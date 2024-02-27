@@ -1,7 +1,24 @@
 # Abydos
 
-Дискография
-"Abydos: The Little Boy's Heavy Mental Shadow Opera About The Inhabitants Of His Diary" 2004, Progressive
+VANDEN PLAS singer
+
+## Дискография
+
+### "Abydos: The Little Boy's Heavy Mental Shadow Opera About The Inhabitants Of His Diary" 2004, Progressive
+
+01. The Inhabitants Of His Diary 
+02. You Broke The Sun 
+03. Silence 
+04. Far Away From Heaven 
+05. Coppermoon (The Other Side) 
+06. Hyperion Sunset 
+07. God's Driftwood 
+08. Radio Earth 
+09. Abydos 
+10. Green's Guidance For A Stategy Adventure Game 
+11. Wildflowersky 
+12. A Boy Named Fly
+
 
 ## Отношения с другими группами
 

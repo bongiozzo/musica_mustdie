@@ -1,7 +1,22 @@
 # Enter VI
 
-Дискография
-"Dreams" 2000, Thrash
+
+
+## Дискография
+
+### "Dreams" 2000, Thrash
+
+1.	 Battle VI	03:53	 
+2.	 Day Of Doom	03:19	 
+3.	 You Know Who	03:32	 
+4.	 Hexed	03:16	 
+5.	 Passed Realised	05:18	 
+6.	 Dreams	01:50	 
+7.	 Terrorphobia	02:53	 
+8.	 Rejuvination	04:05	 
+9.	 The Game	04:22	 
+10.	 Onslaught Server	04:44	 
+
 
 ## Отношения с другими группами
 

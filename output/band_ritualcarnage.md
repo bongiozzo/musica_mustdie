@@ -1,7 +1,22 @@
 # Ritual Carnage
 
-Дискография
-"The Birth of Tragedy" 2002, Thrash
+
+
+## Дискография
+
+### "The Birth of Tragedy" 2002, Thrash
+
+1. The Sixth Sense
+2. The Birth of Tragedy
+3. Burning Eyes Of Rage
+4. Paradox of Democracy
+5. Fall of the Empire
+6. Shroud of Secrecy
+7. Sanity's Thin Line
+8. Grave New World
+9. Dawn to Decadence
+10. Psycho-Sadistic Psychosis
+
 
 ## Отношения с другими группами
 

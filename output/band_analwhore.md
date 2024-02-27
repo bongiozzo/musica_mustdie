@@ -1,6 +1,9 @@
 # Anal Whore
 
-Дискография
+pornogrindnoise from Spermany
+
+## Дискография
+
 
 ## Отношения с другими группами
 

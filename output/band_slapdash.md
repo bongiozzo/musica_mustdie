@@ -1,7 +1,38 @@
 # Slapdash
 
-Дискография
-"240.25 - Actual Reality" 1996, Alternative
+Fuck-All-Authorities Hardcore
+
+## Дискография
+
+### "240.25 - Actual Reality" 1996, Alternative
+
+1.  Nothing Remains
+2.  No Love Last
+3.  Dependence Gone
+4.  Bound
+5.  Lost
+6.  New God
+7.  So Be It
+8.  Soulless
+9.  On My Own
+10.My Enemy I
+11.Follow Not
+12.Get A Life
+
+Produced By SLAPDASH.
+Recorded & Mixed At Studio Underground.
+Engineered by Pelle Saether & Lars Linden.
+Mixed By Thomas Hedquist & SLAPDASH At Quest Studio.
+Mastered By peter In De Betou At Cutting Room.
+
+Lars Linden - Guitars
+Magnus Soderman -  Guitars
+Jens C.Mortensen - Vocals
+Barget - Drums
+Fredrick Jacobsen - Bass
+
+(P)(C) 1996 MNW ZONE / NUCLEAR BLAST Records // NB 197
+
 
 ## Отношения с другими группами
 

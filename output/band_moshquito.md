@@ -1,8 +1,34 @@
 # Moshquito
 
-Дискография
-"Secrets" 1998, Thrash
-"Worlds End" 2001, Thrash
+
+
+## Дискография
+
+### "Secrets" 1998, Thrash
+
+
+
+### "Worlds End" 2001, Thrash
+
+1. Animals
+2. Do What You Want
+3. Worlds End
+4. Hunting Demon
+5. Cold Grave
+6. Liquid Killer
+7. No Respect
+8. Your Pleasure Is Your Pain
+9. Flesh
+
+
+Rudi (bass)
+Ingo (guitars)
+Olli (vocals)
+John (drums)
+Enrico (guitars)
+
+
+
 
 ## Отношения с другими группами
 

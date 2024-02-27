@@ -1,8 +1,17 @@
 # Parricide
 
-Дискография
-"Crude" 1997, Death Metal
-"Ill-treat" 2002, Death Metal
+
+
+## Дискография
+
+### "Crude" 1997, Death Metal
+
+
+
+### "Ill-treat" 2002, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

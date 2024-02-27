@@ -1,8 +1,41 @@
 # Baphomet
 
-Дискография
-"The Dead Shall Inherit" 1992, Deathcore
-"The Dead Shall Inherit (re-release)" 2006, Death Metal
+Very brutal Deathgrind
+
+## Дискография
+
+### "The Dead Shall Inherit" 1992, Deathcore
+
+1. The Suffering
+2. Through Deviant Eyes
+3. Leave The Flesh
+4. Valley Of The Dead
+5. Torn Soul
+6. Vile Reminiscence
+7. Boiled In Blood
+8. Age Of Plague
+9. Infection Of Death
+10.Streaks Of Blood
+
+ Tom Frost - Vocals
+ Dave Craiglow - Guitar
+ Gary Schipani - Bass
+ Rick Breier - Drums
+
+Produced By Dennis Fura & BAPHOMET.
+Engineerad & Mixed By Dennis Fura.
+Recorded At Border City Recording Niagara Falls,
+ N.Y., U.S.A.
+Mastered At Transfarmation, London.
+
+(p) 1992 PEACEVILLE Records
+(c) 1992 VILE MUSIC Records Vile 31
+
+
+### "The Dead Shall Inherit (re-release)" 2006, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

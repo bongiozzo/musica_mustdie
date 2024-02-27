@@ -1,6 +1,9 @@
 # Anal Bleeding
 
-Дискография
+porno/gore/grind from Canada
+
+## Дискография
+
 
 ## Отношения с другими группами
 

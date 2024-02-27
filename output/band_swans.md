@@ -1,7 +1,45 @@
 # Swans
 
-Дискография
-"The Great Annihilator" 1994, Alternative
+
+
+## Дискография
+
+### "The Great Annihilator" 1994, Alternative
+
+1. In
+2. I Am The Sun
+3. She Lives !
+4. Celebrity Lifestyle
+5. Mother/Father
+6. Blood Promise
+7. Mind/Body/Light/Sound
+8. My Buried Child
+9. Warm
+[10].Alcohol The Seed
+[11].Killing For Company
+[12].Mother's Milk
+[13].Where Goes A Body End ?
+[14].Telepathy
+[15].The Great Annihilator
+[16].Out
+
+[10]-[16] На Стороне B
+
+All Songs By SWANS.
+Produced By M.Gira.
+Recorded At The Following Studios,
+B.C.Studio, Brooklyn.
+Engineered By Martin Bisi.
+
+Jarboe - Organ, Background Vocals, Vocals
+M.Gira - Electric Guitar, Sounds
+Norman Westberg - Electric Guitar
+Clinton Steele - Electric Guitar
+Algis Kizys - Bass
+Bill Rieflin - Drums
+
+(P)&(C) 1994 YOUNG GOD Records
+
 
 ## Отношения с другими группами
 

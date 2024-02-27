@@ -1,15 +1,93 @@
 # Opera IX
 
-Дискография
-"Gothik (demo)" 1990, Black Metal
-"Demo" 1992, Black Metal
-"The Triumph of Death (EP)" 1993, Black Metal
-"The Call of the Woods" 1995, Black Metal
-"Sacro Culto" 1998, Black Metal
-"The Black Opera - Symphoniae Mysteriorum in Laudem Tenebrarum" 2000, Black Metal
-"Maleventum" 2002, Black Metal
-"Anphisbena" 2005, Black Metal
-"Strix - Maledictae in Aeternum" 2012, Black Metal
+
+
+## Дискография
+
+### "Gothik (demo)" 1990, Black Metal
+
+1. Prelude
+2. Groglin's grange
+3. Gothik
+4. Cemetaria
+5. Invocation
+
+### "Demo" 1992, Black Metal
+
+1. Rhymes about dying stones
+2. House of agony
+3. Last dawn
+4. Malum in sacrum
+
+### "The Triumph of Death (EP)" 1993, Black Metal
+
+1. Born in the grave  6:01 
+2. Red death          4:28 
+
+### "The Call of the Woods" 1995, Black Metal
+
+1. Alone in the dark       18:28  
+2. Esteban's promise        7:04 
+3. The call of the wood    11:10 
+4. Al azif                  8:57 
+5. Sepulcro                13:46
+
+### "Sacro Culto" 1998, Black Metal
+
+1. The oak                            10:40  
+2. Fronds of the ancient walnut       12:25 
+3. The naked and the dance             8:21 
+4. Cimmeries                          12:42 
+5. My devotion                        15:00 
+6. Under the sign of the red dragon   11:18 
+
+### "The Black Opera - Symphoniae Mysteriorum in Laudem Tenebrarum" 2000, Black Metal
+
+1. Act I the first seal                           9:39
+2. Act II Beyond the black daimond gates          7:14
+3. Act III Carnal delight in the vortex of evil   6:13
+4. Act IV Congressus cum daemone                 10:24
+5. Act V The magic temple                         4:16
+6. Act VI The sixth seal                          7:50
+7. Bela Lugosi's dead                             5:28
+
+### "Maleventum" 2002, Black Metal
+
+1. Maleventum  5:56
+2. Princess of the ancient 7:50
+3. Unearted Arcana 5:20
+4. In the dark i found the reflections of hidden mirrors 10:20
+5. Muscaria 9:04
+6. Forgotten Gods 7:56
+
+### "Anphisbena" 2005, Black Metal
+
+01. Intro - Many Moons Ago
+02. The Serpent's Nemeton
+03. The Prophecy
+04. In Hoc Signo Sanguinis
+05. Immortal Chant
+06. Scell Lem Duibh (Song Of Death)
+07. In The Sixth Tower
+08. Battle Cry
+09. Anphisbena
+10. One Rode To Asa Bay
+
+### "Strix - Maledictae in Aeternum" 2012, Black Metal
+
+1.	 Strix the Prologue (Intro)	02:39	 
+2.	 1313 (Eradicate the False Idols)	06:39	 
+3.	 Dead Tree Ballad	05:42	 
+4.	 Vox in Rama (part 1)	03:40	 
+5.	 Vox in Rama (part 2)	05:12	 
+6.	 Mandragora	06:19	 
+7.	 Eyes in the Well	06:18	 
+8.	 Earth and Fire	07:58	 
+9.	 Ecate -The Ritual (intro)	03:29	 
+10.	 Ecate	06:04	 
+11.	 Nemus Tempora Maleficarum	06:29	 
+12.	 Historia Nocturna	08:38	 
+
 
 ## Отношения с другими группами
 

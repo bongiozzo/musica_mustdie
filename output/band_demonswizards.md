@@ -1,8 +1,48 @@
 # Demons & Wizards
 
-Дискография
-"Demons & Wizards" 2000, Power Metal
-"Touched by the Crimson King" 2005, Power Metal
+project featuring Jon Schaffer of Iced Earth and Hansi Kursch of Blind Guardian
+
+## Дискография
+
+### "Demons & Wizards" 2000, Power Metal
+
+1. Rites of Passage (intro)
+2. Heaven Denies
+3. Poor Man's Crusade
+4. Fiddler on the Green
+5. Blood on My Hands
+6. Path of Glory
+7. Winter of Souls
+8. The Whistler
+9. Tear Down the Wall
+10. Gallows Pole
+11. My Last Sunrise
+12. Chant (outro)
+13. White Room (Cream cover)
+14. The Whistler (alternate version)
+
+
+
+Jon Schaffer: Rhythm guitar, Bass
+Hansi Kursch: Vocals
+Jim Morris: Lead guitar
+Mark Prator: Drums
+
+Recorded during July and August of 1999 at Morrisound Studios
+
+### "Touched by the Crimson King" 2005, Power Metal
+
+1. Crimson King
+2. Beneath These Waves
+3. Terror Train
+4. Seize The Day
+5. The Gunslinger
+6. Love's Tragedy Asunder
+7. Wicked Witch
+8. Dorian
+9. Down Where I Am
+10. Immigrant Song (Led Zeppelin cover)
+
 
 ## Отношения с другими группами
 

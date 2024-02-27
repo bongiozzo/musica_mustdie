@@ -1,18 +1,220 @@
 # Dismember
 
-Дискография
-"Like An Ever Flowing Stream" 1991, Death Metal
-"Skin Her Alive (EP)" 1991, Death Metal
-"Pieces (EP)" 1992, Death Metal
-"Indecent & Obscene" 1993, Death Metal
-"Massive Killing Capacity" 1995, Death Metal
-"Casket Garden (EP)" 1995, Death Metal
-"Death Metal" 1997, Death Metal
-"Misanthropic (EP)" 1997, Death Metal
-"Hate Campaign" 2000, Death Metal
-"Where Ironcrosses Grow" 2004, Death Metal
-"The God That Never Was" 2006, Death Metal
-"Dismember" 2008, Death Metal
+Swedish Legend
+
+## Дискография
+
+### "Like An Ever Flowing Stream" 1991, Death Metal
+
+1. Override Of The Overture
+2. Soon To Be Dead
+3. Bleed For Me
+4. And So Is Life
+5. Dismembered
+6. Skin Her Alive
+7. Sickening Art
+8. In Death`s Sleep
+9. Deathevocation
+10.Defective Decay
+
+ Matti Karki - Vocals
+ David Blomquist - Guitars
+ Robert Senneback - Guitars
+ Richard Diaman - Bass
+ Fred Estby - Drums
+
+All Music By DISMEMBER.
+All Lyrics By Matti Karki & Fred Estby.
+Produced & Mixed By Fred Estby & Thomas Skogsberg.
+Engineered By Thomas Skogsberg.
+
+(p)&(c) 1991 NUCLEAR BLAST Records
+
+
+### "Skin Her Alive (EP)" 1991, Death Metal
+
+A. Skin Her Alive
+B. Defective Decay
+
+Line-up: 
+Matti Kдrki - vocals 
+David Blomqvist - lead guitar 
+Robert Sennebдck - rhythm guitar 
+Richard Cabeza - bass 
+Fred Estby - drums
+
+Produced by Fred Estby and Thomas Skogsberg 
+Recorded at Sunlight Studios, March 1991 
+Engineered by Thomas Skogsberg 
+Mixed by Fred Estby and Thomas Skogsberg 
+All arrangements by Fred Estby and Dismember 
+All leads by Nicke Andersson (Entombed)
+
+
+
+### "Pieces (EP)" 1992, Death Metal
+
+1. Pieces
+2. Carnal Tomb
+3. I Wish You Hell
+4. Soon To Be Dead
+
+(p)&(c) 1992 NUCLEAR BLAST Records
+
+
+### "Indecent & Obscene" 1993, Death Metal
+
+1. Fleshless
+2. Skinfather
+3. Sorrowfilled
+4. Case & Obscene
+5. Souldevourer
+6. Reborn In Blasphemy
+7. Eviscerated (Bitch)
+8. 9-th Circle
+9. Dreaming In Red
+
+ Matti Karki - Vocals
+ David Blomquist - Guitars
+ Robert Senneback - Guitars
+ Richard Diaman - Bass
+ Fred Estby - Drums
+
+All Music By DISMEMBER.
+All Lyrics By Matti Karki & Fred Estby.
+Produced & Mixed By Fred Estby & Thomas Skogsberg.
+Engineered By Thomas Skogsberg.
+
+(p)&(c) 1993 NUCLEAR BLAST Records
+
+
+### "Massive Killing Capacity" 1995, Death Metal
+
+1. I Saw Them Die
+2. Massive Killing Capacity
+3. On Frozen Fields
+4. Crime Divine
+5. To The Bone
+6. Wardead
+7. Hallucigenia
+8. Collection By Blood
+9. Casket Garden
+10. Nenia
+11.Life-Another Shape Of Sorrow
+
+(P)&(C) 1995 NUCLEAR BLAST Records
+
+### "Casket Garden (EP)" 1995, Death Metal
+
+01. Casket Garden 
+02. Wardead 
+03. Justifiable Homicide
+
+### "Death Metal" 1997, Death Metal
+
+I: Of Fire
+II: Trendkiller
+III: Misanthropic
+IV: Let The Napalm Rain
+V: Live For The Fear (Of Pain)
+VI: Stillborn Ways
+VII: Killing Compassion
+IIX: Bred For War
+IX: When Hatred Killed The Light
+X: Ceremonial Comedy
+XI: Silent Are The Watchers
+XII: Mistweaver
+Produced by Fred Estby and DISMEMBER
+Matti Karki - Vocals
+David Blomqvist - Lead Guitar
+Robert Senneback - Rhytm guitar
+Richard Cabeza - Bass
+Fred Estby - Drums
+(c)(p)1997 Nuclear Blast
+
+### "Misanthropic (EP)" 1997, Death Metal
+
+1. Misanthropic
+2. Pagan Savior
+3. Shadowlands
+4. Afterimage
+5. Shapeshifter
+Produced by Fred Estby and DISMEMBER
+Matti Karki - Vocals
+David Blomqvist - Lead Guitar
+Robert Senneback - Rhytm Guitar
+Richard Cabeza - Bass
+Fred Estby - Drums
+All songs by DISMEMBER, except
+2 by AUTOPSY
+(c)1997 Nuclear Blast
+
+### "Hate Campaign" 2000, Death Metal
+
+1. Suicidal Revelations
+2. Questionable Ethics
+3. Beyond Good and Evil
+4. Retaliate 
+5. Enslaved to Bitterness
+6. Mutual Animosity
+7. Patrol 17
+8. Thanatology 
+9. Bleeding Over
+10. In Death's Cold Embrace
+11. Hate Campaign
+ 
+Line-up: 
+Matti K&#1076;rki - vocals 
+David Blomqvist - guitar 
+Magnus Sahlgren - guitar 
+Sharlee D'Angelo - bass 
+Fred Estby - drums
+
+Produced by Fred Estby 
+Recorded and mixed at Das Boot Studios, Stockholm April - May 1999 by Fred Estby 
+Mastered by Stefan Boman at Polar Studios
+
+### "Where Ironcrosses Grow" 2004, Death Metal
+
+1. Where Ironcrosses Grow 
+2. Forged With Hate
+3. Me-God
+4. Tragedy Of The Faithful
+5. Chasing The Serpent
+6. Where Angels Fear To Tread
+7. Sword Of Light
+8. As The Coins Upon Your Eyes
+9. Children Of The Cross
+10. As I Pull The Trigger
+
+### "The God That Never Was" 2006, Death Metal
+
+The God That Never Was 
+Shadows Of The Mutilated 
+Time Heals Nothing 
+Autopsy 
+Never Forget, Never Forgive 
+Trail Of The Dead 
+Phantoms (Of The Oath) 
+Into The Temple Of Humiliation 
+Blood For Paradise 
+Feel The Darkness 
+Where No Ghost Is Holy
+
+### "Dismember" 2008, Death Metal
+
+1. Death conquers all 03:48  
+2. Europa burns 03:33  
+3. Under a bloodred sky 05:24  
+4. The hills have eyes 03:15  
+5. Legion 03:22  
+6. Tide of blood 03:35  
+7. Combat fatigue 02:29  
+8. No honor in death 03:07  
+9. To end it all 03:51  
+10. Dark depth 03:48  
+11. Black sun 06:24
+
 
 ## Отношения с другими группами
 

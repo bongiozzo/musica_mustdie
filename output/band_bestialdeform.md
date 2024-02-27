@@ -1,7 +1,20 @@
 # Bestial Deform
 
-Дискография
-"Stop The Christianity!" 2005, Death Metal
+
+
+## Дискография
+
+### "Stop The Christianity!" 2005, Death Metal
+
+1. Intro 
+2. True God 
+3. Antichrist 
+4. Jesus is Dead 
+5. Creat, Destroy, Enjoy 
+6. Non-Human Law 
+7. Stop the Christianity! 
+8. Utopia
+
 
 ## Отношения с другими группами
 

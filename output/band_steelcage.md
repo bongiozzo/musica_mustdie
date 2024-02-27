@@ -1,8 +1,40 @@
 # Steel Cage
 
-Дискография
-"Visions Of Dark Millennium" 1999, Thrash
-"Red Blood Planet" 2002, Thrash
+Italian thrash-death band
+
+## Дискография
+
+### "Visions Of Dark Millennium" 1999, Thrash
+
+1.Quick Fire
+2.Solitary Reaper
+3.The Liar
+4.Cage Of Sounds 
+5.Dreams Of Green 
+
+
+Bruno Guarascio - Vocals
+Giuseppe Rungetti - R.Guitar
+Joshua Campana - Bass
+Gianluca Rungetti - L.Guitar
+Genny Eneghess - Drums 
+
+
+### "Red Blood Planet" 2002, Thrash
+
+1. Soullessly
+2. Biomechanoid
+3. Come back to your life
+4. No evil by my evil
+5. Original element
+
+
+Bruno Guarascio - Vocals
+Giuseppe Rungetti - R.Guitar
+Joshua Campana - Bass
+Gianluca Rungetti - L.Guitar
+Genny Eneghess - Drums 
+
 
 ## Отношения с другими группами
 

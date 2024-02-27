@@ -1,7 +1,13 @@
 # Psychoparadox
 
-Дискография
-"Reapeiron" 2003, Techno Death
+
+
+## Дискография
+
+### "Reapeiron" 2003, Techno Death
+
+
+
 
 ## Отношения с другими группами
 

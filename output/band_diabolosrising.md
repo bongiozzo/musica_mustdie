@@ -1,8 +1,54 @@
 # Diabolos Rising
 
-Дискография
-"666" 1994, Black Metal
-"Blood Vampirism And Sadism" 1996, Black Metal
+Satanic Black Industrial
+
+## Дискография
+
+### "666" 1994, Black Metal
+
+1. Genocide - I Am God
+2. Vinnus Sabbati
+3. Give Me Blood Or Give Me Death
+4. Satanas Lead Us Through
+5. Sorcery - Scientia Maxima
+6. 666
+7. X-E-C-T
+
+Produced By DIABOLOS RISING.
+Engineered By George Zaharopolous.
+Recorded & Mixed At Storm Studio,
+June 1994.
+Drums Programming By Yiannis
+Nisidis & M.W.Daoloth.
+
+Mr. M.L. - Vocals,Voices & Venoms
+Magus Wampyr Daoloth - Synths,
+Bass,Vocals
+
+(P)&(C) 1994 OSMOSE Productions
+
+### "Blood Vampirism And Sadism" 1996, Black Metal
+
+1.  Satanic Propaganda (S.N.T.F. Rising)
+2.  Blood Lunar Cult
+3.  Blood Communion
+4.  Ilsa
+5.  Sadism Unbound
+6.  Mantle Of Suffering
+7.  Necromanteion
+8.  Ashes To Ashes, Flesh To Dust
+
+All Lyrics & Music By DIABOLOS RISING.
+Produced By DIABOLOS RISING.
+Engineered By George Zaharopolous.
+Recorded & Mixed At Storm Studio.
+ 
+Mika X6X - Vocals, Throat Treatments, Suffering
+Magus Wampyr Daoloth - Synths, Programming
+Guitars Played By Divad (NECROMANTIA).
+ 
+(P)&(C) 1996 OSMOSE Productions
+
 
 ## Отношения с другими группами
 

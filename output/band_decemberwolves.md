@@ -1,10 +1,35 @@
 # December Wolves
 
-Дискография
-"'Til Ten Years" 1996, Black Metal
-"We Are Everywhere" 1997, Death Metal
-"Completely Dehumanized" 1998, Death Metal
-"Blasterpiece Theatre" 2002, Death Metal
+Death / black metal
+
+## Дискография
+
+### "'Til Ten Years" 1996, Black Metal
+
+
+
+### "We Are Everywhere" 1997, Death Metal
+
+
+
+### "Completely Dehumanized" 1998, Death Metal
+
+
+
+### "Blasterpiece Theatre" 2002, Death Metal
+
+1. Warning
+2. Desperately Seeking Satan
+3. April Fools Day
+4. Do Not Entry
+5. Kolobos
+6. Porn Again Christian
+7. Public Aquarian Freebase
+8. Solid Gold Beating
+9. Sharing Needles
+10. Disclaimer
+11. To Kill... Again
+
 
 ## Отношения с другими группами
 

@@ -1,12 +1,102 @@
 # Morifade
 
-Дискография
-"The Hourglass" 1995, Power Metal
-"Across The Starlit Sky" 1998, Power Metal
-"Possession Of Power" 1999, Power Metal
-"Imaginarium" 2002, Power Metal
-"Domination" 2004, Power Metal
-"Empire of Souls" 2011, Power Metal
+
+
+## Дискография
+
+### "The Hourglass" 1995, Power Metal
+
+Leave It All Behind
+Baptized In Fire
+Cryptic Signs
+The Hourglass
+Fire & Ice
+
+### "Across The Starlit Sky" 1998, Power Metal
+
+1. Enter The Past
+2. Tomorrow Knows
+3. Starlit Sky
+4. Distant World
+
+
+
+
+### "Possession Of Power" 1999, Power Metal
+
+Possession Of Power 
+Dragonlord 
+Cast A Spell 
+Ending Of Time 
+The Signs 
+My Own Majesty 
+To Live Forever 
+The Vision And The Temple 
+World Of Steel 
+A Northern Rhyme 
+Ancient Prophecy 
+
+
+
+
+### "Imaginarium" 2002, Power Metal
+
+Produced by Andy La Rocque & Morifade.
+Engineered by Andy La Rocque.
+Assistant Engineering by Patrik "Risza" Isaksson.
+Recorded & Mixed at Los Angered Recording, Sweden in July/August 2001.
+Mastered at The Mastering Room by Gцran Finnberg.
+Layout & Design by Reload.
+Band & Single Photos by Hans Ljung. 
+
+Morifade are
+Jesper Johansson - Electric & Acoustic Guitars
+Henrik Weimedal - Bass Guitar
+Robin Arnell - Electric Guitars
+Stefan Petersson - Lead & Harmony Vocals
+Fredrik "Frippe" Eriksson - Keyboards
+Kim Arnell - Drums & Percussion
+
+### "Domination" 2004, Power Metal
+
+01 - Parallels
+02 - A Silent Revolution
+03 - The Second Coming
+04 - Words I Never Speak
+05 - Clarity (Fragments of a Dream)
+06 - Panopticon
+07 - The Rising
+08 - Erase
+09 - Memorys End
+
+
+The digipack and US versions feature the following bonus tracks (tracks 10 to 14 taken from the "Cast a Spell" MCD):
+ 10. Cast a Spell (4:21)
+ 11. As Time Decide (5:05)
+ 12. Tomorrow Knows (4:31)
+ 13. Dance with the Devil (Phenomena cover) (4:36)
+ 14. Judas (Helloween cover) (4:54)
+ 
+The Japanese version contains the following bonus track:
+ 10. Eyes of the Blind (04:14)
+ 
+All versions include the video for Lost Within A Shade. 
+
+### "Empire of Souls" 2011, Power Metal
+
+01. Bleeding For Lust 05:20 
+02. A Cry Form The Void 04:34 
+03. Come In Blood 05:51 
+04. Fear Breeder 03:52 
+05. My Silent Seranade 05:32 
+06. Road To Deception 04:44 
+07. Resemblance Of Hate 04:38 
+08. Impact Of Vanity 04:54 
+09. Strength In Solitude 05:58 
+10. The Dark Resignation 05:42 
+11. A Sinister Mind (Bonus Track For Icewarrior Records) 05:03
+
+
 
 ## Отношения с другими группами
 

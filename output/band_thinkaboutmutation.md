@@ -1,15 +1,149 @@
 # Think About Mutation
 
-Дискография
-"Motorrazor" 1993, Industrial
-"Housebastards" 1994, Industrial
-"Hellraver" 1996, Industrial
-"Motorrazor '96" 1996, Industrial
-"Reflect It" 1998, Industrial
-"Irregular" 1998, Industrial
-"Virus" 1998, Industrial
-"Two Tribes" 1999, Industrial
-"Highlife" 1999, Industrial
+
+
+## Дискография
+
+### "Motorrazor" 1993, Industrial
+
+1. Motorrazor
+2. No Control
+3. Gasoline
+4. Get Out
+5. Blow Your Mind
+6. Housegrinder
+7. Freestyle
+8. Cracked Eye
+9. Fucking Lies
+10.Survivor
+
+### "Housebastards" 1994, Industrial
+
+1. Destination
+2. Nightmares
+3. Questions
+4. Wall Of Silence
+5. Housebastards
+6. Street Credibility
+7. Bleeding
+8. Feel It
+9. Working Hand In Hand
+10. Kerosine
+11. Get Into The House
+12. Housebastards (Sync-Mix)
+
+ Donis - Vocals
+ Joey A. Vaising - Guitars & Vocals
+ Heavyette - Guitars
+ Rajko - Bass
+ Kay - Drums
+ Grofe - Keyboards
+
+All Music By THINK ABOUT MUTATION
+Produced By Stolle & THINK ABOUT MUTATION
+Recorded, Engineered & Mixed By Stolle At Stolles Studiobunker, Leipzig
+
+(p)&(c) 1994 DYNAMICA
+
+### "Hellraver" 1996, Industrial
+
+1. Ganglords (3.57)
+2. Overload (3.57)
+3. River (3 .47)
+4. Lucky Times (3.50)
+5. The Rewinding Seeds (5.08)
+6. Suffer (2.49)
+7. Warning (2.18)
+8. Psycho DJ (3.46)
+9. Nude (2.03)
+10.Try The Way To Move (3.42)
+11.View (What's This Life) (4.34)
+12.Killing Zoe (3.11)
+13.4 Steps Ahead (2.48)
+
+All songs written by THINK ABOUT MUTATION
+Produced by THINK ABOUT MUTATION and Rudiger v.Schluter
+Engineered by Ronald Speckmeier and Lars Steller
+Recorded and mastered at RCM-Studios
+
+Joey - Guitar, Vocals and Sequenzprogramming
+Heavyette - Guitar
+Kay - Live Diums, Drumprogramming and Back Vocals
+Rajko - Bass Guitar, Back Vocals
+Grafe - Keyboards and Programming
+
+(p)(c) 1996 DYNAMICA Records
+
+### "Motorrazor '96" 1996, Industrial
+
+1. Motorrazor '96
+2. Razorhaus Remis (By The Syndicate)
+3. Razorburn Remix (By DJ BENT!)
+4. Motorrazor Digital Hardcore Remix (By Alec Empire)
+5. River
+6. Move 'n House
+
+All songs written by THINK ABOUT MUTATION.
+Produced & Mixed By Rudiger v.Schluter.
+Recorded and mastered at RCM-Studios.
+
+Joey - Guitar, Vocals and Sequenzprogramming
+Heavyette - Guitar
+Kay - Live Diums, Drumprogramming and Back Vocals
+Rajko - Bass Guitar, Back Vocals
+Grafe - Keyboards and Programming
+
+(p)(c) 1996 DYNAMICA Records
+
+### "Reflect It" 1998, Industrial
+
+1. Reflect It (Original Mix)
+2. Reflect It (The Bleachers Mix)
+3. Reflect It (Ego Express Mix)
+4. Bigger 
+
+### "Irregular" 1998, Industrial
+
+1. Irregular (Single Mix)
+2. Irregular (Dom & Roland Mix)
+3. Virus 
+
+### "Virus" 1998, Industrial
+
+1. Virus
+2. Accident
+3. Supernova
+4. Irregular
+5. Discotrash
+6. Bigger
+7. Visions
+8. Car Crashed
+9. Reflect It
+10.Powered States
+11.Flash
+
+### "Two Tribes" 1999, Industrial
+
+1. Two Tribes (4:09)
+2. Angel (3:37)
+3. Breaktime 42 (4:36)
+4. Two Tribes Video (3:55)
+
+### "Highlife" 1999, Industrial
+
+1. Superman
+2. Two Tribes
+3. On the run
+4. Perfect Thing
+5. The Truth
+6. Fight
+7. Teenage Whore
+8. Emily
+9. Angel
+10.Pretty Vacant
+11.Private Dessert
+12.Human Nature
+
 
 ## Отношения с другими группами
 

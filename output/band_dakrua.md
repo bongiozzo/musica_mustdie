@@ -1,8 +1,43 @@
 # Dakrua
 
-Дискография
-"Inner Wastelands" 1999, Gothic
-"Shifting Realities" 2002, Gothic
+Italian band, that plays a powerful kind of gothic metal featuring two singers.
+
+## Дискография
+
+### "Inner Wastelands" 1999, Gothic
+
+1. Under the Veils
+2. Mist
+3. Amor, Vita, Mors
+4. Of Chaos
+5. The Loss
+6. Inner Wastelands
+7. Echoes of... - ...a Silent Scream
+8. To the Sun
+9. A New Morning
+
+Line-up:
+Eva Rondinelli - vocals
+Alessandro Buono - guitar
+William Quattrone - bass and vocals
+Davide Sangiovanni - drums
+Marco Lo Cascio - keyboards
+
+
+### "Shifting Realities" 2002, Gothic
+
+Ephemerae 
+Frozen Sun 
+The Waiting 
+Deceive Me 
+Of Life And Will 
+Divine Masquerade 
+Dawn Over 
+Seas Of Silence 
+Not Mine 
+The Outer Void
+Wasted Words
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,13 @@
 # Trident
 
-Дискография
-"World Destruction" 2009, Death Metal
+
+
+## Дискография
+
+### "World Destruction" 2009, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

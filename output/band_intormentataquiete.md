@@ -1,9 +1,43 @@
 # In Tormentata Quiete
 
-Дискография
-"In Tormentata Quiete" 2005, Alternative
-"Teatroelementale" 2009, Alternative
-"Cromagia" 2014, Alternative
+
+
+## Дискография
+
+### "In Tormentata Quiete" 2005, Alternative
+
+1. La realta	
+2. Zeus - il segreto della Creazione
+3. Phatovarva
+4. Chiaroscuro
+5. Nel regno dell'Evo
+6. L'albero
+7. Rosso sangue
+8. Piccole variazioni
+9. Nell'essere
+
+### "Teatroelementale" 2009, Alternative
+
+1. Discorso sul Teatro Drammatico
+2. L'Alchimista
+3. Monologo	 
+4. La Danza del Fuoco	 
+5. Monologo	 
+6. Il Pianto della Terra	 
+7. Monologo	 
+8. Dell’Uomo e del Vento	 
+9. Monologo	 
+10. Il Canto del Mare	 
+11. Monologo	 
+12. Le Illusioni del Vento	 
+13. Monologo	 
+14. Del Mare alla Luna	 
+15. Epilogo
+
+### "Cromagia" 2014, Alternative
+
+
+
 
 ## Отношения с другими группами
 

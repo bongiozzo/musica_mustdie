@@ -1,7 +1,20 @@
 # Ov Hell
 
-Дискография
-"The Underworld Regime" 2010, Black Metal
+
+
+## Дискография
+
+### "The Underworld Regime" 2010, Black Metal
+
+1. Devil's Harlot 03:28
+2. Post Modern Sadist 04:56
+3. Invoker 04:25
+4. Perpetual Night 03:35
+5. Ghosting 06:15
+6. Acts of Sin 05:19
+7. Krigsatte Faner 03:52
+8. Hill Norge 05:45 
+
 
 ## Отношения с другими группами
 

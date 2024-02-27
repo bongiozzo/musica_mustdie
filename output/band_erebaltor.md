@@ -1,10 +1,51 @@
 # Ereb Altor
 
-Дискография
-"By Honour" 2008, Metal
-"The End" 2010, Metal
-"Gastrike" 2012, Metal
-"Fire Meets Ice" 2013, Metal
+
+
+## Дискография
+
+### "By Honour" 2008, Metal
+
+1. Perennial 04:39  
+2. Awakening 08:07  
+3. By Honour 08:26  
+4. Winter Wonderland 07:21  
+5. Dark Nymph 07:03  
+6. Wizard 10:24  
+7. Ereb Altor 07:21 
+
+### "The End" 2010, Metal
+
+1. The Entering (Myrding Prologue) 04:19
+2. Myrding 07:13 
+3. Our Failure 05:37  
+4. A New But Past Day 06:48  
+5. Balder's Fall (The End Part I) 06:26
+6. Vargavinter (The End Part II) 06:06
+7. The Final War (The End Part III) 11:48 
+
+### "Gastrike" 2012, Metal
+
+The Gathering of Witches
+Dance of Darkness
+Dispellation
+Boatman’s Call
+The Mistress of Wisdom
+I Djupet S? Svart
+Seven
+
+### "Fire Meets Ice" 2013, Metal
+
+1. Fire Meets Ice
+2. The Chosen Ones
+3. Nifelheim
+4. My Ravens
+5. Sacrifice
+6. Helheimsfard
+7. The Deceiver Shall Repent
+8. Post Ragnarok
+9. Our Legacy
+
 
 ## Отношения с другими группами
 

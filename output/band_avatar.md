@@ -1,7 +1,32 @@
 # Avatar
 
-Дискография
-"...Memoriam Draconis" 1996, Black Metal
+
+
+## Дискография
+
+### "...Memoriam Draconis" 1996, Black Metal
+
+1. ...Memoriam Draconis
+2. Mists Of Evil
+3. A Most Excellent Charm
+4. The Eternal Nothingness
+5. Seduced By Necromancy
+6. Emperors Of The Night
+7. Sands Of Sheol
+8. Hymn To The Ancient Ones
+[9].Star Castle
+[10].The Mines Of Moria
+
+[9]-[10] - Hа Cтоpoнe B
+
+Occulta - Vocals, Guitar
+Ancient - Guitars
+Azagdaimon - Percussions
+Hyberia - Bass
+Izarothas - Keys, Midi Programming
+
+(p)c 1996 SHIVER Records
+
 
 ## Отношения с другими группами
 

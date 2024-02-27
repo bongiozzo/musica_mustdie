@@ -1,10 +1,54 @@
 # New Eden
 
-Дискография
-"Through the Make Believe" 1997, Power Metal
-"Obscure Master Plan" 1999, Power Metal
-"Stagnant Progression" 2003, Power Metal
-"Solving for X" 2012, Power Metal
+
+
+## Дискография
+
+### "Through the Make Believe" 1997, Power Metal
+
+1. Through The Make Believe
+2. Nightmare
+3. Captive Soul
+4. Sepuku
+5. Bullet Head
+6. Now That You Have Gone
+7. Unlock The Door
+8. Symptoms Of Time
+9. Piracy
+10. Sunshine
+11. Empty Man
+
+### "Obscure Master Plan" 1999, Power Metal
+
+
+
+### "Stagnant Progression" 2003, Power Metal
+
+1. Threshold of Tolerance
+2. Stagnant Progression
+3. Mortal Realizations
+4. No ill Intent
+5. Emptiness of Black Tomorrow
+6. Contemptuous World
+7. For My Love
+8. Advocate
+9. Pawn for the King
+10. Freezing My Darkside
+
+### "Solving for X" 2012, Power Metal
+
+1.	 Anthem of Hate	03:44	 
+2.	 Flames for Hades	04:18	 
+3.	 Brainless	05:28	 
+4.	 The Not Self	04:36	 
+5.	 Unsolved Aggressions	04:10	 
+6.	 Life not Death	04:53	 
+7.	 Searching the Loss	04:19	 
+8.	 Crawling Erect	03:15	 
+9.	 Infecting the Lie	03:32	 
+10.	 Watcher	04:33	 
+11.	 Three Words	04:35
+
 
 ## Отношения с другими группами
 

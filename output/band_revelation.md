@@ -1,10 +1,59 @@
 # Revelation
 
-Дискография
-"Expulsion from the Paradise" 2001, Death Doom
-"The Forms Of Suffering Flash" 2004, Death Doom
-"Иная Реальность" 2006, Death Doom
-"Осознание" 2011, Death Doom
+
+
+## Дискография
+
+### "Expulsion from the Paradise" 2001, Death Doom
+
+1.	 Intro	01:47	 
+2.	 The Day of Sky Tears	07:45
+3.	 My Room	06:39
+4.	 Celebration of Madness	05:07
+5.	 Forgotten Empire	05:08
+6.	 Voice of the Silence	02:45	 
+7.	 Expulsion from the Paradise	06:06
+8.	 And Death Is Just a Beginning	05:17
+9.	 Listen to Your Heart (Roxette cover)	04:03
+
+### "The Forms Of Suffering Flash" 2004, Death Doom
+
+1.	 Intro	01:16	 
+2.	 Day of the Sky Tears	06:30	 
+3.	 The Angel Within My Heart	05:48	 
+4.	 The Forms of Suffering Flesh	06:47	 
+5.	 A Gates of Purrification	05:17	 
+6.	 A Child of Visions Sunrise	08:54	 
+7.	 Valtze	02:25	 
+8.	 A Ghost	07:02	 
+9.	 Outro	03:08	 
+10.	 Harvester of Sorrow (Metallica cover)	04:55
+11.	 Day of the Sky Tears (Russian)	07:48
+
+### "Иная Реальность" 2006, Death Doom
+
+1.	 Низвергнут
+2.	 Город греха
+3.	 Империя краха
+4.	 Отец. Часть I
+5.	 Отец. Часть II
+6.	 Не улетай
+7.	 Ты уснула страдая
+8.	 Сон
+9.	 The Forms of Suffering Flesh (Russian)	
+
+### "Осознание" 2011, Death Doom
+
+1.	 Дом скорби	07:35
+2.	 Звезда	05:13
+3.	 Беспечность	04:24
+4.	 За забытой чертой	08:55
+5.	 Снег	05:10
+6.	 Золотой час	05:44
+7.	 Будь со мной	06:31
+8.	 Торжество безумства	05:01
+9.	 Клетка (Nautilus Pompilius cover)	04:37
+
 
 ## Отношения с другими группами
 

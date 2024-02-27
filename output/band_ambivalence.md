@@ -1,10 +1,25 @@
 # Ambivalence
 
-Дискография
-"The Splinters" 2004, Techno Death
-"Pornomechanoid" 2006, Techno Death
-"Silicone Magic" 2010, Death Metal
-"Hyena's Breath" 2016, Death Metal
+techno death from Western Ukraine
+
+## Дискография
+
+### "The Splinters" 2004, Techno Death
+
+
+
+### "Pornomechanoid" 2006, Techno Death
+
+
+
+### "Silicone Magic" 2010, Death Metal
+
+
+
+### "Hyena's Breath" 2016, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

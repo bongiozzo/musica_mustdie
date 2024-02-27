@@ -1,18 +1,159 @@
 # Korn
 
-Дискография
-"Korn" 1994, Nu Metal
-"Life Is Peachy" 1996, Nu Metal
-"Follow The Leader" 1998, Nu Metal
-"Issues" 1999, Nu Metal
-"Untouchables" 2002, Nu Metal
-"Take A Look In The Mirror" 2003, Nu Metal
-"See You On The Other Side" 2005, Nu Metal
-"Untitled" 2007, Nu Metal
-"Korn III: Remember Who You Are" 2010, Nu Metal
-"The Path Of Totality" 2011, Nu Metal
-"The Paradigm Shift" 2013, Nu Metal
-"The Serenity of Suffering" 2016, Nu Metal
+Nu metal founders
+
+## Дискография
+
+### "Korn" 1994, Nu Metal
+
+1. Blind
+2. Ball Tongue
+3. Need to
+4. Clown
+5. Divine
+6. Faget
+7. Shoots And Ladders
+8. Predictable
+9. Fake
+10. Lies
+11. Helmet In The Bush
+12. Daddy
+13. Bonus
+
+Jonathan "Hiv" Davis - vocals
+Brian "Head" Welch - guitars
+James "Munky" Shaffer - guitars
+Reginald "Fieldy" Arvizu - bass
+David Silveria - drums
+
+### "Life Is Peachy" 1996, Nu Metal
+
+1.  Twist
+2.  Lost
+3.  Swallow
+4.  Porno Creep
+5.  Good God
+6.  Mr.Rogers
+7.  K@#$%@% !
+8.  No Place To Hide
+9.  Wicked
+10.A.D.I.D.A.S.
+11.Lowrider
+12.Ass Itch
+13.Kill You
+
+Produced & Recorded By Ross Robinson.
+Mixed By Chuck Johnsson, Richard Kaplan & Ross Robinson.
+Engineered By Chuck Johnsson.
+Recorded & Mixed At Indigo Ranch Studios.
+
+Jonathan Davis - Vocals, Bagpipes
+Fieldy - Bass
+Munky - Guitars
+Head - Guitars
+David - Drums
+
+(P)(C) 1996 SONY MUSIC
+
+### "Follow The Leader" 1998, Nu Metal
+
+1. It's On!
+2. Freak On A Leash
+3. Got The Life
+4. Dead Bodies Everywhere
+5. Children Of The KoЯn
+6. B.B.K.
+7. Pretty
+8. All In The Family
+9. Reclaim My Place
+10. Justin
+11. Seed
+12. Cameltosis
+13. My Gift To You
+14. Earache My Eye
+
+Jonathan "Hiv" Davis - vocals
+Brian "Head" Welch - guitars
+James "Munky" Shaffer - guitars
+Reginald "Fieldy" Arvizu - bass
+David Silveria - drums
+
+### "Issues" 1999, Nu Metal
+
+1. Dead
+2. Falling Away From Me
+3. Trash
+4. 4 U
+5. Beg For Me
+6. Make Me Bad
+7. It's Gonna Go Away
+8. Wake Up
+9. Am I Going Crazy
+10. Hey Daddy
+11. Somebody Someone
+12. No Way
+13. Let's Get This Party Started
+14. Wish You Could Be Me
+15. Counting
+16. Dirty
+
+Jonathan "Hiv" Davis - vocals
+Brian "Head" Welch - guitars
+James "Munky" Shaffer - guitars
+Reginald "Fieldy" Arvizu - bass
+David Silveria - drums
+
+### "Untouchables" 2002, Nu Metal
+
+1. Here To Stay
+2. Make Believe 
+3. Blame 
+4. Hollow Life 
+5. Bottled Up 
+6. Thoughtless 
+7. Hating
+8. One More Time 
+9. Alone I Break 
+10. Embrace 
+11. Beat It Upright 
+12. Wake Up Hate 
+13. I'm Hiding 
+14. No One's There
+
+Jonathan "Hiv" Davis - vocals
+Brian "Head" Welch - guitars
+James "Munky" Shaffer - guitars
+Reginald "Fieldy" Arvizu - bass
+David Silveria - drums
+
+### "Take A Look In The Mirror" 2003, Nu Metal
+
+
+
+### "See You On The Other Side" 2005, Nu Metal
+
+
+
+### "Untitled" 2007, Nu Metal
+
+
+
+### "Korn III: Remember Who You Are" 2010, Nu Metal
+
+
+
+### "The Path Of Totality" 2011, Nu Metal
+
+
+
+### "The Paradigm Shift" 2013, Nu Metal
+
+
+
+### "The Serenity of Suffering" 2016, Nu Metal
+
+
+
 
 ## Отношения с другими группами
 

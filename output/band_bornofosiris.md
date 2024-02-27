@@ -1,8 +1,17 @@
 # Born Of Osiris
 
-Дискография
-"The New Reign" 2007, Metalcore
-"A Higher Place" 2009, Metalcore
+
+
+## Дискография
+
+### "The New Reign" 2007, Metalcore
+
+
+
+### "A Higher Place" 2009, Metalcore
+
+
+
 
 ## Отношения с другими группами
 

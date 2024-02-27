@@ -1,27 +1,379 @@
 # Anthrax
 
-Дискография
-"Fistful of Metal" 1983, Speed Metal
-"Armed and Dangerous" 1985, Speed Metal
-"Spreading the Disease" 1985, Thrash
-"Among the Living" 1986, Thrash
-"I'm the Man (single)" 1987, Thrash
-"State of Euphoria" 1988, Thrash
-"Penikufesin (single)" 1989, Thrash
-"Persistence of Time" 1990, Thrash
-"Attack of the Killer Bs" 1991, Thrash
-"Sound of White Noise" 1993, Thrash
-"Stomp 442" 1995, Thrash
-"Volume 8: The Threat Is Real" 1998, Thrash
-"Return Of The Killer A's" 1999, Thrash
-"We've Come for You All" 2003, Thrash
-"Taking the Music Back (single)" 2003, Thrash
-"Music Of Mass Destruction Live" 2004, Thrash
-"The Greater Of Two Evils" 2004, Thrash
-"Alive 2 The Special Edition Dvd" 2005, Thrash
-"Worship Music" 2011, Thrash
-"Evil Twin (single)" 2015, Thrash
-"For All Kings" 2016, Metal
+Legend of USA Thrash
+
+## Дискография
+
+### "Fistful of Metal" 1983, Speed Metal
+
+1. Deathrider
+2. Metal Thrashing Mad
+3. I'm Eighteen
+4. Panic
+5. Subjugator
+6. Soldiers Of Metal
+7. Death From Above
+8. Anthrax
+9. Across The River
+10.Howling Furgies
+
+(p)&(c) 1983 ISLAND Records
+
+### "Armed and Dangerous" 1985, Speed Metal
+
+1. Armed And Dangerous
+2. Raise Hell
+3. God Save The Queen
+4. Metal Thrashing Mad (Live)
+5. Panic   (Live)
+6. Soldiers Of Metal  (Collectors Rare Track)
+7. Howling Furies (Collectors Rare Track)
+
+(p)&(c) 1985 ISLAND Records
+
+### "Spreading the Disease" 1985, Thrash
+
+1. A.I.R.
+2. Lone Justice
+3. Madhouse
+4. S.S.C. / Stand Or Fall
+5. The Enemy
+6. Aftershock
+7. Armed And Dangerous
+8. Medusa
+9. Guns - Ho
+
+ Charlie Benante - Drums
+ Danny Lilker - Lead Guitar
+ Scott Ian  - Rhythm Guitar
+ Joe Belladonna - Vocal
+ Frank Bello - Bass Guitar
+
+(p)&(c) 1985 ISLAND Records
+
+### "Among the Living" 1986, Thrash
+
+1.  Among The Living
+2.  Caught In A Mosh
+3.  I Am The Law
+4.  Efilnikufesin (N.F.L.)
+5.  A Skeleton In The Closet
+6.  Indians
+7.  One World
+8.  A.D.I. / Horror Of It All
+9.  Imitation Of Life
+
+ Charlie Benante - Drums
+ Dan Spitz - Lead Guitar, Acoustic Guitar
+ Scott Ian  - Rhythm Guitar
+ Joe Belladonna - Vocal
+ Frank Bello - Bass Guitar
+
+(P)c 1987 ISLAND Records
+
+### "I'm the Man (single)" 1987, Thrash
+
+1.  I'm The Man З (Censored Radio Version)
+2.  I'm The Man З (Def Uncensored Version)
+3.  Sabbath Bloody Sabbath
+4.  I'm The Man - Live (Extremely Def III Uncensored Version)
+5.  Caught In A Mosh - Live
+6.  I Am The Law - Live
+
+Produced By ANTHRAX And Paul Haminason.
+З Produced By Eddie Kramer & ANTHRAX For Remarkable Productions.
+
+(p)c 1987 ISLAND Records
+
+### "State of Euphoria" 1988, Thrash
+
+1.  Be All End All
+2.  Out Of Sight, Out Of Mind
+3.  Make Me Laugh
+4.  Antisocial
+5.  Who Cares Wins
+6.  Now It's Dark
+7.  Schism
+8.  Misery Loves Company
+9.  13
+10.Finale
+
+ Charlie Benante - Drums
+ Dan Spitz - Lead Guitar
+ Scott Ian - Rhythm Guitar
+ Joe Belladonna - Vocal
+ Frank Bello - Bass Guitar
+
+Produced By ANTHRAX And Mark Dodson
+Engineered By Alex Perialas
+
+(p)+(c) 1988 ISLAND Records
+
+### "Penikufesin (single)" 1989, Thrash
+
+1. Now It's Dark
+2. Antisocial (French Version)
+3. Friggin In The Riggin
+4. Parasite
+5. Sects
+6. Pipeline
+
+ Charlie Benante - Drums
+ Dan Spitz - Lead Guitar
+ Scott Ian - Rhythm Guitar
+ Joe Belladonna - Vocal
+ Frank Bello - Bass Guitar
+
+Produced By ANTHRAX And Mark Dodson
+
+(p)+(c) 1989 ISLAND Records
+
+
+### "Persistence of Time" 1990, Thrash
+
+1. Time
+2. Blood
+3. Keep It In The Family
+4. In My World
+5. Gridlock
+6. Intro To Reality
+7. Belly Of The Beast
+8. Got The Time *
+9. H8 Red
+10.One Man Stands
+11.Discharge
+
+ Charlie Benante - Drums
+ Dan Spitz - Lead Guitar
+ Scott Ian - Rhythm Guitar
+ Joe Belladonna - Vocal
+ Frank Bello - Bass Guitar
+
+   (c) 1990 ISLAND Records Inc.
+ * (c) 1979 POKAZYKA Ltd.
+
+### "Attack of the Killer Bs" 1991, Thrash
+
+1. Milk (Ode to Billy)
+2. Bring The Noise
+3. Keep It In The Family (Live)
+4. Startin' Up A Posse
+5. Protest And Survive
+6. Chromatic Death
+7. I'm The Man '91
+8. Parasite (3:14) 
+9. Pipeline
+10.Sects
+11.Belly Of The Beast (Live)
+12.NFB (Dallabnikufesin)
+
+(P)&(C) 1991 ISLAND Records
+
+### "Sound of White Noise" 1993, Thrash
+
+1. Potters Field
+2. Only
+3. Room For One More
+4. Packaged Rebellion
+5. Hy Pro Glo
+6. Invisible
+7. 1000 Points Of Hate
+8. Black Lodge
+9. C11 H17 N2 O2 S Na
+10.Burst
+11.This Is Not An Exit
+
+ Charlie Benante - Drums
+ Dan Spitz - Lead Guitar
+ Scott Ian - Rhythm Guitar
+ John Bush - Vocal
+ Frank Bello - Bass Guitar
+
+Produced By Dave Jerden & ANTHRAX
+
+(p)+(c) 1993 ELEKTRA Records
+
+### "Stomp 442" 1995, Thrash
+
+1. Random Acts Of  Senseless Violence
+2. Fueled
+3. King Size
+4. Riding Shotgun
+5. Perpetual Motion
+6. In A Zone
+7. Nothing
+8. American Pompeii
+9. Drop The Ball
+10.Tester
+11.Bare
+
+Produced & Mixed By Butcher Brothers & ANTHRAX.
+
+Scott Ian - Guitars,Vocals
+Charlie Benante - Drums,Guitars
+Frank Bello - 4 & 12 String Bass,Vocals
+John Bush - Vocals
+
+(P)&(C) 1995 ELEKTRA Entertainment group
+
+### "Volume 8: The Threat Is Real" 1998, Thrash
+
+
+
+### "Return Of The Killer A's" 1999, Thrash
+
+
+
+### "We've Come for You All" 2003, Thrash
+
+01. Contact
+02. What Doesn't Die
+03. Superhero
+04. Refuse To Be Denied
+05. Safe Home
+06. Any Place but Here
+07. Nobody Knows Anything
+08. Strap It On
+09. Black Dahlia
+10. Cadillac Rock Box
+11. Taking The Music Back
+12. Crash
+13. Think About An End
+14. W.C.F.Y.A.
+15. Safe Home (acoustic)
+16. We're A Happy Family (THE RAMONES cover)
+
+All songs written and arranged by Anthrax
+Produced by Anthrax and Scrap 60 Productions (Rob
+Caggiano, Eddie Wohl и Steve Regina)
+Mixed by Scarp 60 and Charlie Benante
+Cover painting by Alex Ross
+
+### "Taking the Music Back (single)" 2003, Thrash
+
+
+
+### "Music Of Mass Destruction Live" 2004, Thrash
+
+01. What Doesn't Die
+02. Got The Time
+03. Caught In A Mosh
+04. Safe Home
+05. Room For One More
+06. Antisocial
+07. Nobody Knows Anything
+08. Fueled
+09. Inside Out
+10. Refuse To Be Denied
+11. I Am The Law
+12. Only
+
+John Bush - vocal
+Scott Ian - rhythm guitar
+Rob Caggiano - lead guitar
+Frank Bello - bass
+Charlie Benante - drums
+
+Recorded December 5, 2003 at The Metro in Chicago,
+Illinois.
+Bonus footage recorded December 6, 2003 at The
+Machine Shop in Flint, Michigan.
+Produced by Hank Neuberger & Terry Fryer at
+The Studios of Third Wave AIV.
+Mastered by Dan Stout at Colossal Mastering.
+"Captain 'Thrax" character by Steve Kapo.
+Art direction by Charlie Benante and Alex Ross.
+Cover by Alex Ross.
+Cover lettering & digital effects by David Riske.
+Photography by Andy Buchanan.
+Graphic design and commix illustrations by Brent
+H. Thompson.
+
+### "The Greater Of Two Evils" 2004, Thrash
+
+01. Deathrider
+02. Metal Thrashing Mad
+03. Caught In A Mosh
+04. A.I.R.
+05. Among The Living
+06. Keep It In The Family
+07. Indians
+08. Madhouse
+09. Panic
+10. I Am The Law
+11. Belly Of The Beast
+12. N.F.L.
+13. Be All End All
+14. Gung-Ho
+
+### "Alive 2 The Special Edition Dvd" 2005, Thrash
+
+01. Among The Living
+02. Caught In A Mosh
+03. A.I.R.
+04. Madhouse
+05. Efilnikufesin (N.F.L.)
+06. Deathrider
+07. Medusa
+08. In My World
+09. Indians
+10. Time
+11. I`m The Man
+12. Be All End All
+13. I Am The Law
+
+Bonus:
+Lone Justice (Clip)
+Documentary
+State Of Euphoria
+Juliya Interwiew
+Touring Tales
+The Vaccine
+Photo Gallery
+
+### "Worship Music" 2011, Thrash
+
+1. Worship (Intro) 01:41 
+2. Earth on Hell 03:11 
+3. The Devil You Know 04:46 
+4. Fight 'Em Til You Can't 05:48 
+5. I'm Alive 05:37 
+6. Hymn 1 00:38 
+7. In the End 06:46 
+8. The Giant 03:47 
+9. Hymn 2 00:44 
+10. Judas Priest 06:24 
+11. Crawl 05:29 
+12. The Constant 05:01 
+13. Revolution Screams 06:08
+
+
+Scott Ian - Guitars (rhythm), Vocals 
+Charlie Benante - Drums, Percussion 
+Joey Belladonna - Vocals 
+Rob Caggiano - Guitars (lead) 
+Frank Bello - Bass 
+
+
+
+### "Evil Twin (single)" 2015, Thrash
+
+1. Evil Twin  04:39 
+
+### "For All Kings" 2016, Metal
+
+01. You Gotta Believe
+02. Monster at the End
+03. For All Kings
+04. Breathing Lightning
+05. Suzerain
+06. Evil Twin
+07. Blood Eagle Wings
+08. Defend Avenge
+09. All of Them Thieves
+10. This Battle Chose Us
+11. Zero Tolerance
+
 
 ## Отношения с другими группами
 

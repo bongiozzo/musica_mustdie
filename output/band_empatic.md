@@ -1,7 +1,23 @@
 # Empatic
 
-Дискография
-"Gods of Thousand Souls" 2010, Melodic Death Metal
+
+
+## Дискография
+
+### "Gods of Thousand Souls" 2010, Melodic Death Metal
+
+1.	 Green Mile	04:13
+2.	 G.O.T.S.	04:26
+3.	 False Friend	02:47
+4.	 The Game	04:55
+5.	 Tomorrowland	04:19
+6.	 VS	05:48
+7.	 So What?	04:10
+8.	 Dreamer	05:55
+9.	 Fulfilled Dreams	04:34
+10.	 Empatic	03:16
+11.	 Enola Gay (OMD cover)	02:43
+
 
 ## Отношения с другими группами
 

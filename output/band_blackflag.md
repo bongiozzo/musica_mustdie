@@ -1,18 +1,106 @@
 # Black Flag
 
-Дискография
-"Nervous Breakdown EP" 1978, Hardcore
-"Jealous Again EP" 1980, Hardcore
-"Damaged" 1981, Punk
-"Everything Went Black" 1983, Punk
-"My War" 1984, Punk
-"Family Man" 1984, Punk
-"Slip It In" 1984, Punk
-"Loose Nut" 1985, Punk
-"In My Head" 1985, Punk
-"Who's Got the 10,5" 1986, Punk
-"Wasted Again" 1987, Hardcore
-"Annihilate This Week" 1988, Hardcore
+
+
+## Дискография
+
+### "Nervous Breakdown EP" 1978, Hardcore
+
+
+
+### "Jealous Again EP" 1980, Hardcore
+
+
+
+### "Damaged" 1981, Punk
+
+   1.   Rise Above (Ginn) - 2:24 
+   2.   Spray Paint (Dukowski/Ginn) - :31 
+   3.   Six Pack (Ginn) - 2:19 
+   4.   What I See (Dukowski) - 1:54 
+   5.   TV Party (Ginn) - 3:29 
+   6.   Thirsty and Miserable (Cadena/Medea/ROBO) - 2:05 
+   7.   Police Story (Ginn) - 1:30 
+   8.   Gimmie Gimmie Gimmie (Ginn) - 1:46 
+   9.   Depression (Ginn) - 2:27 
+   10.   Room 13 (Ginn/Medea) - 2:03 
+   11.   Damaged II (Ginn) - 3:21 
+   12.   No More (Dukowski) - 2:24 
+   13.   Padded Cell (Dukowski/Ginn) - 1:45 
+   14.   Life of Pain (Ginn) - 2:49 
+   15.   Damaged I (Ginn/Rollins) - 3:48 
+
+
+Black Flag  -  Producer 
+Henry Rollins  -  Vocals 
+Spot  -  Producer, Engineer 
+Greg Ginn  -  Guitar 
+Francis Buckley  -  Engineer 
+Chuck Dukowski  -  Bass 
+Dez Cadena  -  Guitar, Vocals 
+Robo  -  Drums 
+Ed Colver  -  Photography 
+
+
+
+### "Everything Went Black" 1983, Punk
+
+
+
+### "My War" 1984, Punk
+
+
+
+### "Family Man" 1984, Punk
+
+
+
+### "Slip It In" 1984, Punk
+
+
+
+### "Loose Nut" 1985, Punk
+
+
+
+### "In My Head" 1985, Punk
+
+   1.   Paralyzed (Ginn/Rollins) - 2:39 
+   2.   The Crazy Girl (Ginn) - 2:46 
+   3.   Black Love (Ginn) - 2:42 
+   4.   White Hot (Ginn/Rollins) - 4:59 
+   5.   In My Head (Ginn/Rollins) - 4:30 
+   6.   Out of This World (Roessler/Stevenson) - 2:13 
+   7.   I Can See You (Ginn) - 3:22 
+   8.   Drinking and Driving (Ginn/Rollins) - 3:16 
+   9.   Retired at 21 (Ginn) - 4:56 
+   10.   Society's Tease (Ginn) - 6:09 
+   11.   It's All up to You (Ginn) - 5:14 
+   12.   You Let Me Down (Rollins/Stevenson) - 3:40 
+
+
+
+Henry Rollins  -  Vocals, Vocals (bckgr) 
+Greg Ginn  -  Guitar, Producer 
+Michael Boshears  -  Mixing 
+Kira Roessler  -  Bass, Vocals (bckgr) 
+Bill Stevenson  -  Drums, Producer 
+David Tarling  -  Producer 
+Raymond Pettibon  -  Illustrations 
+
+
+### "Who's Got the 10,5" 1986, Punk
+
+
+
+### "Wasted Again" 1987, Hardcore
+
+
+
+### "Annihilate This Week" 1988, Hardcore
+
+
+
 
 ## Отношения с другими группами
 

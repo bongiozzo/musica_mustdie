@@ -1,10 +1,54 @@
 # In tha Umbra
 
-Дискография
-"Descend Supreme Sunset" 1998, Black Metal
-"Midnight in the Garden of Hell" 2000, Black Metal
-"Nigrium Nigrius Nigro" 2005, Black Metal
-"Thus Open Thine Eerie Wings Like an Eagle and Soar the Winds of Chaos" 2008, Black Metal
+
+
+## Дискография
+
+### "Descend Supreme Sunset" 1998, Black Metal
+
+1. As Dusk Weaves The Night
+2. Flowers For A Funeral
+3. The Moon Lay Hidden Beneath A Cloud
+4. Like Ravens 'Neath Nightskies
+5. If Thou Wouldst Shadow Me
+6. Leanan Sidhe
+7. Descend Supreme Sunset
+8. Epilogue - Harvester of Armmageddon
+
+### "Midnight in the Garden of Hell" 2000, Black Metal
+
+1. Fumes She Holdeth
+2. The Spring Breathes Horrors
+3. Crescent
+4. Then Did Bore Old Night	
+5. Shadow, Caressing Shadow
+6. Thus Hath Silver'd Damnation
+7. Midnight In The Garden Of Hell
+
+### "Nigrium Nigrius Nigro" 2005, Black Metal
+
+1. Through Lycanthropie'sTrod Communion
+2. Linger Venom
+3. Grandeur Tenebrae	 
+4. The Horrent Damaskt
+5. Thunderchaos Pentagramma
+6. Grace Dementia
+7. Ov Satyrv's Rotting blithe 
+8. Once Atrocitie Has Hacked Upon Daylight's Throat
+9. Finis Abyssvm
+
+### "Thus Open Thine Eerie Wings Like an Eagle and Soar the Winds of Chaos" 2008, Black Metal
+
+1. Aeonz 
+2. Heonan Epiphainein	 
+3. Apsinthion Thirst	 
+4. Slough Ov Capricorn	 
+5. And Damnation's Rash Bled Fevers	 
+6. A CornucA?pia RA©gia	 
+7. Emerge Affliction	 
+8. The Knell And Thrice The Dawn	 
+9. Ei KrA?nos Titenes
+
 
 ## Отношения с другими группами
 

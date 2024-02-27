@@ -1,10 +1,33 @@
 # Job For A Cowboy
 
-Дискография
-"Doom" 2005, Deathcore
-"Genesis" 2007, Deathcore
-"Ruination" 2009, Deathcore
-"Demonocracy" 2012, Deathcore
+
+
+## Дискография
+
+### "Doom" 2005, Deathcore
+
+
+
+### "Genesis" 2007, Deathcore
+
+
+
+### "Ruination" 2009, Deathcore
+
+
+
+### "Demonocracy" 2012, Deathcore
+
+01. Children Of Deceit
+02. Nourishment Through Bloodshed
+03. Imperium Wolves
+04. Tongueless And Bound
+05. Black Discharge
+06. The Manipulation Stream
+07. The Deity Misconception
+08. Fearmonger
+09. Tarnished Gluttony
+
 
 ## Отношения с другими группами
 

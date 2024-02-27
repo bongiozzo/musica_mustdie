@@ -1,8 +1,33 @@
 # Iskald
 
-Дискография
-"Shades of Misery" 2006, Black Metal
-"Revelations of Reckoning Day" 2008, Black Metal
+
+
+## Дискография
+
+### "Shades of Misery" 2006, Black Metal
+
+1. Hymn of Desolation 00:53  
+2. The Shadowland 03:24 
+3. Eden 04:20 
+4. Lokes Dans 06:39
+5. Dе Gjallarhorn Song 06:04
+6. Pesten 09:16
+7. Shades of Misery 02:07
+8. Warriors of the Northern Twilight 05:31
+9. When Hell Freezes Over 06:35 
+
+### "Revelations of Reckoning Day" 2008, Black Metal
+
+1. Ruin of Mankind 04:19
+2. A Breath of Apocalypse 05:59
+3. Warriors of the Northern Twilight, Part II 09:11 
+4. Endtime 01:54  
+5. The Orphanage 05:11
+6. Det Stilner Til Storm 07:22 
+7. Tartarus 02:23
+8. Journey to Hel 06:46 
+9. Dommedag 04:51 
+
 
 ## Отношения с другими группами
 

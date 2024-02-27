@@ -1,10 +1,125 @@
 # Cryonic Temple
 
-Дискография
-"Chapter I" 2002, Power Metal
-"Blood, Guts & Glory" 2003, Power Metal
-"In Thy Power" 2005, Power Metal
-"Immortal" 2008, Power Metal
+
+
+## Дискография
+
+### "Chapter I" 2002, Power Metal
+
+01. Heavy Metal Never Dies 4:48 
+02. Metal Brothers 4:00 
+03. Warsong 5:25 
+04. Gatekeeper 5:39 
+05. Rivers Of Pain 5:34 
+06. King Of Transilvania 4:19 
+07. Steel Against Steel 5:03 
+08. Mighty Warrior 4:41 
+09. Over And Over 3:32 
+
+
+
+Johan Johansson - Vocals
+Leif Collin - Guitars
+Esa Ahonen - Guitars & Backing Vocolas
+Janne S&ouml;derlund - Synthesizers & Backing Vocals
+Jan J. Cederlund - Bass
+Sebastian Olsson - Drums & Backing Vocals 
+
+
+Recorded at: Studio Underground, Vдsteras, Sweden
+Produced by: Pelle Saether and Cryonic Temple
+Enginered by: Pelle Saether, Lasse Lindйn and "Sudden"
+Mixed by: Pelle Saether 
+Mastered by: Mika Jussila in Finnvox Studios, Helsinki, Finland
+Logo by: JP Fournier
+Artwork by: Diego Ferrarin
+
+
+
+### "Blood, Guts & Glory" 2003, Power Metal
+
+1. Morphine Dreams 01:02  
+2. Mercenaries of Metal - The Quest, Part 1 06:12  
+3. Inquisition - The Quest, Part 2 04:34  
+4. Swords and Diamonds 04:28 
+5. Thunder and Lightning 03:38 
+6. The Story of the Sword 05:36 
+7. Long Live the Warriors 05:03  
+8. Triumph of Steel 05:03 
+9. The Midas Touch (Samurai) - The Quest, Part 3 06:11
+10. Through the Skies 04:32 
+11. Metal No. 1 05:32 
+
+
+### "In Thy Power" 2005, Power Metal
+
+1. The Sleep of the Innocent 01:22 
+2. When Hell Freezes Over 05:40 
+3. In Thy Power 05:36 
+4. Travellers in Time 05:14 
+5. Beast Slayer 05:22
+6. Wolfcry 06:36 
+7. Mr. Gold 04:59  
+8. A Soldiers Tale 05:03  
+9. Shark Attack 04:32
+10. Rapid Fire 04:22  
+11. Eternal Flames of Metal 06:45 
+
+
+Digipack edition extra tracks:
+12. Empire (demo 1999) (8:42)
+13. Redeemer (demo 1999) (3:53)
+14. As I Slowly Die (demo 2000) (8:14)
+
+
+Line-up:
+Vocals: Johan Johansson
+Guitars: Leif Collin
+Guitars: Esa Ahonen
+Bass: Jan J Cederlund
+Drums: Sebastian Olsson
+Keyboards: Janne Soderlund
+
+Produced by Pelle Saether, Esa T. Ahonen and Glen Metal
+All music arranged by Cryonic Temple
+All lyrics written by Glen Metal and Esa T. Ahonen
+besides "Eternal Flames Of Metal" by Glen Metal, Esa T. Ahonen and Jan
+Soderlund
+Recorded and mixed at: Studio Underground, Vasteras, Sweden, November/December
+2004
+Engineered by: Pelle Saether, Esa T. Ahonen; Daniel Backman and Daniel from
+Tallberg
+Additional Engineering on Beast Slayer by Bengt Backe
+
+Mixed by Pelle Saether and Esa T. Ahonen
+Mastered by Christian Schmid at Music Factory, April 2005
+Additional musicians: Patrick Spath backing vocals
+Cover illustration by: Jason Engle
+Logo design by: JP Fournier
+Sleeve design by Thomas Ewerhard
+Photos by: Stina Rapp
+
+All songs published by Limb Music Publishing, Germany
+All songs written and arranged by Cryonic Temple
+Additional lyrical arrangements made by Johansson and Ahonen
+Backing vocals performed by Cryonic Temple and Patrick Spath
+
+
+### "Immortal" 2008, Power Metal
+
+1. Immortal 05:54  
+2. Standing Tall 04:37  
+3. Where Sadness Never Rests 06:02  
+4. Beg Me 04:56  
+5. Freedom Calling 04:50  
+6. Fear Of The Rage 04:20  
+7. Time 05:15  
+8. Fight To Survive 04:28  
+9. Train Of Destruction 05:21  
+10. As I Sleep 03:55  
+11. Departure 02:00 
+
+
 
 ## Отношения с другими группами
 

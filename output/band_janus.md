@@ -1,8 +1,116 @@
 # Janus
 
-Дискография
-"Schlafende Hunde" 2001, Gothic
-"Auferstehung" 2004, Gothic
+
+
+## Дискография
+
+### "Schlafende Hunde" 2001, Gothic
+
+1. der wald der Selbstmorder
+
+01. kommt herunter [prolog] 2.52
+02. Rorschach 5.42
+03. Gescheitert 7.40
+04. Unter dem Eis 8.31
+
+2 das follaus
+
+05. Mein krankes Herz 3.10
+06. Das Fest 7.35
+07. Reptil 6.35
+08. Hotel Eden 4.26
+
+3. He schalen des zorns
+
+09. Verflucht 4.26
+10. Veronica 5.12
+11. Klotz am Bein 8.13
+12. schlafe gut [epilog] 4.32
+
+Tobias Hahn: Klavier
+Dirk Riegert: Gesang
+
+Alle Lieder: Hahn /Riegert
+Alle Texte: Riegert
+Artwork: Schlemmer
+Layout: Irrlicht
+nach emem Konzept von: Riegert/Schlemmer
+
+### "Auferstehung" 2004, Gothic
+
+01. Wenn du vor mir stehst
+02. Paulas Spiel
+03. Ich will seinen Kopf
+04. Scherbengesicht
+05. Die Tage werden enger
+06. Neunundachtzig
+07. Uberleben
+08. Du siehst aus wie immer
+09. Auferstehung
+10. Paulas Traum [Bonus Track]
+
+JANUS sind
+RIG: Gesang
+Tobias Hahn: Programmierung, Klavier
+
+Oliver Lohmann: Gitarre
+Robert Beyer: Bass
+Lothar Weise: Schlagzeug
+Jochen Schibetz: Programmierung, Gitarre
+John Abdel-Sajed: Darbuka, Djembe
+Antje Schulz: Gesang bei „Ich will seinen Kopf“
+Jessica Biedenkapp: Gesang bei „Uberleben“
+Thorsten Michaelis: Erzahler bei „Auferstehung“
+Jurgen Neumann: Erzahler bei „Wenn du vor mir
+stehst“
+
+Das Orchester:
+Katrin Ebert: Violine, Viola
+Tina Kogel: Violine
+Anja Schmitz: Violine
+Claudia Laue: Violine
+Svenja Sauter: Viola
+Torsten Rettinger: Viola
+Martin Hofert: Cello
+Katharina Kranich: Cello
+Natalie Eis: Kontrabass
+Mathias Sohn: Trompete, Flugelhorn
+Jens Rau: Trompete
+Peter Hergert: Flugelhorn
+Carsten Christgau: Posaune
+Carsten Weinau: Posaune
+Lothar Weise: Schlagwerk, Marimbaphon
+Eugene de la Fontaine: Glocken, Triangel
+
+Der Chor:
+Eckhard Stadler: Chorleitung
+Bianca Grobe: Sopran
+Sigrid Schneisel: Sopran
+Daniela Winkler: Sopran
+Susann Graute: Alt
+Anja Russow: Alt
+Jasmin Borst: Alt
+Oliver Graute: Tenor
+Thilo Stern: Tenor
+Wolfgang Hecht: Tenor
+Oliver Hoffmann: Bass
+Gregor Haverkemper: Bass
+Mathias Baitter: Bass
+
+Alle Texte: Riegert
+Alle Lieder: Hahn/Riegert
+au?er Scherbengesicht: Hahn/Riegert/Schibetz
+und Die Tage werden enger: Hahn/Riegert/Hofert.
+Alle Arrangements: Hahn/Riegert
+au?er Chorarrangements bei Auferstehung und Paulas
+Traum: Langer/Sillescu/Riegert
+Artwork: Alessandro Bavari
+Layout: Oliver Graute
+Produktion: Hahn/Riegert 2001-2003 im
+Nachtschichtstudio.
+Zusatzliche Produktion: Schibetz
+Mastering: DMS Marl
+
 
 ## Отношения с другими группами
 

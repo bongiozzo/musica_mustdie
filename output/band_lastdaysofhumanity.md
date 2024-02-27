@@ -1,14 +1,126 @@
 # Last Days Of Humanity
 
-Дискография
-"Vulgar Degenerate (EP)" 1994, Grindcore
-"Pathological Dreams (EP)" 1995, Grindcore
-"Defleshed By Flies (EP)" 1996, Grindcore
-"The Sound Of Rancid Juices Sloshing Around Your Coffin" 1998, Grindcore
-"Hymns Of Indigestible Suppuration" 1999, Grindcore
-"Sputted Up For Better Digestion (EP)" 2000, Grindcore
-"Choked In Anal Mange (EP)" 2001, Grindcore
-"138 Minutes Body Disposal (EP)" 2001, Grindcore
+Death-Grind in Mortician style (some kind of more brutal Impetigo)
+
+## Дискография
+
+### "Vulgar Degenerate (EP)" 1994, Grindcore
+
+1) Septic convulsion
+2) Pro-rectal fermentation
+3) Slithered limbs 
+
+Recorded at the school of music and art in Schijndel on 18/09/94
+and mixed on 03/10/94 by Last Days of Humanity
+
+Line up: Mark - guitar / William - Guitar / Marty - Bass / Glenn - Drums / Hans - Vocals
+
+### "Pathological Dreams (EP)" 1995, Grindcore
+
+1) Intro 
+2) Bloodsplattered Shainsaw Slaughter
+3) Carnage
+4) Pathological Dreams
+5) Slithered limbs
+6) Outro 
+
+All tracks were recorded at "De Nieuwe Pul" in Uden on 01/01/95
+
+Line up: Mark - guitar / William - Guitar / Martie - Bass / Glenn - Drums / Hans - Vocals
+
+### "Defleshed By Flies (EP)" 1996, Grindcore
+
+1) Ulcerated offal 
+2) Carnal trash 
+3) Infected excremental slush 
+4) Defleshed by flies 
+
+(c)&(p) 1996 Morbid Records
+
+### "The Sound Of Rancid Juices Sloshing Around Your Coffin" 1998, Grindcore
+
+01. Born To Murder The World
+02. Necrotic Eruption
+03. Entangled In Septic Gore
+04. Slithered Limbs
+05. Cannibalistic Remains
+06. Hacked Into Red Mush
+07. Putrid Mass Of Burnt Excrement
+08. The Smell Of The Dead
+09. Rancid Cottered Rectum
+10. Bloodsplattered Chainsawslaughter
+11. Submassive Obliteration
+12. Septic Convulsion
+13. The Sound Of Rancid Juices
+14. Liquidized Disgorgement
+15. Putrying Immortality
+16. Carnal Tumor
+17. Consumed In Gore
+18. Drowned In Septic Guts
+19. Cadaver Breath
+20. Excremental Carnage
+21. Malignant Haemorrhage
+22. Mucupurulent Fleshfeast
+23. Pro-Rectal Fermentation
+24. A Reeking Pile Of Septic Brainfluid
+25. Disembowelment Of Scattered Gastric Juices
+26. Festering Fungus Infection
+
+(c)&(p) 1998 Bones Brigade
+
+Recorded and mixed at Digital Music Service BV Studio Schihndel On 21-9-96. 
+Produced by Patric Steenbakkers and Last Days of Humanity 
+Mixed on 30-10-96
+
+### "Hymns Of Indigestible Suppuration" 1999, Grindcore
+
+01 - Maggot Feast On A Swollen Fetus 
+02 - 48th Cut 
+03 - Rectal Bowel Inquisition 
+04 - Intoxicated 
+05 - The Taste Of Festering Vomit 
+06 - Consuming Purulent Sputum 
+07 - From Flesh To Liquid Mess
+08 - Reeking Much Beneath Each Cavity 
+09 - Orgasmic Abortion 
+10 - Catering From The Womb 
+11 - Acute Palatable Hemorrhage 
+12 - Perforated Festered Scrotum 
+13 - Stirred Intestines 
+14 - Wet Remains 
+15 - Purulent Odour In Stoma 
+16 - Defecating Anal Sludge 
+17 - Rancid Tumour Execration 
+18 - Wide Open Wounds On A Disfigured Corpse 
+19 - Hymns Of Indigestible Suppuration 
+20 - Ulcerated Offal 
+21 - Defleshed By Flies 
+22 - Bowed Exhibition 
+23 - Raped In The Back Of A Van
+
+### "Sputted Up For Better Digestion (EP)" 2000, Grindcore
+
+1) The Ecstasy of Swallowing Torso Feces
+2) Effective Impalement of Injected Bodies
+3) Decomposed Sexual Abbaration 
+4) Lugubrious Genital Miscreation
+
+(c)&(p) 2000 Evil Biker Records
+
+### "Choked In Anal Mange (EP)" 2001, Grindcore
+
+1) Fungus Infected Genitals
+2) Erosed Intestinal Purulency
+3) The Bitch Doesn't Need to be Stitched
+4) Choked in Anal Mange
+
+### "138 Minutes Body Disposal (EP)" 2001, Grindcore
+
+1) Excremental Mess of Fecal Putrilage 
+2) 138 Minutes Bodydisposal 
+3) The End of Love (originally by Dead Infection) 
+4) Grume Collection of Bodyparts
+
 
 ## Отношения с другими группами
 

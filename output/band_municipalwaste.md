@@ -1,11 +1,72 @@
 # Municipal Waste
 
-Дискография
-"Waste 'Em All" 2003, Crossover
-"Hazardous Mutation" 2005, Crossover
-"The Art Of Partying" 2007, Crossover
-"Massive Aggressive" 2009, Crossover
-"The Fatal Feast (Waste in Space)" 2012, Crossover
+
+
+## Дискография
+
+### "Waste 'Em All" 2003, Crossover
+
+1. The Executioner (Intro) 01:12  
+2. Sweet Attack 00:58
+3. Mutants of War 01:00
+4. Knife Fight 00:50
+5. Drunk as Shit 00:58
+6. Death Prank 00:11
+7. Substitute Creature 01:01 
+8. Waste 'em All 01:30
+9. Toxic Revolution 01:51
+10. I Want to Kill the President 00:17
+11. Thrash?! Don't Mind If I Do 00:56
+12. Dropped Out 00:46 
+13. Blood Hunger 01:10
+14. Jock Pit 01:15
+15. The Mountain Wizard 01:25
+16. [hidden track] 02:09 
+
+### "Hazardous Mutation" 2005, Crossover
+
+1. Deathripper 02:18
+2. Unleash the Bastards 01:56 
+3. The Thing 01:53
+4. Blood Drive 01:13
+5. Accelerated Vision 01:25 
+6. Guilty of Being Tight 01:52
+7. Set to Destruct 02:01
+8. Hazardous Mutation 01:20 
+9. Nailed Casket 01:36 
+10. Abusement Park 00:59
+11. Black Ice 00:23 
+12. Mind Eraser 02:17
+13. Terror Shark 01:42 
+14. The Thrashin' of the Christ 02:30 
+15. Bangover 02:38 
+
+### "The Art Of Partying" 2007, Crossover
+
+1. Pre-Game 00:39  
+2. The Art of Partying 02:04 
+3. Headbanger Face Rip 01:51
+4. Mental Shock 01:48
+5. A.D.D. (Attention Deficit Destroyer) 02:12
+6. The Inebriator 02:07
+7. Lunch Hall Food Brawl 01:58
+8. Beer Pressure 02:37
+9. Chemically Altered 02:21
+10. Sadistic Magician 02:09
+11. Open Your Mind 01:55
+12. Radioactive Force 02:27
+13. Septic Detonation 01:20
+14. Rigorous Vengeance 02:12
+15. Born to Party 04:20 
+
+### "Massive Aggressive" 2009, Crossover
+
+
+
+### "The Fatal Feast (Waste in Space)" 2012, Crossover
+
+
+
 
 ## Отношения с другими группами
 

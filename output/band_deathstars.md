@@ -1,12 +1,116 @@
 # Deathstars
 
-Дискография
-"Synthetic Generation" 2003, Industrial
-"Termination Bliss" 2006, Industrial
-"Night Electric Night " 2009, Industrial
-"The Greatest Hits On Earth" 2011, Industrial
-"The Perfect Cult" 2014, Gothic
-"All the Devil's Toys (single)" 2014, Gothic
+
+
+## Дискография
+
+### "Synthetic Generation" 2003, Industrial
+
+01. Semi-Automatic
+02. Synthetic Generation
+03. New Dead Nation
+04. Syndrome
+05. Modern Death
+06. Little Angel
+07. The Revolution Exodus
+08. Damn Me
+09. The Rape of Virtue
+10. Genocide
+11. No Light to Shun
+12. White Wedding
+13. Our God the Drugs
+
+Whiplasher - Vocals
+Nightmare Industries - Guitars, Bass, Programming
+Beast X Electric - Guitars
+Bone W Machine - Drums
+
+Produced by Nightmare Industries
+All tracks mixed by Stefan Glaumann at ToyTown
+Studios
+Except track 12 mixed by Carl-Michael Herlofsson
+at Primal Studios
+Except track 13 mixed by Nico Elgstrand at D.P.A.
+Studios
+Recorded by Deathstars and Anders Friden at
+Fredman Studios
+Mastered by Hakan Akesson at Cutting Room
+Published by Universal Music Publishing AB
+Photos by Knotan
+Original design by Berlin
+Additional design by Thomas Ewerhard
+
+### "Termination Bliss" 2006, Industrial
+
+01. Tongues
+02. Blitzkrieg Boom
+03. Motherzone
+04. Cyanide
+05. The Greatest Fight On Earth
+06. Play God
+07. Trinity Fields
+08. The Last Ammunition
+09. Virtue To Vice
+10. Death In Vogue
+11. Termination Bliss
+12. Termination Bliss (Piano Version)
+13. Blitzkrieg (Driven On Remix)
+
+### "Night Electric Night " 2009, Industrial
+
+1. Chertograd (4:45) 
+2. Venus In Arms (4:02) 
+3. Opium (3:43) 
+4. Night Electric Night (4:04) 
+5. Death Dies Hard (3:21) 
+6. The Mark Of The Gun (4:02) 
+7. Via The End (4:07) 
+8. Blood Stains Blondes (3:15) 
+9. Babylon (4:18) 
+10. The Fuel Ignites (4:01) 
+11. Arclight (4:35)
+
+### "The Greatest Hits On Earth" 2011, Industrial
+
+01. Death Is Wasted On The Dead 
+02. Metal 
+03. Death Dies Hard 
+04. Blitzkrieg 
+05. Motherzone 
+06. Synthetic Generation 
+07. Tongues 
+08. Blood Stains Blondes 
+09. Cyanide 
+10. New Dead Nation 
+11. The Mark Of The Gun 
+12. Chertograd 
+13. Semi-Automatic 
+14. Syndrome 
+15. Play God 
+16. Opium
+
+
+### "The Perfect Cult" 2014, Gothic
+
+01. Explode
+02. Fire Galore
+03. All The Devils Toys
+04. Ghost Reviver
+05. The Perfect Cult
+06. Asphalt Wings
+07. Bodies
+08. Temple Of The Insects
+09. Track, Crush & Prevail
+10. Noise Cuts
+11. All The Devil's Toys (8-bit version)
+12. Explode (Remix)
+13. Temple Of The Insects (Remix)
+
+### "All the Devil's Toys (single)" 2014, Gothic
+
+01 All the Devil's Toys 
+02 All the Devil's Toys (8-Bit Version)
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,21 @@
 # Blessmon
 
-Дискография
-"Under The Storm Of Hate" 2007, Black Metal
+
+
+## Дискография
+
+### "Under The Storm Of Hate" 2007, Black Metal
+
+1. Dark Hordes 03:16  
+2. As All Life Dies 02:55  
+3. Odessa 03:51  
+4. My Spirit Cold 01:45  
+5. Under the Storm of Hate 03:48  
+6. Carcass Christ 04:17  
+7. Blood of the Fallen 04:14  
+8. Gardens of Blasphemy 04:03  
+9. Irsgarh 03:47 
+
 
 ## Отношения с другими группами
 

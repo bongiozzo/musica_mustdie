@@ -1,8 +1,36 @@
 # Sleeping Gods
 
-Дискография
-"Above And Beyond" 1997, Death Doom
-"New Sensation" 2000, Doom
+
+
+## Дискография
+
+### "Above And Beyond" 1997, Death Doom
+
+1.  Scene Of Emptiness
+2.  The Die Is Cast
+3.  Blood Is Thicker Than Water
+4.  Vivanes Lamentation
+5.  Through The Timeless
+6.  Extreme Unction
+7.  Sleeping Goddess 
+8.  Threats Of Providence
+
+(P)(C) 1997 SG 51093
+
+### "New Sensation" 2000, Doom
+
+1. H99
+2. Together As One
+3. Sweet Suffering
+4. Meridian
+5. My Favorite
+6. Away
+7. (Interlude)
+8. Where The Flavour Is
+9. Scene Of Emptyness
+10. Down The Earth
+11. A Nine Days Wonder
+
 
 ## Отношения с другими группами
 

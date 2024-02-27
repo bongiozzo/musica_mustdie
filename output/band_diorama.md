@@ -1,8 +1,29 @@
 # Diorama
 
-Дискография
-"Pale" 2000, Synthpop
-"Amaroid" 2005, Synthpop
+(synth-gothic)
+
+## Дискография
+
+### "Pale" 2000, Synthpop
+
+
+
+### "Amaroid" 2005, Synthpop
+
+01. Logic Friends
+02. The Girls
+03. Dear Brother
+04. Helmets Down
+05. Friends We Used To Know
+06. Someone Dies
+07. Random Starlight
+08. Prozac Junkies
+09. Unzerstoert
+10. Champagne For All
+11. Odyssey Into The Vacuum
+12. I Hear The Drums 
+13. Two Boats
+
 
 ## Отношения с другими группами
 

@@ -1,25 +1,213 @@
 # Melotron
 
-Дискография
-"Dein Meister (Single)" 1998, Synthpop
-"M&ouml;rderwerk" 1999, Synthpop
-"Der Blaue Planet (Single)" 1999, Synthpop
-"Kindertraum V1 (Single)" 1999, Synthpop
-"Kindertraum V2 (Single)" 1999, Synthpop
-"DJ-Traum (Promo)" 1999, Synthpop
-"Tanz mit dem Teufel (Single)" 2000, Synthpop
-"Fortschritt" 2000, Synthpop
-"E.P. Sode 3 (EP)" 2000, Synthpop
-"Fortschritt (US)" 2001, Synthpop
-"Br&uuml;der (EP)" 2001, Synthpop
-"Weltfrieden" 2002, Synthpop
-"Gib Mir Alles (Single)" 2002, Synthpop
-"Sternenstaub" 2003, Synthpop
-"Kein Problem (Single)" 2003, Synthpop
-"M&ouml;rderwerk (Re-Release)" 2003, Synthpop
-"Folge Mir Ins Licht (EP)" 2003, Synthpop
-"Cliche" 2005, Synthpop
-"Propaganda" 2007, Synthpop
+
+
+## Дискография
+
+### "Dein Meister (Single)" 1998, Synthpop
+
+1. Dein Meister  (Radio Version) 
+2. Dein Meister  (Lange Version) 
+3. 2 Young 2 Die 
+4. Dein Meister  (Funker Vogt Remix) 
+5. Es wird Zeit 
+6. Dein Meister  (Ravenous Remix)
+
+### "M&ouml;rderwerk" 1999, Synthpop
+
+1. Tr&auml;nen aus Staub 
+2. Der blaue Planet 
+3. Gl&uuml;hendes Spiel 
+4. Dein Meister 
+5. Angst 
+6. Maschinen Aus Stahl 
+7. Kindertraum 
+8. Sehnsucht 
+9. Traumzeit 
+10. Die Maske 
+11. Es ist vorbei 
+12. Im Kreis
+
+### "Der Blaue Planet (Single)" 1999, Synthpop
+
+1. Der blaue Planet  (Radio Version) 
+2. Der blaue Planet  (Lange Version) 
+3. Auf der Suche 
+4. Der blaue Planet  (Antiimperialistischer Schutzmix) 
+5. Neubrandenburg
+
+### "Kindertraum V1 (Single)" 1999, Synthpop
+
+1. Kindertraum  (Single Version) 
+2. Nur ein Licht 
+3. Die Maske  (Fictional Remix) 
+4. Kindertraum  (Maxi)
+
+### "Kindertraum V2 (Single)" 1999, Synthpop
+
+1. Kindertraum 
+2. Kindertraum  (Club Mix) 
+3. Ausser Kraft 
+4. Die Maske  (Funker Vogt Remix) 
+5. Kindertraum  (Cleen Remix)
+
+### "DJ-Traum (Promo)" 1999, Synthpop
+
+1. Kindertraum  (Single Version) 
+2. Kindertraum 
+3. Kindertraum  (Cleen Remix) 
+4. Die Maske  (Funker Vogt Remix) 
+5. Ausser Kraft
+
+### "Tanz mit dem Teufel (Single)" 2000, Synthpop
+
+1. Tanz mit dem Teufel 
+2. Tanz mit dem Teufel  (Klirrfaktor Remix) 
+3. Ich will Dich 
+4. Tanz mit dem Teufel  (666 Beelzebub Remix)
+
+### "Fortschritt" 2000, Synthpop
+
+1. Du bist es nicht wert 
+2. Nur Leben 
+3. Tanz mit dem Teufel 
+4. Schlaflos 
+5. Warten auf Dich 
+6. Gesindel 
+7. Es brennt 
+8. Endstation im Labyrinth 
+9. Halt mich auf 
+10. Ferne Welten
+
+### "E.P. Sode 3 (EP)" 2000, Synthpop
+
+1. Du bist es nicht wert 
+2. Alles von Dir 
+3. Wenn es nichts mehr gibt 
+4. Ich bin wie ich bin 
+5. Ein St&uuml;ck Sicherheit 
+6. Du bist es nicht wert  (Remix) 
+7. Tanz mit dem Teufel  (Video Track)
+
+### "Fortschritt (US)" 2001, Synthpop
+
+1. Du bist es nicht wert 
+2. Nur Leben 
+3. Tanz mit dem Teufel 
+4. Schlaflos 
+5. Warten auf Dich 
+6. Gesindel 
+7. Es brennt 
+8. Endstation im Labyrinth 
+9. Halt mich auf 
+10. Ferne Welten 
+11. Tanz mit dem Teufel  (Klirrfaktor Remix) 
+12. Ich will Dich
+
+### "Br&uuml;der (EP)" 2001, Synthpop
+
+1. Br&uuml;der 
+2. Wohin? 
+3. Idiotentest 
+4. Sie ist … 
+5. Wohin?  (Monoton) 
+6. Weltenkonstrukteur 
+7. Br&uuml;der  (Club-Cola-Mix)
+
+### "Weltfrieden" 2002, Synthpop
+
+1. Welt, Du bist so still 
+2. Gib mir alles 
+3. Wach auf 
+4. Wir sind!!! 
+5. Digital 
+6. Folge mir ins Licht 
+7. Lilienthals Traum 
+8. Br&uuml;der 
+9. Stille 
+10. Reich aus Glas 
+11. Ich tanz die Welt f&uuml;r Dich 
+12. Wohin? 
+13. Gl&uuml;cklich 
+14. Weltschmerz  (Bonus-CD)
+
+### "Gib Mir Alles (Single)" 2002, Synthpop
+
+1. Gib mir alles 
+2. Damals 
+3. Gib mir alles  (Remix) 
+4. Sommer
+
+### "Sternenstaub" 2003, Synthpop
+
+1. Sternenstaub 
+2. Der Anfang 
+3. Der Kosmonaut 
+4. W&uuml;nsch mich nicht zur&uuml;ck 
+5. Erwartungen 
+6. Immer noch 
+7. Kein Morgen 
+8. Kein Problem 
+9. Manchmal 
+10. NGC 1006 
+11. Planetenwind  (* limited edition bonus track)
+12. Mediensturm 
+13. Das Letzte
+
+### "Kein Problem (Single)" 2003, Synthpop
+
+1. Kein Problem 
+2. Kein Problem  (Problemzonen Mix) 
+3. Wir warten 
+4. Manchmal
+
+### "M&ouml;rderwerk (Re-Release)" 2003, Synthpop
+
+1. Tr&auml;nen aus Staub 
+2. Der blaue Planet 
+3. Dein Meister 
+4. Gl&uuml;hendes Spiel 
+5. Angst 
+6. Maschinen Aus Stahl 
+7. Kindertraum 
+8. Sehnsucht 
+9. Traumzeit 
+10. Die Maske 
+11. Es ist vorbei 
+12. Im Kreis 
+13. 2 Young 2 Die 
+14. Nur ein Licht 
+15. Ausser Kraft
+
+### "Folge Mir Ins Licht (EP)" 2003, Synthpop
+
+1. Folge mir ins Licht  (Radio Version) 
+2. Folge mir ins Licht  (Verdienter Mix des Volkes) 
+3. Du 
+4. Tabak 
+5. Mir wird kalt, wenn ich an Dich denke 
+6. Viel zu fr&uuml;h
+
+### "Cliche" 2005, Synthpop
+
+01. Marlene
+02. Halt Mich Fest
+03. Frei Wie Das Meer
+04. Menschenfresser
+05. Stirb Fuer Mich
+06. Alles Gesagt
+07. Wenn Wir Wollten
+08. Lebenslauf
+09. Einfach So
+10. Propaganda
+11. Griechisch/Roemisch
+12. Glaeserne Zeiten
+13. Sandstroem
+
+### "Propaganda" 2007, Synthpop
+
+
+
 
 ## Отношения с другими группами
 

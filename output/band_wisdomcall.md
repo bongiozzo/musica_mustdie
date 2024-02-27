@@ -1,7 +1,37 @@
 # Wisdom Call
 
-Дискография
-"Wisdom Call" 2001, Heavy Metal
+
+
+## Дискография
+
+### "Wisdom Call" 2001, Heavy Metal
+
+Power from the Sky
+The lost Generation
+I believe
+Never Satisfied
+Wings Of Tomorrow
+through Fire
+one Way out
+hold on to the Truth
+15 Years
+Time
+
+
+
+The Line-Up for Wisdom Call is: 
+
+Christian Liljegren :vocals - (Narnia & ex. Modest Attraction )  
+Stefan Olsson :guitars & backing vocals - (BIG & Bishop Garden)
+Fredrik Еberg :guitars & backing vocals  
+Andreas Olsson: bassguitar & backing vocals - (Stormwind)  
+Per Hallman: keyboards & backing vocals - (Ex. Stormwind)  
+Andreas Johansson: drums- (Narnia) 
+
+The album is produced by Wisdom Call except 2 tracks produced by Mick Nordstrцm ( Modest Attraction ). 
+
+
+
 
 ## Отношения с другими группами
 

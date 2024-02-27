@@ -1,18 +1,254 @@
 # Immortal
 
-Дискография
-"The Northern Upins Death (demo)" 1990, Black Metal
-"Immortal 7"" 1991, Black Metal
-"Suffocate (demo)" 1991, Black Metal
-"Diabolical Fullmoon Mysticism" 1992, Black Metal
-"Pure Holocaust" 1993, Black Metal
-"Battles in the North" 1995, Black Metal
-"Blizzard Beasts" 1997, Black Metal
-"At the Heart of Winter" 1999, Black Metal
-"Damned in Black" 2000, Black Metal
-"Sons of Northern Darkness" 2002, Black Metal
-"All Shall Fall" 2009, Black Metal
-"The Seventh Date Of Blashyrkh [DVD]" 2010, Black Metal
+A Great Norway Black Metal
+
+## Дискография
+
+### "The Northern Upins Death (demo)" 1990, Black Metal
+
+1. Suffocate the Masses
+2. Enslaved in Rot
+3. Left on the Stake
+4. Outro
+
+### "Immortal 7"" 1991, Black Metal
+
+SIDE 1: 
+1. Diabolical Full Moon Mysticism (intro) 
+2. Unholy Forces of Evil 
+
+SIDE 2: 
+3. The Cold Winds of Funeral Frost 
+
+
+Abbath Doom Occulta - Bass/Vocals 
+Demonaz Doom Occulta - Guitars 
+Armagedda - Drums 
+
+Recorded at Sony PLM 2500. 
+Engineered by Pytten and Immortal. 
+
+Format: LP 7" 
+
+This single was re-released in 1996 on the "Battles in the North" Limited Edition CD. "The Cold Winds of Funeral Frost" was later reworked as "Cold Winds of Funeral Dust", and can be found on the "Diabolical Fullmoon Mysticism" album, as well as "Unholy Forces of Evil".
+
+### "Suffocate (demo)" 1991, Black Metal
+
+1. Suffocate the Masses
+2. Enslaved in Rot
+3. Left on the Stake
+4. Outro
+
+### "Diabolical Fullmoon Mysticism" 1992, Black Metal
+
+1. Intro
+2. The Call of the Wintermoon
+3. Unholy Forces of Evil
+4. Cryptic Winterstorms
+5. Cold Winds of Funeral Dust
+6. Blacker Than Darkness
+7. A Perfect Vision of the Rising Northland
+
+
+Abbath Doom Occulta - Bass/Vocals
+Demonaz Doom Occulta - Guitars
+Armagedda - Drums/Percussion
+
+Recorded at Grieghallen Studios in April 92.
+Engineered by Eirik Hundvin.
+Produced by Immortal and Eirik Hundvin.
+Logo and front cover by J.W.H.
+
+Format: CD/LP/PICLP
+Re-released in 1998 as a limited Picture Disc (300 copies).
+
+### "Pure Holocaust" 1993, Black Metal
+
+1. Unsilent Storms in the North Abyss
+2. A Sign for the Norse Hordes to Ride
+3. The Sun No Longer Rises
+4. Frozen by Icewinds
+5. Storming Through Red Clouds and Holocaust Winds
+6. Eternal Years on the Path to the Cemetary Gates
+7. As the Eternity Opens
+8. Pure Holocaust
+
+
+Cover Line-Up:
+Abbath Doom Occulta - Bass/Vocals
+Demonaz Doom Occulta - Guitars
+Erik - Drums
+
+Recording Line-Up:
+Abbath D. O. - Bass/Vocals/Drums
+Demonaz Doom Occulta - Guitars
+
+Recorded at Grieghallen Studios in Sept. 1993.
+Produced by Immortal and Eirik "Pytten" Hundvin.
+
+Format: CD/LP/PICLP
+Re-released in 1998 as a limited Picture Disc (300 copies).
+
+### "Battles in the North" 1995, Black Metal
+
+1. Battles in the North
+2. Grim and Frostbitten Kingdoms
+3. Descent Into Eminent Silence
+4. Throned by Blackstorms
+5. Moonrise Fields of Sorrow
+6. Cursed Realms of the Winterdemons
+7. At the Stormy Gates of Mist
+8. Through the Halls of Eternity
+9. Circling Above in time Before Time
+10. Blashyrkh (Mighty Ravendark)
+11. Diabolical Fullmoon Mysticism *
+12. Unholy Forces of Evil *
+13. The Cold Winds of Funeral Frost *
+
+* - available on the Limited Edition CD
+
+
+Abbath - Bass/Vocals/Drums
+Demonaz - Guitars
+
+Recorded at Grieghallen Studios in Sept. 1994.
+Exclusively "Battled" by Abbath and Demonaz.
+Engineered by Eirik "Pytten" Hundvin.
+
+Format: CD/DIGI/LCD/LP/PICLP
+
+Total Running Time: 35:18 min (LE: 44:09)
+
+The Limited CD Edition (3000 copies) from 1996 contains three bonus tracks, taken from the first Immortal 7".
+
+* The tracklist on the original CD is wrong, the correct one is shown above *
+
+### "Blizzard Beasts" 1997, Black Metal
+
+1. Intro
+2. Blizzard Beasts
+3. Nebular Ravens Winter
+4. Suns That Sank Below
+5. Battlefields
+6. Mountains of Might
+7. Noctambulant
+8. Winter of the Ages
+9. Frostdemonstorm
+
+
+Abbath - Bass/Vocals
+Demonaz - Guitars
+Horgh - Drums
+
+Recorded at Sigma Studios Sep-Nov. 1996.
+Produced and mixed by Immortal and Henrikke Helland.
+Album cover photo by Ib Jensen.
+Lyrical assistance: Simon Dancaster.
+
+Released: Feb. 1997
+Format: CD/LP/PICLP
+
+First 1000 copies were available with a special jewel-case with the Immortal logo etched on front.
+
+### "At the Heart of Winter" 1999, Black Metal
+
+1. Withstand the Fall of Time
+2. Solarfall
+3. Tragedies Blows at Horizon
+4. Where Dark and Light Don't Differ
+5. At the Heart of Winter
+6. Years of Silent Sorrow
+
+
+Abbath - Guitars/Bass/Vocals/Synthesizers
+Horgh - Drums
+
+Recorded at Abyss Studios in Nov. 1998.
+Produced, mixed and engineered by Peter T&auml;gtgren.
+Co-mixed by Immortal.
+
+Released: March 15 1999
+Format: CD/LCD/LP/PICLP
+
+The L.E. CD cover and the Promo can be seen to the right.
+
+### "Damned in Black" 2000, Black Metal
+
+1. Triumph
+2. Wrath from Above
+3. Against the Tide (In the Arctic World)
+4. My Dimension
+5. The Darkness That Embrace Me
+6. In Our Mystic Visions Blest
+7. Damned in Black
+
+
+Abbath - Guitars/Vocals
+Horgh - Drums
+Iscariah - Bass
+
+Recorded at Abyss Studios in Oct. 1999 & Feb. 2000.
+Produced by Peter Tagtgren, Abbath and Horgh.
+Mixed by Peter Tagtgren.
+
+Released: April 10th 2000
+Format: CD/DIGI/LCD/LP/PICLP
+The Limited Edition CD was released in 15.000 copies.
+
+### "Sons of Northern Darkness" 2002, Black Metal
+
+01 - One by one
+02 - Sons of northern darkness
+03 - Tyrants
+04 - Demonium
+05 - Within the dark mind
+06 - In my kingdom cold
+07 - Antarctica
+08 - Beyond the north waves
+
+
+### "All Shall Fall" 2009, Black Metal
+
+1. All Shall Fall 05:58  
+2. The Rise of Darkness 05:47  
+3. Hordes of War 04:32  
+4. Norden on Fire 06:15  
+5. Arctic Swarm 04:01  
+6. Mount North 05:07  
+7. Unearthly Kingdom 08:30 
+
+
+
+Line-up:
+
+Abbath - Vocals, Guitars
+Apollyon - Bass
+Horgh - Drums
+
+Release dates:
+Europe - September 25
+USA - October 6
+
+All lyrics by Demonaz.
+
+Recorded in Grieghallen and Abyss studios, Sweden, in April 2009.
+
+
+### "The Seventh Date Of Blashyrkh [DVD]" 2010, Black Metal
+
+01. Intro
+02. The Sun No Longer Rises (from "Pure Holocaust")
+03. Withstand The Fall Of Time (from "At The Heart Of Winter")
+04. Sons Of Northern Darkness (from "Sons Of Northern Darkness")
+05. Tyrants (from "Sons Of Northern Darkness")
+06. One By One (from "Sons Of Northern Darkness")
+07. Wrath From Above (from "Damned In Black")
+08. Unholy Forces Of Evil (from "Diabolical Fullmoon Mysticism")
+09. Unsilent Storms In The North Abyss (from "Pure Holocaust")
+10. At The Heart Of Winter (from "At The Heart Of Winter")
+11. Battles In The North (from "Battles In The North")
+12. Blashyrk (Mighty Ravendark) (from "Battles In The North")
+
 
 ## Отношения с другими группами
 

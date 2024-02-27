@@ -1,8 +1,41 @@
 # Solar Dawn
 
-Дискография
-"Frost-Work" 2001, Death Metal
-"Equinoctium" 2002, Melodic Death Metal
+
+
+## Дискография
+
+### "Frost-Work" 2001, Death Metal
+
+01. Artistic Blasphemy
+02. Punished By Silence
+03. Arisen Composure
+
+### "Equinoctium" 2002, Melodic Death Metal
+
+01. Deicidal Beliefs
+02. Punished By Silence
+03. Spellbinder
+04. Deep In Mourning
+05. Artistic Blasphemy
+06. Vulturous Need
+07. Broken-winged
+08. Autumns
+
+Anders Edlund - guitars
+Christian Alvestam - bass, vocals
+Andreas Mansson - guitars
+Henrik Schonstrom - drums
+
+Jocke Peterson plays drums on this recording.
+Disharmonic solo outburst on "Vultures Need" by
+Peter Tagtgren. Recorded and mixed at studio
+Abyss, Parbly, Sweden, 2001. Produced and mixed by
+Tommy Tagtgren in co-operation with Solar Dawn.
+Executive producers: Michael H. Andersen & Bjarke
+Ahlstrand. Mastered by Tue Madsen at Myretuen,
+Denmark. Front cover artwork by Reload Design.
+Additional visualisation by Bjarke Ahlstrand.
+
 
 ## Отношения с другими группами
 

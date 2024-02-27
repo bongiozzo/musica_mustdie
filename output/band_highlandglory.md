@@ -1,8 +1,61 @@
 # Highland Glory
 
-Дискография
-"From The Cradle To The Brave" 2003, Power Metal
-"Forever Endeavour" 2005, Power Metal
+
+
+## Дискография
+
+### "From The Cradle To The Brave" 2003, Power Metal
+
+1. One Last Chance
+2. Beyond The Pharao's Curse
+3. A Warrior's Path
+4. This Promise I Swear
+5. The Land Of Forgotten Dreams (Part 1)
+6. The Land Of Forgotten Dreams (Part 2)
+7. Wear Your Gun To Neverland
+8. Will We Be Again?
+9. From The Cradle To The Brave
+
+All songs written by HIGHLAND GLORY
+Produced by HIGHLAND GLORY and Marius Olaussen
+Engineered and mixed by Borge Finstad
+Recorded and mixed at Toproom Studio
+
+Jack-Roger Olsen - Guitars, Backing Vocals
+Morten Faerovig - Drums
+Jan Thore Grefstad - Vocals
+Lars Andre Larsen - Keyboards, Guitars
+Knut Egil Toftum - Bass
+
+Daniel Heiman and Fredrik Olsson (LOST HORIZON) - Backing Vocals
+
+
+### "Forever Endeavour" 2005, Power Metal
+
+1. Spirit Of Salvation; 
+2. Break The Silence; 
+3. Edge Of Time; 
+4. Mindgame Masquerade; 
+5. The Sacrifice; 
+6. Surreality; 
+7. Forever Endeavour; 
+8. Real Life; 
+9. Somewhere; 
+10. Demon Of Damnation; 
+11. Wild Child *; 
+12. Love Gun **; 
+13. The Trooper ***
+
+All songs written by HIGHLAND GLORY
+except * written by W.A.S.P.
+** written by KISS
+*** written by IRON MAIDEN
+Produced by HIGHLAND GLORY and Hugo Alvarstein
+Engineered by HIGHLAND GLORY
+Recorded and mixed at Panser Studio
+
+Female Vocals by Adriana
+
 
 ## Отношения с другими группами
 

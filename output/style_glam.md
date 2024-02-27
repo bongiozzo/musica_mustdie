@@ -22,15 +22,20 @@
 Стиль: Glam
 Год: 1972
 
+Группа: Mott the Hoople
+Альбом: "Mott"
+Стиль: Glam
+Год: 1973
+
 Группа: Sweet
 Альбом: "Sweet"
 Стиль: Glam
 Год: 1973
 
 Группа: Mott the Hoople
-Альбом: "Mott"
+Альбом: "Mott the Hoople Live"
 Стиль: Glam
-Год: 1973
+Год: 1974
 
 Группа: Mott the Hoople
 Альбом: "The Hoople"
@@ -48,17 +53,12 @@
 Год: 1974
 
 Группа: Mott the Hoople
-Альбом: "Mott the Hoople Live"
-Стиль: Glam
-Год: 1974
-
-Группа: Sweet
-Альбом: "Strung Up"
+Альбом: "Drive On"
 Стиль: Glam
 Год: 1975
 
-Группа: Mott the Hoople
-Альбом: "Drive On"
+Группа: Sweet
+Альбом: "Strung Up"
 Стиль: Glam
 Год: 1975
 
@@ -82,13 +82,13 @@
 Стиль: Glam
 Год: 1982
 
-Группа: Poison
-Альбом: "Look But You Can't Touch"
+Группа: Motley Crue
+Альбом: "Shout at the Devil"
 Стиль: Glam
 Год: 1983
 
-Группа: Motley Crue
-Альбом: "Shout at the Devil"
+Группа: Poison
+Альбом: "Look But You Can't Touch"
 Стиль: Glam
 Год: 1983
 
@@ -102,18 +102,18 @@
 Стиль: Glam
 Год: 1985
 
-Группа: Motley Crue
-Альбом: "Theatre of Pain"
-Стиль: Glam
-Год: 1985
-
 Группа: Lizzy Borden
 Альбом: "The Murderess Metal Road Show"
 Стиль: Glam
 Год: 1985
 
-Группа: Poison
-Альбом: "Look What the Cat Dragged In"
+Группа: Motley Crue
+Альбом: "Theatre of Pain"
+Стиль: Glam
+Год: 1985
+
+Группа: Cinderella
+Альбом: "Night Songs"
 Стиль: Glam
 Год: 1986
 
@@ -122,23 +122,13 @@
 Стиль: Glam
 Год: 1986
 
-Группа: Cinderella
-Альбом: "Night Songs"
+Группа: Poison
+Альбом: "Look What the Cat Dragged In"
 Стиль: Glam
 Год: 1986
 
 Группа: Faster Pussycat
 Альбом: "Faster Pussycat"
-Стиль: Glam
-Год: 1987
-
-Группа: Lizzy Borden
-Альбом: "Terror Rising"
-Стиль: Glam
-Год: 1987
-
-Группа: Motley Crue
-Альбом: "Girls, Girls, Girls"
 Стиль: Glam
 Год: 1987
 
@@ -148,22 +138,27 @@
 Год: 1987
 
 Группа: Lizzy Borden
+Альбом: "Terror Rising"
+Стиль: Glam
+Год: 1987
+
+Группа: Lizzy Borden
 Альбом: "Visual Lies"
 Стиль: Glam
 Год: 1987
 
-Группа: Cinderella
-Альбом: "Long Cold Winter"
+Группа: Motley Crue
+Альбом: "Girls, Girls, Girls"
 Стиль: Glam
-Год: 1988
-
-Группа: L.A. Guns
-Альбом: "Sex Action (single)"
-Стиль: Glam
-Год: 1988
+Год: 1987
 
 Группа: Britny Fox
 Альбом: "Britny Fox"
+Стиль: Glam
+Год: 1988
+
+Группа: Cinderella
+Альбом: "Long Cold Winter"
 Стиль: Glam
 Год: 1988
 
@@ -172,28 +167,23 @@
 Стиль: Glam
 Год: 1988
 
+Группа: L.A. Guns
+Альбом: "Sex Action (single)"
+Стиль: Glam
+Год: 1988
+
 Группа: Poison
 Альбом: "Open Up and Say...Ahh!"
 Стиль: Glam
 Год: 1988
 
-Группа: Skid Row
-Альбом: "Skid Row"
+Группа: Britny Fox
+Альбом: "Boys In Heat"
 Стиль: Glam
 Год: 1989
 
-Группа: Motley Crue
-Альбом: "Dr. Feelgood"
-Стиль: Glam
-Год: 1989
-
-Группа: Lizzy Borden
-Альбом: "Master Of Disguise"
-Стиль: Glam
-Год: 1989
-
-Группа: L.A. Guns
-Альбом: "Malaria (single)"
+Группа: Faster Pussycat
+Альбом: "Wake Me When It's Over"
 Стиль: Glam
 Год: 1989
 
@@ -207,18 +197,8 @@
 Стиль: Glam
 Год: 1989
 
-Группа: Faster Pussycat
-Альбом: "Wake Me When It's Over"
-Стиль: Glam
-Год: 1989
-
 Группа: L.A. Guns
-Альбом: "Rip and Tear (single)"
-Стиль: Glam
-Год: 1989
-
-Группа: Britny Fox
-Альбом: "Boys In Heat"
+Альбом: "Malaria (single)"
 Стиль: Glam
 Год: 1989
 
@@ -228,17 +208,27 @@
 Год: 1989
 
 Группа: L.A. Guns
-Альбом: "The Ballad of Jayne (single)"
+Альбом: "Rip and Tear (single)"
 Стиль: Glam
-Год: 1990
+Год: 1989
 
-Группа: Firehouse
-Альбом: "Firehouse"
+Группа: Lizzy Borden
+Альбом: "Master Of Disguise"
 Стиль: Glam
-Год: 1990
+Год: 1989
 
-Группа: Poison
-Альбом: "Flesh & Blood"
+Группа: Motley Crue
+Альбом: "Dr. Feelgood"
+Стиль: Glam
+Год: 1989
+
+Группа: Skid Row
+Альбом: "Skid Row"
+Стиль: Glam
+Год: 1989
+
+Группа: Cinderella
+Альбом: "Heartbreak Station"
 Стиль: Glam
 Год: 1990
 
@@ -247,28 +237,48 @@
 Стиль: Glam
 Год: 1990
 
+Группа: Firehouse
+Альбом: "Firehouse"
+Стиль: Glam
+Год: 1990
+
 Группа: L.A. Guns
 Альбом: "I Wanna Be Your Man [EP]"
 Стиль: Glam
 Год: 1990
 
-Группа: Cinderella
-Альбом: "Heartbreak Station"
+Группа: L.A. Guns
+Альбом: "The Ballad of Jayne (single)"
 Стиль: Glam
 Год: 1990
+
+Группа: Poison
+Альбом: "Flesh & Blood"
+Стиль: Glam
+Год: 1990
+
+Группа: Cinderella
+Альбом: "Live Train To Heartbreak Station"
+Стиль: Glam
+Год: 1991
+
+Группа: L.A. Guns
+Альбом: "Holiday Foreplay (promo only) [EP]"
+Стиль: Glam
+Год: 1991
 
 Группа: L.A. Guns
 Альбом: "Hollywood Vampires"
 Стиль: Glam
 Год: 1991
 
-Группа: Skid Row
-Альбом: "Slaves To The Grind"
+Группа: L.A. Guns
+Альбом: "It's Over Now (single)"
 Стиль: Glam
 Год: 1991
 
-Группа: Cinderella
-Альбом: "Live Train To Heartbreak Station"
+Группа: L.A. Guns
+Альбом: "Kiss My Love Goodbye (single)"
 Стиль: Glam
 Год: 1991
 
@@ -282,33 +292,28 @@
 Стиль: Glam
 Год: 1991
 
-Группа: L.A. Guns
-Альбом: "Kiss My Love Goodbye (single)"
+Группа: Skid Row
+Альбом: "Slaves To The Grind"
 Стиль: Glam
 Год: 1991
-
-Группа: L.A. Guns
-Альбом: "It's Over Now (single)"
-Стиль: Glam
-Год: 1991
-
-Группа: L.A. Guns
-Альбом: "Holiday Foreplay (promo only) [EP]"
-Стиль: Glam
-Год: 1991
-
-Группа: Firehouse
-Альбом: "Hold You Fire"
-Стиль: Glam
-Год: 1992
 
 Группа: Faster Pussycat
 Альбом: "Belted, Buckled And Booted (EP)"
 Стиль: Glam
 Год: 1992
 
+Группа: Faster Pussycat
+Альбом: "Whipped!"
+Стиль: Glam
+Год: 1992
+
+Группа: Firehouse
+Альбом: "Hold You Fire"
+Стиль: Glam
+Год: 1992
+
 Группа: L.A. Guns
-Альбом: "Over the Edge (single)"
+Альбом: "Cuts [EP]"
 Стиль: Glam
 Год: 1992
 
@@ -318,7 +323,7 @@
 Год: 1992
 
 Группа: L.A. Guns
-Альбом: "Cuts [EP]"
+Альбом: "Over the Edge (single)"
 Стиль: Glam
 Год: 1992
 
@@ -327,20 +332,20 @@
 Стиль: Glam
 Год: 1992
 
-Группа: Faster Pussycat
-Альбом: "Whipped!"
+Группа: Cinderella
+Альбом: "Still Climbing"
 Стиль: Glam
-Год: 1992
+Год: 1994
 
 Группа: The 69 Eyes
 Альбом: "Motor City Resurrection"
 Стиль: Glam
 Год: 1994
 
-Группа: Cinderella
-Альбом: "Still Climbing"
+Группа: Firehouse
+Альбом: "3"
 Стиль: Glam
-Год: 1994
+Год: 1995
 
 Группа: Firehouse
 Альбом: "Good Acoustics"
@@ -352,28 +357,23 @@
 Стиль: Glam
 Год: 1995
 
-Группа: Firehouse
-Альбом: "3"
-Стиль: Glam
-Год: 1995
-
 Группа: Poison
 Альбом: "Poison's Greatests Hits: 1986-1996 [compilation]"
 Стиль: Glam
 Год: 1996
-
-Группа: The 69 Eyes
-Альбом: "Wrap Your Troubles In Dreams"
-Стиль: Glam
-Год: 1997
 
 Группа: Cinderella
 Альбом: "Once Upon A..."
 Стиль: Glam
 Год: 1997
 
-Группа: Motley Crue
-Альбом: "Greatest hits"
+Группа: The 69 Eyes
+Альбом: "Wrap Your Troubles In Dreams"
+Стиль: Glam
+Год: 1997
+
+Группа: Firehouse
+Альбом: "Category 5"
 Стиль: Glam
 Год: 1998
 
@@ -382,10 +382,15 @@
 Стиль: Glam
 Год: 1998
 
-Группа: Firehouse
-Альбом: "Category 5"
+Группа: Motley Crue
+Альбом: "Greatest hits"
 Стиль: Glam
 Год: 1998
+
+Группа: L.A. Guns
+Альбом: "Greatest Hits & Black Beauties"
+Стиль: Glam
+Год: 1999
 
 Группа: L.A. Guns
 Альбом: "Shrinking Violet"
@@ -397,13 +402,18 @@
 Стиль: Glam
 Год: 1999
 
-Группа: L.A. Guns
-Альбом: "Greatest Hits & Black Beauties"
-Стиль: Glam
-Год: 1999
-
 Группа: Firehouse
 Альбом: "O2"
+Стиль: Glam
+Год: 2000
+
+Группа: Hardcore Superstar
+Альбом: "Bad Sneakers And A Pina Colada"
+Стиль: Glam
+Год: 2000
+
+Группа: L.A. Guns
+Альбом: "Cocked & Re-Loaded"
 Стиль: Glam
 Год: 2000
 
@@ -419,16 +429,6 @@
 
 Группа: Lizzy Borden
 Альбом: "Deal With The Devil"
-Стиль: Glam
-Год: 2000
-
-Группа: L.A. Guns
-Альбом: "Cocked & Re-Loaded"
-Стиль: Glam
-Год: 2000
-
-Группа: Hardcore Superstar
-Альбом: "Bad Sneakers And A Pina Colada"
 Стиль: Glam
 Год: 2000
 
@@ -457,13 +457,8 @@
 Стиль: Glam
 Год: 2002
 
-Группа: Motley Crue
-Альбом: "20th Century Masters: Millennium Collection"
-Стиль: Glam
-Год: 2003
-
-Группа: L.A. Guns
-Альбом: "Golden Bullets"
+Группа: Faster Pussycat
+Альбом: "Greatest Hits (Compilation)"
 Стиль: Glam
 Год: 2003
 
@@ -477,13 +472,13 @@
 Стиль: Glam
 Год: 2003
 
-Группа: Negative
-Альбом: "War Of Love"
+Группа: L.A. Guns
+Альбом: "Golden Bullets"
 Стиль: Glam
 Год: 2003
 
-Группа: Faster Pussycat
-Альбом: "Greatest Hits (Compilation)"
+Группа: Motley Crue
+Альбом: "20th Century Masters: Millennium Collection"
 Стиль: Glam
 Год: 2003
 
@@ -492,6 +487,16 @@
 Стиль: Glam
 Год: 2003
 
+Группа: Negative
+Альбом: "War Of Love"
+Стиль: Glam
+Год: 2003
+
+Группа: Brides Of Destruction
+Альбом: "Here Comes The Brides"
+Стиль: Glam
+Год: 2004
+
 Группа: Flash
 Альбом: "Pretty Stranger (demo)"
 Стиль: Glam
@@ -499,11 +504,6 @@
 
 Группа: Kevin Dubrow
 Альбом: "In For The Kill"
-Стиль: Glam
-Год: 2004
-
-Группа: Brides Of Destruction
-Альбом: "Here Comes The Brides"
 Стиль: Glam
 Год: 2004
 
@@ -517,11 +517,6 @@
 Стиль: Glam
 Год: 2005
 
-Группа: L.A. Guns
-Альбом: "Tales From The Strip"
-Стиль: Glam
-Год: 2005
-
 Группа: Crashdiet
 Альбом: "Rest In Sleaze"
 Стиль: Glam
@@ -532,8 +527,13 @@
 Стиль: Glam
 Год: 2005
 
-Группа: Negative
-Альбом: "Anorectic"
+Группа: L.A. Guns
+Альбом: "Tales From The Strip"
+Стиль: Glam
+Год: 2005
+
+Группа: Baton Rouge
+Альбом: "The Hottest Of Baton Rouge"
 Стиль: Glam
 Год: 2006
 
@@ -542,8 +542,13 @@
 Стиль: Glam
 Год: 2006
 
-Группа: Warrant
-Альбом: "Born Again"
+Группа: Motley Crue
+Альбом: "Carnival Of Sins Live (2 CD)"
+Стиль: Glam
+Год: 2006
+
+Группа: Negative
+Альбом: "Anorectic"
 Стиль: Glam
 Год: 2006
 
@@ -552,23 +557,13 @@
 Стиль: Glam
 Год: 2006
 
-Группа: Motley Crue
-Альбом: "Carnival Of Sins Live (2 CD)"
+Группа: Warrant
+Альбом: "Born Again"
 Стиль: Glam
 Год: 2006
 
-Группа: Baton Rouge
-Альбом: "The Hottest Of Baton Rouge"
-Стиль: Glam
-Год: 2006
-
-Группа: Poodles, The
-Альбом: "Sweet Trade"
-Стиль: Glam
-Год: 2007
-
-Группа: Lizzy Borden
-Альбом: "Appointment With Death"
+Группа: Crashdiet
+Альбом: "The Unattractive Revolution"
 Стиль: Glam
 Год: 2007
 
@@ -582,28 +577,23 @@
 Стиль: Glam
 Год: 2007
 
-Группа: Crashdiet
-Альбом: "The Unattractive Revolution"
+Группа: Lizzy Borden
+Альбом: "Appointment With Death"
 Стиль: Glam
 Год: 2007
 
-Группа: Diamond Rose
-Альбом: "I'm So Tired To Wait [demo]"
+Группа: Poodles, The
+Альбом: "Sweet Trade"
 Стиль: Glam
-Год: 2008
-
-Группа: Negative
-Альбом: "In The Eye Of The Hurricane [DVD]"
-Стиль: Glam
-Год: 2008
+Год: 2007
 
 Группа: Bad Luck Charms, The
 Альбом: "s/t"
 Стиль: Glam
 Год: 2008
 
-Группа: Negative
-Альбом: "Karma Killer"
+Группа: Diamond Rose
+Альбом: "I'm So Tired To Wait [demo]"
 Стиль: Glam
 Год: 2008
 
@@ -612,20 +602,20 @@
 Стиль: Glam
 Год: 2008
 
-Группа: Toxic Taste
-Альбом: "Toxification"
+Группа: Negative
+Альбом: "In The Eye Of The Hurricane [DVD]"
 Стиль: Glam
 Год: 2008
 
 Группа: Negative
-Альбом: "God Likes Your Style"
+Альбом: "Karma Killer"
 Стиль: Glam
-Год: 2009
+Год: 2008
 
-Группа: Poodles, The
-Альбом: "Clash Of The Elements"
+Группа: Toxic Taste
+Альбом: "Toxification"
 Стиль: Glam
-Год: 2009
+Год: 2008
 
 Группа: Faster Pussycat
 Альбом: "Front Row For The Donkey Show (Live)"
@@ -637,18 +627,18 @@
 Стиль: Glam
 Год: 2009
 
-Группа: Kissin' Dynamite
-Альбом: "Addicted to Metal"
+Группа: Negative
+Альбом: "God Likes Your Style"
 Стиль: Glam
-Год: 2010
+Год: 2009
+
+Группа: Poodles, The
+Альбом: "Clash Of The Elements"
+Стиль: Glam
+Год: 2009
 
 Группа: Cinderella
 Альбом: "Live At The Mohegan Sun (Live)"
-Стиль: Glam
-Год: 2010
-
-Группа: Negative
-Альбом: "Neon"
 Стиль: Glam
 Год: 2010
 
@@ -657,10 +647,15 @@
 Стиль: Glam
 Год: 2010
 
-Группа: Poodles, The
-Альбом: "Performocracy"
+Группа: Kissin' Dynamite
+Альбом: "Addicted to Metal"
 Стиль: Glam
-Год: 2011
+Год: 2010
+
+Группа: Negative
+Альбом: "Neon"
+Стиль: Glam
+Год: 2010
 
 Группа: Hardcore Superstar
 Альбом: "The Party Ain't Over 'Til We Say So... (Compilation)"
@@ -672,10 +667,10 @@
 Стиль: Glam
 Год: 2011
 
-Группа: Skysent Lu
-Альбом: "2 Seconds Late"
+Группа: Poodles, The
+Альбом: "Performocracy"
 Стиль: Glam
-Год: 2012
+Год: 2011
 
 Группа: Kissin' Dynamite
 Альбом: "Money, Sex And Power"
@@ -687,13 +682,18 @@
 Стиль: Glam
 Год: 2012
 
-Группа: Hardcore Superstar
-Альбом: "C’mon Take On Me"
+Группа: Skysent Lu
+Альбом: "2 Seconds Late"
 Стиль: Glam
-Год: 2013
+Год: 2012
 
 Группа: Crashdiet
 Альбом: "The Savage Playground"
+Стиль: Glam
+Год: 2013
+
+Группа: Hardcore Superstar
+Альбом: "C’mon Take On Me"
 Стиль: Glam
 Год: 2013
 

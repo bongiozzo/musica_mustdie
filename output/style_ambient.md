@@ -37,13 +37,13 @@
 Стиль: Ambient
 Год: 1992
 
-Группа: Ataraxia
-Альбом: "Sub Ignissima Luna"
+Группа: Angesstaub
+Альбом: ""
 Стиль: Ambient
 Год: 1993
 
-Группа: Angesstaub
-Альбом: ""
+Группа: Ataraxia
+Альбом: "Sub Ignissima Luna"
 Стиль: Ambient
 Год: 1993
 
@@ -52,28 +52,18 @@
 Стиль: Ambient
 Год: 1993
 
-Группа: The 3rd and the Mortal
-Альбом: "Tears Laid In Earth"
-Стиль: Ambient
-Год: 1994
-
 Группа: Angesstaub
 Альбом: ""
 Стиль: Ambient
 Год: 1994
 
-Группа: The 3rd and the Mortal
-Альбом: "Sorrow"
-Стиль: Ambient
-Год: 1994
-
-Группа: Elend
-Альбом: "Lecons De Tenebres"
+Группа: Ataraxia
+Альбом: "Ad Perpetuam Rei Memoriam"
 Стиль: Ambient
 Год: 1994
 
 Группа: Ataraxia
-Альбом: "Ad Perpetuam Rei Memoriam"
+Альбом: "Simphonia Sine Nomine"
 Стиль: Ambient
 Год: 1994
 
@@ -87,8 +77,8 @@
 Стиль: Ambient
 Год: 1994
 
-Группа: Ataraxia
-Альбом: "Simphonia Sine Nomine"
+Группа: Elend
+Альбом: "Lecons De Tenebres"
 Стиль: Ambient
 Год: 1994
 
@@ -97,65 +87,15 @@
 Стиль: Ambient
 Год: 1994
 
-Группа: Ataraxia
-Альбом: "La Malйdiction d'Ondine"
+Группа: The 3rd and the Mortal
+Альбом: "Sorrow"
 Стиль: Ambient
-Год: 1995
-
-Группа: Vond
-Альбом: "Selvmord"
-Стиль: Ambient
-Год: 1995
-
-Группа: Mortiis
-Альбом: "Anden Som Gjorde Oppror"
-Стиль: Ambient
-Год: 1995
-
-Группа: Wongraven
-Альбом: "Fielltronen"
-Стиль: Ambient
-Год: 1995
-
-Группа: Neptune Towers
-Альбом: "Transmissions From Empire Algol"
-Стиль: Ambient
-Год: 1995
-
-Группа: Monumentum
-Альбом: "In Absentia Christi"
-Стиль: Ambient
-Год: 1995
+Год: 1994
 
 Группа: The 3rd and the Mortal
-Альбом: "Nightswan"
+Альбом: "Tears Laid In Earth"
 Стиль: Ambient
-Год: 1995
-
-Группа: Dawnfall
-Альбом: "Dominance Of Darkness"
-Стиль: Ambient
-Год: 1995
-
-Группа: Calverley
-Альбом: "Avalon"
-Стиль: Ambient
-Год: 1995
-
-Группа: Tribes Of Neurot
-Альбом: "Silver Blood Transmission"
-Стиль: Ambient
-Год: 1995
-
-Группа: Ataraxia
-Альбом: "The Moon Sang On The April Chair - Red Deep Dirges Of A November Moon"
-Стиль: Ambient
-Год: 1995
-
-Группа: Mortiis
-Альбом: "Keiser Av En Dimension Ukjent"
-Стиль: Ambient
-Год: 1995
+Год: 1994
 
 Группа: Aghast
 Альбом: "Hexeri Im Zwielicht Der Finsternis"
@@ -167,23 +107,78 @@
 Стиль: Ambient
 Год: 1995
 
-Группа: Elend
-Альбом: "Les Tenebres Du Dehors"
+Группа: Ataraxia
+Альбом: "La Malйdiction d'Ondine"
 Стиль: Ambient
-Год: 1996
+Год: 1995
 
-Группа: Fata Morgana
-Альбом: "Fata Morgana"
+Группа: Ataraxia
+Альбом: "The Moon Sang On The April Chair - Red Deep Dirges Of A November Moon"
 Стиль: Ambient
-Год: 1996
+Год: 1995
+
+Группа: Calverley
+Альбом: "Avalon"
+Стиль: Ambient
+Год: 1995
+
+Группа: Dawnfall
+Альбом: "Dominance Of Darkness"
+Стиль: Ambient
+Год: 1995
+
+Группа: Monumentum
+Альбом: "In Absentia Christi"
+Стиль: Ambient
+Год: 1995
+
+Группа: Mortiis
+Альбом: "Anden Som Gjorde Oppror"
+Стиль: Ambient
+Год: 1995
+
+Группа: Mortiis
+Альбом: "Keiser Av En Dimension Ukjent"
+Стиль: Ambient
+Год: 1995
+
+Группа: Neptune Towers
+Альбом: "Transmissions From Empire Algol"
+Стиль: Ambient
+Год: 1995
+
+Группа: The 3rd and the Mortal
+Альбом: "Nightswan"
+Стиль: Ambient
+Год: 1995
+
+Группа: Tribes Of Neurot
+Альбом: "Silver Blood Transmission"
+Стиль: Ambient
+Год: 1995
+
+Группа: Vond
+Альбом: "Selvmord"
+Стиль: Ambient
+Год: 1995
+
+Группа: Wongraven
+Альбом: "Fielltronen"
+Стиль: Ambient
+Год: 1995
 
 Группа: A.C.T.U.S.
 Альбом: "A Way To Empire Of Strength And Order"
 Стиль: Ambient
 Год: 1996
 
-Группа: Penitent
-Альбом: "Melancholia"
+Группа: Arcana
+Альбом: "Dark Age Of Reason"
+Стиль: Ambient
+Год: 1996
+
+Группа: Ataraxia
+Альбом: "Concerto N. 6: A Baroque Plaisanterie"
 Стиль: Ambient
 Год: 1996
 
@@ -197,18 +192,8 @@
 Стиль: Ambient
 Год: 1996
 
-Группа: Mortiis
-Альбом: "Crypt Of The Wizard"
-Стиль: Ambient
-Год: 1996
-
-Группа: Arcana
-Альбом: "Dark Age Of Reason"
-Стиль: Ambient
-Год: 1996
-
-Группа: Ras Algethi
-Альбом: "Oneiricon - The White Hypnotic"
+Группа: Autumn Tears
+Альбом: "Love Poems For Dying Children - Act I"
 Стиль: Ambient
 Год: 1996
 
@@ -217,13 +202,13 @@
 Стиль: Ambient
 Год: 1996
 
-Группа: Autumn Tears
-Альбом: "Love Poems For Dying Children - Act I"
+Группа: Elend
+Альбом: "Les Tenebres Du Dehors"
 Стиль: Ambient
 Год: 1996
 
-Группа: Ataraxia
-Альбом: "Concerto N. 6: A Baroque Plaisanterie"
+Группа: Fata Morgana
+Альбом: "Fata Morgana"
 Стиль: Ambient
 Год: 1996
 
@@ -232,63 +217,28 @@
 Стиль: Ambient
 Год: 1996
 
+Группа: Mortiis
+Альбом: "Crypt Of The Wizard"
+Стиль: Ambient
+Год: 1996
+
+Группа: Penitent
+Альбом: "Melancholia"
+Стиль: Ambient
+Год: 1996
+
+Группа: Ras Algethi
+Альбом: "Oneiricon - The White Hypnotic"
+Стиль: Ambient
+Год: 1996
+
 Группа: The 3rd and the Mortal
 Альбом: "Painting On Glass"
 Стиль: Ambient
 Год: 1996
 
-Группа: Dead Infection
-Альбом: "Human Slaughter... Till Remains"
-Стиль: Ambient
-Год: 1997
-
 Группа: Amber Asylum
 Альбом: "Frozen In Amber"
-Стиль: Ambient
-Год: 1997
-
-Группа: Arcana
-Альбом: "Lizabeth"
-Стиль: Ambient
-Год: 1997
-
-Группа: Midnight Syndicate
-Альбом: "Midnight Syndicate"
-Стиль: Ambient
-Год: 1997
-
-Группа: Promethean
-Альбом: "Gazing the Invisible"
-Стиль: Ambient
-Год: 1997
-
-Группа: The 3rd and the Mortal
-Альбом: "Stream / Horizons"
-Стиль: Ambient
-Год: 1997
-
-Группа: The 3rd and the Mortal
-Альбом: "In The Room"
-Стиль: Ambient
-Год: 1997
-
-Группа: Burzum
-Альбом: "Daudi Baldrs"
-Стиль: Ambient
-Год: 1997
-
-Группа: Autumn Tears
-Альбом: "The Garden of Crystalline Dreams......Love Poems for Dying Children......Act II"
-Стиль: Ambient
-Год: 1997
-
-Группа: Vond
-Альбом: "The Dark River"
-Стиль: Ambient
-Год: 1997
-
-Группа: Proscriptor
-Альбом: "The Venus Bellona"
 Стиль: Ambient
 Год: 1997
 
@@ -297,8 +247,33 @@
 Стиль: Ambient
 Год: 1997
 
+Группа: Arcana
+Альбом: "Lizabeth"
+Стиль: Ambient
+Год: 1997
+
+Группа: Autumn Tears
+Альбом: "The Garden of Crystalline Dreams......Love Poems for Dying Children......Act II"
+Стиль: Ambient
+Год: 1997
+
+Группа: Burzum
+Альбом: "Daudi Baldrs"
+Стиль: Ambient
+Год: 1997
+
+Группа: Dead Infection
+Альбом: "Human Slaughter... Till Remains"
+Стиль: Ambient
+Год: 1997
+
 Группа: Elend
 Альбом: "Weeping Nights"
+Стиль: Ambient
+Год: 1997
+
+Группа: Midnight Syndicate
+Альбом: "Midnight Syndicate"
 Стиль: Ambient
 Год: 1997
 
@@ -307,8 +282,33 @@
 Стиль: Ambient
 Год: 1997
 
-Группа: Calverley
-Альбом: "Celtic Mysteries, Vol. 2"
+Группа: Promethean
+Альбом: "Gazing the Invisible"
+Стиль: Ambient
+Год: 1997
+
+Группа: Proscriptor
+Альбом: "The Venus Bellona"
+Стиль: Ambient
+Год: 1997
+
+Группа: The 3rd and the Mortal
+Альбом: "In The Room"
+Стиль: Ambient
+Год: 1997
+
+Группа: The 3rd and the Mortal
+Альбом: "Stream / Horizons"
+Стиль: Ambient
+Год: 1997
+
+Группа: Vond
+Альбом: "The Dark River"
+Стиль: Ambient
+Год: 1997
+
+Группа: Ataraxia
+Альбом: "Orlando"
 Стиль: Ambient
 Год: 1998
 
@@ -317,8 +317,8 @@
 Стиль: Ambient
 Год: 1998
 
-Группа: Ataraxia
-Альбом: "Orlando"
+Группа: Calverley
+Альбом: "Celtic Mysteries, Vol. 2"
 Стиль: Ambient
 Год: 1998
 
@@ -337,23 +337,8 @@
 Стиль: Ambient
 Год: 1998
 
-Группа: Ataraxia
-Альбом: "Lost Atlantis"
-Стиль: Ambient
-Год: 1999
-
-Группа: Burzum
-Альбом: "Hlidskjalf"
-Стиль: Ambient
-Год: 1999
-
-Группа: Mortiis
-Альбом: "The Stargate"
-Стиль: Ambient
-Год: 1999
-
-Группа: Dark Sanctuary
-Альбом: "Royaume Melancolique"
+Группа: Ar
+Альбом: "The Eternal Circle of Life"
 Стиль: Ambient
 Год: 1999
 
@@ -362,23 +347,13 @@
 Стиль: Ambient
 Год: 1999
 
-Группа: Ar
-Альбом: "The Eternal Circle of Life"
-Стиль: Ambient
-Год: 1999
-
 Группа: Ataraxia
 Альбом: "Historiae"
 Стиль: Ambient
 Год: 1999
 
-Группа: Of The Wand & The Moon
-Альбом: "Nighttime Nightrhymes"
-Стиль: Ambient
-Год: 1999
-
-Группа: Calverley
-Альбом: "The Celtic Mysteries Collection"
+Группа: Ataraxia
+Альбом: "Lost Atlantis"
 Стиль: Ambient
 Год: 1999
 
@@ -387,18 +362,43 @@
 Стиль: Ambient
 Год: 1999
 
+Группа: Burzum
+Альбом: "Hlidskjalf"
+Стиль: Ambient
+Год: 1999
+
+Группа: Calverley
+Альбом: "The Celtic Mysteries Collection"
+Стиль: Ambient
+Год: 1999
+
+Группа: Dark Sanctuary
+Альбом: "Royaume Melancolique"
+Стиль: Ambient
+Год: 1999
+
+Группа: Mortiis
+Альбом: "The Stargate"
+Стиль: Ambient
+Год: 1999
+
+Группа: Of The Wand & The Moon
+Альбом: "Nighttime Nightrhymes"
+Стиль: Ambient
+Год: 1999
+
 Группа: Promethean
 Альбом: "Somber Regards"
 Стиль: Ambient
 Год: 1999
 
-Группа: Midnight Syndicate
-Альбом: "Realm Of Shadows"
+Группа: Arcana
+Альбом: "...The Last Embrace"
 Стиль: Ambient
 Год: 2000
 
-Группа: Rikket
-Альбом: "Kvist Nord og Ild"
+Группа: Arcana
+Альбом: "Body Of Sin"
 Стиль: Ambient
 Год: 2000
 
@@ -407,8 +407,18 @@
 Стиль: Ambient
 Год: 2000
 
-Группа: Arcana
-Альбом: "Body Of Sin"
+Группа: Dark Sanctuary
+Альбом: "De lumiere et d'obscurite"
+Стиль: Ambient
+Год: 2000
+
+Группа: Midnight Syndicate
+Альбом: "Realm Of Shadows"
+Стиль: Ambient
+Год: 2000
+
+Группа: Rikket
+Альбом: "Kvist Nord og Ild"
 Стиль: Ambient
 Год: 2000
 
@@ -422,28 +432,8 @@
 Стиль: Ambient
 Год: 2000
 
-Группа: Dark Sanctuary
-Альбом: "De lumiere et d'obscurite"
-Стиль: Ambient
-Год: 2000
-
-Группа: Arcana
-Альбом: "...The Last Embrace"
-Стиль: Ambient
-Год: 2000
-
 Группа: Assemblage 23
 Альбом: "Failure"
-Стиль: Ambient
-Год: 2001
-
-Группа: Of The Wand & The Moon
-Альбом: ":Emptiness:Emptiness:Emptiness:"
-Стиль: Ambient
-Год: 2001
-
-Группа: Midnight Syndicate
-Альбом: "Gates Of Delirium"
 Стиль: Ambient
 Год: 2001
 
@@ -452,28 +442,23 @@
 Стиль: Ambient
 Год: 2001
 
+Группа: Midnight Syndicate
+Альбом: "Gates Of Delirium"
+Стиль: Ambient
+Год: 2001
+
 Группа: Mortiis
 Альбом: "The Smell Of Rain"
 Стиль: Ambient
 Год: 2001
 
-Группа: Cyclotimia
-Альбом: "Metamorphosis"
+Группа: Of The Wand & The Moon
+Альбом: ":Emptiness:Emptiness:Emptiness:"
 Стиль: Ambient
-Год: 2002
+Год: 2001
 
-Группа: Monumentum
-Альбом: "Ad Nauseam"
-Стиль: Ambient
-Год: 2002
-
-Группа: Mitternacht
-Альбом: "The Desolation of Blendenstein"
-Стиль: Ambient
-Год: 2002
-
-Группа: Nordvargr
-Альбом: "Awaken"
+Группа: 15 Delights of Dionysus
+Альбом: "The Nightmare Muzeum"
 Стиль: Ambient
 Год: 2002
 
@@ -482,8 +467,13 @@
 Стиль: Ambient
 Год: 2002
 
-Группа: Dark Muse
-Альбом: "Sounds From Beyond The Silver Wheel"
+Группа: Cyclotimia
+Альбом: "AlphaOmega"
+Стиль: Ambient
+Год: 2002
+
+Группа: Cyclotimia
+Альбом: "Metamorphosis"
 Стиль: Ambient
 Год: 2002
 
@@ -497,8 +487,8 @@
 Стиль: Ambient
 Год: 2002
 
-Группа: Cyclotimia
-Альбом: "AlphaOmega"
+Группа: Dark Muse
+Альбом: "Sounds From Beyond The Silver Wheel"
 Стиль: Ambient
 Год: 2002
 
@@ -507,8 +497,18 @@
 Стиль: Ambient
 Год: 2002
 
-Группа: 15 Delights of Dionysus
-Альбом: "The Nightmare Muzeum"
+Группа: Mitternacht
+Альбом: "The Desolation of Blendenstein"
+Стиль: Ambient
+Год: 2002
+
+Группа: Monumentum
+Альбом: "Ad Nauseam"
+Стиль: Ambient
+Год: 2002
+
+Группа: Nordvargr
+Альбом: "Awaken"
 Стиль: Ambient
 Год: 2002
 
@@ -517,18 +517,8 @@
 Стиль: Ambient
 Год: 2002
 
-Группа: ~ VLE ~
-Альбом: "Book of Illusions, Chapters II & III"
-Стиль: Ambient
-Год: 2003
-
-Группа: Vinterriket/Rikket
-Альбом: "“Von Eiskristallen… und dem ewigen Chaos” / “Riket av evig skogen”"
-Стиль: Ambient
-Год: 2003
-
-Группа: Elend
-Альбом: "Winds Devouring Men"
+Группа: Cyclotimia
+Альбом: "Trivial Pleasures"
 Стиль: Ambient
 Год: 2003
 
@@ -537,28 +527,13 @@
 Стиль: Ambient
 Год: 2003
 
+Группа: Elend
+Альбом: "Winds Devouring Men"
+Стиль: Ambient
+Год: 2003
+
 Группа: Gothica
 Альбом: "The Cliff of Suicide"
-Стиль: Ambient
-Год: 2003
-
-Группа: Mystery Blue
-Альбом: "Metal Slaves"
-Стиль: Ambient
-Год: 2003
-
-Группа: Stalaggh
-Альбом: ":Project Terrror:"
-Стиль: Ambient
-Год: 2003
-
-Группа: Cyclotimia
-Альбом: "Trivial Pleasures"
-Стиль: Ambient
-Год: 2003
-
-Группа: Theatres des Vampires
-Альбом: "Vampyrisme"
 Стиль: Ambient
 Год: 2003
 
@@ -567,13 +542,8 @@
 Стиль: Ambient
 Год: 2003
 
-Группа: Sheitela - Dark Norhn of Nifelheum
-Альбом: "Father Wind... Voices to Zicloids"
-Стиль: Ambient
-Год: 2003
-
-Группа: TYSTNADEN
-Альбом: "Fragments"
+Группа: Mystery Blue
+Альбом: "Metal Slaves"
 Стиль: Ambient
 Год: 2003
 
@@ -582,25 +552,35 @@
 Стиль: Ambient
 Год: 2003
 
-Группа: Penitent
-Альбом: "Deserted Dreams"
+Группа: Sheitela - Dark Norhn of Nifelheum
+Альбом: "Father Wind... Voices to Zicloids"
 Стиль: Ambient
-Год: 2004
+Год: 2003
 
-Группа: Elend
-Альбом: "Sunwar the Dead"
+Группа: Stalaggh
+Альбом: ":Project Terrror:"
 Стиль: Ambient
-Год: 2004
+Год: 2003
 
-Группа: Dark Sanctuary
-Альбом: "Les Memoires Blessees"
+Группа: Theatres des Vampires
+Альбом: "Vampyrisme"
 Стиль: Ambient
-Год: 2004
+Год: 2003
 
-Группа: V/A
-Альбом: "Tribute to Possessed... Seven Gates Of Horror"
+Группа: TYSTNADEN
+Альбом: "Fragments"
 Стиль: Ambient
-Год: 2004
+Год: 2003
+
+Группа: Vinterriket/Rikket
+Альбом: "“Von Eiskristallen… und dem ewigen Chaos” / “Riket av evig skogen”"
+Стиль: Ambient
+Год: 2003
+
+Группа: ~ VLE ~
+Альбом: "Book of Illusions, Chapters II & III"
+Стиль: Ambient
+Год: 2003
 
 Группа: Arcana
 Альбом: "The New Light"
@@ -612,23 +592,23 @@
 Стиль: Ambient
 Год: 2004
 
-Группа: Jesu
-Альбом: "Jesu"
-Стиль: Ambient
-Год: 2004
-
-Группа: Лихолесье
-Альбом: "Извечное Коловращение"
-Стиль: Ambient
-Год: 2004
-
-Группа: Sybreed
-Альбом: "Slave Design"
-Стиль: Ambient
-Год: 2004
-
 Группа: Cyclotimia
 Альбом: "Eschaton"
+Стиль: Ambient
+Год: 2004
+
+Группа: Dark Sanctuary
+Альбом: "Les Memoires Blessees"
+Стиль: Ambient
+Год: 2004
+
+Группа: Elend
+Альбом: "Sunwar the Dead"
+Стиль: Ambient
+Год: 2004
+
+Группа: Jesu
+Альбом: "Jesu"
 Стиль: Ambient
 Год: 2004
 
@@ -637,8 +617,28 @@
 Стиль: Ambient
 Год: 2004
 
-Группа: Different World
-Альбом: "Wonderful World"
+Группа: Penitent
+Альбом: "Deserted Dreams"
+Стиль: Ambient
+Год: 2004
+
+Группа: Sybreed
+Альбом: "Slave Design"
+Стиль: Ambient
+Год: 2004
+
+Группа: V/A
+Альбом: "Tribute to Possessed... Seven Gates Of Horror"
+Стиль: Ambient
+Год: 2004
+
+Группа: Лихолесье
+Альбом: "Извечное Коловращение"
+Стиль: Ambient
+Год: 2004
+
+Группа: Arcana
+Альбом: "Le Serpent Rouge"
 Стиль: Ambient
 Год: 2005
 
@@ -647,18 +647,18 @@
 Стиль: Ambient
 Год: 2005
 
-Группа: Of The Wand & The Moon
-Альбом: "Sonnenheim"
-Стиль: Ambient
-Год: 2005
-
 Группа: Dark Sanctuary
 Альбом: "Exaudi Vocem Meam, part I"
 Стиль: Ambient
 Год: 2005
 
-Группа: Arcana
-Альбом: "Le Serpent Rouge"
+Группа: Different World
+Альбом: "Wonderful World"
+Стиль: Ambient
+Год: 2005
+
+Группа: Of The Wand & The Moon
+Альбом: "Sonnenheim"
 Стиль: Ambient
 Год: 2005
 
@@ -667,18 +667,8 @@
 Стиль: Ambient
 Год: 2005
 
-Группа: Death Breath
-Альбом: "Stinking Up The Night"
-Стиль: Ambient
-Год: 2006
-
 Группа: Dark Sanctuary
 Альбом: "Exaudi Vocem Meam, part II"
-Стиль: Ambient
-Год: 2006
-
-Группа: Gerrard, Lisa
-Альбом: "Silver Tree"
 Стиль: Ambient
 Год: 2006
 
@@ -687,8 +677,13 @@
 Стиль: Ambient
 Год: 2006
 
-Группа: OSI
-Альбом: "Re: Free (EP)"
+Группа: Death Breath
+Альбом: "Stinking Up The Night"
+Стиль: Ambient
+Год: 2006
+
+Группа: Gerrard, Lisa
+Альбом: "Silver Tree"
 Стиль: Ambient
 Год: 2006
 
@@ -696,6 +691,16 @@
 Альбом: "Nostalgia"
 Стиль: Ambient
 Год: 2006
+
+Группа: OSI
+Альбом: "Re: Free (EP)"
+Стиль: Ambient
+Год: 2006
+
+Группа: Death Breath
+Альбом: "Let It Stink (EP)"
+Стиль: Ambient
+Год: 2007
 
 Группа: Jesu
 Альбом: "Conqueror"
@@ -707,23 +712,8 @@
 Стиль: Ambient
 Год: 2007
 
-Группа: Death Breath
-Альбом: "Let It Stink (EP)"
-Стиль: Ambient
-Год: 2007
-
-Группа: Tsaraas
-Альбом: "Шепот Закрытых Сердец"
-Стиль: Ambient
-Год: 2008
-
-Группа: Shadow
-Альбом: "Forever Chaos"
-Стиль: Ambient
-Год: 2008
-
-Группа: Johannsson, Johann
-Альбом: "Fordlandia"
+Группа: Arc
+Альбом: "Arkhangelsk"
 Стиль: Ambient
 Год: 2008
 
@@ -732,13 +722,23 @@
 Стиль: Ambient
 Год: 2008
 
-Группа: Arc
-Альбом: "Arkhangelsk"
+Группа: DivineFire
+Альбом: "Farewell"
 Стиль: Ambient
 Год: 2008
 
-Группа: DivineFire
-Альбом: "Farewell"
+Группа: Johannsson, Johann
+Альбом: "Fordlandia"
+Стиль: Ambient
+Год: 2008
+
+Группа: Opaque Lucidity
+Альбом: "Opaque Lucidity"
+Стиль: Ambient
+Год: 2008
+
+Группа: Shadow
+Альбом: "Forever Chaos"
 Стиль: Ambient
 Год: 2008
 
@@ -747,10 +747,15 @@
 Стиль: Ambient
 Год: 2008
 
-Группа: Opaque Lucidity
-Альбом: "Opaque Lucidity"
+Группа: Tsaraas
+Альбом: "Шепот Закрытых Сердец"
 Стиль: Ambient
 Год: 2008
+
+Группа: Chernig
+Альбом: "Chernig"
+Стиль: Ambient
+Год: 2009
 
 Группа: Frank, Herman
 Альбом: "Loyal to None"
@@ -767,18 +772,13 @@
 Стиль: Ambient
 Год: 2009
 
-Группа: Chernig
-Альбом: "Chernig"
-Стиль: Ambient
-Год: 2009
-
-Группа: Tesseract
-Альбом: "Concealing Fate (EP)"
+Группа: Bombs Of Hades
+Альбом: "Chambers Of Abominations"
 Стиль: Ambient
 Год: 2010
 
-Группа: Bombs Of Hades
-Альбом: "Chambers Of Abominations"
+Группа: Brosh, Nili
+Альбом: "Through The Looking Glass"
 Стиль: Ambient
 Год: 2010
 
@@ -787,8 +787,8 @@
 Стиль: Ambient
 Год: 2010
 
-Группа: Brosh, Nili
-Альбом: "Through The Looking Glass"
+Группа: Hag-Hag-Hagal
+Альбом: "Hag-Hag-Hagal"
 Стиль: Ambient
 Год: 2010
 
@@ -802,18 +802,18 @@
 Стиль: Ambient
 Год: 2010
 
-Группа: Hag-Hag-Hagal
-Альбом: "Hag-Hag-Hagal"
+Группа: Tesseract
+Альбом: "Concealing Fate (EP)"
 Стиль: Ambient
 Год: 2010
 
-Группа: Shredhead
-Альбом: "Human Nature"
+Группа: Jesu
+Альбом: "Ascension"
 Стиль: Ambient
 Год: 2011
 
-Группа: Jesu
-Альбом: "Ascension"
+Группа: Shredhead
+Альбом: "Human Nature"
 Стиль: Ambient
 Год: 2011
 
@@ -822,11 +822,6 @@
 Стиль: Ambient
 Год: 2011
 
-Группа: Tesseract
-Альбом: "Perspective (EP)"
-Стиль: Ambient
-Год: 2012
-
 Группа: Crippled Black Phoenix
 Альбом: "(Mankind) The Crafty Ape"
 Стиль: Ambient
@@ -834,6 +829,11 @@
 
 Группа: Nebula VII
 Альбом: "The Damaged Hope..."
+Стиль: Ambient
+Год: 2012
+
+Группа: Tesseract
+Альбом: "Perspective (EP)"
 Стиль: Ambient
 Год: 2012
 
@@ -852,13 +852,13 @@
 Стиль: Ambient
 Год: 2014
 
-Группа: W.A.S.P.
-Альбом: "Golgotha"
+Группа: Shredhead
+Альбом: "Death Is Righteous"
 Стиль: Ambient
 Год: 2015
 
-Группа: Shredhead
-Альбом: "Death Is Righteous"
+Группа: W.A.S.P.
+Альбом: "Golgotha"
 Стиль: Ambient
 Год: 2015
 

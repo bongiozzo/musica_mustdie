@@ -1,10 +1,52 @@
 # Ram
 
-Дискография
-"Forced Entry" 2005, Heavy Metal
-"Lightbringer" 2009, Heavy Metal
-"Death" 2012, Heavy Metal
-"Svbversvm" 2015, Heavy Metal
+
+
+## Дискография
+
+### "Forced Entry" 2005, Heavy Metal
+
+1. Shadowman  04:24  
+2. Sudden Impact  04:36 
+3. The Beast Within  03:53  
+4. Venom in my Veins  03:34  
+5. Machine Invaders  05:16   
+6. Forced Entry  05:56 
+7. Sea of Skulls  03:22   
+8. Breaking Through  04:57   
+9. Infuriator  04:35   
+10. Burning Scars  04:31 
+
+### "Lightbringer" 2009, Heavy Metal
+
+1. Crushing the Dwarf of Ignorance  01:36  
+2. Lightbringer  04:28   
+3. In Victory  04:17   
+4. Awakening the Chimaera  04:23   
+5. Ghost Pilot (MI II)  05:35  
+6. Suomussalmi (The Few of Iron)  09:03 
+7. Blood God  03:28   
+8. Titan  06:03   
+9. The Elixir  06:45  
+10. Prelude to Death  03:04 
+
+### "Death" 2012, Heavy Metal
+
+01. Death...
+02. ...Comes From The Mouth Beyond
+03. I Am The End
+04. Release Me
+05. Defiant
+06. Frozen
+07. Under The Scythe
+08. Hypnos
+09. Flame Of The Tyrants
+10. 1 7 7 1
+
+### "Svbversvm" 2015, Heavy Metal
+
+
+
 
 ## Отношения с другими группами
 

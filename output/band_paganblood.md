@@ -1,7 +1,20 @@
 # Pagan Blood
 
-Дискография
-"The Last Empire" 2009, Black Metal
+
+
+## Дискография
+
+### "The Last Empire" 2009, Black Metal
+
+1. The Call of Gods 05:21  
+2. L`Ordre Guerrier 00:51  
+3. The Battlefield 05:21  
+4. Pagan Blood 05:13  
+5. The Rise of Death 05:18  
+6. Fin De Siиcle 03:27  
+7. Revelation 04:12  
+8. The Last Empire 05:20 
+
 
 ## Отношения с другими группами
 

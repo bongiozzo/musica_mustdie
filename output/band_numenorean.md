@@ -1,7 +1,17 @@
 # Numenorean
 
-Дискография
-"Home" 2016, Black Metal
+
+
+## Дискография
+
+### "Home" 2016, Black Metal
+
+1. Home 
+2. Thirst 
+3. Shoreless 
+4. Devour 
+5. Laid Down
+
 
 ## Отношения с другими группами
 

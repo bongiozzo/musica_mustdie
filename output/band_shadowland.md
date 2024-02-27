@@ -1,9 +1,45 @@
 # Shadowland
 
-Дискография
-"Mad As A Hatter" 1996, Progressive
-"Ring Of Roses" 1997, Progressive
-"Through The Looking Glass" 1997, Progressive
+
+
+## Дискография
+
+### "Mad As A Hatter" 1996, Progressive
+
+01. U.S.I. (United States Of Insanity)
+02. Mephisto Bridge
+03. Flatline
+04. The Seventh Year
+05. Father
+06. The Burning
+07. Zuleika
+08. Mad As A Hatter
+09. Salvation Comes
+
+### "Ring Of Roses" 1997, Progressive
+
+01. The Whistleblower
+02. Jigsaw
+03. Scared Of The Dark
+04. Painting By Numbers
+05. Hall Of Mirrors
+06. The Kruhulick Syndrome
+07. Ring Of Roses
+08. Dorian Gray
+09. I, Judas
+
+### "Through The Looking Glass" 1997, Progressive
+
+01. A Matter Of Perspective
+02. The Hunger
+03. Dreams Of Ferruman
+04. Half Moon Street
+05. When The World Turns To White
+06. The Waking Hour
+07. Through The Looking Glass
+08. Mindgames
+09. So The Music Stops
+
 
 ## Отношения с другими группами
 

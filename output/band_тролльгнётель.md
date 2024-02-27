@@ -1,12 +1,79 @@
 # Тролль Гнёт Ель
 
-Дискография
-"Тролль Гнёт Ель" 2003, Folk
-"Праздник Похмеляйнен" 2005, Folk
-"Конунг Хмель" 2007, Folk
-"1516 / Орден пресветлого хмеля" 2009, Folk
-"Хмельное сердце" 2013, Folk
-"Карьялали" 2016, Folk
+Russian Scandinavian Beer-Folk
+
+## Дискография
+
+### "Тролль Гнёт Ель" 2003, Folk
+
+1. Верная пинта (3'49)
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<small>Dear Pint</small>
+2. Еловый корень (2'51)
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<small>Fir Root</small>
+3. Хорошо быть пивоваром (3'42)
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<small>Good to Be a Brewer</small>
+4. Гудбруд Гудбрудссон советует (3'29)
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<small>Gudbrud Gudbrudsson Advices</small>
+5. Тролль гнёт ель (2'57)
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<small>Troll Bends Fir</small>
+6. Забытые гимны оленей (3'03)
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<small>Forgotten Hymns of Deers</small>
+7. Гутен таг! (3'14)
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<small>Guten Tag!</small>
+8. Мой хмельной мёд (3'05)
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<small>My Heady Honey</small>
+9. Браги (2'49)
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<small>Bragi</small>
+10. Брюнхильд, моя Брюнхильд (3'56)
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<small>Brunhild My Brunhild</small>
+11. Хо (3'02)
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<small>Ho</small>
+
+
+Костя Тролль - голос, гитара
+Джетра - виста, голос
+Аня - скрипка
+Серёга Трэшер - мандолина
+Борис - бас
+Серёга Белый - барабаны
+
+Все тексты и музыка: Тролль Гнёт Ель.
+Запись произведена на студии "Контакт" в 2003 г.
+Материал записан вживую.
+Запись и мастеринг: Юрий Смирнофф.
+Художник: Anund.
+Дизайн: "Schattenlicht".
+
+&copy; 2003 Кайлас Рекордз
+
+### "Праздник Похмеляйнен" 2005, Folk
+
+
+
+### "Конунг Хмель" 2007, Folk
+
+
+
+### "1516 / Орден пресветлого хмеля" 2009, Folk
+
+
+
+### "Хмельное сердце" 2013, Folk
+
+
+
+### "Карьялали" 2016, Folk
+
+1. Де-да		 
+2. Карьяллтролль		 
+3. Медведь Йонне		 
+4. Самогонка		 
+5. Холмогоры		 
+6. Выпить залпом		 
+7. Ягода-года		 
+8. Сердце тролля		 
+9. Нево
+
 
 ## Отношения с другими группами
 

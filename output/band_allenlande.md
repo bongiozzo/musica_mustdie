@@ -1,9 +1,60 @@
 # Allen - Lande
 
-Дискография
-"The Battle" 2005, Hard Rock
-"The Revenge" 2007, Hard Rock
-"The Showdown" 2010, Hard Rock
+JORN and SYMPHONY X singers
+
+## Дискография
+
+### "The Battle" 2005, Hard Rock
+
+01. Another Battle (Jorn & Russell)
+02. Hunters Night (Russell)
+03. Wish for a Miracle (Jorn & Russell)
+04. Reach a Little Longer (Jorn)
+05. Come Alive (Jorn & Russell)
+06. Truth of Our Time (Jorn & Russell)
+07. My Own Way (Jorn)
+08. Ask You Anyway (Russell)
+09. Silent Rage (Jorn & Russell)
+10. Where Have the Angels Gone (Jorn)
+11. Universe of Light (Russell)
+12. The Forgotten Ones (Jorn & Russell)
+
+### "The Revenge" 2007, Hard Rock
+
+1. The Revenge
+2. Obsessed
+3. Victory
+4. Master Of Sorrow
+5. Will You Follow
+6. Just A Dream
+7. Her Spell
+8. Gone Too Far
+9. Wake Up Call
+10. Under The Waves
+11. Who Can You Trust
+12. When Time Doesn?t Heal
+
+### "The Showdown" 2010, Hard Rock
+
+1. The Showdown 06:04  
+2. Judgement Day 05:59  
+3. Never Again 04:58  
+4. Turn All Into Gold 04:01  
+5. Bloodlines 05:06  
+6. Copernicus 05:03  
+7. We Will Rise Again 05:53  
+8. The Guardian 04:40  
+9. Maya 04:24  
+10. The Artist 05:10  
+11. Eternity 05:35  
+12. Alias 04:45 
+
+
+Line up:
+Jorn Lande: Vocals
+Russell Allen: Vocals
+Magnus Karlsson: Guitar, Bass, Keyboards 
+
 
 ## Отношения с другими группами
 

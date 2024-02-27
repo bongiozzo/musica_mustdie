@@ -1,18 +1,127 @@
 # Axxis
 
-Дискография
-"Kingdom Of The Night" 1989, Hard Rock
-"Axxis - II" 1990, Hard Rock
-"Access All Areas" 1991, Hard Rock
-"The Big Thrill" 1993, Hard Rock
-"Matters Of Survival" 1995, Hard Rock
-"Voodoo Vibes" 1997, Hard Rock
-"Back To The Kingdom" 2000, Hard Rock
-"Eyes Of Darkness" 2001, Hard Rock
-"Time Machine" 2004, Hard Rock
-"Paradise In Flames" 2006, Hard Rock
-"Doom Of Destiny" 2007, Heavy Metal
-"Utopia" 2009, Heavy Metal
+
+
+## Дискография
+
+### "Kingdom Of The Night" 1989, Hard Rock
+
+
+
+### "Axxis - II" 1990, Hard Rock
+
+
+
+### "Access All Areas" 1991, Hard Rock
+
+
+
+### "The Big Thrill" 1993, Hard Rock
+
+
+
+### "Matters Of Survival" 1995, Hard Rock
+
+
+
+### "Voodoo Vibes" 1997, Hard Rock
+
+
+
+### "Back To The Kingdom" 2000, Hard Rock
+
+
+
+### "Eyes Of Darkness" 2001, Hard Rock
+
+1. Eyes Of Darkness (Chapter1)
+2. Wonderland 
+3. The Four Horsemen
+4. Brandnew World 
+5. When The Sun Goes Down
+6. Shadows Of The Light
+7. Keep Flying
+8. Battlefield Of Life
+9. One Million Faces
+10.At The Crack Of Dawn
+11.Angel
+12.Larger Than Life ?
+13.Lost In Love (Bonus Track-Musical Edit)
+14. Specials: ROCKMINE The AXXIS Game for PC
+15.Shadowman (VideoClip)
+
+
+### "Time Machine" 2004, Hard Rock
+
+1. Mystery Of Time (Intro)
+2. Angel Of Death 
+3. Time Machine 
+4. Wind In The Night (Shalom)
+5. Lost In The Darkness 
+6. The Demons Are Calling...
+7. Wings Of Freedom 
+8. Dance In The Starlight 
+9. Battle Of Power
+10. Alive 
+11. Gimme Your Blood 
+12. Don’t Drag Me Down
+
+
+Bernhard Weiss (vocals), 
+Walter Pietsch (guitar), 
+Markus Gfeller (bass), 
+Harry Oellers (keyboards), 
+Richard Michaelski (drums)
+
+### "Paradise In Flames" 2006, Hard Rock
+
+Paradise In Flames 
+Dance With The Dead 
+Tales Of Glory Island 
+Take My Hand 
+Will God Remember Me 
+Talisman 
+Don`t Leave Me 
+Lady Moon 
+Icewind 
+Stay By Me 
+Gods Of Rain 
+Passion For Rock
+
+### "Doom Of Destiny" 2007, Heavy Metal
+
+Voices Of Destiny 
+Doom Of Destiny (Arabia)
+Better Fate 
+Blood Angel 
+I Hear You Cry 
+The Fire Still Burns 
+Father, Father 
+Revolutions 
+She Got Nine Lives
+Devilish Belle 
+Astoria
+Engel Aus Hass (bonustrack)
+Engel Aus Hass (videoclip)
+
+### "Utopia" 2009, Heavy Metal
+
+1. Journey To Utopia 01:39  
+2. Utopia 03:59  
+3. Last Man On Earth 04:51  
+4. Fass Mich An 05:10  
+5. Sarah Wanna Die 05:54  
+6. My Fathers’ Eyes 04:40  
+7. The Monsters Crawl 04:44  
+8. Eyes Of A Child 04:32  
+9. Heavy Rain 04:32  
+10. For You I Will Die 05:30  
+11. Underworld 03:56 
+
+Bonus Tracks:
+12. Taste My Blood
+13. 20 Years Anniversary Song
+
 
 ## Отношения с другими группами
 

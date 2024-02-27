@@ -1,7 +1,41 @@
 # Mantic Ritual
 
-Дискография
-"Executioner" 2009, Thrash
+
+
+## Дискография
+
+### "Executioner" 2009, Thrash
+
+01. One By One
+02. Executioner
+03. Black Tar Sin
+04. Death And Destruction
+05. Murdered To Death
+06. Souls
+07. Panic
+08. Double The Blood
+09. Thrashatonement
+10. By The Cemetery
+11. Next Attack
+
+Adam Haritan (Drums)
+Ben Mottsman (Bass)
+Dan Wetmore (Guitar/Vocals)
+Jeff Potts (Guitar)
+
+Produced and engineered by Andy Classen
+Recorded at Stage One Studios; Buhne, Germany
+Mastered by Andy Classen
+A&R: Marko Sirac
+All songs written by Mantic Ritual
+Management: Patrick Mahoney & Don Robertson for Idol Management
+Legal: Ian Friedman, Esq.
+Booking Agent: John Finberg for First Row Talent
+Artwork By: Colin Marks
+Design By: Colin Marks, Dan Wetmore
+photography by Kristin Koeper and Dan Wetmore
+
+
 
 ## Отношения с другими группами
 

@@ -1,9 +1,72 @@
 # Mortal Love
 
-Дискография
-"All The Beauty..." 2002, Gothic
-"I Have Lost..." 2005, Gothic
-"Forever Will Be Gone" 2006, Gothic
+Gothic-doom from Norway
+
+## Дискография
+
+### "All The Beauty..." 2002, Gothic
+
+1. All The Beauty
+2. Crave Your Love
+3. Beautiful One
+4. Falling For You
+5. In The Sun
+6. Hate To Feel
+7. I Want To Die
+8. Mortally Beloved
+
+All songs written by MORTAL LOVE
+Produced by Zet
+Recorded and mixed at Space Valley Studio
+
+MORTAL LOVE are: Cat, Gabriah, Lev, Rain6, Damous
+
+Additional Musicians:
+Zet - Keys and Programming, Additional Guitars and Bass
+Torn Overland Knudsen - Cello
+
+### "I Have Lost..." 2005, Gothic
+
+1. Existence 
+2. Serenity 
+3. Spine 
+4. Adoration 
+5. Senses 
+6. Empathy 
+7. Reality 
+8. Sanity 
+9. Identity 
+10. Hope 
+11. Memory 
+12. Everything
+
+### "Forever Will Be Gone" 2006, Gothic
+
+1. I Make The Mistake (4.32); 
+2. Of Keeping The Fire Down (4.05); 
+3. While Everything Dies (3.36); 
+4. My Shadow Self (3.50); 
+5. In The End Decides (2.59); 
+6. To Choke You Now (4.04); 
+7. So I Betray The Mission (3.30); 
+8. Still It Has Only Just Begun (4.50); 
+9. As We Can Not Be One (1.33); 
+10. Forever Will Be Gone (7.22)
+
+All songs written by MORTAL LOVE
+Produced by Rain6 and Lev
+Engineered by Zet and Kenneth Skarholen
+Recorded and mixed at Space Valley Studio
+
+Cat - Vocals
+Damous - Drums
+Lev - Bass and Vocals
+Rain6 - Guitars, Programming, Vocals
+Mulciber - Keyboards and Programming
+
+Additional Musicians:
+Zet - Guitars and Voice
+
 
 ## Отношения с другими группами
 

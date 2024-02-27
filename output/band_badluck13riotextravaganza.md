@@ -1,6 +1,9 @@
 # Bad Luck 13 Riot Extravaganza
 
-Дискография
+grindcore
+
+## Дискография
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,29 @@
 # The Faces of Sarah
 
-Дискография
-"24" 2001, Gothic
+Gothic-rock
+
+## Дискография
+
+### "24" 2001, Gothic
+
+1. All That is Divine
+2. Heaven
+3. Forever Sleep
+4. Second Skin
+5. Fatalistic Warning
+6. ...Baby One More Time
+7. As You Were Leaving
+8. Come to Me
+9. Where No Shadows Fall
+10. Love Me 
+
+
+Nick Schultz - Vocals
+David Lockwood - Drums
+Alan Tampion - Guitar
+John Curry - Guitar
+Frank Walters - Bass
+
 
 ## Отношения с другими группами
 

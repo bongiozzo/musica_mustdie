@@ -1,14 +1,159 @@
 # God Dethroned
 
-Дискография
-"The Christhunt" 1992, Death Metal
-"The Grand Grimoire" 1997, Death Metal
-"Bloody Blasphemy" 1999, Death Metal
-"The Ancient Ones" 2000, Death Metal
-"Ravenous" 2001, Death Metal
-"Into the Lungs of Hell" 2003, Death Metal
-"The Lair of the White Worm" 2004, Death Metal
-"The Toxic Touch" 2006, Death Metal
+
+
+## Дискография
+
+### "The Christhunt" 1992, Death Metal
+
+1. Intro: Necrosapiens
+2. Hordes Of Lucifer
+3. Christ Carnage
+4. Infernal Sights Of A Bloody Down (Morbid Rites)
+5. The Christhunt
+6. Cadavers
+7. Unholdin Of Hewe
+8. God Dethroned
+
+ Henri Sattler - Vocals,Lead & Rhythm Guitars
+ Oscar Carre - Lead Guitar 
+ Macro Arends - Bass
+ Ard De Weerd - Drums
+
+All Songs Writen By GOD DETHRONED.
+Produced,Engineered & Mixed By Berthus Westerius At 
+Franky`s Recording Kitchen,Holland `92.
+
+(p)&(c) 1993 SHARK Records
+
+
+### "The Grand Grimoire" 1997, Death Metal
+
+1 - The Art Of Immolation - 3:32
+2 - The Grand Grimoire - 5:32
+3 - The Luciferian Episode - 0:32
+4 - Under A Silver Moon - 6:48
+5 - The Somberness Of Winter - 6:24
+6 - Sickening Harp Rasps - 3:57
+7 - Into A Dark Millenium - 4:51
+8 - Coloseum Serenades - 4:20
+9 - Fire - 2:49
+
+All music by God Dethroned.
+All lyrics by Henri, except 'Fire' by A. Brown.
+Keyboards by Danny Goatlord.
+Recorded on unholy ground during late '96 and early '97.
+Produced, engineered and mixed by Berthus Westerhuys.
+Artwork by Rene Bosma.
+Photography by Harm-Jan Stiepel.
+
+© 1997 Metal Blade Records Inc.
+
+The Grand Grimoire is dedicated to the memory of Willem Barentz +1896 Nova Zembla
+
+### "Bloody Blasphemy" 1999, Death Metal
+
+1 - Serpent King - 3:02
+2 - Nocturnal - 2:51
+3 - The Execution Protocol - 5:44
+4 - Boiling Blood - 2:51
+5 - A View of Ages - 3:42
+6 - Soul Capture 1562 - 8:19
+7 - Under the Golden Wings of Death - 4:26
+8 - Firebreath - 4:16
+9 - Bloody Blasphemy - 4:21
+
+All music by God Dethroned.
+All lyrics by Henri, except 'Under the Golden Wings of Death' and 'Nocturnal' by Beef and 'The Execution Protocol' by Henri and Beef.
+Keyboars by Danny A. Servaes.
+Piano on 'The Execution Protocol' by Roeland Wubbs.
+Female vocals by Nienke de Jong.
+Recorded on unholy ground during the fall and winter of 1998.
+Engineered, produced and mixed by Berthus Westerhuys.
+Frontcover artwork by Jeanne Potter.
+Additional artwork by S.W.A.T. terror division.
+Photography by Suzette Luiken.
+Bandlogo by Rene Sys.
+
+© 1999 Metal Blade Records Inc. 
+
+### "The Ancient Ones" 2000, Death Metal
+
+1. Hordes of Lucifer
+2. Cadavers
+3. God Dethroned
+4. Infernal Sights of a Bloody Dawn
+5. Morbid Rites
+6. God Dethroned
+7. Unholdin of Hewe
+8. The Christhunt
+9. Cadavers
+10. Christ Carnage
+11. Necromagnon (video-clip)
+   
+Tracks 1, 2 and 3 are taken from the Christhunt demo.
+Track 4 is a previously unreleased song.
+Track 5 is taken from the DSFA 4 sampler.
+Track 6, 7, 8, 9 and 10 are live songs.
+Track 11 is a CD Rom track of the first boycotted video.
+Executive producers: 'The Satanic Twins'.
+
+© 2000 Cold Blood Industries.
+
+### "Ravenous" 2001, Death Metal
+
+1. Swallow the Spikes
+2. The Poison Apple (Eve & Serpentio in the garden of Eden)
+3. Villa Vampiria
+4. Consumed by Darkness
+5. The Mysteries that make you Bleed
+6. The Iconoclast Deathride
+7. The Crown for the Morbid
+8. Ravenous
+9. Autumn Equinox
+10. Winter Campaign 2002
+11. Evil Dead
+ 
+All music by God Dethroned, except 'Consumed by Darkness' by Macabre End and 'Evil Dead' by Death.
+All lyrics by The Serpent King, except 'The Crown for the Morbid' and 'The Mysteries that make you Bleed' by Jens van der Valk and 'The Iconoclast Deathride' by Beef.
+Keyboards by Danny A. Servaes.
+Recorded on unholy ground in the summer and fall of the year 2000.
+Engineered by Berthus Westerhuys, assisted by Peter de Koster.
+Produced by God Dethroned.
+Mixed by Berthus Westerhuys, Jens and The Serpent King.
+Artwork by Jeanne Potter.
+Photography by Suzette Luiken.
+
+© 2001 Metal Blade Records Inc.
+
+This album is dedicated to the memory of Aleister Crowley (1875 - 1947)
+
+### "Into the Lungs of Hell" 2003, Death Metal
+
+
+
+### "The Lair of the White Worm" 2004, Death Metal
+
+
+
+### "The Toxic Touch" 2006, Death Metal
+
+1. Faithless 
+2. Hating Life 
+3. 2014 
+4. Falling Down 
+5. On Wings Of Pestilence 
+6. The Day You Died 
+7. Away From Emptiness 
+8. Macabre World 
+9. Typhoid Mary 
+
+Line-Up: 
+Henri “T.S.K.” Sattler - vocals, guitars 
+Isaac Delahaye - guitars 
+Henk “Henke” Zinger - bass 
+Ariлn Van Weesenbeek - drums
+
 
 ## Отношения с другими группами
 

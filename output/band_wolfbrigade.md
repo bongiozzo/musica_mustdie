@@ -1,12 +1,33 @@
 # Wolfbrigade
 
-Дискография
-"Progression/Regression" 2002, Punk
-"In Darkness You Feel No Regrets" 2003, Punk
-"A D-beat Odyssey (EP)" 2004, Punk
-"Prey To The World" 2007, Punk
-"Comalive" 2008, Punk
-"Damned" 2012, Punk
+
+
+## Дискография
+
+### "Progression/Regression" 2002, Punk
+
+
+
+### "In Darkness You Feel No Regrets" 2003, Punk
+
+
+
+### "A D-beat Odyssey (EP)" 2004, Punk
+
+
+
+### "Prey To The World" 2007, Punk
+
+
+
+### "Comalive" 2008, Punk
+
+
+
+### "Damned" 2012, Punk
+
+
+
 
 ## Отношения с другими группами
 

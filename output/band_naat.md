@@ -1,7 +1,19 @@
 # Naat
 
-Дискография
-"Naat" 2016, Instrumental
+Instrumental post metal
+
+## Дискография
+
+### "Naat" 2016, Instrumental
+
+1.   Vostok
+2.   Falesia
+3.   Temo
+4.   Baltoro
+5.   Bromo
+6.   Dancalia
+7.   T’mor Sha
+
 
 ## Отношения с другими группами
 

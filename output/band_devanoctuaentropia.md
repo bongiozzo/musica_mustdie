@@ -1,8 +1,33 @@
 # Deva Noctua Entropia
 
-Дискография
-"Transerpentual" 2003, Black Metal
-"Be sinKing In Marshland" 2005, Black Metal
+
+
+## Дискография
+
+### "Transerpentual" 2003, Black Metal
+
+1.	 You will not kill (intro)	 
+2.	 Tranquil he slay's
+3.	 Two teeth
+4.	 A Sudden Interest for Snakes	 
+5.	 Anatasatana
+6.	 Here to Torment the Likes Of You
+7.	 Transerpentual
+8.	 No Hand Path
+9.	 All Shall Love Me and Despair
+
+### "Be sinKing In Marshland" 2005, Black Metal
+
+1.	 He Who Spoils Wise and Great	05:40	 
+2.	 The Old Vertebral	03:32	 
+3.	 Bright Tresh	04:47	 
+4.	 Wounded Kobold (Soul of Sabred)	05:15	 
+5.	 Four Days Under Water	04:34	 
+6.	 Lord Lies Food Flesh	05:39	 
+7.	 Marshland	05:00	 
+8.	 Easy Target for Any Hunter	04:20	 
+9.	 Black Golden Thorns	03:56
+
 
 ## Отношения с другими группами
 

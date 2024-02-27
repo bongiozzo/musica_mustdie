@@ -1,18 +1,147 @@
 # Misfits
 
-Дискография
-"Walk Among Us" 1982, Punk
-"Earth A.D." 1983, Punk
-"Legacy Of Brutality" 1985, Punk
-"Misfits (Compilation)" 1986, Punk
-"Evilive" 1987, Punk
-"Collection II (Compilation)" 1995, Punk
-"Static Age" 1997, Punk
-"American Psycho" 1997, Punk
-"Evillive II" 1998, Punk
-"Famous Monsters" 1999, Punk
-"Cuts From The Crypt (Compilation)" 2001, Punk
-"Project 1950" 2003, Punk
+
+
+## Дискография
+
+### "Walk Among Us" 1982, Punk
+
+
+
+### "Earth A.D." 1983, Punk
+
+1. Earth A.D.
+2. Queen Wasp
+3. Devilock
+4. Death Comes Ripping
+5. Green Hell
+6. Mommy,Can I Go Out & Kill Tonight
+7. Wolfsblood
+8. Demonomania
+9. Blood Feast
+10.Hellhound
+11.Die,Die My Darling
+
+ Glenn Danzig - Vocals
+ Doyle - Guitar
+ Jerry Only - Bass
+ Robo - Drums
+
+All Songs Written By MISFITS.
+Tracks 1-6: (p) 1983
+
+(p)&(c) 1988
+
+### "Legacy Of Brutality" 1985, Punk
+
+1. Static Age
+2. TV Casuality
+3. Hybrid Moments
+4. Spinal Remains
+5. Come Back
+6. Some Rind A Hate
+7. Theme For A Jackal
+8. Angel Fuck
+9. Who Killed Marilyn
+10.Where Eagles Dare
+11.She
+12.Halloween
+13.American Nightmare
+
+ Glenn Danzig - Vocals
+ Doyle - Guitar
+ Jerry Only - Bass
+ Robo - Drums
+
+All Songs Written By MISFITS.
+
+(p)&(c) 1985
+
+### "Misfits (Compilation)" 1986, Punk
+
+1. She
+2. Hollywood Babylon
+3. Bullet
+4. Horror Business
+5. Teenagers From Mars
+6. Night Of The Living Dead
+7. Where Eagles Dare
+8. Vampira
+9. I Turned Into Martian
+10.Skulls
+11.London Dungeon
+12.Ghouls Night Out
+13.Astro Zombies
+14.Mommy,Can I Go Out & Kill Tonight
+15.Die,Die My Darling
+16.Earth A.D.
+17.Devilock
+18.Death Comes Ripping
+19.Green Hell
+20.Wolfsblood
+
+All Songs Written By MISFITS.
+
+(p)&(c) 1978
+
+### "Evilive" 1987, Punk
+
+
+
+### "Collection II (Compilation)" 1995, Punk
+
+
+
+### "Static Age" 1997, Punk
+
+
+
+### "American Psycho" 1997, Punk
+
+1. Abiminable Dr. Phibes
+2. American Psycho
+3. Speak Of The Devil
+4. Walk among Us
+5. The Hunger
+6. From Hell They Came
+7. Dig Up Her Bones
+8. Blacklight
+9. This Island Earth
+10. Crimson Ghost
+11. Resurrection
+12. Day Of The Dead
+13. The Haunting
+14. Mars Attacks
+15. Hate The Living, Love The Dead
+16. Shining
+17. Don't Open Til' Doomsday
+
+Produced By Daniel Rey
+Mixed By Andy Wallace
+
+Doyle Wolfgang Von Frankenstein - Guitar
+Michale Graves - Vocals
+Dr. Chud - Drums
+Jerry Only - Bass
+
+(p)1997 Geffen Records
+
+### "Evillive II" 1998, Punk
+
+
+
+### "Famous Monsters" 1999, Punk
+
+
+
+### "Cuts From The Crypt (Compilation)" 2001, Punk
+
+
+
+### "Project 1950" 2003, Punk
+
+
+
 
 ## Отношения с другими группами
 

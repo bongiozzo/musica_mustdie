@@ -1,7 +1,21 @@
 # Krypt
 
-Дискография
-"Preludes to Death" 2008, Black Metal
+
+
+## Дискография
+
+### "Preludes to Death" 2008, Black Metal
+
+1.	 Worthless	05:38	 
+2.	 Krypt	07:28	 
+3.	 I Am God	04:19
+4.	 Misfits	05:52	 
+5.	 Preludes to Death	01:24	 
+6.	 Death	06:41	 
+7.	 Jeg Hater Deg!	06:53
+8.	 Death Satan Black Metal	04:40	 
+9.	 Hell's Grim Tyrant	07:35
+
 
 ## Отношения с другими группами
 

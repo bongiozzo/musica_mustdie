@@ -1,7 +1,13 @@
 # Beholder
 
-Дискография
-"The Legend Begins" 2001, Power Metal
+power symphonic metal band from Italy
+
+## Дискография
+
+### "The Legend Begins" 2001, Power Metal
+
+
+
 
 ## Отношения с другими группами
 

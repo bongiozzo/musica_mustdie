@@ -1,7 +1,21 @@
 # Lemures
 
-Дискография
-"A Black Ceremony in Honor to Sathanas" 2009, Black Metal
+
+
+## Дискография
+
+### "A Black Ceremony in Honor to Sathanas" 2009, Black Metal
+
+1. Yogsothoth	 
+2. Azathoth	 
+3. Black Elixir	 
+4. Ritual Of Blood 
+5. Baphomet	 
+6. Black Ceremony
+7. Lemures	 
+8. Tapes Blood Ritual	 
+9. Emperors
+
 
 ## Отношения с другими группами
 

@@ -1,13 +1,221 @@
 # Asgaard
 
-Дискография
-"Excellent Darkness Art [demo]" 1997, Black Metal
-"When the Twilight Set in Again" 1998, Black Metal
-"Ad Sidera, Ad Infinitum" 2000, Black Metal
-"Ex Oriente Lux" 2001, Black Metal
-"XIII Voltum Lunae" 2002, Black Metal
-"Lux in Tenebris [DVD]" 2004, Black Metal
-"EyeMDXtasy" 2004, Black Metal
+Gothic Sympho-Black from Poland, Lewin Brzeski
+
+## Дискография
+
+### "Excellent Darkness Art [demo]" 1997, Black Metal
+
+1. Recollection - 3:41  
+2. Black Veil - 3:27  
+3. Grasping God - 2:58  
+4. In Defiance of Fatefull Word - 3:51  
+5. Flowers of the Dark - 6:42 
+
+
+Recorded and mixed in Studio O'le (July 1995).
+Mastered by Wojciech Kostrzewa.
+Music by Bartlomiej Kostrzewa and Wojciech Kostrzewa (except "Grasping God" and "In Defiance of Fatefull Words" - Pawel Nafus).
+Lyrics by Bartlomiej Kostrzewa.
+
+Recording Line-up:
+Anna Markuszewska - vocal
+Bartlomiej Kostrzewa - vocal, guitar
+Pawel Nafus - guitar
+Wojciech Kostrzewa - keyboards
+Jacek Monkiewicz - bass
+Mateusz Czech - drums
+
+* * *
+The re-release from 2003 (limited to 100 copies) also contains previously unreleased bonus track "The 4th Knight of Revelation" (Rotting Christ cover).
+
+### "When the Twilight Set in Again" 1998, Black Metal
+
+1. Legend of Passing - 7:36
+2. The Sirens - 4:40
+3. 1168 - 4:27
+4. When the Twilight Set in Again - 5:35
+5. Mournful Suite of Dreams - 4:59
+6. Night of Desire - 6:19
+7. Nameless Land of Streams - 9:27
+
+
+Music by Bartek Kostrzewa and Wojciech Kostrzewa.
+Lyrics by Malgorzata Razaniak, Bartek Kostrzewa and Justyna.
+Recorded in Selani Studio (November 1997).
+
+Recording Line-up:
+Malgorzata Razaniak - vocal, flute
+Honorata Stawicka - violin
+Wojciech Kostrzewa - keyboards
+Bartek Kostrzewa - guitar, vocal
+Jacek Monkiewicz - bass
+Pawel Nafus - guitar
+Roman Golebiowski - drums 
+
+* * *
+Released: June 1998
+
+### "Ad Sidera, Ad Infinitum" 2000, Black Metal
+
+1. Sadness of Stony Angel (Imm Ensum Reliquus Tollor in Aethera) - 1:01
+2. The Way of the Secret Rapture (Pati Natae) - 8:14
+3. Mon Ange (Per Aspera ad Astra) - 7:12
+4. Love... Blood... & Eternity (Irreme Abilis Unda) - 5:00
+5. I've Brought a Flower for You... For Us (Moriar... Sic Astra Volunt) - 5:11
+6. ...About Love (Iniuria Solvit a Morem) - 7:38
+7. Let Me Die... (Funeris Audit Supremum Vale) - 6:05 
+
+
+Recording Line-up:
+Honorata Stawicka - violin
+Przemyslaw Olbryt - vocal
+Wojciech Kostrzewa - keyboards
+Bartlomiej Kostrzewa - guitar
+Jacek Monkiewicz - bass
+Roman Golebiowski - drums 
+
+Recorded in Manek Studio (November - December 1999).
+Mixed by Arek "Malta" Malczewski.
+Mastered by Piotr Madziar.
+Cover by Grzegorz Freliga. 
+Music by Bartlomiej and Wojciech Kostrzewa. 
+Lyrics by Przemyslaw Olbryt.
+
+### "Ex Oriente Lux" 2001, Black Metal
+
+1. Aegri Somnia - 1:30
+2. Primus in Orbe Deos Fecit Timor - 4:30
+3. Carpite Florem - 5:15
+4. Minaturka - 0:36
+5. Cogitemus Corpus Esse Mortale - 4:29
+6. Minaturka - 1:00
+7. Manibus Date Lilia Plenis - 2:45
+8. Habent Sua Fata Imagines - 3:21
+9. Minaturka - 0:32
+10. In Articulo Mortis - 5:21
+11. Quem di Diligunt, Adulescens Moritur - 5:12
+12. Minaturka - 
+13. Etiam Perire Ruinae - 7:42
+
+
+Recorded and mixed in Hendrix Studio (July 2001).
+Mixed and mastered by Arek Malczewski.
+Fotos by Wojciech Malek.
+Music by Bartlomiej and Wojciech Kostrzewa.
+Lyrics by Przemyslaw Olbryt.
+
+Recording Line-up:
+Honorata Stawicka - violin
+Przemyslaw Olbryt - vocal
+Wojciech Kostrzewa - keyboards
+Bartlomiej Kostrzewa - guitar
+Jacek Monkiewicz - bass
+Roman Golebiowski - drums 
+
+* * *
+Release date: September 2003
+
+### "XIII Voltum Lunae" 2002, Black Metal
+
+1. Mare Nectapis - 5:14  
+2. Mare Crisium - 5:36  
+3. Mare Tranquillitatis - 5:16  
+4. Mare Frigoris - 5:03  
+5. Shin - 1:15  
+6. Mare Procellarum - 6:23  
+7. Aleph - 1:37  
+8. Mare Nubium - 7:09  
+9. Lamed - 1:15  
+10. Mare Serenitatis - 7:55 
+
+
+Recorded, mixed and mastered in Hertz Studio (July - September 2002).
+Mixed and mastered by Wojciech and Slawek.
+Cover by Grzegorz Freliga.
+Fotos by Wojciech Malek. 
+Music by Bartlomiej and Wojciech Kostrzewa. 
+Lyrics by Przemyslaw Olbryt.
+
+Recording Line-up:
+Honorata Stawicka - violin
+Przemyslaw Olbryt - vocal
+Wojciech Kostrzewa - keyboard
+Bartlomiej Kostrzewa - guitar
+Jacek Monkiewicz - bass
+Roman Golebiowski - drums 
+
+* * *
+Release date: October 5th, 2002
+
+### "Lux in Tenebris [DVD]" 2004, Black Metal
+
+1. Mare Nectapis   
+2. Mare Tranquillitatis   
+3. Love, Blood and Eternity   
+4. Primus in Orbe Deos Fecit Timor   
+5. Carpite Florem   
+6. The Way of the Secret Rapture   
+7. Cogitemus Corpus Esse Mortale   
+8. Mare Nubium   
+9. Quem di Diligunt, Adulescenes Moritur   
+10. Mare Serenitatis   
+11. Mournful Suite of Dreams (Live Video)   
+12. 1168 (Live Video)   
+13. The Way of the Secret Rapture   
+14. Manibus Date Lilia Plenis   
+15. Mare Serenitatis   
+16. Mare Procellarum (Break the Darkness Remix)   
+
+
+Tracks # 1-10 were recorded in Studio Krzemionki, Krakow, October 2002.
+Tracks # 11-16 are bonus tracks.
+
+Produced by Tomasz Dziubinski, Metal Mind Productions.
+
+Recording Line-up:
+Przemyslaw Olbryt - vocal
+Bartlomiej Kostrzewa - guitar
+Jacek Monkiewicz - bass
+Roman Golebiowski - drums
+Wojciech Kostrzewa - keyboards
+Honorata Stawicka - violin
+
+### "EyeMDXtasy" 2004, Black Metal
+
+1. OriEnthral - 2:45  
+2. Lunatic Asylum - 5:02
+3. Eyes ov Thy Soul - 8:38
+4. Mystery ov Tzar's Visionaire, Act I - 2:11
+5. Mystery ov Tzar's Visionaire, Act II - 6:45
+6. Infernal Mask Ceremony - 6:46
+7. The Grievance Enigma - 5:53
+8. I Am the Ecstasy - 8:44
+
+
+Released with bonus video-clip: "Mystary ov Tzar's Visionaire Act II".
+
+Recorded in Studio Hertz and Studio Hendrix (June - September 2004).
+Mixed in Studio Hendrix (September 2004) by Arek "Malta" Malczewski and
+Wojciech Kostrzewa.
+Music by Bartlomiej and Wojciech Kostrzewa.
+Lyrics by Przemyslaw Olbryt (except "Eyes ov Thy Soul, The Grievance Enigma" - Humberto Costa)
+Arranged by Bartlomiej and Wojciech Kostrzewa.
+Mastered by Arek Malczewski .
+Cover by Agnieszka Szuba.
+Fotos by Sebastian Stelmaszyk.
+Video by Sebastian Stelmaszyk and Zbigniew Twardowski.
+
+Recording Line-up:
+Przemyslaw Olbryt - vocal
+Bartlomiej Kostrzewa - guitar
+Jacek Monkiewicz - bass
+Roman Golebiowski - drums
+Wojciech Kostrzewa - keyboard 
+
+* * *
+Release date: October 25th, 2004
+
 
 ## Отношения с другими группами
 

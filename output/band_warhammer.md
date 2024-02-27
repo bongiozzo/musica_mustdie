@@ -1,10 +1,38 @@
 # Warhammer
 
-Дискография
-"The Winter Of Our Discontent" 1998, Black Metal
-"Deathchrist" 1999, Black Metal
-"The Doom Messiah" 2000, Black Metal
-"Curse Of The Absolute Eclipse" 2002, Black Metal
+100% Hellhammer / Celtic Frost worship
+
+## Дискография
+
+### "The Winter Of Our Discontent" 1998, Black Metal
+
+
+
+### "Deathchrist" 1999, Black Metal
+
+
+
+### "The Doom Messiah" 2000, Black Metal
+
+
+
+### "Curse Of The Absolute Eclipse" 2002, Black Metal
+
+1. Towards The Temples Of Mandharh (intro)
+2. Fall Of The Iconoclast
+3. Necrophobia
+4. Masters Of Fatalism
+5. Funeral Rites (instrumental)
+6. The Conqueror Worm
+7. Curse Of The Sabbath (Necronom's Evocation)
+8. Crush Of The Disbeliever
+9. The Grave Hill
+10. Inmates Of The Fire
+11. Infernal Tempest
+12. The Claw Of Religion
+13. Dawn Of The Cadaver Ghoul
+14. Fear The Reaper (Cold And Dying World Part 2)
+
 
 ## Отношения с другими группами
 

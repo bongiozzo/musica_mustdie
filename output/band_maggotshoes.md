@@ -1,9 +1,59 @@
 # Maggot Shoes
 
-Дискография
-"Enjoy/Life" 1998, Deathcore
-"A Shoe Full Of Maggots" 2006, Deathcore
-"[f]EAR tERRORism" 2008, Deathcore
+
+
+## Дискография
+
+### "Enjoy/Life" 1998, Deathcore
+
+1. Regulator E    
+2. Hauptsach power    
+3. Bloody sperm…for rotting flesh      
+4. Shit in the pussy    
+5. Thousands Sounds Of Unrhythm      
+6. Kleine Drecksau     
+7. From Fear To Tear    
+8. Subhuman District (Sterile Cybershit Version) 
+9. Subhuman District  
+10. Repulsive      
+11. The 7-7-7 Man vs. The 6-6-6 Man     
+12. Sore Thriller      
+13. Sarcastic Instability  
+
+### "A Shoe Full Of Maggots" 2006, Deathcore
+
+1. Green Help  01:13    
+2. Kill the bong killer  02:16   
+3. Krampfkopf  02:26 
+4. I don't like it  03:04 
+5. MSSM  01:09    
+6. Scheisstruck  01:59  
+7. Wife?  01:55   
+8. Bored with you  03:23  
+9. Rubber's revenge  02:01 
+10. Screwing (makes me mad)  03:46  
+11. Offline  02:25    
+12. Irritate Thoughts  03:46    
+13. More than words  12:31 
+
+### "[f]EAR tERRORism" 2008, Deathcore
+
+1. fear terrorism  02:22   
+2. dirt style  01:41  
+3. cause for riot  02:11  
+4. mr. brown  01:21 
+5. dog shit biscuit  01:25   
+6. your li(f)e  01:37  
+7. volcano head  01:32  
+8. nosegrind  02:09 
+9. privacy souled out  03:07
+10. shut up!  02:11  
+11. killer&#178;  01:39    
+12. spencer's bud  01:28    
+13. wanker  01:04    
+14. snuff  02:00  
+15. grrrnn...!?  04:14 
+
 
 ## Отношения с другими группами
 

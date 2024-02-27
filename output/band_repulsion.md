@@ -1,7 +1,37 @@
 # Repulsion
 
-Дискография
-"Horrified" 1989, Grindcore
+
+
+## Дискография
+
+### "Horrified" 1989, Grindcore
+
+1. The Stench Of Burning Death
+2. Eaten Alive
+3. Acid Bath
+4. Slaughter Of Innocent
+5. Decomposed
+6. Radiation Sickness
+7. Splattered Cadavers
+8. Festering Boils
+9. Pestilent Decay
+10.Crematorium
+11.Driven To Insanity
+12.Six Feet Under
+13.Bodily Dismemberment
+14.Repulsion
+15.The Lurking Fear
+16.Black Breath
+17.Maggots In Your Coffin
+18.Horrified
+
+ Scott - Vocals & Bass
+ Matt - Guitar
+ Aaron - Guitar
+ Dave Grave - Drums
+
+(p)&(c) 1989 EARACHE Records
+
 
 ## Отношения с другими группами
 

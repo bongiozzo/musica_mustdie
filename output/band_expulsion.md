@@ -1,8 +1,55 @@
 # Expulsion
 
-Дискография
-"A Bitter Twist Of Fate" 1993, Death Doom
-"Overflow" 1994, Death Doom
+member TIAMAT
+
+## Дискография
+
+### "A Bitter Twist Of Fate" 1993, Death Doom
+
+1. With Aged Hands
+2. Lain Hidden
+3. In Whirling Dust
+
+ Fredrik Thхrnquist - Lead Vocals
+ Chris Vowden - Lead Guitar
+ Stefan Lagergren - Rhythm & Acoustic Guitars
+ Anders Holmberg - Bass
+ Calle Fransson - Drums
+
+Produced By EXPULSION.
+Engineered By Martin Van Schmalensee.
+Mixed By Peter Edlund.
+Recorded & Mixed March-April 1993 At City Recording,
+Stockholm.
+
+(p)&(c) 1993 Dodsmetalfirma Expulsion
+
+### "Overflow" 1994, Death Doom
+
+1. Don't Leave Me To Bleed
+2. Let The Raven's Fly
+3. Fallen
+4. With Aged Hands
+5. Dreamvoyage
+6. The Other Side
+7. The Anatomical Range
+8. As The Last One Leaves
+9. At The Madness End *
+10. Overflow
+
+ Fredrik Thornquist - Lead Vocals
+ Chris Vowden - Lead Guitar
+ Stefan Lagergren - Rhythm & Acoustic Guitars
+ Anders Holmberg - Bass
+ Calle Fransson - Drums
+ Johan Edlund - Additional Vocals
+
+Produced By EXPULSION.
+Engineered By Martin Van Schmalensee.
+Recorded & Mixed May-July 1994 At City Recording, Stockholm.
+
+(p)&(c) 1994 GODHEAD Records
+
 
 ## Отношения с другими группами
 

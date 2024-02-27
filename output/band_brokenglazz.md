@@ -1,8 +1,34 @@
 # Broken Glazz
 
-Дискография
-"Divine" 1991, Speed Metal
-"Withdraw From Reality" 1992, Speed Metal
+
+
+## Дискография
+
+### "Divine" 1991, Speed Metal
+
+1. Faces On The Floor	 
+2. Divine	 
+3. Someday	 
+4. Electronic Brain	 
+5. Fun House	 
+6. Mindless Transparency	 
+7. Life Gone Wrong
+8. Promised Time
+
+### "Withdraw From Reality" 1992, Speed Metal
+
+1. Lady War
+2. 7.7.2
+3. A Foot in the Grave
+4. Colours in Grey
+5. The Legion
+6. Starry Sky	
+7. Neverworld
+8. Still Life
+9. Empty
+10. I've Been Betrayed
+11. I Love It Loud (Kiss Cover)
+
 
 ## Отношения с другими группами
 

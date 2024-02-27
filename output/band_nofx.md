@@ -1,18 +1,57 @@
 # NOFX
 
-Дискография
-"Liberal Animation" 1988, Punk
-"S&M Airlines" 1989, Punk
-"Ribbed" 1991, Punk
-"White Trash, Two Heebs and a Bean" 1992, Punk
-"Punk in Drublic" 1994, Punk
-"Heavy Petting Zoo / Eating Lamb" 1996, Punk
-"So Long and Thanks for All the Shoes" 1997, Punk
-"Pump up the Valuum" 2000, Punk
-"The War on Errorism" 2003, Punk
-"Wolves in Wolves' Clothing" 2006, Punk
-"Coaster" 2009, Punk
-"Self Entitled" 2012, Punk
+
+
+## Дискография
+
+### "Liberal Animation" 1988, Punk
+
+
+
+### "S&M Airlines" 1989, Punk
+
+
+
+### "Ribbed" 1991, Punk
+
+
+
+### "White Trash, Two Heebs and a Bean" 1992, Punk
+
+
+
+### "Punk in Drublic" 1994, Punk
+
+
+
+### "Heavy Petting Zoo / Eating Lamb" 1996, Punk
+
+
+
+### "So Long and Thanks for All the Shoes" 1997, Punk
+
+
+
+### "Pump up the Valuum" 2000, Punk
+
+
+
+### "The War on Errorism" 2003, Punk
+
+
+
+### "Wolves in Wolves' Clothing" 2006, Punk
+
+
+
+### "Coaster" 2009, Punk
+
+
+
+### "Self Entitled" 2012, Punk
+
+
+
 
 ## Отношения с другими группами
 

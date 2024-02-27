@@ -1,23 +1,658 @@
 # Kamelot
 
-Дискография
-"Eternity" 1995, Progressive
-"Dominion" 1996, Progressive
-"Siege Perilous" 1998, Progressive
-"The Fourth Legacy" 2000, Power Metal
-"The Expedition (live)" 2000, Power Metal
-"Karma" 2001, Power Metal
-"Epica" 2003, Power Metal
-"The Black Halo" 2005, Power Metal
-"One Cold Winter's Night (2DVD/2CD)" 2006, Power Metal
-"One Cold Winter's Night (2CD)" 2006, Power Metal
-"Ghost Opera (single)" 2007, Progressive
-"Ghost Opera" 2007, Progressive
-"Poetry For the Poisoned" 2010, Progressive
-"Sacrimony (single)" 2012, Progressive
-"Silverthorn" 2012, Progressive
-"Veil of Elysium (single)" 2015, Progressive
-"Haven" 2015, Progressive
+Power Progressive
+
+## Дискография
+
+### "Eternity" 1995, Progressive
+
+1.    Eternity - 5:41
+2.    Black Tower - 4:06
+3.    Call of the Sea - 5:15
+4.    Proud Nomad - 4:52
+5.    Red Sands - 4:09
+6.    One of the Hunted - 5:26
+7.    Fire Within - 4:54
+8.    Warbird - 5:22
+9.    What About Me - 4:20
+10.    Etude Jongleur - 0:50
+11.    The Gleeman - 6:19
+
+
+Mark Vanderbilt - vocal
+Thom Youngblood - guitars
+Glenn Barry - bass
+Dave Pavlicko - keyboards
+Richard Warner - drums
+
+Produced and Engineered by Jim Morris for D.U.A.F. Productions.
+Co-Produced by Kamelot. Recorded and Mixed at Morrisound Studios, Tampa, FL.
+Mastered at Morrisound,
+Assistants - Dave Wehner, Steve Heritage, Jeff McDonald,
+Management - Dustin Hardman.
+
+Entertaiment, Tampa, FL
+Photography - Buni Zubaly
+Clothing - Chrissy Orsini
+Additional Keyboards - Howard Helm
+Design and Illustration - Rachel Youngblood
+Back Vocals by Leroy Meyers & Todd Plant
+
+Music by Thom Youngblood
+Lyrics by Richard Warner
+All songs published by
+&copy; 1995 Dark Wings
+&copy; Throne Music (ASCAP)
+
+TO BECOME A KNIGHT OF THE ROUND
+
+Send a SASE to:
+KOTR
+P.O. Box 270172
+Tampa, FL USA 33688
+
+### "Dominion" 1996, Progressive
+
+1. Ascension - 1:25
+2. Heaven - 3:39
+3. Rise Again - 4:06
+4. One Day I'll Win - 5:39
+5. We Are Not Separate - 3:45
+6. Birth of a Hero - 5:17
+7. Creation - 5:06
+8. Sin - 3:35
+9. Song of Roland - 4:54
+10. Crossing Two Rivers - 4:29
+11. Troubled Mind - 4:39
+
+
+Vocals: Mark Vanderbilt
+Guitars: Thomas Youngblood
+Bass: Glenn Barry
+Keyboards: Dave Pavlicko
+Drums: Richard Warner
+
+Recorded and Mixed at Morrisound Studios,
+Tampa, Summer 1996
+Produced and Engineered by Jim Morris,
+for D.U.A.F. Productions
+Assistants: Dave Wehner, Brian Benscoter, Steve Heritage
+Management: Dustin Hardman Entertaiment
+Photography: Buni Zubaly
+Art + Design: Derek Gores
+Graphic Consultation: Rachel Youngblood
+
+Band Residence: USA
+
+&copy; 1996 Stereo Jasrac
+&copy; 1997 Modern Music/Dark Wings/Throne Music/Noise Rec.
+
+### "Siege Perilous" 1998, Progressive
+
+1. Providence
+2. Millennium 
+3. King's Eyes
+4. Expedition 
+5. Where I Reign
+6. Parting Visions
+7. Once A Dream
+8. Rhydin 
+9. Irea 
+10. Siege 
+
+
+
+Vocals
+Roy Khan 
+
+Guitars - lead, rhythm and acoustic 
+Thomas Youngblood
+
+Bass
+Glenn Barry
+
+Drums
+Casey Grillo
+
+Keyboards
+David Pavlicko
+
+
+Released by:
+Noise Records/Modern Music 
+
+Produced by:
+Kamelot
+
+Recorded (at):
+Morrisound Studios
+Tampa, Florida USA
+
+### "The Fourth Legacy" 2000, Power Metal
+
+1. New Allegiance 
+2. The Fourth Legacy 
+3. Silent Goddess 
+4. Desert Reign 
+5. Nights of Arabia  
+6. The Shadow of Uther 
+7. A Sailorman's Hymn
+8. Alexandria  
+9. The Inquisitor 
+10. Glory  
+11. Until Kingdom Come 
+12. Lunar Sanctum 
+13. Can You Remember (Live) 
+
+
+
+Vocals
+Roy Khan 
+
+Guitars 
+Thomas Youngblood
+
+Bass
+Glenn Barry
+
+Drums
+Casey Grillo
+
+
+ All music, lyrics and arrangements by Youngblood/Khan
+except 6 & 9 - music by Youngblood/Barry/Khan
+
+New Allegiance arranged by Kamelot based on "Йclipse" - a composition of Renй Dupйrй
+
+Recorded at Gate Studio, Wolfsburg, Germany and Pathway Sound Studios, Wolfsburg Aug/Sept 1999
+Mixed and Mastered by Sascha Paeth at Pathway Sound Studios - October 1999
+
+Cover Art/Design - Derek Gores
+
+Photography - Thomas Kuschewski
+
+Guest Musicians:
+Miro: 
+All Keyboards and orchestral arrangements
+
+Thomas Rettke: 
+Background Vox on "Nights of Arabia" , "Until Kingdom Come" & "Alexandria"
+
+Dirk Buirneberg and Robert Hunecke-Rizzo: 
+Additional Drums
+
+Sascha Paeth: 
+Additional Guitars
+
+Rannveig Sif Sigurdardуttir: 
+female voice on "A Sailorman's Hymn"
+
+Cinzia Rizzo: 
+female voice on "Nights of Arabia"
+
+Farouk Asjadi: 
+flute & additional percussion on "Desert Reign"
+
+D-bass on "Nights of Arabia" by Andre Neygenfind
+
+Strings sections by Fallersleben String Quartet
+
+Flute by Simon McTavish 
+ 
+
+
+
+### "The Expedition (live)" 2000, Power Metal
+
+1. Until Kingdom Come 
+2. Expedition  
+3. The Shadow of Uther 
+4. Millennium  
+5. A Sailorman's Hymn 
+6. The Fourth Legacy 
+7. Call of the Sea
+8. Desert Reign/Nights of Arabia 
+    Rare Tracks:  
+9. We Three Kings 
+10. One Day 
+11. We Are Not Separate 
+
+
+
+
+Released by:
+Noise Records / Modern Music
+
+Recorded:
+Recorded by Sascha Paeth from concerts in Germany and Greece April 2000.
+Mixed and mastered by Sascha Paeth at Pathway Sound Wolfsburg Germany.
+Assistants on site: Ralf Schindler, Thomas Kuschewski, Bonni "Q-ryched!"Bilski 
+
+
+Vocals
+Roy Khan 
+
+Guitars, Backing vocals 
+Thomas Youngblood
+
+Bass
+Glenn Barry
+
+Drums
+Casey Grillo
+
+
+Guest keyboards
+Gьnter Werno
+
+Assistants on site: Ralf Schindler, Thomas Kuschewski, Bonni "Q-ryched!"Bilski 
+
+* Recorded in 1998 at Morrisound Studios, Tampa, Florida - Engineered By Howard Helm. Keyboards by Howard Helm 
+
+** Recorded in 2000 at Pathway Studios Wolfsburg, Germany - Engineered by Sascha Paeth. Keyboards by Miro 
+  
+Intro by Hans Zimmer 
+
+All songs © Dark Wings except: Intro by Hans Zimmer, arranged by Kamelot, © Neue Welt Musikverlag. 
+
+Photos by Axel Jusseit, Claudia Ehrhardt, Edwin Van Hoof and Kamelot. 
+Antique maps: © Photo Essentials.
+Artwork & Layout by Maren/Noise Graphics
+Cover photos by Axel Jusseit. 
+
+
+
+### "Karma" 2001, Power Metal
+
+1. Regalis Apertura 
+2. Forever 
+3. Wings of Despair 
+4. The Spell 
+5. Don't You Cry 
+6. Karma 
+7. The Light I Shine on You 
+8. Temples of Gold 
+9. Across the Highlands 
+    Elizabeth: 
+10. I. Mirror Mirror 
+11. II. Requiem for the Innocent  
+12. III. Fall From Grace 
+13. Ne Pleure Pas (French Bonus) 
+13. Once and Future King (Japan Bonus)
+
+
+ Released by:
+Sanctuary Records 
+
+Produced by:
+Sascha Paeth and Miro
+
+Recorded (at):
+Gate Studio, Wolfsburg, Germany and Pathway Sound Studios, Wolfsburg 
+   
+   
+   
+Vocals
+Roy Khan 
+
+Guitars - lead, rhythm and acoustic 
+Thomas Youngblood
+
+Bass
+Glenn Barry
+
+Drums
+Casey Grillo
+
+
+
+ All music, lyrics and arrangements by Youngblood/Khan 
+*except "Regalis Apertura" by Miro 
+
+Recorded at Gate Studio, Wolfsburg, Germany and Pathway Sound Studios, Wolfsburg 
+December 2000 - March 2001 
+Mixed and Mastered by Sascha Paeth at Pathway Sound Studios - February 2001
+
+Cover Art/Design - Derek Gores
+
+Photography - Kimberly Grillo
+
+Management - KMI Entertainment Worldwide kmiworld@kamelot.com
+
+
+Travel by Mondial/Berlin and Travelworld/Tampa 
+
+
+
+
+Guest musicians:
+Miro:
+Keyboards, Orchestral arrangements
+
+Sascha Paeth:
+additional guitars
+
+Farouk Asjadi:
+shakuhachi
+
+Liv Nina Mosven:
+opera vocals on "Requiem" and "Fall From Grace"
+
+Background Vocals:
+Olaf Hayer, Cinzia Rizzo, Robert Hunecke-Rizzo, Miro
+
+String Quartet:
+Tobias Rempe - 1st violin
+Corinna Guthmann - 2nd violin
+Marie-Theres Stumpf - viola
+Patrick Sepec - cello 
+
+
+
+
+
+
+### "Epica" 2003, Power Metal
+
+1. Prologue 
+2. Center of the Universe 
+3. Farewell 
+4. Interlude I (Opiate Soul) 
+5. The Edge of Paradise 
+6. Wander 
+7. Interlude II (Omen) 
+8. Descent of the Archangel 
+9. Interlude III (At the Banquet) 
+10. A Feast for the Vain 
+11. On the Coldest Winter Night 
+12. Lost & Damned 
+13. Helena's Theme 
+14. Interlude IV (Dawn) 
+15. The Mourning After (Carry On)
+16. III Ways to Epica 
+17. Snow*
+
+* Limited Edition Bonus Track 
+
+
+
+Roy Khan - Vocals
+Thomas Youngblood - Guitars, Backing vocals
+Glenn Barry - Bass
+Casey Grillo - Drums
+
+
+Guest Musicians:
+Miro- Keyboards and Orchestral arrangements
+Mari- female vocals 
+Sascha Paeth - additional guitars
+Luca Turilli - solo guitar 1 on Descent
+Gunter Werno- Keyboards
+Jan P. Ringvold - Keyboards
+Choirs vocalists- Robert Hunecke-Rizzo, Cinzia Rizzo, Annie, Herbie Langhans
+Fabricio Alejandro - bandeneon on Lost & Damned
+Rodenberg Symphony- various 
+Olaf Reitmeier- acoustic bass on The Coldest Winter Night
+Robert Huneckke Rizzo -jembe on The Coldest Winter Night
+John Wilton - Master of Ceremonies on At the Banquet, and River Spirit in Helena's Theme 
+Andre Neygenfind - D-bass On The Coldest Winter Night
+Additional background vocals by Thomas Youngblood
+
+
+
+Produced and engineered by: Sascha Paeth and Miro
+Mixed and mastered by: Sascha Paeth at Pathway Studios, Germany
+Recorded at Gate Studio/ Wolfsburg, Germany, June-October 2002
+Additional engineering by Olaf Reitmeier, Philip Colodetti, and Casey Grillo
+Additional recordings at Apple Recording Studios and Braden River Studios, Florida. 
+Cover Art- Derek Gores 
+Photography- Kim Grillo 
+Booklet Layout- Marisa Jacobi and Mathias Janke
+Digital graphics and photo design - Mathias Janke
+
+
+### "The Black Halo" 2005, Power Metal
+
+1. March of Mephisto 05:29  
+2. When the Lights Are Down 03:41  
+3. The Haunting (Somewhere in Time) 05:48 
+4. Soul Society 04:17  
+5. Interlude I: Dei Gratia 00:57
+6. Abandoned 04:07  
+7. This Pain 03:59  
+8. Moonlight 05:10 
+9. Interlude II: Un Assassinio Molto Silenzioso 00:40  
+10. The Black Halo 03:43
+11. Nothing Ever Dies 04:45
+12. Memento Mori 08:54  
+13. Interlude III: Midnight - Twelve Tolls for a New Day 01:21 
+14. Serenade 04:32 
+15. Epilogue (2:46)
+16. Soul Society (Radio Edit Version) (3:52)
+
+
+Roy S. Khan - vocals 
+Thomas Youngblood - guitars 
+Glenn Barry - bass
+Casey Grillo - drums 
+
+Features guest appearances by Shagrath (DIMMU BORGIR), Jens Johansson
+(STRATOVARIUS), Simone Simons (EPICA), Mari (MASQUERAID), as well as the
+KAMELOT choir, featuring Herbie Langhans (SEVENTH AVENUE), Amanda
+Somerville-Scharf, Miro, Gerit Gцbel, Thomas Rettke (HEAVEN'S GATE) and
+Elisabeth Kjaernes, among others.
+
+### "One Cold Winter's Night (2DVD/2CD)" 2006, Power Metal
+
+DVD 1 
+
+1. Intro: Un Assasino Molto Silenzioso
+2. The Black Halo
+3. Soul Society
+4. The Edge of Paradise
+5. Center of the Universe
+6. Nights Of Arabia
+7. Abandoned
+8. Forever
+9. Keyboard Solo
+10. The Haunting
+11. Moonlight
+12. When The Lights Are Down
+13. Elizabeth (Part I, II & III)
+14. March Of Mephisto
+15. Karma
+16. Drum Solo
+17. Farewell
+18. Curtain call/Outro 
+
+DVD 2 
+
+Behind the Scenes, Band interviews, Making of 'The Haunting', Up-close interview with Thomas Youngblood at home, Casey Grill at ddrum, Interview with Simone Simons from EPICA, Huge photo gallery, Band Bio and Top 5, Discography 
+
+Videos - 'The Haunting', 'March Of Mephisto', 'March Of Mephist' (uncensored), 'Serenade', 'March Of Mephisto' live at Sweden Rock 2006
+
+### "One Cold Winter's Night (2CD)" 2006, Power Metal
+
+
+
+### "Ghost Opera (single)" 2007, Progressive
+
+1. Ghost Opera 
+
+Strictly Limited to fans on the European Tour March/April/May 2007 
+
+Roy Sжtre "Khan" Khantatat - Vocals  (ex-Conception)
+Thomas Youngblood - Guitars (Ian Parry)
+Glenn Barry - Bass
+Casey Grillo - Drums (Ian Parry, Edu Falaschi)
+Oliver Palotai - Keyboards (Circle II Circle, Doro, ex-Blaze (UK))
+
+### "Ghost Opera" 2007, Progressive
+
+1. Solitaire   
+2. Rule The World   
+3. Ghost Opera  
+4. The Human Stain   
+5. Blьcher   
+6. Love You to Death   
+7. Up Through the Ashes   
+8. Mourning Star   
+9. Silence of the Darkness   
+10. Anthem   
+11. EdenEcho 
+12. The Pendulous Fall (Limited Edition Bonus Track) 
+
+Roy Sжtre "Khan" Khantatat - Vocals  (ex-Conception)
+Thomas Youngblood - Guitars (Ian Parry)
+Glenn Barry - Bass
+Casey Grillo - Drums (Ian Parry, Edu Falaschi)
+Oliver Palotai - Keyboards (Circle II Circle, Doro, ex-Blaze (UK))
+
+### "Poetry For the Poisoned" 2010, Progressive
+
+1. The Great Pandemonium 04:24  
+2. If Tomorrow Came 03:58  
+3. Dear Editor 01:18  
+4. The Zodiac 04:00  
+5. Hunter's Season 05:34  
+6. House On A Hill 04:14  
+7. Necropolis 04:16  
+8. My Train Of Thoughts 04:08  
+9. Seal Of Woven Years 05:13  
+10. Poetry For The Poisoned - Incubus 02:57  
+11. Poetry For The Poisoned, Pt. 2 - So Long 03:24  
+12. Poetry For The Poisoned, Pt. 3 - All Is Over 01:03  
+13. Poetry For The Poisoned, Pt. 4 - Dissection 02:00  
+14. Once Upon A Time 03:45 
+
+
+
+
+Line-up:
+Roy Saetre "Khan" Khantatat - Vocals
+Thomas Youngblood - Guitars
+Sean Tibbetts - Bass
+Casey Grillo - Drums
+Oliver Palotai - Keyboards
+
+Guest members:
+Simone Simons - Vocals (on "House On A Hill", "Poetry For The Poisoned")
+Bjorn "Speed" Strid - Vocals (on "The Great Pandemonium")
+Jon Oliva - Vocals (on "The Zodiac")
+Gus G. - Guitars
+Amanda Somerville - Choir (on "Poetry For The Poisoned")
+
+Recorded at the the Gate Studio, Wolfsburg, Germany, in 2009/2010. Produced by
+Sascha Paeth and Miro. Additional tracking took place in Tampa, Florida, as well
+as various studios in Sweden, Greece and USA.
+
+The artwork was created by many artists, including Spiros "Seth" Antoniou,
+Natalie Shau and Michal Loranc.
+
+Available in three versions:
+- Regular CD edition
+- Digipak CD with bonus DVD
+- Two-LP gatefold vinyl edition
+
+Bonus DVD material:
+- "The Great Pandemonium" (video)
+- Exclusive and in-depth interviews with each Kamelot member
+- "Pick and Play" for the song "The Great Pandemonium"
+- "Poetry For The Poisoned" background images
+- Exclusive video footage from Norway Rock Festival 2010
+- Bonus song "House On A Hill" (uncut version)
+
+Bonus tracks:
+15. Where The Wild Roses Grow (Limited edition bonus track) (Nick Cave Cover)
+16. Thespian Drama (Japanese edition bonus track) 
+
+### "Sacrimony (single)" 2012, Progressive
+
+01. Sacrimony (Angel of Afterlife) 4:45
+
+### "Silverthorn" 2012, Progressive
+
+1. Manus Dei 2:12  
+2. Sacrimony (Angel Of Afterlife) 4:39  
+3. Ashes To Ashes 3:58  
+4. Torn 3:51  
+5. Song For Jolee 4:33  
+6. Veritas 4:34  
+7. My Confession 4:33  
+8. Silverthorn 4:51  
+9. Falling Like The Fahrenheit 5:06  
+10. Solitaire 4:56  
+11. Part III - The Journey 8:52  
+12. Continuum 1:48  
+
+
+Produced and recorded at LeFink Studios - Duisburg
+ 
+Deluxe box set has a different artwork, released as a two cd set. Second cd tracklist as follows:
+01. Manus Dei 
+02. Sacrimony (Angel Of Afterlife) (instrumental version)
+03. Kismet
+04. Ashes To Ashes (instrumental version)
+05. Torn (instrumental version)
+06. Song For Jolee (instrumental version)
+07. Veritas (instrumental version)
+08. My Confession (instrumental version)
+09. Silverthorn (instrumental version)
+10. Falling Like The Fahrenheit (instrumental version)
+11. Solitaire (instrumental version)
+12. Prodigal Son (instrumental version)
+Part I: Funerale
+Part II: Burden Of Guilt - The Branding
+Part III: The Journey
+13. Continuum 
+14. Grace (bonustrack) 
+
+Thomas Youngblood - guitars
+Sean Tibbetts - bass
+Casey Grillo - drums
+Oliver Palotai - keyboards
+Tommy Karevik - vocals 
+
+
+### "Veil of Elysium (single)" 2015, Progressive
+
+1. Veil of Elysium  03:54 
+
+### "Haven" 2015, Progressive
+
+Disc 1  
+1. Fallen Star  04:39   
+2. Insomnia  04:13
+3. Citizen Zero  05:49  
+4. Veil of Elysium  03:54
+5. Under Grey Skies  04:52  
+6. My Therapy  04:26   
+7. Ecclesia  00:44    
+8. End of Innocence  03:49    
+9. Beautiful Apocalypse  04:25   
+10. Liar Liar (Wasteland Monarchy)  05:54    
+11. Here'&#153;s to the Fall  04:04   
+12. Revolution  04:49  
+13. Haven  02:14    
+  
+Disc 2  
+1. End of Innocence (Piano Version)     
+2. Veil of Elysium (Acoustic Version)     
+3. Fallen Star (Orchestral Version)     
+4. Here's to the Fall (Orchestral Version)  
+5. My Therapy (Orchestral Version)    
+6. Fallen Star (Instrumental)     
+7. Insomnia (Instrumental)    
+8. Citizen Zero (Instrumental)    
+9. Veil of Elysium (Instrumental)   
+10. Under Grey Skies (Instrumental)    
+11. My Therapy (Instrumental)   
+12. End of Innocence (Instrumental)   
+13. Beautiful Apocalypse (Instrumental)   
+14. Liar Liar (Wasteland Monarchy) (Instrumental)    
+15. Revolution (Instrumental)  
+
+
 
 ## Отношения с другими группами
 

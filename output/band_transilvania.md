@@ -1,7 +1,13 @@
 # Transilvania
 
-Дискография
-"The Gates of Forest (demo)" 2003, Black Metal
+sympho-black metal from russia (chita)
+
+## Дискография
+
+### "The Gates of Forest (demo)" 2003, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

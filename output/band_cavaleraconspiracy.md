@@ -1,8 +1,63 @@
 # Cavalera Conspiracy
 
-Дискография
-"Inflikted" 2008, Thrash
-"Blunt Force Trauma " 2011, Thrash
+
+
+## Дискография
+
+### "Inflikted" 2008, Thrash
+
+01. Inflikted
+02. Sanctuary
+03. Terrorize (formerly "Holy Poison")
+04. Black Ark
+05. Ultra-Violent
+06. Hex
+07. The Doom Of All Fires
+08. Bloodbrawl
+09. Nevertrust
+10. Hearts Of Darkness
+11. Must Kill
+
+### "Blunt Force Trauma " 2011, Thrash
+
+1. Warlord   
+2. Torture   
+3. Lynch Mob   
+4. Killing Inside   
+5. Thrasher   
+6. I Speak Hate   
+7. Target   
+8. Genghis Khan   
+9. Burn Waco   
+10. Rasputin   
+11. Blunt Force Trauma 
+
+
+a special edition will come with bonus track plus DVD as it follows:
+
+Bonus tracks to disc one
+12. Psychosomatic 
+13. Jihad Joe
+14. Electric Funeral 
+
+DVD - Live at Les Eurockйennes Festival, Belfort, France - July 5, 2008
+01. Sanctuary
+02. Territory
+03. Terrorize
+04. The Doom Of All Fires
+05. Inner Self/Nevertrust
+06. Arise/Dead Embryonic Cells
+07. Desperate Cry/Propaganda
+08. Wasting Away
+09. Black Ark
+10. Holiday In Cambodia/Biotech Is Godzilla
+11. Hearts Of Darkness
+12. Refuse/Resist
+13. Troops Of Doom
+14. Must Kill
+15. Roots Bloody Roots
+16. Sanctuary (music video) 
+
 
 ## Отношения с другими группами
 

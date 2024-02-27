@@ -1,7 +1,22 @@
 # Shy
 
-Дискография
-"Sunset & Vine" 2005, Hard Rock
+
+
+## Дискография
+
+### "Sunset & Vine" 2005, Hard Rock
+
+High Time 
+Open Your Heart 
+Soul Searching 
+Where Is The Love 
+You Could Be Dreaming 
+Don't Jump The Gun 
+First Love 
+I Will Be Home Tonight 
+Walk Through Fire 
+Slowly
+
 
 ## Отношения с другими группами
 

@@ -1,19 +1,232 @@
 # Ensiferum
 
-Дискография
-"Demo I" 1997, Folk
-"Demo II" 1999, Folk
-"Demo III - Hero in a Dream" 1999, Folk
-"Ensiferum" 2001, Folk
-"Iron" 2004, Folk
-"Tale of Revenge (single)" 2004, Folk
-"Dragonheads" 2006, Folk
-"10th Anniversary Live DVD" 2006, Folk
-"Victory Songs" 2007, Folk
-"From Afar" 2009, Folk
-"Unsung Heroes" 2012, Folk
-"One Man Army" 2015, Folk
-"Two Paths" 2017, Metal
+Heroic Folk-Metal from Finland!
+
+## Дискография
+
+### "Demo I" 1997, Folk
+
+
+
+### "Demo II" 1999, Folk
+
+
+
+### "Demo III - Hero in a Dream" 1999, Folk
+
+
+
+### "Ensiferum" 2001, Folk
+
+Intro 
+Hero In a Dream 
+Token of Time 
+Guardians Of Fate 
+Old Man 
+Little Dreamer 
+Abandoned 
+Windrider 
+Treacherous Gods 
+Eternal Wait 
+Battle Song 
+Goblins Dance
+
+### "Iron" 2004, Folk
+
+1. Ferrum Aeternum 
+2. Iron 
+3. Sword Chant 
+4. Mourning Heart - Interlude 
+5. Tale Of Revenge 
+6. Lost In Despair 
+7. Slayer Of Light 
+8. Into Battle 
+9. LAI LAI HEI 
+10. Tears 
+
+Line-Up: 
+Jari Mдenpдд - Vocals, Rhythm Guitar and Solos 
+Markus Toivonen - Guitar 
+Jukka-Pekka Miettinen - Bass 
+Oliver Fokin - Drums 
+Meiju Enho - Synths
+
+### "Tale of Revenge (single)" 2004, Folk
+
+
+
+### "Dragonheads" 2006, Folk
+
+1. Dragonheads 05:21  
+2. Warrior's Quest 04:53  
+3. Kalevala-Melody 01:47  
+4. White Storm 04:56  
+5. Into Hiding 03:49  
+6. Finnish Medley 05:09 
+
+
+Recorded and mixed in November '05 at Sonic Pump studios in Helsinki by Nino
+Laurenne (Thunderstone) and was mastered by Mika Jussila at Finnvox Studios.
+
+Track 5 is an Amorphis cover.
+Track 6 is a medley of "Karjalan Kunnailla," "Myrskyluodon Maija" and
+"Metsдmiehen Laulu."
+
+Line-up:
+Petri Lindroos - Harsh Vocals, Guitar
+Markus Toivonen - Guitar, Clean & Backing Vocals, Percussion
+Meiju Enho - Keyboard
+Sami Hinkka - Bass
+Janne Parviainen - Drums
+
+### "10th Anniversary Live DVD" 2006, Folk
+
+1. Intro 
+2. Hero in a Dream 
+3. Guardians of Fate 
+4. Tale of Revenge 
+5. Dragonheads 
+6. Windrider 
+7. Warrior’s Quest 
+8. LAI LAI HEI 
+9. Old Man (Vдinдmцinen) 
+10. Slayer of Light 
+11. Finnish Medley: Karjalan Kunnailla – Myrskyluodon Maija – Metsдmiehen Laulu 
+12. Tears 
+13. Token of Time 
+14. White Storm 
+15. Into Hiding 
+16. Into Battle 
+17. Kalevala Melody (intro) 
+18. Iron 
+19. Treacherous Gods 
+20. Nдitд Polkuja Tallaan 
+21. Battle Song 
+
++ One bonus track
+
+### "Victory Songs" 2007, Folk
+
+1. Ad Victoriam   
+2. Blood is the Prince of Glory   
+3. Deathbringer from the Sky   
+4. Ahti   
+5. One More Magic Potion 05:22  
+6. Wanderer   
+7. Raised by the Sword   
+8. The New Dawn   
+9. Victory Song 
+
+
+Recorded at Sonic Pump Studios in Helsinki with producer Janne Joutsenniemi
+
+Line-up:
+Petri Lindroos - Harsh Vocals & Guitar
+Markus Toivonen - Guitar & Clean Vocals
+Meiju Enho - Keyboards
+Sami Hinkka - Bass & Clean Vocals
+Janne Parviainen - Drums
+
+The Limited Edition version includes a bonus track “Lady in Black” (Uriah Heep cover) and a bonus-DVD
+
+### "From Afar" 2009, Folk
+
+1. By the Dividing Stream 03:50  
+2. From Afar 04:51  
+3. Twilight Tavern 05:38  
+4. Heathen Throne 11:09  
+5. Elusive Reaches 03:26  
+6. Stone Cold Metal 07:25  
+7. Smoking Ruins 06:40  
+8. Tumman Virran Taa 00:52  
+9. The Longest Journey (Heathen Throne Part II) 12:49 
+
+
+
+Line-up:
+Petri Lindroos - Harsh Vocals, Guitar
+Markus Toivonen - Guitar, Clean Vocals, Backing Vocals
+Sami Hinkka - Bass, Clean Vocals, Backing Vocals
+Emmi Silvennoinen - Keyboards, Backing Vocals
+Janne Parviainen - Drums
+
+The CD was produced by Tero Kinnunen (Nightwish, Amorphis) and Janne
+Joutsenniemi ('Victory Songs' producer) and was mixed by Hiili Hiilesmaa (Him,
+Sentenced, Amorphis).
+
+"Tumman Virran Taa" means "Behind the Dark Stream".
+
+The Limited Edition includes the bonus track:
+10. Vandraren (Nordman cover) 
+
+### "Unsung Heroes" 2012, Folk
+
+1.Symbols 
+2.In My Sword I Trust 
+3.Unsung Heroes 
+4.Burning Leaves 
+5.Celestial Bond 
+6.Retribution Shall Be Mine 
+7.Star Queen (Celestial Bond part II) 
+8.Pohjola 
+9.Last Breath 
+10.Passion Proof Power 
+
+### "One Man Army" 2015, Folk
+
+1. March of War  01:32 
+2. Axe of Judgment  04:33  
+3. Heathen Horde  04:12   
+4. One Man Army  04:25   
+5. Burden of the Fallen  01:49   
+6. Warrior Without a War  05:24   
+7. Cry for the Earth Bounds  07:31  
+8. Two of Spades  03:39   
+9. My Ancestors' Blood  04:30   
+10. Descendants, Defiance, Domination  11:20  
+11. Neito Pohjolan  04:10 
+Tracks 9 and 10 form Heathen Throne Part III.
+
+A music video was made for "One Man Army".
+Recording information:
+Recorded at Astia Studio (Lappeenranta, Finland), October - November 2014.
+
+
+### "Two Paths" 2017, Metal
+
+Disc 1 (CD) 
+01. Ajattomasta Unesta
+02. For Those About to Fight for Metal
+03. Way of the Warrior
+04. Two Paths
+05. King of Storms
+06. Feast with Valkyries
+07. Don't You Say
+08. I Will Never Kneel
+09. God Is Dead
+10. Hail to the Victor
+11. Unettomaan Aikaan
+12. God Is Dead (Alternative Version)
+13. Don't You Say (Alternative Version)
+
+Disc 2 (DVD) - The Acoustic Show  
+1. Twilight Tavern
+2. Burning Leaves  
+3. Tears  
+4. Heathen Horde 
+5. Battle Medley 
+6. Bass Solo 
+7. Burden of the Fallen  
+8. Warrior Without a War  
+9. From Afar  
+10. In My Sword I Trust 
+11. Two of Spades
+12. Eternal Wait  
+13. Neito Pohjolan  
+14. Iron  
+15. Celestial Bond  
+16. Lai Lai Hei  
+
 
 ## Отношения с другими группами
 

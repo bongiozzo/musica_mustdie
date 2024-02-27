@@ -1,7 +1,50 @@
 # Assuck
 
-Дискография
-"Anticapital" 1995, Deathcore
+A-la Napalm Death from Florida
+
+## Дискография
+
+### "Anticapital" 1995, Deathcore
+
+1. Socialized Crucifixion
+2. The Thousand Mile Star
+3. Population Index
+4. Dogmatic
+5. Spiritual Manipulation
+6. Feasts Of War
+7. October Revolution
+8. Procession
+9. State To State
+10.The Perpetual Cycle
+11.World Of Confusion
+12.Civilisation Comes, Civilisation Goes
+13.Page By Page
+14.Sterility
+15.Body Politic Equation
+16.Anticapital
+17.Epilogue
+18.Wall Of Shame
+19.Suffering Quota
+20.Parade Of The Lifeless
+21.Blood And Cloth
+22.Automate
+23.Within Without
+24.Blindspot
+25.By Design
+26.Spine
+27.Infanticide
+
+Produced By Scott Burns,Steve Heritage.
+Engineered By Scott Burns.
+Recorded & Mixed At Morrisound ,Tampa.
+
+Paul Pavlovich - Vocals
+Rob Proctor - Drums
+Steve Heritage - Guitar
+Pete Jay - Bass 
+
+(P)&(C) 1995 COMMON CAUSE Records
+
 
 ## Отношения с другими группами
 

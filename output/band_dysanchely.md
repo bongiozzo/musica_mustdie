@@ -1,9 +1,36 @@
 # Dysanchely
 
-Дискография
-"Tears" 1998, Melodic Death Metal
-"Songs of Sorrow" 2001, Melodic Death Metal
-"Secrets of the Sun" 2003, Melodic Death Metal
+melodic death metal from Slovakia
+
+## Дискография
+
+### "Tears" 1998, Melodic Death Metal
+
+
+
+### "Songs of Sorrow" 2001, Melodic Death Metal
+
+
+
+### "Secrets of the Sun" 2003, Melodic Death Metal
+
+1. Lullaby
+2. About Man And Evil
+3. Bloody Tears of Contradictions
+4. Song of Sorrow
+5. Lost In Beauty
+6. Get What You Deserve
+7. Secrets of The Sun
+8. Kill Your Love 
+
+
+Dodo (guitar) 
+Brano (bass,) 
+Micic (guitar) 
+Suska (drums)
+
+
+
 
 ## Отношения с другими группами
 

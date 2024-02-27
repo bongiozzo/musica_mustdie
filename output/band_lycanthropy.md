@@ -1,8 +1,38 @@
 # Lycanthropy
 
-Дискография
-"The Veil Of Sorrow [EP]" 1997, Black Metal
-"...As The Mourners Arise" 1998, Black Metal
+
+
+## Дискография
+
+### "The Veil Of Sorrow [EP]" 1997, Black Metal
+
+1.  Of Dark Emotion
+2.  The Battle At The End Of Time
+3.  In Umbra Cenare
+4.  Invocation To Luna
+
+Recorded and Mixed at Sound Sorcery.
+Band residence: USA.
+
+Arcanum - Drums
+Baalberith - Guitars, Bass, Vocals
+Asmodeus - Guitars, Vocals, Keyboards
+
+(P)(C) 1997 PTE 001
+
+### "...As The Mourners Arise" 1998, Black Metal
+
+1. ...As the Mourners Arise 01:17  
+2. To Never Cease 05:37  
+3. Angel of the Pale Twilight 06:43  
+4. Alas, The Sunless Earth 05:26  
+5. Beauty and Darkness 03:17  
+6. His Sorrowful Passion 05:01  
+7. The Fourth Watchtower 05:17  
+8. Forsaken 00:26  
+9. The Crimson Epitaph 07:44  
+10. Beyond the Coming Darkness 01:16 
+
 
 ## Отношения с другими группами
 

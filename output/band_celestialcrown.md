@@ -1,9 +1,54 @@
 # Celestial Crown
 
-Дискография
-"Invasion Of Suicidal Angels" 2001, Black Metal
-"The Embraced" 2002, Black Metal
-"A Veiled Empire" 2005, Gothic
+
+
+## Дискография
+
+### "Invasion Of Suicidal Angels" 2001, Black Metal
+
+1. Under the Black Sun 05:04 
+2. Trapped in the Dark 04:23 
+3. Your Touch 07:03 
+4. Nocturnal Insanity 03:52 
+5. Holy Waters 06:05 
+6. Embittered With Grief 05:36
+7. A Wish 05:49
+
+### "The Embraced" 2002, Black Metal
+
+1. With the Autumn Winds 02:07  
+2. Dreams Of Elizabeth 07:57 
+3. The Embraced 08:32 
+4. Your Touch 06:59 
+5. Nocturnal Insanity 03:47  
+6. Dark Dance 03:28 
+7. From Dance to Fall 02:26 
+8. Return to the Haunted Shores 07:50 
+9. Epitaph in Two Parts 08:31
+
+### "A Veiled Empire" 2005, Gothic
+
+1. Veil Of Eternity   
+2. Sacrifice In Red   
+3. Eclipsed My Hope   
+4. Deep Within   
+5. Night By The Silent Waters   
+6. Stone Heart   
+7. For The End Of The Days   
+8. For One Love   
+9. So Let Thy Will Shalt Be   
+10. New Aeon   
+11. Into Eternity   
+12. Consecration   
+13. A Sea
+
+
+DeVol - Vocals
+The Serpent - Lead guitar
+Shel - Rhythm guitar/ Keyboards
+Alone Diana - Female vocals 
+Arno - Bass
+
 
 ## Отношения с другими группами
 

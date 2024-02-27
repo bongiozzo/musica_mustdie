@@ -1,7 +1,21 @@
 # Mirror Of Deception
 
-Дискография
-"Mirrorsoil" 2001, Doom
+heavy doom metal from Germany
+
+## Дискография
+
+### "Mirrorsoil" 2001, Doom
+
+1. Asylum
+2. Veil Of Lead
+3. Weiss
+4. Sole
+5. Be Kept In Suspense
+6. Dreams Of Misery
+7. Cease
+8. Float
+
+
 
 ## Отношения с другими группами
 

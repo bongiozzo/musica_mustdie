@@ -1,10 +1,63 @@
 # Loch Vostok
 
-Дискография
-"Dark Logic" 2004, Progressive
-"Destruction Time Again" 2006, Progressive
-"Reveal No Secrets" 2009, Progressive
-"Dystopium" 2011, Progressive
+
+
+## Дискография
+
+### "Dark Logic" 2004, Progressive
+
+1. Admire and Resent  04:54  
+2. Impressions  06:51 
+3. Blunt Force Trauma  05:08 
+4. Falling Star  05:34 
+5. Naked  04:41  
+6. Nothingness  03:58
+7. The Method  03:31  
+8. Marrow  06:59  
+9. The Forsaken One  05:11   
+10. Narcosis  05:25  
+11. Jahepp (bonus)  00:25 
+
+### "Destruction Time Again" 2006, Progressive
+
+1. Humanitix  04:25   
+2. Rebound  05:05   
+3. Jonestown Slumber Party  04:54 
+4. Xerox Nation  04:49   
+5. Autumn Lord  04:27  
+6. Destruction Time Again  04:12  
+7. Symbiosis  06:04 
+8. Falself  05:34  
+9. Talk  05:02   
+10. True Deceiver  03:30   
+11. Gestalt  04:34 
+
+### "Reveal No Secrets" 2009, Progressive
+
+1. Loss Of Liberty  03:44  
+2. Energy Taboo  07:16  
+3. Dig Deeper  05:29   
+4. Uncompassion  05:13  
+5. Thirty Years  05:30   
+6. Raiders Of The Lost Heart  06:03
+7. Blindfolds Off  05:39 
+8. What Once Was  05:02 
+9. Breakthru  07:50 
+
+### "Dystopium" 2011, Progressive
+
+1. A Mission Undivine
+2. Repeat Offender  
+3. World Trade Dissenter 
+4. Sacred Structure  
+5. Navigator     
+6. In the Wake of Humanity      
+7. Viral Strain     
+8. Disconnection     
+9. Taste the Flame  
+10. Absence      
+11. Dystopium  
+
 
 ## Отношения с другими группами
 

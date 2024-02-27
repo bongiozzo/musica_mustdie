@@ -1,8 +1,57 @@
 # Babes in Toyland
 
-Дискография
-"Fontanelle" 1992, Grunge
-"Nemesisters" 1995, Grunge
+
+
+## Дискография
+
+### "Fontanelle" 1992, Grunge
+
+1. Bruise Violet 
+2. Right Now 
+3. Bluebell 
+4. Handsome & Gretel 
+5. Blood 
+6. Magick Flute 
+7. Won't Tell 
+8. Spun 
+9. Jungle Train 
+10.Pearl 
+11.Real Eyes 
+12.Mother 
+13.Gone 
+
+Babes In Toyland :
+Kat Bjelland - Guitar & Vocals
+Lori Barbero - Drums & Vocals
+Maureen Herman - Bass
+
+
+(P)&(C) 1992 REPRISE Records
+
+### "Nemesisters" 1995, Grunge
+
+1. Hello
+2. Oh Yeah!
+3. Drivin'
+4. Sweet 69
+5. Surd
+6. 22
+7. Ariel
+8. Middle Man
+9. All By Myself
+10. Deep Song
+11. We Are Family
+
+ Kai Bjelland - Vocals, Guitars
+ Maureen Hermon - Vocals, Bass
+ Lorry Barbero - Drums
+
+All Songs Written By BABES IN TOYLAND
+Produced By Tim Mac & BABES IN TOYLAND
+Recorded & Mixed By Tim Mac
+
+(P)&(C) 1995 REPRISE Records
+
 
 ## Отношения с другими группами
 

@@ -1,12 +1,38 @@
 # Elder
 
-Дискография
-"Elder" 2008, Stoner
-"Dead Roots Stirring" 2011, Stoner
-"Spires Burn / Release (EP)" 2012, Stoner
-"Live At Roadburn 2013" 2013, Stoner
-"Lore" 2015, Stoner
-"Reflections Of A Floating World" 2017, Stoner
+
+
+## Дискография
+
+### "Elder" 2008, Stoner
+
+
+
+### "Dead Roots Stirring" 2011, Stoner
+
+
+
+### "Spires Burn / Release (EP)" 2012, Stoner
+
+
+
+### "Live At Roadburn 2013" 2013, Stoner
+
+
+
+### "Lore" 2015, Stoner
+
+
+
+### "Reflections Of A Floating World" 2017, Stoner
+
+1. Sanctuary
+2. The Falling Veil
+3. Staving Off Truth
+4. Blind
+5. Sonntag
+6. Thousand Hands
+
 
 ## Отношения с другими группами
 

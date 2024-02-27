@@ -1,8 +1,34 @@
 # Thirst of Revenge
 
-Дискография
-"The Beginning of the End" 2010, Death Metal
-"Annihilation of Races" 2011, Death Metal
+
+
+## Дискография
+
+### "The Beginning of the End" 2010, Death Metal
+
+1. Lethal Species	 
+2. Psycho Torture	 
+3. Worms in My Head	 
+4. Thirst of Revenge	 
+5. Perpetual Suffering	 
+6. Badly Grown Up	 
+7. Shaken by Fear	 
+8. Corpse Slaughter	 
+9. Automutilation
+
+### "Annihilation of Races" 2011, Death Metal
+
+1. The Beginning of the End	 
+2. I Will Remain Silent When I Die	 
+3. Devouring Human Scum		 
+4. Annihilation of Races	 
+5. Spectral Sounds on a Quiet Night	 
+6. Deprecated Homicide	 
+7. Rest in Pieces	 
+8. The Spell of Evil	 
+9. Death Does Not Forgive	 
+10. The End of Existence
+
 
 ## Отношения с другими группами
 

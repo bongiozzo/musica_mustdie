@@ -1,9 +1,68 @@
 # Terror 2000
 
-Дискография
-"Slaughterhouse Supremacy" 2000, Thrash
-"Faster Disaster" 2002, Thrash
-"Terror For Sale" 2005, Thrash
+
+
+## Дискография
+
+### "Slaughterhouse Supremacy" 2000, Thrash
+
+1. Intro - Terror In Time
+2. Son Of A Gun, Daughter Of A Slaughter
+3. Agents Of Decadence
+4. Burn Bitch Burn!
+5. Slaughterhouse Supremacy
+6. Firebolt
+7. Crypt Of Decay
+8. Terror 2000
+9. Elimination Complete 
+
+
+
+Vocals/Bass: Speed Strid
+Guitar: Klas Ideberg
+Guitar: Nick Sword
+Drums: Erik Thyselius
+
+
+
+### "Faster Disaster" 2002, Thrash
+
+1) Back With Attack
+2) Formula Flame Feast
+3) Headrush 
+4) Infernal Outlaw 
+5) Burn-Out In Blood 
+6) Faster Disaster 
+7) Menace Of Brutality 
+8) Stalkers In The Night 
+9) Iґm Speed At Night 
+10) Killing Machine 
+
+
+
+Klas Ideberg: Rhythm/Lead Guitar
+Erik Thyselius: Percussive Destruction
+Speed Strid: Vocals/Bass Guitar
+Nick Sword: Rhythm/Lead Guitar 
+
+
+
+### "Terror For Sale" 2005, Thrash
+
+1. Five Star Prison
+2. Metal Mosh Massacre
+3. Cheap Thrills
+4. King Kong Song
+5. Wrath Of The Cookie Monster
+6. Satans Barbecue
+7. Flesh Fever Fiesta
+8. Liquor Saved Me From Sports
+9. Fed Up Anthem
+10. Mummy Metal For The Masses
+11. Stattena T(h)rash
+12. Bloody Blues Blaster
+13. Dishwashing Demon (JAPAN BONUS ONLY)
+
 
 ## Отношения с другими группами
 

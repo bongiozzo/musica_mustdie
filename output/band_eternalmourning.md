@@ -1,7 +1,34 @@
 # Eternal Mourning
 
-Дискография
-"Delusion And Dementia" 2001, Death Doom
+
+
+## Дискография
+
+### "Delusion And Dementia" 2001, Death Doom
+
+  1-Cry of the Damned
+  2-The Strange Form of the Universe 
+  3-The Final Lament part I (Into Unconsciusness) 
+  4-Dreams of Desiring Lust
+  5-Sombras do Desconhecido
+  6-The Final Lament part II (Supremum Male Dicere) 
+  7-A Shameles Smile 
+  8-Sowing Threads of Solitude 
+  9-The Calling  
+
+
+Recorded at Exнlium studios during November & December of 1999 and May 2001 
+
+Male Voice -  Mбrio Pereira 
+Female Voice -  Rita Gamito 
+Lead Guitar -  Mini 
+Rhythm Guitar -  Josй Meninas 
+Bass Guitar -  Marco Faria 
+Drums -  Nuno Costa 
+Keyboards -  Miguel Santos 
+
+
+
 
 ## Отношения с другими группами
 

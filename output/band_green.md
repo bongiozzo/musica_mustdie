@@ -1,7 +1,24 @@
 # Green
 
-Дискография
-"Life" 2003, Metal
+AOR/Progressive
+
+## Дискография
+
+### "Life" 2003, Metal
+
+The Wind Of Love (part I)
+Mr. Kite, Conscience
+I Gotta Run
+The Work
+Escape
+Cycling In The Rain
+Sometimes
+All Is Ok
+The Storm Inside
+Can You Feel The World
+I Still Love…* 
+The Wind Of Love (part II)
+
 
 ## Отношения с другими группами
 

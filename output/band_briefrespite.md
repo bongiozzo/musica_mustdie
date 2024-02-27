@@ -1,7 +1,22 @@
 # Brief Respite
 
-Дискография
-"Lullaby To The Moon" 2005, Melodic Death Metal
+
+
+## Дискография
+
+### "Lullaby To The Moon" 2005, Melodic Death Metal
+
+01 Shattered Glass	5:48.35
+02 Order By Chaos	6:11.39
+03 Amer Et Contre Tous	4:28.61
+04 Lullaby To The Moon	4:59.44
+05 Exageration	6:19.43
+06 Good Against Bad	4:46.43
+07 Last War	6:11.05
+08 Double Sens	7:14.12
+09 Mourir Ou Naitre	7:28.05
+10 Passing The Gate (Part I And II)	8:05.46
+
 
 ## Отношения с другими группами
 

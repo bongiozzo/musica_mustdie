@@ -1,7 +1,40 @@
 # Atra Hora
 
-Дискография
-"Lost In The Depths" 2010, Death Metal
+
+
+## Дискография
+
+### "Lost In The Depths" 2010, Death Metal
+
+1. Atra Hora 01:23  
+2. Journey To The Chaos 03:49  
+3. They Go 04:12  
+4. Awaking Of The Unholy 03:06  
+5. War Under The Sign Of Baphomet 07:50  
+6. Holocaust 05:20  
+7. Requiem For Human Tribe 09:01  
+8. Nuclear December 07:15  
+9. Dark Corners Of Universe 06:57  
+10. Voice Of The Forgotten Depths 13:50 
+
+Yanis 'Shaxu' Georgiadi – guitars, clean and backing vocals
+Alextos 'Domination' Georgiadi – bass, lead vocals
+Genrih – drums, percussion
+
+Emaleth – guest keyboards on tracks 4 & 6
+
+All other keyboards performed by Yanis 'Shaxu' Georgiadi and Armand Quenteres
+(Sacratus)
+
+Backing vocals on tracks 3, 7 & 10 by Armand Quenteres
+
+All music by Yanis 'Shaxu' Georgiadi, arranged by Atra Hora
+All lyrics by Alextos 'Domination' Georgiadi and Yanis 'Shaxu' Georgiadi
+
+Produced by Armand Quenteres
+Recorded in May 2008 - November 2009 at Darknagar Records
+Engineered, mixed and mastered by Armand Quenteres at Darknagar Records 
+
 
 ## Отношения с другими группами
 

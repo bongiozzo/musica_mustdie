@@ -1,9 +1,57 @@
 # Vorna
 
-Дискография
-"Ajastaika" 2013, Metal
-"Ei valo minua seuraa" 2015, Metal
-"Tie Varjoista (single)" 2017, Metal
+Folk Pagan Black Metal
+
+## Дискография
+
+### "Ajastaika" 2013, Metal
+
+1. Taakse jaa  00:41   
+2. Hiiden taival  08:17  
+3. Ukkonen  04:14  
+4. Harhan liekki  05:44  
+5. Kaivatun uni  05:39   
+6. Lehvain varjoon  03:35   
+7. Pakanaveri  05:17   
+8. Ensilumi  01:23   
+9. Ikuiseen iltaan  05:15   
+10. Kuolevan maan kulkija  06:20  
+11. Muisto  07:23  
+
+
+### "Ei valo minua seuraa" 2015, Metal
+
+1. Harmaudesta  03:56   
+2. Jalkemme  07:37   
+3. Itseton  08:07   
+4. Sieluni varjossa  06:58  
+5. Vaipunut  03:46  
+6. Yksin  06:39   
+7. Hiljaiset rauniot  08:48 
+
+
+Translation in English:
+
+"No Light Follows Me"
+ 01. Away from Grey
+ 02. Heritage
+ 03. Soul Shriven
+ 04. In the Nightside of Self
+ 05. Of Life Descended
+ 06. Alone
+ 07. Silent Ruins
+
+Recording information:
+Bass, guitars, keyboards, orchestrations and vocals recorded during May - July 2015.
+Drums and percussion recorded and engineered in May 2015.
+Mixed at Electric Fox Studios in Vaajakoski, Finland in July 2015.
+Mastered at Virtalahde Mastering in Kuhmoine, Finland in August 2015.
+
+
+### "Tie Varjoista (single)" 2017, Metal
+
+1. Tie varjoista  05:31 
+
 
 ## Отношения с другими группами
 

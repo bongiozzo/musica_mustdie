@@ -1,23 +1,702 @@
 # Uriah Heep
 
-Дискография
-"VERY 'EAVY ... VERY 'UMBLE" 1970, Hard Rock
-"SALISBURY" 1971, Hard Rock
-"LOOK AT YOURSELF" 1971, Hard Rock
-"DEMONS AND WIZARDS" 1972, Hard Rock
-"THE MAGICIAN'S BIRTHDAY" 1972, Hard Rock
-"SWEET FREEDOM" 1973, Hard Rock
-"WONDERWORLD" 1974, Hard Rock
-"RETURN TO FANTASY" 1975, Hard Rock
-"HIGH AND MIGHTY" 1976, Hard Rock
-"FIREFLY" 1977, Hard Rock
-"INNOCENT VICTIM" 1977, Hard Rock
-"FALLEN ANGEL" 1978, Hard Rock
-"CONQUEST" 1980, Hard Rock
-"ABOMINOG" 1982, Hard Rock
-"SONIC ORIGAMI" 1998, Hard Rock
-"Wake The Sleeper " 2008, Hard Rock
-"Into The Wild" 2011, Hard Rock
+(Heavy Metal Legend)
+
+## Дискография
+
+### "VERY 'EAVY ... VERY 'UMBLE" 1970, Hard Rock
+
+Released in June 1970
+U.K. Catalog number Vertigo 6360006
+
+Side A
+1. GYPSY (Box/Byron) 6.37
+2. WALKING IN YOUR SHADOW (Newton/Byron) 4.31
+3. COME AWAY MELINDA (Hellerman/Minkoff) 3.46
+4. LUCY BLUES (Box/Byron) 5.09
+
+Side B
+1. DREAMMARE (Newton) 4.39
+2. REAL TURNED ON (Box/Byron) 3.37
+3. I’LL KEEP ON TRYING (Box/Byron) 5.24
+4. WAKE UP (SET YOUR SIGHTS) (Box/Byron) 6.22
+
+DAVID BYRON - Lead Vocals
+KEN HENSLEY - Organ, Slide Guitar, Mellotron, Piano and Vocals
+MICK BOX - Lead Guitar, Acoustic Guitar, Vocals
+PAUL NEWTON - Bass Guitar, Vocals
+OLLIE OLSSON - Drums, Percussion
+
+Our Thanks To:
+ALEX NAPIER - Drums on all tracks excepting 'Dreammare' & 'Lucy Blues'
+COLIN WOOD - Keyboard on 'Melinda' & 'Wake Up'
+
+RECORDING: Lansdowne Sudios, London
+RECORDING ENGINEER: Peter Gallen
+MIXING ENGINEERS: Peter Gallen and Peter Olliff
+PRODUCTION: Gerry Bron for Hit Record Productions Limited
+PHOTOGRAPHS: Pete Smith
+SLEEVE DESIGN: Robin Nicoll (Design Machine)
+RECORDED EARLY 1970
+
+BONUS TRACKS ON REMASTERED 1996 RELEASE:
+1. GYPSY [single edit] (Box/Byron) 2.57
+Edited and remixed from album version. Released on several singles and compilations
+2. COME AWAY MELINDA [alternate version] (Hellerman/Minkoff) 3.42
+Alternate take
+3. BORN IN A TRUNK [alternate version] (Box/Byron) 3.45
+Out-take, alternate take of a song that appeared for the first time on 'The Lansdowne Tapes' (1993)
+
+In North America this album was released titled just 'URIAH HEEP' with a different cover and slightly different track listing:
+
+Side A
+1. GYPSY
+2. WALKING IN YOUR SHADOW
+3. COME AWAY MELINDA
+4. BIRD OF PREY
+
+Side B
+1. DREAMMARE
+2. REAL TURNED ON
+3. I'LL KEEP ON TRYING
+4. WAKE UP (Set Your Sights)
+
+
+ 
+
+### "SALISBURY" 1971, Hard Rock
+
+Released in February 1971
+UK Catalog number Vertigo 6360028
+
+Side A
+1. BIRD OF PREY (Box/Byron/Hensley/Newton) 4.05
+2. THE PARK (Hensley) 5.38
+3. TIME TO LIVE (Box/Byron/Hensley) 4.02
+4. LADY IN BLACK (Hensley) 4.33
+
+Side B
+1. HIGH PRIESTESS (Hensley) 3.39
+2. SALISBURY (Box/Byron/Hensley) 16.02
+
+DAVID BYRON - Lead Vocals
+KEN HENSLEY - Organ, Piano, Slide & Acoustic Guitars, Harpshicord, Vibes and Vocals
+MICK BOX - Lead Guitar, Acoustic Guitar, Vocals
+PAUL NEWTON - Bass Guitar, Vocals
+KEITH BAKER - Drums
+
+Brass and woodmind on "Salisbury" arranged by JOHN FIDDY
+
+Produced by GERRY BRON for Hit Record Productions Ltd.
+Recorded at Lansdowne Studos, London, October/November 1970
+Recording & mixing engineer PETER GALLEN
+Tape operators ASHLEY HOWE & LES CUNNINGHAM
+Sleeve Design: Bloomsbury Group
+
+BONUS TRACKS ON REMASTERED 1996 RELEASE:
+1. SIMON THE BULLET FREAK (Hensley) 3.27
+Originally b-side of 'Lady In Black' single in Germany and 'Look At Yourself' single in UK. Also on US version of 'Salisbury' (1971) and 'Rarities From The Bronze Age' (1991)
+2. HIGH PRIESTESS [single edit] (Hensley) 3.13
+Edited from album version
+
+In North America this album was released with a different cover and slightly different track listing:
+
+Side A
+1. HIGH PRIESTESS
+2. THE PARK
+3. TIME TO LIVE
+4. LADY IN BLACK
+
+Side B
+1. SIMON THE BULLET FREAK
+2. SALISBURY
+
+
+ 
+
+### "LOOK AT YOURSELF" 1971, Hard Rock
+
+Released in October 1971
+U.K. Catalog number Bronze ILPS 9169
+
+Side A
+1. LOOK AT YOURSELF (Hensley) 5.07
+2. I WANNA BE FREE (Hensley) 3.59
+3. JULY MORNING (Hensley/Byron) 10.36
+
+Side B
+1. TEARS IN MY EYES (Hensley) 5.02
+2. SHADOWS OF GRIEF (Hensley/Byron) 8.40
+3. WHAT SHOULD BE DONE (Hensley) 4.13
+4. LOVE MACHINE (Hensley/Byron/Box) 3.37
+
+KEN HENSLEY - Organ, Piano, Guitar, Acoustic Guitar & Vocal
+MICK BOX - Lead Guitar & Acoustic Guitar
+DAVID BYRON - Lead Vocal
+PAUL NEWTON - Bass Guitar
+IAN CLARKE - Drums
+
+TEDDY OSEI, MACK TONTOH & LOUGHTY AMAO from"Osibisa" - Percussion on "Look At Yourself"
+MANFRED MANN - Moog on "July Morning"
+
+Produced by GERRY BRON
+Recorded at Lansdowne Studios, London, July 1971
+Design: DOUGLAS MAXWELL Ltd.
+Photography: TONY EVANS
+All arrangements by URIAH HEEP
+
+BONUS TRACKS ON REMASTERED 1996 RELEASE:
+1. LOOK AT YOURSELF [single edit] (Hensley) 3.07
+Edited from album version. Released on several singles. Also on Rarities From The Bronze Age (1991)
+2. WHAT'S WITHIN MY HEART (Hensley) 5.23
+Out-take, released for the first time on 'The Lansdowne Tapes' (1993)
+
+
+
+### "DEMONS AND WIZARDS" 1972, Hard Rock
+
+Released in May 1972
+U.K. Catalog number Bronze ILPS 9193
+
+Side A
+1. THE WIZARD (Hensley/Clarke) 2.59
+2. TRAVELLER IN TIME (Byron/Box/Kerslake) 3.26
+3. EASY LIVIN' (Hensley) 2.36
+4. POET'S JUSTICE (Box/Kerslake/Hensley) 4.14
+5. CIRCLE OF HANDS (Hensley) 6.34
+
+Side B
+1. RAINBOW DEMON (Hensley) 4.30
+2. ALL MY LIFE (Box/Byron/Kerslake) 2.46
+3. PARADISE (Hensley) 5.15
+4. THE SPELL (Hensley) 7.26
+
+GARY THAIN - Bass guitar (except Mark Clarke on 'The Wizard' and remastered version bonus track 'Why')
+LEE KERSLAKE - Drums and Percussion
+MICK BOX - Guitars
+KEN HENSLEY - Keyboards, Guitars, Percussion
+DAVID BYRON - Vocals
+
+All other voices by URIAH HEEP
+
+Produced by GERRY BRON
+Engineer PETER GALLEN
+Assistant engineer ASHLEY HOWE
+Recorded at Lansdowne Studios, London, March/April 1972
+Designed and drawn by ROGER DEAN
+Photography by DOMMY HAMILTON/ROGER DEAN
+
+BONUS TRACKS ON REMASTERED 1996 RELEASE:
+1. WHY (Box/Byron/Newton/Hensley) 4.53
+Originally b-side of ‘The Wizard’ single in Germany & US and ‘Easy Livin’ single in UK. Also on ‘Rarities From The Bronze Age’. This version has slightly different lyrics than the ‘Lansdowne Tapes’ version
+2. WHY [extended version] (Box/Byron/Newton/Hensley) 7.39
+Out-take, previously unreleased
+3. HOME AGAIN TO YOU (Hensley/Byron/Box/Thain/Kerslake) 5.28
+Out-take, previously unreleased
+
+
+ 
+
+### "THE MAGICIAN'S BIRTHDAY" 1972, Hard Rock
+
+Released in November 1972
+U.K. Catalog number Bronze ILPS 9213
+
+Side A
+1. SUNRISE (Hensley) 4.04
+2. SPIDER WOMAN (Box/Byron/Kerslake/Thain) 2.25
+3. BLIND EYE (Hensley) 3.33
+4. ECHOES IN THE DARK (Hensley) 4.48
+5. RAIN (Hensley) 3.59
+
+Side B
+1. SWEET LORRAINE (Box/Byron/Thain) 4.13
+2. TALES (Hensley) 4.09
+3. THE MAGICIAN’S BIRTHDAY (Hensley/Box/Kerslake) 10.23
+
+GARY THAIN - Bass guitar
+LEE KERSLAKE - Drums and Percussion
+MICK BOX - Guitars
+KEN HENSLEY - Keyboards, Guitars, Moog Synthesizer
+DAVID BYRON - Vocals
+
+Produced by GERRY BRON
+Engineer PETER GALLEN
+Assistant engineer ASHLEY HOWE
+Recorded at Lansdowne Studios, London, September/October 1972
+Cover design by ROGER DEAN
+Photographs by FIN COSTELLO
+
+BONUS TRACKS ON REMASTERED 1996 RELEASE:
+1. SILVER WHITE MAN [instrumental] (Byron) 3.43
+Out-take, previously unreleased
+2. CRYSTAL BALL (Thain) 4.08
+Out-take, previously unreleased
+
+
+ 
+
+### "SWEET FREEDOM" 1973, Hard Rock
+
+Released in September 1973
+U.K. Catalog number Bronze ILPS 9245
+
+Side A
+1. DREAMER (Thain/Box) 3.41
+2. STEALIN' (Hensley) 4.49
+3. ONE DAY (Hensley/Thain) 2.47
+4. SWEET FREEDOM (Hensley) 6.37
+
+Side B
+1. IF I HAD THE TIME (Hensley) 5.43
+2. SEVEN STARS (Hensley) 3.52
+3. CIRCUS (Thain/Box/Kerslake) 2.44
+4. PILGRIM (Hensley/Byron) 7.10
+
+DAVID BYRON - Vocals
+KEN HENSLEY - Keyboards, Guitars and Vocals
+MICK BOX - Guitars
+LEE KERSLAKE - Drums, Percussion, Vocals
+GARY THAIN - Bass Guitar
+
+Produced by GERRY BRON
+Recording engineer PETER GALLEN
+Recorded at The Chateau D’Herouville, France, June/July 1973
+All songs written & arranged by URIAH HEEP
+Equipment crew DEL ROLL, B.J. REISCH, TONY PATRICK
+Cover concept and photography by FIN COSTELLO
+Handtinting by WILLIAM C. KLEIN
+Art direction and design by PETER CORRISTON
+
+BONUS TRACKS ON REMASTERED 1996 RELEASE:
+1. SUNSHINE (Thain/Box) 4.48
+Originally b-side of ‘Stealin’ single. Also on 'Rarities From The Bronze Age' (1991)
+2. STEALIN’ [Single edit] (Hensley) 3.17 Edited from album version, released on several singles. Also on Rarities From The Bronze Age (1991)
+3. SEVEN STARS [long version] (Hensley) 5.29
+
+
+
+ 
+
+### "WONDERWORLD" 1974, Hard Rock
+
+Released in June 1974
+U.K. Catalog number Bronze ILPS 9280
+
+Side A
+1. WONDERWORLD (Hensley) 4.29
+2. SUICIDAL MAN (Box/Byron/Hensley/Kerslake/Thain) 3.38
+3. THE SHADOWS AND THE WIND (Hensley) 4.27
+4. SO TIRED (Box/Byron/Hensley/Kerslake/Thain) 3.39
+5. THE EASY ROAD (Hensley) 2.43
+
+Side B
+1. SOMETHING OR NOTHING (Box/Hensley/Thain) 2.56
+2. I WON'T MIND (Box/Byron/Hensley/Kerslake/Thain) 5.59
+3. WE GOT WE (Box/Byron/Hensley/Kerslake/Thain) 3.39
+4. DREAMS (Box/Byron/Hensley) 6.10
+
+KEN HENSLEY - Organ, Guitars & Vocals
+DAVID BYRON - Vocals
+MICK BOX - Lead guitars
+GARY THAIN - Bass
+LEE KERSLAKE - Drums
+
+"The Easy Road" Orchestral arrangements by MICHAEL GIBBS
+
+Produced by GERRY BRON
+Recording engineer PETER GALLEN
+Recorded at Musicland, Munich, Germany, January/March 1974
+Musicland engineers HANS MENZEL and MACKI
+All songs written and arranged by URIAH HEEP
+Photography and concept by GRAHAM HUGHES
+Cutting engineer HARRY MOSS, E.M.I. Studios, Abbey Road, London
+Equipment crew DEL ROLL, TOM SCHLUM and TONY PATRICK
+
+BONUS TRACKS ON REMASTERED 1996 RELEASE:
+1. WHAT CAN I DO (Box/Kerslake/Byron) 3.10
+Originally b-side of ‘Something Or Nothing’ single. Also on 'Rarities From The Bronze Age' (1991)
+2. DREAMS [long version] (Box/Byron/Hensley) 7.08
+Previously unreleased version
+3. SOMETHING OR NOTHING [live] (Hensley/Box/Thain) 3.09
+Recorded at Shepperton 1974. Previously unreleased version
+4. THE EASY ROAD [live] (Hensley) 2.53
+Recorded at Shepperton 1974. Previously unreleased version
+
+ 
+
+ 
+
+### "RETURN TO FANTASY" 1975, Hard Rock
+
+Released in May 1975
+U.K. Catalog number Bronze ILPS 9335
+
+Side A
+1. RETURN TO FANTASY (Hensley/Byron) 5.52
+2. SHADY LADY (Hensley/Box/Byron/Kerslake) 4.46
+3. DEVIL’S DAUGHTER (Byron/Box/Hensley/Kerslake) 4.48
+4. BEAUTIFUL DREAM (Hensley/Byron/Box/Kerslake) 4.52
+
+Side B
+1. PRIMA DONNA (Byron/Box/Kerslake/Hensley) 3.11
+2. YOUR TURN TO REMEMBER (Hensley) 4.22
+3. SHOWDOWN (Hensley/Byron/Box/Kerslake) 4.17
+4. WHY DID YOU GO (Byron/Box/Hensley/Kerslake) 3.53
+5. A YEAR OR A DAY (Hensley) 4.22
+
+DAVID BYRON - Lead Vocals
+MICK BOX - Guitars
+KEN HENSLEY - Keyboards, Guitars, Synthesizer, Vocals
+LEE KERSLAKE - Drums, Percussion, Vocals
+JOHN WETTON - Bass, Mellotron, Vocals
+
+Produced by GERRY BRON
+Engineer PETER GALLEN
+Assisted by DAVE BURNS and DAVE HARRIS
+Thanks to MEL COLLINS & B.J. COLE
+Recorded at Lansdowne and Morgan Stuidos, London, Englend, spring 1975 Composed, arranged & performed by URIAH HEEP
+Design Logo Ltd., Illustration DAVE FIELD
+Photographs by JOE CAFFNEY
+Thanks to our Road Crew Chris, Del, Ed, Peter, Rick, Tom and B.J.
+
+BONUS TRACKS ON REMASTERED 1996 RELEASE:
+1. SHOUT IT OUT (Hensley) 3.35
+Originally b-side of ‘Prima Donna’ single. Also on ‘Rarities From The Bronze Age’ (1991)
+2. THE TIME WILL COME (Byron/Box/Hensley/Kerslake) 4.10
+Originally b-side of ‘Return To Fantasy’ single (released in Germany only). Also on ‘Rarities From The Bronze Age’ (1991)
+3. BEAUTIFUL DREAM [demo] (Hensley/Byron/Box/Kerslake) 5.49
+Previously unreleased demo version, recorded prior to recording of Return to Fantasy
+4. RETURN TO FANTASY [single edit] (Hensley/Byron) 3.38
+Edited from album version, released on several singles. Also On ‘Rarities From The Bronze Age’ (1991)
+
+
+ 
+
+### "HIGH AND MIGHTY" 1976, Hard Rock
+
+Released in June 1976
+U.K. Catalog number Bronze ILPS 9384
+
+Side A
+1. ONE WAY OR ANOTHER (Hensley) 4.37
+2. WEEP IN SILENCE (Hensley/Wetton) 5.09
+3. MISTY EYES (Hensley) 4.15
+4. MIDNIGHT (Hensley) 5.40
+
+Side B
+1. CAN’T KEEP A GOOD BAND DOWN (Hensley) 3.40
+2. WOMAN OF THE WORLD (Hensley) 3.10
+3. FOOTPRINTS IN THE SNOW (Hensley/Wetton) 3.56
+4. CAN’T STOP SINGING (Hensley) 3.15
+5. MAKE A LITTLE LOVE (Hensley) 3.24
+6. CONFESSION (Hensley) 2.16
+
+DAVID BYRON - Vocals
+JOHN WETTON - Bass, Guitar, Mellotron, Electric Piano, Vocals
+LEE KERSLAKE - Drums, Percussion, Vocals
+MICK BOX - Lead Guitar, Acoustic Guitar, 12 String Acoustic Guitar
+KEN HENSLEY - Organ, Piano, Moog Synthesizer, Tubular Bells, Electric Piano, Guitar, Slide Guitar, Acoustic Guitar, Electric 12 String Guitar, Pedal Steel Guitar, Vocals
+
+Produced and arranged by URIAH HEEP
+Engineer ASHLEY HOWE, except "One Way Or Another" and "Footprints In The Snow" PETER GALLEN
+Assistant Engineer JOHN GALLEN
+Recorded at Roundhouse Recording Studios, London, December 1975 - March 1976
+Mastered by ALAN CORBETT at RCA, London
+Equipment by DEL ROLL, PETE GIBBS, MIKE BRISCOE, GEORGE MERRIMAN, Thanks to the Wobblers - Chris and Rick
+Design: Shirtsleeve Studios
+
+BONUS TRACKS ON REMASTERED 1997 RELEASE:
+1. NAME OF THE GAME (Hensley) 4.59
+Out-take, previously unreleased
+2. SUNDOWN (Hensley) 3.20
+
+
+ 
+
+### "FIREFLY" 1977, Hard Rock
+
+Released in February 1977
+U.K. Catalog number Bronze ILPS 9483
+
+Side A
+1. THE HANGING TREE (Hensley/Williams) 3.42
+2. BEEN AWAY TOO LONG (Hensley) 5.04
+3. WHO NEEDS ME (Kerslake) 3.40
+4. WISE MAN (Hensley) 4.44
+
+Side B
+1. DO YOU KNOW (Hensley) 3.15
+2. ROLLIN’ ON (Hensley) 6.32
+3. SYMPATHY (Hensley) 4.50
+4. FIREFLY (Hensley) 6.18
+
+JOHN LAWTON - Lead Vocals
+MICK BOX - Guitars
+TREVOR BOLDER - Bass Guitar
+LEE ‘THE BEAR’ KERSLAKE - Drums/Vocals
+KEN HENSLEY - Keyboards/Guitars/Vocals
+
+Produced by GERRY BRON
+Engineer PETER GALLEN
+Assisted by JOHN GALLEN
+Recorded and mixed at Roundhouse Recording Studios, London, England, October/November 1976
+Cover concept and co-ordination GAIL CLARKE
+Cover painting MARTIN WHITE
+Special thanks to Rick, Chris, Pete, Alistair and Phil
+Medal for bravery TONY PATRICK & DODGE DEMOS
+
+BONUS TRACKS ON REMASTERED 1997 RELEASE:
+1. CRIME OF PASSION (Box/Hensley/Kerslake) 3.37
+Originally b-side of ‘Wise Man’ single in UK and ‘Sympathy’ single in Germany. Also on ‘Rarities From The Bronze Age’ (1991)
+2. DO YOU KNOW [alternate version] (Hensley) 3.16
+Demo version, previously unreleased
+3. A FAR BETTER WAY (Hensley/Box/Kerslake/Bolder/Lawton) 5.50
+Out-take, released for the first time on ‘A Time Of Revelation’ (1996)
+4. WISE MAN [TV backing track] (Hensley) 4.48
+Alternate version, previously unreleased
+
+
+ 
+
+### "INNOCENT VICTIM" 1977, Hard Rock
+
+Released in November 1977
+U.K. Catalog number Bronze BRON 504
+
+Side A
+1. KEEP ON RIDIN' (Hensley/Williams) 3.41
+2. FLYIN’ HIGH (Hensley) 3.18
+3. ROLLER (Bolder/McDonald) 4.38
+4. FREE ’N’ EASY (Lawton/Box) 3.02
+5. ILLUSION (Hensley) 5.02
+
+Side B
+1. FREE ME (Hensley) 3.35
+2. CHEAT ’N’ LIE (Hensley) 4.50
+3. THE DANCE (Williams) 4.49
+4. CHOICES (Williams) 5.42
+
+MICK BOX - Guitars
+JOHN LAWTON - Vocals
+KEN HENSLEY - Keyboard, Guitars, Vocals
+LEE KERSLAKE - Drums, Vocals
+TREVOR BOLDER - Bass
+
+Produced by GERRY BRON and KEN HENSLEY
+Engineered by PETER GALLEN, except "Choices" by MARK DEARNLEY
+Recorded at The Roundhouse Recording Studios, England, July/September 1977
+
+BONUS TRACKS ON REMASTERED 1997 RELEASE:
+1. ILLUSION / MASQUERADE [full unedited version] (Hensley) 8.18
+Masquerade was originally b-side of ‘Free Me’ single. Also on ‘Rarities From The Bronze Age’ (1991)
+2. THE RIVER [alternate version] (Hensley/Box/Kerslake/Bolder) 3.07
+Out-take, released for the first time on ‘A Time Of Revelation’ (1996)
+
+
+
+### "FALLEN ANGEL" 1978, Hard Rock
+
+Released in September 1978
+U.K. Catalog number Bronze BRNA 512
+
+Side A
+1. WOMAN OF THE NIGHT (Box/Lawton/Kerslake) 4.07
+2. FALLING IN LOVE (Hensley) 2.59
+3. ONE MORE NIGHT (LAST FAREWELL) (Hensley) 3.35
+4. PUT YOUR LOVIN' ON ME (Lawton) 4.08
+5. COME BACK TO ME (Kerslake/Hensley) 4.22
+
+Side B
+1. WHAD 'YA SAY (Hensley) 3.41
+2. SAVE IT (Bolder/McDonald) 3.33
+3. LOVE OR NOTHING (Hensley) 3.02
+4. I'M ALIVE (Lawton) 4.18
+5. FALLEN ANGEL (Hensley) 4.51
+
+MICK BOX - Electric and acoustic guitar
+TREVOR BOLDER - Bass guitar
+JOHN LAWTON - Lead vocals
+LEE KERSLAKE - Drums, Syn-drums, Back-up vocals
+KEN HENSLEY - Keyboards, Synthesizer, Slide and acoustic guitar, Back-up vocals
+
+CHRIS MERCER of "Gonzales" tenor solo on "Save It"
+
+Produced by GERRY BRON and KEN HENSLEY
+Engineer PETER GALLEN
+Assisted by JOHN GALLEN, JULIAN COOPER, COLIN BAINBRIDGE
+Recorded and mixed at Roundhouse Recording Studios,London, England, April, July & August 1878
+Thanks to CHRIS HEALEY, and JOHN ANTHONY
+
+BONUS TRACKS ON REMASTERED 1997 RELEASE:
+1. CHEATER (Hensley) 4.04
+Originally b-side 'Come Back To Me' single. Also on 'Rarities From The Bronze Age' (1991)
+2. GIMME LOVE (Box/Bolder/Kerslake/Lawton) 3.16
+Originally b-side of 'Love Or Nothing' single. Also on 'Rarities From The Bronze Age' (1991)
+3. A RIGHT TO LIVE [alternate version] (Lawton) 3.37
+Out-take, released for the first time on 'A Time Of Revelation' (1996)
+4. BEEN HURT [vocals John Lawton] (Hensley) 5.03
+Recorded at Five Miles sessions (1979). Previously unreleased
+
+
+ 
+
+### "CONQUEST" 1980, Hard Rock
+
+Released in February 1980
+U.K. Catalog number Bronze BRON 524
+
+Side A
+1. NO RETURN (Bolder/Box/Hensley) 6.02
+2. IMAGINATION (Hensley) 5.49
+3. FEELINGS (Hensley) 5.26
+4. FOOLS (Bolder) 5.03
+
+Side B
+1. CARRY ON (Hensley) 3.57
+2. WON’T HAVE TO WAIT TOO LONG (Bolder/Box/Hensley) 4.54
+3. OUT ON THE STREET (Hensley) 5.57
+4. IT AIN’T EASY (Bolder) 5.45
+
+MICK BOX - Guitars
+JOHN SLOMAN - Lead & backing vocals, Piano, Percussion
+CHRIS SLADE - Staccato drums, Percussion
+TREVOR BOLDER - Bass guitar
+KEN HENSLEY - obx, Vocoder, Organ, Piano, Guitars, Backing vocals
+
+Produced by URIAH HEEP & JOHN GALLEN
+Executive producer GERRY BRON
+Engineered by JOHN GALLEN
+Recorded at ROUNDHOUSE RECORDING STUDIOS, LONDON, 1979
+Photo MARTIN POOLE
+
+BONUS TRACKS ON REMASTERED 1997 RELEASE:
+1. BEEN HURT (Hensley) 3.56
+Originally b-side of ‘Carry On’ single in UK and ‘Feelings’ single in Germany. Also on ‘Rarities From The Bronze Age’ (1991). This version has slightly different lyrics than the earlier version
+2. LOVE STEALER (Myhill/Wainman) 3.28
+Originally single a-side. Also on ‘Rarities From The Bronze Age’ (1991)
+3. THINK IT OVER [vocals John Sloman] (Bolder/Sloman) 3.33
+Originally single a-side. Also on ‘Rarities From The Bronze Age’ (1991). This version has slightly different lyrics than the later version on ‘Abominog’
+4. MY JOANNA NEEDS TUNING (Bolder/Box/Dechert/Slade/Sloman) 3.02
+Originally b-side of ‘Think It Over’ single. Also on ‘Rarities From The Bronze Age’ (1991)
+5. LYING (Hensley/Sloman/Bolder/Slade) 4.23
+Out-take, previously unreleased
+
+
+ 
+
+### "ABOMINOG" 1982, Hard Rock
+
+Released in March 1982
+U.K. Catalog number Bronze BRON 538
+
+Side A
+1. TOO SCARED TO RUN (Box/Daisley/Goalby/Kerslake/Sinclair) 3.47
+2. CHASING SHADOWS (Box/Daisley/Goalby/Kerslake/Sinclair) 4.38
+3. ON THE REBOUND (Ballard) 3.13
+4. HOT NIGHT IN A COLD TOWN (Cushing-Murray/Littlefield)3.57
+5. RUNNING ALL NIGHT (With The Lion) (Farr/Box/Daisley/Goalby/Kerslake/Sinclair) 4.24
+
+Side B
+1. THAT'S THE WAY THAT IT IS (Bliss) 4.04
+2. PRISONER (Lance/Cooper/Riparetti) 4.27
+3. HOT PERSUASION (Box/Daisley/Goalby/Kerslake/Sinclair) 3.45
+4. SELL YOUR SOUL (Box/Daisley/Goalby/Kerslake/Sinclair) 5.22
+5. THINK IT OVER (Bolder/Sloman) 3.33
+
+LEE KERSLAKE - Drums, Vocals
+PETER GOALBY - Vocals
+BOB DAISLEY - Bass, Vocals
+JOHN SINCLAIR - Keyboards, Vocals
+MICK BOX - Huitars, Vocals
+
+Produced by ASHLEY HOWE
+Engineered by ASHLEY HOWE & NICK ROGERS
+Recorded in London, October/December 1981
+
+BONUS TRACKS ON REMASTERED 1997 RELEASE:
+1. TIN SOLDIER (Marriott/Lane) 3.49
+Originally on 'Abominog Jr' EP. Also on 'Rarities From The Bronze Age' (1991)
+2. SON OF A BITCH (Box/Daisley/Goalby/Sinclair/Kerslake) 4.08
+Originally on 'Abominog Jr' EP. Also on 'Rarities From The Bronze Age' (1991)
+3. THAT'S THE WAY THAT IT IS [alternate version] (Bliss) 4.27
+Demo version recorded at Ridge Farm sessions 1981
+4. HOT PERSUASION [alternate version] (Box/Daisley/Goalby/Kerslake/Sinclair) 4.04
+Demo version recorded at Ridge Farm sessions 1981
+
+
+ 
+
+### "SONIC ORIGAMI" 1998, Hard Rock
+
+Released in September 1998
+UK Catalog Number EAGCD 043
+
+1. BETWEEN TWO WORLDS (Box/Lanzon) 6.29
+2. I HEAR VOICES (Bolder) 3.55
+3. PERFECT LITTLE HEART (Box/Lanzon) 5.17
+4. HEARTLESS LAND (Box/P. Lanzon/M. Lanzon) 4.44
+5. ONLY THE YOUNG (Bolder) 4.43
+6. IN THE MOMENT (Box/Lanzon) 6.23
+7. QUESTION (Box/Lanzon) 5.26
+8. CHANGE (Box/Lanzon) 6.02
+9. SHELTER FROM THE RAIN (Bolder) 6.10
+10. EVERYTHING IN LIFE (Box/Lanzon/Bolder/Kerslake) 3.15
+11. ACROSS THE MILES (Peterick/Sullivan) 5.13
+12. FEELS LIKE (Box/Lanzon) 4.37
+13. THE GOLDEN PALACE (Box/Lanzon) 8.29
+14. SWEET PRETENDER (Bolder) 4.50 *
+
+BAKERS DOZEN - LUCKY THIRTEEN
+
+TOTAL PROGRAM LENGTH OF CD: 75.45
+BONUS TRACK SWEET PRETENDER (T. Bolder) 4.50 LIMITED EDITION ONLY
+
+ALL SONGS PUBLISHED BY ‘A TALE OF TWO DITTIES’ EXCEPT ‘ACROSS THE MILES’ SONG PLUGIN (ASCAP) / EMI / EASY ACTION MUSIC (ASCAP) / FAMOUS MUSIC CORP
+ORCHESTRA ON ‘THE GOLDEN PALACE’ WRITTEN & ARRANGED BY PHIL LANZON
+VERSE LYRICS ON ‘HEARTLESS LAND’ WRITTEN BY MATTHEW LANZON
+ALL SONGS ARRANGED BY URIAH HEEP
+
+
+ 
+
+### "Wake The Sleeper " 2008, Hard Rock
+
+1 Wake The Sleeper   
+2 Overload   
+3 Tears Of the World   
+4 Light Of A Thousand Stars   
+5 Heavens Rain   
+6 Book Of Lies   
+7 What Kind Of God   
+8 Ghost Of The Ocean   
+9 Angels Walk With You   
+10 Shadow   
+11 War Child 
+ 
+
+
+Bernie Shaw - Lead Vocals
+Mick Box - Guitar, Vocals
+Trevor Bolder - Bass, Vocals
+Phil Lanzon - Keyboards, Vocals
+Russell Gilbrook - Drums, Vocals  
+
+
+### "Into The Wild" 2011, Hard Rock
+
+01. Nail On The Head
+02. I Can See You
+03. Into The Wild
+04. Money Talk
+05. Trail Of Diamonds
+06. Lost
+07. Believe
+08. Southern Star
+09. I'm Ready
+10. T-bird Angel
+11. Kiss Of Freedom
+
 
 ## Отношения с другими группами
 

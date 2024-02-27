@@ -1,8 +1,17 @@
 # Jacobs Dream
 
-Дискография
-"Jacobs Dream" 2000, Power Metal
-"Drama Of The Ages" 2005, Power Metal
+Coolest power-progressive
+
+## Дискография
+
+### "Jacobs Dream" 2000, Power Metal
+
+
+
+### "Drama Of The Ages" 2005, Power Metal
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,27 @@
 # Shatter It All
 
-Дискография
-"Corporal Puzzle" 2010, Grindcore
+
+
+## Дискография
+
+### "Corporal Puzzle" 2010, Grindcore
+
+1. Regression 02:37  
+2. Skin Limbs Collection 01:15  
+3. Devoured By Your Own Obsession 01:38  
+4. Painful Life 01:50  
+5. Mentally Disturbed 01:34  
+6. Unhealthy 00:35  
+7. Autumn's Ashes 01:35  
+8. The Edge 01:10  
+9. Corporal Puzzle 01:29  
+10. Discorde 01:01  
+11. Self Contamination 02:24  
+12. Reason To Kill 00:24  
+13. Human Is The Agony Of The Earth 02:09  
+14. Morbid Reality 01:15  
+15. Albert Hamilton Fish (Dahmer Cover) 01:11 
+
 
 ## Отношения с другими группами
 

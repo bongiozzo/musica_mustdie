@@ -1,9 +1,70 @@
 # Saidian
 
-Дискография
-"...For Those Who Walk The Path Forlorns" 2005, Progressive
-"Phoenix" 2006, Progressive
-"Evercircle" 2009, Progressive
+
+
+## Дискография
+
+### "...For Those Who Walk The Path Forlorns" 2005, Progressive
+
+1. The Path Forlorn (Intro); 
+2. Burn Down The Night; 
+3. Lonely Nights; 
+4. Silent Killer; 
+5. Heart Of Stone; 
+6. Cry In The Rain; 
+7. Chains Of Time; 
+8. The Only One; 
+9. Raging Fire
+
+All songs written by SAIDIAN
+Produced, recorded, engineered and mixed by Vagelis Maranis
+Recorded at Maranis Studio, Backnang, Germany
+
+Markus Engelfried - Vocals
+Markus Bohr - Keyboards
+Rodrigo Blattert - Guitars
+Manuel Classmann - Bass
+Stefan Dittrich - Drums
+
+### "Phoenix" 2006, Progressive
+
+1. Resurrection (Intro) 00:42  
+2. Ride on a Phoenix 04:52 
+3. Praise the Lord 04:24
+4. State of Euphoria 04:33 
+5. Fallen Hero 04:53 
+6. Crown of Creation 07:08
+7. See The Light 05:29 
+8. Never Surrender 05:47 
+9. The Jester 07:07
+10. Ride like the Wind 04:33  
+11. Nine Lives 04:14
+12. Power and Glory 05:46 
+13. Reign of Agony 04:39 
+
+
+line -up:
+Markus Engelfried - vocals
+Rodrigo Blattert - guitars
+Manuel Glassmann - bass
+Stefan Dittrich - drums
+Markus Bohr - keyboards 
+
+### "Evercircle" 2009, Progressive
+
+1. Out Of The Shadows 04:34  
+2. Tokyo 03:56  
+3. Solomon‘s Dance 05:28  
+4. Once In My Dreams 07:01  
+5. Pale Moon Rider 05:31  
+6. Stroke Of Genius 06:03  
+7. Moonlight’s Calling 08:16  
+8. Sign In The Sky 05:11  
+9. The Princess 04:42  
+10. Halos For Everyone 05:22  
+Total playing time 56:04 
+
+
 
 ## Отношения с другими группами
 

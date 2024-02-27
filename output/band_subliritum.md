@@ -1,7 +1,20 @@
 # Subliritum
 
-Дискография
-"Dark Prophecies" 2003, Black Metal
+
+
+## Дискография
+
+### "Dark Prophecies" 2003, Black Metal
+
+Dark Prophecies	    07:08	
+The Narrow Path	    05:03
+Fear the Morning to come	    05:58	
+Prelude to War	    02:45	
+Raging Battles	    06:28	
+The Predators Hunt	    04:34	
+Nocturnal Hunt in the Fields   06:02		
+The Cries of the Fallen	    05:32
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,26 @@
 # Symphonity
 
-Дискография
-"Voice from the Silence" 2008, Power Metal
-"King of Persia" 2016, Power Metal
+
+
+## Дискография
+
+### "Voice from the Silence" 2008, Power Metal
+
+
+
+### "King of Persia" 2016, Power Metal
+
+01. King Of Persia 9:06
+02. The Choice 4:15
+03. In The Name Of God 4:11
+04. Flying 4:38
+05. A Farewell That Wasn't Meant To Be 6:33
+06. Children Of The Light 7:08
+07. Siren Call 2:54
+08. Live To Tell The Tale 6:32
+09. Unwelcome 5:14
+10. Out Of This World 2:32
+
 
 ## Отношения с другими группами
 

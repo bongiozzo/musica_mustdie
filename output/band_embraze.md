@@ -1,11 +1,106 @@
 # Embraze
 
-Дискография
-"LAEH" 1998, Doom
-"Intense" 1999, Doom
-"Endless Journey" 2000, Gothic
-"Katharsis" 2002, Gothic
-"The Last Embrace" 2006, Gothic
+(Finland)
+
+## Дискография
+
+### "LAEH" 1998, Doom
+
+1 Charm Of The Wilderness (3.44)   
+2 Dead Spring (2.47)    
+3 Fragments Of Life (4.59)    
+4 Autumn Child (4.24)    
+5 Close My Stage (4.52)    
+6 Mystic (2.56)    
+7 I Was Made For Lovin' You (4.18)     
+8 This Moment (3.59)     
+9 Amid Peals (2.58)     
+10 Sweet Hate (5.07)     
+11 Stream Of Emptiness (3.32)     
+  +hidden bonus track       
+   
+      
+  Under exclusive licence to Mastervox Records   
+All songs written by  1 and 9 by Tuohimaa/Mддttд, 7 by Stanley/Poncia/Child and 10 by Tuohimaa/Nissinen   
+All lyrics written by  Tuohimaa (co-lyricist Topi Hanhela)
+   
+Produced by  I. Ilmarinen   
+Release date  24th April 1998, LAEH is the debut album on Mastervox Records  
+
+
+### "Intense" 1999, Doom
+
+1 Sin, Love And The Devil (single edit)  (3.35)   
+2 This Cold Day (3.52)     
+3 Rain And Moon (5.56)   
+4 Endless Journey (4.32)     
+5 Passion (4.11)     
+6 One Moon, One Star (6.24)     
+7 Shame (6.17)     
+8 Sin, Love And The Devil (album version)  (5.12)     
+9 Looking Ahead into the Embrace of Hell (2.50)     
+   
+      
+  Under exclusive licence to Mastervox Records   
+All songs written by  Tuohimaa except 2 byTuohimaa/Mддttд/Rдsдnen, 4  by Tuohimaa/Mддttд and 9 by Mддttд    
+All lyrics written by  Tuohimaa & Hanhela 
+   
+Produced by  I. Ilmarinen and T.  Hanhela   
+Release date  23th April 1999, Intense is the second album on Mastervox Records  
+
+
+### "Endless Journey" 2000, Gothic
+
+1 Whispers (5.10)     
+2 Lost (3.59)     
+3 Endless Journey (4.33)     
+4 Robot Stud (4.02)       
+5 Passion (4.08)     
+6 Tenderness (4.53)     
+7 One Moon, One Star (6.24)     
+8 This Cold Day (3.55)     
+9 Lethal Dance (4.54)   
+10 Looking Ahead into the Embrace of Hell (2.50)     
+   
+      
+  Under exclusive licence to Mastervox Records   
+All songs written by  Tuohimaa except 2 by Uusitalo/Mддttд/Tuohimaa, 3 by Mддttд/Tuohimaa, 4 by Salonkari, 8 by Tuohimaa/Mддttд/Rдsдnen and 10 by Mддttд    
+All lyrics written by  Tuohimaa & Hanhela except 4 by A. Mount
+   
+Produced by  I. Ilmarinen and T.  Hanhela   
+Release date  26th May 2000, Endless Journey is the European version of Intense    
+    
+
+
+### "Katharsis" 2002, Gothic
+
+01. My Star 
+02. Beautiful Death 
+03. Fear 
+04. The Sun Loves Moon 
+05. Filthy Angels 
+06. Subzero 
+07. Frozen Sun 
+08. Closed 
+09. Calm and Distant 
+10. Kiiminkijoki 
+11. Sinmaker 
+
+
+
+### "The Last Embrace" 2006, Gothic
+
+1. Carvings on the Gallowstree
+2. Branded 
+3. Racing Against Time 
+4. Dead Roses 
+5. Liquid Fire 
+6. Memory Trace of our Time 
+7. The One 
+8. Sleeping Ground 
+9. Sun Goes Down 
+10. No Solace
+
 
 ## Отношения с другими группами
 

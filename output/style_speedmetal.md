@@ -2,18 +2,8 @@
 
 ## Speed Metal
 
-Группа: Slayer
-Альбом: "Nocturnal Spectre - Rehersal [demo]"
-Стиль: Speed Metal
-Год: 1983
-
 Группа: Anthrax
 Альбом: "Fistful of Metal"
-Стиль: Speed Metal
-Год: 1983
-
-Группа: Slayer
-Альбом: "Show No Mercy"
 Стиль: Speed Metal
 Год: 1983
 
@@ -22,13 +12,18 @@
 Стиль: Speed Metal
 Год: 1983
 
-Группа: Living Death
-Альбом: "Vengeance Of Hell"
+Группа: Slayer
+Альбом: "Nocturnal Spectre - Rehersal [demo]"
 Стиль: Speed Metal
-Год: 1984
+Год: 1983
 
-Группа: Warfare
-Альбом: "Noise, Filth And Fury (EP)"
+Группа: Slayer
+Альбом: "Show No Mercy"
+Стиль: Speed Metal
+Год: 1983
+
+Группа: Destruction
+Альбом: "Sentence Of Death"
 Стиль: Speed Metal
 Год: 1984
 
@@ -37,23 +32,8 @@
 Стиль: Speed Metal
 Год: 1984
 
-Группа: Warfare
-Альбом: "Pure Filth"
-Стиль: Speed Metal
-Год: 1984
-
-Группа: Destruction
-Альбом: "Sentence Of Death"
-Стиль: Speed Metal
-Год: 1984
-
-Группа: Sodom
-Альбом: "In the Sign of Evil"
-Стиль: Speed Metal
-Год: 1984
-
-Группа: Slayer
-Альбом: "Haunting the Chapel [EP]"
+Группа: Living Death
+Альбом: "Vengeance Of Hell"
 Стиль: Speed Metal
 Год: 1984
 
@@ -62,33 +42,28 @@
 Стиль: Speed Metal
 Год: 1984
 
-Группа: Agent Steel
-Альбом: "Mad Locust Rising (EP)"
+Группа: Slayer
+Альбом: "Haunting the Chapel [EP]"
 Стиль: Speed Metal
-Год: 1985
+Год: 1984
 
-Группа: Megadeth
-Альбом: "Killing Is My Business... And Business Is Good!"
+Группа: Sodom
+Альбом: "In the Sign of Evil"
 Стиль: Speed Metal
-Год: 1985
+Год: 1984
 
 Группа: Warfare
-Альбом: "Metal Anarchy"
+Альбом: "Noise, Filth And Fury (EP)"
 Стиль: Speed Metal
-Год: 1985
+Год: 1984
 
-Группа: Destruction
-Альбом: "Infernal Overkill"
+Группа: Warfare
+Альбом: "Pure Filth"
 Стиль: Speed Metal
-Год: 1985
+Год: 1984
 
-Группа: Lucifer's Heritage
-Альбом: "Symphonies of Doom"
-Стиль: Speed Metal
-Год: 1985
-
-Группа: Living Death
-Альбом: "Metal Revolution"
+Группа: Agent Steel
+Альбом: "Mad Locust Rising (EP)"
 Стиль: Speed Metal
 Год: 1985
 
@@ -97,28 +72,18 @@
 Стиль: Speed Metal
 Год: 1985
 
-Группа: Anthrax
-Альбом: "Armed and Dangerous"
-Стиль: Speed Metal
-Год: 1985
-
 Группа: Angel Dust
 Альбом: "Marching for Revenge (demo)"
 Стиль: Speed Metal
 Год: 1985
 
-Группа: Slayer
-Альбом: "Hell Awaits"
+Группа: Anthrax
+Альбом: "Armed and Dangerous"
 Стиль: Speed Metal
 Год: 1985
 
-Группа: Living Death
-Альбом: "Watch Out!"
-Стиль: Speed Metal
-Год: 1985
-
-Группа: Running Wild
-Альбом: "Branded and Exiled"
+Группа: Destruction
+Альбом: "Infernal Overkill"
 Стиль: Speed Metal
 Год: 1985
 
@@ -127,28 +92,48 @@
 Стиль: Speed Metal
 Год: 1985
 
+Группа: Living Death
+Альбом: "Metal Revolution"
+Стиль: Speed Metal
+Год: 1985
+
+Группа: Living Death
+Альбом: "Watch Out!"
+Стиль: Speed Metal
+Год: 1985
+
+Группа: Lucifer's Heritage
+Альбом: "Symphonies of Doom"
+Стиль: Speed Metal
+Год: 1985
+
+Группа: Megadeth
+Альбом: "Killing Is My Business... And Business Is Good!"
+Стиль: Speed Metal
+Год: 1985
+
+Группа: Running Wild
+Альбом: "Branded and Exiled"
+Стиль: Speed Metal
+Год: 1985
+
+Группа: Slayer
+Альбом: "Hell Awaits"
+Стиль: Speed Metal
+Год: 1985
+
+Группа: Warfare
+Альбом: "Metal Anarchy"
+Стиль: Speed Metal
+Год: 1985
+
 Группа: Warrant [GER]
 Альбом: "The Enforcer"
 Стиль: Speed Metal
 Год: 1985
 
-Группа: Kreator
-Альбом: "Flag Of Hate (EP)"
-Стиль: Speed Metal
-Год: 1986
-
 Группа: Angel Dust
 Альбом: "Into the Dark Past (LP)"
-Стиль: Speed Metal
-Год: 1986
-
-Группа: Exorcist
-Альбом: "Nightmare Theatre"
-Стиль: Speed Metal
-Год: 1986
-
-Группа: Kreator
-Альбом: "Pleasure To Kill"
 Стиль: Speed Metal
 Год: 1986
 
@@ -157,13 +142,8 @@
 Стиль: Speed Metal
 Год: 1986
 
-Группа: Taurus
-Альбом: "Signo de Taurus"
-Стиль: Speed Metal
-Год: 1986
-
-Группа: Nuclear Assault
-Альбом: "Game Over"
+Группа: Destruction
+Альбом: "Eternal Devastation"
 Стиль: Speed Metal
 Год: 1986
 
@@ -172,8 +152,8 @@
 Стиль: Speed Metal
 Год: 1986
 
-Группа: Megadeth
-Альбом: "Peace Sells... But Who's Buying?"
+Группа: Exorcist
+Альбом: "Nightmare Theatre"
 Стиль: Speed Metal
 Год: 1986
 
@@ -182,18 +162,18 @@
 Стиль: Speed Metal
 Год: 1986
 
-Группа: Warfare
-Альбом: "Mayhem, Fuckin' Mayhem"
+Группа: Impaler [US]
+Альбом: "If We Had Brains... We'd Be Dangerous"
 Стиль: Speed Metal
 Год: 1986
 
-Группа: Destruction
-Альбом: "Eternal Devastation"
+Группа: Kreator
+Альбом: "Flag Of Hate (EP)"
 Стиль: Speed Metal
 Год: 1986
 
-Группа: Lucifer's Heritage
-Альбом: "Battalions of Fear"
+Группа: Kreator
+Альбом: "Pleasure To Kill"
 Стиль: Speed Metal
 Год: 1986
 
@@ -202,18 +182,38 @@
 Стиль: Speed Metal
 Год: 1986
 
+Группа: Lucifer's Heritage
+Альбом: "Battalions of Fear"
+Стиль: Speed Metal
+Год: 1986
+
+Группа: Megadeth
+Альбом: "Peace Sells... But Who's Buying?"
+Стиль: Speed Metal
+Год: 1986
+
 Группа: Nuclear Assault
 Альбом: "Brain Death"
 Стиль: Speed Metal
 Год: 1986
 
-Группа: Impaler [US]
-Альбом: "If We Had Brains... We'd Be Dangerous"
+Группа: Nuclear Assault
+Альбом: "Game Over"
 Стиль: Speed Metal
 Год: 1986
 
-Группа: Running Wild
-Альбом: "Under Jolly Roger"
+Группа: Taurus
+Альбом: "Signo de Taurus"
+Стиль: Speed Metal
+Год: 1986
+
+Группа: Warfare
+Альбом: "Mayhem, Fuckin' Mayhem"
+Стиль: Speed Metal
+Год: 1986
+
+Группа: Holy Terror
+Альбом: "Terror And Submission"
 Стиль: Speed Metal
 Год: 1987
 
@@ -222,23 +222,18 @@
 Стиль: Speed Metal
 Год: 1987
 
-Группа: Holy Terror
-Альбом: "Terror And Submission"
+Группа: Running Wild
+Альбом: "Under Jolly Roger"
 Стиль: Speed Metal
 Год: 1987
 
-Группа: Living Death
-Альбом: "Worlds Neuroses"
+Группа: Angel Dust
+Альбом: "To Dust You will Decay (LP)"
 Стиль: Speed Metal
 Год: 1988
 
-Группа: Riot
-Альбом: "Thundersteel"
-Стиль: Speed Metal
-Год: 1988
-
-Группа: Taurus
-Альбом: "Trapped in Lies"
+Группа: Blind Guardian
+Альбом: "Battalions Of Fear"
 Стиль: Speed Metal
 Год: 1988
 
@@ -252,28 +247,23 @@
 Стиль: Speed Metal
 Год: 1988
 
-Группа: Risk
-Альбом: "The Daily Horror News"
-Стиль: Speed Metal
-Год: 1988
-
 Группа: Holy Terror
 Альбом: "Mind Wars"
 Стиль: Speed Metal
 Год: 1988
 
-Группа: Blind Guardian
-Альбом: "Battalions Of Fear"
+Группа: Living Death
+Альбом: "Worlds Neuroses"
 Стиль: Speed Metal
 Год: 1988
 
-Группа: Running Wild
-Альбом: "Ready for Boarding"
+Группа: Riot
+Альбом: "Thundersteel"
 Стиль: Speed Metal
 Год: 1988
 
-Группа: Angel Dust
-Альбом: "To Dust You will Decay (LP)"
+Группа: Risk
+Альбом: "The Daily Horror News"
 Стиль: Speed Metal
 Год: 1988
 
@@ -282,38 +272,18 @@
 Стиль: Speed Metal
 Год: 1988
 
-Группа: Risk
-Альбом: "Ratman (EP)"
+Группа: Running Wild
+Альбом: "Ready for Boarding"
 Стиль: Speed Metal
-Год: 1989
-
-Группа: Powermad
-Альбом: "Absolute Power"
-Стиль: Speed Metal
-Год: 1989
+Год: 1988
 
 Группа: Taurus
-Альбом: "Pornography"
+Альбом: "Trapped in Lies"
 Стиль: Speed Metal
-Год: 1989
-
-Группа: Risk
-Альбом: "Hell's Animals"
-Стиль: Speed Metal
-Год: 1989
+Год: 1988
 
 Группа: Blind Guardian
 Альбом: "Follow The Blind"
-Стиль: Speed Metal
-Год: 1989
-
-Группа: Running Wild
-Альбом: "Death Or Glory"
-Стиль: Speed Metal
-Год: 1989
-
-Группа: Venom
-Альбом: "Prime Evil"
 Стиль: Speed Metal
 Год: 1989
 
@@ -322,35 +292,60 @@
 Стиль: Speed Metal
 Год: 1989
 
+Группа: Powermad
+Альбом: "Absolute Power"
+Стиль: Speed Metal
+Год: 1989
+
+Группа: Risk
+Альбом: "Hell's Animals"
+Стиль: Speed Metal
+Год: 1989
+
+Группа: Risk
+Альбом: "Ratman (EP)"
+Стиль: Speed Metal
+Год: 1989
+
+Группа: Running Wild
+Альбом: "Death Or Glory"
+Стиль: Speed Metal
+Год: 1989
+
 Группа: Sarcasm
 Альбом: "Crematory"
 Стиль: Speed Metal
 Год: 1989
 
-Группа: Risk
-Альбом: "Dirty Surfaces"
+Группа: Taurus
+Альбом: "Pornography"
 Стиль: Speed Metal
-Год: 1990
+Год: 1989
+
+Группа: Venom
+Альбом: "Prime Evil"
+Стиль: Speed Metal
+Год: 1989
 
 Группа: Impaler [US]
 Альбом: "Wake Up Screaming"
 Стиль: Speed Metal
 Год: 1990
 
-Группа: Running Wild
-Альбом: "Blazon Stone"
+Группа: Risk
+Альбом: "Dirty Surfaces"
 Стиль: Speed Metal
-Год: 1991
+Год: 1990
 
 Группа: Broken Glazz
 Альбом: "Divine"
 Стиль: Speed Metal
 Год: 1991
 
-Группа: Warfare
-Альбом: "A Crescendo Of Reflections (Compilation)"
+Группа: Running Wild
+Альбом: "Blazon Stone"
 Стиль: Speed Metal
-Год: 1992
+Год: 1991
 
 Группа: Broken Glazz
 Альбом: "Withdraw From Reality"
@@ -359,6 +354,11 @@
 
 Группа: Exciter
 Альбом: "Kill After Kill"
+Стиль: Speed Metal
+Год: 1992
+
+Группа: Warfare
+Альбом: "A Crescendo Of Reflections (Compilation)"
 Стиль: Speed Metal
 Год: 1992
 
@@ -407,11 +407,6 @@
 Стиль: Speed Metal
 Год: 2000
 
-Группа: Living Death
-Альбом: "Vengeance Of Hell (remastered)"
-Стиль: Speed Metal
-Год: 2001
-
 Группа: Damien Thorne
 Альбом: "Wrath of Darkness"
 Стиль: Speed Metal
@@ -422,18 +417,18 @@
 Стиль: Speed Metal
 Год: 2001
 
+Группа: Living Death
+Альбом: "Vengeance Of Hell (remastered)"
+Стиль: Speed Metal
+Год: 2001
+
 Группа: Vastator
 Альбом: "The Night of San Juan"
 Стиль: Speed Metal
 Год: 2001
 
-Группа: Sarcasm
-Альбом: "Igra Narave"
-Стиль: Speed Metal
-Год: 2002
-
-Группа: Sacred Steel
-Альбом: "Slaughter Prophecy"
+Группа: Impaler [US]
+Альбом: "Old School Ghouls"
 Стиль: Speed Metal
 Год: 2002
 
@@ -442,8 +437,13 @@
 Стиль: Speed Metal
 Год: 2002
 
-Группа: Impaler [US]
-Альбом: "Old School Ghouls"
+Группа: Sacred Steel
+Альбом: "Slaughter Prophecy"
+Стиль: Speed Metal
+Год: 2002
+
+Группа: Sarcasm
+Альбом: "Igra Narave"
 Стиль: Speed Metal
 Год: 2002
 
@@ -467,33 +467,33 @@
 Стиль: Speed Metal
 Год: 2004
 
-Группа: Sacred Steel
-Альбом: "Iron Blessings"
-Стиль: Speed Metal
-Год: 2004
-
 Группа: Exciter
 Альбом: "New Testament"
 Стиль: Speed Metal
 Год: 2004
 
-Группа: Impaler [US]
-Альбом: "Habeas Corpus"
+Группа: Sacred Steel
+Альбом: "Iron Blessings"
 Стиль: Speed Metal
-Год: 2005
+Год: 2004
 
 Группа: Damien Thorne
 Альбом: "Haunted Mind"
 Стиль: Speed Metal
 Год: 2005
 
-Группа: Sarcasm
-Альбом: "Revolt"
+Группа: Impaler [US]
+Альбом: "Habeas Corpus"
 Стиль: Speed Metal
-Год: 2006
+Год: 2005
 
 Группа: Sacred Steel
 Альбом: "Hammer of Destruction"
+Стиль: Speed Metal
+Год: 2006
+
+Группа: Sarcasm
+Альбом: "Revolt"
 Стиль: Speed Metal
 Год: 2006
 
@@ -507,13 +507,8 @@
 Стиль: Speed Metal
 Год: 2007
 
-Группа: Exciter
-Альбом: "Thrash, Speed, Burn"
-Стиль: Speed Metal
-Год: 2008
-
-Группа: Enforcer
-Альбом: "Into The Night"
+Группа: Alltheniko
+Альбом: "Devasterpiece"
 Стиль: Speed Metal
 Год: 2008
 
@@ -522,8 +517,13 @@
 Стиль: Speed Metal
 Год: 2008
 
-Группа: Alltheniko
-Альбом: "Devasterpiece"
+Группа: Enforcer
+Альбом: "Into The Night"
+Стиль: Speed Metal
+Год: 2008
+
+Группа: Exciter
+Альбом: "Thrash, Speed, Burn"
 Стиль: Speed Metal
 Год: 2008
 
@@ -532,28 +532,18 @@
 Стиль: Speed Metal
 Год: 2009
 
-Группа: Valkyrie's Cry
-Альбом: "Valkyrie's Cry"
-Стиль: Speed Metal
-Год: 2009
-
 Группа: Sacred Steel
 Альбом: "Carnage Victory"
 Стиль: Speed Metal
 Год: 2009
 
-Группа: Vastator
-Альбом: "Machine Hell"
+Группа: Valkyrie's Cry
+Альбом: "Valkyrie's Cry"
 Стиль: Speed Metal
-Год: 2010
+Год: 2009
 
-Группа: Thornsick
-Альбом: "Games Of Annihilation [EP]"
-Стиль: Speed Metal
-Год: 2010
-
-Группа: Warrant [GER]
-Альбом: "Ready to Command 2010"
+Группа: Enforcer
+Альбом: "Diamonds"
 Стиль: Speed Metal
 Год: 2010
 
@@ -562,23 +552,33 @@
 Стиль: Speed Metal
 Год: 2010
 
-Группа: Enforcer
-Альбом: "Diamonds"
-Стиль: Speed Metal
-Год: 2010
-
 Группа: Taurus
 Альбом: "Fissura"
 Стиль: Speed Metal
 Год: 2010
 
-Группа: Asgard
-Альбом: "The Seal of Madness"
+Группа: Thornsick
+Альбом: "Games Of Annihilation [EP]"
 Стиль: Speed Metal
-Год: 2011
+Год: 2010
+
+Группа: Vastator
+Альбом: "Machine Hell"
+Стиль: Speed Metal
+Год: 2010
+
+Группа: Warrant [GER]
+Альбом: "Ready to Command 2010"
+Стиль: Speed Metal
+Год: 2010
 
 Группа: Alltheniko
 Альбом: "Millennium Re-Burn"
+Стиль: Speed Metal
+Год: 2011
+
+Группа: Asgard
+Альбом: "The Seal of Madness"
 Стиль: Speed Metal
 Год: 2011
 
@@ -586,11 +586,6 @@
 Альбом: "30 Years of Hel (DVD + 2CD)"
 Стиль: Speed Metal
 Год: 2012
-
-Группа: Ranger
-Альбом: "Knights Of Darkness (EP)"
-Стиль: Speed Metal
-Год: 2013
 
 Группа: Enforcer
 Альбом: "Death By Fire"
@@ -602,13 +597,13 @@
 Стиль: Speed Metal
 Год: 2013
 
+Группа: Ranger
+Альбом: "Knights Of Darkness (EP)"
+Стиль: Speed Metal
+Год: 2013
+
 Группа: Helstar
 Альбом: "This Wicked Nest"
-Стиль: Speed Metal
-Год: 2014
-
-Группа: Ranger
-Альбом: "Skull Splitting Metal (Compilation)"
 Стиль: Speed Metal
 Год: 2014
 
@@ -617,13 +612,18 @@
 Стиль: Speed Metal
 Год: 2014
 
-Группа: Evil Invaders
-Альбом: "Pulses Of Pleasure"
+Группа: Ranger
+Альбом: "Skull Splitting Metal (Compilation)"
 Стиль: Speed Metal
-Год: 2015
+Год: 2014
 
 Группа: Enforcer
 Альбом: "From Beyond"
+Стиль: Speed Metal
+Год: 2015
+
+Группа: Evil Invaders
+Альбом: "Pulses Of Pleasure"
 Стиль: Speed Metal
 Год: 2015
 

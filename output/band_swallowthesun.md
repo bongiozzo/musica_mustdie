@@ -1,14 +1,156 @@
 # Swallow the Sun
 
-Дискография
-"The Morning Never Came" 2003, Death Doom
-"Ghosts of Loss" 2005, Death Doom
-"Hope" 2007, Death Doom
-"Don't Fall Asleep (EP)" 2007, Death Doom
-"Plague Of Butterflies" 2008, Death Doom
-"New Moon" 2009, Death Doom
-"Emerald Forest and the Blackbird" 2012, Death Doom
-"Songs from the North I, II & III" 2015, Death Doom
+Doomy Death Metal from Finland
+
+## Дискография
+
+### "The Morning Never Came" 2003, Death Doom
+
+1. Through Her Silvery Body 8:40
+2. Deadly Nighshade 5:48
+3. Out Of This Gloomy Light 5:37
+4. Swallow 5:23
+5. Silence of the Womb 6:50
+6. Hold This Woe 8:04
+7. Under The Waves 6:46
+8. The Morning Never Came 9:19
+
+
+M. Kotamaki - vocals
+J. Raivio - guitars
+M. Jamsen - guitars
+M. Honkonen - bass
+A. Munter - keyboards
+P. Pasanen - drums
+
+### "Ghosts of Loss" 2005, Death Doom
+
+1. The Giant 11:55
+2. Descending Winters 06:11 
+3. Psychopath's Lair 05:51 
+4. Forgive Her 09:02 
+5. Fragile 07:12 
+6. Ghost of Laura Palmer 08:07 
+7. Gloom, Beauty, and Despair 08:45 
+8. The Ship 08:55
+
+### "Hope" 2007, Death Doom
+
+1. Hope 07:53  
+2. These Hours of Despair 05:58  
+3. The Justice of Suffering 06:26  
+4. Don't Fall Asleep (Horror Pt. 2) 07:41  
+5. Too Cold For Tears 09:16  
+6. The Empty Skies 07:17  
+7. No Light, No Hope 04:42  
+8. Doomed to Walk the Earth 08:30
+
+### "Don't Fall Asleep (EP)" 2007, Death Doom
+
+1. Don't Fall Asleep (Horror Pt. 2) (edit) 04:56  
+2. These Low Lands 05:54  
+3. Don't Fall Asleep (Horror Pt. 2) 07:41 
+
+
+These Low Lands is covered song from Timo Rautiainen & Trio Niskalaukaus. 
+Tomi Joutsen from Amorphis sings the clean vocals.
+
+### "Plague Of Butterflies" 2008, Death Doom
+
+1. Plague of Butterflies  34:42   
+2. Through Her Silvery Body  * 08:01   
+3. Out of This Gloomy Light  * 05:34   
+4. Swallow (Horror Pt. I)  * 05:27   
+5. Under the Waves  * 06:36 
+
+First track is a score Swallow the Sun composed for a project combining metal and ballet. 
+The project was cancelled, so the band decided to release it as an EP. 
+The demo 'Out of This Gloomy Light' (2003) was included as bonus.
+
+"Plague of Butterflies" has three chapters:
+1. Losing the Sunsets
+2. Plague of Butterflies
+3. Evael 10:00
+
+### "New Moon" 2009, Death Doom
+
+1. These Woods Breathe Evil 06:43
+2. Falling World 05:08 
+3. Sleepless Swans 07:23 
+4. ...and Heavens Cried Blood 06:17 
+5. Lights on the Lake (Horror pt. III) 07:45 
+6. New Moon 05:00 
+7. Servant of Sorrow 06:25 
+8. Weight of the Dead 09:04 
+
+
+
+Lineup:
+Mikko Kotamaki - Vocals
+Juha Raivio - Guitars 
+Markus Jдmsen - Guitars 
+Matti Honkonen - Bass 
+Aleksi Munter - Keyboards 
+Kai Hahto - Drums
+
+Recorded at Fascination Street studios in Цrebro, Sweden with Jens Bogren. 
+
+### "Emerald Forest and the Blackbird" 2012, Death Doom
+
+1. Emerald Forest and the Blackbird  09:57   
+2. This Cut Is the Deepest  05:20   
+3. Hate, Lead the Way!  06:13   
+4. Cathedral Walls  06:46  
+5. Hearts Wide Shut  05:55   
+6. Silent Towers  04:01  
+7. Labyrinth of London (Horror Pt. IV)  08:29   
+8. Of Death and Corruption  05:00  
+9. April 14th  08:29   
+10. Night Will Forgive Us  06:41 
+Bonus track for Japan:
+11. These Low Lands
+
+
+### "Songs from the North I, II & III" 2015, Death Doom
+
+Disc 1  
+1. With You Came the Whole of the World's Tears    
+2. 10 Silver Bullets     
+3. Rooms and Shadows    
+4. Heartstrings Shattering  07:41   
+5. Silhouettes    
+6. The Memory of Light   
+7. Lost & Catatonic 
+8. From Happiness to Dust  
+    
+Disc 2  
+1. The Womb of Winter 
+2. The Heart of a Cold White Land      
+3. Away      
+4. Pray for the Winds to Come  
+5. Songs from the North    
+6. 66°50ґN,28°40ґE     
+7. Autumn Fire      
+8. Before the Summer Dies      
+  
+Disc 3  
+1. The Gathering of Black Moths    
+2. 7 Hours Late  
+3. Empires of Loneliness 
+4. Abandoned by the Light    
+5. The Clouds Prepare for Battle  
+
+Songs from the North is:
+
+“Songs from the North I” continues in the vein of the albums before it – first-rate death-doom.
+
+“Songs from the North II” is a beautiful acoustic foray, unplugged revel in the darkness.
+
+“Songs from the North III” is the most extreme album, a complete ride into most horrific abyss of finely-crafted, conscience-crushing funeral doom.
+
+ The release will be available as Special Edition 3CD Box containing 3 Digipaks and a booklet, Ltd. Deluxe Edition 5LP+3CD Box with each album in a gatefold sleeve & as digital album
+
+
 
 ## Отношения с другими группами
 

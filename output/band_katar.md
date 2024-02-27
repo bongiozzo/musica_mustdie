@@ -1,7 +1,13 @@
 # Katar
 
-Дискография
-"Paradigma Digitized" 2003, Industrial
+industrial-black (Rossomahaar members)
+
+## Дискография
+
+### "Paradigma Digitized" 2003, Industrial
+
+
+
 
 ## Отношения с другими группами
 

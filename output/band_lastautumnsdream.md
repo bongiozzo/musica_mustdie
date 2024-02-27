@@ -1,8 +1,46 @@
 # Last Autumn's Dream
 
-Дискография
-"Last Autumn's Dream" 2004, Hard Rock
-"II" 2005, Hard Rock
+Melodic Hard Rock
+
+## Дискография
+
+### "Last Autumn's Dream" 2004, Hard Rock
+
+1. Again and Again 
+2. Doin' Time 
+3. Guardian Angel 
+4. Break The Chains 
+5. Blink Of An Eye 
+6. Talk To Me 
+7. The One 
+8. I Never Let You Go 
+9. High Up 
+10. Movin' On 
+11. Going Home 
+
+
+Mikael Erlandsson (vocals) 
+John Leven (bass) 
+Andy Malecek (guitar) 
+Ian Haugland (drums) 
+Mic Michaeli (keyboards)
+
+### "II" 2005, Hard Rock
+
+1. Brand New Life
+2. Lost In You
+3. Heat Of Emotion
+4. So Much Love In The World
+5. Helpless
+6. This Gotta Be Love
+7. Up In Paradise
+8. Over And Out
+9. (Always Be) You And I
+10. Running
+11. Round And Round
+12. Keep Falling
+13. A Place to Hide In Town
+
 
 ## Отношения с другими группами
 

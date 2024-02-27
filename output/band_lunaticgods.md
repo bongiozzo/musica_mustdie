@@ -1,14 +1,199 @@
 # Lunatic Gods
 
-Дискография
-"Inhuman and Insensible" 1996, Metal
-"Sitting By The Fire" 1998, Metal
-"Cuckoo (EP)" 1999, Metal
-"The Wilderness" 2002, Metal
-"Mythus" 2004, Metal
-"Ante Portas" 2007, Metal
-"Vlnobytie" 2012, Metal
-"Slnovraty (single)" 2014, Metal
+slovak death metal band
+
+## Дискография
+
+### "Inhuman and Insensible" 1996, Metal
+
+1. Don't Fuck Me
+2. Empire Of The Black Sun 
+3. My Dead Friend 
+4. Child Of War 
+5. Fucking Religions 
+6. Son Of Bitch
+7. The Pigs 
+8. Eternal Pain
+9. Hate
+
+Released by Polyphemus Records in 1996.
+Produced by Lunatic Gods.
+Recorded 8-14 may 1995 at studio "Exponent", Sulekovo, Slovakia.
+Sound engineered by Rasto Krcmarik, Tomas Kmet and Lunatic Gods.
+Mixed by Tomas Kmet and Lunatic Gods.
+Mastered in October 1995 at studio "Rudolfinum" by Oldrich Slezak in Prague, Czech Republic.
+Arranged by Hirax and Psycho.
+Logo Lunatic Gods design by Martin Lehotsky.
+
+This album was recorded with the following line-up:
+Mortis - vocals
+Emil - vocals
+Hirax - guitar
+Psycho - drums
+Richard - bass guitar
+King - keyboards
+Guest musician: Horar - vocal (Hate)
+
+### "Sitting By The Fire" 1998, Metal
+
+1. Dead But Free
+2. I'll Never Betray
+3. Smile
+4. Return Of Deads Thoughts
+5. The World Is Full OF Lies
+6. Ocean Of Hatred
+7. Echoes Of Sadness
+8. Sitting By The Fire
+9. At The Theshold Of Life
+10. Irreparable
+
+Released by Metal Age Productions in 1998.
+Produced by Dusan Antalik and Lunatic Gods.
+Recorded and mixed in July, August and September 1997 at studio "911", Martin, Slovakia.
+Sound engineering and mixed by Dusan Antalik, Hirax and Lunatic Gods.
+Mastered at studio "Rudolfinum" 6.4.1998 by Oldrich Slezak in Prague, Czech Republic.
+Cover photo by Tony Heiderer.
+Arranged by Hirax and Psycho.
+
+This album was recorded with the following line-up:
+Mortis - vocals
+Emil - vocals
+Hirax - guitar
+Psycho - drums
+Richard - bass guitar
+King - keyboards
+
+
+Reprinted in 2003 by HROM Records with two unreleased bonus tracks from "The
+Wilderness" recording sessions:
+11. Confounded In Dust Of Sin 
+12. Show Me Your Soul
+
+### "Cuckoo (EP)" 1999, Metal
+
+1. Cuckoo
+2. Phantom Lord
+
+Released by Epidemie Records and Hirax Records in 1999.
+Produced by Miro Siran and Lunatic Gods.
+Recorded and mixed in April 1999 at "Master Sound" studio, Ziar nad Hronom, Slovakia.
+Sound engineering by Miro Siran.
+Mixed by Miro Siran, Hirax and Lunatic Gods.
+Mastered in April 1999 at "Master Sound" studio, Ziar nad Hronom, Slovakia.
+Arranged by Hirax and Psycho.
+
+This EP was recorded with the following line-up:
+Mortis - vocals
+Emil - vocals
+Hirax - guitar
+Psycho - drums
+Richard - bass guitar
+King - keyboards
+
+The song "Phantom Lord" was also released on a double CD Phantom Lord "A Tribute To Metallica" by Italian label Energie Records in 1999.
+
+### "The Wilderness" 2002, Metal
+
+Circles Of Blindness
+1. The Curse
+2. The Tormenting World
+3. Fallen Beauty
+4. Doomsday
+5. The Battlefield Of Life
+6. The Dance Of Salome
+7. The Stone
+8. The Mystic Way
+
+The Wilderness
+9. Bemidbar I
+10. The Wilderness
+11. Bemidbar II
+
+Released by Shindy Productions.
+Produced by Hirax and Lunatic Gods.
+Recorded and mixed in studio "Exponent", Sulekovo, Slovakia on 9th - 20th December 2000.
+Sound engineering by Sanchez, Nightingale and Hirax.
+Mixed by Tomas Kmet and Lunatic Gods.
+Mastered by Hirax in studio "Radio Rebeca", Martin, Slovakia on 25th December 2000.
+Arranged by Hirax and Psycho.
+
+This album was recorded with the following line-up:
+Horar - vocals
+Emil - vocals
+Hirax - guitar
+Psycho - drums
+Richard - bass guitar
+Lucy - keyboards. 
+
+Guest musicians:
+Jirka Dohnal - sitar (Bemidbar I., The Wilderness, Bemidbar II. )
+Natanael - didgeridoo (The Wilderness )
+Sanchez - vocals (The Wilderness)
+
+### "Mythus" 2004, Metal
+
+1. The Earthfolk 03:56  
+2. Nation of The Blind 03:44  
+3. Under The Veil of The Night 04:43  
+4. A Beautiful City 01:31  
+5. Evil Breeds More Evil Still 05:31  
+6. Visions Collide 05:31  
+7. Sacrifice 04:18  
+8. Falling Into Darkness 04:35  
+9. Mourning The Blessed One 01:31  
+10. The History Turns 04:53  
+11. For More Glory 09:12
+
+### "Ante Portas" 2007, Metal
+
+1. Marnost 04:13  
+2. Vodopad Siz 03:50  
+3. Balada O Makovom Ceku 04:23  
+4. Zial 05:56  
+5. Hladina Stopa 04:41  
+6. Slzy Neba (Instrumental) 06:08  
+7. Dusu Mi Vrat 04:27  
+8. Dualita 04:21  
+9. Hellium 04:24  
+10. Cervena Zo Zil 04:44 
+
+
+Emil - Vocals 
+Hirax (Pavel Baricak) - Guitar  
+Luboslav - Guitar 
+Richard - Bass 
+Psycho - Drums 
+Lu - Keyboards
+
+### "Vlnobytie" 2012, Metal
+
+01. Zbojnicka 03:44 
+02. Vrany Riekli 05:11 
+03. Starecka 04:35 
+04. Pravo Prvej Pomsty 03:40 
+05. Dusa Plna Ozvien 05:43 
+06. Tak Riekol Les... (Instrumental) 05:24 
+07. Vreskot Dneska 03:58 
+08. Od priadok Po Zimny cas 05:13 
+09. Na Kriznych Cestбch 05:10 
+10. Vlnozitie 04:57
+
+
+Richard - Bass 
+Luboslav - Guitars 
+Hirax - Guitars 
+Majica - Keyboards 
+Emil - Vocals 
+Svarog - Drums
+
+
+
+### "Slnovraty (single)" 2014, Metal
+
+1. part. I = Kracun (Slnovrat zimny) 08:17
+2. part. II = Kupalo (Slnovrat letny) 06:46
+
+
 
 ## Отношения с другими группами
 

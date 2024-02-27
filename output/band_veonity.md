@@ -1,8 +1,17 @@
 # Veonity
 
-Дискография
-"Gladiator's Tale" 2015, Power Metal
-"Into The Void" 2016, Power Metal
+
+
+## Дискография
+
+### "Gladiator's Tale" 2015, Power Metal
+
+
+
+### "Into The Void" 2016, Power Metal
+
+
+
 
 ## Отношения с другими группами
 

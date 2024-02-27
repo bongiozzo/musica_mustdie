@@ -1,7 +1,33 @@
 # Edenbeast
 
-Дискография
-"Shortcuts Of Erotic Violence" 2003, Melodic Death Metal
+Folk Melodic Death metal
+
+## Дискография
+
+### "Shortcuts Of Erotic Violence" 2003, Melodic Death Metal
+
+1.	In Love&Death………………...4:09
+2.	Suicidal Angel Of Revenge ……4:06
+3.	Drawings Of Pain………………4:23
+4.	Eternity Is Not For Me…………4:24
+5.	Fullmoon Mystery……………...4:27
+6.	Oneday… ……………………...4:30
+7.	Deadly Visions……………….…3:54
+8.	Violent Erotica………………….3:33
+9.	In The Dark……………………. 3:49
+10.	When The Sun Is Going Down…4:45
+
+
+
+Alex Barton – vocals
+Helena Finn – lead and rhythm guitars, bass
+Michael Hell –vocals, lead and rhythm guitar, bass, drums programming
+
+Keyboards and some backvocals by V. Macridin
+Recorded and mixed by V. Makridin at “CutterSound Home Studio”, Tula, Russia
+All music by Edenbeast
+Lyrics by Alex Barton
+
 
 ## Отношения с другими группами
 

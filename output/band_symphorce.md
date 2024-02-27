@@ -1,13 +1,171 @@
 # Symphorce
 
-Дискография
-"Truth To Promises" 1999, Power Metal
-"Sinctuary" 2000, Power Metal
-"PhorcefulAhead" 2002, Power Metal
-"Twice Second" 2004, Power Metal
-"GodSpeed" 2005, Power Metal
-"Become Death" 2007, Power Metal
-"Unrestricted" 2010, Power Metal
+
+
+## Дискография
+
+### "Truth To Promises" 1999, Power Metal
+
+01. TRUTH TO PROMISES  
+02. DRIFTED   
+03. WOUNDED     
+04. RETRACING THE LINE   
+05. STRONGHOLD     
+06. ACROSS THE PLAINS     
+07. FOREVERMORE     
+08. POURING RAIN     
+09. CIRCLES ARE BROKEN     
+10. SEA OF LIFE
+
+
+Produced by Franck / Walter Co - produced Recorded and mixed by Rёdiger Gerndt & J–rg Umbreit drums recorded & mixed by Dennis Ward mix assistance by Andy B. Franck all songs arranged by Franck / Walter / van Dango / Umbreit all melody lines by Andy B. Franck all drums by Tobi Wolf recorded and mixed Maryland studios, Merklingen Sept. - Nov. 98 Mixed and mastered at House of Audio / Karlsdorf Feb. 99 Cover, Booklet and Photo - concept by Andy B. Franck Cover illustration and Typesetting by Marisa Jacobi and Angelika Bardou Photos by Axel Jusseit / Coletta Thudium Symphorce - logo design Andy B. Franck Lead guitar at the very end of track "forevermore" by Raif Juergens 
+   
+lineup:
+Andy B. Franck - lead and back-up vocals 
+Cedric "Cede" Dupont - lead and rhythm guitars 
+Dennis Wohlbold - bass
+H. P. Walter - keyboards, samplers and programmings 
+Stefan Koellner - drums  
+
+ 
+
+
+### "Sinctuary" 2000, Power Metal
+
+01. EYE OF HORUS  
+02. HOLY SIN   
+03. UNTIL THE LAST   
+04. BLACKENED SKIES    
+05. BURNING STAR   
+06. INSIGHT   
+07. REVEAL THE SECRETS   
+08. SOULFLY   
+09. FREEDOM - ALTER MY REALITY   
+10. GONE TOO FAR  
+     
+NICE DREAMS* (european and limited edition bonus track)
+RESTING PLACES (limited edition bonus track)
+
+*written by Powermad 1989
+
+
+all songs arranged by Symphorce Produced by Achim Koehler & Andy B. Franck Engineered, mixed and mastered by Achim K–hler engineering and mixing assistance by Stefan K–llner Recorded, mixed and mastered at House Of Music Studios, Winterbach, Germany,May - June 2000 coverconcept/layout/artwork by Dennis Wohlbold SYMPHORCE-Logo Design by Andy B. Franck Photography by Coletta Thudium Choir arrangements by Torsten Ihlenfeld Backing vocals by the "Los banditos Mauldaschos": Todde, Andy and Stefan
+   
+lineup:
+Andy B. Franck - lead and back-up vocals 
+Cedric "Cede" Dupont - lead and rhythm guitars 
+Dennis Wohlbold - bass
+H. P. Walter - keyboards, samplers and programmings 
+Stefan K–llner - drums  
+
+
+### "PhorcefulAhead" 2002, Power Metal
+
+1.  Speak my mind
+2.  Unbroken
+3.  Slow down
+4.  Longing home
+5.  Moving in Circles
+6.  Falling through again
+7.  Your Blood, my Soul
+8.  Rage of Violence
+9.  Touched and Infected
+10. Nothin’ left
+
+ 
+
+
+### "Twice Second" 2004, Power Metal
+
+1. Fallen 
+2. Tears 
+3. Whatever Hate Provides
+4. Cause Of Laughter 
+5. In The Cold
+6. Take What's Mine 
+7. Face Of Pain
+8. Searching 
+9. Two Seconds To Live 
+10. Cry On My Shoulder 
+11. Under The Curse (bonus track – digipak only)
+
+### "GodSpeed" 2005, Power Metal
+
+1. Forsight 00:33  
+2. Everlasting Life 04:13 
+3. No Shelter 03:55 
+4. Nowhere 04:39 
+5. Haunting 03:34
+6. Black Water 03:41 
+7. Wounds Will Last Within 04:10 
+8. Your Cold Embrace 03:15 
+9. Without a Trace 03:29 
+10. The Mirrored Room 05:05  
+11. Crawling Walls for You 05:12 
+
+
+
+Lineup:
+Andy B. Franck - vocals
+Cedric Dupont - guitar
+Markus Pohl - guitar
+Dennis Wohlbold - bass
+Sascha Sauer - drums
+
+Limited edition bonus track:
+12. Nowhere (radio edit)
+The limited edition also includes a bonus DVD:
+1. Live...and Lost 2004 (live and backstage footage)
+2. Cause of Laughter (video clip)
+3. Making of... Twice Second
+DVD run time is approximately 50 minutes.
+
+### "Become Death" 2007, Power Metal
+
+1. Darkness Fills the Sky 04:53 
+2. Condemned 04:52 
+3. In the Hope of a Dream 05:08
+4. Death Has Come 05:22
+5. Inside the Cast 04:38 
+6. No Final Words to Say 04:56
+7. Towards the Light 04:11 
+8. Ancient Prophecies 04:59 
+9. Lost but Found 04:14 
+10. Lies 04:44 
+
+
+Lineup:
+Andy B. Franck - vocals
+Cedric Dupont - guitar
+Markus Pohl - guitar
+Dennis Wohlbold - bass
+Steffen Theurer - drums
+
+The limited edition includes a bonus DVD with live footage. 
+
+### "Unrestricted" 2010, Power Metal
+
+1. The Eternal 04:08  
+2. Until Itґs Over 03:46  
+3. Sorrow In Our Hearts 03:30  
+4. Whatever Hurts 04:41  
+5. The Waking Hour 03:30  
+6. Visions 04:35  
+7. The Last Decision 03:24  
+8. The Mindless 05:55  
+9. Worlds Seem To Collide 03:44  
+10. Do You Ever Wonder 04:21 
+
+
+Released both on CD and on limited Digipack featuring a Bonus Track called "AM I Am".
+
+Release Line-up:
+Andy B. Franck - Vocals
+Cedric “Cede” Dupont .- Guitars
+Markus Pohl - Guitars
+Dennis Wohlbold - Bass
+Steffen Theurer - Drums 
+
 
 ## Отношения с другими группами
 

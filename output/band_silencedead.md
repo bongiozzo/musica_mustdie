@@ -1,9 +1,41 @@
 # Silence Dead
 
-Дискография
-"Flaming Heaven" 2002, Melodic Death Metal
-"Навсегда Один" 2003, Melodic Death Metal
-"Ненависть" 2006, Melodic Death Metal
+Russian melodic death metal band.
+
+## Дискография
+
+### "Flaming Heaven" 2002, Melodic Death Metal
+
+1. Turbulence
+2. Cold Star's Song
+3. Seas of Silence
+4. Flaming Heaven
+5. Away From Time Trap
+6. Darkened Eyes
+
+
+Колеватов Константин - гитара, вокал
+Малышев Павел - гитара
+Зыкин Антон - бас
+Рохин Алексей – ударные
+
+
+
+
+### "Навсегда Один" 2003, Melodic Death Metal
+
+1. Песня холодной звезды 
+2. Навсегда один 
+3. XXX
+
+### "Ненависть" 2006, Melodic Death Metal
+
+1. Ненависть 
+2. Красота твоя 
+3. Страх 101 
+4. Смотри в глаза 
+5. Дверь (Dolphin кавер совместо с Фырой из Unsubs)
+
 
 ## Отношения с другими группами
 

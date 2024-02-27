@@ -1,7 +1,32 @@
 # Poccolus
 
-Дискография
-"Poccolus" 1996, Black Metal
+
+
+## Дискография
+
+### "Poccolus" 1996, Black Metal
+
+1. Werewolves
+2. While The Fires Burn
+3. Fire Rises Over the Oaks
+4. Begeyte Pecolle
+5. They Will Come..
+6. Whispers Of The Autumn's Wood
+7. That Will Be A Hour Of My Triumph
+8. Strike, Medeine, Strike!
+
+Ramunas Personis - Vocals, Guitars, Keyboards, Wolf's Horning
+Raimondas Ramonas - Guitars, Bass
+Andrius Simkunas - Drums
+
+Recorded and Mixed at LAMISTA Studio.
+Engineered by Giedrius Vaskevicius.
+Mixed by POCCOLUS and Arvidas Skernevicius.
+All music and lyrics by Ramunas Personis.
+Band residence: Lithuania.
+
+(p)(c) 1996 HAMMERHEART Records Hammer 2
+
 
 ## Отношения с другими группами
 

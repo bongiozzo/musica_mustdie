@@ -1,9 +1,72 @@
 # Wumpscut
 
-Дискография
-"Bunkertor 7" 1995, Industrial
-"Dried Blood" 1996, Industrial
-"Evoke" 2005, Industrial
+Electronic Doom-Gothic-Black
+
+## Дискография
+
+### "Bunkertor 7" 1995, Industrial
+
+1. Torn Skin
+2. Dying Culture (Second Movement)
+3. Bunkertor 7 (German Texture)
+4. Mortal Highway
+5. Corroded Dreed
+6. Die In Winter
+7. Bunkertor 7 (Reprised)
+8. Capital Punishment
+9. Thorns
+
+All Songs Written, Arranged, Produced, 
+Performed  & Digitalized By WUMPSCUT
+1995 In LA
+
+Synthesizing, Sampling, Sequencing,
+Percussion, Effects, Soundtooling,
+Constructing, Coordination, Mastering,
+Lyrics & Vocals By Rudy R.
+
+(P)&(C) 1995 BETON KOPF MEDIA
+
+### "Dried Blood" 1996, Industrial
+
+1. Black Death: French Concept
+2. Dying Culture:First Movement
+3. Body Parts: Radio Edit
+4. Funeral Dinner: Red Tape Version
+5. Dried Blood: Radical Cut
+
+(p)(c) 1996 ANT ZEN Records IKON 1
+
+### "Evoke" 2005, Industrial
+
+CD1:
+1.Maiden
+2.Churist Churist
+3.Don't go
+4.Evoke
+5.Tomb
+6.Hold
+7.Krolok
+8.Breathe
+9.Rush
+10.Perdition
+11.Obsessio
+ 
+CD2
+1.Churist Churist (Recently Deceased rmx)
+2.Dont go (Wumpscut rmx)
+3.Maiden (Nersoton rmx)
+4.Rush (Naked Beat rmx)
+5.Obsessio (Cerebral Apoplexy rmx)
+6.Hold (Yendri rmx)
+7.Maiden (Laittog rmx)
+8.Hold (Kirlian Camera rmx)
+9.Evoke (Naked Beat rmx)
+10.Perdition (Cerebral Apoplexy)
+11.Rush (Dismantled rmx)
+12.Churist Churist (Brain Keisure rmx)
+13.Churist Churist (Sacdar rmx)
+
 
 ## Отношения с другими группами
 

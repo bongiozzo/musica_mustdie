@@ -1,8 +1,43 @@
 # Lenny Kravitz
 
-Дискография
-"Are You Gonna Go My Way" 1993, Hard Rock
-"Circus" 1995, Hard Rock
+
+
+## Дискография
+
+### "Are You Gonna Go My Way" 1993, Hard Rock
+
+1.  Are You Gonna Go My Way
+2.  Believe
+3.  Come On And Love Me
+4.  Heaven Help
+5.  Just Be A Woman
+6.  Is There Any Love In Your Heart
+7.  Black Girl
+8.  My Love
+9.  Sugar
+10.Sister
+11.Eleutheria
+
+(P)(C) 1993 VIRGIN Records America, Inc.
+
+### "Circus" 1995, Hard Rock
+
+1.  Rock And Roll Is Dead
+2.  Circus
+3.  Beyond The 7th Sky
+4.  Tunnel Vision
+5.  Can't Get You Off My Mind
+6.  Magdalene
+7.  God Is Love
+8.  Thin Ice
+9.  Don't Go And Put A Bullet In Your Head
+10.In My Life Today
+11.The Ressurection
+
+Produced By Lenny Kravitz.
+
+(P)(C) 1995 VIRGIN Records America, Inc.
+
 
 ## Отношения с другими группами
 

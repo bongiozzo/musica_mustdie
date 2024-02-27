@@ -1,8 +1,17 @@
 # Spiritu
 
-Дискография
-"Spiritu" 2002, Stoner
-"Shhu Evy" 2002, Stoner
+
+
+## Дискография
+
+### "Spiritu" 2002, Stoner
+
+
+
+### "Shhu Evy" 2002, Stoner
+
+
+
 
 ## Отношения с другими группами
 

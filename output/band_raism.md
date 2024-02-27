@@ -1,8 +1,34 @@
 # Raism
 
-Дискография
-"The Very Best Of Pain" 1996, Black Metal
-"Aesthetic Terrorism" 1998, Black Metal
+Ex-Diabolos Rising
+
+## Дискография
+
+### "The Very Best Of Pain" 1996, Black Metal
+
+1.  Chaosphere
+2.  Killing Machine
+3.  Les 120 Joumees De Sodome (A Velvet Ballad For DeSade)
+4.  Alienation
+5.  What Kind Of Hell Is This Anyway ?
+
+(P)c 1996 KROH-H 4
+
+### "Aesthetic Terrorism" 1998, Black Metal
+
+Survival Of The Fittest Scum 
+Survival Of The Fittest Scum (Destructive Club Version) 
+Aesthetic Terrorism 
+Aesthetic Terrorism (Distorted Reality Cyberspace Version) 
+Gluttony 
+Gluttony (Carnivorous Commercial Version) 
+Negative 
+Hate You 
+Politically Incorrect (Non P.C.) 
+Politically Incorrect (Goverment Approved Explicit Version) 
+Nexus 
+Nexus (Multiple Personality Psyhoid Version)
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,22 @@
 # Frigus Et Obscurum
 
-Дискография
-"Vol. 1" 2010, Black Metal
+
+
+## Дискография
+
+### "Vol. 1" 2010, Black Metal
+
+1. Intro (Serpents Hiss the Name) 01:32  
+2. In the Name of Chaos 04:09  
+3. Anthem to Satan 06:43  
+4. When the Dead Go Marching in 05:04  
+5. Destiny of North 03:54  
+6. Dying Kingdom Waltz 04:24  
+7. Skies so Black so Dark 06:48  
+8. Humanfall 04:46  
+9. Necropriest 04:41  
+10. Berserker 04:47 
+
 
 ## Отношения с другими группами
 

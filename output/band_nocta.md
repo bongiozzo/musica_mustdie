@@ -1,7 +1,25 @@
 # Nocta
 
-Дискография
-"Wicked Woman" 2005, Heavy Metal
+
+
+## Дискография
+
+### "Wicked Woman" 2005, Heavy Metal
+
+1.	 Wicked Woman	04:31	 
+2.	 Inner Struggle	03:04	 
+3.	 Santanta (The Desert Wind)	03:34	 
+4.	 Come Out (Wherever You Are)	04:18	 
+5.	 ...No Mistake	03:26	 
+6.	 Beam of Light	04:32	 
+7.	 My Precious Soul	06:03	 
+8.	 Icebergs	03:40	 
+9.	 The Game	05:00	 
+10.	 Sometimes	04:08	 
+11.	 Werewolf	02:52	 
+12.	 Samuel Atan	09:01	 
+13.	 Elefsis	02:03	
+
 
 ## Отношения с другими группами
 

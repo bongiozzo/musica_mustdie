@@ -1,13 +1,121 @@
 # Kampfar
 
-Дискография
-"Kampfar" 1996, Black Metal
-"Mellom Skogkledde Aaser" 1998, Black Metal
-"Kvass" 2006, Black Metal
-"Heimgang" 2008, Black Metal
-"Mare" 2011, Metal
-"Djevelmakt" 2014, Metal
-"Profan" 2015, Black Metal
+Atmospheric Black Doom Metal
+
+## Дискография
+
+### "Kampfar" 1996, Black Metal
+
+1.  Kampfar
+2.  Kymne
+3.  Hjemkomslen
+
+Recorded and Mixed at 7L-Ray Studio.
+Band residence: Norway.
+
+(P)c 1996 SEASON OF MIST // SOM 003
+
+### "Mellom Skogkledde Aaser" 1998, Black Metal
+
+ 1. Intro (instr)
+ 2. Valdogg
+ 3. Valgalderkvad
+ 4. Kledd I Brynje Og Smykket Blodorn
+ 5. Hymne
+ 6. Vukkeferd
+ 7. Naglfar / Ragnarok
+
+1998 Malicious Records
+
+Dolk: Drums and Cymbals, Voice
+Thomas: All Guitars
+Warhead and Kampfar: Synth Arrangements
+
+Produced by Warhead and Kampfar
+Engineered by Warhead and Dolk
+Recorded and mixed at X-Ray Studio
+
+### "Kvass" 2006, Black Metal
+
+1. Lyktemenn 08:14 
+2. Til Siste Mann 07:33 
+3. Ravenheart 06:43 
+4. Ildverden 09:45
+5. Hat Og Avind 06:13
+6. Gaman Av Drammer 07:30
+
+### "Heimgang" 2008, Black Metal
+
+01. Vantro
+02. Inferno
+03. Dodens Vee
+04. Skagens Dyp
+05. Antvort
+06. Vansinn
+07. Mareham
+08. Feigdarvarsel
+09. Vettekult
+10. Vandring
+
+Dolk-Vocals
+Thomas-Guitars
+II.I.III-Rhytm
+Jon-Bass
+
+Heimgang was written, arranged and recorded by Kampfar
+Produced by Rune Jorgensen and Kampfar
+Recorded and mixed in Silvertone Studio, Gamle
+Fredrikstad, by Rune Jorgensen between April and June 2008.
+Mastered at Mastermuset, Oslo, by Morten Lund, June 2008
+Cover design by Jon Lundin
+Cover picture by Jon Lundin
+Band pictures by Trine Sirnes Throne
+
+
+### "Mare" 2011, Metal
+
+1. Mare 06:24  
+2. Ildstemmer 05:05  
+3. Huldreland 05:19  
+4. Bergtatt 05:28  
+5. Trolldomspakt 05:41  
+6. Volvevers 03:28  
+7. Blitzwitch 06:16  
+8. Nattgang 05:11  
+9. Altergang 02:28  
+10. Bergtatt (In D Major) (Bonus Track) 05:28 
+
+
+### "Djevelmakt" 2014, Metal
+
+1. Mylder  06:50   
+2. Kujon  07:25    
+3. Blod, Eder og Galle  06:37    
+4. Swarm Norvegicus  05:48   
+5. Fortapelse  04:49    
+6. De Dodes Fane  05:59    
+7. Svarte Sjelers Salme  03:44   
+8. Our Hounds, Our Legion  07:53 
+
+
+Djevelmakt (Eng. Devil Power) was written in the first half of 2013, with the band doing a single live appearance at France's Hellfest, 
+and then recorded partly in the band's new home town Bergen and partly in Pдrlby, Sweden. 
+This time the band chose to work with Jonas Kjellgren, who also helped engineer Mare, with Peter Tдgtgren being tasked with the mix.
+The album cover itself is a 1981 oil painting by Polish artist Zdzisіaw Beksiсski, and the remaining design incorporates a second Beksiсski painting, as well as a painting by English painter John Charles Dollman.  
+
+
+
+### "Profan" 2015, Black Metal
+
+1. Gloria Ablaze  04:31 
+2. Profanum  05:35 
+3. Icons  05:01   
+4. Skavank  07:35
+5. Daimon  05:54 
+6. Pole in the Ground  06:29
+7. Tornekratt  05:05  
+
+
 
 ## Отношения с другими группами
 

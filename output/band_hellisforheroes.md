@@ -1,7 +1,13 @@
 # Hell Is For Heroes
 
-Дискография
-"Transmit Disrupt" 2005, Emo
+
+
+## Дискография
+
+### "Transmit Disrupt" 2005, Emo
+
+
+
 
 ## Отношения с другими группами
 

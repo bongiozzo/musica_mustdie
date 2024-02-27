@@ -1,7 +1,24 @@
 # Mollo/Martin
 
-Дискография
-"The Cage 2" 2002, Hard Rock
+
+
+## Дискография
+
+### "The Cage 2" 2002, Hard Rock
+
+Terra Toria
+Overload
+Life Love And Everything
+Balance Of Power
+Amore Of Power
+II (Instrumental)
+Wind Of Change
+Theater Of Dreams
+What A Strange Thing Love Is
+Dazed And Confused
+Guardian Angel
+Poison Roses
+
 
 ## Отношения с другими группами
 

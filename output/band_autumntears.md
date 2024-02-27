@@ -1,12 +1,61 @@
 # Autumn Tears
 
-Дискография
-"Love Poems For Dying Children - Act I" 1996, Ambient
-"The Garden of Crystalline Dreams......Love Poems for Dying Children......Act II" 1997, Ambient
-"Love Poems for Dying Children ... Act 1; REPRISE MCMXCVIII" 1998, Ambient
-"Absolution" 1999, Ambient
-"Love Poems for Dying Children - Act 3... Winter and the Broken Angel" 2000, Ambient
-"Eclipse" 2004, Ambient
+
+
+## Дискография
+
+### "Love Poems For Dying Children - Act I" 1996, Ambient
+
+1.  They Watch With Closed Eyes
+2.  Ode To My Forthcoming Winter
+      Part 1: Spring
+      Part 2: Summer
+      Part 3: Autumn
+      Part 4: Winter
+3.  The Eloquent Sleep
+4.  And Then The Whispering
+5.  One Tender Kiss (The Lost Seasons) Prelude to "The Garden Of Crystalline Dreams"
+6.  Carfax Abbey З
+
+З - Bonus Track
+Guest Vocals & Acoustic 12 String On З By Devon & By Joe (DECEMBER WOLVES).
+
+Ted - Keyboards, Piano, Effects, Lead & Backing Vocals
+Erika - Lead & Backing Vocals
+
+Recorded & Mixed In March of 1996 at Westsound Studios In Londonderry, New Hampshire.
+
+(P)c 1996  DARK SYMPHONIES Productions
+
+### "The Garden of Crystalline Dreams......Love Poems for Dying Children......Act II" 1997, Ambient
+
+
+
+### "Love Poems for Dying Children ... Act 1; REPRISE MCMXCVIII" 1998, Ambient
+
+
+
+### "Absolution" 1999, Ambient
+
+
+
+### "Love Poems for Dying Children - Act 3... Winter and the Broken Angel" 2000, Ambient
+
+
+
+### "Eclipse" 2004, Ambient
+
+01. Commemoration 
+02. Ophelia’s Crown 
+03. Three 
+04. Dawn 
+05. Remember 
+06. Flight 
+07. The Beauty In All Things 
+08. Pandora's Womb 
+09. At A Distance 
+10. Eclipse
+
 
 ## Отношения с другими группами
 

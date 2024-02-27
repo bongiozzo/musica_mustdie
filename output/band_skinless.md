@@ -1,8 +1,24 @@
 # Skinless
 
-Дискография
-"PROGRESSION TOWARDS EVIL" 1999, Grindcore
-"Foreshadowing Our Demise" 2001, Grindcore
+(death-grind)
+
+## Дискография
+
+### "PROGRESSION TOWARDS EVIL" 1999, Grindcore
+
+
+
+### "Foreshadowing Our Demise" 2001, Grindcore
+
+1. Foreshadowing Our Demise 
+2. Smothered 
+3. The Optimist 
+4. Salvage What's Lef 
+5. Tug Of War Intestines  6. Affirmation Of Hatred 
+7. Enslavement 
+8. Merrie Melody 
+9. Pool Of Stool  
+
 
 ## Отношения с другими группами
 

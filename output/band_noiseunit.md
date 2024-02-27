@@ -1,8 +1,30 @@
 # Noise Unit
 
-Дискография
-"Strategy Of Violence" 1992, Industrial
-"Voyeur" 2005, Industrial
+
+
+## Дискография
+
+### "Strategy Of Violence" 1992, Industrial
+
+1. Corroded Decay
+2. Hollow Ground
+3. Hate You Feel
+4. Assault
+5. Carnage
+6. Kick To Kill
+7. The Passage
+8. No Soul, No Fear
+
+All Songs Written By Bill Leeb & Rhys Fulber
+Mixed By Chris Peterson & NOISE UNIT
+Recorded At Target Studio
+
+(p)&(c) 1992 DOSSIER Records
+
+### "Voyeur" 2005, Industrial
+
+
+
 
 ## Отношения с другими группами
 

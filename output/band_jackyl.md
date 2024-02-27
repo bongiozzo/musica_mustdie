@@ -1,15 +1,150 @@
 # Jackyl
 
-Дискография
-"Jackyl" 1992, Hard Rock
-"Push Comes To Shove" 1994, Hard Rock
-"Night Of The Living Dead (Live)" 1996, Hard Rock
-"Cut The Crap" 1997, Hard Rock
-"Stayin' Alive (collection of B-sides)" 1998, Hard Rock
-"Choice Cuts (Best Of)" 1998, Hard Rock
-"Relentless" 2002, Hard Rock
-"Live At The Full Throttle Saloon (Live)" 2004, Hard Rock
-"When Moonshine And Dynamite Collide" 2010, Hard Rock
+
+
+## Дискография
+
+### "Jackyl" 1992, Hard Rock
+
+1. I Stand Alone (Dupree) - 3:53 
+2. Dirty Little Mind (Dupree) - 3:36 
+3. Down on Me (Dupree) - 3:66 
+4. When Will It Rain - 3:06 
+5. Redneck Punk (Worley) - 3:38 
+6. The Lumberjack (Dupree) - 3:30 
+7. Reach for Me - 3:37 
+8. Back off Brother - 3:30 
+9. Brain Drain - 4:59 
+10. Just Like a Devil - 3:36
+
+Nick DiDia  -  Engineer
+John Kalodner  -  Producer
+Brendan O'Brien  -  Producer, Mixing
+Tom Bettini  -  Bass
+Jesse James Dupree  -  Vocals, Chainsaw
+Jimmy Stiff  -  Guitar
+Chris Worley  -  Drums
+Jeff Worley  -  Guitar
+
+### "Push Comes To Shove" 1994, Hard Rock
+
+1. Push Comes to Shove (Dupree) - 3:05 
+2. Headed for Destruction (Dupree) - 5:14 
+3. My Life (Dupree) - 4:06 
+4. I Could Never Touch You Like You Do (Dupree) - 3:50 
+5. Dixieland (Dupree) - 6:01 
+6. I Want It (Dupree) - 5:04 
+7.  Private Hell (Dupree) - 4:38 
+8. I Am the I Am (Dupree) - 3:42 
+9. Secret of the Bottle (Dupree/Dupree) - 5:26 
+10. Rock-A-Ho (Dupree/Worley/Worley) - 3:50 
+11. Back Down in the Dirt (Dupree) - 4:02 
+12. Chinatown (Dupree) - 3:24 
+
+Paul Baron  -  Trumpet, Horn 
+Bruce Fairbairn  -  Producer 
+Michael Fraser  -  Engineer, Mixing 
+John Kalodner     
+Tom Keenlyside  -  Trumpet, Sax (Tenor) 
+George Marino  -  Mastering 
+Bill Runge  -  Sax (Baritone) 
+Henry Christian  -  Trumpet 
+Mike Plotnikoff  -  Assistant Engineer 
+Randy Raine-Reusch  -  Percussion, Gong, Sax (Baritone), Jaw Harp 
+Robin Sloane  -  Creative Director 
+Tom Bettini  -  Bass 
+Jesse James Dupree  -  Vocals 
+Jimmy Stiff  -  Guitar 
+Chris Worley  -  Drums 
+Jeff Worley  -  Guitar 
+David Donnelly  -  Mastering Supervisor 
+David McMacken  -  Artwork, Illustrations 
+Michael Golob  -  Artwork, Art Direction, Design 
+Alison Dyer  -  Photography 
+
+
+### "Night Of The Living Dead (Live)" 1996, Hard Rock
+
+
+
+### "Cut The Crap" 1997, Hard Rock
+
+1. Dumb Ass Country Boy (Dupree) - 2:49 
+2. Locked & Loaded (Dupree/Johnson) - 3:29 
+3. Open Up (Dupree/Murdock) - 3:33 
+4. Misery Loves Company (Dupree/Hayes) - 3:46 
+5. Let's Don't Go There (Dupree/Hayes) - 3:24 
+6. Cut the Crap (Dupree) - 2:04 
+7. Twice as Ugly (Dupree/Worley) - 4:09
+8. God Strike Me Dead (Dupree) - 3:35
+9. Thanks for the Grammy (Dupree) - 3:21
+10. Speak of the Devil (Dupree) - 4:40
+11. Push Pull (Dupree) - 3:55
+
+Brian Johnson  -  Vocals 
+Tony Adams  -  Percussion 
+Michael Fraser  -  Producer 
+Kevin Shirley  -  Mixing 
+Tom Bettini  -  Bass 
+Jesse James Dupree  -  Vocals 
+Jimmy Stiff  -  Guitar 
+Chris Worley  -  Drums 
+Jeff Worley  -  Guitar 
+David McMacken  -  Illustrations 
+Alison Dyer  -  Photography 
+Leon Zervos  -  Mastering 
+Don Tart  -  Assistant Engineer 
+
+
+### "Stayin' Alive (collection of B-sides)" 1998, Hard Rock
+
+  1.   Problem (Dupree) - 3:13 
+  2.   Crush (Dupree/Murdock) - 3:42 
+  3.   Can't Beat It With a Stick (Dupree/Hayes) - 2:47 
+  4.   Open for Business (Dupree/Stiff) - 4:17 
+  5.   Street Went Legit (Dupree/Worley) - 2:16 
+  6.   Live Wire (Scott/Young/Young) - 6:03 
+  7.   Gimme Back My Bullets (Rossington/VanZant) - 3:14 
+  8.   Nobody's Fault (Tyler/Whitford) - 4:23 
+  9.   Dumb Ass Country Boy (Dupree) - 2:52 
+  10.   Twice as Ugly (Dupress/Worley) - 4:32 
+  11.   Locked & Loaded (Dupress/Johnson) - 3:35 
+
+
+Jackyl  -  Producer 
+Michael Fraser  -  Producer 
+Mary Ann Dibs  -  Design 
+Bob Burchess  -  Photography 
+Jeff Everett  -  Mastering 
+Sheik  -  Illustrations 
+Don Tart  -  Engineer, Mastering, Mixing 
+
+
+### "Choice Cuts (Best Of)" 1998, Hard Rock
+
+
+
+### "Relentless" 2002, Hard Rock
+
+
+
+### "Live At The Full Throttle Saloon (Live)" 2004, Hard Rock
+
+1. The More You Hate It 
+2. I Stand Alone 
+3. Mr. Evil 
+4. You Want It Heavy 
+5. Push Comes To Shove 
+6. Down This Road Before 
+7. Down On Me 
+8. Dirty Little Mind 
+9. Redneck Punk 
+10. The Lumberjack
+
+### "When Moonshine And Dynamite Collide" 2010, Hard Rock
+
+
+
 
 ## Отношения с другими группами
 

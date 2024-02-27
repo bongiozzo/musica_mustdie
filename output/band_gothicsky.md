@@ -1,11 +1,60 @@
 # Gothic Sky
 
-Дискография
-"Believe in Death...Now Forever" 2000, Black Metal
-"Open Your Mind For Insanity" 2000, Black Metal
-"Witchcraft Of Krehterwehs" 2006, Black Metal
-"Реальности Чёрного Рыцаря" 2007, Black Metal
-"Лабиринт Скитаний" 2011, Black Metal
+
+
+## Дискография
+
+### "Believe in Death...Now Forever" 2000, Black Metal
+
+1. My Beautiful Vampire- Intro   
+2. Empty Mirror. Part I   
+3. Creature of Treachery   
+4. Trace of Love   
+5. Deliverance   
+6. Dark Guide   
+7. Last Sundown   
+8. Losin' the Sorrow. Part II   
+9. Believe in Death...Now Forever   
+10. Just death   
+11. Empty Mirror. Part II
+
+### "Open Your Mind For Insanity" 2000, Black Metal
+
+1. Open your Mind...(Intro)	 
+2. ...For Insanity	 
+3. On Reality		 
+4. Land of Ancestor	 
+5. Victims of Political War	 
+6. S.O.Ass	 
+7. The Souls Oppression	 
+8. Gothic Sky		 
+9. Fade of the Star	 
+10. Loosing the Sorrow (outro)	 
+11. Victims of Political War (live)	 
+12. Fade of the Star (live)		 
+13. I Want Out (Helloween cover)
+
+### "Witchcraft Of Krehterwehs" 2006, Black Metal
+
+
+
+### "Реальности Чёрного Рыцаря" 2007, Black Metal
+
+
+
+### "Лабиринт Скитаний" 2011, Black Metal
+
+1. Бежевый Восход
+2. Откровение
+3. Мечта
+4. Послание
+5. Лабиринт Скитаний
+6. Долина Вещих Снов
+7. Спящие Цветы
+8. Призрак
+9. Замок Скорби
+10. Одна Звезда
+
 
 ## Отношения с другими группами
 

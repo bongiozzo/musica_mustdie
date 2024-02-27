@@ -1,9 +1,39 @@
 # Bullhorn
 
-Дискография
-"In too deep" 1994, Heavy Metal
-"Ladish" 1998, Heavy Metal
-"Suckerpunch" 2002, Heavy Metal
+
+
+## Дискография
+
+### "In too deep" 1994, Heavy Metal
+
+
+
+### "Ladish" 1998, Heavy Metal
+
+
+
+### "Suckerpunch" 2002, Heavy Metal
+
+1. Blow 
+2. Digital Duke 
+3. Bitch Queen 
+4. Godsnacker 
+5. Rock'n'Roll Rebel 
+6. Pin It on Me 
+7. Face 
+8. Deadringer 
+9. Bullhorn Boy 
+10. Sugar Plume Ride 
+11. Cavalry 
+12. Spirit (Come Alive) 
+
+Jan Sandberg Guitars
+Lasse Holmgren Vocals
+Kenneth Lamberg Bass
+Mats Andersson Guitars
+Patrik Jonsson Drums
+
+
 
 ## Отношения с другими группами
 

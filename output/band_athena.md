@@ -1,8 +1,40 @@
 # Athena
 
-Дискография
-"A New Religion?" 1998, Power Metal
-"Twilight of Days" 2001, Power Metal
+power metal from Italy
+
+## Дискография
+
+### "A New Religion?" 1998, Power Metal
+
+In The Beginning
+A New Religion?
+Soul Salior
+Apocalypse
+Every Word I Whisper
+Dead Man Walkin'
+My Silence
+Secret Vision
+The Keeper
+Twisted Feel
+Not Too Far
+
+
+### "Twilight of Days" 2001, Power Metal
+
+Twilight of Days
+Till The End
+The Way To Heaven's Gates
+Hymn
+Your Fear
+Falling Ghosts
+The Highest Tide
+Touch My Hearty
+Lord of Evil
+Take My Life Away
+The End of a Life
+Making the History
+
+
 
 ## Отношения с другими группами
 

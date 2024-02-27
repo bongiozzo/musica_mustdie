@@ -1,9 +1,41 @@
 # Disguise
 
-Дискография
-"Human Primordial Instinct" 2003, Black Metal
-"Late" 2007, Black Metal
-"Second Coming" 2012, Black Metal
+
+
+## Дискография
+
+### "Human Primordial Instinct" 2003, Black Metal
+
+1. Infectious Disease
+2. Excited By Slavery
+3. Void Existence
+4. Scared of Leaving Deceit
+5. Reborn In A New Skin
+6. Human Primordial Instinct
+7. Il Resto &#232; Conseguenza
+
+### "Late" 2007, Black Metal
+
+1. Ending	 
+2. Decreasing pleasure	 
+3. Involved	 
+4. Better unborn	 
+5. Dead for brought Death	 
+6. Identical beginning of the end	 
+7. Into the black void (sea of vacuous hulls)	 
+8. Late
+
+### "Second Coming" 2012, Black Metal
+
+1.	 Fragile Certain Death	04:44	 
+2.	 I Am Alone	06:27	 
+3.	 The Origin Of The Unknown	05:35	 
+4.	 Eclipse	04:37	 
+5.	 Repressed Rage	05:02	 
+6.	 To Dominate	06:47	 
+7.	 Claustrophobic Fate	04:52	 
+8.	 Second Coming	04:28	
+
 
 ## Отношения с другими группами
 

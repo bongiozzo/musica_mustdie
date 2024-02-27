@@ -1,8 +1,35 @@
 # Aherusia
 
-Дискография
-"And the Tides Shall Reveal the Traces" 2009, Black Metal
-"As I Cross the Seas of My Soul" 2013, Metal
+
+
+## Дискография
+
+### "And the Tides Shall Reveal the Traces" 2009, Black Metal
+
+1. Birth of Immortals  07:45      
+2. Lux Occulta  05:55      
+3. Methexis  08:19      
+4. Beyond Death and Time  06:27      
+5. Archangels  05:54      
+6. Eros Aenaos  11:19      
+7. To Our Ancestors  05:20 
+
+
+Recorded in Devasoundz Studios in Athens, Greece, in November 2008.
+The album was re-released by Emotion Art in the middle of Autumn 2009.
+
+### "As I Cross the Seas of My Soul" 2013, Metal
+
+1. Flisvos  04:09      
+2. Archipelagos  08:26      
+3. Mano Incognitum  07:28      
+4. Arbor Martyrum  08:29      
+5. Е З И (ЕлехиесЯб Ю иЬнбфпт)  09:28      
+6. Path of Thorns  08:27      
+7. From Abyss  08:13      
+8. Hic Hiemat Aeternatus  11:23  
+
+
 
 ## Отношения с другими группами
 

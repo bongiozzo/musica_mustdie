@@ -1,19 +1,132 @@
 # Exciter
 
-Дискография
-"Heavy Metal Maniac" 1983, Thrash
-"Violence and Force" 1984, Thrash
-"Feel the Knife" 1985, Thrash
-"Long Live the Loud" 1985, Thrash
-"Unveiling the Wicked" 1986, Speed Metal
-"O.T.T." 1988, Speed Metal
-"Kill After Kill" 1992, Speed Metal
-"Better Live Than Dead" 1993, Speed Metal
-"The Dark Command" 1997, Speed Metal
-"Blood of Tyrants" 2001, Speed Metal
-"New Testament" 2004, Speed Metal
-"Thrash, Speed, Burn" 2008, Speed Metal
-"Death Machine" 2010, Speed Metal
+Veterans of Speed Metal from Canada
+
+## Дискография
+
+### "Heavy Metal Maniac" 1983, Thrash
+
+
+
+### "Violence and Force" 1984, Thrash
+
+
+
+### "Feel the Knife" 1985, Thrash
+
+
+
+### "Long Live the Loud" 1985, Thrash
+
+
+
+### "Unveiling the Wicked" 1986, Speed Metal
+
+
+
+### "O.T.T." 1988, Speed Metal
+
+
+
+### "Kill After Kill" 1992, Speed Metal
+
+1.    Rain of Terror 
+   2.    No Life No Future 
+   3.    Cold Blooded Murder 
+   4.    Smashin 'Em Down 
+   5.    Shadow of the Cross 
+   6.    Dog Eat Dog 
+   7.    Anger, Hate and Destruction 
+   8.    The Second Coming 
+   9.    Born to Kill [live] 
+
+John Ricci - guitars
+Dan Beehler - drums, vocals
+David Ledden - bass
+
+
+
+
+### "Better Live Than Dead" 1993, Speed Metal
+
+
+
+### "The Dark Command" 1997, Speed Metal
+
+
+
+### "Blood of Tyrants" 2001, Speed Metal
+
+1.  Metal Crusaders - 4'12
+2.  Rule With an Iron Fist - 3'48
+3.  Intruders - 3'23
+4.  Predator - 3'22
+5.  Martial Law - 3'10
+6.  War Cry - 3'34
+7.  Brutal Warning - 3'50
+8.  Weapons of Mass Destruction - 2'59
+9.  Blood of Tyrants - 3'11
+10.  Violator - 3'51
+
+
+John Ricci - Guitars
+Jacques Belanger - Vocal
+Marc Charron - Bass
+Rik Charron - Drums
+
+
+### "New Testament" 2004, Speed Metal
+
+Rising Of The Dead 
+Violence & Force 
+Rule With An Iron Fist 
+Rain Of Terror 
+Brutal Warning 
+Victims Of Sacrifice 
+The Dark Command 
+I Am The Beast 
+Pounding Metal 
+Stand Up And Fight 
+Heavy Metal Maniac 
+Blackwitch 
+Burn At The Stake 
+Long Live And Loud 
+Ritual Death
+
+### "Thrash, Speed, Burn" 2008, Speed Metal
+
+1. Massacre Mountain 04:06  
+2. Thrash Speed Burn 05:01 
+3. In Mortal Fear 04:50 
+4. Crucifixion 06:21 
+5. Demon's Gate 03:45 
+6. Hangman 03:01  
+7. Evil Omen 05:40  
+8. Betrayal 04:21  
+9. The Punisher 04:11 
+10. Rot The Devil King 04:22 
+
+
+
+Line-up:
+Kenny Winter - Vocals
+John Ricci - Guitar
+Rob "Clammy" Cohen - Bass
+Rick Charron - Drums 
+
+### "Death Machine" 2010, Speed Metal
+
+1. Death Machine 04:14  
+2. Dungeon Descendants 03:55  
+3. Razor In Your Back 04:03  
+4. Pray For Pain 04:05  
+5. Power and Domination 03:08  
+6. HellFire 04:58  
+7. Demented Prisoner 04:25  
+8. Slaughtered In Vain 07:00  
+9. Skull Breaker 05:01 
+
+
 
 ## Отношения с другими группами
 

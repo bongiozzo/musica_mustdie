@@ -1,7 +1,16 @@
 # Kylahullut
 
-Дискография
-"Keisarinleikkaus EP" 2004, Heavy Metal
+Children Of Bodom, Sinergy members
+
+## Дискография
+
+### "Keisarinleikkaus EP" 2004, Heavy Metal
+
+01. Maksa Paskana (2:34)
+02. Kriitikoiden Hautausmaa (2:16)
+03. Nцrtin Surma (2:34)
+04. Aika (1:35)
+
 
 ## Отношения с другими группами
 

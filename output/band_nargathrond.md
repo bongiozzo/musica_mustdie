@@ -1,8 +1,42 @@
 # Nargathrond
 
-Дискография
-"... For We Blessed This World With Plagues" 2002, Doom
-"Неизбежность" 2005, Gothic
+Fast melodious doom-metal
+
+## Дискография
+
+### "... For We Blessed This World With Plagues" 2002, Doom
+
+1. Nocturnal Everlusting
+2. ... For We Blessed This World With Plagues
+3. Farewell To The Flesh
+4. The Season Shaped In Black
+5. ... As I Gave You Birth
+6. Death Is Tender
+7. The Serpent And The Snake
+8. Deep Beneath
+9. Cast Away Your Dreams
+10. Silver Ghost
+11. Winter Comes This Autumn
+12. Let My Dreams Become Your Nightmares
+
+Line Up:
+Sergei "Lazar" - vocals, guitars, samplers
+Ruslan "Kniaz" - bass
+Sergei "Flint" - lead guitar
+
+Recorded at CDM Records Studio (Moscow), Summer 2001 a.t.b.b.
+Mastered at CDM Records Studio (Moscow), August 2001 a.t.b.b.
+Produced and mixed by NARGATHROND
+All music and arrangements by NARGATHROND
+Poetry and concept courtesy of Kai Mathias Stalhammar
+Artwork by Abian
+
+(c) 2002 WAR IS INMINENT PRODUCTIONS
+
+### "Неизбежность" 2005, Gothic
+
+
+
 
 ## Отношения с другими группами
 

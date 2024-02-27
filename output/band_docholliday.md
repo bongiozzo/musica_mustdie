@@ -1,15 +1,201 @@
 # Doc Holliday
 
-Дискография
-"Doc Holliday" 1981, Hard Rock
-"DOC HOLLIDAY RIDES AGAIN" 1981, Hard Rock
-"MODERN MEDICINE" 1983, Hard Rock
-"DANGER ZONE" 1986, Hard Rock
-"SONG FOR THE OUTLAW-LIVE" 1989, Hard Rock
-"SON OF THE MORNING STAR" 1993, Hard Rock
-"LEGACY" 1996, Hard Rock
-"A BETTER ROAD" 2001, Hard Rock
-"Good Time Music" 2003, Rock and Roll
+Hard Rock/R'N'B
+
+## Дискография
+
+### "Doc Holliday" 1981, Hard Rock
+
+Ain't No Fool-Brookshire
+Magic Midnight-Brookshire
+A Good Woman's Hard To Find-Stone/Brookshire
+Round And Round-Brookshire
+Moonshine Runner-Stone/Brookshire
+Keep On Running-Travis Wammack
+Never Another Night-Samuelson/Brookshire
+The Way You Do-Brookshire
+Somebody Help Me-Jackie Edwards
+I'm A Rocker-Chuck Berry
+
+Bruce Brookshire-Lead Guitar, Lead Vocals
+Eddie Stone-Keyboards, Vocals
+John Samuelson-Bass Guitar, Vocals
+Ric Skelton-Lead Guitar, Vocals
+Herman Nixon-Drums
+Guests:
+Bob Brookshire-Harmonica
+Tom Allom-Keyboards, Vocals, Percussion
+
+### "DOC HOLLIDAY RIDES AGAIN" 1981, Hard Rock
+
+Last Ride
+Good Boy Gone Bad
+Don't Go Talkin'
+Southern Man
+Let Me Be Your Lover
+Doin' It Again
+Don't Stop Loving Me
+Hot Rod
+Lonesome Guitar
+**All songs by Bruce Brookshire
+except "Let Me be Your Lover" by Delbert McClinton 
+
+The Band:
+Bruce Brookshire-Lead Guitar, Lead Vocals
+Eddie Stone-Keyboards, Vocals
+John Samuelson-Bass Guitar, Vocals
+Ric Skelton-Lead Guitar, Vocals
+Herman Nixon-Drums
+
+### "MODERN MEDICINE" 1983, Hard Rock
+
+City Night
+Dreamin'
+Gimme Some
+You Don't Have To Cry
+Rock City
+Hell To Pay
+No Relation To Love
+You Turn Me On
+We Are Not Alone
+You Like To Rock
+**All Songs by Bruce Brookshire 
+
+Bruce Brookshire-Lead Guitar, Lead Vocals
+Eddie Stone-Keyboards, Vocals
+John Samuelson-Bass Guitar, Vocals
+Ric Skelton-Lead Guitar, Vocals
+Herman Nixon-Drums
+
+### "DANGER ZONE" 1986, Hard Rock
+
+Danger Zone
+Ready To Burn
+Redneck Rock & Roll Band
+Run To Me
+Southern Girls
+Automatic Girl
+Tijuana Motel
+Thunder & Lightning
+Into The Night
+All The Right Moves
+Easy Goin' Up
+**All Songs by Bruce Brookshire
+except "Southern Girls" by Stone/Brookshire 
+
+Bruce Brookshire-Guitars, Vocals
+Eddie Stone-Keyboards, Vocals
+John Turner Samuelson-Bass Guitar, Vocals
+Jamie Deckard-Drums
+Guests:
+Tony Cooper-Piano
+Bruce Frye, Tina Fortunato-Vocals
+Ric Skelton-Guitar
+
+### "SONG FOR THE OUTLAW-LIVE" 1989, Hard Rock
+
+Last Ride
+Southern Man
+Doin' It Again
+Hometown Sweetheart
+Song For The Outlaw
+Ain't No Fool
+Magic Midnight
+Moonshine Runner
+Bad Love
+Lonesome Guitar
+**All songs by Bruce Brookshire
+except "Hometown Sweetheart" by Dempsey/Brookshire
+and "Moonshine Runner" by Stone/Brookshire
+
+Bruce Brookshire-Guitar, Vocals
+Daniel Bud Ford-Bass Guitar
+John Vaughn-Drums
+Billy Yates-Guitar
+The "Doc-ettes":
+June Reppert-Vocals
+Karen Barlow-Vocals
+
+### "SON OF THE MORNING STAR" 1993, Hard Rock
+
+Let It Ride
+Rebel Girl
+Rock Attack
+All Of My Life
+I Got An Angel
+Son Of The Morning Star
+Workin' Man
+That Girl (Is Mine Tonight)
+Red Hot & Ready
+On The Run
+**All songs by Bruce Brookshire
+
+Bruce Brookshire-Guitar, Vocals
+Daniel Bud Ford-Bass Guitar
+Danny "Cadillac" Lastinger-Drums
+John Turner Samuelson-Guitar, Vocals
+Guests:
+Mike Barnhart-Keyboards
+Kenny Wright-Harmonca
+
+### "LEGACY" 1996, Hard Rock
+
+Hoodoo Man
+Redneck Rock & Roll Band
+Through With You
+Song For The Outlaw
+Keep On Running
+Southern Girls
+Renegade
+Dead Man's Road
+Damn Yankees
+Lonesome Guitar
+**All songs by Bruce Brookshire
+except "Keep On Running" by T. Wammack and "Southern Girls" by
+Stone/Brookshire
+
+Bruce Brookshire-Guitars, Vocals
+Daniel Bud Ford-Bass Guitar
+Danny "Cadillac" Lastinger-Drums
+John Turner Samuelson-Guitar
+Guests:
+Kenny Wright-Harmonica
+Rob Walker-Acoustic Slide Guitar
+
+### "A BETTER ROAD" 2001, Hard Rock
+
+Jailbreak
+Good Boy Gone Bad
+Faith In You
+Crazy
+A Better Road
+Angels In Waiting
+Dead Man's Road
+Bad Love
+Can't Stop Rockin'
+Lonesome Guitar
+** All songs by Bruce Brookshire
+except "Jailbreak" by P. Lynott and "Angels In Waiting" by Samuelson/Brookshire 
+
+Bruce Brookshire-Guitars, Vocals
+Daniel Bud Ford-Bass Guitar
+Danny "Cadillac" Lastinger-Drums
+John Turner Samuelson-Guitar, Vocals
+Eddie Stone-Hammond B-3, Vocals
+
+### "Good Time Music" 2003, Rock and Roll
+
+1. Black Cat 
+2. Highway Call 
+3. Farmer's Tan
+4. Magnolia  
+5. Trudy
+6. Good Time Music 
+7. I Can't See You 
+8. Simple Man 
+9. It Suits Me Too 
+10. Messiah
+
 
 ## Отношения с другими группами
 

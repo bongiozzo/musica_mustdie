@@ -1,8 +1,27 @@
 # Evenfall
 
-Дискография
-"Still In The Grey Dying ..." 1999, Gothic
-"Cumbersome" 2002, Gothic
+(Austrian Gothic-Dark Metal)
+
+## Дискография
+
+### "Still In The Grey Dying ..." 1999, Gothic
+
+1. Forbidden tales
+2. Black bloody roses
+3. Garden of sadness
+4. Still in the grey dying
+5. Fall from grace
+6. Frozen misery
+7. Evenfall
+8. Sails of charon
+9. Dark is the season
+10. In between days 
+
+
+### "Cumbersome" 2002, Gothic
+
+
+
 
 ## Отношения с другими группами
 

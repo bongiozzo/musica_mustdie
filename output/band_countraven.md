@@ -1,11 +1,93 @@
 # Count Raven
 
-Дискография
-"Storm Warning" 1990, Doom
-"Destruction Of The Void" 1992, Doom
-"High On Infinity" 1993, Doom
-"Messiah Of Confusion" 1996, Doom
-"Mammons War" 2009, Doom
+
+
+## Дискография
+
+### "Storm Warning" 1990, Doom
+
+01. Intro: Count Raven
+02. Inam Naudemina
+03. True Revelation
+04. In The Name Of Rock'n'roll
+05. Sometimes A Great Nation
+06. Within The Garden Of Mirrors
+07. A Devastating Age
+08. How Can It Be
+09. Social Warfare
+10. High Beliefs (bonus)
+11. Frightened Eyes Never Lie (bonus)
+
+### "Destruction Of The Void" 1992, Doom
+
+01. Until Death Do Us Part
+02. Hippies Triumph
+03. Destruction Of The Void
+04. Let The Dead Bury The Dead
+05. Northern Lights
+06. Leaving The Warzone
+07. Angel Of Death
+08. The Final Journey
+09. No Ones Hero
+10. Europa
+11. Point Of Youth (bonus)
+12. Sworn To Fun (bonus)
+
+### "High On Infinity" 1993, Doom
+
+1. Jen   6.14
+2. Children's Holocaust 6.44
+3. In Honour  4.38
+4. Madman From Waco 4.20
+5. Masters Of All Evil  8.20
+6. Ode To Rebecca  2.48
+7. High On Infinity  4.52
+8. An Ordinary Looser  5.54
+9. Traitor   6.47
+10.The Dance  1.42
+11.The Coming  6.14
+12.Lost World  4.10
+12.Cosmos   4.00
+
+ Dan Fandelius - Guitars
+ Christer Petterson - Drums
+ Tommy Eriksson - Bass
+
+All Arrangements By COUNT RAVEN
+Produced By COUNT RAVEN & Zeb King
+Engineered By COUNT RAVEN
+Recorded In Rundgang Studio In June-July 1993
+
+(p)&(c) 1993 HELLHOUND Records
+
+### "Messiah Of Confusion" 1996, Doom
+
+1. Prediction
+2. Shadow Box
+3. The Loneliest One
+4. Fallen Angels
+5. Mountains Spirit
+6. The Lie Of Life
+7. P.G.I. Power
+8. Shine
+ [9].The Divided World
+ [10].The Viking Sea
+
+ [9]-[10] - Ha cтopoнe B
+
+All songs written by COUNT RAVEN.
+All songs produced by Zeb King and COUNTRAVEN
+
+Dan Fondelius - Guitar and Vocals
+Tommy Eriksson - Bass
+Christer Pettersson - Drums
+
+ (p)(c) 1996 HELLHOUND Records
+
+### "Mammons War" 2009, Doom
+
+
+
 
 ## Отношения с другими группами
 

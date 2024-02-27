@@ -1,7 +1,23 @@
 # Offroad
 
-Дискография
-"Make It Through" 2003, Hard Rock
+russian Bon Jovi
+
+## Дискография
+
+### "Make It Through" 2003, Hard Rock
+
+1. NOBODY LOVES YOU MORE THAN I DO
+2. CALIFORNIA ROSE
+3. QUEEN OF MY HEART
+4. TELL THEM GETTA HELL AWAY
+5. DON'T GET EVIL
+6. NOW IS WHEN I NEED YA 
+7. LIVING ON HER OWN 
+8. WHAT AM I SUPPOSED TO DO
+9. PLAYING WITH THE STRINGS OF MY SOUL 
+10. CHERRY IN THE PEACH
+11. CHRISTMAS WITHOUT YOU
+
 
 ## Отношения с другими группами
 

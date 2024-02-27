@@ -1,9 +1,52 @@
 # Vanitas
 
-Дискография
-"Das Leben ein Traum" 2000, Death Doom
-"Der Schatten einer Existenz" 2002, Death Doom
-"Lichtgestalten" 2004, Gothic
+Austrian Melodic Doom-Death
+
+## Дискография
+
+### "Das Leben ein Traum" 2000, Death Doom
+
+
+
+### "Der Schatten einer Existenz" 2002, Death Doom
+
+1. Pendelschwung 
+2. Heiliger Schein 
+3. Atem Toene Fluestern Schreien 
+4. Schliesze mir die Augen 
+5. Vor den Worten 
+6. Das Wort sieht Blicke 
+7. Wenn Schritte veraendern 
+8. Stillschweigen
+
+
+ 
+Andreas Schдrfinger - Vocals, Guitar
+Johannes Kickinger - Keyboards
+Gьnter Kickinger - Guitar
+Manuel Simoner - Bass, Acoustic Guitar
+Markus Rechberger – Drums
+Maria Dorn - Vocals, Flute
+
+Guest Musicians:
+Matjaz Zizek - Violine
+Joachim Brandl - Viola
+Endre Kertesz - Cello
+
+
+### "Lichtgestalten" 2004, Gothic
+
+Endlosschleife 
+Lebenslauf 
+Tausende Quadrate 
+Sammelleidenschaft 
+Missverstanden 
+Re: Inkarnation 
+Kontrollverlust 
+Menschen...Gott...Maschinen 
+Vergangenes kehrt wieder 
+Relatives Freisein
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,22 @@
 # Free Fall
 
-Дискография
-"Power & Volume" 2013, Hard Rock
+
+
+## Дискография
+
+### "Power & Volume" 2013, Hard Rock
+
+01. Power & Volume
+02. Free Fall
+03. Midnight Vulture
+04. Top Of The World
+05. Attila
+06. World Domination
+07. Love Bombing
+08. Damnation
+09. Meriola Blues
+10. Meat
+
 
 ## Отношения с другими группами
 

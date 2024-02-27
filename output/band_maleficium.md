@@ -1,7 +1,34 @@
 # Maleficium
 
-Дискография
-"The Illusion Of Humanity" 1995, Death Doom
+
+
+## Дискография
+
+### "The Illusion Of Humanity" 1995, Death Doom
+
+1. Downfall
+2. Questions Of Existence
+3. Uncovered Intentions
+4. Disillusion
+5. The Family Game
+6. Hydrogen
+7. The Irreversable Solution
+8. Memorade
+
+ Angelique Overbeek - Vocals
+ Fabio Bartiali - Guitars
+ Arjen Boers - Guitars
+ Martin Van Der Rhee - Bass, Vocals
+ Marc Van Bel - Drums, Vocals
+ Debbie Struik - Keyboards
+
+All Songs Written By MALEFICIUM
+Produced By Patrick Harreman
+Engineered By Frits Van Mourik
+Recorded In Studio "Het Pand" In Vlaardingen
+
+(p)&(c) 1995 CYBER Music
+
 
 ## Отношения с другими группами
 

@@ -1,11 +1,86 @@
 # Believer
 
-Дискография
-"Extraction From Mortality" 1989, Thrash
-"Sanity Obscure" 1991, Thrash
-"Dimensions" 1993, Thrash
-"Gabriel" 2009, Thrash
-"Transhuman" 2011, Thrash
+
+
+## Дискография
+
+### "Extraction From Mortality" 1989, Thrash
+
+1. Unite  06:45   
+2. Vile Hypocrisy  05:36   
+3. D.O.S. (Desolation of Sodom)  04:22   
+4. Tormented  03:52   
+5. Shadow of Death  04:21   
+6. Blemished Sacrifices  03:58    
+7. Not Even One  03:38   
+8. Extraction from Mortality  06:04   
+9. Stress  03:03 
+
+
+### "Sanity Obscure" 1991, Thrash
+
+1. Sanity Obscure  06:11   
+2. Wisdom's Call  03:46   
+3. Nonpoint  05:22   
+4. Idols of Ignorance  04:44   
+5. Stop the Madness  05:03   
+6. Dies Irae (Day of Wrath)  05:49   
+7. Dust to Dust  05:02   
+8. Like a Song (U2 Cover)  03:23 
+
+
+### "Dimensions" 1993, Thrash
+
+1. Gone  05:47    
+2. Future Mind  05:36   
+3. Dimentia  05:38    
+4. What Is But Cannot Not Be  05:30    
+5. Singularity  04:24    
+6. No Apology  04:58  
+7. Trilogy of Knowledge - Intro: The Birth  02:17    
+8. Trilogy of Knowledge - Movement I: The Lie  05:25   
+9. Trilogy of Knowledge - Movement II: The Truth  06:48  
+10. Trilogy of Knowledge - Movement III: The Key  06:19 
+
+
+### "Gabriel" 2009, Thrash
+
+1. Medwton  07:23  
+2. A Moment In Prime  06:07  
+3. Stoned  04:32   
+4. Redshift  05:21  
+5. History Of Decline  03:49   
+6. The Need For Conflict  05:14  
+7. Focused Lethality  03:46  
+8. Shut Out The Sun  05:38    
+9. The Brave  04:19   
+10. Nonsense Mediated Decay  08:49 
+
+
+### "Transhuman" 2011, Thrash
+
+1. Lie Awake  05:03    
+2. G.U.T.  03:39    
+3. Multiverse  04:44    
+4. End of Infinity  04:12    
+5. Transfection  03:55    
+6. Clean Room  04:50    
+7. Currents  02:50    
+8. Traveler  04:23    
+9. Ego Machine  04:29    
+10. Being No One  04:47    
+11. Entanglement  04:15    
+12. Mindsteps  06:52  
+
+
+Elton Nestler  Bass 
+Joey Daub  Drums  
+Kevin Leaman  Guitars  
+Jeff King  Keyboards  
+Kurt Bachman  Vocals, Guitars  
+ 
+
+
 
 ## Отношения с другими группами
 

@@ -1,13 +1,37 @@
 # Acid King
 
-Дискография
-"Acid King (EP)" 1994, Doom
-"Zoroaster" 1995, Doom
-"Down with the Crown (EP)" 1997, Doom
-"Busse Woods" 1999, Doom
-"III" 2005, Doom
-"The Early Years" 2006, Doom
-"Middle of Nowhere, Center of Everywhere" 2015, Doom
+
+
+## Дискография
+
+### "Acid King (EP)" 1994, Doom
+
+
+
+### "Zoroaster" 1995, Doom
+
+
+
+### "Down with the Crown (EP)" 1997, Doom
+
+
+
+### "Busse Woods" 1999, Doom
+
+
+
+### "III" 2005, Doom
+
+
+
+### "The Early Years" 2006, Doom
+
+
+
+### "Middle of Nowhere, Center of Everywhere" 2015, Doom
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,13 +1,37 @@
 # Contradiction
 
-Дискография
-"Rules Of Peace" 1993, Thrash
-"All We Hate!" 1995, Thrash
-"Good Company (EP)" 1998, Thrash
-"Contraminated" 2003, Thrash
-"The Voice Of Hatred" 2005, Thrash
-"The Warchitect" 2006, Thrash
-"The Essence Of Anger" 2009, Thrash
+Germany
+
+## Дискография
+
+### "Rules Of Peace" 1993, Thrash
+
+
+
+### "All We Hate!" 1995, Thrash
+
+
+
+### "Good Company (EP)" 1998, Thrash
+
+
+
+### "Contraminated" 2003, Thrash
+
+
+
+### "The Voice Of Hatred" 2005, Thrash
+
+
+
+### "The Warchitect" 2006, Thrash
+
+
+
+### "The Essence Of Anger" 2009, Thrash
+
+
+
 
 ## Отношения с другими группами
 

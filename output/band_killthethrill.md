@@ -1,8 +1,43 @@
 # Kill The Thrill
 
-Дискография
-"203 Barriers" 2001, Industrial
-"Tellurique" 2005, Industrial
+
+
+## Дискография
+
+### "203 Barriers" 2001, Industrial
+
+1. 203 Barriers (6'02) 
+2. Crime (4'30) 
+3. Worm's idle dream (3'17) 
+4. Western (6'19) 
+5. Shudder to sink (5'40) 
+6. Room 36 (5'47) 
+7. Stase (8'34) 
+8. Breath (5'53) 
+9. Antique tools (7'27) 
+
+
+
+Marylin Tognolli (bass) 
+Nicolas Dick (vocals, guitar, programming) 
+Frederic De Benedetti (guitar) 
+
+
+### "Tellurique" 2005, Industrial
+
+1. A little Salt for a better Feeling 
+2. Permanent Imbalance
+3. An indefinite Direction 
+4. Non Existence 
+5. Soave
+6. Like Cement
+7. Diaphragme
+8. Head
+9. Body
+10. Mistaken Solutions
+11. Us and them
+12. The Finish
+
 
 ## Отношения с другими группами
 

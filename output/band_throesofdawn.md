@@ -1,15 +1,87 @@
 # Throes of Dawn
 
-Дискография
-"With the Northern Wind (demo)" 1994, Black Metal
-"Pakkasherra (promo cassette)" 1996, Black Metal
-"Pakkasherra" 1997, Black Metal
-"The lackened Rainbow (mcd)" 1998, Black Metal
-"Dreams Of A Black Earth" 1999, Black Metal
-"Binding Of The Spirit" 2000, Black Metal
-"Quicksilver Clouds" 2004, Gothic
-"The Great Fleet of Echoes" 2010, Gothic
-"Our Voices Shall Remain" 2016, Progressive
+Cool Black-Death-Doom Metal
+
+## Дискография
+
+### "With the Northern Wind (demo)" 1994, Black Metal
+
+1. Autumn Winds
+2. Outburning Sun
+3. Silent Throes
+
+### "Pakkasherra (promo cassette)" 1996, Black Metal
+
+1. The Night Belongs To Us
+2. Pakkasherra
+3. My Eternity
+4. Kaamos
+
+### "Pakkasherra" 1997, Black Metal
+
+1. ACROSS THE LOVELESS HORIZON
+2. THE NIGHT BELONGS TO US
+3. PAKKASHERRA
+4. WATCHER IN THE TOWER
+5. AS A SPIRIT (instrumental)
+6. COSMIC SEAS
+7. END IS SILENCE
+8. AUTUMN WINDS
+9. COLD GODDESS (instrumental)
+10.WINTER ROMANCE
+
+### "The lackened Rainbow (mcd)" 1998, Black Metal
+
+
+
+### "Dreams Of A Black Earth" 1999, Black Metal
+
+1. THE WITHERING GODDESS (OF NATURE)
+2. THE WEEPER
+3. THE BLACKENED RAINBOW
+4. SPRING BLOOMS WITH FLOWERS DEAD
+5. OF SCARLET SKIES MADE
+6. WHERE ONCE THE SUN ROSE
+7. TITANIA (instrumental)
+8. DREAMS OF THE BLACK EARTH
+
+### "Binding Of The Spirit" 2000, Black Metal
+
+1. The Last Rainbow Warrior is Dead
+2. The Warprophet Dreams
+3. Binding of the Spirit onto Earth
+4. The Hermit
+5. Masterґs Garden
+6. The Wanderer
+7. On Broken Wings of Despair
+8. Stardestroyer
+
+### "Quicksilver Clouds" 2004, Gothic
+
+01. Vertigo
+02. Hollow Reflection
+03. Transcendence
+04. Black Carbon Snow
+05. Quicksilver Clouds
+06. Hyperion
+07. The Destroying Angel
+08. Halo Of Flies
+09. Ophelia
+
+### "The Great Fleet of Echoes" 2010, Gothic
+
+
+
+### "Our Voices Shall Remain" 2016, Progressive
+
+1. Mesmerized		 
+2. We Used to Speak in Colours		 
+3. Lifelines 
+4. The Understanding		 
+5. Our Voices Shall Remain		 
+6. One of Us Is Missing		 
+7. The Black Wreath of Mud
+
 
 ## Отношения с другими группами
 

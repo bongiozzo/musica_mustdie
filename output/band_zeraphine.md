@@ -1,9 +1,21 @@
 # Zeraphine
 
-Дискография
-"Kalte Sonne" 2001, Gothic
-"Traumaworld" 2002, Gothic
-"Blind Camera" 2005, Gothic
+ex-Dreadful Shadows
+
+## Дискография
+
+### "Kalte Sonne" 2001, Gothic
+
+
+
+### "Traumaworld" 2002, Gothic
+
+
+
+### "Blind Camera" 2005, Gothic
+
+
+
 
 ## Отношения с другими группами
 

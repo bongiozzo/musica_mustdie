@@ -1,13 +1,152 @@
 # Pallas
 
-Дискография
-"Arrive Alive" 1981, Progressive
-"The Sentinel" 1984, Progressive
-"The Wedge" 1986, Progressive
-"Beat the Drum" 1999, Progressive
-"The Cross & The Crucible" 2001, Progressive
-"The Blinding Darkness" 2003, Progressive
-"Dreams of Men" 2005, Progressive
+progressive
+
+## Дискография
+
+### "Arrive Alive" 1981, Progressive
+
+1. Arrive Alive
+2. 5 To 4
+3. Queen Of The Deep
+4. Flashpoint
+5. The Ripper
+6. Crown Of Thorns
+7. Paris Is Burning
+8. The Hammer Falls
+9. Stranger On The Edge Of Time
+
+Musicians:
+
+Euan Lowson - vocals
+Derek Forman - drums
+
+Produced by:
+
+Brian Young
+
+### "The Sentinel" 1984, Progressive
+
+1. Shock Treatment
+2. Cut And Run
+3. Arrive Alive
+4. Rise And Fall (part 1)
+5. Eastwest
+6. March On Atlantis
+7. Rise And Fall (part 2)
+8. Heart Attack
+9. Atlantis
+10. Ark Of Infinity
+
+Musicians:
+
+Euan Lowson - vocals
+Derek Forman - drums
+
+Produced by:
+
+Eddie Offord
+
+Downloads:
+
+Pallas - The Sentinel (Soundsamples) (andere Seite)
+
+miscellaneous info:
+
+Features CD-Rom track with rare video footage of the band
+
+### "The Wedge" 1986, Progressive
+
+1. Dance Through The Fire
+2. Throwing Stones At The Wind
+3. Win Or Lose
+4. The Executioner (bernie goetz a gun)
+5. Imagination
+6. Rat Racing
+7. Just A Memory
+8. Stranger
+9. Sanctuary
+10. Nightmare
+
+Musicians:
+
+Derek Forman - drums
+
+Produced by:
+
+Mick Glossop
+
+miscellaneous info:
+
+Features CD-Rom track with rare video footage of the band and the original Knightmoves EP as bonus tracks
+
+### "Beat the Drum" 1999, Progressive
+
+1. Call To Arms
+2. Beat The Drum
+3. Hide & Seek
+4. Insomniac
+5. All Or Nothing
+6. Spirits
+7. Man Of Principle
+8. Ghosts
+9. Blood & Roses
+10. Wilderness Years
+11. Fragments Of The Sun
+
+Produced by:
+
+Niall Matthewson & Graeme Murray
+
+### "The Cross & The Crucible" 2001, Progressive
+
+1. The Big Bang
+2. The Cross & The Crucible
+3. For The Greater Glory
+4. Who's To Blame?
+5. The Blinding Darkness
+6. Towers Of Babble
+7. Generations
+8. Midas Touch
+9. Celebration!
+
+Musicians:
+
+Gill Main, Claire Bleasdale, Laura Sinclair, Trevor Gray and Alistair Taylor - incantations
+Laura Harrow - voice of conscience
+Bob Anderson - WWI whistle
+
+Produced by:
+
+Niall Mathewson
+
+### "The Blinding Darkness" 2003, Progressive
+
+CD 1
+01. The Cross & The Crucible
+02. For The Greater Glory
+03. Whoґs To Blame
+04. The Executioner / Rat Racing
+05. Crown Of Thorns
+06. Beat The Drum
+07. Blood And Roses
+08. The Blinding Darkness
+09. Towers Of Babble
+
+CD 2
+01. Midas Touch
+02. Celebrations!
+03. Rise And Fall Part 1
+04. East West
+05. March On Atlantis
+06. Atlantis
+07. Cut And Run
+08. The Ripper
+
+### "Dreams of Men" 2005, Progressive
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,16 +1,81 @@
 # Manilla Road
 
-Дискография
-"Invasion" 1980, Heavy Metal
-"Metal" 1982, Heavy Metal
-"Mystification" 1987, Heavy Metal
-"Out Of The Abyss" 1988, Heavy Metal
-"Live Roadkill" 1988, Heavy Metal
-"Crystal Logic (re-issue)" 2002, Heavy Metal
-"The Courts Of Chaos (re-issue)" 2002, Heavy Metal
-"The Circus Maximus (re-issue)" 2002, Heavy Metal
-"Atlantis Rising (re-issue)" 2002, Heavy Metal
-"Spiral Castle (re-issue)" 2002, Heavy Metal
+
+
+## Дискография
+
+### "Invasion" 1980, Heavy Metal
+
+01. The Dream Goes On
+02. Cat And Mouse
+03. Far Side Of The Sun
+04. Street Jammer
+05. The Empire
+
+### "Metal" 1982, Heavy Metal
+
+01. Enter The Warrior
+02. Defender
+03. Queen Of The Black Coast
+04. Metal
+05. Out Of Control With Rock & Roll
+06. Cage Of Mirrors
+07. Far Side Of The Sun
+
+### "Mystification" 1987, Heavy Metal
+
+
+
+### "Out Of The Abyss" 1988, Heavy Metal
+
+01. Whitechapel
+02. Rites Of Blood
+03. Out Of The Abyss
+04. Return Of The Old Ones
+05. Black Cauldron
+06. Midnight Meat Train
+07. War In Heaven
+08. Slaughterhouse
+09. Helicon
+
+### "Live Roadkill" 1988, Heavy Metal
+
+01. Dementia
+02. Open The Gates
+03. Mystification
+04. The Deluge
+05. Masque Of The Red Death
+06. Witches Brew
+07. Spirits Of The Dead
+08. Far Side Of The Sun
+09. Death By The Hammer
+10. Shadow In The Black
+11. Hammer Of The Witches
+12. Taken By Storm
+13. Friction In Mass
+14. Rest In Pieces
+15. Isle Of The Dead
+
+### "Crystal Logic (re-issue)" 2002, Heavy Metal
+
+
+
+### "The Courts Of Chaos (re-issue)" 2002, Heavy Metal
+
+
+
+### "The Circus Maximus (re-issue)" 2002, Heavy Metal
+
+
+
+### "Atlantis Rising (re-issue)" 2002, Heavy Metal
+
+
+
+### "Spiral Castle (re-issue)" 2002, Heavy Metal
+
+
+
 
 ## Отношения с другими группами
 

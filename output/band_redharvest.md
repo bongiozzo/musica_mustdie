@@ -1,12 +1,121 @@
 # Red Harvest
 
-Дискография
-"There's Beauty In The Purity Of Sadness" 1995, Alternative
-"The Maztur Nation" 1995, Alternative
-"HyBreed" 1996, Alternative
-"Cold Dark Matter" 2001, Alternative
-"Sick Transit Gloria Mundi" 2002, Alternative
-"A Greater Darkness" 2007, Industrial
+
+
+## Дискография
+
+### "There's Beauty In The Purity Of Sadness" 1995, Alternative
+
+1. Wounds
+2. Naked
+3. Resist
+4. Mindblazt
+5. Mastodome
+6. Shivers
+7. [?]
+8. Mother Of All
+9. L.L.A.K.
+10.Sadness
+[11].The Art Of Radiation
+
+[11] на стороне B
+
+All Songs Written By RED HARVEST.
+Produced By RED HARVEST.Mixed
+By Hans Hopen ,Lars Klokkerhaugh,
+Lars Serensen.
+Engineered By Hans Hopen.
+
+Jim Ivan Z.-Bergsten - Vocals,Guitars
+Jan F.Nygard - Guitars
+Thomas Brandt - Bass
+Doctor Cato Bekkevold - Drums
+
+(P)&(C) 1995 VOICES OF WONDER 
+Records
+
+### "The Maztur Nation" 1995, Alternative
+
+1. The Harded They Fall
+2. Enlighten The Child
+3. Dream / Awake
+4. Tears
+
+All Songs Written By RED HARVEST.
+Produced By RED HARVEST.
+Mixed By Jorn Christinsen.
+Engineered By Rune Jorgensen.
+Recording At Rodelokka Studio.
+
+Jim Ivan Z.-Bergsten - Vocals,Guitars
+Jan F.Nygard - Guitars
+Thomas Brandt - Bass
+Doctor Cato Bekkevold - Drums
+
+(P)&(C) 1995 VOICES OF WONDER 
+Records
+
+### "HyBreed" 1996, Alternative
+
+1.  Mazturnation
+2.  The Lone Walk
+3.  Mutant
+4.  After All...
+5.  Ozrham 
+6.  On Sacred Ground
+7.  The Harder They Fall
+8.  Underwater
+9.  Monumental
+10.In Deep
+11.The Burning Wheel
+
+Cato Bekkevold - Drums
+Jimmy Bergsten - Guitars, Vocals, Synth
+Thomas Brandt - Bass
+Ketil Eggum - Guitars
+Lars Sorensen - Synth, Samples
+
+(P)c 1996 VOICES OF WONDER // VOW 052
+
+### "Cold Dark Matter" 2001, Alternative
+
+1. Omnipotent 
+2. Last Call 
+3. Absolut Dunkel:heit 
+4. Cold Dark Matter 
+5. Junk-O-Rama 
+6. Fix.Hammer.Fix 
+7. The Itching Scull
+8. Death In Cyborg Era 
+9. Move Or Be Moved 
+10. Ad Noctum 
+11. Move Or Be Moved (preview) 
+12. Swallow The Sun 
+13. Pity The Bastard 
+ 
+
+### "Sick Transit Gloria Mundi" 2002, Alternative
+
+01. Weltschmertz 
+
+02. Godtech 
+
+03. CyberNaut 
+
+04. AEP 
+
+05. Humanoia 
+
+06. Sick Transit Gloria Mundi 
+
+07. Beyond The End
+
+
+
+### "A Greater Darkness" 2007, Industrial
+
+
+
 
 ## Отношения с другими группами
 

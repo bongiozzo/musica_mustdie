@@ -1,9 +1,50 @@
 # Perzonal War
 
-Дискография
-"Different But the Same" 2002, Thrash
-"Faces" 2004, Thrash
-"When Times Turn Red" 2005, Thrash
+
+
+## Дискография
+
+### "Different But the Same" 2002, Thrash
+
+01 - Time of Lies
+02 - Bleeding
+03 - Born
+04 - The Progress
+05 - Open my World
+06 - The Urge for more
+07 - Blinder
+08 - Dragon's Mouth
+09 - What is God
+10 - Our Century
+11 - Ending Dreams (bonus track)
+
+
+
+Matthias Zimmer -v -g 
+Sascha Kerschgens -g 
+Frank Buchwalter -b 
+Martin Buchwalter -d 
+
+
+
+### "Faces" 2004, Thrash
+
+
+
+### "When Times Turn Red" 2005, Thrash
+
+When Time Turns Red 
+In Flames 
+For The Last Time 
+The Unbeliever 
+My Conspiracy 
+New Age 
+Frozen Image 
+5 More Days 
+Hope Dies Last 
+Inferno 
+video (bonus)
+
 
 ## Отношения с другими группами
 

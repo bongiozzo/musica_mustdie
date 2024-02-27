@@ -1,7 +1,13 @@
 # Gammacide
 
-Дискография
-"Victims Of Science" 1989, Thrash
+
+
+## Дискография
+
+### "Victims Of Science" 1989, Thrash
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,10 +1,25 @@
 # Sad Legend
 
-Дискография
-"Demo I" 1997, Black Metal
-"Demo II" 1997, Black Metal
-"Sad Legend" 1998, Black Metal
-"Searching for Hope in Utter Darkness (EP)" 2001, Black Metal
+Melodic Black Metal Band from South Korea, Seoul
+
+## Дискография
+
+### "Demo I" 1997, Black Metal
+
+
+
+### "Demo II" 1997, Black Metal
+
+
+
+### "Sad Legend" 1998, Black Metal
+
+
+
+### "Searching for Hope in Utter Darkness (EP)" 2001, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

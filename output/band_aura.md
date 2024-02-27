@@ -1,7 +1,18 @@
 # Aura
 
-Дискография
-"Shattered Dawnbreak" 1997, Death Doom
+
+
+## Дискография
+
+### "Shattered Dawnbreak" 1997, Death Doom
+
+1.  Your Ignorant Ways
+2.  This Shattered Dawnbreak
+3.  Moonsymmetry XXI: Empires Ablaze
+4.  (An Ode To) The Autumnlands
+
+(P)(C) 1997 HAMMERHEART Records // HHR 005
+
 
 ## Отношения с другими группами
 

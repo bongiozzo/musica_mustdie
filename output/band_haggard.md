@@ -1,11 +1,88 @@
 # Haggard
 
-Дискография
-"And Thou Shalt Trust the Seer" 1998, Gothic
-"Awaiking the Centuries" 2000, Gothic
-"Awaking The Gods DVD" 2001, Gothic
-"Eppur Si Muove" 2004, Gothic
-"Tales Of Ithiria" 2008, Gothic
+The Biggest and Hardest Classic Metal Band of the World from Germany
+
+## Дискография
+
+### "And Thou Shalt Trust the Seer" 1998, Gothic
+
+1. The Day as Heaven Wept
+2. Origin Of Crystal Soul
+3. In A Pale Moon's Shadow
+4. De La Morte Noire
+5. Lost
+6. Robin's song
+7. A Midnight Gathering
+
+### "Awaiking the Centuries" 2000, Gothic
+
+1. Rachmaninov: Choir 
+2. Pestilencia 
+3. Heavenly Damnation 
+4. The Final Victory 
+5. Saltorella La Manuelina 
+6. Awaking The Centuries 
+7. Statement zur Lage der Musica
+8. In A Fullmoon Procession 
+9. Menuett 
+10. (I) Prophecy Fulfilled 
+    (II) And The Dark Night Entered 
+11. Courante 
+12. Rachmaninov: Choir
+
+### "Awaking The Gods DVD" 2001, Gothic
+
+1. Intro/Rachmaninov Choir 
+2. Mediaeval Part 
+3. Lost 
+4. Prophecy Fullfilled / And The Dark Night Entered 
+5. Menuett 
+6. Origin Of A Crystal Soul 
+7. Awakening The Centuries 
+8. Courante 
+9. In A Fullmoon Procession 
+10. Final Victory 
+11. In A Pale Moonґs Shadow 
+12. Requiem
+
+### "Eppur Si Muove" 2004, Gothic
+
+
+
+### "Tales Of Ithiria" 2008, Gothic
+
+1. The Origin 01:57
+2. Chapter I - Tales Of Ithiria 08:08 
+3. From Deep Within 00:25  
+4. Chapter II - Upon Fallen Autumn Leaves 06:37  
+5. In Des Kцnigs Hallen (Allegretto Siciliano) 02:03  
+6. Chapter III - La Terra Santa 04:55 
+7. Vor Dem Sturme 00:35 
+8. Chapter IV - The Sleeping Child 06:10 
+9. Hijo De La Luna 04:20
+10. On These Endless Fields 01:03 
+11. Chapter V - The Hidden Sign 06:25 
+
+
+
+Line-up:
+Asis Nasseri : Vocals / Growls / Guitars
+Danny Klupp : Acoustic Guitars
+Florian Schnellinger : Bass / Vocals
+Andi Nad : Bass
+Hans Wolf : Piano / Cembalo / Keyboards
+Luz Marsen : Drums / Kettledrums
+Susanne : Soprano
+Kathrin Hertz : Cello
+Steffi Hertz : Viola
+Kerstin Krainer : Violin
+Robert M&#252;ller : Clarinet
+Christoph v. Zastrow : Flute
+Bartl : Oboe
+Kathrin Pechlof : Harp
+Fiffi Fuhrmann : Crumhorn
+
+
 
 ## Отношения с другими группами
 

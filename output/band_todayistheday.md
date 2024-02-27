@@ -1,18 +1,57 @@
 # Today Is the Day
 
-Дискография
-"Supernova" 1993, Hardcore
-"Willpower" 1994, Hardcore
-"Today Is The Day" 1996, Hardcore
-"Temple of the Morning Star" 1997, Hardcore
-"In The Eyes of God" 1999, Hardcore
-"Live Till You Die (live)" 2000, Hardcore
-"Descent" 2000, Hardcore
-"Today is the day / 16 Split" 2001, Hardcore
-"Today is the day / Metatron Split" 2001, Hardcore
-"Sadness Will Prevail" 2002, Alternative
-"Kiss the Pig" 2004, Alternative
-"Axis of Eden" 2007, Alternative
+great artcore band
+
+## Дискография
+
+### "Supernova" 1993, Hardcore
+
+
+
+### "Willpower" 1994, Hardcore
+
+
+
+### "Today Is The Day" 1996, Hardcore
+
+
+
+### "Temple of the Morning Star" 1997, Hardcore
+
+
+
+### "In The Eyes of God" 1999, Hardcore
+
+
+
+### "Live Till You Die (live)" 2000, Hardcore
+
+
+
+### "Descent" 2000, Hardcore
+
+
+
+### "Today is the day / 16 Split" 2001, Hardcore
+
+
+
+### "Today is the day / Metatron Split" 2001, Hardcore
+
+
+
+### "Sadness Will Prevail" 2002, Alternative
+
+
+
+### "Kiss the Pig" 2004, Alternative
+
+
+
+### "Axis of Eden" 2007, Alternative
+
+
+
 
 ## Отношения с другими группами
 

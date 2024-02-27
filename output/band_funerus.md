@@ -1,8 +1,27 @@
 # Funerus
 
-Дискография
-"Festering Earth" 2009, Death Metal
-"Reduced To Sludge" 2011, Death Metal
+
+
+## Дискография
+
+### "Festering Earth" 2009, Death Metal
+
+
+
+### "Reduced To Sludge" 2011, Death Metal
+
+1. Behind The Door
+2. Corroded
+3. The Comfort In Depression
+4. Bedpan Commando
+5. Reduced To Sludge
+6. Leatherface
+7. Death Of A God
+8. Create / Destroy
+9. Sound Of Oil
+10. Time Of Death
+11. E. Histolytica
+
 
 ## Отношения с другими группами
 

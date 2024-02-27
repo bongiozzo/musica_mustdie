@@ -1,8 +1,17 @@
 # Deteriorot
 
-Дискография
-"In Ancient Beliefs" 2001, Death Metal
-"The Faithless" 2010, Death Metal
+
+
+## Дискография
+
+### "In Ancient Beliefs" 2001, Death Metal
+
+
+
+### "The Faithless" 2010, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

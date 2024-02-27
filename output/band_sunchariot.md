@@ -1,8 +1,68 @@
 # Sunchariot
 
-Дискография
-"Betrayal Light of Fertile Ground" 1998, Black Metal
-"Harvest" 1999, Death Metal
+
+
+## Дискография
+
+### "Betrayal Light of Fertile Ground" 1998, Black Metal
+
+Mother Ground
+Only One Branch Of Dullness
+Carrion
+...of Those, Whose Walls Return To Life
+After The Long Oblivions
+Вороны
+
+
+
+Stanislav Ivanoff - vocals, lead and rhythm duitars 
+Denis Shapovalov - lead and rhythm guitars
+Konstantin Konstantinov - drums, acoustic guitar, bass
+Olga Baranjieva - flute
+
+" Betrayal Light of Fertile Ground" was recorded, mixed and mastered at studio " ЭПОС" during April - June 1997
+Sound engineers: Oleg Gumenov and Pavel Savin
+Produced by SUNCHARIOJ
+
+" Betrayal Light of Fertile Ground " was originally released as miniCD
+by Soundscape Music Canada in 1998
+
+
+
+
+### "Harvest" 1999, Death Metal
+
+Free Wind
+Bopoны (choir version)
+Backwaters
+The Twilight Vision
+Sunset
+Languor
+Степные Зори
+Harvest
+
+
+Stanislav lvanoff - vocals 
+Vadim Chernikov - guitars, ocarinas
+Denis Shapoualov - guitars
+Nikolay Vlaskin - bass
+Konstantin Konstantinov - drums
+Olga Baranjieva - flute, recorder, ocarinas
+
+guest choir;
+Elena Danilkina - soprano
+Asya Barbashina - alto
+Sergey Tezky - baritone
+Nikita Cheremnyh - bass
+
+Harvest was recorded, mixed and mastered at A& J Records during January - May 1999
+Sound engineer: Alex Polyakov
+Produced by Vadim Chernikov and Stanislav Ivanoff
+
+
+
+
+
 
 ## Отношения с другими группами
 

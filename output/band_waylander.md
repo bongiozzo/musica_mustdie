@@ -1,8 +1,34 @@
 # Waylander
 
-Дискография
-"Reawakening Pride Once Lost" 1998, Folk
-"The Light, the Dark and the Endless Knot" 2001, Folk
+Irish folk metal
+
+## Дискография
+
+### "Reawakening Pride Once Lost" 1998, Folk
+
+01. Sunrise
+02. Born To The Fight
+03. With Veins Afire
+04. Emain Macha
+05. Gaelic Dawn
+06. Once Upon An Era
+07. A Hero's Lament
+08. King Of The Fairies
+09. Keen Of Knowledge
+10. Victory Feast
+11. Awakening
+
+### "The Light, the Dark and the Endless Knot" 2001, Folk
+
+Balor of the Evil Eye 
+Anu’s Retribution 
+The Light, the Dark and the Endless Knot 
+To Rule Was Preordained 
+Morrigans Domain 
+After the Fall 
+Release the Spirit Within 
+Plague of Ages
+
 
 ## Отношения с другими группами
 

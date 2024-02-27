@@ -1,16 +1,147 @@
 # Heaven Shall Burn
 
-Дискография
-"In Battle There Is No Law" 1998, Death Metal
-"Asunder" 2000, Death Metal
-"Whatever It May Take" 2002, Death Metal
-"...In Battle (Re-Release)" 2002, Death Metal
-"Antigone" 2004, Death Metal
-"Deaf To Our Prayers" 2006, Death Metal
-"Iconoclast" 2008, Metalcore
-"Invictus" 2010, Metalcore
-"Veto" 2013, Metalcore
-"Wanderer" 2016, Melodic Death Metal
+
+
+## Дискография
+
+### "In Battle There Is No Law" 1998, Death Metal
+
+01. Partisan
+02. Forthcoming Fire
+03. Thoughts of Superiority 
+04. Mandatory
+05. Remember
+
+### "Asunder" 2000, Death Metal
+
+01. To Inherit The Guilt
+02. Cold
+03. Betrayed Again
+04. Deification
+05. Pass Away
+06. Open Arms To The Future
+07. The Drowned And The Saven
+08. Where Is The Light
+09. Asunder
+10. The Fourth Crusade
+11. ***********
+
+### "Whatever It May Take" 2002, Death Metal
+
+01. Intro
+02. Behind A Wall Of Silence
+03. The Worlds In Me
+04. The Martyr?s Blood
+05. It Burns Within
+06. Implore The Darken Sky
+07. The Few Upright
+08. Whatever It May Take
+09. Ecowar
+10. Naked Among Wolves
+11. The Fire
+12. Case De Caboclo (Point Of No Return Cover)
+13. Implore The Darken Sky (Classic Version)
+
+### "...In Battle (Re-Release)" 2002, Death Metal
+
+01. Partisan 2002
+02. Eternal
+03. Demise
+04. Competition In Hatred
+05. Forthcoming Fire
+06. Thoughts Of Superiority
+07. Mandatory
+08. The Fallen
+09. Harmony Dies
+10. The Fallen (Demo 97)
+
+### "Antigone" 2004, Death Metal
+
+01. Echoes (Intro)
+02. The Weapon They Fear
+03. The Only Truth
+04. Architects Of The Apocalypse
+05. Voice Of The Voiceless
+06. Numbing The Pain
+07. To Harvest The Storm
+08. Risandi Von (Outro)
+09. Bleeding To Death
+10. Tree Of Freedom
+11. The Dream Is Dead
+12. Deyjandi Von (Outro)
+
+### "Deaf To Our Prayers" 2006, Death Metal
+
+01. Counterweight
+02. Trespassing The Shores Of Our World
+03. Profane Believers
+04. Stay The Course
+05. The Final March
+06. Of No Avail
+07. Armia
+08. Mybestfriend.com
+09. Biogenesis (Undo Creation)
+10. Dying In Silence
+11. The Greatest Gift Of God
+
+### "Iconoclast" 2008, Metalcore
+
+1. Awoken 01:29  
+2. Endzeit 04:18  
+3. Like A Thousand Suns 03:46  
+4. Murderers of the Murderers 03:55  
+5. Forlorn Skies 04:51  
+6. A Dying Ember 06:57  
+7. Joel 05:04  
+8. Quest for Resistance 04:51  
+9. Black Tears 03:06  
+10. The Bombs of My Saviours 04:22  
+11. Against All Lies 05:09  
+12. The Disease 02:47  
+13. Equinox 03:10  
+14. Atonement 04:35
+
+Marcus Bischoff - vocals
+Maik Weichert - guitar
+Eric Bischoff - bass
+Matthias Voigt - drums
+Alexander Dietz - guitar
+
+### "Invictus" 2010, Metalcore
+
+1. Intro 01:09  
+2. The Omen 03:38
+3. Combat 03:49 
+4. I Was I Am I Shall Be 03:56
+5. Buried In Forgotten Grounds 05:32
+6. Sevastopoll 04:03
+7. The Lie You Bleed For 04:41
+8. Return To Sanity 03:19
+9. Against Bridge Burners 03:30  
+10. Of Forsaken Poets 04:31
+11. Given In Death 05:11  
+12. Outro 01:42 
+
+### "Veto" 2013, Metalcore
+
+
+
+### "Wanderer" 2016, Melodic Death Metal
+
+1. The Loss of Fury	02:21	 
+2. Bring the War Home	04:20	 
+3. Passage of the Crane	03:57	 
+4. They Shall Not Pass	05:32	 
+5. Downshifter	05:59	 
+6. Prey to God	03:08	 
+7. Agent Orange (Sodom cover)	06:08 
+8. My Heart Is My Compass	01:10	 
+9. Save Me	04:57	 
+10. Corium	05:27	 
+11. Extermination Order	03:20	 
+12. A River of Crimson	04:47	 
+13. The Cry of Mankind (My Dying Bride cover) 07:34
+
 
 ## Отношения с другими группами
 

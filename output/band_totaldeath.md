@@ -1,10 +1,65 @@
 # Total Death
 
-Дискография
-"Lagrimas de Ensueno" 1999, Death Metal
-"El Rostro Que Llevamos Dentro" 2002, Death Metal
-"Desolate Recollections" 2007, Death Metal
-"Somatic" 2010, Death Doom
+
+
+## Дискография
+
+### "Lagrimas de Ensueno" 1999, Death Metal
+
+1. Campo de rosas  04:41  
+2. Momentos de cruel pasi&#243;n  02:15
+3. En esa parte del olvido  05:55  
+4. Un instante...  01:03    
+5. C&#233;nit de la esperanza  05:48
+6. Resuc&#237;tame  03:18 
+7. Por siempre... Temor!!  05:08   
+8. M&#225;s alla de la realidad (live)  04:39 
+9. En esa parte del olvido (live)  05:36  
+10. Un instante... (live)  01:05
+11. Falsedad (live)  02:01   
+12. Propagaci&#243;n del mal (live)  02:28 
+
+### "El Rostro Que Llevamos Dentro" 2002, Death Metal
+
+1. El Color De La Desperaci&#243;n  04:15 
+2. Los Espejos  05:09    
+3. Extrana Nostalgia  05:20    
+4. Lejos...  04:34  
+5. Adi&#243;s  02:42    
+6. Su Dolor  05:52    
+7. A La Mitad de un Susurro  01:56   
+8. Por un Cielo Carmes&#237;  05:13   
+9. &#191;El Sol Enciende Cenzias?  05:57 
+10. Has Visto...  03:06 
+11. Oc&#233;anos  03:19 
+
+### "Desolate Recollections" 2007, Death Metal
+
+1. Inhale the Last Dread  04:19 
+2. Withered Essence  04:03   
+3. Untitled Feelings  03:11 
+4. Breathing Dense Air of Panic  05:57 
+5. Malicious Elements  07:13    
+6. Out of Here, Near You  07:50    
+7. Threshold of Tragedy  05:00   
+8. Pleasure Reminds Pain  06:49    
+9. Insolent World (feat. Alex from TBOD (UK))  03:14 
+
+### "Somatic" 2010, Death Doom
+
+1. Thoughts 
+2. Reflections of Weakness
+3. Killing the Coldness, Killing the Fear
+4. Axphyxiating Distance
+5. The Dawn End
+6. Empty Eyes
+7. Frosted Covered Windows
+8. Rage of Vengance
+9. My Suicide Light
+Great & Fine Doom Death Metal 
+Recorded by Marcelo Pompeu in Sao Paolo, Brazil.
+Mixed and mastered at Sonic Train Studios, by Andy La Rocque.
+
 
 ## Отношения с другими группами
 

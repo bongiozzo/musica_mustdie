@@ -1,17 +1,183 @@
 # Lordi
 
-Дискография
-"Get Heavy" 2002, Heavy Metal
-"The Monsterican Dream" 2004, Heavy Metal
-"The Monster Show" 2005, Heavy Metal
-"The Arockalypse" 2006, Heavy Metal
-"Beast Loose In Paradise (single)" 2008, Heavy Metal
-"Deadache" 2008, Heavy Metal
-"This Is Heavy Metal (single)" 2010, Heavy Metal
-"Babez For Breakfast" 2010, Heavy Metal
-"The Riff [single]" 2013, Heavy Metal
-"Nailed by the Hammer of Frankenstein (Single)" 2014, Heavy Metal
-"Monstereophonic (Theaterror vs. Demonarchy)" 2016, Heavy Metal
+
+
+## Дискография
+
+### "Get Heavy" 2002, Heavy Metal
+
+1. Scarctic Circle Gathering
+2. Get Heavy
+3. Devil Is A Loser
+4. Rock The Hell Outta You
+5. Would You Love A Monsterman?
+6. Icon Of Dominance
+7. Not The Nicest Guy
+8. Hellbender Turbulence
+9. Biomechanic Man
+10. Last Kiss Goodbye
+11. Dynamite Tonight
+12. Monster Monster
+13. 13.
+
+
+Lordi - vocals, programming
+Amen - guitars, backing vocals
+Kalma - bass, backing vocals
+Enary - keyboards, piano, backing vocals
+Kita - drums, backing vocals
+
+### "The Monsterican Dream" 2004, Heavy Metal
+
+1. Threatical Trailer 01:09  
+2. Bring It On 04:35  
+3. Blood Red Sandman 04:03 
+4. My Heaven Is Your Hell 03:41  
+5. Pet The Destroyer 03:51 
+6. The Children Of The Night 03:45 
+7. Wake The Snake 03:47  
+8. Shotgun Divorce 04:42  
+9. Forshaken Fashion Dolls 03:43
+10. Hunted Town 03:13  
+11. Fire In The Hole 03:28 
+12. Magistra Nocte 01:33  
+13. Kalmageddon 04:33
+
+### "The Monster Show" 2005, Heavy Metal
+
+01. Threatical Trailer
+02. Bring it On
+03. Blood Red Sandman
+04. My Heaven is your Hell
+05. Would you Love a Monsterman
+06. Devil is a Loser
+07. Icon of Dominance
+08. The Children of the Night
+09. Shotgun Divorce
+10. Forsaken Fashion Dolls
+11. Wake the Snake
+12. Rock the Hell outa You
+
+
+Bonus DVD
+01. Blood Red Sandman
+02. Devil is a Loser
+03. Would you love a Monsterman
+
+### "The Arockalypse" 2006, Heavy Metal
+
+1. SCG3 Special Report 03:46  
+2. The Deadite Girls Gone Wild 03:45  
+3. The Kids Who Wanna Play With The Dead 04:07  
+4. It Snows In Hell 03:37  
+5. Who's Your Daddy 03:38  
+6. They Only Come Out at Night 03:49  
+7. Chainsaw Buffet 03:57  
+8. Good to be Bad 03:31  
+9. The Night of the Living Dead 03:09  
+10. Supermonstars 04:01
+
+### "Beast Loose In Paradise (single)" 2008, Heavy Metal
+
+01. Beast Loose In Paradise (Radio Edit) (3:09) 
+02. Beast Loose In Paradise (3:33)
+
+The 03:33-version of this song is the 'Dark Floors' version. The biggest
+difference is the intro, but this longer version will be used during the
+credits of the Lordi-affiliated horror movie 'Dark Floors'.
+
+### "Deadache" 2008, Heavy Metal
+
+1. Scarctic Circle Gathering IV 00:42 
+2. Girls Go Chopping 04:03  
+3. Bite It Like A Bulldog 03:28
+4. Monsters Keep Me Company 05:29 
+5. Man Skin Boots 03:42  
+6. Dr. Sin Is In 03:48 
+7. The Ghosts Of The Heceta Head 03:41 
+8. Evilyn 04:01 
+9. The Rebirth Of The Countess 01:59 
+10. Raise Hell In Heaven 03:32 
+11. Deadache 03:30  
+12. The Devil Hides Behind Her Smile 04:12 
+13. Missing Miss Charlene 05:12 
+
+
+
+Line up:
+Tomi "Mr. Lordi" Putaansuu - Vocals
+Amen (Jussi SydГ¤nmaa) - Guitar
+OX (Samer el Nahhal) - Bass
+Awa (Leena Peisa) - Keyboards & Backing vocals
+Kita (Sampsa Astala) - Drums & Backing vocals
+
+- Bulldog Breathing in "Bite It Like a Bulldog" by Frida.
+- Children's Choir - Shoemaker's Kid Quire
+- Translation and Speech on "The Rebirth of The Countess" by Sandra Mittica.
+
+Produced by Nino Laurenne
+Mixed by Jesse Vainio
+
+Bonus tracks:
+01. Dead Bugs Bite (03:42) - (iTunes Bonus)
+02. Where's The Dragon? (03:01) - (Japanese Bonus)
+03. Hate At First Sight (03:34) - (Digipack Bonus)
+04. The House Without A Name (Dingo cover) (04:15) - (Finnish Bonus) 
+
+
+
+### "This Is Heavy Metal (single)" 2010, Heavy Metal
+
+1. This Is Heavy Metal 03:00 
+
+### "Babez For Breakfast" 2010, Heavy Metal
+
+1. SCG5: It's A Boy!   
+2. Babez For Breakfast   
+3. This Is Heavy Metal   
+4. Rock Police   
+5. Discoevil   
+6. Call Off The Wedding   
+7. I Am Bigger Than You   
+8. ZombieRawkMachine   
+9. Midnite Lover   
+10. Give Your Life For Rock And Roll   
+11. Nonstop Nite   
+12. Amen's Lament To Ra   
+13. Loud And Loaded   
+14. Granny's Gone Crazy   
+15. Devil's Lullaby 
+
+
+### "The Riff [single]" 2013, Heavy Metal
+
+1. The Riff 03:44
+
+### "Nailed by the Hammer of Frankenstein (Single)" 2014, Heavy Metal
+
+1. Nailed by the Hammer of Frankenstein 
+
+### "Monstereophonic (Theaterror vs. Demonarchy)" 2016, Heavy Metal
+
+1. SCG8: One Message Waiting  01:10   
+2. Let's Go Slaughter He-Man (I Wanna Be the Beast-Man in the Masters of the Universe)  04:30   
+3. Hug You Hardcore  03:40  
+4. Down with the Devil  04:29   
+5. Mary Is Dead  04:37   
+6. Sick Flick  04:00  
+7. None for One  04:15   
+8. SCG VIII: Opening Scene  01:22    
+9. Demonarchy  06:01  
+10. The Unholy Gathering  05:09   
+11. Heaven Sent Hell on Earth  05:43   
+12. And the Zombie Says  06:23   
+13. Break of Dawn  05:47   
+14. The Night the Monsters Died  07:13 
+
+Recorded and mixed at Sonic Pump Studios in Helsinki, Finland.
+Additional backing vocals recorded at MSTR Studio.
+Mastered at Chartmakers.
+
 
 ## Отношения с другими группами
 

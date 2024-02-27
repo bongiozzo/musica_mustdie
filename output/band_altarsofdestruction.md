@@ -1,7 +1,21 @@
 # Altars of Destruction
 
-Дискография
-"Gallery of Pain" 2010, Thrash
+
+
+## Дискография
+
+### "Gallery of Pain" 2010, Thrash
+
+1. Altars of Destruction	 
+2. Aggression	 
+3. Children of Misfortune	 
+4. Guilty Or Not	 
+5. Cross the Line (Of No Return)	 
+6. Heroes of the New World	 
+7. Suicide...Are You Fucking Insane?	 
+8. Gallery of Pain	 
+9. Day of Judgement
+
 
 ## Отношения с другими группами
 

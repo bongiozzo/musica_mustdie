@@ -1,15 +1,164 @@
 # Moonsorrow
 
-Дискография
-"Suden Uni" 2001, Viking Metal
-"Voimasta ja Kunniasta" 2001, Viking Metal
-"Tama Ikuinen Talvi" 2001, Viking Metal
-"Kivenkantaja" 2003, Viking Metal
-"Verisakeet" 2005, Viking Metal
-"V: Havietty" 2007, Viking Metal
-"Tulimyrsky EP" 2008, Viking Metal
-"Varjoina Kuljemme Kuolleiden Maassa" 2011, Viking Metal
-"Jumalten Aika" 2016, Viking Metal
+finnish viking folk-black metal
+
+## Дискография
+
+### "Suden Uni" 2001, Viking Metal
+
+1. Ukkosenjumalan Poika
+2. Kuyliunjarven Jaalla (Pakanavedet II)
+3. Kuin Ikuinen
+4. Tuulen Koti, Aaltojen Koti
+5. Pakanajuhla
+6. 1065: Aika
+7. Suden Uni
+
+
+Henri Urponpoika Sorvali - guitars, keyboards, accordion, mouth harp, clean vocals, handclaps, choir
+Ville Seponpoika Sorvali - bass, vocals, handclaps, choir
+Baron Tarwonen - thunder, timpani, 12-string, backing vocals, handclaps, choir
+Guest musicians - 
+Janne Perttilд: handclaps, 
+choir Avather: handclaps
+ Blastmor: handclaps
+
+Recorded in Tico-Tico Studios in February 2000. 
+Produced by Moonsorrow, mixed and mastered by Ahti Kortelainen.
+
+
+
+### "Voimasta ja Kunniasta" 2001, Viking Metal
+
+1. Tyven
+2. Sankarihauta
+3. Kylan Paassa
+4. Hiidenpelto including Hдpeдn Hiljaiset Vedet
+5. Aurinko ja Kuu
+6. Sankaritarina
+
+
+Henri Urponpoika Sorvali - rhythm and acoustic guitars, keyboards, accordion, mouth harp, backing vocals, handclaps, choir
+Ville Seponpoika Sorvali - bass, vocals, handclaps, choir
+Baron Tarwonen - thunder percussion, timpani, 12-string, backing vocals, handclaps, choir
+Mitja Harvilahti - lead and rhythm guitars, handclaps, choir
+Guest musicians
+Janne Perttil&auml;: handclaps, 
+choir Avather: handclaps 
+Blastmor: handclaps
+
+Recorded in Tico Tico Studio in August 2001.
+Produced by Moonsorrow, mixed by Ahti Kortelainen.
+Mastered at Finnvox in August 2001 by Mika Jussila.
+
+
+
+### "Tama Ikuinen Talvi" 2001, Viking Metal
+
+1.   Taistelu Pohjolasta  
+2.   Vihrealla Valtaistuimella  
+3.   Talvi  
+4.   Luopion Veri  
+5.   Kuun Suru  
+
+
+### "Kivenkantaja" 2003, Viking Metal
+
+01 Rauniolla
+02 Unohduksen Lapsi
+03 Jumalten Kaupunki/Tuhatvuotinen Perinto
+04 Kivenkantaja
+05 Tuulen Tytar/Soturin Tie
+06 Matkan Lopussa *
+
+All songs written & performed by Moonsorrow
+except * music: traditional finnish song
+
+
+Ville Seponpoika Sorvali - vocals, bass, fretless bass, door, choir - 
+Henri Urponpoika Sorvali - keyboards, rhythm guitars, 6-string acoustic guitar, mouth harp, 
+pedal harmonium, accordion, clean vocals, backing vocals, choir - 
+Marko Tarvonen - drums, percussion, 12-string acoustic guitar, backing vocals, choir 
+Mitja Harvilahti - lead and rhythm guitars, backing vocals, choir 
+Lord Eurйn - arpeggiator, choir - 
+
+Guest musicians 
+Petra Lindberg: vocals 
+Hittavainen: fiddle 
+Janne Perttilд: choir 
+Stefan Lejon: choir 
+
+
+Recorded at Tico Tico Studios in November/December 2002. 
+Produced by Moonsorrow, mixed by Ahti Kortelainen. 
+Mastered at Finnvox Studios in December 2002 by Mika Jussila. 
+
+Fiddle recorded at Studio Ragnarцk by Henri Sorvali. 
+Pedal Harmonium recorded on Ragnarцk Mobile by Baron Tarwonen. 
+Petra Lindberg's vocals recorded at Tumbleweed Studios by Jocke. 
+
+
+### "Verisakeet" 2005, Viking Metal
+
+1. Karhunkynsi (Bearclaw) 
+2. Haaska (Carrion) 
+3. Pimea (Dark) 
+4. Jotunheim (Jotunheim) 
+5. Kaiku (Echo) 
+
+
+
+Lord Euren - Live keyboards
+Henri Sorvali - Rhythm Guitars & Keyboards
+Marko Tarvonen - Drums & Percussion
+Ville Sorvali - Vocals & Bass
+Mitja Harvilahti - Lead & Rhythm Guitars
+
+### "V: Havietty" 2007, Viking Metal
+
+1. Jддsta Syntynyt / Varjojen Virta 
+2. Tuulen Ajettu Maa
+
+### "Tulimyrsky EP" 2008, Viking Metal
+
+1. Tulimyrsky 29:45  
+2. For Whom The Bell Tolls (Metallica cover) 07:42  
+3. Taistelu Pohjolasta (2008 version) 08:11 
+4. Hvergelmir (2008 version) 09:30  
+5. Back To North (Merciless cover) 13:08 
+
+
+Recorded in JiVe studio, Jan/Feb 2008.
+Mixed by Jukka Varmo and Henri Sorvali.
+Mastered by Mika Jussila at Finnvox. 
+Cover art by Kris Verwimp.
+
+This EP sees a set of visitors in form of actor Turkka Mastomдki, Olav Eira
+(Бigi), Tomi Koivusaari (Amorphis), Oppu Laine (Mannhai) and Janne Perttilд
+(Rytmihдiriц/Moonsorrow), all of whom contributed vocals.
+
+The original version of 'Taistelu Pohjolasta' was on the "Tдmд Ikuinen Talvi"
+demo. The original version of 'Hvergelmir' was on the "Metsд" demo.
+
+'Tulimyrsky' means 'Firestorm'.
+
+The Metalica cover 'For Whom The Bell Tolls' was recorded in 2005. 
+
+
+### "Varjoina Kuljemme Kuolleiden Maassa" 2011, Viking Metal
+
+ 01. "Tдhdetцn" 
+ 02. "Hдvitetty" 
+ 03. "Muinaiset" 
+ 04. "Nдlkд, vдsymys ja epдtoivo” 
+ 05. "Huuto" 
+ 06. "Kuolleille" 
+ 07. "Kuolleiden maa" 
+
+### "Jumalten Aika" 2016, Viking Metal
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,13 +1,105 @@
 # Candiria
 
-Дискография
-"Surrealistic Madness" 1995, Alternative
-"Beyond Reasonable Doubt" 1997, Alternative
-"Process Of Self-Development" 1999, Alternative
-"300 Percent Density" 2001, Alternative
-"The C.O.M.A. Imprint" 2002, Alternative
-"What Doesn’t Kill You…" 2004, Alternative
-"Kiss the Lie" 2009, Alternative
+
+
+## Дискография
+
+### "Surrealistic Madness" 1995, Alternative
+
+
+
+### "Beyond Reasonable Doubt" 1997, Alternative
+
+
+
+### "Process Of Self-Development" 1999, Alternative
+
+  1.   Three Times Again (Coma) - 5:51 
+  2.   Onefortyeight (Brannon/Sheehan) - 1:47 
+  3.   Pull (Brannon/Sheehan) - 3:55 
+  4.   Method of Expression (Agent 19/Capitol 5/Carley Coma/Kenneth/RVJ/Stealth) - 3:55 
+  5.   Temple of Sickness - 6:21 
+  6.   Mathematics (Ill Nino/Rosado) - 6:37 
+  7.   Work in Progress (Hatebreed/Jamey Jasta/Vazquez) - 6:58 
+  8.   Matter. Anti. Matter (Kenneth) - 5:33 
+  9.   Cleansing (Carly Coma/Dissolve/Thorstenson) - 3:38 
+  10.   Elevate in Madness - 5:10 
+  11.   Down to the Last Element (Capitol 5/Carley Coma/Krim) - 5:47 
+  12.   The Process of Self-Development - 8:27 
+  13.   Leaving the Atmosphere (Carley Coma/Schalk) - 4:21 
+
+
+Deems  -  Drawing 
+Nite Bob  -  Engineer, Mixing 
+Dissolve  -  Vocals 
+Candiria  -  Producer 
+Tom Sheehan  -  Vocals 
+Hatebreed  -  Vocals 
+Roger Lian  -  Mastering 
+RVJ  -  Vocals 
+SDEE  -  Vocals 
+Kenneth Schalk  -  Percussion, Drums, Keyboards, Didjeridu, Producer, Engineer, Fender Rhodes, Mixing 
+Mike Barile  -  Bass, Producer, Engineer, Mixing 
+Francine  -  Assistant Engineer 
+Agent Nineteen  -  Vocals 
+Gary Brooks  -  Saxophone, Sax (Tenor) 
+Tim Byrnes  -  Trumpet, Score 
+Capitol 5  -  Vocals 
+Carley Coma  -  Vocals, Producer 
+Kevin Greenland  -  Bagpipes 
+Jamey Jasta  -  Vocals 
+Krim  -  Vocals 
+John Lamacchia  -  Guitar (Acoustic), Guitar, Guitar (Electric), Guitar (10 String) 
+Michael Macivor  -  Bass, Fretless Bass 
+Todd Nedrick  -  Bass 
+Jorge Rosado  -  Vocals 
+Joe Rybczyk Jr.  -  Fender Rhodes 
+J. Stealth  -  Vocals 
+Paul Thorstenson  -  Vocals 
+Phil Vazquez  -  Vocals 
+Toby Wales  -  Photography 
+Ill Niсo  -  Vocals 
+Agent 19  -  Vocals 
+Eric Matthews  -  Guitar 
+
+
+
+### "300 Percent Density" 2001, Alternative
+
+  1.   300 Percent Density (Candiria/Coma) - 6:05 
+  2.   Signs of Discontent (Candiria/Coma) - 3:00 
+  3.   Without Water (Candiria/Coma) - 3:53 
+  4.   Mass (Candiria/Coma) - 1:44 
+  5.   Constant Velocity Is as Natural as Being... (Candiria/Coma) - 4:26 
+  6.   Words from the Lexicon (Advocate/Candiria/Chief/Coma/Kid Gambino) - 4:42 
+  7.   Channeling Elements (Candiria/Coma) - 5:42 
+  8.   Advancing Positions (Candiria/Coma) - 2:11 
+  9.   The Obvious Destination (Candiria/Coma) - 4:21 
+  10.   Contents Under Pressure (Candiria/Coma) - 6:31 
+  11.   Opposing Meter (Candiria/Coma) - 21:24 
+
+
+Candiria  -  Producer, Mixing 
+Roger Lian  -  Mastering 
+Kenneth Schalk  -  Dulcimer, Percussion, Accordion, Drums, Keyboards, Wind, Didjeridu, Engineer, Djembe, Photography 
+Carley Coma  -  Vocals, Sounds 
+John Lamacchia  -  Guitar, Photography, Sounds, Tongue Drum 
+Michael Macivor  -  Bass 
+Eric Matthews  -  Guitar 
+
+
+### "The C.O.M.A. Imprint" 2002, Alternative
+
+
+
+### "What Doesn’t Kill You…" 2004, Alternative
+
+
+
+### "Kiss the Lie" 2009, Alternative
+
+
+
 
 ## Отношения с другими группами
 

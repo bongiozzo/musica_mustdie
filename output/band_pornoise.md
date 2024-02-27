@@ -1,7 +1,13 @@
 # Pornoise
 
-Дискография
-"69 Squirts (10 Years Of Wastecore)" 2011, Grindcore
+grind from Italy
+
+## Дискография
+
+### "69 Squirts (10 Years Of Wastecore)" 2011, Grindcore
+
+
+
 
 ## Отношения с другими группами
 

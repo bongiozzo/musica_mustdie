@@ -1,8 +1,34 @@
 # Supuration
 
-Дискография
-"The Cube" 1993, Death Doom
-"Incubation" 2003, Death Doom
+ex-Sup
+
+## Дискография
+
+### "The Cube" 1993, Death Doom
+
+1. Prelude
+2. The Elevation
+3. Soul's Speculum
+4. 1308.JP.08
+5. The Cube
+6. Through the Transparent Partitions
+7. Spherical Inner-Sides
+8. The Accomplishment
+9. 4TX.31B
+10. The Dim Light
+
+### "Incubation" 2003, Death Doom
+
+1. The confusion (november)
+2. The old mirror (dember)
+3. Incubation (january)
+4. The nameless boys (february)
+5. Witness to 3x3x3 (march)
+6. The father's gun (april)
+7. Vertigo (may) 
+8. The cocoon sphere (june)
+9. The biological clock (july)
+
 
 ## Отношения с другими группами
 

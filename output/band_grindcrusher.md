@@ -1,7 +1,23 @@
 # Grind Crusher
 
-Дискография
-"The Ultimate Earache" 1989, Grindcore
+Collection
+
+## Дискография
+
+### "The Ultimate Earache" 1989, Grindcore
+
+1. MORBID ANGEL "Chapel Of Ghouls"
+2. REPULSION "Radiation Sickness"
+3. CARCASS "Exhume To Consume"
+4. GODFLESH "Streetcleaner"
+5. NAPALM DEATH "The Missing Link"
+6. TERRORIZER "Dead Shall Rise"
+7. BOLT THROWER "Through The Eye Of Terror"
+8. INTENSE DEGREE "Straight Jacket/I Got A Cure"
+9. FILTHY CHRISTIANS "Party & Fight For Your Right"
+
+(p)&(c) 1989 EARACHE Records
+
 
 ## Отношения с другими группами
 

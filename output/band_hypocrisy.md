@@ -1,25 +1,377 @@
 # Hypocrisy
 
-Дискография
-"Penetralia" 1992, Death Metal
-"Osculum Obscenum" 1993, Death Metal
-"Pleasure of  Molestation (EP)" 1993, Death Metal
-"The Fourth Dimension" 1994, Death Metal
-"Inferior Devoties (EP)" 1994, Death Metal
-"Abducted" 1996, Death Metal
-"Maximum Abduction (EP)" 1996, Death Metal
-"Carved Up (EP)" 1996, Death Metal
-"The Final Chapter" 1997, Death Metal
-"Hypocrisy Destroys Wacken" 1999, Death Metal
-"Hypocrisy" 1999, Death Metal
-"Into The Abyss" 2000, Death Metal
-"10 Years Of Chaos and Confusion" 2001, Death Metal
-"Catch 22" 2002, Death Metal
-"Arrival" 2004, Death Metal
-"Virus" 2005, Death Metal
-"A Taste of Extreme Divinity" 2009, Death Metal
-"Hell over Sofia - 20 Years of Chaos and Confusion [DVD]" 2011, Death Metal
-"End Of Disclosure" 2013, Death Metal
+King Of Swedish Death Metal
+
+## Дискография
+
+### "Penetralia" 1992, Death Metal
+
+1. Impotent God **
+2. Suffering Souls **
+3. Nightmare **
+4. Jesus Fall *
+5. God Is A ... **
+6. Left To Rot **
+7. Burn By The Cross **
+8. To Escape Is To Die **
+9. Take The Throne *
+10.Penetralia *
+11. Life of Filth (Bonus track) 
+12. Lead by Satanism (Bonus track)
+
+ Masse Broberg - Vocals
+ Peter Tagtgren - Guitar (Drums On **, Keyboard & Vocals On Penetralia)
+ Mikael Hedlund - Bass
+ Jonas Osterberg - Guitar
+ Lars Szoke - Drums On *
+
+Produced & Mixed By Peter Tagtgren.
+Recorded At Studio Rockshop.
+Executive Producer: Markus Staiger.
+
+(p)&(c) 1992 NUCLEAR BLAST Records
+
+### "Osculum Obscenum" 1993, Death Metal
+
+1. Pleasure Of Molestation
+2. Exclamation Of A Necrofag
+3. Osculum Obscenum
+4. Necronomicon
+5. Black Metal *
+6. Inferior Devoties
+7. Infant Sacrifices
+8. Attachment To The Ancestor
+9. Althotas
+
+ Masse Broberg - Vocals
+ Peter Tagtgren - Guitar
+ Micael Hedlund - Bass
+ Lars Szoke - Drums
+
+All Songs By HYPOCRISY,Except Of (*) By VENOM.
+All Lyrics By Peter Tagtgren
+Osculum Obscenum Was Recorded At Studio Rockshop
+March'93
+Produced By Peter Tagtgren & Markus Staiger
+
+(p)&(c) 1993 NUCLEAR BLAST Records
+
+### "Pleasure of  Molestation (EP)" 1993, Death Metal
+
+01. Pleasure of Molestation 
+02. Exclamation of a Necrofag 
+03. Necronomicon 
+04. Attachment to the Ancestor 
+
+### "The Fourth Dimension" 1994, Death Metal
+
+1. Apocalypse
+2. Mind Corruption
+3. Reincarnation
+4. Reborn
+5. Black Forest
+6. Never To Return
+7. Path To Babylon
+8. Slaughtered
+9. Orgy In Blood
+10.The North Wind
+11.T.E.M.P.T.
+12.The Fourth Dimension
+13.The Arrival Of The Demons
+
+ Peter Tagtgren - Vocals, Guitars, Keyboards
+ Mikael Hedlund - Bass
+ Lars Szoke - Drums
+
+Produced & Mixed By Peter Tagtgren
+Engineered By Gunnar Siling
+Recorded At Park Studio, Stockholm, Sweden,March - April 1994.
+
+(P)&(C) 1994 NUCLEAR BLAST
+
+### "Inferior Devoties (EP)" 1994, Death Metal
+
+1. Inferior Devoties
+2. Symbol Of Baphomet
+3. Mental Emotions
+4. God Is A Lie
+5. Black Magic*
+
+All songs written by HYPOCRISY except* by SLAYER
+Produced & mixed by P.Tagtgren
+Recorded at Studio Rockshop Oct. 93
+
+ Peter Tagtgren - Vocals & Guitars
+ Michael Hedlund - Bass
+ Lars Szoke - Drums
+
+(p)(c) 1994 NUCLEAR BLAST Records
+
+
+### "Abducted" 1996, Death Metal
+
+1. The Gathering
+2. Roswell 47
+3. Killing Art
+4. The Arrival Of The Demons (Part II)
+5. Buried
+6. Abducted
+7. Paradox
+8. Point Of No Return
+9. When The Candle Fades
+10.Carved Up
+11.Reflections
+12.Slippin' Away
+13.Drained
+
+All songs written by HYPOCRISY
+Produced and mixed by Peter Tagtgren
+Engineered by HYPOCRISY
+Recorded and mixed at Abyss Studio,
+Sweden
+
+Mikael Hedlund - Bass
+Lars Szoke - Drums
+Peter Tagtgren - Vocals, Guitars and
+Keyboards
+
+(p)(c) 1996 NUCLEAR BLAST Records
+
+### "Maximum Abduction (EP)" 1996, Death Metal
+
+1. Roswell 47
+2. Carved Up
+3. Request Denied
+4. Strange Ways З
+
+All songs written by HYPOCRISY
+except З written by A. Frehley (KISS)
+Produced by Peter Tagtgren
+Recorded at Abyss Studio
+
+Mikael Hedlund - Bass
+Lars Szoke - Drums
+Peter Tagtgren - Vocals, Guitars and Keyboards
+
+(p)c 1996 NUCLEAR BLAST Records
+
+### "Carved Up (EP)" 1996, Death Metal
+
+01. Carved Up 
+02. Beginning of the End
+
+### "The Final Chapter" 1997, Death Metal
+
+1. Inseminated Adoption
+2. A Coming Race
+3. Dominion
+4. Inquire Within
+5. Last Vanguard
+6. Request Denied
+7. Through the Window of Time
+8. Shamateur
+9. Adjusting the Sun
+10.Lies
+11.Evil Invaders
+12.The Final Chapter
+
+
+Produced by P.Tagtgren
+
+Peter Tangtgren: vocals, guitars and keyboards
+Mikael Hedlund - bass
+Lars Szoke - drums
+
+All lyrics by P.Tagtgren
+Produced and mixed by: Peter Tangtgren
+Recorded, mastered and mixed in Abyss studio
+Sweden. May 1997
+Engineered by: Hypocrisy
+Photo, Art, Design and lay-out: P Gron. Sweden
+
+### "Hypocrisy Destroys Wacken" 1999, Death Metal
+
+1. Roswell 47
+2. Inseminated Adoption
+3. A Coming Race
+4. Apocalypse
+5. Osculum Obscenum
+6. Buried
+7. Left To Rot
+8. The Fourth Dimension
+9. Pleasure Of Molestation
+10. Killing Art
+11. The Final Chapter
+12. Unkill The End
+13. Beginning Of The End
+
+All Songs written by HYPOCRISY
+Mixed by Lars Johannson in Studio Hangballe
+Recorded at the "Wacken Open Air"
+
+Mikael Hedlund - Bass
+Lars Szoke - Drums
+Peter Tagtgren - Vocals, Guitars
+Matthias Kamijo - Additional guitars
+
+(p)(c)1999 Nuclear Blast Records
+
+### "Hypocrisy" 1999, Death Metal
+
+1. Fractured Millenium
+2. Apocaliptic Hybrid
+3. Fusion Programmed Minds
+4. Elastic Inverted Visions
+5. Reversed Reflections
+6. Until The End
+7. Paranormal Mysteria
+8. Time Warp
+9. Disconnected Magnetic Corridors
+10. Paled Empty Sphere
+11. Selfinflicted Overload
+
+Peter Tagtgren - 7-string guitar, Vocals & keyboard
+Michael Hedlund - bass
+Lars Szoke - Drums
+
+
+Produced & mixed by Peter Tagtgren
+Recorded at Abyss studio Dec 98 - Jan 99
+
+
+
+
+### "Into The Abyss" 2000, Death Metal
+
+ 1. Legions Descend
+ 2. Blinded
+ 3. Resurrected
+ 4. Unleash the Beast
+ 5. Digital Prophesy
+ 6. Fire In the Sky
+ 7. Total Eclipse
+ 8. Unfold the Sorrow
+ 9. Sodomized
+10. Deathrow (No Regrets)
+
+Peter Tagtgren - vocals, 7-string guitar and keyboards
+Lars Szoke - drums
+Michael Hedlund - bass
+
+Produced by: Peter Tagtgren
+Co-produced by: Lars Szoke
+Recorded and mixed at Abyss Studio, April 2000
+Mastered by: Peter In De Betou at Cutting Room, Stockholm
+Lyrics by: Peter Tagtgren
+All arrangements by: Hypocrisy
+Orchestra on "Fire In The Sky" written by: Peter Tagtgren
+
+### "10 Years Of Chaos and Confusion" 2001, Death Metal
+
+
+
+### "Catch 22" 2002, Death Metal
+
+1. Don't Judge Me
+2. Destroyed
+3. Edge Of Madness
+4. A Public Puppet
+5. Uncontrolled
+6. Turn The Page
+7. Hatred
+8. Another Dead End (For Another Dead Man)
+9. Seeds Of The Chosen One
+10. All Turns Black
+
+### "Arrival" 2004, Death Metal
+
+1. Born Dead Buried Alive 
+2. Eraser 
+3. Stillborn 
+4. Slave To The Parasites 
+5. New World 
+6. The Abyss 
+7. Dead Sky Dawning 
+8. The Departure 
+9. War Within
+
+
+Peter Tagtgren - guitars, vocals
+Mikael Hedlund - bass
+Lars Szoke - drums
+
+ 
+Recorded at Abyss studio Aug/Sep 2003
+Produced by P.Tagtgren/M.Hedlund
+Mixed by P.Tagtgren
+Engineered by Hypocrisy
+All music arranged by Hypocrisy
+Mastered in Cuttingroom by Bjorn Engelmann
+Cover & Layout by Thomas Ewerhard
+Photos by Marco Schirmer
+
+### "Virus" 2005, Death Metal
+
+1. Intro 
+2. Warpath
+3. Scrutinized
+4. Fearless
+5. Craving for another killing
+6. Let the knife do the talking
+7. A thousand lies
+8. Incised before I've ceased
+9. Blooddrenched
+10. Compulsive psychosis
+11.Living to die
+
+### "A Taste of Extreme Divinity" 2009, Death Metal
+
+1. Valley Of The Damned 04:17  
+2. Hang Him High 04:35  
+3. Solar Empire 05:16  
+4. Weed Out The Weak 03:50  
+5. No Tomorrow 04:16  
+6. Global Domination 05:15  
+7. Taste The Extreme Divinity 03:36  
+8. Alive 04:22  
+9. The Quest 05:31  
+10. Tamed "Filled With Fear" 04:39  
+11. Sky Is Falling Down 04:32 
+
+
+Digipak bonus track:
+12. The Sinner 
+
+### "Hell over Sofia - 20 Years of Chaos and Confusion [DVD]" 2011, Death Metal
+
+1. Valley of the Damned	
+2. Hang Him High
+3. Fractured Millennium
+4. Adjusting the Sun
+5. Eraser
+6. Pleasures of Molestation / Osculum Obscenum / Penetralia
+7. Apocalypse / The Fourth Dimension
+8. Killing Art
+9. A Coming Race
+10. Let the Knife Do the Talking
+11. Weed Out the Weak	
+12. Fire in the Sky
+13. The Final Chapter
+14. Warpath
+15. Roswell 47
+
+### "End Of Disclosure" 2013, Death Metal
+
+1. End Of Disclosure
+2. Tales Of Thy Spineless
+3. The Eye
+4. United We Fall
+5. 44 Double Zero
+6. Hell Is Where I Stay
+7. Soldier Of Fortune
+8. When Death Calls
+9. The Return 
+
 
 ## Отношения с другими группами
 

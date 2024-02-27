@@ -1,11 +1,90 @@
 # Woods of Desolation
 
-Дискография
-"Toward the Depths" 2008, Black Metal
-"Sorh (EP)" 2009, Black Metal
-"Torn Beyond Reason" 2011, Black Metal
-"The Darkest Days" 2011, Black Metal
-"As the Stars" 2014, Black Metal
+Atmospheric Black Metal
+
+## Дискография
+
+### "Toward the Depths" 2008, Black Metal
+
+1. Towards the Depths
+2. They Will Never Leave Their Tormentor
+3. When the Frost Comes Falling Down
+4. Solitude (Part II)
+5. A Time of Eternal Darkness
+6. Woods of Desolation
+7. Outro
+
+
+### "Sorh (EP)" 2009, Black Metal
+
+1. Intro
+2. The Leaden Sky Torn
+3. Enshrouded By Solitude
+4. Within The Crimson Tide
+
+### "Torn Beyond Reason" 2011, Black Metal
+
+1. Torn Beyond Reason
+2. Darker Days
+3. An Unbroken Moment
+4. The Inevitable End
+5. November
+6. Somehow...
+
+### "The Darkest Days" 2011, Black Metal
+
+CD 1:
+ 1. Rotting
+ 2. As I Take Away Their Eyes
+ 3. To Exist In The Void
+ 4. Blood Of Honour
+ 5. Outro
+ 6. The Noose and the Shadows
+ 7. One
+ 8. My Blood, My March
+ 9. Solitude
+ 10. Eyes of Stone
+ 11. The Sadness, The Wood
+ 12. Outro
+
+CD 2:
+ 1. Pass The Kingdom...
+ 2. Clouds Reach Out And Clench The Sun
+ 3. Burning They Fell
+ 4. Solitude (Part III)
+ 5. Remains...
+ 6. Suicide
+ 7. Gateway To Darkness
+ 8. The Darkness Of Desire
+ 9. Shadows
+ 10. For The Glory Of Satan...
+ 11. Standing Before The Eldest Of Trees
+ 12. None Shall Mourn The Passing
+
+
+A compilation of old demos, split albums, and unreleased tracks. Comes in a double digisleeve CD format.
+
+ Disc 1:
+ Track 1 - taken from the Split with Drohtnung (2008)
+ Tracks 2-5 - taken from the Split with Vorkuta (2008)
+ Tracks 6-12 - taken from the "...of an Undying Cold" Demo (2007)
+ Disc 2:
+ Tracks 1 and 2 - previously unreleased, 2008 
+ Track 3 - unreleased track from "Toward the Depths" sessions, 2007 
+ Track 4 - unreleased track from the "Solitude" acoustic session, 2006 
+ Tracks from 5 to 11 - previously released as the "Woods of Desolation" debut demo, 2006 
+ Track 12 - unreleased alternative version of the debut demo track, 2006 
+
+### "As the Stars" 2014, Black Metal
+
+1. Like Falling Leaves
+2. Unfold
+3. And If All The Stars Faded Away
+4. This Autumn Light
+5. Anamnesis
+6. Withering Field
+7. Ad Infinitum 
+
 
 ## Отношения с другими группами
 

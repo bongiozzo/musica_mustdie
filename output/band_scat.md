@@ -1,7 +1,13 @@
 # S.C.A.T.
 
-Дискография
-"Apopatophobia" 2011, Grindcore
+
+
+## Дискография
+
+### "Apopatophobia" 2011, Grindcore
+
+
+
 
 ## Отношения с другими группами
 

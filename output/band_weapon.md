@@ -1,8 +1,31 @@
 # Weapon
 
-Дискография
-"Drakonian Paradigm" 2009, Death Metal
-"From the Devil's Tomb" 2010, Death Metal
+
+
+## Дискография
+
+### "Drakonian Paradigm" 2009, Death Metal
+
+1. Weapon  03:55    
+2. Cacophony! Black Sun Dragon's Tongue!  05:03 
+3. Serpentine Ayat  03:12   
+4. Mortem Pyre (In Darkness and Blood)  07:20 
+5. Archana  07:21   
+6. Drakonian Paradigm: The Flame of All  06:42 
+7. Remnants of a Burnt Mosque  07:05 
+
+### "From the Devil's Tomb" 2010, Death Metal
+
+1. From the Devil's Tomb  07:11   
+2. Vested in Surplice, and Violet Stole  05:42  
+3. Furor Divinus  03:49   
+4. Vortex - 11724  05:59 
+5. LEFTHANDPATHYOGA  03:22   
+6. The Inner Wolf  07:58   
+7. Sardonyx  06:00  
+8. Trishul  07:02  
+9. Towards the Uncreated  07:15 
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,43 @@
 # Reptilian
 
-Дискография
-"Castle Of Yesterday" 2000, Power Metal
-"Thunderblaze" 2002, Heavy Metal
+Power metal
+
+## Дискография
+
+### "Castle Of Yesterday" 2000, Power Metal
+
+Preludium-Oblivion 
+Castle Of Yesterday 
+Veins Of Hell 
+Skeleton Scales 
+The Deceiver 
+Change Your Heart 
+Steel Of The Dagger 
+I'll Be Back 
+Signing Out 
+Masterplan 
+Behold Nemesis
+
+### "Thunderblaze" 2002, Heavy Metal
+
+Thunderblaze 
+Vengeance Or Dark Retribution 
+The Conqueror 
+Knight Of Hades 
+Chains Of Love 
+Madman City 
+Raging Storms 
+Watching Hell From Above 
+In My Zombie Sleep 
+Bulletspeed
+
+Joel Linder-drums 
+Jonas Blum-lead vocals 
+Cody Look-bass 
+Thomas Blum-keyboard 
+Lasse Boquist-guitar 
+Peter Espinoza-guitar
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,21 @@
 # Bloody Herald
 
-Дискография
-"Like a Bloody Herald Remains" 2006, Heavy Metal
+
+
+## Дискография
+
+### "Like a Bloody Herald Remains" 2006, Heavy Metal
+
+1. Blood of a Child	 
+2. Ashes	 
+3. Demons of the Sand	 
+4. Pyromaniac	 
+5. Forest	 
+6. Silence	 
+7. Fearbringer	 
+8. Like a Bloody Herald Remains	 
+9. Metamorphosis
+
 
 ## Отношения с другими группами
 

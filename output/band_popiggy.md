@@ -1,9 +1,53 @@
 # Pop, Iggy
 
-Дискография
-"" 1993, Punk
-"Naughty Little Doggie" 1996, Punk
-"Beat Em Up" 2001, Punk
+
+
+## Дискография
+
+### "" 1993, Punk
+
+
+
+### "Naughty Little Doggie" 1996, Punk
+
+1.  I Wanna Live
+2.  Pussy Walk
+3.  Innocent World
+4.  Knucklehead
+5.  To Belong
+6.  Keep On Believing
+7.  Outta My Head
+8.  Shoeshine Girl
+9.  Heart Is Saved
+10.  Look Away
+
+Iggy Pop
+Eric Mesmerize
+Hal Wonderful
+Larry Contray
+The Mighty Whitey
+
+(P)c 1996 VUS Records
+
+### "Beat Em Up" 2001, Punk
+
+Mask
+L.O.S.T.
+Howl
+Foot Ball
+Savior
+Beat Em Up
+Talking Snake
+Jerk
+Death Is Certain
+Go for the Throat
+Weasels
+Drink New Blood
+It's All Sh*t
+Ugliness
+V.I.P
+
+
 
 ## Отношения с другими группами
 

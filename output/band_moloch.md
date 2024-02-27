@@ -1,15 +1,99 @@
 # Moloch
 
-Дискография
-"Человечье слишком овечье" 2006, Black Metal
-"Traurer" 2007, Black Metal
-"Meine alte Melancholie" 2007, Black Metal
-"A journey to the Vyrdin" 2008, Black Metal
-"Misanthropie ist der einzige Weg zur Reinheit" 2008, Black Metal
-"Galdr" 2008, Black Metal
-"Nur die Berge erinnern sich der Winde die hier ihren Anfang fanden vor so langer Zeit [compilation]" 2010, Black Metal
-"Isolation der Essenz" 2010, Black Metal
-"Illusionen eines verlorenen Lebens" 2011, Black Metal
+
+
+## Дискография
+
+### "Человечье слишком овечье" 2006, Black Metal
+
+1. By the Brand of Fate 665.9 12:47  
+2. Stink of Ulcerlife 17:30 
+
+### "Traurer" 2007, Black Metal
+
+1. Herbst 19:55  
+2. Hail Black Metal Krieg!! 06:33  
+3. Rotten Armful of Grey Thoughts 05:22  
+4. Throught Halo of Fire-brands (BulgAryan Version) 05:05  
+5. Ruf aus dem Wald 06:27  
+6. Give Wotan at mine Kirke var Braendt 03:48  
+7. Morast 04:54  
+8. Pest aus Gef&#252;hlen der Traurigkeit 01:08  
+9. Birth in the Depth of Blackness 04:49  
+10. Throught Halo of Fire-brands 07:21  
+11. Moonblood 03:49  
+12. Cold Shadows of the Lost Woods 05:24 
+
+### "Meine alte Melancholie" 2007, Black Metal
+
+1. Unsere Melancholie 04:59  
+2. Urd, Verdandi, Skuld 04:49  
+3. Einsamkeit 05:33  
+4. Wintertraum 05:44  
+5. Nebelklang 02:16  
+6. Todesstille der Vorhersagen 04:33  
+7. Melancholie 17.06.06 05:23  
+8. Dornige Ewigkeit 02:10  
+9. Die Sehnsucht 05:37  
+10. Thurisaz 04:29 
+
+### "A journey to the Vyrdin" 2008, Black Metal
+
+1. Svartalfaheimr 02:24  
+2. Ljosalfaheimr 04:53  
+3. Asaheimr 04:29  
+4. Jotunheimr 02:55  
+5. Helheimr 02:01  
+6. Vanaheimr 01:04  
+7. Jotunheimr (Pt. ll) 02:52  
+8. En As I Dype Skogen (Darkthrone cover) 03:24  
+9. Microcosmos 17:05 
+
+### "Misanthropie ist der einzige Weg zur Reinheit" 2008, Black Metal
+
+1. In entlegenen Walde wurde ein grausiger Winter zu Grabe getragen 03:11  
+2. Das ist in Vergessenheit geraten 12:41  
+3. Durch Schwarz silberne Hallen eines sterbenden Winters 03:58  
+4. Herbsttraurigkeit in der Dunkelheit eines leeren Firmaments 03:20  
+5. Meine heidnisch-spirituelle Reise durch die Wдlder der Gefallenen 11:12  
+6. Die Vergangenheit im Wechsel 16:06  
+7. Wo uraltes kosmisches Gift auf einen neuen Sonnenaufgang wartet 03:20  
+8. Die Trдnen des Regens gebaren die traurigkeit des Waldes 12:57  
+9. Kalte Schatten verlorener Wдlder 01:44  
+10. Ruf aus dem Wald (bonus track) 05:53  
+11. Herbstnacht 00:58 
+
+### "Galdr" 2008, Black Metal
+
+1. Galdr 
+
+### "Nur die Berge erinnern sich der Winde die hier ihren Anfang fanden vor so langer Zeit [compilation]" 2010, Black Metal
+
+1. Isolation der Essenz  25:41
+2. Abgrund meines Wesens  22:05   
+3. Das Land ewiger K&#228;lte und Sorge  11:03    
+4. Gebrechlichkeit I (Burzum cover)  05:29   
+
+### "Isolation der Essenz" 2010, Black Metal
+
+1. Depressive Visionen eines sterbenden Horizonts  06:11    
+2. Wenn der Herbsthimmel ergraut ist  03:55    
+3. Die letzten Strahlen der Sonne verblassen in der K&#228;lte der Apathie  07:40    
+4. Ferne W&#228;lder gehen im tiefen Herbstnebel verloren  03:31    
+5. Das Leben ist wie ein verwundeter Vogel der langsam vom Himmel f&#228;llt  03:53    
+6. Isolation der Essenz  25:41 
+
+### "Illusionen eines verlorenen Lebens" 2011, Black Metal
+
+1. Illusion des Winters  07:53    
+2. Ein d&#252;sterer Winter kommt l  04:38    
+3. Ein d&#252;sterer Winter kommt ll  04:50    
+4. Dissonanz Tropfen eines gl&#252;henden Schmerzes  04:00    
+5. Weg von dieser Welt voller Traurigkeit  04:27    
+6. Unsichtbarer Faden des Lebens  01:36    
+7. Illusionen eines verlorenen Lebens  01:50    
+8. Abgrund meines Wesens  22:05 
+
 
 ## Отношения с другими группами
 

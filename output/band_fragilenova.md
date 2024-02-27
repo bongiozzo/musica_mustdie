@@ -1,7 +1,13 @@
 # Fragile Nova
 
-Дискография
-"One Day Beyond" 2008, Melodic Death Metal
+
+
+## Дискография
+
+### "One Day Beyond" 2008, Melodic Death Metal
+
+
+
 
 ## Отношения с другими группами
 

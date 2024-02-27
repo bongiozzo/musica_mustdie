@@ -1,19 +1,250 @@
 # Nile
 
-Дискография
-"Festivals Of Atonement (EP)" 1995, Death Metal
-"Ramses Bringer Of War (EP)" 1997, Death Metal
-"Amongst The Catacombs Of Nephren-Ka" 1998, Death Metal
-"Black Seeds of Vengeance" 2000, Death Metal
-"In The Beginning (re-release of demos)" 2000, Death Metal
-"In Their Darkened Shrines" 2002, Death Metal
-"Annihilation of the Wicked" 2005, Death Metal
-"Legacy of the Catacombs" 2007, Death Metal
-"Ithyphallic" 2007, Death Metal
-"Those Whom The Gods Detest" 2009, Death Metal
-"At the Gate of Sethu" 2012, Death Metal
-"Call To Destruction (single)" 2015, Death Metal
-"Call To Destruction " 2015, Death Metal
+Atmospheric deathgrind with keyboards dedicated to Egyptian history
+
+## Дискография
+
+### "Festivals Of Atonement (EP)" 1995, Death Metal
+
+1. Divine Intent
+2. The Black Hand of Set
+3. Wrought
+4. Immortality Through Art/Godless
+5. Extinct
+
+
+Karl Sanders - Guitars/Vocals
+Chief Spires - Bass/Vocals
+Pete Hammoura - Drums/Vocals
+
+
+
+### "Ramses Bringer Of War (EP)" 1997, Death Metal
+
+1. The Howling Of The Jinn
+2. Ramses Bringer Of War
+3. Die Rache Krieg Lied Der Assyriche
+
+
+Karl Sanders - Guitars/Vocals
+Chief Spires - Bass/Vocals
+Pete Hammoura - Drums/Vocals
+
+
+
+### "Amongst The Catacombs Of Nephren-Ka" 1998, Death Metal
+
+1. Smashing The Antiu
+2. Barra Edinazzu
+3. Kudurru Maqlu
+4. Serpent Headed Mask
+5. Ramses Bringer Of War
+6. Stones Of Sorrow
+7. Die Rache Krieg Lied Der Assyriche
+8. The Howling Of the Jinn
+9. Pestilence And Iniquity
+10. Opening Of The Mouth
+11. Beneath Eternal Oceans Of Sand
+
+
+Karl Sanders - Guitars/Vocals
+Chief Spires - Bass/Vocals
+Pete Hammoura - Drums/Vocals
+
+
+
+### "Black Seeds of Vengeance" 2000, Death Metal
+
+01 - Invocation Of The Gate Of Aat-Ankh-Es-En-Amenti
+02 - Black Seeds Of Vengeance
+03 - Defiling The Gates Of Ishtar
+04 - The Black Flame
+05 - Libation Unto The Shades Who Lurk In The Shadows Of The Temple Of Anhur
+06 - Masturbation The War God
+07 - Multitude Of Foes
+08 - Chapter For Transforming Into A Snake
+09 - Nas Akhu Khan She En Asbiu
+10 - To Dream Of Ur
+11 - The Nameless City Of The Accursed
+12 - Khetti Satha Shemsu
+
+### "In The Beginning (re-release of demos)" 2000, Death Metal
+
+1. Divine Intent  
+2. Black Hand of Set   
+3. Wrought   
+4. Immortality Through Art  
+5. Godless   
+6. Extinct 
+7. Howling of the Jinn    
+8. Ramses Bringer of War   
+9. Der Rache Kreig Leid Der Assyriche  
+
+A compilation of "Festivals Of Atonement" (1995) and "Ramses Bringer Of War"
+(1997).
+
+"Immortality Through Art" and "Godless" are listed as separate tracks on the
+inlay.
+
+Line up on Festival Of Atonement:
+Karl Sanders-guitars and vocals
+Chief Spires-bass and vocals
+Pete Hammoura-drums/percussion
+
+Line up on Ramses Bringer Of War:
+Karl Sanders:guitars and vocals
+Chief Spires:bass and vocals
+Pete Hammoura:drums and vocals
+John Ehlers:guitar 
+
+### "In Their Darkened Shrines" 2002, Death Metal
+
+1.The Blessed Dead 
+2.Execration Text 
+3.Sarcophagous 
+4.Kheftiu Asar Butchiu 
+5.Unas, Slayer Of The Gods 
+6.Churning The Maelstrom 
+7.I Whisper In The Ear Of The Dead 
+8.Wind Of Horus 
+9.In Their Darkened Shrines (Parts 1-4)
+
+Karl Sanders - guitars/vocals    
+Dallas Toler-Wade - guitars/vocals    
+Jon Vesano - bass/vocals    
+Tony Laureno - drums 
+
+### "Annihilation of the Wicked" 2005, Death Metal
+
+1. Dusk Falls Upon the Temple of the Serpent on the Mount of Sunrise
+2. Cast Down the Heretic
+3. Sacrifice unto Sebek
+4. User-Maat-Re
+5. Burning Pits of the Duat
+6. Chapter of Obeisance Before Giving Breath to the Inert One in the Presence of the Crescent Shaped Horns
+7. Lashed to the Slave Stick
+8. Spawn of Uamenti
+9. Annihilation of the Wicked
+10. Von Unaussprechlinchen Kulten
+
+
+
+Karl Sanders - guitars, vocals, baglama saz, keyboards.
+Dallas Toler-Wade - guitars, vocals.
+Jon Vesano - bass, vocals.
+George Kollias - drums.
+
+Guest musician:
+Mike Breazeale - Exorcism chants and Pazuzu bowl on
+"Chapter of Obeisance Before Giving Breath to the Inert One in the Presence of the Crescent Shaped Horns"
+
+Recorded, mixed and produced by Neil Kernon.
+Recording engineer: Bob Moore.
+Recorded at the Soundlab in Columbia, SC.
+Mixed at Rax Trax in Chicago.
+
+
+### "Legacy of the Catacombs" 2007, Death Metal
+
+1. Cast Down the Heretic 05:45  
+2. Sacrifice Unto Sebek 03:03  
+3. Lashed to the Slave Stick 04:18 
+4. Execration Text 02:47  
+5. Sarcophagus 05:10  
+6. Unas, Slayer of the Gods 11:43 
+7. Masturbating the War God 05:41 
+8. Chapter For Transforming Into A Snake 02:26 
+9. Black Seeds of Vengeance 03:36  
+10. The Howling of the Jinn 02:21 
+11. Barra Edinazza 02:47 
+12. Smashing the Antiu 02:18 
+
+
+
+Tracks 1-3 from "Annihilation of the Wicked"
+Tracks 4-6 from "In Their Darkened Shrines"
+Tracks 7-9 from "Black Seeds of Vengeance
+Tracks 10-12 from "Amongst the Catacombs of Nephren-Ka" 
+
+
+### "Ithyphallic" 2007, Death Metal
+
+1. What Can Be Safely Written 08:15 
+2. As He Creates So He Destroys 04:36  
+3. Ithyphallic 04:40
+4. Papyrus Containing the Spell to Preserve Its Possessor Against Attacks From He Who Is in the Water 02:57  
+5. Eat of the Dead 06:29 
+6. Laying Fire Upon Apep 03:25 
+7. The Essential Salts 03:51  
+8. The Infinity of Stone 02:04  
+9. Language of the Shadows 03:30  
+10. Even the Gods Must Die 10:01 
+
+
+Ithyphallic" means Erected Phallus in ancient Greek.
+
+Recording line-up:
+Karl Sanders : vocals, guitars
+Dallas Toler Wade : bass, guitars, vocals
+George Kollias : drums
+
+Chris Lollis : additional vocals
+
+Digipak version features instrumental bonus tracks:
+11. As He Creates, So He Destroys (04:50)
+12. Papyrus Containing The Spell To Preserve Its Possessor Against Attacks From
+He Who Is In The Water (02:56) 
+
+### "Those Whom The Gods Detest" 2009, Death Metal
+
+1. Kafir! 06:50  
+2. Hittite Dung Incantation 03:48  
+3. Utterances of the Crawling Dead 05:09  
+4. Those Whom the Gods Detest 08:07  
+5. 4th Arra of Dagon 08:40  
+6. Permitting the Noble Dead to Descend to the Underworld 03:32  
+7. Yezd Desert Ghul Ritual in the Abandoned Towers of Silence 02:33  
+8. Kem Khefa Kheshef 06:18  
+9. The Eye of Ra 05:01  
+10. Iskander D'hul Karnon 06:41 
+
+
+### "At the Gate of Sethu" 2012, Death Metal
+
+1. Enduring the Eternal Molestation of Flame
+2. The Fiends Who Come to Steal the Magick of the Deceased
+3. The Inevitable Degradation of Flesh
+4. When My Wrath Is Done
+5. Slaves of Xul
+6. The Gods Who Light Up the Sky at the Gate of Sethu
+7. Natural Liberation of Fear Through the Ritual Deception of Death
+8. Ethno-Musicological Cannibalisms 
+9. Tribunal of the Dead
+10. Supreme Humanism of Megalomania
+11. The Chaining of the Iniquitous 
+
+The North American/European digipack contains two bonus tracks:
+12. Enduring the Eternal Molestation of Flame (instrumental)
+13. The Inevitable Degradation of Flesh (instrumental) 
+
+### "Call To Destruction (single)" 2015, Death Metal
+
+1. Call To Destruction  05:45   
+
+### "Call To Destruction " 2015, Death Metal
+
+1. Call to Destruction  05:45 
+2. Negating the Abominable Coils of Apep  04:14  
+3. Liber Stellae - Rubaeae  03:48    
+4. In the Name of Amun  06:49    
+5. What Should Not Be Unearthed  06:58    
+6. Evil to Cast Out Evil  05:37    
+7. Age of Famine  04:11    
+8. Ushabti Reanimator  01:30    
+9. Rape of the Black Earth  04:35    
+10. To Walk Forth from Flames Unscathed  06:36 
+
+
 
 ## Отношения с другими группами
 

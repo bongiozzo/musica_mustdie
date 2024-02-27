@@ -1,8 +1,31 @@
 # Anthelion
 
-Дискография
-"Bloodshed Rebefallen" 2007, Black Metal
-"Manjusaka " 2010, Black Metal
+
+
+## Дискография
+
+### "Bloodshed Rebefallen" 2007, Black Metal
+
+1. Snake Corpse 09:34 
+2. Sin of Aeon 01:05  
+3. Without Trepidation 01:21
+4. Grave Ocean 07:08 
+5. Bloody Matrimony 05:53
+6. Hibernation Glaciation Exuviation 07:14
+7. Bloodshed In The Dark of Burning Hell 07:40
+8. The Tome of Broken Souls 06:38
+9. The Evil Adversary 05:19 
+
+### "Manjusaka " 2010, Black Metal
+
+1. Nocturnal Susurrus 00:52  
+2. Black Mist, Remnant Flames 06:31  
+3. The Ashen River 05:39  
+4. Manjusaka 05:48  
+5. Aggravated Evanishment 05:24  
+6. Quintessence of the Tranquil Gloom 04:41 
+
+
 
 ## Отношения с другими группами
 

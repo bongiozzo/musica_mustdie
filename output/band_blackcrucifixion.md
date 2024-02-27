@@ -1,9 +1,37 @@
 # Black Crucifixion
 
-Дискография
-"Flowing Downwards [demo]" 1992, Black Metal
-"Promeathean Gift [EP]" 1993, Black Metal
-"The Fallen One of Flames [EP]" 1999, Black Metal
+
+
+## Дискография
+
+### "Flowing Downwards [demo]" 1992, Black Metal
+
+
+
+### "Promeathean Gift [EP]" 1993, Black Metal
+
+1. Promeathean Gift
+2. Serpent Of Your Holy Garden
+3. Journey Into Myself
+4. Flowing Downwards
+
+ Timo Ilvari - Vocals
+ Juha Kullpi - Guitars, Synth
+ Jari Pirinen - Drums
+ E.Henrik Juujarvi - Bass, Synth
+
+Additional Backing Vocals By Mr. V.Jauhiainen
+All Songs Written By BLACK CRUCIFIXION
+Produced By T.Ilvari And J.Pirinen
+Recorded At Studio Sound
+Engineered By E. Virkkula
+
+(p)&(c) 1993 LETHAL Records
+
+### "The Fallen One of Flames [EP]" 1999, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

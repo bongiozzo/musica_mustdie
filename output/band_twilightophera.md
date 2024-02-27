@@ -1,9 +1,29 @@
 # Twilight Ophera
 
-Дискография
-"Shadows Embrace The Dark" 1998, Black Metal
-"Midnight Horror" 2000, Black Metal
-"The End Of Halcyon Age" 2003, Black Metal
+
+
+## Дискография
+
+### "Shadows Embrace The Dark" 1998, Black Metal
+
+
+
+### "Midnight Horror" 2000, Black Metal
+
+
+
+### "The End Of Halcyon Age" 2003, Black Metal
+
+1. ChaosWorm
+2. Trapped in Husk of A White Crow
+3. Bow Before My Dark
+4. The End of Halcyon Age
+5. Pseudogods 
+6. Leperthrone
+7. Gothic Prelude of Capricious Equanimity
+8. Cruciferous Lunacy
+9. Paragon of Pregnant Night
+
 
 ## Отношения с другими группами
 

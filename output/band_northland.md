@@ -1,7 +1,42 @@
 # Northland
 
-Дискография
-"Czernoboh" 1996, Black Metal
+
+
+## Дискография
+
+### "Czernoboh" 1996, Black Metal
+
+1. Nasi Slawianscy Bracia
+2. Amaimon
+3. Czernoboh
+4. Z Lasow...Z Borow
+5. Poganiski Holokaust
+6. Czamy Ptomien W Piekle
+7. Nieamiertelny Cesaiz Potnocnej Krainy
+8. Popnez Smiercionosme Fale
+9. W Czarnym Lesie
+10.Noc
+11.The Night
+12.Time Of Slaves
+13.Amaimon
+14.Our Slavonic Brothers
+15.Czaz Stowian
+16.Twarz W Cieniu Prowadzenia Wojny
+17.Emperor Immortal Of Northern Lands
+18.Czernoboh
+19.From The Woods...From The Forest
+20.Pagan Holocaust
+21.Black Flame In Hell
+22.In The Black Forest
+23.Across The Deadly Waves
+
+Recorded At SL Studio.
+Mixed & Mastered By Miroslaw Admovicz & Nahald.
+Produced By Arcturus & ASTRAL WINGS Records.
+Cover By Nahald & ASTRAL WINGS Records.
+
+(P)c 1996 ASTRAL WINGS Records// EBLIS 003
+
 
 ## Отношения с другими группами
 

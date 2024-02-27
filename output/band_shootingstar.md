@@ -1,7 +1,22 @@
 # Shooting Star
 
-Дискография
-"Circles" 2006, Metal
+AOR/hard rock
+
+## Дискография
+
+### "Circles" 2006, Metal
+
+1. Runaway 
+2. Without Love 
+3. Trouble In Paradise 
+4. George's Song 
+5. Borrowed Time 
+6. Everybody?s Crazy 
+7. Temptation 
+8. I?m a Survivor 
+9. We?re Not Alone 
+10. What love Is
+
 
 ## Отношения с другими группами
 

@@ -1,21 +1,230 @@
 # Harem Scarem
 
-Дискография
-"Harem Scarem" 1991, Hard Rock
-"Mood Swings" 1993, Hard Rock
-"Voice Of Reason" 1995, Hard Rock
-"Believe" 1997, Hard Rock
-"Karma Cleansing" 1997, Hard Rock
-"Big Bang Theory" 1998, Hard Rock
-"best Of" 1998, Hard Rock
-"B-Sides Collection" 1998, Hard Rock
-"Rubber" 2000, Hard Rock
-"Weight Of The World" 2002, Hard Rock
-"The Very Best" 2002, Hard Rock
-"The Early Years" 2003, Hard Rock
-"Higher" 2003, Metal
-"Overload" 2005, Hard Rock
-"Human Nature" 2007, Hard Rock
+AOR/Melodic Hard
+
+## Дискография
+
+### "Harem Scarem" 1991, Hard Rock
+
+01. Hard To Love
+02. Distant Memory
+03. With A Little Love
+04. Honestly
+05. Love Reaction
+06. Slowly Slipping Away
+07. All Over Again
+08. Don't Give Your Heart Away
+09. How Long
+10. Something To Say
+
+11. Slowly Slipping Away (ac. version)
+12. How Long (acoustic version)
+13. Hard To Love (acoustic version)
+
+Japanese version has been released in 1994 and contains three acoustic bonus tracks.
+
+### "Mood Swings" 1993, Hard Rock
+
+
+01. Saviors Never Cry
+02. No Justice
+03. Stranger Than Love
+04. Change Comes Around
+05. Jealousy
+06. Sentimental Blvd.
+07. Mandy
+08. Empty Promises
+09. If There Was A Time
+10. Just Like I Planned
+11. Had Enough
+
+### "Voice Of Reason" 1995, Hard Rock
+
+01. Voice Of Reason
+02. Blue
+03. Warming A Frozen Rose
+04. Let It Go
+05. And That's All
+06. Breathing Sand
+07. Candle
+08. The Paint Thins
+09. I'll Be Brief
+10. Untouched
+11. Necessary Evil
+
+12. Candle (acoustic version)
+
+Japanese edition has acoustic version of "Candle" as bonus track
+
+### "Believe" 1997, Hard Rock
+
+
+01. Believe (re-mix)
+02. Die Off Hard (original)
+03. Hail,Hail (re-mix)
+04. Staying Away (re-mix)
+05. Baby With A Nail Gun (original)
+06. Morning Grey (re-mix)
+07. Victim Of Fate (re-mix)
+08. Rain (full band version)
+09. I Won't Be There (original)
+10. Karma Cleansing (original)
+11. Cages (b-side)
+12. The Mirror (b-side)
+13. Surrender
+
+### "Karma Cleansing" 1997, Hard Rock
+
+
+01. Karma Cleansing
+02. Cages
+03. Hail,Hail
+04. Morning Grey
+05. Die Off Hard
+06. Rain
+07. I Won't Be There
+08. Victim Of Fate
+09. Believe
+10. The Mirror
+
+Canadian edition. It was released in Japan as "Believe" with different tracklist and cover artwork
+
+### "Big Bang Theory" 1998, Hard Rock
+
+
+01. Turn Around
+02. Wasted Time
+03. So Blind
+04. Without You
+05. Climb The Gate
+06. Reload
+07. Sometimes I Wish
+08. New Religion
+09. Lying
+10. In My State Of Mind
+
+### "best Of" 1998, Hard Rock
+
+
+
+### "B-Sides Collection" 1998, Hard Rock
+
+
+
+### "Rubber" 2000, Hard Rock
+
+01. It's Gotta Be
+02. Who-Buddy
+03. Coming Down
+04. Stuck With You
+05. Sunshine
+06. Face It
+07. Trip
+08. Pool Party
+09. Headache
+10. Everybody Else
+
+11. Enemy (bonus track)
+
+Japanese version of Rubber, but released under Harem Scarem banner. Contains one bonus track.
+
+### "Weight Of The World" 2002, Hard Rock
+
+Weight Of The World 
+Killing Me 
+Outside Your Window 
+All I Want 
+This Ain't Over 
+Internude 
+You Ruin Everything 
+Charmed Life 
+If You 
+See Saw 
+Voice Inside 
+
+
+Produced by Harry Hess & Pete Lesperance
+
+### "The Very Best" 2002, Hard Rock
+
+
+
+### "The Early Years" 2003, Hard Rock
+
+01. Whatever I Want
+02. When The Morning Comes
+03. Say Good Bye
+04. Looking Back
+05. All Over Again
+06. Honestly
+07. Lovin' Like 90
+08. One Step At A Time
+09. Staying Away
+10. Last Time
+11. One Of The Wounded
+12. The Right Time
+13. You're The One
+14. Out Of Love
+
+15. Lost In Yesterday [JP bonus]
+
+15. I Can Hear Them Now [EU bonus]
+16. End Of Time [EU bonus]
+
+Harry Hess - Lead vocals
+Pete Lesperance - Guitars / Vocals
+Mike Gionet - Bass / Vocals
+Darren Smith - Drums / Vocals
+
+### "Higher" 2003, Metal
+
+Reach 
+Waited 
+Torn Right Out 
+Give It To You 
+Higher 
+Run And Hide 
+Lucky Ones 
+Lies 
+Gone 
+Lost
+
+### "Overload" 2005, Hard Rock
+
+01. Dagger
+02. Afterglow
+03. Rise & Fall
+04. Don't Come Easy
+05. Can't Live With You
+06. Forgive & Forget
+07. All You're Getting
+08. Leading Me On
+09. Understand You
+10. Same Mistakes
+11. You Shook Me All Night Long (bonus track)
+
+### "Human Nature" 2007, Hard Rock
+
+1. Human Nature 
+2. Next Time Around
+3. Caught Up In Your World 
+4. Reality 
+5. Hanging On 
+6. Don't Throw It Away 
+7. Give Love Get Love
+8. 21
+9. Starlight
+10. Going Under 
+11. Tomorrow May Be Gone 
+12. Higher (acoustic version)
+
+
+Harry Hess: Vocals, Keyboards, Guitars
+Pete Lesperance: Guitars, Keyboards, Vocals
+Creighton Doane: Drums
+Barry Donaghy: Bass
+Darren Smith: Background Vocals
+
 
 ## Отношения с другими группами
 

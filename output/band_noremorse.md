@@ -1,7 +1,24 @@
 # No Remorse
 
-Дискография
-"Sons of Rock" 2010, Heavy Metal
+
+
+## Дискография
+
+### "Sons of Rock" 2010, Heavy Metal
+
+1. Hymn to Birth	01:08	 
+2. Sons of Rock	05:11	 
+3. No More Murders in this World	03:54	 
+4. The Sun is Shining it's Time to Die	05:42	 
+5. When the Night Comes	07:27	 
+6. Start from the Bottom	04:47	 
+7. Here's not Hollywood	04:58	 
+8. Escape	03:47	 
+9. Why	06:34	 
+10. Watch me Burn	05:11	 
+11. No Remorse	02:46	 
+12. Hymn to Birth (reprise)	02:04	 
+
 
 ## Отношения с другими группами
 

@@ -1,10 +1,73 @@
 # Evol
 
-Дискография
-"The Saga Of The Horned King" 1995, Death Doom
-"Dreamquest" 1996, Death Doom
-"Ancient Abbey" 1998, Death Doom
-"Portraits" 1999, Death Doom
+Atmospheric Satan Music With Female Vocals
+
+## Дискография
+
+### "The Saga Of The Horned King" 1995, Death Doom
+
+1. The Present Age З
+2. The Chant Of The Witches (Modern Witches' Chant)
+3. From The Unknown Domain...(The King Awakes)
+4. Through Foggy Plains And Mystic Woods He Rides...
+5. Prologue (Waiting For His Coming)
+6. The Eve
+7. The Return Of The Horned King З
+8. The Feast ЗЗ
+9. Sorrow Of The Witch (Path To A Greater Knowledge) З
+10.The Saga Of The Horned King
+
+Prince Of Agony - Black Philosopher Mercenary Of Darkness - Vox, Keyboards
+Princess Of Disease - Daughter Of Freya - Reaper Of The Unholy Feelings - Female Vox
+Lord Of Sorrow - Dark Warrior Of The Rotten Lands - Total Sadomaso Fury - Electric & Acoustic Guitars, Bass, Cymbals
+Drums Played On This Album By Thomas, except З played by Lord Of Sorrow.
+
+All Music By Prince Of Agony, except З by Lord Of Sorrow.
+ЗЗ based on an existing Tarantella clavichord performed by Roberto Scarpa Meylougan.
+All Lyrics By Prince Of Agony.
+Produced By ADIPOCERE
+Mixed By Giorgio Spolaor & EVOL.
+Recorded In Dec. 1994 Under Black Moon At Infernal Recording Studio.
+
+(p)&(c) 1995 ADIPOCERE Records AR 026
+
+### "Dreamquest" 1996, Death Doom
+
+1.  Dreamquest
+2.  Sad Doom Of A Dark Soul
+3.  Sona-Nyl
+4.  Flying With The Night-Gauls
+5.  Celephais
+6.  The Ancient King Of Ice
+7.  Sarkomand
+8.  Darkmere
+9.  Ulthar
+10. Dark Staires Of R'leyh
+11. Cauthuria
+12. The Black Crystal Of Astar
+13. Verso La Citta Del Tramonto
+
+Prince Of Agony -  Vox, Keyboards
+Princess Of Disease - Female Vox
+Lord Of Sorrow - Electric & Acoustic Guitars, Flute
+Marco Vettore - Bass
+Tomas Contarato - Drums
+Roberto Scara - Organ, Tenore Vocals
+
+Produced By ADIPOCERE Records.
+Mixed By Giorgio Spolaor & EVOL.
+Recorded At Infernal Recordings Studio.
+
+(p)&(c) 1996 ADIPOCERE Records AR 026
+
+### "Ancient Abbey" 1998, Death Doom
+
+
+
+### "Portraits" 1999, Death Doom
+
+
+
 
 ## Отношения с другими группами
 

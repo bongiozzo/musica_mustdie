@@ -1,7 +1,13 @@
 # TYSTNADEN
 
-Дискография
-"Fragments" 2003, Ambient
+SMDM
+
+## Дискография
+
+### "Fragments" 2003, Ambient
+
+
+
 
 ## Отношения с другими группами
 

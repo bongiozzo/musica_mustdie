@@ -1,7 +1,22 @@
 # Necrotic
 
-Дискография
-"Among The Nauseating Depravity" 2008, Death Metal
+
+
+## Дискография
+
+### "Among The Nauseating Depravity" 2008, Death Metal
+
+1. Green Girl	 
+2. Scape Entrails	 
+3. Smashed Children	 
+4. Unhinging Orgasmic	 
+5. Manipulated Corpses	 
+6. Bastardization	 
+7. Necrovoragine	 
+8. Unnatural Spawn	 
+9. Ordure King	 
+10. Mess
+
 
 ## Отношения с другими группами
 

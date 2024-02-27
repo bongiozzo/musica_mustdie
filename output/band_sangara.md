@@ -1,7 +1,23 @@
 # Sangara
 
-Дискография
-"Симфония Зла" 2005, Heavy Metal
+
+
+## Дискография
+
+### "Симфония Зла" 2005, Heavy Metal
+
+1. Last Scream
+2. Symphony Of Evil
+3. Under The Ruins
+4. Pain
+5. Hate
+6. To See The Light
+7. The Unknown Land
+8. Black Morning
+9. One
+10. Fear
+11. For Rock'n'Roll
+
 
 ## Отношения с другими группами
 

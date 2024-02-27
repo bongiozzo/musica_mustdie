@@ -1,7 +1,15 @@
 # Iniquitous
 
-Дискография
-"Return to Deeds of Old [EP]" 2010, Death Metal
+
+
+## Дискография
+
+### "Return to Deeds of Old [EP]" 2010, Death Metal
+
+1. Christened in Carnage	 
+2. Reprisal of the Ravaged	 
+3. I... Abominations
+
 
 ## Отношения с другими группами
 

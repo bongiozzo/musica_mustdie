@@ -1,7 +1,22 @@
 # H.O.S.
 
-Дискография
-"The Beginning" 2011, Thrash
+
+
+## Дискография
+
+### "The Beginning" 2011, Thrash
+
+1. Intro	 
+2. Fallout	 
+3. Annihilation Of Society	 
+4. Road Madness	 
+5. The Haunt	 
+6. No More Traitors	 
+7. The Last Will	 
+8. Ready To Fight	 
+9. Earthquake	 
+10. We Are H.O.S.!
+
 
 ## Отношения с другими группами
 

@@ -1,20 +1,139 @@
 # After Forever
 
-Дискография
-"Ephemeral [demo]" 1991, Doom
-"Wings of Illusion [demo]" 1999, Doom
-"Prison of Desire" 2000, Gothic
-"Follow in the Cry [single]" 2000, Gothic
-"Decipher" 2001, Gothic
-"Emphasis/Who Wants to Live Forever [single]" 2002, Gothic
-"Monolith of Doubt [single]" 2002, Gothic
-"Exordium (EP)" 2003, Gothic
-"My Choice/The Evil That Men Do [single]" 2003, Gothic
-"Invisible Circles" 2004, Gothic
-"Digital Deceit [single]" 2004, Gothic
-"Being Everyone [single]" 2004, Gothic
-"Remagine" 2005, Gothic
-"After Forever" 2007, Gothic
+Atmospheric Goth Metal from Netherlands
+
+## Дискография
+
+### "Ephemeral [demo]" 1991, Doom
+
+
+
+### "Wings of Illusion [demo]" 1999, Doom
+
+
+
+### "Prison of Desire" 2000, Gothic
+
+1. Mea Culpa
+ 2. Leaden Legacy
+ 3. Semblance of Confusion
+ 4. Black Tomb
+ 5. Follow in the Cry
+ 6. Silence from Afar
+ 7. Inimical Chimera
+ 8. Tortuous Threnody
+ 9. Yield to Temptation
+10. Ephemeral
+11. Beyond Me
+
+### "Follow in the Cry [single]" 2000, Gothic
+
+
+
+### "Decipher" 2001, Gothic
+
+ 1. Ex Cathedra (Ouverture)
+ 2. Monolith Of Doubt
+ 3. My Pledge Of Allegiance #1 (The Sealed Fate)
+ 4. Emphasis
+ 5. Intrinsic
+ 6. Zenith
+ 7. Estranged
+ 8. Imperfect Tenses
+ 9. My Pledge Of Allegiance #2 (The Tempted Fate)
+10. The Key
+11. Forlorn Hope
+
+
+
+Floor Jansen (soprano)
+Mark Jansen (guitars)
+Sander Gommans (guitars, male grunts)
+Jack Driessen (synth)
+Luuk van Gerven (bass)
+Jeop Beckers (drums)
+
+
+
+
+### "Emphasis/Who Wants to Live Forever [single]" 2002, Gothic
+
+
+
+### "Monolith of Doubt [single]" 2002, Gothic
+
+
+
+### "Exordium (EP)" 2003, Gothic
+
+1. Line of Thoughts
+2. Beneath
+3. My Choice
+4. Glorifying Means
+5. The Evil That Men Do
+6. One Day I'll Fly Away
+
+Exordium also contains a DVD:
+Includes "My Choice" video, Making of "My Choice" and much more!
+
+### "My Choice/The Evil That Men Do [single]" 2003, Gothic
+
+
+
+### "Invisible Circles" 2004, Gothic
+
+1. Childhood In Minor
+2. Beautiful Emptiness
+3. Between Love And Fire
+4. Sins Of Idealism
+5. Eccentric
+6. Digital Deceit
+7. Through Square Eyes
+8. Blind Pain
+9. Two Sides
+10. Victim Of Choices
+11. Reflections
+12. Life's Vortex
+
+### "Digital Deceit [single]" 2004, Gothic
+
+
+
+### "Being Everyone [single]" 2004, Gothic
+
+
+
+### "Remagine" 2005, Gothic
+
+1. Enter 01:06  
+2. Come 05:02  
+3. Boundaries Are Open 03:44  
+4. Living Shields 04:11  
+5. Being Everyone 03:37 
+6. Attendance 03:27  
+7. Free of Doubt 04:40  
+8. Only Everything 06:33  
+9. Strong 03:38  
+10. Face Your Demons 04:57  
+11. No Control 03:17  
+12. Forever 05:10
+
+### "After Forever" 2007, Gothic
+
+Discord
+Evoke
+Transitory
+Energize Me
+Equally Destructive
+Withering Time
+De-Energized
+Cry With A Smile
+Envision
+Who I Am
+Dreamflight
+Empty Memories
+Lonely (Digi Bonus)
+
 
 ## Отношения с другими группами
 

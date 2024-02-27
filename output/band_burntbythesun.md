@@ -1,13 +1,46 @@
 # Burnt By The Sun
 
-Дискография
-"Burnt By The Sun/Luddite Clone /split/" 2000, Grindcore
-"Burnt By The Sun /EP/" 2001, Grindcore
-"Soundtrack To The Personal Revolution" 2002, Grindcore
-"The Perfect Is The Enemy Of The Good" 2003, Grindcore
-"Burnt By The Sun/Burst /split/" 2003, Grindcore
-"Live From The Relapse Contamination Festival /live/" 2004, Grindcore
-"Heart of Darkness" 2009, Grindcore
+New-school grindcore/mathcore (Discordance Axis, Endeavor, Human Remains, Time's Up members)
+
+## Дискография
+
+### "Burnt By The Sun/Luddite Clone /split/" 2000, Grindcore
+
+
+
+### "Burnt By The Sun /EP/" 2001, Grindcore
+
+
+
+### "Soundtrack To The Personal Revolution" 2002, Grindcore
+
+
+
+### "The Perfect Is The Enemy Of The Good" 2003, Grindcore
+
+
+
+### "Burnt By The Sun/Burst /split/" 2003, Grindcore
+
+
+
+### "Live From The Relapse Contamination Festival /live/" 2004, Grindcore
+
+
+
+### "Heart of Darkness" 2009, Grindcore
+
+1. Inner Station
+2. Cardiff Giant	 
+3. F-Unit
+4. A Party to the Unsound Method	 
+5. There Will Be Blood	 
+6. Goliath 
+7. Rust | Future Primitive	 
+8. Beacon 
+9. The Great American Dream Machine	 
+10. The Wolves Are Running
+
 
 ## Отношения с другими группами
 

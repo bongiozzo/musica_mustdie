@@ -1,9 +1,29 @@
 # Adagio (France)
 
-Дискография
-"Sanctus Ignis" 2001, Progressive
-"Underworld" 2003, Progressive
-"Dominate" 2005, Progressive
+power-progressive
+
+## Дискография
+
+### "Sanctus Ignis" 2001, Progressive
+
+
+
+### "Underworld" 2003, Progressive
+
+
+
+### "Dominate" 2005, Progressive
+
+1. Fire Forever 04:11  
+2. Arcanas Tenebrae/Dominate 05:59  
+3. Terror Jungle 05:15  
+4. Children of the Dead Lake 06:04  
+5. R'Lyeh the Dead 08:25  
+6. The Darkitecht 06:18  
+7. Kissing the Crow 02:28  
+8. Fame 04:01  
+9. Undying (Japanese bonus track) 04:34
+
 
 ## Отношения с другими группами
 

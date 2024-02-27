@@ -1,9 +1,76 @@
 # Daemon
 
-Дискография
-"Seven Deadly Sins" 1997, Death Metal
-"The Second Coming" 1999, Death Metal
-"Eye For An Eye" 2002, Death Metal
+
+
+## Дискография
+
+### "Seven Deadly Sins" 1997, Death Metal
+
+1. Sloth
+2. Wrath
+3. Greed
+4. Lust
+5. Gluttony
+6. Pride
+7. Envy
+8. The Eighth Sin
+
+Produced By Fred Estby.
+Recorded & Mixed At Sunlight Studio.
+
+Morgan Pitt - Bass
+Nicke Andersson - Drums
+Anders Lundemark - Guitars, Vocals
+
+(P)(C) 1997 DIEHARD Music
+
+### "The Second Coming" 1999, Death Metal
+
+1. What If...			1.52
+2. Come Die With Me		3.29
+3. The Truth			3.36
+4. My Kingdom Is A Sacred Place	4.43
+5. The Prince Of Lies		3.11
+6. Make Me Bleed		3.30
+7. Way Out Of Hand		4.43
+8. Spirit In Flames		2.17
+9. Symptom Of The Universe*	4.20
+
+All Songs written by DAEMON
+except * written by BLACK SABBATH
+Produced and Engineered by Tomas Skogsberg
+Mixed by Tomas Skogsberg
+Recorded and mixed at Sunlight Studio
+
+Morgan Pitt - Bass
+Joey Fernandez - Lead uitar
+Frank Hellmet - Drums
+Anders Lundemark - Guitars, Vocals
+
+(p)(c)1999 DIEHARD Music
+
+### "Eye For An Eye" 2002, Death Metal
+
+1. Intro 
+2. Gone Forever 
+3. Crucifiction 
+4. Disconnect 
+5. Eternal Bliss 
+6. Truth Be Known
+7. Kingdom Of Fools 
+8. The Beating 
+9. Cursed 
+10. The Trial 
+11. Tailgunner
+
+
+
+Anders Lundemark, vocals/guitar
+Gene Hoglan, drums
+Thomas Fagerlind, bass
+
+
+
 
 ## Отношения с другими группами
 

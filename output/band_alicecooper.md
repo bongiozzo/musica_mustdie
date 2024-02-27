@@ -1,31 +1,439 @@
 # Alice Cooper
 
-Дискография
-"Love It To Death" 1971, Hard Rock
-"Killer" 1971, Hard Rock
-"School's Out" 1972, Hard Rock
-"Billion Dollar Babies" 1973, Hard Rock
-"Muscle Of Love" 1973, Hard Rock
-"Welcome To My Nightmare" 1975, Hard Rock
-"Alice Cooper Goes To Hell" 1976, Hard Rock
-"Lace And Whiskey" 1977, Hard Rock
-"From The Inside" 1978, Hard Rock
-"Flush The Fashion" 1980, Hard Rock
-"Special Forces" 1981, Hard Rock
-"DaDa" 1983, Hard Rock
-"Constrictor" 1986, Hard Rock
-"Raise Your Fists And Yell" 1987, Hard Rock
-"Prince Of Darkness" 1989, Hard Rock
-"Trash" 1989, Hard Rock
-"Hey Stoopid" 1991, Hard Rock
-"The Last Temptation" 1994, Hard Rock
-"Brutal Planet" 2000, Hard Rock
-"Dragontown" 2001, Hard Rock
-"The Eyes Of Alice Cooper" 2003, Hard Rock
-"Dirty Diamonds" 2005, Hard Rock
-"Along Came A Spider" 2008, Hard Rock
-"Welcome 2 My Nightmare" 2011, Hard Rock
-"Paranormal" 2014, Hard Rock
+Legend
+
+## Дискография
+
+### "Love It To Death" 1971, Hard Rock
+
+1.  Caught In A Dream
+2.  I'm Eighteen
+3.  Long Way To Go
+4.  Black Juju
+5.  Is It My Body
+6.  Hallowed Be My Name
+7.  Second Coming
+8.  Ballad Of Dwight Fry
+9.  Sun Arise
+
+Glen Buxton - Guitar
+Michael Bruce - Guitar, Keyboard
+Dennis Dunaway - Bass
+Neal Smith - Drums
+Alice Cooper -Vocals
+
+(P)c 1971
+
+### "Killer" 1971, Hard Rock
+
+1.  Under My Wheels
+2.  Be My Lover
+3.  Halo Of Flies
+4.  Desperado
+5.  You Drive Me Nervous
+6.  Yeah, Yeah, Yeah
+7.  Dead Babies
+8.  Killer
+
+Glen Buxton - Guitar
+Michael Bruce - Guitar, Keyboard
+Dennis Dunaway - Bass
+Neal Smith - Drums
+Alice Cooper -Vocals
+
+(P)c 1971
+
+### "School's Out" 1972, Hard Rock
+
+1.  School's Out
+2.  Luney Tune
+3.  Gutter Cat Vs. The Jets
+4.  Street Fight
+5.  Blue Turk
+6.  My Stars
+7.  Public Animal # 9
+8.  Alma Mater
+9.  Grande Final
+
+Glen Buxton - Guitar
+Michael Bruce - Guitar, Keyboard
+Dennis Dunaway - Bass
+Neal Smith - Drums
+Alice Cooper -Vocals
+
+(P)c 1972
+
+### "Billion Dollar Babies" 1973, Hard Rock
+
+1.  Hello Hooray
+2.  Raped And Freezing
+3.  Elected
+4.  Billion Dollar Babies
+5.  Unfinished Sweet
+6.  No More Mr.Nice Guy
+7.  Generation Landslide
+8.  Sick Things
+9.  Mary Ann
+10.  I Love The Dead
+
+Glen Buxton - Guitar
+Michael Bruce - Guitar, Keyboard
+Dennis Dunaway - Bass
+Neal Smith - Drums
+Alice Cooper -Vocals
+
+(P)c 1973
+
+### "Muscle Of Love" 1973, Hard Rock
+
+1.  Muscle Of Love
+2.  Woman Machine
+3.  Hard Hearted Alice
+4.  Man With The Golden Gun
+5.  Big Apple Dreamin' (Hippo)
+6.  Never Been Sold Before
+7.  Working Up A Sweat
+8.  Crazy Little Child
+9.  Teenage Lament
+
+Glen Buxton - Guitar
+Michael Bruce - Guitar, Keyboard
+Dennis Dunaway - Bass
+Neal Smith - Drums
+Alice Cooper -Vocals
+
+(P)c 1973
+
+### "Welcome To My Nightmare" 1975, Hard Rock
+
+1.  Welcome To My Nightmare
+2.  Devil's Food
+3.  The Black Widow
+4.  Some Folks
+5.  Only Women Bleed
+6.  Department Of Youth
+7.  Cold Ethyl
+8.  Years Ago
+9.  Steven
+10.  The Awakening
+
+Steve Hunter - Guitar
+John Tropea - Guitar
+Tony Levin - Bass
+Johnny Badanjec - Drums
+Whitey Glan - Drums
+Alice Cooper -Vocals
+Dick Wagner - Guitar, Vocals
+Bob Ezrin - Keyboards, Vocals
+Jozef Chirowski - Keyboards, Vocals
+
+(P)c 1975
+
+### "Alice Cooper Goes To Hell" 1976, Hard Rock
+
+1.  Go To Hell
+2.  You Gotta Dance
+3.  I'm The Coolest
+4.  Didn't We Meet
+5.  I Never Cry
+6.  Give The Kid A Break
+7.  Guilty
+8.  Make Me Gently
+9.  Wish You Were Here 
+10.  I'm Always Chasing Rainbows
+11.  Going Home
+
+Steve Hunter - Guitar
+John Tropea - Guitar
+Tony Levin - Bass
+Allan Schwartzberg - Drums
+Alice Cooper -Vocals
+Dick Wagner - Guitar, Vocals
+Bob Ezrin - Keyboards, Vocals
+
+(P)c 1976
+
+### "Lace And Whiskey" 1977, Hard Rock
+
+1.  It's Hot Tonight
+2.  Lace And Whiskey
+3.  Road Rats
+4.  Damned If You Do
+5.  You And Me
+6.  King Of The Silver Screen
+7.  Ubangi Stomp
+8.  (No More)Love At Your Convenience
+9.  I Never Wrote Those Songs
+10.  My God
+
+Steve Hunter - Guitar
+John Tropea - Guitar
+Tony Levin - Bass
+Allan Schwartzberg - Drums
+Alice Cooper -Vocals
+Dick Wagner - Guitar, Vocals
+Bob Ezrin - Keyboards, Vocals
+
+(P)c 1977
+
+### "From The Inside" 1978, Hard Rock
+
+1.  From The Inside
+2.  Wish I Were Born In Beverly Hills
+3.  The Quiet Room
+4.  Nurse Rozetta
+5.  Millie And Billie
+6.  Serious
+7.  How You Gonna See Me Now 
+8.  For Veronica's Sake
+9.  Jackknife Johnny
+10.  Inmates (We're All Crazy)
+
+Glen Buxton - Guitar
+Michael Bruce - Guitar, Keyboard
+Dennis Dunaway - Bass
+Neal Smith - Drums
+Alice Cooper -Vocals
+
+(P)c 1978
+
+### "Flush The Fashion" 1980, Hard Rock
+
+1.  Talk Talk
+2.  Clones (We're All)
+3.  Pain
+4.  Leather Boots
+5.  Aspirin Damage
+6.  Nuclear Infected
+7.  Grim Facts
+8.  Model Citizen
+9.  Dance Yourself To Death
+10.  Headlines
+
+Steve Hunter - Guitar
+John Tropea - Guitar
+Tony Levin - Bass
+Allan Schwartzberg - Drums
+Alice Cooper -Vocals
+Dick Wagner - Guitar, Vocals
+Bob Ezrin - Keyboards, Vocals
+
+(P)c 1980
+
+### "Special Forces" 1981, Hard Rock
+
+1.  Who Do You Think We Are
+2.  Seven & Seven Is
+3.  Prettiest Cop On The Block
+4.  Don't Talk Old To Me
+5.  Generation Landslide '81(Live)
+6.  Skeletons In My Closet
+7.  You Want It, You Got It
+8.  You Look Good In Rags
+9.  You're A Movie
+10.  Vicious Rumours
+
+Steve Hunter - Guitar
+John Tropea - Guitar
+Tony Levin - Bass
+Allan Schwartzberg - Drums
+Alice Cooper -Vocals
+Dick Wagner - Guitar, Vocals
+Bob Ezrin - Keyboards, Vocals
+
+(P)c 1981
+
+### "DaDa" 1983, Hard Rock
+
+1.  DaDa
+2.  Enough's Enough
+3.  Former Lee Warmer
+4.  No Man's Land
+5.  Dyslexia
+6.  Scarlet And Sheba
+7.  I Love America
+8.  Fresh Blood
+9.  Pass The Gun Around
+
+(P)c 1983
+
+### "Constrictor" 1986, Hard Rock
+
+1.  Teenage Frankenstein
+2.  Give It Up
+3.  Thrill My Gorilla
+4.  Live And Death Of The Party
+5.  Simple Disobedience
+6.  The World Needs Guts
+7.  Trick Bag
+8.  Crawlin'
+9.  The Great American Success Story
+10.  "He's Back"(The Man Behind The Mask)
+
+(P)c 1986
+
+### "Raise Your Fists And Yell" 1987, Hard Rock
+
+1.  Freedom
+2.  Lock Me Up
+3.  Give The Radio Back
+4.  Step On You
+5.  Not That Kind Of Love
+6.  Prince Of Darkness
+7.  Time To Kill
+8.  Chop, Chop, Chop
+9.  Gail
+10.  Roses On White Lace
+
+(P)c 1987
+
+### "Prince Of Darkness" 1989, Hard Rock
+
+1. Prince Of Darkness
+2. Roses On White Lace
+3. Teenage Frankenstein
+4. He's Back (The Man Behind The Mask)
+5. Billion Dollar Babies (Recorded Live 1976)
+6. Lock Me Up
+7. Simple Disobedience
+8. Thrill My Gorilla
+9. Life And Death Of The Party
+10.Freedom
+
+(p)&(c) 1989
+
+### "Trash" 1989, Hard Rock
+
+1.  Poison
+2.  Spark In The Dark
+3.  House Of Fire
+4.  Why Trust You
+5.  Only My Heart Talkin'
+6.  Bed Of Nails
+7.  This Maniacs' I Love With You
+8.  Trash
+9.  Hell Is Living Without You
+10.  I'm Your Gun
+
+(P)c 1989
+
+### "Hey Stoopid" 1991, Hard Rock
+
+1.  Hey Stoopid
+2.  Love's A Loaded Gun
+3.  Snakebite
+4.  Burning Our Bed
+5.  Dangerous Tonight
+6.  Might As Well Be On Mars
+7.  Feed My Frankenstein
+8.  Hurricane Years
+9.  Little By Little
+10.  Die For You
+11.  Dirty Dreams
+12.  Wind-Up Toy
+
+(P)c 1991
+
+### "The Last Temptation" 1994, Hard Rock
+
+1. Sideshow
+2. Nothing's Free
+3. Lost In America
+4. Bad Place Alone
+5. You're My Temptation
+6. Stolen Prayer
+7. Unholy War
+8. Lullaby
+9. It's Me
+10.Cleansed By Fire
+
+(p)&(c) 1994
+
+### "Brutal Planet" 2000, Hard Rock
+
+1. Brutal Planet 4:39
+2. Sanctuary 4:00
+3. Wicked Young Man 3:50
+4. Gimme 4:46
+5. Blow Me A Kiss 3:18
+6. Cold Machines 4:18
+7. Take It Like A Woman 4:12
+8. It's The Little Things 4:11
+9. Pessi-mystic 4:56
+10. Eat Some More 4:35
+11. Pick Up The Bones 5:15
+
+### "Dragontown" 2001, Hard Rock
+
+
+
+### "The Eyes Of Alice Cooper" 2003, Hard Rock
+
+01        What Do You Want From Me? 
+02        Between High School And The Old School 
+03        Man Of The Year 
+04        Novocaine 
+05        Bye Bye, Baby 
+06        Be With You Awhile 
+07        Detroit City 
+08        Spirits Rebellious 
+09        This House Is Haunted 
+10        Love Should Never Feel Like This 
+11        The Song That Didn't Rhyme 
+12        I'm So Angry 
+13        Backyard Brawl 
+
+Players    Alice Cooper (Vocals) 
+                Eric Dover (Guitar) 
+                Ryan Roxie (Guitar) 
+                Eric Singer (Drums) 
+                Chuck Garric (Bass) 
+                Wayne Kramer (additional Guitar on Detroit City) 
+
+Production        Andrew Murdock
+
+### "Dirty Diamonds" 2005, Hard Rock
+
+01. Woman Of Mass Destruction 
+02. You Make Me Wanna 
+03. Perfect 
+04. Dirty Diamonds 
+05. Pretty Ballerina 
+06. Sunset Babies (All Got Rabies) 
+07. Zombie Dance
+08. The Saga Of Jesse Jane 
+09. Six Hours 
+10. Steal That Car 
+11. Run Down The Devil 
+12. Your Own Worst Enemy 
+13. Stand (Bonus)
+
+### "Along Came A Spider" 2008, Hard Rock
+
+
+
+### "Welcome 2 My Nightmare" 2011, Hard Rock
+
+01. I Am Made Of You 
+02. Caffeine 
+03. The Nightmare Returns 
+04. A Runaway Train 
+05. Last Man On Earth 
+06. The Congregation 
+07. I'll Bite Your Face Off 
+08. Disco Bloodbath Boogie Fever 
+09. Ghouls Gone Wild 
+10. Something To Remember Me By 
+11. When Hell Comes Home 
+12. What Baby Wants 
+13. I Gotta Get Outta Here 
+14. The Underture
+
+
+### "Paranormal" 2014, Hard Rock
+
+
+
 
 ## Отношения с другими группами
 

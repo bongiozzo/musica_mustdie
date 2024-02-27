@@ -1,11 +1,77 @@
 # Heavenly
 
-Дискография
-"Coming from the Sky" 2000, Power Metal
-"Sign Of The Winner" 2001, Power Metal
-"Dust To Dust" 2004, Power Metal
-"Virus" 2006, Power Metal
-"Carpe Diem" 2009, Power Metal
+cool speed-power
+
+## Дискография
+
+### "Coming from the Sky" 2000, Power Metal
+
+Coming from the sky 
+Carry your heart 
+Riding through hell 
+Time machine 
+Number one 
+Our only chance 
+Fairytale 
+My turn will come 
+Until I die 
+Million ways
+
+### "Sign Of The Winner" 2001, Power Metal
+
+01. Break The Silence 
+02. Destiny 
+03. Sign Of The Winner 
+04. The World Will Be Better 
+05. Condemned To Die 
+06. The Angel 
+07. Still Believe 
+08. The Sandman 
+09. Words Of Change 
+10. Until The End
+
+### "Dust To Dust" 2004, Power Metal
+
+1 .  Ashes To Ashes ... 
+2 .  Evil 
+3 .  Lust For Life 
+4 .  Victory 
+5 .  Illusion Part I 
+6 .  Illusion Part II 
+7 .  The Ritual 
+8 .  Keepers Of The Earth 
+9 .  Miracle 
+10 .  Fight For Deliverance 
+11 .  Hands Of Darkness 
+12 .  Kingdom Come 
+13 .  … Dust To Dust
+
+### "Virus" 2006, Power Metal
+
+1. The Dark Memories 06:07 
+2. Spill Blood on Fire 05:17
+3. Virus 06:16 
+4. The Power & Fury 06:03
+5. Wasted Time 05:56 
+6. Bravery in the Field 05:52
+7. Liberty 05:30
+8. When the Rain Begins to Fall 04:17 
+9. The Prince of the World 05:17
+10. The Joker (Japan Bonus Track) 03:54
+11. Spill Blood on Fire (Japanese version) 05:17 
+
+### "Carpe Diem" 2009, Power Metal
+
+1. Carpe Diem 04:50
+2. Lost In Your Eyes 03:48
+3. Farewell 05:02
+4. Fullmoon 04:57 
+5. A Better Me 06:07 
+6. Ashen Paradise 05:25 
+7. The Face Of The Truth 05:54 
+8. Ode To Joy 04:52
+9. Save Our Souls 04:20 
+
 
 ## Отношения с другими группами
 

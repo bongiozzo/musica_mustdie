@@ -1,13 +1,37 @@
 # Extol
 
-Дискография
-"Burial" 1999, Death Metal
-"Mesmerized (minicd)" 1999, Death Metal
-"And i watch... (7")" 2000, Death Metal
-"Undeceived" 2000, Death Metal
-"Paralysis (minicd)" 2001, Death Metal
-"Synergy" 2003, Thrash
-"Blueprint" 2005, Thrash
+Expiremental Death metal
+
+## Дискография
+
+### "Burial" 1999, Death Metal
+
+
+
+### "Mesmerized (minicd)" 1999, Death Metal
+
+
+
+### "And i watch... (7")" 2000, Death Metal
+
+
+
+### "Undeceived" 2000, Death Metal
+
+
+
+### "Paralysis (minicd)" 2001, Death Metal
+
+
+
+### "Synergy" 2003, Thrash
+
+
+
+### "Blueprint" 2005, Thrash
+
+
+
 
 ## Отношения с другими группами
 

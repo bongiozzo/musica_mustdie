@@ -1,10 +1,126 @@
 # Alestorm
 
-Дискография
-"Captain Morgans Revenge" 2008, Folk
-"Black Sails At Midnight " 2009, Folk
-"Back Through Time" 2011, Folk
-"Sunset On The Golden Age" 2014, Folk
+
+
+## Дискография
+
+### "Captain Morgans Revenge" 2008, Folk
+
+01. Over The Seas
+02. Captain Morgan's Revenge
+03. The Huntmaster
+04. Nancy The Tavern Wench
+05. Death Before The Mast
+06. Terror On The High Seas
+07. Set Sail And Conquer
+08. Of Treasure
+09. Wenches & Mead
+10. Flower Of Scotland
+
+Christopher Bowes - Vocals/Keyboards
+Gavin Harper - Guitars/Backing Vocals
+Dani Evans - Bass
+Ian Wilson - Drums
+
+Migo "Oger Mampf" Wagner - Session Drums
+All guitar solos written and performed by Gavin
+Harper
+All keyboard solos written and performed by
+Christopher Bowes
+
+Additional Musicians:
+Brendan Casey - Additional Bass
+Lasse Lammert - Vibraslap, Tambourine
+Ian Wilson - Percussion
+
+The Drunken Choir of the Funfpocalypse
+Christopher Bowes
+Gavin Harper
+Brendan Casey
+Migo Wagner
+Chris Mummelthey
+Album was recorded in September and October of
+2007
+Vocals and all other instruments recorded at LSD
+Studios, Lubeck, Germany
+Keyboards recorded at Lok Studios, Perth, Scotland
+Engineered, mixed and mastered by Lasse Lammert at
+LSD Studios
+band logo & album artwork by Ingo Romling
+Photography by Steve Brown
+
+### "Black Sails At Midnight " 2009, Folk
+
+1. The Quest 04:57  
+2. Leviathan 05:56 
+3. That Famous Ol' Spiced 04:46  
+4. Keelhauled 03:42  
+5. To the End of Our Days 06:23  
+6. Black Sails at Midnight 03:31  
+7. No Quarter 03:02  
+8. Pirate Song 04:03  
+9. Chronicles of Vengeance 06:25  
+10. Wolves of the Sea (Pirates of the Sea cover) 03:34 
+
+
+### "Back Through Time" 2011, Folk
+
+1. Back Through Time  05:03    
+2. Shipwrecked  03:30   
+3. The Sunk'n Norwegian  04:07    
+4. Midget Saw  03:18    
+5. Buckfast Powersmash  02:33    
+6. Scraping the Barrel  04:40   
+7. Rum  03:29    
+8. Swashbuckled  03:53    
+9. Rumpelkombo  00:06   
+10. Barrett's Privateers (Stan Rogers cover)  04:41    
+11. Death Throes of the Terrorsquid  07:46  
+
+Bonus tracks on limited edition versions:
+12. I am a Cider Drinker (The Wurzels cover) (02:58)
+13. You are a Pirate (LazyTown cover) (01:33) 
+
+
+### "Sunset On The Golden Age" 2014, Folk
+
+01. Walk The Plank
+02. Drink
+03. Magnetic North
+04. 1741 (The Battle Of Cartagena)
+05. Mead From Hell
+06. Surf Squid Warfare
+07. Quest For Ships
+08. Wooden Leg!
+09. Hangover
+10. Sunset On The Golden Age
+
+
+Limited edition CD mediabook includes an additional bonus CD titled "Rumplugged" with 5 unplugged versions of greatest hits and an additional bonus track:
+ 1. Over the Seas (Acoustic Version)
+ 2. Nancy the Tavern Witch (Acoustic Version)
+ 3. Keelhauled (Acoustic Version)
+ 4. The Sunk'n Norwegian (Acoustic Version)
+ 5. Shipwrecked (Acoustic Version)
+ 6. Questing upon the Poop Deck (Bonus Track)
+
+ Also released as a limited edition deluxe box set, limited to 1000 copies. Available only through mailorder.
+ The box set includes the bonus 6-track CD "Rumplugged" and an exclusive bonus DVD in a digipack with making of "Sunset on the Golden Age" featuring a 1 hour long documentary including in-depth interviews, studio footage and more.
+ Also includes an Alestorm branded hip flask, two beer mats, cover patch and a logo bottle opener.
+
+ Double vinyl edition released on:
+ - Black vinyl
+ - Navy Blue vinyl, limited to 100 copies in a gatefold sleeve. Available through mailorder only
+ - Gold vinyl, limited to 100 copies in a gatefold sleeve. Available through mailorder only
+
+ All vinyl copies include 6 additional bonus tracks:
+ 11. Over the Seas (Acoustic Version)
+ 12. Nancy the Tavern Witch (Acoustic Version)
+ 13. Keelhauled (Acoustic Version)
+ 14. The Sunk'n Norwegian (Acoustic Version)
+ 15. Shipwrecked (Acoustic Version)
+ 16. Questing upon the Poop Deck
+
 
 ## Отношения с другими группами
 

@@ -1,9 +1,81 @@
 # Page, Jimmy
 
-Дискография
-"Death Wish II" 1982, Hard Rock
-"Outrider" 1988, Hard Rock
-"Rock and Roll Highway" 2000, Hard Rock
+
+
+## Дискография
+
+### "Death Wish II" 1982, Hard Rock
+
+   1.   Who's to Blame 
+   2.   Chase 
+   3.   City Sirens 
+   4.   Jam Sandwich 
+   5.   Carole's Theme 
+   6.   Release 
+   7.   Hotel Rats and Photostats 
+   8.   Shadow in the City 
+   9.   Jill's Theme 
+   10.   Prelude 
+   11.   Big Band, Sax and Violence 
+   12.   Hypnotizing Ways (Oh Mamma) 
+
+
+### "Outrider" 1988, Hard Rock
+
+   1.   Wasting My Time (Miles/Page) - 4:28 
+   2.   Wanna Make Love (Miles/Page) - 5:20 
+   3.   Writes of Winter (Page) - 3:27 
+   4.   The Only One (Page/Plant) - 4:26 
+   5.   Liquid Mercury (Page) - 3:03 
+   6.   Hummingbird (Russell) - 5:22 
+   7.   Emerald Eyes (Page) - 3:21 
+   8.   Prison Blues (Farlow/Page) - 7:10 
+   9.   Blues Anthem (If I Cannot Have Your Love..... (Farlow/Page) - 3:21 
+
+
+Chris Farlowe  -  Vocals 
+Jimmy Page  -  Synthesizer, Guitar (Electric), Producer, Cover Art Concept, Guitar Synth 
+Robert Plant  -  Vocals 
+John Miles  -  Vocals 
+Pete Ashworth  -  Photography 
+Barriemore Barlow  -  Drums 
+Jason Bonham  -  Drums 
+Tony Franklin  -  Bass 
+Felix Krish  -  Bass 
+Durban Laverde  -  Bass 
+George Marino  -  Mastering 
+Leif Mases  -  Engineer, Mixing 
+Dick Beetham  -  Assistant Engineer 
+Chris Farlow  -  Vocals 
+
+
+
+### "Rock and Roll Highway" 2000, Hard Rock
+
+   1.   Everything I Do Is Wrong  performed by Page / Jones, John Paul / John Bonham - 2:49 
+   2.   Think It Over  performed by Page / Jones, John Paul / John Bonham - 2:29 
+   3.   Dixie Fried  performed by Page / Jones, John Paul / John Bonham - 2:23 
+   4.   Fabulous  performed by Page / Jones, John Paul / John Bonham - 2:22 
+   5.   Lonely Weekend  performed by Page / Jones, John Paul / John Bonham - 2:21 
+   6.   Burn Up  performed by Page / Jones, John Paul / John Bonham - 4:28 
+   7.   Wailing Sounds  performed by Page / Jones, John Paul / John Bonham - 2:36 
+   8.   Cause I Love You  performed by Page / Jones, John Paul / John Bonham - 2:46 
+   9.   Flashing Lights  performed by Page / Jones, John Paul / John Bonham - 3:11 
+   10.   Thumping Beat  performed by Page / Jones, John Paul / John Bonham - 3:06 
+   11.   Union Jack Car  performed by Page / Jones, John Paul / John Bonham - 3:03 
+   12.   Baby Come Back  performed by Page / Jones, John Paul / John Bonham - 2:33 
+
+
+Jimmy Page  -  Guitar, Producer 
+Nicky Hopkins  -  Piano 
+John Paul Jones  -  Bass 
+John Bonham  -  Drums 
+Clem Cattini  -  Drums 
+Chris Hughes  -  Sax (Tenor) 
+Nigel Molden  -  Executive Producer 
+
+
+
 
 ## Отношения с другими группами
 

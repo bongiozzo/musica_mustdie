@@ -1,8 +1,21 @@
 # Event Horizon
 
-Дискография
-"Altered State" 1998, Alternative
-"From beginning…to end" 2001, Alternative
+
+
+## Дискография
+
+### "Altered State" 1998, Alternative
+
+
+
+### "From beginning…to end" 2001, Alternative
+
+From beginning…to end
+Darkning Light
+King Of Unknown Land
+Flight Of Fantasy
+Take Me Out
+
 
 ## Отношения с другими группами
 

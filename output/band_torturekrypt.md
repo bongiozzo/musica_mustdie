@@ -1,7 +1,26 @@
 # Torture Krypt
 
-Дискография
-"Resurrecting the Crypts" 2010, Death Metal
+
+
+## Дискография
+
+### "Resurrecting the Crypts" 2010, Death Metal
+
+1. Intro 
+2. Obdurate Into Destruction	 
+3. Disassembly	 
+4. Bestial Mutilation	 
+5. Rotted Remnants	 
+6. Pharisaical		 
+7. Intro/Bestial Mutilation	 
+8. Pharisaical	 
+9. Rotted Remnants	 
+10. Disassembly	 
+11. Torture Psychosis	 
+12. Cadaverous Fragrance	 
+13. Torture Evidence/The Apocalypse	 
+14. Seduction to Suffering
+
 
 ## Отношения с другими группами
 

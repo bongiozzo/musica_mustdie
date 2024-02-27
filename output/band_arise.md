@@ -1,9 +1,62 @@
 # Arise
 
-Дискография
-"The Godly Work Of Art" 2001, Melodic Death Metal
-"Kings Of The Cloned Generation" 2003, Melodic Death Metal
-"The Beautiful New World" 2005, Melodic Death Metal
+
+
+## Дискография
+
+### "The Godly Work Of Art" 2001, Melodic Death Metal
+
+1. A godly work of art 
+2. Generations for sale 
+3. Within 
+4. Delusion of life 
+5. Haterush 
+6. Cellbound  
+7. Wounds  
+8. Abducted intelligence 
+9. ...and the truth is lies
+
+Recordead in Studiomega during the days of May 2001.
+Engineered & produced by Christian "Michke brе" Silver.
+Mixed in Finnvox studios by Mikko Karmila & Christian Silver.
+Mastered at Digitalfabriken by Kenneth Svensson.
+Artwork & design by Niklas Sundin @ Cabin Fever Media.
+Intro for "Haterush" by Jцrgen Sjцlander.
+Band photos by Michael Pedersen.
+
+### "Kings Of The Cloned Generation" 2003, Melodic Death Metal
+
+1. Strangled Love
+2. Stains of Blood
+3. Another world to Consume
+4. Kings of cloned generation
+5. Corroded
+6. Way above life
+7. Nuclear Ray infected
+8. Master of Gravity
+9. Stick to the Line
+10. Wasted Life
+
+### "The Beautiful New World" 2005, Melodic Death Metal
+
+1. How long can you pretend? 
+2. A new world 
+3. Profit from the weak 
+4. Dreams worthy gods 
+5. King of yesterday, slave of today 
+6. Of life and death 
+7. Expendable heroes 
+8. Inject the machine 
+9. Misery 
+10. Broken trust 
+11. Tribute to the flesh 
+
+Line-Up: 
+Erik Ljungqvist - vocals, guitar 
+L-G Jonasson - guitar 
+Patrik Skoglцw - bass 
+Daniel Bugno - drums
+
 
 ## Отношения с другими группами
 

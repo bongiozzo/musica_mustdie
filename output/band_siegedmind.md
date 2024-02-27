@@ -1,7 +1,13 @@
 # Sieged Mind
 
-Дискография
-"Eternal..." 2005, Techno Death
+techno-death from Russia
+
+## Дискография
+
+### "Eternal..." 2005, Techno Death
+
+
+
 
 ## Отношения с другими группами
 

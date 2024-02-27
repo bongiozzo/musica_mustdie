@@ -1,7 +1,28 @@
 # Compilation
 
-Дискография
-"Tribute To ABBA" 2001, Power Metal
+
+
+## Дискография
+
+### "Tribute To ABBA" 2001, Power Metal
+
+1.Therion - Summernight city
+2.Metalium - Thank You For The Music
+3.Sinergy - Gimme! Gimme! Gimme!
+4.At Vance - Money, Money
+5.Morgana LeFay - Voulez-Vouz
+6.Paradox - S.O.S
+7.Rough Silk - Take a Chance On Me
+8.Spiral Tower - Chiquitita
+9.Sargant Fury - Eagle
+10.Flowing Tears - One of Us
+11.Nation - Waterloo
+12.Custard - Super Trooper
+13.Tad Morose - Knowing Me, Knowing You
+14.Glow - Dancing Queen
+
+
+
 
 ## Отношения с другими группами
 

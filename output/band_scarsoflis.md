@@ -1,6 +1,9 @@
 # Scars Of Lis
 
-Дискография
+ex-Thetre of Tragedy member
+
+## Дискография
+
 
 ## Отношения с другими группами
 

@@ -1,19 +1,149 @@
 # Enthroned
 
-Дискография
-"Split EP with Ancient Rites" 1994, Black Metal
-"Promo" 1994, Black Metal
-"Prophecies Of Pagan Fire" 1995, Black Metal
-"Towards The Skullthrone Of Satan" 1997, Black Metal
-"Regie Sathanas: A Tribute to Cernunnos" 1998, Black Metal
-"The Apocalypse Manifesto" 1999, Black Metal
-"Armoured Bestial Hell" 2001, Black Metal
-"Carnage In Worlds Beyond" 2002, Black Metal
-"XES Haereticum" 2004, Black Metal
-"Black Goat Ritual" 2005, Black Metal
-"Tetra Karcist" 2007, Black Metal
-"Pentagrammaton" 2010, Black Metal
-"Obsidium" 2012, Black Metal
+Satanic Black Metal
+
+## Дискография
+
+### "Split EP with Ancient Rites" 1994, Black Metal
+
+
+
+### "Promo" 1994, Black Metal
+
+
+
+### "Prophecies Of Pagan Fire" 1995, Black Metal
+
+1. Intro (Prophecies Of Pagan Fire)
+2. Deny The Holy Book Of Lies
+3. Under The Holocaust
+4. Scared By Darkwinds
+5. Tales From A Blackened Horde
+6. At Dawn Of A Funeral Winter
+7. Rites Of The Northern Fullmoon
+8. SKJELDENLAND
+9. At The Sound Of The Funeral Winter
+10.As The Wolves Howl Again
+
+
+
+All Songs Written By ENTHRONED.
+Produced By Andre Gielen & ENTHRONED.
+Engineered & Mixed By Andre Gielen.
+Recorded At Hautregard Records.
+
+Sabathan - Bass & Vocals
+Cernnnnof - Drums
+Tsebaoth - All Guitars
+
+(P)&(C) 1996 EVIL OMEN Records
+
+### "Towards The Skullthrone Of Satan" 1997, Black Metal
+
+1 - Satan's Realm (Intro) - (2:04)
+2 - The Ultimate Horde Fights - (4:42)
+3 - Ha Shaitan - (4:46)
+4 - Evil Church - (4:39)
+(listen to "Evil Church" as MP3-track)
+5 - The Antichrist Summons the Black Flame - (3:54)
+6 - The Forest of Nathrath - (4:28)
+7 - Dusk of Forgotten Darkness - (5:15)
+8 - Throne to Purgatory - (3:40)
+9 - When Horny Flames Begin to Rise - (5:03)
+10 - Hertogenwald - (5:32)
+11 - Final Armageddon (Epilogue) - (0:59)
+
+
+### "Regie Sathanas: A Tribute to Cernunnos" 1998, Black Metal
+
+1 - Prelude To Satan's Avengers (Intro) - (2:29)
+2 - By Dark Glorious Thoughts - (6:09)
+3 - Walpurgis Night - (6:38)
+4 - Satan Never Sleeps - (4:33)
+5 - The Conqueror - (2:48)
+6 - Deny the Holy Book of Lies - (5:39)
+7 - Outro - (0:15)
+
+### "The Apocalypse Manifesto" 1999, Black Metal
+
+1 - Whisperings of Terror (Intro) - (0:21)
+2 - The Apocalypse Manifesto - (3:21)
+3 - Death Faceless Chaos - (4:15)
+4 - Retribution of the Holy Trinity - (7:01)
+5 - Genocide (concerto N° 35 for razors) - (5:07)
+6 - Volkermord, der Antigott - (3:50)
+7 - Alastor Rex Perpetuus Doloris - (4:49)
+8 - The Scourge of God + Anal Lust - (11:37)
+
+### "Armoured Bestial Hell" 2001, Black Metal
+
+Humanicide 666 
+Wrapped In Fire 
+Armoured Bestial Hell 
+Enslavement Revealed 
+Spells From The Underworlds 
+Spheres Of Damnation 
+The Face Of Death 
+When Hell Freezes Over 
+Premature Satanicremation 
+Terminate Annihilation 
+Outro
+
+### "Carnage In Worlds Beyond" 2002, Black Metal
+
+1. Boundless Demonication
+2. Infernal Flesh Massacre
+3. Spawn From The Abyss
+4. Bloodline
+5. Jehova Desecration
+6. Diabolic Force
+7. Land Of Demonic Fears
+8. Radiance Of Mordacity
+9. Graced By Evil Blood
+10. Carnage In Worlds Beyond
+
+### "XES Haereticum" 2004, Black Metal
+
+
+
+### "Black Goat Ritual" 2005, Black Metal
+
+01. Deny The Holy Book Of Lies
+02. The Antichrist Summons The Black Flame
+03. Boundless Demonication
+04. Infernal Flesh Massacre
+05. Rites Of The Northern Fullmoon
+06. Genocide (Concerto No.35 For Razors)
+07. The Ultimate Horde Fights
+08. Vortex Of Confusion
+09. Radiance Of Mordacity
+10. Hertogenwald
+11. Spawn From The Abyss
+12. By Dark Glorious Thoughts
+13. Evil Church
+14. Last Will
+15. Eternal Misery *
+
+### "Tetra Karcist" 2007, Black Metal
+
+
+
+### "Pentagrammaton" 2010, Black Metal
+
+
+
+### "Obsidium" 2012, Black Metal
+
+1.	 Sepulchred Within Opaque Slumber	03:49
+2.	 Nonus Sacramentvm - Obsidium	04:09
+3.	 Horns Aflame	04:30
+4.	 Deathmoor	03:49
+5.	 Oblivious Shades	06:43
+6.	 The Final Architect	04:37	 
+7.	 Petraolevm Saliva	04:04	 
+8.	 Oracle ov Void	03:59	 
+9.	 Thy Blight Vacuum	04:37
+
 
 ## Отношения с другими группами
 

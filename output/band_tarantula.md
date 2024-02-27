@@ -1,14 +1,120 @@
 # Tarantula
 
-Дискография
-"Tarantula" 1987, Heavy Metal
-"Kingdom of Lusitania" 1990, Heavy Metal
-"Tarantula III" 1993, Heavy Metal
-"Freedom's Call" 1995, Heavy Metal
-"Light Beyond the Dark" 1999, Heavy Metal
-"Dream Maker" 2001, Heavy Metal
-"Metalmorphosis" 2005, Heavy Metal
-"Spiral of Fear" 2010, Heavy Metal
+
+
+## Дискография
+
+### "Tarantula" 1987, Heavy Metal
+
+1. Battle of Victory	 
+2. Sons of the Flame	 
+3. Cry for the Spider	 
+4. Adamastor (The Cape of Storms)	 
+5. Fear	 
+6. Prophets of Christendom	 
+7. Escape From Heaven	 
+8. The Court
+
+### "Kingdom of Lusitania" 1990, Heavy Metal
+
+1. Prelude to Find a Kingdom	 
+2. Highway to Glory	 
+3. Empire of Shadows	 
+4. The Lost Crown	 
+5. Earthquake (Lisbon 1755)	 
+6. Lusitania	 
+7. The Great Dragon	 
+8. End of the Rainbow	 
+9. The Saga of Sebastian, The King
+
+### "Tarantula III" 1993, Heavy Metal
+
+1. Intro
+2. Looking for Heroes	 
+3. Making Destiny	 
+4. Falling World	 
+5. A Hard Day's Night (Beatles cover)
+6. Prelude to Find a Queen
+7. Queen of My Dream	 
+8. Power Tower	 
+9. Rock on Court	 
+10. Peter the Cruel		 
+11. To See the Light	 
+12. Smoke on the Water (Deep Purple cover)
+
+### "Freedom's Call" 1995, Heavy Metal
+
+1. Intro
+2. Burning Ground	 
+3. Freedom's Call	 
+4. King of No-Man's Land	 
+5. If You close your Eyes	 
+6. Big Liar	 
+7. Dreams of Conquest	 
+8. String Section	 
+9. Caught in a Revolution	 
+10. Leaving all the Past Behind 
+11. The Warning Sign	 
+12. Last Seed of Hope		 
+13. I want you to want me (Cheap Trick cover)
+
+### "Light Beyond the Dark" 1999, Heavy Metal
+
+1. Overseas
+2. Inner Force
+3. Face the Mirror
+4. Kingdom of Fire	 
+5. Life behind the Mask	 
+6. You can't hide from the Storm	 
+7. Not the End	 
+8. In Search of a Smile	 
+9. Running with the Wind	 
+10. Ascending to Eternity	 
+11. Giants of War	 
+12. V.R.	 
+13. Light beyond the Dark
+
+### "Dream Maker" 2001, Heavy Metal
+
+1. Dream Maker
+2. You Can Always Touch The Sky
+3. Never Surrender
+4. Changes Coming
+5. Winds Of No Return
+6. And The Sun Will Rise Again
+7. Our Destiny
+8. Where Will You Run To?	
+9. The Nature Of Sin
+10. A New Horizon
+11. To Feel The Light
+
+### "Metalmorphosis" 2005, Heavy Metal
+
+Breaking The Barriers Of Time 
+We Go With The Flow 
+The Bleeding Land 
+New Tomorrow 
+Your Promised Land 
+All In Your Eyes 
+Sea Of Doubts 
+Far Away From God 
+Meant To Be Alone 
+Never Be Forgotten 
+Under Control
+
+### "Spiral of Fear" 2010, Heavy Metal
+
+1. Dark Age	 
+2. Open Your Eyes	 
+3. Shadows	 
+4. Who You Really Are	 
+5. Among Us	 
+6. Spiral of Fear	 
+7. Blind Ambition	 
+8. Afterlife	 
+9. Vultures	 
+10. Hope
+
 
 ## Отношения с другими группами
 

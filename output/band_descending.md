@@ -1,7 +1,24 @@
 # Descending
 
-Дискография
-"Enter Annihilation" 2008, Thrash
+
+
+## Дискография
+
+### "Enter Annihilation" 2008, Thrash
+
+1. Enter Annihilation  03:49 
+2. Horror Show  04:03  
+3. Part Of The Game  03:49  
+4. Killer Instinct  03:54   
+5. Raging Cold Blood  04:33  
+6. The Creation Remains  03:17 
+7. Your Valentine  03:17   
+8. Descending  05:29 
+9. Unblind  03:47    
+10. Day To Die = Die Today  04:05 
+11. Competition Suicidal Role  02:58 
+12. The Trust  03:35 
+
 
 ## Отношения с другими группами
 

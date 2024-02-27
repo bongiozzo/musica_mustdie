@@ -1,8 +1,52 @@
 # Catherines Cathedral
 
-Дискография
-"Intoxication" 1995, Gothic
-"Equilibrium" 1995, Gothic
+
+
+## Дискография
+
+### "Intoxication" 1995, Gothic
+
+1. Razorious (Intoxication)
+2. Dust Will Follow
+3. For The Love Of God
+4. Seeing Is Believing
+5. Contaminate
+6. Flowerdust
+7. The Legacy
+8. Metamorphos
+
+ M. Valley - Voices, Guitars
+ D. Petersson - Guitars
+ D. Hansevi - Bass
+ Colonel Phobia - Drums
+ S. Morgana - Keyboards & Synths
+
+All Songs Written By CATHERINES CATHEDRAL
+Produced By L. Enstrom & CATHERINES CATHEDRAL
+Recorded & Mixed At Mixart Studio
+
+(p)&(c) 1995 NOXIOUS Records
+
+### "Equilibrium" 1995, Gothic
+
+1. Where Dreams Collide
+2. Ring Of Fire
+3. I Could Be You
+4. Souls (Saintsinner)
+5. Enter Oblivion
+
+All Songs Written By CATHERINES CATHEDRAL.
+Produced By L.Enstrom & CATEHRINES CATHEDRAL.
+Recorded & Mixed At Mixart Studio.
+
+M. Valley - Voices,Guitar
+D.Petersson - Guitars
+D.Hansevi - Bass
+Colonel Phobia - Drums
+S.Morgana - Keyboards & Synths
+
+(P)&(C) 1995 NOXIOUS Records
+
 
 ## Отношения с другими группами
 

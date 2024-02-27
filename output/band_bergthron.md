@@ -1,12 +1,41 @@
 # Bergthron
 
-Дискография
-"Duerch Den Nebel Der Finsternis (demo)" 1995, Metal
-"Verborgen In Den Tiefen Der Waelder..." 1997, Metal
-"Uralte Gedanken (EP)" 1999, Metal
-"Jagdheim" 2001, Metal
-"Wotanskult" 2002, Metal
-"Faust Fuer Faust" 2004, Metal
+Germanian pagan-metal
+
+## Дискография
+
+### "Duerch Den Nebel Der Finsternis (demo)" 1995, Metal
+
+
+
+### "Verborgen In Den Tiefen Der Waelder..." 1997, Metal
+
+
+
+### "Uralte Gedanken (EP)" 1999, Metal
+
+
+
+### "Jagdheim" 2001, Metal
+
+01) Aus Edlem Blut (14:59)
+02) Im Weissen Wald (07:43)
+03) Jagdheim (12:47)
+
+### "Wotanskult" 2002, Metal
+
+01) Aus Edlem Blut (14:44)
+02) Im Weissen Wald (07:31)
+03) Jagdheim (10:57)
+04) Wotanskult (07:01)
+
+### "Faust Fuer Faust" 2004, Metal
+
+01) Faust Fuer Faust (16:18)
+02) Frostrunen (10:22)
+03) Reigen Der Waldjungfrauen (14:16)
+04) Tanz Der Elemente (01:58)
+
 
 ## Отношения с другими группами
 

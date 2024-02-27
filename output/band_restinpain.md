@@ -1,9 +1,35 @@
 # Rest in Pain
 
-Дискография
-"Leprosy of Subconscious (demo)" 2001, Death Metal
-"Higher Geometry" 2005, Techno Death
-"Leprosy Of Subconscious" 2005, Techno Death
+Psycho-Death Metal
+
+## Дискография
+
+### "Leprosy of Subconscious (demo)" 2001, Death Metal
+
+
+
+### "Higher Geometry" 2005, Techno Death
+
+
+
+### "Leprosy Of Subconscious" 2005, Techno Death
+
+1. The Last Dawn
+2. The Extract
+3. With Inner Light Of Supreme Truth
+4. Closer To Craze
+5. Absorbed In Irreversible Decease
+6. Face Wrapped Up With Golden Foil
+7. Carbonized From Within
+8. Invented Heaven
+9. The Letter
+10. The Bridge Out
+
+
+Recorded by Lazar at CDM Records studio
+Mixed by Dmitry Kalinin at ARIA Records studio
+Engineered by Andrew Subbotin at SATURDAY Mastering
+
 
 ## Отношения с другими группами
 

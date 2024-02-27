@@ -1,9 +1,28 @@
 # Manatark
 
-Дискография
-"Roosteitk" 1997, Black Metal
-"Viimanegi Veri" 2000, Death Metal
-"Chaos Engine" 2003, Death Metal
+Blackened Extreme metal from Estonia
+
+## Дискография
+
+### "Roosteitk" 1997, Black Metal
+
+
+
+### "Viimanegi Veri" 2000, Death Metal
+
+
+
+### "Chaos Engine" 2003, Death Metal
+
+1. The Principle
+2. Parallels and Parity 
+3. Four Walls
+4. We Stole Your Death
+5. The Serpent's Tongue
+6. Crystal
+7. Devilchant
+8. Lies, Blasphemy, Deceit
+
 
 ## Отношения с другими группами
 

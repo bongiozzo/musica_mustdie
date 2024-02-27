@@ -1,10 +1,70 @@
 # Voiceless Void
 
-Дискография
-"Symphony Of Pain" 1998, Gothic
-"Content Of Human Being" 2003, Gothic
-"Vampire - Another Side of Death" 2005, Gothic
-"Songs Of Black Roses" 2010, Gothic
+
+
+## Дискография
+
+### "Symphony Of Pain" 1998, Gothic
+
+1.Sorow Architect(intro)
+2.Symphony of pain (ins.)
+3.Kingdom of fear
+4.Werwolf's cryin'
+5.Land of darkness
+6.Amageddon
+7.One Second
+8.Voice from the Dark
+9.Suite &#8804;1(Black)
+10.Final
+
+### "Content Of Human Being" 2003, Gothic
+
+1. Lost For Nothing   
+2. National God   
+3. Imitation   
+4. Voiceless Void   
+5. Gates To Nowhere   
+6. Sexopathy   
+7. Flash Of Fire 
+8. Voices
+9. Condemnation
+10. Say Just Words (live)
+
+
+Роман "Boss" Нетребенко - гитара/вокал,
+Дмитрий "MeG" Агафонов - бас,
+Макс Агафонов - гитара,
+Ольга - клавиши,
+Антон Губанов - ударные
+
+### "Vampire - Another Side of Death" 2005, Gothic
+
+1.Dark Ages(intro)
+ 2.Shadows
+ 3.Fury
+ 4.Transylvania Tears
+ 5.Another Side of Death
+ 6.Immortality is a good thing?
+ 7.Absinth Dance
+ 8.Love Like Blood
+ 9.Awake the Monster
+ 10.Hunting for the Beast
+ 11.The End
+ 12.Not the End(outro)
+ + multimedia session(тексты, фотогалерея, mp3 - бонус)
+
+### "Songs Of Black Roses" 2010, Gothic
+
+1. Be My Faith
+2. Song of Black Roses
+3. Crucified by Demons
+4. Queen of the Lakes
+5. Seal of Tragedy
+6. In your eyes
+7. The way of Sin
+8. Man without Face
+9. Dead Light + BONUS: Dead Light (official video)
+
 
 ## Отношения с другими группами
 

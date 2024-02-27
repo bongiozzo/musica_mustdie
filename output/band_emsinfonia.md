@@ -1,7 +1,30 @@
 # Em Sinfonia
 
-Дискография
-"Intimate Portrait" 2000, Doom
+
+
+## Дискография
+
+### "Intimate Portrait" 2000, Doom
+
+1-Testimonial
+2-For Crimson Lust
+3-Estranged
+4-Lingering Dream
+5-Counting Shadow
+6-Intimate Portrait
+7-Insatiable
+8-Revelations
+9-Portal to an Emptiness
+10-Broken Promises
+11-True Believer
+12-Alone.
+
+Brian Griffin- lead guitar, vocals & bass; 
+Rick Alexander- keyboards & backing vocals; 
+Larry Demumbrum- drums; 
+Sean Baxter-guitar, bass & violins; 
+Bunny- lead vocals
+
 
 ## Отношения с другими группами
 

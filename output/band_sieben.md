@@ -1,11 +1,64 @@
 # Sieben
 
-Дискография
-"Forbid the Sun's Escape" 1999, Folk
-"The Line and the Hook" 2001, Folk
-"Our Solitary Confinement" 2002, Folk
-"Sex And Wild Flowers" 2003, Folk
-"Ogham Inside The Night" 2006, Folk
+neo folk
+
+## Дискография
+
+### "Forbid the Sun's Escape" 1999, Folk
+
+
+
+### "The Line and the Hook" 2001, Folk
+
+
+
+### "Our Solitary Confinement" 2002, Folk
+
+01. Dead Bird
+02. Broken Greenhouse
+03. Loading Bay
+04. Harding's Lament
+05. Peterson's Lament
+06. The Mechanics of Intuition
+07. Fire Drill
+08. Picture of Corridor
+09. Harding's Wish
+10. Tolson's Dream
+11. Factory Floor
+12. Peterson's Seat
+13. Workshop Window
+
+### "Sex And Wild Flowers" 2003, Folk
+
+01. Spring Snowdrop
+02. Love's Trumpet
+03. Forget Me Not
+04. Virgin In The Green
+05. Town In The Pulpit
+06. Knudlustysummer
+07. Deadly Nightshade
+08. Bleeding Heart
+09. Winter Snowdrop
+10. Love's Promice
+11. Love's Other Trumpet
+12. Loki's Lust And Punishment
+13. Deathlust
+
+### "Ogham Inside The Night" 2006, Folk
+
+01. Ogham The Sun
+02. Ogham The Spirit
+03. Ogham In The Soul
+04. Ogham The Moon
+05. Ogham The Melody
+06. Ogham The Knowledge
+07. Ogham On The Hill
+08. Ogham Inside The Night
+09. Ogham The Blood
+10. Ogham In The Ground
+11. Ogham The Blade
+12. Ogham Carved The Tree
+
 
 ## Отношения с другими группами
 

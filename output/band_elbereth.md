@@ -1,7 +1,38 @@
 # Elbereth
 
-Дискография
-"...And Other Reasons" 1995, Death Doom
+
+
+## Дискография
+
+### "...And Other Reasons" 1995, Death Doom
+
+1. From The Sea Cliff
+2. The Idyllic Place Of Innocence
+3. The End Of 2nd  Act
+4. April Rain
+5. Four Roses In My Heart
+6. The Beautiful Short Story
+7. Crystal World
+8. ...And Other Reflections
+9. So Much Affliction
+10.Fallen Leaves
+[11].Forgotten Forever
+[12].Nostalgic Harmonies Brings The Wind
+[13].Autumn Concert
+
+[11]-[13]  на стороне B
+
+All Songs Written By ELBERETH.
+Recorded & Mixed At Ingunza Sound Studio.
+
+Lola Marquinez - Vocals & Violin
+David Diaz - Drums
+Asier Gonzales - Guitars
+Fernando Arevalo - Guitars
+Alvaro Castro - Bass
+
+(P)&(C) 1995 WITCHHUNT Records
+
 
 ## Отношения с другими группами
 

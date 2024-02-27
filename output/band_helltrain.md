@@ -1,10 +1,59 @@
 # Helltrain
 
-Дискография
-"Route 666" 2004, Thrash
-"Rock 'n' Roll Devil " 2008, Thrash
-"Mr. Cooger (internet single)" 2011, Thrash
-"Death is Coming" 2012, Metal
+
+
+## Дискография
+
+### "Route 666" 2004, Thrash
+
+01. Route 666
+02. The Helltrain Coven
+03. S.O.S.
+04. Afterglow
+05. Polizei
+06. Sleepless
+07. Tombstone
+08. Kingsize
+09. Rot'n'roll
+10. Rat Pack
+11. Helltrain
+
+### "Rock 'n' Roll Devil " 2008, Thrash
+
+1. Rock N Roll Devil   
+2. My Little Stars   
+3. You're the Man   
+4. Hear Them   
+5. Heaven and Helltrain   
+6. Ghouls   
+7. Great Halls of Fire   
+8. I Am the Misfit   
+9. Burning...   
+10. Down and Out 
+
+
+Pierre Tornkvist - Bass/Vocals 
+Patrik Tornkvist – Guitars, Organ, Piano
+Oskar Karlsson – Drums
+
+
+### "Mr. Cooger (internet single)" 2011, Thrash
+
+01. Mr. Cooger
+
+### "Death is Coming" 2012, Metal
+
+1.	 Juggernaut	03:46	 
+2.	 Death is Coming	04:12	 
+3.	 Mr. Cooger	04:14	 
+4.	 Ghouls & Goblins	04:00	 
+5.	 Beat by Beat	03:25	 
+6.	 The Killer Come	04:09	 
+7.	 Black Flame	02:51	 
+8.	 Slay the Beast	03:26	 
+9.	 Jisei	03:12	 
+10.	 Leppings Lane	04:01	
+
 
 ## Отношения с другими группами
 

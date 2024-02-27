@@ -1,7 +1,29 @@
 # Syrian
 
-Дискография
-"De-Synchronized" 2004, Synthpop
+future pop
+
+## Дискография
+
+### "De-Synchronized" 2004, Synthpop
+
+01. She is the Dark
+02. No Atmosphere
+03. De-Synchronized
+04. Vision 215
+05. One More Mission
+06. Vega Velocity
+07. Wasted Years
+08. Starless
+09. Now is Forever
+10. Nova 3001
+11. No Atmosphere ( Single Edit ) 
+12. Vega Velocity ( Voyager Mix ) 
+13. Flowers Fade ( European version )
+14. No Atmosphere ( Warp Edit )
+
+Andylab – Vocals Keyboards
+Voyager Lorenzo Bettelli – Keyboards, Programming, Production
+
 
 ## Отношения с другими группами
 

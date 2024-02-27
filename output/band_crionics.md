@@ -1,10 +1,64 @@
 # Crionics
 
-Дискография
-"Human Error: Way To Selfdestruction" 2002, Black Metal
-"Armageddon's Evolution" 2004, Death Metal
-"NeuThrone" 2007, Death Metal
-"N.O.I.R. [EP]" 2010, Death Metal
+
+
+## Дискография
+
+### "Human Error: Way To Selfdestruction" 2002, Black Metal
+
+Satanic Syndrome 666 
+Waterfalls of Darkness 
+Lunatic Gate 
+Hallowed Whores 
+Crionics 
+Episode of the Falling Star 
+Matrix of Piety 
+Precipice Gaped 
+Sacrosanct Strength 
+Indoctrination Procedure
+
+### "Armageddon's Evolution" 2004, Death Metal
+
+1. Arrival of Non-parallel Aeons 04:38
+2. Final Inversion 03:17 
+3. Armageddon's Evolution 04:42 
+4. Chant of Rebel Angels (intro) 01:47  
+5. FFF (Freezing Fields of InFinity) 04:50  
+6. Xenomorphized Soul Devoured 05:27 ] 
+7. Disconnected Minds 05:31 
+8. Celestial Interference 05:56  
+9. Dept.666 04:19  
+10. Black Manifest (The Sermon to the Masses) 07:07  
+11. The Loss and Curse of Reverence (Bonus Emperor`s cover) 06:09  
+12. Total Blasphemy (Bonus)
+
+### "NeuThrone" 2007, Death Metal
+
+01. New Pantheon
+02. Arrival 2033
+03. Neu.Throne.Aeon
+04. Superiors
+05. Hell Earth
+06. Humanmeat Cargo
+07. Outer Empire
+08. Frozen Hope
+09. When The Sun Goes Out...
+10. Black Warriors (bonus track) *
+
+* re-recording of 1998 demo track
+
+### "N.O.I.R. [EP]" 2010, Death Metal
+
+1. NarcotiQue	04:36	
+2. Scapegoat (Welcome To Necropolis)	04:44	
+3. Perdition	05:10	
+4. Blashyrk (Mighty Ravendark) (Immortal cover)	04:57	
+5. Moskau (Rammstein cover)	04:14
+6. Mystic Past 04:13
+7. Pagan Strength 04:05
+8. Black Warriors 05:32
+9. I Am the Black Wizards (Emperor cover) 05:12
+
 
 ## Отношения с другими группами
 

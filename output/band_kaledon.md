@@ -1,13 +1,127 @@
 # Kaledon
 
-Дискография
-"Legend of the Forgotten Reign Chapter 1 "The Destruction"" 2002, Power Metal
-"Legend Of The Forgotten Reign Chapter 2 "The King's Rescue"" 2003, Power Metal
-"Legend Of The Forgotten Reign Chapter 3 "The Way Of The Light"" 2005, Power Metal
-"Legend of the Forgotten Reign - Chapter 4 "Twilight of the Gods"" 2006, Power Metal
-"Legend of the Forgotten Reign - Chapter 5 "A New Era Begins"" 2008, Power Metal
-"Legend of the Forgotten Reign - Chapter 6 "The Last Night on the Battlefield"" 2010, Power Metal
-"Mightiest Hits [2CD compilation]" 2012, Power Metal
+Italian symphonic power metal
+
+## Дискография
+
+### "Legend of the Forgotten Reign Chapter 1 "The Destruction"" 2002, Power Metal
+
+1. Imperium Fulgens 02:02  
+2. In Search of Kaledon 03:38 
+3. Army of the Undead King 03:38
+4. Thunder in the Sky 03:31  
+5. Streets of the Kingdom 05:47
+6. Spirit of the Dragon 04:19
+7. Hero of the Land 03:28
+8. God Says Yes 04:26 
+9. Deep Forest 02:45  
+10. Desert Land of Warriors 05:32 
+11. The Jackal's Fall 09:18 
+12. Courage (Manowar cover)
+
+### "Legend Of The Forgotten Reign Chapter 2 "The King's Rescue"" 2003, Power Metal
+
+1. In the time 01:50 
+2. The Shadow of Azrael 04:41 
+3. Black Sun 01:25
+4. The Abduction 04:30
+5. Sad Destiny 00:38
+6. Valley of the death 04:42 
+7. Revelation 03:01 
+8. Escape from the jail 04:05
+9. Home 06:19 
+10. The New kingdom 04:39
+11. New soldiers for a new army 04:36
+12. Revenge 05:13
+13. A frozen dawn 05:31
+14. The second fall 13:01
+
+### "Legend Of The Forgotten Reign Chapter 3 "The Way Of The Light"" 2005, Power Metal
+
+1. Inexorable light 
+2. the glory starts 
+3. the angel
+4. The hidden ways 
+5. In the eyes of the queen 
+6. Mighty son of the great lord 
+7. Voltures in the air 
+8. Lord of the sand 
+9. Black telephaty 
+10. Come with me 
+11. Break the chant 
+12. the sword on the shoulder
+13. The way of the light
+14. Great night in the land
+
+### "Legend of the Forgotten Reign - Chapter 4 "Twilight of the Gods"" 2006, Power Metal
+
+1. The Holy Water
+2. Hell On Earth
+3. War Plans
+4. Goodbye My Friend
+5. Clash Of The Titans
+6. Into The Fog
+7. Eyes Of Fire
+8. The Fury
+9. New King Of Kaledon
+10. The Prophecy
+11. Out Of The Ground
+
+### "Legend of the Forgotten Reign - Chapter 5 "A New Era Begins"" 2008, Power Metal
+
+1. A New Man
+2. A Wounded Friend
+3. Mozul
+4. Undeads Again
+5. The End Of The Green Power
+6. A Flash In The Sky
+7. Great Mighty Light (instrumental)		 
+8. The Greatest Heart
+9. The God Beyond The Man
+10. Return To Kaledon
+
+### "Legend of the Forgotten Reign - Chapter 6 "The Last Night on the Battlefield"" 2010, Power Metal
+
+1. The Way to Home
+2. Last Days
+3. Power in Me
+4. Coming Back to Our Land
+5. Sorumoth
+6. Surprise Impact
+7. Black Clouds
+8. Demons Away
+9. May the Dragon Be with You
+
+### "Mightiest Hits [2CD compilation]" 2012, Power Metal
+
+Disc 1
+1.	 Steel Maker (Previously Unreleased)	07:16	 
+2.	 In Search of Kaledon	03:38	 
+3.	 Desert Land of Warriors	05:32	 
+4.	 The New Kingdom	04:45	 
+5.	 A Frozen Dawn	05:31	 
+6.	 Mighty Son of the Great Lord	05:41	 
+7.	 Great Night in the Land	04:00	 
+8.	 Clash of the Titans	04:31	 
+9.	 New King of Kaledon	03:36	 
+10.	 The End of the Green Power	04:25	 
+11.	 The God Beyond the Man	05:09	 
+12.	 Surprise Impact	04:16	 
+13.	 Demons Away	05:49	 
+ 	01:04:09	 
+Disc 2
+1.	 In Search of Kaledon (Demo)	03:38	 
+2.	 Spirit of the Dragon (Demo)	04:19	 
+3.	 Thunder in the Sky (Demo)	03:31	 
+4.	 God Says Yes (Demo)	04:34	 
+5.	 Army of the Undead King (Demo)	03:38	 
+6.	 Desert Land of Warriors (Demo)	05:31	 
+7.	 God Says Yes (Demo)	04:34	 
+8.	 Thunder in the Sky (Demo)	04:04	 
+9.	 Desert Land of Warriors (Demo)	05:31	 
+10.	 Home (Demo)		 
+11.	 New Soldiers for a New Army (Demo)	
+
 
 ## Отношения с другими группами
 

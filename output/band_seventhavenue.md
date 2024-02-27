@@ -1,12 +1,103 @@
 # Seventh Avenue
 
-Дискография
-"Rainbowland" 1995, Progressive
-"Tales of Tales" 1996, Progressive
-"Southgate" 1998, Progressive
-"Between the Worlds" 2003, Progressive
-"Eternals" 2004, Progressive
-"Terium" 2008, Progressive
+
+
+## Дискография
+
+### "Rainbowland" 1995, Progressive
+
+1.	 Theme from Rainbowland	 
+2.	 Rainbowland
+3.	 Way to Paradise ('95 version)
+4.	 Pray
+5.	 Loving You
+6.	 On the Road Again
+7.	 Funeral Speech	 
+8.	 Rest in Peace
+9.	 Die
+10.	 Just Believe
+11.	 Love Goes
+12.	 Children
+13.	 Prince of Peace
+14.	 Loving You (Metal Version) *
+
+### "Tales of Tales" 1996, Progressive
+
+1.	 Prolog
+2.	 Tales of Tales
+3.	 Heavens Tears
+4.	 Time
+5.	 Temptation
+6.	 Where Are You?
+7.	 Grave of Heart
+8.	 Iron Man
+9.	 Pink Elephant
+10.	 This Night
+11.	 Sailing (The Sutherland Brothers Band cover)
+
+### "Southgate" 1998, Progressive
+
+1.	 Introduce
+2.	 Southgate
+3.	 Protection Of Fool
+4.	 Carol
+5.	 Father
+6.	 May The Best One Win
+7.	 Puppet Of The Mighty
+8.	 Storm 1
+9.	 Heart In Your Hand
+10.	 Nameless Child
+11.	 Big City Sharks
+12.	 Goodbye
+
+### "Between the Worlds" 2003, Progressive
+
+1.	 Beyond the Ocean (Intro) 
+2.	 A Step Between the Worlds
+3.	 Levy Your Soul from Hate
+4.	 Tale of the Forgotten Dreams
+5.	 Angels Eyes
+6.	 Open Your Mind
+7.	 Storm II
+8.	 Until You Come Again
+9.	 Wings of Dawn
+10.	 Touch of Your Love
+11.	 Burning Heart
+12.	 One Life Ends
+
+### "Eternals" 2004, Progressive
+
+1.	 Battle For Destiny	 
+2.	 Eternals
+3.	 Future Tale
+4.	 Raging Fire
+5.	 Juggler of Words
+6.	 Remission
+7.	 Infinite King
+8.	 Storm III	 
+9.	 Hunger For Life
+10.	 Heaven Can't Wait
+11.	 Voices
+12.	 Domination Of Sin
+
+### "Terium" 2008, Progressive
+
+1.	 Under the Surface	 
+2.	 Crowd in the Dark
+3.	 Terium
+4.	 Authorities
+5.	 Futures Dawn
+6.	 Brighter than the Sun
+7.	 Needs
+8.	 Two Masters
+9.	 Hands of the King
+10.	 Priests and Servants
+11.	 Trail of Blood
+12.	 Betrayal
+13.	 Way to the Stars
+14.	 Innocence
+15.	 New Era
+
 
 ## Отношения с другими группами
 

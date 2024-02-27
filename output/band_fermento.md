@@ -1,9 +1,41 @@
 # Fermento
 
-Дискография
-"Symbols of Decrepitude, Symbols of Supremacy" 1997, Deathcore
-"Insignia" 2004, Deathcore
-"Recipe For Cremation" 2009, Deathcore
+
+
+## Дискография
+
+### "Symbols of Decrepitude, Symbols of Supremacy" 1997, Deathcore
+
+1. I'm Still The Lone Revengeful Wolf 04:33
+2. Symbols of Supremacy 03:57
+3. Murder In Mind 03:22 
+4. Inmortal Fever of Desire 04:58
+5. Gardens of Maturity 05:23 
+6. Shoot Some Brains 03:19
+7. Symbols of Decrepitude 04:39 
+8. Never Forget The Rains 05:25 
+
+### "Insignia" 2004, Deathcore
+
+1. Insignia 05:29
+2. March of The Brute 02:01  
+3. Untermensch 05:02
+4. Hunger Among Wolves 06:02
+5. Only The Strong Should Dominate 04:01
+6. Messiah To Burn 03:08
+7. Falling For Wotan 07:21 
+
+### "Recipe For Cremation" 2009, Deathcore
+
+1. Turned to Ash 05:10  
+2. Ca3(Po4)2 03:05
+3. Eugenic Saprogen 04:36  
+4. Vos Estis Pulvis et Cinis 04:53  
+5. The Embryo of a God 04:35  
+6. Triumpherator 05:00  
+7. Dopagenic Destination 05:00  
+8. Let me Hear the Bombs 06:45 
+
 
 ## Отношения с другими группами
 

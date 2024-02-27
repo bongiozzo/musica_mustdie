@@ -1,8 +1,53 @@
 # Digital Poodle
 
-Дискография
-"Soul Crash" 1992, Industrial
-"Division !" 1994, Industrial
+
+
+## Дискография
+
+### "Soul Crash" 1992, Industrial
+
+1. Restrained
+2. Work Terminal
+3. Revoltnika !
+4. Free Man
+5. Nasty
+6. Mekanik
+7. Repeal The Deal
+8. Broadcast IV
+
+All Songs Written By DIGITAL POODLE.
+Produced By DIGITAL POODLE.
+Recorded & Produced At Shadow H.Q. 
++ Laurel Studios, Toronto 1991.
+
+Mout 392 - Voice + Elektroniks
+Pupka - Machinery
+Reduct - Treatments
+
+(P)&(C) 1992 DOVentertainment Inc.
+
+### "Division !" 1994, Industrial
+
+1. Division !
+2. Forward March
+3. Totalitarian !
+4. Head Of Lenin
+5. Left / Right
+6. Binary
+7. Elektronik Espionage
+8. Crack
+
+Composed - Produced By DIGITAL POODLE.
+Vocal Engineering + Digital Mix By David Newfeld.
+Recorded At Shadow H.Q. + Laurel Studios, Elektroblitz, Toronto.
+Mixed & Mastered At Jupiter Sound, Toronto.
+
+Mout 392 - Voice & Machinery
+Pupka - Electroniks
+Reduct - Treatments
+
+(P)&(C) 1994 DOVentertainment
+
 
 ## Отношения с другими группами
 

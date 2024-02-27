@@ -1,7 +1,13 @@
 # Carnal Grief
 
-Дискография
-"Out Of Crippled Seeds" 2004, Melodic Death Metal
+
+
+## Дискография
+
+### "Out Of Crippled Seeds" 2004, Melodic Death Metal
+
+
+
 
 ## Отношения с другими группами
 

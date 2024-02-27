@@ -1,6 +1,9 @@
 # Arabesque
 
-Дискография
+progressive metalband with two female singers
+
+## Дискография
+
 
 ## Отношения с другими группами
 

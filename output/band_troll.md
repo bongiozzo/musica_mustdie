@@ -1,11 +1,89 @@
 # Troll
 
-Дискография
-"Drep De Kristine" 1995, Black Metal
-"Trollstorm Over Nidingjuv" 1996, Black Metal
-"The Last Predators" 2000, Black Metal
-"Universal" 2001, Black Metal
-"Neo-Satanic Supremacy" 2010, Black Metal
+Main project of Nagash (The Kovenant, ex-Dimmu Borgir)
+
+## Дискография
+
+### "Drep De Kristine" 1995, Black Metal
+
+1. Kristenhat
+2. Naar Solen Blekner Bort
+3. Med Vold Skal Takes Kristcnliv
+4. Trollberg
+5. I Saler Av Sten
+6. Troll Kiket
+7. Gud's Fall
+8. Drep De Kristne
+
+Recorded and Mixed at Lydstudio by Det Ukjente
+Produced by Nagash and Den Ukjente.
+Cover Artwork by KURTAGIC ILLUSTRATIONS.
+
+(P)(C) 1997 DAMNATION Records // D4
+
+### "Trollstorm Over Nidingjuv" 1996, Black Metal
+
+1. Naar Natten Endelig Er Her 4:36
+2. Trollstorm Over Nidingjuv 3:49
+3. Over Daudens Kolde Mark 3:38
+4. I Et Hedensk Land  4:14
+
+### "The Last Predators" 2000, Black Metal
+
+Bastards Last Breath (intro) 
+Fall of the Mrbeled Galaxy 
+Seierens Strеler 
+Mending the Instincts 
+Colony X-11- Inflict Mythical Mayhem 
+My Glance into the Narrow Room 
+Eyes as in I 
+A.T. the Riddle 
+The Last Predators 
+Frelserens Visjoner 
+(untitled) 
+
+~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~`
+Voices and Poetry: S.M.Twice
+All Psychotic Music: Nagash 
+
+Recorded at Frogner Jern & Metal 
+Distributed by Voices of Wonder AS  
+Mastered at T-4's Deepspace/2000
+
+2000 © HEAD NOT FOUND Records
+
+### "Universal" 2001, Black Metal
+
+1. Intro: My Sculphur Lover (Nagash) - 4:53 
+2. Rex Lamictal (Nagash/SMT) - 4:33 
+3. Sannhetens Plagiat (Nagash/SMT) - 3:59 
+4. President Besters Alimony (Nagash/SMT) - 3:48 
+5. Intermission 666 (Nagash) - 4:25 
+6. Entering the Fluid Oxygen (Nagash/SMT) - 3:35 
+7. Color of Evil (Mr. Hellhammer/Nagash) - 3:35 
+8. Fields of a New Sun (Nagash/SMT) - 2:43 
+9. Outro: Please the Pain (Nagash) - 4:20 
+
+Line-up:
+Nagash
+SMT = Sinister Minister Twice
+Mr. Hellhammer
+
+(c)(p)Head Not Found
+
+### "Neo-Satanic Supremacy" 2010, Black Metal
+
+1. Til Helvete Med Alt 04:12  
+2. Alt for Satan 03:17  
+3. Gе Til Krig 04:21  
+4. Burn the Witch 04:53  
+5. Mшrkets Skoger 05:39  
+6. Hvor Tеken Ligger Sе Trist Og Grе 06:11  
+7. Neo-Satanic Supremacy 02:29  
+8. At the Gates of Hell 02:54  
+9. Smertens Rike 03:39  
+10. The Age of Satan 03:43 
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,37 @@
 # Godiva
 
-Дискография
-"Godiva" 2003, Power Metal
-"Call Me Inder 666" 2005, Power Metal
+
+
+## Дискография
+
+### "Godiva" 2003, Power Metal
+
+The Gate 
+Razorblade Romantic 
+Heavy Metal Thunder 
+One Shot 
+Nightmare 
+Cold Blood 
+Where Angels Die 
+Riding Through Time 
+Let the Tanks Roll 
+Bullshit Lover 
+Sinner
+
+### "Call Me Inder 666" 2005, Power Metal
+
+Headache Machine 
+Hellraiser 
+Call Me Under 666 
+My Fate 
+When Lightning Strikes 
+Only Heaven Knows 
+The Flight of the Dragon 
+Maneater 
+Proud to Be A Beast 
+Soulkiller 
+Free My Soul
+
 
 ## Отношения с другими группами
 

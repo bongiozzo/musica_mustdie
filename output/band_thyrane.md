@@ -1,11 +1,80 @@
 # Thyrane
 
-Дискография
-"Black Harmony [EP]" 1997, Black Metal
-"Symphonies of Infernality" 1999, Black Metal
-"The Spirit Of Rebellion" 2000, Black Metal
-"Hypnotic" 2003, Black Metal
-"Travesty Of Heavenly Essence" 2005, Black Metal
+(Finnish Black Metal)
+
+## Дискография
+
+### "Black Harmony [EP]" 1997, Black Metal
+
+1. Black Harmony
+2. Sacrifires
+3. Enthroned by Antichrist
+4. Satanic Ages Overture 
+
+
+Recorded and mixed at Tico-Tico Studios 5.-7.12.1997.
+Released as self-financed demo tape in the beginning of 1998 and later on same year as mcd by Woodcut Records 
+
+Re-released in Autumn 2001 as a split CD with The Dead Beginners by Spikefarm Records.
+
+
+### "Symphonies of Infernality" 1999, Black Metal
+
+1. Intro
+2. In the Shape of a Demon
+3. Satanist
+4. Black Atmospheric Madness
+5. Symphony of Infernality
+6. Envenomed Suicide Angels
+7. Crimson Halls of Blood
+8. Beneath the Banner of the Unholy Satan's Cult
+9. Devil Messiah
+
+
+### "The Spirit Of Rebellion" 2000, Black Metal
+
+1. Insidious Dream of Inhuman Fear
+2. Soulless and Broken
+3. Chaotic Profane Phenomena
+4. Crushing Defeat of the Triune Godhead
+5. Thy World Inverted
+6. Words of the Prophet
+7. Blindfolded
+
+
+### "Hypnotic" 2003, Black Metal
+
+1. Human Weed
+2. Firework 
+3. Glamorama Demystified 
+4. Dance In The Air 
+5. Armaya
+6. The Symptomatic 
+7. Phantasmal Paranoia
+8. Sickening
+9. Of Suns And Flames
+10. Heretic Hunt 
+
+### "Travesty Of Heavenly Essence" 2005, Black Metal
+
+01. Parasites of Submission 
+02. Decay of christian Empire 
+03. Travesty of Heavenly Essence 
+04. Nox Diaboli 
+05. Legacy of Saints in Disguise 
+06. Deteriorated 
+07. Truth Revealed 
+08. Tolerance 
+09. Divinity Under Will 
+10. Prisoner of Pain 
+11. Lost in Reflection 
+
+Line-Up: 
+Hannamari - synth 
+Blastmor - Vocals, Guitars 
+Daemon - bass 
+Kristonic - Drums
+
 
 ## Отношения с другими группами
 

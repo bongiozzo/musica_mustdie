@@ -1,11 +1,87 @@
 # Astral Doors
 
-Дискография
-"Of the Son and the Father" 2003, Power Metal
-"Evil Is Forever" 2005, Power Metal
-"Astralism" 2006, Power Metal
-"New Revelation" 2007, Power Metal
-"Requiem of Time" 2010, Power Metal
+
+
+## Дискография
+
+### "Of the Son and the Father" 2003, Power Metal
+
+1. Cloudbreaker  03:31   
+2. Of the Son and the Father  04:56 
+3. Hungry People  03:40  
+4. Slay the Dragon  03:39   
+5. Ocean of Sand  03:52   
+6. In Prison For Life  04:13  
+7. The Trojan Horse  04:36   
+8. Burn Down the Wheel  03:33 
+9. Night of the Witch  03:45 
+10. Rainbow in Your Mind  03:50 
+11. Man on the Rock  03:03
+12. Far Beyond the Astral Doors (Japan bonus track)  
+13. Moonstruck Woman (Japan bonus track)  03:25 
+
+### "Evil Is Forever" 2005, Power Metal
+
+1. Bride of Christ  03:41   
+2. Time to Rock  04:05   
+3. Evil is Forever  05:25   
+4. Lionheart  05:09   
+5. Praise the Bones  03:34   
+6. Pull the Break  03:42   
+7. Fear in Their Eyes  04:54 
+8. Stalingrad  04:23   
+9. From the Cradle to the Grave  03:56
+10. The Flame  03:38 
+11. Path to Delirium  06:55 
+
+### "Astralism" 2006, Power Metal
+
+1. EVP  03:25  
+2. Black Rain  04:27   
+3. London Caves  03:31   
+4. From Satan With Love  03:31 
+5. Fire in Our House  03:30
+6. Israel  05:01   
+7. Raiders of the Ark  03:20   
+8. Tears From a Titan  04:48  
+9. Oliver Twist  03:48 
+10. Vendetta  03:37  
+11. The Green Mile  04:16  
+12. In Rock We Trust  03:58
+13. Apocalypse Revealed  07:40
+14. The Astral Friar (Bonus Japan)  
+
+### "New Revelation" 2007, Power Metal
+
+1. New Revelation  04:27   
+2. Freedom War  04:15 
+3. Pentecostal Bound  03:13 
+4. Bastard Son  05:04   
+5. Waiting For The Master  05:03  
+6. Planet Earth  03:56  
+7. Quisling  04:00   
+8. Cold War Survivor  03:43  
+9. The Gates Of Light  03:55
+10. Shores Of Solitude  03:28   
+11. Mercenary Man  06:32 
+
+### "Requiem of Time" 2010, Power Metal
+
+1. Testament Of Rock  05:30   
+2. Power And The Glory  04:10  
+3. Rainbow Warrior  03:43  
+4. Call Of The Wild  03:22   
+5. St. Peter's Cross  05:01   
+6. So Many Days So Many Nights  03:49   
+7. Blood River  04:30   
+8. Anthem Of The Dark  04:05  
+9. Metal DJ  03:43
+10. Fire And Flame  04:20
+11. Greenfield Of Life  03:35 
+12. The Healer  03:56  
+13. Evil Spirits Fly  04:12  
+14. When Darkness Comes  05:04 
+
 
 ## Отношения с другими группами
 

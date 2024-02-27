@@ -1,8 +1,17 @@
 # Essence Of Existence
 
-Дискография
-"Of Bloody Tears" 2000, Death Doom
-"Ephemeris Sun" 2003, Melodic Death Metal
+Slovacian death-doom
+
+## Дискография
+
+### "Of Bloody Tears" 2000, Death Doom
+
+
+
+### "Ephemeris Sun" 2003, Melodic Death Metal
+
+
+
 
 ## Отношения с другими группами
 

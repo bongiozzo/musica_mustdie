@@ -1,7 +1,22 @@
 # Sycronomica
 
-Дискография
-"Gate" 2007, Black Metal
+
+
+## Дискография
+
+### "Gate" 2007, Black Metal
+
+01. Preludium II
+02. Beyond The Gate Of Light
+03. Fur Die Ewigkeit
+04. In The Distance...
+05. Von Ende und Anfang
+06. To The Rivers End
+07. Farewell Olden World
+08. Unleashed From Ancient Chains
+09. Nachtwanderung
+10. The Nighly Forces
+
 
 ## Отношения с другими группами
 

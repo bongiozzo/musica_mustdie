@@ -1,13 +1,86 @@
 # Agalloch
 
-Дискография
-"Pale Folklore" 1999, Black Metal
-"Of Stone Wind And Pillor" 2001, Black Metal
-"The Mantle" 2002, Black Metal
-"Ashes against the Grain" 2006, Metal
-"The White" 2008, Folk
-"Marrow of the Spirit " 2010, Metal
-"The Serpent & the Sphere" 2014, Metal
+
+
+## Дискография
+
+### "Pale Folklore" 1999, Black Metal
+
+1. She Painted Fire Across The Skyline
+2. She Painted Fire Across The Skyline-II
+3. She Painted Fire Across The Skyline-III
+4. The Misshapen Steed
+5. Hallways Of Enchanted Ebony
+6. Dead Winter Days
+7. As Embers Dress The Sky
+8. The Melancholy Spirit
+
+
+### "Of Stone Wind And Pillor" 2001, Black Metal
+
+1. Of Stone, Wind, And Pillor
+2. Foliorum Viridium
+3. Haunting Birds
+4. Kneel To The Cross
+5. A Poem By Yeats 
+
+### "The Mantle" 2002, Black Metal
+
+1. A Celebration For The Death Of Man...
+2. In The Shadow Of Our Pale Companion
+3. Odal
+4. I Am The Wooden Doors
+5. The Lodge
+6. You Were But A Ghost In My Arms
+7. The Hawthorne Passage
+8. ...And The Great Cold Death Of The Earth
+9. A Desolation Song 
+
+### "Ashes against the Grain" 2006, Metal
+
+1. Limbs
+2. Falling Snow
+3. This White Mountain On Which You Will Die
+4. Fire Above, Ice Below 
+5. Not Unlike The Waves 
+6. Our Fortress Is Burning... I 
+7. Our Fortress Is Burning... II - Bloodbirds 
+8. Our Fortress Is Burning... III - The Grain
+
+### "The White" 2008, Folk
+
+1. The Isle Of Summer 03:58  
+2. Birch Black 02:40  
+3. Hollow Stone 04:15  
+4. Pantheist 07:17  
+5. Birch White 03:44  
+6. Sowilo Rune 05:40  
+7. Summerisle Reprise 04:55
+
+### "Marrow of the Spirit " 2010, Metal
+
+1. They Escaped the Weight of Darkness 03:41  
+2. Into the Painted Grey 12:25  
+3. The Watcher's Monolith 11:46  
+4. Black Lake Nidstеng 17:34  
+5. Ghosts of the Midwinter Fires 09:39  
+6. To Drown 10:27 
+
+
+### "The Serpent & the Sphere" 2014, Metal
+
+1. Birth and Death of the Pillars of Creation  10:30    
+2. (Serpens Caput)  03:08  
+3. The Astral Dialogue  05:13   
+4. Dark Matter Gods  08:38    
+5. Celestial Effigy  06:59   
+6. Cor Serpentis (The Sphere)  03:00  
+7. Vales Beyond Dimension  06:50  
+8. Plateau of the Ages  12:28  
+9. (Serpens Cauda)  03:12 
+
+
+
 
 ## Отношения с другими группами
 

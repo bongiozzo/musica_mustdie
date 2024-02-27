@@ -1,7 +1,13 @@
 # Deathlike Silence
 
-Дискография
-"Vigor Mortis" 2007, Heavy Metal
+
+
+## Дискография
+
+### "Vigor Mortis" 2007, Heavy Metal
+
+
+
 
 ## Отношения с другими группами
 

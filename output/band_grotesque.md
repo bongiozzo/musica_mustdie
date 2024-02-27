@@ -1,8 +1,39 @@
 # Grotesque
 
-Дискография
-"Incantation" 1991, Death Metal
-"In The Embrace Of Evil" 1997, Death Metal
+
+
+## Дискография
+
+### "Incantation" 1991, Death Metal
+
+Incantation
+Spawn of Azathoth
+Nocturnal Blasphemies
+Submit To Death
+Blood Runs From The Altar
+
+Studio: Studio Sunlight & Ken's Pagan Studios
+Produced by: Thomas Skogsberg & Grotesque
+Cover artwork: Anders Bjцrler & Alf Svensson
+
+### "In The Embrace Of Evil" 1997, Death Metal
+
+Thirteen Bells Of Doom
+Blood Runs From The Altar
+Submit To Death
+Fall Into Decay
+Seven Gates
+Angels Blood
+Noctunal Blasphemies
+Spawn Of Azathoth
+Incantation
+Church Of The Pentagram
+Ripped From The Cross
+
+Studio: Studio Sunlight, Pagan Studios & Berno studio
+Produced by: Berno Paulsson, Thomas Skogsberg & Grotesque
+Cover artwork: Necrolord
+
 
 ## Отношения с другими группами
 

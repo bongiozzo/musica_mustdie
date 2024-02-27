@@ -1,8 +1,56 @@
 # Dub War
 
-Дискография
-"Pain" 1995, Rap Metal
-"Wrongside Of  Beautiful" 1996, Rap Metal
+
+
+## Дискография
+
+### "Pain" 1995, Rap Metal
+
+1. Why
+2. Mental
+3. Nar Say A Ting
+4. Mad Zone
+5. Strike It
+6. Respected
+7. Nations
+8. Gorrit
+9. Spiritual Warfare
+10. Fools Gold
+11. Over Now
+
+All Songs Written By DUB WAR
+Produced By Bryan New
+Recorded & Mixed At Chapek Studios, Lincolnshrine
+
+(p)&(c) 1995 EARACHE Records
+
+### "Wrongside Of  Beautiful" 1996, Rap Metal
+
+1.  Control
+2.  Armchair Thriller
+3.  Greedee
+4.  Baseball Bat
+5.  One Chill
+6.  Enemy Maker
+7.  Million Dollar Love
+8.  Silencer
+9.  Cry Dignity
+10.Can't Stop
+11.Prisoner
+12.Love Is 
+13.Mission
+14.Universal Jam
+
+Produced and Engineered and Mixed by Paul Schroder.
+
+Recorded at Rockfield Studios.
+Mixed at Parr Studios.
+Mastered by Ian Anderson at Battery.
+All tracks written by R.F.Cover / C.J. Webbe / J.Rose / M / Ford.
+Band residence: UK.
+
+(p)(c) 1996 EARACHE  Mosh 159
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,13 @@
 # Dimension Of Doomed
 
-Дискография
-"Sacramental Oblivion" 2006, Death Metal
+
+
+## Дискография
+
+### "Sacramental Oblivion" 2006, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

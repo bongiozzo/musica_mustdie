@@ -1,6 +1,9 @@
 # Disfigurement
 
-Дискография
+russian brutal gore death metal
+
+## Дискография
+
 
 ## Отношения с другими группами
 

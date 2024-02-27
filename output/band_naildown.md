@@ -1,7 +1,28 @@
 # Naildown
 
-Дискография
-"World Domination" 2005, Melodic Death Metal
+
+
+## Дискография
+
+### "World Domination" 2005, Melodic Death Metal
+
+01. Reflecting My Descent 
+02. Prolong Your Fate 
+03. Hollow Syndicate 
+04. Evil Deeds 
+05. Next Infinity 
+06. Eyes Wide Open 
+07. Broken Down 
+08. World Domination 
+09. Fragile Side 
+10. Shining Throne 
+
+Line-Up: 
+Daniel Freyberg - vocals, guitar 
+Jarmo Puikkonen - keys 
+Matti Hдmдlдinen - bass 
+Harri Heikkinen - drums
+
 
 ## Отношения с другими группами
 

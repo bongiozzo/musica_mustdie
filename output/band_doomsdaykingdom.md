@@ -1,6 +1,9 @@
 # Doomsday Kingdom
 
-Дискография
+Leif Edling project
+
+## Дискография
+
 
 ## Отношения с другими группами
 

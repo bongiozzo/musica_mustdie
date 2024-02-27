@@ -1,7 +1,25 @@
 # Pariah
 
-Дискография
-"The Kindred" 1988, Thrash
+
+
+## Дискография
+
+### "The Kindred" 1988, Thrash
+
+ Side One:
+1. Gerrymander 4.51
+2. The Rope 4.54
+3. Scapegoat 6.05
+4. Foreign Bodies 4.41
+ Side Two:
+1. La Guerra 1.51
+2. Inhumane 5.58
+3. Killing For Company 5.00
+4. Icons Of Hypocrisy 4.48
+5. Promise Of Remembrance 5.17
+
+(p)&(c) 1988 STEAMHAMMER Records
+
 
 ## Отношения с другими группами
 

@@ -1,10 +1,56 @@
 # My Fate
 
-Дискография
-"Happiness Is Fiction" 2004, Death Metal
-"Kill the Light" 2005, Metalcore
-"MMVI [EP]" 2007, Metalcore
-"Room for Regret" 2010, Metalcore
+
+
+## Дискография
+
+### "Happiness Is Fiction" 2004, Death Metal
+
+Spawns Within 
+Failure 
+These Demons 
+Detoxify 
+Circumstance 
+I Am The Ocean 
+Sinking 
+Silent Cries 
+With No Scars 
+Scknss
+
+### "Kill the Light" 2005, Metalcore
+
+1. Intro	01:02	
+2. Sacrilegehymn	03:10	
+3. Cold Hive of Death	05:24	
+4. Distinction	03:41	
+5. Dead Man	04:17	
+6. Baneflow Cycle	04:45	
+7. The Claw	03:25	
+8. I Buried You	04:12	
+9. Totalitarian	03:21	
+10. Dim the Light	03:31	
+11. Embody Me	04:13	
+12. The Darkness Beckons	05:04
+
+### "MMVI [EP]" 2007, Metalcore
+
+1. Upstream	03:53
+2. Noise Machine	03:54
+3. Drifting in Shadows	06:19
+4. Follow the Blind	06:51
+
+### "Room for Regret" 2010, Metalcore
+
+1. Unchained	04:30	
+2. Reptile	05:06	
+3. Fulfilth	04:39	
+4. Forgot the Sun	05:08	
+5. Run Dry, Drop Dead	06:44	
+6. Snap	02:17	
+7. Giant Collapse	04:01	
+8. Dead Shell	03:50	
+9. Won’t You Already Die	01:43
+
 
 ## Отношения с другими группами
 

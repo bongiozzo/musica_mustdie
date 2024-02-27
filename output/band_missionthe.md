@@ -1,7 +1,13 @@
 # Mission, The
 
-Дискография
-"God Is A Bullet" 2007, Gothic
+
+
+## Дискография
+
+### "God Is A Bullet" 2007, Gothic
+
+
+
 
 ## Отношения с другими группами
 

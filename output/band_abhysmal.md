@@ -1,7 +1,13 @@
 # Abhysmal
 
-Дискография
-"_" , Grindcore
+Death/Grind from Brazilia
+
+## Дискография
+
+### "_" , Grindcore
+
+
+
 
 ## Отношения с другими группами
 

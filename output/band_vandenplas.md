@@ -1,14 +1,144 @@
 # Vanden Plas
 
-Дискография
-"Colour Temple" 1995, Progressive
-"Accult" 1996, Progressive
-"The God Thing" 1997, Progressive
-"Far Off Grace" 1999, Progressive
-"Spirit Of Live" 2000, Progressive
-"Beyond Daylight" 2002, Progressive
-"Christ.O" 2006, Progressive
-"The Seraphic Clockwork" 2010, Progressive
+
+
+## Дискография
+
+### "Colour Temple" 1995, Progressive
+
+Father 
+Push 
+When The Wind Blows 
+My Crying 
+Soul Survives 
+Anytime 
+Judas 
+Back To Me 
+How Many Tears 
+Fire (Bonus Track) 
+Days Of Thunder (Bonus Track) 
+
+### "Accult" 1996, Progressive
+
+Intro / My Crying 
+Intro / Kayleigh 
+Father 
+Georgia On My Mind 
+How Many Tears 
+Des Hauts, Des Bas 
+Spanish Rain 
+Days Of Thunder 
+Raining In My Heart (Bonus Track
+
+### "The God Thing" 1997, Progressive
+
+Fire Blossom 
+Rainmaker 
+Garden Of Stones 
+In You: I Believe 
+Day I Die 
+Crown Of Thorns 
+We're Not God 
+Salt In My Wounds 
+You Fly 
+Spanish Rain (bonus)
+Days Of Thunder (bonus)
+Raining In My Heart )bonus)
+ 
+
+
+### "Far Off Grace" 1999, Progressive
+
+I Can See 
+Far Off Grace 
+Into the Sun 
+Where Is The Man 
+Iodic Rain 
+I Don't Miss You 
+Inside Of Your Head 
+Fields Of Hope 
+I'm In You 
+Kiss Of Death (Bonus Track) 
+
+### "Spirit Of Live" 2000, Progressive
+
+I Can See 
+Into The Sun 
+Soul Survives 
+How Many Tears 
+I Don't Miss You (Euro Version) 
+Journey To Paris 
+Spirit Of Life 
+Iodic Rain 
+Far Off Grace 
+Kiss Of Death (Euro Version) 
+Rainmaker 
+You Fly (American Version) 
+
+### "Beyond Daylight" 2002, Progressive
+
+1. Nightwalker 
+2. Cold Wind 
+3. Scarlet Flowerfields 
+4. Healing Tree 
+5. End Of All Days 
+6. Free The Fire 
+7. Can You Hear Me 
+8. Phoenix 
+9. Beyond Daylight
+
+Bonus track on initial pressing: Point Of No Return (Kansas cover)
+
+
+### "Christ.O" 2006, Progressive
+
+1. Christ 0 05:35 
+2. Postcard to God 06:17 
+3. Wish You Were Here 09:14
+4. Silently 08:31
+5. Shadow I Am 05:28
+6. Fireroses Dance 06:03 
+7. Somewhere Alone in the Dark 05:30 
+8. January Sun 10:05  
+9. Lost in Silence 04:19 
+
+
+
+Line Up:
+Andy Kuntz - Vocals
+Stephan Lill - Guitar
+Torsten Reichert - Bass
+Gunter Werno - Keyboards
+Andreas Lill - Drums
+
+Bonus track on initial pressing:
+10. Gethsemane
+
+"Christ.0" is a concept album inspired by Alexandre Dumas' novel "The Count of Monte Cristo" 
+
+### "The Seraphic Clockwork" 2010, Progressive
+
+1. Frequency 06:15  
+2. Holes In The Sky 05:25  
+3. Scar of an Angel 07:26  
+4. Sound of Blood 06:47  
+5. The Final Murder 09:53  
+6. Quicksilver 08:54  
+7. Rush of Silence 09:22  
+8. On My Way to Jerusalem 12:51 
+
+
+
+The digipak features a Bonus-Track and a multimedia video.
+
+Bonus-Track:
+9. Eleyson - (5:34)
+
+Multimedia video:
+Numquid Dari Pars II - Numquid Dari Pars III
+
+The Bonus-Track is taken from the Rock-Oratorium "Ludus Danielis" 
+
 
 ## Отношения с другими группами
 

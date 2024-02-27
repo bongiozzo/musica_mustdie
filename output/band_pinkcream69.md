@@ -1,18 +1,211 @@
 # Pink Cream 69
 
-Дискография
-"Pink Cream 69" 1989, Heavy Metal
-"One Size Fits All" 1991, Heavy Metal
-"Games People Play" 1993, Heavy Metal
-"Change" 1995, Heavy Metal
-"Food For Thought" 1997, Heavy Metal
-"Electrified" 1998, Heavy Metal
-"Sonic Dinamite" 2000, Heavy Metal
-"Endangered" 2001, Heavy Metal
-"Thunderdome" 2004, Heavy Metal
-"In10sity" 2007, Heavy Metal
-"Live In Karlsruhe" 2009, Heavy Metal
-"Ceremonial " 2013, Heavy Metal
+
+
+## Дискография
+
+### "Pink Cream 69" 1989, Heavy Metal
+
+1. Take Those Tears 04:26 
+2. Sugar For Love 04:15
+3. Rolling Down a Thunder 03:41
+4. One Step Into Paradise 03:52
+5. Close Your Eyes 03:38
+6. Welcome the Night 05:00
+7. Partymaker 03:45 
+8. Hit the Bottom Row 03:14 
+9. I Only Wanna Be for You 04:00
+10. Child of Sorrows (Bonus Track) 03:27
+11. Shadows are Falling (Bonus Track) 04:10
+12. White Men Do No Reggae (Japanese Bonus) 03:34 
+
+### "One Size Fits All" 1991, Heavy Metal
+
+1. Livin' My Life For You 04:02
+2. Talk to the Moon 04:27
+3. Hell's Gone Crazy 04:31
+4. Do You Like it Like That 04:02
+5. Ballerina 03:41
+6. Signs of Danger 03:57 
+7. Walkin' Out to Heaven 04:16 
+8. Stray Kid 04:00
+9. Piggy Back Bitch 03:40 
+10. Where the Eagle Learns to Fly 04:34 
+11. We Taught the Children 03:56 
+
+### "Games People Play" 1993, Heavy Metal
+
+1. Face in the Mirror 04:47 
+2. Way Down 05:11 
+3. Keep Your Eye on the Twisted 03:30 
+4. Somedays I Sail 04:58
+5. Shattered 03:59
+6. Monday Again 03:11
+7. Dyin' Century 04:38
+8. Till You're Mine 03:42
+9. Still Alive 04:56 
+10. Down on Your Luck 04:13 
+11. Backflash 00:58  
+12. Condemnation 04:29
+13. Don't Let it All Come Down 03:32 
+
+### "Change" 1995, Heavy Metal
+
+1. Funny Words 04:36
+2. Light of Day 03:38 
+3. Change 04:16 
+4. Yesterdays 04:11
+5. Two Hours 03:52
+6. Something I Said 03:18 
+7. Only the Good 03:52
+8. 20th Century Boy 03:25
+9. Queen Bee 04:36
+10. Stretch the Truth 04:06
+11. New Control 04:01
+12. Freakshow 04:37 
+
+### "Food For Thought" 1997, Heavy Metal
+
+1. Snap 02:57  
+2. Big Shot 02:48
+3. Anger 03:34
+4. Digging Through the Past 04:09
+5. Better Days 03:23  
+6. Until I Wake 04:04 
+7. Fate 03:56
+8. We Will Rock You (Queen cover) 01:56  
+9. Dead Man's Scream 04:12  
+10. Pass You By 03:33 
+11. Other Side 04:05
+12. Fly On 03:06
+13. Sorry 03:22
+14. (Down) My Way 04:49 
+
+### "Electrified" 1998, Heavy Metal
+
+1. Shame 04:46 
+2. Stranger in Time 05:49
+3. Break the Silence 03:54
+4. Electrified 03:29 
+5. Over the Fire 04:24
+6. Losing My Faith 05:04
+7. Higher Kind of Life 03:53
+8. Burn Your Soul 03:38
+9. Rocket Ride 04:52 
+10. Best for You 03:47 
+11. Gone Again 04:32
+12. Gone Again (alternate version) 04:33 
+
+### "Sonic Dinamite" 2000, Heavy Metal
+
+1. Passage to Hope (intro) 01:23  
+2. Seas of Madness 05:15
+3. Followed by the Moon 04:39
+4. Sonic Dynamite 03:10
+5. The Spirit 04:41 
+6. Speed of Light 04:46
+7. Waiting for the Dawn 04:49
+8. Let the Thunder Reside 05:09
+9. Lost in Illusions 04:13
+10. Face of an Angel 04:13
+11. Shattered Prophecy 03:51 
+12. Spread Your Wings 05:04 
+
+### "Endangered" 2001, Heavy Metal
+
+1. Intro 01:06  
+2. Shout! 03:51
+3. Promised Land 05:10 
+4. Trust the Wiseman 04:12
+5. Don't Need Your Touch 04:26
+6. He Took the World 05:37 
+7. Enslaved 04:11
+8. In My Dreams 03:41
+9. High as a Mountain 04:10
+10. Shadows of Time 04:24
+11. Pinball Wizard (The Who cover) 03:28
+12. One Time Is Not Enough 04:34 
+
+### "Thunderdome" 2004, Heavy Metal
+
+1. The Last Stance
+2. Thunderdome
+3. Gods Come Together
+4. Carnaby Road
+5. Here I Am
+6. That Was Yesterday
+7. Shelter
+8. Retro Lullaby
+9. My Sharona
+10. As Deep As I Am
+11. Another Wrong Makes Right
+12. See Your Face
+
+
+David Readman (vocals)
+Alfred Koffler (guitar)
+Dennis Ward (bass)
+Kosta Zafiriou (drums)
+ 
+Guest Musicians : 
+Gunther Werno (keyboards)
+
+### "In10sity" 2007, Heavy Metal
+
+1. Children Of The Dawn 05:55
+2. No Way Out 04:11
+3. Crossfire 04:28
+4. I'm Not Afraid 04:46
+5. A New Religion 04:37 
+6. The Hour Of Freedom 04:57 
+7. Stop This Madness 05:31
+8. Desert Land 01:27 
+9. Out Of This World 05:21 
+10. It's Just A State Of Mind 04:34
+11. Wanna Hear You Rock 03:59
+12. My Darkest Hour 04:38
+13. Last Train To Nowhere 04:48 
+
+### "Live In Karlsruhe" 2009, Heavy Metal
+
+1. Children Of The Dawn 06:59  
+2. Do You Like It Like That 05:11  
+3. Hell's Gone Crazy 04:03  
+4. Lost In Illusions 04:22  
+5. The Hour Of Freedom 05:07  
+6. I'm Not Afraid 05:23  
+7. Talk To The Moon 04:26  
+8. Carnaby Road 04:28  
+9. Break The Silence 04:03  
+10. One Step Into Paradise 04:51  
+11. That Was Yesterday 05:39  
+12. The Spirit 05:10  
+Disc 2 
+1. Livin' My Life For You 04:37  
+2. Welcome The Night 06:13  
+3. Seas Of Madness 05:56  
+4. Keep Your Eye On The Twisted 07:22  
+5. No Way Out 04:59  
+6. Shame 07:26  
+7. So Lonely/No Woman No Cry 07:57  
+8. One Step Into Paradise 04:30  
+9. Better Days (European Bonus Track) 04:33 
+
+### "Ceremonial " 2013, Heavy Metal
+
+01. Land Of Confusion
+02. Wasted Years
+03. Special
+04. Find Your Soul
+05. The Tide
+06. Big Machine
+07. Let The Thunder Roll
+08. Right Or Wrong
+09. Passage Of Time
+10. I Came To Rock
+11. King For One Day
+12. Superman
+
 
 ## Отношения с другими группами
 

@@ -1,11 +1,67 @@
 # Lord Agheros
 
-Дискография
-"Hymn" 2007, Black Metal
-"As a Sin" 2008, Black Metal
-"Of Beauty and Sadness" 2010, Black Metal
-"Demiurgo" 2012, Black Metal
-"Nothing at All" 2016, Black Metal
+ambient black-metal
+
+## Дискография
+
+### "Hymn" 2007, Black Metal
+
+1. Prelude	 
+2. Battle Song	 
+3. Luna Gitana	 
+4. Betray The Liars	 
+5. Shadow Of The Past	 
+6. Beseech Empiric Genocide	 
+7. Child Of Fake Times	 
+8. A Tear For The Moon	 
+9. My Rage Against You	 
+10. Falling With The Rain	 
+11. Outro
+
+### "As a Sin" 2008, Black Metal
+
+1. Drama Begins 
+2. The Gate of Solitude	 
+3. Glory through Death	 
+4. Sacrilegium	 
+5. Intermezzo	 
+6. Ash to Ash and Dusk to Dark	 
+7. As a Sin	 
+8. Dancing in the Dark	 
+9. Escape
+
+### "Of Beauty and Sadness" 2010, Black Metal
+
+1. Prayer For A Memory	 
+2. The Wave	 
+3. The Last Forsaken	 
+4. Svart Hemlangtan	 
+5. Goodbye	 
+6. The Quiet Inside The Storm	 
+7. Old Throne	 
+8. Dopo La Notte	 
+9. Back To Innocence	 
+10. Era Iornu	 
+11. Dancing in The Dark (Orchestra Version) (Bonus track)
+
+### "Demiurgo" 2012, Black Metal
+
+
+
+### "Nothing at All" 2016, Black Metal
+
+1. The Last Memories		 
+2. Lake Water		 
+3. Mankind Arise		 
+4. No More Rules		 
+5. Life and Death		 
+6. The Day to Die		 
+7. On the Shore		 
+8. Idiocracy		 
+9. What We Deserve		 
+10. Final Thoughts		 
+11. Nothing at All
+
 
 ## Отношения с другими группами
 

@@ -1,9 +1,45 @@
 # Death Dies
 
-Дискография
-"When Death Died" 1998, Black Metal
-"The Sound Of Demons" 2002, Black Metal
-"Product of Hate" 2003, Black Metal
+Extreme Thrash Black Metal
+
+## Дискография
+
+### "When Death Died" 1998, Black Metal
+
+- Intro
+- A Cloack for Death
+- Call of Ancients
+- Marching with Death
+- Into a forgotten field
+- L'Arcano Maggiore
+- Outro
+
+### "The Sound Of Demons" 2002, Black Metal
+
+Sister of Pain
+Cosmos
+SteelBeast
+DemonSound
+Danza Macabra Spartan Pride
+Destroyer
+Mirror
+Inside - Deny 
+
+### "Product of Hate" 2003, Black Metal
+
+Thorazine
+Death Dies
+Sundown
+HateProduct
+Day of Doom
+False Philosophers (mercenaries of darkness) 
+Blasphemous Invocation (the Oath)
+Faust 2000
+Unholy Revenge
+The Circle
+Roots of Chaos
+Trigger 
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,59 @@
 # Poema Arcanus
 
-Дискография
-"Iconoclast" 2002, Gothic
-"Buried Songs: The Early Times" 2003, Gothic
+gothic-doom from Chile
+
+## Дискография
+
+### "Iconoclast" 2002, Gothic
+
+01. Walls?
+02. The Crawling Mirrors
+03. Elegia
+04. Chaman
+05. Elixir
+06. Iconoclast
+07. She Burns Us
+08. Rite
+09. Distances
+10. Impressions
+11. Desintegracion
+12. Burnt
+13. And Thou Shall Obey
+
+Claudio Carrasco - Vocals
+Igor Leiva - Guitars
+Claudio Botarro - Bass
+Luis Moya - Drums
+Michel Leroy - Keyboards
+
+Recorded, mixed and mastered at
+Procor Studios (Santiago, Chile)
+between February and May, 2001
+Produced by I'oema Arcanvs
+Engineered by Raphael Franca
+Assistant Engineers: Carolina Desbordes and Jose
+Miguel Arandbia Executive producer: Claudio
+Carrasco and I'oema Arcanvs Layout by Aftermath
+Music-English Assistance: John Krauss and Metal
+Mike
+Graphic Production and Concept by Claudio Botarro
+Original Artwork by Jean Pierre Cabanas /
+soffire@publicist.com
+Digital Collages by Jean Pierre Cabanas, Igor
+Leiva and Claudio Botarro
+Recording session pics by Enzo Toledo
+The Icon Burners are:
+Claudio Carrasco - Lead vocals and grunts
+Michel Leroy - Keyboards and vocals
+Luis Moya - Drums and percussion
+Igor Leiva - All guitars
+Claudio Botarro - Bass
+Guest musician on "Elixir": David jara - Violin
+
+### "Buried Songs: The Early Times" 2003, Gothic
+
+
+
 
 ## Отношения с другими группами
 

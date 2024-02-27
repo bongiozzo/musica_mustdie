@@ -1,8 +1,33 @@
 # Sacratus
 
-Дискография
-"The Doomed to Loneliness" 2009, Death Doom
-"...Paradise For Two" 2010, Death Doom
+
+
+## Дискография
+
+### "The Doomed to Loneliness" 2009, Death Doom
+
+1. Artsah (Intro)	 
+2. Blackeyes	 
+3. Interlace	 
+4. Madness	 
+5. Surb Hokhi	 
+6. Fallen Angel	 
+7. Break Yourself	 
+8. Mayrik	 
+9. The Last Hope	 
+10. Melancholy (Instrumental)
+
+### "...Paradise For Two" 2010, Death Doom
+
+1. Shadow	 
+2. The Hard Thinking	 
+3. Tristeza Mia	 
+4. Revelation	 
+5. Sentences To Death	 
+6. Madness	 
+7. Fallen Angel 
+8. The Last Hope
+
 
 ## Отношения с другими группами
 

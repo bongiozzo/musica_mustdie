@@ -1,6 +1,9 @@
 # Bloody Gore
 
-Дискография
+mega blasting gore grinding from Indonesia, now R.I.P.
+
+## Дискография
+
 
 ## Отношения с другими группами
 

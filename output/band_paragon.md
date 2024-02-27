@@ -1,18 +1,229 @@
 # Paragon
 
-Дискография
-"Maelstrom Of Decline (Demo)" 1992, Power Metal
-"Into The Black" 1994, Power Metal
-"World Of Sin" 1995, Power Metal
-"The Final Command" 1998, Power Metal
-"Chalice Of Steel" 1999, Power Metal
-"Steelbound" 2001, Power Metal
-"Law Of The Blade" 2002, Power Metal
-"The Dark Legacy" 2003, Power Metal
-"Revenge" 2005, Power Metal
-"Forgotten Prophecies" 2007, Power Metal
-"Screenslaves" 2008, Power Metal
-"Force of Destruction" 2012, Power Metal
+power metal from Hamburg
+
+## Дискография
+
+### "Maelstrom Of Decline (Demo)" 1992, Power Metal
+
+
+
+### "Into The Black" 1994, Power Metal
+
+1. Into The Black 03:31  
+2. Bring The Hammer Down 03:18  
+3. Sinister Rising 05:17  
+4. Crossed Out 03:46  
+5. Torn And Frayed 03:43 
+
+### "World Of Sin" 1995, Power Metal
+
+1. Intro 00:42  
+2. Needful Things 04:39  
+3. Maelstrom Of Decline 05:12  
+4. World Of Sin 04:24  
+5. Beyond The Void 05:50  
+6. Thrill Of The Kill 04:06  
+7. No Hope For Life 05:16  
+8. Into The Black 03:35  
+9. Drug Fiend 05:15  
+10. Bring The Hammer Down 03:04 
+
+### "The Final Command" 1998, Power Metal
+
+1. Feel The Knife 03:50
+2. Under The Gun 04:24 
+3. Eternal Life 06:21
+4. Ashes 07:46 
+5. Warriors Of Ice 05:04
+6. Fighting For The Earth (Warrior cover) 05:12
+7. War Inside My Head 05:24
+8. The Final Command 05:31
+9. Eye For An Eye 05:32 
+
+### "Chalice Of Steel" 1999, Power Metal
+
+1. Awakening Of The Beast 00:56  
+2. Dragon's Flight 04:18
+3. Legions Of Metal 04:26
+4. Chalice Of Steel 04:56
+5. Wheels Of Eternity 07:11
+6. Desecrate 04:55
+7. Dark Tale 00:42  
+8. Casting Shadows 04:11 
+9. Burn At The Stake 03:22
+10. Journey Home 06:19
+11. A.D. 2000 06:05
+12. Violence And Force 04:01 
+
+### "Steelbound" 2001, Power Metal
+
+1. Thunderstorm 03:54  
+2. Steelbound 04:16  
+3. Deathsquad 04:14  
+4. New Dark Age 05:58  
+5. Don't Wake the Dead 05:50  
+6. Reign of Fear 04:20  
+7. Burning Bridges 05:25  
+8. Tears of the Damned 05:39  
+9. Face II Face 03:54  
+10. Immortal 04:51 
+
+line up:
+Andreas Babuschkin - Vocals
+Martin Christian - Guitars
+Claudius Cremer - Guitars
+Jan Bьnning - Bass
+Markus Corby - Drums
+
+Produced by Piet Sielck
+
+Cover Art & Layout: Jan Bьnning
+
+
+Digipak bonus track:
+11. World of Sin [4:17] 
+
+### "Law Of The Blade" 2002, Power Metal
+
+01. Abducted
+02. Palace Of Sin
+03. Armies Of The Tyrant
+04. The Law Of The Blade
+05. Across The Wastelands
+06. Shadow World
+07. Allied Forces
+08. Empires Fall
+09. The Journey's End
+10. Back To Glory
+
+Andreas Babuschkin - Lead Vocals
+Claudius Cremer - Guitars
+Martin Christian - Guitars
+Jan Bunning - Bass
+Markus Corby - Drums
+
+Produced by Piet Sieick (Iron Savior)
+
+### "The Dark Legacy" 2003, Power Metal
+
+01. The Legacy
+02. Mirror Of Fate
+03. Breaking Glass
+04. Black Hole
+05. Eye Of The Storm
+06. Maze Of Dread
+07. The Afterlife
+08. Green Hell
+09. Back From Hell
+
+Andreas Babuschkin - Lead Vocals
+Martin Christian - Guitars, Backing Vocals
+Gunny "Gunman" Kruse - Guitars
+Jan Bunning - Bass, Backing Vocals
+Markus Corby - Drums
+
+Produced by Piet Sielck (Iron Savior)
+
+### "Revenge" 2005, Power Metal
+
+01 Intro / Impaler  04:47  
+02 Assassins 04:16  
+03 Traitor 05:13  
+04 Masters Of The Seas  09:24  
+05 Revenge 04:20  
+06 Symphony Of Pain  04:23  
+07 Beyond The Veil  07:59  
+08 The Battle Rages On  04:43  
+09 The Art Of War  03:19  
+10 Empire Of The Lost  05:42  
+11 The Gods Made  05:08  
+  Heavy Metal      
+  (Manowar Coversong)     
+12 Masters Of The Seas (Edit      
+  - Japan Bonus Song)
+
+### "Forgotten Prophecies" 2007, Power Metal
+
+1. Hammer of the Gods 05:24  
+2. Arise 05:08  
+3. Face of Death 03:51  
+4. Halls of Doom 04:36  
+5. Revelations (instrumental) 02:06  
+6. Forgotten Prophecies 04:57  
+7. Agony 07:31  
+8. Souleaters 05:09  
+9. Gangland 04:59  
+10. Wargods 03:20  
+11. Deny the Cross (Overkill cover) 04:38 
+
+A limited edition will be released as well, featuring a bonus DVD with live
+footage recorded at the Metal Bash Open Air 2005 and Metal Bash Road Kill Tour
+in Hamburg (Markthalle) in 2005. The track listing for the bonus DVD is as
+follows:
+
+Metal Bash Open Air 2005:
+
+01. Legacy
+02. Traitor
+03. Impaler
+04. Revenge
+05. Across the Wastelands
+06. Palace of Sin
+07. Armies of the Tyrant
+08. Thunderstorm
+
+Hamburg (2005):
+
+09. Deathsquad
+10. Beyond the Veil
+
+Andreas Babuschkin - vocals
+Martin Christian - guitars
+Gьnny Kruse - guitars
+Jan Bьnning - bass
+Chris Gripp - drums 
+
+### "Screenslaves" 2008, Power Metal
+
+1. Hellgore 04:55  
+2. Disconnected 03:53  
+3. Entombed 05:00  
+4. Screenslaves 03:16  
+5. Bloodfeast 06:46  
+6. The Blade In The Dark 04:05  
+7. Death Next Door 04:29  
+8. The Killing Hand 04:08  
+9. Waxworks 04:37  
+10. Larger Than Life (Backstreet Boys cover) 03:35  
+11. The Legacy (Italian version) 05:10 
+
+A videoclip of the titletrack "Screenslaves" is included on the digipak-version of the album.
+Cover art by Jowita Kaminska. 
+
+Line-up:
+Andreas Babuschkin - Vocals
+Martin Christian - Guitars
+GпїЅnter Kruse - Guitars
+Dirk Seifert - Bass
+Chris Gripp - Drums 
+
+### "Force of Destruction" 2012, Power Metal
+
+1. The Last Day On Earth
+2. Iron Will
+3. Tornado
+4. Gods Of Thunder
+5. Bulletstorm
+6. Blood & Iron
+7. Blades Of Hell
+8. Dynasty
+9. Rising From The Black
+10. Demon's Lair
+11. Secrecy
+12. Son Of A Bitch (Accept Cover)
+13. Blood & Iron (Remix)
+
 
 ## Отношения с другими группами
 

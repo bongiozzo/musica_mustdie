@@ -1,7 +1,22 @@
 # Farmakon
 
-Дискография
-"A Warm Glimpse" 2003, Melodic Death Metal
+
+
+## Дискография
+
+### "A Warm Glimpse" 2003, Melodic Death Metal
+
+1.Loosely Of Amoebas
+2 My Sanctuary In Solitude
+3 Mist
+4 Stretching Into Me
+5 Same
+6 Flowgrasp
+7 Flavoured Numerology
+8 Pearl Of My Suffering
+9 Wallgarden
+
+
 
 ## Отношения с другими группами
 

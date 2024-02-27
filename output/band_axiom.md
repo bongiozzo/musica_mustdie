@@ -1,7 +1,21 @@
 # Axiom
 
-Дискография
-"A Moment Of Insanity" 2004, Progressive
+
+
+## Дискография
+
+### "A Moment Of Insanity" 2004, Progressive
+
+A Moment Of Insanity
+It’s Too Late
+A New Begin
+Gone
+Mirror Of Life
+Clear
+An Oniric Comedy
+Rising Shadows
+Out Of Control
+
 
 ## Отношения с другими группами
 

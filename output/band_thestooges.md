@@ -1,8 +1,34 @@
 # The Stooges
 
-Дискография
-"The Stooges" 1969, Punk
-"Fun House" 1970, Punk
+
+
+## Дискография
+
+### "The Stooges" 1969, Punk
+
+1.  1969
+2.  Now I Wanna Be Your Dog
+3.  We'll Fall
+4.  No Fun
+5.  Real Cool Time
+6.  Ann
+7.  Nor Right
+8.  Little Doll
+
+(P)&c 1969
+
+### "Fun House" 1970, Punk
+
+1.  Down The Street
+2.  Deep Inside
+3.  TV Eye
+4.  The Dirt
+5.  1970
+6.  Fun House
+7.  Los Angeles Blues
+
+(P)&c 1970
+
 
 ## Отношения с другими группами
 

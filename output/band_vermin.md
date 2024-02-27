@@ -1,7 +1,40 @@
 # Vermin
 
-Дискография
-"Obedience To lnsanity" 1994, Grindcore
+
+
+## Дискография
+
+### "Obedience To lnsanity" 1994, Grindcore
+
+1.  Intro / In Darkness Dwells
+2.  Enjoy ?
+3.  Cremation Sustained
+4.  Into Nothingness
+5.  Trapped
+6.  Psychic Tomb
+7.  Obedience To lnsanity / Outro
+8.  Life Is Pain
+9.  Corroded Conscience
+10.Internal Emptiness
+11.Lunatic Fanatics
+12.Human Extermination
+13.Intro/Among The Tombstones
+14.Pile Of Pus
+15.Intro/Insane Pain
+16.Autopsy For  Pleasure
+17.Fated (To Die)
+
+All Songs Written by VERMIN
+Produced by VERMIN & Hentik Karlsson.
+Recorded & mixed in Opua - l Studio, Nassjo
+
+Jimmy Sjoqvist - Vocals, Guitars
+Moses Shtieh - Guitars
+Johan Svensson - Bass
+Mathias Adamsson - Drums
+
+(P)c 1994 CHAOS Records
+
 
 ## Отношения с другими группами
 

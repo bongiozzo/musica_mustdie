@@ -1,7 +1,21 @@
 # Danton
 
-Дискография
-"Ways Of Destiny" 1989, Heavy Metal
+
+
+## Дискография
+
+### "Ways Of Destiny" 1989, Heavy Metal
+
+01. Sandy
+02. Don't Forget Me
+03. Stallingrad
+04. Knock, Knock
+05. Straight In Your Heart
+06. Take Me Home
+07. Way Of Destiny
+08. Black, Red And Gold
+
+
 
 ## Отношения с другими группами
 

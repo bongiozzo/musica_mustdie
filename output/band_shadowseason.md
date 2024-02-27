@@ -1,7 +1,25 @@
 # Shadow Season
 
-Дискография
-"The Frozen" 2002, Black Metal
+black metal from NORWAY
+
+## Дискография
+
+### "The Frozen" 2002, Black Metal
+
+01. Phantoms in the Glass
+02. Cataclysmic Ancient Illusion
+03. Frozen
+04. To Scorn the Suicide Earth 
+
+
+INFO:
+All music and lyrics written by Void and B.Winter
+Recorded and mixed by Void and B.Winter at Tram Lydstudio during the summer months of 2002
+Drums recorded by T. Akkerhaugen at Akkerhaugen Lydstudio August 2002
+Mastered by Tom Kvеlsvoll at Strype Audio in November 2002
+Artwork and design by Espen Kluge
+Produced by Shadow Season
+
 
 ## Отношения с другими группами
 

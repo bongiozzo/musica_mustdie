@@ -1,9 +1,81 @@
 # Sup
 
-Дискография
-"Anomality" 1996, Industrial
-"Chronophobia" 1999, Death Doom
-"Angelus" 2002, Death Doom
+
+
+## Дискография
+
+### "Anomality" 1996, Industrial
+
+1. Anomality
+2. Pain Injection
+3. In Those Times
+4. The Work
+5. Ocean Of Faces
+6. In The Deepest Silence
+7. Dialogue
+8. D-An's Last Order
+9. Reset
+10.D-An' Sup V1.1
+
+Recorded at Carabies Studios.
+Produced by Brun Donini
+
+Fabrice Loes - Guitars,Vocal
+Thien`y Berger - Drums
+Ludovic Loes - Guitar,Vocal
+Laurent Dessault - Bass
+
+(p)(c) 1996 PIAS Records
+
+### "Chronophobia" 1999, Death Doom
+
+
+
+### "Angelus" 2002, Death Doom
+
+01. Ex-animo
+02. *****
+03. Declivis
+04. *****
+05. Orcinus
+06. *****
+07. Resurrectio Animalis
+08. *****
+09. Labi Mente
+10. *****
+11. Umbrifer
+12. *****
+13. Pendere Animi
+14. *****
+15. Valefacio
+16. *****
+17. Liberatio
+18. *****
+19. Jampridem
+*****
+
+Ludovic Loez:Vocals/Guitars
+Thierry Berger:Drums
+Fabrice Loez:Guitars
+Fred Fievez:Bass
+
+Recorded at S.H. Studio July2001 and Nov/Dec 2001
+by Yvain Houdart.
+Mixed by Eric Dochez/Loez/Loez at Erison Studio
+during April 2002.
+Mastered by Bruno Gruel at Top Master France
+Engineered by Bruno Objoie
+Produced by SUP
+Executive production by Holy Records
+Angelus written by Loez and Loez
+All music by Ludovic Loez
+Paintings by Thierry Petit
+Layout by Holy Records
+Alien photos by SUP
+Comments Narrations by Dany Cavanagh from
+Anathema.
+Backing vocals by Arno Geneens
+
 
 ## Отношения с другими группами
 

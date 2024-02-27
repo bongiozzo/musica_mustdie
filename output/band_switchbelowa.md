@@ -1,7 +1,21 @@
 # Switch Below, A
 
-Дискография
-"Signs Of Impact" 2005, Death Metal
+
+
+## Дискография
+
+### "Signs Of Impact" 2005, Death Metal
+
+1. A Human Error   
+2. No Sympathy   
+3. Hangman   
+4. Pull The Switch   
+5. Lowlife   
+6. Five Points   
+7. Lethal Agression   
+8. Sickened   
+9. A Final Error 
+
 
 ## Отношения с другими группами
 

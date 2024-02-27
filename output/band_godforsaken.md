@@ -1,8 +1,56 @@
 # God Forsaken
 
-Дискография
-"Dismal Gleams Of Desolation" 1993, Death Doom
-"The Tide Has Turned" 1995, Death Doom
+
+
+## Дискография
+
+### "Dismal Gleams Of Desolation" 1993, Death Doom
+
+1. Loveless
+2. Dismal Gleams Of Desolation
+3. Waiting For The Unknown
+4. The End Of Eternity
+5. Who Lives Will See
+6. In My Darkness
+7. Exhalling Timeless Tedium
+8. There Were Seven Suns Shine
+
+ Hannu Kujanen - Guitars & Vocals
+ Mika Hankaniemi - Vocals
+ Juha Phto - Drums
+ Juha Koykka - Bass
+
+All Music Written By GOD FORSAKEN.
+All Lyrics Written By Hannu Kujanen.
+Produced By Adirocere Records.
+Recorded & Mixed By Petteri Karri At
+Soundwall Studio Oy In August/September 1992.
+
+(p)&(c) 1993 ADIPOCERE Records
+
+### "The Tide Has Turned" 1995, Death Doom
+
+1. November/Forsaking The World
+2. Until Death Join Us
+3. Astral Voyages 69
+4. The Tide Has Turned
+5. Nowhere To Be Found
+6. Giving It All Away
+7. It's All The Same In The End
+8. She Dies
+9. Goodbye
+
+ Hannu Kujanen - Guitars
+ Mika Hankaniemi - Vocals
+ Juha Pohto - Drums & Percussion
+Juha Koykka - Bass
+
+Mixed By Petteri Karri & GOD FORSAKEN.
+Recorded At Soundwall Studio OY.
+All Music & Lyrics By GOD FORSAKEN.
+
+(p)&(c) 1995 ADIPOCERE Records
+
 
 ## Отношения с другими группами
 

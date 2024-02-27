@@ -1,8 +1,17 @@
 # Crimson Moonlight
 
-Дискография
-"Glorification of the master of light" 1997, Black Metal
-"Eternal emperor" 1998, Black Metal
+Black Metal
+
+## Дискография
+
+### "Glorification of the master of light" 1997, Black Metal
+
+
+
+### "Eternal emperor" 1998, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,9 +1,53 @@
 # Black Sun Aeon
 
-Дискография
-"Darkness Walks Beside Me" 2009, Death Doom
-"Routa" 2010, Death Doom
-"Blacklight Deliverance" 2011, Death Doom
+
+
+## Дискография
+
+### "Darkness Walks Beside Me" 2009, Death Doom
+
+1. Chapter 1: A Song for the Introduction 01:24  
+2. Chapter 2: A Song for My Wrath 04:56
+3. Chapter 3: A Song for My Demise 05:58
+4. Chapter 4: A Song for My Sorrow 06:01
+5. Chapter 5: A Song for My Weakness 04:47
+6. Chapter 6: A Song for This Winter 05:39 
+7. Chapter 7: A Song for My Illness 04:46 
+8. Chapter 8: A Song for My Funeral 06:17
+9. Chapter 9: A Song for the One Who Passed Away 4.9.2008 04:13 
+
+### "Routa" 2010, Death Doom
+
+1. Core of Winter 05:25  
+2. Frozen 05:47  
+3. Sorrowsong 06:26  
+4. Routa 05:16
+5. Wreath of Ice 04:31  
+6. Dead Sun Aeon 06:01  
+7. Cold 05:44  
+Disc 2 
+1. Funeral of World 07:17  
+2. River 04:27  
+3. Frozen Kingdom 05:07  
+4. Wanderer 04:57  
+5. The Beast 05:52  
+6. Silence 04:42  
+7. Apocalyptic Reveries 07:26 
+
+### "Blacklight Deliverance" 2011, Death Doom
+
+1. Brothers 
+2. Solitude
+3. Sheol 
+4. Oblivion 
+5. Horizon 
+6. Wasteland 
+7. Nightfall 
+
+
+Tuomas Saukkonen - All Instruments, Vocals (studio), Harsh Vocals, Drums 
+Mikko Heikkilд - Clean Vocals (studio), Guitars (rhythm)
+
 
 ## Отношения с другими группами
 

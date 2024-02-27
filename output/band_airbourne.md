@@ -1,10 +1,34 @@
 # Airbourne
 
-Дискография
-"Ready To Rock (EP)" 2004, Heavy Metal
-"Runnin' Wild" 2007, Heavy Metal
-"No Guts. No Glory." 2010, Heavy Metal
-"Black Dog Barking" 2013, Heavy Metal
+
+
+## Дискография
+
+### "Ready To Rock (EP)" 2004, Heavy Metal
+
+
+
+### "Runnin' Wild" 2007, Heavy Metal
+
+
+
+### "No Guts. No Glory." 2010, Heavy Metal
+
+
+
+### "Black Dog Barking" 2013, Heavy Metal
+
+01. Ready To Rock
+02. Animalize
+03. No One Fits Me (Better Than You)
+04. Back In The Game
+05. Firepower
+06. Live It Up
+07. Woman Like That
+08. Hungry
+09. Cradle To The Grave
+10. Black Dog Barking
+
 
 ## Отношения с другими группами
 

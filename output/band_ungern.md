@@ -1,8 +1,33 @@
 # Ungern
 
-Дискография
-"1 Litre of Blood" 2006, Black Metal
-"Shambala" 2008, Black Metal
+
+
+## Дискография
+
+### "1 Litre of Blood" 2006, Black Metal
+
+1. Eternal Empire of the North 07:10
+2. Today - Red, Tomorrow Dead 02:29 
+3. Tank March of Death 03:05 
+4. 70 Years of Boundless Swinishness 03:48
+5. Glorification 06:47
+6. The Sculpture of Absurdity 03:02  
+7. The Wind of Indifference Gaining in Strength 05:47
+8. 1 Litre of Blood 04:48 
+
+### "Shambala" 2008, Black Metal
+
+1. Sinister Warble of Baron Ungern   
+2. To Each His Own   
+3. Bible Bastard   
+4. Soldiers as All   
+5. Shambala   
+6. Aristocratic Armoured Train   
+7. Hail Happy Holocaust   
+8. Those, Who Were Forgotten   
+9. Optimism of the XX Century   
+10. Political Dwarveses 
+
 
 ## Отношения с другими группами
 

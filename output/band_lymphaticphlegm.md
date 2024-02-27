@@ -1,8 +1,40 @@
 # Lymphatic Phlegm
 
-Дискография
-"Pathologist's Cadaveric Fleshfeast" 2001, Grindcore
-"Polymorphisms To Severe Sipsis In Trauma" 2002, Grindcore
+Sick grindcore from Brazil
+
+## Дискография
+
+### "Pathologist's Cadaveric Fleshfeast" 2001, Grindcore
+
+01. Necrosis Of A Rather Extensive Part Of The Jeunum-Ileum
+02. Inhalation Of Vomitus (Subsequent Pneumo-Interstitial Emphysema)
+03. Happy Sickness Of Life (Exulceration)
+04. Congenital Tumour Constitued By Embryonic Tissues And Foetal Residues
+05. Multiple Induced Foetal Abnormalities In Embryopathia
+06. Estimation Of Creatine-Phosphokinase As An Additional Method For Identification Of Seminal Stains
+07. Intramyocardial Platelet Embolus Evidence
+08. Growth Of The Mucous-Membrane Ill Vein Tissue And Stomach Subjacent Fiber Tissue Layer
+09. Inorganic Variety Of Chronic Tuberculous Peritonitis
+10. Malignant Tumour Resultant From Epithelial Cells Proliferation
+
+(c)&(p) 2001 Bizarre Leprous Productions
+
+### "Polymorphisms To Severe Sipsis In Trauma" 2002, Grindcore
+
+01. Today I'm Dirty, But Tomorrow I'll Be Just Dirt
+02. Chronic Tertiary Lymphedema (Lymphostatic Elephantiasis)
+03. Visceral Ischemia After Thoraco-Abdominal Trauma
+04. Resection Of Upper Gastrointestinal Malignancy
+05. Diffuse Hyperaesthesia In Dysesthetic Vulvodynia
+06. Early Aortic Regurgitation On Acute Myocardial Infarction
+07. Malignant Pancreatic Intraductal Papillary Tumour
+08. Insalubrious Development Of Multiple Endocrine Neoplasia
+09. Liver Transplantation For Hepatocellular Carcinoma
+10. Ileal Pouch-Anal Anastomosis In Chronic Ulcerative Colitis 
+11. Altered Mucosal Immunity In Cholestatic Jaundice 
+
+(c)&(p) 2002 Bizarre Leprous Productions
+
 
 ## Отношения с другими группами
 

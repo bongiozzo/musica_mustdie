@@ -1,11 +1,89 @@
 # Outrage
 
-Дискография
-"Back for Attack" 2004, Thrash
-"A Mute Reminder" 2005, Thrash
-"7 Is 1 Take One" 2006, Thrash
-"Order in the Court" 2008, Thrash
-"Conspirator" 2010, Thrash
+
+
+## Дискография
+
+### "Back for Attack" 2004, Thrash
+
+1. Black Metal Attack  04:04  
+2. Slave Trader  04:35 
+3. Go to Hell  04:46
+4. Back for Attack  02:54   
+5. Fly with the Bats  05:42    
+6. Pact of the Wicked  04:01    
+7. Warpaint  04:48    
+8. Into the Abyss of Belial  02:44    
+9. Spherical  04:34 
+10. Sails of Charon  08:47
+11. Damals, als ich starb  03:57  
+12. The Book of the Seven Seals  04:32    
+13. Name Your Poison  04:30
+14. Perseus Rules  01:59 
+
+### "A Mute Reminder" 2005, Thrash
+
+1. Mr Black Archer  01:32  
+2. The Proclaimer  02:54  
+3. Epilogue: The Legend  01:39   
+4. Sword Against The Kingdom  02:01 
+5. The Prey I  02:39  
+6. Farewell To Hell  02:48 
+7. Rigor Mortis  03:03 
+8. Room 13  02:18  
+9. 3797  03:28    
+10. The Prey II (Hand Of Fate)  01:55
+11. Infernal Recruite  06:33
+12. The Why People  03:14 
+
+### "7 Is 1 Take One" 2006, Thrash
+
+1. Beneath A Dying Sun  01:49  
+2. Hot On The Trail  03:18 
+3. Mystery Song  02:02    
+4. The Mind Untarnished  05:10  
+5. Baphomet  03:27  
+6. Intensity  06:43   
+7. Where The Dark Rivers Flow  03:09
+8. The Night When The Accuser Came  03:01
+9. Astaroth  03:02  
+10. No Unique Thing  04:47    
+11. The Inner Contract  03:08 
+12. Metal Religion  03:51  
+13. Coloured Visions  03:57 
+
+### "Order in the Court" 2008, Thrash
+
+1. The Opening Bid (Part One)  02:00    
+2. Kill Death Twice  02:40
+3. The Opening Bid (Part Two)  01:28    
+4. Order In The Court!  09:08   
+5. Song Of The Dead  03:24 
+6. SAR (Something's Got To Give)  04:11 
+7. The Essential In Brief  05:38    
+8. Kennwort "Undertoe"  04:26 
+9. Akuma  03:53    
+10. Even The Years...  04:45    
+11. O.M.P.  04:53   
+12. Black Donor  02:58 
+13. The Opening Bid (Part Three)  00:37 
+
+### "Conspirator" 2010, Thrash
+
+1. Whose Favourite Fills    
+2. The Ayn Lesson 
+3. Release (In Thousand Days)
+4. Of Things That Never Were 
+5. Lo Tisa Shem    
+6. Another Two Hours   
+7. Desert City Allegory/Pain Gloves      
+8. The Line That I Did Not Draw 
+9. Cold Spots     
+10. Stilling     
+11. The Sentence Complete      
+12. The Color Of Fear 
+13. Night School  
+
 
 ## Отношения с другими группами
 

@@ -1,10 +1,59 @@
 # Theocracy
 
-Дискография
-"Theocracy" 2003, Progressive
-"Mirror of Souls" 2008, Progressive
-"As the World Bleeds" 2011, Progressive
-"Ghost Ship" 2016, Progressive
+
+
+## Дискография
+
+### "Theocracy" 2003, Progressive
+
+1.	 Prelude	01:36	 
+2.	 Ichthus	04:39
+3.	 The Serpent's Kiss	11:56
+4.	 Mountain	04:48
+5.	 Theocracy	06:00
+6.	 The Healing Hand	11:36
+7.	 Sinner	06:08
+8.	 New Jerusalem	05:10
+9.	 The Victory Dance	05:02
+10.	 Twist of Fate	11:30
+
+### "Mirror of Souls" 2008, Progressive
+
+1.	 A Tower of Ashes	04:44
+2.	 On Eagles Wings	04:12
+3.	 Laying the Demon to Rest	09:37
+4.	 Bethlehem	05:51
+5.	 Absolution Day	06:47
+6.	 The Writing in the Sand	06:44
+7.	 Martyr	07:39
+8.	 Mirror of Souls	22:26
+
+### "As the World Bleeds" 2011, Progressive
+
+1.	 I Am
+2.	 The Master Storyteller
+3.	 Nailed
+4.	 Hide in the Fairytale
+5.	 The Gift of Music
+6.	 30 Pieces of Silver
+7.	 Drown
+8.	 Altar to the Unknown God
+9.	 Light of the World
+10.	 As the World Bleeds
+
+### "Ghost Ship" 2016, Progressive
+
+01. Paper Tiger
+02. Ghost Ship
+03. The Wonder Of It All
+04. Wishing Well
+05. Around the World and Back
+06. Stir the Embers
+07. A Call To Arms
+08. Currency In A Bankrupt World
+09. Castaway
+10. Easter
+
 
 ## Отношения с другими группами
 

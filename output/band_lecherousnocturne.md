@@ -1,8 +1,31 @@
 # Lecherous Nocturne
 
-Дискография
-"Adoration of the Blade" 2006, Death Metal
-"The Age of Miracles Has Passed" 2008, Death Metal
+
+
+## Дискография
+
+### "Adoration of the Blade" 2006, Death Metal
+
+1. Kampagne  03:01   
+2. Release in Flame  02:19    
+3. The Divine Wind  04:15
+4. Adoration of the Blade  01:55  
+5. Singe Este Viata  02:49 
+6. Ritual Cacophony  03:37    
+7. Phalluscidal  02:47  
+8. Whorrified  02:56 
+
+### "The Age of Miracles Has Passed" 2008, Death Metal
+
+1. Just War Theory  03:12  
+2. We Are As Dust  03:51   
+3. When Single Shines The Tripled Sun  03:00 
+4. Edict of Worms  04:38 
+5. The Age of Miracles Has Passed  04:56  
+6. Requiem For The Insects  01:51 
+7. Death Hurts Only The Living  02:32 
+8. The Preponderance of Fire  03:46
+
 
 ## Отношения с другими группами
 

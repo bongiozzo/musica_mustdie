@@ -1,7 +1,17 @@
 # Alvheim
 
-Дискография
-"I Et Fjort Fortid" 2009, Black Metal
+
+
+## Дискография
+
+### "I Et Fjort Fortid" 2009, Black Metal
+
+1. Stormens Sang 05:22
+2. Til Valhallen 06:08
+3. Det Onde Riket 03:57
+4. I Et Fjort Fortid 03:09  
+5. Graven Takeheimens Saler 04:55 
+
 
 ## Отношения с другими группами
 

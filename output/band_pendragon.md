@@ -1,11 +1,69 @@
 # Pendragon
 
-Дискография
-"The Window Of Life" 1993, Progressive
-"The Masquerade Overture" 1996, Progressive
-"Not Of This World" 2001, Progressive
-"Believe" 2005, Progressive
-"Pure" 2008, Progressive
+
+
+## Дискография
+
+### "The Window Of Life" 1993, Progressive
+
+01 The Walls Of Babylon
+02 Ghosts
+03 Breaking The Spell
+04 The Last Man On Earth
+(1) skylight (2) Paradise Road
+05 Nostradamus (Stargazing)
+06 Am I Realy Losing You?
+
+Nick Barret – Guitars and Vocals
+Clive Nolan – Keyboards
+Fudge Smith – Drums
+Peter Gee – Bass Guitar
+
+### "The Masquerade Overture" 1996, Progressive
+
+01 The Masquerade Overture
+02 As Good as Gold 
+03 Paintbox 
+04 The Pursuit of Excellence 
+05 Guardian of my Soul 
+06 The Shadow 
+07 Masters of Illusion
+
+Nick Barret – Guitars and Vocals
+Clive Nolan – Keyboards
+Fudge Smith – Drums
+Peter Gee – Bass Guitar
+
+### "Not Of This World" 2001, Progressive
+
+01 If I Were the Wind (And You Were the Rain) 
+02 Dance Of The Seven Veils [1- Faithless 2- All Over Now] 
+03 Not of this World [1- Not of this World 2- Give it to Me 3- Green Eyed Angel] 
+04 A Man of Nomadic Traits 
+05 World's End (17'48") [1- The Lost Children 2- And Finally...]
+
+bonus tracks:
+06 Paintbox (acoustic)
+07 King Of The Castle (acoustic)
+
+Nick Barret – Guitars and Vocals
+Clive Nolan – Keyboards
+Fudge Smith – Drums
+Peter Gee – Bass Guitar
+
+### "Believe" 2005, Progressive
+
+01. Believe
+02. No Place For The Innocent
+03. The Wisdom Of Solomon
+04. The Wishing Well
+05. Learning Curve
+06. The Edge Of The World
+
+### "Pure" 2008, Progressive
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,32 @@
 # Shadowseeds
 
-Дискография
-"Dream Of Lilith" 1995, Black Metal
+
+
+## Дискография
+
+### "Dream Of Lilith" 1995, Black Metal
+
+1. Dream Of Lilith
+2. The Hidden God
+3. Thy Shrouded Wings
+4. Lion-Serpent Sun
+5. Baptized In Blood
+6. Dreaming Ecstasy
+7. Dark Night Of The Soul
+8. Daemon Est Deus Inversus
+9. Shadowseeds
+
+ Daemon Kaighal
+ Daemon Deggial 
+All Female Vocal By Petra Aho
+
+All Music & Lyrics By SHADOWSEEDS
+Produced By SHADOWSEEDS
+Produced By Niklas & Magnus
+Recorded At ADM Studio, Uppsala, October 1994
+
+(p)&(c) 1995 DARK AGE Records
+
 
 ## Отношения с другими группами
 

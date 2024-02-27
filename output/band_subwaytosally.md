@@ -1,19 +1,187 @@
 # Subway to Sally
 
-Дискография
-"Album 1994" 1994, Folk
-"MCMXCV" 1995, Folk
-"Foppt Den Damon" 1996, Folk
-"Bannkreis" 1997, Folk
-"Hochzeit" 1999, Folk
-"Herzblut" 2001, Folk
-"Engelskrieger" 2003, Folk
-"Nord Aus Nord" 2005, Folk
-"Sieben (single)" 2005, Folk
-"Eisblumen (single)" 2005, Folk
-"Nacht [DVD]" 2006, Folk
-"Bastard" 2007, Folk
-"Kreuzfeuer" 2009, Folk
+
+
+## Дискография
+
+### "Album 1994" 1994, Folk
+
+1. Rainman
+2. The Queen Of Argyll
+3. Barleycorn
+4. Elvis Lives
+5. Es Ist An Der Zeit
+6. Traum Vom Tod
+7. Die Braut
+8. The Keach In The Creel
+9. Bonnie Johnnie Lowrie
+10. Down The Line
+11. But We Don't Know
+12. Where Is Lucky
+
+### "MCMXCV" 1995, Folk
+
+1. Krдhenfrass
+2. Graberde
+3. Arche
+4. Sommertag
+5. Auf der Flucht
+6. Requiem
+7. Erdbeermund
+8. Der Brдutigam
+9. Die Hexe
+10. Die Jagd
+11. Carrickfergus
+
+### "Foppt Den Damon" 1996, Folk
+
+1. Der Sturm
+2. Kain
+3. Sag Dem Teufel
+4. Der Hofnarr
+5. Die Ratten
+6. Abgesang
+7. Herbstzeit
+8. Julia Und Die Rдuber
+9. Auf Der Reise
+10. Traum Vom Tod II
+11. Der Vagabund
+12. Maria
+
+### "Bannkreis" 1997, Folk
+
+1. Alle, Psallite Cum Luya
+2. Mephisto
+3. Unterm Galgen
+4. Ein Baum
+5. Das Rдtzel
+6. Kruzifix
+7. Sanctus
+8. Zu Spдt
+9. Liebeszauber
+10. Element Des Verbrechens
+11. Schlaflied
+12. Syrah
+
+### "Hochzeit" 1999, Folk
+
+1. Boses Erwachen
+2. Die Rose Im Wasser
+3. Henkersbraut
+4. Sabbat
+5. Minne
+6. Tag Der Rache
+7. Das Opfer
+8. Ohne Liebe
+9. Aufstand
+10. Mode
+
+### "Herzblut" 2001, Folk
+
+1. Die Schlacht
+2. Veitstanz
+3. Das Messer
+4. Herrin Des Feuers
+5. Kleid Aus Rosen
+6. Wenn Engel Hassen
+7. Krцtenliebe
+8. Accingite Vos
+9. So Rot
+10. Drei Engel
+11. Kleid Aus Rosen (Unplugged)
+
+### "Engelskrieger" 2003, Folk
+
+1. Geist Des Kriegers
+2. Falscher Heiland
+3. Unsterblich
+4. Kleine Schwester
+5. Abendlied
+6. Narben
+7. 2000 Meilen Unterm Meer
+8. Knochenschiff
+9. Wolfstraum
+10. Verloren
+11. Abendland
+
+### "Nord Aus Nord" 2005, Folk
+
+
+
+### "Sieben (single)" 2005, Folk
+
+1. Sieben
+2. Kaltes Herz (exclusive non-album track)
+3. Jericho (exclusive non-album track)
+4. Sieben (Instrumental) (exclusive non-album track)
+5. Video bonus: Behind the scenes
+
+### "Eisblumen (single)" 2005, Folk
+
+
+
+### "Nacht [DVD]" 2006, Folk
+
+01. Intro
+02. Boses Erwachen
+03. Das Batsel
+04. Minne
+05. Ein Baum
+06. Horo
+07. Der Hofnarr
+08. Sieben
+09. Element des Verbrechens
+10. Kruzifix
+11. Alle, Psallite Cum Luya
+12. Mephisto
+13. Das Batsel II
+14. Kleid aus Rosen
+15. Abgesang
+16. Unterm Galgen
+17. Traum vom Tod II
+18. Sanctus
+19. Maria
+20. Liebeszauber
+21. Arche
+22. Sag dem Teufel
+23. Die Braut & Der Brautigam
+24. carrickfergus
+25. Schlaflied
+26. Ohne Liebe
+27. Feuerkind
+28. Seemannslied
+
+### "Bastard" 2007, Folk
+
+1. Meine Seele Brennt 04:18
+2. Puppenspieler 03:52  
+3. Auf Kiel 04:04
+4. Umbra 03:58
+5. Voodoo 03:58 
+6. Wehe Stunde 03:52
+7. Die Trommel 03:52
+8. Unentdecktes Land 03:08 
+9. Hohelied 03:20 
+10. Canticum Satanae 00:46 
+11. Tanz auf dem Vulkan 03:13 
+12. Fatum 03:21
+13. In der Stille 07:08 
+
+### "Kreuzfeuer" 2009, Folk
+
+1. Aufstieg 03:47
+2. Judaskuss 04:10
+3. Besser du rennst 04:06 
+4. So Fern, So Nah 04:50 
+5. Die Jagd beginnt 03:03 
+6. Einsam 04:15
+7. Komm in meinen Schlaf 04:42
+8. Angelus 05:12
+9. Krдhenkцnig 04:23
+10. Niemals 04:19
+11. Versteckt 04:22
+12. Vater 05:42 
+
 
 ## Отношения с другими группами
 

@@ -1,10 +1,41 @@
 # Vorkreist
 
-Дискография
-"Sabbathical Flesh Possession" 2003, Black Metal
-"Sublimation XXIXA" 2006, Black Metal
-"Sickness Sovereign" 2009, Black Metal
-"Sigil Whore Christ" 2012, Black Metal
+France
+
+## Дискография
+
+### "Sabbathical Flesh Possession" 2003, Black Metal
+
+
+
+### "Sublimation XXIXA" 2006, Black Metal
+
+1. Great Orders of Sterile Lunacy 05:14	
+2. Sublimation XXIXA 03:26	
+3. Mystical Hierarchy of Perdition 04:35	
+4. Thy Death Divine 05:18	
+5. Sodogma 04:44	
+6. Torture Kult 03:23	
+7. Void of Grace 06:36	
+8. VKT Konklave 03:18	
+9. Ecstatic In Revulsion 06:56
+
+### "Sickness Sovereign" 2009, Black Metal
+
+
+
+### "Sigil Whore Christ" 2012, Black Metal
+
+1.	 De Imitatione Christi	05:48	 
+2.	 Maledicte	04:43	 
+3.	 Deus Vult	05:32	 
+4.	 Dominus Illuminatio Mea	05:34	 
+5.	 Memento Mori	05:16	 
+6.	 Ecce Homo	05:04	 
+7.	 Per Aspera Ad Astra	02:19	 
+8.	 Ad Nauseam	05:02	 
+9.	 Scalae Gemoniae	08:05
+
 
 ## Отношения с другими группами
 

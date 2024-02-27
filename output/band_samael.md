@@ -1,21 +1,280 @@
 # Samael
 
-Дискография
-"Worship Him" 1991, Black Metal
-"Blood Ritual" 1992, Black Metal
-"Ceremony Of Opposites" 1994, Black Metal
-"Rebelion" 1995, Black Metal
-"Passage" 1996, Death Doom
-"Exodus" 1998, Death Doom
-"Eternal" 1999, Death Doom
-"Reign of Light" 2004, Death Doom
-"Telepath (single)" 2004, Death Doom
-"On Earth (single)" 2005, Gothic
-"Aeonics - An Anthology (compilation)" 2007, Death Doom
-"Solar Soul" 2007, Gothic
-"Above" 2009, Black Metal
-"Antigod" 2010, Metal
-"Lux Mundi" 2011, Metal
+Original Satanic Death Band with lots of keyboards, later gothic death-doom
+
+## Дискография
+
+### "Worship Him" 1991, Black Metal
+
+1. Sleep Of Death
+2. Worship Him
+3. Knowledge Of The Ancient Kingdom
+4. Morbid Metal
+5. Rite Of Cthulhu
+6. The Black Face
+7. Into The Pentagram
+8. Messenger Of The Light
+9. Last Benediction
+10.The Dark
+
+ Vorphalack - Guitar & Vociferations
+ Masmiseim - Bass
+ Xytraguptor - Drums & Keyboard
+
+Produced & Arranged By SAMAEL.
+Engineered By Claude Lander.
+Recorded At Taurus Studio Switzerland,March 1990.
+
+(p)&(c) 1991 OSMOSE Productions
+
+### "Blood Ritual" 1992, Black Metal
+
+1. Epilogue
+2. Beyond The Nothingness
+3. Poison Infiltration
+4. After The Sepulture
+5. Macabre Operetta
+6. Blood Ritual
+7. Since The Creation ...
+8. With The Gleam Of Torched
+9. Total Consecration
+10.Bestial Devotion
+11...Until The Chaos
+
+ Xytreas - Drums & Keyboard
+ Vorphalack - Guitar & Vocals
+ Masmiseim - Bass
+
+Produced By Waldemar Sorychta.
+
+(p)&(c) 1992 CENTURY MEDIA Records
+
+### "Ceremony Of Opposites" 1994, Black Metal
+
+1. Black Trip
+2. Celebration Of The Fourth
+3. Son Of Earth
+4. 'Til We Meet Again
+5. Mask Of The Red Death
+6. Baphomet's Throne
+7. Flagellation
+8. Crown
+9. To Our Martyrs*
+10.Ceremony Of  Opposites
+
+All music & arrangements by Xytras Except * by Vorphalack/Xytras.
+All lyrics by Vorphalack.
+Produced, engineered & mixed by Waldemar Sorychta.
+Recorded at Woodhouse Studios, Hagen, Jan. 1994.
+
+ Vorphalack - Vocals,guitars
+ Masmiseim - Bass
+ Xytras  - Drums
+ Rodolphe M. - Keyboards,sampler
+
+(p)(c) 1994 CENTURY MEDIA Records
+
+### "Rebelion" 1995, Black Metal
+
+1. Rebelion
+2. After The Sepulture (New Version)
+3. I Love The Dead *
+4. Static Journey
+5. Into The Pentagram (New Version)
+
+ Vorphalack - Vocals, Guitars
+ Masmiseim - Bass
+ Xy - Drums, Programming
+ Rodolphe H. - Keyboards, Sampler
+
+All Songs Written By SAMAEL Except * By Alice Cooper
+Produced By Waldemar Sorychta & Xy
+Engineered & Mixed By Waldemar Sorychta & Siggi Bemm
+Recorded & Mixed At Woodhouse Studio, Hagen
+
+(p)&(c) 1995 CENTURY MEDIA Records
+
+### "Passage" 1996, Death Doom
+
+1. Rain
+2. Shining Kingdom
+3. Angel's Decay
+4. My Saviour
+5. Jupiterian Vibe
+6. The Ones Who Came Before
+7. Liquid Soul Dimension
+8. Moonskin
+9. Born Under Saturn
+10.Chosen Race
+11.A Man In Your Head
+
+All music by Xy.
+All lyrics by Vorphalack.
+Produced and engineered by Waldemar Sorychta.
+Recorded and Mixed at Woodhouse Studio, Hagen.
+
+Vorphalack - Vocals, Guitars
+Masmiseim - Bass
+Xy - Drums, Programming
+Rodolphe H. - Keyboards, Sampler
+
+(p)(c) 1996 CENTURY MEDIA Records
+
+### "Exodus" 1998, Death Doom
+
+1. Exodus 
+2. Tribes Of Cain 
+3. Son Of Earth 
+4. Winter Solstice 
+5. Ceremony Of Opposites 
+6. From Malkuth To Kether
+7. Instrumental
+
+Vorphalack - Vocals, Guitars
+Masmiseim - Bass
+Xy - Drums, Programming
+Rodolphe H. - Keyboards, Sampler
+
+(p)(c) 1996 CENTURY MEDIA Records
+
+### "Eternal" 1999, Death Doom
+
+1. Year Zero
+2. Ailleurs
+3. Together
+4. Ways
+5. The Cross
+6. Us
+7. Supra Karma
+8. I
+9. Nautilus & Zeppelin
+10.Infra Galaxia
+11.Being
+12.Radiant Star
+
+
+### "Reign of Light" 2004, Death Doom
+
+01. Moongate
+02. Inch Allah 
+03. High Above 
+04. Reign of Light 
+05. On Earth 
+06. Telepath 
+07. Oriental Dawn 
+08. As the Sun 
+09. Further 
+10. Heliopolis 
+11. Door of Celestial Peace
+
+### "Telepath (single)" 2004, Death Doom
+
+01. Telepathic
+02. Inch'Allah 
+03. Telepathic (remix) 
+04. Inch'Allah (karaoke version) 
+05. Telepathic (instrumental version)
+
+### "On Earth (single)" 2005, Gothic
+
+1. On Earth (album version)
+2. I Feel You
+3. On Earth (Northern Summer Mix)
+4. Auf der Erde
+
+Видео-секция 
+5. "Telepath" video clip 
+6. "On Earth " Live in Paris
+
+### "Aeonics - An Anthology (compilation)" 2007, Death Doom
+
+1. Exodus 
+2. Black Trip 
+3. Rebellion
+4. Baphomet's Throne
+5. Telepath
+6. Together
+7. Supra Karma
+8. Jupiterian Vibe
+9. Rain 
+10. The Cross
+11. After the Sepulture
+12. On Earth
+13. Moonskin
+14. Worship Him
+15. Ceremony of Opposites
+16. Blood Ritual 
+17. Into the Pentagram
+18. Koh-I-Noor
+19. Reading Mind
+
+### "Solar Soul" 2007, Gothic
+
+1. Solar Soul
+2. Promised Land
+3. Slavocracy
+4. Western Ground
+5. On the Rise
+6. Alliance
+7. Suspended Time
+8. Valkyries' New Ride
+9. Ave !
+10. Quasar Waves
+11. Architect (bonus track)
+12. Olympus
+
+### "Above" 2009, Black Metal
+
+1. Under One Flag 03:43  
+2. Virtual War 04:04  
+3. Polygames 03:55  
+4. Earth Country 03:55  
+5. Illumination 03:31  
+6. Black Hole 03:38  
+7. In There 04:01  
+8. Dark Side 03:30  
+9. God's Snake 04:07  
+10. On the Top of It All 04:42 
+
+
+Line-up:
+Vorph - Vocals, Guitars
+Xy - Keyboards, Drums, Programming
+Makro - Guitars
+Masmiseim - Bass 
+
+### "Antigod" 2010, Metal
+
+1. Antigod 04:14  
+2. Into the Pentagram (2010) 04:46  
+3. Reign of Light (Live) 03:52 
+4. Slavocracy (Live) 04:18
+5. Antigod (Dark Night Remix) 03:49  
+6. Ten Thousand Years 04:44 
+
+
+### "Lux Mundi" 2011, Metal
+
+1. Luxferre 03:52
+2. Let My People Be! 03:49
+3. Of War 03:42
+4. Antigod 04:04
+5. For a Thousand Years 04:55
+6. The Shadow of the Sword 03:50
+7. In the Deep 04:01
+8. Mother Night 04:19
+9. Pagan Trance 04:20
+10. In Gold We Trust 03:29
+11. Soul Invictus 04:19
+12. The Truth is Marching On 04:25
+
+
+
+Vorph Vocals 
+Xytras Drums, Keyboards 
+Mas Bass 
+Mak Guitars 
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,21 @@
 # Dance of 3rd R
 
-Дискография
-"Puzzle of Flash" 2003, Darkwave
+
+
+## Дискография
+
+### "Puzzle of Flash" 2003, Darkwave
+
+1. Nuke, mother, Nuke!
+2. eLektroniK number one
+3. Devotion for sinners
+4. Новая эра
+5. End of chapter
+6. City where the crown fell wrong
+7. Where troopers down to fail
+8. Feeding feeling of undead
+9/10. Terminal of inner feast / My mouth has gone
+
 
 ## Отношения с другими группами
 

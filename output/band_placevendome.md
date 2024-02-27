@@ -1,8 +1,51 @@
 # Place Vendome
 
-Дискография
-"Place Vendome" 2005, Hard Rock
-"Streets Of Fire" 2009, Hard Rock
+melodic hard
+
+## Дискография
+
+### "Place Vendome" 2005, Hard Rock
+
+1. Cross The Line 
+2. I Will Be Waiting 
+3. Too Late 
+4. I Will Be Gone 
+5. The Setting Sun 
+6. Place Vendome 
+7. Heavens Door 
+8. Right Here 
+9. Magic Carpet Ride 
+10. Sigh Of The Times
+
+Состав: 
+Michael Kiske - vocals, 
+Gunter Werno - keys, 
+Dennis Ward - bass, 
+Kosta Zafiiou - drums, 
+Uwe Reitenauer - guitars
+
+### "Streets Of Fire" 2009, Hard Rock
+
+1. Streets Of Fire 5:52
+2. My Guardian Angel 4:59
+3. Completely Breathless 3:17
+4. Follow Me 3:53
+5. Set Me Free 4:32
+6. Beliver 4:38
+7. Valerie (The Truth Is In Your Eyes) 3:44
+8. A Scene In Reply 4:44
+9. Changes 4:33
+10. Surrender Your Soul 3:43
+11. Dancer 4:23
+12. I'd Die For Your 5:00
+
+
+Michael Kiske - vocals (Ill Prophecy, Helloween, Michael Kiske, Supared, Kiske)
+Dennis Ward - bass,producer,composer (Pink Cream 69)
+Kosta Zafiriou - drums (Pink Cream 69)
+Uwe Reitenauer - guitar (Pink Cream 69)
+Gunther Werno - keyboards (Vanden Plas)
+
 
 ## Отношения с другими группами
 

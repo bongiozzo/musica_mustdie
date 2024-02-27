@@ -1,11 +1,29 @@
 # Turmion Katilot
 
-Дискография
-"Hoitovirhe" 2004, Industrial
-"Niuva 20 (EP)" 2005, Industrial
-"Pirun Nyrkki" 2006, Industrial
-"U.S.C.H!" 2008, Industrial
-"Perstechnique" 2011, Industrial
+
+
+## Дискография
+
+### "Hoitovirhe" 2004, Industrial
+
+
+
+### "Niuva 20 (EP)" 2005, Industrial
+
+
+
+### "Pirun Nyrkki" 2006, Industrial
+
+
+
+### "U.S.C.H!" 2008, Industrial
+
+
+
+### "Perstechnique" 2011, Industrial
+
+
+
 
 ## Отношения с другими группами
 

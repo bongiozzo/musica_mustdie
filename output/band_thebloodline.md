@@ -1,8 +1,29 @@
 # The Bloodline
 
-Дискография
-"Opium Hearts" 2000, Death Doom
-"Where Lost Souls Dwell" 2006, Metal
+gothic metal
+
+## Дискография
+
+### "Opium Hearts" 2000, Death Doom
+
+
+
+### "Where Lost Souls Dwell" 2006, Metal
+
+1. At The Waters Of Lethe 
+2. Final Journey 
+3. Opium Hearts 
+4. Cut The Corts 
+5. Remember 
+6. Abandon All Hope 
+7. I Think We Simply Fall 
+8. Where Lost Souls Dwell 
+9. Ocean In Flames 
+
+Состав: 
+Roman Schonsee - vocals, guitars 
+Kemi Vita - bass
+
 
 ## Отношения с другими группами
 

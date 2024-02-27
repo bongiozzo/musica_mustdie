@@ -1,8 +1,33 @@
 # Kimaera
 
-Дискография
-"Ebony Veiled" 2006, Gothic
-"Solitary Impact" 2010, Gothic
+
+
+## Дискография
+
+### "Ebony Veiled" 2006, Gothic
+
+1. Disarray
+2. Among the Dead
+3. Idyllic Illusions
+4. The Day Innocence Died
+5. In a Dying Embrace
+6. God's Wrath
+7. Mess of Hostility
+8. Ebony Veiled
+
+### "Solitary Impact" 2010, Gothic
+
+1. Bloody Tourniquet
+2. A Breath of Despair
+3. A Silent Surrender
+4. Solitary Impact
+5. Holy Grief
+6. In The Shade of Nephilim
+7. All that I Am
+8. The Taste of Treason
+9. Of Wine and Woe
+10. The Garden Tomb
+
 
 ## Отношения с другими группами
 

@@ -1,14 +1,123 @@
 # Skid Row
 
-Дискография
-"Skid Row" 1989, Glam
-"Slaves To The Grind" 1991, Glam
-"B-Side Ourselves" 1992, Hard Rock
-"Subhuman Race" 1995, Hard Rock
-"Thickskin" 2003, Hard Rock
-"Revolutions Per Minute" 2006, Hard Rock
-"United World Rebellion: Chapter One (EP)" 2013, Hard Rock
-"Rise Of The Damnation Army - United World Rebellion: Chapter Two (EP)" 2014, Hard Rock
+
+
+## Дискография
+
+### "Skid Row" 1989, Glam
+
+1. Big Guns
+2. Sweet Little Sister
+3. Can't Stand The Heartache
+4. Piece Of Me
+5. 18 And Life
+6. Rattlesnake Shake
+7. Youth Gone Wild
+8. Here I Am
+9. Makin' A Mess
+10.I Remember You
+11.Midnight / Tornado
+
+ Sebastian Bach - Vocals
+ Dave "The Snake" Sabo - Guitars
+ Scotti Hill - Guitars
+ Rachel Bolan - Bass
+ Rob Affuso - Drums
+
+(p)&(c) 1989 ATLANTIC Records
+
+### "Slaves To The Grind" 1991, Glam
+
+1. Monkey Business
+2. Slave To The Grind
+3. The Threat
+4. Quicksand Jesus
+5. Psycho Love
+6. Get The Fuck Out
+7. Livin'On A Chain Gang
+8. Greepshow
+9. In A Darkened Room
+10.Riot Act
+11.Mudkicker
+12.Wasted Time
+
+Sebastian Bach - Vocal
+Dave 'The Snake' Sabo - Guitars
+Scotti Hill - Guitars
+Rachel Bolan - Bass
+Rob Affuso - Drums
+
+(P)&(C) 1991 ATLANTIC Records
+
+### "B-Side Ourselves" 1992, Hard Rock
+
+1. Psycho Therapy (RAMONES)
+2. C'mon And Love Me (KISS)
+3. Delivering The Goods (JUDAS PRIEST)
+4. What You're Doing (LEE & LIFESON)
+5. Little Wing (JIMMY HENDRIX)
+
+ Sebastian Bach - Vocals
+ Dave"The Snake" Sabo - Guitars
+ Scotti Hill - Guitars
+ Rachhl Bolan - Bass
+ Rob Affuso - Drums
+
+(p)&(c) 1992 ATLANTIC Records
+
+### "Subhuman Race" 1995, Hard Rock
+
+1. My Enemy
+2. Firesign
+3. Bonehead
+4. Beat Yourself Blinn
+5. Eileen
+6. Remains To Be Seen
+7. Subhuman Race
+8. Frozen
+9. Into Another
+10.Face Aginst My Soul
+11.Medicine Jar
+12.Breakin' Down
+13.Iron Will
+
+ Sebastian Bach - Vocals
+ Dave "The Snake" Sabo - Guitars
+ Scotti Hill - Guitars
+ Rachel Bolan - Bass
+ Rob Affuso - Drums
+
+(p)&(c) 1995 ATLANTIC Records
+
+### "Thickskin" 2003, Hard Rock
+
+1. New Generation
+2. Ghost
+3. Swallow Me (The Real You)
+4. Born A Beggar
+5. This Is The Skin
+6. See You Around
+7. Mouth Of Voodoo
+8. One Light
+9. I Remember You Two
+10. Lamb
+11. Down From Underground
+12. Hittin' A Wall
+
+(p) 2003 SPV
+
+### "Revolutions Per Minute" 2006, Hard Rock
+
+
+
+### "United World Rebellion: Chapter One (EP)" 2013, Hard Rock
+
+
+
+### "Rise Of The Damnation Army - United World Rebellion: Chapter Two (EP)" 2014, Hard Rock
+
+
+
 
 ## Отношения с другими группами
 

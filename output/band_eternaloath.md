@@ -1,10 +1,63 @@
 # Eternal Oath
 
-Дискография
-"So Silent" 1996, Death Doom
-"Through The Eyes Of Hatred" 2000, Death Metal
-"Righteous" 2003, Death Doom
-"Wither" 2005, Death Doom
+Atmosdpheric Death-Doom
+
+## Дискография
+
+### "So Silent" 1996, Death Doom
+
+1. The Dawn 
+2. Harmonic Souls Departed
+3. So Silent
+4. Insanity
+5. Eternal Rest
+6. Dream Of Rising
+
+Martin Viklander - Bass
+Par Almquist - Keyboards
+Joni "Gosta" Maensivu - Vocals
+Tad Jonsson - Drums
+Petri Tarvainen - Guitars
+Peter Nagy - Guitars
+
+Produced by Niclas Jonsson and ETERNAL OATH.
+
+Recorded and Mixed at Studio Largwt.
+Engineered and Mixed by Niclas Jonsson.
+Band residence: Sweden.
+
+(p)(c) 1996 NWRAPPED MEDIA  NWM01
+
+### "Through The Eyes Of Hatred" 2000, Death Metal
+
+
+
+### "Righteous" 2003, Death Doom
+
+
+
+### "Wither" 2005, Death Doom
+
+1. Behind Tomorrow; 
+2. Death's Call; 
+3. In Despair For My Sins; 
+4. Godsend; 
+5. Second Life; 
+6. Within My World; 
+7. Act Of Fate; 
+8. On Bitter Wings; 
+9. Fallen Virtue; 
+10. At Your Hands; 
+11. A Face In The Crowd; 
+12. Wither
+
+All songs written by ETERNAL OATH
+Produced by ETERNAL OATH
+Engineered and mixed by Fredrik Nordstrom and Patrik Sten
+Recorded and mixed at Studio Fredman and Pangstudios
+
+Female Vocals by Helene
+
 
 ## Отношения с другими группами
 

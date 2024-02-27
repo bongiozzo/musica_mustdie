@@ -1,12 +1,151 @@
 # Bal-Sagoth
 
-Дискография
-"A Black Moon Broods Over Lemuria" 1995, Black Metal
-"Starfire Burning Upon The Ice-Veiled Throne Of Ultima Thule" 1997, Black Metal
-"Battle Magic" 1998, Black Metal
-"The Power Cosmic" 1999, Death Metal
-"Atlantis Ascendant" 2001, Death Metal
-"The Chthonic Chronicles" 2006, Death Metal
+True-Barbarian metal
+
+
+## Дискография
+
+### "A Black Moon Broods Over Lemuria" 1995, Black Metal
+
+1. Hatheg Kla
+2. Dreaming Of Atlantean Spires
+3. Spellcraft And Moonfire 
+(Beyond The Citadel Of Frosts)
+4. A Black Moon Broods Over Lemuria
+5. Enthroned In The Temple Of The Serpent Kings
+6. Witch - Storm
+7. Into The Silent Chambers Of The Sapphirian Throne 
+(Sagas From The Antediluvian Scrolls)
+8. Valley Of Silent Paths
+
+Byron - Vocals
+Chris Maudling - Guitars
+Jason Porter - Bass
+Jonny Maudling - Keyboards, Synths, Drums
+
+Produced and Engineered by Mags.
+Recorded and Mixed at Academy Studios
+All songs written by BAL-SAGOTH
+
+(p)(c) 1995 CACOPHONOUS Records
+
+### "Starfire Burning Upon The Ice-Veiled Throne Of Ultima Thule" 1997, Black Metal
+
+1. Black Dragons Soar Above The Mountains Of Shadows
+(Prologue)
+2. To Dethrone The Witch-Queen Of Mythos K'unn
+(The Legend Of The Battle Of Blackheim Vale)
+3. As The Vortex Illumines The Crystalline Walls Of Kor-Avul-Thaa
+4. Starfire Burning Upon The Ice-Veiled Throne Of Ultima Thule
+5. Journey To The Isle Of Mists
+(Over The Moonless Depths Of Night-Dark Seas)
+6. The Splendour Of A Thousand Swords Cleaning 
+  Beneath The Blazon Of Hyperborean Empire
+7. And Lo, When The Imperium  Marches Against The Gul-Kothoth, 
+Then Dark Sorceries Shall Enshroud The Citadel Of The Obsidian Crown
+8. Summoning The Guardians Of The Astral Gate
+9. In The Raven-Haunted Forests Of The Darkenhold, 
+Where Shadows Reign And The Hues Of Sunlight Never Dance
+10.At The Altar Of The Dreaming Gods (Epilogue)
+
+Recorded and Mixed at Academy Studio
+Engineered by Mags
+Produced by Mags and BAL-SAGOTH.
+Cover artwork by Petagno.
+
+Byron - Vocals
+Jonny Maudling - Drums, Keyboards
+Chris Maudling - Guitars, Bass
+Jason Porter - Bass
+Leon Forrest - Keyboards
+
+(P)(C) 1997 CACOPHONUS Records // NIHIL 18CD
+
+### "Battle Magic" 1998, Black Metal
+
+1. Battle Magic.
+2. Naked Steel. (The Warrior's Saga).
+3. A Tale From The Deep Woods.
+4. Return To The Praesidium Of Us.
+5. Crystal Shards.
+6. The Dark Liege Of Chaos Is Unleashed At The Ensorcelled Shrine Of A Zura-Kai. (The Splendour of a Thousand 
+Swords Gleaming Beneath the Blazon Of The Hyperborean Empire Part II).
+7. When Rides The Scion Of The Storms.
+8. Blood Slakes The Sands At The Circus Maximus.
+9. Thwarted By The Dark. (Blade Of The Vampyre Hunter).
+10. And Atlantis Falls…
+
+(c)&(p)1998 CACOPHONOUS RECORDS
+
+BYRON – all vocals
+JONNY MAUDLING – drums (and studio keyboards)
+CHRIS MAUDLING – guitar (and studio bass)
+LEON FORREST – live session keyboards
+ALISTAIR MAC LATCHT – live session bass
+
+### "The Power Cosmic" 1999, Death Metal
+
+1. The Awakening Of The Stars.
+2. The Voyagers Beneath The Mare Imbrium.
+3. The Empyreal Lexicon.
+4. Of Carnage And A Gathering Of The Wolves.
+5. Callisto Rising.
+6. The Scourge Of The Fourth Celestial Host.
+7. Behold. The Armies Of War Descend Screaming From The Heavens!
+8. The Thirteen Cryptical Prophecies Of Mu.
+
+(c)&(p)1999 NUCLEAR BLAST
+
+BYRON - vocals 
+JONNY MAUDLING - keyboards 
+CHRIS MAUDLING - guitar 
+MARK GREENWELL - bass 
+DAVID MACKINTOSH – drums
+
+All lyrics and stories by Byron. All music by Jonny Maudling and Chris Maudling.
+Recorded and mixed April 30 – May 31, 1999 at Academy Studio, Yorkshire, England. Engineered, produced and 
+mixed by Mags.
+
+### "Atlantis Ascendant" 2001, Death Metal
+
+1 The Epsilon Exordium 3:36 
+2 Atlantis Ascendant 5:31 
+3 Draconis Albionensis 6:23 
+4 Star-Maps of the Ancient Cosmographers 5:12 
+5 The Ghosts of Angkor Wat 2:25 
+6 The Splendour of a Thousand Swords Gleaming Beneath the Blazon of the Hyperborean Empire (Part: III) 7:20 
+7 The Dreamer in the Catacombs of Ur 5:20 
+8 In Search of the Lost Cities of Antarctica 5:47 
+9 The Chronicle of Shadows 5:33 
+10 Six Keys to the Onyx Pyramid 2:08 
+
+
+
+Recorded at Academy Music Studio, West Yorkshire, England, November, 2000.
+ 
+Byron Roberts - vocals
+Jonny Maudling - drums & keyboards
+Chris Maudling - guitars 
+Dave Mackintosh - drums 
+Mark Greenwell - bass
+
+
+
+### "The Chthonic Chronicles" 2006, Death Metal
+
+1. The Sixth Adulation Of His Chthonic Majesty 04:20  
+2. Invocations Beyond The Outer-World Night 05:26  
+3. Six Score And Ten Oblations To A Malefic Avatar 06:08  
+4. The Obsidian Crown Unbound 05:58  
+5. The Fallen Kingdoms Of The Abyssal Plain 04:38  
+6. Shackled To The Trilithon Of Kutulu 04:02  
+7. The Hammer Of The Emperor 06:58  
+8. Unfettering The Hoary Sentinels Of Karnak 04:22  
+9. To Storm The Cyclopean Gates Of Byzantium 04:57  
+10. Arcana Antediluvia 05:07  
+11. Beneath The Crimson Vaults Of Cydonia 05:15  
+12. Return To Hatheg-Kla 03:28
+
 
 ## Отношения с другими группами
 

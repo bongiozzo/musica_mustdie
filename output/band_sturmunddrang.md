@@ -1,9 +1,62 @@
 # Sturm Und Drang
 
-Дискография
-"Learning to Rock" 2007, Heavy Metal
-"Rock 'n' Roll Children " 2008, Heavy Metal
-"Graduation Day" 2012, Heavy Metal
+
+
+## Дискография
+
+### "Learning to Rock" 2007, Heavy Metal
+
+1. Broken 04:21 
+2. Talking to Silence 04:12
+3. Forever 03:17  
+4. Rising Son 03:40 
+5. The Raven 04:47 
+6. Indian 04:45  
+7. Learning to Rock 03:48 
+8. Fly Away 03:51 
+9. Mortals 03:46
+10. Miseria 02:59 
+
+All music written by Andrй Linman in co-operation with his father Patrick
+Linman, manager of the band, except for Mortals, which was completely written by
+Patrick. 
+
+A video was shot for "Rising Son".
+
+Debuted 3rd on the official Finnish Album Charts.
+
+The 'Internation Edition' includes two bonus tracks:
+11. Forever (Feat. Udo Dirkscheider)
+12. Breaking the Law (Judas Priest cover) 
+
+
+### "Rock 'n' Roll Children " 2008, Heavy Metal
+
+1. Last Of The Heroes 04:00  
+2. River Runs Dry 04:27  
+3. Break Away 03:34  
+4. Sinner 04:19  
+5. A Million Nights 04:18  
+6. Alive 03:25  
+7. These Chains 03:49  
+8. Thatґs The Way I Am 04:27  
+9. Life 03:46  
+10. Heaven (Is Not Here) 04:57 
+
+
+### "Graduation Day" 2012, Heavy Metal
+
+01. Your Love Is For Sale 03:39 
+02. Dark Little Angel Of Mine 04:22 
+03. Molly The Murderer 04:14 
+04. Lucky 04:17 
+05. Hammer To Fall 03:23 
+06. Goddamn Liar 04:37 
+07. Fatherland 05:37 
+08. I Hurt Myself 04:28 
+09. Party Like A Rockstar 05:23 
+10. Light Years Apart 05:47
+
 
 ## Отношения с другими группами
 

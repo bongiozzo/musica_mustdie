@@ -1,13 +1,124 @@
 # Nightingale
 
-Дискография
-"The Breathing Shadow" 1995, Gothic
-"The Closing Chronicles" 1996, Progressive
-"I" 2000, Progressive
-"Alive Again" 2003, Progressive
-"Invisible" 2004, Progressive
-"Nightfall Overture" 2005, Progressive
-"White Darkness" 2007, Progressive
+
+
+## Дискография
+
+### "The Breathing Shadow" 1995, Gothic
+
+1. Nightfall Overture
+2. Sleep...
+3. The Dreamrider
+4. Higher Than The Sky
+5. Recovery Opus
+6. The Return To Dreamland
+7. Gypsy Eyes
+8. Alone?
+9. A Lesson In Evil
+
+Written, Recorded & Mixed By Dan Swano, 7 days of January 1995 At Unisound
+All Instruments Played & Programmed By Dan Swano
+
+(p)&(c) 1995 BLACK MARK Productions
+
+### "The Closing Chronicles" 1996, Progressive
+
+1.  Deep Inside Of Nowhere
+2.  Revival
+3.  Thoughts From A Stolen Soul
+4.  So Long (Still I Wonder)
+5.  Steal The Moon
+6.  Intermezzo
+7.  Alive Again: 
+    I.  The Release
+   II.  Shadowland Revisited
+  III.  Breathless
+8.  The End
+
+Produced by Tom Nouga.
+Engineered and Mixed by Dan Swano.
+Mastering by Peter in de Betou
+Executive producer Borje Forsberg
+Cover artwork by Juha Vuorma
+
+Dan Swano - Vocals, Guitars, Keyboards, Drums
+Tom Nouga - Bass, Guitars
+
+(P)c 1996 BLACK MARK Productions // BMCD 90
+
+### "I" 2000, Progressive
+
+1  Scarred for Life        
+2  Still in the Dark        
+3  Game        
+4  Game Over        
+5  Remorse and Regret        
+6  Alonely        
+7  I Return        
+8  Drowning in Sadness        
+9  Dead or Alive        
+10  Journey's End        
+11  Breathing  
+
+
+### "Alive Again" 2003, Progressive
+
+1. Recollections
+2. Shadowman
+3. The Glory Days
+4. Falling
+5. Into the light
+6. Eternal
+7. State of shock
+8. The One
+9. Shadowland Serenade
+10. Forever and Never
+
+
+Erik Oskarsson - Bass guitar 
+Dan Swano - All Vocals. Rhythm, Lead & Acoustic guitar, Keyboards 
+Tom Nouga - Rhythm, Lead & Acoustic guitars, Keyboards 
+Tom Bjorn - Drums
+
+### "Invisible" 2004, Progressive
+
+1. Still Alive 04:38 
+2. Invisible 03:38 
+3. Raincheck on my Demise 03:43 
+4. Atlantis Rising 05:30 
+5. To the End 04:55 
+6. Misery 03:45
+7. The Wake 05:12
+8. One of the Lonely Ones 03:58
+9. Worlds Apart 02:55
+10. Stalingrad 05:19
+
+### "Nightfall Overture" 2005, Progressive
+
+01. Nightfall Overture
+02. Dreamreader
+03. Revival
+04. Steal The Moon
+05. I Return
+06. Alonely
+07. Shadowland Serenade
+08. Glory Days
+09. Losing Myself
+10. Better Safe Than Sorry
+
+### "White Darkness" 2007, Progressive
+
+1. The Fields of Life 04:21 
+2. Trial and Error 04:53
+3. One Way Ticket 04:59  
+4. Reasons 04:16  
+5. Wounded Soul 03:38  
+6. Hideaway 05:21  
+7. To My Inspiration 03:58  
+8. White Darkness 05:15  
+9. Belief 03:54 
+10. Trust 05:02
+
 
 ## Отношения с другими группами
 

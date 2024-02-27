@@ -1,16 +1,73 @@
 # Saint Vitus
 
-Дискография
-"Saint Vitus" 1984, Doom
-"Hallow's Victim" 1985, Doom
-"The Walking Dead (EP)" 1985, Doom
-"Born Too Late" 1986, Doom
-"Mournful Cries" 1988, Doom
-"Live" 1990, Doom
-"V" 1990, Doom
-"C.O.D. (Children Of Doom)" 1992, Doom
-"Die Healing" 1995, Doom
-"Lillie: F-65" 2012, Doom
+
+
+## Дискография
+
+### "Saint Vitus" 1984, Doom
+
+
+
+### "Hallow's Victim" 1985, Doom
+
+
+
+### "The Walking Dead (EP)" 1985, Doom
+
+
+
+### "Born Too Late" 1986, Doom
+
+
+
+### "Mournful Cries" 1988, Doom
+
+1. The Creeps 
+2. Dragon Time 
+3. Shooting Gallery 
+4. Bitter Truth 
+5. The Troll 
+6. Looking Glass
+
+### "Live" 1990, Doom
+
+
+
+### "V" 1990, Doom
+
+
+
+### "C.O.D. (Children Of Doom)" 1992, Doom
+
+
+
+### "Die Healing" 1995, Doom
+
+1. Dark World
+2. One Mind
+3. Let The End Begin
+4. Trail Of Pestilence
+5. Sloth
+6. Return Of The Zombie
+7. In The Asylum
+8. Just Another Notch
+
+ Scott Reagers - Vocals
+ Dave Chandler - Guitars, Vocals
+ Mark Adams - Bass
+ Armando Acosta - Drums
+
+All Songs Written By SAINT VITUS
+Produced By Harris Johns & SAINT VITUS
+Engineered By Harris Johns
+Recorded At Music Lab, Berlin, Oct-Nov. 1994
+
+(p)&(c) 1995 HELLHOUND
+
+### "Lillie: F-65" 2012, Doom
+
+
+
 
 ## Отношения с другими группами
 

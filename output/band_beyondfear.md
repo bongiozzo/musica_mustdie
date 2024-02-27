@@ -1,7 +1,13 @@
 # Beyond Fear
 
-Дискография
-"s/t" 2006, Heavy Metal
+project of Tim "Ripper" Owens
+
+## Дискография
+
+### "s/t" 2006, Heavy Metal
+
+
+
 
 ## Отношения с другими группами
 

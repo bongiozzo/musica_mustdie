@@ -1,8 +1,35 @@
 # Terminally Your Aborted Ghost
 
-Дискография
-"Slowly Peeling the Flesh from the Inside of a Folded Hand" 2005, Deathcore
-"Inanimately Soundless [EP]" 2006, Deathcore
+
+
+## Дискография
+
+### "Slowly Peeling the Flesh from the Inside of a Folded Hand" 2005, Deathcore
+
+1. Rotted Entrails, Gagged by Semen
+2. Neuropathic Embolism
+3. Pseudo Suspended Animation
+4. Transplant Fixture
+5. Fractionally Digested Vowel Structure
+6. Entry Stabwound
+7. A Ubiquitous Aftermath of Sorts
+8. Perpetuating Human Murder
+9. Body Crowded Corridors
+10. An Analogy Like a Snuff Film
+11. Slowly Peeling the Flesh from the Inside of a Folded Hand
+12. Undying Corpses of Joy
+
+### "Inanimately Soundless [EP]" 2006, Deathcore
+
+1. Underbelly Lover
+2. Trenchfoot
+3. Minimalistic Objectivity
+4. Mollusk
+5. Inanimately Soundless	 
+6. Eyeshadow Whore
+7. Obelisk
+8. Disingenuous Quotation
+
 
 ## Отношения с другими группами
 

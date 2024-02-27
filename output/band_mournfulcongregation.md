@@ -1,9 +1,35 @@
 # Mournful Congregation
 
-Дискография
-"Tears From a Grieving Heart" 1999, Doom
-"The Monad of Creation" 2005, Doom
-"The June Frost" 2009, Doom
+
+
+## Дискография
+
+### "Tears From a Grieving Heart" 1999, Doom
+
+1. Skyward Gaze, Earthward Touch 09:41
+2. Opal of the Stream Beneath the Hills 13:10
+3. Elemental 00:53  
+4. Re-Memberance of the Transcending Moon 11:21
+5. Tears from a Grieving Heart 10:02 
+
+### "The Monad of Creation" 2005, Doom
+
+1. Mother - Water, the Great Sea Wept 18:21
+2. As I Drown in Loveless Rain 11:21
+3. When the Weeping Dawn Beheld Its Mortal Thirst 10:03
+4. The Monad of Creation 20:53 
+
+### "The June Frost" 2009, Doom
+
+1. Solemn Strikes the Funeral Chime 03:52  
+2. White Cold Wrath Burnt Frozen Blood 17:02
+3. Descent of the Flames 09:01
+4. The June Frost 04:24  
+5. A Slow March to the Burial 06:49
+6. The Februar Winds 02:53  
+7. Suicide Choir 12:49
+8. The Wreath 03:16 
+
 
 ## Отношения с другими группами
 

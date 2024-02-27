@@ -1,7 +1,13 @@
 # Twelfth Gate
 
-Дискография
-"Threshold Of Revelation" 2006, Progressive
+
+
+## Дискография
+
+### "Threshold Of Revelation" 2006, Progressive
+
+
+
 
 ## Отношения с другими группами
 

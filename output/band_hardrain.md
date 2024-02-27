@@ -1,8 +1,17 @@
 # Hard Rain
 
-Дискография
-"Hard Rain" 1997, Hard Rock
-"When The Good Times Come" 1999, Hard Rock
+MAGNUM members
+
+## Дискография
+
+### "Hard Rain" 1997, Hard Rock
+
+
+
+### "When The Good Times Come" 1999, Hard Rock
+
+
+
 
 ## Отношения с другими группами
 

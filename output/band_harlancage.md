@@ -1,10 +1,72 @@
 # Harlan Cage
 
-Дискография
-"Harlan Cage" 1996, Metal
-"Double Medication Tuesday" 1998, Metal
-"Forbidden Colors" 1999, Metal
-"Tample Of Tears" 2002, Metal
+AOR/Melodic Hard Rock
+
+## Дискография
+
+### "Harlan Cage" 1996, Metal
+
+Pay The Devil His Due
+98 In The Shade
+One Naked Kiss
+Three Nights Running
+Wires And Chains
+Kiss Of Fools
+Destiny
+Run Rebel Run
+Too Much
+Sweet Salvation 
+Takin' Out the Trash
+Silver Wings
+Let it Rain
+Too Many Heroes (Japanese bonus track)
+
+### "Double Medication Tuesday" 1998, Metal
+
+Blow Wind Blow
+Halfway Home
+Lola's In Love
+Solitary Dance
+My Mama Said
+Dearborn Station
+Defend This Heart Of Mine
+Restless Hearts
+Lights Out For Losers
+As You Are 
+Turn Up The Radio
+Joker On The Kings Highway
+No Turnin' Back (Japanese bonus track)
+
+### "Forbidden Colors" 1999, Metal
+
+No Sunday Bride
+Chinatown
+Thrill Of It All
+Can't Tame The Raven
+Hard Yellow Line (You Lied To Me)
+Last Plane Out
+A little Rain
+Feel The Wheel
+Making My Way Back To You
+Late Night Escapades
+Before The Night Is Gone
+Two Ships In The Night
+What A Fool I've Been (Japanese bonus track)
+
+### "Tample Of Tears" 2002, Metal
+
+Any Port In The Storm
+Wooden Cross
+Just A Face In The Rain
+One New York Morning
+On The Nickel
+In My Neighborhood
+Deep In The Heart Of The Night
+Sin City
+As You Fly
+Later Than You Know
+We Belong
+
 
 ## Отношения с другими группами
 

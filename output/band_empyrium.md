@@ -1,11 +1,91 @@
 # Empyrium
 
-Дискография
-"A Wintersunset..." 1996, Black Metal
-"Songs Of Moors & Misty Fields" 1997, Black Metal
-"Where At Night The Wood Grouse Plays" 1999, Folk
-"Weiland" 2002, Folk
-"The Mill (single)" 2015, Folk
+Cool Sympho-Black-Gothic-Doom Metal
+
+## Дискография
+
+### "A Wintersunset..." 1996, Black Metal
+
+1.  Moonromanticism
+2.  Under Dreamskies
+3.  The Franconian Woods In Winter's Silence
+4.  The Yearning
+5.  Autumn Grey Views
+6.  Ordain'd To Thee
+7.  A Gentle Grieving Farewell Kiss
+
+
+
+All songs written by EMPYRIUM.
+Produced by EMPYRIUM.
+Engineered By Andreas  Beck.
+Recorded & Mixed at the R + A Studio/Munnerstadt.
+
+Markus - All Strings, All Vocals & Percussions
+Andreas - Synthesizers
+Nadine - Flute (Session)
+
+### "Songs Of Moors & Misty Fields" 1997, Black Metal
+
+1. When Shadows Grow Longer
+2. The Blue Mists Of Night
+3. Mourners
+4. Ode To Melancholy
+5. Lover's Grief
+6. The Ensemble Of Silence
+
+Markus - Vocals, Drums, Guitars, Bass
+Andreas - Synthesizer
+Nadine - Glutes, Cello
+
+Produced by Empyrium at the R & A Studio during 
+the last two weeks of August 1997
+
+### "Where At Night The Wood Grouse Plays" 1999, Folk
+
+1. Where at night the wood grouse plays 
+2. Dying brokenhearted 
+3. The shepherd and the maiden ghost 
+4. The sad song of the wind 
+5. Wehmut 
+6. A pastoral theme 
+7. Abendrot 
+8. Many moons ago... 
+9. When shadows grow longer 
+
+Recorded in Studio-E in February 1999.
+
+### "Weiland" 2002, Folk
+
+Kapitel I: "Heidestimmung"
+1. Kein Hirtenfeuer Mehr Glimmt
+2. Heimwarts
+3. Nebel
+4. Fortgang
+5. A Cappella
+6. Nachhall
+
+Kapitel II: "Waldpoesie"
+7. Waldpoesie
+
+Kapitel III: "Wassergeister"
+8. Die Schwane Im Schilf
+9. Am Wasserfall
+10. Fossegrim
+11. Der Nir
+12. Das Blau-Kristallne Kammerlein
+
+### "The Mill (single)" 2015, Folk
+
+1. The Mill  
+2. Unite  
+
+
+Hand-numbered copies.
+Contains 2 new tracks. Only sold at the Prophecy Fest 2015.
+Recorded, mixed & mastered at Klangschmiede Studio E during several occasions between May 2014 - April 2015.
+
+
 
 ## Отношения с другими группами
 

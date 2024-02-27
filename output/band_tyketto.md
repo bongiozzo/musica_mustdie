@@ -1,11 +1,29 @@
 # Tyketto
 
-Дискография
-"Don't Come Easy" 1991, Hard Rock
-"Strength in Numbers" 1994, Hard Rock
-"Shine" 1995, Hard Rock
-"Dig In Deep" 2012, Hard Rock
-"Reach" 2016, Hard Rock
+
+
+## Дискография
+
+### "Don't Come Easy" 1991, Hard Rock
+
+
+
+### "Strength in Numbers" 1994, Hard Rock
+
+
+
+### "Shine" 1995, Hard Rock
+
+
+
+### "Dig In Deep" 2012, Hard Rock
+
+
+
+### "Reach" 2016, Hard Rock
+
+
+
 
 ## Отношения с другими группами
 

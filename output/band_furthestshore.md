@@ -1,7 +1,13 @@
 # Furthest Shore
 
-Дискография
-"Cronicles Of Hethenesse Book1: The Shadow Descends" 1999, Metal
+
+
+## Дискография
+
+### "Cronicles Of Hethenesse Book1: The Shadow Descends" 1999, Metal
+
+
+
 
 ## Отношения с другими группами
 

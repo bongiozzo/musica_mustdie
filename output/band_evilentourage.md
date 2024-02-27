@@ -1,7 +1,23 @@
 # Evil Entourage
 
-Дискография
-"Dominion" 2007, Death Metal
+
+
+## Дискография
+
+### "Dominion" 2007, Death Metal
+
+1. Trial Of The Grotesque God 03:37 
+2. Sentenced To Decay 03:32
+3. Already Dead 03:35
+4. Vengeance From Grave 04:32
+5. Children Slain 03:42 
+6. Eternal Disease 02:23 
+7. Enemy 03:25 
+8. Brain On Fire 03:18
+9. Evil Entourage 03:08
+10. A Call From The Abyss 01:45  
+11. The Sign Of Voor 05:34 
+
 
 ## Отношения с другими группами
 

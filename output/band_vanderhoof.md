@@ -1,8 +1,38 @@
 # Vanderhoof
 
-Дискография
-"Vanderhoof" 1997, Hard Rock
-"A Blur In Time" 2002, Hard Rock
+Hard Rock
+
+## Дискография
+
+### "Vanderhoof" 1997, Hard Rock
+
+1. Bleed
+2. Machine
+3. Take To The Sky
+4. Falling To Earth
+5. Earth
+6. Angel Now
+7. Out Alive
+8. Beg
+9. 50 Cent Symphony
+10. Tons Of Time
+11. 40 Days Down
+12. Game Is Played
+
+### "A Blur In Time" 2002, Hard Rock
+
+1. 30,000 feet
+2. Electric Love Song
+3. High Street
+4. Nowhere Train
+5. 3:00 A.M.
+6. Unchanged
+7. If There's A Song
+8. Brand New Light
+9. Surface Of Another Planet
+10. Sleeping Giant
+11. Sonic Blur In Time
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,22 @@
 # Junius
 
-Дискография
-"Reports From The Threshold Of Death" 2011, Alternative
+
+
+## Дискография
+
+### "Reports From The Threshold Of Death" 2011, Alternative
+
+01. Betray The Grave 4:15 
+02. All Shall Float 4:33 
+03. Dance on Blood 4:36 
+04. A Universe Without Stars 4:24 
+05. Haunts for Love 4:18 
+06. The Meeting of Pasts 4:18 
+07. (Spirit Guidance) 1:41 
+08. A Reflection on Fire 4:08 
+09. Transcend the Ghost 5:12 
+10. Eidolon & Perispirit 5:20
+
 
 ## Отношения с другими группами
 

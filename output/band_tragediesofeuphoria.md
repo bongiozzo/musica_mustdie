@@ -1,6 +1,9 @@
 # Tragedies of Euphoria
 
-Дискография
+Gothic Doom band from Lebanon
+
+## Дискография
+
 
 ## Отношения с другими группами
 

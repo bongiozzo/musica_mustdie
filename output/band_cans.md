@@ -1,7 +1,35 @@
 # Cans
 
-Дискография
-"Beyond The Gates" 2004, Heavy Metal
+Hammerfall member
+
+## Дискография
+
+### "Beyond The Gates" 2004, Heavy Metal
+
+01. Fields of Yesterday (Cans/Elmgren) 
+02. Soul Collector (Cans/Chlasciak) 
+03. Red Light (Cans/Milianowicz) 
+04. Back to Hell (Cans/Chlasciak) 
+05. Beyond the Gates (Cans/Chastain) 
+06. The Key (Cans/Milianowicz) 
+07. Garden of Evil (Cans/Milianowicz) 
+08. Merciless (Cans/Sinner/Wolter) 
+09. Silent Cries (Cans/Elmgren) 
+10. Dreams (Cans/Sinner/Nauman) 
+11. Signs (Cans/King) 
+12. Forever Ends (Waters/Murphy)
+
+Special guest appearances:
+
+Gus G - Lead Guitar on Beyond the Gates 
+Danny Gill - Lead Guitar on Dreams 
+Oscar Dronjak - Backing Vocals 
+Mats Rendlert - Backing Vocals 
+Joacim "Lill" Lundberg - Backing Vocals 
+Jonatan Nordstr&#246;m - Backing Vocals 
+Hilda Lerme - Backing Vocals 
+Jenny Gustafsson - Backing Vocals
+
 
 ## Отношения с другими группами
 

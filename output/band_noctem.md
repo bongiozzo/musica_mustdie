@@ -1,10 +1,54 @@
 # Noctem
 
-Дискография
-"Divinity" 2009, Thrash
-"Oblivion" 2011, Thrash
-"Exilium" 2014, Thrash
-"Haeresis" 2016, Thrash
+
+
+## Дискография
+
+### "Divinity" 2009, Thrash
+
+1. Atlas Death  00:41   instrumental  
+2. In The Path Of Heleim  03:21   
+3. Realms In Decay  04:17   
+4. The Sanctuary  03:23   
+5. The Call Of Oricalco's Horn  03:47   
+6. Across Heracles Towards  04:29   
+7. In The Aeons Of Time  02:11   
+8. Necropolis Of Esthar's Ruins  05:47  
+9. Divinity  03:15  
+10. Religious Plagues  05:34
+11. Under Seas Of Silence  05:10 
+
+### "Oblivion" 2011, Thrash
+
+1. Popol Vuh  01:45  
+2. The Arrival of the False Gods  04:55
+3. Universal Disorder  04:33  
+4. Abnegation and Brutality  03:38 
+5. Invictus  04:00 
+6. Sons of Hun-Vucub  03:59
+7. Seeking the Ruin of Souls  04:00   
+8. Unredemption  05:47  
+9. Q'uma'rka'aa'j  01:44
+10. A Borning Winged Snake  06:32 
+11. Oblivion  13:09 
+
+### "Exilium" 2014, Thrash
+
+
+
+### "Haeresis" 2016, Thrash
+
+1. Through The Black Temples of Disaster
+2. Auto-Da-Fee
+3. The Submission Discipline
+4. Blind Devotion
+5. The Dark One
+6. Haeresis
+7. Whispers of the Ancient Gods
+8. Conjuring Degradation and Morbidity
+9. The Paths of the Lustful Abandon
+10. Pactum With the Indomitable Darkness
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,38 @@
 # Tidfall
 
-Дискография
-"Nucleus" 2003, Black Metal
+
+
+## Дискография
+
+### "Nucleus" 2003, Black Metal
+
+01. Future Doom
+02. Nucleus
+03. Neo-Torment
+04. Mercury Mesh
+05. Soil of Tomorrow
+06. Psychotronica
+07. Zounds
+08. Exo-Skeleton
+09. Tech
+
+Aftaneldr - synths, sampling & loops
+Abraxas - guitars
+Drako Arcane - guitars
+Sorg - bass, vocals
+Zarthon - drums, backing vox & programming
+
+All music and lyrics written & performed by
+Tidfall
+Recorded: Akkerhaugen Lydstudio during March/April
+2003
+Produced by: Torbjorn Akkerhaugen
+Mixed by: Torbjorn Akkerhaugen/Tidfall
+Mastered at: T.T.M. Mastering GmbH
+Mastered by:Tom Mueller
+Cover design: Jens Karlsson
+Additional design: Vegar Bakken
+
 
 ## Отношения с другими группами
 

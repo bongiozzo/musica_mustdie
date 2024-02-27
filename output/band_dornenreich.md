@@ -1,10 +1,56 @@
 # Dornenreich
 
-Дискография
-"Nicht Um Zu Sterben" 1997, Black Metal
-"Bitter Ist's Dem Tod Zu Dienen" 1999, Black Metal
-"Her Von Welken Nachten" 2001, Black Metal
-"Hexenwind" 2005, Metal
+Austrian Sympho-Black Metal
+
+## Дискография
+
+### "Nicht Um Zu Sterben" 1997, Black Metal
+
+Hasses Freigang
+In die Nacht
+Verlorenes gefunden. Gefundenes empfunden
+Schlaflos trдumend
+Im flatternden Schleier der Vergдnglichkeit
+Und wie ein Kind in deiner
+Durch die Schluchten der Kдlte
+Hofesfest
+
+### "Bitter Ist's Dem Tod Zu Dienen" 1999, Black Metal
+
+Nachtlich liebend
+Wundenkossen
+Reime faucht der Marchensarg
+Federstrich in Grabesnahe
+Leben lechzend Herzgeflister
+Woran erkennt mich deine Sehnsucht morgen?
+
+
+### "Her Von Welken Nachten" 2001, Black Metal
+
+Eigenwach
+Ich bin aus mir
+Wer hat Angst vor Einsamkeit
+Grell und dunkel stromt das Leben
+Innerwille ist mein Docht
+Hier weht ein Moment
+Schwarz schaut tiefsten Lichterglanz
+Trauerbrandung
+Mein Publikum - Der Augenblick
+
+  
+
+
+### "Hexenwind" 2005, Metal
+
+01. Von der Quelle
+02. Der Hexe flammend' Blick
+03. Der Hexe nachtlich' Ritt
+04. Aus langst verhalltem Lied
+05. Zu Traumen wecke sich, wer kann
+
+Eviga: voices, guitars, tambourin
+Valnes: synths, vocals
+
 
 ## Отношения с другими группами
 

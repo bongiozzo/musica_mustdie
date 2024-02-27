@@ -1,8 +1,29 @@
 # Khali
 
-Дискография
-"Khali" 2000, Progressive
-"s/t" 2004, Progressive
+Prog-metal
+
+## Дискография
+
+### "Khali" 2000, Progressive
+
+1. Cyberpleasure (6:43) 
+2. Another Day (7:37) 
+3. Somebody Haunts Me (5:10) 
+4. Wind Of Ages - Chapter I (9:02) 
+5. Wind Of Ages - Chapter II (2:16) 
+6. Spiritual Distortions (4:59) 
+7. Heaven Again (5:42) 
+8. So Far Away (5:26)
+
+- Lorenzo Deho / bass, keyboards 
+- Folco Orlandini / vocals 
+- Joe Taccone / guitars 
+- Nick Rossetti / drums 
+
+### "s/t" 2004, Progressive
+
+
+
 
 ## Отношения с другими группами
 

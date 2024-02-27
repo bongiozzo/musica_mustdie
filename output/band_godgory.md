@@ -1,11 +1,74 @@
 # Godgory
 
-Дискография
-"Sea Of Dreams" 1996, Death Doom
-"Shadows Dance" 1997, Death Doom
-"Resurrection" 1999, Death Doom
-"Way Beyond" 2001, Death Doom
-"Sea of Dreams / Shadow's Dance" 2002, Death Doom
+Sweden Doom-death metal
+
+## Дискография
+
+### "Sea Of Dreams" 1996, Death Doom
+
+1.  Intro
+2.  Sick To The Gore
+3.  Walking Among The Dead
+4.  Inside My Head
+5.  Sea Of Dreams
+6.  Surrounded By Dreams
+7.  Corporal Infection
+8.  Key To Eternity
+9.  In Silence Forever
+10.  Deathwish
+11.  Religious Fantasy
+
+Produced & mixed By Dan Swano.
+Recorded At Unisound Studio
+
+Stefan Olsson - Electric Guitar
+Erik Andersson - Drums, Guitar
+Micke Dahlquist - Electric Guitar
+Fredric Dantelsson - Bass
+
+(P)&c 1996 INVASION Records
+
+### "Shadows Dance" 1997, Death Doom
+
+1.  Abandon
+2.  Tear It Down
+3.  Rotten In Peace
+4.  Leavetaking
+5.  God's Punishment
+6.  Make You Pay
+7.  Shadow's Dance
+
+Recorded and Mixed at Unisound Recordings.
+Produced by Erik Andersson.
+
+Eric Andersson - Drums
+Matte Andersson - Vocals
+Micke Dahlquist - Guitars
+Stefan Grundel - Guitars
+Fredric Danielsson - Bass
+Thomas Heder - Keyboards
+
+(P)(C) 1997 INVASION RECORDS // IR 025
+
+### "Resurrection" 1999, Death Doom
+
+
+
+### "Way Beyond" 2001, Death Doom
+
+FINAL JOURNEY
+PAYBACK
+ANOTHER DAY
+TEAR IT DOWN
+CARESSED BY FLAMES
+FAREWELL
+SEA OF DREAMS
+HOLY WAR
+
+### "Sea of Dreams / Shadow's Dance" 2002, Death Doom
+
+
+
 
 ## Отношения с другими группами
 

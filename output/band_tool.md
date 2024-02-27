@@ -1,11 +1,84 @@
 # Tool
 
-Дискография
-"OPIATE" 1992, Alternative
-"Undertow" 1993, Alternative
-"Aenima" 1996, Alternative
-"Salival" 2000, Alternative
-"Lateralus" 2001, Alternative
+
+
+## Дискография
+
+### "OPIATE" 1992, Alternative
+
+1.SWEAT
+2.HUSH
+3.PART OF ME
+4.COLD AND UGLY
+5.JERK-OFF
+6.OPIATE
+7.THE GAPING LOTUS EXPERIENCE (hidden track)
+
+### "Undertow" 1993, Alternative
+
+1 Intolerance 4:54 (Tool) 
+2 Prison Sex 4:56 (Tool) 
+3 Sober 5:06 (Tool) 
+4 Bottom 7:13 (Tool) 
+5 Crawl Away 5:29 (Tool) 
+6 Swamp Song 5:31 (Tool) 
+7 Undertow 5:21 (Tool) 
+8 4¦ 6:02 (Tool) 
+9 Flood 7:45 (Tool) 
+10 Disgustipated 15:47 (Tool) 
+
+
+### "Aenima" 1996, Alternative
+
+1 Stinkfist (Tool) 
+2 Eulogy (Tool) 
+3 H. (Tool) 
+4 Useful Idiot (Tool) 
+5 Forty Six & 2 (Tool) 
+6 Message to Harry Manback (Tool) 
+7 Hooker with a Penis (Tool) 
+8 Intermission (Tool) 
+9 Jimmy (Tool) 
+10 Die Eier Von Satan (Tool) 
+11 Pushit (Tool) 
+12 Cesaro Summability (Tool) 
+13 ¦nima (Tool) 
+14 (-) Ions (Tool) 
+15 Third Eye (Tool) 
+ 
+
+ 
+ 
+
+
+### "Salival" 2000, Alternative
+
+1 Third eye [live] 
+2 Part of me [live] 
+3 Pushit [live] 
+4 Message to Harry Manback II 
+5 Merkaba [live] 
+6 You Lied [live] 
+7 No Quarter 
+8 Lamc 
+
+
+### "Lateralus" 2001, Alternative
+
+1.The Grudge
+2.Eon Blue Apocalypse
+3.The Patient
+4.Mantra
+5.Schism
+6.Parabol
+7.Parabola
+8.Ticks & Leeches
+9.Lateralus
+10.Disposition
+11.Reflection
+12.Triad
+13.Faaip De Oaid
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,20 @@
 # Valhalla
 
-Дискография
-"Hail To The Fallen Majesty" 2004, Black Metal
+pagan-black from Russia
+
+## Дискография
+
+### "Hail To The Fallen Majesty" 2004, Black Metal
+
+1. Karelia
+2. Wings Of Fate
+3. Requiem To The Stars
+4. Wind
+5. Sibilant Arrows
+6. Take The Ride
+7. Fallen
+8. Before The Storm
+
 
 ## Отношения с другими группами
 

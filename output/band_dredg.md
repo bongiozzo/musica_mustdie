@@ -1,15 +1,55 @@
 # Dredg
 
-Дискография
-"Conscious (EP)" 1996, Progressive
-"Orph (EP)" 1997, Progressive
-"Leitmotif" 1998, Progressive
-"El Cielo" 2002, Progressive
-"Extended Play For The Eastern Hemisphere (EP)" 2002, Progressive
-"Catch Without Arms" 2005, Progressive
-"Live At The Fillmore" 2006, Progressive
-"The Pariah, The Parrot, The Delusion" 2009, Progressive
-"Chuckles And Mr. Squeezy" 2011, Progressive
+
+
+## Дискография
+
+### "Conscious (EP)" 1996, Progressive
+
+
+
+### "Orph (EP)" 1997, Progressive
+
+
+
+### "Leitmotif" 1998, Progressive
+
+
+
+### "El Cielo" 2002, Progressive
+
+
+
+### "Extended Play For The Eastern Hemisphere (EP)" 2002, Progressive
+
+
+
+### "Catch Without Arms" 2005, Progressive
+
+
+
+### "Live At The Fillmore" 2006, Progressive
+
+
+
+### "The Pariah, The Parrot, The Delusion" 2009, Progressive
+
+
+
+### "Chuckles And Mr. Squeezy" 2011, Progressive
+
+01. Another Tribe (3:46)
+02. Upon Returning (3:55)
+03. The Tent (4:47)
+04. Somebody is Laughing (3:46)
+05. Down Without a Fight (3:53)
+06. The Ornament (3:04)
+07. The Thought of Losing You (3:33)
+08. Kalathat (3:25)
+09. Sun Goes Down (3:48)
+10. Where I'll End Up (3:44)
+11. Before it Began (2:58)
+
 
 ## Отношения с другими группами
 

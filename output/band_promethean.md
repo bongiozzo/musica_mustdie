@@ -1,8 +1,44 @@
 # Promethean
 
-Дискография
-"Gazing the Invisible" 1997, Ambient
-"Somber Regards" 1999, Ambient
+
+
+## Дискография
+
+### "Gazing the Invisible" 1997, Ambient
+
+1. Eternal Fall
+2. Polygon
+3. Gazing 
+4. The 
+5. Invisible
+6. Don't Mind The Dancer - The Dance With The Diseased
+7. All Blue Is Beautiful
+8. The Kiss Of All That Remained
+9. Flowing Downwards
+
+Timo Ilvari - Vocals
+Matti Selin - Guitars
+Jari Pirinen - Drums
+E.Henrik Juujarvi - Bass, Guitars, Mandoline, Keyboards
+
+Produced By Timo IIvari.
+Recorded & Mixed At Studio-Ala.
+Arranged By PROMETHEAN & Sami Lehtiniemi.
+Engineered & Mixed By Pauli Ruuskanen.
+
+(p)(c) 1997 AVANTGARDE Music // AV019
+
+### "Somber Regards" 1999, Ambient
+
+1.  Rat Race
+ 2.  It's the Light
+ 3.  Blazah
+ 4.  Self-Portrait
+ 5.  Somber Regards
+ 6.  Spiderland
+ 7.  Pennywhistle
+ 8.  Attack of Uberwermi
+
 
 ## Отношения с другими группами
 

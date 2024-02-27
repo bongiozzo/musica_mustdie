@@ -1,7 +1,32 @@
 # Talon
 
-Дискография
-"Talon" 2002, Hard Rock
+
+
+## Дискография
+
+### "Talon" 2002, Hard Rock
+
+1 Wrecking Bal 
+2 Fire In Your Soul
+3 Still You Run
+4 Calling You Tonight
+5 Talon In My Heart
+6 Falling Star
+7 Mother Mary May I
+8 Holding You Soon
+9 All Is Not Forgiven
+10 Livin' For Your Love
+11 Rock'n'Roll Runaway
+
+
+
+Kory Voxen - Rhythm Guitar & Keyboards
+Michael O'Mara - Lead Vocalist
+Jim Kee - Lead Guitar
+Phil Keller - Bass
+John Parker - Drums
+
+
 
 ## Отношения с другими группами
 

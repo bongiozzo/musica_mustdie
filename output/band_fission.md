@@ -1,7 +1,13 @@
 # Fission
 
-Дискография
-"Crater" 2004, Progressive
+melodic thrash from VINTERSORG
+
+## Дискография
+
+### "Crater" 2004, Progressive
+
+
+
 
 ## Отношения с другими группами
 

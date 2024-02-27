@@ -1,7 +1,23 @@
 # Hate in Hands
 
-Дискография
-"Through The Veins" 2014, Melodic Death Metal
+
+
+## Дискография
+
+### "Through The Veins" 2014, Melodic Death Metal
+
+1. One Step
+2. Fight Against You
+3. Regression of Humanity
+4. Sinking Soul
+5. To Those Who Fall
+6. Facing Death
+7. Refuse Serenity
+8. Existence to Ashes
+9. Designed to Disgrace
+10. Blank Reflections
+11. The Escaping
+
 
 ## Отношения с другими группами
 

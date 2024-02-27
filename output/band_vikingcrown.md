@@ -1,7 +1,21 @@
 # Viking Crown
 
-Дискография
-"Unorthodox Steps of Ritual" 2000, Death Metal
+Satanic Death Metal
+
+## Дискография
+
+### "Unorthodox Steps of Ritual" 2000, Death Metal
+
+Intro 
+Asmodeus Rising 
+Satan Ruler of Earth 
+Lust and Destruction 
+The Judas Goat 
+Unorthodox Steps of Ritual 
+Blaspheme 
+Invocation toward the Conjuration of Black Souls 
+
+
 
 ## Отношения с другими группами
 

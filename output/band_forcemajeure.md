@@ -1,7 +1,23 @@
 # Force Majeure
 
-Дискография
-"Frozen Chambers" 2008, Heavy Metal
+
+
+## Дискография
+
+### "Frozen Chambers" 2008, Heavy Metal
+
+1. Gatecrusher 
+2. Wings of the Fallen 
+3. Chambers 
+4. Dr. Daydream 
+5. I Hear Voices 
+6. Winterґs Tale 
+7. Endure the Cold 
+8. Lightbringer Returns 
+9. Secret Moments 
+10. Dead Times Awaken
+
+
 
 ## Отношения с другими группами
 

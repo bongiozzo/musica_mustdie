@@ -1,8 +1,48 @@
 # Anonima Sequestri
 
-Дискография
-"Unsafe, Insane, & Forced" 2007, Deathcore
-"Anonima Sequestri" 2010, Deathcore
+
+
+## Дискография
+
+### "Unsafe, Insane, & Forced" 2007, Deathcore
+
+1.	 Slow Rotting Egg's Head	01:13	 
+2.	 No Anestia	01:53	 
+3.	 Sexual Submission Through Violence	02:39	 
+4.	 I Don't Give a Shit	01:47	 
+5.	 Anal Worship	02:53	 
+6.	 Asphyxophilia	02:58	 
+7.	 Make Her a Slave	02:33	 
+8.	 You Fell into a Groove	01:32	 
+9.	 Anonima Mosh	02:11	 
+10.	 Your Cannibal Family Sucks	00:46	 
+11.	 Anal Sex Terror (CBT Cover)	02:10	 
+12.	 Neighbours Are Pests	02:10	 
+13.	 Blasphemorphic	01:06	 
+14.	 Pain Solution	02:48	
+
+### "Anonima Sequestri" 2010, Deathcore
+
+1.	 Facial Queen	03:48	 
+2.	 Drastic Genital Mutilation	00:48	 
+3.	 Chlamydia Trachomatis	02:31	 
+4.	 Infibula	03:19	 
+5.	 Strap-on-Dildo Teenage School Party	01:52	 
+6.	 Weenie Beater Boy	02:08	 
+7.	 Transexual Balld	01:12	 
+8.	 Two Girls One Cup	03:39	 
+9.	 Candy Candy Candidia	02:58	 
+10.	 Creampie Felching	02:47	 
+11.	 Urolagnia	02:38	 
+12.	 Fingercut	00:38	 
+13.	 Kotzwarraism (Asphyxiophilia II)	03:22	 
+14.	 Acne on Your Clit - Collasso Rettale	01:22	 
+15.	 Dispareunia	02:33	 
+16.	 Klismaphila	02:14	 
+17.	 Squirt Melodies	01:57	 
+18.	 Ballgag-Horsewhip Inc House of Pain	01:29	 
+19.	 Screwed into Ethylic Coma	03:49	
+
 
 ## Отношения с другими группами
 

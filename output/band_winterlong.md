@@ -1,8 +1,28 @@
 # Winterlong
 
-Дискография
-"Locking Up The Gates" 2001, Power Metal
-"The Second Coming" 2003, Power Metal
+power-metal
+
+## Дискография
+
+### "Locking Up The Gates" 2001, Power Metal
+
+
+
+### "The Second Coming" 2003, Power Metal
+
+1. Locking Up The Gates 
+2. Twisting My Tail 
+3. Northman 
+4. Retaliation 
+5. We'll Be Immortals 
+6. Call Of The Wild 
+7. Wild Winter Nights 
+8. In Worlds Of Illusions 
+9. Ride Into The Skies 
+10. Evolution 
+11. Messiah The War Machine 
+12. Aurora Borealis A New Beginning
+
 
 ## Отношения с другими группами
 

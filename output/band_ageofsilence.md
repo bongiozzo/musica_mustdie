@@ -1,7 +1,31 @@
 # Age Of Silence
 
-Дискография
-"Acceleration" 2004, Alternative
+Norwegian All-Stars Project
+
+## Дискография
+
+### "Acceleration" 2004, Alternative
+
+1. Auditorium of Modern Movements 03:36  
+2. Acceleration 04:30  
+3. The Concept of Haste 04:09  
+4. A Song For D. Incorporated 04:59  
+5. The Green Office and The Dark Desk Drawer 04:17  
+6. The Flow at 09:30 am 06:25  
+7. Of Concrete and Glass 03:14  
+8. 90* Angels 07:19  
+9. I No Longer Know If I Am Mad 02:28  
+10. Synthetic, Fabricated, Calculated 04:11
+
+
+
+Lars Nedland - Vocals (Borknagar, Solefald, ex-Carpathian Forest, Бsmegin)
+Eikind (Lars Eric Si) - Bass (ex-Khold, Tulus, Winds (Nor))
+Hellhammer - Drums (Mayhem (Nor), Winds (Nor), ex-The Kovenant, ex-Covenant, ex-Immortal (Nor), Troll)
+Andy Winter - Keyboards (Winds (Nor))
+Extant - Guitars
+Kobbergaard (K. Haugen) - Guitars (ex-Winds (Nor))
+
 
 ## Отношения с другими группами
 

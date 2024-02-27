@@ -1,8 +1,42 @@
 # Tenebre
 
-Дискография
-"Mark Ov The Beast" 2000, Gothic
-"Electric Hellfire Kiss" 2002, Gothic
+
+
+## Дискография
+
+### "Mark Ov The Beast" 2000, Gothic
+
+1. Harvester Of Souls
+2. Tombola Voodoo Master
+3. Mark Ov The Beast
+4. I Am Your Ritual
+5. God Speaks In Tongues
+6. Putana Satana
+7. Gone With The Wind
+8. The Undertaker
+9. Come To Season
+10. Thy Darkness Come
+11. Alignment
+
+### "Electric Hellfire Kiss" 2002, Gothic
+
+1.Electric Hellfire Kiss
+2.Alienation
+3.Descend From Heaven
+4.Nocturnal Rhapsody
+5.Beauty Destroyed
+6.She Darks The Sun
+7.Starlet Wolverine
+8.Death Becomes You
+9.At The Mountain
+10.Malochia
+
+Bonustracks:
+
+11. Crimson Beast
+12. It's A Sin
+13. In Xanadu
+
 
 ## Отношения с другими группами
 

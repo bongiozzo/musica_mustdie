@@ -1,7 +1,24 @@
 # Fragments Of Unbecoming
 
-Дискография
-"Skywards - A Sylphe's Ascension" 2004, Death Metal
+Death metal with the influence of Sweden
+
+## Дискография
+
+### "Skywards - A Sylphe's Ascension" 2004, Death Metal
+
+01. Up From The Blackest Of Soil 
+02. The Seventh Sunray Enlights My Pathway
+03. Shapes Of The Pursuers 
+04. Skywards - A Sylphe's Ascension
+05. Mesmerized 
+06. Entangled Whispers In The Depth
+07. Evensong 
+08. Scattered To The Four Winds 
+09. On A Scar's Edge Infinity 
+10. Lour Pulse 
+11. Fear My Hatred 
+12. Life's Last Embers
+
 
 ## Отношения с другими группами
 

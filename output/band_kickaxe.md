@@ -1,10 +1,38 @@
 # Kick Axe
 
-Дискография
-"Voices" 1984, Hard Rock
-"Welcome To The Club" 1985, Hard Rock
-"Rock The World" 1986, Hard Rock
-"IV" 2004, Hard Rock
+melodic hard rock
+
+## Дискография
+
+### "Voices" 1984, Hard Rock
+
+
+
+### "Welcome To The Club" 1985, Hard Rock
+
+
+
+### "Rock The World" 1986, Hard Rock
+
+
+
+### "IV" 2004, Hard Rock
+
+01. Right Now
+02. Rockin Daze
+03. Consolation
+04. Turn to Stone
+05. Do You Know
+06. Who Knows Ya
+07. Woe
+08. Time
+09. Slip Inside My Dreams
+10. Who Says
+11. Rock n Roll Dog
+12. Black Heart
+13. City Lights
+14. The Only Ones Here
+
 
 ## Отношения с другими группами
 

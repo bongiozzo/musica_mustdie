@@ -1,11 +1,49 @@
 # Scarve
 
-Дискография
-"Six Tears of Sorrow" 1996, Death Metal
-"Opacity" 1998, Death Metal
-"Translucence" 2000, Thrash
-"Luminiferous" 2002, Thrash
-"Irradiant" 2004, Thrash
+(French thrash)
+
+## Дискография
+
+### "Six Tears of Sorrow" 1996, Death Metal
+
+
+
+### "Opacity" 1998, Death Metal
+
+
+
+### "Translucence" 2000, Thrash
+
+
+
+### "Luminiferous" 2002, Thrash
+
+
+
+### "Irradiant" 2004, Thrash
+
+1. Mirthless Perspectives
+2. An Emptier Void
+3. Irradiant
+4. Asphyxiate (featuring Fredrik Thortendal - Meshuggah)
+5. HyperConscience
+6. The Perfect Disaster
+7. Molten Scars (featuring Gustaf Jorde - Defleshed)
+8. FireProven
+9. Boiling Calm
+
+
+
+Pierrick Valence : screams
+Guillaume Bideau : melodies
+Patrick Martin : rhythm guitars
+Sylvain Coudret : rhythm & lead guitars
+Loпc Colin : bass
+Dirk Verbeuren : drums
+
+
+recorded in July 2003 at Daniel Bergstrand's Dug Out Studio
+
 
 ## Отношения с другими группами
 

@@ -1,14 +1,88 @@
 # Gang Green
 
-Дискография
-"Another Wasted Night" 1986, Punk
-"You Got It" 1987, Crossover
-"I81B4U (EP)" 1988, Crossover
-"Older... Budweiser" 1989, Crossover
-"Can't Live Without It (Live)" 1990, Crossover
-"King Of Bands (Compilation)" 1991, Crossover
-"Another Case Of Brewtality" 1997, Punk
-"Back & Gacked (EP)" 1998, Punk
+
+
+## Дискография
+
+### "Another Wasted Night" 1986, Punk
+
+
+
+### "You Got It" 1987, Crossover
+
+1. Haunted House
+2. We'll Give It To You
+3. Sheetrock
+4. Ballerina Massacre
+5. Born To Rock
+6. Bomb
+7. LSDB
+8. Whoever Said
+9. Party With The Devil
+10.Some Things
+11.The Climb
+12.Sick Sex Six
+
+ Brian Betzger - Drums,Back.Vocals
+ Fritz - Lead Guitar,Back.Vocals
+ Chris Doherty - Lead Vocals & Guitar
+ Joe Gittleman - Bass,Back.Vocals
+
+All Songs Written By GANG GREEN.
+Produced & Engineered By Thom Moore.
+Recorded At Blue Jay Recording Studio.
+
+(p)&(c) 1987 ROADRUNNER Prod. B.V.
+
+### "I81B4U (EP)" 1988, Crossover
+
+
+
+### "Older... Budweiser" 1989, Crossover
+
+
+
+### "Can't Live Without It (Live)" 1990, Crossover
+
+1. Let's Drink Some Beer
+2. Bartender
+3. Lost Chapter
+4. We'll Give It To You
+5. We Can Go
+6. Have Fun
+7. Last Chance
+8. Just One Bullet
+9. Born To Rock
+10.Rabies
+11.Voices Carry
+12.Sold Out
+13.Bedroom Of Doom
+14.Bomb
+15.Alcohol
+
+ Brian Betzger - Drums
+ Fritz - Guitar
+ Chris Doherty - Vocals & Lead Guitar
+ Josh Pape - Bass
+
+Produced By Tony Wilson.
+Recorded At The Marquee Club,London,
+February 25th,1990.
+
+(p)&(c) 1990 ROADRUNNER Prod. B.V.
+
+### "King Of Bands (Compilation)" 1991, Crossover
+
+
+
+### "Another Case Of Brewtality" 1997, Punk
+
+
+
+### "Back & Gacked (EP)" 1998, Punk
+
+
+
 
 ## Отношения с другими группами
 

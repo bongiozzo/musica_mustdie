@@ -1,7 +1,21 @@
 # Scholomance
 
-Дискография
-"A Treatise On Love" 1999, Black Metal
+progressive-black
+
+## Дискография
+
+### "A Treatise On Love" 1999, Black Metal
+
+1. PT I  The Liars and Those Who Would See Their Blood
+2. PT II  End 
+3. PT III  The Psychology of Demons and the Bitterness of Winter 
+4. PT IV  Toy: A Primrose Path to the Second Circle 
+5. Snowfall: A Serenade for Aurora the Unearthly Angel of Dawn 
+6. I Am That Which Is 
+7. What Was Truth 
+8. Pride of the Serpent Winds 
+9. Exotica Sequence
+
 
 ## Отношения с другими группами
 

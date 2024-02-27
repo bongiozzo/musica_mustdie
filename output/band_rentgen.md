@@ -1,7 +1,13 @@
 # Rentgen
 
-Дискография
-"Lost Castle 2004 / Intrusion From Hell 2005" 2005, Techno Death
+
+
+## Дискография
+
+### "Lost Castle 2004 / Intrusion From Hell 2005" 2005, Techno Death
+
+
+
 
 ## Отношения с другими группами
 

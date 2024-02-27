@@ -1,7 +1,20 @@
 # Wedding In Hades
 
-Дискография
-"Elements of Disorder" 2010, Death Doom
+
+
+## Дискография
+
+### "Elements of Disorder" 2010, Death Doom
+
+1. Sacrifice	 
+2. Safety	 
+3. As You Die	 
+4. Centuries of Men 
+5. Widow	 
+6. Doomed	 
+7. A Dark Sea (Signaculum Domini)	 
+8. The Wise
+
 
 ## Отношения с другими группами
 

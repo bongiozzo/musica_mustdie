@@ -1,7 +1,21 @@
 # Equinox
 
-Дискография
-"Color of the Time" 1997, Progressive
+Prog-metal
+
+## Дискография
+
+### "Color of the Time" 1997, Progressive
+
+1.) The Way Things Are
+2.) Extinction
+3.) Hallucination
+4.) Lost Without Your Touch
+5.) Breakaway
+6.) Listen To Me
+7.) Foolish Lies
+8.) Believe
+9.) Color Of The Time
+
 
 ## Отношения с другими группами
 

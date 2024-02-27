@@ -1,13 +1,111 @@
 # Circle II Circle
 
-Дискография
-"Watching In Silence" 2003, Heavy Metal
-"The Middle Of Nowhere" 2005, Heavy Metal
-"Burden Of Truth" 2006, Heavy Metal
-"Every Last Thing [EP]" 2008, Heavy Metal
-"Delusions Of Grandeur" 2008, Heavy Metal
-"Consequence of Power" 2010, Heavy Metal
-"Seasons Will Fall" 2013, Heavy Metal
+
+
+## Дискография
+
+### "Watching In Silence" 2003, Heavy Metal
+
+1. Out Of Reach
+2. Sea Of White
+3. Into The Wind
+4. Watching In Silence
+5. Forgiven
+6. Lies
+7. Face To Face
+8. Walls
+9. The Circle
+10. Fields Of Sorrow
+11. Watching In Silence (club/radio) 
+
+Zak Stevens  - vox
+Matt La Porte - guitars
+Christopher Kinder - drums
+John Zahner - keys
+Kevin Rothney - bass
+
+
+### "The Middle Of Nowhere" 2005, Heavy Metal
+
+In This Life (Intro)
+All That Remains
+Open Season
+Holding On
+Cynical Ride
+Hollow
+Strung Out
+Faces In The Dark
+The Middle Of Nowhere
+Lost (The Cleansing)
+
+### "Burden Of Truth" 2006, Heavy Metal
+
+
+
+### "Every Last Thing [EP]" 2008, Heavy Metal
+
+1. Every Last Thing (edit version)   
+2. Darkness Rising   
+3. So Many Reasons   
+4. Every Last Thing (album version)
+
+### "Delusions Of Grandeur" 2008, Heavy Metal
+
+Fatal Warning 
+Dead of Dawn 
+Forever 
+Echoes 
+Waiting 
+Soul Breaker
+Stay (bonustrack) 
+Seclusion 
+So Many Reasons 
+Chase the Lies 
+Every Last Thing 
+Darkness Rising (bonustrack)
+Revelations (bonus video)
+Evermore (bonus video)
+
+Zak Stevens - вокал 
+Evan Christopher - гитары
+Andy Lee - гитары
+Paul Michael Stewart - бас, клавишные
+Tom Drennan - ударные
+
+### "Consequence of Power" 2010, Heavy Metal
+
+1. Whispers In Vain   
+2. Consequence Of Power   
+3. Out Of Nowhere   
+4. Remember   
+5. Mirage   
+6. Episodes Of Mania   
+7. Redemption   
+8. Take Back Yesterday   
+9. Anathema   
+10. Blood Of An Angel 
+
+
+Zachary Stevens (vocals)
+Paul Michael Stewart (bass & keys)
+Andy Lee (guitars)
+Johnny Osborn (drums) 
+
+### "Seasons Will Fall" 2013, Heavy Metal
+
+01. Diamond Blade
+02. Without A Sound
+03. Killing Death
+04. Epiphany
+05. End Of Emotion
+06. Dreams That Never Die
+07. Seasons Will Fall
+08. Never Gonna Stop
+09. Isolation
+10. Sweet Despair
+11. Downshot
+12. Only Yesterday
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,18 @@
 # Shining Abyss
 
-Дискография
-"Sacrifice-Reh-96" 2008, Black Metal
+
+
+## Дискография
+
+### "Sacrifice-Reh-96" 2008, Black Metal
+
+1. Intro 02:14  
+2. Soul of Blasphemy 05:52  
+3. Funeral Procession 05:09  
+4. Forgotten Soul 02:35  
+5. Eternal Flames 07:25  
+6. Outro 05:17 
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,46 @@
 # Noctes
 
-Дискография
-"Pandemonic Requiem" 1998, Death Metal
-"Vexilla Regis Prodeunt INFERNI" 1999, Death Metal
+
+
+## Дискография
+
+### "Pandemonic Requiem" 1998, Death Metal
+
+Twilight Elysium 
+Reverie 
+Hokmah Nistarah 
+In Silence
+Attila
+Butterfly
+Winterdawn
+Purgatory Temptations 
+Orphean Horizons 
+Lamia 
+Outro 
+
+
+
+April 20th 1998 under No Fashion Records. Recorded & Mixed at Sunlight Studio during December 1996. Produced & Mixed by Tomas Skogsberg & Noctes. Front cover art by Holger Thorsin. Folder art by Hugo Thorsin. Photography by Asa Rosenberg
+
+
+### "Vexilla Regis Prodeunt INFERNI" 1999, Death Metal
+
+Mirrorland 
+Frozen to sleep 
+Demonica 
+A demon from within 
+Vexilla regis prodeunt inferni 
+The lost garden 
+Darkside whispers 
+Persephone 
+Carnifex 
+De profundis clamavi 
+
+
+
+June 28th 1999 under Swedish label No Fashion Records. Recorded & Mixed at Sunlight Studios in the fall of 1998. Produced & Mixed by Jocke Pettersson, Tomas Skogsberg & Noctes. Front cover and folder art by Hugo Thorsin. Photography by Goran Johansson, TelgeFoto. 
+
+
 
 ## Отношения с другими группами
 

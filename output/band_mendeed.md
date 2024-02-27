@@ -1,7 +1,26 @@
 # Mendeed
 
-Дискография
-"This War Will Last Forever" 2006, Nu Metal
+
+
+## Дискография
+
+### "This War Will Last Forever" 2006, Nu Metal
+
+01. What We Have Become
+02. Beneath A Burning Sky
+03. Stand As One And Fight For Glory
+04. Remains Of The Day
+05. Chapel Perilous
+06. The Mouring Aftermath
+07. Poisoned Hearts
+08. Withered And Torn
+09. Ressurecting Hope
+10. For Blasphemy We Bleed
+11. The Reaper Waits
+12. The Black Death
+13. The End Of Men
+14. Divided We Fall
+
 
 ## Отношения с другими группами
 

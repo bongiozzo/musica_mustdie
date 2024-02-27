@@ -1,11 +1,43 @@
 # Pandemia
 
-Дискография
-"Dust On The Eyes (demo)" 1995, Death Metal
-"Dance In Vicious Circle (demo)" 1997, Death Metal
-"The Message From The Death Metal Empire (demo)" 1999, Death Metal
-"Spreading The Message" 2000, Death Metal
-"Personal Demon" 2002, Death Metal
+czech death metal band
+
+## Дискография
+
+### "Dust On The Eyes (demo)" 1995, Death Metal
+
+
+
+### "Dance In Vicious Circle (demo)" 1997, Death Metal
+
+
+
+### "The Message From The Death Metal Empire (demo)" 1999, Death Metal
+
+
+
+### "Spreading The Message" 2000, Death Metal
+
+
+
+### "Personal Demon" 2002, Death Metal
+
+1. Shores of Agony
+2. The Right Path
+3. Devious Omen
+4. Personal Demon
+5. Sins of my Blood
+6. Demonic Time
+7. In this World
+8. Father of the Lie
+9. Erased from the Earth
++ an exclusive CD-Rom track by www.brutalism.com 
+
+line-up:
+Michal - vocals, Jarda - bass, Pavel - drums, Alex - guitars
+
+December 2002 (Lost Disciple Records)
+
 
 ## Отношения с другими группами
 

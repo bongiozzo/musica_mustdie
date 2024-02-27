@@ -1,8 +1,39 @@
 # Arthemis
 
-Дискография
-"Church Of The Holy Ghost" 2000, Power Metal
-"The Damned Ship" 2002, Power Metal
+
+
+## Дискография
+
+### "Church Of The Holy Ghost" 2000, Power Metal
+
+1.   WAR
+   I act: Darkness
+   II act: The prophecy
+  III act: Sounds of victory
+2.   TYRANTS’ TIME
+3.   TIME TO REACT
+4.   TOMORROW’S WORLD
+5.   CLAWS OF THE DEVIL
+6.   THE STORM
+7.   TWILIGHT IN THE DARK
+8.   CHURCH OF THE HOLY GHOST
+9.   SHATTERED         (bonus track)
+
+
+### "The Damned Ship" 2002, Power Metal
+
+1.   QUEST FOR IMMORTALITY
+2.   VOICE OF THE GODS
+3.   SUN'S TEMPLE
+4.   STARCHILD
+5.   THE WAIT     (instrumental)
+6.   THE NIGHT OF THE VAMPIRE
+7.   EARTHQUAKE    (instrumental)
+8.   NOBLE SWORD
+9.   THE DAMNED SHIP
+
+
+
 
 ## Отношения с другими группами
 

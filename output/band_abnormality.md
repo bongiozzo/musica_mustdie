@@ -1,8 +1,17 @@
 # Abnormality
 
-Дискография
-"Contaminating the Hive Mind" 2012, Death Metal
-"Mechanisms of Omniscience" 2016, Death Metal
+
+
+## Дискография
+
+### "Contaminating the Hive Mind" 2012, Death Metal
+
+
+
+### "Mechanisms of Omniscience" 2016, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

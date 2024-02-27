@@ -1,7 +1,13 @@
 # Agony Of Deceit
 
-Дискография
-"Affliction" 2003, Thrash
+
+
+## Дискография
+
+### "Affliction" 2003, Thrash
+
+
+
 
 ## Отношения с другими группами
 

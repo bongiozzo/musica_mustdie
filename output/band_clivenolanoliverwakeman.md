@@ -1,8 +1,41 @@
 # Clive Nolan & Oliver Wakeman
 
-Дискография
-"Jabberwocky" 1999, Progressive
-"The Hound Of The Baskervilles" 2002, Progressive
+Progressive
+
+## Дискография
+
+### "Jabberwocky" 1999, Progressive
+
+01. Overture
+02. Coming To Town
+03. Dangerous World
+04. The Forest
+05. A Glimmer Of Light
+06. Shadows
+07. Enlightenment
+08. Dancing Water
+09. The Burgundy Rose
+10. The Mission
+11. Call To Arms
+12. Finale
+
+### "The Hound Of The Baskervilles" 2002, Progressive
+
+1. Overture
+2. The Curse Of The Baskervilles
+3. Three Broken Threads
+4. Shadows Of Fate
+5. At Home In The Mire
+6. Run For Your Life
+7. Picture Of A Lady
+8. The Argument
+9. Second Light
+10. Seldon
+11. Death On The Moor
+12. By Your Side
+13. Waiting
+14. Chasing The Hound
+
 
 ## Отношения с другими группами
 

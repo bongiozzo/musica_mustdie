@@ -1,10 +1,29 @@
 # Absurd
 
-Дискография
-"Senselessness Of Existence (demo)" 1997, Thrash
-"Frostland" 1998, Melodic Death Metal
-"Live In Farvater (live EP)" 1999, Melodic Death Metal
-"Beyond The Dawn" 2000, Melodic Death Metal
+Russian Melodic Death Metal
+
+## Дискография
+
+### "Senselessness Of Existence (demo)" 1997, Thrash
+
+
+
+### "Frostland" 1998, Melodic Death Metal
+
+
+
+### "Live In Farvater (live EP)" 1999, Melodic Death Metal
+
+
+
+### "Beyond The Dawn" 2000, Melodic Death Metal
+
+Where Time Has Died Away
+Heterodox
+Beyond The Dawn
+No return
+
+
 
 ## Отношения с другими группами
 

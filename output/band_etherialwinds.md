@@ -1,8 +1,49 @@
 # Etherial Winds
 
-Дискография
-"Saved" 1994, Death Doom
-"Find The Way... Together" 1995, Death Doom
+
+
+## Дискография
+
+### "Saved" 1994, Death Doom
+
+1. Calmed
+2. Into The Serene
+3. Winter
+4. Benevolence Of The Opaque
+5. In Depression
+6. Endless
+
+ Henri - Vocals
+ Bert - Guitars
+ Benno - Bass
+ Micha - Drums
+ Ben - Keyboards
+
+All Songs Written By ETHERIAL WINDS
+
+(p)&(c) 1994 MMI Records
+
+### "Find The Way... Together" 1995, Death Doom
+
+1. Together
+2. Entrance
+3. Hymne Of Gladness
+4. Elements Of Sorrow
+5. Wish
+6. Hunger
+7. Can't You Sleep
+8. Tragedy
+
+ Henri - Vocals
+ Bert - Guitars
+ Benno - Bass
+ Micha - Drums
+ Ben - Keyboards
+
+All Songs Written By ETHERIAL WINDS
+
+(p)&(c) 1995 CYBER Music
+
 
 ## Отношения с другими группами
 

@@ -1,10 +1,109 @@
 # LoudBlast
 
-Дискография
-"Sensorial Treatment" 1989, Death Metal
-"Disincarnate" 1991, Death Metal
-"Cross The Threshold" 1993, Death Metal
-"Sublime Dementia" 1993, Death Metal
+France High Class Death
+
+## Дискография
+
+### "Sensorial Treatment" 1989, Death Metal
+
+1. Fatal Attraction
+2. From Beyond
+3. Agony
+4. Trepanning
+5. Rebirth
+6. Infinite Pleasures
+7. Malignant Growth
+8. Pouss Mouss
+9. Oath Of Allegiance
+
+Stephane Buriez - Guitars & Vocals
+Nicolas Leclercq - Guitars
+Francois Jamin - Bass
+Joris Terrier - Drums
+
+Engineered By Alan Wax.
+
+(p)&(c) 1989 JUNGLE HOP Records
+
+### "Disincarnate" 1991, Death Metal
+
+1. Steering For Paradise
+2. After Thy Thought
+3. Dusk To Dawn
+4. Outlet For Conscience
+5. Disqueting Beliefs
+6. The Horor Within
+7. Arrive Into Death Soon
+8. Wrapped In Roses
+9. Shaped Images Of Disincarnate Spirits
+
+ Stephane Buriez - Vocals,Lead & Rhythm Guitars
+ Nicolas Leclercq - Lead & Rhythm Guitars
+ Francois Jamin - Bass
+ Thierry Pinck - Drums
+
+All Music Composed & Arranged By LOUDBLAST.
+Produced By Scott Burns & LOUDBLAST.
+Engineered & Mixed By Scott Burns.
+Engineering Assisted By Fletcher McLean.
+Recorded & Mixed At Morrisound Studios,Tampa,Florida.
+Mastered By Mike Fuller At Fullersound Inc.,Miami, Florida.
+Kam Lee,Guest Vocals On "The Horror Within",
+Appears With Courtesy Of EARACHE Records. Keyboard Effects By Kent Smith,Soundsmith Production.
+Cover Painting "Vulkan" By W.Suidmak.
+Logo Concept By S.Thanneur.
+Logo Artwork By W.Suidmak.
+
+(p)&(c) 1991 FNAC MUSIC
+
+### "Cross The Threshold" 1993, Death Metal
+
+1. Malignant Growth
+2. No Tears To Share
+3. Mandatory Suicide *
+4. Cross The Threshold
+5. Subject To Spirit
+6. Sublime Dementia (Morrisound Version)
+
+* Written By Araya,Hanneman,King.
+
+ S.Buriez  - Vocals,Guitars
+ N.Leclerq  - Guitars
+ F.Jamin  - Bass
+ H.Coquerel - Drums
+
+Produced By Colin Richardson,Bruno Objoie
+& LOUDBLAST.
+Engineered By Colin Richardson,Bruno Objoie.
+Recorded & MXIed At C.M.A. Studio,Valenciennes,
+France.
+
+(p)&(c) 1993 NOISE International
+
+### "Sublime Dementia" 1993, Death Metal
+
+1. Presumption
+2. Wisdom...(Farther On)
+3. Turn The Scales
+4. About Solitude
+5. Subject To Spirit
+6. Fire & Ice
+7. In Perpetual Motion
+8. Fancies
+9. Sublime Dementia
+10.My Last Journey
+
+ S.Buriez - Guitars & Vocals
+ N.Leclercq - Guitars
+ F.Jamin - Bass
+ H.Coquerel - Drums
+
+Produced By Scott Burns & LOUDBLAST.
+Engineered & Mixed By Scott Burns.
+Recorded & Mixed At Morrisound Studio,Tampa,Florida.
+
+(p)&(c) 1993 NOISE Intl.
+
 
 ## Отношения с другими группами
 

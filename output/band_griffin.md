@@ -1,8 +1,42 @@
 # Griffin
 
-Дискография
-"Wasteland Serenades" 2000, Doom
-"The Sideshow" 2002, Doom
+
+
+## Дискография
+
+### "Wasteland Serenades" 2000, Doom
+
+Mechanized Reality
+The Usurper
+Spite Keep Me Silent
+Obsession
+New Business Capitalized
+Hunger Strikes
+Always Closing
+Punishment Macabre
+Exit 2000
+Wasteland Serenade
+Dream of the Dreamers
+(Bliss 2)
+
+
+### "The Sideshow" 2002, Doom
+
+Prologue
+Shadows of Deception
+Horrific Visual Realization
+The Freak Show
+The Last Rays of a Dying Sun
+Death Row League
+What If...
+A Distant Shore
+Vengeance Is Mine
+Today’s Castaway
+Cosmic Revelation
+Epilogue
+
+
+
 
 ## Отношения с другими группами
 

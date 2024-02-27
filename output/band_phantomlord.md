@@ -1,10 +1,65 @@
 # Phantom Lord
 
-Дискография
-"In Twilight World" 1999, Power Metal
-"Evil's Domain" 2000, Power Metal
-"Circle Of The Wasted" 2002, Power Metal
-"Imperial Fall" 2005, Power Metal
+
+
+## Дискография
+
+### "In Twilight World" 1999, Power Metal
+
+
+
+### "Evil's Domain" 2000, Power Metal
+
+1.	 Intro
+2.	 Rules Of The Past
+3.	 Evil&#180;s Domain
+4.	 Everlasting Curse
+5.	 Lost Grace
+6.	 Blood Money
+7.	 Unchained
+8.	 Born In Lust
+9.	 Mender In Power
+10.	 Wolverine
+11.	 Evil&#180;s Domain (Classical Version)
+
+### "Circle Of The Wasted" 2002, Power Metal
+
+01. Ascesion
+02. No Strains
+03. Circle Of The Wasted
+04. Liquid State
+05. Bellow Your Breath
+06. Inferno
+07. Crystal Of The Heart
+08. Vanity (Reign Supreme)
+09. Cyber Heartbeat
+10. Lust For Your Touch
+11. Private Universe
+
+
+
+Yiannis Fiorentis: Guitars
+Vasilis Axiotis: Vocals
+Elias Karahalios: Drums
+Leonidas Petropoulos: Bass
+Mihalis Ligiaris: Keyboards 
+
+
+
+### "Imperial Fall" 2005, Power Metal
+
+1.	 Imperial Fall
+2.	 Stellar Forge
+3.	 Double Cage
+4.	 Illusion Of The Mirror
+5.	 Timeline
+6.	 Break Of Dawn
+7.	 Black Horizon
+8.	 Holy Experiment
+9.	 Digital Resolution
+10.	 Mirage
+11.	 Inside
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,22 @@
 # Subsignal
 
-Дискография
-"Beautiful & Monstrous" 2009, Progressive
+SIEGES EVEN members
+
+## Дискография
+
+### "Beautiful & Monstrous" 2009, Progressive
+
+1. Where Angels Fear To Tread  06:04 
+2. Paradigm  06:29   
+3. The Sea  07:00   
+4. The Trick Is To Keep Breathing  06:21   
+5. Walking With Ghosts  07:40  
+6. I Go With The Wind  04:54    
+7. To Hope The Road Is Long  04:15   
+8. Beautiful & Monstrous  09:39    
+9. The Last Light Of Summer  04:02 
+10. Eyes Wide Open  06:39    
+
 
 ## Отношения с другими группами
 

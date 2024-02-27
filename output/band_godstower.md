@@ -1,14 +1,214 @@
 # Gods Tower
 
-Дискография
-"Chemical Warfare (demo)" 1992, Doom
-"The Eerie" 1993, Doom
-"Canticles" 1994, Doom
-"The Turns" 1996, Doom
-"Abandon All Hope" 2001, Doom
-"The Anthology" 2003, Doom
-"Steel Says Last" 2011, Doom
-"Liar (single)" 2016, Metal
+Belorussian Folk-Doom/Death
+
+## Дискография
+
+### "Chemical Warfare (demo)" 1992, Doom
+
+1. Iprit 
+2. Eversleepside 
+3. Inis Afalon
+
+### "The Eerie" 1993, Doom
+
+1. Reign of Silence - 12:19
+2. When Life Ends - 09:59
+3. Inis Afalon (Instrumental) - 05:32
+4. Till Death Do Us Part - 11:16
+5. The Eerie - 04:34
+6. The Eerie (bonus video)
+
+Alexander Urakoff - Guitars, Keyboards
+Lesley Knife - Vocals
+Wladislaw Saltsevich - Drums, Percussion
+Dmitry Ovchinnikoff - Keyboards
+
+Lyrics by Lesley Knife
+Music by Alexander Urakoff and GODS TOWER
+Some music fragments are inspired by Byelarussian folklore and "Polacky
+Schitak" (The collection of compositions of Byelarussian Renaissance's
+epoch).
+All compositions were composed and arranged during 1992 and 1993.
+
+Special thanks to all people in whole of the world who ever helped and
+supported us during all this time.
+
+Produced by MetalAgen & GODS TOWER.
+Executive producer - Eugene Aksenov
+Recorded and mixed at Aria Records in May-June, 1997.
+Engineered by Dmitry Kalinin and Sergey Terentiev.
+Mastered by Sergey Titov, Saturday Mastering Studio.
+
+Acoustic guitar by Pavel "Billy" Vlasov
+Violin by Alexey Korolev
+Viola by Marianna Pulkiss
+Violin I & II by Wladislaw Panin
+
+Artwork by Zmicier Trayanovich
+Design - Eugene A. Smorodinov
+
+GODS TOWER management:
+c/o Victor Lapitski P.O. Box 123 Gomel, 246012 BELARUS
+Tel./Fax: +375 (0) 232 453567. E-mail: godstower@tut.by
+
+MetalAgen Records: Russia, 101000, Moscow, Glavpochtamt, 5c-o/d, P. Box 179
+Tel./Fax: (095) 267-7780. E-mail: metalagen@soyuz.ru
+
+### "Canticles" 1994, Doom
+
+Canticles 
+Beyond praying 
+Seven rains of fire 
+Praise of sun 
+Mysterious 
+
+
+Gods Tower is:
+
+LESLEY KNIFE - vocals
+
+ALEXANDR URAKOFF - guitars
+
+YURI SIVTSOFF - bass
+
+WLADISLAW SALTSEVICH - drums
+
+
+
+Music by Alexandr Urakoff
+
+Lyrics by Lesley Knife
+
+
+### "The Turns" 1996, Doom
+
+1. Intro / The Turns
+2. I am the Raven
+3. Seven Rains of Fire
+4. Twilight Sun
+5. An Eye for an Eye
+6. Rising Arrows
+7. Blood
+8. Mysterious
+9. An Eye for an Eye (bonus video)
+
+
+Yuri Sivtsoff - bass, back vocal
+Wladislaw Saltsevich - drums, percussion
+Alexander Urakoff - keyboards
+Lesley Knife - vocals
+
+Produced by MetalAgen
+Executive Producer: Eugene Aksenov
+Recorded at Aria Studio, Moscow, May-June 1996
+Engineered by Dmitry Kalinin
+Mastered by Stas Karyakin and Dmitry Kalinin,
+S.B.I. Records, Moscow
+Cover idea by Lesley Knife
+Cover artwork by Alexey Shadaruk
+Other artworks by Zmicier Trayanovich
+Design: Eugene A. Currant
+
+MetalAgen Records
+Russia, 101000, Moscow, Glavpochtamt, 5c-o/d,
+P. Box 179. Tel./Fax: (095) 267-7780.
+
+Gods Tower Management
+c/o Victor Lapitski, P.O. Box 123 Gomel 246012,
+Belarus. Tel./Fax: +375 (0) 232 453567.
+
+GODS TOWER is:
+YURI SIVTSOFF - bass, back vocals
+WLADISLAW SALTSEVICH - drums, percussion
+ALEXANDR URAKOFF - guitars, keyboards
+DMITRY OVCHINNIKOFF - keyboards
+LESLEY KNIFE - vocals
+
+
+
+MetalAgen Records:
+Russia, 101000, Moscow, Glavpochtamt, 5c-o/d, P.Box 179.
+Tel/Fax (095) 267-7780.
+
+
+
+GODS TOWER MANAGEMENT
+c/o VICTOR LAPITSKI
+P.O. Box 123
+BELARUS
+Tel/Fax +375 (0) 232 453567
+
+
+
+GODS TOWER FAN CLUB G.A.T.E.
+c/o Petrenko Andrew P.O. Box 2
+Gomel 246038 BELARUS
+Tel (0232) 726208
+
+### "Abandon All Hope" 2001, Doom
+
+1. Civilization 
+2. Abandon All Hope 
+3. Iron Man 
+4. Final Countdown 
+5. Power & Reason 
+6. When Life Ends (unreleased 7"EP version) 
+7. Reign Of Silence (Oversun edit) 
+8. Civilization (last world war mix) 
+9. Beyond Praying (demo-version video) 
+
+
+Alexander Urakoff - guitars, keyboards
+Lesley Knife - vocals
+Wladislaw Saltsevich - drums
+Valery Novoseltsev - bass
+Sergey Sergeichikoff - keyboards
+
+Produced by MetalAgen
+
+All music by Alexander Urakoff & Gods Tower
+
+All lyrics by Lesley Knife
+Except "Iron Man" by Tony Iommi/Bill Ward/Terry "Geezer" Butler/Ozzy Osbourne (c) 1970 Warner Bros. Records
+"Final Countdown" by Joey Tempest (c) 1986 CBS Inc./Epic Records
+and "Power & Reason" by Andrey Bolshakov (c) ARIA
+
+Tracks 1 & 2 recorded 17-18 October 2000 in Belarus TV studio, Minsk, Belarus. Engineered by Yuri Harachka 
+Tracks 3 & 4 recorded from November 1999 to January 2000in Prockl Sound studio, Minsk, Belarus. Engineered by Andrei Zubritch 
+Track 5 recorded in Ruster studio 10-11 April 2001 at Ruster studio, Chernigov, Ukraine. Engineered by Igor Prigorovski 
+Track 6 recorded and mixed in September of 1993 in TEF studio, Moscow, Russia 
+Track 7 remixed by Oversun, recorded and mixed at P&A DS Studio, March 2001. Courtesy of Nostradamus Records. E-mail: nostradamusrec@mtu-net.ru http://nostradamusrec.euro.ru 
+Track 8 remixed by Fat Not Dead in October-November of 2000 in A-Bomb studio, Minsk, Belarus 
+Track 9 was filmed in 1994 
+
+Yuri Sivtsoff bass on 3,4,6 tracks 
+Dmitry Ovchinnikov keyboards on 3,4 tracks 
+Inna Lozovskaya keyboards on 6 track 
+Mixed & mastered in December of 2000 - May 2001 in A&T Trade studio, Saturday Mastering studio by Sergey Titov and Sergey Dementyev, Moscow, Russia
+
+### "The Anthology" 2003, Doom
+
+
+
+### "Steel Says Last" 2011, Doom
+
+Intro / Steel Says Last
+Earth, Wind, Fire & Blood
+Rarog
+Heroes Die Young
+Evil
+Civilization
+Living Mirror
+Abandon All Hope
+Yesterday’s Rivers
+Poisonodog
+People in the Swamp
+
+### "Liar (single)" 2016, Metal
+
+1. Liar  06:19 
+
 
 ## Отношения с другими группами
 

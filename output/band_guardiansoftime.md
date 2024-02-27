@@ -1,8 +1,56 @@
 # Guardians Of Time
 
-Дискография
-"Edge of Tomorrow" 2001, Power Metal
-"Machines of Mental Design" 2004, Power Metal
+
+
+## Дискография
+
+### "Edge of Tomorrow" 2001, Power Metal
+
+Prologue 
+Guardians of Time 
+Payback 
+High Octane 
+Edge of Tomorrow 
+Midnight Crime 
+Sail Away 
+Soul Reaper 
+As the Morning Rise 
+Tearless 
+Torn Apart 
+Gladiator 
+
+
+
+Recorded at: DUB Studio
+Produced by: Endre Kirkesola & GoT
+Cover art: Derek Riggs
+
+
+
+
+### "Machines of Mental Design" 2004, Power Metal
+
+On What Is To Come
+- 1. Logging On
+- 2. Freeless Society
+- 3. The Rise Of TriOpticon
+
+On A New Era
+- 4. More Than Man
+- 5. TriOpticon
+- 6. Machines Of Mental Design
+
+A Snake In Paradise
+- 7. Puppets Of The Mainframe
+- 8. War Within
+- 9. Escaping Time
+- 10. A Secret Revealed
+
+What Is The End?
+- 11. Point Of No Return
+- 12. Intervention From Beyond
+- 13. The Journey
+
 
 ## Отношения с другими группами
 

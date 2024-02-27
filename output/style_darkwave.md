@@ -53,17 +53,17 @@
 Год: 1998
 
 Группа: Feindflug
+Альбом: "Feindflug V.4"
+Стиль: Darkwave
+Год: 1999
+
+Группа: Feindflug
 Альбом: "Im Visier"
 Стиль: Darkwave
 Год: 1999
 
 Группа: The Moon Lay Hidden Beneath A Cloud
 Альбом: "Rest On Your Arms Reversed"
-Стиль: Darkwave
-Год: 1999
-
-Группа: Feindflug
-Альбом: "Feindflug V.4"
 Стиль: Darkwave
 Год: 1999
 
@@ -77,6 +77,21 @@
 Стиль: Darkwave
 Год: 2002
 
+Группа: Dance of 3rd R
+Альбом: "Puzzle of Flash"
+Стиль: Darkwave
+Год: 2003
+
+Группа: Dvar
+Альбом: "Roah"
+Стиль: Darkwave
+Год: 2003
+
+Группа: Feindflug
+Альбом: "Hirnschlacht"
+Стиль: Darkwave
+Год: 2003
+
 Группа: Feindflug
 Альбом: "I./St.G.3 [Phase 2]"
 Стиль: Darkwave
@@ -87,33 +102,18 @@
 Стиль: Darkwave
 Год: 2003
 
-Группа: Stillife
-Альбом: "Remembrance"
-Стиль: Darkwave
-Год: 2003
-
-Группа: Dance of 3rd R
-Альбом: "Puzzle of Flash"
-Стиль: Darkwave
-Год: 2003
-
-Группа: Feindflug
-Альбом: "Hirnschlacht"
-Стиль: Darkwave
-Год: 2003
-
-Группа: Dvar
-Альбом: "Roah"
-Стиль: Darkwave
-Год: 2003
-
 Группа: Lamia
 Альбом: "Dark Angel"
 Стиль: Darkwave
 Год: 2003
 
-Группа: Sopor Aeternus
-Альбом: "Flowers in Formaldehyde"
+Группа: Stillife
+Альбом: "Remembrance"
+Стиль: Darkwave
+Год: 2003
+
+Группа: Dargaard
+Альбом: "Rise And Fall"
 Стиль: Darkwave
 Год: 2004
 
@@ -122,23 +122,18 @@
 Стиль: Darkwave
 Год: 2004
 
-Группа: Dargaard
-Альбом: "Rise And Fall"
-Стиль: Darkwave
-Год: 2004
-
 Группа: Dvar
 Альбом: "Taai Liira"
 Стиль: Darkwave
 Год: 2004
 
-Группа: Stillife
-Альбом: "Memories"
-Стиль: Darkwave
-Год: 2005
-
 Группа: Sopor Aeternus
-Альбом: "The Goat"
+Альбом: "Flowers in Formaldehyde"
+Стиль: Darkwave
+Год: 2004
+
+Группа: Dvar
+Альбом: "Hor Hor"
 Стиль: Darkwave
 Год: 2005
 
@@ -147,8 +142,13 @@
 Стиль: Darkwave
 Год: 2005
 
-Группа: Dvar
-Альбом: "Hor Hor"
+Группа: Sopor Aeternus
+Альбом: "The Goat"
+Стиль: Darkwave
+Год: 2005
+
+Группа: Stillife
+Альбом: "Memories"
 Стиль: Darkwave
 Год: 2005
 
@@ -157,13 +157,13 @@
 Стиль: Darkwave
 Год: 2006
 
-Группа: Ion
-Альбом: "Madre Protegenos"
+Группа: Deine Lakaien
+Альбом: "20 Years Of Elelctronic Avantgarde (with Die Neue Philharmonie Frankfurt) (2 CD)"
 Стиль: Darkwave
 Год: 2007
 
-Группа: Deine Lakaien
-Альбом: "20 Years Of Elelctronic Avantgarde (with Die Neue Philharmonie Frankfurt) (2 CD)"
+Группа: Ion
+Альбом: "Madre Protegenos"
 Стиль: Darkwave
 Год: 2007
 

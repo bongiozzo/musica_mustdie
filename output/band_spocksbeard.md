@@ -1,17 +1,230 @@
 # Spock's Beard
 
-Дискография
-"The Light" 1994, Progressive
-"Beware of Darkness" 1996, Progressive
-"Kindness Of Strangers" 1997, Progressive
-"From the Vault" 1998, Progressive
-"Day For Night" 1999, Progressive
-"V" 2000, Progressive
-"Snow" 2002, Progressive
-"Feel Euphoria" 2003, Progressive
-"Octane" 2005, Progressive
-"Gluttons For Punishment (2CD-live)" 2005, Progressive
-"s/t" 2006, Progressive
+
+
+## Дискография
+
+### "The Light" 1994, Progressive
+
+   1.    The Light: The Dream/One Man/Garden People... (Morse/Morse) - 15:33 
+   2.    Go the Way You Go (Morse) - 12:03 
+   3.    The Water: Introduction/The Water/When It... (Morse) - 23:14 
+   4.    On the Edge (Morse) - 6:11 
+   5.    - 2:27 
+
+
+Kevin Gilbert  -  Mastering 
+Wanda Houston  -  Vocals (bckgr) 
+Tom McCauley  -  Engineer 
+Neal Morse  -  Guitar (Acoustic), Arranger, Guitar (Electric), Keyboards, Organ (Hammond), Vocals, Producer, Mellotron 
+Molly Pasutti  -  Vocals (bckgr) 
+Nick D'Virgilio  -  Percussion, Drums, Vocals 
+
+
+
+### "Beware of Darkness" 1996, Progressive
+
+    1.   Beware of Darkness (Harrison) - 5:41 
+    2.   Thoughts (Morse) - 7:10 
+    3.   The Doorway (Morse) - 11:27 
+    4.   Chatauqua (Morse) - 2:49 
+    5.   Walking on the Wind (Morse) - 9:06 
+    6.   Waste Away (Morse) - 5:26 
+    7.   Time Has Come (Morse) - 16:33 
+
+
+
+Craig Allen  -  Design 
+Kevin Gilbert  -  Sound Effects, Mixing 
+Wanda Houston  -  Vocals (bckgr) 
+Ken Love  -  Mastering 
+Neal Morse  -  Synthesizer, Guitar (Acoustic), Bouzouki, Piano, Guitar (Electric), Vocals, Producer 
+Ryo Okumoto  -  Organ (Hammond), Mellotron 
+Molly Pasutti  -  Vocals (bckgr) 
+Nick D'Virgilio  -  Percussion, Drums, Vocals 
+John Woodhouse  -  Engineer 
+
+
+
+### "Kindness Of Strangers" 1997, Progressive
+
+    1.   The Good Don't Last: Intro. /The Good... (Morse) 
+    2.   In the Mouth of Madness (Morse) 
+    3.   Cakewalk on Easy Street (Morse) 
+    4.   June (Morse) 
+    5.   Strange World (Morse) 
+    6.   Harm's Way (Morse) 
+    7.   Flow: True Believer/A Constant Flow of... (Morse/Ray) 
+
+
+Melissa "Missy" Hasin  -  Strings 
+Ken Love  -  Mastering 
+Neal Morse  -  Synthesizer, Guitar (Acoustic), Piano, Guitar (Electric), Vocals, Producer 
+Richard Mouser  -  Engineer, Mixing 
+Ryo Okumoto  -  Mellotron 
+Tom Tally  -  Strings 
+Nick D'Virgilio  -  Percussion, Drums, Vocals 
+Brian Kehew  -  Engineer 
+Spock's Beard  -  Producer 
+Alan Morse  -  Cello, Guitar (Electric), Vocals, Mellotron 
+Eric Brenton  -  Strings 
+
+
+
+### "From the Vault" 1998, Progressive
+
+   1.    Stratus - 5:29 
+   2.    Into Fire - 3:42 
+   3.    Fire/Waste Away [live] - 6:01 
+   4.    The Light [Home Demo] - 15:26 
+   5.    Excerpt from "The Doorway" [live] - 2:25 
+   6.    The Doorway [Home Demo] (Morse) - 10:20 
+   7.    Waste Away [Alternate Mix] (Morse) - 5:23 
+   8.    Walking on the Wind [Home Demo] (Morse) - 10:40 
+   9.    Go the Way You Go [Home Demo] (Morse) - 12:03 
+
+
+
+ 
+Neal Morse  -  Guitar, Keyboards, Vocals 
+Ryo Okumoto  -  Organ (Hammond), Mellotron 
+Nick D'Virgilio  -  Drums, Vocals (bckgr) 
+Alan Morse  -  Guitar, Cello, Vocals (bckgr) 
+Dave Meros  -  Bass, Vocals (bckgr), Synthesizer Bass 
+
+
+
+### "Day For Night" 1999, Progressive
+
+Day For Night (7:34) 
+Gibberish (4:18) 
+Skin (3:58) 
+The Distance To The Sun (5:11) 
+Crack The Big Sky (9:59) 
+The Gypsy (7:28) 
+Can't Get It Wrong (4:12) 
+The Healing Colors Of Sound pt. 1 (2:22) 
+My Shoes (4:16) 
+Mommy Comes Back (4:50) 
+Lay It Down (3:18) 
+The Healing Colors Of Sound pt. 2 (3:17) 
+My Shoes (Revisited) (3:54) 
+Urban Noise (0:40)
+Hurt (3:09) - European bonus track
+
+### "V" 2000, Progressive
+
+At The End Of The Day (16:28) 
+Revelation (6:05) 
+Thoughts (part II) (4:39) 
+All On A Sunday (4:04) 
+Goodbye To Yesterday (4:39) 
+The Great Nothing (27:01) 
+     -from nowhere 
+     -one note 
+     -come up breathing 
+     -submergered 
+     -missed your calling 
+     -the great nothing 
+
+### "Snow" 2002, Progressive
+
+CD 1 
+01 Made Alive/Overture	05:32
+02 Stranger In A Strange Land	04:29
+03 Long Time Suffering	06:04
+04 Welcome To NYC	03:33
+05 Love Beyond Words	03:24
+06 Iґm Sick	04:06
+07 Devilґs Got My Throat	07:17
+08 Open Wide The Flood Gates	06:14
+09 Open The Gates Part 2	03:03
+10 Solitary Soul	07:34
+11 Wind At My Back	05:12
+
+CD 2
+01 2nd Overture	03:47
+02 4th Of July	03:11
+03 Iґm The Guy	04:48
+04 Reflection	02:49
+05 Carie	03:05
+06 Looking For Answers	05:16
+07 Freak Boy	02:12
+08 All Is Vanity	04:36
+09 Iґm Dying	05:09
+10 Freak Boy Part 2	03:01
+11 Devilґs Got My Throat Revisited	01:55
+12 Snowґs Night Out	02:05
+13 Ladies and Gentleman Mr. Ryo…	02:40
+14 I Will Go	05:09
+15 Made Alive/Wind At My Back	08:28
+
+
+
+
+Line-Up:
+Neal Morse (lead vocals, piano, all synth, acoustic guitar
+Ryo Okumoto (hammond and mellotron)
+Dave Meros (bass, vocals, French horn)
+Alan Morse (electric guitars, vocals)
+Nick DґVirgilio (drums, percussion, vocals)
+
+
+### "Feel Euphoria" 2003, Progressive
+
+
+
+### "Octane" 2005, Progressive
+
+A Flash Before My Eyes 
+
+01.  The Ballet Of The Impact 
+(I) Prelude To The Past
+(II) The Ultimate Quiet
+(III) A Blizzard Of My Memories 
+02.  I Wouldn't Let It Go 
+03.  Surfing Down The Avalanche 
+04.  She Is Everything 
+(I) Strange What You Remember
+(II) Words Of Forever
+05.  Climbing Up That Hill 
+06.  Letting Go 
+07.  Of The Beauty Of It All 
+(I) If I Could Paint A Picture
+(II) Into The Great Unknowable 
+08. NWC 
+09. There Was A Time
+10. The Planet's Hum
+11. Watching The Tide
+12. As Long As We Ride
+
+### "Gluttons For Punishment (2CD-live)" 2005, Progressive
+
+CD 1
+01. Intro
+A Flash Before My Eyes (Part 1-7)
+02. The Ballet Of The Impact
+03. I Wouldn't Let It Go
+04. Surfing Down The Avalanche
+05. She Is Everything
+06. Climbing Up That Hill
+07. Letting Go
+08. Of The Beauty Of It All
+09. Harm's Way
+10. NWC
+
+CD 2
+01. At The End Of The Day
+02. The Bottom Line
+03. Ryo's Solo
+04. Ghosts Of Autumn
+05. As Long As We Ride
+06. The Light
+
+### "s/t" 2006, Progressive
+
+
+
 
 ## Отношения с другими группами
 

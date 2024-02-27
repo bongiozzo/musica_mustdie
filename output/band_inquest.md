@@ -1,11 +1,93 @@
 # In Quest
 
-Дискография
-"Extrusion: Battlehymns" 1997, Thrash
-"Operation: Citadel" 1999, Thrash
-"Destination Pyroclasm" 2003, Thrash
-"Epileptic" 2004, Thrash
-"The Comatose quandaries" 2005, Thrash
+Modern Extreme Metal
+
+## Дискография
+
+### "Extrusion: Battlehymns" 1997, Thrash
+
+1. Extrusion - Battlehymns
+2. Matrimonium
+3. Encrust Excrement Crevice
+4. Anti-Disestablishmentarianism
+5. Xylad Valox
+6. Opus: Questor Mastodon
+7. Inspiration of thou madness
+8. Coroner's Inquest
+
+
+NG: vocals
+Wim: leads
+Jan: rhythms & Bass
+Gert: drums
+
+Recorded, mixed & mastered at Soundshape studios in 1997.
+
+### "Operation: Citadel" 1999, Thrash
+
+1. Cross Cursed
+2. Festung Stalingrad
+3. Coital Amnesia
+4. Bombattack Trauma
+5. Battle Domination
+6. Operation Citadel
+7. Necklacing
+
+
+NG: Vocals
+Wim: Leads
+Jan: rhythms
+Manu: bass
+Gert: Drums
+
+Recorded, mixed & mastered at Soundshape studios in 1999.
+
+### "Destination Pyroclasm" 2003, Thrash
+
+1. Stahlmacht: destruction unbound
+2. Scorched: a reign of fire
+3. Sequence 2172: Dehumanized
+4. Battle Domination 2003
+
+
+Sven: Vocals
+Douglas: Leads
+Jan: rhythms
+Manu: bass
+Gert: Drums
+
+Recorded, mixed & mastered at the CCR studios by Kris Belaen & IQ in 2002. 
+Layout & design by Sven (dirge)
+
+### "Epileptic" 2004, Thrash
+
+1. Neurofractal Bypass
+2. The Imminence Of Disposition
+3. Reverberating Human Callousness
+4. Deprivation Synapse
+5. Retrospected void
+6. In For The Kill (Originally by pro-pain)
+7. Epileptic
+8. Scorched
+9. Placid Vortex
+
+
+
+Sven: Vocals
+Douglas: Leads
+Jan: rhythms
+Manu: bass
+Gert: Drums
+
+Recorded at the CCR studios by Kris Belaen & IQ in 2003. 
+Mixed & Mastered by Tue Madsen at the Antfarm studios in 2003. 
+Released by Goodlife Recordings/Soulreaper in 2004. 
+Artwork by Dennis S. Layout & additional graphix by Sven (dirge)
+
+### "The Comatose quandaries" 2005, Thrash
+
+
+
 
 ## Отношения с другими группами
 

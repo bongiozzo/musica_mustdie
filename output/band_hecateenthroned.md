@@ -1,12 +1,100 @@
 # Hecate Enthroned
 
-Дискография
-"Upon Promethean Shores" 1995, Black Metal
-"The Slaughter of Innocence..." 1997, Black Metal
-"Dark Requiems.." 1998, Black Metal
-"Kings of Chaos" 1999, Black Metal
-"Miasma (EP)" 2001, Black Metal
-"Redimus" 2004, Black Metal
+Black Metal!
+
+## Дискография
+
+### "Upon Promethean Shores" 1995, Black Metal
+
+1. Promethean  Thy Darkest Mask Of Surreality
+2. The Crimson Thorns (My Immortal Dreams)
+3. A Graven Winter
+4. To Feed Upon Thy Dreams
+5. An Ode For A Haunted Wood
+6. Through Spellbinding Branches (Deepest Witchcraft)
+
+All songs written by HECATE ENTHRONED.
+Produced & Mixed By Mags & HECATE ENTHRONED.
+Engineered By Mags.
+Recorded & Mixed At Academy Studios, Dewsbury.
+
+Jon - Vocals
+Nigel - Guitars
+Marc - Guitars
+Craig - Percussion
+Paul - Bass
+Michael - Keyboards
+
+(P)(C) 1996 BLACKEND Records
+
+### "The Slaughter of Innocence..." 1997, Black Metal
+
+1. Goetia
+2. Beneath a December Twilight
+3. The Spell of the Winter Forest
+4. A Flame in the Halls of Blasphemy
+5. A Monument for Eternal Martyrdom
+6. The Slaughter of Innocence
+7. At the Haunted Gallows of Dawn
+8. Christfire
+9. Within the Ruins of Eden
+10. The Danse Macabre
+11. The Beckoning
+
+### "Dark Requiems.." 1998, Black Metal
+
+1. In Nomine Satanas
+2. The Pagan Swords of Legend
+3. Centuries of Wolfen Hunger
+4. Forever in Ebony Drowning
+5. Upon The Kingdom Throne
+6. For Thee in Sinful Obscurity
+7. Dark Requiems and Unsilent Massacre
+8. Thy Sorrow Bequeathed
+9. The Scarlet Forsaken
+11. Ancient Graveless Dawn
+ 
+
+### "Kings of Chaos" 1999, Black Metal
+
+1: Miasma
+2: Perjurer
+3: Deceiving The Deceiver
+4: Malignant Entity
+5: Blessing In Disguise
+6: I Am Born
+7: Exhalted In Depravity
+8: Conquest Complete
+9: The Downfall
+10: Repent
+11: Witch Queen Ascending
+
+
+
+### "Miasma (EP)" 2001, Black Metal
+
+1: So Called Saviour
+2: New Day Emerges
+3: Commence The Chaos
+4: Designed With Hate
+5: Silenced But For Their Cries (I Am Born Part II)
+6: Buried Alive (Venom Cover)
+
+### "Redimus" 2004, Black Metal
+
+Intro 
+Soil Of Sin 
+Headhunter 
+No One Hears 
+The Face of Betrayel 
+As Fire 
+The Shining Delight 
+An Eternal Belief 
+Morbeea 
+Redimus 
+Choose Misanthropy 
+Overriding imagination
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,44 @@
 # Kristendom
 
-Дискография
-"From within" 2000, Melodic Death Metal
-"Inferno" 2002, Melodic Death Metal
+
+
+## Дискография
+
+### "From within" 2000, Melodic Death Metal
+
+1. THE LAST SCREAM
+2. REVELATION
+3. LUCIFER'S PACT
+4. THE SLAVE WILL BECOME GREAT
+5. THE DIVA
+6. ETERNAL GREETING
+7. THE DISEASE 
+8. AVID OF BLOOD
+9. RAIN OF TEARS
+10. BROKEN PACT
+11. SO CRUAL
+12. PROVOCATION
+13. WEMUST ALL DIE ONE WAY
+14. FROM WITHIN
+ 
+
+### "Inferno" 2002, Melodic Death Metal
+
+L'Entrata dell' Inferno 
+Forbid 
+Fatalite 
+Extermination 
+Your Faith 
+Help Me 
+In Gods Name 
+Black Death 
+Cry of Pain 
+Darkness 
+Agressive 
+Sadness And Despair 
+
+    
+
 
 ## Отношения с другими группами
 

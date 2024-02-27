@@ -1,8 +1,37 @@
 # Timo Tolkki's Avalon
 
-Дискография
-"The Land Of New Hope" 2013, Power Metal
-"Angels of the Apocalypse" 2014, Power Metal
+
+
+## Дискография
+
+### "The Land Of New Hope" 2013, Power Metal
+
+1.	 Avalanche Anthem	04:52
+2.	 A World Without Us	05:42
+3.	 Enshrined in My Memory	04:05
+4.	 In the Name of the Rose	04:26
+5.	 We Will Find a Way	04:24
+6.	 Shine	03:36
+7.	 The Magic of the Night	04:42
+8.	 To the Edge of the World	05:01
+9.	 I'll Sing You Home	05:01
+10.	 The Land of New Hope	08:53	
+
+### "Angels of the Apocalypse" 2014, Power Metal
+
+1. Song for Eden  00:46    
+2. Jerusalem Is Falling  05:19    
+3. Design the Century  04:25    
+4. Rise of the 4th Reich  04:43    
+5. Stargate Atlantis  03:51    
+6. You'll Bleed Forever  04:16    
+7. The Paradise Lost  05:44    
+8. Neons Sirens  04:42    
+9. High Above of Me  05:20    
+10. Angels of the Apocalypse  09:07    
+11. Garden of Eden  02:10  
+
+
 
 ## Отношения с другими группами
 

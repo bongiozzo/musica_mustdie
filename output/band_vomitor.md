@@ -1,10 +1,25 @@
 # Vomitor
 
-Дискография
-"Bleeding The Priest" 2002, Thrash
-"Cry From The Underground (Live EP)" 2009, Thrash
-"Devils Poison" 2010, Thrash
-"The Escalation" 2012, Thrash
+
+
+## Дискография
+
+### "Bleeding The Priest" 2002, Thrash
+
+
+
+### "Cry From The Underground (Live EP)" 2009, Thrash
+
+
+
+### "Devils Poison" 2010, Thrash
+
+
+
+### "The Escalation" 2012, Thrash
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,42 @@
 # Syria
 
-Дискография
-"A Gift From Culture" 1997, Gothic
+
+
+## Дискография
+
+### "A Gift From Culture" 1997, Gothic
+
+1.  With Delicate Mad Hands
+2.  A Gift From Culture
+3.  Neverland Things (Edit)
+4.  Sculptures, Fruits And Tea-Partys (Part I)
+5.  Conversations At Night
+6.  Elegy Of Angels And Dogs
+7.  Description De L'Egypte (Badlands 1996-Version)
+8.  Back From Diaspora
+9.  Icon Of Sin (Black Coctail 1964)
+10.Sculptures, Fruits And Tea-Partys (Part II)
+11.Venus Von Prag
+12.In The Drift
+13.Hey, Hey, Helen (Gunmetal Grey - Version)
+14.Untitled 1964
+15.Fruit Of The Desert
+16.Sweetest Smile
+17.The Last Picasso
+18.Disappearing Act
+
+Produced Arranged and Mixed by Christian Dorge.
+Recorded and Mixed at Klangfang Prod.
+Engineered by Patrick Sayer and Matthias Weisheit.
+
+Christian Dorge - Vocals
+Kira Dee - Vocals
+Andy Hagler - Guitars
+Matthias Weisheit - Guitars
+Music programming by Sayer / Dorge and Weisheit
+
+(P)(C) 1997 BLACK OCTOBER Records
+
 
 ## Отношения с другими группами
 

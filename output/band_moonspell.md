@@ -1,21 +1,280 @@
 # Moonspell
 
-Дискография
-"Under The Moonspell" 1994, Death Doom
-"Wolfheart" 1995, Death Doom
-"Ataegina" 1995, Death Doom
-"Irreligious" 1996, Death Doom
-"Opium" 1997, Death Doom
-"2econd Skin" 1997, Death Doom
-"Sin/Pecado" 1998, Gothic
-"The Butterfly Effect" 1999, Gothic
-"Darkness And Hope" 2001, Gothic
-"The Antidote" 2003, Gothic
-"Memorial" 2006, Gothic
-"Under Satanae" 2007, Death Doom
-"Night Eternal" 2008, Gothic
-"Alpha Noir / Omega White" 2012, Metal
-"Extinct" 2015, Gothic
+High Class Death-Doom
+
+## Дискография
+
+### "Under The Moonspell" 1994, Death Doom
+
+1. Allah Akbar!La Allah lla Allah' 
+(Praeludium/Incantatum Solstitium)
+2. Tenebrarum Oratorium
+(Andramento I/ Erudit Compendyum)
+(Interludium/Incantatum Oequinoctium)
+3. Tenebrarum Oratorium
+(Andramento II/ Erotic Compendyum)
+4. Opus Djabolicum
+(Andramento III/ Instrumental Compendyum)
+5. Choraj usjtanja!
+(Epilogus/ Incantatam Maresia)
+
+All Music By MOONSPELL
+Recorded between Dec'1993 and Jan'1994 in Edit studio
+
+Langsuyar - Voice
+Mantus - Guitars
+Tanngrisnik - Guitars
+Tetragrammaton - Bass
+Niskoth - Drums
+Neophytus - Keyboards
+
+(p)(c)1994 ADIPOCERE Records
+
+### "Wolfheart" 1995, Death Doom
+
+1. Wolfshade (A Werewolf Masquerade).
+2. Love Crimes.
+3. …Of Dream And Drama (Midnight Ride).
+4. Lua D'Inverno.
+5. Tebraruna.
+6. Vampiria.
+7. An Erotic Alchemy.
+8. Alma Mater.
+
+© 1995 MAGIC ARTS PUBLISHING
+(p) 1995 CENTURY MEDIA RECORDS
+
+ARES – bass
+LANGSUYAR – vox
+PASSIONIS – keys
+MIKE – drums
+MANTUS – guitars
+RICARDO – guitars
+
+All music by Moonspell, All lyricsby Langsuyar. Produced by Moonspell at Studio 2 (29/01 until 13/02/1995 e. V.) 
+Female vocals by Birgit Zaecher.
+
+### "Ataegina" 1995, Death Doom
+
+1. Ataegina
+2. Alma Mater
+3. An Erotic Alchemy
+
+Produced by MOONSPELL at Studio2
+
+Ares - Bass
+Langsuyar - Vox
+Passionis - Keyboards
+Mike - Drums
+Mantus - Guitars
+Birgit Zacher - Female Vocals
+
+(p)(c)1995 Century Media
+
+### "Irreligious" 1996, Death Doom
+
+1. Perverse… Almost Religious.
+2. Opium.
+3. Awake.
+4. For A Taste of Eternity.
+5. Ruin And Misery.
+6. A Poisoned Gift.
+7. Subversion.
+8. Raven Claws.
+9. Mephisto.
+10. Herr Spiegelmann
+11. Full Moon Madness
+
+(c)&(p) 1996 CENTURY MEDIA
+
+Produced by Waldemar Sorychta. Recorded and mixed at Woodhouse Studios, Germany
+
+### "Opium" 1997, Death Doom
+
+1.  Opium (Radio Edit)
+2.  Raven Claws
+3.  Ruin And Misery
+4.  Opium (Album Version)
+
+Recorded at Woodhouse Studios
+Produced and Mixed by Waldemar Sorychta.
+Engineered by Siggi Bemm.
+All music by MOONSPELL
+All lyrics by Ferdinando Ribeiro
+
+Ares - Bass 
+Mike - Drums
+Ricardo Atnorim - Guitars
+Pedro Paixao - Synths and Samples
+Ferdinando Ribeiro - Vocals
+
+(P)(C) 1997 CENTURY MEDIA Records
+
+### "2econd Skin" 1997, Death Doom
+
+
+
+### "Sin/Pecado" 1998, Gothic
+
+1. Slow Down!
+2. handmadeGod.
+3. 2econd Skin.
+4. Abysmo.
+5. Flesh.
+6. Magdalene.
+7. V. C. (Gloria domini).
+8. EuroticA.
+9. Mute.
+10. Decadance
+11. Let the children cum to me…
+12. The hanged Man.
+13. 13!
+
+© 1997 MAGIC ARTS PUBLISHING
+(p) 1998 CENTURY MEDIA RECORDS
+
+FERNANDO RIBEIRO – vocals
+RICARDO AMORIM – guitars
+MIKE GASPAR – drums
+PEDRO PAIXAO – synths, samples and programming
+SERGIO CRESTANO – bass
+
+Recorded at Woodhouse Studios (Hagen / Germany) 21.7.1997 – 19.9.1997. Produced by Waldemar Sorychta and 
+Moonspell. Mixed by Siggi Bemm, Waldemar Sorychta and Moonspell. Vocal coach: Birgit Zaecher (also additional 
+vocals on Flesh). Chorus by MS Coiro. Pre-produced by Markus Freiwald and Moonspell at Mute studio June 1997, 
+Dortmund.
+All music by Moonspell, all lyrics by Fernando Ribeiro.
+
+### "The Butterfly Effect" 1999, Gothic
+
+01. Soulsick		
+02. Butterfly FX		
+03. Can't Bee		
+04. Lustmord		
+05. Selfabuse		
+06. I Am The Eternal Spectator		
+07. Soulitary Vice		
+08. Disappear Here		
+09. Adaptables		
+10. Angelizer		
+11. Tired		
+12. K / o mal de cristo		
+		
+Fernando Ribeiro - Vocals		
+Mike Gaspar - Drums		
+Ricardo Amorim - Guitars		
+Sergio Crestana - Bass		
+Pedro Paixao - Synths and Samples		
+		
+Recorded In Trident II studios (London), Yune 1999
+
+### "Darkness And Hope" 2001, Gothic
+
+01. darkness and hope (4:46)
+02. firewalking (3:05)
+03. nocturna (3:52)
+04. heartshaped abyss (4:08)
+05. devilred (3:25)
+06. ghostsong (4:21)
+07. rapaces (5:31)
+08. made of storm (4:09)
+09. how we became fire (5:47)
+10. than the serpents in my hands (5:53)
+11. os senhores da guerra (6:30)
+12. mr. crowley (Originally performed by OZZY OSBOURNE)
+
+### "The Antidote" 2003, Gothic
+
+1. In And Above Men
+2. From Lowering Skies
+3. Everything Invaded
+4. The Southern Deathstyle
+5. Antidote
+6. Capricorn At Her Feet
+7. Lunar Still
+8. A Walk On The Darkside
+9. Crystal Gazing
+10. As We Eternally Sleep On It
+
+(p) 2003 Century Media Records
+
+### "Memorial" 2006, Gothic
+
+01. In Memoriam
+02. Finisterra
+03. Memento Mori
+04. Sons Of Earth
+05. Blood Tells
+06. Upon The Blood Of Men
+07. At The Image Of Pain
+08. Sanguine
+09. Proliferation
+10. Once It Was Ours!
+11. Mare Nostrum
+12. Luna
+13. Best Forgotten
+
+### "Under Satanae" 2007, Death Doom
+
+
+
+### "Night Eternal" 2008, Gothic
+
+1. At Tragic Heights 06:51  
+2. Night Eternal 04:09  
+3. Shadow Sun 04:24  
+4. Scorpion Flower 04:33  
+5. Moon in Mercury 04:22  
+6. Hers is the Twilight 04:53  
+7. Dreamer (Lucifer and Lilith) 05:16  
+8. Spring of Rage 04:04  
+9. First Light 05:43 
+
+
+Fernando Ribeiro (Langsuyar) - Vocals 
+Ricardo Amorim (aka Mourning Blade) - Guitar 
+Pedro Paixao (Passionis) - Keyboards, samples, guitars 
+Miguel Gaspar (Mike (aka Nisroth)) - Drums
+Aires Pereira (aka Ahriman)- Bass
+
+### "Alpha Noir / Omega White" 2012, Metal
+
+Disc 1
+1. Axis Mundi 04:56
+2. Lickanthrope 03:49
+3. Versus 04:39
+4. Alpha Noir 04:30
+5. Em Nome Do Medo 04:27
+6. Opera Carne 03:52
+7. Love is Blasphemy 04:31
+8. Grandstand 04:53
+9. Sine Missione 04:57
+
+Disc 2
+1. White Omega 
+2. White Skies 
+3. Fireseason 
+4. New Tears Eve 
+5. Herodisiac 
+6. Incantatrix 
+7. Sacrafical 
+8. A Greater Darkness 
+
+The double album's first cd is called Alpha Noir, the second one is Omega White. 
+
+### "Extinct" 2015, Gothic
+
+1. Until We Are No More (Breathe)      
+2. Medusalem      
+3. Funeral Bloom      
+4. Domina      
+5. La Baphomette      
+6. The Last of Us      
+7. A Dying Breed      
+8. Malignia     
+9. Extinct      
+10. The Future Is Dark  
+
 
 ## Отношения с другими группами
 

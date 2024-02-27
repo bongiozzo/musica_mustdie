@@ -1,7 +1,30 @@
 # Castle
 
-Дискография
-"Castle" 1994, Death Doom
+
+
+## Дискография
+
+### "Castle" 1994, Death Doom
+
+1. The 7-th Empire
+2. The Emperor's Children
+3. Alter Reality
+4. Exposed
+5. Travelling
+6. Castle
+7. Bridge Of Snow
+
+ Eric - Vocals
+ Richard - Rhythm Guitars, Piano, Keyboards
+ Ilja - Lead Guitars
+ Lucien - Bass
+ Jean-Marie - Drums
+
+All Music & Lyrics By CASTLE
+Produced By Eric & CASTLE
+
+(p)&(c) 1994 MMI Records
+
 
 ## Отношения с другими группами
 

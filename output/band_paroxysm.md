@@ -1,7 +1,20 @@
 # Paroxysm
 
-Дискография
-"Revelation Is Denied" 2004, Death Metal
+
+
+## Дискография
+
+### "Revelation Is Denied" 2004, Death Metal
+
+01 Golden Panoramas	1:15.06
+02 Profound Emotional Paroxysm	3:18.34
+03 Addiction To Illusion	2:38.43
+04 Humanimality	3:42.04
+05 Paroxysmic Rage	2:49.07
+06 Regime Of Holy Terror	4:46.67
+07 Shame Head	1:51.45
+08 Mummified Principles	4:39.15
+
 
 ## Отношения с другими группами
 

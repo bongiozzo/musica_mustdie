@@ -1,7 +1,13 @@
 # Terrorwheel
 
-Дискография
-"Rhytm'n'Murder" 2003, Heavy Metal
+a-la MOTORHEAD from Finland
+
+## Дискография
+
+### "Rhytm'n'Murder" 2003, Heavy Metal
+
+
+
 
 ## Отношения с другими группами
 

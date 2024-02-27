@@ -1,8 +1,17 @@
 # Desecration
 
-Дискография
-"Gore And Perversion" 1995, Death Metal
-"Murder In Mind" 1998, Death Metal
+brutal death from UK
+
+## Дискография
+
+### "Gore And Perversion" 1995, Death Metal
+
+
+
+### "Murder In Mind" 1998, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

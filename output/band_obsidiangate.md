@@ -1,8 +1,27 @@
 # Obsidian Gate
 
-Дискография
-"The Nightspectral Voyage" 1999, Black Metal
-"Colossal Christhunt" 2001, Black Metal
+Sympho-Black
+
+## Дискография
+
+### "The Nightspectral Voyage" 1999, Black Metal
+
+1. As The Void Opens (Introduction Opus)
+2. When Death Unchains The Spectre
+3. The Obsidian Eternity And Anguish
+4. From The Infinite Forge Of Time
+5. The Bethorian Shrine
+6. Invoke The Dragon Constellation
+
+### "Colossal Christhunt" 2001, Black Metal
+
+1. Urgewalten
+2. Behold The Imperial Rise
+3. Tide Of The Envenomed Oceans
+4. Dux Bellorum
+5. Of Pures Pandaemonium
+6. Colossal Christhunt
+
 
 ## Отношения с другими группами
 

@@ -1,10 +1,66 @@
 # Amberian Dawn
 
-Дискография
-"River of Tuoni" 2008, Gothic
-"The Clouds of Northland Thunder" 2009, Gothic
-"End of Eden" 2010, Gothic
-"Magic Forest" 2014, Gothic
+
+
+## Дискография
+
+### "River of Tuoni" 2008, Gothic
+
+1. River of Tuoni  03:03 
+2. Wings Are My Eyes  03:16   
+3. Lullaby  03:43   
+4. Valkyries  03:30   
+5. Fate of the Maiden  02:52
+6. My Only Star  04:25 
+7. The Curse  04:07  
+8. Passing Bells  04:04   
+9. Sunrise  03:32 
+10. Evil Inside Me  03:48 
+
+### "The Clouds of Northland Thunder" 2009, Gothic
+
+1. He Sleeps in a Grove  03:20   
+2. Incubus  05:03   
+3. Kokko - Eagle of Fire  03:17  
+4. Willow of Tears  04:10   
+5. Shallow Waters  03:38  
+6. Lost Soul  03:43 
+7. Sons of Seven Stars  03:43
+8. Saga  04:06
+9. Snowmaiden  03:45 
+10. Lionheart  03:43  
+11. Morning Star  04:36 
+12. Birth of the Harp  04:06 
+
+### "End of Eden" 2010, Gothic
+
+1. Talisman  03:41
+2. Come Now Follow  03:47 
+3. Arctica  04:59  
+4. Ghostly Echoes  05:44
+5. Sampo  03:12  
+6. Blackbird  03:58   
+7. Field of Serpents  03:39   
+8. City of Corruption  04:20   
+9. Virvatulen Laulu  03:46
+10. War in Heaven  07:24 
+
+### "Magic Forest" 2014, Gothic
+
+1. Cherish My Memory   
+2. Dance of Life    
+3. Magic Forest      
+4. Agonizing Night      
+5. Warning      
+6. Son of Rainbow    
+7. I'm Still Here   
+8. Memorial      
+9. Endless Silence      
+10. Green-Eyed  
+
+
+
+
 
 ## Отношения с другими группами
 

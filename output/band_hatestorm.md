@@ -1,8 +1,32 @@
 # Hatestorm
 
-Дискография
-"Cursed Rituals" 2006, Black Metal
-"Filth Purity" 2009, Black Metal
+
+
+## Дискография
+
+### "Cursed Rituals" 2006, Black Metal
+
+1. Intro 00:53  
+2. This Fucking Grave 03:35  
+3. To The Masters 03:23  
+4. Chaotic Rituals 03:15  
+5. Total Human Extermination 03:37  
+6. On A Cursed Path 03:03  
+7. Commander Of TAortures And Flames 04:30  
+8. Black Metal Prevails 03:36  
+9. Unholy Chemical Warfare 04:42  
+10. Emperor from Eternal Dark (Armagedda Cover) 03:34 
+
+### "Filth Purity" 2009, Black Metal
+
+1. Empty 04:06  
+2. Mind Infected 05:21  
+3. Sickness Dictator 03:54  
+4. Season Merciless 03:47  
+5. Negative Hunger 03:27  
+6. Filth Purity 04:58  
+7. To Crave 05:06 
+
 
 ## Отношения с другими группами
 

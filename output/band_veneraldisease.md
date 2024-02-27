@@ -1,7 +1,13 @@
 # Veneral Disease
 
-Дискография
-"Verdicts" 2000, Death Metal
+
+
+## Дискография
+
+### "Verdicts" 2000, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

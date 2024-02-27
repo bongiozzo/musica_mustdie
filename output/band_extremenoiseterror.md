@@ -1,13 +1,144 @@
 # Extreme Noise Terror
 
-Дискография
-"Holcaust in Your Head" 1989, Grindcore
-"Peel Session" 1990, Grindcore
-"Retro-Pution" 1995, Grindcore
-"Damage 381" 1997, Grindcore
-"In It for Life" 1999, Grindcore
-"Being and Nothing" 2001, Grindcore
-"Law of Retaliation" 2008, Grindcore
+Grindcore pioneers
+
+## Дискография
+
+### "Holcaust in Your Head" 1989, Grindcore
+
+1. Statement - 2:01 
+2. Deceived - :50 
+3. Helpless - 1:54 
+4. Bullshit Propaganda - :47 
+5. Fucked up System - 1:07 
+6. No Threat - 3:00 
+7. Show Us You Care - 2:04 
+8. Use Your Mind - 1:26 
+9. Innocence to Ignorance - 1:14 
+10.Conned Through Life - 2:09 
+11.Murder - 1:12 
+12.Take the Strain - 1:35 
+13.Another Nail in the Coffin - 1:24 
+14.Raping the Earth - 1:51 
+15.If You're Only in It for the Music (S.O.D. 
+
+
+### "Peel Session" 1990, Grindcore
+
+1. False Profit (Jones/Vane) - :45 
+2. Another Nail on the Coffin - 1:45 
+3. Use Your Mind (Jones/Vane) - 2:10 
+4. Carry on Screaming (Jones/Vane) - 1:05 
+5. Human Error - 1:30 
+6. Conned Through Life (Jones/Vane) - 1:20 
+7. Only in It for the Music, Pt. 2 (Jones/Vane) - 1:35 
+8. Work for Never (Jones) - 1:45 
+9. Subliminal Music (Mind Control) (Jones) - 1:45 
+10.3rd World Genocide (By Arms Trade) (Jones) - 1:15 
+11.Punk: Fact of Faction? (Jones) - 1:30 
+12.I Am a Bloody Fool/In If for Life (Jones) - 4:30 
+13.Deceived (Jones) - 2:00 
+14.Shock Treatment (Jones) - 2:25 
+
+
+### "Retro-Pution" 1995, Grindcore
+
+1. Raping The Earth
+2. Bullshit Propaganda
+3. Lame Brain
+4. Work For Never
+5. We The Helpless
+6. Invisible War
+7. Subliminal
+8. Human Error
+9. Murder
+10.Think About It
+11.Proy To Be Saved
+12.Conned Through Life
+13.Deceived
+14.Third World Genocide
+
+ Phil Vane - Vocals
+ Dean Jones - Vocals
+ Pete Harley - Guitar
+ Lee Berrett - Bass, Vocals
+ Ali Firouzbakht - Lead Guitar
+ Pig Killer - Drums
+
+All Songs Written By EXTREME NOISE TERROR
+Produced By John Lee & Dave Revell
+Engineered By John Lee
+Recorded & Mixed At Chapel Studios, Lincolnshire
+
+(p)&(c) 1995 EARACHE Records
+
+### "Damage 381" 1997, Grindcore
+
+1. Utopia Burns (Firouzbakht/Jones/Vane) 
+2. Punishment Solitude (Firouzbakht/Jones/Vane) 
+3. Icon of Guilt (Firouzbakht/Jones/Vane) 
+4. Jesus on My Side (Hurley/Jones/Vane) 
+5. Cold World (Firouzbakht/Jones/Vane) 
+6. Damage 381 (Firouzbakht/Jones/Vane) 
+7. Shallow Existence (Firouzbakht/Jones/Vane) 
+8. Chaos Perverse (Firouzbakht/Jones/Vane) 
+9. Crawl (Firouzbakht/Jones/Vane) 
+10.Downside (Hurley/Jones/Vane) 
+
+
+### "In It for Life" 1999, Grindcore
+
+1. Intro... (?/Filthkick) - 2:16 
+2. In It for Life (?/Filthkick) - 1:56 
+3. Subliminal Music Mind Control (?/Filthkick) - 1:53 
+4. Work for Never (?/Filthkick) - 1:41 
+5. Punk: Fact or Faction? (?/Filthkick) - 1:41 
+6. Cruelty to Carnivores (?/Filthkick) - 2:03 
+7. Damaging Noise (?/Filthkick) - 1:55 
+8. Crime Without a Name (?/Filthkick) - 2:34 
+9. Between the Lines (?/Filthkick) - 1:40 
+10.Harder You Fall (?/Filthkick) - 1:45 
+11.Cabin Fever (92°) (?/Filthkick) - 2:25 
+12.No Going Back (?/Filthkick) - 1:58 
+13.Celebration of Good for Nothingness (?/Filthkick) - 1:28 
+14.Brain Fry (?/Filthkick) - 2:08 
+
+
+### "Being and Nothing" 2001, Grindcore
+
+1. Being and Nothing 02:07
+2. Through Mayhem 02:20 
+3. When Gods Burn 02:24 
+4. Man Made Hell 04:08
+5. Damage Limitation 02:04  
+6. No Longer as Slaves 02:56 
+7. One Truth One Hate 02:19  
+8. Awakening 04:03
+9. Now Believer Genocide 03:42
+10. Detestation 03:54
+
+### "Law of Retaliation" 2008, Grindcore
+
+1. Believe What I Say 02:44  
+2. Religion Is Fear 01:45  
+3. Spit On Your Dreams 01:58  
+4. Skin Deep 01:29  
+5. Blind Lead The Blind 01:53  
+6. Short Fuse 02:07  
+7. Chasing Shadows 02:00  
+8. Human Waste 01:23  
+9. Rat Hell 01:47  
+10. Enslaved In Darkness 01:33  
+11. Nothing No More 01:52  
+12. Parasites 01:27  
+13. Revenge 02:21  
+14. Rotten To The Core 01:43  
+15. Low Life 01:35  
+16. Against The Grain 01:37  
+17. Screaming Fucking Mayhem 02:46  
+18. Death Message 02:47  
+19. Divided & Ruled 01:57 
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,35 @@
 # Fragile Vastness
 
-Дискография
-"Excerpts..." 2002, Progressive
-"A Tribute to Life" 2005, Progressive
+progressive
+
+## Дискография
+
+### "Excerpts..." 2002, Progressive
+
+
+
+### "A Tribute to Life" 2005, Progressive
+
+Disc 1
+1.	 Where Everything Begun 
+2.	 Maya's Diary
+3.	 Somewhere
+4.	 Ya Va llegando el dia	
+5.	 From East to West	
+6.	 Failte Romhat a chara 
+7.	 Love and Loss	
+8.	 Help
+9.	 The Sun Shines for All of Us	
+Disc 2
+1.	 Heart of a Lion
+2.	 Gaia
+3.	 Renaissance	 
+4.	 I Want to Do Something That Matter
+5.	 Going Down	 
+6.	 Coma	
+7.	 Don't Wake Me Up till I'm Dead
+8.	 Maya
+
 
 ## Отношения с другими группами
 

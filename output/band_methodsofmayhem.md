@@ -1,7 +1,36 @@
 # Methods of Mayhem
 
-Дискография
-"Methods of Mayhem" 1999, Rap Metal
+
+
+## Дискография
+
+### "Methods of Mayhem" 1999, Rap Metal
+
+ 
+   1.   Who the Hell Cares [(Featuring Snoop Dogg)] (Lee) - 36:20 
+   2.   Hypocritical - 32:49 
+   3.   Anger Management - 28:53 
+   4.   Get Naked - 25:40 
+   5.   New Skin [Featuring Kid Rock] - 22:18 
+   6.   Proposition Fuck You [Featuring Filthee Immigrants] - 17:44 
+   7.   Crash (Lee) - 14:32 
+   8.   Metamorphosis [(Featuring Scott Kirkland)] - 11:11 
+   9.   Narcotic [(Featuring Scott Kirkland)] - 6:30 
+   10.   Mr. Onsomeothers***s [Featuring U-God from Wu Tang] - 3:11 
+   11.   Spun [(Featuring Scott Kirkland)] - 2:32 
+
+
+Tom Baker  -  Mastering 
+Scott Humphrey  -  Producer, Mixing 
+Tommy Lee  -  Guitar, Drums, Producer 
+Danny Lohner  -  Guitar 
+Ken Andrews  -  Guitar 
+Scott Kirkland  -  Keyboards 
+Frank Gryner  -  Mixing 
+Chris Chaney  -  Bass 
+Steve Duda  -  Programming 
+
+
 
 ## Отношения с другими группами
 

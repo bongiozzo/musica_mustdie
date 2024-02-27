@@ -1,12 +1,71 @@
 # Blood Thirsty Demons
 
-Дискография
-"Sabbath - Solve et Coagula" 2002, Metal
-"In The Grave" 2004, Metal
-"Let The War Begin" 2005, Metal
-"Mortal Remains" 2007, Metal
-"Occultum Lapidem" 2009, Metal
-"Misanthropy" 2010, Metal
+
+
+## Дискография
+
+### "Sabbath - Solve et Coagula" 2002, Metal
+
+1. Return of demons
+2. Sabbath	
+3. Sons of darkness
+4. Damned souls
+5. False reality
+6. The new aeon
+7. Blood thirsty demons	
+8. Werewolves night
+9. Ancient beast
+
+### "In The Grave" 2004, Metal
+
+1. Liber Legis
+2. Sabbath
+3. Necromancer
+4. In The Grave
+5. Decadence
+6. Initiation	
+7. Salvation
+8. Horror
+
+### "Let The War Begin" 2005, Metal
+
+
+
+### "Mortal Remains" 2007, Metal
+
+1. Mortal Remains	 
+2. Symphony From The Graves	 
+3. Time To Die	 
+4. Deadly Sins	 
+5. Day By Day	 
+6. Welcome To My Funeral		 
+7. Upon The Cross	 
+8. Roads Of Amenti	 
+9. End Of Days
+
+### "Occultum Lapidem" 2009, Metal
+
+1. The Ancient Gods
+2. Tears Of Lies
+3. I Will Die
+4. Prince Of Darkness
+5. Behind My Faith
+6. The Graves Are Open
+7. Occultum Lapidem
+8. Stolen Faith
+
+### "Misanthropy" 2010, Metal
+
+1. In Lucifer's Hand	 
+2. Misanthropy	 
+3. Black Witches	 
+4. Dead Rising	 
+5. They Say	 
+6. Cthulhu	 
+7. Wicked Dream	 
+8. Suffering of the Vampire	 
+9. Death is Calling
+
 
 ## Отношения с другими группами
 

@@ -1,9 +1,40 @@
 # Fatima Hill
 
-Дискография
-"Valhalla" 2000, Progressive
-"Aion" 2002, Progressive
-"The Snow Tower" 2009, Progressive
+
+
+## Дискография
+
+### "Valhalla" 2000, Progressive
+
+1. Aiesis and Your Bible 06:14
+2. Egyptian Tarot 04:42 
+3. Wheel of Fortune 03:23 
+4. The Sun of Thorns 14:07
+5. Valhalla (The Song for Beatrice Part 2) 13:01
+6. Oriel Window 12:14 
+
+### "Aion" 2002, Progressive
+
+1. Ares Dragon 06:05  
+2. Babel Dune 03:58  
+3. The Black Bat 04:23  
+4. Aeon 04:15 [view lyrics] 
+5. Ultimata 06:37  
+6. Other 06:24  
+7. Stigmata 06:24  
+8. The Song For beatrice Part 3 (The Seven Songs) 09:20 
+
+### "The Snow Tower" 2009, Progressive
+
+1. The snow tower 07:33  
+2. Memento 06:22  
+3. Arabian daughter say 04:21  
+4. Gohst 07:04  
+5. Down to Earth (Paradise lost 8109) 03:59  
+6. Passing bell part2 03:48  
+7. The world 07:03  
+8. Aino-Uta 07:17 
+
 
 ## Отношения с другими группами
 

@@ -1,10 +1,60 @@
 # Kiuas
 
-Дискография
-"The Spirit Of Ukko" 2005, Melodic Death Metal
-"Reformation" 2006, Power Metal
-"The New Dark Age" 2008, Power Metal
-"Lustdriven" 2010, Power Metal
+
+
+## Дискография
+
+### "The Spirit Of Ukko" 2005, Melodic Death Metal
+
+1.The spirit of Ukko
+2.On winds of death we ride
+3.No more sleep for me
+4.Warriour soul
+5.Untill we reach the shore
+6.Across the snows
+7.Thorns of a black rose
+8.And the north star cried
+
+### "Reformation" 2006, Power Metal
+
+1. Race with the Falcons 04:47  
+2. Through the Ice Age 03:58  
+3. The New Chapter 04:25  
+4. Of Ancient Wounds 03:33  
+5. Child of Cimmeria 01:06  
+6. Black Winged Goddess 05:21  
+7. Heart of the Serpent 04:55  
+8. Bleeding Strings 05:50  
+9. Call of the Horns 03:39  
+10. Reformation 06:12
+
+### "The New Dark Age" 2008, Power Metal
+
+1. The Decaying Doctrine   
+2. Conqueror   
+3. Kiuas War Anthem   
+4. The New Dark Age   
+5. To Excel and Ascend   
+6. Black Rose Withered   
+7. After the Storm   
+8. Of Sacrifice, Loss and Reward   
+9. The Summoning   
+10. The Wanderer's Lamentation
+
+### "Lustdriven" 2010, Power Metal
+
+1. Kiuassault 04:37  
+2. Cry Little Angel 03:59  
+3. Of Lust, Love and Human Nature 04:05  
+4. Aftermath 05:23
+5. Lights Are Many 04:53  
+6. The Visionary 06:34 
+7. Heart and Will 04:32  
+8. The Quickening 04:00  
+9. Summer's End 05:00  
+10. Winter's Sting 05:43 
+
+
 
 ## Отношения с другими группами
 

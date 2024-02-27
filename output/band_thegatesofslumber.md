@@ -1,15 +1,45 @@
 # The Gates Of Slumber
 
-Дискография
-"...The Awakening" 2004, Doom
-"Like A Plague Upon The Land (EP)" 2005, Doom
-"God Wills It (EP)" 2006, Doom
-"Suffer No Guilt" 2006, Doom
-"Conqueror" 2008, Doom
-"The Ice Worm's Lair (EP)" 2008, Doom
-"Hymns Of Blood And Thunder" 2009, Doom
-"The Hyena Sessions (EP)" 2010, Doom
-"The Wretch" 2011, Doom
+
+
+## Дискография
+
+### "...The Awakening" 2004, Doom
+
+
+
+### "Like A Plague Upon The Land (EP)" 2005, Doom
+
+
+
+### "God Wills It (EP)" 2006, Doom
+
+
+
+### "Suffer No Guilt" 2006, Doom
+
+
+
+### "Conqueror" 2008, Doom
+
+
+
+### "The Ice Worm's Lair (EP)" 2008, Doom
+
+
+
+### "Hymns Of Blood And Thunder" 2009, Doom
+
+
+
+### "The Hyena Sessions (EP)" 2010, Doom
+
+
+
+### "The Wretch" 2011, Doom
+
+
+
 
 ## Отношения с другими группами
 

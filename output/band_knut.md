@@ -1,12 +1,33 @@
 # Knut
 
-Дискография
-"Leftovers MCD " 1997, Metal
-"Bastardiser" 1998, Metal
-"Knut EP" 2001, Metal
-"Challenger" 2002, Metal
-"Terraformer" 2005, Metal
-"Wonder" 2010, Metal
+mathmetalcore band
+
+## Дискография
+
+### "Leftovers MCD " 1997, Metal
+
+
+
+### "Bastardiser" 1998, Metal
+
+
+
+### "Knut EP" 2001, Metal
+
+
+
+### "Challenger" 2002, Metal
+
+
+
+### "Terraformer" 2005, Metal
+
+
+
+### "Wonder" 2010, Metal
+
+
+
 
 ## Отношения с другими группами
 

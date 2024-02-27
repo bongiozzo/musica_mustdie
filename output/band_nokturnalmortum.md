@@ -1,17 +1,118 @@
 # Nokturnal Mortum
 
-Дискография
-"TWILIGHTFALL (Demo)" 1995, Black Metal
-"Lunar Poetry" 1996, Black Metal
-"Return Of The Vampire Lord" 1996, Black Metal
-"Goat Horns" 1997, Black Metal
-"Marble Moon" 1998, Black Metal
-"To The Gates Of Blasphemous Fire" 1999, Black Metal
-"NeChrist" 2000, Black Metal
-"Мировоззрение" 2005, Black Metal
-"Голос Сталi" 2009, Black Metal
-"Істина / Verity" 2017, Metal
-"Вовчі ягоди (single)" 2017, Metal
+Ukrainian Pagan Black Metal!!
+
+## Дискография
+
+### "TWILIGHTFALL (Demo)" 1995, Black Metal
+
+1. The Unnothingles From Beyond
+2. Autumn Opposition
+3. Cryin' Of Ukraine
+4. Where Rivers Flow Into The Seas
+5. Of The Wings Of Scarlet Sunset
+6. Oriana (Waterfall Of Twilight)
+7. Dark Flower Of Temptation
+8. Tucmatsct Wen: Nokturnal Mortal
+
+### "Lunar Poetry" 1996, Black Metal
+
+Tears Of Paganism
+Lunar Poetry
+Perun's Celestial Silver
+Carpathian Mysteries
+... And Winter Becomes
+Ancient Nation
+The Grief Of Oriana
+Sorrows Of The Moon
+Autodafe - Barbarian Dreams
+
+
+### "Return Of The Vampire Lord" 1996, Black Metal
+
+01 - Return Of The Vampire Lord
+02 - Mi Agama Khaz Mifisto
+03 - Crystaline Darkness
+
+
+### "Goat Horns" 1997, Black Metal
+
+1. Black Moon Overture
+2. Kuyaviya
+3. Goat Horns
+4. Unholy Orathania
+5. Veles' Scrolls
+6. Kolyada
+7. Eternal Circle
+
+
+### "Marble Moon" 1998, Black Metal
+
+Hymn Of Ukraine
+On The Moonlight Path
+Swallow (Instrumental)
+Family Vault
+Cheremosh
+Swallow
+
+
+### "To The Gates Of Blasphemous Fire" 1999, Black Metal
+
+1. Bestial Summoning
+2. To The Gates Of Blashpemous Fire
+3. On The Moonlight Path
+4. The Hands Of Chaos
+5. Under The Banners Of The Horned Knjaz
+6. The 13th Asbath Celebration
+7. Cheremosh
+8. The Forgotten Ages Of Victories
+
+### "NeChrist" 2000, Black Metal
+
+ 1. The Funeral Winds Born In Oriana
+ 2. Night Before The Fight
+ 3. Черный Ворон
+ 4. The Call Of Aryan Spirit
+ 5. Дитя Болот И Полнолуния
+ 6. Death Damnation
+ 7. В Огне Деревянных Церквей
+ 8. Jesus' Blood
+ 9. Нехристь: Танец Мечей
+10-87: 2-х секундные трэки со звуками природы
+88. Небесное Серебро Перуна
+
+
+
+### "Мировоззрение" 2005, Black Metal
+
+
+
+### "Голос Сталi" 2009, Black Metal
+
+
+
+### "Істина / Verity" 2017, Metal
+
+1. Зустріну тебе в імлі старій (intro)/ I’ll Meet You in Ancient Darkness (intro)    
+2. Мольфа/ Molfa      
+3. З чортом за пазухою/ With Chort in My Bosom      
+4. Смерековий дід/ Spruce Elder      
+5. Пісня хуги/ Song of the Snowstorm      
+6. Вовчі ягоди/ Wolfish Berries      
+7. У човні з дурнями/ In the Boat with Fools 
+8. Дика вира/ Wild Weregild      
+9. Ліра/ Lira (KOMU VNYZ cover)    
+10. Чорний мед/ Black Honey      
+11. Ніч богів/ Night of the Gods     
+12. Куди пливуть вінки рікою? (outro)/ Where Do the Wreaths Float Down the River? (outro)  
+
+
+Mixing and mastering at Priory Recording Studios.
+
+### "Вовчі ягоди (single)" 2017, Metal
+
+1. Вовчі ягоди  09:00  
+
 
 ## Отношения с другими группами
 

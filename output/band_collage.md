@@ -1,11 +1,105 @@
 # Collage
 
-Дискография
-"Basnie" 1990, Progressive
-"Moonshine" 1994, Progressive
-"Changes" 1995, Progressive
-"Safe" 1996, Progressive
-"Living In The Moonlight (dvd)" 2005, Progressive
+
+
+## Дискография
+
+### "Basnie" 1990, Progressive
+
+Jeszcze Jeden Dzien 
+Ja I ty 
+Kolysanka 
+Basnie 
+Dalej Dalej 
+Stare Sciezki 
+Fragmenty 
+Rozmowa
+бонусы: 
+Ja I ty live 1991 (видео) 
+Basnie live 1995 (видео) 
+Kolysanka live from Holland 1995 (видео)
+
+### "Moonshine" 1994, Progressive
+
+Heroes Cry 
+In Your Eyes 
+Lovely Day 
+Living in the Moonlight 
+The Blues 
+Wings in the Night 
+Moonshine 
+War Is Over
+Бонусы: 
+Almost There 
+The Blues (video) 
+Wings in the Night (video)
+
+### "Changes" 1995, Progressive
+
+Changes 
+Lullaby ‘87 
+We Wizzards 
+The Night Falls 
+You And Me ‘88 
+Just Like Heaven part 1 
+Just Like Heaven part 2 
+Midnight Flyer 
+38/39 
+Conversation ‘86 
+Lovely Day ‘92 
+The Blues ‘92 
+Sun Meadows 
+Бонусы: 
+Old Romantic Style (ранее не издавалась) 
+Living In The Moonlight (ранее не издавалась) 
+God – Collage Live 1995 (video) 
+One Of Their Kind (video)
+
+### "Safe" 1996, Progressive
+
+The Winter Song 
+This Time 
+Cages of the Mind I 
+Cages of the Mind II 
+Stranded 
+Eight Kisses 
+One of Their Kind 
+Safe 
+The Chanting 
+Made Again 
+Cages of the Mind III 
+I Will Be There
+
+### "Living In The Moonlight (dvd)" 2005, Progressive
+
+Heroes Cry 
+The Blues 
+Lovely Day 
+In Your Eyes 
+Basnie 
+Kolysanka 
+One of their Kind 
+Wings in the Night 
+Living in the Moonlight 
+Moonshine 
+War is Over 
+God 
+-Bootegged in Unden, Holland 10/06/1995-
+In Your Eyes
+The Blues
+Living In The Moonlight 
+Wings In The Night
+Kolysanka
+Moonshine
+Baњnie 
+-videoclips-
+Living In The Moonlight 
+Lovely Day 
+Heroes Cry 
+Midnight Flyer 
+-Bootlegged at Stodoa, Warsaw 24/03/1995-
+God
+
 
 ## Отношения с другими группами
 

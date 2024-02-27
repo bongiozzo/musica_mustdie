@@ -1,8 +1,89 @@
 # Unisonic
 
-Дискография
-"Unisonic" 2012, Power Metal
-"Light Of Dawn" 2014, Power Metal
+
+
+## Дискография
+
+### "Unisonic" 2012, Power Metal
+
+01. Unisonic 3:25 
+02. Souls Alive 5:14 
+03. Never Too Late 4:30 
+04. I've Tried 4:56 
+05. Star Rider 4:16 
+06. Never Change Me 3:45 
+07. Renegade 4:38 
+08. My Sanctuary 4:16 
+09. King For A Day 4:07 
+10. We Rise 4:43 
+11. No One Ever Sees Me 6:13
+
+
+Bonus track: I Want Out (Live)
+ 
+Limited edition includes one bonus track:
+ 7. Over the Rainbow
+ 
+Japanese edition includes another bonus track:
+ 7. The Morning After (04:04)
+ 
+"Unisonic" album was engineered and mixed by Dennis Ward. Mastered by Jьrgen Luski at HOFA Studios, Karlsdorf, Germany and recorded at ICP Studios, Brussels, Belgium and HOFA Studios, Karlsdorf, Germany.
+ 
+Editions:
+ European / Rest of the world editions:
+ 1: CD standard edition (11 tracks)
+ 2: Limited CD Digi-pack edition (11 tracks plus 1 bonus track, mediabook of 40 pages, interviews, exclusive pictures) (also as EMP exclusive - with T-shirt)
+ 3: Limited LP + CD edition
+ 
+Japanese:
+ 4: CD standard edition (11 tracks plus 1 exclusive bonus track)
+ 
+Credits:
+ 1. Unisonic (Music: Meyer, Hansen / Lyrics: Ward, Hansen)
+ 2. Souls Alive (Music: Meyer / Lyrics: Ward)
+ 3. Never Too Late (Music: Hansen / Lyrics: Hansen)
+ 4. I've Tried (Music: Ward / Lyrics: Ward)
+ 5. Star Rider (Music: Ward / Lyrics: Ward, Hansen)
+ 6. Never Change Me (Music: Hansen / Lyrics: Hansen)
+ 7. The Morning After (Music: Meyer / Lyrics: Kiske, Ward)
+ 8. Renegade (Music: Ward / Lyrics: Ward)
+ 9. My Sanctuary (Music: Ward, Hansen / Lyrics: Ward)
+ 10. King for a Day (Music: Hansen / Lyrics: Hansen)
+ 11. We Rise (Music: Ward, Hansen / Lyrics: Ward)
+ 12. No One Ever Sees Me (Music: Kiske / Lyrics: Kiske) 	
+
+### "Light Of Dawn" 2014, Power Metal
+
+1. Venite 2.0  01:30   
+2. Your Time Has Come  05:03  
+3. Exceptional  05:02    
+4. For the Kingdom  04:58    
+5. Not Gonna Take Anymore  04:26   
+6. Night of the Long Knives  05:02    
+7. Find Shelter  05:04    
+8. Blood  04:45    
+9. When the Deed Is Done  05:06    
+10. Throne of the Dawn  04:50    
+11. Manhunter  03:37    
+12. You and I  05:20    
+
+
+ Deluxe, vinyl and boxset bonus track:
+ 13. Judgement Day
+
+ Exclusive boxset content:
+ - Exclusive "the early demos" CD
+ 1. Souls Alive
+ 2. I've Tried
+ 3. Cry Out Loud
+ 4. The Other Side
+ 5. No One Ever Sees Me
+
+ - Exclusive 7 inch vinyl single
+ A1. Exceptional (karaoke version)
+ B1. We Rise (live 2012)
+
+
 
 ## Отношения с другими группами
 

@@ -1,18 +1,271 @@
 # Amon Amarth
 
-Дискография
-"Sorrow Through The Nine Worlds" 1996, Viking Metal
-"Once Sent from the Golden Hall" 1998, Viking Metal
-"The Avenger" 1999, Viking Metal
-"The Crusher" 2001, Viking Metal
-"Versus The World" 2002, Viking Metal
-"Fate Of Norns" 2004, Viking Metal
-"Wrath of the Norsemen (DVD)" 2006, Viking Metal
-"With Oden On Our Side" 2006, Viking Metal
-"Twilight of the Thunder God " 2008, Viking Metal
-"Surtur Rising" 2011, Viking Metal
-"Deceiver Of The Gods" 2013, Viking Metal
-"Jomsviking" 2016, Viking Metal
+Viking/Death  metal
+
+## Дискография
+
+### "Sorrow Through The Nine Worlds" 1996, Viking Metal
+
+1.  Sorrow Through The Nine Worlds 
+2.  The Arrival Of The Fimbul Winter
+3.  Burning Creator 
+4.  The Mighty Doors Of The Speargod's Hall 
+5.  Under The Grayclouded Winter Sky
+
+Recorded In Abyss Studio '95.
+Mixed And Engineering By Peter
+Tagtgren And AMON AMARTH.
+Mastered And Edited By Leng Hiang.
+Artwork By Honvie.
+All Music And Lyrics By AMON AMARTH.
+
+Johan - Vocals
+Hansson - Guitars
+Olli - Guitars
+Nico - Drums
+Ted - Bass
+
+(p)c 1996 PULVERISED Records // ASH 001  MCD
+
+### "Once Sent from the Golden Hall" 1998, Viking Metal
+
+1. Ride for Vengeance
+2. The Dragons' Flight across the Waves
+3. Without Fear    
+4. Victorious March
+5. Friends of the Suncross  
+6. Abandoned
+7. Amon Amarth 
+8. Once Sent from the Golden Hall
+
+### "The Avenger" 1999, Viking Metal
+
+01 - Bleed For Ancient Gods
+02 - The Last With Pagan Blood
+03 - North Sea Storm
+04 - Avenger
+05 - God, His Son And Holy Whore
+06 - Metalwrath
+07 - Legend Of A Banished Man
+08 - Thor Arise
+
+
+### "The Crusher" 2001, Viking Metal
+
+01. Bastards Of A Lying Breed 
+02. Masters Of War 
+03. The Sound Of Eight Hooves 
+04. Risen From The Sea (2000) 
+05. As Long As The Raven Flies 
+06. A Fury Divine 
+07. Annhilation Of Hammerfeas 
+08. The Fall Through Ginnungagap 
+09. Releasing Surturґs Fire 
+10. Eyes Of Horror (bonustrack)
+
+### "Versus The World" 2002, Viking Metal
+
+1) Death In Fire
+2) For the stabwounds in our backs
+3) Where silent Gods stand guard
+4) Versus The World
+5) Across the rainbow bridge
+6) Down the slopes of death
+7) Thousand years of oppression
+8) Bloodshed
+9) ... and soon the world will cease to be 
+
+### "Fate Of Norns" 2004, Viking Metal
+
+01. An Ancient Sign Of Coming Storm
+02. Where Death Seems To Dwell
+03. The Fate Of Norns
+04. Pursuit Of Vikings
+05. The Valkyries Ride
+06. Beheading Of A King
+07. Arson
+08. Once Sealed In Blood
+
+### "Wrath of the Norsemen (DVD)" 2006, Viking Metal
+
+Disc 1: 
+
+Live in Cologne (Germany) – August 16, 2005:
+
+01. Intro 
+02. An Ancient Sign of Coming Storm
+03. Pursuit Of Vikings 
+04. Ride For Vengeance
+05. Masters Of War
+06. The Last With Pagan Blood
+07. Once Sealed In Blood
+08. Bastards Of A Lying Breed
+09. Fate Of Norns
+10. 1000 Years Of Oppression
+11. Vs. The World
+12. North Sea Storm 
+13. Releasing Surtur’s Fire
+14. Annihilation Of Hammerfest
+15. Friends Of The Suncross
+16. Bloodshed
+17. Amon Amarth
+18. For the Stabwounds In Our Backs
+19. Where Silent Gods Stand Guard
+20. Bleed For Ancient Gods
+21. Victorious March
+22. Death In Fire
++ backstage & other footage!
+
+Disc 2:
+
+Live at Summer Breeze festival – August 18, 2005
+
+01. Intro
+02. An Ancient Sign Of Coming Storm
+03. Pursuit of Vikings
+04. Masters of War
+05. Fate of Norns
+06. 1000 Years Of Oppression
+07. Vs the World
+08. For the Stabwounds In Our Backs
+09. Victorious March
+10. Death In Fire
+
+Live at the Metal Blade RRROOOAAARRR – October 2, 2005
+
+01. Sorrow Throughout The Nine Worlds
+02. Dragons Flight Across The Waves
+03. God His Son And Holy Whore
+04. The Sound Of Eight Hooves
+05. Thor Arise
+06. Fall Through Ginnungagap
+07. Burning Creation
+08. And Soon The World Will Cease To Be
+09. Valkyries Ride
+10. Pursuit Of Vikings
+11. Beheading Of A King
+12. Revenge Of The Zombie (SIX FEET UNDER Cover)
+13. Death In Fire
+
+Disc 3:
+
+Live at the Wacken Open Air 2004
+
+Track listing to be announced
+
+Live in Ludwigsburg (Germany) 2004 – record release show for "Fate of Norns"
+
+01. For The Stabwounds In Our Backs
+02. Vs. The World
+03. Masters Of War
+04. North Sea Storm
+05. Thousand Years of Oppression
+06. Bloodshed
+07. The Last With Pagan Blood
+08. An Ancient Sign Of Coming Storm
+09. Pursuit Of Vikings
+10. Fate of Norns
+11. Once Sealed In Blood
+12. Death In Fire
+13. The Sound Of Eight Hooves
+14. Bleed For Ancient Gods
+15. Where Silent Gods Stand Guard
+16. Victorious March
+
+### "With Oden On Our Side" 2006, Viking Metal
+
+1. Valhall Awaits Me
+2. Runes to My Memory
+3. Asator
+4. Hermod's Ride to Hel (Lokes Treachery Part 1)
+5. Gods of War Arise
+6. With Oden On Our Side
+7. Cry of the Black Birds
+8. Under the Northern Star
+9. Prediction of Warfare
+
+
+bonus disc
+01. Where Silent Gods Stand Guard (live at Wacken 2004) 
+2. Death in Fire (live at Wacken 2004) 
+3. With Oden on Our Side (demo version) 
+4. Hermod's Ride to Hel - Lokes Treachery Part 1 (demo version) 
+5. Once Sent from the Golden Hall (Sunlight Studio recording 1997) 
+6. Return of the Gods (Sunlight Studio recording 1997 – previously unreleased song)
+
+### "Twilight of the Thunder God " 2008, Viking Metal
+
+1 "Twilight of the Thunder God" (feat. Roope Latvala)
+2 "Free Will Sacrifice"
+3 "Guardians of Asgaard" (feat. Lars Goran Petrov)
+4 "Where Is Your God?"
+5 "Varyags of Miklagaard"
+6 "Tattered Banners and Bloody Flags"
+7 "No Fear for the Setting Sun"
+8 "The Hero"
+9 "Live for the Kill" (feat. Apocalyptica)
+10 "Embrace of the Endless Ocean"
+
+
+### "Surtur Rising" 2011, Viking Metal
+
+1. War of the Gods 
+2. Tock's Taunt - Loke's Treachery Part II   
+3. Destroyer of the Universe   
+4. Slaves of Fear   
+5. Live Without Regrets   
+6. The Last Stand of Frej   
+7. For Victory Or Death   
+8. Wrath of the Norsemen   
+9. A Beast Am I   
+10. Doom Over Dead Man 
+
+
+
+Recorded at Fascination Street Studios Цrebro, Sweden with Jens Bogre.
+
+Cover artwork by Tom Thiel.
+
+Named in tribute to Surtur, leader of the fire giants of Muspelheim ("flame
+land") and the oldest being in the nine worlds of Norse mythology. 
+
+### "Deceiver Of The Gods" 2013, Viking Metal
+
+01. Deceiver Of The Gods
+02. As Loke Falls
+03. Father Of The Wolf
+04. Shape Shifter
+05. Under Siege
+06. Blood Eagle
+07. We Shall Destroy
+08. Hel
+09. Coming Of The Tide
+10. Warriors Of The North
+
+### "Jomsviking" 2016, Viking Metal
+
+Disc 1 (CD)  
+01. First Kill
+02. Wanderer
+03. On a Sea of Blood
+04. One Against All
+05. Raise Your Horns
+06. The Way of Vikings
+07. At Dawn's First Light
+08. One Thousand Burning Arrows
+09. Vengeance Is My Name
+10. A Dream That Cannot Be (featuring Doro Pesch)
+11. Back on Northern Shores
+
+Disc 2 (DVD)
+1. Live in Strasbourg 2015       
+  
+Disc 3 (Vinyl) 
+1. Bonustrack 
+2. Live-Bonustrack  
+
+The Jomsvikings were a semi-legendary order of Viking mercenaries or brigands of the 10th century and 11th century.
+
 
 ## Отношения с другими группами
 

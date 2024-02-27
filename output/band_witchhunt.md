@@ -1,8 +1,32 @@
 # Witch-Hunt
 
-Дискография
-"Prophecies Of A Great Plaque" 1996, Black Metal
-"Souls Enshrouded Fire" 2000, Black Metal
+Black Death Doom Metal
+
+## Дискография
+
+### "Prophecies Of A Great Plaque" 1996, Black Metal
+
+1.  Fragments
+2.  Confined To Illusions
+3.  Conjuring The Undivine
+4.  A World Lit Only By Fire
+5.  I've Lost All Hope
+
+Recorded and Mixed at Clearsound Studios
+Produced, Edited and Mixed by Pete and WITCH-HUNT
+Engineered by Ed and WITCH-HUN'T
+Cover artwork by Mark Riddick
+
+Erik Sayenga - Drums
+Brian Straight - Guitars, Vocals
+Seth Newton - Bass
+
+(P)c 1996 X-RATED Records 001
+
+### "Souls Enshrouded Fire" 2000, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

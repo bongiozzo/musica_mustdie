@@ -1,8 +1,35 @@
 # Double Dealer
 
-Дискография
-"Double Dealer" 2000, Power Metal
-"Deride On The Top" 2001, Power Metal
+Melodic Metal From Japan
+
+## Дискография
+
+### "Double Dealer" 2000, Power Metal
+
+ 01 The Long Way Road        
+ 02 Pandora's Box        
+ 03 The Enemy        
+ 04 Deep Blue Sky        
+ 05 Primitive Life        
+ 06 Inner Voice        
+ 07 Too Young And Vane        
+ 08 Look At Your Face        
+ 09 Leave As It Is Now        
+ 10 Raise Your Fist        
+ 11 Fire Drake  
+
+
+Takenori Shimoyma : chant
+Norifumi Shima : guitares
+Toshiyuki Koike : claviers
+Kohsaku Mitani : basse
+Yoshio Isoda : batterie
+
+
+### "Deride On The Top" 2001, Power Metal
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,17 +1,157 @@
 # Nuclear Assault
 
-Дискография
-"Game Over" 1986, Speed Metal
-"Brain Death" 1986, Speed Metal
-"The Plague" 1987, Thrash
-"Survive" 1988, Thrash
-"Fight To Be Free" 1988, Thrash
-"Handle With Care" 1989, Thrash
-"Live At The Hammersmith Odeon" 1989, Thrash
-"Out Of Order" 1991, Thrash
-"Something Wicked" 1993, Thrash
-"Alive Again" 2003, Thrash
-"Third World Genocide" 2005, Thrash
+speed/thrash
+
+## Дискография
+
+### "Game Over" 1986, Speed Metal
+
+1. Live,Suffer,Die (LSD)
+2. Sin
+3. Cold Steel
+4. Betrayal
+5. Radiation Sickness
+6. Hang The Pope
+7. After The Holocaust
+1. Stranger In Hell
+2. Nuclear War
+3. My America
+4. Vengeance
+5. Brain Death
+
+ John Connely - Guitar & Vocals
+ Anthony Bramante -Guitar
+ Danny Lilker - Bass
+ Glenn Evans - Drums
+
+(p)&(c) 1986 UNDER ONE FLAG Records
+
+### "Brain Death" 1986, Speed Metal
+
+1. Brain Death 
+2. Final Flight 
+3. Demolition
+
+### "The Plague" 1987, Thrash
+
+1. Game Over 
+2. Justice 
+3. Butt F**k 
+4. Nightmares 
+5. The Plague 
+6. Cross Of Iron
+
+### "Survive" 1988, Thrash
+
+Side One:
+1. Rise From The Ashes 3.04
+2. Brainwashed 2.40
+3. F # 2.36
+4. Survive ! 2.58
+5. Fight To Be Free 4.22
+6. Got Another Quarter 0.19
+ Side Two:
+1. Great Depression 3.30
+2. Wired 3.03
+3. Equal Rights 2.58
+4. P.S.A. 0.08
+5. Technology 3.13
+6. Good Times,Bad Times 2.14
+
+(p)&(c) 1988 UNDER ONE FLAG Records
+
+### "Fight To Be Free" 1988, Thrash
+
+1. Fight To Be Free 
+2. Equal Rights 
+3. Stand Up
+
+### "Handle With Care" 1989, Thrash
+
+1. New Song 
+2. Critical Mass 
+3. Inherited Hell 
+4. Surgery 
+5. Emergency 
+6. Funky Noise 
+7. F:(Wake Up) 
+8. When Freedom Dies 
+9. Search & Seizure 
+10. Torture Tactics 
+11. Mother's Day 
+12. Trail Of Tears
+
+### "Live At The Hammersmith Odeon" 1989, Thrash
+
+
+
+### "Out Of Order" 1991, Thrash
+
+1. Sign In Blood
+2. Fashion Junkie
+3. Too Young To Die
+4. Preaching To The Deaf
+5. Resurrection
+6. Stop Wait Think
+7. Doctor Butcher
+8. Quocustodiat
+9. Hypocrisy
+10. Save The Planet
+
+ Dan Lilker - Bass & Back Vocals
+ Glen Evans - Drums & Back Vocals
+ Anthony Bramante - Lead Guitar & Back Vocals
+ John Connelly - Vocals & Guitar
+
+Executive Producer Glenn Evans
+Produced By Glenn Evans & Casey McMackin
+
+(p)&(c) 1991 RELATIVITY Records
+
+### "Something Wicked" 1993, Thrash
+
+1. Something Wicked
+2. Another Violent End
+3. Behind Glass Walls
+4. Chaos
+5. The Forge
+6. No Time
+7. To Serve Man
+8. Madness Descends
+9. Poetic Justice
+10.Art
+11.The Other End
+
+ Scott Metaxas - Bass & Back Vocals
+ Glen Evans - Drums & Back Vocals
+ John Connelly - Vocals & Lead Guitar
+ Dave Dipietro  - Guitar & Back Vocals
+
+Produced By NUCLEAR ASSAULT
+Engineered By Scott Gordon
+Recorded & Mixed August 3 - Sep. 7, 1992
+IRS Studios, Los Angeles
+
+(p)&(c) 1993 IRS Records
+
+### "Alive Again" 2003, Thrash
+
+1. Rise from the Ashes
+2. Brainwashed
+3. F#
+4. New Song
+5. Critical Mass
+7. Sin Betrayal
+8. Radiation Sickness
+9. Game Over
+10. Butt F**k
+11. Trail of Tears
+12. Hang The Pope
+
+### "Third World Genocide" 2005, Thrash
+
+
+
 
 ## Отношения с другими группами
 

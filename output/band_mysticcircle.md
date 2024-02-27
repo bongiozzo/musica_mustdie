@@ -1,14 +1,158 @@
 # Mystic Circle
 
-Дискография
-"Morgenrote" 1996, Black Metal
-"Drachenblut" 1998, Black Metal
-"Infernal Satanic Verses" 1999, Black Metal
-"Kriegsgotter II" 2000, Black Metal
-"The Great Beast" 2001, Death Metal
-"Damien" 2002, Black Metal
-"Open The Gates of Hell" 2003, Death Metal
-"The Bloody Path Of God" 2006, Death Metal
+Excellent Black From Germany
+
+## Дискография
+
+### "Morgenrote" 1996, Black Metal
+
+1.  Mitternacht
+2.  Morgana's Curse
+3.  Graveyard Dreams
+4.  Bloodlust (When The Wolf Awake)
+5.  Throne Of The Night
+6.  Octobermoon
+7.  Medina (Satan's Whore)
+8.  Kiss From A Vampire
+9.  Raven's Dusk
+10.  Morgenrote
+
+Recorded and Mixed at Soundbunker Studio.
+Produced by Graf von Beelzebub, Aaaarrrgon and Guido Holzmann.
+Cover artwork by Frank Babel.
+
+Graf von Beelzebub
+Aaaarrrgon
+
+
+
+### "Drachenblut" 1998, Black Metal
+
+Ancient Words
+Notrum – Sword Of Might
+DragonSlayer
+King Of Nibelungenhord
+Isenstein
+Shadows Over Worms
+Hagen Von Tronje
+Blood From The Xanten’s King
+Rheingold
+
+
+
+All songs written by MYSTIC CIRCLE
+Produced by Gerhard Magin and MYSTIC CIRCLE
+Recorded, mixed and mastered by Gerhard Magin at Commusication Studios
+
+Graf von Beelzebub - Bass and Vocals
+Aaarrrgon - Drums
+Isternos - Guitars
+Ezpharess - Guitars
+Baalsulgorr - Keyboards
+
+
+### "Infernal Satanic Verses" 1999, Black Metal
+
+Intro – The deamons Call
+Undestructable Power Of Darkness
+Hordes Of The Underworld 
+The devilstone
+Thorns Of Lies
+One With The Antichrist
+Fallen Christian Empire
+Black Legions
+
+
+
+
+Graf Fon Beelzebub - Vocals, Bass
+Baalsulgorr - Keyboards
+Isternos - Guitar
+Ezpharess - Guitar
+Aaarrrgon - Drums
+
+Guests:
+Sara Jezebel Deva - Vocals
+Ina Heiden - narration
+Kalle - Vocals on "One With The Antichrist"
+
+
+### "Kriegsgotter II" 2000, Black Metal
+
+1.One Rode to Asa Bay 9:00
+2.Die Gutter der Urvater 5:17
+3.Azazel's Soulfly 5:24
+4.Acheron (Medley) 7:24
+5.Circle of the Tyrants 5:05
+
+Beelzebub - Vocals, Bass
+Ezpharess - Guitars
+Baalsulgorr - Keyboards
+Blizzard - Drums
+
+### "The Great Beast" 2001, Death Metal
+
+01 Hellish Maniacs
+02 Hate 
+03 The great beast
+04 Lucifers Angel
+05 Spirits in black
+06 Eyes of horror 
+07 Whore babylon 
+08 Lost in the garden of Eden 
+09 And evil shall we die 
+10 The Road To Asa Bay (bonus)
+
+### "Damien" 2002, Black Metal
+
+Chapter I - The revelation
+666 - Mark of the devil
+God is dead - satan arise
+Servants of twillight
+Chapter II - The omen
+Kingdom of Blasphemy
+The seventh sign
+Armageddon war
+Chapter III - The deduction
+Unholy alliance
+Image of the antichrist
+
+
+Beelzebub Vocals, Bass
+Ezpharess Guitars
+Necrodemon Drums
+
+
+Recorded, mixed and mastered at Commusication Studio between may, june, july 2002.
+Produced by Gerhard Magin and Mystic Circle.
+Photos by Alex Kuehr.
+Coverartwork by J.P.Fournier.
+Artwork, design and composing by Alexander Hauser and Ezpharess.
+Music by Mystic Circle.
+Lyrics by Beelzebub.
+
+
+
+### "Open The Gates of Hell" 2003, Death Metal
+
+
+
+### "The Bloody Path Of God" 2006, Death Metal
+
+1. Psalm of the End (intro)   
+2. The Bloody Path of God   
+3. Doomsday Prophecy   
+4. Nine Plagues of Egypt   
+5. The Grim Reaper (intro)   
+6. The Grim Reaper   
+7. Riders of the Apocalypse   
+8. Hellborn   
+9. Church of Sacrifice   
+10. The Forgotten   
+11. Unholy Terror   
+12. Memento Mori (outro)   
+13. Circle of the Tyrants (CELTIC FROST cover; bonus track)
+
 
 ## Отношения с другими группами
 

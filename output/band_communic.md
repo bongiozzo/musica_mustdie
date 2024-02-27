@@ -1,10 +1,69 @@
 # Communic
 
-Дискография
-"Conspiracy In Mind" 2005, Progressive
-"Waves of Visual Decay" 2006, Progressive
-"Payment of Existence" 2008, Progressive
-"The Bottom Deep" 2011, Progressive
+
+
+## Дискография
+
+### "Conspiracy In Mind" 2005, Progressive
+
+1. Conspiracy In Mind
+2. History Reversed
+3. They Feed On Our Fear
+4. Communication Sublime
+5. The Distance
+6. Ocean Bed
+7. Silence Surrounds
+
+
+Oddleif Steinsland - guitars & vocals
+Erik Mortensen - bass
+Tor Atle Andersen - drums
+
+
+Keyboards on this album played by Peter Jensen.
+Music and lyrics by Oddleif Stensland.
+Arranged by Communic.
+Recorded and produced by Jacob Hansen and
+Communic at Hansen Studio, Denmark.
+Mixed and mastered by Jacob Hansen.
+Artwork by Mathias Noren at progart.com.
+Layout, logo & photos by DigiDesign.no.
+Photo editing by Stefano at DollWork.
+
+### "Waves of Visual Decay" 2006, Progressive
+
+1. Under a Luminous Sky  08:22  
+2. Frozen Asleep in the Park  08:57   
+3. Watching It all Disappear  06:54  
+4. Fooled by the Serpent  09:00   
+5. Waves of Visual Decay  08:12   
+6. My Bleeding Victim  06:42   
+7. At Dewy Prime  09:47 
+
+### "Payment of Existence" 2008, Progressive
+
+1. On Ancient Ground  08:44 
+2. The Abandoned One  08:45   
+3. Becoming of Man  07:54   
+4. Payment of Existence  07:32  
+5. Through the Labyrinth of Years  05:39   
+6. Raven's Cry  08:18  
+7. Unpredictables of Life  06:39 
+8. Stone Carved Eyes  09:11 
+
+### "The Bottom Deep" 2011, Progressive
+
+1. Facing Tomorrow  07:44 
+2. Denial  06:34   
+3. Flood River Blood  05:16  
+4. Voyage Of Discovery  06:51  
+5. In Silence With My Scars  06:23  
+6. My Fallen  06:53   
+7. Destroyer Of Bloodlines  05:49 
+8. Wayward Soul  07:03  
+9. The Bottom Deep  02:38   
+10. In Union We Stand (bonus track)  05:04 
+
 
 ## Отношения с другими группами
 

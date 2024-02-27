@@ -1,7 +1,17 @@
 # Curriculum Mortis
 
-Дискография
-"Into Death (demo)" 2003, Death Metal
+feat. Amon Amarth and Guidance Of Sin members
+
+## Дискография
+
+### "Into Death (demo)" 2003, Death Metal
+
+01. Kill All Life
+02. Into Death
+03. Walls Of Ice
+04. Frail
+05. Preserve You Forever
+
 
 ## Отношения с другими группами
 

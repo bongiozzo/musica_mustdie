@@ -1,8 +1,29 @@
 # Vindsval
 
-Дискография
-"Of Heathen Blood and Soil - Demo" 1997, Black Metal
-"Imperium Grotesque" 1999, Black Metal
+Luxembourgish Grotesque Metal-Band
+
+## Дискография
+
+### "Of Heathen Blood and Soil - Demo" 1997, Black Metal
+
+1.As Gjallar Calls For Ragnarшk
+2.Ancestral Pride
+3.As the Norns Predicted
+4.Blashyrkh (Immortal-Cover
+
+### "Imperium Grotesque" 1999, Black Metal
+
+1.A Black Millennium Awakens
+2.Wanterkeelt
+3.Beholding The Glacial Empire
+4.Farewell, Odyssey And The Macabre
+5.Imperium Grotesque
+6.Rise Of The Great Old One
+7.Nativity Of Revenge
+8.Retaliation
+9.Shadows Of Fade
+
+
 
 ## Отношения с другими группами
 

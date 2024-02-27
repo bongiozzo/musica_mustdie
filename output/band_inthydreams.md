@@ -1,9 +1,45 @@
 # In Thy Dreams
 
-Дискография
-"Stream Of Dispraised Souls" 1997, Melodic Death Metal
-"The Gate Of Pleasure" 1999, Melodic Death Metal
-"Highest Beauty" 2001, Melodic Death Metal
+Melodic death metal
+
+## Дискография
+
+### "Stream Of Dispraised Souls" 1997, Melodic Death Metal
+
+01. Fateless
+02. Glistening Truth 
+03. Fleeing Illusions 
+04. Dreams Within
+05. Stream Of Dispraised Souls 
+
+### "The Gate Of Pleasure" 1999, Melodic Death Metal
+
+01. Into Infinity 
+02. A Man Of Dreams 
+03. Deadly Desires 
+04. Master Of Lies 
+05. Blinded 
+06. Probing Insanity 
+07. Indoctrinated Lies 
+08. Feeing Illusion 
+09. Forgiven Sins 
+10. The Gate Of Pleasure 
+   
+
+### "Highest Beauty" 2001, Melodic Death Metal
+
+1. The highest beauty
+2. Surrealistic insanity
+3. Hatred
+4. Spirits forge
+5. Control
+6. Selfpity human
+7. Lower regions
+8. Razor-sharp
+9. Weeping twilight
+10. Upon your god
+
+
 
 ## Отношения с другими группами
 

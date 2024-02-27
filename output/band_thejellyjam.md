@@ -1,8 +1,50 @@
 # The Jelly Jam
 
-Дискография
-"The Jelly Jam" 2002, Progressive
-"2" 2004, Alternative
+(DREAM THEATER's bassist John Myung's side project)
+
+## Дискография
+
+### "The Jelly Jam" 2002, Progressive
+
+01. I Can't Help You 
+
+02. No Remedy 
+
+03. Nature 
+
+04. Nature's Girl 
+
+05. Feeling 
+
+06. Reliving 
+
+07. The Jelly Jam 
+
+08. I Am The King 
+
+09. The King's Dance 
+
+10. Wind On The Way 
+
+12. Under The Tree
+
+
+
+### "2" 2004, Alternative
+
+1. Not Today 3:22
+2. Coming Round 3:37
+3. Empty 5:24
+4. Drop The Gun 3:04
+5. Allison 5:32
+6. Maybe 4:45
+7. She Was Alone 4:34
+8. Angel Or Devil 4:50
+9. You Don't Need Me Anymore 2:40
+10. Runaway 3:15
+11. War Is... 3:27
+12. Message 0:36
+
 
 ## Отношения с другими группами
 

@@ -1,9 +1,31 @@
 # Lillian Axe
 
-Дискография
-"Fields Of Yesterday" 1999, Hard Rock
-"Sad Day On Planet Earth" 2009, Hard Rock
-"The Days Before Tomorrow" 2012, Hard Rock
+
+
+## Дискография
+
+### "Fields Of Yesterday" 1999, Hard Rock
+
+
+
+### "Sad Day On Planet Earth" 2009, Hard Rock
+
+
+
+### "The Days Before Tomorrow" 2012, Hard Rock
+
+01. Babylon
+02. Death Comes Tomorrow
+03. Gather Up The Snow
+04. The Great Divide
+05. Take The Bullet
+06. Bow Your Head
+07. Caged In
+08. Soul Disease
+09. Lava On My Tongue
+10. My Apologies
+11. Angels Among Us (European Bonus) 
+
 
 ## Отношения с другими группами
 

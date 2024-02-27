@@ -1,7 +1,13 @@
 # Noisear
 
-Дискография
-"Subvert The Dominant Paradigm" 2011, Grindcore
+
+
+## Дискография
+
+### "Subvert The Dominant Paradigm" 2011, Grindcore
+
+
+
 
 ## Отношения с другими группами
 

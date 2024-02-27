@@ -1,12 +1,33 @@
 # King Kobra
 
-Дискография
-"Ready To Strike" 1985, Hard Rock
-"Thrill Of A Lifetime" 1986, Hard Rock
-"III" 1988, Hard Rock
-"The Lost Years (Compilation)" 1999, Hard Rock
-"Hollywood Trash" 2001, Hard Rock
-"King Kobra" 2011, Hard Rock
+
+
+## Дискография
+
+### "Ready To Strike" 1985, Hard Rock
+
+
+
+### "Thrill Of A Lifetime" 1986, Hard Rock
+
+
+
+### "III" 1988, Hard Rock
+
+
+
+### "The Lost Years (Compilation)" 1999, Hard Rock
+
+
+
+### "Hollywood Trash" 2001, Hard Rock
+
+
+
+### "King Kobra" 2011, Hard Rock
+
+
+
 
 ## Отношения с другими группами
 

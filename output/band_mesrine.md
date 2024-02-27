@@ -1,10 +1,120 @@
 # Mesrine
 
-Дискография
-"Going to the Morgue" 2001, Grindcore
-"I Choose Murder" 2005, Grindcore
-"Unidentified" 2007, Grindcore
-"Obsessive Compulsive" 2010, Grindcore
+
+
+## Дискография
+
+### "Going to the Morgue" 2001, Grindcore
+
+1. Jean-Paul Mercier 01:29  
+2. Ghislain Gaudet 02:15  
+3. L`abuseur au Pouce Magique (Vital Lemyre) 02:04  
+4. Luis Eduardo Garavito 01:14  
+5. Karla Homolka 02:00  
+6. Paul Bernardo 01:08  
+7. Mise а Mort 02:05  
+8. Le Caporal Denis Lortie 02:08  
+9. Restricted (ROT) 00:59  
+10. Kendall Franзois 01:56  
+11. Debile Mental 02:41  
+12. Mario Bastian 00:24  
+13. Behram 02:34  
+14. Andrй Gagnon 02:24  
+15. Valery Fabrikant 01:27  
+16. Michael McGray 01:42  
+17. Richard Speck 01:43  
+18. Marc Lepine 02:10  
+19. Jacques Mesrine [bonus track] 02:02  
+20. Old School/ Starving Niggers [bonus track] 01:32  
+21. Ted Bundy [bonus track] 01:32  
+22. Saoul [bonus track] 00:55 
+
+### "I Choose Murder" 2005, Grindcore
+
+1. Gary Ridgway 00:49  
+2. Renй Michaud 02:34  
+3. Alain Quimper 02:32  
+4. Dr. Shipman 02:41  
+5. Yves "Apache" Trudeau 01:19  
+6. Ian Huntley 01:10  
+7. Kosse 02:56  
+8. Bean 01:29  
+9. William Goad 01:31  
+10. Armin Meiwes pt. I 00:16  
+11. Nou-Bom-Kon 00:50  
+12. Ernst Jean-Pierre 02:35  
+13. Rinfret 02:18  
+14. Shot To Death 01:40  
+15. Michel Verreault 02:03  
+16. Armin Meiwes pt. II 00:18  
+17. Jocelyn Hotte 01:29  
+18. Uncle Jimmy 01:39  
+19. Charles Cullen 03:08  
+20. Moose 00:17 
+
+### "Unidentified" 2007, Grindcore
+
+1. Intro 00:54  
+2. First Victim 02:45  
+3. Feed On Fear 02:21  
+4. Blind Fear 02:54  
+5. Wolfgang Prinklopil 03:15  
+6. Best Selling Killer 01:45  
+7. Richard Blass 01:32  
+8. The Hunter 03:34  
+9. Sociopathic Worm 03:44  
+10. Mehmet Ali Agca 01:18  
+11. Colosse Plamondon 00:40  
+12. Random Killings 03:51  
+13. Clifford Orgy 01:19  
+14. Sy Tuan Tran 01:16  
+15. Senseless Gorecrap 03:23  
+16. Outro 01:35 
+
+### "Obsessive Compulsive" 2010, Grindcore
+
+1. Obsessive Compulsive 02:05  
+2. Underground Terror 01:06  
+3. Adam J. Morris 00:49  
+4. Charles Sobhraj 00:15  
+5. Abdel Nasser Ibrahim Mahmoud 00:29  
+6. By My Hands 01:19  
+7. Leonard Lake 00:21  
+8. Bilos 01:13  
+9. The Perfect Prey 00:56  
+10. Dirty Christ 00:51  
+11. Gilles Pimparй 01:24  
+12. Jacques Duchesne 01:10  
+13. Camille Noлl 00:40  
+14. Richard Christian Hansen 01:19  
+15. Zero Telerance 00:50  
+16. George Vera 01:14  
+17. Guy Georges 00:51  
+18. Richard Barnabй 00:50  
+19. Moose II 00:12  
+20. Jaws 01:17  
+21. Someone Else Living Your Life 00:43  
+22. Turn Away And Face The End 01:00  
+23. Can't Repair 01:07  
+24. Shortest Life 01:19  
+25. Bai Baoshan 00:36  
+26. Obscene Sounds 00:26  
+27. Parasitic Mental Infection 00:50  
+28. Tim Kretschmer 00:44  
+29. Guilty Of Being There 01:33  
+30. Slowly...Sharply... 00:51  
+31. Somewhere, Anywhere 01:34  
+32. Something's Wrong 00:54  
+33. Sipho Mandla Agmatir Thwala 00:05  
+34. Wrong Headed 00:29  
+35. Empty World 00:26  
+36. ...To The Death 01:10  
+37. Collective Paranoia 00:44  
+38. Charles Chi-Tat Ng 01:12  
+39. Clifford Orgy II 00:27  
+40. Ahmad Suradji 02:18  
+41. Demers 00:23 
+
 
 ## Отношения с другими группами
 

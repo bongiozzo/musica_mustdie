@@ -1,7 +1,21 @@
 # Absurd Universe
 
-Дискография
-"Habeas Corpus" 2011, Death Metal
+
+
+## Дискография
+
+### "Habeas Corpus" 2011, Death Metal
+
+1. History of a New Hell	 
+2. Freedom Less	 
+3. Blood Collector	 
+4. Ships of Enslavement	 
+5. A Stone for Your Skull	 
+6. Red Water	 
+7. Boiled by Dead Water	 
+8. Under Command	 
+9. New World Domination / The Endless Quest
+
 
 ## Отношения с другими группами
 

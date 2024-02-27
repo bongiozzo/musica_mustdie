@@ -1,56 +1,739 @@
 # Metallica
 
-Дискография
-"Kill 'Em All" 1983, Speed Metal
-"Ride the Lightning" 1984, Thrash
-"Creeping Death [single]" 1984, Thrash
-"Whiplash [single]" 1984, Speed Metal
-"For Whom the Bell Tolls [single]" 1984, Thrash
-"Fade to Black [single]" 1984, Thrash
-"Creeping Death [single]" 1985, Thrash
-"Live USA [live]" 1985, Thrash
-"Master of Puppets" 1986, Thrash
-"Master of Puppets [EP]" 1986, Thrash
-"The $ 7.98 CD / Garage Days Re-Revisited [EP]" 1987, Thrash
-"...And Justice for All" 1988, Thrash
-"...And Justice for All [single]" 1988, Thrash
-"Eye of the Beholder [single]" 1988, Thrash
-"One [EP]" 1989, Thrash
-"Harvester of Sorrow [single]" 1990, Thrash
-"Metallica" 1991, Thrash
-"Killing Time" 1991, Thrash
-"Enter Sandman [single]" 1991, Thrash
-"The Unforgiven [single]" 1991, Thrash
-"Wherever I May  Roam [single]" 1992, Thrash
-"Nothing Else Matters [single]" 1992, Thrash
-"Creeping Death [single]" 1992, Thrash
-"Angels from Hell" 1993, Thrash
-"One [single]" 1993, Thrash
-"Sad But True [single]" 1993, Thrash
-"Nothing Else Matters [single]" 1994, Thrash
-"Wherever I May Roam [single]" 1994, Thrash
-"Load" 1996, Thrash
-"Until It Sleeps [single]" 1996, Thrash
-"Hero of the Day [Single]" 1996, Thrash
-"Mama Said [single]" 1996, Thrash
-"King Nothing [single]" 1996, Thrash
-"Bleeding Me [single]" 1996, Thrash
-"Garage Days Re-Revisited Part II" 1997, Thrash
-"ReLoad" 1997, Thrash
-"The Memory Remains [single]" 1997, Thrash
-"The Unforgiven II [single]" 1997, Thrash
-"Fuel [single]" 1997, Thrash
-"Better Than You [single]" 1997, Thrash
-"Turn the Page [single]" 1997, Thrash
-"Whiskey in Jar [single]" 1997, Thrash
-"Die Die My Darling [single]" 1997, Thrash
-"S&M" 1999, Thrash
-"St. Anger" 2003, Nu Metal
-"St. Anger [EP]" 2003, Nu Metal
-"Death Magnetic" 2008, Heavy Metal
-"Lulu [w/Lou Reed]" 2011, Metal
-"Beyond Magnetic [EP]" 2011, Thrash
-"Hardwired... to Self-Destruct" 2016, Heavy Metal
+Fathers of Speed, Thrash Metal 80's
+
+## Дискография
+
+### "Kill 'Em All" 1983, Speed Metal
+
+1.  Hit The Lights
+2.  The Four Horsemen
+3.  Motor Breath
+4.  Jump In The Fire
+5.  Pulling Teeth (Anesthesia)
+6.  Whiplash
+7.  Phantom-Lord
+8.  No Remorse
+9.  Seek & Destroy
+10.Metal Militia
+
+ James Alan Hetfield - Rhythm Guitar,Vocal
+ Lars Ulrich - Drums
+ Cliff Burton - Bass
+ Kirk Hammet - Guitar
+
+Produced By Paul Curcio,Jon Zazula.
+
+(p)&(c) 1983 MUSIC FOR NATIONS,MEGAFORCE
+
+### "Ride the Lightning" 1984, Thrash
+
+1. Fight Fire With Fire
+2. Ride The Lightning
+3. For Whom The Bell Tolls
+4. Fade To Black
+5. Trapped Under Ice
+6. Escape
+7. Creeping Death
+8. The Call Of Ktulu
+
+ James Alan Hetfield - Rhythm Guitar,Vocal
+ Lars Ulrich - Drums
+ Cliff Burton - Bass
+ Kirk Hammet - Guitar
+
+Produced By METALLICA.
+
+(p)&(c) 1984 MUSIC FOR NATIONS Ltd.,MEGAFORCE
+
+
+### "Creeping Death [single]" 1984, Thrash
+
+1.  Creeping Death
+2.  Am I Evil ?
+3.  Blitzkrieg
+4.  Jump In The Fire
+5.  Seek And Destroy
+6.  Phantom Lord
+
+(P)c 1984
+
+### "Whiplash [single]" 1984, Speed Metal
+
+1. Whiplash
+2. Jump In The Fire
+3. Seek And Destroy (Live)
+4. Phantom Lord (Live)
+5. Overkill *
+
+* By MOTORHEAD
+
+James Alan Hetfield - Rhythm Guitar, Vocal
+Lars Ulrich - Drums
+Cliff Burton - Bass
+Kirk Hammet - Guitar
+
+Produced By Paul Curcio,Jon Zazula.
+
+(p)&(c) 1983 MUSIC FOR NATIONS,MEGAFORCE
+
+### "For Whom the Bell Tolls [single]" 1984, Thrash
+
+
+
+### "Fade to Black [single]" 1984, Thrash
+
+
+
+### "Creeping Death [single]" 1985, Thrash
+
+1. Creeping Death
+2. Am I Evil ?
+3. Blitzkrieg
+4. Creeping Death (Live)
+
+James Alan Hetfield - Rhythm Guitar, Vocals
+Lars Ulrich - Drums
+Cliff Burton - Bass
+Kirk Hammet - Guitar
+
+Track 2 - By DIAMOND HEAD.
+Track 3 - By BLITZKRIEG.
+
+Produced By METALLICA & Flemming Rasmussen.
+
+(P)c 1985 METALLICA Records
+
+### "Live USA [live]" 1985, Thrash
+
+1.  Fight Fire With Fire
+2.  Ride The Lightning
+3.  Phantom Lord
+4.  Four Horsemen
+5.  Pulling Teeth
+6.  For Whom The Bell Tolls
+7.  No Remorse
+8.  Fade To Black
+9.  Creeping Death
+10.Guitar Solo By Kirk Hammet
+11.Am I Evil ?
+12.Motorbreath
+
+(P)c 1985
+
+### "Master of Puppets" 1986, Thrash
+
+1. Battery
+2. Master Of Puppets
+3. The Thing That Should Not Be
+4. Sanitarium (Welcome Home)
+5. Disposable Heroes
+6. Leper Messiah
+7. Orion
+8. Damage,Inc.
+
+ James Alan Hetfield - Rhythm Guitar,Vocal
+ Lars Ulrich - Drums
+ Cliff Burton - Bass
+ Kirk Hammet - Guitar
+
+(p) 1986 MUSIC FOR NATIONS Ltd.
+
+### "Master of Puppets [EP]" 1986, Thrash
+
+
+
+### "The $ 7.98 CD / Garage Days Re-Revisited [EP]" 1987, Thrash
+
+1. Helpless
+2. The Small Hours
+3. The Wait
+4. Crash Course In Brain Surgery
+5. Last Caress / Green Hell
+
+ James Alan Hetfield - Rhythm Guitar,Vocal
+ Lars Ulrich - Drums
+ Jason Newsted - Bass
+ Kirk Hammet - Guitar
+
+(p) 1987 ELECTRA / ASYLUM Records
+
+
+### "...And Justice for All" 1988, Thrash
+
+1. Blackend.
+2. …And Justice For All..
+3. Eye Of Beholder.
+4. One.
+5. The Shortest Straw.
+6. Harvester Of Sorrow.
+7. The Frayed Ends Of Sanity.
+8. To Live Is To Die.
+9. Dyer's Eve.
+
+(p)&©1988 VERTIGO
+
+JAMES ALAN HETFIELD – rhythm guitar, vocals
+LARS ULRICH – drums
+JASON NEWSTED – bass
+KIRK HAMMET – guitar
+
+Produced by METALLICA with Flemming Rasmussen,
+enginneered by  Flemming Rasmussen,
+mixed by Steve Thomsson and Michael Barbiero.
+
+### "...And Justice for All [single]" 1988, Thrash
+
+
+
+### "Eye of the Beholder [single]" 1988, Thrash
+
+
+
+### "One [EP]" 1989, Thrash
+
+1.  One
+2.  Breadfan
+3.  For Whom The Bell Tolls
+4.  Sanitarium
+5.  One (Radio Verse)
+
+(P)c 1989
+
+### "Harvester of Sorrow [single]" 1990, Thrash
+
+1. Harvester Of Sorrow
+2. Breadfan
+3. The Prince
+4. One (Edit)
+
+James Alan Hetfield - Rhythm Guitar, Vocal
+Lars Ulrich - Drums
+Jason Newsted - Bass
+Kirk Hammet - Guitar
+
+Track 3 - By DIAMOND HEAD.
+Track 2 - By BUDGIE.
+
+Produced By METALLICA & Flemming Rasmussen.
+
+(P)c 1990 METALLICA Records
+
+### "Metallica" 1991, Thrash
+
+1. Enter Sandman
+2. Sad But True
+3. Holier Than Thou
+4. The Unforgiven
+5. Wherever I May Roam
+6. Don`t Tread On Me
+7. Through The Never
+8. Nothing Else Matters
+9. Of Wolf And Man
+10.The God That Failed
+11.My Friend Of Misery
+12.The Struggle Within
+
+ James Alan Hetfield -  Rhythm Guitar,  Vocal
+ Lars Ulrich - Drums
+ Jason Newsted - Bass
+ Kirk Hammet - Guitar
+
+(p) 1991 ELECTRA Entertainment, Division Of Warner Communications Inc.
+
+### "Killing Time" 1991, Thrash
+
+1. Killing Time
+2. Stone Cold Crazy
+3.  So What
+4.  Nothing Else Matters (Elevator Version)
+5.  Last Caress (Live)
+
+James Alan Hetfield - Rhythm Guitar, Vocal
+Lars Ulrich - Drums
+Jason Newsted - Bass
+Kirk Hammet - Guitar
+
+Track 1 - By SWEET SAVAGE.
+Track 2 - By QUEEN.
+Track 3 - By ANTI-NOWHERE LEAGUE.
+Track 5 - By MISFITS.
+
+Produced By METALLICA & Bob Rock.
+
+(P)c 1991 METALLICA Records
+
+### "Enter Sandman [single]" 1991, Thrash
+
+
+
+### "The Unforgiven [single]" 1991, Thrash
+
+
+
+### "Wherever I May  Roam [single]" 1992, Thrash
+
+1. Wherever I May Roam
+2. Fade To Black (Live)
+3. Wherever I May Roam (Demo)
+
+(P)&(C) 1992 METALLICA Records
+
+### "Nothing Else Matters [single]" 1992, Thrash
+
+1. Enter Sandman
+2. Sad But True
+3. Nothing Else Matters
+
+Live At Wembley Stadium,April '92.
+
+(P)&(C) 1992 METALLICA Records
+
+### "Creeping Death [single]" 1992, Thrash
+
+Disk one:
+
+1.  Intro
+2.  Enter Sandman
+3.  Creeping Death
+4.  Harvester Of Sorrow
+5.  Welcome Home (Sanitarium)
+6.  Sad But True
+7.  Wherever I May Roam
+8.  Through The Never
+9.  Fade To Black
+10.Whiplash
+11.Master Of Puppets
+
+James Alan Hetfield - Guitars, Vocals
+Lars Ulrich - Drums
+Jason Newsted - Bass
+Kirk Hammet - Guitars
+
+Recorded Live In New Orleans, USA 18th January 1992
+
+(P)c 1992 GEMA Records
+
+
+
+Disk two:
+
+1.  The Unforgiven
+2.  And Justice For All (Medley)
+3.  For Whom The Bell Tolls
+4.  Seek And Destroy
+5.  One
+6.  Last Caress
+7.  Am I Evil
+8.  Battery
+9.  Stone Cold Crazy
+
+James Alan Hetfield - Guitars, Vocals
+Lars Ulrich - Drums
+Jason Newsted - Bass
+Kirk Hammet - Guitars
+
+Recorded Live In New Orleans, USA 18th January 1992
+
+(P)c 1992 GEMA Records
+
+### "Angels from Hell" 1993, Thrash
+
+1.  Enter Sandman
+2.  Creeping Death
+3.  Sad But True
+4.  Of Wolf And Man
+5.  Bass Solo - Jason Newsted
+6.  Orion Part II
+7.  Through The Never
+8.  The Unforgiven
+9.  Medley: Eye Of The Beholder /
+Blackened / The Frayed /
+Ends Of Sanity / And Justice For All /
+Blackened
+10.Wherever I May Roam
+11.Holier Than Thou
+12.Motorbreath
+13.Stone Cold Crazy
+
+Live Recorded In Long Island.
+
+(P)&(C) 1993 LIVE LINE Records
+LL 15449
+
+### "One [single]" 1993, Thrash
+
+Single two: 
+
+1. One
+2. Whiplash
+3. For Whom The Bell Tolls
+4. The Last Caress
+
+James Alan Hetfield -  Rhythm Guitar,
+Vocals
+Lars Ulrich - Drums
+Jason Newsted - Bass
+Kirk Hammet - Guitar
+
+
+Single three:
+1. One
+2. One (Demo)
+3. One (Live)
+
+(P)&(C) 1993 METALLICA Records
+
+(P)&(C) 1993 METALLICA Records
+
+### "Sad But True [single]" 1993, Thrash
+
+1.  Sad But True
+2.  Nothing Else Matters
+3.  Creeping Death
+4.  Sad But True
+
+(P)c 1993
+
+### "Nothing Else Matters [single]" 1994, Thrash
+
+1.  Battery
+2.  Nothing Else Matters
+3.  Sad But True
+4.  Last Caress (Danzig)
+5.  One
+6.  Enter Sandman
+7.  So What (Jorgensen - Barker - Rieflin -Connely)
+
+Bootleg Made In Australia
+
+(P)c 1994 GRAPEFRUIT Records
+
+### "Wherever I May Roam [single]" 1994, Thrash
+
+1.  Creeping Death
+2.  Harvester Of Sorrow
+3.  Welcome Home (Sanitarium)
+4.  Of Wolf & Man
+5.  Wherever I May Roam
+6.  The Thing That Should Not Be
+7.  3rd Stone From The Sun (Hendrix)
+8.  The Thing That Should Not Be
+9.  Disposable Heroes
+
+Bootleg Made In Australia
+
+(P)c 1994 GRAPEFRUIT Records
+
+### "Load" 1996, Thrash
+
+1.  Ain't My Bitch
+2.  2 X 4
+3.  The House Jack Built
+4.  Until It Sleeps
+5.  King Nothing
+6.  Hero Of The Day
+7.  Bleeding Me
+[8].Cure
+[9].Poor Twisted Me
+[10].Wasting My Hate
+[11].Mama Said
+[12].Thorn Within
+[13].Ronnie
+[14].The Outlaw Torn
+
+[8]-[14] на стороне B
+
+James Alan Hetfield - Guitars, Vocals
+Lars Ulrich - Drums
+Jason Newsted - Bass
+Kirk Hammet - Guitars
+
+Produced By Bob Rock with Hetfield & Ulrich.
+Recorded By Randy Staub at The Plant Studios, CA.
+Engineered By Brian Dobbs.
+Mixed By Randy Staub.
+
+(P)&c 1996 POLYGRAM Music / Creeping Death Music
+
+### "Until It Sleeps [single]" 1996, Thrash
+
+
+
+### "Hero of the Day [Single]" 1996, Thrash
+
+
+
+### "Mama Said [single]" 1996, Thrash
+
+
+
+### "King Nothing [single]" 1996, Thrash
+
+
+
+### "Bleeding Me [single]" 1996, Thrash
+
+
+
+### "Garage Days Re-Revisited Part II" 1997, Thrash
+
+1.  The Mechanics (Demo '82)
+2.  Killing Time (Demo '82)
+3.  Let It Loose (Demo '82)
+4.  Sucking My Love (Demo)
+5.  The Prince (Demo)
+6.  Jump In The Fire (Demo '82)
+7.  Whiplash (Demo '82)
+8.  No Remorse (Demo)
+9.  Eye Of Beholder (Demo)
+10.Remember Tomorrow (Live)
+11.Two By Four (Live)
+12.So What (Live)
+13.Am I Evil (Live)
+14.Helpless (Live)
+15.London Dungeon / Last Caress / Green Hell (Live)
+16.Rapid Fire (Live)
+17.Happy Fuckin' Christmas From Metallica
+
+METALLICA 1982-1997 Years Are:
+
+James Hetfield - Vocals, Guitars
+Lars Ulrich - Drums
+Kirk Hammet - Lead Guitar
+Dave Mustaine - Lead Guitar (1982-1983)
+Loyd Grant - Lead Guitar (1982)
+Ron McGovny - Bass (1982)
+Cliff Burton - Bass (R.I.P.)
+Jason Newsted - Bass
+
+(P)(C) 1997 METALLICA Records
+
+### "ReLoad" 1997, Thrash
+
+1. Fuel.
+2. The Memory Remains.
+3. Devil's Dance.
+4. The Unforgiven 2.
+5. Better Than You.
+6. Slither.
+7. Carpe Diem Baby.
+8. Bad Seed.
+9. Where The Wild Things Are.
+10. Prince Charming.
+11. Low Man's Lyric.
+12. Attitude.
+13. Fixxxer
+
+(p)&©1997 VERTIGO
+
+Produced By Bob Rock with Hetfield & Ulrich
+
+JAMES ALAN HETFIELD – rhythm guitar, vocals
+LARS ULRICH – drums
+JASON NEWSTED – bass
+KIRK HAMMET – guitar
+
+### "The Memory Remains [single]" 1997, Thrash
+
+
+
+### "The Unforgiven II [single]" 1997, Thrash
+
+
+
+### "Fuel [single]" 1997, Thrash
+
+
+
+### "Better Than You [single]" 1997, Thrash
+
+
+
+### "Turn the Page [single]" 1997, Thrash
+
+
+
+### "Whiskey in Jar [single]" 1997, Thrash
+
+
+
+### "Die Die My Darling [single]" 1997, Thrash
+
+
+
+### "S&M" 1999, Thrash
+
+Disc 1
+1. The Ecstasy Of Gold.
+2. The Call Of The Ktulu.
+3. Master Of Puppet.
+4. Of Wolf And Man.
+5. The Thing That Should Not Be.
+6. Fuel.
+7. The Memory Remains.
+8. No Leaf Clover.
+9. Hero Of The Day.
+10. Devil's Dance.
+11. Bleeding Me.
+
+Disc 2.
+1. Nothing Else Matters.
+2. Until It Sleeps.
+3. For Whom The Bell Tolls.
+4. – Human.
+5. Wherever I May Roam.
+6. Outlaw Torn.
+7. Sad But True.
+8. One.
+9. Enter Sandman.
+10. Battery.
+
+(c)&(p) 1999 E/M Ventures
+
+JAMES HETFIELD – guitars, vocals
+LARS ULRICH – drums
+JASON NEWSTED – bass
+KIRK HAMMET – guitar
+MICHAEL KAMEN – conductor
+
+San Francisco Symphony Personnel:
+First Violins:
+Jeremy Constant (Concertmaster), Melissa Kleinbart, Naomi Kazama, Victor Romasevich, Diane Nicholeris, Florin 
+Parvulescu, Yukiko Kurakata, Kelly Leon-Pearce, Rudolph Kremer, Connie Gantsweg, Catherine Down, Philip Santos 
+Second Violins:
+Paul Brancato (Principal), Chumming Mo Kobialka, Kum Mo Kirn, Enrique Bocedi, Michael Gerling, Yasuko Hattori, 
+Frances Jeffrey, Bruce Freifeld, Daniel Kobialka, Daniel Banner Violas:
+Geraldine Walther (Principal), Yun Jie Liu, Don Ehrlich, Gina Feinauer, David Gaudry, Christina King, Seth Mausner, 
+Nanci Severance 
+Violincellos:
+David Teie (Principal), Barara Bogatin, Jill Rachuy Brindel, David Goldblatt, Anne Pinsker, Peter Shelton, Judiyaba 
+Richard Andaya 
+Basses:
+Larry Epstein (Principal), Stephen Tramontozzi, William Kitchen, Chris Gilbert, S. Mark Wright, Charles Chandler 
+Flutes:
+Paul Renzi (Principal), Linda Lukas, Catherine Payne 
+Oboes:
+Eugene Izotov (Principal), Pamela Smith, Julie Ann Giacobassi 
+Clarinets:
+Luis Beez (Principal), Sheryl Renk, Anthony Striplen 
+Bassoons:
+Stephen Paulson (Principal), Rob Weir, Steven Braunstein
+Horns:
+Robert Ward (Principal), Bruce Roberts, Jonathan Ring, Douglas Hull, Jim Smesler Eric Achen, Joshua Garrett 
+Trumpets:
+Glenn Fischthal (Principal), Craig Morris, Chris Bogios, Andrew McCandless 
+Trombones;
+Paul Welcomer (Principal), Tom Hornig, Jeffrey Budin John Engelkes 
+Tuba:
+Peter Wahrhaftig 
+Harp:
+Douglas Rioth 
+Timpani:
+David Herbert 
+Percussion:
+Raymond Froehlich (Principal), Anthony J. Cirone, Tom Hemphill, Artie Storch 
+Keyboard:
+Marc Shapiro
+
+Produced by Bob Rock with Hetfield & Ulrich and Michael Kamen
+All songs arranged orchestrated and conducted by Michael Kamen 
+Recorded live at the Berkeley Community Theater in Berkeley, California, on April 21-22,1999 using the Effanel Music 
+and Westwood One mobile recording trucks Recorded by Bob Rock, Randy Staub Orchestra recorded by Stephen P 
+McLaughlin Technical Assistance by John Vrtacic Mixed and edited at The Plant Studios, Sausalito, California, 
+August-October '99 Mixed by Randy Staub Assisted by Stephen P McLaughlin, James Brett Kent Matcke, Darren 
+Grahn, Leff Leffertz and Billy Konkel Digital Edits by Mike Gillies, Darren Grahn Paul DeCarIi and Billy Bowers 
+Additional editing at Plantation Studios, Maui, Hawaii Music Preparation by Michael Price and James Brett with Blake 
+Neely
+Music Copying by Vie Fraser and Blake Neely Orchestrations by Michael Kamen with:
+Bob Elhai, Brad Warnaar, Blake Neely, Geoff Alexander Chris Boardman, Bruce Babcock, Ted Alien Pete Anthony 
+and Jonathan Sacks
+Mastered by George Marino at Sterling Sound
+Album Design by Andie Airfix at Satori Photography by Anton Corbijn Management by Q Prime Inc. Management for 
+Michael Kamen by Robert Urband
+All songs published by Creeping Death Music (ASCAP), except "The Ecstasy of Gold", published by EMI Music 
+Publishing
+
+### "St. Anger" 2003, Nu Metal
+
+1. Frantic
+2. St. Anger
+3. Some Kind of Monsters
+4. Dirty Window
+5. Invisible Kid
+6. My World
+7. Shoot Me Again
+8. Sweet Amber
+9. The Unnamed Feeling
+10. Purify
+11. All Within My Hands
+
+### "St. Anger [EP]" 2003, Nu Metal
+
+
+
+### "Death Magnetic" 2008, Heavy Metal
+
+1. That Was Just Your Life 07:08 
+2. The End Of The Line 07:52 
+3. Broken, Beat & Scarred 06:25 
+4. The Day That Never Comes 07:56
+5. All Nightmare Long 07:57  
+6. Cyanide 06:39 
+7. The Unforgiven III 07:46  
+8. The Judas Kiss 08:00  
+9. Suicide & Redemption (Instrumental) 09:57  
+10. My Apocalypse 
+
+
+
+
+Kirk Hammett : Lead guitars
+James Hetfield : Guitar, vocals
+Robert Trujillo : Bass
+Lars Ulrich : Drums
+
+### "Lulu [w/Lou Reed]" 2011, Metal
+
+Disc 1
+1. Brandenburg Gate
+2. The View
+3. Pumping Blood
+4. Mistress Dread
+5. Iced Honey
+6. Cheat on Me
+ 	 
+Disc 2
+1. Frustration
+2. Little Dog
+3. Dragon
+4. Junior Dad
+
+### "Beyond Magnetic [EP]" 2011, Thrash
+
+1. Hate Train
+2. Just a Bullet Away
+3. Hell and Back
+4. Rebel of Babylon
+
+### "Hardwired... to Self-Destruct" 2016, Heavy Metal
+
+Disc 1
+1.	Hardwired	03:09 
+2.	Atlas, Rise!	06:28 
+3.	Now That We're Dead	06:59 
+4.	Moth into Flame	05:50 
+5.	Dream No More	06:29 
+6.	Halo on Fire	08:15 
+   
+Disc 2
+1.	Confusion	06:43 
+2.	ManUNkind	06:55 
+3.	Here Comes Revenge	07:17 
+4.	Am I Savage?	06:29 
+5.	Murder One	05:45 
+6.	Spit Out the Bone	07:09 
+
 
 ## Отношения с другими группами
 

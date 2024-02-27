@@ -1,8 +1,43 @@
 # Perpetual Fire
 
-Дискография
-"Endless World" 2006, Power Metal
-"Invisible" 2009, Power Metal
+
+
+## Дискография
+
+### "Endless World" 2006, Power Metal
+
+1. Medusa's Secret	 
+2. Superstitions	 
+3. Shadow Call	 
+4. Maybe	 
+5. Leave Me Alone	 
+6. Hurricane	 
+7. The End of a Dream	 
+8. Blind Soldier	 
+9. Castle of My Soul	 
+10. The Calm Before the Storm	 
+11. Prelude	 
+12. Endless World
+
+### "Invisible" 2009, Power Metal
+
+1. Invisible	 
+2. Kissing Shadow	 
+3. April's Blood	 
+4. Walking On Your Fire	 
+5. In The Cage	 
+6. Lost Forever	 
+7. Winter's Night	 
+8. Velvet Rope	 
+9. Eternity	 
+10. My Ship Is Burning	 
+11. Secrets	 
+12. Time Machine	 
+13. Who We Are	 
+14. Say Goodbye	 
+15. Cold Rain	 
+16. Alien
+
 
 ## Отношения с другими группами
 

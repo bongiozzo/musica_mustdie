@@ -1,8 +1,29 @@
 # Ars Manifestia
 
-Дискография
-"The Enchanting Dark's Arrival" 2007, Black Metal
-"The Red Behind" 2009, Black Metal
+
+
+## Дискография
+
+### "The Enchanting Dark's Arrival" 2007, Black Metal
+
+1. The Enchanting Dark's Arrival
+2. Hellish Heaven
+3. The Domain of the Moon
+4. From the Trascendental Starry Sky
+5. A Just Sensation
+6. The White Light's Fall
+7. North's Desolation
+
+### "The Red Behind" 2009, Black Metal
+
+1. Isolation
+2. The Way
+3. End Now
+4. Diversity
+5. Home	 
+6. In Raim
+7. Ogni Cosa Scompare
+
 
 ## Отношения с другими группами
 

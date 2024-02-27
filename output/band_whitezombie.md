@@ -1,13 +1,170 @@
 # White Zombie
 
-Дискография
-"Soul-Crusher" 1987, Alternative
-"Make Them Die Slowly" 1989, Alternative
-"La Sexorcisto: Devil Music Vol.1" 1992, Alternative
-"Astro-Creep: 2000" 1995, Alternative
-"Supersexy Swingin' Sounds" 1996, Alternative
-"Hellbilly DeLuxe" 1998, Alternative
-"American Made Music To Strip By" 1999, Alternative
+
+
+## Дискография
+
+### "Soul-Crusher" 1987, Alternative
+
+1. Ratmouth (3:42) 
+2. Shack of Hate (2:57) 
+3. Drowning the Collosus (4:56) 
+4. Crow III (3:52) 
+5. Die, Zombie, Die (4:08) 
+6. Skin (3:34) 
+7. Truck on Fire (4:10) 
+8. Future Shock (3:09) 
+9. Scum-Kill (3:46) 
+10.Diamond Ass (3:39)
+
+Vocals: Rob Dirt Straker 
+Guitar: Tom Five 
+Bass: Sean Yseult 
+Drums: Ivan DePrume 
+
+Label: Silent Explosion 
+Released:1987 
+Re-released by Caroline Records, 1988
+
+### "Make Them Die Slowly" 1989, Alternative
+
+1. Demonspeed
+2. Disaster Blaster
+3. Murderworld
+4. Revenge
+5. Acid Flesh
+6. Power Hungry
+7. Godslaver
+
+Rob Zombie
+Ivan De Prume
+Sean Yseult
+John Ricci
+
+(p)&(c) 1989 CAROLINE Records
+
+### "La Sexorcisto: Devil Music Vol.1" 1992, Alternative
+
+1. Welcome To Planet Motherfucker / Psychoholic Slag
+2. Knuckle Duster (Radio 1-A)
+3. Thunder Kiss '65
+4. Black Sunshine
+5. Soul - Crusher
+6. Cosmic Monsters Inc.
+7. Spiderbaby (Yeah-Yeah-Yeah)
+8. I Am Legend
+9. Knuckle Duster (Radio 2-B)
+10.Thrust !
+11.Starface
+12.One Big Crunch
+
+(P)c 1992
+
+### "Astro-Creep: 2000" 1995, Alternative
+
+1. Electric Head Pt.1 (The Agony)
+2. Super-Charger Heaven
+3. Real Solution #9
+4. Creature Of The Wheel
+5. Electric Head Pt.2 (The Ecstasy)
+6. Grease Paint & Monkey Brains
+7. I, Zombie
+8. More Human Than Human
+9. El Phantasmo And The Chicken-Run Blast-O-Rama
+10. Blur The Technicolor
+11. Blood, Milk & Sky
+
+ Rob Zombie - Vocals
+ J. - Guitars
+ Sean Yseut - Bass
+ John Tempesta - Drums
+
+All Songs Written By WHITE ZOMBIE
+Produced By Terry Date & WHITE ZOMBIE
+Recorded & Mixed By Terry Date At Larrabee Sound
+
+(p)&(c) 1995 GEFFEN Records
+
+### "Supersexy Swingin' Sounds" 1996, Alternative
+
+1. Electric Head Pt.2 (Sexational After Dark Mix)
+2. More Human Than Human (Meet Bambi In The King's Harem Mix)
+3. I, Zombie (Europe In The Raw Mix) З
+4. Grease Paint And Monkey Brains (Sin Centers Of Suburbia Mix) ЗЗ
+5. Blur The Technicolor (Poker From Stud To Strip Mix) ЗЗЗ
+6. Super-Charger Heaven (Adults Only Mix) З
+7. El Phantasmo And The Chicken-Run Blast-O-Rama (Wine, Women And Song Mix)
+8. Blood, Milk And Sky (Miss September Mix)
+9. Real Solution #9 (Mambo Mania Mix)
+10. Electric Head Pt.1 (Satan In High Heels Mix)
+[11]. I'm Your Boogie Man (Sex On The Rocks Mix) ЗЗ
+
+[11] - Ha cтoрoне B
+
+All mixes by Charlie Clouser, except 
+З remixed by John Fryer
+ЗЗ remixed by THE DUST BROTHERS
+ЗЗЗ remixed by Mike Wilson
++ remixed by THE DAMAGE TWINS
+Originally produced by Terry Date and WHITE ZOMBIE.
+Originally recorded by Terry Date and Ulrich Wild.
+Mastered by Stephen Marcussen at Precision  Mastering, Los Angeles, CA.
+
+Rob Zombie - Vocals
+J - Guitar
+Sean Yseult - Bass
+John Tempesta - Drums
+
+(p)c 1996 GEFFEN Records
+
+### "Hellbilly DeLuxe" 1998, Alternative
+
+1. Call Of The Zombie (:30) 
+2. Superbeast (3:40) 
+3. Dragula (3:42) 
+4. Living Dead Girl (3:21) 
+5. Perversion 99 (1:43) 
+6. Demonoid Phenomenon (4:11) 
+7. Spookshow Baby (3:38) 
+8. How To Make A Monster (1:38) 
+9. Meet The Creeper (3:13) 
+10.The Ballad Of Resurrection Joe And Rosa Whore (3:56) 
+11.What Lurks On Channel X? (2:29) 
+12.Return Of The Phantom Stranger (4:31) 
+13.The Beginning Of The End (1:52) 
+
+Vocals - Rob Zombie 
+Guitar - Riggs 
+Bass - Blasko 
+Drums - John Tempesta 
+
+### "American Made Music To Strip By" 1999, Alternative
+
+1. Dragula (Si Non Oscillas, Noll Tintinnnare Mix) (4:37) 
+2. Superbeast (Porno Holocaust Mix) (3:58) 
+3. How To Make A Monster (Kitty's Purrformance Mix) (4:02) 
+4. Living Dead Girl (Subliminal Seduction Mix) (4:09) 
+5. Spookshow Baby (Black Leather Catsuit Mix) (4:35) 
+6. Demonoid Phenomenon (Sin Lives Mix) (4:36) 
+7. Ballad Of Resurrection Joe and Rosa Whore (Ilsa She-Wolf Of Hollywood Mix)(5:38) 
+8. What Lurks On Channel X? (XXX Mix) (4:07) 
+9. Meet The Creeper (Pink Pussy Mix) (4:47) 
+10.Return Of The Phantom Stranger (Tuesday Night At The Chop Shop Mix) (3:32) 
+11.Superbeast (Girl On A Motorcycle Mix) (3:49) 
+12.Meet The Creeper (Brute Man and Wonder Girl Mix) (3:45) 
+
+Tracks 1, 4, & 11 Remixed By Charlie Clouser 
+Track 2 Remixed by Damage Twins
+Track 3 Remixed by God Live Under Water
+Track 5 Remixed by Rammstein
+Track 6 Remixed by Poly 915
+Track 7 Remixed by Phillip Steir
+Track 8 Remixed by Spacetruckers
+Track 9 Remixed by Steve Duda
+Track 10 Remixed by Chris Vrenna
+Track 12 Remixed by DJ Lethal
+
+
 
 ## Отношения с другими группами
 

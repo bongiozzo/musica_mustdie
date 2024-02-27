@@ -1,13 +1,86 @@
 # Aeba
 
-Дискография
-"The Rising [demo tape]" 1995, Black Metal
-"Im Schattenreich... [demo tape]" 1997, Black Metal
-"Im Schattenreich..." 1998, Black Metal
-"The Rising" 1999, Black Metal
-"Flammenmanifest" 1999, Black Metal
-"Rebellion - Edens Asche" 2001, Black Metal
-"Shemhamforash - Des Hasses Antlitz" 2004, Black Metal
+Apokalyptic Black Metal from Germany
+
+## Дискография
+
+### "The Rising [demo tape]" 1995, Black Metal
+
+1. The Rising of Astaroth, Eurydome, Bael, Amducias (Intro)
+2. Into the Infernal Dark Abyss
+3. Inimicissimus (1995)
+4. In Sorrow [instrumental]
+5. Vom Schwarzen Blut
+6. The Rising
+7. Last Rites (Outro)
+
+### "Im Schattenreich... [demo tape]" 1997, Black Metal
+
+1. Rising Black Dominion
+2. Gottesmord
+3. Dragonstorm
+4. Ewigkeit - Gedanken Einer Misanthropischen Seele
+5. Revenge - The Strength Beyond the Light
+6. Superiority Is the Gift of Hate
+7. Zerfall
+
+### "Im Schattenreich..." 1998, Black Metal
+
+1. Rising Black Dominion
+2. Gottesmord
+3. Dragonstorm
+4. Ewigkeit - Gedanken Einer Misanthropischen Seele
+5. Revenge - The Strength Beyond the Light
+6. Superiority Is the Gift of Hate
+7. Zerfall
+
+### "The Rising" 1999, Black Metal
+
+1. The Rising of Astaroth, Eurydome, Bael, Amducias (Intro)
+2. Into the Infernal Dark Abyss
+3. Inimicissimus (1995)
+4. In Sorrow [instrumental]
+5. Vom Schwarzen Blut
+6. The Rising
+7. Last Rites (Outro)
+
+### "Flammenmanifest" 1999, Black Metal
+
+1. Until the Darkness... (Intro)
+2. Seelenfrost
+3. Winds of the Dusk
+4. Shadows Over Gods Creation
+5. TodeshaЯ (of War and Darkness)
+6. Inimicissimus
+7. The Dark Manifestion
+8. ...Never Ends (Outro)
+
+### "Rebellion - Edens Asche" 2001, Black Metal
+
+1. Majestic Veil of Darkness (Intro)
+2. Sacred Demon Angel
+3. Once You Summoned Me
+4. ...Between Wrath and Anguish
+5. Darkness - Embrace My Soul
+6. Dominion of Terror
+7. Flammenherz
+8. Spiritual Evolution
+9. Rebellion - Des Zornes Banner
+10. Kristalltrдnen (Outro)
+
+### "Shemhamforash - Des Hasses Antlitz" 2004, Black Metal
+
+1. Intro
+2. Mit Zorn in Meinem Herzen
+3. Where No Light Is
+4. Angel of Genocide
+5. As Wolf Among Sheep
+6. The Abyss Between
+7. Storm of Vengeance
+8. Shemhamforash - Zorn Der Flammen
+9. In The Dark Valley
+10. Hate Is Not Enough
+
 
 ## Отношения с другими группами
 

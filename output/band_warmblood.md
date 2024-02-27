@@ -1,8 +1,33 @@
 # Warmblood
 
-Дискография
-"Necrocosmos Destination" 2008, Death Metal
-"Timor Mortis" 2010, Death Metal
+
+
+## Дискография
+
+### "Necrocosmos Destination" 2008, Death Metal
+
+1. Necrocosmos Destination  06:05 
+2. Insane  02:52   
+3. The Fear Theory  04:06 
+4. Twisted Death Art  05:00  
+5. Just Another Day  05:22  
+6. Apocalypsis Nova  01:54 
+7. Black Shade  06:12    
+8. Vatican Delirio  05:02 
+
+### "Timor Mortis" 2010, Death Metal
+
+1. Intro  01:09 
+2. The Ghoulish Doctor  04:33   
+3. Living Dead Superstition  03:23    
+4. Sacred, Puritan Scenario  03:17 
+5. Sea Of Darkness  04:07
+6. Lost In The Beyond  05:28 
+7. Revenge From A Comatose State  05:01  
+8. Timor Mortis  02:58   
+9. Underwater Zombie  03:48   
+10. Among The Living Dead  05:40 
+
 
 ## Отношения с другими группами
 

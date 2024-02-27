@@ -1,6 +1,9 @@
 # Black Bleeding
 
-Дискография
+brutal death metal from Belgium
+
+## Дискография
+
 
 ## Отношения с другими группами
 

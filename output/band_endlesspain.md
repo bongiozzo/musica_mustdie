@@ -1,9 +1,46 @@
 # Endless Pain
 
-Дискография
-"The cruel way of live [live-CD]" 2002, Thrash
-"Born in Violence" 2005, Thrash
-"De-Generation War" 2008, Thrash
+
+
+## Дискография
+
+### "The cruel way of live [live-CD]" 2002, Thrash
+
+1. Nightmare 05:14  
+2. Don't touch the child 04:42  
+3. I hate you (Verbal Abuse cover, slayer version) 02:58  
+4. Bloody war 05:56  
+5. Flesh fair 05:44  
+6. Paranoid (Black sabbath cover) 03:39  
+7. Church in flames 03:40  
+8. Total desaster 06:20  
+9. Angel of apocalypse 06:06 
+
+### "Born in Violence" 2005, Thrash
+
+1. Nuclear Storm   
+2. Psychopathic   
+3. Buried Alive   
+4. 'Nam' 67   
+5. Browning Automatic Rifle   
+6. Sentenced By Hate   
+7. The 3rd Antichrist   
+8. Angel Of Apocalypse   
+9. Holy Beer 
+
+### "De-Generation War" 2008, Thrash
+
+1. Poison Into the Blood 03:44  
+2. Sindon 02:42  
+3. Mark the Innocent 03:04  
+4. Lord of Nothing 03:23  
+5. Silent Sickness 05:02  
+6. Religion Illusion 02:25  
+7. Cold Like Death 06:16  
+8. Lost of Control 03:18  
+9. Alone 02:58  
+10. Smell of Death 02:40 
+
 
 ## Отношения с другими группами
 

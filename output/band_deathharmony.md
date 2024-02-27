@@ -1,6 +1,9 @@
 # Death Harmony
 
-Дискография
+Gothic-metal from Kazakhstan
+
+## Дискография
+
 
 ## Отношения с другими группами
 

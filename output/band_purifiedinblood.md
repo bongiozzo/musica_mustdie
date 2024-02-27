@@ -1,10 +1,32 @@
 # Purified In Blood
 
-Дискография
-"Last Leaves Of A Poisoned Tree (EP)" 2004, Metalcore
-"Reaper Of Souls" 2006, Metalcore
-"Under Black Skies" 2010, Metalcore
-"Flight Of A Dying Sun" 2010, Metalcore
+
+
+## Дискография
+
+### "Last Leaves Of A Poisoned Tree (EP)" 2004, Metalcore
+
+
+
+### "Reaper Of Souls" 2006, Metalcore
+
+
+
+### "Under Black Skies" 2010, Metalcore
+
+
+
+### "Flight Of A Dying Sun" 2010, Metalcore
+
+01. The Absolute (1:58)
+02. Storm of Blood (4:06)
+03. Mot Grav (3:09)
+04. Iron Hands (4:06)
+05. Mind is Fire (2:48)
+06. Escape to Solace (4:59)
+07. Void (4:06)
+08. Flight of A Dying Sun (8:58)
+
 
 ## Отношения с другими группами
 

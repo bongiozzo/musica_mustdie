@@ -1,7 +1,13 @@
 # Pulverized
 
-Дискография
-"Spheres Of Depraved Philosophy" 2003, Death Metal
+
+
+## Дискография
+
+### "Spheres Of Depraved Philosophy" 2003, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

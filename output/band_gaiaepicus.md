@@ -1,10 +1,113 @@
 # Gaia Epicus
 
-Дискография
-"Satrap" 2003, Power Metal
-"Symphony of Glory" 2005, Power Metal
-"Victory" 2007, Power Metal
-"Damnation" 2008, Power Metal
+prog-power metal (ex-TNT)
+
+## Дискография
+
+### "Satrap" 2003, Power Metal
+
+1. Keepers of Time (6:30)
+2. Heavens Gate (4:45)
+3. Fire & Ice (5:20)
+4. Inside the Storm (3:56)
+5. Die for your King (3:53)
+6. Star Wars (9:28)
+7. Innovation (6:12)
+8. Cyber Future (6:06)
+9. Freedom Calls (8:17)
+10. Heavy Metal Heart (4:37)
+11. Watch The sky (8:46)
+
+
+Band:
+
+Guitar & Vocals :
+Thomas C.Hansen
+Guitar :
+Joakim Kjelstad
+Guest Musicians :
+
+Bass :
+Morty Black (TNT)
+Drums :
+Alessandro G. Elide (Manifest)
+Keyboard :
+Dj Dritskummel
+
+### "Symphony of Glory" 2005, Power Metal
+
+01 - Welcome (Intro)
+02 - Time and Space
+03 - Miracles
+04 - Sieze the Day!
+05 - Hand of Fate
+06 - Wings of Freedom
+07 - Spanish Eyes
+08 - No Release?
+09 - Chamber of Secrets
+10 - Be Thy Cross my Victory
+11 - Symphony of Glory
+
+Produced by Thomas C. Hansen
+Recorded and mixed at Top Room Studios, Norway 
+Engineered by Bшrge Finstad & Rudi Moustafa
+Mixed by Bшrge Finstad & Thomas C. Hansen
+Mastered by Markus Teske at Bazement Musik Studios, Germany
+Artwork by Michael A. Mueller
+Booklet design by Thomas C. Hansen
+Lars Andrи Rшrvik Larsen (Highland Glory) as guest keyboards
+Jan Thore Grefstad (Highland Glory) and Isabell Шversveen as guest vocals on "Be thy Cross my Victory"
+
+### "Victory" 2007, Power Metal
+
+1. New Life (3:54)
+2. Iron Curtain (6:51)
+3. The Sign (5:42)
+4. Revenge Is Sweet (2:52)
+5. In Memory (1:41)
+6. Awaken The Monster (5:11)
+7. Rise Of The Empire (4:01)
+8. When Darkness Falls (1:15)
+9. Fortress Of Solitude (3:46)
+10. Through The Fire (6:51)
+11. Victory (4:29)
+
+### "Damnation" 2008, Power Metal
+
+1. Damnation 08:53 
+2. Masters Of The Sea 03:13 
+3. Firestorm 04:42
+4. The Wizard's Return 02:45  
+5. You Are A Liar! 02:55
+6. Cyborgs From Hell 05:25
+7. The Savior (Will Come) 05:34
+8. A Hero In All 04:37 
+9. Salvation Is Here 05:38 
+
+10. Warrior (Bonus Track)
+
+Line-up:
+Thomas Chr.Hansen : Guitars / Vocals
+Ole Alexander Myrholt : Drums
+
+Guest Musicians:
+Roland Grapow : Guitars
+Dominique Leurquin : Guitars
+Jonas Hцrnqvist : Guitars
+Lasse Jensen : Guitars
+Andreas Olsson : Bass
+Michael Troy : Keyboards
+Fabrizio S Muratori : Keyboards
+Ola Halйn : Vocals
+Cathrine Solhaug Storli : Vocals
+
+All musics & lyrics by Thomas Chr.Hansen
+
+Recorded in Damnation Studios by Thomas Chr Hansen.
+Mixed in dB Recordings Studio by Dali Sternisa
+Cover painting by J.P Fournier ( Edguy, Avantasia, Dragonforce )
+CD Mastered at dB Recordings Studio by Dali Sternisa 
+
 
 ## Отношения с другими группами
 

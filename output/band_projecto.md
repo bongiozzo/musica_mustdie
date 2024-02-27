@@ -1,8 +1,38 @@
 # Projecto
 
-Дискография
-"Projecto" 1998, Power Metal
-"Crown of Ages" 2000, Power Metal
+italian power metal band
+
+## Дискография
+
+### "Projecto" 1998, Power Metal
+
+Death in dreamland 
+Freedom 
+Alone in a mirror 
+Fade away 
+Alchemy 
+Childhood dreams 
+Pantomime 
+Battletime 
+Projecto 
+Doomsday fight 
+Evilness 
+Believe in love 
+
+### "Crown of Ages" 2000, Power Metal
+
+Heart and steel 
+Guardian soldiers 
+Warrior soul 
+Innocent eyes 
+Black sorcerer 
+Thunder of love 
+Fight in the sky 
+The Samain tournament 
+Blood and faith 
+Crown of ages 
+Final alliance 
+
 
 ## Отношения с другими группами
 

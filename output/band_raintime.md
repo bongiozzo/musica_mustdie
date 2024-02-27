@@ -1,8 +1,42 @@
 # Raintime
 
-Дискография
-"Tales From Sadness" 2005, Melodic Death Metal
-"Flies & Lies" 2007, Melodic Death Metal
+
+
+## Дискография
+
+### "Tales From Sadness" 2005, Melodic Death Metal
+
+1. Moot-Lie   
+2. Faithland   
+3. Creation   
+4. The Experiment   
+5. Denied Recollection   
+6. Chains Of Sadness   
+7. Using The Light Forever   
+8. Daily Execution/Paradox Defeat
+
+### "Flies & Lies" 2007, Melodic Death Metal
+
+1. Flies & Lies 05:01  
+2. Rolling Chances 04:38  
+3. ApeIron 04:21  
+4. Rainbringer 04:01  
+5. Finally Me 04:34  
+6. Tears Of Sorrow 03:55  
+7. The Black Well 04:43  
+8. Beat It 03:44  
+9. Another Transition 04:27  
+10. Burning Doll 01:11  
+11. Matrioska 05:47 
+
+
+Claudio Coassin - Vocals
+Matteo Di Bon - Guitars
+Luca Michael Martina - Guitars
+Michele Colussi - Bass
+Enrico Fabris - Drums 
+Andrea Corona - Keyboards
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,52 @@
 # Vipera Aspis
 
-Дискография
-"Безродный Сын" 2003, Black Metal
-"Vobiscum the Universe" 2006, Black Metal
+
+
+## Дискография
+
+### "Безродный Сын" 2003, Black Metal
+
+1. Dreams 13.
+2. Армагеддон
+3. Безродный Сын
+4. ...Иллюзия
+5. Боль
+6. Приход Зимы
+
+В записи приняли участие:
+Philosopher - вокал
+Priestess - ритм и соло гитара, ударные
+Heretic - басс, вокал
+Max Kremer - клавиши
+
+Mysic and lirics by Priestess
+keyboards by Priestess and Max Kremer
+"Dreams 13" by Heretic
+
+© Prodused by Vipera Aspis.
+Recorded in 2003 year in MaXCrown.rec (Moscow)
+
+### "Vobiscum the Universe" 2006, Black Metal
+
+ACT 1 "INFERNO":  
+01. Flowers. 04:31 
+02. The Damned City. 02:37 
+03. The Black Messiah. 03:25 
+04. The Daughters of Inferno. 04:49 
+05. Anathema. 03:30 
+06. The Ball. 04:28 
+ACT 2 "PURGATORY":  
+07. Geometry of Human Dust. 03:43 
+08. Blizzard 02:09 
+09. Dawn. 06:27 
+10. Compassion. 05:28 
+ACT 3 "ELYSIUM":  
+11. The Wormwood Field. 03:57 
+12. Werewolf. 03:54 
+13. Icantation. 03:12 
+ACT 4 "ZERO POINT":  
+14. May Peace Be Unto You. 03:22
+
 
 ## Отношения с другими группами
 

@@ -1,9 +1,29 @@
 # Devilish Impressions
 
-Дискография
-"Plurima Mortis Imago" 2006, Death Metal
-"Diabolicanos - Act III: Armageddon" 2008, Death Metal
-"Simulacra" 2012, Death Metal
+Avantgarde black-death-metal from Poland
+
+## Дискография
+
+### "Plurima Mortis Imago" 2006, Death Metal
+
+Lunarium
+Rebellion Of Will Manifesto
+Visions Of Kingdom To Come...
+Dracula's Mechanised Universe
+Funeral Of God
+Alpha And Omega Spaces
+Crowned To Be Crucified
+Smell Of Death
+SataniChaoSymphony
+
+### "Diabolicanos - Act III: Armageddon" 2008, Death Metal
+
+
+
+### "Simulacra" 2012, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,13 @@
 # GPS
 
-Дискография
-"Window To The Soul" 2006, Metal
+ex-Asia members
+
+## Дискография
+
+### "Window To The Soul" 2006, Metal
+
+
+
 
 ## Отношения с другими группами
 

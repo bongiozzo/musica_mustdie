@@ -1,9 +1,31 @@
 # Temperance
 
-Дискография
-"Temperance" 2014, Gothic
-"Limitless" 2015, Gothic
-"The Earth Embraces Us All" 2016, Gothic
+heavy/gothic metal with female vocal from Italy
+
+## Дискография
+
+### "Temperance" 2014, Gothic
+
+
+
+### "Limitless" 2015, Gothic
+
+
+
+### "The Earth Embraces Us All" 2016, Gothic
+
+1. A Thousand Places  
+2. At the Edge of Space 
+3. Unspoken Words 
+4. Empty Lines 
+5. Maschere 
+6. Haze 
+7. Fragments of Life 
+8. Revolution 
+9. Advice from a Caterpillar 
+10. Change the Rhyme 
+11. The Restless Ride
+
 
 ## Отношения с другими группами
 

@@ -1,11 +1,44 @@
 # Dope
 
-Дискография
-"Felons And Revolutionaries" 1999, Nu Metal
-"Life" 2001, Nu Metal
-"Group Therapy" 2003, Nu Metal
-"American Apathy" 2005, Nu Metal
-"No Regrets" 2009, Nu Metal
+
+
+## Дискография
+
+### "Felons And Revolutionaries" 1999, Nu Metal
+
+
+
+### "Life" 2001, Nu Metal
+
+
+
+### "Group Therapy" 2003, Nu Metal
+
+
+
+### "American Apathy" 2005, Nu Metal
+
+
+
+### "No Regrets" 2009, Nu Metal
+
+01. Flat Line
+02. 6 6 Sick
+03. Addiction (featuring Zakk Wylde)
+04. No Regrets
+05. My Funeral
+06. We Are
+07. Dirty World
+08. Interlude
+09. Violence
+10. Best for Me
+11. Bloodless
+12. Scorn
+13. Rebel Yell (Billy Idol cover)
+14. I Don't Give a...
+15. Die, Boom, Bang, Burn, Fuck
+16. Nothing for Me Here
+
 
 ## Отношения с другими группами
 

@@ -1,9 +1,44 @@
 # System Shock
 
-Дискография
-"Arctic Inside" 2004, Melodic Death Metal
-"Escape" 2006, Melodic Death Metal
-"Urban Rage" 2008, Melodic Death Metal
+
+
+## Дискография
+
+### "Arctic Inside" 2004, Melodic Death Metal
+
+1.	 Devilwish
+2.	 Orbital
+3.	 Fading Star
+4.	 Moonlight
+5.	 Cult of Orion
+6.	 Safe Inside
+7.	 Bleed It Off
+8.	 Arctic Circle
+
+### "Escape" 2006, Melodic Death Metal
+
+1.	 Getting What We Asked For
+2.	 Escape
+3.	 Engine Failure
+4.	 No Life, No Home
+5.	 Broken in Two
+6.	 A Note and a Gun
+7.	 Bleed
+8.	 Mountains of Madness
+9.	 Salvation in Stone
+
+### "Urban Rage" 2008, Melodic Death Metal
+
+1.	 Tyrannicide (Article 114)	04:16	 
+2.	 Evil Monkey	04:23	 
+3.	 The Wisest of Designs	04:41	 
+4.	 Marathon	06:30	 
+5.	 The Less You Speak	04:50	 
+6.	 Way Out	05:11	 
+7.	 Where I Was	04:08	 
+8.	 Campaign 275	03:46	 
+9.	 Tiny Wave	08:49
+
 
 ## Отношения с другими группами
 

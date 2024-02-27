@@ -1,9 +1,74 @@
 # Nosferatos
 
-Дискография
-"Dances Of The Dead (demo)" 1995, Death Metal
-"Ventum Inferum de Tenebrae..." 1998, Death Metal
-"Pandemonium" 2001, Death Metal
+Unholy mystic death
+
+## Дискография
+
+### "Dances Of The Dead (demo)" 1995, Death Metal
+
+
+
+### "Ventum Inferum de Tenebrae..." 1998, Death Metal
+
+1. Wandering In The Darkness (intro)
+2. Dead In The Cellar
+3. The Immortals
+4. Souls Of Deceased
+5. Zombie Revenge
+6. The Antichrist Time
+7. Evil Spirits Refuge
+8. Dances Of The Dead
+9. Outcast By Hell
+10. Rebirth (outro)
+
+Recorded and mixed at T.H. Studio, somewhere between 1997 and 1998
+Mixed, engineered and produced by Thomas
+All songs by Nosferatos, except "The Immortals" by Unleashed
+All lyrics by Alexey "Lucifer" Kondrin
+
+Nosferatos is:
+
+Alexey "Lucifer" Kondrin - Infernal voices
+Denis "Boroda" Kopkov - Barbarian bass
+Ashot "Acheron" Sarkisyan - Six-strings anger
+Roman "Thomas" Osnovin - Strings magic and electric brain
+Andrey "Hich" Achin'ko - Drums'n'roll
+
+### "Pandemonium" 2001, Death Metal
+
+1. Pandemonium
+2. War Gods
+3. The Scaffold
+4. Autodafe (1478)
+5. March Of The Scottish Vampires
+6. Bloody Woods
+7. Stench Of Temples
+8. Advent Of Gloom/The Triumph Of Darkness
+9. Anomalous Abominations
+10. Outro
+
+Recorded at T.H. Studio, during 1998 - 1999, Tallin
+and at Undemend Studio, October 2000 - January 2001, Moscow
+Produced by Nosferatos
+Arranged, engineered & mixed by Acheron
+
+All lyrics by Alexey "Lucifer" Kondrin
+All music by Ashot "Acheron" Sarkisyan, 
+except track 7 by Denis "Charon" Kopkov & Ashot "Acheron" Sarkisyan
+
+Nosferatos is:
+
+Alexey "Lucifer" Kondrin - Vocals
+Ashot "Acheron" Sarkisyan - Guitars & bass (on track 9)
+Roman "Thomas" Osnovin - Guitars & bass (on trax 3, 7 & 8)
+
+Guest musicians:
+
+Arcady Orehov - Bass (on trax 1, 2, 4 & 6)
+Pavel Molchanov - Additional guitar solos (on trax 2 & 4)
+
+Drums resampled & engineered by Ashot Sarkisyan
+
 
 ## Отношения с другими группами
 

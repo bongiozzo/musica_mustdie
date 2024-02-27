@@ -1,7 +1,24 @@
 # Moon Of Sorrow
 
-Дискография
-"A New Dawn" 1995, Doom
+
+
+## Дискография
+
+### "A New Dawn" 1995, Doom
+
+1. Back To Paradise
+2. Experimental Pigs
+3. Wild As The Wind
+4. Beyond Violets
+5. Shadowland
+6. Searching
+7. Trust
+
+All songs written and produced by P. Harreman
+except 3 written by M. Ran/P. Harreman
+
+(c)1995 Massacre Records
+
 
 ## Отношения с другими группами
 

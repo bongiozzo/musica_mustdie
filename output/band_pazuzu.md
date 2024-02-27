@@ -1,8 +1,62 @@
 # Pazuzu
 
-Дискография
-"And All - Was Silent" 1994, Folk
-"Awaken the Dragon" 1996, Folk
+
+
+## Дискография
+
+### "And All - Was Silent" 1994, Folk
+
+A Black Mass Of Unholy Ceremonial Necrospirituals
+1.  Prologue
+2.  And All  - Was Silent
+3.  Incantation Of The Firegod
+4.  La Baronesse Et Le Demon
+5.  Baptism Of Infant Flesh
+6.  The Urilia Abomination
+7.  The Churning Seas Of Absu
+8.  Beneath The Bowels Of The Earth
+9.  Ask My Dying Soul
+10.The Crusades
+11.Der Mond Ward Der Erde Neue Sonne
+12.Invocation Of The Ninib Gate
+13.Forgotten' Scrolls
+14.Epilogue
+
+Recorded By Szpineah.
+Mixed By Szpineah & Trifixion Of The Horned God At Beowulf Studios, Vienna.
+
+Pazuzu - Vocals
+Silenius - Vocals, Keyboards, Effects
+Protector Of Endless Sleeps - Vocals, Keyboards, Effects
+Trifixion Of The Horned God - Vocals
+Empress Lilith - Vocals
+Minh Ninjao - Vocals
+
+(P)&c 1996 HEAD NOT FOUND Records
+
+### "Awaken the Dragon" 1996, Folk
+
+1.  Awaken the Dragon - Millennium Two
+2.  The Five Emperors
+3.  Bal of Thieves
+4.  Robaume Des Reves (Baronnette Chap II)
+5.  The Messenger and the Spirittuind
+6.  The King of Vermin
+7.  Verfall
+8.  Until the Sun Returns
+9.  In a Tavern
+10. Pazuzu: Im Mondtchem (Die Tragik Des Todes)
+11. Outro
+12. The First Dominion: Renewal of Ages (bonus track)
+13. Rebellion (bonus track)
+
+Recorded and mixed at Dark Matter Records by Axel B.Rain
+Produced by Martin Schirenc
+Cover artwork by Martin Schirenc
+
+(p)(c) 1996 DARK MATTER Records
+(reissued by HAMMERHEART Records)
+
 
 ## Отношения с другими группами
 

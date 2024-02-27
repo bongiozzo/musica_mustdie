@@ -1,7 +1,22 @@
 # Coprolith
 
-Дискография
-"Cold Grief Relief" 2010, Death Metal
+
+
+## Дискография
+
+### "Cold Grief Relief" 2010, Death Metal
+
+1. Intro - All Life Gone 
+2. Losing It 
+3. Drowned	 
+4. Dead Endless	 
+5. Hate Rapture	 
+6. Flammable Soul	 
+7. Point Zero	 
+8. Dream Within Dream	 
+9. Cold Grief Relief	 
+10. Freezing Moon (Mayhem cover)
+
 
 ## Отношения с другими группами
 

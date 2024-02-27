@@ -1,8 +1,65 @@
 # Eclipse
 
-Дискография
-"The Truth And A Little More" 2001, Hard Rock
-"Second To None" 2004, Hard Rock
+Hard rock
+
+## Дискография
+
+### "The Truth And A Little More" 2001, Hard Rock
+
+1. Midnight train [3:16]
+(Mеrtensson/Henriksson) 
+2. The truth [3:54]
+(Mеrtensson) 
+3. The only one [3:50]
+(Berlin/Mеrtensson) 
+4. Message of love [5:41]
+(Mеrtensson) 
+5. I believe in you [3:57]
+(Mеrtensson/Henriksson) 
+6. I thought I had it all [3:55]
+(Mеrtensson) 
+7. The way I feel [5:58]
+(Mеrtensson/Berlin) 
+8. Songs of yesterday [5:34]
+(Mеrtensson/Henriksson) 
+9. A little more [3:17]
+(Mеrtensson) 
+10. Too far [5:32]
+(Mеrtensson/Henriksson) 
+11. How many times [3:38]
+(Mеrtensson) 
+12. I won't hide [1:36]
+(Mеrtensson/Henriksson)
+
+### "Second To None" 2004, Hard Rock
+
+1. Always standing [4:26]
+(Mеrtensson/Henriksson)
+2. All I do [3:08]
+(Mеrtensson)
+3. Second to none [3:57]
+(Mеrtensson/Henriksson) 
+4. Streets of gold [3:53]
+(Mеrtensson) 
+5. I'll ask for you [3:20]
+(Mеrtensson/Henriksson) 
+6. Nothing between us [3:30]
+(Mеrtensson/Henriksson) 
+7. Road to forever [3:31]
+(Mеrtensson) 
+8. Body and soul [3:41]
+(Mеrtensson/Henriksson) 
+9. Light of day [3:44]
+(Mеrtensson/Henriksson) 
+10. Season of life [4:28]
+(Mеrtensson/Henriksson) 
+11. Better world [2:44]
+(Mеrtensson) 
+-------------------------------
+12. Masterpiece girl 
+(Japan bonus track) [4:07]
+(Mеrtensson)
+
 
 ## Отношения с другими группами
 

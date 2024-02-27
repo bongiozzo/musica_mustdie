@@ -1,8 +1,38 @@
 # Yatrogeny
 
-Дискография
-"Taedium Vitae" 2004, Melodic Death Metal
-"Cathars" 2007, Melodic Death Metal
+
+
+## Дискография
+
+### "Taedium Vitae" 2004, Melodic Death Metal
+
+1. Reality Mirages
+2. Temple of Illusions
+3. Ethereal Hope
+4. The Immortal After of Time To Eternity	 
+5. Misopsiquia
+6. The Cycle of the Irony and the False Destiny	 
+7. Battle Within
+8. Misanthropy
+9. Eternal Spiral 
+10. Taedium Vitae
+11. Sakia Muni	 
+12. The Steppen Wolf
+13. The World How Will and Representation
+
+### "Cathars" 2007, Melodic Death Metal
+
+1. Cathars
+2. Manicheist		 
+3. Demiurg	 
+4. Schizoid
+5. Running after the wind
+6. Hypatria	 
+7. Consolamentum	 
+8. Nepente
+9. Heresy	 
+10. Gnostic
+
 
 ## Отношения с другими группами
 

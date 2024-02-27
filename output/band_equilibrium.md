@@ -1,13 +1,149 @@
 # Equilibrium
 
-Дискография
-"Turis Fratyr" 2005, Folk
-"Sagas" 2008, Folk
-"Rekreatur" 2010, Black Metal
-"Waldschrein (EP)" 2013, Black Metal
-"Karawane (single)" 2014, Black Metal
-"Erdentempel" 2014, Black Metal
-"Armageddon" 2016, Folk
+
+
+## Дискография
+
+### "Turis Fratyr" 2005, Folk
+
+1. Turis Fratyr 00:34  
+2. Wingthors Hammer 06:41  
+3. Unter der Eiche 04:50 
+4. Der Sturm 03:45 
+5. Widars Hallen 08:16 
+6. Met 02:23 
+7. Heimdalls Ruf 01:51  
+8. Die Prophezeiung 05:18 
+9. Nordheim 05:11 
+10. Im Fackelschein 01:58  
+11. Tote Heldensagen 09:10 
+12. Wald der Freiheit 03:00  
+13. Shingo Murata 05:29 
+
+Track 13 is a bonus track on the digipak version of the cd.
+
+Bonus tracks for Japan:
+13. Japanischer Kampfwikinger (Shingo Murata) (5.29)
+14. Nach dem Winter (From "Demo 2003") (4:46)
+
+### "Sagas" 2008, Folk
+
+01. Prolog auf Erden
+02. Wurzelbert
+03. Blut im Auge
+04. Unbesiegt
+05. Verrat
+06. Snuffel
+07. Heimwarts
+08. Heiderauche (instrumental)
+09. Die Weide und der Flu?
+10. Des Sangers Fluch
+11. Ruf in den Wind
+12. Dammerung
+13. Mana (instrumental)
+
+Helge Stang - Vocals
+ReniїЅ Berthiaume - Guitar
+Andreas Volkl- Guitar
+Sandra Volkl - Bass
+Manu - Drums
+
+Recorded at Helion Studios, Munich, 2007 - 2008
+Produced by Rene Berthiaume, Seref Badir, Alex
+Raes, Christoph Klatr und Jay
+Cover artwork: Benjamin Konig & Helge Stang
+
+### "Rekreatur" 2010, Black Metal
+
+1. In Heiligen Hallen   
+2. Der Ewige Sieg   
+3. Verbrannte Erde   
+4. Die Affeninsel   
+5. Der Wassermann   
+6. Aus Ferner Zeit   
+7. Fahrtwind   
+8. Wenn Erdreich Bricht   
+9. Kurzes Epos 
+
+
+### "Waldschrein (EP)" 2013, Black Metal
+
+1. Waldschrein  05:20     
+2. Der Sturm (2013)  03:35     
+3. Zwergenhammer  05:41     
+4. Himmelsrand  02:33      
+5. Waldschrein (Acoustic version)  02:53 
+
+
+Sandra van Eldik - Bass  
+Andreas Vцlkl - Guitars  
+Renй Berthiaume - Guitars, Keyboards  
+Hati - Drums  
+Robse - Vocals  
+
+
+Track 1 is a new song.
+Track 2 is an re-recorded extended version of the song with the same title off Turis Fratyr album.
+Track 3 is an unreleased old song.
+Track 4 is a cover of the opening theme from Bethesda's RPG videogame Skyrim.
+Track 5 is an acoustic version of the new track. 
+
+### "Karawane (single)" 2014, Black Metal
+
+1. Karawane  04:52 
+
+### "Erdentempel" 2014, Black Metal
+
+1. Ankunft  00:51    
+2. Was lange wahrt  05:10   
+3. Waldschrein  05:20  
+4. Karawane  04:52  
+5. Uns'rer Flцten Klang  04:21 
+6. Freiflug  04:58  
+7. Heavy Chill  06:06    
+8. Wirtshaus Gaudi  02:41  
+9. Stein meiner Ahnen  05:42    
+10. Wellengang  05:11   
+11. Apokalypse  05:14    
+12. The Unknown Episode  05:46 
+
+
+The album was recorded, produced and mixed at Helion Studios and mastered at Finnvox Studios.
+
+2 CD digipack comes with a second CD containing the instrumental version of the album and one bonus track on the first CD:
+13. Aufbruch (Instrumental) (11:16)
+
+### "Armageddon" 2016, Folk
+
+Disc 1
+1. Sehnsucht  
+2. Erwachen 
+3. Katharsis 
+4. Heimat 
+5. Born to Be Epic 
+6. Zum Horizont 
+7. Rise Again 
+8. Prey 
+9. Helden 
+10. Koyaaniskatsi 
+11. Eternal Destination 
+
+Disc 2
+1. Sehnsucht  02:58   instrumental  
+2. Erwachen  04:35   instrumental  
+3. Katharsis   05:12   instrumental  
+4. Heimat  04:24   instrumental  
+5. Born to Be Epic 04:04   instrumental  
+6. Zum Horizont  04:13   instrumental  
+7. Rise Again  03:52   instrumental  
+8. Prey  04:53   instrumental  
+9. Helden 04:36   instrumental  
+10. Koyaaniskatsi 04:09   instrumental  
+11. Eternal Destination  07:23   instrumental  
+
+Recorded and mixed in 2015 - 2016.
+Mastered at Maor Appelbaum Mastering in Califoria, United States.
+
 
 ## Отношения с другими группами
 

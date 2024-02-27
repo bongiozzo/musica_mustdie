@@ -1,7 +1,13 @@
 # Manic Movement
 
-Дискография
-"Thousand Sufferings" 2000, Death Metal
+melodic death-metal
+
+## Дискография
+
+### "Thousand Sufferings" 2000, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

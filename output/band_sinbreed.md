@@ -1,9 +1,54 @@
 # Sinbreed
 
-Дискография
-"When Worlds Collide" 2010, Power Metal
-"Shadows" 2014, Power Metal
-"Master Creator" 2016, Power Metal
+
+
+## Дискография
+
+### "When Worlds Collide" 2010, Power Metal
+
+01. Newborn Tomorrow
+02. Book Of Life
+03. When Worlds Collide
+04. Dust To Dust
+05. Infinity's Call
+06. Through The Dark
+07. Enemy Lines
+08. Room 101
+09. Arise
+10. Salvation
+
+### "Shadows" 2014, Power Metal
+
+01. Bleed  05:54   
+02. Shadows  04:13  
+03. Call to Arms  03:40   
+04. Reborn  05:14   
+05. Leaving the Road  05:06   
+06. Far Too Long  04:46   
+07. Black Death  05:51   
+08. Standing Tall  04:33  
+09. London Moon  03:49   
+10. Broken Wings  07:00 
+
+
+
+
+### "Master Creator" 2016, Power Metal
+
+1. Creation of Reality  05:03    
+2. Across the Great Divides  04:36   
+3. Behind a Mask  04:50   
+4. Moonlit Night  04:56    
+5. Master Creator  04:04    
+6. Last Survivor  04:06    
+7. At the Gate  04:33    
+8. The Riddle  04:52  
+9. The Voice  04:35    
+10. On the Run  03:25  
+
+Mixed and mastered at Bazement Studios.
+
+
 
 ## Отношения с другими группами
 

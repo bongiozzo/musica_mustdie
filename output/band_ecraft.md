@@ -1,8 +1,17 @@
 # E-Craft
 
-Дискография
-"Electrocution" 1999, Gothic
-"Dos Unit" 2001, Gothic
+
+
+## Дискография
+
+### "Electrocution" 1999, Gothic
+
+
+
+### "Dos Unit" 2001, Gothic
+
+
+
 
 ## Отношения с другими группами
 

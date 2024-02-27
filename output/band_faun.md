@@ -1,15 +1,45 @@
 # Faun
 
-Дискография
-"Zauberspruche" 2002, Folk
-"Licht" 2003, Folk
-"Renaissance" 2005, Folk
-"Totem" 2007, Folk
-"Faun & The Pagan Folk Festival - Live" 2008, Folk
-"Buch der Balladen" 2009, Folk
-"Eden" 2011, Folk
-"Von den Elben" 2013, Folk
-"Luna" 2014, Folk
+
+
+## Дискография
+
+### "Zauberspruche" 2002, Folk
+
+
+
+### "Licht" 2003, Folk
+
+
+
+### "Renaissance" 2005, Folk
+
+
+
+### "Totem" 2007, Folk
+
+
+
+### "Faun & The Pagan Folk Festival - Live" 2008, Folk
+
+
+
+### "Buch der Balladen" 2009, Folk
+
+
+
+### "Eden" 2011, Folk
+
+
+
+### "Von den Elben" 2013, Folk
+
+
+
+### "Luna" 2014, Folk
+
+
+
 
 ## Отношения с другими группами
 

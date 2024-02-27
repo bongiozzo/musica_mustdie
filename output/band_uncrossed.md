@@ -1,7 +1,36 @@
 # Uncrossed
 
-Дискография
-"DELetio" 2002, Techno Death
+(Siberian Techno-Death Metal)
+
+## Дискография
+
+### "DELetio" 2002, Techno Death
+
+Liquid Air
+Brain Damage
+Cynical Comprehension
+Absurd Philosophy
+Abruption
+Hopeless
+Life The Other Way Round
+Disconnection
+The Evolution Is Completed
+Unknown
+
+
+
+Bass: Alexey Bolotov
+Keyboards: Sergey Astakhov
+Drums: Ilya Kljutchinsky
+Guitar: Michael Medvedev
+Vocal: Alexey Trubacheev
+
+Recorder, mixed and mastered by Alexandr Shubert at “S-Art Studio” in 2001-2002
+
+All Rights Reserved.
+© UncrosseD 1997-2002.
+
+
 
 ## Отношения с другими группами
 

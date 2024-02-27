@@ -1,7 +1,30 @@
 # Driver
 
-Дискография
-"Sons Of Thunder" 2008, Hard Rock
+
+
+## Дискография
+
+### "Sons Of Thunder" 2008, Hard Rock
+
+1. Titans Of Speed
+2. I'm A Warrior
+3. Fly Away
+4. Hearts On Fire
+5. Sons Of Thunder
+6. Never Give Up
+7. Change Of Heart
+8. Dark World
+9. Winds Of March
+10. Only Love Can Save Me Now
+11. Tears That I Cry
+12. I Believe In Love
+
+Rob Rock - vocals ,
+Roy Z - guitars ,
+Reynold "Butch" Carlson - drums ,
+Ed Roth - keyboards ,
+Aaron Samson - bass guitar
+
 
 ## Отношения с другими группами
 

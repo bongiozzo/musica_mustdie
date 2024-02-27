@@ -12,13 +12,13 @@
 Стиль: Electronic
 Год: 1997
 
-Группа: Hocico
-Альбом: "Sangre Hirviente"
+Группа: Atari Teenage Riot
+Альбом: "60 Second Wipe Out"
 Стиль: Electronic
 Год: 1999
 
-Группа: Atari Teenage Riot
-Альбом: "60 Second Wipe Out"
+Группа: Hocico
+Альбом: "Sangre Hirviente"
 Стиль: Electronic
 Год: 1999
 
@@ -47,16 +47,6 @@
 Стиль: Electronic
 Год: 2003
 
-Группа: Subsonic Symphonee
-Альбом: "Extreme Evolution"
-Стиль: Electronic
-Год: 2004
-
-Группа: Peter, Martin
-Альбом: "Enough Of This?!"
-Стиль: Electronic
-Год: 2004
-
 Группа: Alan Parsons
 Альбом: "A Valid Path"
 Стиль: Electronic
@@ -67,23 +57,18 @@
 Стиль: Electronic
 Год: 2004
 
-Группа: Negative Format
-Альбом: "Moving Past The Boundaries"
+Группа: Peter, Martin
+Альбом: "Enough Of This?!"
 Стиль: Electronic
-Год: 2005
+Год: 2004
+
+Группа: Subsonic Symphonee
+Альбом: "Extreme Evolution"
+Стиль: Electronic
+Год: 2004
 
 Группа: 8thsin
 Альбом: "Sinners Inc."
-Стиль: Electronic
-Год: 2005
-
-Группа: Stereo Total
-Альбом: "Do The Bambi"
-Стиль: Electronic
-Год: 2005
-
-Группа: Fusspils 11
-Альбом: "Elektro-Polizei (Alarm fuer Fusspils 11!)"
 Стиль: Electronic
 Год: 2005
 
@@ -97,18 +82,23 @@
 Стиль: Electronic
 Год: 2005
 
-Группа: Sparks
-Альбом: "Hello Young Lovers"
+Группа: Fusspils 11
+Альбом: "Elektro-Polizei (Alarm fuer Fusspils 11!)"
 Стиль: Electronic
-Год: 2006
+Год: 2005
 
-Группа: OSI
-Альбом: "Free"
+Группа: Negative Format
+Альбом: "Moving Past The Boundaries"
 Стиль: Electronic
-Год: 2006
+Год: 2005
 
-Группа: Welle: Erdball
-Альбом: "Chaos Total (CD+DVD)"
+Группа: Stereo Total
+Альбом: "Do The Bambi"
+Стиль: Electronic
+Год: 2005
+
+Группа: Camouflage
+Альбом: "Relocated"
 Стиль: Electronic
 Год: 2006
 
@@ -117,8 +107,8 @@
 Стиль: Electronic
 Год: 2006
 
-Группа: Camouflage
-Альбом: "Relocated"
+Группа: OSI
+Альбом: "Free"
 Стиль: Electronic
 Год: 2006
 
@@ -127,28 +117,18 @@
 Стиль: Electronic
 Год: 2006
 
-Группа: Zombie Girl
-Альбом: "Bllod, Brains & Rock'n'Roll"
+Группа: Sparks
+Альбом: "Hello Young Lovers"
 Стиль: Electronic
-Год: 2007
+Год: 2006
+
+Группа: Welle: Erdball
+Альбом: "Chaos Total (CD+DVD)"
+Стиль: Electronic
+Год: 2006
 
 Группа: Black Strobe
 Альбом: "Burn Our Own Church"
-Стиль: Electronic
-Год: 2007
-
-Группа: Ulver
-Альбом: "Shadows Of The Sun"
-Стиль: Electronic
-Год: 2007
-
-Группа: Барто
-Альбом: "s/t"
-Стиль: Electronic
-Год: 2007
-
-Группа: Vive La Fete
-Альбом: "Jour de Chance"
 Стиль: Electronic
 Год: 2007
 
@@ -162,8 +142,28 @@
 Стиль: Electronic
 Год: 2007
 
-Группа: [ВИА] Гагарин
-Альбом: "Снежок"
+Группа: Ulver
+Альбом: "Shadows Of The Sun"
+Стиль: Electronic
+Год: 2007
+
+Группа: Vive La Fete
+Альбом: "Jour de Chance"
+Стиль: Electronic
+Год: 2007
+
+Группа: Zombie Girl
+Альбом: "Bllod, Brains & Rock'n'Roll"
+Стиль: Electronic
+Год: 2007
+
+Группа: Барто
+Альбом: "s/t"
+Стиль: Electronic
+Год: 2007
+
+Группа: Hocico
+Альбом: "Memorias Atras"
 Стиль: Electronic
 Год: 2008
 
@@ -172,8 +172,8 @@
 Стиль: Electronic
 Год: 2008
 
-Группа: Hocico
-Альбом: "Memorias Atras"
+Группа: [ВИА] Гагарин
+Альбом: "Снежок"
 Стиль: Electronic
 Год: 2008
 

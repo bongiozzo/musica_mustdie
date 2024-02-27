@@ -1,9 +1,40 @@
 # Faithsedge
 
-Дискография
-"Faithsedge" 2011, Hard Rock
-"The Answer of Insanity" 2014, Hard Rock
-"Restoration" 2016, Hard Rock
+
+
+## Дискография
+
+### "Faithsedge" 2011, Hard Rock
+
+1. Another Chance		 
+2. There’s Still Hope		 
+3. Let It End This Way		 
+4. World Keeps Falling Down		 
+5. Even If		 
+6. Hold On		 
+7. Take You Away		 
+8. Somewhere In Your Heart		 
+9. That’s What Happened To Us		 
+10. Faith-Anne		 
+11. When It Rains
+
+### "The Answer of Insanity" 2014, Hard Rock
+
+
+
+### "Restoration" 2016, Hard Rock
+
+1. Never a Day	 
+2. Jennifer	 
+3. You Cannot Give Up	 
+4. Faith and Chris	 
+5. Her Way Back 
+6. Regret at All 
+7. This War	 
+8. Taking Our Lives 
+9. Let You Breathe	 
+10. This Is Everything
+
 
 ## Отношения с другими группами
 

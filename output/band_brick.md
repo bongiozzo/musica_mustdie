@@ -1,7 +1,22 @@
 # Brick
 
-Дискография
-"Faceless Strangers" 2016, Heavy Metal
+
+
+## Дискография
+
+### "Faceless Strangers" 2016, Heavy Metal
+
+The Beast
+Bagging Rainbows
+Bloody Mistress
+Faceless Strangers
+Last Day
+Not Five Times Or More
+From My Hell And Back
+Love Song
+World of lies
+Megan
+
 
 ## Отношения с другими группами
 

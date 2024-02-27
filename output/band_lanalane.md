@@ -1,14 +1,142 @@
 # Lana Lane
 
-Дискография
-"Love Is An Illusion" 1995, Progressive
-"Echoes From The Garden" 1998, Progressive
-"Queen of the Ocean" 2000, Progressive
-"Secrets of Astrology" 2000, Progressive
-"Project Shangri-La" 2002, Progressive
-"Storybook: Tales From Japan DVD" 2004, Progressive
-"Return To Japan" 2004, Progressive
-"Lady Macbeth" 2005, Progressive
+
+
+## Дискография
+
+### "Love Is An Illusion" 1995, Progressive
+
+01. Liaa Prelude
+02. Love Is All Illusion
+03. Coloured Life
+04. Cold Outside
+05. Through The Fire
+06. Through The Rain
+07. Faerie Tale State Of Mind
+08. Dream Burnin' Down
+09. Can't Find My Way Home
+10. Liaa Postlude
+
+### "Echoes From The Garden" 1998, Progressive
+
+1. Seasons (Echoes Mix)
+2. Leaving Stardust
+3. This Is Not America
+4. Coloured Life (Woodcliff mix)
+5. Evolution Revolution
+6. Cold Outside (Woodcliff Remix)
+
+### "Queen of the Ocean" 2000, Progressive
+
+    1.   In the Hall of the Ocean Queen (Norlander) - 1:41 
+    2.   Night Falls (Kern/Lane) - 7:16 
+    3.   Queen of the Ocean (Lane/McCrite/Norlander) - 9:53 
+    4.   Let Heaven In (Sciff/Winfield) - 6:45 
+    5.   Frankenstein Unbound (Norlander) - 5:31 
+    6.   Souls of the Mermaids (Kern/Lane) - 5:43 
+    7.   Rainbow's End (Citron/Lane/Norlander) - 6:10 
+    8.   Without You (Vain) - 8:12 
+    9.   Through the Rain [*] (Marcus/Norlander) - 6:03 
+    10.   Escher's Staricase [*] (Citron/Norlander) - 6:24 
+    11.   Symphony of Angels [*] (Citron/Norlander) - 7:15 
+
+
+Greg Ellis  -  Percussion 
+Tony Franklin  -  Fretless Bass 
+Don Schiff  -  Bass, Stick 
+Chris Bellman  -  Mastering 
+Neil Citron  -  Guitar, Guitar (Rhythm) 
+Erik Norlander  -  Synthesizer, Organ (Hammond), Producer, Mellotron, Liner Notes, Vocoder, Fender Rhodes, Mini Moog 
+Mark McCrite  -  Guitar (Acoustic), Guitar (Electric), Guitar (Rhythm), Vocals (bckgr) 
+Lana Lane  -  Vocals, Vocals (bckgr) 
+
+
+
+### "Secrets of Astrology" 2000, Progressive
+
+    1.   Astrology Prelude (Norlander) - 3:58 
+    2.   Secrets of Astrology (Norlander) - 8:32 
+    3.   Alexandria (Lane) - 5:16 
+    4.   Raining (Norlander) - 6:17 
+    5.   The Bell (Lane/Norlander) - 5:16 
+    6.   Speed of Sound (Norlander) - 5:24 
+    7.   Under the Sun (Norlander) - 4:43 
+    8.   Tarot (Lane/Lucassen/Norlander) - 4:47 
+    9.   Asherah (Norlander) - 6:51 
+    10.   Guardian Angel (Lane/McCrite/Norlander) - 6:41 
+    11.   Long Winter Dreams (Norlander) - 5:49 
+    12.   Astrology Postlude (Norlander) - 3:38 
+    13.   Rhapsody (McCrite/Norlander) - 5:25 
+
+
+Michael Parks  -  Cover Art 
+Tony Franklin  -  Guitar (Acoustic), Percussion, Vocals, Fretless Bass 
+Cameron Stone  -  Cello 
+Novi Novog  -  Viola 
+Neil Zlozower  -  Photography 
+Ed Warby  -  Drums 
+Erik Norlander  -  Synthesizer, Piano, Arranger, Organ (Hammond), Producer, Mellotron, Fender Rhodes, Graphic Design, Mastering, Mini Moog 
+Mark McCrite  -  Guitar (Acoustic), Mellotron 
+Lana Lane  -  Vocals 
+Adam Nunn  -  Mastering 
+Arjen Anthony Lucassen  -  Guitar (Acoustic), Bass, Guitar, Guitar (Rhythm), Mellotron 
+
+
+
+### "Project Shangri-La" 2002, Progressive
+
+   1.    Redemption, Pt. 1 [instrumental] (Norlander) - 2:27 
+   2.    Project Shangri-La (Lane/McCrite) - 6:04 
+   3.    Encore (Engelke/Norlander) - 4:00 
+   4.    Before You Go (Lane) - 6:20 
+   5.    The Nightingale (Lane) - 4:19 
+   6.    The Beast Within You (Lane/Norlander) - 5:57 
+   7.    Tears of Babylon (Lane/McCrite) - 6:35 
+   8.    Ebbtide (Lane) - 5:20 
+   9.    (Life Is) Only a Dream (Boals/Norlander) - 6:44 
+   10.    Time to Say Goodbye (Con Te Partirє) (Quarantotto/Sartori) - 4:11 
+   11.    Redemption, Pt. 2 [instrumental] (Norlander) - 3:04 
+   12.    Romeo and Juliet [*] (Lane/Norlander) - 5:56 
+
+
+Vinny Appice  -  Drums 
+Tony Franklin  -  Fretless Bass, Photography 
+Mark Boals  -  Vocals, Harmony Vocals 
+Oscar Holleman  -  Engineer, Mixing 
+Ed Warby  -  Drums 
+Neil Citron  -  Guitar, Guitar (Rhythm), Engineer 
+Erik Norlander  -  Piano, Keyboards, Organ (Hammond), Producer, Engineer, Synclavier, Liner Notes, Chamberlain, Fender Rhodes, Mastering, Mixing, Photography, Arp Strings, Modular Moog 
+Mark McCrite  -  Guitar (Acoustic), Guitar, Guitar (Rhythm), Harmony Vocals 
+Tracy McCrite  -  Logo 
+John Asbury  -  Photography 
+Lana Lane  -  Vocals, Vocals (bckgr), Liner Notes, Photography 
+Jacek Yerka  -  Cover Art 
+Arjen Anthony Lucassen  -  Guitar (Rhythm) 
+
+
+
+### "Storybook: Tales From Japan DVD" 2004, Progressive
+
+
+
+### "Return To Japan" 2004, Progressive
+
+
+
+### "Lady Macbeth" 2005, Progressive
+
+1. The Dream That Never Ends
+2. Someone To Believe
+3. Our Time Now
+4. Summon The Devil
+5. No Tomorrow
+6. Shine On Golden Sun
+7. The Vision
+8. Keeper of The Flame
+9. We Had The World
+10. Dunsinane Walls
+Someone to Believe (Video Track)
+
 
 ## Отношения с другими группами
 

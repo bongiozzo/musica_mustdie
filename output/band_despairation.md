@@ -1,7 +1,30 @@
 # Despairation
 
-Дискография
-"Songs Of Love And Redemption" 2002, Gothic
+gothic/melancholic rock
+
+## Дискография
+
+### "Songs Of Love And Redemption" 2002, Gothic
+
+1. Blue Haven
+2. Magic Caravan
+3. Subsoil Pedestrians
+4. End Of Green
+5. Man On The Moon
+6. Cosmic Trigger
+7. The Electric Shaman
+8. Cygnet
+9. Liquid Divine
+10. Celestial Winter
+11. Melissa Kissed The Sky
+12. Transcen-Dance
+13. VeloCity 
+
+Sascha Blach (vocals)
+Martin F. Jungkunz (guitars, programming)
+Christian Beyer (piano, synths)
+Christoph Grьnert (bass)
+
 
 ## Отношения с другими группами
 

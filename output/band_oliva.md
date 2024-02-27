@@ -1,7 +1,24 @@
 # Oliva
 
-Дискография
-"Raise The Curtain" 2013, Hard Rock
+
+
+## Дискография
+
+### "Raise The Curtain" 2013, Hard Rock
+
+1. Raise The Curtain
+2. Soul Chaser
+3. Ten Years
+4. Father Time
+5. I Know
+6. Big Brother
+7. Armageddon
+8. Soldier
+9. Stalker
+10. The Witch
+11. Can’t Get Away
+12. The Truth (bonus)
+
 
 ## Отношения с другими группами
 

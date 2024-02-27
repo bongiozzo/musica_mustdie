@@ -1,7 +1,29 @@
 # Countess
 
-Дискография
-"Ad Maiorem Sathanae Gloriam" 1996, Black Metal
+
+
+## Дискография
+
+### "Ad Maiorem Sathanae Gloriam" 1996, Black Metal
+
+1.  Ad Maiorem Sathanae Gloriam 
+2.  The Priest Must Die 
+3.  The Wrath Of Satan's Whore 
+4.  Thus Spoke The Master 
+5.  Blood On My Lips (The Silent Rose Of Sin)
+6.  Sheltered Under The Claw
+7.  Ere A Bitter End 
+8.  Ad Maiorem Sathanae Gloriam (Reprise) 
+9.  Born Too Late
+
+Recorded & Mixed At Orlok
+Engineered by Nick Hall
+Mixed by Nick Hall and Orlok
+All Arrangements by Orlok
+Executive producer Opyros
+
+(P)c 1996 NAZGUL'S EYRIE PROD 009
+
 
 ## Отношения с другими группами
 

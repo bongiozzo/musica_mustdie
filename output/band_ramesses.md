@@ -1,12 +1,33 @@
 # Ramesses
 
-Дискография
-"We Will Lead You To Glorious Times (EP)" 2005, Death Doom
-"Misanthropic Alchemy" 2007, Death Doom
-"Baptism Of The Walking Dead (EP)" 2009, Death Doom
-"Take The Curse" 2010, Death Doom
-"Possessed By The Rise Of Magik" 2011, Death Doom
-"Chrome Pineal (EP)" 2011, Death Doom
+
+
+## Дискография
+
+### "We Will Lead You To Glorious Times (EP)" 2005, Death Doom
+
+
+
+### "Misanthropic Alchemy" 2007, Death Doom
+
+
+
+### "Baptism Of The Walking Dead (EP)" 2009, Death Doom
+
+
+
+### "Take The Curse" 2010, Death Doom
+
+
+
+### "Possessed By The Rise Of Magik" 2011, Death Doom
+
+
+
+### "Chrome Pineal (EP)" 2011, Death Doom
+
+
+
 
 ## Отношения с другими группами
 

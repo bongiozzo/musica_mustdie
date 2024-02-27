@@ -1,7 +1,19 @@
 # Karkadan
 
-Дискография
-"Eternal Black Reflections" 1999, Black Metal
+
+
+## Дискография
+
+### "Eternal Black Reflections" 1999, Black Metal
+
+Eternal Black Reflections 
+Niederkniender Todeskampf 
+Sleep Walker 
+Requiem Of Yearning 
+The Calling 
+Never Ending Love 
+My Ablaze
+
 
 ## Отношения с другими группами
 

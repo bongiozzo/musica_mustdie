@@ -1,7 +1,21 @@
 # Lady Winter
 
-Дискография
-"The Rain Can't Be Forever" 2005, Gothic
+
+
+## Дискография
+
+### "The Rain Can't Be Forever" 2005, Gothic
+
+1. Phoenix 04:14
+2. The Rain Can't Be Forever 04:07
+3. Frozen Heart 04:36
+4. From the Backside of the Mirror 03:56
+5. Lonely Road 03:49
+6. She-Wolf 04:59
+7. The Sorrow 03:13
+8. Endless Maze 04:40
+9. Where the Rain Grows (Helloween Cover) 05:01 
+
 
 ## Отношения с другими группами
 

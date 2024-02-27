@@ -1,20 +1,271 @@
 # Kataklysm
 
-Дискография
-"The Mystical Gate Of Reincarnation (EP)" 1993, Death Metal
-"Sorcery" 1995, Grindcore
-"Temple Of Knowledge (Kataklysm Part III)" 1996, Grindcore
-"Victims Of This Fallen World" 1998, Grindcore
-"The Prophecy (Stigmata Of The Immaculate)" 2000, Death Metal
-"Epic (The Poetry Of War)" 2001, Death Metal
-"Shadows & Dust" 2002, Death Metal
-"Serenity In Fire" 2004, Death Metal
-"In The Arms Of Devastation" 2006, Death Metal
-"Live in Deutschland (The Devastation Begins) (DVD)" 2007, Death Metal
-"Prevail" 2008, Death Metal
-"Heaven's Venom" 2010, Death Metal
-"Waiting For The End To Come" 2013, Death Metal
-"Of Ghosts And Gods" 2015, Death Metal
+
+
+## Дискография
+
+### "The Mystical Gate Of Reincarnation (EP)" 1993, Death Metal
+
+1. FROZEN IN TIME (Chapter I -Will of Suicide-) 
+2. MYSTICAL PLANE OF EVIL (Chapter II -Enigma of the Unknown-) 
+3. SHRINE OF LIFE (Chapter III -Reborn Through Death-) 
+4. THE ORB OF UNCREATION 
+Line up: 
+Sylvain Houde : Mystical Vocals 
+Maurizio Iacono : Bass and Backing Vocal 
+Jean-Francois Dagenais : Guitars 
+Ariel Saпed : Drums
+
+### "Sorcery" 1995, Grindcore
+
+1. Sorcery
+2. Mould In A Breed
+3. Whirlwind Of Withered Blossoms
+4. Feeling The Neverworld
+5. Elder God
+6. Garden Of Dreams
+7. Once - ...Uppen Possession
+8. Dead Thygote
+9. World Of Treason
+
+ Sylvain House - Vocals
+ Jean Francois Dagenais - Guitars
+ Maurizio Lacono - Bass
+ Max Duhamel - Drums
+
+All Songs Written By KATAKLYSM
+Produced & Mixed By Glen Robinson
+Engineered By Don Hackey At Le Studio, Morinheights, Canada
+
+(p)&(c) 1995 NUCLEAR BLAST Records
+
+
+### "Temple Of Knowledge (Kataklysm Part III)" 1996, Grindcore
+
+The Transenflamed Memories (Trinity)
+1. The Unholy Signature (Seigment I - Utterly Significant)
+2. Beckoning Of The Xul (Seigmrnt II - In The Midst Of The Azonei's Dominion)
+3. Point Of Evanescence (Seigment III - Of Sheer Perseverance)
+Through The Core Of The Damned (Trinity)
+4. Fathers From The Suns (Act I - The Occurred Barrier)
+5. Enhanced By The Lore (Act II - Scholarship Ordained)
+6. In Parallel Horizons (Act III - Spontaneous Aura Projection)
+Era Of The Aquarius (Trinity)
+7. The Awakener (Epoch I - Summon The Legends)
+8. Maelstrom 2010 (Epoch II - Omens About The Great Infernos)
+9. Exode Of Evils (Epoch III - Ladder Of Thousand Parsecs)
+10.L'Odysee...
+
+All songs written by KATAKLYSM
+Produced by KATAKLYSM
+Engineered by Glen Robinson and Jocelyn Daoust
+Recordcd and mixed at Morin-Hcights Studio, Canada.
+
+Sylvain Houde - Infernal Vocals
+Jean-Francois Dagenais - Guitars
+Maurizio Lacono - Bass, Vocals
+Nick Miller - Drums
+
+(p)c 1996 NUCLEAR BLAST Records
+
+### "Victims Of This Fallen World" 1998, Grindcore
+
+1. As My World Burns
+ 2. Imminent Downfall
+ 3. Feared Resistence
+ 4. Caged In
+ 5. Portraits Of Anger
+ 6. Extreme To The Core
+ 7. Courage Through Hope
+ 8. A View From Inside
+ 9. (God) Head
+10. Embracing Europa
+11. I Remember
+12. World Of Treason II (Instrumental)
+
+(P) 1998 Hypnotic International
+
+### "The Prophecy (Stigmata Of The Immaculate)" 2000, Death Metal
+
+1. 1999:6661:2000
+2. Manifestation
+3. Stormland
+4. Breeding The Everlasting
+5. Laments Of Fear & Despair
+6. Astral Empire
+7. Gateway To Extinction
+8. Machiavellian
+9. The Renaissance
+
+(P) 2000 Nuclear Blast
+
+### "Epic (The Poetry Of War)" 2001, Death Metal
+
+1. Il Diavolo In Me
+2. Damnation Is Here
+3. Era Of The Mercyless (Roma: Part 1)
+4. As The Glorious Weep (Roma: Part 2)
+5. Shivers Of A New World
+6. Manipulator Of Souls
+7. Wounds
+8. What We Endure
+9. When Time Stands Still
+
+Line-up:
+Maurizio Iacono: vocals
+Jean-Francois Dagenais: guitars
+Stephane Barbe: bass
+Max Duhamel: drums
+
+Produced by Jean-Francois Dagenais
+Engineered and mixed by Jean-Francois Dagenais
+Recorded at Victor Studio Feb/march 2001
+
+(P) 2001 Nuclear Blast
+
+### "Shadows & Dust" 2002, Death Metal
+
+1. In Shadows & Dust
+2. Beyond Salvation
+3. Illuminati
+4. Chronicles Of The Damned
+5. Bound In Chains
+6. Where The Enemy Sleeps
+7. Centuries
+8. Face The Face Of War
+9. Years Of Enlightment / Decades In Darkness
+
+Kataklysm is:
+Maurizio Iacono - vocals
+J-F Dagenais - guitars
+Stephane Barbe - bass
+Max Duhamel - drums
+
+Produced by Jean-Francois Dagenais
+Engineered & Mixed by Jean-Francois Dagenais
+Recorded at Victor Studio, Montreal, Canada (June'02)
+
+All musical annihilation executed by Kataklysm
+All lyrics by Maurizio Iacono
+All guitar solos by J-F Dagenais,
+except for "Years of Enlightment/Decades..."
+by Stephane Barbe
+
+### "Serenity In Fire" 2004, Death Metal
+
+01. The Ambassador of Pain
+02. As I Slither
+03. The Resurrected
+04. 10 Seconde from the End
+05. The Tragedy I Preach
+06. For All Our Sins
+07. The Night They Returned
+08. Blood on the Swans
+09. Serenity in Fire
+10. Under the Bleeding Sun
+
+### "In The Arms Of Devastation" 2006, Death Metal
+
+
+
+### "Live in Deutschland (The Devastation Begins) (DVD)" 2007, Death Metal
+
+Disc 1 (DVD)
+
+Live At Party.San Open Air - August 12, 2006 in Bad Berka, Germany:
+
+01. Like Angels Weeping (The Dark)
+02. Where the Enemy Sleeps
+03. The Ressurected
+04. Let Them Burn
+05. As I Slither
+06. As the Glorious Weep
+07. The Ambassador of Pain
+08. Manipulator of Souls
+09. Crippled & Broken
+10. In Shadows & Dust
+11. Face the Face of War
+12. The Road To Devastation
+
+Live At The Medley in Montreal, Canada (Bonus Footage):
+
+13. Illuminati
+14. To Reign Again
+15. The Awakener
+16. Sorcery 
+
+"The Test of Time" Documentary:
+
+* Band profilers/interviews
+* Band/fan Pictures
+* On the Road footage
+* Video Clips: 
+- The Awakener
+- In Shadows & Dust
+- As I Slither
+- Crippled & Broken
+- To Reign Again
+
+Disc 2 (CD):
+
+Live at Party.San Open Air - August 12, 2006 in Bad Berka, Germany
+
+### "Prevail" 2008, Death Metal
+
+1. Prevail 03:56  
+2. Taking the World by Storm 04:01  
+3. The Chains of Power 03:18  
+4. As Death Lingers 03:32  
+5. Blood in Heaven 05:18  
+6. To the Throne of Sorrow 04:52  
+7. Breathe to Dominate 04:02  
+8. Tear Down the Kingdom 04:23  
+9. The Vultures Are Watching 05:58  
+10. The Last Effort (Renaissance II) 05:02 
+
+
+### "Heaven's Venom" 2010, Death Metal
+
+1. A Soulless God 05:42 
+2. Determined (Vows Of Vengeance) 04:48 
+3. Faith Made Of Shrapnel 05:37 
+4. Push The Venom 03:27  
+5. Hail The Renegade 05:27  
+6. As The Wall Collapses 04:51 
+7. Numb And Intoxicated 03:26
+8. At The Edge Of The World 03:59  
+9. Suicide River 04:02  
+10. Blind Saviour 05:19 
+
+
+### "Waiting For The End To Come" 2013, Death Metal
+
+01. Fire (5:28)
+02. If I Was God... I'd Burn It All (4:38)
+03. Like Animals (3:26)
+04. Kill The Elite (4:16)
+05. Under Lawless Skies (3:30)
+06. Dead & Buried (3:12)
+07. The Darkest Days Of Slumber (3:53)
+08. Real Blood, Real Scars (4:32)
+09. The Promise (4:29)
+10. Empire Of Dirt (3:46)
+11. Elevate (3:56)
+12. The American Way (Sacred Reich Cover) (3:37)
+
+### "Of Ghosts And Gods" 2015, Death Metal
+
+01. Breaching The Asylum
+02. The Black Sheep
+03. Thy Serpents Tongue
+04. Soul Destroyer
+05. Vindication
+06. Marching Through Graveyards
+07. Shattered
+08. Hate Spirit
+09. Carrying Crosses
+10. The World Is A Dying Insect
+
 
 ## Отношения с другими группами
 

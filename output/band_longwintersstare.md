@@ -1,7 +1,19 @@
 # Long Winter's Stare
 
-Дискография
-"The Tears Of Odin's Fallen" 2000, Death Doom
+
+
+## Дискография
+
+### "The Tears Of Odin's Fallen" 2000, Death Doom
+
+In the Hall of Odin 
+Blood of Steel 
+Blood of my Fathers 
+Neolyth 
+The Last Call 
+In Arms 
+The Unknown God
+
 
 ## Отношения с другими группами
 

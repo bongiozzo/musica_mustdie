@@ -1,9 +1,56 @@
 # Front 242
 
-Дискография
-"06:21:03:11 Up Evil" 1993, Industrial
-"" 1993, Industrial
-"Mut@ge.Mix@ge" 1995, Industrial
+
+
+## Дискография
+
+### "06:21:03:11 Up Evil" 1993, Industrial
+
+1. Crapage
+2. Waste
+3. Skin
+4. Motion
+5. Religion
+6. Stratoscape
+7. Hymn
+8. Fuel
+9. Melt
+10.Flag
+11.Mutilate
+12.Buried In Concrete
+
+ Vocals By J.-L. De Meyer & Richard JK
+ Backing Vocals On 10 By Cassel Webb
+
+Music Composed, Performed & Produced By Daniel B. & Patrick Codenys
+Vocals Written And Composed By Jean-Marc Pauly & Pierre Pauly
+Engineer Rob Sutton
+Mixed By Andy Wallace At Art And Strategy Studio
+
+(p)&(c) 1993 RRE Records
+
+### "" 1993, Industrial
+
+
+
+### "Mut@ge.Mix@ge" 1995, Industrial
+
+ForwardPlayKaleidosKompilationRewind
+1.  Rhythm Of Time (Messengers Of Neptune mix by The Orb)
+2.  Happiness (Dub mix by Underworld)
+3.  Gripped By Fear (Bunkerclub mix by Rico Conning)
+4.  Mixed By Fear
+5.  Crapage (The Float or Sink mix by The Orb)
+6.  Junkdrome
+7.  Happiness (Dance mix by Underworld)
+8.  Religion (Bass Under Siege mix by The Prodigy)
+9.  Break Me (Female)
+10.  Rhythm Of Time (Victor The Cleaner mix by The Orb)
+11.  Dancesoundtrackmusic (D.S.M.)
+12.  Religion (Trance U Down mix by The Prodigy)
+
+(P)c 1995 RRE Records
+
 
 ## Отношения с другими группами
 

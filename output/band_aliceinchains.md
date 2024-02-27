@@ -1,14 +1,164 @@
 # Alice In Chains
 
-Дискография
-"Facelift" 1990, Grunge
-"Dirt" 1992, Grunge
-"Jar Of Flies (Mini)" 1993, Grunge
-"Them Bones" 1993, Grunge
-"SAP" 1994, Grunge
-"Alice In Chains" 1995, Grunge
-"Black Gives Way To Blue" 2009, Grunge
-"The Devil Put Dinosaurs Here" 2013, Grunge
+Classic Seattle Grunge
+
+## Дискография
+
+### "Facelift" 1990, Grunge
+
+1.  We Die Young
+2.  Man In The Box
+3.  Sea Of Sorrow
+4.  Bleed The Freak
+5.  I Can`t Remember
+6.  Love,Hate,Love
+7.  It Ain`t Like That
+8.  Sunshine
+9.  Put You Down
+10.Confusion *
+11.I Know Somethin (Bout You)
+12.Real Thing
+
+ Layne Staley - Vocals
+ Jerry Cantrell - Guitar & Back. Vocals
+ Michael Starr - Bass & Back. Vocals On *
+ Sean Kinney - Drums & Percussion
+
+All Songs By ALICE IN CHAINS.
+Produced,Recorded & Mixed By Dave Jerden.
+
+(p)&(c) 1990 CBS Records
+
+### "Dirt" 1992, Grunge
+
+1.  Them Bones
+2.  Dam That River
+3.  Rain When I Die
+4.  Sick Man
+5.  Rooster
+6.  Junkhead
+7.  Dirt
+8.  God Smack
+9.  Hate To Feel
+10.Angry Chair
+11.Down In A Hole
+12.Would ?
+
+ Layne Staley - Vocals & Guitar
+ Jerry Cantrell - Guitar & Vocals
+ Michael Starr - Bass 
+ Sean Kinney - Drums
+
+Produced By Dave Jerden & ALICE IN CHAINS,
+At One On One & Eldorado, 1992.
+
+(p)&(c) 1992 SONY MUSIC Entertainment
+
+### "Jar Of Flies (Mini)" 1993, Grunge
+
+1. Rotten Apple
+2. Nutshell
+3. I Stay Away
+4. No Excuses
+5. Whale & Wasp
+6. Don't Follow
+7. Swing On This
+
+ Layne Starley - Vocals
+ Jerry Cantrell - Guitars,Vocals
+ Mike Ineza - Bass,Guitar
+ Sean Kinney - Drums
+
+(p)&(c) 1993 COLUMBIA Records
+
+### "Them Bones" 1993, Grunge
+
+1.  Damn That River
+2.  We Die Young
+3.  Them Bones
+4.  Would
+5.  Love, Hate, Love
+6.  Junk Head
+7.  God Smack
+8.  Bleed The Freak
+9.  Put You Down
+10.Stick Man
+11.It Ain't Like That
+12.Rain When I Die
+13.Dirt
+14.Hate To Feel
+15.Angry Chair
+16.Man In The Box
+
+Recorded Live In The USA, 1993.
+
+Layne Starley - Vocals
+Jerry Cantrell - Guitars,Vocals
+Mike Ineza - Bass,Guitar
+Sean Kinney - Drums
+
+(p)&(c) 1995 SONY Music
+
+### "SAP" 1994, Grunge
+
+1. Brother
+2. Got Me Wrong
+3. Right Turn
+4. I Am Inside
+
+ Layne Starley - Vocals
+ Jerry Cantrell - Guitars,Vocals
+ Mike Ineza - Bass,Guitar
+ Sean Kinney - Drums
+
+(p)&(c) 1994 COLUMBIA Records
+
+### "Alice In Chains" 1995, Grunge
+
+ 1. Grind
+ 2. Brush Away
+ 3. Sludge Factory
+ 4. Heaven Beside You
+ 5. Head Creeps
+ 6. Again
+ 7. Shame In You
+ 8. God Am
+ 9. So Close
+10. Nothing'Song
+11. Frogs
+12. Over Now
+
+All Songs By ALICE IN CHAINS.
+Produced By Joby Uright & ALICE IN CHAINS.
+Engineered By Joby Uright.
+Recorded At Bad Animals, Seattle.
+
+ Layne Starley - Vocals
+ Jerry Cantrell - Guitars,Vocals
+ Mike Ineza - Bass,Guitar
+ Sean Kinney - Drums
+
+(p)&(c) 1995 SONY Music
+
+### "Black Gives Way To Blue" 2009, Grunge
+
+
+
+### "The Devil Put Dinosaurs Here" 2013, Grunge
+
+01. Hollow (5:41)
+02. Pretty Done (4:36)
+03. Stone (4:23)
+04. Voices (5:43)
+05. The Devil Put Dinosaurs Here (6:39)
+06. Lab Monkey (5:58)
+07. Low Ceiling (5:15)
+08. Breath on A Window (5:20)
+09. Scalpel (5:21)
+10. Phantom Limb (7:08)
+11. Hung on A Hook (5:35)
+12. Choke (5:44)
+
 
 ## Отношения с другими группами
 

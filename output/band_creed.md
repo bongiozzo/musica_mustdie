@@ -1,9 +1,55 @@
 # Creed
 
-Дискография
-"My Own Prison" 1999, Alternative
-"Human Clay" 2000, Alternative
-"Weathered" 2001, Alternative
+
+
+## Дискография
+
+### "My Own Prison" 1999, Alternative
+
+
+
+### "Human Clay" 2000, Alternative
+
+Are You Ready?
+What If 
+Beautiful
+Say I 
+Wrong Way 
+Faceless Man 
+Never Die 
+With Arms Wide Open
+Higher
+Wash Away Those Years
+Inside Us All
+Young Grow Old *
+To Whom It May Concern *
+
+* non-US cd cut 
+
+### "Weathered" 2001, Alternative
+
+Bullets
+Freedom Fighter
+Who's Got My Back
+Signs
+One Last Breath
+My Sacrifice
+Stand Here With Me
+Weathered
+Hide
+Don't Stop Dancing
+Lullaby
+
+
+
+
+Written by Tremonti/Stapp Published by Tremonti/Stapp Music
+(Adm. by Dwight Frye Music, Inc.)/Dwight Frye Music, Inc. (BMI)
+Produced, Engineered & Mixed by John Kurzweg, Kirk Kelsey and Creed
+
+
+
+
 
 ## Отношения с другими группами
 

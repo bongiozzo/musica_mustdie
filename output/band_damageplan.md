@@ -1,7 +1,26 @@
 # Damageplan
 
-Дискография
-"New Found Power" 2004, Heavy Metal
+PANTERA members
+
+## Дискография
+
+### "New Found Power" 2004, Heavy Metal
+
+01. Wake Up
+02. NFP (New Found Power) 
+03. Pride 
+04. Blunt Force Trauma 
+05. Save Me 
+06. Explode 
+07. Fuck You (feat. Corey Taylor)
+08. Cold Blooded 
+09. Reborn (feat. Zakk Wylde)
+10. Blink of An Eye 
+11. Breathing New Life 
+12. Crawl 
+13. Moment Of Truth 
+14. Soulbleed (feat. Zakk Wylde)
+
 
 ## Отношения с другими группами
 

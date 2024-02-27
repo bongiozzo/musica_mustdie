@@ -1,7 +1,13 @@
 # Verso
 
-Дискография
-"From Wings to Bare Bones" 2008, Progressive
+
+
+## Дискография
+
+### "From Wings to Bare Bones" 2008, Progressive
+
+
+
 
 ## Отношения с другими группами
 

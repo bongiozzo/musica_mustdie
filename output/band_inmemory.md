@@ -1,8 +1,27 @@
 # In Memory
 
-Дискография
-"Intoxicating Mind" 2003, Gothic
-"Glyptic" 2007, Progressive
+
+
+## Дискография
+
+### "Intoxicating Mind" 2003, Gothic
+
+
+
+### "Glyptic" 2007, Progressive
+
+1.	 Is This A Man?	05:25	 
+2.	 September (Past And Present)	05:02	 
+3.	 City of Sun	04:30	 
+4.	 Endless Sorrow	04:13	 
+5.	 A Cry for God	04:52	 
+6.	 Dreams Run Away	04:36	 
+7.	 Time to Say	06:06	 
+8.	 Secrets	04:40	 
+9.	 Mirrors and Tears	04:28	 
+10.	 My Hell is here	05:13	 
+11.	 Point of View	05:17
+
 
 ## Отношения с другими группами
 

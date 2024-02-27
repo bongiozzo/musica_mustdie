@@ -1,9 +1,52 @@
 # M.A.N.
 
-Дискография
-"Obey, Consume, Reject" 2006, Metal
-"Peacenemy" 2008, Metal
-"Massive Audio Nerve" 2010, Metal
+Massive Audio Nerve
+
+## Дискография
+
+### "Obey, Consume, Reject" 2006, Metal
+
+1. Fold and Disgusted
+2. Last Injection
+3. My Master
+4. None to Tell
+5. Cop Out
+6. Bon Voyage MF
+7. Soul Wasted
+8. Handcuffed
+9. Cancered
+10. Kick Down
+11. Monster Device
+
+### "Peacenemy" 2008, Metal
+
+1. Peacenemy
+2. Worn Wings
+3. Blood Vanish
+4. My Own Sickness (feat. Burton C. Bell)
+5. Outnumbered
+6. Body Sewer
+7. Harness The Mind
+8. Eyes Bled, Tears Shed
+9. Hacker Sapiens
+10. 44 Teeth
+11. Dead Universe
+12. Peacenemy Epilogue
+
+### "Massive Audio Nerve" 2010, Metal
+
+1. Logocide
+2. Identical Abuse
+3. Don't Wake Up 
+4. False Memory Syndrome 1.0 
+5. Loveless
+6. Vivid Heart
+7. Slave Program (feat. Wayne Static Of Static-X)
+8. Mock At My Motion
+9. False Memory Syndrome 2.1
+10. Dead Set
+11. Last Light Drains
+
 
 ## Отношения с другими группами
 

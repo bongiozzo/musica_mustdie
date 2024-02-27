@@ -1,7 +1,13 @@
 # Centennial
 
-Дискография
-"The Rotten Beauty" 2000, Doom
+classical doom-death-metal
+
+## Дискография
+
+### "The Rotten Beauty" 2000, Doom
+
+
+
 
 ## Отношения с другими группами
 

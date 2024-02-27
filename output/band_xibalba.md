@@ -1,7 +1,22 @@
 # Xibalba
 
-Дискография
-"Ah Dzam Poop Ek" 1996, Black Metal
+
+
+## Дискография
+
+### "Ah Dzam Poop Ek" 1996, Black Metal
+
+1. Furor Antiquus 
+2. Vuch 
+3. In Daemones Imperium 
+4. Corchan 
+5. Sac Ibteeloob Cab 
+6. Sign Of Eastern War 
+7. Bolontiku Vahom 
+8. Itzam Cab Ain Katun
+
+(p)&(c) 1996
+
 
 ## Отношения с другими группами
 

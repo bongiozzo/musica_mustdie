@@ -1,7 +1,22 @@
 # In Grey
 
-Дискография
-"Sulphur Tears" 2003, Gothic
+gothic-metal
+
+## Дискография
+
+### "Sulphur Tears" 2003, Gothic
+
+01. Intro
+02. Sulphur Tears
+03. Life Has Changed
+04. At The Edge
+05. As Passion Turns To Hate
+06. I Amaze
+07. Above
+08. Mask
+09. Instrumental
+10. A Sun That Never Sets
+
 
 ## Отношения с другими группами
 

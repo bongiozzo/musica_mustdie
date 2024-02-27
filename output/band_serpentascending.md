@@ -1,7 +1,21 @@
 # Serpent Ascending
 
-Дискография
-"The Enigma Unsettled" 2011, Death Metal
+
+
+## Дискография
+
+### "The Enigma Unsettled" 2011, Death Metal
+
+1. The Mournful Pilgrimage - Part 1
+2. Saturnal
+3. The Human Ladders
+4. The Mournful Pilgrimage - Part 2 
+5. The Entwinement 
+6. World of Flesh on Bone 
+7. Serpent Ascending  
+8. The Enigma Unsettled   
+9. Endless Initiations 
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,17 @@
 # Sencirow
 
-Дискография
-"Perception Of Fear" 2006, Heavy Metal
-"The Nightmare Within" 2008, Heavy Metal
+
+
+## Дискография
+
+### "Perception Of Fear" 2006, Heavy Metal
+
+
+
+### "The Nightmare Within" 2008, Heavy Metal
+
+
+
 
 ## Отношения с другими группами
 

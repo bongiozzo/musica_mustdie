@@ -1,10 +1,53 @@
 # Hanging Garden
 
-Дискография
-"Inherit the Eden" 2007, Death Doom
-"Teotwawki" 2009, Death Doom
-"At Every Door" 2013, Death Doom
-"Blackout Whiteout" 2015, Gothic
+Melodic Death Doom Metal from Finland
+
+## Дискография
+
+### "Inherit the Eden" 2007, Death Doom
+
+01. Sleep Of Ages 07:58
+02. As The Circle Fades 07:34
+03. Ethereal Passing 02:50
+04. Shards Of Life 08:46
+05. Paper Doves 07:11
+06. Stillborn 03:57
+07. The Mourners Plain 08:35
+08. Fall Into Tehom 10:41 
+
+### "Teotwawki" 2009, Death Doom
+
+1. Where Serpents Dwell 05:05 
+2. The Blackbirds 07:22 
+3. Hands That Decay 07:55 
+4. Times of Disgrace 07:35 
+5. Wolves Cry Out 09:42 
+6. Oceans Away 07:30 
+7. The Fires of Sheol 07:27 
+8. Inherit the Eden 05:43
+
+Line-up:
+Ari Nieminen: Vocals
+Jussi Hдmдlдinen: Guitars
+Mikko Kolari: Guitars
+Janne Jukarainen: Drums
+Matti Reinola: Bass Guitar, Keyboards
+
+### "At Every Door" 2013, Death Doom
+
+1. Ten Thousands Cranes (6:21) 
+2. Ash And Dust (6:25) 
+3. Heigra (6:33) 
+4. Wormwood (6:23) 
+5. At Every Door (4:24) 
+6. The Cure (8:20) 
+7. Evenfall (4:53) 
+8. To End All Ages (10:33)
+
+### "Blackout Whiteout" 2015, Gothic
+
+
+
 
 ## Отношения с другими группами
 

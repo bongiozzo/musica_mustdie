@@ -1,9 +1,89 @@
 # Pennywise
 
-Дискография
-"Pennywise" 1991, Punk
-"Unknown Road" 1993, Punk
-"About Time" 1995, Punk
+Like Bad Religion
+
+## Дискография
+
+### "Pennywise" 1991, Punk
+
+1. Wouldn't It Be Nice
+2. Rules
+3. The Secret
+4. Living For Today
+5. Come Out Fighting
+6. Homeless
+7. Open Door
+8. Pennywise
+9. Who's To Blame
+10.Fun And Games
+11.Kodiak
+12.Side One
+13.No Reason Why
+14.Bro Hymn
+
+All Songs Written & Arranged By PENNYWISE.
+Recorded At West Beach Recorders,Hollywood, CA.
+
+Byron - Drums
+Jim - Vocals
+Jason - Bass
+Fletcher - Guitar
+
+(P)&(C) 1991 EPITAPH Records
+
+### "Unknown Road" 1993, Punk
+
+1. Unknown Road
+2. Homesick
+3. Time To Burn
+4. It's Up To Me
+5. You Can Demand
+6. Nothing
+7. Vices
+8. City Is Burning
+9. Dying To Know
+10.Tester
+11.Try To Conform
+12.Give And Get
+13.Clear Your Mind
+
+All Songs Written By PENNYWISE.
+Produced By Joe Peccerillo.
+Engineered By Donell Cameron.
+
+Byron - Drums
+Jim - Vocals
+Jason - Bass
+Fletcher - Guitar
+
+(P)&(C) 1993 EPITAPH Records
+
+### "About Time" 1995, Punk
+
+1. Peaceful Day
+2. Waste Of Time
+3. Perfect People
+4. Every Single Day
+5. Searching
+6. Not Far Away
+7. Freebase
+8. It's What You Do With It
+9. Try
+10.Same Old Story
+11.Killing Time
+
+All Songs Written By PENNYWISE.
+Produced By Jerry Finn & Brett Gurewitz.
+Engineered By Jerry Finn.
+Recorded & Mixed At Total Acess Studios In Redondo Beach,CA.
+
+Jim - Vocals
+Fletcher - Guitar
+Jason - Bass
+Byron - Drums
+
+(p)&(c) 1995 EPITAPH Records
+
 
 ## Отношения с другими группами
 

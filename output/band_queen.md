@@ -1,23 +1,544 @@
 # Queen
 
-Дискография
-"Queen" 1973, Hard Rock
-"Queen II" 1974, Hard Rock
-"Sheer Heart Attack" 1974, Hard Rock
-"A Night at the Opera" 1975, Hard Rock
-"A Day at the Races" 1976, Hard Rock
-"News of the World" 1977, Hard Rock
-"Jazz" 1978, Hard Rock
-"The Game" 1980, Hard Rock
-"Flash Gordon" 1981, Hard Rock
-"Hot Space" 1982, Hard Rock
-"The Works" 1984, Hard Rock
-"A Kind of Magic" 1986, Hard Rock
-"The Miracle" 1989, Hard Rock
-"Innuendo" 1991, Hard Rock
-"Made in Heaven" 1995, Hard Rock
-"Magic Moments (DVD)" 2004, Hard Rock
-"Queen Forever" 2014, Rock
+
+
+## Дискография
+
+### "Queen" 1973, Hard Rock
+
+   1.   Keep Yourself Alive (May) - 3:47 
+   2.   Doing All Right (May/Staffel) - 4:09 
+   3.   Great King Rat (Mercury) - 5:43 
+   4.   My Fairy King (Mercury) - 4:08 
+   5.   Liar (Mercury) - 6:25 
+   6.   The Night Comes Down (May) - 4:23 
+   7.   Modern Times Rock & Roll (Taylor) - 1:48 
+   8.   Son and Daughter (May) - 3:20 
+   9.   Jesus (Mercury) - 3:44 
+   10.   Seven Seas of Rhye (Mercury) - 1:15 
+   11.   Mad the Swine [#] (Mercury) - 3:20 
+   12.   Keep Yourself Alive [#] (May) - 4:04 
+   13.   Liar [*] (Mercury) - 6:25 
+
+
+Freddie Mercury  -  Piano, Vocals, Producer, Design 
+Queen  -  Producer 
+Brian May  -  Banjo, Guitar, Piano, Keyboards, Vocals, Producer, Design 
+Roger Taylor  -  Percussion, Drums, Vocals 
+John Anthony  -  Producer 
+Louie Austin  -  Recorder, Engineer 
+Roy Baker  -  Producer, Engineer 
+John Deacon  -  Bass, Guitar, Guitar (Bass) 
+Gary Hellman  -  Remixing 
+David Hentschel  -  Engineer 
+John Luongo  -  Remixing 
+Eddie Schreyer  -  Remastering 
+Ted Sharpe  -  Engineer 
+Mike "Clay" Stone  -  Engineer 
+Douglas Puddifoot  -  Design, Photography 
+
+
+
+### "Queen II" 1974, Hard Rock
+
+   1.   Procession - 1:12 
+   2.   Father to Son (May) - 6:12 
+   3.   White Queen (As It Began) (May) - 4:33 
+   4.   Some Day One Day (May) - 4:21 
+   5.   The Loser in the End (Taylor) - 4:01 
+   6.   Ogre Battle (Mercury) - 4:08 
+   7.   Fairy Feller's Master-Stroke (Mercury) - 2:39 
+   8.   Nevermore (Mercury) - 1:17 
+   9.   The March of the Black Queen (Mercury) - 6:03 
+   10.   Funny How Love Is (Mercury) - 3:14 
+   11.   Seven Seas of Rhye (Mercury) - 2:48 
+   12.   See What a Fool I've Been [Original B-Side] (May) - 4:32 
+   13.   Ogre Battle [Remix] (Mercury) - 3:30 
+   14.   Seven Seas of Rhye [Remix] (Mercury) - 6:36 
+
+
+ 
+Freddie Mercury  -  Piano, Harpsichord, Vocals 
+Queen  -  Producer, Cover Design 
+Brian May  -  Guitar, Piano, Vocals, Bells 
+Roger Taylor  -  Percussion, Vocals 
+Roy Thomas Baker  -  Castanets, Producer 
+Freddy Bastone  -  Producer, Remixing 
+Robin Geoffrey Cable  -  Producer 
+John Deacon  -  Guitar (Acoustic), Bass, Guitar, Guitar (Bass) 
+Nick Sansano  -  Producer, Remixing 
+Eddie Schreyer  -  Digital Remastering 
+Mike "Clay" Stone  -  Engineer 
+Mick Rock  -  Art Direction, Photography, Cover Design 
+Ridgeway Watt  -  Typography 
+
+
+
+### "Sheer Heart Attack" 1974, Hard Rock
+
+   1.   Brighton Rock (May) - 5:08 
+   2.   Killer Queen (Mercury) - 2:57 
+   3.   Tenement Funster (Taylor) - 2:48 
+   4.   Flick of the Wrist (Mercury) - 3:46 
+   5.   Lily of the Valley (Mercury) - 1:43 
+   6.   Now I'm Here (May) - 4:10 
+   7.   In the Lap of the Gods (Mercury) - 3:20 
+   8.   Stone Cold Crazy (Deacon/May/Mercury/Taylor) - 2:12 
+   9.   Dear Friends (May) - 1:07 
+   10.   Misfire (Deacon) - 1:50 
+   11.   Bring Back That Leroy Brown (Mercury) - 2:13 
+   12.   She Makes Me (Stormtrooper in Stilettoes) (May) - 4:08 
+   13.   In the Lap of the Gods Revisited (Mercury) - 3:42 
+   14.   Stone Cold Crazy [1991 Bonus Remix by Michael Wagener] - 2:12 
+
+
+
+ 
+Freddie Mercury  -  Piano, Vocals 
+Queen  -  Producer 
+Brian May  -  Banjo, Guitar, Piano, Keyboards, Ukulele, Vocals 
+Roger Taylor  -  Percussion, Drums, Vocals, Screams 
+Roy Thomas Baker  -  Producer 
+John Deacon  -  Guitar (Acoustic), Bass, Fiddle, Guitar, Guitar (Bass), Double Bass 
+Mike "Clay" Stone  -  Engineer 
+
+
+
+### "A Night at the Opera" 1975, Hard Rock
+
+   1.   Death on Two Legs (Dedicated to...) - 3:43 
+   2.   Lazing on a Sunday Afternoon (Mercury/Queen) - 1:08 
+   3.   I'm in Love With My Car (Queen/Taylor) - 3:05  
+   4.   You're My Best Friend (Deacon/Queen) - 2:50  
+   5.   '39 (Queen) - 3:25 
+   6.   Sweet Lady (May/Queen) - 4:01 
+   7.   Seaside Rendezvous (Mercury/Queen) - 2:13 
+   8.   Prophet's Song (Queen) - 8:17 
+   9.   Love of My Life - 3:38 
+   10.   Good Company (May/Queen) - 3:26 
+   11.   Bohemian Rhapsody (Mercury/Queen) - 5:55 
+   12.   God Save the Queen (Queen) - 1:11 
+   13.   I'm in Love With My Car [#/*] (Queen/Taylor) - 3:05 
+   14.   You're My Best Friend [#/*] (Deacon/Queen) - 2:50 
+
+
+Freddie Mercury  -  Piano, Vocals, Orchestration 
+Queen  -  Arranger, Composer, Producer 
+Brian May  -  Banjo, Guitar, Harmonica, Keyboards, Ukulele, Vocals, Koto 
+Roger Taylor  -  Percussion, Drums, Vocals 
+Roy Thomas Baker  -  Producer 
+David Costa  -  Art Direction 
+John Deacon  -  Bass, Guitar, Bass (Electric), Piano (Electric), Double Bass 
+Gary Lyons  -  Engineer 
+Marcia McGovern  -  Pre-Production 
+Steve Hoffman  -  Remastering 
+Jean Lusby  -  Layout Design 
+
+
+
+### "A Day at the Races" 1976, Hard Rock
+
+   1.   Tie Your Mother Down (May) - 4:46 
+   2.   You Take My Breath Away (Mercury) - 4:40 
+   3.   Long Away (May) - 3:55 
+   4.   The Millionaire Waltz (Mercury) - 4:52 
+   5.   You and I (Deacon) - 3:23 
+   6.   Somebody to Love (Mercury) - 4:57 
+   7.   White Man (May) - 4:56 
+   8.   Good Old Fashioned Lover Boy (Mercury) - 2:54 
+   9.   Drowse (Taylor) - 3:41 
+   10.   Teo Torriatte (Let Us Cling Together) (May) - 5:51 
+   11.   Tie Your Mother Down [*] (May) - 3:44 
+   12.   Somebody to Love [*] (Mercury) - 5:00 
+
+
+ 
+Cream  -  Coordination 
+Freddie Mercury  -  Piano, Vocals, Choir, Chorus, Producer, Choir Master 
+Queen  -  Producer 
+Brian May  -  Banjo, Guitar, Piano, Harmonium, Keyboards, Leader, Vocals, Choir, Chorus, Producer, Slide Guitar, Fender Rhodes, Introduction 
+Roger Taylor  -  Percussion, Drums, Vocals, Choir, Chorus, Noise, Producer, Electric Percussion 
+David Costa  -  Art Direction 
+John Deacon  -  Guitar (Acoustic), Bass, Guitar, Bass (Electric), Guitar (Bass), Producer 
+John Harris  -  Supervisor 
+Mike "Clay" Stone  -  Vocals, Engineer 
+Mick Stone  -  Vocals, Engineer 
+Matt Wallace  -  Remixing 
+Randy Badazz  -  Remixing 
+Peter Brown  -  Coordination 
+
+
+
+### "News of the World" 1977, Hard Rock
+
+   1.   We Will Rock You (May) - 2:01 
+   2.   We Are the Champions (Mercury) - 2:59 
+   3.   Sheer Heart Attack (Taylor) - 3:24 
+   4.   All Dead, All Dead (May) - 3:09 
+   5.   Spread Your Wings (Deacon) - 4:32 
+   6.   Fight from the Inside (Taylor) - 3:03 
+   7.   Get Down, Make Love (Mercury) - 3:51 
+   8.   Sleeping on the Sidewalk (May) - 3:07 
+   9.   Who Needs You (Deacon) - 3:07 
+   10.   It's Late (May) - 6:27 
+   11.   My Melancholy Blues (Mercury) - 3:29 
+   12.   We Will Rock You [*] (May) - 4:47 
+
+
+Freddie Mercury  -  Piano, Vocals 
+Queen  -  Producer 
+Brian May  -  Banjo, Guitar, Keyboards, Vocals, Vocals (bckgr) 
+Roger Taylor  -  Drums, Vocals, Vocals (bckgr) 
+John Deacon  -  Bass, Guitar, Guitar (Bass) 
+Mike "Clay" Stone  -  Producer, Engineer, Assistant Producer 
+Kevin Metcalfe  -  Remastering 
+Frank Kelly Freas  -  Artwork 
+Peter Brown  -  Coordination 
+
+
+
+### "Jazz" 1978, Hard Rock
+
+   1.   Mustapha - 3:05 
+   2.   Fat Bottomed Girls (May) - 4:12 
+   3.   Jealousy (Mercury) - 3:15 
+   4.   Bicycle Race (Mercury) - 3:05 
+   5.   If You Can't Beat Them (Deacon) - 4:17 
+   6.   Let Me Entertain You (Mercury) - 3:02 
+   7.   Dead on Time (May) - 3:28 
+   8.   In Only Seven Days (Deacon) - 2:27 
+   9.   Dreamer's Ball (May) - 3:32 
+   10.   Fun It (Taylor) - 3:18 
+   11.   Leaving Home Ain't Easy (May) - 3:13 
+   12.   Don't Stop Me Now (Mercury) - 3:44 
+   13.   More of the Jazz (Taylor) - 4:13 
+   14.   Fat Bottomed Girls [*] (May) - 4:22 
+   15.   Bicycle Race [*] (Mercury) - 4:59 
+
+
+Cream  -  Cover Design 
+Freddie Mercury  -  Piano, Vocals 
+Queen  -  Producer, Artwork 
+Brian May  -  Banjo, Guitar, Keyboards, Vocals 
+Roger Taylor  -  Drums, Vocals 
+Roy Thomas Baker  -  Producer 
+John Deacon  -  Bass, Guitar 
+John Etchells  -  Engineer 
+Eddie Schreyer  -  Remastering 
+Geoff Workman  -  Engineer 
+
+
+
+### "The Game" 1980, Hard Rock
+
+   1.   Play the Game (Mercury) - 3:32 
+   2.   Dragon Attack (May) - 4:15 
+   3.   Another One Bites the Dust (Deacon) - 3:03 
+   4.   Need Your Loving Tonight (Deacon) - 2:48 
+   5.   Crazy Little Thing Called Love (Mercury) - 2:44 
+   6.   Rock It (Prime Jive) (Taylor) - 4:32 
+   7.   Don't Try Suicide (Mercury) - 3:52 
+   8.   Sail Away Sweet Sister (To the Sister I... (May) - 3:32 
+   9.   Coming Soon (Taylor) - 2:49 
+   10.   Save Me (May) - 3:42 
+   11.   Dragon Attack [*] (May) - 4:20 
+
+
+Cream  -  Design 
+Freddie Mercury  -  Piano, Vocals 
+Queen  -  Producer, Concept 
+Brian May  -  Banjo, Guitar, Keyboards, Vocals 
+Roger Taylor  -  Drums, Vocals 
+John Deacon  -  Bass, Guitar 
+Eddie Schreyer  -  Remastering 
+Josh MacRae  -  Producer, Engineer 
+
+
+
+### "Flash Gordon" 1981, Hard Rock
+
+   1.   Flash's Theme (May) - 3:29 
+   2.   In the Space Capsule (The Love Theme) (Taylor) - 2:42 
+   3.   Ming's Theme (In Court of Ming the... (Mercury) - 2:40 
+   4.   The Ring (Hypnotic Seduction of Dale) (Mercury) - :57 
+   5.   Football Fight (Mercury) - 1:28 
+   6.   In the Death Cell (Love Theme Reprise) (Taylor) - 2:24 
+   7.   Execution of Flash (Deacon) - 1:05 
+   8.   The Kiss (Aura Resurrects Flash) (Mercury) - 1:44 
+   9.   Arboria (Planet of the Tree Men) (Deacon) - 1:41 
+   10.   Escape from the Swamp (Taylor) - 1:43 
+   11.   Flash to the Rescue (May) - 2:44 
+   12.   Vultan's Theme (Attack of the Hawk Men) (Mercury) - 1:12 
+   13.   Battle Theme (May) - 2:18 
+   14.   The Wedding March (May) - :56 
+   15.   Marriage of Dale and Ming (And Flash... (May/Taylor) - 2:04 
+   16.   Crash Dive on Mingo City (May) - 1:00 
+   17.   Flash's Theme Reprise (Victory... (May) - 1:23 
+   18.   The Hero (May) - 3:31 
+   19.   Flash's Theme - 6:42 
+
+
+Cream  -  Artwork 
+Freddie Mercury  -  Synthesizer, Piano, Vocals 
+Queen  -  Arranger, Executive Producer 
+Brian May  -  Synthesizer, Banjo, Guitar, Keyboards, Vocals, Producer 
+Roger Taylor  -  Synthesizer, Drums, Vocals 
+John Deacon  -  Synthesizer, Bass, Guitar, Guitar (Bass) 
+Alan Douglas  -  Engineer, Mixing 
+John Richards  -  Engineer 
+Eric Tomlinson  -  Engineer 
+Neal Preston  -  Photography 
+Howard Blake  -  Arranger, Conductor 
+Josh MacRae  -  Producer, Engineer, Mixing 
+
+
+
+### "Hot Space" 1982, Hard Rock
+
+   1.   Staying Power (Mercury) - 4:10 
+   2.   Dancer (May) - 3:46 
+   3.   Back Chat (Deacon) - 4:31 
+   4.   Body Language (Mercury) - 4:29 
+   5.   Action This Day (Taylor) - 3:32 
+   6.   Put Out the Fire (May) - 3:18 
+   7.   Life Is Real (Song for Lennon) (Mercury) - 3:28 
+   8.   Calling All Girls (Taylor) - 3:50 
+   9.   Las Palabras de Amor (The Words of Love) (May) - 4:26 
+   10.   Cool Cat (Deacon/Mercury) - 3:26 
+   11.   Under Pressure (Bowie/Queen) - 4:02 
+   12.   Body Language [*] (Mercury) - 4:45 
+
+
+ 
+David Bowie  -  Vocals, Producer, Performer 
+Freddie Mercury  -  Piano, Vocals, Concept 
+Queen  -  Producer 
+Brian May  -  Banjo, Guitar, Keyboards, Vocals 
+Roger Taylor  -  Drums, Vocals 
+John Deacon  -  Bass, Guitar 
+Arif Mardin  -  Arranger, Producer 
+George Marino  -  Engineer 
+Queen/Mack  -  Producer 
+Susan Rogers  -  Remixing 
+Steven Miller  -  Artwork 
+Simon Fowler  -  Photography 
+Norm Ung  -  Artwork 
+Kevin Metcalfe  -  Remastering 
+Josh MacRae  -  Producer, Engineer 
+John Barr  -  Artwork 
+
+
+
+### "The Works" 1984, Hard Rock
+
+   1.   Radio Ga Ga (Taylor) - 5:49 
+   2.   Tear It Up (May) - 3:28 
+   3.   It's a Hard Life (Mercury) - 4:08 
+   4.   Man on the Prowl (Mercury) - 3:28 
+   5.   Machines (Back to Humans) (May/Taylor) - 5:10 
+   6.   I Want to Break Free (Deacon) - 3:20 
+   7.   Keep Passing the Open Windows (Mercury) - 5:21 
+   8.   Hammer to Fall (May) - 4:28 
+   9.   Is This the World We Created...? (May/Mercury) - 2:13 
+   10.   I Go Crazy [*] (May) - 3:42 
+   11.   Radio Ga Ga [Extended Version] (Taylor) - 6:50 
+   12.   I Want to Break Free [Extended Mix] (Deacon) - 7:12 
+
+
+ 
+Freddie Mercury  -  Piano, Vocals 
+Queen  -  Producer 
+Brian May  -  Banjo, Guitar, Keyboards, Vocals 
+Roger Taylor  -  Drums, Vocals 
+Michael Beiriger  -  Engineer 
+John Deacon  -  Bass, Guitar 
+Fred Mandel  -  Synthesizer, Piano 
+Josh MacRae  -  Producer, Engineer 
+
+
+
+### "A Kind of Magic" 1986, Hard Rock
+
+   1.   One Vision (Queen) - 5:08 
+   2.   A Kind of Magic (Taylor) - 4:23 
+   3.   One Year of Love (Deacon) - 4:26 
+   4.   Pain Is So Close to Pleasure (Deacon/Mercury) - 4:19 
+   5.   Friends Will Be Friends (Deacon/Mercury) - 4:07 
+   6.   Who Wants to Live Forever (May) - 5:13 
+   7.   Gimme the Prize (May) - 4:32 
+   8.   Don't Lose Your Head (Taylor) - 4:35 
+   9.   Princes of the Universe (Mercury) - 3:30 
+   10.   Forever [*] - 3:20 
+   11.   One Vision [*] (Queen) - 6:23 
+
+
+Joan Armatrading  -  Vocals 
+Freddie Mercury  -  Keyboards, Vocals 
+Queen  -  Producer 
+Michael Kamen  -  Orchestration 
+Brian May  -  Guitar, Keyboards, Vocals, Fender Rhodes 
+Roger Taylor  -  Drums, Keyboards, Vocals 
+National Philharmonic Orchestra  -  Orchestra 
+John Deacon  -  Guitar, Guitar (Bass), Keyboards 
+Spike Edney  -  Keyboards 
+Steve Gregory  -  Saxophone 
+Lynton Naiff  -  String Arrangements 
+Dave Richards  -  Producer 
+Eddie Schreyer  -  Digital Remastering 
+Eric Tomlinson  -  Engineer 
+Mike Smith  -  Illustrations 
+David Richards  -  Producer 
+Chuck Gamage  -  Illustrations 
+Peter Hince  -  Photography 
+Richard Gray  -  Design 
+Josh MacRae  -  Producer 
+Roger Chiasson  -  Illustrations 
+
+
+
+### "The Miracle" 1989, Hard Rock
+
+   1.   Party - 2:24 
+   2.   Khashoggi's Ship - 2:47 
+   3.   Miracle (Queen) - 5:02 
+   4.   I Want It All (Queen) - 4:40 
+   5.   Invisible Man (Queen) - 3:56 
+   6.   Breakthru (Queen) - 4:07 
+   7.   Rain Must Fall - 4:20 
+   8.   Scandal - 4:42 
+   9.   My Baby Does Me - 3:22 
+   10.   Was It All Worth It - 5:45 
+   11.   Hang on in There - 3:46 
+   12.   Chinese Torture - 1:46 
+   13.   Invisible Man [12" Version] (Queen) - 5:29 
+   14.   Scandal [12" Mix] - 6:34 
+
+
+
+
+
+### "Innuendo" 1991, Hard Rock
+
+   1.   Innuendo (Queen) 
+   2.   I'm Gowing Slightly Mad (Queen) 
+   3.   Headlong (Queen) 
+   4.   I Can't Live With You (Queen) 
+   5.   Don't Try So Hard (Queen) 
+   6.   Ride the Wild Wind (Queen) 
+   7.   All God's People (Moran/Queen) 
+   8.   These Are the Days of Our Lives (Queen) 
+   9.   Delilah (Queen) 
+   10.   The Hitman (Queen) 
+   11.   Bijou (Queen) 
+   12.   The Show Must Go On (Queen) 
+
+
+Steve Howe  -  Guitar, Photography 
+Freddie Mercury  -  Keyboards, Vocals 
+Queen  -  Producer 
+Brian May  -  Guitar, Keyboards, Vocals, Harmony Vocals 
+Mike Moran  -  Keyboards, Spanish Guitar 
+Dave Richards  -  Producer 
+Justin Shirley-Smith  -  Assistant Engineer 
+Ludwig  -  Percussion, Drums 
+Simon Fowler  -  Photography 
+Noel Haris  -  Assistant Engineer 
+David Richards  -  Programming, Producer, Engineer 
+Kevin Metcalfe  -  Mastering 
+Richard Gray  -  Cover Design 
+
+
+
+### "Made in Heaven" 1995, Hard Rock
+
+   1.   It's a Beautiful Day (Queen) - 2:32 
+   2.   Made in Heaven (Mercury) - 5:25 
+   3.   Let Me Live (Queen) - 4:45 
+   4.   Mother Love (May/Mercury) - 4:49 
+   5.   My Life Has Been Saved (Queen) - 3:15 
+   6.   I Was Born to Love You (Mercury) - 4:49 
+   7.   Heaven for Everyone (Taylor) - 5:36 
+   8.   Too Much Love Will Kill You (Lamers/May/Musker) - 4:20 
+   9.   You Don't Fool Me (Queen) - 5:24 
+   10.   A Winter's Tale (Queen) - 3:49 
+   11.   It's a Beautiful Day (Reprise) (Queen) - 3:01 
+   12.   Yeah - :04 
+   13.   - 22:32 
+
+
+
+Freddie Mercury  -  Piano, Keyboards, Vocals 
+Queen  -  Arranger, Producer, Sleeve Design 
+Brian May  -  Guitar, Keyboards, Vocals 
+Roger Taylor  -  Percussion, Drums, Keyboards, Vocals 
+Katherine Anne Porter  -  Vocals (bckgr) 
+Gary Martin  -  Vocals (bckgr) 
+John Deacon  -  Guitar (Bass), Keyboards 
+Darryl Richards  -  Producer, Engineer 
+Miriam Stockley  -  Vocals (bckgr) 
+Justin Shirley-Smith  -  Vocals (bckgr), Producer, Engineer 
+Neal Preston  -  Photography 
+David Richards  -  Producer, Engineer, Mixing Supervision 
+Kevin Metcalfe  -  Mastering 
+Richard Gray  -  Artwork, Cover Photo, Sleeve Design 
+Josh MacRae  -  Producer, Engineer 
+White-Leigh Legal  -  Vocals (bckgr) 
+Catherine Porter  -  Vocals (bckgr) 
+Douglas Puddifoot  -  Photography 
+Irena Sedlecka  -  Sculpture 
+Catherine Stockly  -  Vocals (bckgr) 
+
+
+
+### "Magic Moments (DVD)" 2004, Hard Rock
+
+
+
+### "Queen Forever" 2014, Rock
+
+CD 1
+ Let Me In Your Heart Again
+ Love Kills – The Ballad
+ There Must Be More To Life Than This (William Orbit Mix)
+ It’s A Hard Life
+ You’re My Best Friend
+ Love Of My Life
+ Drowse
+ Long Away
+ Lily Of The Valley
+ Don’t Try So Hard
+ Bijou
+ These Are The Days Of Our Lives
+ Las Palabras De Amor
+ Who Wants To Live Forever
+ A Winter’s Tale
+ Play The Game
+ Save Me
+ Somebody To Love
+ Too Much Love Will Kill You
+ Crazy Little Thing Called Love
+
+CD2
+ I Was Born To Love You
+ Somebody To Love
+ Crazy Little Thing Called Love
+ Friends Will Be Friends
+ Jealousy
+ One Year of Love
+ A Winters Tale
+ '39
+ Mother Love
+ It’s A Hard Life
+ Save Me
+ Made in Heaven
+ Too Much Love Will Kill You
+ Sail Away Sweet Sister
+ The Miracle
+ Is This The World We Created
+ In The Lap Of The Gods… Revisited
+ Forever
+
+
 
 ## Отношения с другими группами
 

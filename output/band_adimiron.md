@@ -1,9 +1,47 @@
 # Adimiron
 
-Дискография
-"Burningsouls" 2004, Techno Death
-"When Reality Wakes Up" 2008, Techno Death
-"K2" 2011, Techno Death
+italian death/black metal act
+
+## Дискография
+
+### "Burningsouls" 2004, Techno Death
+
+Delirium Tremehens
+New Day DEnied
+Cold Anxienty
+Forgotten Memories
+Suffering Voices
+Obsessive Insanity
+Endless Worlds
+Unexpected Life
+
+### "When Reality Wakes Up" 2008, Techno Death
+
+1. Desperates
+2. Wrong Side of the Town
+3. Forgiveness
+4. Choice For a Mask
+5. Mindoll
+6. Das Experiment
+7. Spitfire
+8. When Reality Wakes Up	 
+9. Still Winter Within
+10. Endeavouring
+11. The Flag of Sinners
+
+### "K2" 2011, Techno Death
+
+1. Oriens		 
+2. Where Nothing Changes		 
+3. Vertical Limit		 
+4. Passenger		 
+5. The Whisperer		 
+6. To Whom It May Concern		 
+7. Above The Rest		 
+8. The Red Condition		 
+9. Servant’s Poem		 
+10. Thou Walk Eternal
+
 
 ## Отношения с другими группами
 

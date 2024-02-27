@@ -1,29 +1,101 @@
 # Zero Nine
 
-Дискография
-"Down The Line/Suzanne /EP/" 1980, Hard Rock
-"I'm Gonna Try/In The Drizzlin' Rain /EP/" 1981, Hard Rock
-"Angel/I Don't Wanna See You So Dejected /EP/" 1982, Hard Rock
-"Blank Verse" 1982, Hard Rock
-"Vision, Scenes And Dreams" 1982, Hard Rock
-"Much Too Young (To Rock'N'Roll)/I Wanna Give You My Love /EP/" 1983, Hard Rock
-"Run To The Lights/Magic Dream /EP/" 1984, Hard Rock
-"Walk Away/Seven Days Of Love /EP/" 1984, Hard Rock
-"Headline" 1984, Hard Rock
-"Never Stop Runnin'/So Hot /EP/" 1985, Hard Rock
-"River Deep, Mountain High/Never Stop Runnin' /EP/" 1985, Hard Rock
-"White Lines/Talk Like A Lover /EP/" 1985, Hard Rock
-"White Lines" 1985, Hard Rock
-"Bangin' On Drums/To The Mountain /EP/" 1986, Hard Rock
-"Intrigue" 1986, Hard Rock
-"Zero Nine/Boycott /split/" 1987, Hard Rock
-"Hold Your Punches/Baby Don't Stop /EP/" 1988, Hard Rock
-"Voodoo You/Total Blackout /EP/" 1988, Hard Rock
-"Voodoo You" 1988, Hard Rock
-"Pretty Baby /EP/" 1991, Hard Rock
-"Freakshow" 1996, Hard Rock
-"Key To The Paradise/Rocktalk /EP/" 2004, Hard Rock
-"NE Files" 2004, Hard Rock
+
+
+## Дискография
+
+### "Down The Line/Suzanne /EP/" 1980, Hard Rock
+
+
+
+### "I'm Gonna Try/In The Drizzlin' Rain /EP/" 1981, Hard Rock
+
+
+
+### "Angel/I Don't Wanna See You So Dejected /EP/" 1982, Hard Rock
+
+
+
+### "Blank Verse" 1982, Hard Rock
+
+
+
+### "Vision, Scenes And Dreams" 1982, Hard Rock
+
+
+
+### "Much Too Young (To Rock'N'Roll)/I Wanna Give You My Love /EP/" 1983, Hard Rock
+
+
+
+### "Run To The Lights/Magic Dream /EP/" 1984, Hard Rock
+
+
+
+### "Walk Away/Seven Days Of Love /EP/" 1984, Hard Rock
+
+
+
+### "Headline" 1984, Hard Rock
+
+
+
+### "Never Stop Runnin'/So Hot /EP/" 1985, Hard Rock
+
+
+
+### "River Deep, Mountain High/Never Stop Runnin' /EP/" 1985, Hard Rock
+
+
+
+### "White Lines/Talk Like A Lover /EP/" 1985, Hard Rock
+
+
+
+### "White Lines" 1985, Hard Rock
+
+
+
+### "Bangin' On Drums/To The Mountain /EP/" 1986, Hard Rock
+
+
+
+### "Intrigue" 1986, Hard Rock
+
+
+
+### "Zero Nine/Boycott /split/" 1987, Hard Rock
+
+
+
+### "Hold Your Punches/Baby Don't Stop /EP/" 1988, Hard Rock
+
+
+
+### "Voodoo You/Total Blackout /EP/" 1988, Hard Rock
+
+
+
+### "Voodoo You" 1988, Hard Rock
+
+
+
+### "Pretty Baby /EP/" 1991, Hard Rock
+
+
+
+### "Freakshow" 1996, Hard Rock
+
+
+
+### "Key To The Paradise/Rocktalk /EP/" 2004, Hard Rock
+
+
+
+### "NE Files" 2004, Hard Rock
+
+
+
 
 ## Отношения с другими группами
 

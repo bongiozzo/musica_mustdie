@@ -1,12 +1,110 @@
 # Deinonychus
 
-Дискография
-"The Silence Of December" 1995, Black Metal
-"The Weeping Of A Thousand Years" 1996, Black Metal
-"Ark Of Thought" 1998, Metal
-"Deinonychus" 2000, Metal
-"Mournument" 2002, Metal
-"Insomnia" 2004, Doom
+
+
+## Дискография
+
+### "The Silence Of December" 1995, Black Metal
+
+1. Intro - Black Sun
+2. I, Ruler Of Paradise In Black
+3. The Silence Of December
+4. The Final Affliction Of Xafan
+5. A Shining Blaze Over Darkland
+6. Under The Autumn Tree
+7. Here Lies My Kingdom
+[8]. My Travels Through The Midnight Sky
+[9].Red Is My Blood...Cold Is My Heart
+[10].Outro - Bizarre Landscape
+
+[8]-[10] На Стороне B
+
+All Songs Written By Odin.
+Co-Vocals By Sephiroth Of OCCULT.
+Keyboards Orchestration  Composed  &
+Played By John Bartels.
+
+(P)&(C) 1995 CACOPHONOUS Records
+
+### "The Weeping Of A Thousand Years" 1996, Black Metal
+
+1. The Romantic Sounds Of Death
+2. A Gathering Of Memories
+3. Upon The Highlands I Fought
+4. A Last Lament
+5. I Have Done As You Did
+6. Lost Forever
+[7].The Awakened
+[8].The Gothic Statue
+
+[7]-[8] На Стороне B
+
+All Songs Written By Odin.
+Produced & Engineered By John Bartels & Odin.
+Keyboards Orchestration Composed  & Played By John Bartels.
+
+(P)(C) 1996 CACOPHONOUS Records
+
+### "Ark Of Thought" 1998, Metal
+
+1. Chrysanthemums In Bloom
+2. Revelation
+3. My Days Until
+4. Oceans Of Soliloquy
+5. Serpent Of Old
+6. Leviathan
+7. The Fragrant Thorns Of Roses
+8. Birth And The Eleventh Moon
+Recorded, mixed & mastered: at Tercel Studio (Voerendaal, Holland) by Marco Kehren and John Bartels
+Line-up: Marco Kehren (all instruments) - guest appearances by: John Bartels (keyboards)
+Artwork and Layout: Alex Kurtagic
+
+### "Deinonychus" 2000, Metal
+
+1. You Died Before I Was Finished
+2. Inspiring Vulnerable Thought
+3. One Day
+4. Building the Paradox
+5. This, A Murder Of Crows
+6. Balaam Wore Black
+7. The Hollow Cage of My Ribs
+8. Why is it That Angels Speak Such Evil?
+Recorded, mixed & mastered: at Hopeless Sound Recordings (Holland) by Marco Kehren and Indesjpeegelkieke (engineering and mix) and Christoph Dobberstein (mastering)
+Line-up: Marco Kehren (all stringulations and communications), William A. Sarginson (drumathology and bells of St. Mark) - guest appearances by: Indesjpeegelkieke (additional keys transplants)
+Artwork and Layout: Volkmar Weber / Lynch253 Designs
+
+### "Mournument" 2002, Metal
+
+1. Pluto’s Ovoid Orbit 
+2. Salus Deceived
+3. Odourless Alliance
+4. Tantalised In This Labyrinth
+5. The Crimson Tides-Oceans Of Soliloquy pt.II
+6. Selek From Menes
+7. A Misleading Scenario
+8. The Obscure Process Of Metamorphus
+9. Arrival In Mesopotamia
+10. Ancient Dreams
+11. Ascension-The 40th Day After Easter
+
+### "Insomnia" 2004, Doom
+
+1. Nightfall Guides Insomnia To An Everlasting Mental Torture, With This Being The Consequence
+2. We Have Uncovered A Question And Now We Must Unearth The Answer
+3. Long I Feared That My Sins Would Return To Visit Me, And The Cost Is More Than I Can Bear 
+4. To Diagnose The Fortunes Of Paranoia Consuming Consciousness And Sanity 
+5. Reasons To Open Your Eyelids And Awake The Apocalypse Iris Is Telling You
+
+
+
+Recorded, mixed & mastered at The Outer Sound Studio (Rome, Italy) 
+by Giuseppe Orlando (engineering and mix), Valerio (co-engineering and mix) and Marco Kehren (mix)
+
+Line-up: 
+Marco Kehren (7-string guitars, 5-string bass, vocals) 
+guest appearances by: 
+Alessio Fagrelli (keyboards), Steve Wolz (drums), Giuseppe Orlando (drums)
+
 
 ## Отношения с другими группами
 

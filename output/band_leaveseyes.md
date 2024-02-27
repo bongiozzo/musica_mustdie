@@ -1,15 +1,146 @@
 # Leaves' Eyes
 
-Дискография
-"Lovelorn" 2004, Gothic
-"Vinland Saga" 2005, Gothic
-"Elegy (mini-album)" 2005, Gothic
-"Njord" 2009, Gothic
-"Melusine (EP)" 2011, Gothic
-"Meredead" 2011, Gothic
-"Symphonies of the Night" 2013, Gothic
-"King of Kings" 2015, Gothic
-"The Waking Eye (single)" 2015, Gothic
+feat. Alex Krull and Liv Kristine
+
+## Дискография
+
+### "Lovelorn" 2004, Gothic
+
+01. Norwegian Lovesong (demo clip)
+02. Tale of the Sea Maid
+03. Ocean's Way
+04. Lovelorn
+05. The Dream
+06. Secret
+07. For Amelie
+08. Temptation
+09. Into Your Light
+10. Return to Life
+
+### "Vinland Saga" 2005, Gothic
+
+1. Vinland Saga
+2. Farewell Proud Men
+3. Elegy
+4. Solemn Sea
+5. Leaves' Eyes
+6. The Thorn
+7. Misseri (Turn Green Meadows into Grey)
+8. AmhrАn (Song of the Winds)
+9. New Found Land
+10. Mourning Tree
+11. Twilight Sun
+12. Ankomst
+13. Elegy Video Clip
+
+### "Elegy (mini-album)" 2005, Gothic
+
+1. Elegy (Single version)
+2. Senses Capture (Non-album track)
+3. A Winter's Poem (Non-album track)
+4. Solemn Sea (Demo version)
+5. Mot Fjerne Land (Non-album track)
+6. Elegy (Album version)
+
+### "Njord" 2009, Gothic
+
+1. Njord 06:14  
+2. My Destiny 04:13  
+3. Emerald Island 05:24  
+4. Take The Devil In Me 03:51  
+5. Scarborough Fair 04:04  
+6. Through Our Veins 03:40  
+7. Irish Rain 04:01  
+8. Northbound 04:23  
+9. Ragnarok 05:11  
+10. Morgenland 02:54  
+11. The Holy Bond 03:41  
+12. Forya's Theme 08:20  
+13. Landscape Of The Dead (Bonus Track)   
+14. Les Champs De Lavande (Bonus Track) 
+
+
+Line-up:
+Liv Kristine Espenжs Krull - Vocals
+Alexander Krull - Vocals, Keyboards, Programming
+Thorsten Bauer - Guitars
+Mathias Rцderer - Guitars
+Alla Fedynitch - Bass
+Seven Antonopoulos - Drums
+
+
+Tracks 13 and 14 can be found as a bonus on the limited edition digipak. 
+
+### "Melusine (EP)" 2011, Gothic
+
+1. Melusine (Exclusive Non-Album-Song)  03:34    
+2. To France (Sonic Mix)  04:38    
+3. Tell-Tale Eyes (Alternate Version)  03:58    
+4. The Battle Of Maldon (Remastered Version)  04:23    
+5. Legend Land (Acoustic Version)  03:46  
+
+
+The EP contains exclusive tracks and versions of songs which have not been released in this form previously. 
+The smashing titletrack was recorded only for this EP.
+
+Produced by Alexander Krull at Mastersound Studio 
+
+
+### "Meredead" 2011, Gothic
+
+1. Spirits’ Masquerade  06:29    
+2. Etain  03:58    
+3. Velvet Heart  03:42    
+4. Krakevisa  04:34    
+5. To France  04:37   
+6. Meredead  05:19   
+7. Sigrlinn  08:49    
+8. Mine Taror er ei Grimme  02:54    
+9. Empty Horizon  04:56    
+10. Veritas  00:50    
+11. Nystev  04:40    
+12. Tell-Tale Eyes  03:55    
+13. Sorhleod (Bonus Track)  05:04 
+
+
+The album includes the cover version of "To France" from Mike Oldfield as well as the Norwegian traditionals "Krеkevisa" and "Nystev.
+
+The Limited Edition Mediabook CD incl. Bonus Track and Bonus DVD Live at The Metal Female Voices Festival 2010 + Pendant (Celtic Cross with LE Branding)
+
+DVD:
+Live at the MFVF VIII 2010
+1. Njord
+2. My Destiny
+3. Ragnarok
+4. Elegy
+5. Froya's Theme 
+
+
+
+### "Symphonies of the Night" 2013, Gothic
+
+
+
+### "King of Kings" 2015, Gothic
+
+1. Sweven  02:03    
+2. King of Kings  04:47    
+3. Halvdan the Black  04:22    
+4. The Waking Eye  04:41    
+5. Feast of the Year  00:37    
+6. Vengeance Venom  03:17    
+7. Sacred Vow  04:20    
+8. Edge of Steel  05:06    
+9. Haraldskvжрi  03:24    
+10. Blazing Waters  07:30    
+11. Swords in Rock  03:01    
+12. Spellbound  * 04:06    
+13. Trail of Blood  * 03:54   
+
+### "The Waking Eye (single)" 2015, Gothic
+
+1. The Waking Eye  04:42  
+
 
 ## Отношения с другими группами
 

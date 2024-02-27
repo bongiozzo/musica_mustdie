@@ -1,10 +1,70 @@
 # Dawn of Dreams
 
-Дискография
-"Amber" 1997, Death Doom
-"Fragments" 1998, Death Doom
-"Eidolon" 2001, Death Doom
-"Out Of The Moment (demo recordings)" 2001, Death Doom
+
+
+## Дискография
+
+### "Amber" 1997, Death Doom
+
+ 1. Like A Sundrop In The Rain
+ 2. Visions
+ 3. Velvet Sands
+ 4. Novembre
+ 5. Imprisoned Sun
+ 6. Remembrance
+ 7. Northwind
+ 8. Wavesome
+ 9. Drowning In Dreams
+
+### "Fragments" 1998, Death Doom
+
+1. I
+2. II Luna
+3. III Sunseth
+4. Autumn
+5. The Serpent
+6. Scarlet
+7. IV
+8. Eve 
+9. Aura
+10. Winterveil 
+11. The Serpent (tribal version) 
+
+### "Eidolon" 2001, Death Doom
+
+1. I
+2. Lost
+3. Eidolon
+4. Benediction
+5. The Wind's Bride
+6. Do we know
+7. Coma
+8. Passion
+9. Dreamcycle
+10. Your Eyes
+11. Breathless 
+
+
+
+Ralph Ammann: keyboards, programming
+Sebastian Goralik: guitars, vocals, programming
+Robert Baum: session drums
+
+
+### "Out Of The Moment (demo recordings)" 2001, Death Doom
+
+1. Picture Of You
+2. He Went Away
+3. Written In The Wind
+4. Tomorrow Dies
+5. No Milk Today
+6. Nearly A Requiem
+7. I Take Your Breath
+8. Devil Inside
+9. A Piece Of Life
+10. Tonight
+11. Something
+
 
 ## Отношения с другими группами
 

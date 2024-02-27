@@ -1,12 +1,134 @@
 # Broken Hope
 
-Дискография
-"Swamped In Gore" 1991, Deathcore
-"The Bowels Of Repugnance" 1993, Deathcore
-"Hobo Stew (EP)" 1993, Deathcore
-"Repulsive Conception" 1995, Deathcore
-"Loathing" 1997, Deathcore
-"Grotesque Blessings" 1999, Deathcore
+Very Brutal Deathcore
+
+## Дискография
+
+### "Swamped In Gore" 1991, Deathcore
+
+1. Borivoj`s Demise
+2. Incinerated
+3. Swamped In Gore
+4. Bag Of Parts
+5. Dismembered Carcass
+6. Devourer Of Souls
+7. Awakened By Stench
+8. Gorehog
+9. Gobblin` The Guts
+10.Cannibal Grave
+11.Claustrophobic Agnostic Dead
+
+ Joe Ptacek - Vocals
+ Ed Hughes - Bass
+ Jeremy Wagner - Guitars
+ Brian Griffin - Guitars
+ Ryan Stanek - Drums
+
+(p)&(c) 1991 GRINDCORE Records
+
+
+### "The Bowels Of Repugnance" 1993, Deathcore
+
+1. Repugnance (Intro)
+2. The Dead Holf
+3. Corpophagia
+4. The Came Out In Chunks
+5. Peeled
+6. Hobo Stew
+7. Decimated Henitalia
+8. Preacher Of Sodomy
+9. Remember My Members
+10.Waterlogged
+11.Embryonic Tri-Clops
+12.Drinking The Ichor
+13.Felching Vampires
+
+ Brian Griffin - Guitars
+ Ed Hughes - Bass
+ Joe Ptacek - Esophagus
+ Ryan Stanek - Drums & Percussion
+ Jeremy Wagner - Guitars
+
+All Songs Written By BROKEN HOPE
+Produced, Engineered & Mixed By Brian Griffin
+Recorded & Mixed At Wave Digital Studios In Gurnee, IL, USA,
+March-May 1993
+
+(p)&(c) 1993 METAL BLADE Records
+
+
+### "Hobo Stew (EP)" 1993, Deathcore
+
+
+
+### "Repulsive Conception" 1995, Deathcore
+
+1. Dilation And Extraction
+2. Grindbox
+3. Chewed To Stubs
+4. Engorged With Impiety
+5. Erotic Zoophilism
+6. Pitbull Grin
+7. Into The Necrosphere
+8. Essence Of  Human Pain
+9. The Internal Twin
+10.Penis Envy
+11.For Only The Sick
+12.Freezerburnt
+13.Imprimus Obscurity
+
+Produced, Engineered & Mixed by  Brian Griffin.
+Recorded November '94 - January '95.
+
+Brian Griffin - Lead & Acoustic Guitar
+Shaun Glass - Bass
+Joe Ptacek - Esophagus
+Ryan Stanck - Drums &t Percussion
+Jeremy Wagner - Rhythm & Acoustic Guitars
+
+(p)(c) 1995 METAL BLADE Records, Inc.
+
+### "Loathing" 1997, Deathcore
+
+1. Siamese Screams
+2. Translucence
+3. The Cloning
+4. Reunited
+5. High On Formaldehyde
+6. A Window To Hell
+7. Skin Is In
+8. Auction Of The Dead
+9. He Was Raped
+10.I Am God
+11.Deadly Embrace
+
+Produced by Brian Griffin.
+Engineered by Brian Griffin and Rob "Shreddface" Stephenson.
+Mixed by Brian Griffin.
+Recorded and Mixed at Choice Recording By Quali-tone Productions.
+Cover artwork by Wes Benscoter.
+
+Brian Griffin - Guitars
+Shaun Glass - Bass
+Ryan Stanek - Drums
+Jeremy Wagner - Guitars
+Joe Ptacek - Esophagus
+
+(P)(C) 1997 METAL BLADE Records
+
+### "Grotesque Blessings" 1999, Deathcore
+
+01. Wolf Among Sheep
+02. Chemically Castrated
+03. Necro-Fellatio
+04. Christ Consumed
+05. War-Maggot
+06. Earth Burner
+07. Internal Inferno
+08. Razor Cunt
+09. Hate Machine
+
+
 
 ## Отношения с другими группами
 

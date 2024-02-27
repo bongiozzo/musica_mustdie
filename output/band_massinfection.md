@@ -1,8 +1,33 @@
 # Mass Infection
 
-Дискография
-"Atonement for Iniquity" 2007, Death Metal
-"The Age of Recreation" 2009, Death Metal
+
+
+## Дискография
+
+### "Atonement for Iniquity" 2007, Death Metal
+
+1. Act of War
+2. Circle
+3. Forced to Encryption
+4. Decay
+5. Penetrate the Odious
+6. Impending Redemption
+7. Eternal Oblivion
+8. Atonement for Iniquity
+9. Heritage
+
+### "The Age of Recreation" 2009, Death Metal
+
+1. Enslave the Earth	 
+2. Furious Annihilation	 
+3. Savagery Incarnate	 
+4. Enthralled in Deception	 
+5. The Vulture's Disposition	 
+6. Fragments of Existence	 
+7. Aggressive Supremacy	 
+8. Aftermath of Hate	 
+9. Equal to Slime
+
 
 ## Отношения с другими группами
 

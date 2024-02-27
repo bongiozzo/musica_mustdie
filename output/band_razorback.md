@@ -1,7 +1,22 @@
 # Razorback
 
-Дискография
-"Animal Anger" 2004, Heavy Metal
+
+
+## Дискография
+
+### "Animal Anger" 2004, Heavy Metal
+
+01. The Hymn
+02. One By One
+03. A New King In Town
+04. Kiss Of Death
+05. Fire And Rain
+06. Release Me
+07. Lone Wolf
+08. The Eye Of The Storm
+09. Bastard
+10. Dead Man's Song
+
 
 ## Отношения с другими группами
 

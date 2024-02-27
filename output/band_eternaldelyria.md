@@ -1,7 +1,22 @@
 # Eternal Delyria
 
-Дискография
-"Letting Go of Humanity" 2016, Black Metal
+
+
+## Дискография
+
+### "Letting Go of Humanity" 2016, Black Metal
+
+1. Praeludium 
+2. A Heavy Heart at Sundown 
+3. Faith Misplaced  
+4. Growing Roots  
+5. Eradication of Solitude and Despair 
+6. Interludium 
+7. Chasing Shadows 
+8. Regrets  
+9. Self-Destruction 
+10. Plagued
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,20 @@
 # Fallen Angels
 
-Дискография
-"Rise From Ashes" 2008, Thrash
+
+
+## Дискография
+
+### "Rise From Ashes" 2008, Thrash
+
+1. Rise From Ashes
+2. Cerebral Infection
+3. Looking Over The Walls Of Despair	
+4. Slaves In Words
+5. The Essence Of Violence
+6. Cries Of The Dying
+7. Silent City	
+8. Massacred By Madness
+
 
 ## Отношения с другими группами
 

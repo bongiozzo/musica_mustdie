@@ -1,8 +1,39 @@
 # Empyrios
 
-Дискография
-"And The Rest Is Silence" 2007, Progressive
-"The Glorious Sickness" 2008, Progressive
+prog-metal
+
+## Дискография
+
+### "And The Rest Is Silence" 2007, Progressive
+
+1. Wreckage (Instrumental)	 
+2. Tort	 
+3. The Ruiner	 
+4. Unbalanced Equilibrium	 
+5. Psycho Terrorism	 
+6. Prelude To The Sleepless Tragedy (Instrumental)	 
+7. Insomnia	 
+8. Eal	 
+9. Perseverance
+10. Losing Myself In The Downward Spiral (Instrumental)	 
+11. Failure Of Eye	 
+12. FarCry (Instrumental)
+
+### "The Glorious Sickness" 2008, Progressive
+
+1. The Eve Arose
+2. Psg
+3. Pandaemonium
+4. Hesitation	
+5. Entering The Boulevard
+6. Decadence Parade
+7. Empire
+8. The Glorious Sickness
+9. The Chaosbreeder
+10. Destination: Null
+11. Timelapse
+12. A New Dawn
+
 
 ## Отношения с другими группами
 

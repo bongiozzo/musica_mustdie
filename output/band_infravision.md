@@ -1,7 +1,22 @@
 # Infravision
 
-Дискография
-"This Epileptic Serenity" 2008, Metalcore
+
+
+## Дискография
+
+### "This Epileptic Serenity" 2008, Metalcore
+
+1. Ascending in Vertigo	 
+2. The Virus of Loath	 
+3. Life Disconnected	 
+4. Psychotic Tormentor	 
+5. Damage Per Second	 
+6. Synthetic Plasma	 
+7. 35 mg of Hate	 
+8. Agoraphobic	 
+9. Suicide Machine	 
+10. Descending in Time
+
 
 ## Отношения с другими группами
 

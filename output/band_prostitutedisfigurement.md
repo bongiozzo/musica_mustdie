@@ -1,11 +1,69 @@
 # Prostitute Disfigurement
 
-Дискография
-"Embalmed Madness" 2001, Death Metal
-"Deeds Of Derangement" 2003, Death Metal
-"Left In Grisly Fashion" 2005, Death Metal
-"Descendants Of Depravity " 2008, Death Metal
-"From Crotch to Crown" 2014, Death Metal
+brutal death with grinding vocal
+
+## Дискография
+
+### "Embalmed Madness" 2001, Death Metal
+
+1. Slaughterhouse Sledgehammer 02:10  
+2. Feasting On Remains 01:58  
+3. Choking On Defecation 02:55  
+4. Bloodless 02:09  
+5. Rotting Away Is Better Than Being Gay 02:52  
+6. Chainsaw Abortion 00:50  
+7. Knifeslasher 02:54  
+8. Disemboweled 02:21  
+9. On Her Guts I Cum 02:30  
+10. Prostitute Disfigurement 02:38  
+11. Cadaver Blowjob 02:09  
+12. Dissector 02:05
+
+### "Deeds Of Derangement" 2003, Death Metal
+
+1. Inside To Expose 03:07  
+2. Swollen 02:16  
+3. Deformed Slut 03:46  
+4. Postal Devirginized 03:22  
+5. Deeds of Derangement 02:27  
+6. She`s Not Coming Home Tonight 03:43  
+7. Repulsive To Kill 02:49  
+8. G-B Massacre 01:57  
+9. Cum Covered Stabwound 03:14  
+10. Screaming In Agony 02:46  
+11. Skinned And Sodomized 02:48
+
+### "Left In Grisly Fashion" 2005, Death Metal
+
+1. Body Ravage 03:17  
+2. Freaking on the Mutilated 02:40  
+3. Left in Grisly Fashion 05:47  
+4. The Corpse Garden 04:01  
+5. Bluedrum Torso 03:02  
+6. Victims of the Absurd 02:23  
+7. Shotgun Horror 02:56  
+8. Disemboweled 02:17  
+9. In Death's Decay 02:21  
+10. Bloodlust Redemption 03:02
+
+### "Descendants Of Depravity " 2008, Death Metal
+
+
+
+### "From Crotch to Crown" 2014, Death Metal
+
+1. Only Taste for Decay  04:20    
+2. Battered to the Grave  03:48    
+3. Crowned in Entrails  03:45  
+4. Dismember the Transgender  05:04  
+5. Under the Patio  04:06 
+6. From Crotch to Crown  03:41 
+7. Glorify Through Cyanide  04:09    
+8. Set Forth to Annihilate  04:29    
+9. Compulsive Beheading Disorder  04:13  
+10. Reduced to Stumps  03:51 
+
+
 
 ## Отношения с другими группами
 

@@ -1,6 +1,9 @@
 # Valkyria
 
-Дискография
+soft(female vocals) "viking/epic metal" from Sweden
+
+## Дискография
+
 
 ## Отношения с другими группами
 

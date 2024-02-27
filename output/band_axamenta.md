@@ -1,8 +1,25 @@
 # Axamenta
 
-Дискография
-"Codex Barathri" 2002, Melodic Death Metal
-"Ever-Arch-][-Tech-Ture" 2007, Black Metal
+
+
+## Дискография
+
+### "Codex Barathri" 2002, Melodic Death Metal
+
+Liber Angelis 
+Beyond The Haunting 
+Echoes 
+Godsman 
+Deciphering Darkness 
+Elemental Dance 
+Liber Daemonis 
+Through The Scarlet Forever 
+Submissive To The All
+
+### "Ever-Arch-][-Tech-Ture" 2007, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

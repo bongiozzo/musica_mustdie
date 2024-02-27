@@ -1,9 +1,44 @@
 # Alias Eye
 
-Дискография
-"Beyond The Mirror" 2000, Progressive
-"Field Of Names" 2001, Progressive
-"A Different Point of You" 2003, Progressive
+prog-rock band
+
+## Дискография
+
+### "Beyond The Mirror" 2000, Progressive
+
+1. River Running 
+2. Premortal Dance 
+3. An End In Itself
+
+### "Field Of Names" 2001, Progressive
+
+1. Field Of Names
+2. Premortal Dance
+3. Wasteland
+4. Just Another Tragic Song
+5. Driven
+6. River Running
+7. Hybrid
+8. Mystery
+9. The Readiness Is All
+10. An End In Itself
+
+### "A Different Point of You" 2003, Progressive
+
+1. A Clown's Tale
+2. Fake The Right
+3. Your Other Way
+4. Icarus Unworded
+5. The Usual Routine
+6. Drifting
+7. On The Fringe
+8. The Great Open
+9. A Clown's Tale
+
+
+Recorded, mixed and mastered at Blue Sky Studio, Germany.
+Produced by Christian Schimanski.
+
 
 ## Отношения с другими группами
 

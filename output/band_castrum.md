@@ -1,8 +1,17 @@
 # Castrum
 
-Дискография
-"Hatenourisher" 2000, Death Metal
-"Mysterious Yet Unwearied" 2002, Death Metal
+Melodic death / black metal
+
+## Дискография
+
+### "Hatenourisher" 2000, Death Metal
+
+
+
+### "Mysterious Yet Unwearied" 2002, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

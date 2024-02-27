@@ -1,19 +1,454 @@
 # Clash
 
-Дискография
-"The Clash (U.K. Version)" 1977, Punk
-"Give 'Em Enough Rope" 1978, Punk
-"London Calling" 1979, Punk
-"The Clash (U.S. Version)" 1979, Punk
-" Black Market Clash" 1980, Punk
-"Sandinista!" 1981, Punk
-"Combat Rock" 1982, Punk
-"Cut The Crap" 1985, Punk
-"The Story Of The Clash" 1988, Punk
-"Clash On Broadway" 1991, Punk
-"The Singles" 1991, Punk
-"Super Black Market Clash" 1993, Punk
-"From Here to Eternity" 1999, Punk
+
+
+## Дискография
+
+### "The Clash (U.K. Version)" 1977, Punk
+
+1. Janie Jones      
+2. Remote Control       
+3. I'm So Bored With The U.S.A.       
+4. White Riot       
+5. Hate And War      
+6. What's My Name       
+7. Deny       
+8. London's Burning       
+9. Career Opportunities      
+10. Cheat       
+11. Protex Blue       
+12. Police And Thieves      
+13. 48 Hours      
+14. Garageland 
+
+
+Mick Jones: Guitars, vocals 
+Joe Strummer: Guitars, vocals 
+Paul Simonon: Bass 
+Tory Crimes: Drums 
+
+
+### "Give 'Em Enough Rope" 1978, Punk
+
+1. Safe European Home      
+2. English Civil War       
+3. Tommy Gun       
+4. Julie's In The Drug Squad      
+5. Last Gang In Town       
+6. Guns On The Roof      
+7. Drug-Stabbing Time       
+8. Stay Free      
+9. Cheapskates       
+10. All The Young Punks (New Boots And Contracts) 
+
+
+Mick Jones: Guitars, vocals 
+Joe Strummer: Guitars, vocals 
+Paul Simonon: Bass 
+Topper Headon: Drums 
+ 
+
+
+### "London Calling" 1979, Punk
+
+1. London Calling      
+2. Brand New Cadillac      
+3. Jimmy Jazz      
+4. Hateful       
+5. Rudie Can't Fail       
+6. Spanish Bombs       
+7. The Right Profile       
+8. Lost in the Supermarket       
+9. Clampdown       
+10. The Guns of Brixton      
+11. Wrong 'Em Boyo      
+12. Death Or Glory       
+13. Koka Kola       
+14. The Card Cheat       
+15. Lover's Rock       
+16. Four Horsemen       
+17. I'm Not Down       
+18. Revolution Rock      
+19. Train in Vain 
+
+
+Mick Jones: Guitars, vocals 
+Joe Strummer: Guitars, vocals 
+Paul Simonon: Bass, vocals on 10 
+Topper Headon: Drums 
+
+### "The Clash (U.S. Version)" 1979, Punk
+
+1. Clash City Rockers      
+2. I'm So Bored With The U.S.A.       
+3. Remote Control       
+4. Complete Control       
+5. White Riot       
+6. White Man In Hammersmith Palais      
+7. London's Burning       
+8. I Fought The Law      
+9. Janie Jones      
+10. Career Opportunities      
+11. What's My Name       
+12. Hate And War      
+13. Police And Thieves      
+14. Jail Guitar Doors       
+15. Garageland 
+
+
+
+Mick Jones: Guitars, vocals 
+Joe Strummer: Guitars, vocals 
+Paul Simonon: Bass 
+Tory Crimes: Drums on 2, 3, 5, 7, 9, 10, 11, 12, 13, 15 
+Topper Headon: Drums on 1, 4, 6, 8, 14 
+
+### " Black Market Clash" 1980, Punk
+
+1. Capital Radio One       
+2. The Prisoner       
+3. Pressure Drop       
+4. Cheat       
+5. City Of The Dead       
+6. Time Is Tight I       
+7. Robber Dub        
+8. Armagideon Time      
+9. Justice Tonight/Kick It Over 
+
+
+Mick Jones: Guitars, vocals 
+Joe Strummer: Guitars, vocals 
+Paul Simonon: Bass 
+Topper Headon: Drums 
+Terri Chimes: Drums on 4 
+Unknown: Drums on 1 
+
+
+### "Sandinista!" 1981, Punk
+
+Disc 1 
+
+1. The Magnificent Seven      
+2. Hitsville U.K.       
+3. Junco Partner      
+4. Ivan Meets G.I. Joe       
+5. The Leader        
+6. Something About England        
+7. Rebel Waltz       
+8. Look Here        
+9. The Crooked Beat       
+10. Somebody Got Murdered       
+11. One More Time       
+12. One More Dub        
+13. Lightning Strikes (Not Once But Twice)       
+14. Up In Heaven (Not Only Here)       
+15. Corner Soul       
+16. Let's Go Crazy         
+17. If Music Could Talk       
+18. The Sound Of Sinners       
+
+Disc 2 
+
+1. Police On My Back       
+2. Midnight Log       
+3. The Equaliser        
+4. The Call Up        
+5. Washington Bullets       
+6. Broadway        
+7. Lose This Skin         
+8. Charlie Don't Surf       
+9. Mensforth Hill         
+10. Junkie Slip        
+11. Kingston Advice       
+12. The Street Parade       
+13. Version City       
+14. Living In Fame         
+15. Silicone On Sapphire        
+16. Version Pardner        
+17. Career Opportunities       
+18. Shepherds Delight 
+
+
+Mick Jones: Guitars, vocals 
+Joe Strummer: Guitars, vocals 
+Paul Simonon: Bass, vocals on Disc 1: 9 
+Topper Headon: Drums, vocals on Disc 1: 4 
+Additional Musicians: 
+Tymon Dogg: Vocals, fiddle on Disc 2: 7 
+
+### "Combat Rock" 1982, Punk
+
+1. Know Your Rights       
+2. Car Jamming       
+3. Should I Stay Or Should I Go?      
+4. Rock The Casbah      
+5. Red Angel Dragnet      
+6. Straight To Hell       
+7. Overpowered By Funk       
+8. Atom Tan       
+9. Sean Flynn        
+10. Ghetto Defendant      
+11. Inoculated City       
+12. Death Is A Star 
+
+
+
+Mick Jones: Guitars, vocals 
+Joe Strummer: Guitars, vocals 
+Paul Simonon: Bass 
+Topper Headon: Drums 
+Additional Musicians: 
+Ellen Foley, Allen Ginsburg, Joe Ely, Futura 2000: Backing vocals 
+Tymon Dogg: Piano on 12 
+Poly Mandell: Keyboards on 7 
+Gary Barnacle: Sax on 9 
+
+
+### "Cut The Crap" 1985, Punk
+
+1. Dictator        
+2. Dirty Punk        
+3. We Are The Clash       
+4. Are You Red..Y       
+5. Cool Under Heat        
+6. Movers And Shakers        
+7. This Is England         
+8. Three Card Trick       
+9. Play To Win        
+10. Fingerpoppin'        
+11. North And South        
+12. Life Is Wild 
+
+
+
+Joe Strummer: Guitars, vocals 
+Paul Simonon: Bass 
+Nick Sheppard: Guitar 
+Pete Howard: Drums 
+Vince White: Guitar 
+
+### "The Story Of The Clash" 1988, Punk
+
+Disc 1 
+
+1. The Magnificent Seven      
+2. Rock the Casbah      
+3. This is Radio Clash       
+4. Should I Stay Or Should I Go?      
+5. Straight To Hell       
+6. Armagideon Time      
+7. Clampdown       
+8. Train In Vain      
+9. The Guns Of Brixton      
+10. I Fought The Law      
+11. Somebody Got Murdered       
+12. Lost In The Supermarket       
+13. Bankrobber      
+
+Disc 2  
+
+1. White Man In Hammersmith Palais      
+2. London's Burning       
+3. Janie Jones      
+4. Tommy Gun       
+5. Complete Control       
+6. Capital Radio One       
+7. White Riot       
+8. Career Opportunities      
+9. Clash City Rockers      
+10. Safe European Home      
+11. Stay Free      
+12. London Calling      
+13. Spanish Bombs       
+14. English Civil War       
+15. Police And Thieves 
+
+
+Mick Jones: Guitars, vocals 
+Joe Strummer: Guitars, vocals 
+Paul Simonon: Bass 
+Topper Headon: Drums 
+Terri Chimes: Drums on Disc 1: 2-3; Disc 2: 7-8, 15 
+Unknown: Drums on Disc 2: 6 
+
+### "Clash On Broadway" 1991, Punk
+
+Disc 1  
+ 
+1. Janie Jones     
+2. Career Opportunites     
+3. White Riot       
+4. 1977      
+5. I'm So Bored With the U.S.A.       
+6. Hate And War      
+7. What's My Name       
+8. Deny       
+9. London's Burning       
+10. Protex Blue       
+11. Police And Thieves      
+12. 48 Hours      
+13. Cheat       
+14. Garageland       
+15. Capital Radio One       
+16. Complete Control       
+17. Clash City Rockers      
+18. City Of The Dead       
+19. Jail Guitar Doors       
+20. The Prisoner       
+21. White Man In Hammersmith Palais      
+22. Pressure Drop       
+23. 1-2 Crush On You      
+24. English Civil War      
+25. I Fought The Law      
+ 
+Disc 2  
+
+1. Safe European Home      
+2. Tommy Gun       
+3. Julie's In The Drug Squad       
+4. Stay Free      
+5. One Emotion       
+6. Groovy Times      
+7. Gates Of The West       
+8. Armagideon Time      
+9. London Calling      
+10. Brand New Cadillac      
+11. Rudie Can't Fail       
+12. The Guns Of Brixton      
+13. Spanish Bombs       
+14. Lost In The Supermarket       
+15. The Right Profile       
+16. The Card Cheat       
+17. Death Or Glory       
+18. Clampdown       
+19. Train In Vain      
+20. Bankrobber      
+
+Disc 3  
+
+1. Police On My Back       
+2. The Magnificent Seven      
+3. The Leader        
+4. The Call Up        
+5. Somebody Got Murdered       
+6. Washington Bullets       
+7. Broadway        
+8. Lightning Strikes (Not Once But Twice)      
+9. Every Little Bit Hurts        
+10. Stop The World        
+11. Midnight To Stevens        
+12. This Is Radio Clash       
+13. Cool Confusion        
+14. Red Angel Dragnet        
+15. Ghetto Defendant      
+16. Rock The Casbah      
+17. Should I Stay Or Should I Go      
+18. Straight To Hell       
+19. The Street Parade 
+
+
+Mick Jones: Guitars, vocals 
+Joe Strummer: Guitars, vocals 
+Paul Simonon: Bass 
+Topper Headon: Drums 
+Terri Chimes: Drums on Disc 1: 1-14 
+Unknown: Drums on Disc 1: 15 
+
+
+### "The Singles" 1991, Punk
+
+1. White Riot       
+2. Remote Control       
+3. Complete Control       
+4. Clash City Rockers      
+5. White Man In Hammersmith Palais      
+6. Tommy Gun       
+7. English Civil War       
+8. I Fought The Law      
+9. London Calling      
+10. Train In Vain      
+11. Bankrobber      
+12. The Call Up        
+13. Hitsville U.K.       
+14. The Magnificent Seven      
+15. This is Radio Clash       
+16. Know Your Rights       
+17. Rock The Casbah      
+18. Should I Stay Or Should I Go 
+
+
+
+Mick Jones: Guitars, vocals 
+Joe Strummer: Guitars, vocals 
+Paul Simonon: Bass 
+Topper Headon: Drums 
+Terri Chimes: Drums on 1, 2 
+
+
+### "Super Black Market Clash" 1993, Punk
+
+1. 1977      
+2. Listen I      
+3. Jail Guitar Doors       
+4. City Of The Dead       
+5. The Prisoner       
+6. Pressure Drop       
+7. 1-2 Crush On You      
+8. Groovy Times      
+9. Gates Of The West       
+10. Capital Radio Two       
+11. Time Is Tight I       
+12. Justice Tonight/Kick It Over        
+13. Robber Dub        
+14. The Cool Out I       
+15. Stop The World        
+16. The Magnificent Dance        
+17. Radio Clash        
+18. First Night Back In London       
+19. Long Time Jerk        
+20. Cool Confusion        
+21. Mustapha Dance 
+
+
+Mick Jones: Guitars, vocals 
+Joe Strummer: Guitars, vocals 
+Paul Simonon: Bass 
+Topper Headon: Drums 
+Terri Chimes: Drums on 1 
+
+
+### "From Here to Eternity" 1999, Punk
+
+1. Complete Control     
+2. London's Burning     
+3. What's My Name     
+4. Clash City Rockers    
+5. Career Opportunities    
+6. (White Man) In Hammersmith Palais    
+7. Capital Radio     
+8. City Of The Dead     
+9. I Fought The Law     
+10. London Calling    
+11. Armagideon Time    
+12. Train In Vain    
+13. Guns Of Brixton    
+14. The Magnificent Seven    
+15. Know Your Rights     
+16. Should I Stay Or Should I Go    
+17. Straight To Hell 
+
+
+
+Mick Jones: Guitars, vocals 
+Joe Strummer: Guitars, vocals 
+Paul Simonon: Bass, vocals on 13 
+Topper Headon: Drums on 1, 2, 3, 7, 8, 9, 11, 12, 13 
+Terry Chimes: Drums on 4, 5, 10, 14, 15, 16, 17 
+Micky Gallagher: Organ on 11 
+Mikey Dread: Additional Vocals on 11 
+
+
+
 
 ## Отношения с другими группами
 

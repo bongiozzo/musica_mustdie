@@ -1,7 +1,23 @@
 # Trelleborg
 
-Дискография
-"Lands of Njord" 2010, Folk
+
+
+## Дискография
+
+### "Lands of Njord" 2010, Folk
+
+1. Entering the Lands  01:35  
+2. Gunbjorn (Birth of Skerriz)  06:34 
+3. Against the Winds  08:40    
+4. Born Under Sign  03:38
+5. Metsanhumppa  04:07 
+6. At The Last  04:39   
+7. Sudden Arise  05:08  
+8. From the Seas  05:16  
+9. Spellful Cup  03:33    
+10. Tale of the Immortals  09:10 
+11. Birth of Skerriz (Orchestral)  07:57 
+
 
 ## Отношения с другими группами
 

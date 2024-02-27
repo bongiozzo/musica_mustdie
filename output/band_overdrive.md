@@ -1,7 +1,33 @@
 # Overdrive
 
-Дискография
-"Let The Metal Do The Talking" 2008, Heavy Metal
+
+
+## Дискография
+
+### "Let The Metal Do The Talking" 2008, Heavy Metal
+
+1. Army Of Darkness
+2. Let The Metal Do The Talking
+3. Fight To The Finish
+4. Bring Me To Submission
+5. Trapped Under Ice
+6. Deceiver
+7. Den Of Eniquity
+8. Crazy Train
+9. Chasing Highways
+10. Lodestar
+11. Sinister Warfire
+12. Reincarnation
+
+Peril Oz Karlsson - vocals
+Janne Stark - guitars
+Kjell Jacobsson - guitars
+Kenth Ericsson - bass
+Kenta Svensson - drums
+Chris Katena - guest vocals on "Reincarnation"
+
+
+
 
 ## Отношения с другими группами
 

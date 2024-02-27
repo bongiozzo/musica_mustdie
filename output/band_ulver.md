@@ -1,16 +1,146 @@
 # Ulver
 
-Дискография
-"Vargnatt (Demo)" 1994, Black Metal
-"Bergtatt" 1995, Black Metal
-"Kveldszanger" 1996, Folk
-"The Madrigal Of Night (Eight Hymns To The Wolf In Man)" 1997, Black Metal
-"Themes from William Blake's The Marriage Of Heaven And Hell" 1999, Industrial
-"Perdition City" 2001, Electronic
-"Lyckantropen themes" 2002, Electronic
-"Blood Inside" 2005, Gothic
-"Shadows Of The Sun" 2007, Electronic
-"Wars of the Roses" 2011, Electronic
+
+
+## Дискография
+
+### "Vargnatt (Demo)" 1994, Black Metal
+
+01 - Her Begynner Mine Arr 2:54
+02 - Tragediens Trone      3:42
+03 - Trollskogen           4:07
+04 - Ulverytternes Kamp    5:01
+05 - Nattens Madrigal      5:57
+06 - Vargnatt              3:53
+
+### "Bergtatt" 1995, Black Metal
+
+1. I Troldskog Faren Vild
+2. Soelen Gaaer Bag Aase Need
+3. Graablick Blev Hun Vaer
+4. Een Stemme Locker
+5. Bergtatt - Ind I Fieldkamrene
+
+All Songs Written By ULVER.
+Produced & Mixed By Kristian Romsoe.
+Recorded & Mixed At Endless Studio, Christiania.
+
+Ailvarikiak
+Warm
+Haavard
+Skoll
+Aismal
+
+(P)&(C) 1995 HEAD NOT FOUND Records
+
+### "Kveldszanger" 1996, Folk
+
+1.  Ostenfor sol og vestenfor mеne
+2.  Ord
+3.  Hшyfjeldsbilde
+4.  Kattleite
+5.  Kveldssang
+6.  Katurmyftikk
+7.  A Cappella
+8.  Hiertets Vee
+9.  Kledt i nattens farger
+10.Halling
+11.Utreise
+12.Sofu-er paa Allfers lund
+13.Ulvsblakk
+
+All songs written by ULVER.
+Produced and mixed by Kristian Romsoe.
+Recorded and mixed at Endless Studio, Christiania.
+
+Garm
+Haavard
+Aiwarikiar
+
+(p)(c) 1996 HEAD NOT FOUND Records
+
+### "The Madrigal Of Night (Eight Hymns To The Wolf In Man)" 1997, Black Metal
+
+1.  Wolf And Fear
+2.  Wolf And The Devil
+3.  Wolf And Hatred
+4.  Wolf And Man
+5.  Wolf And The Moon
+6.  Wolf And Passion
+7.  Wolf And Destiny
+8.  Wolf And The Night
+
+(P)(C) 1997 CENTURY MEDIA Records
+
+### "Themes from William Blake's The Marriage Of Heaven And Hell" 1999, Industrial
+
+(for tracklist see lyrics)
+
+--
+
+Trickster G. - generation. Tore Ylwizaker - programming. Havard Jorgensen -
+guitars. E. Lancelot - drums. Hugh Stephen James Mingay - bass guitar. Knut
+Magne Valle - cables, wires & various sound contributions. Female voice by
+"Her" (Stine Grytoyr). Vinyl scratching by Falch. Hounouring us with their
+recitations on "A Song of Liberty": Ihsahn 1-7. Samoth 7-11. Fenriz 12-20.
+Conclusion by Ihsahn. Recorded in Jester & Beep Jam Studios Fall '97 - Rise
+'98 EV. Engineering by Knut Magne Valle, Tore Ylwizaker & Trickster G. Mix by
+Borge Finstad (Fagerborg Studio) and Tore Ylwizaker (Beep Jam). Mastering by
+Audhild Johanne Rype at Strype Audio, Oslo. Produced by the Trickster.
+Co-produced by Ylwizaker and Valle. Aesthetics by Lamin Nilsen Chorr /
+Subtopia.
+
+### "Perdition City" 2001, Electronic
+
+01 - Lost In Moments
+02 - Porn Piece or the Scars of Cold Kisses
+03 - Hallways of Always
+04 - Tomorrow Never Knows
+05 - The Future Sound of Music
+06 - We Are the Dead
+07 - Dead City Centres
+08 - Catalept
+09 - Nowhere - Catastrophe
+
+
+### "Lyckantropen themes" 2002, Electronic
+
+
+
+### "Blood Inside" 2005, Gothic
+
+1. Dressed in black 
+2. For the love of God 
+3. Christmas 
+4. Blinded by blood 
+5. It is not sound 
+6. The truth 
+7. In the red 
+8. Your call 
+9. Operator
+
+### "Shadows Of The Sun" 2007, Electronic
+
+1. Eos (05:05)
+2. All The Love (03:42)
+3. Like Music (03:30)
+4. Vigil (04:27)
+5. Shadows Of The Sun (04:36)
+6. Let The Children Go (03:50)
+7. Solitude (Black Sabbath cover) (03:53)
+8. Funebre (04:26)
+9. What Happened? (06:25)
+
+### "Wars of the Roses" 2011, Electronic
+
+1. February MMX
+2. Norwegian Gothic
+3. Providence
+4. September IV
+5. England
+6. Island
+7. Stone Angels
+
 
 ## Отношения с другими группами
 

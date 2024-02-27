@@ -1,7 +1,21 @@
 # Warlord
 
-Дискография
-"Rising Out Of The Ashes" 2002, Power Metal
+
+
+## Дискография
+
+### "Rising Out Of The Ashes" 2002, Power Metal
+
+1.      Battle Of The Living Dead 
+2.      Enemy Mind 
+3.      Invaders 
+4.      Winds Of Thor 
+5.      War In Heaven 
+6.      My Name Is Man 
+7.      Lucifer's Hammer 
+8.      Sons Of a Dream 
+9.      Achilles Revenge
+
 
 ## Отношения с другими группами
 

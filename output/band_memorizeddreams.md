@@ -1,7 +1,21 @@
 # Memorized Dreams
 
-Дискография
-"Theater of Life" 2004, Power Metal
+
+
+## Дискография
+
+### "Theater of Life" 2004, Power Metal
+
+1. Welcome To The Theater
+2. Cardinal Sin
+3. Haloes And Wings
+4. Gates Of Heaven
+5. Sea Of Oblivion
+6. Neverland
+7. Revelating Paradise
+8. Light Above All
+9. Crimson Dream
+
 
 ## Отношения с другими группами
 

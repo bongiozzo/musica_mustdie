@@ -1,8 +1,36 @@
 # London After Midnight
 
-Дискография
-"Selected Scenes From The End Of The World" 1995, Gothic
-"Psycho Magnet" 2003, Gothic
+
+
+## Дискография
+
+### "Selected Scenes From The End Of The World" 1995, Gothic
+
+1. Revenge
+2. Nightmare
+3. Spider And The Fly
+4. Claire's Horrors
+5. Sacrifice
+6. This Paradise
+7. The Black Cat
+8. Your Best Nightmare
+
+All Songs Written By LONDON AFTER MIDNIGHT.
+Produced By LONDON AFTER MIDNIGHT.
+Recorded at Apocalyptic Vision.
+
+Sean Brennan - Vocals,Guitars
+Tamlyn - Keyboards
+Michael Areklette - Bass
+Douglas Avery - Drums
+William Skye - Guitars
+
+(P)&(C) 1995 APOCALYPTIC VISION Records
+
+### "Psycho Magnet" 2003, Gothic
+
+
+
 
 ## Отношения с другими группами
 

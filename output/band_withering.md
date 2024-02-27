@@ -1,7 +1,23 @@
 # Withering
 
-Дискография
-"Gospel Of Madness" 2004, Melodic Death Metal
+Melodic Death-Heavy Metal
+
+## Дискография
+
+### "Gospel Of Madness" 2004, Melodic Death Metal
+
+1. Northern Breeze 05:10  
+2. Quarrelsome 04:22  
+3. On Death's Colour 05:05  
+4. Two Suns 05:01  
+5. Reborn 04:15  
+6. Mausoleum 03:49  
+7. Penance 05:11  
+8. The Feeble Morning 03:10  
+9. Anguish Of Frustration 04:28  
+10. Justification For Unavoidable 05:53  
+11. Not Yet The Last 04:48
+
 
 ## Отношения с другими группами
 

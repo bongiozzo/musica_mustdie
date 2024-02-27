@@ -1,8 +1,35 @@
 # Execration
 
-Дискография
-"Syndicate of Lethargy" 2008, Death Metal
-"Odes of the Occult" 2011, Death Metal
+
+
+## Дискография
+
+### "Syndicate of Lethargy" 2008, Death Metal
+
+1. Fleshfire  03:48  
+2. Disciples of the Suffering  05:29 
+3. Syndicate of Lethargy  03:52 
+4. Kuroi Kiri  03:31    
+5. Swarming Locusts  07:59  
+6. Voracious  03:21  
+7. Subconscious Warfare  04:44
+8. Submission to Falsities  05:53  
+9. Clinging to Existence  10:42 
+
+### "Odes of the Occult" 2011, Death Metal
+
+1. Ode To Obscurity
+2. Unction
+3. Entheogen
+4. Intermezzo I
+5. A Crutch For Consolation
+6. Soul Maggot
+7. Grains
+8. Obsession0
+9. Intermezzo Ii1 
+10. Left In Scorn
+11. High Priest
+
 
 ## Отношения с другими группами
 

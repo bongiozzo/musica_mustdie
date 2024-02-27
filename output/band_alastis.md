@@ -1,11 +1,113 @@
 # Alastis
 
-Дискография
-"The Just Law" 1993, Death Doom
-"...And Death Smiled" 1995, Death Doom
-"The Other Side" 1997, Death Doom
-"Revenge" 1998, Death Doom
-"Unity" 2001, Death Doom
+
+
+## Дискография
+
+### "The Just Law" 1993, Death Doom
+
+1. The Just Law
+2. Black Wedding
+3. Illusion
+4. Reconversion
+5. Damned Forever
+6. Nightmare
+7. The Cry
+8. Fatidical Date
+9. Messenger Of The U.W.
+
+ War D. - Guitar & Vocals
+ Eric - Bass & Backing
+ Acronoise - Drums
+
+Keyboards By Gregore-Paul Gilloz
+All Music By ALASTIS
+All Lyrics By War D.
+Produced By Dany And ALASTIS
+Recorded At Feeling Studio Martigny
+
+(p)+(c) 1993 HEAD NOT FOUND
+
+### "...And Death Smiled" 1995, Death Doom
+
+1. From The U.W.
+2. Through Your Torpor
+3. Let Me Die
+4. Evil
+5. By Thy Name
+6. Schizophrenia (Mental Suicide)
+7. March For Victory
+8. Your God
+9. Last Wishes
+10.Psychopath
+11.Messenger Of The U.W.(Second Act)
+
+ Rotten - Bass & Vocals
+ Acronoise - Drums
+ War D. - Guitar & Lead Vocals
+Keyboard Parts & Acoustic Guitars By Waldemar Sorychta.
+
+All Songs Written By ALASTIS.
+Produced By Waldemar Sorychta & Siggi Bemm.
+Recorded & Mixed At The Woodhouse Studio,Hagen,
+Germany.
+
+(p)&(c) 1995 ADIPOCERE Records
+
+### "The Other Side" 1997, Death Doom
+
+1. In Darkness
+2. Never Again
+3. The Other Side
+4. Out Of Time
+5. Through The Chaos
+6. Fight & Win
+7. Slaves Of Rot
+8. Remind
+9. Under The Sign
+10.End Or Beginning
+
+Rotten - Bass & Vocals
+Acronoise - Drums & Percussions
+War D. - Guitar, Guitar Synthesizer & Lead Vocals
+Nick - Lead Guitar
+
+Keyboard Parts & Acoustic Guitars By Waldemar Sorychta.
+
+All Songs Written By ALASTIS.
+Produced By Waldemar Sorychta & Siggi Bemm.
+Recorded & Mixed At The Woodhouse Studio, Hagen,
+Germany, In December 1996.
+
+(p)(c) 1997 CENTURY MEDIA Records
+
+### "Revenge" 1998, Death Doom
+
+1  Just Hate (Alastis)  
+2  Burnt Alive (Alastis)  
+3  Eternal Cycle (Alastis)  
+4  Sacrifice (Alastis)  
+5  Ecstasy (Alastis)  
+6  Like a Dream (Alastis)  
+7  Nemesis (Alastis)  
+8  Bring Down (Alastis)  
+9  Agony (Alastis)  
+10 Revenge (Alastis)  
+
+
+### "Unity" 2001, Death Doom
+
+The Right To Die (5:15)
+The Elect (4:30)
+The Sign (4:52)
+Another God (3:38)
+Who Created The Gods?(4:49)
+Ghastly Fancies (4:15)
+Existence (3:22)
+Antidote (5:24)
+To The Root Of Evil (4:59)
+...And Death Smiled (5:53)
+
 
 ## Отношения с другими группами
 

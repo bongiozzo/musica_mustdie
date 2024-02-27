@@ -1,11 +1,83 @@
 # Fleshgod Apocalypse
 
-Дискография
-"Oracles" 2009, Death Metal
-"Mafia (EP)" 2010, Death Metal
-"Agony" 2011, Techno Death
-"Labyrinth" 2013, Techno Death
-"King" 2016, Techno Death
+
+
+## Дискография
+
+### "Oracles" 2009, Death Metal
+
+1. In Honour of Reason 04:27
+2. Post-Enlightenment Executor 02:55
+3. As Tyrants Fall 04:00
+4. Sophistic Demise 03:14
+5. Requiem in SI Minore 05:05
+6. At The Guillotine 03:02
+7. Embodied Deception 03:20
+8. Infection Of The White Throne 04:30
+9. Retrieving My Carcass 04:09
+10. Oracles 02:58
+
+### "Mafia (EP)" 2010, Death Metal
+
+1. Thru Our Scars 05:30  
+2. Abyssal 06:45  
+3. Conspiracy of Silence 05:30  
+4. Blinded by Fear (At the Gates cover) 03:10  
+5. Mafia 03:00
+
+### "Agony" 2011, Techno Death
+
+1. Temptation  01:47   
+2. The Hypocrisy  05:31  
+3. The Imposition  04:58   
+4. The Deceit  06:03   
+5. The Violation  04:19   
+6. The Egoism  06:22   
+7. The Betrayal  05:31   
+8. The Forsaking  05:37  
+9. The Oppression  06:04  
+10. Agony  03:34 
+
+### "Labyrinth" 2013, Techno Death
+
+01. Kingborn
+02. Minotaur (The Wrath Of Poseidon)
+03. Elegy
+04. Towards The Sun
+05. Warpledge
+06. Pathfinder
+07. The Fall Of Asterion
+08. Prologue
+09. Epilogue
+10. Under Black Sails
+11. Labyrinth
+
+
+
+Paolo Rossi - Bass, Vocals (clean) 
+Francesco Paoli - Drums 
+Cristiano Trionfera - Guitars, Vocals (backing), Orchestral Arrangements 
+Tommaso Riccardi - Vocals (lead), Guitars 
+Francesco Ferrini - Piano, Orchestration 
+
+
+Produced, mixed and mastered by at 16th Cellar Studio. 
+
+### "King" 2016, Techno Death
+
+01. Marche Royale
+02. In Aeternum
+03. Healing Through War
+04. The Fool
+05. Cold As Perfection
+06. Mitra
+07. Paramour (Die Leidenschaft Bringt Leiden)
+08. And The Vulture Beholds
+09. Gravity
+10. A Million Deaths
+11. Syphilis
+12. King
+
 
 ## Отношения с другими группами
 

@@ -1,13 +1,116 @@
 # Atreyu
 
-Дискография
-"Suicide Notes And Butterfly Kisses" 2002, Metalcore
-"The Curse" 2004, Metalcore
-"A Death-grip On Yesterday" 2006, Metalcore
-"The Best Of... (CD/DVD)" 2007, Metalcore
-"Lead Sails Paper Anchor" 2007, Metalcore
-"Congregation of the Damned" 2009, Metalcore
-"Long Live (Single)" 2015, Metalcore
+
+
+## Дискография
+
+### "Suicide Notes And Butterfly Kisses" 2002, Metalcore
+
+1. A Song For the Optimist     
+2. Dilated     
+3. Ain’t Love Grand 
+4. Living Each Day Like You’re Already Dead    
+5. Deanne The Arsonist    
+6. Someone’s Standing On My Chest     
+7. At Least I Know I’m A Sinner     
+8. Tulips are Better    
+9. A Vampire’s Lament    
+10. Lip Gloss and Black
+
+### "The Curse" 2004, Metalcore
+
+1. Blood Children (An Introduction)    
+2. Bleeding Mascara  
+3. Right Side Of The Bed Download 
+4. This Flesh A Tomb    
+5. You Eclipsed By Me    
+6. The Crimson Download 
+7. The Remembrance Ballad    
+8. An Interlude    
+9. Corseting    
+10. Demonology And Heartache    
+11. My Sanity On The Funeral Pyre    
+12. Nevada‘s Grace    
+13. Five Vicodin Chased With A Shot Of Clarity
+
+### "A Death-grip On Yesterday" 2006, Metalcore
+
+1. Creature   
+2. Shameful    
+3. Our Sick Story (Thus Far)   
+4. The Theft  
+5. We Stand Up    
+6. Ex’s And Oh’s
+7. Your Private War   
+8. My Fork In The Road (Your Knife In My Back)   
+9. Untitled Finale
+
+### "The Best Of... (CD/DVD)" 2007, Metalcore
+
+1. Lip Gloss And Black    
+2. Ain't Love Grand    
+3. Living Each Day Like You're Already Dead    
+4. A Song For The Optimists    
+5. Deanne The Arsonist    
+6. Tulips Are Better    
+7. Someone's Standing On My Chest    
+8. Bleeding Mascara    
+9. Right Side Of The Bed    
+10. You Eclipsed By Me    
+11. The Crimson    
+12. Demonology And Heartache    
+13. My Sanity On The Funeral Pyre    
+14. Creature    
+15. Untitled Finale    
+16. Ex's And Oh's    
+17. Shameful  
+18. The Theft    
+19. [DVD] 'Aint Love Grand (Music Video)    
+20. [DVD] Lip Gloss And Black (Music Video)    
+20. [DVD] The Crimson (Music Video)    
+21. [DVD] Right Side Of The Bed (Music Video)    
+22. [DVD] Ex's And Oh's (Music Video)    
+23. [DVD] The Theft (Music Video)
+
+### "Lead Sails Paper Anchor" 2007, Metalcore
+
+1. Doomsday
+2. Honor
+3. Falling Down
+4. Becoming The Bull
+5. Lose It
+6. Two Becomes One
+7. No One Cares
+8. Can't Happen Here
+9. Slow Burn
+10. Blow
+11. Lead Sails (And A Paper Anchor)
+
+### "Congregation of the Damned" 2009, Metalcore
+
+1. «Stop! Before It's Too Late And We've Destroyed It All» 3:52 
+2. «Bleeding Is A Luxury» 3:32 
+3. «Congregation of The Damned» 3:30 
+4. «Coffin Nails» 3:22 
+5. «Black Days Begin» 3:54 
+6. «Gallows» 3:28 
+7. «Storm To Pass» 3:47 
+8. «You Were The King, Now You're Unconscious» 5:08 
+9. «Insatiable» 4:00 
+10. «So Wrong» 3:20 
+11. «Ravenous» 3:07 
+12. «Lonely» 3:40 
+13. «Wait For You» 4:01 
+Bonuses:
+14. «We Are The Living Dead» 3:45 
+15. «Bravery» 3:43 
+16. «Another Night (Wishing I Wasn't Here)» 4:16
+
+
+### "Long Live (Single)" 2015, Metalcore
+
+1. Long Live   03:29
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,47 @@
 # The Defaced
 
-Дискография
-"Domination Commence" 2001, Thrash
-"Karma in Black" 2003, Thrash
+Modern Thrash Death Metal from Sweden
+
+## Дискография
+
+### "Domination Commence" 2001, Thrash
+
+1. October Ruins
+2. Grow
+3. Forsaken Life
+4. Sown By Greed
+5. Stoner
+6. Yhe Icon
+7. Entering Domination
+8. Pitched World Collapse
+9. Prozac Nation
+10. Fanatic Minds
+11. Destination Devastation
+
+### "Karma in Black" 2003, Thrash
+
+1. Fumes From The Swamp
+2. Once In Between
+3. 10 Vs 9
+4. Exit Body On Mass
+5. Beneath My Swirl
+6. A Moment Of Clarity
+7. The Fading Suns
+8. Soulsides
+9. Forever Winding
+10. Karma In Black
+
+
+
+Henrik Sjiowall: Vocals
+Mattias Svensson: Guitar
+Klas Ideberg: Guitar
+Jorgen Lofberg: Bass
+Henry Ranta: Drums
+
+
+
+
 
 ## Отношения с другими группами
 

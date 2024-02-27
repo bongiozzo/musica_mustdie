@@ -1,12 +1,68 @@
 # The Black League
 
-Дискография
-"Ichor" 2000, Stoner
-"Utopia A.D." 2001, Stoner
-"Doomsday Sun EP" 2001, Stoner
-"Man's Ruin Revisited" 2004, Stoner
-"A Place Called Bad" 2005, Stoner
-"Ghost Brothel" 2009, Stoner
+Finnish stoner doom
+
+## Дискография
+
+### "Ichor" 2000, Stoner
+
+Doomwatcher 
+One Colour Black 
+Deep Waters 
+Goin' To Hell 
+Avalon 
+We Die Alone 
+The Everlasting - Pt. II 
+Ozymandias 
+Blood O The Gods 
+Bunker King 
+Winter Winds Sing 
+Ecce Homo! 
+Night On Earth 
+
+### "Utopia A.D." 2001, Stoner
+
+
+
+### "Doomsday Sun EP" 2001, Stoner
+
+
+
+### "Man's Ruin Revisited" 2004, Stoner
+
+
+
+### "A Place Called Bad" 2005, Stoner
+
+1. Same Ol' Fuckery 02:35  
+2. Ball 'n' Chain Woman 03:16  
+3. Bury Yer Brother 03:40  
+4. Runnin' Lo' On Fumes 04:10  
+5. Marked Man 02:19  
+6. Altamount Man 03:55  
+7. Bastard's Degree 04:03  
+8. A Place Called Bad 03:20  
+9. Heroes And Outlaws 04:46  
+10. Watch Dog 04:18 
+
+
+### "Ghost Brothel" 2009, Stoner
+
+1. Zero Providence (Intro) 01:07  
+2. Southern Scars & Curse 03:55  
+3. Malabarista 04:04  
+4. Bones 'N' Thangs 02:59  
+5. Misfortune 04:43  
+6. The Beast Is A Riddle 03:47  
+7. Bipolar Meltdown 04:21  
+8. No Parole 03:01  
+9. Ghost Brothel 03:54  
+10. Until We Sail 03:53  
+11. Vin Mariani 04:54  
+12. Joke's Over 04:36  
+13. Heavy Downer 07:09 
+
+
 
 ## Отношения с другими группами
 

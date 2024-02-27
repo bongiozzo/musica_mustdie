@@ -1,22 +1,327 @@
 # Obituary
 
-Дискография
-"Slowly We Rot" 1989, Death Metal
-"Cause of Death" 1990, Death Metal
-"The End Complete" 1992, Death Metal
-"World Demise" 1994, Death Metal
-"Don't Care [EP]" 1994, Death Metal
-"Back from the Dead" 1997, Death Metal
-"Dead [live]" 1998, Death Metal
-"Anthology [compilation]" 2001, Death Metal
-"Frozen In Time" 2005, Death Metal
-"Frozen Alive (DVD)" 2006, Death Metal
-"Xecutioner's Return" 2007, Death Metal
-"Darkest Day " 2009, Death Metal
-"Live Xecution - Party.San 2008 [DVD]" 2009, Death Metal
-"Ten Thousand Ways to Die (live)" 2016, Death Metal
-"No (single)" 2017, Death Metal
-"Obituary" 2017, Death Metal
+Legend of Florida's Death Metal
+
+## Дискография
+
+### "Slowly We Rot" 1989, Death Metal
+
+1. Internal Bleeding
+2. Godly Beings
+3. Till (`Til) Death
+4. Slowly We Rot
+5. Immortal Visions
+6. Gates to Hell
+7. Words of Evil
+8. Suffocation
+9. Intoxicated 
+10.Deadly Intentions
+11.Blood Soaked
+12.Stinkupuss
+
+ John Tardy - Vocal
+ Trevor Peres - Rhythm Guitar
+ Daniel Tucker - Bass
+ Allen West - Lead Guitar
+ Donald Tardy - Drums
+
+All Music By OBITUARY.
+All Lyrics By John Tardy.
+Produced & Engineered By Scott Burns.
+Executive Producer Monte Conner.
+Mixed By Scott Burns,John Tardy &
+Donald Tardy.
+Recorded At Morrisound Recording, Tampa, Florida.
+Mastered By Mike Fuller At Fullersound,
+Miami, Florida.
+
+(P)&(C) 1989 ROADRACER Records
+
+### "Cause of Death" 1990, Death Metal
+
+1. Infected
+2. Body Bag
+3. Chopped in Half
+4. Circle of Tyrants
+5. Dying
+6. Find the Arise
+7. Cause of Death **
+8. Memories Remain
+9. Turned Inside Out
+
+ John Tardy - Vocal
+ Trevor Peres - Rhythm Guitar
+ Frank Watkins - Bass
+ James Murphy - Lead Guitar
+ Donald Tardy - Drums
+
+All Music By Trevor Peres & Donald Tardy.
+** By Trevor Peres & Allen West.
+All Lyrics By John Tardy,Except * By
+T.G.Warrior.
+Produced By Scott Burns & OBITUARY.
+Executive Producer Monte Conner.
+Engineered & Mixed By Scott Burns.
+Recorded At Morrisound Recording, Tampa, Florida.
+Mastered By Mike Fuller At Fullersound,
+Miami, Florida.
+
+(P)&(C) 1990 ROADRACER Records
+
+### "The End Complete" 1992, Death Metal
+
+1. I`m in Pain
+2. Back to One
+3. Dead Silence
+4. In the End of Life
+5. Sickness
+6. Corrosive
+7. Killing Time
+8. The End Complete
+9. Rotting Ways
+
+ John Tardy - Vocal
+ Trevor Peres - Rhytm Guitar
+ Frank Watkins - Bass
+ Allen West - Lead Guitar
+ Donald Tardy - Drums
+
+(p) 1992 THE ALL BLACKS B.V. /
+  ROADRUNNER Production B.V.
+(c) 1992 THE ALL BLACKS B.V.
+
+### "World Demise" 1994, Death Metal
+
+1. Don't Care
+2. World Demise
+3. Burned In
+4. Redefine
+5. Paralyzing
+6. Lost
+7. Solid State
+8. Splattered
+9. Final Thoughts
+10. Boiling Point
+11. Set in Stone
+12. Kill for Me
+
+ John Tardy - Vocal
+ Trevor Peres - Rhytm Guitar
+ Frank Watkins - Bass
+ Allen West - Lead Guitar
+ Donald Tardy - Drums
+
+Produced By Scott Burns & Obituary
+
+(P)&(C) 1994 THE ALL BLACKS B.V.
+
+### "Don't Care [EP]" 1994, Death Metal
+
+1. Don't Care 
+2. Solid State 
+3. Killing Victims Found
+
+John Tardy - Vocal 
+Trevor Peres - Rhytm Guitar 
+Frank Watkins - Bass 
+Allen West - Lead Guitar 
+Donald Tardy - Drums 
+
+Produced By Scott Burns & Obituary 
+
+(P)&(C) 1994 THE ALL BLACKS B.V.
+
+### "Back from the Dead" 1997, Death Metal
+
+1. Threatening Skies
+2. By the Light
+3. Inverted
+4. Platonic Disease
+5. Download
+6. Rewind
+7. Feed on the Weak
+8. LockDown
+9. Pressure Point
+10. Back from the Dead
+11. Bullituary (Remix)
+
+ John Tardy - Vocal
+ Trevor Peres - Rhytm Guitar
+ Frank Watkins - Bass
+ Allen West - Lead Guitar
+ Donald Tardy - Drums
+
+Produced By Scott Burns & Obituary
+
+(P)&(C) 1997 THE ALL BLACKS B.V.
+
+### "Dead [live]" 1998, Death Metal
+
+1. Download 
+2. Chopped in Half 
+3. Turned Inside Out 
+4. Threatening Skies 
+5. By the Light 
+6. Dying 
+7. Cause of Death 
+8. I'm In Pain 
+9. Rewind 
+10. Til Death 
+11. Kill for Me 
+12. Don't Care 
+13. Platonic Disease 
+14. Back from the Dead 
+15. Final Thoughts 
+16. Slowly We Rot
+
+### "Anthology [compilation]" 2001, Death Metal
+
+1. Find the Arise (demo) 
+2. Til Death 
+3. Internal Bleeding 
+4. Intoxicated 
+5. Slowly We Rot 
+6. Cause of Death 
+7. Dying 
+8. Chopped in Half 
+9. Turned Inside Out 
+10. Back to One 
+11. The End Complete 
+12. I'm in Pain 
+13. Kill for Me 
+14. Final Thoughts 
+15. Don't Care 
+16.Threatening Skies 
+17. By the Light 
+18. Back from the Dead 
+19. Buried Alive (unreleased) 
+20. Boiling Point (212 degree sporadic mix)
+
+### "Frozen In Time" 2005, Death Metal
+
+01. Redneck Stomp
+02. On the Floor
+03. Insane 
+04. Blindsided
+05. Back Inside
+06. Mindset
+07. Stand Alone
+08. Slow Death
+09. Denied
+10. Lockjaw
+
+### "Frozen Alive (DVD)" 2006, Death Metal
+
+
+
+### "Xecutioner's Return" 2007, Death Metal
+
+1. Face Your God 02:56  
+2. Lasting Presence 02:12  
+3. Evil Ways 02:57  
+4. Drop Dead 03:35  
+5. Bloodshot 03:25  
+6. Seal Your Fate 02:30  
+7. Feel The Pain 04:31  
+8. Contrast The Dead 07:01  
+9. Second Chance 03:28  
+10. Lies 03:32  
+11. In Your Head 04:31 
+
+
+John Tardy - Vocals
+Trevor Peres - Guitars
+Ralph Santolla - Guitars
+Frank Watkins - Bass
+Donald Tardy - Drums
+
+### "Darkest Day " 2009, Death Metal
+
+1. List of Dead 03:34  
+2. Blood to Give 03:34  
+3. Lost 03:55  
+4. Outside My Head 03:52  
+5. Payback 04:29  
+6. Your Darkest Day 05:06  
+7. This Life 03:45  
+8. See Me Now 03:22  
+9. Fields of Pain 03:17  
+10. Violent Dreams 01:59  
+11. Truth Be Told 04:49  
+12. Forces Realign 04:37  
+13. Left to Die 06:20 
+
+
+Line-up:
+
+John Tardy - Vocals
+Trevor Peres - Guitar
+Ralph Santolla - Guitar
+Frank Watkins - Bass
+Donald Tardy - Drums
+
+The album's artwork was once again done by Andreas Marschall who created the
+art for "The End Complete", "Frozen in Time" and "Xecutioner's Return".
+
+### "Live Xecution - Party.San 2008 [DVD]" 2009, Death Metal
+
+1. Find The Arise 02:33  
+2. On The Floor 03:25  
+3. Chopped In Half 04:03  
+4. Turned Inside Out 02:08  
+5. Forces Realign 05:26  
+6. Insane 03:39  
+7. Face Your God 03:12  
+8. Dethroned Emperor 05:15  
+9. Evil Ways 03:27  
+10. Drop Dead 03:36  
+11. Contrast The Dead 06:47  
+12. Second Chance 03:40  
+13. Stand Alone 10:00  
+14. Slow Death 03:08  
+15. Slowly We Rot 06:16 
+
+### "Ten Thousand Ways to Die (live)" 2016, Death Metal
+
+1. Loathe  06:16    
+2. Ten Thousand Ways to Die  03:17    
+3. Redneck Stomp (live, The Mayan, Los Angeles)  04:11    
+4. Centuries of Lie (live, The Masquerade, Atlanta)  02:15    
+5. Visions in My Head (live, Baltimore Soundstage, Baltimore)  04:18   
+6. Intoxicated (live, Revolution Center, Boise)  05:41  
+7. Bloodsoaked (live, Irving Plaza, New York)  03:31   
+8. Dying (live, Metro, Chicago)  04:38  
+9. Find the Arise (live, Opera House, Toronto)  02:17    
+10. 'Til Death (live, House of Blues, San Diego)  04:47 
+11. Don't Care (live, Club Red, Phoenix)  02:32    
+12. Chopped in Half / Turned Inside Out (live, The Ritz Ybor, Tampa)  05:44 
+13. Slowly We Rot (live, Revolution Live, Fort Lauderdale)  05:10 
+
+Live tracks 3-13 recorded during the band's 2015 "Inked in Blood" world tour.
+
+### "No (single)" 2017, Death Metal
+
+1. No  03:39 
+
+Exclusive track featured in Decibel Magazine issue 149
+
+### "Obituary" 2017, Death Metal
+
+1. Brave  02:14   
+2. Sentence Day  02:49  
+3. A Lesson in Vengeance  03:07 
+4. End It Now  04:02    
+5. Kneel Before Me  03:04    
+6. It Lives  03:24   
+7. Betrayed  03:01   
+8. Turned to Stone  04:13  
+9. Straight to Hell  03:57    
+10. Ten Thousand Ways to Die  03:16    
+11. No Hope  03:21 
+
+
+Recorded at Obituary's home studio in Tampa, Florida, USA in end of 2016.
+
 
 ## Отношения с другими группами
 

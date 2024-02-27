@@ -1,7 +1,22 @@
 # Full Scale Conflict
 
-Дискография
-"Trials Of Existence" 2010, Metalcore
+
+
+## Дискография
+
+### "Trials Of Existence" 2010, Metalcore
+
+01. Trials Of Existence
+02. Disposable Ideals
+03. Deadsoil
+04. Hail The Triumph Of Loss
+05. We The Disease
+06. Grand Denial
+07. Battalions Of Fear
+08. Wake The Dead
+09. Interlude
+10. Life Aborted
+
 
 ## Отношения с другими группами
 

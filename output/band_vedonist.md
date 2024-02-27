@@ -1,8 +1,31 @@
 # Vedonist
 
-Дискография
-"Awaking to Immortality" 2005, Death Metal
-"The World of Reversed Decalogue" 2008, Death Metal
+
+
+## Дискография
+
+### "Awaking to Immortality" 2005, Death Metal
+
+1. Objectivity Unjust
+2. Self-Created Martyr
+3. Host of Human Desires
+4. Loss of Humanity
+5. Break the Disembodied Altar
+6. Monologue with the Dust
+7. A Moment of Reflection	 
+8. Anhedonia Society
+
+### "The World of Reversed Decalogue" 2008, Death Metal
+
+1. Dehumanized
+2. Apprehensive Respect
+3. Sleeping in Flame
+4. Anus Mundi
+5. Dead Chimneys Monument
+6. Patients of the Slaughterhouse
+7. Sonderkommando
+8. Lux in Tenebris Lucet
+
 
 ## Отношения с другими группами
 

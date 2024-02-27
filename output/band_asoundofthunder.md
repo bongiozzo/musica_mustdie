@@ -1,8 +1,34 @@
 # A Sound of Thunder
 
-Дискография
-"Metal Renaissance" 2011, Heavy Metal
-"Out of the Darkness" 2012, Heavy Metal
+
+
+## Дискография
+
+### "Metal Renaissance" 2011, Heavy Metal
+
+1.	 Wee Beastie	01:10	 
+2.	 The Beast	06:17	 
+3.	 Of Wood and Steel	05:15	 
+4.	 My Name Is Doom (The Doctor Is In)	10:04	 
+5.	 Flesh and Blood	06:11	 
+6.	 Blood Vomit	04:36	 
+7.	 Devil in Disguise	06:27	 
+8.	 Just Another Fool	04:07	 
+9.	 The Buried Truth	06:56	
+
+### "Out of the Darkness" 2012, Heavy Metal
+
+1.	 The Day I Die	08:31	 
+2.	 The Night Witch	05:37	 
+3.	 Kill That Bitch	03:56	 
+4.	 Murderous Horde	05:56	 
+5.	 A Sound of Thunder	04:45	 
+6.	 Out of the Darkness	04:23	 
+7.	 Calat Alhambra	08:17	 
+8.	 Fight Until the End	06:29	 
+9.	 This Too Shall Pass	05:07	 
+10.	 Discovery	08:35	 
+
 
 ## Отношения с другими группами
 

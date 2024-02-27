@@ -1,13 +1,125 @@
 # Cage 
 
-Дискография
-"Unveiled" 1998, Heavy Metal
-"Astrology" 2000, Heavy Metal
-"Darker Than Black" 2003, Heavy Metal
-"Hell Destroyer" 2007, Heavy Metal
-"Science of Annihilation" 2009, Heavy Metal
-"Supremacy of Steel" 2011, Heavy Metal
-"Ancient Evil" 2015, Heavy Metal
+(Power from California)
+
+## Дискография
+
+### "Unveiled" 1998, Heavy Metal
+
+1. Shoot To Kill 4:21 
+2. Modern Darkness 4:01 
+3. I Live 3:15 
+4. Buried In The Box 3:40 
+5. Devil Inside 4:25 
+6. Dancing Around The Fire 4:53 
+7. Release Me 4:28 
+8. Unveiled 5:59 
+9. The Iron Priest 0:29 
+10. Nomad 4:20 
+11. Influence 2:59 
+12. E.B.S 3:28 
+13. Disaster 0:12 
+14. Sudden Death 3:29 
+15. Asta La Vista 3:00
+
+
+### "Astrology" 2000, Heavy Metal
+
+1. Astrology
+2. Final Solution
+3. Psychotically Deranged
+4. The Edge 
+5. Echelon
+6. Root Of All Evil
+7. The Trigger Effect
+8. Souls And Flesh
+9. Fountain Of Youth
+10. Broken Dreams
+11. Vandalize
+12. Victim Of Society
+13. The Astrologicon
+
+
+### "Darker Than Black" 2003, Heavy Metal
+
+01 - Darker Than Black (00:49)
+02 - Kill The Devil (05:21)
+03 - Chupacabra (03:44)
+04 - Blood Of The Innocent (05:32)
+05 - Eyes Of Obsidian (04:57)
+06 - Philadelphia Experiment (04:33)
+07 - March Of The Cage (06:07)
+08 - White Magic (04:49)
+09 - Door To The Unknown (04:09)
+10 - Secret Of Fatima (05:52)
+11 - Wings Of Destruction (08:28)
+12 - Chupacabra (Spanish Version) (03:43)
+
+
+### "Hell Destroyer" 2007, Heavy Metal
+
+01.Ascension 00:45
+02.Hell Destroyer 03:46
+03.I Am the King 04:45
+04.The Circle of Light 00:47
+05.Christhammer 06:02
+06.Born in Blood 05:18
+07.Abomination 05:21
+08.Inauguration 00:45
+09.Rise of the Beast 05:42
+10.Cremation of Care 00:49
+11.Bohemian Grove 03:59
+12.Final Proclamation 00:23
+13.From Death to Legend 04:38
+14.Legion of Demons 07:53
+15.Betrayal 01:20
+16.Fall of the Angels 04:21
+17.Fire and Metal 03:20
+18.Beyond the Apocalypse 06:18
+19.The Lords of Chaos 01:02
+20.Metal Devil 05:36
+21.King Diamond 05:46
+
+
+"Hell Destroyer" was recorded, engineered, produced and mixed at Richard Carr Studios in San Diego, California. 
+
+### "Science of Annihilation" 2009, Heavy Metal
+
+1. The Power that Feeds 00:35 
+2. Planet Crusher 05:20 
+3. Scarlet Witch 05:36 
+4. Spirit of Vengeance 05:18 
+5. Black River Falls 05:48 
+6. Operation Overlord 04:39 
+7. Power of a God 05:07 
+8. Speed Kills 04:20 
+9. Stranger in Black 04:14 
+10. Die Glocke 05:14 
+11. Spectre of War 02:11 
+12. Science of Annihilation 05:35 
+13. At the Edge of the Infinite 01:46
+
+
+### "Supremacy of Steel" 2011, Heavy Metal
+
+1. Bloodsteel 05:37 
+2. The Beast of Bray Road 04:29 
+3. King of the Wasteland 05:59 
+4. Metal Empire 05:50 
+5. War of the Undead 05:17 
+6. Flying Fortress 04:15 
+7. Doctor Doom 06:00 
+8. Annaliese Michel 07:14 
+9. Braindead Woman 02:34 
+10. The Monitor 06:27 
+11. Hell Destroyer vs. Metal Devil 07:35 
+12. Skinned Alive (European Bonus Track) 05:03
+
+
+### "Ancient Evil" 2015, Heavy Metal
+
+
+
 
 ## Отношения с другими группами
 

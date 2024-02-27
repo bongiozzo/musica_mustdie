@@ -1,10 +1,25 @@
 # Thyruz
 
-Дискография
-"Crucifixion Failure (Demo)" 2004, Black Metal
-"Blasphemy (Demo)" 2005, Black Metal
-"Northern Blasphemy" 2007, Black Metal
-"Diseblot" 2010, Black Metal
+
+
+## Дискография
+
+### "Crucifixion Failure (Demo)" 2004, Black Metal
+
+
+
+### "Blasphemy (Demo)" 2005, Black Metal
+
+
+
+### "Northern Blasphemy" 2007, Black Metal
+
+
+
+### "Diseblot" 2010, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,9 +1,32 @@
 # The Burning
 
-Дискография
-"Storm The Walls" 2007, Thrash
-"Rewakening" 2009, Thrash
-"Hail The Horde" 2010, Thrash
+
+
+## Дискография
+
+### "Storm The Walls" 2007, Thrash
+
+
+
+### "Rewakening" 2009, Thrash
+
+
+
+### "Hail The Horde" 2010, Thrash
+
+01. Godless
+02. Bait The Hook
+03. Flames Be Your FriendNihilist Life
+04. Nihilist Life
+05. Swing The Pendulum
+06. Wolfmoon (feat. Soren "Nico" Adamsen)
+07. Hail The Horde (feat. Scott and Bjorn Jensen)
+08. Inverted Cross Syndrome
+09. Metamorphosis
+10. Baptized In Bong Water
+11. Turn Or Burn
+12. Disownment
+
 
 ## Отношения с другими группами
 

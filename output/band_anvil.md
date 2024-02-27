@@ -1,26 +1,100 @@
 # Anvil
 
-Дискография
-"Hard 'n' Heavy" 1981, Heavy Metal
-"Metal On Metal" 1982, Heavy Metal
-"Forged In Fire" 1983, Heavy Metal
-"Backwaxed" 1985, Heavy Metal
-"Strength Of Steel" 1987, Heavy Metal
-"Pound For Pound" 1988, Heavy Metal
-"Past And Present - Live in Concert" 1989, Heavy Metal
-"Worth The Weight" 1991, Heavy Metal
-"Plugged In Permanent" 1996, Heavy Metal
-"Absolutely No Alternative" 1997, Heavy Metal
-"Speed Of Sound" 1998, Heavy Metal
-"Antology Of Anvil (compilation)" 2000, Heavy Metal
-"Plenty Of Power" 2001, Heavy Metal
-"Still Going Strong" 2002, Heavy Metal
-"Back To Basics" 2004, Heavy Metal
-"This Is Thirteen" 2007, Heavy Metal
-"Juggernaut Of Justice" 2011, Heavy Metal
-"Monument Of Metal - The Very Best Of Anvil" 2011, Heavy Metal
-"Hope in Hell" 2013, Heavy Metal
-"Anvil Is Anvil" 2016, Heavy Metal
+
+
+## Дискография
+
+### "Hard 'n' Heavy" 1981, Heavy Metal
+
+
+
+### "Metal On Metal" 1982, Heavy Metal
+
+
+
+### "Forged In Fire" 1983, Heavy Metal
+
+
+
+### "Backwaxed" 1985, Heavy Metal
+
+
+
+### "Strength Of Steel" 1987, Heavy Metal
+
+
+
+### "Pound For Pound" 1988, Heavy Metal
+
+
+
+### "Past And Present - Live in Concert" 1989, Heavy Metal
+
+
+
+### "Worth The Weight" 1991, Heavy Metal
+
+
+
+### "Plugged In Permanent" 1996, Heavy Metal
+
+
+
+### "Absolutely No Alternative" 1997, Heavy Metal
+
+
+
+### "Speed Of Sound" 1998, Heavy Metal
+
+
+
+### "Antology Of Anvil (compilation)" 2000, Heavy Metal
+
+
+
+### "Plenty Of Power" 2001, Heavy Metal
+
+Plenty Of Power
+Groove Science
+Ball Of Fire
+The Creep
+Computer Drone
+Beat The Law  Pro Wrestling
+Siren Of The Sea
+Disgruntled
+Real Metal
+Dirty Dorothy (bonus track)
+
+
+
+### "Still Going Strong" 2002, Heavy Metal
+
+
+
+### "Back To Basics" 2004, Heavy Metal
+
+
+
+### "This Is Thirteen" 2007, Heavy Metal
+
+
+
+### "Juggernaut Of Justice" 2011, Heavy Metal
+
+
+
+### "Monument Of Metal - The Very Best Of Anvil" 2011, Heavy Metal
+
+
+
+### "Hope in Hell" 2013, Heavy Metal
+
+
+
+### "Anvil Is Anvil" 2016, Heavy Metal
+
+
+
 
 ## Отношения с другими группами
 

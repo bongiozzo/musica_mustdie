@@ -1,7 +1,23 @@
 # Purity
 
-Дискография
-"Dear Evilyn" 2004, Alternative
+
+
+## Дискография
+
+### "Dear Evilyn" 2004, Alternative
+
+01. Thursday 
+02. Nibs 
+03. Dear Evilyn 
+04. Endless 
+05. Cape 
+06. Slave 
+07. Gasp Again 
+08. Days Go By 
+09. You 
+10. Maybe Tomorrow 
+11. Mother. Father. Sister. Brother.
+
 
 ## Отношения с другими группами
 

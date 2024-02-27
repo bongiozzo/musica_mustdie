@@ -1,13 +1,61 @@
 # Combichrist
 
-Дискография
-"The Joy Of Gunz" 2003, Metal
-"Everybody Hates You" 2005, Metal
-"What The Fuck Is Wrong With You People?" 2007, Metal
-"Today We Are All Demons" 2009, Metal
-"Making Monsters" 2010, Metal
-"We Love You" 2014, Metal
-"This Is Where Death Begins" 2016, Metal
+Techno/industrial
+
+## Дискография
+
+### "The Joy Of Gunz" 2003, Metal
+
+
+
+### "Everybody Hates You" 2005, Metal
+
+01. This Shit Will Fuck You Up
+02. Enjoy The Abuse
+03. Today I Woke To The Rain Of Blood
+04. I'm Happy Anyway
+05. Blut Royale
+06. Who's Your Daddy, Snakegirl?
+07. Feed Your Anger
+08. God Bless
+09. Like To Thank My Buddies
+10. Happy Fucking Birthday
+11. This Is My Rifle
+12. Lying Sack Of Shit
+13. Without Emotions
+
+### "What The Fuck Is Wrong With You People?" 2007, Metal
+
+
+
+### "Today We Are All Demons" 2009, Metal
+
+
+
+### "Making Monsters" 2010, Metal
+
+
+
+### "We Love You" 2014, Metal
+
+01. We Were Made To Love You
+02. Every Day Is War
+03. Can't Control
+04. Satan's Propaganda
+05. Maggots At The Party
+06. Denial
+07. The Evil In Me
+08. Fuck Unicorns
+09. Love Is A Razorblade
+10. From My Cold Dead Hands
+11. We Rule The World, Motherfuckers
+12. Retreat Hell, Part 1
+13. Retreat Hell, Part 2
+
+### "This Is Where Death Begins" 2016, Metal
+
+
+
 
 ## Отношения с другими группами
 

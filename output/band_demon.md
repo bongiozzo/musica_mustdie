@@ -1,17 +1,153 @@
 # Demon
 
-Дискография
-"Night Of The Demon" 1981, Heavy Metal
-"The Unexpected Guest" 1982, Heavy Metal
-"The Plague" 1983, Heavy Metal
-"British Standard Approved" 1985, Heavy Metal
-"Heart of Our Time" 1985, Heavy Metal
-"Breakout" 1987, Heavy Metal
-"Taking The World By Storm" 1989, Heavy Metal
-"Hold on to the Dream" 1991, Heavy Metal
-"Blowout" 1992, Heavy Metal
-"Spaced Out Monkey" 2001, Heavy Metal
-"Better The Devil You Know" 2005, Heavy Metal
+
+
+## Дискография
+
+### "Night Of The Demon" 1981, Heavy Metal
+
+1. Full Moon 01:35  
+2. Night of the Demon 03:17
+3. Into the Nightmare 03:57
+4. Father of Time 04:20 
+5. Decisions 03:40
+6. Liar 03:14
+7. Big Love 04:15
+8. Ride the Wind 02:48
+9. Fool to Play the Hard Way 04:01
+10. One Helluva Night 04:00 
+
+### "The Unexpected Guest" 1982, Heavy Metal
+
+1. Intro: An Observation 01:24 
+2. Don't Break the Circle 04:45 
+3. The Spell 03:42
+4. Total Possession 03:52
+5. Sign of a Madman 04:30 
+6. Victim of Fortune 04:42 
+7. Have We Been Here Before ? 04:42
+8. Strange Institution 04:51
+9. The Grand Illusion 03:43
+10. Beyond the Gates 04:20
+11. Deliver Us From Evil 05:19 
+
+### "The Plague" 1983, Heavy Metal
+
+1. Plague  
+2. Nowhere To Run 
+3. Fever In The City 
+4. Black Heath 
+5. Black Heath Intro  
+6. Writings On The Wall   
+7. Only Sane Man  
+8. A Step To Far 
+ 
+ 
+
+
+### "British Standard Approved" 1985, Heavy Metal
+
+1. First Class 04:46
+2. Cold in the Air 02:59
+3. Touching the Ice 04:50
+4. Second Stage 03:14  
+5. Proxima 03:02
+6. The Link, Part 1 03:31
+7. The Link, Part 2 03:08
+8. New Ground 06:22
+9. From the Outside 05:38
+10. Wonderland 04:40
+11. Hemispheres (British Standard Approved) 05:58 
+
+### "Heart of Our Time" 1985, Heavy Metal
+
+1. Heart of Our Time 03:56
+2. Walk in Your Own Light 04:35
+3. Genius ? 05:52
+4. Expressing the Heart 06:51
+5. High Climber 04:19
+6. Crossfire 04:35
+7. Grown Ups 03:50
+8. Summit 02:27  
+9. One Small Step 04:08 
+
+### "Breakout" 1987, Heavy Metal
+
+1. Life on the Wire 05:40 
+2. Hurricane 04:48 
+3. Breakout 04:38 
+4. Living in the Shadow 05:09 
+5. England's Glory 03:38
+6. Standing in the Shadow 04:55
+7. Hollywood 04:58
+8. The Big Chance 05:37 
+9. Through These Eyes 05:45 
+
+### "Taking The World By Storm" 1989, Heavy Metal
+
+1. Commercial Dynamite 04:44
+2. Taking the World by Storm 04:06
+3. The Life Brigade 06:08
+4. Remembrance Day (A Song for Peace) 09:39
+5. What Do You Think About Hell? 07:00
+6. Blue Skies in Red Square 08:07
+7. Time Has Come 11:35 
+
+### "Hold on to the Dream" 1991, Heavy Metal
+
+1. No More Hell on Earth 06:50
+2. New Frontiers 05:18 
+3. Hold on to the Dream 05:48
+4. The Lion's Share 05:00
+5. Eastern Sunset 08:21 
+6. Barons of Darkness 07:10
+7. Ivory Towers 06:15
+8. Nothing Turned out Right 04:16
+9. Out of the Shadows 04:42
+10. Shoot for the City 04:14 
+11. Coming Home 06:05 
+
+### "Blowout" 1992, Heavy Metal
+
+1. Still Worth Fighting For 04:50
+2. Everything Has Changed 04:35
+3. Visions of the Future 03:03 
+4. Tell Me What You're Looking For 04:14 
+5. Sacred Heart 04:44
+6. Crazy Town 04:14
+7. Victim of His Time 04:27 
+8. Million $ Ride 03:31 
+9. War Games 04:40
+10. Soldier of Furtune 04:13 
+11. Visions of the Future II 05:09
+12. Stop the Fire 05:41 
+
+### "Spaced Out Monkey" 2001, Heavy Metal
+
+1. Never Saw It Coming 05:53
+2. Sound of the Underground 05:46
+3. Cry From the Street 06:54 
+4. Homeless 01:27 
+5. Child of the Dark Sky 05:05
+6. Dreamtime 05:34
+7. Spaced out Monkey 04:15
+8. Streetwise Cowboy 05:23
+9. Alone 01:44
+10. Where You're Coming From 05:54
+11. Let Me out of Here 06:33 
+
+### "Better The Devil You Know" 2005, Heavy Metal
+
+1. Better the Devil You Know 05:11
+2. Dead of the Night 03:34
+3. Standing on the Edge 05:08
+4. Taking on the World 04:00
+5. Temptation 03:37
+6. Warriors 04:21
+7. Live Again 04:19
+8. Obsession 04:42 
+9. Change 05:12 
+
 
 ## Отношения с другими группами
 

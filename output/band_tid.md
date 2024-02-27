@@ -1,7 +1,18 @@
 # Tid
 
-Дискография
-"Fix Ide" 2016, Progressive
+
+
+## Дискография
+
+### "Fix Ide" 2016, Progressive
+
+1 - Bom Shiva
+2 - Dumhetens Gudinna
+3 - Aurora Surrealis
+4 - Solens Nya Namn
+5 - Demimond
+6 – Nadir
+
 
 ## Отношения с другими группами
 

@@ -1,12 +1,86 @@
 # Into Eternity
 
-Дискография
-"Into Eternity" 2000, Progressive
-"Dead or Dreaming" 2001, Progressive
-"Buried in Oblivion" 2004, Progressive
-"The Scattering Of Ashes" 2006, Progressive
-"The Incurable Tragedy" 2008, Progressive
-"Fukushima (single)" 2012, Progressive
+
+
+## Дискография
+
+### "Into Eternity" 2000, Progressive
+
+Torn 
+Sorrow 
+Left Behind 
+The Modern Day 
+A Frozen Escape 
+Behind the Disguise 
+Holding onto Emptiness 
+Into Eternity 
+Speak of the Dead 
+Silence Through Virtue
+
+
+
+### "Dead or Dreaming" 2001, Progressive
+
+Absolution of the Soul 
+Distant Pale Future 
+Shallow 
+Unholy (Fields of the Dead) 
+Elysium Dream 
+Selling God 
+Imagination Overdose 
+Dead Or Dreaming 
+Cyber Messiah 
+Identify
+
+### "Buried in Oblivion" 2004, Progressive
+
+
+
+### "The Scattering Of Ashes" 2006, Progressive
+
+1. Novus Inceptum (Intro) 
+2. Severe Emotional Distress 
+3. Nothing 
+4. Timeless Winter 
+5. Out 
+6. A Past Beyond Memory 
+7. Surrounded By Night 
+8. Eternal 
+9. Pain Through Breathing 
+10. Suspension of Disbelief 
+11. Paralyzed 
+
+Lien-Up: 
+Stu Block - clean/death vocals 
+Tim Roth - clean/death vocals & guitar 
+Troy Bleich - bass & clean/death vocals 
+Jim Austin - drums
+
+### "The Incurable Tragedy" 2008, Progressive
+
+01. Prelude To Woe
+02. Tides of Blood
+03. Spent Years of Regret
+04. Symptoms
+05. Diagnosis Terminal
+06. The Incurable Tragedy I (September 21, 2006)
+07. Indignation
+08. Time Immemorial
+09. The Incurable Tragedy II (November 10, 2006)
+10. A Black Light Ending
+11. One Funeral Hymn For Three
+12. The Incurable Tragedy III (December 15, 2006)
+
+Stu Block - clean/death vocals
+Tim Roth - lead guitar, back-up clean vocals
+Justin Bender - rhythm guitar, lead guitar
+Troy Bleich - bass guitar, back-up death vocals
+Steve Bolognese - drums
+
+### "Fukushima (single)" 2012, Progressive
+
+
+
 
 ## Отношения с другими группами
 

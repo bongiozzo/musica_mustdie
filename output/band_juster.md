@@ -1,7 +1,33 @@
 # Juster
 
-Дискография
-"What I See What I Think" 1995, Rap Metal
+
+
+## Дискография
+
+### "What I See What I Think" 1995, Rap Metal
+
+1. Boom Boom
+2. What I See What I Think
+3. Buck Your Head
+4. Blow The Shack Up
+5. Common Thief
+6. I Remember The Night
+7. One For The Mobiles
+8. No Room On The Dancefloor
+9..Officer Murphy
+10.Don't Ask Me Why
+
+All Songs By JUSTER.
+Produced By Steve Marker & Dillinger.
+Engineered By Greg Griffith.
+Recorded At Smart Studios.
+
+Additional Musicians:
+Clyde Stubblefield  - The Original Funky Drummer
+Pauli Ryan - Percussion
+
+(P)&(C) 1995 BULLET PROOF Records
+
 
 ## Отношения с другими группами
 

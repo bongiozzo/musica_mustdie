@@ -1,8 +1,32 @@
 # Black Heaven
 
-Дискография
-"Obscurity" 2002, Gothic
-"Trugbild" 2004, Gothic
+gothic wave
+
+## Дискография
+
+### "Obscurity" 2002, Gothic
+
+
+
+### "Trugbild" 2004, Gothic
+
+01. In deinen Augen
+02. Trugbild
+03. Horizont
+04. Ohne Zeit
+05. Natur und Kunst
+06. Der alte Mann
+07. Im Regen
+08. Schmerz
+09. Niemand
+10. In deinen Augen (alternative version)
+11. Schmerz (alternative version)
+12. Schwarze Rozen (bonus track)
+13. Ein Hauch von Wirklichkeit (bonus track)
+14. Herr der Welt (bonus track)
+15. Kleiner Engel flugellos (bonus track)
+16. Phonix (bonus track)
+
 
 ## Отношения с другими группами
 

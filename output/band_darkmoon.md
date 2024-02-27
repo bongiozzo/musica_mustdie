@@ -1,8 +1,37 @@
 # Darkmoon
 
-Дискография
-"Black Domain (demo)" 2003, Death Metal
-"...Of Bitterness and Hate" 2005, Death Metal
+
+
+## Дискография
+
+### "Black Domain (demo)" 2003, Death Metal
+
+
+
+### "...Of Bitterness and Hate" 2005, Death Metal
+
+1. Of Bitterness and Hate 00:46  
+2. The Cell 04:10  
+3. Damned 03:51  
+4. The Fallen One 05:10  
+5. Dust in my Eyes 04:03  
+6. Drowning 05:15  
+7. The Beast 04:26  
+8. Bitter End 03:35  
+9. Lost Soul 03:16  
+10. On Her Grave 04:57  
+11. Evil Goddess of the Night 04:53
+
+
+All songs written by DARKMOON
+Produced, mixed and mastered at Little Creek Studios, Switzerland by V.O.Pulver and Frank Winkelmann
+
+Pascal Rechsteiner - Bass
+Matthias Borer - Vocals
+Gianrichy Giamboi - Guitars
+Patric Hubacher - Drums
+Christian Waltert - Guitars
+
 
 ## Отношения с другими группами
 

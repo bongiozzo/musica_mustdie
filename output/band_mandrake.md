@@ -1,10 +1,81 @@
 # Mandrake
 
-Дискография
-"Forever" 2000, Doom
-"Calm The Seas" 2003, Gothic
-"The Balance Of Blue" 2005, Gothic
-"Mary Celeste" 2007, Gothic
+
+
+## Дискография
+
+### "Forever" 2000, Doom
+
+
+
+### "Calm The Seas" 2003, Gothic
+
+01. Soaked Through The Skylight
+02. Shine 
+03. The Reason If Not Far To Seek 
+04. Entwine 
+05. Memorabilia 
+06. Essential Trifles 
+07. Insomnia 
+08. Dronning Maud Land 
+09. Blue Hours Decade 
+10. Distant Shores 
+11. Drifting Apart
+
+### "The Balance Of Blue" 2005, Gothic
+
+The Necklace 
+Ode To The Outside World 
+Crawling Waves 
+The Field Of The Sacred Flowers 
+Silent Tears 
+Balance Of Blue 
+Infant Sorrow 
+Turn The Page 
+Falling Away 
+Crowned With Leaves 
+It Never Ends 
+The Final Chapter
+-bonus tracks-
+A Poet's Serenade
+Who's That Girl
+Pictures Of You
+Stay
+Fade To Black
+
+### "Mary Celeste" 2007, Gothic
+
+01. Mary Celeste
+02. Crystals Of Forgiveness
+03. Fragile
+04. Forgiven
+05. Adore
+06. Masquerade
+07. Sweet Desolation
+08. Moments (Touched By Time)
+09. Breathe
+10. Solace
+11. Life's Last Shore
+12. Borrowed Life
+13. Paralyzed
+
+Birgit Lau - Vocals
+Lutz de Putter - Vocals & Guitars
+Julius Martinek - Guitars
+Garvin Busch - Bass
+Jorg Uken - Drums & Keys
+
+Produced by Jorg Uken and Lutz De Putter
+Recorded and mixed in may 2007 at the Soundlodge Rhauderhefn Germany
+Mastered at the Studio E by Markus Stock
+All music written by Lutz De Putter except "Paralyzed" written by F Linsmeier
+Lyrics by Eike-S. Kroger
+Additional Keyboards by Bernd Ammermann and F Linsmeier
+Guest Vocals by Ladde Ropers-,
+Guest lead guitar on "Mary Celeste" by Michael Brochers
+Band photography by Jana Rickers
+Cover artwork and design by Jason Campblood-
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,23 @@
 # Infinita Symphonia
 
-Дискография
-"A Mind's Chronicle" 2011, Power Metal
+
+
+## Дискография
+
+### "A Mind's Chronicle" 2011, Power Metal
+
+1. Intro(verted)	 
+2. Lost in My Own Brain
+3. Mighty Storm
+4. The Illusion
+5. Planet Universe
+6. Here There's No Why (feat. Fabio Lione)
+7. Only One Reason (feat. Tim "ripper" Owens)
+8. Lost And Found
+9. From Earth To Heaven
+10. The Equation of The End
+11. I Believe in You
+
 
 ## Отношения с другими группами
 

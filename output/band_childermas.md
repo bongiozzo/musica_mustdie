@@ -1,7 +1,28 @@
 # Childermas
 
-Дискография
-"Argotique" 2004, Gothic
+gothic rock
+
+## Дискография
+
+### "Argotique" 2004, Gothic
+
+1. Intro
+2. Get Loved
+3. State of Gothique [I Feel]
+4. The Saint
+5. Take Me High
+6. Fatalia
+7. Don't Promise Me
+8. Cleansed by Curse [dedicated to K-141 "Курск"]
+9. Sear Me [Argotique re-make]
+
+
+Yar - вокал, ритм-гитара
+Leo - ударные
+Loki - гитары
+Goratio - бас
+Tearell - клавишные
+
 
 ## Отношения с другими группами
 

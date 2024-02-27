@@ -1,13 +1,87 @@
 # Fear My Thoughts
 
-Дискография
-"Sapere Aude (EP)" 1999, Melodic Death Metal
-"23" 2001, Melodic Death Metal
-"Vitriol" 2003, Melodic Death Metal
-"The Great Collapse" 2004, Melodic Death Metal
-"Hell Sweet Hell" 2005, Melodic Death Metal
-"Vulcanus" 2006, Melodic Death Metal
-"Isolation" 2008, Metalcore
+
+
+## Дискография
+
+### "Sapere Aude (EP)" 1999, Melodic Death Metal
+
+1. Sapere Aude 04:02  
+2. As Winter Dreams The Summer 04:06  
+3. Loving Me Doesn't Mean Owning Me 03:20  
+4. Adjusted 04:28  
+5. United & Wrong 06:03  
+6. Homoscientificus 05:28
+
+### "23" 2001, Melodic Death Metal
+
+1. Failure 06:34  
+2. Progression 04:22  
+3. 529 03:17  
+4. When Will It End 06:03  
+5. Killed For Profit 02:06  
+6. 9284 01:14  
+7. Words Cannot Express 05:52  
+8. My Strength, My Weakness 14:36
+
+### "Vitriol" 2003, Melodic Death Metal
+
+1. Aponia 02:24  
+2. 6 Billion Mirrors 05:56  
+3. A New Enlightenmet Must Come To Find… 03:57  
+4. Ataraxia 02:47  
+5. Nothing That Could Be Compared 05:38  
+6. As I Bleed 06:51  
+7. Fear My Thoughts 05:10
+
+### "The Great Collapse" 2004, Melodic Death Metal
+
+1. Velvet 00:34  
+2. Great Collapse 06:13  
+3. Rituals 04:42  
+4. Sirens Singing 04:52  
+5. Hollow Inside 03:44  
+6. Architect 00:45  
+7. Challenge 06:09  
+8. Mission Immortality 06:05  
+9. Norm AD 02:35  
+10. Reign 06:19
+
+### "Hell Sweet Hell" 2005, Melodic Death Metal
+
+1. Intro 00:56  
+2. Windows for the Dead 04:46  
+3. In the Hourglass 04:28  
+4. My Delight 04:40  
+5. Sweetest Hell 03:48  
+6. Dying Eyes 03:32  
+7. Sadist Hour 04:14  
+8. The Masters Call 04:14  
+9. Ghosts of Time 04:11  
+10. Satisfaction Guaranteed 04:22  
+11. The Fighting 03:53  
+12. Trying to Feel 06:25 
+
+
+Produced, engineered and mixed by Jacob Hansen and Fear My Thoughts at Hansen
+Studios, Ribe/Denmark. Mastered April 2005 By Hans Olsson at
+Digitalfabriken/Sweden.
+
+Markus Ruf - Guitar
+Patrick Hagman - Guitar
+Alexander Kovats - Drums
+Bartosz Wojciechowski - Bass
+Mathias Ockl - Voice
+Lisa Graf - Violin
+
+### "Vulcanus" 2006, Melodic Death Metal
+
+
+
+### "Isolation" 2008, Metalcore
+
+
+
 
 ## Отношения с другими группами
 

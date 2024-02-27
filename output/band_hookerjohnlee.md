@@ -1,8 +1,17 @@
 # Hooker, John Lee
 
-Дискография
-"Face To Face" 2003, Blues
-"Too Much Boogie" 2006, Blues
+King of the Blues
+
+## Дискография
+
+### "Face To Face" 2003, Blues
+
+
+
+### "Too Much Boogie" 2006, Blues
+
+
+
 
 ## Отношения с другими группами
 

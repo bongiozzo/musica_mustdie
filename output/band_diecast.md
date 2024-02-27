@@ -1,7 +1,29 @@
 # Diecast
 
-Дискография
-"Day Of Reckoning" 2005, Hardcore
+
+
+## Дискография
+
+### "Day Of Reckoning" 2005, Hardcore
+
+1. Intro 
+2. Disrepair 
+3. In The Shocks 
+4. Singled Out 
+5. Plague 
+6. Exacting My Revenge 
+7. Remember The Fallen 
+8. Desensitized 
+9. Invent The Truth 
+10. Solace 
+11. Day Of Reckoning 
+
+Line-Up: 
+Vocals: Colin Schleifer 
+Guitar: Jonathon Kita, Kirk Kolatis 
+Bass: Jeremy Wooden 
+Drums: Jason Costa
+
 
 ## Отношения с другими группами
 

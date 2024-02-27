@@ -1,7 +1,36 @@
 # Mutha's Day Out
 
-Дискография
-"My Soul Is Wet" 1994, Punk
+
+
+## Дискография
+
+### "My Soul Is Wet" 1994, Punk
+
+1. Locked
+2. My Soul Is Wet
+3. Green
+4. What U See / We All Bleed Red
+5. Dry Water
+6. Ding Ding Man
+7. Get A Clue
+8. Blank Page
+9. Memories Fade
+10.Breakfast First Please
+11.Wait For Me
+12.Ugly
+
+All Songs Written By MUTHA'S DAY OUT.
+Produced By Eli Ball At The Warehouse Studio, Memphis.
+Engineers: John Hampton, Eli Ball & Paul Ebersold.
+
+Mikal Moore - Vocals
+Bruce Stephens - Vocals
+Chuck Schaaf - guitar
+Jeff Morgan - Bass
+Rodney Moffitt - Drums
+
+(P)&(C) 1994 CHRYSALIS Records
+
 
 ## Отношения с другими группами
 

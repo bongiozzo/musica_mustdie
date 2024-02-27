@@ -1,10 +1,25 @@
 # Abomination
 
-Дискография
-"Abomination" 1990, Death Metal
-"Tragedy Strikes" 1991, Death Metal
-"The Final War (EP)" 1999, Death Metal
-"Curses Of A Deadly Sin" 1999, Death Metal
+
+
+## Дискография
+
+### "Abomination" 1990, Death Metal
+
+
+
+### "Tragedy Strikes" 1991, Death Metal
+
+
+
+### "The Final War (EP)" 1999, Death Metal
+
+
+
+### "Curses Of A Deadly Sin" 1999, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

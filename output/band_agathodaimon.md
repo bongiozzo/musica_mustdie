@@ -1,12 +1,142 @@
 # Agathodaimon
 
-Дискография
-"Blacken the Angel" 1998, Black Metal
-"Higher Art of Rebellion" 1999, Black Metal
-"Chapter III" 2001, Black Metal
-"Serpent's Embrace" 2004, Black Metal
-"Phoenix" 2009, Black Metal
-"In Darkness" 2013, Black Metal
+Vampiric Black Metal from Germany
+
+## Дискография
+
+### "Blacken the Angel" 1998, Black Metal
+
+
+
+### "Higher Art of Rebellion" 1999, Black Metal
+
+Ne cheama pamintul       5.37
+Tongue of thorns         4.36
+Glasul a rtei viitoare   8.38
+When she is mute         4.03
+A death
+  in it's plenitude      4.99
+Body of clay             5.03
+Novus ordo seclorum      6.05
+Back into the shadows    6.39
+Les posedes              4.46
+Neovampirism             6.12
+Heaven's coffin          5.09
+Ribbons/Requiem '99      6.49
+Body of clay
+  (Remixed version)      4.28
+
+
+### "Chapter III" 2001, Black Metal
+
+01. An Angel's Funeral 
+02. Spirit Soldier 
+03. Paradise Beyond 
+04. The Ending Of Our Yesterday 
+05. Past Shadows 
+06. Yesterday's Reprise 
+07. Departure 
+08. Sacred Divinity 
+09. Burden Of Time 
+
+
+Recorded at the Kohlekeller Studio 
+Produced by Kristian Kohlmannslehner
+Mixed at Commusication Studio by Gerhard Magin
+
+Hyperion - guitar
+Sathonys - guitar
+Vlad - vocals, keyboards
+Byron - clean vocals
+Marko T. - bass
+Matthias R. - drums
+Akaias - vocals
+Christine S. - keyboards
+
+
+### "Serpent's Embrace" 2004, Black Metal
+
+01. Cellos For The Insatiable
+02. Serpent's Embrace
+03. Rebirth
+04. Light Reborn
+05. Faded Years
+06. Solitude
+07. Limbs Of A Stare
+08. The Darkness Inside
+09. Bitter End
+10. Feelings
+
+Frank 'Akaias' Nordmann - vocals, guitars
+Sathonys - guitars, clean vocals
+Eddie 'Daryn' Smith - bass, clean vocals
+Felix U. Walzer - keys & synths
+Matthias Rodig - drums
+
+Guest appearances by:
+Ruth Knepel (Ophelia) - clean vocals on track 6
+Thilo Feucht - guitar solo on track 4 and
+additional songwriting on tracks 1,2,8
+Andrei 'Vlad' Rusu - lyrics for tracks 4 & 9
+Julio Angel Olivares Merino - lyrics for tracks 1
+& 7
+
+Recorded and mixed by Kristian 'Kohle'
+Kohlmannslehner at Kohelkeller Studio, Darmstadt.
+Produced by Kohle.
+All tracks arranged by Kohle and Agathodaimon.
+Video clip for "Serpent's Embrace" produced with
+friendly help of
+LPS-Lasersysteme, Siegmund Ruff & Crew, iMagic
+Films, Bernhard Kellerer & Crew.
+The models: Claudia Lancelotti, Steffie
+Wagenbauer, Karin Hertreich, Melanie Starklauf.
+Coverconcept, coverartwork & photos by Katja
+Piolka.
+Covermodel: s. Schackel.
+PC CD-ROM enhanced parts by Sathonys.
+
+### "Phoenix" 2009, Black Metal
+
+1. Heliopolis 04:36 
+2. Devil's Deal 04:33  
+3. Decline 05:33  
+4. Ground Zero 04:47  
+5. Ghost Of A Soul 04:30  
+6. Winterchild 05:34  
+7. Time Is The Fire 04:59  
+8. To Our Ashes 06:40  
+9. Amongst The Vultures 03:22  
+10. Oncoming Storm 06:26  
+11. Throughout The Fields Of Unshaded Grace 05:10  
+12. Grey Whisper 06:50 
+
+
+Line-up:
+
+Chris "Ashtrael" Bonner - Vocals
+Martin "Sathonys" Wickler - Guitars, Clean Vocals
+Jan Jansohn - Guitars
+Till Ottinger - Bass
+Manuel Steitz - Drums
+Felix Ь. Walzer - Keyboards
+
+The limited edition also features "Alone In The Dark" in two versions (a new
+version with Ashtrael and Sathonys on vocals and the original soundtrack
+version with Ruth "Ophelia" Knepel on vocals).
+
+### "In Darkness" 2013, Black Metal
+
+1. In Darkness (We Shall Be Reborn)  06:20     
+2. I've Risen  04:49    
+3. Favorite Sin  05:44    
+4. Oceans of Black  05:33    
+5. Adio  05:21    
+6. Somewhere Somewhen  05:48    
+7. Dusk of an Infinite Shade  04:42    
+8. Hollenfahrt der Selbsterkenntnis  06:00 
+9. Adio (Acoustic version)  3:27
+
 
 ## Отношения с другими группами
 

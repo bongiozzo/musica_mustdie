@@ -1,8 +1,40 @@
 # Otyg
 
-Дискография
-"Alvefard" 1998, Folk
-"Sagovindars Boning" 1999, Folk
+Folk-metal
+
+## Дискография
+
+### "Alvefard" 1998, Folk
+
+Huldran
+I Trollberg Och Skog
+Alvadimmans Omdaning
+Ulvskrede
+Fjallstrom
+I Hostlig Drakt
+Myrdingar - Martyrium
+Allfader Vise
+Fjдlldrottningens Slott
+Trollpiskal Ademarksblod
+Draugen
+Skymningsdans
+
+
+### "Sagovindars Boning" 1999, Folk
+
+Trollslottet
+Vilievandring
+Galdersbesjungen
+Nar Alvadrottningen Krons
+Backahasten
+Еrstider
+Mossfrun Kolnar
+Vattar Och Jattar
+Holy Diver
+Lovjerskan
+Varulvsnatt
+Gygralock
+
 
 ## Отношения с другими группами
 

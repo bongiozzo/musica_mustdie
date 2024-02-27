@@ -1,11 +1,122 @@
 # Diablo
 
-Дискография
-"Elegance In Black" 2000, Melodic Death Metal
-"Renaissance" 2002, Melodic Death Metal
-"Eternium" 2004, Melodic Death Metal
-"Mimic47" 2006, Melodic Death Metal
-"Icaros" 2009, Melodic Death Metal
+
+
+## Дискография
+
+### "Elegance In Black" 2000, Melodic Death Metal
+
+1. Elegance In Black (3.51); 
+2. Princess (4.16); 
+3. Triumph Of Misery (3.42); 
+4. Crusify (5.32); 
+5. The Art Of Self Destruction (4.09); 
+6. The Beginning Of The End (3.45); 
+7. Distorted (3.53); 
+8. Penetration (4.32); 
+9. Core Of Lies (5.26); 
+10. Dancing Queen (3.45)
+
+All songs written by DIABLO
+Produced by Samu Oittinen and DIABLO
+Engineered by Samu Oittinen and Mikko Karmila
+Recorded and mixed at Fantom and Finnvox Studios
+
+### "Renaissance" 2002, Melodic Death Metal
+
+1. Angel (4.22); 
+2. Icon Of Flesh (4.25); 
+3. Tunnel Of Pain (3.26); 
+4. C22 (3.49); 
+5. Creatures Of Deception (3.58); 
+6. Hollow Point (4.29); 
+7. Intomesee (3.49); 
+8. Enemy (3.48); 
+9. A Fear (4.00); 
+10. Renaissance (4.09)
+
+All songs written by DIABLO
+Produced by Samu Oittinen and DIABLO
+Engineered by Samu Oittinen and Mikko Karmila
+Recorded and mixed at Fantom and Finnvox Studios
+
+### "Eternium" 2004, Melodic Death Metal
+
+1. Symbol Of Eternity; 
+2. Read My Scars; 
+3. Queen Of Entity; 
+4. Lovedivided; 
+5. Faceless; 
+6. The Preacher; 
+7. In Flesh; 
+8. Black Swan; 
+9. Omerta; 
+10. Shape Shifters; 
+11. Reptiles
+
+All songs written by DIABLO
+Produced by Oittinen, Utriainen and Nygard
+Engineered by Samu Oittinen and Mikko Karmila
+Recorded and mixed at Fantom and Finnvox Studios
+
+### "Mimic47" 2006, Melodic Death Metal
+
+1. Shadow World 03:37 
+2. Damien 04:40  
+3. Together as Lost 03:37 
+4. In Sorrow We Trust 04:31  
+5. Mimic 47 03:10  
+6. Condition Red 04:46 ] 
+7. Kalla (Instr.) 01:56  
+8. Blackheart 04:08  
+9. Kathryn 03:58  
+10. Rebellion of One 03:17 
+11. D.O.A. 05:39
+
+### "Icaros" 2009, Melodic Death Metal
+
+01. Trail of Kings
+02. Living Dead Superstar
+03. Bad Sign
+04. Resign from Life
+05. Icaros
+06. Light of the End
+07. Chagrin
+08. Through Difficulties to Defeat
+09. Hammer
+10. Into the Sea
+
+Rainer Nygard - rhythm guitar and vocals
+Marko Utriainen - lead guitar
+Heikki Malmberg - drums
+Aadolf Virtanen - bass
+
+Recorded, engineered and mixed by Samu Oittinen @ Fantom Studio
+MASTERED BY Mika Jussila. @ Finnvox
+Produced by Oittinen & Utriainen & Nygard
+ALL SONGS BY Utriainen & Nygard
+Intro of frail Of Kings originally written by Oskar Merikanto (5.8.1868 - 17.2-1924)
+Diablo chew Sound Engineer: Henri "Kattellaan" Wirsell
+Lighting: Jukka "Lightmasta Zei' Henttonen
+Design by Miikka Tikka
+Photography by Vcsa Ranta
+Band photo by Ossi Ahola
+Kantele in "Trail Of Kings" by Johanna Hietala
+News Anchor in "Into The Sea" by Esko Kovero
+
+Backing vocals
+Tommi "Tuple" Salmela | Tarot
+Jarkko Ahola | Terasbetoni
+Keijo Niinimaa | Rotten Sound
+Aadolf Virtanen | Dliablo
+Sakri Leinonen | Vulture Club
+Tuomo Saikkonen | Mokoma
+Niko Rauhala [ Masterstroke
+Tommi Salmela appears courtesy of King Foo Entertainment
+Jarkko Ahoi.a appears courtesy of Warner Music
+Aadolf Virtanen appears courtesy of Sakara Records
+Niko Rauhala appears courtesy of Dynamic Arts Records
+
 
 ## Отношения с другими группами
 

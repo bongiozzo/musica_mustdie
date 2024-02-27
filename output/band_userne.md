@@ -1,7 +1,29 @@
 # User Ne
 
-Дискография
-"Atropa Natura" 2007, Folk
+
+
+## Дискография
+
+### "Atropa Natura" 2007, Folk
+
+1 Cuadrante 4  
+2 Vientos Ne Mar  
+3 Ramlun Sahra-Un  
+4 Chanson, Femme, Vie  
+5 Das Uhoert  
+6 Atropa Datura  
+7 Temptation of Belief  
+8 1, 2, 3, Jari  
+9 III  
+10 Man'ana Man'ana  
+11 El Chascarillo  
+12 Inverness Medical Center  
+13 Stramonium  
+14 Finger Pinini  
+15 Asita Venres  
+16 Todos Recordamos  
+17 Gaia (bonus)
+
 
 ## Отношения с другими группами
 

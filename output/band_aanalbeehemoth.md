@@ -1,7 +1,24 @@
 # Aanal Beehemoth
 
-Дискография
-"Forest Paranoid" 2008, Black Metal
+
+
+## Дискография
+
+### "Forest Paranoid" 2008, Black Metal
+
+1. Forest Paranoid 00:51  
+2. Dirty Soul 01:35  
+3. Kill For Money 01:42  
+4. Miserability 02:54  
+5. From Aanal with Love 01:33  
+6. Nuclear Hell 02:44  
+7. Penetrator 01:51  
+8. Frost in Head 02:34  
+9. Loaded Head / Empty Veins 01:51  
+10. Form Of Satan 02:25  
+11. Sin Tonic 01:09  
+12. Witch Hunt 02:56 
+
 
 ## Отношения с другими группами
 

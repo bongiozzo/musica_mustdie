@@ -1,16 +1,79 @@
 # Seven Witches
 
-Дискография
-"Second War in Heaven" 1999, Power Metal
-"City Of Lost Souls" 2000, Power Metal
-"Xiled To Infinity And One" 2002, Power Metal
-"Passage to the Other Side" 2003, Power Metal
-"Year Of The Witch" 2004, Power Metal
-"Amped" 2005, Power Metal
-"Deadly Sins" 2007, Power Metal
-"Call upon the Wicked" 2011, Power Metal
-"Rebirth" 2013, Power Metal
-"The Way of the Wicked" 2015, Power Metal
+
+
+## Дискография
+
+### "Second War in Heaven" 1999, Power Metal
+
+
+
+### "City Of Lost Souls" 2000, Power Metal
+
+1) The Question
+2) The Answer
+3) Witching Hour
+4) Atlantis
+5) City Of Lost Souls
+6) Pounding Metal
+7) No Man's Land
+8) Hell is For Children
+9) The Legend of Sleepy Hollow
+10) We Are the Coven
+
+Lineup: Bobby Lucas -Vocals, Billy Mez - Bass Jack Frost - Guitars, John Osborn- Drums
+
+Recorded at Impuls Studios, Hamburg, Germany, Winter of 1999
+
+### "Xiled To Infinity And One" 2002, Power Metal
+
+01. Metal Tyrant  
+02. Incubus  
+03. Salvation  
+04. Xiled To Infinity And One  
+05. Warmth Of Winter  
+06. Anger's Door  
+07. Eyes Of An Angel  
+08. Pain  
+09. The Burning  
+10. See You In Hell 
+
+### "Passage to the Other Side" 2003, Power Metal
+
+
+
+### "Year Of The Witch" 2004, Power Metal
+
+
+
+### "Amped" 2005, Power Metal
+
+West Nile 
+Sunnydale High 
+Dishonored Killings 
+Moto GP 
+BE 
+Fame Gets You Off 
+Flesh For Fantasy (Billy Idol cover) 
+Red 
+Widows And Orphans
+
+### "Deadly Sins" 2007, Power Metal
+
+
+
+### "Call upon the Wicked" 2011, Power Metal
+
+
+
+### "Rebirth" 2013, Power Metal
+
+
+
+### "The Way of the Wicked" 2015, Power Metal
+
+
+
 
 ## Отношения с другими группами
 

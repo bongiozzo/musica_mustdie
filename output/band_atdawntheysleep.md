@@ -1,7 +1,18 @@
 # At Dawn They Sleep
 
-Дискография
-"Paradise Lust" 1999, Melodic Death Metal
+
+
+## Дискография
+
+### "Paradise Lust" 1999, Melodic Death Metal
+
+1. Birdsong [6:03]
+2. Bumblebee Hair [5:57]
+3. After the Stripshow [7:37]
+4. Ilъvatar [3:34]
+5. Lovelorn [5:42]
+6. Isabella Red [5:12]
+
 
 ## Отношения с другими группами
 

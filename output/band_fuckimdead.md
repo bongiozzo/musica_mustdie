@@ -1,9 +1,21 @@
 # Fuck... I'm Dead
 
-Дискография
-"Fuck... I'm Dead (demo)" 2000, Deathcore
-"Split 7" (With Sanitys Dawn)" 2001, Grindcore
-"Bring on the Dead" 2001, Grindcore
+Death/Grind from Australia
+
+## Дискография
+
+### "Fuck... I'm Dead (demo)" 2000, Deathcore
+
+
+
+### "Split 7" (With Sanitys Dawn)" 2001, Grindcore
+
+
+
+### "Bring on the Dead" 2001, Grindcore
+
+
+
 
 ## Отношения с другими группами
 

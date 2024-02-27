@@ -1,7 +1,20 @@
 # LoreWeaver
 
-Дискография
-"Imperviae Auditiones" 2011, Progressive
+
+
+## Дискография
+
+### "Imperviae Auditiones" 2011, Progressive
+
+1. Bogus 	7:49 
+2. Dead Man Walking 	6:26 
+3. De Rerum Natura 	7:42 
+4. Follow The Weaver 	7:41 
+5. Ride The Owl 	4:26 
+6. Avoid Feelings 	6:40 
+7. That Night 	7:04 
+8. Ultraworld 	9:46 
+
 
 ## Отношения с другими группами
 

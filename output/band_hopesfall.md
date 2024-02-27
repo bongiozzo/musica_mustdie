@@ -1,7 +1,13 @@
 # Hopesfall
 
-Дискография
-"Magnetic North" 2007, Hardcore
+
+
+## Дискография
+
+### "Magnetic North" 2007, Hardcore
+
+
+
 
 ## Отношения с другими группами
 

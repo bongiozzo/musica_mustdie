@@ -1,7 +1,21 @@
 # Calvarium
 
-Дискография
-"The Skull Of Golgotha" 2002, Black Metal
+
+
+## Дискография
+
+### "The Skull Of Golgotha" 2002, Black Metal
+
+Three Nails And The Hammer Of Satan 
+Horns Of Hate 
+Jumalhiva 
+Death Worship 
+Siunatun Surma 
+Morbid Hordes Revenge 
+Herrame On Saapuba 
+Dedication In Misanthropy 
+Suicide Manifiesto
+
 
 ## Отношения с другими группами
 

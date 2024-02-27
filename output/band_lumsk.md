@@ -1,9 +1,78 @@
 # Lumsk
 
-Дискография
-"Asmund Fragdegjevar" 2003, Viking Metal
-"Troll" 2005, Viking Metal
-"Det Vilde Kor" 2007, Viking Metal
+great viking-metal
+
+## Дискография
+
+### "Asmund Fragdegjevar" 2003, Viking Metal
+
+
+
+### "Troll" 2005, Viking Metal
+
+01. Nшkken 
+02. Dunker 
+03. Еsgеrdsreia 
+04. Trolltind 
+05. Allvis 
+06. Perpеlsa 
+07. Blжster 
+08. Byttingen
+
+### "Det Vilde Kor" 2007, Viking Metal
+
+1. Diset Kvжld 03:04
+2. Om Hundrede Aar er Alting glemt 06:31
+3. Hшstnat 03:38
+4. Paa Hvжlvet 02:50
+5. Lad Spille med Vaar over Jorden 03:22
+6. Duttens Vise 02:22
+7. Svend Herlufsens Ord, part I Min Kжrest er Som Den 02:37
+8. Svend Herlufsens Ord, part II Og du vil vide 02:23
+9. Svend Herlufsens Ord, part III Jeg har det 01:50
+10. Svend Herlufsens Ord, part IV Se, Natten er Livet 04:35
+11. Godnat Herinde 03:29 
+12. Skжrgaardsш 02:45 
+
+Recorded in Skansen Lydstudio, September 2006 (by Stein Bratland)
+
+Mixed by Mike Hartung at Propeller Music Division
+Mastered in Cutting Room
+
+All lyrics by Knut Hamsun
+All music by Espen W. GodГё
+
+Released in Norway February 26 2007
+Released in Scandinavia March 26 2007
+Released in Europe April 23 2007
+
+Line-up: 
+Espen W. GodГё - Piano, organ, mellotron
+Eystein Garberg - Guitar
+Siv Lena W. Laugtug - Violin
+Espen Hammer - Bass
+Stine Mari Langstrand - Vocal
+Ketil SГёther - Guitar
+Vidar Berg - Drums
+
+Guest musicians: 
+Ola Bremnes - Male vocal
+Jan Inge Moksnes - Clarinet
+Jon Ervik - Flugelhorn, trumpet
+Hans Petter MГ¦hle - Violin
+Trond Harald Saltnes - Violin
+Ragnhild Torp - Viola
+Stine Fagerthun - Cello
+Knut Erik Jensen - Accordion
+Simen Husmoen - Tuba
+Wenche HelbГ¦k - Oboe
+Tone Kummervold - Choir (mezzo soprano)
+Lars Eggen - Choir (tenor)
+Andreas Oldervik - Choir (bass)
+
+Lyrics on this album are poems by Knut Hamsun.
+The music is more pop/folk than folk metal/rock. 
+
 
 ## Отношения с другими группами
 

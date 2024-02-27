@@ -1,7 +1,26 @@
 # Seborrhea
 
-Дискография
-"Different Segments of Human Life" 2008, Deathcore
+
+
+## Дискография
+
+### "Different Segments of Human Life" 2008, Deathcore
+
+1. Ў­Downloading 01:58  
+2. Anal Marquis 01:46  
+3. Happy Delivery 01:31  
+4. Admirable, Marvelous Shit 00:57  
+5. Youthful and Possessed 01:49  
+6. Get Acquainted ЁC the Opposite Sex 01:21  
+7. Dimension of Binary 01:51  
+8. Green Process 01:31  
+9. God of Pismire 01:48  
+10. Old Age Wisdom & Unconscionable Behaviour 03:01  
+11. ЁC ЎЮ + 02:34  
+12. Ў­Uploading External Error 01:52  
+13. Dimension of Binary [digital edition 1010011010] 04:51  
+14. Hyperactive Brain Damage 03:22 
+
 
 ## Отношения с другими группами
 

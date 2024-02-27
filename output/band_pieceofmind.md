@@ -1,6 +1,9 @@
 # Piece Of Mind
 
-Дискография
+Russian power metal band
+
+## Дискография
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,21 @@
 # Evenoire
 
-Дискография
-"Vitriol" 2012, Gothic
+
+
+## Дискография
+
+### "Vitriol" 2012, Gothic
+
+1.	 Vitriol	01:34	 
+2.	 Days of the Blackbird	03:56	 
+3.	 Misleading Paradise	07:14	 
+4.	 Forever Gone	06:24	 
+5.	 The Prayer	01:13	 
+6.	 Girl by the Lake	07:13	 
+7.	 Minstrel of Dolomites	05:34	 
+8.	 Alchimia	05:15	 
+9.	 Wise King	06:20	
+
 
 ## Отношения с другими группами
 

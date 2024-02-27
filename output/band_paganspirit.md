@@ -1,7 +1,13 @@
 # Pagan Spirit
 
-Дискография
-"The Latent Doctrine" 2005, Metal
+
+
+## Дискография
+
+### "The Latent Doctrine" 2005, Metal
+
+
+
 
 ## Отношения с другими группами
 

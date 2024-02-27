@@ -1,8 +1,27 @@
 # Ouija
 
-Дискография
-"Riding Into the Funeral Paths" 1997, Black Metal
-"Adversary [EP]" 2010, Black Metal
+
+
+## Дискография
+
+### "Riding Into the Funeral Paths" 1997, Black Metal
+
+1. When the Sun Shall Die 05:33  
+2. Crossing the Seventh Gate 05:23  
+3. Unbriedled Transilvanian Passion 05:56  
+4. Hear the Call of Wolves (Fullmoonlight Lovers) 07:12  
+5. Before a Possible Relapse 05:10  
+6. In the Witching Midnight 06:30  
+7. Riding into the Funeral Paths 05:51  
+8. Holocaust in Heaven 01:34 
+
+### "Adversary [EP]" 2010, Black Metal
+
+1. Flagellate Me   
+2. Magma   
+3. The Blood Centurion   
+4. Yrasrevda 
+
 
 ## Отношения с другими группами
 

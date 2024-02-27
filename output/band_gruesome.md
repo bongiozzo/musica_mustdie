@@ -1,8 +1,33 @@
 # Gruesome
 
-Дискография
-"Savage Land" 2015, Death Metal
-"Dimensions Of Horror (EP)" 2016, Death Metal
+
+
+## Дискография
+
+### "Savage Land" 2015, Death Metal
+
+01. Savage Land
+02. Trapped In Hell
+03. Demonized
+04. Hideous
+05. Gangrene
+06. Closed Casket
+07. Psychic Twin
+08. Gruesome
+
+Bonus tracks:
+9. Land Of No Return (Death Cover)
+10. Black Magic (Slayer Cover)
+
+### "Dimensions Of Horror (EP)" 2016, Death Metal
+
+1. Forces Of Death
+2. Raped By Darkness
+3. Amputation
+4. Hellbound
+5. Seven Doors
+6. Dimensions Of Horror
+
 
 ## Отношения с другими группами
 

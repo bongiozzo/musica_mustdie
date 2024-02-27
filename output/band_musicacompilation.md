@@ -1,7 +1,34 @@
 # MUSICA (compilation)
 
-Дискография
-"MUSICA (compilation)" 2001, Heavy Metal
+
+
+## Дискография
+
+### "MUSICA (compilation)" 2001, Heavy Metal
+
+MUSICA.MUSTDIE Productions presents the «MUSICA» compilation, introducing new wave of metal music from Moscow, St. Petersburg, Alma-Ata and Koenigsberg (Kaliningrad). 
+
+Total playing time: 74:12.
+
+Tracklist: 
+
+Glazemaker "Burning Coast" [progressive intro] 
+Seducer's Embrace "As The Forest Weeps..." [melodic death] 
+Samhain "Herimos" [doom] 
+Wishmaster "Betrayer" [melodic death] 
+Lead Weight "For Thine Is The Kingdome" [techno death] 
+Radigost "In The Heart of Battle" [melodic black] 
+Hostile Breed "Paper Law" [modern angry thrash] 
+Exhumation "Cursed World" [melodic death] 
+Vortex "Break The Fetters" [power] 
+Requiem "Your Dreams" [techno death] 
+Elisium "Shadow" [power] 
+Tvangeste "Damnation Of Regiomontum" [sympho-black] 
+Rossomahaar "Quarite Lux In Tenebris" [black] 
+Absurd "Where Time Has Died Away" [melodic death] 
+Forrest Gump and Jamilya Serkebaeva "Sarjaylau" [folk hard rock] 
+ 
+
 
 ## Отношения с другими группами
 

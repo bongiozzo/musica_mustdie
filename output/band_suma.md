@@ -1,10 +1,25 @@
 # Suma
 
-Дискография
-"Suma" 2003, Stoner
-"Let the Churches Burn" 2006, Stoner
-"Ashes" 2010, Stoner
-"The Order Of Things" 2016, Stoner
+
+
+## Дискография
+
+### "Suma" 2003, Stoner
+
+
+
+### "Let the Churches Burn" 2006, Stoner
+
+
+
+### "Ashes" 2010, Stoner
+
+
+
+### "The Order Of Things" 2016, Stoner
+
+
+
 
 ## Отношения с другими группами
 

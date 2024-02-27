@@ -1,17 +1,254 @@
 # Carcass
 
-Дискография
-"Reek of Putrefaction" 1988, Grindcore
-"Symphonies of Sickness" 1989, Grindcore
-"Necroticism: Descanting the Insalubrious" 1991, Deathcore
-"Hepatic Tissue Fermentation (I)" 1991, Grindcore
-"Tools of the Trade" 1992, Death Metal
-"Heartwork" 1993, Death Metal
-"Heartwork (EP)" 1994, Death Metal
-"Swansong" 1996, Death Metal
-"Wake up and Smell the Carcass..." 1996, Death Metal
-"Choise Cuts" 2004, Death Metal
-"Surgical Steel" 2013, Death Metal
+Kings of Goregrind / Classic Death from the U.K.
+
+## Дискография
+
+### "Reek of Putrefaction" 1988, Grindcore
+
+1. Genital Grinder 
+2. Regurgitation of Giblets 
+3. Maggot Colony 
+4. Pyosisified (Rotten To The Gore) 
+5. Carbonized Eyesockets 
+6. Frenzied Detruncation 
+7. Vomited Anal Tract 
+8. Festerday 
+9. Fermenting Innards 
+10.Excreted Alive 
+11.Suppuration 
+12.Foeticide 
+13.Microwaved Uterogestation 
+14.Feast On Dismembered Carnage 
+15.Splattered Cavities 
+16.Psychopathologist 
+17.Burnt To A Crisp 
+18.Pungent Excruciation 
+19.Manifestation Of Verrucose Urethra 
+20.Oxidised Razor Masticator 
+21.Mucopurulence Excretor 
+22.Malignant Defecation  
+
+Bill Steer - Guitar/Vocals 
+Jeff Walker - Bass/Vocals 
+Ken Owen - Drums/Vocals 
+
+CARCASS - "Reek Of Putrefaction" - 1988
+
+Bill Steer  - Guitars/Vocals
+Jeff Walker - Bass/Vocals
+Ken Owen    - Drums/Vocals
+
+All material decomposed and deranged by Carcass.
+
+
+
+(p)(c) 1988 EARACHE
+
+### "Symphonies of Sickness" 1989, Grindcore
+
+1. Reek Of Putrefaction
+2. Exhume To Consume
+3. Excoriating Abdominal Emanation
+4. Ruptured In Purulence
+5. Empathological Necroticism
+6. Embryonic Necropsy & Devourment
+7. Swarming Vulgar Mass Of Infected Virulency
+8. Cadaveric Incubator Of Endoparasites
+9. Slash Dimentic
+10.Crepitating Bowel Erosion
+
+ Jeff Walker - Vocals & Bass
+ Bill Steer - Vocals & Guitar
+ Ken Owen - Vocals & Drums
+
+Produced & Engineered By Colin Richardson.
+Recorded & Mixed At Slaughterhouse Studios,
+July-August 1989.
+
+(p)&(c) 1989 EARACHE / COMBAT
+
+
+### "Necroticism: Descanting the Insalubrious" 1991, Deathcore
+
+1. Inpropagation      
+2. Corporal Jigsore Quandary 
+3. Symposium Of Sickness
+4. Pedigree Butchery
+5. Incarnated Solvent Abuse
+6. Carneous Cacoffiny
+7. Lanaging Expectorate Of Lysergide Composition
+8. Forensic Clinicism / The Sanguine Article
+
+  Jeff Walker - Vocals & Bass
+  Michael Amott - Vocals & Guitar  (CARNAGE)
+  Bill Steer - Vocals & Guitar
+  Ken Owen - Vocals & Drums
+
+Produced By Colin Richardson.
+Engineered By Keith Hartley.
+Mixed By CARCASS & Colin Richardson.
+Recorded At Amazon Studio, Simonswood.
+
+(p)&(c) 1991 EARACHE Records Mosh 042
+
+### "Hepatic Tissue Fermentation (I)" 1991, Grindcore
+
+1. Hepatic Tissue Fermentation (I)
+2. Genital Grinder (Re-Mix)
+
+(p)&(c) 1991 EARACHE Records
+
+### "Tools of the Trade" 1992, Death Metal
+
+1. Tools Of The Trade
+2. Incarnated Solvent Abuse
+3. Pyosified - Still Rotten To The Gore
+4.  Hepatic Tissue Fermentation II
+
+Jeff Walker - Bass, Lead Vocals
+Bill Steer - Guitar, Lead Vocals
+Ken Owen - Drums, Additional Vocals
+Michael Amott - Guitar, Additional Vocals
+
+Produced by Colin Richardson
+Mixed by Carcass and Colin Richardson
+Engineered by Keith Hartley
+Assistant Engineers - Ian McFarlane and Dave Buchanan
+Recorded at Amazon Studios, Liverpool
+
+Photography by Ian Tilton
+Layout by Martin Nesbitt and Jeff Walker
+
+(P)c 1992 EARCHE Records
+
+### "Heartwork" 1993, Death Metal
+
+1. Buried Dreams
+2. Carnal Forge
+3. No Love Lost
+4. Heartwork
+5. Embodiment
+6. This Mortal Coil
+7. Arbeit Macht Fleisch
+8. Blind Bleeding The Blind
+9. Doctrinal Expletives
+10.Death Certificate
+
+ Jeff Walker - Vocals & Bass
+ Michael Amott - Lead Guitar
+ Bill Steer - Lead Guitar
+ Ken Owen - Drums
+
+All Songs Written By CARCASS.
+Produced By Colin Richardson.
+Engineered By Keith Andrews.
+Recorded & Mixed At Parr Street Studios,
+Between May 18-th - June 21-st 1993.
+Front Album Sculpture - "Preserve Life"
+Copyright H.R. Giger 1993
+Design - Andrew Tuohy
+
+(p)&(c) 1993 EARACHE Records Mosh 097
+
+
+### "Heartwork (EP)" 1994, Death Metal
+
+1. Heartwork
+2. This Is Your Life
+3. Rot'N'Roll
+
+ Jeff Walker  - Bass, Vocals
+ Bill Steer - Guitars
+ Ken Owen - Drums
+
+All Songs Written By Steer-Walker
+Except 1 By Steer-Walker-Amott
+Produced By CARCASS
+Engineers: Ken Nelson, Keith Andrews
+Mixed By Colin Richardson
+Recorded At Parr Street Studios,
+Liverpool, September 1993
+
+(p)&(c) 1994 EARACHE Records
+
+### "Swansong" 1996, Death Metal
+
+1.  Keep On Rotting In The Free World
+2.  Tomorrow Belongs To Nobody
+3.  Black Star
+4.  Cross My Heart
+5.  Child's Play
+6.  Room 101
+7.  Polarized
+8.  Generation Hexed
+9.  Firm Hand
+10.R**k The Vote
+11.Don't Believe A Word
+12.Go To Hell
+
+Produced By Colin Richardson.
+All songs written By CARCASS.
+Engineered by Stephen Harris.
+Recorded & Mixed at Rockfield Studios & Battery Studios.
+
+Jeff Walker  - Bass, Vocals
+Bill Steer - Guitars
+Carlo Regadas - Guitar
+Ken Owen - Drums
+
+(P)c 1996 EARACHE Records
+
+### "Wake up and Smell the Carcass..." 1996, Death Metal
+
+1.  Edge Of Darkness
+2.  Emotional Flatline
+3.  Ever Increasing Circles
+4.  Blood Splattered Banner
+5.  I Told You So (Corporate Rock Really Does Suck)
+6.  Buried Dreams
+7.  No Love Lost
+8.  Rot'n'Roll
+9.  Edge Of Darkness
+10.This Is Your Life
+11.Rot'n'Roll
+12.Tools Of The Trade
+13.Pyosisified (Still Rotten To The Gore)
+14.Hepatic Tissue Fermentation  II
+15.Genital Grinder II
+16.Hepatic Tissue Fermentation
+17.Exhume To Consume
+
+Executive Producer - Digby Pearson.
+Compilation by Mitch Dickinson & Jeff Walker
+
+Tracks 1-5 - Unreleased Tracks From 'Swansong' Sessions
+Tracks 6-9 - Radio 1 Rock Show Session
+Tracks 10-11- From The 'Heartwork' EP
+Tracks 12-14 - From The 'Tools Of The Trade' EP
+Tracks 15-16 - from The 'Pathological' Compilation
+Track 17 - From The 'Grindcrusher' Compilation
+
+(P)c 1996 EARACHE Records // MOSH 161
+
+### "Choise Cuts" 2004, Death Metal
+
+
+
+### "Surgical Steel" 2013, Death Metal
+
+01. 1985 (1:15)
+02. Thrasher's Abattoir (1:50)
+03. Cadaver Pouch Conveyor System (4:02)
+04. A Congealed Clot Of Blood (4:13)
+05. The Master Butcher's Apron (4:00)
+06. Noncompliance to ASTM F 899-12 Standard (6:06)
+07. The Granulating Dark Satanic Mills (4:10)
+08. Unfit For Human Consumption (4:24)
+09. 316 L Grade Surgical Steel (5:20)
+10. Captive Bolt Pistol (3:16)
+11. Mount Of Execution (8:25)
+
 
 ## Отношения с другими группами
 

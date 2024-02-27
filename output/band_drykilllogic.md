@@ -1,8 +1,28 @@
 # Dry Kill Logic
 
-Дискография
-"The Darker Side Of Nonsense" 2001, Nu Metal
-"The Dead And Dreaming" 2004, Nu Metal
+Excellent nu metal band
+
+## Дискография
+
+### "The Darker Side Of Nonsense" 2001, Nu Metal
+
+01. Nightmare
+02. Feel The Break
+03. Pain
+04. Nothing
+05. Assfault
+06. Weight
+07. A Better Man Than Me
+08. Rot
+09. Track 13
+10. Give Up, Give In, Lie Down
+11. The Strenght I Call My Own
+12. Goodnight
+
+### "The Dead And Dreaming" 2004, Nu Metal
+
+
+
 
 ## Отношения с другими группами
 

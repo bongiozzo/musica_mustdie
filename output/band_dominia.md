@@ -1,11 +1,61 @@
 # Dominia
 
-Дискография
-"Divine Revolution" 2006, Gothic
-"Judgement Of Tormented Souls" 2009, Gothic
-"Theophania" 2014, Gothic
-"Dominia (single)" 2015, Gothic
-"The First and the Last Prayer (single)" 2016, Gothic
+
+
+## Дискография
+
+### "Divine Revolution" 2006, Gothic
+
+1. Prophecy
+2. With Pain Into Eternity
+3. Burial Of Reasons 
+4. Darkness Of Bright Life 
+5. God Is A Brand 
+6. Beautiful Innocence 
+7. Save Yourself 
+8. Punishment 
+9. Mountains Of God's Depression
+
+### "Judgement Of Tormented Souls" 2009, Gothic
+
+1. Prelude 3:21 
+2. Judgement 5:37 
+3. Behind The Universe 6:43 
+4. Harvester 3:30 
+5. Angel's Suicide 6:56 
+6. Inside Of Me 4:52 
+7. Exodus 6:53 
+8. Rosemary's Child 4:38 
+9. The Beginning 8:01
+
+
+Anton Rosa - Vocals, Guitar
+Casper - Violin, Keyboards
+Daniel - Guitar
+Papa - Drums
+Alexander Goodwin - Bass 
+
+
+### "Theophania" 2014, Gothic
+
+01. Everyone Else 06:40 
+02. Death Only 08:01 
+03. The Shadow Of The Lost Prophet 05:31 
+04. Mother Plague 07:32 
+05. Unseen Artist Realm 06:07 
+06. Your Senseless Hope 05:41 
+07. The Final Trip 05:18 
+08. A Murderer 06:01 
+09. In Solitude 09:56
+
+### "Dominia (single)" 2015, Gothic
+
+1. Poison  07:18 
+
+### "The First and the Last Prayer (single)" 2016, Gothic
+
+1. The First and the Last Prayer  04:21 
+
 
 ## Отношения с другими группами
 

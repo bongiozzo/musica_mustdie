@@ -1,8 +1,31 @@
 # Daemonheim
 
-Дискография
-"Schlachtfeld" 2005, Black Metal
-"Hexentanz" 2007, Black Metal
+
+
+## Дискография
+
+### "Schlachtfeld" 2005, Black Metal
+
+1. Atem der Leere 04:57  
+2. Gott der Lдmmer 05:15 
+3. Der Plage Hetzgesang 05:29
+4. Und dann kam der Nachtfrost 04:20
+5. Als Rabenscharen flohen 05:19 
+6. Schlachtfeld 05:08
+7. Heil Nero! 05:20 
+
+### "Hexentanz" 2007, Black Metal
+
+1. Waldstimmen 07:25  
+2. Einst zogen durch den Harz 06:33  
+3. Teufelsmauer 06:21  
+4. Von Riesen und Rцssern 06:12  
+5. Fluch der Hexen 06:25  
+6. Das Totendorf 05:45  
+7. Mдnner und Wцlfe 04:58  
+8. Tiod Ute*   
+9. Sterne der Leere* 
+
 
 ## Отношения с другими группами
 

@@ -1,9 +1,35 @@
 # Silent Kingdom
 
-Дискография
-"Bloodless" 2004, Black Metal
-"Reflections of Fire (The Journey)" 2006, Black Metal
-"Legends of an Old Grave" 2008, Black Metal
+
+
+## Дискография
+
+### "Bloodless" 2004, Black Metal
+
+
+
+### "Reflections of Fire (The Journey)" 2006, Black Metal
+
+1. Reflections of Fire 10:21
+2. The Eternal Lie 10:18 
+3. Trinity of Gods 08:57 
+4. Scars on My Flesh 09:53
+5. Chains Made of Sand 07:55
+6. Blood of His Blood 07:28 
+7. The Journey 09:31
+8. Under The Dark Winds of Forgotten Worlds 12:11 
+
+### "Legends of an Old Grave" 2008, Black Metal
+
+1. Behold the Mountains 05:00  
+2. Will You... 04:10  
+3. Kingdom of Fools 04:53  
+4. The Fire 04:14  
+5. Forgotten in Past 03:54  
+6. ...Stay Awhile... 05:21  
+7. Legends 03:37  
+8. ...in the Light that Fades Away 04:07 
+
 
 ## Отношения с другими группами
 

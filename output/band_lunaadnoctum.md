@@ -1,8 +1,34 @@
 # Luna Ad Noctum
 
-Дискография
-"Dimness Profound" 2003, Black Metal
-"Sempiternal Consecration" 2004, Black Metal
+The Polish Gods of aggressive black metal
+
+## Дискография
+
+### "Dimness Profound" 2003, Black Metal
+
+1. Dimness Prologue (intro) 
+2. Traitor of Sadness and Grief 
+3. An Ancient Splendour 
+4. The Last Coldest Sunset 
+5. Moonlit Sanctum 
+6. The mirror of Our Curse 
+7. Mental Spirit and Flesh 
+8. The Evil's God (await Us) 
+9. Her Raven's Aura (outro)
+
+### "Sempiternal Consecration" 2004, Black Metal
+
+Premonition... 
+Sempiternal Consecration 
+Devotion in Sin 
+Death Threatened...Tantalizing
+Lucifer's light 
+Avast! 
+Harass Me 
+Inner Predator 
+Six Common Salvations 
+Into the Pentagram
+
 
 ## Отношения с другими группами
 

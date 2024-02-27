@@ -1,11 +1,95 @@
 # Dark At Dawn
 
-Дискография
-"Baneful Skies" 1999, Heavy Metal
-"Crimson Frost" 2001, Heavy Metal
-"First Beams Of Light" 2002, Heavy Metal
-"Of Decay And Desire" 2003, Metal
-"Dark At Dawn" 2006, Heavy Metal
+Dark Romantic Power Metal
+
+## Дискография
+
+### "Baneful Skies" 1999, Heavy Metal
+
+1. Within The Light
+2. Baneful Skies
+3. Silva Mea
+4. The Voice Of The Gods
+5. On The Darkest Day
+6. Thorn Of A Rose
+7. Dragon Tears
+8. At The Night's Plutonian Shore
+
+
+"Buddy" Kohlrausch - Voice
+Florian Schr&#246;der - Guitar
+Matthias Majkowski - Guitar
+Michael Lowin - Bass
+Torsten Sauerbrey - Drums
+
+### "Crimson Frost" 2001, Heavy Metal
+
+1. The Frozen Tear
+2. (A Sleep) In A Watery Red
+3. Blink Of An Eye
+4. A Winter's Dream
+5. Across The Oceans Of Time
+6. Out In The Fields
+7. Isle Of Smile
+8. Bloody Shimmering Bloom
+
+
+
+"Buddy" Kohlrausch - Voice
+Florian Schr&#246;der - Guitar
+Matthias Majkowski - Guitar
+Michael Lowin - Bass
+Torsten Sauerbrey - Drums
+
+### "First Beams Of Light" 2002, Heavy Metal
+
+1. Fallen Angel... Eternal Sleep *
+2. Illusions °
+3. Black Dream *
+4. Perish For Beauty °
+5. The Awakening °
+6. Deliver Us From Evil
+7. As Daylight Fades *
+8. In Fire's Light *
+9. Last Embrace *
+10. Dragon Tears (Part II) *
+
+° taken from the "The Awakening" Demo
+* taken from the "As Daylight Fades" Demo
+
+### "Of Decay And Desire" 2003, Metal
+
+1. The sleepwalker
+2. End of ice - Warriorqueen
+3. Luna
+4. Maid of stone
+5. Forever
+6. The 5th horseman
+7. ...and the sea wept
+8. Solitude
+9. Fair well
+10. Weltenbrand
+11. One night fall
+12. The rose of tears
+
+### "Dark At Dawn" 2006, Heavy Metal
+
+The Alliance 
+Dark and Dawn 
+Avalon 
+Crossbreed 
+Roses of Light 
+Road to Eternity
+Fearless 
+The Passage 
+The Ones with Fiery Eyes 
+Glorious Duty 
+Sons of the Sea
+
+"Buddy" Kohlrausch - вокал
+Michael Lowin - бас
+Torsten Sauerbrey - ударные, гитары, клавишные
+
 
 ## Отношения с другими группами
 

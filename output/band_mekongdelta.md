@@ -1,17 +1,279 @@
 # Mekong Delta
 
-Дискография
-"Mekong Delta" 1987, Thrash
-"The Music Of Erich Zann" 1988, Thrash
-"The Principle Of Doubt" 1989, Thrash
-"Dances Of Death (And Other Walking Shadows)" 1990, Thrash
-"Kaleidoscope" 1992, Thrash
-"Classics" 1993, Thrash
-"Visions Fugitives" 1994, Thrash
-"Pictures at an Exhibition" 1996, Thrash
-"Lurking Fear" 2007, Thrash
-"Wanderer on the Edge of Time" 2010, Thrash
-"In A Mirror Darkly" 2014, Thrash
+(Innovative Techno-Thrash)
+
+## Дискография
+
+### "Mekong Delta" 1987, Thrash
+
+1. Without Honour
+2. The Cure
+3. The Hut Of Baba Yaga
+4. Heroes Grief
+5. Kill The Enemy
+6. Nightmare Patrol
+7. Shivas Return
+8. Black Sabbath
+9. Black Home
+
+ Keil - Voice
+ Rolf Stein - Guitars
+ Vincent St. Johns - Guitars
+ Bjorn Eklund - Bass
+ Gordon Perkins - Drums
+
+All Songs By Bjorn Eklund
+All Lyrics By Jake Jenkins
+Produced By Ralph Hubert
+
+(p)&(c) 1987 AAARRG Records
+
+### "The Music Of Erich Zann" 1988, Thrash
+
+1. Age Of Agony 3.10
+2. True Lies 5.10
+3. Confession Of Madness 4.03
+4. Hatred 3.22
+5. Interludium (Begging For Mercy) 3.01
+6. Prophecy 4.01
+7. Memories Of Tomorrow 3.56
+8. King Will Come 5.56
+9. The Final Dellige 4.16
+10. Epilogue 1.30
+11. The Gnom
+
+ Gordon Perkins - Batterie, Percussion, Drums
+ Biorn Eklund - Bass,Acoustic Guitar
+ Rolf Stein - Guitars,Back Vocals
+ Vincent St.Johns - Guitars,Back Vocals
+ Keil - Vocals,Stick
+
+(p)&(c) 1988 AAARRG Records
+
+### "The Principle Of Doubt" 1989, Thrash
+
+1. A Question Of Trust
+2. The Principle Of Doubt
+3. Once I Believed
+4. Ever Since Time Began
+5. Curse Of Reality
+6. Twilight Zone *
+7. Shages Of Doom
+8. The Jester
+9. El Colibri **
+10. No Friend Of Mine
+
+ Keil - Lead & Back Vocals
+ Mark Kaye - Lead Guitars & Back Vocals
+ Rolf Stein - Lead & Rhythm Guitars
+ Bjorn Eklund - Bass & Acoustic Guitars
+ Gordon "The Machine" Perkins - Drums
+
+All Songs Composed By B.Eklund
+Except * By Marius Constanz, ** By Sagreras
+Produced By Ralph Hubert
+Engineered By Jorg Stegert
+
+(p)&(c) 1989 AAARRG Records
+
+### "Dances Of Death (And Other Walking Shadows)" 1990, Thrash
+
+1. Dances Of Death
+    a) Introduction
+    b) Eruption
+    c) Beyond The Gates
+    d) Outburst
+    e) Days Of Betrayal
+    f) Restless
+   g) Sanctuary
+   h) Finale
+2. Transgressor
+3. True Believers
+4. Night On A Bare Mountain *
+
+ Doug Lee - Vocals
+ Bjorn Eklund - Bass, Acoustic Guitars
+ Uwe B. - Guitars
+ Gordon Perkins - Drums
+
+All Music By Bjorn Eklund, Except * By M.Mussorgski
+All Lyrics By Bjorn Eklund & Doug Lee
+Engineered & Produced By Ralph Hubert
+
+(p) 1990 AAARRG Records
+(c) 1990 MAJOR Records
+
+### "Kaleidoscope" 1992, Thrash
+
+1. Innocent ?
+2. Sphere Eclipse
+3. Dance On A Volcano *
+4. Dreaming
+5. Heatbeat
+6. Shadow Walker
+7. Sabre Dance
+8. Misunderstanding
+9. About Science
+
+ Doug Lee - Vocals
+ Uwe Baltrusch - Guitars
+ Ralph Hubert - Bass, Concert Guitars
+ Peter Haas - Drums
+
+All Songs By Ralph Hubert, Except * By Rutherford / Banks / Hackett / Collins And ** By Khachaturian
+Produced And Engineered By Ralph Hubert
+Recorded May-July 92 At Phoenix Studio
+
+(p)&(c) 1992 IRS Records
+
+### "Classics" 1993, Thrash
+
+1. Interludium/Begging For Mercy (Part I)
+2. Toccata
+3. Twilight Zone
+4. The Gnome
+5. The Hut Of Baba Yaga
+6. Night On A Bare Mountain
+7. Interludium (Part II)
+8. El Colibri
+
+Produced By Ralph Hubert
+
+(p)&(c) 1993 MAJOR Records
+
+### "Visions Fugitives" 1994, Thrash
+
+1. Them 
+2. Imagination
+3. Suite For Group And Orchestra
+   a) Introduction
+   b) Preludium
+   c) Allegro
+   d) Dance *
+   e) Fugue
+   f) Postludium
+4. The Healer
+5. Days Of Sorrow
+
+ Daug Lee - Vocals
+ Uwe Baltrusch - Guitars
+ Ralph Hubert - Bass & Concert Guitars
+ Peter Haas - Drums
+
+All Songs Composed By Ralph Hubert, Except * By Christopher Young
+Produced By Ralph Hubert
+Engineered By Ralph Hubert
+Recorded & Mixed At Phoenix Studio, Herne, Nov.-Dec. 1993
+
+(p)&(c) 1994 BULLET PROOF Records
+
+### "Pictures at an Exhibition" 1996, Thrash
+
+01. Promenade [01:22] 
+02. Gnomus [02:39] 
+03. Interludium [00:39] 
+04. II Vecchio Castello [03:54] 
+05. Interludium [00:27] 
+06. Tuileries (Dispute d'enfants apres jeux) [01:51] 
+07. Bydtlo [02:59] 
+08. Interludium [00:38] 
+09. Ballet of the Unhatched Chicks [01:21] 
+10. "Samuel" Goldenberg and "Schmuyle" [01:56] 
+11. Promenade [01:22] 
+12. Limoges: Le marchй (La grande nouvelle) [03:00] 
+13. Catacombae (Sepulcrum romanum) [01:42] 
+14. Lingua Mortis [01:57] 
+15. The Hut on Chicken's Legs [03:25] 
+16. The Heroic Gate (in the old capital of Kiev) [05:48] 
+17. Promenade * [01:22] 
+18. Gnomus * [02:41] 
+19. Interludium * [00:41] 
+20. II Vecchio Castello * [03:55] 
+21. Interludium * [00:28] 
+22. Tuileries (Dispute d'enfants apres jeux) * [01:51] 
+23. Bydtlo * [03:01] 
+24. Interludium * [00:39] 
+25. Ballet of the Unhatched Chicks * [01:21] 
+26. "Samuel" Goldenberg and "Schmuyle" * [01:57] 
+27. Promenade * [01:24] 
+28. Limoges: Le marchй (La grande nouvelle) * [03:03] 
+29. Catacombae (Sepulcrum romanum) * [01:40] 
+30. Lingua Mortis * [01:56] 
+31. The Hut on Chicken's Legs * [03:25] 
+32. The Heroic Gate (in the old capital of Kiev) * [05:46] 
+
+
+Credits 
+Uwe Baltrusch : Guitar
+Peter Haas : Drums
+Ralf Hubert : Bass & Concert Guitar 
+
+
+
+
+### "Lurking Fear" 2007, Thrash
+
+1. Society in Dissolution 04:58
+2. Purification 05:06 
+3. Immortal Hate (Accepting Prayers of Supremacy) 05:16 
+4. Allegro Furioso 03:07  
+5. Rules of Corruption 05:27
+6. Ratters (Among the Dead) 05:04 
+7. Moderato 03:52  
+8. Defenders of the Faith 07:02  
+9. Symphony of Agony 05:08  
+10. Allegro 04:16 
+
+
+Leszek "Leo" Szpigiel - Vocals 
+Peter Lake - Guitars 
+Ralph Hubert - Bass 
+Uli Kusch - Drums 
+
+Tracks four and seven taken from "Five Fragments For Group & Orchestra".
+Track ten from "Symphony Nr. 10" by Dimitri Schostakowitsch.
+
+The limited-edition digipack includes a bonus DVD containing the band's December
+21, 1991 concert at Batschkapp in Frankfurt, Germany. 
+
+### "Wanderer on the Edge of Time" 2010, Thrash
+
+1. Intro - Concert Guitar 02:18  
+2. Ouverture 02:50  
+3. "A certain fool" (Le Fou) // Movement 1 03:37 
+4. Interlude 1 - Group 00:52  
+5. "The 5th element" (Le Bateleur) // Movement 2 06:32
+6. Interlude 2 - Group 00:34  
+7. "The Apocalypt - World in shards" (La Maison Dieu // Movement 3 05:43  
+8. Interlude 3 - Concert Guitar 02:03  
+9. "King with broken crown" (Le Diable) // Movement 4 05:41 
+10. Intermezzo (instrumental) // Movement 5 05:23  
+11. Interlude 4 - Group 02:11  
+12. "Affection" (L'Amoureux) // Movement 6 02:53 
+13. Interlude 5 - Group 00:51  
+14. "Mistaken truth" (Le Hйrйtique) // Movement 7 05:10 
+15. Finale 02:56 
+
+
+Martin Lemar - Vocals
+Benedikt Zimniak - Guitars
+Erik Adam H - Guitars
+Ralph Hubert - Bass
+Alex Landenburg - Drums
+
+The artwork was created by Eliran Kantor (Testament, Sigh, Gwar, Anacrusis) 
+
+### "In A Mirror Darkly" 2014, Thrash
+
+1. Introduction
+2. Ouverture
+3. The Armageddon Machine
+4. The Sliver In Gods Eye
+5. Janus
+6. Inside The Outside Of The Inside
+7. Hindsight Bias
+8. Mutant Messiah
+
 
 ## Отношения с другими группами
 

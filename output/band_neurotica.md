@@ -1,8 +1,56 @@
 # Neurotica
 
-Дискография
-"SEED" 1998, Hard Rock
-"LIVING IN DOG YEARS" 1999, Hard Rock
+(featuring former ATHEIST frontman Kelly Shaefer)
+
+## Дискография
+
+### "SEED" 1998, Hard Rock
+
+Deadly Sin   
+Two Worlds    
+If   
+Easy Speak 
+Cornucopia   
+Evenings Away  
+Watered Down  
+Invisible Path  
+Now  
+Mink  
+Free  
+One Day   
+Genius to Lunatic 
+
+
+Brian Johnson (AC/DC) -  Producer 
+Michael Fraser  -  Mixing 
+Kelly Shaefer  -  Voices 
+G.J. Gosman  -  Drums 
+
+
+
+### "LIVING IN DOG YEARS" 1999, Hard Rock
+
+Ride of Your Life 
+Don't Blow it Away 
+Living in Dog Years 
+Stars in My Eyes 
+Up in The Hay 
+Touch The Sound 
+Those Dayz/These Dayz 
+Time Inflator 
+Said She 
+A Lot Of The Same 
+I Like it (one way) 
+
+
+Mike Fuller  -  Mastering 
+Tom Morris  -  Mixing 
+Kelly Shaefer  -  Vocals 
+G.J. Gosman  -  Drums 
+Rick Duncan  -  Engineer 
+
+
+
 
 ## Отношения с другими группами
 

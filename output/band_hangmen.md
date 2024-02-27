@@ -1,7 +1,18 @@
 # Hangmen
 
-Дискография
-"Evil century" 2000, Death Metal
+
+
+## Дискография
+
+### "Evil century" 2000, Death Metal
+
+1. Intro
+2. Evil Century
+3. Nothing's Forever
+4. Die Hard Die Soon
+
+(p) 2000 Hangmen
+
 
 ## Отношения с другими группами
 

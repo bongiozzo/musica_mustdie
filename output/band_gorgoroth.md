@@ -1,15 +1,134 @@
 # Gorgoroth
 
-Дискография
-"A Sorcery Written in Blood" 1993, Black Metal
-"Pentagram" 1995, Black Metal
-"Antichrist" 1996, Black Metal
-"Under the Sign of Hell" 1997, Black Metal
-"Destroyer" 1998, Black Metal
-"Incipit Satan" 2000, Black Metal
-"Twilight Of The Idols" 2003, Black Metal
-"Ad Majorem Sathanas Gloriam" 2006, Black Metal
-"Quantos Possunt ad Satanitatem Trahunt " 2009, Black Metal
+Satanic Black Metal
+
+## Дискография
+
+### "A Sorcery Written in Blood" 1993, Black Metal
+
+Gathered at blakulla(Intro)
+Sexual bloodgargling      
+(Under) The pagan megalith                
+Katharinas bortgang       
+Maaneskuggens slave
+
+### "Pentagram" 1995, Black Metal
+
+Begravelsesnatt           
+Crushing the scepter(Regaining a lost dominion)               
+Ritual                    
+Drommer om dog            
+Katharias bortgang        
+Hudrelokk                 
+(Under) The pagan megalith                
+Maaneskyggens slave       
+
+### "Antichrist" 1996, Black Metal
+
+1.  En Stram Lukt Av Kristen Blod
+2.  Bergtrollets Hevn
+3.  Gorgoroth
+4.  Possessed (By Satan)
+5.  Heavens Fall
+6.  Sorg
+
+Recorded & Mixed At Grieghallen Studio
+Engineered By Pytten / D.U.
+Mixed By Pytten /Infernus
+
+(P)c 1996 MALICIOUS Records
+
+### "Under the Sign of Hell" 1997, Black Metal
+
+1. Revelation of Doom
+2. Krig
+3. Funeral Procession
+4. Profetens Apenbaring
+5. Postludium
+6. Deleggelse og Undergang
+7. Blood Stains the Circle
+8. The Rite of Infernal Invocation
+9. The Devil Is Calling
+
+
+
+### "Destroyer" 1998, Black Metal
+
+1. Destroyer
+2. Open the Gates
+3. The Devil, the Sinner and His Journey
+4. Om Kristen og Joedisk Tru
+5. Paa Slagmark Langt mot Nord
+6. Blodoffer
+7. The Virginborn
+8. Slottet I det Fjerne
+
+### "Incipit Satan" 2000, Black Metal
+
+Incipit Satan            4.34
+A world to win           3.43
+Litani til Satan         4.34
+Unshain my heart!!!      4.47
+An excert of X           5.50
+Ein eim av blood 
+     og helvetesild      3.09
+Will to power            4.28
+When love rages wild
+      in my heart        5.43
+
+### "Twilight Of The Idols" 2003, Black Metal
+
+
+
+### "Ad Majorem Sathanas Gloriam" 2006, Black Metal
+
+1. Wound Upon Wound 03:32  
+2. Carving a Giant 04:12  
+3. God Seed (Twilight of the Idols) 04:16  
+4. Sign of an Open Eye 04:06  
+5. White Seed 04:39  
+6. Exit 03:33  
+7. Untamed Forces 02:39  
+8. Prosperity and Beauty 04:54
+
+### "Quantos Possunt ad Satanitatem Trahunt " 2009, Black Metal
+
+1. Aneuthanasia 02:19  
+2. Prayer 03:33  
+3. Rebirth 06:34  
+4. Building a Man 03:23  
+5. New Breed 05:29  
+6. Cleansing Fire 03:13  
+7. Human Sacrifice 03:46  
+8. Satan-Prometheus 05:37  
+9. Introibo ad Alatare Satanas 00:53 
+
+
+Limited edition picture disk vinyl to be released on Infernus' label Forces of
+Satan Records
+
+All music by Infernus 2006 - 2009. Lyrics by A. Behemot (tracks 1, 2 & 8), V.
+Horg (tracks 3-7), Infernus (track 9). Arrangements by Infernus/Tomas Asklund.
+Produced by Infernus. Co-produced/engineered by Tomas Asklund. Recorded in
+Monolith Studio in 2009. Mixed in Monolith Studio by Tomas Asklund. Mastered at
+Cutting Room by Infernus, Tomas Asklund & Mats Lindfors.
+
+Cover concept by Infernus. Cover design by Christian Misje & Oskorei Grapix.
+Photo by Christian Misje.
+
+Line-up:
+
+Pest - Vocals
+Infernus - Guitars
+Bшddel - Bass
+Tomas Asklund - Drums
+
+Release dates:
+October 21 - Europe
+November 11 - USA
+
+Recorded between March and June 2009.
+
 
 ## Отношения с другими группами
 

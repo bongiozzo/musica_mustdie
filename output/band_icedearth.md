@@ -1,27 +1,425 @@
 # Iced Earth
 
-Дискография
-"Enter the Realm [demo]" 1988, Thrash
-"Iced Earth" 1991, Thrash
-"Night of the Stormrider" 1992, Thrash
-"Burnt Offerings" 1995, Thrash
-"The Dark Saga" 1996, Thrash
-"Days of Purgatory [compilation]" 1997, Thrash
-"Something Wicked This Way Comes" 1998, Thrash
-"Alive in Athens [live]" 1999, Thrash
-"The Melancholy E.P. [EP]" 1999, Thrash
-"Horror Show" 2001, Thrash
-"Tribute to the Gods [compilation]" 2002, Thrash
-"The Reckoning [single]" 2003, Thrash
-"The Glorious Burden" 2004, Thrash
-"The Blessed and the Damned [compilation]" 2004, Thrash
-"Overture of the Wicked (EP)" 2007, Thrash
-"Setian Massacre & Ten Thousand Strong (promo CDS)" 2007, Thrash
-"Framing Armageddon (Something Wicked Part I)" 2007, Thrash
-"I Walk Among You (single)" 2008, Power Metal
-"The Crucible Of Man (Something Wicked Part 2)" 2008, Thrash
-"Festival Of The Wicked [2DVD]" 2011, Thrash
-"Dystopia" 2011, Heavy Metal
+Progressive Techno Thrash/Power Metal
+
+## Дискография
+
+### "Enter the Realm [demo]" 1988, Thrash
+
+1. Enter the Realm
+2. Colors
+3. Nightmares
+4. Curse The Sky
+5. Solitude
+6. Iced Earth
+
+Gene Adam - Vocals
+Randall Shawver - Lead Guitar
+Jon Schaffer - Rhythm Guitar, Vocals
+Dave Abell - Bass
+Greg Seymour - Drums
+
+### "Iced Earth" 1991, Thrash
+
+1. Iced Earth
+2. Written On The Walls
+3. Colors
+4. Curse The Sky
+5. Life And Death
+6. Solitude
+7. Funeral
+8. When The Night Falls
+
+ Jon Schaffer - Rhythm Guitar, Vocals
+ Randy Shawver - Lead Guitar
+ Gene Adam - Vocals
+ Dave Abell - Bass
+ Mike McGill - Drums
+
+All Music By ICED EARTH
+Produced By Tom Morris & Jon Schaffer
+Engineered By Tom Morris
+Recorded At Morrisound Recording Studios, Tampa, Florida
+
+(p)&(c) 1991 CENTURY MEDIA Records
+
+### "Night of the Stormrider" 1992, Thrash
+
+1. Angels Holocaust
+2. Storrmrider
+3. The Path I Choose
+4. Before The Vision
+5. Mystical End
+6. Desert Rain
+7. Pure Evil
+8. Reaching The End
+9. Travel In Stygian
+
+ Jon Schaffer - Rhythm Guitar, Vocals
+ Randy Shawver - Lead Guitar
+ John Greely - Vocals
+ Dave Abell - Bass
+ Richey Secchiary - Drums
+
+All Music By ICED EARTH
+Produced By Tom Morris & Jon Schaffer
+Engineered By Tom Morris
+Recorded At Morrisound Recording Studios,
+Tampa, Florida
+
+(p)&(c) 1992 CENTURY MEDIA Records
+
+### "Burnt Offerings" 1995, Thrash
+
+1. Burnt Offerings
+2. Last December
+3. Diary
+4. Brain Warshed
+5. Burning Oasis
+6. Creator Failure
+7. The Pierced Spirit
+8. Dante's Inferno - Denial, Lust, Greed
+    - The Prodigal, The Wrathful, Medusa
+    - The False Witness, Angel Of Light
+
+ Jon Schaffer - Rhythm Guitars, Vocals
+ Randall Shawver - Lead Guitars
+ Matthew Barlow - Vocals
+ Dave Abell - Bass
+ Rodney Beasley - Drums
+ Howard Helm - Keyboards
+
+All Songs Written By ICED EARTH
+Produced By Jon Schaffer & Tom Morris
+Engineered By Tom Morris
+Recorded & Mixed At Morrisound Studios, Tampa, FL
+
+(p)&(c) 1995 CENTURY MEDIA Records
+
+### "The Dark Saga" 1996, Thrash
+
+1. Dark Saga
+2. I Died For You
+3. Violate
+4. The Hunta
+5. The Last Laugh
+6. Depths Of Hell
+7. Vengeance Is Mine
+8. Scarred
+9. Slave To The Dark
+10.Question Of Heaven
+
+Recorded at Morrisound Studios by Jim Morris.
+
+Jon Schaffer - Rhythm Guitar, Vox
+Matthew Barlow - Vocals
+Keith Meliser - Bass
+Randall Shawver - Lead Guitar
+
+(p)(c) 1996 CENTURY MEDIA Records
+
+### "Days of Purgatory [compilation]" 1997, Thrash
+
+
+
+### "Something Wicked This Way Comes" 1998, Thrash
+
+1. Burning Times
+2. Melancholy (Holy Martyr)
+3. Disciples Of The Lie
+4. Watching Over Me
+5. Stand Alone
+6. Consequences
+7. My Own Savior
+8. eaping Stone
+9. 1776 (instrumental)
+10. Blessed Are You
+Something Wicked (Trilogy)
+11. Prophecy
+12. Birth Of The Wicked
+13. The Coming Curse
+
+Jon Schaffer - Guitars, Backing Vocals
+Matthew Barlow - Lead Vocals
+James MacDonough - Bass
+
+Guest Musicians:
+Larry Tarnowski - Guitar solos on all songs except 4
+Mark "The Creeper Prator - Drums
+Susan McQuinn - Flute On 9
+Howard Helm - Piano Intro to 13
+Tracy Marie Labarbera - Backing Vocals on 2,4,7
+Jim Morris - Keyboards, uitar Solo on 4, Backing Vocals
+Roger Hughes - Mandolin on 10
+
+Recorded at Morrisound Studios - Tampa, Florida, March, 1998
+Produced and Engineered by Jim Morris
+
+(p)(c)1998 Century Media
+
+### "Alive in Athens [live]" 1999, Thrash
+
+DISK 1
+
+Burning Times
+Vengeance is Mine
+Pure Evil
+My Own Savior
+Melancholy (Holy Martyr)
+Dante's Inferno
+The Hunter
+Travel in Stygian
+Slave to the Dark
+A Question of Heaven
+
+DISK 2
+
+Dark Saga
+Last Laugh
+Last December
+Watching Over Me
+Angels Holocaust
+Stormrider
+Path I Choose
+I Died For You
+Prophecy
+Birth of the Wicked
+The Coming Curse
+Iced Earth
+
+DISK 3
+
+Stand Alone
+Cast in Stone
+Desert Rain
+Brainwashed
+Disciples of the Lie
+When the Night Falls
+Diary
+Blessed Are You
+Violate
+
+The album was engineered and mixed by Jim Morris, and produced by Jon Schaffer and Jim Morris at Morrisound Studios. 
+
+### "The Melancholy E.P. [EP]" 1999, Thrash
+
+1. Melancholy (Holy Martyr) 
+2. Shooting Star 
+3. Watching Over Me 
+4. Electric Funeral 
+5. I Died for You 
+6. The Ripper 
+7. Colors (Live)
+
+### "Horror Show" 2001, Thrash
+
+1.) Wolf (5:19)
+2.) Damien (9:11)
+3.) Jack (4:14)
+4.) Ghost of Freedom (5:11)
+5.) Im-Ho-Tep (Pharaoh's Curse) (4:45) 
+6.) Jeckyl & Hyde (4:39) 
+7.) Dragon's Child (4:19) 
+8.) Frankenstein (3:50) 
+9.) Dracula (5:53) 
+10.) The Phantom Opera Ghost (8:41) 
+
+11.) Bonus: Transylvania (Iron Maiden cover) (4:23) 
+ 
+STARRING:
+Jon Schaffer - Rhythm, Lead, Acoustic Guitars, Vocals, Mandolin, Keys
+Matt Barlow - Lead Vocals
+Larry Tarnowski - Lead Guitar
+Richard Christy - Drums
+
+CO-STARRING:
+Yunhui Percifield - Lead Vocal in "The Phantom Opera Ghost" as "Christine", Backing Vocals
+Richie Wilkison - Backing Vocals
+Rafaela Farias - Backing Vocals
+Sam King - Backing Vocals
+Jim Morris - Backing Vocals, Keys, Guitar Solo in "Ghost of Freedom"
+Howard Helm - Keys (Pipe Organ) on "The Phantom Opera Ghost"
+Steve DiGiorgio - Bass Guitars
+
+Produced by Jim Morris and Jon Schaffer  
+
+### "Tribute to the Gods [compilation]" 2002, Thrash
+
+01. Creatures Of The Night (KISS)
+02. Number Of The Beast (IRON MAIDEN)
+03. Highway To Hell (AC/DC)
+04. Screaming For Vengeance (JUDAS PRIEST)
+05. Hallowed Be Thy Name (IRON MAIDEN)
+06. God Of Thunder (KISS) -- featuring Jon Schaffer on vocals
+07. Burnin' For You (Blue Цyster Cult)
+08. Black Sabbath (BLACK SABBATH)
+09. It's A Long Way To The Top (If You Wanna Rock 'n' Roll) (AC/DC)
+10. Dead Babies (ALICE COOPER)
+11. Cities On Flame With Rock & Roll (Blue Цyster Cult)
+
+
+
+### "The Reckoning [single]" 2003, Thrash
+
+1. The Reckoning (Don't Tread On Me)
+2. When The Eagle Cries (Unplugged)
+3. Valley Forge
+4. Hollow Man
+
+### "The Glorious Burden" 2004, Thrash
+
+01. Star Spangled Banner
+02. Declaration Day
+03. When The Eagle Cries
+04. The Reckoning (Don't Tread On Me)
+05. Attila
+06. Red Baron/Blue Max
+07. Hollow Man
+08. Waterloo
+09. Valley Forge
+10. Gettysburg (1863)
+11. The Devil To Pay
+12. Hold At All Costs
+13. High Water Mark
+
+### "The Blessed and the Damned [compilation]" 2004, Thrash
+
+Disc 1 
+1. Burning Times
+2. Wolf
+3. The Hunter
+4. Curse the Sky
+5. Melancholy (Holy Martyr)
+6. Stormrider
+7. Burnt Offerings
+8. Travel in Stygian (Live)
+9. Dark Saga
+10. Written on the Walls
+11. Damien
+
+Disc 2 
+1. Angels Holocaust
+2. Desert Rain
+3. Last December
+4. Watching Over Me
+5. Pure Evil (Live)
+6. The Path I Choose
+7. I Died for You
+8. Disciples of the Lie
+9. When the Night Falls
+10. Jack
+11. Iced Earth
+12. Violate
+
+### "Overture of the Wicked (EP)" 2007, Thrash
+
+1. Ten Thousand Strong 03:54  
+2. Prophecy 06:00
+3. Birth of the Wicked 04:31  
+4. The Coming Curse 08:00
+
+### "Setian Massacre & Ten Thousand Strong (promo CDS)" 2007, Thrash
+
+
+
+### "Framing Armageddon (Something Wicked Part I)" 2007, Thrash
+
+
+
+### "I Walk Among You (single)" 2008, Power Metal
+
+1. I Walk Alone 04:00  
+2. Setian Massacre 03:44  
+3. The Clouding 09:13 
+
+
+### "The Crucible Of Man (Something Wicked Part 2)" 2008, Thrash
+
+
+
+### "Festival Of The Wicked [2DVD]" 2011, Thrash
+
+Disc 1 
+1. Documentary  57:03  
+2. Dark Saga  04:05  
+3. Vengeance Is Mine  03:38 
+4. Burning Times  03:32   
+5. Declaration Day  04:22  
+6. Violate  03:46  
+7. Pure Evil  06:25
+8. Watching Over Me  04:25
+9. Ten Thousand Strong  04:02  
+10. Dracula  06:01   
+11. The Coming Curse  08:04   
+12. I Died for You  04:06  
+13. Travel In Stygian  08:08 
+14. A Question of Heaven  07:30   
+15. Melancholy (Holy Martyr)  04:43  
+16. My Own Savior  03:38   
+17. Iced Earth  05:55   
+  02:19:23   
+Disc 2 
+1. Dark Saga  03:26   
+2. Vengeance Is Mine  04:07 
+3. Burning Times  03:31   
+4. Declaration Day  04:24   
+5. Violate  03:42   
+6. Pure Evil  06:14  
+7. Watching Over Me  04:24  
+8. Ten Thousand Strong  04:04   
+9. Dracula  06:02  
+10. The Coming Curse  08:04   
+11. Travel in Stygian  07:57 
+12. A Question of Heaven  07:39
+13. Melancholy (Holy Martyr)  04:31 
+14. My Own Savior  03:47  
+15. Iced Earth  05:38   
+16. Burning Times  03:33   
+17. Declaration Day  04:30 
+18. Violate  03:38   
+19. Vengeance Is Mine  03:43
+20. Ten Thousand Strong  04:03  
+21. The Hunter  03:54   
+22. Stormrider  04:07   
+23. A Charge to Keep  04:27  
+24. My Own Savior  03:48   
+25. Prophecy  05:40  
+26. Birth of the Wicked  04:21  
+27. The Coming Curse  08:06   
+28. Iced Earth  06:13  
+29. Ten Thousand Strong  03:55   
+30. When the Eagle Cries  03:28
+31. The Reckoning  04:19  
+32. Declaration Day  04:48   
+33. Ten Thousand Strong Commercial  00:29   
+34. Photo Slideshow Ross Halfin  03:25    
+35. Photo Slideshow Rudy De Doncker  05:01 
+
+### "Dystopia" 2011, Heavy Metal
+
+1. Dystopia 05:49 
+2. Anthem 04:54 
+3. Boiling Point 02:46 
+4. Anguish Of Youth 04:41 
+5. V 03:39 
+6. Dark City 05:42 
+7. Equilibrium 04:30 
+8. Days Of Rage 02:17 
+9. End Of Innocence 04:07 
+10. Soylent Green (Bonus Track) 04:20 
+11. Iron Will (Bonus Track) 04:15 
+12. Tragedy And Triumph 07:44 
+13. Anthem (String Mix) 04:51
+
+
+Stu Block - Vocals 
+Jon Schaffer - Guitars, Vocals (backing) 
+Brent Smedley - Drums 
+Troy Seele - Guitars (lead) 
+Freddie Vidales - Bass 
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,31 @@
 # Underdark
 
-Дискография
-"Правда Та, что Живёт" 2006, Black Metal
-"I am Above All" 2006, Black Metal
+
+
+## Дискография
+
+### "Правда Та, что Живёт" 2006, Black Metal
+
+1. Правда... 02:10  
+2. Голод 03:43  
+3. Мораль для масс 03:34  
+4. Внутренний голод 06:37  
+5. Во славу луны 02:11  
+6. Осень 02:47  
+7. Жадность 05:10  
+8. Под тьмой 01:26 
+
+### "I am Above All" 2006, Black Metal
+
+1. Basements Of Consciousness 04:02
+2. Apotheosis Of Insignificance 04:40 
+3. Break Out 04:43 
+4. Leaving 04:24
+5. Depth Of Idea (insTrueMental) 03:25 
+6. I Am Above All 06:36  
+7. I Have Become The Wind 04:40 
+8. H©Єr m¬Яn sang 03:44 
+
 
 ## Отношения с другими группами
 

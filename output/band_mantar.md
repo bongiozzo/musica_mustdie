@@ -1,8 +1,26 @@
 # Mantar
 
-Дискография
-"Death By Burning" 2014, Metal
-"Ode To The Flame" 2016, Metal
+
+
+## Дискография
+
+### "Death By Burning" 2014, Metal
+
+01. Spit
+02. Cult Witness
+03. Astral Kannibal
+04. Into The Golden Abyss
+05. Swinging The Eclipse
+06. The Berserker's Path
+07. The Huntsmen
+08. The Stoning
+09. White Nights
+10. March of the Crows
+
+### "Ode To The Flame" 2016, Metal
+
+
+
 
 ## Отношения с другими группами
 

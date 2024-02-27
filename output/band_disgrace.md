@@ -1,9 +1,73 @@
 # Disgrace
 
-Дискография
-"Grey Misery" 1992, Grindcore
-"Debts Of Gods" 1992, Grindcore
-"Superhumandome" 1996, Grindcore
+
+
+## Дискография
+
+### "Grey Misery" 1992, Grindcore
+
+1. Unity`s Interlude Dyes Blind Tomorrow 
+2. Abtruse Myth
+3. Obscurity In The Azure
+4. The Chasm
+5. Immortality`s Open Lake
+6. My Dark Paradise
+7. And Below Rise Eternity
+8. Waves Of Hypocrisy Seas
+9. Debris
+10.Transcendental Dimension
+
+ Jukka Taskinen - Vocals & Guitar
+ Toni Stranius - Vocals & Guitar
+ Jussi Selonen - Bass
+ Miska Koski - Drums
+
+All Songs By DISGRACE.
+This Album Was Recorded & Mixed In September 91
+At TTT Studios,Helsinki,Finland By T. Tolkki & DISGRACE
+
+(p)&(c) 1992 MODERN PRIMITIVE Records
+
+### "Debts Of Gods" 1992, Grindcore
+
+1. Debts Of Gods
+2. Deprive My Innermost Soul
+3. Incinerate
+4. Offering
+5. Waves Of Hypocrisy Seas*
+
+All Songs (c) 1990 DISGRACE
+Recorded & Mixed June 10th & 12th
+At Akaan Musikki Reklaami, Viiala, Finland
+
+
+### "Superhumandome" 1996, Grindcore
+
+1. Boneplay
+2. Mean Relief
+3. The Earth Silence
+4. Dome
+5. One Spiral
+6. Bait
+7. Forever
+8. Ride
+9. Distress
+10.Christaddictsense
+11.Spleen
+
+All songs written by DISGRACE.
+Produced by P.Dassum and
+DISGRACE.
+Recorded at "Valmista Kamaa-Purkiin
+Vaan" Studios.
+
+Miska Koski - Drums, Percussions
+Riku Sanaksenaho - Guitars, Voice
+Jussi Selonen - Bass
+Jukka Taskinen - Vocals, Guitars
+
+(p)(c) 1996 MORBID Records
+
 
 ## Отношения с другими группами
 

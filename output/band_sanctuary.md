@@ -1,8 +1,33 @@
 # Sanctuary
 
-Дискография
-"Refuge Denied" 1987, Heavy Metal
-"Into the Mirror Black" 1990, Heavy Metal
+pre-NEVERMORE
+
+## Дискография
+
+### "Refuge Denied" 1987, Heavy Metal
+
+1. Battle Angels  04:51 
+2. Termination Force  03:41
+3. Die For My Sins  03:43 
+4. Soldiers Of Steel  05:32   
+5. Sanctuary  03:59  
+6. White Rabbit (Jefferson Airplane cover)  03:13 
+7. Ascension To Destiny  04:59 
+8. The Third War  03:54  
+9. Veil Of Disguise  05:55 
+
+### "Into the Mirror Black" 1990, Heavy Metal
+
+1. Future Tense  05:10  
+2. Taste Revenge  05:03  
+3. Long Since Dark  05:08  
+4. Epitaph  06:05  
+5. Eden Lies Obscured  05:24  
+6. The Mirror Black  05:10   
+7. Seasons Of Destruction  04:54 
+8. One More Murder  04:24 
+9. Communion  05:38 
+
 
 ## Отношения с другими группами
 

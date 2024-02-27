@@ -1,8 +1,38 @@
 # Tankwart
 
-Дискография
-"Himbeergeist Zum Fruhstuck" 1996, Thrash
-"Himbeergeist zum Fruehstueck (re-issue)" 2007, Thrash
+Alcoholic Thrash A-la Tom Angelripper
+
+## Дискография
+
+### "Himbeergeist Zum Fruhstuck" 1996, Thrash
+
+1.  Schone Maid
+2.  Viva Espana
+3.  Tanze Samba Mit Mir
+4.  Ein Bulschen Spals Muls Sein
+5.  Paloma Blanca
+6.  Am Tag, Als Conny Kramer Starb
+7.  Himbeergeist Zum Fruhstuck
+8.  Dschinghis Khan
+9.  Sieben Fasser Wein
+10.Mendocino
+11.Fiesta Mexicana
+12.Fahrende Musikanten
+13.Blau Bluht Der Enzian
+
+Recorded & Mixed At Musiclab By Harris Johns & TANKWART.
+
+Andreas Fritz Johannes Geremia - Vocals
+Andreas Theodor Bulgaropulos - Guitars, Backing Vocals
+Frank Robert Thorwarth - Bass
+Olaf Z. Zissel - Drums
+
+(P)(C) 1996 CENTURY MEDIA Records
+
+### "Himbeergeist zum Fruehstueck (re-issue)" 2007, Thrash
+
+
+
 
 ## Отношения с другими группами
 

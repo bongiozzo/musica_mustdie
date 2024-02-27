@@ -1,8 +1,34 @@
 # Shades Of Dusk
 
-Дискография
-"Caress the Despair" 2006, Melodic Death Metal
-"Quiescence" 2008, Melodic Death Metal
+
+
+## Дискография
+
+### "Caress the Despair" 2006, Melodic Death Metal
+
+1. Shaped to Symbolize 03:33 
+2. Carved Within the Milestones 04:04
+3. The Mournful Dawn of Existence 06:11
+4. A Dreadful Melody 03:46 
+5. Into the Abyss of Torments 05:19
+6. As Daylight Fades 03:55
+7. Caress the Despair 04:46
+8. Upon Burning Wings 05:38
+9. Shades of Dusk 06:39 
+
+### "Quiescence" 2008, Melodic Death Metal
+
+1. Inertia...and the Aftermath 04:19  
+2. An Urge to Drown 03:42  
+3. Redefining the Boundaries 02:37  
+4. Frailty by Design 03:14  
+5. A Tangible Concept to an Abstract Subject 03:35  
+6. Shall Remain Silent 03:53  
+7. The Celebration of Vile Procedures 03:32  
+8. Once, I Collapsed 03:23  
+9. Bipolar Incognitus 03:32  
+10. Sophisma (Red Rationale) 05:05 
+
 
 ## Отношения с другими группами
 

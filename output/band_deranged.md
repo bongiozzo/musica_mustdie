@@ -1,14 +1,132 @@
 # Deranged
 
-Дискография
-"X-Rated" 1995, Deathcore
-"High On Blood" 1997, Deathcore
-"III" 2000, Death Metal
-"Deranged" 2001, Deathcore
-"Plainfield Cemetery" 2002, Deathcore
-"Obscenities In B-Flat" 2006, Deathcore
-"The Redlight Murder Case" 2008, Death Metal
-"Cut Carve Rip Serve" 2011, Death Metal
+
+
+## Дискография
+
+### "X-Rated" 1995, Deathcore
+
+1. Black Semen Vengeance
+2. Killing Spree
+3. (Clim)Axe
+4. Narcissistic Sleighride
+5. Unleash My Hunger...
+6. Razor Tongue
+7. I'm The Love Undertaker
+8. ...As A Wolf
+9. Sixteen And Dead
+10.Paint It Black *
+[11].Infernal Vaginal Bleeding
+[12].The Bowels Of My Dismay
+[13].Majestic Hole
+[14].Sculpture Of The Dead
+
+[11]-[14] На Стороне B
+
+All Songs By DERANGED,Except *(Jagger,Richards).
+Produced By Berno Paulsson & DERANGED.
+Mixed By Berno Paulsson.
+Recorded & Mixed At Berno Studio,March 1995.
+
+Dan Bengtsson  - Bass
+Per Gyllenback - Vocals
+Joahn Axelsson - Guitar, Bass
+Rikard Wermen - Drums
+
+(P)&(C) 1995 REPULSE Records
+
+### "High On Blood" 1997, Deathcore
+
+Razor divine
+Humanity feeds on fifth
+(eroti)kiff
+Raised on human sin
+High on blood
+Robber of life
+Nailed ejacufation
+By knife...
+Haunted by natural danger
+With the silence came horror
+Experience the flesh
+
+Бонусы:
+Razor Divine
+By Knife
+(re-recorded, January 2003)
+
+### "III" 2000, Death Metal
+
+
+
+### "Deranged" 2001, Deathcore
+
+01. Flesh Rebel 
+02. Cum On Command 
+03. Dead Hand Strangulation 
+04. Endophagy 
+05. Injected By Filth 
+06. La Orgia De Los Muertos 
+07. Humanity; God's Failure 
+08. Malebolgia 
+09. Incurable 
+10. Impulse, Prey, Pleasure 
+11. Screen Passion
+
+### "Plainfield Cemetery" 2002, Deathcore
+
+01. Beaten, Raped and Fuckin Left to Die
+02. Stab and Hack
+03. Mutilate and Dumb You
+04. We Lure and Abduct
+05. God is Dead
+06. Deathgasm
+07. Imbecile Humans / Drag Her Out to Die
+08. Suffering, the Sweet Suffering
+09. Roadside Rendez Vous
+10. The Deviant Dead
+
+Rikard Wermen: drums
+Johan Axelsson: guitar
+Calle Faldt: bass/vox
+
+Recorded & Mixed:
+Berno Studio Summer 02`
+Produced: Berno Paulsson & Deranged
+Mixed:Berno Paulsson & Deranged
+Mastered: Goran Finnberg, The Mastering Room
+Photography: Nicklas Olsson
+All music: Johan Axelsson & Rikard Wermen
+All lyrics: Kevin Marshall & Rikard Wermen
+Vocal patterns / lyrical arrangements: Rikard
+Wermen
+Cover art: Aurelien Police
+booklet art / layout: Sven for dirge design
+
+
+### "Obscenities In B-Flat" 2006, Deathcore
+
+
+
+### "The Redlight Murder Case" 2008, Death Metal
+
+
+
+### "Cut Carve Rip Serve" 2011, Death Metal
+
+1. Depraved and Zombified  03:47    
+2. Limbless Slave  03:37    
+3. Razorsharp Decapitation  03:02    
+4. Slay and Grind  03:42    
+5. Workshed Slaughter  03:14    
+6. Savage Hacksaw Castration  03:14    
+7. Military Death Complete  03:42    
+8. Incise The Flesh  03:04    
+9. Blood On Pale Hands  03:48    
+10. Flesh Rebel 2011  04:58  
+
+
+
+
 
 ## Отношения с другими группами
 

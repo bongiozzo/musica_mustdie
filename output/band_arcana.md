@@ -1,16 +1,65 @@
 # Arcana
 
-Дискография
-"Dark Age Of Reason" 1996, Ambient
-"Lizabeth" 1997, Ambient
-"Cantar de Procella" 1997, Ambient
-"Isabel" 1999, Ambient
-"...The Last Embrace" 2000, Ambient
-"Body Of Sin" 2000, Ambient
-"Inner Pale Sun" 2002, Ambient
-"The New Light" 2004, Ambient
-"Le Serpent Rouge" 2005, Ambient
-"Raspail" 2008, Ambient
+
+
+## Дискография
+
+### "Dark Age Of Reason" 1996, Ambient
+
+1.  Our God Weeps
+2.  Angel Of Sorrow
+3.  Source Of Light
+4.  The Calm Before The Storm
+5.  Dark Age Of Reason
+6.  Like Statues In The Garden Of Dreaming
+7.  The Oath
+8.  ... For My Love
+9.  Serenity
+10.The Song Of Mourning
+
+Composed by P. Pettersson
+Choir arrangements was done with help by Daniel Gildenlow.
+Produced by P. Pettersson at studio Skyline.
+Choir: Peter Pettersson, Daniel Gildenlow, Ida Bengtsson, Emelie Palmstrom, Daniel Magdic, Johan Langell, Linda Carlzhon, Kristoffer Gildenlow
+
+(P)c 1996 COLD MEAT INDUSTRY // CMI 43
+
+### "Lizabeth" 1997, Ambient
+
+
+
+### "Cantar de Procella" 1997, Ambient
+
+
+
+### "Isabel" 1999, Ambient
+
+
+
+### "...The Last Embrace" 2000, Ambient
+
+
+
+### "Body Of Sin" 2000, Ambient
+
+
+
+### "Inner Pale Sun" 2002, Ambient
+
+
+
+### "The New Light" 2004, Ambient
+
+
+
+### "Le Serpent Rouge" 2005, Ambient
+
+
+
+### "Raspail" 2008, Ambient
+
+
+
 
 ## Отношения с другими группами
 

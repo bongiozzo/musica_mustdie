@@ -1,8 +1,60 @@
 # Terrorizer
 
-Дискография
-"World Downfall" 1989, Deathcore
-"Darker Days Ahead" 2006, Death Metal
+ex-Napalm Death
+
+## Дискография
+
+### "World Downfall" 1989, Deathcore
+
+1.  After Worlds Obliteration
+2.  Storm Of Stress
+3.  Fear Of Napalm
+4.  Human Prey
+5.  Corporation Pull In
+6.  Strategic Warheads
+7.  Condemned System
+8.  Resurrection
+9.  Enslaved By Propaganda
+10.Need To Live
+11.Ripped To Shreds
+12.Injustice
+13.Whirlwind Struggle
+14.Infestation
+15.Dead Shall Rise
+16.World Downfall
+
+ Oscar Garcia - Vocals
+ David Vincent - Bass Guitar, Vocals
+ Jesse Pintado - Lead Guitar
+ Pete Sandoval - Drums
+
+Recorded & Mixed At Morrisound Recording, Tampa, Florida
+Engineered By Scott Burns
+Produced By David Vincent
+
+(p)(c) 1989 EARACHE Records Mosh 16
+
+### "Darker Days Ahead" 2006, Death Metal
+
+1. Inevitable 01:03  
+2. Darker Days Ahead 03:46  
+3. Crematorium 03:54  
+4. Fallout 03:48  
+5. Doomed Forever 03:23  
+6. Mayhem 03:57  
+7. Blind Army 03:06  
+8. Nightmare 03:42  
+9. Legacy of Brutality 02:25  
+10. Dead Shall Rise '06 03:32  
+11. Victim of Greed 04:11  
+12. Ghost Train 02:35
+
+
+Pete Sandoval - Drums 
+Tony Norman - Bass 
+Anthony Rezhawk - Vocals
+Jesse Pintado - Guitar
+
 
 ## Отношения с другими группами
 

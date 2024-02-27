@@ -1,9 +1,31 @@
 # Corvus Corax
 
-Дискография
-"Seikilos" 2003, Folk
-"Cantus Buranus" 2006, Folk
-"Live In Berlin [2CD+DVD]" 2009, Folk
+Tanzwut members
+
+## Дискография
+
+### "Seikilos" 2003, Folk
+
+
+
+### "Cantus Buranus" 2006, Folk
+
+01. Fortuna
+02. Florent omnes
+03. Dulcissima
+04. Lingua mendax
+05. Rustica puella
+06. Nummus
+07. Curritur
+08. Sol solo
+09. Venus
+10. O langgueo
+11. Ergo bibamus
+
+### "Live In Berlin [2CD+DVD]" 2009, Folk
+
+
+
 
 ## Отношения с другими группами
 

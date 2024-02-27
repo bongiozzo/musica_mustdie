@@ -1,7 +1,33 @@
 # Revolter
 
-Дискография
-"Datamerica" 1996, Industrial
+Hard-Guitar-Metal-Industrial-Crossover !
+
+## Дискография
+
+### "Datamerica" 1996, Industrial
+
+1. Full Screen Horror.
+2. Bastard.
+3. New Crusadors.
+4. Datahymn.
+5. In Nomine Patris.
+6. Robopriest.
+7. God Is Me.
+8. Observer.
+9. Don't Stare.
+10. Albert Fisher.
+11. Highwaykiller.
+12. Flight 13.
+13. War.
+14. Dawn.
+15. Wonderful World.
+
+(p)1996 BMG Ariola Munchen GmbH
+©1996 Buro X
+
+CHERUBIN – all music, samples, vox
+NMI – vox
+
 
 ## Отношения с другими группами
 

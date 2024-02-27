@@ -1,17 +1,156 @@
 # D.R.I.
 
-Дискография
-"Dirty Rotten LP" 1983, Crossover
-"Violent Pacification (EP)" 1984, Crossover
-"Dealing With It!" 1985, Crossover
-"Crossover" 1987, Hardcore
-"4 Of A Kind" 1988, Hardcore
-"Thrash Zone" 1989, Hardcore
-"Definition" 1992, Hardcore
-"Live" 1994, Crossover
-"Full Speed Ahead" 1996, Hardcore
-"Live at CBGB's 1984" 2005, Hardcore
-"But Wait... There's More! (EP)" 2016, Crossover
+Classic Hardcore
+
+## Дискография
+
+### "Dirty Rotten LP" 1983, Crossover
+
+
+
+### "Violent Pacification (EP)" 1984, Crossover
+
+
+
+### "Dealing With It!" 1985, Crossover
+
+
+
+### "Crossover" 1987, Hardcore
+
+1. Five Year Plan
+2. Tear It Down
+3. A Coffin
+4. Probation
+5. I.D.K.Y.
+6. Decisions
+7. Hooked
+8. Go Die
+9. Redline
+10.No Religion
+11.Fun And Games
+12.Oblivion
+
+ Kurt Brecht - Vocals
+ Spike Cassidy - Guitars
+ Josh Pappe - Bass
+ Felix Griffin - Drums
+
+(p)&(c) 1987 METAl BLADE Records
+
+### "4 Of A Kind" 1988, Hardcore
+
+ Side Ace:
+1. All For Nothing
+2. Manifest Destiny
+3. Gone To Long
+4. Do The Dream
+5. Shut-Up !
+6. Madern World 
+ Side Deuce:
+1. Think For Yourself 
+2. Slum Lord
+3. Dead In A Pitch
+4. Suit And Tie Guy
+5. Man Unkind
+
+(p)&(c) 1988 METAL BLADE Records
+
+### "Thrash Zone" 1989, Hardcore
+
+1. Thrashard
+2. Beneath The Wheel 
+3. Strategy
+4. Labeled Incurable
+6. Gun Control
+7. Kill The Words
+8. Drown You Out
+9. The Trade
+10. Standing In Line
+11. Give A Hoot
+12. Worker Bee
+13. Abduction 
+
+Kurt Brecht - Vocals
+Spike Cassidy - Guitars
+John Menor - Bass
+Felix Griffin - Drums
+
+(p)&(c) 1989 METAL BLADE Records
+
+### "Definition" 1992, Hardcore
+
+1. Acid Rain
+2. Tone Deaf
+3. Guilt Trip
+4. Hardball
+5. The Application
+6. Paying To Play
+7. Say It
+8. Dry Heavens *
+9. Don't Ask
+10. Time Out
+11. Let It Go
+12. You
+13. The Target
+
+ Dirt'y (durte) - Vile, Obscene, Lewd, Low, Contemptible
+ Rot-Ten (rot'n) - Bad, Morally Corrupt
+ Imbe-ciles (im'be-silz) - Persons Of Defective Mentality, But Above The Level Of An Idiot
+
+Produced By Spike Cassidy 
+Co-Produced By Jim Faraci
+Engineered By Jim Faraci
+Mixed By Jim Faraci And Spike Cassidy 
+
+(p)&(c) 1992 METAL BLADE Records
+
+### "Live" 1994, Crossover
+
+
+
+### "Full Speed Ahead" 1996, Hardcore
+
+1.  Problem Addict 
+2.  I'm The Liar 
+3.  Under The Overpass
+4.  They Don' Care 
+5.  Drawn And Quartered
+6.  No End 
+7.  The Wages Of Sin 
+8.  Syringes In The Sandbox 
+9.  Who Am I? 
+10.Girl With A Gun 
+11.Dead Meat
+12.Down To The Wire 
+13.Level 7 
+14.Broke 
+15.Sucker 
+16.Underneath The Surface
+
+Produced By Spike Cassidi.
+Engineered by Mark Rosen & Spike Cassidi.
+Recorded At Sharkbite Studios 
+Mastered By Eddie Shreyer & Spike Cassidi At Future Disc.
+Mixed At TML Studios
+Cover Art Dave Krocker
+Layout By Michael Rocchio
+
+(P)c 1996 ROTTEN Records
+
+### "Live at CBGB's 1984" 2005, Hardcore
+
+
+
+### "But Wait... There's More! (EP)" 2016, Crossover
+
+1. Against Me  02:12    
+2. Anonymity  02:48    
+3. As Seen on TV  01:35    
+4. Mad Man  01:04    
+5. Couch Slouch  01:45  
+
+
 
 ## Отношения с другими группами
 

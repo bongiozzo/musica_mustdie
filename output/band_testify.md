@@ -1,8 +1,38 @@
 # Testify
 
-Дискография
-"" 1994, Industrial
-"Ballroomkiller" 1995, Industrial
+
+
+## Дискография
+
+### "" 1994, Industrial
+
+
+
+### "Ballroomkiller" 1995, Industrial
+
+1. Ballroom Blitz 2001
+2. Killer (Thrashold 1)
+3. Spoil - Wing Tip Mix (U.S.)
+4. Ride - Fuck Me + Stay Mix
+5. A.N.G.E.R. - Straight (U.S.)
+6. Get Busted - Horny Bub Edit
+7. Ballroom Blitz - The Machine
+
+ Pascal Nikov
+ Myk Jung
+ George McKinley
+ Eddie Logan
+ Moses W.
+ Mathias Black
+
+Tracks3, 5 Remixed By Keith "Fluffy" Auerbach & H. Beno
+Additional Programming By H. Beno
+Remixed At Chicago Trax Studio
+Produced & Re-Created By TESTIFY
+Engineered By Mathias Black
+
+(p)&(c) 1995 OUR CHOICE / ROUGH TRADE Inc.
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,37 @@
 # Grayscale
 
-Дискография
-"When The Ghosts Are Gone" 2002, Gothic
+(GOTHIC METAL FROM FINLAND)
+
+## Дискография
+
+### "When The Ghosts Are Gone" 2002, Gothic
+
+1. The World Today
+2. A Dead Season
+3. Gray Singer
+4. Squeeze
+5. The Fire Inside Me
+6. Absent
+7. Shape In The Shadows
+8. Cast Aside
+9. When The Ghosts Are Gone
+
+
+Lasse Harma: Vocals
+Miika Partonen: Guitar & Vocals
+Matti Hamalainen: Guitar
+Jenni Hytonen: Keyboards
+Janne Jukarainen: Drums
+Matti Reinola: Bass
+
+
+
+Recorded by Sakke Pietarila at LaLa Records, Helsinki, June 2001.
+Mixed by Sakke Pietarila & Grayscale at LaLa, February 2002.
+Mastered by Mika Jussila, Finnvox, Helsinki, May 2002.
+
+
+
 
 ## Отношения с другими группами
 

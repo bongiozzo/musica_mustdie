@@ -1,7 +1,35 @@
 # Disfigured Corpse
 
-Дискография
-"Flash Of Pain" 1997, Death Metal
+
+
+## Дискография
+
+### "Flash Of Pain" 1997, Death Metal
+
+1.  Introduction To Your Inward Natures
+2.  Suicidal Picture
+3.  I Have Recognized
+4.  Mental Gripe
+5.  F.A.L.
+6.  Flash Of Pain
+7.  Glass Madness
+8.  Your Mind
+9.  Right For Life
+10.The Hidden
+
+Recorded and Mixed at Studio Barbarella.
+Engineered by Pavel Zym, Jirka Krejci.
+Studio Produced by Pavel, Jirka, Warry.
+Produced by Warry, Pancho, Anjin, Frank, Igor.
+
+Pancho - Guitars, Backing Vocals
+Igor - Guitars
+Warry - Bass, Backing Vocals, Speaking, Keyboards
+David - Vocals, Speaking
+Frank - Drums, Backing Vocals
+
+(P)(C) 1997 SHEER Records 001
+
 
 ## Отношения с другими группами
 

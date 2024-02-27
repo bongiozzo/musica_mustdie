@@ -1,13 +1,123 @@
 # Ajattara
 
-Дискография
-"Itse" 2001, Metal
-"Kuolema" 2003, Metal
-"Tyhjyys" 2004, Metal
-"Apare" 2006, Metal
-"Kalmanto" 2007, Metal
-"Noitumaa" 2009, Metal
-"Murhat " 2011, Metal
+(Project from Pasi Koskinen - Amorphis)
+
+## Дискография
+
+### "Itse" 2001, Metal
+
+1. Yhdeksдs
+2. Verivalta
+3. Musta Aurinko
+4. Kuolevan rukous
+5. Дgrдs
+6. Murhamiesi
+7. Tulessa
+8. Manan lapset
+9. Rajan takaa
+10. Vihan musta tanssi
+
+Released : 2001
+Recorded : SundiCoop Studios, Savonlinna
+
+### "Kuolema" 2003, Metal
+
+1. Antakaa El&#228;&#228; - 03:24
+2. Surman Henki - 02:51
+3. Haureus - 02:56
+4. Huoran Alla - 02:42
+5. Ikiy&#246;ss&#228; - 03:22
+6. Musta Leski - 03:10
+7. Sielun S&#228;rkij&#228; - 03:52
+8. Kituvan Kiitos - 03:30
+9. Helvetiss&#228; On Syntisen Taivas - 03:59
+10. Rauhassa - 03:46
+
+### "Tyhjyys" 2004, Metal
+
+Intro 
+Sortajan Kaipuu 
+Katumuksen Kyinen Koura 
+Naaras 
+Armon Arvet 
+Pahan Tuoma 
+Harhojen Renki 
+Langennut 
+Uhrit 
+Tyhjyydestд 
+Outro
+
+### "Apare" 2006, Metal
+
+01. Hurmasta 
+02. Raato 
+03. Sддlin koira 
+04. Lautuma 
+05. Eksyneet 
+06. Hirsipuulintu 
+07. Tahtomattaan syntynyt 
+08. Itse 
+09. Koito 
+10. Syntyni 
+
+Line-Up: 
+Ruoja - vocals, guitar, keyboards 
+Atoni - bass 
+Malakias III - drums
+
+### "Kalmanto" 2007, Metal
+
+1. Ilkitie 04:05  
+2. Turhuuden takila 03:10  
+3. Madot 04:09  
+4. ...putoan 03:55  
+5. Harhojen virta 04:06  
+6. Suruntuoja 04:13  
+7. Naimalaulu 03:19 
+8. Alttarilla aamut Ohden 05:01  
+9. Kalmanto 04:46 
+
+
+Ruoja - Vocals, guitars
+Kalmos - Guitars, backing vocals
+Tohtori Kuolio - Bass, baking vocals
+Raajat - Synth, backing vocals
+Malakias IV - Drums
+
+Female vocals - Saattaja and Annas
+Baking vocals on "Alttarilla Ammut ohden" by Saasta
+
+From the back cover:
+"Oiva Antero Koskisen muistolle 1939-2006"
+(In memory of Oiva Antero Koskinen)
+
+### "Noitumaa" 2009, Metal
+
+1. Keuhkot 03:11
+2. Massat 03:50
+3. Mitд kuolema parantaa? 03:53
+4. Saatana palvoo meitд 02:36 
+5. Saveen saarnattu 04:14 
+6. Ikuisen aamun Sara 03:16
+7. Kielletyn sanat 03:56 
+8. Sдkeitд riippuneesta lihasta 03:06
+9. Lammas 03:23 
+
+### "Murhat " 2011, Metal
+
+1. Kunnes taivas meidдt erottaa 03:02  
+2. Ihmisen luku 03:34  
+3. H.A.I. 04:02  
+4. Aura 02:58  
+5. Sokea liha 03:20  
+6. Routalempi 03:23  
+7. Murheiden kilta 03:26  
+8. Apilas 03:16  
+9. Veljet 04:46 
+
+
+The title means "Murders". 
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,39 @@
 # Aina
 
-Дискография
-"Days Of Rising Room" 2003, Power Metal
+
+
+## Дискография
+
+### "Days Of Rising Room" 2003, Power Metal
+
+Disc One
+01. Aina Overture (2:01)
+02. Revelations (5:29)
+03. Silver Maiden (5:00)
+04. Flight Of Torek (5:21)
+05. Naschtok Is Born (4:40)
+06. The Beast Within (3:16)
+07. The Siege Of Aina (6:50)
+08. Talon's Last Hope (6:11)
+09. Rape Of Oria (3:04)
+10. Son Of Sorvahr (2:59)
+11. Serendipity (4:04)
+12. Lalae Amer (4:13)
+13. Rebellion (4:01)
+14. Oriana's Wrath (6:12)
+15. Restoration (4:55) 
+
+
+Disc Two
+01. The Story Of Aina (15:09)
+02. The Beast Within (single version) (3:44)
+03. Ve Toura Sol -Rape Of Oria- (ainae version) (3:05)
+04. Flight Of Torek (single version) (3:34)
+05. Silver Maiden (alternate version) (4:59)
+06. Talon's Last Hope (demo) (5:46)
+07. The Siege Of Aina (single version) (3:54)
+08. The Story Of Aina (instrumental) (15:08)
+
 
 ## Отношения с другими группами
 

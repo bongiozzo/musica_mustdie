@@ -1,9 +1,29 @@
 # Demonical
 
-Дискография
-"Servants Of The Unlight" 2007, Death Metal
-"Hellsworn" 2009, Death Metal
-"Death Infernal" 2011, Death Metal
+
+
+## Дискография
+
+### "Servants Of The Unlight" 2007, Death Metal
+
+01. Suicide Throne
+02. Revel in Misanthropia
+03. Burned Alive
+04. Feeding the Armageddon
+05. United in Torture
+06. Slaughter of all Hope
+07. Unholy Desecration
+08. Leipzig 1945
+09. Death Metal
+
+### "Hellsworn" 2009, Death Metal
+
+
+
+### "Death Infernal" 2011, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

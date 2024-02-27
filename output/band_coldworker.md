@@ -1,8 +1,17 @@
 # Coldworker
 
-Дискография
-"The Contaminated Void" 2006, Death Metal
-"Rotting Paradise" 2008, Death Metal
+
+
+## Дискография
+
+### "The Contaminated Void" 2006, Death Metal
+
+
+
+### "Rotting Paradise" 2008, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

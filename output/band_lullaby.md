@@ -1,7 +1,27 @@
 # Lullaby
 
-Дискография
-"My Master Lucifer" 1993, Black Metal
+Melodic Black Doom
+
+## Дискография
+
+### "My Master Lucifer" 1993, Black Metal
+
+1. Shout Of The Death
+2. My Master Lucifer
+3. You Liar
+4. Welcome Lucifer
+5. Lilith
+6. Lucifer
+7. In The Name Of The Devil
+8. Supreme Majesty
+9. Symphony Of The Death
+
+All Music & Lyrics By LULLABY.
+Mixed By Moel Studio.
+Cover Artwork By LULLABY.
+
+(P)(C) 1993 WILD RAGS Records // WRR 039
+
 
 ## Отношения с другими группами
 

@@ -1,9 +1,49 @@
 # Masters Of Reality
 
-Дискография
-"Sunrise on the Sufferbus" 1993, Hard Rock
-"Welcome to the Western Lodge" 1999, Hard Rock
-"Gibe Us Barabbas" 2004, Hard Rock
+
+
+## Дискография
+
+### "Sunrise on the Sufferbus" 1993, Hard Rock
+
+1 She Got Me (When She Got Her Dress On) 2:47 
+2 J.B. Witchdance 3:37 
+3 Jody Sings 3:03
+4 Rolling Green 3:41 
+5 Ants in the Kitchen 3:22 (Masters Of Reality) 
+6 V.H.V. 4:21 
+7 Bicycle 0:47
+8 100 Years (Of Tears on the Wind) 4:06 (Masters Of Reality) 
+9 T.U.S.A. 2:59
+10 Tilt-A-Whirl 3:42 
+11 Rabbit One 3:33 (Masters Of Reality) 
+12 Madonna 0:38
+13 Gimme Water 2:23 (Masters Of Reality) 
+14 Moon in Your Pocket 3:31
+
+
+
+### "Welcome to the Western Lodge" 1999, Hard Rock
+
+1 It's Shit 2:56 
+2 Moriah 3:33 
+3 Great Spelunker 3:10 
+4 Time to Burn 2:36 
+5 Take a Shot at the Clown 3:52 
+6 Baby Mae 3:14
+7 Why the Fly? 4:00 
+8 Ember Day 0:54
+9 Annihilation of the Spirit 2:32
+10 Call Dr. Carrion 3:22 
+11 Boymilk Walz 2:36 
+12 Lover's Sky 2:55  
+13 Also Ran Song 2:59 
+
+
+### "Gibe Us Barabbas" 2004, Hard Rock
+
+
+
 
 ## Отношения с другими группами
 

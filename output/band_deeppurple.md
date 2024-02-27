@@ -1,28 +1,470 @@
 # Deep Purple
 
-Дискография
-"Shades of Deep Purple" 1968, Hard Rock
-"The Book of Taliesyn" 1968, Hard Rock
-"Deep Purple" 1969, Hard Rock
-"Concerto For Group And Orchestra" 1969, Hard Rock
-"Deep Purple in Rock" 1970, Hard Rock
-"Fireball" 1971, Hard Rock
-"Made In Japan" 1972, Hard Rock
-"Machine Head" 1972, Hard Rock
-"Who Do We Think We Are" 1973, Hard Rock
-"Burn" 1974, Hard Rock
-"Stormbringer" 1974, Hard Rock
-"Come Taste The Band" 1975, Hard Rock
-"Perfect Strangers" 1984, Hard Rock
-"The House of Blue Light" 1987, Hard Rock
-"Slaves & Masters" 1990, Hard Rock
-"The Battle Rages on..." 1993, Hard Rock
-"Purpendicular" 1996, Hard Rock
-"Abandon" 1998, Hard Rock
-"Bananas" 2003, Hard Rock
-"Live Encounters DVD" 2004, Hard Rock
-"Rapture Of The Deep" 2005, Hard Rock
-"Live At Montreux 1996" 2006, Hard Rock
+(Heavy Metal Pioneers)
+
+## Дискография
+
+### "Shades of Deep Purple" 1968, Hard Rock
+
+Ritchie Blackmore (gtr), 
+Rod Evans (vcl), 
+Jon Lord (kbr/bvc), 
+Ian Paice (drm),
+Nic Simper (bss/bvc).
+
+Recorded during May 1968 at Pye Studios in London. Engineered by Barry Ainsworth. Produced by Derek Lawrence. 
+
+Tracks 
+
+And the address (Blackmore/Lord) 4.32 
+Hush (Joe South) 4.21 
+One more rainy day (Lord/Evans) 3.15 
+Medley 7.16 
+Prelude: happiness (Lord/Evans/Simper/Blackmore/Paice) 
+I'm so glad (Skip James)
+The US sleeve notes split the medley into two tracks. 
+Mandrake root (Blackmore/Evans/Lord) 6.02 
+Help (Lennon/McCartney) 5.54 
+Love help me (Blackmore/Evans) 3.44 
+Hey Joe (Deep Purple) 7.21 
+
+
+### "The Book of Taliesyn" 1968, Hard Rock
+
+Ritchie Blackmore (gtr),
+ Rod Evans (vcl), 
+Jon Lord (kbr/bvc), 
+Ian Paice (drm),
+Nick Simper (bss/bvc). 
+
+Recorded during September 1968 at De Lane Lea Studios in London. Engineered by Barry Ainsworth. Produced by Derek Lawrence. 
+
+Tracks 
+
+Listen, learn, read on (Blackmore/Lord/Evans) 3.59 
+Wring that neck (Blackmore/Lord/Simper/Paice) 5.08
+Titled "Hard Road" on the US releases. 
+Kentucky woman (Diamond) 4.39 
+Medley 6.56 
+Exposition (Blackmore/Lord/Simper/Paice) 
+We can work it out (Lennon/McCartney)
+Shield (Lord/Blackmore/Evans) 5.59 
+Anthem (Lord/Evans) 6.25 
+With string arrangements by Jon Lord. 
+River deep, mountain high (Spector/Barry/Greenwich) 9.59 
+
+
+### "Deep Purple" 1969, Hard Rock
+
+Ritchie Blackmore (gtr),
+Rod Evans (vcl), 
+Jon Lord (kbr/bvc), 
+Ian Paice (drm),
+Nick Simper (bss/bvc). 
+
+String and woodwind sections composed and arranged by Jon Lord. Recorded from January to May 1969 in London. Engineered by Barry Ainsworth. Produced by Derek Lawrence. 
+
+Tracks 
+
+Chasing shadows (Lord/Paice) 5.29 
+Blind (Lord) 5.20 
+Lalena (Leitch) 3.00 
+Medley 5.32
+Fault line (Lord/Blackmore/Paice/Simper) 
+The painter (Lord/Blackmore/Evans/Paice/Simper)
+The US sleeve notes split the medley in two tracks. 
+Why didn't Rosemary? (Blackmore/Lord/Evans/Simper/Paice) 4.56 
+Bird has flown (Evans/Blackmore/Lord) 5.29 
+April (Blackmore/Lord) 12.10 
+This track consists of an instrumental band section, an instrumental string section, and a more purple-oriented group section. Canadian Polydor releases apparently have some strange echo-effect on Ritchie's guitar lick in the third section. 
+
+
+### "Concerto For Group And Orchestra" 1969, Hard Rock
+
+1.   First Movement: Moderato Allegro
+2.   Second Movement: Andante
+3.   Third Movement: Vivace Presto
+
+### "Deep Purple in Rock" 1970, Hard Rock
+
+Ritchie Blackmore (gtr), 
+Ian Gillan (vcl), 
+Roger Glover (bss), 
+Jon Lord (kbr),
+Ian Paice (drm). 
+
+Recorded between October 1969 and February 1970 at the IBC, De Lane Lea and Abbey Road studios in London. Engineered by Andy Knight, Martin Birch and Philip McDonald. Produced by Deep Purple. 
+
+Tracks 
+
+Speed king (Blackmore/Gillan/Glover/Lord/Paice) 5.51 
+Bloodsucker (Blackmore/Gillan/Glover/Lord/Paice) 4.08 
+Child in time (Blackmore/Gillan/Glover/Lord/Paice) 10.16 
+Flight of the rat (Blackmore/Gillan/Glover/Lord/Paice) 7.53 
+Into the fire (Blackmore/Gillan/Glover/Lord/Paice) 3.29 
+Living wreck (Blackmore/Gillan/Glover/Lord/Paice) 4.30 
+Hard lovin' man (Blackmore/Gillan/Glover/Lord/Paice) 7.10 
+
+
+### "Fireball" 1971, Hard Rock
+
+Ritchie Blackmore (gtr), 
+Ian Gillan (vcl), 
+Roger Glover (bss), 
+Jon Lord (kbr),
+Ian Paice (drm). 
+
+Recorded between February and September 1971 in London. Engineered by Martin Birch, Lou Austin and Alan O'Duffy. Produced by Deep Purple. 
+
+Tracks on the European album release (1971) 
+
+Fireball (Blackmore/Gillan/Glover/Lord/Paice) 3.24 
+No no no (Blackmore/Gillan/Glover/Lord/Paice) 6.54 
+Demon's eye (Blackmore/Gillan/Glover/Lord/Paice) 5.19 
+Anyone's daughter (Blackmore/Gillan/Glover/Lord/Paice) 4.41 
+The mule (Blackmore/Gillan/Glover/Lord/Paice) 5.21 
+Fools (Blackmore/Gillan/Glover/Lord/Paice) 8.18 
+No one came (Blackmore/Gillan/Glover/Lord/Paice) 6.24 
+
+
+### "Made In Japan" 1972, Hard Rock
+
+1.  Highway Star
+2.  Child In Time
+3.  Smoke On The Water
+4.  The Mute
+5.  Strange Kind Of Woman
+6.  Lazy
+7.  Space Truckin'
+
+(P)c 1972
+
+### "Machine Head" 1972, Hard Rock
+
+Ritchie Blackmore (gtr),
+Ian Gillan (vcl), 
+Roger Glover (bss),
+Jon Lord (kbr),
+Ian Paice (drm). 
+
+Recorded between 6th and 21st December 1971 at Grand Hotel in Montreux with the Rolling Stones mobile recording unit. Engineered by Martin Birch. Produced by Deep Purple. 
+
+Tracks 
+
+Highway star (Blackmore/Gillan/Glover/Lord/Paice) 6.05 
+Maybe I'm a Leo (Blackmore/Gillan/Glover/Lord/Paice) 4.51
+The quadrophonic release [see above] has a different guitar solo on this track. 
+Pictures of home (Blackmore/Gillan/Glover/Lord/Paice) 5.03 
+Never before (Blackmore/Gillan/Glover/Lord/Paice) 3.56 
+Smoke on the water (Blackmore/Gillan/Glover/Lord/Paice) 5.40 
+Lazy (Blackmore/Gillan/Glover/Lord/Paice) 7.19 
+Space truckin' (Blackmore/Gillan/Glover/Lord/Paice) 4.31 
+
+
+
+
+### "Who Do We Think We Are" 1973, Hard Rock
+
+Ritchie Blackmore (gtr),
+Ian Gillan (vcl),
+Roger Glover (bss), 
+Jon Lord (kbr),
+Ian Paice (drm).
+
+Recorded in Italy during the fall of 1972 with the Rolling Stones mobile unit. Engineered by Martin Birch. Produced by Deep Purple. 
+
+Tracks 
+
+Woman from Tokyo (Blackmore/Gillan/Glover/Lord/Paice) 5.47 
+Mary Long (Blackmore/Gillan/Glover/Lord/Paice) 4.22 
+Super trouper (Blackmore/Gillan/Glover/Lord/Paice) 2.55 
+Smooth dancer (Blackmore/Gillan/Glover/Lord/Paice) 4.06 
+Rat bat blue (Blackmore/Gillan/Glover/Lord/Paice) 5.21 
+Place in line (Blackmore/Gillan/Glover/Lord/Paice) 6.28 
+Our lady (Blackmore/Gillan/Glover/Lord/Paice) 5.10 
+
+
+### "Burn" 1974, Hard Rock
+
+Rithie Blackmore (gtr), 
+David Coverdale (vcl), 
+Glenn Hughes (bss/vcl), 
+Jon Lord (kbr),
+Ian Paice (drm). 
+
+Recorded during November 1973 in Montreaux with the Rolling Stones mobile recording unit. Engineered by Martin Birch. Produced by Deep Purple. 
+
+Tracks 
+
+Burn (Blackmore/Lord/Paice/Coverdale) 6.00 
+Might just take your life (Blackmore/Lord/Paice/Coverdale) 4.36 
+Lay down, stay down (Blackmore/Lord/Paice/Coverdale) 4.15 
+Sail away (Blackmore/Coverdale) 5.48 
+You fool no one (Blackmore/Lord/Paice/Coverdale) 4.47 
+What's goin' on here (Blackmore/Lord/Paice/Coverdale) 4.55 
+Mistreated (Blackmore/Coverdale) 7.25 
+"A" 200 (Blackmore/Lord/Paice) 3.51 
+
+
+### "Stormbringer" 1974, Hard Rock
+
+Ritchie Blackmore (gtr), 
+David Coverdale (vcl), 
+Glenn Hughes (bss/vcl), 
+Jon Lord (kbr), 
+Ian Paice (drm). 
+
+Recorded during August 1974 at Musicland Studios in Munich. Engineered by Martin Birch. Produced by Deep Purple and Martin Birch. 
+
+Tracks 
+
+Stormbringer (Blackmore/Coverdale) 4.03 
+Love don't mean a thing (Blackmore/Coverdale/Hughes/Lord/Paice) 4.23 
+Holy man (Coverdale/Hughes/Lord) 4.28 
+Hold on (Coverdale/Hughes/Lord/Paice) 5.05 
+Lady Double Dealer (Blackmore/Coverdale) 3.19 
+You can't do it right (with the one you love) (Blackmore/Coverdale/Hughes) 3.24 
+High ball shooter (Blackmore/Coverdale/Hughes/Lord/Paice) 4.26 
+The gypsy (Blackmore/Coverdale/Hughes/Lord/Paice) 4.13
+The quadrophonic release apparently has a different guitar solo on this track. 
+Soldier of fortune (Blackmore/Coverdale) 3.14
+
+ 
+
+
+
+
+
+
+### "Come Taste The Band" 1975, Hard Rock
+
+1.   Comin' Home (3:52)
+2.   Lady Luck (2:45)
+3.   Gettin' Tighter (3:36)
+4.   Dealer (3:49)
+5.   I Need Love (4:22)
+6.   Drifter (4:01)
+7.   Love Child (3:05)
+8.   Medley (6:07)
+       - a) This Time Around
+       - b) Owed To 'G'
+9.   You Keep On Moving (5:18)
+
+Jon Lord (keyboards), Tommy Bolin (guitar), Ian Paice (drums), Glenn Hughes (bass, vocals), David Coverdale (vocals).
+
+### "Perfect Strangers" 1984, Hard Rock
+
+Ritchie Blackmore (gtr), 
+Ian Gillan (vcl), 
+Roger Glover (bss), 
+Jon Lord (kbr),
+Ian Paice (drm). 
+
+Recorded with the Le Mobile recording unit at Horizons in Stowe, Vermont. Engineered by Nick Blagona. Produced by Roger Glover and Deep Purple. 
+
+Tracks on the original album release (1984) 
+
+Knocking at your back door (Blackmore/Glover/Gillan) 7.00 
+Under the gun (Blackmore/Glover/Gillan) 4.35 
+Nobody's home (Blackmore/Glover/Gillan/Lord/Paice) 3.55 
+Mean streak (Blackmore/Glover/Gillan) 4.20 
+Perfect strangers (Blackmore/Glover/Gillan) 5.23 
+A gypsy's kiss (Blackmore/Glover/Gillan) 4.40 
+Wasted sunsets (Blackmore/Glover/Gillan) 3.55 
+Hungry daze (Blackmore/Glover/Gillan) 4.44 
+
+Bonus track on some issues 
+
+Not responsible (Blackmore/Glover/Gillan) 4.36 
+
+
+### "The House of Blue Light" 1987, Hard Rock
+
+Ritchie Blackmore (gtr), 
+Ian Gillan (vcl), 
+Roger Glover (bss), 
+Jon Lord (kbr),
+Ian Paice (drm). 
+
+Recorded with the Le Mobile recording unit at the Playhouse in Stowe, Vermont. Engineered by Nick Blagona. Produced by Roger Glover and Deep Purple. 
+
+Tracks 
+
+Bad attitude (Blackmore/Gillan/Glover/Lord) 4.43 / 5.04 
+The unwritten law (Blackmore/Gillan/Glover/Paice) 4.35 / 4.54 
+Call of the wild (Blackmore/Gillan/Glover/Lord) 4.40 / 4.48 
+Mad dog (Blackmore/Gillan/Glover) 4.31 / 4.36 
+Black & white (Blackmore/Gillan/Glover/Lord) 3.44 / 4.39 
+Hard lovin' woman (Blackmore/Gillan/Glover) 3.23 / 3.25 
+The Spanish archer (Blackmore/Gillan/Glover) 4.57 / 5.31 
+Strangeways (Blackmore/Gillan/Glover) 5.55 / 7.36 
+Mitzi Dupree (Blackmore/Gillan/Glover) 5.02 / 5.05 
+Dead or alive (Blackmore/Gillan/Glover) 4.44 / 5.00
+
+### "Slaves & Masters" 1990, Hard Rock
+
+Ritchie Blackmore (gtr), 
+Roger Glover (bss), 
+Jon Lord (kbr), 
+Ian Paice (drm),
+Joe Lynn Turner (vcl). 
+
+Recorded at Greg Rike Productions in Orlando, Florida. Engineered by Nick Blagona and Roger Glover. Produced by Roger Glover. 
+
+King of dreams (Blackmore/Glover/Turner) 5.30 
+The cut runs deep (Blackmore/Glover/Turner/Lord/Paice) 5.42 
+Fire in the basement (Blackmore/Glover/Turner/Lord/Paice) 4.43 
+Fortuneteller (Blackmore/Glover/Turner/Lord/Paice) 5.45 
+Truth hurts (Blackmore/Glover/Turner) 5.14 
+Love conquers all (Blackmore/Glover/Turner) 3.47 
+Breakfast in bed (Blackmore/Glover/Turner) 5.16 
+Too much is not enough (Turner/Held/Greenwood) 4.19 
+Wicked ways (Blackmore/Glover/Turner/Lord/Paice) 6.35 
+
+### "The Battle Rages on..." 1993, Hard Rock
+
+Ritchie Blackmore (gtr), 
+Ian Gillan (vcl), 
+Roger Glover (bss), 
+Jon Lord (kbr),
+Ian Paice (drm). 
+
+Basic tracks recorded at Bearsville Studios in New York City with vocals and overdubs recorded at Red Rooster Studios in Tutzing (Germany) and Greg Rike Studios in Orlando, Florida. Engineered by Bill Kennedy, Mike Reiter, Hans Gemperle and Jason Corsaro. Produced by Thom Panunzio and Roger Glover. 
+
+Tracks 
+
+The battle rages on (Blackmore/Gillan/Lord/Paice) 5.48 
+Lick it up (Blackmore/Gillan/Glover) 3.50 
+Anya (Blackmore/Gillan/Glover/Lord) 6.28 
+Talk about love (Blackmore/Gillan/Glover) 4.05 
+Time to kill (Blackmore/Gillan/Glover) 5.44 
+Ramshackle man (Blackmore/Gillan/Glover) 5.32 
+A twist in the tale (Blackmore/Gillan/Glover) 4.12 
+Nasty piece of work (Blackmore/Gillan/Glover/Lord) 4.34 
+Solitaire (Blackmore/Gillan/Glover) 4.35 
+One man's meat (Blackmore/Gillan/Glover) 4.38 
+
+
+### "Purpendicular" 1996, Hard Rock
+
+Ian Gillan (vcl), 
+Roger Glover (bss), 
+Jon Lord (kbr), 
+Steve Morse (gtr),
+Ian Paice (drm). 
+
+Recorded at Greg Rike studios in Orlando, Florida, from February to October 1995. Mixed at Parc Studios in Orlando, Florida. Mixed and engineered by Darren Schneider and Keith Andrews. Produced by Deep Purple. 
+
+
+Vavoom: Ted the Mechanic (Deep Purple) 4.16 
+Loosen my strings (Deep Purple) 5.57 
+Soon forgotten (Deep Purple) 4.47 
+Sometimes I feel like screaming (Deep Purple) 7.29 
+Cascades: I'm not your lover (Deep Purple) 4.43 
+The aviator (Deep Purple) 5.20 
+Rosa's Cantina (Deep Purple) 5.10 
+A castle full of rascals (Deep Purple) 5.11 
+A touch away (Deep Purple) 4.36 
+Hey Cisco (Deep Purple) 5.53 
+Somebody stole my guitar (Deep Purple) 4.09 
+The purpendicular waltz (Deep Purple) 4.45 
+ 
+
+### "Abandon" 1998, Hard Rock
+
+Ian Gillan (vcl), 
+Roger Glover (bss), 
+Jon Lord (kbr), 
+Steve Morse (gtr),
+Ian Paice (drm). 
+
+Recorded at Greg Rike studios in Orlando, Florida, during 1997/1998. Mixed at Platinum Post studios in Orlando, Florida. Engineered and mixed by Darren Schneider. Mastered by Greg Calbi. Produced by Deep Purple/Roger Glover. 
+
+Tracks 
+
+Any fule kno that (Gillan/Glover/Lord/Morse/Paice) 4.27 
+Almost human (Gillan/Glover/Lord/Morse/Paice) 4.23 
+Don't make me happy (Gillan/Glover/Lord/Morse/Paice) 4.55 
+Seventh heaven (Gillan/Glover/Lord/Morse/Paice) 5.22 
+Watching the sky (Gillan/Glover/Lord/Morse/Paice) 5.22 
+Fingers to the bone (Gillan/Glover/Lord/Morse/Paice) 4.45 
+Jack Ruby (Gillan/Glover/Lord/Morse/Paice) 3.47 
+She was (Gillan/Glover/Lord/Morse/Paice) 4.16 
+Whatsername (Gillan/Glover/Lord/Morse/Paice) 4.26 
+'69 (Gillan/Glover/Lord/Morse/Paice) 4.57 
+Evil Louie (Gillan/Glover/Lord/Morse/Paice) 4.53 
+Bludsucker (Blackmore/Gillan/Glover/Lord/Paice) 4.27
+A re-recording of an old classic that originally appeared on In Rock 1970. 
+
+
+### "Bananas" 2003, Hard Rock
+
+1.   House Of Pain
+2.   Sun Goes Down
+3.   Haunted
+4.   Razzle Dazzle
+5.   Silver Tongue
+6.   Walk On
+7.   Pictures Of Innocence
+8.   I've Got Your Number
+9.   Never A Word
+10. Bananas
+11. Doing It Tonight
+12. Contact Lost
+
+Total:     51:27
+
+Don Airey (keyboards), Steve Morse (guitar), Ian Paice (drums), Roger Glover (bass), Ian Gillan (vocals).
+
+### "Live Encounters DVD" 2004, Hard Rock
+
+Fireball 
+Maybe I'm a Leo 
+Ted the Mechanic 
+Pictures of Home 
+Black Night 
+Cascades I'm Not Your Lover / Steve Morse's solo 
+Sometimes I Feel Like Screaming 
+Woman from Tokyo 
+Rosa's Cantina 
+Smoke on the Water 
+Jon Lord's solo 
+When a Blind Man Cries 
+Speed King 
+Perfect Strangers 
+Hey Cisco 
+Highway Star
+
+### "Rapture Of The Deep" 2005, Hard Rock
+
+1. Back to Back
+2. Before Time Began
+3. Clearly Quite Absurd
+4. Don’t Let Go
+5. Girls Like That
+6. Rapture of the Deep
+7. MTV (European bonus track)
+8. Money Talks
+9. Kiss Tomorrow Goodbye
+10. Junkyard Blues (Japanese bonus track)
+11. Things I Never Said
+12. Wrong Man
+
+### "Live At Montreux 1996" 2006, Hard Rock
+
+Fireball 
+Ted the Mechanic
+Pictures of Home 
+Black Night 
+Woman from Tokyo 
+No One Came 
+When a Blind Man Cries 
+Hey Cisco 
+Speed King 
+Smoke on the Water
+Sometimes I Feel Like Screaming (bonus)
+Fools (bonus)
+
 
 ## Отношения с другими группами
 

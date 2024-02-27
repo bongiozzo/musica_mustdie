@@ -1,7 +1,24 @@
 # Demia
 
-Дискография
-"Insidious" 2007, Thrash
+
+
+## Дискография
+
+### "Insidious" 2007, Thrash
+
+1. Phantom Limbs
+2. Reciprocity	 
+3. Sweet Salvation	 
+4. Flaw the Immaculate	 
+5. Gutterfly	 
+6. Anemonic	 
+7. Insidious	 
+8. Preys	 
+9. Below	 
+10. Evolutional Regression	 
+11. Murder the Sun	 
+12. The End of Dew and Light
+
 
 ## Отношения с другими группами
 

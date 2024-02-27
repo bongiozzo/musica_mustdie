@@ -1,12 +1,83 @@
 # Alcest
 
-Дискография
-"Le Secret (EP)" 2005, Metal
-"Souvenirs D'un Autre Monde" 2007, Metal
-"Ecailles de lune" 2010, Metal
-"Les Voyages de l'Ame" 2012, Metal
-"Shelter" 2014, Acid
-"Kodama" 2016, Acid
+
+
+## Дискография
+
+### "Le Secret (EP)" 2005, Metal
+
+1. Le Secret 14:33  
+2. Elevation 12:46 
+
+Neige - Bass, Vocals, Drums, Guitars (Peste Noire, ex-Mortifera, Amesoeurs, Forgotten Woods)
+
+### "Souvenirs D'un Autre Monde" 2007, Metal
+
+1. Printemps Emeraude 07:19  
+2. Souvenirs d'un autre monde 06:08
+3. Les Iris 07:41  
+4. Ciel Errant 07:12 ] 
+5. Sur l'autre rive je t'attendrai 06:50  
+6. Tir Nan Og 06:10 
+
+
+Neige - All instruments and vocals*, composition, lyrics, recording
+
+*Guest vocals on 'Sur l'autre rive je t'attendrai' by Audrey Sylvain.
+Cover picture by Rachel Robinson
+
+Layout by Fursy Teyssier
+
+### "Ecailles de lune" 2010, Metal
+
+1. Ecailles de Lune (Part I) 09:52 
+2. Ecailles de Lune (Part II) 09:49 
+3. Percees de Lumiиre 06:38 
+4. Abysses 01:41 
+5. Solar Song 05:24 
+6. Sur L'Ocean Couleur de Fer 08:19
+
+
+### "Les Voyages de l'Ame" 2012, Metal
+
+1. Autre Temps 05:50 
+2. Lа Ou Naissent Les Couleurs Nouve 08:50 
+3. Les Voyages De L'Вme 06:59 
+4. Nous Sommes L'Emeraude 04:20 
+5. Beings Of Light 06:11 
+6. Faiseurs De Mondes 07:57 
+7. Havens 02:10 
+8. Summer's Glory 08:04
+
+
+Available as CD, Digipak CD, and limited Artbook-CD/DVD (limited to 1000 copies) as well as limited gate-fold LP with alternative cover artwork and in four different colors (black, white, clear and blue vinyl; each limited to 500 copies). 
+
+### "Shelter" 2014, Acid
+
+1. Wings  01:32   
+2. Opale  04:56   
+3. La nuit marche avec moi  04:58   
+4. Voix sereines  06:44   
+5. L'eveil des muses  06:49   
+6. Shelter  05:29  
+7. Away  05:02   
+8. Delivrance 10:06  
+9. Into the Waves  (bonus) 06:30 
+
+Recorded at Sundlaugin Studio, Reykjavнk, Iceland.
+
+### "Kodama" 2016, Acid
+
+1. Kodama  09:07    
+2. Eclosion  08:55   
+3. Je suis d'ailleurs  07:20   
+4. Untouched  05:12  
+5. Oiseaux de proie  07:50  
+6. Onyx  03:50   
+7. Notre sang et nos pensйes  (bonus) 06:06   
+
+- 2CD hardcover book (36 pages with lyrics, elaborate liner notes by Neige, Winterhalter and Fortifem, translations of the lyrics, ca. 18x18cm) incl. bonus CD with bonus track "Notre sang et nos pensйes".
+
 
 ## Отношения с другими группами
 

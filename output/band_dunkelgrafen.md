@@ -1,7 +1,23 @@
 # Dunkelgrafen
 
-Дискография
-"Triumph Des Fleisches" 2001, Black Metal
+
+
+## Дискография
+
+### "Triumph Des Fleisches" 2001, Black Metal
+
+1.Einleitung
+2.Triumph Des Fleisches
+3.In Nomine Satanas
+4.Sklavengott
+5.Entsagung
+6.Der Herrscher Dieser Welt
+7.Zeremonie Der Taufe
+8.Der Herr Der Holle Sei Mit Euch
+
+  
+
+
 
 ## Отношения с другими группами
 

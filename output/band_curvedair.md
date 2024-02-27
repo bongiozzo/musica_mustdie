@@ -1,17 +1,209 @@
 # Curved Air
 
-Дискография
-"Airconditioning" 1970, Progressive
-"Second Album" 1971, Progressive
-"Phantasmagoria" 1972, Progressive
-"Air Cut" 1973, Progressive
-"Midnight Wire" 1975, Progressive
-"Live (live)" 1975, Progressive
-"Airborne" 1976, Progressive
-"The Best Of Curved Air (compilation)" 1976, Progressive
-"Lovechild" 1990, Progressive
-"On Air" 1995, Progressive
-"Alive, 1990 (live)" 2000, Progressive
+UK progressive rock
+
+## Дискография
+
+### "Airconditioning" 1970, Progressive
+
+01) It Happened Today (04:55)
+02) Stretch (04:05)
+03) Screw (04:03)
+04) Blind Man (03:32)
+05) Vivaldi (07:26)
+06) Hide And Seek (06:15)
+07) Propositions (03:04)
+08) Rob One (03:22)
+09) Situations (06:17)
+10) Vivaldi (With Cannons) (01:35)
+
+Sonja Kristina - vocals, Francis Monkman - guitar, keyboards, Darryl Way - keyboards, violin, vocals, Rob Martin - bass, Florian Pilkington-Miksa - drums
+
+Produced by Mark Edwards
+
+### "Second Album" 1971, Progressive
+
+01) Young Mother (05:55)
+02) Back Street Luv (03:38)
+03) Jumbo (04:11)
+04) You Know (04:11)
+05) Puppets (05:26)
+06) Everdance (03:08)
+07) Bright Summer's Day '68 (02:54)
+08) Piece Of Mind (12:52)
+
+Sonja Kristina - vocals, Francis Monkman - guitar, keyboards, Darryl Way - piano, violin, vocals, Ian Eyre - bass, Florian Pilkington-Miksa - drums
+
+Produced by Curved Air, Colin Caldwell
+
+### "Phantasmagoria" 1972, Progressive
+
+01) Marie Antoinette (06:20)
+02) Melinda (More Or Less) (03:25)
+03) Not Quite The Same (03:44)
+04) Cheetah (03:33)
+05) Ultra-Vivaldi (02:22)
+06) Phantasmagoria (03:15)
+07) Whose Shoulder Are You Looking Over Anyway? (03:24)
+08) Over And Above (08:36)
+09) Once A Ghost, Always A Ghost (04:25)
+
+Sonja Kristina - acoustic guitar, vocals, Mike Wedgwood - acoustic guitar, bass, vocals, Francis Monkman - electric guitar, keyboards, gong, tubular bells, percussion, Darryl Way - keyboards, violin, tubular bells, vocals, Florian Pilkington-Miksa - drums, percussion
+
+Annie Stewart - flute (track 02), Alan Gout - trombone, David Purser - trombone, Chris Pyne - trombone, Steve Saunders - trombone, Paul Cosh - trumpet, George Parnaby - trumpet, Crispian Steele-Perkins - trumpet, Jim Watson - trumpet, Frank Ricotti - vibraphone, xylophone, Jean Akers - percussion, Colin Caldwell - percussion, Mal Linwood-Ross - percussion
+
+Produced by Curved Air, Colin Caldwell
+
+### "Air Cut" 1973, Progressive
+
+01) The Purple Speed Queen (03:32)
+02) Elfin Boy (04:13)
+03) Metamorphosis (10:38)
+04) World (01:43)
+05) Armin (03:42)
+06) UHF (05:07)
+07) Two-Three-Two (04:10)
+08) Easy (06:40)
+
+Sonja Kristina - acoustic guitar, vocals, Mike Wedgwood - acoustic guitar, bass, vocals, Kirby Gregory - electric guitar, vocals, Eddie Jobson - keyboards, violin, vocals, Jim Russell - drums, percussion
+
+Produced by Martin Rushent
+
+### "Midnight Wire" 1975, Progressive
+
+01) Woman On A One Night Stand (05:06)
+02) Day Breaks My Heart (04:38)
+03) The Fool (04:27)
+04) Pipe Of Dreams (03:58)
+05) Orange Street Blues (05:01)
+06) Dance Of Love (04:36)
+07) Midnight Wire (07:32)
+
+Sonja Kristina - vocals, Mick Jacques - guitar, Darryl Way - keyboards, violin, vocals, Stewart Copeland - drums
+
+Derek Damain - background vocals, Peter Wood - keyboards, John Perry - bass
+
+Produced by Howard Albert, Ron Albert
+
+### "Live (live)" 1975, Progressive
+
+01) It Happened Today (05:25)
+02) Marie Antoinette (06:45)
+03) Back Street Luv (03:43)
+04) Propositions (07:42)
+05) Young Mother (08:56)
+06) Vivaldi (09:00)
+07) Everdance (05:36)
+
+Sonja Kristina - vocals, Francis Monkman - guitar, Darryl Way - keyboards, violin, vocals, keyboards, Phil Kohn - bass, Florian Pilkington-Miksa - drums
+
+Produced by David Hitchcock
+Recorded December 1974 at Bristol Polytechnic and Cardiff University, UK
+
+### "Airborne" 1976, Progressive
+
+01) Desiree (03:12)
+02) Kids To Blame (03:19)
+03) Broken Lady (03:13)
+04) Juno (03:23)
+05) Touch Of Tequila (03:49)
+06) Moonshine (11:36)
+07) Heaven (Never Semmed So Far Away) (03:18)
+08) Hot And Bothered (02:53)
+09) Dazed (04:17)
+
+Sonja Kristina - vocals, Mick Jacques - guitar, Darryl Way - keyboards, violin, vocals, Tony Reeves - bass, Stewart Copeland - drums
+
+Robin Lumley - piano, Bob Sargeant - organ, Jack Enblow - accordion, Alan Skidmore - saxophone, Henry Lowther - trumpet, Frank Ricotti - congas
+
+Produced by Curved Air, Dennis MacKay
+
+### "The Best Of Curved Air (compilation)" 1976, Progressive
+
+01) It Happened Today (04:55)
+02) Vivaldi (07:28)
+03) You Know (04:10)
+04) Back Street Luv (03:35)
+05) Melinda (More Or Less) (03:22)
+06) Cheetah (04:53)
+07) Metamorphosis (10:35)
+08) The Purple Speed Queen (03:30)
+
+### "Lovechild" 1990, Progressive
+
+01) Exsultate Jubilate
+02) Lovechild
+03) Seasons
+04) The Flasher
+05) Joan
+06) The Dancer
+07) The Widow
+08) Paris By Night
+
+Sonja Kristina - acoustic guitar, vocals, Mike Wedgwood - acoustic guitar, bass, vocals, Kirby Gregory - electric guitar, vocals, Eddie Jobson - keyboards, violin, vocals, Florian Pilkington-Miksa - drums, percussion, Jim Russell - drums, percussion
+
+John O'Hara - keyboards
+
+Produced by Clifford Adams
+
+### "On Air" 1995, Progressive
+
+01) Vivaldi *
+02) Propositions/What Happens When You Blow Yourself Up? *
+03) It Happened Today *
+04) Young Mother **
+05) Situations **
+06) Blind Man **
+07) Thinking On The Floor ***
+08) Stretch ***
+09) Stark Naked ****
+10) Woman On A One Night Stand ****
+11) Midnight Wire ****
+12) Hot'N'Bothered ****
+13) The Fool ****
+
+* Sonja Kristina - acoustic guitar, vocals, Francis Monkman - electric guitar, keyboards, Darryl Way - keyboards, violin, Rob Martin - bass, Florian Pilkington-Miksa - drums, percussion
+
+Produced by John Walters
+Recorded April 28 1970 at BBC Studios, London, UK
+
+** Sonja Kristina - acoustic guitar, vocals, Francis Monkman - electric guitar, keyboards, Darryl Way - keyboards, violin, Ian Eyre - bass, Florian Pilkington-Miksa - drums, percussion
+
+Produced by John Muir
+Recorded January 5 1971 at BBC Studios, London, UK
+
+*** Sonja Kristina - acoustic guitar, vocals, Francis Monkman - electric guitar, keyboards, Darryl Way - keyboards, violin, Ian Eyre - bass, Florian Pilkington-Miksa - drums, percussion
+
+Produced by Frances Line
+Recorded January 27 1971 at BBC Studios, London, UK
+
+**** Sonja Kristina - acoustic guitar, vocals, Mick Jacques - electric guitar, Darryl Way - keyboards, violin, Tony Reeves - bass, Steve Copeland - drums, percussion
+
+Produced by Mike Appleton
+Recorded live January 29 1976 at the Paris Theatre, London, UK
+
+### "Alive, 1990 (live)" 2000, Progressive
+
+01) Twenty Years On (Intro) (04:11)
+02) It Happened Today (5:31)
+03) Stretch (4:20)
+04) Hide And Seek (7:02)
+05) Marie Antoinette (7:05)
+06) Melinda (More Or Less) (4:14)
+07) Situations (5:43)
+08) Young Mother (7:09)
+09) You Know (3:34)
+10) Propositions (5:15)
+11) Vivaldi (10:00)
+12) Everdance (4:16)
+13) Back Street Luv (4:26)
+
+Sonja Kristina - acoustic guitar, vocals, Francis Monkman - electric guitar, keyboards, sequencer, Darryl Way - keyboards, violin, Florian Pilkington-Miksa - drums, percussion
+
+Rob Martin - bass (track 11)
+
+Produced by Francis Monkman
+
 
 ## Отношения с другими группами
 

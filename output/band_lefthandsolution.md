@@ -1,9 +1,89 @@
 # Left Hand Solution
 
-Дискография
-"Shadowdance" 1996, Death Doom
-"Fevered " 1997, Doom
-"Light Shines Black" 2001, Doom
+
+
+## Дискография
+
+### "Shadowdance" 1996, Death Doom
+
+1. Shroud
+2. Infernal
+3. Solitary Fallen Angel
+4. Nightbloom
+5. Final Withering
+6. Shadowdance
+
+All songs written by LEFT HAND SOLUTION.
+Produced by LEFT HAND SOLUTION
+Recorded at L.R.C. by Peder Holmgren
+
+Peter Selin - Bass
+Kicki Hoijertz - Vocals
+Erik Barthold - Drums
+Jocke Mardstam - Guitar
+
+(p)(c) 1996 MASS Production
+
+### "Fevered " 1997, Doom
+
+1. Thorns 05:22  
+2. Fevered 05:49 
+3. The Wounds of Bitterness 04:48 
+4. Illusion 06:17  
+5. Angels With the Last Plagues 03:27 
+6. Scorns of Time 05:58 
+7. The Futile Passion 03:45 
+8. Memories (Of the Tragedienne) 05:28
+9. The Bleeding 06:23 
+10. Scarred 03:35 
+
+
+Recording Line-up:
+Mariana Holmberg - vocals
+Joakim Mеrdstam - guitar
+Peter Selin - bass
+Erik Barthold - drums, vocals and keyboards
+
+Guest:
+Thomas Hedquist - keyboards
+
+Recorded and produced by Thomas Hedquist at Kitchen Studio, Sundsvall May
+1996.
+Mixed by Thomas Hedqist, assisted by Erik at Quest studio, Uppsala July 1996
+
+
+### "Light Shines Black" 2001, Doom
+
+1. Light Shines Black 03:30  
+2. Soiled Souls 02:13 
+3. Missionary Man 03:11
+4. Lucid Dream Desire 03:34
+5. The Crooked Smile 03:49
+6. Raven Wings 03:30 
+7. Vision 03:54  
+8. Persistence of Memory 04:06  
+9. Heart Laid Bare 04:03
+10. Orient Nights 06:00 
+11. A Road to Nowhere 03:34 
+
+
+
+Recording line-up:
+Mariana Holmberg - vocals
+Janne Wiklund - guitar
+Erik Barthold - drums, vocals, keyboards and acoustic guitar
+Peter Selin - bass and acoustic guitar
+
+Guest:
+Thomas Hedquist - keyboards 
+
+Produced by Thomas Hedquist
+Recorded by Thomas Hedquist at Studio Nevo, Swedish Radio
+Sundsvall 1998. Track 1 and 9 recorded by Henrik Heinrich
+Mixed by Thomas Hedquist in Quest Studio, Uppsala.
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,10 +1,104 @@
 # Street Talk
 
-Дискография
-"Collabaration" 1997, Metal
-"Transition" 2000, Metal
-"Restoration" 2002, Metal
-"Destination" 2004, Metal
+AOR
+
+## Дискография
+
+### "Collabaration" 1997, Metal
+
+1. WALK AWAY FROM LOVE
+(F. Bergh/A. Lidberg)
+2. IF YOU SAY IT`S OVER 
+(F. Bergh)
+3. STANDING IN THE RAIN
+(F. Bergh)
+4. BRAND NEW START
+(F. Bergh/A. Lidberg)
+5. AMONG FRIENDS 
+(A. Lidberg)
+6. COULD YOU BE THE ONLY ONE
+(F. Bergh)
+7. WHERE DOES LOVE GO
+(F. Bergh/A. Lidberg)
+8. IN THE EYES OF A WOMAN (D. Jonsson/A. Lidberg)
+9. IF YOU SAY ITґS OVER (Acoustic) 
+(F. Bergh)
+10. BORROWED TIME
+(A. Lidberg)
+11. SEPARATE WAYS (WORLDS APART)
+(S. Perry/J. Cain) *
+12. CONCLUSION
+(A. Lidberg) *
+* Japanese bonus tracks
+
+### "Transition" 2000, Metal
+
+1. SOMEDAY (I'LL GET OVER YOU)
+(F. Bergh)
+2. NEED SOMEONE 
+(F. Bergh)
+3. IF ANYBODY BREAKS YOUR HEART
+(F. Bergh)
+4. LET ME BE THE ONE
+(F. Bergh)
+5. ALWAYS STAND BY YOU
+(F. Bergh)
+6. YE GODS AND LITTLE FISHES
+(F. Bergh/G. Edman)
+7. EVERYTHING I DO IS JUST FOR YOU 
+(F. Bergh)
+8. ENERGIZER BUNNY 
+(F. Bergh/G. Edman)
+9. DON'T GIVE UP ON THIS LOVE
+(F. Bergh)
+10. WHEN YOU LOSE THE ONE YOU LOVE
+(F. Bergh)
+11. I'LL ALWAYS REMEMBER 
+(S. Larsson) *
+* Japanese bonus track
+
+### "Restoration" 2002, Metal
+
+01. Give Me A Reason 
+02. Hare And Hounds 
+03. Language Of Love 
+04. Tables Turning
+05. Dancer In The Rain
+06. A Place In The Sun
+07. My Heart Beats For You
+08. Forever By Your Side
+09. In The Arms Of Love
+10. Why Is My Heart Feeling Lonely Tonight
+
+### "Destination" 2004, Metal
+
+1. Astray
+2. Tables Turning
+3. Ye Gods And Little Fishes
+4. Dancer In The Rain
+5. Made For Paradise
+6. Hare And Hounds
+7. Need Someone
+8. Language Of Love
+9. If You Say It's Over
+10. Someday
+11. After The Tears
+12. Walk Away From Love
+13. My Heart Beats For You
+14. Could You Be The Only One
+15. If Anybody Breaks Your Heart
+16. Standing In The Rain
+17. Why Is My Heart Feeling Lonely Tonight
+18. I'll Always Remember
+
+Gцran Edman (vocals)
+Hugo (vocals) 
+Fredrik Bergh (keyboards)
+Sven Larsson (guitar)
+Tony Franklin (bass) 
+Bjorn Lodmark (bass)
+Christian Johansson (drums)
+
 
 ## Отношения с другими группами
 

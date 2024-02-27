@@ -1,7 +1,13 @@
 # Mothernight
 
-Дискография
-"Promo 2006" 2006, Gothic
+Female-fronted band from Poland
+
+## Дискография
+
+### "Promo 2006" 2006, Gothic
+
+
+
 
 ## Отношения с другими группами
 

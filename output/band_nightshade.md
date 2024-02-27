@@ -1,7 +1,37 @@
 # Nightshade
 
-Дискография
-"Wielding The Scythe" 2002, Melodic Death Metal
+melodic-death-black-metal with keys
+
+## Дискография
+
+### "Wielding The Scythe" 2002, Melodic Death Metal
+
+01. Lacrima Caelestis
+02. Limbonized
+03. Sanctum
+04. Moonlight In Chaos Shone
+05. Possesor
+06. Exile
+07. Natthymn
+08. Black Blood Deliverance
+
+Daniel Kvist (Vocals)
+Snake Stevens (Guitars)
+Daniel Larson (Keyboards)
+Christer Pedersen (Bass Guitar)
+
+'Wielding The scythe' was recorded at Studio
+Underground, Vasteras, Sweden in October/November
+2000. Engineered and mixed by Pelle Saether and
+Lars Linden. Mastered at Massive Art Studios. All
+tracks composed and arranged by Nightshade. Lyrics
+by Kvist (4,6,7,8), Pedersen (1,5), Lrson (3) and
+2 by Kvist/Larsen. Photos by Matilda Modig. Cover
+art by Joe Petagno. Logo and graphix by Ricky
+Andreoni. Booklet art and layout by J.Strauss.
+Female vocals on "Sanctum" by Karolina Broback.
+
+
 
 ## Отношения с другими группами
 

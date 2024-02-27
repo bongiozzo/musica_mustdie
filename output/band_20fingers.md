@@ -1,7 +1,26 @@
 # 20 Fingers
 
-Дискография
-"On The Attack And More" 1995, Rap Metal
+
+
+## Дискография
+
+### "On The Attack And More" 1995, Rap Metal
+
+1.  Mr.Personality
+2.  I'm On The Attack
+3.  Whatcha Gonna Do
+4.  Short, Short Man
+5.  Bad Boys
+6.  Wanna Wild Things
+7.  You're A Dog
+8.  Coochie Dance
+9.  Pay Back
+10.Move Too Fast
+11.Short Dick Man (20 FINGERS featuring Gillette)
+12.Lick It  (20 FINGERS featuring Roula)
+
+(P)(C) 1995
+
 
 ## Отношения с другими группами
 

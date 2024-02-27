@@ -1,7 +1,27 @@
 # Kabbal
 
-Дискография
-"Synthetically Revived" 2002, Death Metal
+
+
+## Дискография
+
+### "Synthetically Revived" 2002, Death Metal
+
+1. Extra Sensorial Journey  
+2. The Great Massacre (verset 666) 
+3. Wisdom Of The Graves
+4. Life Surge
+5. Epitaph Of The Elder Ones
+6. Trihedron
+7. Scientific War
+8. La Citee De Marbre (The Marble City)
+9. Psychotic Democracy
+
+
+Hazael - Drums
+Trisophiliac - Guitars
+Julien - Bass/vocals
+Ghimel - guitars
+
 
 ## Отношения с другими группами
 

@@ -1,11 +1,67 @@
 # K.A.
 
-Дискография
-"Mystic Ruins" 1999, Death Metal
-"Obsessions" 2001, Death Metal
-"Close-Up" 2003, Death Metal
-"D. Termination" 2004, Death Metal
-"Gestation..." 2011, Death Metal
+
+
+## Дискография
+
+### "Mystic Ruins" 1999, Death Metal
+
+1. Intro		 
+2. Necropope		 
+3. Two Faces		 
+4. Require a Gun		 
+5. Die		 
+6. Crash Metal in your Head		 
+7. Miserable Human		 
+8. Destin (demo)
+
+### "Obsessions" 2001, Death Metal
+
+1. Obsessions		 
+2. You need ?		 
+3. Haya !		 
+4. Unconscious		 
+5. Require a Gun		 
+6. Stay Brutal		 
+7. Tortured		 
+8. See you Next		 
+9. Victims of the Future		 
+10. The End		 
+11. Evolutionism		 
+12. Eye for an Eye
+
+### "Close-Up" 2003, Death Metal
+
+1. Our Life		 
+2. What's your Excuse		 
+3. Illusion of Life		 
+4. Fragment of Mind		 
+5. F.J.F.S.		 
+6. Brutal Against Masses		 
+7. Rage		 
+8. What's your Excuse (demo)
+
+### "D. Termination" 2004, Death Metal
+
+1. All In One part 1		 
+2. All In One part 2		 
+3. Determination		 
+4. Border Line		 
+5. Fragment Of Mind		 
+6. Brutal D.N.A.		 
+7. Spit On The Uniform		 
+8. Throw Up Society		 
+9. Destin		 
+10. Mother Earth
+
+### "Gestation..." 2011, Death Metal
+
+1. Karma		 
+2. By the One	 
+3. Chrysalis		 
+4. Claim		 
+5. Inertia
+
 
 ## Отношения с другими группами
 

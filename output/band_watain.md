@@ -1,11 +1,74 @@
 # Watain
 
-Дискография
-"Rabid Death's Curse" 2000, Black Metal
-"Casus Luciferi" 2003, Black Metal
-"Sworn To The Dark" 2007, Black Metal
-"Lawless Darkness" 2010, Black Metal
-"The Wild Hunt" 2013, Black Metal
+
+
+## Дискография
+
+### "Rabid Death's Curse" 2000, Black Metal
+
+1. The Limb Crucifix	04:21
+2. Rabid Death's Curse	05:21
+3. On Horns Impaled	02:35
+4. Life Dethroned	05:45
+5. Walls of Life Ruptured	04:21
+6. Agony Fires	05:22
+7. Angelrape	03:40
+8. Mortem Sibi Consciscere	07:02
+
+### "Casus Luciferi" 2003, Black Metal
+
+1. Devil's Blood	05:49
+2. Black Salvation	06:45
+3. Opus Dei (The Morbid Angel)	05:33
+4. Puzzles ov Flesh	05:39
+5. I Am the Earth	06:00
+6. The Golden Horns of Darash	05:41
+7. From the Pulpits of Abomination	06:34
+8. Casus Luciferi	08:32
+
+### "Sworn To The Dark" 2007, Black Metal
+
+1. Legions of the Black Light	08:04
+2. Satan's Hunger	06:46
+3. Withershins	01:02	
+4. Storm of the Antichrist	04:15
+5. The Light That Burns the Sun	07:04
+6. Sworn to the Dark	05:03
+7. Underneath the Cenotaph	04:12
+8. The Serpent's Chalice	06:42
+9. Darkness and Death	04:13
+10. Dead but Dreaming	02:05	
+11. Stellarvore	08:17
+
+### "Lawless Darkness" 2010, Black Metal
+
+1. Death's Cold Dark	05:29
+2. Malfeitor	06:58
+3. Reaping Death	05:07
+4. Four Thrones	06:16
+5. Wolves Curse	09:12
+6. Lawless Darkness	06:08	
+7. Total Funeral	06:04
+8. Hymn to Qayin	05:57
+9. Kiss of Death	07:46
+10. Waters of Ain	14:31
+
+### "The Wild Hunt" 2013, Black Metal
+
+1. Night Vision  03:38   
+2. De Profundis  04:33   
+3. Black Flames March  06:20   
+4. All That May Bleed  04:41   
+5. The Child Must Die  06:04  
+6. They Rode On  08:43   
+7. Sleepless Evil  05:37   
+8. The Wild Hunt  06:20   
+9. Outlaw  05:07   
+10. Ignem Veni Mittere  04:39   
+11. Holocaust Dawn  07:07   
+
+
+
 
 ## Отношения с другими группами
 

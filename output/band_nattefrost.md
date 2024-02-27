@@ -1,9 +1,47 @@
 # Nattefrost
 
-Дискография
-"Blood And Vomit" 2004, Black Metal
-"Terrorist" 2005, Black Metal
-"Engangsgrill (split w/Fenriz' Red Planet)" 2009, Black Metal
+solo-project of Carpathian Forest mastermind
+
+## Дискография
+
+### "Blood And Vomit" 2004, Black Metal
+
+1. Ancient Devil Worshipping  
+2. Sluts of Hell 
+3. Satanic Victory 
+4. Universal Funeral 
+5. The Art of Spiritual Purification 
+6. Sanctum 666 
+7. Whore (Filthy Whore) 
+8. Mass-Destruction 
+9. Nattefrost Takes A Piss 
+10. The Gate of Nanna 
+11. Still Reaching For Hell
+
+### "Terrorist" 2005, Black Metal
+
+Nekronaut (Cunt Cunt Gimme More) 
+Black Metal Suicide (Claws of Perdition) 
+Hellcommander 
+Terrorist 
+Merket for Helvete 
+Eine Kleine Arschmuzick 
+Satan Is Endless, Satan Is Timeless 
+Primitive Death 
+Goat Worship 
+Catapultam Urinam Philosophiam 
+Preteen Deathfuck 
+Dinsadansdjeveldyrkaar!!! 
+The Death of Nettefrost (Still Reaching for Hell Part II)
+
+### "Engangsgrill (split w/Fenriz' Red Planet)" 2009, Black Metal
+
+4. Nekronaut II - Nekro Spirituals 05:42  
+5. Uskyldighet 02:04  
+6. Sin Goddammit 04:10  
+7. Lustmord (skulle det dukke opp flere lik er det bare е runke) 05:55  
+8. Humiliated and Pissed Upon 
+
 
 ## Отношения с другими группами
 

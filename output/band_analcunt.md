@@ -1,15 +1,123 @@
 # Anal Cunt
 
-Дискография
-"Everyone Should Be Killed" 1994, Grindcore
-"Top 40 Hits" 1995, Grindcore
-"40 More Reasons To Hate Us" 1996, Grindcore
-"I Like It When You Die" 1997, Grindcore
-"Picnic Of Love" 1998, Grindcore
-"It Just Get Worse" 1999, Grindcore
-"Split with The Raunchous Brothers" 2000, Grindcore
-"Defenders Of The Hate" 2001, Grindcore
-"Split with Flachenbrand" 2001, Grindcore
+Ultra Brutal Grindcore
+
+## Дискография
+
+### "Everyone Should Be Killed" 1994, Grindcore
+
+1.  Some Songs
+2.  Some More Songs
+3.  Blur Including New A.C. Songs
+4.  Even More Songs
+5.  Tim
+6.  Judge
+7.  Spin Cycle
+8.  Song #8
+9.  Pavorotti
+10.Unbelievable
+11.Music Sucks
+12.Newest A.C.Songs
+13.Chiffon & Chips
+14.Guy Smiley
+15.Seth
+16.I'm No Allowed To Like A.C. Anymore Since They
+     Signed To Earache
+17.A.Ex.A Blur
+18.G.M.O.T.R.
+19.I'm Wicked Underground
+20.Blur Including G
+
+Tracks 21-58 (No Titles)
+All Songs Written By ANAL CUNT
+
+(p)&(c) 1994 EARACHE Records
+
+### "Top 40 Hits" 1995, Grindcore
+
+
+
+### "40 More Reasons To Hate Us" 1996, Grindcore
+
+1. It, You're A Metal Band
+2. Punching Joe Bonni's Face In
+3. Kill Women
+4. Steroids Guy
+5. Everyone In Allston Should Be Killed
+6. I Noticed That You're Gay
+7. Dead, Gay And Dropped
+8. You Look Divorced
+9. I Hope You Get Deported
+10. Mike Mahan Has Gingivitis
+11. Trapped
+12. You're A Fucking Cunt
+13. Phyllis Is An Old Annoying Cunt
+14. A1 Stankus Is Always On The Phone With His Bookie
+15. Bill Scott's Dumb
+16. Harvey Komran Is Gay
+17.You Fucking Break
+18.Theme From Three  Company
+19.Jeanine Jizm Is A Freak
+20.Everyone In Anal Cunt Is Dumb
+21.I Just Saw The Gayest Guy On Earth
+22.Johnny Violent Getting His Ann Kicked By Morrisey
+23.Metamorphosis
+24.I'm Sick Of You
+25.Howard Wulkan's Bald
+26.You're A Tready Fucking Pussy
+27.Tom Arnold
+28.I Got Athletes Foot Showering At Mike's
+29.Big Pasts. Bigger Loser
+30.Marc Payson Is A Drunk
+31.Your Family Is Dumb
+32.Furnace
+33.You're Dumb
+34.Van Full Of Retards
+35.Deche Charge Are A Bunch Of Fucking Losers
+36.Everyone In The Underground Music Scene Is Stupid
+37.Dumb, Fat and Gross
+38.I'm Not Stubborn
+39.Mike Manan's Story
+40.02657
+41.Gloves Of Metal (Due With Phillip Anselmo) *
+42.Bonus Track
+
+All songs written by ANAL CUNT.
+except * written by MANOWAR
+Mixed by Bill T.Miller and Seth Putnam
+Recorded by Hill T. Miller at Headroom Studios, Boston, MA
+
+Seth Putnam - Guitar, Vocals
+Tim Morae - Drums
+Scott Hull - Guitar
+Guest Backing Vocals by Philip Anselmo(PANTERA)
+
+(p)(c) 1996 EARACHE Records
+
+### "I Like It When You Die" 1997, Grindcore
+
+
+
+### "Picnic Of Love" 1998, Grindcore
+
+
+
+### "It Just Get Worse" 1999, Grindcore
+
+
+
+### "Split with The Raunchous Brothers" 2000, Grindcore
+
+
+
+### "Defenders Of The Hate" 2001, Grindcore
+
+
+
+### "Split with Flachenbrand" 2001, Grindcore
+
+
+
 
 ## Отношения с другими группами
 

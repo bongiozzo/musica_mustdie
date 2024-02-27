@@ -1,7 +1,31 @@
 # KOB
 
-Дискография
-"Mekanism of Time" 2002, Heavy Metal
+
+
+## Дискография
+
+### "Mekanism of Time" 2002, Heavy Metal
+
+Heroes Die Young 
+The Race 
+Lost Memories 
+The Curse 
+Dirty Woman, Fallen Angel 
+Winter's Call 
+The Right Way 
+Strange Land 
+On the Streets Again 
+Time 
+
+
+Stephane Graziani -v 
+Thierry Huylebroeck -g 
+Rodolphe Bousquet -g 
+Michelart -b 
+Bruno Laguide -d 
+
+
+
 
 ## Отношения с другими группами
 

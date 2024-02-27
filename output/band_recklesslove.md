@@ -1,10 +1,35 @@
 # Reckless Love
 
-Дискография
-"Reckless Love" 2010, Metal
-"Animal Attraction" 2011, Metal
-"Spirit" 2013, Metal
-"InVader" 2016, Pop
+
+
+## Дискография
+
+### "Reckless Love" 2010, Metal
+
+
+
+### "Animal Attraction" 2011, Metal
+
+
+
+### "Spirit" 2013, Metal
+
+
+
+### "InVader" 2016, Pop
+
+01. We Are The Weekend
+02. Hands
+03. Monster
+04. Child Of The Sun
+05. Bullettime
+06. Scandinavian Girls
+07. Pretty Boy Swagger
+08. Rock It
+09. Destiny
+10. Let's Get Cracking (THWP)
+11. Keep It Up All Night (U.K. bonus track)
+
 
 ## Отношения с другими группами
 

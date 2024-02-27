@@ -1,8 +1,33 @@
 # Silent Voices
 
-Дискография
-"Chapters of Tragedy" 2002, Progressive
-"Infernal" 2005, Progressive
+Prog-metal
+
+## Дискография
+
+### "Chapters of Tragedy" 2002, Progressive
+
+1. Beyond Shadows (4:43)
+2. HumanCradleGrave (5:16)
+3. Tragedy (10:56)
+4. Cross My Path (4:38)
+5. Falling From Grace (4:35)
+6. Glassheart (6:08)
+7. The Last Sunset (9:51
+
+### "Infernal" 2005, Progressive
+
+End of Days 
+On the Wings of Rage 
+Infernal Mind 
+Fate Divided 
+New World Order 
+Disease: Man 
+Prelude - The Spirit of Avalon 
+Avalon 
+- The Journey
+- Resuming Control
+- The New Beginning
+
 
 ## Отношения с другими группами
 

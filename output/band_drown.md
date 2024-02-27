@@ -1,7 +1,28 @@
 # Drown
 
-Дискография
-"Hold On The Hollow" 1994, Alternative
+
+
+## Дискография
+
+### "Hold On The Hollow" 1994, Alternative
+
+1. I Owe You
+2. Pieces Of Man
+3. Beautiful
+4. What Is To Burn
+5. Longing
+6. Transparant
+7. Lost
+8. Reflection
+9. Arms Full Of Empty
+10.Everything
+
+Produced By Dave Ogilvie.
+Engineered By Bill Kennedy.
+Recorded At Kiva Studio.
+
+(p)&(c) 1994 ELEKTRA Records
+
 
 ## Отношения с другими группами
 

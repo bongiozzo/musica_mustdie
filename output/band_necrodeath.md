@@ -1,11 +1,64 @@
 # Necrodeath
 
-Дискография
-"Into the macabre" 1987, Thrash
-"Fragments of Insanity" 1989, Thrash
-"Mater of All Evil" 2000, Alternative
-"Ton(e)s Of Hate" 2003, Thrash
-"20 years of Noise" 2005, Thrash
+Thrash Black Metal from Italy
+
+## Дискография
+
+### "Into the macabre" 1987, Thrash
+
+1 Agony/The flag of the inverted cross 
+2 At the mountains of madness 
+3 Sauthenerom 
+4 Mater tenebrarum 
+5 Necrosadist 
+6 Internal decay 
+7 Graveyard of the innocents 
+8 The undead/Agony (reprise) 
+
+
+### "Fragments of Insanity" 1989, Thrash
+
+1 Choose your death 
+2 Tanathoid 
+3 State of progressive annihilation 
+4 Metempsychosis 
+5 Fragments of insanity 
+6 Enter my subconscious 
+7 Stillbirth 
+8 Eucharistical Sacrifice 
+
+
+### "Mater of All Evil" 2000, Alternative
+
+  1.   The Creature (Necrodeath) - 2:23 
+  2.   Flame of Malignance (Necrodeath) - 2:59 
+  3.   Black Soul (Necrodeath) - 3:38 
+  4.   Hate and Scorn (Necrodeath) - 3:16 
+  5.   Iconoclast (Necrodeath) - 4:18 
+  6.   Void of Naxir (Necrodeath) - 3:04 
+  7.   Anticipation of Death (Necrodeath) - 2:37 
+  8.   Experiment in Terror (Necrodeath) - 3:14 
+  9.   Serpent (Necrodeath) - 2:21 
+  10.  At the Roots of Evil (Necrodeath) - 3:58 
+  11.  Fathers (Necrodeath) - 3:45 
+
+
+### "Ton(e)s Of Hate" 2003, Thrash
+
+1. Mealy-mouthed hypocrisy
+2. Perseverance pays
+3. The mark of Dr. Z
+4. The flag
+5. Queen of desire
+6. Petition for mercy
+7. Last ton(e)s of hate
+8. Evidence from beyond
+9. Bloodstain pattern
+
+### "20 years of Noise" 2005, Thrash
+
+
+
 
 ## Отношения с другими группами
 

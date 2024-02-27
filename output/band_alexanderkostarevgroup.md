@@ -1,7 +1,13 @@
 # Alexander Kostarev Group
 
-Дискография
-"Live@InProg" 2003, Fusion
+sympho-progressive, fusion
+
+## Дискография
+
+### "Live@InProg" 2003, Fusion
+
+
+
 
 ## Отношения с другими группами
 

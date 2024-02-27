@@ -1,18 +1,135 @@
 # Anaal Nathrakh
 
-Дискография
-"Total Fucking Necro" 2000, Black Metal
-"The Codex Necro" 2002, Black Metal
-"When Fire Rains Down From The Sky, Mankind Will Reap As It Has Sown (EP)" 2003, Black Metal
-"Domine Non Es Dignus" 2004, Black Metal
-"Eschaton" 2006, Black Metal
-"Hell Is Empty, And All the Devils Are Here" 2007, Death Industrial
-"In The Constellation Of The Black Widow" 2009, Death Industrial
-"Passion" 2011, Death Industrial
-"Of Fire, And Fucking Pigs (single)" 2012, Death Metal
-"Vanitas" 2012, Death Metal
-"Desideratum" 2014, Death Metal
-"The Whole of the Law" 2016, Death Metal
+
+
+## Дискография
+
+### "Total Fucking Necro" 2000, Black Metal
+
+
+
+### "The Codex Necro" 2002, Black Metal
+
+1.  THE SUPREME NECROTIC AUDNANCE
+2.  WHEN HUMANITY IS CANCER
+3.  SUBMISSION IS FOR THE WEAK
+4.  PANDEMONIC HYPERBLAST
+5.  PARADIGM-SHIFT : ANNIHILATION
+6.  THE TECHNOGOAT
+7.  INCIPID FLOCK
+8.  HUMAN ALL TOO FUCKING HUMAN
+9.  THE CODEX NECRO
+
+### "When Fire Rains Down From The Sky, Mankind Will Reap As It Has Sown (EP)" 2003, Black Metal
+
+1. Cataclysmic Nihilism
+2. How the Angels fly in (we can never be forgiven)
+3. Never Fucking Again
+4. Genesis of the Antichrist
+5. Atavism 
+6. When fire rains down from the sky, mankind will reap as it has sown.
+
+
+### "Domine Non Es Dignus" 2004, Black Metal
+
+I Wish I Could Vomit Blood On You... ...People 
+The Oblivion Gene 
+Do Not Speak 
+Procreation of the Wicked 
+To Err is Human, To Dream - Futile 
+Revaluation of All Values 
+The Final Destruction of Dignity 
+Swallow The World 
+This Cannot Be The End 
+Rage, Rage Against The Dying of the Light
+
+### "Eschaton" 2006, Black Metal
+
+1. Bellum Omnium Contra Omnes 03:16	 
+2. Between Shit and Piss We Are Born 03:54	 
+3. Timewave Zero 03:01	 
+4. The Destroying Angel 03:11
+5. Waiting for the Barbarians 04:46	 
+6. The Yellow King 04:54	 
+7. When the Lion Devours Both Dragon and Child 04:57	 
+8. The Necrogeddon 04:11	 
+9. Regression to the Mean 03:12
+
+### "Hell Is Empty, And All the Devils Are Here" 2007, Death Industrial
+
+1. Solifugae (Intro) 01:05	 
+2. Der Holle Rache Kocht in Meinem Herzen 03:39	 
+3. Screaming of the Unborn 02:46	 
+4. Virus Bomb 03:35	 
+5. The Final Absolution 03:55	 
+6. Shatter the Empyrean 03:04	 
+7. Lama Sabachthani 03:48	 
+8. Until the World Stops Turning 02:53	 
+9. Genetic Noose 03:34	 
+10. Sanction Extremis (Kill Them All) 03:32	 
+11. Castigation and Betrayal 04:02
+
+### "In The Constellation Of The Black Widow" 2009, Death Industrial
+
+1. In the Constellation of the Black Widow 04:45  
+2. I am the Wrath of Gods and the Desolation of the Earth 02:24  
+3. More of Fire Than Blood 03:24  
+4. The Unbearable Filth of the Soul 03:31  
+5. Terror in the Mind of God 03:27  
+6. So Be It 02:22  
+7. The Lucifer Effect 03:54  
+8. Oil Upon the Sores of Lepers 02:47  
+9. Satanarchrist 04:40  
+10. Blood Eagles Carved on the Backs of Innocents 03:17
+
+### "Passion" 2011, Death Industrial
+
+1. Volenti Non Fit Iniuria 04:58	 
+2. Drug-Fucking Abomination 07:27	 
+3. Post Traumatic Stress Euphoria 01:41	 
+4. Le Diabolique Est L'ami Du Simplement Mal 03:42	 
+5. Locus of Damnation 01:01	 
+6. Tod Huetet Uebel 04:14
+7. Paragon Pariah 03:46	 
+8. Who Thinks of the Executioner? 03:58	 
+9. Ashes Screaming Silence 03:58	 
+10. Portrait of the Artist 01:20
+
+### "Of Fire, And Fucking Pigs (single)" 2012, Death Metal
+
+1. Of Fire, And Fucking Pigs 03:01
+
+### "Vanitas" 2012, Death Metal
+
+1. The Blood-Dimmed Tide
+2. Forging Towards The Sunset
+3. To Spite The Face
+4. Todos Somos Humanos
+5. In Coelo Quies, Tout Finis Ici Bas
+6. You Can't Save Me, So Stop Fucking Trying
+7. Make Glorious The Embrace Of Saturn
+8. Feeding The Beast
+9. Of Fire, And Fucking Pigs
+10. A Metaphor For The Dead 
+
+### "Desideratum" 2014, Death Metal
+
+01. Acheronta Movebimus
+02. Unleash
+03. Monstrum In Animo
+04. The One Thing Needful
+05. A Firm Foundation Of Unyielding Despair
+06. Desideratum
+07. Idol
+08. Sub Specie Aeterni (Of Maggots, And Humanity)
+09. The Joystream
+10. Rage And Red
+11. Ita Mori
+
+### "The Whole of the Law" 2016, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

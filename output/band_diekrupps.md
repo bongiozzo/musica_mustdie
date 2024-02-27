@@ -1,17 +1,226 @@
 # Die Krupps
 
-Дискография
-"A Tribute To Metallica" 1992, Industrial
-"I - Metal Machine Music" 1992, Industrial
-"II - The Final Option" 1993, Industrial
-"The Final Remixes" 1994, Industrial
-"Rings Of Steel" 1995, Industrial
-"III - Odyssey Of Mind" 1995, Industrial
-"Paradise Now" 1997, Industrial
-"Als Waren Wir Fur Immer (EP)" 2010, Industrial
-"The Machinists Of Joy" 2013, Industrial
-"V - Metal Machine Music" 2015, Industrial
-"Live Im Schatten Der Ringe" 2016, Industrial
+
+
+## Дискография
+
+### "A Tribute To Metallica" 1992, Industrial
+
+1. Enter Sandman
+2. Nothing Else Matters
+3. Blackened
+4. Battery
+5. For Whom The Bell Tolls
+
+Produced By John Fryer & Jorgen Engler & Chris Lietz
+
+(p)&(c) 1992 OUR CHOICE / ROUGH TRADE
+
+### "I - Metal Machine Music" 1992, Industrial
+
+1. High Tech/Low Life
+2. Metal Machine Music
+3. Doppelganger
+4. The Dawning Of Doom
+5. Ministry Of Fear
+6. One *
+7. Simply Say No 
+8. Disciples Of Discipline
+9. The Power
+10.Rings Of Steel
+
+All Songs By DIE KRUPPS, Except * By Metallica.
+Produced & Recorded By Engler/Lietz.
+Recorded At Atom H Studios, Dusseldorf.
+
+Jurgen Engler - Vocals,Keyboards, Guitars, Samples
+Rudiger Esch - Bass Guitar
+Volker Borchert - Live Drums
+Ralf Dorper -  Samples & Sound Effects
+Frank Thomas - Guitars
+Rene Shultz - Guitars
+
+(P)&(C) 1992 OUR CHOICE Records
+
+### "II - The Final Option" 1993, Industrial
+
+1. Crossfire
+2. Language Of Reality
+3. Bloodsuckers
+4. Fatherland
+5. To The Hilt
+6. Iron Man
+7. Inside Out
+8. Paradise Of Sin
+9. Worst Case Scenario
+10. Shellshoked
+11. New Temptation
+
+Produced By Jurgen Engler & Chris Lietz.Mixed By Kirk Yano.
+Recorded At ATOM H Studios, Dusseldorf.
+
+(p)&(c) 1993 OUR CHOICE/ ROUGH TRADE Records
+
+### "The Final Remixes" 1994, Industrial
+
+1. To The Hilt 
+2. Paradise Of Sin
+3. Language Of Reality 
+4. Fatherland
+5. Worst Case Scenario
+6. Shellshocked
+7. Crossfire
+8. Bloodsuckers
+9. Iron Man
+10.Inside Out
+11.New Temptation
+12.Hi Tech Low Life
+13.The Dawning Of Doom
+14.Ministry Of Fear
+15.Metal Machine Music
+16.Rings Of Steel
+
+Jurgen Engler - Vocals,Keyboards,
+Samples
+Lee Altus - Guitars
+Rudiger Esch - Bass
+Darren Minter - Drums
+Ralf Dorper -  Samples
+Chris Lietz - Recording Engineeer
+
+(P)&(C) 1994 ROUGH TRADE Rec. / 
+OUR CHOICE RTD.
+
+### "Rings Of Steel" 1995, Industrial
+
+1. Bloodsuckers
+2. To The Hilt 
+3. Crossfire
+4. Language Of Reality 
+5. Fatherland
+6. Worst Case Scenario
+7. Paradise Of Sin
+8. Iron Man
+9. Inside Out
+10.New Temptation
+11.Metal Machine Music
+12.Shellshocked
+13.Bloodsuckers (D. Kand Biohazard)
+14.Language Of Reality 
+15.Worst Case Scenario
+16.To The Hilt 
+17.New Temptation
+
+Jurgen Engler - Vocals,Keyboards,
+Samples
+Lee Altus - Guitars
+Rudiger Esch - Bass
+Darren Minter - Drums
+Ralf Dorper -  Samples
+Chris Lietz - Recording Engineeer
+
+(P)&(C) 1995 CLEOPATRA Records
+
+### "III - Odyssey Of Mind" 1995, Industrial
+
+1. The Last Flood
+2. Isolation
+3. Odyssey Of Mind
+4. Eggshell
+5. Scent
+6. The Final Option
+7. LCD
+8. Jackyll Or Hyde
+9. Metalmorphosis
+10.Alive
+
+All Songs Written By DIE KRUPPS.
+Produced By Juergen Engler & Chris Lietz.
+Mixed By Tony Platt.
+
+(P)&(C) 1995 OUR CHOICE Records
+
+### "Paradise Now" 1997, Industrial
+
+1. Moving Beyond
+2. The Gods Of Void
+3. Paradise Now
+4. Black Beauty White Heat
+5. Reconstruction
+6. Behind
+7. Taste Of Taboo
+8. Rise Up
+9. Fire
+10.Full Circle
+11.Vortex
+12.30 Seconds
+13.(A New) Society Treaty
+ 
+Jurgen Engler - Vocals, Keyboards, Guitars, Talkbox
+Lee Altus - Guitars
+Chris Lietz - Programming, Samples
+Ralf Dorper - Keyboard
+Rudiger Esch - Bass Guitar
+George Lewis - Drums
+6 features Dieter Moebius/Cluster and Mani Neumeier/Guru Guru
+and George Lewis on vocals
+2nd voice in 7 by Doro Pesch
+Backing Vocals in 8 by Julian Beeston
+9 features the Crazy World of Arthur Brown
+
+1, 2, 3, 4, 5, 7, 10: Music by Engler/Altus & Lyrics by Engler.
+6: Music by Moebius, Neumeier and Engler and Lyrics by Lewis.
+8: Music by Engler and Lyrics by Beeston.
+13: Music and Lyrics by Engler.
+11: Music by Engler and Lyrics by Dorper.
+12: Music by Engler/Altus and Lyrics by Dorper.
+9: Music and Lyrics by Brown, Crane, Ker and Finesilver.
+8 is a remake of an old Shining-song.
+Produced by Jurgen Engler and Chris Lietz.
+ 
+CD Rough Trade 1997.
+
+### "Als Waren Wir Fur Immer (EP)" 2010, Industrial
+
+01. Beyond (Hopeless cover) [4:56]
+02. The Chameleon Man [4:38]
+03. Die Macht [3:54]
+04. Dr. Mabuse (Propaganda cover) [4:32]
+05. Als Waren Wir Fur Immer [5:19]
+06. Beyond [Unheilig Rmx] [5:22]
+07. The Chameleon Man [Vigilante Rmx] [3:52]
+08. Dr. Mabuse [Memphis Rmx] [6:21]
+
+### "The Machinists Of Joy" 2013, Industrial
+
+CD1:
+01. Ein Blick Zurck Im Zorn 04:12
+02. Schmutzfabrik 04:20
+03. Risikofaktor 03:37
+04. Robo Sapien 05:14
+05. The Machinist Of Joy 04:42
+06. Essenbeck 04:09
+07. Im Falschen Land 03:39
+08. Part Of The Machine 04:34
+09. Eiskalter Engel 04:37
+10. Nocebo 04:13
+11. Im Schatten Der Ringe 06:35
+
+CD2 (ltd. edition):
+01. Nazis Auf Speed 05:32
+02. Panik 02:20
+03. Sans Fin 04:24
+04. Neue Helden 04:41
+05. Industrie-Mdchen 04:04 
+
+### "V - Metal Machine Music" 2015, Industrial
+
+
+
+### "Live Im Schatten Der Ringe" 2016, Industrial
+
+
+
 
 ## Отношения с другими группами
 

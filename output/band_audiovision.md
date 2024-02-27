@@ -1,8 +1,55 @@
 # Audiovision
 
-Дискография
-"The Calling" 2006, Power Metal
-"Focus" 2010, Power Metal
+
+
+## Дискография
+
+### "The Calling" 2006, Power Metal
+
+1. The Calling; 
+2. The King Is Alive; 
+3. Evil Or Divine; 
+4. The Rock Of My Soul; 
+5. Read Between The Lines; 
+6. Face To face; 
+7. Show Me The Way; 
+8. Love Is Like Oxygen *; 
+9. Hold Me; 
+10. Colors
+
+All songs written by AUDIOVISION
+except * written by Scott/Griffin
+Produced by Lars Chriss
+Recorded, mixed and engineered by Lars Chriss at canvas Studios, Sweden
+
+Mikael Hoglund - Bass
+Lars Chriss - Guitars
+Christian Rivel - Lead Vocals
+Thomas Broman - Drums
+Lindahl - Keyboards
+
+Additional Musicians:
+Mikael Andersson, Tommy Denander - Keyboards
+Thomas Vikstrom, Mats Leven - Backing Vocals
+Hubertus Liljegren - Growling Vocals
+Bruce Kulick, Mattias Eklundh - Lead Guitar
+Jeff Scott Soto - Lead and Backing Vocals
+Eric Clayton - Speaker Voice
+
+### "Focus" 2010, Power Metal
+
+1.	 Invitation	03:32
+2.	 Keep The Fire Burning	04:34
+3.	 We Are Not Alone	03:06
+4.	 The Son Will Come	04:05
+5.	 You Are The Reason	03:53
+6.	 Fruit Of Love	04:46
+7.	 We Will Go	04:24
+8.	 I Will Belong To You	05:48
+9.	 The Way (Stryper Cover)	04:09
+10.	 The Gate	07:37
+11.	 Focus	03:25
+
 
 ## Отношения с другими группами
 

@@ -1,11 +1,104 @@
 # Dragonland
 
-Дискография
-"The Battle Of The Ivory Plains" 2001, Power Metal
-"Holy War" 2002, Power Metal
-"Starfall" 2004, Power Metal
-"Astronomy" 2006, Power Metal
-"Under The Grey Banner" 2011, Power Metal
+Swedish power metal
+
+## Дискография
+
+### "The Battle Of The Ivory Plains" 2001, Power Metal
+
+01 Dragondawn 2:39 
+02 Storming across heaven 4:31 
+03 A last farewell 6:16 
+04 Ride for glory 4:15 
+05 The orcish march 5:57 
+06 The battle of the ivory plains 6:16 
+07 Graveheart 4:48 
+08 Rondo a la turca 1:45 
+09 A secret unveiled 5:54 
+10 Worlds end 5:21 
+11 Dragondusk 2:00 
+
+
+Recorded at Los angered recording 11-22
+December 2000 and 2-8 January 2001 
+Released by Black lotus records june 2001 
+Produced and enginered by Andy la roque 
+
+
+
+### "Holy War" 2002, Power Metal
+
+01. Hundred years have passed
+02. Majesty of the mithril mountains 
+03. Through elven woods and dwarven mines
+04. Holy war 
+05. Calm before the storm 
+06. The return to the ivory plains 
+07. Forever walking alone
+08. Blazing hate
+09. A thousand points of light 
+10. One with all
+
+
+Recorded in Studio FREDMAN at:
+March 14th to April 4th 2002
+Produced, Mixed and engineered by:
+Patrik J. and Fredrik Nordstrom
+
+
+
+### "Starfall" 2004, Power Metal
+
+1.   As Madness Took Me  3:57  
+2.   Starfall 3:19  
+3.   Calling My Name  4:49 . 
+4.   In Perfect Harmony  4:42  
+5.   The Dreamseeker  5:32  
+6.   The Shores of Our Land  6:46  
+7.   The Returning  4:41 . 
+8.   To The End of The World  4:40 . 
+THE BOOK OF SHADOWS:  . . 
+9.   Part I: A Story Yet Untold  3:13 . 
+10. Part II: The Curse of Qa'a  3:19 . 
+11. Part III: The Glendora Outbreak 4:51 . 
+12. Rusty Nail [Japan bonus]  . . 
+13. As Madness Took Me [DEMO/Japan Bonus]  . . 
+14. Starfall [DEMO/Japan Bonus]
+
+### "Astronomy" 2006, Power Metal
+
+1. Supernova (5:09)
+2. Cassiopeia (4:06)
+3. Contact (4:25)
+4. Astronomy (3:20)
+5. Antimatter (3:00)
+6. The Book of Shadows part IV: The Scrolls of Geometria Divina (4:04)
+7. Beethoven's Nightmare (6:11)
+8. Too Late for Sorrow (3:36)
+9. Direction: Perfection (4:29)
+10. The Old House on the Hill Chapter I: A Death in the Family (4:30)
+11. The Old House on the Hill Chapter II: The Thing in the Cellar (3:07)
+12. The Old House on the Hill Chapter III: The Ring of Edward Waldon (6:17)
+
+
+### "Under The Grey Banner" 2011, Power Metal
+
+1. Ilmarion 03:18
+2. Shadow Of The Mithril Mountains 05:44
+3. The Tempest 04:13
+4. A Thousand Towers White 04:07
+5. Fire And Brimstone 04:31
+6. The Black Mare 06:13
+7. Lady Of Goldenwood 04:16
+8. Dыrnir's Forge 04:58
+9. The Trials Of Mount Farnor 05:26
+10. Throne Of Bones 01:47
+11. Under The Grey Banner 08:04
+12. Ivory Shores 03:18
+
+
+The third and final part of the trilogy "Dragonland Chronicles". 
+
 
 ## Отношения с другими группами
 

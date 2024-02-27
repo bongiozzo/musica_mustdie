@@ -1,8 +1,49 @@
 # Alkemyst
 
-Дискография
-"Meeting In the Mist" 2003, Power Metal
-"Through Painful Lanes" 2008, Power Metal
+
+
+## Дискография
+
+### "Meeting In the Mist" 2003, Power Metal
+
+01. Spells & Elixirs (1:03)
+02. Still Alive (5:01)
+03. It's Time (5:02)
+04. Up To Heaven's Gate (5:35)
+05. Hold on to your Dreams (6:51)
+06. A Meeting in the Mist (6:40)
+07. Passage (5:15)
+08. Empty Skies (6:21)
+Nameless Son (12:37)
+09. The Awakening
+10. The Falling Star
+
+Ramon Messina - vocals
+Severin Bonneville - guitars
+Arnaud Menard - guitars
+Denis Mellion - bass
+Arnaud Gorbaty - drums
+
+Produced by Alkemyst, recorded by Laurent Nafissi,
+mixed by Laurent Nafissi and Alkemyst at NSR
+Studio (La Garde Adhemar, France) between june and
+october 2002. Masterised by Mika Jussila at
+FINNVOX Studio (Helsinki, Finland) in november and
+december 2002.
+
+### "Through Painful Lanes" 2008, Power Metal
+
+1.	 The Beast Within	06:58	 
+2.	 Another You	05:37	 
+3.	 When the Morning Comes	08:28	 
+4.	 Enter the Carnival	03:44	 
+5.	 Restless Show	07:07	 
+6.	 Everlasting Farewells	05:15	 
+7.	 The Grand Illusion	03:42	 
+8.	 Through Painful Lanes	06:13	 
+9.	 Eagle Fly Free (Helloween cover)	05:14
+10.	 Mighty Powerfool (Japanese bonus)	04:57	
+
 
 ## Отношения с другими группами
 

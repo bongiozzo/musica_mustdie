@@ -1,12 +1,87 @@
 # Oceans Of Sadness
 
-Дискография
-"Between Heaven, Earth And Beauty" 1998, Melodic Death Metal
-"For We Are" 2000, Melodic Death Metal
-"Laughing Tears * Crying Smile" 2002, Melodic Death Metal
-"Send in the Clowns" 2004, Melodic Death Metal
-"Mirror Palace" 2007, Melodic Death Metal
-"The Arrogance of Ignorance" 2008, Melodic Death Metal
+
+
+## Дискография
+
+### "Between Heaven, Earth And Beauty" 1998, Melodic Death Metal
+
+1. Forgotten Symphony II	 
+2. Together, Yet Alone	 
+3. The Last Stage	 
+4. The King Of Nevermore	 
+5. My Own Private Angel	 
+6. Candles
+
+### "For We Are" 2000, Melodic Death Metal
+
+1. As The Feast Begins	 
+2. For When You Sleep, My Love
+3. Re-Erase	
+4. A Dying Nightingale
+5. Again The W&#246;lf Wins	
+6. The Apocalypse
+7. When We Became One	 
+8. Oceans Of Sadness
+9. Your Faith	
+10. Low
+11. Judas
+
+### "Laughing Tears * Crying Smile" 2002, Melodic Death Metal
+
+1. Sinners Dream
+2. So Close
+3. One Entire Shield Of Pain
+4. From The Seed To The Flower
+5. Cold
+6. Accepting Our Weakness
+7. We Are Alone
+8. Schizophrenia
+9. Shadows
+10. Try To See
+
+### "Send in the Clowns" 2004, Melodic Death Metal
+
+1. Communication - Relation - Illusion	 
+2. Who's in Control
+3. Wild Mystery
+4. Two Voices
+5. Conflict - Error - Disillusion - Denial	 
+6. Eyes like Fire
+7. Where Oceans Begin
+8. Ode to the Past	 
+9. Precious Gold
+10. Frustration - Anger - Resignation	 
+11. See the Angels
+12. You've Slain
+13. Hope is Gone
+
+### "Mirror Palace" 2007, Melodic Death Metal
+
+1. Mould	 
+2. Mirror Palace	 
+3. Cruel Sacrifice	 
+4. Sleeping Dogs	 
+5. Intoxicate Me	 
+6. Them Bones (Alice in Chains Cover)	 
+7. Sheep And Shepherds	 
+8. Pride And Shame	 
+9. Silence Is Gold	 
+10. I Know You Know
+
+### "The Arrogance of Ignorance" 2008, Melodic Death Metal
+
+1. Roulette
+2. Between the Lines
+3. In the End	
+4. Subconscious
+5. Failure
+6. Self-fulfilling Prophecy
+7. The Weakest Link
+8. From Then On
+9. Some Things Seem So Easy
+10. Hope
+
 
 ## Отношения с другими группами
 

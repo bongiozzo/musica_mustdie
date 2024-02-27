@@ -1,9 +1,21 @@
 # Crazy Town
 
-Дискография
-"The Gift of Game" 1999, Rap Metal
-"Tales from the Darkside" 2000, Rap Metal
-"Darkhorse" 2002, Alternative
+alternative, rap-metal from L.A.
+
+## Дискография
+
+### "The Gift of Game" 1999, Rap Metal
+
+
+
+### "Tales from the Darkside" 2000, Rap Metal
+
+
+
+### "Darkhorse" 2002, Alternative
+
+
+
 
 ## Отношения с другими группами
 

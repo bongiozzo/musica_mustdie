@@ -1,9 +1,37 @@
 # Abstract Spirit
 
-Дискография
-"Liquid Dimensions Change" 2008, Doom
-"Tragedy and Weeds" 2009, Doom
-"Horror Vacui" 2011, Doom
+
+
+## Дискография
+
+### "Liquid Dimensions Change" 2008, Doom
+
+1. From Behind the Verge
+2. To Kiss the Emptiness...
+3. Ruined
+4. Sarabanda
+5. Apostasy
+6. Liquid Dimensions Change
+
+### "Tragedy and Weeds" 2009, Doom
+
+1. Tragedy and Weeds
+2. Funeral Waltz
+3. Crucifixion Without Regret
+4. Face the Nightmare
+5. Wrapped in Solitude
+6. Sepulchral Winter
+
+### "Horror Vacui" 2011, Doom
+
+1. За Пределами Сомкнутых Век
+2. Post Mortem
+3. Пульс
+4. Vigilae Mortuorum (Interludium)
+5. Без Меня... Мертвое Завтра...
+6. Атрофия Мировоззрения
+7. Horror Vacui
+
 
 ## Отношения с другими группами
 

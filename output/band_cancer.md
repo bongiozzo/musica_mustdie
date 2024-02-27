@@ -1,10 +1,97 @@
 # Cancer
 
-Дискография
-"To the Gory End" 1990, Death Metal
-"Death Shall Rise" 1991, Death Metal
-"Sins of the Mankind" 1993, Death Metal
-"Black Faith" 1995, Death Metal
+ex-Death, Obituary
+
+## Дискография
+
+### "To the Gory End" 1990, Death Metal
+
+1. Blood Bath
+2. C.F.C.(Cancer Fucking Cancer)
+3. Witchhunt
+4. Into The Acid
+5. Imminent Catastrophe
+6. To The Gory End  **
+7. Body Count
+8. Sentenced To Gallows
+9. Die,Die  *
+
+ John Walker - Vocals & Guitar
+ Ian Buchanan - Bass
+ Carl Stokes - Drums
+
+Back-Up Vocals On * By John Tardy (OBITUARY).
+Produced By Scott Burns.
+Keyboards On * & ** By Tim Lewis.
+
+(p)&(c) 1990 VINYL SOLUTION Records
+
+### "Death Shall Rise" 1991, Death Metal
+
+1. Hung,Drawn & Quartered  *
+2. Tasteless Incest
+3. Burning Casket
+4. Death Shall Rise
+5. Back From The Dead
+6. Gruesome Tasks
+7. Corpse Fire
+8. Internal Decay
+
+ John Walker - Vocals & Guitar
+ James Murphy - Guitar
+ Ian Buchanan - Bass
+ Carl Stokes - Drums
+
+Back Vocals On (*) By Glen Benton (DEICIDE).
+Produced By Scott Burns & CANCER.
+Recorded & Mixed At Morrisound Recording,Tampa,Florida.
+Mastered By Scott & Mike At The Exchange.
+
+(p)&(c) 1991 VINYL SOLUTION Records
+
+
+### "Sins of the Mankind" 1993, Death Metal
+
+1. Cloak Of Darkness
+2. E.C.T.
+3. Patchwork Destiny
+4. Meat Train
+5. Suffer For Our Sins
+6. Pasture Of Delight / At The End
+7. Tribal Bloodshed
+8. Tribal Bloodshed (Part 2)
+
+Produced By Simon Effemey.
+
+(p)&(c) 1993 VINYL SOLUTION Records
+
+
+### "Black Faith" 1995, Death Metal
+
+1. Ants (Nemesis Ride)
+2. Who Do You Think You Are
+3. Face To Face
+4. Without Cause
+5. White Desire
+6. Kill Date
+7. Temple Song
+8. Black Faith
+9. Highest Orders
+10.Space Truckin'* 
+11.I Save Me From Myself
+
+All Songs By CANCER,Except Of  * By DEEP PURPLE.
+Produced & Engineered  By Simon Effemey.
+Mixed By Sank.
+Recorded At Great Linford Studios,London.
+
+John Walker - Vocals,Guitars
+Barry Savage - Lead Guitar
+Ian Buchanan - Bass
+Carl Stokes - Drums
+
+(P)&(C) 1995 WARNER MUSIC LTD.
+
 
 ## Отношения с другими группами
 

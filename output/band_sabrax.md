@@ -1,7 +1,27 @@
 # Sabrax
 
-Дискография
-"Devilsspear" 2003, Black Metal
+
+
+## Дискография
+
+### "Devilsspear" 2003, Black Metal
+
+1.      Devilsspear
+2.      Shizoid Trance
+3.      Shadow Palace 
+4.      Seviens InterUndas Disharmonia
+5.      Furious Invasion
+6.      As the Ways are Landscapes of Black
+7.      Dark Sky Majesty*
+8.      Night Beauty*
+9.      A Journey With The Crying Shadows*
+10.    As The Ways Are Landscapes Of Black*
+11.    Intelectii Macrocosmica **
+
+
+*  from the Dark Sky Majesty Ep. 1996
+** New
+
 
 ## Отношения с другими группами
 

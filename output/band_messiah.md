@@ -1,13 +1,154 @@
 # Messiah
 
-Дискография
-"Hymn to Abramelin" 1986, Death Metal
-"Extreme Cold Weather" 1987, Death Metal
-"Psychomorphia" 1991, Death Metal
-"Choir of Horrors" 1991, Death Metal
-"Rotten Perish" 1992, Death Metal
-"Underground" 1994, Death Metal
-"The Ballad of Jesus" 1994, Death Metal
+Legend Of Europe's Death Metal, ex-Therion
+
+## Дискография
+
+### "Hymn to Abramelin" 1986, Death Metal
+
+1. Hymn To Abramelin
+2. Messiah (Extra Version)
+3. Anarchus
+4. Space Invaders
+5. Thrashing Madness
+6. Future Agressor
+7. Empire Of The Damned
+8. Total Maniac
+9. The Dentist
+
+R.K. "Tschosi" Wilhelm Kuhne - Bass,Vocals
+R.B. "Brogi" Broggi - Akustic Harmonies
+R.H. "Jazzi" Heer - Drums,Bombs
+
+Producer "Dinosaur"
+Recorded In January'86 At PSF Tonstudio,Switzerland
+Mixed In February'86 By M.Landis And Infernal
+Productions.
+
+(p)&(c) 1986 Chainsaw Murder CM001
+
+
+
+### "Extreme Cold Weather" 1987, Death Metal
+
+1. Extreme Cold Weather
+2. Enjoy Yoursef
+3. Johannes Paul Der Letzte (Dedicate In Hate To Pope John Paul II)
+4. Mother Theresa (Dedicate In Love To Mother Theresa)
+5. Hyperborea
+6. Radetzki March: We Hate To Be In The Army Now
+7. Nero
+
+R.K. "Tschosi" Wilhelm Kuhne - Bass,Vocals
+R.B. "Brogi" Broggi - Akustic Harmonies
+R.H. "Jazzi" Heer - Drums,Bombs
+
+(p)&(c) 1987 CHAINSAW MURDER Records
+
+### "Psychomorphia" 1991, Death Metal
+
+1. Birth Of A Second Individual
+2. Psychomorphia
+3. Right For Unright
+4. M.A.N.I.A.C.
+
+ Andy Kaina - Vocal
+ R.B. Broggi - Guitar
+ Patrick Hersche - Bass
+ Steve Karrer - Drums
+
+Produced By R.B. Broggi.
+Mixed By Sven Conquest.
+Recorded At Ebony Rec. Studio,
+Wohlen / Schweiz In September 1990.
+
+(p)&(c) 1991 NOISE International
+
+
+### "Choir of Horrors" 1991, Death Metal
+
+1. Choir Of Horrors
+2. Akasha Chronicle
+3. Weeping Willow
+4. Lycantropus Erectus
+5. Munchhausen Syndrom
+6. Cautio Criminals
+7. Northern Command
+8. Weena
+
+ Andy Kaina - Vocal
+ R.B. Broggi - Guitar
+ Patrick Hersche - Bass
+ Steve Karrer - Drums
+
+Produced,Engineered & Mixed By Sven Conquest.
+Recorded & Mixed At Musiclab Studio,Berlin in 1991.
+
+(p)&(c) 1991 NOISE International
+
+### "Rotten Perish" 1992, Death Metal
+
+1. Prelude: Act Of Fate
+2. For Those Who Will Fail
+3. Living With A Confidence
+4. Raped Bodies
+5. Lines Of Thought Of A Convicted Man
+6. Contrition
+7. Condemned Cell
+8. Dream Of Eschation
+9. Anorexia Nervosa
+10.Deformed Creatures
+11.Alzheimer`s Disease
+12.Ascension Of A Divine Ordinance
+
+ Andy Kaina - Vocal
+ R.B. Broggi - Guitar
+ Patrick Hersche - Bass
+ Steve Karrer - Drums
+
+Produced & Mixed By Sven Conquest.
+Recorded At Power-Play Studio,Berlin.
+Mixed At Morrisound Studio,Tampa,Florida.
+
+(p)&(c) 1992 NOISE International
+
+### "Underground" 1994, Death Metal
+
+1. Battle In The Ancient North
+2. Revelation  Of Fire
+3. Underground
+4. Epitaph
+5. The Way Of The Strong
+6. Living In A Lie
+7. Screams Of Frustration
+8. The Ballad Of Jesus
+9. Dark Lust
+10. One Thousand Pallid Deaths
+11. The End
+
+ Christopher Johnsson - Vocals
+ Remo Broggi - Six Strings
+ Oliver Koll - Four Strings
+ Steve Karrer - Drums
+
+Record & Mixed At Powerplay Studio, Berlin,March, April 1994
+Engineered & Produced By Sven Conquest For Hard Line Production
+Mixed By Sven Conquest & MESSIAH
+
+(p) 1994 MODERN MUSIC Records
+(c) 1994 DARK WINGS
+
+### "The Ballad of Jesus" 1994, Death Metal
+
+1. Metal Dance (Mix)
+2. Neverland (Mix)
+3. Kruzzi (Mix)
+4. The Ballad Of Jesus (LP - Version)
+
+Produced & Mixed By A-Team.
+
+(P)&(C) 1994 NOISE Records
+
 
 ## Отношения с другими группами
 

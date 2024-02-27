@@ -1,7 +1,21 @@
 # Subaudition
 
-Дискография
-"The Scope" 2006, Rock
+
+
+## Дискография
+
+### "The Scope" 2006, Rock
+
+Raindrops 
+The Blue Light
+No Angel
+Blinking In The Piers
+Moods Through Spirals
+A Golden Staircase
+Fractures
+Counterwise
+Godspeed
+
 
 ## Отношения с другими группами
 

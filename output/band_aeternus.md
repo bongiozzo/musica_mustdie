@@ -1,13 +1,77 @@
 # Aeternus
 
-Дискография
-"Dark Sorcery" 1995, Black Metal
-"Beyond The Wandering Moon" 1997, Black Metal
-"...And So The Night Became" 1998, Black Metal
-"Dark Sorcery" 1998, Black Metal
-"Shadows Of Old" 1999, Black Metal
-"Burning The Shroud" 2001, Black Metal
-"Ascension Of Terror" 2001, Black Metal
+
+
+## Дискография
+
+### "Dark Sorcery" 1995, Black Metal
+
+Black Dust 
+Victory 
+Raven And Blood 
+Nordlys
+
+### "Beyond The Wandering Moon" 1997, Black Metal
+
+Under The Blade Of The Dead [02:08] 
+Sworn Revenge [06:35] 
+White Realm [06:36] 
+Sentinels Of Darkness [8:54] 
+Embraced [07:18] 
+Vind [07:06] 
+Waiting For The Storms [05:57] 
+Winter Tale [08:14] 
+To Enter The Realm Of Legend [07:53] 
+Celtic Harp Solo (The Last Feast) [04:23
+
+### "...And So The Night Became" 1998, Black Metal
+
+There's No Wine Like The Bloods Crimson [13:02] 
+As I March [06:24] 
+Warrior Of The Crescent Moon [09:23] 
+Blodsverging [06:21] 
+When The Crows Shadow Falls [07:59] 
+Ild Dans [08:12] 
+...And So The Night Became [06:17] 
+Fyrndeheimen [06:00]
+
+### "Dark Sorcery" 1998, Black Metal
+
+Black Dust 
+Victory 
+Raven And Blood 
+Nordlys 
+In The Darkest Circles Of Times
+
+### "Shadows Of Old" 1999, Black Metal
+
+Under The Eternal Blackened Sky [05:03]  
+Descent To The Underworld [06:54]  
+Dark Rage [08:03] 
+Resurrection [05:41] 
+The Summoning of Shadows [06:05] 
+Death's Golden Truth Revealed [05:36] 
+Cuchulain [05:45]  
+Prophecy of the Elder Reign [07:04]  
+The Sunset's Glory [02:41]
+
+### "Burning The Shroud" 2001, Black Metal
+
+Burning The Shroud [04:17] 
+Midnatt Storm [04:10] 
+Raven And Blood (1999 version) [05:45] 
+To Enter the Realm of legend (live) [6:06] 
+When the Crows Shadow Falls (live) [5:56] 
+The Summoning of Shadows (live)[03:49] 
+Cuchulain (live) [05:44] 
+Dark rage (7" version) [06:55] 
+Fire and Wind [03:50] 
+In the Darkest Circles of Time [05:39]
+
+### "Ascension Of Terror" 2001, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

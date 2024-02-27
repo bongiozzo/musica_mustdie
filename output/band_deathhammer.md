@@ -1,9 +1,21 @@
 # Deathhammer
 
-Дискография
-"Forever Ripping Fast (EP)" 2008, Thrash
-"Phantom Knights" 2010, Thrash
-"Onward To The Pits" 2012, Thrash
+
+
+## Дискография
+
+### "Forever Ripping Fast (EP)" 2008, Thrash
+
+
+
+### "Phantom Knights" 2010, Thrash
+
+
+
+### "Onward To The Pits" 2012, Thrash
+
+
+
 
 ## Отношения с другими группами
 

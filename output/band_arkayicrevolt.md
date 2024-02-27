@@ -1,7 +1,22 @@
 # Arkayic Revolt
 
-Дискография
-"Death's River" 2010, Thrash
+
+
+## Дискография
+
+### "Death's River" 2010, Thrash
+
+1. Blood Will Follow Blood  04:05 
+2. From Hell  04:05    
+3. Cohesive Disembodiment  04:41 
+4. Operation Overlord  04:27    
+5. Feed Them Fire  03:34   
+6. Deadline  05:19    
+7. Wrath of Poseidon  03:00 
+8. Dig Your Own Grave  04:59
+9. Beware The Nothing  02:38   
+10. Death's River  04:15 
+
 
 ## Отношения с другими группами
 

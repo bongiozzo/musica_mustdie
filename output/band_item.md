@@ -1,7 +1,34 @@
 # Item
 
-Дискография
-"Outlife" 2009, Metalcore
+
+
+## Дискография
+
+### "Outlife" 2009, Metalcore
+
+01. Item #666
+02. Fade Like a Rose
+03. (Take It) All Away
+04. After the Rain Has Fallen
+05. One Moment in Time
+06. Revenge
+07. God Never Cares
+08. Eyes of the Moon
+09. Angels & Demons
+10. Meeting the God
+
+Артем 'Faust' Фаустов - гитары, вокал
+Кирилл 'Killer' Уваров - гитары
+Дмитрий 'Boroda' Старчак - бас
+Николай 'Sublimator' Рогаткин - клавишные,
+бэк-вокал
+Андрей 'Zloy' Китаев - ударные
+
+Запись: Phantom Pain Studio, Игорь Анохин
+Сведение и мастеринг: Mindcrusher Labs, Русланm Масленников
+Артворк и дизайн: Мария 'GeniuS' Суркова,
+Александра Соболева
+
 
 ## Отношения с другими группами
 

@@ -1,9 +1,41 @@
 # Trogmorton
 
-Дискография
-"The Call Of Wisdom Of The World [demo]" 2002, Black Metal
-"Igni et ferro [demo]" 2005, Black Metal
-"The Death In Anger Of Revenge" 2006, Black Metal
+Siberian Black
+
+## Дискография
+
+### "The Call Of Wisdom Of The World [demo]" 2002, Black Metal
+
+1. Intro
+2. Error In Ratione
+3. Alps
+4. Comprise Pain
+5. Hammer Of War
+6. World In Scarlet
+
+### "Igni et ferro [demo]" 2005, Black Metal
+
+1. Ab Initio Silentium
+2.Lost In Resident Of Shadows
+3.Saga About Fallen Legion
+4. In Despair
+5.Per Aspera Ad Astra
+6.Grolund
+7.Father Of Castle
+8.Pereat Mundus Et Fiat Justitia
+9.Ending
+
+### "The Death In Anger Of Revenge" 2006, Black Metal
+
+1.Exorcism
+2.The Days Of The Srife At The Superstitius Time
+3.Errata In Ratione
+4.Doomed On Success
+5.Camp Of Rebels
+6.The Field Of Battle Is Filled By Blood
+7.Sezar Vs Dreadhold (Dreadhold's Death)
+8.Tandem Triumfans
+
 
 ## Отношения с другими группами
 

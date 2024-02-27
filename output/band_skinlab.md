@@ -1,9 +1,50 @@
 # Skinlab
 
-Дискография
-"Bound, Gagged and Blindfolded" 1997, Alternative
-"Disembody: The New Flesh" 1999, Hardcore
-"Revolting Room" 2002, Hardcore
+
+
+## Дискография
+
+### "Bound, Gagged and Blindfolded" 1997, Alternative
+
+1 When Pain Comes to Surface 4:31 (Skinlab) 
+2 Dissolve 3:50 (Skinlab) 
+3 Race of Hate 5:11 (Skinlab) 
+4 Paleface 4:24 (Skinlab) 
+5 Down 4:09 (Skinlab) 
+6 Promised 6:43 (Skinlab) 
+7 Stumble 4:08 (Skinlab) 
+8 Art of Suffering 5:03 (Skinlab) 
+9 Ten Seconds 4:53 (Skinlab) 
+
+
+### "Disembody: The New Flesh" 1999, Hardcore
+
+1 So Far From The Truth (Skinlab) 
+2 Know Your Enemies (Skinlab) 
+3 No Sympathy (For the Devil) (Skinlab) 
+4 Seapegoat (Skinlab) 
+5 Breathe (Skinlab) 
+6 I Name My Pain (Skinlab) 
+7 Excellerate (Skinlab) 
+8 Coward (Skinlab) 
+9 Second Skin (New Flesh) (Skinlab) 
+10 Looks Can Be Deceiving (Skinlab) 
+
+
+### "Revolting Room" 2002, Hardcore
+
+                  01. Intro
+                  02. Come Get It
+                  03. Slave The Way
+                  04. Purify
+                  05. Anthem For A Falling Star
+                  06. Disturbing The Art Of Expression
+                  07. Take As Needed
+                  08. Jesus Sells
+                  09. Never Give In
+                  10. One Of Us 
+
+
 
 ## Отношения с другими группами
 

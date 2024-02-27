@@ -1,7 +1,22 @@
 # Asrai
 
-Дискография
-"Touch In The Dark" 2004, Gothic
+
+
+## Дискография
+
+### "Touch In The Dark" 2004, Gothic
+
+1. In Front Of Me 
+2. Pale Light 
+3. Whisper 
+4. Restless 
+5. Touch In The Dark 
+6. Tower 
+7. Dream 
+8. Child 
+9. Garden 
+10. Shadows
+
 
 ## Отношения с другими группами
 

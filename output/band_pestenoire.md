@@ -1,12 +1,33 @@
 # Peste Noire
 
-Дискография
-"La Sanie des siecles - Panegyrique de la degenerescence" 2006, Black Metal
-"Folkfuck folie" 2007, Black Metal
-"Ballade cuntre lo Anemi francor" 2009, Black Metal
-"L'ordure а l'йtat pur" 2011, Black Metal
-"Peste Noire" 2013, Black Metal
-"La Chaise-Dyable" 2015, Black Metal
+
+
+## Дискография
+
+### "La Sanie des siecles - Panegyrique de la degenerescence" 2006, Black Metal
+
+
+
+### "Folkfuck folie" 2007, Black Metal
+
+
+
+### "Ballade cuntre lo Anemi francor" 2009, Black Metal
+
+
+
+### "L'ordure а l'йtat pur" 2011, Black Metal
+
+
+
+### "Peste Noire" 2013, Black Metal
+
+
+
+### "La Chaise-Dyable" 2015, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

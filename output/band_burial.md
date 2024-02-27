@@ -1,7 +1,32 @@
 # Burial
 
-Дискография
-"Relinquished Souls" 1994, Death Metal
+
+
+## Дискография
+
+### "Relinquished Souls" 1994, Death Metal
+
+1. The Second Coming
+2. Failure Of Technology
+3. Traumatized
+4. No Existence
+5. Abhorence Within
+6. Frigid Cold
+7. Inner Hostility
+8. Untimely Demise
+9. Pitiful God
+
+ Stefan Verdoorn - Vocals/guitar
+ Peter Dees - Guitar
+ Erwin Van Dorssflaer - Drums
+ Cyrille Dhaennr - Drums
+
+All songs & lurics written by BURIAL - Peter Dees
+Produced by Andy Classen
+Recorded  & mixed by Andy Classen & BURIAL at Stage 1 Studio, Buhne,Germany
+
+(p)(c) 1994 WEST VIRGINIA Records
+
 
 ## Отношения с другими группами
 

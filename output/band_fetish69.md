@@ -1,7 +1,26 @@
 # Fetish 69
 
-Дискография
-"Antibody" 1993, Industrial
+
+
+## Дискография
+
+### "Antibody" 1993, Industrial
+
+1. Hyperventilator
+2. Versus Nature
+3. Pig Blood !
+4. Stomachturner
+5. Being Boiled
+6. Wrecked Joe
+7. Fireworks
+8. No Nothing
+9. Antibody
+10.Hog Ditch
+
+All Songs Written By FETISH 69.
+
+(p)&(c) 1993 NUCLEAR BLAST Records
+
 
 ## Отношения с другими группами
 

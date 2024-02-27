@@ -1,15 +1,168 @@
 # Lord Belial
 
-Дискография
-"Kiss The Goat" 1995, Black Metal
-"Enter the moonlight gate" 1997, Black Metal
-"Unholy Crusade" 1999, Black Metal
-"Angelgrinder" 2002, Black Metal
-"Scythe of death (mini-CD)" 2003, Black Metal
-"The Seal Of Belial" 2004, Black Metal
-"Nocturnal Beast" 2005, Black Metal
-"Revelation" 2007, Black Metal
-"The Black Curse" 2008, Black Metal
+
+
+## Дискография
+
+### "Kiss The Goat" 1995, Black Metal
+
+1. Hymn Of The Ancient Misanthropic Spirit Of The Forest
+2. Satan Divine
+3. Grace Of God
+4. The Ancient Slumber
+5. Into The Frozen Shadows
+6. The Art Of Dying
+7. Osculum Obscenum
+8. Mysterious Kingdom
+9. In The Light Of The Fullmoon
+10. Lilith - Demonic Queen Of The Black Light
+
+ Dark - Vocals, Guitars
+ Vassago - Guitars, Vocals
+ Bloodlord - Bass
+ Sin - Drums
+ Lilith - Flute
+
+All Songs Written By LORD BELIAL
+Produced By Deniel Bergstrand & LORD BELIAL At Soundfront Studios, November 1994
+
+(p)&(c) 1995 NO FASHION Records
+
+### "Enter the moonlight gate" 1997, Black Metal
+
+1. Enter the moonlight gate
+2. Unholy spell of Lilith
+3. Path with endless horizons
+4. Lamia
+5. Black winter blood-bath
+6. Forlorn in silence
+7. Belial- Northern prince of evil
+8. Realm of a thousand burning souls (part I)
+
+### "Unholy Crusade" 1999, Black Metal
+
+1. Summon the legions
+2. Unholy Crusade
+3. War of hate
+4. Lord of evil spirit
+5. Death is the gate-mors iannua vitae
+6. Bleed on the cross (re-recorded)
+7. Divide et impera
+8. Master of destruction
+9. Night divine
+10. And heaven eternally burns (Realm..... Part II)
+
+### "Angelgrinder" 2002, Black Metal
+
+1. Dominus bellum [Intro] 00:48  
+2. Angelgrinder 05:36 
+3. Satan Divine 04:00 
+4. Burn the Kingdom of Christ 03:55 
+5. Unrelenting scourge of War 08:33 
+6. Wrath of the Antichrist Horde 03:03  
+7. Ungodly Passage 03:45
+8. Kingdom of Infinte Grief 05:11 
+9. Odium vincit omnia [Outro] 02:47
+
+### "Scythe of death (mini-CD)" 2003, Black Metal
+
+1. Scythe of death.
+2. Black void.
+3. Possessed by fire.
+4. Purify Sweden (Bonus track)
+
+Recorded at Los Angered Recordings july 2002. 
+Engineered by Andy LaRoque.
+Produced by Micke Backelin, Thomas Backelin & Andy LaRoque. 
+Cover art by Kristoffer 'Razorback' Frisk.
+Cover layout by Micke Backelin.
+
+© 2003 Lord Belial & Metal Fortress Ent
+
+### "The Seal Of Belial" 2004, Black Metal
+
+1. Prolusio: Acies Sigillum 03:18
+2. Sons Of Belial 06:30 
+3. Chariot Of Fire 05:12
+4. Abysmal Hate 06:38 
+5. Legio Inferi 05:50  
+6. Mark Of The Beast 06:36 
+7. Armageddon Revelation 06:13 
+8. Scythe Of Death 07:26 
+
+
+
+Lineup:
+Thomas Backelin: vocals, rhythm, acoustic & lead guitars.
+Hjalmar Nielsen: lead guitar.
+Anders Backelin: bass guitar.
+Micke Backelin: drums.
+
+Session musicians:
+Fredrik Wester: Lead guitar.
+Marielle Andersson: Vocals.
+
+Additional keyboards & effects by Thomas Backelin.
+Shriek of wrath on "Prolusio: Acies Sigillum" by Duncan Schouten.
+Guest appearance by Andy La Rocque with guitar solos in "Armageddon Revelation"
+and "Scythe of Death".
+
+Drums on this recording by Daniel Moilanen.
+
+Recorded, mixed and mastered in 20 days between August 4th and January 16th
+2003.
+
+Produced by Andy La Rocque & Thomas Backelin.
+Engineered by Andy La Rocque & Niclas 'Terror' Rudolfsson.
+All music /lyrics written & arranged by Thomas Backelin, performed by Lord
+Belial exclusively.
+
+Cover art and layout by Marcelo HVC at Obscura Victoria Art Design.
+
+The song "Scythe of Death" has been re-recorded for this album. It was
+originally released on the "Scythe of Death" MCD.
+
+### "Nocturnal Beast" 2005, Black Metal
+
+1. Invocation of the 78th Demon (Intro) 01:15  
+2. Succubi Infernal 03:50  
+3. Demonic Possession 04:42  
+4. Desolate Passage 04:07  
+5. Nocturnus 05:15  
+6. Insufferable Rituals 04:55  
+7. Monarchy of Death 04:45  
+8. Fleshbound 04:00  
+9. Spiritual Damnation 04:09  
+10. Indoctrination of human sorrow 04:40  
+11. Deathmarch (Outro) 02:03
+
+### "Revelation" 2007, Black Metal
+
+1. 7th Seal 00:46  
+2. Ancient Splendor 03:13  
+3. Aghast 03:52  
+4. Death As Solution 04:05  
+5. Unspoken Veneration 03:47  
+6. Death Cult Era 03:51  
+7. Vile Intervension 05:22  
+8. Gateway To Oblivion 04:21  
+9. Unholy War 05:00  
+10. Black Wings Of Death 05:04  
+11. Grievance 03:01
+
+### "The Black Curse" 2008, Black Metal
+
+1. Pazuzu - Lord of Fevers and Plague 03:49
+2. Trumpets of Doom 05:10
+3. Sworn 04:18
+4. Inexorable Retribution 04:46
+5. Antichrist Reborn 05:16
+6. Primordial Incantation 06:08
+7. Devilish Enlightenment 05:26
+8. Ascension of Lilith 07:11
+9. Unorthodox Catharsis 05:30
+10. Soul Gate 
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,36 @@
 # Violent Omen
 
-Дискография
-"Infernal Express" 2010, Thrash
-"Lunatic's Revenge" 2011, Thrash
+
+
+## Дискография
+
+### "Infernal Express" 2010, Thrash
+
+1. Intro	01:42	 
+2. Follow Us	04:36	 
+3. Rude Awakening	04:36	 
+4. Cold	01:46	 
+5. Out of Mind	04:23	 
+6. Waste of Flesh	03:55	 
+7. Tormentor (Kreator cover)	02:40	 
+8. Violent Omen (Tribute to Bal-a-Myth)	08:08	 
+9. We Have Arrived (Dark Angel cover)
+
+### "Lunatic's Revenge" 2011, Thrash
+
+1. Bomba del Fuego (Intro)	02:11	 
+2. Omnipresent Beast	03:51	 
+3. Gravestone Face	04:13	 
+4. Doomed Masquerade	04:01	 
+5. Marathon of Madness	03:55	 
+6. Lunatic`s Revenge	04:33
+7. In the Last Moment	05:15	 
+8. Underworld Message	04:40	 
+9. Crossline Flags	04:02	 
+10. Symptom of The Universe (Black Sabbath cover)	04:54	 
+11. Zombie Ritual (Bonus Track, Death cover)	04:14	 
+12. *Waste of Flesh (feat. Faunus) (Bonus Track)
+
 
 ## Отношения с другими группами
 

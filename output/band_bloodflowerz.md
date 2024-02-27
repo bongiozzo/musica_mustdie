@@ -1,8 +1,52 @@
 # Bloodflowerz
 
-Дискография
-"Diabolic Angel" 2002, Alternative
-"7 Benedictions - 7 Maledictions" 2003, Alternative
+
+
+## Дискография
+
+### "Diabolic Angel" 2002, Alternative
+
+1. fatal kiss
+2. diabolic angel
+3. lovesick
+4. one second
+5. ablaze
+6. sadness
+7. mea culpa
+8. tears of the night
+9. cold rain
+10. season of love
+
+- recorded and produced at t.o.s.-studio by roger grueninger
+- mastered at church mastering by ulli friedel
+- cover artwork by timo wuerz
+
+### "7 Benedictions - 7 Maledictions" 2003, Alternative
+
+01. Wild Heart
+02. Black Snake Sister
+03. Dorian
+04. Raise The Dawn
+05. Till The End
+06. Too Much
+07. False Gods
+08. My Treasure
+09. Fire In Paradise
+10. Last Exit
+11. Heart Of Stone
+12. Unperfectly Perfect
+13. She Knows Why
+14. The Death Of Souls
+
+Kirsten Zahn - vocals
+Markus Visser - guitar
+Jojo Schulz - bass
+Tun Schwarz - drums
+
+Produced by Siggi Bemm.
+Recorded at Woodhouse Studios.
+Pictures by Alex Kuchr.
+
 
 ## Отношения с другими группами
 

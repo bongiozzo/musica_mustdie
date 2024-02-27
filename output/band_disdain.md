@@ -1,7 +1,22 @@
 # Disdain
 
-Дискография
-"Leave This World" 2010, Power Metal
+
+
+## Дискография
+
+### "Leave This World" 2010, Power Metal
+
+1. Leave this World	 
+2. Rising	 
+3. You and I	 
+4. Memories	 
+5. Scarred	 
+6. The Black Hour	 
+7. Narrow Minded	 
+8. Nine Lives Spent	 
+9. Leaping Cat	 
+10. Revelation
+
 
 ## Отношения с другими группами
 

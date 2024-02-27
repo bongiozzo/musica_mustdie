@@ -1,8 +1,24 @@
 # Sathanas
 
-Дискография
-"Jaws of Satan" 2001, Thrash
-"Cruentus Diabolos" 2002, Thrash
+
+
+## Дискография
+
+### "Jaws of Satan" 2001, Thrash
+
+This release contains Rare Sathanas and Bathym demos, rehearsals, live tracks. Also a cover song from Slaughter!
+
+### "Cruentus Diabolos" 2002, Thrash
+
+1. Cruentus Diabolos
+2. Storming The Angelic
+3. Ascending To Nirvana
+4. Forever In Flames
+5. Blood Of Christ 
+ 
+ 
+
+
 
 ## Отношения с другими группами
 

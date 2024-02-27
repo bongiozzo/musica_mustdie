@@ -1,8 +1,66 @@
 # Goathemy
 
-Дискография
-"Frostland" 2006, Black Metal
-"Torn" 2008, Black Metal
+
+
+## Дискография
+
+### "Frostland" 2006, Black Metal
+
+1. New Era of Disgust 05:12
+2. Cursing the Venomous Waters 03:20
+3. My Demons 04:34
+4. Sweet Purgatory 04:15
+5. Rebellion Morningstar 04:29
+6. Frostland 05:08
+7. Opus Funerale 06:32
+8. Hands of Immorality 04:03
+9. Cold Sky Promise 04:57 
+
+Recorded & Mixed at: Pop-Artikkeli Studio / Finland by Kari Lavila in separate
+sessions between December 2004 and July 2005
+Produced by Matti Еgren and Goathemy
+Mastered by Sami Koivisto
+Cover & artwork by H. Ruohoniemi
+Band photos by A. Vдliniemi
+Nature photos by Sons of Goathemy
+Logo by Jukka Siikala
+
+Music by: H. Ruohoniemi & J. Ruohoniemi & P-P Puska
+Lyrics by: H. Ruohoniemi, except 4 & 8 (P-P Puska) & 9
+(H.Ruohoniemi/T.Ruohoniemi)
+Special guests: Tin pipe on track 9 by Sanna Еgren, march drum on track 9 by
+Matti Еgren.
+
+Line-up:
+Hannu Ruohoniemi (aka Goath) - Vocals & Guitars
+Tomi Tupiini (aka Bargor) - Bass
+Janne Ruohoniemi (aka Mr.Thing) - Guitars & Acoustic parts
+Pasi-Pekka Puska (aka Ghost) - Drums
+Teija Ruohoniemi (aka Dark) - Female Vocals 
+
+### "Torn" 2008, Black Metal
+
+1. The Wanderer   
+2. Tribe   
+3. Void of Crown   
+4. The Blind Almighty   
+5. Vicious Woman   
+6. Liars to the Cross   
+7. Dead Man’s Ashes   
+8. Under the Capricornus   
+9. Origin of Storm   
+10. Torn 
+
+"Torn" was recorded and mastered at the end of 2007 and was at first also
+scheduled to be released at that time but was delayed because the band didn't
+get a distibution deal outside of Finland.
+
+Recorded at Pop-Artikkeli Studios.
+Produced by Goathemy.
+Engineered by Kari Lavila & Jari Prinkkilд.
+Mixed by Janne Ruohoniemi.
+Mastered at Studio57 by Pasi Kauppinen. 
+
 
 ## Отношения с другими группами
 

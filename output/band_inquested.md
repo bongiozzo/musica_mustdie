@@ -1,7 +1,21 @@
 # Inquested
 
-Дискография
-"The Red Chambers" 2008, Thrash
+
+
+## Дискография
+
+### "The Red Chambers" 2008, Thrash
+
+1. Casualty and the twisted 05:02  
+2. Eliminate 04:58  
+3. Hollow Sleeper 08:08  
+4. Headless 03:53  
+5. Scarfaced 05:15  
+6. The underworld 06:17  
+7. Human Failure 04:56  
+8. Revenatio 01:20  
+9. Ghost of existence 05:11 
+
 
 ## Отношения с другими группами
 

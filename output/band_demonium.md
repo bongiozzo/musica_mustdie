@@ -1,7 +1,27 @@
 # Demonium
 
-Дискография
-"Nothing Is Truth Everything Is Allowed" 2009, Death Metal
+
+
+## Дискография
+
+### "Nothing Is Truth Everything Is Allowed" 2009, Death Metal
+
+1. Amdusias Voice
+2. Lycanthropy
+3. Revenge
+4. God-Guard of Puppets
+5. The War of Heaven and Hell
+6. Leprosy
+7. Vicarius Filii Dei
+8. Nine Angels Choirs
+
+Bonus from EP "Mark Of Chaos" (2008)
+9. From Ashes To Fire From Wather To Ice
+10. Power Of Spirit
+11. Sinful Flesh
+
+Recorded, Mixed and Mastered at Blacklight Studio, Kiev, Ukraine in February 2008 by Shaddar (SEMARGL)
+
 
 ## Отношения с другими группами
 

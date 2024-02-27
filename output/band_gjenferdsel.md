@@ -1,7 +1,28 @@
 # Gjenferdsel
 
-Дискография
-"I" 2006, Black Metal
+
+
+## Дискография
+
+### "I" 2006, Black Metal
+
+01. Inntog
+02. Svik
+03. Deathbound
+04. Stolthet
+05. Bak Skoddelagte Fjell
+06. Dцdshymne
+07. Chapter II
+08. Thurs
+
+Iudex – Vocals, guitars
+Invictus – Drums
+Infestus – Session/live bass, growling
+
+Recorded in Space Valley Studio by H. Ramseth & K. Skеrholen
+Mixed by H. Ramseth, K. Skеrholen & Iudex
+Mastered at MLP by N.H. Mжhlum
+
 
 ## Отношения с другими группами
 

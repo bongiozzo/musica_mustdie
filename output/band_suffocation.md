@@ -1,16 +1,173 @@
 # Suffocation
 
-Дискография
-"Effigy of the Forgotten" 1991, Death Metal
-"Human Waste (EP)" 1991, Death Metal
-"Breeding the Spawn" 1993, Death Metal
-"Pierced from Within" 1995, Death Metal
-"Despise the Sun (EP)" 1998, Death Metal
-"Souls to Deny" 2004, Death Metal
-"Suffocation" 2006, Death Metal
-"Blood Oath" 2009, Death Metal
-"Pinnacle Of Bedlam" 2013, Death Metal
-"...Of The Dark Light" 2017, Death Metal
+Legend of brutal death metal
+
+## Дискография
+
+### "Effigy of the Forgotten" 1991, Death Metal
+
+1. Liege Of Inveracity
+2. Effigy Of The Forgotten
+3. Infecting The Crypts
+4. Seeds Of Suffering
+5. Habitual Infame
+6. Reincremation* 
+7. Mass Obliteration*
+8. Involuntary Slaughter
+9. Jesus Wept
+
+ Frank Mullen - Vocals
+ Terrance Hobbs - Guitar
+ Doug Gerrito - Guitar
+ Josh Baronh - Bass
+ Mike Smith - Drums
+
+Produced By Scott Burns & SUFFOCATION.
+Engineered & Mixed By Scott Burns.
+Mastered By Eddy Schreyer At Future Disc,
+Hollywood,CA.
+Back-Up Vocals On * By George "Corpsegrinder"
+Of MONSTROSITY.
+
+(p) 1991 THE ALL BLACKS B.V.
+(c) 1991 THE ALL BLACKS B.V./ ROADRUNNER
+
+### "Human Waste (EP)" 1991, Death Metal
+
+1. Infecting The Crypts
+2. Synthetically Revived
+3. Mass Obliteration
+4. Catatonia
+5. Jesus Wept
+6. Human Waste
+
+(p)&(c) 1991 NUCLEAR BLAST Records
+
+### "Breeding the Spawn" 1993, Death Metal
+
+1. Beginning Of Sorrow
+2. Breeding The Spawn
+3. Epitaph Of The Credulous
+4. Marital Decimation
+5. Prelude To Repulsion
+6. Anomalistic Offerings
+7. Ornaments Of Decrepanoy
+8. Ignorant Deprivation
+
+ Frank Mullen  - Vocals
+ Terrance Hobbs - Guitar
+ Doug Gerrito - Guitar
+ Chris Richards - Bass
+ Mike Smith - Drums
+
+Produced By Paul Bagin & SUFFOCATION.
+Engineered & Mixed By Paul Bagin.
+Recorded & Mixed At Noise Lab.,
+West Islip, NY.
+
+(p)(c) 1993 ROADRUNNER Productions B.V.
+
+### "Pierced from Within" 1995, Death Metal
+
+1. Pierced From Within
+2. Thrones Of Blood
+3. Depths Of Depravity
+4. Suspended In Tribulation
+5. Torn Into Enthrallment
+6. The Invoking
+7. Synthetically Revived
+8. Brood Of Hatred
+9. Breeding The Spawn (New Version)
+
+Frank Mullen - Vocals
+Terrance Hobbs - Guitars
+Doug Cerrito - Guitars
+Chris Richards - Bass
+Doug - Drums
+
+All Songs Written By SUFFOCATION
+Produced & Engineered By Scott Burns
+Recorded & Mixed At Morrisound Recording, Tampa, Florida
+
+(p)(c) 1995 ROADRUNNER Records
+
+### "Despise the Sun (EP)" 1998, Death Metal
+
+
+
+### "Souls to Deny" 2004, Death Metal
+
+01. Souls to Deny
+02. Deceit
+03. Subconsciously Enslaved
+04. Surgery of Impalement
+05. Tomes of Atrimony
+06. Immortally Condemned
+07. Demise of the Clone
+08. To Weep Once More
+
+### "Suffocation" 2006, Death Metal
+
+01- Oblivion
+02 - Abomination Reborn
+03 - Redemption
+04 - Bind Torture Kill
+05 - Misconcieved
+06 - Translucent Patterns Of Delirium
+07 - Creed Of The Infidel
+08 - Regret
+09 - Entrails Of You
+10 - The End Of Ends
+11 - Prelude To Repulsion
+
+Suffocation is
+Frank - voice
+Terrance - guitars
+Guy - guitars
+Derek - bass
+Mike - drums
+
+### "Blood Oath" 2009, Death Metal
+
+1. Blood Oath 03:56  
+2. Dismal Dream 03:18  
+3. Pray for Forgivness 03:41  
+4. Images of Purgatory 03:28  
+5. Cataclysmic Purification 04:52 
+6. Mental Hemorrhage 03:56  
+7. Come Hell or High Priest 04:08  
+8. Undeserving 04:11  
+9. Provoking the Disturbed 05:19  
+10. Marital Decimation 04:02 
+
+
+The album was engineered by Joe Cincotta and the band and was mixed by Zack
+Ohren. The cover artwork was designed by Jon Zig.
+
+Their will be three different formats for the album : standard release, special
+edition and iTunes one. The regular edition is listed below but the North
+American version will have two bonus tracks :
+11. Pray For Forgiveness (Instrumental version)
+12. Dismal Dream (Rough mix un-mastered)
+
+The limited edition will have two other bonus tracks and : a red jewel case,
+ltd ed. shirt, trading cards (featuring all 5 members), poster autographed by
+the band, exclusive red Suffocation bag to house all of these items.
+11. Blood Oath (Instrumental version)
+12. Cataclysmic Purification (Rough mix un-mastered)
+
+iTunes version will have two other bonus tracks as well :
+11. Undeserving (Rough mix un-mastered)
+12. Marital Decimation (Instrumental version) 
+
+### "Pinnacle Of Bedlam" 2013, Death Metal
+
+
+
+### "...Of The Dark Light" 2017, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

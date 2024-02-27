@@ -1,22 +1,88 @@
 # Acid Drinkers
 
-Дискография
-"Are You A Rebel?" 1990, Thrash
-"Dirty Money, Dirty Tricks" 1991, Thrash
-"Strip Tease" 1992, Thrash
-"Vile Vicious Vision" 1993, Thrash
-"Fishdick" 1994, Thrash
-"Infernal Connection" 1994, Thrash
-"The State Of Mind Report" 1996, Thrash
-"High Proof Cosmic Milk" 1998, Thrash
-"Varran Strikes Back - Alive!" 1998, Thrash
-"Amazing Atomic Activity" 1999, Thrash
-"Broken Head" 2000, Thrash
-"Acidofilia" 2002, Thrash
-"Maximum Overload (Best Of)" 2002, Thrash
-"Rock Is Not Enough..." 2004, Thrash
-"Verses Of Steel" 2008, Thrash
-"Fishdick Zwei - The Dick Is Rising Again " 2010, Thrash
+
+
+## Дискография
+
+### "Are You A Rebel?" 1990, Thrash
+
+
+
+### "Dirty Money, Dirty Tricks" 1991, Thrash
+
+
+
+### "Strip Tease" 1992, Thrash
+
+
+
+### "Vile Vicious Vision" 1993, Thrash
+
+
+
+### "Fishdick" 1994, Thrash
+
+
+
+### "Infernal Connection" 1994, Thrash
+
+
+
+### "The State Of Mind Report" 1996, Thrash
+
+
+
+### "High Proof Cosmic Milk" 1998, Thrash
+
+
+
+### "Varran Strikes Back - Alive!" 1998, Thrash
+
+
+
+### "Amazing Atomic Activity" 1999, Thrash
+
+
+
+### "Broken Head" 2000, Thrash
+
+
+
+### "Acidofilia" 2002, Thrash
+
+
+
+### "Maximum Overload (Best Of)" 2002, Thrash
+
+
+
+### "Rock Is Not Enough..." 2004, Thrash
+
+
+
+### "Verses Of Steel" 2008, Thrash
+
+
+
+### "Fishdick Zwei - The Dick Is Rising Again " 2010, Thrash
+
+1. Ring of Fire (Johnny Cash cover) 02:22 [view lyrics] 
+2. Hit The Road Jack (Ray Charles cover) 02:27  
+3. Losfer Words [Big 'Orra] (Iron Maiden cover) 00:25  
+4. Love Shack (The B52's cover) 04:45  
+5. New York, New York (Frank Sinatra cover) 03:17  
+6. Bring It On Home (Led Zeppelin cover) 02:56  
+7. Hot Stuff (Donna Summer cover) 03:38  
+8. Et si tu n'existais pas (Joe Dassin cover) 03:47  
+9. 2000 Man (The Rolling Stones cover) 04:25  
+10. Bad Reputation (Thin Lizzy Cover) 02:47  
+11. Seasons in the Abyss (Slayer cover) 04:02  
+12. Blood Sugar Sex Magic (Red Hot Chili Peppers cover) 04:23  
+13. Nothing Else Matters (Metallica cover) 05:33  
+14. Detroit Rock City (Kiss cover) 00:51  
+15. Make No Mistake (Keith Richards Cover) 04:33  
+16. Fluff (Black Sabbath cover) 01:52 
+
 
 ## Отношения с другими группами
 

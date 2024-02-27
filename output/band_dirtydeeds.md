@@ -1,8 +1,38 @@
 # Dirty Deeds
 
-Дискография
-"Real World" 1999, Heavy Metal
-"Danger of Infection" 2000, Heavy Metal
+
+
+## Дискография
+
+### "Real World" 1999, Heavy Metal
+
+  1.   Welcome to the Real World (Franklin/Newton) - 5:33 
+  2.   Kill the Pain (Franklin/Newton) - 5:00 
+  3.   Long Way Down (Fitzgibbon/Franklin/Newton) - 5:22 
+  4.   Nightmare (Cavill/Fitzgibbon/Franklin/Newton) - 5:09 
+  5.   Telepathy (Fitzgibbon/Franklin/Newton) - 5:06 
+  6.   Hell on Earth (Cavill/Fitzgibbon/Franklin/Newton) - 5:16 
+  7.   Killing Time (Franklin/Newton) - 4:48 
+  8.   Judgement Day (Franklin) - 5:06 
+  9.   Cyberbabe (Franklin/Newton) - 4:41 
+  10.   Never Give In (Cavill/Fitzgibbon/Franklin/Newton) - 4:56 
+
+
+### "Danger of Infection" 2000, Heavy Metal
+
+  1.   Nothing to Lose (Franklin/Newton) - 3:25 
+  2.   Cry Out (Franklin/Newton) - 4:33 
+  3.   Dividing Line (Franklin/Newton) - 6:46 
+  4.   Too Scared to Run (Franklin/Newton) - 4:16 
+  5.   Promise (Fitzgibbon/Franklin/Newton) - 6:27 
+  6.   In the Name of the Law (Franklin/Newton) - 4:04 
+  7.   Call of the Wild (Fitzgibbon/Franklin/Newton) - 6:04 
+  8.   I Am the One (Franklin/Newton) - 4:45 
+  9.   I'm No Angel (Fitzgibbon/Franklin/Newton) - 5:25 
+  10.   Facing the Emeny (Franklin/Newton) - 4:59 
+  11.   Ruled by the Gun (Franklin/Newton) - 5:22 
+
+
 
 ## Отношения с другими группами
 

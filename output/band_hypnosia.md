@@ -1,7 +1,28 @@
 # Hypnosia
 
-Дискография
-"Extreme Hatred" 2000, Thrash
+
+
+## Дискография
+
+### "Extreme Hatred" 2000, Thrash
+
+01.Extreme Hatred; 
+02.Circle Of The Flesh; 
+03.The Last Remains; 
+04.Operation Clean-Sweep; 
+05.Comatose; 
+06. Act Of Lunacy; 
+07.Gates Of Cirith Ungol; 
+08.Hang 'Em High; 
+09. Traumatic Suffering
+
+Recorded at: Euphony Studios, Vaxjo, Sweden, January 22 - February 7, 2000 Produced, engineered and mixed by: Jonas Sundberg, M. "Slask" Werdenskog with Castervall Mixed: March 8 - 11, 2000 Mastered by: Essers Audio Tools, Holland Artwork by: Kris Verwimp 
+
+Cab Castervall (lead / rhythm guitar & vocals)
+Mike Sjostrand (drums)
+Hampus Klang (lead / accoustic guitar & bass guitar)
+Session Zcreamer: Slask (Backing vocals)
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,35 @@
 # Living Sorrow
 
-Дискография
-"Red Morning Sky" 1996, Death Doom
+
+
+## Дискография
+
+### "Red Morning Sky" 1996, Death Doom
+
+1. Destroy My Fear (4.45)
+2. Daily Lies (5.36)
+3. Materialized (3.40)
+4. Where No One Cry (3.58)
+5. A Look In The Mirror (5.28)
+6. Red Morning Sky (2.38)
+7. Contrary To Sun (5.17)
+8. Forbidden Dreams (11.49)
+[9]. The Days In September (5.04)
+[10].Frozen Fire (4.51)
+
+[9]-[10] - Ha cтopoнe B
+
+All songs written by LIVING SORROW.
+Produced and mixed by Gregor Buhle and LIVING SORROW.
+Recorded and mixed at Sadotech Tonstudios, Iserlohn.
+
+Rene Rose - Vocals, Bass
+Michael Radiseh - Guitar
+Mike Weidner - Keyboard
+Andreas Neumann - Drums
+
+(p)(c) 1996 ACTIVE Records
+
 
 ## Отношения с другими группами
 

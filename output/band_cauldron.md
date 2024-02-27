@@ -1,9 +1,21 @@
 # Cauldron
 
-Дискография
-"Chained To The Nite" 2009, Heavy Metal
-"Burning Fortune" 2011, Heavy Metal
-"Tomorrow's Lost" 2012, Heavy Metal
+
+
+## Дискография
+
+### "Chained To The Nite" 2009, Heavy Metal
+
+
+
+### "Burning Fortune" 2011, Heavy Metal
+
+
+
+### "Tomorrow's Lost" 2012, Heavy Metal
+
+
+
 
 ## Отношения с другими группами
 

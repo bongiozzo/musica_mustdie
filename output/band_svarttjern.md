@@ -1,8 +1,32 @@
 # Svarttjern
 
-Дискография
-"Misanthropic Path of Madness" 2009, Black Metal
-"Towards the Ultimate" 2011, Black Metal
+
+
+## Дискография
+
+### "Misanthropic Path of Madness" 2009, Black Metal
+
+1. Code Human  04:21   
+2. Ancient Shadows Revelation  04:11  
+3. Upon Human Ending  03:48 
+4. Stillborn Acolyte  03:22  
+5. Misanthropic Path of Madness  03:47  
+6. Finally the World Shall Shape  03:37   
+7. Passions of 7  03:55 
+8. Aere fra det Indre  04:45 
+
+### "Towards the Ultimate" 2011, Black Metal
+
+1.	 Breathing Soil	05:36
+2.	 Hellig Jord	04:34
+3.	 Superior Growth	05:12
+4.	 Aroused Self-Extinction	04:25	 
+5.	 I AM the Path Part II	04:39	 
+6.	 Desolate Predictions	03:57	 
+7.	 Unmasked Violation of Life	04:43	 
+8.	 Through Madness and Sanity I AM	03:31	 
+9.	 For What Blooms Without Lust	04:38
+
 
 ## Отношения с другими группами
 

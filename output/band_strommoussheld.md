@@ -1,8 +1,21 @@
 # Strommoussheld
 
-Дискография
-"Behind the Curtain" 2003, Gothic
-"Halfdecadance EP" 2004, Gothic
+
+
+## Дискография
+
+### "Behind the Curtain" 2003, Gothic
+
+
+
+### "Halfdecadance EP" 2004, Gothic
+
+01. "Larva and butterfly" 
+02. "Enceladus" 
+03. "DECEPTION" 
+04. "Era depression" 
+05. "Mezzanine"
+
 
 ## Отношения с другими группами
 

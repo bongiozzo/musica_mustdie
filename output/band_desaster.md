@@ -1,13 +1,101 @@
 # Desaster
 
-Дискография
-"A Touch of Medieval Darkness" 1996, Black Metal
-"Hellfire's Dominion" 1998, Black Metal
-"Tyrants of the Netherworld" 2000, Black Metal
-"Divine Blasphemies" 2002, Black Metal
-"Angelwhore" 2005, Black Metal
-"Satan's Soldiers Syndicate" 2007, Black Metal
-"The Arts of Destruction" 2012, Black Metal
+
+
+## Дискография
+
+### "A Touch of Medieval Darkness" 1996, Black Metal
+
+1.	 Skyline in Flames (Intro)	02:20
+2.	 In a Winter Battle	05:29
+3.	 A Touch of Medieval Darkness	06:02
+4.	 Fields of Triumph	05:38
+5.	 Devil's Sword	03:21
+6.	 Into a Magical Night	04:32
+7.	 Crypts of Dracul	08:51
+8.	 Visions in the Autumn Shades	06:17
+9.	 Porter of Hellgate	03:57
+10.	 Home for the Brave (Outro)	04:52
+
+### "Hellfire's Dominion" 1998, Black Metal
+
+1.	 Intro	01:59	 
+2.	 In the Ban of Satan's Sorcery	04:51
+3.	 Expect No Release	04:32
+4.	 Teutonic Steel	06:13
+5.	 Metalized Blood	05:25
+6.	 Thou Shalt Be King	04:57
+7.	 Hellfire's Dominion	04:43
+8.	 Past... Present... Forever...	05:10
+9.	 Castleland	05:48
+10.	 Across the Bloodfields	02:49
+
+### "Tyrants of the Netherworld" 2000, Black Metal
+
+1.	 Intro	01:32
+2.	 Nekropolis Karthago	04:36
+3.	 Victim of My Force	04:23
+4.	 Profanation	03:33
+5.	 Sworn to Avenge	04:39
+6.	 Tyrants of the Netherworld	07:18
+7.	 Call on the Beast	04:06
+8.	 Battle Oath	05:23
+9.	 Disciples of Darkness	03:50
+10.	 Reign of Tyrants	03:12
+
+### "Divine Blasphemies" 2002, Black Metal
+
+1.	 Intro	01:03
+2.	 Divine Blasphemies	03:49
+3.	 Symphony of Vengeance	03:22
+4.	 Beasts of Wrath and Victory	04:50
+5.	 ...of Impurity	05:22
+6.	 Alliance to the Powerthrone	06:57
+7.	 Nighthawk	04:30
+8.	 Shadowinds	05:35
+9.	 Spare No Coward	03:12
+10.	 Chants of Grief (Outro)	01:53	
+
+### "Angelwhore" 2005, Black Metal
+
+1.	 The Arrival (Intro)	02:17	 
+2.	 The Blessed Pestilence	06:58
+3.	 Angelwhore	05:31
+4.	 Conqueror's Supremacy	06:53
+5.	 Ghouls to Strike	03:45
+6.	 Nihilistic Overture	06:16
+7.	 Havoc	05:28
+8.	 Downfall Be Thy Blade	05:42
+9.	 Revelation Genocide	05:17
+10.	 Mourning Path (Outro)
+
+### "Satan's Soldiers Syndicate" 2007, Black Metal
+
+1.	 Intro	01:22	  instrumental
+2.	 Satan's Soldiers Syndicate	04:04
+3.	 Angel Extermination	03:30
+4.	 Razor Ritual	03:50
+5.	 Hellbangers	03:16
+6.	 Fate Forever Flesh	04:46
+7.	 Vile We Dwell	03:53
+8.	 Tyrannizer	05:34
+9.	 Venomous Stench	02:43
+10.	 More Corpses for the Grave	04:27
+
+### "The Arts of Destruction" 2012, Black Metal
+
+01. Intro
+02. The Arts Of Destruction
+03. Lacerate With Hands Of Doom
+04. Splendour Of The Idols
+05. Phantom Funeral
+06. Queens Of Sodomy
+07. At Hell’s Horizon
+08. Troops Of Heathens – Graves Of Saints
+09. Possessed And Defiled
+10. Beyond Your Grace
+11. Outro
+
 
 ## Отношения с другими группами
 

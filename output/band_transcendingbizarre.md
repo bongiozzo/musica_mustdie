@@ -1,8 +1,17 @@
 # Transcending Bizarre?
 
-Дискография
-"The Four Scissors" 2003, Death Metal
-"The Serpent's Manifolds" 2008, Black Metal
+Avant-garde black-death
+
+## Дискография
+
+### "The Four Scissors" 2003, Death Metal
+
+
+
+### "The Serpent's Manifolds" 2008, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,30 @@
 # Aleph
 
-Дискография
-"In Tenebra" 2005, Metal
-"Seven Steps of Stone" 2009, Metal
+
+
+## Дискография
+
+### "In Tenebra" 2005, Metal
+
+1.	 The Fallen
+2.	 Unfaithful
+3.	 Depths
+4.	 Mother of all Nightmares
+5.	 In Tenebra
+6.	 The Fallen (native lyrics)	 
+7.	 Acid Tears
+
+### "Seven Steps of Stone" 2009, Metal
+
+1.	 The Cradle and the Blade	02:42
+2.	 Bringer of Light	05:01
+3.	 The Voices From Below (2349 A.D.)	07:09
+4.	 Chimera	08:43
+5.	 An Autumn Colder Than Winter	03:56
+6.	 Tidal Wave	12:33
+7.	 Epitaph Lies	09:06
+8.	 El Aleph	07:49
+
 
 ## Отношения с другими группами
 

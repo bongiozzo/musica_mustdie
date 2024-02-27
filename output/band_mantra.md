@@ -1,7 +1,37 @@
 # Mantra
 
-Дискография
-"Roots" 2002, Hard Rock
+hard rock
+
+## Дискография
+
+### "Roots" 2002, Hard Rock
+
+1. Different Keys 
+2. Dirty River 
+3. The Architectures Of The Sky 
+4. Garden Of Secrets 
+5. Ramblin' On My Mind 
+6. Alma Mater 
+7. Homeless 
+8. Don't Call Me Jesus 
+9. Black Mother 
+10. Whales' Singing 
+11. The Forest 
+12. World For Sale 
+13. Life And Devotion 
+
+
+   Jacopo Meile - vocals 
+   Gianluca Galli - guitars  
+   Andrea Castelli - bass  
+   Senio Firmati - drums 
+
+
+Produced by Gianluca Galli, co-produced by Jacopo Meille and Max Rossi
+Engineered by Max Rossi
+Recorded at Utopia Studio, Ruda (Udine) Italy 
+
+
 
 ## Отношения с другими группами
 

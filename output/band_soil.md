@@ -1,14 +1,71 @@
 # Soil
 
-Дискография
-"Soil (EP)" 1997, Alternative
-"El Chupacabra (EP)" 1998, Alternative
-"Throttle Junkies" 1999, Alternative
-"Scars" 2001, Alternative
-"Redefine" 2004, Alternative
-"True Self" 2006, Alternative
-"Picture Perfect" 2009, Alternative
-"Re-live-ing The Scars - In London (DVD/CD)" 2012, Alternative
+
+
+## Дискография
+
+### "Soil (EP)" 1997, Alternative
+
+
+
+### "El Chupacabra (EP)" 1998, Alternative
+
+1.   F-Hole 
+2.   Broken Wings 
+3.   Crucified 
+4.   She 
+5.   Two Cent Friend 
+
+
+### "Throttle Junkies" 1999, Alternative
+
+  1.   Everything (Glass/King/McCombs/Zadel) 
+  2.   Road to Ruin (Glass/King/McCombs/Zadel) 
+  3.   Damning Eden (Glass/King/McCombs/Zadel) 
+  4.   F-Hole (Glass/King/McCombs/Zadel) 
+  5.   Man I Am (Glass/King/McCombs/Zadel) 
+  6.   Hello Again (Glass/King/McCombs/Zadel) 
+  7.   Butterfly (Glass/King/McCombs/Zadel) 
+  8.   Growing Ways (Glass/King/McCombs/Zadel) 
+  9.   Stand to Fall (Glass/King/McCombs/Zadel) 
+  10.  Concrete Slave (Glass/King/McCombs/Zadel) 
+  11.  She (Glass/King/McCombs/Zadel) 
+  12.  Crucified (Glass/King/McCombs/Zadel) 
+  13.  Shining Man (Glass/King/McCombs/Zadel) 
+  14.  Damning Eden [Acoustic] (Glass/King/McCombs/Zadel) 
+
+
+### "Scars" 2001, Alternative
+
+
+
+### "Redefine" 2004, Alternative
+
+
+
+### "True Self" 2006, Alternative
+
+
+
+### "Picture Perfect" 2009, Alternative
+
+
+
+### "Re-live-ing The Scars - In London (DVD/CD)" 2012, Alternative
+
+01. Breaking me Down
+02. Need to Feel
+03. My Own
+04. Redefine
+05. Cross My Heart
+06. Inside
+07. The One
+08. Wide Open
+09. Black 7
+10. Unreal
+11. Halo
+12. Pride
+
 
 ## Отношения с другими группами
 

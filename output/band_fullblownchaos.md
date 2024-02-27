@@ -1,11 +1,84 @@
 # Full Blown Chaos
 
-Дискография
-"Full Blown Chaos (EP)" 2003, Thrash
-"Prophet Of Hostility (EP)" 2003, Thrash
-"Wake the Demons" 2004, Metalcore
-"Within The Grasp of Titans " 2006, Metalcore
-"Heavy Lies the Crown" 2007, Metalcore
+
+
+## Дискография
+
+### "Full Blown Chaos (EP)" 2003, Thrash
+
+1. No Way Out 04:43  
+2. One Last Victim 04:31  
+3. At My Side 03:51  
+4. It Remains 04:00  
+5. By My Blood 03:09 
+
+
+### "Prophet Of Hostility (EP)" 2003, Thrash
+
+1. Blood Flow   
+2. No Others  
+3. Means To An End   
+4. No Way Out
+5. At My Side  
+6. My Suffering 
+
+
+### "Wake the Demons" 2004, Metalcore
+
+1. Apocalypse 02:33  
+2. Unlearn 02:39 
+3. Red Tide 03:15  
+4. Fore Warned 02:07  
+5. Wake The Demons 02:52  
+6. Buried Alive 01:46  
+7. So Cold 02:37  
+8. Undying 02:31  
+9. Judged 02:52 
+10. Strength Within 03:20  
+11. Never Again 02:49 
+12. This Fight 02:12 
+13. Chains of Bloodshed 02:16  
+14. Sentenced 02:57 
+
+
+### "Within The Grasp of Titans " 2006, Metalcore
+
+1. Trials of Triumph 02:35  
+2. Chopping Block 02:11 
+3. Burning Age 01:51  
+4. Solemn Promise 03:04  
+5. Rise & Fight 02:51 
+6. Anchored Heart 02:43  
+7. Suffer in Silence 02:16  
+8. Life of Sorrow 01:42  
+9. Hollowed 02:36  
+10. Vendetta 01:49  
+11. Against The Grain 01:39 
+12. Kingdom Undone 03:16  
+13. The Vorhees Complex 10:50 
+
+
+### "Heavy Lies the Crown" 2007, Metalcore
+
+1. Firefight 05:39  
+2. The Hard Goodbye 04:23  
+3. Haloes For Heroes 03:27  
+4. Fail Like A Champ 03:23  
+5. Heavy Lies The Crown 04:08  
+6. Over The End 02:58  
+7. No Last Call 03:14  
+8. All For Nothing 03:38  
+9. Raise Hell 04:06  
+10. Standpoint 04:22  
+11. Mojave Pt.1 04:12  
+12. Mojave Pt.2 02:43 
+
+Ray Mazzola - Vocals
+Mike Facci - Guitar
+Jeff Facci - Drums
+Mike "Lurk" Ruehle - Bass
+
+
 
 ## Отношения с другими группами
 

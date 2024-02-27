@@ -1,12 +1,114 @@
 # Mantus
 
-Дискография
-"Liebe und Tod" 2000, Gothic
-"Abschied" 2001, Gothic
-"Fremde Welten" 2002, Gothic
-"Weg ins Paradies" 2003, Gothic
-"Ein Hauch Von Wirklichkeit" 2004, Gothic
-"Requiem" 2009, Gothic
+Gothic rock
+
+## Дискография
+
+### "Liebe und Tod" 2000, Gothic
+
+
+
+### "Abschied" 2001, Gothic
+
+01. Tanz der Sinne
+
+02. Trдnen
+
+03. Angst
+
+04. Im Licht der Nacht
+
+05. Ewigkeit
+
+06. Liebe vergeht
+
+07. Unterwelt
+
+08. Kleiner Engel flьgellos
+
+09. Pathos
+
+10. Abschied
+
+
+### "Fremde Welten" 2002, Gothic
+
+01. Dies Irae
+
+02. Stдrker als der Tod
+
+03. Wolfsmensch
+
+04. Neue Welt
+
+05. Schattenherz
+
+06. Utopia
+
+07. Phцnix
+
+08. Geliebter mein
+
+09. Existenz
+
+10. Mord im Mondschein
+
+11. Schwarze Rosen
+
+12. Gemeinsam in den Tod
+
+
+### "Weg ins Paradies" 2003, Gothic
+
+
+
+### "Ein Hauch Von Wirklichkeit" 2004, Gothic
+
+01. Kuss mich wach
+02. Keine Liebe
+03. Sehnsucht
+04. Ich tote mich selbst
+05. Dunkler Engel
+06. Ein Hauch von Wirklichkeit
+07. Ohnmacht
+08. Stumme Schreie
+09. Dein Feind
+10. Der Spiegel
+11. Blatt im Wind
+12. Eiswasser
+
+Martin Schindler - music and instruments, lyrics
+and vocals
+Thalia - vocals
+
+Recorded, mixed and mastered at
+Vollmondstudio/Cologne between
+May 2003 and January 2004.
+Produced by Martin Schindler.
+All songs written and performed by Mantus.
+The bonus CD 'Pano Versionen' performed by
+Wolfgang Gerhard and Mantus.
+Artwork by Ingo Romling.
+Band photos by Martin Schindler.
+Tribal art by Drachenbande.de.
+"KellyAnnGothic" font by Mike Allard/De Nada
+Industries.
+
+### "Requiem" 2009, Gothic
+
+01. Untergang
+02. Still
+03. Sterne
+04. Groser als die Sonne
+05. Fur Immer
+06. Ein Letztes Mal
+07. Bei Mir
+08. Labyrinth der Zeit
+09. Letzte Tranen
+10. Requiem
+11. Klang der Stille
+12. Massiv
+
 
 ## Отношения с другими группами
 

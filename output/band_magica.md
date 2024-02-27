@@ -1,11 +1,103 @@
 # Magica
 
-Дискография
-"The Scroll of Stone" 2003, Heavy Metal
-"Lightseeker" 2004, Heavy Metal
-"Hereafter" 2007, Heavy Metal
-"Wolves and Witches" 2008, Heavy Metal
-"Dark Diary" 2010, Power Metal
+Heavy Power Metal With Female Vocals and Epic Chorus
+
+## Дискография
+
+### "The Scroll of Stone" 2003, Heavy Metal
+
+1 - The Wish
+2 - A Blood Red Dream
+3 - The Sun is Gone
+4 - The Sorcerer
+5 - Road to the Unknown
+6 - Daca
+7 - E Magic
+8 - The silent Forest
+9 - Mountains of Ice
+10 - The Key
+11 - The Scroll of Stone 
+12 - Redemption
+
+### "Lightseeker" 2004, Heavy Metal
+
+1. The Circle 01:32
+2. Bind You Forever 04:47
+3. Bittersweet Nightshade 04:09
+4. Dance of the Wasp 04:17
+5. A New Paradise 03:17
+6. Samhain 03:22
+7. Witch's Broom 04:01
+8. The Living Grimoire 05:40
+9. Black Lace 04:18
+10. Curse for Eternity 04:48
+11. Wormwood 04:51 
+12. Inluminata 04:11 
+
+### "Hereafter" 2007, Heavy Metal
+
+All Waters Have the Colour of Drowning 
+Turn to Stone 
+Through Wine 
+No Matter What 
+Entangled 
+This is Who I Am 
+The Weight of the World 
+Energy for the Gods 
+Shallow Grave 
+I Remember A Day
+Into Silence 
+Endless (bonus track)
+Vrajitoarea cea rea (bonus track)
+All Waters Have the Colour of Drowning (videoclip)
+
+Ana Mladinovici - вокал
+Bogdan "Bat" Costea - гитары
+Emilian Burcea - гитары
+Valentin "IngerAlb" Zechiu - бас
+Cristi "Beavis" Barla - ударные
+6Fingers - клавишные
+
+
+### "Wolves and Witches" 2008, Heavy Metal
+
+1. Don't Wanna' Kill 04:59 
+2. They Stole the Sun 05:01 
+3. Hold on Tight 05:42 
+4. Hurry up Ravens 04:50
+5. Maiastra 02:36 
+6. Dark Secret 04:21
+7. Just for Two Coins 05:06
+8. Until the Light Is Gone 05:09 
+9. Chitaroptera 02:53  
+10. Mistress of the Wind 05:00
+11. In the Depths of the Lake (Bonus) 04:49 
+
+### "Dark Diary" 2010, Power Metal
+
+1. Anywhere but home 04:22 
+2. Tonight 03:32
+3. Never like you 03:59  
+4. Wait for me 04:18  
+5. Need 04:00 
+6. Release my demons 04:08
+7. On the side of Evil 04:21  
+8. My kin my enemy 04:05  
+9. Used to be an angel 03:34  
+10. We are Horde 04:21 
+11. Dear Diary 01:52 
+
+
+Line-up:
+
+Ana Mladinovici - Vocals 
+Bogdan "Bat" Costea - Guitar 
+Sorin Vlad - Bass
+6Fingers - Keyboards 
+Hertz - Drums
+
+12. The Dark Diary (audiobook) Magica 11:22 (Bonus) 
+
 
 ## Отношения с другими группами
 

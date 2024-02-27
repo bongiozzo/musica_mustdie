@@ -1,18 +1,175 @@
 # Van Halen
 
-Дискография
-"Van Halen" 1978, Heavy Metal
-"Van Halen II" 1979, Heavy Metal
-"Women & Children First" 1980, Heavy Metal
-"Fair Warning" 1981, Heavy Metal
-"Diver Down" 1982, Heavy Metal
-"1984" 1984, Heavy Metal
-"5150" 1986, Heavy Metal
-"OU812" 1988, Heavy Metal
-"For Unlawful Carnal Knowledge" 1991, Heavy Metal
-"Balance" 1995, Heavy Metal
-"Van Halen 3" 1998, Heavy Metal
-"A Differnt Kind Of Truth" 2012, Hard Rock
+(Heavy Metal Legend)
+
+## Дискография
+
+### "Van Halen" 1978, Heavy Metal
+
+1 Runnin' With the Devil 3:36 (Van Halen) 
+2 Eruption 1:42 (Van Halen) 
+3 You Really Got Me 3:49 (Van Halen) 
+4 Ain't Talkin' 'Bout Love 2:37 (Van Halen) 
+5 I'm the One 3:46 (Van Halen) 
+6 Jamie's Cryin' 3:30 (Van Halen) 
+7 Atomic Punk 3:01 (Van Halen) 
+8 Feed Your Love Tonight 3:42 (Van Halen) 
+9 Little Dreamer 3:22 (Van Halen) 
+10 Ice Cream Man 3:19 (Van Halen) 
+11 On Fire 3:00 (Van Halen) 
+
+
+### "Van Halen II" 1979, Heavy Metal
+
+1 You're No Good 3:12 (Van Halen) 
+2 Dance the Night Away 3:04 (Van Halen) 
+3 Somebody Get Me a Doctor 2:51 (Van Halen) 
+4 Bottoms Up! 3:04 (Van Halen) 
+5 Outta Love Again 2:49 (Van Halen) 
+6 Light up the Sky 3:09 (Van Halen) 
+7 Spanish Fly :58 (Van Halen) 
+8 D.O.A. 4:07 (Van Halen) 
+9 Women in Love 4:05 (Van Halen) 
+10 Beautiful Girls 3:55 (Van Halen) 
+
+
+### "Women & Children First" 1980, Heavy Metal
+
+1 And the Cradle Will Rock... 3:33 (Van Halen) 
+2 Everybody Wants Some!! 5:08 (Van Halen) 
+3 Fools 5:57 (Van Halen) 
+4 Romeo Delight 4:21 (Van Halen) 
+5 Tora! Tora! 0:56 (Van Halen) 
+6 Loss of Control 2:38 (Van Halen) 
+7 Take Your Whiskey Home 3:10 (Van Halen) 
+8 Could This Be Magic? 3:11 (Van Halen) 
+9 In a Simple Rhyme 4:39 (Van Halen) 
+
+
+### "Fair Warning" 1981, Heavy Metal
+
+1 Mean Street 5:00 (Van Halen) 
+2 Dirty Movies 4:08 (Van Halen) 
+3 Sinner's Swing! 3:09 (Van Halen) 
+4 Hear About It Later 4:35 (Van Halen) 
+5 Unchained 3:29 (Van Halen) 
+6 Push Comes to Shove 3:49 (Van Halen) 
+7 So This Is Love? 3:06 (VanHalen) 
+8 Sunday Afternoon in the Park 1:59 (Van Halen) 
+9 One Foot Out the Door 1:58 (Van Halen) 
+
+
+### "Diver Down" 1982, Heavy Metal
+
+1 Where Have All the Good Times Gone? 3:04 (Van Halen) 
+2 Hang 'Em High 3:28 (Van Halen) 
+3 Cathedral 1:22 (Van Halen) 
+4 Secrets 3:25 (Van Halen) 
+5 Intruder 1:39 (Van Halen) 
+6 Oh, Pretty Woman 2:55 (Van Halen) 
+7 Dancing in the Street 3:45 (Van Halen) 
+8 Little Guitars (Intro) 0:42 (Van Halen) 
+9 Little Guitars 3:48 (Van Halen) 
+10 Big Bad Bill [Is Sweet William Now] 2:45 (Van Halen) 
+11 Full Bug 3:21 (Van Halen) 
+12 Happy Trails 1:05 (Van Halen) 
+
+Produced by Ted Templeman
+Engineered by Donn Landee
+
+(c) 1982 Van Halen Productions, Inc.
+(p) 1982 Warner Bros. Records Inc
+
+### "1984" 1984, Heavy Metal
+
+1 1984 1:07 (Van Halen) 
+2 Jump 4:04 (Van Halen) 
+3 Panama 3:32 (Van Halen) 
+4 Top Jimmy 3:02 (Van Halen) 
+5 Drop Dead Legs 4:15 (Van Halen) 
+6 Hot for Teacher 4:44 (Van Halen) 
+7 I'll Wait 4:45 (Van Halen) 
+8 Girl Gone Bad 4:35 (Van Halen) 
+9 House of Pain 3:19 (Van Halen) 
+
+
+### "5150" 1986, Heavy Metal
+
+1 Good Enough 4:00 (Van Halen) 
+2 Why Can't This Be Love? 3:45 (Van Halen) 
+3 Get Up 4:35 (Van Halen) 
+4 Dreams 4:54 (Van Halen) 
+5 Summer Nights 5:04 (Van Halen) 
+6 Best of Both Worlds 4:49 (Van Halen) 
+7 Love Walks In 5:09 (Van Halen) 
+8 "5150" 5:44 (Van Halen) 
+9 Inside 5:02 (Van Halen) 
+
+
+### "OU812" 1988, Heavy Metal
+
+1 Mine All Mine 5:11 (Van Halen) 
+2 When It's Love 5:36 (Van Halen) 
+3 A.F.U. (Naturally Wired) 4:28 (Van Halen) 
+4 Cabo Wabo 7:03 (Van Halen) 
+5 Source of Infection 3:58 (Van Halen) 
+6 Feels So Good 4:27 (Van Halen) 
+7 Finish What Ya Started 4:20 (Van Halen) 
+8 Black and Blue 5:24 (Van Halen) 
+9 Sucker in a 3 Piece 5:52 (Van Halen) 
+10 Apolitical Blues 3:50 (Van Halen) 
+
+
+### "For Unlawful Carnal Knowledge" 1991, Heavy Metal
+
+1 Poundcake 5:22 (Van Halen) 
+2 Judgement Day 4:41 (Van Halen) 
+3 Spanked 4:53 (Van Halen) 
+4 Runaround 4:21 (Van Halen) 
+5 Pleasure Dome 6:57 (Van Halen) 
+6 In 'N' Out 6:05 (Van Halen) 
+7 Man on a Mission 5:04 (Van Halen) 
+8 Dream Is Over 4:00 (Van Halen) 
+9 Right Now 5:21 (Van Halen) 
+10 316 1:29 (Van Halen) 
+11 Top of the World 3:55 (Van Halen)
+
+### "Balance" 1995, Heavy Metal
+
+1 Seventh Seal 5:18 (Van Halen) 
+2 Can't Stop Lovin' You 4:07 (Van Halen) 
+3 Don't Tell Me (What Love Can Do) 5:56 (Van Halen) 
+4 Amsterdam 4:45 (Van Halen) 
+5 Big Fat Money 3:57 (Van Halen) 
+6 Strung Out [Instrumental] 1:29 (Van Halen) 
+7 Not Enough 5:13 (Van Halen) 
+8 Aftershock 5:29 (Van Halen) 
+9 Doin' Time [Instrumental] 1:41 (Van Halen) 
+10 Baluchitherium 4:05 (Van Halen) 
+11 Take Me Back (Deja Vu) 4:43 (Van Halen) 
+12 Feelin' 6:36 (Van Halen) 
+
+
+### "Van Halen 3" 1998, Heavy Metal
+
+1 Neworld (Van Halen) 
+2 Without You (Van Halen) 
+3 One I Want (Van Halen) 
+4 From Afar (Van Halen) 
+5 Dirty Water Dog (Van Halen) 
+6 Once (Van Halen) 
+7 Fire in the Hole (Van Halen) 
+8 Josephina (Van Halen) 
+9 Year to the Day (Van Halen) 
+10 Primary (Van Halen) 
+11 Ballot or the Bullet (Van Halen) 
+12 How Many Say I (Van Halen) 
+
+
+### "A Differnt Kind Of Truth" 2012, Hard Rock
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,35 @@
 # Gutted
 
-Дискография
-"Bleed For Us To Live" 1994, Deathcore
+Very Brutal Deathcore
+
+## Дискография
+
+### "Bleed For Us To Live" 1994, Deathcore
+
+1. Bleed
+2. Sins Of God
+3. Nailed To The Cross
+4. Cold In The Coffin
+5. Chopped Up At The Altar
+6. Death Before Dismember
+7. Chock Full Of Guts
+8. Skeletonized
+9. Kickin' The Corpse
+10. Flood Of Blood
+
+ Mark Ditch - Vocals,bass,kyboards
+ Billy Mills - Lead & Rhythm guitars
+ Michael Ditch - Rhythm & lead guitars
+ Scott Ditch - Drums
+
+All songs written by GUTTED
+Produced by Rob Tylak & GUTTED
+Engineered by Rob Tylak
+Recorded & mixed at RT Audio,Canada
+
+(p)(c) 1994 RED LIGHT Records
+
+
 
 ## Отношения с другими группами
 

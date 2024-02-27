@@ -1,8 +1,52 @@
 # In Strict Confidence
 
-Дискография
-"Cryogenix" 1997, Industrial
-"Seven Lives" 2004, Gothic
+
+
+## Дискография
+
+### "Cryogenix" 1997, Industrial
+
+1.  Falling Down
+2.  Dementia *
+3.  Inside
+4.  Sudorific *
+5.  Become An Angel
+6.  In 2 Deep (Life-Part I)
+7.  Burning Angel *
+8.  Lost In Paradise
+9.  Crux
+[10].Sinner
+[11].Change My Vein
+[12].Cryogenic Suspension (2nd Life)
+
+[10]-[12] - На стороне B
+
+Produced, Mixed & Recorded By IN STRICT CONFIDENCE At Maschinenraum.
+Re-Mastered By Torben Schmidt & IN STRICT CONFIDENCE At Light -Lab
+
+Dennis 'Cernibog' Ostermann
+Jorg Schelte
+Guitars On * By Klaus Weisser.
+
+(P)(C) 1997 ZOTH OMMOG Records
+
+### "Seven Lives" 2004, Gothic
+
+01. Seven Lives (extended version)
+02. Seven Lives (clubmix)
+03. Open Skies
+04. Seven Lives (de/vision feat. telekommander
+remix)
+05. Eye Of Heaven (silversilence)
+06. der Teufel
+07. Walking Shadows
+08. Slowmotion
+09. No Love Will Heal (lucas boysen remix)
+10. Seven Lives (monozelle remix)
+11. Seven Lives (iris remix)
+12. Babylon (drumgrip III)
+13. No Love Will Heal (the cruxshadows remix)
+
 
 ## Отношения с другими группами
 

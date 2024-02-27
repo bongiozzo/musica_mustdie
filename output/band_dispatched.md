@@ -1,12 +1,65 @@
 # Dispatched
 
-Дискография
-"Awaiting The End (EP)" 1995, Melodic Death Metal
-"Blackshadows" 1996, Melodic Death Metal
-"Returned To Your Mind" 1997, Melodic Death Metal
-"Promised Land" 1998, Melodic Death Metal
-"Motherwar" 2000, Melodic Death Metal
-"Terrorizer" 2004, Melodic Death Metal
+
+
+## Дискография
+
+### "Awaiting The End (EP)" 1995, Melodic Death Metal
+
+01. Blue fire 
+02. ...Is born 
+03. Redzone 
+04. Awaiting the end 
+
+### "Blackshadows" 1996, Melodic Death Metal
+
+01. You only know life 
+02. Ghastly gates 
+03. Blackshadows 
+04. Act of resurrection 
+
+### "Returned To Your Mind" 1997, Melodic Death Metal
+
+01. Restless mind 
+02. Like a river of sand 
+03. Hate my life 
+04. Canis lupus 
+
+### "Promised Land" 1998, Melodic Death Metal
+
+01. A griffin banner 
+02. Revenous men 
+03. Promised Land 
+04. Grant me rest 
+05. The revealing 
+06. Fallen wind 
+
+### "Motherwar" 2000, Melodic Death Metal
+
+01. Intro 
+02. Motherwar 
+03. To Sleep You Go 
+04. She's Lost 
+05. Down 
+06. Templar 
+07. The Final Countdown (Europe cover) 
+08. Silver Waves 
+09. Dispatched
+
+### "Terrorizer" 2004, Melodic Death Metal
+
+1. Terrorizer
+2. Rebellion
+3. Wicked Dreams
+4. Waste Some Steel
+5. Override
+6. Mechanical
+7. I Am Thy Lord
+8. Beneath The World Of Chaos
+9. Under The Ice
+
+(p) 2003 Medusa Productions
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,49 @@
 # Affair
 
-Дискография
-"Face to Face" 1997, Hard Rock
-"No Substitute" 2002, Hard Rock
+
+
+## Дискография
+
+### "Face to Face" 1997, Hard Rock
+
+1.   My Life   5:18 
+2.   Changes   3:57 
+3.   Face to Face   6:05 
+4.   Fantasy Girl   5:52 
+5.   Call of the Wild   5:11 
+6.   Love Never Dies   5:58 
+7.   4TXY   3:48 
+8.   Too Shy   4:21 
+9.   Free 'n Easy   4:27 
+10.   Wish You Were Here   4:21 
+11.   Heart of Rock 'n Roll   5:37 
+12.   Day By Day   6:06 
+13.   Peedee's Bloopers   2:40 
+    
+Peter De Wint - lead vocals
+Bobby Altvater - all guitars, vocals, producer
+Chris Lausmann - keyboards, programming
+
+### "No Substitute" 2002, Hard Rock
+
+01. No Substitute
+02. Get Going
+03. Inside Out
+04. Return Forever
+05. Life On A Wire
+06. Magic Radio
+07. Game Of Love
+08. Keep Me Alive
+09. Back In The Race
+10. Fire Still Burning
+11. Why Why
+
+Peter DeWint - вокал
+Bobby Altvader - гитары
+Thomas Streck - клавишные
+Uwe Kohler - бас
+Michi Schwager - ударные
+
 
 ## Отношения с другими группами
 

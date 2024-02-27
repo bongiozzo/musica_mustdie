@@ -1,19 +1,177 @@
 # Graveworm
 
-Дискография
-"Eternal Winds (EP)" 1997, Black Metal
-"When Daylight's Gone" 1997, Black Metal
-"Demo 1997 (MC)" 1997, Black Metal
-"Underneath The Crescent Moon (MCD)" 1998, Black Metal
-"Awaiting The Shinning (video)" 1998, Black Metal
-"As The Angels Reach The Beauty" 1999, Black Metal
-"Scourge Of Malice" 2001, Black Metal
-"Engraved In Black" 2003, Black Metal
-"(N)Utopia" 2005, Black Metal
-"Collateral Defect" 2007, Death Metal
-"Diabolical Figures" 2009, Black Metal
-"Fragments Of Death" 2011, Black Metal
-"Ascending Hate" 2015, Black Metal
+Gothic Black-Doom Metal from Italy
+
+## Дискография
+
+### "Eternal Winds (EP)" 1997, Black Metal
+
+1. Eternal Winds 
+2. Tears From My Eyes
+
+### "When Daylight's Gone" 1997, Black Metal
+
+1. Awake 
+2. Lost Yourself 
+3. Far Away 
+4. Eternal Winds 
+5. Dark Silence 
+6. Tears From My Eyes 
+7. When The Sky Turns Black 
+8. Another Season 
+9. Aeons Of Desolation
+
+### "Demo 1997 (MC)" 1997, Black Metal
+
+
+
+### "Underneath The Crescent Moon (MCD)" 1998, Black Metal
+
+1. Awaiting The Shinning 
+2. Awake...Thy Angels Of Sorrow 
+3. By The Grace Of God 
+4. How Many Tears
+
+### "Awaiting The Shinning (video)" 1998, Black Metal
+
+
+
+### "As The Angels Reach The Beauty" 1999, Black Metal
+
+1. A Dreaming Beauty 
+2. Portrait Of A Deadly Nightshade 
+3. Ceremonial Requiem 
+4. Nocturnal Hymns 
+5. Behind The Curtain Of Darkness 
+6. Pandemonium 
+7. Prophecies In Blood 
+8. Into The Dust Of Eden 
+9. Graveyard Of Angels
+
+### "Scourge Of Malice" 2001, Black Metal
+
+1. Dreaded Time                    1:46
+2. Unhallowed By The Infernal One  6:00
+3. Abandoned By Heaven             6:06
+4. Descending Into Etherial Mist   6:44
+5. Threnody                        4:27
+6. Demonic Dreams                  7:21
+7. Fear Of The Dark                8:44
+8. In Vengeance Of Our Wrath       5:53
+9. Ars Diaboli                     1:12 
+10. Sanctity Within Darkness       5:19  
+
+### "Engraved In Black" 2003, Black Metal
+
+01. Dreaming Into Reality
+02. Legions Unleashed
+03. Renaissance In Blood
+04. Thorns Of Desolation
+05. Abhorence
+06. Losing My Religion
+07. Drowned In Fear
+08. Beauty Of Malice
+09. Apparition Of Sorrow
+
+Martin Innerbichler, Drums
+Stefan Unterpentinger, Guitars
+Eric Righi, Guitars/bass
+Sabine Mair, Keys
+Stefan Fiori, Vocals
+
+All music, lyrics and arrangement by Graveworm
+except "losing My Religion" by R.E.M.
+Guestmusician on "Thorns Of Desolation": Herman
+Kuhebacher (irish whistle, flute, bagpipe)
+Recorded at Stage One Studio in March 2003-03-26
+Produced by Graveworm and Andy Classen
+Cover by Kristian Wahlin
+Single pics by Sitzmann Barbara (Foto Rapid)
+Bandpics by Alex Kuhr
+
+### "(N)Utopia" 2005, Black Metal
+
+I-The Machine
+(N)utopia
+Hateful Design
+Never Enough
+Timeless
+Which Way
+Deep Inside
+Outisde Down
+MCMXCII
+Loosing My Religion (Bonustrack)
+
+### "Collateral Defect" 2007, Death Metal
+
+1. Reflections 02:28  
+2. Bloodwork 03:30  
+3. Touch of Hate 03:09  
+4. Suicide Code 03:52  
+5. The Day I Die 05:11  
+6. Fragile Side 04:20  
+7. I Need a Hero (Bonnie Tyler cover) 04:33 
+8. Out of Clouds 03:54  
+9. Scars of Sorrow 03:54  
+10. Memories 06:16
+
+### "Diabolical Figures" 2009, Black Metal
+
+1. Vengeance Is Sworn 04:17  
+2. Circus Of The Damned 05:58  
+3. Diabolical Figures 04:54  
+4. Hell's Creation 04:04  
+5. Forlorn Hope 06:27  
+6. Architects Of Hate 04:06  
+7. New Disorder 03:09  
+8. Message In A Bottle 04:16  
+9. Ignoreance Of Gods 04:56  
+10. The Reckoning 02:14 
+
+
+
+Lineup:
+Stefan Fiori - Vocals 
+Eric Righi - Guitar 
+Orgler "Stirz" Thomas - Guitar 
+Harry Klenk - Bass 
+Sabine Mair - Keyboards 
+Maschtl Innerbichler - Drums
+
+Guest: 
+Karsten "Jagger" Jдger (Disbelief) 
+
+### "Fragments Of Death" 2011, Black Metal
+
+1. Insomnia 
+2. Only Dead In Your Wake
+3. Absence Of Faith 
+4. Living Nightmare
+5. The World Will Die In Flames
+6. Anxiety 
+7. See No Future
+8. The Prophecy 
+9. Remembrance 
+10. Old Forgotten Song 
+11. Where Angels Do Not Fly
+12. Awake (Bonus Track) 
+
+
+
+### "Ascending Hate" 2015, Black Metal
+
+01. The Death Heritage
+02. Buried Alive
+03. Blood / Torture / Death
+04. To The Empire Of Madness
+05. Downfall Of Heaven
+06. Stillborn
+07. Liars To The Lions
+08. Rise Again
+09. Son Of Lies
+10. Nocturnal Hymns II (The Death Anthem)
+11. Runaway (Bon Jovi cover - bonus)
+
 
 ## Отношения с другими группами
 

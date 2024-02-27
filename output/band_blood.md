@@ -1,13 +1,232 @@
 # Blood
 
-Дискография
-"Impulse To Destroy" 1989, Grindcore
-"Christbait" 1992, Grindcore
-"O Agios Pethane" 1993, Grindcore
-"Mental Conflicts" 1995, Grindcore
-"Depraved Goddess" 1996, Grindcore
-"Gas Flames Bones" 1999, Grindcore
-"Dysangelium" 2003, Grindcore
+Original Deathcore
+
+## Дискография
+
+### "Impulse To Destroy" 1989, Grindcore
+
+1. Intro
+2. Wings Of Declaration
+3. Foulmouthed Politicians
+4. Dogmatize
+5. Spasmo Paralitic Dreams
+6. Linear Logical Intelligence
+7. Why ?
+8. The Gread
+9. Blood
+10.Retrogression
+11.Technical Abortion
+12.Beyond Time & Space
+13.Celtic Compast
+14.Jesus Never Lived
+15.Economic Cancer
+16.Ventilator Integrator
+17.A Big Cake
+18.Tumor
+19.Unsophisticated Sorehead
+20.Compulsion
+21.Bloody Season
+22.Necromancer
+23.Skate Is Great
+24.No Regret!
+
+(p)&(c) 1989 WILD RAGS Records
+
+### "Christbait" 1992, Grindcore
+
+1. Lost Lords
+2. And No One Cries
+3. The Last Words
+4. Scares Of Souls
+5. Damnation
+6. Harass
+7. Join Stock Company
+8. Final Chasm
+9. Dogmatize
+1. Self Immolation
+2. Widow Path
+3. Be Doomed
+4. Bought Beauty
+5. Past Belief Cessions
+6. Mass Distortion
+7. The Greed
+8. Down To The Swamp
+9. Technical Abortion
+10.The Head Of A Dead Cat
+11.Terroraise
+
+ Alex - The Voice
+ Eisen - Guitars
+ Ruben - Guitars
+ Taki - Bass
+ Ventilator - Drums
+
+All Songs By BLOOD
+
+(p)&(c) 1992 WILD RAGS Records
+
+
+### "O Agios Pethane" 1993, Grindcore
+
+1. Intro
+2. Kadath
+3. Cannibal Ritual
+4. Profanity
+5. Submission
+6. Sodomize The Weak
+7. Punishment
+8. Christbait
+9. Dread
+10.Wings Of Declaration
+11.By The Way Of Grace
+12.God Left The World
+13.Afsta Ta Malakja Sou
+14.Revelation
+15.Divive Seed
+16.Spasmoparalytic Dreams
+17.Lamentation
+18.Stream Of Anguish
+19.Blood For Blood
+20.Outro
+
+ Martin - Vocals
+ Eisen - Guitars
+ Taki - Bass
+ Ventilator - Drums
+
+All Tracks By BLOOD
+Produced By S.L.Coe & BLOOD
+Recorded & Mixed June'93 At Dusk Music Studio
+
+(p)&(c) 1993 1 MORE FLOP Records
+
+
+### "Mental Conflicts" 1995, Grindcore
+
+1. Intro (Tentacles)
+2. Insomnia
+3. Toothache
+4. Master's Clemency
+5. Secrets Of Blood
+6. Mental Conflicts
+7. Bleed For Me
+8. Spreading The Thoughts
+9. Blood
+10.Stretched
+11.Away Is Away
+12.For Auld Lang Syne
+13.Crown Court
+14.In Flame
+15.Texas Chainsaw Massacre
+16.Naked Frozen
+17.Blood Price
+18.The Favour Of Extasy
+19.Morpheus
+20.I Dream Dead
+
+ Clausi - Vocals
+ Eisen - Guitars
+ Taki - Bass
+ Ventilator - Drums
+
+All Titles Written By BLOOD
+Produced By BLOOD & Thomas Mrochen
+Recorded At Station Studios, Calmbach, Sept. 1994
+
+(p)&(c) 1995 MORBID Records
+
+### "Depraved Goddess" 1996, Grindcore
+
+1.  Roman Whores
+2.  Enthanastic Inclination
+3.  Blasphemy
+4.  Die Leiche
+5.  Bloody Season
+6.  The God You Save
+7.  Unholy God
+8.  Dark Conscience
+9.  Wage War
+10.Bastard Son
+11.Maggotstorm
+12.Christian Holocaust
+13.Wiekrieg Sterben
+14.Fuck Religions
+15.Destroy Command
+16.Fleshhunger (Cannibal Ritual II)
+17.Sinister Knell
+18.Execution
+19.A Burial Place
+20.An Orgy Of Blood At Forest Morgue
+
+ Clausi - Vocals
+ Eisen - Guitars
+ Taki - Bass
+ Ventilator - Drums
+
+All Titles Written By BLOOD
+Produced By BLOOD & Guido Holzmann.
+Recorded & Mixed At Soundbunker Studios, Calmbach.
+
+(p)(c) 1996 MORBID Records
+
+### "Gas Flames Bones" 1999, Grindcore
+
+1. Screaming With No Face
+2. Flames And Gas
+3. Auto Cannibalism
+4. Ebola
+5. Perishment In Utter Ecstasy
+6. Defaced Total Mutation
+7. Der Henker
+8. Fleshconsumer
+9. Multiglobablized Fallacy
+10. Derangement
+11. Woundead
+12. FH-70mm
+13. Holy Rot
+14. Mankind
+15. Serial Infanticide
+16. Amputation
+17. Hecatomb
+18. Positional Warfare
+
+
+### "Dysangelium" 2003, Grindcore
+
+01. blood-pulsation
+02. adrenaline
+03. schizophrenic wisdom
+04. son of shadows
+05. wormbody
+06. where is your saviour now
+07. jesus descent
+08. evil saints
+09. poison for the soul
+10. the heretic
+11. randymary
+12. breaking bounds
+13. anthem of scorn
+14. garbage-can biotope
+15. godmorphosis
+16. hate-speech
+17. malicious awakening
+18. demon`s call
+19. penalty
+20. devil dance
+21. dysangelium 
+
+
+
+Clausi - vocals
+Eisen - guitars
+Taki - bass
+Ventilator - drums
+
+
+
+
+
 
 ## Отношения с другими группами
 

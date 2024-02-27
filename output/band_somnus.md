@@ -1,8 +1,30 @@
 # Somnus
 
-Дискография
-"To Return the Crimson Skies (demo)" 1997, Black Metal
-"Awakening the Crown" 2000, Black Metal
+black/sympho-black
+
+## Дискография
+
+### "To Return the Crimson Skies (demo)" 1997, Black Metal
+
+1. Empire of Engara
+2. Beyond the Shores
+3. Envy of the Seraph
+4. To Return the Crimson Skies
+5. The Empirical Procession
+
+### "Awakening the Crown" 2000, Black Metal
+
+01. Unfulfilled Prophecy
+02. A Calling of Arms
+03. The Alchemist
+04. Forever the Serpent
+05. Beyond the Shores
+06. Envy of the Seraph
+07. Lair of the Wendol
+08. Within
+09. Fulfilling the Throne
+10. The New Beginning
+
 
 ## Отношения с другими группами
 

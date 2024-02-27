@@ -1,16 +1,171 @@
 # Mortification
 
-Дискография
-"Scrolls Of The Megilloth" 1992, Death Metal
-"Post Momentary Affliction" 1993, Death Metal
-"Break The Curse" 1994, Death Metal
-"Blood World" 1995, Death Metal
-"EnVision EvAngelene" 1996, Death Metal
-"Relentless" 2002, Death Metal
-"Brain Cleaner" 2004, Death Metal
-"Erasing The Goblin" 2006, Death Metal
-"Live Humanitarian" 2007, Death Metal
-"The Evil Addiction Destroying Machine" 2009, Death Metal
+Christian's Deathgrind!!!!
+
+## Дискография
+
+### "Scrolls Of The Megilloth" 1992, Death Metal
+
+1. Nocturnal
+2. Terminate Damnation
+3. Eternal Lamentation
+4. Raise The Chalice
+5. Lymphosarcoma
+6. Scrolls Of Megilloth
+7. Death Requiem
+8. Necromanicide
+9. Inflamed
+10.Ancient Prophecy
+
+ Steve Rowe - Bass & Lead Vocals (Grind Baritone Of Extreme Reality)
+ Michael Carlisle - Guitar & Back-Up Vocals
+ Jason Sherlock - Drums & Back-Up Vocals
+
+Lead Guitar On "Nocturnal" By Michael Carlisle. Lead Guitar On "Ancient" By Jason Sherlock.
+Produced By Dough Saunders & MORTIFICATION. Producting & Engineering By Dough Saunders. Executive Producer Markus Staiger. Assistant Engineer Alicia Ralbi. Recorded At Studio RBX Tichmond, Melbourne, Australia. Mixed At Toybox Studios Northcote,Melbourne,Australia. Rehearsal & Pre-Production At Jamtin Studios,Cheltenham,
+Melbourne,Australia.Dough Sanders Appears Courtesy Of Toybox Music Pty.Ltd. Logo On Cover By Mike Maxwell. Cover Concept By Steve Rowe & Jason Sherlock. Original Design By Jason Sherlock. Art Direction By Brian Godawa. Layout By Joe Potter.
+
+(p)&(c) 1992 NUCLEAR BLAST Records NB071
+
+
+### "Post Momentary Affliction" 1993, Death Metal
+
+1. Allusions From The Valley Of Darkness
+2. From The Valley Of Shadows
+3. Human Condition
+4. Distarnish Priest
+5. Black Lion Of The Wind
+6. Grind Planetarium
+7. Pride Sanitarium
+8. Overseer
+9. This Momentary Affliction
+10.Flight Of Victory (Bass Instr.)
+11.Impulsation
+12.Liquid Assets
+13.Vital Fluide
+14.The Sea Of Forgetfulness
+
+ Steve Rowe - Bass & Lead Vocals
+ Michael Carlisle - Guitar & Back-Up Vocals
+ Jason Sherlock - Drums & Back-Up Vocals
+
+All Songs By MORTIFICATION.
+Produced By Doug Saunders & Markus Staiger.
+Engineered By Doug Saunders.
+Assistant Engineer Mark Tulk.
+Recorded,Mixed & Digital Editing At Toybox,
+Australia.
+Mastered By Doug Dohle At Digital Brothers,
+Costa Mesa,CA.
+All Sound Effects & Keyboards By Doug Saunders.
+Rehearsals Jam Tin Studios,Cheltenham,Vic.,
+Australia.
+
+(p)&(c) 1993 NUCLEAR BLAST Records NB082
+
+### "Break The Curse" 1994, Death Metal
+
+1. Blood Sacrifice
+2. Brutal Warfare
+3. Impulsation
+4. Turn
+5. New Beginnings
+6. Break the Curse
+7. Illusion Of Life
+8. Your Last Breath
+9. Journey Of Reconciliation
+10. The Majest Infiltration Of Order
+11. Butchered Mutilation
+
+ Steve Rowe - Bass Guitar, Vocals
+ Cameron Hall - Guitar
+ Jayson Sherlock - Drums
+
+All Songs Written By MORTIFICATION
+Produced & Engineered By Doug Saunders
+Recorded At Timbertop Recording Studios,
+April 1990
+Remastered At Toybox Studios, 
+November 1993
+
+(p)&(c) 1994 NUCLEAR BLAST Records
+
+### "Blood World" 1995, Death Metal
+
+1. Clan Of The Light
+2. Blood World
+3. Starlight
+4. Your Life
+5. Monks Of The High Lord
+6. Symbiosis
+7. Love Song
+8. Live By The Sword
+9. J.G.S.H.
+10. Dark Allusion
+
+ Steve Rowe - Vocals, bass
+ Mick Carlisle - Guitars
+ Phil Gibson - Drums
+
+All Songs By MORTIFICATION
+Produced By Marc MacCormack & MORTIFICATION
+Recorded & Mixed By Mark MacCormack & MORTIFICATION
+At St. Andrew's Studios, Melbourne, Australia
+
+(p)&(c) 1995 NUCLEAR BLAST Records
+
+### "EnVision EvAngelene" 1996, Death Metal
+
+1. EnVision EvAngelene (in 8 parts) (18.49)
+   I. Musical Prelude 1 - Emaculate Conception
+   II. Musical Prelude 2 - The Imminent Messiah
+   III. Persecuted Quest
+   IV. The Words At The Supper
+   V. Angelic Sufferance
+   VI.  Angelic Resurgence
+   VII.  Frustrated Vision
+   VIII. Please Tarry
+2. Northern Storm (3.40)
+3. Peace In The Galaxy (4.49)
+4. Jehovah Nissi (6.01)
+5. Buried Into Obscurity (3.24)
+6. Chapel Of Hope (4.02)
+7. Noah Was A Knower (3.33)
+[8]. Crusade For The King (5.3I)
+
+[8] - Ha стороне B
+
+All songs written by MORTIFICATION
+Produced by Mark McCormack and Steve Rowe
+Engineered by Mark McCormack
+Recorded at St.Andrews Studio, Melbourne
+
+Steve Rowe - Bass, Vocals
+Lincoln Bowen - Guitar
+Keith Bannister - Drums
+
+(p)c 1996 NUCLEAR BLAST Records
+
+### "Relentless" 2002, Death Metal
+
+
+
+### "Brain Cleaner" 2004, Death Metal
+
+
+
+### "Erasing The Goblin" 2006, Death Metal
+
+
+
+### "Live Humanitarian" 2007, Death Metal
+
+
+
+### "The Evil Addiction Destroying Machine" 2009, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

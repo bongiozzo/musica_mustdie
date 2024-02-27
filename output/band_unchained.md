@@ -1,7 +1,39 @@
 # Unchained
 
-Дискография
-"Unchained" 2005, Progressive
+
+
+## Дискография
+
+### "Unchained" 2005, Progressive
+
+1. My Guide 03:53
+2. The Analyst 05:42
+3. Ghost Of An Alchemic Hall 05:39  
+4. Theater Of Fear 07:01  
+5. I Dream 05:02  
+6. Ordinary Sinner 04:16  
+7. Like The Candle 05:55  
+8. The Great Witch Hunt 04:09  
+9. Seventh Sin 06:11
+
+
+All songs written by UNCHAINED
+Produced by David Blome
+Engineered by Daniel Johnsson and UNCHAINED
+Recorded at Pama Studio 3
+
+Per Karlsson - Vocals
+David Blome - Guitars
+Peter Ericsson - Guitars
+Mattias Osbeck - Bass
+Martin Michaelsson - Drums
+Joel Sjovik - Keyboards
+
+Guests:
+Maja Froberg - Choir
+Anders Waldermansson - Bass
+Matthias Osbeck - Vocals
+
 
 ## Отношения с другими группами
 

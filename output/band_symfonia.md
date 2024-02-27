@@ -1,7 +1,31 @@
 # Symfonia
 
-Дискография
-"In Paradisum" 2011, Power Metal
+
+
+## Дискография
+
+### "In Paradisum" 2011, Power Metal
+
+1. Fields Of Avalon 
+2. Come By The Hills 
+3. Santiago 
+4. Alayna 
+5. Forevermore 
+6. Pilgrim road 
+7. In Paradisum 
+8. Rhapsody in Black 
+9. I Walk In Neon 
+10. Don't Let Me Go
+
+Line Up: 
+Andre Matos - Vocals (Angra, Shaaman, Viper)
+Timo Tolkki - Guitar (Stratovarius, Revolution Renaissance)
+Jari Kainulainen - Bass (Stratovarius, Evergrey)
+Mikko Hrkin - Keyboards (Sonata Arctica, Kotipelto)
+Uli Kusch - Drums (Gamma Ray, Masterplan, Helloween)
+
+
+
 
 ## Отношения с другими группами
 

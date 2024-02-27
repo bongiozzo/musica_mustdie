@@ -1,9 +1,45 @@
 # Wulfgar
 
-Дискография
-"Seelenblut" 2006, Black Metal
-"Ewigkeit Des Ubels" 2007, Black Metal
-"Und Es Ward Krieg" 2008, Black Metal
+black-metal from Germany
+
+## Дискография
+
+### "Seelenblut" 2006, Black Metal
+
+1. Leben Geht  05:39 
+2. Verdorben Leib  05:21   
+3. Reise ins Nichts  04:54  
+4. Seelenblut  05:41    
+5. Nur der Nebel  05:45   
+6. K&#246;nigin  05:14  
+7. Auroras Versteck  05:02   
+8. Die Unterwelt  02:05 
+
+### "Ewigkeit Des Ubels" 2007, Black Metal
+
+01. Schlachtbefehl
+02. Das Nichts
+03. Rivale Des Ietzt
+04.  Island
+05. Lugenmaul
+06. Acker Der Angst
+07. Allein Gelassen
+08. Wulfgars Schrei
+09. Trauergeleit
+10. Erde
+
+### "Und Es Ward Krieg" 2008, Black Metal
+
+1. Neuer Morgen  02:23    
+2. Unsterblich  04:59  
+3. Feldzug  03:29   
+4. Der Im Schatten Wartet  07:03   
+5. Feind  03:00  
+6. Hauch von Ewigkeit  07:03 
+7. Heimleuchten  03:19    
+8. Brennende Wolken  04:59   
+9. Endpunkt  00:43 
+
 
 ## Отношения с другими группами
 

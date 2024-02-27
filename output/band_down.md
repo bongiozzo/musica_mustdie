@@ -1,11 +1,72 @@
 # Down
 
-Дискография
-"Nola" 1995, Stoner
-"A Bustle In Your Hedgerow" 2002, Metal
-"III - Over the Under" 2007, Metal
-"Diary Of A Mad Band (Live)" 2010, Stoner
-"Down IV Part I - The Purple EP" 2012, Stoner
+
+
+## Дискография
+
+### "Nola" 1995, Stoner
+
+1. Temptation's Wings
+2. Lifer
+3. Pillars Of Eternity
+4. Rehab
+5. Hail The Leaf
+6. Underneath Everything
+7. Eyes Of The South
+8. Jail
+9. Losing All
+10.Stone The Crow
+[11].Pray For The Locust
+[12].Swan Song
+[13].Bury Me In Smoke
+
+[11]-[13] - На Стороне B
+
+All Songs Written By DOWN.
+Produced By DOWN & Matt Thomas.
+Mixed By DOWN, Matt Thomas & David Farell.
+Recorded & Mixed At Ultrasonic Studios, New Orlean, LA.
+
+Philip Anselmo - Vocals
+Pepper Keenan - Guitar
+Kirk Windstein - Guitar
+Todd Strange - Bass
+Jim Bower - Drums
+
+(P)&(C) 1995 ELECTRA Entertainment
+
+### "A Bustle In Your Hedgerow" 2002, Metal
+
+
+
+### "III - Over the Under" 2007, Metal
+
+1. Three Suns and One Star  05:42
+2. The Path  04:12  
+3. N.O.D.  04:03  
+4. I Scream  03:51   
+5. On March the Saints  04:13  
+6. Never Try  04:58   
+7. Mourn  04:47   
+8. Beneath the Tides  05:34  
+9. His Majesty the Desert  02:28   
+10. Pillamyd  05:18   
+11. In the Thrall of It All  06:23  
+12. Nothing in Return (Walk Away)  08:55 
+
+### "Diary Of A Mad Band (Live)" 2010, Stoner
+
+
+
+### "Down IV Part I - The Purple EP" 2012, Stoner
+
+01. Levitation (4:58)
+02. Witchtripper (3:49)
+03. Open Coffins (5:43)
+04. The Curse (5:59)
+05. This Work Is Timeless (3:43)
+06. Misfortune Teller (9:04)
+
 
 ## Отношения с другими группами
 

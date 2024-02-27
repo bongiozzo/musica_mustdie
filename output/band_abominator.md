@@ -1,11 +1,61 @@
 # Abominator
 
-Дискография
-"Barbarian War Worship /demo/" 1995, Death Metal
-"The Conqueror Possessed /demo/" 1997, Death Metal
-"Damnations Prophecy" 1999, Death Metal
-"Subversives For Lucifer" 2001, Death Metal
-"Nuctemeron Descent" 2003, Death Metal
+Australian death-metal band
+
+## Дискография
+
+### "Barbarian War Worship /demo/" 1995, Death Metal
+
+
+
+### "The Conqueror Possessed /demo/" 1997, Death Metal
+
+
+
+### "Damnations Prophecy" 1999, Death Metal
+
+01] Intro/Filthy Spirit Antichrist
+02] Debauchery The Sinners Hammer
+03] Damnations Prophecy
+04] Intro/War Worship
+05] Activate The Anarchus
+06] The Conqueror Possessed
+07] Unholy Consecration
+08] Ode To Morbid Pleasure
+09] Luciferian Path To Destruction
+10] Sepultural Vomit/Outro
+
+Andrew Undertaker - guitar, vocals
+Damon Bloodstorm - bass, vocals
+Chris Volcano - drums, vocals
+
+Produced by Abominator
+
+(p)(c) 1999 Necropolis Records
+
+### "Subversives For Lucifer" 2001, Death Metal
+
+01] Intro/Renegades At Hells Command
+02] Desolate Feast
+03] Carnivorous Strike Of The Knife
+04] As God Of A Heretic Tribe
+05] Ignite The Ceremonial Burning
+06] From Flesh To Fire
+07] Domain Of Iblis
+08] Subversives For Lucifer/Outro
+
+### "Nuctemeron Descent" 2003, Death Metal
+
+1. Dimensions Of Mammon Enshroud
+2. Cascading Carnage
+3. Necrosexual Thrust
+4. Intoxicated With Satanic Hate
+5. Black Flames Of Expulsion
+6. Scourge Immortalised
+7. Nuctemeron Descent
+8. Hymn To Baphomet
+9. The Ultimate Ordinance Of Obliteration
+
 
 ## Отношения с другими группами
 

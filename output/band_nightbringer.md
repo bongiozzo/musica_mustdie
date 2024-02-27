@@ -1,11 +1,29 @@
 # Nightbringer
 
-Дискография
-"Death and the Black Work" 2008, Black Metal
-"Apocalypse Sun" 2010, Black Metal
-"Hierophany of the Open Grave" 2011, Black Metal
-"Ego Dominus Tuus" 2014, Black Metal
-"Terra Damnata" 2017, Black Metal
+
+
+## Дискография
+
+### "Death and the Black Work" 2008, Black Metal
+
+
+
+### "Apocalypse Sun" 2010, Black Metal
+
+
+
+### "Hierophany of the Open Grave" 2011, Black Metal
+
+
+
+### "Ego Dominus Tuus" 2014, Black Metal
+
+
+
+### "Terra Damnata" 2017, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,21 @@
 # Polterchrist
 
-Дискография
-"Engulfed By The Swarm" 2004, Death Metal
+
+
+## Дискография
+
+### "Engulfed By The Swarm" 2004, Death Metal
+
+Alone 
+The Sun Will Burn Black 
+Terminal 
+Lies... Pain... Hate 
+The Art Of Ferocity 
+Here We Lie 
+Engulfed By The Swarm 
+Desolate Paradise 
+The Battle
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,17 @@
 # Vivid X
 
-Дискография
-"V.X./Образы" 2002, Thrash
-"V.Xtremal PROGRESS" 2004, Thrash
+techno-thrash in Russian
+
+## Дискография
+
+### "V.X./Образы" 2002, Thrash
+
+
+
+### "V.Xtremal PROGRESS" 2004, Thrash
+
+
+
 
 ## Отношения с другими группами
 

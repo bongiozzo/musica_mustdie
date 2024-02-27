@@ -1,11 +1,92 @@
 # Raunchy
 
-Дискография
-"Velvet Noise" 2001, Metalcore
-"Confusion Bay" 2004, Metalcore
-"Death Pop Romance" 2006, Metalcore
-"Wasteland Discotheque" 2008, Metalcore
-"A Discord Electric" 2010, Metalcore
+
+
+## Дискография
+
+### "Velvet Noise" 2001, Metalcore
+
+
+
+### "Confusion Bay" 2004, Metalcore
+
+01. Join The Scene
+02. I Get What I See
+03. Summer Of Overload
+04. Watch Out
+05. 9 - 5
+06. Show Me Your Real Darkness
+07. Confusion Bay
+08. The Devil
+09. Insane
+10. Morning Rise And A Friday Night
+11. Bleeding #2
+
+Lars Vongstrup - lead vocals
+Lars Christensen - guitars
+Jesper Andreas Tilsted - guitars
+Jeppe Christensen - keys, backing vocals
+Jesper Kvist - bass
+Morten Toft Hansen - drums
+
+All songs by Raunchy.
+Recorded at Jacob Hansen Studios, Ribe, Denmark
+from July 6 to July 20, 2003.
+Mixed August 11 to August 18 by Jacob Hansen.
+Produced by Jacob Hansen and Raunchy.
+Mastered October 2003 by Daniel Fossum at
+Digitalfabrikken, Goteborg, Sweden.
+Executive producers: Michael H. Anderson and
+Bjarke Ahlstrand.
+Coverart, design and layout by Lars Christensen.
+Additional visualisation by Bjarke Ahlstrand/One
+Of Many.
+Band photos by Jappe Gudmundsen.
+
+### "Death Pop Romance" 2006, Metalcore
+
+1. This Legend Forever – 4:24 
+2. Abandon Your Hope" – 4:43 
+3. Phantoms – 5:01 
+4. The Curse of Bravery – 4:20 
+5. Remembrance – 5:21 
+6. Live the Myth – 5:36 
+7. City of Hurt – 5:02 
+8. Persistence – 4:22 
+9. The Velvet Remains – 4:16 
+10. Farewell to Devotion – 5:29 
+
+### "Wasteland Discotheque" 2008, Metalcore
+
+1. This Blackout Is Your Apocalypse - 2:20 
+2. Somewhere Along the Road - 4:12 
+3. The Bash - 4:41 
+4. Warriors - 4:14 
+5. Straight to Hell - 3:40 
+6. Welcome the Storm - 4:17 
+7. Wasteland Discotheque - 4:19 
+8. Somebody's Watching Me - 3:55 
+9. A Heavy Burden (feat. Lars Vognstrup) - 4:48 
+10. To the Lighthouse - 5:15 
+11. Showdown Recovery - 4:25 
+12. The Comfort in Leaving - 7:59 
+
+### "A Discord Electric" 2010, Metalcore
+
+1. Dim The Lights And Run - 5:25 
+2. Rumors Of Worship - 5:15 
+3. Nght Prty - 4:59 
+4. Street Empero - 5:33 
+5. Blueprints For Lost Sounds - 5:45 
+6. Shake Your Grave - 5:22 
+7. Tiger Crown - 5:56 
+8. Big Truth - 4:01 
+9. The Great Depression - 4:44 
+10. The Yeah Thing - 5:21 
+11. Ire Vampire - 5:18 
+12. Gunslingers And Tombstones - 7:14 
+
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,19 @@
 # Odd Dimension
 
-Дискография
-"Symmetrical" 2011, Progressive
+
+
+## Дискография
+
+### "Symmetrical" 2011, Progressive
+
+1. Farewell to the Stars	 
+2. Rising Through Light	 
+3. The Ecstasy of Hopes	 
+4. Another Shore	 
+5. The Day Meets the Night	 
+6. Light Speed Journey	 
+7. I'll Be Back Once More
+
 
 ## Отношения с другими группами
 

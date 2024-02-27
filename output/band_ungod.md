@@ -1,7 +1,26 @@
 # Ungod
 
-Дискография
-"Conquering What Once Was Ours" 1996, Black Metal
+
+
+## Дискография
+
+### "Conquering What Once Was Ours" 1996, Black Metal
+
+1. I,  Am The Chaos
+2. Firestorm, Ashes:Genocide
+3. Conquering What Once Was Ours
+4. Vita Reducta
+5. Anatomy Of Human Destructivity
+
+Produced By Bernd Korber
+
+Schiekron - Bass
+Martin - Chainsaw
+Anders - Drums
+Zvoni - Session Vocals
+
+(p)c 1996 SHIVER Records
+
 
 ## Отношения с другими группами
 

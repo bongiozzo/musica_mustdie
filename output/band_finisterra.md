@@ -1,7 +1,43 @@
 # Finisterra
 
-Дискография
-"Ais die Erde eine Scheibe war..." 2001, Folk
+German folk
+
+## Дискография
+
+### "Ais die Erde eine Scheibe war..." 2001, Folk
+
+1. Totus Floreo
+2. Skudrinka
+3. Schondlig
+4. Caro Ortolano
+5. Maledicantur Thyfie
+6. Vite Perdite
+7. Vite Perdite Tranx
+8. Stella Inferna
+9. Trommeln der Nacht
+10. Violencia
+11. Quid Habis?
+12. Seltsam im Nebel
+
+Malonius - bass, sackrpfeiffe, didgeridoo, feuerartistik
+Melianda - geige, e-viola, harfenleier
+Sabina, die Sarazenerin - gesang, trommeln, schellen, tanz & feuer
+Amsel von Nydeggen - sackpfeiffen, floten, schlmei, drehleier, fasten, chor
+Der Shafer - schlagzeug, e-sounds
+Junker Han - e-guitars, bass, schlagzeug
+Ron Nivenah - e-guitars, citolen, sackpfeiffe, synthi, gesang
+
+Digital aufgenommenen und gemixt von Oktober bis Dezember 2000 im
+Western Forest Grunge Studio
+Master und Remix der Titel 1,2 und 3 von Tobias Hahn, Nachtschicht Studio
+Produktion: Ron Nivenali
+musikalische Leitung: Norbert Hanewinkel
+Coveridee und Layout: Christian Kerstin
+Zusatzliche Instruments: Der "Bieger" (e-Gitarre), Stefan Sack (Geige),
+Thomas MacLaut (Drechleier), Benedikt Holker (E-Geige)
+
+(p) 2001 Trisol
+
 
 ## Отношения с другими группами
 

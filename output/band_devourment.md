@@ -1,9 +1,28 @@
 # Devourment
 
-Дискография
-"Molesting The Decapitated" 1999, Death Metal
-"Butcher The Weak" 2006, Death Metal
-"Unleash The Carnivore" 2009, Death Metal
+Classical brutal death with much blood and gore. Crazy growl also presented.
+
+## Дискография
+
+### "Molesting The Decapitated" 1999, Death Metal
+
+1. Festering Vomitous Mass 
+2. Postmortal Coprophagia 
+3. Choking On Bile 
+4. Molesting The Decapitated 
+5. Self Disembowlment 
+6. Fucked To Death 
+7. Devour The Damned 
+8. Shroud On Encryption 
+
+### "Butcher The Weak" 2006, Death Metal
+
+
+
+### "Unleash The Carnivore" 2009, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

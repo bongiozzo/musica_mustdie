@@ -1,7 +1,23 @@
 # Gust of Anger
 
-Дискография
-"Natural Hostility" 2000, Metal
+Angry metal from Latvia
+
+## Дискография
+
+### "Natural Hostility" 2000, Metal
+
+1 They Know it
+2 Control
+3 Levitate
+4 S.S.B.
+5 Eclipse
+6 That's My Truth
+7 Gust of Anger
+8 Church of Murders
+9 Decade of Decay
+10 Hangmen Parade
+11 I Hate You
+
 
 ## Отношения с другими группами
 

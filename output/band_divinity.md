@@ -1,7 +1,54 @@
 # Divinity
 
-Дискография
-"Allegory" 2008, Metalcore
+
+
+## Дискография
+
+### "Allegory" 2008, Metalcore
+
+01. Induce
+02. Power Control
+03. Plasma
+04. Methodic
+05. Modern Prophecy
+06. Strain
+07. The Unending
+08. Chasm
+09. The Diarist
+10. NeuroTyrant
+
+Sean Jenkins - Lead Vocals
+James Duncan - Guitars
+Brett Duncan - Drums
+Sacha Laskow - Lead Guitars, Vocals
+Nick Foster - Bass, Vocals
+
+Produced by sacha laskow & Divinity
+mixed & Mastered by tue madsen (www.antearm.dk)
+drums recorded at alchemy studio engineered by
+jeff muller
+Editing and sound replacement by Sagha laskow at
+walk as Chaos studio
+guitars bass and synths recorded at walk as chaos
+studio
+vocals & re-amping recorded at the beach studio
+(www.thebeachaijdio.com)
+vocals &.re-amp1ng engineered by grant howarth
+(www.outhouse.ca)
+ALBUM ARTWORK BY MATTIAS NOREN (WWW.PROGART.COM)
+logo & Symbol design by spina Studios
+(www.spinaonline.com)
+booklet design & layout by sean jenkins
+band photos by jim vyasalasko & christina varro
+(www.christinavarro.com)
+Synths & samples by sacha Laskow additional
+synths by tue Madsen
+piano Intro to 'the unending" by James Duncan
+Guest death vocals on tracks 1 2.3,7. 8. 10 BY:
+Greg musgrave (www.caveatmusic.com)
+Guest harmony vocals on tracks:2, :j. 7 by: Jerrod
+maxwell-lyster (www.myspace.com/autobodycalgary)
+
 
 ## Отношения с другими группами
 

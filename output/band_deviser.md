@@ -1,7 +1,37 @@
 # Deviser
 
-Дискография
-"Unspeakable Cults" 1997, Black Metal
+
+
+## Дискография
+
+### "Unspeakable Cults" 1997, Black Metal
+
+1.  Stand And Deliver
+2.  Darkness Incarnate
+3.  Threnody
+4.  When Nightmares Begin
+5.  The Rape Of Holiness
+6.  Ritual Orgy
+7.  Dangers Of A Real And Concrete Nature
+8.  The Fire Burning Bright 
+9.  In The Horror Field
+10.Afterkill
+
+Recorded and Mixed at Praxis Studios
+Engineered and Mixed by Coti K.
+Produced by DEVISER and Coti K.
+All music and lyrics by DEVISER
+
+Matt Hnaras - Vocals, Guitars
+George Triantafilakis - Guitars
+Nick Christogianis - Guitars, Backing
+Vocals, Keyboards
+Mike Tsembertzis - Drums
+All Drums on this album by Nick Samakouris.
+Female Vocals by Elena Katranzi and Penelope.
+
+(P)(C) 1997 MASCOT Records // M 7024
+
 
 ## Отношения с другими группами
 

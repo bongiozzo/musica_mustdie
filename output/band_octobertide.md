@@ -1,11 +1,89 @@
 # October Tide
 
-Дискография
-"Rain Without End" 1997, Death Doom
-"Grey Dawn" 1999, Death Doom
-"A Thin Shell" 2010, Death Doom
-"Tunnel of No Light" 2013, Death Doom
-"Winged Waltz" 2016, Death Doom
+
+
+## Дискография
+
+### "Rain Without End" 1997, Death Doom
+
+1. 12 Days of Rain 06:43  
+2. Ephemeral 06:22  
+3. All Painted Cold 05:45  
+4. Sightless 06:28  
+5. Losing Tomorrow 02:35 
+6. Blue Gallery 05:43  
+7. Infinite Submission 05:36 
+
+
+### "Grey Dawn" 1999, Death Doom
+
+1. Grey Dawn 04:28  
+2. October Insight 05:03  
+3. Sweetness Dies 05:45 
+4. Heart of the Dead 04:16 
+5. Floating 06:14 [
+6. Lost in the Dark (And Then Gone) 05:25  
+7. Into Deep Sleep 05:13  
+8. Dear Sun 03:32 
+
+
+J. Renske : Drums, electric and acoustic guitars
+Fredrik Norrman : Electric, acoustic and bass guitars
+Mеrten Hansen : Vocals
+
+A digipack version of the album is also available.
+
+Remastered and Re-Released by Peaceille in digipack format (2007) 
+
+### "A Thin Shell" 2010, Death Doom
+
+1. A Custodian Of Science 07:33  
+2. Deplorable Request 06:03  
+3. The Nighttime Project 04:32  
+4. Blackness Devours 05:15  
+5. The Dividing Line 05:43  
+6. Fragile 06:35  
+7. Scorned 06:33 
+
+
+Line-up:
+Tobias Netzell - Vocals
+Fredrik Norrman - Guitar
+Emil Alstermark - Guitar
+Robin Bergh - Drums
+
+Session:
+Jonas Kjellgren - Bass
+
+This album marks the band's newest material in over a decade. 
+
+### "Tunnel of No Light" 2013, Death Doom
+
+1. Of Wounds to Come  06:27  
+2. Our Constellation  08:37  
+3. Emptiness Fulfilled  06:57   
+4. Caught in Silence  04:45  
+5. The Day I Dissolved  04:58   
+6. Watching the Drowners  05:19   
+7. In Hopeless Pursuit  07:38   
+8. Adoring Ashes  07:02 
+
+Recorded, mixed and mastered May - Oct 2012 at Black Lounge Studios, Sweden.
+
+### "Winged Waltz" 2016, Death Doom
+
+1. Swarm  07:10    
+2. Sleepless Sun  06:10    
+3. Reckless Abandon  06:36 
+4. A Questioin Ignite  05:13  
+5. Nursed by the Cold  04:33    
+6. Lost in Rapture  05:45  
+7. Perilous  06:34  
+8. Coffins of November  08:24  
+
+Recorded, mixed and mastered at Wing Studios.
+
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,33 @@
 # December Moon
 
-Дискография
-"Source Of Origin" 1996, Black Metal
+
+
+## Дискография
+
+### "Source Of Origin" 1996, Black Metal
+
+1.  Exaltation Of Power
+2.  You Can't Bless The Damned
+3.  Nocturnal Transcendency 
+4.  Winter Sunset
+5.  Black Millenium
+6.  The Apparition Of Mother Earth
+7.  Twinned With Destiny
+8.  An Empty Gesture
+
+Produced & Engineered By
+Mags & DECEMBER MOON
+Recorded And Mixed At Academy Studios
+Cover DECEMBER MOON & Wowixstorm
+
+Rob - Vocals, Guitars, Bass, Keyboards
+Was - Drums, Percussion, Addditional Keyboards
+
+Additional Vocals Rachel (7)
+Additional Orchestration - Mags
+
+(P)c 1996 SPINEFARM Records // SPI-32
+
 
 ## Отношения с другими группами
 

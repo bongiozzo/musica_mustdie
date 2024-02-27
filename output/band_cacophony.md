@@ -1,8 +1,59 @@
 # Cacophony
 
-Дискография
-"Speed Metal Symphony" 1987, Instrumental
-"Go Off" 1989, Instrumental
+(Marty Friedman & Jason Becker band)
+
+## Дискография
+
+### "Speed Metal Symphony" 1987, Instrumental
+
+Savage 
+Where My Fortune Lies 
+The Ninja 
+Concerto 
+Burn the Ground 
+Desert Island 
+Speed Metal Symphony 
+
+
+Marty Friedman and Jason Becker: guitar, Atma Anur: drums, Peter Marrino: vocals.
+
+
+Available from Shrapnel Records.
+
+ 
+
+
+
+
+
+### "Go Off" 1989, Instrumental
+
+X Ray Eyes 
+E.S.P. 
+Stranger 
+Go Off! 
+Black Cat 
+Warrior 
+Floating World 
+Images 
+
+
+Jason Becker and Marty Friedman: guitar, Jimmy O’Shea: bass, Deen Castronovo: drums, Peter Marrino: vocals.
+
+"The song I am most proud of is 'Images.' It was inspired by Debussy. I had written words for it, but they were so silly Peter couldn't make anything out of them. There are some magical moments on this CD. Deen's drumming is incredible."
+
+Available from Shrapnel Records.
+
+ 
+
+
+
+
+
+
+
+
+
 
 ## Отношения с другими группами
 

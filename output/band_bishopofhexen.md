@@ -1,9 +1,42 @@
 # Bishop Of Hexen
 
-Дискография
-"Ancient Hymns of Legends & Lore" 1996, Black Metal
-"Archives of an Enchanted Philosophy" 1997, Black Metal
-"The Nightmarish Compositions" 2006, Black Metal
+
+
+## Дискография
+
+### "Ancient Hymns of Legends & Lore" 1996, Black Metal
+
+1. Intro: Revival of the Pact of Indictment 01:55  
+2. Penetrating Seduction of Pure Beautiful Innocence 05:39  
+3. The Surreal Touch Between Steel & Flesh 04:08  
+4. Lure My Spelled Emotions 05:41  
+5. To Begin the Quest Towards the Noble Dark Cause 04:36  
+6. Outro: The Fascinating Installment of Triumph 01:46
+
+### "Archives of an Enchanted Philosophy" 1997, Black Metal
+
+1. Crossing The Borders Between Light And Darkness 02:27  
+2. The Surreal Touch Between Steel And Flesh 04:33  
+3. Lure My Spelled Emotions 05:55 
+4. Wading Through Sensuous Journeys 10:00
+5. When A Witch Becomes A Pale Bride 07:38 
+6. Diaries Of Primeval Tragedies 07:12 
+7. To Begin The Quest Towards The Noble Dark Cause 05:03  
+8. The Fascinating Installment Of Triumph 02:02
+
+### "The Nightmarish Compositions" 2006, Black Metal
+
+1. Unveil The Curtain Of Sanity 01:17  
+2. Eyes Gaze To A Future Foreseen 06:34  
+3. A Serpentine Crave 06:19  
+4. Sleeping By Nightmares 01:16  
+5. Self Loathing Orchestration 05:56  
+6. Spiritual Soul Sunset 06:57  
+7. The Somber Grounds Of Truth 06:44  
+8. Stride The Corridors Of One's Mind 06:10  
+9. Velvet Demise 06:05  
+10. Dreaming...Damentia 02:04
+
 
 ## Отношения с другими группами
 

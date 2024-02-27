@@ -1,6 +1,9 @@
 # Autumn Equinox
 
-Дискография
+a progmetalband from the Netherlands
+
+## Дискография
+
 
 ## Отношения с другими группами
 

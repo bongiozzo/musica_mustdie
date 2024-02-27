@@ -1,9 +1,30 @@
 # Kaipa
 
-Дискография
-"Keyholder" 2003, Progressive
-"Mindrevolutions" 2005, Progressive
-"Angling Feelings" 2007, Progressive
+prog-rock
+
+## Дискография
+
+### "Keyholder" 2003, Progressive
+
+
+
+### "Mindrevolutions" 2005, Progressive
+
+1. The Dodger (8:09)
+2. Electric Leaves (4:13)
+3. Shadows Of Time (6:50)
+4. A Pair Of Sunbeams (5:19)
+5. Mindrevolutions (25:47)
+6. Flowing Free (3:53)
+7. Last Free Indian (7:27)
+8. Our Deepest Inner Shore (4:59)
+9. Timebomb (4:32)
+10. Remains Of The Day (8:02)
+
+### "Angling Feelings" 2007, Progressive
+
+
+
 
 ## Отношения с другими группами
 

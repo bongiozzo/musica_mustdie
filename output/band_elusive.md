@@ -1,8 +1,36 @@
 # Elusive
 
-Дискография
-"Destination Zero" 2001, Gothic
-"The Great Silence" 2005, Gothic
+Gothic-rock. Ex-Theatre Of tragedy
+
+## Дискография
+
+### "Destination Zero" 2001, Gothic
+
+Last Night 
+System Breakdown 
+Circle Never Ends 
+Tomorrow Gone 
+Pantheon 
+Lonley Satellite 
+Gemini 
+Asylum 
+Shadow Dance 
+
+
+### "The Great Silence" 2005, Gothic
+
+01. Ride
+02. End Of Trail
+03. Fading Rose
+04. Lost In The Rain
+05. The Great Silence
+06. You
+07. She`s A River
+08. Coming Home
+09. Summer
+10. Outskirts
+11. Passage
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,33 @@
 # Lilith
 
-Дискография
-"The Conquering of The Eternal Wisdom" 2000, Black Metal
-"Monolith" 2007, Black Metal
+
+
+## Дискография
+
+### "The Conquering of The Eternal Wisdom" 2000, Black Metal
+
+1. Tears From The Crystal Moon 03:57
+2. ...Towards The Limits of Death And Passion... 03:56
+3. Under The Lilith`s Spell 06:05
+4. The Conquering of The Eternal Wisdom, Part 1 04:38
+5. The Conquering of The Eternal Wisdom, Part 2 04:25
+6. Confessions 03:58
+7. ...Strange Sadness In Your Soul... 05:03
+8. Last Mirror 02:45 
+
+### "Monolith" 2007, Black Metal
+
+1. Blackheart 05:43
+2. Monolith Of Death 05:21
+3. Full Moon Pleasure 06:27
+4. Death By Tact 05:23 
+5. Master Of Chaos 07:14 
+6. Warriors From The Dark Side 05:08
+7. Ceremony Of Blood And Lust 04:32
+8. Equinox 04:17 
+9. Magick And The Serpent 05:34
+10. The Night And The Dark River 07:17 
+
 
 ## Отношения с другими группами
 

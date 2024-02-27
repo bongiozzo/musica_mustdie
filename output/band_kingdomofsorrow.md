@@ -1,8 +1,28 @@
 # Kingdom Of Sorrow
 
-Дискография
-"Kingdom Of Sorrow" 2008, Hardcore
-"Behind The Blackest Tears" 2010, Metal
+
+
+## Дискография
+
+### "Kingdom Of Sorrow" 2008, Hardcore
+
+
+
+### "Behind The Blackest Tears" 2010, Metal
+
+1. Enlightened To Extinction 3:47
+2. God's Law In The Devil's Land 3:56
+3. Monuments Of Ash 3:34
+4. Behind The Blackest Tears 3:07
+5. Envision The Divide 3:12
+6. From Heroes To Dust 3:46
+7. Along The Path To Ruin 4:07
+8. With Barely A Breath 3:42
+9. The Death We Owe 3:46
+10. Sleeping Beast 2:34
+11. Torchlight Procession 2:57
+12. Salvation Denied 2:08
+
 
 ## Отношения с другими группами
 

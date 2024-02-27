@@ -1,10 +1,70 @@
 # Imperia
 
-Дискография
-"The Ancient Dance Of Qetesh" 2004, Gothic
-"Queen Of Light" 2007, Gothic
-"Secret Passion" 2011, Gothic
-"Tears of Silence" 2015, Gothic
+
+
+## Дискография
+
+### "The Ancient Dance Of Qetesh" 2004, Gothic
+
+1. Awakening 03:33  
+2. Mysted By Desire 09:50  
+3. The Ancient Dance Of Qetesh 07:05  
+4. Mordor 08:40  
+5. Angelchild 03:45  
+6. Escape 09:40  
+7. Into Paradise 10:25  
+8. Entering The Perspective 08:13  
+9. Into The Great Wide Open 02:44  
+10. Secret Garden 05:32  
+11. Scared For Love 07:55  
+12. In Your Mind 07:16  
+13. Chill Out 03:45
+
+### "Queen Of Light" 2007, Gothic
+
+1. Mirror 04:33  
+2. Fly Like The Wind 04:58  
+3. Raped By The Devil 04:14  
+4. Broken Wings 06:32  
+5. Braveheart 05:36  
+6. Facing Reality 05:25  
+7. Norway 04:49  
+8. Abyssum 06:49  
+9. The Birth Of... 03:12  
+10. Queen Of Light 04:58  
+11. Fata Morgana 05:45  
+12. The Calling 05:50  
+13. Missing You 05:08 
+
+
+
+Helena Iren Michaelsen - Vocals and Choirs (ex-Trail of Tears, ex-Sahara Dust, Angel (Hol), Black Widow)
+Jan Yrlund - Guitars (Angel (Hol), ex-Prestige, ex-Ancient Rites, Danse Macabre, Two Witches, Lacrimosa, Satyrian, Delain)
+John Stam - Guitars (Angel (Hol))
+Gerry Verstreken - Bass (Angel (Hol), ex-Manic Movement, ex-Chemical Breath, ex-Excess of Cruelty)
+Steve Wolz - Drums (Angel (Hol), Bethlehem (Ger), ex-Deinonychus, ex-A-Rise, Silencer (Swe))
+Audun Gronnestad - Orchestration
+
+### "Secret Passion" 2011, Gothic
+
+01. Touch Of Your Hand
+02. Secret Passion
+03. Fragile
+04. Out Of Sight
+05. Let Down
+06. Violence
+07. Like Rain
+08. Suicide
+09. Hold On
+10. Greed
+11. Missing It All
+12. My Sleeping Angel
+13. Mistress (digipak bonus track)
+
+### "Tears of Silence" 2015, Gothic
+
+
+
 
 ## Отношения с другими группами
 

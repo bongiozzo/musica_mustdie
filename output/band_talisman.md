@@ -1,18 +1,200 @@
 # Talisman
 
-Дискография
-"Talisman" 1990, Hard Rock
-"Genesis" 1993, Hard Rock
-"Humanimal, Part 1" 1994, Hard Rock
-"Humanimal, Part 2" 1994, Hard Rock
-"Life" 1995, Hard Rock
-"5 Out Of 5" 1998, Hard Rock
-"Truth" 1998, Hard Rock
-"LIVE At Sweden Rock Festival" 2001, Hard Rock
-"Cats And Dogs" 2003, Hard Rock
-"Five men live (2CD)" 2005, Hard Rock
-"Worlds Best Kept Secret 2DVD" 2005, Hard Rock
-"7" 2006, Hard Rock
+(Swedish/American hard rock act, featuring former YNGWIE MALMSTEEN members Jeff Scott Soto (vocals) and Marcel Jacob (bass))
+
+## Дискография
+
+### "Talisman" 1990, Hard Rock
+
+
+
+### "Genesis" 1993, Hard Rock
+
+
+
+### "Humanimal, Part 1" 1994, Hard Rock
+
+
+
+### "Humanimal, Part 2" 1994, Hard Rock
+
+
+
+### "Life" 1995, Hard Rock
+
+
+
+### "5 Out Of 5" 1998, Hard Rock
+
+
+
+### "Truth" 1998, Hard Rock
+
+Let Me Entertain You
+In The End
+Here 2day, Gone 2day
+Darling Nikki
+I’ll B There 4 U
+The Man I’ll Never Be
+Bellabecca (instr.)
+Heaven’s Got Another Hero
+Your Man
+Frozen
+Until The Morning Comes
+Angel/devil
+Pavilion Of Oblivion
+Madison
+T 4 1 Ѕ (instr.)
+Heaven’s Got Another Hero (Demo)
+Here 2day, Gone 2day (Demo)
+
+### "LIVE At Sweden Rock Festival" 2001, Hard Rock
+
+Colour My XTC
+Fabricated War
+Mysterious
+Tainted Pages
+Tears In The Sky
+Crazy
+Here 2day, Gone 2day
+A life/Dangerous
+Body
+I’ll Be Waiting
+Break Your Chains
+Bass/Guitar Solo
+All Or Nothing
+Tie Your Mother Down
+I Am A Viking
+
+### "Cats And Dogs" 2003, Hard Rock
+
+Skin On Skin 
+Break It Down 
+In Make Believe 
+Love Will Come Again 
+Outta My Way 
+Friends To Stranger 
+Sorry 
+Trapped 
+M.O.M. 
+Wherever, Whenever, Whatever 
+Lost In The Wasteland 
+Hell In Paradise 
+
+
+### "Five men live (2CD)" 2005, Hard Rock
+
+CD1
+01. Break Your Chains
+02. Color My XTC
+03. Fabricated War
+04. Mysterious
+05. Skin On Skin
+06. Tears In The Sky
+07. Crazy
+08. In Make Believe
+09. Scream Of Anger
+10. If Only You Would Me My Friend
+11. Break It Down Again
+12. I`ll Be Waiting
+13. NJBBWD
+14. Outta My Way
+15. Fredrik Akesson
+16. Standing On Fire
+17. I Don`t Know
+
+
+CD2
+01. Break Your Chains
+02. Color My XTC
+03. Fabricated War
+04. Tears In The Sky
+05. Crazy
+06. Break It Down Again
+07. Mysterious
+08. Standing On Fire
+09. In Make Believe
+10. I`ll Be Waiting
+
+### "Worlds Best Kept Secret 2DVD" 2005, Hard Rock
+
+DVD1
+Mondo
+Recorded live at Club Mondo Stockholm, Sweden -
+August 2003
+01. Break Your Chains
+02. Color My Xtc
+03. Fabricated War
+04. Mysterious
+05. Skin On Skin
+06. Tears In The Sky
+07. Break It Down Again
+08. In Make Believe
+09. Scream Of Anger
+10. If You Would Only Be My Friend
+11. I’ll Be Waiting
+12. Outta My Way
+13. Standing On Fire.
+
+Sweden Rock Festival
+Recorded live at Sweden Rock Festival, Solvesborg,
+Sweden - June 2003
+14. Break Your Chains
+15. Color My Xtc
+16. Fabricated War
+17. Tears In The Sky
+18. Crazy
+19. Break It Down Again
+20. Mysterious
+21. Standing On Fire
+22. In Make Believe
+23. I’ll Be Waiting
+
+Bonus Features
+Multi-angle Concert Videos:
+24. Mysterious
+25. If You Would Only Be My Friend
+26. Outta My Way
+
+Lyric subtitles for Club Mondo concert.
+
+DVD2
+Retrospect – The Movie – including:
+27. I’ll Be Waiting (Video)
+28. Just Between Us (Video)
+29. Mysterious (Video)
+30. Time After Time (Live In Japan, 1993)
+31. Comin’ Home (Live In Japan, 1993)
+32. All Or Nothing (Live In Japan, 1993)
+33. Color My Xtc (Video)
+34. Here 2day, Gone 2day (Live At Sweden Rock
+Festival, 2001)
+35. Body (Live At Sweden Rock Festival, 2001)
+36. Fabricated War (Live At Lokerse Feesten, 2003)
+37. Tears In The Sky (Live At Lokerse Feesten,
+2003)
+38. Crazy (Live At Lokerse Feesten, 2003)
+39. Skin On Skin (Video)
+40. Outta My Way (Live At Lokerse Feesten, 2003)
+41. In Make Believe (Video).
+Bonus Features
+Discography; Shred Video; Naked Bassplayer; DVD
+credits (featuring "Eating My BLT 2004")
+
+### "7" 2006, Hard Rock
+
+1. Falling
+2. Nowhere Fast
+3. Rhyme Or Reason
+4. End Of The Line
+5. The 1 I'm Living 4
+6. On My Way
+7. Forevermore
+8. Succumb 2 My Desire
+9. Shed A Fear Goodbye
+10. Troubled Water
+11. Back 2 The Feeling
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,13 @@
 # Victim
 
-Дискография
-"Cocktail of Brutality / Faces Of Death" 2002, Death Metal
+
+
+## Дискография
+
+### "Cocktail of Brutality / Faces Of Death" 2002, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,12 +1,81 @@
 # Forgotten Sunrise
 
-Дискография
-"Behind The Abysmal Sky-demo" 1993, Death Doom
-"Forever Sleeping Greystones" 1994, Death Doom
-"Forgotten Sunrise" 1998, Metal
-"a.Nimal f.Lesh - Looma Liha (mini-CD)" 2001, Metal
-"Ple:se Disco-Nnect Me" 2003, Metal
-"Ru:mipu:dus" 2004, Metal
+Electro/Synth Metal
+
+## Дискография
+
+### "Behind The Abysmal Sky-demo" 1993, Death Doom
+
+1. Intro : Sunrise
+2. Rottening Art
+3. Alive In The Grave
+4. Indifference
+5. Son Of Sun
+6. Knock-Outro : Solstice
+
+
+
+### "Forever Sleeping Greystones" 1994, Death Doom
+
+1. Unknown Land Of Silence
+2. Ode To The Depressice Timedance
+3. Enjoyment Of Sunrise
+4. In Your Eyes
+
+### "Forgotten Sunrise" 1998, Metal
+
+1. Waves & Flames
+2. Hero-In-Gre:npiece
+3. Into Flesh I Was Born
+4. Sombrefog
+5. Midwinter Dreamlights
+6. Sombrefog (Plastic Wrapper RMX By El Diablo)
+7. Hero-In-Gre:npiece (Soft Switch RMX By The Alchemist)
+8. Into Flesh I Was Born (Come Upon RMX By El Diablo)
+
+
+
+### "a.Nimal f.Lesh - Looma Liha (mini-CD)" 2001, Metal
+
+1. K-Os Tik-Tak
+2. Vhatsoewer
+3. Surroundcosmos
+4. My First Day Was My Birthday
+5. Christ Your Name
+6. Surroundcosmos (Clean Version)
+7. K-os Tik-Tak (End Of The Reverse Side RMX By Karmo Koppel)
+8. Christ Your Name (Drastic RMX By Karmo Koppel)
+
+### "Ple:se Disco-Nnect Me" 2003, Metal
+
+1. Clean Version
+2. Device Remix By Device
+3. Off_Line Remix By Unidentified
+4. Death By Pop-Gun Remix By Bongirl
+5. Clean Sucks Remix By Jubei
+6. Vocal Up Remix By Cyclone B
+7. Device Easy Feeling Remix By Device
+8. Second Face Remix By Mess Twice
+9. Galaktlan Remix By Galaktlan
+10. Diskonekt "Long Time Dead" Remix By GGFH
+11. Dirty Socks Remix By Jubei
+12. Disconnected Remix By Dj Brain
+13. Original Version
+
+### "Ru:mipu:dus" 2004, Metal
+
+1. Outumnyo:nic
+2. Never(k)now
+3. The Doubletalker & The Sle:perspe:ker
+4. Vhatsoewer
+5. (Life) 24H
+6. Surroundcosmos
+7. Into Flesh I Was Born
+8. Thou-Sand-Men
+9. Ple:se Disco-nnect Me
+10. Over The Deathbringer Stars
+11. The Doubletalker & The Sle:perspe:ker - Rage Filled
+
 
 ## Отношения с другими группами
 

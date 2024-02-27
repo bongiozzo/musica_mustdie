@@ -1,10 +1,98 @@
 # Grip Inc.
 
-Дискография
-"Power Of Inner Strench" 1995, Thrash
-"Nemesis" 1997, Thrash
-"Solidify" 1999, Thrash
-"Incorporated" 2004, Thrash
+(Dave Lombardo project)
+
+## Дискография
+
+### "Power Of Inner Strench" 1995, Thrash
+
+1. Toque De Muerto
+2. Savage Seas (Retribution)
+3. Hostage To Heaven
+4. Monster Among Us
+5. Guilty Of Innocence
+6. Innate Affliction
+7. Colors Of Death
+8. Ostracized
+9. Cleanse The Seed
+10.Heretic War Chant
+11.Longest Hate
+
+Gus Chambers - Lead Vocals
+Waldemar Sorychta - Guitars, Vocals
+Jason Viebrooks - Bass
+Dave Lombardo - Drums, Percussion
+
+Produced By Waldemar Sorychta & GRIP Inc.
+Engineered By Siggi Bemm
+Recorded & Mixed At The Woodhouse Studios, Hagen, Germany In Oct./Nov. 1994
+
+(p)&(c) 1995 STEAMHAMMER Records
+
+### "Nemesis" 1997, Thrash
+
+1.  Pathetic Liar
+2.  Portrait Of Hendry
+3.  Empress (Of Rancor)
+4.  Descending Darkness
+5.  War Between One
+6.  Scream At The Sky
+7.  Silent Stranger
+8.  The Summoning
+9.  Rusty Nail
+10.Myth Or Man
+11.Code Of Silence
+
+Gus Chambers - Lead Vocals
+Waldemar Sorychta - Guitars, Keyboards
+Jason Viebrooks - Bass
+Dave Lombardo - Drums, Percussion
+
+Produced By Waldemar Sorychta & GRIP INC.
+Engineered By Siggi Bemm
+Recorded & Mixed At The Woodhouse Studios, Hagen, Germany.
+
+(P)(C) 1997 STEAMHAMMER Records
+
+### "Solidify" 1999, Thrash
+
+1. Isolation		3:38
+2. Amped		4:19
+3. Lockdown		4:01
+4. Griefless		6:05
+5. Foresight		3:47
+6. Human?		4:51
+7. Vindicate		4:18
+8. Stresscase		2:58
+9. Challenge		3:13
+10. Verrater (Betrayer) 4:10
+
+All Songs written by Grip Inc.
+Produced by Waldemar Sorychta and GRIP INC.
+Engineered by Siggi Bemm
+Recorded and Mixed at Woodhouse Studios, Hagen, Germany
+
+Gus Chambers - Vocals
+Waldemar Sorychta - Guitars, Keyboards
+Stuart Carruthers - Bass
+Dave Lombardo - Drums, Percussion
+
+(p)(c)1999 STEAMHAMMER
+
+### "Incorporated" 2004, Thrash
+
+1. Curse (Of the Cloth) 
+2. The Answer 
+3. Prophecy 
+4. Endowment of Apathy 
+5. Enemy Mind 
+6. Skin Trade 
+7. (Built to) Resist 
+8. The Gift 
+9. Privilege 
+10. Blood of Saints 
+11. Man with NO Insides
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,24 @@
 # Lightning Swords Of Death
 
-Дискография
-"The Golden Plague" 2007, Black Metal
-"The Extra Dimensional Wound" 2010, Black Metal
+
+
+## Дискография
+
+### "The Golden Plague" 2007, Black Metal
+
+
+
+### "The Extra Dimensional Wound" 2010, Black Metal
+
+1. The Extra Dimensional Wound  06:12   
+2. Nihilistic Stench  03:32   
+3. Invoke the Desolate One  04:15
+4. Zwartgallig  02:03 
+5. Damnation Pentastrike  06:28    
+6. Venter of the Black Beast  05:54 
+7. Vorticating Into Scars  03:55
+8. Paths to Chaos  11:49 
+
 
 ## Отношения с другими группами
 

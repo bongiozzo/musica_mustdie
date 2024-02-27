@@ -1,12 +1,33 @@
 # Deathwitch
 
-Дискография
-"Triumphant Devastation" 1996, Death Metal
-"Dawn of Armageddon" 1997, Death Metal
-"The Ultimate Death" 1998, Death Metal
-"Monumental Mutilations" 1999, Death Metal
-"Deathfuck Rituals" 2002, Death Metal
-"Violence Blasphemy Sodomy" 2003, Death Metal
+death metal
+
+## Дискография
+
+### "Triumphant Devastation" 1996, Death Metal
+
+
+
+### "Dawn of Armageddon" 1997, Death Metal
+
+
+
+### "The Ultimate Death" 1998, Death Metal
+
+
+
+### "Monumental Mutilations" 1999, Death Metal
+
+
+
+### "Deathfuck Rituals" 2002, Death Metal
+
+
+
+### "Violence Blasphemy Sodomy" 2003, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

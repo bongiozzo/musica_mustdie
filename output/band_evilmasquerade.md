@@ -1,11 +1,96 @@
 # Evil Masquerade
 
-Дискография
-"Welcome To The Show" 2004, Heavy Metal
-"Theatrical Madness" 2005, Heavy Metal
-"Third Act" 2006, Heavy Metal
-"Fade To Black" 2009, Heavy Metal
-"Pentagram" 2012, Heavy Metal
+neo-classic power metal
+
+## Дискография
+
+### "Welcome To The Show" 2004, Heavy Metal
+
+01. Intro (Ride Of The Valkyries / Grand Opening) 
+02. Welcome To The Show 
+03. The Wind Will Rise 
+04. Oh Harlequin 
+05. Surprises In The Dark 
+06. But You Were Smiling 
+07. Children Of The Light 
+08. Lucy The Evil 
+09. Badinerie (Bonus Track) 
+10. Deliver Us 
+11. Evil Masquerade 
+
+Line Up: 
+Henrik Brockmann - Lead & Background Vocals 
+Henrik Flyman - Guitar 
+Kasper Gram - Bass 
+Dennis Buhl - Drums 
+
+Keyboards: Mats Olausson, Richard Andersson, Andrи Andersen, Lars Boutrup
+
+### "Theatrical Madness" 2005, Heavy Metal
+
+1. When Satan Calls
+2. Theatrical Madness
+3. Bozo the Clown
+4. Now When Our Stars Are Fading
+5. A Great Day to Die
+6. Demolition Army
+7. Snow White
+8. Witches Chant
+9. Other Ways to Babylon
+10. The Dark Play
+11. Outro
+
+### "Third Act" 2006, Heavy Metal
+
+1. The Devil's Last Temptation
+2. Third Act
+3. Black Ravens Cry
+4. Descended From The Grave
+5. Far Away
+6. The Dark Minstrel Plays
+7. I'll Make You Burn
+8. Under The Surface Of Water
+9. Orchestration For More Than One Horn
+10. Bring On The World
+11. The Final Goodbye
+
+### "Fade To Black" 2009, Heavy Metal
+
+1. Lights Out 05:12  
+2. In a Dungeon Close to Hell 03:32  
+3. The Darkness Within 03:52  
+4. Hollow Soul 03:40  
+5. Different Shades of Black 03:13  
+6. Powertools 03:43  
+7. The Ultimate Game 04:20  
+8. Desire and Pain 05:20  
+9. Diamond Dust 03:56  
+10. I Believe In Sin 07:10 
+11. In My Northern Dreams 1:30 
+
+
+Line-up:
+Apollo Papathanasio (Firewind) - Vocals
+Henrik Flyman - Guitar
+Johan Niemann (Therion, Demonoid) - Bass
+Tony Carey (Rainbow) - Keyboards
+Daniel Flores (Mind's Eye) - Drums
+
+### "Pentagram" 2012, Heavy Metal
+
+1.	 Pentagram	04:12	 
+2.	 A Silhouette	03:51	 
+3.	 Perfect Disgrace	03:26	 
+4.	 The Spirits of the Dead	04:13	 
+5.	 Moonlight Fantasy	03:02	 
+6.	 Unholy Water	03:49	 
+7.	 Pray For Mercy On Our Souls	03:32	 
+8.	 Soul Taker	04:36	 
+9.	 On a Bed of Thorns	04:20	 
+10.	 Strangers Might Fool Ya'	02:10	 
+11.	 When the Fire Dies	03:32	 
+12.	 The Golden Ratio	01:08
+
 
 ## Отношения с другими группами
 

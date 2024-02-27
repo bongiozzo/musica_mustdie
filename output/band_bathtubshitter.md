@@ -1,6 +1,9 @@
 # Bathtub Shitter
 
-Дискография
+japanese raging grindcore
+
+## Дискография
+
 
 ## Отношения с другими группами
 

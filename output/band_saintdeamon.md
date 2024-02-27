@@ -1,8 +1,38 @@
 # Saint Deamon
 
-Дискография
-"In Shadows Lost From The Brave" 2008, Progressive
-"Pandeamonium" 2009, Progressive
+
+
+## Дискография
+
+### "In Shadows Lost From The Brave" 2008, Progressive
+
+1. The Exodus 00:51  
+2. My Judas 04:55
+3. In Shadows Lost From The Brave 03:52
+4. My Heart 03:51 
+5. The Burden 03:58
+6. No Mans Land 05:12
+7. Ride Forever 02:52 
+8. Black Symphony 02:47 
+9. Deamons 03:49
+10. The Brave Never Bleeds 05:09
+11. My Sorrow 03:19 
+12. Run For Your Life 05:00 
+
+### "Pandeamonium" 2009, Progressive
+
+1. Deception 03:54
+2. The Only One Sane 03:07
+3. Pandeamonium 04:03 
+4. Eyes of the Devil 03:12
+5. A Day to Come 04:34
+6. Way Home 02:53
+7. Fallen Angel 04:03
+8. The Deamon Within 03:48
+9. Oceans of Glory 04:33
+10. Fear in a Fragile Mind 04:58
+11. Pandeamonium (Video) 
+
 
 ## Отношения с другими группами
 

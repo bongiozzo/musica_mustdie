@@ -1,9 +1,35 @@
 # Death Mechanism
 
-Дискография
-"Human Error .. Global Terror" 2008, Thrash
-"Mass Slavery" 2010, Thrash
-"Twenty-First Century" 2013, Thrash
+
+
+## Дискография
+
+### "Human Error .. Global Terror" 2008, Thrash
+
+1. Intro 00:28 
+2. Anthropic Collapse 03:14 
+3. Necrotechnology 03:50 
+4. Blood Engine 03:18 
+5. Genuin-cide 03:22 
+6. Contaminated Soil 04:03 
+7. Unknown Pathology 02:48 
+8. A Good Reason to Kill 03:30 
+9. The Trail Path of Peace 03:59 
+10. War Mechanism 03:13 
+11. Slaughter in the Jet-Set 02:32 
+
+Pozza: Guitar, Vocals
+Simone: Bass
+Manu: Drums
+
+### "Mass Slavery" 2010, Thrash
+
+
+
+### "Twenty-First Century" 2013, Thrash
+
+
+
 
 ## Отношения с другими группами
 

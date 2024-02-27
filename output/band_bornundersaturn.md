@@ -1,6 +1,9 @@
 # Born Under Saturn
 
-Дискография
+grind/powerviolence
+
+## Дискография
+
 
 ## Отношения с другими группами
 

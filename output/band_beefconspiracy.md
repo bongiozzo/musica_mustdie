@@ -1,6 +1,9 @@
 # Beef Conspiracy
 
-Дискография
+british brutal beefy blastin bovine death metal
+
+## Дискография
+
 
 ## Отношения с другими группами
 

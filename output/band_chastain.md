@@ -1,17 +1,119 @@
 # Chastain
 
-Дискография
-"Mystery Of Illusion" 1985, Heavy Metal
-"Ruler Of The Wasteland" 1986, Heavy Metal
-"The 7th Of Never" 1987, Heavy Metal
-"The Voice Of The Cult" 1987, Heavy Metal
-"For Those Who Dare" 1990, Heavy Metal
-"Sick Society" 1995, Heavy Metal
-"In Dementia" 1997, Heavy Metal
-"In An Outrage" 2004, Heavy Metal
-"The Reign Of Leather (Compilation)" 2010, Heavy Metal
-"Surrender To No One" 2012, Heavy Metal
-"We Bleed Metal" 2015, Heavy Metal
+
+
+## Дискография
+
+### "Mystery Of Illusion" 1985, Heavy Metal
+
+1) Black Knight 
+2) When The Battle's Over 
+3) Mystery of Illusion 
+4) I've seen Tomorrow 
+5) Endlessly 
+6) I Fear No Evil 
+7) Night of The Gods 
+8) We Shall Overcome 
+9) The Winds of Change 
+
+The musicians are: 
+David T. Chastain - Guitars 
+Leather - Vocals 
+Mike Skimmerhorn - Bass 
+Fred Coury - Drums
+
+### "Ruler Of The Wasteland" 1986, Heavy Metal
+
+
+
+### "The 7th Of Never" 1987, Heavy Metal
+
+1) We Must Carry On 
+2) Paradise 
+3) It's Too Late For Yesterday 
+4) 827 
+5) The Wicked Are Restless 
+6) The 7th of Never 
+7) Take Me Back In Time 
+8) Feel His Magic 
+9) Forevermore 
+
+The musicians are: 
+David T. Chastain - Guitars 
+Leather Leone- Vocals 
+Mike Skimmerhorn - Bass 
+Ken Mary - Drums
+
+### "The Voice Of The Cult" 1987, Heavy Metal
+
+
+
+### "For Those Who Dare" 1990, Heavy Metal
+
+
+
+### "Sick Society" 1995, Heavy Metal
+
+
+01. I Know The Darkness 
+02. Sick Society 
+03. Violence In Blame 
+04. Those Were The Daze 
+05. Destructive Ground 
+06. To The Edge 
+07. The Price Of War 
+08. Every Emotion 
+09. The Vampire 
+10. Sugarcaine 
+11. Love And Hate 
+12. Angel Falls
+
+### "In Dementia" 1997, Heavy Metal
+
+01. Human Sacrifice 
+02. Blackening 
+03. Seven 
+04. Sick Puppy 
+05. Tongues 
+06. In Dementia 
+07. House of Stone 
+08. Conformity 
+09. Desperately
+
+### "In An Outrage" 2004, Heavy Metal
+
+
+
+### "The Reign Of Leather (Compilation)" 2010, Heavy Metal
+
+
+
+### "Surrender To No One" 2012, Heavy Metal
+
+01. Stand And Fight
+02. Call Of The Wild
+03. Deep Down In The Darkness
+04. Freedom Within
+05. I Am Sin
+06. Rise Up
+07. Evil Awaits Us
+08. Fear My Wrath
+09. Save Me Tonight
+10. Surrender To No One
+11. Bleed Through Me
+
+### "We Bleed Metal" 2015, Heavy Metal
+
+1. We Bleed Metal
+2. All Hail The King
+3. Against All The Gods
+4. Search Time For You
+5. Don't Trust Tomorrow
+6. I Am A Warrior
+7. Evolution Of Terror
+8. Last Ones Alive
+9. Secrets
+
 
 ## Отношения с другими группами
 

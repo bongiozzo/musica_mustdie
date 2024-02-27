@@ -1,8 +1,35 @@
 # Vicious
 
-Дискография
-"Vile, Vicious & Victorious" 2004, Thrash
-"Emotionally Disqualified" 2008, Thrash
+
+
+## Дискография
+
+### "Vile, Vicious & Victorious" 2004, Thrash
+
+01. Beast
+02. Trigger Needs Some Action
+03. High On Fire
+04. Deadicate
+05. Life Corrupted
+06. Deathrash
+07. Boots Of Led
+08. A Vicious Mind
+09. The Feeder Of Evil
+
+### "Emotionally Disqualified" 2008, Thrash
+
+1. Insomniac 
+2. I Fucked It Up 
+3. Parallel Paranoia	 
+4. Dominate	 
+5. Root Of Extinsion	 
+6. Fist Fight Fever	 
+7. Agony	 
+8. Watch Them Bleed	 
+9. Fire Is The Cleanser	 
+10. Frantic 
+11. Reason To Despise
+
 
 ## Отношения с другими группами
 

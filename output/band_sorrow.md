@@ -1,7 +1,35 @@
 # Sorrow
 
-Дискография
-"Hatred And Disgust" 1992, Death Metal
+
+
+## Дискография
+
+### "Hatred And Disgust" 1992, Death Metal
+
+1. Insatiable
+2. Forced Repression
+3. Illusion Of Freedom
+4. Human Error
+5. Separative Adjectives
+6. Unjustified Reluctance
+
+ Andy Marchione - Vocals,Bass
+ Billy Rogan - Guitar
+ Mike Hymson - Drums
+ Brett Clarin - Guitar.
+
+Produced By SORROW And Steve Koslowski.
+Engineered By Steve Koslowski.
+Mixed By SORROW and Steve Koslowski.
+Recorded And Mixed At Speed Of Sound Recording,
+Franklin Square,New York.
+Mastered By Chris Gehringer At The Hit Factory DMS,
+New York,New York.
+
+(p) 1992 THE ALL BLACKS B.V. - ROADRUNNER PRODUCTIONS B.V.
+(c) 1992 THE ALL BLACKS B.V.
+
+
 
 ## Отношения с другими группами
 

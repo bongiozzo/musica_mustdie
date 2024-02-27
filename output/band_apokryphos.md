@@ -1,7 +1,19 @@
 # Apokryphos
 
-Дискография
-"Insight" 2006, Death Doom
+
+
+## Дискография
+
+### "Insight" 2006, Death Doom
+
+01. Dr. Pain
+02. Mons Parturibat
+03. Damnation
+04. Садизм
+05. Apokryphos - Cult
+06. Ты Безумен
+07. Insight
+
 
 ## Отношения с другими группами
 

@@ -1,13 +1,108 @@
 # The Duskfall
 
-Дискография
-"Tears are soulash (promo)" 2000, Melodic Death Metal
-"Deliverance (promo)" 2001, Melodic Death Metal
-"Frailty" 2002, Melodic Death Metal
-"Source" 2003, Melodic Death Metal
-"Lifetime Supply of Guilt" 2005, Melodic Death Metal
-"The Dying Wonders of the World" 2007, Melodic Death Metal
-"Where the Tree Stands Dead" 2014, Melodic Death Metal
+Melodic Death Metal from Sweden (Ex-Gates Of Ishtar)
+
+## Дискография
+
+### "Tears are soulash (promo)" 2000, Melodic Death Metal
+
+
+
+### "Deliverance (promo)" 2001, Melodic Death Metal
+
+1. Dawnskies
+2. None
+3. Taking Control
+4. Youґre The Light
+5. Tune Of Slaughtered Hearts
+
+### "Frailty" 2002, Melodic Death Metal
+
+01. The Light
+02. Age Of Errors
+03. Agoraphobic
+04. Poison The Waters
+05. None
+06. Farewell Song
+07. Frailty
+08. Tune Of Slaughtered Hearts
+09. Just Follow
+10. Deliverance 
+
+
+Kai Jaakkola - Vocals
+Mikael Sandorf - Lead Guitars
+Kaj Molin - Bass
+Oskar Karlsson - Drums
+Glenn Svensson - Guitars
+
+
+
+### "Source" 2003, Melodic Death Metal
+
+1. Case Closed
+2. Striving To Have Nothing
+3. The Grand Scheme
+4. Source
+5. Not A Good Sign
+6. Guidance
+7. Lead Astray
+8. The Destroyer
+
+### "Lifetime Supply of Guilt" 2005, Melodic Death Metal
+
+1. Trust Is Overrated
+2. The Shallow End
+3. Break The Pact 
+4. A Stubborn Soul
+5. Shoot It In
+6. Going Down Screaming
+7. Hours Are Wasted
+8. Sympathy Has Decreased
+9. Downright Dreadful
+10. Relive Your Fall
+
+### "The Dying Wonders of the World" 2007, Melodic Death Metal
+
+1. Paradises into Deserts 04:27  
+2. The Wheel and the Blacklight 03:48  
+3. Deep in Your World 04:19  
+4. Some More Sin on My Burden 04:26  
+5. Shadows and Cancer 04:44  
+6. Bring Us Your Infected 05:12  
+7. The Option and The Poison 04:36  
+8. Sealed with a Fist 03:51  
+9. I've Only Got Knives for You 06:14
+
+
+Kai Jaakkola - Vocals 
+Mikael Sandorf - Guitars 
+Oskar Karlsson - Drums 
+Antti Lindholm - Guitars
+Matte Jornil - Bass
+
+### "Where the Tree Stands Dead" 2014, Melodic Death Metal
+
+1. To the Pigs  03:15  
+2. Farewell  04:16    
+3. I Can Kill You  04:12    
+4. Where the Tree Stands Dead  03:32    
+5. We the Freaks  04:09    
+6. Endgame  04:04    
+7. Hate for Your God  04:32    
+8. The Charade  03:45    
+9. Burn Your Ghosts  03:44    
+10. Travesty  03:45    
+11. We Bleed  03:49  
+
+
+Mikael Sandorf - Guitars  
+Jonatan Storm - Bass  
+Fredrik Andersson - Drums  
+Ronny Edlund - Guitars  
+Magnus Klavborn - Vocals  
+
+
 
 ## Отношения с другими группами
 

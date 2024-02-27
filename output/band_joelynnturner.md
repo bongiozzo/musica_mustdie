@@ -1,12 +1,80 @@
 # Joe Lynn Turner
 
-Дискография
-"Under Cover" 1997, Hard Rock
-"Hurry Up & Wait [Germany]" 1999, Hard Rock
-"Under Cover 2" 1999, Hard Rock
-"Holy Man" 2000, Hard Rock
-"Usual Suspects" 2005, Hard Rock
-"Second Hand Life" 2007, Hard Rock
+(ex-Deep Purple, Rainbow and Yngwie Malmsteen vocalist)
+
+## Дискография
+
+### "Under Cover" 1997, Hard Rock
+
+1 We're an American Band 3:32 (Turner, Joe Lynn) 
+2 Freedom 4:04 (Turner, Joe Lynn) 
+3 Fire and Water 4:57 (Turner, Joe Lynn) 
+4 Street of Dreams 5:14 (Turner, Joe Lynn) 
+5 Fortunate Son 3:34 (Turner, Joe Lynn) 
+6 Vehicle 2:56 (Turner, Joe Lynn) 
+7 Hush 4:11 (Turner, Joe Lynn) 
+8 Unchained Melody 3:49 (Turner, Joe Lynn) 
+9 Chained 3:40 (Turner, Joe Lynn) 
+10 Gimmie Some Lovin'/I'm a Man 6:44 (Turner, Joe Lynn) 
+11 Thief in the Night 3:49 (Turner, Joe Lynn) 
+12 Deal with the Preacher 4:51 (Turner, Joe Lynn) 
+13 Sunshine of Your Love 4:16 (Turner, Joe Lynn) 
+
+
+
+### "Hurry Up & Wait [Germany]" 1999, Hard Rock
+
+
+
+### "Under Cover 2" 1999, Hard Rock
+
+1 Lady Double Dealer 4:02 
+2 Helter Skelter 3:43  
+3 Born to Be Wild 6:04 
+4 Wishing Well 3:33 
+5 Fool for Your Loving 4:41 
+6 Rock and Roll Hootchie Koo 3:19 
+7 Boys Are Back in Town 3:46 
+8 Waiting for a Girl Like You 4:23 
+9 Movin' On 4:03 
+10 Race Is On 3:31 
+11 Lost in Hollywood 4:02
+12 Mississippi Queen 2:28 
+13 Rock Bottom 4:29 
+
+
+### "Holy Man" 2000, Hard Rock
+
+
+
+### "Usual Suspects" 2005, Hard Rock
+
+1. Power Of Love
+2. Devil's Door  
+3. Jacknife
+4. Really Loved
+5. Rest Of My Life
+6. Into The Fire
+7. Blood Money
+8. All Alone
+9. Ball And Chain
+10. Live And Love Again
+11. Unfinished Bizness (European bonus track)
+
+### "Second Hand Life" 2007, Hard Rock
+
+1. Love is Life
+2. Got Me Where You Want Me
+3. Second Hand Life
+4. In Your Eyes
+5. Blood Red Sky 
+6. Stroke of Midnight 
+7. Over the Top
+8. Cruel
+9. Sweet Obsession
+10. Love Is On Our Side
+11. Two Lights (European exclusive bonus track)
+
 
 ## Отношения с другими группами
 

@@ -1,13 +1,78 @@
 # Electric Wizard
 
-Дискография
-"Electric Wizard" 1995, Stoner
-"Come My Fanatics..." 1997, Stoner
-"Dopethrone" 2000, Stoner
-"Let Us Prey" 2002, Stoner
-"We Live" 2004, Stoner
-"Witchcult Today" 2007, Stoner
-"Black Masses" 2010, Stoner
+Classic Doom a-la Black Sabbath & Cathedral
+
+## Дискография
+
+### "Electric Wizard" 1995, Stoner
+
+1.   Stone Magnet - 4:55 
+2.   Mourning Prayer - 5:08 
+3.   Mountains of Mars - 3:46 
+4.   Behemoth - 8:55 
+5.   Devil's Bride - 6:30 
+6.   Black Butterfly - 8:21 
+7.   Electric Wizard - 9:50 
+
+### "Come My Fanatics..." 1997, Stoner
+
+1.  Return Trip
+2.  Wizard In Black
+3.  Doom-Mantia
+4.  Ivixor B - Phase Inducer
+5.  Son Of Nothing
+6.  Solarian 13
+
+Recorded and Mixed at Red Dog Studios
+Produced and Mixed by Rolk Startia, Mike Hurst and Jus Oborn.
+All music by EW
+All lyrics by Jus Obom
+
+Jus Oborn - Guitars, Vocals, Effects
+Tim Bagshaw - Bass, Effects
+Mark Greening - Drums, Concussion
+
+(P)(C) 1997 RISE ABOVE Records // RISE 14
+
+### "Dopethrone" 2000, Stoner
+
+  1.   Vinum Sabbathi (Oborn) - 3:06 
+  2.   Funeralopolis (Oborn) - 8:43 
+  3.   Weird Tales/Electric Frost/Golgotha/Altar... (Oborn) - 15:04 
+  4.   Barbarian (Oborn) - 6:29 
+  5.   I, the Witchfinder (Oborn) - 11:03 
+  6.   The Hills Hve Eyes (Oborn) - 0:47 
+  7.   We Hate You (Oborn) - 5:08 
+  8.   Dopethrone (Oborn) - 20:48 
+
+
+Hugh Gilmour  -  Artwork, Design, Photography 
+Tom Bagshaw  -  Cover Art 
+
+
+### "Let Us Prey" 2002, Stoner
+
+
+
+### "We Live" 2004, Stoner
+
+
+
+### "Witchcult Today" 2007, Stoner
+
+
+
+### "Black Masses" 2010, Stoner
+
+01. Black Mass 6:06
+02. Venus in Furs 6:22
+03. Night Child 8:02
+04. Patterns of Evil 6:30
+05. Satyr IX 9:58
+06. Turn off your Mind 5:51
+07. Scorpio Curse 7:31
+08. Crypt of Drugula 8:49
+
 
 ## Отношения с другими группами
 

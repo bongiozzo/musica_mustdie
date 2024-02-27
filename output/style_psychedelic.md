@@ -37,6 +37,11 @@
 Стиль: Psychedelic
 Год: 2006
 
+Группа: Devil's Blood, The
+Альбом: "Come, Reap (EP)"
+Стиль: Psychedelic
+Год: 2008
+
 Группа: Jex Thoth
 Альбом: "Jex Thoth"
 Стиль: Psychedelic
@@ -44,11 +49,6 @@
 
 Группа: My Sleeping Karma
 Альбом: "Satya"
-Стиль: Psychedelic
-Год: 2008
-
-Группа: Devil's Blood, The
-Альбом: "Come, Reap (EP)"
 Стиль: Psychedelic
 Год: 2008
 
@@ -62,11 +62,6 @@
 Стиль: Psychedelic
 Год: 2009
 
-Группа: My Sleeping Karma
-Альбом: "Tri"
-Стиль: Psychedelic
-Год: 2010
-
 Группа: Ghost
 Альбом: "Opus Eponymous"
 Стиль: Psychedelic
@@ -77,10 +72,20 @@
 Стиль: Psychedelic
 Год: 2010
 
+Группа: My Sleeping Karma
+Альбом: "Tri"
+Стиль: Psychedelic
+Год: 2010
+
 Группа: Uncle Acid And The Deadbeats
 Альбом: "Volume 1"
 Стиль: Psychedelic
 Год: 2010
+
+Группа: Devil's Blood, The
+Альбом: "The Thousandfold Epicentre"
+Стиль: Psychedelic
+Год: 2011
 
 Группа: Kadavar (Ger)
 Альбом: "Kadavar"
@@ -92,23 +97,18 @@
 Стиль: Psychedelic
 Год: 2011
 
-Группа: Devil's Blood, The
-Альбом: "The Thousandfold Epicentre"
-Стиль: Psychedelic
-Год: 2011
-
 Группа: Jess And The Ancient Ones
 Альбом: "Jess And The Ancient Ones"
 Стиль: Psychedelic
 Год: 2012
 
-Группа: Uncle Acid And The Deadbeats
-Альбом: "Blood Lust"
+Группа: My Sleeping Karma
+Альбом: "Soma"
 Стиль: Psychedelic
 Год: 2012
 
-Группа: My Sleeping Karma
-Альбом: "Soma"
+Группа: Uncle Acid And The Deadbeats
+Альбом: "Blood Lust"
 Стиль: Psychedelic
 Год: 2012
 
@@ -122,6 +122,11 @@
 Стиль: Psychedelic
 Год: 2013
 
+Группа: Jess And The Ancient Ones
+Альбом: "Astral Sabbat"
+Стиль: Psychedelic
+Год: 2013
+
 Группа: Jex Thoth
 Альбом: "Blood Moon Rise"
 Стиль: Psychedelic
@@ -132,18 +137,13 @@
 Стиль: Psychedelic
 Год: 2013
 
-Группа: Monkey3
-Альбом: "The 5th Sun"
-Стиль: Psychedelic
-Год: 2013
-
 Группа: Katatonia
 Альбом: "Dethroned and Uncrowned"
 Стиль: Psychedelic
 Год: 2013
 
-Группа: Jess And The Ancient Ones
-Альбом: "Astral Sabbat"
+Группа: Monkey3
+Альбом: "The 5th Sun"
 Стиль: Psychedelic
 Год: 2013
 
@@ -157,23 +157,23 @@
 Стиль: Psychedelic
 Год: 2014
 
-Группа: Jess And The Ancient Ones
-Альбом: "Second Psychedelic Coming: The Aquarius Tapes"
-Стиль: Psychedelic
-Год: 2015
-
 Группа: Ghost
 Альбом: "Meliora"
 Стиль: Psychedelic
 Год: 2015
 
-Группа: Uncle Acid And The Deadbeats
-Альбом: "The Night Creeper"
+Группа: Jess And The Ancient Ones
+Альбом: "Second Psychedelic Coming: The Aquarius Tapes"
 Стиль: Psychedelic
 Год: 2015
 
 Группа: Kadavar (Ger)
 Альбом: "Berlin"
+Стиль: Psychedelic
+Год: 2015
+
+Группа: Uncle Acid And The Deadbeats
+Альбом: "The Night Creeper"
 Стиль: Psychedelic
 Год: 2015
 

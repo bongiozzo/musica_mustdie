@@ -1,8 +1,48 @@
 # Radiohead
 
-Дискография
-"Pablo Honey" 1993, Alternative
-"The Bends" 1995, Alternative
+
+
+## Дискография
+
+### "Pablo Honey" 1993, Alternative
+
+1.  You
+2.  Creep
+3.  How Do You ?
+4.  Stop Whispering
+5.  Thinking About You
+6.  Anyone Can Play Guitar
+7.  Ripcord
+8.  Vegetable
+9.  Prove Yourself
+10.I Can't
+11.Lurgee
+12.Blew Out
+
+All songs written by RADIOHEAD.
+Produced by John Leckie.
+
+(P)&c 1993 EMI Records
+
+### "The Bends" 1995, Alternative
+
+1.  Planet Telex
+2.  The Bends
+3.  High And Dry
+4.  Take Plastic Trees
+5.  Bones
+6.  Nice Dream
+7.  Just
+8.  My Iron Lung
+9.  Bullet Proof:I Wish I Was
+10.Black Star
+11.Sulk
+
+All songs written by RADIOHEAD.
+Produced by John Leckie.
+
+(P)&c 1995 CAPITOL Records
+
 
 ## Отношения с другими группами
 

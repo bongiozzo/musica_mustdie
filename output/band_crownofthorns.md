@@ -1,8 +1,61 @@
 # Crown of Thorns
 
-Дискография
-"The Burning" 1995, Melodic Death Metal
-"Eternal Death" 1997, Melodic Death Metal
+
+
+## Дискография
+
+### "The Burning" 1995, Melodic Death Metal
+
+1. Of God And Evil
+2. Soulicide Demon-might
+3. Godless
+4. The Lord Of The Rings
+5. I Crawl
+6. Forever Heaven Gone
+7. Earthborn
+8. Neverending Dream
+9. Night Of The Swords
+10.Candles
+11.Forget The Light
+
+All Songs Written By CROWN OF THORNS.
+Produced & Mixed By CROWN OF THORNS & Berno Paulsson.
+Recorded At Berno Studio.
+
+Janne Saarenpaa - Drums
+Magnus Olsfelt - Bass
+Johan Lindstrand - Vocals
+Marko Tervonen - Guitars
+Marcus Sunesson - Guitars
+
+(P)&(C) 1995 BLACK SUN Records
+
+### "Eternal Death" 1997, Melodic Death Metal
+
+1. Angels Die
+2. Beautiful Evil Soul
+3. In Bitterness And Sorrow
+4. The Black Heart
+5. World Within
+6. The Serpent Garden
+7. Kill (The Priest)
+8. Misery Speaks
+9. Hunger
+10.Death Of God
+
+All Songs Written By CROWN OF THORNS.
+Produced By CROWN OF THORNS & Berno Paulsson.
+Engineered By Berno Paulsson And Henrik Larson.
+Recorded At Berno Studio.
+
+Janne Saarenpaa - Drums
+Magnus Olsfelt - Bass
+Johan Lindstrand - Vocals
+Marko Tervonen - Guitars
+Marcus Sunesson - Guitars
+
+(P)(C) 1997 BLACK SUN Records
+
 
 ## Отношения с другими группами
 

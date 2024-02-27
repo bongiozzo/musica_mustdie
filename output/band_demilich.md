@@ -1,7 +1,35 @@
 # Demilich
 
-Дискография
-"Nespithe" 1994, Grindcore
+Very technical and brutal death metal
+
+## Дискография
+
+### "Nespithe" 1994, Grindcore
+
+1. When The Sun Drank The Weight Of Water
+2. The 16-th 6-Tooth Son Of 144-Regional Dimensions (Still Unnamed)
+3. Inherited Rowel Levitation - Reduced Without Any Effort
+4. The Echo (Replacement)
+5. The Putrefying Road In The 19th Extremity 
+   (...Somewhere Inside The Bowels Of The Endlessness...)
+6. (Within) The Chamber Of Whispering Eyes
+7. And You'll Remain...  (In Peaces Of Nothingless)
+8. Erecshyrinol
+9. The Planet That Once Used To Absorb Flesh In Order To Achieve Divinity And Immortality (Suffocated To The Flesh That It Desired...)
+10.The Cry
+11.Raped Embalmed Beauty Sleep
+
+ Antti Boman - Vocals & Guitar
+ Aki Hytonen - Guitar
+ Ville Koistinen - Bass
+ Miko Virnes - Drums
+
+Recorded,Mixed & Engineered:Savonlinna,Finland.
+Tuomo Valtonen,Savonlinnan Studiopalvelu,
+26th-31-st December 1992.
+
+(p)&(c) 1994 NECROPOLIS / DCA
+
 
 ## Отношения с другими группами
 

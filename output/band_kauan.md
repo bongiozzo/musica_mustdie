@@ -1,9 +1,37 @@
 # Kauan
 
-Дискография
-"Lumikuuro" 2007, Folk
-"Tietajan Laulu " 2008, Folk
-"Aava Tuulen Maa" 2009, Folk
+
+
+## Дискография
+
+### "Lumikuuro" 2007, Folk
+
+1. Alku 02:08  
+2. Aamu Ja Kaste 07:01  
+3. Lumikuuro 07:28  
+4. Savu 04:11  
+5. Koivun Elдmд 06:27  
+6. Syleilyn Sumu 05:14  
+7. Villiruusu 05:17  
+8. Syleilyn Sumu (Akkustika) 05:11 
+
+### "Tietajan Laulu " 2008, Folk
+
+1. Vmesto Slez 06:37 
+2. Kyynelten Sijaan 09:26  
+3. Pesnja Materi 06:01 
+4. Дidin Laulu 12:02
+5. Prozrachni Cvetok 08:12
+6. Orkidea 10:34 
+
+### "Aava Tuulen Maa" 2009, Folk
+
+1. Ommeltu Polku 04:57  
+2. Valveuni 10:36
+3. Fцhn 10:12 
+4. Sokea Sisar 12:32
+5. Neulana Hetkessд 10:36 
+
 
 ## Отношения с другими группами
 

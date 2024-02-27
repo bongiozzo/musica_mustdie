@@ -1,7 +1,27 @@
 # Wongraven
 
-Дискография
-"Fielltronen" 1995, Ambient
+Black+Gothic+Doom+Symphony+Ethnic
+
+## Дискография
+
+### "Fielltronen" 1995, Ambient
+
+1. Det Var En Gang Et Menneske
+2. Over Odermark
+3. Opp Under Fjellet Toner En Sang
+4. Fiden Er En Stenlagt Grav
+5. Fra Fielltronen
+
+All Songs Written By WONGRAVEN.
+Produced By WONGRAVEN.
+Engineered By Kenneth Moon & Odd H.Jensen.
+Recorded & Mixed In Waterfall Studios.
+
+S.Wongraven - All Lead Vocals, Acoustic Guitars, Bass & Synths
+Iksakh - Grand Piano
+
+(P)&(C) 1995 MOONFOG Productions
+
 
 ## Отношения с другими группами
 

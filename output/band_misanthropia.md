@@ -1,7 +1,20 @@
 # Misanthropia
 
-Дискография
-"...When The Sky Rained Death" 2012, Death Metal
+
+
+## Дискография
+
+### "...When The Sky Rained Death" 2012, Death Metal
+
+1. Shadow
+2. Tribe of Damned
+3. Ascension
+4. Rex Nemorenzis
+5. ...When the Sky Rained Death
+6. Harvester of Death
+7. Empire of Darkness
+8. Troops of Doom
+
 
 ## Отношения с другими группами
 

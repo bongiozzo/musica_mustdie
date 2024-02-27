@@ -1,10 +1,25 @@
 # Ninja
 
-Дискография
-"Invincible" 1988, Heavy Metal
-"Liberty" 1992, Heavy Metal
-"Valley of Wolves" 1997, Heavy Metal
-"Into the Fire" 2014, Heavy Metal
+
+
+## Дискография
+
+### "Invincible" 1988, Heavy Metal
+
+
+
+### "Liberty" 1992, Heavy Metal
+
+
+
+### "Valley of Wolves" 1997, Heavy Metal
+
+
+
+### "Into the Fire" 2014, Heavy Metal
+
+
+
 
 ## Отношения с другими группами
 

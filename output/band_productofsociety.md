@@ -1,7 +1,34 @@
 # Product Of Society
 
-Дискография
-"Schizophrenagenic" 1996, Rap Metal
+Cool Rap-Core-Alternative
+
+## Дискография
+
+### "Schizophrenagenic" 1996, Rap Metal
+
+1.  Jaded
+2.  Elected
+3.  Product Of Society
+4.  Another Look
+5.  This
+6.  Say What Ya Mean
+7.  One By One
+8.  Disciples Blind
+9.  Zombie Squad
+10.Who's Running The Show
+
+All Sonsg Written By PRODUCT OF SOCIETY.
+Produced By Sean Sheridan.
+Engineered By Sean Sheridan & Vic Steffins.
+Recorded At Horizon Studios West Haven, CT.
+
+Pete Sullivan - Vocals
+Jim Castelano - Guitars
+Greg Gilroy - Bass
+Steve Fecteau - Drums
+
+(P)c 1996 MASCOT Records
+
 
 ## Отношения с другими группами
 

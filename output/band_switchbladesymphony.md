@@ -1,8 +1,50 @@
 # Switchblade Symphony
 
-Дискография
-"Serpentine Gallery" 1996, Darkwave
-"Bread And Jam For Frances" 1997, Darkwave
+
+
+## Дискография
+
+### "Serpentine Gallery" 1996, Darkwave
+
+1.  Bad Trash
+2.  Dissolve
+3.  Wallflower
+4.  Wrecking Yard
+5.  Clown
+6.  Cocoon
+7.  Dollhouse
+8.  Sweet
+9.  Gutter Glitter
+10.Mine Eyes
+
+All Songs By SWITCHBLADE SYMPHONY.
+Produced By SWITCHBLADE SYMPHONY & George Stone Orbetter -Ludwig.
+Engineered By George Stone Orbetter -Ludwig.
+Recorded At DCP Studio & Guru Studio.
+
+Tina Root - Vocals
+Susan Wallace - Synthesizers, Programming , Vocals
+Robin Jacobs - Guitars, Bass, Drums
+
+(P)&(C) 1996 CLEOPATRA Records
+
+### "Bread And Jam For Frances" 1997, Darkwave
+
+01. Witches
+02. Dirty Dog
+03. Roller Coaster
+04. Situation #58
+05. Soldiers
+06. Sleep
+07. Funnel
+08. Insect
+09. Rampid
+10. Situation #9
+11. Sheep
+12. Fractal
+13. Sick Mary
+14. Episode G15
+
 
 ## Отношения с другими группами
 

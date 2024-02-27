@@ -1,8 +1,40 @@
 # Banished
 
-Дискография
-"Deliver Me Unto Pain" 1994, Deathcore
-"Deliver Me Unto Pain" 2005, Death Metal
+ex-Baphomet
+
+## Дискография
+
+### "Deliver Me Unto Pain" 1994, Deathcore
+
+1. Deceased Chaos
+2. Deliver Me Unto Pain
+3. Cast Out The Flesh
+4. Skinned
+5. Inherit His Soul
+6. Valley Of The Dead
+7. Succumb Of The Fear
+8. Altered Minds
+9. Scars
+10.Anointing Of The Sick
+11.Through Deviant Eyes
+
+ Tom Frost - Vocals
+ Dave Craiglow - Guitars
+ Gary Schipani - Bass
+ Rick Breier - Drums
+
+All Songs By BANISHED
+Produced By BANISHED
+Engineered By Fred
+Recorded & Mixed At Mark Studios, Clarence,
+New York, Spring 1993
+
+(p)&(c) 1994 DEAF Records
+
+### "Deliver Me Unto Pain" 2005, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

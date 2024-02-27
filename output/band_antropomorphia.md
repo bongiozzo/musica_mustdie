@@ -1,7 +1,26 @@
 # Antropomorphia
 
-Дискография
-"Necromantic Love Songs" 1994, Death Metal
+
+
+## Дискография
+
+### "Necromantic Love Songs" 1994, Death Metal
+
+1. Crack The Casket
+2. The Carnal Pit
+3. Birth Through Dead
+4. Chunks Of Meat
+
+All music & lyrics by ANTROPOMORPHIA.
+Recorded & mixed at Joe's Garage, Waalwijk, Holland
+
+Ferry Damen - Vocals, Guitar
+Vincetit Van Boxtel - Guitars
+Marc Van Stiphout - Bass
+Marco  Stubbe - Drums
+
+(p)(c) 1994 BLACKEND Recording
+
 
 ## Отношения с другими группами
 

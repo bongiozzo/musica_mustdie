@@ -1,7 +1,29 @@
 # Mighty Mighty Bosstones
 
-Дискография
-"Don't Know How To Party" 1993, Alternative
+
+
+## Дискография
+
+### "Don't Know How To Party" 1993, Alternative
+
+1. Our Only Weapon
+2. Last Dead Mouse
+3. Don't Know How To Party
+4. Someday I Suppose
+5. A Man Without
+6. Holy Smoke
+7. Illegal Left
+8. Tin Soldiers
+9. Almost Anything Goes
+10.Issachar
+11.What Was,Was Over
+12.Seven Thirty Seven/Shoe Glue
+
+Produced By Tony Platt.
+Recorded At Dreamland Studio,Woodstock,NY.
+
+(p)&(c) 1993 MERCURY Records
+
 
 ## Отношения с другими группами
 

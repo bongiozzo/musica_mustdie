@@ -1,8 +1,57 @@
 # Blue Oyster Cult
 
-Дискография
-"Blue Oyster Cult" 1972, Heavy Metal
-"Tyranny and Mutation" 1973, Heavy Metal
+(Heavy Metal Pioneers)
+
+## Дискография
+
+### "Blue Oyster Cult" 1972, Heavy Metal
+
+    1.   Transmaniacon Mc (Bloom/Bouchard/Pearlman/Roeser) 
+    2.   I'm on the Lamb But I Ain't No Sheep (Bloom/Bouchard/Pearlman) 
+    3.   Then Came the Last Days of May (Roeser) 
+    4.   Stairway to the Stars (Malneck/Parish/Signorelli) 
+    5.   Before the Kiss, a Redcap (Krugman/Lanier/Pearlman/Roeser) 
+    6.   Screams (Bouchard) 
+    7.   She's as Beautiful as a Foot (Bouchard/Lanier/Meltzer) 
+    8.   Cities on Flame With Rock & Roll (Bouchard/Pearlman/Roeser) 
+    9.   Workshop of the Telescopes (Blue Oyster Cult/Pearlman) 
+    10.   Redeemed (Bouchard/Farcas/Lanier/Pearlman) 
+
+
+Eric Bloom  -  Guitar, Keyboards, Vocals 
+Albert Bouchard  -  Guitar, Harmonica, Drums, Vocals 
+Joe Bouchard  -  Bass, Guitar, Piano, Vocals 
+Allen Lanier  -  Bass, Guitar, Guitar (Rhythm), Keyboards, Vocals 
+David Lucas  -  Producer, Engineer 
+Donald Roeser  -  Synthesizer, Guitar, Keyboards, Vocals 
+
+
+
+### "Tyranny and Mutation" 1973, Heavy Metal
+
+    1.   The Red and the Black (Bloom/Bouchard/Pearlman) 
+    2.   O.D.'d on Life Itself (Bloom/Bouchard/Bouchard/Pearlman) 
+    3.   Hot Rails to Hell (Bouchard) 
+    4.   7 Screaming Diz-Busters (Bouchard/Bouchard/Pearlman/Roeser) 
+    5.   Baby Ice Dog (Bloom/Bouchard/Smith) 
+    6.   Wings Wetted Down (Bouchard/Bouchard) 
+    7.   Teen Archer (Bloom/Meltzer/Roeser) 
+    8.   Mistress of the Salmon Salt (Quicklime... (Bouchard/Pearlman) 
+
+
+
+
+Eric Bloom  -  Synthesizer, Guitar, Keyboards, Vocals 
+Albert Bouchard  -  Guitar, Harmonica, Drums, Vocals 
+Joe Bouchard  -  Bass, Guitar, Piano, Keyboards, Vocals 
+Tim Geelan  -  Engineer 
+Murray Krugman  -  Producer 
+Allen Lanier  -  Bass, Guitar, Guitar (Rhythm), Keyboards, Vocals 
+Sandy Pearlman  -  Producer 
+Donald Roeser  -  Synthesizer, Guitar, Keyboards, Vocals 
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,34 @@
 # Madog
 
-Дискография
-"Dreamland" 2000, Heavy Metal
-"Fairytales of Darkness" 2003, Power Metal
+
+
+## Дискография
+
+### "Dreamland" 2000, Heavy Metal
+
+
+
+### "Fairytales of Darkness" 2003, Power Metal
+
+1. Intro
+2. Fairy of Darkness
+3. Miracle
+4. Heart of Dragonsteel
+5. The Hunter
+6. Dream of the Mountain
+7. Destiny
+8. Valhalla
+9. Thunder
+10. One Thousand Feet
+11. Phantom of the Opera
+12. Evil Mask (bonus)
+
+
+Hansi Zedrosser: Lead vocals & lead-rhythm guitar 
+Otto Zedrosser: Bass & back vocals
+Alex Humer: Rhythm-lead guitar, back vocals
+Chris Koller: Drums & back vocals
+
 
 ## Отношения с другими группами
 

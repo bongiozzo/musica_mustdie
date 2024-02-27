@@ -1,7 +1,13 @@
 # Black Strobe
 
-Дискография
-"Burn Our Own Church" 2007, Electronic
+
+
+## Дискография
+
+### "Burn Our Own Church" 2007, Electronic
+
+
+
 
 ## Отношения с другими группами
 

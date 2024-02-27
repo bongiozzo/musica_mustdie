@@ -1,8 +1,37 @@
 # As Light Dies
 
-Дискография
-"A Step Through the Reflection" 2007, Gothic
-"Ars Subtilior from Within the Cage" 2010, Gothic
+
+
+## Дискография
+
+### "A Step Through the Reflection" 2007, Gothic
+
+1. Crossing the Stygian Lake 03:29  
+2. Out of the Cave 06:31  
+3. Imprisoned Forever 04:24  
+4. The Very Beginning 01:55  
+5. Weird, Imperfect Symmetry of Creation 11:17  
+6. Peering Through the Reflection 01:29  
+7. A Step Through the Reflection 08:02  
+8. In Fairies Garden 08:00  
+9. A Shine After a Thousand Years of Darkness 01:56  
+10. The Temple 07:09  
+11. Ode to a Dying Empire 01:18  
+12. The Scourge of the Gods 03:02  
+13. The Sinking of Atlantis 08:19 
+
+### "Ars Subtilior from Within the Cage" 2010, Gothic
+
+1. The Very End 02:31  
+2. The Disinherited 08:07  
+3. Le Nebuleux Sentier 05:10  
+4. Die Letze Fuge Vor Der Flucht 04:43  
+5. Trapped In Flesh 08:51  
+6. Yearning For Blissful Moments While Standing Upon The Ruins 02:56  
+7. Sombra Y Silencio 11:40  
+8. Insignificant Among Insignificance 11:07  
+9. When Everything Fades Away 01:53 
+
 
 ## Отношения с другими группами
 

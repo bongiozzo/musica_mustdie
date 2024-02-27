@@ -1,10 +1,78 @@
 # Darkwoods My Betrothed
 
-Дискография
-"Dark Aureoles Gathering (demo)" 1994, Black Metal
-"Heirs Of Northstar" 1995, Black Metal
-"Autumn Roars Thunder" 1996, Black Metal
-"Witch-Hunts" 1998, Black Metal
+Finnish Black Metal
+
+## Дискография
+
+### "Dark Aureoles Gathering (demo)" 1994, Black Metal
+
+Enter My Black Dreams
+Whispers
+Dark Aureoles Gathering
+The Diabolical Eve Of The Nocturnal Holocaust
+
+
+### "Heirs Of Northstar" 1995, Black Metal
+
+1. My Eyes Are Frozen
+2. One Son Of The Northstar
+3. Uller
+4. From The Snowy Hillsides They Came
+5. In A Silent Night
+6. Come Fimbulvetr
+7. Yggdrasil's Children Fall
+
+All Songs Written By DARKWOODS MY BETROTHED.
+Produced & Engineered By Tuomo Valtonen.
+Recorded At Walltone Studio In Savonlinna.
+
+Pasi - Voice,Guitars
+Jouni - Guitars
+Teemu - Bass
+Tero - Drums
+
+(P)&(C) 1995 HAMMERHEART Production
+
+### "Autumn Roars Thunder" 1996, Black Metal
+
+1.  Autumn Roars Thunder
+2.  Nightowl
+3.  When Ancient Spirits Battled
+4.  The Conspiracy Of The Pagan Cult
+5.  Hymn Of The Darkwoods
+6.  On The Top Of The Falconhill
+7.  King's Grap Shadow
+8. I Burn At The Stake
+9. Red Sky Over The Land Of Fells
+
+
+All Songs Written By DARKWOODS MY BETROTHED.
+Produced By DARKWOODS MY BETROTHED & Tuomo Valtonen.
+Engineered By Tuomo Valtonen.
+Co-Produced By Sami.
+Recorded At Walltone Studio In Savonlinna.
+
+Pasi - All Vocals
+Jouni - Electric Guitars
+Teemu - Bass Guitar
+
+The session musicians on this album are:
+Tero - Drums
+Tuomas - Keyboards
+Timo - Acoustic Guitars
+
+(P)c 1996 SOLISTITIUM Records
+
+### "Witch-Hunts" 1998, Black Metal
+
+1. Without Ceremony and Bell Toll
+2. Inside the Circle of Stones
+3. The Crow and the Warrior
+4. Dying to Meet You
+5. The Preacher Came to Town
+6. Burn, Witches, Burn
+7. The Witch-Hunters
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,19 @@
 # Bizarrekult
 
-Дискография
-"Кыл эстендэ (promo)" 2006, Black Metal
-"II (demo)" 2008, Black Metal
+old school thrash/black metal with Tatar lyrics
+
+## Дискография
+
+### "Кыл эстендэ (promo)" 2006, Black Metal
+
+
+
+### "II (demo)" 2008, Black Metal
+
+1. #12
+2. Ahmak (Глупец)
+3. Здесь пахнет жженой плотью...
+
 
 ## Отношения с другими группами
 

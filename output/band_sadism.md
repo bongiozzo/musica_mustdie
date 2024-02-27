@@ -1,11 +1,69 @@
 # Sadism
 
-Дискография
-"Tribulated Bells" 1992, Death Metal
-"Darkside" 1993, Death Metal
-"Deadline Sequences" 1997, Death Metal
-"A Dwelling of Gods" 1999, Death Metal
-"Summon" 2002, Death Metal
+chilean death metal band
+
+## Дискография
+
+### "Tribulated Bells" 1992, Death Metal
+
+01. Tribulated bells
+02. Transcanalizated 
+03. Days of tribulation 
+04. Trascending to the immortal life 
+05. Into the covenant 
+06. Burning inside 
+07. Like a sacrilege 
+08. Perdition of souls
+09. From the perpetual dark...
+
+### "Darkside" 1993, Death Metal
+
+01. When The Evil Dominates our Soul
+02. Inhumation
+03. Darkside
+
+### "Deadline Sequences" 1997, Death Metal
+
+01. The collapse 
+02. Those human thresholds 
+03. Paralized
+04. Sequels
+05. Carring out the secret parts 
+06. When the evil dominates our souls 
+07. Over sliding-place 
+08. Darkest
+09. Like a sacrilege
+
+### "A Dwelling of Gods" 1999, Death Metal
+
+01. The forgotten one
+02. Cycles 
+03. Dungeon's gallery 
+04. Beyond the gates 
+05. The art of petrification 
+06. Northern dark souls 
+07. The setting sun 
+08. A dwelling of gods
+
+### "Summon" 2002, Death Metal
+
+01. Thy-Composed 
+02. Skeptic 
+03. Sadism 
+04. Latency 
+05. Body Execution
+06. Worse Than Suffering 
+07. Undying 
+08. I'm Slivering 
+09. Hominivorax 
+10. Necrology
+
+Vocals: 	Ricardo Roberts
+Guitar: 	Enrique Zъсiga
+Guitar: 	Javier Menares
+Bass: 	Juan Edo. Moore
+Drums: 	Juan Pablo Donoso
+
 
 ## Отношения с другими группами
 

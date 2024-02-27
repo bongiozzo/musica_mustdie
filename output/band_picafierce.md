@@ -1,7 +1,24 @@
 # Pica Fierce
 
-Дискография
-"Pica Fierce" 2007, Thrash
+
+
+## Дискография
+
+### "Pica Fierce" 2007, Thrash
+
+1. Decadence 04:19	
+2. The Weight Of Condemnation 04:13	
+3. Reptile 03:32	
+4. The Coming Of The 4th World 05:04	
+5. Swan Song 05:20	
+6. Urbania 06:36	
+7. Consumers Consumed 04:13	
+8. Blinded 04:36	
+9. Believers 05:29	
+10. Into Oblivion 05:01	
+11. Spiral Of Violence 05:06	
+12. A New Beginning 05:25
+
 
 ## Отношения с другими группами
 

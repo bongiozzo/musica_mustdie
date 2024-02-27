@@ -1,7 +1,22 @@
 # Pistons
 
-Дискография
-"We're Pistons" 2007, Stoner
+
+
+## Дискография
+
+### "We're Pistons" 2007, Stoner
+
+1. Intrц   
+2. We're Pistцns
+3. Natural Born Pistцns
+4. 50 Years of Rцck'n'Rцll
+5. Rцck 'till You Die
+6. Betцniars
+7. Sons of Bastards
+8. Rцck'n'Rцll Creatures
+9. We're The Bцmbers
+10. Kings of Speed 
+
 
 ## Отношения с другими группами
 

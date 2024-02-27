@@ -1,7 +1,23 @@
 # Sun Of The Sleepless & Nachtmahr
 
-Дискография
-"I" 2004, Black Metal
+
+
+## Дискография
+
+### "I" 2004, Black Metal
+
+Sun of the Sleepless 
+A Wolf In Sheep's Skin Clad 
+Romanze Zur Nacht 
+Dunkelheit 
+Neunter November 
+Tausend Kalte Winter 
+Spring '99 
+Nachtmahr 
+I 
+II 
+III
+
 
 ## Отношения с другими группами
 

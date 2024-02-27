@@ -1,8 +1,26 @@
 # Grace Disgraced
 
-Дискография
-"Materialized Expectation (EP)" 2009, Death Metal
-"Enthrallment Traced" 2012, Death Metal
+
+
+## Дискография
+
+### "Materialized Expectation (EP)" 2009, Death Metal
+
+1. Materialized Expectation (5:29)
+2. Sweet (5:52)
+3. Wishful Thinking (5:43)
+4. Luxurious Cemetery (6:21)
+
+### "Enthrallment Traced" 2012, Death Metal
+
+1.	 Prophecy of Somnambulist	06:19
+2.	 Hypocritical Oath	06:38
+3.	 To Autumn	05:04	
+4.	 Psycho Cycle	06:09
+5.	 Adzhimushkai	06:05
+6.	 Villain	05:49
+7.	 Orchids of the Fallen Empire	07:43
+
 
 ## Отношения с другими группами
 

@@ -1,11 +1,91 @@
 # Unearth
 
-Дискография
-"The Stings of Conscience" 2001, Hardcore
-"The Oncoming Storm" 2004, Hardcore
-"III: In The Eyes Of Fire" 2006, Hardcore
-"The March" 2008, Metalcore
-"Darkness In The Light" 2011, Metalcore
+Hardcore Metal from USA
+
+## Дискография
+
+### "The Stings of Conscience" 2001, Hardcore
+
+1.  My Heart Bleeds No Longer 03:36
+2.  One Step Away 03:16
+3.  Fuel the Fire 03:44
+4.  Only the People 03:46
+5.  Stings of Conscience 05:05
+6.  My Desire 05:00
+7.  Vanishment 03:47
+8.  Shattered by the Sun 03:52
+9.  Monition 04:58
+10. Stronghold 03:22
+
+### "The Oncoming Storm" 2004, Hardcore
+
+01. The Great Dividers 
+02. Failure 
+03. This Lying World 
+04. Black Hearts Now Reign 
+05. Zombie Autopilot 
+06. Bloodlust Of The Human Condition 
+07. Lie To Purify 
+08. Endless 
+09. Aries 
+10. Predetermines Sky 
+11. False Idols 
+
+Line-Up: 
+Trevor Phipps - Vocals 
+Buz McGrath - Guitar 
+Ken Susi - Guitar 
+John "Slo" Maggard - Bass 
+Mike Justian - Drums
+
+### "III: In The Eyes Of Fire" 2006, Hardcore
+
+01. This Glorious Nightmare 
+02. Giles 
+03. March Of The Mutes 
+04. Sanctity Of Brothers 
+05. The Devil Has Risen 
+06. This Time Was Mine 
+07. Unstoppable 
+08. So It Goes 
+09. Impostors Kingdom 
+10. Bled Dry 
+11. Big Bear And The Hour Of Chaos 
+
+Line-Up: 
+Vocals: Trevor Phipps 
+Guitars: Buz McGrath 
+Guitars: Ken Susi 
+Bass: John "Slo" Maggard 
+Drums: Mike Justain
+
+### "The March" 2008, Metalcore
+
+1. My Will Be Done 
+2. Hail The Shrine 
+3. Crow Killer 
+4. Grave Of Opportunity 
+5. We Are Not Anonymous 
+6. The March 
+7. Cutman 
+8. The Chosen 
+9. Letting Go 
+10. Truth Or Consequence
+
+### "Darkness In The Light" 2011, Metalcore
+
+01. Watch It Burn
+02. Ruination Of The Lost
+03. Shadows In The Light
+04. Eyes Of Black
+05. Last Wish
+06. Arise The War Cry
+07. Equinox
+08. Coming Of The Dark
+09. The Fallen
+10. Overcome
+11. Disillusion
+
 
 ## Отношения с другими группами
 

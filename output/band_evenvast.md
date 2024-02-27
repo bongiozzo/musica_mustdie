@@ -1,9 +1,63 @@
 # Even Vast
 
-Дискография
-"Hear me out" 1999, Gothic
-"Outsleeping" 2003, Gothic
-"Teach Me How to Bleed" 2007, Gothic
+a-la The Gathering
+
+## Дискография
+
+### "Hear me out" 1999, Gothic
+
+-  Never hear me  
+-  Once again  
+-  The one you wish  
+-  Foolish game  
+-   Memories  
+-  Energy  
+-  Believe me  
+-  Ru 
+
+Recorded in August 1998 at BEAUFORT RECORDING STUDIO, Bovenkarspel, Holland. 
+Engineered, produced and mixed by Han SWAGERMAN Sr.. 
+Mastered at PKM STUDIO, Vercelli, Italy.
+
+
+
+### "Outsleeping" 2003, Gothic
+
+01. Ordinary Incomprehensions
+02. Lust Because Of You
+03. She Knows
+04. Dawning Gloom
+05. Lost In You
+06. After All
+07. Defeated
+08. Scared For The Last Time
+09. Outsleeper
+bonus track:
+10. Dawning Gloom (video clip)
+
+Luca Martello (guitars)
+Antonietta Scilipoti (vocals and keyboards)
+Diego Maniscalco (bass)
+Michel Pennazio (drums)
+
+Recorded at One Voice Recording Studio, Chivasso
+(Torino), Italy. Mastered at Powerplay Mastering
+Studios, Berlin, Germany. Released by Painkiller
+Records (Belgium)
+
+### "Teach Me How to Bleed" 2007, Gothic
+
+1. Infected	04:02	 
+2. Away	04:09	 
+3. Limelight	04:33	 
+4. Love Will Tear Us Apart (Joy Division cover)	03:19	 
+5. Breakaway	03:54	 
+6. I Do	03:50	 
+7. About You	03:40	 
+8. Misbecoming	04:46	 
+9. For The Things I Care	03:45	 
+10. Sleep
+
 
 ## Отношения с другими группами
 

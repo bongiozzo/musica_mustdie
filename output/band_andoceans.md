@@ -1,13 +1,138 @@
 # ...And Oceans
 
-Дискография
-"Wave" 1995, Black Metal
-"Mare Liberum" 1996, Black Metal
-"Dynamic Gallery of Thoughts" 1998, Black Metal
-"...And Oceans Vs. Bloodthorn WAR Vol. I" 1998, Black Metal
-"The Symmetry Of I, The Circle Of O" 1999, Black Metal
-"A.M.G.O.D. (Allotropic/Metamorphic - Genesis of Dimorphism)" 2001, Black Metal
-"Cypher (Insect Angels & Devil Worms)" 2002, Black Metal
+
+
+## Дискография
+
+### "Wave" 1995, Black Metal
+
+1. I'm the Disco, I'm the Dancefloor
+2. ...In Crystal Flesh
+3. Kiss of a Dove
+4. Eon (Time And Time Again) 
+
+### "Mare Liberum" 1996, Black Metal
+
+1. Trollfan
+2. September (nдr hjдrtat blцder)
+3. Ur еldrig saga och sеng
+4. Som цppna bцcker 
+
+### "Dynamic Gallery of Thoughts" 1998, Black Metal
+
+1. Trollfan
+2. Som Oppna Bocker
+3. September (Nur Hjartat Bloder)
+4. The Room Of Thousands Arts
+5. Karsimyksien Vaaleat Kadet
+6. Je Te Connais Beau Masque
+7. Ur Aldrig Saga Och Sang
+8. Samtal Med Tankar: Halo Of Words
+
+
+### "...And Oceans Vs. Bloodthorn WAR Vol. I" 1998, Black Metal
+
+...And Oceans
+1. ...Ja Kylmд Vesi Nuolee Oksaa
+2. 100 Meters Final [Accelerate]
+3. Flesh (GGFH cover)
+4. Breeding the Evil Inside (Bloodthorn cover)
+Bloodthorn
+5. Spite
+6. The End Offensive [War III]
+7. Dead men Don't Rape (GGFH cover)
+8. Kдrsimyksien Vaaleat Kдdet (...And Oceans cover)
+
+
+### "The Symmetry Of I, The Circle Of O" 1999, Black Metal
+
+1. Mechanic Hippie
+2. Aquarium Of Children - Ajatusten Merenpinta
+3. The Black Vagabond And The Swan Of Two Heads
+4. Solipsism
+5. Baby Blue Doll - Merry Go Mind
+6. Acid Sex And Marble Teeth (You-Phoria)
+7. I Wish I Was Pregnant
+8. Stained [Puissance cover]
+
+Bonus-Disk:
+1. injected with silence
+2. cacophonous ballet
+3. higher levels of microbotic fields
+4. playground
+5. mental traffic
+6. mOlecules
+7. spasms
+8. chess
+
+
+Total running time of bonus-disc: 32:41 
+
+
+
+Anzhaar - Keyboards
+Nepture - Guitar
+K-2T4-S - Volcals
+de Monde - Guitar
+Gaunt - Bass
+Grief - Drums
+
+Recorded & Mixed by Ahti Kortelainen and Seppo Juoppo Hovi
+in the Tico Tico Studio, Finland
+Produced by Seasons of Mist
+Mastered by James Murphy at Soundtemple Studio, California
+Lyrics & Music by ...and Oceans except "Stained" by Puissance
+OBC logo retouched by Once
+Artwork by Jukka Sikala
+
+ 
+
+
+
+### "A.M.G.O.D. (Allotropic/Metamorphic - Genesis of Dimorphism)" 2001, Black Metal
+
+1. Intelligence Is Sexy
+2. White Synthetic Noise
+3. Tears Have No Name
+4. Esprit De Corps
+5. Odious & Devious
+6. Of Devlish Tongues
+7. Postfuturistika
+8. TBA In A Silver Box
+9. New Model World
+
+
+
+Killstar - Vocals 
+Tripster - Guitar 
+7even11 - Guitar 
+Plasmaar - Keyboards 
+Atomica - Bass 
+Martex - Drums 
+
+
+
+
+### "Cypher (Insect Angels & Devil Worms)" 2002, Black Metal
+
+1) Fragile: Pictures Of Silence: Melting The Skies
+2) Picturesque: Cataclysm Savour: And The Little Things That Make Us Smile
+3) Angelina: Chthonian Earth: Her Face Forms Worms
+4) Halcyon: The Heavy Silence: In Silent Rain
+5) Aphelion: Light Evanescence: Into Extinction
+6) Opaque: The Morning I Woke Up Dead: Today Is The Day
+7) Aphid: Devil Flower: Fruits Of Lunacy
+8) Voyage: Lost Between Horizons: Eaten By The Distance
+9) Catharsis: End Of Organisms: Absolute Purification Of Sins
+10) Silhouette: In White Rooms: Vacant Bodies
+11) Comatose: The World Amnesia: Planet Dead
+12) Debris: The Magenta Harvest: Liquid Flesh
+13) Nail: An Odyssey In Flesh: Celebrate The New Skin
+
+Kenny on vocals, Q on bass, Pete on guitar, T on guitar, Sami on drums, and Anti on keyboards. Tommy Tagtgren produced the album at the Abyss B Studio
+
+
+
 
 ## Отношения с другими группами
 

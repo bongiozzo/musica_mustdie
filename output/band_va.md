@@ -1,78 +1,1914 @@
 # V/A
 
-Дискография
-"Siberian Black Metal Dark Horde" , Black Metal
-"A Tribute To Accept Vol 1" 1999, Metal
-"Hard Life Heavy Music" 2001, Metal
-"A Tribute To Accept Vol 2" 2001, Metal
-"Tribute to the Four Horsemen" 2002, Metal
-"Covered in Filth - Tribute to Cradle Of Filth" 2002, Metal
-"A Tribute to Scorpions" 2002, Metal
-"We're Happy Family - A Tribute To Ramones" 2003, Metal
-"Siberian X-Treme II" 2003, Metal
-"Too Legit For The Pit" 2003, Metal
-"The Hellish Arts Of Perversion" 2003, Metal
-"The Texas Chainsaw Massacre - The Album" 2003, Metal
-"Metalmania 2003 (dvd+cd)" 2003, Metal
-"Monsters Of Metal DVD Vol 1" 2003, Metal
-"Wacken - Metal Overdrive DVD" 2003, Metal
-"Tribute to Possessed... Seven Gates Of Horror" 2004, Ambient
-"Louder Than The Dragon - The Essential Of Limb Music Products (2 CD)" 2004, Power Metal
-"Influences And Connections. Vol.One: Mr. Big" 2004, Hard Rock
-"Armageddon Over Wacken Dvd" 2004, Metal
-"Monsters Of Metal Dvd Vol 3" 2004, Metal
-"Hellfire, vol.6" 2004, Metal
-"Russian Maniaxxx" 2004, Deathcore
-"EXCORIATING ABDOMINAL EMANATION split CD" 2004, Grindcore
-"A tribute to the glory of ‘80s metal" 2004, Metal
-"BARBARITY/KATALEPSY/SMERSH/POSTHUMOUS BLASPHEMER 4 way split" 2004, Death Metal
-"Educated Scum Vs Fight Back (split)" 2004, Deathcore
-"Monsters Of Metal Dvd Vol 2" 2004, Metal
-"Valfar, Ein Windir" 2004, Black Metal
-"Sepultural Feast (Tribute To SEPULTURA)" 2004, Metal
-"COLOURS OF BLACK: Russian dark scene compilation" 2004, Gothic
-"Monsters Of Death 2DVD" 2005, Death Metal
-"A Tribute To The Cure Our Voices" 2005, Metal
-"Subdivisions (tribute to RUSH)" 2005, Metal
-"Music Infection Conjuration, Vol.1 DVD" 2005, Metal
-"Monsters Of Metal Vol.4 (DVD)" 2005, Metal
-"Beautiful Voices Dvd" 2005, Metal
-"Louder Than The Dragon part II - The Essential Of Limb Music Products" 2005, Power Metal
-"Romantic Dark Ballads" 2006, Metal
-"Rock S'cool" 2006, Metal
-"The Realm Of Napalm Records Dvd" 2006, Metal
-"Music InFection Vol. 2 - Totum Dissemination DVD" 2006, Metal
-"Rogue's Gallery - Pirate Ballads, Sea Songs & Chanteys (2CD)" 2006, Metal
-"Metalmania 2005 (dvd+cd)" 2006, Metal
-"COLOURS OF BLACK: Russian dark scene compilation vol.2" 2006, Gothic
-"Monsters Of Metal Vol. 5 [2DVD]" 2006, Metal
-"Beautiful Voices Vol.2 [DVD/CD]" 2006, Metal
-"Into The Light [Nuclear Blast All-Stars]" 2007, Heavy Metal
-"I Scream - 13 Years Of Kick-Ass Music" 2007, Hardcore
-"Rock S'cool (2 CD)" 2007, Metal
-"Dutch Punch" 2007, Metal
-"Out Of The Dark [Nuclear Blast All-Stars]" 2007, Metalcore
-"Dear Mr Fantasy - A Celebration For Jim Capaldi (2CD)" 2007, Rock
-"Thrashing Like A Maniac" 2007, Thrash
-"Regain Records presents: Music With Impact (DVD)" 2007, Metal
-"Metalmania 2006 (CD+DVD)" 2007, Metal
-"Rock S'cool II (DVD)" 2007, Metal
-"A Tribute To The Rolling Stones" 2007, Rock
-"Extreme Metal Inside" 2007, Death Metal
-"20 Years Of Nuclear Blast [2DVD]" 2007, Metal
-"Monsters Of Death Vol2" 2007, Death Metal
-"Metalmania 2007 (CD+DVD)" 2008, Metal
-"Monsters Of Metal Dvd Vol 6" 2008, Metal
-"We Wish You a Metal Xmas and a Headbanging New Year" 2008, Metal
-"Любовь, Rock'n'Roll и Весна 1958-60" 2008, Metal
-"Saw V - Music from and inspired by the motion picture" 2008, Metal
-"Century Media - Covering 20 Years Of Extremes" 2008, Metal
-"Beautiful Voices Vol.3 [DVD/CD]" 2008, Metal
-"The Realm Of Napalm Records Vol.II [DVD]" 2009, Metal
-"Monsters Of Metal DVD Vol 7" 2009, Metal
-"Chronicles Of Doom [DVD]" 2009, Doom
-"Прорыв vol. 1" 2011, Metal
-"Monsters Of Metal Vol. 8 [2DVD/Blu-Ray]" 2012, Metal
+Various Artists
+
+## Дискография
+
+### "Siberian Black Metal Dark Horde" , Black Metal
+
+
+
+### "A Tribute To Accept Vol 1" 1999, Metal
+
+01. Sinner - Balls To The Wall
+02. Hammerfall - Head Over Hills
+03. Tankard - Son Of A Bitch
+04. Steel Prophet - Fast As A Shark
+05. Sodom - I'm A Rebel
+06. Primal Fear - Breaker
+07. Atrocity - Shake Your Heads
+08. Axxis - Flash Rockin Man
+09. Grave Digger - Starlight
+10. Seven Witches - Monsterman
+11. Therion - The King
+12. Tarot - Generation Clash
+13. Metalium - Burning
+14. Pegazus - Restless And Wild
+15. Watchtower - Run If You Can
+16. Rykers - London Leatherboys
+17. New Eden - China Lady
+18. Sacred Steel - Fight It Back
+19. Dimmu Borgir - Metal Heart
+
+### "Hard Life Heavy Music" 2001, Metal
+
+ZNICH
+APRAXIA
+GODS TOWER
+VICIOUS CRUSADE
+DEADMARSH
+etc
+
+### "A Tribute To Accept Vol 2" 2001, Metal
+
+01. Witchery - Fast As A Shark
+02. Raise Hell - Slaves To Metal
+03. U.D.O. - XTC
+04. Disbelief - Dogs On Leads
+05. Breaker - Breaker
+06. Godgory - Princess Of The Dawn
+07. Tad Morose - Losing More Than You've Ever Had
+08. Therion - Seawinds
+09. Agent Stel - Demon's Night
+10. Darkane - Restless & Wild
+11. Rough Silk - Screaming For A Lovebite
+12. Vanize - Predator
+13. Custard - Aiming High
+14. Darkseed - Midnight Mover
+15. Spiral Tower - T.V.-War
+16. Rock'n'roll Stormtroopers - I'm A Rebel
+
+### "Tribute to the Four Horsemen" 2002, Metal
+
+01. Primal Fear - Seek & Destroy
+02. Therion - Fight Fire With Fire
+03. Destruction - Whiplash
+04. Anthrax - Phantom Lord
+05. Sonata Arctica - Fade To Black
+06. Burden Of Grief - Master Of Puppets
+07. Dark Tranquility - My Friend Of Misery
+08. Crematory - One
+09. In Flames - Eye Of The Beholder
+10. Primus - The Thing That Shouldn't Be
+11. Sinner - Wherever I May Roam
+12. Rage - Motorbreath (live)
+
+
+### "Covered in Filth - Tribute to Cradle Of Filth" 2002, Metal
+
+
+
+### "A Tribute to Scorpions" 2002, Metal
+
+
+
+### "We're Happy Family - A Tribute To Ramones" 2003, Metal
+
+
+
+### "Siberian X-Treme II" 2003, Metal
+
+
+
+### "Too Legit For The Pit" 2003, Metal
+
+
+
+### "The Hellish Arts Of Perversion" 2003, Metal
+
+
+
+### "The Texas Chainsaw Massacre - The Album" 2003, Metal
+
+
+
+### "Metalmania 2003 (dvd+cd)" 2003, Metal
+
+dvd
+LOST SOULS - Eastern Aculiim Miser 
+LOST SOULS - Delight 
+DELIGHT - The Fairy Tale 
+DELIGHT- Stained Glass 
+ENTER CHAOS - Industrial Diseases 
+ENTER CHAOS - And the Angels Sing 
+ENTER CHAOS - Lost in Ecstasy 
+GOD DETHRONED - Poison Apple 
+GOD DETHRONED - Art of Immolation 
+GOD DETHRONED - Boiling Blood 
+MARDUK - Azrael 
+MARDUK - Of This Fire 
+MARDUK - Fistfucking 
+THE EXPLOITED - Fuck the System 
+THE EXPLOITED - Beat the Bastards 
+THE EXPLOITED - Sex & Violence 
+ANATHEMA - Release 
+ANATHEMA - Phantom of the Opera 
+ANATHEMA - A Dying Wish 
+VADER - Carnal 
+VADER - Silent Empire 
+OPETH - Deliverance 
+SAXON - Princess of the Night 
+SAMAEL -SuperKarma 
+SAMAEL -One Who Came Before 
+SAMAEL- Black Trip 
+
+Бонус Cd
+ELYSIUM - 4:46 for Sara 
+CRIONICS - Hallowed Whores 
+DOMINIUM - The Howling 
+ANAL STENCH- Torment in the Shebean 
+MISTERIA - Children of the Snake 
+STROMMOUSSHELD - Era Depressions 
+NEVER - Mind Regression 
+VESANIA - Mystherion, Crystal Eyes 
+PARRICIDE - Behind the Scenes 
+DEMISE - Affliction
+
+### "Monsters Of Metal DVD Vol 1" 2003, Metal
+
+DVD 1
+01. MANOWAR - Warriors Of The World United
+02. HAMMERFALL - Hearts On Fire
+03. HELLOWEEN - Just A Little Sign
+04. ANTHRAX - Safe Home
+05. SOILWORK - Rejection Role
+06. BLIND GUARDIAN - The Bard?s Song
+07. FARMER BOYS - Here Comes The Pain
+08. PRIMAL FEAR - Armaggedon
+09. TIAMAT - Vote For Love
+10. IN FLAMES - Trigger
+11. STRATOVARIUS - Eagleheart
+12. SONATA ARCTICA - Wolf & Raven
+13. MORBID ANGEL - Immortal Rites
+14. PARADISE LOST - Say Just Words
+15. IRON MAIDEN - Run To The Hills
+16. OOMPH! - Supernova
+17. SEVENDUST - Live Again
+18. CRADLE OF FILTH - Her Ghost In The Fog
+19. STRAPPING YOUNG - LAD Relentless
+20. SEPULTURA - Bullet The Blue Sky
+21. DARKANE - Innocence Gone
+22. DAVID SHANKLE GROUP - Ashes To Ashes
+23. LACUNA COIL - Heaven?s A Lie
+24. ENTOMBED - I For An Eye
+25. CIRCLE II CIRCLE - Watching In Silence
+26. THE HAUNTED - Bury Your Dead
+27. EMPEROR - The Loss And Curse Of Reverance
+28. KATAKLYSM - Shadows And Dust
+29. CHILDREN OF BODOM - Everytime I Die
+30. THERION - Summernight City
+31. MASTERPLAN - Enlighten me
+32. ATROCITY - Taste Of Sin
+33. CATHEDRAL - Hopkins (The Witchfinder General)
+
+DVD 2
+01. DEATHSTARS - Synthetic Generation
+02. MESHUGGAH - Rational Gaze
+03. MNEMIC - Ghost
+04. RHAPSODY - Power Of The Dragonflame
+05. JUDAS PRIEST - Lost And Found
+06. DIMMU BORGIR - Puritana
+07. BIOHAZARD - Sellout
+08. THE GATHERING - Leaves
+09. PUNGENT STENCH - Viva La Muerte
+10. DANZIG - Five Finger Crawl
+11. AMORPHIS - Alone
+12. KREATOR - Violent Revolution
+13. THUNDERSTONE - Virus
+14. CARCASS - No Love Lost
+15. CREMATORY - Tears Of Time
+16. BLUDGEON - Stained In Blood
+17. SINISTER - Leviathan
+
+Special Bonus Material:
+
+1. LIVE CHAPTER
+Destruction H The Butcher Strikes Back
+Hypocrisy H Fire In The Sky
+Kataklysm H The Awakener
+
+2. AUDIO CHAPTER "DR. BLAST SHOW"
+(PCM Stereo)
+Dr. Blast presents new stuff from:
+MYSTIC PROPHECY
+GRAVEWORM
+MNEMIC
+DEW-SCENTED
+MISERY INDEX
+RE:AKTOR
+DEATHSTARS
+DESTRUCTION
+PRIMAL FEAR
+DIMMU BORGIR
+
+3. Photogallerie
+
+4. Credits
+
+### "Wacken - Metal Overdrive DVD" 2003, Metal
+
+1. Interview Doro Pesch
+2. Holy Moses & Doro Pesch – Too Drunk to Fuck
+3. Interview Holy Moses
+4. Grave Digger – Rebellion
+5. Grave Digger – Heavy Metal Breakdown
+6. Interview Gravedigger
+7. Vicious Rumors – Fight
+8. Vicious Rumors – Down to the Temple
+9. Interview Rose Tattoo
+10. Rose Tattoo – Outta this Place
+11. Rose Tattoo – Bad Boy for Love
+12. Interview Rage
+13. Rage – Don’t Fear the Winter
+14. Interview Sodom
+15. Sodom – Ausgebombt
+16. Sodom – M-16
+17. Interview Hammerfall
+18. Hammerfall – Renegade
+19. Hammerfall – Hammerfall
+20. Interview Dimmu Borgir
+21. Dimmu Borgir – Blessings Upon the Throne of Tyranny
+22. Dimmu Borgir – Puritania
+23. Interview Motцrhead
+24. Motцrhead – No Class
+25. Motцrhead – Motцrhead
+26. Interview Saxon
+27. Saxon – Power & The Glory
+28. Saxon – Princess of the Night
+29. Saxon – Wheels of Steel
+
+Special Features:
+
+“Horny Henry” DVD trailer (4 minuten)
+Wacken impressies (11 minuten)
+Wacken Slideshow (3 minuten)
+Wacken Poster Gallery 1990 – 2004
+DVD Connector
+
+### "Tribute to Possessed... Seven Gates Of Horror" 2004, Ambient
+
+Sadistic Intent - The Exorcist (featuring Jeff Beccara!)
+Impious - Fallen Angel
+Cannibal Corpse - Confessions
+Pentacle - The Beasts of Apocalypse
+Vader - Death Metal
+Diabolic - No Will to Live
+God Dethroned - Satan’s Curse
+Absu - Swing of the Axe
+Sinister - Storm in my Mind
+Angel Corpse - Burning in Hell
+Krabathor - Evil Warriors
+Houwitser - March to Die
+Amon Amarth - The Eyes of Horror
+
+### "Louder Than The Dragon - The Essential Of Limb Music Products (2 CD)" 2004, Power Metal
+
+
+
+### "Influences And Connections. Vol.One: Mr. Big" 2004, Hard Rock
+
+1. Mr. Big (Featuring Paul Rodgers) 
+2. Take Cover (Featuring Members Of King's X) 
+3. Colorado Bulldog (Featuring Joe Lynn Turner) 
+4. Wild World (Featuring John Waite) 
+5. Price You Gotta Pay (Featuring Glenn Hughes) 
+6. Promise Her The Moon (Featuring Ann Wilson) 
+7. Addicted To That Rush (Featuring Billy Sheehan) 
+8. Just Take My Heart (Featuring Mickey Thomas) 
+9. Shine (Featuring Dogstar) 
+10. Crawl Over Me (Featuring Pat Torpey) 
+11. To Be With You (Featuring Richie Kotzen) 
+12. Green-Tinted Sixties Mind (Featuring Donnie Vie) 
+13. Daddy, Brother, Lover, Little Boy (Featuring Joe Lynn Turner)
+
+### "Armageddon Over Wacken Dvd" 2004, Metal
+
+01. CAPARTHIAN FOREST – "Mask Of The Slave"
+02. DARK AGE – "Suicide Crew"
+03. DEW-SCENTED – "Cities Of The Dead"
+04. DIAMOND HEAD feat. JESS COX – "Am I Evil"
+05. DIE APOKALYPTISCHEN REITER – "Instinct"
+06. EVIDENCE ONE – "In The Beginning There Was
+Fire"
+07. GAMMA RAY – "One With the World"
+08. GAMMA RAY – "Last Before The Storm"
+09. HOLY MOSES – "World Chaos"
+10. HOLY MOSES – "Nothing For My Mum"
+11. IN FLAMES – "Only for The Weak"
+12. IN FLAMES – "Watch Them Feed"
+13. KATAKLYSM – "Where The Enemy Sleeps"
+14. LORDI – "Would You Love A Monsterman"
+15. METALIUM – "Pain Crawls In The Night"
+16. ONKEL TOM – "Bon Scott"
+17. PRIMAL FEAR – "Angel In Black"
+18. RUNNING WILD – "Welcome To Hell"
+19. SAXON – "Princess Of The Night"
+20. SENTENCED – "Nepenthe"
+21. SEVENTH ONE – "Hellowed Ground"
+22. SINNER – "Born To Rock"
+23. TESTAMENT – "Alone In The Dark"
+24. TESTAMENT – "Over The Wall"
+25. TESTAMENT – "Burnt Offerings"
+26. THE CROWN – "Under The Whip"
+27. TWISTED SISTER – "Like A Knife In The Back"
+28. TWISTED SISTER – "I Am, I'm Me"
+29. VADER – "Reign For Ever World"
+30. VICTORY – "Temples Of Gold"
+
+### "Monsters Of Metal Dvd Vol 3" 2004, Metal
+
+DVD 1:
+1. Nightwish - Nemo
+2. Edguy - Lavatory Love Machine
+3. Death Angel - Thicker Than Blood
+4. Primal Fear - The Healer
+5. Wintersun - Beyond The Dark Sun
+6. Apocalyptica feat. Nina Hagen - Seemann
+7. Anthrax - What Doesn't Die
+8. Ektomorf - Destroy
+9. Hypocrisy - Eraser
+10. Sentenced - Killing Me Killing You
+11. Iced Earth - When The Eagle Cries
+12. Hammerfall - Renegade
+13. Soilwork - As We Speak
+14. Destruction - Ravenous Beast
+15. Children Of Bodom - Downfall
+16. Exodus - Throwing Down
+17. Nevermore - I, Voyager
+18. Amorphis - Against Widows
+19. Monster Magnet - Unbroken (Hotel Baby)
+20. Fireball Ministry - King
+21. Agathodaimon - Serpent's Embrace
+22. Misery Index - The Great Depression
+23. Morbid Angel - Enshrined By Grace
+24. Imperanon - Sold
+25. Finntroll - Trollhammaren
+
+DVD 2:
+1. Nightwish - Wish I Had An Angel
+2. Sonata Arctica - Don't Say A Word
+3. Mnemic - Deathbox
+4. Die Apokalyptischen Reiter - Eruption
+5. Agnostic Front - Peace
+6. Life Of Agony - Weeds
+7. Chimaira - Down Again
+8. Machine Head - Crashing Around You
+9. In Flames - Touch Of Red
+10. Sepultura - Roots Bloody Roots
+11. Killswitch Engage - Rose Of Sharyn
+12. Soulfly - Prophecy
+13. Voivod - We Carry On
+14. Devil Driver - I Could Care Less
+15. Arch Enemy - Ravenous
+16. Crematory - Revolution
+17. Lacuna Coil - Swamped
+18. Xandria - Ravenheart
+19. Immortal - One By One
+20. Deicide - Scars Of The Crucifix
+21. Susperia - The Bitter Man
+22. Omnium Gatherum - Writhen
+23. Mystic Prophecy - Burning Bridges
+24. Sinergy - Midnight Madness
+25. Stratovarius - Hunting High And Low
+
+Audiopart:
+Pungent Stench, Wintersun, Mnemic, Angelzoom,
+Sonata Arctica, Helltrain, Mystic Prophecy, My
+Early Mustang, Die Apokalyptischen Reiter, Omnium
+Gatherum, Stormwitch, Evidence One, Agnostic
+Front, Anthrax
+
+Livechapter:
+Grave Digger, Crystal Ball, Death, Darkane,
+Graveworm, Kataklysm, Disbelief
+
+Studio Report: Mnemic
+
+Photogallery
+
+### "Hellfire, vol.6" 2004, Metal
+
+
+
+### "Russian Maniaxxx" 2004, Deathcore
+
+
+
+### "EXCORIATING ABDOMINAL EMANATION split CD" 2004, Grindcore
+
+
+
+### "A tribute to the glory of ‘80s metal" 2004, Metal
+
+
+
+### "BARBARITY/KATALEPSY/SMERSH/POSTHUMOUS BLASPHEMER 4 way split" 2004, Death Metal
+
+
+
+### "Educated Scum Vs Fight Back (split)" 2004, Deathcore
+
+
+
+### "Monsters Of Metal Dvd Vol 2" 2004, Metal
+
+DISC 1
+
+01. Dimmu Borgir - Progenies Of The Great
+Apocalypse
+02. Edguy - King Of Fools
+03. Mnemic - Liquid
+04. Deathstars - Syndrome
+05. In Flames - The Quiet Place
+06. Primal Fear - Metal Is Forever
+07. Raunchy - Watch Out
+08. Re:Aktor - Damage Zone
+09. Children Of Bodom - Sixpounder
+10. Kataklysm - As I Slither
+11. Subway To Sally - Unsterblich
+12. Therion - To Mega Therion
+13. Hammerfall - Always Will Be
+14. Nevermore - Enemies Of Reality
+15. Nightwish - Over The Hills And Far Away
+16. Immortal - Grim And Forbitten Kingdoms
+17. Entombed - Wolverine Blues
+18. Machine Head - Imperium
+19. Fireball Ministry - Flatline
+20. Tiamat - Cain
+21. Rhapsody - Rain Of A Thousand Flames
+22. Iced Earth - The Reckoning
+23. Napalm Death - Mass Appeal Madness
+24. Sodom - Silent Is Consent
+25. Benediction - The Grotesque
+
+Disc 2:
+
+01. Crematory - Greed
+02. Soilwork - Light The Torch
+03. Anthrax - Taking The Music Back
+04. Farmer Boys - Stay Like This Forever
+05. Exodus - War Is My Shepherd
+06. Savatage - Gutter Ballet
+07. In Extremo - Kuss Mich
+08. Orphanage - At The Mountains Of Madness
+09. Sinner - Used To The Truth
+10. Helloween - If I Could Fly
+11. Destruction - Desecrators (Of The New Age)
+12. Stratovarius - I Walk To My Own Song
+13. Graveworm - Awaiting The Shining
+14. Samael - Infra Galaxia
+15. Soulfly - Seek'n'Strike
+16. Arch Enemy - We Will Rise
+17. Saxon - Killing Ground
+18. Hypocrisy - Roswell 47
+19. Bolt Thrower - Cenotaph
+20. Meshuggah - Transfixion
+21. Darkane - Chaos Vs. Order
+22. Motorhead - God Save The Queen
+23. Rage - Down
+24. Dark Tranquillity - Monochromatic Stains
+25. Disbelief - To The Sky
+
+Special Bonus Material DVD 1:
+
+- Studioreports
+- Edguy H Orphanage H In Flames
+- Ektomorf H Farmer Boys (Making Of)
+- Photogallery
+
+Special Bonus Material DVD 2:
+
+- Livechapter
+- Death Angel ”5 Steps Of Freedom”
+- Dew-Scented “Soul Poison”
+- Misery Index “Angst isst die Seele auf”
+- Mystic Prophecy ”Mystic Prophecy”
+- Exodus ”Toxic Waltz”
+
+Audiopart: Upcoming & New Stuff On Nuclear Blast
+
+- Thunderstone “Break The Emotions”
+- Farmer Boys ”Like Jesus Wept”
+- Exodus “Blacklist”
+- Raunchy “I Get What I See”
+- Hypocrisy “Slave To The Parasite”
+- Primal Fear ”Suicide And Mania”
+- Crematory “Greed”
+- Ektomorf “Destroy”
+- Kataklysm “The Ambassador Of Pain”
+- In Flames “Borders And Shading”
+- Prime sth ”Pieces” (Single Edit)
+- Orphanage “Beyond The Fall”
+- Golem ”Al-Ghanor”
+- Therion “Three Ships Of Berik - Part I” -
+Lemuria
+
+### "Valfar, Ein Windir" 2004, Black Metal
+
+01. Stri (new recording) 
+02. Stridsmann (new recording) 
+03. Dans Pa Stemmehaugen (re-recording) 
+04. The Profound Power (re-recording) 
+05. Dauden (performed by ENSLAVED) 
+06. Ending (performed by FINNTROLL) 
+07. Morkets Fyrste (performed by E-HEAD) 
+08. Destroy (performed by NOTODDEN ALL STARS) 
+09. Likbor (performed by WEH) 
+10. Svartasmeden og Lunnamyrstrollet (Live at Rosendal Scene, Trondheim, Norway, 27.9.2003) 
+11. Blodssvik (Live at Rosendal Scene, Trondheim, Norway, 27.9.2003)
+
+### "Sepultural Feast (Tribute To SEPULTURA)" 2004, Metal
+
+SACRAMENTUM The Curse/Antichrist
+DEATHWICH Necromancer
+MYSTIFIER Warriors Of Death
+SWORDMASTER Warriors Of Death
+DIMENSION ZERO Troops Of Doom
+LORD BELIAL Crucifixion
+DEFLESHED Beneath The Remains
+IMPIOUS Inner Self
+CHILDREN OF BODOM Mass Hypnosis
+THE CROWN Arise
+EXHUMATION Territory
+GOOSEFLESH Slave New World
+SLAVESTATE Root Bloody Roots
+GARDENIAN Cut Throat
+DENIAL Ratamahatta
+
+### "COLOURS OF BLACK: Russian dark scene compilation" 2004, Gothic
+
+"DUSK" (first compact disc)
+01. STILLIFE - Disillusions
+02. ANTISISTERS - Sudden Kiss
+03. THEODOR BASTARD - Pustota
+04. IZIDA - A Hypnotic Attraction
+05. NECRO STELLAR - Mange Morts
+06. DVAR - Hissen Raii V.2
+07. VIRTUAL SERVER - Wide Awake (Clan Of Xymox rmx)
+08. REQUIEM FOR FM - Devouring Element
+09. HALLUCINATIONS FOR TWO - nix et nox
+10. CRUCI-FICTION - black suicide
+11. PARA BELLVM - Light
+12. THE UNHOLY GUESTS - Dark Dancefloor
+13. DOPPELGANGER - Kiss to My Last Breath
+14. CHILDREN OF THE GUN - Umbrella Man
+15. BLESS - Il Pleu
+16. VIDNA NEBO - Unsleep
+17. MOON FAR AWAY - Witchcraft By A Singing
++ multimedia section: 
+THEODOR BASTARD "Pustota" flash-video by KOL-BELOV
+
+"DAWN" (second compact disc)
+01. CANONIS - Cold Sea (Holodnoe More)
+02. CAPRICE - To My Sister
+03. DROLLS - In Taberna
+04. ROMOWE RIKOITO - Song Of Proserpine
+05. KRATONG - TD Experience
+06. SANDCASTLE - Ad Astra (part 1)
+07. EMILY A. SAAEN - ...At Sunset
+08. NEUTRAL - Festival
+09. CYCLOTIMIA - Same Place
+10. VISHUDHA KALI - Bury Me
+11. MAJDANEK WALTZ - Love As a Whip Strike
+12. WOLFSBLOOD - The Cranes
+13. LACKLUSTRE MIRROR - Mother Is Going Home
+14. LANGUOR - The Purpose Wells
+15. BLOOD & SAND - For Faith
+16. EMBRACE OF BRANCHES - What Kind Of Loss
+17. ANTHESTERIA - Eidolon
+
+### "Monsters Of Death 2DVD" 2005, Death Metal
+
+DVD 1 
+
+1 In Flames - Ordinary Story 
+2 Wintersun - Beyond The Dark Sun 
+3 Soilwork - Light The Torch 
+4 Children of Bodom - Downfall 
+5 Hypocrisy - Inferior Devoties 
+6 Finntroll - Trollhammaren 
+7 Carcass - Heartwork 
+8 Dark Tranquillity - Monochromatic Stains 
+9 Disbelief - To The Sky 
+10 Arch Enemy - The Immortal 
+11 Imperanon - Sold 
+12 Amon Amarth - Death In Fire 
+13 Omnium Gatherum - The Fall Went Right Through Here 
+14 Benediction - Down On Whores 
+15 Grave - Soulless 
+16 Edge Of Sanity - Black Tears 
+17 Napalm Death - Greed Killing 
+18 At The Gates - Terminal Spirit Disease 
+19 Sentenced - Nepenthe 
+20 Dismember - Dreaming In Red 
+21 Therion - A Black Rose 
+22 Dissection - Where Dead Angels Lie 
+23 Bolt Thrower - Cenotaph 
+24 Amorphis - Black Winter Day 
+25 Darkane - Innocence Gone 
+26 Unleashed - The One Insane 
+27 Anathema - Sweet Tears 
+28 Gorefest - Freedom 
+29 Pungent Stench - Sick Bizarre Defaced Creation 
+30 Impaled Nazarene - Armageddon Death Squad 
+31 Entombed - Left Hand Path 
+
+Live-Chapter 
+32 Tiamat - The Sleeping Beauty 
+33 Necrophobic - Roots of Heldrasill 
+
+DVD 2 
+
+1 Kataklysm - In Shadows And Dust 
+2 Misery Index - The Great Depression 
+3 Zyklon - Psyklon Aeon 
+4 Cannibal Corpse - Decency Defied 
+5 Deicide - Scars Of The Crucifix 
+6 Suffocation - Surgery Of Impalement 
+7 Obituary - Don`t Care 
+8 Hate Eternal - Powers That Be 
+9 Six Feet Under - Amerika The Brutal 
+10 Behemoth - As Above So Below 
+11 Exhumed - The Matter Of Splatter 
+12 Nile - Sacrophagus 
+13 Brutal Truth - Ill-Neglect 
+14 Morbid Angel - God Of Emptiness 
+15 Decapitated - Spheres Of Madness 
+16 Vader - Dark Age 
+17 Dying Fetus - One Shot, One Kill 
+18 Monstrosity - Final Cremation 
+19 Morgoth - Under The Surface 
+20 Sinister - Leviathan 
+21 Mortification - Scrolls Of The Megilloth 
+22 Pestilence - Land Of Tears 
+
+Live-Chapter: 
+23 Malevolent Creation - The Will To Kill 
+24 All Shall Perish - Deconstruction 
+25 Immolation - Of Martyrs And Men 
+26 Death - Spirit Crusher 
+
+Audiochapter - auf DVD 2 
+
+27 Soilwork - Stabbing The Drama 
+28 Disbelief - Rewind It All (Death Or Glory) 
+29 Graveworm - Hateful Design 
+30 Wintersun - Sadness And Hate 
+31 Omnium Gatherum - No Moon & No Queen 
+32 Die Apokalyptischen Reiter - Der Teufel 
+33 Pungent Stench - Lynndie (She-Wolf Of Abu Ghraib)
+
+### "A Tribute To The Cure Our Voices" 2005, Metal
+
+CD 1:
+01. Lizard Smile - Burn
+02. ShamRain - Charlotte Sometimes
+03. Silvery - Other Voices
+04. Sanguis et Cinis - Friday I'm In Love
+05. Floodland - A Forest 06. [f.e.v.e.r.] -
+Disintegration
+07. Bloodflowerz - Inbetween Days
+08. EverEve - Cold
+09. The Unpleasant - Plastic Passion
+10. The Fair S. - The Walk
+11. One Last Fix (ex-Meridian) - Lovesong
+12. Cine Muerte - Close To Me
+13. Stereoskop - Primary
+14. Prayers For Rain - Just Like Heaven
+15. Second Skin - Pictures Of You
+16. Volstad feat. Fernando Ribeiro (Moonspell) -
+Apart
+17. Marina Sirtis - Wailing Wall
+
+CD 2:
+01. Tanzwut - Lovesong
+02. Violet - Kyoto Song
+03. Unto Ashes - The Drowning Man
+04. The Escape - Seventeen Seconds
+05. Neon Dream - The Caterpillar
+06. Illuminate - A Night Like This
+07. Curious - Siamese Twins
+08. Ikon - A Strange Day
+09. Lethargy - Pictures Of You
+10. Psyche - Faith
+11. Celluloide - Three Imaginary Boys
+12. Final Selection - One Hundred Years
+13. FGFC820 feat. Rexx Arkana (Bruderschaft) - The
+Hanging Garden
+14. Sjukdom - Kyoto Song
+15. Terminal Choice - Boys Don't Cry
+16. Icon Of Coil - Killing An Arab
+17. Midnight Configuration - The Hanging Garden
+
+### "Subdivisions (tribute to RUSH)" 2005, Metal
+
+01. Distant Early Warning - Randy Jackson/Daniel J
+02. Lakeside Park - Sebastian Bach/Daniel J
+03. Limelight - Kip Winger/Andreas Kisser
+04. Subdivisions - Randy Jackson/Dominic
+Cifarelli/Jeff Feldman
+05. Different Strings - Robert Berry
+06. Tom Sawyer - Sebastian Bach/Dominic
+Cifarelli/Jeff Feldman
+07. Bastille Day - Jani Lane/Alex Skolnick
+08. Farewell To Kings, A - Randy Jackson/Andreas
+Kisser
+09. Spirit Of The Radio - Kip Winger/Jeff Stinco
+10. Didacts And Narpets - Mike Mangini
+11. 2112 Overture: Temples Of Syrinx / Medley -
+Jani Lane/Vinnie Moore
+
+### "Music Infection Conjuration, Vol.1 DVD" 2005, Metal
+
+ROSSOMAHAAR - What's Your Universe Built Upon
+MERLIN - Memorial To The Dead
+REST IN PAIN - The Letter
+BUTTERFLY TEMPLE - Мы Два Крыла
+EDUCATED SCUM - There is…
+DEMONS OF GUILLOTINE - Beastiary
+MANIC DEPRESSION - Paranoia Over The World
+HIERONYMUS BOSCH - Doubt Soul
+ATRA MUSTUM - Боль
+EVERLOST - Thought Inquisition
+MORTEM - Coroner’s Report
+NARGATHROND - The Seasons Shaped in Black
+ETERNAL SICK - Eastern Predictor
+BUTTERFLY TEMPLE - Viking Tid
+ЧЕРНЫЙ ОБЕЛИСК - Тебя больше нет
+ШМЕЛИ - Напролом
+MORTIFER - Please Your Master
+SAMHAIN - Last Lullaby
+CATHARSIS - Imago
+ARTEMESIA - Wrong Choice Again
+TVANGESTE - Under The Black Raven’s Wings
+SAMHAIN - Deadly Flowers
+E.S.T. - Я попал
+ЛЕГИОН - Листопад 2003
+WEEDS IN VOGUE - The Bitchripper
+МАСТЕР – Игра
+
++ Bonus:
+ETERNAL SICK + Max “With Bolt”- Burning Skies (Live)
+EDUCATED SCUM - Lethargic Era
+++Истории групп++
+++Фотогалерея++
+
+### "Monsters Of Metal Vol.4 (DVD)" 2005, Metal
+
+DVD 1:
+
+01. Hammerfall - Blood Bound
+02. Judas Priest - Revolution
+03. Nile - Execration Text
+04. Candlemass - Black Dwarf
+05. In Flames - My Sweet Shadow
+06. Meshuggah - Shed
+07. Soilwork - Nerve
+08. Darkane - Secondary Effects
+09. Mnemic - Door 2.12
+10. Dew-Scented - Turn To Ash
+11. Kreator - Impossible Brutality
+12. Anthrax - Deathrider
+13. Legion Of The Damned - Bleed For Me
+14. The Haunted - All Against All
+15. Ektomorf - Show Your Fist
+16. Dark Tranquility - Lost To Apathy
+17. Omnium Gatherum - The Fall Went Right Through
+Here
+18. Napalm Death - Low Life
+19. Suffocation - Surgery Of Impalement
+20. Graveworm - I, The Machine
+21. Enslaved - Isa
+22. Dimmu Borgir - Vredesbyrd
+23. Strapping Young Lad - Love?
+24. Mastodon - Iron Tusk
+25. Disbelief - Sick
+26. Dillinger Escape Plan - Setting Fire To
+Sleeping Giants
+27. Agnostic Front - So Pure To Me
+28. Bleed The Sky - Minion
+29. M.O.D. - Wigga
+
+Audiopart:
+
+01. The Duskfall - The Shallow End
+02. Primal Fear - Seven Seals
+03. Hypocrisy - Scrutinized
+04. Crystal Ball - Digital World
+05. Subway To Sally - Ratsel II
+06. Exodus - Raze
+07. Cathedral - Upon Azrael's Wings
+08. Gorefest - Fear
+
+
+DVD 2:
+
+01. Gotthard - Lift U Up
+02. Subway To Sally - Sieben
+03. Apocalyptica - Bittersweet
+04. Within Temptation - Ice Queen
+05. Accept - Balls To The Wall
+06. Grave Digger - The Last Supper
+07. Saxon - Beyond The Grave
+08. Motorhead - Life's A Bitch
+09. Rage - Straight To Hell
+10. Edguy - All The Clowns
+11. Iced Earth - Declaration Day
+12. Thunderstone - Tool Of The Devil
+13. Masterplan - Back For My Life
+14. Beyond Twilight - Shadow Self
+15. Evidence One - Virus In My Veins
+16. Nightwish - Ghost Love Score
+17. Primal Fear - Suicide & Mania
+18. Annihilator - All For You
+19. Communic - Conspiracy In Mind
+20. Paradise Lost - Forever After
+21. Tristania - Equilibrium
+22. Pain - Same Old Song
+23. Crematory - Tick Tack
+24. Die Apokalyptischen Reiter - Die Sonne scheint
+25. J.B.O. - Ganseblumchen
+
+Livechapter:
+
+01. All Shall Perish - Deconstruction
+02. Misery Index - Pulling Out The Nails
+03. Pungent Stench - Klyster Boogie
+04. The Duskfall - The Light
+05. Die Apokalyptischen Reiter - We Will Never Die
+06. Omnium Gatherum - The Nolan's Fati
+07. Anthrax - Refused To Be Denied
+08. Destruction - The Butcher Strikes Back
+09. Dimmu Borgir - Puritania
+10. Hypocrisy - The Final Chapter
+11. Kataklysm - Laments Of Fear
+12. Raise Hell - Soulcollector
+
+### "Beautiful Voices Dvd" 2005, Metal
+
+01. Nightwish - Nemo
+02. Guano Apes - Break The Line
+03. Angelzoom - Back In The Moment
+04. Die Happy - Slow Day
+05. L'Ame Immortelle - 5 Jahre
+06. Exilia - Can't Make Me Down
+07. Lacuna Coil - Swamped
+08. Tristania - Equilibrium
+09. Xandria - Ravenheart
+10. Apocalyptica feat. Nina Hagen - Seemann
+11. Leave's Eyes - Into Your Light
+12. Blutengel - No Eternity
+13. Epica - Solitary Ground
+14. After Forever - Digital Deceit
+15. Imperia - Angelchild
+16. Theatre Of Tragedy - Image
+17. Elis - Der Letzte Tag
+18. Mortal Love - Adoration
+19. Doro - Let Love Rain On Me
+20. Sinergy - Suicide By My Side
+21. Arch Enemy - We Will Rise
+
+### "Louder Than The Dragon part II - The Essential Of Limb Music Products" 2005, Power Metal
+
+
+
+### "Romantic Dark Ballads" 2006, Metal
+
+
+
+### "Rock S'cool" 2006, Metal
+
+
+
+### "The Realm Of Napalm Records Dvd" 2006, Metal
+
+01. Atrocity - Cold Black Days
+02. Battlelore - Storm Of The Blades
+03. Battlelore - Journey To Undying Lands
+04. Beseech - Innerlane
+05. Darkwell - Fate Prisoner
+06. Elis - Der letzte Tag
+07. Hurtlocker - Absolution
+08. Korpiklaani - Beer Berr
+09. Korpiklaani - Kadet Siipina
+10. Korpiklaani - Hunting Song
+11. Lacrimas Profundere - Amber Girl
+12. Lacrimas Profundere - Ave End
+13. Lacrimas Profundere - Again It's Over
+14. Leaves' Eyes - Elegy
+15. Leaves' Eyes - Into Your Light
+16. Sinamore - Darkness Of Day
+17. Tyr - Regin Smidur
+18. Tyr - Hail To The Hammer
+19. Visions Of Atlantis - Lost
+
+Live:
+
+20. Enthroned - Hellgium Messiah
+21. Saltatio Mortis - Heuchler
+22. Saltatio Mortis - Salz der Erde
+23. Saltatio Mortis - Mea Culpa
+24. Saltatio Mortis - Junges Blut
+25. Midnattsol - Infinite Fairytale
+26. Midnattsol - Desolation
+27. Midnattsol - Haunted
+
+Leaves' Eyes Special:
+
+28. The making of a saga
+29. A winter walk
+30. Bochum Total - Special
+31. From Mexico to Russia
+
+Get Wig Wamed:
+
+32. In My Dreams (new version)
+33. Hard To Be A Rock'N'Roller
+34. Bless The Night
+
+### "Music InFection Vol. 2 - Totum Dissemination DVD" 2006, Metal
+
+
+
+### "Rogue's Gallery - Pirate Ballads, Sea Songs & Chanteys (2CD)" 2006, Metal
+
+
+
+### "Metalmania 2005 (dvd+cd)" 2006, Metal
+
+DVD
+DARZAMAT - "Storm"
+DIES IRAE - "Intro / Beyond All Dimensions"
+DIES IRAE - "The Hunger"
+ANJ - "Set on Fire"
+ANJ - "Power to Destroy"
+AMON AMARTH - "Fate of Norns"
+AMON AMARTH - "Death in Fire"
+DARK FUNERAL - "Ravenna Strigoi Mortii"
+DARK FUNERAL - "Secrets of the Black Art"
+DARK FUNERAL - "Goddess of Sodomy"
+DARK FUNERAL - "Armageddon"
+THE HAUNTED - "99"
+THE HAUNTED - "Abysmal"
+THE HAUNTED - "Nothing's Right"
+PAIN - "Dancing with the Dead"
+PAIN - "Shut Your Mouth"
+ARCTURUS - "Painting My Horror"
+ARCTURUS - "Ad Absurdum"
+TURBO - "Szalony Ikar"
+TURBO - "Legenda Thora"
+TURBO - "Kawaleria Szatana I"
+NAPALM DEATH - "Continuing War On Stupidity"
+NAPALM DEATH - "Next on the List"
+NAPALM DEATH - "Silence is Deafening"
+APOCALYPTICA - "Bittersweet"
+APOCALYPTICA - "Betrayal"
+APOCALYPTICA - "Seek & Destroy"
+CD
+THUNDERBOLT - "Ashes to Ashes… Death to All"
+HERMH - "Fear of Blood"
+HEDFIRST - "Time for Fight" 
+HELL-BORN - "Legacy of the Nephilim" 
+QUO VADIS - "Siуdmy Krag" 
+PYORRHOEA - "Suicidal Masturbation" 
+SUPREME LORD - "Death Metal Beast" 
+MESS AGE - "Everyday Paranoia" 
+ABUSED MAJESTY - "A Burning Army" 
+NAUMACHIA - "Muertos" 
+DEAD BY DAWN - "A Blind is Leasing a Blind"
+VALINOR - "In the Mist… Part III"
+
+### "COLOURS OF BLACK: Russian dark scene compilation vol.2" 2006, Gothic
+
+"DUST" (first compact disc)
+01. ТУННЕЛЬ - Русалки
+02. ANTISISTERS - Out Of My Head
+03. NECRO STELLAR - Only Moon
+04. PURPLE FOR SIDE - War In My Head
+05. DASHA BASKAKOVA & LAUREN VORSE - Erotic Tea
+06. ДЕВУШКИН СОН - Камни-Капли
+07. INTERACTION 5 - Rainbird (Il Mafioso rmx bu Requiem For FM)
+08. ОН-МОЙ - Электросвязь
+09. T.3.R. - FWWM
+10. MAGIK BRITE - Sleep
+11. THE-PULSAR - Wolf (Black Colors rmx)
+12. N-616 feat. REQUIEM FOR FM - Smile
+13. WAVEFALL - Eclipse
+14. COLD DESIGN - The Shorter Pain
+15. BLOOD TRANSFUSION SET - Body and Soul
+16. FLAMMENFORM_36 - Speed Ov Dark
+17. CISFINITUM & В.ЕПИФАНЦЕВ - Жить хорошо!
+
+"ASHES" (second compact disc)
+01. CANONIS & EMILY A SAAEN - Apple Of Discord
+02. TALISMAN TALES - Higher
+03. KALTER GLANZ - ...and always...and lust
+04. CHILDREN OF THE GUN - Ride The USA
+05. СЛЕЗЫ ЖАННЕТ - Ветер
+06. DOPPELGANGER - Democracy's Undead
+07. SPINEFISH - Shattered 21
+08. LACKLUSTRE MIRROR - Голос Из Хора
+09. DODECCAHEEDRON - Medieval Hexen Rite
+10. VISHUDHA KALI - Pamir Witchcraft
+11. MAJDANEK WALTZ - Гамлет
+12. ANNO DOMINI - Ода Императору
+13. ТЕАТР ЯДА & THEODOR BASTARD - Завершение Вершин
+14. MOON FAR AWAY - An Invisible Step of World History
+15. AETERNA ANIMA - Gurvastaka
+16. DECEMBERED - Rex Tremendae
+17. STILLIFE - Departed
+
+### "Monsters Of Metal Vol. 5 [2DVD]" 2006, Metal
+
+DVD # 1:
+
+01.Deathstars -Cyanide
+02.Amorphis-House Of Sleep
+03.Katatonia-My Twin
+04.Scar Symmetry-The Illusionist
+05.Darkthrone-Too Old Too Cold
+06.Dimmu Borgir-Sorgens Kammer Del II
+07.Immortal-Blashyrkh (Mighty RavenDark)
+08.Mastodon-The March Of The Fire Ants
+09.In Flames-Take This Life
+10.Mendeed-Beneath A Burning Sky
+11.Unearth-Zombie Autopilot
+12.Destiny-Passing Moments
+13.Children Of Bodom-Are You dead yet?
+14.As I Lay Dying-Through Struggle
+15.Shadows Fall-The Power Of I And I
+16.Soilwork-Stabbing The Drama
+17.One Man Army & The Undead Q. -So Grim So True
+So Real
+18.Lacuna Coil-Our Truth
+19.The Duskfall-Shoot It In
+20.Dark Tranquility-The New Build
+21.Black Dahlia Murder-Contagious
+22.Ektomorf-I Know Them
+23.God Forbid-To Fallen Hero
+24.Heaven Shall Burn-The Weapon They Fear
+25.Kataklysm-Crippled & Broken
+26.Amon Amarth-Death In Fire
+27.Cannibal Corpse-Make Them Suffer
+28.Hypocrisy-Scrutinized
+29.Gorefest-For The Masses
+30.Disbelief-Rewind It All
+31.Six Feet Under-The Day The Dead Walked
+32.Legion Of The Damned-Into The Eye Of The Storm
+
+DVD # 2:
+
+01.Gotthard-Anytime Anywhere
+02.Nightwish-Sleeping Sun (2005)
+03.Primal Fear-Seven Seals
+04.Edguy-Superheroes
+05.Udo-Mean Streets
+06.Doro-Warrior Soul
+07.Brainstorm-All Those Words
+08.Steel Attack-Diabolic Symphony
+09.Nocturnal Rites-Awakening
+10.Mercyful Fate-The Uninvited Guest
+11.Armored Saint-Reign Of Fire
+12.Fates Warning-Point Of View
+13.Devin Townsend-Vampira
+14.Evergrey-Monday Morning Apocalypse
+15.Rage-No Fear
+16.Nevermore-Final Product
+17.Exodus-Now Thy Dead Day Come
+18.Sacred Reich-Low
+19.Cataract-Nothings Left
+20.Destruction-The Alliance Of Hellhoundz
+21.Tankard-The Beauty And The Beast
+22.Sentenced-Ever-frost
+23.Charon-Colder
+24.Theatre Of Tragedy-Storm
+25.Madder Mortem-My Name Is Silence
+26.Burst-Where The Wave Broke
+27.Naglfar-The Perpetual Horrors
+28.Dragonlord-Until The End
+29.Impaled Nazarene-Armageddon Death Squad
+30.Pain-Nothing
+31.Clawfinger-Dirty Lies
+32.Die Apokalyptischen Reiter-Friede Sei Mit Dir
+33.Knorkator-Wir Werden
+34.In Extremo-Liam
+
+### "Beautiful Voices Vol.2 [DVD/CD]" 2006, Metal
+
+01. Nightwish - Sleeping Sun 2005
+02. L'Ame Immortelle - Fallen Angel
+03. Bif Naked - Nothing Else Matters
+04. Angelzoom - Fairyland
+05. Lacuna Coil - Out Truth
+06. After Forever - Being Everyone
+07. Epica - Quietus
+08. Xandria - Eversleeping
+09. Leave's Eyes - Elegy
+10. Tristania - Libre
+11. Visions Of Atlantis - Lost
+12. Mandragora Scream - Dark Lantern
+13. Qntal - Flamma
+14. Exilia - Stop Playing God
+15. LAB - When Heaven Gets Dirty
+16. Lullacry - Don't Touch The Flames
+17. Arch Enemy - Nemesis
+18. Crucified Barbara - Losing The Game
+19. Sinergy - Midnight Madness
+20. Doro - Warrior Soul
+
+### "Into The Light [Nuclear Blast All-Stars]" 2007, Heavy Metal
+
+CD 1
+Dirty Wings (Tobias Sammet - EDGUY)
+Terrified (Peter “Peavy” Wagner - RAGE)
+Ruling The World (Tony Kakko - SONATA ARCTICA)
+Death Is Alive (Mats Leven - THERION / KRUX)
+Bloodsucker (Marcel “Schmier” Schirmer - DESTRUCTION)
+Slaves To The Desert (Hansi Kursch - BLIND GUARDIAN)
+A Perfect Day (Andi Deris - HELLOWEEN)
+Eternally (Oddleif Stensland - COMMUNIC)
+Inner Sanctuary (Marco Hietala - NIGHTWISH / TAROT)
+In The Picture (Tarja Turunen - Ex-NIGHTWISH)
+
+CD 2
+HAMMERFALL - Hearts on fire 
+HELLOWEEN - The madness of the crowds 
+GOTTHARD - El traidor 
+AFTER FOREVER - Sweet enclosure 
+RIDE THE SKY - New protection 
+THUNDERSTONE - Forevermore 
+THRESHOLD - Slipstream 
+AMORPHIS - The smoke 
+CANDLEMASS - Devil seed 
+SIRENIA - The other side
+
+### "I Scream - 13 Years Of Kick-Ass Music" 2007, Hardcore
+
+
+
+### "Rock S'cool (2 CD)" 2007, Metal
+
+
+
+### "Dutch Punch" 2007, Metal
+
+
+
+### "Out Of The Dark [Nuclear Blast All-Stars]" 2007, Metalcore
+
+CD 1
+Dysfunctional Hours (вокал - Anders Friden - IN FLAMES)
+Schizo (вокал - Peter Tagtgren - HYPOCRISY)
+Devotion (вокал - Jari Maenpaa - WINTERSUN)
+The Overshadowing (вокал - Christian Olvestam - SCAR SYMMETRY)
+Paper Trail (вокал - John Bush - ex-ANTHRAX)
+The Dawn Of All (вокал - Bjorn "Speed" Strid - SOILWORK)
+Cold Is My Vengeance (вокал - Maurizio Iacono - KATAKLYSM)
+My Name Is Fate (вокал - Mark Osegueda - DEATH ANGEL)
+The Gilded Dagger (вокал - Richard Sjunnesson & Roland Johansson - SONIC SYNDICATE)
+Closer To The Edge (вокал - Guillaume Bideau - MNEMIC)
+CD 2
+Dimmu Borgir – The Heretic Hammer (US Bonus "In Sorte Diaboli") 
+Immortal – Tyrants 
+Nile – As He Creates, So He Destroys 
+Exodus – Purge The World (Japan Bonus "Shovel Headed Kill Machine") 
+Anthrax - Ghost 
+Meshuggah – Future Breed Machine 
+Chimaira – Kingdome Of Heartache (Japan Bonus "Resurrection") 
+All Shall Perish – Prisoner Of War 
+Agnostic Front – All Is Not Forgotten 
+Threat Signal – Counterbalance
+
+### "Dear Mr Fantasy - A Celebration For Jim Capaldi (2CD)" 2007, Rock
+
+
+
+### "Thrashing Like A Maniac" 2007, Thrash
+
+
+
+### "Regain Records presents: Music With Impact (DVD)" 2007, Metal
+
+
+
+### "Metalmania 2006 (CD+DVD)" 2007, Metal
+
+
+
+### "Rock S'cool II (DVD)" 2007, Metal
+
+
+
+### "A Tribute To The Rolling Stones" 2007, Rock
+
+
+
+### "Extreme Metal Inside" 2007, Death Metal
+
+
+
+### "20 Years Of Nuclear Blast [2DVD]" 2007, Metal
+
+DVD 1
+
+01. NIGHTWISH – Amaranth
+02. AFTER FOREVER – Energize Me
+03. AMORPHIS – Silent Waters
+04. SIRENIA – The Other Side
+05. SONATA ARCTICA – Paid In Full
+06. EPICA – Never Enough (long version)
+07. RIDE THE SKY – New Protection
+08. BLIND GUARDIAN – Another Stranger Me
+09. HAMMERFALL – Natural High
+10. TAROT – Ashes To The Stars
+11. THUNDERSTONE – Face In The Mirror
+12. ECHOES OF ETERNITY – Voices In A Dream
+13. THRESHOLD – Pilot In The Sky Of Dreams
+14. GOTTHARD – The Call
+15. CHROME DIVISION – Serial Killer
+16. DEATHSTARS – Blitzkrieg
+17. SAMAEL – Slavocracy
+18. DIMMU BORGIR – The Serpentine Offering
+19. KATAKLYSM – To Reign Again
+20. BELPHEGOR – Bluthsturm Erotica
+21. DEW-SCENTED – That’s Why I Despise You
+22. SONIC SYNDICATE – Denied
+23. CHIMAIRA – Resurrection
+24. IN FLAMES – Come Clarity
+25. THREAT SIGNAL – Rational Eyes
+26. CLAWFINGER – The Price We Pay
+27. EKTOMORF – Outcast
+28. MNEMIC – Meaningless
+29. ALL SHALL PERISH – Eradiction
+30. MENDEED – The Dead Live By Love
+31. KNORKATOR – Alter Mann
+32. DIE APOKALYPTISCHEN REITER – Dance With Me
+33. THE DESTINY PROGRAM – Project Hoax
+34. THERION – Son Of The Staves Of Time
+35. MESHUGGAH – Rational Gaze
+36. SOILWORK – Exile
+37. ANTHRAX – Deathrider
+38. EDGUY – King Of Fools
+39. SUBWAY TO SALLY – Sieben
+40. NIGHTWISH – While Your Lips Are Still Red
+
+DVD 2
+
+Report (4 features presented by Schmier
+(Destruction))
+
+01. Floor 1: the years 1987-1992
+02. Floor 2: the years 1993-1997
+03. Floor 3: the years 1998-2002
+04. Floor 4: the years 2003-2007
+
+Bonus-Parts
+- Treasures From The Dark Cellar:
+01. Pungent Stench ? Viva La Muerte
+02. Hypocrisy ? Inferior Devoties
+03. Benediction ? The Grotesque
+04. Gorefest ? Erase
+05. Therion ? The Beauty In Black
+06. MESHUGGAH ? Transfixion
+07. Kataklysm ? The Awakener
+08. Dimmu Borgir ? Entrance (live in Poland ?
+rough version) a ?rough? muss dabei stehen, weil
+Rohschnitt Fassung mit mitlaufender Zeit!
+09. Hammerfall ? Glory To The Brave
+10. Destruction ? The Butcher Strikes Back
+
+More Clips:
+01. DIMMU BORGIR Progenies Of The Great
+Apocalypse
+02. - NIGHTWISH - Nemo
+03. HAMMERFALL Last Man Standing
+04. IN FLAMES Touch Of Red
+05. - HYPOCRISY Eraser
+06. EXODUS Now Thy Death Day Come
+07. DEATH ANGEL Thicker Than Blood
+08. WINTERSUN Beyond The Dark Sun
+09. DEATHSTARS Virtue To Vice
+10. SONIC SYNDICATE Enclave
+11. MESHUGGAH Shed
+12. SONATA ARCTICA Don?t Say A Word
+13. CANDLEMASS Black Dwarf
+14. MNEMIC Ghost
+15. KNORKATOR Wir Werden
+16. AGNOSTIC FRONT So Pure To Me
+17. ANTHRAX Deathrider
+18. DIE APOKALYPTISCHEN REITER Friede Sei Mit Dir
+19. BELPHEGOR Bluthsturm Erotica
+20. ECHOES OF ETERNITY Voices In A Dream
+
+NUCLEAR HELLFIRES:
+01. NUCLEAR BLAST PORTRAIT by Marcus Pils
+02. THE OWNER MARKUS TALKS ABOUT HIS COMPANY by
+Andreas Geiger [english] [deutsch]
+03. NUCLEAR BLAST AMERICA PORTRAIT by Gerardo
+Martinez
+04. NUCLEAR BLAST SOUTH AMERICA PORTRAIT by Gerard
+Werron
+
+OUTTAKES FROM HELL
+01. PODCAST OUTTAKES (laugh or die)
+02. XMAS PODCAST GREETINGS
+03. ANNIVERSARY GREETINGS
+
+### "Monsters Of Death Vol2" 2007, Death Metal
+
+DVD 1:
+01.	DEATH- Flesh And The Power It Holds
+02.	AT THE GATES - Blinded By Fear
+03.	CANNIBAL CORPSE - Death Walking Terror
+04.	OBITUARY - Insane
+05.	CARCASS - Corporal Jigsore Quandary
+06.	AMON AMARTH - Runes To My Memory
+07.	UNLEASHED - Before The Creation Of Time
+08.	IMMOLATION - Harnessing Ruin
+09.	MORBID ANGEL - God Of Emptiness
+10.	DEICIDE - Homage For Statn
+11.	LEGION OF THE DAMNED - Bleed For Me
+12.	HYPOCRISY - Fire In The Sky (live)
+13.	DISMEMBER - Skinfather
+14.	ENTOMBED - Wolverine Blues
+15.	BENEDICTION - Ashen Epitaph
+16.	GOREFEST - For The Masses
+17.	KRISIUN - Vicious Wrath
+18.	DEATH BREATH - Death Breath
+19.	ATHEIST - Unholy War (live)
+20.	CRYPTOPSY - The Pestilence That Walketh In
+Darkness
+21.	VADER - Cold Demons (live)
+
+DVD 2:
+01.	KATAKLYSM - To Reign Again
+02.	HATE ETERNAL - I, Monarch
+03.	BELPHEGOR - Bluhtsturm Erotica
+04.	DISBELIEF - Rewind It All (Death Or Glory)
+05.	MORGOTH - Sold Baptism
+06.	DEW-SCENTED - Turn To Ash
+07.	THE CROWN - Face Of Destruction
+08.	ROTTEN SOUND - Burden
+09.	ONE MAN ARMY - So Grim, So True, So Real
+10.	MISERY INDEX - Pulling Out The Nails (live)
+11.	GOD DETHRONED - Lair Of The White Worm
+12.	DECAPITATED - Day 69
+13.	INCANTATION - Dying Divinity
+14.	REQUIEM - Diary Of A Damaged Brain
+15.	ABORTED - Meticulous Invagination
+16.	LAY DOWN ROTTEN - Pulling The Trigger
+17.	IMPIOUS - Wicked Saints
+18.	SEVERE TORTURE - Decree Of Darkness
+19.	AMORAL - Lacrimal Gland
+20.	MORTIFICATION - Grind Planetarium (live)
+21.	MERCILESS - Cold Eyes Of Grey
+
+### "Metalmania 2007 (CD+DVD)" 2008, Metal
+
+
+
+### "Monsters Of Metal Dvd Vol 6" 2008, Metal
+
+DVD 1:
+
+01. NIGHTWISH - The Islander
+02. DIMMU BORGIR - The Serpentine Offering
+03. IN FLAMES - The Mirror’s Truth
+04. AMON AMARTH - Cry Of The Blackbirds
+05. LEGION OF THE DAMNED - Disturbing The Dead
+06. DEATHSTARS - Virtue To Vice
+07. EXODUS - Riot Act
+08. ARCH ENEMY - Revolution Begins
+09. OBITUARY - Evil Ways
+10. JOB FOR A COWBOY - Embedded
+11. SONIC SYNDICATE - Jack Of Diamonds
+12. KREATOR - Enemy Of God
+13. FINNTROLL – Nedgang
+14. ELUVEITIE - Inis Mona
+15. AFTER FOREVER – Discord
+16. DEATH ANGEL – Dethroned
+17. SOILWORK - Exile
+18. GOJIRA - To Sirius
+19. SUICIDE SILENCE - The Price Of Beauty
+20. HEADHUNTER – Silverskull
+21. NILE - Papyrus Containing The Spell To
+Preserve Its Possessor Against Attacks From He Who
+Is In The Water
+22. PARADISE LOST - The Enemy
+23. MELTDOWN - One By One
+24. ICED EARTH - Ten Thousand Strong
+25. AVENGED SEVENFOLD - Almost Easy
+26. BLACK DAHLIA MURDER - Statutory Ape
+27. LEATHERWOLF - Dr. Wicked
+28. DESPISED ICON - In The Arms Of Perdition
+29. RAGE - Lord Of The Flies
+30. DIVINITY - Plasma
+31. NORTHER - We Rock
+32. REQUIEM- Premier Killing League
+33. NIGHTWISH - Bye, Bye Beautiful
+
+DVD 2:
+01. DIE APOKALYPTISCHEN REITER – Der Weg
+02. KEEP OF KALESSIN – Ascendant
+03. MESHUGGAH – Bleed
+04. KATAKLYSM - Taking The World By Storm
+05. SCAR SYMMETRY – Morphogenesis
+06. ARSIS - We Are The Nightmare
+07. EPICA - Never Enough
+08. SIX FEET UNDER - Doomsday
+09. AVANTASIA - Lost In Space
+10. SUBWAY TO SALLY - Auf Kiel (live)
+11. BEHEMOTH – Prometherion
+12. HAMMERFALL - Last Man Standing
+13. HEAVEN SHALL BURN – Counterweight
+14. VADER - Helleluyah!!! (God is dead)
+15. DISBELIEF – Navigator
+16. WARBRINGER - Combat Shock
+17. AUDREY HORNE – Threshold
+18. TYPE O NEGATIVE - The Profits Of Doom
+19. KAMELOT - Ghost Opera
+20. SAXON - Let Me Feel Your Power
+21. U.D.O. - The Wrong Side Of Midnight
+22. THREE - All That Remains
+23. DISILLUSION - Don `t Go Any Further
+24. SAMAEL - Slavocracy
+25. THE DESTINY PROGRAM - Welcome Overboard
+26. AGNOSTIC FRONT - For My Family
+27. KORPIKLAANI - Keep On Galopping
+28. OCTOBER FILE - Another Day
+29. HATE ETERNAL - Bringer Of Storms
+30. NEAERA - Let The Tempest Come
+31. THE SORROW - Knights Of Doom
+32. BLACK TIDE – Shockwave
+33. DIMMU BORGIR - The Sacrilegious Scorn
+
+Incl. Easter Egg (Hidden Video Clip)
+
+### "We Wish You a Metal Xmas and a Headbanging New Year" 2008, Metal
+
+1) We Wish You A Merry Xmas
+Jeff Scott Soto, Bruce Kulick, Bob Kulick, Chris Wyse, Ray Luzier
+2) Santa Claus Is Coming To Town
+Alice Cooper, John 5, Billy Sheehan, Vinny Appice
+3) Run Rudolph Run
+Lemmy Kilmister, Billy F. Gibbons, Dave Grohl
+4) God Rest Ye Merry Gentlemen
+Ronnie James Dio, Tony Iommi, Rudy Sarzo, Simon Wright
+5) Little Drummer Boy
+dUg Pinnick, George Lynch, Billy Sheehan, Simon Phillips
+6) Santa Claus Is Back In Town
+Tim “Ripper” Owens, Steve Morse, Juan Garcia, Marco Mendoza, Vinny Appice
+7) Silent Night
+Chuck Billy, Scott Ian, Jon Donais, Chris Wyse, John Tempesta
+8) Silver Bells
+Geoff Tate, Carlos Cavazo, James Lomenzo, Ray Luzier
+9) Deck the Halls
+Oni Logan, Craig Goldy, Tony Franklin, John Tempesta
+10) Grandma Got Ran Over By a Reindeer
+Stephen Pearcy, Tracii Guns, Bob Kulick, Billy Sheehan, Greg Bissonette
+11) Rockin’ Around the Xmas Tree
+Joe Lynn Turner, Bruce Kulick, Bob Kulick, Rudy Sarzo, Simon Wright
+12) Happy Xmas (War Is Over)
+Tommy Shaw, Steve Lukather, Marco Mendoza, Kenny Aronoff
+
+Produced by:
+Bob Kulick and Brett Chassen
+
+### "Любовь, Rock'n'Roll и Весна 1958-60" 2008, Metal
+
+
+
+### "Saw V - Music from and inspired by the motion picture" 2008, Metal
+
+
+
+### "Century Media - Covering 20 Years Of Extremes" 2008, Metal
+
+CD 1 (67:36)
+
+ARCH ENEMY - «The Book Of Heavy Metal» (DREAM EVIL) 
+DARK TRANQUILLITY - «Broken» (SENTENCED) 
+HEAVEN SHALL BURN - «Whatever That Hurts» (TIAMAT) 
+SHADOWS FALL - «December» (ONLY LIVING WITNESS) 
+BRAND NEW SIN - «Watching Over Me» (ICED EARTH) 
+WOLF - «Alma Mater» (MOONSPELL) 
+MERCENARY - «Burning Angel» (ARCH ENEMY) 
+GOD FORBID - «Master Killer» (MERAUDER) 
+WARBRINGER - «Execute Them All» (UNLEASHED) 
+GRAVE - «Vermin» (ASPHYX) 
+ARCHITECTS - «Officer Down» (STAMPIN“ GROUND) 
+NAPALM DEATH - «Outconditioned» (DESPAIR) 
+KRISIUN - «Human Dissection» (DEMOLITION HAMMER) 
+CRYPTOPSY - «Oh My Fucking God» (STRAPPING YOUNG LAD) 
+MAROON - «Baphomet“s Throne» (SAMAEL) 
+WATCH THEM DIE - «Breeding Death» (BLOODBATH) 
+
+CD 2 (66:47)
+
+FIREWIND - «Believe In Nothing» (NEVERMORE) 
+DREAM EVIL - «Let The Killing Begin» (ARCH ENEMY) 
+FEAR MY THOUGHTS - «The Weapon They Fear» (HEAVEN SHALL BURN) 
+THE AGONIST - «Monochromatic Stains» (DARK TRANQUILLITY) 
+THE FORSAKEN - «You“ll Never See» (GRAVE) 
+DEVIAN - «Isolated» (MORGOTH) 
+HEAVEN SHALL BURN - «Downfall Of Christ» (MERAUDER) 
+ABORTED - «Playing Dead» (TURMOIL) 
+TERROR - «Boxed In» (SUBZERO) 
+NAPALM DEATH - «Messiah» (HELLHAMMER) 
+ASPHYX - «Os Abysmi Vel Daath» (CELTIC FROST) 
+ZIMMERS HOLE - «Doommaker» (OLD MAN“S CHILD) 
+FU MANCHU - «Words To Live By» (PENANCE) 
+MANNTIS (feat. IN THIS MOMENT) - «Heaven“s A Lie» (LACUNA COIL) 
+KIVIMETSAN DRUIDI - «Leaves» (THE GATHERING) 
+INTRONAUT - «Dixie Whiskey» (EYEHATEGOD) 
+
+### "Beautiful Voices Vol.3 [DVD/CD]" 2008, Metal
+
+DVD track listing:
+
+01. NIGHTWISH - Bye Bye Beautiful
+02. LACUNA COIL - Within Me
+03. XANDRIA - Save My Life
+04. AFTER FOREVER - Energize Me
+05. TRISTANIA - Equilibrium
+06. SIRENIA - The Other Side
+07. IN THIS MOMENT - Prayers
+08. AUTUMN - Satellites
+09. DELAIN - Frozen
+10. DELIGHT - Divided
+11. BIF NAKED - Let Down
+12. THE VINCENT BLACK SHADOW - Broken
+13. THE AGONIST - Business Suits and Combat Boots
+14. LEAVES' EYES - Legend Land
+15. QNTAL - Von den Elben
+16. STREAM OF PASSION - Passion
+17. FIREWIND - Breaking the Silence
+18. DORO - live clip
+19. EPICA - Never Enough
+
+CD track listing:
+
+01. NIGHTWISH - Amaranth
+02. AFTER FOREVER - Discord
+03. XANDRIA - Save My Life
+04. EDENBRIDGE - Shine (single edit)
+05. BEAUTIFUL SIN - Lost
+06. DORO - Thunderspell
+07. BIF NAKED - Abandonment
+08. DELAIN - See me in a Shadow (single edit)
+09. AUTUMN - Angel of Desire
+10. THE VINCENT BLACK SHADOW - Ghost Train Out
+11. IN THIS MOMENT - This Moment
+12. SINERGY - The Sin Trade
+13. SIRENIA - My Mind’s Eye
+14. TRISTANIA - Destination Departure
+15. THERION - Trul
+16. ELIS - Phoenix from the Ashes
+17. VISIONS OF ATLANTIS - The Secret
+18. EPICA - Chasing the Dragon (radio edit)
+19. LACUNA COIL - Closer
+
+### "The Realm Of Napalm Records Vol.II [DVD]" 2009, Metal
+
+01. ALESTORM Keelhauled
+02. ARKONA Goi, Rode, Goi
+03. ARKONA Pokrovi Nebesnogo Startsa
+04. ARKONA Slavsia, Rus
+05. ATROCITY The Sun Always Shines on TV
+06. BATTLELORE House of Heroes
+07. BATTLELORE Third Immortal
+08. GRAVE DIGGER Ballad of a Hangman
+09. HATESPHERE To The Nines
+10. HOLLENTHON Son of Perdition
+11. KATRA Beast Within
+12. LACRIMAS PROFUNDERE A Pearl
+13. LACRIMAS PROFUNDERE And God`s Ocean
+14. LEAVES` EYES My Destiny
+15. SALTATIO MORTIS Ebenbild
+16. SERENITY Velatum
+17. THE MODERN AGE SLAVERY Vile Mother Earth
+18. TY'R Hold The Heathen Hammer High
+19. TY'R Sinklars Visa
+20. VAN CANTO Speed Of Light
+21. ALESTORM Nancy The Tavern Wench (Live Clip)
+22. ARKONA Rus` (Live Clip)
+23. ATROCITY Fade To Grey (Live Clip)
+24. LEAVES` EYES New Found Land (Live Clip)
+25. LEAVES` EYES Norwegian Lovesong (Live Clip)
+
+### "Monsters Of Metal DVD Vol 7" 2009, Metal
+
+DVD 1
+
+01. AMORPHIS - Silverbride
+02. EPICA - Unleashed
+03. EDGUY – Ministry Of Saints
+04. SONATA ARCTICA – Flag In The Ground
+05. SONIC SYNDICATE – Burn This City
+06. HARDCORE SUPERSTAR – Beg For It
+07. KORPIKLAANI - Vodka
+08. THE 69 EYES – Dead Girls Are Easy
+09. INDICA – Straight And Arrow
+10. PARADISE LOST – Faith Divides Us – Death
+Unites Us
+11. HAMMERFALL – Any Means Necessary
+12. LEGION OF THE DAMNED – Cult Of The Dead
+13. THREAT SIGNAL – Through My Eyes
+14. SUICIDAL ANGELS - Apokathilosis
+15. EX DEO - Romulus
+16. SWASHBUCKLE – Cruiseship Terror
+17. TURISAS – Battle Metal 2008
+18. EQUILIBRIUM – Blut Im Auge
+19. DIMMU BORGIR – The Chosen Legacy
+20. ELUVEITIE – Omnos
+21. SUBWAY TO SALLY – Besser Du Rennst
+22. DEATHSTARS – Death Dies Hard
+23. LEAVES’ EYES – My Destiny
+24. LACUNA COIL - Spellbound
+25. SIRENIA – The Path To Decay
+26. PAIN – Follow Me
+27. TYR – Hold The Heathen Hammer High
+28. BULLET – Dusk Til’ Dawn
+29. GRAVE DIGGER – Ballad Of A Hangman
+30. SAXON – Live To Rock
+31. DORO - Herzblut
+32. SABATON – Attero Dominatus
+33. TANKARD – Stay Thirsty
+
+DVD 2
+
+01. SCAR SYMMETRY – Noumenon And Phenomenon
+02. TESTAMENT – More Than Meets The Eye
+03. BEHEMOTH – Ov Fire And The Void
+04. VADER – Never Say My Name
+05. NAPALM DEATH – Time Waits For No Slave
+06. MY DYING BRIDE – Bring Me Victory
+07. UNLEASHED – Black Horizon
+08. ALESTORM - Keelhauled
+09. SAMAEL – Black Hole
+10. STRATOVARIUS – Deep Unknown
+11. TESLA – I Wanna Live
+12. DAD – You Won’t Change
+13. TAROT – Ashes To The Stars
+14. MILKING THE GOATMACHINE – Surf Goataragua
+15. KREATOR – Hordes Of Chaos
+16. ARCH ENEMY – I Will Live Again
+17. CHIMAIRA – Destroy And Dominate
+18. GOJIRA – All The Tears
+19. SUICIDE SILENCE – Wake Up
+20. BLOODBATH – Hades Rising
+21. BLEEDING THROUGH – Death Anxiety
+22. HACRIDE - Perturbed
+23. KATAKLYSM – Blood In Heaven
+24. SYLOSIS - Teras
+25. CALLEJON - Phantomschmerz
+26. HACKNEYED - Deatholution
+28. DISBELIEF – A Place To Hide
+29. ENSLAVED – The Watcher
+30. DIVINITY - Induce
+31. TEXTURES - Awake
+32. BELPHEGOR – Der Geistertreiber
+33. DIE APOKALYPTISCHEN REITER – Nach Der Ebbe
+34. IN THIS MOMENT – Forever
+
+Bonus Live Clips:
+01. EDGUY – Save Me
+02. DEATH ANGEL – The Devil Incarnate
+03. THERION – Blood Of Kingu
+04. SUBWAY TO SALLY – Auf Kiel
+05. GOTTHARD – Anytime, Anywhere
+06. HYPOCRISY – Roswell 47
+
+### "Chronicles Of Doom [DVD]" 2009, Doom
+
+1. Abysmal Darkening - End It
+2. Nymphea Aurora - Misery
+3. Funeralium - Funeralium
+4. Doomraiser - Metamorphosis
+5. Inborn Suffering - Stygian Darkness
+6. Ataraxie - Another Way Of Despondency
+7. Saturnus - Rain Wash Me
+8. Mary Bell - Stone The Martyr
+9. Season's End - A Ghost In My Emotion
+10. Insanity Reigns Supreme - Worship
+11. Centurions Ghost - Devil's Desciple
+12. The Gates Of Slumber - Suffer No Guilt
+13. The Prophecy - Rivers
+14. Reverend Bizarre Funeral Summer
+
+### "Прорыв vol. 1" 2011, Metal
+
+
+
+### "Monsters Of Metal Vol. 8 [2DVD/Blu-Ray]" 2012, Metal
+
+DVD1: 205 Minuten, 16:9 PAL, DVD9, Region All, Dolby Stereo, 
+01 Nightwish - Storytime
+02 Deathstars - Metal
+03 Pain - The Great Pretender
+04 Amorphis - You I Need
+05 Opeth - The Devils Orchard
+06 Lacuna Coil - Within Me
+07 Therion - Kali Yuga Part 3: Autumn Of The Aeons
+08 Leaves Eyes - Take The Devil In Me
+09 Tristania - Year Of The Rat
+10 Draconian - The Last Hour Of Ancient Sunlight
+11 Saltatio Mortis - Hochzeitstanz
+12 Die Apokalyptischen Reiter - Dr. Pest
+13 Monster Magnet - Gods & Punks
+14 Graveyard - Hisingen Blues
+15 Seventh Void - Heaven Is Gone
+16 Chrome Division - Bulldogs Unleashed
+17 Dream Theater - On The Backs Of Angels
+18 Gotthard - Remember Its Me
+19 Edguy - Robin Hood
+20 Blind Guardian A Voice In The Dark
+21 Accept - Pandemic
+22 Sabaton - Screaming Eagles
+23 Hammerfall - One More Time
+24 Rhapsody Of Fire - Sea Of Fate
+25 Avantasia - Dying For An Angel
+26 Powerwolf - We Drink Your Blood
+27 Grave Digger - Rebellion Live@Wacken
+28 Hell - On Earth As It Is In Hell
+29 Tarot - Wings OfDarkness
+30 Bullet - Stay Wild 
+31 Steelwing - The Illusion
+32 Enforcer - Midnight Vice
+33 Skullfist - Head Of The Pack
+34 White Wizzard - Over The Top
+35 Cauldron - Chained Up In Chains
+36 Huntress - Eight Of Swords
+37 Battle Beast - Into The Metalworld
+38 Armored Saint - Left Hook From Right Field
+39 Nevermore - Born
+40 Alestorm - Shipwrecked
+41 Turisas - Stand Up And Fight
+42 Heidevolk - Nehalennia
+43 Trollfest - Die VerdammteHungersnot
+44. Milking The Goatmachine -The Wolf Is Dead
+
+DVD2: 203 Minuten, 16:9 PAL, DVD9, Region All, Dolby Stereo 
+01 Dimmu Borgir - Dimmu Borgir
+02 Immortal - All Shall Fall
+03 Triptykon - Shatter 
+04 Melechesh - Grand Gathas Of Baal Sin
+05 Fleshgod Apocalypse - The Violation
+06 MaYan - War On Terror
+07 Kataklysm - At The Edge Of The World
+08 Immolation - A Glorious Epoch
+09 Graveworm - See No Future
+10 Hail Of Bullets - Operation Z
+11 Machine Head - Imperium
+12 Legion Of The Damned - The Hand Of Darkness
+13 Death Angel - River Of Rapture
+14 Overkill - Bring Me The Night
+15 Destruction - Hate Is My Fuel
+16 Suicidal Angels - Bleeding Holocaust
+17 Evile - Infected Nation
+18 Municipal Waste - Sadistic Magician
+19 Agnostic Front - My Life / My Way
+20 Madball - All Or Nothing
+21 Zimmers Hole - When You Were Shouting At The Devil...
+22 Fear Factory - Fear Campagin
+23 Arch Enemy - Yesterday Is Dead And Gone
+24 Soilwork - Let This River Flow
+25 Cipher System - Communicate The Storms
+26 Channel Zero - In The City
+27 Devildriver - Dead To Rights
+28 Trivium - In Waves
+29 Sylosis - Empyreal
+30 Sonic Syndicate - Revolution, Baby!
+31 Asking Alexandria - The Final Episode (Lets Change The Channel)
+32 Attack Attack! - Smokahontas
+33 We Came As Romans - Broken Statues
+34 Like Moths To Flames - You Wont Be Missed
+35 Of Mice And Men - Second And Sebring
+36 Miss I May - Masses Of A Dying Breed
+37 Tasters - Please Destroy This World
+38 Suicide Silence - Disengage
+39 All Shall Perish - There Is Nothing Left
+40 The Black Dahlia Murder - Moonlight Equilibrium
+41 Darkest Hour - Savor The Kill 
+42 Winds Of Plague - Refined In The Fire
+43 Heaven Shall Burn - Combat
+44 Architects - Heartburn
+45 TesseracT - Nascent
+46 Textures - Reaching Home 
+
+Bluray: 
+408:23 Minuten, 1080p - Dolby Stereo
+01 Nightwish - Storytime
+02 Deathstars - Metal
+03 Pain - The Great Pretender
+04 Amorphis - You I Need
+05 Opeth - The Devils Orchard
+06 Lacuna Coil - Within Me
+07 Therion - Kali Yuga Part 3: Autumn Of The Aeons
+08 Leaves Eyes - Take The Devil In Me
+09 Tristania - Year Of The Rat
+10 Draconian - The Last Hour Of Ancient Sunlight
+11 Saltatio Mortis - Hochzeitstanz
+12 Die Apokalyptischen Reiter - Dr. Pest
+13 Monster Magnet - Gods & Punks
+14 Graveyard - Hisingen Blues
+15 Seventh Void - Heaven Is Gone
+16 Chrome Division - Bulldogs Unleashed
+17 Dream Theater - On The Backs Of Angels
+18 Gotthard - Remember Its Me
+19 Edguy - Robin Hood
+20 Blind Guardian A Voice In The Dark
+21 Accept - Pandemic
+22 Sabaton - Screaming Eagles
+23 Hammerfall - One More Time
+24 Rhapsody Of Fire - Sea Of Fate
+25 Avantasia - Dying For An Angel
+26 Powerwolf - We Drink Your Blood
+27 Grave Digger - Rebellion Live@Wacken
+28 Hell - On Earth As It Is In Hell
+29 Tarot - Wings OfDarkness
+30 Bullet - Stay Wild 
+31 Steelwing - The Illusion
+32 Enforcer - Midnight Vice
+33 Skullfist - Head Of The Pack
+34 White Wizzard - Over The Top
+35 Cauldron - Chained Up In Chains
+36 Huntress - Eight Of Swords
+37 Battle Beast - Into The Metalworld
+38 Armored Saint - Left Hook From Right Field
+39 Nevermore - Born
+40 Alestorm - Shipwrecked
+41 Turisas - Stand Up And Fight
+42 Heidevolk - Nehalennia
+43 Trollfest - Die VerdammteHungersnot
+44. Milking The Goatmachine -The Wolf Is Dead
+45 Dimmu Borgir - Dimmu Borgir
+46 Immortal - All Shall Fall
+47 Triptykon - Shatter 
+48 Melechesh - Grand Gathas Of Baal Sin
+49 Fleshgod Apocalypse - The Violation
+50 MaYan - War On Terror
+51 Kataklysm - At The Edge Of The World
+52 Immolation - A Glorious Epoch
+53 Graveworm - See No Future
+54 Hail Of Bullets - Operation Z
+55 Machine Head - Imperium
+56 Legion Of The Damned - The Hand Of Darkness
+57 Death Angel - River Of Rapture
+58 Overkill - Bring Me The Night
+59 Destruction - Hate Is My Fuel
+60 Suicidal Angels - Bleeding Holocaust
+61 Evile - Infected Nation
+62 Municipal Waste - Sadistic Magician
+63 Agnostic Front - My Life / My Way
+64 Madball - All Or Nothing
+65 Zimmers Hole - When You Were Shouting At The Devil...
+66 Fear Factory - Fear Campagin
+67 Arch Enemy - Yesterday Is Dead And Gone
+68 Soilwork - Let This River Flow
+69 Cipher System - Communicate The Storms
+70 Channel Zero - In The City
+71 Devildriver - Dead To Rights
+72 Trivium - In Waves
+73 Sylosis - Empyreal
+74 Sonic Syndicate - Revolution, Baby!
+75 Asking Alexandria - The Final Episode (Lets Change The Channel)
+76 Attack Attack! - Smokahontas
+77 We Came As Romans - Broken Statues
+78 Like Moths To Flames - You Wont Be Missed
+79 Of Mice And Men - Second And Sebring
+80 Miss I May - Masses Of A Dying Breed
+81 Tasters - Please Destroy This World
+82 Suicide Silence - Disengage
+83 All Shall Perish - There Is Nothing Left
+84 The Black Dahlia Murder - Moonlight Equilibrium
+85 Darkest Hour - Savor The Kill 
+86 Winds Of Plague - Refined In The Fire
+87 Heaven Shall Burn - Combat
+88 Architects - Heartburn
+89 TesseracT - Nascent
+90 Textures - Reaching Home
+
 
 ## Отношения с другими группами
 

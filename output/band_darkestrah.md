@@ -1,12 +1,45 @@
 # Darkestrah
 
-Дискография
-"Sary Oy" 2004, Black Metal
-"Embrace of Memory" 2005, Black Metal
-"Epos" 2007, Black Metal
-"The Great Silk Road" 2008, Black Metal
-"Khagan (EP)" 2011, Black Metal
-"Манас" 2013, Black Metal
+
+
+## Дискография
+
+### "Sary Oy" 2004, Black Metal
+
+1. Part I - Sary Oy 11:09
+2. Part II - Jashil Oy 10:47
+3. Part III - Kyzil Oy 25:26 
+
+### "Embrace of Memory" 2005, Black Metal
+
+1. Embrace of Memory 01:57  
+2. Black Cathedral 05:24
+3. Sign of War 09:35
+4. Akyr Zaman 10:00
+5. Human Hopes 04:25
+6. Primitive Dance 10:38
+7. Marching of the Hordes (Pagan cover) 07:17 
+
+### "Epos" 2007, Black Metal
+
+1. Epos 33:33 
+
+### "The Great Silk Road" 2008, Black Metal
+
+1. The Silk Road 13:07 
+2. Inner Voice 12:13
+3. Cult Tengri 08:26 
+4. Kara-Oy 18:48 
+5. The Last Step 01:59 
+
+### "Khagan (EP)" 2011, Black Metal
+
+
+
+### "Манас" 2013, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

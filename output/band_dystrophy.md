@@ -1,7 +1,28 @@
 # Dystrophy
 
-Дискография
-"Spiegel Meiner Kalte" 1995, Death Doom
+
+
+## Дискография
+
+### "Spiegel Meiner Kalte" 1995, Death Doom
+
+1. Behind The Hidden Moon
+2. Nion
+3. My Soulspring
+4. Rushing Like A Black Wave
+5. Kalte
+6. Your Fleurs Ay The First O'spring
+7. And So I'll Return
+8. As Beauty As The Sun
+9. Adnathy, The Withering Memory
+10.Epilogue
+
+All Songs Written By DYSTROPHY.
+Produced & Engineered By Roman Schonsee, Falk Gruber.
+Recorded & Mixed At The Mainstreet Studios.
+
+(P)&(C) 1995 SERENADES Records
+
 
 ## Отношения с другими группами
 

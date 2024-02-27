@@ -1,8 +1,58 @@
 # Threnody
 
-Дискография
-"As The Heavens Fall" 1993, Death Metal
-"Bewildering Thoughts" 1995, Death Metal
+
+
+## Дискография
+
+### "As The Heavens Fall" 1993, Death Metal
+
+1. Cries
+2. Regrets
+3. Dark Ages
+4. Ode To The Lamented
+5. As The Heavens Fall
+6. Come For Me*
+7. Despair
+8. The Elder
+9. Suppression Of Breath*
+10. In Memoriam
+
+ Rene Scholte - All Vocals, Guitars & Acoustic Guitars
+ Eric Van Der Belt - Guitars
+ John Mutters - Drums
+ Henry McIlveen - Bass
+ Additional flute on 6 by Femke Van Waas
+
+All songs written & arranged by THRENODY except* by Rene Scholte
+Produced  & mixed by Menno Van Oosten
+Co-Produced by THRENODY
+Engineered by Karel Markiet
+Recorded & mixed at the MMP studios in Waalwijk,Netherlands,July-August 1993
+
+(p)(c) 1993 MASSACRE Records
+
+### "Bewildering Thoughts" 1995, Death Metal
+
+1. Dare Restrain
+2. Willful
+3. Bewildering Thoughts
+4. Solitude
+5. Silence
+6. Profanation
+7. Autumn
+8. Farewell
+
+All Songs Written & Arranged By THRENODY.
+Produced By Gerhard Magin.
+Recorded & Mixed At The Commusication Studios,Germany,1995.
+
+Rene Scholte - Guitars & All Vocals
+Erik Van de Belt - Guitars
+Richard Van Leeuwen - Drums & Percussion
+Henry McLiveen - Bass
+
+(P)&(C) 1995 MASSACRE Records
+
 
 ## Отношения с другими группами
 

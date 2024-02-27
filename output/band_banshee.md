@@ -1,8 +1,36 @@
 # Banshee
 
-Дискография
-"Race Against Time" 1989, Heavy Metal
-"Take'em By Storm" 1991, Heavy Metal
+
+
+## Дискография
+
+### "Race Against Time" 1989, Heavy Metal
+
+1.	 Shoot Down the Night	03:51	 
+2.	 All Alone	04:25	 
+3.	 Race Against Time	03:33	 
+4.	 Circular Flight of the One Winged Sparrow	01:38	  instrumental
+5.	 Call of the Wild	03:31	 
+6.	 Precious Metal	03:30	 
+7.	 Desire	03:13	 
+8.	 Get It on the Run	03:18	 
+9.	 Missing You	05:36	 
+10.	 Drive Like Hell	03:21	 
+11.	 Desert Moon	01:04
+
+### "Take'em By Storm" 1991, Heavy Metal
+
+1.	 Color Me	03:30	 
+2.	 Fight	03:53	 
+3.	 Memories	04:25	 
+4.	 Running Wild	04:43	 
+5.	 Stand Strong	03:42	 
+6.	 The Spell	03:51	 
+7.	 Desire	03:47	 
+8.	 Livin' It Up	05:09	 
+9.	 Locked Inside	05:42	 
+10.	 Out for Love	04:15	
+
 
 ## Отношения с другими группами
 

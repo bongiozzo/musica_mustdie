@@ -1,8 +1,35 @@
 # Throne of Chaos
 
-Дискография
-"Menace And Prayer" 2000, Melodic Death Metal
-"Pervertigo" 2002, Heavy Metal
+Melodic death metal a-la Children of Bodom
+
+## Дискография
+
+### "Menace And Prayer" 2000, Melodic Death Metal
+
+From Clarity to Insanity 
+The Scaffold Scenario 
+Cold Bits of Fire 
+Bloodstained Prophecy 
+Menace and Prayer 
+Synthetia 
+Opus Void 
+Divanity 
+
+
+### "Pervertigo" 2002, Heavy Metal
+
+1. Johnny B. Dead
+2. Pervertigo
+3. The System
+4. No Nothing
+5. Fistfucking & Alienseed
+6. Truth And Tragedy
+7. Sleep
+8. Reason To Be
+9. Game
+
+(p) 2002
+
 
 ## Отношения с другими группами
 

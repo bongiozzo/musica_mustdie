@@ -1,7 +1,28 @@
 # Baltak
 
-Дискография
-"Macedonian Darkness And Evil" 1996, Black Metal
+Killer Hyperspeed Black Metal
+
+## Дискография
+
+### "Macedonian Darkness And Evil" 1996, Black Metal
+
+1.  Svetot Umira (Makedoncite Se Borat)
+2.  Umiram Sega
+3.  So Umrenite Odum
+4.  Me Zakopva
+5.  Vampir
+6.  Odum Dolu So Nimi
+7.  Svetot Placi Za Mene
+8.  Makedoncite Se Tepat
+9.  Me Kolat
+
+All music by Gorgoroth
+Recorded and Mixed at Baltak's state of the art 4-track Studios
+Produced by Gorgoroth
+Cover artwork by Reberend Kriss Hades
+
+(P)c 1996 BATTLEGROUND PROD
+
 
 ## Отношения с другими группами
 

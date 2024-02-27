@@ -1,7 +1,22 @@
 # Scar Of The Sun
 
-Дискография
-"A Series of Unfortunate Concurrencies" 2011, Gothic
+
+
+## Дискография
+
+### "A Series of Unfortunate Concurrencies" 2011, Gothic
+
+1. Disposable
+2. Swansong of Senses
+3. Ode to a Failure
+4. 8th Ocean Dried
+5. Gravity	
+6. A Series of Unfortunate Concurrencies
+7. Burn the Memory
+8. A Pause in the Disaster
+9. Disciple of the Sun
+10. I Lost
+
 
 ## Отношения с другими группами
 

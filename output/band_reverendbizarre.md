@@ -1,10 +1,31 @@
 # Reverend Bizarre
 
-Дискография
-"Slice Of Doom" 2002, Doom
-"In The Rectory Of The Bizarre Reverend" 2002, Doom
-"Harbinger Of Metal" 2003, Doom
-"II: Crush the Insects" 2005, Doom
+
+
+## Дискография
+
+### "Slice Of Doom" 2002, Doom
+
+
+
+### "In The Rectory Of The Bizarre Reverend" 2002, Doom
+
+1. Burn In Hell
+2. In The Rectory
+3. The Hour Of Death
+4. Sodoma Sunrise
+5. Doomsower
+6. Cirith Ungol
+
+
+### "Harbinger Of Metal" 2003, Doom
+
+
+
+### "II: Crush the Insects" 2005, Doom
+
+
+
 
 ## Отношения с другими группами
 

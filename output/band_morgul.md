@@ -1,11 +1,64 @@
 # Morgul
 
-Дискография
-"Lost in Shadows Grey" 1997, Black Metal
-"Parody of the Mass" 1998, Black Metal
-"The Horror Grandeur" 2000, Black Metal
-"Sketch of Supposed Murderer" 2001, Black Metal
-"All Dead Here..." 2005, Metal
+Symphonic Black Metal from Norway
+
+## Дискография
+
+### "Lost in Shadows Grey" 1997, Black Metal
+
+1. Enthroned
+2. The Dark Infinity
+3. Hunger of the Immortals
+4. My Bride...
+5. Riven of Princess
+
+
+Charmock - guitars, bass, synth, vocals
+Hex - battery
+
+Napalm Rec.
+
+### "Parody of the Mass" 1998, Black Metal
+
+1. Black Hearts Domain
+2. Healing the Blind
+3. Torn
+4. Ballad of Revolt
+5. Adoration of the Profane
+6. Author of Pain
+7. The End
+
+
+
+### "The Horror Grandeur" 2000, Black Metal
+
+
+
+### "Sketch of Supposed Murderer" 2001, Black Metal
+
+1. Violent Perfect Illusions 4:38 
+2. The Dog And The Master 4:52 
+3. Dead For A While 5:12 
+4. Machine 5:32 
+5. Of Murder And Misfortune 5:58 
+6. Truth, Liars And Dead Flesh 6:25 
+7. Stealth 6:06 
+8. Once Again 5:23 
+9. She (Kiss Cover) 4:15 
+
+
+### "All Dead Here..." 2005, Metal
+
+1. Intro 01:10  
+2. The Mask Of Sanity 04:45  
+3. The Need To Kill 04:04  
+4. All Dead Here 05:50  
+5. Sanctus Perversum 06:07  
+6. Hategrinder 05:29  
+7. Shackled 05:20  
+8. Outro 01:13  
+9. Empty 03:42
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,26 @@
 # Made Of Hate
 
-Дискография
-"Bullet In Your Head" 2008, Melodic Death Metal
+
+
+## Дискография
+
+### "Bullet In Your Head" 2008, Melodic Death Metal
+
+Bullet In Your Head
+An Eye For An Eye 
+On The Edge 
+My Last Breath 
+Mirror Of Sins 
+Hidden 
+Judgement 
+Deadend 
+Fallout
+
+Michal Kostrzynski - гитары, вокал
+Tomek Grochowski - ударные
+Radek Polrolniczak - гитары
+Jarek Kajszczak - бас
+
 
 ## Отношения с другими группами
 

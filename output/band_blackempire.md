@@ -1,7 +1,20 @@
 # Black Empire
 
-Дискография
-"Into The Jails Of Past" 2005, Black Metal
+
+
+## Дискография
+
+### "Into The Jails Of Past" 2005, Black Metal
+
+1. Cult of Death	 
+2. The Terrible Greatness of War	 
+3. Predators	 
+4. Vengeance... Sweet as Blood	 
+5. Through Unawaited Worlds	 
+6. Crossing The Abyss	 
+7. In a Winter Battle (Desaster cover)	 
+8. The Final Sorrow (Outro)
+
 
 ## Отношения с другими группами
 

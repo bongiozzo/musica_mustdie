@@ -1,14 +1,147 @@
 # To/Die/For
 
-Дискография
-"All Eternity" 2000, Gothic
-"In the Heat of the Night (Single)" 2000, Gothic
-"Epilogue" 2001, Gothic
-"Jaded" 2003, Gothic
-"IV" 2005, Gothic
-"Wounds Wide Open" 2006, Gothic
-"Samsara" 2011, Gothic
-"Cult" 2015, Gothic
+finnish gothrock metal
+
+## Дискография
+
+### "All Eternity" 2000, Gothic
+
+1. Farewell
+ 2. Live In You
+ 3. Our Candle Melts Away
+ 4. Dripping Down Red
+ 5. Sea Of Sin
+ 6. Loveless
+ 7. One More Time
+ 8. Mary-Ann (R.I.P.)
+ 9. Together Complete
+10. Rimed With Frost
+11. Lacrimarum
+12. In The Heat Of The Night
+13. It's A Sin
+
+Tonmi Lillman - Drums
+J. P. Sutela - Guitars
+Miikka Kuisma - Bass
+Joonas Koto - Lead Guitars
+Jape Peratalo - Vocals
+
+(p) 2000 Spinefarm Records
+
+### "In the Heat of the Night (Single)" 2000, Gothic
+
+1. In the Heat of the Night (edit)
+2. Farewell (edit)
+3. In the Heat of the Night
+
+### "Epilogue" 2001, Gothic
+
+1. Crimson Twins
+2. Veil Of Tears
+3. Hollow Heart
+4. Veiled
+5. The Unknown
+6. Frail Without You
+7. In Solitude
+8. Chains
+9. Immortal Love
+10. Garden Of Stones
+11. Passion Rules The Game (bonus)
+
+### "Jaded" 2003, Gothic
+
+01. Dying Embers
+02. (I Just) Died In Your Arms
+03. Too much ain't enough
+04. The Unknown II
+05. Jaded
+06. Fall Strains
+07. Forever
+08. Anos de Dolor
+09. Silence Tells More
+
+Tonmi Lillman - Drums
+Mika Ahtiainen - Guitars
+Joonas Koto - Lead Guitars
+Jape Peratalo - Vocals
+Marko Kangaskolkka - Bass
+
+produced by tonmi lillman
+recorded at astia studio
+engineered by anssi kippo
+mixed at crystal sound studio by t.t.oksala
+mastered at finnvox by mika jussila
+all guitars played by joonas koto
+bass, keyboards and programming by tonmi lillman
+violin by anna lukkarinen
+backing vocals by jape
+illustration by carlos
+photo by mika vuoto
+
+### "IV" 2005, Gothic
+
+Autumn Forever 
+This World is Made for Me 
+Lies (for Fools) 
+New Year's Day (U2 cover) 
+Chaotic Me 
+Little Deaths 
+No Turning Back 
+Fragmented 
+Endlessly 
+Last Breath 
+
+Line-Up: 
+Jape Peratalo - Vocals 
+J-P Sutela - Guitar 
+Mika Ahtiainen - Guitar 
+Josey Strandman - Bass 
+Juska Salminen - Keyboards 
+Santtu Lonka - Drums
+
+### "Wounds Wide Open" 2006, Gothic
+
+1. Intro - Sorrow 01:50  
+2. Wicked Circle 03:55  
+3. Guilt Ridden State 03:40  
+4. Like Never Before 04:06  
+5. Under a Velvet Sky 02:44  
+6. Scar Diary 04:04  
+7. New Heaven 04:00  
+8. The Quiet Room 03:45  
+9. Liguid Lies 03:53  
+10. (I Just Want) You 04:34  
+11. Sorrow Remains 04:24
+
+### "Samsara" 2011, Gothic
+
+01. Kissing The Flames
+02. Damned Rapture
+03. Cry For Love
+04. Death Comes In March
+05. Folie &#225; Deux
+06. Hail Of Bullets
+07. Loves A Sickness
+08. Raving Hearts
+09. Oblivion:Vision
+10. Someday Somewhere Somehow
++ Bonus Video "Hail Of Bullets"
+
+### "Cult" 2015, Gothic
+
+1. In Black      
+2. Screaming Birds    
+3. Unknown III      
+4. Mere Dream      
+5. You      
+6. Straight Up      
+7. Let It Bleed     
+8. End of Tears  
+
+
+
+Recorded, mixed and mastered by Juho Rдihд in SoundSpiral Audio
+
 
 ## Отношения с другими группами
 

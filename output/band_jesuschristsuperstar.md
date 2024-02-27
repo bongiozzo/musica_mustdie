@@ -1,7 +1,37 @@
 # Jesus Christ Superstar
 
-Дискография
-"Jesus Christ Superstar" 1970, Hard Rock
+(rock-opera)
+
+## Дискография
+
+### "Jesus Christ Superstar" 1970, Hard Rock
+
+Overture (instrumental) 
+Heaven on their minds 
+What's the buzz/Strange thing mystifying 
+Then We Are Decided 
+Everythyng's alright 
+This Jesus must die 
+Hosanna 
+Simon Zealotes/Poor Jerusalem 
+Pilate's dream 
+The Temple 
+Everything's alright (reprise) 
+I don't know how to love Him 
+Damned for all time/Blood money 
+The last supper 
+Gethsemane (I only want to say) 
+The arrest 
+Peter's Denial 
+Could we start again 
+Pilate & Christ 
+King Herod's song 
+Judas' death 
+Trial before Pilate 
+Superstar 
+Crusifixion 
+John 19:41 
+
 
 ## Отношения с другими группами
 

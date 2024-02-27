@@ -1,7 +1,34 @@
 # Pyramaze
 
-Дискография
-"Legend Of The Bone Carver" 2006, Power Metal
+
+
+## Дискография
+
+### "Legend Of The Bone Carver" 2006, Power Metal
+
+1. Era Of Chaos; 
+2. The Birth; 
+3. What Lies Beyond; 
+4. Ancient Words Within; 
+5. Souls In Pain; 
+6. She Who Summoned Me; 
+7. The Bone Carver; 
+8. Bring Back Life; 
+9. Blood red Skies; 
+10. Tears Of Hate
+
+All songs written by PYRAMAZE
+Produced and mixed by Jacob Hansen and PYRAMAZE
+Engineered by Jacob Hansen
+Recorded at Hansen Studios, Denmark
+
+Michael Kammeyer - Rhythm and Lead Guitars
+Lance King - Vocals
+Maorten G.Sorensen - Drums
+Niels Kvist - Bass
+Johan Weingarten - Keyboards
+Toke Skjonnemand - Lead Guitars
+
 
 ## Отношения с другими группами
 

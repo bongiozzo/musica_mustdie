@@ -1,8 +1,48 @@
 # Garden Of Delight
 
-Дискография
-"Symbol And Vision" 1996, Gothic
-"Featuring Lutherion" 2005, Gothic
+
+
+## Дискография
+
+### "Symbol And Vision" 1996, Gothic
+
+1. Satyricon (The Whole Epic Of
+   Martyrium)
+2. Dreams Of God (Where Do They
+   Come From?)
+3. Temple Of Wisdom (Wicca)
+4. Transcendental
+5. Death Chant (Are You Still There?)
+6. Black Magic Circle (Ordo Templi
+   Orientis) part 1-3
+7. Symbol And Vision
+
+All songs written by GARDEN OF
+DELIGHT.
+Produced by GARDEN OF DELIGHT.
+Engineered by Artaud.
+Recorded at Dion Fortune Studio.
+
+Artaud - Vocals, Programming, Fiano,
+Guitars
+Th. O'Connell - Guitars
+Adrian Hates - Bass, Synthesizer
+
+(p)(c) 1996 DION FORTUNE Records
+
+### "Featuring Lutherion" 2005, Gothic
+
+01. Stigmata (Nailed)
+02. Bleak Horizon
+03. The Sinners
+04. Immortality
+05. Black Mass (Therion)
+06. First Confession
+07. Confession (Sanctified)
+08. Necronaut
+09. Redemptoris Mater
+10. 23rd Revelation
+
 
 ## Отношения с другими группами
 

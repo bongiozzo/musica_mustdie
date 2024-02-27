@@ -1,17 +1,164 @@
 # Nocte Obducta
 
-Дискография
-"Lethe - Gottverreckte Finsternis" 1999, Black Metal
-"Taverne - In Schatten schabiger Spelunken" 2000, Black Metal
-"Schwarzmetal - Ein primitives Zwischenspiel" 2001, Black Metal
-"Galgendammerung - Von Nebel, Blut und Totgeburten" 2002, Black Metal
-"Stille (Das nagende Schweigen)" 2003, Black Metal
-"Nektar - Teil I: Zwolf Monde, Eine Handvoll Traume" 2004, Black Metal
-"Nektar Teil 2: Seen, Flusse, Tagebucher" 2005, Black Metal
-"Aschefruhling" 2006, Black Metal
-"Sequenzen einer Wanderung" 2008, Black Metal
-"Verderbnis - Der Schnitter kratzt an jeder Tur" 2011, Black Metal
-"Mogontiacum (Nachdem Die Nacht Herabgesunken...)" 2016, Alternative
+
+
+## Дискография
+
+### "Lethe - Gottverreckte Finsternis" 1999, Black Metal
+
+1.) Im bizarren Theater
+2.) Eine Teichoskopie
+3.) Begrдbnisvermдhlung
+4.) Lethe – Teil 1
+5.) Honig der Finsternis / Phiala vini blasphemiae
+6.) Lethe – Teil 2
+7.) Solange euer Fleisch noch warm ist
+8.) Der erste Frost
+9.) N.-D.
+
+
+Marcel Va. Tr. - Gitarren / Vox / Keys / Piano
+Matthias R. - Schlagzeug
+Torsten, der Unhold - Vox
+Alex V. - Keys / Vox
+S. Magic M. - Gitarre / Bass
+Sathonys - Bass
+
+
+### "Taverne - In Schatten schabiger Spelunken" 2000, Black Metal
+
+1.) Hexer (Verflucht)
+2.) Prinzessin der Nachtschatten
+3.) Die Ratten im Gemauer
+4.) November
+5.) Taverne
+6.) In Erinnerung an Herbststьrme
+
+
+Aufgenommen in den Steinberger Studios August 1999
+Gemischt in den Steinberger Studios August 1999
+Gemastert in den Steinberger Stuidos August 1999
+Toningenieure: Oli Steiberger; Alex Theisen; Uffi
+
+Erschienen Februar 2000 auf GSM
+
+Marcel Va. Tr - Gitarren / Vox / Keys / Bass / Piano
+Matthias R. - Schlagzeug
+Torsten, der Unhold - Vox
+Steffen:Emanon - Keys / Vox
+S. Magic M. - Gitarren
+Sathonys - Bass
+
+### "Schwarzmetal - Ein primitives Zwischenspiel" 2001, Black Metal
+
+1.) Fick die Muse
+2.) Die schwindende Glut
+3.) Schwarzmetall (Hexer - Teil 2)
+4.) Die Hunde des Krieges
+5.) Unglucklich, wer die Wahrheit erkannt
+6.) Die Walder
+7.) Gemalde derer, die schieden
+
+Aufgenommen in den Steinberger Studios Juni 2000
+Gemischt in den Steinberger Studios Juni 2000
+Gemastert in den Steinberger Studios Juni 2000
+Toningenieure: Alex Theisen; Uffi
+
+Erschienen Marz 2001 auf GSM
+
+
+Marcel Va. Tr. - Gitarren / Vox
+Matthias R. - Schlagzeug
+Torsten, der Unhold - Vox
+Steffen:Emanon - Keys / Vox
+S. Magic M. - Gitarren
+Shin - Bass
+
+### "Galgendammerung - Von Nebel, Blut und Totgeburten" 2002, Black Metal
+
+1.) Fruchtige Faulnis
+2.) Der Durst in meinen Augen
+3.) Eins mit der Essenz der Nacht
+4.) Nebel uber den Urnenfeldern
+5.) Totgeburt
+6.) Der Sand des spaten Winters
+7.) Galgendammerung
+8.) Spiele mir ein Fruhlingslied am Friedhofstor
+9.) Wenn nur im Tod noch Frieden liegt - Teil 1+2
+
+
+Aufgenommen in den Steinberger Studios September 2000
+Gemischt in den Steinberger Studios September 2000
+Gemastert im ultraTon Tracking Studio November 2001
+Toningenieur: Alex Theisen
+
+Erschienen Mдrz 2002 auf GSM
+
+Marcel Va. Tr. - Gitarren / Vox / Bass / zusatzl. Keys
+Matthias R. - Schalgzeug
+Torsten, der Unhold - Vox
+Steffen:Emanon - Keys / Vox
+
+### "Stille (Das nagende Schweigen)" 2003, Black Metal
+
+
+
+### "Nektar - Teil I: Zwolf Monde, Eine Handvoll Traume" 2004, Black Metal
+
+1. Einleitung: Zwolf Monde 01:46  
+2. Fruhling: Des Schwarzen Flieders Wiegenlied 15:36
+3. Sommer: In Einem Mittsommernachtsschatten 11:18 
+4. Herbst: Lenkte Einsam Meinen Schritt... 08:19
+5. Winter: Dezembermond 14:22
+
+### "Nektar Teil 2: Seen, Flusse, Tagebucher" 2005, Black Metal
+
+1. Anis (Desihras Tagebuch - Kapitel I)
+2. Und Pan spielt die Flote (Desihras Tagebuch - Kapitel II)
+3. Im siebten Mond (Desihras Tagebuch - Kapitel III)
+4. Es fliebe Blut
+5. Nektar
+6. Atme
+
+### "Aschefruhling" 2006, Black Metal
+
+1. Aschefruhling 05:05  
+2. Vorbei (Remix 2005) 06:47
+
+### "Sequenzen einer Wanderung" 2008, Black Metal
+
+1. Nocte Obducta - Ende (23:06) 
+2. Nocte Obducta - Nebel II (20:54)
+
+
+### "Verderbnis - Der Schnitter kratzt an jeder Tur" 2011, Black Metal
+
+1. Tiefrote Rufe
+2. Schlachtenflieder
+3. SchweiЯnebel
+4. Niemals Gelebt
+5. El Chukks Taverne
+6. Obsidian Zu Pechstein
+7. Wenn Ihr Die Sterne Seht
+8. Verderbnis
+
+
+### "Mogontiacum (Nachdem Die Nacht Herabgesunken...)" 2016, Alternative
+
+01. Am Ende Des Sommers 09:13 
+02. Gluckliche Kinder 07:18 
+03. Ein Ouzo Auf Den Nordwind 06:36 
+04. Lethe, Stein Und See - Teil I 01:45 
+05. Loschkommando Walpurgisnacht 01:55 
+06. Desihra Mogontiacum 19:02 
+07. Die Pfahler 06:56 
+08. Am Waldrand 01:35 
+09. Lethe, Stein Und See - Teil II 02:53 
+10. Im Dunst Am Ewigen Grab Der Sonne 05:43
+
+Recorded and mixed at ultraton elektrizitдtswerke by Alex Theisen in 2015. 
+Additional recordings were done at Studio Hauptdeck.
+
 
 ## Отношения с другими группами
 

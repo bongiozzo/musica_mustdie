@@ -1,7 +1,42 @@
 # Hermh
 
-Дискография
-"Taran" 1996, Black Metal
+
+
+## Дискография
+
+### "Taran" 1996, Black Metal
+
+1. Blackness I
+2. Voyage Of The Beauty Land
+3. The Hour Of The Witching Dance
+4. Golden Sea
+5. Blackness II
+6. Rising Tears
+7. Blackness III
+8. In The Shadow Of The Trees
+9. Blackness IV
+10. Atmosphere Of The Passing Years
+11. First Knight Of Nothingness
+12. Last Blackness
+13. Crying Crowns Of Trees
+
+All songs written by HERMH
+Produced by HERMH
+Engineered by Rafat and Bart
+Recorded at "Salman" Studio
+
+Bart - Vocal
+Tom - Lead and Acoustic Guitar, Bass
+Mark - Keyboard
+Voit - Rhythm and Acoustic Guitar
+Mark Olo - Drums
+
+   Special Guests:
+Justine Of Decades - Female Vocals
+Rafat Salmanowicz - Acoustic Guitar
+
+(p)c 1996 LAST EPITAPH Productions
+
 
 ## Отношения с другими группами
 

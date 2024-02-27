@@ -1,7 +1,22 @@
 # Abaddon
 
-Дискография
-"Abaddon" 2010, Heavy Metal
+
+
+## Дискография
+
+### "Abaddon" 2010, Heavy Metal
+
+1. Abaddon		 
+2. Claro de Luna		 
+3. Cuenta Final		 
+4. Formas del Mal		 
+5. Madame Bathory		 
+6. Pesadilla Mortal		 
+7. Noches de Metal		 
+8. Dueсos de la Obscuridad		 
+9. Jinetes de las Armas		 
+10. Zhila
+
 
 ## Отношения с другими группами
 

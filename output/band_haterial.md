@@ -1,6 +1,9 @@
 # Haterial
 
-Дискография
+fnnish "straight-in-your-face" extreme metal combo 
+
+## Дискография
+
 
 ## Отношения с другими группами
 

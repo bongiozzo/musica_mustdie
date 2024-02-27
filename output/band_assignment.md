@@ -1,10 +1,34 @@
 # Assignment
 
-Дискография
-"Progressive Changes" 2004, Progressive
-"Disunion Denied" 2008, Progressive
-"Inside of the Machine" 2013, Progressive
-"Closing the Circle" 2016, Progressive
+progressive
+
+## Дискография
+
+### "Progressive Changes" 2004, Progressive
+
+
+
+### "Disunion Denied" 2008, Progressive
+
+
+
+### "Inside of the Machine" 2013, Progressive
+
+
+
+### "Closing the Circle" 2016, Progressive
+
+1. Evolution		 
+2. Closing the Circle		 
+3. Presence of Death		 
+4. Genetic Slavery		 
+5. Crimson Poison		 
+6. Chemical Healing		 
+7. Variaxis		 
+8. Taste for Sin		 
+9. Entering the Universe		 
+10. Between Parallel Worlds
+
 
 ## Отношения с другими группами
 

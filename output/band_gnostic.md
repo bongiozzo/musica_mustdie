@@ -1,7 +1,22 @@
 # Gnostic
 
-Дискография
-"Engineering The Rule " 2009, Techno Death
+4 members of ATHEIST
+
+## Дискография
+
+### "Engineering The Rule " 2009, Techno Death
+
+1. Visceral 03:41  
+2. Isolate Gravity 03:21  
+3. Sleeping Ground 03:41  
+4. Composition 04:16  
+5. Wall Of Lies 03:36  
+6. Violent Calm 04:38  
+7. Life Suffering 03:44  
+8. Corrosive 03:18  
+9. Mindlock 04:11  
+10. Splinters Of Change 03:50 
+
 
 ## Отношения с другими группами
 

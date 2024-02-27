@@ -1,8 +1,39 @@
 # Spinal Cord
 
-Дискография
-"Remedy" 2003, Death Metal
-"Stigmata of Life" 2004, Death Metal
+
+
+## Дискография
+
+### "Remedy" 2003, Death Metal
+
+1. Intro 00:36  
+2. Breeder Of Corruption 03:11  
+3. Apocalypse Time 03:32  
+4. Remedy 04:08  
+5. Agony 01:47  
+6. Mtch-mts (new life) 03:28  
+7. Fake 03:03  
+8. Chosen No More 05:06  
+9. Blind Ignorant 02:08  
+10. Art. 03:00  
+11. Tears 03:25  
+12. There's Nothing 03:34
+
+### "Stigmata of Life" 2004, Death Metal
+
+1. Burn Them All 02:42 
+2. Body Dismorphy 02:49  
+3. Retrospection 02:27 
+4. Mind Killer 03:17  
+5. Amphitheatre 04:14  
+6. Storm 03:09 
+7. Ramirez 02:44
+8. Beg For A Fast Death 02:50
+9. Stigmatized Possessed 03:03 
+10. Critical Moment (Dead End) 03:10
+11. Epitaph 02:56 
+12. Exile 02:53
+
 
 ## Отношения с другими группами
 

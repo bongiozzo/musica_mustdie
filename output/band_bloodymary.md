@@ -1,7 +1,19 @@
 # Bloody Mary
 
-Дискография
-"Rosemadder" 2003, Gothic
+gothic-rock from Italy
+
+## Дискография
+
+### "Rosemadder" 2003, Gothic
+
+1. Icy blue [04:53]
+2. It's too late [03:12]
+3. Learning to fly [05:04]
+4. Before the rain [04:29]
+
+
+Recorded, post-producted and mastered by Danilo di Lorenzo @ Moonhouse Recording
+
 
 ## Отношения с другими группами
 

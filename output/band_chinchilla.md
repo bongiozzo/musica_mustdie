@@ -1,7 +1,22 @@
 # Chinchilla
 
-Дискография
-"Madness" 2000, Power Metal
+Power Metal (Achim Kohler (Primal Fear, Sinner, Brainstorm, Sacred Steel...))
+
+## Дискография
+
+### "Madness" 2000, Power Metal
+
+Fight 
+Freedom 
+Queen Of The Rain 
+Broken Heart 
+Madness 
+Living On My Own 
+Where The Brave Belong 
+Tears 
+Dark And Light 
+Anymore 
+
 
 ## Отношения с другими группами
 

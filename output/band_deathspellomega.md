@@ -1,15 +1,45 @@
 # Deathspell Omega
 
-Дискография
-"Infernal Battles" 2000, Black Metal
-"Inquisitors of Satan" 2002, Black Metal
-"Si Monumentum Requires, Circumspice" 2004, Black Metal
-"Fas - Ite, Maledicti, in Ignem Aeternum" 2007, Black Metal
-"Veritas Diaboli Manet in Aeternum: Chaining the Katechon (EP)" 2008, Black Metal
-"Mass Grave Aesthetics (EP)" 2008, Black Metal
-"Paracletus" 2010, Black Metal
-"Diabolus Absconditus (EP)" 2011, Black Metal
-"Drought (EP)" 2012, Black Metal
+
+
+## Дискография
+
+### "Infernal Battles" 2000, Black Metal
+
+
+
+### "Inquisitors of Satan" 2002, Black Metal
+
+
+
+### "Si Monumentum Requires, Circumspice" 2004, Black Metal
+
+
+
+### "Fas - Ite, Maledicti, in Ignem Aeternum" 2007, Black Metal
+
+
+
+### "Veritas Diaboli Manet in Aeternum: Chaining the Katechon (EP)" 2008, Black Metal
+
+
+
+### "Mass Grave Aesthetics (EP)" 2008, Black Metal
+
+
+
+### "Paracletus" 2010, Black Metal
+
+
+
+### "Diabolus Absconditus (EP)" 2011, Black Metal
+
+
+
+### "Drought (EP)" 2012, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

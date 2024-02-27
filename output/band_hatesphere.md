@@ -1,16 +1,150 @@
 # HateSphere
 
-Дискография
-"Hatesphere" 2001, Thrash
-"Bloodred Hatred" 2002, Thrash
-"Something Old, Something New, Something Borrowed And Something Black (EP)" 2003, Thrash
-"Ballet Of The Brute" 2004, Thrash
-"Sickness Within" 2005, Techno Death
-"Sickness Within / Reaper Of Life (promo single)" 2005, Thrash
-"To The Nines" 2009, Thrash
-"The Great Bludgeoning" 2011, Thrash
-"Murderlust" 2013, Thrash
-"New Hell" 2015, Thrash
+
+
+## Дискография
+
+### "Hatesphere" 2001, Thrash
+
+1. Hate
+2. Picture This
+3. Addicted Soul
+4. Bloodsoil
+5. Down For Good
+6. No Sense
+7. Preacher
+8. Dead
+9. Ill Will
+
+
+Jacob Bredahl: Vocals
+Peter Lyse Hansen: Guitars
+Ziggy: Guitars
+Mikael Ehlert: Bass
+Morten Toft: Drums
+
+
+
+
+### "Bloodred Hatred" 2002, Thrash
+
+1. Intro
+2. Believer
+3. Hell Is Here
+4. Insanity Arise
+5. Disbeliever
+6. Plague
+7. Low Life Vendetta
+8. Deeper And Deeper
+9. Kicking Ahead
+
+
+Jacob Bredahl: Vocals
+Peter Lyse Hansen: Guitars
+Ziggy: Guitars
+Mikael Ehlert: Bass
+Morten Toft: Drums
+
+
+### "Something Old, Something New, Something Borrowed And Something Black (EP)" 2003, Thrash
+
+1. Release The Pain (some wicked new HateShit)
+2. Bark At The Moon (A fast and furious cover version of Ozzy's immortal classic)
+3. Caught In A Mosh (Anthrax - old school thrash metal as we love it)
+4. Low Life Vendetta (Live)
+5. Bloodsoil (Live)
+6. Plague (Live)
+7. Hate (Live)
+
+### "Ballet Of The Brute" 2004, Thrash
+
+01. The Beginning And The End
+02. Deathtrip 
+03. Vermin 
+04. Downward To Nothing 
+05. Only The Strongest…
+06. What I See I Despise 
+07. Last Cut, Last Head 
+08. Warhead (feat. INVOCATOR's Jacob Hansen) 
+09. Blankeyed 
+10. 500 Dead People
+
+### "Sickness Within" 2005, Techno Death
+
+
+
+### "Sickness Within / Reaper Of Life (promo single)" 2005, Thrash
+
+
+
+### "To The Nines" 2009, Thrash
+
+1. To The Nines 02:27  
+2. Backstabber 04:27  
+3. Cloaked In shit 04:30  
+4. Clarity 05:19  
+5. Even If It Kills Me 01:22  
+6. Commencing A Campaign 01:10  
+7. The Writing's On The Wall 03:18  
+8. In The Trenches 03:15  
+9. Aurora 04:06  
+10. Oceans Of Blood 04:40 
+
+
+### "The Great Bludgeoning" 2011, Thrash
+
+1. The Killer 03:32 
+2. Venom 06:09 
+3. Smell Of Death 03:43 
+4. Decayer 04:55 
+5. The Wail Of My Threnode 01:17 
+6. Resurrect With A Vengeance 04:20 
+7. The Great Bludgeoning 04:34 
+8. Need To Kill 05:28 
+9. Devil In Your Own Hell 03:00
+
+Peter "Pepe" Lyse Hansen - Guitars 
+Jakob Nyholm - Guitars 
+Mike Park Nielsen - Drums
+Esben "Esse" Elnegaard Kjaer Hansen Vocals 
+See also: ex-As We Fight 
+
+Jimmy Nedergaard - Bass
+
+
+### "Murderlust" 2013, Thrash
+
+1. Murderlust  03:20      
+2. Pandora's Hell  04:05      
+3. Fear Me  06:07      
+4. The Violent Act  04:29      
+5. Punishable By Death  03:47      
+6. In Process  03:22      
+7. Iconoclast  03:55      
+8. Darkest Of Forces  04:29      
+9. Refill The Chest  04:31      
+10. Assassin (MUSE cover)  03:58  
+
+
+Digipack bonus tracks:
+11. Murderlust (pre-production)
+12. 500 Dead People (live)
+
+LP version released by Supreme Chaos Records on 180g red vinyl with lyric insert, limited to 250 handnumbered copies. 
+
+### "New Hell" 2015, Thrash
+
+01. The Executioner
+02. Lines Crossed Lives Lost
+03. Head On A Spike
+04. The Longest Haul
+05. Your Sad Existence
+06. On The Shores Of Hell
+07. New Hell
+08. Master Of Betrayal
+09. Human Cesspool
+10. The Grey Mass
+
 
 ## Отношения с другими группами
 

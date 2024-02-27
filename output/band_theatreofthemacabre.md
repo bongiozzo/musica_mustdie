@@ -1,7 +1,24 @@
 # Theatre of the Macabre
 
-Дискография
-"A Paradise in Flesh & Blood" 2001, Black Metal
+black-doom
+
+## Дискография
+
+### "A Paradise in Flesh & Blood" 2001, Black Metal
+
+A Prelude Unto Infernal Resurrection
+A Paradise in Flesh & Blood
+Bathed in the Blood of Angels
+Bequeathed Archaic Love
+Forsaken in the Garden of Earthly Delights
+What Wicked Web She Weaves
+Enraptured by Temptation
+Through the Eyes of the Serpent
+Enthroned in the Halls of Martyrdom
+A Distant Thunder
+Storm Giants
+Cathedral of Chaos
+
 
 ## Отношения с другими группами
 

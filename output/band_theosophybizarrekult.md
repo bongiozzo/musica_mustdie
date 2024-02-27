@@ -1,7 +1,26 @@
 # Theosophy/Bizarrekult
 
-Дискография
-"Split" 2008, Black Metal
+
+
+## Дискография
+
+### "Split" 2008, Black Metal
+
+THEOSOPHY
+1.Damnation Of Northern Lands
+2. For Cold
+3. Forest Legion
+4. Our Dark Fears
+5. Fight In Darkness Sky
+
+BIZARREKULT
+1. Гынаhале
+2. Кыяфатсыз
+3. Озылеп
+4. Кыл Ыстенде
+5. Телсез Бушлык
+6. Матырлык Кулэгэдэ
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,28 @@
 # Gothic Slam
 
-Дискография
-"Killer Instinct" 1988, Thrash
+
+
+## Дискография
+
+### "Killer Instinct" 1988, Thrash
+
+1. Skankin 3.40
+2. Living To Survive 4.07
+3. Stryker 4.57
+4. Bedlam 3.19
+5. Tormentor 2.42
+6. Killer Instinct 2.59
+7. Stand Up And Fight 3.38
+8. Fought For Death 3.44
+
+Daniel Gomes - Lead Vocals
+Klaude Ryker - Lead Guitars & Back.Vocals
+Bill Genese - Lead Guitars & Back.Vocals
+J.T. - Bass & Back.Vocals
+Dave Chavari - Drums & Back.Vocals
+
+(p)&(c) 1988 TORRID / ROADRUNNER
+
 
 ## Отношения с другими группами
 

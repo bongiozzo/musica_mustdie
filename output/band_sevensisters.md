@@ -1,7 +1,20 @@
 # Seven Sisters
 
-Дискография
-"Seven Sisters" 2016, Heavy Metal
+
+
+## Дискография
+
+### "Seven Sisters" 2016, Heavy Metal
+
+-Destiny's Calling
+-Highways of the Night
+-The Silk Road
+-Seven Sisters
+-Pure as Sin
+-Commanded by Fear
+-Gods and Men Alike
+-Cast to the Stars
+
 
 ## Отношения с другими группами
 

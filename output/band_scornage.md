@@ -1,7 +1,23 @@
 # Scorn Age
 
-Дискография
-"Human Factor" 2009, Death Metal
+
+
+## Дискография
+
+### "Human Factor" 2009, Death Metal
+
+1. Intro 00:45  
+2. Artemisia Absinthium Absurdity 02:58  
+3. Provocateur 03:21  
+4. G.S.M.S.M.S. 02:50  
+5. Decayed Society 03:59  
+6. Philosophy Of The Least Resistance 03:47  
+7. Enforced To Live 03:39  
+8. The Way 03:47  
+9. My Mental Desease 04:14  
+10. Freedom With Rotting Face 03:31  
+11. Out Of Pain 03:44 
+
 
 ## Отношения с другими группами
 

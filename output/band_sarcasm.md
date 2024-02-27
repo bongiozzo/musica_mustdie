@@ -1,10 +1,57 @@
 # Sarcasm
 
-Дискография
-"Crematory" 1989, Speed Metal
-"Igra Narave" 2002, Speed Metal
-"Divja Kri" 2003, Speed Metal
-"Revolt" 2006, Speed Metal
+
+
+## Дискография
+
+### "Crematory" 1989, Speed Metal
+
+1. Road Warriors 04:19
+2. Crematory 05:10
+3. Sarcastic Reborn 03:11  
+4. Thrash Tonight 03:02
+5. Love At First Sight 04:13  
+6. The Krьger Story 04:06  
+7. The Fate 03:26  
+8. Runaway 02:55 
+
+### "Igra Narave" 2002, Speed Metal
+
+1. Slovenski genocid 04:30
+2. Dej mi/Sarcasm 04:14
+3. Sarajevo by Night 03:56
+4. P.P.N. 04:33
+5. Priиakovanje 02:45
+6. Tell me Lies 03:41
+7. Ћena 02:31 
+
+### "Divja Kri" 2003, Speed Metal
+
+1. Intro 03:13  
+2. Metalchuggah 03:28
+3. Igra Narave II 04:32 
+4. Trpite Vsi I 03:36
+5. Prijatelja 03:47
+6. Igra Narave I 03:40
+7. Litr Na Mizo * 03:54
+8. Ta Svet Ni Zate 04:00
+9. Trpite Vsi III 04:05
+10. Mirna Kri 04:39 
+
+### "Revolt" 2006, Speed Metal
+
+1. Drugaиni   
+2. Fastest Man Alive   
+3. Terrorist   
+4. Silicon Carne   
+5. Crematory Generation   
+6. Divja Kri   
+7. Mutant Hamsters   
+8. Dealer   
+9. Bang You're Dead   
+10. Revolt (Dolina Brez Zakona)   
+11. Metal Mania 
+
 
 ## Отношения с другими группами
 

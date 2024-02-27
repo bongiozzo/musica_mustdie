@@ -1,32 +1,347 @@
 # Axel Rudi Pell
 
-Дискография
-"Wild Obsession" 1989, Heavy Metal
-"Nasty Reputation" 1991, Heavy Metal
-"Eternal Prisoner" 1992, Heavy Metal
-"The Ballads" 1993, Heavy Metal
-"Between The Walls" 1994, Heavy Metal
-"Made In Germany" 1995, Heavy Metal
-"Black Moon Pyramid" 1996, Heavy Metal
-"Magic" 1997, Heavy Metal
-"Oceans Of Time" 1998, Heavy Metal
-"The Ballads II" 1999, Heavy Metal
-"The Masquerade Ball" 2000, Heavy Metal
-"Knights live" 2002, Heavy Metal
-"Shadow Zone" 2002, Heavy Metal
-"Kings & Queens" 2004, Hard Rock
-"The Ballads III" 2004, Heavy Metal
-"Knight treasures (live and more) (2DVD)" 2004, Heavy Metal
-"Mystica" 2006, Heavy Metal
-"Diamonds Unlocked" 2007, Heavy Metal
-"Live Over Europe (2 DVD)" 2008, Heavy Metal
-"Tales Of The Crown" 2008, Heavy Metal
-"The Crest" 2010, Heavy Metal
-"One Night Live (DVD)" 2010, Heavy Metal
-"Circle Of The Oath" 2012, Heavy Metal
-"Into The Storm" 2014, Heavy Metal
-"The King of Fools (single)" 2015, Heavy Metal
-"Game Of Sins" 2016, Heavy Metal
+Power-Heavy-Metal
+
+## Дискография
+
+### "Wild Obsession" 1989, Heavy Metal
+
+1. Wild Cat
+2. Call Of The Wild Dogs
+3. Slave Of Love
+4. Cold As Ice
+5. Broken Heart
+6. Call Her Princess
+7. Snake Eyes
+8. Hear You Calling Me
+9. Return Of The Calyph From The Apocalypse Of  Babylon
+10. Promised Dreams
+
+### "Nasty Reputation" 1991, Heavy Metal
+
+I Will Survive
+Nasty Reputation
+Fighting The Law
+Wanted Man
+When A Blind Man Cries
+Land Of The Giants
+Firewall
+Unchain The Thunder
+Open Doors
+
+### "Eternal Prisoner" 1992, Heavy Metal
+
+1. Streets Of Fire
+2. Long Time
+3. Eternal Prisoner
+4. Your Life
+5. Wheels Rolling On
+6. Sweet Lil' Suzie
+7. Dreams Of Passion
+8. Shoot Her To The Moon
+9. Ride The Bullet
+
+### "The Ballads" 1993, Heavy Metal
+
+1. You Want Love
+2. Forever Young
+3. Dreams Of Passion
+4. Your Life
+5. Tearing Out My Heart
+6. When A Blind Man Cries
+7. Broken Heart (demo version)
+8. Open Doors pt.2
+9. Falling Tears
+10. Broken Heart (guitar version)
+
+### "Between The Walls" 1994, Heavy Metal
+
+1. The Curse
+2. Talk Of The Guns
+3. Warrior
+4. Cry Of The Gypsy
+5. Casbah
+6. Outlaw
+7. Wishing Well
+8. Innocent Child
+9. Between The Walls
+10. Desert Fire
+
+### "Made In Germany" 1995, Heavy Metal
+
+1. Talk Of The Guns
+2. Nasty Reputation
+3. Mistreamed
+4. Warrior
+5. Snake Eyes
+6. Casbah (incl.Eternal Prisoner)
+7. Call Her Princess
+8. Fire On The Mountain
+
+### "Black Moon Pyramid" 1996, Heavy Metal
+
+ 1. Return Of The Pharaoh (Intro)  (1.47)
+ 2. Gettin' Dangerous (4.27)
+ 3. Fool Fool (5.19)
+ 4. Hole In The Sky (4.54)
+ 5. Touch The Rainbow (6.29)
+ 6. Sphinx Revenge (3.36)
+ 7. You And I (4.20)
+ 8. Silent Angel (5.16)
+ 9. Black Moon Pyramid (9.54)
+[10]. Serenade Of Darkness (Opus  #1 Adagio Con Agresso)(4.13)
+[11]. Visions In The Night (4.01)
+[12]. Aqua Solution (0.57)
+[13]. Aquarius Dance (4.17)
+[14]. Silent Angel (Guitar Version) (4.09)
+
+[10]-[14] Ha cторoнe B
+
+All songs written by Axel Rudi Pell
+Produced by Axel Rudi Pell and Ulrich Posselt
+Enginerred by Ulrich Posselt
+Recorded and mixed at Ra.Sh. Studio, Gelsenkirchen
+
+Jeff Scott Soto - Vocals
+Volker Krawczak - Bass
+Axel Rudi Pell - Guitars
+Julie Greaux - Keyboards
+Jorg Michael - Drums
+
+(P)c 1996 STEAMHAMMER Prod.
+
+### "Magic" 1997, Heavy Metal
+
+1. Swamp Castle Overture (intro)
+2. Nightmare
+3. Playing With Fire
+4. Magic
+5. Turned To Stone
+6. The Clown Is Dead
+7. Prisoners Of The Sea
+8. Light In The Sky
+9. The Eyes Of The Lost
+
+### "Oceans Of Time" 1998, Heavy Metal
+
+1. Tales Of The Twilight
+2. Pay The Price
+3. Carousel
+4. Ashes From The Oath
+5. Ride The Rainbow
+6. The Gates Of The Seven Seals
+7. Oceans Of Time
+8. Prelude To The Moon
+9. Living On The Wildside
+10. Holy Creatures
+
+### "The Ballads II" 1999, Heavy Metal
+
+1. Come Back To Me
+2. Broken Heart
+3. The Clown Is Dead
+4. Oceans Of Time
+5. I Believe In You
+6. Ashes From The Oath
+7. Silent Angel (guitar version)
+8. The Eyes Of The Lost
+9. Innocent Child
+10. Silent Angel
+11. Hey Joe
+
+### "The Masquerade Ball" 2000, Heavy Metal
+
+1. The Arrival (intro)
+2. Earls Of Black
+3. Voodoo Nights
+4. Night And Rain
+5. The Masquerade Ball
+6. Tear Down The Walls
+7. The Line
+8. Hot Wheels
+9. The Temple Of The Holy
+10. July Morning
+
+
+### "Knights live" 2002, Heavy Metal
+
+
+
+### "Shadow Zone" 2002, Heavy Metal
+
+1. The Curse Of The Chains (Intro)                            
+2. Edge Of the World                                               
+3. Coming Home                                                     
+4. Live For The King                                                
+5. All The Rest Of My Life                                       
+6. Follow The Sign 
+7. Time Of The Truth 
+8. Heartbreaker 
+9. Saint Of Fools 
+10. Under The Gun 
+
+
+
+Axel Rudi Pell - guitars 
+Johnny Gioeli - vocals 
+Mike Terrana - drums 
+Volker Krawzcak - bass guitar 
+Ferdy Doernberg - keys 
+
+
+### "Kings & Queens" 2004, Hard Rock
+
+01 The Gate (Intro) 
+02 Flyin`High 
+03 Cold Heaven 
+04 Strong As A Rock 
+05 Forever Angel 
+06 Legions Of Hell 
+07 Only The Strong Wil Survive 
+08 Sailing Away 
+09 Take The Crown 
+10 Sea Of Evil 
+(Produced by Axel Rudi Pell and Charlie Bauerfeind)
+
+### "The Ballads III" 2004, Heavy Metal
+
+01. Don't Say Goodbye
+02. Forever Angel (acoustic)
+03. The Temple of the King
+04. Heartbreaker
+05. The Line
+06. Sea of Evil
+07. The Curse Of The Chains
+08. All the Rest of My Life
+09. Forever Angel
+10. The Temple of the Holy
+11. Under the Gun
+
+### "Knight treasures (live and more) (2DVD)" 2004, Heavy Metal
+
+
+
+### "Mystica" 2006, Heavy Metal
+
+
+
+### "Diamonds Unlocked" 2007, Heavy Metal
+
+
+
+### "Live Over Europe (2 DVD)" 2008, Heavy Metal
+
+
+
+### "Tales Of The Crown" 2008, Heavy Metal
+
+
+
+### "The Crest" 2010, Heavy Metal
+
+1. Prelude Of Doom (Intro) 01:32  
+2. Too Late 05:58  
+3. Devil Zone 06:08  
+4. Prisoner Of Love 05:56  
+5. Dreaming Dead 07:39  
+6. Glory Night 05:45  
+7. Dark Waves Of The Sea (Oceans Of Time Pt. II: The Dark Side) 08:00  
+8. Burning Rain 05:44  
+9. Noblesse Oblige (Opus #5 Adagio Contabile) 04:08  
+10. The End Of Our Time 06:15 
+
+
+
+Johnny Gioeli - Vocals 
+Axel Rudi Pell - Guitars 
+Volker Krawczak - Bass 
+Mike Terrana - Drums 
+Ferdy Doernberg - Keyboards
+
+### "One Night Live (DVD)" 2010, Heavy Metal
+
+1. Tear Down The Walls   
+2. Strong As a Rock   
+3. The Masquerade Ball / Casbah / Tales Of The Crown -medley   
+4. Drum Solo   
+5. Rock The Nation   
+6. Temple Of The King   
+7. Mystica   
+8. Fool Fool / Eternal Prisoner 
+
+### "Circle Of The Oath" 2012, Heavy Metal
+
+1. The Guillotine Suite  01:51   
+2. Ghost in the Black  04:37   
+3. Run with the Wind  04:43   
+4. Before I Die  04:30   
+5. Circle of the Oath  09:20  
+6. Fortunes of War  05:19   
+7. Bridges to Nowhere  07:11  
+8. Lived Our Lives Before  06:31  
+9. Hold on to Your Dreams  05:48   
+10. World of Confusion (The Masquerade Ball Part II)  09:22   
+11. The Temple of the King (Rainbow cover) (live)  * 10:16 
+
+ Produced by Axel Rudi Pell, November 2011-January 2012.
+ Co-produced, engineered and mixed by Charlie Bauerfeind.
+ Drums recorded at Twilight Hall Studios, Grefrath, Germany.
+ Guitars, Bass and Keyboards recorded at Studio-102, Bochum, Germany.
+ Vocals recorded at the "Box", CT, USA.
+ Mixed at Mission Digital Studio, Herzogenaurach, Germany.
+ Mastered by Ulf Horbelt at DMS Mastering Studios, Marl, Germany.
+
+
+### "Into The Storm" 2014, Heavy Metal
+
+Disc 1  
+1. The Inquisitorial Procedure  01:48  
+2. Tower of Lies  04:26  
+3. Long Way to Go  05:32   
+4. Burning Chains  05:23   
+5. When Truth Hurts  06:46   
+6. Changing Times  06:05   
+7. Touching Heaven  07:02   
+8. High Above  04:49  
+9. Hey Hey My My (Neil Young cover)  05:02  
+10. Into the Storm  10:35  
+11. White Cats (Opus #6 Scivolare)  * 04:54    
+12. Way to Mandalay  * 07:52   
+
+Disc 2  
+1. Nasty Reputation (live 2014)  * 05:45    
+2. Strong as a Rock (live 2014)  * 07:55    
+3. Medley: Too Late/Call Her Princess/Eternal Prisoner/Too Late (live 2014)  * 13:30    
+4. Long Way to Go (enhanced video)  * 04:47 
+
+ Produced by Axel Rudi Pell, Joly 2013-October 2013
+ Co-produced, engineered and mixed by Charlie Bauerfeind
+ Drums and Violin recorded at Hall Studios, Grefrath Germany
+ Guitars, Bass and Keyboards recorded at Studio-102, Bochum Germany
+ Vocals recorded at the "Box", CT USA
+ Mixed at Twilight Studios, Grefrath Germany
+ Mastered by Ulf Horbelt at DMS Mastering Studios, Marl Germany
+
+
+### "The King of Fools (single)" 2015, Heavy Metal
+
+1. The King of Fools  04:56 
+
+### "Game Of Sins" 2016, Heavy Metal
+
+1. Lenta Fortuna (Intro)  01:24    
+2. Fire  05:34    
+3. Sons in the Night  05:07   
+4. Game of Sins  08:43    
+5. Falling Star  05:14    
+6. Lost in Love  06:07    
+7. The King of Fools  04:58    
+8. Till the World Says Goodbye  07:40   
+9. Breaking the Rules  05:07   
+10. Forever Free  08:29    
+11. All Along the Watchtower (Bob Dylan cover)  * 06:03 
+
+
 
 ## Отношения с другими группами
 

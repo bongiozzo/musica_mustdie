@@ -1,7 +1,13 @@
 # Frozen Shadows
 
-Дискография
-" Empires De Glace" 2000, Black Metal
+black-metal from Canada
+
+## Дискография
+
+### " Empires De Glace" 2000, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

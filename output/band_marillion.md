@@ -1,21 +1,177 @@
 # Marillion
 
-Дискография
-"Script for a Jester's Tear" 1983, Progressive
-"Fugazi" 1984, Progressive
-"Misplaced Childhood" 1985, Progressive
-"Clutching at Straws" 1987, Progressive
-"Seasons End" 1989, Progressive
-"Holidays in Eden" 1991, Progressive
-"Brave" 1994, Progressive
-"Afraid of Sunrise" 1995, Progressive
-"This Strange Engine" 1997, Progressive
-"Tales from the Engine Room" 1998, Progressive
-"Radiation" 1998, Progressive
-"marillion.com" 1999, Progressive
-"Anoraknophobia" 2001, Progressive
-"Marbles" 2004, Progressive
-"Somewhere Else" 2007, Progressive
+Neo-prog
+
+## Дискография
+
+### "Script for a Jester's Tear" 1983, Progressive
+
+Script for a Jester's Tear
+He Knows You Know 
+The Web
+Garden Party 
+Chelsea Monday 
+Forgotten Sons
+
+### "Fugazi" 1984, Progressive
+
+Assassing
+Punch and Judy 
+Jigsaw
+Emerald Lies 
+She Chameleon 
+Incubus 
+Fugazi
+
+### "Misplaced Childhood" 1985, Progressive
+
+Pseudo Silk Kimono
+Kayleigh 
+Lavender
+Bitter Suite 
+Heart of Lothian 
+Waterhole (Expresso Bongo) 
+Lords of the Backstage 
+Blind Curve 
+Childhoods End? 
+White Feather
+
+### "Clutching at Straws" 1987, Progressive
+
+Hotel Hobbies
+Warm Wet Circles 
+That Time of the Night (The Short Straw)
+Going Under 
+Just for the Record 
+White Russian 
+Incommunicado 
+Torch Song 
+Slainte Mhath 
+Sugar Mice 
+The Last Straw
+
+### "Seasons End" 1989, Progressive
+
+The King of Sunset Town
+Easter 
+The Uninvited Guest
+Seasons End 
+Holloway Girl 
+Berlin 
+After Me 
+Hooks in You 
+The Space
+
+### "Holidays in Eden" 1991, Progressive
+
+Splintering Heart
+Cover My Eyes (Pain and Heaven) 
+The Party
+No One Can 
+Holidays in Eden 
+Dry Land 
+Waiting to Happen 
+This Town 
+The Rakes Progress 
+100 Nights
+
+### "Brave" 1994, Progressive
+
+Bridge
+Living with the Big Lie 
+Runaway
+Goodbye to All That 
+Hard as Love 
+The Hollow Man 
+Alone Again in the Lap of Luxury 
+Paper Lies 
+Brave 
+The Great Escape 
+Made Again
+
+### "Afraid of Sunrise" 1995, Progressive
+
+Gazpacho
+Cannibal Surf Babe 
+Beautiful
+Afraid of Sunrise 
+Out of this World 
+Afraid of Sunlight 
+Beyond You 
+King
+
+### "This Strange Engine" 1997, Progressive
+
+Man of a Thousand Faces
+One Fine Day 
+80 Days
+Estonia 
+Memory of Water 
+An Accidental Man 
+Hope for the Future 
+This Strange Engine
+
+### "Tales from the Engine Room" 1998, Progressive
+
+Estonia 
+Memory of Water 
+This Strange Engine 
+One Fine Day 
+Face 1004 
+80 Days
+
+### "Radiation" 1998, Progressive
+
+Costa del Slough
+Under the Sun 
+The Answering Machine
+Three Minute Boy 
+Now She'll Never Know 
+These Chains 
+Born to Run 
+Cathedral Wall 
+A Few Words for the Dead
+
+### "marillion.com" 1999, Progressive
+
+A Legacy
+Deserve 
+Go!
+Rich 
+Enlightened 
+Built-in Bastard Radar 
+Tumble Down the Years 
+Interior Lulu 
+House
+
+### "Anoraknophobia" 2001, Progressive
+
+Between You and Me 
+Quartz 
+Map of the World 
+When I Meet God 
+The Fruit of the Wild Rose 
+Separated Out 
+This is the 21st Century 
+If My Heart were a Ball it would Roll Uphill
+
+### "Marbles" 2004, Progressive
+
+
+
+### "Somewhere Else" 2007, Progressive
+
+1. The Other Half
+2. See It Like A Baby
+3. Thankyou Whoever You Are
+4. Most Toys
+5. Somewhere Else
+6. A Voice From The Past
+7. No Such Thing
+8. The Wound
+9. The Last Century For Man
+10. Faith
+
 
 ## Отношения с другими группами
 

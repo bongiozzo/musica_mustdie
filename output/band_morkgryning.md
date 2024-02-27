@@ -1,11 +1,114 @@
 # Mork Gryning
 
-Дискография
-"Tusen Ar Har Gatt..." 1995, Death Metal
-"Return Fire" 1997, Death Metal
-"Maelstrom Chaos" 2001, Death Metal
-"Pieces Of Primal Expressionism" 2003, Death Metal
-"Mork Gryning" 2005, Death Metal
+
+
+## Дискография
+
+### "Tusen Ar Har Gatt..." 1995, Death Metal
+
+1. Dagon
+2. Journey
+3. Tusen Ar Har Gatt
+4. Omringningen
+5. Armageddon Has Come To Pass...
+6. Unleash The Beast
+7. The Final Battle
+8. Morkrets Gryning
+9. Min Sista Fard (En Visa Om Doden)
+
+All Songs Written By MORK GRYNING.
+Mixed & Engineered By Dan Swano.
+Recorded At Unisound Studio, May '95.
+
+Goth Gorgon - Bass, Guitar, Acoustic Guitar, Keyboards...Screams
+Draakh Kimera - Lead & Acoustic Guitar, Vocals, Keyboards, Drums
+
+(P)&(C) 1995 NO FASHION Records
+
+### "Return Fire" 1997, Death Metal
+
+1. World Of The Dragon
+2. Supreme Hatred
+3. The Doom Of Planet Yucnown
+4. The Surrounding
+5. Dreams, Sweet Dreams
+6. No Longer In Wait
+7. Manhunter
+8. Return Fire
+9. Dawn Of The Magic Aeon
+10. Master Of Fire
+11. Necrophiliac (cover)
+
+Produced, mixed and engineered by Thomas Skogsberg at Sunlight
+Jonas Berndt - Bass, Vocals, Guitar
+Draakh Kimera - Drums, Keys
+(p)(c) 1997 No Fashion Records
+
+### "Maelstrom Chaos" 2001, Death Metal
+
+1. A Perception of the Ancient
+2. Templars
+3. Ont Blod
+4. The Menace
+5. Maelstrom Chaos
+6. My Friends
+7. The Darkness Within
+8. Bloodspring Mirage
+9. Forever Unhallowed Preponderance
+10. Dodens Skald
+11. Gast Hos Bergakungen
+
+### "Pieces Of Primal Expressionism" 2003, Death Metal
+
+01. The Sleeping Star
+02. The Cradle Of Civilization
+03. Perpetual Dissolution
+04. Our Urn
+05. An Old Man's Lament
+06. The Worm
+07. Fragments And Pieces
+08. On The Verge Of Prime Divinity
+
+Goth - guitars, bass, vocals
+Kimera - guitars, drums, vocals
+Aeon - synthesizers, mellotron, guitars, backing
+vocals
+
+Guest appearances:
+Avatar - first solo in "Our Urn" and solo in
+"Perpetual Desolation"
+Daniel Eideholm - sound manipulations
+Lawrence MackRory - backing vocals
+Nick Eastop - trombone in "The Sleeping Star" and
+"An Old Man's Lament"
+Ulrika Eastop - violin in "The Cradle Of
+Civilization"
+Orjan Ornkloo - additional synthesizers and
+samples
+
+
+Recorded and mixed at Dag Out Studio, 03-02-19 -
+03-03-28.
+Produced by Daniel Bergstrand and Orjan Ornkloo.
+Mastered at Cutting Room by Thomas Edberger.
+Sleeve and photography by Per Ahlund.
+
+### "Mork Gryning" 2005, Death Metal
+
+1. Lazarus Rising 00:56  
+2. Ingen Dyrkan 03:41  
+3. The Sun 03:42  
+4. Into Oblivion 03:31  
+5. The Aurora 06:03  
+6. Pure 05:33  
+7. All Discarded 05:58  
+8. Disguise My Parting 04:26  
+9. Neverwhere 15:05 
+
+
+Goth Gorgon (Jonas Berndt) - guitars, bass, backing vocals, keys 
+Johan Larsson - Keyboards
+
 
 ## Отношения с другими группами
 

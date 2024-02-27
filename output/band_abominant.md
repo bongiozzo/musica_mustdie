@@ -1,13 +1,95 @@
 # Abominant
 
-Дискография
-"Never Truly Dead /EP/" 1996, Death Metal
-"Unspeakable Horrors" 1996, Death Metal
-"In Darkness Embrace" 1997, Metal
-"The Way After" 1999, Death Metal
-"Ungodly" 2000, Death Metal
-"Upon Black Horizons" 2002, Death Metal
-"Conquest" 2004, Death Metal
+US death-metal band
+
+## Дискография
+
+### "Never Truly Dead /EP/" 1996, Death Metal
+
+01] Portal Of Madness
+02] Corrupting Morality
+03] Rebirth
+04] Never Truly Dead
+
+### "Unspeakable Horrors" 1996, Death Metal
+
+01] Intentionally Accused
+02] Corrupting Morality
+03] Calls From Beyond
+04] Lost
+05] The Ecstasy Of Suffering
+06] Abominant
+07] Child Of The Sky
+08] Age Of Chaos
+09] Unspeakable Horrors
+
+### "In Darkness Embrace" 1997, Metal
+
+01] Shadows Land
+02] Desecration Of Life
+03] A Time Of Rememberance
+04] Dark Endless Time
+05] Eternal Emptyness
+06] In Mourning
+07] Fatalities Of War
+08] The Nexas
+
+### "The Way After" 1999, Death Metal
+
+01] The Way After
+02] Taogehtssik
+03] Tomorrows End
+04] Goddess Of The Night
+05] The Beauty Of Our Savage Ways
+06] Desire
+07] Echoes Of Sorrow
+08] Visual Conquest
+09] Severed Dreams
+
+Mike Barnes - vocals
+Timmie Ball - guitar
+Mike May - bass
+Craig Netto - drums
+
+Produced by Chris Cassetta
+
+(p)(c) 1999 Wild Rags Records
+
+### "Ungodly" 2000, Death Metal
+
+01] Dawn Of Despair
+02] Treasures Of Darkness
+03] On Deaths Wings
+04] Pinnacle Of Hate
+05] The Fallen
+06] The Dark Mystery
+07] Beyond Spectral Plains
+08] Re-Animation
+
+### "Upon Black Horizons" 2002, Death Metal
+
+01] The Quintessential Battle
+02] Eroded Faith
+03] Terror From Within
+04] I Can Still See The Flames
+05] Fight To Be Free
+06] Plague Of Sores
+07] Storm Of Iniquity
+08] Through The Primordial Void
+09] Upon Black Horizons
+
+### "Conquest" 2004, Death Metal
+
+01] Intro
+02] Hand Of Destiny
+03] Crumbling Empires
+04] Seeds Of Fire
+05] Set You To Burn
+06] Blood On The Altar Of Man
+07] For Those Who Have Fallen
+08] Resurrection Machine
+09] Mortals Damnation
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,17 @@
 # Fozzy
 
-Дискография
-"Happenstance" 2002, Heavy Metal
-"All That Remains" 2004, Heavy Metal
+Heavy metal
+
+## Дискография
+
+### "Happenstance" 2002, Heavy Metal
+
+
+
+### "All That Remains" 2004, Heavy Metal
+
+
+
 
 ## Отношения с другими группами
 

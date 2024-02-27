@@ -1,8 +1,17 @@
 # Moray Eel
 
-Дискография
-"Psycho: Delusion" 2005, Alternative
-"Priest Hunter" 2006, Alternative
+
+
+## Дискография
+
+### "Psycho: Delusion" 2005, Alternative
+
+
+
+### "Priest Hunter" 2006, Alternative
+
+
+
 
 ## Отношения с другими группами
 

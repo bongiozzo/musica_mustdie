@@ -1,11 +1,83 @@
 # Blur
 
-Дискография
-"" 1994, Grunge
-"Parklife" 1994, Grunge
-"The Great Escape" 1995, Grunge
-"To The End" 1996, Grunge
-"Blur" 1997, Grunge
+
+
+## Дискография
+
+### "" 1994, Grunge
+
+
+
+### "Parklife" 1994, Grunge
+
+1. Girls And Boys
+2. Tracy Jacks
+3. End Of Century
+4. Parklife
+5. Bank Holiday
+6. Badhead
+7. The Debt Collector
+8. Far Out
+
+All songs written by BLUR.
+
+(P)(C) 1994 EMI Records
+
+### "The Great Escape" 1995, Grunge
+
+1.  Stereotypes
+2.  Country House
+3.  Best Days
+4.  Charmless Man
+5.  Fade Away 
+6.  Top Man
+7.  The Universal
+8.  Mr.Robinson's  Quango
+9.  Me Thought Of Cars
+10.It Could Be You
+11.Ernold Same
+12.Globe Alone
+13.Dan Abnormal
+14.Entertain Me
+15.Yuko And Hiro
+
+(P)&c 1995 EMI Records
+
+### "To The End" 1996, Grunge
+
+1. To The End
+2. London Loves
+3. Trouble In The Message Centre
+4. Clover Over Dover
+5. This Is A Low
+
+All songs written by BLUR.
+
+(P)(C) 1996 EMI Records
+
+### "Blur" 1997, Grunge
+
+1.  Beetlebum
+2.  Song 2
+3.  Country Sad Ballad Man
+4.  M.O.R.
+5.  On Your Own
+6.  Them From Retro
+7.  You're So Great
+8.  Death Of A Party
+9.  Chinese Bombs
+10.I'm Just A Killer For Your Love
+11.Look Inside America
+12.Strangle News From Another Star
+13.Movin' On
+14.Essex Dogs
+
+Recorded In London And Iceland.
+Produced By Stephan Street.
+Engineered By John Smith.
+
+(P)(C) 1997 EMI Records
+
 
 ## Отношения с другими группами
 

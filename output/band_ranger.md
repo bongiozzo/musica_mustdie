@@ -1,10 +1,58 @@
 # Ranger
 
-Дискография
-"Knights Of Darkness (EP)" 2013, Speed Metal
-"Shock Skull (7" single)" 2014, Speed Metal
-"Skull Splitting Metal (Compilation)" 2014, Speed Metal
-"Where Evil Dwells" 2015, Speed Metal
+
+
+## Дискография
+
+### "Knights Of Darkness (EP)" 2013, Speed Metal
+
+01. Ranger
+02. Touch Of Death
+03. Steel Dawn
+04. Supreme Evil
+05. Knights Of Darkness
+
+### "Shock Skull (7" single)" 2014, Speed Metal
+
+01. Shock Skull
+02. Omen Of Doom
+
+### "Skull Splitting Metal (Compilation)" 2014, Speed Metal
+
+01. Shock Skull
+02. Omen Of Doom
+03. Ranger
+04. Touch Of Death
+05. Steel Dawn
+06. Supreme Evil
+07. Knights Of Darkness
+08. Touch Of Death (demo)
+09. Supreme Evil (demo)
+10. Combat Metal (demo) / instrumental
+11. Touch Of Death (demo)
+12. Metal Gear (demo) / instrumental
+13. They Live (demo)
+14. Taken By the Night (demo)
+15. Enter The Zone (demo)
+16. Speed Protector (demo) 
+
+Tracks 1-2 taken from EP "Shock Skull"
+Tracks 3-7 taken from EP "Knights of Darkness"
+Tracks 8-10 taken from "Combat Metal"
+Track 11 is an unreleased song
+Tracks 12-14 taken from demo "Metal Gear"
+Tracks 15-16 taken from demo "Enter The Zone"
+
+### "Where Evil Dwells" 2015, Speed Metal
+
+1. Defcon 1
+2. Deadly Feast
+3. Phantom Soldier
+4. Dead Zone
+5. Black Circle
+6. Where Evil Dwells
+7. Storm Of Power
+
 
 ## Отношения с другими группами
 

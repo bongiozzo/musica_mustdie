@@ -1,7 +1,29 @@
 # Depravity
 
-Дискография
-"Silence Of The Centuries" 1994, Death Doom
+
+
+## Дискография
+
+### "Silence Of The Centuries" 1994, Death Doom
+
+1. Silence Of The Centuries
+2. Sleepy Ocean
+3. Remasquerade
+4. Phantasmogoria
+5. Vacuum Of Thoughts
+
+All Songs By DEPRAVITY.
+Produced By ADIPOCERE Records.
+Recorded & Mixed By Erkki Salo & DEPRAVITY At MOM-Studios In May 1993.
+
+Martti - Vocals
+Olli - Guitar
+Enska - Lead Guitar
+Pete - Bass
+Matti - Drums
+
+(P)&(C) 1994 ADIPOCERE Records
+
 
 ## Отношения с другими группами
 

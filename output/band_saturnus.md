@@ -1,11 +1,70 @@
 # Saturnus
 
-Дискография
-"Paradise Belongs To You" 1997, Death Doom
-"For The Loveless Lonely Nights (EP)" 1998, Death Doom
-"Martyre" 2000, Death Doom
-"Veronika Decides To Die" 2006, Death Doom
-"Saturn in Ascension" 2012, Death Doom
+death-doom from Denmark
+
+## Дискография
+
+### "Paradise Belongs To You" 1997, Death Doom
+
+Paradise Belongs To You
+Christ Goodbye
+As We Dance The Path Of Fire Or Solace
+Pilgrimage Of Sorrow
+The Fall Of Nakkiel (Nakkiel has fallen)
+Astral Dawn
+I Love Thee
+The Underworld
+Lament For This Treacherous World
+
+### "For The Loveless Lonely Nights (EP)" 1998, Death Doom
+
+Starres
+For Your Demons
+Thou Art Free
+Christ Goodbye (Live)
+Rise Of Nakkiel (Live)
+Consecration
+
+### "Martyre" 2000, Death Doom
+
+7
+Inflame thy Heart
+Empty Handed
+Noir
+A Poem
+Softly On The Path You Fade
+Thou Art Free
+Drown my Sorrow
+Lost my Way
+Loss (in memoriam)
+Thus my Heart Weepeth for Thee
+In Your Shining Eyes
+
+### "Veronika Decides To Die" 2006, Death Doom
+
+1. I Long 10:54  
+2. Pretend 06:26  
+3. Descending 09:05  
+4. Rain Wash Me 07:23  
+5. All Alone 06:19  
+6. Embraced By Darkness 06:45  
+7. To The Dreams 05:48  
+8. Murky Waters 06:40
+
+### "Saturn in Ascension" 2012, Death Doom
+
+1. Litany Of Rain
+ 2. Wind Torn
+ 3. A Lonely Passage (feat. Laurie Ann Haus)
+ 4. A Fathers Providence
+ 5. Mourning Sun
+ 6. Call Of The Raven Moon
+ 7. Forest Of Insomnia
+ 8. Between
+ 9. Limbs Of Crystal Clear
+
+
+
 
 ## Отношения с другими группами
 

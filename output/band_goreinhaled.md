@@ -1,8 +1,34 @@
 # Goreinhaled
 
-Дискография
-"Fetus in Fetu" 2004, Death Metal
-"The Art of Sickness" 2008, Death Metal
+
+
+## Дискография
+
+### "Fetus in Fetu" 2004, Death Metal
+
+1. Carnivorous Chainsaw 03:12  
+2. Autodisfigurement 02:49  
+3. Common Grave 03:23  
+4. Showcases of Corpses 04:28  
+5. Under Sodomy of Hangman 03:45  
+6. Fetus In Fetu 04:44  
+7. Seeking Human Flesh 03:23  
+8. Hunter Syndrome 03:24  
+9. Torture and Suffer 03:13  
+10. Mutilated 03:15  
+11. Catatonia (Suffocation cover) 03:43 
+
+### "The Art of Sickness" 2008, Death Metal
+
+1. Obliteration 03:03  
+2. Taste a Putrid Amputation 03:45  
+3. Symphony of Depraved 04:25  
+4. The Art of Bloody Pleasure 03:30  
+5. Devoured Myself 03:05  
+6. Fetus Revenge 03:10  
+7. Pleasure of Murdering 03:34  
+8. Hammerition 02:52 
+
 
 ## Отношения с другими группами
 

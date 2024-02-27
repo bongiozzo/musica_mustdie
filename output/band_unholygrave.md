@@ -1,7 +1,41 @@
 # Unholy Grave
 
-Дискография
-"Crucified" 1995, Grindcore
+Pathological Grind from Japan
+
+## Дискография
+
+### "Crucified" 1995, Grindcore
+
+1.  Maniacal Damage
+2.  Human Hummification
+3.  Mental Disease
+4.  Atrocity - Mar Of Agression
+5.  Worthless Prize
+6.  Korean Residents In Japan
+7.  Be Born Poor
+8.  Forced Unfair Future
+9.  Blind - Death From Overwork
+10.Euthanasia
+11.The Unknown Ghost - The Fugitives
+12.Discrimination
+13.Protestant ? Catholic ? 
+14.Shameless Bighead
+15.Mass Imbeciles - Racism
+16.Creedy Pig
+
+Recorded and Mixed at Liverpool.
+Engineered by Mr. Hayakawa.
+Produced by Hitoshi Nakahashi and UG.
+All music and lyrics by Tadasbi & Takaho.
+
+Tadashi - Guitars
+Debuzo - Drums
+Ume - Bass
+Kajisa - Guitars
+Takaho - Vocals
+
+(P)c 1995 ECLIPSE Records
+
 
 ## Отношения с другими группами
 

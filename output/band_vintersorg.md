@@ -1,16 +1,174 @@
 # Vintersorg
 
-Дискография
-"Hedniskjartad" 1998, Black Metal
-"Till Fjalls" 1999, Black Metal
-"Odemarkens Son" 1999, Black Metal
-"Cosmic Genesis" 2000, Black Metal
-"Visions From The Spiral Generator" 2002, Black Metal
-"The Focusing Blur" 2004, Progressive
-"Solens Rotter" 2007, Black Metal
-"Jordpuls" 2011, Viking Metal
-"Orkan" 2012, Viking Metal
-"Naturbal" 2014, Metal
+
+
+## Дискография
+
+### "Hedniskjartad" 1998, Black Metal
+
+Norrland 
+Stilla 
+Norrskensdr mmar 
+Hednaorden 
+Tussm rkret 
+
+### "Till Fjalls" 1999, Black Metal
+
+1. Rundans
+2. For Kung Och Fosterland
+3. Vildmarkens Fortrollande Stammor
+4. Till Fjalls  
+5. Urberget, Aldst Av Troner
+6. Hednad I Ulvermanens Tecken
+7. Jokeln
+8. Isjungfrun  
+9. Asatider
+10. Fangad Utav Nordens Sjal 
+
+
+### "Odemarkens Son" 1999, Black Metal
+
+1. Nar Alver Sina Runor Sjungit
+2. Svaltvinter  
+3. Under Norrskenets Fallande Ljusspel
+4. Manskensman
+5. Odemarkens Son
+6. Trollbunden
+7. Offerbacken
+8. I Den Trolska Dalens Hjarta
+9. Pa Landet 
+
+
+### "Cosmic Genesis" 2000, Black Metal
+
+Astral And Arcane 
+Algol 
+A Dialog With The Stars 
+Cosmic Genesis 
+Om Regnbдgen Materialiserades 
+Ars Memorativa 
+Rainbow Demon 
+Naturens Galleri 
+The Enigmatic Spirit 
+
+
+### "Visions From The Spiral Generator" 2002, Black Metal
+
+01. Quotation
+02. Vem Styr Symmetrin?
+03. A Metaphysical Drama
+04. Universums Dunkla Alfabet
+05. E.S.P. Mirage
+06. Spegelstaren
+07. The Explorer
+08. A Star-guarded Coronation
+09. Trance Location
+
+
+
+Vintersorg - Vocals, Rhythm & Lead Guitars,
+Keyboard, Loop Editing
+Mattias Marklund - Lead & Rhythm Guitars
+Steve DiGiorgio - Fretless Bass
+Asgeir Mickelson - Drums
+
+Guest musicians:
+Nils Johansson - synth
+Lars Nedland - hammonnd on track 3
+
+
+Recording locations:
+Seven Stars: keyboards, in duration of `01
+Ballerina Audio AB: vocals, guitars, loop editing,
+hammond and additional keyboards, Dec `01
+TopRoom Studio: Drums, Jan`02 hammond, April `02
+Nu-Tone Studio: bass, March `02
+
+Engineers:
+Vintersorg & Mattias at Seven Stars
+Nils Johansson at Ballerina Audio AB
+Borge Finstad at Top Room Studio
+Chris Dugan at Nu-Tone Studio
+
+All music and lyrics by Vintersorg
+Produced by Vintersorg
+Mixed at TopRoom Studio, April `02 by Borge
+Finstad and the Vintersorg
+Grammatical corrections by Jeff Wagner
+Photos by Paulina Holmgren, Darren Travis and
+Asgeir Mickelson
+Design by Asgeir Mickelson at MultiMono
+
+
+
+
+### "The Focusing Blur" 2004, Progressive
+
+1. Prologue Dialogue
+2. The Essence 
+3. The Thesises Seasons 
+4. Matrix Odyssey 
+5. Star Puzzled 
+6. A Sphere In A Sphere (To Infinity) 
+7. Blindsight Complexity 
+8. Artifacts Of Chaos 
+9. Dark Matter Mystery/Blackbody Spectrum 
+10. Curtains 
+11. A Microscopical Macrocosm
+
+### "Solens Rotter" 2007, Black Metal
+
+1. Dцpt I En Jцkelsjц 05:25  
+2. Perfektionisten 04:17  
+3. Spirar Och Gror 06:32  
+4. Kosmosaik 05:31  
+5. Idйtemplet 04:52  
+6. Naturens Mystar 05:00  
+7. Att Bygga En Ruin 05:29  
+8. Strеlar 05:10  
+9. Frеn Materia Till Ande 05:48  
+10. Vad Aftonvindens Andning Viskar 04:49
+
+### "Jordpuls" 2011, Viking Metal
+
+1. Varldsalltets Fanfar 05:20  
+2. Klippor Och Skar 06:12  
+3. Till Danet Av Forsar Och Fall 04:31  
+4. Mork Nebulosa 05:23  
+5. Stjarndyrkan 05:06  
+6. Skogen Sover 05:54  
+7. Vindogat 04:34  
+8. Palissader 05:27  
+9. Eld Och Lagor 04:14 
+
+
+Andreas "Vintersorg" Hedlund - Vocals, Guitar, Bass, Keyboards 
+Mattias Marklund - Guitar
+
+### "Orkan" 2012, Viking Metal
+
+Istid
+Ur stj?rnstoft ?r vi komna
+Polarnatten
+Myren
+Orkan
+Havets n?d
+Norrskenssyner
+Urv?dersf?ngen
+
+### "Naturbal" 2014, Metal
+
+1. Ur aska och sot    
+2. Overallt och ingenstans
+3. En blixt fran klar himmel    
+4. Lagornas rov  
+5. Rymdens brinnande oar     
+6. Natten visste vad skymningen sag  
+7. Elddraken     
+8. Urdarmane    
+9. Sjal i flamma  
+
+
 
 ## Отношения с другими группами
 

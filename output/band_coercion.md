@@ -1,8 +1,51 @@
 # Coercion
 
-Дискография
-"Forever Dead" 1997, Death Metal
-"Delete" 1999, Death Metal
+
+
+## Дискография
+
+### "Forever Dead" 1997, Death Metal
+
+Coughing Blood 
+Blind Witness 
+Cursed With Existence 
+Dead Meat 
+Crawling In Filth 
+Breeding The Enemy 
+Down We Go 
+Human Failure 
+March 
+Forever Dead 
+Scattered 
+Grief (beyond belief) 
+
+
+Recorded at Unisound, July 1996
+K.Nyman-vocals, R.Thulin-guitar, S.Sцderberg-guitar, P.Liljenberg-bass, T.Frykholm-drums
+
+
+### "Delete" 1999, Death Metal
+
+Carve The Stone 
+Once I Cared 
+Eclipsed 
+Mental Tormoil 
+The Pointless Routine 
+Delete 
+Burst 
+Anticlimax 
+Without Aim 
+Discontinued 
+Life Denied 
+Evolution Reversed 
+
+
+Recorded at SoundLab Studios, June 1998
+K.Nyman-vocals, R.Thulin-guitars & bass, P.Ekegren-drums
+
+
+
+
 
 ## Отношения с другими группами
 

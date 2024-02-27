@@ -1,8 +1,42 @@
 # Union
 
-Дискография
-"Union" 1999, Hard Rock
-"The Blue Room" 2000, Hard Rock
+Bruce Kulick (ex-KISS)
+
+## Дискография
+
+### "Union" 1999, Hard Rock
+
+Old Man Wise (4:17) 
+Around Again (6:10) 
+Pain Behind Your Eyes (4:33) 
+Love (I Don't Need It Anymore) (3:44) 
+Heavy D (5:41) 
+Let It Flow (6:09) 
+Empty Soul (4:50)
+October Morning Wind (4:09) 
+Get Off My Cloud (4:08) 
+Tangerine (4:43) 
+Robin's Song (4:28) 
+Oh Darling (2:47)
+
+Bruce Kulick - гитары, вокал
+John Corabi - вокал, гитары
+Jamie Hunting - бас
+Brent Fitz - ударные
+
+### "The Blue Room" 2000, Hard Rock
+
+Do Your Own Thing 
+Dead 
+Everything's All Right 
+Shine 
+Who Do You Think You Are 
+Dear Friend 
+Do You Know My Name 
+Hypnotized 
+I Wanna Be 
+No More
+
 
 ## Отношения с другими группами
 

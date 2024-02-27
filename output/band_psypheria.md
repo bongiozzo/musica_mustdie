@@ -1,9 +1,62 @@
 # Psypheria
 
-Дискография
-"Gothic Disturbance" 1998, Death Metal
-"Plague's End" 2001, Death Metal
-"Embrace the Mutation" 2002, Death Metal
+
+
+## Дискография
+
+### "Gothic Disturbance" 1998, Death Metal
+
+1.Overmodulated
+2.Tocatta in Death Minor
+3.Gothic Disturbance
+4.Lord of Worms
+5.Liquefied
+6.Injection
+7.Immortal Hate 
+
+
+
+Tom Persons-Bass/Vocals
+Cory Valdez-Drums
+John Oster-Guitars
+Lyle Livingston-Keyboards
+ 
+
+### "Plague's End" 2001, Death Metal
+
+1. Labyrinth of Suffering
+2. Digital Black
+3. Insensate
+
+
+ 
+John Oster: rhythm/lead, classical guitar 
+Mike Hurley: rhythm, lead guitar 
+Adam Roberts: bass, vocals 
+Lyle Livingston: keyboards 
+Cory Valdez: drums 
+ 
+
+### "Embrace the Mutation" 2002, Death Metal
+
+1. Flesh Must Burn 
+2. Cathartic Degeneration 
+3. Shatterer of Worlds 
+4. Taste the Dead 
+5. Systemic Confrontation 
+6. Insensate 
+7. Digital Black 
+8. Labyrinth of Suffering 
+  
+
+ 
+John Oster: rhythm/lead guitar 
+Mike Hurley: rhythm/ lead guitar 
+Adam Roberts: bass, vocals 
+Lyle Livingston: keyboards 
+Cory Valdez: drums 
+ 
+
 
 ## Отношения с другими группами
 

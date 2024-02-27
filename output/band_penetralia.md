@@ -1,7 +1,13 @@
 # Penetralia
 
-Дискография
-"Seelenkrank" 2000, Black Metal
+atmospheric black-metal
+
+## Дискография
+
+### "Seelenkrank" 2000, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

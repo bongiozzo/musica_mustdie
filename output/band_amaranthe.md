@@ -1,10 +1,47 @@
 # Amaranthe
 
-Дискография
-"Amaranthe" 2011, Metal
-"The Nexus" 2013, Metal
-"Massive Addictive" 2014, Metal
-"Maximalism" 2016, Metal
+
+
+## Дискография
+
+### "Amaranthe" 2011, Metal
+
+
+
+### "The Nexus" 2013, Metal
+
+
+
+### "Massive Addictive" 2014, Metal
+
+01. Dynamite
+02. Drop Dead Cynical
+03. Trinity
+04. Massive Addictive
+05. Digital World
+06. True
+07. Unreal
+08. Over and Done
+09. Danger Zone
+10. Skyline
+11. An Ordinary Abnormality
+12. Exhale 
+
+### "Maximalism" 2016, Metal
+
+01. Maximize
+02. Boomerang
+03. That Song
+04. 21
+05. On The Rocks
+06. Limitless
+07. Fury
+08. Faster
+09. Break Down And Cry
+10. Supersonic
+11. Fireball
+12. Endlessly
+
 
 ## Отношения с другими группами
 

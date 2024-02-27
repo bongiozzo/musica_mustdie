@@ -1,7 +1,32 @@
 # I Legion
 
-Дискография
-"Beyond Darkness" 2012, Melodic Death Metal
+
+
+## Дискография
+
+### "Beyond Darkness" 2012, Melodic Death Metal
+
+1. Hexagram 01:05 
+2. Signs From Above 03:57 
+3. Night Calls 03:27 
+4. Escape As Deliverance 04:21 
+5. Beyond Darkness 05:21 
+6. Search For I 03:36 
+7. Deceive The Light 03:16 
+8. A World So Black 04:54 
+9. Despite Your Grace 04:10 
+10. We Will Fight 04:17 
+11. Faithless 04:13 
+12. Love Is A Battlefield 04:47 
+13. Dead Inside 04:33
+
+
+I Legion is the musical work of Frederic Riverin, who shaped and wrote all the songs in fall 2011, at his home in Quebec. Helped by friend producer and vocalist Chris Clancy (ex-Mutiny Within), they both crafted these recordings into a melodic metal machine. Metal giants Bjorn Strid (Soilwork), Jon Howard (Threat Signal) and Chris himself took the vocal duties and put their touch and talent over the 13 songs of the album. 
+
+I Legion also features modern guitar heroes Andy James (Sacred Mother Tongue), Peter Wichers (Soilwork), Angel Vivaldi and Brandon Jacobs (Mutiny Within) on the lead guitars for tasteful and melodic solos. 
+
+All these musicians helped Frederic to create his own album: alone, but with a legion behind him. The I LEGION.
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,22 @@
 # Condemned
 
-Дискография
-"Desecrate the Vile" 2007, Death Metal
+
+
+## Дискография
+
+### "Desecrate the Vile" 2007, Death Metal
+
+1. Fixation on Suffering  01:57  
+2. Subject to Infliction  02:30   
+3. Descending into Extinction  02:11  
+4. Impulsive Dismemberment  02:37  
+5. Servants of Derangement  02:22  
+6. Habitual Depravity  01:51   
+7. Chapter of Defilement  03:38   
+8. Mutilating the Inferior  01:46  
+9. Internally Devoured  01:52  
+10. Amputated Repugnance  11:33 
+
 
 ## Отношения с другими группами
 

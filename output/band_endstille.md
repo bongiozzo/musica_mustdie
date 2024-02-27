@@ -1,13 +1,96 @@
 # Endstille
 
-Дискография
-"Operation Wintersturm" 2002, Black Metal
-"Fruhlingserwachen" 2003, Black Metal
-"Dominanz" 2004, Black Metal
-"Navigator" 2005, Black Metal
-"Endstilles Reich" 2007, Black Metal
-"Verfuhrer" 2009, Black Metal
-"Infektion 1813" 2011, Black Metal
+
+
+## Дискография
+
+### "Operation Wintersturm" 2002, Black Metal
+
+1. Der Hetzer (Batterie 4)  04:29   
+2. Jesus Christ  01:49  
+3. Discovering Rapture as an Art  04:49
+4. Operation Wintersturm  04:28
+5. Mute Their Ways  03:18 
+6. God Of Gods  03:21    
+7. Ballade Of Frostbitten Heart  04:02
+8. Warmetal  03:20   
+9. Endstille  06:48 
+
+### "Fruhlingserwachen" 2003, Black Metal
+
+1. Fruhlingserwachen  04:31   
+2. Ripping Angelflesh  04:45 
+3. With The Fog They Come  03:31 
+4. Defloration  04:46 
+5. 1914  03:24    
+6. Biblist Burner  03:52   
+7. World Free Of Christ  03:18    
+8. Endstille  06:38 
+
+### "Dominanz" 2004, Black Metal
+
+1. Dominanz  04:25   
+2. Instinct  05:05    
+3. Conquest Is Atheism  03:49   
+4. Monotonus III  03:42
+5. Bleed For Me  04:54    
+6. Monotonus  05:22   
+7. Witch  03:16    
+8. Worldabscess  03:16    
+9. Crucified  04:22  
+10. Endstille (Feindfahrt)  08:44 
+
+### "Navigator" 2005, Black Metal
+
+1. Ortungssignal  00:04    
+  (loading lyrics...) 
+2. I Bless You... God  05:33   
+3. Navigator  03:48   
+4. Above the Vault of Heaven  03:54  
+5. Bastard  06:49    
+6. Monotonus II  04:39 
+7. Nameless  02:59  
+8. Let There Be Heaven  05:10 
+9. Disillusioned Victory  04:08 
+10. Endstille (Leichnam)  06:01 
+
+### "Endstilles Reich" 2007, Black Metal
+
+01. Among Our Glorious Existence 
+02. Endstilles Reich 
+03. Der Ketzer 
+04. Vorwarts! (Sturmangriff II) 
+05. I Am God 
+06. No Heaven Over Germany 
+07. The One I Hate 
+08. Scars 
+09. Erase 
+10. Endstille (Realitat)
+
+### "Verfuhrer" 2009, Black Metal
+
+1. ...Of Disorder 03:48  
+2. Hate Me...God? 06:11  
+3. Depressive/Abstract/Banished/Despised 04:17  
+4. Ursprung 07:14  
+5. Monotonus/n 04:46  
+6. Symptoms 06:31  
+7. Suffer In Silence 04:30  
+8. Dead 04:32  
+9. Endstille (VerfГјhrer) 04:58 
+
+### "Infektion 1813" 2011, Black Metal
+
+1. Anomie  03:38   
+2. Trenchgoat  04:04  
+3. Bloody H (The Hurt-Gene)  03:42   
+4. The Deepest Place on Earth  05:35 
+5. When Kathaaria Falls  04:00 
+6. Satanarchie  03:56   
+7. World Aflame  04:50
+8. Wrecked  05:39   
+9. Endstille (V&#246;lkerschl&#228;chter)  10:43 
+
 
 ## Отношения с другими группами
 

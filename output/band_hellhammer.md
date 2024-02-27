@@ -1,8 +1,44 @@
 # Hellhammer
 
-Дискография
-"Apocalyptic Raids" 1984, Black Metal
-"Satanic Rites" 1996, Black Metal
+
+
+## Дискография
+
+### "Apocalyptic Raids" 1984, Black Metal
+
+ Side One (45 UP/M):
+1. The Third Of The Storms 2.45
+   /Evoked Damnation/
+2. Massacra 2.48
+ Side Two (33 1/3 UP/M):
+1. Triumph Of Death 9.23
+2. Horus / Aggressor 5.02
+
+Tom Warrior (Satanic Slaughter) - Vocals & Guitars
+Martin Ain (Slayed Necros) - Bass Guitars
+Bruce Day (Denial Fiend) - Drums
+
+(p)&(c) 1984 NOISE International
+
+### "Satanic Rites" 1996, Black Metal
+
+1.  Messiah
+2.  The Third Of The Storms
+3.  Buried And Forgotten
+4.  Maniac
+5.  Eurynomos
+6.  Triumph Of Death
+7.  Revelations Of Doom
+8.  Reaper
+9.  Satanic Rites
+10.Crucifixion
+
+Satanic Slaughter - V-Axe Holocaust, Dambusher
+Denial Field - Hellish Crossfire On Wooden Coffins
+Slayed Necros - Deadly Bassdose, Backin' Howling
+
+(P)c 1996 HELLHAMMER MANIAC Records
+
 
 ## Отношения с другими группами
 

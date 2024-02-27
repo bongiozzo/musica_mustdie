@@ -1,6 +1,9 @@
 # Within Another
 
-Дискография
+Progressive Metal Act from NY USA
+
+## Дискография
+
 
 ## Отношения с другими группами
 

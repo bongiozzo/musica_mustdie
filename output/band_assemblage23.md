@@ -1,12 +1,51 @@
 # Assemblage 23
 
-Дискография
-"Contempt" 2000, Synthpop
-"Failure" 2001, Ambient
-"Defiance" 2003, Synthpop
-"Storm" 2005, Synthpop
-"Meta" 2007, Synthpop
-"Compass" 2009, Synthpop
+future pop
+
+## Дискография
+
+### "Contempt" 2000, Synthpop
+
+
+
+### "Failure" 2001, Ambient
+
+
+
+### "Defiance" 2003, Synthpop
+
+01. Opened
+02. Drive
+03. Blindhammer
+04. Cocoon
+05. Document
+06. Fallen Down
+07. Horizon
+08. Light
+09. Maps Of Reality
+10. Lullaby
+
+### "Storm" 2005, Synthpop
+
+01. Human
+02. Skin
+03. Ground
+04. Let The Wind Erase Me
+05. Infinite
+06. Complacement
+07. You Haven't Earned It
+08. regret
+09. Apart
+10. 30kft
+
+### "Meta" 2007, Synthpop
+
+
+
+### "Compass" 2009, Synthpop
+
+
+
 
 ## Отношения с другими группами
 

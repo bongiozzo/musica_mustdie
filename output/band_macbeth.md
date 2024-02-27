@@ -1,10 +1,89 @@
 # Macbeth
 
-Дискография
-"Romantic Tragedy's Crescendo" 1998, Death Doom
-"Vanitas" 2002, Gothic
-"Malae Artes" 2005, Gothic
-"Superangelic Hate Bringers" 2007, Gothic
+
+
+## Дискография
+
+### "Romantic Tragedy's Crescendo" 1998, Death Doom
+
+A Gothic Overture
+Forever...
+The Dark Kiss Of My Angel
+Black Heaven
+The Twilight Melancholy
+Thy Mournful Lover
+Moonlight Caress
+Shadows Of Eden
+Sweet Endless Sleep
+
+
+
+Vittorio, vocals
+Cristina, vocals
+Alex, lead & acoustic guitar
+Fabrizio, drums & percussions
+Fabio, bass
+Luca, rythm guitar
+Andrea, synth piano & keyboards
+
+Recorded and mixed at Malibщ studios Milano, March 1998
+Released October 1st 1998 on Dragonheart records
+
+### "Vanitas" 2002, Gothic
+
+13 November
+Crepuscolaria (Agony in Red Minor)
+Lady Lily White
+Fables
+Aloisa
+El Diablo y la Luna
+Pure Treasure
+Green Orchestra (Sonata for Leaves & Trees)
+Romanzo Nero
+Haeresis Dea
+Hall of the Scarlets
+
+
+Andreas, vocals
+Morena, vocals
+Alex, lead & acoustic guitar
+Fabrizio, drums & percussions, backing vocals
+Marco, bass
+Luca, rythm guitar
+Andrea, acoustic piano & keyboards
+
+
+Recorded, mixed and mastered at Bips Studios, Milano, Italy 2000
+Released August 20th 2001 on Dragonheart records, in America on Scarecrow.
+
+
+
+### "Malae Artes" 2005, Gothic
+
+1. Nuda Veritas 01:43  
+2. Lifelong Hope 05:15  
+3. My Desdemona 05:31  
+4. Miss Murderess 04:12  
+5. How Can Heaven Love Me 03:11  
+6. Good Morning 04:08  
+7. Henceforth 04:28  
+8. Keep the Secret 03:58  
+9. Down-Hearted 04:53  
+10. Dead and Gone 05:21
+
+### "Superangelic Hate Bringers" 2007, Gothic
+
+1. Don't Pretend  
+2. To My Falling Star  
+3. Without You  
+4. Watch Us Die  
+5. Don't Include Me in Your Dreams  
+6. Veils  
+7. H.A.T.E.  
+8. Grey Skies  
+9. Break the Circle  
+10. (The World) In My Mind
+
 
 ## Отношения с другими группами
 

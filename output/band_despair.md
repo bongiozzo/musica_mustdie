@@ -1,9 +1,21 @@
 # Despair
 
-Дискография
-"History Of Hate" 1988, Thrash
-"Decay Of Humanity" 1990, Thrash
-"Beyond All Reason" 1992, Thrash
+
+
+## Дискография
+
+### "History Of Hate" 1988, Thrash
+
+
+
+### "Decay Of Humanity" 1990, Thrash
+
+
+
+### "Beyond All Reason" 1992, Thrash
+
+
+
 
 ## Отношения с другими группами
 

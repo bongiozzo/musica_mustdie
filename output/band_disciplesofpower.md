@@ -1,7 +1,20 @@
 # Disciples of Power
 
-Дискография
-"IN DUST WE TRUST" 2002, Death Metal
+Indipendent Canadian Metal
+
+## Дискография
+
+### "IN DUST WE TRUST" 2002, Death Metal
+
+THE CURSING OF WINTER
+TRIPWIRES
+ARMORED RING OF SKULL
+WIDOWS WEB
+PHARMACEUTICAL SUICIDE
+IN DUST WE TRUST
+DIMENSIONS OF THE DRAGON SKY
+WARTORN
+
 
 ## Отношения с другими группами
 

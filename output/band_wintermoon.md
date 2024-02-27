@@ -1,8 +1,25 @@
 # Wintermoon
 
-Дискография
-"Hellthrone Baphomet [EP]" 2006, Black Metal
-"Moonthrone Lucifer" 2010, Black Metal
+
+
+## Дискография
+
+### "Hellthrone Baphomet [EP]" 2006, Black Metal
+
+1. Bleedeing Thorns...Misty Skies 06:14
+2. Legion of Abyss 04:51
+3. Cosmic Seas in Darkness 05:26 
+4. Kas 06:12 
+
+### "Moonthrone Lucifer" 2010, Black Metal
+
+1. Dominus of the Black Mountains 04:44  
+2. Nocturnal Frostmoon Wolves 03:00  
+3. Ancient Woods of Belial 03:56  
+4. ...A Tear Into Venus 01:35  
+5. One With Satan 05:08  
+6. Hellthrone Baphometh 06:39 
+
 
 ## Отношения с другими группами
 

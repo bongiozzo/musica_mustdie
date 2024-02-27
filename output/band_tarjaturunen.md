@@ -1,17 +1,124 @@
 # Tarja Turunen
 
-Дискография
-"Yhden Enkelin Unelma" 2004, Metal
-"You Would Have Loved This" 2006, Metal
-"My Winter Storm" 2007, Metal
-"Falling Awake (single)" 2010, Metal
-"Until My Last Breath (single)" 2010, Metal
-"What Lies Beneath" 2010, Metal
-"Never Enough (Single)" 2013, Gothic
-"Colours in the Dark" 2013, Metal
-"Ave Maria - en Plein Air" 2015, Metal
-"The Brightest Void [EP]" 2016, Metal
-"The Shadow Self" 2016, Metal
+Voice of NIGHTWISH
+
+## Дискография
+
+### "Yhden Enkelin Unelma" 2004, Metal
+
+1. En Etsi Valtaa, Loistoa
+2. Kun Joulu On
+
+### "You Would Have Loved This" 2006, Metal
+
+1. You would have loved this (Radio version) – music & lyrics Cori Connors
+2. Walking in the air – music & lyrics Howard Blake
+3. You would have loved this (Single Version) – music & lyrics Cori Connors
+
+### "My Winter Storm" 2007, Metal
+
+
+
+### "Falling Awake (single)" 2010, Metal
+
+1. Falling Awake 
+2. The Good Die Young  
+
+
+Released exclusively as a 10-inch vinyl. Limited to 1,000 copies.
+
+The single version of "Falling Awake" is different from the album version. It
+features Jason Hook (Five Finger Death Punch) on the guitars.
+
+"The Good Die Young" is also a different version than the version featured on
+the Scorpion's album, "Sting In The Tail", with Tarja's vocals now more
+prominent overall. 
+
+### "Until My Last Breath (single)" 2010, Metal
+
+1. Until My Last Breath 03:51  
+2. If You Believe 04:15 
+
+
+### "What Lies Beneath" 2010, Metal
+
+1. Anteroom Of Death 04:41  
+2. Until My Last Breath 04:24  
+3. Dark Star 04:33  
+4. Underneath 05:27  
+5. Little Lies 04:37  
+6. Rivers Of Lust 04:24  
+7. In For A Kill 04:35  
+8. Falling Awake 05:14  
+9. The Archive Of Lost Dreams 04:49  
+10. Crimson Deep 07:35 
+
+
+
+Line-up:
+Tarja Turunen - Vocals, Piano
+Alex Scholpp - Guitars
+Marzi Nyman - Guitars
+Doug Wimbish - Bass
+Mike Terrana - Drums
+Christian Kretschmar - Keyboards, Hammond Organ
+Max Lilja - Cello
+
+Guest members:
+Phil Labonte - Vocals on "Dark Star"
+Toni Turunen - Vocals
+Timo Turunen - Vocals
+Joe Satriani - Guitars on "Falling Awake"
+Will Calhoun - Drums on "Crimson Deep"
+Van Canto on "Anteroom Of Death"
+Jyrki Lasonpalo, Pauline Fleming and Rйmi Moingeon - Violin (musicians from The
+Lahti Symphony Orchestra)
+The Slovak National Symphony Orchestra and Choir
+
+Recorded between February and July 2010.
+Recorded and produced by Tarja and mixed by Tim Palmer (Pearl Jam, The Cure,
+Robert Plant), Colin Richardson (Slipknot, Machine Head, Bullet For My
+Valentine) and Slamm Andrews.
+
+Exclusive US bonus track:
+08. Montaсas de Silencio
+
+The Deluxe edition includes a second CD:
+01. We Are (04:16)
+02. Naiad (07:19)
+03. Still Of The Night (Whitesnake Cover) (06:33)
+04. Tarja speaks about "What Lies Beneath" (Video) (13:49) 
+
+### "Never Enough (Single)" 2013, Gothic
+
+1. Never Enough 5:20
+
+### "Colours in the Dark" 2013, Metal
+
+
+
+### "Ave Maria - en Plein Air" 2015, Metal
+
+
+
+### "The Brightest Void [EP]" 2016, Metal
+
+
+
+### "The Shadow Self" 2016, Metal
+
+1. Innocence 
+2. Demons in You 
+3. No Bitter End 
+4. Love to Hate 
+5. Supremacy (Muse cover) 
+6. The Living End 
+7. Diva 
+8. Eagle Eye 
+9. Undertaker 
+10. Calling from the Wild 
+11. Too Many 
+
 
 ## Отношения с другими группами
 

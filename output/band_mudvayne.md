@@ -1,9 +1,78 @@
 # Mudvayne
 
-Дискография
-"Kill, I Oughtta" 1997, Nu Metal
-"L.D. 50" 2000, Nu Metal
-"The End Of All Things To Come" 2002, Nu Metal
+Nu-metal a-la Slipknot
+
+## Дискография
+
+### "Kill, I Oughtta" 1997, Nu Metal
+
+1. Poop Looser
+2. Seed 
+3. Cultivate 
+4. Some Assembly Required 
+5. I.D.I.O.T.
+6. Central Disposal
+7. Coal 
+8. Fear
+
+
+
+Kud - vocals
+Gurrg - guitars
+Ryknow - bass
+sPaG - drums
+
+### "L.D. 50" 2000, Nu Metal
+
+1. Monolith
+2. Dig 
+3. Internal Primates Forever 
+4. -1 
+5. Death Blooms 
+6. Golden Ratio 
+7. Cradle 
+8. Nothing To Gain
+9. Mutatis Mutandis 
+10. Everything And Nothing 
+11. Severed 
+12. Recombinant Resurgence 
+13. Prod 
+14. Pharmaecopia 
+15. Under My Skin 
+16. (k)Now F(orever) 
+17. Lethal Dosage
+
+
+
+Kud - vocals
+Gurrg - guitars
+Ryknow - bass
+sPaG - drums
+
+### "The End Of All Things To Come" 2002, Nu Metal
+
+1. Silenced
+2. Trapped In The Wake Of A Dream
+3. Not Falling
+4. (Per)Version Of A Truth
+5. Mercy, Severity
+6. World So Cold
+7. The Patient Mental
+8. Skrying
+9. Solve Et Coagula
+10. Shadow Of A Man
+11. 12:97:24:99
+12. The End Of All Things To Come
+13. A Key To Nothing
+
+
+
+
+Kud - vocals
+Gurrg - guitars
+Ryknow - bass
+sPaG - drums
+
 
 ## Отношения с другими группами
 

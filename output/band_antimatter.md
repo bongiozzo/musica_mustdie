@@ -1,10 +1,87 @@
 # Antimatter
 
-Дискография
-"Saviour" 2000, Metal
-"Lights Out" 2003, Metal
-"Planetary Confinement" 2005, Gothic
-"Leaving Eden" 2006, Gothic
+Project of D. Patterson (ex-Anathema)
+
+## Дискография
+
+### "Saviour" 2000, Metal
+
+1. Saviour
+2. Holocaust
+3. Over Your Shoulder
+4. Psalms
+5. God Is Coming
+6. Angelic
+7. Flowers
+8. The Last Laugh
+9. Going Nowhere
+
+
+
+duncan patterson 
+michael moss 
+vocal guests: 
+michelle richfield 
+hayley windsor  
+
+recorded at academy studios late 2000 
+produced by antimatter & mags 
+engineered by mags 
+assisted by brian moss 
+sampling by brian moss & les smith 
+lead guitar on going nowhere by mags 
+artwork by mark kelson for icon media 
+all songs by d.patterson & m.moss 
+
+
+
+### "Lights Out" 2003, Metal
+
+1. Lights Out
+2. Everything You Know Is Wrong
+3. The Art Of A Soft Landing
+4. Expire
+5. In Stone
+6. Reality Clash
+7. Dream
+8. Terminal
+
+
+
+All instrumentation by Duncan Patterson and Mick Moss
+
+Voices
+Mick Moss (1,2,3,5,6)
+Hayley Windsor (1,2,3)
+Michelle Richfield (4,5,7)
+Duncan Patterson (1)
+
+Additional percussion by Jamie Cavanagh and Antimatter
+
+Recorded at Sun Studios, Dublin, January 2003
+Produced by Antimatter and Stefano Soffia
+Engineered and mixed by Stefano Soffia, assisted by Jamie Cavanagh
+Mastered by Fergal Davis
+Artwork layout and design by Adrian Owens
+Cover art by Duncan Patterson
+
+
+### "Planetary Confinement" 2005, Gothic
+
+Planetary Confinement
+Epitaph
+Line Of Fire
+The Weight Of The World
+Relapse
+Legions
+A Portrait Of The Young Man As An Artist
+Mr White
+Eternity pt24
+
+### "Leaving Eden" 2006, Gothic
+
+
+
 
 ## Отношения с другими группами
 

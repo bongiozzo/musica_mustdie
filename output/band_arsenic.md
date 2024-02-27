@@ -1,7 +1,26 @@
 # Arsenic
 
-Дискография
-"Seeds of Darkness [compilation]" 2006, Thrash
+
+
+## Дискография
+
+### "Seeds of Darkness [compilation]" 2006, Thrash
+
+1. Angeldust	 
+2. The House That Bled To Death	 
+3. Awaken To Evil	 
+4. Hellish Torment	 
+5. Hellslayer	 
+6. First Blood	 
+7. Warlock's Doom	 
+8. Hail To The Dead	 
+9. Souls Lie Screaming	 
+10. Diabolical Kingdoms	 
+11. Atheist Nations	 
+12. Black September Morning 
+13. Hallucinations	 
+14. Harlot Earth
+
 
 ## Отношения с другими группами
 

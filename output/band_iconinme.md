@@ -1,8 +1,38 @@
 # Icon In Me
 
-Дискография
-"Human Museum" 2009, Metalcore
-"Head Break Solution" 2011, Metalcore
+
+
+## Дискография
+
+### "Human Museum" 2009, Metalcore
+
+1. Dislocated 05:09  
+2. That Day, that Sorrow 03:25  
+3. End of File 04:15  
+4. Empty Hands 06:02  
+5. Moments 04:14  
+6. Blood Ritual 02:31  
+7. To the End 04:55  
+8. In Memorium 01:13  
+9. The Worthless King 04:54  
+10. Turn the Dead On 04:40  
+11. Avoiding the Pain 05:24 
+
+### "Head Break Solution" 2011, Metalcore
+
+Suicide World / Intro 
+Wasted Ways 
+Face It 
+The Quest 
+Un-slaved 
+Lost For Nothing 
+Flood Kills 
+Nuclear Drama 
+Tired And Broken 
+Through The Sights 
+Aspects Of The Unknown 
+Solid Child 
+
 
 ## Отношения с другими группами
 

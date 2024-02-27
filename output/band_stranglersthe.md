@@ -1,7 +1,22 @@
 # Stranglers, The
 
-Дискография
-"Coup De Grace" 1998, Rock
+
+
+## Дискография
+
+### "Coup De Grace" 1998, Rock
+
+God Is Good 
+You Don't Think That What You've Done Is Wrong 
+Tonight 
+Jump Over My Shadow 
+Miss You 
+Coup De Grace (S-O-S) 
+In The End 
+No Reason 
+Known Only Unto God 
+Light
+
 
 ## Отношения с другими группами
 

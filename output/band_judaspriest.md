@@ -1,26 +1,396 @@
 # Judas Priest
 
-Дискография
-"Rocka Rolla" 1974, Hard Rock
-"Sad Wings of Destiny" 1976, Heavy Metal
-"Sin After Sin" 1977, Heavy Metal
-"Killing Machine" 1978, Heavy Metal
-"Stained Class" 1978, Heavy Metal
-"British Steel" 1980, Heavy Metal
-"Point of Entry" 1981, Hard Rock
-"Screaming for Vengeance" 1982, Heavy Metal
-"Defenders of Faith" 1984, Heavy Metal
-"Turbo" 1986, Heavy Metal
-"Ram It Down" 1988, Heavy Metal
-"Painkiller" 1990, Heavy Metal
-"Metal Works '73-'93" 1993, Heavy Metal
-"Jugulator" 1997, Heavy Metal
-"Demolition" 2001, Heavy Metal
-"Live In London" 2001, Heavy Metal
-"Angels Of Retribution" 2005, Heavy Metal
-"Nostradamus" 2008, Heavy Metal
-"Redeemer of Souls (single)" 2014, Heavy Metal
-"Redeemer of Souls" 2014, Heavy Metal
+Greatest British Heavy Metal band
+
+## Дискография
+
+### "Rocka Rolla" 1974, Hard Rock
+
+1. One For The Road
+2. Rocka Rolla
+3. Winter
+4. Deep Freeze
+5. Winter Retreat
+6. Cheater
+7. Never Satisfied
+8. Run Of The Mill
+9. Dying To Meet You
+10. Caviar And Menths
+
+
+K.K. DOWNING - GUITARS
+GLENN TIPTON - GUITARS, SYNTHESIZERS, SECOND VOCALS
+IAN HILL - BASS GUITAR
+BOB HALFORD - VOCALS, HARMONICA
+JOHN HINCH - DRUMS
+Produced by Roger Bain
+
+### "Sad Wings of Destiny" 1976, Heavy Metal
+
+1. Victim Of Changes
+2. The Ripper
+3. Dreamer Deceiver
+4. Deceiver
+5. Prelude
+6. Tyrant
+7. Genocide
+8. Epitaph
+9. Island Of Domination
+
+K.K. DOWNING - GUITARS
+GLENN TIPTON - GUITARS, PIANO
+ROBERT HALFORD - VOCALS
+IAN HILL - BASS GUITAR
+ALAN MOORE - DRUMS
+Produced by Jeffrey Calvert, Max West & Judas Priest
+
+### "Sin After Sin" 1977, Heavy Metal
+
+1.  Sinner
+2.  Diamonds And Rust
+3.  Starbreaker
+4.  Last Rose Of Summer
+5.  Let Us Prey
+6.  Call For The Priest / Raw Deal
+7.  Here Come Tears
+8.  Dissident Agressor
+
+Robert Halford - Lead Vocals
+Glenn Tipton - Lead Guitars
+K.K.Downing - Lead Guitars
+Ian Hill - Bass
+
+(P)c 1977
+
+### "Killing Machine" 1978, Heavy Metal
+
+1.  Delivering The Goods
+2.  Rock Forever
+3.  Evening Star
+4.  Hell Bent For Leather
+5.  Take On The World
+6.  Burnin' Up
+7.  Killing Machine
+8.  Running Wild
+9.  Before The Dawn
+10.  Evil Fantasies
+
+Robert Halford - Lead Vocals
+Glenn Tipton - Lead Guitars
+K.K.Downing - Lead Guitars
+Ian Hill - Bass
+Les Binks - Drums
+
+(P)c 1978
+
+### "Stained Class" 1978, Heavy Metal
+
+1.  Exciter
+2.  White Heat, Red Hot
+3.  Better By You, Better Than Me
+4.  Stained Glass
+5.  Invader
+6.  Saints In Hell
+7.  Savage
+8.  Beyond The Realms Of Death
+9.  Heroes End
+
+(P)c 1978
+
+### "British Steel" 1980, Heavy Metal
+
+1.  Breaking The Law
+2.  Rapid Fire
+3.  Metal Gods
+4.  Grinder
+5.  United
+6.  Living After Midnight
+7.  Don't Have To Be Old To Be Wise
+8.  The Rage
+9.  Steeler
+
+(P)c 1980
+
+### "Point of Entry" 1981, Hard Rock
+
+1. Heading Out To The Highway
+2. Don't Go
+3. Hot Rockin'
+4. Turning Circles
+5. Desert Plains
+6. Solar Angels
+7. You Say Yes
+8. All The Way
+9. Troubleshooter
+10. On The Run
+
+### "Screaming for Vengeance" 1982, Heavy Metal
+
+1. The Hellion
+2. Electric Eye
+3. Riding On The Wind
+4. Bloodstone
+5. (Take These) Chains
+6. Pain & Pleasure
+7. Screaming For Vengeance
+8. You've Got Another Thing Comin'
+9. Fever
+10.Devil's Child
+
+ Rob Halford - Vocals
+ Kenneth K.Downing - Guitars
+ Glenn Tipton - Guitars
+ Ian Hill - Bass
+ Dave Holland - Drums
+
+Produced By Tom Allom.
+
+(P)&(C) 1982 CBS Records
+
+### "Defenders of Faith" 1984, Heavy Metal
+
+1. Freewheel Burning
+2. Jawbreaker
+3. Rock Hard Ride Free
+4. The Sentinel
+5. Love Bites
+6. Eat Me Alive
+7. Some Heads Are Gonna Roll
+8. Night Comes Down
+9. Heavy Duty
+10.Defenders Of Faith
+
+ Rob Halford - Vocals
+ Kenneth K.Downing - Guitars
+ Glenn Tipton - Guitars
+ Ian Hill - Bass
+ Dave Holland - Drums
+
+Produced By Tom Allom.
+
+(p)&(c) 1984 CBS Records
+
+### "Turbo" 1986, Heavy Metal
+
+1. Turbo Lover
+2. Locked In
+3. Private Property
+4. Parental Guidance
+5. Rock You All Around The World
+6. Out In The Cold
+7. Wild Nights, Hot And Crazy Days
+8. Hot For Love
+9. Reckless
+
+ Rob Halford - Vocals
+ Kenneth K.Downing - Guitars
+ Glenn Tipton - Guitars
+ Ian Hill - Bass
+ Dave Holland - Drums
+
+Produced By Tom Allom.
+
+(P)&(C) 1986 CBS Records
+
+### "Ram It Down" 1988, Heavy Metal
+
+1. Ram It Down
+2. Heavy Metal
+3. Love Zone
+4. Come & Get It
+5. Hard As Iron
+6. Blood Red Skies
+7. I'm A Rocker
+8. Johnny B.Goode
+9. Love You To Death
+10.Monsters Of Rock
+
+Rob Halford - Vocals
+Kenneth K.Downing - Guitars
+Glenn Tipton - Guitars
+Ian Hill - Bass
+Dave Holland - Drums
+
+Produced By Tom Allom.
+
+(P)&(C) 1988 CBS Records
+
+### "Painkiller" 1990, Heavy Metal
+
+1. Painkiller
+2. Hell Patrol
+3. All Guns Blazing
+4. Leather Rebel
+5. Metal Meltdown
+6. Night Crawler
+7. Between The Hammer & Anvil
+8. A Touch Of Evil
+9. Battle Hymn
+10.One Shoot At Glory
+
+ Rob Halford - Vocals
+ Kenneth K.Downing - Guitars
+ Glenn Tipton - Guitars
+ Ian Hill - Bass
+ Scott Travis - Drums
+
+(p)&(c) 1990 CBS Records
+
+### "Metal Works '73-'93" 1993, Heavy Metal
+
+1. The Hellion
+2. Electric Eye
+3. Victim Of Changes
+4. Painkiller
+5. Eat Me Alive
+6. Devil's Child
+7. Dissident Aggressor
+8. Delivering The Goods
+9. Exciter
+10. Breaking The Law
+11. Hell Bent For Leather
+12. Blood Red Skies
+13. Metal Gods
+14. Before The Dawn
+15. Turbo Lover
+16. Ram It Down
+17. Metal Meltdown
+18. Screaming For Vengeance
+19. You've Got Another Thing Comin'
+20. Beyond The Realms Of Death
+21. Solar Angels
+22. Bloodstone
+23. Desert Plains
+24. Wild Nights, Hot & Crazy Days
+25. Heading Out To The Highway
+26. Living After Midnight
+27. A Touch Of Evil
+28. The Rage
+29. Night Comes Down
+30. Sinner
+31. Freewheel Burning
+32. Night Crawler
+
+
+
+
+### "Jugulator" 1997, Heavy Metal
+
+1. Jugulator
+2. Blood Stained
+3. Burn In Hell
+4. Abductors
+5. Bullet Train
+6. Dead Meat
+7. Death Row
+8. Decapitate
+9. Brian Dead
+10. Cathedral Spires
+
+Produced by Glenn Tipton, K.K. Downing & Sean Lynch
+All Songs Written And arranged by
+Glenn Tipton & K.K. Downing
+
+'Ripper' Owens - Vocals
+Glenn Tipton - Guitars
+K.K. Dowing - Guitars
+Ian Hill - Bass
+Scott Travis - Drums
+
+(p)1997 Priest Music LTD.
+
+### "Demolition" 2001, Heavy Metal
+
+1. Machine Man
+2. One On One
+3. Hell Is Home
+4. Feed On Me
+5. Jekyll And Hyde
+6. Devil Digger
+7. Close To You
+8. Subterfuge
+9. Metal Messiah
+10. Cyberface
+11. Bloodsuckers
+12. In Between
+13. Lost And Found
+
+### "Live In London" 2001, Heavy Metal
+
+
+
+### "Angels Of Retribution" 2005, Heavy Metal
+
+1. Judas Rising 04:13 
+2. Deal With the Devil 03:54
+3. Revolution 04:42 
+4. Worth Fighting For 04:18 
+5. Demonizer 03:46
+6. Wheels of Fire 03:46 
+7. Angel 04:24
+8. Hellrider 06:23 
+9. Eulogy 02:52 
+10. Lochness 13:29
+
+### "Nostradamus" 2008, Heavy Metal
+
+1. Dawn Of Creation   
+2. Prophecy   
+3. Awakening   
+4. Revelations   
+5. The Four Horsemen   
+6. War   
+7. Sands Of Time   
+8. Pestilence And Plague   
+9. Death   
+10. Peace   
+11. Conquest   
+12. Lost Love   
+13. Persecution   
+14. Solitude   
+15. Exiled   
+16. Alone   
+17. Shadows In The Flame   
+18. Visions   
+19. Hope   
+20. New Beginnings   
+21. Calm Before The Storm   
+22. Nostradamus   
+23. Future Of Mankind 
+
+
+Concept album about life of Nostradamus.
+
+Tracks 1, 3, 7, 10, 14, 17,19, 21 are intros 
+
+
+### "Redeemer of Souls (single)" 2014, Heavy Metal
+
+1. Redeemer of Souls  04:00
+
+### "Redeemer of Souls" 2014, Heavy Metal
+
+1. Dragonaut  04:26    
+2. Redeemer of Souls  03:58 
+3. Halls of Valhalla      
+4. Sword of Damocles      
+5. March of the Damned  03:56    
+6. Down in Flames    
+7. Hell & Back      
+8. Cold Blooded      
+9. Metalizer   
+10. Crossfire    
+11. Secrets of the Dead    
+12. Battle Cry     
+13. Beginning of the End  
+
+Deluxe edition bonus CD track list:
+1. Snakebite
+2. Tears of Blood
+3. Creatures
+4. Bring It On
+5. Never Forget 
+
 
 ## Отношения с другими группами
 

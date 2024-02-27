@@ -1,7 +1,35 @@
 # Serpent
 
-Дискография
-"In The Garden Of Serpent" 1996, Death Doom
+Ex-Entombed, Therion, Carbonized
+
+## Дискография
+
+### "In The Garden Of Serpent" 1996, Death Doom
+
+1. Fly With The Flow
+2. Save From Ourselves
+3. Stoned The Dawn
+4. Magic
+5. Lost Dreams
+6. Frozen Cosmos
+7. In Memoriam
+8. Drown
+9. Corpse City
+
+All songs written by SERPENT
+Produced by SERPENT
+Engineered by Anders Paulsson
+Recorded and mixed at Deep Studio
+Stockholm, Sweden.
+
+Ulf Samuelsson - Rhythm Guitar
+Johan Lundell - Lead Guitar
+Lars Rosenberg - Bass
+Piotr Wawrzenjuk - Vocals, Percussion
+Per Karlsson - Drums
+
+(p)(e) 1996 RADIATION Records
+
 
 ## Отношения с другими группами
 

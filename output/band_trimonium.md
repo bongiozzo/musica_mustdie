@@ -1,8 +1,23 @@
 # Trimonium
 
-Дискография
-"Of Warriors And Heroism" 2001, Black Metal
-"Blow The Horns" 2003, Black Metal
+
+
+## Дискография
+
+### "Of Warriors And Heroism" 2001, Black Metal
+
+1. Black Mark 05:49  
+2. The Battue 07:00  
+3. Dolch 04:28  
+4. When The Ravens Fly 05:45  
+5. Gebote Des Sieges 03:04  
+6. Rape My Soul 03:33  
+7. The Prophecy Of The Gyula 11:23
+
+### "Blow The Horns" 2003, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

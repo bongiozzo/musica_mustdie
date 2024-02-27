@@ -1,12 +1,66 @@
 # Mind Eclipse
 
-Дискография
-"-" , Death Metal
-"demo" 1999, Death Metal
-"In The Light Of Eclipse Coming" 2000, Death Metal
-"Chaos Chronicles" 2002, Death Metal
-"Utopia - Formula Of God" 2004, Death Metal
-"Relict" 2007, Death Metal
+
+
+## Дискография
+
+### "-" , Death Metal
+
+
+
+### "demo" 1999, Death Metal
+
+1. Too Dead to Live 
+2. To The Object Of My Adoration 
+3. Mind Eclipse 
+4. The Incarnation Of My Sorrow 
+5. Молитва Перуну 
+6*. Bathory: Woman Of Dark Desires 
+7*. Ablaze My Sorrow: My Last Journey 
+8*. Cradle Of Filth: Heaven Torn Asunder 
+* - bonus tracks 
+
+
+### "In The Light Of Eclipse Coming" 2000, Death Metal
+
+1. Intro: In Expectation Of ...
+2. Live In Sodom
+3. Too Dead To Live
+4. Mind Eclipse
+5. For Those Who Born Under The Chaos Device
+6. Of Queen That Enthroned In Haunted Citadel Of Syberia
+7. The Incarnation Of My Sorrow
+8. Immortal Images & Voices Of Satan's Sorrow
+9. Farewell
+10. Outro: Fall Into Emptiness
+
+
+### "Chaos Chronicles" 2002, Death Metal
+
+1. Dementia
+2. Looking The Chaos Within
+3. Reckoning Infinity
+4. Baltazar's Feast
+5. Martyr Of The Sky
+6. The Unimated
+7. Ethereal Traveler
+8. Legacy Of Cain
+
+### "Utopia - Formula Of God" 2004, Death Metal
+
+
+
+### "Relict" 2007, Death Metal
+
+1. Relict   
+2. We Are Burning   
+3. Dissention   
+4. True Sight Heresy   
+5. Path Of A Damned   
+6. Beyond   
+7. Create To Destroy   
+8. Abyss Of The Soul 
+
 
 ## Отношения с другими группами
 

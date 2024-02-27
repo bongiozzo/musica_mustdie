@@ -1,7 +1,28 @@
 # Parental Advisory
 
-Дискография
-"Ghetto Street Funk" 1993, Rap Metal
+
+
+## Дискография
+
+### "Ghetto Street Funk" 1993, Rap Metal
+
+1.  Stricktly Buther
+2.  Da Boom
+3.  Life Line
+4.  Bullshit
+5.  Maniac
+6.  3B
+7.  Sex-N-Da-Morning
+8.  Ghetto Break
+9.  Ghetto Headhunta
+10.Let Loose The Lingo
+11.Manifest
+12.Milk
+13.Re Yes Not Fall
+14.Da End
+
+(P)&c 1993
+
 
 ## Отношения с другими группами
 

@@ -1,11 +1,42 @@
 # Stick To Your Guns
 
-Дискография
-"Compassion Without Compromise" 2003, Hardcore
-"For What It's Worth" 2005, Hardcore
-"Comes From The Heart" 2005, Hardcore
-"The Hope Division" 2010, Hardcore
-"Diamond" 2012, Hardcore
+
+
+## Дискография
+
+### "Compassion Without Compromise" 2003, Hardcore
+
+
+
+### "For What It's Worth" 2005, Hardcore
+
+01. For What Its Worth
+02. Poor Mans Poor Sport
+03. Colorblind
+04. Compassion, Without Compromise
+05. For The Kids, By The Kids
+06. A Bage A Brand
+07. This Is More
+08. Fire With Fire
+09. Our Demise
+10. All Time Low
+11. Fashion Or Fascist
+12. There Is No I In Team
+13. Industry Of Infamy
+14. This Is Where My Heart Lies
+
+### "Comes From The Heart" 2005, Hardcore
+
+
+
+### "The Hope Division" 2010, Hardcore
+
+
+
+### "Diamond" 2012, Hardcore
+
+
+
 
 ## Отношения с другими группами
 

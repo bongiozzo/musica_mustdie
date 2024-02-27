@@ -1,8 +1,37 @@
 # Chain Reaction
 
-Дискография
-"Vicious Circle" 2007, Thrash
-"Cutthroat Melodies" 2009, Thrash
+
+
+## Дискография
+
+### "Vicious Circle" 2007, Thrash
+
+1. Intro	 
+2. Everlasting Fear	 
+3. Worlds of War	 
+4. Values	 
+5. Inner Struggle	 
+6. Slave	 
+7. Disbelief	 
+8. Phantom Life	 
+9. Stark Reality	 
+10. Freedom	 
+11. Strong Words
+
+### "Cutthroat Melodies" 2009, Thrash
+
+1. Twinge	 
+2. Prime Integers	 
+3. God Lives Too Long	 
+4. Elder Thrived	 
+5. Insomnia Revised / H. B. Woodrose	 
+6. Class "A" Prisoner	 
+7. Projecting. AM 
+8. No logo	 
+9. When Road 'n Booze Collide	 
+10. Intra Vires	 
+11. Even if
+
 
 ## Отношения с другими группами
 

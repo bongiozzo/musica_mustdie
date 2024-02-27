@@ -1,7 +1,21 @@
 # Fury I Hide, The
 
-Дискография
-"Innerkiller" 2010, Thrash
+thrash-metal from Mexico
+
+## Дискография
+
+### "Innerkiller" 2010, Thrash
+
+1. Rebelion (Intro)
+2. Chaoslord
+2. Fuck the Boss
+5. Sucubo
+6. "La Resistencia"
+7. t4v
+8. strike of evil
+9. The ALPHA furious
+10. The fallen COMMANDER
+
 
 ## Отношения с другими группами
 

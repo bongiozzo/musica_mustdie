@@ -1,28 +1,376 @@
 # Kiss
 
-Дискография
-"Kiss" 1974, Hard Rock
-"Hotter Than Hell" 1974, Hard Rock
-"Dressed To Kill" 1975, Hard Rock
-"Alive!" 1975, Hard Rock
-"Destroyer" 1976, Hard Rock
-"Rock And Roll Over" 1976, Hard Rock
-"Love Gun" 1977, Hard Rock
-"Alive II" 1977, Hard Rock
-"Double Platinum" 1978, Hard Rock
-"Dynasty" 1979, Hard Rock
-"Unmasked" 1980, Hard Rock
-"Creatures Of The Night" 1982, Hard Rock
-"Lick It Up" 1983, Hard Rock
-"Animalize" 1984, Hard Rock
-"Asylum" 1985, Hard Rock
-"Crazy Nights" 1987, Hard Rock
-"Smashes, Thrashes & Hits (Compilation)" 1988, Hard Rock
-"Hot In The Shade" 1989, Hard Rock
-"Revenge" 1992, Hard Rock
-"Alive III" 1993, Hard Rock
-"Psycho Circus" 1998, Hard Rock
-"Sonic Boom" 2009, Hard Rock
+Kings Of Hard Rock
+
+## Дискография
+
+### "Kiss" 1974, Hard Rock
+
+1. Strutter
+2. Nothin' To Lose
+3. Firehouse
+4. Cold Gin
+5. Let Me Know
+6. Kissin' Time
+7. Deuce
+8. Love Theme From Kiss
+9. 100.000 Years
+10. Black Diamond 
+
+1974 Casablanca Records Inc.
+Produced by Kenny Kerner & Richie Wise 
+
+### "Hotter Than Hell" 1974, Hard Rock
+
+1. Got To Choose
+2. Parasite
+3. Goin' Blind
+4. Hotter Than Hell
+5. Let Me Go, Rock 'N Roll
+6. All The Way
+7. Watchin' You
+8. Mainline
+9. Comin' Home
+10. Strange Ways 
+
+
+1974 Casablanca Records Inc.
+Produced by Kenny Kerner & Richie Wise 
+
+### "Dressed To Kill" 1975, Hard Rock
+
+1. Room Service
+2. Two Timer
+3. Ladies In Waiting
+4. Getaway
+5. Rock Bottom
+6. C'mon And Love Me
+7. Anything For My Baby
+8. She
+9. Love Her All I Can
+10. Rock And Roll All Nite 
+
+1975 Casablanca Records Inc.
+Produced by Neil Bogart and KISS 
+
+### "Alive!" 1975, Hard Rock
+
+DISC ONE
+1. Deuce
+2. Strutter
+3. Got To Choose
+4. Hotter Than Hell
+5. Firehouse
+6. Nothin' To Lose
+7. C'mon And Love Me
+8. Parasite
+9. She
+
+DISC TWO
+1. Watchin' You
+2. 100,000 Years
+3. Black Diamond
+4. Rock Bottom
+5. Cold Gin
+6. Rock And Roll All Nite
+7. Let Me Go, Rock 'N Roll 
+
+
+1975 Casablanca Records Inc.
+Produced by Eddie Kramer 
+
+### "Destroyer" 1976, Hard Rock
+
+1. Detroit Rock City
+2. King Of The Night Time World
+3. God Of Thunder
+4. Great Expectations
+5. Flaming Youth
+6. Sweet Pain
+7. Shout It Out Loud
+8. Beth
+9. Do You Love Me 
+
+
+1976 Casablanca Records Inc.
+Produced by Bob Ezrin 
+
+### "Rock And Roll Over" 1976, Hard Rock
+
+1. I Want You
+2. Take Me
+3. Calling Dr.Love
+4. Ladies Room
+5. Baby Driver
+6. Love 'Em And Leave 'Em
+7. Mr.Speed
+8. See You In Your Dreams
+9. Hard Luck Woman
+10. Makin' Love 
+
+
+
+1976 Casablanca Records Inc.
+Produced by Eddie Kramer 
+
+### "Love Gun" 1977, Hard Rock
+
+1. I Stole Your Love
+2. Christine Sixteen
+3. Got Love For Sale
+4. Shock Me
+5. Tomorrow And Tonight
+6. Love Gun
+7. Hooligan
+8. Almost Human
+9. Plater Caster
+10. Then She Kissed Me 
+
+
+1977 Casablanca Records Inc.
+Produced by KISS and Eddie Kramer 
+
+### "Alive II" 1977, Hard Rock
+
+DISC ONE
+1. Detroit Rock City
+2. King Of The Night Time World
+3. Ladies Room
+4. Makin' Love
+5. Love Gun
+6. Calling Dr.Love
+7. Christine Sixteen
+8. Shock Me
+9. Hard Luck Woman
+10. Tomorrow And Tonight 
+DISC TWO
+1. I Stole Your Love
+2. Beth
+3. God Of Thunder
+4. I Want You
+5. Shout It Out Loud
+6. All American Man
+7. Rockin' In The USA
+8. Larger Than Life
+9. Rocket Ride
+10. Any Way You Want It 
+
+
+1977 Casablanca Records Inc.
+Produced by KISS and Eddie Kramer 
+
+### "Double Platinum" 1978, Hard Rock
+
+1. Strutter'78
+2. Do You Love Me
+3. Hard Luck Woman
+4. Calling Dr.Love
+5. Let Me Go, Rock 'N Roll
+6. Love Gun
+7. God Of Thunder
+8. Firehouse
+9. Hotter Than Hell
+10. I Want You
+11. Deuce
+12. 100,000 Years
+13. Detroit Rock City
+14. She
+15. Rock And Roll All Nite
+16. Beth
+17. Makin' Love
+18. C'mon And Love Me
+19. Cold Gin
+20. Black Diamond 
+
+1978 Casablanca Records Inc.
+Produced by KISS and Sean Delaney 
+
+### "Dynasty" 1979, Hard Rock
+
+1. I Was Made For Lovin' You
+2. 2,000 Man
+3. Sure Know Something
+4. Dirty Livin'
+5. Charisma
+6. Magic Touch
+7. Hard Times
+8. X-Ray Eyes
+9. Save Your Love 
+
+1979 Casablanca Records Inc.
+Produced by Vini Poncia 
+
+### "Unmasked" 1980, Hard Rock
+
+1. Is That You?
+2. Shandi
+3. Talk To Me
+4. Naked City
+5. What Makes The World Go 'Round
+6. Tomorrow
+7. Two Sides Of The Coin
+8. She's So European
+9. Easy As It Seems
+10. Torpedo Girl
+11. You're All That I Want 
+
+1980 Casablanca Records Inc.
+Produced by Vini Poncia 
+
+### "Creatures Of The Night" 1982, Hard Rock
+
+1. Creatures Of The Night
+2. Killer
+3. Keep Me Comin'
+4. Rock And Roll Hell
+5. Danger
+6. I Love It Loud
+7. I Still Love You
+8. Saint And Sinner
+9. War Machine 
+
+
+1982 PolyGram Records, Inc.
+Produced by Michael James Jackson, Paul Stanley and Gene Simmons 
+
+### "Lick It Up" 1983, Hard Rock
+
+1. Exciter
+2. Not For The Innocent
+3. Lick It Up
+4. Young And Wasted
+5. Gimme More
+6. All Hell's Breakin Loose
+7. A Million To One
+8. Fits Like A Glove
+9. Dance All Over Your Face
+10. And On The 8th Day 
+
+
+1983 PolyGram Records, Inc.
+Produced by Michael James Jackson,Gene Simmons & Paul Stanley 
+
+### "Animalize" 1984, Hard Rock
+
+1. I've Had Enough (Into The Fire)
+2. Heaven's On Fire
+3. Burn Bitch Burn
+4. Get All You Can Take
+5. Lonely Is The Hunter
+6. Under The Gun
+7. Thrills In The Night
+8. While The City Sleeps
+9. Murder In High Heels 
+
+
+1984 PolyGram Records, Inc.
+Produced by Paul Stanley.
+Associate Producer Gene Simmons. 
+
+### "Asylum" 1985, Hard Rock
+
+1. King Of The Mountain
+2. Any Way You Slice It
+3. Who Wants To Be Lonely
+4. Trial By Fire
+5. I'm Alive
+6. Love's A Deadly Weapon
+7. Tears Are Falling
+8. Secretly Cruel
+9. Radar Of Love
+10. Uh! All Night 
+
+
+1985 PolyGram Records, Inc.
+Produced by Paul Stanley and Gene Simmons. 
+
+### "Crazy Nights" 1987, Hard Rock
+
+1. Crazy Crazy Nights
+2. I'll Fight Hell To Hold You
+3. Bang Bang You
+4. No, No, No
+5. Hell Or High Water
+6. My Way
+7. When Your Walls Come Down
+8. Reason To Live
+9. Good Girl Gone Bad
+10. Turn On The Night
+11. Thief In The Night 
+
+
+1987 PolyGram Records, Inc.
+Produced by Ron Nevison. 
+
+### "Smashes, Thrashes & Hits (Compilation)" 1988, Hard Rock
+
+
+
+### "Hot In The Shade" 1989, Hard Rock
+
+1. Rise To It
+2. Betrayed
+3. Hide Your Heart
+4. Prisoner Of Love
+5. Read My Body
+6. Love's A Slap In The Face
+7. Forever
+8. Silver Spoon
+9. Cadillac Dreams
+10. King Of Hearts
+11. The Street Giveth And The Street Taketh Away
+12. You Love Me To Hate You
+13. Somewhere Between Heaven And Hell
+14. Little Caesar
+15. Boomerang 
+
+
+1989 PolyGram Records, Inc.
+Produced by Gene Simmons and Paul Stanley 
+
+### "Revenge" 1992, Hard Rock
+
+1. Unholy
+2. Take It Off
+3. Tough Love
+4. Spit
+5. God Gave Rock 'N' Roll To You II
+6. Domino
+7. Heart Of Chrome
+8. Thou Shalt Not
+9. Every Time I Look At You
+10. Paralized
+11. I Just Wanna
+12. Carr Jam 1981 
+
+
+1992 PolyGram Records, Inc.
+Produced by Bob Ezrin 
+
+### "Alive III" 1993, Hard Rock
+
+
+
+### "Psycho Circus" 1998, Hard Rock
+
+1. Psycho Circus
+2. Within
+3. I Pledge Allegiance To The State Of Rock' N' Roll
+4. Into The Void
+5. We Are One
+6. You Wanted The Best
+7. Raise Your Glasses
+8. I Finally Found My Way
+9. Dreamin'
+10. Journey of 1,000 Years 
+
+
+1998 PolyGram Records, Inc. 
+
+### "Sonic Boom" 2009, Hard Rock
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,9 +1,30 @@
 # Disgorge (USA)
 
-Дискография
-"She Lay Gutted" 1999, Death Metal
-"Consume the Forsaken" 2001, Death Metal
-"Paralells of Infinite Torture" 2005, Death Metal
+sick and crushing brutal death from California
+
+## Дискография
+
+### "She Lay Gutted" 1999, Death Metal
+
+
+
+### "Consume the Forsaken" 2001, Death Metal
+
+
+
+### "Paralells of Infinite Torture" 2005, Death Metal
+
+1. Revealed in Obscurity
+2. Enthroned Abominations
+3. Atonement
+4. Abhorrent Desecration of thee Iniquity
+5. Forgotten Scriptures
+6. Descending upon Convulsive Devourments
+7. Condemned to Sufferance
+8. Parallels of Infinite Torture
+9. Asphyxiation of thee Oppressed
+10. Ominous Sigils of Ungodly Ruins
+
 
 ## Отношения с другими группами
 

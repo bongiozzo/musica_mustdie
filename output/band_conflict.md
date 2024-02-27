@@ -1,8 +1,17 @@
 # Conflict
 
-Дискография
-"Прототип" 2009, Industrial
-"Transform into a Human" 2014, Industrial
+
+
+## Дискография
+
+### "Прототип" 2009, Industrial
+
+
+
+### "Transform into a Human" 2014, Industrial
+
+
+
 
 ## Отношения с другими группами
 

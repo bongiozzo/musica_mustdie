@@ -1,10 +1,61 @@
 # Barren Earth
 
-Дискография
-"Our Twilight (EP)" 2009, Melodic Death Metal
-"Curse Of The Red River" 2010, Melodic Death Metal
-"The Devil's Resolve" 2012, Melodic Death Metal
-"On Lonely Towers" 2015, Melodic Death Metal
+
+
+## Дискография
+
+### "Our Twilight (EP)" 2009, Melodic Death Metal
+
+1. Our Twilight (Edit)  04:25   
+2. Jewel  05:36   
+3. Flame of Serenity  05:35   
+4. Floodred  06:50 
+
+
+### "Curse Of The Red River" 2010, Melodic Death Metal
+
+1. The Curse of the Red River  07:52  
+2. Our Twilight  05:27 
+3. Forlorn Waves  04:39  
+4. Flicker  06:42  
+5. The Leer  04:56   
+6. The Ritual of Dawn  06:34   
+7. Ere All Perish  05:54  
+8. Cold Earth Chamber  05:34   
+9. Deserted Morrows  06:50 
+
+
+### "The Devil's Resolve" 2012, Melodic Death Metal
+
+1. Passing Of The Crimson Shadows  07:17   
+2. The Rains Begin  04:55  
+3. Vintage Warlords  04:32   
+4. As It Is Written  07:29   
+5. The Dead Exiles  06:21   
+6. Oriental Pyre  05:18   
+7. White Fields  04:59   
+8. Where All Stories End  05:55 
+9. Martyrs of Devotion  03:24   (bonus)
+10. World in Haze  07:32 (bonus)
+
+Produced by Jukka Varmo and Barren Earth.
+Recorded at Sonic Pump Studios 
+Mixed and Mastered at Unisound
+
+
+### "On Lonely Towers" 2015, Melodic Death Metal
+
+1. From the Depths of Spring  01:25  
+2. Howl  05:40   
+3. Frozen Processions  04:52 
+4. A Shapeless Derelict  07:33    
+5. Set Alight  07:27    
+6. On Lonely Towers  11:52    
+7. Chaos the Songs Within  07:45   
+8. Sirens of Oblivion  07:02   
+9. The Vault  11:07  
+
+
 
 ## Отношения с другими группами
 

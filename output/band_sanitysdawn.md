@@ -1,9 +1,61 @@
 # Sanitys Dawn
 
-Дискография
-"Cryptic Menu" 1997, Grindcore
-"Mangled in The Meatgrinder" 1998, Grindcore
-"Chop Copper" 2001, Grindcore
+
+
+## Дискография
+
+### "Cryptic Menu" 1997, Grindcore
+
+1. Intro 02:24  
+2. Ballgames With A Torn Off Head 01:35
+3. Mutilation 03:52
+4. Blinddarm 03:38
+5. Torture 04:47
+6. In My Fridge 04:00
+7. Notturno 04:22
+8. Clump Of Flesh 05:03
+9. Maggots In The Anal Tract 04:07
+10. Kranker Blick 06:17 
+
+### "Mangled in The Meatgrinder" 1998, Grindcore
+
+1. Burp 00:50
+2. Mangled in the Meatgrinder 02:55
+3. Gargling with Rancid Pus 01:43
+4. I Eat Shit 01:35
+5. Schleimhautsepsis 02:18 
+6. Suppurative Pustules 03:53
+7. Fleisch 03:25 
+8. Kцrperfresser 02:36
+9. Nice to Eat You 02:57 
+10. Morgue 04:04 
+11. Cancer Comes Cadaverous 02:42 
+12. I Need You for Barbecue 03:01
+13. Sweet Scent of Suet-Soup 03:02
+14. Delicious Burst Ulcer By Maximum Microwave-Power 03:16
+15. Intestines Pierced Alive 02:12
+16. Ich Will Kьhe 01:10 
+
+### "Chop Copper" 2001, Grindcore
+
+1. Half A Brain 02:04
+2. Chop Copper 01:50  
+3. Peeling Off The Epidermis 01:18  
+4. Fat Stinking Bitch 02:13  
+5. More Gore, More Fun 01:48  
+6. Komisch Im Kopf 02:09  
+7. Pulled Out Tongue For My Kebap 02:00  
+8. Sewing Lampshades With A Scrotum And Spermatic Cords 01:46  
+9. Constipation Conservation 01:48  
+10. Sick, Sick, I'm So Sick 02:03
+11. Looks Like Rancid Juice 01:52  
+12. Punish Me For Being Dumb 02:18  
+13. Fat, Splat And Dead 02:48  
+14. Horror City 02:00  
+15. Warte Nur Ein Weilchen 01:57  
+16. Und Die Trдgt Mein Bruder Als Krawatte 01:48  
+17. Shit Splashing, Lavatory Smashing 05:53 
+
 
 ## Отношения с другими группами
 

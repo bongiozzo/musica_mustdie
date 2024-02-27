@@ -1,11 +1,80 @@
 # Heavens Gate
 
-Дискография
-"In Control" 1988, Heavy Metal
-"Livin' in Hysteria" 1991, Heavy Metal
-"Hell for Sale!" 1992, Heavy Metal
-"Planet E." 1996, Heavy Metal
-"Menergy" 1999, Heavy Metal
+
+
+## Дискография
+
+### "In Control" 1988, Heavy Metal
+
+
+
+### "Livin' in Hysteria" 1991, Heavy Metal
+
+1. Livin` in Hysteria 04:38
+2. We Got The Time 04:32
+3. The Neverending Fire 05:29
+4. Empty Way To Nowhere 04:51 
+5. Fredless 02:20  
+6. Can`t Stop Rockin` 05:21
+7. Flashes 03:22 
+8. Best Days Of My Life 05:52
+9. We Want It All 03:53 
+10. Gate Of Heaven 04:35 
+
+### "Hell for Sale!" 1992, Heavy Metal
+
+1. Under Fire 03:37
+2. Hell For Sale! 03:18 
+3. He`s The Man 04:16 
+4. Stars`N`Stripes 00:26  
+5. America 03:53
+6. Atomic 03:36
+7. Rising Sun 03:28
+8. No Matter 03:13
+9. Up And Down 03:53
+10. Don`t Bring Me Down 04:29
+11. White Evil 04:57
+12. Always Look On The Bright Side Of Life 03:51 
+
+### "Planet E." 1996, Heavy Metal
+
+1. Terminated World 03:59
+2. Planet Earth 05:00
+3. Back From The Dawn 06:10
+4. On The Edge 03:31
+5. The Children Play 04:44
+6. Rebel Yell 03:49
+7. Black Religion 06:59
+8. Animal (Lisa Dalbello cover) 04:25
+9. Noah`s Dream 10:04
+10. This Town Ain`t Big Enough For Both Of Us (The Sparks cover) 03:08 
+
+### "Menergy" 1999, Heavy Metal
+
+1. Teleshoot 00:49  
+2. Worldmachine 03:39 
+3. Teleshoot 00:12  
+4. Mastermind 03:59
+5. Teleshoot 00:20  
+6. Menergy 04:16
+7. Teleshoot 00:31  
+8. Enter: Eternity 03:56
+9. Teleshoot 00:33  
+10. Breakin` Loose 04:59
+11. Teleshoot 00:05  
+12. Dreamland 04:40
+13. Teleshoot 00:19  
+14. Looking Back 03:44 
+15. Teleshoot 00:23  
+16. Evolution 03:34
+17. Teleshoot 00:24  
+18. On My Knees 03:39
+19. Teleshoot 00:07  
+20. Dreamer-Believer 03:10
+21. Teleshoot 00:30  
+22. Glass People 03:33
+23. Teleshoot 04:25 
+
 
 ## Отношения с другими группами
 

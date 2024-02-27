@@ -1,14 +1,119 @@
 # Setherial
 
-Дискография
-"A Hail to the Faceless Angels (demo)" 1994, Black Metal
-"F&ouml;r Dem Mitt Blod (single)" 1995, Black Metal
-"Nord..." 1996, Black Metal
-"Lords of the Nightrealm" 1997, Black Metal
-"Hell Eternal" 1999, Black Metal
-"Endtime Divine" 2003, Black Metal
-"From the Ancient Ruins (compilation)" 2003, Black Metal
-"Death Triumphant" 2006, Black Metal
+black metal from sweden
+
+## Дискография
+
+### "A Hail to the Faceless Angels (demo)" 1994, Black Metal
+
+1. Obscurum (intro)
+2. A Hail to the Faceless Angels
+3. The Reborn Darkness
+4. As a Shadow
+5. The Ancient Sphere
+6. Dreams of Sadness (outro)
+
+
+Line-up:
+
+Mysteriis - Guitar
+Devothan - Guitar
+Thorn - Bass
+Zathanel - Drums
+Kraath - Vocals
+Cheeroth - Vocals
+
+Recorded at Studio Mysack 1994
+
+### "F&ouml;r Dem Mitt Blod (single)" 1995, Black Metal
+
+1. F&ouml;r Dem Mitt Blod
+2. Their Blood in Me
+
+
+Line-up:
+Mysteriis - Guitar
+Devothan - Guitar
+Thorn - Bass
+Zathanel - Drums
+Kraath - Vocals
+
+Recorded at Studio Mysack 1995
+
+### "Nord..." 1996, Black Metal
+
+1. In the Still of a Northern Fullmoon
+2. Morkrets Tid
+3. Over Det Blodtackta Nord
+4. I Kattens Famn
+5. For Dem Mitt Blod
+6. I Skuggors Dunkla Sken
+
+All songs written by SETHERIAL
+Produced by SETHERIAL
+Recorded and Engineered by Peter Tagtgren
+Recorded and Mixed at Abyss Studio
+
+SETHERIAL are:
+Devothan, Kraath, Lord Mysterii, Thorn
+
+&copy; 1996 Napalm Records
+
+### "Lords of the Nightrealm" 1997, Black Metal
+
+1. Satan's Realm
+2. Shades Over Universe
+3. Into Everlasting Fire
+4. Summon the Lord With Horns
+5. Diabolus Enim
+6. Enthroned by Dusk and Shadows
+7. Through Sombre Times
+8. Lords of the Nightrealm
+
+### "Hell Eternal" 1999, Black Metal
+
+1. Towards Thy Realm
+2. Shadows of the Throne
+3. Hell Eternal
+4. The Aeschma Deava
+5. The Sign of Wrath Awaked
+6. The Nightrealm
+7. Guardians of the Gates of Flames
+
+### "Endtime Divine" 2003, Black Metal
+
+1. Crimson Manifestation
+2. The Underworld
+3. Subterranean
+4. ...of Suicide
+5. Entity of Night
+6. The Night of All Nights
+7. Endtime Divine
+8. Transformation
+9. Storms
+
+
+Also available on lim. edit. 12-inch LP.
+
+### "From the Ancient Ruins (compilation)" 2003, Black Metal
+
+1. Among the Flames
+2. The Ancient Ruins
+3. The Beyond
+4. Obscurum
+5. A Hail to the Faceless Angels
+6. The Reborn Darkness
+7. As a Shadow
+8. The Ancient Sphere
+9. My Vains Are Open
+
+INFO
+Official compliation with rare & demo-tracks.
+
+### "Death Triumphant" 2006, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

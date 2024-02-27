@@ -1,7 +1,29 @@
 # Execution
 
-Дискография
-"Eternal Dreams" 2000, Death Doom
+death doom metal from France
+
+## Дискография
+
+### "Eternal Dreams" 2000, Death Doom
+
+Dream 1 - Icy Melancholy
+Dream 1 - Cold Anger
+Dream 2 - Daydreaming
+Dream 2 - Eternal Dreams
+Dream 3 - Walking Alone
+Dream 3 - Sadness
+Dream 4 - A Feeling Of Emptiness
+Dream 4 - Dark Obsession
+Dream 5 - Madness Reigns In March
+Dream 5 - Insanity
+Dream 6 - Light !!!
+Dream 6 - Stop Dreaming
+Dream 7 - Under The Rain
+Dream 7 - Mind Labyrinths
+Dream 8 - Wherever You Go
+Dream 8 - Lost In Nothingness
+Dream 8 - Last Echoes
+
 
 ## Отношения с другими группами
 

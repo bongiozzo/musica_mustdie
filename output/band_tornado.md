@@ -1,7 +1,13 @@
 # Tornado
 
-Дискография
-"Triumph of the King" 2002, Heavy Metal
+Heavy-progressive from Yugoslavia
+
+## Дискография
+
+### "Triumph of the King" 2002, Heavy Metal
+
+
+
 
 ## Отношения с другими группами
 

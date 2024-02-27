@@ -1,7 +1,18 @@
 # Decemberance
 
-Дискография
-"Inside" 2009, Death Doom
+
+
+## Дискография
+
+### "Inside" 2009, Death Doom
+
+1. Time 15:45  
+2. Rain 14:59  
+3. Anxiety Grasps Our Perspective 05:14  
+4. A Common Winter 09:55  
+5. Sunset 04:17  
+6. Premonition 17:45 
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,32 @@
 # Insect Warfare
 
-Дискография
-"World Extermination" 2007, Grindcore
+
+
+## Дискография
+
+### "World Extermination" 2007, Grindcore
+
+1. Oxygen Corrosion 00:53
+2. Self Termination 01:25 
+3. Enslaved By Machinery 01:08
+4. Manipulator 01:49
+5. Zone Killer 00:20
+6. Decontamination 01:09
+7. Street Sweeper 00:13
+8. Dead Inside 01:01
+9. Human Trafficking 01:19
+10. Hydraphobia 01:36  
+11. Mind Ripper 01:21
+12. Armored Virus 01:20
+13. Mass Communication Mindfuck 01:19
+14. Nuclear Deterrence 01:20
+15. Paranoia 01:18
+16. Necessary Death 00:51
+17. Protection Maze 00:54
+18. Lobotomized 01:18
+19. Internet Era Alienation 00:42
+20. Evolved Into Obliteration 01:12 
+
 
 ## Отношения с другими группами
 

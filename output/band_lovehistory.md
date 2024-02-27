@@ -1,10 +1,57 @@
 # Love History
 
-Дискография
-"The Astral Silence Of Blooming Virgin Beauty (demo)" 1993, Death Doom
-"Desires" 1996, Death Doom
-"Galileo, Figaro - Magnifico..." 2000, Death Doom
-"Anasazi" 2000, Death Doom
+Doom Death Gothic from Czech Republic
+
+## Дискография
+
+### "The Astral Silence Of Blooming Virgin Beauty (demo)" 1993, Death Doom
+
+
+
+### "Desires" 1996, Death Doom
+
+1. Intro
+2. From Bohemiah's Woods And Fields
+3. Labyrinth Of Love
+4. Desires
+5. In Passion
+6. Through The Thady History
+
+Roman Bestel - Bass
+Richard Chrobek - Guitars
+Radim Chrobek - Drums
+Martin Dej - Guitars
+Hanka Nogolova - Female Vocals
+Robert - Vocals
+Bilos - Guitars
+
+Guests:
+Eva Hurnikova - Keyboards, Flute
+Miki Durko - Clarinet
+Eva Bila - Violin
+
+Recorded and Mixed at Barbarella Studio.
+Engineered by Jiri Krejci and Pavel Zyr.
+Cover artwork by Roman.
+
+(p)(c) 1995 NORTHERN DARKNESS Records NDR 007
+
+### "Galileo, Figaro - Magnifico..." 2000, Death Doom
+
+
+
+### "Anasazi" 2000, Death Doom
+
+1. Lost
+2. Angealism
+3. Korbel
+4. Masterless
+5. Sown
+6. Spiritual
+7. The Mass
+8. Phantomous
+9. Voices
+
 
 ## Отношения с другими группами
 

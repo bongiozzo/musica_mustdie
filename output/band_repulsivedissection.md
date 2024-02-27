@@ -1,7 +1,23 @@
 # Repulsive Dissection
 
-Дискография
-"Cut Open The Aberration" 2009, Deathcore
+
+
+## Дискография
+
+### "Cut Open The Aberration" 2009, Deathcore
+
+1. Decimate 02:46  
+2. Mercurial Sentience 02:57  
+3. Septicemia 03:59  
+4. Genetically Deranged 03:28  
+5. Unjust Calumniation 03:37  
+6. Human Contempt 02:16  
+7. Self Cage 03:44  
+8. Distorted Existence 04:06  
+9. Swarmpit 03:48  
+10. Necessary Bloodshield 03:27  
+11. Martyrdom 03:16 
+
 
 ## Отношения с другими группами
 

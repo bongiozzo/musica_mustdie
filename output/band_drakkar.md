@@ -1,10 +1,69 @@
 # Drakkar
 
-Дискография
-"Quest For Glory" 1998, Power Metal
-"Gemini" 2000, Power Metal
-"Razorblade God" 2002, Power Metal
-"When Lightning Strikes" 2012, Power Metal
+
+
+## Дискография
+
+### "Quest For Glory" 1998, Power Metal
+
+1. Welcome on board
+2. Coming from the past
+3. Dragonheart
+4. Follow the prophet
+5. Under the armor
+6. The walls of Olathoe
+7. Wings of fire
+8. Morella
+9. Quest for glory (Valhalla)
+10. Raising the banners
+11. Towards home
+
+### "Gemini" 2000, Power Metal
+
+1. Beginning (intro)	 
+2. Eridan Falls
+3. Pure Of Heart
+4. Soldiers Of Death
+5. The Climb
+6. The Voice Of The Wind
+7. Dragonship
+8. The Secret
+9. Until The End
+10. Death of Slayn (instrumental)	 
+11. The Price Of Victory
+
+### "Razorblade God" 2002, Power Metal
+
+1. Razorblade God
+2. Man And Machine
+3. To The Future
+4. Inferno
+5. The Matrix
+6. Galadriel' Song
+7. Lo Shan Shen Long Pa
+8. The Next Generation
+9. Witches' Dance
+10. Kingdom Of Madness (Magnum cover)
+11. N-Zone [Bonus]
+
+### "When Lightning Strikes" 2012, Power Metal
+
+1. Hyperspace – The Arrival	01:26	  instrumental
+2. Day of the Gods	02:16	 
+3. The Armageddon Machine	06:16	 
+4. In The Belly of the Beast	00:34	 
+5. Revenge Is Done	05:19	 
+6. When Lightning Strikes	04:19	 
+7. Winter Soldiers	05:31	 
+8. Salvation	04:04	 
+9. At the Flaming Shores of Heaven	06:01	 
+10. We Ride	05:59	 
+11. The Awakening	01:36	 
+12. My Endless Flight	05:40	 
+13. Aftermath – The Departure	01:23	 
+14. Engage!	00:25	 
+15. New Frontier	04:01	 
+
 
 ## Отношения с другими группами
 

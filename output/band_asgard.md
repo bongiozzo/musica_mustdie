@@ -1,7 +1,21 @@
 # Asgard
 
-Дискография
-"The Seal of Madness" 2011, Speed Metal
+
+
+## Дискография
+
+### "The Seal of Madness" 2011, Speed Metal
+
+1.	 Disciples
+2.	 I Spit on your Hands
+3.	 The Seal of Madness
+4.	 With Your Shield or On It
+5.	 Army of Darkness
+6.	 Fury of the Night
+7.	 The Age of Steel
+8.	 Hellbreaker
+9.	 Asgard Invasion
+
 
 ## Отношения с другими группами
 

@@ -1,16 +1,165 @@
 # Debauchery
 
-Дискография
-"Kill Maim Burn" 2003, Death Metal
-"Rage Of The Bloodbeast" 2004, Death Metal
-"Torture Pit" 2005, Death Metal
-"Back In Blood" 2007, Death Metal
-"Continue To Kill" 2008, Death Metal
-"Rockers & War " 2009, Death Metal
-"Germanyґs Next Death Metal" 2011, Rock and Roll
-"Kings of Carnage" 2013, Metal
-"F*ck Humanity" 2015, Metal
-"Thunderbeast [split w BLOOD GOD]" 2016, Metal
+
+
+## Дискография
+
+### "Kill Maim Burn" 2003, Death Metal
+
+Kill Maim Burn
+For God, Emperor And Fatherland 
+Hordes Of Chaos 
+The Fall Of Gondolin 
+Butchered Zombies 
+The Fifth Battle 
+Insane Human Butchery 
+Slaves To Darkness
+
+### "Rage Of The Bloodbeast" 2004, Death Metal
+
+1. Blood For The Blood God
+2. Chainsaw Masturbation
+3. Rage Of The Bloodbeast
+4. Devourer Of Worlds
+5. Killing In The Warzone
+6. I Will Rape And Murder
+7. Armies Of Immortals
+8. The Hellspawn
+9. Ritual Killing
+10. Wargrinder
+11. Take My Pain
+
+### "Torture Pit" 2005, Death Metal
+
+1.  Torture Pit  
+2.  Butcherman  
+3.  Debauchery Bloodpack  
+4.  Cumminґ And Killing  
+5.  Vitality Of Decay  
+6.  Death Metal Warmachine  
+7.  Horrors Of War  
+8.  Meat Grinder  
+9.  War And Glory - Guts And Gore  
+10.  Goreobsessed Murderers  
+11.  Carnival Carnage  
+12.  Klan Of Killers  
+13.  Cult Of Gore  
+14.  Decadent Depravity Of The Dead  
+15.  Blood For The Blood God (Pussy Version)
+
+### "Back In Blood" 2007, Death Metal
+
+Disc 1 
+1. Lords Of Battle 04:06
+2. Baptise This World In Blood 03:09 
+3. Praise The Blood God 04:17  
+4. Back In Blood 03:16  
+5. Masters Of The Killing Art 03:11 
+6. Butcher Of Bitches 04:24  
+7. Death Metal Maniac 03:38 
+8. Manhunting 02:44 
+9. Alcohol Fueled Brutality 03:18 
+10. True To The Skull Throne (And Bound To Kill) 02:43 
+11. Storm Of Iron 02:44  
+Disc 2 
+1. Can't Dance (Genesis cover) 03:54  
+2. Weisses Fleisch (Rammstein cover) 03:36  
+3. 8 Days A Week (The Beatles cover) 02:48 
+4. Heavy Duty (Judas Priest cover) 04:24  
+5. Kings Of Metal (Manowar cover) 03:36  
+6. You Got Me Rocking (Rolling Stones cover) 03:35  
+7. War Is Coming / Chill Out Version (Six Feet Under) 03:18
+
+### "Continue To Kill" 2008, Death Metal
+
+1. It Pleases Us To Kill   
+2. Blood God Rising   
+3. Continue To Kill   
+4. Faith And Fire   
+5. Hard Rockin'   
+6. Apostle Of War   
+7. Worship The Violence   
+8. King Of Killing   
+9. Slayer's Angel Of Death   
+10. Warfare   
+11. Cuntkiller   
+12. Mincing Machine   
+13. Metal On Metal   
+14. Walking Glory Road
+
+### "Rockers & War " 2009, Death Metal
+
+1. There Is Only War 05:31  
+2. Primordial Annihilator 03:46  
+3. Honour & Courage 04:38  
+4. Savage Mortician 03:32  
+5. Killing Ground 03:32  
+6. Wolves Of The North 06:30  
+7. 3 Riff Hit 03:51  
+8. New Rock 04:09  
+9. Hammer Of The Blood God 03:06  
+10. Demon Lady 03:40  
+11. Rocker 03:16 
+
+
+### "Germanyґs Next Death Metal" 2011, Rock and Roll
+
+1. The Unbroken 06:13  
+2. Zombie Blitzkrieg 03:22  
+3. Warmachines At War 04:10  
+4. Animal Holocaust 03:59  
+5. Bloodslaughter Onslaught 04:41  
+6. Germany’s Next Death Metal 04:59  
+7. School Shooter 04:22  
+8. Death Will Entertain 03:32  
+9. Armed For Apocalypse 03:51  
+10. Genocider Overkill 03:15  
+11. Killing Is Our Culture 04:06  
+12. School’s Out (Alice Cooper cover) 
+
+
+### "Kings of Carnage" 2013, Metal
+
+
+
+### "F*ck Humanity" 2015, Metal
+
+
+
+### "Thunderbeast [split w BLOOD GOD]" 2016, Metal
+
+Disc 1 - Monster Voice
+1. Debauchery - Heavy Metal Monsternaut	04:12	 
+2. Debauchery - Murdermaker	04:08	 
+3. Debauchery - Thunderbeast	03:29	 
+4. Debauchery - Vampire Holocaust	03:34	 
+5. Debauchery - City of Bones	03:51	 
+6. Debauchery - Crusaders of God	04:31	 
+7. Debauchery - Super Killer Death Match	02:59	 
+8. Debauchery - Firethrone Overlord	03:17	 
+9. Debauchery - Bullet to the Head	03:10	 
+10. Debauchery - Devil Dog	03:30	 
+11. Debauchery - Second Hand Woman	02:55	 
+12. Debauchery - Girl to Adore	03:03	 
+13. Debauchery - Super Hot Vampire Lady	03:07	 
+14. Debauchery - Anti-Hero	02:54	 
+ 	 
+Disc 2 - Demon Screeching
+1. Blood God - Crusaders of God	04:31	 
+2. Blood God - Bullet to the Head	03:10	 
+3. Blood God - City of Bones	03:51	 
+4. Blood God - Vampire Holocaust	03:34	 
+5. Blood God - Girl to Adore	03:03	 
+6. Blood God - Super Hot Vampire Lady	03:07	 
+7. Blood God - Devil Dog	03:30	 
+8. Blood God - Super Killer Death Match	02:59	 
+9. Blood God - Anti-Hero	02:56	 
+10. Blood God - Second Hand Woman	02:55	 
+11. Blood God - Firethrone Overlord	03:17	 
+12. Blood God - Murdermaker	04:09	 
+13. Blood God - Heavy Metal Monsternaut	04:13	 
+14. Blood God - Thunderbeast	03:27
+
 
 ## Отношения с другими группами
 

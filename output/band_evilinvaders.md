@@ -1,10 +1,50 @@
 # Evil Invaders
 
-Дискография
-"Evil Invaders (EP)" 2013, Speed Metal
-"Pulses Of Pleasure" 2015, Speed Metal
-"In For The Kill (EP)" 2016, Speed Metal
-"Feed Me Violence" 2017, Speed Metal
+
+
+## Дискография
+
+### "Evil Invaders (EP)" 2013, Speed Metal
+
+1. Victim of Sacrifice
+2. Driving Fast
+3. Tortured by the Beast
+4. Speed Invasion
+5. Alcoholic Maniac
+6. Evil Invaders
+
+### "Pulses Of Pleasure" 2015, Speed Metal
+
+01. Fast, Loud 'n' Rude
+02. Pulses Of Pleasure
+03. Eclipse Of The Mind
+04. Siren
+05. Stairway To Insanity
+06. Shot To Paradise
+07. Venom
+08. Blinded (Intro)
+09. Master Of Illusion
+10. Eye Of The Storm (Japanese Bonus Track)
+
+### "In For The Kill (EP)" 2016, Speed Metal
+
+01. As Life Slowly Fades
+02. Raising Hell
+03. Pulses Of Pleasure (live version)
+04. Victim Of Sacrifice (live version)
+
+### "Feed Me Violence" 2017, Speed Metal
+
+1. Mental Penitentiary
+2. As Life Slowly Fades
+3. Suspended Reanimation
+4. Broken Dreams In Isolation
+5. Feed Me Violence
+6. Oblivion
+7. Shades Of Solitude
+8. Anger Within
+9. Among The Depths Of Sanity
+
 
 ## Отношения с другими группами
 

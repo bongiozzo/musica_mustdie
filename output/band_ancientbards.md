@@ -1,8 +1,35 @@
 # Ancient Bards
 
-Дискография
-"The Alliance of the Kings" 2010, Power Metal
-"Soulless Child" 2011, Power Metal
+
+
+## Дискография
+
+### "The Alliance of the Kings" 2010, Power Metal
+
+1. Prelude
+2. The Birth of Evil
+3. Four Magic Elements
+4. Only the Brave
+5. Frozen Mind
+6. Nightfall in Icy Forest
+7. Lode al Padre
+8. Daltor the Dragonhunter
+9. Farewell My Hero
+10. Faithful to Destiny
+
+### "Soulless Child" 2011, Power Metal
+
+1. Struggle For Life  
+2. To The Master Of Darkness  
+3. Gates Of Noland  
+4. Broken Illusion  
+5. All That Is True  
+6. Valiant Ride  
+7. Dinanzi Al Flagello  
+8. Soulless Child  
+9. Through My Veins  
+10. Hope Dies Last
+
 
 ## Отношения с другими группами
 

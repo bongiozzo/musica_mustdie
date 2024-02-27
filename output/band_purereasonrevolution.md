@@ -1,7 +1,13 @@
 # Pure Reason Revolution
 
-Дискография
-"The Dark Third" 2007, Progressive
+
+
+## Дискография
+
+### "The Dark Third" 2007, Progressive
+
+
+
 
 ## Отношения с другими группами
 

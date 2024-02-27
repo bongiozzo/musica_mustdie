@@ -1,9 +1,41 @@
 # Katalepsy
 
-Дискография
-"Musick Brings Injuries" 2007, Death Metal
-"Autopsychosis" 2013, Death Metal
-"Gravenous Hour" 2016, Death Metal
+
+
+## Дискография
+
+### "Musick Brings Injuries" 2007, Death Metal
+
+
+
+### "Autopsychosis" 2013, Death Metal
+
+01. Lurking In The Depth
+02. Evidence Of Near Death (E.N.D.)
+03. Body Bags For The Gods
+04. Cold Flesh Citadel
+05. The Pulse Of Somnambulist
+06. Unearthly Urge To Supremacy
+07. Gore Conspiracy
+08. Amongst Phantom Worlds
+09. Needles Of Hypocrisy (interlude)
+10. Knifed Humility
+11. Taedium Vitae
+
+### "Gravenous Hour" 2016, Death Metal
+
+01. In The Dark Of Stars
+02. Blinded Sultan
+03. To The Lords Of Nihil
+04. Critical Black Mass
+05. The Long Bright Darkness
+06. Monastery Of Nothing
+07. After Omega
+08. Grave New World
+09. Ghoul Inquisitor
+10. Tephra
+11. In The River Of Red
+
 
 ## Отношения с другими группами
 

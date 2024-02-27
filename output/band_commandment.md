@@ -1,8 +1,34 @@
 # Commandment
 
-Дискография
-"Engraved in Stone" 1999, Heavy Metal
-"No Mercy" 2009, Heavy Metal
+
+
+## Дискография
+
+### "Engraved in Stone" 1999, Heavy Metal
+
+1.	 Oriental Maiden	04:47	 
+2.	 Virgin White	03:15	 
+3.	 Crystal Ball	03:06	 
+4.	 Eyes of Fire	04:15	 
+5.	 Never be Afraid	06:10	 
+6.	 Take No Prisoners	02:22	 
+7.	 Light in the Dark	04:32	 
+8.	 Claws of Death	03:33	 
+9.	 Sands of Time	05:16	 
+10.	 Engraved in Stone	03:40	
+
+### "No Mercy" 2009, Heavy Metal
+
+1.	 Corrupted Youth	02:48	 
+2.	 Betrayed	03:19	 
+3.	 Road to Nowhere	04:23	 
+4.	 Guitar Solo	00:52	 
+5.	 The Cell	04:37	 
+6.	 No Mercy	04:33	 
+7.	 Holding On	03:39	 
+8.	 Kamikaze	03:44	 
+9.	 Voice of the Sphynx	03:20	 
+
 
 ## Отношения с другими группами
 

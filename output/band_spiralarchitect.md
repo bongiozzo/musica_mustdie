@@ -1,7 +1,36 @@
 # Spiral Architect
 
-Дискография
-"Sceptic's Universe" 2000, Alternative
+
+
+## Дискография
+
+### "Sceptic's Universe" 2000, Alternative
+
+   1.   Spinning (Gundersen/Mickelson/Norberg) - 3:23 
+   2.   Excessit (Gundersen/Hжgeland/Norberg) - 6:13 
+   3.   Moving Spirit (Hжgeland/Norberg) - 3:44 
+   4.   Occam's Razor (Norberg) - 1:32 
+   5.   Insect (Norberg) - 5:54 
+   6.   Cloud Constructor: Cloud of Unknowing... (Gornitzka/Gundersen/Hжgeland/Norberg) - 5:25 
+   7.   Conjuring Collapse (Hжgeland/Mickelson) - 6:30 
+   8.   Adaptability (Gornitzka/Gundersen/Norberg) - 4:34 
+   9.   Fountainhead (Gornitzka/Gundersen/Mickelson/Norberg) - 6:30 
+
+
+Joe Gastwirt  -  Mastering 
+Neil Kernon  -  Producer, Engineer, Digital Editing, Mixing 
+Bobby Torres  -  Engineer, Drum Technician 
+Ramon Breton  -  Mastering 
+Sean Malone  -  Stick 
+Bill Ellsworth  -  Illustrations 
+Asgeir Mickelson  -  Drums, Mastering 
+Justin Leeah  -  Engineer, Digital Editing 
+Spiral Architect  -  Arranger 
+Ken Golden     
+Шyvind Hжgeland  -  Vocals 
+Lena Zizanic  -  Photography 
+
+
 
 ## Отношения с другими группами
 

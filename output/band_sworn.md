@@ -1,9 +1,36 @@
 # Sworn
 
-Дискография
-"The Rise" 2005, Black Metal
-"...Of Euphoria" 2006, Black Metal
-"Tended High" 2007, Black Metal
+Armenian progressive black metal
+
+## Дискография
+
+### "The Rise" 2005, Black Metal
+
+1. The Rise (Intro) 01:23  
+2. Fog Of The Darkside 05:52 
+3. The Eclipse 05:08  
+4. Into The Abyss 05:27  
+5. The Majesty Of Death 06:56  
+6. Grave Symphomania 01:47  
+7. Under Eternal Rain 04:52 
+8. Fall (Outro) 02:53
+
+### "...Of Euphoria" 2006, Black Metal
+
+1. My Euphorical Atmosphere 06:05  
+2. Through The Ubiquitous Mist 05:59  
+3. The Majestic Precipice 07:22
+
+### "Tended High" 2007, Black Metal
+
+1. Once A Rainy Solitude 03:57  
+2. In My Soul Despair 08:44 
+3. Church Obliteration 08:13  
+4. I Am Of Night 05:06  
+5. Yearning 02:14  
+6. Tended High 09:45  
+7. Nothing Lasts 02:48
+
 
 ## Отношения с другими группами
 

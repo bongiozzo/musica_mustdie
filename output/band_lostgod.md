@@ -1,7 +1,16 @@
 # Lost God
 
-Дискография
-"Savage Souls (E.P.)" 2009, Death Metal
+
+
+## Дискография
+
+### "Savage Souls (E.P.)" 2009, Death Metal
+
+1. Savage Souls 04:17  
+2. Human Fear 04:07  
+3. The Black Flames Of Rebellion 03:21 
+
+
 
 ## Отношения с другими группами
 

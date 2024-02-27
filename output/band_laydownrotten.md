@@ -1,13 +1,174 @@
 # Lay Down Rotten
 
-Дискография
-"Way Of Weakness" 2001, Death Metal
-"Paralyzed by Fear" 2003, Death Metal
-"Cold Constructed" 2005, Death Metal
-"Breeding Insanity" 2006, Death Metal
-"Reconquering The Pit" 2007, Death Metal
-"Gospel of the Wretched" 2009, Death Metal
-"Mask of Malice" 2012, Death Metal
+
+
+## Дискография
+
+### "Way Of Weakness" 2001, Death Metal
+
+01. Awake (2:22) 
+02. About Hate (2:59) 
+03. Baptized In Blood (4:39) 
+04. Storm Of Fear (3:58) 
+05. Chaos (2:43) 
+06. Into A New Dimension (3:40) 
+07. Azrael (5:17) 
+08. Way Of Weakness (Version 2001) (3:18) 
+09. Machine-Gun Theories (3:27) 
+10. Sirens Of Hell (Version 2001) (4:44) 
+
+Line-Up:
+Daniel Jakobi: Vocals/Guitar 
+Daniel Benner: Guitar 
+Timo Claas: Drums 
+Uwe Kilian: Bass
+
+Release-Date: 2001
+
+Recorded @ Chaos-Studios Gerhard July - August 2001 
+Mastered by Thilo Krieger @ Desert-Inn Studio
+
+### "Paralyzed by Fear" 2003, Death Metal
+
+01. Fall (4:19) 
+02. Beautiful Brutality (4:06) 
+03. Final Psychotic Eclipse (3:22) 
+04. Forsaken (4:44) 
+05. Mirinda (Intro) (1:37) 
+06. Modern Kind Of Hate (3:21) 
+07. Lost Time (4:23) 
+08. Paralyzed By Fear (3:06) 
+09. Pile Of Desolation (5:42) 
+10. Cheyn Stokґsche (5:52) 
+
+Line-Up:
+Daniel Jakobi: Vocals/Guitar 
+Daniel Benner: Guitar 
+Timo Claas: Drums 
+Uwe Kilian: Bass
+
+Release-Date: 10/2003
+
+Recorded @ Desert-Inn Studio 
+by Thilo Krieger March 2003 
+Mastered at RARE Musik Studios, Kassel 
+Cover Artwork: Jacek Wisniewski 
+Layout + Design: Karim Daire of Lдrmbelдstigung
+
+### "Cold Constructed" 2005, Death Metal
+
+01. Murder Instinct (3:47) 
+02. Let Me Be Your Suffering (4:13) 
+03. Broken Minds Behind Wounded Faces (3:31) 
+04. The Gutted Angel (4:22) 
+05. Headshot Poetry (4:38) 
+06. Cold Constructed Spheres (3:28) 
+07. Human Remains Cargo (3:47) 
+08. The Domination Of Chaos (2:33) 
+09. Cutting Deeper (3:50) 
+10. Darkday (Edge Of Sanity) (4:47) 
+
+Line-Up:
+Daniel Jakobi: Vocals/Guitar 
+Jost Kleinert: Vocals 
+Daniel Benner: Guitar 
+Timo Claas: Drums 
+Uwe Kilian: Bass
+
+Release-Date: 18.04.2005
+
+Recorded + Mastered @ Desert-Inn Studio 
+by Thilo Krieger July 2004 
+Cover Artwork: Sven De Caluwe (Dirge Design) 
+Layout + Design: Karim Daire of Lдrmbelдstigung
+
+### "Breeding Insanity" 2006, Death Metal
+
+01. Breeding Insanity (1:11) 
+02. Pulling The Trigger (4:33)
+03. Within The Veil - The Antidote (4:35)
+04. Undead Race (5:22)
+05. Century Of Exploitation (4:54)
+06. Through Purple Woods And Ashen Plains (4:43)
+07. Desolated (4:41)
+08. Into Oblivion (5:27) 
+09. Venomous Blessings (6:47) 
+
+Limited Edition with Bonus-CD
+ 01. Heartwork (Carcass) (4:30) 
+02. Domination (Pantera) (5:25) 
+03. Black Night (Deep Purple) (3:42) 
+04. Pulling The Trigger (Video) (4:40) 
+05. Making Of ... (Video) (5:20) 
+
+Line-Up:
+Daniel Jakobi: Vocals/Guitar 
+Jost Kleinert: Vocals 
+Daniel Benner: Guitar 
+Timo Claas: Drums 
+Uwe Kilian: Bass
+
+Release-Date: 23.06.2006
+
+Recorded + Mastered @ Desert-Inn Studio 
+by Thilo Krieger December 2005 - January 2006 
+Cover Artwork: Bjцrn of Killustrations 
+Layout + Design: Karim Daire of Lдrmbelдstigung
+
+### "Reconquering The Pit" 2007, Death Metal
+
+01. Anarchic Outburst (0:39) 
+02. Reconquering The Pit (4:59)
+03. Sound Of Breaking Bones (5:19) 
+04. Bitter Thoughts (4:43) 
+05. New Mechanic 
+Human Phenomena (4:48) 
+06. Demons Breed (4:23) 
+07. Nihil (5:27) 
+08. Unholy Alliance (5:50) 
+09. All Of This Pain (5:58) 
+
+Line-Up:
+Daniel Jakobi: Vocals/Guitar 
+Jost Kleinert: Vocals 
+Nils Fцrster: Guitar 
+Timo Claas: Drums 
+Uwe Kilian: Bass 
+--------------------------------- 
+Daniel Benner: Guitar
+
+Release-Date: 02.11.2007
+
+Recorded + Mastered @ Desert-Inn Studio 
+by Thilo Krieger June 2007 
+Cover Artwork: Bjцrn of Killustrations 
+Layout + Design: Karim Daire of Lдrmbelдstigung
+
+### "Gospel of the Wretched" 2009, Death Metal
+
+1.	 Gospel of the Wretched	05:18
+2.	 Thy Won't Be Done	05:20
+3.	 Hours of Infinity	05:06
+4.	 Altering the Whore	05:34
+5.	 Conditioning the Weak	05:02
+6.	 He Who Shows Hate	03:40
+7.	 Beyond Damnation	04:10
+8.	 When All Becomes Nothing	04:16
+9.	 Where Spirits Lie Dead	05:38
+
+### "Mask of Malice" 2012, Death Metal
+
+01. Deathchain
+02. A Darker Shade Of Hatred
+03. Nightfall
+04. Mask Of Malice
+05. ...And Out Come The Wolves
+06. Swallow The Bitterness
+07. Hades Resurrected
+08. The Devil Grins
+09. La Serpenta Canta
+10. The Loss
+
 
 ## Отношения с другими группами
 

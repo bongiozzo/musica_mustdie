@@ -1,25 +1,479 @@
 # Savatage
 
-Дискография
-"Sirens" 1983, Heavy Metal
-"The Dungeons Are Calling" 1984, Heavy Metal
-"Power of the Night" 1985, Heavy Metal
-"Fight for the Rock" 1986, Heavy Metal
-"Hall of the Mountain King" 1987, Heavy Metal
-"Gutter Ballet" 1989, Heavy Metal
-"Streets" 1991, Heavy Metal
-"Edge of Thorns" 1993, Heavy Metal
-"Handful of Rain" 1994, Heavy Metal
-"Dead Winter Dead" 1995, Heavy Metal
-"Japan Live '94" 1995, Heavy Metal
-"Final Bell / Ghost in the Ruins" 1995, Heavy Metal
-"From the Gutter to the Stage" 1996, Heavy Metal
-"One Child (single)" 1996, Heavy Metal
-"The Wake of Magellan" 1997, Heavy Metal
-"The Best and the Rest (Japanese Greatest Hits)" 1997, Heavy Metal
-"Believe (compilation)" 1998, Heavy Metal
-"Poets & Madmen" 2001, Heavy Metal
-"Commissar (single)" 2001, Heavy Metal
+
+
+## Дискография
+
+### "Sirens" 1983, Heavy Metal
+
+01.  Sirens - 3:40
+02.  Holocaust - 4:36
+03.  I Believe - 5:28
+04.  Rage - 2:40
+05.  On The Run - 3:31
+06.  Twisted Little Sister - 3:38
+07.  Living For The Night - 3:20
+08.  Scream Murder - 3:50
+09.  Out On The Streets - 5:11
+
+  Total 35:57
+
+The following tracks are added on the re-release (1994):
+10.  Lady In Disguise - 4:36
+11.  The Message - 3:38
+
+The following tracks are added on the Silver Anniversary editions (2002):
+10.  Target (Demo)
+11.  Living On The Edge Of Time (Demo)
+99.  hidden track
+
+Jon Oliva Vocals & Piano 
+Criss Oliva All Guitars, Back-up Vocals 
+Keith Collins Bass, Backing Vocals 
+Steve Wacholz Drums, Percussion
+
+### "The Dungeons Are Calling" 1984, Heavy Metal
+
+01.  The Dungeons Are Calling - 4:53
+02.  By The Grace Of The Witch - 3:13
+03.  Visions - 3:01
+04.  Midas Knight - 4:21
+05.  City Beneath The Surface - 5:49
+06.  The Whip - 3:27
+
+  Total 24:54
+
+The following tracks are added on the re-release (1994):
+07.  Fighting For Your Love - 3:20
+08.  Sirens (Live) - 3:21
+
+The following tracks are added on the Silver Anniversary editions (2002):
+07.  Metalhead (Demo)
+08.  Before I Hang (Demo)
+09.  Stranger In The Dark (Demo)
+99.  hidden track
+
+
+Jon Oliva Vocals, Piano 
+Criss Oliva All Guitars, Back-up Vocals 
+Keith Collins Bass, Backing Vocals 
+Steve Wacholz Drums, Percussion
+
+### "Power of the Night" 1985, Heavy Metal
+
+01.  Power Of The Night - 5:12
+02.  Unusual - 4:23
+03.  Warriors - 4:00
+04.  Necrophilia - 3:35
+05.  Washed Out - 2:13
+06.  Hard For Love - 3:57
+07.  Fountain Of Youth - 4:28
+08.  Skull Session - 3:18
+09.  Stuck On You - 3:06
+10.  In The Dream - 4:10
+
+  Total 37:22
+
+Bonus-track on the European Edel re-release (1997):
+11.  Sleep (piano version) - 4:16
+
+Bonus-tracks on the European SPV re-release (2002):
+11.  Power Of The Night (live) - 4:51
+12.  Sirens (live) - 3:02
+
+
+Jon Oliva Vocals, Keyboards 
+Criss Oliva Guitar 
+Keith Collins Bass 
+Steve Wacholz Drums
+
+### "Fight for the Rock" 1986, Heavy Metal
+
+01.  Fight For The Rock - 3:55
+02.  Out On The Streets - 3:58
+03.  Crying For Love - 3:27
+04.  Day After Day - 3:40
+05.  The Edge Of Midnight - 4:52
+06.  Hyde - 3:51
+07.  Lady In Disguise - 3:08
+08.  She's Only Rock 'N Roll - 3:14
+09.  Wishing Well - 3:20
+10.  Red Light Paradise - 3:56
+
+  Total 37:54
+
+Bonus-track on the European Edel re-release (1997):
+11.  If I Go Away (acoustic version) - 3:50
+
+Bonus-tracks on the European SPV re-release (2002):
+11.  The Dungeons Are Calling (live) - 3:45
+12.  City Beneath The Surface (live) - 5:01
+
+Jon Oliva Vocals, Piano 
+Criss Oliva All Guitar, Back-up Vocals 
+Johnny Lee Middleton Bass, Backing Vocals 
+Steve Wacholz Drums, Percussion
+
+### "Hall of the Mountain King" 1987, Heavy Metal
+
+01.  24 Hours Ago - 4:54
+02.  Beyond The Doors Of The Dark - 5:08
+03.  Legions - 4:50
+04.  Strange Wings - 3:45
+05.  Prelude To Madness (Instrumental) - 3:13
+06.  Hall Of The Mountain King - 5:32
+07.  The Price You Pay - 3:51
+08.  White Witch - 3:21
+09.  Last Dawn (Instrumental) - 1:07
+10.  Devastation - 3:48
+Total 39:29
+
+Bonus-track on the European Edel re-release (1997):
+11.  Stay - 2:48
+
+Bonus-track on the European SPV re-release (2002):
+11.  Hall Of The Montain King (live) - 6:00
+12.  Devastation (live) - 3:36
+
+Jon Oliva - Vocals 
+Criss Oliva - Guitar
+Johnny Lee - Middleton Bass
+Steve Wacholz - Drums
+
+### "Gutter Ballet" 1989, Heavy Metal
+
+01.  Of Rage And War - 4:47
+02.  Gutter Ballet - 6:20
+03.  Temptation Revelation (Instrumental) - 2:56
+04.  When The Crowds Are Gone - 5:45
+05.  Silk And Steel (Instrumental) - 2:56
+06.  She's In Love - 3:51
+07.  Hounds - 6:27
+08.  The Unholy - 4:37
+09.  Mentally Yours - 5:19
+10.  Summer's Rain - 4:33
+11.  Thorazine Shuffle - 4:43
+  Total 52:25
+
+Bonus-track on the European Edel re-release (1997):
+12.  All That I Bleed (piano version) - 4:35
+
+Bonus-tracks on the European SPV re-release(2002):
+12.  Hounds (live) - 7:20
+13.  When The Crowds Are Gone (live) - 7:07
+
+Jon Oliva - Vocals & Piano 
+Criss Oliva - Guitars 
+Chris Caffery - Guitars & Keys 
+Johnny Lee - Middleton Bass 
+Steve Wacholz - Cymbals & Drums 
+ 
+All songs written by Jon Oliva, Criss Oliva and Paul O'Neil except Silk And Steel by Criss Oliva and Paul Silver
+
+### "Streets" 1991, Heavy Metal
+
+01.  Streets - 6:50
+02.  Jesus Saves - 5:13
+03.  Tonight He Grins Again - 3:28
+04.  Strange Reality - 4:56
+05.  A Little Too Far - 3:25
+06.  You're Alive - 1:51
+07.  Sammy And Tex - 3:07
+08.  St. Patrick's - 4:17
+09.  Can You Hear Me Now - 5:11
+10.  New York City Don't Mean Nothing - 4:01
+11.  Ghost In The Ruins - 5:32
+12.  If I Go Away - 5:17
+13.  Agony And Ecstasy - 3:33
+14.  Heal My Soul - 2:35
+15.  Somewhere In Time - 3:17
+16.  Believe - 5:42
+  Total 68:36
+
+Bonus-track on the European Edel re-release:
+17.  Desiree - 3:54
+
+Bonus-tracks on the European SPV re-release: 
+17.  Ghost In The Ruins (live) - 5:20
+18.  Jesus Saves (live) - 4:02
+
+
+Jon Oliva Vocals 
+Criss Oliva Guitar 
+Johnny Lee Middleton Bass 
+Steve Wacholz Drums 
+
+The concept of Streets is based on a book written by Paul O'Neill.
+
+### "Edge of Thorns" 1993, Heavy Metal
+
+01.  Edge Of Thorns - 5:55
+02.  He Carves His Stone - 4:10
+03.  Lights Out - 3:10
+04.  Skraggy's Tomb - 4:23
+05.  Labyrinths (Instrumental) - 1:30
+06.  Follow Me - 5:11
+07.  Exit Music (Instrumental) - 3:09
+08.  Degrees Of Sanity - 4:36
+09.  Conversation Piece - 4:10
+10.  All That I Bleed - 4:40
+11.  Damien - 3:54
+12.  Miles Away - 5:06
+13.  Sleep - 3:52
+  Total 53:59 
+
+Bonus-tracks on the Japanese release: 
+14.  Forever After - 4:20
+15.  Shotgun Innocence - 3:31
+  Total 61:50
+
+Bonus-track on the European Edel re-release (1997):
+14.  Believe (acoustic version) - 3:52
+
+Bonus-tracks on the European SPV re-release (2002): 
+14.  Forever After - 4:18
+15.  Conversation Piece (live) - 4:19
+
+
+All songs written by Olive,O'Neill,Oliva.
+
+Zachary Stevens,vocals
+Criss Oliva,guitars
+Johnny Lee Middletown,bass
+Steve Wacholz,drums
+
+Jon Oliva,piano and keyboards
+
+Produced by Paul O'Neill.  Co-produced by Jon & Criss Oliva.
+Engineered by Jim & Tom Morris.  Additional engineering by Scott Burns and
+Judd Packer,Noah Baron,Tim Hatfield.
+
+lyrics (c) 1993 MCA music Publishing / BMI Savatage music publishing
+(c) 1993 Atlantic / WEA.
+
+### "Handful of Rain" 1994, Heavy Metal
+
+This album was Alex Skolnick's first production with Savatage. Alex was recruited to fill in for the late Criss Oliva.
+
+The cover art was done by Gary Smith, who also did the art for the Hall of the Mountain King.
+
+Jon Oliva and Paul O'Neill did the writing and producing of this album. And even though Jon was not listed in the list of band members, he did play piano on the disc.
+
+Jon reportedly is responsible for all lyrics.  
+
+Band members:
+Zachary Stevens - Vocals 
+Alex Skolnick - Guitar 
+Johnny Lee - Middleton Bass 
+Steve Wacholz - Drums 
+ 
+01.  Taunting Cobras - 3:21
+02.  Handful Of Rain - 5:00
+03.  Chance - 7:48
+04.  Stare Into The Sun - 4:42
+05.  Castles Burning - 4:38
+06.  Visions (Instrumental) - 1:25
+07.  Watching You Fall - 5:20
+08.  Nothing's Going On - 4:07
+09.  Symmetry - 5:03
+10.  Alone You Breathe - 7:29
+  Total 49:03
+
+Bonus-track on the European SPV re-release(1998):
+11.  Somewhere In Time/Alone You Breathe (acoustic version) - 4:38
+  Total 53:41
+
+### "Dead Winter Dead" 1995, Heavy Metal
+
+01.  Overture (Instrumental) - 1:49
+02.  Sarajevo - 2:26
+03.  This Is The Time - 5:39
+04.  I Am - 4:32
+05.  Starlight - 5:38
+06.  Doesn't Matter Anyway - 3:47
+07.  This Isn't What We Meant - 4:12
+08.  Mozart and Madness (Instrumental) - 5:01
+09.  Memory (Dead Winter Dead Intro) (Instrumental) - 1:18
+10.  Dead Winter Dead - 4:16
+11.  One Child - 5:13
+12.  Christmas Eve (Sarajevo 12/24) (Instrumental) - 3:12
+13.  Not What You See - 5:03
+
+Total: 52:06
+
+### "Japan Live '94" 1995, Heavy Metal
+
+01.  Taunting Cobras - 5:01
+02.  Edge Of Thorns - 6:37
+03.  Chance - 4:36
+04.  Nothing Going On - 4:31
+05.  He Carves His Stone - 3:04
+06.  Jesus Saves - 4:04
+07.  Watching You Fall - 5:24
+08.  Castles Burning - 4:45
+09.  All That I Bleed - 5:20
+10.  Handful of Rain - 5:20
+11.  Sirens - 1:13
+12.  Gutter Ballet - 7:04
+
+Total: 56:59
+
+### "Final Bell / Ghost in the Ruins" 1995, Heavy Metal
+
+01.  City Beneath The Surface - 5:39
+02.  24 Hours Ago - 4:48
+03.  Legions - 5:06
+04.  Strange Wings - 4:01
+05.  Gutter Ballet - 6:14
+06.  When The Crowds Are Gone - 7:10
+07.  Of Rage and War - 4:29
+08.  The Dungeons Are Calling - 4:48
+09.  Sirens - 3:37
+10.  Hounds - 7:20
+11.  Criss Oliva Guitar Solo - 1:13
+12.  Hall Of The Mountain King - 6:38
+13.  Post Script (Instrumental) - 1:42
+
+Total: 63:45
+
+### "From the Gutter to the Stage" 1996, Heavy Metal
+
+Disc 1: 
+01.  Sirens (Live) - 3:50
+02.  Power Of The Night - 4:21
+03.  Prelude To Madness (Instrumental) - 3:12
+04.  Hall Of The Mountain King - 5:33
+05.  24 Hours Ago - 4:55
+06.  Gutter Ballet - 6:19
+07.  When The Crowds Are Gone - 5:45
+08.  Silk And Steel (Instrumental) - 2:47
+09.  New York City Don't Mean Nothing - 4:03
+10.  Agony And Ecstasy - 3:34
+11.  Believe - 5:41
+12.  Edge Of Thorns - 5:56
+13.  Chance - 7:49
+14.  Mozart And Madness (Instrumental) - 5:02
+15.  One Child - 5:14
+  Total 74:19
+
+
+Disc 2: (Bonus-tracks on the limited edition only)
+
+01.  Shotgun Innocence - 3:32
+02.  Forever After - 4:19
+03.  This Is Where You Should Be - 4:55
+04.  DT Jesus - 4:53
+  Total 17:41
+
+### "One Child (single)" 1996, Heavy Metal
+
+01.  One Child (Radio Edit) - 4:30
+02.  One Child - 5:14
+03.  Not What You See - 3:53
+  Total 13:38
+
+Zachary Stevens Vocals 
+Chris Caffery Guitar 
+Al Pitrelli Guitar 
+Jon Oliva Guitar, Keyboards 
+Johnny Lee Middleton Bass 
+Jeff Plate Drums
+
+### "The Wake of Magellan" 1997, Heavy Metal
+
+01.  The Ocean (Instrumental) - 1:33
+02.  Welcome - 2:11
+03.  Turns To Me - 6:01
+04.  Morning Sun - 5:49 
+05.  Another Way - 4:35
+06.  Blackjack Guillotine - 4:33
+07.  Paragons Of Innocence - 5:33
+08.  Complaint In The System (Veronica Guerin) - 2:37
+09.  Underture (Instrumental) - 3:52
+10.  The Wake Of Magellan - 6:10    
+11.  Anymore - 5:16
+12.  The Storm (Instrumental) - 3:45
+13.  The Hourglass - 8:05
+  Total 60:06
+
+Bonus-tracks on the US-release: 
+14.  Somewhere In Time/Alone You Breathe - 4:37
+15.  Sleep - 4:16
+16.  Stay - 2:48
+  Total 71:41 
+
+Zak Stevens - Vocals
+Al Pitrelli - Guitars, Vocals
+Johnny Lee Middleton - Bass, Vocals
+Jeff Plate - Drums
+Chris Caffery - Guitars, Vocals
+Jon Oliva - Keyboards, Vocals
+Produced by Paul O'Neill
+(p)(c)1997 SAVATAGE
+
+### "The Best and the Rest (Japanese Greatest Hits)" 1997, Heavy Metal
+
+
+
+### "Believe (compilation)" 1998, Heavy Metal
+
+01.  Believe
+02.  Visions (Instrumental)
+03.  Taunting Cobras
+04.  Handful Of Rain
+05.  Chance
+06.  Sarajevo
+07.  This Is The Time
+08.  This Isn't What We Meant
+09.  Christmas Eve (Sarajevo 12-24) (Instrumental)
+10.  Edge Of Thorns
+11.  Gutter Ballet
+12.  The Dungeons Are Calling
+13.  Sirens
+14.  Criss Oliva Guitar Solo
+15.  Hall Of The Mountain King
+16.  Alone You Breathe
+
+November 18, 1998 on Zero Records, Japan
+
+### "Poets & Madmen" 2001, Heavy Metal
+
+Stay With Me Awhile
+There In The Silence
+Commissar
+I Seek Power
+Drive
+Morphine Child
+The Rumor
+Man In The Mirror
+Surrender
+Awaken
+Back To A Reason
+
+
+
+Jon Oliva - Vocals & Keyboards 
+Chris Caffery - Guitars 
+Johnny Lee Middleton - Bass 
+Jeff Plate - Drums 
+ 
+
+
+Additional Musicians:
+Bob Kinkel - Keyboards & Vocals 
+Al Pitrelli - Guitars & Vocals
+
+### "Commissar (single)" 2001, Heavy Metal
+
+01.  Commissar
+02.  Drive  
+03.  Voyage (acoustic version)
+
+Jon Oliva Vocals & Keyboards 
+Chris Caffery Guitars 
+Johnny Lee Middleton Bass 
+Jeff Plate Drums
+
 
 ## Отношения с другими группами
 

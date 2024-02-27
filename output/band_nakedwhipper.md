@@ -1,7 +1,42 @@
 # Naked Whipper
 
-Дискография
-"Painstreaks" 1995, Grindcore
+
+
+## Дискография
+
+### "Painstreaks" 1995, Grindcore
+
+1. Pagan Pussy Gore Intruder
+2. The Ultimate Molestator
+3. Whore Of Domination
+4. Perverse Delight
+5. Nunrider
+6. Impure
+7. Anal Queen
+8. Painstreaks
+9. Naked Whipper
+10. Hyperincest
+11. Nuclear Solutions - Creation Of A New Demonic Age
+12. Nunrider (Live)
+13. The Ultimate Molestator (Live)
+14. Whore Of Domination (Live)
+15. Perverse Delight (Live)
+16. Pagan Pussy Gore Intruder (Live)
+17. Impure (Live)
+18. Hyperincest (Live)
+19. Naked Whipper (Live)
+20. Painstreaks
+
+ Dominus A.S. - Vocals, Bass
+ Oliver Kopp - Guitars
+ Michael Teutenberg - Guitars
+ Markus Winterstein - Drums
+
+All Songs Written By NAKED WHIPPED
+Produced & Mixed By Rudi Seheitler
+
+(p)&(c) 1995 MMI Records
+
 
 ## Отношения с другими группами
 

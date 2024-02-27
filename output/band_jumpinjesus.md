@@ -1,7 +1,31 @@
 # Jumpin' Jesus
 
-Дискография
-"The Art Of Crucifying" 1991, Death Metal
+Satanic Death Metal
+
+## Дискография
+
+### "The Art Of Crucifying" 1991, Death Metal
+
+1. Out Of The Unknown
+2. Braincramps
+3. The King Of Worms
+4. Cloning The Future
+5. Chaingang
+6. Burned Offerings
+7. Important Gain
+8. Rotten Flesh
+9. Thru In4cers I`s
+10.Lost Yourself (+)
+11.The Preacher (+)
+
+(+) CD`s Version.
+Recorded At Stage 1 Studio,Germany.
+Producer: JUMPIN` JESUS & Andy Classen.
+Engineer: Andy Classen.
+Mixed By JUMPIN` JESUS & Andy Classen.
+
+(p)&(c) 1991 MORBID MUSIC / SPV
+
 
 ## Отношения с другими группами
 

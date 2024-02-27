@@ -1,17 +1,217 @@
 # Holy Moses
 
-Дискография
-"Queen Of Siam" 1986, Thrash
-"Finished With The Dogs" 1987, Thrash
-"The New Machine Of Liechtenstein" 1989, Thrash
-"World Chaos" 1990, Thrash
-"Terminal Terror" 1991, Thrash
-"Reborn Dogs" 1992, Thrash
-"No Matter What's The Cause" 1994, Thrash
-"(EP) Master Of Disaster" 2001, Thrash
-"Disorder Of The Order" 2002, Thrash
-"Strength Power Will Passion" 2005, Thrash
-"Agony Of Death" 2008, Thrash
+
+
+## Дискография
+
+### "Queen Of Siam" 1986, Thrash
+
+Necropolis 
+Don't Mess Around With The Bitch 
+Devils Dancer 
+Queen Of Siam 
+Roadcrew 
+Walpurgisnight 
+Bursting Rest 
+Dear Little Friend 
+Torches Of Hire 
+
+Sabina Classen - Lead & Backing Vocals
+Andy Classen - All Guitars, Back Vocals
+Uli Cusch  - Drums, Backing Vocals
+Raymond Brusseler - Bass
+
+(p)&(c) 1986 AAARRG Records
+
+### "Finished With The Dogs" 1987, Thrash
+
+1.  Finished With The Dogs
+2.  Current Of Death
+3.  Criminal Assault
+4.  In The Slaughterhouse
+5.  Fortress Of Desperation
+6.  Six Fat Women
+7.  Corroded Dreams
+8.  Life's Destroyer
+9.  Rest In Pain
+10.Military Service
+11.Road Crew
+
+ Sabina Classen - Lead & Backing Vocals
+ Andy Classen - All Guitars, Back Vocals
+ Uli Cusch  - Drums, Backing Vocals
+ Andre Chapelier - Bass
+
+Produced By Ralph Hubert
+
+(p)&(c) 1987 AAARRG Records
+
+### "The New Machine Of Liechtenstein" 1989, Thrash
+
+1. Near Dark    5.42
+2. Def Con II    4.15
+3. Panic     3.08
+4. Strange Deception    4.22
+5. Locky Popster    3.44
+6. SSP (Secret Service Project)   3.20
+7. State: Catatonic    3.51
+8. The Brood    2.57
+9. Lost In The Maze    5.57
+
+ Andy Classen - All Guitars, Back Vocals
+ Uli Cusch  - Drums, Backing Vocals
+ Sabina Classen - Lead & Backing Vocals
+ Tom Becker - Bass & Funkbass
+
+All Songs Arranged By Andy & Uli
+All Lyrics By Sabina & Andy
+Produced By Alex Perialas & HOLY MOSES
+Engineered By Alex Perialas & HOLY MOSES
+Mixed At Pyramid Sound Studio, Ithaca, N.Y., U.S.A.
+Executive Producer: Lotar Meid
+
+(p)&(c) 1989 WEA Music GmbH Neue Medien
+
+### "World Chaos" 1990, Thrash
+
+1. World Chaos
+2. Diabolic Plot
+3. Blood Sucker
+4. Education
+5. Guns'N Moses
+6. Too Drunk To Fuck
+7. Summer Kills
+8. Deutschland (Remeber The Past)
+9. Permission To Fire
+10. Jungle Of Lies
+11. Dog Eat Dog
+12. (You Gotta) Fight Your Right (To Party)
+
+ Sabina - Vocals
+ Andy - Guitars
+ Tom - Bass
+ Uli - Drums
+
+Produced By Andy Classen
+Engineered By Will Reid Dick
+Mixed By Harris Johns
+
+(p)&(c) 1990
+
+### "Terminal Terror" 1991, Thrash
+
+1.   Nothing For My Mum  04:06    
+2.   Two Sides Terror  04:47    
+3.   Meotoxy (Terminal Terror)  03:50    
+4.   Creation Of Violation  04:43    
+5.   Pool Of Blood  03:47    
+6.   Adistress And Death  04:55    
+7.   Adultmachine  04:15    
+8.   Malicious Race  03:01    
+9.   Tradition Of Fatality  02:55  
+
+
+### "Reborn Dogs" 1992, Thrash
+
+1. Clash My Soul    2.27
+2. Decapitated Mind    3.32
+3. Welcome To The Real World   3.33
+4. Reborn Dogs    3.45
+5. Fuck You    3.26
+6. Third Birth    3.11
+7. Deadicate    4.12
+8. Five Year Plan*    3.48
+9. Process Of Pain    3.01
+10.Reverse     3.10
+11.Dancing With The Dead   5.25
+
+ Sabina - Leadvocals
+ Andy - Guitars & Back. Vocals
+ Benny - Bass
+ Sven - Drums
+
+All Songs By Andy & Sabina Classen
+Except * By D.R.I.
+Produced, Engineered & Mixed By Andy Classen
+At Stage 1 Studio, Buhne, Germany
+
+(p)&(c) 1992 WEST VIRGINIA Records
+
+### "No Matter What's The Cause" 1994, Thrash
+
+1.   Upon Your Tongue  01:03  
+2.   A Word To Say  02:06  
+3.   Step Ahead  02:36  
+4.   Acceptance  03:55  
+5.   Just Because  02:43  
+6.   What's Up  02:41  
+7.   Senseless One  01:41  
+8.   Denial  01:49  
+9.   Hate Is Just A 4 Letter Word  06:18  
+10.   On You  03:00  
+11.   I Feel Sick  03:26  
+12.   No Solution  02:09  
+13.   Bomber 
+
+
+### "(EP) Master Of Disaster" 2001, Thrash
+
+1. Master Of Disaster  03:36  
+2. Taste My Blood  02:58  
+3. The Hand Of Death  03:44  
+4. Feel The Pain  03:52  
+5. Down On Your Knees  03:18  
+
+Sabina Classen - Female vocals from hell
+Franky Brotz - Rhythm guitars
+Joern Schubert - Lead guitars
+Jochen Fьnders - Bass
+Julien Schmidt - Drums
+
+### "Disorder Of The Order" 2002, Thrash
+
+1. Intro
+2. We Are at War
+3. Disorder of the Order
+4. Break the Evil
+5. Deeper
+6. Hell on Earth
+7. I Bleed
+8. Blood Bond
+9. 1.000 Lies
+10. Princess of Hell
+11. Verfolgungswahn
+12. Heaven vs. Hell
+
+
+Sabina Classen - Female Vocals From Hell 
+Franky Brotz - Rhythm Guitars 
+Joern Schubert - Lead Guitars 
+Andreas Libera - Bass 
+Julien Schmidt - Drums 
+
+
+
+
+### "Strength Power Will Passion" 2005, Thrash
+
+01. Angel Cry
+02. End Of Time
+03. Symbol Of Spirit
+04. Examination
+05. I will
+06. Space Clearing
+07. Sacred Crystals
+08. Lost Inside
+09. Death Bells II
+10. Rebirthing
+11. Seasons In The Twilight
+12. Say Goodbye
+
+### "Agony Of Death" 2008, Thrash
+
+
+
 
 ## Отношения с другими группами
 

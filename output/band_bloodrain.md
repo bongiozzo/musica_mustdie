@@ -1,11 +1,70 @@
 # Bloodrain
 
-Дискография
-"De Vermis Mysteriis" 2001, Black Metal
-"Bloodrain II : Ultimatum" 2003, Black Metal
-"Bloodrain III: Nomen Nostrum Legio" 2006, Black Metal
-"Bloodrain IV: Hostis Humani Generis" 2010, Black Metal
-"Bloodrain V: Adora Satanae" 2016, Black Metal
+
+
+## Дискография
+
+### "De Vermis Mysteriis" 2001, Black Metal
+
+1. Бессмертный (Undead)	 
+2. De Vermis Mysteriis	 
+3. Зов (The Call) 
+4. Путь Скорби (The Path of Grief)	 
+5. Ворон (Raven)	 
+6. Волшебница Ночь (The Night Enchantress)	 
+7. Сердце Тьмы (Heart of Darkness)	 
+8. Deathcrush (Mayhem cover)
+9. Дети Чёрной Зари (Children of the Black Dawn)
+
+### "Bloodrain II : Ultimatum" 2003, Black Metal
+
+1. Направление (Towards) (Intro) 
+2. Ты В Каждом Из Нас (You Are in Each of Us)	 
+3. Сияние Извне (The Shining from Beyond)	 
+4. Тучи Над Россией (Clouds Over Russia)	 
+5. Под Звездой Люцифера (Under the Lucifer's Star)	 
+6. Зазеркалье (Beyond the Looking-Glass)	 
+7. Тёмный Дар (The Dark Gift)	 
+8. Танатофилия (Thanatophilia)	 
+9. Bringer of Torture (Kreator cover)
+10. Лейся, Кровь! (Let the Blood Spills!)
+
+### "Bloodrain III: Nomen Nostrum Legio" 2006, Black Metal
+
+1. Воля Бафомета (Will Of Baphomet)	 
+2. Сладкая Смерть (Sweet Death)	 
+3. Крик (Scream)	 
+4. Пленник Прошлого (Prisoner Of The Past)	 
+5. Изгнанник (Exile)	 
+6. Лики Зла (Images Of Evil)	 
+7. Spilling Holy Blood (Profanatica cover)	 
+8. Прокажённая Душа (The Lepersoul)
+
+### "Bloodrain IV: Hostis Humani Generis" 2010, Black Metal
+
+1. Вместо Предисловия (Instead Of An Introduction)	 
+2. Умри Молодым (Die Young) 
+3. Былина (Old Legend)	 
+4. Изгой (Outsider)
+5. Один Воин В Поле (Even One Can Win)	 
+6. Сила Ненависти (Force Of Hatred)	 
+7. Нить Над Бездной (Threat Over The Abyss) 
+8. Триумф Хаоса (Triumph Of Chaos)	 
+9. Iron Maiden (Iron Maiden cover)	 
+10. Злой На Весь Мир (Angry With The Entire World)
+
+### "Bloodrain V: Adora Satanae" 2016, Black Metal
+
+1. Горизонт событий (Event Horizon) 
+2. Чёрное будущее (Black Future) 	 
+3. Разумное, злое, вечное (Sapiential, Evil, Eternal)  
+4. Пытка жизнью (Torture with Life) 
+5. Мой ад (My Hell) 
+6. Хранитель вечности (Keeper of Eternity) 	 
+7. Над совиным ручьём (By the Owl Creek)  
+8. У зла нет границ (Evil Has No Boundaries) (Slayer cover) 	 
+9. Вне закона, вне морали (Beyond Law, Beyond Morals) 
+
 
 ## Отношения с другими группами
 

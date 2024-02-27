@@ -1,10 +1,45 @@
 # The Sins of Thy Beloved
 
-Дискография
-"demo" 1997, Doom
-"All Alone" 1998, Doom
-"Lake Of Sorrow" 1999, Doom
-"Perpetual Desolation" 2000, Death Doom
+
+
+## Дискография
+
+### "demo" 1997, Doom
+
+01 Even Though
+02 Garden Of Eden
+03 Silent Pain
+
+### "All Alone" 1998, Doom
+
+01 All Alone...
+02 Memories
+03 Worthy Of You...
+
+
+### "Lake Of Sorrow" 1999, Doom
+
+01 My Love
+02 The Kiss
+03 Worthy Of You
+04 Lake Of Sorrow
+05 Until The Dark
+06 All Alone
+07 Silent Pain
+
+### "Perpetual Desolation" 2000, Death Doom
+
+1. The Flame Of Wrath
+2. Forever
+3. Pandemonium
+4. Partial Insanity
+5. Perpetual Desolation
+6. Nebula Queen
+7. The Mournful Euphony
+8. A Tormented Soul
+9. The Thing That Should Not Be
+
+
 
 ## Отношения с другими группами
 

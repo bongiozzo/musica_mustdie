@@ -1,7 +1,13 @@
 # Aisling
 
-Дискография
-"Aisling" 2002, Black Metal
+Pagan Metal from Italy
+
+## Дискография
+
+### "Aisling" 2002, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

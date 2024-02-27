@@ -1,8 +1,25 @@
 # Lifend
 
-Дискография
-"Entwined Emotion (Promo 2001)" 2001, Gothic
-"Innerscars" 2005, Gothic
+Death-gothic metal band from Italy
+
+## Дискография
+
+### "Entwined Emotion (Promo 2001)" 2001, Gothic
+
+
+
+### "Innerscars" 2005, Gothic
+
+01. Inner Scars 
+02. Absence 
+03. Blood- Red Pain 
+04. Shattering:Assurance 
+05. In Darkness I Bleed (Instrumental) 
+06. Open Wound 
+07. Memorie 
+08. Spiral Dance 
+09. Congedo (Outro)
+
 
 ## Отношения с другими группами
 

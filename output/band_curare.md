@@ -1,7 +1,13 @@
 # Curare
 
-Дискография
-"Radical Accion" 2009, Thrash
+
+
+## Дискография
+
+### "Radical Accion" 2009, Thrash
+
+
+
 
 ## Отношения с другими группами
 

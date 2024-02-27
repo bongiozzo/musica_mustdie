@@ -1,9 +1,49 @@
 # Bloodsoaked
 
-Дискография
-"Brutally Butchered" 2007, Deathcore
-"Sadistic Deeds... Grotesque Memories" 2009, Deathcore
-"The Death Of Hope" 2011, Deathcore
+
+
+## Дискография
+
+### "Brutally Butchered" 2007, Deathcore
+
+1. Killing You  03:46  
+2. Sexual Mutilation  03:05   
+3. Covered in Blood  03:03   
+4. Brutally Butchered  05:06 
+5. Suffocating the Unborn  04:34 
+6. Self Mutilation  03:49   
+7. Grinding Your Guts  04:35   
+8. Bled to Death  02:10 
+9. Devastation Death  00:52 
+
+### "Sadistic Deeds... Grotesque Memories" 2009, Deathcore
+
+1. Rotting in Filth  03:31   Show lyrics  
+  (loading lyrics...) 
+2. Suicide  03:40   Show lyrics  
+  (loading lyrics...) 
+3. Existence Denied  04:34   
+4. Grotesque Memories  02:32   
+5. Rise with Me  02:59  
+6. Depression  03:07   
+7. My Own God  03:10 
+8. Unborn Horror  02:59  
+9. Blind Date Beating  01:29    
+10. Gates to Hell (Obituary Cover)  02:58 
+
+### "The Death Of Hope" 2011, Deathcore
+
+1. Lies    
+2. Forever Damned
+3. No God      
+4. Infestation     
+5. Consume The Flesh 
+6. Mauled     
+7. The Death of Hope      
+8. Wading The Blood Pools 
+9. Obsessed With Hate      
+10. Grinding Your Guts  
+
 
 ## Отношения с другими группами
 

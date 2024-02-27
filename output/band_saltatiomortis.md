@@ -1,14 +1,133 @@
 # Saltatio Mortis
 
-Дискография
-"Tavernakel" 2001, Folk
-"das Zweite Gesicht" 2002, Folk
-"Heptessenz" 2003, Folk
-"Erwachen" 2004, Folk
-"Des Kenigs Henker" 2005, Folk
-"Aus der Asche" 2007, Folk
-"Wer Wind sot" 2009, Folk
-"Sturm Auf Paradies" 2011, Folk
+Folk-pop-dance
+
+## Дискография
+
+### "Tavernakel" 2001, Folk
+
+1. Des Todes Tanz 05:12  
+2. In Taberna 02:21 
+3. Belicha 01:28  
+4. Bдrentanz 04:18  
+5. Leporina Venatio 03:30
+6. Saltarelli 04:14  
+7. Stella Splendens 02:50  
+8. Totus Floreo 02:57
+9. Maitre De La Maison 02:52  
+10. Schirazula/Neva Chengi Harbe 04:37  
+11. Skudrinka 03:39  
+12. A Kenavo 03:53  
+13. Des Todes Abgang 02:13 
+
+### "das Zweite Gesicht" 2002, Folk
+
+1. Intro 01:05  
+2. Junges Blut 03:56 
+3. Heuchler 03:46 
+4. Dunkler Engel 04:03
+5. Der Ruf 05:00 
+6. Skudrinka 04:02  
+7. Zeit 03:51
+8. Mea Culpa 04:07
+9. Sehnsucht 04:41 
+10. Stella Splendens 02:57  
+11. Licht und Schatten 04:31
+12. Equinox 04:08 
+
+### "Heptessenz" 2003, Folk
+
+1. Der Merseburger Zauberspruch 04:44  
+2. Heptessenz 03:03  
+3. Theophanus-Tanz 03:48  
+4. Dessous Le Ponte De Nante 03:14 
+5. Cantiga Alhambra 02:47  
+6. Danza Del Rey 04:13  
+7. A Matre 05:02  
+8. Veitstanz 03:39  
+9. Chaperon Rouge 04:26  
+10. Welscher Weibertanz 04:23  
+11. Palдstinalied (Via Infernale) 04:59
+12. Valete 02:31 
+
+### "Erwachen" 2004, Folk
+
+Alea der Bescheidene - Vocals, Bagpipes, Shawm
+Dominor der Filigrane - Bagpipes, Shawm,
+Programming
+Die Fackel - Bagpipes, Shawm, Lute, Harp,
+Keyboards, Bass, Programming
+Falk Irmenfried v. Hasen-Mьmmelstein – Vocals,
+Hurdy-gurdy
+Ungemach der Missgestimmte - Bagpipes, Shawm,
+Guitars
+Lasterbalk der Lдsterliche - Davul, Kettle Drums,
+Drums, Percussion, Programming
+Thoron Trommelfeuer - Darabuka, Drums, Percussion
+
+### "Des Kenigs Henker" 2005, Folk
+
+01. Des Konigs Henker
+02. Salz der Erde
+03. Rette mich
+04. Verfuhrer
+05. Vergiss mein nicht
+06. Tote Augen
+07. Tritt ein
+08. Mondlicht
+09. Ecce Gratum
+10. Keines Herren Knecht
+11. Fur Dich
+12. Die Hoffung stribt zulezt
+13. Equinox (unplugged)
+
+### "Aus der Asche" 2007, Folk
+
+1. Prometheus 04:31
+2. Spielmannsschwur 03:23
+3. Uns Gehцrt Die Welt 03:46
+4. Sieben Raben 04:01
+5. Vaulfen 04:45
+6. Irgendwo In Meinem Geiste 04:11
+7. Koma 04:07 
+8. Wirf Den Ersten Stein 03:22
+9. Tod Und Teufel 03:46
+10. Choix Des dames 03:03 
+11. Worte 04:22
+12. Kelch Des Lebens 03:20
+13. Nichts Bleibt Mir 03:33 
+
+### "Wer Wind sot" 2009, Folk
+
+1. Ebenbild 05:14  
+2. Salome 05:00  
+3. La Jument De Michao 03:31  
+4. Letzte Worte 04:30  
+5. Kaltes Herz 03:58  
+6. Rastlos 04:02  
+7. Miststьck 04:25  
+8. Tief In Mir 04:28  
+9. Aus Trдumen Gebaut 04:47  
+10. Manus Manum Lavat 03:44  
+11. Vergessene Gцtter 03:47  
+12. Wir Sдen Den Wind 04:31 
+
+### "Sturm Auf Paradies" 2011, Folk
+
+Habgier und Tod
+Hochzeitstanz
+Ode an die Feindschaft
+Eulenspiegel
+S?ndenfall
+Nachtigall und Rose
+Gott w?rfelt nicht
+Nach Jahr und Tag
+Orpheus
+Spiel mit dem Feuer
+Fiat Lux
+Der letzte Spielmann
+Wieder unterwegs
+
 
 ## Отношения с другими группами
 

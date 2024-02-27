@@ -1,7 +1,26 @@
 # Lalu
 
-Дискография
-"Oniric Metal" 2005, Progressive
+progressive
+
+## Дискография
+
+### "Oniric Metal" 2005, Progressive
+
+1. Yesterdayman 
+2. Wolven Eyes 
+3. Windy 
+4. Night In Poenari 
+5. Moonstruck (The Soulish Element) 
+6. Timestop 
+7. Star Watcher 
+8. Potboy: The Final Fantasy
+
+Martin LeMar - vocals 
+Vivien Lalu - Keys 
+Joop Wolters - guitars 
+Russell Bergquist - bass 
+Ryan Van Poederooyen - drums
+
 
 ## Отношения с другими группами
 

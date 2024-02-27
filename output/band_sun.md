@@ -1,7 +1,27 @@
 # Sun
 
-Дискография
-"Nitro" 1996, Alternative
+Alternative Core
+
+## Дискография
+
+### "Nitro" 1996, Alternative
+
+1.  Chroma
+2.  Eighteen
+3.  Accelerator
+4.  Luna
+5.  Six Reasons Why I Cannot Even Stand Your Pure Presence
+6.  Brutal Killer
+7.  Good Morning You Are Braindead
+8.  Nervous
+9.  TV's Talking Bullshit
+10.Helmet
+11.Nitro Schlangtanz
+12.Look For Your Hell, And Find It
+13.Start
+
+(p)(c) 1996 GUN  Records GUN 092
+
 
 ## Отношения с другими группами
 

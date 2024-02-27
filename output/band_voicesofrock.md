@@ -1,7 +1,33 @@
 # Voices Of Rock
 
-Дискография
-"MMVII" 2007, Hard Rock
+
+
+## Дискография
+
+### "MMVII" 2007, Hard Rock
+
+1. JAMES CHRISTIAN - Voodoo Woman; 
+2. JEAN BEAUVOIR - Wild Thing; 
+3. TERRY BROCK - Nightingale; 
+4. DAN REED - Over And Done; 
+5. JOHNNY GIOELI - Phoenix Rising; 
+6. HARRY HESS - Irresistible; 
+7. GORAN EDMAN - China In Your Hands; 
+8. ROBIN BECK - Underloved; 
+9. STEVE OVERLAND - Slip Away; 
+10. GARY BARDEN - Love Is Blind
+
+All songs written by Chris Lausmann and Michael Voss
+Produced by Chris Lausmann and Michael Voss
+Engineered by Chris Lausmann
+
+Michael Voss - Lead Guitars, Acoustic Guitars
+Chris Lausmann - Guitars, Bass, Keyboards
+Bertram Engel - Drums
+Angel G.Schleifer - Lead Guitars
+Tommy Denander - Lead Guitars
+
+
 
 ## Отношения с другими группами
 

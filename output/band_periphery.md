@@ -1,10 +1,25 @@
 # Periphery
 
-Дискография
-"Periphery" 2010, Progressive
-"Periphery II: This Time It’s Personal!" 2012, Progressive
-"Juggernaut: Alpha + Omega" 2015, Progressive
-"Periphery III: Select Difficulty" 2016, Progressive
+
+
+## Дискография
+
+### "Periphery" 2010, Progressive
+
+
+
+### "Periphery II: This Time It’s Personal!" 2012, Progressive
+
+
+
+### "Juggernaut: Alpha + Omega" 2015, Progressive
+
+
+
+### "Periphery III: Select Difficulty" 2016, Progressive
+
+
+
 
 ## Отношения с другими группами
 

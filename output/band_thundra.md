@@ -1,9 +1,50 @@
 # Thundra
 
-Дискография
-"Blood Of Your Soul" 2000, Black Metal
-"Worshipped by Chaos" 2006, Black Metal
-"Ignored by Fear" 2009, Viking Metal
+
+
+## Дискография
+
+### "Blood Of Your Soul" 2000, Black Metal
+
+01. Infernal 
+02. Frozen Ground 
+03. Soulseeker 
+04. Blood Of Your Soul 
+05. Empreal Empress Of War 
+06. With Power And Might 
+07. Reborn 
+08. Raevenrealm 
+
+Line-Up: 
+Steven Grindhaug - Growl/Clean Vocals 
+Thor Erik Helgesen - Grim Vocals/Guitar 
+Rune Fredriksen - Guitar 
+Stein Sund - Bass 
+Harald Magne Revheim - Drums 
+Nils Harald Johansen - Synth
+
+### "Worshipped by Chaos" 2006, Black Metal
+
+1. On Thorns 04:35
+2. Feelings Lost 07:18
+3. Hatred Declared 08:10
+4. Silent Voice 06:25 
+5. At Autumn's Fall 06:43
+6. Shattered Senses 04:59
+7. Symphony of Anguish 07:54
+8. The Existing Darkness 06:40
+9. Worshipped by Chaos 05:13 
+
+### "Ignored by Fear" 2009, Viking Metal
+
+1. Inner Struggle 09:04  
+2. Storm Within 07:55  
+3. Formed By Power 06:35  
+4. Scarred 06:51  
+5. As I 04:59  
+6. Suffocation 05:22  
+7. The Gate 06:54 
+
 
 ## Отношения с другими группами
 

@@ -1,13 +1,166 @@
 # Bon Jovi
 
-Дискография
-"Bon Jovi" 1984, Hard Rock
-"7800? Fahrengheit" 1985, Hard Rock
-"Slippery When Wet" 1986, Hard Rock
-"New Jersey" 1988, Hard Rock
-"Keep the Faith" 1992, Hard Rock
-"These Days" 1995, Hard Rock
-"Crush" 2000, Hard Rock
+
+
+## Дискография
+
+### "Bon Jovi" 1984, Hard Rock
+
+1.  Runaway
+2.  Roulette
+3.  She Don't Know Me
+4.  Shot Through the Heart
+5.  Love Lies
+6.  Breakout
+7.  Burning for Love
+8.  Come Back
+9.  Get Ready
+
+Jon Bon Jovi - Vocals, Guitars
+David Rashbaum - Keyboards, Back Vocals
+Richie Sambora - Guitars, Back Vocals
+Alec John Such - Bass, Back Vocals
+Tico Torres - Drums
+
+(P)c 1984
+
+### "7800? Fahrengheit" 1985, Hard Rock
+
+1.  In and out of Love
+2.  Prince of Love
+3.  Only Lonely
+4.  King of the Mountains
+5.  Silent Night
+6.  Tokyo Road
+7.  Hardest Part Is the Night
+8.  Always Run to You
+9.  To the Fire
+10.  Secret Dreams
+
+Jon Bon Jovi - Vocals, Guitars
+David Bryan - Keyboards, Back Vocals
+Richie Sambora - Guitars, Back Vocals
+Alec John Such - Bass, Back Vocals
+Tico Torres - Drums
+
+(P)c 1985
+
+### "Slippery When Wet" 1986, Hard Rock
+
+1.  Let It Rock
+2.  You Give Love a Bad Name
+3.  Livin' on a Prayer
+4.  Social Disease
+5.  Wanted Dead or Alive
+6.  Raise Your Hands
+7.  Without Love
+8.  I'd Die for You
+9.  Never Say Goodbye
+10.  Wild in the Streets
+
+Jon Bon Jovi - Vocals, Guitars
+David Bryan - Keyboards, Back Vocals
+Richie Sambora - Guitars, Back Vocals
+Alec John Such - Bass, Back Vocals
+Tico Torres - Drums
+
+(P)c 1986
+
+### "New Jersey" 1988, Hard Rock
+
+1.  Lay Your Hands on Me
+2.  Bad Medicine
+3.  Born to Be My Baby
+4.  Living in Sin
+5.  Blood on Blood
+6.  Homebound Train
+7.  Wild Is the Wind
+8.  Ride Cowboy Ride
+9.  Stick to Your Guns
+10.  I'm Be There for You
+11.  99 in the Shade
+12.  Love for Sale
+
+Jon Bon Jovi - Vocals, Guitars
+David Bryan - Keyboards, Back Vocals
+Richie Sambora - Guitars, Back Vocals
+Alec John Such - Bass, Back Vocals
+Tico Torres - Drums
+
+(P)c 1988
+
+### "Keep the Faith" 1992, Hard Rock
+
+1.  I Believe
+2.  Keep the Faith
+3.  I'll Sleep When I'm Dead
+4.  In These Arms
+5.  Bed of Roses
+6.  If I Was Your Mother 
+7.  Dry County
+8.  Woman in Love
+9.  Fear
+10.  I Want You
+11.  Blame It on the Love of Rock'N'Roll
+12.  Little Bit of Soul
+13.  Save a Prayer
+
+Jon Bon Jovi - Vocals, Guitars
+David Bryan - Keyboards, Back Vocals
+Richie Sambora - Guitars, Back Vocals
+Alec John Such - Bass, Back Vocals
+Tico Torres - Drums
+
+(P)c 1992
+
+### "These Days" 1995, Hard Rock
+
+CD1:
+
+01. Hey God
+02. Something for the Pain
+03. This Ain't a Love Song
+04. These Days
+05. Lie to Me
+06. Damned
+07. My Guitar Lies Bleeding in My Arms
+08. (It's Hard) Letting You Go
+09. Hearts Breaking Even
+10. Something to Believe In
+11. If That's What It Takes
+12. Diamond Ring
+13. All I Want Is Everything
+14. Bitter Wine
+
+CD2:
+
+01. Fields of Fire (Demo)
+02. I Thank You
+03. Mrs. Robinson
+04. Let's Make It Baby (Demo)
+05. I Don't Like Moondays (Live)
+06. Crazy (Live)
+07. Tumblin' Dice (Live)
+08. Heaven Help Us (Live)
+
+### "Crush" 2000, Hard Rock
+
+01. It's My Life
+02. Say Isn't So
+03. Thank You for Loving
+04. Two Story Town
+05. Next 100 Years
+06. Just Older
+07. Mystery Train
+08. Save the World
+09. Captain Crush & The Beauty Queen from Mars
+10. She's a Mystery
+11. I Got the Girl
+12. One Wild Night
+13. If Could Make a Loving out of Lovin' You*
+
+* - Bonus track for European/Japanese release
+
 
 ## Отношения с другими группами
 

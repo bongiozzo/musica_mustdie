@@ -1,7 +1,21 @@
 # Imbrue
 
-Дискография
-"Cado Datur Verbs" 2005, Death Metal
+
+
+## Дискография
+
+### "Cado Datur Verbs" 2005, Death Metal
+
+1. Exitus 04:38  
+2. Reb Blood Colour 03:59  
+3. Traumatos Ek Pronoias 03:36  
+4. Behind the Flight of Locus 04:27  
+5. Nothingness Is Her Smile 05:06  
+6. Those Calm Moments Before the Storm 05:15  
+7. Inherent 04:41  
+8. The Pleasure of Pain 03:53  
+9. Given to the Worms 05:09 
+
 
 ## Отношения с другими группами
 

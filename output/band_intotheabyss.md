@@ -1,8 +1,50 @@
 # Into The Abyss
 
-Дискография
-"The Feathered Snake" 1995, Gothic
-"adrenochrome" 2001, Gothic
+
+
+## Дискография
+
+### "The Feathered Snake" 1995, Gothic
+
+1. Resignation To The Void
+2. Crimes In Advance
+3. The Eternal Heat
+4. La Sceur D'Icare
+5. Captivity
+6. Dragon Snake
+7. Flight Of Quetzalxoatl
+8. Carousel
+
+All Songs By INTO THE ABYSS.
+Produced By Gordon Friedrich & INTO THE ABYSS.
+Engibneered By Jan Schonewolf.
+Recorded & Mixed At Hazelwood Studio.
+
+Janis Kalifatidis - Vocals,Guitars
+Kostas Tzeras - Bass
+Jens Gellner - Drums
+Helmut Eckstein - Violin
+Gordon Friedrich - Piano
+
+(P)&(C) 1995 GLASNOST Records
+
+### "adrenochrome" 2001, Gothic
+
+1. Alexandria 04:46 
+2. First Rebellion 10:16 
+3. Banner Of The Fray 4:35 
+4. The Eternal Heat 08:25 
+5. Lunar Drive 04:15 
+6. Venus In Furs 07:39 
+Medley: 
+7. The Cylcotron 03:00 
+8. Crystal Eclipse 04:49 
+9. Psychopompe 04:38 
+10. Hermanubis 06:08 
+Encore: 
+11. La Soeur d' Icare 04:31 
+12. Whirl Of The Aeons 08:40 
+
 
 ## Отношения с другими группами
 

@@ -1,12 +1,120 @@
 # Sacred Sin
 
-Дискография
-"Darkside" 1993, Death Doom
-"Eye M God" 1995, Death Doom
-"Anguish... I Harvest" 1999, Death Doom
-"Translucid Dream Mirror" 2001, Death Doom
-"Mastery of Holy Imperial Art " 2002, Death Doom
-"Hekaton - the Return to Primordial Chaos" 2003, Death Doom
+
+
+## Дискография
+
+### "Darkside" 1993, Death Doom
+
+1. Darkside 02:55  
+2. In the veins of rotting flesh 03:46  
+3. Ode to my crucifying lord 02:22  
+4. Deliverance 00:59  
+5. The chapel of lost souls 03:45  
+6. Requiem...for mankind 04:26  
+7. Gravestone without name 03:08  
+8. Suffocate in torment 04:09  
+9. Life / a process revealed 04:07  
+10. Terminal collapse 05:03  
+11. A monestary in darkness 01:42  
+12. The shades behind 03:54 
+
+### "Eye M God" 1995, Death Doom
+
+1.  Evocation Of The Depraved
+2.  Inductive Compulsion
+3.  Eye M God
+4.  Death-Bearing Machine
+5.  The Nightlag (Noctumal Queen)
+6.  One With God
+7.  Guilt Has No Past
+8.  A Human Jigsaw
+9.  Link To Nothingness
+10.Dead Mind Breed
+11.To The Endless Path Of Hecate
+
+Produced, Engineered and Mixed by Marsten Bailey
+Recorded and Mixed at Angel 2 Studios
+Cover artwork by Rui Lacas and Joao Biscaia
+
+To Pica - Guitars
+Carlos C. - Keyboards, Guitar Synth
+Jose Costa - Bass, Vocals
+Quito Nishal - Guitars
+Nuno - Drums
+
+(P)c 1995 DINAMITE // DT 95012
+
+### "Anguish... I Harvest" 1999, Death Doom
+
+1. Ghoul plagued darkness 04:20  
+2. 13th moon 02:23  
+3. Lead of insects 03:18  
+4. Fire throne 04:10  
+5. Profane 02:53  
+6. Hope (still searching) 04:34  
+7. Aghast 03:52  
+8. Astral 04:40  
+9. Feathers Black 04:19  
+10. The shinning trapezoid 06:23  
+11. Seal of nine 04:19 
+
+### "Translucid Dream Mirror" 2001, Death Doom
+
+1. Translucid Dream Mirror 04:46  
+2. Clef des Grands Misteres 04:24  
+3. Ravish the Soul 02:47  
+4. Sukunft Kenntnis 00:48  
+5. Gift of Second Sight 03:48  
+6. Maleficent Genii 03:58  
+7. Extra-natural Mediator 03:12  
+8. Mei Lacrimae In Tenebrae 04:57  
+9. Transmutation Sphera Lunae Sempiternum 04:54  
+10. By the Wyvern We Flowed 07:17  
+11. Prelude to Phenomena 00:48  
+12. Unbridled Hate 02:48  
+13. The Shadow Gate 05:40 
+
+### "Mastery of Holy Imperial Art " 2002, Death Doom
+
+1. Hephaistus Blast For Satan 04:10  
+2. The Avatars of Vishnu 05:30  
+3. Twilight Inside 04:40  
+4. Translucid Dream Mirror 04:16  
+5. Ravish the Soul 02:43  
+6. Ghoul Plagued Darkness 04:19  
+7. 13th Moon 02:21  
+8. Profane 02:52  
+9. Evocation of the Depraved 03:17  
+10. Eye M God 02:29  
+11. Human Jigsaw 03:43  
+12. Darkside 02:56  
+13. The Chapel of the Last Souls 03:40  
+14. Suffocate in Torment 03:57  
+15. A Monastery in Darkness - The Shades Behind 05:56  
+16. Day of Suffering 01:57  
+17. The Chanting of the Priest 04:24  
+18. The Death of Innocence 03:45  
+19. Evil Has No Boundaries 02:49  
+20. Diabo Na Mo 02:52 
+
+### "Hekaton - the Return to Primordial Chaos" 2003, Death Doom
+
+1. Hekaton - the return to primordial chaos 06:00  
+2. Apsaras (temptation of the abyssic nymphs) 04:35  
+3. The avatars of vishnu 05:29  
+4. Hephaistus, blast for satan 04:08  
+5. Sin with the daughters of men 04:55  
+6. Hermetic arkanum - the eucharist of the dead 06:27  
+7. Nefelheim, abode of mist 06:58  
+8. Hiperborean odes 04:20  
+9. Pure land 05:02  
+10. Twilight insight (new 2002 version) 04:59  
+11. Carnage forsaken (new 2002 version)   
+12. Abominations (MORBID ANGEL cover version) 
+13. Day of suffering (MORBID ANGEL cover version) 02:00
+14. Spiritual healing (DEATH cover version) 07:27 
+
 
 ## Отношения с другими группами
 

@@ -1,16 +1,150 @@
 # Boney NeM
 
-Дискография
-"Melodies And Rhythms Of World Pop" 1995, Thrash
-"Melodies And Rhythms Of World Pop. Vol. 2" 1997, Thrash
-"ни "Бэ", ни "Мэ" или "в мире животных"" 2000, Thrash
-"The Very Best of Greatest Hits" 2001, Alternative
-"День Победы" 2003, Industrial
-"Romantic Collection" 2003, Metal
-"Крайняя Плоть" 2005, Metal
-"Нас не догонят" 2006, Metal
-"Тяжелые песни о главном, часть 1" 2007, Metal
-"Тяжелые песни о главном, часть 2" 2008, Metal
+
+
+## Дискография
+
+### "Melodies And Rhythms Of World Pop" 1995, Thrash
+
+1. Sunny
+2. Felicita
+3. Tous Les Enfants Chanten Avec Mou
+4. Cara Mia
+5. Voyage
+6. Hafanana
+7. Lete Indien
+8. It's My Life
+9. One Way Ticket
+10.I'm Survive
+11.Words
+12.I Just Called To Say I Love You
+[13].Hooray! Hooray! It's A Holi-Holiday
+
+(P)&(C) 1995
+
+### "Melodies And Rhythms Of World Pop. Vol. 2" 1997, Thrash
+
+1. Синева
+2. Спокойный отец
+3. От сувениров к сувенирам
+4. Разноцветные ярмарки
+5. Огонек в ночи
+6. Рамая
+7. Когда я поцеловал учителя
+8. Простите мне мой детский каприз
+9. Жизнь - это жизнь
+10. Фантазия
+11. Симфония
+
+Бонусы:
+
+12. Жизнь в любви
+13. Каскадеры
+
+
+### "ни "Бэ", ни "Мэ" или "в мире животных"" 2000, Thrash
+
+1. В мире животных
+2. Living la vida loca
+3. And I love her (на нем. языке)
+4. Плачет девочка с автоматом (на нем. языке)
+5. Strangers in the night
+6. Замок из дождя
+7. You're my heart, you're my soul
+8. Jamaica
+9. Уноси готовенького
+10. We are the world, we are the children
+
+Бонус:
+
+11. Unbreak my heart
+
+
+### "The Very Best of Greatest Hits" 2001, Alternative
+
+01. It's My Life
+02. Felicita
+03. L'ete Indien
+04. Words
+05. Voyage, Voyage
+06. Pardonne-Moi Ce Caprice D'enfant
+07. Kolorowe Jarmarki
+08. Flash In The Night
+09. Symphony
+10. Une Vie D'amour
+11. Jamaica
+12. Strangers In The Night
+13. And I Love Her
+14. Плачет Девочка с Автоматом
+15. Замок из Дождя
+16. Яблоки На Снегу
+
+Bonus Tracks
+17. Яблоки На Снегу (Remix)
+18. Плачет Девочка с Автоматом (Remix)
+
+Extra Bonus Track
+19. Чип и Дейл Спешат на Помощь!!!
+
+### "День Победы" 2003, Industrial
+
+
+
+### "Romantic Collection" 2003, Metal
+
+
+
+### "Крайняя Плоть" 2005, Metal
+
+
+
+### "Нас не догонят" 2006, Metal
+
+Антошка
+У природы нет плохой погоды
+Нас не догонят
+Любочка
+Мочалкин блюз
+Только этого мало
+Соловьиная роща
+Чито-Грито Маргалито
+Если у Вас нету тёти
+Уч-кудук
+Увезу тебя я в Тундру
+Лаванда
+Чунга-Чанга
+Кострома Mon Amour
+Яблоки на снегу
+Пей водку!
+Гадалка
++ бонус треки
+Амадеус
+А в цеху его нет!...
+Не бывать добру
+Да, сам ты, Наташа!
+
+### "Тяжелые песни о главном, часть 1" 2007, Metal
+
+
+
+### "Тяжелые песни о главном, часть 2" 2008, Metal
+
+Манхэтан?
+Вологда-гда!
+Наш адрес – Советский Союз
+Боль моя
+Мы начинаем КВН
+Ну-ка мечи стаканы на стол
+Я – Кипелов!!!!!!!!!!!!!!!
+Песня Красной Шапки
+Рейкьявик
+Три коня
+Валенки
+Каламбия Пикчерс Охреневает!
+Эй, ухнем!
+Воля и разум (бонус трек)
+Новорожденный огонь (бонус трек)
+
 
 ## Отношения с другими группами
 

@@ -1,16 +1,67 @@
 # Abigail
 
-Дискография
-"Abigail /demo/" 1992, Black Metal
-"Blasphemy Night /demo/" 1993, Black Metal
-"Descending From A Black End Sky /EP/" 1993, Black Metal
-"Screaming For Grace" 1995, Black Metal
-"Confound Eternal /EP/" 1996, Black Metal
-"Intercourse And Lust" 1997, Black Metal
-"Together We Summon The Dark" 1997, Black Metal
-"Abigail/Barbatos: Sexual Mental Holocaust /split/" 2002, Black Metal
-"Abigail/Witchburner /split/" 2002, Black Metal
-"Welcome All Hellfuckers /EP/" 2002, Black Metal
+Japanese black-metal
+
+## Дискография
+
+### "Abigail /demo/" 1992, Black Metal
+
+
+
+### "Blasphemy Night /demo/" 1993, Black Metal
+
+
+
+### "Descending From A Black End Sky /EP/" 1993, Black Metal
+
+
+
+### "Screaming For Grace" 1995, Black Metal
+
+
+
+### "Confound Eternal /EP/" 1996, Black Metal
+
+
+
+### "Intercourse And Lust" 1997, Black Metal
+
+1.  A Witch Named Aspilcuetta
+2.  Confound Eternal
+3.  The Crown Bearer
+4.  Attacking With Spell
+5.  Strength Of Another World
+6.  The Bonehunter
+7.  Mephistopheles
+8.  Hail Yakuza!
+
+Produced by ABIGAIL
+Engineered by Mr. Vamanda
+Recorded And Mixed at On Air
+Band residence: Japan
+
+Youhei - Drums
+Yasuyuki - Bass, Vocals
+Yasunori - Guitars
+
+(P)(C) 1997 MODERN INVASION MUSIC // MIM 7324
+
+### "Together We Summon The Dark" 1997, Black Metal
+
+
+
+### "Abigail/Barbatos: Sexual Mental Holocaust /split/" 2002, Black Metal
+
+
+
+### "Abigail/Witchburner /split/" 2002, Black Metal
+
+
+
+### "Welcome All Hellfuckers /EP/" 2002, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

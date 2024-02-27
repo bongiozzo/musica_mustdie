@@ -1,11 +1,132 @@
 # Skanners
 
-Дискография
-"Dirty Armada" 1986, Heavy Metal
-"Pictures Of War" 1988, Heavy Metal
-"The Magic Square" 1996, Heavy Metal
-"Skanners Live" 1998, Heavy Metal
-"Flagellum Dei" 2002, Heavy Metal
+
+
+## Дискография
+
+### "Dirty Armada" 1986, Heavy Metal
+
+TV Shock 
+Rock rock city 
+Skanners 
+Everybody's crazy 
+Black eagle 
+Walking on the wall 
+Steel and fire 
+Dirty armada 
+Running back 
+Starlight 
+Scorpion rider 
+Rock rock city (reprisse)
+
+
+
+Claudio Pisoni - Vocals
+Fabio Tenca - Guitars
+Max Quinzio - Guitars
+Korrado Gasser - Bass
+Luigi Sandrini - Drums
+
+
+
+
+### "Pictures Of War" 1988, Heavy Metal
+
+Pictures Of War
+Something Very Special
+Drowning Down The Drain
+She's Like A Boy
+Fight Back
+Turn It Louder Now
+We Are Night
+Wild
+One Night
+
+Claudio Pisoni - vocals
+Fabio Tenca - guitar
+Dino Lucchi - guitar 
+Corrado Gasser - bass
+Luigi Sandrini - drums
+
+
+
+### "The Magic Square" 1996, Heavy Metal
+
+Undertaker 
+Beyond death 
+Trimurti 
+Magic square 
+On my way (without you) 
+You feel the power 
+Insane 
+Metal party 
+Angel 
+Clara and Teobaldo 
+True stories 
+
+
+
+Claudio Pisoni - Vocals
+Fabio Tenca - Guitars
+Dino Lucchi - Bass
+Jack Alemanno - Drums
+
+
+
+
+
+### "Skanners Live" 1998, Heavy Metal
+
+Intro
+Tv Shock 
+Clara e Teobaldo 
+Metal Party 
+Undertaker 
+The Dark Side
+Pictures of War 
+Sheґs like a Boy
+Everybodyґs Crazy 
+Rock Rock city 
+Drums solo 
+Phenomena 
+Oltrisarco in the night
+Black Eagle 
+Andromeda 
+Fight back 
+Wild
+The magic Square 
+
+
+
+Claudio Pisoni - Vocals
+Fabio Tenca - Guitars
+Dino Lucchi - Bass
+Jack Alemanno - Drums
+
+
+
+
+
+### "Flagellum Dei" 2002, Heavy Metal
+
+01. Flagellum Dei 6:03 
+02. Blood In My Eyes 5:44 
+03. Time Of War 5:04 
+04. Nightrider 4:35 
+05. Minister Of Fear 3:57 
+06. Beast Of Hell 4:55 
+07. Full Moon's Eyes 4:14 
+08. It's My Life 6:11 
+09. M.P.+ 4:21 
+
+
+Claudio Pisoni - Vocals
+Fabio Tenca - Guitars
+Walter Unterhauser - Guitars
+Renato Olivari - Bass
+Jack Alemanno - Drums
+
+
 
 ## Отношения с другими группами
 

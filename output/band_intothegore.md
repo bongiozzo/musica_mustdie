@@ -1,8 +1,33 @@
 # Into The Gore
 
-Дискография
-"Paid Must Be Amplified" 2001, Death Metal
-"Bureau of Disgust" 2006, Death Metal
+
+
+## Дискография
+
+### "Paid Must Be Amplified" 2001, Death Metal
+
+
+
+### "Bureau of Disgust" 2006, Death Metal
+
+1. The Sculptured Disparity	 
+2. Kick 41	 
+3. Means and Ends	 
+4. The Aphex of the Pyramid	 
+5. Blown Out of Proportion	 
+6. Degenerate	 
+7. Deadline	 
+8. Loathsome	 
+9. Burakumin	 
+10. The Slime You Sublime	 
+11. Burn the Obsolete	 
+12. Paths of Least Resistance	 
+13. An Era of Sorrow	 
+14. Congress the Real	 
+15. Execute the Protocol: Selfish 
+16. Skinned	 
+17. Soundtrack of the Unborn
+
 
 ## Отношения с другими группами
 

@@ -1,6 +1,9 @@
 # Unlight Domain
 
-Дискография
+black-metal from Cuba
+
+## Дискография
+
 
 ## Отношения с другими группами
 

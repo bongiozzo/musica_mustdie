@@ -1,11 +1,54 @@
 # Dark Angel
 
-Дискография
-"We Have Arrived" 1984, Thrash
-"Darkness Descends" 1986, Thrash
-"Leave Scars" 1989, Thrash
-"Live Scars" 1990, Thrash
-"Time Does Not Heal" 1991, Thrash
+
+
+## Дискография
+
+### "We Have Arrived" 1984, Thrash
+
+
+
+### "Darkness Descends" 1986, Thrash
+
+1 Darkness Descends 
+2 The Burning of Sodom 
+3 Hunger of the Undead 
+4 Merciless Death 
+5 Death Is Certain 
+6 Black Prophecies 
+7 Perish in Flames 
+8 Merciless Death 
+9 - Perish in Flames 
+- Darkness Descends
+
+### "Leave Scars" 1989, Thrash
+
+1. Death of Innocence 
+2. Never to Rise Again 
+3. No One Answers 
+4. Cauterization 
+5. Immigrant Song 
+6. Older Than Time Itself 
+7. Worms 
+8. Promise of Agony 
+9. Leave Scars
+
+### "Live Scars" 1990, Thrash
+
+
+
+### "Time Does Not Heal" 1991, Thrash
+
+1 Time Does Not Heal 
+2 Pain's Invention, Madness 
+3 Act Of Contrition 
+4 The New Priesthood 
+5 Psychosexuality 
+6 An Ancient Inherited Shame 
+7 Trauma And Castharsis 
+8 Sensory Deprivation 
+9 A Subtle Induction
+
 
 ## Отношения с другими группами
 

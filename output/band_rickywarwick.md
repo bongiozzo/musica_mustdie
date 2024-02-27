@@ -1,10 +1,25 @@
 # Ricky Warwick
 
-Дискография
-"Tattoos & Alibis" 2003, Rock
-"Love Many, Trust Few" 2005, Rock
-"Love Owes EP" 2007, Rock
-"Belfast Confetti" 2009, Rock
+
+
+## Дискография
+
+### "Tattoos & Alibis" 2003, Rock
+
+
+
+### "Love Many, Trust Few" 2005, Rock
+
+
+
+### "Love Owes EP" 2007, Rock
+
+
+
+### "Belfast Confetti" 2009, Rock
+
+
+
 
 ## Отношения с другими группами
 

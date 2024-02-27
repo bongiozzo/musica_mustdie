@@ -1,8 +1,35 @@
 # Axegressor
 
-Дискография
-"Command" 2009, Thrash
-"Next" 2011, Thrash
+
+
+## Дискография
+
+### "Command" 2009, Thrash
+
+1. Introcrusher 00:30  
+2. Born of Pain, Bred With Fear 04:09
+3. Damage-Inked 03:46
+4. Barricade Command 04:34
+5. Psalm Before the Storm 03:20
+6. Not 03:33
+7. Strangled by Life 03:15
+8. Iron Will Executor 02:38
+9. Holy Terror 04:04 
+10. Servants 03:57
+11. Axegressor 04:55 
+
+### "Next" 2011, Thrash
+
+1. The Only Reward
+2. Star Inverted
+3. Justified Distrust
+4. Ironcrossfire
+5. SS-18 "Satan"
+6. Consume The Vicious Circle
+7. Apocalyptician
+8. You
+9. Black & White Death Race
+
 
 ## Отношения с другими группами
 

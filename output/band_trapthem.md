@@ -1,13 +1,37 @@
 # Trap Them
 
-Дискография
-"Sleepwell Deconstructor" 2007, Grindcore
-"Seance Prime" 2007, Grindcore
-"Seizures in Barren Praise" 2008, Grindcore
-"Filth Rations (EP)" 2010, Grindcore
-"Darker Handcraft" 2011, Grindcore
-"Blissfucker" 2014, Grindcore
-"Crown Feral" 2016, Grindcore
+
+
+## Дискография
+
+### "Sleepwell Deconstructor" 2007, Grindcore
+
+
+
+### "Seance Prime" 2007, Grindcore
+
+
+
+### "Seizures in Barren Praise" 2008, Grindcore
+
+
+
+### "Filth Rations (EP)" 2010, Grindcore
+
+
+
+### "Darker Handcraft" 2011, Grindcore
+
+
+
+### "Blissfucker" 2014, Grindcore
+
+
+
+### "Crown Feral" 2016, Grindcore
+
+
+
 
 ## Отношения с другими группами
 

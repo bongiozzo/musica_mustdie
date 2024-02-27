@@ -1,11 +1,83 @@
 # Fair Warning
 
-Дискография
-"Fair Warning" 1991, Hard Rock
-"Rainmaker" 1992, Hard Rock
-"Four" 2000, Hard Rock
-"Go!" 2000, Hard Rock
-"Brother's Keeper" 2006, Hard Rock
+melodic hard
+
+## Дискография
+
+### "Fair Warning" 1991, Hard Rock
+
+1. Longing For Love
+2. When Love Fails
+3. The Gall Of The Heart
+4. Crazy
+5. One Step Closer
+6. Hang On
+7. Out On The Run
+8. Long Gone
+9. The Eyes Of Rock
+10. Take A Look At The Future
+11. The Heat Of Emotion
+12. Take Me Up
+
+### "Rainmaker" 1992, Hard Rock
+
+1. The Heart Of Summer
+2. Don't Give Up
+3. Burning Heart
+4. Rain Song
+5. Get A Little Closer
+6. Desert Song
+7. What Did You Find
+8. Pictures Of Love
+9. Lonely Rooms
+10. One Way Up
+11. Angel Of Dawn
+12. Stars And The Moon
+13. Desolation Angel
+14. The Call Of The Wild
+15. Too Late For Love
+
+### "Four" 2000, Hard Rock
+
+Heart On The Run 
+Through The Fire 
+Break Free 
+Forever 
+Tell Me I'm Wrong 
+Dream 
+I Fight 
+Time Will Tell 
+Eyes Of Love 
+Find My Way 
+Night Falls 
+Wait 
+For The Young
+
+### "Go!" 2000, Hard Rock
+
+
+
+### "Brother's Keeper" 2006, Hard Rock
+
+1. Don't Keep Me Waiting 
+2. Generation Jedi 
+3. All Of My Love 
+4. Rainbow Eyes 
+5. Push Me On 
+6. Wasted Time 
+7. The Cry 
+8. The Way 
+9. Once Bitten, Twice Shy 
+10. Tell Me Lies 
+11. In The Dark 
+12. Still I Believe 
+13. All I Wanna Do 
+
+Tommy Heart - vocals, 
+Helge Engelke - guitars, 
+Ule Ritgen - bass, 
+C C Behrens - drums
+
 
 ## Отношения с другими группами
 

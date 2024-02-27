@@ -1,10 +1,54 @@
 # Skinny Puppy
 
-Дискография
-"The Process" 1996, Industrial
-"Doomsday / Back + Forth Vol. 5 - Live In Dresden" 2003, Industrial
-"The Greater Wrong Of The Right" 2004, Industrial
-"Mythmaker" 2006, Industrial
+
+
+## Дискография
+
+### "The Process" 1996, Industrial
+
+1. Janya
+2. Death
+3. Candle
+4. Hardset Head
+5. Cult
+6. Process
+7. Crucible
+8. Blue Serge
+9. Morter
+10.Amnesia
+11.Cellar Heat
+
+All songs written by SKINNY PUPPY
+Produced by David Ogilvie and SKINNY PUPPY
+Mixed by David Ogilvie
+Recorded at Subconscious Studios, Vancouver and Shangri LA Studios, California
+
+SKINNY PUPPY is: D.R.Goettel, Cevin Key and N.Ogre
+Guest Musicians:
+Pat Sprawl - Guitar
+Philth - Wave Manipulation
+Pepperdine - Viola and Cello
+Martyn Atkins - Voices
+Lorne Bouquet - Backing Vocals
+Rave - Guitar
+Troll - Guitar
+
+This album is dedicated in loving memory of  D.R.GOETTEL
+
+(p)(c) 1996 AMERlCAN Recordings
+
+### "Doomsday / Back + Forth Vol. 5 - Live In Dresden" 2003, Industrial
+
+
+
+### "The Greater Wrong Of The Right" 2004, Industrial
+
+
+
+### "Mythmaker" 2006, Industrial
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,13 @@
 # Monolith (Dutch)
 
-Дискография
-"The Apotheosis" 2003, Death Metal
+brutal-death-metal
+
+## Дискография
+
+### "The Apotheosis" 2003, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

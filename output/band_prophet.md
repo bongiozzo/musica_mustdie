@@ -1,7 +1,13 @@
 # Prophet
 
-Дискография
-"Fragile Prologue" 2002, Gothic
+Finnish gothic-rock
+
+## Дискография
+
+### "Fragile Prologue" 2002, Gothic
+
+
+
 
 ## Отношения с другими группами
 

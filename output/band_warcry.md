@@ -1,8 +1,27 @@
 # Warcry
 
-Дискография
-"In Battle For Vengeance" 2008, Heavy Metal
-"Revenge In Blood" 2010, Heavy Metal
+
+
+## Дискография
+
+### "In Battle For Vengeance" 2008, Heavy Metal
+
+
+
+### "Revenge In Blood" 2010, Heavy Metal
+
+1.	 Pure Force of Steel	02:44	 
+2.	 In Battle For Vengeance	05:14	 
+3.	 Awakening The Cemetary	05:15	 
+4.	 Bloody Black Axe	03:47	 
+5.	 A Tavern Ride	04:22	 
+6.	 Knights Of The Dark Blade	04:28	 
+7.	 Deathrider	03:37	 
+8.	 The End - Dawn Of A New Age	04:26	 
+9.	 Infernal Triumph	04:57	 
+10.	 The Revenge (True Heavy Metal Trilogy Part III)	04:54	 
+11.	 Banshee	05:34	
+
 
 ## Отношения с другими группами
 

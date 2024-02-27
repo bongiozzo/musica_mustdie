@@ -1,9 +1,46 @@
 # Apolion
 
-Дискография
-"Hungry Of Souls" 2006, Black Metal
-"The Mute God Of Deaf Men" 2006, Black Metal
-"Death Grows into Sperm" 2009, Black Metal
+
+
+## Дискография
+
+### "Hungry Of Souls" 2006, Black Metal
+
+1. Umana Segreta	 
+2. Fat God: The Opulent Empire	 
+3. Sacred Mass Of Bodies	 
+4. Hungry Of Souls	 
+5. Traitor	 
+6. Icy Blood And Dead Flesh	 
+7. Winds	 
+8. Children Of Fire	 
+9. Echoes Of The Mist	 
+10. Mother Of All Shit	 
+11. Gather For Attack (Darkthrone Cover)
+
+### "The Mute God Of Deaf Men" 2006, Black Metal
+
+1. For My Abortion	 
+2. Human Odour	 
+3. Fucking Desire	 
+4. The Mute God Of Deaf Men	 
+5. Into Chaos	 
+6. Total Bastard Hate	 
+7. Throne Of Misery 
+8. Nemesis	 
+9. Green Hell	 
+10. Obscurity Millenium
+
+### "Death Grows into Sperm" 2009, Black Metal
+
+1. Glint of Creation (Part 1)	 
+2. Glint of Creation (Part 2)	 
+3. Death Grows into Sperm	 
+4. Inverted King	 
+5. Life's Remains	 
+6. The Epitaph of Illusions (Part 1)	 
+7. The Epitaph of Illusions (Part 2)
+
 
 ## Отношения с другими группами
 

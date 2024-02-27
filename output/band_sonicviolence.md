@@ -1,8 +1,51 @@
 # Sonic Violence
 
-Дискография
-"Jagd" 1990, Industrial
-"Transfixion" 1992, Industrial
+
+
+## Дискография
+
+### "Jagd" 1990, Industrial
+
+ Side One:
+1. Saturation
+2. Crystalization
+3. Blasphemer
+4. Tortured
+ Side Two:
+1. Adrenalin
+2. Ritual
+3. Symptom
+
+Produced By Hammy.
+Ebgineered By Andy Reilly.
+Recorded At Pier Studio,Southend.
+
+(p)&(c) 1990 PEACEVILLE Records
+
+### "Transfixion" 1992, Industrial
+
+1. Asphyxia    10.01
+2. Mind-Field  (Mix)  9.11
+3. Factory     4.30
+4. Torment     5.40
+5. J.F.R.O.     7.30
+6. Drill     4.53
+7. Malice     8.57
+8. Catalepsy  (Mix)  3.43
+
+ Andy - Bass
+ Paul - Bass
+ Bill - Sampler
+ Peri - Drums
+ Elmer - Drums & Vocals
+
+Produced By Hammy & SONIC VIOLENCE.
+Engineered By Keith Appleton.
+Recorded & Mixed At Academy Studios,
+January 1992.
+
+(p)&(c) 1992 PEACEVILLE Records
+
 
 ## Отношения с другими группами
 

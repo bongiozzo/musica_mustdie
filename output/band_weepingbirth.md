@@ -1,7 +1,13 @@
 # Weeping Birth
 
-Дискография
-"A Painting of Raven and Rape" 2003, Death Metal
+death/black
+
+## Дискография
+
+### "A Painting of Raven and Rape" 2003, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

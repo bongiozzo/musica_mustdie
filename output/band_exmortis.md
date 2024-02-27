@@ -1,7 +1,19 @@
 # Exmortis
 
-Дискография
-"Total Hate" 1991, Death Metal
+
+
+## Дискография
+
+### "Total Hate" 1991, Death Metal
+
+1. Intro 0.50
+2. Forced To Be Silent 1.31
+3. Creed Of Eternal 2.12
+
+All Songs By Jan List.
+
+(p)&(c) 1991 EXMORTIS
+
 
 ## Отношения с другими группами
 

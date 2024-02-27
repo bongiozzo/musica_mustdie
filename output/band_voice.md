@@ -1,10 +1,63 @@
 # Voice
 
-Дискография
-"Trapped in Anguish" 1999, Heavy Metal
-"Prediction" 1999, Heavy Metal
-"Golden Signs" 2001, Heavy Metal
-"Soulhunter" 2003, Heavy Metal
+
+
+## Дискография
+
+### "Trapped in Anguish" 1999, Heavy Metal
+
+Twilight Dreams 
+Behind Your Reflections 
+The Silent Way 
+Colder Than Ice 
+The Gunslinger 
+Disappeared Heroes 
+In the Night 
+The Journey
+
+### "Prediction" 1999, Heavy Metal
+
+Victim of the Glory 
+The Prediction 
+Sand Creek 
+Project Daydream 
+I'll Be There 
+Tears in the Darkness 
+Stonehenge
+
+### "Golden Signs" 2001, Heavy Metal
+
+Golden Signs 
+Days of Trust 
+On My Way 
+Doubtful Times 
+Deadly Embrace 
+Without Compulsion 
+The Old Brightness 
+The Last Dance 
+The Prediction (2001) 
+The Visitors (bonus)
+
+### "Soulhunter" 2003, Heavy Metal
+
+1. Soulhunter
+2. Devilish temptation
+3. Valhalla
+4. Place of deliverance
+5. Firedevil
+6. Fairground of illusion
+7. Glorious empire
+8. Where have the angels disappeared
+9. Like a heart
+
+
+Oliver Glas (vocals), 
+Thommy Neuhierl (guitar), 
+Rico Hendel (guitar), 
+Soren Glas (bass), 
+Matthias Loscher (keyboards), 
+Stefan Schwarzmann (drums)
+
 
 ## Отношения с другими группами
 

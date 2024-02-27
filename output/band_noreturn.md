@@ -1,8 +1,45 @@
 # No Return
 
-Дискография
-"Contamination Rises" 1992, Death Metal
-"Machinery" 2002, Thrash
+
+
+## Дискография
+
+### "Contamination Rises" 1992, Death Metal
+
+1. Damnation     0.26
+2. Memories     3.26
+3. Raving Lunatic     3.59
+4. Uncontrolled Situation    4.35
+5. Trash World     4.19
+6. Sacred Bones     4.49
+7. World Of Impurities     3.33
+8. Civil War     4.35
+9. Perversion     2.52
+10.Sorrow      1.25
+11.Mass Grave     3.27
+12.Revolt Of Hanged     3.35
+
+ Philippe Ordon - Vocals
+ Alain Clement - Guitar
+ Eric Le Baron - Guitar
+ Laurent Janaut - Bass
+ Didier Le Baron - Drums
+
+All Tracks By NO RETURN.
+Produced By Tom Morris & NO RETURN.
+Recorded & Mixed At Morrisound Studio,
+Tampa,Florida.
+ 
+(p)&(c) 1992 SEMETERY Records
+
+### "Machinery" 2002, Thrash
+
+Line up : Alain (guitar), Didier (drums), Steeve (voices), Malko (keyboard, sample), Benoit (guitar & bass)
+Recorded by : Kris Belean at CCR studio (Belgium)
+Label : Kodiak records / Nuclear Blast
+Produced by : Kodiak records
+mixed by : No return
+
 
 ## Отношения с другими группами
 

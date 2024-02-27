@@ -1,10 +1,57 @@
 # Sarke
 
-Дискография
-"Vorunah" 2009, Black Metal
-"Oldarhian" 2011, Black Metal
-"Aruagint" 2013, Black Metal
-"Bogefod" 2016, Black Metal
+
+
+## Дискография
+
+### "Vorunah" 2009, Black Metal
+
+01. Primitive Killing 
+02. Vorunah 
+03. The Drunken Priest 
+04. Frost Junkie
+05. Old 
+06. Cult Ritual 
+07. 13 Candles 
+08. Dead Universe
+
+### "Oldarhian" 2011, Black Metal
+
+01. Condemned
+02. Pilgrim Of The Occult
+03. Pessimist
+04. Passage To Oldarhian
+05. Flay The Wolf
+06. Captured
+07. Paradigm Lost
+08. Novel Dawn
+09. Burning Of The Monoliths
+10. The Stranger Brew
+
+### "Aruagint" 2013, Black Metal
+
+1. Jaunt Of The Obsessed
+2. Jodau Aura
+3. Ugly
+4. Strange Pungent Odyssey
+5. Walls Of Ru
+6. Salvation
+7. Skeleton Sand
+8. Icon Usurper
+9. Rabid Hunger
+
+### "Bogefod" 2016, Black Metal
+
+01. Taken 03:17
+02. Blood of Men 03:15
+03. Barrow of Torolv 05:06
+04. Alternation 03:18
+05. The Wicked's Transient Sleep 03:40
+06. Burn 04:03
+07. Dawning 03:30
+08. Evil Heir 04:22
+09. Sunken 03:52
+
 
 ## Отношения с другими группами
 

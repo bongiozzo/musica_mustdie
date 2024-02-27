@@ -1,11 +1,76 @@
 # Phantasma
 
-Дискография
-"Welcome in Heaven" 1994, Death Metal
-"Jazz For Jesus" 1996, Death Metal
-"Jahve" 1999, Death Metal
-"Gospel" 2002, Death Metal
-"Book Of Phantasma" 2010, Death Metal
+
+
+## Дискография
+
+### "Welcome in Heaven" 1994, Death Metal
+
+1. The Judgement Day	 
+2. Back From The Past	 
+3. Unnamed Grave	 
+4. Last Homage	 
+5. Welcome In Heaven, Part 1	 
+6. Welcome In Heaven, Part 2	 
+7. The Eternal...	 
+8. A Falling Head	 
+9. The Wedding Night	 
+10. The Emotional Dullness	 
+11. Ave Satanas
+
+### "Jazz For Jesus" 1996, Death Metal
+
+1. We'll Meet In Hell Again	 
+2. Their Sword Was Hard Indeed!	 
+3. A Shore	 
+4. Get Away!	 
+5. Jesus Is Just A Stone	 
+6. A Document About Jesus Death	 
+7. I Trust In God Only	 
+8. Sans Commentaire	 
+9. Jazz For Jesus	 
+10. Ave Satanas - Songs Of Demons
+
+### "Jahve" 1999, Death Metal
+
+1. Eternal Horizon
+2. Vision
+3. Mission
+4. Depraved
+5. Disease Called Religion
+6. Ave Satanas III	 
+7. Oasis Of Loneliness
+8. You Must Kill Him
+9. Noctis	 
+10. Jahve
+11. Mangy Dogs
+
+### "Gospel" 2002, Death Metal
+
+1. The Four Demons
+2. Victory
+3. Inquisition
+4. The King Of The Slaves
+5. The Holy Writing
+6. The March Of Freedom
+7. Pope's Last Dance
+8. Ave Satanas IV	 
+9. Gospel
+
+### "Book Of Phantasma" 2010, Death Metal
+
+1. Chapter 1 - Prophet		 
+2. Chapter 2 - Riders		 
+3. Chapter 3 - Warrior		 
+4. Chapter 4 - Dragon		 
+5. Chapter 5 - Menagerie		 
+6. Chapter 6 - King		 
+7. Chapter 7 - Ave Satanas 5		 
+8. Chapter 8 - Madness		 
+9. Chapter 9 - Execution		 
+10. Chapter 10 - Revenge		 
+11. Chapter 11 - Destroyed, Cause He Believed
+
 
 ## Отношения с другими группами
 

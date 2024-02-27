@@ -1,10 +1,55 @@
 # Wonderland
 
-Дискография
-"Somewhere in my Eyes" 1999, Heavy Metal
-"Wonderland" 2001, Heavy Metal
-"Eternally" 2002, Power Metal
-"Follow Me" 2006, Power Metal
+synth-power
+
+## Дискография
+
+### "Somewhere in my Eyes" 1999, Heavy Metal
+
+1.      Somewhere in my eyes (radio version)      3:08
+2.      Nothing’s left to say      4:46
+3.      Lost and lonely days       4:01
+4.      Goodbye      4:04
+ 
+
+
+
+
+
+
+ 
+
+### "Wonderland" 2001, Heavy Metal
+
+1.      The fallen angel
+2.      Moonchild
+3.      Freedom
+4.      Look into the sky (Somewhere in my Eyes)
+5.      Summer waiting
+6.      Nothing left to say
+7.      Wonderland
+8.      Tower of Wonders
+9.      Here I am
+10.    Hello
+
+
+### "Eternally" 2002, Power Metal
+
+
+
+### "Follow Me" 2006, Power Metal
+
+1. Last Time My Memory
+2. The Call Of The Down 
+3. Call My Name
+4. Eternally
+5. Raise Your Wings
+6. Winter Silence
+7. No Resurrection
+8. Follow Me
+9. The Promise
+10. Hell and Heaven
+
 
 ## Отношения с другими группами
 

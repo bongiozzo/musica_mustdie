@@ -1,8 +1,25 @@
 # Carnophage
 
-Дискография
-"Deformed Future//Genetic Nightmare" 2008, Techno Death
-"Monument" 2016, Techno Death
+
+
+## Дискография
+
+### "Deformed Future//Genetic Nightmare" 2008, Techno Death
+
+
+
+### "Monument" 2016, Techno Death
+
+1. Incandescent		 
+2. Second Genesis		 
+3. Resistance Against Mind Clouding Heresy		 
+4. Same Old Circle		 
+5. Unbroken Fortitude		 
+6. At the Backside of Our Civilization		 
+7. Ode to Corruption		 
+8. Sparks of the Experiment		 
+9. Inertia and Failure
+
 
 ## Отношения с другими группами
 

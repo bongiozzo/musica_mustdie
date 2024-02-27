@@ -1,12 +1,135 @@
 # Pantheist
 
-Дискография
-"1000 Years" 2002, Doom
-"O Solitude" 2003, Doom
-"Amartia" 2005, Doom
-"The Pains of Sleep " 2005, Doom
-"Journey Through Lands Unknown" 2008, Doom
-"Pantheist" 2011, Doom
+Funeral Doom Metal
+
+## Дискография
+
+### "1000 Years" 2002, Doom
+
+1. Intro
+2. Time
+3. Lust
+4. Envy Us
+5. Liefde Voor Niemand
+6. 1000 Years 
+
+
+Recorded and mixed in Templa Libitina between November and December 2001.
+Produced by Stijn van Cauter.
+
+Kostas - Vocals, Keyboard, Programming
+Nicolas - Guitar, Spoken Word
+Lawrence - Session Bass
+
+Music and Lyrics by Kostas
+Artwork by Kostas. Band photo's by Dirk Ceulemans. Band logo by Gdc. 
+
+
+
+### "O Solitude" 2003, Doom
+
+1. O Solitude
+2. Don't Mourn
+3. Time
+4. Envy Us
+5. Curse The Morning Light
+
+
+
+Kostas - Vocals, Keyboard
+Nicolas - Guitar, Spoken Word
+Frederic - Bass
+Oscar - Drums
+
+Session Members:
+Hans - Double Bass
+Lefteris - Oud, Baglama, Acoustic Guitar
+Stijn - Guest Vocals on Envy Us
+
+Music and Lyrics by Kostas
+Artwork by Oscar. 
+Band Photos by Michael Blankaert. 
+
+
+### "Amartia" 2005, Doom
+
+1. Apologeia 11:12 
+2. Gluttony 11:10  
+3. Envy 07:26
+4. Lust 07:06
+5. First Prayer 06:44 
+6. Pride 05:58 
+7. Greed 07:42  
+8. Sloth 09:44 
+9. Wrath 05:10 
+10. Metanoia 04:18
+
+### "The Pains of Sleep " 2005, Doom
+
+1. The Pains of Sleep  11:24   
+2. Pavor Nocturnus  14:05    
+3. For Funerals to Come (Katatonia cover)  03:38  
+4. Intro  02:37    
+5. Time  07:24    
+6. Lust  04:55  
+7. Envy Us  07:55   
+8. Liefde Voor Niemand  04:03   
+9. 1000 Years  06:05 
+
+
+Lineup:
+Andy Semmens - Vocals
+Kostas Panagiotou - Keyboards, Vocals
+Nicholas Tambuyser - Guitars
+Mark Bodossian - Bass, Vocals
+Ilia Rodriguez - Guitars
+Sterghios Moschos - Drums
+
+Includes remastered "1000 Years" demo as a bonus. 
+
+
+### "Journey Through Lands Unknown" 2008, Doom
+
+1. Deliverance  08:59   
+2. Unknown Land  07:43   
+3. Dum Spiro Despero  08:39   
+4. Haven  03:03    
+5. Oblivion  05:44    
+6. The Loss of Innocence  11:14   
+7. Eternal Sorrow  12:01   
+8. Mourning the Passing of Certainty (Despair As the Sky Turns Grey)  05:23 
+
+
+"Journey Through Lands Unknown" was recorded and mixed by Greg Chandler at Priory Studios, and mastered by Rik Dowding at Sonic Mastering.
+
+Available from Firebox on October 15th.
+
+Lineup:
+
+Kostas Panagiotou - Vocals, Keyboards
+Ilia Rodriguez - Guitars, Vocals 
+Mark Bodossian - Bass, Vocals
+Sterghios Moschos - Drums 
+
+
+### "Pantheist" 2011, Doom
+
+1. One of These Funerals  03:01   
+2. Broken Statue  08:40   
+3. The Storm  11:41   
+4. Be Here  10:47    
+5. 4:59  05:03    
+6. Brighter Days  08:41   
+7. Live Through Me  08:17 
+
+
+Kostas Panagiotou  Vocals, Keyboards  
+Pepijn van Houwelingen  Guitars  
+Aleksej Obradovic  Bass  
+Sterghios Moschos  Drums  
+ 
+
+
 
 ## Отношения с другими группами
 

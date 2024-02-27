@@ -1,8 +1,17 @@
 # Adultery
 
-Дискография
-"Slovanska Krov' EP" 2002, Metal
-"Age Of Winter Kings" 2003, Metal
+
+
+## Дискография
+
+### "Slovanska Krov' EP" 2002, Metal
+
+
+
+### "Age Of Winter Kings" 2003, Metal
+
+
+
 
 ## Отношения с другими группами
 

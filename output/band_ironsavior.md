@@ -1,16 +1,169 @@
 # Iron Savior
 
-Дискография
-"Iron Savior" 1997, Heavy Metal
-"Unification" 1999, Heavy Metal
-"Dark Assault" 2000, Power Metal
-"Condition Red" 2002, Power Metal
-"Battering Ram" 2004, Power Metal
-"Megatropolis" 2007, Power Metal
-"The Landing" 2011, Power Metal
-"Rise Of The Hero" 2014, Heavy Metal
-"Live At The Final Frontier (DVD+2CD)" 2015, Heavy Metal
-"Titancraft" 2016, Heavy Metal
+Power Metal
+
+## Дискография
+
+### "Iron Savior" 1997, Heavy Metal
+
+1. The Arrival
+2. Atlantis Falling
+3. Brave New World
+4. Iron Savior
+5. Riding On Fire
+6. Break It Up
+7. Assailant
+8. Children Of The Wasteland
+9. Protect The Law
+10. Watcher In The Sky
+11. For The World
+12. This Flight Tonight
+13. The Rage
+
+Piet Sielck - Guitars, Vocals, Keyboards, Bass
+Thomen Stauch - Drums And Percussion
+Kai Hansen - Guitars and Vocals
+
+Guest Musicians:
+Hansi Kursch - Vocals
+Dirk Schlachter - Bass
+Henne - add. backing vocals on 5
+
+Produced by Piet Sielck 
+(p)1997 Modern Music Records
+
+### "Unification" 1999, Heavy Metal
+
+1. Coming Home
+2. Starborn
+3. Deadly Sleep
+4. Forces Of Rage
+5. Captain's Log
+6. Brothers (Of The Past)
+7. Eye To Eye
+8. Mind Over Matter
+9. Prisoner Of The Void
+10. The Battle
+11. Unchained
+12. Forevermore
+13. Gorgar (Vers.'98)
+14. Neon Knights
+15. Dragonslayer
+All songs by Sielck except 3, 12, 13 by Hansen,
+14 by Black Sabbath. 
+"Dragonslayer" written & Perfomed by Excelsis,
+winner Of RockHard competition
+Piet Sielck - guitar, vocals
+Kai Hansen - guitar, vocals
+Jan-S. Eckert - bass, back. vocals
+Andreas Kuck - keyboards, back. vocals
+Dan Zimmerman - drums
+
+### "Dark Assault" 2000, Power Metal
+
+1. Never Say Die
+2. Seek And Destroy
+3. Solar Wings
+4. I've Been To Hell
+5. Dragons Rising
+6. Predators
+7. Made Of Metal
+8. Firing The Guns
+9. Eye Of The World
+10. Back Into The Light
+11. After The War
+12. Delivering The Goods
+
+(p) 2001
+
+### "Condition Red" 2002, Power Metal
+
+1. Titans of our time
+2. Protector
+3. Ironbound
+4. Condition Red
+5. Warrior
+6. Mindfeeder
+7. Walls of Fire
+8. Tales of the Bold
+9. I will be there (bonus track)
+10. No Heros
+11. Paradies
+12. Thunderbird
+13. Crazy (bonus track)
+
+### "Battering Ram" 2004, Power Metal
+
+01. Battering Ram
+02. Stand Against the King
+03. Tyranny of Steel
+04. Time Will Tell
+05. Wings of Deliverance
+06. Break the Curse
+07. Riding Free
+08. Starchaser
+09. Machine World
+10. H.M. Powered Man
+
+### "Megatropolis" 2007, Power Metal
+
+1. Running Riot 04:57  
+2. The Omega Man 04:52  
+3. Flesh 05:01  
+4. Megatropolis 05:03  
+5. Cybernetic Queen 04:52  
+6. Cyber Hero 04:58  
+7. A Tale From Down Below 05:18  
+8. Still I Believe 04:35  
+9. Farewell And Good Bye 05:53
+
+### "The Landing" 2011, Power Metal
+
+01. Descending 01:04 
+02. The Savior 04:47 
+03. Starlight 04:51 
+04. March Of Doom 04:42 
+05. Heavy Metal Never Dies 04:14 
+06. Moment In Time 05:07 
+07. Hall Of The Heroes 05:38 
+08. R.U. Ready 04:48 
+09. Faster Than All 05:03 
+10. Before The Pain 04:34 
+11. No Guts, No Glory 04:28
+
+
+Digipak ltd edition comes with following bonus tracks:
+ 12. Coming Home (re-recorded version) (5:04)
+ 13. Atlantis Falling (re-recorded version) (4:35)
+ 
+Japanese edition comes with following bonus track:
+ 12. Underneath the Radar (Underworld cover) 
+
+### "Rise Of The Hero" 2014, Heavy Metal
+
+
+
+### "Live At The Final Frontier (DVD+2CD)" 2015, Heavy Metal
+
+
+
+### "Titancraft" 2016, Heavy Metal
+
+01. Under Siege (Intro)
+02. Titancraft
+03. Way Of The Blade
+04. Seize The Day
+05. Gunsmoke
+06. Beyond The Horizon
+07. The Sun Won't Rise In Hell
+08. Strike Down The Tyranny
+09. Brother In Arms
+10. R&R Addiction (Ltd. Bonus)
+11. I Surrender
+12. Rebellious
+13. Protector 2016 (Ltd. Bonus)
+
+
 
 ## Отношения с другими группами
 

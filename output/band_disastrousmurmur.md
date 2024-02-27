@@ -1,8 +1,53 @@
 # Disastrous Murmur
 
-Дискография
-"Rhapsodies In Red" 1992, Death Metal
-"Folter" 1994, Death Metal
+Grinding Band
+
+## Дискография
+
+### "Rhapsodies In Red" 1992, Death Metal
+
+1. Discorged Bowelment
+2. Extra Uterine Pregnancy
+3. Dinner Is Served
+4. Trash Chunk & Garbage
+5. Masked Killer
+6. Flesh Is What I Need
+7. Satisfaction In The Morgue
+8. Into The Dungeon
+9. Desecrating In Grave
+10.Browned Is Blood
+
+ Walter Schweiger - Bass
+ Manfred Perack - Drums
+ Harald Bezdek - Guitars & Vocals
+
+Engineered,Mixed & Produced By Oliver Welter &
+DISASTROUS MURMUR.
+
+(p)&(c) 1992 OSMOSE Productions
+
+### "Folter" 1994, Death Metal
+
+1. The Oral, Rectal And Vaginal Pear
+2. Breaking By Means Of The Wheel
+3. The Punishment Collar
+4. The Judas Cradle
+5. The Headcrusher
+6. Unfleshed To The Bone
+7. The Saw
+8. Heretic Pincers
+9. The Grate
+
+ Harald Bezdek - Vocals, All Guitars
+ Walter Schweiger - Bass
+ Manfred Perack - Drums
+
+All Music By Harald Bezdek
+Produced By Michi Zastoupil
+Recorded & Mixed At Vienna Power Station
+
+(p) & (c) 1994 LETHAL Records
+
 
 ## Отношения с другими группами
 

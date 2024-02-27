@@ -1,17 +1,152 @@
 # Marilyn Manson
 
-Дискография
-"Portrait Of An American Family" 1994, Alternative
-"Smells Like Children (Remixes)" 1995, Alternative
-"Antichrist Superstar" 1996, Alternative
-"Remix & Repent (Remixes)" 1997, Alternative
-"Mechanical Animals" 1998, Alternative
-"The Last Tour On Earth (Live)" 1999, Alternative
-"Holy Wood" 2000, Alternative
-"The Golden Age Of Grotesque" 2003, Alternative
-"Eat Me, Drink Me" 2007, Alternative
-"The High End Of Low" 2009, Alternative
-"Born Villain" 2012, Alternative
+Dark-Gothic-Electronic Alternative !
+
+## Дискография
+
+### "Portrait Of An American Family" 1994, Alternative
+
+ 1. Prelude (The Family Trip) 
+2. Cake And Sodomy 
+3. Lunchbox 
+4. Organ Grinder 
+5. Cyclops 
+6. Dope Hat 
+7. Get Your Gunn 
+8. Wrapped In Plastic 
+9. Dogma 
+10. Sweet Tooth 
+11. Snake Eyes And Sissies 
+12. My Monkey 
+13. Misery Machine 
+Untitled (Secret Track)
+
+### "Smells Like Children (Remixes)" 1995, Alternative
+
+1.  The Hands Of Small Children
+2.  Diary Of A Dope Fiend
+3.  S****ky Chicken Gang Bang
+4.  Kiddie Grinder (Remix)
+5.  Sympathy For The Parents
+6.  Sweet Dreams (Are Made Of This)
+7.  Everlasting C***sucker (Remix)
+8.  F*** Frankie
+9.  I Put A Spell On You
+10.May Cause Discoloration Of Urine Or Feces
+11.Scabs, Guns And Peanut Butter
+12.Dance Of The Dope Hats (Remix)
+13.White Trash (Remixed By Tony F. Wiggins)
+14.Dancing With The One-Legged...
+15.Rock'N'Roll Nigger
+
+Reverend Marilyn Manson - Spitting, Self-Mutilation, Chickens
+Twiggy Ramirez - Mini-Cassette, Fag Bass, Wigs
+Daisy Berkowitz - Analog Distorted Filth Box, Electric Twangdoodles, Cigarettes
+Madonna Wayne Gacy - Sound Deformation, Poop Games
+Ginger Fish - Kiddie Pops, Live Drums
+
+(P)(C) 1995 INTERSCOPE Records
+
+### "Antichrist Superstar" 1996, Alternative
+
+CYCLE I: THE HEIROPHANT 
+1. Irresponsible Hate Anthem 
+2. The Beautiful People 
+3. Dried Up, Tied Up, And Dead To The World 
+4. Tourniquet 
+CYCLE II: INAUGURATION OF THE WORM 
+5. Little Horn 
+6. Cryptorchild 
+7. Deformography 
+8. Wormboy 
+9. Mister Superstar 
+10. Angel With The Scabbed Wings 
+11. Kinderfeld 
+CYCLE III: DISINTEGRATOR RISING 
+12. Antichrist Superstar 
+13. 1996 
+14. The Minute of Decay 
+15. The Reflecting God 
+16. Man That You Fear 
+99. Untitled (Secret Track)
+
+### "Remix & Repent (Remixes)" 1997, Alternative
+
+
+
+### "Mechanical Animals" 1998, Alternative
+
+1. Great Big White World 
+2. The Dope Show 
+3. Mechanical Animals 
+4. Rock is Dead 
+5. Disassociative 
+6. The Speed of Pain 
+7. Posthuman 
+8. I Want To Disappear 
+9. I Don't Like the Drugs (But the Drugs Like Me) 
+10. New Model No.15 
+11. User Friendly 
+12. Fundamentally Loathsome 
+13. The Last Day on Earth 
+14. Coma White 
+Untitled (Multimedia Track)
+
+### "The Last Tour On Earth (Live)" 1999, Alternative
+
+1. Inauguration Of The Mechanical Christ 
+2. The Reflecting God 
+3. Great Big White World 
+4. Get Your Gunn 
+5. Sweet Dreams / Hell Outro 
+6. Rock Is Dead 
+7. The Dope Show 
+8. Lunchbox 
+9. I Don't Like The Drugs (But The Drugs Like Me) 
+10. Antichrist Superstar 
+11. The Beautiful People 
+12. Irresponsible Hate Anthem 
+13. The Last Day On Earth 
+14. Astonishing Panorama Of The Endtimes
+
+### "Holy Wood" 2000, Alternative
+
+1. GodeatGod
+2. The Love Song
+3. The Fight Song
+4. Disposible Teens
+5. Target Audience (Narcissus Narcosis)
+6. President Dead
+7. In The Shadow Of The Valley Of Death
+8. Cruci-Fiction in Space
+9. A Place In The Dirt
+10.The Nobodies
+11.The Death Song
+12.Lamb Of God
+13.Born Again
+14.Burning Flag
+15.Coma Black (Eden Eye - The Apple of Discord)
+16.Valentine's Day
+17.The Fall Of Adam
+18.King Kill
+19.Count to Six and Die (The Vacuum of Infinite Space Encompassing)
+
+### "The Golden Age Of Grotesque" 2003, Alternative
+
+
+
+### "Eat Me, Drink Me" 2007, Alternative
+
+
+
+### "The High End Of Low" 2009, Alternative
+
+
+
+### "Born Villain" 2012, Alternative
+
+
+
 
 ## Отношения с другими группами
 

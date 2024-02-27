@@ -1,7 +1,26 @@
 # Nail Within
 
-Дискография
-"Nail Within" 2003, Thrash
+thrash-metal band from Israel
+
+## Дискография
+
+### "Nail Within" 2003, Thrash
+
+1. Emblazed
+2. Inhuman Conditions
+3. Dirty - Colored - Knife (with Mille Petrozza, Tomas Lindberg and Zeev Tananboim)
+4. Bleed Forever (with Robert Gonnela)
+5. Under The Spell (with Tomas Lindberg)
+6. Elastic
+7. Mental Coffin
+8. My Wallow
+9. King Obscenity (with Harris Johns)
+10. Impure
+11. Last Nail
+
+Produced by Harris Johns and Zeev Tananboim
+Spiderhouse Studio, Lutte, Germany summer 2002.
+
 
 ## Отношения с другими группами
 

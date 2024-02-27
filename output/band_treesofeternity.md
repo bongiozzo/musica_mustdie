@@ -1,7 +1,26 @@
 # Trees of Eternity
 
-Дискография
-"Hour of the Nightingale" 2016, Gothic
+solo project guitarist of SWALLOW THE SUN
+
+## Дискография
+
+### "Hour of the Nightingale" 2016, Gothic
+
+1. My Requiem  06:02  
+2. Eye of Night  06:05   
+3. Condemned to Silence  05:23 
+4. A Million Tears  07:13   
+5. Hour of the Nightingale  05:36  
+6. The Passage  06:11    
+7. Broken Mirror  05:58   
+8. Black Ocean  07:02   
+9. Sinking Ships  03:36  
+10. Gallows Bird  09:38 
+
+
+Recorded in 2014, but remained unreleased for a while. Some time after Aleah had passed away, the band signed with Svart Records and eventually released the album on November 11th, 2016.
+Produced, recorded, mixed and mastered at Fascination Street Studios 1 in Цrebro, Sweden.
+
 
 ## Отношения с другими группами
 

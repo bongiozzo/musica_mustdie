@@ -1,10 +1,46 @@
 # Atari Teenage Riot
 
-Дискография
-"Atari Teenage Riot" 1995, Industrial
-"The Future Of War" 1997, Electronic
-"60 Second Wipe Out" 1999, Electronic
-"Is This Hyperreal?" 2011, Electronic
+
+
+## Дискография
+
+### "Atari Teenage Riot" 1995, Industrial
+
+1. Start The Riot!
+2. Into The Death
+3. Raverbashing
+4. Speed
+5. Midi Junkies
+6. Delete Yourself! You Got No Chance To Win !
+7. Hetzjagd Auf Nazis!
+8. Cyberpunks Are Dead!
+9. Atari Teenage Riot
+10.Kids Are United!
+11.Riot 1995
+
+All songs written by ATARI TEENAGE RIOT.
+Produced by Alec Empire and David Harrow
+Engineered by Alan Branch
+Recorded and mixed at Roundhouse Studios, London
+
+Vocals: Hanin Elias, Carl Crack and Alec Empire
+Programming etc.: Alec Empire the Destroyer
+Shouting: Berlin and London Rioters
+
+(P)c 1996 DIGITAL HARDCORE Records
+
+### "The Future Of War" 1997, Electronic
+
+
+
+### "60 Second Wipe Out" 1999, Electronic
+
+
+
+### "Is This Hyperreal?" 2011, Electronic
+
+
+
 
 ## Отношения с другими группами
 

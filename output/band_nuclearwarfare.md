@@ -1,9 +1,21 @@
 # Nuclear Warfare
 
-Дискография
-"War Is Unleashed" 2004, Thrash
-"We Come In Peace" 2006, Thrash
-"Royal Fortune (EP)" 2007, Thrash
+
+
+## Дискография
+
+### "War Is Unleashed" 2004, Thrash
+
+
+
+### "We Come In Peace" 2006, Thrash
+
+
+
+### "Royal Fortune (EP)" 2007, Thrash
+
+
+
 
 ## Отношения с другими группами
 

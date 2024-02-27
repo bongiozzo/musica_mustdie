@@ -1,6 +1,9 @@
 # Evil Delicious
 
-Дискография
+Wierd-Core from America
+
+## Дискография
+
 
 ## Отношения с другими группами
 

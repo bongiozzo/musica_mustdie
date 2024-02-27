@@ -1,16 +1,61 @@
 # Inquisition
 
-Дискография
-"Anxious Death (EP)" 1990, Black Metal
-"Incense Of Rest (EP)" 1996, Black Metal
-"Into The Infernal Regions Of The Ancient Cult" 1998, Black Metal
-"Invoking The Majestic Throne Of Satan" 2002, Black Metal
-"Magnificent Glorification Of Lucifer" 2004, Black Metal
-"Unholy Inquisition Rites (EP)" 2004, Black Metal
-"Nefarious Dismal Orations" 2007, Black Metal
-"Ominous Doctrines Of The Perpetual Mystical Macrocosm" 2010, Black Metal
-"Obscure Verses For The Multiverse" 2013, Black Metal
-"Bloodshed Across the Empyrean Altar Beyond the Celestial Zenith" 2016, Black Metal
+
+
+## Дискография
+
+### "Anxious Death (EP)" 1990, Black Metal
+
+
+
+### "Incense Of Rest (EP)" 1996, Black Metal
+
+
+
+### "Into The Infernal Regions Of The Ancient Cult" 1998, Black Metal
+
+
+
+### "Invoking The Majestic Throne Of Satan" 2002, Black Metal
+
+
+
+### "Magnificent Glorification Of Lucifer" 2004, Black Metal
+
+
+
+### "Unholy Inquisition Rites (EP)" 2004, Black Metal
+
+
+
+### "Nefarious Dismal Orations" 2007, Black Metal
+
+
+
+### "Ominous Doctrines Of The Perpetual Mystical Macrocosm" 2010, Black Metal
+
+
+
+### "Obscure Verses For The Multiverse" 2013, Black Metal
+
+
+
+### "Bloodshed Across the Empyrean Altar Beyond the Celestial Zenith" 2016, Black Metal
+
+1. Intro: The Force Before Darkness
+2. From Chaos They Came
+3. Wings Of Anu
+4. Vortex From The Celestial Flying Throne Of Storms
+5. A Black Aeon Shall Cleanse
+6. The Flames Of Infinite Blackness Before Creation
+7. Mystical Blood
+8. Through The Divine Spirit Of Satan A Glorious Universe Is Known
+9. Bloodshed Across The Empyrean Altar Beyond The Celestial Zenith
+10. Power From The Center Of The Cosmic Black Spiral
+11.  A Magnificent Crypt Of Stars
+12. Outro: The Invocation Of The Absolute, The All, The Satan
+13.  Coda: Hymn To The Cosmic Zenith
+
 
 ## Отношения с другими группами
 

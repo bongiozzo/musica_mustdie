@@ -1,10 +1,80 @@
 # Antichrisis
 
-Дискография
-"Cantara Anachoreta" 1997, Gothic
-"A Legacy Of Love" 1998, Gothic
-"Perfume" 2001, Gothic
-"Not Fade Away" 2012, Gothic
+ethnic gothic metal from Ireland
+
+## Дискография
+
+### "Cantara Anachoreta" 1997, Gothic
+
+The Endless Dance 
+Requiem Ex Sidhe 
+Goodbye To Jane 
+Baleias 
+Her Orphaned Throne 
+Descending Messiah
+
+### "A Legacy Of Love" 1998, Gothic
+
+1. How Can I Live On Top Of A Mountain? 
+(This Is My Love, Do You Like Her?(Slow Air)/
+/The Pipe On The Hob/ Will You Come Home With Me?
+2. Nightswan/ The Swans Are Rising
+3. Trying Not To Breathe
+4. Baleias Bailando/ Toss The Feathers (Reel)
+5. Dancing In The Midnight Sun/ Snowflakes
+6. Planet Kyrah
+7. The Sea
+8. Our Last Show
+9. Forever I Ride/ The Cliffs Of Moher/ 
+Lannigan's Ball
+10. The Farewell
+11. End Of December
+
+### "Perfume" 2001, Gothic
+
+Hole in my Head
+Carry me Down
+We are the Witches
+Wasteland
+Like the Stars
+Gates of Paradise
+Something Inside
+Dragonflies
+Goodbye To Jane
+Whole Lotta Love
+
+
+
+
+### "Not Fade Away" 2012, Gothic
+
+1. Here Comes The Night
+2. Night Train
+3. Ocean's Too Wide
+4. The Fire Went Out
+5. Who You Are
+6. Have You Been Loved?
+7. The Point Of No Return
+8. Shine
+9. Creatures Of A Jade Lagoon
+10. Endless Flow
+11. Adrenalin
+12. Walking With Angels
+13. Crossing The Line
+14. Restless Years
+15. Lament For Kira
+
+All Songs written, arranged & produced by Sid
+ 
+Antichrisis are:
+Ayuma: Vocals
+Sid: Vocals, Guitars, Bass, Keyboards & Drums
+ 
+with additional help by:
+Alexander "Nдx" May: Uilleann Pipes on "Ocean's Too Wide" & "The Point of No Return",
+Frank. J. Hennig: Baritone Vocals on "Ocean's Too Wide" & "The Point of No Return",
+Tilo Rockstroh: brass, saxophone, piano & organ on "Night Train" 
+
 
 ## Отношения с другими группами
 

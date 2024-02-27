@@ -1,7 +1,29 @@
 # Lunar Aurora
 
-Дискография
-"Weltenganger" 1997, Black Metal
+
+
+## Дискография
+
+### "Weltenganger" 1997, Black Metal
+
+1.  Grabgesatige
+2.  Hammende Male
+3.  Schwartze Rosen
+4.  Conqueror Of The Ember Moon
+
+Recorded and Mixed at Paradox Ton Studio by Michael Stammberger.
+Produced by LA.
+All music and lyrics by LA.
+Cover artwork by Aran.
+Band residence: Germany.
+
+Whirhd - Bass, Vocals
+Nathaniel - Drums
+Aaran - Guitars, Backing Vocals
+Biil - Keyboards, Synths
+
+(P)(C) 1997 VOICES Productions  // VP 001
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,30 @@
 # Jughead
 
-Дискография
-"Jughead" 2002, Rock
+Pop rock
+
+## Дискография
+
+### "Jughead" 2002, Rock
+
+1. Halfway Home to Elvis 
+2. C'mon 
+3. Snow in Tahiti 
+4. Promise 
+5. Bullet Train 
+6. Waiting on the Sun 
+7. Yesterday I found Myself 
+8. Be Like You 
+9. Flowers 
+10. Shame on the Butterfly 
+11. Paging Willy Mays
+ 
+Personnel
+Ty Tabor - guitars, vocals
+Derek Sherinian - rhythm guitars, keyboards 
+Greg Bissonette - drums, vocals
+Matt Bissonette - bass, vocals
+
+
 
 ## Отношения с другими группами
 

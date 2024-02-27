@@ -1,7 +1,35 @@
 # Mucky Pup
 
-Дискография
-"Act Of Faith" 1992, Alternative
+
+
+## Дискография
+
+### "Act Of Faith" 1992, Alternative
+
+1. Frekin' At The Peep Show
+2. Mr. Hand
+3. Understand
+4. Please Don't Burn The Johnson
+5. I Am
+6. Summertime
+7. Gotta Go
+8. Angry Song
+9. Mucky Pumpin' Motion 
+10.The Skinheads Broke My Walkman
+11.Blowtorch
+12.Lonely As Me
+
+ C.Milnes - Vocals
+ D.Nastasi - Guitar
+ Junior - Bass
+ J.Milnes - Drums
+
+Produced By Chris Milnes.
+Engineered & Mixed At Showplace
+Studios,Dover,NJ.
+
+(p)&(c) 1992 CENTURY MEDIA Records
+
 
 ## Отношения с другими группами
 

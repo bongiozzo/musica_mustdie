@@ -1,13 +1,157 @@
 # Cemetery Of Scream
 
-Дискография
-"Sameone" 1992, Death Doom
-"Melancholy" 1995, Death Doom
-"Depreeeesion" 1998, Death Doom
-"Fin De Siecle" 1999, Death Doom
-"Prelude To A Sentimental Journey" 2002, Death Doom
-"The Event Horizon" 2006, Gothic
-"Frozen Images" 2009, Gothic
+
+
+## Дискография
+
+### "Sameone" 1992, Death Doom
+
+
+
+### "Melancholy" 1995, Death Doom
+
+1. Prologue
+2. Melancholy
+3. Dolor Ante Lucem
+4. Gods Of Steel
+5. And Just The Birds...
+6. Apocalyptic Visions(Part 2)
+[7].Anxiety
+[8].Landscape Of Sadness
+[9].Lost Flowers
+[10].Violet Fields Of Extinction
+[11].Epilogue
+[12].The Shadows Of Notre Dame Cathedral
+
+[7]-[12] на стороне B
+
+All Songs Written By CEMETERY OF SCREAM.
+Produced By Piotr Labuzek & CEMETERY OF SCREAM.
+Engineered By Piotr Labuzek & Piotr Halasa.
+Recorded At Gamma Studio,Poland.
+
+Marcin Piwowarczyk - Guitar
+Katarzyna Rachwalik - Keyboards
+Jacek Krolik - Bass
+Marcin Kotas - Vocals
+Artur Oleszkiewicz - Guitar
+Grzegorz Ksiazek - Drums
+
+(P)&(C) 1995 CROON Records
+
+### "Depreeeesion" 1998, Death Doom
+
+1. Whisper / Touch
+2. Breeze
+3. Episode Man
+4. Ironic
+5. Walkin' on Air
+6. Reveal the Rainbow
+7. Cruel
+8. Float to Escape
+
+Total time: 48:01
+
+Produced by Piotr Labuzek, Pawel Goralczyk & CEMETERY OF SCREAM
+
+Katarina Rachwalik ? Keyboards
+Marcin Piwowarczyk ? Guitar
+Jacek Krolik ? Bass
+Marcin Kotas ? Vocals
+Grzegorz Ksiazek ? Drums
+Pawel Goralczyk ? Guitar
+Artur Oleszkiewisz ? Guitar
+
+Additional 0Musiciants:
+Lucja Czarnecka ? Vocals
+Piotr Labuzek ? Keyboards
+Lucasz Zajac ? Violin
+
+SERENADES Records 1998 / SER 011
+
+### "Fin De Siecle" 1999, Death Doom
+
+1. Colder Than Ever
+2. Descent
+3. Insincere
+4. Introduction - Dimension Zero
+5. Radioactive Toy
+6. Apocalyptic Visions (Part 3)
+
+### "Prelude To A Sentimental Journey" 2002, Death Doom
+
+I . TIME IS SHADOW
+- Haila -
+-In The Cemetery Garden-
+-The Ray of Cry-
+-Overcall-
+
+II . THE CHESS AT THE FOOT OF THE MOUNTAIN
+-Cult-
+-A Game of Chess-
+-Colder Than Ever-
+-The Hourglass-
+
+III . TOWARDS TO THE FINAL CONSCIOUSNESS
+-Bridge to a Desert-
+-Fall-
+-When the Sun's Born Red-
+-Bonus track: Radioactive Toy-
+
+M.Piwowarczyk (g)
+K.Rachwalik (keyb)
+J.Krolik (bas)
+M.Kotas (voc)
+Pawel Goralczyk(g)
+G.Ksiazek (dr)
+
+Additional musicians:
+Piotr Labuzek - keyboards
+Zdzislaw Zabierzewski - voice
+
+Production: Piotr Labuzek & C O S
+Recorded at Gamma Studio - Krakow - August 2000
+
+### "The Event Horizon" 2006, Gothic
+
+1. Prophet 06:11  
+2. Ganges 06:20  
+3. Komatrance 03:44  
+4. On The Border 03:49  
+5. Cold Obsession In My Eyes 06:39  
+6. Absinthe 04:16  
+7. The Secret Window 03:50  
+8. Burial Ground 05:10  
+9. In His Room 03:59  
+10. Where Next? 01:16 
+
+
+Album Lineup:
+Marcin Piwowarczyk – Guitar
+Katarzyna Rachwalik – Keyboards 
+Tomasz Rutkowski – Drums, Electric & Acoustic Guitars 
+Piotr Labuzek – Samples, Keyboards 
+Pawel Kluczewski – Vocals
+Mariusz Sowinski – Bass
+Guest musician:
+Kasia Molenda – Vocals 
+
+### "Frozen Images" 2009, Gothic
+
+1. The Bridge Of Ashes 06:36  
+2. Bluebird 05:53  
+3. Prince of the City's Lights 06:03  
+4. Geisha Out of Dreams 05:29  
+5. Million as One 04:48  
+6. In Your Blood 05:51  
+7. Sapphire Sun 06:41  
+8. Golden Lullaby 05:46  
+9. Cat's Grin 04:18  
+10. Black Flowers 04:46  
+11. Ritual Fire Dance 04:29  
+12. Night in White Satin 04:22 
+
+
 
 ## Отношения с другими группами
 

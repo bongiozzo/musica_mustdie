@@ -1,7 +1,23 @@
 # Mylidian
 
-Дискография
-"Birth Of The Prophet" 2005, Gothic
+
+
+## Дискография
+
+### "Birth Of The Prophet" 2005, Gothic
+
+01. Chaos Prophet (5'29)
+02. Crystal Angel (4'16)
+03. Lust with succubus (5'08)
+04. Pleasures of pain (5'01)
+05. Litany (Instrumental - 1'22)
+06. Monastery slaughter (5'31)
+07. Prisoner of my dreams (5'11)
+08. The Cursed Son (9'55)
+Part I : Betrayed by the Father
+Part II : Forbidden love
+Part III : Birth of the Prophet
+
 
 ## Отношения с другими группами
 

@@ -1,14 +1,227 @@
 # Darzamat
 
-Дискография
-"In The Flames Of Black Art" 1997, Black Metal
-"In The Opium Of Black Veil" 1999, Black Metal
-"In The Opium Of Black Veil (Remastered)" 2002, Black Metal
-"In The Flames of Black Art (Remastered)" 2002, Black Metal
-"Oniriad" 2003, Gothic
-"Semidevilish" 2004, Metal
-"Transkarpatia" 2005, Metal
-"Solfernus' Path " 2009, Metal
+Polish black metal band (later gothic-metal)
+
+## Дискография
+
+### "In The Flames Of Black Art" 1997, Black Metal
+
+1. In The Flames Of Black Art
+2. Legend?
+3. Secret Garden 
+4. Inevitable Eclipse
+5. Seven Golden Fires 
+6. Theatre Of Rapture
+7. The Dream
+8. The Storm
+
+
+
+Kate (vocals) 
+Flauros (vocals) 
+Simon (guitars, bass, programming)
+
+  
+
+
+
+### "In The Opium Of Black Veil" 1999, Black Metal
+
+1. Beyond The World
+2. In The Opium Of Black Veil
+3. From The Earth To The Stars
+4. Ancient Philosophy
+5. Secret Garden (Mystic Version)
+
+
+
+                 Kate (vocals) 
+                 Flauros (vocals) 
+                 Daamr (guitars & bass) 
+                 Bomba (drums) 
+                 Simon (programming)
+
+### "In The Opium Of Black Veil (Remastered)" 2002, Black Metal
+
+1. Beyond The World 
+2. In The Opium Of Black Veil 
+3. "From The Earth To The Stars 
+4. Ancient Philosophy 
+5. Secret Garden (Mystic Version)
+6. Ancient Philosophy (Remix)
+
+Recorded and mixed in Cyber Studio, 12 1997 - 01 1998
+Engineered and mixed by Marcin Mikulski
+Produced by Darzamat
+Music by Simon and Daamr
+Lyrics by Flauros
+Arrangement by Simon, Flauros and Kate
+"Ancient Philosophy Remix" remixed in Post Street Studio 09 2002
+Arrangement by Simon and Flauros
+Music by Flauros
+
+The band:
+Kate - female voice
+Flauros - male voice
+Simon - midi programming 
+Daamr - guitars, bass
+Bomba - drums
+
+### "In The Flames of Black Art (Remastered)" 2002, Black Metal
+
+1. In the Flames of Black Art 
+2. Legend? 
+3. Secret Garden 
+4. Inevitable Eclipse
+5. The Storm
+6. Seven Golden Fires
+7. Theatre of Rapture
+8. The Dream 
+9. The Storm Remix
+
+Recorded and mixed in Cyber Studio, 07 - 08 1996
+Engineered and mixed by Marcin Mikulski and Simon
+Produced by Darzamat
+Music by Simon and Flauros
+Lyrics by Flauros
+Arrangement by Simon and Flauros
+
+"The Storm Remix" remixed in Post Street Studio 09 2002
+Arrangement by Simon and Flauros
+Music by Krzysztof Michalak
+
+The band:
+Kate - female voice
+Flauros - male voice 
+Simon - midi programming, guitars, bass
+
+### "Oniriad" 2003, Gothic
+
+1. Into The Abyss Of Forgotten Woods
+2. The Longest Journey
+3. Nameless
+4. Beauty
+5. Time 
+6. Moon Has Imprisoned Me In Her Shine
+7. When the Dreams Died
+8. Elegy
+9. Soporific
+
+Released: Avantgarde Productions/Wounded Love Records (2003)/ Metal Mind Productions (2003)
+Recorded and mixed in Post Street Studio, 10. 2001 - 03. 2002. 
+Engineered and mixed by Szymon Stru&#380;ek. Produced by Darzamat
+Music by Szymon Stru&#380;ek, Krzysztof Michalak and Bart&#322;omiej Krawczyk
+Lyrics by Rafa&#322; G&#243;ral
+Arrangement by Szymon Stru&#380;ek, Rafa&#322; G&#243;ral and Katarzyna Banaszak
+
+The band:
+Katarzyna Banaszak - female voice 
+Rafa&#322; "Flauros" G&#243;ral - male voice
+Szymon Stru&#380;ek - midi programming, bass
+Krzysztof Michalak - guitars
+Pawe&#322; Chudzicki - drums
+
+### "Semidevilish" 2004, Metal
+
+1. Intro 02:50 
+2. In red iris 04:33  
+3. Era aggression 04:01  
+4. Time of obscure emotions 05:03  
+5. Fistful of ashes 05:06 
+6. Demise 04:18 
+7. Absence of light 04:25  
+8. The darkest one 03:42 
+9. Dusk 06:01 
+10. From beyond 04:56 
+
+Videoclip: Era Aggression – (live from Brutal Assault festival)
+
+Recorded and mixed at „Mamut Studio” in June – July 2004
+Engineered by Maciej Mularczyk and Јukasz Giemuіa
+Mixed and mastered by Maciej Mularczyk
+Produced by Darzamat
+Music composed by Chris and Daamr, except “In its Cobweb” (Cymeris)
+Lyrics by Nera and Flauros with support of Daamr, Cezar (Christ Agony) and Zaakh (InDread Cold) 
+“Era Aggression” Videoclip filmed and mixed by Damian Wolff
+Photos by Joanna Nowicka
+Cover art photo by Joanna Nowicka
+Cover concept and computer artwork by Cymeris
+
+
+Nera – vocals, 
+Flauros – vocals, 
+Chris – guitars, 
+Daamr – guitars and bass, 
+Spectre – keyboards, 
+Golem – drums.
+
+### "Transkarpatia" 2005, Metal
+
+1. Sanguinarius - Intro 01:23  
+2. Vampiric Prose 03:26 
+3. Hallucinations 03:57
+4. Inhumatus 01:08  
+5. The Burning Times 04:43 
+6. Letter to Hell 03:30 
+7. Blackward 04:02 
+8. Recurring Yell 05:11 
+9. Araneum 00:50  
+10. Labyrinth of Anxiety 03:56  
+11. Virus 05:27 
+12. The Old Form of Worship 02:52 
+13. Tempted by Rot 04:36  
+14. Tribute to... 05:18 
+
+
+
+the band: 
+Nera - vocals 
+Flauros - vocals 
+Chris - guitars 
+Spectre - keyboards 
+Bacchus - bass 
+Golem - drums
+
+Recorded at Maq Records (Poland) in September 2005
+Engineered by Jarosіaw Toifl
+Mixed and mastered by Andy La Rocque at Los Angered Recording
+(Gothenburg/Sweden) in October 2005
+Produced by Andy La Rocque and Darzamat
+
+Music composed by Chris and Spectre
+Lyrics by Nera and Flauros
+Arrangements by Nera, Flauros, Chris and Spectre
+
+### "Solfernus' Path " 2009, Metal
+
+1. False Sleepwalker 04:23  
+2. Vote For Heresy 04:25  
+3. Final Conjuration 03:12  
+4. Pain Collector 03:58  
+5. Gloria Inferni 04:15  
+6. Solfernus' Path 03:24  
+7. Lunar Silhouette 02:57  
+8. King Of Burning Anthems 03:42  
+9. Chimera 04:05  
+10. A Mesmeric Sйance 04:14 
+
+
+Line-up:
+Agnieszka "Nera" Gуrecka - Vocals
+Rafaі "Flauros" Gуral - Vocals
+Krzysztof "Chris" Michalak - Guitars, Bass
+Patryk "Spectre" Kumуr - Keyboards
+Mariusz "Rogol" Prкtkiewicz - Drums
+
+The album was recorded at HH Poland Studio in Gliwice, at Maq Studio and at
+Spectre's home studio. 
+
+Produced by Jaroslaw Toifl. Mixed by Jonas Kjellgren.
+
+Intro by Roy "Maurice" Mayorga (Stone Sour, Soulfly).
+
+The album will be released in Japan via Spiritual Beast. 
+
 
 ## Отношения с другими группами
 

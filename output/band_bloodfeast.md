@@ -1,9 +1,34 @@
 # Blood Feast
 
-Дискография
-"Kill For Pleasure" 1987, Thrash
-"Face Fate (EP)" 1988, Thrash
-"Chopping Block Blues" 1989, Thrash
+
+
+## Дискография
+
+### "Kill For Pleasure" 1987, Thrash
+
+
+
+### "Face Fate (EP)" 1988, Thrash
+
+ Side One:
+1. Face Fate
+2. Blood Lust
+ Side Two:
+1. R.I.P.
+2. Vampire
+
+Adam Tranquilly - Lead Guitars
+Gary Marcovitch - Vocals
+Mike Basden - Lead Guitars
+Louis Starita - Bass
+Kevin Kuzma - Drums
+
+(p)&(c) 1989 NEW RENAISSANCE Records
+
+### "Chopping Block Blues" 1989, Thrash
+
+
+
 
 ## Отношения с другими группами
 

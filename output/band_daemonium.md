@@ -1,7 +1,28 @@
 # Daemonium
 
-Дискография
-"Dark Opera Of The Ancient War Spirits" 1994, Ambient
+
+
+## Дискография
+
+### "Dark Opera Of The Ancient War Spirits" 1994, Ambient
+
+Act I    Necromancy
+Act II   Chaos's Resurrection
+Act III  By The Sword In The Blood
+Act IV   Close The Eve Of Seth
+Act V    Black Like The Hate
+Act VI   De Legion
+Act VII  Of Desolation
+Act VIII De Arcanium Daemonium
+Act IX   And You'll Rise Into The Light
+
+All Music & Lyrics By Lord A.V.Daemonium.
+Recording During A Cold Winter 1993-94 At
+Plaza Studio.
+Co-Produced By DAEMONIUM,Faust Hauser & ADIPOCERE.
+
+(p)&(c) 1994 ADIPOCERE Records
+
 
 ## Отношения с другими группами
 

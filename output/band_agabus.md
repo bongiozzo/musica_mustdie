@@ -1,7 +1,19 @@
 # Agabus
 
-Дискография
-"Last Way Left" 2005, Thrash
+
+
+## Дискография
+
+### "Last Way Left" 2005, Thrash
+
+1. Innervation		 
+2. Golpe
+3. Atman Collapse
+4. Last Way Left		 
+5. Responses
+6. Train
+7. The Hive Of Damage [Bonus Track]
+
 
 ## Отношения с другими группами
 

@@ -1,17 +1,177 @@
 # GWAR
 
-Дискография
-"Hell-O" 1989, Thrash
-"Scumdogs Of The Universe" 1990, Thrash
-"America Must Be Destroyed" 1991, Thrash
-"This Toilet Earth" 1994, Hardcore
-"Ragnarok" 1995, Hardcore
-"Carnival of Chaos " 1997, Hardcore
-"We Kill Everything " 1999, Hardcore
-"Violence Has Arrived " 2001, Hardcore
-"War Party" 2004, Hardcore
-"Beyond Hell" 2006, Hardcore
-"Lust In Space" 2009, Hardcore
+
+
+## Дискография
+
+### "Hell-O" 1989, Thrash
+
+
+
+### "Scumdogs Of The Universe" 1990, Thrash
+
+
+
+### "America Must Be Destroyed" 1991, Thrash
+
+
+
+### "This Toilet Earth" 1994, Hardcore
+
+1. Saddam A-Go-Go
+2. Penis I See
+3. Eat Steel
+4. Jack The World
+5. Sonderkommando
+6. Bad Bad Men
+7. Pepperoni
+8. The Insidious Soliloquy Of Skulhedface
+9. B.D.F. (Baby Dick Fuck)
+10.Fight
+11.The Issue Of Tissue (Spacecake)
+12.Pocket Pool
+13.Slap U Around
+14.Krak Down
+15.Filthy Flow
+16.The Obliteration Of Flab Quarv 7
+
+ Flattus Maximus Sexecutioner - Guitars
+ Jizmak da Gusha - Drums
+ Slymenstra Hymen - Scissors
+ Oderus Urungus - Vocals
+ Beefcake the Mighty - Bass
+ Balsac Sleazy P.Martini - Guitar
+ The Fabulous Spit Valves - Horn On 1
+ Michael Sid Jones - Saxophone
+ 'Crazy  Jimmy' Garthoff - Trombone
+ John Mela - Trumpet
+ Tim Harris - Lead Guitars On 4
+ 
+Produced By Scott Wolfe.
+Engineered & Mixed By Scott Wolfe & Robert Smith. All Songs Written, Arranged & Performed By GWAR. 
+Mastered By Howie Weinberg Of Masterdisk Inc.
+
+(p)&(c) 1994 METAL BLADE Records Inc.
+
+### "Ragnarok" 1995, Hardcore
+
+1. Meat Sandwich 03:28  
+2. The New Plague 02:52 
+3. Whargoul 05:37 
+4. Ragnarok 03:59 
+5. Dirty Filthy 02:30
+6. Stalin's Organs 02:19 
+7. Knife in Yer Guts 03:15 
+8. Think You Outta Know This 02:46
+9. Martyr Dumb 03:58
+10. Nudged 02:40
+11. Fire in the Loins 03:59
+12. Surf of Syn 04:22
+13. Crush, Kill, Destroy 01:33 
+14. None But the Brave 03:50 
+
+
+### "Carnival of Chaos " 1997, Hardcore
+
+1. Penguin Attack 03:27
+2. Let's Blame the Lightman 03:10 
+3. First Rule 03:24
+4. Sammy 06:58  
+5. Endless Apocalypse 04:59 
+6. Billy Bad Ass 03:25
+7. Hate Love Songs 03:03
+8. Letter from the Scallop Boat 02:50  
+9. PreSkool Prostitute 05:08  
+10. If I Could Be That 03:17 
+11. In Her Fear 03:52
+12. Back To Iraq 02:18  
+13. I Suck On My Thumb 03:07
+14. The Private Pain of Techno Destructo 05:09 
+15. Gonna Kill U 02:35 
+16. Sex Cow 02:59
+17. Antarctican Drinking Song 01:39 
+18. Don't Need a Man 12:39 
+
+### "We Kill Everything " 1999, Hardcore
+
+1. Babyraper 02:35 
+2. Fish Fuck 01:45 
+3. The Performer 03:24 
+4. A Short History Of The End Of The World 03:27  
+5. Escape From The Mooselodge 05:24
+6. Tune From Da Moon 02:26
+7. Jiggle The Handle 05:28
+8. Nitro - Burninґ Funny Bong 03:28
+9. Jagermonsta 02:51
+10. My Girly Ways 03:00 
+11. The Master Has A Butt 04:06
+12. We Kill Everything 06:57
+13. Child 02:51
+14. Penile Drip 02:38
+15. Mary Anne 02:43
+16. Friend 01:17 
+17. Fuckinґ An Animal 03:08 
+
+### "Violence Has Arrived " 2001, Hardcore
+
+1. Hell Intro 01:00  
+2. Battle Lust 03:02 
+3. Abyss of Woe 03:38
+4. Anti-Anti Christ 03:14
+5. The Apes of Wrath 03:14
+6. Immortal Corrupter 05:35
+7. Beauteous Rot 01:41
+8. Licksore 02:55
+9. Bloody Mary 04:07
+10. Bile Driver 02:41
+11. The Wheel 03:48 
+12. The Song of Words 03:32
+13. Happy Death Day 04:18 
+
+### "War Party" 2004, Hardcore
+
+1. Bring Back The Bomb 04:23
+2. Krosstika 03:35 
+3. Womb With a View 02:26
+4. Decay Of Grandeur 04:05 
+5. War Party 03:16 
+6. Bonesnapper (The Faces Of The Slain) 04:42
+7. Lost God 03:58  
+8. The Reaganator 03:05 
+9. The Bonus Plan 01:16
+10. You Can't Kill Terror 03:17
+11. Fistful Of Teeth 06:30 
+
+### "Beyond Hell" 2006, Hardcore
+
+1. Intro 01:00  
+2. War Is All We Know 04:40
+3. Murderer's Muse 04:18
+4. Go To Hell 04:46
+5. I Love The Pigs 04:29
+6. Tormentor 04:30
+7. Eight Lock 04:06
+8. Destroyed 02:24
+9. The Ultimate Bohab 03:53
+10. One Who Will Not Be Named 04:06 
+11. Back In Crack 05:11
+12. School's Out (Alice Cooper cover) 03:23 
+
+### "Lust In Space" 2009, Hardcore
+
+1. Lust in Space 06:12
+2. Let Us Slay 03:25
+3. Damnation Under God 03:27
+4. The UberKlaw 03:39 
+5. Lords and Masters 04:52
+6. Metal Metal Land 03:05
+7. The Price of Peace 03:37
+8. Where is Zog? 04:53
+9. Make a Child Cry 02:59 
+10. Release the Flies 04:10
+11. Parting Shot 04:16
+12. GWARnography * 06:04 
+
 
 ## Отношения с другими группами
 

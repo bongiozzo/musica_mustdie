@@ -1,10 +1,97 @@
 # Cryptic Slaughter
 
-Дискография
-"Convicted" 1986, Crossover
-"Money Talks" 1987, Crossover
-"Stream Of Consciousness" 1988, Crossover
-"Speak Your Peace" 1990, Crossover
+
+
+## Дискография
+
+### "Convicted" 1986, Crossover
+
+1. M.A.D.
+2. Little Worlds
+3. Suppen Death
+4. Lowlife
+5. Rage To Kill
+6. Rest In Pain
+7. Nuclear Future
+8. State Control
+9. Hypocrite
+10.War To The Knife
+11.Nation Of Hate
+12.Black And White
+13.Reich Of Torture
+14.Convicted
+
+ Bill Crooks - Vocals
+ Les Evans - Guitar
+ Rob Nicholson - Bass, Back Vocals
+ Scott Peterson - Drums
+
+(p)&(c) 1986 METAL BLADE
+
+### "Money Talks" 1987, Crossover
+
+1. Money Talks
+2. Set Your Own Place
+3. Could Be Worse
+4. Wake Up
+5. Freedom Of Expressions ?
+6. Menace Yo Mankind
+7. Too Much, Too Little
+8. Human Contrast
+9. Tables Are Turned
+10.Positively
+11.All Wrong
+12.American Heroes
+
+ Rob Nicholson - Bass & Backing Vocals
+ Scott Peterson - Drums
+ Bill Crooks - Vocals, Les Evans Guitars
+
+Produced By Bill Metoyer & C.S.
+Engineered By Bill Metoyer
+
+(p)&(c) 1987 METAL BLADE Records
+
+### "Stream Of Consciousness" 1988, Crossover
+
+1. Circus Of Fools
+2. Aggravated
+3. Last Laugh
+4. Overcome
+5. Deteriorate
+6. See Through You
+7. Just When Black
+8. Drift
+9. Altered Visions
+10.Addiction
+11.One Last Thought
+12.Whisker Bisquit
+
+ Les Evans - Guitar
+ Bill Crooks - Vocals
+ Rob Nickolson - Bass
+ Scott Peterson - Drums
+
+All Songs By CRYPTIC SLAUGHTER.
+
+(p)&(c) 1988 ROADRUNNER Prod. B.V.
+
+### "Speak Your Peace" 1990, Crossover
+
+1. Born Too Soon
+2. Still Born Again
+3. Insanity By The Numbers
+4. Co-Exist
+5. Deathstyles Of The Rock & Lowly
+6. One Thing Or Another
+7. Divided Minds
+8. Speak Your Peace
+9. Kiling Time
+
+All Songs By CRYPTIC SLAUGHTER.
+
+(p)&(c) 1990 ROADRUNNER Prod. B.V.
+
 
 ## Отношения с другими группами
 

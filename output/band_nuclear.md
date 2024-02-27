@@ -1,11 +1,70 @@
 # Nuclear
 
-Дискография
-"Heaven Denied" 2006, Thrash
-"10 Broken Codes" 2009, Thrash
-"Jehovirus" 2010, Thrash
-"Apatrida (EP)" 2012, Thrash
-"Formula For Anarchy" 2015, Thrash
+
+
+## Дискография
+
+### "Heaven Denied" 2006, Thrash
+
+1. The Pain You Asked For…
+2. Vindictive
+3. Heaven Denied
+4. Mind Insane
+5. Againsthem
+6. Dolo
+7. The Wind
+8. 7 Days
+9. MindFucked C.S.
+
+### "10 Broken Codes" 2009, Thrash
+
+1. Violence That Burns
+2. 11th Block
+3. Fake Messiah
+4. E-Faith
+5. God Forsaken Life
+6. F.P.S.C. (Filthy Politicians Sluts Corporation)
+7. Sadistic Method For Crime
+8. Engine Of Aggression
+9. Full Hatred Response
+
+Бонус-треки:
+10. F.P.S.C. (Live)
+11. The Pain You Asked For (Live)
+
+### "Jehovirus" 2010, Thrash
+
+1. Belligerence
+2. Criminal Solicitation
+3. Asphyxia
+4. Brutal Yet Precise
+5. Acts Of Depravity
+6. The One We Must Kill
+7. World Depletion
+8. On Killing
+9. Defleshed
+
+### "Apatrida (EP)" 2012, Thrash
+
+1. My Own Anarchy
+2. Breathing Despair
+3. Architects Of War
+4. Chaos Is My Life (The Exploited cover)
+5. Apatrida
+
+### "Formula For Anarchy" 2015, Thrash
+
+01. Offender
+02. Confront
+03. Scam 38
+04. Self-Righteous Hypocrites
+05. Corporate Corruption
+06. Waging War
+07. Killing Spree
+08. Left For Dead
+09. Tough Guy
+10. When Four Means None
+
 
 ## Отношения с другими группами
 

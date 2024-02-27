@@ -1,7 +1,13 @@
 # Al-Namrood
 
-Дискография
-"Qayamat" 2008, Black Metal
+
+
+## Дискография
+
+### "Qayamat" 2008, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

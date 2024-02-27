@@ -1,8 +1,35 @@
 # Forensic, The
 
-Дискография
-"Legions Of Death" 2003, Melodic Death Metal
-"The Becoming" 2008, Melodic Death Metal
+
+
+## Дискография
+
+### "Legions Of Death" 2003, Melodic Death Metal
+
+1. From The Past 06:55  
+2. Thousand Deaths 04:02  
+3. Real of Laments 04:53  
+4. Born To Mutilate 04:59  
+5. Will Be Gone Die 05:20  
+6. The Perfect Torture 05:19  
+7. The Last Human Blood 05:20  
+8. Legions of Death 04:38  
+9. Confused 04:18  
+10. Serial Killer 05:22 
+
+### "The Becoming" 2008, Melodic Death Metal
+
+1. Bred in Hate 04:39  
+2. Shared Thoughts 03:51  
+3. The Beggining of your End 04:36  
+4. I Refuse 03:44  
+5. My End 04:20  
+6. Hunter of Flesh 04:37  
+7. I Will Arise 04:25  
+8. Realms of Laments 04:56 
+
+
+
 
 ## Отношения с другими группами
 

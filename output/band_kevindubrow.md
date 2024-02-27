@@ -1,7 +1,24 @@
 # Kevin Dubrow
 
-Дискография
-"In For The Kill" 2004, Glam
+вокалист Quiet Riot
+
+## Дискография
+
+### "In For The Kill" 2004, Glam
+
+01. Burn On The Flame
+02. Good Rockin' Tonight
+03. Black Sheep Of The Family
+04. Speed King
+05. Stay With Me
+06. Red Light Mamma Red Hot
+07. Gonna Have A Good Time
+08. Modern Times rock & Roll
+09. Drivin' Sister
+10. 20th Century Boy
+11. Razamanazz
+12. Rollin' with My Baby
+
 
 ## Отношения с другими группами
 

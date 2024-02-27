@@ -1,10 +1,67 @@
 # Eucharist
 
-Дискография
-"A Velvet Creation" 1994, Death Metal
-"Mirrorworlds" 1997, Death Metal
-"A Velvet Creation (re-release)" 2001, Melodic Death Metal
-"Mirrorworlds (re-release)" 2003, Melodic Death Metal
+Melodic Black Death Metal
+
+## Дискография
+
+### "A Velvet Creation" 1994, Death Metal
+
+1. Greeting Immortality
+2. The Religion Of The Blood-Red Velvet
+3. March Of Insurection
+4. My Bleeding Tears
+5. Floating
+6. A Velvet Creation
+7. Into The Cosmic Sphere
+8. Once My Eye Moved Mountains
+
+ Markus Johnsson - Vocals,guitars
+ Thomas Einarsson - Guitars
+ Tobias Gustafsson - Bass
+ Daniel Erlandsson - Drums   
+
+All songs by EUCHARIST
+Produced,engineered & mixed by  Fredrik Lamemo
+Co-Produced by EUCHARIST
+Recorded at Music Maffian,Varberg 1993
+
+(p)(c) 1994 WRONG GAME Records
+
+### "Mirrorworlds" 1997, Death Metal
+
+01. Mirrorworld 
+02. Dissolving 
+03. With The Sun 
+04. The Eucharist 
+05. Demons 
+06. Fallen 
+07. In Nakedness 
+08. Bloodred Stars
+
+### "A Velvet Creation (re-release)" 2001, Melodic Death Metal
+
+01. Greeting immortality 
+02. The Religion fo the blood-red velvet 
+03. March of insurrection 
+04. My bleeding tears 
+05. Floating 
+06. A velvet creation 
+07. Into the cosmic sphere 
+08. Once my eye moved mountains
+09. Wounded And Alone (bonus track)
+10. The Predictable End (bonus track)
+
+### "Mirrorworlds (re-release)" 2003, Melodic Death Metal
+
+01. Mirrorworld 
+02. Dissolving 
+03. With The Sun 
+04. The Eucharist 
+05. Demons 
+06. Fallen 
+07. In Nakedness 
+08. Bloodred Stars
+
 
 ## Отношения с другими группами
 

@@ -1,9 +1,47 @@
 # Hughes Turner Project
 
-Дискография
-"Hughes Turner Project" 2002, Heavy Metal
-"Live In Tokyo" 2002, Hard Rock
-"II" 2003, Hard Rock
+(collaboration between former DEEP PURPLE/BLACK SABBATH vocalist Glenn Hughes and ex-RAINBOW/DEEP PURPLE singer Joe Lynn Turner)
+
+## Дискография
+
+### "Hughes Turner Project" 2002, Heavy Metal
+
+01. Devil's Road
+02. You Can't Stop Rock'N'Roll
+03. Missed Your Name
+04. Mystery Of The Heart
+05. Sister Midnight
+06. Better Man
+07. Heaven's Missing An Angel
+08. Fade Away
+09. Ride The Storm
+10. Run Run Run
+11. Against The Wall
+12. On The Ledge
+
+The musicians appearing on the CD are: Joe Lynn Turner (vocals) Glenn Hughes (vocals, bass) J. J. Marsh (guitars) Vince DiCola (keyboards) and Shane Galaas (drums). Guest musicians include: John Sykes (guitars), Paul Gilbert (guitars) and Akira Kajiyama (guitars). The album was produced by Glenn Hughes, Joe Lynn Turner and Mike Scott. 
+
+### "Live In Tokyo" 2002, Hard Rock
+
+1) Devil's Road 
+2) You Can't Stop Rock'n'Roll 
+3) Death Alley Driver 
+4) I Surrender 
+5) Stormbringer 
+6) Dark Days 
+7) Mistreated 
+8) Can't Stop The Flood 
+9) Better Man 
+10)Ride The Storm 
+11)King Of Dreams 
+12)Street Of Dreams 
+13)Spotlight Kid 
+14)Against The Wall (bonus track)
+
+### "II" 2003, Hard Rock
+
+
+
 
 ## Отношения с другими группами
 

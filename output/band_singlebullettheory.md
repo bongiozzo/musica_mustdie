@@ -1,9 +1,55 @@
 # Single Bullet Theory
 
-Дискография
-"Route 666" 2003, Metalcore
-"Behind Eyes of Hatred" 2004, Metalcore
-"On Broken Wings" 2007, Metalcore
+
+
+## Дискография
+
+### "Route 666" 2003, Metalcore
+
+1. Murder Machines 	05:38 
+2. Spit 	03:32 
+3. Abduction 	05:17 	
+4. Senseless (A Silent Sleep) 	04:44 
+5. Automatic Impulse 	03:47
+6. Imperfect Fit 	03:55 
+7. Revamprebuild 	05:38 
+8. Route 666 	04:31 
+9. Scapegoat 	04:46 
+10. Bone Machine 	04:04
+
+### "Behind Eyes of Hatred" 2004, Metalcore
+
+1. In Sequence 	05:26 
+2. A View From Nowhere 	04:18 
+3. Shades of Things to Come 	04:32 
+4. Cold as Stone 	04:38 
+5. One Bullet 	04:47 
+6. The Needle 	05:05 
+7. I of the Enemy 	05:07 
+8. Retribution 	04:18 
+9. The Hurt That Never Ends 	05:53 
+10. Hollowed Out 	07:23 
+11. Badlands (Metal Church cover) 	07:13
+
+### "On Broken Wings" 2007, Metalcore
+
+1. My Own Worst Enemy 	03:47 
+2. Sea of Inequity 	04:32 
+3. The Reason 	04:05 
+4. Never Waste a Minute 	03:47 
+5. Throes of Man 	05:01 
+6. 10203 	01:27 	
+7. The Killing Floor 	06:10 
+8. Live Without Regret 	05:36 
+9. That Look in your Eyes 	04:37 
+10. Final Breath 	04:02 
+11. Uprise 	05:24 
+12. Imperfect Fit (live) 	04:13
+13. Hollowed Out (live) 	04:58 
+14. One Bullet (live) 	04:26 
+15. Scapegoat (live) 	05:12 
+16. Bone Machine (live) 	04:18
+
 
 ## Отношения с другими группами
 

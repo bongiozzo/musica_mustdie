@@ -1,7 +1,22 @@
 # On Horns Impaled
 
-Дискография
-"Total World Domination" 2009, Black Metal
+
+
+## Дискография
+
+### "Total World Domination" 2009, Black Metal
+
+1. Intro 00:54  
+2. Praise the Horns 04:31  
+3. Four Satanic Majesties 03:39  
+4. Necropolis 04:04  
+5. God is Dead 02:39  
+6. Satan Sleeps 06:35  
+7. Possessed 04:25  
+8. Vampires Blood 03:25  
+9. In the Shadow of the Horns (Darkthrone Cover) 05:03
+10. Outro 01:07 
+
 
 ## Отношения с другими группами
 

@@ -1,17 +1,231 @@
 # Hirax
 
-Дискография
-"Raging Violence" 1985, Thrash
-"Hate, Fear And Power" 1986, Thrash
-"Not Dead Yet (Compilation)" 1987, Thrash
-"El Diablo Negro (EP)" 2000, Thrash
-"Blasted in Bangkok" 2001, Thrash
-"Barrage of Noise (EP)" 2001, Thrash
-"The New Age Of Terror" 2004, Thrash
-"Assassins Of War (EP)" 2007, Thrash
-"Chaos And Brutality (EP)" 2007, Thrash
-"Thrash and Destroy (Live)" 2008, Thrash
-"El Rostro De La Muerte" 2009, Thrash
+
+
+## Дискография
+
+### "Raging Violence" 1985, Thrash
+
+DEMONS EVIL FORCES 
+
+(Raging Violence, 1985)  
+
+ 
+
+
+You, you will go down to the demons 
+
+When you get there you’ll be down in hell 
+
+Sinners are wrong sinners are weak 
+
+Got top be strong can not be weak 
+
+Down to the demons, down to the demons 
+
+Down to the demons 
+
+  
+
+Black is the night cooled it’s the air 
+
+Prepare for hell get ready if you dare 
+
+Lucifer is his name he is a liar 
+
+Hell is his home down in the fire 
+
+  
+
+Evil forces you must face the beast called by the holy one you are the priest 
+
+  
+
+You must believe in me my son 
+
+I am the Lord God the Holy One
+
+ 
+
+•
+
+  
+
+BOMBS OF DEATH 
+
+(Raging Violence, 1985)  
+
+ 
+
+
+The feeling of fear 
+
+Death is near 
+
+This will be the last war 
+
+Politician out of control 
+
+Play deadly games with our lives 
+
+  
+
+Bombs of death it’s over drop from the sky 
+
+Nuclear war get ready prepare to die 
+
+  
+
+No more love full of hate 
+
+This world is doomed to end 
+
+Judgment day soon will come 
+
+Dividing the good from the bad 
+
+  
+
+Nuclear war dust in the sky 
+
+The holocaust has begun 
+
+Women and children and men will die 
+
+They’ll be no one left to fight 
+
+  
+
+No one will live to survive 
+
+Life will not exist 
+
+Women and children and men will die 
+
+They’ll be no one left to fight
+
+ DEFEAT OF AMALEK 
+
+(Raging Violence, 1985)  
+
+ 
+
+
+Day of Christ Christian war 
+
+Barbarian chivalry 
+
+Attack the land Israel 
+
+The place of the Lord 
+
+Moses said Joshua 
+
+Choose me for the fight 
+
+A top the hill Moses stands 
+
+Power in each hand 
+
+  
+
+Die defeat terminate amalek 
+
+Cry defeat holy victory 
+
+  
+
+Joshua fought amalek 
+
+Time came to pass 
+
+His faith God would decide 
+
+If he’d live or die 
+
+Moses Aaron and Hur 
+
+Held their hands up high 
+
+The sun went down 
+
+It was done amalek had lost 
+
+  
+
+Strike to win 
+
+Fight the sin 
+
+Battle of brave 
+
+To the top 
+
+
+ 
+
+
+
+### "Hate, Fear And Power" 1986, Thrash
+
+
+
+### "Not Dead Yet (Compilation)" 1987, Thrash
+
+
+
+### "El Diablo Negro (EP)" 2000, Thrash
+
+
+
+### "Blasted in Bangkok" 2001, Thrash
+
+
+
+### "Barrage of Noise (EP)" 2001, Thrash
+
+Murder One
+Barrage Of Noise
+Walk With Death
+Broken Neck
+Jade
+Mouth Sewn Shut
+Beyond The Church
+French Pearl
+
+### "The New Age Of Terror" 2004, Thrash
+
+
+
+### "Assassins Of War (EP)" 2007, Thrash
+
+
+
+### "Chaos And Brutality (EP)" 2007, Thrash
+
+
+
+### "Thrash and Destroy (Live)" 2008, Thrash
+
+
+
+### "El Rostro De La Muerte" 2009, Thrash
+
+01. Baptized By Fire [04:16] 
+02. Flesh and Blood [05:42] 
+03. Eradicate Mankind [03:35] 
+04. Chaos and Brutality [03:35] 
+05. El Rostro de la Muerte (The Face of Death) [06:21] 
+06. Blind Faith [02:48] 
+07. Horrified [02:49] 
+08. Battle of the North [01:31] 
+09. The Laws of Temptation [04:37] 
+10. Death Militia [01:49] 
+11. Broken Neck [01:58] 
+12. Violent Assault [03:28] 
+13. Cuando Cae la Oscuridad (When Darkness Falls) [01:50] 
+14. Satan's Fall [06:25]
+
 
 ## Отношения с другими группами
 

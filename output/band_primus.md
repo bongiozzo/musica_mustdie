@@ -1,14 +1,67 @@
 # Primus
 
-Дискография
-"Suck on This [live]" 1990, Alternative
-"Frizzle Fry" 1990, Alternative
-"Sailing the Seas of Cheese" 1991, Metal
-"Pork Soda" 1993, Metal
-"Tales from the Punchbowl" 1995, Metal
-"The Brown Album" 1997, Metal
-"Rhinoplasty" 1998, Metal
-"Antipop" 1999, Metal
+(alternative) funk metal
+
+## Дискография
+
+### "Suck on This [live]" 1990, Alternative
+
+
+
+### "Frizzle Fry" 1990, Alternative
+
+
+
+### "Sailing the Seas of Cheese" 1991, Metal
+
+
+
+### "Pork Soda" 1993, Metal
+
+
+
+### "Tales from the Punchbowl" 1995, Metal
+
+1. Professor Nutbutter's House Of
+Treats
+2. Mrs. Blaileen
+3. Wynona's Big Brown Beaver
+4. Southbound Pachyderm
+5. Space Farm
+6. Year Of The Parrot
+7. Hellbound 17,5 (Theme From)
+8. Glass Sandwich
+9. Del Davis Farm
+10. De Anza Jig
+[11]. On The Tweek Again
+[12]. Over The Electric Grapevine
+[13]. Captain Shincr
+
+[11]-[13] - Ha cтоpoнe B
+
+ All songs written by PRIMUS.
+ Produced by PRIMUS
+ Recorded and mixed at Rancho Relaxo
+ Engineered By Tim Solyan
+
+Tim Alexander - Drums
+Larry Lalonde - Guitar, banjo
+Les Claypool - Bass
+
+ (p)(c) 1995 INTERSCOPE Records
+
+### "The Brown Album" 1997, Metal
+
+
+
+### "Rhinoplasty" 1998, Metal
+
+
+
+### "Antipop" 1999, Metal
+
+
+
 
 ## Отношения с другими группами
 

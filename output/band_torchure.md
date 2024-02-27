@@ -1,8 +1,64 @@
 # Torchure
 
-Дискография
-"Beyond The Veil" 1992, Death Metal
-"The Essence" 1993, Death Metal
+
+
+## Дискография
+
+### "Beyond The Veil" 1992, Death Metal
+
+1. The Veil Of Sanity (Intro)
+2. In His Grip
+3. Abysmal Malevolence
+4. Mortal At Last
+5. Resort To Mortality
+6. Genocidal Confessions
+7. Apathetic
+8. Depressions
+9. A Vortex Of Thoughts
+10. Beyond The Veil
+
+ Andreas - Guitar
+ Martin - Voice
+ Thorsten - Bass
+ Tomas - Guitar
+ Stefan - Drums
+
+All Songs By TORCHURE.
+Produced By Michael Stotzel.
+All Tracks Recorded,Engineered &
+Mixed In Jan. `92 By TORCHURE.
+
+(p)&(c) 1992  1 MORE FLOP Records
+
+### "The Essence" 1993, Death Metal
+
+1. Invisible Truth
+2. Sence Of Death
+3. Sinister Seduction
+4. Voice Of Power
+5. Terminus
+6. No Rest In Peace
+7. Between The Urges
+8. The Essence
+9. Cry Of Madness
+10.X
+11.Traces
+12.Lost Souls
+
+ Martin  - Vocals (No Harmonizers)
+ Malte  - Lead & Rhythm Guitars
+ Mario  - Rhythm Guitars
+ Dr.Fressenius - Neuro Bass
+ Patrick  - Keyboards & Programming
+ Stefan  - Drums
+
+Produced By TORCHURE & S.L.Coe.
+Mixed By S.L.Coe.
+Recorded At Dust Music Studios,Germany 
+In August `93 By S.L.Coe,Marcel Felsner & Patrick.
+
+(p)&(c) 1993 1 MORE FLOP Records
+
 
 ## Отношения с другими группами
 

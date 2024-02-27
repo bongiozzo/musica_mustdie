@@ -1,7 +1,23 @@
 # Bolero
 
-Дискография
-"Voyage from Vinland" 2011, Metal
+
+
+## Дискография
+
+### "Voyage from Vinland" 2011, Metal
+
+1. Voyage From Vinland
+2. Send Of The War Summons 
+3. When The Legends Die 
+4. Risen Victorious 
+5. Our Land, Our Seas, Our Skies 
+6. Pints Held High 
+7. O' Hail To The Northlander 
+8. Throne Of Storms 
+9. A Silence Prolonging 
+10. Way To Forgotten Lands 
+11. Sworn Under The Winter's Majesty
+
 
 ## Отношения с другими группами
 

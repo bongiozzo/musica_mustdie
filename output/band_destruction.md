@@ -1,20 +1,244 @@
 # Destruction
 
-Дискография
-"Sentence Of Death" 1984, Speed Metal
-"Infernal Overkill" 1985, Speed Metal
-"Eternal Devastation" 1986, Speed Metal
-"Release From Agony" 1987, Thrash
-"Live - Without Sense" 1989, Thrash
-"Cracked Brain" 1990, Thrash
-"All Hell Breaks Loose" 2000, Thrash
-"The Antichrist" 2001, Thrash
-"Metal Discharge" 2003, Thrash
-"Inventor Of Evil" 2005, Thrash
-"D.E.V.O.L.U.T.I.O.N. " 2008, Thrash
-"Day Of Reckoning" 2011, Thrash
-"Spiritual Genocide" 2012, Thrash
-"Under Attack" 2016, Thrash
+Germany Thrash
+
+## Дискография
+
+### "Sentence Of Death" 1984, Speed Metal
+
+1. Intro
+2. Total Disaster
+3. Black Mass
+4. Mad Butcher
+5. Satan`s Vengeance
+6. Devil`s Soldiers
+
+ Mike - Guitars
+ Tommy - Drums
+ Schmier - Bass & Vocals
+
+(p)&(c) 1984 STEAMHAMMER Prod.
+
+
+### "Infernal Overkill" 1985, Speed Metal
+
+1. Invincible Force
+2. Death Trap
+3. The Trap
+4. Tormentor
+5. Bestial Invasion
+6. Thrash Attack
+7. Antichrist
+8. Black Death
+
+(p)&(c) 1985 STEAMHAMMER Prod.
+
+
+### "Eternal Devastation" 1986, Speed Metal
+
+1. Curse The Gods
+2. Confound Games
+3. Life Without Sense
+4. United By Hatred
+5. Eternal Ban
+6. Upcoming Devastation
+7. Confused Mind
+
+ Mike - Guitars
+ Tommy - Drums
+ Schmier - Bass & Vocals
+
+(p)&(c) 1986 STEAMHAMMER Prod.
+
+### "Release From Agony" 1987, Thrash
+
+ Side One:
+1. Beyond Eternity 1.10
+2. Release From Agony 4.41
+3. Dissatisfied Existence 4.31
+4. Sign Of Fear 6.41
+ Side Two:
+1. Unconscious Ruins 4.43
+2. Inscriminated 5.19
+3. Our Oppression 4.47
+4. Survive To Die 5.30
+
+Schmier - Bass & Vocals
+Harry - Guitars
+Mike - Guitars
+Olly - Drums
+
+(p)&(c) 1987 STEAMHAMMER Records
+
+### "Live - Without Sense" 1989, Thrash
+
+
+
+### "Cracked Brain" 1990, Thrash
+
+1 Cracked Brain 3:36 (Destruction) 
+2 Frustrated 3:32 (Destruction) 
+3 Sed 3:31 (Destruction) 
+4 Time Must End 5:56 (Destruction) 
+5 My Sharona 3:09 (Destruction) 
+6 Rippin' You off Blind 5:28 (Destruction) 
+7 Die a Day Before You're Born 4:20 (Destruction) 
+8 No Need to Jusitfy 4:48 (Destruction) 
+9 When Your Mind Was Free 4:38 (Destruction) 
+
+
+### "All Hell Breaks Loose" 2000, Thrash
+
+1 Intro :43 (Destruction) 
+2 Final Curtain 4:26 (Destruction) 
+3 Machinery of Lies 3:41 (Destruction) 
+4 Tears of Blood 4:03 (Destruction) 
+5 Devestation of Your Soul 4:09 (Destruction) 
+6 Butcher Strikes Back 3:07 (Destruction) 
+7 World Domination of Pain 4:05 (Destruction) 
+8 X-Treme Measures 4:53 (Destruction) 
+9 All Hell Breaks Loose 5:40 (Destruction) 
+10 Total Desaster 2000 3:07 (Destruction) 
+11 Visual Prostitution 3:50 (Destruction) 
+12 Kingdom of Damnation 3:38 (Destruction) 
+13 [Untitled] 3:31 (Destruction) 
+
+
+### "The Antichrist" 2001, Thrash
+
+Days Of Confusion (intro)
+Thrash Till Death
+Nailed To The Cross
+Dictators Of Cruelty
+Bullets From Hell
+Strangulated Pride
+Meet Your Destiny
+Creations Of The Underworld
+Godfather Of Slander
+Let Your Mind Rot
+The Heretic
+
+### "Metal Discharge" 2003, Thrash
+
+01. The Ravenous Beast
+02. Metal Discharge
+03. Rippin` The Flesh Apart
+04. Fear Of The Moment
+05. Mortal Remains
+06. Desecrators Of The New Age
+07. Historical Force Feed
+08. Savage Symphony Of Terror
+09. Made To Be Broken*
+10. Vendetta
+Bonus tracks:
+11. Killers (Iron Maiden cover)
+12. Whiplash (Metallica cover)
+13. U.S.A. (The Exploited cover)
+14. Bestial Invasion (demo version `99)
+15. The Butcher Strickes Back (demo version `99)
+16. Nailed To The Cross (demo 2001)
+17. Metal Discharge (demo 2003)
+
+Mike Sifringer - guitar
+Schmier - vocals & bass
+Marc Rein - drums
+
+'Metal Discharge' was produced by Destruction and
+V.O. 'Praaaaschtwia' o tschisssi' Pulver
+All songs written by Destruction
+(Schmier/Sifringer), except * by
+Schmier/Sifringer/Reinke
+Second solo on 'The Ravenous Beast' by V.O.
+Recorded at Little Creek Studio, Gelterkinden,
+Switzerland
+Mixed and engineered by the 'Smokin' Twins: Frank
+Winkelmann and V.O.Pulver
+Mastered by Mr. Pulver himself at Little Creek in
+pain...
+Executive producer: Markus 'Old school' Stiger
+A&R: Dr. Med. Hc. Cesar Andy Siry
+Catering service by Inga Pulver
+
+Backing vocals by the Nurcery Rhyme - Choir From
+Hell - Terkinden:
+Andre 'Gnaderrr' Greider, Inga Pulver, franky
+Wikkelmann, Marc Rein, V.O.Pulver & Tschibu!
+
+This album features only real sounds! No fake shit
+- no computers - no pro tools - no triggers!!!
+Real metal!
+
+Pictures by Philipp Lederer & Marco Schmier
+Cover layout and design by Marco Schmier
+
+### "Inventor Of Evil" 2005, Thrash
+
+Soul Collector 
+The Defiance Will Remain 
+The Alliance of Hellhoundz 
+No Mans Land 
+The Calm Before the Storm 
+The Chosen Ones 
+Dealer of Hostility 
+Under Surveillance 
+Seeds of Hate 
+Twist of Fate 
+Killing Machine 
+Memories of Nothingness
+
+### "D.E.V.O.L.U.T.I.O.N. " 2008, Thrash
+
+
+
+### "Day Of Reckoning" 2011, Thrash
+
+1. The Price 
+2. Hate Is My Fuel   
+3. Armageddonizer   
+4. Devil’s Advocate   
+5. Day Of Reckoning   
+6. Sorcerer Of Black Magic   
+7. Misfit   
+8. The Demon Is God   
+9. Church Of Disgust   
+10. Destroyer Or Creator   
+11. Sheep Of The Regime 
+
+Limited Edition slipcase will come with a bonus:
+12. Stand Up And Shout (Ltd Edition Bonus Track) 
+
+### "Spiritual Genocide" 2012, Thrash
+
+1. Exordium
+2. Cyanide
+3. Spiritual Genocide
+4. Renegades
+5. City Of Doom
+6. No Signs Of Repentance
+7. To Dust You Will Decay
+8. Legacy Of The Past (feat. Andreas "Gerre" Geremia, Thomas "Angelripper" Such)
+9. Carnivore
+10. Riot Squad
+11. Under Violent Sledge
+12. Princess Of The Night
+13. Carnivore (feat. Harry Wilkens, Oliver Kaiser) 
+
+### "Under Attack" 2016, Thrash
+
+1. Under Attack  
+2. Generation Nevermore      
+3. Dethroned    
+4. Getting Used to the Evil     
+5. Pathogenic    
+6. Elegant Pigs     
+7. Second to None    
+8. Stand Up for What You Deliver    
+9. Conductor of the Void      
+10. Stigmatized   
+11. Black Metal (Venom cover) 
+12. Thrash Attack   
+
+
 
 ## Отношения с другими группами
 

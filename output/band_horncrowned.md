@@ -1,7 +1,23 @@
 # Horncrowned
 
-Дискография
-"Satanic Armageddon" 2006, Black Metal
+Columbian war black-metal
+
+## Дискография
+
+### "Satanic Armageddon" 2006, Black Metal
+
+Christophobic Campaign of Annihilation 
+Breed of Nuclear Devastation 
+Hatred Anthem 
+Black Seeds of Holocaust 
+Dominations of the Cursed 
+Demonic Mark Inside (the Goat Soldier) 
+Hatanic Armageddon 
+Rebirth into the Acheron 
+T.B.M.M. (offensive) 
+Crowned is hell 
+Triumph of the Beast
+
 
 ## Отношения с другими группами
 

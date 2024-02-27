@@ -1,9 +1,61 @@
 # Naos
 
-Дискография
-"The Final Harvest" 1996, Black Metal
-"Ourovoros" 1996, Black Metal
-"Melancholia" 1996, Black Metal
+
+
+## Дискография
+
+### "The Final Harvest" 1996, Black Metal
+
+1.  Cyberwar
+2.  Brother Satan (Eschatologia I)
+3.  The Final Harvest (The Rebuilding Of Ur)
+4.  Invictus
+5.  Eschato (Eschatologia II)
+6.  Foetus Of A Lunar Dimension
+7.  The Black Opal
+8.  Survival
+9.  The Sorrows Of Satan
+
+All Music Composed, Performed, Recorded & Mixed By Magus Wampyr Daoloth.
+Recorded & Mixed At Storm Studio.
+
+(P)&c 1996 ITSEMUHRA ARTS
+
+### "Ourovoros" 1996, Black Metal
+
+1. Ourovoros
+2. Iron Youth
+3. The Vampire Weeps
+
+All Music & Lyrics Composed & Performed By Magus Wampyr Daoloth.
+Produced By M.W.Daoloth & Fr.Nihil.
+Engineered By Dimitras Lahanis.
+Recorded & Mixed At Storm Studio.
+
+(P)c 1996 CACOPHONOUS Records
+
+### "Melancholia" 1996, Black Metal
+
+1.  The Storm From Wewelsburg
+2.  Occultica 
+3.  The King Is Dead
+4.  To Hell With Devil
+5.  Shaman's Tears
+6.  I Bleed (Stygmata Martyr)
+7.  Ourovoros
+8.  The Devil's Maze
+9.  Iron Youth
+10.  The Vampire Weeps
+
+All music and lyrics composed and performed by Magus Wampyr Daoloth.
+All guitars performed by Dimitris Lahanis & arranged by D. Lahanis & M.W.Daoloth.
+Recorded and Mixed at Sin Ena Studio
+Engineered by D. Lahanis and supervised by Christos Hajistamou.
+Produced by M.W.Daoloth and Fr. Nihil
+Executive producer F. Nihil
+
+(P)c 1996 CACOPHONOUS Records // NIHIL 15
+
 
 ## Отношения с другими группами
 

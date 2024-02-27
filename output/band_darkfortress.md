@@ -1,13 +1,175 @@
 # Dark Fortress
 
-Дискография
-"Tales From Eternal Dusk" 2001, Black Metal
-"Profane Genocidal Creations" 2003, Black Metal
-"Stab Wounds" 2004, Black Metal
-"Seance" 2006, Black Metal
-"Eidolon" 2008, Black Metal
-"Ylem" 2010, Black Metal
-"Venereal Dawn" 2014, Black Metal
+
+
+## Дискография
+
+### "Tales From Eternal Dusk" 2001, Black Metal
+
+1. The Arcanum of the Cursed 01:44  
+2. Pilgrim of the Nightly Spheres 04:14 
+3. Twilight 04:41 
+4. Apocalypse 03:39 
+5. Immortality Profound (Trilogy): Dreaming (Chapter I) 04:17  
+6. Immortality Profound (Trilogy): Throne of Sombre Thoughts (Chapter II) 05:07  
+7. Immortality Profound (Trilogy): Captured in Eternity's Eyes (Chapter III) 04:18 
+8. Misanthropic Invocation 05:49  
+9. Crimson Tears 06:45 
+10. Tales from Eternal Dusk 08:35  
+11. Moments of Mournful Splendour (At the Portal to Infinity) 03:03 
+
+
+Line-up:
+
+Azathoth - Vocals
+Asvargyr - Guitars
+V. Santura - Guitars
+Draug - Bass
+Paymon - Keyboards
+Seraph - Drums
+
+2xLP version released in 2005 by Fog Of The Apocalypse in a limited edition of
+486 copies, with two bonus tracks:
+12. Into My Deepest Desire
+13. Eye Of The Greyhound 
+
+### "Profane Genocidal Creations" 2003, Black Metal
+
+1. Introduction 01:45  
+2. Defiance of Death 08:36  
+3. Passage to Extinction 09:11  
+4. In Morte Aeternitas 09:04  
+5. Moribound Be Thy Creation 06:19  
+6. Through Ages of War 06:05  
+7. Blood of the Templars 07:20  
+8. Warlord (Face the Angel of Pestilence) 05:02  
+9. Battles Rage in the Infernal Depth 06:49  
+10. A Fortress Dark 08:16 
+
+
+Line-up:
+
+Azathoth - Vocals
+Asvargyr - Guitars
+V. Santura - Guitars
+Draug - Bass
+Paymon - Keyboards
+Seraph - Drums
+
+Recorded at Grieghallen Studios. 
+
+### "Stab Wounds" 2004, Black Metal
+
+1. Iconoclasm Omega 06:41
+2. Self Mutilation 06:45
+3. Stab Wounds 08:11
+4. When 1000 Crypts Awake 04:00
+5. Despise the "Living" 05:36 
+6. A Midnight Poem 08:47
+7. Rest in Oblivion 08:29 
+8. Vanitas... No Horizons 01:24  
+9. Like a Somnambulist in Daylight's Fire 07:52  
+10. Sleep! 03:16 
+
+
+Line-up:
+
+Azathoth - Vocals
+Asvargyr - Guitars
+V. Santura - Guitars
+Draug - Bass
+Paymon - Keyboards
+Seraph - Drums
+
+Cover artwork by Travis Smith.
+
+Adimiron (Angst) and Jens Rydйn (Naglfar) do guest vocals on track 7.
+Herr Morbid of Forgotten Tomb does guest vocals on track 9.
+
+The album was also released as a limited edition digipak with one bonus track:
+Endtime (Katatonia cover).
+
+2xLP version released by Black Attakk & Imperium Productions strictly limited to
+500 copies with additional bonus tracks:
+11. I Am the Black Wizards (Emperor cover)
+12. The Cryptic Winterforest
+13. Towards Immortality
+
+The sample "Manche Menschen sagen ich bin ein Psycho... und sie haben recht, ich
+bin ein Psycho! Sehen Sie mich an." at the beginning of the song "Self
+Mutilation" is from the film "The Sixth Sense". 
+
+### "Seance" 2006, Black Metal
+
+1. Ghastly Indoctrination 07:39
+2. CataWomb 06:41
+3. Requiem Grotesque 06:50
+4. While They Sleep 07:11 
+5. To Harvest the Artefacts of Mockery 04:11
+6. Poltergeist 05:56 
+7. Revolution:Vanity 05:14 
+8. Incide 05:20 
+9. Shardfigures 06:22
+10. Insomnia 06:34 
+
+
+Line-up:
+
+Azathoth - Vocals
+Asvargyr - Guitars
+V. Santura - Guitars
+Draug - Bass
+Paymon - Keyboards
+Seraph - Drums
+
+Mastered by Alex Krull of Atrocity in Mastersound Studios. 
+
+### "Eidolon" 2008, Black Metal
+
+1. The Silver Gate 6:50 
+2. Cohorror 5:37 
+3. Baphomet 6:24 
+4. The Unflesh 5:08 
+5. Analepsy 6:01 
+6. Edge of Night 3:56 
+7. No Longer Human 6:22 
+8. Catacrusis 4:33 
+9. Antiversum 7:22 
+
+### "Ylem" 2010, Black Metal
+
+1. Ylem 06:33  
+2. As The World Keels Over 06:36  
+3. Osiris 07:36  
+4. Silence 04:27  
+5. Evenfall 05:36  
+6. Redivider 07:08  
+7. Satan Bled 04:35  
+8. Hirudineans 04:56  
+9. Nemesis 06:35  
+10. The Valley 08:02  
+11. Wraith 08:16 
+
+
+Bonus track:
+12. Sycamore Trees (04:02)
+
+Sycamore Trees is a cover of Angelo Badalamenti from the soundtrack of the cult
+TV series Twin Peaks 
+
+### "Venereal Dawn" 2014, Black Metal
+
+1. Venereal Dawn  
+2. Lloigor      
+3. Betrayal and Vengeance    
+4. Chrysalis      
+5. I Am the Jigsaw of a Mad God
+6. The Deep      
+7. Odem      
+8. Luciform      
+9. On Fever's Wings  
+
+
 
 ## Отношения с другими группами
 

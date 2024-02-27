@@ -1,9 +1,40 @@
 # Zonata
 
-Дискография
-"Tunes Of Steel" 1999, Heavy Metal
-"Reality" 2001, Heavy Metal
-"Buried Alive" 2002, Power Metal
+
+
+## Дискография
+
+### "Tunes Of Steel" 1999, Heavy Metal
+
+01. Dream Child [03:36]
+02. Geronimo [04:55]
+03. Thor (The Thundergod) [04:20]
+04. Beyond The Rainbow [03:30]
+05. Criticized [07:50]
+06. Welcome To This World Of Fun [03:46]
+07. The Evil Shadow [05:13]
+08. Bring You Down To Hell [03:36]
+09. Zonata [03:24]
+10. Viking [05:13]
+
+### "Reality" 2001, Heavy Metal
+
+1. Reality
+2. Divided We Stand
+3. Illusion Of Madness
+4. Hollow Rain
+5. Symphony Of The Night
+6. Forever
+7. Wheel Of Life
+8. Dimension To Freedom
+9. Evil Mind
+10. Life?
+11. Intro + Gate Of Fear (newrecorded 2000)
+
+### "Buried Alive" 2002, Power Metal
+
+
+
 
 ## Отношения с другими группами
 

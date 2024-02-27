@@ -1,9 +1,21 @@
 # Caprice
 
-Дискография
-"Elvenmusic" 2001, Metal
-"Songs Of Innocence And Experience" 2002, Metal
-"The Evening Of Iluvatar's Children" 2003, Metal
+neoclassical, neobaroque, elvenmusic, a Russian project
+
+## Дискография
+
+### "Elvenmusic" 2001, Metal
+
+
+
+### "Songs Of Innocence And Experience" 2002, Metal
+
+
+
+### "The Evening Of Iluvatar's Children" 2003, Metal
+
+
+
 
 ## Отношения с другими группами
 

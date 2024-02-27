@@ -1,6 +1,9 @@
 # Аида
 
-Дискография
+Power-metal-progressive band from Samara
+
+## Дискография
+
 
 ## Отношения с другими группами
 

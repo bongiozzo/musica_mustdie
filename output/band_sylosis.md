@@ -1,11 +1,97 @@
 # Sylosis
 
-Дискография
-"Conclusion Of An Age" 2008, Metalcore
-"Edge Of The Earth" 2011, Melodic Death Metal
-"Monolith" 2012, Thrash
-"Dormant Heart" 2015, Thrash
-"Different Masks on the Same Face (single)" 2016, Thrash
+
+
+## Дискография
+
+### "Conclusion Of An Age" 2008, Metalcore
+
+01. Desolate Seas
+02. After Lifeless Years -
+03. The Blackest Skyline
+04. Transcendence
+05. Reflections Through Fire *
+06. Conclusion Of An Age
+07. Swallow The World*
+08. Teras
+09. Withered
+10. Last Remaining Light
+11. Stained Humanity
+12. Oath Of Silence*+
+
+### "Edge Of The Earth" 2011, Melodic Death Metal
+
+1. Procession 06:45  
+2. Sands Of Time 05:07  
+3. Empyreal 04:52  
+4. Empyreal (Part 2) 01:07  
+5. A Serpents Tongue 05:23  
+6. Awakening 03:59  
+7. Kingdom Of Solitude 05:37  
+8. Where The Sky Ends 03:56  
+9. Dystopia 05:44  
+10. Apparitions 07:15  
+11. Altered States Of Consciousness 05:31  
+12. Beyond The Resurrected 05:10  
+13. Eclipsed 04:46  
+14. From The Edge Of The Earth 07:38 
+
+
+Produced, Mixed and Mastered by Scott Atkins.
+Additional Ambience, Synths, Acoustic Guitars and Piano by Josh Middleton.
+
+line-up:
+Josh Middleton - Vocals, Guitars, Keyboards
+Alex Bailey - Guitars
+Carl Parnell - Bass
+Rob Callard - Drums
+
+iTunes bonus track:
+-15- Earth's dust (4:48)
+Total running time: 1:16:59 
+
+### "Monolith" 2012, Thrash
+
+1. Out From Below
+2. Fear The World
+3. What Dwells Within
+4. Behind The Sun
+5. The River
+6. Monolith
+7. Paradox
+8. A Dying Vine
+9. All Is Not Well
+10. Born Anew
+11. Enshrined 
+
+### "Dormant Heart" 2015, Thrash
+
+Disc 1 
+1. Where the Wolves Come to Die  02:55  
+2. Victims and Pawns  05:00   
+3. Dormant Heart  05:14   
+4. To Build a Tomb  04:21  
+5. Overthrown  04:08   
+6. Leech  05:01   
+7. Servitude  04:02   
+8. Indoctrinated  04:40   
+9. Harm  04:55   
+10. Mercy  04:55   
+11. Callous Souls  05:01   
+12. Quiescent  09:02   
+13. Pillars Erode  04:11  
+14. Zero (The Smashing Pumpkins cover) 02:39  
+
+Disc 2 (DVD) - Dormant Heart Sessions 
+1. Studio Interviews    
+2. To Build a Tomb (Live in the studio 2014) 04:28   
+3. Mercy (Live in the studio 2014)  04:57  
+4. Leech (Live in the studio 2014)  04:49
+
+### "Different Masks on the Same Face (single)" 2016, Thrash
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,33 @@
 # Thorns of the Carrion
 
-Дискография
-"The Garden Of Dead Winter" 1995, Death Doom
+
+
+## Дискография
+
+### "The Garden Of Dead Winter" 1995, Death Doom
+
+1. Everstill Cry (The Tears That Flood Tomorrow)
+2. Images Within The Tides Of Tranquillity
+3. The Abide Of The Undead Knights
+4. As Shadows Away The Soul
+5. Portrait Of The Impious
+6. On Watchers From Towers Above
+7. Mourners At The Edge Of Black Rain
+8. When The Sunlight Fades
+9. A Shade Of Sorrow (Into Forever)
+
+All Songs Written By THORNS OF THE CARRION.
+Produced & Mixed By Len Wathen.
+Recorded At Polaris Recording, Louisville, KY.
+
+Matt Chapman - Vocals
+Allen Scott - Guitars
+Marquis Thomas - Keyboards
+Jimmy Eldred - Bass
+Doug Nevels - Guitars
+
+(P)&(C) 1995 WILD RAGS Records
+
 
 ## Отношения с другими группами
 

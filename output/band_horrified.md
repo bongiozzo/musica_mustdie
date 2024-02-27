@@ -1,9 +1,70 @@
 # Horrified
 
-Дискография
-"In The Garden Of The Unearthly Delight" 1993, Black Metal
-"Animal" 1998, Black Metal
-"Deus Diabolus Inversus" 2002, Death Metal
+Melodic Doom Black
+
+## Дискография
+
+### "In The Garden Of The Unearthly Delight" 1993, Black Metal
+
+1.  The Awakening
+2.  Elisaph
+3.  Early Dawn Engaged
+4.  Crawling Silence
+5.  Down At The Valley Of The Great Encounter
+6.  Seperial Domination
+7.  Astral Submersion
+8.  Dying Forest
+9.  Baptized In Veneral Blood
+10.Poetry Of War
+11.Unbridled God
+12.Dancing Next To Dying Souls
+
+ Gore - Vocals
+ Stavros - Guitars
+ Thailos - Bass
+ Selios - Drums
+ Female Vocals By Mina Morfi
+
+All Songs By HORRIFIED
+
+(p)(c) 1995 BLACK POWER Records
+
+### "Animal" 1998, Black Metal
+
+Hypnos
+Forbidden Knowledge
+Ghost
+Redemption
+Davolia Varos
+Under the Roots
+Evol Morena
+Empty Moment
+Funny Man
+
+
+### "Deus Diabolus Inversus" 2002, Death Metal
+
+1. Deus Diabolus Inversus
+2. Battle Of The Serpents Within
+3. Requiem For A Caged Lust
+4. Selenes And Endymions Son
+5. Ascending Path: A Star Child Is Born
+6. Aphorism
+7. Monolith: Test Teach Transform
+8. Once Upon A Time?
+9. The Seven Gifts Of Sin
+10. Doberman
+11. Incects
+12. Avatar Of The Age Of Horus
+13. Argenteum Astrum
+
+
+Gore - vocals
+Stavros - guitars
+Thanos - bass
+Akis K. - drums
+
+
 
 ## Отношения с другими группами
 

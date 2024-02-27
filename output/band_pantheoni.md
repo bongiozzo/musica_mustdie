@@ -1,8 +1,17 @@
 # Pantheon I
 
-Дискография
-"Atrocity Divine" 2006, Black Metal
-"The Wanderer And His Shadow" 2008, Black Metal
+
+
+## Дискография
+
+### "Atrocity Divine" 2006, Black Metal
+
+
+
+### "The Wanderer And His Shadow" 2008, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

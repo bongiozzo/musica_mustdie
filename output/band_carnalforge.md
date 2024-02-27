@@ -1,12 +1,123 @@
 # Carnal Forge
 
-Дискография
-"Who's Gonna Burn" 1998, Melodic Death Metal
-"Firedemon" 2000, Melodic Death Metal
-"Please....Die!" 2001, Melodic Death Metal
-"The More You Suffer" 2003, Thrash
-"Aren't You Dead Yet" 2004, Thrash
-"Testify for My Victims" 2007, Thrash
+
+
+## Дискография
+
+### "Who's Gonna Burn" 1998, Melodic Death Metal
+
+1 Who's Gonna Burn (Carnal Forge) 
+2 Sweet Bride (Carnal Forge) 
+3 Twister (Carnal Forge) 
+4 Godzilla Is Coming Thru (Carnal Forge) 
+5 Other Side (Carnal Forge) 
+6 Part Animal...Part Machine (Carnal Forge) 
+7 Born To Hate (Carnal Forge) 
+8 Evilizer (Carnal Forge) 
+9 Maggotman (Carnal Forge) 
+10 Confuzzed (Carnal Forge) 
+
+
+
+### "Firedemon" 2000, Melodic Death Metal
+
+1 Too Much Hell Ain't Enough for Me 2:20 
+2 Covered with Fire 4:09 
+3 I Smell Like Death 2:59 
+4 Chained 2:51 
+5 Defacer 3:05 
+6 Pull the Trigger 2:30 
+7 Uncontrollable 3:16 
+8 Firedemon 2:26 
+9 Cure of Blasphemy 2:56 
+10 Headfucker 3:29 
+11 Torture Will Never Stop 2:03 
+12 Revel in Violence 2:45 
+
+ 
+
+ 
+
+ 
+
+
+### "Please....Die!" 2001, Melodic Death Metal
+
+01. Butchered, Slaugthered, Strangled, Hanged 
+02. Hand Of Doom  
+03. Fuel For Fire 
+04. Totalitarian Torture
+05. Everything Dies  
+06. Slaves 
+07. Welcome To Your Funeral 
+08. Please...Die! (Aren't You Dead Yet) 
+09. Becoming Dust 
+10. No Resurrection  
+11. A World All Soaked In Blood 
+12. A Higher Level Of Pain 
+
+
+Jonas Kjellgren - Vocals
+Jari Kuusisto - Guitar
+Petri Kuusisto - Guitar
+Lars Lindйn - Bass
+Stefan Westerberg - Drums
+
+
+### "The More You Suffer" 2003, Thrash
+
+1. H.B.F. Suicide (3:23)
+2. Deathblow (3:46)
+3. Ripped & Torn (3:43)
+4. Destroy Life (3:35)
+5. Cursed (3:17)
+6. Divine Killing Breed Machine (3:56)
+7. Deep Rivers Of Blood (4:36)
+8. Breaking Boundaries (3:37)
+9. Into Oblivion (4:01)
+10. My Bloody Rampage (3:53)
+11. Baptized In Fire (3:19)
+12. Let Me Bleed (3.26)
+
+Japan Bonus:
+13. Hits You Like A Hammer
+14. Bulletproof God Material
+
+Jonas Kjellgren - Vocals
+Stefan Westerberg - Drums
+Jari Kuusisto - Guitar
+Petri Kuusisto - Guitar 
+Lars Lindйn - Bass
+
+### "Aren't You Dead Yet" 2004, Thrash
+
+01. Decades of Despair
+02. My Suicide
+03. Burn Them Alive
+04. Waiting For Sundown
+05. Exploding Veins
+06. Sacred Flame
+07. Inhuman
+08. The Final Hour
+09. Totally Worthless
+10. The Strength of Misery
+11. Ruler of Your Blood (Japan only)
+
+### "Testify for My Victims" 2007, Thrash
+
+01. Testify For My Victims
+02. Burning Eden
+03. Numb (The Dead)
+04. Godsend Gods End
+05. End Game
+06. Questions Pertaining The Ownership Of My Mind
+07. Freedom By Mutilation
+08. Subhuman
+09. No Longer Bleeding
+10. Biological Waste Matter
+11. Lost Legion
+12. Ante Mori
+
 
 ## Отношения с другими группами
 

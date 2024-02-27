@@ -1,16 +1,68 @@
 # Jungle Rot
 
-Дискография
-"Skin The Living" 1996, Death Metal
-"Slaughter The Weak" 1997, Death Metal
-"Darkness Foretold (EP)" 1998, Death Metal
-"Dead And Buried" 2001, Death Metal
-"Fueled By Hate" 2004, Death Metal
-"War Zone" 2006, Death Metal
-"What Horrors Await" 2009, Death Metal
-"Kill On Command" 2010, Death Metal
-"Terror Regime" 2013, Death Metal
-"Order Shall Prevail" 2015, Death Metal
+
+
+## Дискография
+
+### "Skin The Living" 1996, Death Metal
+
+
+
+### "Slaughter The Weak" 1997, Death Metal
+
+
+
+### "Darkness Foretold (EP)" 1998, Death Metal
+
+
+
+### "Dead And Buried" 2001, Death Metal
+
+
+
+### "Fueled By Hate" 2004, Death Metal
+
+
+
+### "War Zone" 2006, Death Metal
+
+
+
+### "What Horrors Await" 2009, Death Metal
+
+
+
+### "Kill On Command" 2010, Death Metal
+
+01. Their Finest Hour 05:25 
+02. Blood Ties 03:53 
+03. Rise Up & Revolt 03:52 
+04. Kill on Command 03:22 
+05. Demoralized 03:15 
+06. Push Comes to Shove 03:12 
+07. I Predict a Riot 02:51 
+08. No Mercy (from the Merciless) 03:23 
+09. Born of Contagion 04:03 
+10. Life Negated 02:36
+
+### "Terror Regime" 2013, Death Metal
+
+01. Voice Your Disgust (3:02)
+02. Terror Regime (3:55)
+03. Utte Chaos (2:50)
+04. I Am Hatred (3:43)
+05. Blind Devotion (3:21)
+06. Scorn (3:54)
+07. Rage Through The Wasteland (3:16)
+08. Ruthless Omnipotence (3:11)
+09. I Don't Need Society (1:40)
+10. Carpet Bombing (1:13)
+11. Pronounced Dead (4:28)
+
+### "Order Shall Prevail" 2015, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

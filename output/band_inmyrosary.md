@@ -1,9 +1,80 @@
 # In My Rosary
 
-Дискография
-"Those Silent Years" 1995, Gothic
-"Under The Mask Of Stone" 1995, Gothic
-"Farewell To Nothing" 1996, Gothic
+
+
+## Дискография
+
+### "Those Silent Years" 1995, Gothic
+
+1. Winter
+2. Wahre Freundschaft
+3. Dust
+4. Sleepless
+5. No Doubt
+
+All Songs Written By IN MY ROSARY.
+Produced By IN MY ROSARY.
+Recorded & Mixed At 8 Track Studio,Germany.
+
+Ralf Jesek - Music
+Dirk Lakomi - Words
+
+(P)&(C) 1995 DISCORDIA Records
+
+### "Under The Mask Of Stone" 1995, Gothic
+
+1. The Rose Of The World
+2. Little Death
+3. Ghost
+4. Night Owl
+5. Janus Inside
+6. Circles
+7. Tar
+8. Pearl In Shell
+9. The Liar
+10.Here Again
+[11].Prisoner
+[12].Opus Exit
+
+[11],[12] - на стороне B
+
+All Songs Written By IN MY ROSARY.
+Produced By IN MY ROSARY.
+Recorded & Mixed At 8 Track Studio,Germany.
+
+Ralf Jesek - Music
+Dirk Lakomi - Words
+
+(P)&(C) 1995 DISCORDIA Records
+
+### "Farewell To Nothing" 1996, Gothic
+
+1. Farewell
+2. Sweet Murderer
+3. An Opened Book
+4. Inner Man
+5. Mirage (Instrumental)
+6. No Time
+7. Flood
+8. Just This
+9. Weird Shadows
+10. Memories
+11. Fall Apart З
+[12].Leise Zieht...
+[13].Voyage Synthetique
+[14].Night Porter
+
+[12]-[14] - Ha стороне B
+
+All songs written by IN MY ROSARY, except З Written by DEATH IN JUNE.
+Produced by IN MY ROSARY.
+Recorded and mixed at Charlotte's Place ' Rheinstetten
+
+Ralf Jesek - Music, Voice, Instruments
+Dirk Lakomy - Lyiics, Occasional Voice
+
+(p)c 1996 DISCORDIA Records
+
 
 ## Отношения с другими группами
 

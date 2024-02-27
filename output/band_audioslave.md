@@ -1,7 +1,27 @@
 # Audioslave
 
-Дискография
-"Audioslave" 2002, Alternative
+(ex-SOUNDGARDEN Chris Cornell and former RAGE AGAINST THE MACHINE members)
+
+## Дискография
+
+### "Audioslave" 2002, Alternative
+
+1  Cochise 
+2  Show Me How To Live 
+3  Gasoline 
+4  What You Are 
+5  Like A Stone 
+6  Set It Off 
+7  Shadow On The Sun 
+8  I Am The Highway 
+9  Exploder 
+10  Hypnotize 
+11  Bring Em Back Alive 
+12  Light My Way 
+13  Getaway Car 
+14  The Last Remaining Light  
+
+
 
 ## Отношения с другими группами
 

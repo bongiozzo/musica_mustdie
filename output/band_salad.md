@@ -1,8 +1,55 @@
 # Salad
 
-Дискография
-"Singles Bar" 1995, Grunge
-"Drink Me" 1995, Grunge
+Check out "Veruca Salt"
+
+## Дискография
+
+### "Singles Bar" 1995, Grunge
+
+1. Kent
+2. The King Of Love
+3. Heaven Can Wait
+4. Mistress
+5. Deminished Clothes
+6. Clear My Name
+7. Come Back Tomorrow
+8. On A Leash
+9. What Do You Say About That
+10. Planet In The Ocean
+11. Problematique
+
+ Marijne - Vocals, Keyboards
+ Paul Kennedy - Guitars, Vocals
+ Pete Brown - Bass
+ Rob Wakeman - Drums, Samples
+
+(P)&(C) 1995 ISLAND Records Ltd.
+
+### "Drink Me" 1995, Grunge
+
+1. Motorbike To Heaven
+2. Drink The Elixir
+3. Granite Statue
+4. Machine Of Menace
+5. Overhear Me
+6. Muscleman
+7. Your Ma
+8. Warms Of The Hearth
+9. Gertrude Campbell
+10.Nothing Happens
+11.No. 1's Cooking
+12.A Man With A Box
+13.Insomnia
+
+Produced & Mixed By Mark Frigard.
+
+Marijne - Vocals, Keyboards
+Paul Kennedy - Guitars, Vocals
+Pete Brown - Bass
+Rob Wakeman - Drums, Samples
+
+(P)&(C) 1995 ISLAND Records Ltd.
+
 
 ## Отношения с другими группами
 

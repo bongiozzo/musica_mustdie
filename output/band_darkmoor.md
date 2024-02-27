@@ -1,19 +1,242 @@
 # Dark Moor
 
-Дискография
-"Shadowland" 1999, Power Metal
-"The Hall of the Olden Dreams" 2000, Power Metal
-"The Fall Of Melnibone" 2001, Power Metal
-"The Gates of Oblivion" 2002, Power Metal
-"The Dark Moor" 2003, Metal
-"From Hell" 2003, Power Metal
-"Between Light and Darkness" 2003, Power Metal
-"Beyond The Sea" 2005, Power Metal
-"Tarot" 2007, Power Metal
-"Autumnal " 2009, Power Metal
-"Ancestral Romance" 2010, Power Metal
-"Ars Musica" 2013, Power Metal
-"Project X " 2015, Power Metal
+(Spanish Power, Neo-Classical)
+
+## Дискография
+
+### "Shadowland" 1999, Power Metal
+
+1 - Shadowland 0:36
+2 - Walhalla 6:57 
+3 - Dragon Into The Fire 5:05 
+4 - Calling On The Wind 5:04 
+5 - Magic Land 4:58 
+6 - Flying 6:40 
+7 - Time Is The Avenger 7:11 
+8 - Born In The Dark 5:06 
+9 - The King's Sword 5:50 
+10 - The Call 6:51
+ 
+
+
+### "The Hall of the Olden Dreams" 2000, Power Metal
+
+  1.   The Ceremony (Garcia) - 1:31 
+  2.   Somewhere in Dreams (Garcia) - 4:51 
+  3.   Maid of Orleans (Garcia) - 5:04 
+  4.   Bells of Notre Dame (Garcia) - 4:48 
+  5.   Silver Lake (Maroto) - 5:17 
+  6.   Mortal Sin (Garcia) - 5:38 
+  7.   The Sound of the Blade (Garcia) - 4:00 
+  8.   Beyond the Fire (Garcia/Maroto) - 6:12 
+  9.   Quest for the Eternal Fame (Garcia/Maroto) - 6:49 
+  10.   Hand in Hand (Garcia) - 4:38 
+
+Recorded, mixed and masterded at New Sin Studios (Italy), August - September 2000
+Produced by Luigi Stefanini & Dark Moor
+Cover concept by Andreas Marschall
+Cover artwork by Andreas Marschall
+Photos by Alfonso "El Abuelo"
+Photo assistant: Eva
+Booklet design & layout by Carlos
+Published by Arise Records S. L.
+
+Backing vocals recorded by: Elisa, Enrik Garcнa, Albert Maroto & Valerio Miliani
+
+
+### "The Fall Of Melnibone" 2001, Power Metal
+
+1 - The Fall Of Melnibone 10:31 
+2 - Silver Lake 5:17 
+3 - Wood Song 3:11 
+4 - Halloween (Helloween) 13:24 
+5 - Cuentos De Ayer Y De Hoy (Сu) 3:40 
+
+
+### "The Gates of Oblivion" 2002, Power Metal
+
+1 - The Heart Of Stone 4:37
+2 - A New World 5:55
+3 - The Gates Of Oblivion 1:38
+4 - Nevermore 4:47 
+5 - Starsmaker (Elbereth) 5:44 
+6 - Mist In The Twilight 0:50 
+7 - By The Stange Path Of Destiny 5:49 
+8 - The Night Of The Ages 4:40 
+9 - Your Symphony 4:32 
+10 - The Citadel Of The Light 1:11 
+11 - A Truth Of Me 5:07 
+12 - Dies Irae (Amadeus) 11:10
+13 - The Shadow Of The Nile 5:59 
+
+
+### "The Dark Moor" 2003, Metal
+
+1-A Life For Revenge 
+2-Eternity 
+3-The Bane Of Daninsky,The Wereworl 
+4-Philip,The Second 
+5-From Hell 
+6-Cyrano Of Bergerac 
+7-Overture 
+8-Wind Like Stroke  
+9-Return For Love  
+10-Amore Venio 
+11-The Ghost Sword 
+12-The Dark Moor
+13-The Mysterious Maiden (Bonus Track)
+
+
+Enrik Garcia : guitar & backing vocals
+Anan Kaddouri : bass
+Alfred Romero : vocals
+Jose Garrido : guitar
+Andy C. : Drums
+
+
+Recorded at New Sin Studios, mastered by Mika Jussila at Finnvox
+
+### "From Hell" 2003, Power Metal
+
+1-From Hell 
+2-The Sea 
+3-The Mysterious Maiden (Beatriz Albert on lead vocals)
+
+### "Between Light and Darkness" 2003, Power Metal
+
+1. A lament of misery (Acoustic)
+2. From dawn to dusk (Acoustic)
+3. Memories (Acoustic)
+4. Echoes of the seas (Orchestral)
+5. Mistery of goddes (Bonus track from The Gates of Oblivion)
+6. Shadow of the Nile (Bonus track from The Gates of Oblivion)
+7. Dies Irae (Orchestral)
+8. Fall of melnibone (Bonus track from The Hall of the Olden Dreams)
+
+
+- Albert Maroto - guitars
+- Elisa C.Martin - lead & backing vocals
+- Jorge Saex - drums
+- Enrik Garcia - guitars
+- Annan Kaddouri - bass
+
+Guest musicians:
+- Mari Llanos Calleja - Harpist
+- Alicia Fernandez - Flute
+- Justo Maroto - Clasic guitar
+- Luis Alvarez - Violins and viola
+- Maria Jose Lopez - Cello
+- Isabel Garcнa - Piano
+- Nacho Ruiz, Mamen, Jose Garrido (Arwen) - chorus
+
+
+
+### "Beyond The Sea" 2005, Power Metal
+
+1. Before the Duel
+2. Miracles
+3. Houdini's The Great Escapade
+4. Through the Gates of the Silver Key (Interlude)
+5. The Silver Key
+6. Green Eyes
+7. Going On
+8. Beyond the Sea
+9. Iulius Caesar (Interlude)
+10. Alea Jacta
+11. Vivaldi's Winter (Bonus Track)
+
+### "Tarot" 2007, Power Metal
+
+1. The Magician   
+2. The Chariot   
+3. The Star   
+4. Wheel Of Fortune   
+5. The Emperor   
+6. Devil In The Tower   
+7. Death   
+8. Lovers   
+9. The Hanged Man   
+10. The Moon 
+
+
+Alfred Romero - Vocals
+Enrik Garcнa - Guitars
+Daniel Fernandez - Bass
+Roberto Cappa - Drums
+
+### "Autumnal " 2009, Power Metal
+
+1. Swan Lake   
+2. On the Hill of Dreams   
+3. Phantom Queen   
+4. An End So Cold   
+5. Faustus   
+6. Don't Look Back   
+7. When the Sun is Gone   
+8. For Her   
+9. The Enchanted Forest   
+10. The Sphinx   
+11. Fallen Leaves Waltz 
+
+
+### "Ancestral Romance" 2010, Power Metal
+
+1. Gadir 04:59  
+2. Love From The Stone 04:02  
+3. Alaric De Marnac 04:42  
+4. Mio Cid 06:39  
+5. Just Rock 02:35  
+6. Tilt At Windmills 05:19  
+7. Canciуn Del Pirata 05:39  
+8. Ritual Fire Dance 03:58  
+9. Ah! Wretched Me 04:59  
+10. A Music In My Soul 07:31 
+
+
+### "Ars Musica" 2013, Power Metal
+
+1. Ars Musica (Intro)  02:10  
+2. First Lance of Spain  05:06   
+3. This Is My Way  04:17   
+4. The Road Again  04:43   
+5. Together as Ever  04:52   
+6. The City of Peace  04:07   
+7. Gara and Jonay  04:26   
+8. Living in a Nightmare  04:21   
+9. El Ultimo Rey  05:17   
+10. St. James Way  04:06   
+11. Spanish Suite (Asturias)  05:31 
+12. The Road Again (Acoustic version) 02:42
+13. Living in a Nightmare (Orchestral version) 04:18
+
+Japanese edition comes with a bonus cd:
+1. This Is My Way (Orchestral version)
+2. Together as Ever (Orchestral version)
+3. El Ъltimo Rey (Orchestral version)
+4. First Lance of Spain (Orchestral version)
+5. Bohemian Caprice (Bonus track)
+
+
+Recorded and mixed at New Sin Studios between January and February 2013, Italy
+Mastered at New Sin Studios
+All music written by Enrik Garcнa except "This is my Way", "Together as Ever", "Saint James Way" by Enrik Garcнa & Mario Garcнa.
+Asturias by Isaac Albйniz
+All lyrics writter by FranciscoJ. Garcнa except "El Ъltimo Rey" by Francisco J. Garcнa & Alfred Romero.
+Arrangements by Dark Moor
+
+### "Project X " 2015, Power Metal
+
+01. November 3023
+02. Abduction
+03. Beyond The Stars
+04. Conspiracy Revealed
+05. I Want To Believe
+06. Bon Voyage!
+07. The Existence
+08. Imperial Earth
+09. Gabriel 
+10. There's Something In The Skies
+
 
 ## Отношения с другими группами
 

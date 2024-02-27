@@ -1,7 +1,54 @@
 # Hagen
 
-Дискография
-"Corridors Of Power" 2001, Folk
+progressive folk metal
+
+## Дискография
+
+### "Corridors Of Power" 2001, Folk
+
+1. A summer air 
+(Music and lyrics: Lundin. Interpretation of the Swedish lyrics: Kevin Fickling)
+2. For Kristina 
+(Music: A. Rosйn. Arrangement: A. Rosйn, H. Rosйn, Nilsson)
+3. Sundown 
+(Music: A. Rosйn, H. Rosйn, Nilsson, Ohlsson. Lyrics: Ohlsson. Arrangement: A. Rosйn, H. Rosйn, Nilsson)
+4. Mother nature 
+(Music: A. Rosйn, H. Rosйn, Ohlsson. Lyrics: Ohlsson. Arrangement: A. Rosйn, H. Rosйn, Nilsson)
+5. Questions 
+(Music: H. Rosйn, Ohlsson. Lyrics: Ohlsson. Arrangement: H. Rosйn, Nilsson)
+6. The northwinds blow  
+(Music: H. Rosйn. Lyrics: Ohlsson. Arrangement: H. Rosйn, Nilsson, Ohlsson)
+7. Mountain song  
+(Music: A. Rosйn. Arrangement: Lundin)
+8. Nobody's listening 
+(Music: A. Rosйn, Ohlsson. Lyrics: Ohlsson. Arrangement: A. Rosйn, H. Rosйn, Jansson)
+9. Sweet tender Sofie  
+(Music: A. Rosйn, H. Rosйn, Nilsson, Jansson, Ohlsson. Lyrics: Ohlsson. Arrangement: A. Rosйn, H. Rosйn, Nilsson, Jansson)
+10. For Ulf 
+(Music: A. Rosйn. Arrangement: A. Rosйn, Nilsson, H. Rosйn)
+11. June  
+(Music: A. Rosйn, H. Rosйn, Ohlsson. Lyrics: Ohlsson. Arrangement: A. Rosйn, H. Rosйn)
+12. Afraid  
+(Music: A. Rosйn, Ohlsson. Lyrics: Ohlsson. Arrangement: A. Rosйn, H. Rosйn, Lundin)
+13. Remember  
+(Music and lyrics: H. Rosйn. Arrangement: H. Rosйn, Nilsson)
+14. Dragonfly dance  
+(Music: Nilsson, A. Rosйn. Arrangement: Nilsson)
+
+ 
+* Michael Ohlsson: Lead and backing vocals
+ 
+* Anders Rosйn: Electric violin
+ 
+* Per Nilsson: 7 and 6 string Guitar
+ 
+* Hans Lundin: Hammond organ, synthesizers, Mellotron and backing vocals
+ 
+* Hans Rosйn: 5 and 4 string Bass guitar and backing vocals
+ 
+* Patrik Jansson: Drums and percussion 
+
+
 
 ## Отношения с другими группами
 

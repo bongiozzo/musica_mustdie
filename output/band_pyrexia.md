@@ -1,10 +1,73 @@
 # Pyrexia
 
-Дискография
-"Sermon Of Mockery" 1993, Death Metal
-"System of the Animal" 1997, Death Metal
-"Cruelty Beyond Submission" 2003, Death Metal
-"Age of the Wicked" 2007, Death Metal
+
+
+## Дискография
+
+### "Sermon Of Mockery" 1993, Death Metal
+
+1. Sermon Of Mockery
+2. Resurrection
+3. Abominat
+4. The Uncreation
+5. God
+6 Demigod
+7. Inhumanity
+8. Liturgy Of Impurity
+
+ Darryl Wagner - Vocals
+ Chris Basile - Bass
+ Tony Caravella - Guitar
+ Guy Marchais - Guitar
+ Mike Andreiko - Drums
+
+All Music Written & Arranged By PYREXIA
+Produced By Jim Sabella
+Engineered By Jim Sabella & Ken Gloria
+Recorded At Sabella Studios, Roslyn, NY
+
+### "System of the Animal" 1997, Death Metal
+
+1. Confrontation 03:07  
+2. Downsized 03:47  
+3. System Of The Animal 02:07  
+4. Closure 02:09  
+5. Purging The Nemesis 02:25  
+6. Day One 03:51  
+7. Unscathed 02:40  
+8. G.F.Y.S. (Go Fuck Your Self) 03:35
+
+### "Cruelty Beyond Submission" 2003, Death Metal
+
+1. Life Long Hate 04:09  
+2. Ode To Brinn 03:35  
+3. No Apologies 01:54  
+4. Confrontation 03:07  
+5. Closure 02:08  
+6. System of The Animal 02:05  
+7. Hatred, Anger And Disgust 04:14  
+8. Bludgeoned By Deformity 04:16  
+9. Inhumanity 03:59  
+10. Resurrection 02:45  
+11. Sermon of Mockery 03:47 
+
+
+The new Un-creation from PYREXIA containing 3 new tracks from their upcoming
+full length along with 8 digitally remastered classics selected from all three
+previous releases.
+
+Line-up:
+
+Chris Basile - guitars
+Eric Shute - vocals
+Lee Cozens - guitars
+Justin Dipinto - drums
+Chris Lytle - bass
+
+### "Age of the Wicked" 2007, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

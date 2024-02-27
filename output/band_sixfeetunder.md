@@ -1,21 +1,316 @@
 # Six Feet Under
 
-Дискография
-"Haunted" 1995, Death Metal
-"Alive And Dead" 1996, Death Metal
-"Warpath" 1997, Death Metal
-"Maximum Violence" 1999, Death Metal
-"Graveyard Classics" 2000, Death Metal
-"True Carnage" 2001, Death Metal
-"Double Dead" 2002, Death Metal
-"Bringer Of Blood" 2003, Death Metal
-"Graveyard Classics II" 2004, Death Metal
-"13" 2005, Death Metal
-"Commandment" 2007, Death Metal
-"Death Rituals" 2008, Death Metal
-"Undead" 2012, Death Metal
-"Unborn" 2013, Death Metal
-"Crypt of the Devil" 2015, Death Metal
+Best Death Metal band, ex-Death, Obituary, Cannibal Corpse!!!
+
+## Дискография
+
+### "Haunted" 1995, Death Metal
+
+1. The Enemy Inside
+2. Silent Violence
+3. Lycanthropy
+4. Still Alive
+5. Beneath A Black Sky
+6. Human Target
+7. Remains Of You
+8. Suffering In Ecstasy
+9. Tomorrow's Victim
+10.Torn To The Bone
+11.Haunted
+
+All Songs By Chris Barnes & Allen West.
+Produced By Brian Slagel,Scott Burns & SIX FEET UNDER.
+Engineered By Brian Slagel & Mixed By Scott Burns.
+Recorded At Morrisound Studio.
+
+Greg Gall - Drums
+Chris Barnes (CANNIBAL CORPSE) - Vocal
+Allen West (OBITUARY) - Guitars
+Terry Butler (DEATH) - Bass
+
+(P)&(C) 1995 METAL BLADE Records
+
+### "Alive And Dead" 1996, Death Metal
+
+1. Insect
+2. Drowning
+3. Grinder *
+4. Suffering In Ecstasy (Live)
+5. Human Target (Live)
+6. Lycanthropy (Live)
+7. Benath A Black Sky (Live)
+
+All Songs By Chris Barnes & Allen West, except * by JUDAS PRIEST.
+Produced By Brian Slagel, Bill Metoyer & SIX FEET UNDER.
+Engineered By Bill Metoyer.
+Recorded At Criteria Studios, Miami, FL
+
+Greg Gall - Drums
+Chris Barnes (CANNIBAL CORPSE) - Vocals
+Allen West (OBITUARY) - Guitars
+Terry Butler (DEATH) - Bass
+
+(P)(C) 1997 METAL BLADE Records
+
+### "Warpath" 1997, Death Metal
+
+1. War Is Coming 
+2. Nonexistence 
+3. A Journey Into Darkness 
+4. Animal Instinct  
+5. Death or Glory 
+6. Burning Blood 
+7. Manipulation  
+8. 4:20 
+9. Revenge Of The Zombie  
+10.As I Die 
+11.Night Visions  
+12.Caged And Disgraced 
+
+-----------------------------------
+DRUMS - GREG GALL
+RHYTHM AND LEAD GUITAR - ALLEN WEST
+ALL VOICES - CHRIS BARNES
+BASS GUITAR - TERRY BUTLER
+
+
+All songs written and arranged by Chris Barnes and Allen West, except Death
+Or Glory by John Mortimer and published by Heartbeat Music
+
+4:20 was recorded on 4/20/97 at 4:20pm
+*Extra special thanks to Jason Barnes for providing Oregon Glass Guzzler*
+ 
+
+### "Maximum Violence" 1999, Death Metal
+
+1. Feasting On The Blood Of The Insane  
+2. Bonesaw 
+3. Victim Of The Paranoid  
+4. Short Cut To Hell  
+5. No Warning Shot 
+6. War Machine 
+7. Mass Murder Rampage 
+8. Brainwashed 
+9. Tourture Killer 
+10.This Graveyard Earth 
+11.Hacked To Pieces  
+12.Wrathchild (BonusTrack) 
+13.Jailbreak (BonusTrack)
+
+### "Graveyard Classics" 2000, Death Metal
+
+01. Holocaust (Savatage)
+02. TNT (ACDC)
+03. Sweet Leaf (Black Sabbath)
+04. Piranha (Exodus)
+05. Son Of A Bitch (Accept)
+06. Stepping Stone (Sex Pistols)
+07. Confused (Angelwitch)
+08. California Ulber Alles (Dead Kennedys)
+09. Smoke On The Water (Deep Purple)
+10. Blackout (Scorpions)
+11. Purple Haze (Jimi Hendrix)
+12. In League With Satan (Venom)
+
+
+### "True Carnage" 2001, Death Metal
+
+01 - Impulse To Disembowel
+02 - The Day The Dead Walked
+03 - It Never Dies
+04 - The Murderers
+05 - Waiting For Decay
+06 - One Bullet Left
+07 - Knife, Gun, Axe
+08 - Snakes
+09 - Sick And Twisted
+10 - Cadaver Mutilator
+11 - Necrosociety
+
+
+### "Double Dead" 2002, Death Metal
+
+[DVD box]
+
+1. The Day the Dead Walked
+2. The Murderers
+3. Waiting for Decay
+4. Impulse to Disembowel
+5. Feasting on the Blood of the Insane
+6. No Warning Shot
+7. Silent Violence
+8. The Enemy Inside
+9. Victim of the Paranoid
+10. Manipulation
+11.Torn to the Bone
+12. 4:20
+13. Bonesaw
+14. Torture Killer
+
+Special Features:
+-Inside Death Metal
+-Photo Gallery
+-Discography
+
+DVD: Recorded live on June 14, 2002 at The Lab in St. Paul, MN - No Overdubs were used! Cover artwork by Paul Booth (www.lastrites.com)
+
+Bonus Audio CD
+
+1. War Is Coming Recorded in Seattle, WA
+2. A Journey Into Darkness Recorded in Seattle, WA
+3. Revenge Of The Zombie Recorded in Seattle, WA
+4. Night Visions Recorded during sound check in Seattle, WA
+5. Hacked To Pieces Recorded in Denver, CO 
+
+### "Bringer Of Blood" 2003, Death Metal
+
+1. Sick In The Head
+2. Amerika The Brutal
+3. My Hatred
+4. Murdered In The Basement
+5. When Skin Turns Blue
+6. Bringer Of Blood
+7. Ugly
+8. Braindead
+9. Blind And Gagged
+10. Claustrophobic
+11. Escape From The Grave
+
+
+### "Graveyard Classics II" 2004, Death Metal
+
+1. Hells Bells
+2. Shoot to Thrill 
+3. What Do You Do For Money Honey
+4. Givin the Dog a Bone 
+5. Let Me Put My Love Into You 
+6. Back in Black 
+7. You Shook Me All Night Long 
+8. Have A Drink On Me 
+9. Shake A Leg 
+10. Rock N' Roll Ain't Noise Pollution
+
+
+Six Feet Under is:
+Steve Swanson – Guitar
+Chris Barnes – Voice
+Greg Gall – Drums
+Terry Butler – Bass
+
+
+All songs written by Young, Young and Johnson
+All songs published by J. Albert Ltd./Marks Music, BMI
+
+Produced by Chris Barnes
+
+Engineered by Chris Carroll
+Recorded at Morrisound Studios, Tampa, Fl and
+The Hit Factory Criteria, Miami, Fl, June 2004
+
+### "13" 2005, Death Metal
+
+
+
+### "Commandment" 2007, Death Metal
+
+1. Doomsday   
+2. Thou Shall Kill   
+3. Zombie Executioner   
+4. The Edge of the Hatchet   
+5. Bled to Death   
+6. Resurrection of the Rotten   
+7. As the Blade Turns   
+8. The Evil Eye   
+9. In A Vacant Grave   
+10. Ghosts of the Undead
+
+### "Death Rituals" 2008, Death Metal
+
+1. Death By Machete 03:45 
+2. Involuntary Movement Of Dead Flesh 03:29 
+3. None Will Escape 03:24 
+4. Eulogy For The Undead 04:17 
+5. Seed Of Filth 04:58 [view lyrics] 
+6. Bastard (Mцtley Crьe cover) 03:26 
+7. Into The Crematorium 03:43  
+8. Shot In The Head 05:01
+9. Killed In Your Sleep 04:37
+10. Crossroads To Armageddon 02:09
+11. Ten Deadly Plagues 05:10 
+12. Crossing The River Styx (Outro) 01:16  
+13. Murder Addiction 03:56 
+
+Line-up:
+Chris Barnes : Vocals
+Steve Swanson : Guitars
+Terry Butler : Bass
+Greg Gall : Drums
+
+Produced by Chris Barnes.
+Recorded and engineered by Chris Carroll at Morrisound Studios, Tampa, Flordia, and The Hit Factory Criteria, Miami, Florida.
+All songs mixed by Toby Wright at Skip Saylor Recording, Northridge, California, except "Crossroads to Armageddon" and "Crossing the River Styx," mixed by Chris Carroll at The Hit Factory Criteria, Miami, Florida.
+Drum tracking assistant - Bill Metoyer.
+Assistant recording engineer in Miami - Alex Graupera
+Assistant recording engineers in Tampa - Jason Blackerby and Sean Burnett
+Mix assistants - James Musshorn and Ian Blanch
+Mastered by Alan Douches at West West Side Music, New Windsor, New York.
+Graphic design, cover art, and layout by A.M. Karanitant / www.darkmouth.com
+Band photos by Christian Girstmair / www.regurge.at
+All lyrics and vocal arrangements by Chris Barnes.
+All songs written by Barnes/Swanson/Butler/Gall, except "Crossroads to Armageddon," written and performed by Chris Barnes, and "Crossing the River Styx," written by Steve Swanson, and "Bastard," written by Nikki Sixx (Motley Crьe). 
+
+### "Undead" 2012, Death Metal
+
+1. Frozen At the Moment of Death 03:42 
+2. Formaldehyde 02:47 
+3. 18 Days 02:40 
+4. Molest Dead 03:13 
+5. Blood On My Hands 03:37 
+6. Missing Victims 03:57 
+7. Reckless 03:04 
+8. Near Death Experience 02:56 
+9. The Scar 03:07 
+10. Delayed Combustion Device 03:27 
+11. Vampire Apocalypse 03:54 
+12. The Depths of Depravity 03:49
+
+
+Line-up: 
+Chris Barnes - Vocals  
+Steve Swanson - Guitars 
+Kevin Talley - Drums 
+Rob Arnold - Guitars  
+Jeff Hughell - Bass
+
+### "Unborn" 2013, Death Metal
+
+1. Neuro Osmosis  03:10  
+2. Prophecy  03:19  
+3. Zombie Blood Curse  04:08   
+4. Decapitate  02:50  
+5. Incision  02:48  
+6. Fragment  02:56   
+7. Alive to Kill You  03:17 
+8. The Sinister Craving  02:16  
+9. Inferno  02:53  
+10. Psychosis  03:47   
+11. The Curse of Ancients  04:37 
+
+
+### "Crypt of the Devil" 2015, Death Metal
+
+1. Gruesome  03:06    
+2. Open Coffin Orgy  04:22    
+3. Broken Bottle Rape  03:02    
+4. Break the Cross in Half  03:35    
+5. Lost Remains  03:25    
+6. Slit Wrists  03:54    
+7. Stab  03:52    
+8. The Night Bleeds  04:09   
+9. Compulsion to Brutalize  03:17    
+10. Eternal Darkness  04:12 
+
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,31 @@
 # Visceral Evisceration
 
-Дискография
-"Incessant Desire For Palatable Flesh" 1994, Death Doom
+Brutal Sex Perversion Band
+
+## Дискография
+
+### "Incessant Desire For Palatable Flesh" 1994, Death Doom
+
+1. (I Am) Enamoured Of Dead Bodies
+2. At The Epicurean Gynaecologist
+3. Muse Perverse
+4. Knee Deep In Blood I Wade
+5. Chewing Female Genital Parts
+6. Tender Flesh... On The Bier
+7. Gangling Menstrual Blood - Broth For Supper
+
+ Hannes Wuggeing - Vocals, guitars
+ Jurgen Hajek - Guitars
+ Dominik Larsch - Bass
+ Stephan Strnad - Drums
+
+All music by VISCERAL EVISCERATION
+Recorded & mixed by Jakob Grabmayer & Crazy Stiletto
+at Jack Daniels Studio Feb. 93/Jan 94
+
+(p)(c) 1994 NAPALM Records
+
+
 
 ## Отношения с другими группами
 

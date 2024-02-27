@@ -1,8 +1,31 @@
 # Natrium
 
-Дискография
-"The Day of Pai" 2005, Thrash
-"Elegy For The Flesh" 2011, Techno Death
+
+
+## Дискография
+
+### "The Day of Pai" 2005, Thrash
+
+1. Prison of Fear
+2. Brain Sight
+3. Last Prophecy
+4. Sellers of Happyness
+5. Burning in My Stake
+6. Inner Devastation
+7. Scythe
+8. The Day of Pain
+
+### "Elegy For The Flesh" 2011, Techno Death
+
+1. Elegy for the Flesh	 
+2. Memetic Infection	 
+3. Breastfed with Mendacity	 
+4. Sarin Benison	 
+5. Ravenous Theophaghists	 
+6. Allograft Harvesting	 
+7. Clinical Savagery	 
+8. Plastinated Birth
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,45 @@
 # Forest Stream
 
-Дискография
-"Tears of Mortal Solitude" 2004, Black Metal
-"The Crown Of Winter" 2009, Metal
+
+
+## Дискография
+
+### "Tears of Mortal Solitude" 2004, Black Metal
+
+1. Autumn Elegy 
+2. Legend 
+3. Last Season Purity 
+4. Snowfall 
+5. Mel Kor 
+6. Whole 
+7. Black Swans 
+8. Winter Solstice 
+9. Steps Of Mankind 
+
+Somn The Darkest - drums, programming, vocals
+Wizard Omin - guitars
+Silent Anth - bass
+
+### "The Crown Of Winter" 2009, Metal
+
+1. Feral Magic (intro) 02:19  
+2. The Crown Of Winter 11:44  
+3. Mired 09:27  
+4. Bless You To Die 07:38  
+5. The Autumn Dancers 08:40  
+6. The Seventh Symphony Of Satan 09:05  
+7. Beautiful Nature 09:24  
+8. My Awakening Dreamland (outro) 01:38 
+
+
+Sonm the Darkest - Vocals (originally drums)
+Wizard Omin - Guitar 
+Berserk - Guitar
+Tyrant Moloch - Bass 
+Elhella - Keyboards (originally drums)
+Kir - Drums
+
+
 
 ## Отношения с другими группами
 

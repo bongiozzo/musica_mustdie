@@ -1,7 +1,22 @@
 # Pictures of Pain
 
-Дискография
-"The Reckoning" 2010, Progressive
+
+
+## Дискография
+
+### "The Reckoning" 2010, Progressive
+
+1. Betrayal	 
+2. Far Beyond	 
+3. Eternal Rage	 
+4. Deviator	 
+5. Sign of Times	 
+6. Years of Disgrace	 
+7. The Reckoning	 
+8. Final State	 
+9. From the Ashes (demo 06)	 
+10. Guardian of Tears (demo 05)
+
 
 ## Отношения с другими группами
 

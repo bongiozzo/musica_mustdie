@@ -1,17 +1,111 @@
 # Warrant
 
-Дискография
-"Dirty Rotten Filthy Stinking Rich" 1989, Hard Rock
-"Cherry Pie" 1990, Hard Rock
-"Dog Eat Dog" 1992, Hard Rock
-"Ultraphobic" 1995, Hard Rock
-"Belly To Belly" 1996, Hard Rock
-"The Best Of" 1996, Hard Rock
-"Live 86-97" 1997, Hard Rock
-"Greatest & Latest" 1999, Hard Rock
-"Under The Influence" 2001, Hard Rock
-"Born Again" 2006, Glam
-"Rockaholic" 2011, Hard Rock
+glam
+
+## Дискография
+
+### "Dirty Rotten Filthy Stinking Rich" 1989, Hard Rock
+
+1. 32 Pennies
+2. Down Boys
+3. Big Talk
+4. Sometimes She Cries
+5. So Damn Pretty (Should Be Against The Law)
+6. D.R.F.S.R.
+7. In The Sticks
+8. Heaven
+9. Ridin’ High
+10. Cold Sweat
+
+### "Cherry Pie" 1990, Hard Rock
+
+1. Cherry Pie
+2. Uncle Tom’s Cabin
+3. I Saw Red
+4. Bed Of Roses
+5. Sure Feels Good To Me
+6. Love In Stereo
+7. Blind Faith
+8. Song And Dance Man
+9. You’re The Only Hell Your Mama Ever Raised
+10. Mr. Rainmaker
+11. Train, Train
+
+### "Dog Eat Dog" 1992, Hard Rock
+
+1. Machine Gun
+2. The Hole In My Wall
+3. April 2031
+4. Andy Warhol Was Right
+5. Bonfire
+6. The Bitter Pill
+7. Hollywood (So Far, So Good)
+8. All My Bridges Are Burning
+9. Quicksand
+10. Let It Rain
+11. Inside Out
+12. Sad Theresa
+[c] 1992 Sony
+
+### "Ultraphobic" 1995, Hard Rock
+
+1. Undertow
+2. Followed
+3. Family Picnic
+4. Sum Of One
+5. Chameleon
+6. Crawl Space
+7. Live Inside Of You
+8. High
+9. Ride #2
+10. Ultraphobic
+11. Stronger Now
+
+### "Belly To Belly" 1996, Hard Rock
+
+
+
+### "The Best Of" 1996, Hard Rock
+
+
+
+### "Live 86-97" 1997, Hard Rock
+
+
+
+### "Greatest & Latest" 1999, Hard Rock
+
+
+
+### "Under The Influence" 2001, Hard Rock
+
+
+
+### "Born Again" 2006, Glam
+
+01. Devils Juice 
+02. Dirty Jack 
+03. Bourbon County Line 
+04. Hell, CA. 
+05. Angels 
+06. Love Strikes Like Lightning 
+07. Glimmer 
+08. Roller Coaster 
+09. Down In Diamonds 
+10. Velvet Noose 
+11. Roxy 
+12. Good Times 
+
+Lead Vocals - JAIME ST. JAMES 
+Lead Guitar - JOEY ALLEN 
+Rhythm Guitar - ERIK TURNER 
+Bass Guitar - JERRY DIXON 
+Drums - STEVEN SWEET
+
+### "Rockaholic" 2011, Hard Rock
+
+
+
 
 ## Отношения с другими группами
 

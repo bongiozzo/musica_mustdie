@@ -1,18 +1,216 @@
 # Theatres des Vampires
 
-Дискография
-"Nosferatu eine synphonie des grauen (demo)" 1995, Black Metal
-"Vampyrisme, Necrophilie, Necrosadisme, Necrophagie" 1996, Black Metal
-"The Vampire Chronicles" 1999, Black Metal
-"Bloody Lunatic Asylum" 2001, Black Metal
-"Iubilaeum Anno Dracula 2001" 2001, Black Metal
-"Suicide Vampire" 2002, Black Metal
-"The (un)official history 1993 2003" 2003, Black Metal
-"Vampyrisme" 2003, Ambient
-"Nightbreed of Macabria" 2004, Black Metal
-"Pleasure and Pain" 2005, Gothic
-"Anima Noir" 2008, Gothic
-"Moonlight Waltz" 2011, Gothic
+Black Gothic Occult Metal
+
+## Дискография
+
+### "Nosferatu eine synphonie des grauen (demo)" 1995, Black Metal
+
+1. Unholy Ceremonial/Funeral of a cursed child
+2. Dominions
+3. Kingdom of Vampires
+
+### "Vampyrisme, Necrophilie, Necrosadisme, Necrophagie" 1996, Black Metal
+
+1.  Intro: Twilight Kingdom
+2.  The Lands Beyond The Forest
+3.  Reborn In The Wood
+4.  Ancient Vampires
+5.  Woods Of Valacchia
+6.  Within The Dark Domain
+7.  Upon The Darkest Mountain
+8.  While The Snow Turns Red
+9.  Vlad The Impaler
+
+All lyrics and music by Alex Nunzia (Lord Vampir)
+Arrangements by TDV
+Recorded and Mixed at L.C. Recording by Italo Angelozzi and TDV
+Produced by TDV
+Executive producer Domenico Mazzie
+Band residence: Italy
+
+BLOOD IS LIFE !!! 
+
+Alex Nunziati (Lord Vampir) - Vocals,Guitars, Keyboards,
+Enrico De Dominicis (Agaharet) - Drums
+Roberto Cufaro (Count Morgoth) - Keyboards (session)
+
+(P)c 1996 GARDEN OF GRIEF // GGP 002
+
+### "The Vampire Chronicles" 1999, Black Metal
+
+1 - PRELUDIUM
+2 - ENTHRONE THE DARK ANGEL
+3 - THULE
+4 - THRONE OF DARK IMMORTALS
+5 - WOODS OF VALACCHIA part 2 - THE REVELATION
+6 - WHEN THE WOLVES CRY
+7 -EXORCISM
+8 - CARPATHIAN SPELLS
+9 - CURSED
+10 - THE COVEN
+
+### "Bloody Lunatic Asylum" 2001, Black Metal
+
+1. Prelude to madness
+2. Till the last drop of blood
+3. Une saison en enfer
+4. Dances with Satan
+5. Lilith's child
+6. Pale religious letchery
+7. Altar for the black mass
+8. Lunatic asylum
+9. Oath of supremacy
+10. Dominions
+11. Les litanies de Satan
+
+### "Iubilaeum Anno Dracula 2001" 2001, Black Metal
+
+1. Anno Dracula
+2. Love never dies
+3. Vampyrica
+4. Dances with Satan (club mix)
+5. Blutdivine
+6. The Brides of Dracula
+7. Dracole Waide
+
+### "Suicide Vampire" 2002, Black Metal
+
+1. Theatre of Horrors
+2. Lilith Mater Inferorum
+3. La Danse Macabre du Vampire
+4. Queen of the Damned
+5. Bloodlust
+6. TenebraDentro
+7. Suicide Vampire
+8. Il Vampiro
+9. Der Makabere tanz des Vampires (German Version)
+10. Enthrone the Dark angel (Version 2002)
+
+### "The (un)official history 1993 2003" 2003, Black Metal
+
+1. Dance with a dark dress
+2. Unholy Ceremonial/Funeral of a cursed child
+3. Dominions
+4. Kingdom of Vampires
+5. Red Hill
+6. Through the vast enchanted forest
+7. When the wolves cry
+8. The Coven
+9. Bloody Lunatic Asylum
+10. Oath of Supremacy
+11. Il Vampiro
+12. Can't you get out of my grave
+
+### "Vampyrisme" 2003, Ambient
+
+1. Vampyrisme
+2. Twilight
+3. Beyond the forest
+4. In the wood
+5. Ancient Damned
+6. Woods of Valacchia - part 1
+7. The Dark Domain
+8. Walpurga's night
+9.The snow turns red
+10.The Impaler
+Bonus tracks:
+Kingdom of Vampire,
+The vast enchanted forest (featuring Gian Pyras)
+Lucretia 
+Lacrima Christi (featuring Valor)
+
+### "Nightbreed of Macabria" 2004, Black Metal
+
+01. Welcome To Macabria
+02. A Macabre Banquet
+03. Lady In Black
+04. Angel Of Lust
+05. Luciferia
+06. Incubo # 1
+07. Macabria
+08. The Jester's Shadow
+09. The Golden Sin
+10. Carnival Day
+11. Incubo # 2
+12. The Curse Of Headless Christ
+13. Mourning Day
+14. The Undertaker &Amp The Crow
+15. The Beginning Of The End
+16. La Danse Macabria Du Vampire (bonus track)
+
+### "Pleasure and Pain" 2005, Gothic
+
+1. Pleasure And Pain   
+2. Never Again   
+3. Rosa Mistero   
+4. Solitude   
+5. My Lullaby   
+6. Forever In Death   
+7. Let Me Die   
+8. Black Mirror   
+9. Reason And Sense   
+10. Mater Tenebrarum (Cover)*   
+11. Pleasure And Pain (Mixed By Das Ich)*
+
+### "Anima Noir" 2008, Gothic
+
+1. Kain 04:33  
+2. Unspoken Words 04:58 
+3. Rain (The Cult cover) 03:59
+4. Dust 04:48
+5. From the Deep 05:15
+6. Blood Addiction 04:08
+7. Butterfly 04:13 
+8. Wherever You Are 04:53
+9. Two Seconds 04:10
+10. Anima Noir 04:20 
+
+### "Moonlight Waltz" 2011, Gothic
+
+1. Keeper of Secrets 05:25  
+2. Fly Away 04:59   
+3. Moonlight Waltz 04:27  
+4. Carmilla 04:59  
+5. Sangue 03:59  
+6. Figlio Della Luna (Mecano cover) 04:22  
+7. Black Madonna 05:01   
+8. An Illusion 04:59  
+9. Le Grand Guignol 03:57  
+10. Obsession 04:25  
+11. The Secret Gates of Hades 03:32  
+12. Medousa 04:36 
+
+
+
+Line-up:
+Sonya Scarlet - Vocals
+Stephan Benfante - Guitars, Backing Vocals
+Fabian Varesi - Keyboards, Backing Vocals
+Zimon Lijoi - Bass, Backing Vocals
+Gabriel Valerio - Drums
+
+Session musicians:
+Luca Bellanova - Male Vocals, Guitars, Cello, Orchestral direction/arrangemens
+Christian Ice - Male Vocals, Guitars, Backing Vocals
+Marco Benevento - Male Vocals (on "Black Madonna")
+Eliza Pezzuto - Female Backing Vocals
+Giorgia Martinez Pascucci - Violin
+Mario Fibonacci - Extra strings
+Eli - Vocals (on "Figlio Della Luna")
+Sofia - Child Vocals (on "Keepers of Secrets")
+
+Guest performers:
+Snowy Shaw - Vocals (on track 1)
+Cadaveria - Harsh Vocals (on track 9)
+Eva Breznikar - Vocals (on track 12)
+
+Produced by Christian Ice.
+The original title of track 9 was "Le Theatre du Grand Guignol", but later it
+was changed to "Le Grand Guignol".
+
+
+
 
 ## Отношения с другими группами
 

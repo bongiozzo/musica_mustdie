@@ -1,10 +1,55 @@
 # Flying
 
-Дискография
-"January Stars" 1999, Death Metal
-"A Proud Bird" 2002, Melodic Death Metal
-"The Heir of the Future" 2005, Melodic Death Metal
-"Graceful Murder" 2012, Melodic Death Metal
+SMDM of Ukraine's origin
+
+## Дискография
+
+### "January Stars" 1999, Death Metal
+
+1. January Stars
+2. My Pain
+3. Lost Within Myself
+4. I Sorry With You Forever
+5. Lovefire
+6. Like A Lonely Wolf
+
+### "A Proud Bird" 2002, Melodic Death Metal
+
+1. Our Passion Is Everything
+2. Something Remains
+3. Cold But Magnetic
+4. The Fire Of your Feelings
+5. The Road I Saw (instrumental)
+6. Like A Lonely Crow
+7. A Proud Bird
+8. Escape From Myself
+9. Targetheart (instrumental)
+10. My Pain (bonus track)
+
+### "The Heir of the Future" 2005, Melodic Death Metal
+
+01. The Inheritance 
+02. In Hope of a New Sky   
+03. My Angel  
+04. Lost Wings   
+05. I Don’t Believe in You   
+06. When Faith Dies  
+07. Angel’s Love  
+08. False  
+09. Lovefire
+10. The Last Love Song
+
+### "Graceful Murder" 2012, Melodic Death Metal
+
+1.	 Progenitors	04:56
+2.	 Break The Spell	05:13
+3.	 Graceful Murder	05:26
+4.	 The Moment Of Creation	06:04
+5.	 The Answer	05:18
+6.	 Ordinary Scene	05:13
+7.	 Non-Existent World	05:15
+8.	 Reborn	04:42
+
 
 ## Отношения с другими группами
 

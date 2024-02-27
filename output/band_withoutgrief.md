@@ -1,8 +1,31 @@
 # Without Grief
 
-Дискография
-"Deflower" 1998, Melodic Death Metal
-"Absorbing The Ashes" 1999, Melodic Death Metal
+
+
+## Дискография
+
+### "Deflower" 1998, Melodic Death Metal
+
+01. Suicidal Stroke 
+02. The Last Days 
+03. Deflower 
+04. Shallow Grave 
+05. The Failureґs Crown 
+06. Your Empty Eyes 
+07. Betrayer Of Compassion 
+08. Vocalise
+
+### "Absorbing The Ashes" 1999, Melodic Death Metal
+
+01. Kingdom Of Hatred 
+02. Lifeless 
+03. Ungodly 
+04. Instrumental 
+05. To The End 
+06. Blackborn Soul 
+07. Heaven Torn Apart 
+08. Only Darkness Lies Ahead
+
 
 ## Отношения с другими группами
 

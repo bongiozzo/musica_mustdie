@@ -1,12 +1,33 @@
 # Adnauseam
 
-Дискография
-"Manifestation Of Terror /demo/" 1991, Death Metal
-"Another Horror Of Life /demo/" 1994, Death Metal
-"Desire, Aspire, Inspire, Expire" 1997, Death Metal
-"Adnauseam/Cephalic Carnage /split/" 1998, Death Metal
-"Lives Of Lies, Despise, Demise" 2000, Death Metal
-"These Days, The Decimation Years /compilation/" 2005, Death Metal
+
+
+## Дискография
+
+### "Manifestation Of Terror /demo/" 1991, Death Metal
+
+
+
+### "Another Horror Of Life /demo/" 1994, Death Metal
+
+
+
+### "Desire, Aspire, Inspire, Expire" 1997, Death Metal
+
+
+
+### "Adnauseam/Cephalic Carnage /split/" 1998, Death Metal
+
+
+
+### "Lives Of Lies, Despise, Demise" 2000, Death Metal
+
+
+
+### "These Days, The Decimation Years /compilation/" 2005, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,32 @@
 # Heretic
 
-Дискография
-"Breaking Point" 1988, Thrash
+
+
+## Дискография
+
+### "Breaking Point" 1988, Thrash
+
+ Side One:
+1. Intro / Heretic 3.33
+2. And Kingdoms Fall 4.52
+3. The Circle 5.14
+4. Enemy Within 3.18
+5. Time Runs Short 6.33
+ Side Two:
+1. Pale Shelter 3.37
+2. Shifting Fire 3.55
+3. Let 'Em Bleed 3.03
+4. Evil For Evil 3.50
+5. The Search 7.04
+
+Dennis O'Hara - Bass
+Brian Korban - Guitars
+Mike Howe - Vocals
+Bobby Marques - Guitars
+Rick Merrick - Drums
+
+(p)&(c) 1988 METAL BLADE Records
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,13 @@
 # Hyperborea
 
-Дискография
-"Architecture Of Mind" 2004, Melodic Death Metal
+
+
+## Дискография
+
+### "Architecture Of Mind" 2004, Melodic Death Metal
+
+
+
 
 ## Отношения с другими группами
 

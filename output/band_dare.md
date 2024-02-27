@@ -1,9 +1,73 @@
 # Dare
 
-Дискография
-"Calm Before the Storm" 1988, Hard Rock
-"Belief" 2001, Hard Rock
-"Beneath the Shining Water’" 2004, Hard Rock
+AOR/melodic hard rock
+
+## Дискография
+
+### "Calm Before the Storm" 1988, Hard Rock
+
+Walk On the water
+
+Someday
+
+Calm Before the Storm
+
+Rescue Me
+
+Ashes
+
+The Silence Of Your head
+
+Crown Of Thorns
+
+Ring Sun
+
+Still In Love With You
+
+### "Belief" 2001, Hard Rock
+
+Silent Thunder
+
+Dreams On Fire
+
+White Horses
+
+(Lions Heart)
+
+Belief
+
+Run Wild Run Free
+
+We Were Friends
+
+Falling
+
+Where Will  You Run To
+
+Take Me Away
+
+Promised Land
+
+Phoenix
+
+### "Beneath the Shining Water’" 2004, Hard Rock
+
+1. Sea Of Roses 
+2. Days Gone By 
+3. Silent Hills 
+4. Beneath The Shining Water 
+5. The Battles That You've Won 
+6. Allowed To Fall 
+7. I'll Be With You 
+8. Where Darkness Ends 
+9. Storm Wind 
+10. Last Train 
+
+Darren Wharton (vocals)
+Andrew Moore (guitar)
+Gavin Mart (drums)
+Richard Dews (guitar)
+
 
 ## Отношения с другими группами
 

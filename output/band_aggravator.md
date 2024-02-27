@@ -1,8 +1,17 @@
 # Aggravator
 
-Дискография
-"Populace Destructor" 2014, Thrash
-"Sterile Existence" 2016, Thrash
+
+
+## Дискография
+
+### "Populace Destructor" 2014, Thrash
+
+
+
+### "Sterile Existence" 2016, Thrash
+
+
+
 
 ## Отношения с другими группами
 

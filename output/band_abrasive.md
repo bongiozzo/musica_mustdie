@@ -1,7 +1,24 @@
 # Abrasive
 
-Дискография
-"Devotion" 2004, Deathcore
+
+
+## Дискография
+
+### "Devotion" 2004, Deathcore
+
+01 Drowning In Sin
+02 Between You
+03 Melting
+04 In My Dreams
+05 Devotion
+06 Just Flesh
+07 Internal Devourment
+08 Addicted To Your Flesh
+
+09 Desire
+10 Like A Virgin
+11 Under My Skin
+
 
 ## Отношения с другими группами
 

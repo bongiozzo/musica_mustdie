@@ -1,8 +1,42 @@
 # Bleeding Through
 
-Дискография
-"Declaration" 2008, Metalcore
-"The Great Fire" 2012, Metalcore
+
+
+## Дискография
+
+### "Declaration" 2008, Metalcore
+
+01. Finnis Fatalis Spei
+02. Declaration (You Can't Destroy What You Can Not Replace)
+03. Orange County Blonde and Blue
+04. Germany
+05. There Was a Flood
+06. French Inquisition
+07. Reborn from Isolation
+08. Death Anxiety
+09. The Loving Memory of England
+10. Beneath the Grey
+11. Seller's Market
+12. Sister Charlatan
+
+### "The Great Fire" 2012, Metalcore
+
+1. March 
+2. Faith In Fire 
+3. Goodbye to Death 
+4. Final Hours 
+5. Starving Vultures 
+6. Everything You Love Is Gone 
+7. Walking Dead 
+8. Devil and Self Doubt 
+9. Step Back In Line 
+10. Trail of Seclusion 
+11. Deaf Ears 
+12. One by One 
+13. Entrenched 
+14. Back to Life 
+
+
 
 ## Отношения с другими группами
 

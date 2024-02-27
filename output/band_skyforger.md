@@ -1,12 +1,103 @@
 # Skyforger
 
-Дискография
-"Semigalls' Warchant (demo MC)" 1997, Black Metal
-"Kauja Pie Saules (The Battle of Saule)" 1998, Black Metal
-"Latvieau Strelnieki (Latvian Riflemen)" 2000, Black Metal
-"Perkonkalve (Thunderforge)" 2001, Black Metal
-"Zobena Dziesma (Swordsong)" 2003, Black Metal
-"Kurbads" 2010, Black Metal
+Latvian Folk-Pagan Metal Band
+
+## Дискография
+
+### "Semigalls' Warchant (demo MC)" 1997, Black Metal
+
+1. Werewolves
+2. Virasaitis Nameisis
+3. Akmen&#299; Iekalt&#257;s Z&#299;mes
+4. Night Of The Winter Solstice 
+5. Sen Dzird&#275;ju, Nu Ieraugu
+6. Semigalls' Warchant
+
+### "Kauja Pie Saules (The Battle of Saule)" 1998, Black Metal
+
+1. Zviegtin' zviedza kara zirgi
+2. Kauja pie Saules.1236
+3. Sen&#269;u ozols
+4. Viestarda c&#299;&#326;a pie Me&#382;otnes.1219
+5. Kur&#353;i 
+6. Kal&#275;js kala debes&#299;s
+7. Kam p&#363;&#353;at kara taures
+8. Kauja Garozas sil&#257;.1287
+9. Sv&#275;tais ugunskrusts
+
+### "Latvieau Strelnieki (Latvian Riflemen)" 2000, Black Metal
+
+1. Latvie&#353;u str&#275;lnieki 
+2. Kauja pie Plakaniem, kauja pie Veisiem 
+3. 1916.gada marts 
+4. N&#257;ves sala
+5. Se&#353;as &#257;rpr&#257;ta dienas 
+6. Pulkvedis Briedis
+7. T&#299;re&#316;a purv&#257;
+8. Esat k&#257; v&#299;ri 
+9. Dz&#299;ves vismeln&#257;k&#257; stund&#257;
+
+### "Perkonkalve (Thunderforge)" 2001, Black Metal
+
+1. Intro
+2. Kad &#362;sin&#352; j&#257;j
+3. Gada &#299;s&#257;k&#257; nakts
+4. Nakts debesu karakungs
+5. Garais dancis
+6. P&#275;ko&#326;kalve
+7. Migla migla, rasa rasa (sv&#275;t&#257;s ved&#299;bas)
+8. &#268;&#363;sku sieviete
+9. Caur aizsaules v&#257;rtiem
+10. Tums&#257; un sal&#257;
+
+### "Zobena Dziesma (Swordsong)" 2003, Black Metal
+
+1. Long i heard, now i see 
+2. Sword song 
+3. Perkons brought the bride
+4. Ready to be a warrior
+5. Around the hill i went
+6. Prussian maid rides to war
+7. Perkons left thundering
+8. Silver river flows
+9. Oh fog, oh dew
+10. Horses neighed
+11. Where you'll ride, brother?
+12. Neighed the battle horses
+13. When sun is rising
+
+### "Kurbads" 2010, Black Metal
+
+1. Curse Of The Witch 05:04
+2. Son Of The Mare 05:26 
+3. The Nine-headed 03:56  
+4. Bewitched Forest 05:15  
+5. In The Yard Of The Father's Son 00:39  
+6. The Devilslayer 05:05  
+7. The Stone Sentinel 04:56  
+8. In The Underworld 04:13  
+9. Black Rider 04:16  
+10. The Last Battle 05:38  
+11. Kurbads 05:11 
+
+
+The CD was recorded at the Lauska Studio.
+Produced by Skyforger and engineered by Kaspars Barbals.
+
+Original Names:
+1. Raganas lвsts
+2. Нзves dзls
+3. Deviтgalvis
+4. Noburtais meюs
+5. Tзva dзla pagalmв
+6. Velnukвvзjs
+7. Akmens sargs
+8. Pazemз
+9. Melnais jвtnieks
+10. Pзdзjв kauja
+11. Kurbads 
+
+
 
 ## Отношения с другими группами
 

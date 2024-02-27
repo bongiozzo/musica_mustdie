@@ -1,7 +1,27 @@
 # Attitude
 
-Дискография
-"Kein Schlat Die Deutschland" 1987, Hardcore
+
+
+## Дискография
+
+### "Kein Schlat Die Deutschland" 1987, Hardcore
+
+1. Homeless Crew
+2. Practising For War
+3. Third World Child
+4. When Worlds Collide
+5. Save Thy Brother
+
+ Andy Andersen - Vocals
+ Chris Scaparro - Guitars
+ Rick Strahl - Guitars
+ Keith Chatram - Bass
+ Paul Birnbaum - Drums
+
+All Songs Written By ATTITUDE.
+
+(p)&(c) 1987 WE BITE Records
+
 
 ## Отношения с другими группами
 

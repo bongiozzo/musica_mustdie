@@ -1,8 +1,26 @@
 # Intense
 
-Дискография
-"Second Sight" 2004, Heavy Metal
-"As Our Army Grows" 2007, Heavy Metal
+
+
+## Дискография
+
+### "Second Sight" 2004, Heavy Metal
+
+
+
+### "As Our Army Grows" 2007, Heavy Metal
+
+1. Anger of the Ancients  04:14
+2. Mirror Shroud  04:08  
+3. Our Last Hope  07:09   
+4. You Die Today  06:29  
+5. Insanity's Call  06:11   
+6. Temptress  05:49 
+7. Fear is Not Enough  04:53   
+8. Trojan Transmission  05:21  
+9. Strange New World  07:03
+10. Long Live the New Flesh  05:42 
+
 
 ## Отношения с другими группами
 

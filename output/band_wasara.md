@@ -1,7 +1,24 @@
 # Wasara
 
-Дискография
-"Kaiken Kauniin Loppu" 2003, Death Doom
+melodic rock/metal from Finland
+
+## Дискография
+
+### "Kaiken Kauniin Loppu" 2003, Death Doom
+
+1. Intro 1:17
+2. Pohjaton on 3:20
+3. Kivisade 4:42
+4. Pahavirsi 3:38
+5. Yon syli 4:11
+6. Osa minua 3:09
+7. Kutsu pimeaan 5.18
+8. Sinulle 4:00
+9. Hullu spitaalinen 1:53
+10. Matkalla 4:13
+11. Etsija 4:46
+12. Mustimpaani 2:29
+
 
 ## Отношения с другими группами
 

@@ -1,9 +1,50 @@
 # Svartahrid
 
-Дискография
-"Herskende I Blod (demo)" 1998, Black Metal
-"Forthcoming Storm" 1999, Black Metal
-"As the Sunrise Flickers" 2000, Black Metal
+Norwegian Black Metal from Telemark
+
+## Дискография
+
+### "Herskende I Blod (demo)" 1998, Black Metal
+
+1. Forthcoming Storm (04:38)
+2. Herskende I Blod (04:17)
+
+Released: June 1998.
+
+&copy; 1998 Svartahrid
+
+### "Forthcoming Storm" 1999, Black Metal
+
+1. Atter et Rike (5:52)
+2. Faustbitten (3:33)
+3. Lagnaden (3:58)
+4. Forthcoming Storm (4:41)
+5. Sjelefall (3:42)
+6. Under den Enoydes Trone (3:38)
+7. Herskende I Blod (4:18)
+8. Stier av Hat (3:44)
+9. Gods of War (2:46)
+10. Lord's Mystery (05:37)
+
+&copy; 1999 Napalm Records
+
+### "As the Sunrise Flickers" 2000, Black Metal
+
+1. By the Northwind (4:05)
+2. The Omniscient (4:00)
+3. Never to Fall (3:42)
+4. Einmaanad (3:47)
+5. Throne of Thorns (4:35)
+6. Odins Skjold (4:13)
+7. Relentless (4:14)
+8. Solvravnen Nordens Demring (4:06)
+9. Infernal Bridges (4:41)
+
+
+Released: Sep 14, 2000.
+
+&copy; 2000 Napalm Records
+
 
 ## Отношения с другими группами
 

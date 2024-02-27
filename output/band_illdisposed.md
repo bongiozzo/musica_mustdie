@@ -1,19 +1,229 @@
 # Illdisposed
 
-Дискография
-"Four Depressive Seasons" 1993, Deathcore
-"Submit" 1995, Deathcore
-"There's Something Rotten in the State of Denmark" 1997, Deathcore
-"Retro" 2000, Death Metal
-"Kokaiinum" 2001, Death Metal
-"1-800 Vindication" 2004, Death Metal
-"Burn Me Wicked" 2006, Deathcore
-"The Prestige" 2008, Death Metal
-"To Those Who Walk Behind Us" 2009, Death Metal
-"There Is Light (But It's Not For Me)" 2011, Deathcore
-"Sense the Darkness" 2012, Deathcore
-"With the Lost Souls on Our Side" 2014, Deathcore
-"Grey Sky Over Black Town" 2016, Deathcore
+Very Brutal Deathcore
+
+## Дискография
+
+### "Four Depressive Seasons" 1993, Deathcore
+
+1. Forbidden Summer Poetry
+2. Reversed
+3. Weeping Souls Of Autumn Desires
+4. Life Equals Zero (A Love Song)
+5. A Deathwork Orange...
+       ...The Winter Of Our Discontempt
+6. Wardance Of The Technocracy
+7. Never Ceasing Melancholic Spring
+8. Inherit The Wind
+9. With The Lost Souls On Our Side
+
+ Bo Summer - Sub Woofer
+ Michael Enevoldsen - Drums
+ Ronnie R.Bak - Bass
+ Lasse D.R.Bak - Guitars
+
+All Music By ILLDISPOSED
+All Lyrics By Bo Summer
+Produced By Jan Borsing
+Recorded At Borsing Recording. Denmark
+
+(p)&(c) 1993 PROGRESS RED LABELS
+
+### "Submit" 1995, Deathcore
+
+1. Purity Of Sadness
+2. A Frame Of Mind
+3. Vesuvio
+4. The Hidden Ache
+5. Memories Expanded
+6. Slow Death Factory
+7. Submit
+8. Flagging A Dead Horse
+9. Die Kingdom
+
+All Songs Written By ILLDISPOSED.
+Produced  & Mixed By Tommy Hansen.
+Recorded In Jailhouse Recordings.
+
+Bo Summer - Subwoofer
+Rolf Rognvard Hansen - Drums
+Ronnie Bak - Bass
+Lasse B.Trouble - Guitars
+Morten Gillsted - Guitars
+
+(P)&(C) 1995 PROGRESS Records
+
+### "There's Something Rotten in the State of Denmark" 1997, Deathcore
+
+1. Psychic Cyclus I-III  04:47    
+2. Near The Gates  03:46    
+3. We Lie In The Snow  04:22   
+4. Wake Up Dead (Megadeth cover)  03:27   
+5. Life: An Evaluation  02:46   
+6. There's Something Rotten...  03:41   
+7. Pimp  04:37   
+8. Days On The Floor  03:36   
+9. Not A Vision - 1991  03:27    
+10. Instrumentally Illdisposed  04:03    
+11. Horsens Highway  00:52  
+
+
+Studio: Borsing Recording
+Producer: Nick Hunter
+
+Re-released by Pavement Music.
+
+The album's title is a nod to Shakespeare's "Hamlet." 
+
+
+### "Retro" 2000, Death Metal
+
+1. Cromlech (Darkthrone)
+ 2. None Shall Defy (Infernal Majesty)
+ 3. Reek of Putrefaction (Carcass)
+ 4. Rapture (Paradise Lost)
+ 5. Nightmare (Venom)
+ 6. Gasping for Air (Autopsy)
+ 7. Open Casket (Death)
+ 8. Killing by Death (Motorhead)
+ 9. Out of the Body (Pestilence)
+10. Intoxicated (Obituary)
+11. Beating around the Bush (AC/DC)
+
+### "Kokaiinum" 2001, Death Metal
+
+1. A Warm Welcome
+2. Just Like a Clockwork
+3. Richard Scarry
+4. Illdisposed
+5. Forever Young 2001
+6. Intellargent
+7. Kokaiinum
+8. A Girl and Her Boss
+9. Fear Bill Gates
+
+Produced by Jan Borsing
+
+### "1-800 Vindication" 2004, Death Metal
+
+01. I Believe In Me
+02. Dark
+03. Now We're History
+04. When You Scream
+05. Jeff
+06. In Search Of Souls
+07. Still Sane
+08. You Against The World
+09. No More Time
+10. The Final Step
+
+### "Burn Me Wicked" 2006, Deathcore
+
+1. Shine Crazy  03:36  
+2. Case of The Late Pig  03:48   
+3. Back To The Streets  03:51  
+4. Our Heroin Recess  04:23   
+5. Throw Your Bolts  03:53   
+6. Burn Me Wicked  03:46   
+7. Fear The Gates  02:42   
+8. Slave  04:28   
+9. Nothing To Fear... Do It  03:19   
+10. The Widow Black  04:25   
+11. Illdispunk'd  03:40 
+
+
+Guest Vocals on ``Back to the Streets``, ``Our Heroin Recess``, ``Burn Me Wicked`` and ``Nothing to Fear...Do It``: Mikkel Sandager 
+
+
+### "The Prestige" 2008, Death Metal
+
+1. Let Go   
+2. The Tension   
+3. Weak Is Your God   
+4. Working Class Zero   
+5. A Song Of Myself   
+6. Like Cancer   
+7. Love Is Tasted Bitter   
+8. She Knows   
+9. A Child Is Missing   
+10. The Key To My Salvation   
+11. ...Your Devoted Slave   
+12. Ich Bin Verloren In Berlin
+
+### "To Those Who Walk Behind Us" 2009, Death Metal
+
+
+
+### "There Is Light (But It's Not For Me)" 2011, Deathcore
+
+1. Your Own Best Companion  03:46    
+2. Heaven Forbid  04:23    
+3. Our Words Betrayed  04:10    
+4. The Taste Of You  04:22    
+5. As The Day Rottens  03:35    
+6. Reality To Fall  02:48    
+7. Step Into My Winter  04:13    
+8. Rape  05:01    
+9. Sunday Black  03:36    
+10. We  04:33 
+11. Alone (digipak bonus track) 
+
+
+
+
+### "Sense the Darkness" 2012, Deathcore
+
+1. Sense The Darkness
+2. We Do This Alone
+3. The Poison
+4. Eyes Popping Out
+5. Another Kingdom Dead
+6. Time To Dominate
+7. She's Undressed
+8. Never Compromise
+9. War
+10. Stop Running
+11. Desire
+12. I Am Possessed
+13. Too Blind To See 
+
+### "With the Lost Souls on Our Side" 2014, Deathcore
+
+1. Going Down      
+2. The Way We Choose      
+3. Light in the Dark  04:23    
+4. I Am What I Am      
+5. Tugging at Your Heart      
+6. Dreaded Pursuer      
+7. To Be Dealt With      
+8. On a Clouded Morning      
+9. No More Devil to Show      
+10. The Plan  
+
+Bonus tracks on limited digipak edition:
+ 11. Life Equals Zero 
+ 12. Reversed
+
+ The bonus tracks are re-recorded versions of songs originally appearing on the 1992 album "Four Depressive Seasons". 
+
+### "Grey Sky Over Black Town" 2016, Deathcore
+
+01. Again
+02. Your Darkest Son
+03. In Light of the Moon
+04. I Tried to Live
+05. The After All
+06. My Flesh Is Sealed
+07. You're an Angel of the Light
+08. Setting Sail
+09. I'm Not One
+10. From the Rain
+
+Bonus Tracks:
+11. I've Been on My Own
+12. It's Almost Night
+13. This is the Ride
+
 
 ## Отношения с другими группами
 

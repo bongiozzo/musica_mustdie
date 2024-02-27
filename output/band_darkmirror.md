@@ -1,8 +1,35 @@
 # Dark Mirror
 
-Дискография
-"Visions of Pain" 2007, Heavy Metal
-"Portrait of Evil" 2009, Heavy Metal
+
+
+## Дискография
+
+### "Visions of Pain" 2007, Heavy Metal
+
+1. Pandora  02:36   
+2. Nightmares  02:37  
+3. Our Regret  04:02 
+4. No Warning  03:51   
+5. The Eye of the Storm  05:46   
+6. Age of Silence  04:21   
+7. Better think Again  04:01   
+8. Howling  03:31   
+9. Invisible Game  05:31   
+10. Dark Mirror  07:14 
+
+### "Portrait of Evil" 2009, Heavy Metal
+
+1. At the Edge of Reality  03:06 
+2. The Portrait  02:04   
+3. Forever Young  04:32   
+4. Through Oblivion  05:40 
+5. Asylum  04:41   
+6. Red Carpet  04:26   
+7. Still Standing  04:15   
+8. The Arrival...Unholy Crusade  05:23  
+9. Karma  05:27   
+10. From the Ashes  05:53 
+
 
 ## Отношения с другими группами
 

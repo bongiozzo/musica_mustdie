@@ -1,7 +1,23 @@
 # Tormentor
 
-Дискография
-"F.C.D.N." 1991, Thrash
+
+
+## Дискография
+
+### "F.C.D.N." 1991, Thrash
+
+1. Falsified 2.11
+2. Eternal Grave 3.01
+3. First Among The Dead 3.15
+4. Mystic Rites 2.40
+
+Javier Cajina - Vocals,Lead Guitars
+Ralo Calzada - Drums
+Edde Jaime - Lead Guitar
+R.K.D.O. Carrion Jr. - Bass & Vocals
+
+(p)&(c) 1991 DEEP SIX Records
+
 
 ## Отношения с другими группами
 

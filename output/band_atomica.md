@@ -1,8 +1,26 @@
 # Atomica
 
-Дискография
-"Demo" 2004, Heavy Metal
-"HilFe!" 2008, Heavy Metal
+female-fronted heavy-metal
+
+## Дискография
+
+### "Demo" 2004, Heavy Metal
+
+
+
+### "HilFe!" 2008, Heavy Metal
+
+1. HilFe! 
+2. Темные воды 
+3. Миф 
+4. When I'm Gone 
+5. Dying In The White Sky 
+6. Сотни лет 
+7. Прекрасный мир 
+8. The Angels Cry No More 
+9. Я не умру 
+10. Waarom? 
+
 
 ## Отношения с другими группами
 

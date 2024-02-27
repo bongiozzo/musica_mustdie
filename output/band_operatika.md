@@ -1,7 +1,24 @@
 # Operatika
 
-Дискография
-"The Calling" 2008, Metal
+
+
+## Дискография
+
+### "The Calling" 2008, Metal
+
+1. Intro	 
+2. Gladiator
+3. Tears of the Sun
+4. Dark Horizon
+5. Ice Queen	
+6. Life Saving Flame	 
+7. No. 3/23 in a Minor	 
+8. Mask in the Mirror	 
+9. Secrets of the Past	 
+10. The Storm	 
+11. The Calling
+12. Last Quest
+
 
 ## Отношения с другими группами
 

@@ -1,10 +1,51 @@
 # Grinder
 
-Дискография
-"Dawn For The Living" 1988, Thrash
-"Dead End" 1989, Thrash
-"The First EP" 1990, Thrash
-"Nothing Is Sacred" 1991, Thrash
+
+
+## Дискография
+
+### "Dawn For The Living" 1988, Thrash
+
+ Side One:
+1. Obsession 3.56
+2. Dawn For The Living 4.46
+3. Sinners Exile 4.34
+4. Magician 4.04
+ Side Two:
+1. Frenzied Hatred 5.05
+2. Dying Flesh 3.53
+3. Delirium 4.13
+4. Traitor 4.18
+5. F.O.A.D. 2.15
+
+	Adrian - Vocals & Bass
+	Stefan - Drums
+	Lario - Lead Guitar
+	Andy - Lead Guitar
+
+(p)&(c) 1988 NO REMORSE Records
+
+### "Dead End" 1989, Thrash
+
+
+
+### "The First EP" 1990, Thrash
+
+ Side One: Live
+1. Just Another Scar
+2. Dawn For The Living
+3. F.O.A.D.
+ Side Two: Studio
+1. Reeling On The Edge
+2. Incarnation Off
+3. Truth In The Hands Of Judas
+
+(p)&(c) 1990 NO REMORSE Records
+
+### "Nothing Is Sacred" 1991, Thrash
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,13 +1,105 @@
 # Beseech
 
-Дискография
-"...From a Bleeding Heart" 1998, Death Doom
-"Black Emotions" 2000, Gothic
-"Souls Highway" 2002, Gothic
-"Drama" 2003, Gothic
-"Sunless Days" 2005, Gothic
-"Beating Pulse (single)" 2015, Gothic
-"My Darkness, Darkness" 2016, Gothic
+Swedish gothic metal
+
+## Дискография
+
+### "...From a Bleeding Heart" 1998, Death Doom
+
+Shadowscape 
+Rainbowman 
+Silverstar 
+Eagleheart 
+The Winterflame 
+In her arms 
+Inhuman desire 
+Kiss of November 
+Dimension 
+Moonride
+
+### "Black Emotions" 2000, Gothic
+
+01. Manmade dreams 
+02. Firewalk 
+03. Little demonchild 
+04. Ghoststory 
+05. Neon ocean 
+06. Lunar eclipse 
+07. Velvet erotica 
+08. Universe 
+09. Wounded  
+10. Black emotions
+
+### "Souls Highway" 2002, Gothic
+
+1. Illusionate
+2. Between the lines
+3. Souls highway
+4. Blinded
+5. Endless waters
+6. Fiction city
+7. Sunset 28
+8. A last farewell
+9. A season in green
+10. Beyond the skies
+11. * Gimme Gimme Gimme 
+
+* ABBA cover only on the digipack, limited edition release.
+
+ Other information:
+Recorded in Studiomega by Bullen and Beseech
+
+Coverart: Travis Smith
+Layout: Robert Spеnglund
+
+### "Drama" 2003, Gothic
+
+01. Drama
+02. Higher Level
+03. Voices
+04. Forever Falling
+05. Bitch
+06. Addicted
+07. Come On In
+08. Friend Emptiness
+
+### "Sunless Days" 2005, Gothic
+
+01. Innerlane
+02. The Outpost
+03. A bittersweet Tragedy
+04. Everytime I Die
+05. Devilґs Plaything (Danzig coversong)
+06. Lost 
+07. Last Obsession
+08. Emotional Decay
+09. Restless Dreams
+10. The reversed Mind
+ 
+The DIGIPACK version of "SUNLESS DAYS" will also include:
+ 
+11. Manmade Dreams (Remake, 2005 version)
+12. Lost (Emotional & shorter version)
+
+### "Beating Pulse (single)" 2015, Gothic
+
+1. Beating Pulse  04:09  
+
+### "My Darkness, Darkness" 2016, Gothic
+
+1. Beating Pulse  04:09   
+2. Shimmering   
+3. Bloodline     
+4. Highwayman     
+5. Mr Uninvited   
+6. My Darkness     
+7. Atmosphere     
+8. Ingredients      
+9. One Last Call     
+10. Darksome      
+11. The Symbol  
+
+
 
 ## Отношения с другими группами
 

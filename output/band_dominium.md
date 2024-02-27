@@ -1,9 +1,40 @@
 # Dominium
 
-Дискография
-"Unknown Dimensions" 1999, Death Metal
-"Stigmata" 2001, Death Metal
-"Psycho Path Fever" 2002, Death Metal
+progressive death
+
+## Дискография
+
+### "Unknown Dimensions" 1999, Death Metal
+
+
+
+### "Stigmata" 2001, Death Metal
+
+1. Entering
+2. MK-Ultra
+3. Individual
+4. Genesh 
+5. Crucification
+6. Incanjamba
+7. King of Libido 
+8. War for a While 
+9. Oziris  
+
+
+### "Psycho Path Fever" 2002, Death Metal
+
+1. Mouth like an open wound
+2. Obsession
+3. Windigo
+4. Stranger
+5. Family fur
+6. Ghosts
+7. Psycho path fever
+8. Stranger II
+9. Half bent pen-knife
+10. His revolver
+11. Nowhere
+
 
 ## Отношения с другими группами
 

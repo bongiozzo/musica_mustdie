@@ -1,7 +1,33 @@
 # Pride & Glory
 
-Дискография
-"Pride & Glory" 1999, Hard Rock
+Zakk Wylde
+
+## Дискография
+
+### "Pride & Glory" 1999, Hard Rock
+
+Disc 1
+Losin' Your Mind 
+Horse Called War 
+Shine On 
+Lovin' Woman 
+Harvester Of Pain 
+The Chosen One 
+Sweet Jesus 
+Troubled Wine 
+Machine Gun Man 
+Cry Me A River 
+Toe 'n The Line 
+Found A Friend 
+Fadin' Away 
+Disc 2
+Hate Your Guts
+The Wizard 
+Torn & Tattered 
+In My Time Of Dyin' 
+The Hammer & The Nail 
+Come Together
+
 
 ## Отношения с другими группами
 

@@ -1,10 +1,39 @@
 # Re-Animator
 
-Дискография
-"Deny Reality (EP)" 1989, Thrash
-"Condemned to Eternity" 1990, Thrash
-"Laughing" 1991, Thrash
-"That Was Then... This Is Now" 1992, Thrash
+
+
+## Дискография
+
+### "Deny Reality (EP)" 1989, Thrash
+
+ Side One:
+1. Deny Reality 4.45
+2. Follow The Masses 4.21
+3. Fatal Descent 5.15
+ Side Two:
+1. O.P.C. 0.20
+2. D.U.A.F. 3.03
+3. Re-Animator 6.06
+
+Mike Abel - Lead Guitars
+Kev Ingleson - Guitars & Vocals
+Mark Mitchell - Drums
+John Wilson - Bass Guitar
+
+(p)&(c) UNDER ONE FLAG (Flag 32)
+
+### "Condemned to Eternity" 1990, Thrash
+
+
+
+### "Laughing" 1991, Thrash
+
+
+
+### "That Was Then... This Is Now" 1992, Thrash
+
+
+
 
 ## Отношения с другими группами
 

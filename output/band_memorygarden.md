@@ -1,14 +1,114 @@
 # Memory Garden
 
-Дискография
-"Blessed are the dead" 1994, Doom
-"Forever" 1995, Doom
-"Ta nogon hort i hand, so ger vi oss av till tomteland (not released officialy)" 1995, Doom
-"Tides" 1996, Doom
-"Verdict Of Posterity" 1998, Doom
-"Mirage" 2000, Doom
-"Marion" 2004, Doom
-"Carnage Carnival " 2008, Doom
+
+
+## Дискография
+
+### "Blessed are the dead" 1994, Doom
+
+1.  Badlands
+2.  Blessed Are The Dead
+
+### "Forever" 1995, Doom
+
+1. Warlord
+2. Inarticuls Mortis
+3. Forever
+4. Autumn Anguish
+
+All songs written by MEMORY GARDEN.
+Produced by Fredrik Nordstrom and MEMORY GARDEN.
+Recorded at Studio Fredman
+
+Rick Gustafsson - Guitar
+Stefan Berglund - Vocals
+Anders Loostrom - Guitars
+Ken Johansson - Bass
+Tom Johansson - Drums
+
+(P)c 1996 HEATHENDOOM Music
+
+### "Ta nogon hort i hand, so ger vi oss av till tomteland (not released officialy)" 1995, Doom
+
+1.  Mцssens Julafton
+2.  Tomtarnas Julnatt
+3.  Stilla Natt
+4.  Jultomten Дr Faktiskt Dцd
+
+### "Tides" 1996, Doom
+
+1. Genesis
+2. Dream Horizons
+3. The Rhyme Of The Elder
+4. Trapped At The Pharaohs
+5. Judgement Day
+6. The Innocent Sleep
+7. A New Dawn
+8. Blissful
+
+All songs written by MEMORY GARDEN.
+Produced by Fredrik Nordstrom and MEMORY GARDEN.
+Recorded at Studio Fredman
+Cover Artwork By Joakim Eklund.
+
+Rick Gustafsson - Guitars, Acoustic
+Stefan Berglund - Vocals
+Anders Loostrom - Guitars
+Ken Johansson - Bass
+Tom Johansson - Drums, Piano
+
+(P)c 1996 HEATHENDOOM Music // HDM 003
+
+### "Verdict Of Posterity" 1998, Doom
+
+1.  Carved In Stone [6.09]
+2.  Awkward Tale [4.25]
+3.  Shadow Season [6.09]
+4.  Tragic Kingdom [5.35]
+5.  The Sum Of All Fear [5.18]
+6.  Split Image [6.01]
+7.  Outward Passage [4.33]
+8.  Wasteland Foretold [6.04]
+9.  Amen [9.46]
+
+### "Mirage" 2000, Doom
+
+1.  Prologue [1:08]
+2.  A Long Grey Day [5:01]
+3.  Hallowed Soil [4:02]
+4.  Shade [6:27]
+5.  Navigate [4:46]
+6.  Revelation [4:38]
+7.  Yearning [2:02]
+8.  River Of Sludge [4:49]
+9.  My Pain [5:38]
+10.  The Search [4:24]
+
+### "Marion" 2004, Doom
+
+1. Nameless
+2. Marion
+
+### "Carnage Carnival " 2008, Doom
+
+1. Carnage Carnival 05:29  
+2. The Bitter End 04:00  
+3. Nameless 05:35  
+4. The Beast Within 04:09  
+5. Beggars Anthem 06:04  
+6. A Dark Embrace 05:12  
+7. Dominion 05:00  
+8. Endless Fear 03:23  
+9. Another Night 05:40  
+10. The Downfall 06:58 
+
+
+Vocals: Stefan Berglund 
+Lead Guitar: Simon Johansson 
+Guitar: Anders Loostrцm 
+Bass: Johan Fredrikson 
+Drums: Tom Bjorn/Johansson 
+
 
 ## Отношения с другими группами
 

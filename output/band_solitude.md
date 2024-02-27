@@ -1,7 +1,36 @@
 # Solitude
 
-Дискография
-"From Within" 1994, Thrash
+
+
+## Дискография
+
+### "From Within" 1994, Thrash
+
+1.  Twisted
+2.  No Future
+3.  Tipping The Balance
+4.  Alter The Red
+5.  Mind Pollution
+6.  From Within
+7.  The Afterlife
+8.  A Loss Of Blood
+9.  The Empty
+10.Poisoned Pollution
+11.In This Life
+12.Side Winder
+
+Rod Cope
+Mike Hostler
+Keith Saulsbury
+Dan Martinez
+
+Recorded & Mixed - Oct.2-9, 1993.
+Recorded At Oz Recording (Baltimore, MD).
+Recorded & Mixed By Drew Mazurek.
+Produced By SOLITUDE & Drew Mazurek.
+
+(P)(C) 1994 RED LIGHT Records
+
 
 ## Отношения с другими группами
 

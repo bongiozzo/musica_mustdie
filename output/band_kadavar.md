@@ -1,7 +1,21 @@
 # Kadavar
 
-Дискография
-"Kadavar" 2009, Death Metal
+
+
+## Дискография
+
+### "Kadavar" 2009, Death Metal
+
+1. From Flesh to Sorrow	 
+2. Return to Ashes	 
+3. Behind the Storm	 
+4. Global Collapse	 
+5. Towards the Abyss	 
+6. Morbid Sense of Weakness	 
+7. Lust of Mortal Decay	 
+8. Ghost of Revelation	 
+9. Mirror of Lies
+
 
 ## Отношения с другими группами
 

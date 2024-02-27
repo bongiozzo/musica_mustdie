@@ -1,7 +1,23 @@
 # Weltbrand
 
-Дискография
-"Radiance Of a Thousand Suns" 2003, Black Metal
+
+
+## Дискография
+
+### "Radiance Of a Thousand Suns" 2003, Black Metal
+
+1.Ground Zero-Trinity 
+2. Burn the Earth 
+3. XW-48 
+4. Towards Nihil 
+5. Depopulate 
+6. Biological cleansing  
+7. MK-43 
+8. The Breeding Cancer 
+9.T4 
+10. Behold the Nuclear Revolution 
+11. Global Conflagration
+
 
 ## Отношения с другими группами
 

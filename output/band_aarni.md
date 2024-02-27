@@ -1,8 +1,35 @@
 # Aarni
 
-Дискография
-"Bathos" 2004, Doom
-"Tohcoth" 2008, Alternative
+Experimental Doom Metal
+
+## Дискография
+
+### "Bathos" 2004, Doom
+
+1. Пнейспукьрпт (Oneiroskopos) 01:31  
+2. Squaring The Circle 07:50  
+3. Quinotaurus (Twelve Stars In Sight) 03:48 
+4. Kivijumala 11:45  
+5. V.I.T.R.I.O.L. 06:33 
+6. The Thunder, Perfect Mindfuck 08:32  
+7. Mental Fugue 06:49  
+8. Niut Net Meru 09:20 
+9. Kesayo 08:59
+
+### "Tohcoth" 2008, Alternative
+
+1. Coniuratio Sadoquae
+2. The Hieroglyph
+3. Riding Down the Miskatonic on a Dead Thing
+4. Arouse Coiled Splendour
+5. Лпгпт
+6. All Along The Watchtowers
+7. Chapel Perilous
+8. The Sound of One I Opening
+9. The Battle Hymn of The Eristocracy
+10. Barbelith
+11. Iku-Turso
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,27 @@
 # Marble Arch
 
-Дискография
-"Another Sunday Bright" 2002, Rock
+
+
+## Дискография
+
+### "Another Sunday Bright" 2002, Rock
+
+Johan Wadelius - vocals
+Niklas Brodd - guitar
+Martin Boman - guitar
+Petter Ter-Borch - drums
+Jesper Bagge - bass
+
+Produced by Anssi Kippo and MARBLE ARCH
+Recorded and mixed at Astia Studio A, May-June 2002
+Assistant engineering by Panu Pissanen
+
+Additional keyboards played by Anssi and Martin
+Programming by Anssi and Niklas
+
+Backing vocals by Anssi and Johan
+Additional vocals by Tanja Lainio
+
 
 ## Отношения с другими группами
 

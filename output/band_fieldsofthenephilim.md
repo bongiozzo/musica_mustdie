@@ -1,7 +1,19 @@
 # Fields Of The Nephilim
 
-Дискография
-"Mourning Sun" 2005, Gothic
+gothic rock
+
+## Дискография
+
+### "Mourning Sun" 2005, Gothic
+
+Shroud (Exordium) 
+Straight To The Light 
+New Gold Dawn 
+Requiem XIII-33 (Le Veilleur Silencieux) 
+Xiberia (Seasons In The Ice Cage) 
+She 
+Mourning Sun
+
 
 ## Отношения с другими группами
 

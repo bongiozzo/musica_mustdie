@@ -1,17 +1,208 @@
 # Thunder
 
-Дискография
-"Backstreet Symphony" 1990, Hard Rock
-"Laughing On Judgement Day" 1992, Hard Rock
-"Behind Closed Doors" 1995, Hard Rock
-"The Thrill Of It All" 1996, Hard Rock
-"Giving The Game Away" 1999, Hard Rock
-"Gimme Some..." 2000, Hard Rock
-"Rock Champions" 2001, Hard Rock
-"Symphony And Stage" 2002, Hard Rock
-"Shooting At The Sun" 2003, Hard Rock
-"In The Magnificent Seventh" 2005, Hard Rock
-"Robert Johnsons Tombstone" 2006, Hard Rock
+Hard rock
+
+## Дискография
+
+### "Backstreet Symphony" 1990, Hard Rock
+
+1.   She's So Fine
+2.   Dirty Love
+3.   Don't Wait For Me
+4.   Higher Ground
+5.   Until My Dying Day
+6.   Backstreet Symphony
+7.   Love Walked In
+8.   An Englishman On Holiday
+9.   Girl's Going Out Of Her Head
+10. Gimme Some Lovin'
+11. Distant Thunder (CD ONLY)
+
+### "Laughing On Judgement Day" 1992, Hard Rock
+
+1.   Does It Feel Like Love?
+2.   Everybody Wants Her
+3.   Low Life In High Places
+4.   Laughing On Judgement Day
+5.   Empty City
+6.   Today The World Stopped Turning
+7.   Long Way From Home
+8.   Fire To Ice
+9.   Feeding The Flame
+10. A Better Man
+11. The Moment Of Truth
+12. Flawed To Perfection
+13. Like A Satellite
+14. Baby I'll Be Gone
+15. With A Little Help From My Friends (JAPAN ONLY)
+
+### "Behind Closed Doors" 1995, Hard Rock
+
+1.   Moth To The Flame
+2.   Fly On The Wall
+3.   I'll Be Waiting
+4.   River Of Pain
+5.   Future Train
+6.   'Til The River Runs Dry
+7.   Stand Up
+8.   Preaching From A Chair
+9.   Castles In The Sand
+10. Too Scared To Live
+11. Ball And Chain
+12. It Happened In This Town
+13. Low Life In High Places (Live) (JAPAN ONLY)
+
+### "The Thrill Of It All" 1996, Hard Rock
+
+1.   Pilot Of My Dreams
+2.   Living For Today
+3.   Love Worth Dying For
+4.   Don't Wait Up
+5.   Something About You
+6.   Welcome To The Party
+7.   The Thrill Of It All
+8.   Hotter Than The Sun
+9.   This Forgotten Town
+10. Cosmetic Punk
+11. You Can't Live Your Life In A Day
+12. Too Bad  (JAPAN ONLY)
+
+### "Giving The Game Away" 1999, Hard Rock
+
+1.   Just Another Suicide (You Wanna Know)
+2.   All I Ever Wanted
+3.   Giving The Game Away
+4.   You'll Still Need A Friend
+5.   Rolling The Dice
+6.   Numb
+7.   Play That Funky Music
+8.   'Til It Shines
+9.   Time To Get Tough
+10. It's Another Day
+11. It Could Be Tonight
+12. Wonderland (JAPAN ONLY)
+13. The Only One (JAPAN ONLY)
+
+### "Gimme Some..." 2000, Hard Rock
+
+1.   Gimme Some Lovin'
+2.   Dirty Love
+3.   Fired Up
+4.   Brown Sugar (Live)
+5.   Backstreet Symphony
+6.   Don't Wait For Me
+7.   Love Walked In
+8.   Higher Ground (Acoustic Version)
+9.   The Moment Of Truth
+10. She's So Fine
+11. Everybody Wants Her
+12. Ball And Chain
+13. An Englishman On Holiday
+14. All The Way From Memphis (Live)
+15. I Hear You Knocking (Live Acoustic Version)
+16. Dirty Love (Acoustic Version)
+
+### "Rock Champions" 2001, Hard Rock
+
+1.   Does It Feel Like Love?
+2.   Dirty Love
+3.   A Better Man
+4.   She's Like Ice
+5.   Laughing On Judgement Day
+6.   Future Train
+7.   Between The Covers
+8.   Flawed To Perfection
+9.   Love Walked In
+10. Can't Get By On Love
+11. Girl's Going Out Of Her Head
+12. Feeding The Flame
+13. Hand In A Glove
+14. Low Life In High Places
+15. Moth To The Flame
+16. History In The Making
+
+### "Symphony And Stage" 2002, Hard Rock
+
+CD 1:
+1.   Just Another Suicide
+2.   All I Ever Wanted
+3.   Giving The Game Away
+4.   You'll Still Need A Friend
+5.   Rolling The Dice
+6.   Numb
+7.   Play That Funky Music
+8.   'Til It Shines
+9.   Time To Get Tough
+10. It's Another Day
+11. It Could Be Tonight
+
+CD 2:
+1.   Welcome To The Party (Live)
+2.   Don't Wait Up (Live)
+3.   Higher Ground (Live)
+4.   Low Life In High Places (Live)
+5.   Backstreet Symphony (Live)
+6.   I'll Be Waiting (Live)
+7.   An Englishman On Holiday (Live)
+8.   Dirty Love (Live)
+9.   A Better Man (Live)
+10. Until My Dying Day (Live)
+11. She's So Fine (Live)
+12. Love Walked In (Live)
+13. River Of Pain (Live)
+
+### "Shooting At The Sun" 2003, Hard Rock
+
+1.   Loser 
+2.   Everybody's Laughing 
+3.   If I Can't Feel Love 
+4.   Shooting At The Sun
+5.   The Pimp And The Whore 
+6.   A Lover, Not A Friend 
+7.   Shake The Tree 
+8.   Somebody Get Me A Spin Doctor
+9.   The Man Inside 
+10. Out Of My Head
+11. Blown Away 
+12. River Of Pain (Live) (EUROPE ONLY)
+13. Somebody Get Me A Spin Doctor (Live) (EUROPE ONLY)
+14. River Of Pain (Live Windows Media Video) (EUROPE ONLY)
+
+Ben Matthews Rhythm Guitars, Hair Products & All Keyboards 
+Chris Childs All Bass Guitars, Technique & Dancing 
+Danny Bowes Vocals, Backing Vocals & All Things Practical 
+Harry James Drums, Percussion & Bensons 
+Luke Morley Acoustic & Electric Guitars, Solos, Percussion, Backing Vocals 
+
+
+### "In The Magnificent Seventh" 2005, Hard Rock
+
+01. I Love You More Than Rock`n`Roll
+02. The Gods Of Love
+03. Monkey See, Monkey Do
+04. I`m Dreaming Again
+05. Amy`s On The Run
+06. The Pride
+07. Fade Into The Sun
+08. Together Or Apart
+09. You Can`t Keep A Good Man Down
+10. One Foot In The Grave
+11. One Fatal Kiss
+
+### "Robert Johnsons Tombstone" 2006, Hard Rock
+
+1. Robert Johnson?s Tombstone
+2. Dirty Dream
+3. A Million Faces
+4. Don?t Wanna Talk About Love
+5. The Devil Made Me Do It
+6. Last Man Standing
+7. My Darkest Hour
+8. Andy Warhol Said
+9. What A Beautiful Day
+10. It?s All About You
+11. Stubborn Kinda Love
+
 
 ## Отношения с другими группами
 

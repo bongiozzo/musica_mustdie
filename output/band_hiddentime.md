@@ -1,7 +1,15 @@
 # Hidden Time
 
-Дискография
-"Out Of Control [demo]" 2007, Melodic Death Metal
+ex-FORGIVE-MENOT, ex-EDENBEAST
+
+## Дискография
+
+### "Out Of Control [demo]" 2007, Melodic Death Metal
+
+1. The Crash        4:00
+2. Out Of Control  4:15   
+3. Midnight Sun    4:44
+
 
 ## Отношения с другими группами
 

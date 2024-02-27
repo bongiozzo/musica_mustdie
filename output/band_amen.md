@@ -1,9 +1,84 @@
 # Amen
 
-Дискография
-"Amen" 1999, Alternative
-"We Have Come for Your Parents" 2000, Alternative
-"Price of Reality" 2001, Alternative
+
+
+## Дискография
+
+### "Amen" 1999, Alternative
+
+ 
+   1.   Coma America (Chaos) - 2:18 
+   2.   Down Human (Chaos) - 3:44 
+   3.   Drive (Chaos) - 3:08 
+   4.   No Cure for the Pure (Chaos) - 3:23 
+   5.   When a Man Dies a Woman (Chaos) - 3:30 
+   6.   Unclean (Chaos) - 2:50 
+   7.   I Don't Sleep (Chaos) - 2:25 
+   8.   TV Womb (Chaos) - 2:38 
+   9.   Private (Chaos) - 3:12 
+   10.   Everything Is Untrue (Chaos) - 4:19 
+   11.   The Last Time (Chaos) - 2:16 
+   12.   Fevered (Chaos) - 2:28 
+   13.   Broken Design (Chaos) - 2:24 
+   14.   Resignation/Naked and Violent (Chaos) - 4:07 
+   15.   Whores of Hollywood [*] (Chaos) - 1:45 
+   16.   Lovers Are Killers [*] (Chaos) - 2:55 
+   17.   Life Crime [*] (Chaos) - 1:23 
+   18.   Black God [*] (Chaos) - 4:14 
+
+
+Larkin  -  Drums 
+Joe Barresi  -  Mixing 
+Steve Evetts  -  Mixing 
+George Marino  -  Mastering 
+Chuck Johnson  -  Engineer, Mixing 
+P.R. Brown  -  Design 
+Dean Karr  -  Photography 
+Ross Robinson  -  Producer 
+Rob Agnello  -  Engineer 
+Casey Chaos  -  Vocals, Package Design, Cover Design, Package Concept, Cover Art 
+Paul Fig  -  Guitar 
+Sonny Mayo  -  Guitar 
+John Tumor  -  Bass 
+
+
+### "We Have Come for Your Parents" 2000, Alternative
+
+ 
+   1.   CK Killer (Chaos) - 1:58 
+   2.   Refuse Amen (Chaos) - 2:45 
+   3.   Justified (Chaos) - 3:15 
+   4.   The Price of Reality (Chaos) - 3:17 
+   5.   Mayday (Chaos) - 3:03 
+   6.   Under the Robe (Chaos) - 3:55 
+   7.   Dead on the Bible (Chaos) - 3:05 
+   8.   Too Hard to Be Free (Chaos) - 2:44 
+   9.   Ungrateful Dead (Chaos) - 3:38 
+   10.   Piss Virus (Chaos) - 3:27 
+   11.   The Waiting (Chaos) - 3:17 
+   12.   Take My Head (Chaos) - 2:42 
+   13.   In Your Suit (Chaos) - 2:45 
+   14.   Here's the Poison (Chaos) - 4:09 
+
+
+Larkin  -  Drums 
+Dean Karr  -  Photography 
+Ross Robinson  -  Producer 
+Casey Chaos  -  Vocals, Art Conception 
+Paul Fig  -  Guitar 
+Mike Fraiser  -  Engineer, Mixing 
+Sonny Mayo  -  Guitar 
+John Tumor  -  Bass 
+
+
+### "Price of Reality" 2001, Alternative
+
+   1.   The Price Of Reality (Chaos) - 3:18 
+   2.   In These Pills (Chaos) - 2:34 
+   3.   War In Your Name (Chaos) - 1:46 
+   4.   15 + Not Alive (Chaos) - 3:36 
+
+
 
 ## Отношения с другими группами
 

@@ -1,10 +1,48 @@
 # Diabulus In Musica
 
-Дискография
-"Secrets" 2010, Gothic
-"The Wanderer" 2012, Gothic
-"Argia" 2014, Gothic
-"Dirge for the Archons" 2016, Gothic
+
+
+## Дискография
+
+### "Secrets" 2010, Gothic
+
+1. Renaissance 00:52  
+2. Come To Paradise 04:47  
+3. Nocturnal Flowers 04:23  
+4. Evolution's Whim 04:23  
+5. New Era 04:55  
+6. Liens In Your Eyes 03:57  
+7. Lonely Soul 03:50  
+8. The Seventh Gate 01:13  
+9. Isthar 04:03  
+10. Under The Shadow (Of A Butterfly) 04:26  
+11. Beyond Inflinity 04:15  
+12. The Forest Of Ashes 06:26  
+13. St. Michael's Nightmare 07:53 
+
+### "The Wanderer" 2012, Gothic
+
+1.	 A Journey's End (Intro)	02:15
+2.	 Ex Nihilio	05:30
+3.	 Sceneries of Hope	03:51
+4.	 Blazing a Trail	04:03
+5.	 Call from a Rising Memory (Intro)	01:18
+6.	 Hidden Reality	04:43
+7.	 Shadow of the Throne	04:43	
+8.	 Allegory of Faith, Innocence and Future	05:20
+9.	 Sentenced to Life	04:59
+10.	 Oihuka Bihotzetik	04:52
+11.	 No Time for Repentance (Lamentatio)	08:29
+12.	 The Wanderer	04:38
+
+### "Argia" 2014, Gothic
+
+
+
+### "Dirge for the Archons" 2016, Gothic
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,17 @@
 # Twin Obscenity
 
-Дискография
-"For Blood, Honour And Soil" 1998, Black Metal
-"Bloodstone" 2001, Black Metal
+Viking Metal
+
+## Дискография
+
+### "For Blood, Honour And Soil" 1998, Black Metal
+
+
+
+### "Bloodstone" 2001, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

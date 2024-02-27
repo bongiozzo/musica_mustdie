@@ -1,9 +1,122 @@
 # End Zone
 
-Дискография
-"First Bequest" 1995, Instrumental
-"Thalatta et Thanatos" 1996, Instrumental
-"Eclectica" 1998, Instrumental
+(maybe the best russian act)
+
+## Дискография
+
+### "First Bequest" 1995, Instrumental
+
+1. From the Distance 
+2. Conqueror Night 
+3. Dangerous Gift 
+4. Ulterior Solitude 
+5. Oblivion Flow**** 
+6. S.O.D. 
+7. The Edge of String* 
+8. Questions With No Answer 
+9. Remember the Fallen*** 
+10. Candlestick of Parcass**** 
+11. Last Hope of Suffered Soul 
+12. The Castle of Woman of Mine* 
+13. Rock`n`roll**  
+
+  
+Valeri Dedov - drums 
+Roman Senkin - bass guitar 
+Oleg Mishin - 1-st guitar, flute 
+Igor Lobanov -vocal, 2-nd guitar 
+All music written by IGOR LOBANOV. 
+(Except: *- by OLEG MISHIN , **- by OLEG MISHIN & IGOR LOBANOV, ***- by WHITCHHUNTER & BLACKFIRE, ****- by SENKIN). 
+All Arrangements by OLEG MISHIN & IGOR LOBANOV. 
+Produced by IGOR LOBANOV. 
+Recorded at "ARIA Rec." studios in feb.`95 (call (095) 369-81-61). 
+Engineered by VLADIMIR HOLSTININ, VITALY DUBININ. 
+Mixed by EVGENY TRUSHIN. 
+Mastered by SERGEY TITOV at SOYUZ MASTERING STUDIO. 
+END ZONE Logo Design: SERGEY DAVIDOV. 
+Cover Art Work by STAS OPLETIN. 
+Executive Producer: AGEN PRICE.  
+
+
+
+
+### "Thalatta et Thanatos" 1996, Instrumental
+
+1. Overture 2:10 
+2. Thalatta 5:21 
+3. End Zone 5:22 
+4. Baba-Yaga * 0:40 
+5. Roma 4:53 
+6. Elements 4:19 
+7. Death of Tsar (Dedicated to Russian Imperator Pavel I ) 2:55 
+8. Passacaglia *** 2:15 
+9. The Edge of String (Turbo version) 2:52 
+10. Parkinson`s Ballet **** 3:27 
+11. Castle of Woman of Mine 3:16 
+12. Cobalt ** 1:23 
+13. Night of the Sun 4:29 
+14. Dance of the Lore 3:37 
+15. Outflow ***** 0:46  
+
+
+
+Oleg Milovanov - drums 
+Roman Senkin - bass guitar 
+Oleg Mishin - 1-st guitar, flute 
+Alexandr Dronov - keyboards 
+Igor Lobanov -vocal, 2-nd guitar 
+
+
+All music written by OLEG MISHIN. 
+(Except: ***- by HENDEL, *- by CHAIKOVSKY, **- by GRIEG, ****- by SENKIN, *****- by DRONOV ). 
+All Arrangements by IGOR LOBANOV & OLEG MISHIN. 
+Produced by IGOR LOBANOV. 
+Recorded at "LIGA" Studios ( call (095) 367-62-10 ), at various points in time between 7-th April - 16-th June `96. 
+Engineered by DMITRY PETRYKIN. 
+Mixed by SERGEY GNEUSHEV. 
+Mastered by STAS " BEARD " at SBI RECORDS 22,24.07.96. 
+Photos by EVGENY ROGOV. 
+Computer Design by IGOR LOBANOV. 
+Executive Producer: AGEN PRICE. 
+
+
+
+### "Eclectica" 1998, Instrumental
+
+1. Alpha 0:52 
+2. The Vortex of Reality 6:57 
+3. Hovanchina (Final)* 3:18 
+4. Dual Infinity 6:17 
+5. The Remedy 5:37 
+6. Refuse/Resist** 3:28 
+7. Afterwards*** 8:43  
+
+
+Maestro Raro - cello 
+Oleg Milovanov - drums 
+Roman Senkin - bass guitar 
+Oleg Mishin - 1-st guitar, flute 
+Alexandr Dronov - keyboards 
+Elena Petrova - backing vocals 
+Igor Lobanov -vocal, 2-nd guitar 
+
+
+Spoken parts on THE REMEDY by Boris Spector 
+All music written by IGOR LOBANOV & OLEG MISHIN. 
+(Except: *- BY MUSORGSKY, **- BY GRIEG,***- BY MISHIN). 
+All Arrangements by IGOR LOBANOV & OLEG MISHIN. 
+Produced by IGOR LOBANOV. 
+Recorded at "SNC" Studios ( call (095) 952-36-63 )at various points in time between 13-th October - 26-th December `97. 
+Engineered by EVGENY TRUSHIN. 
+Mixed by EVGENY TRUSHIN & IGOR LOBANOV. 
+Track *** recorded by MOSCOW SPRING WATER ORCHESTRA conducted by DMITRY REZNITCHENKO Engineered & Mixed by DMITRY REZNITCHENKO at "DIMA" Studios ( call (095) 188-27-60). 
+Mastered by PAUL FASTER at SBI RECORDS ( call (095) 425-00-00). 
+Photos by VADIM MOROZOV. 
+Computer Design by IGOR LOBANOV. 
+All 3D Images was created by ANDREW LOBANOV. 
+
+
+
 
 ## Отношения с другими группами
 

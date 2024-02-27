@@ -1,8 +1,51 @@
 # Dead World
 
-Дискография
-"Collusion" 1992, Industrial
-"The Machine" 1993, Industrial
+
+
+## Дискография
+
+### "Collusion" 1992, Industrial
+
+Moment I :
+1. Incorporeal Nemesis
+2. Neurosis Quachire
+Moment II :
+3. Massa Confussa Santorium
+4. Saturnalia
+5. Miasma
+6. El Shaddi Sanctimony
+Moment III :
+7. Regina Confessorum
+8. Portae Infern
+9. Christe,Audionos
+
+Jonathan Paul Canady
+Kevin Anthony Kopp
+Gregory Scott Knoll
+
+Produced By DEAD WORLD.
+
+(p)&(c) 1992 RELAPSE Records
+
+### "The Machine" 1993, Industrial
+
+1. Cold Hate
+2. Lies
+3. 180
+4. Kill
+5. Blood Everywhere
+6. The Machine
+7. El Shaddi
+
+ Jonathan Canady - Words, Bass, Guitars, Sounds
+ Kevin Kopp - Guitars, Sounds, Words On 180
+
+All Songs By DEAD WORLD
+Recorded At Platinum Studios, September 1992
+Produced By DEAD WORLD & D.A. Oldis
+
+(p)&(c) 1993 RELAPSE Records
+
 
 ## Отношения с другими группами
 

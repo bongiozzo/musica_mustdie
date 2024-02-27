@@ -1,8 +1,62 @@
 # Beyond Belief
 
-Дискография
-"Towards The Diabolical Experiment" 1993, Death Doom
-"Rave The Abyss" 1995, Death Doom
+
+
+## Дискография
+
+### "Towards The Diabolical Experiment" 1993, Death Doom
+
+1. Intro: Ave
+2. Shapes Of Sorrow
+3. Stranded
+4. The Experiment
+5. The Nameless
+6. Silent Are The Holy
+7. Fade Away
+8. Untouched
+9. Prophetic Countdown
+10.Kissing In XTC
+11.The Finishing Touch
+12.Outro: Never
+
+ A.J. Van Drenth - Guitar, Vocals, Keyboards
+ Robbie Woning - Guitar, Accordeons
+ Arting Selles - Bass
+ Ronnie V.D. Wey - Fretless Bass
+ Jacko Westendorp - Drums
+
+All Music By BEYOND BELIEF
+All Lyrics By A.J. Van Drenth
+Produced By Tim Buktu
+Engineered & Mixed By Tim Buktu & BEYOND BELIEF
+Recorded & Produced In 1993 At T&T Studios
+
+(p)&(c) 1993 SHARK Records
+
+### "Rave The Abyss" 1995, Death Doom
+
+1. Rave The Abyss
+2. Cursed
+3. Blood Beach
+4. High On The Moon
+5. The Burning Of Redlands
+6. Crushed Divine
+7. The Grand Enigma
+8. Tyrants Of The Sun
+9. Lust
+
+ A.J. Van Drenth - Guitar, Vocals, Keyboards
+ Robbie Woning - Guitar, Accordeons
+ Arting Selles - Bass
+ Ronnie V.D. Wey - Fretless Bass
+ Jacko Westendorp - Drums
+
+All Songs Written By BEYOND BELIEF
+Poduced By Berthus Westrhuis & BEYOND BELIEF
+Recorded At Franky's Recording Kitchen, Nieuwleussen, Holland
+
+(p)&(c) 1995 SHARK Records
+
 
 ## Отношения с другими группами
 

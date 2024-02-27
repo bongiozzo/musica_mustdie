@@ -1,7 +1,20 @@
 # Death Strike
 
-Дискография
-"Fuckin' Death" 1991, Death Metal
+
+
+## Дискография
+
+### "Fuckin' Death" 1991, Death Metal
+
+1. The Truth  03:21    
+2. Mangled Dehumanization  01:58 
+3. Pay to Die  03:02  
+4. Re-Entry and Destruction  03:35   
+5. The Final Countdown  07:05 
+6. Man Killed America/Embryonic Misconceptions  06:02  
+7. Pervert  02:58  
+8. Remorseless Poison  05:25 
+
 
 ## Отношения с другими группами
 

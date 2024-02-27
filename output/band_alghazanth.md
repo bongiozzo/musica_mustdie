@@ -1,16 +1,149 @@
 # Alghazanth
 
-Дискография
-"Behind the Frozen Forest (demo)" 1996, Black Metal
-"Dim Is the Moon's Light (demo)" 1997, Black Metal
-"Promo '97 (demo)" 1997, Black Metal
-"Thy Aeons Envenomed Sanity" 1999, Black Metal
-"Subliminal Antenora" 2000, Black Metal
-"Osiris – Typhon Unmasked" 2001, Black Metal
-"The Polarity Axiom" 2004, Black Metal
-"Wreath of Thevetat" 2008, Black Metal
-"Vinum Intus" 2011, Black Metal
-"The Three-Faced Pilgrim" 2013, Black Metal
+Occult Symphonic Black Metal from Finland
+
+## Дискография
+
+### "Behind the Frozen Forest (demo)" 1996, Black Metal
+
+1. Talven Valtias - 5:33
+2. As the Raven Draws Near - 5:07
+3. Goatdominions - 8:15
+
+Line-up:
+Lord Pohjoinen - vocals & rhythm guitar
+Winterwarrior - lead & acoustic guitars
+Lord Gorath - drums
+Dreminoc - bass
+
+All music by Alghazanth.
+All lyrics by Lord Gorath.
+
+### "Dim Is the Moon's Light (demo)" 1997, Black Metal
+
+1. Lailla Mustien Myrskyjen - 4:17
+2. Reaping Winds of Damnation - 4:02
+3. When Spirits Dance in Grief - 3:38
+4. Mighty as the Silverlike Moon - 6:09
+5. A Dismal Empire - 2:51
+
+### "Promo '97 (demo)" 1997, Black Metal
+
+1. Of a Stormgrey Vision
+2. For the Night I'm Craving
+3. Ensnared in Moonshades (Praises Given in Blackness)
+
+Line-up:
+Thasmorg - vocals, guitars, bass
+Veilroth - guitars
+A. Simonen - synths
+Gorath Moonthorn - drums
+
+Released: November 1997
+
+### "Thy Aeons Envenomed Sanity" 1999, Black Metal
+
+1. Introduction (The Broken Talon)
+2. The Unbounded Wrath
+3. My Somberness Surmounted
+4. Of a Stormgrey Vision
+5. He Awaits...
+6. Towards the Tempting Infinity
+7. Ensnared in Moonshades
+8. When the Spirits Dance in Grief
+9. The Thorns Cry Blood 
+
+Thasmorg - Vocals, Guitars, Bass
+Veilroth - Guitars
+A. Simonen - Synths
+Gorath Moonthorn - Drums
+
+### "Subliminal Antenora" 2000, Black Metal
+
+1. Breathless Flesh Sculpture
+2. The Igneous Embrace
+3. Daemonolith
+4. Netherworldly
+5. Of Predators and Preys
+6. The Mirrored Deathwish Paranoia
+7. An Ode to the Bringer of Chaos
+8. Anno Sathani 
+
+
+
+Nebiros - Vocals
+Thasmorg - Guitars, Bass
+Veilroth - Guitars, Bass
+A. Simonen - Synths
+Gorath Moonthorn - Drums
+
+### "Osiris – Typhon Unmasked" 2001, Black Metal
+
+1. The Circle of Six
+2. Mercurian Soulscapes
+3. In Invidiam
+4. My Twin of Disorder
+5. Regained Planetary Possession
+6. Antithesis
+7. The Parody's Zenith
+8. Horns and Feathers
+9. Iconoblast 
+
+
+
+Nebiros - Vocals
+Thasmorg - Guitars
+Veilroth - Guitars
+Grimort - Bass
+A. Simonen - Synths
+Gorath Moonthorn - Drums
+
+### "The Polarity Axiom" 2004, Black Metal
+
+1. Soulquake - 4:08
+2. The Herald for Reason - 5:06
+3. Chaos Attributes - 5:12
+4. Blood Beguiles Phantoms - 4:57
+5. Drakomorphos - 4:13
+6. 8th Sphere - 5:31
+7. With Black Aureoles - 4:21
+8. Forsaking the Yoke - 6:21
+
+Released: August 2004
+
+### "Wreath of Thevetat" 2008, Black Metal
+
+1. Moving Mountains   
+2. The Kings to Come   
+3. The Phosphorescent  
+4. On Blackening Soil   
+5. Rain of Stars   
+6. Twice-Born   
+7. Future Made Flesh   
+8. As Nothing Consumes Everything
+
+### "Vinum Intus" 2011, Black Metal
+
+1. A Living Grave		
+2. With a Thorn In Our Hearts		
+3. Only the Reflection Bleeds		
+4. Under the Arrow Star		
+5. Our Ascent of the Tower		
+6. Wine Within		
+7. For Thirteen Moons		
+8. Triunity		
+9. The Way of the Scales
+
+### "The Three-Faced Pilgrim" 2013, Black Metal
+
+1. In Your Midnight Orchard  09:19    
+2. To the Pearl on High  07:09    
+3. Promethean Permutation  06:54    
+4. AdraMelekTaus  06:15    
+5. As It Is Fated  06:17    
+6. With Sickle, with Scythe  10:10  
+
+
 
 ## Отношения с другими группами
 

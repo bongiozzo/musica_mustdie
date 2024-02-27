@@ -1,7 +1,30 @@
 # Mine
 
-Дискография
-"Tetanus" 1996, Hardcore
+Killing-Moshing-Thrashing-Bashing Hardcore
+
+## Дискография
+
+### "Tetanus" 1996, Hardcore
+
+1.  Chalk Engine
+2.  Backseat
+3.  Cease
+4.  Trustkiller
+5.  Second Birthday
+6.  Phobia
+7.  Rokal's Tale
+8.  Thrive
+9.  Decision II
+10.Tetanus
+11.3846
+
+Recorded & Mixed At Elch Studio.
+Produced By Bernhard Hahn.
+Mastered By Adrian.
+Band Residence: Switzerland.
+
+(P)(C) 1996 COMMON CAUSE // Verse 008 / CCO 16
+
 
 ## Отношения с другими группами
 

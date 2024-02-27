@@ -1,13 +1,103 @@
 # Devildriver
 
-Дискография
-"DevilDriver" 2003, Metalcore
-"The Fury Of Our Maker's Hand" 2005, Nu Metal
-"The Last Kind Words" 2007, Hardcore
-"Pray For Villains" 2009, Hardcore
-"Beast" 2011, Melodic Death Metal
-"Winter Kills" 2013, Metalcore
-"Trust No One" 2016, Metalcore
+
+
+## Дискография
+
+### "DevilDriver" 2003, Metalcore
+
+1. Nothing's Wrong? 02:37
+2. I Could Care Less 03:36
+3. Die (And Die Now) 02:59 
+4. I Dreamed I Died 03:29
+5. Cry For Me Sky (Eulogy Of The Scorned) 04:00 
+6. The Mountain 04:05
+7. Knee Deep 03:10
+8. What Does It Take (To Be A Man) 03:13
+9. Swinging The Dead 03:37
+10. Revelation Machine 03:30
+11. Meet The Wretched 04:07
+12. Devil's Son 02:48 
+
+### "The Fury Of Our Maker's Hand" 2005, Nu Metal
+
+1. End Of The LIne
+2. Driving Down The Darkness
+3. Grinf**ked
+4. Hold Back The Day
+5. Sin & Sacrifice
+6. Ripped Apart
+7. Pale Horse Apocalypse
+8. Just Run
+9. Impending Disaster
+10. Bear Witness Unto
+11. Before The Hangman's Noose
+12. Fury Of OurMaker's Hand, The
+13. Unlucky 13 - (Bonus Track)
+14. Guilty As Sin - (Bonus Track)
+15. Digging Up Corpses - (Bonus Track)
+16. I Could Care Less - (live, Bonus Track)
+17. Hold Back The Day - (live, Bonus Track)
+18. Ripped Apart - (live, Bonus Track)
+
+### "The Last Kind Words" 2007, Hardcore
+
+1. Not All Who Wander Are Lost 03:31
+2. Clouds Over California 04:09
+3. Bound by the Moon 04:00
+4. Horn of Betrayal 04:24
+5. These Fighting Words 03:57 
+6. Head on to Heartache (Let Them Rot) 04:21
+7. Burning Sermon 03:38
+8. Monsters of the Deep 04:02
+9. Tirades of Truth 05:11
+10. When Summoned 03:04
+11. The Axe Shall Fall 05:15 
+
+### "Pray For Villains" 2009, Hardcore
+
+1. Pray For Villains 04:02
+2. Pure Sincerity 04:38 
+3. Fate Stepped In 05:10 
+4. Back With A Vengeance 03:42
+5. I've Been Sober 05:16
+6. Resurrection Blvd. 03:59
+7. Forgiveness Is A Six Gun 04:42
+8. Waiting For November 05:07
+9. It's In The Cards 04:25
+10. Another Night in London 03:05
+11. Bitter Pill 04:25 
+12. Teach Me To Whisper 04:01
+13. I See Belief 03:55 
+
+### "Beast" 2011, Melodic Death Metal
+
+1. Dead to Rights 04:53  
+2. Bring the Fight (to the Floor) 03:33  
+3. Hardened 05:46  
+4. Shitlist 04:04  
+5. Talons Out (Teeth Sharpened) 04:20  
+6. You Make Me Sick 05:18  
+7. Coldblooded 04:06  
+8. Blur 04:58  
+9. The Blame Game 04:00  
+10. Black Soul Choir 05:07  
+11. Crowns of Creation 04:55  
+12. Lend Myself to the Night 04:01 
+
+
+Recorded at Sonic Ranch.
+Produced by Mark Lewis.
+Mixed by Andy Sneap. 
+
+### "Winter Kills" 2013, Metalcore
+
+
+
+### "Trust No One" 2016, Metalcore
+
+
+
 
 ## Отношения с другими группами
 

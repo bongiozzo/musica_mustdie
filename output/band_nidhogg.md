@@ -1,7 +1,18 @@
 # Nidhogg
 
-Дискография
-"Siegeszug der Gotter" 2009, Viking Metal
+
+
+## Дискография
+
+### "Siegeszug der Gotter" 2009, Viking Metal
+
+1. Siegeszug der G&#246;tter  05:09   
+2. Till Death we Stand  04:18    
+3. Storm of Fimbul  04:53    
+4. Jomsvikingar  05:03    
+5. Der Tod des Baldur  05:16  
+6. Saga von Tyr  04:59 
+
 
 ## Отношения с другими группами
 

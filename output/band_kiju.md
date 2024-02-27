@@ -1,9 +1,51 @@
 # Kiju
 
-Дискография
-"Nothing to Play For" 2002, Thrash
-"demo(N)cracy" 2005, Thrash
-"Ignite The Revolt" 2010, Thrash
+
+
+## Дискография
+
+### "Nothing to Play For" 2002, Thrash
+
+1. Nothing To Play For	 
+2. Y (Chromosome)	 
+3. Discipline	 
+4. Switch Off		 
+5. What Do You Want	 
+6. Truck	 
+7. Reiforced Concrete	 
+8. Ki(ll)ju	 
+9. Out of Control	 
+10. W.W.W.W. (Filthy screen)	 
+11. lPaving of Worms
+
+### "demo(N)cracy" 2005, Thrash
+
+1. Tag Your Bones	 
+2. Inside	 
+3. I Don’t Tolerate Who’s Not Tolerant	 
+4. Deserve the Truth	 
+5. Disappear	 
+6. Seized by the Neck	 
+7. Bean	 
+8. Surf Diesel	 
+9. Bullshit Handbook	 
+10. Born Aborted	 
+11. VI	 
+12. Dog
+
+### "Ignite The Revolt" 2010, Thrash
+
+1. (Spark)	 
+2. Ignite The Revolt	 
+3. New World Oblivion	 
+4. Breathe Or Suffocate/Resurrection	 
+5. Spinning Vultures 
+6. Clouds Start To Burn	 
+7. J.J. Snowballin	 
+8. Disaster	 
+9. Impossible To Say Which Was Which	 
+10. Endless Storm
+
 
 ## Отношения с другими группами
 

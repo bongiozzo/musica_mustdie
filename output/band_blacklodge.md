@@ -1,9 +1,21 @@
 # Blacklodge
 
-Дискография
-" Login:SataN" 2003, Industrial
-"Solarkult" 2006, Industrial
-"T/ME" 2010, Industrial
+Industrial Black Metal
+
+## Дискография
+
+### " Login:SataN" 2003, Industrial
+
+
+
+### "Solarkult" 2006, Industrial
+
+
+
+### "T/ME" 2010, Industrial
+
+
+
 
 ## Отношения с другими группами
 

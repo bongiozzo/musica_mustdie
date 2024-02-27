@@ -1,7 +1,13 @@
 # Inimical
 
-Дискография
-"In The Thorned Fields Of The Dead" 2002, Black Metal
+American black-metal band
+
+## Дискография
+
+### "In The Thorned Fields Of The Dead" 2002, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

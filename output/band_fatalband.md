@@ -1,7 +1,13 @@
 # Fatal Band
 
-Дискография
-"The Worst [promo single]" 2007, Death Metal
+
+
+## Дискография
+
+### "The Worst [promo single]" 2007, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,24 +1,315 @@
 # Running Wild
 
-Дискография
-"Gates to Purgatory" 1984, Heavy Metal
-"Branded and Exiled" 1985, Speed Metal
-"Under Jolly Roger" 1987, Speed Metal
-"Port Royal" 1988, Speed Metal
-"Ready for Boarding" 1988, Speed Metal
-"Death Or Glory" 1989, Speed Metal
-"Blazon Stone" 1991, Speed Metal
-"Pile of Skulls" 1992, Power Metal
-"Black Hand Inn" 1994, Power Metal
-"Masquerade" 1995, Power Metal
-"The Rivalry" 1998, Power Metal
-"Victory" 2000, Power Metal
-"The Brotherhood" 2002, Power Metal
-"Rogues on Vogue" 2005, Power Metal
-"The Final Jolly Roger [DVD]" 2011, Power Metal
-"Shadowmaker" 2012, Heavy Metal
-"Resilient" 2013, Heavy Metal
-"Rapid Foray" 2016, Heavy Metal
+Power-Speed Metal
+
+## Дискография
+
+### "Gates to Purgatory" 1984, Heavy Metal
+
+1. Victim Of States Power
+2. Black Demon
+3. Preacher
+4. Soldiers Of Hell
+5. Diabolic Force
+6. Adrian SOS
+7. Genghis Khan
+8. Prisoner Of Our Time
+9. Walpurgis Time
+10.Satan
+
+(p)&(c) 1984 NOISE International
+
+### "Branded and Exiled" 1985, Speed Metal
+
+1. Branded And Exiled
+2. Gods Of Iron
+3. Realm Of Shades
+4. Mordor
+5. Fight The Oppression
+6. Evil Spirit
+7. Marching To Die
+8. Chains And Leather
+
+(p)&(c) 1985 NOISE International
+
+### "Under Jolly Roger" 1987, Speed Metal
+
+1. Under Jolly RRger
+2. Beggar's Night
+3. Diamonns Of The Black Chest
+4. War In The Gutter
+5. Raise Your Fist
+2. Land Of Ice
+7. Raw Ride
+8. Merciless Game
+
+(p)&(c) 1987 NOISE International
+
+### "Port Royal" 1988, Speed Metal
+
+1. Intro
+2. Port Royal
+3. Raging Fire
+4. Into The Arena
+5. Uaschitschun
+6. Final Gates
+7. Conquistadors
+8. Blown To Kingdom Gate
+9. Warchild
+10.Mutiny
+11.Calico Jack
+
+(p)&(c) 1988 NOISE International
+
+### "Ready for Boarding" 1988, Speed Metal
+
+1. Hymn Of Long John
+2. Under Jolly Roger
+3. Genghis Khan
+4. Raise Your Fists
+5. Purgatory
+6. Mordor
+7. Diabolic Force
+8. Raw Ride
+9. Adrian (C.O.S.)
+10.Prisoner Of Our Time
+
+(p)&(c) 1988 NOISE International
+
+### "Death Or Glory" 1989, Speed Metal
+
+Running Wild : Death Or Glory  
+Riding The Storm
+Renegade
+Evilution
+Running Blood
+Highland Glory
+Marooned
+Bad To The Bone
+Tortuga Bay
+Death Or Glory
+The Battle Of Waterloo
+
+### "Blazon Stone" 1991, Speed Metal
+
+1. Blazon Stone
+2. Lonewolf
+3. Slavery
+4. Fire & Ice
+5. Little Big Horn
+6. Over The Rainbow
+7. White Masque
+8. Rolling Wheels
+9. Bloody Red Rose
+10.Straight To Hell
+11.Heads Or Tails
+12.Billy The Kid
+13.Genocide
+
+(p)&(c) 1991 NOISE International
+
+### "Pile of Skulls" 1992, Power Metal
+
+1. Chamber Of Lee
+2. Whirlwind
+3. Sinister  yes
+4. Black WWngs Of Death
+5. Fistful Of Dynamite
+6. Raring Thunder
+7. Pile Of Skulls
+8. Lead Or Gold
+9. White Buffalo
+10.Jenning's Revenge
+11.Treasure Island
+
+ Rock'N'RRlf -  Lead Vocals/Guitars
+ Axel Morgan - Guitars/Back Vocals
+ Thomas Shuszynski - Bass/Back Vocals
+ Stefan Schwarzmann - Drums/Back Vocals
+
+(p)&(c) 1992 ELECTROLA Records
+
+### "Black Hand Inn" 1994, Power Metal
+
+1. The Curse
+2. Black Hand Inn
+3. Mr. Deadhead
+4. Soulless
+5. The Privateer
+6. Fight The Fire Of Hate
+7. The Phantom Of Black Hand Hill
+8. Freewind Rider
+9. Powder & Iron
+10.Dragonmen
+11.Genesis (The Making & The Fall Of Man)
+
+ Rock'N'Rolf -  Lead Vocals/Guitars
+ Thilo Hermann - Guitars
+ Tomas Shuszynski - Bass
+ Jorg Michael - Drums
+
+(p)&(c) 1994 ELECTROLA Records
+
+### "Masquerade" 1995, Power Metal
+
+1. The Contract
+2. Masquerade
+3. Demonized
+4. Black Soul
+5. Lions Of The Sea
+6. Rebel Of Heart
+7. Whell Of Doom
+8. Metal Head
+9. Soleil Royal
+10.Menin Black
+11.Underworld
+
+(P)&(C) 1995 CBS Records
+
+### "The Rivalry" 1998, Power Metal
+
+1. March of the final Battle (The End of all Evil) (2:00)
+2. The Rivalry (5:34)
+3. Kiss of Death (3:36)
+4. Firebreather (4:04)
+5. Return of the Dragon (6:48)
+6. Resurrection (4:45)
+7. Ballad of William Kidd (8:43)
+8. Agents of Black (3:56)
+9. Fire & Thunder (7:33)
+10. The Poison (4:39)
+11. Adventure Galley (4:19)
+12. Man on the Moon (4:48)
+13. War & Peace (7:44)
+
+### "Victory" 2000, Power Metal
+
+1. Fall of Dorkas (5:16)
+2. When Time runs out (5:16)
+3. Timeriders (4:22)
+4. Into the Fire (4:55)
+5. Revolution (2:56)
+6. The final Waltz (1:19)
+7. Tsar (7:07)
+8. The Hussar (4:03)
+9. The Guardian (5:07)
+10. Return of the Gods (5:29)
+11. Silent Killer (4:43)
+12. Victory (4:49)
+
+### "The Brotherhood" 2002, Power Metal
+
+
+
+### "Rogues on Vogue" 2005, Power Metal
+
+1. Draw the Line
+2. Angel of Mercy
+3. Skeleton Dance
+4. Skulls & Bones (a 7-minutes epic pirate-song)
+5. Born Dead, Dying Worse
+6. Black Gold
+7. Soul Vampires
+8. Rogues en Vogue
+9. Winged & Feathered
+10. Dead Man's Road
+11. The War
+
+### "The Final Jolly Roger [DVD]" 2011, Power Metal
+
+1. Intro		 
+2. Port Royal	
+3. Bad To The Bone
+4. Riding The Storm	
+5. Soulless
+6. Prisoner Of Our Time
+7. Black Hand Inn	
+8. Purgatory
+9. Battle Of Waterloo
+10. Der Kaltverformer	
+11. Raging Fire
+12. Whirlwind	
+13. Tortuga Bay	
+14. Branded And Exiled	
+15. Raise Your Fist
+16. Conquistadores
+17. Under Jolly Roger
+
+### "Shadowmaker" 2012, Heavy Metal
+
+01. Piece Of The Action 04:36 
+02. Riding On The Tide 04:25 
+03. I am Who I am 04:52 
+04. Black Shadow 05:19 
+05. Locomotive 04:40 
+06. Me & The Boys 05:03 
+07. Shadowmaker 04:38 
+08. Sailing Fire 04:23 
+09. Into The Black 04:51 
+10. Dracula 07:25
+
+
+Bonus DVD content:
+ - Making of "Shadowmaker"
+ - Track-by-track commentary by Rock 'N' Rolf
+ 
+Length: approximately 40 min
+ 
+
+Tracklisting LP:
+ 
+LP 1
+ 
+Side 1
+ 1.Piece Of The Action 4:25
+ 2.Riding On The Tide 4:18
+ 3.I am Who I am 4:51
+ 
+Side 2
+ 1.Black Shadow 5:13
+ 2.Locomotive 4:35
+ 3.Me & The Boys 5:00
+ 
+LP 2
+ 
+Side 1
+ 1.Shadowmaker 4:25
+ 2.Sailing Fire 4:14
+ 3.Into The Black 4:57
+ 
+Side 2
+ 1.Dracula 7:29
+ 
+
+Boxset:
+ 
+- 2 LPs, clear vinyl
+ - Black jewel case incl. DVD
+ - Poster
+ - Postcard
+ - Sticker
+ - 30 page book in LP size about the history of the band plus photos
+ - 35 x 35 cm
+ - hard cardboard material with top 
+
+### "Resilient" 2013, Heavy Metal
+
+
+
+### "Rapid Foray" 2016, Heavy Metal
+
+01. Black Skies, Red Flag
+02. Warmongers
+03. Stick To Your Guns
+04. Rapid Foray
+05. By The Blood In Your Heart
+06. The Depth Of The Sea Nautilus (instr.)
+07. Black Bart
+08. Hellectrified
+09. Blood Moon Rising
+10. Into The West
+11. Last Of The Mohicans
+
 
 ## Отношения с другими группами
 

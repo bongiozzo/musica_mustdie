@@ -1,7 +1,13 @@
 # Arum
 
-Дискография
-"Inhuman Echoes From The Shadows" 2003, Black Metal
+
+
+## Дискография
+
+### "Inhuman Echoes From The Shadows" 2003, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

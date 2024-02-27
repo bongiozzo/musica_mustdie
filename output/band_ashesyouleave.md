@@ -1,12 +1,85 @@
 # Ashes You Leave
 
-Дискография
-"The Passage Back To Life" 1998, Death Doom
-"Desperate Existence" 1999, Death Doom
-"The Inheritance Of Sin And Shame" 2000, Death Doom
-"Fire" 2002, Death Doom
-"Songs For The Lost" 2009, Gothic
-"The Cure for Happiness" 2012, Gothic
+
+
+## Дискография
+
+### "The Passage Back To Life" 1998, Death Doom
+
+1. Salva Me (instr.)
+2. The Passage Back To Life
+3. Thorn Of The Dead Flower
+4. Drowning In My Dreams
+5. Lay Down Alone
+6. White Chains
+7. Tears
+
+
+### "Desperate Existence" 1999, Death Doom
+
+1. A Wish
+2. Never Again Alone In the Dark
+3. Desperate Existence
+4. Et Vidi Solem Evanere
+5. Momentary Eclipse Of Hope
+6. Searching For Artificial Happiness
+7. Shadow Of Somebody's Else Being
+8. Outro (instr.)
+
+### "The Inheritance Of Sin And Shame" 2000, Death Doom
+
+1.Tin Horns 
+2. Your Divinity
+3. Shepherd's Song (instr.)
+4. Miles Of Worn Out Days
+5. When Withered Flowers Begin To Bloom
+6. And Thus You Poured Like Heaven Wept
+7. The Inheritance Of Sin And Shame
+8. Amber Star
+
+
+### "Fire" 2002, Death Doom
+
+1. Free
+2. In Vain
+3. Fire
+4. Hurt
+5. Ready To Cry
+6. Don't Forget The Planets
+7. A Crimson Shade
+8. Manservant
+
+
+Marta Batinic, violins 
+Domagoj Galin, bass
+Berislav Poje, guitars, vocals 
+Marina Zrilic, vocals   
+Damir Cencic, keyboards 
+Gordan Cencic, drums  
+
+### "Songs For The Lost" 2009, Gothic
+
+1. Apathy Overdose   
+2. The Feast   
+3. Stranded   
+4. The Song Of The Lost   
+5. Every You Every Me   
+6. Taints   
+7. Losing Fate   
+8. Where The Pain Is and Soul Of Ice 
+
+### "The Cure for Happiness" 2012, Gothic
+
+1. Devil in Disguise
+2. Only Ashes You Leave
+3. For the Heart, Soul and Mind
+4. The Ever-changing
+5. Meant to Stray
+6. Summer’s End
+7. Reality Sad
+8. The Cure
+9. ...for Happiness
+
 
 ## Отношения с другими группами
 

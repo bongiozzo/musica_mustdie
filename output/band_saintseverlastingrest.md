@@ -1,7 +1,20 @@
 # Saints Everlasting Rest
 
-Дискография
-"The Dusk Of Millennium (re-release)" 2005, Gothic
+
+
+## Дискография
+
+### "The Dusk Of Millennium (re-release)" 2005, Gothic
+
+1. Intro
+2. Grief Of Existence 
+3. Flowery Sky
+4. Sick Winter
+5. Frozen Love Is Nonsense
+6. Milk Is My Paradise
+7. Caressing Whisper
+8. Outro
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,17 @@
 # Mitternacht
 
-Дискография
-"The Desolation of Blendenstein" 2002, Ambient
-"8 Visions Of The Time Pilgrim" 2010, Ambient
+
+
+## Дискография
+
+### "The Desolation of Blendenstein" 2002, Ambient
+
+
+
+### "8 Visions Of The Time Pilgrim" 2010, Ambient
+
+
+
 
 ## Отношения с другими группами
 

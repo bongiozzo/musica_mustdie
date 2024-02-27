@@ -1,9 +1,21 @@
 # 5IVE
 
-Дискография
-"Telestic Disfracture" 2001, Stoner
-"5ive" 2001, Stoner
-"The Hemopheliac Dream" 2002, Stoner
+5ive includes: James Plotkin!
+
+## Дискография
+
+### "Telestic Disfracture" 2001, Stoner
+
+
+
+### "5ive" 2001, Stoner
+
+
+
+### "The Hemopheliac Dream" 2002, Stoner
+
+
+
 
 ## Отношения с другими группами
 

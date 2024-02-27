@@ -1,7 +1,49 @@
 # Crowhead
 
-Дискография
-"Frozen" 2002, Gothic
+Gothic Metal, Dark Wave and Electronic
+
+## Дискография
+
+### "Frozen" 2002, Gothic
+
+1. My Angel
+2. Mad Man
+3. Eternity (drums of death)
+4. Intro
+5. Fire Eye (kill you)
+6. Love Letter
+7. Frozen (2002)
+8. My Angel (signal krem remix)
+9. The Soul Is In The Dark Side (pt.1)
+10. The Soul Is In The Dark Side (pt.2)
+11. Outro
+
+Jo-Inge Slangvold - vocals
+Oyvind (Rym) Trinborg - guitars
+ 
+Guest musicians:
+
+Fredrik (Rico) Darum - synths & guitars
+Ted (Superdead) Skogmann - drums & guitars
+
+My Angel (signal krem remix) remix by Fredrik
+(Rico) Darum & Ted (Superdead) Skogmann
+The Soul Is In The Dark Side (pt.1,2) remix by
+Sebastian Komor (Icon Of Coil)
+Produced by Fredrik Darum & Ted Skogmann at Das
+Bunker Studio
+Mastered by Morten I. at Masterhuset, Norway
+All music & lyrics by Crowhead
+All songs prog/arrangement by Fredrik Darum & Ted
+Skogmann except The Soul Is In The Dark Side
+(pt.1,2) by Sebastian Komor (Icon Of Coil)
+Outro by Fredrik Darum
+Cover artwork by Simona Vinati
+Visual design by Francesco Palumbo & MKM Graphix
+Logo by W.Braunholz
+Jo-Inge and Rym photographs by Kime Shangvold
+Make up by Anette Jenssen
+
 
 ## Отношения с другими группами
 

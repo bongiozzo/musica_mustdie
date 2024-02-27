@@ -1,7 +1,31 @@
 # Goat
 
-Дискография
-"Sacred Piligrim" 1996, Black Metal
+
+
+## Дискография
+
+### "Sacred Piligrim" 1996, Black Metal
+
+1.  Brotherfucker
+2.  Goat
+3.  Alle Hader Goat
+4.  Goat's Revenge
+5.  Leave Goat Alone
+6.  Kill The Church
+7.  Spraeng Tarment
+8.  Fucking Frency
+9.  Rip Apart
+10.In Die Svartze Lock Ein-Dein Svin
+11.Killing Is Goat Game (Part I)
+12.Killing Is Goat Game (Part II)
+13.I'm Goat (We Are Goat)
+14.Daughter In The Slaughter
+
+Produced, Engineered and Mixed by GOAT.
+Recorded and Mixed at U.D.C. Studio.
+
+(p)(c) 1996 DIEHARD MUSIC  RRS 950
+
 
 ## Отношения с другими группами
 

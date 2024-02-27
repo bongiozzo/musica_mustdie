@@ -1,7 +1,21 @@
 # Death Sentence
 
-Дискография
-"Awaiting The Cinnamon Dawn" 1999, Melodic Death Metal
+
+
+## Дискография
+
+### "Awaiting The Cinnamon Dawn" 1999, Melodic Death Metal
+
+01. Awaiting The Dawn
+02. The Black Carriage
+03. I Am The Forest
+04. Confession Of The Other Side
+05. The Face Of The Tree
+06. The Living Land
+07. Strong Enough To Be A Victim
+08. Like A Billowing Wave
+09. Message Of Purple Frogs
+
 
 ## Отношения с другими группами
 

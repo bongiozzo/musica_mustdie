@@ -1,10 +1,42 @@
 # Desire
 
-Дискография
-"Infinity... A Timeless Journey Through An Emotional Dream" 1996, Doom
-"Pentacrow" 1998, Doom
-"There Where Candles Fade" 1998, Gothic
-"Locus Horrendis - The Night Cries Of A Sullen Soul..." 2002, Doom
+(Portugal's 100% Doom Metal)
+
+## Дискография
+
+### "Infinity... A Timeless Journey Through An Emotional Dream" 1996, Doom
+
+Prologue
+Leaving This Land Of Eternal Desires
+A Ride In A DreamCrow
+The Purest Dreamer
+In Delight With The Mermaid
+Forever Dreaming (Shadow Dance)
+Epilogue
+
+
+### "Pentacrow" 1998, Doom
+
+
+
+### "There Where Candles Fade" 1998, Gothic
+
+
+
+### "Locus Horrendis - The Night Cries Of A Sullen Soul..." 2002, Doom
+
+1.	Preludium  
+2.	Frozen Heart... Lonely Soul...
+3.	Cries Of Despair
+4.	The Weep Of A Mournful Dusk 
+5.	An Autumnal night Passion
+6.	Drama
+7.	Dark Angel Bird (A Poet Of Tragedies)
+8.	Torn Apart 
+9.	(Love Is) Suicide
+10.                Postludium
+
+
 
 ## Отношения с другими группами
 

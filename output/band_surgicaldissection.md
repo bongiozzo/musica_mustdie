@@ -1,7 +1,21 @@
 # Surgical Dissection
 
-Дискография
-"The Inborn Malignance" 1998, Deathcore
+Typical deathgrind
+
+## Дискография
+
+### "The Inborn Malignance" 1998, Deathcore
+
+01 - Companies Of Murderers
+02 - Narcotic
+03 - To Memory Of Torture
+04 - Lights From The Other Side
+05 - Angel Of Darkness
+06 - Bestial Of Pleasure
+07 - Weed Out The Parasites
+08 - World Is Bizarre
+
+
 
 ## Отношения с другими группами
 

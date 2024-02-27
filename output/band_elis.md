@@ -1,11 +1,128 @@
 # Elis
 
-Дискография
-"Gods Silence Devils Temptation" 2003, Gothic
-"Dark Clouds In A Perfect Sky" 2004, Gothic
-"Griefshire" 2006, Gothic
-"Show Me The Way [EP]" 2008, Gothic
-"Catharsis" 2009, Gothic
+feat. Erben Der Schopfung
+
+## Дискография
+
+### "Gods Silence Devils Temptation" 2003, Gothic
+
+01. Such a long time
+02. Where you belong
+03. Sie erfasst mein Herz
+04. Do you believe
+05. Engel der Nacht
+06. God's silence
+07. Devil's temptation
+08. Come to me
+09. My only love
+10. Child
+11. Abenslied
+12. Betrayal (bonustrack)
+
+Sabine Dunser - Vocals
+Pete Streit - Guitars
+Jurgen (Big J) Broger - Guitars
+Tom Saxer - Bass, Additional Vocals
+Franco 'Franky' Koller - Drums
+
+Produced, recorded, engineered, mixed and mastered
+by Alexander Krull at Mastersound Studio, Fellbach
+in 2002/2003
+Abdditional programming by Alexander Krull &
+Martin schmidt
+Assistant engineers Martin schmidt & Matthias
+Roderer
+Photos by Katja Piolka
+Styling by Evangelia
+Coverartwork by Nadine van der Brock
+Bandlogo by Tom Saxer
+Drums on "Child" and "Do you believe" by Martin
+schmidt
+
+### "Dark Clouds In A Perfect Sky" 2004, Gothic
+
+1. Der Letzte Tag 04:30 
+2. Anger 03:53
+3. Lost Soul 05:02  
+4. Perfect Love 04:19 
+5. Heart in Chains 04:32  
+6. Die Zeit 03:52
+7. Black Angel 04:22 
+8. (The) Devil Inside You 04:44 
+9. Rebirth 03:57
+10. Are You Missing Me? 03:50 
+11. Ballade 03:22 
+
+
+Sabine Dьnser - Vocals 
+Pete Streit - Guitars
+Christian Gruber - Guitars
+Tom Saxer - Bass, additional vocals
+Franco "Franky" Koller - Drums
+
+### "Griefshire" 2006, Gothic
+
+1. Tales from Heaven or Hell 04:17  
+2. Die Stadt 04:19
+3. Show Me the Way 04:06 
+4. Brothers 04:23 
+5. Seit Dem Anbeginn Der Zeit 05:40 
+6. Remember the Promise 03:24 
+7. Phoenix from the Ashes 04:19 
+8. How Long 04:03  
+9. Innocent Hearts 05:11 
+10. Forgotten Love 04:23
+11. The Burning 04:43 
+12. A New Decade 03:46 
+
+
+
+Sabine Dьnser - Vocals 
+Pete Streit - Guitars
+Christian Gruber - Guitars
+Tom Saxer - Bass, additional vocals
+Franco "Franky" Koller - Drums
+
+### "Show Me The Way [EP]" 2008, Gothic
+
+
+
+### "Catharsis" 2009, Gothic
+
+1. Core Of Live 04:08  
+2. Twinkling Shadow 04:25  
+3. Warrior's Tale 06:05  
+4. Des Lebens Traum, Des Traumes Leben 04:06  
+5. I Come Undone 04:25
+6. Firefly 04:25  
+7. Morning Star 04:17  
+8. Das Kleine Ungeheuer 03:53  
+9. Mother's Fire 04:02  
+10. Rainbow 04:10  
+11. The Dark Bridge 04:56 
+
+
+
+The digipack version has alternate artwork and contains two bonus tracks:
+12. Ghost Of The Past
+13. No Hero
+
+Recorded at Mastersound Studio in Germany and produced by Alex Krull.
+
+The digipack version will include a bonus DVD featuring a recording of the
+band's performance at the Metal Female Voices Fest in 2007 in Wieze, Belgium.
+
+Bonus DVD track listing:
+01. Intro
+02. Tales From Heaven Or Hell
+03. Die Zeit
+04. Show Me The Way
+05. Phoenix From The Ashes
+06. Der Letzte Tag
+07. Lost Soul
+08. A New Decade
+09. Heaven And Hell 
+
 
 ## Отношения с другими группами
 

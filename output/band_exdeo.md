@@ -1,8 +1,36 @@
 # Ex Deo
 
-Дискография
-"Romulus" 2009, Melodic Death Metal
-"Caligvla" 2012, Death Metal
+KATAKLYSM singer
+
+## Дискография
+
+### "Romulus" 2009, Melodic Death Metal
+
+1. Romulus 05:17
+2. Storm the Gates of Alesia 06:31
+3. Cry Havoc 07:01 
+4. In Her Dark Embrace 04:55
+5. Invictus 04:48
+6. The Final War (Battle of Actium) 05:01
+7. Legio XIII 05:53
+8. Blood, Courage and The God's That Walk The Earth 06:02
+9. Cruor Nostri Abbas 05:30
+10. Surrender the Sun 06:47
+11. The Pantheon (Jupiter's Reign) 03:57 
+
+### "Caligvla" 2012, Death Metal
+
+01. I, Caligvla 
+02. Cliff Of Tiberius (Exile To Capri) 
+03. Per Oculus Aquila 
+04. Divide Et Impera 
+05. Pollice Verso (Damnatio Ad Bestia) 
+06. Burned To Serve As Nocturnal Light 
+07. Teutoburg (Ambush Of Varus) 
+08. Along The Appian Way 
+09. Once Were Romand 
+10. Evocatio: Temple Of Castor And Pollux
+
 
 ## Отношения с другими группами
 

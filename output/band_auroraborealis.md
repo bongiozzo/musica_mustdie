@@ -1,10 +1,75 @@
 # Aurora Borealis
 
-Дискография
-"Mansions Of Eternity" 1996, Death Metal
-"Praise the Archaic Lights Embrace" 1998, Death Metal
-"Northern Lights" 2000, Death Metal
-"Time, Unveiled" 2002, Death Metal
+
+
+## Дискография
+
+### "Mansions Of Eternity" 1996, Death Metal
+
+Crowned with Embalmment 
+Weighing of the Heart 
+Valley of the Kings 
+Slave to the Grave 
+Sixteenth Chamber 
+
+
+Recorded at: Morrisound Studios, Tampa, Florida
+Engineered and mixed by: Scott Burns, May 1996
+Cover Art by: Jay Marsh 
+Line-Up:
+   • Ron Vento: Vocals, Guitar, Bass Guitar
+   • Tony Laureano: Drums 
+
+### "Praise the Archaic Lights Embrace" 1998, Death Metal
+
+Offerings of Jade and Blood 
+A Gaze Into Everdark 
+In the Depths of a Labyrinth 
+Aggressive Dynasty 
+War of the Rings 
+For Your Comprehension 
+Constellations Embellished with Chaos 
+Calm Before 
+The Storm 
+
+
+Recorded at: Sound Lab, South Carolina
+Mastered at: IQ Studios
+Cover Art by: Jay Marsh 
+Line-Up:
+   • Ron Vento: Vocals & Guitars
+   • Derek Roddy: Drums
+   • Jason Ian-Vaughn Eckert: Bass 
+
+
+
+### "Northern Lights" 2000, Death Metal
+
+Thrice Told 
+Enter the Halls 
+Images in the Nightsky 
+Draco 
+Sky Dweller 
+Hydrah 
+Dream God 
+Distant 
+
+
+
+Recorded at: NightSky Studios
+Engineered and Produced by: Vento Oct-Dec
+Mastered at: IQ Studios "99"
+Cover Art by: Jay Marsh
+Line-Up:
+   • Ron Vento: Vocals & Guitars
+   • Derek Roddy: Drums 
+
+
+
+### "Time, Unveiled" 2002, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

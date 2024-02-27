@@ -1,7 +1,13 @@
 # Seeds, The
 
-Дискография
-"A Well Of Sound" 1967, Hard Rock
+
+
+## Дискография
+
+### "A Well Of Sound" 1967, Hard Rock
+
+
+
 
 ## Отношения с другими группами
 

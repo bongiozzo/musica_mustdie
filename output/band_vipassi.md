@@ -1,6 +1,9 @@
 # Vipassi
 
-Дискография
+instrumental prog from Australia
+
+## Дискография
+
 
 ## Отношения с другими группами
 

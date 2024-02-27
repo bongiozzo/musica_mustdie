@@ -1,15 +1,130 @@
 # Sanatorium
 
-Дискография
-"Subculture (MC - demo)" 1995, Death Metal
-"Autumn Shadows (MC - demo)" 1996, Death Metal
-"Autumn Shadows ( 7"EP)" 1997, Death Metal
-"Necrologue (MC - demo)" 1998, Death Metal
-"Arrival of the forgotten ones" 1999, Death Metal
-"Internal Womb Cannibalism" 2001, Death Metal
-"Fetus Rape MCD" 2003, Death Metal
-"Goresoaked reincarnation" 2003, Death Metal
-"Celebration Of Exhumation" 2004, Death Metal
+Death metal from Slovakia
+
+## Дискография
+
+### "Subculture (MC - demo)" 1995, Death Metal
+
+1. River og the black sun 
+2. Cold of the concrete monstrosity 
+3. In my eyes 
+4. Trilogy 
+5. Red moon 
+6. LD - 50 
+7. Always waiting for another day 
+
+Alky - drums, Warmo - guitars, Onecque - guitars, Martin - bass/vocals
+
+### "Autumn Shadows (MC - demo)" 1996, Death Metal
+
+1. Tears 
+2. In the dawn of time 
+3. Autumn shadows 
+4. Unreal 
+5. Strange primeval maze of souls 
+6. Sexual intercourse of demons 
+
+Alky - drums, Warmo - guitars, Onecque - guitars, Martin - bass/vocals
+
+Erebos productions
+
+### "Autumn Shadows ( 7"EP)" 1997, Death Metal
+
+1. Tears 
+2. In the dawn of time 
+3. Autumn shadows 
+4. Strange primeval maze of souls 
+5. Sexual intercourse of demons 
+
+Alky - drums, Warmo -guitars, Onecque - guitars, Martin - bass/vocals
+
+Erebos productions / View beyond records
+
+### "Necrologue (MC - demo)" 1998, Death Metal
+
+1. Necrologue written in forest 
+2. Bloody wounds 
+3. Desolated areas of forgotten pain 
+4. Cemetery of memories 
+5. Rivers of the black sun 
+6. &#268;. &#268;. K. &#268;. &#268; 
+
+Alky - drums, Warmo - guitars, Onecque - guitars, Martin - bass/vocals
+
+Erebos productions
+
+### "Arrival of the forgotten ones" 1999, Death Metal
+
+1. Throne of the undead 
+2. Necrologue written in forest 
+3. Race of the dimension unknown 
+4. Diseased awareness of reality 
+5. Cemetery of memories 
+6. guardians of deceitful dawn 
+7. Evolution of deacy 
+8. Autumn shadows 
+9. Red moon 
+10.Minulos&#357; 
+
+Milan - drums, Warmo - guitars, Onecque - guitars, Martin - bass/vocals
+
+Erebos productions / Dagdy Music
+
+### "Internal Womb Cannibalism" 2001, Death Metal
+
+1. Syptoms (intro) 
+2. Postmortal gorephobia 
+3. Killing 
+4. That cunts name is Heather 
+5. Intravenous ejaculation 
+6. Penis epidermis inflammation 
+7. The false prophet 
+8. Bovine spongiform encephalopathy 
+9. Dunwich morgue 
+10. Dead virgin whore 
+11. Internal womb cannibalism 
+12. Final goremageddon (outro) 
+
+Dzordz - drums, Onecque - guitars, Martin - bass/vocals, Prasiak - vocals
+
+Sanatorium's first CD recorded under the Forensick music. Cover artwork by Zig, guest lyrics by Matt Bishop (Lividity) and James Parks II (Prophecy).
+
+### "Fetus Rape MCD" 2003, Death Metal
+
+1. Oral fistfuck 
+2. Violent intercourse 
+3. Fetus rape 
+4. Goresoaked reincarnation 
+5. In capture of necrophile visions 
+6. Killing 
+
+Dzordz - drums, Rado - guitars, Onecque - guitars, Martin - bass/vocals
+
+Forensick music
+
+Mini CD released to support Sanatorium's european tour with Internal Suffering. Songs 01 - 03 are from their upcoming CD which will be released in autumn of 2003. Strictly limited to 1500 copies.
+
+### "Goresoaked reincarnation" 2003, Death Metal
+
+1. Intro 
+2. In capture of necrophile visions 
+3. Goresoaked reincarnation 
+4. Consumption of remnants of a miscarriage 
+5. Deeds of pedophile 
+6. Orgasm of 7 - year old girl reached by pneumatic drill 
+7. Purification of soul through disfiguration of body 
+8. Outro 
+9. Bastard saints /SINISTER cover/ 
+
+Dzordz - drums, Onecque - guitars, Martin - bass/vocals
+
+Sevared records
+
+### "Celebration Of Exhumation" 2004, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

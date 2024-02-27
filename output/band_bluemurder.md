@@ -1,9 +1,49 @@
 # Blue Murder
 
-Дискография
-"Blue Murder" 1989, Heavy Metal
-"Nothin' But Trouble" 1993, Heavy Metal
-"Screaming Blue Murder: Dedicated To Phil Lynott" 1994, Heavy Metal
+
+
+## Дискография
+
+### "Blue Murder" 1989, Heavy Metal
+
+01. Riot (6:23)
+02. Sex Child (6:00)
+03. Valley Of The Kings (7:53)
+04. Jelly Roll (4:46)
+05. Blue Murder (4:57)
+06. Out Of Love (6:45)
+07. Billy (4:13)
+08. Ptolemy (6:31)
+09. Black Hearted Woman (4:47)
+
+### "Nothin' But Trouble" 1993, Heavy Metal
+
+01. We All Fall Down
+02. Itchycoo Park
+03. Cry For Love
+04. Runaway
+05. Dance
+06. I'm On Fire
+07. Save My Love
+08. Love Child
+09. Shouldn't Have Let You Go
+10. I need An Angel
+11. She Knows
+12. Bye Bye (Japanese bonus track)
+
+### "Screaming Blue Murder: Dedicated To Phil Lynott" 1994, Heavy Metal
+
+01. Riot
+02. Cry For Love
+03. Cold Sweat
+04. Billy
+05. Save My Love
+06. Jelly Roll
+07. We All Fall Down
+08. Please Don't Leave Me
+09. Still Of The Night
+10. Dancin' In The Moonlight
+
 
 ## Отношения с другими группами
 

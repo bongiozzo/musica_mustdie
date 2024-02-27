@@ -1,7 +1,21 @@
 # Chaosstar
 
-Дискография
-"Lifetime" 2009, Progressive
+
+
+## Дискография
+
+### "Lifetime" 2009, Progressive
+
+1. Lifetime I - IV   
+2. Devil's Whisper   
+3. Hurricanes of Madness   
+4. Rebirth
+5. Lifetime V - XVIII   
+6. Dreams of Reality   
+7. On My Way   
+8. Lifetime XIX 
+
+
 
 ## Отношения с другими группами
 

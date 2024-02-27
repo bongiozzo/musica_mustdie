@@ -1,8 +1,39 @@
 # Cold Existence, The
 
-Дискография
-"The Essence" 2006, Melodic Death Metal
-"Sombre Gates" 2009, Melodic Death Metal
+
+
+## Дискография
+
+### "The Essence" 2006, Melodic Death Metal
+
+1. Contact	 
+2. The Essence	 
+3. Cynical World	 
+4. A Life is Fading	 
+5. The Cold Existence	 
+6. Fractured	 
+7. Shadows of the Past	 
+8. Fallen to Ashes	 
+9. From Ancient Stars	 
+10. Observation
+
+### "Sombre Gates" 2009, Melodic Death Metal
+
+1. Oracle	 
+2. Heretic	 
+3. Corruption	 
+4. Purgatory	 
+5. Ruins of Despair	 
+6. Apocalypse	 
+7. Spawn of Evil	 
+8. Crawling	 
+9. The Hellfire	 
+10. Madness	 
+11. Utopia	 
+12. Seeds of Aggression	 
+13. Forsaken	 
+14. Wrath of Sekhmet
+
 
 ## Отношения с другими группами
 

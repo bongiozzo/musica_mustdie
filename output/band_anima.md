@@ -1,9 +1,49 @@
 # Anima
 
-Дискография
-"Souls of the Decedents" 2006, Deathcore
-"The Daily Grind" 2008, Deathcore
-"Enter The Killzone" 2010, Deathcore
+
+
+## Дискография
+
+### "Souls of the Decedents" 2006, Deathcore
+
+1. Matyrdom     
+2. Souls of the decedents 
+3. Acoustics      
+4. My Existence    
+5. Hear Me Scream 
+6. Massacre     
+7. Achieve something better      
+8. Vastare 
+9. "13"      
+10. Outro  
+
+### "The Daily Grind" 2008, Deathcore
+
+1. Behind the Mask  03:37   
+2. There Is Something Vicious  03:29 
+3. Sitting in the Wardrobe  03:02   
+4. The Daily Grind  05:03  
+5. Dismembered  03:10 
+6. A Wrong Person to Trust In  04:54 
+7. The Interference  01:01  
+8. Isolated  04:08   
+9. Raveged by Disease  04:55 
+
+### "Enter The Killzone" 2010, Deathcore
+
+01. Intro
+02. Incarceration
+03. Loner's Reflection
+04. Cu(n)t & Twist
+05. The Man Eater
+06. Carnage Provoked
+07. Black Night
+08. The Omnipotent Torture King
+09. Welcome To Our Killzone
+10. Necromantica
+11. I Am Sick I Want To Kill
+12. XXXIII
+
 
 ## Отношения с другими группами
 

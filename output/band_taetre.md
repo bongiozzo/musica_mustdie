@@ -1,8 +1,33 @@
 # Taetre
 
-Дискография
-"The Art" 1998, Melodic Death Metal
-"Out Of Emotional Disorder" 1999, Melodic Death Metal
+
+
+## Дискография
+
+### "The Art" 1998, Melodic Death Metal
+
+01. My Lament
+02. Prince Of Many Faces
+03. The Art
+04. When Winter Came
+05. Lifeplague
+06. Labyrinth Of The Mind
+07. The Halls Have Eyes
+08. Into The Dawn
+
+### "Out Of Emotional Disorder" 1999, Melodic Death Metal
+
+01. Intro 
+02. Die With Me 
+03. The Bitter Withering 
+04. Your Illusion Unmasked 
+05. Poisoned (Hearts Black Soul)
+06. An Epitaph Carven
+07. Nightbreed 
+08. Departure Suicide
+09. Paint In Black 
+10. Outro
+
 
 ## Отношения с другими группами
 

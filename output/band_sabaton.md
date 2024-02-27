@@ -1,17 +1,303 @@
 # Sabaton
 
-Дискография
-"Primo Victoria" 2005, Heavy Metal
-"Attero Dominatus" 2006, Heavy Metal
-"Metalizer" 2007, Heavy Metal
-"The Art Of War" 2008, Heavy Metal
-"Coat of Arms" 2010, Heavy Metal
-"World War Live: Battle of the Baltic Sea [CD/DVD]" 2011, Heavy Metal
-"Carolus Rex (single)" 2012, Heavy Metal
-"Carolus Rex" 2012, Heavy Metal
-"To Hell and Back (single)" 2014, Heavy Metal
-"Heroes" 2014, Heavy Metal
-"The Last Stand" 2016, Heavy Metal
+
+
+## Дискография
+
+### "Primo Victoria" 2005, Heavy Metal
+
+1. Primo Victoria; 
+2. Reign Of Terror; 
+3. Panzer Battalion; 
+4. Wolfpack; 
+5. Counterstrike; 
+6. Stalingrad; 
+7. Into The Fire; 
+8. Purple Heart; 
+9. Metal Machine
+
+All songs written by SABATON
+Recorded and engineered by Tommy Tagtgren
+Recorded and mixed at Abyss Studio
+
+### "Attero Dominatus" 2006, Heavy Metal
+
+1. Attero Dominatus 03:43
+2. Nuclear Attack 04:10 
+3. Rise of Evil 08:19  
+4. In the Name of God 04:06  
+5. We Burn 02:55 
+6. Angels Calling 05:57  
+7. Back in Control 03:14  
+8. A Light in the Black 04:52
+9. Metal Crьe 03:42
+
+### "Metalizer" 2007, Heavy Metal
+
+Disc 1 
+1. Hellrider 03:42
+2. Thundergods 03:48  
+3. Metalizer 04:07 
+4. Shadows 03:29  
+5. Burn Your Crosses 05:09  
+6. 7734 03:42  
+7. Endless Nights 04:52  
+8. Hail to the King 03:39  
+9. Thunderstorm 03:09  
+10. Speeder 03:46  
+11. Masters of the World 04:02  
+Disc 2 
+1. Introduction 00:56  
+2. Hellrider 03:49 
+3. Endless Nights 04:50 
+4. Metalizer 04:26  
+5. Burn Your Crosses 05:23
+6. The Hammer Has Fallen 05:50
+7. Hail to the King 04:09 
+8. Shadows 03:33
+9. Thunderstorm 03:10
+10. Masters of the World 04:01
+11. Guten Nacht 01:53  
+12. Birds of War * 04:53 
+
+### "The Art Of War" 2008, Heavy Metal
+
+1. Sun Tzu Says 00:23  
+2. Ghost Division 03:51  
+3. The Art Of War 05:08 
+4. 40:1 04:10 
+5. Unbreakable 05:58 
+6. The Nature of Warfare 01:18
+7. Cliffs of Gallipoli 05:51
+8. Talvisota 03:32 
+9. Panzerkampf 05:15 
+10. Union (Slopes of St. Benedict) 04:05 
+11. The Price of a Mile 05:55 
+12. Firestorm 03:25
+13. A Secret 00:37 
+
+
+### "Coat of Arms" 2010, Heavy Metal
+
+1. Coat of Arms 03:35
+2. Midway 02:29
+3. Uprising 04:55
+4. Screaming Eagles 04:07
+5. The Final Solution 04:56
+6. Aces in Exile 04:22
+7. Saboteurs 03:15
+8. Wehrmacht 04:14
+9. The White Death 04:10
+10. Metal Ripper 03:50 
+
+### "World War Live: Battle of the Baltic Sea [CD/DVD]" 2011, Heavy Metal
+
+Disc 1
+1. The March to War (Intro)
+2. Ghost Division
+3. Uprising
+4. Aces in Exile
+5. Cliffs of Gallipoli
+6. White Death
+7. Swedish Pagans
+8. Wolfpack
+9. 40:1
+10. The Art of War
+11. Attero Dominatus
+12. The Price of a Mile
+13. Primo Victoria
+14. Metal Medley
+15. Dead Soldiers Waltz (Outro)	
+	 
+Disc 2
+1. Screaming Eagles
+2. Coat of Arms
+3. Into the Fire
+4. Talvisota
+5. Final Solution
+6. Back in Control
+7. Panzerkampf
+8. 7734
+9. Hellrider
+10. Panzer Battalion
+11. Rise of Evil
+12. 40:1
+
+### "Carolus Rex (single)" 2012, Heavy Metal
+
+1. Carolus Rex (English version) 04:57
+2. Carolus Rex (Swedish version) 04:55
+
+
+### "Carolus Rex" 2012, Heavy Metal
+
+1. Dominium Maris Baltici
+2. Lejonet fran Norden
+3. Gott Mit Uns
+4. En Livstid i Krig
+5. 1 6 4 8
+6. Karolinens bцn
+7. Carolus Rex
+8. Ett Slag Fargat Rott
+9. Poltava
+10. Konungens Likfard
+11. Ruina Imperii 
+
+
+Oskar Montelius, Rikard Sund&#233;n, Daniel Mullback and Daniel M&#255;hr all played on this album but had left Sabaton before it was released.
+ 
+The album is about the Swedish Empire. The well-known Swedish historian Bengt Liljegren helped the band with the lyrics on the theme.
+ 
+The English version has the Swedish titles translated:
+ 1. Dominium Maris Baltici
+ 2. The Lion from the North
+ 3. Gott mit uns
+ 4. A Lifetime of War
+ 5. 1648
+ 6. The Carolean's Prayer
+ 7. Carolus Rex
+ 8. Killing Ground
+ 9. Poltava
+ 10. Long Live the King
+ 11. Ruina Imperii
+ 
+The tracklist with all Swedish, German and Latin titles translated reads:
+ 1. Baltic Sea Dominion
+ 2. The Lion from the North
+ 3. God with Us
+ 4. A Lifetime of War
+ 5. 1648
+ 6. The Carolean's Prayer
+ 7. Carolus Rex
+ 8. Killing Ground
+ 9. Poltava
+ 10. Long Live the King
+ 11. Imperial Downfall
+ 
+The album will be available in at least four editions:
+ - one disc with Swedish lyrics (only available in Sweden)
+ - one disc with English lyrics
+ - two discs with both editions and different coverart. Disc 1 will be the English version and disc 2 the Swedish version. Disc 1 will also contain the following song:
+ 
+12. Twilight of the Thunder God (Amon Amarth cover)
+ 
+- limited mailorder edition with two discs as above, book and three bonus songs:
+ 
+12. Twilight of the Thunder God (Amon Amarth cover)
+ 13. In the Army Now (Status Quo cover)
+ 14. Feuer Frei! (Rammstein cover) 
+
+### "To Hell and Back (single)" 2014, Heavy Metal
+
+1. To Hell and Back 
+
+### "Heroes" 2014, Heavy Metal
+
+1. Night Witches  03:01    
+2. No Bullets Fly  03:37    
+3. Smoking Snakes  03:14    
+4. Inmate 4859  04:26    
+5. To Hell and Back  03:26   
+6. The Ballad of Bull  03:53    
+7. Resist and Bite  03:27    
+8. Soldier of 3 Armies  03:38    
+9. Far from the Fame  03:47  
+10. Hearts of Iron  04:28 
+
+
+The tracklists will have follow covers:
+
+ DIGI and US version Bonus tracks:
+ 11. 7734
+ 12. Man Of War
+
+ Digital only Bonus tracks:
+ 11. 7734
+ 12. Man Of War
+ 13. For Whom The Bell Tolls (METALLICA cover)
+
+ Japan Bonus tracks:
+ 11. 7734
+ 12. Man Of War
+ 13. En Hjдltes Vдg (RAUBTIER cover)
+
+ Japan – digital only Bonus tracks:
+ 11. 7734
+ 12. Man Of War
+ 13. En Hjдltes Vдg (RAUBTIER cover)
+ 14. For Whom The Bell Tolls (METALLICA cover)
+
+ Earbook:
+ CD 2 (bonus CD):
+ 01. 7734
+ 02. Man Of War
+ 03. En Hjдltes Vдg (RAUBTIER cover)
+ 04. For Whom The Bell Tolls (METALLICA cover)
+ 05. Out Of Control (BATTLE BEAST cover)
+
+ Released with two covers. Left: Jewelcase and vinyl. Right: Digipak. 
+
+### "The Last Stand" 2016, Heavy Metal
+
+Disc 1 (CD)  
+1. Sparta  04:26  
+2. Last Dying Breath  03:26   
+3. Blood of Bannockburn  02:57   
+4. Diary of an Unknown Soldier  00:51   
+5. The Lost Battalion  03:23   
+6. Rorke's Drift  03:28   
+7. The Last Stand  03:58   
+8. Hill 3234  03:31   
+9. Shiroyama  03:36  
+10. Winged Hussars  03:53   
+11. The Last Battle  03:12   
+12. Camouflage  03:56  
+13. All Guns Blazing (Judas Priest cover) 03:58   
+  
+Disc 2 (CD)  
+1. The March to War  
+2. Ghost Division  
+3. Far from the Fame 
+4. Uprising  
+5. Midway  
+6. Gott mit uns  
+7. Resist and Bite 
+8. Wolfpack  
+9. Dominium Maris Baltici  
+10. Carolus Rex  
+11. Swedish Pagans 
+12. Soldier of 3 Armies 
+13. Attero Dominatus 
+14. The Art of War  
+15. Wind of Change  
+16. To Hell and Back 
+17. Night Witches  
+18. Primo Victoria  
+19. Metal Crue      
+  
+Disc 3 (DVD)  
+1. The March to War 
+2. Ghost Division 
+3. Far from the Fame  
+4. Uprising  
+5. Midway  
+6. Gott mit uns 
+7. Resist and Bite 
+8. Wolfpack  
+9. Dominium Maris Baltici  
+10. Carolus Rex  
+11. Swedish Pagans 
+12. Soldier of 3 Armies  
+13. Attero Dominatus  
+14. The Art of War  
+15. Wind of Change 
+16. To Hell and Back 
+17. Night Witches 
+18. Primo Victoria  
+19. Metal Crue  
+
+Bonus CD and DVD are recorded live at Stereolux, Nantes (France).
+
 
 ## Отношения с другими группами
 

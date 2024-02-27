@@ -1,8 +1,45 @@
 # Public Enemy
 
-Дискография
-"Fear Of A Black Planet" 1990, Rap Metal
-"Apocalypse 91...The Enemy Strykes Black" 1991, Rap Metal
+
+
+## Дискография
+
+### "Fear Of A Black Planet" 1990, Rap Metal
+
+1.  Contract On The World Love Jam (Instr.)
+2.  Brothers Gonna Work It Out
+3.  911 Is A Joke
+4.  Incident At 66.6 FM (Instr.)
+5.  Welcome To The Terrordome
+6.  Meet The G That Killed Me
+7.  Pollywanacraka
+8.  Anti-Nigger Machine
+9.  Birn Hollywood Birn
+10.Power To The People
+11.Who Stole The Soul ?
+12.Fear Of A Black Planet
+13.Revolutuionary Generation
+14.Reggie Jax
+
+(P)c 1990
+
+### "Apocalypse 91...The Enemy Strykes Black" 1991, Rap Metal
+
+1.  Lost At Birth
+2.  Rebirth
+3.  Nighttrain
+4.  Can't Truss It
+5.  I Don't Wanna Be Called Yo Niga
+6.  How To Kill A Radio Consultant
+7.  By The Time I Get To Arizona
+8.  Move
+9.  1 Million Bottlebags
+10.More News At 11
+11.Shut FM Down
+12.Bring The Noize (With ANTHRAX))
+
+(P)c 1991
+
 
 ## Отношения с другими группами
 

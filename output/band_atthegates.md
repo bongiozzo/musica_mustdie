@@ -1,15 +1,275 @@
 # At the Gates
 
-Дискография
-"Gardens Of Grief (EP)" 1991, Death Metal
-"The Red In The Sky Is Ours" 1992, Death Metal
-"With Fear I Kiss The Burning Darkness" 1993, Death Metal
-"Terminal Spirit Disease" 1994, Melodic Death Metal
-"Slaughter Of The Soul" 1995, Melodic Death Metal
-"Suicidal Final Art" 2001, Melodic Death Metal
-"The Flames Of The End [3 DVD]" 2010, Melodic Death Metal
-"Purgatory Unleashed - Live at Wacken" 2010, Melodic Death Metal
-"At War With Reality" 2014, Melodic Death Metal
+
+
+## Дискография
+
+### "Gardens Of Grief (EP)" 1991, Death Metal
+
+Souls of the Evil Departed 
+At the Gates 
+All Life Ends 
+City of Screaming Statues
+
+### "The Red In The Sky Is Ours" 1992, Death Metal
+
+1. The Red In The Sky Is Ours/
+   The Season To Come
+2. Kingdom Gone
+3. Through Gardens Of Grief
+4. Within
+5. Windows
+6. Claws Of Laughter Dead
+7. Neverwhere
+8. The Scar
+9. Night Comes, Blood Black
+10.City Of Screaming Statues
+
+ Tony - Bass
+ Tomas - Vocals
+ Anders - Guitars
+ Adrian - Drums
+ Jesper - Violin
+ Alf - Guitars
+
+All Songs By AT THE GATES.
+Produced By AT THE GATES.
+
+(p) 1992 PEACEVILLE Records
+(c) 1992 VILE MUSIC Records
+
+### "With Fear I Kiss The Burning Darkness" 1993, Death Metal
+
+1. Beyond Good And Evil
+2. Raped By Light Of Christ
+3. The Break Of Autumn
+4. Non-Divine
+5. Primal Breath
+6. The Architects
+7. Stardrowned
+8. Blood Of The Sunsets
+9. The Burning Darkness
+10.Ever-Opening Flower
+11.Through The Red
+
+ Tomas Lindberg - Vocals
+ Anders Bjorler - Guitars
+ Martin Larsson - Guitars
+ Jonas Bjorler - Bass
+ Adrian Erlandsson - Drums
+
+All Songs By AT THE GATES
+Produced By AT THE GATES & Thomas Skogsberg
+Recorded In April 1993 At Sunlight Studios,
+Sweden By Thomas Skogsberg, Lars Linden &
+Fred Estby
+Back Vocals By Thomas & Matti Karki (DISMEMBER)
+
+(p) 1993 PEACEVILLE Records
+(c) 1993 VILE MUSIC Records
+
+### "Terminal Spirit Disease" 1994, Melodic Death Metal
+
+1. The Swarm
+2. Terminal Spirit Disease
+3. And The World Returned
+4. Forever Blind
+5. The Fevered Circle
+6. The Beautiful Wound
+7. All Life Ends (Live)
+8. The Burning Darkness (Live)
+9. Kingdom Gone (Live)
+
+ Anders Bjorler - Guitars
+ Tomas Lindberg - Vocals
+ Martin Larsson - Guitar
+ Jonas Bjorler - Bass
+ Adrian Erlandsson - Drums
+
+All songs written by AT THE GATES
+Produced by Fredrik Nordstorm and AT THE GATES
+Engineered by Fredrik Nordstorm
+Co-Engineered by Johan Carlsson
+Recorded in Studio Fredman, Gottenburg,Feb. 1994
+
+(p)(c) 1994 PEACEVILLE Records
+
+### "Slaughter Of The Soul" 1995, Melodic Death Metal
+
+1. Blinded By Fear
+2. Slaughter Of The Soul
+3. Cold *
+4. Under A Serpent Sun
+5. Into The Dead Sky
+6. Suicide Nation
+7. World Of Lies
+8. Into Others
+9. Nausea
+10.Need
+11.The Flames Of The End
+
+All Songs By AT THE GATES.
+Produced By Fredrik Nordstrom.
+Co-Produced By AT THE GATES.
+Recorded & Mixed At Studio Fredman, Gothenburg By Noel Summerville.
+
+Anders Bjorler - Lead Guitar
+Tomas Lindberg - Vocals
+Martin Larsson - Rhythm Guitar
+Jonas Bjorler - Bass
+Adrian Erlandsson - Drums
+Lead Guitar On * By Andy LaRocque
+(KING DIAMOND).
+
+(P)&(C) 1995 EARACHE Records
+
+### "Suicidal Final Art" 2001, Melodic Death Metal
+
+The ultimate At The Gates collection of album and demo tracks: SUICIDAL FINAL ART 
+This release also features TWO encoded videoclips on every disc, namely:
+the burning darkness and terminal spirit disease 
++ Liner notes from Thomas Lindberg, and a bunch of old pictures. 
+
+tracklisting:
+
+1. the red in the sky is ours (from the album "the red in the sky is ours")
+2. kingdom gone (from the album "the red in the sky is ours")
+3. windows (from the album "the red in the sky is ours")
+4. ever-opening flower (demo version)
+5. the architects (demo version)
+6. raped by the light of christ (from the album "the burning darkness")
+7. primal breath (from the album "the burning darkness")
+8. blood of the sunsets (from the album "the burning darkness")
+9. the burning darkness (from the album "the burning darkness")
+10. the swarm (from the album "terminal spirit disease")
+11. terminal spirit disease (from the album "terminal spirit disease")
+12. forever blind (from the album "terminal spirit disease")
+13. the beautiful wound (from the album "terminal spirit disease")
+14. blinded by fear (from the album "slaughter of the soul")
+15. slaughter of the soul (from the album "slaughter of the soul")
++
+16. terminal spirit disease (videoclip)
+17. the burning darkness (videoclip)
+
+### "The Flames Of The End [3 DVD]" 2010, Melodic Death Metal
+
+Housed in a deluxe six-panel DVD digipak with a 40-page colour booklet, THE
+FLAMES OF THE END will include three indispensable DVDs:
+
+Disc 1 'Under A Serpent Sun - The Story of At The Gates' - a brand new
+documentary with a running time of over 2 hours, detailing the band's entire
+career with exclusive interviews and footage, filmed and directed by guitarist
+Anders Bjorler.
+01. Introduction & Opening Titles
+02. Reunion: From Vision to Reality
+03. The Early Years Part 1: From Nursery Rhymes to Death Metal
+04. The Early Years Part 2: The Schillerska / Billdal Connection
+05. The Early Years Part 3: The Grotesque / At the Gates Transition
+06. The Early Years Part 4: Creativity Unbound
+07. Gardens of Grief
+08. The Red in the Sky is Ours
+09. Reunion: Sweden Rock 2008
+10. With Fear I Kiss the Burning Darkness
+11. Exit Alf - Enter Martin
+12. Reunion: Graspop 2008
+13. Terminal Spirit Disease
+14. Reunion: Ruis Rock 2008
+15. Slaughter of the Soul
+16. Reunion: America re-visited
+17. Reunion: San Antonio, TX 2008
+18. Exit Anders
+19. Reunion: Bloodstock 2008
+20. Reunion: The Past is Alive
+21. Beyond the Gates
+22. Credits
+23. Interview with Tomas in Chicago 1996 (Deleted Scenes)
+24. Adrian, The Prankster (Deleted Scenes)
+25. The Tokyo Experience (Deleted Scenes)
+26. Elvis Has Left the Building (Deleted Scenes)
+27. European Mini-Tour with Therion 1992 (Deleted Scenes)
+28. Gods of Metal, Italy 2008 (Deleted Scenes)
+29. Tompa cleaning out the trailer (Deleted Scenes)
+30. Kingdom Gone (Music Video)
+31. The Burning Darkness (Music Video)
+32. Terminal Spirit Disease (Music Video)
+33. Blinded By Fear (Music Video)
+
+Disc 2 'Purgatory Unleashed - Live at Wacken' - a 75-minute live set from the
+band's reunion set at the Wacken festival in 2008 in front of 100,000
+people.
+01. Intro (backstage)
+02. Slaughter of the Soul
+03. Cold
+04. Terminal Spirit Disease
+05. Raped By the Light of Christ
+06. Under A Serpent Sun
+07. Windows
+08. World Of Lies
+09. The Burning Darkness
+10. The Swarm
+11. Forever Blind
+12. Nausea
+13. The Beautiful Wound
+14. Unto Others
+15. All Life Ends
+16. Need
+17. Blinded By Fear
+18. Suicide Nation
+19. Kingdom Gone
+
+Disc 3 'Only the Dead Are Smiling' - 26 rare and archived live performances of
+the band playing in locations around the globe from 1991 - 2008.
+01. Slaughter of the Soul (Wetlands, New York, USA March 7, 1996)
+02. Cold (Wetlands, New York, USA March 7, 1996)
+03. The Swarm (Wetlands, New York, USA March 7, 1996)
+04. Blinded by Fear (Thirsty Whale, Rivergrove, IL, USA, March 10, 1996)
+05. Suicide Nation (Thirsty Whale, Rivergrove, IL, USA, March 10, 1996)
+06. Under a Serpent Sun (Thirsty Whale, Rivergrove, IL, USA, March 10, 1996)
+07. Suicide Nation (Ruisrock, Turku, Finland, July 4, 2008)
+08. Raped by the Light of Christ (Ruisrock, Turku, Finland, July 4, 2008)
+09. Windows (Ruisrock, Turku, Finland, July 4, 2008)
+10. World of Lies (Ruisrock, Turku, Finland, July 4, 2008)
+11. Nausea (Ruisrock, Turku, Finland, July 4, 2008)
+12. Slaughter of the Soul (Graspop Metal Meeting, Dessel, Belgium, June 29,
+2008)
+13. Cold (Graspop Metal Meeting, Dessel, Belgium, June 29, 2008)
+14. Terminal Spirit Disease (Graspop Metal Meeting, Dessel, Belgium, June 29,
+2008)
+15. The Beautiful Wound (Graspop Metal Meeting, Dessel, Belgium, June 29, 2008)
+16. The Burning Darkness (Witchwood, Manchester UK, February 5, 1996)
+17. Through Gardens of Grief (Factory, Eskilstuna, Sweden, April 20, 1991)
+18. All Life Ends (Factory, Eskilstuna, Sweden, April 20, 1991)
+19. City of Screaming Statues (Factory, Eskilstuna, Sweden, April 20, 1991)
+20. Slaughter of the Soul (Studio Coast, Tokyo, Japan, May 11, 2008)
+21. Cold (Studio Coast, Tokyo, Japan, May 11, 2008)
+22. Under a Serpent Sun (Studio Coast, Tokyo, Japan, May 11, 2008)
+23. Slaughter of the Soul (Irving Plaza, New York, USA, July 9, 2008)
+24. Need (The Abyss, Houston, TX, USA, March 17, 1996)
+25. Neverwhere (Gagarin 205, Athens, Greece, September 21, 2008)
+26. Kingdom Gone (Gagarin 205, Athens, Greece, September 21, 2008)
+
+### "Purgatory Unleashed - Live at Wacken" 2010, Melodic Death Metal
+
+
+
+### "At War With Reality" 2014, Melodic Death Metal
+
+1. El Altar Del Dios Desconocido  01:06   
+2. Death and the Labyrinth  02:32  
+3. At War with Reality  03:08    
+4. The Circular Ruins  04:27    
+5. Heroes and Tombs  03:59
+6. The Conspiracy of the Blind  03:18 
+7. Order from Chaos  03:25    
+8. The Book of Sand (The Abomination)  04:27   
+9. The Head of the Hydra  03:38    
+10. City of Mirrors  02:05   
+11. Eater of Gods  03:50    
+12. Upon Pillars of Dust  02:39    
+13. The Night Eternal  05:42 
+
+
+
 
 ## Отношения с другими группами
 

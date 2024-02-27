@@ -1,8 +1,28 @@
 # Arkenstone
 
-Дискография
-"Arkenstone" 2002, Black Metal
-"Hymns to Our Fatherland" 2006, Black Metal
+
+
+## Дискография
+
+### "Arkenstone" 2002, Black Metal
+
+1. Ritual (Wolf Spirit)	 
+2. Viriato (Lusitanian Warrior)	 
+3. The Battle	 
+4. Return to Isengard	 
+5. Ancient Tales	 
+6. In the Cold Lands	 
+7. Arkenstone
+
+### "Hymns to Our Fatherland" 2006, Black Metal
+
+1. Hymns to Our Fatherland
+2. Emperor, The Dark Lord	
+3. From the Gates...
+4. The Wind Stands Silent (Judas Iscariot cover)	 
+5. Battle Lands
+6. The North Wind
+
 
 ## Отношения с другими группами
 

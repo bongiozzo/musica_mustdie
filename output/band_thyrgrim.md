@@ -1,9 +1,44 @@
 # Thyrgrim
 
-Дискография
-"Winterhall" 2006, Black Metal
-"Niedergang" 2008, Black Metal
-"Monument" 2011, Black Metal
+
+
+## Дискография
+
+### "Winterhall" 2006, Black Metal
+
+1. Es erwacht  03:35   
+2. Falkenflug  05:14   
+3. K&#228;ltetot  05:29   
+4. Schrei wenn du kannst  03:18 
+5. Wenn es schneit  06:23
+6. In den W&#228;ldern  07:09  
+7. Heimat  04:20   
+8. Im Geisteswahn  04:07 
+9. Aus alten Tagen  04:58  
+10. Am Vorabend der Schlacht  07:00 
+
+### "Niedergang" 2008, Black Metal
+
+1. Mit Blut Geschrieben  03:57   
+2. Besessen  05:23   
+3. Dorthin Wo Alles Begann  08:02 
+4. Des Schmerzes Reiz  04:04 
+5. Niedergang  05:30   
+6. Aus Ruinen  06:11  
+7. Hass  03:29   
+8. In Die Einsamkeit  07:12 
+
+### "Monument" 2011, Black Metal
+
+1. Intro (Sturmgesang Part 1)  03:12  
+2. Sturmgesang  04:45 
+3. Zwielicht  06:27  
+4. Des Lebens Zerfall  05:22   
+5. Bare Doden  07:32 
+6. Endzeit  03:42 
+7. Zeit des Abschieds  08:37
+8. Bevor ich gehe (Outro)  05:52   
+
 
 ## Отношения с другими группами
 

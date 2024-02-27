@@ -1,7 +1,24 @@
 # Damned Nation
 
-Дискография
-"Sign Of Madness" 2004, Hard Rock
+
+
+## Дискография
+
+### "Sign Of Madness" 2004, Hard Rock
+
+Innocence 
+Stranded 
+Wall Of Illusion 
+Consequences 
+Bringer Of Light 
+Sign Of Madness 
+Facing The Enemy 
+Human Sacrifice 
+Still Alive 
+Wake Up 
+Slave 
+Going Blind
+
 
 ## Отношения с другими группами
 

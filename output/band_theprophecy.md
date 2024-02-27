@@ -1,9 +1,39 @@
 # The Prophecy
 
-Дискография
-"Ashes" 2003, Gothic
-"Revelations" 2007, Gothic
-"Into The Light" 2009, Gothic
+
+
+## Дискография
+
+### "Ashes" 2003, Gothic
+
+1. Ashes 07:36
+2. The Killing Fields 08:37
+3. The Prophecy 09:25
+4. Dawn 08:09 
+5. Blackened Desire 04:53
+6. Till Light Enshrouds 09:57 
+
+### "Revelations" 2007, Gothic
+
+1. Odyssey 07:04 
+2. Rivers 08:28
+3. Cascades 11:03
+4. Willow's Hope 06:57
+5. Revelations 09:56
+6. Of Darkness 10:08
+7. Broken 14:00 
+
+### "Into The Light" 2009, Gothic
+
+1. Into The Light 06:57  
+2. Don't Forget 04:24  
+3. Delusion 05:36  
+4. Echoes 09:45  
+5. Belief Means Nothing 06:06  
+6. All Is Lost 05:10  
+7. Waters Deep 10:44  
+8. Hope 08:56 
+
 
 ## Отношения с другими группами
 

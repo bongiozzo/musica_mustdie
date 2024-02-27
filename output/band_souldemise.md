@@ -1,9 +1,54 @@
 # Soul Demise
 
-Дискография
-"Farewell To The Flesh" 1998, Death Metal
-"Beyond Human Perception" 2000, Death Metal
-"In Vain" 2003, Death Metal
+
+
+## Дискография
+
+### "Farewell To The Flesh" 1998, Death Metal
+
+1. Eternity
+2. Accomplishment
+3. Deathwish
+4. Slowly We Rot 
+
+### "Beyond Human Perception" 2000, Death Metal
+
+1. Menace
+2. Obedience To Authority
+3. Soul Demise
+4. End Of All Life
+5. Concealed Malignancy
+6. Retribution
+7. Christian Filth
+8. Until Eternity
+9. Accomplishment
+10. Dawn For The Living
+11. Crossing The Threshold
+
+
+### "In Vain" 2003, Death Metal
+
+1. In Vain
+2. Naive
+3. Trapped in a body
+4. Inside my emptiness
+5. Amnesia
+6. Cancer
+7. Darkness within
+8. Eventually we will die
+9. Towards the gate
+10. Downwards to deliverance
+11. Passing away
+
+
+Roman Zimmerhackel - Vocals 
+Andreas Schuhmeier - Guitars 
+Roland Jahoda - Drums
+Alex Hagenauer - Guitars
+Andreas Bradl - Bass  
+
+
+
 
 ## Отношения с другими группами
 

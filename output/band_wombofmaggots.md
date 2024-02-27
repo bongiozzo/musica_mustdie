@@ -1,7 +1,13 @@
 # Womb Of Maggots
 
-Дискография
-"Life Odium" 2002, Thrash
+
+
+## Дискография
+
+### "Life Odium" 2002, Thrash
+
+
+
 
 ## Отношения с другими группами
 

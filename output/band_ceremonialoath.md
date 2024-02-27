@@ -1,9 +1,69 @@
 # Ceremonial Oath
 
-Дискография
-"The Lost Name Of God" 1992, Melodic Death Metal
-"The Book Of Truth" 1993, Melodic Death Metal
-"Carpet" 1995, Melodic Death Metal
+
+
+## Дискография
+
+### "The Lost Name Of God" 1992, Melodic Death Metal
+
+The Lost name Of God
+For I have Sinned - The Praise
+
+### "The Book Of Truth" 1993, Melodic Death Metal
+
+Prologue: Sworn To Avenge
+Chapter I: The Invocator
+Chapter II: For I Have Sinned The Praise
+Chapter III: Enthroned
+Chapter IV: Only Evil Prevails
+Chapter V: Thunderworld
+Chapter VI: Lords Of Twilight
+Chapter VII: Ceremonial Oath
+Chapter VIII: The Lost Name Of God
+Chapter IX: The Book Of Truth
+Chapter X: Hellbound
+
+ Oscar Dronjak - Lead Guitar & Vocals
+ Anders Iwers - Lead Guitar
+ Jesper Stromblad - Bass Guitar
+ Markus Nordsberg - Drums
+
+Keyboard Effects By Fredrik Nordstrom &
+Oscar Dronjak
+All Songs Written By CEREMONIAL OATH
+Engineered & Produced By Fredrik Nordstrom,
+Ingmar Gunnard & CEREMONIAL OATH
+Recorded & Mixed At Rainy Day Studio Fredman,
+September 1992
+
+(p)&(c) 1993 MODERN PRIMITIVE
+
+### "Carpet" 1995, Melodic Death Metal
+
+ 1. The Day I Buried
+ 2. Dream Song
+ 3. Carpet
+ 4. The Shadowed End
+ 5. One Of Us / Nightshade
+ 6. Immortalized
+ 7. Hallowed Be Thy Name *
+
+All songs written by CEREMONIAL
+OATH
+except * written by Steve Harris
+Produced by CEREMONIAL OATH
+Engineered and mixed by Fredrik
+Nordstrom.
+Recorded at Studio Fredman
+
+ Anders Friden - Vocals
+ Anders lwers - Guitars
+ Thomas Johansson - Bass
+ Markus Nordberg - drums
+ Mikael Andersson - Guitars
+
+ (p)(c) 1996 BLACK SUN Records
+
 
 ## Отношения с другими группами
 

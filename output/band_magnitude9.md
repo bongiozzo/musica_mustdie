@@ -1,8 +1,30 @@
 # Magnitude 9
 
-Дискография
-"Chaos To Control" 1998, Heavy Metal
-"Decoding The Soul" 2004, Progressive
+Prog-metal
+
+## Дискография
+
+### "Chaos To Control" 1998, Heavy Metal
+
+Track Listing
+1. Another World
+2. Don't Say
+3. After Tomorrow
+4. Y2K
+5. Voices
+6. Into The Sun
+7. Keeper Of Your Soul
+8. Secrets Within
+9. Writings
+10. End Of Time
+11. Man On The Silver Mountain (USA version only)
+
+Rob Johnson (Saddleback Shark), vocalist Corey Brown (Psyco Drama), bassist Kevin Chown (Artension), keyboardist Joseph Anastacio Glean, and John Homan (Saddleback Shark), on drums
+
+### "Decoding The Soul" 2004, Progressive
+
+
+
 
 ## Отношения с другими группами
 

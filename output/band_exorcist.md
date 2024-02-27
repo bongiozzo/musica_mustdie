@@ -1,7 +1,36 @@
 # Exorcist
 
-Дискография
-"Nightmare Theatre" 1986, Speed Metal
+Old Melodic Speed Metal Band (USA)
+
+## Дискография
+
+### "Nightmare Theatre" 1986, Speed Metal
+
+#01. Black Mass
+#02. The Invocation
+#03. Burnt Offerings
+#04. The Hex
+#05. Possessed
+#06. Call for the Exorcist
+#07. Death by Bewitchment
+#08. The Trial
+#09. Execution of the Witches
+#10. Consuming Flames of Redemption
+#11. Megawatt Mayhem
+#12. Riding to Hell
+#13. Queen of the Dead
+#14. Lucifer's Lament
+#15. The Banishment
+
+
+Damian Rath - Vocals
+Geoff Fontaine - Drums
+Jamie Locke - Bass
+Marc Dorian - Guitar
+
+Info:
+Re-released in 2000 on CD. Original version is only available on 12 inch vinyl.
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,25 @@
 # Die Verbannten Kinder Evas
 
-Дискография
-"In Darkness Let Me Dwell" 1999, Gothic
-"Dusk And Void Became Alive" 2006, Gothic
+
+
+## Дискография
+
+### "In Darkness Let Me Dwell" 1999, Gothic
+
+
+
+### "Dusk And Void Became Alive" 2006, Gothic
+
+01. Dusk And Void Became Alive
+02. Mistrust
+03. Winters Night
+04. Unquiet Thoughts
+05. Cease To Breath
+06. Praise Blindness Eyes.
+07. Virtues Cloak
+08. Moon Muse
+09. Catharsis
+
 
 ## Отношения с другими группами
 

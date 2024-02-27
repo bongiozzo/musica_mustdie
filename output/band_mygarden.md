@@ -1,7 +1,34 @@
 # My Garden
 
-Дискография
-"Neon Lights" 1996, Death Doom
+
+
+## Дискография
+
+### "Neon Lights" 1996, Death Doom
+
+1. Neon Lights
+2. I Wandered Lonely As A Cloud
+3. Captive Hands
+4. Lost In Blue Aegean
+
+Serhat Bektas - Drums
+Burcu Karli - Female Vocals, Keyboards
+Gokhan Baykal - Guitars
+Can Agar - Vocals
+Alper T. Dagli - Guitars
+
+Produced by Cenk Acokgoz and MY GARDEN.
+
+Recorded in A-B Studios.
+Mixed by Cenk Acokgoz.
+Cover concept by MY GARDEN, Torodd Fuglesteg.
+All lyrics by MY GARDEN, exept 2, 
+poetry of William Wordsworth.
+All music by MY GARDEN, except 1 by Oytun and MY GARDEN.
+All clear male vocals by Oguz Divilioglu (Necrosis).
+
+(p)(c) 1996 ARCTIC SERENADES  Sere 006
+
 
 ## Отношения с другими группами
 

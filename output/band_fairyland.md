@@ -1,9 +1,70 @@
 # Fairyland
 
-Дискография
-"Of Wars In Osyrhia" 2003, Power Metal
-"The Fall Of An Empire" 2006, Power Metal
-"Score To A New Beginning" 2009, Power Metal
+fantasy power metal from France
+
+## Дискография
+
+### "Of Wars In Osyrhia" 2003, Power Metal
+
+01 - And So Came The Storm
+02 - Ride With The Sun 
+03 - Doryan The Enlighted 
+04 - The Story Teller 
+05 - Fight For Your King 
+06 - On The Path To Fury 
+07 - Rebirth 
+08 - The FellowShip 
+09 - A Dark Omen 
+10 - The Army Of The White Mountains 
+11 - Of Wars In Osyrhia 
+
+
+All songs by Philippe Giordana and Willdric Lievin 
+Produced by Tommy Hansen
+
+Elisa C. Martin - lead vocals
+Philippe Giordana - keyboards & back vocals
+Willdric Lievin - drums & back vocals
+Anthony Parker - guitars & back vocals
+
+
+
+### "The Fall Of An Empire" 2006, Power Metal
+
+01. Endgame
+02. The Fall Of An Empire
+03. Lost In The Dark Lands
+04. Slaves Forlorn
+05. The Awakening
+06. Eldanie Uelle
+07. Clanner Of The Light
+08. To The Havenrod
+09. The Walls Of Laemnil
+10. Anmorkenta
+11. In Duna
+12. The Story Remains
+13. Look Into Lost Years
+
+Keyboards: Philippe Giordana
+Guitars: Anthony Parker
+Vocals: Max Leclerqc
+Drums: Piwee
+Bass Guitar: Thomas Cesario
+
+### "Score To A New Beginning" 2009, Power Metal
+
+1. Opening Credits 01:29  
+2. Across The Endless Sea Part II 05:18  
+3. Assault On The Shore 05:09  
+4. Leviathan 06:08  
+5. A Soldier's Letter 05:26  
+6. Godsent 04:55  
+7. At The Gates Of Morken 04:57  
+8. Rise Of The Giants 04:18  
+9. Score To A New Beginning 09:00  
+10. End Credits 03:09 
+
+
 
 ## Отношения с другими группами
 

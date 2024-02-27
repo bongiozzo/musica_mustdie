@@ -1,11 +1,83 @@
 # Axe
 
-Дискография
-"Axe" 1979, Hard Rock
-"Offering" 1981, Hard Rock
-"Nemesis" 1983, Hard Rock
-"The Crown" 2000, Hard Rock
-"V" 2000, Hard Rock
+Melodic Hard
+
+## Дискография
+
+### "Axe" 1979, Hard Rock
+
+1.   Life's Just an Illusion (Riley) 
+    2.   Hang On 
+    3.   Sympathize 
+    4.   Home Come I Love You 
+    5.   Forever (Barth) 
+    6.   Back on the Streets (Barth) 
+    7.   Doin' the Best I Can 
+    8.   Your Our of Line 
+    9.   Battles (Barth)
+
+### "Offering" 1981, Hard Rock
+
+1.   Rock 'N' Roll Party in the Streets (Barth) - 3:29 
+    2.   Video Inspiration (Barth) - 2:48 
+    3.   Steal Another Fantasy (Barth) - 4:40 
+    4.   Jennifer (Barth/Mueller/Osborne/Riley) - 3:56 
+    5.   I Got the Fire (Montrose) - 3:19 
+    6.   Burn the City Down (Barth) - 4:45 
+    7.   Now or Never (Barth) - 3:51 
+    8.   Holdin' On (Barth/Mueller/Osborne/Riley) - 2:54 
+    9.   Silent Soldiers (Barth) - 6:00
+
+### "Nemesis" 1983, Hard Rock
+
+1.   Heat in the Night (Barth/Osborne) - 2:53 
+    2.   Young Hearts (Barth) - 2:50 
+    3.   All Through the Night (Barth/Osborne) - 3:03 
+    4.   I Think You'll Remember Tonight (Barth/Osborne) - 3:54 
+    5.   She's Had the Power (Barth/Osborne/Spires) - 3:07 
+    6.   Girls, Girls, Girls (Barth/Osborne) - 2:50 
+    7.   Eagle Flies Alone (Barth/Osborne) - 3:27 
+    8.   Keep Playing That Rock 'N' Roll (Winter) - 3:16 
+    9.   Foolin' Your Mama Again (Barth/Osborne/Spires) - 2:56 
+    10.   Let the Music Come Back (Barth/Mueller/Osborne/Riley) - 4:37 
+    11.   Masquerade (Barth) - 4:45 
+    12.   Midnight (Barth) - 3:31
+
+### "The Crown" 2000, Hard Rock
+
+1.   The Crown (Barth/Borman/Harris) - 4:44 
+    2.   Together We Fly (Together We Fall) (Barth/Borman/Harris) - 6:16 
+    3.   Perlude (Master) - :42 
+    4.   Fire and Water (Anderson/Slamer) - 5:58 
+    5.   Restless Angel (Barth/Harris) - 6:55 
+    6.   Children's Memory (Barth/Borman/Harris) - 5:21 
+    7.   Good Times (Barth/Borman/Harris) - 6:23 
+    8.   Torturous Game (Barth/Harris) - 6:31 
+    9.   Sunshine Again (Mario's Song) (Barth/Harris) - 5:37 
+    10.   Foolish Deception (Barth/Harris) - 4:48 
+    11.   Love Changes Everything - 5:49 
+
+
+Bobby Barth Guitars, Vocals, Keyboards 
+Bob Harris Vocals, Keyboards 
+Blake Eberhard Bass, Vocals 
+Edgar Riley Jr. Keyboards, Vocals 
+Christian Teele Drums, Percussion 
+Danny Masters Guitars
+
+### "V" 2000, Hard Rock
+
+1.   Intro - :30 
+    2.   Magic (In Our Eyes) (Barth) - 4:50 
+    3.   Heroes and Legends (Barth/Gilchrist/Harris) - 5:04 
+    4.   Sting of the Rain (Barth) - 5:40 
+    5.   Life in the Furnace (Barth/Harris) - 5:58 
+    6.   Burn Me Once (Burn Me Twice) (Barth) - 6:25 
+    7.   Where There's Smoke There's Fire (Barth/Nazarian/Silverstein) - 4:07 
+    8.   Holding on to the Night (Silverstein/Stober) - 5:34 
+    9.   Anyplace on This Highway (Is Home) (Barth/Harris) - 5:09 
+    10.   Battles (Barth) - 5:53
+
 
 ## Отношения с другими группами
 

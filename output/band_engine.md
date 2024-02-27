@@ -1,7 +1,21 @@
 # Engine
 
-Дискография
-"Engine" 1999, Progressive
+
+
+## Дискография
+
+### "Engine" 1999, Progressive
+
+1 Monster
+2 Alone
+3 Falling star
+4 Taste
+5 I don't need
+6 Teach me
+7 Bear your cross
+8 Tree of life
+9 Your awake
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,24 @@
 # [:SITD:]
 
-Дискография
-"Coded Message 12" 2005, Gothic
+industrial/future pop
+
+## Дискография
+
+### "Coded Message 12" 2005, Gothic
+
+01. Curtain Raiser
+02. Brand Of Cain
+03. Richtfest
+04. Upstairs
+05. Wegweiser
+06. Plastination City
+07. Crusade
+08. Sentiment
+09. Yield To Despair
+10. relief
+11. Ascension
+12. The Final Curtain
+
 
 ## Отношения с другими группами
 

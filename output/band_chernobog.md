@@ -1,8 +1,25 @@
 # Chernobog
 
-Дискография
-"Великий Дракон (demo)" 1999, Black Metal
-"Vlidoxfato" 2004, Black Metal
+
+
+## Дискография
+
+### "Великий Дракон (demo)" 1999, Black Metal
+
+
+
+### "Vlidoxfato" 2004, Black Metal
+
+1. Mortis Vincit Omnia 
+2. Magisterulus 
+3. Templi Omnium Hominum Pasic Abbas 
+4. Warlock 
+5. Domino inferi 
+6. dOBITOsel11MO.p.p.p. 
+7. The Call Of Moon 
+8. Pacta Cum Demonibus 
+9. Amorosus Semper Est Timorosus
+
 
 ## Отношения с другими группами
 

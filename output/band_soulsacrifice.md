@@ -1,7 +1,21 @@
 # Soul Sacrifice
 
-Дискография
-"Stranded Hate " 2005, Melodic Death Metal
+
+
+## Дискография
+
+### "Stranded Hate " 2005, Melodic Death Metal
+
+1. Hallow Cold 05:00
+2. Blind 05:15
+3. Cocuk Bahзesi 04:22
+4. August 07:10
+5. So Wilde And Insane 04:25
+6. Destiny 04:22
+7. Once More 05:13
+8. My Sea 05:13
+9. Vision Of Misery 04:58
+
 
 ## Отношения с другими группами
 

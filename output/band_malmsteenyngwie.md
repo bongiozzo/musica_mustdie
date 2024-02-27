@@ -1,26 +1,488 @@
 # Malmsteen, Yngwie
 
-Дискография
-"Rising Force" 1984, Heavy Metal
-"Marching Out" 1985, Heavy Metal
-"Trilogy" 1986, Heavy Metal
-"Odyssey" 1988, Heavy Metal
-"Eclipse" 1990, Heavy Metal
-"Fire & Ice" 1992, Instrumental
-"The Seventh Sign" 1994, Heavy Metal
-"Magnum Opus" 1995, Heavy Metal
-"Inspiration" 1996, Instrumental
-"Facing the Animal" 1997, Heavy Metal
-"Concerto Suite for Electric Guitar and..." 1998, Instrumental
-"Alchemy" 1999, Instrumental
-"War to End All Wars" 2000, Instrumental
-"Attack!!" 2002, Heavy Metal
-"Unleash The Fury" 2005, Heavy Metal
-"Perpetual Flame" 2008, Heavy Metal
-"Angels Of Love" 2009, Rock
-"Relentless" 2010, Heavy Metal
-"Spellbound" 2012, Heavy Metal
-"World on Fire" 2016, Heavy Metal
+(Alcatrazz, Rising Force)
+
+## Дискография
+
+### "Rising Force" 1984, Heavy Metal
+
+1. Black Star 
+2. Far Beyond The Sun 
+3. Now Your Ships Are Burned 
+4. Evil Eye 
+5. Icarus' Dream Suite. Opus#4 
+6. As Above, So Below 
+7. Little Savage 
+8. Farewell 
+
+Yngwie J. Malmsteen - all guitars and bass 
+Barrimore Barlow - drums 
+Jens Johannsson - keyboards 
+Jeff Scott Sotto - vocals
+
+### "Marching Out" 1985, Heavy Metal
+
+1. Prelude 
+2. I'll See The Light Tonight 
+3. Don't Let It End 
+4. Disciples Of Hell 
+5. I Am A Viking 
+6. Overture 1383 
+7. Anguish And Fear 
+8. On The Run Again 
+9. Soldier Without Faith 
+10. Caught In The Middle 
+11. Marching Out
+
+### "Trilogy" 1986, Heavy Metal
+
+1. You Don't Remember, I'll Never Forget
+2. Liar
+3. Queen In Love
+4. Crying
+5. Fury
+6. Fire
+7. Magic Mirror
+8. Dark Ages
+9. Trilogy Suite Opus#5
+
+Yngwie J. Malmsteen - all guitars and bass
+Mark Boals - vocals
+Jens Johansson - keyboards
+Anders Johansson - drums
+
+### "Odyssey" 1988, Heavy Metal
+
+1. Rising Force
+2. Hold On
+3. Heaven Tonight
+4. Dreaming (Tell Me)
+5. Bite The Bullet
+6. Riot In The Dungeons
+7. Deja Vu
+8. Crystal Ball
+9. Now Is The Time
+10.Faster Than The Speed Of Light
+11.Krakatau
+12.Memories
+
+### "Eclipse" 1990, Heavy Metal
+
+Making Love
+Bedroom Eyes
+Save Our Love
+Motherless Child
+Devil in Disguise
+Judas What Do You Want
+Demon Driver
+Faultline
+See You in Hell (Don't Be Late)
+Eclipse 
+
+Polygram, 1990
+All music composed and arranged by Yngwie J. Malmsteen. 
+Produced by Yngwie Malmsteen. 
+Published by Pazuzu Enterprises/Unichappell Music, Inc.
+Recorded at Criteria Studios, Miami, Florida.
+
+Yngwie J. Malmsteen: Electric and acoustic guitars, Korg Z3 guitar synthesizer, Taurus bass pedals, and backing vocals.
+Goran Edman: Vocals.
+Mats Olausson: Keyboards and backing vocals.
+Svante Henrysson: Bass guitar, contra bass, and backing vocals.
+Michael Von Knorring: Drums.
+Photography by MIchael Johansson, and The Image Bank. 
+Cover design by Tout Sullivan Thomas, Package design by David Lau and Chris Thompson.
+This album is dedicated to the late Graham Chapman (of Monty Python's Flying Circus).
+
+### "Fire & Ice" 1992, Instrumental
+
+Perpetual
+Dragonfly
+Teaser
+How Many Miles to Babylon
+Cry No More
+No Mercy
+C'est la Vie
+Leviathan Fire and Ice
+Forever Is a Long Time
+I'm My Own Enemy
+All I Want Is Everything
+Golden Dawn
+Final Curtain
+Broken Glass (bonus track) 
+
+
+Elektra, 1992
+Produced by Yngwie J. Malmsteen. 
+Published by Pazuzu Enterprises Ltd/Unichappel Music, Inc.
+Recorded at Criteria Studios, Miami, and Polar Studios, Stockholm.
+Mixed at Electric Lady Studios, New York [originally built by Jimi Hendrix]. 
+
+Yngwie J. Malmsteen: All electric and acoustic guitars, sitar, Taurus Bass Pedals, and backing vocals.
+Goran Edman: Vocals.
+Mats Olausson: Keyboards.
+Svante Henryson: Elecric bass, contra bass, and cello.
+Bo Werner: Drums and backing vocals.
+String section arranged by Yngwie J. Malmsteen, assisted by Svante Henryson. Special appearance by Lolo Lannerback on flute. Drums on "Leviathan" by Michael Von Knorring.
+Japanese release of the album contains a bonus track, "Broken Glass."
+Photography by James Porto, Michael Johansson. Art direction by Larry Freemantle.
+This album is dedicated in loving memory to Bjorn Malmsteen. 
+
+
+
+
+### "The Seventh Sign" 1994, Heavy Metal
+
+1. Never Die
+2. I Don't Now
+3. Meant To Be
+4. Forever One
+5. Hairtrigger
+6. Brothers
+7. The Seventh Sign
+8. Bad Blood
+9. Prisoner Of Your Love
+10.Pyramid Of Cheops
+11.Crash & Burn
+12.Sorrow
+
+Pony Canyon, 1994
+Produced and arranged by Yngwie J. Malmsteen. 
+Published by Watanabe Music Company Ltd.
+Recorded at New River Studios, Ft. Lauderdale, Florida.
+
+Yngwie J. Malmsteen: All electric and acoustic guitars, electric and fretless bass, sitar, and backing vocals.
+Michael Vescera: Vocals.
+Mats Olausson: Keyboards and small Hammond organ.
+Mike Terrana: Drums and triangle.
+Japanese release of the album contained a bonus track, "Angel in Heat."
+Cover photo by Larry DiMarzio, Additional photography by William Hames, Design by Taka Shibayama.
+
+### "Magnum Opus" 1995, Heavy Metal
+
+1. Vengeance
+2. No Love Lost
+3. Tomorrow's Gone
+4. The Only One
+5. I'd Die Without You
+6. Overture 1622
+7. Voodoo
+8. Cross The Line
+9. Time Will Tell
+10.Fire In The Sky
+11.Amberdawn
+
+Pony Canyon, 1995
+Produced by Yngwie Malmsteen, co-produced by Chris Tsangarides. Published by Malmsteen Publishing/Mike Vescera Publishing.
+Recorded at Criteria Studios, Miami, Florida. 
+
+Yngwie Malmsteen: All electric and acoustic guitars, sitar, backing vocals.
+Michael Vescera: Vocals. 
+Mats Olausson: Keyboards and backing vocals.
+Barry Sparks: Bass.
+Shane Gaalaas: Drums.
+Japanese release contained a bonus track, "Cantabile, by Vivaldi."
+Photography by Rick Gould, Lyn Parks, and Koh Hasebe; Design by Asari Yoda.
+
+### "Inspiration" 1996, Instrumental
+
+Carry On My Wayward Son [Kansas, "Left Overture" 1976]
+Pictures of Home [Deep Purple, "Machine Head" 1972]
+Gates of Babylon [Rainbow, "Long Live Rock 'n Roll" 1978]
+Manic Depression [Jimi Hendrix, "Are You Experienced?" 1967]
+In the Dead of Night [U.K., "U.K." 1978] Mistreated [Deep Purple, "Burn" 1974]
+The Sails of Charon [Scorpions, "Taken By Force" 1977]
+Demon's Eye [Deep Purple, "Fireball" 1971]
+Anthem [Rush, "Fly By Night" 1975]
+Child in Time [Deep Purple, "DP in Rock" 1970]
+Spanish Castle Magic (bonus track) [Hendrix 1967] 
+
+
+Canyon International, 1996; 
+Foundation Records, 1996. 
+Produced by Yngwie Malmsteen, co-produced by Chris Tsangarides.
+Recorded at Studio 308, Miami, Florida. 
+Drums recorded at Heptagon Studios, Malmo, Sweden.
+
+Yngwie Malmsteen: Guitars, bass, sitar, lead vocal on "Manic Depression."
+Joe Lynn Turner: Vocals.
+Mark Boals: Vocals.
+Jeff Scott Soto: Vocals.
+Anders Johansson: Drums.
+Jens Johansson: Keyboards.
+Mats Olausson: Keyboards.
+David Rosenthal: Keyboards.
+Marcel Jacob: Bass.
+
+
+
+
+
+
+
+
+### "Facing the Animal" 1997, Heavy Metal
+
+1. Braveheart
+2. Facing The Animal
+3. Enemy
+4. Sacrifice
+5. Like An Angel - For April
+6. My Resurrection
+7. Another Time
+8. Heathens From The Nord
+9. Alone In Paradise
+10.End Of My Rope
+11.Only The Strong
+12.Poison In Your Veins
+13.Air On A Theme
+
+
+Canyon International, 1997. 
+Produced by Yngwie Malmsteen and Chris Tsangarides.
+Recorded at Studio 308, Miami, Florida, except drum tracks recorded at Criteria Studios, Miami Florida. 
+Mixed and engineered at Criteria Studios by Chris Tsangarides, assisted by Keith Rose.
+
+Yngwie Malmsteen: Guitars.
+Cozy Powell: Drums.
+Mats Leven: Lead vocals.
+Mats Olausson: Keyboards.
+Barry Dunaway: Bass.
+Japanese bonus track is "Casting Pearls before the Swine."
+Album cover photo by Michael Johansson, other photography by Mark Weiss. Band photo by Peter Rooth. 
+Art Direction and design by Ioannis, Linda Loiewski for Vivid Images Worldwide.
+
+### "Concerto Suite for Electric Guitar and..." 1998, Instrumental
+
+Concerto Suite for Electric Guitar and Orchestra in E flat Minor Op. #1
+
+1. Icarus Dream Fanfare
+2. Cavallino Rampante
+3. Fugue
+4. Prelude To April
+5. Toccata
+6. Andante
+7. Sarabande
+8. Allegro
+9. Adagio
+10. Vivace
+11. Presto Vivace
+12. Finale
+
+
+Canyon Classics, 1998. 
+(Arton 24-bit digitally mastered for the classical market.) 
+
+All music composed and produced by Yngwie Johann Malmsteen.
+All guitars played by Yngwie Johann Malmsteen.
+Orchestra: Czech Philharmonic. 
+Chorus: Czech State Opera Chorus.
+Orchestration by Yngwie Johann Malmsteen. 
+Assisted by Mats Olausson and David Rosenthal.
+
+Conducted by Yoel Levi.
+Transcription by David Rosenthal.
+Recording Director: Chris Tsangarides.
+Orchestra Recording Director: Tomoyoshi Ezaki.
+Orchestra Assistant Director: Miyuki Ito.
+Balance Engineers: Chris Tsangarides (Electric Guitars), Tomoyoshi Ezaki (Orchestra).
+Assistant Engineers: Peter Rooth (Electric Guitars), Keith Rose (Acoustic Guitar), Lubomir Novacek, Takeshi Muramatsu, Tomas Pekarek (Orchestra).
+Disc Editor: Tomoyoshi Ezaki.
+Recorded at Rudolfinum Dvorak Hall, Prague, Czech Republic.
+
+
+Art Direction and Digital Art: Ioannis for Vivid Images Worldwide.
+Design: Linda Loiewski for Vivid Images Worldwide.
+Front Cover Photo: Michael Johansson.
+Portraits: Mick Rock.
+Other Inside Photos of Yngwie: William Hames.
+Photos of Prague: Jim Lewis & William Hames.
+
+### "Alchemy" 1999, Instrumental
+
+1. Blitzkrieg
+2. Leonardo
+3. Playing With Fire
+4. Stand (The)
+5. Wield My Sword
+6. Blue
+7. Legion Of The Damned
+8. Deamon Dance (7, 405, 926)
+9. Hangar 18, Area 51
+10. Voodoo Nights
+11. Asylum
+I-Asylum
+II-Sky Euphoria
+III-Quantum Leap
+
+
+Canyon International, 1999
+Produced by Yngwie J. Malmsteen.
+All compositions, lyrics, and arrangements by Yngwie J. Malmsteen
+Recorded and mixed at Studio 308, Miami, Florida. Drums recorded at Criteria Studios, Miami, Florida.
+Mixed by Tom Fletcher with Yngwie Malmsteen.
+
+Yngwie Malmsteen: Electric guitar, acoustic guitar, backing vocals, bass guitar on 2 tracks*.
+Mark Boals: Lead vocals.
+Mats Olausson: Keyboards and backing vocals.
+Barry Dunaway: Bass and backing vocals.
+John Macaluso: Drums.
+Art Direction and design by Ioannis and Alan Chappell for Vivid Images Worldwide. All artwork by Ioannis.
+
+### "War to End All Wars" 2000, Instrumental
+
+Prophet of Doom
+Crucify
+Bad Reputation
+Catch 22
+Masquerade
+Molto Arpeggiosa
+Miracle of Life
+The Wizard
+Preludium
+Wild One
+Tarot
+InstruMENTAL Institution
+War to End All Wars 
+
+
+### "Attack!!" 2002, Heavy Metal
+
+1.Razor Eater
+2.Rise Up
+3.Valley Of The Kings
+4.Ship Of Fools
+5.Attack
+6.Baroque & Roll
+7.Stronghold
+8.Mad Dog
+9.In The Name Of God
+10.Freedom Isn’t Free
+11.Majestic Blue
+12.Valhalla
+13.Touch The Sky
+14.Ironclad
+15.Air
+16.Nobody’s Fool (Japanese Bonus Track)
+
+### "Unleash The Fury" 2005, Heavy Metal
+
+1. Locked & Loaded 
+2. Revolution 
+3. Winds Of War (Invasion) 
+4. Crown Of Thorns 
+5. The Bogeyman 
+6. Beauty And A Beast 
+7. Cracking The Whip 
+8. Fuguetta 
+9. Cherokee Warrior 
+10. Guardian Angel 
+11. Let The Good Times Roll 
+12. Revelation (Drinking With The Devil) 
+13. Magic And Mayhem 
+14. Exile 
+15. The Hunt 
+16. Russian Roulette 
+17. Unleash The Fury 
+18. Paraphrase
+
+
+Yngwie Malmsteen - All Guitars
+Doogie White - Vocals
+Patrik Johansson - Drums
+Joakim Svalberg - Keyboards
+
+### "Perpetual Flame" 2008, Heavy Metal
+
+1. Death Dealer 05:26
+2. Damnation Game 05:04
+3. Live to Fight (Another Day) 06:13
+4. Red Devil 04:07
+5. Four Horsemen (Of the Apocalypse) 05:23
+6. Priest of the Unholy 06:47
+7. Be Careful What You Wish For 05:29
+8. Caprici Di Diablo (Instrumental) 04:28  
+9. Lament (Instrumental) 04:31  
+10. Magic City 07:26 
+11. Eleventh Hour 08:03
+12. Heavy Heart (Instrumental) 05:58 
+
+### "Angels Of Love" 2009, Rock
+
+1. Forever One 04:49  
+2. Like An Angel 06:05  
+3. Crying 06:02  
+4. Brothers 06:00  
+5. Memories 04:09  
+6. Save Our Love 06:18  
+7. Ocean Sonata 06:14  
+8. Miracle Of Life 04:31  
+9. Sorrow 02:52  
+10. Prelude To April 04:41 
+
+### "Relentless" 2010, Heavy Metal
+
+1. Overture 
+2. Critical Mass 
+3. Shot Across The Bow 
+4. Look At You Now 
+5. Relentless 
+6. Enemy Within 
+7. Knight Of The Vasa Order 
+8. Caged Animal 
+9. Into Valhalla 
+10. Tide Of Desire 
+11. Adagio B Flat Minor Variation 
+12. Axe To Grind 
+13. Blinded 
+14. Cross To Bear 
+15. Arpeggios From Hell (Bonus Track)
+
+All vocals of Tim "Ripper" Owens recorded in 2008 year on session to album "Perpetual Flame".
+ 
+Track 15 - "Arpeggios from Hell" marked as bonus track though it appears on standard European and US editions.
+ 
+Japanese edition released as SHM-CD and did not includes "Arpeggios from Hell". 
+
+### "Spellbound" 2012, Heavy Metal
+
+1. Spellbound
+2. High Compression Figure
+3. Let’s Sleeping Dog Lie
+4. Repent 
+5. Majestic 12 Suite 1,2&3
+6. Electric Duet
+7. Nasca Lines
+8. Poisoned Mind
+9. God Of War
+10. Iron Blues
+11. Turbo Amadeus
+12. From A Thousand Cuts
+13. Requiem For The Lost 
+
+### "World on Fire" 2016, Heavy Metal
+
+1. World on Fire  04:31    
+2. Sorcery  02:18 
+3. Abandon  02:18  
+4. Top Down, Foot Down  04:17  
+5. Lost in Machine  05:15  
+6. Largo  05:13   
+7. No Rest for the Wicked  03:10  
+8. Soldier  05:32   
+9. DUF 1220  03:17   
+10. Abandon (Slight Return)  02:31 
+11. Nacht Musik  05:56   
+
+Produced by Yngwie J. Malmsteen.
+All music composed and arranged by Yngwie J. Malmsteen.
+All lyrics and melodies by Yngwie J. Malmsteen.
+
+Yngwie J. Malmsteen - Guitars, Vocals (lead), Vocals (backing), Guitars (acoustic), Bass, Keyboards, Cello, Sitar  
+Mark Ellis - Drums  
+Nick Marinovich - Keyboards (additional)  
+
+
 
 ## Отношения с другими группами
 

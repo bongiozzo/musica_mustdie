@@ -1,7 +1,24 @@
 # Bomb and Scary
 
-Дискография
-"Black Wishing Well" 2008, Speed Metal
+
+
+## Дискография
+
+### "Black Wishing Well" 2008, Speed Metal
+
+1.	 A Dead End	02:48	 
+2.	 All My Hate 616	04:18	 
+3.	 In the Dark	03:22	 
+4.	 I Understand	02:59	 
+5.	 Menagerie	03:13	 
+6.	 Dagon	03:03	 
+7.	 Little Dog Boo	03:05	 
+8.	 The Funhouse	02:50	 
+9.	 Radiance	02:34	 
+10.	 Berzurkinsane	02:46	 
+11.	 Run Into Your Mind	03:57	 
+12.	 The Nile	04:07
+
 
 ## Отношения с другими группами
 

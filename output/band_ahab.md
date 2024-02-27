@@ -1,10 +1,56 @@
 # Ahab
 
-Дискография
-"The Call Of The Wretched Sea" 2006, Doom
-"The Divinity of Oceans" 2009, Doom
-"The Giant" 2012, Doom
-"The Boats of the Glen Carrig" 2015, Doom
+
+
+## Дискография
+
+### "The Call Of The Wretched Sea" 2006, Doom
+
+01. Below The Sun
+02. The Pacific
+03. Old Thunder
+04. Of The Monstrous Pictures Of The Whales
+05. The Sermon
+06. The Hunt
+07. Ahab's Oath
+
+### "The Divinity of Oceans" 2009, Doom
+
+1. Yet Another Raft of the Medusa (Pollard's Weakness) 12:40
+2. The Divinity of Oceans 11:03
+3. O Father Sea 07:07
+4. Redemption Lost 10:25
+5. Tombstone Carousal 07:27
+6. Gnawing Bones (Coffin's Lot) 10:48
+7. Nickerson's Theme 08:06 
+
+
+### "The Giant" 2012, Doom
+
+1. Further South 08:56
+2. Aeons Elapse 12:44
+3. Deliverance 07:52
+4. Antarctica The Polymorphess 11:45
+5. Fathoms Deep Blue 09:07
+6. The Giant 10:36
+
+The digipak release contains a bonus track:
+ 7. Like Molten Lead
+ 
+The vinyl release contains two bonus tracks:
+ 7. Like Molten Lead
+ 8. Evening Start 
+
+### "The Boats of the Glen Carrig" 2015, Doom
+
+1. The Isle  10:11  
+2. The Thing That Made Search  11:06   
+3. Like Read Foam (The Great Storm)  06:25  
+4. The Weedmen  15:01  
+5. To Mourn Job  13:45   
+6. The Light in the Weed (Mary Madison)  10:31 
+
+
 
 ## Отношения с другими группами
 

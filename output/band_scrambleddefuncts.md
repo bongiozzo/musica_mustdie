@@ -1,7 +1,21 @@
 # Scrambled Defuncts
 
-Дискография
-"Hackled In Gore" 2005, Deathcore
+
+
+## Дискография
+
+### "Hackled In Gore" 2005, Deathcore
+
+1. Subterranean Slaughterhouse;
+2. Amongst the Devastated Graves;
+3. Flensed Battue;
+4. Pre-natal Whittling;
+5. Limbless Fatling;
+6. Slashing of the Mummified;
+7. Hackled in Gore;
+8. Profaning the Crypts;
+9. Burnt Alive
+
 
 ## Отношения с другими группами
 

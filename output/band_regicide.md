@@ -1,8 +1,35 @@
 # Regicide
 
-Дискография
-"Viorus" 2004, Gothic
-"Break The Silence" 2006, Gothic
+German Gothic Metal
+
+## Дискография
+
+### "Viorus" 2004, Gothic
+
+1. Behind his Eyes 03:42  
+2. Funeral of Tears 06:35  
+3. The Fragrance 05:13  
+4. Lonely Voices 03:43  
+5. Mastery Demise 07:40  
+6. An Embracing Space Pt. I: The Trapped and the Leader 05:17  
+7. An Embracing Space Pt. II: Paths Within Ourselves 06:16  
+8. Along the Way 05:36  
+9. Viorus 04:43  
+10. Biography 05:00
+
+### "Break The Silence" 2006, Gothic
+
+1. Plastic Dove 03:45  
+2. The Hanger-On 03:40  
+3. Pirates 05:34  
+4. Nothing In Here 03:55  
+5. Break The Silence 05:35  
+6. A World Without Oceans 04:56  
+7. This Unpredictable Life 05:16  
+8. Forgotten Promises 04:34  
+9. An Embracing Space Pt III 08:48  
+10. Perfect Strings 05:15
+
 
 ## Отношения с другими группами
 

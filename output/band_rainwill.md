@@ -1,7 +1,23 @@
 # Rainwill
 
-Дискография
-"Canvas" 2009, Melodic Death Metal
+
+
+## Дискография
+
+### "Canvas" 2009, Melodic Death Metal
+
+1. Intro 01:13  
+2. Eternal Grief 03:06  
+3. Scenes on Canvas 03:23  
+4. Long Expectation 05:01  
+5. Famine 03:40  
+6. When Thought Comes to Life 02:11  
+7. In My Eyes 04:04  
+8. White Sand 05:46  
+9. In Twilight of a Stage 04:58  
+10. The Call Of Despair 01:01  
+11. The Price Of Mistake 04:46 
+
 
 ## Отношения с другими группами
 

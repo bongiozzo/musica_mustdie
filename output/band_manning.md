@@ -1,7 +1,13 @@
 # Manning
 
-Дискография
-"A Matter Of Life & Death (The Journal Of Abel Mann)" 2004, Instrumental
+
+
+## Дискография
+
+### "A Matter Of Life & Death (The Journal Of Abel Mann)" 2004, Instrumental
+
+
+
 
 ## Отношения с другими группами
 

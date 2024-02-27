@@ -1,7 +1,13 @@
 # Cadaver Inc.
 
-Дискография
-"Discipline" 2001, Black Metal
+Norway's ex-Death Metal cult band
+
+## Дискография
+
+### "Discipline" 2001, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

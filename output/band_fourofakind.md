@@ -1,6 +1,9 @@
 # Four Of A Kind
 
-Дискография
+Russian power-progressive
+
+## Дискография
+
 
 ## Отношения с другими группами
 

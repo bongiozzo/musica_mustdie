@@ -1,9 +1,60 @@
 # Mirzadeh
 
-Дискография
-"Ancient Rites" 2003, Black Metal
-"The Creatures of Loviatar" 2006, Black Metal
-"Desired Mythic Pride" 2014, Black Metal
+Melodic Black/Gothic Metal
+
+## Дискография
+
+### "Ancient Rites" 2003, Black Metal
+
+1. All for one Immortal  04:52   
+2. Under the Veil of Misery  05:04   
+3. Verenkantaja  03:44  
+4. Winter Ceremony  05:07   
+5. Sacred Soil  02:05  (instrumental)
+6. Sweet Soul of Shadows  03:47   
+7. Fullmoon Dream  04:38   
+8. Apostate in Orgy  04:41 
+
+
+ recorded and mixed at Studio Watercastle 16.8.2002 - 18.8.2002 and 17.3. - 21.3.2003 by Arttu Sarvanne
+ mastered at Finnvox by Minerva Pappi
+ produced by Mirzadeh with Arttu Sarvanne
+ Cover art by W. Smerdulak - www.smerd.tk
+
+ The album consists 5 new songs and 3 songs from the ''Sweet Souls of Shadows'' demo. 
+
+### "The Creatures of Loviatar" 2006, Black Metal
+
+1. Whispers From Filthy Womb  02:00    
+2. Precious Death  04:31   
+3. Viper of the Frozen Ground  04:16   
+4. Witness of Moonlight Mystery  05:36   
+5. Louhi's Legacy  04:18   
+6. Fullmoon Dream  04:13   
+7. Kalman Kevдt  04:33   
+8. Tuonelan Lasten Tanssi  04:39  
+9. Melancholy  03:54  
+10. Kalmisto  02:01 
+
+
+
+
+
+### "Desired Mythic Pride" 2014, Black Metal
+
+1. Secrets    
+2. The Forger of Celestial Sphere    
+3. Aino      
+4. Ukon Vakka      
+5. Rain Of Blood      
+6. The Washed Yards    
+7. Demented Visions of Madness    
+8. Myrkkymieli    
+9. Lost   
+10. The Plains of Time  
+11. Rise With Norther Witchcraft  
+
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,36 @@
 # Drone
 
-Дискография
-"Head-on Collision" 2007, Metalcore
-"Juggernaut" 2009, Metalcore
+
+
+## Дискография
+
+### "Head-on Collision" 2007, Metalcore
+
+1. Theopractical 03:59
+2. Welcome to the Pit 04:02 
+3. Stampmark 04:29
+4. Chainsaw Symphony 03:59
+5. Jericho 05:04
+6. In the End 04:47
+7. High Octane 03:49
+8. Intimidation 04:27
+9. Life of Riley 05:32 
+10. Carnophile 03:27
+11. One in a Million 03:51 
+
+### "Juggernaut" 2009, Metalcore
+
+1. Boneless 04:13 
+2. Grow A Storm 03:28
+3. Done & Dusted 04:50
+4. Closing Credits 04:36
+5. The Set-Up 04:03
+6. Motцr-Heavy Piss-Take 05:27
+7. Juggernaut 04:00
+8. No Pattern 03:11
+9. Piss Drunk 04:40
+10. T.i.A. 04:42 
+
 
 ## Отношения с другими группами
 

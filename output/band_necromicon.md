@@ -1,9 +1,44 @@
 # Necromicon
 
-Дискография
-"Realm Of Silence" 1996, Black Metal
-"Sightveiler" 1998, Black Metal
-"Peccata Mundi" 2000, Black Metal
+
+
+## Дискография
+
+### "Realm Of Silence" 1996, Black Metal
+
+1. The Spratum Of Dracula
+2. Gates Of Griet
+3. Ages Untold
+4. Through The Darkness 
+5. In Blackened Robes
+6. The Hated One
+7. Dreams Of The Ancient
+8. Realm Of Silence
+
+Daniel - Vocals
+Nicklas - Guitars, Screams
+Robert - Drums
+Patrick - Bass
+Roger - Keyboards, Backing Vocals
+Stefan - Guitars, Backing Vocals
+
+(p)(c) 1996 IMPURE CREATION Records IRC 003
+
+### "Sightveiler" 1998, Black Metal
+
+
+
+### "Peccata Mundi" 2000, Black Metal
+
+01. Peccata Mundi
+02. Heavens Of Hate, Fields Of Fire
+03. The Find Of Alone
+04. Voluptours Womb
+05. Awaiting The Long Sleep
+06. Firebreeze
+07. Lost Equilibrium
+08. Suicide Caravan
+
 
 ## Отношения с другими группами
 

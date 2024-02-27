@@ -1,11 +1,69 @@
 # Isole
 
-Дискография
-"Forevermore" 2005, Doom
-"Throne of Void" 2006, Doom
-"Bliss Of Solitude" 2008, Doom
-"Silent Ruins" 2009, Doom
-"Born from Shadows" 2011, Doom
+
+
+## Дискография
+
+### "Forevermore" 2005, Doom
+
+1. The Watcher 07:49 
+2. Deceiver 07:56
+3. Age of Darkness 07:08
+4. Forevermore 06:06
+5. Premonitions 07:06 
+6. Beyond the Black 10:14
+7. Moonstone 11:52 
+
+### "Throne of Void" 2006, Doom
+
+1. Autumn Leaves 06:54 
+2. Dreams 06:29
+3. Demon Green 10:31 
+4. Throne of Void 06:04
+5. Insomnia 06:31
+6. Bleak 07:29
+7. Life? 03:58 
+
+### "Bliss Of Solitude" 2008, Doom
+
+1. By Blood 08:19
+2. From Clouded Sky 06:15 
+3. Imprisoned in Sorrow 07:37
+4. Bliss of Solitude 08:16
+5. Aska 08:17
+6. Dying 07:29
+7. Shadowstone 11:25 
+
+
+### "Silent Ruins" 2009, Doom
+
+1. From the Dark 11:02
+2. Forlorn 06:46
+3. Nightfall 06:57
+4. Hollow Shrine 06:55
+5. Soulscarred 06:26
+6. Peccatum 04:01
+7. Dark Clouds 11:43 
+
+### "Born from Shadows" 2011, Doom
+
+1. The Lake
+ 2. Black Hours
+ 3. Born from Shadows
+ 4. My Angel
+ 5. Condemned
+ 6. Towards the Abyss (Bonus Track)
+ 7. Come to Me
+ 8. When All is Black
+ 9. Waves of Sorrow (Bonus Track)
+ 10. No Return (Bonus Track)
+ 11. Moonstone (Bonus Track) 
+
+Recorded and mixed by Isole at Studio Apocalypse 2011
+ Mastered by Jens Bogren at Fascination Street
+ All music & lyrics by Isole
+ 
+
 
 ## Отношения с другими группами
 

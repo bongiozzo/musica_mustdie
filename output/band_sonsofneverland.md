@@ -1,7 +1,32 @@
 # Sons of Neverland
 
-Дискография
-"Soulkeeper" 1995, Gothic
+Hard Gothic With Samplers
+
+## Дискография
+
+### "Soulkeeper" 1995, Gothic
+
+1. Her Captive Soul
+2. Resemptive Fire
+3. Amnesy
+4. For Love We Fall
+5. Relief
+6. Liberate
+7. Dream
+8. Resurrected
+9. Requiem
+10. Soulkeeper
+
+ Mike - Vocals
+ Pim - Guitars, Synth Guitars, Programming
+ Rick - Bass, Programming
+
+Produced By SONS OF NEVERLAND
+Engineered By Matt Axfors & Peter "Pim" Forkelid
+Recorded At Lindhuset, Sweden
+
+(p)&(c) 1995 PRIMITIVE ART Records
+
 
 ## Отношения с другими группами
 

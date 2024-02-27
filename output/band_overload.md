@@ -1,7 +1,22 @@
 # Overload
 
-Дискография
-"Never Again" 2005, Heavy Metal
+
+
+## Дискография
+
+### "Never Again" 2005, Heavy Metal
+
+1.	 Intro	01:33	 
+2.	 Trip to the Dreamland	04:59	 
+3.	 Never Again	05:19	 
+4.	 Sirens	06:20	 
+5.	 Glory and Eternity	04:47	 
+6.	 With Golden Wings	07:09	 
+7.	 Destiny Calls	05:20	 
+8.	 Midnight Warriors	07:42	 
+9.	 I Change	05:03	 
+10.	 It's Over	05:01
+
 
 ## Отношения с другими группами
 

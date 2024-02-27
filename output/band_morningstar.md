@@ -1,8 +1,33 @@
 # Morningstar
 
-Дискография
-"Heretic Metal" 1996, Black Metal
-"Weight of the Hammer & Kalevala Mysticism" 2002, Heavy Metal
+
+
+## Дискография
+
+### "Heretic Metal" 1996, Black Metal
+
+1. Burning The Crucifix
+2. War & Victory
+3. Crushing Their Legions
+4. Eternal Darkness
+5. A Great Revolt
+6. During a ullmoon
+7. Bloody Hammer
+8. Twilight Of The Paradise
+9. (Black) Power Of Shaman
+10. The Phobia
+11. Piece His Eyes
+
+Ari Honkonen - Guitars, Vocals
+Mikko Paavilainen - Bass
+Pasi Pasanen - Drums
+
+(p)(c)1996 Moonlight Records
+
+### "Weight of the Hammer & Kalevala Mysticism" 2002, Heavy Metal
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,10 +1,76 @@
 # Ian Parry's Consortium Project
 
-Дискография
-"Ian Parry's Consortium Project" 1999, Progressive
-"Consortium Project II - Continuum in Extremis" 2001, Progressive
-"Consortium Project III - Terra Incognita (The Undiscovered World)" 2003, Progressive
-"Consortium Project IV - Children of Tomorrow" 2007, Progressive
+
+
+## Дискография
+
+### "Ian Parry's Consortium Project" 1999, Progressive
+
+1. House of Cards  04:17 
+2. Banquet for Thieves  05:35   
+3. Evilworld  03:44   
+4. Garden of Eden  04:20   
+5. The Entity (Instrumental)  02:43  
+6. Change Breeds Contempt  04:16  
+7. A Miracle Is All We Need  04:48 
+8. The Snake  03:31  
+9. Criminals & Kings  04:12   
+10. Chain of Fear  05:23 
+11. Pandora's Box  03:56   
+12. Humanitarian  03:19  
+13. Change Breeds Concept (demo version)  04:15 
+
+
+### "Consortium Project II - Continuum in Extremis" 2001, Progressive
+
+1. Continuum (in Extremis)  05:34   
+2. Asylum Seekers  05:10  
+3. The Catalyst  04:02 
+4. Intrusions of Madness  05:08   
+5. A Momentary Lapse of Reason  05:32 
+6. Mirror Image  05:01 
+7. Sentiment in Sanctuary  06:43   
+8. What You Sow, You Reap  04:36   
+9. Asphyxia  06:00   
+10. Collide-o-scope (When Past and Present Collide)  06:48   
+11. Poetic Justice  03:57 
+
+### "Consortium Project III - Terra Incognita (The Undiscovered World)" 2003, Progressive
+
+01. The Council Of Elders 
+02. Spirit Of Kindness 
+03. The Ark (Of The Covenant) 
+04. Lost Empire 
+05. Reductio Ad Absurdum 
+06. White Sands (California Lighthouse) 
+07. Great Exploration 
+08. Across The Seven Seas 
+09. Nemesis 
+10. Beyond The Gateway Of Legends 
+11. Terra Incognita (The Undiscovered World) 
+
+Line-Up: 
+Ian Parry - lead, harmony, choir & backing vocals 
+Robert Finan - bass 
+Jan Bijlsma - bass 
+Joshua Dutrieux - piano, organ, keyboards 
+Stephan Lill - guitars 
+Casey Grillo - drums
+
+### "Consortium Project IV - Children of Tomorrow" 2007, Progressive
+
+1. A Sign of the Times  04:40   
+2. Nowhere Fast  04:37  
+3. Neverland  03:25  
+4. Shadows  04:37   
+5. Exodus  04:24    
+6. Made in Heaven  03:43   
+7. Let the Wind Carry You Home  03:46 
+8. Enigma  04:52   
+9. Mastermind  03:50
+10. Path of Destruction  03:41 
+11. Children of Tomorrow  04:23 
+
 
 ## Отношения с другими группами
 

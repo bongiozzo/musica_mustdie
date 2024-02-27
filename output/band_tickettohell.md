@@ -1,8 +1,31 @@
 # Ticket To Hell
 
-Дискография
-"Man Made Paradise" 2008, Death Metal
-"Operation: Crash Course" 2010, Death Metal
+
+
+## Дискография
+
+### "Man Made Paradise" 2008, Death Metal
+
+1. Ticket To Hell 05:33  
+2. Dynasty 04:20  
+3. Join The Blind 04:45  
+4. A.H. 05:41  
+5. Eyes of Fire 05:48  
+6. I Am I 04:37  
+7. Man Made Paradise 04:58  
+8. We March 04:53 
+
+### "Operation: Crash Course" 2010, Death Metal
+
+1. The Hidden Illness 05:06  
+2. Metallic Overdose 06:16  
+3. Isolation Row 04:31  
+4. The Sickest Lie 05:03  
+5. Bluescreen Circus 05:13  
+6. Operation: Crash Course 06:33  
+7. The Box 03:50  
+8. Last One Standing 05:07 
+
 
 ## Отношения с другими группами
 

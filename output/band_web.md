@@ -1,8 +1,36 @@
 # W.E.B.
 
-Дискография
-"Don't Wake Futility" 2005, Metal
-"Jesus Heist" 2008, Metal
+
+
+## Дискография
+
+### "Don't Wake Futility" 2005, Metal
+
+1.	 Embracing Darkness
+2.	 Black Ghost
+3.	 Ghost of Silence
+4.	 Rust
+5.	 Cockroach
+6.	 Lunar Light
+7.	 Frailty
+8.	 Golden Ring
+9.	 Futility's Lullaby
+10.	 Full of Sadness
+11.	 Sorrow Means Madness
+
+### "Jesus Heist" 2008, Metal
+
+1.	 Blessed Blood
+2.	 Blossoms Cry
+3.	 Theme:As:Resurrection:Hades
+4.	 Enthorned
+5.	 Destructive Intelligence
+6.	 Jesus Heist
+7.	 Human Instinct
+8.	 Sepsis
+9.	 Incompletence in Absence	 
+10.	 Cellembraceaeon
+
 
 ## Отношения с другими группами
 

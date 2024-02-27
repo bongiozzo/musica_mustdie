@@ -1,12 +1,93 @@
 # Stryper
 
-Дискография
-"Soldiers Under Command" 1985, Hard Rock
-"To Hell with the Devil" 1986, Hard Rock
-"In God We Trust" 1988, Hard Rock
-"Against the Law" 1990, Hard Rock
-"Reborn" 2005, Hard Rock
-"Murder by Pride" 2009, Hard Rock
+
+
+## Дискография
+
+### "Soldiers Under Command" 1985, Hard Rock
+
+1. Soldiers Under Command 05:03
+2. Makes Me Wanna Sing 02:51
+3. Together Forever 04:03 
+4. First Love 05:43 
+5. The Rock That Makes Me Roll 04:56 
+6. Reach Out 05:21
+7. (Waiting For) A Love That's Real 04:36 
+8. Together As One 05:01 
+9. Surrender 04:28
+10. Battle Hymn Of The Republic 02:36 
+
+### "To Hell with the Devil" 1986, Hard Rock
+
+1. Abyss (To Hell with the Devil) 01:21
+2. To Hell with the Devil 04:08
+3. Calling on You 03:59
+4. Free 03:44 
+5. Honestly 04:10 
+6. The Way 03:37 
+7. Sing-Along Song 04:21 
+8. Holding On 04:16 
+9. Rockin' the World 03:30 
+10. All of Me 03:11 
+11. More Than a Man 04:35 
+
+### "In God We Trust" 1988, Hard Rock
+
+1. In God We Trust 03:56 
+2. Always There For You 04:09  
+3. Keep The Fire Burning 03:35 
+4. I Believe In You 03:17
+5. The Writings On The Wall 04:
+6. It's Up 2 U 03:51
+7. The World Of You And I 03:45
+8. Come To The Everlife 04:09 
+9. Lonely 04:09
+10. The Reign 02:50 
+
+### "Against the Law" 1990, Hard Rock
+
+1. Against the Law 03:49
+2. Two Time Woman 03:40 
+3. Rock the People 03:34
+4. Two Bodies (One Mind, One Soul) 05:17 
+5. Not That Kind of Guy 03:59
+6. Shining Star (Earth, Wind & Fire cover) 04:22
+7. Ordinary Man 03:51 
+8. Lady 04:53
+9. Caught in the Middle 03:48 
+10. All for One 04:31
+11. Rock the Hell Out of You 03:35 
+
+### "Reborn" 2005, Hard Rock
+
+Open Your Eyes 
+Reborn 
+When Did I See You Cry 
+Make You Mine 
+Passion 
+Live Again 
+If I Die 
+Wait For You 
+Rain 
+10 000 Years 
+I.G.W.T.
+
+### "Murder by Pride" 2009, Hard Rock
+
+1. Eclipse For The Son 
+2. 4 Leaf Clover 
+3. Peace Of Mind 
+4. Alive 
+5. The Plan 
+6. Murder By Pride 
+7. Mercy Over Blame 
+8. I Believe 
+9. Run In You 
+10. Love Is Why 
+11. Everything 
+12. My Love (I?ll Always Show) 
+13. My Love My Life My Flame 
+
 
 ## Отношения с другими группами
 

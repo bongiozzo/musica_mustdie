@@ -1,7 +1,19 @@
 # Eon
 
-Дискография
-"Spirals (demo)" 2005, Doom
+
+
+## Дискография
+
+### "Spirals (demo)" 2005, Doom
+
+1. Asphalt Reign 
+2. Spirals 
+3. Noche de Engaсosa Luna 
+4. City of Kings 
+
+
+All arrangements by Eon
+
 
 ## Отношения с другими группами
 

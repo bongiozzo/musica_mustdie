@@ -1,8 +1,25 @@
 # Code
 
-Дискография
-"Nouveau Gloaming" 2005, Black Metal
-"Resplendent Grotesque" 2009, Black Metal
+
+
+## Дискография
+
+### "Nouveau Gloaming" 2005, Black Metal
+
+
+
+### "Resplendent Grotesque" 2009, Black Metal
+
+1. Smother The Crones 04:08
+2. In The Privacy Of Your Own Bones 05:49
+3. The Rattle Of Black Teeth 04:23
+4. Possession Is The Medicine 03:12
+5. Jesus Fever 03:43
+6. I Hold Your Light 04:37
+7. A Sutra Of Wounds 05:31
+8. The Ascendent Grotesque 03:29 
+
+
 
 ## Отношения с другими группами
 

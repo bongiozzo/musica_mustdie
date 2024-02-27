@@ -1,7 +1,37 @@
 # Fermenting Innards
 
-Дискография
-"Myst" 1996, Black Metal
+
+
+## Дискография
+
+### "Myst" 1996, Black Metal
+
+1. Blood And Thunder *
+2. Myst
+3. Those Burning Thorns
+4. Hateful
+5. Transfiguration Of The Withered Beauty
+6. Eternal Sadness
+7. Mourning **
+8. The Rising In Northern Storm
+9. Svartfoldet Hat 
+10.Battles On Ice *
+
+All songs written by Fermenting Innards 
+except * by Mortiis
+         ** by NIRVANA 2002
+Recorded and mixed at Unisound Studios, Orebro.
+Produced by Fermenting Innards.
+Mixed by Dan Swano.
+Engineerind by Dan Swano.
+
+Rico Spiller - Guitars, Bass, Keys, Backing Vocals
+Andreas Hilbert - Guitars, Bass, Key, Backing Vocals
+Marek Kassubeck - Drums, Backing Vocals
+Mario Weinhold - Vocals
+
+(P)c 1996 Invasion Records
+
 
 ## Отношения с другими группами
 

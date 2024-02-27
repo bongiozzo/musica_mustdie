@@ -1,9 +1,21 @@
 # Mistress
 
-Дискография
-"Mistress (re-issue)" 2005, Metal
-"II: The Chronovisor (re-issue)" 2005, Metal
-"In Disgust We Trust" 2005, Death Metal
+
+
+## Дискография
+
+### "Mistress (re-issue)" 2005, Metal
+
+
+
+### "II: The Chronovisor (re-issue)" 2005, Metal
+
+
+
+### "In Disgust We Trust" 2005, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

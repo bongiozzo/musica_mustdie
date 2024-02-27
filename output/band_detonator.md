@@ -1,6 +1,9 @@
 # DetonatoR
 
-Дискография
+Satan Death metal from Krasnoyarsk
+
+## Дискография
+
 
 ## Отношения с другими группами
 

@@ -1,14 +1,210 @@
 # Guns N' Roses
 
-Дискография
-"Appetite For Destruction" 1987, Glam
-"Lies" 1988, Hard Rock
-"Use Your Illusions (Part II)" 1991, Hard Rock
-"Use Your Illusions (Part I)" 1991, Hard Rock
-"Spaghetti Incident" 1993, Hard Rock
-"Live" 1994, Hard Rock
-"Live Era '87-'93" 1999, Hard Rock
-"Chinese Democracy" 2008, Hard Rock
+The Cult Glam Band Around the World!
+
+## Дискография
+
+### "Appetite For Destruction" 1987, Glam
+
+1.  Welcome to the Jungle (4:31) 
+2.  It's So Easy (3:21) 
+3.  Nightrain (4:26) 
+4.  Outta Get Me (4:20) 
+5.  Mr. Brownstone (3:46) 
+6.  Paradise City (6:46) 
+7.  My Michelle (3:39) 
+8.  Think About You (3:50) 
+9.  Sweet Child O' Mine (5:55) 
+10.You're Crazy (3:25) 
+11.Anything Goes (3:25) 
+12.Rocket Queen (6:13)
+
+W.Axl Rose - Lead Vocals, Back Vocals, Synth, Percussion
+Slash - Lead Guitar, Rhythm Guitar, Acoustic Guitar 
+Izzy Stradlin - Lead Guitar, Rhythm Guitar, Back Vocals, Percussion
+Duff 'Rose' McKagan - Bass, Back Vocals
+Steven Adler - Drums
+
+Produced by Mike Clink.
+Mixed By Steve Thompson & Michael Barbiero.
+
+(P)&c 1987 GEFFEN Records
+
+### "Lies" 1988, Hard Rock
+
+1. Reckless Life
+2. Nice Boys
+3. Move To The City
+4. Mama Kim
+5. Patience
+6. Used To Love Her
+7. You're Crazy
+8. One In A Million
+
+W.Axl Rose - Lead Vocals
+Slash - Lead Guitar, Rhythm Guitar, Back Vocals
+Izzy Stradlin - Lead Guitar, Rhythm Guitar, Back Vocals
+Duff 'Rose' McKagan - Bass, Back Vocals
+Steven Adler - Drums, Back Vocals
+
+Produced by GUNS'N'ROSES.
+Mixed By Hans Piter Henber & Allan Niven.
+
+(P)&(C) 1988 GEFFEN Records
+
+### "Use Your Illusions (Part II)" 1991, Hard Rock
+
+1.  Civil War
+2.  14 Years
+3.  Yesterdays
+4.  Knockin' On Heaven's Door
+5.  Get In The Ring
+6.  Shotgun Blues
+7.  Breakdown
+8.  Pretty Tied Up
+9.  Locomotive
+10.So Fine
+11.Estranged
+12.You Could Be Mine
+13.Don't Cry (Alt. Lyrics)
+14.My World
+
+W.Axl Rose - Lead Vocals
+Slash - Lead Guitar
+Izzy Stradlin - Rhythm Guitar
+Duff 'Rose' McKagan - Bass
+Matt Sorum - Drums
+Dizzy Reed - Keyboards 
+
+Track 4 By Bob Dilan.
+Produced by Mike Clink.
+
+(P)c 1991 GEFFEN Records
+
+### "Use Your Illusions (Part I)" 1991, Hard Rock
+
+1.  Right Next Door To Hell
+2.  Dust N' Bones
+3.  Live And Let Die
+4.  Don't Cry (Original)
+5.  Perfect Crime
+6.  You Ain't The First
+7.  Bad Obsession
+8.  Back Off Bitch
+9.  Double Talkin' Jive
+10.November Rain
+11.The Garden
+12.Garden Of Eden
+13.Don't Damn Me
+14.Bad Apples
+15.Dead Horse
+16.Coma
+
+W.Axl Rose - Lead Vocals
+Slash - Lead Guitar
+Izzy Stradlin - Rhythm Guitar
+Duff 'Rose' McKagan - Bass
+Matt Sorum - Drums
+Dizzy Reed - Keyboards 
+Guest Back Vocals by Alice Cooper.
+
+Track 3 By Paul McCartney.
+Produced by Mike Clink.
+
+(P)c 1991 GEFFEN Records
+
+### "Spaghetti Incident" 1993, Hard Rock
+
+1.  Since I Don't Have You
+2.  New Rose
+3.  Down On The Farm
+4.  Human Being
+5.  Raw Power
+6.  Ain't It Fun
+7.  Buick Makane
+8.  Hair Of The Dog
+9.  Attitude
+10.Black Leather
+11.You Can't  Put Your Arms Around A Memory
+12.I Don't Care About You
+
+W.Axl Rose - Lead Vocals, Back Vocals
+Slash - Lead Guitar, Rhythm Guitar
+Gilby Clark - Rhythm Guitar, Lead Guitar
+Duff McKagan - Bass, Lead Vocals, Back Vocals
+Matt Sorum - Drums
+Dizzy Reed - Keyboards, Back Vocals
+
+Produced By Mike Clink And GUNS'N'ROSES.
+
+(P)(C) 1993 GEFFEN Records
+
+### "Live" 1994, Hard Rock
+
+1. Welcome To The Jungle
+2. Mr.Brownstone
+3. Live And Let Die *
+4. Attitude **
+5. Yesterdays Medley:
+  6a. Double Talkin' Jive
+  7b. Civil War
+  8c. Voodoo Chile (Slight Return) ***
+  9d. Civil War
+10.Wild Horses
+11.Patience
+
+All songs by GUNS'N'ROSES, except * By Paul McCartney
+          ** By MISFITS (Danzig)
+        *** By Hendrix
+
+Recorded Live In USA.
+
+(P)(C) 1994 BANANA Records
+
+### "Live Era '87-'93" 1999, Hard Rock
+
+1. Nightrain 
+2. Mr. Brownstone
+3. It's So Easy
+4. Welcome to the Jungle
+5. Dust N' Bones
+6. My Michelle
+7. You're Crazy
+8. Used to Love Her
+9. Patience 
+10. It's Alright
+11. November Rain
+12. Out Ta Get Me 
+13. Pretty Tied up (The Perils of Rock & Roll Decadence)  
+14. Yesterdays
+15. Move to the City
+16. You Could Be Mine 
+17. Rocket Queen 
+18. Sweet Child O' Mine
+19. Knockin' on Heaven's Door
+20. Don't Cry 
+21. Estranged 
+22. Paradise City  
+
+
+
+### "Chinese Democracy" 2008, Hard Rock
+
+01. Chinese Democracy
+02. Scraped
+03. Shackler's Revenge 
+04. Street Of Dreams 
+05. If The World 
+06. Better 
+07. This I Love 
+08. There Was A Time 
+09. Riad N' The Bedovins 
+10. Sorry 
+11. I.R.S. 
+12. Catcher 
+13. Madagascar 
+14. Prostitute 
+
 
 ## Отношения с другими группами
 

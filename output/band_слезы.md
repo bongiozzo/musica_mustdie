@@ -1,9 +1,49 @@
 # Слезы
 
-Дискография
-"Кому Ты Веришь" 2006, Metalcore
-"Семь Отражений И Одна Реальность (EP)" 2008, Metalcore
-"Из Рок-н-ролла Уходят Мертвыми" 2013, Metalcore
+
+
+## Дискография
+
+### "Кому Ты Веришь" 2006, Metalcore
+
+1. In 
+2. Я другой 
+3. Убей 
+4. ... 
+5. Такой как я 
+6. Месть - крест 
+7. Рядом с крысами 
+8. Кто твой Бог 
+9. Забыться... 
+10. Out
+11. Страдать (bonus)
+12. Сойти с ума (bonus)
+
+
+All lyrics by Kokos
+All music and arrangements by СЛЕЗЫ
+Produced by Arty and СЛЕЗЫ
+Engineered by Дима Митрофаненко
+Recorded at DDT, Mixed and mastered by Артем Брагин
+
+Костя 'Kokos' - Vox, Guitars
+Антон 'Satan is my pal' - Drums
+Руслан 'Rusa' - Guitars
+Саша 'Gnom' - Bass
+
+Guests:
+Arty - Programming
+Игорь (AMATORY), Денис (AMATORY) - Вокал
+PJ (KOREA) - Вокал
+
+### "Семь Отражений И Одна Реальность (EP)" 2008, Metalcore
+
+
+
+### "Из Рок-н-ролла Уходят Мертвыми" 2013, Metalcore
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,13 @@
 # Pyre
 
-Дискография
-"Ravenous Decease (EP)" 2013, Death Metal
+
+
+## Дискография
+
+### "Ravenous Decease (EP)" 2013, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

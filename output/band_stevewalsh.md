@@ -1,7 +1,20 @@
 # Steve Walsh
 
-Дискография
-"Shadowman (reissue 2008)" 2005, Progressive
+voice Of Kansas
+
+## Дискография
+
+### "Shadowman (reissue 2008)" 2005, Progressive
+
+01. Rise
+02. Shadowman
+03. Davey and the Stone That Rolled Away
+04. Keep On Knockin’
+05. Pages Of Old
+06. Hell Is Full Of Heroes
+07. After
+08. The River
+
 
 ## Отношения с другими группами
 

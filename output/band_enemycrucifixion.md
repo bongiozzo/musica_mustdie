@@ -1,7 +1,13 @@
 # Enemy Crucifixion
 
-Дискография
-"Core of Humanity" 2016, Death Metal
+
+
+## Дискография
+
+### "Core of Humanity" 2016, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

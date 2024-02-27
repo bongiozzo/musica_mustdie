@@ -1,13 +1,111 @@
 # Cryptopsy
 
-Дискография
-"Blasphemy Made Flesh" 1995, Deathcore
-"None So Vile" 1996, Deathcore
-"Whisper Supremacy" 1998, Deathcore
-"And Then You'll Beg" 2000, Deathcore
-"None So Live" 2003, Death Metal
-"Once Was Not" 2005, Death Metal
-"The Unspoken King" 2008, Metalcore
+Intense Brutal Deathcore
+
+## Дискография
+
+### "Blasphemy Made Flesh" 1995, Deathcore
+
+1- Defenestration 
+2- Abigor
+3- Open Face Surgery
+4- Serial Messiah
+5- Born Headless
+6- Swine the Cross
+7- Gravaged (a Cryptopsy)
+8- Memories of Blood
+9- Mutant Christ 
+10- Pathological Frolic 
+
+Produced by Cryptopsy
+Engineered by Rod Shearer
+Recorded and mixed at Piranha Studio, april 1994
+Artwork by Dragon design (upper)
+
+
+
+
+### "None So Vile" 1996, Deathcore
+
+1- Crown of Horns
+2- Slit your Guts
+3- Graves of the Fathers
+4- Dead and Dripping
+5- Benedictine Convulsion
+6- Phobophile
+7- Lichmistress
+8- Orgiastic Disembowelment
+
+Produced by Pierre Remillard and Cryptopsy
+Engineered by Pierre Remillard
+Recorded and mixed at Victor Studio, December 1995 - January 1996
+Cover artwork by Elizabeth Sirani
+
+
+### "Whisper Supremacy" 1998, Deathcore
+
+1- Emaciate
+2- Cold Hate, Warm Blood
+3- Loathe
+4- White Worms
+5- Flame to the Surface
+6- Depths you've Fallen
+7- Faceless Unknown
+8- Serpent's Coil 
+
+Produced by Pierre Remillard and Cryptopsy
+Engineered by Pierre Remillard
+Recorded and mixed at Victor Studio, June 1998
+Artwork by Francois Quevillon
+Century Media Records (1998) 
+
+
+### "And Then You'll Beg" 2000, Deathcore
+
+1- ...And Then It Passes
+2- We Bleed
+3- Voice of Unreason
+4- My Prodigal Sun
+5- Shroud
+6- Soar and Envision Sore Vision
+7- Equivalent Equilibrium
+8- Back to the Worms
+9- Screams go Unheard
+
+Produced by Pierre Remillard and Cryptopsy
+Engineered by Pierre Remillard
+Assistant engineer : Louis Legault
+Recorded and mixed at Victor Studio, Summer 2000 
+Mastered by George Graves at Lacquer Channel, Toronto
+Technical adviser : Dave Galea
+Design, illlustration and photography by Francois Quevillon
+Century Media Records (2000) 
+
+
+
+
+### "None So Live" 2003, Death Metal
+
+
+
+### "Once Was Not" 2005, Death Metal
+
+1. Luminum 
+2. In The Kingdom Where Everything Dies,The Sky Is Mortal 
+3. Carrionshine 
+4. Adeste Infidelis 
+5. The Curse Of The Great 
+6. The Frantic Pace Of Dying 
+7. Keeping The Cadaver Dogs Busy 
+8. Angelskingarden 
+9. The Pestilence That Walketh In Darkness (Psalm 91 : 5-8) 
+10. The End 
+11. Endless Cemetery
+
+### "The Unspoken King" 2008, Metalcore
+
+
+
 
 ## Отношения с другими группами
 

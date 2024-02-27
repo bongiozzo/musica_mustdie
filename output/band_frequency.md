@@ -1,8 +1,33 @@
 # Frequency
 
-Дискография
-"When Dream and Fate Collide" 2006, Heavy Metal
-"Compassion Denied" 2008, Heavy Metal
+
+
+## Дискография
+
+### "When Dream and Fate Collide" 2006, Heavy Metal
+
+1. Oblivion	 
+2. Pitch Black		 
+3. Distant Light	 
+4. Time	 
+5. When Dream and Fate Collide 
+6. Facing Destiny	 
+7. Fire and Steel	 
+8. The Wicked is Born	 
+9. Dimension for the Week
+
+### "Compassion Denied" 2008, Heavy Metal
+
+1. Compassion Denied	 
+2. Agony Is My Name	 
+3. Beginning Of The End	 
+4. Life After Hell	 
+5. Your Pain Is My Guide	 
+6. Act Of God	 
+7. Spirit In Black	 
+8. Alive	 
+9. New World Era
+
 
 ## Отношения с другими группами
 

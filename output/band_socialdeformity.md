@@ -1,7 +1,30 @@
 # Social Deformity
 
-Дискография
-"Grotesque Depravity" 2001, Grindcore
+
+
+## Дискография
+
+### "Grotesque Depravity" 2001, Grindcore
+
+Intro
+The Asphyxia Foetys
+Cenotaph
+Walpurgis night
+Left To Die
+Pulled Out Of The Grave
+The Deserted Chapel Manuscripts
+Opening The Casket
+Truth In Murder
+Blood For Blood
+Burial Ground
+Meat Machine
+The Realm Of Dumb Silence
+Topwards Death
+Outro
+
+Recorded at ADJ Studio
+Mastered at Frozen Records
+
 
 ## Отношения с другими группами
 

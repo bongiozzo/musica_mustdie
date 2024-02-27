@@ -1,8 +1,40 @@
 # Morbid Saint
 
-Дискография
-"Spectrum Of Death" 1988, Thrash
-"Spectrum Of Death (re-issue)" 2008, Thrash
+
+
+## Дискография
+
+### "Spectrum Of Death" 1988, Thrash
+
+1. Lock Up Your Children
+2. Burned At The Stake
+3. Assassin
+4. Damien
+5. Crying For Death
+6. Spectrum
+7. Scars
+8. Beyond The Gates Of Hell
+
+ Pat Lind  - Vocals
+ Jay Visser  - Guitar
+ Jim Fergades - Guitar
+ Mike Chappa - Bass
+ Lee Reynolds - Drums
+
+All Song Written By MORBID SAINT.
+Produced By Eric "Griffy" Greif.
+Engineered By Al Pangelinan.
+Mixed By "Griffy" & A.
+Recorded & Mixed At Opus Recording,Gurnee,
+Illinois/USA.
+
+(p)&(c) 1992 RED LIGHT Entertainment Group,Inc.
+                        GRIND CORE Records
+
+### "Spectrum Of Death (re-issue)" 2008, Thrash
+
+
+
 
 ## Отношения с другими группами
 

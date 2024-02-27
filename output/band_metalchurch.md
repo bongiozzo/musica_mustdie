@@ -1,20 +1,217 @@
 # Metal Church
 
-Дискография
-"Metal Church" 1985, Thrash
-"The Dark" 1986, Thrash
-"Blessing In Disguise" 1989, Thrash
-"The Human Factor" 1991, Thrash
-"Hanging In The Balance" 1993, Thrash
-"Live" 1998, Thrash
-"Masterpeace" 1999, Thrash
-"The Weight of the World" 2004, Heavy Metal
-"A Light In The Dark" 2006, Heavy Metal
-"This Present Wasteland" 2008, Heavy Metal
-"Generation Nothing" 2013, Heavy Metal
-"Badlands (single)" 2015, Heavy Metal
-"XI" 2016, Heavy Metal
-"Classic Live" 2017, Heavy Metal
+
+
+## Дискография
+
+### "Metal Church" 1985, Thrash
+
+1.  Beyond The Black
+2.  Metal Church
+3.  Merciless Onslaught
+4.  Gods Of Wrath
+5.  Hitman
+6.  In The Blood
+7.  My Favourite
+8.  Battalions
+9.  Highway Star
+
+(P)&c 1985 ELECTRA Records
+
+### "The Dark" 1986, Thrash
+
+1.  Town Of Bricks
+2.  Start The Fire
+3.  Method To Your Madness
+4.  Watch The Children Pray
+5.  Over My Dead Body
+6.  The Dark
+7.  Psycho
+8.  Line Of Death
+9.  Burial At Sea
+10.  Western Alliance
+
+(P)&c 1986 ELECTRA Records
+
+### "Blessing In Disguise" 1989, Thrash
+
+1.  Fake Healer
+2.  Rest In Pieces
+3.  Of Unsound
+4.  Badlands
+5.  Blessing In Disguise
+6.  The Spell Can't Be Broken
+7.  It's A Secret
+8.  Cannot Tell A Lie
+9.  The Powers That Be
+
+(P)&c 1989 ELECTRA Records
+
+### "The Human Factor" 1991, Thrash
+
+1.  The Human Factor
+2.  Date With Poverty
+3.  The Final Word
+4.  In Mourning
+5.  In Harm's Way
+6.  In Due Time
+7.  Agent Green
+8.  Free From Reality
+9.  Betrayed
+10.  The Fight Song
+
+(P)&c 1991ELECTRA Records
+
+### "Hanging In The Balance" 1993, Thrash
+
+1.  Gods Of Second Chance
+2.  Losers In The Game
+3.  Hypnotized
+4.  No Friend Of Mine
+5.  Waiting For A Savior
+6.  Conductor
+7.  Little Boy
+8.  Down To The River
+9.  End Of A Age
+10.  Lovers And Madman
+11.  A Subtle War
+
+(P)&c 1993 ELECTRA Records
+
+### "Live" 1998, Thrash
+
+1. Ton Of Bricks
+2. Hitman
+3. Start The Fire
+4. Gods Of Wrath
+5. The Dark
+6. Psycho
+7. Watch The Children Pray
+8. Beyond The Black
+9. Metal Church
+10. Highway Star
+
+### "Masterpeace" 1999, Thrash
+
+1. Sleeps With Thunder
+2. Falldown
+3. Into Dust
+4. Kiss For The Dead
+5. Lb. Of Cure
+6. Faster Than Life
+7. Masterpeace
+8. All Your Sorrows
+9. They Signed In Blood
+10. Toys In The Attic
+11. Sand Kings
+
+### "The Weight of the World" 2004, Heavy Metal
+
+01. Leave Them Behind (5:45) 
+02. Weight Of The World (5:21) 
+03. Hero's Soul (4:42) 
+04. Madman's Overture (8:34) 
+05. Sunless Sky (5:26) 
+06. Cradle To Grave (5:54) 
+07. Wings Of Tomorrow (6:16) 
+08. Time Will Tell (5:08) 
+09. Bomb To Drop (4:04) 
+10. Blood Money (5:06)
+
+### "A Light In The Dark" 2006, Heavy Metal
+
+1. A Light In The Dark
+2. Beyond All Reason
+3. Mirror Of Lies
+4. Disappear
+5. The Believer
+6. Temples OF The Sea
+7. Pill For The Kill
+8. Son Of The Son
+9. More Than Your Master
+10. Blinded By Life
+11. Watch The Children Pray 2006 (For David Wayne)
+
+### "This Present Wasteland" 2008, Heavy Metal
+
+1. The Company Of Sorrow
+2. The Perfect Crime
+3. Deeds Of A Dead Soul
+4. Meet Your Maker
+5. Monster
+6. Crawling To Extinction
+7. A War Never Won
+8. Mass Hysteria
+9. Breathe Again
+10. Congregation
+
+### "Generation Nothing" 2013, Heavy Metal
+
+1. Bulletproof
+2. Dead City
+3. Generation Nothing
+4. Noises In The Wall
+5. Jump The Gun
+6. Suiciety
+7. Scream
+8. Hits Keep Commin'
+9. Close To The Bone
+10. The Media Horse
+
+### "Badlands (single)" 2015, Heavy Metal
+
+1. Badlands (2015)  07:29
+
+This is a re-recording of "Badlands", originally taken from the album Blessing in Disguise.
+
+Kurdt Vanderhoof - Guitars  
+Mike Howe - Vocals  
+Steve Unger - Bass  
+Jeff Plate - Drums  
+Rick van Zandt - Guitars  
+
+ 
+
+### "XI" 2016, Heavy Metal
+
+Disc 1  
+01. Reset  03:54    
+02. Killing Your Time  05:06   
+03. No Tomorrow  05:08   
+04. Signal Path  07:12  
+05. Sky Falls In  07:01    
+06. Needle and Suture  04:38  
+07. Shadow  04:08  
+08. Blow Your Mind  06:28  
+09. Soul Eating Machine  04:41  
+10. It Waits  05:15   
+11. Suffer Fools  04:54    
+  
+Disc 2  
+01. The Coward  04:13  
+02. Blister Fist   03:30   
+03. God Hit   04:04   
+04. The Enemy Mind  03:09  
+05. Signal Path (Radio edit)   04:28  
+06. Badlands (2015 version)   07:22
+07. Shadow (Demo version)   04:22  
+08. No Tomorrow (Alt mix)   04:45  
+
+
+### "Classic Live" 2017, Heavy Metal
+
+01. Beyond The Black
+02. Date With Poverty
+03. Gods Of A Second Chance
+04. In Mourning
+05. Watch The Children Pray
+06. Start The Fire
+07. No Friend Of Mine
+08. Badlands
+09. Human Factor
+10. Fake Healer (bonus studio track) (feat. Todd La Torre)
+11. Badlands (2015 studio version) (vinyl version only)
+
 
 ## Отношения с другими группами
 

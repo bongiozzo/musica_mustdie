@@ -1,10 +1,59 @@
 # Arbitrator
 
-Дискография
-"Kill Their Religion" 1998, Thrash
-"Voice of the dead" 2004, Thrash
-"Children of Apocalypse" 2007, Thrash
-"Peace by Force" 2010, Thrash
+
+
+## Дискография
+
+### "Kill Their Religion" 1998, Thrash
+
+1. Inhumanity
+2. Hard Hearted
+3. In a Nunnery
+4. Sansara's Wheel
+5. Icefire
+6. Anchorite
+7. The Rain and the Pain (the song of hate)
+8. E.S.T (Envy Strangles Them)
+9. Kill Their Relgion
+
+### "Voice of the dead" 2004, Thrash
+
+1) Against The World
+2) Voice of The Dead
+3) Peacemakers' Mission
+4) Under Fire
+5) The Arabian Dance
+6) Gorgons Born
+7) Recreation
+8) No Fate!
+9) The Cloven Hoof
+10) The Powderkeg
+
+### "Children of Apocalypse" 2007, Thrash
+
+1. The March (Intro)	 
+2. World Under Control
+3. Hogs of War
+4. Firestorm
+5. Little Boy
+6. Bombracer
+7. The Victim
+8. Enola Gay
+9. Execution
+10. The Candlelight	 
+11. Children of Apocalypse
+
+### "Peace by Force" 2010, Thrash
+
+1. Bodyhunters	 
+2. Superbomb	 
+3. The Hell of Hiroshima	 
+4. Novaya Zemlya	 
+5. Ashes of Death	 
+6. Hibakusha	 
+7. Dropshot	 
+8. The Paper Crane
+
 
 ## Отношения с другими группами
 

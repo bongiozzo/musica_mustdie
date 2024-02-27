@@ -1,10 +1,80 @@
 # Impetigo
 
-Дискография
-"Ultimo Mondo Cannibale" 1990, Grindcore
-"Faceless (EP)" 1991, Grindcore
-"Buio Omega (EP)" 1991, Grindcore
-"Horror Of The Zombies" 1992, Grindcore
+
+
+## Дискография
+
+### "Ultimo Mondo Cannibale" 1990, Grindcore
+
+1. Maggots
+2. Dis-Organ-Ised
+3. Intense Mortification
+4. Revenge Of The Scabby Man
+5. Venereal Warts. Part III
+6. Bloody Pit Of Horror
+7. Dear Uncle Creepy
+8. Bitch Death Teenage Mucous Monster From Hell
+9. Zombie
+10.Jane Fonda Sucks. Part II
+11.Red Wigglers
+12.Harbinger Of Death
+13.Unadulterated Brutality
+14.Mortado
+15.Heart Of Illinois
+16.My Lai
+
+ Stevo - Bass,Vocals
+ Mark - Guitar
+ Scott - Guitar
+ Dan - Drums
+
+All Music & Lyrics Written By Stevo
+All Songs Deranged By Impetigo
+
+(p)&(c) 1990 WILD RAGS Productions
+
+
+### "Faceless (EP)" 1991, Grindcore
+
+1. Sinister Urge
+2. Faceless
+3. Dis-Organ-Ised
+4. Bloody Pit Of Horror
+5. Mortado
+
+Produced By IMPETIGO & Dave Joost.
+
+(p)&(c) 1991 WILD RAGS Records
+
+### "Buio Omega (EP)" 1991, Grindcore
+
+
+
+### "Horror Of The Zombies" 1992, Grindcore
+
+1. Boreyard
+2. I Work For The Streetcleaner
+3. Wizard Of Gore
+4. Mortuaria
+5. Cannibale Ballet
+6. Trap Them And Kill Them
+7. Cannibal Lust
+8. Defiling The Grave
+9. Staph Terrorist
+10.Breakfast At Manchester Morgue
+
+ Stevo - Bass,Vocals
+ Mark - Guitar
+ Scott - Guitar
+ Dan - Drums
+
+All Songs Written By IMPETIGO.
+Recorded August 1991 At Pogo Studio,
+Giampaign,IL.
+Produced By Dave Joost,Mark Rubel & IMPETIGO.
+
+(p)&(c) 1992 WILD RAGS Productions
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,44 @@
 # Arwen
 
-Дискография
-"Memories Of A Dream" 2002, Power Metal
-"Illusions" 2004, Power Metal
+
+
+## Дискография
+
+### "Memories Of A Dream" 2002, Power Metal
+
+01 Transcendental Overture
+02 Dreamland 
+03 Between Love And Pain
+04 Time's Gate 
+05 Alone 
+06 So High 
+07 Woodheart Interlude 
+08 Once Upon A Time 
+09 Eternally 
+10 At The End 
+11 New Life 
+
+
+
+Recorded at Cube Studios
+Mastered by Mika Jussila at Finnvox
+Cover artwork by Kris Verwimp 
+
+
+Nacho Ruiz: Vocals
+Jose A. Garrido: Guitar
+Alberto Avilйs: Guitar
+Luis M. Hernandez : Bass 
+M. Carmen Castaсo: Backing Vocals 
+Rosalva Alonso: Keyboards
+Jonathan Zapatero: Keyboards 
+Nacho Arriaga: Drums 
+
+
+### "Illusions" 2004, Power Metal
+
+
+
 
 ## Отношения с другими группами
 

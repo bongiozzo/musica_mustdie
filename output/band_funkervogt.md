@@ -1,14 +1,41 @@
 # Funker Vogt
 
-Дискография
-"Thanks for nothing" 1996, Synthpop
-"We came to kill" 1997, Synthpop
-"Execution tracks" 1998, Synthpop
-"Maschine zeit" 2000, Synthpop
-"Revivor" 2003, Synthpop
-"Survivor" 2003, Synthpop
-"Navigator" 2005, Synthpop
-"Always And Forever volume 2 (2 CD)" 2006, Synthpop
+
+
+## Дискография
+
+### "Thanks for nothing" 1996, Synthpop
+
+
+
+### "We came to kill" 1997, Synthpop
+
+
+
+### "Execution tracks" 1998, Synthpop
+
+
+
+### "Maschine zeit" 2000, Synthpop
+
+
+
+### "Revivor" 2003, Synthpop
+
+
+
+### "Survivor" 2003, Synthpop
+
+
+
+### "Navigator" 2005, Synthpop
+
+
+
+### "Always And Forever volume 2 (2 CD)" 2006, Synthpop
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,10 +1,36 @@
 # Quartz
 
-Дискография
-"Quartz" 1977, Heavy Metal
-"Stand Up and Fight" 1980, Heavy Metal
-"Against All Odds" 1983, Heavy Metal
-"Fear No Evil" 2016, Heavy Metal
+
+
+## Дискография
+
+### "Quartz" 1977, Heavy Metal
+
+
+
+### "Stand Up and Fight" 1980, Heavy Metal
+
+
+
+### "Against All Odds" 1983, Heavy Metal
+
+
+
+### "Fear No Evil" 2016, Heavy Metal
+
+01 Fear No Evil
+02 Rock Bottom
+03 The Stalker
+04 Rapture
+05 Zombie Resurrection
+06 Barren Land
+07 Walking on Holy Water
+08 Dangerous Game
+09 Born to Rock the Nation
+10 Riot in the City
+11 Dead Man's World
+12 Scream at the Devil
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,17 @@
 # Sadistic Grimness
 
-Дискография
-"Vicious Torture" 2004, Black Metal
-"Asteni" 2009, Black Metal
+
+
+## Дискография
+
+### "Vicious Torture" 2004, Black Metal
+
+
+
+### "Asteni" 2009, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

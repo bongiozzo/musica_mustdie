@@ -1,8 +1,39 @@
 # Brick Bath
 
-Дискография
-"Scarred" 1996, Metal
-"I Won't Live The Lie" 2001, Metal
+(ex-Epitaph)
+
+## Дискография
+
+### "Scarred" 1996, Metal
+
+
+
+### "I Won't Live The Lie" 2001, Metal
+
+1. Inner Peace
+2. Bone Dry
+3. Pain My Friend
+4. Sick Of You
+5. Undone
+6. I Won't Live The Lie
+7. Crucified
+8. Simple Life
+9. So Wrong
+10. Opression Kills
+11. Need
+12. Legacy
+13. Erased
+14. Die Alone
+
+
+Line-up:
+Joseph McCaw - vocals
+Eric Meyer - guitars
+Pete Stone - bass
+Scott Babbel - drums
+
+
+
 
 ## Отношения с другими группами
 

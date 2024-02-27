@@ -1,8 +1,55 @@
 # Myriads
 
-Дискография
-"In Spheres without time" 1999, Death Doom
-"Introspection" 2002, Death Doom
+melancholic doom-death metal
+
+## Дискография
+
+### "In Spheres without time" 1999, Death Doom
+
+1. Fragments of the hereafter - 10:20
+2. The day of wrath - 7:14
+3. Spheres without time - 11:38
+4. Seductive hate - 8:26
+5. Dreams of reality - 7:35
+
+
+Line up :
+Alexander Twiss - Guitars/Vocals
+Mona Undheim Skottene - Lead piano/Keyboard/Vocals
+Mikael Stokdal - Lead keyboard/Piano/Vocals
+J.P. - Guitars
+Rudi Jьnger - Drums/Percussion 
+
+Additional musicians:
+Torp - Bass guitar
+Knud Kleppe - Bass guitar 
+
+
+### "Introspection" 2002, Death Doom
+
+1. Enigmatic Colours of the Night
+2. Miserere Mei
+3. Inside
+4. The Sanctum of My Soul
+5. Portal to the Mind
+6. Falling in the Equinox
+7. Flickering Thoughts
+8. Encapsulated
+9. The Ascent 
+
+
+Line up:
+
+Alexander Twiss – Clean-vocals, death-vocals, electric guitar, and acoustic steel- and nylon-string guitars
+Mona Undheim Skottene - Vocals, main-piano and keyboard
+J.P. - Electric guitar, and acoustic steel- and nylon-string guitars
+Rudi Jьnger - Drums and percussion
+Mikael Stokdal - Black-vocals, keyboard and piano
+
+Additional musicians:
+Torp - Bass guitar
+
+
 
 ## Отношения с другими группами
 

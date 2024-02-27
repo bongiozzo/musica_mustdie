@@ -1,7 +1,24 @@
 # Ignea
 
-Дискография
-"The Sign of Faith" 2017, Progressive
+female fronted sympho metal from Ukraine
+
+## Дискография
+
+### "The Sign of Faith" 2017, Progressive
+
+1. Seytanu Akbar  04:40    
+2. Alexandria  03:57    
+3. Petrichor (feat. Yossi Sassi) 03:32  
+4. Theatre of Denial  04:18 
+5. Jahi  07:36  
+6. Halves Rupture  04:04 
+7. Last Chosen by You  02:57  
+8. Alga  06:17    
+9. How I Hate the Night  03:22  
+10. Leviathan  04:53    
+11. Sputnik (Xes Dreams Version)  02:52  
+
+
 
 ## Отношения с другими группами
 

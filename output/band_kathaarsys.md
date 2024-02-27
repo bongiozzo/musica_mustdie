@@ -1,7 +1,18 @@
 # Kathaarsys
 
-Дискография
-"Portrait of Wind and Sorrow" 2005, Black Metal
+
+
+## Дискография
+
+### "Portrait of Wind and Sorrow" 2005, Black Metal
+
+1. Perennial Forest of Winter 11:09
+2. Gnostic Seasons 09:52
+3. Epic Pagan Times 10:29
+4. Portrait of Wind of Sorrow 10:18 
+5. Walk the Mist In the Lack 11:41 
+6. Nectar In the Nocturnal River 12:02 
+
 
 ## Отношения с другими группами
 

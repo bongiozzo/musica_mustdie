@@ -1,8 +1,28 @@
 # Girls Under Glass
 
-Дискография
-"Equilibrium" 1999, Gothic
-"Zyklus" 2005, Gothic
+gothic rock
+
+## Дискография
+
+### "Equilibrium" 1999, Gothic
+
+
+
+### "Zyklus" 2005, Gothic
+
+01.In Die Einsamkeit - 3:56
+02.Touch Me - 4:20
+03.Ohne Dich - 3:57
+04.Truly Living - 4:00
+05.Deliverance - 4:18
+06.Whatever Makes You Happy - 3:35
+07.Under My Skin - 3:37
+08.Love Is in My World - 4:03
+09.Feuerengel - 4:05
+10.Wonderworld - 4:29
+11.In the Darkness - 5:23
+12.I'm Alive - 4:50
+
 
 ## Отношения с другими группами
 

@@ -1,10 +1,25 @@
 # The Foreshadowing
 
-Дискография
-"Days of Nothing" 2007, Doom
-"Oionos" 2010, Doom
-"Second World" 2012, Doom
-"Seven Heads Ten Horns" 2016, Doom
+
+
+## Дискография
+
+### "Days of Nothing" 2007, Doom
+
+
+
+### "Oionos" 2010, Doom
+
+
+
+### "Second World" 2012, Doom
+
+
+
+### "Seven Heads Ten Horns" 2016, Doom
+
+
+
 
 ## Отношения с другими группами
 

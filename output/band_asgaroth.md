@@ -1,8 +1,37 @@
 # Asgaroth
 
-Дискография
-"The Quest For Eldenhor" 1996, Black Metal
-"Absence Spells Beyond" 2000, Black Metal
+
+
+## Дискография
+
+### "The Quest For Eldenhor" 1996, Black Metal
+
+1. Legends Of The Great Magic War
+2. The Freezing Winds Of Kiljaarn
+3. The Last Battle (Tower Of Doom)
+4. Soul Scream
+5. The Return Of The Hero
+
+(P)(C) 1996 REQUIEM Records // NGR 002
+
+### "Absence Spells Beyond" 2000, Black Metal
+
+Strenghtened are the stems of Nasturtium
+Sinking trails of wisdom
+Absence Spells Beyond...
+Epitaph...
+Cry the way we greet our fates
+Victorious men of earth
+Omens (presagios)
+A call in the winds...
+The dark force
+Last Battle (tower of doom)
+Lost in Natura
+The choirs of the elemental deities
+Prelude in dusk
+Placious echoes at darkwoods you greet... ...Silvering moon between my shadows
+Outroduction
+
 
 ## Отношения с другими группами
 

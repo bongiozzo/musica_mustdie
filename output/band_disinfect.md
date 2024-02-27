@@ -1,8 +1,33 @@
 # Disinfect
 
-Дискография
-"Beinspender" 2001, Death Metal
-"Screams Of Pleasure" 2009, Death Metal
+brutal death from Germany
+
+## Дискография
+
+### "Beinspender" 2001, Death Metal
+
+1. Beinspender  02:07
+2. One Night Steak  01:53 
+3. Darmmanifest  03:40   
+4. After Killing  02:33
+5. LII A5  03:49 
+6. Inner Fear  02:54  
+7. Grave New World  03:08   
+8. Menschenfeind  02:56  
+9. Foxy Disintegration  02:32 
+
+### "Screams Of Pleasure" 2009, Death Metal
+
+01. Casket Born
+02. Screams Of Pleasure
+03. Slow Torture
+04. Ritual Sexual Abuse
+05. Nordic Thunder
+06. Declared To Death
+07. Melted By Heat
+08. Human Scum
+09. Foxy Disintegration
+
 
 ## Отношения с другими группами
 

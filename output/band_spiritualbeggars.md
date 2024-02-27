@@ -1,15 +1,174 @@
 # Spiritual Beggars
 
-Дискография
-"Spiritual Beggars" 1994, Stoner
-"Another Way To Shine" 1996, Stoner
-"Mantra III" 1998, Stoner
-"Ad Astra" 2000, Stoner
-"On Fire" 2002, Stoner
-"Demons" 2005, Stoner
-"Return To Zero" 2010, Stoner
-"Earth Blues" 2013, Stoner
-"Sunrise To Sundown" 2016, Stoner
+(Ex-Carcass)
+
+## Дискография
+
+### "Spiritual Beggars" 1994, Stoner
+
+1. Yearly Dying (03:57)
+2. Pelekas (04:12)
+3. The Space In Between (03:57)
+4. If This Is All (04:46)
+5. Under Silence (03:59)
+6. Magnificient Obsession (09:11) 
+
+### "Another Way To Shine" 1996, Stoner
+
+1. Magic Spell
+2. Blind Mountain
+3. Misty Valley
+4. Picking From The Box
+5. Nowhere To Go
+6. Entering Into Peace
+7. 5our Stains
+8. Past The Sound Of Whispers
+
+All songs written by SPIRITUAL
+BEGGARS.
+Produced by Berno Paulsen and
+SPIRITUAL BEGGARS.
+Engineered by  Berno Paulsen.
+Recorded & mixed at Berno Studio,
+Malmo.
+
+Spice - Bass and Vocals
+Ludwig Witt - Drums
+Michael Amott - All Guitars
+
+(p)(c) 1996 MUSIC FOR NATIONS
+
+### "Mantra III" 1998, Stoner
+
+01.   Superbossanova (Spice/Spiritual Beggars) - 1:42 
+02.   Homage to the Betrayed (SpiSpiritual ce/Beggars) - 3:02 
+03.   Monster Astronauts (Spice/Spiritual Beggars) - 3:41 
+04.   Euphoria (Spice/Spiritual Beggars) - 5:56 
+05.   Broken Morning (Spice/Spiritual Beggars) - 2:25 
+06.   Lack of Prozac (Spice/Spiritual Beggars) - 5:32 
+07.   Bad Karma (Spice/Spiritual Beggars) - 4:00 
+08.   Send Me a Smile (Spice/Spiritual Beggars) - 6:27 
+09.   Cosmic Romance (Spice/Spiritual Beggars) - 2:53 
+10.   Inside Charmer (Spice/Spiritual Beggars) - 4:47 
+11.   Sad Queen Boogie (Spice/Spiritual Beggars) - 4:53 
+12.   Mushroom Tea Girl (Spice/Spiritual Beggars) - 8:35 
+13.   The Band Is Playing [*] (Spice/Spiritual Beggars) - 5:32 
+14.   Redwood Blues [*] (Spice/Spiritual Beggars/Witt) - 4:15 
+15.   Euphoria [*] (Spice/Spiritual Beggars) - 5:56 
+
+Spiritual Beggars  -  Arranger 
+Fredrik Nordstrom  -  Producer, Engineer 
+Michael Amott  -  Guitar 
+Anders Fridon  -  Engineer 
+Jan Anderson  -  Mastering 
+Gцran Finnberg  -  Remastering 
+Mez  -  Artwork, Concept 
+Ludwig Witt  -  Drums 
+
+
+
+### "Ad Astra" 2000, Stoner
+
+01.   Left Brain Ambassadors (Spice/Spiritual Beggars) - 3:17 
+02.   Wonderful World (Spice/Spiritual Beggars) - 4:01 
+03.   Sedated (Spice/Spiritual Beggars) - 4:19 
+04.   Angel of Betrayal (Spice/Spiritual Beggars) - 3:41 
+05.   Blessed (Spice/Spiritual Beggars) - 3:33 
+06.   Per Aspera Ad Astra (Spice/Spiritual Beggars) - 4:11 
+07.   Save Your Soul (Spice/Spiritual Beggars) - 3:57 
+08.   Until the Morning (Spice/Spiritual Beggars) - 6:04 
+09.   Escaping the Fools (Spice/Spiritual Beggars) - 5:24 
+10.   On Dark Rivers (Spice/Spiritual Beggars) - 5:35 
+11.   The Goddess (Spice/Spiritual Beggars) - 3:17 
+12.   Mantra (Spice/Spiritual Beggars) - 6:49 
+13.   Let the Magic Talk (Spice/Spiritual Beggars) - 5:39 
+14.   It's Over (Spice/Spiritual Beggars) - 4:44 
+
+
+ 
+Fredrik Nordstrom  -  Synthesizer, Producer, Engineer, Mixing 
+Michael Amott  -  Guitar, Guitar (Rhythm), Slide Guitar, Mixing 
+Christopher Amott  -  Slide Guitar 
+Gцran Finnberg  -  Mastering 
+Tony Hunter  -  Photography 
+Per Wiberg  -  Organ, Harmonica, Vocals (bckgr), Mellotron, Fender Rhodes, Piano (Grand) 
+Ludwig Witt  -  Cymbals, Drums, Tambourine 
+
+
+### "On Fire" 2002, Stoner
+
+1. Street Fighting Saviours 04:22
+2. Young Man, Old Soul 03:17
+3. Killing Time 03:36
+4. Fools Gold 04:01
+5. Black Feathers 06:29
+6. Beneath the Skin 03:51
+7. Fejee Mermaid 01:58  
+8. Dance of the Dragon King 03:04
+9. Tall Tales 04:27
+10. The Lunatic Fringe 05:18
+11. Look Back 05:26 
+
+### "Demons" 2005, Stoner
+
+1. Inner Strength (Intro) 1:19
+2. Throwing Your Life Away 3:32
+3. Salt In Your Wounds 3:19
+4. One Man Army 3:57
+5. Through The Halls 5:08
+6. Treading Water 3:33
+7. Dying Every Day 5:45
+8. Born To Die 4:34
+9. Born To Die (Reprise) 1:21
+10. In My Blood 4:13
+11. Elusive 3:33
+12. Sleeping With One Eye Open 3:44
+13. No One Heard 5:02
+
+### "Return To Zero" 2010, Stoner
+
+1. Return To Zero (Intro) 00:52  
+2. Lost In Yesterday 04:48
+3. Star Born 03:06
+4. The Chaos Of Rebirth 05:21
+5. We Are Free 03:23 
+6. Spirit Of The Wind 05:51
+7. Coming Home 03:25
+8. Concrete Horizon 06:01
+9. A New Dawn Rising 04:41
+10. Believe In Me 06:40  
+11. Dead Weight 04:51
+12. The Road Less Travelled 03:45 
+
+### "Earth Blues" 2013, Stoner
+
+01. Wise As A Serpent
+02. Turn The Tide
+03. Sweet Magic Pain
+04. Hello Sorrow
+05. One Man's Curse
+06. Dreamer
+07. Too Old To Die Young
+08. Kingmaker
+09. Road To Madness
+10. Dead End Town
+11. Freedom Song
+12. Legends Collapse
+
+### "Sunrise To Sundown" 2016, Stoner
+
+01. Sunrise To Sundown
+02. Diamond Under Pressure
+03. What Doesn’t Kill You
+04. Hard Road
+05. Still Hunter
+06. No Man’s Land
+07. I Turn To Stone
+08. Dark Light Child
+09. Lonely Freedom
+10. You’ve Been Fooled
+11. Southern Star
+
 
 ## Отношения с другими группами
 

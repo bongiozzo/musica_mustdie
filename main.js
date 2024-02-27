@@ -64,7 +64,8 @@ async function main() {
                 element['messages'] = await conn.query(messages_sql, [element.topic_id]);
             }
             let filename = get_filename(band.band);
-            fs.writeFileSync(`output/band_${filename}.md`,(Mustache.render(band_template, { band : band.band,  
+            fs.writeFileSync(`output/band_${filename}.md`,(Mustache.render(band_template, { band : band.band,
+                                                                                     description : band.description,
                                                                                           albums : albums, 
                                                                                        relations : relations, 
                                                                                           topics : topics,

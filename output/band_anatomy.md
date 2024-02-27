@@ -1,7 +1,31 @@
 # Anatomy
 
-Дискография
-"Where Angels Die" 1996, Black Metal
+
+
+## Дискография
+
+### "Where Angels Die" 1996, Black Metal
+
+1. Last Pleasures For Those Of The Apocalypse Of Hate
+2. Armageddon
+3. Forbidden Realms
+4. The Call For Doom
+5. Where Angels Die
+
+Recorded & Mixed At Planetroom Studios.
+Engineered By Steve Harrison & Ross McClennan.
+Produced By ANATOMY.
+Cover Artwork By ROK.
+Band Residence: Australia.
+
+Marty - Vocals
+Happyslayer - Guitars, Keyboards
+Ia - Bass
+Machen - Guitars, Keyboards
+Wazarah - Drums, Percussion
+
+(P)(C) 1996 DESTRUKTIVE KOMMANDOH / MIM
+
 
 ## Отношения с другими группами
 

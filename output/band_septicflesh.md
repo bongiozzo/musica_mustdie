@@ -1,19 +1,276 @@
 # Septic Flesh
 
-Дискография
-"Mystic Places Of Dawn" 1994, Death Doom
-"Esoptron" 1995, Death Doom
-"Ophidian Wheel" 1997, Death Doom
-"A Fallen Temple" 1998, Death Doom
-"Revolution DNA" 1999, Death Doom
-"The Eldest Cosmonaut" 2002, Death Doom
-"Sumerian Daemons" 2003, Death Doom
-"Communion" 2008, Metal
-"The Vampire From Nazareth (single)" 2010, Metal
-"The Great Mass" 2011, Metal
-"Order of Dracul (single)" 2014, Metal
-"Titan" 2014, Metal
-"Codex Omega" 2017, Metal
+High Class Very Melodic Brutal Death Metal
+
+## Дискография
+
+### "Mystic Places Of Dawn" 1994, Death Doom
+
+1. Mystic Places of Dawn 6:15
+2. Pale Beauty of the Past 5:57
+3. Return to Carthage 3:40
+4. Crescent Moon 8:25
+5. Chasing the Chimera 4:50
+6. The Underwater Garden 6:50
+7. Behind the Iron Mask 3:11
+8. (Morpheus) The Dreamlord* 6:58
+9. Mythos* 8:48
+           - Part I: Elegy 
+           - Part II: Time Unbounded 
+
+Spiros - Bass & Vocals
+Sotiris - Guitars
+Chris - Guitars
+Kostas - Drums
+
+Synths By Sotiris, Except Of * By Chris.
+Drums in "(Morpheus) The Dreamlord" by Nick  Adams.
+Additional howlings in "Return to Carthage" by Magus Wampyr Daoloth
+of NECROMANTIA. 
+
+All Tracks Written By SEPTIC FLESH.
+Produced by M.W. Daoloth and SEPTIC FLESH
+Executive producer: Holy Records
+Engineered by George Zaharopoulos (M.W. Daoloth ) except "(Morpheus) The Dreamlord", 
+produced and engineered by Antonis Delaportas
+Mastered By Vidier Chesneau (Melodie studio) & Joel Vitu (Sonic contact)
+All tracks recorded in January - February 1994, except "( Morpheus ) The Dreamlord" recorded in may 1993
+Photo by Tsiapas
+(p)(c) 1994 HOLY Records
+
+### "Esoptron" 1995, Death Doom
+
+1. Breaking the Inner Seal 0:50
+2. Esoptro 5:19
+3. Burning Phoenix 4:39
+4. Astral Sea 0:30
+5. Rain 3:39
+6. Ice Castle 5:54
+7. Celebration 0:53
+8. Succubus Priestess 4:10
+9. So Clean, So Empty 3:57
+10. The Eyes of Set 4:50
+11. Narcissism 8:55
+
+
+All Music & Lyrics Written By Sotiris.
+Produced By SEPTIC FLESH. & M.W. Daoloth.
+Recorded & Mixed At Storm Studio  In March - April,1995.
+
+Spiros - Bass, Vocals
+Sotiris - Guitars, Chants, Synths
+Kostas - Session Drums
+
+(P)&(C) 1995 HOLY Records
+
+### "Ophidian Wheel" 1997, Death Doom
+
+1. The Future Belongs to the Brave 6:10
+2. The Ophidian Wheel 5:17
+3. Phallic Litanies 5:53
+4. Razor Blades of Guilt 4:59
+5. Tartarus 3:34
+6. On the Topmost End of the Earth 6:40
+7. Microcosmos 1:32
+8. Geometry in Static 5:23
+9. Shamanic Rite 5:14
+10. Heaven Below 5:41
+11. Enchantment 0:49
+
+
+Recorded and mixed at Praxis Studio in October/November 1996
+Engineered by Lambros Sfuris
+Produced by Septic Flesh and Lambros Sfuris
+Executive production by Holy Records
+
+Music by Sotiris except on:
+On the Topmost Step of the Earth by Sotiris and Spiros,
+razor Blades of Guilt by Spiros,
+Tartarus, Microcosmos and Enchantment by Chris.
+Lyrics by Sotiris copyright of Eclipse Music. 
+Drums by Kostas (session)
+Painting by Spiros Antoniou
+Photos by Tsiappas
+Layout by Holy Records
+
+Natalie Rassoulis - Vocals
+Spiros - Bass, Dragon Voice
+Sotiris - Guitars, Vocals, Synths
+Kostas - Session Drums
+Chris - Guitars, Synths
+
+(P)(C) 1997 HOLY Records
+
+### "A Fallen Temple" 1998, Death Doom
+
+         The New Order
+1. Brotherhood of the Fallen Knights
+2. The Eldest Cosmonaut
+3. Marble Smiling Face
+4. Underworld (Act 1)
+         Testimonial
+5. Temple Of The Lost Race*
+6. The Crypt*
+7. Setting of the Two Suns*
+8. Erebus*
+          End of the Circle
+9. Underworld (Act 2)
+10. The Eldest Cosmonaut (Dark Version) 
+
+
+
+Recorded and mixed at Praxis Studio in Sept/Dec 97.
+Engineered by Lambros Sphiris.
+Produced by Septic Flesh and Lambros Sphiris.
+Executive production by Holy Records. 
+Lyrics by Sotiris, Copyright of Eclipse Music.
+Drums by Kostas (session).
+
+In Underworld:
+Male vocals by Kostas Tzanokostakis.
+Female vocals by Natalie Rassoulis.
+Cosmonaut:
+Male vocals by Sotiris.
+Female vocals by Natalie Rassoulis.
+
+* Original versions appeared in "Temple of the Lost Race" mini LP.
+
+Cover by Spiros Antoniou.
+Original photos provided from Eve Kazakou (Fine Arts of Athens)
+Band photos by Tsiappas.
+Layout by Holy Records
+
+
+
+### "Revolution DNA" 1999, Death Doom
+
+1. Science
+2. Chaostar
+3. Radioactive
+4. Little Music Box
+5. Revolution
+6. Nephilm Sons
+7. DNA
+8. Telescope
+9. Last Stop to Nowhere
+10. Dictatorship of the Mediocre
+11. Android
+12. Arctic Circle
+13. Age of a New Messiahs
+
+
+### "The Eldest Cosmonaut" 2002, Death Doom
+
+
+
+### "Sumerian Daemons" 2003, Death Doom
+
+1. BeHold… The Land of Promise
+2. Unbeliever
+3. Virtues Of The Beast
+4. Faust
+5. When All Is None
+6. Red Code Cult
+7. Dark River
+8. Magic Loves Infinity
+9. Sumerian Daemon
+10. Mechanical Babylon
+11. Infernal Sun
+12. Empire Of The Watchers
+13. Shapeshifter
+
+
+
+Sumerian Daemons recorded at Studio Fredman (June 2002)
+Produder By Fredrik Nordstrom and Septic Flesh
+
+
+### "Communion" 2008, Metal
+
+1. Lovecraft's Death (04:08)
+2. Annubis (04:18)
+3. Communion (03:25)
+4. Babel's gate (02:58)
+5. We The Gods (03:50)
+6. Sunlight Moonlight (04:09)
+7. Persepolis (06:09)
+8. Sangreal (05:17)
+9. Narcissus (03:59)
+
+Spiros "Seth" Antoniou - Vocals, bass 
+Sotiris Vayenas - Vocals, guitars 
+Christos Antoniou - Guitars
+Fotis Benardo - Drums
+
+### "The Vampire From Nazareth (single)" 2010, Metal
+
+1. The Vampire From Nazareth  04:09
+
+### "The Great Mass" 2011, Metal
+
+1. The Vampire From Nazareth 04:08
+2. A Great Mass of Death 04:46
+3. Pyramid God 05:13
+4. Five-Pointed Star 04:33
+5. Oceans of Grey 05:11
+6. The Undead Keep Dreaming 04:29
+7. Rising 03:16
+8. Apocalypse 03:55
+9. Mad Architect 03:36
+10. Therianthropy 04:28
+
+
+
+Spiros Antoniou - Vocals (harsh) / Bass 
+Christos Antoniou - Guitars / Samples
+Sotiris Vayenas - Guitars / Vocals (clean) 
+Fotis Benardo - Drums 
+
+
+Produced by Peter Tдgtgren at Abyss Studios.
+ 
+
+### "Order of Dracul (single)" 2014, Metal
+
+1. Order of Dracul  03:33 
+
+### "Titan" 2014, Metal
+
+1. War in Heaven      
+2. Burn      
+3. Order of Dracul  03:33    
+4. Prototype      
+5. Dogma      
+6. Prometheus      
+7. Titan      
+8. Confessions of a Serial Killer      
+9. Ground Zero      
+10. The First Immortal  
+
+
+
+
+### "Codex Omega" 2017, Metal
+
+Disc 1  
+1. Dante's Inferno  05:34
+2. 3rd Testament (Codex Omega)  04:08   
+3. Portrait of a Headless Man  05:00 
+4. Martyr  05:07 
+5. Enemy of Truth  04:55  
+6. Dark Art  05:24    
+7. Our Church, Below the Sea  03:59 
+8. Faceless Queen  05:20  
+9. The Gospels of Fear  03:41  
+10. Trinity  04:07    
+  
+Disc 2  
+1. Martyr of Truth  11:36  
+2. Dark Testament  07:51 
+3. Portrait of a Headless Man (Orchestral Version)  05:01    
+  
+
+
 
 ## Отношения с другими группами
 

@@ -1,9 +1,78 @@
 # Carbonized
 
-Дискография
-"For The Security" 1991, Death Metal
-"Disharmonization" 1993, Death Metal
-"Screaming Machines" 1996, Death Metal
+Member Therion,Entombed
+
+## Дискография
+
+### "For The Security" 1991, Death Metal
+
+1. Recarbonized 4.07
+2. Hypnotic Aim 1.42
+3. Euthanasia 3.31
+4. Blinded of the Veil 3.28
+5. Syndrome 2.07
+6. Reflections of the Dark 2.37
+7. Third Eye 2.12
+8. Purified (From the Suffer) 3.31
+9. For the Security 1.56
+10. Monument 2.51
+
+All songs by Crbonized
+P. Wawrzeniuk - dr
+Ch. Johnson - g/voc
+L.Rosenberg - b/voc
+
+
+### "Disharmonization" 1993, Death Metal
+
+1. Frozen Landscapes
+2. Vladtepes
+3. Lord Of Damnation
+4. Silent Journey
+5. Spanish Fly
+6. Succubus
+7. Night Shadows
+8. The Voice Of The Slained Pig
+9. Confessions
+10.Spacecraft
+11.Whip Me Darling
+
+ Lars Rosenberg - Vocals,Bass (ENTOMBED)
+ Christofer Johnsson - Vocals,Guitar,Piano (THERION)
+ Piotr Wawrzeniuk - Vocals,Drums (THERION)
+
+Produced By Thomas Skogsberg & CARBONIZED.
+Recorded At The Sunlight Studio In 3 Days,
+Autumn 1992.
+
+(p)&(c) 1993 FOUNDATION 2000
+
+
+### "Screaming Machines" 1996, Death Metal
+
+1. My Hate
+2. Circles
+3. For Those Who Pray
+4. High Octane
+5. Psychodelica
+6. Golden Rain
+7. Fever
+8. I Wanna Die
+9. Fist
+10.Common Enemy
+11.Screaming Machines
+
+All songs written by CARBONIZED
+Produced by CARBONIZED
+Engineered by Rex and Hans Pieters
+Recorded and mixed at Montesuma Studio, Stockholm, Sweden
+
+Lars Rosenberg - Vocals, Bass
+Christopher Johnsson - Vocals, Guitars
+Piotr Wawrzeniuk - Vocals, Drums
+
+(p)c 1996 FOUNDATION 2000
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,21 @@
 # Narjahanam
 
-Дискография
-"Undama Tath'hur Al Shams Mn Al Gharb" 2007, Black Metal
+
+
+## Дискография
+
+### "Undama Tath'hur Al Shams Mn Al Gharb" 2007, Black Metal
+
+1. Taht Alamat Al Nujoom
+2. Laheeb Al Nar
+3. Al Jihad
+4. Al Shar Wa Aljan 
+5. Rayat Al Mowt
+6. Nehaya Wa Bedaya
+7. Huroob Al Zaman Al Akheer
+8. Yowm Al Maw'oud
+9. Al Aukhera
+
 
 ## Отношения с другими группами
 

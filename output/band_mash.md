@@ -1,7 +1,19 @@
 # Mash
 
-Дискография
-"City" 2001, Thrash
+Nu-thrash band from Murmansk
+
+## Дискография
+
+### "City" 2001, Thrash
+
+1. Fear; 
+2. City; 
+3. Hatred Walks Around; 
+4. I'll Never Forgive; 
+5. Drop Your Gun; 
+6. Fire; 
+7. Paranoid [Black Sabbath cover-version].
+
 
 ## Отношения с другими группами
 

@@ -1,13 +1,100 @@
 # Misery Index
 
-Дискография
-"Overthrow EP" 2001, Death Metal
-"Misery Index / Commit Suicide Split" 2002, Death Metal
-"Retaliate" 2003, Death Metal
-"Dissent EP" 2004, Death Metal
-"Discordia" 2006, Death Metal
-"Traitors" 2008, Death Metal
-"Heirs to Thievery" 2010, Death Metal
+
+
+## Дискография
+
+### "Overthrow EP" 2001, Death Metal
+
+01. Manufacturing Greed
+02. Your Pain Is Nothing
+03. Blood On Their Hands
+04. Pulling Out The Nails
+05. Dead Shall Rise (Terrorizer Cover)
+
+### "Misery Index / Commit Suicide Split" 2002, Death Metal
+
+01. My Untold Apocalypse
+02. Alive?
+03. Reality Distortion (Disrupt Cover)
+
+### "Retaliate" 2003, Death Metal
+
+01. Retaliate
+02. The Lies That Bind
+03. The Great Depression
+04. Angst Isst Die Seele Auf
+05. Demand The Impossible
+06. Order Upheld/Dissent Dissolved
+07. Servants Of Progress
+08. The Unbridgeable Chasm
+09. Bottom Feeders
+10. History Is Rotten
+11. Birth Of Ignorance
+
+Recorded March 30 - April 18, 2003 at Wild Studio
+in St-Zenon, Quebec, Canada.
+Engineered and mixed by Jean-Francois Dagenais.
+Produced by Jean-Francois Dagenais and Misery
+Index.
+Mastered by Bernard Belley.
+Lyrics by Netherton except "Angst..." by Netherton
+and Jan Fischer.
+Layout by Mike Harrison. Band photo by Tim Finn.
+Additional vocals on "Demand The Impossible" by
+Maurizio Iacono.
+"Birth Of Ignorance" originally written by Brutal
+Truth.
+
+Jason Netherton - vocals and bass
+Sparky Voyles - guitars
+Matt Byers - drums
+
+### "Dissent EP" 2004, Death Metal
+
+
+
+### "Discordia" 2006, Death Metal
+
+01. Unmarked Graves
+02. Conquistadores
+03. Outsourcing Jehovah
+04. Breathing Pestilence
+05. Meet Reality
+06. Sensory Deprivation
+07. The Meduse Stare
+08. Dystopian Nightmares
+09. Discordia
+10. Pandemican
+
+### "Traitors" 2008, Death Metal
+
+1. We Never Come In Peace (Intro) 01:59
+2. Theocracy	04:30
+3. Partisans Of Grief 03:36
+4. Traitors 02:23
+5. Ghosts Of Catalonia 05:00
+6. Occupation 04:43
+7. Ruling Class Cancelled 02:07
+8. The Arbiter 02:02
+9. American Idolatry 02:19
+10. Thrown Into The Sun 03:58
+11. Black Rites 04:44
+
+### "Heirs to Thievery" 2010, Death Metal
+
+1. Embracing Extinction 01:49
+2. Fed to the Wolves 03:47
+3. The Carrion Call 03:46
+4. Heirs to Thievery 02:53
+5. The Spectator 03:04
+6. The Illuminaught 03:54
+7. The Seventh Cavalry 04:44
+8. Plague of Objects 03:08
+9. You Lose 02:30
+10. Sleeping Giants 02:56
+11. Day of the Dead 01:50
+
 
 ## Отношения с другими группами
 

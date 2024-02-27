@@ -1,12 +1,73 @@
 # Little Dead Bertha
 
-Дискография
-"In memorium premortis" 1998, Doom
-"Two sides..." 2000, Doom
-"Way Of Blind" 2005, Melodic Death Metal
-"Dance...In Darkness" 2007, Melodic Death Metal
-"Dead Years Of... Live [DVD]" 2009, Melodic Death Metal
-"Angel & Pain" 2010, Melodic Death Metal
+
+
+## Дискография
+
+### "In memorium premortis" 1998, Doom
+
+1.Intro
+2.Pipe
+3.Your fate is pain
+4.Get to like me
+5.In memorium premortis
+6. Wind in emptiness
+7.My naked ideal
+8.Dreams now comfort for defunct
+9. Sentence of suffering
+
+### "Two sides..." 2000, Doom
+
+1.Intro.Sunrise
+2.Two Sides of...
+3.Frosties War
+4.The Dawn of Times
+5.Indifference
+6. Who Dares...
+7.Remember Future
+8.The Timelessness
+9.Future World
+10.Wolfdance
+
+### "Way Of Blind" 2005, Melodic Death Metal
+
+1. Without Hope
+2. Raven
+3. I Don't Believe
+4. My Evil Wish
+5. Last Way In Nowhere
+6. Force and Brave
+7. Way Of Blind
+8. Requiem *
+
+* Originally performed in 1994
+
+### "Dance...In Darkness" 2007, Melodic Death Metal
+
+1 Reign Of Eternal Night
+2 Angel And Pain
+3 My Naked Ideal
+4 Wolf Dance
+
+### "Dead Years Of... Live [DVD]" 2009, Melodic Death Metal
+
+
+
+### "Angel & Pain" 2010, Melodic Death Metal
+
+1. Intro   
+2. Mistake   
+3. Angel & Pain   
+4. Reign of Eternal Night   
+5. Wind of Other Side   
+6. Blood on the Blade   
+7. Creeping in the Mist   
+8. Truth of This World   
+9. If You Try   
+10. Let Me Roust Your Soul   
+11. Slave of Bloody Rain   
+12. The Ocean (Forgive-Me-Not Cover) 
+
 
 ## Отношения с другими группами
 

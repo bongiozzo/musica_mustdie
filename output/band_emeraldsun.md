@@ -1,9 +1,49 @@
 # Emerald Sun
 
-Дискография
-"The Story Begins" 2005, Power Metal
-"Escape from Twilight" 2007, Power Metal
-"Regeneration" 2011, Power Metal
+
+
+## Дискография
+
+### "The Story Begins" 2005, Power Metal
+
+1. Sunrise	 
+2. Scream Out Loud
+3. Sword of Light
+4. High In the Sky
+5. Eyes of Prophecy
+6. Emerald Sun
+7. Not Alone
+8. Escape
+9. And the Story Begins
+10. H/M (Bonus Track)
+
+### "Escape from Twilight" 2007, Power Metal
+
+1. Sunrise	 
+2. Scream Out Loud
+3. High in the Sky
+4. The Traveller
+5. Sword of Light
+6. Eyes of Prophecy
+7. Escape from Twilight
+8. Emerald Sun
+9. H.M.
+10. The Story Begins
+11. Not Alone
+
+### "Regeneration" 2011, Power Metal
+
+1. We Won’t Fall	 
+2. Theater of Pain	 
+3. Where Angels Fly	 
+4. Regeneration	 
+5. Starchild	 
+6. Speak of the Devil	 
+7. Planet Metal	 
+8. Chasing the Wind	 
+9. Fantasmagoria	 
+10. Holding out for a Hero (Bonnie Tyler cover)
+
 
 ## Отношения с другими группами
 

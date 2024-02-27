@@ -1,8 +1,17 @@
 # Deris, Andi
 
-Дискография
-"Come In From The Rain" 1997, Power Metal
-"Done By Mirrors" 1999, Power Metal
+
+
+## Дискография
+
+### "Come In From The Rain" 1997, Power Metal
+
+
+
+### "Done By Mirrors" 1999, Power Metal
+
+
+
 
 ## Отношения с другими группами
 

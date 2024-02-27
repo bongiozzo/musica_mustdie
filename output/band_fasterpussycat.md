@@ -1,15 +1,45 @@
 # Faster Pussycat
 
-Дискография
-"Faster Pussycat" 1987, Glam
-"Wake Me When It's Over" 1989, Glam
-"Live And Rare (EP)" 1990, Glam
-"Whipped!" 1992, Glam
-"Belted, Buckled And Booted (EP)" 1992, Glam
-"Between The Valley Of The Ultra Pussy (Compilation)" 2001, Glam
-"Greatest Hits (Compilation)" 2003, Glam
-"The Power And The Glory Hole" 2006, Glam
-"Front Row For The Donkey Show (Live)" 2009, Glam
+
+
+## Дискография
+
+### "Faster Pussycat" 1987, Glam
+
+
+
+### "Wake Me When It's Over" 1989, Glam
+
+
+
+### "Live And Rare (EP)" 1990, Glam
+
+
+
+### "Whipped!" 1992, Glam
+
+
+
+### "Belted, Buckled And Booted (EP)" 1992, Glam
+
+
+
+### "Between The Valley Of The Ultra Pussy (Compilation)" 2001, Glam
+
+
+
+### "Greatest Hits (Compilation)" 2003, Glam
+
+
+
+### "The Power And The Glory Hole" 2006, Glam
+
+
+
+### "Front Row For The Donkey Show (Live)" 2009, Glam
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,11 +1,73 @@
 # Craving
 
-Дискография
-"Revenge E.P." 2008, Death Metal
-"Craving" 2012, Death Metal
-"At Dawn" 2013, Death Metal
-"Wielder of Storms (EP)" 2016, Death Metal
-"By the Storm" 2016, Death Metal
+Melodic Death/Black Metal with Celtic folk influences
+
+## Дискография
+
+### "Revenge E.P." 2008, Death Metal
+
+1. Voices in the Fog  05:38    
+2. Revenge  03:45  
+3. Nameless  06:18  
+4. They Will Burn  04:54 
+
+
+### "Craving" 2012, Death Metal
+
+1. Lord of the Flames  04:27  
+2. By the Blowing Wind  02:34  
+3. The Nameless  06:16   
+4. Леопард  04:40  
+5. Песня о вещем Олеге  04:24   
+6. Revenge  03:32  
+7. В лес  03:18  
+8. Ein funken Abendrot  05:13   
+9. Wolfsherz  04:58   
+10. Lug und Litanei  06:20 
+
+Additional guest appearance by Sole Genau (ex-Human Factor).
+
+### "At Dawn" 2013, Death Metal
+
+1. Мик  04:44 
+2. Sons of the Rebellion  06:06
+3. Targaryen Wrath  05:45  
+4. In die Nacht hinein  08:34  
+5. Schwarze Flugel  07:06   
+6. Сказания о святой Ольге  06:10   
+7. Breath After Breath  07:11 
+8. Garden of Bones  05:02  
+9. Dance with the Wind  06:50   
+10. Hellraiser  06:55    
+11. Only Teardrops (Deforest cover)  * 02:59 
+
+
+### "Wielder of Storms (EP)" 2016, Death Metal
+
+1. Wielder of Storms  04:42  
+2. Storm I - Torn Apart  06:43 
+3. Storm II - Among the Stars  05:16  
+4. Wenn der Wind Sich Dreht  06:35 
+
+
+### "By the Storm" 2016, Death Metal
+
+1. Fulgur Immortale  01:18  
+2. By Storm  04:29  
+3. Cave of a Dream  05:04  
+4. Penelope's Prayer  06:49  
+5. Spirits of the Dead  04:03   
+6. Seven Steps to Darkness  08:00   
+7. One with Darkness  05:04  
+8. Eyes of Winter  08:42   
+9. The Stone  05:18    
+10. Wenn der Wind sich dreht  06:44   
+11. Wielder of Storms  04:24    
+12. The Fountain of Memory  08:02    
+13. Game of Thrones (cover)  04:11  
+14. Torn Apart  06:39  
+
+
 
 ## Отношения с другими группами
 

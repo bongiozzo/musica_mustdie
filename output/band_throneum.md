@@ -1,7 +1,32 @@
 # Throneum
 
-Дискография
-"Old Death's Lair" 2002, Death Metal
+(Ancient Nightmarish DEATH Terror METAL)
+
+## Дискография
+
+### "Old Death's Lair" 2002, Death Metal
+
+1 The Key 
+2 Rites Of Forefathers 
+3 Reign Of War 
+4 Immolation's Fear 
+5 Tortures' Mask 
+6 Creeping And Trustful 
+7 Domination To Fall 
+8 Ancient Mother Whore 
+9 Black Thrash Till Death 
+10 Future Is Like A Funeral 
+11 Serpentine Transformation 
+12 Doomsday 
+13 Last Revelation 
+
+
+
+ line-up:
+Tomasz - vocals, guitars
+Marek - bass, backing vocals
+Aleksander - drums 
+
 
 ## Отношения с другими группами
 

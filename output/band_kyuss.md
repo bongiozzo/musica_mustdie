@@ -1,10 +1,50 @@
 # Kyuss
 
-Дискография
-"Wretch" 1991, Alternative
-"Blues For The Red Sun" 1992, Alternative
-"Welcome To Sky Valley" 1994, Alternative
-"...And The Circus Leaves Town" 1995, Alternative
+
+
+## Дискография
+
+### "Wretch" 1991, Alternative
+
+
+
+### "Blues For The Red Sun" 1992, Alternative
+
+1. Thumb
+2. Green Machine
+3. Molten Universe
+4. 50 Million Year Trip
+5. (Downside Up)
+6. Thong Song
+7. Apothecaries' Weight
+8. Caterpillar March
+9. Freedom Run
+10. 800
+11. Writhe
+12. Capsized
+13. Allen's Wrench
+14. Mondo Generator
+15. Yeah
+
+ John Garcia - Vocals
+ Brant Bjork - Drums
+ Nick Oliveri - Bass, Vocals
+ Josh Homme - Guitars
+
+Produced By Chris Goss & KYUSS
+Engineered & Mixed By Joe Barresi
+Recorded At Sound City
+
+(p)&(c) 1992 DALI Records
+
+### "Welcome To Sky Valley" 1994, Alternative
+
+
+
+### "...And The Circus Leaves Town" 1995, Alternative
+
+
+
 
 ## Отношения с другими группами
 

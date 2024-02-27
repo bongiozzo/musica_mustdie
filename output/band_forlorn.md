@@ -1,8 +1,33 @@
 # Forlorn
 
-Дискография
-"Ad Caelestis Res" 2000, Death Metal
-"The Crystal Palace" 2001, Death Metal
+
+
+## Дискография
+
+### "Ad Caelestis Res" 2000, Death Metal
+
+01 - Distant Worlds & Distant Moons
+02 - Legions Of The Empire
+03 - Spiritshade
+04 - Shadow Cult
+05 - Phantoms
+06 - Necto Spiritus
+07 - Midnight's Overture
+08 - Legends Of Creation
+
+
+### "The Crystal Palace" 2001, Death Metal
+
+01 - Lik Av Falne Menn
+02 - Aerefull Ferd
+03 - Baerer Av Nordstjernen
+04 - The Megallenic Clouds
+05 - The Crystal Palace
+06 - Ragnarok
+07 - Gate Of Mystic
+08 - Lunar Eclipse
+
+
 
 ## Отношения с другими группами
 

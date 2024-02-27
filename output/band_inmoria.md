@@ -1,8 +1,38 @@
 # Inmoria
 
-Дискография
-"Invisible Wounds" 2009, Progressive
-"A Farewell To Nothing - The Diary Part 1" 2011, Progressive
+
+
+## Дискография
+
+### "Invisible Wounds" 2009, Progressive
+
+1. Come Insanity 03:33  
+2. Alone 04:54  
+3. Fantasy 04:48  
+4. As I Die 04:29  
+5. Misery 04:26  
+6. Circle of Memories 04:30  
+7. Haunting Shadows 04:32  
+8. Will to Live 04:10  
+9. The Other Side 04:27  
+10. I Close My Eyes 04:20 
+
+### "A Farewell To Nothing - The Diary Part 1" 2011, Progressive
+
+01. Blinded 03:38 
+02. End Of The Line 04:35 
+03. The Mirror 04:16 
+04. Hear My Prayers 04:47 
+05. In My Dreams 04:19 
+06. Just Another Lie 04:23 
+07. The Silence Within Me 03:56 
+08. My Last Farewell 04:21 
+09. Save Me 04:11 
+10. Watch Me Bleed 04:38 
+11. I Watch My Shadow Fall 04:07 
+12. Why 03:59
+
+
 
 ## Отношения с другими группами
 

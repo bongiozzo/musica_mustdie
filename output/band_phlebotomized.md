@@ -1,10 +1,80 @@
 # Phlebotomized
 
-Дискография
-"In Search of Tranquility" 1992, Death Doom
-"Preach Eternal Gospels" 1993, Death Doom
-"Immense Intense Suspense" 1994, Death Doom
-"Skycontact" 1997, Gothic
+Christian Grindcore from The Netherlands
+
+## Дискография
+
+### "In Search of Tranquility" 1992, Death Doom
+
+In Search of Tranquility 
+Subtle Disbalanced Liquidity 
+Desecration of Alleged Christian History 
+Mustardgas 
+
+### "Preach Eternal Gospels" 1993, Death Doom
+
+In Memory of our Departed Ones (1914-1918) [1:01] 
+Mustardgas [8:29] 
+Preach Eternal Gospel [9:04] 
+Tragic Entanglement [6:45] 
+Ataraxia [0:55] 
+
+
+
+### "Immense Intense Suspense" 1994, Death Doom
+
+Immense Intense Suspense [0:25] (T.Palms,L.Payne) 
+Barricade [5:28] (T.Palms,L.Payne/L.Payne)  
+Descration of Alledged Christian History [6:30] (T.Palms,L.Payne/L.Payne)  
+Dubbed Forswearer [8:53] (T.Palms,L.Payne/L.Payne)  
+In Search of Tranquility [2:42] (T.Palms,L.Payne) Instrumental.  
+Subtle Disbalanced Liquidity [6:09] (T.Palms,L.Payne/L.Payne)  
+Devoted to God [5:20] (T.Palms,L.Payne/L.Payne)  
+Mellow are the Reverberations [9:17] (T.Palms,L.Payne/L.Payne)  
+Gone... [4:18] (T.Palms,L.Payne/L.Payne) 
+
+ Dennis Geestman - Vocals
+ Tom Palms - Lead Guitars
+ Jordy Middelbosch - Rhythm Guitars
+ Patrick v/d Zee - Bass
+ Lawrence Payne - Drums
+ Ben Quak - Keyboards
+ Maarten Post - Violin
+
+All Music & Lyrics By PHLEBOTOMIZED
+Produced By PHLEBOTOMIZED & Han Swagerman Sr.
+Recorded At The Beaufort Studio, July 1994
+
+
+### "Skycontact" 1997, Gothic
+
+Stoleshowsoul [8:22] 
+Achin' [7:46] 
+Sometimes [5:07] 
+I Lost my Cookies in the Disco [7:33] 
+I Hope you Know I Cry in July [7:38] 
+Never Lose Hope [6:15] 
+Imagine This [4:25] 
+Out to You [3:55] 
+
+
+
+DENNIS GEESTMAN - vocals
+JORDY MIDDELBOSCH - rhythm guitars (L)
+TOM PALMS - rhythm guitars (R) & lead guitars
+LAWRENCE PAYNE - drums & vocals
+BEN QUAK - synthesizers & piano
+JARO STULRAJTER - bass & violins
+
+Produced by Phlebotomized
+Recorded at Han Swagerman's Beaufort
+Studio, July/August 1996
+Mixed by Tom Palms & Ben Ouak,
+August/September 1996
+Engineered by Han Swagerman Sr.
+
+
+
 
 ## Отношения с другими группами
 

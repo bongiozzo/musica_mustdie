@@ -1,6 +1,9 @@
 # Amoebic Dysentery
 
-Дискография
+shit/gore/death/grind
+
+## Дискография
+
 
 ## Отношения с другими группами
 

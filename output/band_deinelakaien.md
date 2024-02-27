@@ -1,7 +1,13 @@
 # Deine Lakaien
 
-Дискография
-"20 Years Of Elelctronic Avantgarde (with Die Neue Philharmonie Frankfurt) (2 CD)" 2007, Darkwave
+dark-wave
+
+## Дискография
+
+### "20 Years Of Elelctronic Avantgarde (with Die Neue Philharmonie Frankfurt) (2 CD)" 2007, Darkwave
+
+
+
 
 ## Отношения с другими группами
 

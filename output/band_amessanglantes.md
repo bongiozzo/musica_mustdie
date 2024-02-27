@@ -1,6 +1,9 @@
 # Ames Sanglantes
 
-Дискография
+power harsh industrial noise electronics from Quebec
+
+## Дискография
+
 
 ## Отношения с другими группами
 

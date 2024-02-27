@@ -1,8 +1,36 @@
 # Kenziner
 
-Дискография
-"Timescape" 1998, Power Metal
-"The Prophecies" 1999, Power Metal
+
+
+## Дискография
+
+### "Timescape" 1998, Power Metal
+
+Future Signs
+Into the Light
+Images of the Past
+Dreamer
+Thru the End
+Timescape
+Walking in the Rain
+Seasons
+In the Silence
+Land of Shadows
+
+
+### "The Prophecies" 1999, Power Metal
+
+Live forever
+The razor's edge
+Through the fire
+Trail of tears
+Race with time
+Eternity
+Dimensions
+Like a paradise
+Lost in a fantasy
+The prophecies
+
 
 ## Отношения с другими группами
 

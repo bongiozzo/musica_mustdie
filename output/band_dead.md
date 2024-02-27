@@ -1,10 +1,52 @@
 # Dead
 
-Дискография
-"You'll Never Know Pleasure-Until You've Tasted Pain" 1996, Grindcore
-"V.I.P." 1998, Grindcore
-"Whorehouse Of The Freaks" 2006, Grindcore
-"In The Bondage Of Vice" 2009, Grindcore
+
+
+## Дискография
+
+### "You'll Never Know Pleasure-Until You've Tasted Pain" 1996, Grindcore
+
+1. Rectal Punishment
+2. Receive My Golden Shower
+3. Penicide
+4. You'll Never Know Pleasure:
+5. Slaves To Abysmal Perversity
+6. XXL Cunt
+7. Body Fluids Arc My Favorite Fetish
+8. Delicious Taste Of Vaginal Excrements
+9. Highest Power
+10.Thrusted To The Limit Of All Delights
+11.Journey To Extacy
+12.Die When You Die
+13.Hey Baby Why Don't You Love Me?
+14.Skin Deep Between Her Tighs
+15.Recognize: Spread Your Legs Whore
+
+All songs written by DEAD.
+Produced by DEAD.
+Engineered and mixed by Rainer
+F.Deckelmann.
+Recorded and mixed at Pinguin Studios,
+Zirndorf.
+
+Peter - Drums
+Uwe - Bass, Vocals
+Dany - Guitar, Vocals
+
+(p)(c) 1996 POSERSLAUGHTER Records
+
+### "V.I.P." 1998, Grindcore
+
+
+
+### "Whorehouse Of The Freaks" 2006, Grindcore
+
+
+
+### "In The Bondage Of Vice" 2009, Grindcore
+
+
+
 
 ## Отношения с другими группами
 

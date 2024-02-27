@@ -1,8 +1,38 @@
 # Hunters
 
-Дискография
-"Break The Rules" 2005, Heavy Metal
-"Night Shadows" 2011, Heavy Metal
+ex-ARCHONTES
+
+## Дискография
+
+### "Break The Rules" 2005, Heavy Metal
+
+01. Intro
+02. Fight For Your Independence
+03. Isolation
+04. Be Cool
+05. Crowds
+06. Invisible
+07. Baby
+08. Tell Me...
+09. Break The Rules
+10. Song # 3
+
+Bonus Track:
+11. Tell Me... -1
+
+### "Night Shadows" 2011, Heavy Metal
+
+1. Intro
+2. Revelation
+3. Silence
+4. Broken Heart
+5. R'N'R Faith
+6. Mama
+7. Coward's Song
+8. The Pill
+9. Night Shadows
+10. July Cat
+
 
 ## Отношения с другими группами
 

@@ -1,19 +1,131 @@
 # Master
 
-Дискография
-"Master" 1990, Death Metal
-"On The 7th Day God Created...Master" 1991, Death Metal
-"Collection Of Souls" 1993, Death Metal
-"Faith Is In Season" 1998, Death Metal
-"Let's Start A War" 2002, Death Metal
-"Unreleased 1985 Album" 2003, Thrash
-"The Spirit Of The West" 2004, Death Metal
-"Four More Years Of Terror" 2005, Death Metal
-"Slaves To Society" 2007, Death Metal
-"The Human Machine" 2010, Death Metal
-"The New Elite" 2012, Death Metal
-"Witchhunt" 2013, Death Metal
-"An Epiphany Of Hate" 2016, Death Metal
+(U.S.A.)
+
+## Дискография
+
+### "Master" 1990, Death Metal
+
+
+
+### "On The 7th Day God Created...Master" 1991, Death Metal
+
+1. What Kind Of God
+2. Latitudinarian
+3. Heathen
+4. Used
+5. Demon
+6. Constant Qaurrel
+7. Judgement Of Will
+8. America The Pitiful
+9. Whose Left To Decide *
+10.Submerged In Sin
+
+ Paul Speckmann - Vocals & Bass
+ Paul Masvidal - Guitar
+ Aaron Nickeas - Drums
+
+All Songs Written By Paul Speckmann,Except
+Of * Music Written By Jim Martinelli.
+Produced By Scott Burns & Paul Speckmann.
+Engineered & Mixed By Scott Burns.
+Recorded At Morrisound Recording,Tampa,Florida.
+
+(p)&(c) 1991 NUCLEAR BLAST Records
+
+### "Collection Of Souls" 1993, Death Metal
+
+1. Constant Reminders
+2. Taste Of Insanity
+3. Hidden Stories
+4. Glorify The Dead
+5. Blinded Faith
+6. Justice Of Fate
+7. Jailbreak
+8. Collection Of Souls
+9. Silver Spoon
+
+ Paul Speckmann - Vocals & Bass
+ Jeff Kobie  - Lead & Rhythm Guitar
+ Brian Brady - Rhythm Guitar
+ Aaron Nickeas - Drums
+
+All Music & Lyrics Written By Paul Speckmann.
+Produced By Jim Daly & Paul Speckmann.
+Engineered & Mixed By John Towner.
+Recorded At Solid Sound Hoffman Estates,Illinois,
+November 1992.
+
+(p)&(c) 1993 NUCLEAR BLAST Records
+
+### "Faith Is In Season" 1998, Death Metal
+
+
+
+### "Let's Start A War" 2002, Death Metal
+
+
+
+### "Unreleased 1985 Album" 2003, Thrash
+
+
+
+### "The Spirit Of The West" 2004, Death Metal
+
+
+
+### "Four More Years Of Terror" 2005, Death Metal
+
+
+
+### "Slaves To Society" 2007, Death Metal
+
+
+
+### "The Human Machine" 2010, Death Metal
+
+1. The Human Machine 05:17
+2. It’s What Your Country Can Do for You 06:10
+3. Twisted Truth 03:14
+4. True Color 05:39
+5. Suppress Free Thinking 05:47
+6. A Replica of Invention 03:24
+7. Faceless Victims Expelled 03:25
+8. Worship the Sun 04:04
+9. The Lack of Space 03:55 
+10. Impale to Kill 04:56 
+
+### "The New Elite" 2012, Death Metal
+
+01. The New Elite
+02. Rise Up And Fight
+03. Remove The Knife
+04. Smile As You're Told
+05. Redirect The Evil
+06. Out Of Control
+07. As Two Worlds Collide
+08. New Reforms
+09. Guide Yourself
+10. Souls To Dissuade
+11. Twist Of Fate
+
+### "Witchhunt" 2013, Death Metal
+
+
+
+### "An Epiphany Of Hate" 2016, Death Metal
+
+01. Subdue The Politician
+02. Fiction Soon Becomes Reality
+03. Face Your Fear
+04. Just Be Yourself
+05. Just Take My Right Arm
+06. An Epiphany Of Hate
+07. It&#180;s Clearly Eden
+08. The People Of The Damned
+09. Senses All Will Be Controlled
+10. Red Alert
+
 
 ## Отношения с другими группами
 

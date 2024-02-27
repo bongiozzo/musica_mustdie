@@ -1,7 +1,13 @@
 # Brute Chant
 
-Дискография
-"Killer Each Of You" 2002, Death Metal
+
+
+## Дискография
+
+### "Killer Each Of You" 2002, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

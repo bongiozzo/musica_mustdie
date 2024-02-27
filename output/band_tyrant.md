@@ -1,7 +1,13 @@
 # Tyrant
 
-Дискография
-"Freaks Of Nature" 2000, Heavy Metal
+(Australia's band in the tradition of AC/DC, Rose Tattoo and Judas Priest)
+
+## Дискография
+
+### "Freaks Of Nature" 2000, Heavy Metal
+
+
+
 
 ## Отношения с другими группами
 

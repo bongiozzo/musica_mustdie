@@ -1,8 +1,38 @@
 # Manufacturer's Pride
 
-Дискография
-"Faustian Evangelion" 2007, Melodic Death Metal
-"Sound of God's Absence" 2009, Melodic Death Metal
+
+
+## Дискография
+
+### "Faustian Evangelion" 2007, Melodic Death Metal
+
+1. Intro  01:16   
+2. The Weak  05:02   
+3. In Credo  04:09  
+4. Bleed Out the Sin  03:46    
+5. Faustian Evangelion Pt 1  03:01    
+6. Faith Sufferer  03:15   
+7. Last Rites  05:06 
+8. Follow Faust  05:00  
+9. Breach  02:47    
+10. The Son  04:04  
+11. Faustian Evangelion Pt 2  03:31 
+
+### "Sound of God's Absence" 2009, Melodic Death Metal
+
+1. Intro  00:33  
+2. Maggot Infested  03:31 
+3. Mind and Machine  03:57   
+4. Murder Mandate  03:42   
+5. On the Eve of Tempest  04:03
+6. Adeptus Satanicus  04:43   
+7. Waste in Flesh  03:58  
+8. Dahlia  03:21   
+9. Absence  02:12   
+10. Stillborn Messiah  05:36   
+11. My Becoming  03:59  
+12. Departure  07:43 
+
 
 ## Отношения с другими группами
 

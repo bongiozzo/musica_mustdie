@@ -1,7 +1,13 @@
 # Devil Lee Rot
 
-Дискография
-"“Metal Dictator / Soldier From Hell”" 2003, Heavy Metal
+heavy metal
+
+## Дискография
+
+### "“Metal Dictator / Soldier From Hell”" 2003, Heavy Metal
+
+
+
 
 ## Отношения с другими группами
 

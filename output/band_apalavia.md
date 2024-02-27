@@ -1,6 +1,9 @@
 # Apalavia
 
-Дискография
+brutal genital grindcore from France
+
+## Дискография
+
 
 ## Отношения с другими группами
 

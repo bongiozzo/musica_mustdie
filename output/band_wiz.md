@@ -1,7 +1,13 @@
 # Wiz
 
-Дискография
-"Shattered Mind Therapy" 2004, Heavy Metal
+Heavy power metal featuring NOSTRADAMEUS members
+
+## Дискография
+
+### "Shattered Mind Therapy" 2004, Heavy Metal
+
+
+
 
 ## Отношения с другими группами
 

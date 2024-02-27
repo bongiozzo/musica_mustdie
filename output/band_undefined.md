@@ -1,6 +1,9 @@
 # Undefined
 
-Дискография
+Hardcore Mix of a Thrash and Industrial Rock
+
+## Дискография
+
 
 ## Отношения с другими группами
 

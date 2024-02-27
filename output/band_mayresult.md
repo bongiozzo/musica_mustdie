@@ -1,8 +1,17 @@
 # May Result
 
-Дискография
-"Gorgeous Symphonies Of Evil" 2000, Black Metal
-"Tmina" 2001, Black Metal
+Yugoslavian gothic-sympho-black
+
+## Дискография
+
+### "Gorgeous Symphonies Of Evil" 2000, Black Metal
+
+
+
+### "Tmina" 2001, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

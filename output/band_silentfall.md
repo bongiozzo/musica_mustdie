@@ -1,7 +1,24 @@
 # Silent Fall
 
-Дискография
-"Otherwise" 2010, Power Metal
+
+
+## Дискография
+
+### "Otherwise" 2010, Power Metal
+
+1. Who Is the Fool?
+2. Kill for Life	
+3. Haunted Sights
+4. Forever and Ever
+5. One Cold Winter Night
+6. I Wish
+7. Play with Fire
+8. World of Secrets
+9. This Could Have Been
+10. Tears of Fate
+11. On the Top of the World
+12. Heroes (CD Bonus)
+
 
 ## Отношения с другими группами
 

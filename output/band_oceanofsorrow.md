@@ -1,6 +1,9 @@
 # Ocean Of Sorrow
 
-Дискография
+Doom Metal from Russia
+
+## Дискография
+
 
 ## Отношения с другими группами
 

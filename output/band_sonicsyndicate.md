@@ -1,14 +1,152 @@
 # Sonic Syndicate
 
-Дискография
-"Eden Fire" 2005, Melodic Death Metal
-"Only Inhuman" 2007, Metalcore
-"Love And Other Disasters" 2008, Metalcore
-"Burn This City (single)" 2009, Metalcore
-"Revolution, Baby (single)" 2010, Metalcore
-"We Rule The Night" 2010, Metalcore
-"Sonic Syndicate" 2014, Metalcore
-"Confessions" 2016, Metalcore
+
+
+## Дискография
+
+### "Eden Fire" 2005, Melodic Death Metal
+
+1. Jailbreak; 
+2. Enhance My Nightmare; 
+3. History Repeats Itself; 
+4. Zion Must Fall; 
+5. Misanthropic Coil; 
+6. Lament Of Innocence; 
+7. Prelude To Extinction; 
+8. Soulstone Splinter; 
+9. Crowned In Despair; 
+10. Where The Black Lotus Grows
+
+All music and lyrics by Roger and Richard Sjunnesson
+Produced, engineered and mixed by Christian Silver and Manne Engstrom
+Recorded and mixed at Studiomega
+
+Richard Sjunnesson - Vocals
+Roger Sjunnesson - Guitars
+Robin Sjunnesson - Guitars
+Andreas Martensson - Keyboards
+Karin Axelsson - Bass, Vocals
+Kristoffer Backlund - Drums, Vocals
+
+### "Only Inhuman" 2007, Metalcore
+
+Aftermath 
+Blue Eyed Fiend 
+Psychic Suicide 
+Double Agent 616 
+Enclave 
+Denied 
+Callous 
+Only Inhuman 
+All About Us (t.A.T.u. Cover) 
+Unknown Entity 
+Flashback 
+Freelancer (bonus track)
+
+### "Love And Other Disasters" 2008, Metalcore
+
+01. Encaged
+02. Hellgate: Worcester
+03. Jack of Diamonds
+04. My Scape
+05. Fallout
+06. Power Shift
+07. Contradiction
+08. Damage Control
+09. Red Eyed Friend
+10. Affliction
+11. Ruin *
+12. Dead Planet *
+
+* Ltd. Digipak edition exclusive bonus tracks.
+
+Richard Sjunnesson - vocals
+Roland Johasson - vocals
+Roger Sjunnesson - guitars
+Robin Sjunnesson - guitars
+Karin Axlesson - bass
+John "Runken" Bengtsson - drums
+
+Produced and engineered by: Jonas Kjellgren
+Recorded al: Black Lounge Studios, Avesta, Sweden, March - April 2008
+Mixed by: Roberto Laghi at IF studios, Gothenburg, Sweden
+Mastered by: Achim Kohler, indiscreet-audio Studio
+All music written by: Sonic Syndicate "Encaged", "Jack of Diamonds", "Damage Control", "Affliction", "Mission: Undertaker" written by: Roger Sjunncsson, Keys on "My Escape", "Fallout" and "Contradiction" written by: Nick Red 
+All lyrics written by: Richard Sjunnesson
+All songs arranged by: Sonic Syndicate
+Bandphoto by: Micke Johansson
+Artwork by: Torsten Burgin & Sabine Hauptmann - Koma Crank, www.koma-grafik.de
+Illustrations by: Timo Wurz
+Booking by: The Agency Group
+A&R:AndySiry
+
+### "Burn This City (single)" 2009, Metalcore
+
+1. Burn This City 03:32 
+
+### "Revolution, Baby (single)" 2010, Metalcore
+
+1. Revolution, Baby 03:24 
+
+### "We Rule The Night" 2010, Metalcore
+
+1. Beauty And The Freak   
+2. Revolution, Baby   
+3. Turn It Up   
+4. My Own Life   
+5. Burn This City  
+6. Black And Blue   
+7. Miles Apart   
+8. Plans Are For People   
+9. Leave Me Alone   
+10. Break Of Day   
+11. We Rule The Night 
+
+
+
+The CD was recorded at Bohus Sound studios in Kungдlv, Sweden and was mixed at
+Paramount Studios in North Hollywood, California by producer Toby Wright.
+
+In addition to the album's standard version, "We Rule The Night" will be made
+available in a limited-edition digipack featuring two bonus songs and a DVD.
+
+The cover artwork was created by Gustavo Savez of Abstrata Art. 
+
+### "Sonic Syndicate" 2014, Metalcore
+
+1. Day of the Dead      
+2. Black Hole Halo  04:38   
+3. Long Road Home     
+4. My Revenge     
+5. Before You Finally Break    
+6. Cathching Fire    
+7. Unbreakable    
+8. It Takes Me   
+9. See What I See   
+10. So Addicted    
+11. The Flame That Changed The World  
+
+Digipack bonus tracks:
+12. Diabolical Work Of Art 
+13. What We Shared 
+14. Another Soldier Down 
+
+### "Confessions" 2016, Metalcore
+
+1. Confessions    
+2. It's a Shame  
+3. Start a War  
+4. Falling 
+5. I Like It Rough
+6. Still Believe  
+7. Crystalize 
+8. Burn to Live 
+9. Life Is Not a Map
+10. Russian Roulette  
+11. Closure   
+12. Halfway Down the Road  
+
+
 
 ## Отношения с другими группами
 

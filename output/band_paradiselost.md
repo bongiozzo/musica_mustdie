@@ -1,39 +1,691 @@
 # Paradise Lost
 
-Дискография
-"Lost Paradise" 1990, Death Doom
-"Gothic" 1991, Death Doom
-"Shades Of God" 1992, Death Doom
-"As I Die" 1992, Death Doom
-"As I Die - Seals The Sense" 1992, Death Doom
-"Mortals Watch the Day" 1992, Gothic
-"Icon" 1993, Death Doom
-"Seals The Sense" 1994, Death Doom
-"Gothic (EP)" 1994, Gothic
-"The Last Time" 1995, Gothic
-"Draconian Times" 1995, Gothic
-"The Last Time - Forever Failure" 1995, Gothic
-"Forever Failure" 1995, Gothic
-"One Second" 1997, Gothic
-"As We Die For...Paradise Lost (Tribute)" 1999, Death Doom
-"Host" 1999, Gothic
-"Permanent Solution EP" 1999, Gothic
-"Believe In Nothing" 2001, Gothic
-"Mouth (Single)" 2001, Gothic
-"Fader (Single)" 2001, Gothic
-"Symbol of Life" 2002, Gothic
-"Paradise Lost" 2005, Gothic
-"Forever After (single)" 2005, Gothic
-"The Enemy (single)" 2007, Gothic
-"In Requiem" 2007, Death Doom
-"Faith Divides Us - Death Unites Us" 2009, Gothic
-"Drown in Darkness - The Early Demos" 2009, Death Doom
-"Tragic Idol" 2012, Death Doom
-"Tragic Illusion 25" 2013, Death Doom
-"The Plague Within" 2015, Gothic
-"Blood and Chaos (single)" 2017, Gothic
-"The Longest Winter (single)" 2017, Gothic
-"Medusa" 2017, Gothic
+Legend Of England Death-Doom
+
+## Дискография
+
+### "Lost Paradise" 1990, Death Doom
+
+1. Intro
+2. Deadly Inner Sense
+3. Our Saviour
+4. Paradise Lost
+5. Rotting Misery
+6. Frozen Illusion
+7. Breeding Fear
+8. Lost Paradise
+9. International Torment II
+
+ Nick Holmes - Vocal
+ Gregor Mackintosh - Lead Guitar
+ Aaron Aedy - Rhythm Guitar
+ Stephen Edmondson - Bass
+ Matthew Archer - Drums
+
+Female Vocal By Kay Field.
+Produced By Hammy.
+Engineered By Pat Grogan.
+Recorded At The Academy,Winter 1989
+
+(c) 1990 VILE MUSIC Records Vile 17
+(p) 1990 PEACEVILLE Records
+
+### "Gothic" 1991, Death Doom
+
+1. Gothic
+2. Dead Emotions
+3. Shattered
+4. Rapture
+5. Eternal
+6. Falling Forever
+7. Angel Tears
+8. Silent
+9. The Painless
+10.Desolate
+
+ Nick Holmes - Vocal
+ Gregor Mackintosh - Lead Guitar
+ Aaron Aedy - Rhythm Guitar
+ Stephen Edmondson - Bass
+ Matthew Archer - Drums
+
+Produced By G.Mackintosh.
+Recorded & Mixed At Hammy Academy.
+
+(c) 1991 VILE MUSIC Records Vile 26
+(p) 1991 PEACEVILLE Records
+
+### "Shades Of God" 1992, Death Doom
+
+1. Mortals Watch The Day
+2. Crying For Eternity
+3. Embraced
+4. Daylight Torn
+5. Pity The Sadness
+6. No Forgiveness
+7. Your Hand In Mine
+8. The Word Made Flesh
+9. As I Die
+
+ Nick Holmes - Vocal
+ Gregor Mackintosh - Lead Guitar
+ Aaron Aedy - Rhythm Guitar
+ Stephen Edmondson - Bass
+ Matthew Archer - Drums
+
+Produced, Engineered And Mixed By Simon Efemey.
+Recorded At Longhome Studios Northants
+March / April 1992.
+Guest Keyboards By Robert John Godfrey.
+Additional Female Vocals By Sarah Marrion.
+
+(p)&(c) 1992 MUSIC FOR NATIONS / METAL BLADE
+
+### "As I Die" 1992, Death Doom
+
+1. As I Die
+2. Rape Of Virtue
+3. Death Walks Behind You
+4. Eternal (Live) *
+
+ Nick Holmes - Vocal
+ Gregor Mackintosh - Lead Guitar
+ Aaron Aedy - Rhythm Guitar
+ Stephen Edmondson - Bass
+ Matthew Archer - Drums
+
+Produced, Engineered And Mixed By Simon Efemey.
+Recorded At Longhome Studios.
+* Recorded Live In Amsterdam 2.7.1992.
+
+(p)&(c) 1992 MUSIC FOR NATIONS / METAL BLADE
+
+### "As I Die - Seals The Sense" 1992, Death Doom
+
+1. As I Die
+2. Rape Of Virtue
+3. Death Walks Behind You
+4. Eternal (Live) *
+
+1. Ember's Fire
+2. Sweetness**
+3. True Belief
+4. Your Hand In Mine (Live)
+
+Produced, Engineered And Mixed By Simon Efemey.
+Recorded At Longhome Studios.
+* Recorded Live In Amsterdam 2.7.1992.
+
+All tracks written Mackintosh-Holmes
+Produced by Simon Efemey except **
+Produced by PARADISE LOST & Mags
+Recorded at Academy Studios, 5-10 Janury 1994
+
+ Nick Holmes - Vocals
+ Gregor Mackintosh - Lead guitar
+ Aaron Aedy - Rhythm & Acoustic Guitars
+ Steve Edmondson - Bass
+ Matthew Archer - Drums
+
+(P)&(C) 1992 MUSIC FOR NATIONS / METAL BLADE
+(P)&(C) 1994 MFN Records
+
+### "Mortals Watch the Day" 1992, Gothic
+
+1. Mortals Watch The Day  
+2. Crying For Eternity  
+3. Embraced  
+4. Daylight Torn  
+5. Pity The Sadness  
+6. No Forgiveness  
+7. Your Band In Mine  
+8. The Word Made Flesh
+
+### "Icon" 1993, Death Doom
+
+1. Embers Fire
+2. Remembrance
+3. Forging Sympathy
+4. Joys Of The Emptiness
+5. Dying Freedom
+6. Widow
+7. Colossal Rains
+8. Weeping Words
+9. Poison
+10.True Belief
+11.Shallow Seasons
+12.Christendom
+13.Deus Misereatur
+
+ Nick Holmes - Vocal
+ Gregor Mackintosh - Lead Guitar
+ Aaron Aedy - Rhythm Guitar
+ Stephen Edmondson - Bass
+ Matthew Archer - Drums
+
+Produced, Engineered And Mixed By Simon Efemey.
+
+(p)&(c) 1993 MUSIC FOR NATIONS / METAL BLADE
+
+### "Seals The Sense" 1994, Death Doom
+
+1. Ember's Fire
+2. Sweetness*
+3. True Belief
+4. Your Hand In Mine (Live)
+
+ Nick Holmes - Vocals
+ Gregor Mackintosh - Lead guitar
+ Aaron Aedy - Rhythm & Acoustic guitars
+ Steve Edmondson - Bass
+ Matthew Archer - Drums
+
+All tracks written Mackintosh-Holmes
+Produced by Simon Efemey except*
+produced by PARADISE LOST & Mags
+Recorded at Academy Studios, 5-10 Janury 1994
+
+(P)&(C) 1994 MFN Records
+
+### "Gothic (EP)" 1994, Gothic
+
+1. Gothic (mix) - 04:40 
+2. Rotting Misery (doom dub) - 05:58 
+3. Breeding Fear (demolition dub) - 04:44 
+4. The Painless (mix) - 03:55 
+
+Nick Holmes - Vocals
+Gregor Mackintosh - Lead guitar
+Aaron Aedy - Rhythm guitars
+Stephen Edmondson - Bass guitar
+Matthew Archer - Drums
+
+Tracks 1&4 - recorded at the Academy, winter 90/91 
+Engineered by Keith Appleton, remixed by Gregor Mackintosh 
+Original versions appear on "Gothic" 
+
+Tracks 2&3 - recorded at the Academy, winter 1989 
+Engineered by Pat Grogan, remixed by Hammy 26/01/90 
+Original versions appear on "Lost Paradise" 
+Also released as "In Dub" 12" on Peaceville for a limited period 
+
+Track 4 - previously unreleased version
+
+### "The Last Time" 1995, Gothic
+
+1. The Last Time.
+2. Walk Away.*
+3. Laid To Waste.
+4. Master Of Misrule.
+
+(p)&©1995 MUSIC FOR NATIONS
+
+NICK HOLMES – lead and background vocals
+GREGOR MACINTOSH – lead guitar
+AARON AEDY – rhythm guitar
+STEVE EDMONDSON – bass
+LEE MORRIS – drums
+
+All keyboards by Andrew Holdsworth.
+
+All music written by Gregor Macintish, all lyrics written by Nick Holmes except * (music & lyrics written by Sisters Of 
+Mercy).
+Produced by Simon Efemey. Engineered by Pete Coleman. Recorded at Great Manor and Ridge FarmStudios, England, 
+January-March 1995
+
+### "Draconian Times" 1995, Gothic
+
+1. Enchantment. 6:04
+2. Hallowed Land. 5:06
+3. The Last Time. 3:23
+4. Forever Failure. 4:18
+5. Once Solemn. 3:03
+6. Shadowkings. 4:42
+7. Elusive Cure. 3:21
+8. Yearn For Change. 4:19
+9. Shades Of God. 3:54
+10. Hands Of Reason. 3:57
+11. I See Your Face. 3:16
+12. Jaded. 3:26
+
+(p)&©1995 MUSIC FOR NATIONS
+
+NICK HOLMES – lead and background vocals
+GREGOR MACINTOSH – lead guitar
+AARON AEDY – rhythm guitar
+STEVE EDMONDSON – bass
+MATHEW ARCHER – drums
+
+Produced by Simon Efemey for Zomba Management.
+Engineered by Pete Coleman. Recorded at Great Linford Manor and Ride Farm Studios, England, Jan-Mar, 1995.
+Mixed by Simon Efemey and Pete Coleman, assisted by Andy Griffin, Phil Wood, Phil Luff. Mastered by Kevin 
+Metealfe at Townhouse Studios, London.
+All tracks published  by Zomba Music Publishers Ltd.
+All keyboards by Andrew Holosworth. Choralarangements by the Guilford Dead Boys Choir. All illustration and 
+photography by Holly Warburton. Design and layout by Stylorouge. Spoken dialoge on "4" – Charles Manson – The 
+Man Who Killed The Sixties. Produced by Box Productions for Channel Four Television Corporation.
+
+### "The Last Time - Forever Failure" 1995, Gothic
+
+1. The Last Time
+2. Walk Away *
+3. Laid To Waste
+4. Master Of Misrule
+
+1. Forever Failure
+2. Another Desire
+3. Fear
+4. Forever Failure (Video Edit)
+5. Weeping Words (Demo Version)
+6. The Last Time (Demo Version)
+
+All Music Written By Gregor Mackintosh.
+All Lyrics Written By Nick Holmes,  Except * 
+Music & Lyrics Written By SISTERS OF MERCY.
+Produced By Simon Effemey & Bryan New.
+Engineered By Pete Coleman.
+Recorded At Great Linford Manor And Ridge Farm 
+Studios, England, January-March 1995.
+All Keyboards By Andrew Holdsworth.
+
+Nick Holmes - Vocals
+Gregor Mackintosh - Lead Guitar
+Aaron Aedy - Rhythm & Acoustic Guitars
+Steve Edmondson - Bass
+Lee Morris - Drums
+
+(P)&(C) 1995 MFN Records
+
+### "Forever Failure" 1995, Gothic
+
+1. Forever Failure
+2. Another Desire
+3. Fear
+4. Forever Failure (Video Edit)
+5. Weeping Words (Demo Version)
+6. The Last Time (Demo Version)
+
+All Music Written By Gregor Mackintosh.
+All Lyrics Written By Nick Holmes.
+Produced By Simon Effemey & Bryan New.
+Engineered By Pete Coleman.
+
+Nick Holmes - Vocals
+Gregor Mackintosh - Lead Guitar
+Aaron Aedy - Rhythm & Acoustic Guitars
+Steve Edmondson - Bass
+Lee Morris - Drums
+
+(P)&(C) 1995 MFN Records
+
+### "One Second" 1997, Gothic
+
+1. One Second.
+2. Say Just Words.
+3. Lydia.
+4. Mercy.
+5. Soul Courageous.
+6. Another Day.
+7. The Sufferer.
+8. This Cold Life.
+9. Blood Of Another.
+10. Disappear.
+11. Sane.
+12. Take Me Down.
+
+(p)&©1997 MUSIC FOR NATIONS
+
+NICK HOLMES – vocals
+GREGOR MACKINTOSH – guitar
+AARON AEDY – guitar
+STEPHEN EDMONDSON – bass
+LEE MORRIS – drums, backing vocals
+
+Produced, engineered and mastered by Sank For Toytown Productions. Mixed by Stefan Glaumann and Sank. 
+Additional backing vocals by Greg & Sank. Additional engineering by Richard Flack. Sampling, programming and 
+keyboards by Sank and Greg Mackintosh. Violin/strings by Stephan Brisland-Ferner.Arranged by Sank, Stephan & 
+Greg Mackintosh. Lyrics by Nick Holmes. Music by Greg Mackintosh. Published by Zomba Music Publishers. 
+Recorded at Battery Studios (London) & Rockfield Studios (Monmouth, Wales). Mixed at MVG Studios (Stockholm). 
+Mastered at The Cutting Room (Stockholm). Additional vocals recorded at MVG Studios. Cover photo concept by Ross 
+Halfin. Band photograph by David Tonge. Other photography by Susan Andrews for Refocus. Design and layout by 
+Design Ministry. Management: Nothern Music Company.
+
+### "As We Die For...Paradise Lost (Tribute)" 1999, Death Doom
+
+1. Say Just Words (Gloomy Grim) - 4:10
+2. Mercy (Orphaned Land) - 5:17
+3. The Last Time (Septic Flesh) - 3:34
+4. Forever (Shattered) Faillure (Misanthrope) - 5:32
+5. True Belief (On Thorns I Lay) - 4:19
+6. Embers Fire (Legenda) - 2:27
+7. As I Die (Argile) - 4:33
+8. Gothic (Godsend) - 4:43
+9. The Painless (Stille Volk) - 4:42
+10. Eternal (Yearning) - 5:16
+11. Lost Paradise (Nightfall) - 3:41
+12. Rotting Misery (Sup) - 6:40
+
+### "Host" 1999, Gothic
+
+1. So Much Is Lost.
+2. Nothing Sacred.
+3. In All Honesty.
+4. Harbour.
+5. Ordinary Days.
+6. It's Too Late.
+7. Permanent Solution.
+8. Behind The Grey.
+9. Wreck.
+10. Made The Same.
+11. Deep.
+12. Year Of Summer.
+13. Host.
+
+(c)&(p) 1999 EMI Electrola GmBH
+
+NICK HOLMES – vocals
+GREG MACINTOSH – guitar, keyboards
+AARON AEDY – guitars
+STEPHEN EDMONDSON – bass
+LEE MORRIS – drums
+
+Produced, mixed and engineered by Steve Lyon for Stephen Budd Management Ltd. Assisted engineer – Matt Cullen. 
+Mastered by Howie Weinberg. Programming by G. Macintosh and Steve Lyon. String arrangements by G. Macintosh 
+with Audrey Riley.
+Performed by: Leo Payne – violin, Chris Tombling – violin, Susan Dench – viola, Gini Ball – violin, Dina Beamish – 
+cello, Audrey Riley – cello. Backing vocals on "So much is lost", "Ordinary days", "In all honesty", "Host", "It's too 
+late" and "Harbour" by Shereena Smith.
+Samples courtesy of Spectrasonics, "Distorted Reality" & "Distorted Reality-2", "Zero-G", "Chemical Beats", 
+"Skinned", Big Fish Audio, "Loopallsious" and Sounds Good "Methods Of Mayhem".
+Lyrics reproduced be permission of Zomba Music Publishers Ltd. Mastered at Masterdisk, New York. Recorded at 262 
+Studio, Harmere Hall & Great Linford Manor. Mixed at Matrix Studios between sept. 1998 and feb. 1999.
+
+### "Permanent Solution EP" 1999, Gothic
+
+1. Permanent Solution - Radio Mix (3:35)
+2. Permanent Solution - Greg Brimson Remix (4:28)
+3. Permanent Solution - Album Version (3:17)
+4. So Much Is Lost - Sanbreeze CO2 Remix (6:28)
+5. Nothing Sacred [Live] (4:07)
+6. Behind The Grey [Live] (3:23)
+7. Made The Same [Live] (3:42)
+
+Line up: 
+Nick Holmes - Vocals 
+Gregory Mackintosh - Guitars 
+Aaron Aedy - Guitars 
+Stephen Edmondson - Bass 
+Lee Morris - Drums
+
+### "Believe In Nothing" 2001, Gothic
+
+1. I Am Nothing (Holmes/Mackintosh) 4:00 
+2. Mouth (Holmes/Mackintosh) 3:42 
+3. Fader (Holmes/Mackintosh) 3:57 
+4. Look At Me Now (Holmes/Mackintosh) 3:26 
+5. Illumination (Holmes/Mackintosh) 4:26 
+6. Something Real (Holmes/Mackintosh) 3:33 
+7. Divided (Holmes/Mackintosh) 3:23 
+8. Sell It To The World (Holmes/Mackintosh) 3:08 
+9. Never Again (Holmes/Mackintosh) 4:35 
+10. Control (Holmes/Mackintosh) 3:25 
+11. No Reason (Holmes/Mackintosh) 3:10 
+12. World Pretending (Holmes/Mackintosh) 4:28 
+
+
+
+### "Mouth (Single)" 2001, Gothic
+
+1. Mouth - album version (Holmes/Mackintosh) 3:47 
+2. Sway (Holmes/Mackintosh) 3:07 
+3. Gone (Holmes/Mackintosh) 4:34 
+4. Mouth - remix (Holmes/Mackintosh) 4:20
+
+### "Fader (Single)" 2001, Gothic
+
+1. Fader - Single Edit (3:17)
+2. Leave This Alone (4:03)
+3. Waiting For God (3:20)
+4. Fader - Album Version (3:57)
+
+Line up: 
+Nick Holmes - Vocals 
+Gregory Mackintosh - Guitars 
+Aaron Aedy - Guitars 
+Stephen Edmondson - Bass 
+Lee Morris - Drums
+
+### "Symbol of Life" 2002, Gothic
+
+1. Isolate 
+2. Erased 
+3. Two Worlds 
+4. Pray Nightfall 
+5. Primal 
+6. Perfect Mask 
+7. Mystify 
+8. No Celebration 
+9. Self Obsessed 
+10. Symbol Of Life 
+11. Channel For The Pain 
+12. Xavier 
+13. Small Town Boy
+
+### "Paradise Lost" 2005, Gothic
+
+1. Close your Eyes
+2. Grey
+3. Red Shift
+4. Sun Fading
+5. Don't Belong
+6. Laws of Cause
+7. For all you leave behind
+8. Accept the Pain
+9. Shine
+10. Spirit
+11. Forever After
+12. Over the Madness
+
+### "Forever After (single)" 2005, Gothic
+
+CD:
+1. Forever After 
+2. Through The Silence 
+3. Sanctamonious You 
+
+DVDplus:
+1. Forever After 
+2. Through The Silence 
+3. Sanctamonious You 
+4. Let Me Drown 
+5. A Side Youґll Never Know 
+
+
+Line-Up:
+Nick Holmes - Vocals 
+Aaron Aedy - Guitars 
+Greg Mackintosh - Guitars 
+Steve Edmonson - Bass
+
+### "The Enemy (single)" 2007, Gothic
+
+1. The Enemy 03:39  
+2. Beneath Black Skies 04:13  
+3. Godless (single bonus track) 02:17 
+
+
+Will be released only in Germany, Austria, Switzerland and Italy.
+
+### "In Requiem" 2007, Death Doom
+
+1. Never For The Damned; 
+2. Ash And Debris; 
+3. The Enemy; 
+4. Praise Lamented Shade; 
+5. Requiem; 
+6. Unreachable; 
+7. Prelude To Descent; 
+8. Fallen Children; 
+9. Beneath Black Skies; 
+10. Sedative God; 
+11. Your Own Reality
+
+All songs written by Nick Holmes/Greg Mackintosh
+Produced by Rhys Fulber
+Engineered by Shaun Thingvold and Ewan Davies
+Mixed by Mike Fraser
+Recorded at Chapel Studios, Linkolnshire and Strait Sound, Canada
+
+Nick Holmes - Vocals
+Greg Mackintosh - Lead Guitars, Keyboards
+Aaron Aedy - Rhythm and Acoustic Guitars
+Steve Edmondson - Bass
+Jeff Singer - Drums
+
+### "Faith Divides Us - Death Unites Us" 2009, Gothic
+
+1. As Horizons End 05:21 
+2. I Remain 04:09  
+3. First Light 05:00  
+4. Frailty 04:25  
+5. Faith Divides Us - Death Unites Us 04:21 
+6. The Rise of Denial 04:47 
+7. Living with Scars 04:24  
+8. Last Regret 04:24  
+9. Universal Dream 04:17  
+10. In Truth 04:50 
+
+
+
+
+Line-up:
+
+Nick Holmes - Vocals
+Gregor Mackintosh - Lead Guitars, Keyboards
+Aaron Aedy - Rhythm Guitars
+Stephen Edmondson - Bass
+Adrian Erlandsson - Drums
+
+Release dates:
+
+Europe: September 28
+US: October 6
+
+The album was recorded at Fascination Street Studios in Цrebro, Sweden with
+producer Jens Bogren.
+
+Special Edition bonus tracks:
+11. Cardinal Zero (04:29)
+12. Faith Divides Us – Death Unites Us (04:17, Lost in Prague Orchestra mix)
+13. Last Regret (04:20, Lost in Prague Orchestra mix)
+
+Bonus tracks for Japan:
+11. Cardinal Zero (4:29)
+12. Back on Disaster 
+
+### "Drown in Darkness - The Early Demos" 2009, Death Doom
+
+1. Drown In Darkness 04:38
+2. Internal Torment 05:05 
+3. Morbid Existence 02:38
+4. Paradise Lost 05:24
+5. Internal Torment 05:40 
+6. Frozen Illusion 05:16 
+7. Internal Torment (live) 04:40
+8. Our Saviour (live) 05:56
+9. Plains Of Desolation (live) 04:10  
+10. Drown In Darkness (live) 04:37 
+11. Paradise Lost (live) 05:34
+12. Nuclear Abomination (live) 03:48 
+
+### "Tragic Idol" 2012, Death Doom
+
+01. Solitary One 04:08 
+02. Crucify 04:08 
+03. Fear Of Impending Hell 05:24 
+04. Honesty In Death 04:07 
+05. Theories From Another World 05:02 
+06. In This We Dwell 03:55 
+07. To The Darkness 05:09 
+08. Tragic Idol 04:35 
+09. Worth Fighting For 04:11 
+10. The Glorious End 05:22
+
+
+Bonus tracks:
+ 11. Ending Through Changes
+ 12. Never Take Me Alive
+ 13. True Belief (Live Version)
+ 14. One Second (Live Version)
+ 15. Say Just Words (Live Version) 
+
+### "Tragic Illusion 25" 2013, Death Doom
+
+1. Loneliness Remains        
+2. Never Take Me Alive (Spear of Destiny cover)        
+3. Ending Through Changes       
+4. The Last Fallen Saviour        
+5. Last Regret (Lost in Prague Orchestra Mix)       
+6. Faith Divides Us - Death Unites Us (Lost in Prague Orchestra Mix)      
+7. Cardinal Zero        
+8. Back On Disaster        
+9. Sons of Perdition        
+10. Godless        
+11. Missing (Everything But the Girl cover)      
+12. Silent in Heart  
+13. Gothic 2013
+14. Our Saviour 2013 
+
+A collection of rarities, b-sides, and new tracks.
+
+### "The Plague Within" 2015, Gothic
+
+Disc 1 (CD)  
+1. No Hope in Sight  04:54   
+2. Terminal  04:28   
+3. An Eternity of Lies  05:58   
+4. Punishment Through Time  05:13   
+5. Beneath Broken Earth  06:09   
+6. Sacrifice the Flame  04:42   
+7. Victim of the Past  04:29   
+8. Flesh from Bone  04:19   
+9. Cry Out  04:31   
+10. Return to the Sun  05:44   
+
+Disc 2 (CD)  
+1. Fear Of Silence  * 03:59    
+2. Never Look Away  * 05:17    
+3. Victim Of The Past (Orchestra version)  * 05:13   
+
+### "Blood and Chaos (single)" 2017, Gothic
+
+1. Blood and Chaos   
+2. Symbolic Virtue  
+
+
+### "The Longest Winter (single)" 2017, Gothic
+
+1. The Longest Winter  04:33 
+2. Sell it to the World  03:25 
+
+
+### "Medusa" 2017, Gothic
+
+1. Fearless Sky  08:30    
+2. Gods of Ancient  05:50  
+3. From the Gallows  03:42   
+4. The Longest Winter  04:31  
+5. Medusa  06:20  
+6. No Passage for the Dead  04:16  
+7. Blood & Chaos  03:51    
+8. Until the Grave  05:41    
+9. Frozen Illusion  05:45    
+10. Shrines  03:59    
+11. Symbolic Virtue  04:38 
+
+
+Recorded at Orgone Studios in Woburn, England from March to April 2017.
+
 
 ## Отношения с другими группами
 

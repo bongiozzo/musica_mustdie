@@ -1,13 +1,136 @@
 # The Offspring
 
-Дискография
-"Ignition" 1992, Punk
-"Smash" 1994, Punk
-"Offspring" 1995, Punk
-"Ixnay on the Hombre" 1997, Punk
-"Americana" 1998, Punk
-"Conspiracy of One" 2000, Punk
-"Splinter" 2003, Punk
+Metal-Inflected Punk
+
+## Дискография
+
+### "Ignition" 1992, Punk
+
+1. Session
+2. We Are One
+3. Kick Him When He's Down
+4. Take It Like A Man
+5. Get It Right
+6. Dirty Magic
+7. Hypodermic
+8. Burn It Up
+9. No Hero
+10. L.A.P.D.
+11. Nothing From Something
+
+ Dexter Holland - Vocals
+ Noodles - Guitars
+ Grey K. - Bass
+ Ron - Welty - Drums
+
+All Songs By OFFSPRING
+Produced By Thom Wilson
+Recorded & Mixed WestBeach Recorders In Hollywood By Thom Wilson
+
+(p)&(c) 1992 EPITAPH Records
+
+### "Smash" 1994, Punk
+
+1. Time To Relax
+2. Nitro (Use Energy)
+3. Bad Habit
+4. Gotta Get Away
+5. Genocide
+6. Something To Believe In
+7. Come Out And Play
+8. Self Esteem
+9. It'll Be A Long Time
+10. Killboy Powerhead
+11. What Happened To You ?
+12. So Alone
+13. Not The One
+14. Smash
+
+ Dexter Holland - Vocals, Guitars
+ Noodles - Guitars
+ Greg K. - Bass
+ Ron Welty - Drums
+
+All Songs Written By OFFSPRING
+Produced & Engineered By Thom Wilson
+Recorded & Mixed At Track Record, North Hollywood
+
+(p)&(c) 1994 EPITAPH Records
+
+### "Offspring" 1995, Punk
+
+1. Jennifer Lost The War
+2. Elders
+3. Out On Patrol
+4. Crossroads
+5. Demons
+6. Beheaded
+7. Tehran
+8. A 1000 Days
+9. Black Ball
+10.I'll Be Waiting
+11.Kill The President
+
+ Dexter Holland - Vocals, Guitars
+ Noodles - Guitars
+ Greg K. - Bass
+ Ron Welty - Drums
+
+All Songs Written By OFFSPRING
+Produced & Engineered By Thom Wilson
+Recorded & Mixed At South Coast Recording.
+
+(p)&(c) 1995 EPITAPH Records
+
+### "Ixnay on the Hombre" 1997, Punk
+
+1.  Disclaimer
+2.  The Meaning Of Life
+3.  Mota
+4.  Me And My Old Lady
+5.  Cool To Hate
+6.  Leave It Behind
+7.  Gone Away
+8.  I Choose
+9.  Intermission
+10.All I Want
+11.Waydown The Line
+12.Don't Pick It Up
+13.Amazed
+14.Change The World
+
+Produced & Mixed By Dave Jerden.
+Engineered By Bryan Carlstrom.
+Recorded & Mixed At Eldorado Recording Studio, Hollywood, CA.
+
+(P)(C) 1997 SONY MUSIC
+
+### "Americana" 1998, Punk
+
+1.Welcome 
+2.Have You Ever 
+3.Staring At the Sun 
+4.Pretty Fly (For a White Guy) 
+5.The Kids Aren't Alright 
+6.Feelings 
+7.She's Got Issues 
+8.Walla Walla
+9.The End of the Line
+10.No Brakes 
+11.Why Don't You Get a Job 
+12.Americana 
+13.Pay the Man 
+
+Columbia Records
+
+### "Conspiracy of One" 2000, Punk
+
+
+
+### "Splinter" 2003, Punk
+
+
+
 
 ## Отношения с другими группами
 

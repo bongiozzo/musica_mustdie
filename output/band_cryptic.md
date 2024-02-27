@@ -1,7 +1,21 @@
 # Cryptic
 
-Дискография
-"Infinite Torment" 2010, Death Metal
+
+
+## Дискография
+
+### "Infinite Torment" 2010, Death Metal
+
+1. Kingdom of the Blind	03:03	
+2. Salvation	03:31	
+3. On wings of Chaos	02:23	
+4. Extermination	02:32	
+5. New Existence	03:36	
+6. Infected Soul	02:57	
+7. Nightmare	03:01	
+8. Visions from the Abbyss	02:57	
+9. Spiritual Suicide	03:35
+
 
 ## Отношения с другими группами
 

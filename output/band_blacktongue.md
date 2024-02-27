@@ -1,10 +1,56 @@
 # Black Tongue
 
-Дискография
-"Falsifier (EP)" 2013, Deathcore
-"Born Hanged (EP)" 2014, Deathcore
-"Born Hanged - Falsifier (re-issue)" 2014, Deathcore
-"The Unconquerable Dark" 2015, Deathcore
+
+
+## Дискография
+
+### "Falsifier (EP)" 2013, Deathcore
+
+1. H.C.H.C.
+2. Fauxhammer
+3. A Pale Procession
+4. Ire Upon The Earth
+5. Falsifier
+6. Voices
+
+### "Born Hanged (EP)" 2014, Deathcore
+
+1. Foreshadow
+2. Waste
+3. Blight
+4. Purgatory
+5. Coma
+6. Eclipse
+
+### "Born Hanged - Falsifier (re-issue)" 2014, Deathcore
+
+1. Eclipse
+2. Fauxhammer
+3. Purgatory
+4. Voices
+5. Foreshadow
+6. Waste
+7. Ire Upon The Earth
+8. Interlude
+9. Falsifier
+10. Blight
+11. Coma Ft. Matt Jones
+12. H.C.H.C.
+13. A Pale Procession
+14. Wasted (Dellux Remix)
+
+### "The Unconquerable Dark" 2015, Deathcore
+
+1. Plague Worship
+2. In The Wake Ov The Wolf
+3. Young Gloom
+4. L'appel Du Vide
+5. Vermintide (Feat. Eddie Hermida)
+6. Prince Of Ash
+7. The Masquerade
+8. A Pale Procession II: Death March
+9. I'm So Tired Of Sighing. Please Lord Let It Be Night
+
 
 ## Отношения с другими группами
 

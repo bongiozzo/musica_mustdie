@@ -1,9 +1,31 @@
 # Holy Grail
 
-Дискография
-"Improper Burial (EP)" 2009, Heavy Metal
-"Crisis In Utopia" 2010, Heavy Metal
-"Ride The Void" 2013, Heavy Metal
+
+
+## Дискография
+
+### "Improper Burial (EP)" 2009, Heavy Metal
+
+
+
+### "Crisis In Utopia" 2010, Heavy Metal
+
+1. My Last Attack 5:16
+2. Fight To Kill 3:25
+3. Call of Valhalla 3:47
+4. Crisis In Utopia 3:58
+5. Immortal Man 3:48
+6. Nocturne in D Minor 2:07
+7. The Blackest Night 3:57
+8. Chase The Wind 5:19
+9. Hollow Ground 5:23
+10. Requiem 5:10
+11. Cherish Disdain 4:58
+
+### "Ride The Void" 2013, Heavy Metal
+
+
+
 
 ## Отношения с другими группами
 

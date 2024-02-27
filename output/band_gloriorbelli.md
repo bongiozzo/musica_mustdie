@@ -1,12 +1,74 @@
 # Glorior Belli
 
-Дискография
-"Ф Laudate Dominvs" 2005, Black Metal
-"Manifesting the Raging Beast" 2007, Black Metal
-"Meet Us at the Southern Sign" 2009, Black Metal
-"The Great Southern Darkness" 2011, Black Metal
-"Gators Rumble, Chaos Unfurls" 2013, Black Metal
-"Sundown (The Flock That Welcomes)" 2016, Black Metal
+
+
+## Дискография
+
+### "Ф Laudate Dominvs" 2005, Black Metal
+
+1. Dictum Audiens 02:52  
+2. Ф Laudate Dominvs 04:40
+3. Poisoned Flesh 04:56
+4. Celestial Phenomena 04:43
+5. In Paradisum... 04:43  
+6. Eternal Torments 02:41  
+7. Darkened Shroud 04:21
+8. Stigma Diaboli 03:13 
+
+### "Manifesting the Raging Beast" 2007, Black Metal
+
+1. From Darkness There Springs Light 05:47
+2. Deadly Sparks 04:09
+3. Sinister Resonance 05:03
+4. Severed From the Self 04:51
+5. Manifesting the Raging Beast 03:37
+6. Said Lucifer in Twilight 05:58
+7. Serpentine Admonition 04:07
+8. Altered Verses 06:47 
+
+### "Meet Us at the Southern Sign" 2009, Black Metal
+
+1. Once in a Blood Red Moon 05:22  
+2. The Forbidden Words 04:03  
+3. Swamp That Shame 04:31  
+4. There is But One Light 05:26  
+5. My True Essence 02:01  
+6. In Every Grief-Stricken Blues 04:24  
+7. Nox Illuminatio Mea 04:41  
+8. The Blazing Darkness (Of Luciferian Skies) 04:06  
+9. Fivefold Thought 05:17  
+10. Fires of the Sitra Ahra 03:05  
+11. Meet Us at the Southern Sign 07:40 
+
+### "The Great Southern Darkness" 2011, Black Metal
+
+01. Dark Gnosis 02:28
+02. Secret Ride To Rebellion 04:41
+03. They Call Me Black Devil 04:20
+04. Negative Incarnate 05:03
+05. Bring Down the Cosmic Scheme 03:28
+06. The Great Southern Darkness 04:13
+07. The Foolhardy Venturer 05:12
+08. Per Nox Regna 03:28
+09. The Science of Shifting 05:05
+10. Chaos Manifested 03:48
+11. Horns In My Pathway 06:20
+
+### "Gators Rumble, Chaos Unfurls" 2013, Black Metal
+
+
+
+### "Sundown (The Flock That Welcomes)" 2016, Black Metal
+
+1. Lies-Strangled Skies 	 
+2. World So Spurious 	 
+3. Rebels in Disguise 	 
+4. Thrall of Illusions 	 
+5. Sundown (The Flock That Welcomes) 
+6. Satanists Out of Cosmic Jail 	 
+7. Upheaval in Chaos Waters 	 
+8. We Whose Glory Was Despised
+
 
 ## Отношения с другими группами
 

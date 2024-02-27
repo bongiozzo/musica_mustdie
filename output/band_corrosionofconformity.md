@@ -1,13 +1,142 @@
 # Corrosion of Conformity
 
-Дискография
-"Animosity" 1985, Thrash
-"Blind" 1991, Thrash
-"Deliverance" 1994, Metal
-"Wiseblood" 1996, Metal
-"America's Volume Dealer" 2000, Alternative
-"Live Volume" 2001, Alternative
-"In The Arms Of God" 2005, Alternative
+
+
+## Дискография
+
+### "Animosity" 1985, Thrash
+
+1. Loss For Worlds
+2. Mad World
+3. Consumed
+4. Holier
+5. Positive Outlook
+6. Prayer
+7. Intervention
+8. Kiss Of Death
+9. Hungry Child
+10.Animosity
+
+ Mike Dean - Bass,Vocals
+ Woody Weatherman - Guitar
+ Reed Mulin - Drums
+
+Produced By C.O.C.
+Engineered By Bill Metoyer.
+
+(p)&(c) 1985 METAL BLADE Records
+
+### "Blind" 1991, Thrash
+
+1. These Shrouded Temples...  
+2. Damned for All Time 
+3. Dance of the Dead 
+4. Buried  
+5. Break the Circle  
+6. Painted Smiling Faces  
+7. Mine Are the Eyes of God 
+8. Shallow Ground  
+9. Vote With a Bullet 
+10. Great Purification 
+11. White Noise 
+12. Echoes in the Well
+13. ...Remain  
+14*. Condition A/Condition B 
+15*. Future Now 
+16*. Jim Beam And The Coon Ass 
+
+* - hidden tracks
+
+
+
+### "Deliverance" 1994, Metal
+
+1. Heaven's Not Overflowing   
+2. Albatross    
+3. Clean My Wounds    
+4. Without Wings    
+5. Broken Man  
+6. Se&#241;or Limpio   
+7. Mano de Mono   
+8. Seven Days    
+9. #2121313    
+10. My Grain  
+11. Deliverance 
+12. Shake Like You  
+13. Shelter  
+14. Pearls Before Swine  
+
+
+
+### "Wiseblood" 1996, Metal
+
+1. King of the Rotten  
+2. Long Whip/Big America  
+3. Wiseblood    
+4. Goodbye Windows   
+5. Born Again for the Last Time  
+6. Drowning in a Daydream   
+7. Snake Has No Head    
+8. Door   
+9. Man or Ash    
+10. Redemption City   
+11. Wishbone (Some Tomorrow)   
+12. Fuel    
+13. Bottom Feeder (El Que Come Abajo) (Instrumental)  
+
+
+
+### "America's Volume Dealer" 2000, Alternative
+
+1. Over Me
+2. Congratulations Song  
+3. Stare Too Long   
+4. Diablo Blvd. 
+5. Doublewide 
+6. Zippo 
+7. Who's Got the Fire  
+8. Sleeping Martyr 
+9. Take What You Want    
+10. 13 Angels 
+11. Gittin' It On  
+
+
+
+### "Live Volume" 2001, Alternative
+
+1. These Shrouded Temples    
+2. Diablo Blvd.  
+3. Senor Limpio  
+4. King of the Rotten  
+5. Wiseblood  
+6. Who's Got the Fire  
+7. Albatross  
+8. My Grain 
+9. Congratulations Song  
+10. 13 Angels/7 Days 
+11. Vote With a Bullet 
+12. Zippo 
+13. Long Whip/Big American 
+14. Shelter  
+15. Clean My Wounds  
+
+
+
+### "In The Arms Of God" 2005, Alternative
+
+1) Stonebreaker
+2) Paranoid Opioid
+3) It's That Way
+4) Dirty Hands Empty Pockets/Already Gone
+5) Rise River Rise
+6) Never Turns To More
+7) Infinite War
+8) So Much Left Behind
+9) Backslider
+10) World On Fire
+11) Crown Of Thorns
+12) In The Arms Of God
+
 
 ## Отношения с другими группами
 

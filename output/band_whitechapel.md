@@ -1,11 +1,58 @@
 # Whitechapel
 
-Дискография
-"The Somatic Defilement" 2007, Deathcore
-"This Is Exile " 2008, Deathcore
-"A New Era Of Corruption" 2010, Deathcore
-"Recorrupted (EP)" 2011, Deathcore
-"Whitechapel" 2012, Deathcore
+
+
+## Дискография
+
+### "The Somatic Defilement" 2007, Deathcore
+
+1. Necrotizing 00:35  
+2. The Somatic Defilement 05:19 
+3. Devirgination Studies 03:12 
+4. Prostatic Fluid Asphyxiation 03:33
+5. Fairy Fay 03:33
+6. Ear to Ear 03:30 
+7. Alone in the Morgue 02:53 
+8. Festering Fiesta 02:29
+9. Vicer Exciser 02:52 
+10. Articulo Mortis 04:03 
+
+### "This Is Exile " 2008, Deathcore
+
+1. Father Of Lies 04:03
+2. This Is Exile 03:40
+3. Possession 05:04
+4. To All That Are Dead 03:38
+5. Exalt 03:05 
+6. Somatically Incorrect 03:10 
+7. Death Becomes Him 03:18
+8. Deamon (The Procreated) 03:13 
+9. Eternal Refuge 03:42
+10. Of Legions 02:43 
+11. Messiahbolical 07:22 
+
+### "A New Era Of Corruption" 2010, Deathcore
+
+1. Devolver 03:58
+2. Breeding Violence 03:19
+3. The Darkest Day of Man 03:00
+4. Reprogrammed to Hate 03:45
+5. End of Flesh 04:03
+6. Unnerving 03:39
+7. A Future Corrupt 02:57 
+8. Prayer of Mockery 03:55
+9. Murder Sermon 03:59
+10. Nercomechanical 04:21
+11. Single File to Dehumanization 04:43 
+
+### "Recorrupted (EP)" 2011, Deathcore
+
+
+
+### "Whitechapel" 2012, Deathcore
+
+
+
 
 ## Отношения с другими группами
 

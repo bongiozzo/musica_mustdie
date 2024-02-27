@@ -1,8 +1,24 @@
 # De Profundis Clamavi
 
-Дискография
-"Artes Moriendi" 2001, Black Metal
-"Ossarium" 2004, Black Metal
+
+
+## Дискография
+
+### "Artes Moriendi" 2001, Black Metal
+
+1 - Sepulcre
+2 - They're calling
+3 - Bleeding nightsky
+4 - River of blood
+5 - Correndo giщ per un abisso mi accorsi di non avere ali
+
+### "Ossarium" 2004, Black Metal
+
+1. Ossarium
+2. Queen Valsesia
+3. My Sadism Has No Shame
+4. Profectum Iri (Outro)
+
 
 ## Отношения с другими группами
 

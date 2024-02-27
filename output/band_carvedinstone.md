@@ -1,8 +1,32 @@
 # Carved in Stone
 
-Дискография
-"The forgotten belief" 2002, Folk
-"Hear the Voice" 2004, Folk
+Mystic-Folk-Music
+
+## Дискография
+
+### "The forgotten belief" 2002, Folk
+
+1. Die zwei Raben
+2. Longing for home
+3. Nachtlicher Tanz
+4. The forgotten belief
+5. Ruins
+6. Im Saal voller Licht
+
+### "Hear the Voice" 2004, Folk
+
+1. Boten Asgards
+2. Jeg lagde meg sa silde
+3. Last words
+4. Das Lied
+5. Warrior and Man
+6. Sohn der Morgenrote
+7. Heldentod
+8. Die Gerten der Feen
+9. The Lady of the wood
+10. Ungehorsam
+11. Invictus
+
 
 ## Отношения с другими группами
 

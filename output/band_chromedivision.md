@@ -1,10 +1,108 @@
 # Chrome Division
 
-Дискография
-"Doomsday Rock'n'Roll" 2006, Metal
-"Booze, Broads And Beelzebub" 2008, Metal
-"3rd Round Knockout" 2011, Metal
-"Infernal Rock Eternal" 2014, Metal
+rock'n'roll from Shagrath (DIMMU BORGIR)
+
+## Дискография
+
+### "Doomsday Rock'n'Roll" 2006, Metal
+
+1. Doomsday Overture 01:30
+2. Serial Killer 03:46
+3. Hate 03:50
+4. Trouble With the Law 04:44
+5. Chrome Division 03:50
+6. Here Comes Another Me 03:04
+7. 1st Regiment 05:25
+8. Breath Easy 03:46
+9. The Angel Falls 04:16
+10. Till the Break of Dawn 03:30
+11. We Want More 06:17
+12. When the Shit Hits the Fan 02:08
+
+
+### "Booze, Broads And Beelzebub" 2008, Metal
+
+01. The Second Coming
+02. Booze, Broads and Beelzebub
+03. Wine Of Sin
+04. Raven Black Cadillac
+05. Life Of A Fighter
+06. The Devil Walks Proud
+07. Hate This Town
+08. The Boys From The East
+09. Doomsday Riders
+10. Lets Hear It
+11. Sharp Dressed Man
+12. Bad Broad (Good Girl Gone Bad)
+13. Raise Your Flag
+
+Shagrath - guitars
+Eddie Guz - lead vocals
+Luna - bass and backing vocals
+Ricky Black - lead guitars and backing vocals
+Tony White - drums
+
+Produced by Chrome Division
+Recorded at Studio Fredman, Gothenburg Sweden,
+during January 2008*
+Engineered by Fredrik Nordstrom
+- ^
+Assistant engineering by Henrik "Hebbe-lille" Udd
+and Ricky Black
+Mixed by Fredrik Nordstrom, Henrik Udd and
+Shagrath1
+Mastered at Tailor Maid Production, Stockholm
+Sweden
+by Peter In De Betou
+Published by Prophecies Publishing
+All music written and arranged by Chrome Division
+Except "Sharp Dressed Man" by Billy Gibbons,
+Dusty Hill and Frank Beard
+"Second Coming" Intro by Ricky Black and Luna
+Lead vocals, pre-chorus on "Hate This Town" by
+Shagrath
+All drawings by Pero at Lucky 7 Tattoos, Oslo
+All pictures by Tove Asum Forwald
+(www7magicafoto.no)
+Bad Broad: Trine Sandbraaten
+Layout by Fredrik Hermansen with Luna and Shagrath
+
+### "3rd Round Knockout" 2011, Metal
+
+1. Bulldogs Unleashed 03:49
+2. 7 G-Strings 04:07
+3. Join The Ride 05:06
+4. Unholy Roller 03:43
+5. Zombies And Monsters 03:39
+6. Fight 03:38
+7. The Magic Man 04:56
+8. Long Distance Call Girl 04:25
+9. Ghost Rider In The Sky (Johnny Cash Cover) 03:36
+10. Satisfy My Soul 05:08
+
+
+Line-up:
+ Shady Blue - Vocals
+ Shagrath - Guitar
+ Ricky Black - Guitar
+ Bjorn Luna - Bass
+ Tony White - Drums 
+
+### "Infernal Rock Eternal" 2014, Metal
+
+1. Good Morning Riot (Instrumental)  01:28
+2. Endless Nights  04:44 
+3. (She's) Hot Tonight  03:46
+4. The Absinthe Voyage  05:05   
+5. Lady Of Perpetual Sorrow  05:33  
+6. The Moonshine Years  05:59 
+7. No Bet For Free  04:37
+8. On the Run Again  04:42 
+9. Mistress in Madness  05:07
+10. Reaper On The Hunt  04:07
+11. You're Dead Now  05:17
+12. ШL  03:24  
+
 
 ## Отношения с другими группами
 

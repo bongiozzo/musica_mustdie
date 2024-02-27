@@ -1,11 +1,71 @@
 # Dead Soul Tribe
 
-Дискография
-"Dead Soul Tribe" 2000, Progressive
-"A Murder Of Crows" 2003, Progressive
-"The January Tree" 2004, Progressive
-"The dead world" 2005, Progressive
-"A Lullaby For The Devil" 2007, Progressive
+prog-metal  ex-Psychotic Waltz
+
+## Дискография
+
+### "Dead Soul Tribe" 2000, Progressive
+
+1. Powertrip
+2. Coming Down
+3. Anybody There?
+4. The Haunted
+5. The Drowning Machine
+6. You
+7. Under the Weight of My Stone 
+8. Once
+9. One Bullet
+10. Empty
+11. Cry for Tomorrow
+12. Into...
+13. ...Into the Spiral Cathedral
+
+### "A Murder Of Crows" 2003, Progressive
+
+Feed Part 1 "Stone By Stone" 
+Feed Part 2 "The Awakening" 
+The Messenger 
+In A Garden Made Of Stones 
+Some Things You Can't Return 
+Angels In Vertigo 
+Regret 
+Crows On The Wire 
+I'm Not Waving 
+Flies 
+Black Smoke And Mirrors 
+Time (Bonus)
+
+### "The January Tree" 2004, Progressive
+
+1. Spiders And Flies
+2. Sirens
+3. The Love...
+4. Why?
+5. The Coldest...
+6. Wings Of Faith
+7. Toy Rockets
+8. Waiting...
+9. Just Like...
+10. Lady Of Rain
+
+### "The dead world" 2005, Progressive
+
+1. Prelude: Time and Pressure 
+2. A Flight On An Angels Wing 4:31 
+3. To My Beloved… 
+4. Don’t You Ever Hurt? 
+5. Some Sane Advice 
+6. Let The Hammer Fall 
+7. Waiting In Line 
+8. Someday 
+9. My Dying Wish 
+10. A Fistful Of Bended Nails 
+11. The Long Ride Home
+
+### "A Lullaby For The Devil" 2007, Progressive
+
+
+
 
 ## Отношения с другими группами
 

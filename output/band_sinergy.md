@@ -1,9 +1,64 @@
 # Sinergy
 
-Дискография
-"Beware the Heavens" 1999, Heavy Metal
-"To Hell and Back" 2000, Heavy Metal
-"Suicide by My Side" 2002, Heavy Metal
+all star project Nuclear Blast
+
+## Дискография
+
+### "Beware the Heavens" 1999, Heavy Metal
+
+
+
+### "To Hell and Back" 2000, Heavy Metal
+
+
+
+### "Suicide by My Side" 2002, Heavy Metal
+
+01. I Spit On Your Grave 
+02. The Sin Trade 
+03. Violated 
+04. Me, Myself, My Enemy 
+05. Written In Stone 
+06. Nowhere For No One 
+07. Passage To The Fourth World 
+08. Shadow Island 
+09. Suicide By My Side 
+10. Remembrance 
+
+
+
+Kimberly Goss - vocals
+Roope Latvala - guitar
+Alexi "Wildchild" Laiho - guitar
+Marco Hietala - bass
+
+
+All drums played by Tommi Lillman on this final
+album with Sinergy
+Acoustic intro on Written In Stone composed and
+performed by Marco Hietala
+Blackish/death style vocals on I Spit On Your
+Grave composed and performed by Alexi "Wildchild"
+Laiho
+All arrangements by Sinergy
+
+Recorded and mixed at Studio Fredman, Goteburg,
+Sweden, August 1st - September 10th., 2001.
+Produced by Fredrik Nordstrom & Sinergy
+Engineered by Fredrik Nordstrom
+Recorded by Patrik J Sten, Fredrik Nordstrom &
+Sinergy
+Mixed by Fredrik Nordstrom
+Mastered by Mika Jussila at Finnvox Studios,
+Helsinki, Finland.
+Cover and layout by Thomas Ewerhard
+Concept by Kimberly Goss
+Band photos by Njni Harkonen
+Make-up by Sanna Haapoja
+
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,26 @@
 # Buried Dreams
 
-Дискография
-"Beyond Your Mind" 1998, Melodic Death Metal
-"Perceptions" 2000, Melodic Death Metal
+Melodic Death Metal from Mexico
+
+## Дискография
+
+### "Beyond Your Mind" 1998, Melodic Death Metal
+
+
+
+### "Perceptions" 2000, Melodic Death Metal
+
+Illnamiqui 
+The Riddle 
+The Mind's Subconcious 
+At the End 
+Cosmic Prophecies 
+360 
+Perceptions 
+Gods of Fire 
+Buried Dreams 
+
+
 
 ## Отношения с другими группами
 

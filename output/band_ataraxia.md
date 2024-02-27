@@ -1,20 +1,146 @@
 # Ataraxia
 
-Дискография
-"Prophetia" 1990, Ambient
-"Nosce Te Ipsum" 1991, Ambient
-"Sub Ignissima Luna" 1993, Ambient
-"Simphonia Sine Nomine" 1994, Ambient
-"Ad Perpetuam Rei Memoriam" 1994, Ambient
-"La Malйdiction d'Ondine" 1995, Ambient
-"The Moon Sang On The April Chair - Red Deep Dirges Of A November Moon" 1995, Ambient
-"Le Violino Incantato" 1996, Ambient
-"Il Fantasma Dell'Opera" 1996, Ambient
-"Concerto N. 6: A Baroque Plaisanterie" 1996, Ambient
-"Orlando" 1998, Ambient
-"Historiae" 1999, Ambient
-"Lost Atlantis" 1999, Ambient
-"Suenos - Part I: Ego Promitto Domino" 2001, Ambient
+
+
+## Дискография
+
+### "Prophetia" 1990, Ambient
+
+
+
+### "Nosce Te Ipsum" 1991, Ambient
+
+
+
+### "Sub Ignissima Luna" 1993, Ambient
+
+
+
+### "Simphonia Sine Nomine" 1994, Ambient
+
+Preludio
+Entrata Solenne
+Canzona
+Inno Corale
+Fuga Trionfale
+Preghiera
+Marcia Cerimoniale
+Elevazione
+Pastorale
+Ode
+Vespertilia
+
+### "Ad Perpetuam Rei Memoriam" 1994, Ambient
+
+Aigues Mortes
+Tu Es La Force Du Silence
+Flee Et Fabian
+Nosce Te Ipsum
+Zweistimmens-tauschung
+Torquemada
+Bleumarine
+Vitrage
+Aquarello
+Emeraude
+
+### "La Malйdiction d'Ondine" 1995, Ambient
+
+Medusa
+Sybil
+Flora
+Blanche
+Annabell Lee
+Astimelusa
+June
+Lubna
+Ligeia
+Ophilie
+Lucretia
+Zelia (The City In The Sea)
+Lucrecia
+Ondine
+
+### "The Moon Sang On The April Chair - Red Deep Dirges Of A November Moon" 1995, Ambient
+
+
+
+### "Le Violino Incantato" 1996, Ambient
+
+1. Le Violino Incantato
+2. La Lira Di Apollo
+3. Le Sisuore Della Botob
+4.  Nei Soltemanei Dill' Opera
+
+Written, directed & performed by ATARAXIA.
+Recorded and mixed at S.Ruffino.
+Engineered by Giorgio Buttazzo.
+
+Francesca Nicoli - Voice, Lyrics, Flute, Drummachine
+Vittorio Vandelli - Classic, Acoustic, Electric, Synth Guitars
+Giovanni Pagliari - Keyboards, Vox
+
+(p)(c) 1996 AVANTGARDE Music
+
+### "Il Fantasma Dell'Opera" 1996, Ambient
+
+
+
+### "Concerto N. 6: A Baroque Plaisanterie" 1996, Ambient
+
+
+
+### "Orlando" 1998, Ambient
+
+
+
+### "Historiae" 1999, Ambient
+
+Hydra Hyali
+Astraea
+Filava Melis
+Scarlet Leaves
+Histrionia
+Antinea
+Li Frere Li Mestre Du Temple
+Mundus Est Jocundum (Carmina Burana)
+Mundus Furibundus (Carmina Burana)
+
+### "Lost Atlantis" 1999, Ambient
+
+The early days
+Daytia
+Aperlae
+Dolphins
+Agharti
+Fountains
+Mu-land
+Oduarpa
+Lost Atlantis
+The land of sand of gold of ruin
+Departure
+
+
+### "Suenos - Part I: Ego Promitto Domino" 2001, Ambient
+
+Part I - Ego Promitto Domino
+Parti de mal
+Saderaladon
+Belle Jolande
+Il bagatto
+
+Part II - L'вme d'eau
+Mon Вme Sorciиre
+Eleven
+Mnemosine
+I love every waving thing
+
+Part III - Sandy dunes
+Encrucijada
+Funeral in Datзa
+The Corals of Бqaba
+Nemrut Dagi
+
+
 
 ## Отношения с другими группами
 

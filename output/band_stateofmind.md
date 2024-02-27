@@ -1,8 +1,35 @@
 # State of Mind
 
-Дискография
-"Mother" 1994, Hard Rock
-"Memory Lane" 2004, Hard Rock
+melodic hard/glam
+
+## Дискография
+
+### "Mother" 1994, Hard Rock
+
+
+
+### "Memory Lane" 2004, Hard Rock
+
+01. My Kind Of Life (taken from DREAM THOSE DREAMS)
+02. Up On The Top (taken from DREAM THOSE DREAMS) 
+03. Carry On (taken from MOTHER)
+04. Dream Those Dreams (taken from MOTHER)
+05. Empty House (taken from MOTHER)
+06. Extreme World (taken from MOTHER)
+07. Good Old Times (taken from MOTHER)
+08. Liar (taken from MOTHER)
+09. Mama (taken from MOTHER)
+10. Travelling Man (taken from MOTHER)
+11. Hang Tough (unreleased bonus track)
+12. Gypsy Rave (unreleased bonus track)
+
+Conny Lind (lead vocal)
+Jцrgen Svensson (guitars)
+Johan Larssson (bass)
+Patrik Appelgren (keyboards)
+Patrik Lundeberg (keyboards)
+Roger Kindstrand (drums)
+
 
 ## Отношения с другими группами
 

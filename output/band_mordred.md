@@ -1,11 +1,54 @@
 # Mordred
 
-Дискография
-"Fool's Game" 1989, Thrash
-"In This Life" 1991, Thrash
-"Vision (EP)" 1992, Thrash
-"The Next Room" 1994, Thrash
-"Grand Summit (EP)" 1994, Thrash
+
+
+## Дискография
+
+### "Fool's Game" 1989, Thrash
+
+
+
+### "In This Life" 1991, Thrash
+
+
+
+### "Vision (EP)" 1992, Thrash
+
+
+
+### "The Next Room" 1994, Thrash
+
+1. Lo-Cal, Hi-Fiber
+2. Skid
+3. Crash
+4. Splinter Down
+5. Shut
+6. Pauper's Wine
+7. Acrophobia
+8. Murray The Mower
+9. In A Turn
+10.The Trallis
+11.The Next Room Over
+12.Rubber Crutch
+
+All Music By MORDRED.
+Produced By Michael Rosen & MORDRED.
+Engineered By Michael Rosen & Vincent Wojno
+At The Plant, Oakland, CA.
+
+Paul Kimball - Vocals
+James Sanguinetti - Guitars
+Danny White - Guitars & Vocals
+Arthur Liboon - Bass
+Gannon Hall - Drums & Percussion
+Pause - Turntables & Samples
+
+(P)&(C) 1994 NOISE Records
+
+### "Grand Summit (EP)" 1994, Thrash
+
+
+
 
 ## Отношения с другими группами
 

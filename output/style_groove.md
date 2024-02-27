@@ -22,13 +22,13 @@
 Стиль: Groove
 Год: 2003
 
-Группа: Jerkstore
-Альбом: "Blood on Canvas"
+Группа: Gojira
+Альбом: "The Link Alive"
 Стиль: Groove
 Год: 2004
 
-Группа: Gojira
-Альбом: "The Link Alive"
+Группа: Jerkstore
+Альбом: "Blood on Canvas"
 Стиль: Groove
 Год: 2004
 
@@ -47,15 +47,20 @@
 Стиль: Groove
 Год: 2006
 
+Группа: Incite
+Альбом: "Murder (EP)"
+Стиль: Groove
+Год: 2006
+
 Группа: Jerkstore
 Альбом: "The Dream Society"
 Стиль: Groove
 Год: 2006
 
-Группа: Incite
-Альбом: "Murder (EP)"
+Группа: Five Finger Death Punch
+Альбом: "The Way Of The Fist"
 Стиль: Groove
-Год: 2006
+Год: 2007
 
 Группа: Incite
 Альбом: "Divided We Fall (EP)"
@@ -67,23 +72,18 @@
 Стиль: Groove
 Год: 2007
 
-Группа: Five Finger Death Punch
-Альбом: "The Way Of The Fist"
+Группа: Gojira
+Альбом: "The Way Of All Flesh"
 Стиль: Groove
-Год: 2007
+Год: 2008
 
 Группа: Klone
 Альбом: "All Seeing Eye"
 Стиль: Groove
 Год: 2008
 
-Группа: Gojira
-Альбом: "The Way Of All Flesh"
-Стиль: Groove
-Год: 2008
-
-Группа: Lamb Of God
-Альбом: "Wrath"
+Группа: Five Finger Death Punch
+Альбом: "War Is The Answer"
 Стиль: Groove
 Год: 2009
 
@@ -92,23 +92,23 @@
 Стиль: Groove
 Год: 2009
 
-Группа: Five Finger Death Punch
-Альбом: "War Is The Answer"
+Группа: Lamb Of God
+Альбом: "Wrath"
 Стиль: Groove
 Год: 2009
-
-Группа: Volumes
-Альбом: "The Concept Of Dreaming (EP)"
-Стиль: Groove
-Год: 2010
 
 Группа: Klone
 Альбом: "Black Days"
 Стиль: Groove
 Год: 2010
 
-Группа: Mastodon
-Альбом: "The Hunter"
+Группа: Volumes
+Альбом: "The Concept Of Dreaming (EP)"
+Стиль: Groove
+Год: 2010
+
+Группа: Five Finger Death Punch
+Альбом: "American Capitalist"
 Стиль: Groove
 Год: 2011
 
@@ -117,8 +117,8 @@
 Стиль: Groove
 Год: 2011
 
-Группа: Five Finger Death Punch
-Альбом: "American Capitalist"
+Группа: Mastodon
+Альбом: "The Hunter"
 Стиль: Groove
 Год: 2011
 
@@ -132,8 +132,8 @@
 Стиль: Groove
 Год: 2011
 
-Группа: Signs of Chaos
-Альбом: "Rise"
+Группа: Gojira
+Альбом: "L'Enfant Sauvage"
 Стиль: Groove
 Год: 2012
 
@@ -142,23 +142,13 @@
 Стиль: Groove
 Год: 2012
 
-Группа: Incite
-Альбом: "All Out War"
-Стиль: Groove
-Год: 2012
-
 Группа: Healer
 Альбом: "Enthrall! Gibbet! Interdict!"
 Стиль: Groove
 Год: 2012
 
-Группа: United Mind Club
-Альбом: "World Blood History"
-Стиль: Groove
-Год: 2012
-
-Группа: Gojira
-Альбом: "L'Enfant Sauvage"
+Группа: Incite
+Альбом: "All Out War"
 Стиль: Groove
 Год: 2012
 
@@ -167,13 +157,18 @@
 Стиль: Groove
 Год: 2012
 
+Группа: Signs of Chaos
+Альбом: "Rise"
+Стиль: Groove
+Год: 2012
+
+Группа: United Mind Club
+Альбом: "World Blood History"
+Стиль: Groove
+Год: 2012
+
 Группа: Five Finger Death Punch
 Альбом: "The Wrong Side of Heaven and the Righteous Side of Hell, Volume 1"
-Стиль: Groove
-Год: 2013
-
-Группа: Terrorway
-Альбом: "Blackwaters"
 Стиль: Groove
 Год: 2013
 
@@ -182,8 +177,13 @@
 Стиль: Groove
 Год: 2013
 
-Группа: Jinjer
-Альбом: "Cloud Factory"
+Группа: Terrorway
+Альбом: "Blackwaters"
+Стиль: Groove
+Год: 2013
+
+Группа: Gojira
+Альбом: "Les Enfants Sauvages"
 Стиль: Groove
 Год: 2014
 
@@ -192,8 +192,8 @@
 Стиль: Groove
 Год: 2014
 
-Группа: Gojira
-Альбом: "Les Enfants Sauvages"
+Группа: Jinjer
+Альбом: "Cloud Factory"
 Стиль: Groove
 Год: 2014
 

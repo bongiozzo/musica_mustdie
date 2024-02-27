@@ -1,8 +1,44 @@
 # Unsun
 
-Дискография
-"The End Of Life" 2008, Gothic
-"Clinic for Dolls " 2010, Gothic
+
+
+## Дискография
+
+### "The End Of Life" 2008, Gothic
+
+1. Whispers 03:33
+2. Lost Innocence 03:18
+3. Blinded by Hatred 03:33
+4. Face the Truth 05:05
+5. The Other Side 04:03
+6. Destiny 03:54
+7. Memories 03:50
+8. Bring Me to Heaven 04:45
+9. On the Edge 03:34
+10. Closer to Death 03:44
+11. Indifference 03:00 
+
+### "Clinic for Dolls " 2010, Gothic
+
+1. The Lost Way 05:39  
+2. Clinic for Dolls 04:19  
+3. Time 04:27  
+4. Mockers 04:07  
+5. Not Enough 04:15  
+6. The Last Tear 04:20  
+7. Home 04:26  
+8. I Ceased 04:36  
+9. A Single Touch 04:36  
+10. Why 03:31 
+
+
+Vocals were recorded at the at the Studio X in Olsztyn and the instruments were
+recorded at the Hertz Studio in Bialystok.
+Cover art by Hi-Res Studio.
+
+Japanese bonus track :
+11. Whispers (Dark Remix) 
+
 
 ## Отношения с другими группами
 

@@ -1,10 +1,60 @@
 # Tuatha de Danann
 
-Дискография
-"Tuatha De Danann" 1999, Folk
-"Tingaralatingadum" 2001, Folk
-"The Delirium Has Just Began..." 2002, Folk
-"Trova di Danu" 2004, Folk
+
+
+## Дискография
+
+### "Tuatha De Danann" 1999, Folk
+
+1. Us
+2. Tuatha de Danann
+3. Beltane
+4. The bards of the infinity
+5. Queen of the witches
+6. Faeryage
+7. Oisin
+8. Inrahma
+
+
+### "Tingaralatingadum" 2001, Folk
+
+1. The dance of the little ones
+2. Battle song
+3. Behold the horned king
+4. Tan pinga ra tan
+5. Finganforn
+6. Vercingetorix
+7. Celtia
+8. Some tunes to fly
+9. Tingaralatinga dum
+10. The dwarves rebellion
+11. Macdara
+
+
+### "The Delirium Has Just Began..." 2002, Folk
+
+1. Brazuzan
+2. The Last Pendragon
+3. Abracadabra
+4. The Last Words
+5. The Wanderings of Oisin
+6. The Delirium has Just Began...
+
+
+### "Trova di Danu" 2004, Folk
+
+1. Bella Natura 04:34 
+2. Lover Of The Queen 04:41 
+3. Land of Youth 04:15  
+4. The Danann’s Voice 00:46 
+5. The Land’s Revenge 06:31
+6. Spellboundance 04:50
+7. Believe, It's True! 05:05
+8. The Arrival 03:11 
+9. Oghma’s Rheel 01:35  
+10. Trova Di Danъ 04:50 
+11. The Wheel 07:16
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,37 @@
 # Bloodshed
 
-Дискография
-"Skullcrusher" 2001, Death Metal
-"Inhabitants of Dis" 2002, Death Metal
+black-death metal
+
+## Дискография
+
+### "Skullcrusher" 2001, Death Metal
+
+1. Preparation - Aggression
+2. Skullcrusher
+3. Let the bloodshed begin
+4. Laughter of destruction
+5. The ultimate overthrow
+
+Recorded at Sunligt studio 20-22 June 2000. Mixed 10 July 2000. Engineered by Jocke Pettersson. Released by code666 productions (summer of 2001). 
+
+
+### "Inhabitants of Dis" 2002, Death Metal
+
+1.   Death by hanging 
+2.   Mark of the cursed 
+3.   Paradoxal experience 
+4.   Release 
+5.   Dark trace 
+6.   Kiss of cruelty 
+7.   Blood music 
+8.   Deceit 
+9.   City of Dis 
+10.   Doomsday device 
+11.   Psychosomatic revelation 
+
+Recorded at location at the Sunlight studio in march 2002. Engineered and mixed by Tomas Skogsberg. Pre-mastered by Daniel Flores at Sheepvalley studio. Mastered at New Era studio, New York. Band, animal and skeleton photos by the eminent Johan Mеrd. Additional photos by Mattias Landin, Michael Johansson and Bloodshed. Cover design and lay-out by Bloodshed. Released by code666 productions (summer of 2002).
+ 
+
 
 ## Отношения с другими группами
 

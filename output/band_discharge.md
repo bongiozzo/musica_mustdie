@@ -1,20 +1,79 @@
 # Discharge
 
-Дискография
-"Realities Of War (EP)" 1980, Punk
-"Fight Back (EP)" 1980, Punk
-"Decontrol (EP)" 1980, Punk
-"Why (EP)" 1981, Punk
-"Never Again (EP)" 1981, Punk
-"Hear Nothing See Nothing Say Nothing " 1982, Punk
-"Why?" 1982, Punk
-"Grave New World" 1986, Metal
-"Massacre Divine" 1991, Metal
-"Shootin' Up the World" 1993, Punk
-"Discharge" 2002, Punk
-"Beginning Of The End (EP)" 2006, Punk
-"Disensitise" 2009, Punk
-"End Of Days" 2016, Punk
+
+
+## Дискография
+
+### "Realities Of War (EP)" 1980, Punk
+
+
+
+### "Fight Back (EP)" 1980, Punk
+
+
+
+### "Decontrol (EP)" 1980, Punk
+
+
+
+### "Why (EP)" 1981, Punk
+
+
+
+### "Never Again (EP)" 1981, Punk
+
+
+
+### "Hear Nothing See Nothing Say Nothing " 1982, Punk
+
+
+
+### "Why?" 1982, Punk
+
+
+
+### "Grave New World" 1986, Metal
+
+
+
+### "Massacre Divine" 1991, Metal
+
+
+
+### "Shootin' Up the World" 1993, Punk
+
+
+
+### "Discharge" 2002, Punk
+
+
+
+### "Beginning Of The End (EP)" 2006, Punk
+
+
+
+### "Disensitise" 2009, Punk
+
+
+
+### "End Of Days" 2016, Punk
+
+01. New World Order
+02. Raped And Pillaged
+03. End Of Days
+04. The Broken Law
+05. False Flag Entertainment
+06. Meet Your Maker
+07. Hatebomb
+08. It Can’t Happen Here
+09. Infected
+10. Killing Yourself To Live
+11. Looking At Pictures Of Genocide
+12. Hung Drawn And Quartered
+13. Population Control
+14. The Terror Alert
+15. Accessories By Molotov (Part 2)
+
 
 ## Отношения с другими группами
 

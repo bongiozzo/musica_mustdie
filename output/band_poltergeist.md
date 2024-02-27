@@ -1,10 +1,36 @@
 # Poltergeist
 
-Дискография
-"Depression" 1989, Thrash
-"Behind The Mask" 1991, Thrash
-"Nothing Lasts Forever" 1993, Thrash
-"Back to Haunt" 2016, Thrash
+
+
+## Дискография
+
+### "Depression" 1989, Thrash
+
+
+
+### "Behind The Mask" 1991, Thrash
+
+1. We Are The People
+2. Behind The Mask
+3. Act Of Violence
+4. Prey
+5. Delution
+6. Drilled To Kill
+7. Make Your Choice
+8. Chato`s Land
+9. Still Alive
+10.Driftin` Away
+
+(p)&(c) 1991 CENTURY MEDIA Records
+
+### "Nothing Lasts Forever" 1993, Thrash
+
+
+
+### "Back to Haunt" 2016, Thrash
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,13 +1,85 @@
 # Redemption
 
-Дискография
-"Redemption" 2004, Progressive
-"The Fullness Of Time" 2005, Progressive
-"The Origins Of Ruin" 2007, Progressive
-"Snowfall on Judgment Day" 2009, Progressive
-"This Mortal Coil" 2011, Progressive
-"Live From The Pit (live, CD+DVD)" 2014, Progressive
-"The Art Of Loss" 2016, Progressive
+FATES WARNING members
+
+## Дискография
+
+### "Redemption" 2004, Progressive
+
+
+
+### "The Fullness Of Time" 2005, Progressive
+
+1. Threads (5.43); 
+2. Parker's Eyes (6.15); 
+3. Scarred (7.56); 
+4. Sapphire (15.55); 
+5. I Rage (5.01); 
+6. Despair (3.20); 
+7. Release (5.16); 
+8. Transcendence (7.59)
+
+All songs written by REDEMPTION
+Produced by Nick Van Dyk and Tommy Newton
+Engineered by Nick Van Dyk, Bill Metoyer and Tommy Newton
+Recorded and mixed at Legacy and Bill's Place Studios
+
+### "The Origins Of Ruin" 2007, Progressive
+
+
+
+### "Snowfall on Judgment Day" 2009, Progressive
+
+1. Peel  06:31   
+2. Walls  06:57  
+3. Leviathan Rising  06:42  
+4. Black and White World  08:03   
+5. Unformed  06:30   
+6. Keep Breathing  07:37   
+7. Another Day Dies  05:15  
+8. What Will You Say  05:20 
+9. Fistful of Sand  06:35   
+10. Love Kills Us All / Life in One Day  11:00 
+
+### "This Mortal Coil" 2011, Progressive
+
+01. Path Of The Whirlwind 05:26 
+02. Blink Of An Eye 05:57 
+03. No Tickets To The Funeral 06:26 
+04. Dreams From The Pit 09:12 
+05. Noonday Devil 05:04 
+06. Let It Rain 07:22 
+07. Focus 05:43 
+08. Perfect 04:49 
+09. Begin Again 06:12 
+10. Stronger Than Death 05:29 
+11. Departure Of The Pale Horse 10:15
+
+
+Ray Alder - vocals 
+Greg Hosharian - keyboards 
+Bernie Versailles - guitars 
+Nicolas van Dyk - guitar, keyboards 
+Chris Quirarte - drums 
+Sean Andrews - bass
+
+
+### "Live From The Pit (live, CD+DVD)" 2014, Progressive
+
+
+
+### "The Art Of Loss" 2016, Progressive
+
+1. The Art of Loss (feat. Simone Mularoni and Chris Poland)
+2. Slouching Towards Bethlehem (feat. Simone Mularoni and Chris Poland)
+3. Damaged (feat. Marty Friedman)
+4. Hope Dies Last (feat. Chris Poland)
+5. That Golden Light
+6. Thirty Silver (feat. Chris Poland, Marty Friedman, and Chris Broderick)
+7. The Center of the Fire (feat. Chris Poland)
+8. Love Reign o'er Me (The Who cover; feat. John Bush and Chris Poland)
+9. At Day's End (feat. Chris Poland and Simone Mularoni)
+
 
 ## Отношения с другими группами
 

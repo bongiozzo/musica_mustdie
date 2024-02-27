@@ -1,17 +1,140 @@
 # Enuff Z'Nuff
 
-Дискография
-"Enuff Z'Nuff" 1989, Hard Rock
-"Strength" 1991, Hard Rock
-"Animals With Human" 1993, Hard Rock
-"1985" 1994, Hard Rock
-"Tweaked" 1995, Hard Rock
-"Peach Fuzz" 1996, Hard Rock
-"Seven" 1997, Hard Rock
-"Paraphernalia" 1999, Hard Rock
-"10" 2000, Hard Rock
-"Welcome To Blue Island" 2003, Hard Rock
-"?" 2005, Hard Rock
+melodic hard rock
+
+## Дискография
+
+### "Enuff Z'Nuff" 1989, Hard Rock
+
+1. New Thing (4:21)   
+2. She Wants More (4:39)     
+3. Fly High Michelle (4:16)
+4. Hot Little Summer Girl (2:57)
+5. In The Groove (6:48)      
+6. Little Indian Angel (3:28) 
+7. For Now (4:29)    
+8. Kiss The Clown (3:13)    
+9. I Could Never Be Without You (3:43)   
+10. Finger On The Trigger (4:45) 
+
+Donnie Vie : Lead Vocals, Guitars, Keyboards 
+Chip Znuff : 4 and 12 String Bass Guitars, Guitar and Vocals 
+Vikki Foxx : Drums 
+Derek Frigo: Lead Guitars
+
+### "Strength" 1991, Hard Rock
+
+1. Heaven Or Hell (3:45)   
+2. Missing You (5:10)    
+3. Strength (5:02)      
+4. In Crowd (3:08)      
+5. Holly Wood Ya (3:05)      
+6. The World Is A Gutter (3:52)   
+7. Goodbye (4:24)      
+8. Long Way To Go (1:53)    
+9. Mother's Eyes (4:37)    
+10. Baby Loves You (4:07)   
+11. Blue Island (4:44)    
+12. The Way Home / Coming Home (5:36)
+13. Something For Free (5:31)    
+14. Time To Let You Go (2:56) 
+
+Donnie Vie : Lead Vocals, Guitars, Keyboards 
+Chip Znuff : 4,8,12 String Bass, Guitars, Vocals 
+Vikki Foxx : Drums 
+Derek Frigo: Lead Guitar
+
+### "Animals With Human" 1993, Hard Rock
+
+1. Superstitious (4:07)
+2. Black Rain (3:48)     
+3. Right By Your Side (4:29)    
+4. These Daze (3:51)      
+5. Master Of Pain (3:25)     
+6. Innocence (4:50)     
+7. One Step Closer To You (3:37)     
+8. Bring It On Home (3:55)     
+9. Takin' A Ride (4:11)     
+10. The Love Train (3:47)     
+11. Mary Anne Lost Her Baby (4:04)    
+12. Rock N World (3:21)     
+13. Fingertips (3:50) 
+
+Donnie Vie : Singer, Guitars & Piano 
+Chip Znuff : 4,8,12-String Bass, Guitars & Vocals 
+Derek Frigo : Lead Guitar 
+Ricky Parent: Drums 
+Additional Musicians : 
+Vic Foxx - Drums, Fib's Tales & Chinese Folding Technique (All Tracks) 
+Kim Bullard - Keyboard Arrangements (tracks 3, 4, 6 & 7) 
+Gary Fry - Keyboards, Sax Arrangements (tracks 1, 5, 9 & 10) 
+Sonny Znuff - Dog Barks (track 4) 
+Slash - Sitar (track 9) **uncredited** 
+Saxes - Mark Colby, Steve Eisen, Jon Negus, Steve Zoloto, Leo Kawczinski, Brian Ripp 
+* Indicates differences from the original Arista Records release
+
+### "1985" 1994, Hard Rock
+
+1. Tears Of A Clown (3:59)  
+2. Catholic Girls (3:39)      
+3. Day By Day (3:18)  
+4. No Second Time (5:06) 
+5. Hollywood Squares (3:46)    
+6. Fingers On It (4:05)    
+7. Aroused (3:12) 
+8. Marie (3:28)     
+9. I'll B The 1 2 Luv U (3:39)     
+10. Goodbye, Goodbye (4:14)     
+11. You Got A Hold Of Me (2:49) 
+Donnie Vie : Singer, 6-12 Lead Guitars, Piano, Keyboards & Percussion 
+Chip Znuff : 4-8-12 Bass Guitars, Guitar & Singer 
+Gino Martino : Guitars 
+B.W. Boeski : Drums
+
+### "Tweaked" 1995, Hard Rock
+
+
+
+### "Peach Fuzz" 1996, Hard Rock
+
+
+
+### "Seven" 1997, Hard Rock
+
+
+
+### "Paraphernalia" 1999, Hard Rock
+
+
+
+### "10" 2000, Hard Rock
+
+
+
+### "Welcome To Blue Island" 2003, Hard Rock
+
+
+
+### "?" 2005, Hard Rock
+
+01. Gorgeous
+02. Home Tonight
+03. Help
+04. No Place Like Home
+05. Harleya
+06. Hang On For Life
+07. Man With A Woman
+08. How Are You
+09. Jani Wani (Likes To Ride The Pony)
+10. This Guy
+11. Stone Cold Crazy
+12. Fly High Michelle (Acoustic) (bonus track)
+
+Donnie Vie: Vocals, Guitars
+Chip Znuff: Bass Guitar, Guitar, Vocals
+Vikki Foxx: Drums
+Derek Frigo: Guitar
+
 
 ## Отношения с другими группами
 

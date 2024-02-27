@@ -1,7 +1,29 @@
 # Fleurety
 
-Дискография
-"Min Tid Skal Komme" 1995, Black Metal
+
+
+## Дискография
+
+### "Min Tid Skal Komme" 1995, Black Metal
+
+1. Fregmenter Av En Fortid
+2. En Skikkelse I Horisonten
+3. Hvilelos ?
+4. Englers Piler Har Ingen Brodd
+5. Fragmenter Av En Fremtid
+
+All Songs Written By FLEURETY.
+Engineered By Ken Ingwersen, Trond 
+Nilsen & Bjorn Bergersen
+Recorded & Mixed In Panser Studio.
+
+Alexander Nordgaren - Guitars,Vocals
+S.E. Hatlevik - Drums,Synth,Vocals
+Per Amund Solberg - Additional Bass
+Marian Aas Hansen - Female Vocals
+
+(P)&(C) 1995 MISANTHROPY Records
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,35 @@
 # Krabathor
 
-Дискография
-"Lies" 1995, Death Metal
-"First alben Double-CD" 1999, Death Metal
+
+
+## Дискография
+
+### "Lies" 1995, Death Metal
+
+1. The Truth About Lies
+2. Unnecessarity
+3. Short Report On The Ritual Carnage
+4. Tears, Hope & Hate
+5. Pain Of Bleeding Hearts
+6. Rebirth Of Blasphemy
+7. Imperator (Strikes Again)
+8. Stonedream
+9. Believe...
+
+All Songs Written By KRABATHOR.
+Produced By KRABATHOR.
+Engineered By Rastislav Krcmarik.
+Recorded & Mixed At Exponent Studio.
+
+Christopher - Guitasr, Vocals
+Bruno - Bass, Vocals
+
+(P)&(C) 1995 MORBID Records
+
+### "First alben Double-CD" 1999, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

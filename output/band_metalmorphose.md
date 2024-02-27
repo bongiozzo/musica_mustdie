@@ -1,7 +1,27 @@
 # Metalmorphose
 
-Дискография
-"Nossa Droga e o Heavy Metal [compilation]" 2010, Heavy Metal
+
+
+## Дискография
+
+### "Nossa Droga e o Heavy Metal [compilation]" 2010, Heavy Metal
+
+1. Correntes 
+2. Rebeldia
+3. A Esperanca Nunca Morre 
+4. Ela Tem Sempre Uma Desculpa 
+5. Nao Quero Ouvir Voce 
+6. Maldicao
+7. Minha Droga e o Metal	 
+8. Cavaleiro Negro
+9. Nosso Futuro
+10. Harpya
+11. Complexo Urbano
+12. Desejo Imortal
+13. Rock And Roll No Inferno
+14. Luta 
+15. Sexy Sadie (The Beatles cover)	
+
 
 ## Отношения с другими группами
 

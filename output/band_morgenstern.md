@@ -1,10 +1,90 @@
 # Morgenstern
 
-Дискография
-"Feuertaufe" 2000, Folk
-"Heute ist die Rache Mein" 2001, Folk
-"Rausch" 2002, Folk
-"Fuego" 2004, Folk
+folk-metal
+
+## Дискография
+
+### "Feuertaufe" 2000, Folk
+
+Intro 
+Stern von Betlehem 
+Das Katzentier 
+Die Magd des Herrn 
+Operie Femina 
+Es 
+Bruder Tod 
+Jerusalem 
+Der Erlцser 
+Hexenmeister 
+Sдufergrab 
+Ich hab gelebt... 
+Der gelbe Vogel
+
+### "Heute ist die Rache Mein" 2001, Folk
+
+Intro
+Verrater
+Hexenjagd
+Ach so bald
+Am Kreuze
+April
+Dein Geist ist willing
+Frei
+Bis aufs Blut
+Totenschimmel
+Heute ist die Rache Mein
+Der Diener
+Das Spiel ist aus
+
+
+
+
+Aufgenommen im Marz 2001 im „Blue House" Studio Meerane
+Produziert von Jens Bachmann sowie Tilo Rockstock und Morgenstern.
+
+Alte Texte und Musik Silvester Goldfarb (Morgenstern)
+
+Stefan - Licht & Nebel / Lucky - Ton / Jens Bachmann - Studio 
+  
+
+
+Diabolicus - Stimme
+Der Hexenengel - Klarinette, Schalmei, Picollo, Stimme
+Der Rattenfanger - Schalmei, Flute, Pauke, Stimme
+Sir Yenser - Gitarre
+R York - Bass
+Silvester Goldfarb - Schlagzeug
+
+
+
+
+### "Rausch" 2002, Folk
+
+01. Sie Liebt Mich
+02. Rausch
+03. Ketzer
+04. Gift
+05. Engel
+06. Inquisition
+07. Herzklopfen
+08. Im Spiegel
+09. Vogelfrei
+10. Ich Brenne
+
+### "Fuego" 2004, Folk
+
+01. Asche
+02. Untertan
+03. Feuer
+04. Carneval
+05. Inferno
+06. Abgesang
+07. Kinderspiel
+08. Schlange
+09. Blut
+10. Abwarts
+11. Sommernacht
+
 
 ## Отношения с другими группами
 

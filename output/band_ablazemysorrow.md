@@ -1,10 +1,115 @@
 # Ablaze My Sorrow
 
-Дискография
-"If Emotions Still Burns" 1996, Melodic Death Metal
-"The Plague" 1997, Melodic Death Metal
-"Anger, Hate And Fury" 2002, Melodic Death Metal
-"Black" 2016, Melodic Death Metal
+
+
+## Дискография
+
+### "If Emotions Still Burns" 1996, Melodic Death Metal
+
+1.  If Emotions Still Burns
+2. The Rain That Falls...
+3. Rise Above The Storming Sea
+4. Denial (The Way Of The Strong)
+5. The Battle
+6. My Last Journey
+7. As I Face The Eternity
+8. My Revenge To Come
+
+All songs written by ABLAZE MY SORROW
+Produced by Fredrik Larnemo and ABLAZE MY SORROW.
+Engineered by Fredrik Larnemo
+Recorded and mixed at Studio MusikMaffian, Varberg.
+
+Mactin Qvist - Vocals
+Magnus Carlsson - Guitar
+Dennie Linden - Guitar
+Anders Brorssomn - Bass
+Alex Bengtsson - Drums
+
+Female Voices by Anne Albertsson
+
+(p)(c) 1996 NO FASHION Records
+
+### "The Plague" 1997, Melodic Death Metal
+
+ 1. Dusk... (instr)
+ 2. The Truth Is Sold
+ 3. Into The Land Of Dreams
+ 4. Mournful Serenade
+ 5. The Return Of The Mighty Raven
+ 6. I Will Be Your God
+ 7. Plague Of Mine
+ 8. As The Dove Falls Torn Apart
+ 9. Suicide
+10. ...Dawn (instr)
+
+~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~
+Anders Brorsson: bass, vocals
+Magnus Carlsson: guitars
+Fredrik Arnesson: lead vocals
+Dennie Linden: lead guitar and vocals
+Alex Bengtsson: drums
+
+Recorded in Stidiomega during August and September 1997
+Mixed by Christian Silver, Alex Bengtsson and Magnus Carlsson.
+Produced by Christian Silver and Ablaze My Sorrow.
+
+
+### "Anger, Hate And Fury" 2002, Melodic Death Metal
+
+01. Erased/Relieved
+02. Suicidal
+03. Where The Strong Live Forever
+04. Machine Supreme
+05. Paradies
+06. Retention Of Illusions
+07. Thou Shalt Forever Suffer
+08. Shrouded Are The Pleasures Of Flesh
+09. Heartless
+10. Slit Wide Open
+11. Ad Libitum
+
+
+
+Magnus Carlsson - Guitars
+Dennie Linden - Lead Guitar & Vocals
+Anders Brorsson - Bass & Vocals
+Alex Bengtsson - Drums
+Kristian Lonnsjo - vocals
+
+
+
+ "Anger, Hate And Fury" was recorded in Sludio
+Recordia during September 2001.
+Mixed by Fredrik Larnemo and Ablaze My Sorrow
+during October.
+Produced by Fredrik Larnemo and Ablaze My Sorrow.
+Engineered and Mastered by Fredrik Larnemo.
+
+Piano in "My hope for life" and "Heartless" played
+by Magnus Carlsson.
+
+Backing vocals on "Slit Wide Open" by Tomas
+Lindberg.
+ 
+
+
+### "Black" 2016, Melodic Death Metal
+
+1. Black  02:40    
+2. One Last Sting  04:17   
+3. Tvaenighet  04:00   
+4. When All Is...  04:41 
+5. Send the Ninth Plague  04:10   
+6. To Reclaim What Is Ours  01:22   instrumental  
+7. Insomnia  03:12   
+8. Blood Heritage  03:38   
+9. Razorblade Revolution  04:37   
+10. The Storm  04:48   
+11. My Blessing  03:56 
+
+Recorded at Studio Haga in Kinna, Mark Municipality, Sweden.
+
 
 ## Отношения с другими группами
 

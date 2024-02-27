@@ -1,7 +1,16 @@
 # Lunacy
 
-Дискография
-"Ad Nauseam" 2003, Black Metal
+
+
+## Дискография
+
+### "Ad Nauseam" 2003, Black Metal
+
+1-raped in peace
+2-derni&egrave;res d&eacute;sillusions
+3-de la mort...
+4-neurasth&eacute;nie
+
 
 ## Отношения с другими группами
 

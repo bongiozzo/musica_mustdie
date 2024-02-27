@@ -1,7 +1,21 @@
 # Mutilation
 
-Дискография
-"Possessed By Reality" 2003, Death Metal
+
+
+## Дискография
+
+### "Possessed By Reality" 2003, Death Metal
+
+Intro 
+Possessed By Reality 
+At Gates Of Time 
+With Spat Soul 
+Fear Came Over Us 
+Baptized Their Own Blood 
+Demonic 
+Deceiver Of Reality 
+Cenotaph
+
 
 ## Отношения с другими группами
 

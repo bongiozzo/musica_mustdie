@@ -1,9 +1,93 @@
 # Gurkkhas
 
-Дискография
-"Engraved In Blood, Flesh and Souls" 2000, Death Metal
-"A Life of Suffering" 2001, Death Metal
-"Tyranny" 2004, Death Metal
+"Death Metal Warrior" from France
+
+## Дискография
+
+### "Engraved In Blood, Flesh and Souls" 2000, Death Metal
+
+All Weather Warriors (Intro) 
+Gurkkhas at War 
+Diabolic Mission 
+Blood and Hate 
+Atrocity 
+Darkthrone 
+Black Sun 
+Crucified 
+The Voice of the terrible One 
+The 12 Gurkkha Commandments
+
+J.F. Rey – vocal
+Richard D.C. - guitar, bass
+Joel – drums
+
+### "A Life of Suffering" 2001, Death Metal
+
+1. Born on a Day of War - 3'41
+2. Tears of Blood - 5'39
+3. A Life of Suffering - 4'04
+4. Kukri - 7'12
+5. The Day of Battle - 3'11
+6. Legacy - 3'47
+7. If I Should Die - 3'42
+8. Chronicles of Chaos - 5'09
+
+
+Rich - Guitar, Bass, Backing Vocals
+JF - Lead Vocals
+Joel L - Drums
+
+
+Info:
+
+Lyrics translated by: Nacht. 69 RUE DE NORMANDIE
+51000 CHALONS EN CHAMPAGNE - France (deadsunrex@aol.com) and David Rocher (david.rocher@liberysurf.fr)
+
+Front Logo, Cover and Illustrations by Jaromir "Deather" Bezruc
+Lay-out by David Najbrt and Jaromir "Deather" Bezruc (indeedhell@seznam.cz)
+
+Recorded and Mixed at: the LB LAB STUDIO in July & August 2000.
+Sound engineers: Stephane Buriez, Assisted by Francois Jamin.
+Produced by: Stephane Buriez & Gurkkhas.
+
+All Lyrics & Music by Gurkkhas (2000).
+
+
+Booking:
+
+France: TFU Management - florent.bt@wanadoo.fr
+Europe: Imperium AG
+Contact: gurkkhas@aol.com
+++33688642863
+
+USA - Canada - South America:
+Black Earth Promotion:
+Raymond Westcott
+2201 Willow Creek Dr. 224
+Austin Texas 78741 USA
+blkearth@hotmail.com
+
+Central America:
+American Lines: lineamer10@hotmail.com
+
+ASIA:
+Bob/Mobile: 012.7126.902
+firestarter@madmail.com
+
+
+GURKKHAS
+10 rue des Capucines,
+22300 Lannion, FRANCE
+Phone: ++33296483017/++33617230444
+E-Mail: gurkkhas@aol.com
+www.multimania.com/gurkkhas/
+
+&copy; 2001 MORBID Records
+
+### "Tyranny" 2004, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

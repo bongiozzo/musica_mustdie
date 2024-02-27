@@ -1,10 +1,159 @@
 # Shadows of Steel
 
-Дискография
-"Shadows of Steel" 1997, Power Metal
-"Twilight" 1998, Power Metal
-"Heroes" 2000, Power Metal
-"Second Floor" 2002, Power Metal
+Italian Power metal
+
+## Дискография
+
+### "Shadows of Steel" 1997, Power Metal
+
+01. Countdown 1:23 
+02. Shadows Of Steel 5:26 
+03. The Playing Room IV 7:25 
+04. Journey 3:29 
+05. Out Of The Darkness 3:51 
+06. The Island 4:11 
+07. Storied Windows 4:42 
+08. Winterland 3:28 
+09. Day As Lions 4:31 
+10. Fly Away 5:27 
+11. Kingdom 4:28 
+12. Gone With The Wind 4:40 
+
+All songs written by Andrea De Stefanis except :
+"Countdown" written by Vic Mazzoni
+"Shadows Of Steel" by De Stefanis-Mazzoni
+
+
+
+Wild Steel - Vocals
+Andrи La Fisic - Guitars
+Andrew McPauls - Keyboards
+Steve Wavamas - Bass
+Gianca - Drums
+
+
+
+Wild Steel
+All Vocals
+ Frank Andiver
+All Drums except "Fly Away"
+ 
+Andrew McPauls
+All Keyboards
+ Gianca
+Drums on "Fly Away"
+ 
+Andrea "Tower" Torricini
+Bass on "Countdown","Shadows Of Steel",
+"Day As Lions"
+ Vic Mazzoni
+Rhythm and Lead Guitar on "Countdown",
+"Shadows Of Steel"
+ 
+Steve Wavamas
+Bass on "The Island","Winterland","Fly Away"
+Slap Bass on "The Playing Room IV" Solo 
+Bass on "Storied Windows","Gone With..."
+ Chris Breeze
+Bass on "The Playing Room IV","Journey",
+"Out Of The Darkness","Storied Windows",
+"Kingdom","Gone With The Wind
+ 
+Andrи La Fisic
+Rhythm Guitar on "The Island","Winterland",
+"Fly Away" Acoustic Guitar on "The Playing
+Room IV","Day As Lions","Fly Away","Gone With The Wind" Lead Guitar on "The Playing Room IV","Winterland","Day As Lions","Fly
+Away","Gone With The Wind"
+ Olaf Thцrsen
+All Rhythm Guitar except "The Island",
+"Winterland","Fly Away"
+Acoustic Guitar on "Journey" Lead
+ Guitar on "Shadows Of Steel","Journey",
+"The Playing Room IV","Storied Windows",
+"Kingdom"
+ 
+
+
+### "Twilight" 1998, Power Metal
+
+Disc 1
+  
+01. Hawk And Lion 6:26 
+02. Twilight 3:04 
+03. Goodbye 4:20 
+04. Fly Away 5:31 
+ Disc 2
+  
+01. Destination Unknown 4:56 
+02. Prelusion 2:04 
+03. Run For Tomorrow 4:25 
+04. Painted Skies 5:08 
+05. The Calling 0:27 
+06. Agent Of Steel 3:00 
+
+All songs written by A. De Stefanis except :
+"Goodbye"  De Stefanis - De Paoli
+"Destination unknown" C. Logue
+"Prelusion" Breeze - La Volpe - Sakowski
+"Run for tomorrow" Gardiner - Kennedy - La Volpe
+"Painted skies" Drenning - Lords - Midnigth
+"The calling" and "Agent of steel"  J. Cyriis & Agent Steel
+
+
+Wild Steel - Lead Vocals
+Vic Mazzoni - Guitars
+Andrew McPauls - Keyboards
+Steve Wavamas - Bass (Disc 1)
+Andrea Tower Torricini - Bass (Disc 2)
+Frank Andiver - Drums
+
+
+### "Heroes" 2000, Power Metal
+
+01. Heroes 4:05 
+02. Welcome To Heaven 6:05 
+03. Wings Of Glory 5:27 
+04. The Hawk 3:26 
+
+All songs written by Andrea De Stefanis except:
+tracks 2,3 by Rubulotta - De Stefanis
+track 4 by Scariti - De Stefanis 
+
+
+
+Wild Steel - Vocals
+Yackson - Guitars
+Ice Raven - Guitars
+Francis Scarlet - Keyboards
+Steve Wavamas - Bass
+Frank Andiver - Drums 
+
+
+### "Second Floor" 2002, Power Metal
+
+01. Prelude 2:16 
+02. Second Floor 5:04 
+03. Somewhere High Above 5:38 
+04. Heroes 4:07 
+05. King Of The Island 4:34 
+06. Dame And Lord 5:35 
+07. December 4:20 
+08. Crying 3:52 
+09. Distant Voices 5:33 
+10. Talk To The Wind 5:37 
+11. Playing room V 4:38 
+
+
+
+Wild Steel - Vocals
+Yackson - Guitars
+Ice Raven - Guitars
+Francis Scarlet - Keyboards
+Steve Wavamas - Bass
+Frank Andiver - Drums 
+
+
+
 
 ## Отношения с другими группами
 

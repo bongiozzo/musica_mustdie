@@ -1,7 +1,34 @@
 # Holy Knights
 
-Дискография
-"Gate Through The Past" 2002, Power Metal
+
+
+## Дискография
+
+### "Gate Through The Past" 2002, Power Metal
+
+01. March Of The Brave 1:39 
+02. Sir Percival (Immortal Knight) 5:49 
+03. Lord Of Nightmares 5:35 
+04. The Revival Of The Black Demon 0:57 
+05. Gate Through The Past 6:17 
+06. Love Against The Power Of Evil 6:14 
+07. Rondeau In A Minor 0:34 
+08. Quest Of Heroes - Part I 3:29 
+09. Quest Of Heroes - Part II 4:30 
+10. The Promise 4:49 
+11. Under The Light Of The Moon 3:29 
+12. When The Rest Let Down 2:42 
+
+
+
+Mark Raven - Lead Vocals & Keyboards
+Danny Merthon - Guitars
+Federico Madonia - Guitars
+Syl Raven - Bass
+Claus Jorgen - Drums
+
+
+
 
 ## Отношения с другими группами
 

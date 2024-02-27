@@ -1,10 +1,59 @@
 # My Sleeping Karma
 
-Дискография
-"My Sleeping Karma" 2006, Psychedelic
-"Satya" 2008, Psychedelic
-"Tri" 2010, Psychedelic
-"Soma" 2012, Psychedelic
+
+
+## Дискография
+
+### "My Sleeping Karma" 2006, Psychedelic
+
+01. Intention
+02. 23 Enigma
+03. Hymn72
+04. Glow11
+05. Drannel Xu IIop
+06. Eightfold Path
+
+### "Satya" 2008, Psychedelic
+
+01. Ahimsa
+02. Interlude I
+03. Satya
+04. Interlude II
+05. A-Staya
+06. Interlude III
+07. Svaatanya
+08. Interlude IV
+09. Brahmachary
+10. Apangraha
+11. Interlude V
+12. Sandi
+
+### "Tri" 2010, Psychedelic
+
+1. Brahama
+2. Parvati
+3. Tamas
+4. Sattva
+5. Shiva
+6. Vishnu
+7. Lakshmi
+8. Rajas
+9. Sarasvati
+
+### "Soma" 2012, Psychedelic
+
+01. Pachyclada
+02. Interlude
+03. Ephedra
+04. Interlude
+05. Eleusine coracana
+06. Interlude
+07. Saumya
+08. Interlude
+09. Somalatha
+10. Interlude
+11. Psilocybe
+
 
 ## Отношения с другими группами
 

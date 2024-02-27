@@ -1,7 +1,13 @@
 # Gerrard, Lisa
 
-Дискография
-"Silver Tree" 2006, Ambient
+ex Dead Can Dance
+
+## Дискография
+
+### "Silver Tree" 2006, Ambient
+
+
+
 
 ## Отношения с другими группами
 

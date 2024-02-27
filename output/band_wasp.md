@@ -1,27 +1,555 @@
 # W.A.S.P.
 
-Дискография
-"Animal (F**k Like a Beast) E.P." 1983, Hard Rock
-"W.A.S.P." 1984, Heavy Metal
-"The Last Command" 1985, Heavy Metal
-"Inside the Electric Circus" 1986, Heavy Metal
-"Live... in the Raw" 1987, Heavy Metal
-"The Headless Children" 1989, Heavy Metal
-"The Crimson Idol" 1992, Heavy Metal
-"First Blood...Last Cuts (compilation)" 1993, Heavy Metal
-"Still Not Black Enough" 1995, Heavy Metal
-"K.F.D. [Kill Fuck Die]" 1997, Heavy Metal
-"Double Live Assassins" 1998, Heavy Metal
-"Helldorado" 1999, Heavy Metal
-"The Best of the Best: 1984-2000, Vol. 1" 2000, Heavy Metal
-"The Sting (live)" 2000, Heavy Metal
-"Unholy Terror" 2001, Heavy Metal
-"Dying for the World" 2002, Heavy Metal
-"The Neon God: Part I - The Rise" 2004, Heavy Metal
-"The Neon God: Part 2 - The Demise" 2004, Heavy Metal
-"Dominator" 2007, Heavy Metal
-"Babylon " 2009, Heavy Metal
-"Golgotha" 2015, Ambient
+Glam Metal & Heavy 1980-'90s
+
+## Дискография
+
+### "Animal (F**k Like a Beast) E.P." 1983, Hard Rock
+
+
+
+### "W.A.S.P." 1984, Heavy Metal
+
+1. Animal (Fuck Like a Beast) [*] - 3:08
+2. I Wanna Be Somebody - 3:43
+3. L.O.V.E. Machine - 3:51
+4. The Flame - 3:41
+5. B.A.D. - 3:56
+6. School Daze - 3:35
+7. Hellion - 3:39
+8. Sleeping (in the Fire) - 3:55
+9. On Your Knees - 3:48
+10. Tormentor - 4:10
+11. The Torture Never Stops - 3:56
+12. Show No Mercy [*] - 3:48
+13. Paint It Black [*] - 3:28
+
+[*] - CD-Bonuses
+
+
+Music by:
+- Tracks #1-3, 5-9, 11, 12 by Lawless
+- Track #4 by Holmes, Lawless, Marquez, Marquez
+- Track #10 by Holmes, Lawless
+- Track #13 by Jagger, Richards
+
+Chris Holmes - Guitar, Guitar (Rhythm)
+Blackie Lawless - Guitar (Bass), Vocals, Producer, Liner Notes
+Tony Richards - Drums, Vocals
+
+Duane Baron: Engineer, Mixing
+Steve Fontano: Engineer
+Hugh Gilmour: Artwork, Reissue Design, Photoshop Artist
+Ross Halfin: Photography
+Hanspeter Huber: Assistant Engineer
+Jim Scott: Assistant Engineer
+David Tarling: Pre-Production
+Larry Vigon: Design
+
+Produced by Mike Varney & Blackie Lawless
+
+&copy; 1984 Capitol Records
+
+### "The Last Command" 1985, Heavy Metal
+
+1. Wild Child - 5:12
+2. Ball Crusher - 3:27
+3. Fistful of Diamonds - 4:13
+4. Jack Action - 4:16
+5. Widowmaker - 5:17
+6. Blind in Texas - 4:21
+7. Cries in the Night - 3:41
+8. The Last Command - 4:10
+9. Running Wild in the Streets - 3:30
+10. Sex Drive - 3:12
+11. Mississippi Queen [*] - 3:21
+12. Savage [*] - 3:32
+13. On Your Knees [live/*] - 4:38
+14. Hellion [live/*] - 4:45
+15. Sleeping (in the Fire) [live/*] - 5:44
+16. Animal (Fuck Like a Beast) [live/*] - 4:37
+17. I Wanna Be Somebody [live/*] - 5:54
+
+[*] Digital Remastering Bonus Tracks
+
+
+Recording Date: Oct 1984
+
+Chris Holmes - Guitar, Guitar (Rhythm)
+Blackie Lawless - Guitar (Bass), Vocals, Producer, 
+Randy Piper - Guitar, Guitar (Rhythm), Vocals
+Steve Riley - Drums, Vocals
+
+Chuck Wright - Background Vocals
+Carlos Cavazo - Background Vocals
+
+Liner Notes by Dante Bonutto, Blackie Lawless, Dom Lawson
+
+Suzanne DuBarry: Production Assistant, Assistant Producer, Assistant
+Hugh Gilmour: Artwork, Layout Design, Reissue Design, Reissue Layout
+Steve Hall: Mastering
+Vigon Seireeni: Design
+Mark Weiss: Photography
+Alex Woltman: Assistant Engineer
+
+Engineered by Hanspeter Huber, Spencer Proffer.
+Produced by Blackie Lawless & Hanspeter Huber.
+
+&copy; 1985 Capitol Records
+
+### "Inside the Electric Circus" 1986, Heavy Metal
+
+1. The Big Welcome
+2. Inside The Electric Circus
+3. I Don't Need No Doctor
+4. 9.5.-N.A.S.T.Y.
+5. Restless Gypsy
+6. Shoot From The Hip
+7. I'm Alive
+8. Easy Living
+9. Sweet Cheeta
+10.Mantronic
+11.King Of Sodom And Gomorrah
+12.The Rock Rolls On
+
+ Blackie Lawless - Lead Vocal,Guitar
+ Johnny Rod - Bass,Vocal
+ Chris Holmes - Lead Guitar
+ Steve Riley - Drums & Vocal
+
+Produced By Blackie Lawless
+Recorded At The Pasha Music House,Hollywood
+
+(p)&(c) 1986 CAPITOL Productions
+
+### "Live... in the Raw" 1987, Heavy Metal
+
+1. Inside The Electric Circus
+2. I Don't Need No Doctor
+3. L.O.V.E. Machine
+4. Wild Child
+5. 95-N.A.S.T.Y.
+6. Sleeping (In The Fire)
+7. The Manimal
+8. I Wanna Be Somebody
+9. Harder Faster
+10. Blind In The Texas
+11. Scream Until You Like It (Them From "Ghoulies II")
+
+ Blackie Lawless - Lead Vocal,Guitar
+ Johnny Rod - Bass,Vocal
+ Chris Holmes - Lead Guitar
+ Steve Riley - Drums & Vocal
+
+(p)&(c) 1987 CAPITOL Records
+
+### "The Headless Children" 1989, Heavy Metal
+
+1. The Heretic (The Lost Child)
+2. The Real Me
+3. The Headless Children
+4. Thunderhead
+5. Mean Man
+6. The Neutron Bomber
+7. Mephisto Waltz
+8. Forever Free
+9. Maneater
+10.Rebel In The F.D.G.
+
+ Blackie Lawless - Lead Vocals & Guitar
+ Chris Holmes - Lead Guitar
+ Johnny Rod - Bass Guitar & Vocals
+
+Produced By Blackie Lawless
+Engineered & Mixed By Mikey Davis
+
+(p) 1989 CAPITOL Records
+(c) 1989 SANCTUARY Productions
+
+### "The Crimson Idol" 1992, Heavy Metal
+
+1. The Titanic Overture
+2. The Invisible Boy
+3. Arena Of Pleasure
+4. Chainsaw Charlie (Murders In The New Morgue)
+5. The Gypsy Meets The Boy
+6. Doctor Rockter
+7. I Am One
+8. The Idol
+9. Hold On To My Heart
+10.The Great Misconceptions Of Me 
+
+ Blackie Lawless - Vocals,Guitar,Bass
+ Stet Howland,Frankie Banali - Drums
+ Bob Kulick - Lead Guitar
+
+Produced By Blackie Lawless
+Engineered & Mixed By Mikey Davis
+
+(p)&(c) 1992 SANCTUARY Productions LTD
+
+### "First Blood...Last Cuts (compilation)" 1993, Heavy Metal
+
+1. Animal (Fuck Like A Beast)
+2. L.O.V.E. Machine (Remix)
+3. I Wanna Be Somebody (Remix)
+4. On Your Knees
+5. Blind In Texas (Remix)
+6. Wild Child (Remix)
+7. I Don't Need No Doctor (Remix)
+8. The Real Me
+9. The Headless Children
+10.Mean Man
+11.Forever Free
+12.Chainsaw Charlie
+13.The Idol
+14.Sunset And Babylon
+15.Hold On To My Heart
+16.Rock And Roll To Death
+
+Produced By Blackie Lawless
+Mixed By Mikey Davis
+
+(p)&(c) 1993 SANCTUARY PRODUCTIONS Ltd.
+
+### "Still Not Black Enough" 1995, Heavy Metal
+
+1. Still Not Black Enough
+2. Somebody To Love
+3. Black Forever
+4. Scared To Death
+5. Goodbye America
+6. Keep Holding On
+7. Rock And Roll To Death
+8. Breathe
+9. I Can't
+10. No Way Out Of Here
+
+ Blackie Lawless - Lead Vocals, Lead, Bass, Rhythm, Acoustic Guitars,
+ Piano, Organ & Synthesizers
+ Frankie Banali - Drums
+ Bob Kulick - Lead Guitars
+
+Produced By Blackie Lawless
+
+(P)&(C) 1995 SANCTUARY Records
+
+### "K.F.D. [Kill Fuck Die]" 1997, Heavy Metal
+
+1. Kill Fuck Die [4:20]
+2. Take the Addiction [3:41]
+3. My Tortured Eyes [4:03]
+4. Killahead [4:07]
+5. Kill Your Pretty Face [5:49]
+6. Fetus [1:23]
+7. Little Death [4:12]
+8. U [5:10]
+9. Wicked Love [4:36]
+10. The Horror [8:26]
+
+
+All music by Holmes/Lawless
+
+Release Date: Apr 29, 1997
+Time: 45:47
+Type: Explicit Lyrics
+ 
+Mikey Davis: Programming, Engineer, Mixing
+
+Mike Duda - Bass, Vocals
+Chris Holmes - Guitar
+Stet Howland - Drums, Vocals
+Blackie Lawless - Guitar, Vocals
+
+Produced by Blackie Lawless
+
+Published by Zomba Music Publ. Ltd.
+
+&copy; 1997 Castle Records (135)
+&copy; 1997 Sanctuary Management Productions Ltd.
+
+### "Double Live Assassins" 1998, Heavy Metal
+
+1. The Medley (Armstead, Ashford, Lawless, Simpson) - 11:32
+2. Wild Child (Holmes, Lawless) - 6:03
+3. Animal (Fuck Like a Beast) (Lawless) - 4:12
+4. L.O.V.E. Machine (Lawless) - 4:16
+5. Killahead (Holmes, Lawless) - 3:50
+6. I Wanna Be Somebody (Lawless) - 6:27
+7. U (Holmes, Lawless) - 5:34
+8. The Real Me (Townshend) - 3:36
+9. Kill Your Pretty Face (Holmes, Lawless) - 6:34
+10. The Horror (Holmes, Lawless) - 9:10
+11. Blind in Texas (Lawless) - 5:34
+12. The Headless Children (Lawless) - 5:46
+13. The Idol (Lawless) - 6:14
+14. Crimson Idol Medley (Lawless) - 10:37
+15. Little Death (Holmes, Lawless) - 4:16
+16. Mean Man/Rock 'n' Roll to Death - (Holmes, Lawless) - 3:51
+
+
+Release Date: Feb 24, 1998
+Recording Date: 1997
+Type: Live
+
+Mike Duda - Bass, Vocals
+Chris Holmes - Guitar, Drums, Vocals
+Blackie Lawless - Guitar, Vocals
+
+Producer: Blackie Lawless
+Mastering: Eddy Schreyer Mastering
+Mixing: Stan Katayama
+
+&copy; 1998 CMC International (86237)
+
+### "Helldorado" 1999, Heavy Metal
+
+1. Drive By [0:55]
+2. Helldorado [5:05]
+3. Don't Cry (Just Suck) [4:16]
+4. Damnation Angels [6:27]
+5. Dirty Balls [5:19]
+6. High on the Flames [4:11]
+7. Cocaine Cowboys [3:57]
+8. Can't Die Tonight [4:04]
+9. Saturday Night Cockfight [3:20]
+10. Hot Rods to Hell <small>(Helldorado Reprise)</small>
+
+
+All music by Blackie Lawless
+
+Release Date: May 18, 1999
+Type: Explicit Lyrics
+
+Mike Duda - Bass, Vocals
+Chris Holmes - Guitar
+Stet Howland - Drums, Vocals
+Blackie Lawless - Guitar, Vocals
+
+Produced by Blackie Lawless
+
+Engineer: Bill Metoyer
+Mastering: Eddy Schreyer & Gene Grimaldi Mastering
+
+&copy; 1999 CMC International (86269)
+
+### "The Best of the Best: 1984-2000, Vol. 1" 2000, Heavy Metal
+
+1. Saturday Night's Alright for Fighting - 4:44
+2. Animal (Fuck Like a Beast) - 3:06
+3. I Wanna Be Somebody - 3:43
+4. L.O.V.E. Machine - 3:51
+5. On Your Knees - 3:47
+6. Show No Mercy - 3:37
+7. Blind in Texas - 4:21
+8. Wild Child - 5:11
+9. Sex Drive - 3:02
+10. 9-5 N.A.S.T.Y. - 4:47
+11. Mean Man - 4:47
+12. Chainsaw Charlie (Murders in the New Morgue) - 7:47
+13. Unreal - 3:19
+14. Helldorado - 5:05
+15. Dirty Balls - 5:19
+
+
+All music by Lawless except:
+#1 by John, Taupin
+
+Release Date: Mar 21, 2000
+Recording Date: Sep 1984 - Dec 1999
+Type: Compilation, Explicit Lyrics
+
+Frankie Banali - Percussion, Drums
+Mike Duda - Guitar (Bass), Vocals
+Chris Holmes - Guitar
+Stet Howland - Drums, Vocals
+Blackie Lawless - Guitar, Vocals
+Randy Piper - Guitar, Vocals
+Tony Richards - Drums, Vocals
+Steve Riley - Drums
+Johnny Rod - Guitar (Bass), Vocals
+
+Art Direction & Design by Kosh
+
+&copy; 2000 Snapper Records
+
+### "The Sting (live)" 2000, Heavy Metal
+
+1. Helldorado <small>[3:20]</small>
+2. Inside the Electric Circus <small>[1:45]</small>
+3. Chainsaw Charlie (Murders in the New Morgue) <small>[5:47]</small>
+4. Wild Child <small>[6:52]</small>
+5. L.O.V.E. Machine <small>[6:13]</small>
+6. Animal (F**k) Like a Beast <small>[5:16]</small>
+7. Sleeping (In the Fire) <small>[6:24]</small>
+8. Damnation Angels <small>[5:59]</small>
+9. Dirty Balls <small>[5:04]</small>
+10. The Real Me <small>[4:02]</small>
+11. I Wanna Be Somebody <small>[8:23]</small>
+12. Blind in Texas <small>[6:48]</small>
+
+
+Release Date: Nov 28, 2000
+Recording Date: Apr 22, 2000
+Type: Live
+
+All Music by Lawless except:
+#4 by Holmes, Lawless
+#10 by Townshend
+
+Sleeve Notes: Brian Burrows
+Liner Notes: Dom Lawson
+
+&copy; 2000 Snapper Records (118362)
+
+### "Unholy Terror" 2001, Heavy Metal
+
+1. Let It Roar (4:40)
+2. Hate to Love Me (4:07)
+3. Loco-Motive Man (6:02)
+4. Unholy Terror (2:01)
+5. Charisma (5:25)
+6. Who Slayed Baby Jane? (4:54)
+7. Euphoria (3:19)
+8. Raven Heart (3:45)
+9. Evermore (6:10)
+10. Wasted White Boys (6:49)
+
+
+Release Date: Apr 3, 2001
+
+Frankie Banali - Drums
+Mike Duda - Guitar (Bass), Vocals
+Chris Holmes - Guitar
+Stet Howland - Drums, Vocals
+Blackie Lawless - Guitar, Keyboards, Vocals, Liner Notes
+Valentina - Vocals (background)
+
+All Music & Lyrics by Blackie Lawless.
+Produced by Blackie Lawless.
+
+Mastering: Tom Baker
+Engineer: Bill Metoyer
+Mixing: Chuck Johnson, Richard Kaplan
+
+&copy; 2001 Metal-Is Records (85204)
+
+### "Dying for the World" 2002, Heavy Metal
+
+1. Shadow Man (5:34)
+2. My Wicked Heart (5:38)
+3. Black Bone Torso (2:15)
+4. Hell for Eternity(4:38)
+5. Hallowed Ground (5:54)
+6. Revengeance (5:20)
+7. Trail of Tears (5:50)
+8. Stone Cold Killers (4:56)
+9. Rubber Man (4:25)
+10. Hallowed Ground (take #5 acoustic) (6:08)
+
+
+Release Date: Jun 11, 2002
+Type: Explicit Lyrics
+
+Frankie Banali - Drums
+Mike Duda - Bass, Vocals
+Blackie Lawless - Guitar, Keyboards, Vocals
+
+All Music & Lyrics written by Blackie Lawless.
+
+Produced by Blackie Lawless.
+Engineered and Mixing by Bill Metoyer.
+Mastering by Tom Baker.
+
+&copy; 2002 Metal-Is Records (85232)
+
+### "The Neon God: Part I - The Rise" 2004, Heavy Metal
+
+1. Overture (3:32)
+2. Why Am I Here (0:34)
+3. Wishing Well (3:33)
+4. Sister Sadie (And the Black Habits) (7:42)
+5. The Rise (2:28)
+6. Why Am I Nothing (0:58)
+7. Asylum #9 (6:18)
+8. The Red Room of the Rising Sun (4:40)
+9. What I'll Never Find (6:02)
+10. Someone to Love Me (All I Need) (0:50)
+11. X.T.C. Riders (4:33)
+12. Me & the Devil (0:52)
+13. The Running Man (4:19)
+14. The Raging Storm (5:45)
+
+
+Release Date: Apr 6, 2004
+
+Frankie Banali - Percussion, Drums
+Mike Duda - Bass, Vocals
+Stet Howland - Drums
+Blackie Lawless - Bass, Guitar, Drums, Keyboards, Vocals
+
+Design & Art Direction by Kosh.
+Digital Editing by Marc Moreau.
+Mastered by Tom Baker.
+
+Produced by Blackie Lawless.
+
+&copy; 2004 Sanctuary Records (85240)
+
+### "The Neon God: Part 2 - The Demise" 2004, Heavy Metal
+
+
+
+### "Dominator" 2007, Heavy Metal
+
+1. Mercy 04:49  
+2. Long, Long Way to Go 03:15  
+3. Take Me Up 04:33  
+4. The Burning Man 04:39  
+5. Heaven's Hung in Black 07:14  
+6. Heaven's Blessed 05:22  
+7. Teacher 05:01  
+8. Heaven’s Hung in Black (Reprise) 03:13  
+9. Deal With the Devil 05:17 
+
+Blackie Lawless (Steven Duren) - Vocals / Guitars / Bass 
+Doug Blair - Guitars 
+Mike Duda - Bass, Vocals 
+Mike Dupke - Drums
+
+### "Babylon " 2009, Heavy Metal
+
+1. Crazy 05:10  
+2. Live To Die Another Day 04:41  
+3. Babylon's Burning 05:00  
+4. Burn (Deep Purple cover) 04:50  
+5. Into The Fire 05:54  
+6. Thunder Red 04:20  
+7. Seas of Fire 04:34  
+8. Godless Run 05:43  
+9. Promised Land (Chuck Berry cover) 03:14 
+
+
+Line-up:
+Blackie Lawless - Vocals, Guitar
+Doug Blair - Lead Guitar
+Mike Duda - Bass
+Mike Dupke - Drums
+
+"Burn" was recorded during the "Dominator" sessions in 2007. 
+
+### "Golgotha" 2015, Ambient
+
+1. Scream
+2. Last Runaway
+3. Shotgun
+4. Miss You
+5. Fallen Under
+6. Slaves Of The New World Order
+7. Eyes Of My Maker
+8. Hero Of The World
+9. Golgotha
+
 
 ## Отношения с другими группами
 

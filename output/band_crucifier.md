@@ -1,7 +1,22 @@
 # Crucifier
 
-Дискография
-"Stronger Than Passing Time" 2003, Death Metal
+
+
+## Дискография
+
+### "Stronger Than Passing Time" 2003, Death Metal
+
+1. Sodomy Of Angels
+2. Thine Enemies Destroyed
+3. Kneel To Lilith
+4. Something Wicked This Way Somes
+5. A Mourning In Nazareth
+6. Demons Of Filth
+7. The Rotten Whore Of God
+8. Fire And Brimstone
+9. Spirits
+10. Plunging Pitchforks Through Paradise
+
 
 ## Отношения с другими группами
 

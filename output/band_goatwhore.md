@@ -1,11 +1,82 @@
 # Goatwhore
 
-Дискография
-"The Eclipse Of Ages Into Black" 2000, Death Metal
-"Funeral Dirge For The Rotting Sun" 2003, Death Metal
-"A Haunting Curse" 2006, Death Metal
-"Carving Out The Eyes Of God" 2009, Death Metal
-"Blood For The Master" 2012, Death Metal
+
+
+## Дискография
+
+### "The Eclipse Of Ages Into Black" 2000, Death Metal
+
+1. Nocturnal Holocaust  01:40   
+2. Lair of Nastrond  02:35   
+3. Desolate Path to Apocalyptic Ruin  03:37 
+4. The Beauty in Suffering  03:32 
+5. As the Reflection Slowly Fades  04:01   
+6. All the Sins  02:01   
+7. Satan's Millenium  02:18   
+8. Upon This Deathbed of Cold Fire  04:49 
+9. Gravedom  03:26 
+10. Invert the Virgin  02:51  
+11. Perversions of the Ancient Goat  01:25  
+12. Into a Darker Sun  03:20   
+13. Under a Dark God  02:48  
+14. Commanding the Legions of Hell  02:55  
+15. Graveyards and Dead Angels  04:29 
+
+### "Funeral Dirge For The Rotting Sun" 2003, Death Metal
+
+1. Sacrament of Emptiness and Despair  01:45    
+2. Vengeance of Demonic Fury  03:07   
+3. Blood Guilt Eucharist  04:01   
+4. The Serpent That Enslaves What Is Worshiped  03:19 
+5. Chanting Bells of Funeral Anguish  03:23  
+6. Sky Inferno  03:41  
+7. A Closure in Infinity  03:44  
+8. Invocation to the Obsidian Moon  01:38 
+9. As the Sun Turns to Ash  03:21   
+10. Fires of the Judas Blood  02:59  
+11. The Black Art of Deception  02:17   
+12. Baptized in a Storm of Swords  03:49 
+
+### "A Haunting Curse" 2006, Death Metal
+
+1. Wear These Scars of Testimony  03:56 
+2. Bloodletting Upon the Cloven Hoof  03:29  
+3. Alchemy of the Black Sun Cult  03:30   
+4. My Eyes Are the Spears of Chaos  02:37  
+5. In the Narrow Confines of Defilement  04:52 
+6. Forever Consumed Oblivion  03:46   
+7. A Haunting Curse...  04:26  
+8. Silenced Marked by the Breaking of Bone  04:05   
+9. Diabolical Submergence of Rebirth  03:22 
+10. ...Of Ashen Slumber  00:56    
+11. I Avenge Myself  04:16 
+
+### "Carving Out The Eyes Of God" 2009, Death Metal
+
+1. Apocalyptic Havoc  03:16   
+2. The All-Destroying  03:13   
+3. Carving Out the Eyes of God  04:19   
+4. Shadow of a Rising Knife  04:38   
+5. Provoking the Ritual of Death  03:43   
+6. In Legions, I Am Wars of Wrath  04:33  
+7. Reckoning of the Soul Made Godless  03:50 
+8. This Passing into the Power of Demons  04:26 
+9. Razor Flesh Devoured  04:16   
+10. To Mourn and Forever Wander Through Forgotten Doorways  04:18 
+
+### "Blood For The Master" 2012, Death Metal
+
+01. Collapse In Eternal Worth
+02. When Steel And Bone Meet
+03. Parasitic Scriptures Of The Sacred Word
+04. In Deathless Tradition
+05. Judgement Of The Bleeding Crown
+06. Embodiment Of This Bitter Chaos
+07. Beyond The Spell Of Discontent
+08. Death To The Architects Of Heaven
+09. An End To Nothing
+10. My Name Is Frightful Among The Believers
+
 
 ## Отношения с другими группами
 

@@ -1,12 +1,99 @@
 # Krieg
 
-Дискография
-"Rise of the Imperial Hordes" 1998, Black Metal
-"Destruction Ritual" 2002, Black Metal
-"The Black House" 2004, Black Metal
-"Sono Lo Scherno" 2005, Black Metal
-"Blue Miasma" 2006, Black Metal
-"The Isolationist" 2010, Black Metal
+
+
+## Дискография
+
+### "Rise of the Imperial Hordes" 1998, Black Metal
+
+1. The Arrival 01:14  
+2. Alarum 03:23  
+3. The Great Black Death 03:04  
+4. As Humanity Fades 03:20  
+5. My Weeping Soul, Part 2 02:24  
+6. Coronation 03:37  
+7. End of Time 04:33  
+8. Calamity From the Skies 03:00  
+9. Reunion of the Ancients 01:47  
+10. Path of Soth 05:07  
+11. The Ascension 02:24  
+12. Enlightened Ones (Havohej cover) * 02:50 
+
+### "Destruction Ritual" 2002, Black Metal
+
+1. Destruction Ritual 05:10  
+2. To Wander the Stars... 04:14  
+3. The Ancient Dwells Beneath 04:41  
+4. As Graveyard Rites... As Darkness Falls 05:58  
+5. Coldwind Flame 05:04  
+6. The Immaculate Whore 04:28  
+7. Suicide Amidst Katharsis 01:55  
+8. A Crumbling Shrine 03:41  
+9. Black Ash Snowfall 02:36  
+10. Enhanced Soil Where Fierce Battles Once Raged 03:54  
+11. Still Waters Shall Remain Their Tombs 02:10 
+
+### "The Black House" 2004, Black Metal
+
+1. Deconstructing The Eternal Tombs 01:52  
+2. Deviant 02:30  
+3. Nemesis 03:04  
+4. Fleshprison Monolith 04:05  
+5. Fallen Princes Of Sightless Visions... 06:54  
+6. A Process Of Dying 03:41  
+7. Sickening Voices Without Speech 02:43  
+8. Ruin Under A Burning Sky 03:05  
+9. ...Without Light 05:38  
+10. Murder Without The Burden Of Conscience 01:16  
+11. Venus In Furs (The Velvet Underground cover) 04:39 
+12. Rooms 01:50  
+13. Coronation * 02:10 
+
+### "Sono Lo Scherno" 2005, Black Metal
+
+1. Seven Plagues, Seven Houses 00:52  
+2. Knights of the Holocaust 04:49  
+3. Fallen One 02:23  
+4. Slit Their Throats to the Spine 04:39  
+5. Hallucinations in the Withered Eden 03:09  
+6. Ruin Under the Burning Skies 06:28  
+7. Maelstrom 03:15  
+8. Plague Waltz 01:27  
+9. Power of Darkness 02:10
+10. Shadows of the Fallen Kingdom 02:38  
+11. Blackash Snowfall 02:52  
+12. Hypnotic Decay 02:04 
+
+### "Blue Miasma" 2006, Black Metal
+
+1. The Great Beast Trembled in Nightmare 03:56
+2. Who Shall Stand Against Me? 03:59  
+3. The Blue Mist 04:04  
+4. Under An Uncaring Moon 07:13  
+5. The Sick Winds Stir the Cold Dawn 04:32  
+6. And Now the End 02:55  
+7. Lingering Doubt 04:32  
+8. Hallucinations in Deep Corruption 06:25  
+9. Every Wound Burned 04:18  
+10. An Empty Room, a Forgotten Funeral 04:34  
+11. The Master's Voice 02:14  
+12. Scars Brought into Question 04:22  
+13. The Forest Beneath the Sea 07:55 
+
+### "The Isolationist" 2010, Black Metal
+
+1. No Future 06:27 
+2. Photographs From An Asylum 05:51  
+3. All Paths to God 05:00  
+4. Ambergeist 04:09  
+5. Depakote 07:17  
+6. Religion III 02:30  
+7. Blue of Noon 04:43  
+8. Decaying Inhalations 05:50  
+9. ...And the Stars Fell On 06:52  
+10. Remission 03:01  
+11. Dead Windows 03:42 
+
 
 ## Отношения с другими группами
 

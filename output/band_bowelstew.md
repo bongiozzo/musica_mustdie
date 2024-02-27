@@ -1,8 +1,28 @@
 # Bowel Stew
 
-Дискография
-"Necrocannibal Rites" 2004, Grindcore
-"Necrocoital Amputorgy" 2010, Grindcore
+sick italian brutal death
+
+## Дискография
+
+### "Necrocannibal Rites" 2004, Grindcore
+
+
+
+### "Necrocoital Amputorgy" 2010, Grindcore
+
+1. Necrocoital Amputorgy	 
+2. Erotic Nights of the Living Dead	 
+3. Horrorwhore / Sadoasylum	 
+4. Sacrificial Defleshing of the Gangrenous	 
+5. Biastophiliac Disembowelment	 
+6. Defecate to Masticate	 
+7. Placentophagical Abortorium	 
+8. Sexorcistic Evisceration	 
+9. Maggot Debridement of Necrotic Vaginal Lesions	 
+10. Lucker the Necrophagous	 
+11. Curse of the Werewhore	 
+12. Acrotomophiliac Rituals of Gynophagia
+
 
 ## Отношения с другими группами
 

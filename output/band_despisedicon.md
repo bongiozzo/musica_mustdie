@@ -1,11 +1,38 @@
 # Despised Icon
 
-Дискография
-"Consumed By Your Poison" 2002, Deathcore
-"The Healing Process" 2005, Deathcore
-"The Ills Of Modern Man" 2007, Deathcore
-"Day Of Mourning" 2009, Deathcore
-"Beast" 2016, Deathcore
+
+
+## Дискография
+
+### "Consumed By Your Poison" 2002, Deathcore
+
+
+
+### "The Healing Process" 2005, Deathcore
+
+
+
+### "The Ills Of Modern Man" 2007, Deathcore
+
+
+
+### "Day Of Mourning" 2009, Deathcore
+
+
+
+### "Beast" 2016, Deathcore
+
+“The Aftermath”
+“Inner Demons”
+“Drapeau Noir”
+“Bad Vibes”
+“Dedicated To Extinction”
+“Grind Forever”
+“Time Bomb”
+“One Last Martini”
+“Doomed”
+“Beast”
+
 
 ## Отношения с другими группами
 

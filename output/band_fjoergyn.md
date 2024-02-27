@@ -1,7 +1,22 @@
 # Fjoergyn
 
-Дискография
-"Ernte Im Herbst" 2005, Black Metal
+Epic Black Viking Metal
+
+## Дискография
+
+### "Ernte Im Herbst" 2005, Black Metal
+
+1. Monolog der Natur 04:18  
+2. Vom Tode der Trхume 05:11  
+3. Fjoergyn 07:22  
+4. Der Tag der Wolfe 07:43  
+5. Des Winters Schmach 05:09  
+6. Wenn Stіrme ruhen 04:23  
+7. Abendwache 07:16  
+8. Veritas dolet 05:16  
+9. Ernte im Herbst 07:37  
+10. Requiem 19:44
+
 
 ## Отношения с другими группами
 

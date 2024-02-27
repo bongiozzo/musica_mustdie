@@ -1,19 +1,148 @@
 # Queensryche
 
-Дискография
-"Queensryche (EP)" 1983, Heavy Metal
-"The Warning" 1984, Heavy Metal
-"Rage For Order" 1986, Heavy Metal
-"Operation: Mindcrime" 1988, Heavy Metal
-"Empire" 1990, Heavy Metal
-"Hear In The Now Frontier" 1997, Heavy Metal
-"Q2K" 1999, Heavy Metal
-"Tribe" 2003, Heavy Metal
-"The Art Of Live" 2004, Heavy Metal
-"Operation: Mindcrime II" 2006, Progressive
-"Take Cover" 2007, Heavy Metal
-"American Soldier" 2009, Heavy Metal
-"Dedicated To Chaos" 2011, Metal
+
+
+## Дискография
+
+### "Queensryche (EP)" 1983, Heavy Metal
+
+
+
+### "The Warning" 1984, Heavy Metal
+
+1.  Warning
+2.  En Force
+3.  Deliverance
+4.  No Sanctuary
+5.  NM 156
+6.  Take Hold Of The Flame
+7.  Before The Storm
+8.  Child Of Fire
+9.  Roads To Madness
+
+(P)c 1984 US
+
+### "Rage For Order" 1986, Heavy Metal
+
+1.  Walk In The Shadows
+2.  I Dream In Infrared
+3.  The Whisper
+4.  Gonna Get Close To You
+5.  The Killing Words
+6.  Surgical Strike
+7.  Neue Regel
+8.  Chemical Youth (We Are Rebellion)
+9.  London
+10.  Screaming In Digital
+11.  I Will Remember
+
+(P)c 1986
+
+### "Operation: Mindcrime" 1988, Heavy Metal
+
+1. Remember Now
+2. Anarchy-X 
+3. Revolution Calling
+4. Operation: Mindcrime
+5. Speak
+6. Spreading The Disease
+7. The Mission
+8. Suite Sister Mary
+9. The Needle Lies
+10.Electric Requiem
+11.Breaking The Silence
+12.I Don't Believe In Love
+13.Waiting For 22
+14.My Empty Room
+15.Eyes Of A Stranger
+
+(P)&(C) 1988
+
+### "Empire" 1990, Heavy Metal
+
+1.  Best I Can
+2.  The Thin Line
+3.  Jet City Woman
+4.  Della Brown
+5.  Another Rainy Night (Without You)
+6.  Empire
+7.  Resistance
+8.  Silent Lucidity
+9.  Hand On Heart
+10.One And Only
+11.Anybody Listening?
+
+(P)c 1990
+
+### "Hear In The Now Frontier" 1997, Heavy Metal
+
+1. Sign Of The Times.
+2. Cuckoo's Nest.
+3. Get A Life.
+4. The Voice Inside.
+5. Some People Fly.
+6. Saved.
+7. You.
+8. Hero.
+9. Miles Away.
+10. Reach.
+11. All I Want.
+12. Hit The Black.
+13. Anytime / Anywhere.
+14. spOOL.
+
+(c)&(p) 1997
+
+GEOFF TATE
+SCOTT ROCKENFELD
+EDDIE JACKSON
+MICHAEL WILTON
+CHRIS DE GARNO
+
+### "Q2K" 1999, Heavy Metal
+
+
+
+### "Tribe" 2003, Heavy Metal
+
+
+
+### "The Art Of Live" 2004, Heavy Metal
+
+
+
+### "Operation: Mindcrime II" 2006, Progressive
+
+01. Freiheit Ouvertьre
+02. Convict
+03. I'm American
+04. One foot in Hell
+05. Hostage
+06. The Hands
+07. Speed of Light
+08. Signs Say Go
+09. Re-arrange You
+10. The Chase
+11. Murderer?
+12. Circles
+13. If I Could Change it All
+14. An Intentional Confrontation
+15. A Junkie's Blues
+16. Fear City Slide
+17. All the Promises
+
+### "Take Cover" 2007, Heavy Metal
+
+
+
+### "American Soldier" 2009, Heavy Metal
+
+
+
+### "Dedicated To Chaos" 2011, Metal
+
+
+
 
 ## Отношения с другими группами
 

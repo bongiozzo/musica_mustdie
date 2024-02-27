@@ -1,7 +1,47 @@
 # Unseen Terror
 
-Дискография
-"Human Terror" 1987, Grindcore
+Now - Napalm Death
+
+## Дискография
+
+### "Human Terror" 1987, Grindcore
+
+1.  Unseen Terror
+2.  Oblivion Descends
+3.  Divisions
+4.  Death Sentence (Of The Innocent)
+5.  Nermal
+6.  Ignorant Scene
+7.  Uninformed
+8.  Expulsion Of Wrath
+9.  Garfield For President
+10.Burned Beyond Recognition
+11.Winds Of Pestilence
+12.Hysteria
+13.In A Shallow Grave
+14.Odie`s Revenge
+15.Deliverance
+16.The End Product
+17.To Live & Learn
+18.Charred Remains
+19.Beyond Eternity
+20.Garfield Strikes Again
+
+ Shane Embury - Drums
+ Mitch Dickinson - Guitar & Vocals
+ Pete Giles - Bass
+
+Produced By Dig & UNSEEN TERROR.
+Engineered By Mike Ivory.
+Recorded & Mixed At Rich Bitch,Sept. `87,Birmingham.
+Front Cover Art By Mark Sikora.
+U.T. Logo & Cover Concept: Mitch.
+Back Cover & Insert: Dig.
+Photos By Dig.
+Mitch Plays Bass On This Album.
+
+(p)&(c) 1987 EARACHE Records
+
 
 ## Отношения с другими группами
 

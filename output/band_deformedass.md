@@ -1,6 +1,9 @@
 # Deformed Ass
 
-Дискография
+crust/grind/hc from Russia
+
+## Дискография
+
 
 ## Отношения с другими группами
 

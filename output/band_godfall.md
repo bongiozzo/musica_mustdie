@@ -1,7 +1,30 @@
 # Godfall
 
-Дискография
-"The Sound Of Robogroove" 1995, Death Doom
+
+
+## Дискография
+
+### "The Sound Of Robogroove" 1995, Death Doom
+
+1.  Robotica 
+2.  H-Human
+3.  Beesting Voyage
+4.  Super-Sonic
+5.  Gigazukerblast
+
+Recorded and Mixed at Studio Blueveljet by J.Tikkinen.
+All music and lyrics by GODFALL.
+Cover artwork by Otto & Mikko Hietabarju.
+Band residence: Finland.
+
+Sami Hamalainen - Guitars
+Jere Kuukkanen - Guitars
+Perttu Laakso - Drums
+Jani Peippo - Vocals
+Antti Sjoblom - Bass
+
+(P)(C) 1995 ABSTRACT EMOTION Records // AE 004
+
 
 ## Отношения с другими группами
 

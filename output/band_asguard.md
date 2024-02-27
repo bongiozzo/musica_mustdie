@@ -1,10 +1,64 @@
 # Asguard
 
-Дискография
-"Black FireLand" 2003, Death Metal
-"Wicca" 2005, Death Metal
-"Dreamslave" 2005, Melodic Death Metal
-"Dreamslave …Awakening" 2007, Melodic Death Metal
+Black-Death metal from Belarus
+
+## Дискография
+
+### "Black FireLand" 2003, Death Metal
+
+
+
+### "Wicca" 2005, Death Metal
+
+1. WIKKA. (instrumental)
+2. THE VISIONS OF DREAM.
+3. THE BLACK WANDERING OF DEATH. (vision 1)
+4. THE BLACK WANDERING OF DEATH. (vision 2)
+5. MASTER OF EVERYTHING (Dream version)
+6. THE ANCIENT TRACK 
+7. DOOMED… 
+8. LEATHER REBEL 
+9. …AN ETERNITY
+
+### "Dreamslave" 2005, Melodic Death Metal
+
+Act I: There is No Time for Inaction. 
+Under the Silent Moon
+Dreamslave
+Masquerade
+Act II: In the World of Violence and Lies
+Master Of Everything 
+Supremacy Over the World
+The Main Art of Mortal
+Slave Forever
+Act III: Time of Eternal Dream 
+Crash of Hope
+Last Day of the Real Existence
+Eternal Dream
+Act IV: Infinite Road To Hell 
+Dark Veil of Dreams
+Where Once the Moon Rose
+
+### "Dreamslave …Awakening" 2007, Melodic Death Metal
+
+1. From Chaotic Memory…
+2. Something In The Past
+3. In Two Time
+4. Rebellion
+5. Buried Alive
+6. Awakening…
+7. Like Fallen Stars
+8. Where Everything Was Different
+9. November Night
+10. Disappearing In The Dark
+11. From The Abyss To Misty Heaven'
+12. Broken Dreams
+Bonus:
+13. Golden Age (KREATOR cover)
+14. Run Through The Night' (ACCEPT cover)
+
++ DVD - Belorussian-Ukrainian-Russian Tour 2005
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,27 @@
 # Lost in Tears
 
-Дискография
-"FOREVER ALONE" 1998, Gothic
-"...ad mortem" 1999, Gothic
+(Gothic from Finland)
+
+## Дискография
+
+### "FOREVER ALONE" 1998, Gothic
+
+Forever Alone
+Why Waste Grace on Me
+Crystal Madonna
+Moon of Mine
+
+
+### "...ad mortem" 1999, Gothic
+
+Lost Treasure
+Past of Tomorrow
+Theatre of Misery
+Angel
+bonus: Moon of Mine (remastered)
+Theatre of Misery - radioedit 
+
+
 
 ## Отношения с другими группами
 

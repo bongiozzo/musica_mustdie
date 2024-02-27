@@ -1,10 +1,51 @@
 # Embracing
 
-Дискография
-"I bear the burden of time" 1996, Melodic Death Metal
-"Dreams Left Behind" 1997, Melodic Death Metal
-"Inside You" 1998, Melodic Death Metal
-"Rift" 1999, Melodic Death Metal
+Melodic Death Metal with Progressive elements
+
+## Дискография
+
+### "I bear the burden of time" 1996, Melodic Death Metal
+
+1 Winterburn 
+2 Shades Embrace 
+3 On wings of sadness 
+4 My dragon banner 
+5 I bear the burden of time 
+6 They seldom return 
+7 Thirst for blood 
+8 Eternal scar 
+9 Shapeless 
+10 A last breath of the night 
+
+### "Dreams Left Behind" 1997, Melodic Death Metal
+
+1 Drown inside the illusion  
+2 Morningdew 
+3 Stolen memories 
+4 Only greedy gods 
+5 Killers nature 
+6 Long time no seen 
+7 For the angels and for me 
+8 The good old days 
+9 Name it tomorrow 
+10 Dreams left behind 
+11 Lay the rose upon the grave 
+
+### "Inside You" 1998, Melodic Death Metal
+
+1 Emerald eyes 
+2 Stop crying 
+3 Inside you 
+4 Dragon rage 
+5 Heroes die in battle
+
+### "Rift" 1999, Melodic Death Metal
+
+1 Stranger 
+2 Chased By A Shadow 
+3 Precious Discovery 
+4 Rift 
+
 
 ## Отношения с другими группами
 

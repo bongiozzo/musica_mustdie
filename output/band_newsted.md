@@ -1,8 +1,30 @@
 # Newsted
 
-Дискография
-"Metal (EP)" 2013, Metal
-"Heavy Metal Music" 2013, Metal
+
+
+## Дискография
+
+### "Metal (EP)" 2013, Metal
+
+1. Soldierhead
+2. Godsnake
+3. King of the Underdogs
+4. Skyscraper
+
+### "Heavy Metal Music" 2013, Metal
+
+01. Heroic Dose (5:25)
+02. Soldierhead (4:17)
+03. ...As The Crow Flies (5:59)
+04. Ampossible (4:01)
+05. Long Time Dead (4:32)
+06. Above All (4:36)
+07. King Of The Underdogs (5:58)
+08. Nocturnus (6:13)
+09. Twisted Tail Of The Comet (5:14)
+10. Kindevillusion (5:20)
+11. Futureality (5:25)
+
 
 ## Отношения с другими группами
 

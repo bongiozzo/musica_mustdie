@@ -1,6 +1,9 @@
 # Satans Blood
 
-Дискография
+Fast and intensive Black Metal
+
+## Дискография
+
 
 ## Отношения с другими группами
 

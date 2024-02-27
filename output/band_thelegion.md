@@ -1,8 +1,25 @@
 # The Legion
 
-Дискография
-"Unseen To Creation" 2003, Death Metal
-"Revocation" 2006, Death Metal
+Swedish black death metal
+
+## Дискография
+
+### "Unseen To Creation" 2003, Death Metal
+
+
+
+### "Revocation" 2006, Death Metal
+
+1. Grotesque Savior   
+2. Virtue of Sin   
+3. Annihilation Chaos   
+4. Horror Vacui   
+5. Impious Gathering   
+6. Bloodgate   
+7. Deadlight Afterglow   
+8. Carnal Harvest   
+9. Nocturnal Apparition
+
 
 ## Отношения с другими группами
 

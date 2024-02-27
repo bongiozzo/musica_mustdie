@@ -1,9 +1,55 @@
 # Revolution Renaissance
 
-Дискография
-"New Era" 2008, Power Metal
-"Age of Aquarius" 2009, Power Metal
-"Trinity" 2010, Power Metal
+
+
+## Дискография
+
+### "New Era" 2008, Power Metal
+
+01. Heroes (Sammet)
+02. I Did It My Way (Kiske)
+03. We Are Magic (Rantanen)
+04. Angel (Kiske)
+05. Eden Is Burning (Rantanen)
+06. Glorious And Divine (Sammet)
+07. Born Upon The Cross (Rantanen)
+08. Keep The Flame Alive (Kiske)
+09. Last Night On Earth (Kiske)
+10. Revolution Renaissance (Kiske)
+
+### "Age of Aquarius" 2009, Power Metal
+
+1. The Age of Aquarius 04:38  
+2. Sins of My Beloved 05:28  
+3. Ixion's Wheel 04:25  
+4. Behind the Mask 02:54  
+5. Ghost of Fallen Grace 04:45  
+6. Heart of All 06:39  
+7. So She Wears Black 07:11  
+8. Kyrie Eleison 06:41  
+9. Into the Future 05:00 
+
+### "Trinity" 2010, Power Metal
+
+1. Marching With the Fools 05:07  
+2. Falling To Rise 04:12  
+3. A Lot Like Me 04:32  
+4. The World Doesn't Get To Me 04:24  
+5. Crossing the Rubicon 05:18  
+6. Just Let It Rain 04:34  
+7. Dreamchild 04:30  
+8. Trinity 10:16  
+9. Frozen Winter Heart 04:27 
+
+
+line-up: 
+Gustavo "Gus" Monsanto - Vocals 
+Timo Tolkki - Guitars 
+Magnus Rosen - Bass
+Bruno Agra - Drums
+Bob Katsionis - Keyboards 
+
+
 
 ## Отношения с другими группами
 

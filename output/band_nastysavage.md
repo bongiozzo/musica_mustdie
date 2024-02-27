@@ -1,12 +1,81 @@
 # Nasty Savage
 
-Дискография
-"Nasty Savage" 1985, Thrash
-"Indulgence" 1987, Thrash
-"Abstract Reality (EP)" 1988, Thrash
-"Penetration Point" 1989, Thrash
-"Wage Of Mayhem" 2002, Thrash
-"Psycho Psycho" 2004, Thrash
+
+
+## Дискография
+
+### "Nasty Savage" 1985, Thrash
+
+
+
+### "Indulgence" 1987, Thrash
+
+ Side One:
+1. Stabbed In Back 4.02
+2. Divination 3.49
+3. XXX 4.43
+4. Indulgence 3.53
+ Side Two:
+1. Inferno 4.11
+2. Hypnotic Trance 4.40
+3. Incursion Dementia 4.44
+4. Distorted Fanatic 4.43
+5. ? 3.51
+
+Curtis Beeson - Drums
+Dezso Istvan Bartha - Bass
+Nasty Ronnie - Vocals
+Ben Meyer - Lead Guitar
+David Austin - Lead Guitar
+
+(p)&(c) 1987 METAL BLADE Records
+
+### "Abstract Reality (EP)" 1988, Thrash
+
+1. Abstract Reality 4.42
+2. Unchained Reality 3.01
+3. Eromantic Vertigo 5.52
+4. You Snooze.You Lose 5.51
+
+Nasty Ronnie - Vocals
+Ben Meyer - Lead Guitars
+David Austin - Lead Guitars
+Chris Moonhouse - Bass
+Curtis Beeson - Drums
+
+(p) 1987 METAL BLADE
+(c) 1988 METAL BLADE
+
+### "Penetration Point" 1989, Thrash
+
+
+
+### "Wage Of Mayhem" 2002, Thrash
+
+
+
+### "Psycho Psycho" 2004, Thrash
+
+1. Psycho Psycho 
+2. Hell Unleashed
+3. Anguish 
+4. Human Factor 
+5. Terminus Maximus 
+6. Dementia 13 
+7. Step Up To The Plate 
+8. Return Of The Savage 
+9. Triumphal Entry 
+10. Betrayal System 
+11. Savage Desire 
+12. Merciless Truths 
+
+
+Nasty Ronnie - vocals
+Ben Meyer - guitars
+David Austin - guitars
+Richard Bateman - bass
+Curtis Beeson - drums
+
 
 ## Отношения с другими группами
 

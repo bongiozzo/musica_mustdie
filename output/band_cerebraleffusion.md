@@ -1,11 +1,57 @@
 # Cerebral Effusion
 
-Дискография
-"Immortal Cemetery (EP)" 1999, Death Metal
-"Violence In Motion" 2003, Death Metal
-"Smashed & Splattered Organs" 2005, Death Metal
-"Impulsive Psychopathic Acts" 2010, Death Metal
-"Idolatry Of The Unethical" 2014, Death Metal
+(brutal death)
+
+## Дискография
+
+### "Immortal Cemetery (EP)" 1999, Death Metal
+
+
+
+### "Violence In Motion" 2003, Death Metal
+
+1. Bloody Esctasy
+2. Dismenbered
+3. Forthcoming Cannibalism
+4. The Inescapable Bond Of The Necromancer
+5. Unnatural Disturbed Flesh
+6. Homicide And Justified Medicine
+7. Violence In Motion
+8. Human Butchery
+9. Sodomized By Dady
+
+### "Smashed & Splattered Organs" 2005, Death Metal
+
+1. Horror And Torture Beyond The Agony
+2. The New Gynaecologycal Method
+3. The Pleasure Of The Absolute Domain
+4. Hidden Insanity
+5. Addiction
+6. Smashed And Splattered Organs
+7. Hatred
+8. Nymphomaniac Collector
+9. Flesh Art
+
+### "Impulsive Psychopathic Acts" 2010, Death Metal
+
+1. Humiliation Through Methodical Submission
+2. Homophobic Indiscriminate Violation
+3. Into Morbid Obesity
+4. Epidemic Of The Era
+5. Psychotic Compositor
+6. Last Torture Preferment
+7. Absolute Excrement
+
+### "Idolatry Of The Unethical" 2014, Death Metal
+
+1. Exposed To Abjection
+2. Narcissistic Taphonomy
+3. Unscrupulous Inebriated Emaciation
+4. Consummation
+5. Lingering Pulse Of Laceration
+6. Terminally Decimating Neurogenesis
+7. Defamatory Fetish
+
 
 ## Отношения с другими группами
 

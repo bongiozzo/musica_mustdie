@@ -1,7 +1,23 @@
 # Casus Belli
 
-Дискография
-"In the Name of Rose" 2005, Heavy Metal
+
+
+## Дискография
+
+### "In the Name of Rose" 2005, Heavy Metal
+
+I'm Your Master 
+Vengeance is My Law 
+Holy Gates (In the Name of Rose) 
+Diamond Crown 
+Edge of a Knife 
+Initiation (Promised Land) 
+Isolation 
+Naked King 
+Wrongly Right 
+Eastern Dance 
+Whispering (Instrumental)
+
 
 ## Отношения с другими группами
 

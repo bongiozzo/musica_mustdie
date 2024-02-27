@@ -1,7 +1,22 @@
 # Attic
 
-Дискография
-"The Invocation" 2012, Heavy Metal
+
+
+## Дискография
+
+### "The Invocation" 2012, Heavy Metal
+
+01. The Hidden Grave 00:51
+02. Funeral in the Woods 04:57
+03. Join the Coven 05:39
+04. Edlyn 05:38
+05. Ghost of the Orphanage 06:05
+06. In the Chapel 01:10
+07. The Invocation 05:25
+08. The Headless Horseman 05:56
+09. Satan's Bride 05:11
+10. Evil Inheritance 06:50
+
 
 ## Отношения с другими группами
 

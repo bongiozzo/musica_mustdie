@@ -1,7 +1,33 @@
 # Overflash
 
-Дискография
-"Threshold To Reality" 1995, Death Metal
+cyber-death
+
+## Дискография
+
+### "Threshold To Reality" 1995, Death Metal
+
+1. Total Devastation		
+2. Enter Life Between		
+3. Land Beyond		
+4. Future Warrior		
+5. Nuclear Winter		
+6. Life Converter		
+7. Infinity (Journey I)		
+8. Strange Environment (Journey II)		
+9. The Evolution		
+10. Threshold To Reality		
+		
+Devo Andersson (MARDUK) - Bass, Guitars, Vocals		
+Dan Swano and Devo -Drums and Effects, Programming		
+		
+All Songs Composed And Arranged By Devo Andersson		
+Drums And Effects Programmed By Dan Swano And Devo		
+Produced And Engineered By Dan Swano		
+Recorded In Unisound Studio (Sweden), June-July 1993		
+		
+(p)&(c) MNW Zone		
+
+
 
 ## Отношения с другими группами
 

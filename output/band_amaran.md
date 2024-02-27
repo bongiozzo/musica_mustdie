@@ -1,8 +1,51 @@
 # Amaran
 
-Дискография
-"A World Depraved" 2002, Heavy Metal
-"Pristine In Bondage" 2004, Heavy Metal
+
+
+## Дискография
+
+### "A World Depraved" 2002, Heavy Metal
+
+Faith Healer
+Rusty Warhorse
+Void
+Daffodil
+Lullaby
+Imperfect
+Little Victory
+Karma in Flesh
+Received a Kiss
+Ode  
+
+### "Pristine In Bondage" 2004, Heavy Metal
+
+1. Atropine
+2. Revolution Without Arms
+3. Coming Home
+4. Inflict
+5. Without Stains
+6. Katharsis
+7. 24 Pills
+8. Wraith
+9. Crow Me
+10. Primal Nature 
+11. As We Fly (bonus track on the slipcase version and the Japanese version)
+12. Seven long Years (bonus track on the Japanese version)
+13 Nocturnal (bonus track on the Japanese version)
+
+
+
+Mikael Andersson - Bass
+Ronnie Backlund - Guitar
+Robin Bergh - Drums
+Johanna De Pierre - Vocals
+Kari Kainulainen - Guitar
+
+
+'Pristine in Bondage' was recorded and mixed during 21 days in April 2004 
+at 'Studio underground' (V&#228;ster&#229;s, Sweden) together with engineer Pelle Saether. 
+Mastered at 'Tailor Maid' (Sweden) by Peter In Debetou.
+
 
 ## Отношения с другими группами
 

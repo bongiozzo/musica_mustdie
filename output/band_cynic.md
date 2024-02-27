@@ -1,10 +1,84 @@
 # Cynic
 
-Дискография
-"Focus" 1993, Techno Death
-"Traced In Air" 2008, Progressive
-"Re-Traced" 2010, Progressive
-"Carbon-Based Anatomy" 2011, Progressive
+ex-Death, Techno Death Metal
+
+## Дискография
+
+### "Focus" 1993, Techno Death
+
+1. Veil Of Maya
+2. Celestial Voyage
+3. The Eagle Nature
+4. Sentiment
+5. I'm But A Wave To
+6. Uroboric Forms
+7. Textures
+8. How Could I
+
+ Paul Masvidal - Vocals,Guitar,Guitar Synth
+ Jason Gobel - Guitar,Guitar Synth
+ Shawn Malone - Bass,Chapman Stick
+ Sean Reinert - Acoustic/Electric Drums, Keyboards
+
+All Songs Written By Cynic
+Produced By Cynic & Scott Burns
+Engineered & Mixed By Scott Burns
+Recorded & Mixed At Morrisound Recording, Tampa,Florida
+
+(p)&(c) 1993 RoadRunner Records
+
+### "Traced In Air" 2008, Progressive
+
+1. Nunc Fluens 02:55  
+2. The Space for This 05:46  
+3. Evolutionary Sleeper 03:34  
+4. Integral Birth 03:52  
+5. The Unknown Guest 04:12  
+6. Adam's Murmur 03:28  
+7. King of Those Who Know 06:08  
+8. Nunc Stans 04:12 
+
+Paul Masvidal - Guitars, Vocals 
+Sean Reinert - Drums, Keyboards 
+Sean Malone - Bass, Chapman Stick 
+Tymon Kruidenier - Guitars, Vocals
+
+
+### "Re-Traced" 2010, Progressive
+
+1. Space 5:12 
+2. Evolutionary 4:23 
+3. King 04:52 
+4. Integral 3:57 
+5. Wheels Within Wheels 4:39
+
+
+Paul Masvidal - Vocals, Guitars 
+Sean Reinert - Drums, Keyboards  
+Tymon Kruidenier - Guitars, Vocals  
+Robin Zielhorst - Bass
+
+### "Carbon-Based Anatomy" 2011, Progressive
+
+1. Amidst The Coals 02:11
+2. Carbon-Based Anatomy 06:24
+3. Bija! 02:27
+4. Box Up My Bones 05:32
+5. Elves Beam Out 03:59
+6. Hieroglyph 02:28
+
+
+
+Sean Reinert - Drums 
+Paul Masvidal - Vocals, Guitar 
+Sean Malone - Bass 
+Max Phelps - Guitars 
+Brandon Giffin - Bass 
+
+Contrary to last year's "Re-Traced", this new EP exclusively consists of brand new material.
+ 
+The artwork was designed by Robert Venosa. 
+
 
 ## Отношения с другими группами
 

@@ -1,10 +1,64 @@
 # Allegaeon
 
-Дискография
-"Fragments of Form and Function" 2010, Melodic Death Metal
-"Formshifter" 2012, Melodic Death Metal
-"Elements of the Infinite" 2014, Melodic Death Metal
-"Proponent for Sentience" 2016, Melodic Death Metal
+
+
+## Дискография
+
+### "Fragments of Form and Function" 2010, Melodic Death Metal
+
+1.	 The Cleansing
+2.	 The Renewa
+3.	 Across the Folded Line
+4.	 The God Particle
+5.	 Biomech - Vals No. 666
+6.	 From Seed to Throne
+7.	 Atrophy of Hippocrates
+8.	 Point of Disfigurement
+9.	 A Cosmic Question
+10.	 Accelerated Evolution
+
+### "Formshifter" 2012, Melodic Death Metal
+
+01. Behold (God I Am)
+02. Tartessos: The Hidden Xenocryst
+03. A Path Disclosed
+04. Iconic Images
+05. Twelve
+06. The Azrael Trigger
+07. From the Stars Death Came
+08. Timeline Dissonance
+09. Formshifter
+10. Secrets of the Sequence
+
+### "Elements of the Infinite" 2014, Melodic Death Metal
+
+1. Threshold of Perception  06:06  
+2. Tyrants of the Terrestrial Exodus  04:18 
+3. Dyson Sphere  04:47  
+4. The Phylogenesis Stretch  04:18   
+5. 1.618  04:17   
+6. Gravimetric Time Dilation  05:26   
+7. Our Cosmic Casket  05:05   
+8. Biomech II  05:17  
+9. Through Ages of Ice – Otzi’s Curse  05:39   
+10. Genocide for Praise – Vals for the Vitruvian Man  12:48 
+
+
+### "Proponent for Sentience" 2016, Melodic Death Metal
+
+1. Proponent for Sentience I - The Conception 	 
+2. All Hail Science 
+3. From Nothing 
+4. Gray Matter Mechanics - Apassionata ex Machinea  
+5. Of Mind and Matrix 
+6. Proponent for Sentience II - The Algorithm 
+7. Demons of an Intricate Design 
+8. Terrathaw and the Quake 
+9. Cognitive Computations 
+10. The Arbiters 
+11. Proponent for Sentience III - The Extermination 
+12. Subdivisions 
+
 
 ## Отношения с другими группами
 

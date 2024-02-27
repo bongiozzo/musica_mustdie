@@ -1,9 +1,64 @@
 # Lady Prowler
 
-Дискография
-"Lady Prowler" 1994, Heavy Metal
-"Lady Prowler" 1994, Heavy Metal
-"The Way To The Guillotine" 1996, Heavy Metal
+Russian Heavy Metal band
+
+## Дискография
+
+### "Lady Prowler" 1994, Heavy Metal
+
+1. Best Or Nothing
+2. Riveted Childhood
+3. Burning Cross
+4. Fire In My Heart
+5. Don't Leave Your Music
+6. The Skirt
+7. Lady Prowler
+
+Валерий Мищенко - вокал
+Роман Пулин - гитара
+Валерий Быстров - гитара
+Михаил Подгузов - бас
+Владимир Левушкин - барабаны
+
+### "Lady Prowler" 1994, Heavy Metal
+
+Сторона А: Lady Prowler
+Сторона B: Riveted Childhood / The Skirt
+
+Дебютный 10'' виниловый EP.
+Последний десятидюймовый сингл, выпущенный Апрелевским заводом грампластинок.
+Тираж: 1.000 экз. Первые 100 - с плакатом.
+
+Валерий Мищенко - вокал
+Роман Пулин - гитара
+Валерий Быстров - гитара
+Михаил Подгузов - бас
+Владимир Левушкин - барабаны
+
+### "The Way To The Guillotine" 1996, Heavy Metal
+
+1. Damned Land (Р. Пулин)
+2. Scotch Whisky (Has Taken My Life) (М. Подгузов)
+3. Rolls Royce (М. Подгузов, Р. Пулин)
+4. Fire In My Heart (Р. Пулин, В. Быстров, В. Мищенко)
+5. Best Or Nothing (В. Быстров)
+6. Burning Cross (В. Быстров)
+7. Don’t Leave Your Music (Р. Пулин)
+8. Riveted Childhood (М. Подгузов)
+9. Ride Cowboy (Russian Version) (В. Мищенко)
+10. The Way To Guillotine (М. Подгузов)
+
+Запись и сведение: NIGHT WIND Studio, Москва, декабрь 1995 - март 1996 гг.
+Продюсеры: Валерий Дадаев и LADY PROWLER
+Специальные гости: Валерий Быстров и Алла Брябина
+
+
+Валерий Мищенко - вокал
+Роман Пулин - гитара
+Михаил Подгузов - бас
+Владимир Левушкин - барабаны
+
+
 
 ## Отношения с другими группами
 

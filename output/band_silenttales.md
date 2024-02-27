@@ -1,8 +1,29 @@
 # Silent Tales
 
-Дискография
-"Lost in the Dreamland" 2003, Folk
-"From The Hiding" 2007, Folk
+
+
+## Дискография
+
+### "Lost in the Dreamland" 2003, Folk
+
+1. Prelude	 
+2. Irish Tune	 
+3. Bure	 
+4. Magic of the Moonlight	 
+5. River	 
+6. Fire From Within	 
+7. Waiting	 
+8. Thirty First June	 
+9. Thunderstorm	 
+10. In My Wood	 
+11. Minuet	 
+12. Lost in the Dreamlamd	 
+13. Weeping Heart
+
+### "From The Hiding" 2007, Folk
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,34 @@
 # Valfeanor
 
-Дискография
-"En Ny Tid" 2007, Black Metal
-"Noreia" 2009, Black Metal
+
+
+## Дискография
+
+### "En Ny Tid" 2007, Black Metal
+
+1. Kingdom of a New Century 02:31  
+2. En Ny Tid 04:34  
+3. Durins Hall 03:18  
+4. The Cold Hard Lands 03:34  
+5. Reborn in the Dark 01:28  
+6. Through the Battles 03:22  
+7. The Last Chapter 05:24  
+8. Ballad of the Forgotten One 04:15  
+9. ...and Leave the Glory Days... 08:14 
+
+### "Noreia" 2009, Black Metal
+
+1. Noria   
+2. Christian Eclipse   
+3. Emptiness/Dolorosus/Hate   
+4. A Wintry See   
+5. Glacially Ancient Existence   
+6. Forsaken   
+7. Aeon Der Schatten   
+8. Soil Of Wisdom   
+9. Region Des Nebels Und Des Regens   
+10. Deepression 
+
 
 ## Отношения с другими группами
 

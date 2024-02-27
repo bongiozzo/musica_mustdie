@@ -1,9 +1,53 @@
 # Threat Signal
 
-Дискография
-"Under Reprisal" 2006, Nu Metal
-"Vigilance" 2009, Nu Metal
-"Threat Signal" 2011, Metalcore
+
+
+## Дискография
+
+### "Under Reprisal" 2006, Nu Metal
+
+01. Rational Eyes
+02. As I Destruct
+03. One Last Breath
+04. Seeing Red
+05. A New Beginning
+06. Counterbalance
+07. Inane
+08. Now
+09. Faceless
+10. Haunting
+11. When All Is Said And Done
+
+### "Vigilance" 2009, Nu Metal
+
+1. Afterlife 04:06
+2. Through My Eyes 04:35 
+3. The Beginning Of The End 04:01 
+4. United We Stand 04:21
+5. Beyond Recognition 04:06 
+6. Another Source Of Light 04:53
+7. Hate Machine 03:37
+8. Severed 03:18
+9. Lost 05:04
+10. Revision 03:10 
+11. In Repair 03:28
+12. Escape From Reality 04:20 
+13. To Remember 05:49 
+
+### "Threat Signal" 2011, Metalcore
+
+1. Uncensored 03:13 
+2. Comatose 03:30 
+3. New World Order 05:49
+4. Trust In None 06:15
+5. Face The Day 04:17 
+6. Fallen Disciples 04:54 
+7. Disposition 05:39 
+8. Death Before Dishonor 04:55 
+9. Buried Alive 06:14
+10. Resistance (Bonus) 03:10
+
+
 
 ## Отношения с другими группами
 

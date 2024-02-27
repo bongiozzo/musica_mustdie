@@ -1,14 +1,125 @@
 # Necrophobic
 
-Дискография
-"The Nocturnal Silence" 1993, Death Metal
-"The Call [EP]" 1993, Death Metal
-"Spawned By Evil [EP]" 1996, Death Metal
-"Darkside" 1997, Death Metal
-"The Third Antichrist" 1999, Death Metal
-"Bloodhymns" 2002, Death Metal
-"Hrimthursum" 2006, Death Metal
-"Death to All" 2009, Death Metal
+Extreme Brutal Satanic Death Metal
+
+## Дискография
+
+### "The Nocturnal Silence" 1993, Death Metal
+
+1. Awakening...
+2. Before The Dawn
+3. Unholy Prophecies
+4. The Nocturnal Silence
+5. Shadows Of The Moon
+6. The Ancients Gate
+7. Sacrificial Rites
+8. Father Of Creation
+9. Where Sinners Burn
+
+ David Parland - Guitar,Keyboard
+ Anders Strokirk - Vocals
+ Tobbe Sidegaard - Bass
+ Joakim Sterner - Drums
+
+All Songs Written By NECROPHOBIC
+Produced By NECROPHOBIC & Thomas Skogsberg
+Engineered By Thomas Skogsberg And Lars Linden
+Recorded & Mixed At Studio Sunlight,
+March 1993
+
+(p)&(c) 1993 BLACK MARK Productions
+
+### "The Call [EP]" 1993, Death Metal
+
+01. Shadows of the Moon (Instrumental) 
+02. The Ancients Gate
+03. Father of Creation
+
+### "Spawned By Evil [EP]" 1996, Death Metal
+
+01. Spawned by Evil
+02. Die by the Sword (Slayer-cover)
+03. Nightmare (Venom-cover)
+04. Enter the Eternal Fire (Bathory-cover)
+
+### "Darkside" 1997, Death Metal
+
+1.  Black Moon Rising
+2.  Spawned By Evil
+3.  Bloodthirst
+4.  Venaeserlio (Episode One)
+5.  Darkside
+6.  The Call
+7.  Descension (Episode Two)
+8.  Nailing The Holy One
+9.  Nifelhel (Episode Three)
+10.  Christian Slaughter
+
+Recorded between eclipse of the moon and eclipse of the sun at Sunlight Studio.
+Produced by NECROPHOBIC.
+Mixed by NECROPHOBIC and Tomas Skogsberg.
+Engineered by Tomas Skogsberg, Fred Estby and Anders Lindstrom.
+Cover artwork by Kristian Wahlin.
+
+Joakin Sterner - Drums
+Tobias Sidegard - Bass, Vocals
+Martin Halfdahn - Guitars
+
+(P)(C) 1997 BLACK MARK Productions // BMCD 096
+
+### "The Third Antichrist" 1999, Death Metal
+
+01. Rise of the Infernal (Instrumental) 
+02. The Third of Arrivals 
+03. Frozen Empire 
+04. Into Armageddon 
+05. Eye of the Storm 
+06. The Unhallowed 
+07. Isaz 
+08. The Throne of Souls Possessed 
+09. He who Rideth in Rage 
+10. Demonic 
+11. One Last Step into the Great Mist 
+
+### "Bloodhymns" 2002, Death Metal
+
+1. Taste of Black 03:32 
+2. Dreams Shall Flesh 05:18
+3. Act of Rebellion 05:03
+4. Shadowseeds 04:56 
+5. Mourningsoul 04:49 
+6. Helfire 03:53
+7. Cult of Blood 05:08
+8. Roots of Heldrasill 04:38
+9. Blood Anthem 05:30
+10. Among the Storms 03:14 
+
+### "Hrimthursum" 2006, Death Metal
+
+1. The Slaughter of Baby Jesus 03:15 
+2. Blinded by Light, Enlightened by Darkness 04:03
+3. I Strike with Wrath 05:53 
+4. Age of Chaos 05:51
+5. Bloodshed Eyes 04:07 
+6. The Crossing 06:19
+7. Eternal Winter 05:21
+8. Death Immaculate 04:41
+9. Sitra Ahra 05:56
+10. Serpents (Beneath the Forest of the Dead) 03:45
+11. Black Hate 04:00
+12. Hrimthursum 06:03 
+
+### "Death to All" 2009, Death Metal
+
+1. Celebration of the Goat 04:42
+2. Revelation 666 06:54
+3. La Santisima Muerte 03:36
+4. For Those Who Stayed Satanic 04:57
+5. Temple of Damnation 05:55
+6. The Tower 04:45	
+7. Wings of Death 05:12	
+8. Death to All 08:44
+
 
 ## Отношения с другими группами
 

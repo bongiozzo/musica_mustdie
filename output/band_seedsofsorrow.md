@@ -1,7 +1,22 @@
 # Seeds Of Sorrow
 
-Дискография
-"Immortal Junkies" 2003, Death Metal
+
+
+## Дискография
+
+### "Immortal Junkies" 2003, Death Metal
+
+1. If jesus dies
+2. Headshot
+3. Fake
+4. Immortal junkies
+5. Deep Mongolian Steinem job
+6. Illuminati
+7. The day the whole world dies
+8. Alcoholic nightmare
+9. Ejaculation of an unknown god
+10. Symphony of destruction (cover Megadeth)
+
 
 ## Отношения с другими группами
 

@@ -1,10 +1,80 @@
 # Visions of Atlantis
 
-Дискография
-"Eternal Endless Infinity" 2002, Metal
-"Cast Away" 2004, Metal
-"Trinity" 2007, Metal
-"Delta" 2011, Metal
+Austrian Power with a female vocal (a-la Nightwish)
+
+## Дискография
+
+### "Eternal Endless Infinity" 2002, Metal
+
+00. Intro
+01. Lovebearing Storm 5:24
+02. Silence 5:06
+03. Mermaid's Wintertale 3:12
+04. Lords of the Sea 5:06
+05. Seduced like Magic 4:57
+06. Eclipse 6:12
+07. The Quest 5:38
+08. Chasing the Light 4:33
+09. Atlantis, farewell 3:36
+
+Nicole Bogner - Vocals
+Christian Stani - Vocals
+Werner Fiedler - Guitars
+Chris Kamper - Synthesizer
+Mike Koren - Bass
+Thomas Caser - Drums
+
+ Aufgenommen und Gemixt im Februar`02
+bei TTS Media Musik
+Produziert von J.R. Friede
+Co-Produziert von Torsten Wordemann &
+Visions of Atlantis
+Bandfoto von Raimund Wrana, wranafoto@aon.at
+Cover von Christian Riese Lassen www.lassenart.com
+Layout von Thomas Caser
+Musik von Visions of Atlantis
+Texte von Chris Kamper
+
+### "Cast Away" 2004, Metal
+
+01. Send Me A Light
+02. Cast Away
+03. Lost
+04. Realm Of Fantasy
+05. Pharaoh's Repentance
+06. Winternight
+07. State Of Suspence
+08. Lemuria
+09. Last Shut Of Your Eyes
+10. Lost (bonus videoclip)
+
+### "Trinity" 2007, Metal
+
+01. At The Back of Beyond
+02. The Secret
+03. Passing Dead End
+04. The Poem
+05. Nothing Left
+06. My Darkside Home 
+07. Wing-Shaped Heart
+08. Return To You
+09. Through My Eyes
+10. Flow This Desert
+11. Seven Seas
+
+### "Delta" 2011, Metal
+
+1. Black River Delta
+2. Memento
+3. New Dawn
+4. Where Daylight Fails
+5. Conquest of Others
+6. Twist of Fate
+7. Elegy of Existence
+8. Reflection
+9. Sonar
+10. Gravitate Towards Fatality
+
 
 ## Отношения с другими группами
 

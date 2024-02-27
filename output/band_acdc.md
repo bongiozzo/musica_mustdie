@@ -1,27 +1,362 @@
 # AC/DC
 
-Дискография
-"Jailbreak" 1974, Heavy Metal
-"T.N.T." 1975, Heavy Metal
-"High Voltage" 1976, Heavy Metal
-"Dirty Deeds Done Dirt Cheap" 1976, Heavy Metal
-"Let There Be Rock" 1977, Heavy Metal
-"Powerage" 1978, Heavy Metal
-"Highway to Hell" 1979, Heavy Metal
-"Back in Black" 1980, Heavy Metal
-"For Those About to Rock We Sallute You" 1981, Heavy Metal
-"Flick of the Switch" 1983, Heavy Metal
-"'74 Jailbreak [EP]" 1984, Heavy Metal
-"Fly on the Wall" 1985, Heavy Metal
-"Who Made Who" 1986, Heavy Metal
-"Blow Up Your Video" 1988, Heavy Metal
-"The Razors Edge" 1990, Heavy Metal
-"Live" 1992, Heavy Metal
-"Big Gun" 1993, Heavy Metal
-"Ballbreaker" 1995, Heavy Metal
-"Stiff Upper Lip" 2000, Heavy Metal
-"Black Ice" 2008, Hard Rock
-"Rock Or Bust" 2014, Heavy Metal
+Heavy Metal Pioneers
+
+## Дискография
+
+### "Jailbreak" 1974, Heavy Metal
+
+Jailbreak
+You Ain't Got A Hold On Me
+Show Business
+Soul Stripper
+Baby, Please Don't Go
+
+
+
+
+### "T.N.T." 1975, Heavy Metal
+
+1.  It's A Long Way To The Top (If You Wanna Rock'N'Roll)
+2.  Rock'N'Roll Singer
+3.  The Jack
+4.  Live Wire
+5.  T.N.T.
+6.  Rocker
+7.  Can I Sit Next To You Girl
+8.  High Voltage
+9.  School Days
+
+(P)c 1975
+
+### "High Voltage" 1976, Heavy Metal
+
+1.  It's A Long Way To The Top
+2.  Rock'N'Roll Singer
+3.  The Jack
+4.  Live Wire
+5.  T.N.T.
+6.  Can I Sit Next To You Girl
+7.  Little Lover
+8.  She's Got Balls
+9.  High Voltage
+
+(P)c 1976
+
+### "Dirty Deeds Done Dirt Cheap" 1976, Heavy Metal
+
+1.  Dirty Deeds Done Dirt Cheap
+2.  Love It First Feel
+3.  Big Balls
+4.  Rocker
+5.  Problem Child
+6.  There's Gonna Be Some Rockin'
+7.  Ain't No Fun
+8.  Ride On
+9.  Squealer
+
+(P)c 1976
+
+### "Let There Be Rock" 1977, Heavy Metal
+
+Go Down
+Dog Eat Dog
+Let There Be Rock
+Bad Boy Boogie
+Problem Child
+Overdose
+Hell Ain't a Bad Place To Be
+Whole Lotta Rosie
+
+
+
+### "Powerage" 1978, Heavy Metal
+
+1.  Rock'N'Roll Damnation
+2.  Down Payment Blues
+3.  Gimme A Bullet
+4.  Riff Raff
+5.  Sin City
+6.  What's Next To The Moon
+7.  Gone Shootin'
+8.  Up To My Neck In You
+9.  Kicked In The Teeth
+
+(P)c 1978
+
+### "Highway to Hell" 1979, Heavy Metal
+
+1. Highway To Hell
+2. Girls Got Rhythm
+3. Walk Over You
+4. Touch Too Much
+5. Beating Around The Bush
+6. Shot Down In Flames
+7. Get It Hot
+8. If You Want Blood
+9. Love Hungry Man
+10.Night Prowler
+
+(P)&(C) 1979
+
+### "Back in Black" 1980, Heavy Metal
+
+1. Hells Bells
+2. Shot To Thrill
+3. What Do You Do For Money,Honey
+4. Given The Dog A Bone
+5. Let Me Put My Love Into You
+6. Back In Black
+7. You Shook Me All Night Long
+8. Have A Drink On Me
+9. Shake A Leg
+10.Rocl'N'Roll Ain't Noise Pollution
+
+(P)&(C) 1980 ATLANTIC Records
+
+### "For Those About to Rock We Sallute You" 1981, Heavy Metal
+
+1.  For Those About The Rock
+2.  Put The Finger On You
+3.  Let's Get It Up
+4.  Inject The Venom
+5.  Snowballed
+6.  Evil Walks
+7.  C.O.D.
+8.  Breaking The Rules
+9.  Night Of The Long Knives
+10.Spellbound
+
+(P)c 1981
+
+### "Flick of the Switch" 1983, Heavy Metal
+
+1.  Rising Power
+2.  This House Is On Fire
+3.  Flick Of The Switch
+4.  Nervous Shakedown
+5.  Landslide
+6.  Guns For Hire
+7.  Deep In The Hole
+8.  Bedlam In Belgium
+9.  Badlands
+10.  Brain Shake
+
+(P)c 1983
+
+### "'74 Jailbreak [EP]" 1984, Heavy Metal
+
+1. Jailbreak
+2. You Ain't Got A Hold On Me
+3. Show Business
+4. Soul Stripper
+5. Baby, Please Don't Go
+
+(P)&(C) 1984 ATLANTIC Records
+
+### "Fly on the Wall" 1985, Heavy Metal
+
+1. Fly On The Wall
+2. Shake Your Foundations
+3. First Blood
+4. Danger
+5. Sink The Pink
+6. Flaying With Girls
+7. Stand Up
+8. Hell Or High Water
+9. Back In Business
+10.Send For The Man
+
+ Brian Johnson - Vocals
+ Angus Young - Guitars
+ Malcolm Young - Guitars
+ Cliff Williams - Bass
+ Simon Wright - Drums
+
+(p)&(c) 1985 ATLANTIC Records
+
+### "Who Made Who" 1986, Heavy Metal
+
+1. Who Made Who
+2. You Shook Me All Night Long
+3. D.T.
+4. Sink The Pink
+5. Ride On
+6. Hells Bells
+7. Shake Your Foundations
+8. Chase The Ace
+9. For Those About To Rock
+
+ Brian Johnson - Vocals
+ Angus Young - Guitars
+ Malcolm Young - Guitars
+ Cliff Williams - Bass
+ Simon Wright - Drums
+
+(p)&(c) 1986 ATLANTIC Records
+
+### "Blow Up Your Video" 1988, Heavy Metal
+
+1.  Heatseeker
+2.  That's The Way I Wanna Rock'N'Roll
+3.  Meanstreak
+4.  Gozone
+5.  Kissin' Dynamite
+6.  Nick Of Time
+7.  Some Sin For Nothin'
+8.  Ruff Stuff
+9.  Two's Up
+10.  This Means War
+
+(P)c 1988
+
+### "The Razors Edge" 1990, Heavy Metal
+
+1. Thunderstruk
+2. Fire Your Guns
+3. Moneytalks
+4. The Razors Edge
+5. Misters For Christmas
+6. Rock Your Heart Out
+7. Are You Ready
+8. Got You By The Balls
+9. Shot Of Love
+10.Let's Make It
+11.Goodbye & Good Riddance To Bad Luck
+12.To Bad Luck
+13.If You Dare
+
+ Brian Johnson - Vocals
+ Angus Young - Guitars
+ Malcolm Young - Guitars
+ Cliff Williams - Bass
+ Chris Slade - Drums
+
+(p)&(c) 1990 ATLANTIC Records
+
+### "Live" 1992, Heavy Metal
+
+Disc One
+1. Thunderstruck
+2. Shoot To Thrill
+3. Back In Black
+4. Sin City
+5. Who Made Who
+6. Heatseeker
+7. Fire Your Guns
+8. Jailbreak
+9. The Jack
+10.The Razors Edge
+11.Dirty Deeds Done Dirt Cheep
+12.Money Talks
+Disc Two
+1. Hells Bells
+2. Are You Ready
+3. That's The Way I Wanna Rock N Roll
+4. High Voltage
+5. You Shook Me All Night Long
+6. Whole Lotta Rosie
+7. Let There Be Rock
+8. Bonny
+9. Highway To Hell
+10.T.N.T.
+11.For Those About To Rock (We Salute You)
+
+Produced By: Bruce Fairbairn
+
+(P)c 1992 ATLANTIC Records
+
+### "Big Gun" 1993, Heavy Metal
+
+1.  Big Gun
+2.  Back In Black З
+3.  For Those About To Rock (We Salute You)
+
+Brian Johnson - Vocals
+Angus Young - Guitars
+Malcolm Young - Guitars
+Cliff Williams - Bass
+Chris Slade - Drums
+
+Produced By Rick Rubin.
+Engineered By David Bianco.
+Taken From Columbia Release "Last Action Hero" Soundtrack.
+З Previously Unreleased Track - Recorded Live In Moscow.
+Produced By Brian Fairbairn.
+Mixing Engineer: Ken Lomas.
+
+(p)&(c) 1993 ALBERT Productions
+
+### "Ballbreaker" 1995, Heavy Metal
+
+1. Hard As A Rock
+2. Cover You In Oil
+3. The Furor
+4. Boogie Man
+5. The Honey Roll
+6. Burnin' Alive
+7. Hail Caesar
+8. Love Bomb
+9. Caught With Your Pants Down
+10.Whiskey On The Rocks
+11.Ballbreaker
+
+Angus Young - Lead Guitar
+Malcolm Young - Rhythm Guitar
+Brian Johnson - Vocals
+Cliff Williams - Bass
+Phil Rudd - Drums
+
+(P)&(C) 1995
+
+### "Stiff Upper Lip" 2000, Heavy Metal
+
+Stiff Upper Lip 
+Meltdown 
+House of Jazz 
+Hold ME Back 
+Safe in New York City 
+Can't Stand Still 
+Can't Stop Rock 'N' Roll 
+Satellite Blues 
+Damned 
+Come and Get It 
+All Screwed Up 
+Give It Up 
+
+
+### "Black Ice" 2008, Hard Rock
+
+1. Rock N' Roll Train
+2. Skies On Fire
+3. Big Jack
+4. Anything Goes
+5. War Machine
+6. Smash N' Grab
+7. Spoilin' For A Fight
+8. Wheels
+9. Decibel
+10. Stormy May Day
+11. She Likes Rock N' Roll
+12. Money Made
+13. Rock N' Roll Dream
+14. Rocking All The Way
+15. Black Ice
+
+### "Rock Or Bust" 2014, Heavy Metal
+
+01. Rock Or Bust
+02. Play Ball
+03. Rock The Blues Away
+04. Miss Adventure
+05. Dogs Of War
+06. Got Some Rock & Roll Thunder
+07. Hard Times
+08. Baptism By Fire
+09. Rock The House
+10. Sweet Candy
+11. Emission Control
+
 
 ## Отношения с другими группами
 

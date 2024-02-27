@@ -1,9 +1,28 @@
 # Reign Of Erebus
 
-Дискография
-"Of Blackest Magick..." 2000, Black Metal
-"Humanracist" 2002, Black Metal
-"Inversion Principle" 2004, Black Metal
+
+
+## Дискография
+
+### "Of Blackest Magick..." 2000, Black Metal
+
+
+
+### "Humanracist" 2002, Black Metal
+
+"Stormwinds of Lucifer" 
+"Funeral of the Nazarene" 
+"The Darkest Pride" 
+"King of the Dead" 
+"Humanracist" 
+"Inquisition:christ" 
+"Prelude to Genocide" 
+"Execution:peace" 
+
+### "Inversion Principle" 2004, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

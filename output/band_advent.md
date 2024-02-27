@@ -1,7 +1,21 @@
 # Advent
 
-Дискография
-"The Dawn" 2003, Black Metal
+Majestic Black Metal with Progressive Elements from Italy
+
+## Дискография
+
+### "The Dawn" 2003, Black Metal
+
+1. Paradise Lost 
+2. Valholl 
+3. Shub-Niggurath 
+4. Beyond The Landscape 
+5. The Dawn 
+6. The Thing The Sleep in The Abyss 
+7. Landscape 
+8. La Lama (The Blade) 
+9. A Closed Room
+
 
 ## Отношения с другими группами
 

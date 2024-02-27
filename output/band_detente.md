@@ -1,8 +1,17 @@
 # Detente
 
-Дискография
-"Recognize No Authority" 1986, Thrash
-"Decline" 2009, Thrash
+
+
+## Дискография
+
+### "Recognize No Authority" 1986, Thrash
+
+
+
+### "Decline" 2009, Thrash
+
+
+
 
 ## Отношения с другими группами
 

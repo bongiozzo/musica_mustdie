@@ -1,7 +1,13 @@
 # Embolism
 
-Дискография
-"Mind Chaos" 2003, Death Metal
+Slovakian brutal-death
+
+## Дискография
+
+### "Mind Chaos" 2003, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

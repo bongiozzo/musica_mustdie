@@ -1,9 +1,21 @@
 # Kobra and the Lotus
 
-Дискография
-"Out of the Pit" 2009, Heavy Metal
-"Kobra and the Lotus" 2012, Heavy Metal
-"High Priestess" 2014, Heavy Metal
+
+
+## Дискография
+
+### "Out of the Pit" 2009, Heavy Metal
+
+
+
+### "Kobra and the Lotus" 2012, Heavy Metal
+
+
+
+### "High Priestess" 2014, Heavy Metal
+
+
+
 
 ## Отношения с другими группами
 

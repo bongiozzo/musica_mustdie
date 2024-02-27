@@ -1,8 +1,25 @@
 # Heulend Horn
 
-Дискография
-"The Saga of The Draugt" 2002, Viking Metal
-"From The Caucasus To Gotland" 2005, Viking Metal
+
+
+## Дискография
+
+### "The Saga of The Draugt" 2002, Viking Metal
+
+
+
+### "From The Caucasus To Gotland" 2005, Viking Metal
+
+1. Leaving the Horn of Miklagard 04:30  
+2. The Knorr Crosses the Black Sea 04:17  
+3. Towards the Dnieper's Mouth 05:05  
+4. Kiev has Fallen 05:09  
+5. Nordic Ghost 04:45  
+6. The Death of Ormr 05:26  
+7. On the Black Sea of Gotland 04:22  
+8. Eykr's Lament 04:23  
+9. The Words of Odhinn 03:09 
+
 
 ## Отношения с другими группами
 

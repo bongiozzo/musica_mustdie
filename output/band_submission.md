@@ -1,7 +1,13 @@
 # Submission
 
-Дискография
-"Failure To Perfection" 2006, Death Metal
+
+
+## Дискография
+
+### "Failure To Perfection" 2006, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

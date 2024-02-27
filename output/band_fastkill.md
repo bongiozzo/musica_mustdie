@@ -1,9 +1,39 @@
 # Fastkill
 
-Дискография
-"Infernal Thrashing Holocaust" 2004, Thrash
-"Nuclear Thrashing Attack" 2007, Thrash
-"Bestial Thrashing Bulldozer" 2012, Thrash
+Japanese thrash-metal maniacs
+
+## Дискография
+
+### "Infernal Thrashing Holocaust" 2004, Thrash
+
+
+
+### "Nuclear Thrashing Attack" 2007, Thrash
+
+1. Nuclear Devastation
+2. Bloodbath
+3. Die In Pain
+4. Kill And Possess
+5. Annihilation Betrayer
+6. Hate, Destruction, Kill
+7. Human Flesh
+8. Sickness
+9. Hunted Victim
+10. S.D.T.D.
+
+### "Bestial Thrashing Bulldozer" 2012, Thrash
+
+1. Kill Fast 
+2. In Thrash We Trust 
+3. Die In The Pentagram 
+4. Stench Of Hell 
+5. Terminal Disease 
+6. Guillotine Attack 
+7. Toxic Tormentor 
+8. Endless Game 
+9. Tortured Again 
+10. Merciless Onslaught
+
 
 ## Отношения с другими группами
 

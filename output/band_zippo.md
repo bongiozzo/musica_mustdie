@@ -1,9 +1,48 @@
 # Zippo
 
-Дискография
-"Ode to Maximum" 2006, Progressive
-"The Road to Knowledge" 2008, Progressive
-"Maktub" 2011, Progressive
+
+
+## Дискография
+
+### "Ode to Maximum" 2006, Progressive
+
+1.	 Alpha	01:49	 
+2.	 Tsunami Dust	05:49	 
+3.	 S.N.A.P.R.S.T.	04:29	 
+4.	 Forgotten Season	04:46	 
+5.	 Night Jam	04:51	 
+6.	 Kid in the Desert	04:07	 
+7.	 Crazy Forest	08:04	 
+8.	 Tukay's Fury	03:23	 
+9.	 The Elephant March	07:10	 
+10.	 Omega	01:25	
+
+### "The Road to Knowledge" 2008, Progressive
+
+1.	 Don Juan's Words		 
+2.	 El Sitio		 
+3.	 The Road to Knowledge		 
+4.	 He Is Outside Us		 
+5.	 Chihuahua Valley		 
+6.	 Ask Yourself A Question		 
+7.	 Lizards Can't Be Wrong		 
+8.	 El Enyerbado		 
+9.	 The Smoke of Diviners		 
+10.	 Reality Is What I Feel		 
+11.	 Mitote		 
+12.	 Three Silver Crows		 
+13.	 Diablera
+
+### "Maktub" 2011, Progressive
+
+1.	 The Personal Legend
+2.	 The Omens
+3.	 Caravan To Your Destiny
+4.	 Man Of Theory
+5.	 We, People's Hearts
+6.	 Simum
+7.	 The Treasure
+
 
 ## Отношения с другими группами
 

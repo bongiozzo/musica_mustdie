@@ -1,7 +1,33 @@
 # Masacre
 
-Дискография
-"Requiem" 1991, Black Metal
+
+
+## Дискография
+
+### "Requiem" 1991, Black Metal
+
+1. Intro-Requiem
+2. Cortejo Funebre
+3. Justicia Ramera
+4. Brutales Masacres
+5. Sepulcros En Ruinas
+6. Escoria
+7. Ola De Violencia
+8. Tiempos De Guerra
+9. Conflicto De Paz
+10.Cancer *
+11.Blasphemias *
+
+Juan Carlos Gomez - Guitars
+Mauricio "Bull Metal" Montoya - Drums
+Alex "Trapeator" Oquendo - Vocals
+Dilson Diaz - Bass
+
+* CD`s Bonus Tracks.
+Produced By Herbaurt Herve & MASACRE.
+
+(p)&(c) 1991 OSMOSE Productions
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,17 @@
 # Botch
 
-Дискография
-"The Unifying Themes of Sex, Death, and Religion" 1997, Hardcore
-"we are the romans" 1999, Hardcore
+
+
+## Дискография
+
+### "The Unifying Themes of Sex, Death, and Religion" 1997, Hardcore
+
+
+
+### "we are the romans" 1999, Hardcore
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,12 +1,101 @@
 # Mortifer (Russia)
 
-Дискография
-"Белая Смерть" 1989, Hard Rock
-"Euthanasia" 1993, Thrash
-"If Tomorrow Comes" 2000, Thrash
-"Blind Faith" 2002, Thrash
-"Total Darkness" 2004, Thrash
-"Cybernized" 2006, Thrash
+
+
+## Дискография
+
+### "Белая Смерть" 1989, Hard Rock
+
+
+
+### "Euthanasia" 1993, Thrash
+
+1. Intro
+2. Euthanasia
+3. Illusions Of Life
+4. Hangman's Confession
+5. Power And Might
+6. Crematory's Yard
+7. Phantasm
+8. Abyss Of Damnation
+9. Hell's Vision
+10.Breaking The Law (JUDAS PRIEST)
+
+(P)&(C) 1993 DEATH CITY Records
+
+### "If Tomorrow Comes" 2000, Thrash
+
+If Tomorrow Comes
+I`m Your Fear
+Fatality Insane
+Crematory`s Yard
+Slave Of Fate
+Sea Of Tears
+Realm Of Shades
+Dont Say Never
+
+
+Executive Producer - Agen Price
+Priduced - Sergey Novikov
+Mastered by Sergey Titov at Saturday Mastering studio
+Artwork & design - eugene A Currant
+Photo By Hariz Fatyhov
+
+All songs written by Sergey Novikov except Realm Of shades (Running Wild)
+All arrangements by Mortifer
+Recorded at Black Magic Studio, Kostroma, 12/98-1/99.
+
+
+
+### "Blind Faith" 2002, Thrash
+
+1. Blind Faith
+2. A Day Of Reckoning
+3. Beggar
+4. Please Your Master
+5. Dance With Death
+6. Empire Of Madness
+7. Misanthrope
+8. Пушечное Мясо
+9. Somebody Put Something In My Drink
+
+### "Total Darkness" 2004, Thrash
+
+1. Marching To Die 4:17
+2. Total Darkness 5:28  
+3. Better Escape 4:02
+4. Experimental Hell 4:56
+5. Until The End 4:40
+6. Place Of Unknown Graves 4:33
+7. Deliverance From Disgrace 4:53
+8. Guilty 3:53
+9. Killed By Destiny 7:05
+10. Nuclear Demon 5.04
+
+Bonus tracks
+
+Digital Bitch 3:50 (by Black Sabbath)
+Into The Fire 4:12 (by Deep Purple)
+Shot Down In Flames 3:28 (by AC/DC)
+Come Together 4:26 (by The Beatles)
+
+### "Cybernized" 2006, Thrash
+
+1. Cybernized 3:12 
+2. Recharge Of Morality 5:14
+3. Tower Of Wisdom 3:43
+4. Ivan The Terrible 4:21
+5. Cryogenic Dream 3:32
+6. Re-generation 4:03
+7. Roll The Dice 3:16 
+8. God Kills The Towns 4:26
+9. Agony Is Wired 4:53
+
+Александр Кукин: ритм-гитара
+Сергей Новиков: соло- и ритм-гитара, вокал 
+Александр Каменщиков: бас 
+Константин Каменщиков: барабаны
+
 
 ## Отношения с другими группами
 

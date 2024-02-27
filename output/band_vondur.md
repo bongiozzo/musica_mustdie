@@ -1,8 +1,50 @@
 # Vondur
 
-Дискография
-"The Galactic Rock 'n' Roll Empire" , Black Metal
-"Stritsfirelysing" 1996, Black Metal
+Killer Cyber-Black Metal (Ex-Abruptum)
+
+## Дискография
+
+### "The Galactic Rock 'n' Roll Empire" , Black Metal
+
+1. Kill Everyone
+2. You Don't Move Me - I Don't Give a Fuck
+3. Rocka Rolla
+4. Red Hot
+5. Love Me Tender
+6. Panzur Legions of Vondur
+7. The Raven's Eyes are as Mirrors of the Bottom of Satan's Black Halls
+
+
+### "Stritsfirelysing" 1996, Black Metal
+
+1.  Kynning - Einvaldnir er Her
+2.  Dreptu Allur
+3.  Uppruni Yonsku
+4.  Kynning-Fjordi Riku
+5.  Fjordi Rikins Uppgungur
+6.  I Eldur Og Drudmur
+7.  Vondur
+8.  Hrafnins Auga Er Sem Speglar A Botni Af Atans Svarta-Salur
+9.  Eitt Bergmal Ur Framtidinnar Dagar
+10.Kirkjur S Kola Brenna
+11.Sigurskrift
+12.Gud Er Dainn
+13.Ekki Krist - Opinberun I & II
+14.Eg Daem Oss Til Dauda
+15.Ekki Nein Vendur Saklaus
+16.Beitir Hnifar Skera Djupur
+17.Hotdingi Satan
+
+It - Guitars, Vocals, Violin, Talk, Backing Vocals
+All - Vocals, Talk, Violence & Death
+Irata - Drums
+
+Produced by It.
+Recorded and Mixed at HELVET Studio.
+Engineered by M. Botlin.
+
+(p)(c) 1996 NECROPOLIS Records NR 010
+
 
 ## Отношения с другими группами
 

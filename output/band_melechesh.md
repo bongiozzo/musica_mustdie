@@ -1,12 +1,101 @@
 # Melechesh
 
-Дискография
-"As Jerusalem Burns...Al'Intisar" 1996, Black Metal
-"Djinn" 2001, Black Metal
-"Sphynx" 2003, Black Metal
-"Emissaries" 2006, Black Metal
-"The Epigenesis" 2010, Death Metal
-"Enki" 2015, Death Metal
+
+
+## Дискография
+
+### "As Jerusalem Burns...Al'Intisar" 1996, Black Metal
+
+01. Intro
+02. Sultan Of Mischief
+03. Assyrian Spirit
+04. Planetary Rites
+05. Hymn To Gibil
+06. The Sorcerers Of Melechesh
+07. Dance Of The Black Genii
+08. Baphomet's Lust
+09. Devil's Night
+10. As Jerusalem Burns... Al'Intisar
+11. Desert Pentagram*
+12. Malek Al'nar (Live In Jerusalem '96)*
+
+*bonus track
+
+### "Djinn" 2001, Black Metal
+
+01. Whispers from the Tower
+02. Genies, Sorcerers and Mesopotamian Nights
+03. A Summoning of Ifrit and Genii
+04. Wardjinn
+05. Rub the Lantern
+06. Covering the Sun
+07. Kurnugi's Reign
+08. Oasis of Molten Gold
+09. Dragon's Legacy
+10. The Siege of Iachish
+
+### "Sphynx" 2003, Black Metal
+
+01. Of Mercury and Mercury 
+02. Secrets of Sumerian Sphynxology 
+03. Annunaki’s Golden Thrones 
+04. Apkallu Counsel 
+05. Tablets of Fate 
+06. Triangular Tattvic Fire 
+07. The Arrival Ritual (instrumental) 
+08. Incendium between Mirage and Time 
+09. Purifier of the Stars 
+10. Caravans to Ur (instrumental)
+
+### "Emissaries" 2006, Black Metal
+
+1. Rebirth Of The Nemesis (Enuma Elish Rewritten) 
+2. Ladders To Sumeria 
+3. Deluge Of Delusional Dreams (Act.1 Ц Cast tempest from the East + Act.2 Ц EnlilТs Retaliation) 
+4. Touching The Spheres Of Sephiroth 
+5. Gyroscope 
+6. Double Helixed Sceptre 
+7. The Scribes Of Kur 
+8. Leper Jerusalem 
+9. Sand Grain Universe 
+10. Emissaries And The Mysterium Magnum
+
+### "The Epigenesis" 2010, Death Metal
+
+1. Ghouls Of Nineveh 06:44  
+2. Grand Gathas Of Baal Sin 05:54 
+3. Sacred Geometry 05:29  
+4. The Magickan And The Drones 07:17  
+5. Mystics Of The Pillar 08:28  
+6. When Halos Of Candles Collide 05:38 
+7. Defeating the Giants 03:24 
+8. Illumination - The Face Of Shamash 05:33  
+9. Negative Theology 03:47  
+10. The Greater Chain Of Being 06:53  
+11. The Epigenesis 12:17 
+
+Line-up:
+Melechesh Ashmedi - Vocals, Guitars, Bass, Keyboards, Percussion
+Moloch - Guitars, Bouzouki
+Rahm - Bass
+Xul - Drums, Percussion
+
+Recorded at the Babajim Studio in Istanbul, Turkey. Mixed by Reuben de Lautour.
+Mastered by Pieter Snapper.
+Cover art by John Coulthart. 
+
+### "Enki" 2015, Death Metal
+
+1. Tempest Temper Enlil Enraged
+2. The Pendulum Speaks
+3. Lost Tribes
+4. Multiple Truths
+5. Enki - Divine Nature Awoken
+6. Metatron And Man
+7. The Palm The Eye And Lapis Lazuli
+8. Doorways To Irkala
+9. The Outsiders
+
 
 ## Отношения с другими группами
 

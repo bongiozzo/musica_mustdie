@@ -1,10 +1,68 @@
 # Angelus Apatrida
 
-Дискография
-"Evil Unleashed" 2006, Thrash
-"Give 'Em War" 2007, Thrash
-"Clockwork" 2010, Thrash
-"The Call" 2012, Thrash
+
+
+## Дискография
+
+### "Evil Unleashed" 2006, Thrash
+
+01. Overture: The Dictate (0:54)
+02. Versus The World (5:11)
+03. Fuck You (4:26)
+04. Backbone Crusher (4:19)
+05. Gone Away (5:16)
+06. Time To Rise Hell (4:04)
+07. Negotiating The Clowns (4:12)
+08. The Thornmaker (3:55)
+09. Sons Of Revolution (4:55)
+10. Hereditary Genius (4:09)
+11. Killers And Killed (4:45)
+12. Domination (Pantera cover) (5:10)
+
+### "Give 'Em War" 2007, Thrash
+
+01. Vomitive 04:00
+02. So Unjustly 03:16
+03. Corruption 03:10
+04. Free Your Soul 04:24
+05. Never Forget 05:27
+06. Energy 04:40
+07. Give 'Em War 02:59
+08. Collateral Damage 04:23
+09. Room 237 03:42
+10. Thrash Attack 04:23
+11. In the Heart of Nations 04:09
+12. The Calm 04:34
+
+### "Clockwork" 2010, Thrash
+
+1. The Manhattan Project
+2. Blast Off
+3. Of Men And Tyrants
+4. Clockwork
+5. Devil Take The Hindmost
+6. The Misanthropist
+7. Legally Brainwashed
+8. Get Out Of My Way
+9. My Insanity
+10. One Side One War
+11. Into The Storm
+12. National Disgrace
+13. Be Quick Or Be Dead (Iron Maiden Cover) (Bonus Track)
+
+### "The Call" 2012, Thrash
+
+01. You Are Next
+02. At the Gates of Hell
+03. Violent Dawn
+04. It’s Rising!
+05. Blood on the Snow
+06. Killer Instinct
+07. The Hope Is Gone
+08. Fresh Pleasure
+09. Still Corrupt
+10. Reborn
+
 
 ## Отношения с другими группами
 

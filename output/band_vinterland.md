@@ -1,7 +1,29 @@
 # Vinterland
 
-Дискография
-"Welcome My Last Chapter" 1996, Black Metal
+
+
+## Дискография
+
+### "Welcome My Last Chapter" 1996, Black Metal
+
+1. Our Dawn Of Glory
+2. I'm An Other In The Night
+3. So Far Beyond...(The Great Vastforest)
+4. A Castle So Crystal Clear
+5. As I Behold The Dying Sun
+6. Vinterskogen
+7. Still The Night Is Awake
+8. A Vinter Breeze
+9. Wings Of Sorrow
+
+Pehr Larsson - 6 Strings Of Winter, Acoustic Guitars & Backing Vocals
+Andreas Svensson - Black Abyssic Thunder
+Forn Bragman - 6 Strings Of Knight, Acoustic Guitars, Bass & Vocals
+
+Band Residence: Sweden.
+
+(P)(C) 1996 NO FASHION Records // NFR 017
+
 
 ## Отношения с другими группами
 

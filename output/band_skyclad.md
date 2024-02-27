@@ -1,20 +1,362 @@
 # Skyclad
 
-Дискография
-"The Wayward Sons of Mother Earth" 1991, Thrash
-"A Burnt Offering For The Bone Idol" 1992, Thrash
-"Tracks From The Wilderness" 1992, Thrash
-"Jonah's Ark" 1993, Folk
-"Prince Of The Poverty Line" 1994, Folk
-"The Silent Whales Of Lunar Sea" 1995, Folk
-"Oui Avant-Garde A Chance" 1996, Folk
-"Irrational Anthems" 1996, Folk
-"The Answer Machine?" 1997, Folk
-"Vintage Whine" 1999, Folk
-"Folkemon" 2000, Folk
-"No Daylights.....Nor Heeltaps...." 2002, Folk
-"A Semblance of Normality" 2004, Folk
-"In The… All Together" 2009, Folk
+
+
+## Дискография
+
+### "The Wayward Sons of Mother Earth" 1991, Thrash
+
+The Sky Beneath My Feet 
+Trance Dance (A Dreamtime Walkabout) 
+A Minute's Piece 
+The Widdershins Jig  
+Our Dying Island 
+Intro: Pagan Man
+The Cradle Will Fall  
+Skyclad 
+Moongleam and Meadowsweet
+Terminus
+
+
+Martin Walkyier - Voice
+Graeme English - Bass Guitar
+Steve Ramsey - Lead Guitar
+Keith Baxter - Drums and Percussion
+
+### "A Burnt Offering For The Bone Idol" 1992, Thrash
+
+1. War And Disorder
+2. A Broken Promised Land
+3. Spinning Jenny
+4. Salt On Earth (Another Man's Poison)
+5. Karmageddon (The Suffering Silence)
+6. Ring Stone Round 
+7. Men Of Straw
+8. R'Vannith
+9. The Declaration Of Indifference
+10.Alone In Death's Shadow
+
+ Martin Walkyier - Voice
+ Steve Ramsey - Lead Guitar
+ Dave Pugh - Lead Guitar
+ Graeme English - Bass
+ Keith Baxter - Drums
+ Fritha Jenkins - Violin, Back. Vocals
+
+All Songs By Ramsey/Walkyier
+Produced By Kevin Ridley & Skyclad
+Engineered By Simon Osborne
+
+(p)&(c) 1992 NOISE Intl.
+
+### "Tracks From The Wilderness" 1992, Thrash
+
+1.  Emerald
+2.  A Room Next Door
+3.  When All Else Fates
+4.  The Declaration Of Indifference (Live)
+5.  Spinning Jenny (Live)
+6.  Skyclad (Live)
+
+(P)c 1992
+
+### "Jonah's Ark" 1993, Folk
+
+1. Thinking Allowed
+2. Cry Of The Land
+3. Schadenfreude
+4. A Near Life Experience
+5. The Weckedest Man In The World
+6. Earth Mother, The Sun And The Furious Host
+7. The Ilk Of Human Blindness
+8. Tunnel Visionaires
+9. A World To The Wise
+10.Bewilderbeast
+11.It Wasn't Meant To The End This Way
+
+ Martin Walkyier - Voice
+ Steve Ramsey - Lead & Classical Guitar
+ Dave Pugh - Lead Guitar
+ Graeme English - Bass& Classical Guitar
+ Keith Baxter - Drums & Percussion
+ Fritha Jenkins - Violin, Mandoline & Keyboards
+
+Produced & Mixed By Kevin Ridley
+Engineered By Simon Osbourne
+Recorded At Lynx Studio / Newcastle
+
+(p)&(c) 1993 NOISE
+
+### "Prince Of The Poverty Line" 1994, Folk
+
+1. Civil War Dance
+2. Cardboard City
+3. Sins Of Emission
+4. Land Of The Rising Slum
+5. The One Piece Puzzle
+6. A Bellyful Of Emptiness
+7. A Dog In The Manger
+8. Gammadion Seed
+9. Womb Of The Worm
+10. The Truth Famine
+
+All music written by RAMSEY
+All lurics written by Walkyier
+Produced by Kevin Ridley & Skyclad
+Engineered by Kevin Ridley
+Recorded at Lynx Studios,Newcaste
+
+ Martin Walkyier - Voice
+ Steve Ramsey - Lead guitar,12 string guitar
+ Dave Pugh - Lead Guitar
+ Graeme English - Bass guitar
+ Keith Baxter - Drums
+ Cath Howell - Violin,keyboards
+
+(p)(c) 1994 NOISE Records
+
+### "The Silent Whales Of Lunar Sea" 1995, Folk
+
+Still Spinning Shrapnel 
+Just what Nobody Wanted 
+Art - Nazi 
+Jeopardy 
+Brimstone Ballet 
+A Stranger in the Garden
+Another Fine Mess
+Turncoat Rebellion 
+Halo of Flies 
+Desperanto (A Song for Europe?) 
+The Present Imperfect 
+(Dance of the Dandy Hound) - Hidden Track! 
+
+
+
+Martin Walkyier - Voice
+Graeme English - Bass Guitar, Keyboards, Classical Guitar and Backing Vocals
+Steve Ramsey - Lead, Acoustic and Classical Guitars, Keyboards, Mandolin and Backing Vocals
+Dave Pugh - Lead Guitars, Banjo Guitar and Backing Vocals
+Keith Baxter - Drums and Percussion
+George Biddle - Fiddle, Keyboards and Backing Vocals
+
+### "Oui Avant-Garde A Chance" 1996, Folk
+
+1.  If l Die Laughing, It'll Be An Act Of God
+2.  Great Blow For A Day Job
+3.  Constance Etemal
+4.  Postcard From Planet Earth
+5.  Jumping My Shadow
+6.  Bombjour !
+7.  History Lessons (The Final Examination)
+8.  A Badtime Story
+9.  Come On Eileen
+10.Master Race
+11.Bombed Out (Instru-Mental)
+12.Penny Dreadful (Full Shilling Mix)
+
+Recorded and Mixed at Parr Street & Jacobs Studios by Kevin Ridley & Pete Coleman.
+Produced by Kevin Ridley and SKYCLAD.
+
+Martin Walkyier - Vocals,
+Steve Ramsey - Guitars, Mandolin, Keyboards, Backing Vocals
+George Biddle - Fiddle, Viola, Keyboards, Piano, Backing Vocals
+Graeme "Bean" English - Bass, Guitars, Keyboards, Backing Vocals
+
+Paul A.T. Kinson - Drums, Percussion on  trax 1,2,4,5,9
+Paul Smith - Drums, Percussion on trax 3,6,7,8,10,11,12
+
+(P)c 1996 MASSACRE Records // MASS 0104
+
+### "Irrational Anthems" 1996, Folk
+
+1. Inequality Street
+2. The Wrong Song
+3. Snake Charming
+4. Penny Dreadful
+5. The Sinful Ensemble
+6. My Mother In Darkness
+7. The Spiral Starecase
+8. No Deposit, No Return
+9. Sabre Dance
+10. I Dubius
+[I1].Science Never Sleeps
+[12].History Lessens
+[13].Quantity Time
+
+[11]-[13] - Ha cтopoнe B
+
+All songs written by SKYCLAD
+Produced by Kevin Ridley and
+SKYCLAD.
+Engineered by Kevin Ridley.
+Recorded at Lynx Studios, Newcastle,
+UK.
+
+MarCin Walkyier - Voice
+Steve Ramsey - Guitars, Keyboards
+Graeme English - Bass and Keyboards
+George Biddle - Fiddle, Keyboards,
+Piano
+Paul Smith - Drums
+
+(p)(c) 1996 MASSACRE Records
+
+### "The Answer Machine?" 1997, Folk
+
+A Clown of Thorns 
+Building a Ruin 
+Worn Out Sole to Heel 
+Single Phial 
+Helium 
+The Thread of Evermore 
+Eirenarch 
+Troublesometimes 
+Isle of Jura
+Fainting by Numbers 
+My Naked I 
+Catherine at the Wheel
+Dead Angels on Ice 
+
+
+Martin Walkyier - Voice
+Graeme English - Bass Guitar, Classical and Acoustic Guitar, Backing Vocals
+Steve Ramsey - Lead and Acoustic Guitars, Backing Vocals
+George Biddle - Fiddle, Viola, Keyboards, Piano Hammond Organ and Backing Vocals
+
+
+Paul A.T. Kinson - Drums
+Mitch Oldham - Percussion
+John Leonard - Pipes, whistles, accordion, banjo and backing vocals
+Pete Coleman - Flute (Troublesometimes)
+Sasha Jankowic - Spoken Intro (Troublesometimes)
+Yasmin Krull - Vocals (The Thread of Evermore)
+
+### "Vintage Whine" 1999, Folk
+
+1. Kiss My Sweet Brass
+2. Vintage Whine
+3. On With Their Heads!
+4. The Silver Cloud's Dark Lining
+5. A Well Beside The River
+6. No Strings Attached
+7. Bury Me
+8. Cancer Of The Heart
+9. Little Miss Take
+10. Something To Cling To
+11. By George
+
+All songs written by SKYCLAD
+Produced by Kevin Ridley and SKYCLAD
+Engineered by Kevin Ridley and Dave Maughan
+Recorded and mixed at Jacobs Studios, UK
+
+Martin Walkyier - Voice
+Steve Ramsey - Lead Guitar, Acoustic Guitar and Backing Vocals
+Graeme English - Bass Guitar, Acoustic and Classical Guitar
+George Biddle - Fiddle, Keyboards, Piano
+Kevin Ridley - Guitar, Acoustic Guitar and backing Vocals
+Jay Graham - Drums and Percussion, Trumpet
+
+(p)(c)1999 MASSACRE Records
+
+### "Folkemon" 2000, Folk
+
+The Great Brain Robbery 
+Think Back and Lie of England
+Polkageist
+Crux of the Message 
+The Disenchanted Forest
+The Antibody Politic
+When God Logs-Off
+You Lost My Memory
+Deja-Vu Ain't What It Used To Be 
+Any Old Irony?
+Swords of A Thousand Men (Bonus)
+
+
+
+
+
+
+
+Martin Walkyier - Voice
+Steve Ramsey - Guitar; lead guitar, slide guitar, acoustic guitar, backing vocals
+Graeme English - Bass; acoustic guitar, classical guitar, backing vocals
+George Biddle - Fiddle; backing vocals, keyboards
+Kevin Ridley - Guitar; acoustic guitar, backing vocals
+Jay Graham - Drums; percussion, keyboards, jaws harp, hunting horn, backing vocals
+
+
+Tirza Abb - The Horny Huntress on Polkageist
+Averre Graham - Penny whistle, cor-anglais
+Fred Purser - # 3 lead solo on Loco-commotio
+
+### "No Daylights.....Nor Heeltaps...." 2002, Folk
+
+Penny Dreadful
+Inequality Street 
+Spinning Jenny 
+The Cry Of The Land  
+Another Fine Mess
+Sins Of Emission 
+The Widdershins Jig  
+History Lessens
+Land of The Rising Slum
+Single Phial 
+
+
+
+Kevin Ridley - Vocals & Electric/Accoustic Guitars
+Georgina Biddle - Backing Vocals & Violin/Keyboards
+Steve Ramsey - Backing Vocals & Electric/Acoustic/Lead Guitars
+Graeme English - Bass Guitar
+Arron Walton & Jay Graham - Drums
+
+
+
+
+
+### "A Semblance of Normality" 2004, Folk
+
+01. Intro (Pipes Solo)
+02. Do They Mean Us?
+03. A Good Day To Bury Bad News
+04. Anotherdrinkingsong
+05. A Survival Campaign
+06. The Song Of No-Involvement
+07. The Parliament Of Fools
+08. Ten Little Kingdoms
+09. Like... A Ballad For The Disenchanted
+10. Lightening The Load
+11. NTRWB
+12. Hybrid Blues
+13. Outro (The Dissolution Of Parliament)
+
+Produced by Dario Mollo in Damage Inc. Studio
+
+### "In The… All Together" 2009, Folk
+
+1. Words Upon The Street 04:03  
+2. Still Small Beer 03:01  
+3. The Well-Travelled Man 03:59  
+4. Black Summer Rain 03:24  
+5. Babakoto 03:25  
+6. Hit List 04:12  
+7. Superculture 02:44  
+8. Which Is Why 03:29  
+9. Modern Minds 03:06  
+10. In The… All Together 03:25 
+
+
+
+Line-up:
+
+Kevin Ridley - Vocals, Rhythm, Acoustic Guitars
+Steve Ramsey - Lead, Acoustic Guitars
+Graeme English - Bass, Acoustic Guitars
+Georgina Biddle - Violin, Keyboards, Piano
+Arron Walton - Drums
+
 
 ## Отношения с другими группами
 

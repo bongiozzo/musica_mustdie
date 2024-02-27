@@ -1,28 +1,384 @@
 # Lacrimosa
 
-Дискография
-"Angst" 1991, Gothic
-"Einsamkeit" 1992, Gothic
-"Satura" 1993, Gothic
-"Alles L&#252;ge" 1993, Gothic
-"Schakal" 1994, Gothic
-"Inferno" 1995, Gothic
-"Stolzes Herz (EP)" 1996, Gothic
-"Stille" 1997, Gothic
-"Live" 1998, Gothic
-"Alleine Zu Zweit" 1999, Gothic
-"Elodia" 1999, Gothic
-"Der Morgen Danach (EP)" 2001, Gothic
-"Fassade" 2001, Gothic
-"Echos" 2003, Gothic
-"Lichtgestalt" 2005, Gothic
-"Lichtgestalten EP" 2005, Gothic
-"Musikkurzfilme Dvd" 2005, Gothic
-"Sehnsucht" 2009, Gothic
-"I Lost My Star [EP]" 2009, Gothic
-"Schattenspiel" 2010, Gothic
-"Revolution" 2012, Gothic
-"Hoffnung" 2015, Gothic
+The most famous German gothic band
+
+## Дискография
+
+### "Angst" 1991, Gothic
+
+1. Feele In Not
+2. Requiem
+3. Lacrima Mosa
+4. Der Ketzer
+5. Der Letzte Hilfeschrei
+6. Tranen Der Existenzlosigkeit.
+
+Produced By Tilo Wolff.
+
+(P)&(C) 1992 HALL OF SERMON Records
+
+### "Einsamkeit" 1992, Gothic
+
+1. Tranen Der Sehnsucht (Part I & II)
+2. Reissende Blirke
+3. Einsamkeit
+4. Diener Eienes Bristes
+5. Loblied Auf Die Zweisamkeit
+6. Bresso
+
+Tilo Wolff - Vocals, Piano, Keyboards, Drums
+Philippe Alioth - Piano, Keyboards
+Roland Thaler - Guitars
+Eric The Phantom - Viol
+
+Produced By Tilo Wolff.
+Tranen Der Existenzlosigkeit.
+
+(P)&(C) 1991 HALL OF SERMON Records
+
+### "Satura" 1993, Gothic
+
+1. Satura
+2. Erinnerung
+3. Crucifixio
+4. Versuchung
+5. Das Schweigen
+6. Flamme Im Wind
+
+Sebastian Hausmann - Guitars, Bass
+Tilo Wolff - Vocals, Piano, Keyboards, Drums
+Philippe Alioth - Programming
+Sabina Rehmann - Viol
+Natascha Pickel - Babymonolog
+
+Produced By Tilo Wolff.
+
+(P)&(C) 1993 HALL OF SERMON Records
+
+### "Alles L&#252;ge" 1993, Gothic
+
+1. Alles Luge 5:52
+2. Alles Luge (Sanguis Mix) 6:12
+3. Diener Einses Geistes 6:36
+4. Ruin 6:49
+
+(P)(C) 1993
+
+### "Schakal" 1994, Gothic
+
+1. Schakal (Edit Version)
+2. Schakal (Piano Version)
+3.Vermachtnis Der Sonne (Akustik Version)
+4. Seele In Not (Metis Mix)
+
+(P)&(C) 1994 HALL OF SERMON Records
+
+### "Inferno" 1995, Gothic
+
+1. Intro
+2. Kabinett Der Sinne
+3. Versiegelt Glanzumstroemt
+4. No Blind Eyes Can See
+5. Schakal
+6. Vermaechtnis Der Sonne
+7. Copycat
+8. Der Kelch Des Lebens
+
+All Songs Written By LACRIMOSA.
+Produced & Engineered By Tilo Wolff.
+Recorded & Mixed At  Impuls Studios,Hamburg.
+Barm Beker Symphony Orchestra Bei Gottfried Koch.
+
+Tilo Wolff - Gesang,Piano, Keyboards, Programming
+Anne Nurmi - Gesang,Keyboards
+Jan Yrlund - Gitarren
+Jan P.Genkel - Bass
+AC - Schlagzeug
+Charlotte Kracht - Cello
+Ulrich Chaon - Cello
+
+(P)&(C) 1995 HALL OF SERMON Records
+
+### "Stolzes Herz (EP)" 1996, Gothic
+
+1. Stolzes Herz (Edit Version)
+2. Ich Bin Der Brennende Komet
+3. Mutatio Spiritus
+4. Stolzes Herz (Piano Version)
+
+All Songs Written By LACRIMOSA.
+Produced & Engineered By Tilo Wolff.
+Recorded & Mixed At  Impuls Studios,Hamburg.
+Barm Beker Symphony Orchestra Bei Gottfried Koch.
+
+Tilo Wolff - Vocals, Keyboards, Programming
+Anne Nurmi - Vocals, Keyboards
+Sascha Gerbig - Guitars
+Jay P. - Bass
+AC - Schlagzeug
+Gottfried Koch - Acoustic Guitars
+
+(P)(C) 1996 HALL OF SERMON Records
+
+### "Stille" 1997, Gothic
+
+1. Der Erste Tag
+2. Not evey Pain Hurts
+3. Siehst Du Mich Im Licht?
+4. Deinenahe
+5. Stolzes Herz
+6. Mein Zweites Herz
+7. Make It End
+8. Die Strasse Der Zeit
+Tilo Wolff - Gesang, Klavier, Programming
+Anne Nurmi - Gesang, eyboards
+AC - Schlagzeug
+Jay P. - Bass
+Sascha Gerbig - Gitarre
+Gottfried Koch - Akustische Gitarre
+(p)(c)1997 Hall Of Sermon
+
+### "Live" 1998, Gothic
+
+
+
+### "Alleine Zu Zweit" 1999, Gothic
+
+
+
+### "Elodia" 1999, Gothic
+
+Act 1
+1. Am Ende der Stille. 8:05
+2. Alleine zu zweit. 4:15
+3. Halt mich. 3:56
+4. The turning point. 4:58
+
+Act 2
+5. Ich verlasse heut dein Herz. 8:29
+6. Dich zu toten fiel mir schwer. 7:56
+
+Act 3
+7. Sanctus. 14:09
+8. Am Ende stehen wir zwei. 5:45
+
+(c)&(p) 1999 HALL OF SERMON
+
+TILO WOLFF -  voice, piano 
+ANNE NURMI -  voice, keyboards 
+AC - drums 
+JAY P. - lead guitar, bass 
+SASCHA GERBIG – rhythm guitar 
+GOTTFRIED KOCH – acoustic guitar
+
+Featuring The London Symphony Orchestra, the Rosenberg Ensemble and musicians of the Hamburg State-Opera.
+Lyrics, music and production by Tilo Wolff, except «The turning point», lyrics by Anne Nurmi,  
+music by Anne Nurmi and Tilo Wolff.
+
+### "Der Morgen Danach (EP)" 2001, Gothic
+
+1.Der Morgen Danach
+2.Der Morgen Danach (metus version)
+3.Nichts Bewegt Sich
+4.Vankina
+
+Tilo Wolff: Gesang, Programming
+Anne Nurmi: Gesang, Keyboards
+Jay P.; Citarren, Bass, Programming
+Manne Uhlig: Schlagzeug
+Bjom Westlund: Flote auf "Der Morgen danach"
+Hagen Kuhr: Cello auf "Nichts bewegt sich"
+Deutsches Filmorchester Babelsberg
+Gunter Josek: Dirigent
+Torsttn Scholz: Konzertmeister
+
+Text et Musik: Tilo Wolff
+ausser „Vankina". Text: Anne Nurmi, Musik: Tilo Wolff / Jay P.
+Recordings et Mix: JP Genkel, Impuls Musicproductions, Hamburg
+Recordings Deutsches Filmorchester Babrlsberg: Michael Schubert, Scoring Stage, Berlin
+Mastering: Helge Halve, Recording Service Halve, Harnburg.
+Gestaltung: Tilo Wolff, Cover Foto "Valerie#5": Brian Peterson
+Photography, Cover Foto "Machaze": James F. Housel, illustration et Design: Gunnar Eysel, Focusion Management et Consulting
+Arrangement et Produktion: Tilo Wolff 
+
+### "Fassade" 2001, Gothic
+
+1. "Fassade - 1. Satz" 
+2. "Der Morgen danach" 
+3. "Senses" 
+4. "Warum so tief?" 
+5. "Fassade - 2. Satz" 
+6. "Liebesspiel" 
+7. "Stumme Worte" 
+8. "Fassade - 3. Satz" 
+
+Tilo Wolff: Vocals, Piano, programming 
+Anne Nurmi: Vocals, Keyboards 
+Jay P.: Guitars, bass 
+AC: Drums 
+Manne Uhlig: Drums 
+
+
+Lyrics, music, arrangement, orchestration and production by Tilo Wolff 
+except "Senses": Lyrics and music by Anne Nurmi 
+Recorded from february till june 2001 
+at the Impuls Tonstudios, Hamburg 
+and Scoring Stage, Berlin 
+The Rosenberg Ensemble: Choir 
+as well as the Spielmann-Schnyder Philharmonie
+and the German Filmorchestera Babelsberg  
+
+### "Echos" 2003, Gothic
+
+01. Kyrie (12:42) - Overture
+02. Durch Nacht und Flut (6:03) - Suche Part 1
+03. Sacrifice (9:28) - Hingabe Part 1
+04. Apart (4:16) - Bittruf Part 1
+05. Ein Hauch von Menschlichkeit (5:05) - Suche
+Part 2
+06. Eine Nacht in Ewigkeit (5:52) - Hingabe Part 2
+07. Malina (4:48) - Bittruf Part 2
+08. Die Schreie sind verstummt (12:42) - Requiem
+fur drei Gamben und Klavier
+
+Tilo Wolff: Vocals, Programming
+Anne Nurmi: Vocals, Keyboards
+with
+Jay P.: Gitarre, Bass
+Manne Uhlig: Drums
+Thomas Nack: Drums
+
+Echos written, composed, arranged, orchestrated
+and produced by Tilo wolff
+Performed by Lacrimosa
+
+Mastered September 2002 at Recording Service
+Halvй, Hamburg by Helge Halvй
+
+Artwork Designed by Tilo Wolff
+Painted by Stelio Diamantopoulos
+Layout & DTP by Gunnar Eysel
+
+Photos by Burgis Wehry
+
+Released by Hall Of Sermon GmbH 2003
+
+
+Published by Hall Of Sermon Publishing 2003
+
+
+Jay P. plays engl. Amps. , engl. Cabinets, Gibson
+Guitars,
+Music Man Basses & D ’Addario Strings
+Manne Uhlig plays D& W Drums, Paiste Cymbals &
+Paiste Sticks
+
+### "Lichtgestalt" 2005, Gothic
+
+01. Sapphire
+02. Kelch der Liebe
+03. Lichtgestalt
+04. Nachtschatten
+05. My Last Goodbye
+06. The Party Is Over
+07. Letzte Ausfahrt: Leben
+08. Hohelied der Liebe
+
+### "Lichtgestalten EP" 2005, Gothic
+
+01. Lichtgestalt
+02. Lichtgestalt (Snakeskin Remix)
+03. Unerkannt
+04. Skintight
+05. Road To Pain
+06. Siehst Du mich im Licht? (Atrocity ReVersion)
+07. Seele in Not (Demo Version)
+
+### "Musikkurzfilme Dvd" 2005, Gothic
+
+01. Satura
+02. Schakal
+03. Copycat
+04. Stolzes Herz
+05. Not every pain hurts
+06. Siehst Du mich im Licht?
+07. Alleine zu zweit
+08. Der Morgen danach
+09. Durch Nacht und Flut
+10. Lichtgestalt
+
+Bonus Material:
+11. Making of Schakal & Copycat
+12. Making of Stolzes Herz
+13. Making of Siehst Du mich im Licht?
+14. Making of Lichtgestalt
+15. Trailer for the upcoming LACRIMOSA-Movie
+
+### "Sehnsucht" 2009, Gothic
+
+1. Die Sehnsucht in mir (8:03)
+2. Mandira Nabula (5:17)
+3. A.u.S. (6:50)
+4. Feuer (4:33)
+5. A prayer for your heart (5:13)
+6. I lost my star in Krasnodar (5:39)
+7. Die Taube (7:28)
+8. Call me with the voice of love (3:36)
+9. Der tote Winkel (5:23)
+10. Koma (7:46)
+
+
+### "I Lost My Star [EP]" 2009, Gothic
+
+
+
+### "Schattenspiel" 2010, Gothic
+
+1. 1990 Seele in Not (Urversion) 5:54 
+2. 1990 Requiem (Urversion) 6:54 
+3. 1990 Seelenubertritt 4:33 
+4. 1990 Schuld und Suhne 4:21 
+5. 1992 Dreht Euch 2:14 
+6. 1993 Dem Ende entgegen 4:53 
+7. 1994 Schakal (Urversion) 9:15 
+8. 1994 Vermachtnis der Sonne (Urversion) 4:44 
+9. 1996 Copycat (Extended Version) 6:37* 
+10. 2002 Ein Hauch von Menschlichkeit (Late Night Remix) 3:56 
+11. 2003 Morgen 5:24 
+12. 2003 Schonheit straft jedes Gefuhl 8:07 
+13. 2004 Ein Fest fur die Verlorenen 8:24 
+14. 2005 Mantiquor 6:33 
+15. 2006 Der Verlust 4:34 
+16. 2007 Deja vu 5:56 
+17. 2010 Sellador 5:26 
+18. 2010 Ohne Dich ist alles nichts 6:04 
+
+### "Revolution" 2012, Gothic
+
+01. Irgendein Arsch ist immer unterwegs 5:00
+02. If the world stood still a day 3:35
+03. Verloren 7:29
+04. This is the night 5:29
+05. Interlude - Feuerzug (Part I) 0:46
+06. Feuerzug (Part II) 4:41
+07. Refugium 4:42
+08. Weil Du Hilfe brauchst 6:01
+09. Rote Sinfonie 11:03
+10. Revolution 5:23 
+
+### "Hoffnung" 2015, Gothic
+
+01. Mondfeuer 15:15
+ 02. Kaleidoskop 06.16
+ 03. Unterwelt 03.50
+ 04. Die unbekannte Farbe 05:35
+ 05. Der Kelch der Hoffnung 03:24
+ 06. Thunder and Lightning 03:55
+ 07. Tranen der Liebe 06:39
+ 08. Der freie Fall – Apeiron, Part 1 06:17
+ 09. Keine Schatten mehr 02:28
+ 10. Apeiron – Der freie Fall, Part 2 09:07
+
 
 ## Отношения с другими группами
 

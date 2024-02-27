@@ -1,9 +1,21 @@
 # Unmoored
 
-Дискография
-"Cimmerian" 1999, Death Metal
-"Kingdoms Of Greed" 2000, Death Metal
-"Indefinite Soul-Extension" 2003, Melodic Death Metal
+Swedish Death Metal
+
+## Дискография
+
+### "Cimmerian" 1999, Death Metal
+
+
+
+### "Kingdoms Of Greed" 2000, Death Metal
+
+
+
+### "Indefinite Soul-Extension" 2003, Melodic Death Metal
+
+Produced by T.Tagtgren at Abyss Studio
+
 
 ## Отношения с другими группами
 

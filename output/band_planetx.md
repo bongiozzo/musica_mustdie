@@ -1,10 +1,35 @@
 # Planet X
 
-Дискография
-"Atlantis" 1998, Progressive
-"Universe" 2000, Progressive
-"Moonbabies" 2002, Progressive
-"Quantum" 2007, Fusion
+
+
+## Дискография
+
+### "Atlantis" 1998, Progressive
+
+
+
+### "Universe" 2000, Progressive
+
+1. Clonus (Donati/MacAlpine & Sherinian) - 4:15 
+2. Her Animal (Donati/MacAlpine & Sherinian) - 4:50 
+3. Dog Boots (Donati) - 3:36 
+4. Bitch (Donati) - 5:20 
+5. King of the Universe (Donati/MacAlpine & Sherinian) - 8:16 
+6. Inside Black (Donati/MacAlpine & Sherinian) - 5:12 
+7. Europa (Donati/MacAlpine & Sherinian) - 4:20 
+8. Warfinger (Donati/MacAlpine & Sherinian) - 5:38 
+9. Chocalate (Donati/MacAlpine & Sherinian) - 5:22 
+10.Pods of Trance (Donati/MacAlpine & Sherinian) - 4:48 
+11.2116 (Donati/MacAlpine & Sherinian) - 4:41 
+
+### "Moonbabies" 2002, Progressive
+
+
+
+### "Quantum" 2007, Fusion
+
+
+
 
 ## Отношения с другими группами
 

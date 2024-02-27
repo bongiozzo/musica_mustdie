@@ -1,7 +1,29 @@
 # Biss
 
-Дискография
-"Face-Off" 2006, Hard Rock
+
+
+## Дискография
+
+### "Face-Off" 2006, Hard Rock
+
+1. Breathless; 
+2. Pyromania; 
+3. Rejected; 
+4. D.S.O.D.; 
+5. Raise The Hammer; 
+6. Calling; 
+7. Big Life; 
+8. Fire In The Night; 
+9. Lady Of The Night; 
+10. Wiseman 
+All songs written by BISS
+Produced and engineered by Mr.Bar and Mr.Fly at Barflystudios
+
+Ralf Heyne - Guitars
+Marc Storace - Vocals
+Witte - Drums
+Lars Bilke - Bass
+
 
 ## Отношения с другими группами
 

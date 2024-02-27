@@ -1,9 +1,39 @@
 # Devilish Distance
 
-Дискография
-"The Black Mountain Call" 2005, Death Metal
-"Under The Shroud Of Lie" 2007, Death Metal
-"Deathtruction" 2010, Death Metal
+
+
+## Дискография
+
+### "The Black Mountain Call" 2005, Death Metal
+
+
+
+### "Under The Shroud Of Lie" 2007, Death Metal
+
+1. Sacrificial Insanity   
+2. Crush The Cross   
+3. Diseased. Deranged. Dead.   
+4. Dead Invaders   
+5. 1843   
+6. Spread Of Infection (Bury The Prophet)   
+7. Why Didn’t You Appear   
+8. Reign Of Satan Forever   
+9. Hallowed Call
+
+### "Deathtruction" 2010, Death Metal
+
+1. Marching Forvard
+2. Apocalypse
+3. In Hate We Trust
+4. Legion Christless
+5. Stand
+6. The Nameless One
+7. Legasy Of Pestilence
+8. Scorn
+9. Perverted Existence
+10. Panzerfaust
+
+
 
 ## Отношения с другими группами
 

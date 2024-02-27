@@ -1,8 +1,34 @@
 # Overtures
 
-Дискография
-"Beyond The Waterfall" 2008, Heavy Metal
-"Rebirth" 2011, Heavy Metal
+
+
+## Дискография
+
+### "Beyond The Waterfall" 2008, Heavy Metal
+
+1.	 Beyond The Waterfall	04:51	 
+2.	 Toy	05:17	 
+3.	 Faded Dream	04:21	 
+4.	 Town Of Desolation	04:17	 
+5.	 Silent Observer	04:53	 
+6.	 The Self-Pitier	03:58	 
+7.	 A Time Of My Life	04:51	 
+8.	 Hideout	04:44
+
+### "Rebirth" 2011, Heavy Metal
+
+1.	 Here We Fall	03:30	 
+2.	 Fly, Angel	05:00	 
+3.	 You Can't Spit On Me	04:06	 
+4.	 Delirium	06:24	 
+5.	 Farewell	04:38	 
+6.	 Not Too Late	02:56	 
+7.	 The Prophecy	03:42	 
+8.	 My Name Is Fear	03:24	 
+9.	 Easy	04:04	 
+10.	 Daemons	06:16	 
+11.	 Not Too Late [acoustic version]	02:57
+
 
 ## Отношения с другими группами
 

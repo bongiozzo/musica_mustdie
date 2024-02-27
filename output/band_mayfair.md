@@ -1,7 +1,32 @@
 # Mayfair
 
-Дискография
-"Die Flucht" 1995, Thrash
+
+
+## Дискография
+
+### "Die Flucht" 1995, Thrash
+
+1. X-Ray Fever (intro)
+2. Atomic Prayer
+3. Hotel Hunger
+4. Last Spring
+5. Die Flucht
+6. Adam
+7. One Night And A Dream
+8. Dear Julia
+9. Sunlight
+
+All Songs Written By MAYFAIR.
+Produced By Andreas Kopp.
+Recorded, Mixed By Andreas Kopp, Bingen (Germany).
+
+Mario - Vocals
+Rene - Guitar
+Motle - Bass
+Little - Drums
+
+(P)&(C) 1995 MUSIC IS INTELLIGENCE Records
+
 
 ## Отношения с другими группами
 

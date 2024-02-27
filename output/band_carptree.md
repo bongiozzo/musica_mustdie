@@ -1,7 +1,22 @@
 # Carptree
 
-Дискография
-"Man made machine" 2005, Progressive
+
+
+## Дискография
+
+### "Man made machine" 2005, Progressive
+
+1. Titans clash aggressively to keep an even score
+2. Sunshine waters
+3. The weakening sound
+4. Tilting the scales
+5. The man you just became
+6. Man Made Machine
+7. Burn to something new
+8. In the centre of an empty space
+9. The recipe
+10. This is home
+
 
 ## Отношения с другими группами
 

@@ -1,12 +1,73 @@
 # The Lust
 
-Дискография
-"Dead-End Love EP" 2003, Gothic
-"Tangled" 2004, Gothic
-"My Dear Emptiness" 2005, Gothic
-"Membrane" 2006, Gothic
-"One Life Ago" 2010, Gothic
-"Decomposition Deluxe" 2011, Gothic
+gothic-metal from St. Petersburg
+
+## Дискография
+
+### "Dead-End Love EP" 2003, Gothic
+
+
+
+### "Tangled" 2004, Gothic
+
+
+
+### "My Dear Emptiness" 2005, Gothic
+
+1. The Seal (Intro)   
+2. Revenge   
+3. Whatever   
+4. Days In Black   
+5. My Dear Emptiness   
+6. Half-Remembered   
+7. Open   
+8. Revelation   
+9. For A While   
+10. A Tribute To The Future (Outro)
+
+### "Membrane" 2006, Gothic
+
+1. Power Of The Lust (Intro)	 
+2. Forgive	 
+3. Unreal You	 
+4. Who Will Be The Next 
+5. Ashore	 
+6. Hit In The Face	 
+7. Corporal	 
+8. Getting Cold	 
+9. Enjoy The Pain	 
+10. Where Death Still Dances	 
+11. Driven By Signs 
+12. Darkness In Bright (Bonus Track)
+
+### "One Life Ago" 2010, Gothic
+
+1. One Life Ago		 
+2. Homely		 
+3. It's A Freedom		 
+4. Stronger		 
+5. Smooth Operator		 
+6. Give In To Me		 
+7. Days In Black (radio cut)		 
+8. Dead End Love (vers.2003)		 
+9. Don't Promise (vers.2003)		 
+10. Days In Black (Max DeLmar mix)		 
+11. Don't Promise (vers.2003, radio cut)		 
+12. One Life Ago (DIY Mix)
+
+### "Decomposition Deluxe" 2011, Gothic
+
+1. Visit Of Mr.Nobody (intro)		 
+2. It's		 
+3. Nebula		 
+4. Place I've Almost Been		 
+5. Ever		 
+6. Take A Ride		 
+7. Wrong Directions		 
+8. Step From Day To Day		 
+9. Forever		 
+10. Between Two Worlds (instr.)
+
 
 ## Отношения с другими группами
 

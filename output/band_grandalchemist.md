@@ -1,7 +1,32 @@
 # Grand Alchemist
 
-Дискография
-"Intervening Coma-Celebration" 2002, Black Metal
+
+
+## Дискография
+
+### "Intervening Coma-Celebration" 2002, Black Metal
+
+01. Faced (Intro)
+02. A Nailed Visual Effect
+03. Down Again
+04. Incurable Longing
+05. Approach (Open The Shell)
+06. Intervening Coma Celebration
+07. Sensemachine
+08. Psyche and a Flower to the New Lifetime
+09. Minds Delusion Sleeps for Creation
+10. Solemn and Sophisticated
+11. Under my Shallow Skin
+12. Snap Up the Raw of Existence
+
+
+Produced By: Rune Thoen and Grand Alchemist
+Recorded at Studio Elg
+
+
+
+
+
 
 ## Отношения с другими группами
 

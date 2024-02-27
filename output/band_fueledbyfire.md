@@ -1,10 +1,35 @@
 # Fueled By Fire
 
-Дискография
-"Spread The Fire" 2006, Thrash
-"Spread The Fire (re-issue)" 2007, Thrash
-"Plunging Into Darkness" 2010, Thrash
-"Trapped In Perdition" 2013, Thrash
+
+
+## Дискография
+
+### "Spread The Fire" 2006, Thrash
+
+
+
+### "Spread The Fire (re-issue)" 2007, Thrash
+
+
+
+### "Plunging Into Darkness" 2010, Thrash
+
+1.   The Arrival   03:04   
+2.   Rising From Beneath   04:07   
+3.   Within The Abyss   05:08   
+4.   Unidentified Remains   02:04   
+5.   Plunging Into Darkness   04:11   
+6.   Eye Of The Demon   03:58   
+7.   Evoke (Intro)   01:49   
+8.   Evoke The Curse   04:24   
+9.   Amongst The Dead   03:50   
+10.   Sickness Of Humanity   04:12   
+11.   Mass Infestation   03:31
+
+### "Trapped In Perdition" 2013, Thrash
+
+
+
 
 ## Отношения с другими группами
 

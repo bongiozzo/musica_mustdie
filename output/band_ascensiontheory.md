@@ -1,6 +1,9 @@
 # Ascension Theory
 
-Дискография
+members of Aztec Jade
+
+## Дискография
+
 
 ## Отношения с другими группами
 

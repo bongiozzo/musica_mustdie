@@ -1,7 +1,34 @@
 # Mourning Sign
 
-Дискография
-"Mourning Sign" 1995, Death Metal
+
+
+## Дискография
+
+### "Mourning Sign" 1995, Death Metal
+
+1. I'll See To That
+2. Dreaming Blind
+3. Ashes Of My Relics
+4. Sleepless
+5. Like Father Like Son
+6. Absorb My Eyes
+7. En To Pan
+8. Seems Endless
+9. Misbegotten
+
+All Songs By MOURNING SIGN.
+Produced By MOURNING SIGN & Pelle Saether.
+Engineered & Mixed By Pelle Saether.
+Recorded At Studio Underground, Vasteras, Sweden.
+
+Robert Porschke - Vocals
+Henrik Persson - Drums
+Petri Aho - Guitar, Bass
+Kari Kainulainen - Guitar,Bass
+Petri Kahari - Keyboards
+
+(P)&(C) 1995 GODHEAD Records
+
 
 ## Отношения с другими группами
 

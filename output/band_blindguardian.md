@@ -1,28 +1,791 @@
 # Blind Guardian
 
-Дискография
-"Battalions Of Fear" 1988, Speed Metal
-"Follow The Blind" 1989, Speed Metal
-"Tales From The Twilight World" 1990, Power Metal
-"Somewhere Far Beyond" 1992, Power Metal
-"Tokyo Tales (live)" 1993, Power Metal
-"Imaginations From The Other Side" 1995, Power Metal
-"A Past And Future Secret (single)" 1995, Power Metal
-"The Forgotten Tales" 1996, Power Metal
-"Bright Eyes (single)" 1996, Power Metal
-"Mr. Sandman (single)" 1996, Power Metal
-"Nightfall In Middle-Earth" 1998, Power Metal
-"Mirror Mirror (single)" 1998, Power Metal
-"And Then There Was Silence (single)" 2001, Power Metal
-"A Night At The Opera" 2002, Power Metal
-"The Bard's Song (In the Forest) (single)" 2003, Power Metal
-"Live (2 CD)" 2003, Power Metal
-"Fly" 2006, Progressive
-"A Twist In The Myth" 2006, Progressive
-"A Voice In The Dark" 2010, Power Metal
-"At The Edge Of Time" 2010, Power Metal
-"Memories Of A Time To Come" 2012, Heavy Metal
-"Beyond the Red Mirror" 2015, Power Metal
+Kings of German Power Metal
+
+## Дискография
+
+### "Battalions Of Fear" 1988, Speed Metal
+
+1. Majesty <small>(7:28)</small>
+2. Guardian of the Blind <small>(5:09)</small>
+3. Trial by the Archon [instrumental] <small>(1:41)</small>
+4. Wizard's Crown <small>(3:48)</small>
+5. Run for the Night <small>(3:33)</small>
+6. The Martyr <small>(6:14)</small>
+7. Battalions of Fear <small>(6:06)</small>
+8. By the Gates of Moria [instrumental] <small>(2:52)</small>
+9. Gandalf's Rebirth (CD-bonus) [instrumental] <small>(2:10)</small>
+
+Andr&eacute; Olbrich - Guitar, Back Vocals
+Hansi K&uuml;rsch - Bass, Vocals
+Marcus Siepen - Guitar, Back Vocals
+Thomas Stauch - Drums
+
+Year of Release: 1988
+Serial No.: 0777 7878862 1 (Virgin release in 1991)
+Produced by Kalle Trapp 
+Recorded and mixed by Kalle Trapp at Karo Studio Munster, West Germany in Oct./Nov. 1987
+Cover-painting by van Waay Design
+Published by CRMV and Warner Chappell Music
+
+&copy; 1988 EMI
+&copy; 1991 Virgin Schallplatten GmbH
+
+Komponist: Andr&eacute; Olbrich (Text/Musik)
+Titel 1, 3, 5, 7 Chappell & Co. GmbH (Warner/Chappell)
+Titel 2, 4, 6, 8 Edition Modern Media (EMI)
+Titel 9 Neue Welt (Warner Chappell) & Ed. Discoton (BMG UFA)
+All tracks produced by Kalle Trapp
+
+*
+Songs "Majesty", "By the Gates of Moria" and "Gandalf's Rebirth" were inspired by J.R.R. Tolkien's "Lord of the Rings".
+Song "Guardian of the Blind" was inspired by Stephen King's "It"'.
+Song "Run for the Night" was inspired by Antonin Dvorak.
+
+### "Follow The Blind" 1989, Speed Metal
+
+1. Inquisition (0:40)
+2. Banish from Sanctuary (5:27)
+3. Damned for All Time (4:57)
+4. Follow the Blind (7:10)
+5. Hall of the King (4:16)
+6. Fast to Madness (5:57)
+7. Beyond the Ice (3:28) [instrumental]
+8. Valhalla (4:56)
+9. Don't Break the Circle (CD-Bonus) (4:18)
+10. Barbara Ann (1:40)
+
+
+
+
+
+Year of Release: 1989
+Serial No.: 0777 7878852 2 (Virgin release in 1991)
+Recorded and mixed by Kalle Trapp at Karo Studios Munster, West Germany in
+Jan./Febr. 1989
+Produced by Kalle Trapp
+Cover-painting by van Waay Design
+Published by CRMV and Warner Chappel Music
+(P) & (C) 1991 Virgin Schallplatten GmbH
+
+### "Tales From The Twilight World" 1990, Power Metal
+
+1. Traveler in Time <small>(5:59)</small>
+2. Welcome to Dying <small>(4:47)</small>
+3. Weird Dreams <small>(1:19)</small> [instrumental]
+4. Lord of the Rings <small>(3:14)</small>
+5. Goodbye My Friend <small>(5:33)</small>
+6. Lost in the Twilight Hall <small>(5:58)</small>
+7. Tommyknockers <small>(5:09)</small>
+8. Altair 4 <small>(2:26)</small>
+9. The Last Candle <small>(5:59)</small>
+10. Run for the Night (Live) (CD-Bonus) <small>(3:38)</small>
+
+Year of Release: 1990
+Serial No.: 077778778929 (Release in 1991)
+Produced by Kalle Trapp
+Recorded & mixed by Kalle Trapp at KARO Musik Studios Brackel/Hamburg, West Germany in March/April/May 1990
+Second engineer: Piet Sielck
+Cover painting & idea by Andreas Marschall
+Pictures: Buffo/Charly Rinne
+Executive producer: Charly Rinne for No Remorse Records GmbH
+Published by CRMV and Warner Chappel Music
+
+&nbsp;&nbsp;&nbsp;Guest Musicians:
+Piet Sielck: Backing vocals & effects
+Mathias Wiesner: Effects
+Rolfi Kohler, "Hacky" Hackmann, Kalle Trapp: Backing vocals
+Kai Hansen: Vocals; Lead guitar & backing vocals (Kai Hansen appears courtesy of Modern Music)
+
+&copy; 1991 Virgin Schallplatten GmbH
+
+### "Somewhere Far Beyond" 1992, Power Metal
+
+1. Time What Is Time (5:42)
+2. Journey Through the Dark (4:45)
+3. Black Chamber (0:56)
+4. Theatre of Pain (4:15)
+5. The Quest for Tanelorn (5:53)
+6. Ashes to Ashes (5:58)
+7. The Bard's Song - In the Forest (3:09)
+8. The Bard's Song - The Hobbit (3:52)
+9. The Piper's Calling (0:58) [instrumental]
+10. Somewhere Far Beyond (7:28)
+11. Spread Your Wings (CD-Bonus) (4:13)
+12. Trial by Fire (CD-Bonus) (4:42)
+13. Theatre of Pain (Classic Version) (CD-Bonus) (4:13)
+
+
+
+Year of Release: 1992
+Serial No.: 077778683124
+Produced by Kalle Trapp
+Recorded & mixed by Kalle Trapp at KARO Musik Studios Brackel/Hamburg,
+Germany in March, April and May 1992
+Second engineer: Piet Sielck
+
+All songs published by Musik-Edition Discoton / Neue Welt Musikverlag GmbH
+except track 5 published by Musik-Edition Discoton / Neue Welt Musikverlag
+GmbH / Wintrup Musik / Maldoror, track 11 published by Queen Music Ltd. /
+EMI Music Publishing and Track 12 published by Roadster Music
+
+All Music written by Hansi Kursch and Andre Olbrich except Track 3 written
+by Kursch, Track 5 written by Hansen/Siepen/Kursch/Olbrich, Track 11 written
+by J. Deacon, Track 12 written by R. Tippins and Track 13 written by
+Olbrich/Kursch/Wiesner.
+All Lyrics written by Hansi Kursch except Track 11 written by J.Deacon and
+Track 12 written by R. Tippins
+
+Cover painting by Andreas Marschall / Becker - Derouet Hamburg
+Photo: Tom Nagy
+Graphics by a*r*t*p*o*o*l
+
+Guest Musicians:
+Piet Sielck: Effects and guitars
+Mathias Wiesner: Effects and bass on "Spread Your Wings"
+Rolfi Kohler, Billy King, Kalle Trapp: Backing vocals
+Stefan Will: Piano
+Peter Rubsam: Scottish and Irish bagpipes
+Kai Hansen: Lead guitar on 'The Quest For Tanelorn' (Kai Hansen appears by
+courtesy of Modern Music)
+
+
+### "Tokyo Tales (live)" 1993, Power Metal
+
+1. Inquisition (0:47)
+2. Banish from Sanctuary (6:03)
+3. Journey Through the Dark (5:12)
+4. Traveler in Time (6:32)
+5. The Quest for Tanelorn (6:03)
+6. Goodbye My Friend (6:28)
+7. Time What Is Time (6:42)
+8. Majesty (7:48)
+9. Valhalla (6:08)
+10. Welcome to Dying (5:56)
+11. Lost in the Twilight Hall (7:26)
+12. Barbara Ann (2:56)
+
+
+Year of Release: 1993
+Serial No.: 0 77778 77562 1
+Produced by Kalle Trap
+Recorded at Koseinenkin Hall on Dec. 4th, 1992, and at NHK Hall, Tokyo on
+Dec. 6th, 1992 by Tamco Recording Mobile. Mixed at Karo Musik Studios
+Brackel/Hamburg in Jan. '93
+Second engineer: Piet Sielck
+
+Blind Guardian road crew:
+Thomas "Langlich" Nicsh - Stage manager
+Sascha Wischnewsky - Merchandising
+Dirkie Busche - Guitars
+Daniel Kleckers - Drums
+Kalle Trap - Sound
+Henry Klaere - Tour manager
+Jogi Cappel - Lighting
+
+Guest musician:
+Marc Zee: Keyboards & backing vocals
+Photos by Buffo Schnadelbach
+(P) & (C) 1993 Virgin Schallplatten GmbH
+
+### "Imaginations From The Other Side" 1995, Power Metal
+
+1. Imaginations from the Other Side (7:18)
+2. I'm Alive (5:29)
+3. A Past and Future Secret (3:47)
+4. The Script for My Requiem (6:08)
+5. Mordred's Song (5:27)
+6. Born in a Mourning Hall (5:12)
+7. Bright Eyes (5:15)
+8. Another Holy War (4:31)
+9. And the Story Ends (5:59)
+
+Year of Release: 1995
+Serial No.: 724384033729, D: 840337 2
+All music written by Andre Olbrich and Hansi Kursh
+All lyrics written by Hansi Kursh
+All songs published by Music-Edition Discoton / Neue Welt Musikverlag
+Cover painting by Andreas Marschall
+Photos by Ulf Thurmann
+Produced by Flemming Rasmussen
+engineered by Flemming Rasmussen & Piet Sielck
+Mixed by Flemming Rasmussen
+Assistant Engineer: Henrik Vindeby
+Drum-Technician: Flemming Rasmussen & Cuni
+Recorded, mixed and mastered at Sweet Silence Studios, Copenhagen, Danmark,
+from August to November 1994 and January to March 1995
+Backing vocals recorded at Karo Studio / Brackel / Germany in December 1994
+
+Guest Musicians:
+Mathias Wiesner - effects
+Jacob Moth - accoustic guitar (on "A Past and Future Secret")
+Billy King - backing vocals
+"Hacky" Hackman - backing vocals
+Rolf Kohler - backing vocals
+Piet Sielck - backing vocals
+Ronnie Atkins - backing vocals (Ronnie Atkins appears by courtesy of Sony
+Music Entertainment, Japan)
+
+### "A Past And Future Secret (single)" 1995, Power Metal
+
+1. A Past and Future Secret - 3:47
+2. Imaginations from the Other Side - 7:18
+3. The Wizard - 3:17
+4. A Past and Future Secret (Orchestra Mix) - 3:48
+
+Year of Release: 1995
+Serial No.:724389274424
+Produced by Flemming Rasmussen
+Cover painting by Andreas Marschall
+
+### "The Forgotten Tales" 1996, Power Metal
+
+1. Mr. Sandman (2:09)
+2. Surfin' USA (2:23)
+3. Bright Eyes (4:20)
+4. Lord of the Rings (3:55)
+5. The Wizard (3:16)
+6. Spread Your Wings (4:14)
+7. Mordred's Song (5:16)
+8. Black Chamber (1:15)
+9. The Bard's Song - In the Forest (live) (4:11)
+10. Barbara Ann/Long Tall Sally (1:43)
+11. A Past and Future Secret (3:47)
+12. To France (4:40)
+13. Theatre of Pain (4:15) [instrumental]
+
+Track 3 & 7: Rearranged and rerecorded acoustic versions
+Track 4, 8 & 13: Rearranged & rerecorded orchestral versions
+
+Year of Release: 1996
+Serial No.: 724384162726
+Mastered by Ralph Kessler at Central Sound Studios/Hamburg
+Coverpaintings by Andreas Marshall
+Photographies: Dirk Zumpe
+
+&copy; 1996 Virgin Schallplatten GmbH
+
+
+1. Mr. Sandman (2:09)
+
+Music and Lyrics: Pat Ballard
+Published by Edwin H. Morris & Co.
+Recorded and mixed 1995 at Sweet Silence Studios/Danmark by Flemming Rasmussen
+Produced by Flemming Rasmussen
+Engineers: Piet Sielck and Flemming Rasmussen
+Assistant engineer: Mathias Wiesner
+
+
+2. Surfin' USA (2:23)
+
+Music: Chuck Berry
+Lyrics: Brian Wilson
+Published by Good Tunes Music AG
+Recorded at Karo Studios and The Twilight Hall/Germany by Piet Sielck and Blind Guardian
+Mixed at Central Studio/Germany by Piet Sielck
+Produced by Piet Sielck and Blind Guardian
+Engineer: Piet Sielck
+Piano: Michael Schuren
+Back. voc.: Piet Sielck
+
+
+3. Bright Eyes (4:20)
+
+Music: Olbrich/K&ouml;rsch
+Lyrics: K&ouml;rsch
+Published by Warner/Chappel and Musik-Edition Discoton
+Recorded at Karo Studios and The Twilight Hall by Piet Sielck
+Mixed at Central Sound Studio/Hamburg by Piet Sielck in 1996
+Produced by Piet Sielck and Blind Guardian
+Engineered by Piet Sielck and Henrik Vindeby
+
+
+4. Lord of the Rings (3:55)
+
+Music: K&ouml;rsch/Siepen
+Lyrics: K&ouml;rsch
+Published by Warner/Chappel and Music-Edition Discoton
+Recorded at The Twilight Hall by Piet Sielck and Henrik Vindeby
+Mixed at Central Sound Studio/Hamburg by Piet Sielck in 1996
+Produced by Piet Sielck and Blind Guardian
+Effects: Mathias Wiesner
+
+
+5. The Wizard (3:16)
+
+Ken Hensley
+Published by EMI Publishing
+Recorded and mixed 1994 at Sweet Silence Studios/Danmark by Flemming Rasmussen
+Produced by Flemming Rasmussen
+Organ: Otto Sidenius
+Acoustic guit.: Jacob Moth
+Backing vocals: Billy King, Thomas Hackmann, Ronnie Atkins
+Engineers: Flemming Rasmussen
+Assistant engineer: Henrik Vindeby
+
+
+6. Spread Your Wings (4:14)
+
+John Deacon
+Published by Queen Music Ltd./EMI Music Publishing
+Recorded and mixed 1992 at Karo Studios / Germany by Kalle Trapp
+Produced by Kalle Trapp
+Engineers: Piet Sielck and Kalle Trapp
+Piano: Stefan Will
+Bass: Mathias Wiesner
+Back. voc.: Rolf Kohler, Billy King
+
+
+7. Mordred's Song (5:16)
+
+Music: Olbrich/K&ouml;rsch
+Lyrics: K&ouml;rsch
+Published by Warner/Chappel and Musik-Edition Discoton
+Recorded at Sweet Silence Studios/Danmark and the Twilight Hall by Piet Sielck, Henrik Vindeby and Flemming Rasmussen
+Mixed at Central Sound Studio/Hamburg by Piet Sielck in 1996
+Produced by Piet Sielck and Blind Guardian
+
+
+8. Black Chamber (1:15)
+
+Music and Lyrics: K&ouml;rsch
+Published by Warner/Chappel and Musik-Edition Discoton
+Recorded at the Twilight Hall/Krefeld and Central Studio by Piet Sielck and Henrik Vindeby
+Mixed at Central Sound Studio/Hamburg by Piet Sielck in 1996
+Produced by Piet Sielck and Blind Guardian
+Effects: Piet Sielck
+
+
+9. The Bard's Song – In the Forest (Live) (4:11)
+
+Music: K&ouml;rsch/Olbrich
+Lyrics: K&ouml;rsch
+Published by Warner/Chappel and Musik-Edition Discoton
+Recorded live at Philips Halle/Dusseldorf in Dec. 1995 with Gaga Mobile Studio
+Mixed at Central Studio/Hamburg by Piet Sielck in 1996
+Produced by Piet Sielck and Blind Guardian
+
+
+10. Barbara Ann/Long Tall Sally (1:43)
+
+Music and Lyrics: Fred Fasert
+Published by Capitol Records Inc.
+Recorded and mixed 1989 at Karo Studios/Germany by Kalle Trapp
+Produced by Kalle Trapp
+Engineers: Kalle Trapp
+Lead guit.: Kalle Trapp
+Lead voc.: Kalle Trapp (on Barbara Ann), Rolf Kohler (on Long Tall Sally)
+Back. voc.: Thomas Hackmann, Rolf Kohler, Kalle Trapp. Aman Malek
+
+
+11. A Past and Future Secret (3:47)
+
+Music: K&ouml;rsch/Olbrich
+Lyrics: K&ouml;rsch
+Published by Warner/Chappel and Musik-Edition Discoton
+Recorded and mixed 1994 at Sweet Silence Studios/Denmark by Flemming Rasmussen
+Engineers: Flemming Rasmussen
+Assistant engineer: Henrik Vindeby
+Effects: Mathias Wiesner
+Acoustic guit.: Jacob Moth
+
+
+12. To France (4:40)
+
+Music and lyrics: Mike Oldfield
+Published by EMI Virgin Music Ltd., London
+Recorded at Karo Studios and the Twilight Hall/Germany by Piet Sielck
+Produced by Piet Sielck and Blind Guardian
+Engineers: Piet Sielck, Henrik Vindeby
+Effects: Mathias Wiesner
+
+
+13. Theatre of Pain (4:15) [instrumental]
+
+Music: Olbrich/K&ouml;rsch/Wiesner
+Lyrics: K&ouml;rsch
+Published by Warner/Chappel and Musik-Edition Discoton
+Recorded at the Twilight Hall by Piet Sielck
+Mixed at Central Studio/Hamburg by Piet Sielck and Blind Guardian
+Effects: Mathias Wiesner
+
+### "Bright Eyes (single)" 1996, Power Metal
+
+1. Bright Eyes (Edit Version) (4:03)
+2. Mister Sandman (2:09)
+3. Halleluja
+4. Imaginations from the Other Side (Extended Demo Version) (7:12)
+5. A Past and Future Secret (Extended Demo Version) (3:36)
+
+Year of Release: 1995
+Serial No.:VICP-15051
+Cover painting by Andreas Marschall
+
+Tracks 1,4,5 written by Andre Olbrich and Hansi Kursch, lyrics by Hansi
+Kursch
+Track 2 by Pat Ballard
+Track 3 by Blackmore/Coverdale
+
+Produced by Flemming Rasmussen and Blind Guardian
+Engineered by Flemming Rasmussen & Piet Sielck
+Mixed by Flemming Rasmussen
+Assustant engineer: Henrik Vindeby
+Drum-technician: Flemming Rasmussen & Cuni
+
+Recorded, mixed and mastered at: Sweet Silence Studios, Copenhagen, Denmark
+
+Guest musicians:
+Mathias Wiesner - effects
+Jacob Moth - accoustic guitar - (on "A Past and Future Secret")
+Billy King - backing vocals
+"Hacky" Hackmann - backing vocals
+Rolf Kohler - backing vocals
+Piet Sielck - backing vocals
+Ronnie Atkins - backing vocals (Ronnie Atkins appears by courtesy of Sony
+Music Entertainment, Japan)
+Manufactured and distributed by Victor Entertainment, Inc., Tokyo, Japan
+(P) & (C) 1995 Stereo Jasrac (digital remaster)
+
+This single was released only in Japan, and there was the European version
+of the single, named "Mr. Sandman"
+
+### "Mr. Sandman (single)" 1996, Power Metal
+
+1. Mister Sandman (2:11)
+2. Bright Eyes (Edited Version) (4:04)
+3. Hallelujah (3:18)
+4. Imaginations from the Other Side (Demo Version) (7:13)
+5. The Script for My Requiem (Demo Version) (7:01)
+
+Year of Release: 1996
+CD Catalog No.: 7 24389 29602 0
+Song 1-3 recorded, mixed and mastered at Sweet Silence Studios, Copenhagen
+by Flemming Rasmussen, january-march 1995
+Song 4+5 recorded and mixed at Twilight Hall Studio, Krefeld by Andre
+Olbrich, march/april 1994
+All songs published by Music Edition Discoton/Neue Welt Musikverlag except:
+1. by Warner Chappel
+3. by HEC Enterprises
+Cover by Andreas Marschall
+Produced by Flemming Rasmussen
+
+This is an European release of the single "Bright Eyes" (which was released
+only in Japan)
+
+### "Nightfall In Middle-Earth" 1998, Power Metal
+
+1. War of Wrath (1.50)
+2. Into the Storm (4.24)
+3. Lammoth (0.28)
+4. Nightfall (5.34)
+5. The Minstrel (0.32)
+6. The Curse of Feanor (5.41)
+7. Captured (0.26)
+8. Blood Tears (5.23)
+9. Mirror Mirror (5.07)
+10. Face the Truth (0.24)
+11. Noldor (Dead Winter Reigns) (6.51)
+12. Battle of Sudden Flame (0.44)
+13. Time Stands Still (At the Iron Hill) (4.53)
+14. The Dark Elf (0.23)
+15. Thorn (6.18)
+16. The Eldar (3.39)
+17. Nom the Wise (0.33)
+18. When Sorrow Sang (4.25)
+19. Out on the Water (0.44)
+20. The Steadfast (0.21)
+21. A Dark Passage (6.01)
+22. Final Chapter (Thus Ends...) (0.48)
+
+
+Year of Release: 1998
+Serial No.: 724384589929
+Produced by Blind Guardian
+Mixed by Flemming Rasmussen at Sweet Silence Studios, Copenhagen (Denmark)
+Interludes mixed by Charlie Bauerfeind at Sweet Silence Studios
+Mixing engineers: Flemming Rasmussen, Charlie Bauerfeind and Piet Sielck
+All tracks published by B.G.Publishing
+Cover and story paintings by Andreas Marschall
+Photos by Thorsten Eichhorst
+
+The choir company:
+Billy King - Rolf Kuhler - Thomas Hackmann - Olaf Senkbeil
+
+Guest musicians:
+Oliver Holzwarth (bass guitar & fretless bass)
+Mathias Wiesner (keyboards & orchestral effects)
+Michael Schuren (grand piano)
+Max Zelzner (flutes & alto-flute)
+
+Narrators: Norman Eshley - Douglas Fielding
+
+Based on the story 'The Silmarillion by J. R. R.Tolkien. This album is
+dedicated to J. R. R.Tolkien
+
+'N.I.M-E' was recorded at Twilight Hall Studios, Krefeld, Karo Musik
+Studios, Brackel (HH, Germany) & Sweet Silence Studios (Copenhagen, DK) from
+Sept. 1997 - March 1998 except Piano recorded at Vox Studios, HH, Germany in
+Jan. '98 / Narration recorded at Air edel-Studios, London / Drums,
+percussion, vocals & backing vocals, bass guitars, piano & interludes
+recorded & engineered by Charlie Bauerfeind / Lead & rhythm guitars,
+accoustic guitars, keyboard & orchestral effects recorded & engineered by
+Piet Sielck / Vocals recorded & engineered by Flemming Rasmussen / Flutes &
+alto-flute, vocals recorded & engineered by Cuny
+
+All music written by Olbrich/Kursch except Track 6 written by
+Olbrich/Kursch/Stauch/Siepen and track 16 written by Olbrich/Kursch/Schuren
+/ All lyrics & concept stories written by H. Kursch
+
+There is a Maglor's story in English for those who bought German release
+(and as a result, booklet's story in German)
+
+### "Mirror Mirror (single)" 1998, Power Metal
+
+1. Mirror, Mirror (5:07)
+2. And the Story Ends (live) (6:47)
+3. Imaginations from the Other Side (Live) (8:23)
+4. Beyond the Realms of Death (7:02)
+
+Year of Release: 1998
+CD Catalog No.: 7 24389 49202 6
+
+"Mirror, Mirror" taken from the forthcoming album: NIGHTFALL IN MIDDLE EARTH
+"And the Story Ends (Live)" recorded live at Dusseldorf-Philipshalle on Dec.
+22nd, 1995
+"Imaginations from the Other Side (Live)" recorded live at
+Dusseldorf-Philipshalle on Dec. 22nd, 1995
+"Beyond the Realms of Death" taken from the sampler - A TRIBUTE TO JUDAS
+PRIEST-2
+
+Track 1 published by Kursch/Olbrich/Stauch Publishing
+Track 2 & 3 published by Warner Chappel / Musik Edition Discothon
+Track 4 published by EMI Songs Ltd.
+
+Produced by Blind Guardian
+All songs mixed by Charlie Bauerfeind except Track 4 mixed by Piet Sielck.
+All music written by Olbrich/Kursch except Track 4 written by
+Tipten/Halford/Downing.
+Lyrics 1, 2, 3 written by Kursch
+Cover painting by Andreas Marschall
+
+### "And Then There Was Silence (single)" 2001, Power Metal
+
+1. And Then There Was Silence (14:07)
+2. Harvest of Sorrow (3:39)
+3. Multimedia Track [Data Track]
+
+
+Year of Release: 2001
+Serial No.: 724354601507
+Produced by: Charlie Bauerfeind
+Mixed & engineered by: Charlie Bauerfeind
+Assistant engineer: Nordin Hammadi Amrani
+
+Recorded and mixed at Twilight Hall Studios, Grefrath (Germany)
+
+Published by: B.G. Publishing
+
+Frontcover by Anry
+Artwork design by Nikolay "Dr.Venom" Simkin
+
+(C) & (P) 2001 Virgin Schallplatten GmbH & Co.KG.
+
+American (Century Media) release of the single comes in a full CD jewel case
+unlike the thinner cases for the European release.
+
+### "A Night At The Opera" 2002, Power Metal
+
+1. Precious Jerusalem - 6:21
+2. Battlefield - 5:37
+3. Under the Ice - 5:44
+4. Sadly Sings Destiny - 6:04
+5. The Maiden and the Minstrel Knight - 5:30
+6. Wait for an Answer - 6:30
+7. The Soulforged - 5:18
+8. Age of False Innocence - 6:05
+9. Punishment Divine - 5:45
+10. And Then There Was Silence - 14:05
+
+
+Year of Release: 2002
+Serial No.: 7 24381 18262 8
+
+Guest musicians:
+Oliver Holzwarth (bass)
+Matthias Wiesner (keyboards)
+Pad Bender, Boris Schmidt, Sascha Pierro (keyboards)
+Michael Shueren (grand piano)
+
+The choir company:
+Billy King - Rolf Kuhler - Thomas Hackmann - Olaf Senkbeil
+
+Produced by Blind Guardian
+(C) & (P) 2002 Virgin Schallplatten GmbH & Co.KG.
+
+There are different versions of the album with a bonus track "Harvest of
+Sorrow":
+2 english versions - original from the single and acoustic for Japan.
+2 spanish versions - "Mies del Dolor" for Spain and "La Cosecha del Dolor"
+for Argentina.
+Italian version - "Frutto del Buio".
+French version - "Moisson de Peine".
+
+### "The Bard's Song (In the Forest) (single)" 2003, Power Metal
+
+1. The Bard's Song - New Studio Version
+2. The Bard's Song - Live in Milan (October 10, 2002)
+3. The Bard's Song - Live in Munich (May 5, 2002)
+4. The Bard's Song - Live in Madrid (June 4, 2002)
+5. Multimedia Track - The Bard's Song Video Live in Stuttgart (May 6, 2002)
+
+### "Live (2 CD)" 2003, Power Metal
+
+
+
+### "Fly" 2006, Progressive
+
+1. Fly 05:46
+2. Skalds and Shadows (acoustic version) 03:15 
+3. In A Gadda Da Vida (Iron Butterfly cover) 03:37
+
+### "A Twist In The Myth" 2006, Progressive
+
+1. This Will Never End 05:07  
+2. Otherland 05:14  
+3. Turn the Page 04:16  
+4. Fly 05:43  
+5. Carry the Blessed Home 04:03  
+6. Another Stranger Me 04:36  
+7. Straight through the Mirror 05:48  
+8. Lionheart 04:15  
+9. Skalds and Shadows 03:13
+10. The Edge 04:27  
+11. The New Order 04:49 
+
+
+Line-up:
+Hansi Kursch - Vocals
+Andre Olbrich - Lead Guitar
+Marcus Siepen - Rhythm Guitar
+Frederik Ehmke - Drums
+
+Oliver Holzwarth - Bass
+Matthias Wiesner - Keyboards
+
+### "A Voice In The Dark" 2010, Power Metal
+
+1. A Voice in the Dark 05:45
+2. You're the Voice (John Farnham cover) 04:43  
+3. War of the Thrones 05:20 
+
+
+Line-up:
+Hansi Kьrsch - Vocals
+Andrй Olbrich - Lead Guitar
+Marcus Siepen - Rhythm Guitar
+Frederik Ehmke - Drums 
+
+### "At The Edge Of Time" 2010, Power Metal
+
+1. Sacred Worlds 09:17  
+2. Tanelorn 05:58  
+3. Road Of No Release 06:30  
+4. Ride Into Obsession 04:46  
+5. Curse My Name 05:52  
+6. Valkyries 06:38  
+7. Control The Divine 05:26  
+8. War Of The Thrones 04:55 
+9. A Voice In The Dark 05:41 
+10. Wheel Of Time 08:55 
+
+
+
+Also released in a limited digipack edition that contains a bonus CD:
+1. Sacred Worlds (Extended "Sacred" Version)
+2. Wheel Of Time (Orchestral Version)
+3. Youre The Voice (Radio Edit)
+4. Tanelorn (Into The Void) (Demo Version)
+5. Curse My Name (Demo Version)
+6. A Voice In The Dark (Demo Version)
+7. Sacred (Video Clip)
+8. Studio Documentary 
+
+
+Line-up:
+Hansi Kьrsch - Vocals
+Andre Olbrich - Lead Guitar
+Marcus Siepen - Rhythm Guitar
+Frederik Ehmke - Drums 
+
+### "Memories Of A Time To Come" 2012, Heavy Metal
+
+CD 1:
+01. Imaginations From The Other Side (07:12) *
+02. Nightfall (05:36) *
+03. Ride Into Obsession (04:48) *
+04. Somewhere Far Beyond (07:34) *
+05. Majesty (07:31) *
+06. Traveler In Time (06:03) *
+07. Follow The Blind (07:13) *
+08. The Last Candle (06:03) *
+
+* Remixed 2011
+ 
+CD 2:
+01. Sacred Worlds (09:19)
+02. This Will Never End (05:08) *
+03. Valhalla (05:15) **
+04. Bright Eyes (05:16) *
+05. Mirror Mirror (05:11) *
+06. The Bard's Song (In the Forest) (03:28) *
+07. The Bard's Song (The Hobbit) (03:43) **
+08. And Then There Was Silence (14:05) **
+ 
+* Remixed 2011
+ ** Re-recorded 2011
+ 
+CD 3: (3 CD includes the legendary Lucifer's Heritage demos)
+01. Brian (02:40) ***
+02. Halloween (The Wizard's Crown) (03:22) ***
+03. Lucifer's Heritage (04:37) ***
+04. Symphonies Of Doom (04:03) ***
+05. Dead Of The Night (03:29) ***
+06. Majesty (07:16)
+07. Trial By The Archon (03:53)
+08. Battalions Of Fear (06:21)
+09. Run For The Night (04:30)
+10. Lost In The Twilight Hall (05:58)
+11. Tommyknockers (05:14)
+12. Ashes To Ashes (05:38)
+13. Time What Is Time (05:10)
+14. A Past And Future Secret (03:37)
+15. The Script For My Requiem (07:01)
+
+*** Re-worked 2011
+ 
+
+### "Beyond the Red Mirror" 2015, Power Metal
+
+1. The Ninth Wave  09:27  
+2. Twilight of the Gods  04:49   
+3. Prophecies  05:24    
+4. At the Edge of Time  06:53  
+5. Ashes of Eternity  05:38    
+6. The Holy Grail  06:02    
+7. The Throne  07:53    
+8. Sacred Mind  06:21   
+9. Miracle Machine  03:02    
+10. The Grand Parade  09:27  
+
+
+
+Hansi Kьrsch - Vocals  
+Andre Olbrich - Guitars (lead)  
+Marcus Siepen - Guitars (rhythm)  
+Frederik Ehmke - Drums  
+
+
+
 
 ## Отношения с другими группами
 

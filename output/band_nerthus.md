@@ -1,10 +1,48 @@
 # Nerthus
 
-Дискография
-"Escape From Suction" 2000, Black Metal
-"Scattered To The Four Wainds" 2002, Black Metal
-"Black Medieval Art" 2004, Black Metal
-"The Crowneds Reunion" 2007, Black Metal
+
+
+## Дискография
+
+### "Escape From Suction" 2000, Black Metal
+
+
+
+### "Scattered To The Four Wainds" 2002, Black Metal
+
+
+
+### "Black Medieval Art" 2004, Black Metal
+
+1. Behind The Horizon
+2. Battle Song
+3. Prehistoric Crafts
+4. Dark Triumphant Hordes
+5. Melodies Of Pride And Honour
+6. Masters Of Steel And Masters Of Fight
+7. Roving Clouds
+8. The Era Of Pureness
+9. Seeds Of Death
+10. Devising Of Black Strategies
+11. Hymn To The Glory Of Mother Nature
+12. The Black Fortress
+13. Before The Last Battle
+14. Where The Eagles Fly
+
+### "The Crowneds Reunion" 2007, Black Metal
+
+1. Introfernalis 03:16  
+2. World conflagration 06:52  
+3. Embattled 01:29  
+4. Selfmade clone 06:34  
+5. Mounted on horseback 01:52  
+6. The shadowbrood 07:32  
+7. With head erect 02:00  
+8. Of knightly grace 06:31  
+9. Awakening 06:12  
+10. Intrepid empie 03:00  
+11. Outrofernalis 15:29
+
 
 ## Отношения с другими группами
 

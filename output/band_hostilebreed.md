@@ -1,9 +1,74 @@
 # Hostile Breed
 
-Дискография
-"Green Wound" 2001, Metal
-"The Second Cut" 2004, Metal
-"Узоры Шрамов - Законы Войны" 2006, Metal
+angry metal from Russia
+
+## Дискография
+
+### "Green Wound" 2001, Metal
+
+1 Churchella [145495/2] 1:04
+2 Mad Noise Invasion 3:38
+3 E-Chaos 3:58
+4 Urban Terrorist 5:10
+5 White Ghetto 6:10
+6 Too Drunk to Drive 2:52 
+7 World without Hope 4:50 
+8 Do You Think I'm Criminal 5:25 
+9 Through Victory to Defeat 4:45 
+10 Little Green Man 3:24
+11 Paper Law 3:53
+
+
+
+Produced, engineered & mixed by Shultz & Hostile breed
+Recorded at the Shultz Records,Moscow,Russia
+
+All music & lyrics written by Vladimir Vopilov
+Arranged by Hostile breed
+Correspondence: Hostile breed, p.o.box N Moscow, Russia,
+Band photography: by Ksenia Semenkova
+Art works by I.Poljakov
+Live sound engineer: Sergey Katagin
+Hostile Breed is hooked up by: B.C.Rich, Jackson, Ibanez, SansAmp GT2,Sabian, Paiste, Master, Proel, Mesa Boogie, Marchall
+
+
+Vladimir Vopilov, guitar, voice
+D. Frans, guitar, backing vocals
+Konstantin Kashtalap, bass
+Alexandr Apashkin, drums
+
+
+
+### "The Second Cut" 2004, Metal
+
+1. Intro 
+2. Die Inside
+3. Resonance
+4. Visions
+5. Promethean
+6. Wound Of Soul
+7. Show Me The Road
+8. Civilization Of Hatred
+9. Color Of Freedom 
+10. Pseudo Life
+11. Like A Bullet
+
+### "Узоры Шрамов - Законы Войны" 2006, Metal
+
+1. Язвы
+2. V.I.P.
+3. Танцы на костях 
+4. Путь смерти 
+5. Заранее виновен
+6. Ложь
+7. Цвета крови
+8. Цивилизация боли
+9. Законы войны
+Bonus:
+10. Pseudo life (live)
+11. Wound of soul (live)
+12. Visions (live)
+
 
 ## Отношения с другими группами
 

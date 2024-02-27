@@ -1,8 +1,26 @@
 # Machine Men
 
-Дискография
-"Scars & Wounds" 2003, Heavy Metal
-"Elegies" 2005, Heavy Metal
+heavy-metal
+
+## Дискография
+
+### "Scars & Wounds" 2003, Heavy Metal
+
+
+
+### "Elegies" 2005, Heavy Metal
+
+1. Falling (3:05) 
+2. Dream & Religion (3:49) 
+3. Apathy (5:10) 
+4. Back From The Days (3:28) 
+5. The Traitor (3:55) 
+6. October (6:35) 
+7. Daytime Theatre (4:58) 
+8. Doors Of Resurrection (4:10) 
+9. From Sunrise To Sunset (6:04) 
+10. Freak (4:15)
+
 
 ## Отношения с другими группами
 

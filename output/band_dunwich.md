@@ -1,7 +1,31 @@
 # Dunwich
 
-Дискография
-"Eternal Eclipse Of Frost" 1999, Gothic
+
+
+## Дискография
+
+### "Eternal Eclipse Of Frost" 1999, Gothic
+
+1. Il Giro di Vite
+2. Passaggio a Saint Briac
+3. Il Nostro Incanto
+4. Il Vento di Aran
+5. Il Vento di Aran (reprise)
+6. Alcheringa
+7. Preparazione al Trono
+8. La Veglia degli angeli
+9. L'Avoiro di Irene
+10. Il bosco sacro
+
+Claudio Nigris-keys
+Katya Sanna-Lead, back harmony vocals
+Alessandro Vitanza-Drums
+Andrea De Carlo-Bass
+Equizio Pazonzio-Cello,Violin
+
+1999 Rising Sun Productions
+
+
 
 ## Отношения с другими группами
 

@@ -1,9 +1,48 @@
 # Eidolon
 
-Дискография
-"Nigthmare World" 2000, Power Metal
-"Coma Nation" 2002, Power Metal
-"Apostles Of Defiance" 2003, Thrash
+power-thrash
+
+## Дискография
+
+### "Nigthmare World" 2000, Power Metal
+
+nightmare world 
+noctrm aetemus (eternal night) 
+lunar mission 
+sye of illusion 
+repulsion 
+fortress of red 
+majestic interlude (instrumental) 
+glorified suicide 
+dreamscape
+
+### "Coma Nation" 2002, Power Metal
+
+01. (Intro)
+02. Coma Nation
+03. Scarred
+04. Hunt You Down
+05. Life In Agony
+06. Lost Voyage
+07. From Below
+08. The Pentacle Star
+09. A Day Of Infamy
+10. Within The Gates
+
+### "Apostles Of Defiance" 2003, Thrash
+
+1. Scream From Within
+2. Volcanic Earth
+3. Twisted Morality
+4. Demoralized
+5. The Test
+6. The Will To Remain
+7. Apostles Of Defiance
+8. Pull The Trigger
+9. Apathy For A Dying World
+
+
+
 
 ## Отношения с другими группами
 

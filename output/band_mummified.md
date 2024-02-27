@@ -1,7 +1,20 @@
 # Mummified
 
-Дискография
-"Embalming The Nazarene" 2011, Death Metal
+
+
+## Дискография
+
+### "Embalming The Nazarene" 2011, Death Metal
+
+1. Malicious Incubus Excavation	 
+2. Shroud Of Gloom (Doomed)	 
+3. Passage Though The Ossuary Of Calamity	 
+4. The Creepy Chronicles Of Ron Jeremy	 
+5. Ferocious Godsodomy	 
+6. Dr. Graveyard	 
+7. God Mortification	 
+8. Psychotic Hallucinations Of Crucifixion (Version 2010)
+
 
 ## Отношения с другими группами
 

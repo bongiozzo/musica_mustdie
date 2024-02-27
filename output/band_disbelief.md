@@ -1,13 +1,85 @@
 # Disbelief
 
-Дискография
-"Disbelief" 1997, Death Metal
-"Infected" 1998, Death Metal
-"Worst Enemy" 2001, Death Metal
-"Shine" 2002, Death Metal
-"66 Sick" 2005, Death Metal
-"Navigator" 2007, Death Metal
-"Protected Hell" 2009, Death Metal
+Real Death Metal
+
+## Дискография
+
+### "Disbelief" 1997, Death Metal
+
+
+
+### "Infected" 1998, Death Metal
+
+
+
+### "Worst Enemy" 2001, Death Metal
+
+Misery 
+Believe 
+Survive 
+All or Nothing 
+Denial 
+Assassinate The Scars 
+Recession 
+Living Wreck 
+Humiliation 
+Outro 
+
+
+
+Jochen Trunk - Bass
+Karsten Jager - Vocals 
+Oliver Lenz - Guitar 
+Jan Dirk Loffler - Guitar 
+Kai Bergerin - Drums 
+
+
+### "Shine" 2002, Death Metal
+
+1. No Control 
+2. Walk 
+3. The Decline 
+4. Shine 
+5. Me And My World 
+6. Alive 
+7. Honour Killings 
+8. Falling Without Reason 
+9. Mad Sick Mankind 
+10. Free 
+
+
+### "66 Sick" 2005, Death Metal
+
+
+
+### "Navigator" 2007, Death Metal
+
+01. Navigator
+02. When Silence Is Broken
+03. The One
+04. The Thought Product
+05. Between Red Lines
+06. It Is Simply There
+07. Falling Down
+08. Passenger
+09. Selected
+10. Sacrifice
+
+### "Protected Hell" 2009, Death Metal
+
+1. Hell (Intro) 02:11  
+2. A Place To Hide 04:56  
+3. Hate/Aggression Schedule 04:07  
+4. Nemesis Rising 04:05  
+5. The Return Of Sin 05:01  
+6. Hell Goes On 03:33  
+7. S.O.S. - Sense Of Sight 03:51  
+8. One Nation‘s Son 04:38  
+9. Trauma (Instrumental) 01:01  
+10. The Dark Soundscapes 05:16  
+11. Room 309 (Kraftprinzip) 04:26  
+12. Demon‘s Entry 05:04 
+
 
 ## Отношения с другими группами
 

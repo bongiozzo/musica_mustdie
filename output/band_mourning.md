@@ -1,7 +1,32 @@
 # Mourning
 
-Дискография
-"Greetings From Hell" 1993, Death Metal
+
+
+## Дискография
+
+### "Greetings From Hell" 1993, Death Metal
+
+1. Intro/Arma Satani     7.53
+2. Sweet Dreams     3.45
+3. Demon's Dance     3.33
+4. Territorial     3.10
+5. Denial Of Your Destiny    3.49
+6. Only War And Hell     8.05
+7. What ?      3.00
+8. Deranged Or Dead     4.14
+9. Buried With The Dead    3.22
+10.Get AIDS And Die     5.00
+
+ Marc Van Amelsfoort - Bass. Vocals
+ Rene Roza  - Guitars
+ Andre Van Der Ree - Drums
+
+Produced By Han Swagerman
+Mixed By MOURNING & Han Swagerman
+Recorded At The Beaufort Studio 2 to 13 November 1992
+
+(p&(c) 1993 FOUNDATION 2000
+
 
 ## Отношения с другими группами
 

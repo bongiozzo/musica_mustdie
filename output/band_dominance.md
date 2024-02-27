@@ -1,9 +1,37 @@
 # Dominance
 
-Дискография
-"Anthems of Ancient Splendour" 1999, Death Metal
-"Echoes of Human Decay" 2009, Death Metal
-"XX: The Rising Vengeance" 2016, Death Metal
+
+
+## Дискография
+
+### "Anthems of Ancient Splendour" 1999, Death Metal
+
+1. Intro - Forgotten Age Awakening	 
+2. Between The Sands	 
+3. Fallen Winter	 
+4. Immemorial Iced Lake	 
+5. Anthem Of Ancient Splendour	 
+6. Celestial Tormentors	 
+7. Engraved	 
+8. Outro - Fallen Asleep A
+
+### "Echoes of Human Decay" 2009, Death Metal
+
+1. Dead Mechanism	 
+2. Last Witness	 
+3. Gilgamesh	 
+4. Primordial	 
+5. The Siege	 
+6. Duellists 
+7. The Temple of Two Queens	 
+8. Unholy Birth	 
+9. The Sailor	 
+10. Like a Distant Thunder
+
+### "XX: The Rising Vengeance" 2016, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

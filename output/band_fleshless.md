@@ -1,14 +1,61 @@
 # Fleshless
 
-Дискография
-"Stench of Rotting Heads (demo)" 1993, Death Metal
-"Grinding (demo)" 1994, Death Metal
-"Grindgod" 1999, Death Metal
-"Abhorrence of Cadaveric" 2000, Death Metal
-"Nice to Eat You" 2002, Death Metal
-"Sensual Death Immitation" 2003, Death Metal
-"To Kill For Skin" 2005, Death Metal
-"Hate Is Born" 2008, Death Metal
+Czech Tortured Gore Brutal Death Metal
+
+## Дискография
+
+### "Stench of Rotting Heads (demo)" 1993, Death Metal
+
+
+
+### "Grinding (demo)" 1994, Death Metal
+
+
+
+### "Grindgod" 1999, Death Metal
+
+
+
+### "Abhorrence of Cadaveric" 2000, Death Metal
+
+
+
+### "Nice to Eat You" 2002, Death Metal
+
+
+
+### "Sensual Death Immitation" 2003, Death Metal
+
+
+
+### "To Kill For Skin" 2005, Death Metal
+
+1. Intro 00:55  
+2. Contract Of Blood 03:35
+3. Sanguinica 02:15
+4. Ordo Verminosum 04:33
+5. The Final Cut 03:45
+6. Lifedrain 02:57 
+7. In Vitro / Dead End 03:33
+8. The Grudge Gear 02:45
+9. Amor In The Shards 04:11
+10. To Kill For Skin 04:20 
+11. Outro 00:47 
+
+### "Hate Is Born" 2008, Death Metal
+
+1. Intro 00:35  
+2. Lifetime Mayhem 04:04
+3. To Watch Them Slain 03:43
+4. D-flesh! 02:43 
+5. Muscle Memory 03:28
+6. Hate Is Born 03:14
+7. Tears For Dead 01:16  
+8. The Flayed Ones 03:08 
+9. Through Killing Spree 03:49
+10. Carnal Playground 03:42 
+11. Ora Et Labora 03:57 
+
 
 ## Отношения с другими группами
 

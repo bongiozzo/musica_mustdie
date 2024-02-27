@@ -1,11 +1,29 @@
 # Fortid
 
-Дискография
-"Voluspa Part I: Thor's Anger" 2003, Viking Metal
-"Voluspa Part II: The Arrival of Fenris" 2007, Viking Metal
-"Voluspa Part III: Fall of the Ages" 2010, Viking Metal
-"Pagan Prophecies" 2012, Viking Metal
-"9" 2015, Viking Metal
+
+
+## Дискография
+
+### "Voluspa Part I: Thor's Anger" 2003, Viking Metal
+
+
+
+### "Voluspa Part II: The Arrival of Fenris" 2007, Viking Metal
+
+
+
+### "Voluspa Part III: Fall of the Ages" 2010, Viking Metal
+
+
+
+### "Pagan Prophecies" 2012, Viking Metal
+
+
+
+### "9" 2015, Viking Metal
+
+
+
 
 ## Отношения с другими группами
 

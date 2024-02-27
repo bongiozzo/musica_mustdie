@@ -1,8 +1,26 @@
 # Seventh Key
 
-Дискография
-"Seventh Key" 2001, Hard Rock
-"The Raging Fire" 2004, Metal
+Melodic Hard/AOR
+
+## Дискография
+
+### "Seventh Key" 2001, Hard Rock
+
+
+
+### "The Raging Fire" 2004, Metal
+
+The Sun Will Rise
+· Always From The Heart
+· You Cross The Line
+· An Ocean Away
+· The Raging Fire
+· Sin City
+· It Should Have Been You
+· Run
+· Pyramid Princess
+· Winds of War
+
 
 ## Отношения с другими группами
 

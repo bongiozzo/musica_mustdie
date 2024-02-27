@@ -1,8 +1,40 @@
 # President Evil
 
-Дискография
-"Trash'n'Roll Asshole Show" 2006, Thrash
-"Hell In A Box" 2008, Thrash
+
+
+## Дискография
+
+### "Trash'n'Roll Asshole Show" 2006, Thrash
+
+The Electromagnetic Superstorm 
+Boneless 
+Demons Everywhere 
+One Sick Bastard 
+Deathcar Racer 
+Trash & Roll Asshole Show 
+El Sadistico 
+Action Express 
+Riot Generator 
+Ragin`Silence 
+Star Destroyer 
+Midnight Weedtrain 
+Dead Man `s Float
+
+### "Hell In A Box" 2008, Thrash
+
+Viva La Muerta 
+Jesus Factor Negative 
+Hell In A Box 
+White Fire 
+King Asshole 
+The Anti Loser 
+Bring Out Your Dead
+The Return Of The Speed Cowboys 
+Godforsaken 
+One Brain Army 
+New Junk City
+Hell In A Box (bonus video)
+
 
 ## Отношения с другими группами
 

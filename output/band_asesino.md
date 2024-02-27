@@ -1,7 +1,27 @@
 # Asesino
 
-Дискография
-"Cristo Satanico" 2008, Deathcore
+
+
+## Дискография
+
+### "Cristo Satanico" 2008, Deathcore
+
+01. Advertensia
+02. Regresando Odio
+03. Maldito
+04. Rituales Salvajes
+05. Yo no Fui
+06. Padre Pedofilo
+07. Enterrado Vivo
+08. Puta con Pito?
+09. Adelitas
+10. Twiquiado
+11. Perro Primero
+12. Sadistico
+13. Batalla Final
+14. Cristo Satanico
+15. Y Tu Mama Tambien
+
 
 ## Отношения с другими группами
 

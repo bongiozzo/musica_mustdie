@@ -1,8 +1,39 @@
 # Liers In Wait
 
-Дискография
-"Spiritually Uncontrolled Art" 1992, Melodic Death Metal
-"Spiritually Uncontrolled Art (re-released)" 1996, Melodic Death Metal
+
+
+## Дискография
+
+### "Spiritually Uncontrolled Art" 1992, Melodic Death Metal
+
+Overlord
+Bleeding Shrines Of Stone
+Maleficent Dreamvoid
+Liers In Wait
+Gateways
+
+Vocals by Christoffer Johnsson
+
+Studio: Sunlight Studios Oct -91
+Produced by: Liers In Wait and Thomas Skogsberg
+Cover artwork: Kristian Wеhlin a.k.a Necrolord
+
+### "Spiritually Uncontrolled Art (re-released)" 1996, Melodic Death Metal
+
+Overlord
+Bleeding Shrines Of Stone
+Maleficent Dreamvoid
+Liers In Wait
+Gateways
+
+Vocals by Christoffer Johnsson
+
+Studio: Sunlight Studios Oct -91
+Produced by: Liers In Wait and Thomas Skogsberg
+Cover artwork: Kristian Wеhlin a.k.a Necrolord
+This is a re-issue of the cd that was released
+-92 by Dolores Records 
+
 
 ## Отношения с другими группами
 

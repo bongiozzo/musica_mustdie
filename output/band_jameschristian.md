@@ -1,8 +1,27 @@
 # James Christian
 
-Дискография
-"Rude Awakening" 1999, Hard Rock
-"Meet The Man" 2004, Hard Rock
+Melodic hard rock
+
+## Дискография
+
+### "Rude Awakening" 1999, Hard Rock
+
+
+
+### "Meet The Man" 2004, Hard Rock
+
+01. After The Love Has Gone
+02. Know You In The Dark
+03. Surrender Your Love
+04. Meet The Man
+05. End Of Time
+06. Love Looked Into My Life
+07. Leave Well Enough Alone
+08. Strong Enough
+09. You Should Be Blue (All I Could Feel Was Blue)
+10. Circle of Tears
+11. Hold Back The Night
+
 
 ## Отношения с другими группами
 

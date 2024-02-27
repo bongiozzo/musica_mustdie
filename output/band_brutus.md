@@ -1,7 +1,22 @@
 # Brutus
 
-Дискография
-"Slachtbeest" 2003, Death Metal
+Dutch Brutal Death Metal
+
+## Дискография
+
+### "Slachtbeest" 2003, Death Metal
+
+1. SLACHTBEEST
+2. VLEESPOMP
+3. ONTROUW
+4. GRAFZERK
+5. DARMSCHURFT
+6. DOODSVREES
+7. ONAN
+8. LIJFSTRAF
+9. BLOEDSPOOR
+10. WREVEL
+
 
 ## Отношения с другими группами
 

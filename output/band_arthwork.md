@@ -1,11 +1,35 @@
 # Arthwork
 
-Дискография
-"...and May the Gods Protect Us..." 2013, Progressive
-"Deus lo Volt" 2014, Progressive
-"Beyond the Cortical Layers" 2014, Progressive
-"Indignation" 2015, Progressive
-"The Maladaptive Daydreamer" 2015, Progressive
+
+
+## Дискография
+
+### "...and May the Gods Protect Us..." 2013, Progressive
+
+
+
+### "Deus lo Volt" 2014, Progressive
+
+
+
+### "Beyond the Cortical Layers" 2014, Progressive
+
+
+
+### "Indignation" 2015, Progressive
+
+1. Enough 
+2. One Step Closer  
+3. Among Seven Sins 
+4. Feed My Fear 
+5. Indignation 
+6. No Walls  
+7. Into the Mouth of Madness
+
+### "The Maladaptive Daydreamer" 2015, Progressive
+
+
+
 
 ## Отношения с другими группами
 

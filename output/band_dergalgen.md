@@ -1,7 +1,32 @@
 # Der Galgen
 
-Дискография
-"Willkommen Auf Die Todesstrafe!" 2008, Folk
+
+
+## Дискография
+
+### "Willkommen Auf Die Todesstrafe!" 2008, Folk
+
+1. Viimeinen Laulu (intro) 01:45  
+2. Das Unwetter 02:53  
+3. Paaton Hapeamaton 04:59  
+4. Die Hinrichtung der Hexe 03:36  
+5. Taistelu noita-akan maella 02:25  
+6. Die Fee des Baumes 03:34  
+7. Hirsipuu 03:57  
+8. Walkuren 01:27  
+9. Kuoleman Sato 02:34  
+10. Musta Kumpu 02:58 
+
+Line-up on record:
+Ulf - vocals, bass
+William - guitars
+Thor - drums
+Grendel - keyboards, vocals
+
+The original English version of the title would be "Welcome to the Execution".
+"Willkommen Auf Die Todesstrafe!" is a false translation into German. Correct
+would it be: Willkommen zur Hinrichtung! 
+
 
 ## Отношения с другими группами
 

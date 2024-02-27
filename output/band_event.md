@@ -1,9 +1,58 @@
 # Event
 
-Дискография
-"Electric Skies" 1998, Progressive
-"Human Condition" 2001, Progressive
-"Scratching at the Surface" 2003, Progressive
+
+
+## Дискография
+
+### "Electric Skies" 1998, Progressive
+
+Perfect Illusion 
+Weatherman 
+Tall Bizarre 
+Muddy Water 
+Tundra 
+Walk On 
+Aimless 
+The Anger 
+Full Of Stars 
+Electric Skies
+
+### "Human Condition" 2001, Progressive
+
+Drug Of Choice 
+New Chemicals 
+Blind 
+The Director 
+Faces 
+Twisted Game 
+Insensitive 
+Human Condition 
+Coincidental Existence 
+Stop Complaining 
+Indecision
+
+### "Scratching at the Surface" 2003, Progressive
+
+1- Make your Way
+2- Under My Skin
+3- Someone
+4- One Simple Fall
+5- Live Life Love Breed
+6- Scratching at the Surface
+7- Won’t Come Loose
+8- Siren
+9- Into the Fray
+10- All too real
+11- It Makes Me…Me
+12- Pleasure in the Pain
+13- Too Much
+
+
+Dave DeLugo
+Shaun Michaud
+Jay Rigney
+Matt Scurfield
+
 
 ## Отношения с другими группами
 

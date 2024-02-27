@@ -1,8 +1,17 @@
 # Vrag
 
-Дискография
-"Black Plague of Human Extinction" 2009, Black Metal
-"Species of One" 2015, Black Metal
+black metal from Australia
+
+## Дискография
+
+### "Black Plague of Human Extinction" 2009, Black Metal
+
+
+
+### "Species of One" 2015, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

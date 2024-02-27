@@ -1,9 +1,21 @@
 # Stargate
 
-Дискография
-"Stargate" 2004, Heavy Metal
-"Reborn" 2013, Heavy Metal
-"Longing For Light" 2016, Heavy Metal
+
+
+## Дискография
+
+### "Stargate" 2004, Heavy Metal
+
+
+
+### "Reborn" 2013, Heavy Metal
+
+
+
+### "Longing For Light" 2016, Heavy Metal
+
+
+
 
 ## Отношения с другими группами
 

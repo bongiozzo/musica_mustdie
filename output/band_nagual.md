@@ -1,7 +1,17 @@
 # Nagual
 
-Дискография
-"Active Side Of Infinity" 2008, Death Doom
+
+
+## Дискография
+
+### "Active Side Of Infinity" 2008, Death Doom
+
+1. Violet Fire 13:47  
+2. To Defy Death! 11:05  
+3. Discipline Of Warrior 13:36  
+4. Ярость 16:36  
+5. Song Of The Warrior - Traveller 13:50 
+
 
 ## Отношения с другими группами
 

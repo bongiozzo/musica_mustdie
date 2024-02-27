@@ -1,7 +1,22 @@
 # Rot
 
-Дискография
-"Cruel Face Of Life" 1994, Grindcore
+
+
+## Дискография
+
+### "Cruel Face Of Life" 1994, Grindcore
+
+tracks 1-21 were recorded on 1st & 8th of Aug.93
+tracks  22-32 taken from 'Drowned In Restrictions' 7"Recorded 8 Aug. 1992
+tracks 33-42 taken from 'Almighty God'7"Recorded 25th May 1991
+
+ Marcelo - Vocals
+ Mendigo - Guitars
+ Marcelo - Bass
+ Claudinei - Drums & vocals
+
+(p)(c) 1994 MORBID Records
+
 
 ## Отношения с другими группами
 

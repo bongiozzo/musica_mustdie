@@ -1,11 +1,84 @@
 # Pan.Thy.Monium
 
-Дискография
-"Dawn Of Dreams" 1992, Death Metal
-"Khaoohs" 1993, Death Metal
-"Dream II" 1995, Death Metal
-"Khaooohs And Kon-fus-ion" 1996, Death Metal
-"Dawn Of Dreams + Khaooos (2 CD)" 2004, Death Metal
+Very Original Death Metal
+
+## Дискография
+
+### "Dawn Of Dreams" 1992, Death Metal
+
+
+ Day DiSyraah - Bass, Keyboards, Effects, Saxophone
+ Derelict - Vocals
+ Winter - Drums
+ Mourning - Guitars
+ Special Guest - Aag - Saxophone, Lead Guitars
+
+(p)&(c) 1992 OSMOSE Records
+
+### "Khaoohs" 1993, Death Metal
+
+1. I Monens Sken Dog En Skugga
+2. Under Ytan
+3. Jag And Vem
+4. Lava
+5. Lomska Forsat
+6. I Vindens Vald
+7. Klieveage*
+8. Ekkhoeece III*
+9. Khaoohs I*
+10.Utsikt
+11.Khaoohs II
+
+ Winter - Drums, Violin & Handclaps
+ Day DiSiraah - Bass, Keyboards & Handclaps
+ Mourning - Rhythm Guitar
+ Derelict - Voice & Handclaps
+ Aag - Lead Guitar, Organ & Saxophone
+
+All Music Written By PAN.THY.MONIUM
+Lyrics By Dr. Dark Except * By PAN.THY.MONIUM
+Produced By PAN.THY.MONIUM & Raagoonshinnaah
+Recorded & Mixed In Unicorn Studio By Day DiSiraah, May 1993
+
+(p)&(c) 1993 OSMOSE PRODUCTION
+
+### "Dream II" 1995, Death Metal
+
+1. I
+2. II
+3. III
+4. Vvoiiccheeces
+5. IV *
+
+All Songs Written By PAN.THY.MONIUM
+Created By Raagoonshinnaah
+Recorded In 1992 In Mighty Gorysound Except * Recorded At Jan 1994 At Unisound Studio
+
+(p)&(c) 1995 AVANTGARDE Music
+
+### "Khaooohs And Kon-fus-ion" 1996, Death Metal
+
+1. The Battle Of Geeheeb
+2. Thee-Pherenth
+3. Behrial
+4. In Remembrance
+
+Winter - Drums, Cymbals & Percussion
+Day DiSiraah - Lead & Rhythm Bass, Keyboards & Effects
+Mourning - Rhythm Guitars
+Derelict - Lead & Rhythm Voices
+Aag - Lead Guitars, Soprano Saxophone & Noises
+
+All Music Written By PAN.THY.MONIUM.
+Captured In The Presence Of Raagoonshinnaah.
+Recorded & Mixed In Unisound Studio By Day DiSiraah.
+
+(p)&(c) 1996 RELAPSE Records
+
+### "Dawn Of Dreams + Khaooos (2 CD)" 2004, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

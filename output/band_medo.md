@@ -1,8 +1,38 @@
 # Medo
 
-Дискография
-"Fantasmasis" 2009, Black Metal
-"Materia Negra" 2011, Black Metal
+
+
+## Дискография
+
+### "Fantasmasis" 2009, Black Metal
+
+1. Medo  03:39  
+2. Catacumbas  02:26    
+3. Fossas abissais  03:12    
+4. Valsa dos finados  01:26   
+5. O eremita  03:13   
+6. Amaldi&#231;oado  04:31
+7. Criatura  03:44    
+8. Fantasmasis  03:59 
+9. Caix&#227;o de prata  01:37    
+10. Apari&#231;&#227;o  03:42   
+11. O dependurado  01:22    
+12. Palavras finais  03:11    
+
+### "Materia Negra" 2011, Black Metal
+
+1. Por Tras Da Porta De Ferro   
+2. O Portador Das Tormentas 
+3. You Will Never Burn All The Witches 
+4. Trabalho De Magia Negra (Segundo S. Cipriano)  
+5. Medium       
+6. Misterio Da Nau Da Morte
+7. Vultos De Uma Batalha  
+8. Almas Penadas    
+9. O Verdugo   
+10. Licantropo - A Maldicao
+11. Rituale Romanum  
+
 
 ## Отношения с другими группами
 

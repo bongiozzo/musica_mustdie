@@ -1,10 +1,52 @@
 # Rwake
 
-Дискография
-"Absence Due to Projection" 1999, Metal
-"Hell is a Door to the Sun" 2002, Metal
-"If You Walk Before You Crawl You Crawl Before You Die" 2004, Metal
-"Voices of Omens" 2007, Metal
+
+
+## Дискография
+
+### "Absence Due to Projection" 1999, Metal
+
+1. The War Against the Christians  05:39   
+2. Piss and Shit  09:53   
+3. Stratos  05:36  
+4. Worts  03:04    
+5. His Disease  03:16 
+6. Sketzencydh  04:18   
+7. The More They Eat The More They Shit  02:37    
+8. Omega  06:25 
+
+### "Hell is a Door to the Sun" 2002, Metal
+
+1. The Cat And The Snake  06:38  
+2. Smog Monster  06:38 
+3. Hell Is A Door To The Sun  06:59 
+4. Unleashing Cosmic Destruction  04:38    
+5. The Stoner Tree  09:22   
+6. Sight Beyond Sight  07:16  
+7. The River/Traskwood  10:30 
+
+### "If You Walk Before You Crawl You Crawl Before You Die" 2004, Metal
+
+1. Dying Spiral Galaxies  07:08 
+2. Forge  06:02    
+3. Imbedded  05:18    
+4. Intro/  00:43    
+5. Sleep and Forget Forever  04:50 
+6. Woodson Lateral  04:32   
+7. If You Walk Before You Crawl You Crawl Before You Die  12:21 
+
+### "Voices of Omens" 2007, Metal
+
+1. Intro  01:22    
+2. The Finality  09:08 
+3. Crooked Rivers  07:10 
+4. Fire and Flight  07:06    
+5. Leviticus  07:17   
+6. Of Grievous Abominations  09:40   
+7. Bridge  01:21    
+8. Inverted Overtures  06:44 
+9. The Lure of Light  09:14 
+
 
 ## Отношения с другими группами
 

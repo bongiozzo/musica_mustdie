@@ -1,8 +1,36 @@
 # Dark Shift
 
-Дискография
-"Dark Shift (demo)" 2001, Heavy Metal
-"The Assault" 2003, Thrash
+
+
+## Дискография
+
+### "Dark Shift (demo)" 2001, Heavy Metal
+
+1. Lost Forever
+2. The Last Door
+3. Nevermore
+4. Keeper
+
+
+Recorded at: JTW Studios
+
+Engineered by: Joel Wanasek
+
+Produced by: Joel Wanasek
+
+Mixed by: Joel Wanasek, Denny Sanders
+
+Released by: AJA Reocrds
+
+ 
+
+All Music Copyrighted 2001 to JTW Music LLC
+
+
+### "The Assault" 2003, Thrash
+
+
+
 
 ## Отношения с другими группами
 

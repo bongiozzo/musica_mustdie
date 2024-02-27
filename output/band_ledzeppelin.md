@@ -1,17 +1,206 @@
 # Led Zeppelin
 
-Дискография
-"Led Zeppelin" 1969, Hard Rock
-"Led Zeppelin II" 1969, Hard Rock
-"Led Zeppelin III" 1970, Hard Rock
-"Led Zeppelin IV" 1971, Hard Rock
-"Houses Of The Holy" 1973, Hard Rock
-"Physical Graffiti" 1975, Hard Rock
-"Presence" 1976, Hard Rock
-"The Song Remains The Same" 1976, Hard Rock
-"In Through The Out Door" 1979, Hard Rock
-"Coda" 1982, Hard Rock
-"The Making Of A Super Group (DVD)" 2003, Hard Rock
+Heavy Metal Pioneers
+
+## Дискография
+
+### "Led Zeppelin" 1969, Hard Rock
+
+ 
+
+  1. "Good Times Bad Times" 2:43 (Page/Jones/Bohnam)
+  2. "Babe I'm Gonna Leave You" 6:40 (Page/Plant/Anne Bredon)
+  3. "You Shook Me" 6:30 (Willie Dixon/J.B. Lenoir)
+  4. "Dazed And Confused" 6:27 (Page)
+  5. "Your Time Is Gonna Come" 4:41 (Page/Jones)
+  6. "Black Mountain Side" 2:06 (Page)
+  7. "Communication Breakdown" 2:26 (Page/Jones/Bonham)
+  8. "I Can't Quit You Baby" 4:42 (Willie Dixon)
+  9. "How Many More Times" 8:28 (Page/Jones/Bonham) 
+
+Atlantic Records
+Catalog # 8216
+Produced by Jimmy Page
+Released January 12, 1969  
+
+  
+
+
+### "Led Zeppelin II" 1969, Hard Rock
+
+  1. "Whole Lotta Love" 5:33 (Page/Plant/Jones/Bonham)
+  2. "What Is And What Should Never Be" 4:47 (Page/Plant)
+  3. "The Lemon Song" 6:20 (Page/Plant/Jones/Bonham)
+  4. "Thank You" 3:50 (Page/Plant)
+  5. "Heartbreaker" 4:15 (Page/Plant/Jones/Bonham)
+  6. "Living Loving Maid (She's Just A Woman)" 2:40 (Page/Plant)
+  7. "Ramble On" 4:35 (Page/Plant)
+  8. "Moby Dick" 4:25 (Bonham/Jones/Page)
+  9. "Bring It On Home" 4:19 (Page/Plant)
+
+
+ Atlantic Records
+Catalog # 8236
+Produced by Jimmy Page
+Released October 22, 1969  
+
+  
+
+
+
+### "Led Zeppelin III" 1970, Hard Rock
+
+ 
+
+  1. "Immigrant Song" 2:26 (Page/Plant)
+  2. "Friends" 3:55 (Page/Plant)
+  3. "Celebration Day" 3:29 (Page/Plant/Jones)
+  4. "Since I've Been Loving You" 7:25 (Page/Plant/Jones)
+  5. "Out On The Tiles" 4:04 (Page/Plant/Bonham)
+  6. "Gallows Pole" 4:58 (Traditional, arr. by Page/Plant)
+  7. "Tangerine" 3:12 (Page)
+  8. "That's The Way" 5:38 (Page)
+  9. "Bron-Y-Aur Stomp" 4:20 (Page/Plant/Jones)
+  10. "Hats Off To (Roy) Harper" 3:41 (Traditional, arr. by Charles Obscure) 
+
+
+Atlantic Records
+Catalog # 7201
+Produced by Jimmy Page
+Released October 5, 1970  
+
+  
+
+
+### "Led Zeppelin IV" 1971, Hard Rock
+
+Atlantic Records
+Catalog # 7208
+Produced by Jimmy Page
+Released November 8, 1971  
+
+  1. "Black Dog" 4:55 (Page/Plant/Jones)
+  2. "Rock And Roll" 3:40 (Page/Plant/Jones/Bonham)
+  3. "The Battle Of Evermore" 5:38 (Page/Plant)
+  4. "Stairway To Heaven" 7:55 (Page/Plant)
+  5. "Misty Mountain Hop" 4:39 (Page/Plant/Jones)
+  6. "Four Sticks" 4:49 (Page/Plant)
+  7. "Going To California" 3:36 (Page/Plant)
+  8. "When The Levee Breaks" 7:08 (Page/Plant/Jones/Bonham/Memphis Minnie) 
+
+
+
+
+### "Houses Of The Holy" 1973, Hard Rock
+
+Atlantic Records
+Catalog # 7255
+Produced by Jimmy Page
+Released March 28, 1973  
+
+  1. "The Song Remains The Same" 5:24 (Page/Plant)
+  2. "The Rain Song" 7:32 (Page/Plant)
+  3. "Over The Hills And Far Away" 4:42 (Page/Plant)
+  4. "The Crunge" 3:10 (Page/Plant/Jones/Bonham)
+  5. "Dancing Days" 3:40 (Page/Plant)
+  6. "D'yer Mak'er" 4:19 (Page/Plant/Jones/Bonham)
+  7. "No Quarter" 6:57 (Page/Plant/Jones)
+  8. "The Ocean" 4:28 (Page/Plant/Jones/Bonham) 
+
+
+
+
+### "Physical Graffiti" 1975, Hard Rock
+
+Swan Song Records
+Catalog # SS 2-200
+Produced by Jimmy Page
+Released February 24, 1975  
+
+  1. "Custard Pie" 4:20 (Page/Plant)
+  2. "The Rover" 5:44 (Page/Plant)
+  3. "In My Time Of Dying" 11:08 (Page/Plant/Jones/Bonham)
+  4. "Houses Of The Holy" 4:01 (Page/Plant)
+  5. "Trampled Under Foot" 5:38 (Page/Plant/Jones)
+  6. "Kashmir" 8:31 (Page/Plant/Bonham)
+  7. "In The Light" 8:46 (Page/Plant/Jones)
+  8. "Bron-Yr-Aur" 2:07 (Page)
+  9. "Down By The Seaside" 5:15 (Page/Plant)
+  10. "Ten Years Gone" 6:55 (Page/Plant)
+  11. "Night Flight" 3:37 (Page/Plant/Jones)
+  12. "The Wanton Song" 4:10 (Page/Plant)
+  13. "Boogie With Stu" 3:45 (Page/Plant/Jones/Bonham/Ian Stewart & Mrs. Valens)
+  14. "Black Country Woman" 4:30 (Page/Plant)
+  15. "Sick Again" 4:40 (Page/Plant) 
+
+### "Presence" 1976, Hard Rock
+
+Swan Song Records
+Catalog # 8416
+Produced by Jimmy Page
+Released March 31, 1976  
+
+  1. "Achilles Last Stand" 10:26 (Page/Plant)
+  2. "For Your Life" 6:21 (Page/Plant)
+  3. "Royal Orleans" 2:58 (Page/Plant/Jones/Bonham)
+  4. "Nobody's Fault But Mine" 6:15 (Page/Plant)
+  5. "Candy Store Rock" 4:10 (Page/Plant)
+  6. "Hots On For Nowhere" 4:42 (Page/Plant)
+  7. "Tea For One" 9:27 (Page/Plant) 
+
+### "The Song Remains The Same" 1976, Hard Rock
+
+Swan Song Records
+Catalog # SS 2-201
+Produced by Jimmy Page
+Released September 28, 1976  
+
+  1. "Rock and Roll" 4:03 (Page/Plant/Jones/Bonham)
+  2. "Celebration Day" 3:43 (Page/Plant/Jones)
+  3. "The Song Remains The Same" 6:00 (Page/Plant)
+  4. "The Rain Song" 8:24 (Page/Plant)
+  5. "Dazed And Confused" 26:53 (Page)
+  6. "No Quarter" 12:30 (Page/Plant/Jones)
+  7. "Stairway To Heaven" 10:58 (Page/Plant)
+  8. "Moby Dick" 12:47 (Bonham/Jones/Page)
+  9. "Whole Lotta Love" 14:24 (Page/Plant/Jones/Bonham) 
+
+### "In Through The Out Door" 1979, Hard Rock
+
+Swan Song Records
+Catalog # 16002
+Produced by Jimmy Page
+Released August 15, 1979  
+
+  1. "In The Evening" 6:48 (Page/Plant/Jones)
+  2. "South Bound Saurez" 4:11 (Plant/Jones)
+  3. "Fool In The Rain" 6:08 (Page/Plant/Jones)
+  4. "Hot Dog" 3:15 (Page/Plant)
+  5. "Carouselambra" 10:28 (Page/Plant/Jones)
+  6. "All My Love" 5:51 (Plant/Jones)
+  7. "I'm Gonna Crawl" 5:28 (Page/Plant/Jones) 
+
+### "Coda" 1982, Hard Rock
+
+Swan Song Records
+Catalog # 90051
+Produced by Jimmy Page
+Released November 19, 1982  
+
+  1. "We're Gonna Groove" 2:36 (Ben E. King/James Bethea)
+  2. "Poor Tom" 3:03 (Page/Plant)
+  3. "I Can't Quit You Baby" 4:16 (Willie Dixon)
+  4. "Walter's Walk" 4:24 (Page/Plant)
+  5. "Ozone Baby" 3:35 (Page/Plant)
+  6. "Darlene" 5:04 (Page/Plant/Jones/Bonham)
+  7. "Bonzo's Montreux" 4:15 (Bonham)
+  8. "Wearing and Tearing" 5:27 (Page/Plant) 
+
+
+### "The Making Of A Super Group (DVD)" 2003, Hard Rock
+
+
+
 
 ## Отношения с другими группами
 

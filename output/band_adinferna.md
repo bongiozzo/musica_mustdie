@@ -1,7 +1,36 @@
 # Ad Inferna
 
-Дискография
-"L'Empire des Sens" 2001, Black Metal
+French Black Metal Band
+
+## Дискография
+
+### "L'Empire des Sens" 2001, Black Metal
+
+1. Magistrale Ouverture
+2. Votre Dйchйance
+3. Mon Ame Noire
+4. To Enter the Tragic Symphony
+5. The Vampyrik Supremacy
+6. Requiem fьr Sie, mein Engel
+7. Di Profundis Clama Mortis
+8. Baldurs Tod *
+9. L'Empire des Sens
+10. The Final Discharge
+
+* Cover of Falkenbach
+
+Line-up :
+
+V. Orias A. - All Guitars, Bass
+Vicomte Vampyr Arkames - Vocals
+N. Aboriim - Drums
+As-Mody - Ambiant Orchestra
+
+Marco (from Obsidian Gate) - Keyboard Introduction
+Robynne (from Daeonia) - Female Vocals 
+
+Last Episode Productions, 2001
+
 
 ## Отношения с другими группами
 

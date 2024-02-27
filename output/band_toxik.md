@@ -1,8 +1,17 @@
 # Toxik
 
-Дискография
-"World Circus" 1987, Thrash
-"Think This" 1989, Thrash
+
+
+## Дискография
+
+### "World Circus" 1987, Thrash
+
+
+
+### "Think This" 1989, Thrash
+
+
+
 
 ## Отношения с другими группами
 

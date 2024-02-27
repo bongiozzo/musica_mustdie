@@ -1,9 +1,48 @@
 # Bejelit
 
-Дискография
-"Hellgate" 2004, Power Metal
-"Age of Wars" 2006, Power Metal
-"You Die and I" 2010, Power Metal
+
+
+## Дискография
+
+### "Hellgate" 2004, Power Metal
+
+1. BloodSign
+2. Bones and Evil
+3. The Haunter of the Dark
+4. I Won't Die Everyday
+5. Slave of Vengeance
+6. Skull Knight Ride
+7. Death Chariot
+8. Dust in the Wind
+9. Bejelith
+10. In Void We Trust
+
+### "Age of Wars" 2006, Power Metal
+
+1. Intro
+2. The Age of War
+3. Mercenaries
+4. Son of Death
+5. Just a Dream
+6. March of the Immortal
+7. The Evil Inside
+8. Flower of Winter
+9. Victory's Now
+10. ...And Chaos Came from Nowhere
+
+### "You Die and I" 2010, Power Metal
+
+1. Rostov	 
+2. She's Lying 6ft Under	 
+3. Saint from Beyond	 
+4. Your Personal Hell	 
+5. Astaroth	 
+6. 2K12 Nails	 
+7. Death Row	 
+8. Goodnight My Shade	 
+9. Shinigami	 
+10. Orfeo 10
+
 
 ## Отношения с другими группами
 

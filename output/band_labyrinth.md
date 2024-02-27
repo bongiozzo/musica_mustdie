@@ -1,14 +1,114 @@
 # Labyrinth
 
-Дискография
-"No Limits" 1996, Power Metal
-"Return to Heaven Denied" 1998, Power Metal
-"Timeless Crime" 1999, Power Metal
-"Sons Of Thunder" 2000, Power Metal
-"Labyrinth" 2003, Power Metal
-"Freeman" 2005, Progressive
-"6 Days To Nowhere" 2007, Progressive
-"Return to Heaven Denied Pt. II - "A Midnight Autumn’s Dream"" 2010, Progressive
+Power metal
+
+## Дискография
+
+### "No Limits" 1996, Power Metal
+
+
+
+### "Return to Heaven Denied" 1998, Power Metal
+
+1. Moonlight (Labяrinth/Thцrsen) 
+2. New Horizons (Labyrinth/Thorsen) 
+3. Night of Dreams (Labяrinth/Thцrsen) 
+4. Lady Lost in Time (Labяrinth/Thцrsen) 
+5. State of Grace (Labяrinth/Thцrsen) 
+6. Heaven Denied (Labяrinth/Thцrsen) 
+7. Thunder (Labяrinth/Thцrsen) 
+8. Feel {Legend B. Remix] (Labяrinth/Thцrsen) 
+9. Time After Time (Labяrinth/Thцrsen) 
+10.Falling Rain (Labyrinth/Thцrsen) 
+11.Die for Freedom (Labяrinth/Thцrsen) 
+
+
+### "Timeless Crime" 1999, Power Metal
+
+
+
+### "Sons Of Thunder" 2000, Power Metal
+
+Chapter I 
+Kathryn 
+Sons of Thunder 
+Elegy 
+Behind the Mask 
+Touch the Rainbow 
+Rage of the King 
+Save Me 
+Love 
+I Feel You 
+Miles Away 
+Ti Sento 
+
+
+### "Labyrinth" 2003, Power Metal
+
+
+
+### "Freeman" 2005, Progressive
+
+1. L.Y.A.F.H.
+2. Deserter
+3. Dive In Open Waters
+4. Freeman
+5. M3
+6. Face And Pay
+7. Malcolm Grey
+8. Nothing New
+9. Infidels
+10. Meanings
+
+
+Roberto Tiranti - vocals
+Andrea Cantarelli - guitars
+Pier Gonella - guitars
+Andrea De Paoli - keyboards, programmings
+Cristiano Bertocchi - bass
+Mattia Stancioiu - drums, backing vocals
+
+
+Produced by Labyrinth.
+All music and arrangements by Labyrinth.
+All lyrics by Roberto Tiranti.
+Recorded and mixed by Giovanni Spinotti,
+assisted by Mattia Stancioiu at Elnor Studio
+between August and November 2004.
+Mastered by Jurgen Lusky at House Of Audio
+Studios.
+Photos and artwork by Emmanuel Mathez.
+
+### "6 Days To Nowhere" 2007, Progressive
+
+1. Crossroads 04:03
+2. There Is A Way 03:36
+3. Lost 04:24
+4. Mother Earth 06:08
+5. Waiting Tomorrow 03:35
+6. Come Together (The Beatles cover) 04:00 
+7. Just One Day 03:54
+8. What??? 04:15
+9. Coldness 03:49
+10. Rusty Nail 03:19
+11. Out of Control 03:46
+12. Wolves 'N' Lambs 04:53
+13. Smoke and Dreams 04:37
+14. Piece of Time 02:50
+
+### "Return to Heaven Denied Pt. II - "A Midnight Autumn’s Dream"" 2010, Progressive
+
+1. The Shooting Star 07:55 
+2. A Chance 05:52
+3. Like Shadows in the Dark 05:35
+4. Princess of the Night 05:51
+5. Sailors of Time 04:30
+6. To Where We Belong 04:46
+7. A Midnight Autumn's Dream 06:48
+8. The Morning's Call 06:42
+9. In This Void 04:29
+10. A Painting on the Wall 05:01 
+
 
 ## Отношения с другими группами
 

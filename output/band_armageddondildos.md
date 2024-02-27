@@ -1,7 +1,28 @@
 # Armageddon Dildos
 
-Дискография
-"Lost" 1995, Industrial
+
+
+## Дискография
+
+### "Lost" 1995, Industrial
+
+1. Unite
+2. Stupid Little Squeezer
+3. Wonderland
+4. Caprured
+5. Hault
+6. Uncle D.
+7. Sounds Of Love
+8. Everyday Is Like Sunday *
+9. Too Far To Suicide
+
+All Songs Written & Performed By ARMAGEDDON DILDOS, Except * By Morrisey/Street
+Produced By Keith "Fluffy" Auerbach & A.D.
+Engineered By Fluffy Except Track 9 By Critter & 8 By Sevren Ni-Arb
+Recorded At Chicago Trax Recording
+
+(p)&(c) 1995 ZOTH OMMOG Records
+
 
 ## Отношения с другими группами
 

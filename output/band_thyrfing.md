@@ -1,13 +1,105 @@
 # Thyrfing
 
-Дискография
-"Thyrfing" 1998, Viking Metal
-"Valdr Galga" 1999, Viking Metal
-"Hednaland (demo tracks re-released)" 1999, Viking Metal
-"Urkraft" 2000, Viking Metal
-"Vansinnesvisor" 2002, Viking Metal
-"Farsotstider" 2005, Viking Metal
-"Hels Vite" 2008, Viking Metal
+Viking Metal
+
+## Дискография
+
+### "Thyrfing" 1998, Viking Metal
+
+1 Raven Eyes
+2 Vargavinter
+3 Set Sail to Plunder
+4 Ur askan ett rike
+5 Celebration of Our Victory
+6 A Burning Arrow
+7 En d&ouml;ende mans f&ouml;rbannelse
+8 Hednaland
+9 Wotan's Fire
+10 Going Berserk
+
+### "Valdr Galga" 1999, Viking Metal
+
+1. Prelude: Heading for The Golden Hall
+   Storms of Asgard
+2. From Wilderness Came Death
+3. Askans rike
+4. Valdr Galga
+5. The Deceitful
+6. Arising
+7. Firever
+8. A Moment in Valhalla
+9. Mimer's Well
+10. A Great Man's Return
+
+### "Hednaland (demo tracks re-released)" 1999, Viking Metal
+
+01. Intro 
+02. Hednaland 
+03. Vargavinter 
+04. Nar slaget ar vunnet 
+05. Vi gingo ut i strid 
+06. Fard mot Thrudvang 
+07. Solen svartnar I 
+08. Solen svartnar II 
+09. Slaget 
+10. ...ty morkret skall falla
+
+### "Urkraft" 2000, Viking Metal
+
+Mjцlner 
+Dryckeskvдde 
+Sweoland conqueror 
+Home again 
+The breaking of serenity 
+Eldfдrd 
+Ways of a parasite 
+Jord 
+The slumber of yesteryears 
+Till Valfader urgammal 
+Urkraft 
+Over the hills and far away
+
+### "Vansinnesvisor" 2002, Viking Metal
+
+1. Draugs Harg 04:01 
+2. Digerdoden 04:48
+3. Varldsspegeln 04:52 
+4. The Voyager 05:12 
+5. Еngestens Hogborg 07:03
+6. The Giant's Laughter 05:19 
+7. Vansinnesvisan 04:43 
+8. Kaos еterkomst 06:59
+
+### "Farsotstider" 2005, Viking Metal
+
+1. Far at Helvete 05:06  
+2. Jag Spеr Fordarv 04:21  
+3. Farsotstider 04:31  
+4. Host 04:46  
+5. Sjalavrak 05:11  
+6. Elddagjamning 06:45  
+7. Baldersbalet 03:47  
+8. Tiden Laker Intet 08:01  
+9. Untitled 05:47
+
+### "Hels Vite" 2008, Viking Metal
+
+1. En Sista Litania 07:10  
+2. Fran Stormens Цga 08:07  
+3. Isolation 05:54  
+4. Hels Vite 08:28  
+5. Griftefrid 05:23  
+6. Becoming The Eye 07:54  
+7. Tre Vintrar – Tva Solar 09:07 
+
+
+
+Jens Rydйn - Vocals 
+Patrik Lindgren - Guitar 
+Joakim "Jocke" Kristensson - Drums 
+Kimmy Sjolund - Bass 
+Peter Lof - Synthesizers
+
 
 ## Отношения с другими группами
 

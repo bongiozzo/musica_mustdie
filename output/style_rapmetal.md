@@ -2,13 +2,13 @@
 
 ## Rap Metal
 
-Группа: Run DMC
-Альбом: "Run DMC"
+Группа: Beastie Boys
+Альбом: "Some Old Bullshit 1981-1984"
 Стиль: Rap Metal
 Год: 1984
 
-Группа: Beastie Boys
-Альбом: "Some Old Bullshit 1981-1984"
+Группа: Run DMC
+Альбом: "Run DMC"
 Стиль: Rap Metal
 Год: 1984
 
@@ -52,18 +52,18 @@
 Стиль: Rap Metal
 Год: 1990
 
-Группа: Public Enemy
-Альбом: "Apocalypse 91...The Enemy Strykes Black"
-Стиль: Rap Metal
-Год: 1991
-
 Группа: Cypress Hill
 Альбом: "Pigs"
 Стиль: Rap Metal
 Год: 1991
 
-Группа: Ice Cube
-Альбом: "The Predator"
+Группа: Public Enemy
+Альбом: "Apocalypse 91...The Enemy Strykes Black"
+Стиль: Rap Metal
+Год: 1991
+
+Группа: Beastie Boys
+Альбом: "Check Your Head"
 Стиль: Rap Metal
 Год: 1992
 
@@ -72,23 +72,18 @@
 Стиль: Rap Metal
 Год: 1992
 
-Группа: Beastie Boys
-Альбом: "Check Your Head"
-Стиль: Rap Metal
-Год: 1992
-
 Группа: House Of Pain
 Альбом: "House Of Pain"
 Стиль: Rap Metal
 Год: 1992
 
-Группа: Rage Against The Machine
-Альбом: "Rage Against The Machine"
+Группа: Ice Cube
+Альбом: "The Predator"
 Стиль: Rap Metal
-Год: 1993
+Год: 1992
 
-Группа: Fat Joe Da Gangsta
-Альбом: "Represent"
+Группа: Clawfinger
+Альбом: "Deaf Dumb Blind"
 Стиль: Rap Metal
 Год: 1993
 
@@ -102,18 +97,8 @@
 Стиль: Rap Metal
 Год: 1993
 
-Группа: Leaders Of The New School
-Альбом: "T.I.M.E."
-Стиль: Rap Metal
-Год: 1993
-
-Группа: Rage Against The Machine
-Альбом: "Bullet In The Head"
-Стиль: Rap Metal
-Год: 1993
-
-Группа: Parental Advisory
-Альбом: "Ghetto Street Funk"
+Группа: Fat Joe Da Gangsta
+Альбом: "Represent"
 Стиль: Rap Metal
 Год: 1993
 
@@ -122,43 +107,28 @@
 Стиль: Rap Metal
 Год: 1993
 
-Группа: Clawfinger
-Альбом: "Deaf Dumb Blind"
+Группа: Leaders Of The New School
+Альбом: "T.I.M.E."
 Стиль: Rap Metal
 Год: 1993
 
-Группа: Collapsing Lungs
-Альбом: "Colorblind"
+Группа: Parental Advisory
+Альбом: "Ghetto Street Funk"
 Стиль: Rap Metal
-Год: 1994
+Год: 1993
 
-Группа: Move On
-Альбом: "...Anytime But Now"
+Группа: Rage Against The Machine
+Альбом: "Bullet In The Head"
 Стиль: Rap Metal
-Год: 1994
+Год: 1993
+
+Группа: Rage Against The Machine
+Альбом: "Rage Against The Machine"
+Стиль: Rap Metal
+Год: 1993
 
 Группа: Beastie Boys
 Альбом: "Ill Communication"
-Стиль: Rap Metal
-Год: 1994
-
-Группа: Such a Surge
-Альбом: "Against The Stream"
-Стиль: Rap Metal
-Год: 1994
-
-Группа: Dog Eat Dog
-Альбом: "All Boro Kings"
-Стиль: Rap Metal
-Год: 1994
-
-Группа: Method Man
-Альбом: "Tical"
-Стиль: Rap Metal
-Год: 1994
-
-Группа: House Of Pain
-Альбом: "Same As It Ever Was"
 Стиль: Rap Metal
 Год: 1994
 
@@ -167,23 +137,13 @@
 Стиль: Rap Metal
 Год: 1994
 
-Группа: P.O.D.
-Альбом: "Snuff The Punk"
+Группа: Collapsing Lungs
+Альбом: "Colorblind"
 Стиль: Rap Metal
 Год: 1994
 
-Группа: Paris
-Альбом: "Guerrilla Funk"
-Стиль: Rap Metal
-Год: 1994
-
-Группа: Headcrash
-Альбом: "Direction Of Correctness"
-Стиль: Rap Metal
-Год: 1994
-
-Группа: Urban Dance Squad
-Альбом: "Persona Non Grato"
+Группа: Dog Eat Dog
+Альбом: "All Boro Kings"
 Стиль: Rap Metal
 Год: 1994
 
@@ -202,28 +162,98 @@
 Стиль: Rap Metal
 Год: 1994
 
+Группа: Headcrash
+Альбом: "Direction Of Correctness"
+Стиль: Rap Metal
+Год: 1994
+
+Группа: House Of Pain
+Альбом: "Same As It Ever Was"
+Стиль: Rap Metal
+Год: 1994
+
+Группа: Method Man
+Альбом: "Tical"
+Стиль: Rap Metal
+Год: 1994
+
+Группа: Move On
+Альбом: "...Anytime But Now"
+Стиль: Rap Metal
+Год: 1994
+
+Группа: P.O.D.
+Альбом: "Snuff The Punk"
+Стиль: Rap Metal
+Год: 1994
+
+Группа: Paris
+Альбом: "Guerrilla Funk"
+Стиль: Rap Metal
+Год: 1994
+
+Группа: Such a Surge
+Альбом: "Against The Stream"
+Стиль: Rap Metal
+Год: 1994
+
+Группа: Urban Dance Squad
+Альбом: "Persona Non Grato"
+Стиль: Rap Metal
+Год: 1994
+
+Группа: 20 Fingers
+Альбом: "On The Attack And More"
+Стиль: Rap Metal
+Год: 1995
+
+Группа: 5th Ward Juvenilez
+Альбом: "Deadly Groundz"
+Стиль: Rap Metal
+Год: 1995
+
+Группа: Beastie Boys
+Альбом: "Root Down"
+Стиль: Rap Metal
+Год: 1995
+
+Группа: Clawfinger
+Альбом: "Pin Me Down"
+Стиль: Rap Metal
+Год: 1995
+
+Группа: Clawfinger
+Альбом: "Use Your Brains"
+Стиль: Rap Metal
+Год: 1995
+
+Группа: Cypress Hill
+Альбом: "III Temples Of Boom"
+Стиль: Rap Metal
+Год: 1995
+
+Группа: Das E.F.X.
+Альбом: "Hold It Down"
+Стиль: Rap Metal
+Год: 1995
+
+Группа: Dog Eat Dog
+Альбом: "Who's The King?"
+Стиль: Rap Metal
+Год: 1995
+
 Группа: Dub War
 Альбом: "Pain"
 Стиль: Rap Metal
 Год: 1995
 
-Группа: Kool G Rap
-Альбом: "4, 5, 6"
+Группа: Humungous Fungus
+Альбом: "Low-Key Poetry"
 Стиль: Rap Metal
 Год: 1995
 
 Группа: Jaildog
 Альбом: "Punkrock, Hiphop And Other Obscure Stories"
-Стиль: Rap Metal
-Год: 1995
-
-Группа: Shelter
-Альбом: "Mantra"
-Стиль: Rap Metal
-Год: 1995
-
-Группа: 20 Fingers
-Альбом: "On The Attack And More"
 Стиль: Rap Metal
 Год: 1995
 
@@ -237,58 +267,8 @@
 Стиль: Rap Metal
 Год: 1995
 
-Группа: Clawfinger
-Альбом: "Pin Me Down"
-Стиль: Rap Metal
-Год: 1995
-
-Группа: Beastie Boys
-Альбом: "Root Down"
-Стиль: Rap Metal
-Год: 1995
-
-Группа: Clawfinger
-Альбом: "Use Your Brains"
-Стиль: Rap Metal
-Год: 1995
-
-Группа: Das E.F.X.
-Альбом: "Hold It Down"
-Стиль: Rap Metal
-Год: 1995
-
-Группа: Stuck Mojo
-Альбом: "Snappin' Necks"
-Стиль: Rap Metal
-Год: 1995
-
-Группа: Mr.Ed Jumps The Gun
-Альбом: "Boom ! Boom !"
-Стиль: Rap Metal
-Год: 1995
-
-Группа: Dog Eat Dog
-Альбом: "Who's The King?"
-Стиль: Rap Metal
-Год: 1995
-
-Группа: Tic-Tac-Toe
-Альбом: "Tic-Tac-Toe"
-Стиль: Rap Metal
-Год: 1995
-
-Группа: Phase 5
-Альбом: "Morder"
-Стиль: Rap Metal
-Год: 1995
-
-Группа: 5th Ward Juvenilez
-Альбом: "Deadly Groundz"
-Стиль: Rap Metal
-Год: 1995
-
-Группа: Humungous Fungus
-Альбом: "Low-Key Poetry"
+Группа: Kool G Rap
+Альбом: "4, 5, 6"
 Стиль: Rap Metal
 Год: 1995
 
@@ -297,13 +277,13 @@
 Стиль: Rap Metal
 Год: 1995
 
-Группа: Cypress Hill
-Альбом: "III Temples Of Boom"
+Группа: Mr.Ed Jumps The Gun
+Альбом: "Boom ! Boom !"
 Стиль: Rap Metal
 Год: 1995
 
-Группа: Трэпонация Черэпа
-Альбом: "Сборник Независимого Русского Рэпа"
+Группа: Phase 5
+Альбом: "Morder"
 Стиль: Rap Metal
 Год: 1995
 
@@ -312,13 +292,38 @@
 Стиль: Rap Metal
 Год: 1995
 
+Группа: Shelter
+Альбом: "Mantra"
+Стиль: Rap Metal
+Год: 1995
+
+Группа: Stuck Mojo
+Альбом: "Snappin' Necks"
+Стиль: Rap Metal
+Год: 1995
+
 Группа: Such a Surge
 Альбом: "Under Pressure"
 Стиль: Rap Metal
 Год: 1995
 
-Группа: Rhythm Trip
-Альбом: "Bring Da Rockus"
+Группа: Tic-Tac-Toe
+Альбом: "Tic-Tac-Toe"
+Стиль: Rap Metal
+Год: 1995
+
+Группа: Трэпонация Черэпа
+Альбом: "Сборник Независимого Русского Рэпа"
+Стиль: Rap Metal
+Год: 1995
+
+Группа: Cypress Hill
+Альбом: "Unreleased & Revamped"
+Стиль: Rap Metal
+Год: 1996
+
+Группа: D.O.C., The
+Альбом: "Helter Skelter"
 Стиль: Rap Metal
 Год: 1996
 
@@ -327,23 +332,53 @@
 Стиль: Rap Metal
 Год: 1996
 
+Группа: Dub War
+Альбом: "Wrongside Of  Beautiful"
+Стиль: Rap Metal
+Год: 1996
+
+Группа: Epilepsy Bout
+Альбом: "Lost Control"
+Стиль: Rap Metal
+Год: 1996
+
+Группа: H-Blockx
+Альбом: "Discover My Soul"
+Стиль: Rap Metal
+Год: 1996
+
+Группа: Headcrash
+Альбом: "Overdose On Tradition"
+Стиль: Rap Metal
+Год: 1996
+
 Группа: Humungous Fungus
 Альбом: "Above Respect"
 Стиль: Rap Metal
 Год: 1996
 
-Группа: Кирпичи
-Альбом: "Кирпичи Тяжелы"
+Группа: Ice T
+Альбом: "Return Of The Real"
 Стиль: Rap Metal
 Год: 1996
 
-Группа: Stuck Mojo
-Альбом: "Pigwalk"
+Группа: Indian Garden
+Альбом: "You Bet It Hurts"
+Стиль: Rap Metal
+Год: 1996
+
+Группа: L.U.N.G.S.
+Альбом: "Better Class Of Losers"
 Стиль: Rap Metal
 Год: 1996
 
 Группа: Mr.Ed Jumps The Gun
 Альбом: "Heehaw!"
+Стиль: Rap Metal
+Год: 1996
+
+Группа: Nastasee
+Альбом: "Trim The Fat..."
 Стиль: Rap Metal
 Год: 1996
 
@@ -357,28 +392,13 @@
 Стиль: Rap Metal
 Год: 1996
 
-Группа: Epilepsy Bout
-Альбом: "Lost Control"
+Группа: Rage Against The Machine
+Альбом: "Evil Empire"
 Стиль: Rap Metal
 Год: 1996
 
-Группа: D.O.C., The
-Альбом: "Helter Skelter"
-Стиль: Rap Metal
-Год: 1996
-
-Группа: Ice T
-Альбом: "Return Of The Real"
-Стиль: Rap Metal
-Год: 1996
-
-Группа: Headcrash
-Альбом: "Overdose On Tradition"
-Стиль: Rap Metal
-Год: 1996
-
-Группа: Cypress Hill
-Альбом: "Unreleased & Revamped"
+Группа: Rhythm Trip
+Альбом: "Bring Da Rockus"
 Стиль: Rap Metal
 Год: 1996
 
@@ -387,43 +407,8 @@
 Стиль: Rap Metal
 Год: 1996
 
-Группа: Dub War
-Альбом: "Wrongside Of  Beautiful"
-Стиль: Rap Metal
-Год: 1996
-
-Группа: H-Blockx
-Альбом: "Discover My Soul"
-Стиль: Rap Metal
-Год: 1996
-
 Группа: Saprize
 Альбом: "28203"
-Стиль: Rap Metal
-Год: 1996
-
-Группа: Such a Surge
-Альбом: "Agoraphobic Notes"
-Стиль: Rap Metal
-Год: 1996
-
-Группа: L.U.N.G.S.
-Альбом: "Better Class Of Losers"
-Стиль: Rap Metal
-Год: 1996
-
-Группа: Rage Against The Machine
-Альбом: "Evil Empire"
-Стиль: Rap Metal
-Год: 1996
-
-Группа: Nastasee
-Альбом: "Trim The Fat..."
-Стиль: Rap Metal
-Год: 1996
-
-Группа: Indian Garden
-Альбом: "You Bet It Hurts"
 Стиль: Rap Metal
 Год: 1996
 
@@ -432,10 +417,20 @@
 Стиль: Rap Metal
 Год: 1996
 
-Группа: Clawfinger
-Альбом: "CLawfinger"
+Группа: Stuck Mojo
+Альбом: "Pigwalk"
 Стиль: Rap Metal
-Год: 1997
+Год: 1996
+
+Группа: Such a Surge
+Альбом: "Agoraphobic Notes"
+Стиль: Rap Metal
+Год: 1996
+
+Группа: Кирпичи
+Альбом: "Кирпичи Тяжелы"
+Стиль: Rap Metal
+Год: 1996
 
 Группа: (Hed) PE
 Альбом: "Hed PE"
@@ -444,6 +439,11 @@
 
 Группа: Body Count
 Альбом: "Violent Demise: The Last Days"
+Стиль: Rap Metal
+Год: 1997
+
+Группа: Clawfinger
+Альбом: "CLawfinger"
 Стиль: Rap Metal
 Год: 1997
 
@@ -467,8 +467,8 @@
 Стиль: Rap Metal
 Год: 1999
 
-Группа: Кирпичи
-Альбом: "Смерть На Рейве"
+Группа: P.O.D.
+Альбом: "The Fundamental Elements Of Southtown"
 Стиль: Rap Metal
 Год: 1999
 
@@ -477,28 +477,23 @@
 Стиль: Rap Metal
 Год: 1999
 
-Группа: P.O.D.
-Альбом: "The Fundamental Elements Of Southtown"
+Группа: Кирпичи
+Альбом: "Смерть На Рейве"
 Стиль: Rap Metal
 Год: 1999
 
-Группа: Кирпичи
-Альбом: "Капиталиzм 00"
-Стиль: Rap Metal
-Год: 2000
-
-Группа: The Flys
-Альбом: "Outta My Way"
-Стиль: Rap Metal
-Год: 2000
-
-Группа: Crazy Town
-Альбом: "Tales from the Darkside"
+Группа: (Hed) PE
+Альбом: "Broke"
 Стиль: Rap Metal
 Год: 2000
 
 Группа: Brougham
 Альбом: "Le Cock Sportif"
+Стиль: Rap Metal
+Год: 2000
+
+Группа: Crazy Town
+Альбом: "Tales from the Darkside"
 Стиль: Rap Metal
 Год: 2000
 
@@ -512,13 +507,18 @@
 Стиль: Rap Metal
 Год: 2000
 
-Группа: (Hed) PE
-Альбом: "Broke"
+Группа: The Flys
+Альбом: "Outta My Way"
 Стиль: Rap Metal
 Год: 2000
 
-Группа: Static-X
-Альбом: "Machine"
+Группа: Кирпичи
+Альбом: "Капиталиzм 00"
+Стиль: Rap Metal
+Год: 2000
+
+Группа: Clawfinger
+Альбом: "A Whole Lot Of Nothing"
 Стиль: Rap Metal
 Год: 2001
 
@@ -532,8 +532,8 @@
 Стиль: Rap Metal
 Год: 2001
 
-Группа: Clawfinger
-Альбом: "A Whole Lot Of Nothing"
+Группа: Static-X
+Альбом: "Machine"
 Стиль: Rap Metal
 Год: 2001
 
@@ -547,6 +547,11 @@
 Стиль: Rap Metal
 Год: 2002
 
+Группа: (Hed) PE
+Альбом: "Blackout"
+Стиль: Rap Metal
+Год: 2003
+
 Группа: Clawfinger
 Альбом: "Zeroes And Heroes"
 Стиль: Rap Metal
@@ -554,11 +559,6 @@
 
 Группа: Kid Rock
 Альбом: "Kid Rock"
-Стиль: Rap Metal
-Год: 2003
-
-Группа: (Hed) PE
-Альбом: "Blackout"
 Стиль: Rap Metal
 Год: 2003
 
@@ -572,11 +572,6 @@
 Стиль: Rap Metal
 Год: 2004
 
-Группа: Such a Surge
-Альбом: "Alpha"
-Стиль: Rap Metal
-Год: 2005
-
 Группа: (Hed) PE
 Альбом: "Only In Amerika"
 Стиль: Rap Metal
@@ -584,6 +579,11 @@
 
 Группа: Clawfinger
 Альбом: "Hate Yourself With Style"
+Стиль: Rap Metal
+Год: 2005
+
+Группа: Such a Surge
+Альбом: "Alpha"
 Стиль: Rap Metal
 Год: 2005
 
@@ -597,16 +597,6 @@
 Стиль: Rap Metal
 Год: 2006
 
-Группа: Кирпичи
-Альбом: "7"
-Стиль: Rap Metal
-Год: 2006
-
-Группа: P.O.D.
-Альбом: "Testify"
-Стиль: Rap Metal
-Год: 2006
-
 Группа: Body Count
 Альбом: "Murder 4 Hire"
 Стиль: Rap Metal
@@ -617,8 +607,18 @@
 Стиль: Rap Metal
 Год: 2006
 
-Группа: Linea 77
-Альбом: "Venareal 1995"
+Группа: P.O.D.
+Альбом: "Testify"
+Стиль: Rap Metal
+Год: 2006
+
+Группа: Кирпичи
+Альбом: "7"
+Стиль: Rap Metal
+Год: 2006
+
+Группа: (Hed) PE
+Альбом: "Insomnia"
 Стиль: Rap Metal
 Год: 2007
 
@@ -627,13 +627,13 @@
 Стиль: Rap Metal
 Год: 2007
 
-Группа: (Hed) PE
-Альбом: "Insomnia"
+Группа: Linea 77
+Альбом: "Venareal 1995"
 Стиль: Rap Metal
 Год: 2007
 
-Группа: Кирпичи
-Альбом: "Камни"
+Группа: (Hed) PE
+Альбом: "The D.I.Y. Guys (Live)"
 Стиль: Rap Metal
 Год: 2008
 
@@ -642,13 +642,13 @@
 Стиль: Rap Metal
 Год: 2008
 
-Группа: (Hed) PE
-Альбом: "The D.I.Y. Guys (Live)"
+Группа: Zebrahead
+Альбом: "Phoenix"
 Стиль: Rap Metal
 Год: 2008
 
-Группа: Zebrahead
-Альбом: "Phoenix"
+Группа: Кирпичи
+Альбом: "Камни"
 Стиль: Rap Metal
 Год: 2008
 
@@ -692,13 +692,13 @@
 Стиль: Rap Metal
 Год: 2015
 
-Группа: Kanzler&Sohne
-Альбом: "Durch die Wande"
+Группа: Hacktivist
+Альбом: "Outside The Box"
 Стиль: Rap Metal
 Год: 2016
 
-Группа: Hacktivist
-Альбом: "Outside The Box"
+Группа: Kanzler&Sohne
+Альбом: "Durch die Wande"
 Стиль: Rap Metal
 Год: 2016
 

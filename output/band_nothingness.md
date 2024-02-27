@@ -1,7 +1,23 @@
 # Nothingness
 
-Дискография
-"Among the Nebula" 2007, Death Metal
+
+
+## Дискография
+
+### "Among the Nebula" 2007, Death Metal
+
+1. Intro 00:50  
+2. The Last Breathing 03:02  
+3. Inflexion of Rules 02:33  
+4. Veins Rupture 04:03  
+5. Criminal Army 02:37  
+6. Fighting to Exist 03:51  
+7. Terror & Confusion 04:48  
+8. Catalepsy 03:40  
+9. Disappear in the Fire 03:51  
+10. Raw Flesh 03:56  
+11. Mirror 02:26 
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,31 @@
 # Pike
 
-Дискография
-"Lack Of Judgement" 1997, Thrash
+
+
+## Дискография
+
+### "Lack Of Judgement" 1997, Thrash
+
+1.  Greed
+2.  Do It
+3.  The True Symbol
+4.  Modernization
+5.  (Voice Of) Decay
+6.  Staring Blind
+7.  Trapped Minds
+8.  V.I.P.
+
+Produced By PIKE & Micke Nilsson.
+Engineered By Andreas Alenius.
+Recorded & Mixed At Edin Studio, Gavle, Sweden.
+
+Robert Kusen - Vocals
+Pasi Oksa - Guitars
+Mats Haxell - Drums, Percussion
+Michael Carlstrom - Bass
+
+(P)(C) 1997 BLACK MARK Productions
+
 
 ## Отношения с другими группами
 

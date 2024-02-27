@@ -1,8 +1,38 @@
 # Six Magics
 
-Дискография
-"Dead Kings Of The Unholy Valley" 2002, Power Metal
-"The Secrets of an Island" 2003, Power Metal
+Power metal from Chile
+
+## Дискография
+
+### "Dead Kings Of The Unholy Valley" 2002, Power Metal
+
+1. Elizabeth VI
+2. Storm
+3. Infinite Keeper
+4. Guardian of Fire
+5. Talisman
+6. Agony of A Hero
+7. Metal Century
+8. Fury And Hate... The Beginning
+9. Eternal Warrior
+10. Prince of Pure Light
+11. Dead Kings of The Unholy Valley
+
+
+
+Produced by six magics
+Sound engineer: Raphael Franca
+Digital edition-off line by Jose Miguel Arancibia
+General assistance by Claudio Carvajal
+Additional recordings by J.M Arancibia & Carvajal
+Recorded and mixed at procor studios
+Backline by jaime marchan
+
+
+### "The Secrets of an Island" 2003, Power Metal
+
+
+
 
 ## Отношения с другими группами
 

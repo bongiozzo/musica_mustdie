@@ -1,7 +1,13 @@
 # Doomsword
 
-Дискография
-"Let the Battle Commence" 2003, Gothic
+
+
+## Дискография
+
+### "Let the Battle Commence" 2003, Gothic
+
+
+
 
 ## Отношения с другими группами
 

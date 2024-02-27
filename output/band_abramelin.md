@@ -1,8 +1,24 @@
 # Abramelin
 
-Дискография
-"Transgression from Acheron" 1994, Deathcore
-"Abramelin" 1997, Deathcore
+
+
+## Дискография
+
+### "Transgression from Acheron" 1994, Deathcore
+
+
+
+### "Abramelin" 1997, Deathcore
+
+1. Misfortune
+2. Grave Ideals (Nekromaniac)
+3. Spiritual Justice
+4. Humble Abode
+5. Stargazer (the summoning)
+6. Stargazing (stargazer II)
+7. Depraved of afterlife
+8. Invocation
+
 
 ## Отношения с другими группами
 

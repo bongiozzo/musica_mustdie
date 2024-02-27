@@ -1,9 +1,42 @@
 # Ratt
 
-Дискография
-"Reach For The Sky" 1988, Heavy Metal
-"Detonator" 1990, Heavy Metal
-"Infestation" 2010, Heavy Metal
+
+
+## Дискография
+
+### "Reach For The Sky" 1988, Heavy Metal
+
+1. City To City
+2. I Want A Woman
+3. Way Cool Jr.
+4. Don’t Bite The Hand That Feeds
+5. I Want To Love You Tonight
+6. Chain Reaction
+7. No Surprise
+8. Bottom Line
+9. What’s It Gonna Be
+10. What I’m After
+[c]1988 Atlantic
+
+### "Detonator" 1990, Heavy Metal
+
+1. Intro To Shame
+2. Shame Shame Shame
+3. Lovin’ You Is A Dirty Job
+4. Scratch That Itch
+5. One Step Away
+6. Hard Time
+7. Heads I Win, Tails You Lose
+8. All Or Nothing
+9. Can’t Wait On Love
+10. Givin’ Yourself Away
+11. Top Secret
+[c] 1990 Atlantic
+
+### "Infestation" 2010, Heavy Metal
+
+
+
 
 ## Отношения с другими группами
 

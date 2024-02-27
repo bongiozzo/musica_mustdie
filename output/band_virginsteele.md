@@ -1,20 +1,380 @@
 # Virgin Steele
 
-Дискография
-"Virgin Steele" 1982, Heavy Metal
-"Guardians of the Flame" 1983, Heavy Metal
-"Burn the Sun" 1984, Heavy Metal
-"Noble Savage" 1985, Heavy Metal
-"Age of Consent" 1988, Heavy Metal
-"Life Among the Ruins" 1992, Heavy Metal
-"The Marriage of Heaven & Hell" 1994, Heavy Metal
-"The Marriage of Heaven & Hell, Pt. 2" 1997, Heavy Metal
-"Invictus" 1999, Heavy Metal
-"The House of Atreus, Act 1" 1999, Heavy Metal
-"Magick Fire Music EP" 2000, Heavy Metal
-"The House of Atreus Act II" 2001, Heavy Metal
-"Visions Of Eden" 2006, Heavy Metal
-"The Black Light Bacchanalia" 2010, Heavy Metal
+
+
+## Дискография
+
+### "Virgin Steele" 1982, Heavy Metal
+
+01. A) MINUET IN G MINOR
+Re-Mastered 
+01. B) DANGER ZONE
+Re-Mastered 
+02. AMERICAN GIRL 
+Re-Mastered-New Mix
+03. DEAD END KIDS 
+Re-Mastered 
+04. DRIVE ON THRU 
+Re-Mastered-New Mix
+05. LOTHLORIEN [BONUS TRACK]
+Prevously Unreleased Bonus Track from the sessions for VS "I"
+06. STILL IN LOVE WITH YOU
+Re-Mastered-New Mix
+07. CHILDREN OF THE STORM
+Re-Mastered 
+08. PICTURES ON YOU 
+Re-Mastered
+09. PULVERIZER 
+Re-Mastered 
+10. LIVING IN SIN 
+Re-Mastered-New Mix
+11. VIRGIN STEELE 
+Re-Mastered
+
+BONUS TRACKS
+12.THE LESSON 
+previously unreleased 4trk demo
+13.LIFE OF CRIME 
+previously unreleased 4trk demo
+14.BURN THE SUN 
+previously unreleased 4trk demo
+
+ADDITIONAL TRACKS
+15. AMERICAN GIRL 
+Re-Mastered-Original Mix
+16.DEAD END KIDS 
+Re-Mastered-New Mix
+17. DRIVE ON THRU 
+Re-Mastered-Original Mix
+18. LIVING IN SIN 
+Re-Mastered-Original Mix
+
+### "Guardians of the Flame" 1983, Heavy Metal
+
+01. DON'T SAY GOODBYE (TONIGHT)
+Music & Lyrics by David DeFeis
+02. BURN THE SUN 
+Music & Lyrics by Jack Starr
+03. LIFE OF CRIME 
+Music & Lyrics by Jack Starr
+04. THE REDEEMER 
+Music & Lyrics by David DeFeis & Jack Starr
+05. BIRTH THROUGH FIRE
+(Instrumental) 
+Music by David DeFeis
+06. GUARDIANS OF THE FLAME
+Music & Lyrics by David DeFeis & Jack Starr
+07. METAL CITY 
+Music & Lyrics by Jack Starr
+08. HELL OR HIGH WATER
+Music & Lyrics by Jack Starr
+09. GO ALL THE WAY 
+Music & Lyrics by Jack Starr
+10. A CRY IN THE NIGHT
+Music & Lyrics by David DeFeis
+
+BONUS TRACKS
+11. I AM THE ONE 
+Music by David DeFeis & Jack Starr, Lyrics by David DeFeis
+12. GO DOWN FIGHTING
+Music & Lyrics by Jack Starr
+13. WAIT FOR THE NIGHT
+Music & Lyrics by Jack Starr
+14. INTERVIEW 
+Music by David DeFeis.
+15. BLUES DELUXE OREGANATA
+(I MIGHT DROWN) 
+Music by David DeFeis and Edward Pursino,
+Lyrics by David DeFeis
+
+### "Burn the Sun" 1984, Heavy Metal
+
+
+
+### "Noble Savage" 1985, Heavy Metal
+
+01. We Rule The Night  
+02. I'm On Fire  
+03. Thy Kingdom Come  
+04. Image Of A Faun At Twilight  
+05. Noble Savage  
+06. Fight Tooth And Nail  
+07. The Evil In Her Eyes  
+08. Rock Me  
+09. Don`t Close Your Eyes  
+10. The Angel Of Light  
+11. Obsession (It Burns For You)  
+12. Love And Death  
+13. Where Are You Running To  
+14. Come On And Love Me  
+15. The Spirit Of Steele  
+16. The Pyre Of Kings  
+
+DAVID DEFEIS: ALL VOCALS, KEYBOARDS, 
+ORCHESTRATION, (EVERY SOUND ON "THE PYRE OF KINGS" 
+and the "OBSESSION" intro)
+EDWARD PURSINO: ALL ELECTRIC and ACOUSTIC GUITARS, 
+and (BASS GUITAR ON "LOVE AND DEATH", and "THE SPIRIT OF STEELE").
+JOEY AYVAZIAN: Drums
+JOE "O"REILLY : Bass Guitar
+
+*SONG: CO-PUBLISHED AND COPYRIGHT 1996
+BY DEFEISMUSIC BMI/GEMA and PURSINO MUSIC BMI/GEMA. 
+ALL RIGHTS RESERVED.
+RECORDED AT SONIC SOUND and STUDIO 3973, Freeport, NY.
+MIXED AT SONIC SOUND
+PRODUCED BY: DAVID DEFEIS 
+ENGINEERED BY Al Falcon, 
+Assistant engineers: Artie Ware and Jerry Comito
+BONUS TRACKS RECORDED AT MEDIA RECORDING, 
+SONIC SOUND and STUDIO 3973 
+MIXING and DIGITAL RE-MASTERING AT
+MEDIA RECORDING, Babylon, LI. N.Y. 
+PRODUCED BY DAVID DEFEIS 
+ENGINEERED BY: Steve Young 
+ART DIRECTION and DESIGN: Hugh Syme
+Front cover and V.S. "SKY" PHOTOS BY Dimo Safari
+OTHER PHOTOS BY Geoffry Thomas, Michelle Francis,
+Bruce Dworkin, Jim McKlousky 
+TOUR T-SHIRTS and STAGE BACKDROP ARTWORK BY: Larnell Anthony
+In memory of. . .Angela Pursino, Joan O'Reilly, and Stephen Frank
+For Info and Merchandise, write to:
+VIRGIN STEELE P.O.BOX 2431 North Babylon, LI, N.Y. 11703-0431
+For Best results, play at Maximum Volume. 
+"To live in Honor quoting Freedom's Name A Noble Stance Bearing a Proudful Mane 
+NOBLE SAVAGE!!! "-David D. DeFeis
+
+### "Age of Consent" 1988, Heavy Metal
+
+01. The Burning Of Rome (6:37)  
+02. Let It Roar (3:48)  
+03. Prelude Of Evening (1:12)  
+04. Lion In Winter (5:32)  
+05. Stranger At The Gate (1:28)  
+06. Perfect Man Sions (Mountains Of The Sun) (8:30)  
+07. Coils Of The Serpent (1:24)  
+08. Serpent`s Kiss (8:13)  
+09. On The Wings Of The Night (4:40)  
+10. Seventeen (4:18)  
+11. Tragedy (4:23)  
+12. Stay On Top  
+13. Chains Of Fire (4:31)  
+14. Desert Plains (4:49)  
+15. Cry Forever (4:31)  
+16. We Are Eternal (4:10) 
+
+DAVID DEFEIS: ALL VOCALS, KEYBOARDS, 
+ORCHESTRATION, KEYBOARD BASS, 
+(Everything on "COILS OF THE SERPENT"), and 
+EDWARD PURSINO: ALL ELECTRIC and 
+ACOUSTIC GUITARS, and (BASS GUITAR on "LION IN WINTER")
+JOEY AYVAZIAN: DRUMS
+ROB DEMARTINO: BASS GUITAR ON TRACKS 6, 8, 14
+FRANK GILCHRIEST: DRUMS ON TRACKS 6, 8, 14
+
+RECORDED AT: BEAR STUDIOS; SUFFERN, NY, 
+SONIC SOUND, AND STUDIO 3973, FREEPORT, NY. 
+MIXED AT: BEAR TRACKS STUDIOS.
+PRODUCED BY: DAVID DEFEIS and Chris Bubacz
+ENGINEERED BY: CHRIS BUBACZ
+ASSISTANT ENGINEER: DOUG ROSE 
+ADDITIONAL ENGINEERING BY: AL FALCON
+BONUS TRACKS RECORDED AND MIXED AT:
+THE "NEW" MEDIA RECORDING STUDIO, BELLMORE, NY. 
+PRODUCED BY: DAVID DEFEIS
+ENGINEERED BY: STEVE (I`m a genius) YOUNG
+MASTERED BY: DAVID DEFEIS and STEVE YOUNG,
+at MEDIA RECORDING and DUPLICATION SPECIALISTS. 
+ALL SONGS: PUBLISHED AND COPYRIGHT 1988 and 1997
+BY DEFEIS MUSIC BMI/GEMA. ALL RIGHTS RESERVED:
+*SONGS CO-PUBLISHED AND CO-COPYRIGHT 1988
+BY DEFEIS MUSIC BMI/GEMA AND PURSINO MUSIC BMI/GEMA. 
+ALL RIGHTS RESERVED. 
+Stay On Top: Published/Copyright by: Polygram Songs
+Desert Plains: Published/Coypright by EMI-Songs LTD. 
+COVER PAINTING BY: LARNELL ANTHONY 
+PHOTOS BY: Michelle Francis, Bruce Morgan, 
+Vivian Roegist, Geoffry Thomas, Nadine Wieber, 
+Gerrie Lemmens, Michael "Halli" Hallwachs, 
+Tina Ehmke, Thomas "Volle" Vollbrecht.
+
+### "Life Among the Ruins" 1992, Heavy Metal
+
+01. Sex Religion Machine  
+02. Love Is Pain  
+03. Jet Black  
+04. Invitation  
+05. I Dress In Black  
+06. Crown Of Thorns  
+07. Cage Of Angels  
+08. Never Believed In Good-Bye  
+09. Too Hot To Handle  
+10. Love's Gone  
+11. Wild Fire Woman  
+12. Cry Forever  
+13. Haunting The Last Hours  
+14. Last Rose Of Summer
+
+### "The Marriage of Heaven & Hell" 1994, Heavy Metal
+
+01. I Will Come For You  
+02. Weeping Of The Spirits  
+03. Blood And Gasoline  
+04. Self Crucifixion  
+05. Last Supper  
+06. Warriors Lament  
+07. Trail Of Tears  
+08. The Raven Song  
+09. Forever Will I Roam  
+10. I Wake Up Screaming  
+11. House Of Dust  
+12. Blood Of The Saints  
+13. Life Among The Ruins  
+14. The Marriage Of Heaven And Hell
+
+### "The Marriage of Heaven & Hell, Pt. 2" 1997, Heavy Metal
+
+01. A Symphony Of Steele (5:19)  
+02. Crown Of Glory (5:53)  
+03. From Chaos To Creation (1:44)  
+04. Twilight Of The Gods (4:00)  
+05. Rising Unchained (5:40)  
+06. Transfiguration (3:53)  
+07. Prometheus The Fallen One (7:42)  
+08. Emalaith (9:35)  
+09. Strawgirl (5:27)  
+10. Devil/Angel (4:08)  
+11. Unholy Water (5:30)  
+12. Victory Is Mine (4:19)  
+13. The Marriage Of Heaven And Hell Revisited (2:14)  
+
+Recorded and mixed at Media Recording (Power Shack) Babylon L.I. N.Y.
+Produced by David DeFeis
+Executive Producer Axel Thubeauville
+Engineered and co-produced by Steve Young
+
+### "Invictus" 1999, Heavy Metal
+
+01. The Blood Of Vengeance  
+02. In The Arms Of The Death God  
+03. Through Blood And Fire  
+04. Dust From The Burning (Season In Purgatory)  
+05. Amaranth  
+06. Invictus  
+07. Sword Of The Gods  
+08. God Of Our Sorrows  
+09. The Vow Of Honour  
+10. Defiance  
+11. Mind, Body, Spirit  
+12. Dominion Day  
+13. A Shadow Of Fear  
+14. A Whisper Of Death  
+15. Veni, Vidi, Vici
+
+### "The House of Atreus, Act 1" 1999, Heavy Metal
+
+  1.   Kingdom of the Fearless [The Destruction of Troy] (Defeis) - 7:41 
+  2.   Blaze of Victory (The Watchman's Song) (Defeis) - 4:01 
+  3.   Through the Ring of Fire (Defeis) - 5:26 
+  4.   Prelude in a Minor (The Voyage Home) [instrumental] (Defeis) - 1:15 
+  5.   Death Darkly Closed Their Eyes (The... (Defeis/Pursino) - 1:27 
+  6.   In Triumph or Tragedy [instrumental] (Defeis) - 1:45 
+  7.   Return of the King (Defeis/Pursino) - 4:26 
+  8.   Flames of the Black Star [The Arrows of Herakles] (Defeis/Pursino) - 6:32 
+  9.   Narcissus [instrumental] (Defeis) - 1:15 
+  10.   And Hecate Smiled (Defeis) - 2:59 
+  11.   A Song of Prophecy (Piano Solo) [instrumental] (Defeis) - 2:18 
+  12.   Child of Desolations (Defeis) - 4:50 
+  13.   G Minior Invention (Defeis) - 3:00 
+  14.   Day of Wrath [instrumental] (Defeis) - 1:53 
+  15.   Great Sword of Flame (Defeis/Pursino) - 4:31 
+  16.   The Gift of Tantalos (Defeis) - 1:58 
+  17.   Iphigenia in Hades (Defeis) - 2:03 
+  18.   The Fire God (Defeis/Pursino) - 4:44 
+  19.   Garden of Lamentation (Defeis) - 1:49 
+  20.   Agony and Shame (Defeis) - 5:18 
+  21.   Gate of Kings (Defeis) - 3:47 
+  22.   Via Sacra [instrumental] (Defeis) - 1:36 
+
+
+Steve Young  -  Engineer 
+Virgin Steele     
+David Defeis  -  Guitar, Keyboards, Vocals, Producer, Liner Notes, Orchestration, Keyboard Bass, Effects 
+Michael Sarsfield  -  Mastering 
+Kassandra  -  Vocals 
+Agamemnon  -  Vocals 
+Agisthos     
+
+
+
+### "Magick Fire Music EP" 2000, Heavy Metal
+
+01. Wings Of Vengeance  
+02. Flames Of Thy Power (From Blood The Rise)  
+03. Prometheus The Fallen One  
+04. Gate Of The Kings  
+05. Agamemnon's Last Hour (Silver Sided Death)  
+06. Great Sword Of Flame
+
+### "The House of Atreus Act II" 2001, Heavy Metal
+
+  1.   Wings of Vengeance (DeFeis) - 5:12 
+  2.   Hymn to the Gods of Night (DeFeis) - 0:46 
+  3.   Fire of Ecstasy (DeFeis/Pursino) - 5:16 
+  4.   The Oracle of Apollo (DeFeis) - 1:34 
+  5.   The Voice as Weapon (DeFeis) - 4:41 
+  6.   Moira (DeFeis) - 2:24 
+  7.   Nemiesis [instrumental] (DeFeis) - 3:28 
+  8.   The Wine of Violence (DeFeis/Pursino) - 5:39 
+  9.   A Token of My Hatred (DeFeis) - 8:24 
+  10.   Summoning the Powers (DeFeis/Pursino) - 7:58 
+  11.   Flamies of Thy Power (From Blood They... (DeFeis) - 5:38 
+  12.   Arms of Mercury (DeFeis) - 4:50 
+  13.   By the Gods (DeFeis) - 4:04 
+  14.   Areopagos [instrumental] (DeFeis) - 0:27 
+  15.   The Judgement of the Son (DeFeis) - 1:56 
+  16.   Hammer the Winds (DeFeis) - 1:31 
+  17.   Guilt or Innocence [instrumental] (DeFeis) - 1:08 
+  18.   The Fields of Aphodel (DeFeis) - 1:16 
+  19.   When the Legends Die (DeFeis) - 5:59 
+  20.   Anesmone (Withered Hopes... Forsaken) (DeFeis) - 0:55 
+  21.   The Waters of Acheron [instrumental] (DeFeis) - 1:14 
+  22.   Fantasy and Fugue in D Minor (The Death of [instrumental] (DeFeis) - 4:21 
+  23.   Resurrection Day (DeFeis/Pursino) - 10:29 
+ 
+
+Steve Young  -  Engineer, Mastering 
+Holger Drees  -  Cover Art 
+
+
+### "Visions Of Eden" 2006, Heavy Metal
+
+
+
+### "The Black Light Bacchanalia" 2010, Heavy Metal
+
+1. By The Hammer Of Zeus (And The Wrecking Ball Of Thor) 08:05 
+2. Pagan Heart 06:19 
+3. The Bread Of Wickedness 03:11
+4. In A Dream Of Fire 05:57 
+5. The Orpheus Taboo 05:20  
+6. Nepenthe 07:43
+7. Necropolis (He Answers Them With Death) 11:16
+8. To Crown Them With Halos Parts 1 & 2 07:19 
+9. The Torture's Of The Damned 03:00 
+10. The Black Light Bacchanalia (The Age That Is To Come) 09:08  
+11. Eternal Regret 08:58  
+12. When I'm Silent (Bonus Track) 06:01  
+13. Silent Sorrow (Bonus Track) 04:23  
+14. From A Whisper To A Scream - (The Biography Of Steele) – spoken by David DeFeis 30:41 
+
+
+
+David "The Lion/Young Zeus" Defeis - Vocals, Keyboards, Orchestration 
+Edward "Van Dorian" Pursino - Guitar
+Joshua "The Sorceror" Block - Bass
+Frank "The Animal/The Baron/The Kraken" Gilchriest - Drums
+
 
 ## Отношения с другими группами
 

@@ -1,6 +1,9 @@
 # Скафандр
 
-Дискография
+instrumental metal dub from St. Petersburg
+
+## Дискография
+
 
 ## Отношения с другими группами
 

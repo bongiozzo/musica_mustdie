@@ -1,7 +1,34 @@
 # Neopera
 
-Дискография
-"Destined Ways" 2014, Power Metal
+
+
+## Дискография
+
+### "Destined Ways" 2014, Power Metal
+
+1. The Marvel Of Chimera
+2. A Call To Arms
+3. Remote
+4. Destined Ways
+5. Fallingwater
+6. The Greed
+7. Error
+8. Last Pantomime
+9. Equilibria
+10. Requiem
+11. Song Of Revenge
+12. The Unspeakable
+
+
+line-up:
+Jorn Schubert (Dark Age) - Guitar
+Dirk Schlachter (Gamma Ray) - Bass
+Mikis Trimborn (Syndemic) - Guitar
+Henjo Richter (Gamma Ray) - Drums
+Mirko Gluschke - Shouts
+Nina Jiers - Soprano
+Thorsten Schuck - Baritone
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,17 @@
 # Nirnaeth
 
-Дискография
-"Thrown Athwart the Darkness" 2006, Death Metal
-"Splendour of the Abyss" 2009, Death Metal
+
+
+## Дискография
+
+### "Thrown Athwart the Darkness" 2006, Death Metal
+
+
+
+### "Splendour of the Abyss" 2009, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

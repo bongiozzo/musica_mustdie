@@ -1,6 +1,9 @@
 # Dysmenorrheic Hemorrhage
 
-Дискография
+USA cyber gory grind/noise
+
+## Дискография
+
 
 ## Отношения с другими группами
 

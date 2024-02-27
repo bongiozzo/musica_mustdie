@@ -1,8 +1,17 @@
 # Soulwound
 
-Дискография
-"Seeing Red" 2013, Thrash
-"No Peace" 2016, Thrash
+
+
+## Дискография
+
+### "Seeing Red" 2013, Thrash
+
+
+
+### "No Peace" 2016, Thrash
+
+
+
 
 ## Отношения с другими группами
 

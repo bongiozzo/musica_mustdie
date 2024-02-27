@@ -1,9 +1,21 @@
 # At War
 
-Дискография
-"Ordered To Kill" 1986, Thrash
-"Retaliatory Strike" 1988, Thrash
-"Infidel" 2009, Thrash
+
+
+## Дискография
+
+### "Ordered To Kill" 1986, Thrash
+
+
+
+### "Retaliatory Strike" 1988, Thrash
+
+
+
+### "Infidel" 2009, Thrash
+
+
+
 
 ## Отношения с другими группами
 

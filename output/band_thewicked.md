@@ -1,8 +1,25 @@
 # The Wicked
 
-Дискография
-"...For Theirs Is the Flesh" 2002, Black Metal
-"Sonic Scriptures of the Times…" 2004, Black Metal
+Finnish Neo-Black Metal
+
+## Дискография
+
+### "...For Theirs Is the Flesh" 2002, Black Metal
+
+
+
+### "Sonic Scriptures of the Times…" 2004, Black Metal
+
+01. Epithimia Gia Athanasia 
+02. Riddles without Answers & Celestial Mechanics 
+03. Phobos IV 
+04. Point-Black Avenue & Unbirthday Song - The Ultimate Ordeal 
+05. To Kill a Friend 
+06. H8 Universal 
+07. Vaptisma Tis Gnosis 
+08. Digital Satan 
+09. Lex Praedatorius - Eaters of the Weak
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,13 @@
 # Soldiers
 
-Дискография
-"End Of Days" 2007, Hardcore
+
+
+## Дискография
+
+### "End Of Days" 2007, Hardcore
+
+
+
 
 ## Отношения с другими группами
 

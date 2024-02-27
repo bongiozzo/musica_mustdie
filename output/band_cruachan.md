@@ -1,14 +1,162 @@
 # Cruachan
 
-Дискография
-"Tuatha Na Gael" 1995, Black Metal
-"The Middle Kingdom" 2000, Folk
-"Ride On (single)" 2001, Folk
-"Folk-Lore" 2002, Folk
-"Pagan" 2004, Folk
-"The Morrigan's Call" 2006, Folk
-"Blood on the Black Robe" 2011, Black Metal
-"Blood For The Blood God" 2014, Black Metal
+celtic folk-metal with black elements from Ireland
+
+## Дискография
+
+### "Tuatha Na Gael" 1995, Black Metal
+
+1. I Am Tuan
+2. The First Battle Of Moytura
+3. Maeves March
+4. Fall Of Gondolin
+5. Cuchulainn (The Hound Of Culann)
+6. Tain Bo Cuailgne
+7. To Invoke The Horned God
+8. Brian Boru
+9. To Moytura We Return
+
+All Music By CRUACHAN.
+Recorded in the Dead Of Night
+Produced By Opyros.
+Produced & Engineered By Paul Thomas.
+Mixed By Paul Thomas & CRUACHAN.
+
+Keith O Fathaigh - Electric Guitars, Mandolin, Bodhran, Vocals
+John O Fathaigh - Irish Flute, Tin Whistles, Recorder & Low Whistle
+Leon Bias - Acoustic Guitar, Bouzouki, Mandolin
+Collette Ui Fathaigh - Keyboards
+Jay O'Niell - Drums, Percussion
+
++ Niamh Hanlon - Uilleann Pipes
++ Paul Kerns - Backing Vocals On 2 + 5
+
+(P)c 1996 NAZGUL'S EYRIE Records
+
+### "The Middle Kingdom" 2000, Folk
+
+1. A Celtic Mourning.
+2. Celtica (Voice of Morrigan)
+3. The Fianna
+4. A Druids Passing
+5. Is Fuair an Chro&#1085;
+6. Cattle Raid of Cooley
+7. The Middle Kingdom
+8. &#1059; r&#1091; s&#1081; do bheatha bhaile
+9. Unstabled (Steeds of Macha)
+10. The Butterfly
+Bonus track on Digi pack:
+11. To Hell or to Connaught
+
+### "Ride On (single)" 2001, Folk
+
+1. Ride On (featuring Shane Mac Gowan on vocals)
+2. Maeves' March 2001
+3. Sauron
+4. To Hell or to Connaught
+
+### "Folk-Lore" 2002, Folk
+
+1. Bloody Sunday
+2. The Victory Reel 
+3. Death of a Gael 
+4. The Rocky Road To Dublin 
+5. Ossian's Return
+6. Spancill Hill
+7. The Children of Lir
+8. Ride On
+9. Susie Moran
+10. Exiles
+11. To Invoke The Horned God
+
+Karen Gilligan: Vocals, Percussion
+Keith Fay: Electric-Guitar, Acoustic-Guitar, Keyboard, Bouzouki,
+Mandolin, Banjo, Bodhrбn, Percussion
+John O'Fathaigh: Irish Flute, Tin Whistle, Low Whistle, Recorder
+John Clohessy: Bass, Backing Vocals
+Joe Farrell: Drums, Percussion
+
+Guests:
+Shane Mac Gowan: Vocals
+Diane O'Keefe: Cello
+Liz Keller: Fiddle/Violin
+Louise Fay: Speaking part - Ossian's Return
+
+(p) 2002 Hammerheart / Fono
+
+### "Pagan" 2004, Folk
+
+01. Michael Collins
+02. Pagan
+03. The Gael
+04. Ard Ri Na Heireann
+05. The March To Cluain Tairbh
+06. Viking Slayer
+07. 1014 a.d.
+08. Some Say The Devil Is Dead
+09. Summoning Of The Sidhe
+10. A Thousand Years
+11. Lament For He Wild Geese
+12. Erinsong
+13. The Fall Of Gondolin
+
+Karen Gilligan: Vocals, Percussion.
+Keith Fay: Vocals, Electric Guitar, Acoustic
+Guitar, Keyboards, Bouzouki, Mandolin, Banjo,
+Bodhran, Percussion
+John Clohessy: Bass, Backing Vocals.
+Joe Farrell: Drums, Percussion.
+
+Guests:
+John O`Fathaigh - irish flutes, tin whistle,
+uillean pipes, low whistle, Recorder Bombarde,
+Live Keyboards,
+Chris Kavanagh: vocals, (On "Some say*", Chris
+appears courtesy otThe Luke Kelly Tribute Band)
+Diane O' Keefe: Cello.
+Tommy Martin: Uilleann Pipes.
+Michelle O Brien: Fiddle
+
+Produced and engineered by Al Cowen, Mixed by Al
+Cowen and Cruachan. Recorded and mixed in Sonic
+Studios Dublin 2003.
+Cover artwork and additional artwork by John Howe.
+Notes by Keith Fay.
+Transport by Eddie Farrell PLC.
+
+### "The Morrigan's Call" 2006, Folk
+
+01. Shelob
+02. The Brown Bull of Cooley 
+03. Coffin Ships 
+04. The Great Hunger 
+05. The Old Woman in the Woods 
+06. Ungoliant 
+07. The Morrigan's Call 
+08. Teir abhail Ru 
+09. Wolfe Tone 
+10. The Very Wild Rover 
+11. CuChulainn 
+12. Diarmuid and Grainne
+
+### "Blood on the Black Robe" 2011, Black Metal
+
+1. To War  00:55    
+2. I Am Warrior  05:19    
+3. The Column  07:12    
+4. Thy Kingdom Gone  04:26    
+5. An Bean Sidhe  05:50    
+6. Blood on the Black Robe  06:39    
+7. Primeval Odium  07:18    
+8. The Voyage of Bran  04:20    
+9. Brian Boru’s March  03:29    
+10. Pagan Hate  05:12    
+11. The Nine Year War  07:21
+
+### "Blood For The Blood God" 2014, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

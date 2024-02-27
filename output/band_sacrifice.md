@@ -1,10 +1,69 @@
 # Sacrifice
 
-Дискография
-"Torment In Fire" 1985, Thrash
-"Forward To Termination" 1987, Thrash
-"Soldiers of Misfortune" 1991, Thrash
-"Apocalypse Inside" 1993, Thrash
+
+
+## Дискография
+
+### "Torment In Fire" 1985, Thrash
+
+1. The Awakening 01:35  
+2. Sacrifice 03:10
+3. Turn in Your Grave 03:55
+4. Homicidal Breath 02:54 
+5. Warrior of Death 03:07  
+6. Infernal Visions 02:35 
+7. Burned at the Stake 04:44
+8. Necronomicon 02:37 
+9. The Exorcism 02:55  
+10. Possession 01:52
+11. Decapitation 01:35
+12. Beyond Death 05:33 
+
+### "Forward To Termination" 1987, Thrash
+
+ Side One:
+1. Forward To Termination 4.26
+2. Terror Strikes 4.28
+3. Re-Animation 4.12
+4. Afterlife 4.12
+5. Flames Of Armageddon 8.27
+ Side Two:
+1. The Entity 6.22
+2. Forever Enslaved 3.08
+3. Cyanide 3.37
+4. Light Of The End 5.27
+5. Pyrokinesis 2.25
+
+Joe Rico - Guitars
+Gus Pynn - Drums
+Scott Watts - Bass
+Rob Urbinati - Guitars & Vocals
+
+(p)&(c) 1987 ROADRUNNER Records
+
+### "Soldiers of Misfortune" 1991, Thrash
+
+1. As The World Burns 04:35 
+2. Soldiers Of Misfortune 05:38
+3. In Defiance 04:10 
+4. Existence Within Eternity 04:00
+5. Pawn Of Prophecy 03:24
+6. Lost Through Time 04:06
+7. A Storm In The Silence 04:08 
+8. Truth (After The Rain) 10:20 
+
+### "Apocalypse Inside" 1993, Thrash
+
+1. My Eyes See Red 02:24
+2. Apocalypse Inside 03:41 
+3. Flesh 03:10
+4. Salvation 05:05 
+5. Beneath What You See 05:25 
+6. Incarcerated 05:38
+7. Ruins Of The Old 05:01
+8. The Lost 04:57
+9. Freedom Slave 04:03 
+
 
 ## Отношения с другими группами
 

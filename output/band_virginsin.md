@@ -1,7 +1,22 @@
 # Virgin Sin
 
-Дискография
-"Brotherhood Of Freaks" 2008, Thrash
+
+
+## Дискография
+
+### "Brotherhood Of Freaks" 2008, Thrash
+
+1. Brotherhood of Freaks 04:57  
+2. Eat Your Enemies 05:02  
+3. Tarantula 05:12  
+4. Deep Red 04:49  
+5. Scars 04:48  
+6. Whoregasm 04:11  
+7. Eternal Nightmare 05:49  
+8. Sane Inside Insanity 04:40  
+9. Face the Blade 03:19  
+10. Skinned Alive 05:28 
+
 
 ## Отношения с другими группами
 

@@ -1,13 +1,103 @@
 # Saviour Machine
 
-Дискография
-"Saviour Machine" 1995, Doom
-"Carnival Of Souls" 1996, Doom
-"Legend, Part I" 1997, Doom
-"Legend Part II" 1998, Doom
-"Behold A Pale Horse (CD Single)" 1998, Doom
-"Behold The Mask (Shaped Picture Disc)" 1999, Doom
-"Legend Part III: I" 2001, Doom
+
+
+## Дискография
+
+### "Saviour Machine" 1995, Doom
+
+
+
+### "Carnival Of Souls" 1996, Doom
+
+ 1. Carnival Of Souls (6.10)
+ 2. Legion (4.40)
+ 3. The Wicked Window (6.35)
+ 4. Son Of The Rain (5.25)
+ 5. Killer (8.05)
+ 6. A World Alone (6.25)
+ 7. Jesus Christ (7.00)
+
+ All songs written by SAVIOUR MACHINE
+ Produced by Terry Taylor
+ Co-Produced and arranged by Eric Clayton
+Engineered  by Drew  Aldridge
+Recorded at The Green Room and The Mixing Lab
+
+Eric Clayton - Vocals
+Jeff Clayton - Guitars
+Dean Forsyth - Bass
+Samuel West - Drums
+
+Additional Musicians:
+Rob Watson - Piano, Keyboards
+
+(p)(c) 1996 MASSACRE Records
+
+### "Legend, Part I" 1997, Doom
+
+1.  Overture 
+2.  A Prophecy 
+3.  I Am
+4.  Legend
+5.  The Lamb
+6.  The Eyes Of The Storm
+7.  The Birth Pangs
+8.  The Woman 
+9.  The Night
+10.The Sword Of Islam
+11.606: Kings Of The North
+12.The Invasion Of Israel
+13.World War III - The Final Conflict I
+14.Ten - The Empire
+15.Legend 
+16.The Beast
+17.Antichrist
+
+Conceived, Produced and Arranged by Eric Clayton and SM.
+Recorded and Mixed at Moonsong Studio by Eric Clayton and Bob Moon.
+
+Eric Clayton - Vocals
+Jeff Clayton - Guitars, Treatments
+Charles Cooper - Bass
+Jayson Heart - Drums, Percussion
+Nathan Van Hala - Piano, Keyboards, Programming
+
+(P)(C) 1997 MASSACRE Records // MASS 177
+
+### "Legend Part II" 1998, Doom
+
+
+
+### "Behold A Pale Horse (CD Single)" 1998, Doom
+
+
+
+### "Behold The Mask (Shaped Picture Disc)" 1999, Doom
+
+
+
+### "Legend Part III: I" 2001, Doom
+
+01. Twelve-hundred-sixty days 
+02. Revelation 13 
+03. Legend III.I 
+04. The ancient serpent 
+05. Abomination of desolation 
+06. Image of the beast 
+07. Antichrist III: The king of Babylon 
+08. The final holocaust 
+09. Two witnesses 
+10. Three angels 
+11. Four trumpets 
+12. The locusts 
+13. The sixth judgement 
+14. The dead sea 
+15. Rivers of blood 
+16. The plague and the darkness 
+17. The fall of Babylon 
+18. The end of the age
+
 
 ## Отношения с другими группами
 

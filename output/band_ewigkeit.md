@@ -1,11 +1,78 @@
 # Ewigkeit
 
-Дискография
-"Battle Furies" 1997, Metal
-"Starscape" 1999, Metal
-"Land Of Fog" 2003, Metal
-"Radio Ixtlan" 2004, Metal
-"Conspiritus" 2005, Metal
+epic pagan metal from England
+
+## Дискография
+
+### "Battle Furies" 1997, Metal
+
+1. Jewel Of My Empire
+2. Wonder Of The Cosmos
+3. Christenom Falls
+4. Dragons Burning
+5. Kingdom In The Clouds (My Astral Journey)
+6. Time Reborn
+7. Gods Of Ages Awakened
+8. "O Elbereth"
+9. Keshara Arise
+10. As Shadows Dance...
+
+### "Starscape" 1999, Metal
+
+1.Point Of Origin 
+2.Unveiling The Mystery 
+3.The Legend Of Keshara 
+4.The Return Of Planet "X" 
+5.Deviant 
+6.Lightspeed Evolution 
+7.Starscape 
+8.Capsule 
+9.Birth Of Hours 
+10.Space Symphony 
+11.Dragons Burning
+
+### "Land Of Fog" 2003, Metal
+
+1. Tired face
+2. Super sonic blue thunder
+3. Not all there 
+4. The only way 
+5. Interlude 
+6. Land of fog 
+7. Yesterday's rain 
+8. The doomsday machine 
+9. Escapologies 
+
+
+All arrangements, compositions, music and vocalisations on this recording are written, performed and recorded by J. Fogarty.
+
+
+
+### "Radio Ixtlan" 2004, Metal
+
+1. About Time
+2. ESC
+3. Powerplant
+4. Journey To Ixtlan
+5. Live At Palenque 2012
+6. Conquer The Fear
+7. Platonic Verses
+8. Strange Volk
+9. The New Way
+
+### "Conspiritus" 2005, Metal
+
+1. Intro - The Hypothesis
+2. It's Not Reality
+3. Square Sunrise
+4. The Nightmare Institution
+5. Far Away From Heaven
+6. Transcend the Senses
+7. The Thought Police
+8. How to Conquer The World (Live At The bohemian  grove)
+9. Thoreality
+10. Conspiritus
+
 
 ## Отношения с другими группами
 

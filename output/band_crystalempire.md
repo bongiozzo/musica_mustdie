@@ -1,7 +1,17 @@
 # Crystal Empire
 
-Дискография
-"Lord Of Illusions" 2005, Power Metal
+
+
+## Дискография
+
+### "Lord Of Illusions" 2005, Power Metal
+
+01 Crystal Empire
+02 Gladiators
+03 Lord Of Illusions
+04 Raise Your Flag
+05 The Masquerade Ball
+
 
 ## Отношения с другими группами
 

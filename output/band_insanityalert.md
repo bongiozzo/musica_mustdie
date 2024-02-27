@@ -1,8 +1,22 @@
 # Insanity Alert
 
-Дискография
-"Second Opinion (EP)" 2013, Crossover
-"Insanity Alert" 2014, Crossover
+
+
+## Дискография
+
+### "Second Opinion (EP)" 2013, Crossover
+
+1. Strength Of The Insane 01:21
+2. Slimer's Revenge 01:32
+3. Arac Attack 01:55	
+4. The Infected Zone 01:32
+5. Twist-Off Betrayal 00:49
+6. March Of The Mentally Ill 02:03
+
+### "Insanity Alert" 2014, Crossover
+
+
+
 
 ## Отношения с другими группами
 

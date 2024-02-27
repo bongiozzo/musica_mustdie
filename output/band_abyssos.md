@@ -1,9 +1,37 @@
 # Abyssos
 
-Дискография
-"Wherever the Withches Might Fly (demo)" 1996, Black Metal
-"Together We Summon the Dark" 1997, Black Metal
-"Fhinsthanian Nightbreed" 1999, Black Metal
+Evil but Melodic Black Metal
+
+## Дискография
+
+### "Wherever the Withches Might Fly (demo)" 1996, Black Metal
+
+
+
+### "Together We Summon the Dark" 1997, Black Metal
+
+1. We Hail Thy Entrance
+2. Misty Autumn Dance
+3. Banquet in the Dark -Black Friday
+4. Lord of the Sombre Reborn
+5. In Fear They Left the World Unseen
+6. As the Sky Turns Black Again -Love Eternal
+7. Together We Summon the Dark
+8. I've Watched the Moon Grow Old
+9. Through the Gloom and Into the Fire
+
+### "Fhinsthanian Nightbreed" 1999, Black Metal
+
+1. Masquerade in the Flames
+2. Finally I Kissed the Pale Horse
+3. Where Angels Fear to Tread
+4. She Only Flies at Night
+5. Worthless for Sale?
+6. Fhinsthanian Nightbreed
+7. Queen Covered in Black
+8. Wherever the Witches Might Fly
+9. Firebreathing Whore
+
 
 ## Отношения с другими группами
 

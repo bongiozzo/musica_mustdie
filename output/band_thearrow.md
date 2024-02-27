@@ -1,9 +1,49 @@
 # The Arrow
 
-Дискография
-"Children of Gods" 2001, Power Metal
-"Tribute To BLIND GUARDIAN" 2005, Power Metal
-"Хранитель душ" 2006, Power Metal
+
+
+## Дискография
+
+### "Children of Gods" 2001, Power Metal
+
+1. Beyond the Eternity
+2. Metal in the Air
+3. Children of Gods 
+4. Mystery 
+5. Jewel Road
+6. The Final Gate
+7. Power of Illusions (bass solo)
+8. Lady Nite
++ Children of Gods (video live version)
+
+### "Tribute To BLIND GUARDIAN" 2005, Power Metal
+
+
+
+### "Хранитель душ" 2006, Power Metal
+
+1. Дорога Теней /пролог/ 
+2. Прыгай За Край
+3. Разруби печать
+4. Блик Огня
+5. Время Жить
+6. Хранитель Душ
+7. Жизни Лабиринт 
+8. Круг Отражений 
+9. Зная Исход 
+10. Give Me Your Hand 
+
+Альбом был записан на Black Cat Records в составе: 
+
+Алекс Кэп - вокал
+Павел Блищенко - клавишные, бэк-вокал
+Юрий Бобырев - гитара
+Кирилл Емельянов - гитара
+Александр «Змей» Цветков - бас-гитара
+Алексей Быков - барабаны 
+
+Сведение альбома прошло под руководством Евгения Виноградова в "Дай-рекордс"
+
 
 ## Отношения с другими группами
 

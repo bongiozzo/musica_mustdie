@@ -1,23 +1,257 @@
 # Krokus
 
-Дискография
-"Painkiller" 1978, Heavy Metal
-"Pay It in Metal" 1978, Heavy Metal
-"Metal Rendez-Vous" 1980, Heavy Metal
-"Hardware" 1981, Heavy Metal
-"One Vice at a Time" 1982, Heavy Metal
-"Headhunter" 1983, Heavy Metal
-"The Blitz" 1984, Heavy Metal
-"Change of Address" 1985, Heavy Metal
-"Heart Attack" 1987, Heavy Metal
-"Stampede" 1991, Heavy Metal
-"Blues for the Red Sun" 1992, Heavy Metal
-"To Rock or Not To Be" 1995, Heavy Metal
-"Round 13" 1999, Heavy Metal
-"Rock The Block" 2003, Heavy Metal
-"Fire and Gasoline: Live!" 2004, Heavy Metal
-"Hellraiser" 2006, Heavy Metal
-"Hoodoo" 2010, Heavy Metal
+
+
+## Дискография
+
+### "Painkiller" 1978, Heavy Metal
+
+
+
+### "Pay It in Metal" 1978, Heavy Metal
+
+
+
+### "Metal Rendez-Vous" 1980, Heavy Metal
+
+ 
+   1.   Heatstrokes 
+   2.   Bedside Radio 
+   3.   Come On 
+   4.   Streamer 
+   5.   Shy Kid 
+   6.   Tokyo Nights 
+   7.   Lady Double Dealer 
+   8.   Fire 
+   9.   No Way 
+   10.   Back-Seat Rock & Roll 
+
+
+Freddie Steady Wild Country  -  Drums, Vocals 
+Tommy Keiser  -  Guitar, Vocals 
+Martin Pearson  -  Producer 
+Marc Storace  -  Vocals 
+Fernando Von Arb  -  Guitar, Vocals 
+Chris Von Rohr  -  Bass, Vocals 
+
+
+### "Hardware" 1981, Heavy Metal
+
+   1.   Celebration - 3:24 
+   2.   Easy Rocker - 5:27 
+   3.   Smelly Nelly - 3:38 
+   4.   Mr. 69 - 3:01 
+   5.   She's Got Everything (VonArb/VonRohr) - 3:57 
+   6.   Burning Bones - 3:34 
+   7.   Rock City - 4:43 
+   8.   Winning Man - 5:33 
+   9.   Mad Racket - 4:00 
+
+
+ 
+Krokus  -  Producer 
+Freddie Steady Wild Country  -  Drums, Vocals 
+Marc Storace  -  Vocals 
+Fernando Von Arb  -  Guitar, Vocals 
+Chris Von Rohr  -  Bass, Vocals 
+
+
+
+### "One Vice at a Time" 1982, Heavy Metal
+
+   1.   Long Stick Goes Boom (Storace/Von Arb/Von Rohr) - 5:12 
+   2.   Bab Boys, Rag Dolls (Storace/Von Arb/Von Rohr) - 3:48 
+   3.   Playin' the Outlaw (Steady/Storace/Von Arb/Von Rohr) - 3:59 
+   4.   To the Top (Steady/Storace/Von Arb/Von Rohr) - 4:21 
+   5.   Down the Drain (Von Arb/Von Rohr) - 3:15 
+   6.   American Woman (Bachman/Cummings/Kale/Peterson) - 3:37 
+   7.   I'm on the Run (Storace/Von Arb/Von Rohr) - 3:43 
+   8.   Save Me (Storace/Von Arb/Von Rohr) - 4:27 
+   9.   Rock'n'roll (Von Arb/Von Rohr) - 4:07 
+
+
+Krokus  -  Producer 
+Freddie Steady Wild Country  -  Drums, Vocals 
+Mark Kohler  -  Guitar, Guitar (Rhythm) 
+Tony Platt  -  Producer 
+Marc Storace  -  Vocals 
+Fernando Von Arb  -  Guitar, Arranger, Vocals 
+Chris Von Rohr  -  Bass, Arranger, Vocals 
+Bari Sage  -  Assistant Engineer 
+
+
+
+### "Headhunter" 1983, Heavy Metal
+
+   1.   Headhunter (Rohr/Stone/Stone/Storace/Storace/Von Arb/Von Rohr) - 4:30 
+   2.   Eat the Rich (Rohr/Stone/Stone/Storace/Storace/Von Arb/Von Rohr) - 4:14 
+   3.   Screamming in the Night (Kohler/Kohler/Kohler/Rohr/Stone/Stone/Storace/Storace/Von Arb/Von Rohr) - 6:28 
+   4.   Ready to Burn (KohlerMark/Kohler/Kohler/Rohr/Stone/Stone/Storace/Storace/Von Arb/Von Rohr) - 3:55 
+   5.   Night Wolf (Rohr/Stone/Stone/Storace/Storace/Von Arb/Von Rohr) - 4:12 
+   6.   Stayed Awake All Night (Bachman) - 4:44 
+   7.   Stand and Be Counted (Rohr/Stone/Stone/Storace/Storace/Von Arb/Von Rohr) - 4:08 
+   8.   White Din (Rohr/Von Arb/Von Rohr) - 1:45 
+   9.   Russian Winter (Rohr/Stone/Stone/Storace/Storace/Von Arb/Von Rohr) - 3:26 
+
+
+
+Krokus  -  Design 
+Jimi Jamison  -  Vocals (bckgr) 
+Freddie Steady Wild Country  -  Drums, Vocals 
+Tom (Colonel) Allom  -  Producer 
+Tom Bartlett  -  Back Cover 
+Andy de Ganahl  -  Engineer 
+Rob Halford  -  Vocals (bckgr) 
+Mark Kohler  -  Guitar, Guitar (Rhythm) 
+Steve Pace  -  Cymbals, Drums 
+Butch Stone  -  Direction 
+Marc Storace  -  Vocals, Voices 
+Fernando Von Arb  -  Guitar, Arranger, Vocals 
+Chris Von Rohr  -  Bass, Percussion, Arranger, Vocals 
+Bob Ketchum  -  Special Effects 
+Howard Fritzson  -  Art Direction 
+Donn Davenport  -  Art Direction 
+John Lappen  -  Executive Reissue Producer 
+Steve Joester  -  Cover Photo 
+
+
+
+### "The Blitz" 1984, Heavy Metal
+
+   1.   Midnite Maniac (Storace/Storace/Von Arb) - 4:03 
+   2.   Out of Control (Storace/Storace/Von Arb) - 4:16 
+   3.   Boys Nite Out (Adams/Storace/Storace/Vallance/Vallance/Von Arb) - 3:39 
+   4.   Our Love (Storace/Storace/Von Arb) - 4:42 
+   5.   Out to Lunch (Storace/Von Arb) - 4:22 
+   6.   Ballroom Blitz (Chapman/Chinn) - 4:03 
+   7.   Rock the Nation (Storace/Storace/Von Arb) - 4:46 
+   8.   Hot Stuff (Storace/Storace/Von Arb) - 4:33 
+   9.   Ready to Rock (Storace/Storace/Von Arb) - 4:31 
+
+
+
+ 
+Jimi Jamison  -  Vocals (bckgr) 
+Ray Brown  -  Clothing/Wardrobe, Wardrobe 
+Bruce Fairbairn  -  Producer 
+Michael Fraser  -  Engineer, Assistant Engineer 
+Doug Johnson  -  Keyboards 
+John Kalodner     
+Jeff Klaven  -  Drums 
+Mark Kohler  -  Bass 
+George Marino  -  Mastering 
+Bob Rock  -  Engineer 
+Marc Storace  -  Vocals 
+Fernando Von Arb  -  Guitar, Guitar (Rhythm) 
+Phil Burnett  -  Engineer, Mixing 
+Bob Ketchum  -  Engineer, Pre-Production 
+Steve Prezant  -  Photography 
+John Lappen  -  Executive Reissue Producer 
+
+
+
+### "Change of Address" 1985, Heavy Metal
+
+   1.   Burning up the Night 
+   2.   School's Out (Bruce/Cooper) 
+   3.   Let This Love Begin 
+   4.   Now (All Through the Night) 
+   5.   Hard Luck Hero 
+   6.   Say Goodbye 
+   7.   Long Way from Home 
+   8.   Hot Shot City 
+   9.   World on Fire 
+
+
+Freddie Steady Wild Country  -  Drums, Vocals 
+Duane Baron  -  Engineer 
+Tommy Keiser  -  Guitar, Vocals 
+Juerg Naegeli  -  Keyboards, Vocals 
+Marc Storace  -  Vocals 
+Fernando Von Arb  -  Guitar, Vocals, Producer 
+Chris Von Rohr  -  Bass, Vocals 
+Tom Werman  -  Producer 
+
+
+
+### "Heart Attack" 1987, Heavy Metal
+
+   1.   Everybody Rocks 
+   2.   Wild Love 
+   3.   Let It Go 
+   4.   Winning Man 
+   5.   Axx Attack 
+   6.   Rock and Tonight 
+   7.   Flyin' High 
+   8.   Shoot Down the Night 
+   9.   Bad, Bad Girl 
+   10.   Speed Up 
+
+
+Dani Crivelli  -  Drums 
+Mark Kohler  -  Guitar 
+Juerg Naegeli  -  Engineer 
+Marc Storace  -  Vocals 
+Fernando Von Arb  -  Guitar, Producer 
+Chris Von Rohr  -  Percussion, Guitar (Bass), Producer 
+Michael Wagener  -  Mixing 
+
+
+
+### "Stampede" 1991, Heavy Metal
+
+
+
+### "Blues for the Red Sun" 1992, Heavy Metal
+
+
+
+### "To Rock or Not To Be" 1995, Heavy Metal
+
+   1.   Lion Heart (Naegeli/Storace/VonArb) - 5:14 
+   2.   Flying Through the Night (Maurer/Naegeli/Storace/VonArb) - 3:55 
+   3.   To Rock or Not to Be (Naegeli/Storace/VonArb) - 3:23 
+   4.   In the Dead of Night (Maurer/Storace/VonArb) - 5:06 
+   5.   Natural Blonde (Maurer/Naegeli/Storace/VonArb) - 5:12 
+   6.   Doggy Style (Kohler/Maurer/Naegeli/Steady/Storace/VonArb) - 4:02 
+   7.   Talking Like a Shotgun (Kohler/Maurer/Naegeli/Steady/Storace/VonArb) - 4:05 
+   8.   Soul to Soul (Maurer/Naegeli/Storace/VonArb) - 4:54 
+   9.   Stop the World (Naegeli/VonArb) - 5:13 
+   10.   You Ain't Go the Guts to Do It (Kohler/Maurer/Naegeli/Storace/VonArb) - 3:04 
+   11.   Wagon Gone (Kohler/Maurer/Naegeli/Storace) - 5:01 
+   12.   Stormy Nights (Kohler/Maurer/Naegeli/Storace/VonArb) - 5:11 
+
+
+
+Mark Kohler  -  Guitar 
+Marc Storace  -  Vocals 
+Fernando Von Arb  -  Guitar, Producer 
+Ian Cooper  -  Mastering 
+Paiste  -  Cymbals 
+Agner  -  Drum Sticks 
+
+
+
+### "Round 13" 1999, Heavy Metal
+
+
+
+### "Rock The Block" 2003, Heavy Metal
+
+
+
+### "Fire and Gasoline: Live!" 2004, Heavy Metal
+
+
+
+### "Hellraiser" 2006, Heavy Metal
+
+
+
+### "Hoodoo" 2010, Heavy Metal
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,10 +1,82 @@
 # Concerto Moon
 
-Дискография
-"Fragments Of The Moon" 1997, Heavy Metal
-"From Father To Son" 1998, Power Metal
-"Rain Forest" 2000, Power Metal
-"The End Of The Beginning - Live In Tokyo" 2001, Power Metal
+
+
+## Дискография
+
+### "Fragments Of The Moon" 1997, Heavy Metal
+
+1. Alone In Paradise
+2. Run To The Sky
+3. Cry For Freedom
+4. Holy Child
+5. Hold On (to feeling)
+6. Midwinter Night
+7. Over The Century
+8. Take You To The Moon
+9. The Last Betting (live)
+10. One And Only (live)
+11. Into The Fire (live)
+
+### "From Father To Son" 1998, Power Metal
+
+1. Dream Chaser
+2. Surrender
+3. Moonlight After The Rain
+4. Inside Story
+5. One And Only
+6. From Father To Son
+7. Somewhere In Time
+8. The Last Betting
+9. Into The Fire
+10. Change My Heart
+11. Run To The Sky (live)
+12. Alone In Paradise (live)
+
+### "Rain Forest" 2000, Power Metal
+
+1. Prologue
+2. Time To Die
+3. Lonely Last Journey
+4. Fight To The Death
+5. Half Way To The Sun
+6. Rain Forest
+7. Unstill Night
+8. Live On The Memory
+9. Victim Of Desire
+10. Picture Of An Old Man
+11. Break It Down
+12. Time To Die (extended version)
+13. King Of The Judas
+14. Walz For Masquerade
+
+Produced by:
+
+Norifumi Shima & Yasuhide Okuyama
+
+
+
+
+### "The End Of The Beginning - Live In Tokyo" 2001, Power Metal
+
+1. Time To Die
+2. Fight To The Death
+3. King Of The Judas
+4. Lonely Last Journey
+5. Victim Of Desire
+6. Alone In Paradise
+7. From Father To Son
+8. Take You To The Moon
+9. Surrender
+10. Unstill Night
+11. When The Moon Cries
+12. Norman Island
+13. When The Moon Cries
+
+
+
+Special double CD set includes a 53 minute live video as a CD-Rom track
+
 
 ## Отношения с другими группами
 

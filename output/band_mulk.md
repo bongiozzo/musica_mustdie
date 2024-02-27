@@ -1,7 +1,40 @@
 # Mulk
 
-Дискография
-"Putrilogie" 2009, Grindcore
+
+
+## Дискография
+
+### "Putrilogie" 2009, Grindcore
+
+Putr&fact I
+
+1. BBW 
+2. Tomy 
+3. Sulfat Primat 
+4. Afid Fulfurik 
+5. Ork 
+6. Underteen 
+7. AF 
+
+Putr&fact II
+
+8. Dechet Toxic 
+9. Apoplexie 
+10. Puree De Vache 
+11. Monskr 
+12. Viandal 
+13. Gravity 
+
+Putr&fact III
+
+14. Bruit 
+15. Patee De Chat 
+16. Corain Cochon 
+17. R-3 Phaz 
+18. Trou De Viande 
+19. Porc Fight 
+20. WBB 
+
 
 ## Отношения с другими группами
 

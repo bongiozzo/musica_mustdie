@@ -1,7 +1,33 @@
 # Mythos
 
-Дискография
-"Pain Amplifier" 1995, Black Metal
+
+
+## Дискография
+
+### "Pain Amplifier" 1995, Black Metal
+
+1. In The Beginning... (Of The Intro)
+2. Hung On The Wings
+3. Unreal Moon
+4. In Veiled Language
+5. The Pain Amplifier
+6. A Song By The Way
+7. Verses In The Fire
+8. The Last Orgy
+9. Strange Things Happen At Night
+10. ... The End (Of The Outro)
+
+ Miko Laurilo - Vocals, Bass
+ Jokka Valppu - Guitars, Back. Vocals
+ Tony Pekkala - Guitars
+ Teemu Hautaniemi - Drums, Keyboards
+
+All Music & Lyrics Written By MYTHOS
+Produced By Ludo Lejeune
+Recorded & Mixed By Ahti Kortelainen At Tico-Tico, Kemi, Finland, 1994
+
+(p)&(c) 1995 EVIL OMEN Records
+
 
 ## Отношения с другими группами
 

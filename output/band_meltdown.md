@@ -1,8 +1,34 @@
 # Meltdown
 
-Дискография
-"Inner Enemy" 2000, Death Metal
-"The Quietus" 2008, Death Metal
+
+
+## Дискография
+
+### "Inner Enemy" 2000, Death Metal
+
+1. Cursed paradise		 
+2. Wasted Years (Iron Maiden Cover)	
+3. Dusk rites		 
+4. Crawling fate		 
+5. Beneath the same blood		 
+6. Dying in the dreams		 
+7. Silent forest
+
+### "The Quietus" 2008, Death Metal
+
+1. Lylusay Tateros Volt Sids Lucifer	 
+2. Serpent&#180;s Aeon	 
+3. Black Flame	 
+4. Vast Lands	 
+5. Paths Of The Unlight	 
+6. Cycle Of Suffering	 
+7. Destroyer Of Light	 
+8. Colossus 
+9. Throns Of Nocturnal Ornament 
+10. Tower Of Umbra	 
+11. The Quietus	 
+12. Metal Meltdown (Judas Priest Cover)
+
 
 ## Отношения с другими группами
 

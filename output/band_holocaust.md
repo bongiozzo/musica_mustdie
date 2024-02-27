@@ -1,12 +1,66 @@
 # Holocaust
 
-Дискография
-"The Nightcomers" 1981, Heavy Metal
-"Live (Hot Curry and Wine)" 1983, Heavy Metal
-"No Mans Land" 1984, Heavy Metal
-"Spirits Fly" 1996, Heavy Metal
-"No Escape" 1998, Heavy Metal
-"The Courage to Be" 2001, Heavy Metal
+(legend of New Wave of British Heavy Metal)
+
+## Дискография
+
+### "The Nightcomers" 1981, Heavy Metal
+
+  1.   Smokin' Valves (Mortimer) - 3:41 
+  2.   Death or Glory (Mortimer) - 3:36 
+  3.   Come on Back (Begg/Dudley/Mortimer) - 3:05 
+  4.   Mavrock (Mortimer) - 5:23 
+  5.   It Don't Matter to Me (Dudley/Mortimer) - 3:14 
+  6.   Cryin' Shame (Begg/Dudley/Mortimer) - 3:10 
+  7.   Heavy Metal Mania (Mortimer) - 4:50 
+  8.   Push It Around (Dudley/Mortimer) - 3:59 
+  9.   The Nightcomers (Mortimer) - 6:13 
+  10.   Love's Power (Mortimer) - 4:07 
+  11.   Only as Young as You Feel (Mortimer) - 3:13 
+  12.   Heavy Metal Mania [Single Version] (Mortimer) - 4:04 
+
+
+### "Live (Hot Curry and Wine)" 1983, Heavy Metal
+
+  1.   No Nonsense (Begg/Dudley/Mortimer) - 3:56 
+  2.   Smokin' Valves (Mortimer) - 4:30 
+  3.   Long the Bell Will Toll (Mortimer) - 5:02 
+  4.   Jirmakenyerut [instrumental] (Begg/Dudley/Mortimer) - 3:53 
+  5.   The Small Hours (Mortimer) - 6:15 
+  6.   Foredown Breakdown (Begg/Dudley) - 3:55 
+  7.   Heavy Metal Mania (Mortimer) - 3:43 
+  8.   The Nightcomers (Mortimer) - 5:56 
+  9.   Lovin' Feelin' Danger (Begg/Dudley) - 4:48 
+  10.   Death or Glory (Mortimer) - 3:36 
+
+
+### "No Mans Land" 1984, Heavy Metal
+
+
+
+### "Spirits Fly" 1996, Heavy Metal
+
+
+
+### "No Escape" 1998, Heavy Metal
+
+
+
+### "The Courage to Be" 2001, Heavy Metal
+
+  1.   The Collective (Mortimer) - 7:42 
+  2.   A Gentleman's Penny-Farthing (Mortimer) - 1:55 
+  3.   Neurosis (Mortimer) - 8:31 
+  4.   When Penelope Dreams, Pt. 1 (Mortimer) - 4:09 
+  5.   When Penelope Dreams, Pt. 1 (Mortimer) - 3:04 
+  6.   From the Mine Shaft to the Bike Shed (Mortimer) - 3:41 
+  7.   Fundamentalist (Mortimer) - 5:42 
+  8.   Spanner Omlette (Mortimer) - 4:52 
+  9.   Home from Home (Mortimer) - 6:36 
+  10.   The Age of Reason (Mortimer) - 5:21 
+  11.   The Age of Reason 
+
+
 
 ## Отношения с другими группами
 

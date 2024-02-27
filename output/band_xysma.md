@@ -1,11 +1,129 @@
 # Xysma
 
-Дискография
-"Yeah" 1990, Death Metal
-"First And Magical" 1993, Death Metal
-"Above The Mind Of Morbidity" 1993, Death Metal
-"First And Magical" 1993, Death Metal
-"Lotto" 1996, Death Metal
+
+
+## Дискография
+
+### "Yeah" 1990, Death Metal
+
+1.  Why Am I ?
+2.  On The Hill Of Desecration
+3.  Uranus Falls
+4.  Reflections Of Eternity
+5.  First Sunbeams Of The New Beginning
+6.  No Name
+7.  Above The Horizon
+8.  The Importance Of A Dimensionless Mirage
+9.  Until I Reach The Unattainable    
+10.There Is Only One Sun
+11.Written Into The Sky
+12.CCPT 2
+
+ Janitor  - Vocals
+ Olli Nurminen - Guitar
+ Vesa Litti  - Bass
+ Teppo Pulli - Drums
+
+All Tracks By XYSMA.Recorded At Sunlight Studio,
+Stockholm.
+Produced By XYSMA & Thomas Skogsberg.
+
+(p)&(c) 1990 COME BACK Records
+
+### "First And Magical" 1993, Death Metal
+
+1. One More Time
+2. Souls Are Stolen
+3. Uranus Falls Again
+4. Turning
+5. You Can Call Everything In A Guestion
+6. My Wind Like A Heron
+7. Clouds Give Me Consolation
+8. Can't Imagine Your Face
+9. Symbol
+10.It's My Sound
+
+ Sidney Safe
+ Stranius
+ Janitor Mustasch
+ Oliver Lawny
+ Dr. Heavenly
+
+All Tracks By XYSMA
+Recorded And Mixed In The Beginning Of 1993
+At Music Box Studio, Pargas, Finland
+
+(p)&(c) 1993 COME BACK Records
+
+### "Above The Mind Of Morbidity" 1993, Death Metal
+
+1. Foetal Mush
+2. Paradise Of Steaming Cadavers
+3. Entrangled In Shreds
+4. Mild Stench Of Rot
+5. Dismemberment In Trance
+6. Cranial Cradle
+
+ Janitor  - Vocals
+ Olli Nurminen - Guitar
+ Vesa Litti  - Bass
+ Teppo Pulli - Drums
+
+(p)&(c) 1993 COME BACK Records
+
+### "First And Magical" 1993, Death Metal
+
+1. One More Time
+2. Souls Are Stolen
+3. Uranus Falls Again
+4. Turning
+5. You Can Call Everything In A Guestion
+6. My Wind Like A Heron
+7. Clouds Give Me Consolation
+8. Can't Imagine Your Face
+9. Symbol
+10.It's My Sound
+
+ Sidney Safe
+ Stranius
+ Janitor Mustasch
+ Oliver Lawny
+ Dr. Heavenly
+
+All Tracks By XYSMA
+Recorded And Mixed In The Beginning Of 1993
+At Music Box Studio, Pargas, Finland
+
+(p)&(c) 1993 COME BACK Records
+
+### "Lotto" 1996, Death Metal
+
+1.  Shortest Route
+2.  We Just Game Inside
+3.  Do'N'Do
+4.  New Gel In Town
+5.  Aguanaut
+6.  Shoes
+7.  One Hell Of A Man
+8.  The Tram
+9.  Millionaire
+10.Bravado
+  
+Orvis Goodnight - Drums, Steps & Videotape, Goodnight Horns & Puzzle
+Minister Stranius - Guitars, Analog Synths, Television, Patis Stereo Equipment, Puzzle & Prop
+Foreigner Lawny - Guitars, Vocals, Mhz, Puzzle & Coffee
+Gablo Heavenly - Electric & Upright Bass, Puzzle, Vocals & Wax Figures
+Joanitor Lottoner - Lead Vocals
+Roop - Rec & Lots Of Other Buttons, Analog Synths, Ears & Sleeping
+Dano - Most Of The Analog Synths Rhodes - Piano & Clavinet
+
+Produced by Roop and XYSMA.
+
+Recorded at Music Box I Pargas by Roop.
+Mixed at Finnnvox by Roop.
+
+(p)(c) 1996 SPINEFARM  Records SPI 029
+
 
 ## Отношения с другими группами
 

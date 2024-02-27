@@ -1,8 +1,42 @@
 # Shampoo
 
-Дискография
-"We Are ..." 1994, Alternative
-"Girl Power" 1995, Alternative
+
+
+## Дискография
+
+### "We Are ..." 1994, Alternative
+
+1. Trouble
+2. Delicious
+3. Viva La Megababes
+4. Dirty Old Love Song
+5. Skinny White Thing
+6. Glimmer Globe
+7. Shiny Black Taxi Car
+8. Me Hostage
+9. Game Boy
+10.House Of Love
+11.Shampoo You
+12.Saddo
+
+(P)&(C) 1994 FOOD, Ltd
+
+### "Girl Power" 1995, Alternative
+
+1.  Girl Power
+2.  News Flash
+3.  I Know What Boys Like
+4.  Bare Knuckle Girl
+5.  Zap Pow
+6.  War Paint
+7.  You Love It
+8.  Boy Are Us
+9.  We Play Dumb
+10.  I'm Gonna Scream
+11.  Don't Call Me Bare
+
+(P)c 1995 FOOD, Ltd.
+
 
 ## Отношения с другими группами
 

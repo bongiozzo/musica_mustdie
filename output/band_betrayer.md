@@ -1,7 +1,13 @@
 # Betrayer
 
-Дискография
-"My twisted Symphony" 1999, Techno Death
+
+
+## Дискография
+
+### "My twisted Symphony" 1999, Techno Death
+
+
+
 
 ## Отношения с другими группами
 

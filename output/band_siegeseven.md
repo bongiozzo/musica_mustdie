@@ -1,14 +1,81 @@
 # Sieges Even
 
-Дискография
-"Life Cycle" 1988, Progressive
-"Steps" 1990, Progressive
-"A Sense Of Change" 1991, Progressive
-"Sophisticated" 1995, Progressive
-"Uneven" 1997, Progressive
-"The Art Of Navigating By The Stars" 2005, Progressive
-"Paramount" 2007, Progressive
-"Playgrounds" 2008, Progressive
+
+
+## Дискография
+
+### "Life Cycle" 1988, Progressive
+
+
+
+### "Steps" 1990, Progressive
+
+01. Tangerine Windows of Solace 
+- I. Alba (Instrumental) 
+- II. Epitome 
+- III. Apotheosis 
+- IV. Seasons of Seclusion (The Prison) 
+- V. An Essay of Relief (A Tangerine Dream) 
+- VI. Disintegration of Lasting hope 
+- VII. Elegy (Window of Percepiton) 
+02. Steps 
+03. Corridors 
+04. The Vacuum Tube Processor 
+05. On Act of Acquiescence 
+06. Anthem Chapter I 
+07. Anthem Chapter II
+
+### "A Sense Of Change" 1991, Progressive
+
+1. Prelude: Ode To Sisyphus   1:51
+2. The Waking Hours      4:38
+3. Behind Closed Doors        4:43
+4. Change Of Seasons          5:39
+5. Dimensions            8:12
+6. Prime            5:23
+7. Epigram For The Last Strow 7:27
+8. These Empty Places         9.42
+
+### "Sophisticated" 1995, Progressive
+
+
+
+### "Uneven" 1997, Progressive
+
+Greg Keller (1995- )               vocals
+Wolfgang Zenk (1995- )       guitars
+Oliver Holzwarth                     bass
+Boerg Keller (1997- )             keyboards/backing vocals
+Alex Holzwarth                        drums
+
+
+Previous Members:
+
+Jogi Kaiser (1991-1991)            vocals
+Markus Steffen (1988-1991)      guitars
+Franz Herde (1988-1990)          vocals
+
+
+### "The Art Of Navigating By The Stars" 2005, Progressive
+
+Intro: Navigating By The Stars 0:29
+Sequence 1: The Weight 10:13
+Sequence 2: The Lonely Views Of Condors 06:14
+Sequence 3: Unbreakable 08:59
+Sequence 4: Stigmata 08:22
+Sequence 5: Blue Wide Open 05:13
+Sequence 6: To The Ones Who Have Failed 07:26
+Sequence 7: Lighthouse 07:41
+Sequence 8: Styx 08:55
+
+### "Paramount" 2007, Progressive
+
+
+
+### "Playgrounds" 2008, Progressive
+
+
+
 
 ## Отношения с другими группами
 

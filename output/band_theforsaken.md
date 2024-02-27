@@ -1,10 +1,66 @@
 # The Forsaken
 
-Дискография
-"Manifest Of Hate" 2001, Death Metal
-"Arts Of Desolation" 2002, Death Metal
-"Traces Of The Past" 2003, Death Metal
-"Beyond Redemption" 2012, Death Metal
+Melodic-Death Metal
+
+## Дискография
+
+### "Manifest Of Hate" 2001, Death Metal
+
+Seers Hatred
+Deamon Breed
+Betrayal Within Individuals
+Collector of thoughts
+Soulshade
+Intro - Manifest of Hate
+Dehumanized Perspective
+Truth of god
+Incinerate
+Inseminated by the beast
+
+
+### "Arts Of Desolation" 2002, Death Metal
+
+1. Incubator
+2. The Hatebreed
+3. Human Chapter X
+4. Dethroned
+5. Embedded Insanity
+6. The Second Manifest
+7. Injected Terror
+8. Cold Flesh Colony
+9. Scars
+10. Mental Degeneration
+11. Human Prey (U.S. bonus track)
+
+
+
+### "Traces Of The Past" 2003, Death Metal
+
+1. A Time To Die
+2. One More Kill
+3. Acid With Acid – Piece By Piece
+4. Glitches Will Tell
+5. Traces Of The Past
+6. Serpents Tounge
+7. God Of Demise
+8. Massive Machinery
+9. The Empire
+10. First Weapon Of Choice
+11. Blackened (METALLICA cover)
+
+### "Beyond Redemption" 2012, Death Metal
+
+01. Beyond Redemption (03:22)
+02. Only Hell Remains (04:27)
+03. Foul Messianic Grace (04:17)
+04. No Dawn Awaits (03:50)
+05. There Is No God (03:29)
+06. As We Burn (04:24)
+07. Reap As We Have Sown (04:08)
+08. The Light Divine (04:42)
+09. Force Fed Repentance (03:52)
+10. Blessed With Wrath (04:12)
+
 
 ## Отношения с другими группами
 

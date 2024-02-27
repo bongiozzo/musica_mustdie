@@ -1,7 +1,35 @@
 # Tsatthoggua
 
-Дискография
-"Hosanna Bizarre" 1996, Black Metal
+Bizarre-Avant-Garde-Black-Metal-Holocaust
+
+## Дискография
+
+### "Hosanna Bizarre" 1996, Black Metal
+
+1.  Heirs Of Fire 
+2.  2000 V Kum
+3.  Niemals Geboren
+4.  Intrude Into Immortality
+5.  Hosanna Bizarre
+6.  The Belief - The Lie
+7.  Seventh Solitude
+8.  Worm Of Sin
+9.  Dionysos' Ecstasy
+
+All Songs Written By TSATTHOGGUA.
+Engineered By Norbert Arbeiter.
+Recorded & Mixed At Lippeland Tonsstudio, Dorsten-Wulfen.
+
+Nar Marratuk - Guitar
+North Wind - Vocals, Keyboards
+False Prophet - Bass Guitar
+Lightning Bolt - Drums
+
+Female Vocals by Nicole Szumiga.
+Programming & Sampling By Wolf.
+ 
+(P)c 1996 OSMOSE Productions
+
 
 ## Отношения с другими группами
 

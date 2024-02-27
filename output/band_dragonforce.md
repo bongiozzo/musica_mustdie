@@ -1,12 +1,74 @@
 # DragonForce
 
-Дискография
-"Valley of the Damned" 2002, Power Metal
-"Sonic Firestorm" 2004, Speed Metal
-"Inhuman Rampage" 2006, Power Metal
-"Ultra Beatdown" 2008, Power Metal
-"The Power Within" 2012, Power Metal
-"Maximum Overload" 2014, Power Metal
+power-metal
+
+## Дискография
+
+### "Valley of the Damned" 2002, Power Metal
+
+1. Invocation of the Apocalyptic Evil 00:13
+2. Valley Of The Damned  07:11
+3. Black Fire  05:46
+4. Black Winter Night  06:30
+5. Starfire  05:52
+6. Disciples of Babylon  07:15
+7. Revelations  06:52
+8. Evening Star  06:38
+9. Heart of a Dragon  05:22
+
+### "Sonic Firestorm" 2004, Speed Metal
+
+
+
+### "Inhuman Rampage" 2006, Power Metal
+
+1. Through The Fire And Flames 07:24  
+2. Revolution Deathsquad 07:52  
+3. Storming The Burning Fields 05:19  
+4. Operation Ground And Pound 07:44  
+5. Body Breakdown 06:58  
+6. Cry For Eternity 08:12  
+7. The Flame Of Youth 06:41  
+8. Trail Of Broken Hearts 05:56
+
+### "Ultra Beatdown" 2008, Power Metal
+
+1. Heroes Of Our Time
+2. The Fire Still Burns
+3. Reasons To Live
+4. Scars Of Yesterday
+5. Heartbreak Armageddon
+6. The Last Journey Home
+7. Inside The Winter Storm
+8. The Warrior Inside
+
+### "The Power Within" 2012, Power Metal
+
+1. Holding On 
+2. Fallen World 
+3. Cry Thunder 
+4. Give Me the Night 
+5. Wings of Liberty 
+6. Seasons 
+7. Heart of the Storm 
+8. Die By the Sword 
+9. Last Man Stands 
+10. Seasons (Acoustic Version) 
+
+
+### "Maximum Overload" 2014, Power Metal
+
+1. The Game  04:56    
+2. Tomorrow King  04:13    
+3. No More  03:50    
+4. Three Hammers  05:50    
+5. Symphony of the Night  05:19    
+6. The Sun Is Dead  06:34    
+7. Defenders  05:45   
+8. Extraction Zone  05:06    
+9. City of Gold  04:43    
+10. Ring of Fire (Johnny Cash cover)  03:15 
+
 
 ## Отношения с другими группами
 

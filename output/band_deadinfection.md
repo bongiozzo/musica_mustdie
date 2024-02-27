@@ -1,11 +1,80 @@
 # Dead Infection
 
-Дискография
-"Surgical Disembowelment" 1993, Grindcore
-"A Chapter Of Accidents" 1995, Grindcore
-"Human Slaughter... Till Remains" 1997, Ambient
-"Brain Corrosion" 2004, Grindcore
-"Corpses Of The Universe (EP)" 2008, Grindcore
+One of the great bands in extreme goregrind style
+
+## Дискография
+
+### "Surgical Disembowelment" 1993, Grindcore
+
+1. Maggots In Your Flesh
+2. Pathological View On The Alimentary Canal
+3. Torsions
+4. Undergo An Operation
+5. After Accident
+6. Xenomorph
+7. Let Me Vomit
+8. Splattered Birth
+9. Start Human Slaughter
+10.Deformed Creature
+
+ Kelner - Bass & Vocals
+ Maly - Guitar & Back.Vocals
+ Tocha - Guitar
+ Cyjan - Drums
+
+Produced By Cyjan & Kelner.
+Engineered By Ryszard Smit.
+Recorded & Mixed At PR Studios,
+Olsztyn,July 1993.
+
+(p)&(c) 1993 MORBID Records
+
+### "A Chapter Of Accidents" 1995, Grindcore
+
+01. From The Anatomical Deeps 
+02. Autophagia 
+03. The End Of Love 
+04. Hospital 
+05. Incident At Corsica 
+06. Airplane's Catastrophe 
+07. Little John's Story 
+08. Her Heart In Your Hands 
+09. Ambulance 
+10. Colitis Ulcerosa 
+11. Life Of A Surgeon 
+12. Fire In The Forest 
+13. Damaged Elevator 
+14. The Firing Ground 
+15. Tragedy At The Railway Station 
+16. Don't Turn His Crushed Face On Me 
+17. Torn By The Lion Apart 
+18. The Merry-Go-Round
+
+
+ Jaro - All Voices
+ Maly - Guitar
+ Tocha - Guitar, Bass
+ Cyjan - Drums
+
+All Songs By DEAD INFECTION. 
+Produced By DEAD INFECTION.
+Engineered By Jarek Pruszkowski.
+Recorded & Mixed At Izabelin Studio. 
+
+(P)&(C) 1995 MORBID Records
+
+### "Human Slaughter... Till Remains" 1997, Ambient
+
+
+
+### "Brain Corrosion" 2004, Grindcore
+
+
+
+### "Corpses Of The Universe (EP)" 2008, Grindcore
+
+
+
 
 ## Отношения с другими группами
 

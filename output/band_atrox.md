@@ -1,10 +1,67 @@
 # Atrox
 
-Дискография
-"Mesmerized" 1997, Death Doom
-"Contentrum" 2000, Death Doom
-"Terrestrials" 2002, Gothic
-"Orgasm" 2003, Gothic
+
+
+## Дискография
+
+### "Mesmerized" 1997, Death Doom
+
+
+
+### "Contentrum" 2000, Death Doom
+
+1. Sultry (6.12) 
+2. Unsummoned (6.44) 
+3. Lizard dance (7.13) 
+4. Panta rei (3.46) 
+5. Gather in me no mor (7.10) 
+6. Ignoramus (4.00) 
+7. Letters to earth (6.19) 
+8. Serenity (5.47) 
+9. Homage (5.37) 
+10. What crawls underneath (7.39) 
+11. Torture (1.27) 
+12. Outro (3.10) 
+
+
+### "Terrestrials" 2002, Gothic
+
+1. Lay (3:20)  
+2. Ruin (7:17) 
+3. Mare's Nest(6:05) 
+4. Nine Wishes (6:02) 
+5. Human inventions (3:52) 
+6. Mental Nomads (7:25) 
+7. Changeling (8:38) 
+8. The Beldam of the Bedlam (8:41) 
+9. Translunaria (7:46) 
+10. Look Further (8:46) 
+
+
+
+Eivind (Guitars) 
+Rune (Guitars, Bass, Samples, Sounds) 
+Monica (Vocals, Synths) 
+
+
+### "Orgasm" 2003, Gothic
+
+1. Methods Of Survival
+2. Flesh Fly
+3. Heartquake
+4. Burning Bridges
+5. This Ujil
+6. Tentacles
+7. Secondhand
+8. Traumas - Fact Sense
+
+
+Eivind - guitars
+Monika - vocals & synth
+Tor Arne - drums
+Ole Marius - guitars
+Peter - bass & vocals
+
 
 ## Отношения с другими группами
 

@@ -1,14 +1,57 @@
 # Blind Passengers
 
-Дискография
-"The Glamour Of Darkness" 1993, Industrial
-"Destroyka" 1996, Alternative
-"The Forgotten Times" 1996, Alternative
-"The Trash Inside My Brain" 1997, Alternative
-"Bastard" 1999, Alternative
-"Neosapiens" 2001, Alternative
-"Timemachine" 2005, Industrial
-"Next Flight To Planet Earth" 2010, Synthpop
+Industrial
+
+## Дискография
+
+### "The Glamour Of Darkness" 1993, Industrial
+
+
+
+### "Destroyka" 1996, Alternative
+
+
+
+### "The Forgotten Times" 1996, Alternative
+
+
+
+### "The Trash Inside My Brain" 1997, Alternative
+
+
+
+### "Bastard" 1999, Alternative
+
+
+
+### "Neosapiens" 2001, Alternative
+
+
+
+### "Timemachine" 2005, Industrial
+
+01. Forgotten Years
+02. No More Revolution
+03. Just A Fuck!
+04. Born To Crash
+05. Yes Sir!
+06. Voices Of Dark
+07. Headache
+08. Broken Conscience
+09. Your Smell
+10. Too Much
+11. When the Sky Broke
+12. Grey Sunday
+13. Why
+14. Hall Of Pain
+15. Golden Years
+18. Absurdistan
+17. Sarajevo
+
+### "Next Flight To Planet Earth" 2010, Synthpop
+
+
+
 
 ## Отношения с другими группами
 

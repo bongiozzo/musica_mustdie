@@ -1,7 +1,29 @@
 # Turmoil
 
-Дискография
-"From Bleeding Hands" 1996, Hardcore
+
+
+## Дискография
+
+### "From Bleeding Hands" 1996, Hardcore
+
+1.  New Media 
+2.  Fuse 
+3.  Burning 
+4.  Choke 
+5.  60-Minute Void 
+6.  From Bleeding Hands 
+7.  Evolution Of Lies 
+8.  Starve 
+9.  These Bridges 
+10.Spinning & Crashing
+
+Jon Gula - Vocals
+Jonathan Hodges - Guitar, Back-Up Vocals, Noise
+Jeff Hydro - Guitars, Back-Up Vocals
+Gary Rehrig - Bass
+
+(P)c 1996 CENTURY MEDIA // CD 77102-2
+
 
 ## Отношения с другими группами
 

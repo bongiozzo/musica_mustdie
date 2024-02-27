@@ -1,7 +1,21 @@
 # Woods Of Ypres
 
-Дискография
-"Pursuit Of The Sun & Allure Of The Earth" 2004, Black Metal
+
+
+## Дискография
+
+### "Pursuit Of The Sun & Allure Of The Earth" 2004, Black Metal
+
+Intro: The Looming Of Dust In The Dark (& The Illumination) 
+The Will To Give 
+The Sun Was In My Eyes
+Allure Of The Earth 
+Shedding The Deadwood
+Dragged Across A Forest Floor 
+Summer's Envy 
+Untitled
+Outro
+
 
 ## Отношения с другими группами
 

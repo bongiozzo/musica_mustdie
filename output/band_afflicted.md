@@ -1,8 +1,62 @@
 # Afflicted
 
-Дискография
-"Prodigal Sun" 1992, Death Metal
-"Dawn Of Glory" 1995, Death Metal
+Original Sweden Death Metal
+
+## Дискография
+
+### "Prodigal Sun" 1992, Death Metal
+
+1.  Prodigal Sun
+2.  Harbouring The Soul
+3.  In Years To Come
+4.  Tidings From Blue Sphere
+5.  The Empty Word
+6.  Astray
+7.  Rising To The Sun
+8.  Spirit Spectrum
+9.  The Doomwatchers Prediction
+10.Consumed In Flames
+11.Ivory Tower
+
+ Joakim Broms - Vocals
+ Jesper Thorsson - Lead & Synth. Guitars
+ Philip Von Segebaden - Bass
+ Joacim Carlsson - Lead & Acoust. Guitars
+ Yasin Hillborg - Drums
+
+Recorded At Sunlight Studio.
+Produced By AFFLICTED & Thomas Skogsberg.
+Engineered By Thomas Skogsberg.
+
+(p)&(c) 1992 NUCLEAR BLAST Records 063NB
+
+### "Dawn Of Glory" 1995, Death Metal
+
+1. Son Of Earth
+2. Dawn Of Glory
+3. Last Incarnation
+4. Raging Into Battle
+5. Scattered
+6. I Am Vengeance
+7. Cross My Heart
+9. Niflheimr (Outro)
+
+ Michael Van Der Graaf - Vocals 
+ Jesper Thorsson - Lead Guitar
+ Joacim Carlsson - Lead Guitar
+ Philip Von Segebaden - Bass
+ Yasin Hillborg - Drums
+
+All Music Written & Arranged By AFFLICTED.
+Recorded At Sunlight Studio In Fourteen
+Days During Spring 1994.
+Produced & Engineered By Tomas Skogsberg.
+Mixed By Tomas Skogsberg & AFFLICTED.
+Mastered At Cutting Room By Peter In De Betou.
+Front Cover Artwork By Art Attack.
+
+(p)&(c) 1995 MASSACRE Records
+
 
 ## Отношения с другими группами
 

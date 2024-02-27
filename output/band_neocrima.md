@@ -1,6 +1,9 @@
 # Neocrima
 
-Дискография
+Melodic death metal from Kyrgystan
+
+## Дискография
+
 
 ## Отношения с другими группами
 

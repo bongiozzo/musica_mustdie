@@ -1,8 +1,24 @@
 # Todestriebe
 
-Дискография
-"...Scream, Pray, Beg..." 2012, Black Metal
-"Vicarius Filii Dei" 2015, Black Metal
+
+
+## Дискография
+
+### "...Scream, Pray, Beg..." 2012, Black Metal
+
+
+
+### "Vicarius Filii Dei" 2015, Black Metal
+
+1. 0.00
+2. Satanic Death Squadron
+3. Burn The Gospel - Fuck The Church
+4. Christomaniac
+5. Black Terror Messiah
+6. Vicarius Filii Dei
+7. Impaled And Burnt Down
+8. Follow The Downword Spiral
+
 
 ## Отношения с другими группами
 

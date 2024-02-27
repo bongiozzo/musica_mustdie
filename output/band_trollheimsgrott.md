@@ -1,8 +1,56 @@
 # Trollheim's Grott
 
-Дискография
-"Bizzare Troll Technology" 2001, Black Metal
-"Bloodsoaked And Ill-Fated" 2003, Black Metal
+
+
+## Дискография
+
+### "Bizzare Troll Technology" 2001, Black Metal
+
+Syndicate Side:
+1. Trollgeddon 
+2. Trollsyndicate
+3. Conquering with Blasphemy 
+4. Bizzare Troll Technology 
+Side New Era:
+5. Amanita Virosa 
+6. Mushroomcloud Science 
+7. Electronic Genocide 
+8. Chased by Trools
+
+
+Spellgoth - Vocals, Guitar
+Trist - Guitar
+Korpse - Bass
+Troll N. - Drums
+Ruho - Synths 
+
+
+Infection L. L. - Additional clean vox and growls
+Lassi Hartikainen - Additional guitar leads and solo
+Pettery Lapio - Guitar solo
+Torment - Additional Growls
+
+
+Recorded and mixed at Watercastle studio between 8th - 22nd of June of 2001 by Arttu Sarvanne
+Mastered at Finnvox by Minerva Pappi
+All music by Trollheims Grott, except Chased by Trolls by Mekaaninen Hippi & Spellgoth
+All lyrics by Spellgoth
+Band photography by Mika Varonen
+Cover by Timo Honkanen
+
+
+
+### "Bloodsoaked And Ill-Fated" 2003, Black Metal
+
+01. Dehumanize
+02. Exact Answers & Syndicate Solutions
+03. Syndicate Wormcampaign
+04. Operation: Lick the Fungus
+05. Little Shop of Scalpels
+06. Syndicate Haunts You Down
+07. Experimentation
+08. Addicted to Lethal Injections
+
 
 ## Отношения с другими группами
 

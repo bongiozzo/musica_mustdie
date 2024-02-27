@@ -1,8 +1,67 @@
 # Down By Law
 
-Дискография
-"Down By Law" 1991, Punk
-"Punkrockacademyfightsong" 1994, Punk
+
+
+## Дискография
+
+### "Down By Law" 1991, Punk
+
+1. Right Or Wrong
+2. Vision
+3. Dreams Away
+4. Down The Drain
+5. American Dream
+6. The Truth *
+7. Best Friends
+8. Mat Gleason Is God
+9. The One
+10.Can't See It Still
+11.Surf Punk
+12.Too Much Grey
+
+ Dave Smalley - Vocals,Guitar
+ Chris Bagarozzi - Guitar
+ Ed Urlik - Bass
+ Dave Naz - Drums
+
+All Songs By Dave Smalley.
+Produced By Brett Gurewitz.
+Recorded & Mixed At Westbeach Recorders.
+
+(p)&(c) 1991 EPITAPH Records
+
+### "Punkrockacademyfightsong" 1994, Punk
+
+1. Punk Won
+2. Hit Or Miss
+3. Flower Tattoo
+4. Sympathy For The World
+5. 500 Miles
+6. Brief Tommy
+7. Bright Green Globe
+8. Minusame
+9. Druming Dave,Hunter Up
+10.Punk As Fuck
+11.1944
+12.The King & I
+13.Hair Cut
+14.Chokolade Jerk
+15.Sam 1
+16.Heroes & Hooligans
+17.Soldiers Boy
+18.Goodnight Song
+19.Sam 2
+
+ Dave Smalley - Vocals,Guitar
+ Sam Williams III - Lead Guitar
+ John Di Mambro - Bass
+ Hunter Oswald - Drums,Vocals
+
+Produced By Michael Duglass.
+Recorded At L&M Studios,Hollywood.
+
+(p)&(c) 1994 EPITAPH Records
+
 
 ## Отношения с другими группами
 

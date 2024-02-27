@@ -1,9 +1,47 @@
 # Visceral Bleeding
 
-Дискография
-"Remnants Of Deprivation" 2002, Death Metal
-"Transcend Into Ferocity" 2004, Death Metal
-"Remnants Revived" 2005, Death Metal
+
+
+## Дискография
+
+### "Remnants Of Deprivation" 2002, Death Metal
+
+
+
+### "Transcend Into Ferocity" 2004, Death Metal
+
+1. Merely Parts Remain
+2. Fed To The Dogs 
+3. Indulged In Self Mutilation
+4. Fury Unleashed
+5. Trephine The Malformed
+6. All Flesh... 
+7. Clenched Fist Obedience
+8. Fire Took His Face
+9. When Pain Came To Town
+10. Fury Unleashed (video)
+
+### "Remnants Revived" 2005, Death Metal
+
+1. Spreader of Disease (Burn The Bitch)   
+2. Carved Down to the Bone   
+3. Gasping...   
+4. Remnants of Deprivation   
+5. State of Putrefaction   
+6. To Disgrace Condemed   
+7. Time to Retaliate   
+8. Butcher Knife Impalement   
+9. Exposive Surgery   
+10. Dreaming In Red*   
+11. Carved Down To The Bone (Alternate Version)   
+12. Stripped, Raped & Strangled** 
+* Originally by Dismember
+** Originally by Cannibal Corpse 
+13. Live on the Obituary tour 1. (videoclip)
+14. Live on the Obituary tour 2. (videoclip)
+15. Live on the Obituary tour 3. (videoclip)
+16. Carved Down To The Bone (videoclip)
+
 
 ## Отношения с другими группами
 

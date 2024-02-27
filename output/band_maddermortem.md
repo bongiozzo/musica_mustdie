@@ -1,11 +1,72 @@
 # Madder Mortem
 
-Дискография
-"Mercury" 1999, Gothic
-"All Flesh Is Grass" 2001, Gothic
-"Deadlands" 2002, Doom
-"Desiderata" 2006, Gothic
-"Eight Ways" 2009, Alternative
+gothic doom metal from Norway
+
+## Дискография
+
+### "Mercury" 1999, Gothic
+
+Undertow
+Under Another Moon
+He Who Longed for the Stars
+These Mortal Sins
+The Grinding Silence
+Loss
+Remnants
+Misty Sleep
+Convertion
+
+### "All Flesh Is Grass" 2001, Gothic
+
+Breaker Of Worlds
+To Kill And Kill Again
+The Cluster Children
+Ruby Red
+Head On Pillow
+Turn The War On
+Chambers
+Ten Times Defeat
+Traitor's Mark
+
+### "Deadlands" 2002, Doom
+
+1. Enter (intro)
+2. Necropol Lit
+3. Omnivore
+4. Rust Cleansing
+5. Faceless
+6. Distance Will Save Us
+7. Silverspine
+8. Jigsaw (The Pattern And The Puzzle)
+9. Deadlands
+10. Resonatine
+
+### "Desiderata" 2006, Gothic
+
+
+
+### "Eight Ways" 2009, Alternative
+
+1. Formaldehyde 05:26 
+2. The Little Things 05:02
+3. Armour 05:04
+4. Resolution 06:30 
+5. A Different Kind Of Hell 05:21
+6. Riddle Wants To Be 04:11
+7. Where Dream And Day Collide 05:53
+8. The Flesh, The Blood And The Man 04:37
+9. Get That Monster Out Of Here 05:43 
+10. Life, Lust & Liberty 04:19 
+11. All I Know 03:56 
+12. The Eighth Wave 09:14 
+
+
+Agnete M. Kirkevaag - Vocals 
+BP M. Kirkevaag - Guitar 
+Mads Solеs - Drums
+Odd Eivind Ebbesen - Guitar 
+Tormod Langшien Moseng - Bass
+
 
 ## Отношения с другими группами
 

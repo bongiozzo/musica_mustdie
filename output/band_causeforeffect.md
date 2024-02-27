@@ -1,6 +1,9 @@
 # Cause for Effect
 
-Дискография
+techincal and weird fusion grindcore jazz from Finland
+
+## Дискография
+
 
 ## Отношения с другими группами
 

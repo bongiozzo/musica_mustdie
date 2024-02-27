@@ -1,7 +1,24 @@
 # Soundisciples
 
-Дискография
-"Audio Manifesto" 2002, Industrial
+Alternative-industrial
+
+## Дискография
+
+### "Audio Manifesto" 2002, Industrial
+
+1. Deluxe Poverty
+2. Daze Of Grace
+3. Reject
+4. Trilogy
+5. End Of An Error
+6. Nine Days
+7. Angels Kiss
+8. Phantom
+9. Tongues
+10. Caantock
+11. Deluxe Poverty (Bullet Proof Monk Mix)
+12. Angels Kiss (Poisonflow Mix)
+
 
 ## Отношения с другими группами
 

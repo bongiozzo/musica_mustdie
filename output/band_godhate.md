@@ -1,7 +1,16 @@
 # Godhate
 
-Дискография
-"Anguish [EP]" 2005, Death Metal
+ex.Throneaeon
+
+## Дискография
+
+### "Anguish [EP]" 2005, Death Metal
+
+1. In Fear Of God 03:50  
+2. Anguish 03:14  
+3. Promethean Ascension 05:26  
+4. With Might And Main 04:51 
+
 
 ## Отношения с другими группами
 

@@ -1,16 +1,142 @@
 # Eisregen
 
-Дискография
-"Zerfall" 1998, Black Metal
-"Krebskolonie" 1998, Black Metal
-"Fleischfestival" 2000, Black Metal
-"Leichenlagar" 2000, Black Metal
-"Farbenfinsternis" 2001, Black Metal
-"Wundwasser" 2004, Black Metal
-"Blutbahnen" 2007, Black Metal
-"Knochenkult" 2008, Black Metal
-"Schlangensonne" 2010, Black Metal
-"Rostrot" 2011, Black Metal
+gothic black
+
+## Дискография
+
+### "Zerfall" 1998, Black Metal
+
+
+
+### "Krebskolonie" 1998, Black Metal
+
+
+
+### "Fleischfestival" 2000, Black Metal
+
+
+
+### "Leichenlagar" 2000, Black Metal
+
+
+
+### "Farbenfinsternis" 2001, Black Metal
+
+1. Meine tote russische Freundin
+2. Im Reich der Fleischlichkeit
+3. Deutschland in Flammen
+4. Dreizehn 
+5. Dein Blut 
+
+Zyklus - Farbenfinsternis -
+6. Kap. 1: Vorboten
+7. Kap. 2: Angst wird Fleisch
+8. Kap. 3: Schatten im Verstand
+9. Kap. 4: Mein Reich komme
+10. Kap. 5: Farbenfinsternis
+
+11. Ein Jahr im Leben des Todes
+12. Born Dead ( Death-Cover / Bonus )
+
+
+
+Sebastian "Berg" Morbach - bass
+Bursche Lenz "L' Euthan" - guitars
+2T - Violine
+Michael Roth (Blutkehle) - vocals
+Yantit "Mandrill" - drums
+
+ 
+
+Aufgenommen: Februar - April 2001 in den "Roth-Studios";
+Produziert von Eisregen;
+Abgemischt und gemastert: August 2001;
+Textkonzeption / -execution: M. Roth;
+"Born Dead": Musik: Schuldiner/Rozz; Text: Schuldiner;
+Musik und Texte verlegt von Warner Chapell, Edition Wolffackel;
+Cover und Bookletartwork: Ans de Bruin;
+
+
+### "Wundwasser" 2004, Black Metal
+
+1. Intro- Warheit 
+2. mein Eichensarg 
+3. am Glockenseil
+4. vom Muttermord 
+5. blutgeil
+6. Ripper von Rostow 
+7. hinein ins Trдnenmeer 
+8. Glas 
+9. was vom Leben ьbrig blieb 
+10. Kreuznarbe 
+11. Wundwasser 
+12. Outro - Ende...?
+
+### "Blutbahnen" 2007, Black Metal
+
+1. Auftakt: Eine kleine Schlachtmusik 01:37  
+2. Eisenkreuzkrieger 04:20 
+3. Im Dornenwall 04:36
+4. Ein Hauch von Rдude 05:54
+5. 17 Kerzen am Dom 06:27 
+6. Blutbahnen 05:24 
+7. Alphawolf 04:28 
+8. Frischtot 04:17
+9. Schlachthaus-Blues 06:21 
+10. Zurьck in die Kolonie 06:11 
+11. Schneuz den Kasper! 05:31 
+
+
+### "Knochenkult" 2008, Black Metal
+
+1. Stahlschwarzschwanger 06:09 
+2. Treibjagd 05:03  
+3. Erscheine! 06:09  
+4. Das Liebe Beil 05:29 
+5. 19 Nдgel fьr Sophie 05:02  
+6. Sei Fleisch Und Fleisch Sei Tot 02:46 
+7. Schwarzer Gigolo 04:31 
+8. SьЯfleisches Nachtgebet 05:52  
+9. Das Letzte Haus Am Ende Der EinbahnstraЯe 03:10 
+10. Knochenkult 05:20
+
+
+
+M. Roth/Blutkehle (Michael Roth) - Vocals, lyrics 
+Bursche Lenz (Michael Lenz) - Guitar, bass 
+Yantit (Ronny Fimmel) - Drums, Electronics 
+Dr. Franzenstein - Keyboards 
+
+### "Schlangensonne" 2010, Black Metal
+
+1. N8Verzehr 04:33  
+2. Blute aus 04:11  
+3. Auf ewig Ostfront 04:35  
+4. Ernte den Untergang 04:45  
+5. Zauberelefant 06:56  
+6. Kai aus der Kiste 05:57
+7. Tod senkt sich herab 04:26  
+8. Linkshдnder 04:19  
+9. Das Allerschlimmste 05:42 
+10. Schlangensonne 05:04  
+11. Brustfeti-Christ (Bonus) 02:08 
+
+
+### "Rostrot" 2011, Black Metal
+
+01. Erloesung 02:25 
+02. Schakal-Ode An Die Streubombe 03:56 
+03. Madenreich 03:49 
+04. Ich Sah Den Teufel 07:26 
+05. Blutvater 03:20 
+06. Bewegliche Ziele 05:37 
+07. Kathi Das Kuchenschwein 05:48 
+08. Wechselbalg 04:33 
+09. Fahles Ross 05:41 
+10. Rostrot 06:53 
+11. Madenreich-Remix (Bonus Track) 03:47 
+
+
 
 ## Отношения с другими группами
 

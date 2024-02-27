@@ -1,8 +1,49 @@
 # Onward
 
-Дискография
-"Evermoving" 2001, Power Metal
-"Reawaken" 2002, Power Metal
+
+
+## Дискография
+
+### "Evermoving" 2001, Power Metal
+
+  1.   The Kindness of Strangers (Grant/Knapp) - 6:06 
+  2.   Onward (Grant/Knapp) - 5:32 
+  3.   The Waterfall Enchantress (Grant/Knapp) - 4:25 
+  4.   The Last Sunset (Grant/Knapp) - 3:20 
+  5.   Absolution Mine (Grant/Knapp) - 4:26 
+  6.   Witches Winter Eternal (Grant/Knapp) - 4:26 
+  7.   Storm Coming Soon (Grant/Knapp) - 4:42 
+  8.   The Last Side of the World (Grant/Knapp) - 5:05 
+
+
+Toby Knapp  -  Guitar, Composer, Recording Producer, Tracking Producer 
+Alan Douches  -  Mastering 
+Eric Rachel  -  Mixing 
+Michael Grant  -  Vocals, Vocal Producer 
+Ioannis  -  Art Direction, Design, Digital Art 
+Alex Solca  -  Photography 
+Alan Chappell  -  Art Direction, Design 
+Haracio Colmanares  -  Vocal Producer 
+
+
+### "Reawaken" 2002, Power Metal
+
+1. Reawaken 5:19
+2. Night 3:42
+3. Seven Tides of Labyrinthine 5:44
+4. Where Evil Follows 5:58
+5. Eye of the Nightmare 5:01
+6. My Darkest Room 5:01
+7. In Due Time 4:32
+8. Clockwork Toy 3:57
+9. Who Saw the Last Star Fall 6:23
+10. The Next Triumph
+      Pt 1: Rememberance 4:54
+      Pt 2: Reawakening 4:23
+
+
+
+
 
 ## Отношения с другими группами
 

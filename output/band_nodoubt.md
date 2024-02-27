@@ -1,7 +1,28 @@
 # No Doubt
 
-Дискография
-"Tragic Kingdom" 1995, Grunge
+
+
+## Дискография
+
+### "Tragic Kingdom" 1995, Grunge
+
+1.  Spider Webs
+2.  Excuse Me Mr.
+3.  Just A Girl
+4.  Happy Now ?
+5.  Different People
+6.  Hey You
+7.  The Climb
+8.  Sixteen
+9.  Sunday Morning
+10.Don't Speak
+11.You Can Do It
+12.World Go Round
+13.End It On This
+14.Tragic Kingdom
+
+(P)(C) 1995 TRAUMA Records
+
 
 ## Отношения с другими группами
 

@@ -1,6 +1,9 @@
 # Brody's Militia
 
-Дискография
+fast thrash from Ohio
+
+## Дискография
+
 
 ## Отношения с другими группами
 

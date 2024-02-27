@@ -1,9 +1,106 @@
 # Badlands
 
-Дискография
-"Badlands" 1989, Heavy Metal
-"Voodoo Highway" 1991, Heavy Metal
-"Dusk" 1993, Heavy Metal
+(formers of former Ozzy Osbourne and Black Sabbath)
+
+## Дискография
+
+### "Badlands" 1989, Heavy Metal
+
+  1.   High Wire (Gillen/Lee) - 3:44 
+  2.   Dreams in the Dark (Gillen/Lee/O'Neil) - 3:29 
+  3.   Jadies Song (Lee) - 1:22 
+  4.   Winter's Call (Gillen/Gonzales/Lee) - 5:35 
+  5.   Dancing on the Edge (Gillen/Lee/O'Neil) - 3:27 
+  6.   Streets Cry Freedom (Gillen/Lee/O'Neil) - 6:09 
+  7.   Hard Driver (Gillen/Lee/O'Neil) - 4:49 
+  8.   Rumblin' Train (Gillen/Lee/O'Neil) - 5:45 
+  9.   Devil's Stomp (Gillen/Lee/o'Neil) - 4:54 
+  10.   Seasons (Gillen/Lee/O'Nei/ONeill) - 6:19 
+  11.   Ball and Chain [*] (Gillen/Lee) - 4:11 
+
+
+Badlands  -  Producer 
+Jack Skinner  -  Mastering 
+James A. Ball  -  Engineer 
+Greg Chaisson  -  Bass 
+Ray Gillen  -  Harp, Jew's-Harp, Vocals 
+Jake E. Lee  -  Guitar, Keyboards 
+Jon Mathias  -  Engineer 
+Paul O'Neill  -  Producer, Management 
+Eric Singer  -  Drums 
+David Thoener  -  Mixing 
+Derrik Venarchick  -  Assistant Engineer 
+Bob Kinkel  -  Keyboard Programming 
+Ted Trewhella  -  Engineer 
+Glen Marchese  -  Engineer 
+Jab  -  Mixing 
+Bob Defrin  -  Art Direction 
+Chuck Cavanaugh  -  Engineer 
+Robert Manella  -  Photography 
+David Parla  -  Assistant Engineer 
+Brad Wrolstad  -  Reissue Design 
+Anthony Ranieri  -  Design 
+Dave Nives  -  Reissue Producer 
+Valerie Ince  -  Staff 
+Joe Henehan  -  Engineer 
+
+
+
+### "Voodoo Highway" 1991, Heavy Metal
+
+  1.   The Last Time (Gillen/Lee) - 3:42 
+  2.   Show Me The Way (Gillen/Lee) - 4:12 
+  3.   Shin On (Chaisson/Gillen/Lee) - 4:22 
+  4.   Whiskey Dust (Gillen/Lee) - 4:18 
+  5.   Joe's Blues (Lee) - 0:58 
+  6.   Soul Stealer (Gillen/Lee) - 2:58 
+  7.   Day Funk (Gillen/Lee) - 3:52 
+  8.   Silver Horses (Gillen/Lee/Marin) - 4:41 
+  9.   Love Don't Mean A Thing (Gillen/Lee) - 4:01 
+  10.   Voodoo Highway (Gillen/Lee) - 2:22 
+  11.   Fire And Rain (Taylor) - 3:40 
+  12.   Heaven's Train (Chaisson/Gillen/Lee) - 3:58 
+  13.   In A Dream (Gillen) - 2:14 
+
+
+
+James A. Ball  -  Producer, Engineer 
+Greg Chaisson  -  Bass 
+Ray Gillen  -  Harmonica, Vocals 
+Chris Kupper  -  Engineer 
+Jake E. Lee  -  Organ, Dobro, Guitar, Percussion, Piano, Maraccas, Marimba, Tambourine, Moog Synthesizer, Producer, Cowbell, Guiro, Gourd, Moog Bass 
+Bob Defrin  -  Art Direction 
+Steve Harrison  -  Engineer 
+Gina Immel  -  Engineer 
+John Taylor Dismukes  -  Illustrations 
+Mike Gunderson  -  Engineer 
+Jeff Tisman  -  Photography 
+Jeff Martin  -  Harmonica, Percussion, Conga, Drums, Maraccas, Marimba, Tambourine, Timbales, Vocals (bckgr), Logo 
+
+
+### "Dusk" 1993, Heavy Metal
+
+  1.   Healer (Gillen/Lee) - 4:45 
+  2.   Sun Red Sun (Gillen/Lee) - 5:29 
+  3.   Tribal Moon (Gillen/Lee) - 3:55 
+  4.   The River (Chaisson/Gillen/Lee) - 4:41 
+  5.   Walking Attitude (Gillen/Lee) - 2:55 
+  6.   The Fire Lasts Forever (Gillen/Lee) - 4:04 
+  7.   Dog (Gillen/Lee) - 3:27 
+  8.   Fat Cat (Gillen/Lee) - 4:33 
+  9.   Lord Knows (Gillen/Lee) - 4:55 
+  10.   Ride the Jack (Gillen/Lee) - 4:17 
+
+
+Greg Chaisson  -  Bass, Vocals (bckgr), Engineer 
+Ray Gillen  -  Vocals 
+Jake E. Lee  -  Guitar, Vocals (bckgr), Engineer 
+Matt Thorne  -  Engineer 
+Jeff Martin  -  Drums 
+William Cooke  -  Mastering 
+John Greenberg  -  Coordination 
+
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,27 @@
 # Aghast
 
-Дискография
-"Hexeri Im Zwielicht Der Finsternis" 1995, Ambient
+Noise Black Gothic
+
+## Дискография
+
+### "Hexeri Im Zwielicht Der Finsternis" 1995, Ambient
+
+1. Enthral
+2. Sacrifice
+3. Enter The Hall Of Ice
+4. Call From The Grave
+5. Totentanz
+6. The Darkest Desire
+7. Das Irrlicht
+8. Ende
+
+All Songs Written By AGHAST.
+
+Nacht
+Nebel
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,17 @@
 # Essence
 
-Дискография
-"Lost in Violence" 2011, Thrash
-"Last Night of Solace" 2013, Thrash
+
+
+## Дискография
+
+### "Lost in Violence" 2011, Thrash
+
+
+
+### "Last Night of Solace" 2013, Thrash
+
+
+
 
 ## Отношения с другими группами
 

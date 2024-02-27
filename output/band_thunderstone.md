@@ -1,12 +1,147 @@
 # Thunderstone
 
-Дискография
-"Thunderstone" 2002, Power Metal
-"The Burning" 2004, Power Metal
-"Tools Of Destruction" 2005, Power Metal
-"Evolution 4.0" 2007, Power Metal
-"Dirt Metal" 2009, Heavy Metal
-"Apocalypse Again" 2016, Heavy Metal
+finnish power-metal
+
+## Дискография
+
+### "Thunderstone" 2002, Power Metal
+
+01. Let The Demons Free
+02. Virus
+03. World's Cry
+04. Me, My Enemy
+05. Will To Power
+06. Weak
+07. Eyes Of A Stranger
+08. Like Father, Like Son
+09. Voice In A Dream
+10. Spread My Wings
+
+Pasi Rantanen - vocals
+Nino Laurenne - guitars & backing vocals
+Kari Tornack - keyboards
+Titus Hjelm - bass & backing vocals
+Mirka Rantanen - drums
+
+All music by Nino Laurenne except Virus, Will To
+Power and Weak by Nino Laurenne/Tornack
+Eyes Of Stranger by Nino Laurenne / M. Rantanen /
+Tornack
+All lyrics by Nino Laurenne
+All songs arranged by Thunderstone
+
+Produced and engineered by Nino Laurenne
+Recorded at Sonic Pump studios (Helsinki) January
+- February 2002.
+Mixed by Mikko Karmila
+Mastered by Mika Jussila
+Mixed and mastered at Finnvox studios (Helsinki)
+February 2002
+Additional engineering by Teque "Mac Spain"
+Kostermaa and Tapio "Teipio" Pennanen
+Strings on Spread My Wings arranged and conducted
+by Pasi Heikkila
+Synth orchestrations on Spread My Wings by Sami
+"Beautiful S" Virtanen
+The "Thunderstrings" on Spread My Wings: Maria
+Bari`c, Heta Haavisto, Lotta Heiskanen, Soila
+Hakkinen, Mila Laine, Uula Toikka & Jaana Tukeva
+Synth Strings on Like Father, Like son arranged
+and played by Pasi Heikkila
+Backing vocals by Anssi Stenberg, Kimmo Blom,
+Robin Wickman and Pasi Rantanen
+2nd guitar solo on Like Father, Like son by Timo
+Tolkki
+A&R: Andy Siry
+Cover artwork. logo & layout by Thomas Ewerhard.
+Bandphotos by Jani Mahkonen
+
+### "The Burning" 2004, Power Metal
+
+01. Until we Touch the Burning Sun
+02. Break the Emotion
+03. Mirror never Lies
+04. Tin Star Man
+05. Spire
+06. Sea of Sorrow
+07. Side by Side
+08. Drawn to the Flame
+09. Forth into the Black
+10. Evil within
+
+Pasi Rantanen - vocals
+Nino Laurenne - guitars & backing vocals
+Kari Tornack - keyboards
+Titus Hjelm - bass & backing vocals
+Mirka Rantanen - drums
+
+Recorded at Sonic Pump studios (Helsinki)
+Mixed by Mikko Karmila
+Mixed at Finnvox studios (Helsinki)
+Cover artwork by Thomas Ewerhard.
+
+### "Tools Of Destruction" 2005, Power Metal
+
+01. Tool Of The Devil
+02. Without Wings
+03. Liquid Of The Kings
+04. I Will Come Again
+05. Welcome To The Real
+06. The Last Song
+07. Another Time
+08. Feed The Fire
+09. Weight Of The World
+10. Land Of Innocence
+Bonus:
+11. Spire (acoustic radio live version)
+12. Spread my wings (first demo version)
+CD-rom
+
+### "Evolution 4.0" 2007, Power Metal
+
+1. Evolution 4.0 00:14  
+2. Forevermore 04:21  
+3. Roots of Anger 03:43  
+4. 10.000 Ways 04:16  
+5. Holding on to My Pain 05:35  
+6. Swirled 03:48  
+7. Down With Me 07:16  
+8. Face in the Mirror 03:03  
+9. Solid Ground 05:40  
+10. The Source 04:49  
+11. Great Man Down 05:01
+
+### "Dirt Metal" 2009, Heavy Metal
+
+1. Rebirth 00:39  
+2. I Almighty 05:02  
+3. Dirt Metal 03:59  
+4. Blood That I Bleed 04:17  
+5. Star 04:07  
+6. Ghosts Of Youth 05:05  
+7. Counting Hours 04:27  
+8. Dodge The Bullet 03:53  
+9. Deadlights 03:38  
+10. At The Feet Of Fools 04:32  
+11. Suffering Song 08:27 
+
+
+### "Apocalypse Again" 2016, Heavy Metal
+
+1. Veterans of the Apocalypse    
+2. The Path      
+3. Fire and Ice      
+4. Through the Pain      
+5. Walk Away Free  
+6. Higher    
+7. Wounds   
+8. Days of Our Lives 
+9. Barren Land  
+
+
+Will also be released via Sakara Records/Sony Music in Finland and via Marquee Inc. in Japan, South Koreaa and Taiwan.
+
+
 
 ## Отношения с другими группами
 

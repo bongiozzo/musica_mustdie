@@ -1,8 +1,48 @@
 # Lowbrow
 
-Дискография
-"Victims At Play" 1999, Death Metal
-"Sex. Violence. Death" 2001, Death Metal
+
+
+## Дискография
+
+### "Victims At Play" 1999, Death Metal
+
+1. Flesh Parade 03:31 
+2. Victims at Play 04:14
+3. Non Descript 03:26 
+4. Done In 03:42  
+5. Restoration 05:05  
+6. Fabrication 03:56 
+7. Disheveled 03:30  
+8. Co-Dependent 03:30  
+9. Cold Stale Souls 03:19  
+10. Bloody Meat 04:14  
+11. Interred in Dirt 03:49 
+
+
+After 15 minutes silence following "Interred in Dirt", one can find a hidden
+track (1:05).
+
+Line-up:
+Rich Hornberger - vocals
+Allen West - lead guitar
+Curt Beeson - drums
+Ben Meyer - lead guitar
+Scott Carino - bass 
+
+### "Sex. Violence. Death" 2001, Death Metal
+
+1. March 03:54 
+2. Destroy Yourself 04:35  
+3. Sex, Violence, Death... 02:45 
+4. Addiction 03:55 
+5. Trophy 03:22  
+6. Enforcer 03:11
+7. The Hatred You Create 04:11 
+8. Free Ride 03:42  
+9. Maniac 03:11  
+10. Rights 03:38 
+
+
 
 ## Отношения с другими группами
 

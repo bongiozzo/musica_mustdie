@@ -1,7 +1,19 @@
 # Shambless
 
-Дискография
-"Apkas Itulia" 2004, Folk
+
+
+## Дискография
+
+### "Apkas Itulia" 2004, Folk
+
+Aier Fertalas
+Paus Mor Cras
+Morba Voila
+Nen Nare Ros
+Aktrumo Ratunas
+Akramos
+Ut Meus Olito Pulvis A More Vacer
+
 
 ## Отношения с другими группами
 

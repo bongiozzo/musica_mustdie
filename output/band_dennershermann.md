@@ -1,8 +1,24 @@
 # Denner / Shermann
 
-Дискография
-"Satan's Tomb [EP]" 2015, Heavy Metal
-"Masters Of Evil" 2016, Heavy Metal
+Mercyful Fate guitarists
+
+## Дискография
+
+### "Satan's Tomb [EP]" 2015, Heavy Metal
+
+
+
+### "Masters Of Evil" 2016, Heavy Metal
+
+"Angel's Blood"
+ "Son Of Satan"
+ "The Wolf Feeds At Night"
+ "Pentagram And The Cross"
+ "Masters Of Evil"
+ "Servants Of Dagon"
+ "Escape From Hell"
+ "The Baroness"
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,13 @@
 # Absurd (FRA)
 
-Дискография
-"Dernieres Sommations" 2003, Progressive
+
+
+## Дискография
+
+### "Dernieres Sommations" 2003, Progressive
+
+
+
 
 ## Отношения с другими группами
 

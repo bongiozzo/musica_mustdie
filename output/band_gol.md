@@ -1,7 +1,19 @@
 # Gol
 
-Дискография
-"Appaller" 2011, Death Metal
+
+
+## Дискография
+
+### "Appaller" 2011, Death Metal
+
+01. On Destroyer Winds
+02. Sterile Doctrine
+03. Inferiae
+04. Dirge Impiety
+05. Algol Crowning
+06. Plaga Omega
+07. Dirge Hadean
+
 
 ## Отношения с другими группами
 

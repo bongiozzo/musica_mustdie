@@ -1,17 +1,233 @@
 # Bolt Thrower
 
-Дискография
-"In Battle There Is No Law" 1988, Death Metal
-"Realm Of Chaos"/"Slaves To Darkness" 1989, Death Metal
-"War Master" 1991, Death Metal
-"Cenotaph" 1991, Death Metal
-"The IV-th Crusade" 1992, Death Metal
-"Spearhead" 1993, Death Metal
-"...For Victory" 1994, Death Metal
-"Mercenary" 1998, Death Metal
-"Who Dares Wins" 1999, Metal
-"Honour Valour Pride" 2001, Death Metal
-"Those Once Loyal" 2005, Death Metal
+Legend Of England Death Metal
+
+## Дискография
+
+### "In Battle There Is No Law" 1988, Death Metal
+
+1. In Battle There Is No Law
+2. Challenge For Power
+3. Forgotten Existence
+4. Denial Of Destiny
+5. Blind To Defeat
+6. Concessions Of Pain
+7. Attack In The Aftermath
+8. Psychological Warfare
+9. Nuclear Annihilation
+
+ Karl - Vocals
+ Baz - Lead / Rhythm Guitar
+ Gav - Lead / Rhythm Guitar
+ Jo - Bass
+ Whale - Drums
+
+Recorded By Loco, USK
+Produced By Andrew Fryer
+Cover By Paul McHale
+
+(p)&(c) 1988 VINYL SOLUTION Sol 11CD
+
+### "Realm Of Chaos"/"Slaves To Darkness" 1989, Death Metal
+
+1. Intro
+2. Eternal War
+3. Through The Eye Of Horror
+4. Dark Millenniunt
+5. All That Remains
+6. Lost Souls Domain
+7. Plague Bearer
+8. World Eater
+9. Drowned In Torment
+10.Realm Of Chaos
+11.Prophet Of Hatred *
+12.Outro
+
+ Karl Willets - Vocals
+ Barry Thompson - Guitar
+ Gavin Ward - Guitar
+ Jo Bench  - Bass
+ Andy Whale - Drums
+
+(*) Bonus CD`s Track.
+Produced By BOLT THROWER & Dig.
+Engineered By Colin Richardson.
+Recorded At Loco Studios In April.
+Engineered By Tim Lewis.
+Mixed In July At Slaughterhouse By Colin Richardson.
+
+(p)&(c) 1989 EARACHE Records
+
+### "War Master" 1991, Death Metal
+
+1. Intro-Unleashed (Upon Mankind)
+2. What Dwells Within
+3. The Shreds Of Sanity
+4. Prophane Creation
+5. Final Revelation
+6. Cenotaph
+7. War Master
+8. Rebirth Of Humanity
+9. After Life
+
+ Karl Willets - Vocals 
+ Barry Thompson - Guitar
+ Gavin Ward - Guitar
+ Jo Bench - Bass
+ Andy Whale - Drums
+
+All Tracks Recorded & Produced By
+BOLT THROWER & Colin Richardson At
+Slaughterhouse Studio, Sep.1990.
+Artwork By Pete
+
+(p)&(c) 1991 EARACHE Records Mosh 29
+
+
+### "Cenotaph" 1991, Death Metal
+
+1. Cenotaph
+2. Destructive Infinity
+3. Prophet Of Hatred
+4. Realm Of Chaos (Live)
+
+(p)&(c) 1991 EARACHE Records
+
+### "The IV-th Crusade" 1992, Death Metal
+
+1. The IV-th Crusade
+2. Icon
+3. Embers
+4. Where Next To Conquer
+5. As The World Burns
+6. This Time Its War
+7. Ritual
+8. Spearhead
+9. Celestial Sanctuary
+10.Dying Creed
+11.Through The Ages (Outro)
+
+ Karl Willets - Vocals
+ Barry Thompson - Guitar
+ Gavin Ward - Guitar
+ Jo Bench - Bass
+ Andy Whale - Drums
+
+All Songs Written By BOLT THROWER.
+All Tracks Recorded & Produced By
+BOLT THROWER & Colin Richardson.
+Recorded By Sawmills Studio,Cornwall August 1992.
+Mixed At Fon Studios, Sheffield - September 1992
+Front Cover "Entry Of The Crusaders Into
+Constantinople" Painted By Delacroix In 1840
+
+(p)&(c) 1992 EARACHE Records
+
+
+### "Spearhead" 1993, Death Metal
+
+1. Spearhead (Extended Remix)
+2. Crown Of Life
+3. Dying Creed
+4. Lament
+
+ Karl Willets - Vocals
+ Barry Thompson - Guitar
+ Gavin Ward - Guitar
+ Jo Bench - Bass
+ Andy Whale - Drums
+
+All Songs Written By BOLT THROWER.
+All Tracks Recorded & Produced By
+BOLT THROWER & Colin Richardson.
+Recorded By Sawmills Studio,Cornwall.
+
+(p)&(c) 1993 EARACHE Records
+
+
+### "...For Victory" 1994, Death Metal
+
+1. War
+2. Remembrance
+3. When Glory Beckons
+4. ...For Victory
+5. Graven Image
+6. Lest We Forget
+7. Silent Demise
+8. Forever Fallen
+9. Tank (Mk.I)
+10. Armageddon Bound
+
+(p)&(c) 1994 EARACHE Mosh 120 CD
+
+### "Mercenary" 1998, Death Metal
+
+1. Zeroed.
+2. Laid To Waste.
+3. Return From Chaos.
+4. Mercenary.
+5. To The Last…
+6. Powder Burns.
+7. Behind Enemy Lines.
+8. No Guts, No Glory.
+9. Sixth Chapter.
+
+(c)&(p)1998 EARACHE
+
+BAZ THOMSON – rhythm & lead guitar
+GAVIN WARD – rhythm guitar
+JO BENCH – bass guitars
+ALEX THOMAS – drums
+KARL WILLETS – vocals
+
+Recorded and mixed at Chapel Studios, lincoln, Dec. '97 – Jan '98.
+Produced by BOLT THROWER and Ewan Davies. 
+All songs engineered by Ewan Davies, except "Powder Burns" engineered by James (Jan 90) Anderson.
+All music/lyrics by BOLT THROWER 1997
+
+Fron cover – sketch for "Contact, Wait Out" by Peter Archer
+Eye Motif – Jan Meininghaus
+Chaos Skull – Paul McHale
+
+### "Who Dares Wins" 1999, Metal
+
+1. Cenotaph 04:04 
+2. Destructive Infinity 04:14
+3. Prophet Of Hatred 03:53  
+4. Realm Of Chaos (live) 02:46 
+5. Spearhead (extended remix) 08:42
+6. Crown Of Life 05:29 
+7. Dying Creed 04:17
+8. Lament 05:37 
+9. World Eater '94 06:09 
+10. Overlord 04:29 
+
+### "Honour Valour Pride" 2001, Death Metal
+
+1. Contact Wait Out
+2. Inside The Wire
+3. Honour
+4. Suspect Hostile
+5. 7th Offensive
+6. Valour
+7. K-Machine
+8. A Hollow Truce
+9. Pride
+
+
+
+### "Those Once Loyal" 2005, Death Metal
+
+1. At First Light 
+2. Entrenched 
+3. The Killchain 
+4. Granite Wall 
+5. Those Once Loyal 
+6. Anti-Tank (Dead Armour) 
+7. Last Stand of Humanity 
+8. Salvo 
+9. When Cannons Fade
+
 
 ## Отношения с другими группами
 

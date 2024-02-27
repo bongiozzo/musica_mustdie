@@ -1,29 +1,419 @@
 # Sinner
 
-Дискография
-"Wild 'n' Evil" 1982, Heavy Metal
-"Fast Decision" 1983, Heavy Metal
-"Danger Zone" 1984, Heavy Metal
-"Touch Of Sin" 1985, Heavy Metal
-"Comin`Out Fighting" 1986, Heavy Metal
-"Dangerous Charm" 1987, Heavy Metal
-"Back To The Bullet" 1990, Heavy Metal
-"No More Alibis" 1992, Heavy Metal
-"Respect" 1993, Heavy Metal
-"Germany Rocks - The Best" 1994, Heavy Metal
-"Bottom Line" 1995, Heavy Metal
-"In The Line Of Fire - live" 1996, Heavy Metal
-"Judgement Day" 1997, Heavy Metal
-"The Nature Of Evil" 1998, Heavy Metal
-"The Second Decade (Best of)" 1999, Heavy Metal
-"The End Of Sanctuary" 2000, Heavy Metal
-"There will be Execution" 2003, Heavy Metal
-"Mask Of Sanity" 2007, Heavy Metal
-"Crash & Burn" 2008, Heavy Metal
-"One Bullet Left" 2011, Heavy Metal
-"Touch of Sin 2" 2013, Heavy Metal
-"No Place in Heaven - The Very Best of the Noise Years 1984-1987" 2016, Heavy Metal
-"Tequila Suicide" 2017, Heavy Metal
+
+
+## Дискография
+
+### "Wild 'n' Evil" 1982, Heavy Metal
+
+1. Loser Of Love  
+2. No Speed Limit  
+3. Murder  
+4. Ridin' The White Horse  
+5. Lost In A Dream  
+6. Heat Of The Nite  
+7. F.T.A.  
+8. Silly Thing  
+9. Shakin' The Devil's Hand  
+10. The Sin  
+11. Trouble
+
+### "Fast Decision" 1983, Heavy Metal
+
+1. Runnin' Wild  
+2. Crazy  
+3. Prelude No. 7  
+4. Magic  
+5. One Last Look  
+6. Fast Decision  
+7. Trouble Boys  
+8. In The City  
+9. Chains  
+10. Rockin'
+
+### "Danger Zone" 1984, Heavy Metal
+
+1. "Danger Zone" (3:38)
+2. "No Place in Heaven" (3:37)
+3. "Scene of a Crime" (3:40)
+4. "Lupo Manaro" (3:51)
+5. "Fast, Hard and Loud" (3:25)
+6. "The Shiver" (4:02)
+7. "Razor Blade" (3:15)
+8. "Shadow in the Night" (3:00)
+9. "Wild Winds" (2:59)
+10. "Rattlesnake" (2:58)
+11. "Danger Zone Reprise" -instrumental (:35)
+
+### "Touch Of Sin" 1985, Heavy Metal
+
+1.Born To Rock
+2.Emerald
+3.Bad Girl
+4.Shout!
+5.The Storm Broke Loose
+6.Out Of Control
+7.Too Late To Runaway
+8.Hand Of Fate
+9.Masquerade
+10.Open Arms
+11.Fast Decision
+12.Knife In My Heart
+
+### "Comin`Out Fighting" 1986, Heavy Metal
+
+1. "Hypnotized" (4:31)
+2. "Faster Than Light" (4:58)
+3. "Comin' Out Fighting" (3:06)
+4. "Age of Rock" (3:41)
+5. "Rebel Yell" (4:00)
+6. "Lost in a Minute" (2:49)
+7. "Don't Tell Me" (4:02)
+8. "Germany Rocks" (4:04)
+9. "Playing with Fire" (3:38)
+10. "Madhouse" (3:44)
+
+### "Dangerous Charm" 1987, Heavy Metal
+
+1. Concrete Jungle
+2. Knife In My Heart
+3. Dangerous Charm
+4. Everybody
+5. Nobody Rocks Like You
+6. Tomorrow Doesn't Matter
+7. Fight The Fight
+8. Back In My Arms
+9. Gypsy
+10. Desperate Heart
+11. Last Dance
+
+### "Back To The Bullet" 1990, Heavy Metal
+
+1. Back To The Bullet
+2. Tear Down The Wall
+3. Every Second Counts
+4. Call My Name
+5. Crazy Horses
+6. In The Name Of Rock'n'Roll
+7. Wildest Dreams
+8. Down Undercover
+9. Face To Face
+10. Crying In The Wires
+11. She's Got The Look
+
+Mat Sinner - Lead Vocals, Bass
+Tom Naumann - Guitars
+Alex Beyrodt - Guitars
+Tommy Geiger - Keyboards
+Tommy Resch - Drums
+Max Werner - Backing Vocals.
+Bernie Van Der Graf - Drums.
+Mathias Ulmer, Albert Boekhold - Keyboards
+'The Saints And One Bushwacker' (aka Tom, Alex, Mat and Max - yeah!) - Backing Vocals
+
+### "No More Alibis" 1992, Heavy Metal
+
+1. "When a Heart Breaks" (3:53)
+2. "Good Times" (3:36)
+3. "Where Were You" (5:00)
+4. "Burning Heart" (5:05)
+5. "Boys in Trouble" (3:57)
+6. "Save Me" (3:53)
+7. "I'm Not Over You Yet" (5:09)
+8. "Thrill of a Lifetime" (5:13)
+9. "So Excitable" (3:30)
+10. "Don't Wanna Lose You" (5:32)
+11. "Chasing my Dreams" (4:40)
+
+### "Respect" 1993, Heavy Metal
+
+1. "Respect" (5:09) 
+2. "Things Get Started" (3:36) 
+3. "Billy's Song" (6:07) 
+4. "Fire in the Dark" (4:02) 
+5. "Modern World" (5:00) 
+6. "All for One" (5:23) 
+7. "Knife in my Heart" (4:44) 
+8. "Don't Let this Dream Die Young" (4:28) 
+9. "Believer" (3:57) 
+10. "Little Victory" (5:04) 
+11. "Shattered Dreams" (4:39) 
+12. "What's so Bad about Feeling Good" (4:22)
+
+### "Germany Rocks - The Best" 1994, Heavy Metal
+
+1. Born To Rock
+2. Lost In A Minute
+3. Knife In My Heart
+4. Rebel Yell
+5. Everybody
+6. Respect
+7. Germany Rocks
+8. Bad Girl
+9. Back To The Bullet
+10. Back In My Arms
+11. Hypnotized
+12. Masquerade
+13. Danger Zone
+14. Faster Than Light
+15. The Concrete Jungle
+16. Out Of Control
+
+### "Bottom Line" 1995, Heavy Metal
+
+1. The Biggest Lie  
+2. Roses Of Yesterday  
+3. When Silence Falls  
+4. All Men Are Heroes  
+5. I Can't Stop The Fire  
+6. We'll Make It Alright  
+7. Rage Of A Hurricane  
+8. Mercy Killer  
+9. Dead End Street  
+10. In The Heart Of The Young  
+11. Hearts Of Steel  
+12. Say Goodbye
+
+### "In The Line Of Fire - live" 1996, Heavy Metal
+
+1. "When Silence Falls" (4:22) 
+2. "Comin' Out Fighting" (3:09) 
+3. "All Men are Heroes" (4:30) 
+4. "Back in My Arms" (4:06) 
+5. "Respect" (5:11) 
+6. "The Biggest Lie" (3:50) 
+7. "Born to Rock" (4:44) 
+8. "Knife in My Heart" (5:26) 
+9. "Rebel Yell" (4:50) 
+10. "Rage of a Hurricane" (3:22) 
+11. "Everybody" (5:36) 
+12. "Modern World" (3:02) 
+13. "There's Only One Way to Rock" (4:12)
+
+### "Judgement Day" 1997, Heavy Metal
+
+1. Smoke And Mirror
+2. Used To The Truth
+3. Blue Tattoo
+4. White Lightning
+5. Judgement Day
+6. Pray For Mercy
+7. Jump The Gun
+8. Streets Of Sin
+9. Deathwalker
+10. School Of Hard Knocks
+11. The Fugitive
+12. Troublemaker
+13. The River Runs Dry
+
+Tom Naumann - Guitars & Vocals
+Fritz Randow - Drums
+Mat Sinner - Lead Vocals & Bass
+Alex Beyrodt - Guitars & Vocals
+Frank Roessler - Keyboards
+
+### "The Nature Of Evil" 1998, Heavy Metal
+
+1. A Question Of Honour
+2. Some Truth 
+(has better left unknown)
+3. The Nature Of Evil
+4. Calm Before The Storm
+5. Justice From Hell
+6. Rising
+7. Devil's River
+8. Searching For Your Love
+9. Faith And Conviction
+10. Walk On The Dark Side
+11. Trust No One
+12. The Sun Goes Down
+13. Twisted Mind
+Tom Nauman - Guitars
+Fritz Randow - Drums
+Mat Sinner - Vocals & Bass
+Alex Beyrodt - Guitars
+Frank Rossler - Keyboards
+Back. Vocals By Mat Sinner & Ralf Scheepers
+
+### "The Second Decade (Best of)" 1999, Heavy Metal
+
+1. "The Second Decade" [intro] (1:13)
+2. "Jump the Gun" (4:04)
+3. "When Silence Falls" (3:45)
+4. "Devil's River" (5:18)
+5. "Used to the Truth" (4:59)
+6. "Question of Honour" (7:16)
+7. "The Truth Is Out There" (3:55)
+8. "Balls to the Wall " (5:39)
+9. "Judgement Day" (8:50)
+10. "The Biggest Lie" (3:49)
+11. "Streets of Sin" (7:21)
+12. "Rage of Hurricane" (3:21)
+13. "The Nature of Evil" (7:31)
+14. "Born to Rock" (4:41)
+15. "Respect" [acoustic] (5:17)
+16. multimedia track
+
+### "The End Of Sanctuary" 2000, Heavy Metal
+
+1. Signed, Sealed & Delivered
+2. Blood Relations
+3. The End Of Sanctuary
+4. Pain In Your Neck
+5. Edge Of The Blade
+6. The Prophecy
+7. Destiny
+8. Congress Of Deceit
+9. Heavy Duty
+10. Night Of The Wolf
+11. Broken World
+12. Hand Of The Saint
+
+### "There will be Execution" 2003, Heavy Metal
+
+01. Higher Level Of Violence (Sinner/Wolter)
+02. There Will Be Execution (Sinner)
+03. Requiem For A Sinner (Sinner/Wolter)
+04. Die On Command (Sinner/Wolter)
+05. Finalizer (Sinner/Naumann)
+06. Locked & Loaded (Sinner/Naumann)
+07. God Raises The Dead (Sinner/Naumann)
+08. The River (Sinner/Naumann)
+09. Liberty Of Death (Sinner)
+10. Black Monday (Sinner/Naumann)
+11. Crown Of Thorns (Sinner/Wolter)
+Bonus (from limited edition bonus CD single)
+12. Wherever I May Roam (Metallica)
+
+### "Mask Of Sanity" 2007, Heavy Metal
+
+1. The Other Side   
+2. Diary Of Evil   
+3. Badlands   
+4. Black   
+5. The Thunder Roar   
+6. The Sign   
+7. Revenge   
+8. Under The Gun   
+9. Can't Stand The Heat   
+10. No Return   
+11. Last Man Standing   
+12. Baby Please Don't Go (Bonus track)
+
+### "Crash & Burn" 2008, Heavy Metal
+
+1. Crash & Burn 04:08 
+2. Break The Silence 03:21
+3. The Dog 04:10 
+4. Heart Of Darkness 04:39 
+5. Revolution 03:54  
+6. Unbreakable 03:16
+7. Fist To Face 02:59 
+8. Until It Hurts 03:35 
+9. Little Head 03:12
+10. Connection 04:05
+11. Like A Rock 03:53 
+
+### "One Bullet Left" 2011, Heavy Metal
+
+1.The One You Left Behind 
+2.Back on Trail 
+3.Give & Take 
+4.One Bullet Left 
+5.10 2 Death 
+6.Haunted 
+7.Atomic Playboys 
+8.Suicide Mission 
+9.Wake Me When I'm Sober 
+10.Mind Over Matter 
+11.Mend to be Broken 
+12.Rolling Away
+
+
+The CD was recorded in Stuttgart, Germany with Mat Sinner producing and Achim Kцhler engineering.
+ 
+Limited edition contains 2 bonus tracks: 
+13. Still Unbroken (03:38)
+14. My Final Day (03:43) 
+
+### "Touch of Sin 2" 2013, Heavy Metal
+
+1. Born to Rock  04:37   
+2. Comin' Out Fighting  03:03  
+3. Bad Girl  03:50   
+4. Knife in My Heart  04:28   
+5. Concrete Jungle  03:07   
+6. Don't Believe a Word (Thin Lizzy cover)  03:53   
+7. Shout!  03:36  
+8. Germany Rocks  03:48   
+9. Danger Zone  03:15   
+10. Emerald  03:51   
+11. Blood on the Sand  03:12   
+12. Lost in a Minute  02:35   
+13. Masquerade  03:20  
+14. Heat of the City  02:57 
+
+
+Album of re-recorded songs.
+Tracks 11 and 14 are new songs. Track 6 is a Thin Lizzy cover.
+Recorded at House of Music Studios.
+Mixed at the Indiscreet Audio.
+
+
+### "No Place in Heaven - The Very Best of the Noise Years 1984-1987" 2016, Heavy Metal
+
+Disc 1  
+1. Danger Zone
+2. No Place in Heaven   
+3. Lupo Manaro      
+4. The Shiver      
+5. Shadow in the Night    
+6. Wild Winds     
+7. Rattlesnake   
+8. Born to Rock    
+9. Bad Girl     
+10. Shout!    
+11. The Storm Broke Loose  
+12. Out of Control   
+13. Too Late to Run Away  
+14. Hand of Fate      
+15. Masquerade      
+  
+Disc 2  
+1. Age of Rock   
+2. Comin' Out Fighting   
+3. Rebel Yell      
+4. Germany Rocks   
+5. Lost in a Minute    
+6. Faster Than Light   
+7. Hypnotized   
+8. Don't Tell Me (That the Love Has Gone)    
+9. Knife in My Heart      
+10. Dangerous Charm      
+11. Nobody Rocks Like You    
+12. Concrete Jungle      
+13. Fight the Fight      
+14. Back in My Arms      
+15. Desperate Heart  
+
+
+### "Tequila Suicide" 2017, Heavy Metal
+
+1. Go Down Fighting  02:37 
+2. Tequila Suicide  03:14   
+3. Road to Hell  03:31  
+4. Dragons  05:01   
+5. Battle Hill  04:08    
+6. Sinner Blues  04:31  
+7. Why  03:56    
+8. Gypsy Rebels  03:26  
+9. Loud & Clear  04:09  
+10. Dying on a Broken Heart  04:42    
+11. House of Rock  04:11    
+12. Monday Morning  03:50    
+13. I Am  03:37  
+
+
 
 ## Отношения с другими группами
 

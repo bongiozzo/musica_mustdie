@@ -1,7 +1,30 @@
 # Eisblut
 
-Дискография
-"Schlachtwerk" 2005, Death Metal
+
+
+## Дискография
+
+### "Schlachtwerk" 2005, Death Metal
+
+1. Wenn Der Konig Stirbt; 
+2. Silbersarg; 
+3. Sag: Ich Will Tot Sein; 
+4. Uberreste; 
+5. Wiegenlied Vom Totschlag; 
+6. Gespenst In Den Trummern; 
+7. ?; 
+8. Schlachtwerk; 
+9. Krankes Herz; 
+10. Uber Dem Jenseits; 
+11. Menschenfleischwolf; 
+12. Am Glockenseil; 
+13. Altersheim
+
+All songs written by EISBLUT
+Produced by EISBLUT
+Engineered by Markus Stock
+Recorded and mixed at Klangschmiede E Studio
+
 
 ## Отношения с другими группами
 

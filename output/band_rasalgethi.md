@@ -1,7 +1,35 @@
 # Ras Algethi
 
-Дискография
-"Oneiricon - The White Hypnotic" 1996, Ambient
+
+
+## Дискография
+
+### "Oneiricon - The White Hypnotic" 1996, Ambient
+
+1. Aldebaran Crossing
+2. The Bride Eternal
+3. When Fire Is Father
+4. Keys Of Urtam (A Translucent Vision)
+5. With An Halo Of Flames
+6. Symbols (In Luce Obliqua)
+[7]. Nubes Obscura
+[8]. In White Hypnotic
+
+[7],[8] - Ha стороне B
+
+All songs wntten by RAS ALGETHI.
+Produced by Marco Allegri and RAS ALGETHI.
+Engineered by Marco Allegri.
+Recorded and mixed at New Hammil Studio, Milano.
+
+Matteo - Guitars
+Luca - Keyboards
+Huldus - Guitars and Vocals
+Mauro - Guitars and Clean Vocals
+Silvio - Drums
+
+(p)c 1996 WOUNDED LOVE Records
+
 
 ## Отношения с другими группами
 

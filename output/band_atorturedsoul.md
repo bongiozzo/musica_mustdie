@@ -1,10 +1,60 @@
 # A Tortured Soul
 
-Дискография
-"Tomorrow's Door" 2005, Heavy Metal
-"Kiss of the Thorn" 2007, Heavy Metal
-"Lucifer's Fate" 2010, Heavy Metal
-"On This Evil Night" 2016, Heavy Metal
+
+
+## Дискография
+
+### "Tomorrow's Door" 2005, Heavy Metal
+
+1.	 Cut & Bleed	02:58
+2.	 Tomorrow's Door	05:01
+3.	 13	05:25
+4.	 Poltergeist	03:15
+5.	 Parasite	06:09
+6.	 Not Tonight	04:40
+7.	 Evil Side	04:37
+8.	 The Chain	04:00
+9.	 Darkness	04:06
+10.	 Tortured Soul	04:09
+
+### "Kiss of the Thorn" 2007, Heavy Metal
+
+1.	 Tomorrow's Door
+2.	 Not Tonight
+3.	 Nocturne
+4.	 Little Girl
+5.	 Cut and Bleed
+6.	 Altar of Sangria
+7.	 Kiss of the Thorn
+8.	 Parasite
+9.	 The Chain
+10.	 13
+
+### "Lucifer's Fate" 2010, Heavy Metal
+
+1.	 Ritual
+2.	 Lucifer's Fate
+3.	 Eye of Ra
+4.	 Ashes to Ashes
+5.	 Dark Chapel
+6.	 Fallen
+7.	 Rust
+8.	 Reign
+9.	 Winterkill
+
+### "On This Evil Night" 2016, Heavy Metal
+
+1. On This Evil Night
+2. Crimson
+3. Black Dragon
+4. Dreams
+5. All Alone
+6. Smoke
+7. Waiting For Death
+8. The Ripper's Curse
+9. Mourning Son
+10. Murdering
+
 
 ## Отношения с другими группами
 

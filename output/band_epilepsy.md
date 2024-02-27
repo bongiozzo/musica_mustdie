@@ -1,7 +1,23 @@
 # Epilepsy
 
-Дискография
-"Rozois" 1996, Industrial
+
+
+## Дискография
+
+### "Rozois" 1996, Industrial
+
+1. Track Te Skouh
+2. Dilisces Steits
+3. Aerobloust
+4. Krahr
+5. Breckoweei
+6. Phananelebos
+7. Morodais
+8. Rozois
+9. Ozosapin
+
+(P)(C) 1996 PARAGORIC Publishing
+
 
 ## Отношения с другими группами
 

@@ -1,13 +1,62 @@
 # Emmure
 
-Дискография
-"The Complete Guide To Needlework (EP)" 2006, Deathcore
-"Goodbye To The Gallows" 2007, Deathcore
-"The Respect Issue" 2008, Deathcore
-"Felony" 2009, Deathcore
-"Speaker Of The Dead" 2011, Deathcore
-"Slave To The Game" 2012, Deathcore
-"Eternal Enemies" 2014, Deathcore
+
+
+## Дискография
+
+### "The Complete Guide To Needlework (EP)" 2006, Deathcore
+
+
+
+### "Goodbye To The Gallows" 2007, Deathcore
+
+
+
+### "The Respect Issue" 2008, Deathcore
+
+
+
+### "Felony" 2009, Deathcore
+
+
+
+### "Speaker Of The Dead" 2011, Deathcore
+
+
+
+### "Slave To The Game" 2012, Deathcore
+
+01. Insert Coin
+02. Protoman
+03. She Gave Her Heart to Deadpool
+04. I Am Onslaught
+05. Bison Diaries
+06. Poltergeist
+07. Cross Over Attack
+08. Umar Dumps Dormammu
+09. Blackheart Reigns
+10. Mdma
+11. War Begins With You
+12. A.I.
+
+### "Eternal Enemies" 2014, Deathcore
+
+01. (Untitled) (1:39)
+02. Nemesis (2:52)
+03. N.I.A. (News in Arizona) (3:29)
+04. The Hang Up (2:52)
+05. A Gift a Curse (4:10)
+06. E (2:53)
+07. Like Lamotta (2:47)
+08. Free Publicity (2:21)
+09. Most Hated (2:58)
+10. Grave Markings (3:29)
+11. Hitomi's Shinobi (3:28)
+12. Rat King (2:34)
+13. Girls Don't Like Boys, Girls Like 40's and Blunts (2:50)
+14. New Age Rambler (2:47)
+15. We Were Just Kids (3:38)
+
 
 ## Отношения с другими группами
 

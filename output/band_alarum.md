@@ -1,9 +1,66 @@
 # Alarum
 
-Дискография
-"Fluid Motion" 1999, Techno Death
-"Eventuality" 2004, Techno Death
-"Natural Causes" 2011, Techno Death
+
+
+## Дискография
+
+### "Fluid Motion" 1999, Techno Death
+
+1. Realization 05:24 
+2. Internal 03:11  
+3. It Passes Always 04:40 
+4. Blueprint 07:21 
+5. Could This Be Real 06:10  
+6. Severed 06:03  
+7. Taking Place 05:03 
+8. Silence 05:20 
+
+
+Vocals, Bass: Mark Palfreyman 
+Guitars: Scott Young 
+Guitars: Mark Evans 
+Drums: Matthew Racovalis
+
+### "Eventuality" 2004, Techno Death
+
+1. Velocity 03:18  
+2. Sustained Connection 03:30 
+3. Lost Pleiad 01:14  
+4. Receiver 03:30 
+5. Remote Viewing 04:04  
+6. Inertial Grind 03:02  
+7. Cygnus X-1 02:13  
+8. Throughout The Moment 03:31
+9. Woven Imbalance 02:53 
+10. Boundless Intent (Part 1) 01:16  
+11. Boundless Intent (Part 2) 02:48  
+12. Subject To Change 03:22  
+13. Event Duality 02:13 
+14. Audio Synthesis 01:07  
+15. Reconditioned 04:22
+
+### "Natural Causes" 2011, Techno Death
+
+1. Natural Causes 03:22 
+2. Shifting Skies Like Nothing 02:58 
+3. For New Creation 04:44 
+4. The Signal 05:22 
+5. Evspaсol 00:57 
+6. Non-Linear Parallels 02:59 
+7. Silent Betrayal 04:34 
+8. Interface 03:36 
+9. Boundless Intent Part 3 03:20 
+10. Sensory Endeavour 04:03 
+11. Transpiration 01:26 
+12. Undivided 03:40
+
+
+
+Mark Palfreyman - Bass/Vocals 
+Rob Brens - Drums 
+Ryan Williams - Guitar 
+John Sanders - Guitar 
+
 
 ## Отношения с другими группами
 

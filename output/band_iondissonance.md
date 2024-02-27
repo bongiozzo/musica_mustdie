@@ -1,10 +1,25 @@
 # Ion Dissonance
 
-Дискография
-"Breathing Is Irrelevant" 2003, Deathcore
-"Solace" 2005, Deathcore
-"Minus The Herd" 2007, Deathcore
-"Cursed" 2010, Deathcore
+
+
+## Дискография
+
+### "Breathing Is Irrelevant" 2003, Deathcore
+
+
+
+### "Solace" 2005, Deathcore
+
+
+
+### "Minus The Herd" 2007, Deathcore
+
+
+
+### "Cursed" 2010, Deathcore
+
+
+
 
 ## Отношения с другими группами
 

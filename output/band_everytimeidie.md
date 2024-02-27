@@ -1,13 +1,37 @@
 # Every Time I Die
 
-Дискография
-"Burial Plot Bidding War (EP)" 2000, Metalcore
-"Last Night In Town" 2001, Metalcore
-"Hot Damn!" 2003, Metalcore
-"Gutter Phenomenon" 2005, Metalcore
-"The Big Dirty" 2007, Metalcore
-"New Junk Aesthetic" 2009, Metalcore
-"Ex Lives" 2012, Metalcore
+
+
+## Дискография
+
+### "Burial Plot Bidding War (EP)" 2000, Metalcore
+
+
+
+### "Last Night In Town" 2001, Metalcore
+
+
+
+### "Hot Damn!" 2003, Metalcore
+
+
+
+### "Gutter Phenomenon" 2005, Metalcore
+
+
+
+### "The Big Dirty" 2007, Metalcore
+
+
+
+### "New Junk Aesthetic" 2009, Metalcore
+
+
+
+### "Ex Lives" 2012, Metalcore
+
+
+
 
 ## Отношения с другими группами
 

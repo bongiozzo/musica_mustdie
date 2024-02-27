@@ -1,7 +1,13 @@
 # Sentinel Beast
 
-Дискография
-"Depths Of Death" 1986, Thrash
+
+
+## Дискография
+
+### "Depths Of Death" 1986, Thrash
+
+
+
 
 ## Отношения с другими группами
 

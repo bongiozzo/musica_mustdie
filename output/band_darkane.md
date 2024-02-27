@@ -1,13 +1,124 @@
 # Darkane
 
-Дискография
-"Rusted Angel" 1999, Melodic Death Metal
-"Insanity" 2001, Melodic Death Metal
-"Expanding Sences" 2002, Death Industrial
-"Rusted Angel (re-release)" 2003, Thrash
-"Layers Of Lies" 2005, Death Industrial
-"Demonic Art " 2008, Thrash
-"The Sinister Supremacy" 2013, Thrash
+Swedish death metal with thrash & industrial influences
+
+## Дискография
+
+### "Rusted Angel" 1999, Melodic Death Metal
+
+01. Intro 
+02. Convicted  
+03. Bound  
+04. Rape of Mankind 
+05. Rusted Angel 
+06. A Wisdoms Breed  
+07. Chase for Existence 
+08. The Arcane Darkness 
+09. July 1999 
+10. Frenetic Visions
+
+### "Insanity" 2001, Melodic Death Metal
+
+01. Calamitas 
+02. Third.  
+03. Emanation Of Fear 
+04. Impure Perfection 
+05. Hostile Phantasm 
+06. Psychic Pain 
+07. 000111 
+08. The Perverted Beast 
+09. Distress 
+10. Inausspicious Coming 
+11. Pile Of Hate 
+12. Inverted
+
+### "Expanding Sences" 2002, Death Industrial
+
+01. Innocence Gone
+02. Solitary Confinement
+03. Fatal Impact
+04. Imaginary Entity
+05. Violence from Within
+06. The Fear of One?s Self
+07. Chaos Vs Order
+08. Parasites of the Unexplained
+09. Submission
+
+Christofer Malmstrom - guitars
+Peter Wildoer - drums
+Jorgen Lofberg - bass
+Klas Ideberg - guitars
+Andreas Sydow - vocals
+
+Produced by Daniel Bergstrand and Darkane Mixed by
+Daniel Bergstrand, Orjan Ornkloo & Peter Wildoer
+at Dug Out Productions Recorded and mixed February
+to May 2002. Drums and vocals recorded at Dug Out
+Productions Guitars and bass recorded at the
+Darkane studio Engineered by Daniel Bergstrand and
+Darkane Samples and keyboard programming by Orjan
+Ornkloo Mastered by Thomas Eberger at Cutting
+Room, Stockholm Cover and booklet artwork by
+Thomas Ewerhard Photos by Ulla Alderin,
+Helsingborg Sketches drawn by Jonas Olrog
+Classical guitar on "Violence from within" played
+by Klas Wounsch. Vocal guest appearence on "Chaos
+Vs order" by Lawrence Mackrory.
+
+### "Rusted Angel (re-release)" 2003, Thrash
+
+1. Intro
+2. Convicted
+3. Bound
+4. The Rape Of Mankind
+5. Rusted Angel
+6. A Wisdoms Breed
+7. Chase For Existence
+8. Relief In Disguise (Bonus)
+9. The Arcane Darkness
+10. July 1999
+11. Frenetic Visions
+12. A Wisdoms Breed (live)
+13. Convicted (live)
+
+### "Layers Of Lies" 2005, Death Industrial
+
+01. Amnesia of the Wildoerian Apocalypse
+02. Secondary Effects
+03. Organic Canvas
+04. Fading Dimensions
+05. Layers of Lies
+06. Godforsaken Universe
+07. Klastrophobic Hibernation
+08. Vision of Degradation
+09. Contaminated
+10. Maelstrom Crisis
+11. Decadent Messiah
+12. The Creation Insane
+
+### "Demonic Art " 2008, Thrash
+
+01. Variations of an Eye Crush (intro)
+02. Leaving Existence
+03. Demonic Art
+04. Absolution
+05. Exectution 44
+06. Impetious Constant Chaos
+07. Demigod
+08. Soul Survivor
+09. The Killing of I
+10. Wrong Grave
+
+Сhristofer Malmstrom - guitars
+Peter Wildoer - drums
+Jorgen Lofberg - bass
+Klas Ideberg - guitars
+Jens Broman - Vocals
+
+### "The Sinister Supremacy" 2013, Thrash
+
+
+
 
 ## Отношения с другими группами
 

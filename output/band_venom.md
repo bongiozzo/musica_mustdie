@@ -1,27 +1,477 @@
 # Venom
 
-Дискография
-"Welcome to Hell" 1981, Black Metal
-"Black Metal" 1982, Black Metal
-"At War With Satan" 1984, Black Metal
-"Possessed" 1985, Black Metal
-"Singles '80 - '86" 1986, Black Metal
-"Calm Before the Storm" 1987, Black Metal
-"Prime Evil" 1989, Speed Metal
-"Eine Kleine Nachtmusic" 1989, Black Metal
-"Temples of Ice" 1991, Black Metal
-"Old, New, Borrowed and Blue (Re-Rec Collection)" 1993, Black Metal
-"Leave me in Hell (Collection)" 1993, Black Metal
-"Skeletons in the Closet (Re-Rec Collection)" 1994, Black Metal
-"From Heaven to the Unknown" 1998, Black Metal
-"New, Live & Rare" 1998, Black Metal
-"Cast in Stone" 1998, Black Metal
-"Court of Death" 2000, Black Metal
-"Ressurection" 2000, Death Metal
-"Metal Black" 2006, Black Metal
-"Hell" 2008, Black Metal
-"Hammerhead (single)" 2011, Black Metal
-"Fallen Angels" 2011, Black Metal
+Parents of Black Metal
+
+## Дискография
+
+### "Welcome to Hell" 1981, Black Metal
+
+Sons of Satan            3.36
+Welcome to Hell          3.12
+Schizo                   3.30
+Mayhem with mercy        0.58
+Poison                   4.28
+Live like an Angel -
+  - Die like a Devil     3.55
+Witching hour            3.40
+One thousand
+  days in Sodom          4.33
+Angel dust               2.39
+In league with Satan     3.32
+Red light fever          5.10
+
+Cronos        Bulldozer Bass & Vocals
+Mantas        Chainsaw Guitar Dives
+Abaddon       Drums & Nuclear Warheads
+
+### "Black Metal" 1982, Black Metal
+
+Black metal              3.44
+To Hell and back         3.03
+Buried alive             4.12
+Raise the dead           2.53
+Teacher's pet            4.44
+Leave me in Hell         3.36
+Sacrifice                4.30
+Heavens on fire          3.42
+Countess Bathory         3.47
+Don't burn the witch /
+ / At war with Satan
+  Preview)               5.37
+
+Cronos    Rabid captor of bestial malevolance
+Mantas    Grand master of Hades & Mayhem
+Abaddon   Barbaric gardian to the 7 gates of Hell
+
+(P) 1982 Neat Records
+
+All songs: (Lant/Dunn/Bray) - Power Metal/Neat Music.
+Produced by VENOM & Keith Nichol at Impulse Studios, Newcastle.
+
+### "At War With Satan" 1984, Black Metal
+
+At war with Satan       19.57
+Rip ride                 3.08
+Genocide                 2.58
+Cry wolf                 4.19
+Stand up and be counted  3.31
+Women, leather and Hell  3.21
+Aaaaaarrghh              2.22
+
+(P) 1984 Neat Records
+
+All songs: (Lant/Dunn)- Power Metal/Neat Music.
+Produced by VENOM.
+Engineered by Martin Smith & Keith Nichol.
+Recorded at Impulse Studio, England.
+
+### "Possessed" 1985, Black Metal
+
+Powerdrive                .
+Flytrap                   .
+Satanachist               .
+Were gonna burn this
+  place to the ground     .
+Harmony dies              .
+Possessed                 .
+Hellchild                 .
+Moonshine                 .
+Suffer not the children   .
+Voyeur                    .
+Mystique                  .
+Too loud (For the crowd)  .
+
+### "Singles '80 - '86" 1986, Black Metal
+
+  1. In League With Satan
+  2. Live Like An Angel
+  3. Blood Lust
+  4. In Nomine Satanas
+  5. Die Hard
+  6. Acid Queen
+  7. Bursting Out
+  8. Warhead
+  9. Seven Gates Of Hell
+ 10. Lady Lust
+ 11. Manitou
+ 12. Dead Of The Night
+ 13. Woman
+ 14. FOAD
+ 15. Satanachist
+ 16. Nightmare
+
+(p) 1986 Raw Power
+
+
+
+### "Calm Before the Storm" 1987, Black Metal
+
+Black Xmas *             2.56
+The chanting
+  of the priests #       4.24
+Metal punk *#            3.23
+Under the spell *#       4.08
+Calm before the storm #  4.13
+Fire #                   2.42
+Kracking up #            2.14
+Beauty and the Beast #   3.49
+Deadline *               3.16
+Gypsy #                  2.25
+Muscle *                 2.42
+
+Cronos     Vocals, Bass
+Mike       Guitars, B Vox
+Jim        Guitars, Keybd's, B Vox
+Abaddon    Drums, B Vox
+
+Solo's: # - Hickey, * - Clare
+
+Produced by Nick Tauber & VENOM.
+Engineered by Keith Nichol & Andy Lovell.
+Mastered at the Master Room by Aaron Charraverty.
+
+All songs composed & arranged by VENOM.
+Copyright 1987 Filmtrax.
+Cover design: North Parsons.
+
+### "Prime Evil" 1989, Speed Metal
+
+Prime evil               4.41
+Parasite                 3.08
+Blackened
+  are the priests        4.19
+Carnivorous              2.11
+Skeletal dance           3.09
+Megalomania              5.25
+Insane                   2.57
+Harder then ever         3.11
+Into the fire            3.22
+Skool daze               4.22
+Live like an Angel -
+  - Die like a Devil     3.05
+
+"Demolition Man"  Bass,Vocals
+Al Barnes        Rhytm Guitar
+Mantas            Lead Guitar
+Abaddon    Drums & Percussion
+
+(P) 1989 Under One Flag
+(C) 1989 Music For Nations
+
+Published by Filmtrax PLC,
+except "Megalomania" published by Westminister Music.
+
+Produced by Nick Tauber & Kevin Ridley.
+
+All songs by Venom,
+except "Blackened are the priests" and "Carnivorous" by Dolan,
+and "Megalomania" by Jommy/Ward/Osbourne/Butler.
+
+Recorded at Lunx Studio, Newcastle.
+Mixed at Jacobs Studio, Surrey.
+Mastered at Townhouse, London.
+
+### "Eine Kleine Nachtmusic" 1989, Black Metal
+
+1. Intro (Dunn/Lant) - 1:33 
+2. Too Loud (For the Crowd) (Dunn/Lant) - 2:49 
+3. 7 Gates of Hell (Bray/Dunn/Lant) - 4:40 
+4. Leave Me in Hell (Bray/Dunn/Lant) - 3:10 
+5. Nightmare (Dunn/Lant) - 3:41 
+6. Countess Bathory (Bray/Dunn/Lant) - 3:36 
+7. Die Hard (Bray/Dunn/Lant) - 2:49 
+8. Schitzo (Bray/Dunn/Lant) - 3:24 
+9. Guitar Solo Mantas (Dunn/Lant) - 3:12 
+10.In Nomine Satanas (Bray/Dunn/Lant) - 3:25 
+11.Witching Hour (Bray/Dunn/Lant) - 4:15 
+12.Black Metal (Bray/Dunn/Lant) - 3:28 
+13.Chanting of the Priests (Dunn/Lant) - 4:57 
+14.Satanachist (Bray/Dunn/Lant) - 1:58 
+15.Fly Trap (Bray/Dunn/Lant) - 3:36 
+16.Warhead (Bray/Dunn/Lant) - 4:16 
+17.Buried Alive (Bray/Dunn/Lant) - 5:36 
+18.Love Amongst the Dead (Dunn/Lant) - 3:46 
+19.Bass Solo Cronos (Dunn/Lant) - 3:08 
+20.Welcome to Hell (Bray/Dunn/Lant) - 4:03 
+21.Bloodlust (Bray/Dunn/Lant) 
+
+
+### "Temples of Ice" 1991, Black Metal
+
+ 1. Tribes
+ 2. Even In Heaven
+ 3. Trinity MCMXLV 0530
+ 4. In Memory Of (Paul Miller 1964-90)
+ 5. Faerie Tale
+ 6. Playtime
+ 7. Acid
+ 8. Arachnid
+ 9. Speed King
+10. Temples Of Ice
+
+(p)1991 Under One Flag
+
+### "Old, New, Borrowed and Blue (Re-Rec Collection)" 1993, Black Metal
+
+Countess Bathory (Re-Recorded) 4.34 Lant/Dunn/Bray) - Neat Publishing/NTV Music
+Sceletal dance '89 3.06 (Dolan/Bray/Dunn) - EMI Tunes PLC
+Speed king 3.29   (Glover/Gillian/Blackmore/Lord/Paice) - HEC Music
+Welcome to Hell (Re-Recorded) 2.39 (Lant/Dunn/Bray) - Neat Publishing/NTV Music
+Playtime 3.18 (Dunn/Dray/Mantas - Songwaves LTD
+Die hard 2.51 (Lant/Dunn/Bray) - Neat Publishing/NTV Music
+Clarisse 4.47   (Lant/Dunn/Bray) - NTV Music
+Hell bent for leather (Live) 2.19   (Tipton) - EMI Songs LTD
+Prime evil '89 4.39 (Venom) - EMI Tunes PLC
+Teacher's pet (Live) 2.24 (Lant/Dunn/Bray) - Neat Publishing/NTV Music
+School daze '89 4.19 (Dolan/Bray/Dunn) - EMI Tunes PLC
+Faerie tale 4.22 (Bray/Dolan/Dunn/Mantas) - Songwaves LTD
+Megalomania '89 5.24 (Jommy/Ward/Osbourne/Butler) - Westminister Music LTD
+Temples of ice '91 6.27 (Bray/Dolan/Dunn/Mantas) - Songwaves LTD 
+The witching hour (Re-Recorded) 3.31 (Lant/Dunn/Bray) - Neat Publishing/NTV Music
+
+(P)+(C) 1993 Bleeding Hearts Records
+
+### "Leave me in Hell (Collection)" 1993, Black Metal
+
+Leave me in Hell '82     3.33
+Black metal '82          3.41
+Burn this place
+  to the ground '85      2.38
+Buried alive '82         4.14
+Schizo '81               3.29
+Witching hour '81        3.35
+Teacher's pet '82        4.41
+Too loud
+  for the croud '85      2.59
+Welcome to Hell '81      3.11
+Satanachict '85          2.42
+Flytrap '85              3.48
+Sons of Satan '81        3.34
+Poison '81               4.26
+Hellchild '85            2.40
+Angel dust '81           2.37
+Powerdrive '85           3.17
+
+This compilation (P) 1993 Elap Music LTD.
+All songs: (Lant/Dunn/Bray) - NTV Music LTD/Leosong Copyright Service LTD
+Copyright in this sound recording is owned by Neat Records
+and licensed to Elap Music LTD
+
+### "Skeletons in the Closet (Re-Rec Collection)" 1994, Black Metal
+
+Tour intro tape (83/84) /
+  / Welcome to Hell       .     (Remix) 
+Dead on arrival           .     (Previously unreleased)  
+Snots shit                .     (Demo, previously unreleased)  
+Black metal               .     (Remix)  
+Hounds of Hell            .     (Previously unreleased)  
+At war with Satan         .     (TV advertisements)  
+At war with Satan         .     (Full re-edited version)  
+Bitch witch               .     (Previously unreleased)  
+Intro tapes               .     (Tours 85/86)  
+Possessed                 .     (Remix)  
+Sadist
+  (Mistress of the whip)  .     (Prev unreleased)  
+Manitou                   .     (Abbey Road uncut mix)  
+Angel dust                .
+Raise the dead            .
+Red light fever           .
+Venom station             .     (Rradio station ID's for America and Spain) 
+
+### "From Heaven to the Unknown" 1998, Black Metal
+
+1. Welcome to Hell (Bray/Dunn/Lant) 
+2. Witching Hour (Bray/Dunn/Lant) 
+3. Angel Dust (Bray/Dunn/Lant) 
+4. Red Light Fever (Bray/Dunn/Lant) 
+5. Black Metal (Bray/Dunn/Lant) 
+6. Buried Alive (Bray/Dunn/Lant) 
+7. Teacher's Pet (Bray/Dunn/Lant) 
+8. Countess Bathory (Bray/Dunn/Lant) 
+9. Don't Burn the Witch (At War with Satan -... (Bray/Dunn/Lant) 
+10.Rip Ride (Dunn/Lant) 
+11.Cry Wolf (Dunn/Lant) 
+12.Women Leather and Hell (Dunn/Lant) 
+13.Santachrist (Dunn/Lant) 
+14.Possessed (Dunn/Lant) 
+15.Hellchild (Dunn/Lant) 
+16.Mystique (Dunn/Lant) 
+17.Too Loud for the Crowd (Dunn/Lant) 
+18.In League with Satan (Bray/Dunn/Lant) 
+19.Live Like an Angel, Die Like a Devil (Bray/Dunn/Lant) 
+20.Bloodlust (Bray/Dunn/Lant) 
+21.In Nomine Satanas (Bray/Dunn/Lant) 
+22.Die Hard (Bray/Dunn/Lant) 
+23.Acid Queen (Bray/Dunn/Lant) 
+24.Bursting Out (Bray/Dunn/Lant) 
+25.Warhead (Bray/Dunn/Lant) 
+26.Ladylust (Bray/Dunn/Lant) 
+27.7 Gates of Hell (Bray/Dunn/Lant) 
+28.Manitou (Dunn/Lant) 
+29.Dead of the Night (Lant) 
+30.Dead on Arrival (Bray/Dunn/Lant) 
+31.Hounds of Hell (Bray/Dunn/Lant) 
+32.Bitch Witch (Bray/Dunn/Lant) 
+33.Sadist (Bray/Dunn/Lant) 
+34.Black Metal (Bray/Dunn/Lant) 
+35.Snots Shit (Bray/Dunn/Lant) 
+
+
+### "New, Live & Rare" 1998, Black Metal
+
+1. Harder Than Ever (Bray/Dolan/Dunn) 
+2. Skeletal Dance (Bray/Dolan/Dunn) 
+3. Speed King (Blackmore/Gillan/Glover/Lord/Paice) 
+4. Welcome to Hell (Bray/Dolan/Dunn) 
+5. Blackened Are the Priest (Bray/Dolan/Dunn) 
+6. Playtime (Bray/Dolan/Dunn) 
+7. Carnivorous (Bray/Dolan/Dunn) 
+8. Die Hard (Bray/Dunn/Lant) 
+9. Hell Bent for Leather (Tipton) 
+10.Burstin Out (Bray/Dunn/Lant) 
+11.Prime Evil (Bray/Dolan/Dunn) 
+12.Black Metal (Bray/Dunn/Lant) 
+13.Megalomania (Butler/Iommi/Osbourne/Ward) 
+14.Faerie Tale (Bray/Dolan/Dunn) 
+15.Civilized (Bray/Dolan/Dunn) 
+16.Clarrise (Bray/Dolan/Dunn) 
+17.Temples of Ice (Bray/Dolan/Dunn) 
+18.Angel Dust (Bray/Dunn/Lant) 
+19.Teacher's Pet (Bray/Dunn/Lant) 
+20.Witching Hour (Bray/Dunn/Lant) 
+
+
+### "Cast in Stone" 1998, Black Metal
+
+1. Evil One (Bray/Dunn/Lant) - 3:18 
+2. Raised in Hell (Dunn/Lant) - 2:49 
+3. All Devils Eve (Lant) - 2:54 
+4. Bleeding (Dunn/Lant) - 2:04 
+5. Destroyed & Damned (Dunn/Lant) - 6:46 
+6. Domus Mundi (Bray) - 3:53 
+7. Flight of the Hydra (Dunn/Lant) - 3:23 
+8. God's Forsaken - 4:25 
+9. Mortals (Lant) - 3:16 
+10.Infectious (Dunn/Lant) - 3:37 
+11.Kings or Evil (Lant) - 4:16 
+12.You're All Gonna Die (Lant) - 3:02 
+13.Judgement Day (Lant) - 4:33 
+14.Swarm (Bray) - 5:07 
+15.Intro (Bray/Dunn/Lant) - 1:58 
+16.Bloodlust (Bray/Dunn/Lant) - 2:59 
+17.Die Hard (Dunn/Lant) - 3:03 
+18.Acid Queen (Bray/Dunn/Lant) - 2:47 
+19.Burstin' Out (Bray/Dunn/Lant) - 2:47 
+20.Warhead (Bray/Dunn/Lant) - 4:11 
+21.Ladylust (Bray/Dunn/Lant) - 2:49 
+22.Mamtou (Dunn/Lant) - 3:42 
+23.Rip Ride (Dunn/Lant) - 3:07 
+24.Venom (Bray/Dunn/Lant) - 4:11 
+
+
+### "Court of Death" 2000, Black Metal
+
+1. Cursed - 7:32 
+2. In Momory Of - 5:10 
+3. Wolverine - 4:16 
+4. Arachnid - 4:05 
+5. I'm Paralysed - 2:41 
+6. Crucified - 2:32 
+7. Live Like an Angel-Die Like a Devil - 3:30 
+8. Into the Fire - 3:03 
+9. Riddle of Steel - 3:22 
+10.Shadow King - 2:46 
+11.Shadow King - 3:52 
+12.Trinity MCMXLV 0530 - 3:29 
+13.Black Legions - 3:42 
+14.Parasite - 3:08 
+15.Acid - 4:12 
+16.Tribes - 3:44 
+17.Even in Heaven - 4:03 
+18.Kissing the Beast - 3:23 
+
+
+### "Ressurection" 2000, Death Metal
+
+1. Resurrection - 3:03 
+2. Vengeance - 3:51 
+3. War Against Christ - 4:23 
+4. All There Is Fear - 4:42 
+5. Pain - 4:02 
+6. Pandemonium - 4:31 
+7. Loaded - 2:44 
+8. Firelight - 4:55 
+9. Black Flame of Satan - 4:32 
+10.Control Freak - 3:03 
+11.Disbeliever - 3:40 
+12.Man, Myth & Magic - 3:49 
+13.Thirteen - 3:37 
+14.Leviathan - 4:30 
+
+
+### "Metal Black" 2006, Black Metal
+
+01. Antechrist
+02. Burn In Hell
+03. House of Pain
+04. Death & Dying
+05. Rege Satanas
+06. Darkest Realm
+07. A Good Day to Die
+08. Assassin
+09. Lucifer Rising
+10. Blessed Dead
+11. Hours of Darkness
+12. Sleep When I'm Dead
+13. Maleficarvm
+14. Metal Black
+
+### "Hell" 2008, Black Metal
+
+01. Straight To Hell 
+02. The Power And The Glory 
+03. Hand Of God 
+04. Fall From Grace 
+05. Hell 
+06. Evil Perfection 
+07. Stab U In The Back 
+08. Armageddon 
+09. Kill The Music 
+10. Evilution Devilution 
+11. Blood Sky 
+12. USA For Satan 
+13. Dirge / The Awakening
+
+### "Hammerhead (single)" 2011, Black Metal
+
+1. Hammerhead 04:59
+2. Hail Satanas 04:35
+
+
+
+### "Fallen Angels" 2011, Black Metal
+
+1. Hail Satanas 
+2. Pedal to the Metal 
+3. Nemesis 
+4. Lap of the Gods 
+5. Hammerhead 
+6. Damnation of Souls 
+7. Fallen Angels 
+8. Beggarman 
+9. Sin 
+10. Punk's Not Dead 
+11. Death Be Thy Name 
+12. Valley of the Kings 
+13. Lest We Forget 
+
+
+Cronos - Vocals, Bass 
+Rage - Guitars 
+Dante - Drums 
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,23 @@
 # Human Temple
 
-Дискография
-"Insomnia" 2004, Hard Rock
+melodic hard rock
+
+## Дискография
+
+### "Insomnia" 2004, Hard Rock
+
+1. I'm Sorry 
+2. Goin' All The Way (guitar solo: Erkka Korhonen)
+3. Dreamchild 
+4. Out Of Love 
+5. Desert Rain 
+6. Animal (guitar solo: Jani Liimatainen)
+7. Walk Between The Shadows 
+8. Judas My Brother 
+9. On A Night Like This 
+10. Till The Day I Die (guitar solo: Emppu Vuorinen)
+11. Forever
+
 
 ## Отношения с другими группами
 

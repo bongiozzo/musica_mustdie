@@ -1,8 +1,33 @@
 # Saints Of Eden
 
-Дискография
-"The Other Side" 1998, Gothic
-"Proteus" 2001, Gothic
+EBM/Industrial
+
+## Дискография
+
+### "The Other Side" 1998, Gothic
+
+1. Unwind
+2. Bleed
+3. War of Words
+4. Restless
+5. The other side
+6. You lie
+7. Just one
+8. Times like this
+9. Divide
+
+### "Proteus" 2001, Gothic
+
+01 Lost Raiders 
+02 Crushed
+03 Lightscape
+04 Millenium Dawn
+05 Zero
+06 Barbed Wire
+07 Technochrist
+08 Scent
+09 Another Dark Day 
+
 
 ## Отношения с другими группами
 

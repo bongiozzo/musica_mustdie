@@ -1,10 +1,34 @@
 # Red Fang
 
-Дискография
-"Red Fang" 2009, Stoner
-"Murder The Mountains " 2011, Stoner
-"Whales and Leeches" 2013, Stoner
-"Only Ghosts" 2016, Stoner
+
+
+## Дискография
+
+### "Red Fang" 2009, Stoner
+
+
+
+### "Murder The Mountains " 2011, Stoner
+
+01. Malverde 
+02. Wires 
+03. Hank Is Dead 
+04. Dirt Wizard 
+05. Throw Up 
+06. Painted Parade 
+07. Number Thirteen 
+8. Into The Eye 
+09. The Undertow 
+10. Human Herd
+
+### "Whales and Leeches" 2013, Stoner
+
+
+
+### "Only Ghosts" 2016, Stoner
+
+
+
 
 ## Отношения с другими группами
 

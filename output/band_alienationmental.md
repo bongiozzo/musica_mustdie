@@ -1,7 +1,13 @@
 # Alienation Mental
 
-Дискография
-"_" , Deathcore
+death/grind from Czech
+
+## Дискография
+
+### "_" , Deathcore
+
+
+
 
 ## Отношения с другими группами
 

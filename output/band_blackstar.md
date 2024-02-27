@@ -1,7 +1,30 @@
 # Blackstar
 
-Дискография
-"Barbed Wire Soul" 1997, Death Metal
+
+
+## Дискография
+
+### "Barbed Wire Soul" 1997, Death Metal
+
+1. Game Over
+2. Smile
+3. Sound Of Silence
+4. Rock'N'Roll Circus
+5. New Song
+6. Give Up The Ghost
+7. Revolution Of The Heart
+8. Waste Of pace
+9. Deep Wound
+10. Better The Devil
+11. Instrumental
+Ken - drums
+Carlo - lead guitar
+Griff - guitar
+Jaff - bass and vocals
+Produced By Colin Richardson
+All Music Thrown together by BLACKSTAR
+All lyrics are aimed on you
+
 
 ## Отношения с другими группами
 

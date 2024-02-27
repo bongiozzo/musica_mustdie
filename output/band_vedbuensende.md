@@ -1,8 +1,50 @@
 # Ved Buens Ende
 
-Дискография
-"Written In Waters" 1995, Black Metal
-"Those Who Caress The Pale" 1997, Black Metal
+
+
+## Дискография
+
+### "Written In Waters" 1995, Black Metal
+
+1. I Sang For The Swans
+2. You,  That May Wither
+3. It's Magic
+4. Den Saakaldte
+5. Carrier Of Wounds
+6. Coiled In Wings
+7. Autumn Leaves
+8. Remembrance Of Things Past
+9. To Swarm Deserted Away
+
+All Songs Written By VED BUENS ENDE.
+Recorded & Mixed At Endless Studio By Ved BUENS ENDE & Pal.
+
+Carl-Michael - Song, Drums & Percussion
+Vicotnik - Grim Voice & Guitars
+Skoll - Bass
+
+Session Female Vocals By Katrine S.
+
+(P)&(C) 1995 MISANTHROPY Records
+
+### "Those Who Caress The Pale" 1997, Black Metal
+
+1. A Mask In The Mirror             5:25
+2. The Carrier Of Wounds            8:10
+3. You That May Wither              4:37
+4. The Plunderer                    5:13
+5. Those Who Caress The Pale        6:19
+6. Insects (part I) bonus track     6:38
+
+
+Line-up:
+
+   * Vicotnik - guitar, grim voice
+   * Carl-Michael - song, crying, drums
+   * Skoll - bass, keyboard
+
+Skoll appears courtesy of Vargnatt Inc.
+
 
 ## Отношения с другими группами
 

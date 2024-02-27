@@ -1,12 +1,72 @@
 # Dark Sanctuary
 
-Дискография
-"Royaume Melancolique" 1999, Ambient
-"De lumiere et d'obscurite" 2000, Ambient
-"L'etre las / L'envers du miroir" 2003, Ambient
-"Les Memoires Blessees" 2004, Ambient
-"Exaudi Vocem Meam, part I" 2005, Ambient
-"Exaudi Vocem Meam, part II" 2006, Ambient
+Gothic Ambient
+
+## Дискография
+
+### "Royaume Melancolique" 1999, Ambient
+
+
+
+### "De lumiere et d'obscurite" 2000, Ambient
+
+
+
+### "L'etre las / L'envers du miroir" 2003, Ambient
+
+
+
+### "Les Memoires Blessees" 2004, Ambient
+
+01. La Clameur du Silence
+02. Presence
+03. D'une Mere a sa Fille
+04. L'adieu a l'Enfant (1)
+05. L'adieu a l'Enfant (2)
+06. Abre los Ojos
+07. A quoi bon?
+08. Laissez moi Mourir
+09. L'emprisonnee
+10. Puisses-lu…
+11. L'instant Funebre
+12. Perdition
+13. Les Memoirs Blesses
+
+Dame Pandora - vocals
+Arkdae - keyboards & guitars
+Marguerite - violin & bagpipe
+Hylgaryss - keyboards
+Eliane - violin
+Sombre Cyr - bass & percussions
+
+### "Exaudi Vocem Meam, part I" 2005, Ambient
+
+01. Ouverture 2'33
+02. Elle et l'aube 7'41
+03. Dein kalter Stein 5'56 
+04. Memento Mei 6'51
+05. The garden of Jane Delawney 3'55
+06. Cristal 6'51
+07. Mon errance... 3'50 
+08. A mes ennemis 8'05
+09. Sortie du cloоtre 5'02
+10. Des illusions 4'19
+11. Je m'en irai 7'19
+
+### "Exaudi Vocem Meam, part II" 2006, Ambient
+
+01. Dies Mortis 6'35
+02. Vision meurtrie 8'06
+03. La rкveuse 4'26
+04. L'inconnue 6'15
+05. Creuseur de terre 5'07
+06. L'autre monde 4'58
+07. Au cour de l'oubli 6'00
+08. J'ai rкvй d'une vie 6'20
+09. Femme d'un soldat mort 5'53
+10. Un jour, peut-кtre... 6'07
+11. La complainte de Sally 1'39
+
 
 ## Отношения с другими группами
 

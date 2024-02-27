@@ -1,15 +1,111 @@
 # H.I.M.
 
-Дискография
-"Greatest Lovesongs, vol. 666" 1997, Gothic
-"Join Me" 1999, Gothic
-"Razorblade Romance" 2000, Gothic
-"Right Here In My Arms" 2000, Gothic
-"Deep Shadows and Brilliant Highlights" 2001, Gothic
-"Love Metal" 2003, Gothic
-"Dark Light" 2005, Gothic
-"Screamworks: Love In Theory And Practice" 2010, Gothic
-"Strange World [single]" 2012, Gothic
+
+
+## Дискография
+
+### "Greatest Lovesongs, vol. 666" 1997, Gothic
+
+1. Your Sweet Six Six Six
+2. Wicked Game
+3. The Heartless
+4. Our Diabolikal Rapture
+5. It's All Tears (Drown In This Love)
+6. When Love And Death Embrace
+7. The Beginning Of The End
+8. (Don't Fear) The Reaper
+9. For You
+
+(p) 1997 BMG
+
+### "Join Me" 1999, Gothic
+
+
+
+### "Razorblade Romance" 2000, Gothic
+
+01. I love you (prelude to tragedy)      3.09
+02. Poison girl                          3.51
+03. Join me in death                     3.36
+04. Right here in my arms                4.03
+05. Gone with the sin                    4.22
+06. Razorblade kiss                      4.18
+07. Bury me deep inside your heart       4.16
+08. Heaven tonight                       3.18
+09. Death is in love with us             2.58
+10. Resurrection                         3.39
+11. One last time                        5.10
+12. Sigillum diaboli               bonustrack
+13. The 9th circle                  bonustrack
+
+### "Right Here In My Arms" 2000, Gothic
+
+1. right here in my arms 3:23 (radio edit)
+2. join me in death 3:36 (razorblade mix) 
+3. the heartless 3:58 (space jazz dubmen mix)
+4. Iґve crossed oceans of wine to find you 4:39 (ltd.edition only)
+5. Dark Secret Love 05:17
+
+### "Deep Shadows and Brilliant Highlights" 2001, Gothic
+
+01. Salt in Our Wounds
+02. Heartache Every Moment
+03. Lose You Tonight
+04. In Joy and Sorrow
+05. Pretending
+06. Close to the Flame
+07. Please Don’t Let it Go
+08. Beautiful
+09. Don’t Close Your Heart
+10. Love You Like I Do
+
+### "Love Metal" 2003, Gothic
+
+1. Buried Alive By Love, 5:01
+2. The Funeral Of Hearts, 4:29
+3. Beyond Redemption, 4:27
+4. Sweet Pandemonium, 5:46
+5. Soul on Fire, 3:59
+6. The Sacrament, 4:30
+7. Fortress Of Tears, 5:47
+8. Circle Of Fear, 5:24
+9. Endless Dark, 5:32
+10. The Path, 7:42
++ The Funeral Of Hearts video, 3:39
+
+### "Dark Light" 2005, Gothic
+
+01. Dark Light 
+02. Behind the Crimson Door 
+03. Face of God 
+04. Bound to be Wrong 
+05. Killing Loneliness 
+06. Under the Rose 
+07. Forever Haunted 
+08. Wings of a Butterfly 
+09. Night in Despair 
+10. Drunk on Shadows
+
+### "Screamworks: Love In Theory And Practice" 2010, Gothic
+
+1. In Venere Veritas
+2. Scared To Death
+3. Heartkiller
+4. Dying Song
+5. Disarm Me (With Your Loneliness)
+6. Love, The Hardest Way
+7. Katherine Wheel
+8. In The Arms Of Rain
+9. Ode To Solitude
+10. Shatter Me With Hope
+11. Acoustic Funeral (For Love In Limbo)
+12. Like St. Valentine
+13. The Foreboding Sense Of Impending Happiness
+
+### "Strange World [single]" 2012, Gothic
+
+01.Strange World (KE Cover) 04:48
+
 
 ## Отношения с другими группами
 

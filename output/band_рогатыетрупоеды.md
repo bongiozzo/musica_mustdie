@@ -1,11 +1,57 @@
 # Рогатые Трупоеды
 
-Дискография
-"Девки, Секс и Трупный Яд" 2003, Deathcore
-"The Kvlt and Troo and Eevil and Grimm and Nekro EP" 2008, Death Metal
-"Circvs Ov Sins: Enter The Vices" 2009, Death Metal
-"Забодаю и Сьем" 2014, Death Metal
-"Отруби лихую голову [EP]" 2015, Metal
+
+
+## Дискография
+
+### "Девки, Секс и Трупный Яд" 2003, Deathcore
+
+1. Dancing on Your Grave
+2. Warkraft
+3. Армагеддон - День всех богов 
+4. This Life
+5. Vengeanscythe
+6. Я на солнышке гнию 
+7. Да будет Тьма!
+8. Lady Mutant
+9. Медсестра 
+10. Девки, секс и трупный яд
+11. 666 Medley - The Anarchy of the Beast (live - bonus track)
+
+
+
+### "The Kvlt and Troo and Eevil and Grimm and Nekro EP" 2008, Death Metal
+
+1. Лень и Пламя
+2. Die, Die, Bitch!
+3. Твой маленький сейф
+4. Dancing On Your Grave (rev. 2008)
+5. Валенки
+
+### "Circvs Ov Sins: Enter The Vices" 2009, Death Metal
+
+1. Welcome To The Show (Intro) 04:08
+2. SnakeLust (Похоть) 03:43
+3. Сахарная Смерть(Обжорство) 04:27 
+4. Лень и Пламя (Леность) 03:42] 
+5. Твой Маленький Сейф (Алчность) 02:41
+6. Die, Die, Bitch! (Зависть) 03:42
+7. Death By The Thread (Гордыня) 03:31 
+8. Jungle Revenge (Гнев) 04:12 ] 
+9. Grand Finale (Outro) 04:43 
+
+### "Забодаю и Сьем" 2014, Death Metal
+
+
+
+### "Отруби лихую голову [EP]" 2015, Metal
+
+1. Hellhound (Ода Винсбольту Хромому — Истребителю Крыс и Порождению Тьмы)
+2. Кантри-Шмантри
+3. Vengeanscythe (anno 2015 edition)
+4. Highway to Hell (feat. Masha Ariskina)
+5. Vorona in the Jar (песенка пластилиновой бутылки виски) 
+
 
 ## Отношения с другими группами
 

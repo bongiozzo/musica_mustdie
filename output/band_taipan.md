@@ -1,9 +1,45 @@
 # Taipan
 
-Дискография
-"Stonewitch" 2007, Heavy Metal
-"Flamethrower" 2010, Heavy Metal
-"Snakes" 2011, Heavy Metal
+
+
+## Дискография
+
+### "Stonewitch" 2007, Heavy Metal
+
+1. Majestic Freeze	 
+2. Insomnia	 
+3. Tired of You	 
+4. Stonewitch	 
+5. Speculum	 
+6. The Cellar X	 
+7. War and Disaster	 
+8. Extremist and Militants
+
+### "Flamethrower" 2010, Heavy Metal
+
+1. Snakes	 
+2. King Of Thieves	 
+3. The Rising	 
+4. Underground	 
+5. Lady	 
+6. Nemesis	 
+7. Black Circle 
+8. Isolated	 
+9. Stand On Ruins
+
+### "Snakes" 2011, Heavy Metal
+
+1. Tired of you
+2. Snakes
+3. Stand on ruins
+4. Insomnia
+5. King of thieves
+6. Lady
+7. Majestic freeze
+8. Stonewitch
+9. Isolated
+10. The cellar X
+
 
 ## Отношения с другими группами
 

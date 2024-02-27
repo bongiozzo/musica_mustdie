@@ -1,10 +1,41 @@
 # Hail Of Bullets
 
-Дискография
-"…Of Frost And War" 2008, Death Metal
-"Warsaw Rising (EP)" 2009, Death Metal
-"On Divine Winds" 2010, Death Metal
-"III - The Rommel Chronicles" 2013, Death Metal
+Old School Death Metal
+
+## Дискография
+
+### "…Of Frost And War" 2008, Death Metal
+
+1.	Before the Storm (Barbarossa)		
+2.	Ordered Eastward	
+3.	The Lake Ladoga Massacre	
+4.	General Winter	
+5.	Advancing Once More	
+6.	Red Wolves of Stalin		
+7.	Nachthexen	
+8.	The Crucial Offensive (19-11-1942, 7.30 AM)	
+9.	Stalingrad	05:03	
+10.	Insanity Commands (bonus track)	
+11.	Inferno at the Carpathian Mountains	
+12.	Berlin
+
+### "Warsaw Rising (EP)" 2009, Death Metal
+
+1.	Liberators		
+2.	Warsaw Rising		
+3.	Destroyer (Twisted Sister Cover)		
+4.	Red Wolves Of Stalin (Live)		
+5.	Nachthexen (Live)		
+6.	The Crucial Offensive (Live)
+
+### "On Divine Winds" 2010, Death Metal
+
+
+
+### "III - The Rommel Chronicles" 2013, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

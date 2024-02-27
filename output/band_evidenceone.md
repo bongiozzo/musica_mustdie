@@ -1,9 +1,48 @@
 # Evidence One
 
-Дискография
-"Criticize The Truth" 2002, Hard Rock
-"Tatooed Heart" 2004, Hard Rock
-"The Sky Is The Limit" 2007, Hard Rock
+
+
+## Дискография
+
+### "Criticize The Truth" 2002, Hard Rock
+
+01. Criticize The Truth 
+02. Trust Vs. Heart 
+03. Different Worlds - Different Times 
+04. Like Never Before 
+05. Frozen In Time 
+06. Fool's Gold 
+07. In The Beginning There Was Fire 
+08. Spend The Top With Me 
+09. Perfect Love 
+10. Heavy Heart Betrayed 
+
+
+
+
+Robby Boebel (guitar, keys / FRONTLINE)
+Carsten "Lizard" Schulz (vox / DOMAIN)
+Thomas "Hutch" Bauer (bass / FRONTLINE)
+Roger Tanner (drums / SHAKRA)
+
+
+### "Tatooed Heart" 2004, Hard Rock
+
+01. Moonsigh
+02. Virus In My Veins
+03. Written In Blood
+04. Tattooed Heart
+05. Infinite Seconds
+06. When Thunder Hits The Ground
+07. In Love And War
+08. Slave To The Machine
+09. Anything I Need To Know
+10. Child Of Insanity
+
+### "The Sky Is The Limit" 2007, Hard Rock
+
+
+
 
 ## Отношения с другими группами
 

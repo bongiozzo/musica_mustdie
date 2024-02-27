@@ -1,7 +1,23 @@
 # Disintegrate
 
-Дискография
-"Parasites of a Shifting Future" 2010, Melodic Death Metal
+
+
+## Дискография
+
+### "Parasites of a Shifting Future" 2010, Melodic Death Metal
+
+1. Abecedarium	01:34	 
+2. Mediacrity	04:08	 
+3. The Art of Clairvoyance	04:02	 
+4. Casus Belli	05:05	 
+5. Parasites of a Shifting Future	04:52	 
+6. Twist of Faith	03:56	 
+7. The Architect	03:51	 
+8. Shatter Them	03:49	 
+9. The Subtle Decay	05:18	 
+10. Within the Pain	04:26	 
+11. These Scars	05:42
+
 
 ## Отношения с другими группами
 

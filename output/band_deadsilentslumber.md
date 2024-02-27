@@ -1,7 +1,19 @@
 # Dead Silent Slumber
 
-Дискография
-"Entombed In The Midnight Hour" 2000, Death Metal
+Death metal with elements of black and gothic
+
+## Дискография
+
+### "Entombed In The Midnight Hour" 2000, Death Metal
+
+01. In The Glare Of The Moon 
+02. Reborn By The Seed Of Death
+03. Smell The Incense 
+04. Entombed In The Midnight Hour
+05. Blood Collapse
+06. Raising The Suicide Challange
+07. Lick The Wound
+
 
 ## Отношения с другими группами
 

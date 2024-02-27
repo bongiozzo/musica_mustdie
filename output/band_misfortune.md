@@ -1,7 +1,20 @@
 # Misfortune
 
-Дискография
-"Forsaken" 1999, Death Metal
+
+
+## Дискография
+
+### "Forsaken" 1999, Death Metal
+
+Forsaken 
+Scenery of Despair 
+Rape of Bewildered Dreams 
+In Mating 
+Burn! 
+Through Chaos Fulfilled 
+A Realm of the Unblessed 
+Apostates of Hate
+
 
 ## Отношения с другими группами
 

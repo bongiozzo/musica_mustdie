@@ -1,23 +1,355 @@
 # Meshuggah
 
-Дискография
-"Meshuggah" 1989, Techno Death
-"Contradictions Collapse" 1991, Techno Death
-"None" 1994, Techno Death
-"Destroy Erase Improve" 1995, Techno Death
-"Selfcaged" 1995, Techno Death
-"The True Human Design" 1997, Techno Death
-"Chaosphere" 1998, Techno Death
-"Contradictions Collapse & None" 1999, Techno Death
-"Rare Trax" 2001, Techno Death
-"Nothing" 2002, Techno Death
-"I EP" 2004, Techno Death
-"Catch 33" 2005, Techno Death
-"Nothing [Re-release]" 2006, Techno Death
-"ObZen" 2008, Techno Death
-"Alive [DVD]" 2010, Techno Death
-"Koloss" 2012, Techno Death
-"The Violent Sleep Of Reason" 2016, Techno Death
+
+
+## Дискография
+
+### "Meshuggah" 1989, Techno Death
+
+1. Cadaverous Mastication 
+2. Sovereignes Morbidity 
+3. The Dept of Nature 
+
+
+### "Contradictions Collapse" 1991, Techno Death
+
+1. Paralyzing Ignorance 
+2. Erroneous Manipulation 
+3. Abnegating Cecity     
+4. Internal Evidence 
+5. Qualms of Reality     
+6. We'll Never See the Day 
+7. Greed 
+8. Choirs of Devastation     
+9. Cadaverous Mastication 
+
+ 
+
+Line-up
+Fredrik Thordendal: Guitar & Lead Vocals 
+Peter Nordin: Bass & Vocals 
+Jens Kidman: Guitar & Lead Vocals 
+Tomas Haake: Drums & Vocals 
+
+Versions
+NB 049 LP 08-29981 (Nuclear Blast Europe) 
+NB 049 CD 84-29982 (Nuclear Blast Europe) 
+NB 049 MC 08-29984 (Nuclear Blast Europe) 
+Japanese version: Victor VICP-5660 (Mundo). Bonus tracks: Sickening, Gods of Rapture, Aztec Two-step. The lyrics might be printed in Japanese. 
+There's an early promotion cassette called "All this Because of Greed". It contains "Qualms of Reality" and "We'll Never See the Day". Label: Nuclear Blast. 
+Trivia
+"Cadaverous Mastication" is a remake of the same song on the previous album known as "Psykisk Testbild". This song is not included on the vinyl version or the cassette version. 
+At first, the album was meant to be called "(All this because of) Greed". 
+
+
+ 
+
+ 
+
+
+### "None" 1994, Techno Death
+
+1. Humiliative
+2. Sickening
+3. Ritual
+4. Gods Of Rapture
+5. Aztec Two - Step
+
+Produced By MESHUGGAH & Danne Bergstrand.
+
+Jens Kidman - Guitar
+Fredrik Thordendal - Guitar & Vocals
+Peter Nordin - Bass & Vocals
+Tomas Haake - Drums &Vocals
+
+(P)&(C) 1994 NUCLEAR BLAST Records
+
+### "Destroy Erase Improve" 1995, Techno Death
+
+1. Future Breed Machine
+2. Beneath
+3. Soul Burn
+4. Transfixion
+5. Vanished
+6. Acrid Placidity
+7. Inside What's Within Behind
+8. Suffer In Truth
+10.Sublevels
+
+Produced By MESHUGGAH & Danne Bergstrand.
+Engineered By Danne Bergstrand.
+Recorded & Mixed At Soundfront Studios Uppsala,Sweden Feb-95.
+
+Jens Kidman - Lead Vocals
+Marten Hagstrom - Rhythm Guitar
+Fredrik Thordendal - Rhythm & Lead Guitars
+Peter Nordin - Bass
+Tomas Haake - Drums,Voice
+
+(P)&(C) 1995 NUCLEAR BLAST Records
+
+### "Selfcaged" 1995, Techno Death
+
+1. Vanished 
+2. Suffer in Truth 
+3. Inside What's Within Behind 
+4. Gods of Rapture (live) 
+
+
+Line-up
+Tomas Haake: Drums, Voice 
+Jens Kidman: Lead Vocals 
+Fredrik Thordendal: Rhythm Guitar, Solo Guitar & Synthesizers 
+Mеrten Hagstrцm: Rhythm Guitar 
+Peter Nordin: Bass Guitar 
+
+Versions
+CD NB 132-2 / 27361 61322 (Nuclear Blast Europe) 
+There is also a cassette version, we think the label is "vmp". 
+There exists an early version, made for the Machine Head tour. It has the same songs, but an earlier mix, with the beginning of "Gods of Rapture" partly broken. It has the same cover as the "real" Selfcaged, but also includes info on tour dates. 
+There also exists a special version for the USA, with different songs - see our special page on it. 
+Trivia
+Tracks 1, 2, and 3 are early versions of the same songs on "Destroy Erase Improve". These were recorded at Garageland Studio, Umeе in April/May 1994. 
+Track 4 was recorded live at Hultsfredsfestivalen 1994 by Sveriges Radio P3. 
+ 
+
+
+
+### "The True Human Design" 1997, Techno Death
+
+1. Sane 
+2. Future Breed Machine (live) 
+3. Future Breed Machine (mayhem version) 
+4. Futile Bread Machine (campfire version) 
+5. Quant's Quantastical Quantasm (ambient techno by Quant of DOT) 
+6. Friend's Breaking and Entering (ambient techno by Friend of DOT) 
+7. CD-ROM data, including the video for "Terminal Illusions" 
+
+
+
+
+Line-up
+Tomas Haake: Drums, Lead vocals on Futile Bread Machine 
+Jens Kidman: Lead Vocals 
+Fredrik Thordendal: Rhythm Guitar, Solo Guitar, Acoustic Guitar, Bass Guitar 
+Mеrten Hagstrцm: Rhythm Guitar 
+Gustaf Hielm: Bass Guitar on Future Breed Machine (live) 
+
+Versions
+NB 268-2 MCD (Nuclear Blast Europe) - digipack 
+CD 1683 6268 2 (Nuclear Blast America) 
+Trivia
+With some CD drives, you can't read the video data. With some, you can't even play the songs. This seems to be a problem with both the European and the US versions. We don't know whether it's the disk or the drive that is to blame. 
+The title "The True Human Design" was chosen because of the cover picture. 
+The CD-ROM data includes some background music taken from Sol Niger Within. 
+The live version of "Future Breed Machine" was recorded May 1997 in Umeе. 
+The mayhem version of "Future Breed Machine" was mixed in May 1997 together with Jocke Skog of Clawfinger. According to Jens, it is so hard it makes "Aztec Two-step" sound like tepid milk. According to Fredrik, it makes "Aztec Two-Step" sound like cotton or toilet-paper. 
+The American version has some typos and other flaws, for example the cover picture is crooked. 
+The strange sound in the 13/8 part in FBM live is a smoke machine. 
+ 
+
+
+
+### "Chaosphere" 1998, Techno Death
+
+1. Concatenation 
+2. New Millennium Cyanide Christ 
+3. Corridor of Chameleons 
+4. Neurotica   
+5. The Mouth Licking What You've Bled   
+6. Sane 
+7. The Exquisite Machinery of Torture   
+8. Elastic   
+ 
+
+Line-up
+Tomas Haake: Drums 
+Jens Kidman: Lead Vocals 
+Fredrik Thordendal: Rhythm Guitar, Solo Guitar & Synthesizers 
+Mеrten Hagstrцm: Rhythm Guitar 
+Gustaf Hielm: Bass Guitar 
+
+Versions
+CD NB 336-2 (Nuclear Blast) Promo. 
+CD (Nuclear Blast) 
+Trivia
+When selecting Chaosphere audio samples for this web, the DSD had this debate. Provided here so that you-all can know the degree of CP-ness that lies deep within behind our vortex souls. 
+In the album's ending, we think we hear the following songs take part in the chaotic chaos: "Concatenation", "New Millenium Cyanide Christ", "Corridor of Chameleons", and "Neurotica". The rest are not there, we're pretty sure. 
+The song "Unanything" was recorded, but dropped from the album. It was a calm, melodic song, much like "Acrid Placidity". It was included on an early promo. 
+Tomas Haake had the name of one song figured out already in 1995, "The Exquisite Machinery of Torture". 
+The complete lyrics for the song "The Exquisite Machinery of Torture" was published in the Fanclub's newsletter already in early 1998. 
+ 
+
+
+
+### "Contradictions Collapse & None" 1999, Techno Death
+
+1 Paralyzing Ignorance (Meshuggah) 
+2 Erroneous Manipulation (Meshuggah) 
+3 Abneagating Cecity (Meshuggah) 
+4 Internal Evidence (Meshuggah) 
+5 Qualms Of Reality (Meshuggah) 
+6 We'll Never See The Day (Meshuggah) 
+7 Greed (Meshuggah) 
+8 Choirs Of Devastation (Meshuggah) 
+9 Cadeverous Mastication (Meshuggah) 
+10 Humiliative (None) 
+11 Sickening (None) 
+12 Ritual (None) 
+13 Gods of Rapture (None) 
+
+
+### "Rare Trax" 2001, Techno Death
+
+1. War 
+2. Cadaverous Mastication 
+3. Sovereigns Morbidity 
+4. Debt of Nature 
+5. By Emptyness Abducted 
+6. Don't Speak 
+7. Abnegating Cecity (demo version -90) 
+8. Internal Evidence (demo version -90) 
+9. Concatenation (remix) 
+10. Ayahuasca Experience 
+11. MPEG video: New Millenium Cyanide Christ 
+12. MPEG video: Elastic (live in Umeе) 
+13. MPEG video: Tour and studio clips 
+
+
+
+### "Nothing" 2002, Techno Death
+
+01. Stengah
+02. Rational Gaze
+03. Perpetual Black Second
+04. Closed Eye Visuals
+05. Glints Collide
+06. Organic Shadows
+07. Straws Pulled At Random
+08. Spasm
+09. Nebulous
+10. Obsidian 
+
+### "I EP" 2004, Techno Death
+
+1. I
+
+### "Catch 33" 2005, Techno Death
+
+01. Autonomy Lost
+02. Disenchantment
+03. Imprint Of The Un-saved
+04. The Paradoxical Spiral
+05. Re-inanimate
+06. Entrapment
+07. Mind's Mirrors
+08. In Death - Is Life
+09. In Death - Is Death
+10. Shed
+11. Personae Non Gratae
+12. Dehumanization
+13. Sum
+
+### "Nothing [Re-release]" 2006, Techno Death
+
+Disc 1 - 'Re-Nothing':
+
+01. Stengah
+02. Rational Gaze
+03. Perpetual Black Second
+04. Closed Eyes Visuals
+05. Glints Collide
+06. Organic Shadows
+07. Straws Pulled At Random
+08. Spasm
+09. Nebulous
+10. Obsidian
+
+Disc 2 - 'Something':
+
+01. Straws Pulled At Random (live at Download
+Festival, UK, 2005)
+02. In Death Is Death (live at Download Festival,
+UK, 2005)
+03. Future Breed Machine (live at Download
+Festival, UK, 2005)
+04. Rational Gaze (official video)
+05. Shed (official video)
+06. New Millennium Cyanide Christ (official video)
+07. Rational Gaze (Mr. Kidman delirium vision)
+
+### "ObZen" 2008, Techno Death
+
+1. Combustion   
+2. Electric Red   
+3. Bleed 
+4. Lethargica   
+5. ObZen   
+6. The Spiteful Snake   
+7. Pineal Gland Optics   
+8. Pravus   
+9. Dancers To A Discordant System
+
+### "Alive [DVD]" 2010, Techno Death
+
+01. Begin
+02. Perpetual Black Second (Tokyo)
+03. Twenty Two Hours
+04. Pravus (Tokyo)
+05. Dissemination
+06. Bleed (NYC)
+07. Ritual
+08. New Millenium Cyanide Christ (Montreal)
+09. Cleanse
+10. Stengah (Montreal)
+11. The Mouth Licking What You've Bled (Montreal)
+12. Machine
+13. Electric Red (Tokyo)
+14. Solidarius
+15. Rational Gaze (Tokyo)
+16. Moment
+17. Lethargica (Toronto)
+18. Communicate
+19. Combustion (Toronto)
+20. Humiliative (Montreal)
+21. Infinitum
+22. Straws Pulled At Random (Toronto)
+23. End
+
+Bonus:
+
+01. "Bleed" Music Video
+02. The Making Of "Bleed"
+03. Micha Guitar Tour
+04. Tomas Drum Tou
+
+### "Koloss" 2012, Techno Death
+
+1. I Am Colossus 06:57
+2. The Demon's Name Is Surveillance 
+3. Do Not Look Down 
+4. Behind the Sun 
+5. The Hurt That Finds You First 
+6. Marrow 
+7. Break Those Bones Whose Sinews Gave It Motion 06:53
+8. Swarm 
+9. Demiurge 
+10. The Last Vigil 
+
+
+### "The Violent Sleep Of Reason" 2016, Techno Death
+
+01. Clockworks
+02. Born in Dissonance
+03. MonstroCity
+04. By the Ton
+05. Violent Sleep of Reason
+06. Ivory Tower
+07. Stifled
+08. Nostrum
+09. Our Rage Won’t Die
+10. Into Decay
+
 
 ## Отношения с другими группами
 

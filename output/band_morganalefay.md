@@ -1,15 +1,164 @@
 # Morgana Lefay
 
-Дискография
-"Knowing Just As I" 1993, Power Metal
-"The Secret Doctrine" 1993, Power Metal
-"Sanctified" 1995, Power Metal
-"Past Present Future" 1995, Power Metal
-"Maleficium" 1996, Power Metal
-"Fata Morgana" 1997, Power Metal
-"Grand Materia" 2005, Power Metal
-"Over and Over Again (single)" 2007, Power Metal
-"Aberrations Of The Mind" 2007, Power Metal
+
+
+## Дискография
+
+### "Knowing Just As I" 1993, Power Metal
+
+01. Enter The Oblivion 
+02. Red Moon 
+03. Salute The Sage 
+04. Rumours Of Rain 
+05. Excalibur 
+06. Modern Devil 
+07. Wonderland 
+08. Razamanaz 
+09. Battle Of Ever More 
+10. Knowing Just As I
+
+### "The Secret Doctrine" 1993, Power Metal
+
+01. Rooms Of Sleep 
+02. What Am I 
+03. Alley Of Oaks 
+04. Soldiers Of The Holy Empire 
+05. Paradise Lost 
+06. Nowhere Island 
+07. The Mirror 
+08. State Of Intoxication 
+09. Cold World 
+10. Lord Of The Rings 
+11. Last Rites 
+12. Dying Evolution 
+13. The Secret Doctrine
+
+### "Sanctified" 1995, Power Metal
+
+1. Out In The Silence
+2. Time Is God
+3. To Isengard
+4. Why ?
+5. Mad Messiah
+6. Another Dawn
+7. In The Court Of The Crimson King
+8. Sorrow Calls
+9. Where Insanity Rules
+10.Shadows Of God
+11.Gil - God (The Sanctified)
+
+All Songs By MORGANA LEFAY.
+Produced, Engineered & Mixed By
+MORGANA LEFAY & Ulf Peterson.
+Recorded & Mixed At The Wave Station, L.A.,Sweden 1994.
+
+All Keyboards By Ulf Peterson.
+Tony Eriksson - Guitars
+Jonas Soderlind - Drums
+Joakim Heder - Bass
+Charles Rytkonen - Vocals
+Daniel Persson - Guitars
+
+(P)&(C) 1995 BLACK MARK Production
+
+### "Past Present Future" 1995, Power Metal
+
+01. Sculptures Of Pain 
+02. Lost Reflection 
+03. Rumours Of Rain 
+04. Alley Of Oaks 
+05. Battle Of Evermore 
+06. Voulez Vous 
+07. The Mirror 
+08. Last Rites 
+09. Sorrow Calls 
+10. Why ? 
+11. Symphony Of The Damned
+
+### "Maleficium" 1996, Power Metal
+
+1.  The Chamber Of Confession
+2.  The Source Of Pain (Chief Magistrate-A Trial Begin)
+3.  Victim Of Inquisition (Chief Magistrate-Testimony Of A Condemned Man)
+4.  Madness (Chief Magistrate-Beyond Pain)
+5.  A Final Farewell (Chief Magistrate-Father & Daughter)
+6.  Maleficium (Chief Magistrate-The Dying)
+7.  It (Guardian-The Awakening)
+8.  The Master Of The Masquerade (Guardian-Anger And Damnation)
+9.  Witches Garden (Guardian-The Secret Truth)
+10.Dragons Lair (Guardian-The Myth)
+11.The Devil In Me (Chief Magistrate-A Meeting Between The Condemned)
+12.Where Fallen Angels Rule (Chief Magistrate-A Message From Beyond)
+13.Creatures Of Hierarchy (Vultures Fete)
+
+Recorded and Mixed at Wave Station
+Produced by ML and Ulf Peterson
+Engineered and Mixed by Ulf Peterson & ML
+Mastered by Peter in de Betou
+Cover artwork by Kristian Wablin
+Band residence: Sweden
+
+(P)c 1996 BLACK MARK Productions
+
+### "Fata Morgana" 1997, Power Metal
+
+01.Master Of The Masquerade 
+02. Time Is God 
+03. Nowhere Island 
+04. Maleficium 
+05. Red Moon 
+06. To Isengard 
+07. Lord Of The Rings 
+08. Madness 
+09. What Am I 
+10. Excalibur 
+11. Mad Messiah 
+12. Paradise Lost 
+13. Wonderland 
+14. The Source Of Pain
+
+### "Grand Materia" 2005, Power Metal
+
+01 Grand Materia
+02 My Funeral Is Calling
+03 Only Endless Time Remains
+04 Hollow
+05 Edge Of Mind
+06 On The Other Side
+07 I Roam
+08 Emotional Sanctuary
+09 Angels Deceit
+10 The Operation Of The Sun	
+11 Blind
+12 My Task Is Done
+
+### "Over and Over Again (single)" 2007, Power Metal
+
+1. Over and Over Again 05:58  
+2. Face Of Fear 03:26
+
+### "Aberrations Of The Mind" 2007, Power Metal
+
+1. Delusions   
+2. Make A Wish   
+3. The Rush Of Possession   
+4. Depression   
+5. Caught In The Tread Wheel   
+6. Reflections Of War   
+7. Face Of Fear   
+8. Where I Reign   
+9. In Shadows I Rule   
+10. Aberration Of The Mind   
+11. Vultures Devouring   
+12. Over And Over Again 
+
+
+Charles Rytkцnen - Vocals 
+Tony Eriksson - Guitar 
+Peter Grehn - Guitar 
+Fredrik Lundberg - Bass 
+Pelle Еkerlind - Drums
+
 
 ## Отношения с другими группами
 

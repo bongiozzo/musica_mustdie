@@ -1,7 +1,33 @@
 # Demonoid
 
-Дискография
-"Riders Of The Apocalypse" 2004, Death Metal
+THERION members
+
+## Дискография
+
+### "Riders Of The Apocalypse" 2004, Death Metal
+
+01. Wargods
+02. Firestorms
+03. Witchburners
+04. 14th Century Plague
+05. Hunger My Consort
+06. The Evocation
+07. Arrival Of The Horsemen
+08. End Of Our Times
+09. Death
+
+Kristian Niemann - guitars
+Johan Niemann - bass
+Christofer Johnsson - vocals
+Rickard Evensand - drums
+
+Recorded: December 2002.
+Mixed: January 2003.
+Mastered: February 2003.
+Produced by Demonoid.
+All songs by Demonoid.
+Illustration & layout: Gyula Havancsak.
+
 
 ## Отношения с другими группами
 

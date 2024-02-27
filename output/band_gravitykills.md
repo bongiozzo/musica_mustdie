@@ -1,7 +1,34 @@
 # Gravity Kills
 
-Дискография
-"Gravity Kills" 1996, Industrial
+Electro-Industrial-Metal-Crossover
+
+## Дискография
+
+### "Gravity Kills" 1996, Industrial
+
+1. Forward
+2. Guilty
+3. Blame
+4. Down
+5. Here
+6. Enough
+7. Inside
+8. Goodbye
+9. Never
+10. Last
+11. Hold
+
+All songs written by GRAVITY KILLS
+Produced and performed by GRAVITY KILLS
+Recorded by Doug Firley at Mr.Blood, St.Louis
+
+Jeff Scheel - Vocals
+Matt Dudendeffer - Guitars
+Douglas  Firley  -  Keyboards
+Kurt Kerns - Bass, Drums
+
+(p)(c)  1996 TVT Records
+
 
 ## Отношения с другими группами
 

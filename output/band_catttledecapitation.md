@@ -1,6 +1,9 @@
 # Catttle Decapitation
 
-Дискография
+goredeathgrind from California (Locust members)
+
+## Дискография
+
 
 ## Отношения с другими группами
 

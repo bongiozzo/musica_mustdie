@@ -1,10 +1,61 @@
 # Pathology
 
-Дискография
-"Surgically Hacked" 2006, Deathcore
-"Incisions of Perverse Debauchery" 2008, Deathcore
-"Age of Onset" 2009, Deathcore
-"Legacy of the Ancients" 2010, Deathcore
+
+
+## Дискография
+
+### "Surgically Hacked" 2006, Deathcore
+
+1. Impious Brain Donor  01:57   
+2. Demented Betrayal  02:01 
+3. Septic Shock  01:53   
+4. Unsuspecting Poltergeist Possession  02:13  
+5. As the Globe Begins to Burn  01:33 
+6. Surgically Dismembered  02:20   
+7. Braining  02:16   
+8. Postorbital Incision  01:43  
+9. The Abysmal Den  01:38 
+10. Second Dimensional Apparition  02:36 
+
+### "Incisions of Perverse Debauchery" 2008, Deathcore
+
+1. Incisions of Perverse Debauchery  03:49 
+2. Creation of Mass Destruction  03:06    
+3. Blessed Through Suffering  02:45  
+4. Eviscerated Human Torso  02:57 
+5. Defiled Autopsy Remnants  03:37  
+6. Reborn to Kill  03:18    
+7. Pathogens of Cystic Decay  03:02    
+8. Lycantropy of Dead Flesh  02:45 
+9. Necrotic Prayers for Genocide  03:45 
+
+### "Age of Onset" 2009, Deathcore
+
+1. Symptoms of Bleeding  03:00   
+2. Age of Onset  02:30   
+3. Postmortem Dissection  02:25   
+4. Gestation Begins  03:08   
+5. Emesis  03:28   
+6. Cyst Excise  03:18   
+7. Rid the Womb  03:02   
+8. Zodiac Principles  02:56   
+9. Methods Thru Divination  02:14 
+10. Sect of Malpractice  02:52 
+
+### "Legacy of the Ancients" 2010, Deathcore
+
+1. Intro  00:20  
+2. Code Injection  02:53 
+3. Among Giants  03:14  
+4. Abduction  03:03  
+5. Afterlife  03:03  
+6. Collapsing in Violence  03:22   
+7. Tower of Babel  02:43 
+8. Blood Runs  02:57  
+9. The Extinction of Flesh  02:48  
+10. Legacy of the Ancients  02:50   
+11. Saturn Brotherhood  02:46 
+
 
 ## Отношения с другими группами
 

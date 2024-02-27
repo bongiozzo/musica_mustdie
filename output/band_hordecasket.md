@@ -1,8 +1,36 @@
 # Horde Casket
 
-Дискография
-"Landscape of Cadavers" 2008, Death Metal
-"Slab of Infinite Butchery" 2010, Death Metal
+
+
+## Дискография
+
+### "Landscape of Cadavers" 2008, Death Metal
+
+1. Cerebral Dissection	 
+2. Back Country Meth Massacre	 
+3. Grotesque Contents	 
+4. Violent Domination	 
+5. House of the Repulsive Mortifying	 
+6. Repository Necrotic Inception	 
+7. Order of the Tyrant
+
+### "Slab of Infinite Butchery" 2010, Death Metal
+
+1. Psychedelic Butchery 
+2. Nemisis Delivered to the Parallel Crypts	 
+3. Banished into Obscurity	 
+4. Excrement Covered Stabwounds	 
+5. CPR (Cardiopulmonary Regurgitation)	 
+6. Defiled Apparitions	 
+7. Slops of Impending Illness	 
+8. Abhorrent Subsistance	 
+9. Prophets of Sadistic Obliteration	 
+10. Rapid Depopulation	 
+11. Grotesque Contents (Bonus Track)	 
+12. Repository Necrotic Inception (Bonus Track)	 
+13. Purulent Gassings (Bonus Track)	 
+14. Order of the Tyrant (Bonus Track)
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,29 @@
 # Fracture
 
-Дискография
-"Killernet" 1996, Industrial
+Electronic-Disharmonic-Cyber-Trance
+
+## Дискография
+
+### "Killernet" 1996, Industrial
+
+1.  Initial Impact
+2.  Programmed For Hell <PFH 1>
+3.  Threat Assessment
+4.  Downtown
+5.  Terror Eyes
+6.  A Vision Arrests
+7.  Never Forgive
+8.  Good Kill
+9.  Comatose
+10.  The Verdict
+11.  Eleison
+
+All tracks written, performed & created by Alexis & Saul Sette.
+Produced & mixed by Paul Kendall & FRACTURE.
+Recorded & mixed at Worldwide International Studios.
+
+(P)c 1996 OFF BEAT Records
+
 
 ## Отношения с другими группами
 

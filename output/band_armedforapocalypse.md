@@ -1,7 +1,13 @@
 # Armed For Apocalypse
 
-Дискография
-"Defeat" 2009, Metal
+
+
+## Дискография
+
+### "Defeat" 2009, Metal
+
+
+
 
 ## Отношения с другими группами
 

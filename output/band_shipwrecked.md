@@ -1,7 +1,33 @@
 # Shipwrecked
 
-Дискография
-"The Last Pagans" 2012, Hardcore
+
+
+## Дискография
+
+### "The Last Pagans" 2012, Hardcore
+
+01. Fast Violent Noise
+02. Shipwrecked
+03. Hit FX
+03. Not My Generation
+04. Destroy
+05. It’s Grim Up North
+06. Wolf Hybrid Men
+07. Your Flag
+08. It Was Here
+09. The Last Pagans
+10. Bricks & Bombs
+11. About Us
+12. Run Comrade Run
+13. Blue Flies
+14. Whiteout
+15. This Was Ours
+16. Thieves
+17. Bulldog Breed
+18. What’s It Like?
+19. Eagle’s Nest
+20. Freja
+
 
 ## Отношения с другими группами
 

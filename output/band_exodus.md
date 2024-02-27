@@ -1,20 +1,223 @@
 # Exodus
 
-Дискография
-"Bonded By Blood" 1985, Thrash
-"Pleasures Of The Flesh" 1987, Thrash
-"Fabulous Disaster" 1989, Thrash
-"Impact Is Imminent" 1990, Thrash
-"Good Friendly Violent Fun (live)" 1991, Thrash
-"Force Of Habit" 1992, Thrash
-"Tempo Of The Damned" 2004, Thrash
-"Shovel Headed Kill Machine" 2005, Thrash
-"The Atrocity Exhibition: Exhibit A" 2007, Thrash
-"Let There Be Blood" 2008, Thrash
-"Shovel Headed Tour Machine [DVD]" 2010, Thrash
-"Hammer and Life (single)" 2010, Thrash
-"Exhibit B: The Human Condition" 2010, Thrash
-"Blood In, Blood Out" 2014, Thrash
+Thrash
+
+## Дискография
+
+### "Bonded By Blood" 1985, Thrash
+
+1. Bonded By Blood
+2. Exodus
+3. And Then There Were None
+4. A Lesson In Violence
+5. Metal Command 
+6. Piranha
+7. No Love
+8. Deliver Us To Evil
+9. Strike Of The Beast
+
+Paul Baloff - Vocals
+Rick Hanolt - Guitars
+Gary Holt - Guitars
+Rob McKillop - Bass
+Tom Hunting - Drums
+
+(p) 1983 MUSIC FOR NATIONS Records
+(c) 1985 MUSIC FOR NATIONS Records
+
+### "Pleasures Of The Flesh" 1987, Thrash
+
+1. Deranged
+2. Till Death Do Us Part
+3. Parasite
+4. Brain Dead
+5. Faster Than You'll Ever LIve To Be
+6. Pleasures Of The Flesh
+7. 30 Seconds
+8. Seeds Of Hate
+9. Chemi-Kill
+10.Choose Your Weapon
+
+(P)&(C) 1987 MUSIC FOR NATIONS Records
+
+### "Fabulous Disaster" 1989, Thrash
+
+1. The Last Act Of Defiance
+2. Fabulous Disaster
+3. The Toxic Waltz
+4. Low Rider
+5. Cajun Hell
+6. Like Father,Like Son
+7. Corruption
+8. Verbal Razors
+9. Open Season
+
+(p)&(c) 1989
+
+### "Impact Is Imminent" 1990, Thrash
+
+1. Impact Is Imminent
+2. A.W.O.L.
+3. The Lunatic Parade
+4. Within The Walls Of Chaos
+5. Objection Overruled
+6. Only Death Decides
+7. Heads They Win
+8. Changing Of The Guard
+9. Thrash Under Pressure
+
+(p)&(c) 1990 EMI Records
+
+### "Good Friendly Violent Fun (live)" 1991, Thrash
+
+
+
+### "Force Of Habit" 1992, Thrash
+
+
+
+### "Tempo Of The Damned" 2004, Thrash
+
+1. Scar Spangled Banner
+2. War Is My Shepherd
+3. Blacklist
+4. Shroud Of Urine
+5. Forward March
+6. Culling The Herd
+7. Sealed With A Fist
+8. Throwing Down
+9. Impaler
+10. Tempo Of The Damned
+
+Steve "Zetro" Souza - vocals
+Tom Hunting - drums
+Rick Hunolt - guitar
+Gary Holt - guitar
+Jack Gibson - bass
+
+Produced, engineered, mixed and mastered by Andy
+Sneap
+Mixed at backstage Studios derby UK
+Drums tracked at Prairie Sun Studio, Cotati, Ca
+All others tracks:
+Tsunami Recording, Moss Beach, Ca
+assistant engineer: Goober (RIP)
+A&R: Andy Siry
+Coverartwork by: Jowita Kaminska
+Additional design and layout: tobe @ Nuclear Blast
+Photography by: Friso Genttsch
+
+### "Shovel Headed Kill Machine" 2005, Thrash
+
+01. Raze
+02. Deathamphetamine
+03. Karma's Messenger
+04. Shudder To Think
+05. I Am Abomination
+06. Altered Boy
+07. Going Going Gone
+08. Now Thy Death Day Come
+09. 44 Magnum Opus
+10. Shovel Headed Kill Machine
+
+### "The Atrocity Exhibition: Exhibit A" 2007, Thrash
+
+1. A Call To Arms 
+2. Riot Act 
+3. Funeral Hymn 
+4. Children Of A Worthless God 
+5. As It Was, As It Soon Shall Be 
+6. The Atrocity Exhibition 
+7. Iconoclasm 
+8. The Garden Of Bleeding 
+9. Bedlam 123
+
+### "Let There Be Blood" 2008, Thrash
+
+Bonded By Blood 
+Exodus 
+And Then There Were None 
+A Lesson In Violence 
+Metal Command 
+Piranha 
+No Love 
+Deliver Us To Evil 
+Strike Of The Beast 
+Hell's Breath
+
+### "Shovel Headed Tour Machine [DVD]" 2010, Thrash
+
+1. Bonded By Blood 03:41 
+2. Iconoclasm 07:54
+3. Funeral Hymn 08:46
+4. A Lesson In Violence 03:48
+5. Children Of A Worthless God 07:22
+6. Piranha 03:47
+7. Deathamphetamine 08:03
+8. Blacklist 06:24
+9. War Is My Shepherd 04:42
+10. Strike Of The Beast 05:18
+11. Shovel Headed Kill Machine 03:23 
+
+### "Hammer and Life (single)" 2010, Thrash
+
+1. Hammer and Life 03:30  
+2. Downfall 06:20 
+
+
+Rob Dukes - Vocals 
+Gary Holt - Guitars
+Lee Altus - Guitars 
+Jack Gibson - Bass 
+Tom Hunting - Drums 
+
+### "Exhibit B: The Human Condition" 2010, Thrash
+
+1. The Ballad Of Leonard And Charles 07:14 
+2. Beyond The Pale 07:40 
+3. Hammer And Life 03:31 
+4. Class Dismissed (A Hate Primer) 07:14 
+5. Downfall 06:21 
+6. March Of The Sycophants 06:45 
+7. Nanking 07:22
+8. Burn, Hollywood, Burn 04:05  
+9. Democide 06:36  
+10. The Sun Is My Destroyer 09:32 
+11. A Perpetual State Of Indifference 02:24  
+12. Good Riddance 05:30 
+
+
+
+Produced, mixed & mastered by Andy Sneap at Backstage studios.
+Drums recoreded at sharkbite studios, Oakland, CA.
+Assistant engineer Adam Myat 
+Additional guitar engineer and keys on "The Ballad Of Leonard And Charles" by
+Raymond Anthony
+"Devil's Teeth" solo by Brendon Small
+All other tracks recorded at Camp Crunch, Guerneville, CA.
+Backing vocals on "The Sun Is My Destroyer" courtesy of Peter Tagtgren
+Artwork & layout by Colin Marks.
+
+American bonus track:
+13. Devil's Teeth (4:14)
+
+Japanese bonus track:
+13. Don't Make No Promises (Your Body Can't Keep) (Scorpions cover) 
+
+### "Blood In, Blood Out" 2014, Thrash
+
+01. Black 13
+02. Blood In, Blood Out
+03. Collateral Damage
+04. Salt The Wound
+05. Body Harvest
+06. BTK
+07. Wrapped In The Arms Of Rage
+08. My Last Nerve
+09. Numb
+10. Honor Killings
+11. Food For The Worms
+
 
 ## Отношения с другими группами
 

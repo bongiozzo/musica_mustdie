@@ -1,8 +1,39 @@
 # Educated Scum
 
-Дискография
-"From Chaos To Disorder" 2003, Grindcore
-"React" 2011, Death Metal
+
+
+## Дискография
+
+### "From Chaos To Disorder" 2003, Grindcore
+
+
+
+### "React" 2011, Death Metal
+
+1. Victims Of Terrorism
+2. Human Bomb
+3. Double Standards
+4. Capitalize
+5. Opiate To Manipulate
+6. Two Perennial Russian Questions
+7. War Bizzare
+8. Political Clown
+9. React
+10. Cloning Process Failure
+11. Tied Gagged Blindfolded
+12. Anti-Suicidal Song
+13. Ignorant (equals) Irrelevant
+14. Grin
+15. Dead end
+16. Beslan
+
+Bonus Tracks (rehearsal)
+17. Propaganda
+18. Cannon Fodder
+19. There Is...
+20. Digital Apocalypse
+
+
 
 ## Отношения с другими группами
 

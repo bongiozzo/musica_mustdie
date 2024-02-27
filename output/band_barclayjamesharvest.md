@@ -1,7 +1,24 @@
 # Barclay James Harvest
 
-Дискография
-"Nexus" 1999, Instrumental
+art-rock
+
+## Дискография
+
+### "Nexus" 1999, Instrumental
+
+Festival! (Lees/Wolstenholme)
+The Iron Maiden (Barclay James Harvest)
+Brave New World (Lees/Wolstenholme)
+Hors d'Oeuvre (Lees/Wolstenholme)
+Mocking Bird (Barclay James Harvest)
+Sitting Upon A Shelf (Lees/Wolstenholme)
+Hymn (Lees)
+The Devils That I Keep (Lees/Wolstenholme)
+Titles (Trad/arr. Lees)
+Float (Lees/Wolstenholme)
+Loving Is Easy (Lees)
+Star Bright (Lees/Wolstenholme)
+
 
 ## Отношения с другими группами
 

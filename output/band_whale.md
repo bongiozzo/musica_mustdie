@@ -1,8 +1,47 @@
 # Whale
 
-Дискография
-"We Care" 1995, Alternative
-"Pay For Me" 1995, Alternative
+
+
+## Дискография
+
+### "We Care" 1995, Alternative
+
+1. Kinckin'
+2. That's Where It's At
+3. Pay For Me
+4. Eurodog
+5. I'll Do Ya
+6. Electricity
+7. Hobo Humpin' Slobo Babe
+8. Tryzasnice
+9. Happy In You
+[10].I Miss You
+[11].Young Dumb N' Full Of Cum
+[12].I'm Cold
+[13].Born To Raise Hell
+
+[10]-[13] На Стороне B
+
+All Songs Written By WHALE.
+Produced & Mixed By WHALE & Tricky.
+
+(P)&(C) 1995 VIRGIN Records
+
+### "Pay For Me" 1995, Alternative
+
+1. Pay For Me
+2. I Think No
+3. Darling Nikki
+4. Buzzbox Babe
+5. Trying
+
+All Songs Written By WHALE.
+Produced & Mixed By WHALE.
+Recorded At Paco's Shed, Alhaurin 
+El Grande & Soundtrade Stockholm.
+
+(P)&(C) 1995 VIRGIN Records
+
 
 ## Отношения с другими группами
 

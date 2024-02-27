@@ -1,14 +1,146 @@
 # Steve Vai
 
-Дискография
-"Flex-able" 1984, Instrumental
-"Passion and Warfare" 1990, Instrumental
-"Sex & Religion" 1993, Instrumental
-"Alien Love Secrets (EP)" 1995, Instrumental
-"Fire Garden" 1996, Instrumental
-"The Ultra Zone" 1999, Instrumental
-"The 7th Song, Enchanting Guitar Melodies (Archives Vol. 1)" 2000, Instrumental
-"Real Illusions: Reflections" 2005, Instrumental
+(ex-Frank Zappa, Alcatrazz and Whitesnake)
+
+## Дискография
+
+### "Flex-able" 1984, Instrumental
+
+1. Little Green Men
+2. Viv Woman
+3. Lovers Are Crazy
+4. Salamanders In The Sun
+5. The Boy/Girl Song
+6. The Attitude Song
+7. Call It Sleep
+8. Junkie
+9. Bill's Private Parts
+10. Next Stop Earth
+11. There's something Dead In Here
+
+All songs written by Steve Vai.
+
+Musicians: Steve Vai, Scott Collard, Paul Lemcke, Stuart Hamm, Irney Rantin, Ursula Rayven, Bob Harris, Greg Degler, Larry Crane, Chris Frazier, Pia Maiocco, Peggy Foster, Pete Zeldman, Chad Wackerman, Billy James.
+
+
+### "Passion and Warfare" 1990, Instrumental
+
+01. Liberty [02:02] 
+02. Erotic Nightmares [04:15] 
+03. The Animal [04:01] 
+04. Answers [02:56] 
+05. The Riddle [06:24] 
+06. Ballerina [01:43] 
+07. For the Love of God [06:03] 
+08. The Audience is Listening [05:30] 
+09. I Would Love To [03:41] 
+10. Blue Powder [04:44] 
+11. Greasy Kid's Stuff [02:58] 
+12. Alien Water Kiss [01:10] 
+13. Sisters [04:07] 
+14. Love Secrets [03:39] 
+
+### "Sex & Religion" 1993, Instrumental
+
+01. An Earth Dwellers Return [01:02] 
+02. Here & Now [04:46] 
+03. In My Dreams with You [05:00] 
+04. Still My Bleeding Heart [05:59] 
+05. Sex & Religion [04:23] 
+06. Dirty Black Hole [04:26] 
+07. Touching Tongues [05:32] 
+08. State of Grace [01:41] 
+09. Survive [04:45] 
+10. Pig [03:35] 
+11. The Road to Mt. Cavalry [02:34] 
+12. Down Deep into the Pain [08:00] 
+13. Rescue Me or Bury Me [08:24]
+
+### "Alien Love Secrets (EP)" 1995, Instrumental
+
+1. Bad Horsie
+2. Juice
+3. Die To Live
+4. The Boy From to Seattle
+5. Ya-Yo Gakk
+6. Kill The Guy With The Ball / The God Eaters
+7. Tender Surrender
+
+Written, Produced & Engineered By Steve Vai.
+
+Steve Vai - All Guitars, Bass, Keyboards & Drums Programming
+Julian Vai - Vocals
+Deen Castranovo - Drums
+Tommy Mars - Organ
+
+(P)&(C) 1995 RELATIVITY Records
+
+### "Fire Garden" 1996, Instrumental
+
+Phase I
+1.  There's A Fire In The House
+2.  The Crying Machine
+3.  Dyin' Day
+4.  Whookam
+5.  Blowfish
+6.  The Mysterious Murder Of Christian Tiera's Lover
+7.  Hand On Heart
+8.  Bangkok
+9.  Fire Garden
+    Suite:
+I.  Bull Whip
+II. Pusa Road
+III.Angel Food
+IV. Taura's Bulba
+Phase II
+10. Deepness
+11. Little Alligator
+12. All About Eve
+13. Aching Hunger
+14. Brother
+15. Damn You
+16. When I Was A Little Boy
+17. Genocide
+18. Warm Regards
+
+Produced, arranged & engineered by Steve Vai & John Kalodner.
+
+(P)(C) 1996
+
+### "The Ultra Zone" 1999, Instrumental
+
+01. The Blood & Tears [04:25] 
+02. The Ultra Zone [04:52] 
+03. OOOO [05:11] 
+04. Frank [05:08] 
+05. Jibboom [03:46] 
+06. Voodoo Acid [06:25] 
+07. Windows to the Soul [06:24] 
+08. The Silent Within [05:00] 
+09. I'll Be Around [04:57] 
+10. Lucky Charms [06:44] 
+11. Fever Dream [06:03] 
+12. Here I Am [04:12] 
+13. Asian Sky [05:34]
+
+### "The 7th Song, Enchanting Guitar Melodies (Archives Vol. 1)" 2000, Instrumental
+
+1) For the Love of God
+2) Touching Tongues
+3) Windows to the Soul
+4) Burning Down the Mountain
+5) Tender Surrender
+6) Hand On Heart
+7) Melissa's Garden
+8) Call It Sleep
+9) Christmas Time Is Here
+10) The Wall of Light
+11) Boston Rain Melody
+
+### "Real Illusions: Reflections" 2005, Instrumental
+
+
+
 
 ## Отношения с другими группами
 

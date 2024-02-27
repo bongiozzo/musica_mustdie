@@ -1,12 +1,63 @@
 # Everon
 
-Дискография
-"Paradoxes" 1993, Progressive
-"Flood" 1995, Progressive
-"Venus" 1997, Progressive
-"Fantasma" 2000, Progressive
-"Flesh" 2002, Progressive
-"Bridge" 2002, Progressive
+
+
+## Дискография
+
+### "Paradoxes" 1993, Progressive
+
+
+
+### "Flood" 1995, Progressive
+
+
+
+### "Venus" 1997, Progressive
+
+
+
+### "Fantasma" 2000, Progressive
+
+
+
+### "Flesh" 2002, Progressive
+
+01. And Still It Bleeds
+02. Already Dead
+03. Pictures Of You
+04. Flesh
+05. Missing From The Chain
+06. The River
+07. Half As Bad
+08. Back In Sight
+
+Oliver Phillips - vocals, guitars, piano & orchestrations
+Ulli Hoever - guitars
+Schymy - bass
+Christian "Moschus" Moos - drums & percussion
+
+Additional musicians:
+Judith Stuber - female vocals on tracks 2,6
+Donja Djember - cello on track 1
+Gabi Zlebell - violin
+Paula Sandu - viola
+Zdenek Bezusek - cello
+Oliver Thiele - music and keyboard arrangement on
+track 8
+
+Produced by Oliver Phillips & Christian "Moschus"
+Moos.
+Engineered by Christian "Moschus" Moos.
+Recorded and mixed at Spacelab Studio, Germany.
+Mastered by Eroc at Eroc's Mastering Ranch,
+Germany.
+Coverartwork by Gregory Bridges, Australia.
+Photos by Ulf Thurmann, Germany.
+
+### "Bridge" 2002, Progressive
+
+
+
 
 ## Отношения с другими группами
 

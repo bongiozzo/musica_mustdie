@@ -1,15 +1,129 @@
 # Elegy
 
-Дискография
-"Labyrinth of Dreams" 1993, Power Metal
-"Supremacy" 1994, Power Metal
-"Lost" 1995, Power Metal
-"State Of Mind" 1997, Power Metal
-"Manifestation of Fear" 1998, Power Metal
-"Labyrinth of Dreams" 1999, Power Metal
-"Primal Instinct" 1999, Power Metal
-"Forbidden Fruit" 2000, Power Metal
-"Principles of Pain" 2002, Progressive
+
+
+## Дискография
+
+### "Labyrinth of Dreams" 1993, Power Metal
+
+1. The Grand Change
+2. I'm No Fool
+3. Take My Love
+4. All Systems Go (instr.)	 
+5. Trouble In Paradise
+6. Over And Out
+7. Labyrinth Of Dreams
+8. Mass Hysteria	 
+9. Powergames
+10. The Guiding Light
+
+### "Supremacy" 1994, Power Metal
+
+1. Windows of the World
+2. Angel&#180;s Grace
+3. Poisoned Hearts
+4. Lust for Life
+5. Anouk	 
+6. Circles in the Sand
+7. Darkest Night
+8. Close Your Eyes
+9. Supremacy
+10. Erase Me
+
+### "Lost" 1995, Power Metal
+
+1. Lost
+2. Everything
+3. Clean Up Your Act
+4. Always With You
+5. Under Gods Naked Eyes
+6. 1998 (The Prophecy)	 
+7. Spirits
+8. Crossed The Line
+9. Live It Again
+10. Spanish Inquisition
+
+### "State Of Mind" 1997, Power Metal
+
+1 Equinox [Instrumental] (Elegy) 
+2 Visual Vortex (Elegy) 
+3 Trust (Elegy) 
+4 Beyond (Elegy) 
+5 Shadow Dancer (Elegy) 
+6 Aladdins Cave (Elegy) 
+7 State of Mind (Elegy) 
+8 Destiny Calling (Elegy) 
+9 Resurrection [Instrumental] (Elegy) 
+10 Losers Game (Elegy) 
+11 Suppression (Elegy) 
+
+
+### "Manifestation of Fear" 1998, Power Metal
+
+1 Unorthodox Methods (Elegy) 
+2 Frenzy (Elegy) 
+3 Angel Without Wings (Elegy) 
+4 Savage Grace (Elegy) 
+5 Master of Deception (Elegy) 
+6 Solitary Day (Living in an Ivory Tower) (Elegy) 
+7 Manifestation of Fear (Elegy) 
+8 Victim of Circumstance (Elegy) 
+9 Forgotten (Elegy) 
+10 Redemption [Instrumental] (Elegy) 
+11 Metamorphosis (Elegy) 
+
+
+### "Labyrinth of Dreams" 1999, Power Metal
+
+1 Grand Change 4:42 (Elegy) 
+2 I'm No Fool 4:56 (Elegy) 
+3 TAke My Love 4:46 (Elegy) 
+4 All Systems Go [Instrumental] 2:56 (Elegy) 
+5 Trouble in Paradise 5:35 (Elegy) 
+6 Over and Out 3:42 (Elegy) 
+7 Labyrinth of Dreams 6:09 (Elegy) 
+8 Mass Hysteria [Instrumental] 4:25 (Elegy) 
+9 Powergames 1:24 (Elegy) 
+10 Guiding Light 3:16 (Elegy) 
+
+
+### "Primal Instinct" 1999, Power Metal
+
+1 Take My Love 4:57 (Elegy) 
+2 Labyrinth of Dreams 6:38 (Elegy) 
+3 Always with You 3:59 (Elegy) 
+4 Spirits 5:50 (Elegy) 
+5 Erase Me 7:07 (Elegy) 
+
+
+### "Forbidden Fruit" 2000, Power Metal
+
+01 Ice House (Helmantel/Bruinenberg/Parry)
+02 Force Majeure (Van der Laars/Parry)
+03 Killing Time (Van Der Laars/Parry)
+04 Behind the Tears (Rondat/Parry)
+05 The Great Charade (Van der laars/Parry)
+06 'Til Eternity (Rondat/Parry)
+07 Masquerade (Parry)
+08 Elegant Solution (Van Der Laars/Parry)
+09 I Believe (Rondat/Parry)
+10 Forbidden Fruit (Parry)
+
+### "Principles of Pain" 2002, Progressive
+
+1. Under My Skin
+2. The Inner Room
+3. No Code No Honour
+4. Walking Nightmare
+5. Pilgrims Parade
+6. Principles of Pain
+7. Creatures of Habit
+8. Silence In the Wind
+9. Hypothesis
+10. Missing Persons
+11. A Child's Breath
+12. Silence In the Wind (acoustic version)
+
 
 ## Отношения с другими группами
 

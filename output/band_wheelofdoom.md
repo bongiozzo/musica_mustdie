@@ -1,6 +1,9 @@
 # Wheel of Doom
 
-Дискография
+Oriental, Chaotic Heavy Rock from Japan
+
+## Дискография
+
 
 ## Отношения с другими группами
 

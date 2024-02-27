@@ -1,9 +1,39 @@
 # Revolting Cocks
 
-Дискография
-"" 1993, Alternative
-"Cocked and Loaded" 2006, Alternative
-"Got Mixxx?" 2011, Alternative
+members MINISTRY
+
+## Дискография
+
+### "" 1993, Alternative
+
+
+
+### "Cocked and Loaded" 2006, Alternative
+
+Fire Engine 
+Ten Million Ways To Die 
+Caliente (Dark Entries) 
+Prune Tang 
+Dead End Streets 
+Pole Grinder 
+Jack In The Crack 
+Devil Cock 
+Viagra Culture 
+Revolting Cock Au Lait
+
+### "Got Mixxx?" 2011, Alternative
+
+01. Trojan Horse (Sell Your Cars Mixxx)
+02. Filthy Senoritas (Pay Me Now Mixxx)
+03. Dykes (Get a Real Job Mixxx)
+04. Juice (Feed Me Support Me Mixxx)
+05. Piss Army (Piss Piss Bye Bye Mixxx)
+06. Fuck Money (My Latest Envelope Mixxx)
+07. Bitch Addictive (Mistress Pinky Mixxx)
+08. Air Traffic Control (Where's My Hand Out Mixxx)
+09. Poke-A-Hot-Ass (Assholes Are Everywhere Mixxx)
+10. Me So Horny (Sin Rehab Mixxx)
+
 
 ## Отношения с другими группами
 

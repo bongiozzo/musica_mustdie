@@ -1,8 +1,27 @@
 # Esperoza
 
-Дискография
-"Esperoza" 2014, Gothic
-"Aum Corrupted" 2016, Gothic
+
+
+## Дискография
+
+### "Esperoza" 2014, Gothic
+
+
+
+### "Aum Corrupted" 2016, Gothic
+
+01. A Broken Passage (Intro)
+02. Egohypnotized
+03. Unknown Summons
+04. Tomb of Deeds
+05. Nocturne Opus 93
+06. Blame it on Me
+07. Periods of 8 
+08. Desolate Grief (Interlude)
+09. I Rot
+10. ...and here comes the immaculacy / Aum Mantra
+(you will be punished for your prayers)
+
 
 ## Отношения с другими группами
 

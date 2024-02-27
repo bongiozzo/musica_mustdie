@@ -1,7 +1,17 @@
 # Mare Infinitum
 
-Дискография
-"Sea of Infinity" 2011, Death Doom
+
+
+## Дискография
+
+### "Sea of Infinity" 2011, Death Doom
+
+1. In Absence We Dwell	 
+2. Sea of Infinity	 
+3. Beholding the Unseen	 
+4. November Euphoria	 
+5. In The Name of my Sin
+
 
 ## Отношения с другими группами
 

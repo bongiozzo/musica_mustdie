@@ -1,7 +1,13 @@
 # Hydrogyn
 
-Дискография
-"Deadly Passions" 2008, Hard Rock
+
+
+## Дискография
+
+### "Deadly Passions" 2008, Hard Rock
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,9 +1,21 @@
 # AYS
 
-Дискография
-"Wreck My Soul" 2008, Hardcore
-"The Path Of Ages (EP)" 2009, Hardcore
-"Eroded By The Breeze" 2010, Hardcore
+Against Your Societ
+
+## Дискография
+
+### "Wreck My Soul" 2008, Hardcore
+
+
+
+### "The Path Of Ages (EP)" 2009, Hardcore
+
+
+
+### "Eroded By The Breeze" 2010, Hardcore
+
+
+
 
 ## Отношения с другими группами
 

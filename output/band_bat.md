@@ -1,8 +1,32 @@
 # Bat
 
-Дискография
-"Primitive Age (Demo)" 2013, Metal
-"Wings Of Chains" 2015, Metal
+
+
+## Дискография
+
+### "Primitive Age (Demo)" 2013, Metal
+
+1. BAT
+2. Total Wreckage
+3. Code Rude
+4. Rule Of The Beast
+5. Primitive Age
+
+### "Wings Of Chains" 2015, Metal
+
+01. Bloodhounds
+02. Code Rude
+03. Master Of The Skies
+04. Primitive Age
+05. Condemner
+06. Ritual Fool
+07. Wings Of Chains
+08. Total Wreckage
+09. Rule of the Beast
+10. You Die
+11. Cruel Discipline
+12. Bat
+
 
 ## Отношения с другими группами
 

@@ -1,9 +1,79 @@
 # Coptic Rain
 
-Дискография
-"Dies Irae" 1994, Industrial
-"Eleven : Eleven" 1995, Industrial
-"Clarious End" 1996, Industrial
+Female Vocals
+
+## Дискография
+
+### "Dies Irae" 1994, Industrial
+
+1. Up
+2. Have To Hate
+3. Outcast
+4. Barefoot
+5. Perfect Lie
+6. Celestial Purity
+7. TTID
+8. Ragnarock
+9. Users
+10. Die Irae
+11. The Sweetest Attack
+
+ Katrin - All Voices
+ Pete - Guitars, Sampling, Programming, Composing
+ Tom - Visuals, Computer Graphics
+
+All Songs Written, Arranged & Produced By COPTIC RAIN
+Mixed & Recorded By COPTIC RAIN & Zare Pak At Studio Kif Kif, Ljubljana.
+
+(p)&(c) 1994 DYNAMICA/MACHINERY
+
+### "Eleven : Eleven" 1995, Industrial
+
+1. The Moment
+2. Unseen -Unfold
+3. ?Sane?
+4. Double Edge
+5. Sweethome Under White Clouds
+6. Videodrome
+7. Yggdrasill
+8. Gallery
+9. First Wave
+10.Mind Cage
+11.Ascension
+
+All Music Written, Produced, 
+Arranged & Recorded By COPTIC RAIN At Raingarden 9, 
+Except  Track 5 Lyrics & Music By Virgin Brunes.
+
+Katrin - All Vocals
+Pete - Guitars,Sampling, Programming, Composing
+Tom - Visuals,Computer Graphics
+
+(P)&(C) 1995 DYNAMICA/MODERN MUSIC
+
+### "Clarious End" 1996, Industrial
+
+1. The Haunt
+2. Devil In Disguise
+3. Into The Sun
+4. And All I Loved
+5. Rejoice
+6. Selvas
+7. Midgard
+8. Cortex Wave
+9. Scanner
+10.Slepnir
+11.Even Closer
+
+All Music Written, Produced, 
+Arranged & Engineered By COPTIC RAIN At Raingarden 9, 
+Except  Digital Editing By Ales Dvorak At KifKif Studio.
+
+Katrin - Voice
+Pete Penko - Everything Else
+
+(P)(C) 1996 DYNAMICA Records / DY0022
+
 
 ## Отношения с другими группами
 

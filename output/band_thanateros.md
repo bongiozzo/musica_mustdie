@@ -1,9 +1,83 @@
 # Thanateros
 
-Дискография
-"The First Rite" 2001, Gothic
-"Circle Of Life" 2003, Gothic
-"Into The Otherworld" 2005, Gothic
+gothic-rock with folk influences
+
+## Дискография
+
+### "The First Rite" 2001, Gothic
+
+
+
+### "Circle Of Life" 2003, Gothic
+
+01. Celtic Rising
+02. Tir Na n`Og
+03. Falling Away
+04. Piligrim
+05. Bas Agus Gra (Reel)
+06. Over The Rim
+07. Goddess
+08. Power Of Thoughts
+09. Turn The Tide
+10. Gayatri
+11. So High
+12. Kernunnos
+
+Ben Richter - vocals
+Karsten Kennert - guitars
+Jens Busch - guitars
+Jenne Riediger - bass
+Mario Ulrich - drums
+
+Additional Musicians:
+Bernd Ludtke (Midnight Court): fiddle, viola and
+bodhran
+Josephin Busch: Vox on "Goddess", "Over The Rim"
+and "Gayatri"
+Brita Adler: vox on "Gayatri" and "Over The Rim"
+Christian Tschirch: Uilleann Pipes, Low Whistle,
+Whistle and Bones
+Antje Dieckmann (Mortalia): Vox on "Goddess" and
+"Gayatri"
+Sui Yamamoto (Kamikadze 52): Vox on "Goddess" and
+"Gayatri"
+Additional vox on "Gayatri":
+Aaron Shirlow (Midnight Court)
+Hardy Fieting (Scream Silence)
+Maxe Raith (The Cascades)
+
+The Circle Of Life was recorded at X-Ton Studio
+Berlin in August/September 2002 by Hardy Fieting
+Mixed and mastered at Radiogram Studio Potsdam by
+Jens Busch, assisted by Ben Richter
+Produced by Jens Busch
+All lyrics by Ben Richter except:
+Isis-Mantra at "Goddess"
+"Gayatri": Traditional
+Arrangements by Thanateros
+
+Cover Artwork and Layout by Aswyn Design
+Photos by Aswyn Design
+Thanateros band photos by Peter Dubro
+
+### "Into The Otherworld" 2005, Gothic
+
+01. Calling Llyr
+02. Follow
+03. Siuil A Run
+04. Templehouse/Drowsy Maggy
+05. I'm Changing
+06. Song As A Kiss
+07. No Rest
+08. Dirty Old Town
+09. In Time
+10. Four Winds
+11. Last Goodbye
+12. Dirty Old Town (radio edit)
+13. I'm Changing
+14. Dirty Old Town (minor key party mix)
+15. Dirty Old Town (love to trance mix)
+
 
 ## Отношения с другими группами
 

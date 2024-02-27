@@ -1,11 +1,107 @@
 # Lock Up
 
-Дискография
-"Pleasures Pave Sewers" 1999, Grindcore
-"Hate Breeds Suffering" 2002, Grindcore
-"Live In Japan" 2002, Grindcore
-"Necropolis Transparent" 2011, Grindcore
-"Demonization" 2017, Grindcore
+
+
+## Дискография
+
+### "Pleasures Pave Sewers" 1999, Grindcore
+
+01. After Life In Purgatory
+02. Submission
+03. Triple Six Suck Angels
+04. Delirium
+05. Pretenders Of The Throne
+06. Slow Bleed Gorgon - Pleasures Pave Sewers
+07. Ego Pawn
+08. The Dreams Are Sacrificed
+09. Tragic Faith
+10. Darkness Of Ignorance
+11. Salvation Thru' Destruction
+12. Leech Eclipse
+13. Fever Landscapes
+
+### "Hate Breeds Suffering" 2002, Grindcore
+
+1.Feeding on the Opiate
+2.Castrate the Wreckage
+3.Violent Reprisal
+4.Detestation
+5.Retrogression
+6.Slaughterous Ways
+7.Dead Sea Scroll Deception
+8.Hate Breeds Suffering
+9.Catharsis
+10.The Jesus Virus
+11.Broken World
+12.Horns of Venus
+13.High Tide in a Sea of Blood
+14.Cascade Leviathan
+15.Fake Somebody/Real Nobody
+16.The Sixth Extinction
+
+
+### "Live In Japan" 2002, Grindcore
+
+01. Intro (Live)
+02. Feeding The Opiate (Live)
+03. Castrate The Wreckage (Live)
+04. Violent Reprisal (Live)
+05. Detestation (Live)
+06. After Life In Purgatory (Live)
+07. Triple Six Suck Angels (Live)
+08. Slaughterous Way (Live)
+09. Submission (Live)
+10. Hate Breeds Suffering (Live)
+11. The Dream Are Sacrificed (Live)
+12. Leech Eclipse (Live)
+13. Broken World (Live)
+14. Delirium (Live)
+15. Jesus Virus (Live)
+16. Horns Of Venus (Live)
+17. Tragic Faith (Live)
+18. Slow Bleed Gorgon / Pleasure Pave Seweres  (Live)
+19. Fake Somebody (Real Nobody) (Live)
+20. Cascade Leviathan (Live)
+
+"Live In Japan" was recorded at Club Quattro in Nagoya, Japan on June 28, 2002
+
+### "Necropolis Transparent" 2011, Grindcore
+
+01. Brethren Of The Pentagram
+02. Accelerated Mutation
+03. The Embodiment Of Paradox And Chaos
+04. Necropolis Transparent
+05. Parasite Drama
+06. Anvil Of Flesh
+07. Rage Incarnate Reborn
+08. Unseen Enemy
+09. Stygian Reverberations
+10. Life Of Devastation
+11. Roar Of A Thousand Throats
+12. Infiltrate And Destroy
+13. Discharge The Fear
+14. Vomiting Evil
+15. Stigmatyr (bonus track)
+16. Through The Eyes Of My Shadow Self
+17. Tartarus (instrumental)
+
+### "Demonization" 2017, Grindcore
+
+01. Blood and Emptiness
+02. The Decay Within the Abyss
+03. Locust
+04. Demonization
+05. Demons Raging
+06. Desolation Architect
+07. Instruments of Armageddon
+08. Sunk
+09. The Plague That Stalks the Darkness
+10. Foul from the Pure
+11. Mind Fight
+12. Void
+13. Secret Parallel World
+14. We Challenge Death
+
 
 ## Отношения с другими группами
 

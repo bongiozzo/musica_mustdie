@@ -1,8 +1,26 @@
 # Agony (CZE)
 
-Дискография
-"Call The Rain" 2003, Gothic
-"My Turn to Die" 2005, Gothic
+
+
+## Дискография
+
+### "Call The Rain" 2003, Gothic
+
+
+
+### "My Turn to Die" 2005, Gothic
+
+Whatever Shall I Do
+...Alone
+The Mirror Of The Night
+Sometimes
+Endless Remorses 
+Stronger Than You
+Welcome To My Empire
+My Turn To Die
+Black Rose
+Outro
+
 
 ## Отношения с другими группами
 

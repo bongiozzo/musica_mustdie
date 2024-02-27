@@ -1,8 +1,62 @@
 # Siam
 
-Дискография
-"Prayer" 2001, Progressive
-"The Language of Menace" 2003, Progressive
+heavy-prog
+
+## Дискография
+
+### "Prayer" 2001, Progressive
+
+A Passage To God 
+Animus 
+Christian 
+Interaction 
+Liberty 
+New Age Warning 
+Outrow 
+Queen Of Swords 
+Raison D'Etre 
+Sacrifice Divine 
+Sleepwaves 
+Transcendence
+
+### "The Language of Menace" 2003, Progressive
+
+CD 1                                                    CD2
+
+                                                       (live videos)
+Candidate                          1.the language of menace 
+
+The Search                                 2.the search
+
+Open Your Eyes                 3.nightflight to heaven
+
+Signals of Intuition
+
+Road to Glory                    (un released versions)
+
+Midnight Connection
+
+Fear                                  1.looking for a leader
+
+The Language of Menace    2.midnight connection
+
+Cato Street                        3.the language of menace
+
+The Fall                             4.fight no more
+
+So Wild is Our World          5.vague memory 
+
+Nightflight to Heaven           6.so wild is our world 
+
+Vague Memory 
+
+Realisation                         (Advance track) 
+
+The Last Sunrise                   dignity plan
+
+
+re-release of Siam's awesome debut cd, re-mastered & including interactive video footage 
+
 
 ## Отношения с другими группами
 

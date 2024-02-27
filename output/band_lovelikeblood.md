@@ -1,9 +1,69 @@
 # Love Like Blood
 
-Дискография
-"Exposure" 1996, Gothic
-"Ecstasy" 1996, Gothic
-"Enslaved+Condemned" 2000, Gothic
+
+
+## Дискография
+
+### "Exposure" 1996, Gothic
+
+1. Exposure
+2. Painkilling Suicide
+3. Lost
+4. Shed Your Skin
+5. Colours Of Perversity
+6. Life
+7. Lethal Radiation
+8. Hide
+
+All Songs Written By LOVE LIKE BLOOD.
+Produced By LOVE LIKE BLOOD.
+Engineered By Jean-Pierre & Gottfried Koch.
+Mixed By Pete Coleman.
+Recorded At Impuls Tonstudio, Hamburg.
+
+Yorck Eysel - Vocals
+Gunnar Eysel - Bass
+Colin Hughes - Guitars
+Joxx Schmid - Drums
+
+(P)&(C) 1996 REBEL Records
+
+### "Ecstasy" 1996, Gothic
+
+1. Revelation (5.57)
+2. Injustice (4.30)
+3. Last Evil Emotions (4.07)
+4. Angie (5.45) *
+5. Dear Catherine (4.45)
+
+All songs written by LOVE LIKE BLOOD, except * by ROLLING STONES.
+Produced by LOVE LIKE BLOOD
+Engineered by A.Kremmer and K.Brosowski
+Recorded and mixed at Gorilla Studios
+
+Yorck Eysel - Vocals
+Gunnar Eysel - Bass
+Colin Hughes - Guitars
+Joxx Schmid - Drums
+
+(p)c 1996 REBEL Records
+
+### "Enslaved+Condemned" 2000, Gothic
+
+Love Kills 
+Cry Out 
+Dying Nation 
+Slow Motion 
+The River 
+7 Seconds 
+The Silver Shot 
+Passionate 
+Violation 
+Bleeding 
+Like A Bird 
+Remember 
+
+
 
 ## Отношения с другими группами
 

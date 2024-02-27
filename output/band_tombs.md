@@ -1,9 +1,32 @@
 # Tombs
 
-Дискография
-"Winter Hours" 2009, Metal
-"Fear Is The Weapon" 2010, Metal
-"Path Of Totality" 2011, Metal
+
+
+## Дискография
+
+### "Winter Hours" 2009, Metal
+
+
+
+### "Fear Is The Weapon" 2010, Metal
+
+
+
+### "Path Of Totality" 2011, Metal
+
+01. Black Hole Of Summer 
+02. To Cross The Land 
+03. Constellations 
+04. Bloodletters 
+05. Path Of Totality 
+06. Vermillion 
+07. Passageways 
+08. Silent World 
+09. Cold Dark Eyes 
+10. Black Heaven 
+11. Red Shadows 
+12. Angel of Destruction
+
 
 ## Отношения с другими группами
 

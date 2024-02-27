@@ -1,12 +1,112 @@
 # Tim Donahue
 
-Дискография
-"THE FIFTH SEASON" 1987, Progressive
-"STILL DREAMING" 1994, Progressive
-"MARKS MOUNTAIN - MOTION PICTURE SOUNDTRACK" 1995, Progressive
-"VOICES IN THE WIND" 1997, Progressive
-"INTO THE LIGHT" 2000, Progressive
-"MADMEN + SINNERS" 2004, Progressive
+progressive
+
+## Дискография
+
+### "THE FIFTH SEASON" 1987, Progressive
+
+What If.
+Shari.
+Kumiko.
+Toyo No Caze.
+Reflections Off An Ocean.
+The Coming Of Winter.
+Image Music.
+The Fifth Season. 
+Tim Donahue - Fretless electric guitars, fretless harp guitars, fretless guitar synthesizer fretless acoustic guitar.
+Joel Taylor - Drums. 
+Ken Shima - Piano. 
+Kevin Axt - Bass.
+
+### "STILL DREAMING" 1994, Progressive
+
+What If.
+Shari.
+Kumiko.
+Toyo No Caze.
+Reflections Off An Ocean.
+The Coming Of Winter.
+Image Music.
+The Fifth Season.
+
+Tim Donahue - Fretless electric guitars, fretless harp guitars, fretless guitar synthesizer fretless acoustic guitar.
+Joel Taylor - Drums. 
+Ken Shima - Piano. 
+Kevin Axt - Bass.
+
+### "MARKS MOUNTAIN - MOTION PICTURE SOUNDTRACK" 1995, Progressive
+
+Marks Theme (version 1). 
+The Coming Storm. 
+Illusions. 
+Goda. 
+Our Time. 
+At Last. 
+Mark's Theme (version 2). 
+Long Ago. 
+Dark Secrets. 
+You Don't Know Me. 
+Mark's Final Ascent. 
+
+Tim Donahue - Fretless & fretted electric guitars, fretless & fretless acoustic guitar, fretless harp guitar, fretless MIDI guitar, mandolin. 
+Jun Saito - Drums & percussion. 
+Masayo Nakano - Piano. 
+Tatsuhiko Hizawa - Fretless bass. 
+Koike String Section - Strings. 
+T. Sugawara - Flugelhorn. 
+Yoji Yoshizawa - Bagpipes.
+
+### "VOICES IN THE WIND" 1997, Progressive
+
+Step On It.
+Voices In The Wind.
+Another Day.
+Riff Raff.
+Sharing The Same Dream.
+How Long.
+Primal Urge.
+Never Look Back.
+No Re-entry.
+Mad Immortal Man.
+Heaven & Earth. 
+Tim Donahue - Fretless electric guitar, Fretless MIDI harp guitar.
+Paul Rodgers - Vocals on tracks 2, 5, 6 and 8.
+Jaz Lochrie - Bass.
+Toss Panos - Drums & Percussion.
+
+### "INTO THE LIGHT" 2000, Progressive
+
+No Turning Away.
+Into The Light.
+Time To Run.
+Acceleron.
+Skyrocket.
+Live Today.
+Tonight.
+Devil In Her Eyes.
+No Regrets.
+To Your Heart.
+Alien Talk. 
+Tim Donahue - Fretless electric guitars, fretless guitar synthesizer, fretless MIDI guitar, acoustic guitar, Gibson harp guitar, drum sampling & programming, fretted and fretless bass.
+Kelly Hansen - Lead and background vocals.
+
+### "MADMEN + SINNERS" 2004, Progressive
+
+Million Miles 
+Let Go 
+My Heart Bleeds 
+Feel My Pain 
+Morte et Dabo 
+Children Of The Flame 
+The End 
+Wildest Dreams 
+Master Of The Mind 
+Madmen & Sinner 
+Tim Donahue - Fretless Guitar, Bass and Keyboards.
+James LaBrie - Vocals
+Mike Mangini - Drums
+
 
 ## Отношения с другими группами
 

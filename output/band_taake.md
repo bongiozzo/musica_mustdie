@@ -1,11 +1,61 @@
 # Taake
 
-Дискография
-"Nattestid Ser Porten Vid" 1999, Black Metal
-"Over Bjoergvin Graater Himmerik" 2002, Black Metal
-"Hordalands Doedskvad" 2005, Black Metal
-"Taake" 2008, Black Metal
-"Noregs Vaapen" 2011, Black Metal
+
+
+## Дискография
+
+### "Nattestid Ser Porten Vid" 1999, Black Metal
+
+1. Vid I 05:55
+2. Vid II 05:34 
+3. Vid III 04:31
+4. Vid IV 04:35  
+5. Vid V 04:10 
+6. Vid VI 07:33 
+7. Vid VII 09:37 
+
+### "Over Bjoergvin Graater Himmerik" 2002, Black Metal
+
+1. Over Bjoergvin Graater Himmerik I 04:52  
+2. Over Bjoergvin Graater Himmerik II 06:41 
+3. Over Bjoergvin Graater Himmerik III 06:12
+4. Over Bjoergvin Graater Himmerik IV 06:31  
+5. Over Bjoergvin Graater Himmerik V 06:23 
+6. Over Bjoergvin Graater Himmerik VI 04:02
+7. Over Bjoergvin Graater Himmerik VII 04:24 
+
+### "Hordalands Doedskvad" 2005, Black Metal
+
+1. Hordaland Doedskvad Part I 07:43
+2. Hordaland Doedskvad Part II 06:02
+3. Hordaland Doedskvad Part III 06:16
+4. Hordaland Doedskvad Part IV 08:16
+5. Hordaland Doedskvad Part V 06:03 
+6. Hordaland Doedskvad Part VI 07:17  
+7. Hordaland Doedskvad Part VII 09:00 
+
+### "Taake" 2008, Black Metal
+
+1. Atternatt 06:48
+2. Umenneske 08:16
+3. Lukt Til Helvete 05:05
+4. Doedsjarl 05:26
+5. Motpol 05:12 
+6. September Omsider 05:12 
+7. Velg Bort Livet 10:27 
+
+### "Noregs Vaapen" 2011, Black Metal
+
+1. Fra vadested til vaandesmed (6:47) 
+2. Orkan (6:17) 
+3. Nordbundet (5:25) 
+4. Du ville ville Vestland (6:51) 
+5. Myr (5:35) 
+6. Helvetesmakt (5:37) 
+7. Dei vil alltid klaga og kyta (10:17)
+
+Hoest - Vocals, All Instruments 
+
 
 ## Отношения с другими группами
 

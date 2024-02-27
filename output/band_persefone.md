@@ -1,9 +1,42 @@
 # Persefone
 
-Дискография
-"Truth Inside The Shades" 2003, Black Metal
-"Core" 2006, Melodic Death Metal
-"Shin-Ken" 2009, Melodic Death Metal
+
+
+## Дискография
+
+### "Truth Inside The Shades" 2003, Black Metal
+
+My Unwithered Shrine 
+The Whisper Of Men 
+Truth Inside The Shades 
+Niflheim (the eyes that hold the edge) 
+Atomperal Divinity 
+The Demise Of Oblivion
+
+### "Core" 2006, Melodic Death Metal
+
+1. Sanctuary - Light and Grief
+2. Underworld - The Fallen and The Butterfly
+3. Seed - Core and Persephone
+
+### "Shin-Ken" 2009, Melodic Death Metal
+
+1. The Ground Book	 
+2. Fall to Rise
+3. Death Before Dishonour
+4. The Water Book 
+5. The Endless Path
+6. The Wind Book	 
+7. Purity
+8. Rage Stained Blade
+9. The Fire Book	 
+10. Kusanagi	
+11. Shin-Ken Part I
+12. Shin-Ken Part II
+13. The Void Book	 
+14. Japanese Poem	 
+15. Sword of The Warrior (Cacophony cover)
+
 
 ## Отношения с другими группами
 

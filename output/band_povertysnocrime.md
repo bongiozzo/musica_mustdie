@@ -1,12 +1,76 @@
 # Poverty's No Crime
 
-Дискография
-"Symbiosis" 1995, Progressive
-"The Autumn Years" 1996, Progressive
-"Slave To The Mind" 1999, Progressive
-"One In A Million" 2001, Progressive
-"The Chemical Chaos" 2003, Progressive
-"Save My Soul" 2007, Progressive
+
+
+## Дискография
+
+### "Symbiosis" 1995, Progressive
+
+1. The Sinners Dream 
+2. Moral Dilemma 
+3. My Favourite Delusion 
+4. The A And The O 
+5. Remember 
+6. Perfect Wings 
+7. Meet Me At The Sky 
+8. State Of Greed 
+9. A World Without End
+
+### "The Autumn Years" 1996, Progressive
+
+
+
+### "Slave To The Mind" 1999, Progressive
+
+1. Access Denied
+2. The Distant Call
+3. A Matter Of Mind
+4. The Senses Go Blind
+5. Wind And Light
+6. Manic
+7. Electronic Eyes
+8. Now And Again
+9. Live In The Light
+
+### "One In A Million" 2001, Progressive
+
+The Stolen Eye 
+Ancient Lies 
+Incognito 
+Just A Dream 
+The Stranger Within 
+Logan 5 
+Open To Attack 
+Point Of View 
+Dare To Fly 
+Distant Early Warning (Bonus-Track)
+
+### "The Chemical Chaos" 2003, Progressive
+
+Walk Into Nowhere 
+Every Kind Of Life 
+All Minds In One 
+A World Without Me 
+Terminal Trip 
+Pact With The Past 
+Left To Chance 
+Moving Target 
+Do What You Feel 
+Access Denied - Unplugged Version - (Bonus Track)
+
+### "Save My Soul" 2007, Progressive
+
+Intro 
+Open Your Eyes 
+Save My Soul 
+End In Sight 
+The Key To Creativity 
+In The Wait Loop 
+The Torture 
+Spellbound 
+From A Distance 
+Break The Spell
+
 
 ## Отношения с другими группами
 

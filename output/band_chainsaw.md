@@ -1,8 +1,29 @@
 # Chainsaw
 
-Дискография
-"Smell The Saw" 2004, Thrash
-"Metal Missionary" 2009, Thrash
+
+
+## Дискография
+
+### "Smell The Saw" 2004, Thrash
+
+
+
+### "Metal Missionary" 2009, Thrash
+
+1. Demolition Hammer 03:40  
+2. Hand of God 04:01  
+3. Supreme Command 03:52  
+4. The Missionary 03:58  
+5. The Meat Factory 03:29  
+6. Liquid Love 04:01  
+7. Total Annihilation 03:49  
+8. Two Feet of Meat 03:21  
+9. Dominion of Man 03:56  
+10. Meet Your Maker 04:49  
+11. Heavy Sex Maniac 04:40  
+12. Tonight I'm Going to Rock You Tonight 02:08  
+13. The Meat Locker 02:19 
+
 
 ## Отношения с другими группами
 

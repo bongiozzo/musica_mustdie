@@ -1,10 +1,78 @@
 # Enochian Crescent
 
-Дискография
-"Anno Bastardi (demo)" 1996, Black Metal
-"Telocvovim" 1997, Black Metal
-"Babalon Patrale de Telocvovim [EP]" 1998, Black Metal
-"Omega Telocvovim" 2000, Black Metal
+Finnish Blasphemous Occult Satanic Black Metal from Vaasa
+
+## Дискография
+
+### "Anno Bastardi (demo)" 1996, Black Metal
+
+1. Closed Gates of Tomorrow (The Cold Harvest)
+2. The Shadows Embrace
+3. Afar (The Age of Dust0
+4. 13 Candles
+
+### "Telocvovim" 1997, Black Metal
+
+1. Kun Ihmisliha Itki (1:25)
+2. Closed Gates of Tomorrow (The Cold Harvest) (2:58)
+3. Crescentian (3:47)
+4. Under Autumn Trees (3:49)
+5. Amma i Piad sa Madriiax (3:48)
+6. A Wolf Among Sheep (4:47)
+7. A Dream of Basaltic Submarine Towers of Titanic Proportions and Nightmare
+Angles (4:08)
+8. Afar (The Age of Dust) (4:58)
+9. When Tears Run Dry (3:44)
+10. Bonedancer (3:35)
+11. Black Flame of Satan Burning (4:53)
+
+1997 Woodcut Records
+
+### "Babalon Patrale de Telocvovim [EP]" 1998, Black Metal
+
+1. Pestilence and Honey (2:59)
+2. Vabzir Camliae (3:16)
+3. Thirteen Candles (4:10)
+4. Mortiferum or Ptomaine Malaise (4:04)
+5. A Mathilde (2:40)
+
+Wrath - Vocal malice
+Victor - Wretched guitars, spirit voices
+Generis - Supreme and prime drums
+Harald - Chaos crumbling bass
+Eappa - Fire-keen guitars
+
+Recorded at the sacrilegious Tico-Tico Studio in March 1998 Anno Bastardi.
+Engineered and mixed by Ahti "Myrkky" Kortelainen.
+Produced and mixed by Enochian Crescent.
+All artwork by MinuteWerk Graphiks.
+
+Released: January 1st, 1998
+
+1998 AvantGarde Music
+
+### "Omega Telocvovim" 2000, Black Metal
+
+1. Oceanus on the Dry Land (4:57)
+2. Abaiuonin (5:15)
+3. Transversary (4:07)
+4. `Tis the Sound of Tempest That Drowns Us Out (3:59)
+5. Ye Crystall Sphears (5:20)
+6. Igne Natura Renovatur Integra (3:30)
+7. V&auml;kisinkastettu (4:36)
+8. De Siatris od Teloch (4:09)
+9. Grey Skin (4:23)
+
+Drakh Wrath - Vocals
+Victor Floghdraki - Guitars, additional vocals
+Grief Kadmos - Drums
+Michael Apofis - Guitars
+Harald Tannin - Bass
+
+Released: January 1st, 2000
+
+2000 AvantGarde Music
+
 
 ## Отношения с другими группами
 

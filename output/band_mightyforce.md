@@ -1,7 +1,34 @@
 # Mighty Force
 
-Дискография
-"Hypnovel" 1992, Industrial
+
+
+## Дискография
+
+### "Hypnovel" 1992, Industrial
+
+1. Love Will Eat You
+2. 3rd World Drummernation
+3. Circletime
+4. Freebass
+5. Fat Ledy Philosophers
+6. Dum Dum
+7. Antarctica
+8. Plabeast
+9. Orchus
+10.Cool Dark Place
+11.Phase Nation
+12.Krispy Krunchy
+
+ Rob Fielding
+ Simeon Davies
+ Adam West
+
+Produced By Jonathan Barrett & MIGHTY FORCE
+Engineered By Jonathan Barrett
+Recorded At Suite 16 Rochdale
+
+(p)&(c) 1992 EARACHE Records
+
 
 ## Отношения с другими группами
 

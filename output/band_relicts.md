@@ -1,7 +1,22 @@
 # Relicts
 
-Дискография
-"12 On The Richter Scale" 2008, Techno Death
+oriental black-death-metal from Turkmenistan
+
+## Дискография
+
+### "12 On The Richter Scale" 2008, Techno Death
+
+1. Vendidad
+2. Anthill
+3. Desert
+4. Haoma
+5. Sacred Fire
+6. Underside of Truth
+7. Stratosphere
+8. Asphyxy
+9. End of Times
+10. 12 on the Richter Scale
+
 
 ## Отношения с другими группами
 

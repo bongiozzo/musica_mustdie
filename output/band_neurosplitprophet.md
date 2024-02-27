@@ -1,7 +1,23 @@
 # Neurosplit Prophet
 
-Дискография
-"Encrypted Future Contingency" 2009, Techno Death
+
+
+## Дискография
+
+### "Encrypted Future Contingency" 2009, Techno Death
+
+1. Abolished Land 03:52  
+2. Warmonger 03:20  
+3. Cleansation 02:55  
+4. 6th Day Failure 04:11  
+5. Digamma 00:46  
+6. Technomancy 02:48  
+7. Progenesis 02:41  
+8. Main Effect 03:56  
+9. Eve Of Destruction 03:40  
+10. Molecular 02:48  
+11. Tau (main effect) 02:50 
+
 
 ## Отношения с другими группами
 

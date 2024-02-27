@@ -1,13 +1,150 @@
 # Dog Eat Dog
 
-Дискография
-"Warrant" 1993, Rap Metal
-"If These Are Good Times.../ No Fronts" 1994, Rap Metal
-"All Boro Kings" 1994, Rap Metal
-"Who's The King?" 1995, Rap Metal
-"Play Games" 1996, Rap Metal
-"Amped" 1999, Rap Metal
-"Walk With Me" 2006, Rap Metal
+One of the finest funky 'core bands
+
+## Дискография
+
+### "Warrant" 1993, Rap Metal
+
+1. It's Like That
+2. Dog Eat Dog
+3. World Keeps Spinnin'
+4. ...In The Dog House
+5. Psychorama
+6. ...In The Dog House (Dog Pound Remix)
+
+
+ John Connor - Vocals
+ Dan Nastasi - Guitars, Vocals
+ Sean Kilkenny - Guitars
+ Dave Neabore - Bass, Vocals
+ Dave Maltby - Drums
+ Scott Mueller - Saxophone
+ Doug Wilson - Dog House Vocals
+
+Produced By Dan Nastasi, Chris Anderson & DOG EAT DOG
+Engineered & Mixed By Chris Anderson
+Recorded & Mixed At Nevessa Production, Woodstock, NY
+
+(p)&(c) 1993,1994 ROADRUNNER Records
+
+### "If These Are Good Times.../ No Fronts" 1994, Rap Metal
+
+1. If These Are Good Times... (Remix)
+2. No Fronts (Edit)
+3. More Beer *
+4. Why Does It Hurt When I Pee? **
+
+ John Connor - Vocals
+ Dan Nastasi - Guitars, Vocals
+ Sean Kilkenny - Guitars
+ Dave Neabore - Bass, Vocals
+ Dave Maltby - Drums
+
+Tracks 1 & 2 Produced & Engineered By Jason Corsaro
+Track 3 & 4 Produced By Ray Martin & DOG EAT DOG
+* Originally Recorded By FEAR, Lyrics & Music: Lee Ving
+** Originally Recorded By Frank Zappa
+
+(p)&(c) 1994 ROADRUNNER Records
+
+### "All Boro Kings" 1994, Rap Metal
+
+1. If These Are Good Times
+2. Think
+3. No Fronts
+4. Pull My Finger
+5. Who's The King ?
+6. Strip Song
+7. Queen
+8. In The Doghouse
+9. Funnel King
+10. What Comes Around
+
+ John Connor - Vocals
+ Dan Nastasi - Guitars, Vocals
+ Sean Kilkenny - Guitars
+ Dave Neabore - Bass, Vocals
+ Dave Maltby - Drums
+
+All Songs Composed, Arranged & Performed By DOG EAT DOG
+Produced, Engineered & Mixed By Jason Corsaro
+Recorded At Ambient Recording Corp., Stamford CT
+
+(p)&(c) 1994 ROADRUNNER Prod. B.V.
+
+### "Who's The King?" 1995, Rap Metal
+
+1. Who's The King ? (Slight Remix) *
+2. Pull My Finger (Live) **
+3. Think (Live) **
+4. Dog Eat Dog **
+
+ John Connor - Vocals
+ Dan Nastasi - Guitars, Vocals
+ Sean Kilkenny - Guitars
+ Dave Neabore - Bass, Vocals
+ Dave Maltby - Drums
+ Scott Mueller - Saxophone
+
+* Produced & Engineered By Jason Corsaro
+All Songs Written By DOG EAT DOG.
+** Recorded Live In Bonn, Germany, November, 12, 1994.
+Engineered & Made Fat By Evan Blayer.
+
+(p)&(c) 1995 ROADRUNNER Records
+
+### "Play Games" 1996, Rap Metal
+
+1.  Bulletproof
+2.  Isms
+3.  Hi-Lo
+4.  Rocky
+5.  Step Right In
+6.  Rise Above
+7.  Games
+8.  Getting Live
+9.  Buggin'
+10. Numb
+11. Sore Loser
+
+Play Games All-Star Roster 1996 Season Line-Up
+"Dog Eat Dog - Propps" Team Are:
+Hockey (Center) - John Connor - Vocals
+Formula I (Droops) - Sean Kilkenny -  Guitar
+Baseball (1st Base) - Dave Neabore - Bass, Vocals
+Basketball (#23) - Brandon Finley - Drums
+Football (Of) - Scott Mueller - Saxophone, Keyboards, Vocals
+Soccer (LW) - Marc DeBacher - Guitar
+Additional Horns Performed By Paul Verces, Jon Verces, Keene Carse & Kevin Batcheler.
+Additional Percussion Performed By Heartbeat.
+Additional Vocals Performed By Jeannie Brooks (2), By R.J.Dio (7), Danny Ilchuk & Chippy Love (8), Kevin Batchelor (1).
+Sportcaster On (7) - Ian Eagle.
+
+Produced By Butcher Brothers, Robert Musso, RZA.
+
+(P)c 1996 THE ALL BLACKS B.V.
+
+### "Amped" 1999, Rap Metal
+
+1. Gangbusters
+2. Expect the unexpected
+3. Whateverman
+4. Modern day devils
+5. Get up
+6. Always the same
+7. Big wheel
+8. In the city
+9. Right out
+10. One day
+11. True color
+12. In time 
+
+
+### "Walk With Me" 2006, Rap Metal
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,22 @@
 # Witchunter
 
-Дискография
-"Crystal Demons" 2010, Heavy Metal
+
+
+## Дискография
+
+### "Crystal Demons" 2010, Heavy Metal
+
+1. Shadow of the Night	01:58	 
+2. Crystal Demons	04:34
+3. Over the Lightning	05:22
+4. Speed Killer	04:07
+5. Road Master	03:57
+6. Ready Tonight	03:34
+7. Princess of Hell	03:31
+8. The Breath of Satan	07:55
+9. Witchunter	04:45
+10. Hellbound (Tygers of Pan Tang Ccover)
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,13 @@
 # Death SS
 
-Дискография
-"The Seventh Seel" 2006, Heavy Metal
+
+
+## Дискография
+
+### "The Seventh Seel" 2006, Heavy Metal
+
+
+
 
 ## Отношения с другими группами
 

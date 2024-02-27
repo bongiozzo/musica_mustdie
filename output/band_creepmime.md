@@ -1,8 +1,60 @@
 # Creepmime
 
-Дискография
-"Shadows" 1993, Death Metal
-"Chiaroscuro" 1996, Death Metal
+
+
+## Дискография
+
+### "Shadows" 1993, Death Metal
+
+1. The Fruits Of Ill Virtue
+2. A Serenade For The Tragic
+3. Suffer The Shadows
+4. The Way Of All Flesh
+5. Chinese Whispers
+6. Soon Ripe, Soon Rotten
+7. Gathered The Shattered
+8. My Soul Flayed Bare
+
+ Rogier Hakkaart - Vocals, Guitars
+ Andy Judd - Guitars
+ Mark Hope - Bass
+ Frank Brama - Drums
+
+All Songs Written By CREEPMIME
+Produced By Patrick Mameli
+Engineered By Hans Pieters
+Recorded & Mixed At The Excess Studio,
+Rotterdam, Holland, Aug. 1993
+
+(p)&(c) 1993 MASCOT MUSIC Productions
+
+### "Chiaroscuro" 1996, Death Metal
+
+1. The Colour Still Unwinds
+2. Scarlet Man
+3. In The Flesh
+4. Clarity
+5. Diced
+6. Chiaroscuro
+7. Black Widower
+8. Fools Paradise
+9. King Of Misrule
+[10].Gods Thoughts
+
+[10] - на стороне B
+
+Joost Van Der Graaf - Vocals, Bass
+Andy Judd - Guitars
+Aad Giezen - Guitars
+Frank Brama - Drums
+
+All Songs Written By CREEPMIME
+Produced By Patrick Mameli
+Engineered By Hans Pieters
+Recorded & Mixed At The Excess Studio, Rotterdam, Holland.
+
+(p)&(c) 1996 MASCOT MUSIC Productions
+
 
 ## Отношения с другими группами
 

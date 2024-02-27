@@ -1,8 +1,34 @@
 # Solar Fragment
 
-Дискография
-"A Spark Of Deity" 2007, Power Metal
-"In Our Hands" 2011, Power Metal
+
+
+## Дискография
+
+### "A Spark Of Deity" 2007, Power Metal
+
+1. Man of Faith 04:27 
+2. Take Me Higher 04:54
+3. To Thy Crown 04:19
+4. Lands, Titles, Nothimg 05:37
+5. So Long 04:55
+6. Fading Light 04:58
+7. Wanderlust 05:03
+8. The Assassin 04:47
+9. Fragment of the Sun 04:53 
+
+### "In Our Hands" 2011, Power Metal
+
+1. In Our Hands
+2. With Empty Eyes
+3. Inside The Circle
+4. At The Harbor
+5. Race The Seas
+6. Come Hell Or High Water
+7. Homecoming
+8. Moana’s Return
+9. The March Of The Golems
+10. Once Again
+
 
 ## Отношения с другими группами
 

@@ -1,21 +1,216 @@
 # Richie Kotzen
 
-Дискография
-"Richie Kotzen" 1989, Heavy Metal
-"Fever Dream" 1990, Instrumental
-"Electric Joy" 1991, Instrumental
-"Mother Heads Family Reunion" 1994, Hard Rock
-"The Inner Galactic Fusion Experience" 1995, Fusion
-"Bi Polar Blues" 1999, Blues
-"Wave of Emotion" 2000, Fusion
-"Something To Say" 2000, Rock
-"What is" 2000, Rock
-"Break it all Down" 2000, Rock
-"Slow" 2003, Rock
-"Change" 2003, Rock
-"Get Up" 2004, Rock
-"Acoustic Cuts" 2004, Rock
-"Into The Black" 2006, Rock
+
+
+## Дискография
+
+### "Richie Kotzen" 1989, Heavy Metal
+
+1 Squeeze Play
+2 Strut It
+3 Unsafe At Any Speed
+4 Rat Trap 
+5 Cryptic Script
+6 Plaid Plesiosaur 
+7 Spider Legs 
+8 Jocose Jenny
+9 Noblesse Oblige
+
+### "Fever Dream" 1990, Instrumental
+
+1 She
+2 Fall Of A Leader
+3 Off The Rails (Kotzen/Varney) 
+4 Yvonne 
+5 Things Remembered Never Die (Kotzen/Varney) 
+6 Dream Of A New Day 
+7 Money Power
+8 Rollercoaster
+9 Wheels Can Fly 
+10 Truth In Lies
+
+### "Electric Joy" 1991, Instrumental
+
+1 B Funk
+2 Electric Joy 
+3 Shufina 
+4 Acid Lips
+5 Slow Blues 
+6 High Wire
+7 DR Glee
+8 Hot Rails
+10 The Deece Song
+
+### "Mother Heads Family Reunion" 1994, Hard Rock
+
+1 Socialite
+2 Mother Heads Family Reunion 
+3 Where Did Our Love Go?
+4 Natural Thing
+5 A Love Divine
+6 Soul To Soul
+7 Reach Out I'll be There (Holland/Dozier) 
+8 Testify
+9 Used 
+10 A Woman and a Man
+11 Livin' Easy
+12 Cover Me
+13 Wailing Wall (Japanese Release Only)
+
+### "The Inner Galactic Fusion Experience" 1995, Fusion
+
+1 Pulse 
+2 Dose 
+3 Hypnotist
+4 Ultramatic
+5 Trick (Kotzen/Bissonette)  
+6 Stark (Kotzen/Bissonette) 
+7 Hype 
+8 Tramp
+9 Last Words
+
+### "Bi Polar Blues" 1999, Blues
+
+1 Gone Tomorrow Blues 
+2 Tied To You
+3 They're Red Hot (Johnson) 
+4 Tobacco Road (Loudermilk) 
+5 Broken Man Blues
+6 The Thrill Is Gone (Pettite/Benson) 
+7 From Four Till Late (Johnson) 
+8 A Step Away 
+9 Burn It Down
+10 No Kinda Hero
+11 Richie's Boogie
+
+### "Wave of Emotion" 2000, Fusion
+
+1.World Affair 
+2 Wave of Emotion (Kotzen/Eve) 
+3 Stoned (Kotzen/Hughes) 
+4 Degeneration
+5 Air 
+6 Sovereign
+7 Breakdown 
+8 Moonshine
+9 Fool
+10 I'm Comin' out
+11 Strobe (Kotzen/Anur)
+
+### "Something To Say" 2000, Rock
+
+1.Something to Say
+2 What Makes a Man
+3 The Bitter End 
+4 Camouflage
+5 Turned Out (Kotzen/Eve) 
+6 Faded
+7 Let Me In (Kotzen/Anur)
+8 Rust
+9 Ready 
+10 Aberdine
+11 Holy Man
+12 Paradox
+
+### "What is" 2000, Rock
+
+1.What is 
+2 Too Deep
+3 You Got A Fire 
+4 Locked Out
+5 You Don't Owe Me
+6 Angie 
+7 Open Your Eyes
+8 Strength
+9 Lose Again
+10 Cross The Line
+11 I'm Losin' You
+
+### "Break it all Down" 2000, Rock
+
+1.Break it all Down
+2.Killin' Time
+3.The Feelin's Gone (Kotzen/Bramhall)
+4.Some Voodoo (Kotzen/Lush) 
+5.I Would
+6.You Don't Know
+7.Live A Little
+8.I Don't Belong
+9.My Addiction (Kotzen/Zito)
+10.It Burns (Kotzen/Lush)
+11.I'll Be Around (Bell/Hurtt)
+
+### "Slow" 2003, Rock
+
+1. Ohio
+2. Scared of you
+3. Gold digger
+4. The Answer 
+5. Slow
+6. Don't wanna lie 
+7Got it bad
+8. I can make you happy
+9. Sapphire
+10. Come back (swear to god)
+11. Rely on me
+12. Let's say goodbye
+13. conflicted
+Bonus track. conflicted (reprise)
+
+### "Change" 2003, Rock
+
+1. Forever One
+2. Get a Life
+3. Change
+4. Don't Ask
+5. Deeper (Into You)
+6. High
+7. Am I Dreamin
+8. Shine (Acoustic Version)
+9. Good For Me
+10. Fast Money Fast Cars
+11. Unity (Jazz Bee Bop Instrumental)
+12. Out Take (Bonus Track)
+
+### "Get Up" 2004, Rock
+
+1. losin my mind
+2. fantasy
+3. remember
+4. get up
+5. so cold
+6. such a shame
+7. made for tonight
+8. still
+9. never be the same
+10. special
+
+### "Acoustic Cuts" 2004, Rock
+
+01. Change
+02. What Is
+03. High
+04. Don't Ask
+05. Where Did Our Love Go
+06. Rust
+07. I Would
+08. You've Got A Fire
+09. Don't Wanna Lie
+10. Let's Say Goodbye
+
+### "Into The Black" 2006, Rock
+
+1. You Can't Save Me
+2. Misunderstood
+3. Fear
+4. The Shadow
+5. Doin' What The Devil Says To Do
+6. Till You Put Me Down
+7. Sacred Ground
+8. Your Lies
+9. Livin' In Bliss
+10. My Angel
+
 
 ## Отношения с другими группами
 

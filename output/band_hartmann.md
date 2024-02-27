@@ -1,7 +1,13 @@
 # Hartmann
 
-Дискография
-"Out In The Cold" 2005, Hard Rock
+
+
+## Дискография
+
+### "Out In The Cold" 2005, Hard Rock
+
+
+
 
 ## Отношения с другими группами
 

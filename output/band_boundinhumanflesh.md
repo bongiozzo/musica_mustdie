@@ -1,8 +1,38 @@
 # Bound In Human Flesh
 
-Дискография
-"Sick Lust for Revenge" 2005, Death Metal
-"Systematic Destruction" 2009, Death Metal
+
+
+## Дискография
+
+### "Sick Lust for Revenge" 2005, Death Metal
+
+1. Becoming the Serpent
+2. Justified Terrorist
+3. Bound in Human Flesh
+4. Decapitate
+5. The Apocalypse
+6. Dark One
+7. Covered in Blood
+8. Feel the Pain of Death
+9. Onslaught Under Tyranny
+10. Horror
+11. Possessed by Psychopaths	 
+12. Epidermologue
+
+### "Systematic Destruction" 2009, Death Metal
+
+1. Nuclear Annihilation	 
+2. Systematic Destruction	 
+3. Zombie Children	 
+4. Necro Experiment	 
+5. Again I Kill	 
+6. Chainsaw Homicide	 
+7. Revenge Against Humanity	 
+8. Cold Dark Hate	 
+9. Mass Murder Prophecy	 
+10. The Walking Dead	 
+11. The Final Victem
+
 
 ## Отношения с другими группами
 

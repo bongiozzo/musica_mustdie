@@ -1,7 +1,52 @@
 # Final Chapter
 
-Дискография
-"The Wizard Queen" 2004, Power Metal
+German power metal
+
+## Дискография
+
+### "The Wizard Queen" 2004, Power Metal
+
+1. Intro 01:11 
+2. The WizardQueen 06:34
+3. The Beginning 08:59 
+4. The Old Man 04:41
+5. The Ones Who Cannot Love 05:41 
+6. The Ballad Of The Queen 07:45 
+7. The Temple Of Fear 02:21 
+8. The King Of The Court 06:37
+9. The Fight 04:00
+10. The Resurrection 09:32
+11. The Arrival Of The Queen 04:14 
+12. The Search 07:49 
+
+
+Line-up:
+
+Michael Brettner - Guitars
+Achim Sizinger - Guitars
+Andreas Wimmer - Keyboards & Bass
+Michael Stein - Drums & Percussion
+
+Vocals:
+
+Ulrike Esch - The WizardQueen
+Oliver Strasser - The Saviour
+Chitral Somapala - The King
+Katrin Hoffman - The Elf
+Tobias Sammet - The Guardian
+Duke - The Old Man
+
+Choirs of Dawn:
+
+Meike Anlauff, Claudia Obser, Chitral Somapala
+Oliver Strasser, Ulrike Esch, Katrin Hoffman
+
+
+Recorded, mixed and mastered at Audioworld Tonstudio in Remscheid
+by Frank Rausch and Achim Sinzinger
+
+Cover by Rainer Kalwitz
+
 
 ## Отношения с другими группами
 

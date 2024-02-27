@@ -1,10 +1,113 @@
 # Skyfire
 
-Дискография
-"Timeless Departure" 2001, Melodic Death Metal
-"Mind Revolution" 2003, Melodic Death Metal
-"Spectral" 2004, Melodic Death Metal
-"Esoteric" 2009, Melodic Death Metal
+Melodic death-black metal
+
+## Дискография
+
+### "Timeless Departure" 2001, Melodic Death Metal
+
+1. Intro                          [ 2.05 ]
+2. Fragments of Time              [ 3.32 ]
+3. The Universe Unveils           [ 4.56 ]
+4. Skyfire                        [ 3.52 ] 
+5. Timeless Departure             [ 6.49 ] 
+6. Breed Through Me, Bleed For Me [ 5.10 ] 
+7. Dimensions Unseen              [ 4.54 ] 
+8. By God Forsaken                [ 4.57 ] 
+9. From Here to Death             [ 5.32 ] 
+
+
+
+
+Recorded and mixed at Abyss studios between August 1st and 14th, 2000
+All music and arrangements by Skyfire
+Lyrics by Tobias and Martin
+
+
+Andreas Edlund - Guitar and synth
+Martin Hanner - Guitar and synth
+Jonas Sjцgren - Bass
+Tobias Bjцrk - Drums
+Henrik Wenngren - Vocals
+
+
+
+
+### "Mind Revolution" 2003, Melodic Death Metal
+
+1. Nightmares Nevermore 03:16
+2. Haunted By Shadows 05:27  
+3. Colliding In Mind 04:23  
+4. Dawn Will Break 03:37  
+5. Uncloud The Sky 04:52  
+6. Shapes Of Insanity 06:00  
+7. Blinded By Euphoria 04:40 
+8. Caged 04:01 
+9. Mind Revolution 06:55 
+
+
+Line-up:
+Joakim Jonsson - Drums, Guitars
+Martin Hanner - Guitars, Keyboards
+Henrik Wenngren - Vocals
+Jonas Sjogren - Bass
+Andreas Edlund - Guitars and Keyboards
+
+Korean release havs four bonus songs: 
+10 - The Final Story (01:39) *
+11 - Skyfire (Demo)(03:58) *
+12 - By God Forsaken (Demo)(05:00) *
+13 - Free Form Torment (04:41)
+*: Taken from the "The Final Story" demo, 1998.
+
+Bonus track for Japan:
+10. Free from Torment (04:41) 
+
+### "Spectral" 2004, Melodic Death Metal
+
+1. Conjuring the Thoughts 
+2. Effusion of Strength 
+3. Shivering Shade 
+4. Cursed by Belief 
+5. Awake 
+6. Void of Hope 
+7. A Dead Mans Race 
+8. Shadow Creator  
+9. Tranquillitys Maze
+
+### "Esoteric" 2009, Melodic Death Metal
+
+1. Deathlike Overture (Intro) 01:26  
+2. Esoteric 04:44  
+3. Rise and Decay 06:10  
+4. Let the Old World Burn 04:10  
+5. Darkness Descending 07:09  
+6. Seclusion 03:56  
+7. Misery's Supremacy 07:10  
+8. Under a Pitch Black Sky 04:52  
+9. Linger In Doubt 05:18  
+10. The Legacy of the Defeated 07:21 
+
+
+Line-up:
+Joakim Karlsson - Vocals
+Martin Hanner - Bass, Keyboards
+Andreas Edlund - Guitars, Keyboards
+Johan Reinholdz - Guitars
+Joakim Jonsson - Drums
+
+Release dates:
+September 18 in the UK
+September 25 in the rest of Europe
+October 13 in North America
+
+Artwork by Pдr Olofsson (The Faceless, Psycroptic, Spawn Of Possession) with
+layout handled by Cult Of Luna's Erik Olofsson.
+
+Bonus track: 
+11. Within Reach (03:36)
+(This is the title track of the band's demo with the same title) 
+
 
 ## Отношения с другими группами
 

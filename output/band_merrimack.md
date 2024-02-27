@@ -1,10 +1,59 @@
 # Merrimack
 
-Дискография
-"Ashes of Purification" 2002, Black Metal
-"Of Entropy and Life Denial" 2006, Black Metal
-"Grey Rigorism" 2009, Black Metal
-"The Acausal Mass" 2012, Black Metal
+
+
+## Дискография
+
+### "Ashes of Purification" 2002, Black Metal
+
+1.	 Suicide	03:49	 
+2.	 Paedophictic Orgasmatron	05:59	 
+3.	 Noigel	05:28	 
+4.	 The Fall Amongst the Legions of Slaves	04:11	 
+5.	 Live the Lie	05:02	 
+6.	 Horns Defeat Thorns	05:13	 
+7.	 Blood	04:43	 
+8.	 Ashes of Purification	06:39
+
+### "Of Entropy and Life Denial" 2006, Black Metal
+
+1.	 ... 
+2.	 Seraphic Conspiracy
+3.	 Melancholia Balneam Diaboli
+4.	 Redeem Restless Souls
+5.	 Insemination
+6.	 The Birth of a Life's Sacerdoce	 
+7.	 Descension From Life
+8.	 Subcutaneous Infection
+9.	 Consecration of the Temple
+10.	 Carnaceral
+11.	 Adiabatic Bonds of Consanguinity
+
+### "Grey Rigorism" 2009, Black Metal
+
+1.	 The Golden Door
+2.	 Omniabsence
+3.	 Kirjath-Ra
+4.	 La Saintet&#233; du Ma
+5.	 Cold Earth Mourning
+6.	 Grey Rigorism
+7.	 When the Stars Align
+8.	 D&#233;saveu
+9.	 In the Halls of White Death
+10.	 By thy grace
+
+### "The Acausal Mass" 2012, Black Metal
+
+01.Vestals of Descending Light
+02. Arousing Wombs in Nine Angles Pleroma
+03. Gospel of the Void
+04. Beati Estis Cum Maledixerint Vobis
+05. Hypophanie
+06. Obstetrics of Devourment
+07. Worms in the divine Intestine
+08. Abortion Light
+09. Liminal Matter Corruption
+
 
 ## Отношения с другими группами
 

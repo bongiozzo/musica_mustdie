@@ -1,7 +1,25 @@
 # Snot
 
-Дискография
-"Get Some" 1997, Hardcore
+
+
+## Дискография
+
+### "Get Some" 1997, Hardcore
+
+1. Snot 
+2. Stoopid 
+3. Joy Ride 
+4. The Box 
+5. Snooze Button 
+6. Get Some 
+7. Deadfall 
+8. I Jus' Lie 
+9. Unplugged 
+10. Tecato 
+11. Mr. Brett 
+12. My Balls 
+
+
 
 ## Отношения с другими группами
 

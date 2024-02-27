@@ -1,13 +1,98 @@
 # Thanatos
 
-Дискография
-"Emerging From The Nether World" 1990, Death Metal
-"Realm Of Ecstasy" 1992, Death Metal
-"Rebirth" 2000, Death Metal
-"Angelic Encounters" 2001, Death Metal
-"Undead.Unholy.Divine" 2004, Death Metal
-"Justified Genocide" 2009, Death Metal
-"Global Purification" 2014, Death Metal
+
+
+## Дискография
+
+### "Emerging From The Nether World" 1990, Death Metal
+
+1. Dawn Of The Dead
+2. Outward Of The Inward
+3. Bodily Dismemberment
+4. Internal Deceit
+5. The Day Before Tomorrow
+6. War
+7. Rebirth
+8. Progressive Destructor
+9. Impostors Infiltration
+10.Omnicoptor
+11.Dolor Satanae
+
+Stephan Gebedy - Guitar & Vocals
+Ervin De Broywer - Lead Guitar
+Ed Boeser - Bass
+Remo Van Arnhem - Drums
+
+Produced,Recorded & Mixed By Ulle Posselt.
+
+(p)&(c) 1990 SHARK Records
+
+### "Realm Of Ecstasy" 1992, Death Metal
+
+1. And Jesus Wept (Intro)
+2. Tied Up,Slices Up
+3. Realm Of Ecstasy
+4. Mankind`s Afterbirth
+5. In Praise Of Lust
+6. Perpetual Misery
+7. Human Combustion
+8. Reincarnation
+9. Terminal Breath
+
+ Stephan Gebedy - Guitar,Vocals
+ Ervin De Brouwer - Guitar
+ Ed Boeser - Bass
+ Remo Van Arnheim - Drums
+
+All Songs By Gebedy & Brouwer.
+Produced By Uli Posselt.
+Recorded By Uli Posselt & Steven Keusch.
+
+(p)&(c) 1992 SHARK Records
+
+### "Rebirth" 2000, Death Metal
+
+
+
+### "Angelic Encounters" 2001, Death Metal
+
+
+
+### "Undead.Unholy.Divine" 2004, Death Metal
+
+
+
+### "Justified Genocide" 2009, Death Metal
+
+01. They Feed On Fear
+02. Destruction.Chaos.Creation
+03. The Devil’s Triangle
+04. March Of The Infidels
+05. Justified Genocide
+06. The Netherworld
+07. Dawn Of Eternity (Massacre Cover)
+08. Apostles Of Damnation
+09. Upwards Spiritual Evolution
+
+Bonustracks:
+
+10. And Jesus Wept
+11. The Burning Of Sodom (Dark Angel Cover)
+
+### "Global Purification" 2014, Death Metal
+
+01. Global Purification (03:30)
+02. The Murder Of Innocence (03:22)
+03. Infestation Of The Soul (05:13)
+04. Queen Of Gore (03:15)
+05. Nothing Left (05:11)
+06. World Jihad (03:14)
+07. The Demonized Minority (04:08)
+08. Feeding The War Machine (03:31)
+09. Blood Will Be Spilled (03:15)
+10. Bastion Of Blasphemy (03:56)
+11. Dawn Of The Dead, ltd. edition bonus (04:16)
+
 
 ## Отношения с другими группами
 

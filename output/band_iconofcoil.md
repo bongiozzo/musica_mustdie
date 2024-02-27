@@ -1,13 +1,81 @@
 # Icon Of Coil
 
-Дискография
-"Shallow Nation (single)" 1999, Industrial
-"One Nation Under Beat" 2000, Industrial
-"Serenity Is The Devil" 2000, Industrial
-"Seren EP" 2001, Industrial
-"The Soul Is In The Software" 2001, Industrial
-"Machines Are Us" 2003, Industrial
-"Uploaded And Remixed" 2004, Synthpop
+synth pop
+
+## Дискография
+
+### "Shallow Nation (single)" 1999, Industrial
+
+
+
+### "One Nation Under Beat" 2000, Industrial
+
+
+
+### "Serenity Is The Devil" 2000, Industrial
+
+1.      Activate
+2.      Regret
+3.      Shallow Nation
+4.      Down On Me
+5.      Former Self
+6.      Everlasting
+7.      Situations Like These
+8.      Fiction
+9.      You Just Died
+10.     Floorkiller
+
+### "Seren EP" 2001, Industrial
+
+
+
+### "The Soul Is In The Software" 2001, Industrial
+
+1.      Coment
+2.      Thrillcapsule
+3.      Violations
+4.      In Absence
+5.      Access And Amplify
+6.      Everything Is Real?
+7.      Other Half Of Me
+8.      Love As Blod
+9.      Disconnect
+10.     Simulated
+
+### "Machines Are Us" 2003, Industrial
+
+01. Comment V.2.0
+02. Remove/Replace
+03. Consumer
+04. Shelter
+05. Mono: Overload?
+06. Existence In Progress
+07. Faith: Not Important
+08. Transfer: Complete
+09. Dead Enough For Life
+10. Wiretrip
+11. Android
+12. Sleep: Less
+13. Pursuit
+14. Release The Frequency/Afterwords
+
+### "Uploaded And Remixed" 2004, Synthpop
+
+01. Shallow Nation (2004 Version)
+02. Floorkiller (2004 Version)
+03. Rrepeat It (Apoptygma Berserk Remix)
+04. Regret (Combichrist Remix)
+05. Simulated (Funkervogt Remix)
+06. Thrillcapsule (Moonitor Remix)
+07. Access And Amplify (Fgfc829 Remix)
+08. You Just Died (Northborn Remix)
+09. Love As Blood (Implant Remix)
+10. Floorkiller (Deedal Remix)
+11. Disconnect (Goteki Remix)
+12. Everything Is Real (Isle Of Crows Remix)
+13. Been There (Exclusive Track)
+14. TB Memory (Exclusive Track)
+
 
 ## Отношения с другими группами
 

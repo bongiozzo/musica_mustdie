@@ -1,8 +1,39 @@
 # Grimfist
 
-Дискография
-"Ghouls Of Grandeur" 2003, Thrash
-"10 Steps To Hell" 2005, Thrash
+
+
+## Дискография
+
+### "Ghouls Of Grandeur" 2003, Thrash
+
+01. Primal Aggression
+02. Outlined In Black
+03. A World Of Wrath
+04. From Hell & Back
+05. No Compromise
+06. Obsession
+07. Lesser Of Two Evils
+08. Ghouls Of Grandeur
+09. Mosh-pit Underground
+10. Christ Denied
+
+Frediablo - vocals
+Ole Walaunet - guitars & bass
+Horgh - drums
+
+Recorded in Abyss studio, March 2003.
+Engineered and mixed by Peter Tagtgren.
+Produced by Grimfist and Peter Tagtgren.
+Mastered by Peter in de Betou, at Tailor Maid
+Prod.
+All music arranged by Ole and Horgh.
+Lyrics and vocal arrangements by Frediablo.
+Cover art by are Voldsund Pettersen and Frediablo.
+
+### "10 Steps To Hell" 2005, Thrash
+
+
+
 
 ## Отношения с другими группами
 

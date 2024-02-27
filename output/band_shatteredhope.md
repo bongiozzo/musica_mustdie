@@ -1,7 +1,19 @@
 # Shattered Hope
 
-Дискография
-"Absence" 2010, Death Doom
+
+
+## Дискография
+
+### "Absence" 2010, Death Doom
+
+1. Amidst Nocturnal Silence
+2. Vital Lie
+3. Enlighten The Darkness
+4. Yearn
+5. A Traitor's Kiss
+6. Lament, in F# Minor	 
+7. The Utter Void
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,17 @@
 # Wayd
 
-Дискография
-"Barriers" 2001, Techno Death
-"Decadance" 2003, Techno Death
+techno-death
+
+## Дискография
+
+### "Barriers" 2001, Techno Death
+
+
+
+### "Decadance" 2003, Techno Death
+
+
+
 
 ## Отношения с другими группами
 

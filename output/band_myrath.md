@@ -1,10 +1,97 @@
 # Myrath
 
-Дискография
-"Hope" 2007, Progressive
-"Desert Call" 2010, Progressive
-"Tales Of The Sands" 2011, Progressive
-"Legacy" 2016, Progressive
+Ethnic Progressive metal fromTunisia
+
+## Дискография
+
+### "Hope" 2007, Progressive
+
+1 - Intro 
+2 - Hope 
+3 - Seven Sins 
+4 - All My Fears 
+5 - Confession 
+6 - Last Breath 
+7 - Fade Away 
+8 - My Inner War
+
+
+Malek Ben Arbia : Guitars-backing vocals 
+Elyes Bouchoucha : Keyboards-Vocals 
+Zaher Zorgati : Lead vocals 
+Anis Jouini : Bass 
+Saif Ouhibi : Drums 
+
+
+Recorded at: Ettawfik Studis - Tunis - Tunisia
+ Mastered at House of Audio - Germany
+ Logo designed by Ayoub Hidri inspired by Martha Vergeot.
+ All music by Elyes Bouchoucha & Malek Ben Arbia except 'Confession' & 'Last Breath' by Myrath.
+
+### "Desert Call" 2010, Progressive
+
+1. Forever And A Day 
+2. Tempests Of Sorrows 
+3. Desert Call 
+4. Madness 
+5. Silent Cries 
+6. Memories 
+7. Ironic Destiny 
+8. No Turning Back 
+9. Empty World 
+10. Shockwave
+
+
+- Malek Ben Arbia / guitar 
+- Elyes Bouchoucha / keyboards,vocals 
+- Zaher Zorgati / vocals 
+- Anis Jouini / bass 
+- Saif Ouhibi / drums
+
+Recorded in November 2008 in Tunis, Tunisia.
+ Mastered at House of Audio in Germany.
+ 
+
+North American bonus track:
+ 11. Hard Times 
+
+### "Tales Of The Sands" 2011, Progressive
+
+1. Under Siege 
+2. Braving The Seas 
+3. Merciless Times 
+4. Tales Of The Sands 
+5. Sour Sigh 
+6. Dawn Within 
+7. Wide Shut 
+8. Requiem For A Goodbye 
+9. Beyond The Stars 
+10. Time To Grow
+
+
+Anis Jouini - Bass 
+Saif Ouhibi - Drums 
+Malek Ben Arbia - Guitars 
+Elyes Bouchoucha - Keyboards, Vocals 
+Zaher Zorgatti - Vocals 
+
+
+
+### "Legacy" 2016, Progressive
+
+01. Jasmin (1:48)
+02. Believer (4:32)
+03. Get Your Freedom Back (3:57)
+04. Nobody's Lives (5:43)
+05. The Needle (5:06)
+06. Through Your Eyes (5:37)
+07. The Unburnt (4:36)
+08. I Want To Die (4:39)
+09. Duat (5:26)
+10. Endure The Silence (4:44)
+11. Storm Of Lies (4:35)
+12. Other Side (4:37)
+
 
 ## Отношения с другими группами
 

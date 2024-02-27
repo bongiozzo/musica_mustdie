@@ -1,7 +1,30 @@
 # Profanum
 
-Дискография
-"Flowers Of Our Black Misanthropia" 1996, Black Metal
+
+
+## Дискография
+
+### "Flowers Of Our Black Misanthropia" 1996, Black Metal
+
+1.  Tears Of Choirs
+2.  Gates Of Armageddon
+3.  Song Of  Mist I (Wolfenthirst)
+4.  Into The Beginning Of Eternal Wisdom
+5.  Gathering Of Funeral Gods
+6.  Song Of Mist II (Serpent Garden)
+7.  Unspoken Name Of God 
+8.  Under A Black Wings Of Emperor 
+9.  666
+
+Recorded & Mixed In Polysound Studio
+Produced By G.Nowak & PROFANUM
+
+Ysengrimm
+Alocer
+Geryon
+
+(P)c 1996 ASTRAL WINDS Records// EBLIS 005
+
 
 ## Отношения с другими группами
 

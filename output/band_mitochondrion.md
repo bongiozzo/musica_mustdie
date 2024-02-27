@@ -1,8 +1,37 @@
 # Mitochondrion
 
-Дискография
-"Archaeaeon" 2009, Death Metal
-"Parasignosis" 2011, Death Metal
+
+
+## Дискография
+
+### "Archaeaeon" 2009, Death Metal
+
+1. Introduction: Chapter 11 
+2. ...Into the Pit of Babel 
+3. Agonizing (In the Shadow of the Hammerblow) 
+4. Eternal Contempt of Man 
+5. Infernal Weapons Summons
+6. Oath in Defiance 
+7. Descent... 
+8. Wraithlike	 
+9. Akashic Predation
+10. 137 (Death's Hendecaratia)
+11. Conclusion: Organum Exitus
+
+### "Parasignosis" 2011, Death Metal
+
+1. Pestilentiam Intus Vocamus, Voluntatem Absolvimus I. Plague Evockation 
+2. Pestilentiam Intus Vocamus, Voluntatem Absolvimus II. Lex Ego Exitium
+3. Pestilentiam Intus Vocamus, Voluntatem Absolvimus III. Tetravirulence 
+4. Trials
+5. Rift/Apex 
+6. Parasignosis
+7. Banishment (Undecaphosphoric)
+8. Kathenotheism 
+9. Untitled 
+10. Untitled 
+11. Untitled
+
 
 ## Отношения с другими группами
 

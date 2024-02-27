@@ -1,8 +1,56 @@
 # Zakk Wylde
 
-Дискография
-"Book Of Shadows" 1996, Hard Rock
-"Book Of Shadows II" 2016, Ambient
+Ex Ozzy's guitarist
+
+## Дискография
+
+### "Book Of Shadows" 1996, Hard Rock
+
+ 1. Between Heaven And Hell
+ 2. Sold My Soul
+ 3. Road Back Home
+ 4. Way Beyond Empty
+ 5. Throwin' It All Away
+ 6. What You're Lookin' For
+ 7. Dead As Yesterday
+ 8. Too Numb To Cry
+ 9. The Things You Do
+10. 1.000.000 Miles Away *
+11. I Thank You Child **
+
+Bonus disc (1999 re-release):
+1. Evil Ways 
+2. The Color Green  
+3. Peddlers Of Death 
+ 
+
+Zakk Wylde - Vocals, Back Vocals, Electric Guitars, Acoustic Guitars, Harmonica, Piano, Keyboards, Bass On *
+Joe Vitale - Drums, Keyboards, Piano On **
+James LoMenzo - Bass
+
+All Songs Written By Zakk Wylde.
+Produced By Ron Albert & Howard Albert.
+Mixed By Bob Clearmountain.
+
+(P)(C) 1996 GEFFEN Records
+
+### "Book Of Shadows II" 2016, Ambient
+
+1. Autumn Changes
+2. Tears Of December
+3. Lay Me Down
+4. Lost Prayer
+5. Darkest Hour
+6. The Levee
+7. Eyes Of Burden
+8. Forgotten Memory
+9. Yesterday's Tears
+10. Harbors Of Pity
+11. Sorrowed Regret
+12. Useless Apologies
+13. Sleeping Dogs
+14. The King
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,37 @@
 # Leatherwolf
 
-Дискография
-"World Asylum" 2006, Heavy Metal
+
+
+## Дискография
+
+### "World Asylum" 2006, Heavy Metal
+
+1. A Am The Law; 
+2. King Of The Ward; 
+3. Behind The Gun; 
+4. Live Or Die; 
+5. Disconnect; 
+6. Dr. Wicked (Rx O.D.); 
+7. Institutions; 
+8. Derailed; 
+9. The Grail; 
+10. Never Again
+
+All songs written by Geoff Gayer and Dean Roberts
+Produced by by Dean Roberts and Geoff Gayer
+Engineered and recorded by Dean Roberts at Shack In The Back Studios, Mission Viejo, CA
+Mixed by Jacob Hansen at Hansen Studios, Denmark
+
+Wade Black - Vocals
+Geoff Gayer - Guitars
+Eric Halpern - Guitars
+Pete Perez - Bass
+Dead Roberts - Drums
+
+Guest Musicians:
+Mark Smith - Lead and Acoustic Guitars
+Michael Olivieri - Background Vocals
+
 
 ## Отношения с другими группами
 

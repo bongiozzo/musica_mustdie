@@ -1,7 +1,13 @@
 # Silver Seraph
 
-Дискография
-"Silver Seraph" 2001, Hard Rock
+
+
+## Дискография
+
+### "Silver Seraph" 2001, Hard Rock
+
+
+
 
 ## Отношения с другими группами
 

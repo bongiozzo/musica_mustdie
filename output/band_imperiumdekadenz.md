@@ -1,11 +1,39 @@
 # Imperium Dekadenz
 
-Дискография
-"...und die Welt ward kalt und leer" 2006, Black Metal
-"Dammerung der Szenarien" 2007, Black Metal
-"Procella Vadens" 2010, Black Metal
-"Meadows of Nostalgia" 2013, Black Metal
-"Dis Manibvs" 2016, Black Metal
+
+
+## Дискография
+
+### "...und die Welt ward kalt und leer" 2006, Black Metal
+
+
+
+### "Dammerung der Szenarien" 2007, Black Metal
+
+
+
+### "Procella Vadens" 2010, Black Metal
+
+
+
+### "Meadows of Nostalgia" 2013, Black Metal
+
+
+
+### "Dis Manibvs" 2016, Black Metal
+
+1. In Todesbanden  02:16 
+2. Only Fragments of Light  08:32  
+3. Still I Rise  08:24  
+4. Dis Manibvs  07:32    
+5. Pantheon Spells  02:50   
+6. Vae Victis  05:57  
+7. Volcano  08:59   
+8. Somnia  02:40    
+9. Pure Nocturnal Rome  08:04  
+10. Seikilos  07:55 
+
+
 
 ## Отношения с другими группами
 

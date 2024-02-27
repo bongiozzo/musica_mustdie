@@ -1,7 +1,25 @@
 # Chiva
 
-Дискография
-"Oracle Morte" 1996, Black Metal
+Occult Black Gothic (Ex-Sadness)
+
+## Дискография
+
+### "Oracle Morte" 1996, Black Metal
+
+1. Fire And Ice
+2. Voces Voir
+3. Jfoss
+4. Prelude A La Vuit
+
+All music & instruments played & composed by Chiva.
+Vocies By Chiva & Robert Frost (1874-1963).
+All lyrics by Chiva.
+Engineered By Andy.
+Recorded & Mixed At Sadness Home Studio.
+Mixed & Arranged By Andy & Chiva.
+
+(P)(C) 1996 WITHCHUNT Records // WIHU 9624
+
 
 ## Отношения с другими группами
 

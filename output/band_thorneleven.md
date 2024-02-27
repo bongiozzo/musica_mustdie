@@ -1,7 +1,13 @@
 # Thorn.Eleven
 
-Дискография
-"A Different View" 2004, Rock
+mainstream
+
+## Дискография
+
+### "A Different View" 2004, Rock
+
+
+
 
 ## Отношения с другими группами
 

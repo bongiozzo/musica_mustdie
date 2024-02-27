@@ -1,6 +1,9 @@
 # Captain Cleanoff
 
-Дискография
+grindcore from Australia
+
+## Дискография
+
 
 ## Отношения с другими группами
 

@@ -1,9 +1,28 @@
 # Time Requiem
 
-Дискография
-"Time Requiem" 2002, Metal
-"The Inner Circle of Reality" 2004, Metal
-"Optical Illusion" 2005, Metal
+neoclassical-power
+
+## Дискография
+
+### "Time Requiem" 2002, Metal
+
+
+
+### "The Inner Circle of Reality" 2004, Metal
+
+Reflections 
+The inner circle of reality 
+Dreams of tomorrow 
+Attar of roses 
+Definiton of insanity 
+Quest of a million souls 
+Hidden memories 
+Bach prelude variations (J.S. Bach)
+
+### "Optical Illusion" 2005, Metal
+
+
+
 
 ## Отношения с другими группами
 

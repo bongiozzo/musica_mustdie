@@ -1,8 +1,28 @@
 # Schock
 
-Дискография
-"Erwacht" 2001, Gothic
-"Glamour" 2004, Gothic
+gothic rock
+
+## Дискография
+
+### "Erwacht" 2001, Gothic
+
+
+
+### "Glamour" 2004, Gothic
+
+01. Mein Herz
+02. Fahr zur Holle
+03. Euer Krieg
+04. Weiss wie Schnee
+05. Kein Licht
+06. Tanz
+07. Wenn die Sonne erlischt
+08. Sag es mir
+09. Gute Nacht
+10. In meinem Arm
+11. Viel zu jung
+12. Ein letztes Mal
+
 
 ## Отношения с другими группами
 

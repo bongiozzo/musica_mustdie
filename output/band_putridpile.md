@@ -1,9 +1,45 @@
 # Putrid Pile
 
-Дискография
-"Collection of Butchery" 2003, Death Metal
-"The Pleasure in Suffering" 2005, Death Metal
-"House Of Dementia" 2009, Death Metal
+Shaun LaCanne solo project
+
+## Дискография
+
+### "Collection of Butchery" 2003, Death Metal
+
+1. Drenched In Gasoline 02:49
+2. Gallery Of Horrors 03:16 
+3. Bodies On Display 01:24  
+4. Collection Of Butchery 03:38 
+5. Remnants Of Insanity 02:07  
+6. Covered In Excrement 03:15  
+7. Bleed For Me 00:15  
+8. Severed Head Memento 03:56  
+9. Held Captive For Torture 03:19  
+10. Dead In The Alleyway 02:34  
+11. Merciless Homicide 03:23 
+12. Shit Body Painting 02:15 
+
+
+### "The Pleasure in Suffering" 2005, Death Metal
+
+1. My Inner Demon 03:52  
+2. STFC (Strangle The Fucking Cunt) 03:07  
+3. Rush-Hour Killing Spree 03:24  
+4. Putrid Pile (of Rotting Corpses) 03:01  
+5. Baby Brains 00:07 
+6. Gorging On Labia 03:13  
+7. Rip Her To Shreds 02:39  
+8. Battered Bitch 02:41  
+9. Bind, Torture, Kill 00:58  
+10. Caged And Awaiting Death 03:20  
+11. Circlepit Commando 01:48  
+12. Food For The Maggots 03:24 
+
+
+### "House Of Dementia" 2009, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

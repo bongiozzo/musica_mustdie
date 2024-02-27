@@ -1,7 +1,23 @@
 # Outloud
 
-Дискография
-"Outloud" 2009, Hard Rock
+
+
+## Дискография
+
+### "Outloud" 2009, Hard Rock
+
+1. What I Need 
+2. We Run 
+3. Tonite 
+4. Search For Truth 
+5. This Broken Heart 
+6. Breathing Fire 
+7. Wild Life 
+8. Broken Sleep 
+9. Out In The Night 
+10. Lovesigh 
+11. Outloud!
+
 
 ## Отношения с другими группами
 

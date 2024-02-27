@@ -1,11 +1,89 @@
 # Legion Of The Damned
 
-Дискография
-"Malevolent Rapture" 2006, Thrash
-"Sons of the Jackal" 2007, Thrash
-"Feel the Blade" 2008, Thrash
-"Cult of the Dead" 2008, Thrash
-"Descent Into Chaos" 2011, Thrash
+
+
+## Дискография
+
+### "Malevolent Rapture" 2006, Thrash
+
+1. Legion Of The Damned (3.09); 
+2. Death's Head March (3.44); 
+3. Werewolf Corpse (4.54); 
+4. Into The Eye Of The Storm (4.29); 
+5. Malevolent Rapture (4.03); 
+6. Demonfist (4.26); 
+7. Taste Of The Whip (3.36); 
+8. Bleed For Me (3.56); 
+9. Scourging The Crowned King (3.37); 
+10. Killing For Recreation (3.51)
+
+All songs written by LEGION OF THE DAMNED
+Produced by Andy Classen and LEGION OF THE DAMNED
+Recorded, engineered and mastered by Andy Classen at Stage One Studio
+
+Maurice - Vocals
+Richard - Guitars
+Twan - Bass
+Erik - Drums
+
+### "Sons of the Jackal" 2007, Thrash
+
+1. Son of the Jackal 03:52
+2. Undead Stillborn 03:59
+3. Avenging Archangel 03:28
+4. Death Is My Master (Slay for Kali) 05:09
+5. Sepulchral Ghoul 04:19
+6. Seven Heads They Slumber 01:59
+7. Infernal Wrath 04:07
+8. Atomicide 03:18
+9. Ten Horns Arise 03:31
+10. Diabolist 03:40 
+
+
+### "Feel the Blade" 2008, Thrash
+
+1. Nuclear Torment 03:44
+2. Nocturnal Predator 04:12
+3. Slaughtering the Pigs 04:20
+4. Slut of Sodom 03:46
+5. Feel the Blade 04:19
+6. Expire 02:24  
+7. Warbeast 02:58
+8. Disturbing the Dead 03:27
+9. Obsessed by the Grave 05:13
+10. Reaper's Call 03:21 
+
+### "Cult of the Dead" 2008, Thrash
+
+01. Sermon of Sacrilege
+02. Pray and suffer
+03. Black templar
+04. House of Possession
+05. Black wings of Yog Sothoth
+06. Cult of the dead
+07. Necrosophic rapture
+08. Enslaver of souls
+09. Solar Overlord
+10. Lucifer saviour
+11. Final Godsend
+
+### "Descent Into Chaos" 2011, Thrash
+
+1. Intro - Descent Into Chaos   
+2. Night Of The Sabbath   
+3. War In My Blood   
+4. Shrapnel Rain   
+5. Holy Blood, Holy War   
+6. Killzone   
+7. Lord Of The Files   
+8. Desolation Empire   
+9. The Hand Of Darkness   
+10. Repossessed 
+
+
+Recorded and mixed in Abyss Studios of Peter Tдgtgren
+11. Legion Of The Damned (feat. Peter Tдgtgren) 
+
 
 ## Отношения с другими группами
 

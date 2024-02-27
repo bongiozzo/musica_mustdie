@@ -1,7 +1,20 @@
 # Rigor Sardonicous
 
-Дискография
-"Apocalypsis Damnare" 2005, Doom
+
+
+## Дискография
+
+### "Apocalypsis Damnare" 2005, Doom
+
+1. Exordium 03:44  
+2. Apocalypsis Damnare 07:03  
+3. Pandemic 06:59  
+4. Human Rot 05:54  
+5. Saprophyte 05:38  
+6. Holy Suicide 03:48  
+7. Misery 06:27  
+8. The Deathless Sol 07:30 
+
 
 ## Отношения с другими группами
 

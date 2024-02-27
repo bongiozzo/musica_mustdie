@@ -1,7 +1,13 @@
 # Hacride
 
-Дискография
-"Deviant Current Signal" 2005, Death Metal
+
+
+## Дискография
+
+### "Deviant Current Signal" 2005, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,21 +1,208 @@
 # Blue Cheer
 
-Дискография
-"Vincebus Eruptum" 1968, Hard Rock
-"Outsideinside" 1968, Hard Rock
-"New! Improved!" 1969, Hard Rock
-"Blue Cheer" 1969, Hard Rock
-"BC-5: The Original Human Being" 1970, Hard Rock
-"Oh! Pleasant Hope" 1971, Hard Rock
-"The Beast Is Back /live/" 1985, Hard Rock
-"Louder Than God: The Best Of Blue Cheer /compilation/" 1986, Hard Rock
-"Good Times Are So Hard To Find: The History Of Blue Cheer /compilation/" 1988, Hard Rock
-"Blitzkrieg Over Nueremberg /live/" 1989, Hard Rock
-"Highlights And Lowlives" 1990, Hard Rock
-"The Best Of Yesteryear /compilation/" 1990, Hard Rock
-"Dining With The Sharks" 1992, Hard Rock
-"Live And Unreleased '68/'74 /compilation/" 1996, Hard Rock
-"Hello Tokyo, Bye Bye Osaka /live/" 1999, Hard Rock
+US hard-rock band
+
+## Дискография
+
+### "Vincebus Eruptum" 1968, Hard Rock
+
+01] Summertime Blues [03:50]
+02] Rock Me Baby [04:25]
+03] Doctor Please [07:56]
+04] Out Of Focus [04:01]
+05] Parchment Farm [05:50]
+06] Second Time Around [06:21]
+
+### "Outsideinside" 1968, Hard Rock
+
+01] Feathers From Your Tree [03:36]
+02] Sun Cycle [04:17]
+03] Just A Little Bit [03:31]
+04] Gypsy Ball [03:02]
+05] Come And Get It [03:19]
+06] (I Can't Get No) Satisfaction [05:15]
+07] The Hunter [04:37]
+08] Magnolia Caboose Babyfinger [01:36]
+09] Babylon [04:37]
+
+### "New! Improved!" 1969, Hard Rock
+
+01] When It All Gets Old [03:03]
+02] West Coast Child Of Sunshine [02:42]
+03] I Want My Baby Back [03:19]
+04] Aces'N'Eights [02:49]
+05] As Long As I Live [02:23]
+06] It Takes A Lot To Laugh [03:18]
+07] Peace Of Mind [07:25]
+08] Fruit And Iceburgs [06:05]
+09] Honey Butter Lover [01:15]
+
+### "Blue Cheer" 1969, Hard Rock
+
+01] Fool [03:37]
+02] You're Gonna Need Someone [03:35]
+03] Hello LA, Bye-Bye Birmingham [03:27]
+04] Saturday Freedom [06:00]
+05] Ain't That The Way [03:15]
+06] Rock And Roll Queens [02:44]
+07] Better When We Try [02:52]
+08] Natural Man [03:38]
+09] Lovin' You's Easy [03:58]
+10] The Same Old Story [04:18]
+
+### "BC-5: The Original Human Being" 1970, Hard Rock
+
+01] Good Times Are So Hard To Find [03:23]
+02] Love Of A Woman [04:36]
+03] Make Me Laugh [05:06]
+04] Pilot [04:50]
+05] Babaji (Twilight Raga) [03:47]
+06] Preacher [04:00]
+07] Black Sun [03:32]
+08] Tears By My Bed [02:07]
+09] Man On The Run [03:58]
+10] Sandwich [05:02]
+11] Rest At Ease [05:37]
+
+### "Oh! Pleasant Hope" 1971, Hard Rock
+
+01] Hiway Man [04:22]
+02] Believer [03:42]
+03] Money Troubles [04:07]
+04] Traveling Man [03:11]
+05] Oh! Pleasant Hope [02:41]
+06] I'm The Light [05:44]
+07] Ecological Blues [02:26]
+08] Lester The Arrester [03:10]
+09] Heart Full Of Soul [04:37]
+
+### "The Beast Is Back /live/" 1985, Hard Rock
+
+01] Nightmares [05:03]
+02] Summertime Blues [03:58]
+03] Ride With Me [05:25]
+04] Girl Next Door [03:40]
+05] Babylon [04:12]
+06] Heart Of The City [04:19]
+07] Out Of Focus [03:44]
+08] Parchment Farm [06:55]
+
+### "Louder Than God: The Best Of Blue Cheer /compilation/" 1986, Hard Rock
+
+01] Summertime Blues [03:50]
+02] Out Of Focus [04:01]
+03] Parchment Farm [05:50]
+04] Feathers From Your Tree [03:36]
+05] Just A Little Bit [03:31]
+06] Babylon [04:37]
+07] Magnolia Caboose Babyfinger [01:36]
+08] Come And Get It [03:19]
+09] Peace Of Mind [07:25]
+10] Fruit And Iceburgs [06:05]
+11] Fool [03:37]
+12] Hello LA, Bye Bye Birmingham [03:27]
+
+### "Good Times Are So Hard To Find: The History Of Blue Cheer /compilation/" 1988, Hard Rock
+
+01] Summertime Blues [03:50]
+02] Out Of Focus [04:01]
+03] Parchment Farm [05:50]
+04] Feathers From Your Tree [03:36]
+05] The Hunter [04:37]
+06] Babylon [04:37]
+07] Peace Of Mind [07:25]
+08] Fruit And Iceburgs [06:05]
+09] Fool [03:37]
+10] Hello LA, Bye Bye Birmingham [03:27]
+11] Saturday Freedom [06:00]
+12] Good Times Are So Hard To Find [03:23]
+13] Pilot [04:50]
+14] Preacher [04:00]
+15] Hiway Man [04:22]
+16] I'm The Light [05:44]
+
+### "Blitzkrieg Over Nueremberg /live/" 1989, Hard Rock
+
+01] Babylon/Girl Next Door [09:19]
+02] Ride With Me [08:50]
+03] Just A Little Bit [04:27]
+04] Summertime Blues [06:40]
+05] Out Of Focus [04:38]
+06] Doctor Please [12:05]
+07] The Hunter [06:38]
+08] Red House [08:45]
+
+### "Highlights And Lowlives" 1990, Hard Rock
+
+01] Urban Soldiers [04:05]
+02] Hunter Of Love [05:30]
+03] Girl From London [05:37]
+04] Blue Steel Dues [06:45]
+05] Big Trouble In Paradise [04:05]
+06] Flight Of The Enola Gay [03:46]
+07] Hoochie Coochie Man [05:50]
+08] Down And Dirty [04:32]
+09] Blues Cadillac [03:49]
+
+### "The Best Of Yesteryear /compilation/" 1990, Hard Rock
+
+01] Summertime Blues [03:49]
+02] The Hunter [04:39]
+03] Love Of A Woman [04:38]
+04] Babaji [03:43]
+05] Peace Of Mind [07:05]
+06] Black Sun [03:34]
+07] (I Can't Get No) Satisfaction [05:16]
+08] Rest At Ease [05:33]
+09] Gypsy Ball [03:01]
+10] Come And Get It [03:20]
+11] Fruit And Iceburgs [06:06]
+12] West Coast Child Of Sunshine [02:35]
+13] It Takes A Lot To Laugh [03:15]
+14] Second Time Around [06:25]
+15] Good Times Are So Hard To Find [03:09]
+16] Parchment Farm [03:34]
+17] I Want My Baby Back [03:19]
+
+### "Dining With The Sharks" 1992, Hard Rock
+
+01] Big Noise [04:51]
+02] Outrider [06:19]
+03] Sweet Child Of The Reeperbahn [04:12]
+04] Gunfight [06:54]
+05] Audio Whore [03:54]
+06] Cut The Costs [03:41]
+07] Sex Soldier [05:06]
+08] When Two Spirits Touch [03:52]
+09] Pull The Trigger [05:20]
+10] Foxy Lady [03:51]
+
+### "Live And Unreleased '68/'74 /compilation/" 1996, Hard Rock
+
+01] Summertime Blues [04:13]
+02] Out Of Focus [04:08]
+03] Doctor Please [09:54]
+04] Fighting Star [02:54]
+05] Adventures [02:31]
+06] Make It To The Party [03:32]
+07] New Orleans [03:02]
+08] Ace In The Hole [04:41]
+09] Punk [05:27]
+
+### "Hello Tokyo, Bye Bye Osaka /live/" 1999, Hard Rock
+
+01] Babylon [04:59]
+02] Big Trouble In Paradise [04:15]
+03] The Hunter [04:42]
+04] Blue Steel Dues [07:27]
+05] Urban Soldiers [04:22]
+06] Girl Next Door [04:56]
+07] Ride With Me [08:01]
+08] Summertime Blues [05:46]
+09] Down And Dirty [05:19]
+10] Out Of Focus [05:43]
+11] Doctor Please [18:04]
+
 
 ## Отношения с другими группами
 

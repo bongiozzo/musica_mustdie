@@ -1,7 +1,20 @@
 # Justicia
 
-Дискография
-"Alone Against All" 1998, Thrash
+
+
+## Дискография
+
+### "Alone Against All" 1998, Thrash
+
+1. Alone Against All 05:06  
+2. Brutal Reaction 04:24  
+3. Hate 04:24  
+4. Judgement Day 04:40  
+5. 3rd Eye Open 04:15  
+6. TwoFaced in Life 03:41  
+7. Nameless Brainless 04:20  
+8. Mad 04:41 
+
 
 ## Отношения с другими группами
 

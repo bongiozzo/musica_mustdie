@@ -1,8 +1,25 @@
 # Vergeltung
 
-Дискография
-"System Overload" 2008, Industrial
-"Exploration Of Space" 2012, Industrial
+
+
+## Дискография
+
+### "System Overload" 2008, Industrial
+
+
+
+### "Exploration Of Space" 2012, Industrial
+
+1. Exploration of Space
+2. The Absolute Power
+3. In Russland geboren
+4. Transmission
+5. The Survivor
+6. The Pulse of Universe
+7. Your Choice
+8. МКС
+9. The Northern Land
+
 
 ## Отношения с другими группами
 

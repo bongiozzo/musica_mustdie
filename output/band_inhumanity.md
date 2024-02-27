@@ -1,7 +1,33 @@
 # Inhumanity
 
-Дискография
-"Killing" 2003, Death Metal
+(Death-metal band from Minnesota - USA)
+
+## Дискография
+
+### "Killing" 2003, Death Metal
+
+1.Killing
+2.C.F.W.
+3.Falling Away
+4.Crushing the Enemies
+5.Requiem of Inner Peace
+6.Beaten to Death
+7.From Chaos
+8.Gatekeeper of the Abyss
+9.Riders of Doom
+
+
+Josh Krech-guitar/vocals 
+Vitaly RJH - guitar 
+Kenny - bass
+
+All lyrics written by Josh Krech
+All music written by Vitaly RJH and Josh Krech
+Sound producing and mastering - Vitaly RJH
+Album recorded at JK Sound Studio,Hastings,MN,USA -June, 2003
+
+All rights Reserved © INHUMANITY
+
 
 ## Отношения с другими группами
 

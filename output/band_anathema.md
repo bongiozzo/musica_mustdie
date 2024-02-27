@@ -1,33 +1,565 @@
 # Anathema
 
-Дискография
-"An Iliad of Woes (demo)" 1990, Doom
-"All Faith Is Lost (demo)" 1991, Death Doom
-"The Crestfallen E.P." 1992, Death Doom
-"They Die 7"" 1992, Death Doom
-"Serenades" 1993, Death Doom
-"We Are the Bible 7"" 1994, Death Doom
-"Pentecost III E.P." 1995, Death Doom
-"The Silent Enigma" 1995, Gothic
-"Eternity" 1996, Gothic
-"Alternative 4" 1998, Gothic
-"Alternative Future E.P." 1998, Gothic
-"Judgement" 1999, Gothic
-"Make It Right (single)" 1999, Gothic
-"Deep (single)" 1999, Gothic
-"A Fine Day to Exit" 2001, Gothic
-"Resonance (compilation)" 2001, Gothic
-"Pressure (single)" 2002, Gothic
-"Resonance 2 (compilation)" 2002, Gothic
-"A Natural Disaster" 2003, Metal
-"Internet Release" 2006, Rock
-"A Moment In Time (dvd)" 2006, Rock
-"Paradigm Shift (tba)" 2008, Rock
-"Hindsight" 2008, Rock
-"We’re Here Because We’re Here " 2010, Progressive
-"Falling Deeper" 2011, Gothic
-"Weather Systems" 2012, Gothic
-"Distant Satellites" 2014, Gothic
+Legend of England Doom
+
+## Дискография
+
+### "An Iliad of Woes (demo)" 1990, Doom
+
+1. The Lord of Mortal Pestilence
+2. Memento Mori
+3. In the Name of the Father
+4. Echoes Of Terror
+
+
+Release date: December 1990
+Type: demo
+Line-up: Darren (vocals), Jamie (bass, vocals), John (drums), Danny (lead guitar), Vincent (guitar)
+Recording session: 23-25 November at M.A. Studios, Liverpool
+
+A slightly rearranged version of "Memento Mori" also appeared on "Pentecost III" MCD.
+
+### "All Faith Is Lost (demo)" 1991, Death Doom
+
+1. Crestfallen
+2. At One With the Earth
+3. All Faith Is Lost
+4. They Die
+
+
+Release date: July 1991
+Type: demo
+Line-up: Darren (vocals), Jamie (bass, vocals), John (drums), Danny (lead guitar), Vincent (rhytm guitar)
+Recording session: 17-20 May 1991 at M.A. Studios, Liverpool
+
+A slightly rearranged version of "They Die" also appeared on "Serenades" and "The Crestfallen" MCD.
+A slightly rearranged version of "Crestfallen" also appeared on "The Crestfallen" MCD.
+Also, both above-mentioned tracks appeared on "They Die" 7".
+
+### "The Crestfallen E.P." 1992, Death Doom
+
+1. ...And I Lust
+2. The Sweet Suffering
+3. Everwake *
+4. Crestfallen
+5. They Die
+
+ Darren - Vocal
+ Daniel - Guitar
+ Vincent - Guitar
+ Duncan - Bass
+ John - Drums
+ Ruth - Vocal On *
+
+All Music By Daniel & ANATHEMA.
+All Lyrics By Darren.
+Produced By ANATHEMA & Hammy.
+Engineered By Mags.
+Recorded At Academy Studios, West Yorkshire
+In June - July 1992.
+
+(p) 1992 PEACEVILLE Records
+(c) 1992 VILE MUSIC Records
+
+### "They Die 7"" 1992, Death Doom
+
+1. They Die
+2. Crestfallen 
+
+
+Release date: 1992
+Label: Witchhunt Records
+Type: 7"
+
+Line-up:
+Darren (vocals)
+Jamie (bass,vocals)
+John (drums)
+Danny (lead guitar)
+Vincent (rhytm guitar)
+
+It was limited edition - 1000 copies.
+
+### "Serenades" 1993, Death Doom
+
+1.  Lovelorn Rhapsody
+2.  Sweet Tears
+3.  J'ai Fait Une Promesse *
+4.  They (Will Always) Die
+5.  Sleepless
+6.  Sleep In Sanity
+7.  Scars Of The Old Stream
+8.  Under A Veil (Of Black Lace)
+9.  Where Shadows Dance
+10.Dreaming: The Romance
+
+ Darren - Vocal
+ Daniel - Guitar
+ Vincent - Guitar
+ Duncan - Bass
+ John - Drums
+ Ruth - Vocal On *
+
+All Music By Daniel & ANATHEMA.
+All Lyrics By Darren.
+Produced By ANATHEMA & Hammy.
+Engineered By Mags.
+Mixing, Engineering By Keith Appleton
+All Orchestral Arrangements And All Additional
+Instrumentation By Daniel.
+Cover Photography By David Penprase
+Design And Layout By Dave Pybus And ANATHEMA
+Recorded At Academy Studios, West Yorkshire.
+In June - September 1992.
+
+(p) 1993 PEACEVILLE Records
+(c) 1993 VILE MUSIC Records Vile 34
+
+### "We Are the Bible 7"" 1994, Death Doom
+
+1. Nailed To The Cross
+ 2. Eternal Rise Of The Sun
+
+### "Pentecost III E.P." 1995, Death Doom
+
+1. Kingdom
+2. Mine Is Yours To Drown In (Ours Is The New Tribe)
+3. We, The Gods
+4. Pentecost III
+5. Memento Mori
+
+ Darren J. White - Vocal
+ Daniel Cavanagh - Guitar
+ Vincent Cavanagh - Guitar
+ Duncan J. Patterson - Bass
+ John J. Douglas - Drums
+
+All Music Written By ANATHEMA
+All Lyrics Written By Darren White
+Produced By ANATHEMA
+Enginered By Mags
+Recorded In May 1994 At The Academy, Yorkshire, UK
+
+(p)&(c) 1995 PEACEVILLE Records
+
+### "The Silent Enigma" 1995, Gothic
+
+1. Restless Oblivion
+2. Shroud Of Frost
+3. ...Alone
+4. Sunset Of The Age
+5. Nocturnal
+6. Curulean Twilight
+7. The Silent Enigma
+8. A Dying Wish
+9. Black Orchid
+
+All Songs Written By ANATHEMA.
+Produced By ANATHEMA.
+Engineered By Kev Ridley.
+Recorded At Lynx Studios, Newcastle.
+
+Vincent Cavanagh - Vocals,Guitars
+Duncan Patterson - Bass
+Daniel Cavanagh - Guitars
+John Douglas - Drums
+
+(P)&(C) 1995 PEACEVILLE Records
+
+### "Eternity" 1996, Gothic
+
+1.  Sentient
+2.  Angelica
+3.  The Beloved
+4.  Eternity Part I
+5.  Eternity Part II
+6.  Hope
+7.  Suicide Veil
+8.  Radiance
+9.  Far Away
+[10].Eternity Part III
+[11].Cries On The Wind
+[12].Ascension
+
+[10]-[12] - На стороне B
+
+All Songs Written By ANATHEMA.
+Produced By Tony Platt.
+Engineered By Kev Ridley.
+Recorded At Lynx Studios, Newcastle.
+
+Vincent Cavanagh - Vocals, Guitars
+Duncan Patterson - Bass
+Daniel Cavanagh - Guitars
+John Douglas - Drums
+
+(P)(C) 1996 PEACEVILLE Records
+
+### "Alternative 4" 1998, Gothic
+
+1. Shroud of False
+2. Fragile Dreams
+3. Empty
+4. Lost Control
+5. Re-Connect
+6. Inner Silence
+7. Alternative 4
+8. Regret
+9. Feel
+10. Destiny
+
+Bonus track on limited Japanese edition:
+"The Silent Enigma" (orchestral).
+
+
+Release date: 22 June 1998
+Label: Music For Nations / Peaceville (re-edition)
+Type: full album
+
+Line-up:
+Vincent (voice, guitar)
+Duncan (bass, piano, keyboards)
+Daniel (guitars, piano, keyboards)
+Shaun (drums)
+
+Recording session: at the Windings in Jan/Feb '98
+Produced by Kit Woolven
+Cover: Duncan Patterson (concept), Tim Spear (artwork)
+
+Guests:
+- Andy Duncan (drums loops on "Empty")
+- George Ricci (charming violin)
+
+Title of the album derives from Leslie Watkins' book entitled "Alternative 3" - Duncan had read it a few years before they wrote the album. It's about conspiracy theory, and most Duncan songs on "Alternative 4" is about trust, that's why it's called this way.
+
+"The Silent Enigma" (orchestral) - Don Airey recorded overdubs (with no edits) onto the piano part of "The Silent Enigma" that Danny had already done.
+
+### "Alternative Future E.P." 1998, Gothic
+
+1. Fragile Dreams
+2. Empty
+3. Alternative 4
+
+
+Release date: 1998
+Label: Peaceville
+Type: single
+
+All tracks taken from "Alternative 4".
+
+### "Judgement" 1999, Gothic
+
+1. Deep
+2. Pitiless
+3. Forgotten Hopes
+4. Destiny Is Dead
+5. Make It Right (F.F.S.)
+6. One Last Goodbye
+7. Parisienne Moonlight
+8. Judgement
+9. Don't Look Too Far
+10. Emotional Winter
+11. Wings of God
+12. Anyone, Anywhere
+13. 2000 & Gone
+
+Bonus track on digipack:
+"Transacoustic"
+
+
+Release date: 21 June 1999
+Label: Music For Nations
+Type: full album
+
+Line-up:
+Vincent (voice, guitar)
+Danny (electric & acoustic guitar, keyboards)
+John (drums)
+Dave (bass)
+
+Recording session: 1 February - 15 April 1999 at Damage inc. Studios, Ventimiglia, Italy
+
+Produced by: Kit Woolven
+Front cover: Vincent i Daniel
+Layout: Mez; design: Anathema
+
+Guests:
+- Lee Doulgas (female vocals on "Parisienne Moonlight" & "Don't Look Too Far")
+- Dario Patti (piano on "Anyone Anywhere")
+
+The album is dedicated to mother of Cavanagh brothers - Helen (1949-1998).
+
+### "Make It Right (single)" 1999, Gothic
+
+1. Make It Right (F.F.S.)
+2. Deep
+
+
+Release date: 1999
+Label: Music For Nations
+Type: single
+
+Abbreviation "F.F.S." means "For Fucks Sake".
+
+Both track taken from "Judgement".
+
+### "Deep (single)" 1999, Gothic
+
+1. Emotional Winter
+2. Deep
+
+
+Release date: 1999
+Label: Music For Nations
+Type: single (promo)
+
+P'yta wydana, w celach promocyjnych, tylko w Holandii.
+
+Both tracks taken from "Judgement".
+
+### "A Fine Day to Exit" 2001, Gothic
+
+1. Pressure
+2. Release
+3. Looking Outside Inside
+4. Leave No Trace
+5. Underworld
+6. Barriers
+7. Panic
+8. A Fine Day to Exit
+9. Temporary Peace
+
+At the end of the album there's hidden track:
+"In the Dog's House".
+
+
+Release date: 1 October 2001
+Label: Music For Nations
+Type: full album
+
+Line-up:
+John, Danny, Les, Vincent, Dave
+Background vocals: Anathema, Nick & Pete
+
+Recording session: Crash Studios (Liverpool), The Windings (Walia), Chapel Studios (Lincolnshire) between Aug '00 and Jun '01
+
+Produced by Nick Griffiths
+Front cover idea: Les & Vincent
+Layout: Travis Smith under Vincent's supervision
+
+Guest:
+- Lee Douglas (female vocals on "Barriers" and "Temporary Peace")
+
+Waves on "Temporary Peace" was recorded during "Judgement" recording session.
+
+Lyrics booklet has been probably added to Japanese edition.
+
+There's a video for "Pressure".
+
+### "Resonance (compilation)" 2001, Gothic
+
+1. Scars of the Old Stream
+2. Everwake
+3. J'ai Fait Une Promesse
+4. ...Alone
+5. Far Away (acoustic)
+6. Eternity Part II
+7. Eternity Part III (acoustic)
+8. Better Off Dead
+9. One of the Few
+10. Inner Silence
+11. Goodbye Cruel World
+12. Destiny
+13. The Silent Enigma (orchestral)
+14. Angelica (live - Budapest '97)
+15. Horses
+
+CD-Bonus:
+"Hope" (video)
+
+
+Release date: 24 September 2001
+Label: Peaceville
+Type: retrospective compilation
+
+### "Pressure (single)" 2002, Gothic
+
+1. Pressure
+2. Underworld (acoustic)
+3. Pressure (edit)
+
+Bonus:
+"Pressure" (video)
+
+
+Release date: not released (initially scheduled for January 2002)
+Label: Music For Nations
+Type: single
+
+
+There's offical announcment of Music For Nations:
+
+"With regard to the withdrawal of Pressure as a single, it was done for the following reasons:
+
+1) MTV did not like the video and therefore would not play it.
+2) The majority of Radio stations, although they are finally getting into the band, felt that 'Pressure' was just too slow to be played on the radio.
+3) Without support at Radio and TV, it is impossible to get singles into the shops, which would mean that you would all be frustrated by not being able to find it anywhere.
+
+Believe me, we expected 'Pressure' to be a hit, otherwise we would not have scheduled it for release, however you just never know until it is presented to Radio and TV."
+
+Underworld (acoustic) has never been recorded!
+
+### "Resonance 2 (compilation)" 2002, Gothic
+
+1. Lovelorn Rhapsody
+2. Sweet Tears
+3. Sleepless '96
+4. Eternal Rise of the Sun
+5. Sunset of the Age
+6. Nocturnal Emission
+7. A Dying Wish
+8. Hope
+9. Cries on the Wind
+10. Fragile Dreams
+11. Empty
+12. Nailed to the Cross / 666
+
+Bonus:
+"Mine Is Yours" (video)
+
+
+Release date: March 2002
+Label: Peaceville
+Type: retrospective compilation
+
+### "A Natural Disaster" 2003, Metal
+
+1. Harmonium
+2. Balance
+3. Closer
+4. Are You There?
+5. Childhood Dream
+6. Pulled Under
+7. A Natural Disaster
+8. Flying
+9. Electricity
+10. Violence
+
+### "Internet Release" 2006, Rock
+
+1. thin air
+2. everything 
+3. a simple mistake
+
+### "A Moment In Time (dvd)" 2006, Rock
+
+Shroud Of False 
+Fragile Dreams 
+Balance 
+Closer 
+Lost Control 
+Empty 
+A Natural Disaster 
+Inner Silence 
+One Last Goodbye 
+Judgement 
+Panic 
+Flying 
+Angela 
+Comfortably Numb 
++ Bonus Live Video - Krzemionki 2004:
+Sleepless
+A Dying Wish
+Albatross (Fleetwood Mac cover)
+Fragile Dreams
++ 30-minute documentary
+
+### "Paradigm Shift (tba)" 2008, Rock
+
+
+
+### "Hindsight" 2008, Rock
+
+1. Fragile Dreams 05:30 
+2. Leave No Trace 04:52 
+3. Inner Silence 03:40 
+4. One Last Goodbye 06:03 
+5. Are You There? 05:18  
+6. Angelica 05:00  
+7. A Natural Disaster 06:20  
+8. Temporary Peace 05:10  
+9. Flying 06:27  
+10. Unchained (Tales of the Unexpected) 04:18 
+
+
+
+The release is a semi-acoustic album consisting of remakes of old songs and a couple new tracks.
+
+### "We’re Here Because We’re Here " 2010, Progressive
+
+1. Thin Air 05:59 
+2. Summernight Horizon 04:12  
+3. Dreaming Light 05:19 
+4. Everything 05:06 
+5. Angels Walk Among Us 05:17 
+6. Presence 02:58  
+7. A Simple Mistake 08:14  
+8. Get Off, Get Out 05:01  
+9. Universal 07:19  
+10. Hindsight 08:10 
+
+
+The album was produced by the band, mixed by Steven Wilson (Porcupine Tree) and
+mastered by Jon Astley (The Who, Led Zeppelin). It features string arrangements
+by Dave Stewart (Stewart/Gaskin, Porcupine Tree) and the song "Angels Walk Among
+Us" features backing vocals by Ville Valo (H.I.M.). 
+
+### "Falling Deeper" 2011, Gothic
+
+1. Crestfallen	 
+2. Sleep in Sanity 
+3. Kingdom	 
+4. They Die	 
+5. Everwake	 
+6. J'ai Fait une Promesse	 
+7. ...Alone	 
+8. We, the Gods	 
+9. Sunset of Age
+
+### "Weather Systems" 2012, Gothic
+
+1. Untouchable, Part 1 06:14
+2. Untouchable, Part 2 05:33
+3. The Gathering of the Clouds 03:27
+4. Lightning Song 05:25
+5. Sunlight 04:55
+6. The Storm Before the Calm 09:24
+7. The Beginning and the End 04:53
+8. The Lost Child 07:02
+9. Internal Landscapes 08:52
+
+
+Jamie Cavanagh - Bass 
+John Douglas - Drums 
+Vincent Cavanagh - Guitars, Vocals 
+Danny Cavanagh - Guitars, Vocals, Keyboards 
+Lee Douglas - Vocals (additional) 
+
+
+
+### "Distant Satellites" 2014, Gothic
+
+1. The Lost Song - Part 1  05:54    
+2. The Lost Song - Part 2  05:45    
+3. Dusk (Dark Is Descending)  06:00    
+4. Ariel  06:29    
+5. The Lost Song - Part 3  05:22    
+6. Anathema  06:41    
+7. You're Not Alone  03:27    
+8. Firelight (instrumental)  02:43    
+9. Take Shelter  06:07  
+
+
 
 ## Отношения с другими группами
 

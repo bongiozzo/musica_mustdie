@@ -1,8 +1,46 @@
 # Dies Irae
 
-Дискография
-"Ab Imo Pectore" 1996, Black Metal
-"Etherial" 1998, Black Metal
+(Mexican)
+
+## Дискография
+
+### "Ab Imo Pectore" 1996, Black Metal
+
+1. Through the storm 
+
+2. Silent 
+
+3. The dark places 
+
+4. The bitternes
+
+
+### "Etherial" 1998, Black Metal
+
+1. Aeri Somnia 
+2. Shadow Finder 
+3. Epidermal Macabre 
+4. Etherial 
+5. The Last Breath 
+6. Til your eyes turn black 
+7. Is not Just The Flames 
+8. Mistery Lover 
+9. Loco Dolenti 
+
+
+
+Juan Manuel Darhen. [guitar & vox]
+Eduardo Gomez [guitar] 
+Carlos Orozco [bass & Cello] 
+Luis Martinez [drums] 
+
+
+
+
+
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,21 @@
 # Acron
 
-Дискография
-"Labyrinth of Fear" 1998, Progressive
+Prog-Metal
+
+## Дискография
+
+### "Labyrinth of Fear" 1998, Progressive
+
+1. Dislocated
+2. Sons Of Sterility
+3. The Last Candle's Burning
+4. Backward Flowing Time
+5. Obsession
+6. Crown Of Thorns
+7. The Change
+8. Unenlightened
+9.The End of Fears
+
 
 ## Отношения с другими группами
 

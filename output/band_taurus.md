@@ -1,10 +1,55 @@
 # Taurus
 
-Дискография
-"Signo de Taurus" 1986, Speed Metal
-"Trapped in Lies" 1988, Speed Metal
-"Pornography" 1989, Speed Metal
-"Fissura" 2010, Speed Metal
+
+
+## Дискография
+
+### "Signo de Taurus" 1986, Speed Metal
+
+1. Signo de Taurus
+2. Mundo em Alerta
+3. Massacre
+4. Imp&#233;rio Humano
+5. Batalha Final
+6. Damien
+7. Rebeli&#227;o dos Mortos
+8. Falsos Comandos
+
+### "Trapped in Lies" 1988, Speed Metal
+
+1. Trapped in Lies	 
+2. Napalm Taste	 
+3. Aria	 
+4. Death by Booze 
+5. Nothing to Say	 
+6. Behind the Flags	 
+7. More Than You Can See	 
+8. Comunication Breakdown (Led Zeppelin cover)
+
+### "Pornography" 1989, Speed Metal
+
+1. Watch You Say 
+2. Caustic Brains 
+3. Pornography 
+4. Why Can't We Talk 
+5. Born to Die	 
+6. Brainless 
+7. Voices in the Void 
+8. Denied Ways 
+9. This Kind of People
+
+### "Fissura" 2010, Speed Metal
+
+1. Fissura	 
+2. Dias de Cao 
+3. Mercenarios
+4. Let's Cut 
+5. Lagrimas de Sangue 
+6. Fim da Linha 
+7. Fanatismo
+8. Desordem e Regresso
+9. Pesadelo
+
 
 ## Отношения с другими группами
 

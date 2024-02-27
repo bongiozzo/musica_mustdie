@@ -1,6 +1,9 @@
 # Diarreia Com Sangue
 
-Дискография
+brazilian grindcore
+
+## Дискография
+
 
 ## Отношения с другими группами
 

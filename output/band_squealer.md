@@ -1,14 +1,92 @@
 # Squealer
 
-Дискография
-"Human Traces (EP)" 1990, Power Metal
-"Make Your Day" 1995, Power Metal
-"Wrong Time, Wrong Place?" 1996, Power Metal
-"The Prophecy" 1999, Power Metal
-"Made For Eternity" 2000, Power Metal
-"Under The Cross" 2002, Power Metal
-"Confrontation Street" 2006, Power Metal
-"The Circle Shuts" 2008, Power Metal
+speed-power metal (ex-Squealer A.D. on 1 album)
+
+## Дискография
+
+### "Human Traces (EP)" 1990, Power Metal
+
+
+
+### "Make Your Day" 1995, Power Metal
+
+
+
+### "Wrong Time, Wrong Place?" 1996, Power Metal
+
+
+
+### "The Prophecy" 1999, Power Metal
+
+
+
+### "Made For Eternity" 2000, Power Metal
+
+
+
+### "Under The Cross" 2002, Power Metal
+
+1. Painful Lust
+2. Facing The Death
+3. My Last Goodbye
+4. Thinking Allowed!
+5. Under The Cross
+6. Rules Of Life
+7. Down And Out
+8. Fade Away
+9. Out Of The Dark
+10. In Zaire
+11. Low Budget Heros
+
+### "Confrontation Street" 2006, Power Metal
+
+1. Black Tongue 
+2. Infanticide
+3. Devil's Backbone
+4. Kamikaze Nation
+5. Punishment Of Luxury
+6. Eat My Sin
+7. Blood Red Halo
+8. New Sun Rising
+9. Left Bleeding (By Love)
+10. Faith Or Fury
+11. Silent Mandarin (Unit 731)
+
+### "The Circle Shuts" 2008, Power Metal
+
+1. The Sources Of Ignition 03:27  
+2. Mask Of The Betrayer 03:42  
+3. New Saviour 04:23  
+4. Grey 04:29  
+5. Godlike 03:28  
+6. These Urges 03:39  
+7. Thrasher 03:46  
+8. Martyrs Of The Half Moon 05:57  
+9. I Came For You 04:06  
+10. Once Fallen 06:24  
+11. The Circle Shuts 03:28 
+
+Limited Edition Bonus Tracks:
+12. The Loss Of Independence
+13. Bereft Of Senses
+14. I Will Fight
+15. Insanity
+
+Norbert Vornam - vocals
+Lars Doring - guitars
+Michael Schiel - guitars
+Michael Kaspar - bass guitar
+Martin Buchwalter - drums
+
+All songs written by Squealer, Produced by Squealler
+The Circle Shuts is engineered and mixed by Martin Buchwalter at Gernhart Studio Siegburg Germany
+Mastered by Mikka Jusilla and Minerva Pappi at Finnvox Studios helsinki
+Drums engineered by Ronni Hillmann & Martin Buchwalter
+
+Bonus Tracks taken from the first Squealer album "Human Traces" (recorded and mixed in May 1989 by Kalle Trapp; remastered in July 2008 by Mika Jussial and Minerva Pappi)
+
+This Album is Dedicated to Andreas "Henner" Allendorfer (R.I.P.)
+
 
 ## Отношения с другими группами
 

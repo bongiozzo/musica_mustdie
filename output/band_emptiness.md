@@ -1,9 +1,40 @@
 # Emptiness
 
-Дискография
-"Guilty to Exist" 2003, Death Metal
-"Oblivion" 2007, Death Metal
-"Error" 2012, Death Metal
+old school black-death from Belgium
+
+## Дискография
+
+### "Guilty to Exist" 2003, Death Metal
+
+
+
+### "Oblivion" 2007, Death Metal
+
+1.	 Truth of Trinity
+2.	 Summon
+3.	 Feeding Force
+4.	 Crushing Ignorance
+5.	 Forgotten
+6.	 Oblivion I	 
+7.	 Beyond the Rites
+8.	 Guilty to Exist
+9.	 Exhausted Forms
+10.	 Slave
+11.	 Oblivion II	 
+12.	 L.E.A.D.
+
+### "Error" 2012, Death Metal
+
+1.	 Deafer	02:45	 
+2.	 Error	05:55	 
+3.	 It and I	03:55	 
+4.	 Worst	05:55	 
+5.	 Dissolution	03:37	 
+6.	 Not Enough	02:31	 
+7.	 Low	05:40	 
+8.	 Nothing	03:40	 
+9.	 No Earth	04:36
+
 
 ## Отношения с другими группами
 

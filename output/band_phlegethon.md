@@ -1,7 +1,29 @@
 # Phlegethon
 
-Дискография
-"Fresco Lungs" 1993, Death Metal
+
+
+## Дискография
+
+### "Fresco Lungs" 1993, Death Metal
+
+1. 0 - 520      5.17
+2. Encapsulation Of The Ark Of The Covenant  10.17
+3. Ornaments     6.05
+4. The Golden Face     8.31
+5. Stone Me     6.28
+6. Without Tea Waters    4.17
+
+ Jussi Nyblom - Vocals,Bass
+ Juha Tykkylainen - Lead Guitar
+ Teemu Hannonen - Guitar
+ Lasse Pyykko - Drums
+
+All Songs By PHLEGETHON.
+Produced By PHLEGETHON & Ari Hywarinen.
+Recorded & Mixed At Mix Man Studio.
+
+(p)&(c) 1993 WITCHHUNT Records
+
 
 ## Отношения с другими группами
 

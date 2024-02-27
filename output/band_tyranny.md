@@ -1,8 +1,21 @@
 # Tyranny
 
-Дискография
-"Tides of Awakening" 2005, Doom
-"Aeons in Tectonic Interment" 2015, Doom
+
+
+## Дискография
+
+### "Tides of Awakening" 2005, Doom
+
+
+
+### "Aeons in Tectonic Interment" 2015, Doom
+
+1. Sunless Deluge
+2. A Voice Given unto Ruin
+3. Preparation of a Vessel
+4. The Stygian Enclave
+5. Bells of the Black Basilica 
+
 
 ## Отношения с другими группами
 

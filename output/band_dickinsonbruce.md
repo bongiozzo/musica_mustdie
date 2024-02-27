@@ -1,16 +1,182 @@
 # Dickinson, Bruce
 
-Дискография
-"Tattoed Millionaire" 1990, Heavy Metal
-"Balls To Picasso" 1994, Heavy Metal
-"Skunkworks" 1996, Heavy Metal
-"Accident Of Birth" 1997, Heavy Metal
-"The Chemical Wedding" 1998, Heavy Metal
-"Scream for Me Brazil" 1999, Heavy Metal
-"The Best of Bruce Dickinson" 2001, Heavy Metal
-"Tyranny of Souls" 2005, Heavy Metal
-"Bruce Dickinson Alive [Box-Set]" 2005, Heavy Metal
-"Anthology [3DVD]" 2006, Heavy Metal
+The Best Metal Vocalist from Iron Maiden
+
+## Дискография
+
+### "Tattoed Millionaire" 1990, Heavy Metal
+
+1. Son Of A Gun 
+2. Tattooed Millionaire 
+3. BORN IN 58 
+4. Hell On Wheels 
+5. Gypsy Road 
+6. Dive! Dive! Dive! 
+7. All The Young Dudes 
+8. Lickin The Gun 
+9. Zulu Lulu 
+10.No Lies 
+
+(P)&c 1990
+
+### "Balls To Picasso" 1994, Heavy Metal
+
+1. Cyclops 
+2. Hell No 
+3. Gods Of War 
+4. 1000 Points Of Light 
+5. Laughting In The Hiding Bush
+6. Change Of Heart
+7. Shoot All The Clowns 
+8. Fire
+9. Sacred Cowboys 
+10.Tears Of The Dragon 
+
+Bruce Dickinson - Vocals
+
+(P)&c 1994 EMI Records
+
+### "Skunkworks" 1996, Heavy Metal
+
+1.  Space Race
+2.  Back From The Edge
+3.  Inertia
+4.  Faith
+5.  Solar Confinement
+6.  Dreamstate
+7.  I Will Not Accept
+8.  Inside The Machine
+9.  Headswith
+10.  Meltdown
+11.  Octavia
+12.  Innerspace
+13.  Strange Death In Paradise
+
+(P)&c 1996
+
+### "Accident Of Birth" 1997, Heavy Metal
+
+1. Freak
+2. Toltec 7 Arrival
+3. Starchildren
+4. Taking The Queen
+5. Darkside Of Aquarius
+6. Road To Hell
+7. Man Of Sorrows
+8. Accident Of Birth
+9. The Magician
+10. Welcome To The Pit
+11. Omega
+12. Arc Of Space
+
+Bruce Dickinson - voices
+Adrian Smith - guitar
+Roy Z - guitar, mellotron and piano
+Eddi Cassilias - bass
+David Ingraham - drums
+
+Produced by Roy Z
+Other musicians:
+Silvia Tsai - violin (4,7,12)
+Rebeccah Yeh - cello (4,7,12)
+Richard Baker - piano (7)
+
+(p)(c)1997 Duellist Enterprises LTD.
+
+### "The Chemical Wedding" 1998, Heavy Metal
+
+1. King In Crimson
+2. Chemical wedding
+3. The Tower
+4. Killing Floor
+5. Book Of Thel
+6. Gates Of Urizen
+7. Jerusalem
+8. Trumpets Of Jericho
+9. Machine Men
+10. The Alchemist
+11. Return Of The King
+
+Bruce Dickinson - voices
+Adrian Smith - guitar
+Roy Z - guitar
+Eddie Cassilas - bass
+David Ingraham - drums
+
+Produced by Roy Z
+(p)(c)1998 Duellist Enterprises LTD.
+
+### "Scream for Me Brazil" 1999, Heavy Metal
+
+1. Trumpets of Jericho 
+2. King in Crimson 
+3. Chemical Wedding 
+4. Gates of Urizen 
+5. Killing Floor 
+6. Book of Thel 
+7. Tears of the Dragon 
+8. Laughing in the Hiding Bush 
+9. Accident of Birth 
+10. Tower 
+11. Dark Side of Aquarius 
+12. Road to Hell  
+
+
+### "The Best of Bruce Dickinson" 2001, Heavy Metal
+
+1. Broken
+2. Tattoed Millionaire
+3. Laughing in the Hiding Bush (Live)
+4. Tears of the Dragon
+5. Tower
+6. Born in 58
+7. Accident of Birth
+8. Silver Wings
+9. Darkside of Aquarius
+10. Chemical Wedding
+11. Back from the Edge
+12. Road to Hell
+13. Book of Thel (Live)  
+14. Bring You Daughter... To the Slaughter (Original Soundtrack Version) (*)
+15. Darkenss Be My Friend (*) 
+16. Wicker Man (*)
+17. Real World (*)
+18. Acoustic Song (*)
+19. No Way Out... Conitued (*)
+20. Midnight Jam (*)
+21. Man of Sorrows (*)
+22. Ballad of Mutt (*) 
+23. Re-Entry (*) 
+24. I'm in a Band With an Italian Drummer (*)
+25. Jerusalem (Live) (*)   
+26. Voices of Crube (*) 
+27. Dracula (*)  
+
+(*) tracks appear on bonus CD version
+
+
+
+### "Tyranny of Souls" 2005, Heavy Metal
+
+1. Mars Within (Intro) 01:29  
+2. Abduction 03:50  
+3. Soul Intruders 03:52  
+4. Kill Devil Hill 05:07  
+5. Navigate the Seas of the Sun 05:51  
+6. River of No Return 05:13  
+7. Power of the Sun 03:29  
+8. Devil on a Hog 04:01  
+9. Believil 04:50  
+10. A Tyranny of Souls 05:47
+
+### "Bruce Dickinson Alive [Box-Set]" 2005, Heavy Metal
+
+
+
+### "Anthology [3DVD]" 2006, Heavy Metal
+
+
+
 
 ## Отношения с другими группами
 

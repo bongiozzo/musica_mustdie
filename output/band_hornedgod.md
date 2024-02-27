@@ -1,8 +1,33 @@
 # Horned God
 
-Дискография
-"Absit" 2001, Death Metal
-"Chaos, Bringer Of All Revelations" 2003, Death Metal
+Brazilian extreme death metal
+
+## Дискография
+
+### "Absit" 2001, Death Metal
+
+
+
+### "Chaos, Bringer Of All Revelations" 2003, Death Metal
+
+1    Intro  
+2    War goes on  
+3    The Sheathed sword  
+4    Envenomed to survive 
+5    Calling upon the Spirits Of Knowledge  
+6    Chaos, bringer of all revelations 
+7    Satan isn’t the enemy of men
+8    Slimy Embryo  
+9    March to the horned ones  
+10    Bloodshed (the wisdom of victory)
+
+
+Erico – vocals
+Hudy – guitars
+Fabiano Penna – guitars
+Angelo – bass
+Bruno – drums
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,13 @@
 # Tales of Darknord
 
-Дискография
-"Stalingrad: War Episodes" 2004, Death Metal
+
+
+## Дискография
+
+### "Stalingrad: War Episodes" 2004, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

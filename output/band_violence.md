@@ -1,10 +1,52 @@
 # Vio-Lence
 
-Дискография
-"Eternal Nightmare" 1988, Thrash
-"Oppressing the Masses" 1990, Thrash
-"Torture Tactics (EP)" 1991, Thrash
-"Nothing to Gain" 1993, Thrash
+(Bay Area thrashers)
+
+## Дискография
+
+### "Eternal Nightmare" 1988, Thrash
+
+1. Eternal nightmare
+2. Serial killer
+3. Phobophobia
+4. Calling in the coroner
+5. T.D.S. (Take it as you will)
+6. Bodies on bodies
+7. Kill on command
+
+### "Oppressing the Masses" 1990, Thrash
+
+Tracks:
+1. Profit 
+2. Officer Nice 
+3. Subterfuge 
+4. Engulfed By Flames 
+5. World In a World 
+6. Mentally Afflicted 
+7. Liquid Courage 
+8. Oppressing the Masses 
+
+
+© Megaforce Worldwide. 
+
+
+
+### "Torture Tactics (EP)" 1991, Thrash
+
+1. Torture Tactics 
+2. Officer Nice (live) 
+3. Gutterslut 
+4. Dicks of Death 
+
+
+© Megaforce Worldwide. 
+
+
+
+### "Nothing to Gain" 1993, Thrash
+
+
+
 
 ## Отношения с другими группами
 

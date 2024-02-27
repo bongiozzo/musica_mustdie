@@ -1,9 +1,21 @@
 # Burial Hordes
 
-Дискография
-"War, Revenge and Total Annihilation" 2005, Black Metal
-"Devotion to Unholy Creed" 2008, Black Metal
-"Incendium" 2014, Black Metal
+
+
+## Дискография
+
+### "War, Revenge and Total Annihilation" 2005, Black Metal
+
+
+
+### "Devotion to Unholy Creed" 2008, Black Metal
+
+
+
+### "Incendium" 2014, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

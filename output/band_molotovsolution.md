@@ -1,8 +1,36 @@
 # Molotov Solution
 
-Дискография
-"Molotov Solution" 2008, Deathcore
-"The Harbinger" 2009, Deathcore
+
+
+## Дискография
+
+### "Molotov Solution" 2008, Deathcore
+
+1. Introduction 02:00
+2. Corporatocracy 04:28
+3. An Even More Inconvenient Truth 03:15
+4. End Game 04:06
+5. Psych-War 03:11
+6. Interlude 01:35  
+7. Prison Planet 04:30 
+8. The Myth of Human Progress 02:39
+9. Order Out of Chaos 03:47 
+10. Dark Alliance 10:25 
+
+### "The Harbinger" 2009, Deathcore
+
+1. Warlords 03:26 
+2. Rule By Secrecy 03:54 
+3. Only The Dead 03:09
+4. Atrum Inritus 02:20
+5. Corpus Imperium 04:20
+6. Monolithic Apparatus 03:16 
+7. The Harbinger 03:20 
+8. Enslaved 04:08
+9. Awakening 03:42
+10. Living Proof 03:16 
+11. The Dawn Of Ascendency 06:52 
+
 
 ## Отношения с другими группами
 

@@ -1,12 +1,42 @@
 # Cannabis Corpse
 
-Дискография
-"Blunted At Birth" 2006, Death Metal
-"Tube Of The Resinated" 2008, Death Metal
-"The Weeding (EP)" 2009, Death Metal
-"Beneath Grow Lights Thou Shalt Rise" 2011, Death Metal
-"From Wisdom To Baked" 2014, Death Metal
-" Left Hand Pass" 2017, Death Metal
+
+
+## Дискография
+
+### "Blunted At Birth" 2006, Death Metal
+
+
+
+### "Tube Of The Resinated" 2008, Death Metal
+
+
+
+### "The Weeding (EP)" 2009, Death Metal
+
+
+
+### "Beneath Grow Lights Thou Shalt Rise" 2011, Death Metal
+
+
+
+### "From Wisdom To Baked" 2014, Death Metal
+
+
+
+### " Left Hand Pass" 2017, Death Metal
+
+01. The 420th Crusade
+02. In Dank Purity
+03. Final Exhalation
+04. Chronic Breed
+05. In Battle There Is No Pot
+06. Grass Obliteration
+07. Left Hand Pass
+08. Effigy of the Forgetful
+09. Papyrus Containing the Spell to Protect Its Possessor Against Attacks From He Who Is In the Bong Water
+10. The Fiends That Come To Steal the Weed of the Deceased
+
 
 ## Отношения с другими группами
 

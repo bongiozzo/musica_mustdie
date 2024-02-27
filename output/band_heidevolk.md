@@ -1,11 +1,61 @@
 # Heidevolk
 
-Дискография
-"De Strijdlust is Geboren" 2005, Metal
-"Walhalla Wacht" 2008, Metal
-"Uit Oude Grond" 2010, Metal
-"Batavi" 2012, Metal
-"Velua" 2015, Metal
+
+
+## Дискография
+
+### "De Strijdlust is Geboren" 2005, Metal
+
+
+
+### "Walhalla Wacht" 2008, Metal
+
+01. Saksenland
+02. Koning Radboud
+03. Wodan Heerst
+04. Hulde Aan De Kastelein
+05. Walhalla Wacht
+06. Opstand Der Bataven
+07. Het Wilde Heer
+08. Naar De Hal Der Gevallenen
+09. Zwaard Geheven
+10. Dagenraad
+
+### "Uit Oude Grond" 2010, Metal
+
+
+
+### "Batavi" 2012, Metal
+
+1.	 Een Nieuw Begin	03:57
+2.	 De Toekomst Lonkt	04:26
+3.	 Het Verbond met Rome	05:08
+4.	 Wapenbroeders	04:00
+5.	 In het Woud Gezworen	06:39
+6.	 Veleda	02:30
+7.	 Als de Dood Weer Naar Ons Lacht	03:51
+8.	 Einde der Zege	04:06
+9.	 Vrijgevochten	05:08
+
+### "Velua" 2015, Metal
+
+1. Winter woede  04:15    
+2. Herboren in vlammen  04:45    
+3. Urth  04:44    
+4. De hallen van mijn vaderen  04:18    
+5. De vervloekte jacht  04:41  
+6. Het dwalende licht  04:55    
+7. Drankgelag  04:30    
+8. Velua  04:50    
+9. Een met de storm  04:15 
+10. Richting de Wievenbelter  04:45 
+11. In het diepst der nacht  04:35    
+12. Vinland  05:34    
+13. Immigrant Song (Led Zeppelin cover)  02:26   
+14. In the Dutch Mountains (The Nits cover)  03:32  
+15. Rebel Yell (Billy Idol cover)  04:58  
+
+
 
 ## Отношения с другими группами
 

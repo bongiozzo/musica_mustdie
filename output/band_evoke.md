@@ -1,11 +1,92 @@
 # Evoke
 
-Дискография
-"I am... My Own God (demo)" 1994, Death Metal
-"Split /w Kadath [CDS]" 1996, Death Metal
-"Dreaming the Reality" 1998, Death Metal
-"Split /w Aeternum [CDS]" 1999, Death Metal
-"The Fury Written" 2000, Death Metal
+Death Metal from the U.K.
+
+## Дискография
+
+### "I am... My Own God (demo)" 1994, Death Metal
+
+1. Impending Demise
+2. Fade from Reality
+3. Harmonized Visions
+4. Obscure Thoughts
+5. My Gods Called
+
+LINE UP
+Dave Marshall - Bass
+Ian Bacon - Drums
+John Parkin - Guitar
+John Redfern - Vocals
+Martin Tryner - Guitar
+
+INFO
+Only available as tape. The demo contains 5 tracks.
+
+### "Split /w Kadath [CDS]" 1996, Death Metal
+
+1. As I Bleed
+2. Among Mere Mortals
+
+LINE UP
+Dave Marshall - Bass
+Gavin O Malley - Guitar
+Ian Bacon - Drums
+John Parkin - Guitar
+John Redfern - Vocals
+
+INFO
+Only available on 7 inch green-vinyl, split-release, the second band is "Kadath".
+
+### "Dreaming the Reality" 1998, Death Metal
+
+1. Intro
+2. The Sign of Solitude
+3. Through Blood Stained Eyes
+4. Body Rites
+5. Among Mere Mortals
+6. No Repent
+7. Rouge
+8. Die Before My Eyes
+9. When Beauty Dies
+10. Equanimity Lost
+11. Manipulate Then Ridicule
+12. As I Bleed
+13. While You Decay I Live
+
+LINE UP
+Dave Marshall - Bass
+Ian Bacon - Drums
+John Parkin - Guitar
+John Redfern - Vocals
+
+### "Split /w Aeternum [CDS]" 1999, Death Metal
+
+1. The Ancient Enemy
+2. Gentle Exhuming (Cover from "Carnage")
+
+LINE UP
+Dave Marshall - Bass
+Gavin O`Mally - Guitar
+Ian Bacon - Drums
+John Parkin - Guitar
+John Redfern - Vocals
+
+INFO
+Only available on 7-inch "grey-white marbled"-vinyl, lim. edit. to 300 copies.
+
+### "The Fury Written" 2000, Death Metal
+
+1. Intro
+2. The Truth Beyond Your Paradise
+3. Twisted Into Chaos
+4. The Miracles of My Flesh
+5. Masters of Conquest
+6. Just a Descending Veil
+7. Contemplating Suicide
+8. Beneath the Mirage
+9. Only to Destroy
+10. Embracing Pessimistic Abandonment
+
 
 ## Отношения с другими группами
 

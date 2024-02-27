@@ -1,7 +1,24 @@
 # Hydrophobia
 
-Дискография
-"Human Shredder" 2008, Deathcore
+
+
+## Дискография
+
+### "Human Shredder" 2008, Deathcore
+
+1. Premeditated... And Impulsive...  01:10    
+2. Human Shredder  01:01
+3. Cruel Bizarre Hunting  03:05   
+4. An Awakening  01:16  
+5. Mortify The Flesh  01:32  
+6. Deadman Walking  03:15
+7. Killing Everything in Sight  03:12    
+8. Cacodemonia  03:36   
+9. Accumulated Hatred  06:32    
+10. Infernal Torture  04:48 
+11. Brutal! Dead! Grind!  04:24 
+12. Hard Fought Field  03:07 
+
 
 ## Отношения с другими группами
 

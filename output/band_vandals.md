@@ -1,7 +1,31 @@
 # Vandals
 
-Дискография
-"Fear Of A Punk Planet" 1991, Punk
+
+
+## Дискография
+
+### "Fear Of A Punk Planet" 1991, Punk
+
+1.  Pizza Train
+2.  The Rog
+3.  Join Us For Pong
+4.  Hey Homes !
+5.  Girls Turn 18 Every Day
+6.  Kill My Tenant
+7.  Summer Lovin'
+8.  The Farrah Fawcett Died
+9.  Anti
+10.Teenage Idol
+11.Small Wander
+12.Phone Machine
+
+Warren 'Mutant Boy' Fitzgerald - Guitar
+David Quackenbush - Vocals
+Joe Escalante - Bass
+Josh Freese - Drums
+
+(P)(C) 1991
+
 
 ## Отношения с другими группами
 

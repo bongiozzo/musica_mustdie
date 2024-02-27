@@ -1,9 +1,21 @@
 # Eternity X
 
-Дискография
-"Zodiac" 1993, Progressive
-"Mind Games" 1995, Progressive
-"Edge" 1999, Progressive
+
+
+## Дискография
+
+### "Zodiac" 1993, Progressive
+
+
+
+### "Mind Games" 1995, Progressive
+
+
+
+### "Edge" 1999, Progressive
+
+
+
 
 ## Отношения с другими группами
 

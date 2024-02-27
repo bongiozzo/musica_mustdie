@@ -1,8 +1,32 @@
 # Alien Force
 
-Дискография
-"Hell and High Water" 1985, Heavy Metal
-"Pain and Pleasure" 1986, Heavy Metal
+
+
+## Дискография
+
+### "Hell and High Water" 1985, Heavy Metal
+
+1.	 To You	04:20
+2.	 Get It Out	04:29	 
+3.	 Ripper	05:24	 
+4.	 Nervous	04:24
+5.	 Fly Away	05:25	 
+6.	 Stranger	05:40	 
+7.	 Night Of Glory	04:26
+8.	 Hell And High Water	05:26	 
+9.	 Time Is Out	04:56	 
+
+### "Pain and Pleasure" 1986, Heavy Metal
+
+1.	 Through the Gates of Hell
+2.	 Pain and Pleasure
+3.	 The Hunter's Thrill	 
+4.	 Don't Touch the Fire	 
+5.	 Alien	 
+6.	 Miracle
+7.	 I'm Back 
+8.	 I'm Leaving
+
 
 ## Отношения с другими группами
 

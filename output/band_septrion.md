@@ -1,7 +1,23 @@
 # Septrion
 
-Дискография
-"Perpetual Frost" 2006, Black Metal
+
+
+## Дискография
+
+### "Perpetual Frost" 2006, Black Metal
+
+1. Onirico Morto I. Awakening 05:15  
+2. Thy Dark Cave's Chant 04:56  
+3. Old Engines of Death 05:21  
+4. The Light Beyond Darkness 04:48  
+5. Perpetual Frost 02:35  
+6. The Vanquished Paradox 06:06  
+7. Ressurection of The Braves 06:14  
+8. Onirico Morto II. Decease 05:01 
+
+Perpetual Frost was recorded during March & April 2005, in Tracktor studios.
+Art direction and media by Arthuro Vargas & Sickness Graphics.
+
 
 ## Отношения с другими группами
 

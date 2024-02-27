@@ -1,26 +1,455 @@
 # Napalm Death
 
-Дискография
-"Scum" 1987, Grindcore
-"From Enslavement to Obliteration" 1988, Grindcore
-"Harmony Corruption" 1990, Deathcore
-"Death by Manipulation" 1991, Deathcore
-"Utopia Banished" 1992, Deathcore
-"The World Keeps Turning" 1992, Deathcore
-"Fear, Emptiness, Despair" 1994, Deathcore
-"Greed Killing" 1995, Deathcore
-"Diatribes" 1996, Deathcore
-"Inside the Torn Apart" 1997, Deathcore
-"Words from the Exit Wound" 1998, Deathcore
-"Leaders Not Followers" 1999, Deathcore
-"Enemy of the Music Business" 2000, Deathcore
-"Order of the Leech" 2002, Deathcore
-"Noise for Music's Sake (compilation)" 2003, Deathcore
-"Leaders Not Followers Pt. 2" 2004, Deathcore
-"The Code Is Red...Long Live The Code" 2005, Deathcore
-"Smear Campaign" 2006, Grindcore
-"Time Waits For No Slave" 2009, Deathcore
-"Utilitarian" 2012, Deathcore
+Legend of England Death/Grind
+
+## Дискография
+
+### "Scum" 1987, Grindcore
+
+1. Multinational Corporations
+2. Instinct Of Survival
+3. The Kill
+4. Scum
+5. Caught In A Dream
+6. Polluted Minds
+7. Sacrificed
+8. Siege Of Power
+9. Control
+10.Born On Your Knees
+11.Human Garbage
+13.You Suffer
+14.Life ?
+15.Prison Without Walls
+16.Point Of No Return
+17.Negative Approach
+18.Success ?
+19.Deceiver
+20.C.S.(Conservative Shithead)
+21.Parasites
+22.Pseudo Youth
+23.Divine Death
+24.As The Machine Rolls On
+25.Common Enemy
+26.Moral Crusade
+27.Stigmatized
+28.M.A.D.
+29.Dragnet
+
+ Lee - Lead Growls
+ Mick - Drums & Whirlwind Caveman Screams
+ Jim - Grinding Bass
+ Bill - Guitar
+
+1-13 Recorded & Mixed At Rich Bitch 8 Tracks,
+Birmingham,August'86
+14-29 Recorded & Mixed At Rich Bitch 8 Tracks
+Birmingham,May'87
+
+(p)&(c) 1987 EARACHE Records
+
+### "From Enslavement to Obliteration" 1988, Grindcore
+
+1. Evolved As one
+2. It`s A M.A.N.S. World !
+3. Lucid Fairytale
+4. Private Death
+5. Impressions
+6. Unchallenged Hate
+7. Uncertainty Blurs The Vision
+8. Cock-Rock Alenation
+9. Retreat To Nowhere
+10.Think For A Minute
+11.Display To Me ...
+12.From Enslavement To Obliteration
+13.Blind To The Truth
+14.Social Sterility
+15.Emotional Suffocation
+16.Practise What You Preach
+17.Inconceivable ?
+18.Worlds Apart
+19.Obstinate Direction
+20.Mentally Murdered
+21.Sometimes
+22.Make Way !
+23.Musclehead
+24.Your Achievement ?
+25.Dead
+26.Morbid Deceiver
+
+ Bill Steer - Guitar
+ Shane Embury - Bass
+ Lee Dorrian - Vocals
+ Mick Harris - Drums
+
+All Songs By NAPALM DEATH.
+Produced By NAPALM DEATH & Dig.
+Engineered By Steve Bird.
+Recorded & Mixed At Birdsong,Worcester.
+Mastered By Mike Marsh At The Exchange,London.
+Front Art By Mike Sikora.
+Distributed By Revolver And The Cartel.
+Published By EARACHE Songs U.K.
+
+(p)&(c) 1988 EARACHE Records
+
+### "Harmony Corruption" 1990, Deathcore
+
+1. Vision Conquest
+2. If The Truth Be Known
+3. Inner Incineration
+4. Malicious Intent
+5. Unfit Earth *
+6. Circle Of Hypocrisy
+7. The Chains That Bind Us
+8. Mind Snare
+9. Extremity Retained
+10.Suffer The Children
+11.Hiding Behind +
+
+ Mark "Barney" Greenway - Vocals
+ Mick Harris - Drums
+ Shane Embury - Bass
+ Mitch Harris - Guitar
+ Jesse Pintado - Guitar
+
+Backing Vocal On * By John Tardy & Glen Benton.
+Produced By NAPALM DEATH & Scott Burns.
+Recorded & Mixed At Morrisound Recording,Tampa,Florida.
+Artwork By David Windmill.Photography By Tim Hubbard.
+Mastered By Noel Summerville.
+
+(p)&(c) 1990 EARACHE Records
+
+### "Death by Manipulation" 1991, Deathcore
+
+1. Mass Appeal Madness
+2. Pride Assassin
+3. Unchallenged Hate
+4. Social Sterility
+5. Suffer The Children
+6. Siege Of Power
+7. Harmony Corruption
+8. Rise Above
+9. The Missing Link
+10.Mentally Murdered
+11.Walls Of Confinement
+12.Cause & Effect
+13.No Mental Effort
+
+ Barney - Vocals
+ Shane - Bass
+ Jesse - Guitar
+ Mitch - Guitar
+ Mick "Human Tornado" Harris - Drums
+On Tracks 8-13:
+ Lee Dorrian - Vocals
+ Bill Steer - Guitar
+
+Tracks 1-4 Recorded At Eddie Van Dale's Violent
+Noise Experience Club March 1-4,1991
+Produced By NAPALM DEATH
+Tracks 5-7 Recorded & Mixed At Morrisound Recording,
+Tampa,Florida,April-May 1990
+Engineered By Scott Burns,Produced By NAPALM DEATH &
+Scott Burns
+Tracks 8-13 Recorded May,1989 At Slaughterhouse
+Engineered By Colin Richardson.
+Mixed By NAPALM DEATH & Dig
+
+(p) 1989,1990,1991 EARACHE Records
+(c) 1991 EARACHE Records
+
+### "Utopia Banished" 1992, Deathcore
+
+1. Discordance
+2. I Abstain
+3. Dementia Access
+4. Christening Of The Blind
+5. The World Keeps Turning
+6. Idiosyncratic
+7. Aryanisms
+8. Cause & Effect (Part II)
+9. Judical Slime
+10.Distorting The Medium
+11.Got Time To Kill
+12.Upward & Uninterested
+13.Exile
+14.Awake (To A Life Of Misery)
+15.Contemptous
+
+ Mark "Barney" Greenway - Vocular Armageddon
+ Danny Herrera - Hyper Cans
+ Shane Embury - Sub-End Vexation
+ Mitch Harris - Dissonant Distorted  Delirium #2
+ Jesse Pintado - Dissonant Distorted Delirium #1
+
+Produced By Colin"Mr.Soft"Richardson & NAPALM DEATH.
+Recorded & Mixed On 24 Tracks At The Windings,
+Wrexham,North Wales From 10-19 Feb. & 23 Feb.-2 Mrch.
+1992.
+Engineered By Colin"Mr.Soft"Richardson .
+
+(p)&(c) 1992 EARACHE Records
+
+
+### "The World Keeps Turning" 1992, Deathcore
+
+1. The World Keeps Turning
+2. A Means To An End
+3. Insanity Excursion
+
+ Mark "Barney" Greenway - Vocals
+ Danny Herrera - Drums
+ Shane Embury - Bass
+ Mitch Harris - Guitars
+ Jesse Pintado - Guitars
+
+Recorded & Mixed On 24 Tracks At Rhythm Studios, Bidford On Avon
+Engineered By Paul Johnson
+Produced By Paul Johnson & NAPALM DEATH
+
+(p)&(c) 1992 EARACHE Records
+
+### "Fear, Emptiness, Despair" 1994, Deathcore
+
+1. Twist The Knife (Slowly)
+2. Hung
+3. Remain Nameless
+4. Plague Rages
+5. More Than Meets The Eye
+6. Primed Time
+7. State Of Mind
+8. Armageddon X 7
+9. Retching On The Dirt
+10.Fasting On Deception
+11.Throw Away
+
+ Mark "Barney" Greenway - Vocals
+ Danny Herrera - Drums
+ Shane Embury - Bass
+ Mitch Harris - Guitar
+ Jesse Pintado - Guitar
+
+Recorded At Parr Street Studios, Liverpool,
+Oct.-Nov. '93 and Jacob Studios, Surrey, 
+Nov.-Dec. '93. 
+Produced By Pete Coleman & NAPALM DEATH. 
+Engineered By Pete Coleman.
+
+(p)&(c) 1994 EARACHE Records
+
+### "Greed Killing" 1995, Deathcore
+
+1. Greed Killing
+2. My Own Worst Enemy
+3. Self Betrayal
+4. Finer Truths, White Lies
+5. Antibody
+6. All Links Severed
+7. Plague Rages (Live)
+
+All Songs Written By NAPALM DEATH.
+Produced By Colin Richardson.
+Engineered By Danny Sprig.
+Recorded At Framework Studios.
+
+ Mark "Barney" Greenway - Vocals
+ Danny Herrera - Drums
+ Shane Embury - Bass
+ Mitch Harris - Guitar
+ Jesse Pintado - Guitar
+
+(P)&(C) 1995 EARACHE Records
+
+### "Diatribes" 1996, Deathcore
+
+1. Greed Killing
+2. Glimpse Into Genocide
+3. Ripe For The Breaking
+4. Cursed To Crewe
+5. Cold Forgiveness
+6. My Own Worst Enemy
+7. Just Rewards
+8. Dogma
+9. Take The Strain
+10.Diatribes
+11.Placate, Sedate, Eridicate
+12.Corrosive Elements
+
+All Songs Written By NAPALM DEATH.
+Produced By Colin Richardson.
+Engineered By Danny Sprig.
+Recorded At Framework Studios.
+
+ Mark "Barney" Greenway - Vocals
+ Danny Herrera - Drums
+ Shane Embury - Bass
+ Mitch Harris - Guitar
+ Jesse Pintado - Guitar
+
+(P)&(C) 1996 EARACHE Records
+
+### "Inside the Torn Apart" 1997, Deathcore
+
+    Breed to breathe         3.16
+    Birth in regress         3.33
+    Section                  2.45
+    Reflect on conflict      3.15
+    Down in the zero         3.09
+    Inside the torn apart    3.46
+    If symptoms persist      2.41
+    Prelude                  3.11
+    In dispose               3.05
+    Purist realist           2.58
+    Lowpoint                 3.16
+    The lifeless alarm       4.39
+
+
+### "Words from the Exit Wound" 1998, Deathcore
+
+    The infiltrator          4.30
+    Repression
+      out of uniform         2.52
+    Next of kin to chaos     4.08
+    Trio-degradable / Affixed
+      by disconcern          4.33
+    Cleanse impure           3.13
+    Devouring depraved       3.21
+    Ulterior exterior        1.49
+    None the wiser?          4.15
+    Clutching at barbs       2.26
+    Incendiary incoming      3.07
+    Thrown down a rope       3.23
+    Sceptic in perspective   3.24
+
+### "Leaders Not Followers" 1999, Deathcore
+
+
+
+### "Enemy of the Music Business" 2000, Deathcore
+
+Taste The Poison 
+Next On The List 
+Constitutional Hell 
+Vermin 
+Volume Of Neglect 
+Thanks For Nothing 
+Can't Play Wont Pay 
+Blunt Against The Cutting Edge 
+Cure For The Common Complaint 
+Necessary Evil 
+C.S. (Conservative Shithead) Part.2 
+Mechanics Of Deceit 
+The Public Get_what The Public Doesn't Want 
+Fracture In The Equation 
+
+### "Order of the Leech" 2002, Deathcore
+
+ 1.  Continuing War On Stupidity  
+ 2.  Icing On The Hate, The  
+ 3.  Forced To Fear  
+ 4.  Narocleptic  
+ 5.  Out Of Sight Out Of Mind  
+ 6.  To Lower Yourself (Blind Servitude)  
+ 7.  Lowest Common Denominator  
+ 8.  Forewarned Is Disarmed?  
+ 9.  Per Capita  
+ 10.  Farce And Fiction  
+ 11.  Blows To The Body  
+ 12.  Great Capitulator, The  
+
+
+### "Noise for Music's Sake (compilation)" 2003, Deathcore
+
+
+
+### "Leaders Not Followers Pt. 2" 2004, Deathcore
+
+01. Cryptic Slaughter - "Lowlife" 
+02. The Offenders - "Face Down In The Dirt" 
+03. Devastation - "Devastation" 
+04. Hellhammer - "Messiah" 
+05. Anti-Cemix - "Victims of a Bomb Raid" 
+06. Wehrmacht - "Fright Night" 
+07. Discharge - "War's No Fairytale" 
+08. Siege - "Conform" 
+09. Master - "Master" 
+10. Insanity - "Faire Death Fate" 
+11. Kreator - "Riot of Violence" 
+12. Anti Cinex - "Game of the Arseholes" 
+13. Massacre - "Clangor of War" 
+14. Attitude Adjustment - "Dope Fiend" 
+15. Die Kreuzen - "I'm Tired" 
+16. Sepultura - "Troops of Doom" 
+17. The Dayglo Abortions - "Bedtime Story" 
+18. Agnostic Front - "Blind Justice" 
+19. Hirax - "Hate, Fear ana Power"
+
+### "The Code Is Red...Long Live The Code" 2005, Deathcore
+
+
+
+### "Smear Campaign" 2006, Grindcore
+
+1. Weltschmerz (intro) 01:28  
+2. Sink Fast Let Go 03:23  
+3. Fatalist 02:51  
+4. Puritanical Punishment Beating 03:26  
+5. Well All Is Said and Done 03:01  
+6. Freedom Is the Wage of Sin 03:09  
+7. In Deference 03:14  
+8. Short Lived 03:06  
+9. Identity Crisis 02:44  
+10. Shattered Existence 03:11  
+11. Eyes Right Out 03:12  
+12. Warped Beyond Logic 02:00  
+13. Rabid Wolves (For Christ) 01:24  
+14. Deaf & Dumbstruck 02:46  
+15. Persona Nongrata 02:47  
+16. Smear Campaign 03:20
+
+### "Time Waits For No Slave" 2009, Deathcore
+
+1. Strongarm 03:04  
+2. Diktat 03:41  
+3. Work to Rule 03:16  
+4. On the Brink of Extinction 03:29  
+5. Time Waits for No Slave 04:26  
+6. Life and Limb 04:00  
+7. Downbeat Clique 04:26  
+8. Fallacy Dominion 04:07  
+9. Passive Tense 03:48  
+10. Laurency of the Heart 03:36  
+11. Procrastination of the Empty Vessel 02:56  
+12. Feeling Redundant 03:23  
+13. A No-sided Argument 02:13  
+14. De-evolution Ad Nauseum 03:48 
+
+
+### "Utilitarian" 2012, Deathcore
+
+1. Circumspect 02:17
+2. Errors In The Signals 03:02
+3. Everyday Pox 02:12
+4. Protection Racket 04:00
+5. The Wolf I Feed 02:57
+6. Quarantined 02:47
+7. Fall On Their Swords 03:57
+8. Collision Course 03:14
+9. Orders of Magnitude 03:21
+10. Think Tank Trials 02:27
+11. Blank Look About Face 03:12
+12. Leper Colony 03:23
+13. Nom De Guerre 01:07
+14. Analysis Paralysis 03:23
+15. Opposites Repellent 01:22
+16. A Gag Reflex 03:30
+Bonus tracks:
+ 17. Aim Without An Aim (LP + CD digipak)
+ 18. Everything In Mono (LP + CD digipak)
+ 19. Standardization (LP) 
+
+
 
 ## Отношения с другими группами
 

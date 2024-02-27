@@ -1,8 +1,35 @@
 # Sword
 
-Дискография
-"Metalized" 1986, Heavy Metal
-"Sweet Dreams" 1988, Heavy Metal
+
+
+## Дискография
+
+### "Metalized" 1986, Heavy Metal
+
+1. F.T.W.  03:38 
+2. Children of Heaven  02:38
+3. Stoned Again  03:27   
+4. Dare to Spit  03:45   
+5. Outta Control  03:00 
+6. The End of the Night  03:00 
+7. Runaway  03:38  
+8. Where to Hide  03:42   
+9. Stuck in Rock  03:37  
+10. Evil Spell  04:12 
+
+### "Sweet Dreams" 1988, Heavy Metal
+
+1. Sweet Dreams  05:08   
+2. The Trouble Is  03:35   
+3. Land of the Brave  05:28   
+4. Back Off  03:53 
+5. Prepare to Die  02:58 
+6. Caught in the Act  04:09 
+7. Until Death Do Us Part  03:36
+8. The Threat  04:10  
+9. Life on the Sharp Edge  04:44
+10. State of Shock  03:44 
+
 
 ## Отношения с другими группами
 

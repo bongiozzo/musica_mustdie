@@ -1,9 +1,63 @@
 # The Old Dead Tree
 
-Дискография
-"The Nameless Disease" 2003, Metal
-"The Perpetual Motion" 2005, Metal
-"The Water Fields" 2007, Metal
+
+
+## Дискография
+
+### "The Nameless Disease" 2003, Metal
+
+1 We Cry As One 
+2 It Can't Be! 
+3 How Could You? 
+4 'Won't Follow Him 
+5 It's The Same For Everyone 
+6 Somewhere Else 
+7 Joy & Happiness 
+8 Transition 
+9 Quietly Kissing Death 
+10 All... 
+11 The Bathroom Monologue 
+
+
+
+Manuel Munoz - Vocals, Guitars 
+Nicolas Chevrollier - Guitars 
+Vincent Danhier - Bass 
+Franck Metayer - Drums 
+
+
+Recorded and mixed by Andy Classen at Stage One Studio, except bass and drums recorded by Stephan May. 
+Mastered by Goran Finnberg at The Mastering Room. 
+
+### "The Perpetual Motion" 2005, Metal
+
+1. Out Of Breath 05:24 
+2. Unrelenting 05:00  
+3. I Can’t Get Rid Of It 01:48 
+4. What Else Could We’ve Said? 06:08  
+5. So Be It ! 04:01] 
+6. Everyday Life 02:15  
+7. 1, 2, 3, 4, 5, 6, 7, 8... 03:48 
+8. By The Way 04:03  
+9. My Friends 03:04 
+10. Even if 03:46
+11. The Knock Out Song 04:20  
+12. This Is No Farewell 02:33
+
+### "The Water Fields" 2007, Metal
+
+1. Start The Fire   
+2. Don't Wake Me Up (Those Who Never Wear White)   
+3. Dive   
+4. What's Done Is Done   
+5. The Water Fields   
+6. Is Your Soul For Sale?   
+7. A Distant Light Was Shining   
+8. Regarding Kate   
+9. Rise To The Occasion   
+10. Hey   
+11. This Is Now Farewell
+
 
 ## Отношения с другими группами
 

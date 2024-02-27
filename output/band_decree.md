@@ -1,8 +1,45 @@
 # Decree
 
-Дискография
-"Wake of Devastation" 1997, Industrial
-"Moment Of Silence" 2004, Industrial
+industrial
+
+## Дискография
+
+### "Wake of Devastation" 1997, Industrial
+
+Delusion
+The Last Day
+Who Dares
+Fire of Offering
+Madness Unveiled
+Talons Grasp
+Never Nearer
+Darkness Visible
+Downward
+Bitter End 
+
+Chris Peterson:
+Samples, Programs, Synthesis, Instruments and Engineering
+John McRae:
+Words, Instruments
+
+### "Moment Of Silence" 2004, Industrial
+
+01. Violent Reckoning
+02. Shallow Breath
+03. Fire Of Judgement
+04. Crushed
+05. Moment Of Silence
+06. Scorched Earth
+07. Forced Wide Open
+08. A Secret Thread
+09. Used Dreams
+10. Cast Adrift Severed
+
+Chris Peterson - samples, programs, instruments,
+synthesis, noise, engineering
+Ross Redhead - guitars, bass, noise
+Sean Lawson - vocals, noise
+
 
 ## Отношения с другими группами
 

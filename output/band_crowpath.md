@@ -1,8 +1,28 @@
 # Crowpath
 
-Дискография
-"Red On Chrome" 2005, Hardcore
-"Son Of Sulphur" 2006, Hardcore
+
+
+## Дискография
+
+### "Red On Chrome" 2005, Hardcore
+
+1 Hellbound 
+2 Like Flies To Flames
+3 Protected By Judas
+4 The Suburban Plague
+5 13 
+6 Bastard City 
+7 Red On Chrome 
+8 Kings Among Cockroaches
+9 Slipping 
+10 Where Jacky Jawless Lives
+11 The Pecise Art Of Knives
+12 Phrases
+
+### "Son Of Sulphur" 2006, Hardcore
+
+
+
 
 ## Отношения с другими группами
 

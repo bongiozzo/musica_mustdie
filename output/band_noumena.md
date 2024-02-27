@@ -1,8 +1,25 @@
 # Noumena
 
-Дискография
-"Absence" 2005, Death Doom
-"Anatomy of Life" 2006, Melodic Death Metal
+
+
+## Дискография
+
+### "Absence" 2005, Death Doom
+
+
+
+### "Anatomy of Life" 2006, Melodic Death Metal
+
+1. Misanthropolis 04:18  
+2. Burden of Solacement 05:19  
+3. Retrospection 05:20  
+4. The Burning 03:56  
+5. Monument of Pain 05:41  
+6. Triumph and Loss 03:23  
+7. Marionettes 03:22  
+8. Through the Element 06:10  
+9. Fire and Water 08:05
+
 
 ## Отношения с другими группами
 

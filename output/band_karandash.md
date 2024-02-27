@@ -1,7 +1,35 @@
 # Karandash
 
-Дискография
-"Applicide" 1996, Death Metal
+
+
+## Дискография
+
+### "Applicide" 1996, Death Metal
+
+1. No Sight
+2. Arise From The...
+3. Shut The Door
+4. New Clothes
+5. Bubbles
+6. Depths
+7. Come With Me
+8. Bending Minds
+9. M.O.T.K.F.
+
+All songs written by KARANDASH
+Produced by Thomas Schraum and
+Raico Ebel
+Recorded at Delta Studio, Wilster,
+Germany
+
+Jakob Marklund - Vocals
+Peter Augustsson - Guitar, Harmonica
+Marcus Berg - Guitar
+Oskar Karlstrom - Bass
+Daniel Israelsson - Drums
+
+(p)(c) 1996 KAJV Inc.
+
 
 ## Отношения с другими группами
 

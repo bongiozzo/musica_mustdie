@@ -1,7 +1,20 @@
 # Symawrath
 
-Дискография
-"SCAENA I : Incestuous Overture in the Crystal Auditorium" 2000, Black Metal
+Spanish melodic sympho black-metal
+
+## Дискография
+
+### "SCAENA I : Incestuous Overture in the Crystal Auditorium" 2000, Black Metal
+
+Onyric Conspiracy
+Misanthropoc Criminal in the Ivory Scorpion
+Masquerotica in Crescendo ('Woman, Godess, Perverse...)
+Clandestine Laberinthic Bizarre
+Vampirical Lascivious Passion (New Version)
+Hierarchical Whore's Charm (Phantasmagorical Aphrodisiac)
+My Epigraph's Horror
+
+
 
 ## Отношения с другими группами
 

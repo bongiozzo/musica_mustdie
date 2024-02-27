@@ -1,7 +1,30 @@
 # Psychosis
 
-Дискография
-"Complex" 1996, Alternative
+Doom Alternative
+
+## Дискография
+
+### "Complex" 1996, Alternative
+
+1.  Useless
+2.  Going Dumb
+3.  Pro-con
+4.  Cloud
+5.  Thanks For Nothing
+6.  In Reverse
+7.  Rein On The Parade
+8.  Complex
+9.  Smother
+10.Tangled In The Weeds
+11.Frown On Me
+
+Produced by Chris Pati and PSYCHOSIS.
+
+Recorded at MODERN Studio.
+Artwork by Kristi Gallagher.
+
+(p)(c) 1996 MODERN VOICES Records
+
 
 ## Отношения с другими группами
 

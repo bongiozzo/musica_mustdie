@@ -1,7 +1,40 @@
 # Rosae Crucis
 
-Дискография
-"Worms of the Earth" 2003, Heavy Metal
+
+
+## Дискография
+
+### "Worms of the Earth" 2003, Heavy Metal
+
+1-Behind The Eyes of Partha Mac Othna
+2-The Justice Of Roma
+3-Bran Mak Morn
+4-A Wizard in my Dreams
+5-Escape from Eboracum
+6-The Dagon's Moor
+7-Gates to Abominium
+8-The Black Stone
+9-Traian's Tower Fall
+10-Worms of the Earth
+11-The Witch
+12-Requiem for Titus Silla
+
+
+
+Giuseppe 'Ciape' Cialone: vocals
+Andrea Magini: guitars
+Massimiliano Salvatori: bass
+Giuseppe Orlando: drums
+
+
+Recorded at Outer Sound Studios,Rome, Italy
+Produced by Rosae Crucis & Giuseppe Orlando
+Songs Written & Performed by Rosae Crucis
+Artwork by Lavinia Martini
+
+
+
+
 
 ## Отношения с другими группами
 

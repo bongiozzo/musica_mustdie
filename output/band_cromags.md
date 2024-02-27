@@ -1,12 +1,69 @@
 # Cro-Mags
 
-Дискография
-"The Age Of Quarrel" 1986, Hardcore
-"Best Wishes" 1989, Hardcore
-"Alpha-Omega" 1992, Hardcore
-"Near Death Experience" 1993, Hardcore
-"Hard Times In An Age Of Quarrel (Live)" 1994, Hardcore
-"Revenge" 2000, Hardcore
+
+
+## Дискография
+
+### "The Age Of Quarrel" 1986, Hardcore
+
+
+
+### "Best Wishes" 1989, Hardcore
+
+
+
+### "Alpha-Omega" 1992, Hardcore
+
+1. See The Signs
+2. Eyes Of Tomorrow
+3. The Other Side Of Madness (Revenge)
+4. Apocalypse Now
+5. The Paths Of Perfection
+6. Victims
+7. Kuruksetra
+8. Changes
+
+ Harley
+ John
+ Doug
+ Gabby
+ Dave
+
+Music By Harley Flamagan & CRO-MAGS
+Lyrics By H.Flamagan & J. Joseph
+Produced By Harley Flamagan
+Engineered By Tom Soares
+Recerded At Normandy Sound
+
+(p)&(c) 1992 CENTURY MEDIA Records
+
+### "Near Death Experience" 1993, Hardcore
+
+1. Say Good-Bye To Mother Earth
+2. Kali-Yuga
+3. War On The Streets
+4. Death In The Womb
+5. Time I Am
+6. Reflections
+7. Near Death Experience
+8. The Other Side Of Madness
+
+All Music & Lyrics Written By CRO-MAGS
+Produced By Harley Flanagan
+Engineered By Tom Soares, Phil Greene & Josh Charuokas
+Recorded At Normandy Sound, RI
+And Unique Studios, NYC
+
+(p)&(c) 1993 CENTURY MEDIA Records
+
+### "Hard Times In An Age Of Quarrel (Live)" 1994, Hardcore
+
+
+
+### "Revenge" 2000, Hardcore
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,24 @@
 # Death Heaven
 
-Дискография
-"Viral Apocalypse" 2007, Death Metal
+
+
+## Дискография
+
+### "Viral Apocalypse" 2007, Death Metal
+
+1. Introduction To Humanity Annihilation 01:56  
+2. New Virus Baptism 05:35  
+3. Illusions Of Reality 05:27  
+4. Interior War 06:00  
+5. Inner Reflections 00:52  
+6. Deletion In Progress 06:29  
+7. Sacrifical Ritual Of Ugarit Dead 07:37  
+8. The Plague 07:10  
+9. Into The Desolation Of Artificial Spirituality 03:04  
+10. Techno Decomposition World 1.0 05:27  
+11. Portrait Of Earth Erasion (Techno Decomposition World 2.0) 06:31  
+12. Ghost Track (Spoken) 07:47 
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,27 @@
 # Orkrist
 
-Дискография
-"Reginae Mysterium" 2002, Gothic
-"Grond" 2003, Gothic
+
+
+## Дискография
+
+### "Reginae Mysterium" 2002, Gothic
+
+1. Apron - Legio Diabolica
+2. Nocturnal Rite
+3. Orkrist
+4. The Ancient War Spirit
+5. Sword And Sorcery
+6. Euthymia
+7. Justice The Beauty
+8. Desire In The Grace Of The Night
+9. Reginae Mysterium
+10. Mourning Of A Rose
+11. Epilogue
+
+### "Grond" 2003, Gothic
+
+
+
 
 ## Отношения с другими группами
 

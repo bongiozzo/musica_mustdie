@@ -1,8 +1,25 @@
 # Rain Paint
 
-Дискография
-"Nihil Nisi Mors" 2003, Gothic
-"Disillusion of Purity" 2006, Gothic
+(All kind of doom-metal)
+
+## Дискография
+
+### "Nihil Nisi Mors" 2003, Gothic
+
+
+
+### "Disillusion of Purity" 2006, Gothic
+
+1.	 Year or Two
+2.	 Give Back My Heart
+3.	 Heart Will Stop
+4.	 Thru the Mire
+5.	 Disintegration (The Cure Cover)
+6.	 Purity
+7.	 Final Peace	
+8.	 Inside Me
+9.	 Disillusion (outro)
+
 
 ## Отношения с другими группами
 

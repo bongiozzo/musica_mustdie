@@ -1,7 +1,13 @@
 # Nientara
 
-Дискография
-"Consequence" 2003, Melodic Death Metal
+Melodic Death/hardcore
+
+## Дискография
+
+### "Consequence" 2003, Melodic Death Metal
+
+
+
 
 ## Отношения с другими группами
 

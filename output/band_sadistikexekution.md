@@ -1,9 +1,42 @@
 # Sadistik Exekution
 
-Дискография
-"" 1994, Black Metal
-"Demon With Wings" 1996, Black Metal
-"Fukk" 2002, Death Metal
+
+
+## Дискография
+
+### "" 1994, Black Metal
+
+
+
+### "Demon With Wings" 1996, Black Metal
+
+1. Proxima Centauri
+2. Demon With Wings
+
+Rok - Screech Of Death
+Dave Slave - Bass Quakes
+Rev. Kriss Hades - Axe Kaos
+Sloth - Warhammer Assault
+
+YOU ARE A TREND OR ARE YOU SADISTIK.
+
+(p)(c) 1996 OSMOSE Productions OP 037
+
+### "Fukk" 2002, Death Metal
+
+RIGORMORTIK RESURREKTION 
+FUKKING DEATH 
+SISTER VALERIE 
+SPIRITUAL DYNAMIX 
+FUKKMIDED 
+ORGANIZED SADISTIK ABUSE 
+TWISTED BY TORTURE 
+DARTH 
+KOFFIN WHITE 
+BLAKK MASS MURDER 
+THE FINAL EXEKUTION 
+ONLY DEATH IS REAL
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,32 @@
 # Xystus
 
-Дискография
-"Receiving Tomorrow" 2004, Progressive
+Dutch progressive power
+
+## Дискография
+
+### "Receiving Tomorrow" 2004, Progressive
+
+1. Journey: shadow of today
+2. Into The Void
+3. Element's Theme
+4. Elemets Of The truth
+Lost In Misery Trilogy:
+5. I Tale Of The Heart
+6. II Will To Live On
+7. III Why Me
+8. Everlasting Burden
+9. The Luring Red
+10. Forgotten Years
+11. Tide
+12 The Prophecy
+13 Waste Of Compassion
+
+
+
+Produced by Rob van Boeckel & Xystus.
+Mixed and engineered by Rob van Boekel & Xystus at New Road Studio, The Netherlands.
+Cover and booklet artwork by Niall Parkinson.
+
 
 ## Отношения с другими группами
 

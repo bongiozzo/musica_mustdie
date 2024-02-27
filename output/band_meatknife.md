@@ -1,6 +1,9 @@
 # Meatknife
 
-Дискография
+Grind a la Gut and Mortician
+
+## Дискография
+
 
 ## Отношения с другими группами
 

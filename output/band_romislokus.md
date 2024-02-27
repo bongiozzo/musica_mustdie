@@ -1,9 +1,31 @@
 # Romislokus
 
-Дискография
-"Between Two Mirrors" 2001, Progressive
-"All Day Home" 2002, Progressive
-"Vinyl Spring, Digital Autumn" 2002, Progressive
+
+
+## Дискография
+
+### "Between Two Mirrors" 2001, Progressive
+
+
+
+### "All Day Home" 2002, Progressive
+
+01 - Cool
+02 - Dreg
+03 - L'amour (in French)
+04 - If
+05 - Freedom
+06 - I'm Tired
+07 - Name
+08 - Persici (in Italian)
+09 - Tree By The Wall
+10 - Captain Zero
+
+
+### "Vinyl Spring, Digital Autumn" 2002, Progressive
+
+
+
 
 ## Отношения с другими группами
 

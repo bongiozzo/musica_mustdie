@@ -1,10 +1,89 @@
 # Armageddon
 
-Дискография
-"Crossing The Rubicon" 1997, Melodic Death Metal
-"Embrace the Mystery" 2000, Melodic Death Metal
-"Three" 2002, Melodic Death Metal
-"Captivity & Devourment" 2015, Melodic Death Metal
+
+
+## Дискография
+
+### "Crossing The Rubicon" 1997, Melodic Death Metal
+
+ 1. 2022 (instr)
+ 2. Godforsaken
+ 3. The Juggernaut Divine
+ 4. Astral Adventure (The Escape)
+ 5. Funeral In Space (instr)
+ 6. Asteroid Dominion
+ 7. Galaxies Away (instr)
+ 8. Faithless
+ 9. Children Of The New Sun (instr)
+10. Into The Sun
+
+Additional Musicians:
+Fredrik Nordstrom - Keyboards
+Jakob Turma - Violin
+Rasmus Fleischer - Recorder
+Michael Amott - Vocals
+
+End section of Asteroid Dominion inspired by
+New World Symphony by A. Dvorak (1841 - 1904).
+
+### "Embrace the Mystery" 2000, Melodic Death Metal
+
+1. Awakening
+2. Broken Spell
+3. Blind Fury
+4. Worlds Apart
+5. Cry of Fate
+6. Illusions Tale
+7. Moongate Climber [Instrumental]
+8. Embrace the Mystery
+9. Sleep of Innocence
+10. Grain of Sand
+
+ Christopher Amott (Arch Enemy) - Guitars
+ Daniel Erlandsson (Arch Enemy, In Flames, Eucharist, Liers in Wait, Diabolique, Carcass) - Drums
+ Rickard Bengtsson - Vocals 
+ Dick Lowgren (Meshuggah, Time Requiem, Last Tribe, Cromlech, Frequency) - Bass
+
+### "Three" 2002, Melodic Death Metal
+
+1. Gathering Of The Storm
+2. Burn The Sun
+3. Stranglehold
+4. Heart Of Ice
+5. Well Of Sadness
+6. Rainbow Serpent
+7. Winter Skies
+8. Final Destination
+9. Spirit Kiss
+10. The Contract
+Бонус-треки переиздания:
+11. Winter Skies (Demo)
+12. Sands Of Time (Demo)
+13. Desecration Of Souls (Mercyful Fate Cover)
+
+### "Captivity & Devourment" 2015, Melodic Death Metal
+
+1. Captivity & Devourment  04:59   
+2. Locked In  03:56    
+3. Rendition  04:42    
+4. Fugitive Dust  05:37    
+5. Conquer  03:00    
+6. Thanatron  04:22   
+7. Background Radiation  02:16    
+8. The Watcher  05:25    
+9. Equalizer  04:57  
+10. Giants  05:09    
+11. Stone Worker  05:01 (only Japan)
+
+
+Christopher Amott - Vocals, Guitars  
+Joey Concepcion -  Guitars  
+Sara Claudius - Bass  
+Matt Hallquist - Vocals  
+Mбrton Veress - Drums  
+
+
+
 
 ## Отношения с другими группами
 

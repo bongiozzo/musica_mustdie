@@ -1,8 +1,48 @@
 # Manitou
 
-Дискография
-"The Mad Moon Rising" 2005, Heavy Metal
-"No Signs Of Wisdom" 2007, Heavy Metal
+Heavy / progressive metal
+
+## Дискография
+
+### "The Mad Moon Rising" 2005, Heavy Metal
+
+1. The Mad Moon Rising 04:12  
+2. Drifting Shadows 04:40  
+3. Garden of Fallen Kings 04:09  
+4. Machine Mind 06:19  
+5. Blind Eye Open 04:33  
+6. Wish I Could Sleep 04:50  
+7. The Valley of Evergreen 05:12  
+8. Ancestral Territories 05:09  
+9. Rage of Malice 05:16 
+10. Laughing in the
+11. Hiding Bush (Bruce Dickinson cover)
+12. Brothers Promise and Face the Snake.
+
+### "No Signs Of Wisdom" 2007, Heavy Metal
+
+1. In This Indolence (4.29); 
+2. Dread Of The Freaks (3.05); 
+3. No Signs Of Wisdom (5.41); 
+4. The End Within (3.07); 
+5. Harbinger (4.38); 
+6. Polluted World (3.53); 
+7. Some Of The Sins Revealed (6.02); 
+8. The Loon (4.05); 
+9. The August Sky (11.04)
+
+All songs written by MANITOU
+Produced by MANITOU and Teemu Aalto
+Engineered by Teemu Aalto
+Recorded at Southeastsounds Studios
+
+Markku Pihlaja - Vocals
+Markus Vanhala - Lead Guitars, Keyboards
+Antti Lauren - Guitars
+Ismo Laukkanen - Bass
+Matti Suhonen - Drums
+
+
 
 ## Отношения с другими группами
 

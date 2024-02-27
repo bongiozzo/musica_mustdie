@@ -1,7 +1,24 @@
 # Kelly Keeling
 
-Дискография
-"Giving Sight To The Eye" 2005, Hard Rock
+
+
+## Дискография
+
+### "Giving Sight To The Eye" 2005, Hard Rock
+
+01. Snake
+02. Parasite
+03. Broken
+04. Perfect Day
+05. Peace With the World
+06. Nothing
+07. Believe
+08. Sunlight Needs the Day
+09. Hell Is On The Way
+10. Head Straight
+11. Jesse
+12. Ground Zero
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,31 @@
 # Biomechanical
 
-Дискография
-"The Empires Of The Worlds" 2005, Thrash
-"Cannibalised" 2007, Thrash
+
+
+## Дискография
+
+### "The Empires Of The Worlds" 2005, Thrash
+
+1) Enemy Within
+2) The Empires Of The Worlds
+3) Assaulter
+4) Relinquished Destiny
+5) Long Time Dead
+6) Regenerated
+7) DNA Metastasis
+8) Survival
+9) Existenz
+10)Truth Denied
+Absolution (Parts 1-4)
+11) Part 1 Final Offence
+12) Part 2 From The Abyss
+13) Part 3 Absolution
+14) Part 4 Disintegration
+
+### "Cannibalised" 2007, Thrash
+
+
+
 
 ## Отношения с другими группами
 

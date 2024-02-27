@@ -1,7 +1,22 @@
 # Sear
 
-Дискография
-"Begin the Celebrations of Sin" 2005, Black Metal
+
+
+## Дискография
+
+### "Begin the Celebrations of Sin" 2005, Black Metal
+
+Intro 
+Lobotomy with a Crucifix 
+Bless the Child 
+Scythe of Blasphemy (Kiss the Goat) 
+Mankind's Last Breath 
+Vade Retro Deus 
+Temptations of the Flesh 
+Monument 666 
+Blindfolded Fuck 
+Viimeinen Voitelu
+
 
 ## Отношения с другими группами
 

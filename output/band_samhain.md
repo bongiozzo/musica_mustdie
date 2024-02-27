@@ -1,9 +1,73 @@
 # Samhain
 
-Дискография
-"Herimos" 2000, Doom
-"Revival" 2002, Gothic
-"demo 2005" 2005, Gothic
+(Russian gothic doom power metal)
+
+## Дискография
+
+### "Herimos" 2000, Doom
+
+Nocturnal Nomad 1.43
+Broken 4.20
+Herimos 6.27
+Worms And Birds 4.22
+Deadly Flowers 3.01
+Cemetery Of Dreams 6.46
+Outcast 9.01
+Awe Maria 5.06
+
+
+
+### "Revival" 2002, Gothic
+
+1. Requiem Aeternam (intro)
+2. Falled Crusade
+3. Matrix
+4. The Monster That Cries
+5. Louisa's Black Roses
+6. Last Lullaby
+7. Universal Mirror (instrumental)
+8. Illusion Rain
+9. O Sole Mio
+10. Paint It Black (hidden track)
+
+
+Sergey 'Immortal' Bendrikov - vocals
+Nick Simonov - keys
+Lyudmila Abramova - vocals
+
+Session musicians (from Arida Vortex):
+Anton Smoliyanin - drums
+Roman Guriev - all guitars
+
+
+Drums session recorded at CDM Records
+All other session recorded & mixed at immortal
+Records.
+August 2001 - January 2002
+Produced by Sergey 'Immortal' Bendrikov & Nik
+Simonov
+Recorded & Mixed by Sergey 'Immortal' Bendrikov.
+Mastering at Immortal records & Spiritual Necrosis
+Home records by Sergey 'Immortal' Bendrikov & Yury
+'Crypt' Bolotov.
+All lyrics written by Sergey 'Immortal' Bendrikov,
+except 'The Monster That cries' written by
+Alexander Asonov/ 'Louisa`s Black Roses' original
+idea by Ludmila Abramova.
+All text translated by Alexander Asonov, except
+'Fallen Crusade' translated by 'Troll'
+All music written by Nikplay Simonov, except
+'Matrix' music written by Andrew Kuleshov. In
+tracks 4.6.8 used original ideas by Andrew
+Kuleshov. In track 'The Monster That Cries' used
+part of Tibetian Monastic Choir.
+Art direction by Jeff.
+
+
+### "demo 2005" 2005, Gothic
+
+
+
 
 ## Отношения с другими группами
 

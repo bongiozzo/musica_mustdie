@@ -1,7 +1,28 @@
 # Sacrilegium
 
-Дискография
-"Sleeptime" 1995, Black Metal
+
+
+## Дискография
+
+### "Sleeptime" 1995, Black Metal
+
+1. Dawn
+2. Empty Side Of Soul
+3. Unholy Dream
+4. Silence
+5. Darkness...
+6. Twilight
+
+Recorded & Mixed At Warrior Studios.
+Engineered By Chris.
+Band Residence: Poland.
+
+Suclagus - Vocals, Voice, Chorus, Keyboards
+Nantur Aldaron - Bass, Black Poems
++ Horn - Session Drums
+
+(P)(C) 1995 WILDRAGS Records // WRR 060
+
 
 ## Отношения с другими группами
 

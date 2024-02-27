@@ -1,12 +1,115 @@
 # Anorexia Nervosa
 
-Дискография
-"Exile" 1997, Black Metal
-"Sodomizing The Archedangel" 1999, Black Metal
-"Drudenhaus" 2000, Black Metal
-"New + Obscurantis + Order" 2001, Black Metal
-"Redemption Process" 2004, Black Metal
-"The September EP" 2005, Black Metal
+Black metal
+
+## Дискография
+
+### "Exile" 1997, Black Metal
+
+1. Prologue - to exclude from the cycle of generations
+Cycle I - Delusive complexion
+
+2. Sequence 1 - Spiritu Fornicationis
+Action 1 - Distressing Amnios
+
+3. Sequence 2 - Say the world that fall in the sky
+Action 2 - Gnostic Wails
+
+4. Sequence 3 - The unveiled mirror
+Action 3 - Other Wails
+
+5. Sequence 4 - Divert the necessities of the body 
+Cycle II - Burning Tongue 
+
+6. Sequence 1 - Against the sail 
+Action 1 - Vertebrae Embryo 
+
+7. Sequence 2 - Faith 
+Action 2 - Discordant effects of suicides 
+
+8. Sequence 3 - Acclaim New Master 
+Action 3 - Slave
+
+9. Sequence 4 - First tasting of faecal matter
+Cycle III - Man-Machine
+
+10. Sequence 1 - Some miracle of entrails
+Action 1 - Not showed
+
+11. Sequence 2 - Spirit of the valley
+Action 2 - Enclose
+
+12. Sequence 3 - Flesh goes out without grace
+
+13. Epilogue - Running of mental fluids
+
+### "Sodomizing The Archedangel" 1999, Black Metal
+
+1. Divine White Light Of A Cuming Decadence  5:03  
+2. Blood & Latex Terrortech War  3:58  
+3. Excreted Communion Under Khaos Zero  3:54  
+4. A Caress Of Flesh & Vomited Romance  4:15  
+
+
+### "Drudenhaus" 2000, Black Metal
+
+1. A Doleful Night in Thelema  4:57  
+2. The Drudenhaus Anthem  5:13  
+3. God Bless the Hustler  4:35  
+4. Enter the Church of Fornication  5:33  
+5. Tragedia Dekadencia  6:30  
+6. Divine White Light of a Cumming Decadence  4:32  
+7. Dirge & Requiem for my Sister Whore  4:17  
+8. Das ist Zum erschiessert sch&ouml;n  5:00  
+9. The Red Archromance  5:59  
+
+
+### "New + Obscurantis + Order" 2001, Black Metal
+
+1. Mother Anorexia
+2. Ch&acirc;timent de la Rose
+3. Black Death, Nonetheless
+4. Stabat Mater Dolorosa
+5. Le Portail de la Vierge
+6. The Altar of Holocausts
+7. Hail Tyranny
+8. Ordo ab Chao: The Scarlet Communion 
++ Solitude (Candlemass cover-version - bonus track)
++ Metal Meltdown (Judas priest cover-version - bonus track)
+
+Line-up : 
+Ma&#1086;tre Stefan Bayle (all guitars)
+Pier Couquet (bass guitar)
+Nilcas Vant (drums)
+Mr. Xort (strings & orchestrations)
+Mr. Hreidmarr (all vocals) 
+
+
+Produced by Xort & Anorexia Nervosa
+Recorded & mixed at Drudenhaus Studios - Nantes - France
+
+
+### "Redemption Process" 2004, Black Metal
+
+01. Antinferno
+02. The Worship Manifesto
+03. Sister September
+04. Codex-Veritas
+05. Mass Absolution
+06. The Shining
+07. An Amen
+
+### "The September EP" 2005, Black Metal
+
+1. Sister September (director's cut mix) 
+2. La Chouanne (Forbidden Site cover) 
+3. Quintessence (Darkthrone cover)  
+4. I'll Kill you (X Japan cover) 
+5. The Shining (live) 
+6. Stabat Mater Dolorosa (live) 
+7. Worship Manifesto (live) 
+8. Le Portail de la Vierge (live)
+
 
 ## Отношения с другими группами
 

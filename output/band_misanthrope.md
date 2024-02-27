@@ -1,18 +1,352 @@
 # Misanthrope
 
-Дискография
-"Hater of Mankind" 1991, Death Doom
-"Variation On Inductive Theories Architecture Screenplans" 1993, Death Doom
-"Miracles: Totem Taboo" 1994, Death Doom
-"1666...Theatre Bizarre" 1995, Death Doom
-"Visionnaire" 1997, Death Doom
-"Libertine Humilations" 1998, Death Doom
-"Recueil D'ecueils: Les Epaves... Et Autres Oeuvres Interdites" 2000, Death Doom
-"Immortal Misanthrope" 2000, Death Doom
-"Sadistic Sex Daemon" 2003, Death Doom
-"Misanthro-therapie: 15 annees d'analyse" 2004, Death Doom
-"Metal Hurlant" 2005, Death Doom
-"IrremeDIABLE" 2008, Melodic Death Metal
+Original Avant-Garde Death
+
+## Дискография
+
+### "Hater of Mankind" 1991, Death Doom
+
+Mind Building
+Paradoxial Burial
+Insubdued Redemption
+Blaspheme the Earth
+Hater of Mankind
+
+Line-up: 
+Philippe Courtois Guitar, Vocals .  
+David Barrault Drums . 
+Lionel Bolore Bass .  
+
+
+
+### "Variation On Inductive Theories Architecture Screenplans" 1993, Death Doom
+
+1. Solstice Of Poetries
+2. Aquarium
+3. Childhood Memories
+4. La Demiurge
+5. My Black Soul
+6. The Grey Orchard
+7. Atlas
+8. Monolith In Ruins
+9. And Also The Lotus
+10.Mourning Humanity
+
+ Philippe Courtois De L`Argiliere - Guitar & Vocals
+ Charles-Henry - Guitar
+ Jean-Jacques Moreac - Bass
+ Oliver Gaubert - Drums
+
+All Lyrics,Melodies & Structure By Philippe Courtois De L`Argiliere.
+Produced,Engineered & Mixed By Didier Chesneau & Phil Vandenhende.
+Recorded In April 1993 At Melodie 14 Tracks Studio,Dreux (France).
+
+(p)&(c) 1993 HOLY Records
+
+### "Miracles: Totem Taboo" 1994, Death Doom
+
+ Miracle 1: Heautontimoroumenos
+1. Standing On The Galaxy
+2. L'Erotique Courtoise
+3. Miracle
+4. Aesthetic Fluttering
+ Miracle 2: Evangelie
+5. Mantit Sois-Tu Soleif !
+ Miracle 3: The Mandrake
+6. Deus Puerifis...
+7. ...In Silence
+8. Velvet Solemn Quest
+
+ Phillippe Courtois De L'Argiliere - Guitars & Vocals
+ Charles-Henry Moreac - Guitars
+ Jean-Jacques Moreac - Bass
+ Oliver Gaubert - Drums
+
+All Songs By MISANTHROPE.
+Produced By Phillippe Courtois De L'Argiliere.
+Engineered By Didier Chesnau, Phillippe Courtois De L'Argiliere,
+Phil Vandenhende,Sebastien Roland.
+Recorded October'93 - February'94 At Melodie 16 Tracks Studio,Dreux, France.
+
+(p)&(c) 1994 HOLY Records
+
+### "1666...Theatre Bizarre" 1995, Death Doom
+
+1. Gargantuan Decline
+2. Courtisane Syphilitique
+3. 1666...Theatre Bizarre
+4. L'Autre Hiver
+5. Pirouetting Through The Gloom
+6. Aphrodite Marine
+7. Medieval Embroidery
+8. Mylene
+9. Trumpets Of Hypochondria
+10.Schattengesang
+11.La Derniere Pierre
+
+All Songs Written By MISANTHROPE.
+Produced & Mixed By S.A.S.Philippe Courtois de I'Argilieri.
+Engineered By Philippe Sassard & Eric Lecointre.
+Recorded At R.M.S. 16 Tracks Studios, France.
+
+  Jean-Jacques Moreac - Bass, Acoustic Guitar
+  Alexander Iskandar - Orchestral Keyboards
+  S.A.S.Philippe Courtois de I'Argilieri - Voices & Guitars
++Eric Lecointre - Drums
++Renaud Tschiner (ELEND) - German Voice
++Jean-Marc Badouval - Guitars
+
+(P)&(C) 1995 HOLY Records
+
+### "Visionnaire" 1997, Death Doom
+
+Future futile                        5:37
+B&acirc;tisseur de cath&eacute;drale              5:36
+Hypocondrium forces                  5:42
+Le silence des grottes               4:55
+2666                                 6:38
+La Dandy                             7:37
+Hands of the puppeteers              6:18
+La rencontre r&eacute;v&eacute;e                   6:10
+Irr&eacute;v&eacute;rentieux                       6:21
+Visionaire                           9:06
+
+Line-up: 
+Jean-Jacques Mor&eacute;ac Bass, 12 string acoustic Guitar & Musical Direction . 
+Jean-Baptiste Boitel Electric & 12 string acoustic Guitar, Technology & Mediation . 
+Sergio Gruz Virtuose Orchestral Keyboards, Piano & Scores . 
+S.A.S. De L'Argili&egrave;re Guitars, Vocals, coordination, melodic web & structures . 
+Johansson Offhenstr&uuml;h Drums & Percussions(session) .
+ 
+Guest Musicians: 
+Jesper Str&ouml;mblad
+(In Flames) Last melodic Guitar solo on "Hypocondrium Forces" .
+ 
+Anders Frid&eacute;n
+(In Flames) . 
+
+
+
+### "Libertine Humilations" 1998, Death Doom
+
+Misanthrope necromancer                    5:02
+Matador de l'extr§Ьme                       4:43
+At 666 days...                             4:00
+L'§Ыcume des Chouans                        5:37
+Total eclipse chaos                        4:27
+Sous l'§Ыclat blanc du nouveau mill§Ыnaire   5:13
+Crisis of soul                             4:27
+Combattant sans s§Ыpulture                  5:04
+Antiquary to mediocrity                    4:26
+Humiliations libertines                    5:20
+
+Line-up: 
+Jean-Jacques MorЁ¦ac Bass .  
+Jean-Baptiste Boitel Electric, clean Guitars .  
+S.A.S. De L'ArgiliЁЁre Vocals & Guitars .  
+Alexis Ph§Ыlipot Drums .
+
+### "Recueil D'ecueils: Les Epaves... Et Autres Oeuvres Interdites" 2000, Death Doom
+
+Le Lanceur d' mes 
+L'Envol 
+Courtisane Shyphilitique 2000 
+Impermanence & Illumination 
+Les Litanies De Satan 
+La Druidesse Du G vaudan 
+L' cume Des Solos 
+L' rotique Courtoise 
+At 666 Days 
+Forever Shattered Failure 
+Movements For Hypochondriac Horses & Libertine Tempos 
+Le Roman Noir 
+Ouverture d'Avant Sc ne 
+
+### "Immortal Misanthrope" 2000, Death Doom
+
+Eden massacre                              4:57
+Les empereurs du n§Ыant                     5:39
+Maimed liberty                             4:12
+Les lamentations du Diable                 4:35
+Khopirron                                  3:55
+Au baiser de vermeil                       5:40
+Nuit androgyne                             5:10
+The soul thrower                           4:43
+La momie de Marianne                       4:17
+Conte fantasmagorique                      4:29
+Tranch§Ыes 1914                             5:11
+Passion millionaire                        4:51
+Espoir en Enfer                            0:44
+
+Line-up: 
+Jean-Jacques MorЁ¦ac Bass .  
+Jean-Baptiste Boitel Electric, clean Guitars .  
+S.A.S. De L'ArgiliЁЁre Vocals & Guitars .  
+Alexis Ph§Ыlipot Drums .
+
+### "Sadistic Sex Daemon" 2003, Death Doom
+
+01. Revisionniste 5'33
+02. Sadistic Sex Daemon 4'21
+03. La Marche des Cornus 6'41
+04. Armageddon a l'Elysee 4'34
+05. Conversation Metapsychique 5'28
+06. Grand Demonologue 4'46
+07. L'Extinction d'une Etoile 5'07
+08. Bonaparte 4'09
+09. Sans Complaisance 4'44
+10. Le Dernier Repond 0'12
+11. Romantisme Noir 4'50
+
+Jean-Jacques Moreac Bass & Keyboards .
+Jean-Baptiste Boitel Samplers & Sounds .
+S.A.S. De L'Argiliere Vocals .
+Anthony Scemama Rythm & Lead Guitars .
+Gael Feret Drums .
+
+Produced & Recorded by Jean-Jacques Moreac at Le
+Manoir des Deportes, Ile-de-France, August 2002-
+January 2003.
+Sound Engineered by Jean-Baptiste Boitel.
+Additional recordings (Drums & English Vocals) by
+Frederic Mazin, Michel Delran and Gerard Weiss at
+Studio Recorder, Ile-de-France, November 2002.
+Mixed by Anssi Kippo, S.A.S de l'Argiliere &
+Jean-Jacques Moreac at Astia-studio A,
+Lappeenranta, Finland, January 2003.
+Musical direction by Jean-Jacques Moreac.
+Executive producer HOLY RECORDS.
+Lyrics by S.A.S de l'Argiliere.
+Music & Arrangements by Jean-Jacques Moreac &
+MISANTHROPE.
+Synths, Keyboards & Samplers produced by
+Jean-Baptiste Boitel Assisted by Jean-Jacques
+Moreac.
+Cover Artwork by Severine from Holy Records.
+Mastered at Top Master, Paris, 24 January 2003 by
+Bruno "Sadist Sex" Gruel.
+
+### "Misanthro-therapie: 15 annees d'analyse" 2004, Death Doom
+
+CD 1 : MISANTHRO-THERAPIE 
+1-TITAN FALL
+2- INSPIRATION 
+3-LE BESTIAIRE SOUTERRAIN
+4-EMMUREMENT
+5-ESTAMPE GEOPOLITIQUE
+6-AMOUR ANTHROPOPHAGE 
+7-L'ANTECHRIST
+8-CRIMES, TYRANNIE ET CHВTIMENTS
+9-CONTEMPLATION
+10-CHAIR ORGANIQUE 
+(En duo avec Ludovic Loez de S.U.P)
+11-BASSISTE DE COEUR
+12- CONTE FANTASMAGORIQUE
+(En duo avec STILLE VOLK) 
+13- EXSILIUM EXISTENTIA
+
+CD 2 : TRACES INDISCRITES
+1-INTO PERDITION (LIVE)
+2-LA MARCHE DES CORNUS (LIVE)
+3-EDEN MASSACRE (LIVE)
+4-LES LAMENTATIONS DU DIABLES (LIVE)
+5-LES EMPEREURS DU NEANT (LIVE)
+6-REVISIONNISTE (LIVE)
+7-INTRO R.I.P (Reprise de Coroner)
+8-REBORN THROUGH HATE (Reprise de Coroner)
+9-SUICIDE NATION (Reprise de At The Gates)
+10-REAL NATURE (Reprise de S.U.P)
+11-L'ELITE (Reprise de Trust)
+12- LE SCARABEIDE BLEU (Version avec chant en francais)
+
+DVD 1 : LIVE 2003 - TOURNEE SADISTIC SEX DAEMON
+1-LA MARCHE DES CORNUS
+2-CONVERSATION METAPSYCHIQUE
+3-BONAPARTE
+4-GRAND DEMONOLOGUE
+5-SADISTIC SEX DAEMON
+6-EDEN MASSACRE
+7-LES EMPEREURS DU NEANT
+8-REVISIONNISTE
+9-LES LAMENTATIONS DU DIABLE
+10- L'EXTINCTION D'UNE ETOILE
+11- ARMAGEDDON A L'ELYSEE
++ Interview des membres du groupe.
+
+DVD 2 : DVD BONUS gratuit sur presentation du coupon reponse inclu dans le coffret.
+- LIVE 2001 - TOURNEE SUR LE CHEMIN DES IMMORTELS
+1- MISANTHROPE NECROMANCER
+2- KHOPIRRON
+3- L'ECUME DES CHOUANS
+4- MATADOR DE L'ART EXTREME
+5- NUIT ANDROGYNE 
+6- PASSION MILLIONNAIRE
+7- LA MOMIE DE MARIANNE 
+- LIVE 1999 - TOURNEE TEMPLE OF HUMILIATION
+1- TOTAL ECLIPSE CHAOS
+2- FUTILE FUTURE
+3- LE ROMAN NOIR
+4- COURTISANE SYPHILITIQUE
+5- BВTISSEUR DE CATHEDRALES
+- BONUS
+1- THE CULT SELECTION : THE EARLY YEARS 1991-1997
+2- SOUND CHECKS
+3- INTERVIEW ROCK FORT SHOW / ALIGRE FM 93.1 
+4- MAKING OF
+5- JEAN-JACQUES MORЙAC AND HIS BASS
+
+### "Metal Hurlant" 2005, Death Doom
+
+Disc 1 
+1. L'Exaltation De La Croix   
+2. Theologie Du Misanthrope   
+3. Sentiment Nocturne   
+4. Reine Martyre   
+5. Le Triptyque Des Enfers   
+6. Le Haras Des Amazones   
+7. Metal Hurlant   
+8. Le Supplicie 
+
+
+Disc 2 
+1. Maоtre Du Temps   
+2. Sulfureuses Contestations   
+3. Le Commerce Du Crime   
+4. Plus De Descendance   
+5. Theologie Du Misanthrope (instrumental version)   
+6. Le Triptyque Des Enfers (instrumental version)   
+7. The Stud Farm Of Amazones (english version)   
+8. Supplication For God (english version)
+
+### "IrremeDIABLE" 2008, Melodic Death Metal
+
+1. Les retourneurs de pierres   
+2. Phenakistiscope   
+3. Les limbes   
+4. Le passager du hasard   
+5. L'infinie violence des abоmes   
+6. Prodigalite   
+7. Le dandy de bohume   
+8. Fantasia artificielle   
+9. Le maudit et son spleen   
+10. Plaisirs saphiques   
+11. Nevrose   
+12. 1857   
+13. Ixion   
+14. L’oracle de la decheance   
+15. LXXXIV L'IrremeDIABLE 
+
+S.A.S de l’Argilиre : Vocals.
+Jean-Jacques Morйac : Bass and Synths.
+Anthony Scemama : Guitars and Synths.
+Gaлl Fйret : Drums.
+
+The album is based on the life and works of Charles Baudelaire. This is the
+first concept album of the band.
+
+Released on two versions: single CD, and a limited deluxe box containing CD +
+DVD.
+
 
 ## Отношения с другими группами
 

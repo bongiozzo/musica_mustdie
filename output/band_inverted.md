@@ -1,7 +1,33 @@
 # Inverted
 
-Дискография
-"The Shadowland" 1996, Black Metal
+
+
+## Дискография
+
+### "The Shadowland" 1996, Black Metal
+
+1.  Diabolical Ceremonies 
+2.  Condemned 
+3.  Circle Of  Candles 
+4.  The Infernal Gate 
+5.  Journey Into Shadowland 
+6.  Scripture Of Disgrace 
+7.  The Dark And Bitter Moon 
+8.  Serenade Of Grief
+9.  Crawling Under Lies
+
+Produced, Recorded & Mixed By Thomas Liedstrom.
+Recorded & Mixed At Midgaard Studio.
+Cover art by Peter (PG) Gustawsson
+
+Henric Heed - Vocals
+Larsen Svensson - Guitars
+Mats Blomberg - Guitars
+Joel Andersson - Bass
+Kristian Hasselhuhn - Drums
+
+(P)c 1996 SHIVER Records // SHR 016
+
 
 ## Отношения с другими группами
 

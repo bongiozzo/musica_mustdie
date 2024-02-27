@@ -1,7 +1,25 @@
 # Bloodwork
 
-Дискография
-"The Final End Prinicple" 2009, Melodic Death Metal
+
+
+## Дискография
+
+### "The Final End Prinicple" 2009, Melodic Death Metal
+
+1. Intro 00:24  
+2. The Enemy Within 03:20  
+3. Ex Vita 03:37  
+4. A Cycle Once Broken 03:25  
+5. Demonic 03:16  
+6. Behind The Lie 03:17  
+7. Hellbound 03:17  
+8. Camp X-Ray 02:40  
+9. Graveheart 04:41  
+10. Drowning Stone 02:55  
+11. Deadline 04:14  
+12. Silent Revolution 03:09  
+13. Insufficient 04:29 
+
 
 ## Отношения с другими группами
 

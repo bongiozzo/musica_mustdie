@@ -1,7 +1,13 @@
 # Incest
 
-Дискография
-"Copro (promo)" 2002, Grindcore
+Grindcore
+
+## Дискография
+
+### "Copro (promo)" 2002, Grindcore
+
+
+
 
 ## Отношения с другими группами
 

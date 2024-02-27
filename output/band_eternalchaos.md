@@ -1,7 +1,22 @@
 # Eternal Chaos
 
-Дискография
-"Dark God of the Eternal" 2010, Black Metal
+
+
+## Дискография
+
+### "Dark God of the Eternal" 2010, Black Metal
+
+1. Death's Overture (instrumental)	 
+2. Lord of Chaos	 
+3. The Black Flame Spirit	 
+4. Throne of Hate	 
+5. Pentagram	 
+6. Serpents Empire	 
+7. Rise Blasphemer	 
+8. Dark God of the Eternal		 
+9. Through the Shadows of Death	 
+10. Outro
+
 
 ## Отношения с другими группами
 

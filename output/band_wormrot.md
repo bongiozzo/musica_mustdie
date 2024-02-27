@@ -1,9 +1,21 @@
 # Wormrot
 
-Дискография
-"Abuse" 2009, Grindcore
-"Dirge" 2011, Grindcore
-"Voices" 2016, Grindcore
+
+
+## Дискография
+
+### "Abuse" 2009, Grindcore
+
+
+
+### "Dirge" 2011, Grindcore
+
+
+
+### "Voices" 2016, Grindcore
+
+
+
 
 ## Отношения с другими группами
 

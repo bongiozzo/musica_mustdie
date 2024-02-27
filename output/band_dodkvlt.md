@@ -1,7 +1,18 @@
 # Dodkvlt
 
-Дискография
-"I" 2009, Black Metal
+
+
+## Дискография
+
+### "I" 2009, Black Metal
+
+1. Inn i Virvelen av Brennende Sjaktene av Skjжrsilden 04:39  
+2. Voldtar Engelen 04:33  
+3. Vakker Bortgang av Menneskeheten 04:37  
+4. Uhellig Hжr Stiger 04:54  
+5. Mitt Epitaf 05:52  
+6. The Rain 10:12 
+
 
 ## Отношения с другими группами
 

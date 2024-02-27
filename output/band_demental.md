@@ -1,7 +1,13 @@
 # Demental
 
-Дискография
-"Tales Of Alienation" 2003, Death Metal
+
+
+## Дискография
+
+### "Tales Of Alienation" 2003, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

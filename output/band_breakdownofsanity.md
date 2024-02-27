@@ -1,9 +1,33 @@
 # Breakdown Of Sanity
 
-Дискография
-"The Last Sunset" 2009, Metalcore
-"Mirrors" 2011, Metalcore
-"Perception" 2013, Metalcore
+
+
+## Дискография
+
+### "The Last Sunset" 2009, Metalcore
+
+
+
+### "Mirrors" 2011, Metalcore
+
+
+
+### "Perception" 2013, Metalcore
+
+01. Exordium
+02. Crumble
+03. Hero
+04. The Writer
+05. Blind
+06. Scissorhands
+07. Perception
+08. The Gift
+09. Deliverance
+10. Chapters
+11. Broken Wings
+12. Invisible Scars
+13. Cardiac Silhouette
+
 
 ## Отношения с другими группами
 

@@ -1,20 +1,259 @@
 # Mayhem
 
-Дискография
-"Pure Fucking Armageddon (demo)" 1986, Black Metal
-"Voice of a Tortured Skull (demo)" 1986, Black Metal
-"Deathcrush" 1987, Black Metal
-"Live in Leipzig" 1991, Black Metal
-"De Mysteriis Dom Sathanas" 1994, Black Metal
-"The Dawn Of The Black Hearts" 1995, Black Metal
-"Ancient Skin (Demo)" 1996, Black Metal
-"Wolf's Lair Abyss" 1997, Black Metal
-"Mediolanum Capta Est (live)" 1999, Black Metal
-"A Grand Declaration of War" 2000, Black Metal
-"European Legions" 2001, Black Metal
-"Live in Marseille 2000" 2001, Black Metal
-"Chimera" 2004, Black Metal
-"Ordo Ab Chao" 2007, Black Metal
+Chief Killed By BURZUM
+
+## Дискография
+
+### "Pure Fucking Armageddon (demo)" 1986, Black Metal
+
+Mayhem                    
+    Ghoul                     
+    Pure fucking armageddon   
+    Carnage                   
+
+    Euronymous              Guitar
+    Necrobutcher             Bass
+    Manheim                 Drums
+    Messiah                 Vocal
+
+Self financed demo recorded in 1986.
+Produced by Mayhem.
+Music by Mayhem & Venom.
+Lyric by Necrobutcher & Venom.
+
+### "Voice of a Tortured Skull (demo)" 1986, Black Metal
+
+    Voice of a tortured skull       
+    Carnage                   
+    Ghoul                     
+    Black metal (Total death version)   
+    Pure fucking armageddon   
+
+    Euronymous     Guitar & Vocal
+    Necrobutcher             Bass 
+    Manheim                 Drums
+
+### "Deathcrush" 1987, Black Metal
+
+Silvester anfang         1.56   (Composed and recorded by Conrad Schnitzler) 
+    Deathcrush               3.33
+    Chainsaw gutsfuck        3.32
+    Witching hour (by VENOM)  .
+    Necrolust                1.49
+    Manheim (Weird)          3.37
+    Pure fucking armageddon  2.57
+    Outro                     .     (Only on the 87 release)
+
+    Euronymous             Guitar 
+    Necrobutcher             Bass
+    Manheim                 Drums
+    Maniac                 Vocals
+    Messiah                Vocals on Witching hour
+                          and Pure fucking armageddon
+
+Produced by Mayhem. Music by Mayhem. Lyrics by Necrobutcher.
+
+Posercorpse/Deathlike Silence Productions, 1987 limited edition of 1000 copies.
+Released in 1987 by Poser Corpse Music
+Re-released mcd in 1991 by DSP
+Re-realeased in 1993 on CD/LP.
+Re-released on vinyl in 1000 Limited Edition picture discs in 1998.
+
+### "Live in Leipzig" 1991, Black Metal
+
+Deathcrush                
+    Necrolust                 
+    Funeral fog               
+    The freezing moon         
+    Carnage                   
+    Buried by time and dust   
+    Pagan fears               
+    Chainsaw gutsfuck         
+    Pure fucking armageddon   
+
+    Euronymous             Guitar
+    Necrobutcher             Bass
+    Hellhammer              Drums
+    Dead                    Vocal
+
+Live album recorded live in Leipzig 1990.
+Released in 1991 by DSP.
+
+### "De Mysteriis Dom Sathanas" 1994, Black Metal
+
+Funeral fog              5.47
+    Freezing Moon            6.23
+    Cursed in eternity       5.10
+    Pagan fears              6.20
+    Life eternal             6.57
+    From the dark past       5.26
+    Buried by time and dust  3.34
+    De Mysteriis Dom Sathanas          6.21
+
+    Euronymous            Guitars
+    Hellhammer              Drums
+    Atilla                  Vocal
+    Varg Vikernes            Bass
+
+DSP - 1993; Century Media & Voices Of Wonder - 94 
+
+Album recorded in Grieghallen 1992-1993
+Produced by Pytten.
+Music by Euronymous.
+Lyrics by Dead.
+
+### "The Dawn Of The Black Hearts" 1995, Black Metal
+
+1. Deathcrush
+2. Necrolust
+3. Funeral Fog
+4. Freezing Moon
+5. Carnage
+6. Buried By Time And Dust
+7. Chainsaw Gutsfuck
+8. Pure Fucking Armaggedon
+9. Dance Macabre/Black Metal
+10. Procreation Of The Wicked
+11. Welcome To Hell
+
+### "Ancient Skin (Demo)" 1996, Black Metal
+
+    Ancient skin (96 version) 
+    Necrolust (96 version)    
+
+Mini-CD/demo recorded in 1996
+Released by Mayhem in 1996 (500 copies limited).
+Music by Mayhem. Lyrics by Maniac.
+
+### "Wolf's Lair Abyss" 1997, Black Metal
+
+The vortex void of inhumanity           
+    I am thy labyrinth        
+    Fall of seraphs           
+    Ancient skin              
+    Symbols of bloodswords    
+
+    Blashemer              Guitar
+    Necrobutcher             Bass
+    Hellhammer              Drums
+    Maniac                  Vocal
+
+Mini-CD recored in Studio Studio & Far Out 1997.
+Released mcd by Misanthropey Records in 1997.
+Music by Blasphemer. Lyrics by Maniac.
+
+### "Mediolanum Capta Est (live)" 1999, Black Metal
+
+The vortex void of inhumanity           
+    Silvester anfang          
+    Deathcrush                
+    Fall of seraphs           
+    Carnage                   
+    Necrolust                 
+    Ancient skin              
+    Freezing moon             
+    Symbols of bloodswords    
+    From the dark past        
+    Chainsaw gutsfuck         
+    I am thy labyrinth        
+    Pure fucking armageddon   
+
+    Blashemer              Guitar
+    Necrobutcher             Bass
+    Hellhammer              Drums
+    Maniac                  Vocal
+    Atilla                  Vocal on "From the Dark Past"
+
+Live album recorded live in Milano 1999.
+Released by Advantgarde Music in 1999.
+(666 limited edtion with silver-logo on the jewel)
+
+### "A Grand Declaration of War" 2000, Black Metal
+
+    A grand declaration of war      
+    In this lies where upon you lay            
+    A time to die             
+    View from nihil (pt I)    
+    View from nihil (pt II)   
+    A bloodsword and a colder sun (pt I)     
+    A bloodswrod and a colder sun (pt II)    
+    Crystalized pain in deconstruction       
+    Completion in science of agony (pt I)         
+    To daimonion (pt I)       
+    To daimonion (pt II)      
+    To daimonion (pt III)     
+    Completion in science of agony (pt II)        
+
+    Blasphemer              Guitar
+    Necrobutcher             Bass
+    Hellhammer              Drums
+    Maniac                  Vocal
+
+Album recorded in 2000.
+Released by "Season of Mist" in 2000.
+Produced by Borge Finstad.
+Music by Blasphemer.
+Lyrics by Maniac.
+
+### "European Legions" 2001, Black Metal
+
+1. Silvester Anfang/Fall Of Seraphs 
+2. Carnage
+3. View From Nihil  
+4. To Daimonion  
+5. Freezing Moon  
+6. Chainsaw Gutsfuck  
+7. Pure Fucking Armageddon  
+8. To Daimonion  
+9. View From Nihil  
+10. In The Lies Where Upon You Lay 
+11. Deconstruction  
+12. Completion
+
+Maniac - vocals
+Hellhammer - drums
+Necrobutcher - bass
+Blasphemer - guitar 
+
+Tracks 1-7 Recorded live
+Tracks 8-12 Pre-production tracks from Grand Declaration Of War sessions 
+
+(c) Season Of Mist
+
+### "Live in Marseille 2000" 2001, Black Metal
+
+1. Intro
+2. In The Lies Where Upon You Lay
+3. Fall Of Seraphs
+4. Carnage
+5. Crystalized Pain In Deconstruction
+6. Buried By Time And Dust
+7. Symbols Of Bloodswords
+8. View From Nihil
+9. Deathcrush
+10. To Daimonion
+11. Freezing Moon
+12. Chainsaw Gutsfuck
+13. A Time To Die
+14. Pure Fucking Armageddon
+15. I Am Thy Labyrinth
+16. From The Dark Past
+
+### "Chimera" 2004, Black Metal
+
+1. Whore
+2. Dark Night Of The Soul
+3. Rape Humanity With Pride
+4. My Death
+5. You Must Fall
+6. Slaughter Of Dreams
+7. Impious Devious Leper Lord
+8. Chimera
+
+### "Ordo Ab Chao" 2007, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

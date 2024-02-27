@@ -1,6 +1,9 @@
 # Disassociate
 
-Дискография
+grindcore from New York
+
+## Дискография
+
 
 ## Отношения с другими группами
 

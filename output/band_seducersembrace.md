@@ -1,8 +1,54 @@
 # Seducer's Embrace
 
-Дискография
-"Sinnocence" 2002, Melodic Death Metal
-"Self-Mythology" 2010, Melodic Death Metal
+melodic death-metal
+
+## Дискография
+
+### "Sinnocence" 2002, Melodic Death Metal
+
+1. Entering Thy Gates
+2. My Embrace 
+3. Silent Tears 
+4. Sleep My Darling
+5. Dead Flowers Valley 
+6. As The Forest Weeps…
+7. Moonlight Serenade
+8. Empty Promises
+9. Seducer’s Lullaby 
+
+
+
+Rouslan “James” Anisimov – all vocals
+Alexei Dokhov – lead, rhythm and acoustic guitars
+Alexei Arzamazov – lead, rhythm guitars
+Dmitry Vasin – bass
+Nail Magzhanov – drums
+
+Additional Musicians:
+Timofei Smirnov – additional lead guitars (tracks  3, 5), acoustic guitar (track 4)
+Pavel Blishchenko - keyboards
+
+
+Recorded at The Black Cat records studio by (May 2000 – June 2001)  by  Alexei Boudanov 
+Mixed and mastered by Alexei Martynov
+
+
+### "Self-Mythology" 2010, Melodic Death Metal
+
+1. Ants and Bees
+2. Shadows They Cast
+3. Within the Without
+4. Myth
+5. Of Fate
+6. A Misanthrope
+7. Severe
+8. The Now
+9. Secret Levels
+10. Knots of Silence
+11. Let It Rain
+12. Altjeringa (The Dreaming)
+13. Where The Wild Roses Grow (internet-bonus)
+
 
 ## Отношения с другими группами
 

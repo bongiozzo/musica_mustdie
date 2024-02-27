@@ -1,23 +1,221 @@
 # Agoraphobic Nosebleed
 
-Дискография
-"Agoraphobic Nosebleed/Gob /split/" 1994, Grindcore
-"Agoraphobic Nosebleed/Laceration /split/" 1994, Grindcore
-"Agoraphobic Nosebleed /EP/" 1994, Grindcore
-"30 Song Demo /demo/" 1995, Grindcore
-"Agoraphobic Nosebleed /EP/" 1996, Grindcore
-"Agoraphobic Nosebleed/Cattlepress /split/" 1997, Grindcore
-"Agoraphobic Nosebleed/Enemy Soil /split/" 1997, Grindcore
-"Honky Reduction /EP/" 1998, Grindcore
-"PCP Torpedo /EP/" 1998, Grindcore
-"Cry Now Cry Later, Volumes 3 And 4 /sampler/" 1998, Grindcore
-"Agoraphobic Nosebleed/Converge: The Poacher Diaries /split/" 1999, Grindcore
-"Agoraphobic Nosebleed/Benuemb /split/" 2001, Grindcore
-"Frozen Corpse Stuffed With Dope" 2002, Grindcore
-"Agoraphobic Nosebleed/Halo /split/" 2002, Grindcore
-"Altered States Of America" 2003, Grindcore
-"Drum Machine Madness /sampler/" 2003, Grindcore
-"Agorapocalypse" 2009, Grindcore
+
+
+## Дискография
+
+### "Agoraphobic Nosebleed/Gob /split/" 1994, Grindcore
+
+
+
+### "Agoraphobic Nosebleed/Laceration /split/" 1994, Grindcore
+
+
+
+### "Agoraphobic Nosebleed /EP/" 1994, Grindcore
+
+
+
+### "30 Song Demo /demo/" 1995, Grindcore
+
+
+
+### "Agoraphobic Nosebleed /EP/" 1996, Grindcore
+
+
+
+### "Agoraphobic Nosebleed/Cattlepress /split/" 1997, Grindcore
+
+
+
+### "Agoraphobic Nosebleed/Enemy Soil /split/" 1997, Grindcore
+
+
+
+### "Honky Reduction /EP/" 1998, Grindcore
+
+01. Black Ink On Black Paper
+02. Polished Turd
+03. Filthy Murder Shack
+04. The Withering Of Skin
+05. Empowerment
+06. The House Of Feasting
+07. Die And Get The Fuck Out Of The Way
+08. Insipid Conversations
+09. Vexed
+10. Circus Mutt (Three Ring Inferno)
+11. Lives Ruined Through Sex (For Anita)
+12. Clawhammer And An Ether Rag (For Bill)
+13. NYC Always Reminds Me
+14. Her Despair Reeks of Alcohol
+15. Chump Slap
+16. Burned Away In Sleep
+17. Grief Is Not Quantifiable
+18. Cloved In Twain
+19. Torn Apart By Dingos
+20. Pagan Territories
+21. Hat Full Of Shit (For Cletus)
+22. McWorld
+23. How Sean Through His Back Out Sneezing
+24. Bones In One Bag (Organs In Another)
+25. Acute Awareness (For Wood)
+26. Two Shits To The Moon
+
+(p)&(c) 1998 Relapse Records
+
+### "PCP Torpedo /EP/" 1998, Grindcore
+
+
+
+### "Cry Now Cry Later, Volumes 3 And 4 /sampler/" 1998, Grindcore
+
+
+
+### "Agoraphobic Nosebleed/Converge: The Poacher Diaries /split/" 1999, Grindcore
+
+
+
+### "Agoraphobic Nosebleed/Benuemb /split/" 2001, Grindcore
+
+
+
+### "Frozen Corpse Stuffed With Dope" 2002, Grindcore
+
+
+
+### "Agoraphobic Nosebleed/Halo /split/" 2002, Grindcore
+
+
+
+### "Altered States Of America" 2003, Grindcore
+
+00. Wonder Drug Wonderland
+01. Spreading The Dis-Ease
+02. Ark Of Ecoterrorism
+03. Living Lolita Blow Job
+04. Thawing Out
+05. The Need For Better Body Armour
+06. Freeze-Dried Cemetary
+07. Children Blown To Bits By The Bus Load
+08. Scoring In Heaven
+09. Fuck Your Soccer Jesus
+10. Guided Tour
+11. Honky Dong
+12. Famous Last Words
+13. Osaka Milk Bar
+14. Drive By Blowjob On A Bicycle
+15. Ten Pounds Of Remains
+16. Utter Mental Retardation And Reversal Of Man
+17. Neotropolis Euphoria
+18. Snitch Olympics
+19. Crawling Out Of The Cradle Into The Casket
+20. Ramoving Locator Tooth
+21. Aum Shinrikyo
+22. The Protocols Of The Elders Of Zion
+23. The Tokyo Subway Gassing
+24. The Star Of David
+25. Shintaro Ishihara And The Rape Of Nanking In World War 2
+26. Mahikari
+27. Micro-Tidal Wave
+28. Crop Dusting
+29. LSD As A Chemical Weapon
+30. Illegal Manufacture
+31. Drugging The Control Group
+32. Alice In La La Land
+33. Apocalypse As Mescaline Experience
+34. The Artificial Religioous Experience
+35. The First Day Of Sodom: Pussy Hair Prayer Rug
+36. The Second Day Of Sodom: Distortion In Eden
+37. The Third Day Of Sodom: Serpent Of The Gay Pride Rainbow
+38. The Fourth Day Of Sodom: Snaking Adams Black Apple
+39. The Fifth Day Of Sodom: Like A Cretin On Christmas Eve
+40. The Sixth Day Of Sodom: Boston Hardcore Caligula
+41. The Seventh Day Of Sodom: Fantasizing Hydrahead
+42. The Eighth Day Of Sodom: Lamb Of The Rotisserie God
+43. The Ninth Day Of Sodom: Holiday Bowl Full Of Asshole
+44. The Tenth Day Of Sodom: Enter The House Of Feasting
+45. The Eleventh Day Of Sodom: Passing Blunts And Cunts At Relapse
+46. The Twelfth Day Of Sodom: When Taking A Shit Feels Sexy
+47. Poland Springfield Acid Bag
+48. Rectal Thermometer
+49. Human Enhancement
+50. Necro-Cannibalistic Tendencies In Young Children
+51. Bombs With Butterfly Wings
+52. Watching A Clown Point A Gun At A Small Dog (Reprise)
+53. Mosquito Holding Human Cattle Prod
+54. For Just Ten Cents A Day...
+55. Mental Change(s): Altered Consciousness
+56. Radical Modernism
+57. Human Enhancement
+58. Juxtaposed Impacts
+59. Unprecedented Experiment
+60. Transparent Enclosure
+61. Bong Hit Wonder
+62. Opening To Personals Ad by Richard Johnson
+63. Relapse Refusing UN Weapons Inspectors
+64. Neural Linguistic Programming
+65. The Fag Vs. The Indian
+66. Black Metal Transvestite
+67. Debbie Does Dishes
+68. Marine Pornography (For Whale Cock Skateboards)
+69. Keeping A Clean Kennel
+70. Baby Mill, Pt. 1 (Born And Sold Into Child Slavery)
+71. Firearms For All Faiths
+72. Domestic Solution
+73. Defenition Of Death
+74. Discolored
+75. Scott Hulk On Intramuscular Steroids
+76. 4 Leeches (40000 Leeches)
+77. Group Taking Acid As Considered Conspiracy Against The Government
+78. Small Room And A Six Pack
+79. Deviant Arousal
+80. Unbound By Civilized Properties
+81. They All Burned!
+82. Shotgun Funeral
+83. Homophobic Assbleed
+84. Exacting Revenge On Pets
+85. Baby Mill, Pt. 2 (White Russian)
+86. Narcoterrorist Megalomaniac
+89. Releasing A Dove From A Ghetto Rooftop
+90. A Chance At Reprisal
+91. Altered Ego
+92. Pin The Tail On The Donkey
+93. Latter Day Mormon Ritual
+94. 5 Band Genetic Equalizer, Pt. 3
+95. Absurd Boast
+96. Burning Social Interest
+97. Whore Torn Yet
+98. Obi Wan Kaczynski
+99. Placing A Personal Memo On The Bosses Desk
+
+### "Drum Machine Madness /sampler/" 2003, Grindcore
+
+
+
+### "Agorapocalypse" 2009, Grindcore
+
+0. "Timelord Zero (Chronovore)" – 3:22
+1. "Agorapocalypse Now" – 2:25
+2. "Timelord One (Loneliness of the Long Distance Drug Runner)" – 0:56
+3. "Dick to Mouth Resuscitation" – 1:16
+4. "Moral Distortion" – 2:00
+5. "Hung from the Rising Sun" – 2:10
+6. "First National Stem Cell and Clone" – 3:19
+7. "Question of Integrity" – 2:30
+8. "Timelord Two (Paradoxical Reaction)" – 3:03
+9. "Trauma Queen" – 1:51
+10. "White on White Crime" – 3:19
+11. "Druggernaut Jug Fuck" – 2:23
+12. "Ex-Cop" – 0:59
+13. "Flamingo Snuff" – 2:20
+
+Japan bonus tracks
+
+14. "Crypto-Zoology" – 0:45
+15. "Werewolf Women of the U.S." – 0:09
+16. "Dis-Order of Species" – 1:34
+17. "Un-Natural Selection" – 1:04
+
 
 ## Отношения с другими группами
 

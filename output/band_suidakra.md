@@ -1,21 +1,227 @@
 # Suidakra
 
-Дискография
-"Lupine Essence" 1997, Melodic Death Metal
-"Auld Lang Syne" 1998, Melodic Death Metal
-"Lays from afar" 1999, Melodic Death Metal
-"The Arcanum" 2000, Melodic Death Metal
-"Emprise To Avalon" 2002, Melodic Death Metal
-"Signs for the Fallen" 2003, Melodic Death Metal
-"Command To Charge" 2005, Melodic Death Metal
-"Caledonia" 2006, Melodic Death Metal
-"13 Years Of Celtic Wartunes (DVD+ Best Of CD)" 2008, Melodic Death Metal
-"Crogacht " 2009, Melodic Death Metal
-"Book Of Dowth" 2011, Melodic Death Metal
-"The Eternal Chronicles (EP)" 2013, Folk
-"Eternal Defiance" 2013, Folk
-"The Hunter's Horde (single)" 2016, Melodic Death Metal
-"Realms of Odoric" 2016, Melodic Death Metal
+death-power metal
+
+## Дискография
+
+### "Lupine Essence" 1997, Melodic Death Metal
+
+01. Banshee
+02. Dragon Tribe 
+03. Heresy 
+04. Sheltering Dreams 
+05. Havoc 
+06. Warpipes call me 
+07. ...and a minstrel left the mourning valley 
+08. Internal Epidemic - (taken from the dawn demo'95) 
+
+
+### "Auld Lang Syne" 1998, Melodic Death Metal
+
+01. Auld Lang Syne 
+02. Hall Of Tales 
+03. A Menhirs Clay 
+04. And Another Cist Looms 
+05. An D&#1098;dlachd 
+06. Tuatha de Danaan 
+07. Jeremiad 
+08. The Fall of Tarra
+09. Enticing Slumber - (rearranged special track) 
+10. Calm... 
+
+
+### "Lays from afar" 1999, Melodic Death Metal
+
+01. A Darksome Path 
+02. Chants Of Lethe 
+03. The Well Of Might 
+04. The Hidden Quest
+05. Morrigan 
+06. Peregrin 
+07. Wasted Lands
+08. Strayed in nowhere 
+09. Airne 
+10. Lays from afar 
+11. Foggy dew - (traditional) 
+
+
+### "The Arcanum" 2000, Melodic Death Metal
+
+01. Wartunes 
+02. Last Fortress 
+03. Dragonbreed
+04. Rise Of Taliesin 
+05. Rest in Silence 
+06. Gates Of Nevermore 
+07. Serenade To A Dream 
+08. The Arcane Spell 
+09. The One Piece Puzzle - (skyclad coverversion) 
+
+
+### "Emprise To Avalon" 2002, Melodic Death Metal
+
+01. Darkane Times 
+02. Dinas Emrys 
+03. Pendragons Fall 
+04. The Highking  
+05. The Spoils Of Annwn 
+06. The Quest 
+07. And The Giants Dance ... 
+08. Song Of The Graves 
+09. Still The Pipes Are Calling
+
+
+Arkadius - Lead,- rhythm,- melodic,- accoustic guitars, Bass, Keyboards & Main Vocals 
+Marcel - Melodic,- acoustic guitars, Tin-Whistle & Clean Vocals 
+Lars - Drums & Percussion 
+
+
+
+### "Signs for the Fallen" 2003, Melodic Death Metal
+
+1. Revenant (5:05)
+2. Crown The Lost (4:36)
+3. Threnody (1:42)
+4. Trials Of Gore (4.35)
+5. The Ember Deid (0:21)
+6. When Eternity Echoes (2:02)
+7. Signs For The Fallen (5:37)
+8. Dimorphic (4:20)
+9. Bound In Changes (8:50)
+10. A Vision's Demise (5:09)
+
+### "Command To Charge" 2005, Melodic Death Metal
+
+1 Decibel Dance 4:15
+2 C14_Measured By Infinity 5:17
+3 Haughs Of Cromdale 0:29
+4 The Alliance 4:15
+5 A Runic Rhyme 1:49
+6 Second Skin 4:50
+7 Reap The Storm 4:26
+8 Gathered In Fear 4:34
+9 A Strange Perfection 5:26
+10 Dead Man's Reel (instrumental) 4:17 
+11 The End Beyond Me 3:42
+
+Live video:
+1 Reap The Storm
+2 Morrigan
+
+### "Caledonia" 2006, Melodic Death Metal
+
+1. Highland Hills 08:01
+2. A Blackened Shield 05:15  
+3. The Ember Deid (Part II) 03:15  
+4. Evoke the Demon 05:27  
+5. Forth-Clyde 05:31  
+6. Ramble 02:57  
+7. Dawning Tempest 05:13  
+8. The Distant Call 03:34  
+9. On Torrid Sand 03:52  
+10. The IXth Legion 05:44  
+11. Farewell 01:14
+
+### "13 Years Of Celtic Wartunes (DVD+ Best Of CD)" 2008, Melodic Death Metal
+
+
+
+### "Crogacht " 2009, Melodic Death Metal
+
+1. Slбn 01:48  
+2. Conlaoch 05:18  
+3. Isle of Skye 06:01  
+4. Scбthach 05:09  
+5. Feats of War 02:47  
+6. Shattering Swords 04:16  
+7. Бr Nasc Fola 03:01  
+8. Gilded Oars 05:36  
+9. Baile's Strand 07:20 
+
+
+Line-up:
+Arkadius Antonik - Vocals, Guitar, Keyboards
+Marcus Riewaldt - Bass
+Lars Wehner - Drums, Backing Vocals
+
+### "Book Of Dowth" 2011, Melodic Death Metal
+
+1. Over Nine Waves 01:57  
+2. Dowth 2059 04:38  
+3. Battle-Cairns 03:36 
+4. Birуg's Oath 04:18  
+5. Mag Mell 03:19 
+6. The Dark Mound 05:14  
+7. Balor 04:41
+8. Stone Of The Seven Suns 05:01  
+9. Fury Fomoraigh 05:42 
+10. Otherworlds Collide 01:42 
+
+
+
+line up:
+Arkadius "Akki" Antonik - Vocals, Guitar, Keyboards 
+Marcus Riewaldt - Bass 
+Lars Wehner - Drums, Backing Vocals
+
+Digipak bonus tracks:
+
+11. Rise Of Taliesin (classically re-arranged version)
+12. When Eternity Echoes (classically re-arranged version)
+13. Dowth 2059 (video) 
+
+### "The Eternal Chronicles (EP)" 2013, Folk
+
+1. Beneath The Red Eagle
+2. Inner Sanctum
+3. Balor
+4. Stone Of The Seven Suns
+5. Let Me Put My Love Into You (AC/DC cover)
+6. Pendragon's Fall (Live)
+7. Ramble (Demo Version)
+
+
+Tracks 1 and 2 are from the "Eternal Defiance" album.
+Tracks 3 and 4 are from the "Book Of Dowth" album.
+Track 5 is a bonus song from the re-released version of "The Arcanum" album.
+Track 6 is previously unreleased.
+Track 7 is a previously unreleased demo version from the "Caledonia" album. 
+
+### "Eternal Defiance" 2013, Folk
+
+1. Storming the Walls
+2. Inner Sanctum
+3. Beneath the Red Eagle
+4. March of Conquest
+5. Pair Dadeni
+6. The Mindsong
+7. Rage for Revenge
+8. Dragon’s Head
+9. Defiant Dreams
+10. Damnatio Memoriae 
+11. Mrs McGrath (Bonus Track) 
+
+### "The Hunter's Horde (single)" 2016, Melodic Death Metal
+
+1. The Hunter's Horde  04:27  
+
+### "Realms of Odoric" 2016, Melodic Death Metal
+
+1. Into the Realm  01:15    
+2. The Serpent Within  04:09  
+3. The Hunter's Horde  04:27   
+4. Creeping Blood  02:03   
+5. Undaunted  04:00
+6. Lion of Darcania  05:12   
+7. Pictish Pride  04:01    
+8. On Roads to Ruin  03:43  
+9. Dark Revelations  04:10   
+10. Braving the End  03:38    
+11. One Against the Tide  03:54    
+12. Cimbric Requiem  04:09  
+13. Remembrance (bonus track) 02:38  
+
+
 
 ## Отношения с другими группами
 

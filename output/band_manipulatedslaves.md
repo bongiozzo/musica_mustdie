@@ -1,7 +1,13 @@
 # Manipulated Slaves
 
-Дискография
-"Burst Into Blue Flame" 2000, Melodic Death Metal
+melodic death from Japan
+
+## Дискография
+
+### "Burst Into Blue Flame" 2000, Melodic Death Metal
+
+
+
 
 ## Отношения с другими группами
 

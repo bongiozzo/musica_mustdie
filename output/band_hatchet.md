@@ -1,9 +1,47 @@
 # Hatchet
 
-Дискография
-"Awaiting Evil" 2008, Thrash
-"Dawn Of The End" 2013, Thrash
-"Fear Beyond Lunacy" 2015, Thrash
+
+
+## Дискография
+
+### "Awaiting Evil" 2008, Thrash
+
+1. Darkening Skies 02:02  
+2. Frailty Of The Flesh 04:19  
+3. Sealed Fate 04:41  
+4. Frozen Hell 04:25  
+5. Attack Imminent 05:05  
+6. Morlocks Tomb 05:18  
+7. Storm The Gates 05:53  
+8. The Dead Will March 04:37  
+9. Awating Evil 05:46 
+
+### "Dawn Of The End" 2013, Thrash
+
+01. After The Dark
+02. Silenced By Death
+03. Screams Of The Night
+04. Fall From Grace
+05. Revelations Of Good And Evil
+06. Signals Of Infection
+07. Dawn Of The End
+08. Sinister Thoughts
+09. Welcome To The Plague
+10. Vanishing Point
+
+### "Fear Beyond Lunacy" 2015, Thrash
+
+01. Where Time Cannot Exist
+02. Living In Extinction
+03. Lethal Injustice
+04. In Fear We Trust
+05. Killing Indulgence
+06. Dead And Gone
+07. Tearing Into Hell
+08. Prophet Of Delusion
+09. The World Beyond
+10. Frozen Hell (bonus)
+
 
 ## Отношения с другими группами
 

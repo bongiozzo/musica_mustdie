@@ -1,11 +1,48 @@
 # Devin Townsend
 
-Дискография
-"Ocean Machine" 1997, Progressive
-"Physicist" 2000, Progressive
-"Infinity" 2000, Progressive
-"Terria" 2001, Progressive
-"Accelerated Evolution" 2003, Progressive
+
+
+## Дискография
+
+### "Ocean Machine" 1997, Progressive
+
+
+
+### "Physicist" 2000, Progressive
+
+
+
+### "Infinity" 2000, Progressive
+
+
+
+### "Terria" 2001, Progressive
+
+1. Olives
+2. Mountain
+3. Earth Day
+4. Deep Peace
+5. Canada
+6. Down And Under
+7. The Fluke
+8. Nobody's Here
+9. Tiny Tears
+10. Stagnant
+
+Additional musicians:
+
+Jaime Meyer - keyboards
+Craig McFarland - bass
+Gene Hoglan - drums
+
+Produced by:
+
+Devin Townsend
+
+### "Accelerated Evolution" 2003, Progressive
+
+
+
 
 ## Отношения с другими группами
 

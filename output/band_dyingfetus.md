@@ -1,16 +1,153 @@
 # Dying Fetus
 
-Дискография
-"Infatuation With Malevolence " 1995, Death Metal
-"Purification Through Violence " 1996, Death Metal
-"Killing On Adrenaline" 1998, Death Metal
-"Destroy The Opposition" 2000, Death Metal
-"Grotesque Impalement (EP)" 2000, Death Metal
-"Stop At Nothing" 2003, Death Metal
-"War of Attrition" 2007, Death Metal
-"Descend Into Depravity" 2009, Death Metal
-"History Repeats... (EP)" 2011, Death Metal
-"Reign Supreme" 2012, Death Metal
+Brutal death metal
+
+## Дискография
+
+### "Infatuation With Malevolence " 1995, Death Metal
+
+1. Eviscerated Offspring 05:05 
+2. Your Blood Is My Wine 05:31
+3. ...And the Weak Shall Be Crushed 04:52
+4. Visualize Permanent Damnation 01:09  
+5. Purged of My Wordly Being 04:06 
+6. Bathe in Entrails 04:38 
+7. Nocturnal Crucifixion 03:22 
+8. Wretched Flesh Consumption 02:53  
+9. Grotesque Impalement 05:10 
+10. Vomiting the Fetal Embryo 02:54 
+
+
+### "Purification Through Violence " 1996, Death Metal
+
+1. Blunt Force Trauma 05:26  
+2. Beaten Into Submission 02:50  
+3. Skull Fucked 02:55  
+4. Permanently Disfigured 03:25  
+5. Raped on the Altar 03:55 
+6. Nothing Left to Pray For 03:55  
+7. Nocturnal Crucifixion 03:23 
+8. Skum (Fuck the Weak) 02:53 
+
+
+### "Killing On Adrenaline" 1998, Death Metal
+
+1. Killing On Adrenaline 
+2. Procreate The Malformed 
+3. Fornication 
+4. We Are Your Enemy 
+5. Kill Your Mother/Rape Your Dog 
+6. Absolute Defiance 
+7. Judgement Day (Integrity cover) 
+8. Intentional Manslaughter
+
+
+Kevin Talley - drums
+Brian Latta - guitar
+John Gallagher - guitar and vocals
+Jason Netherton - bass and vocals
+
+
+(c)&(p) 1998 Morbid Records
+
+### "Destroy The Opposition" 2000, Death Metal
+
+1.   Praise the Lord (Opium of the Masses) (Gallagher/Netherton) - 5:31 
+2.   Destroy the Opposition (Gallagher/Netherton) - 5:11 
+3.   Born in Sodom (Gallagher/Netherton) - 4:46 
+4.   Epidemic of Hate (Gallagher/Netherton) - 4:42 
+5.   Pissing in the Mainstream (Gallagher/Netherton) - 1:56 
+6.   In Times of War (Netherton) - 3:08 
+7.   For Us or Against Us (Netherton/Voyles) - 5:34 
+8.   Justifiable Homicide (Netherton) - 5:35 
+
+(c)&(p) 2000 Relapse Records
+
+### "Grotesque Impalement (EP)" 2000, Death Metal
+
+1. Grotesque Impalement 
+2. Streak Of Blood 
+3. Bringing Back The Glory 
+4. Tearing Inside The Womb 
+5. Final Scream 
+6. Hail Might North: Forest Trolls Of Satan (Anno Clitoris 666 Opus 11)
+
+
+John Gallagher : Guitar, vocals
+Brian Latta : Guitar
+Jason Netherton : Bass, vocals
+Kevin Talley : Drums
+
+### "Stop At Nothing" 2003, Death Metal
+
+01. Schematics (Music: Gallagher Lyrics: Creig, Kimball)
+02. One Shot, One Kill (Music: Gallagher, Kimball Lyrics: Kimball)
+03. Institutions Of Deceit (Music: Gallagher, Kimball Lyrics: Kimball)
+04. Abandon All Hope (Music: Gallagher, Kimball Lyrics: Kimball)
+05. Forced Elimination (Music: Gallagher Lyrics: Kimball)
+06. Stop At Nothing (Music: Gallagher Lyrics: Kimball)
+07. Onslaught Of Malice (Music: Gallagher Lyrics: Kimball)
+08. Vengeance Unleashed (Music: Gallagher Lyrics: Creig)
+
+
+John Gallagher (Guitar and Vocals)
+Sean Beasley (Bass)
+Vince Matthews (Vocals)
+Mike Kimball (Guitar)
+Erik Sayenga (Drums)
+
+Recorded Nov 2002 - Feb 2003 at Hit and Run Studios, Rockville, Maryland
+Produced by Dying Fetus and Steve Carr
+Mastered by Scott Hull at Visceral Sound
+Design by Johnathan Canady
+
+
+### "War of Attrition" 2007, Death Metal
+
+1. Homicidal Retribution 05:29  
+2. Fate of the Condemned 04:41 
+3. Raping the System 06:11  
+4. Insidious Repression 03:32 
+5. Unadulterated Hatred 04:47  
+6. Ancient Rivalry 03:41  
+7. Parasites of Catastrophe 04:12
+8. Obsolete Deterrence 04:13 
+
+
+### "Descend Into Depravity" 2009, Death Metal
+
+1. Your Treachery Will Die With You 03:34
+2. Shepherd's Commandment 04:28
+3. Hopeless Insurrection 04:32
+4. Conceived Into Enslavement 04:24
+5. Atrocious By Nature 03:52
+6. Descend Into Depravity	05:02
+7. At What Expense 04:37
+8. Ethos Of Coercion 03:16
+
+### "History Repeats... (EP)" 2011, Death Metal
+
+01. Fade Into Obscurity (Dehumanized)
+02. Unchallenged Hate (Napalm Death)
+03. Gorehog (Broken Hope)
+04. Rohypnol (new studio track)
+05. Unleashed Upon Mankind (Bolt Thrower)
+06. Twisted Truth (Pestilence)
+07. Born In A Casket (Cannibal Corpse)
+
+### "Reign Supreme" 2012, Death Metal
+
+1 Invert the Idols
+2 Subjected to a Beating
+3 Second Skin
+4 From Womb to Waste
+5 Dissidence
+6 In the Trenches
+7 Devout Atrocity
+8 Revisionist Past
+9 The Blood of Power 
+
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,23 @@
 # Vexillum
 
-Дискография
-"The Wandering Notes" 2011, Power Metal
+
+
+## Дискография
+
+### "The Wandering Notes" 2011, Power Metal
+
+1. Neverending Quest
+2. The First Light
+3. Avalon
+4. The Brave and the Craven
+5. Ranger Runs Again
+6. Rising From The Ruins
+7. The Wood of Chances
+8. Hunter and Prey
+9. The Traveller
+10. Open Your Curtain
+11. Shadow Vexillum - Part II
+
 
 ## Отношения с другими группами
 

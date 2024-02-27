@@ -1,8 +1,57 @@
 # OHM
 
-Дискография
-"OHM" 2002, Fusion
-"Live On The K P F K" 2004, Fusion
+Chris Poland project
+
+## Дискография
+
+### "OHM" 2002, Fusion
+
+
+
+### "Live On The K P F K" 2004, Fusion
+
+01. KPFK Intro/M. Torres
+02. Terra Incognita
+03. Came To Believe
+04. Photograph
+05. Peanut Buddha
+06. Icarus Falls
+07. You Don't Know
+08. Iguana
+09. Tara
+10. ID
+11. Where's My Hat?
+12. KPFK Outro: Mark Tores
+13. KSPC Intro/T. Palkovic
+14. Jam At Tony's
+15. KSPC Outro
+
+Chris Poland - guitar
+Robertino Pagliari - bass
+Kofi Baker - drums
+
+Recorded live on the air at KPFK Pacifica Radio
+90.7 FM, Los Angeles, CA.
+"Jam At Tony's" recorded live on the air at KSPC
+Radio 88.7 FM, Claremont, CA.
+Both recordings direct at 2 track.
+DJ: Mark Torrres at KPFK 90.7 FM.
+KPFK recording engineered by Petar Sardelich and
+Chris Poland.
+DJ: Tony Palkovic at KSPC 88.7 FM.
+KSPC recording engineered by Tony Palkovic and
+Chris Poland.
+Track 13 KSPC Intro by Tim Howard.
+Mastered by Randy Pevler, Chris Poland and Petar
+Sardelich at Electropolis.
+Final level mastering by Fred Tushinsky at CD
+Labs, No. Hollywood, CA.
+Cover photo, CD design and layout by Donny Sarian.
+Live photos by Nathan Ian Bradley.
+Catering provided by Scott Menzies.
+Studio audience: Allison Demmert Poland, Mike
+Daugherty, Scott Menzies.
+
 
 ## Отношения с другими группами
 

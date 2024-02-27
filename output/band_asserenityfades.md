@@ -1,7 +1,21 @@
 # As Serenity Fades
 
-Дискография
-"Eartborn" 1994, Death Doom
+
+
+## Дискография
+
+### "Eartborn" 1994, Death Doom
+
+1. Tear-Seas
+2. Yearning
+3. Oriental
+4. Earthborn
+
+All Songs Written By AS SERENITY FADES.
+Recorded & Mixed At Studio-MDM By Erkki Salo & AS SERENITY FADES In Sept. 1993.
+
+(p)&(c) 1994 ADIPOCERE Records
+
 
 ## Отношения с другими группами
 

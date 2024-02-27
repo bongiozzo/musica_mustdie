@@ -1,7 +1,35 @@
 # Wings
 
-Дискография
-"Diatribe" 1996, Death Doom
+
+
+## Дискография
+
+### "Diatribe" 1996, Death Doom
+
+1. Sunburnt
+2. Eden
+3. Cast Asunder
+4. Thus Far
+5. Unwind
+6. Equidistant
+7. Austere
+8. Deus Ex Machina
+9. Passion Et Resurrection
+
+All songs written by WINGS
+Engineered by Ahti Kortelainen
+Mixed by Ahti Kortelainen and WINGS
+
+Recorded at Tico-Tico Studio, Kemi,
+Finland
+
+Gabriel Suoraniemi - Vocals. Guitars
+August Hyvarinen - Guitars, Keyboards
+Harry Kessunmaa - Bass
+Kai Hahto - Drums
+
+ (p)(c) 1996 WOODCUT Records
+
 
 ## Отношения с другими группами
 

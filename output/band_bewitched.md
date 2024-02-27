@@ -1,11 +1,85 @@
 # Bewitched
 
-Дискография
-"Diabolical Desecration" 1996, Black Metal
-"Encyclopedia of Evil" 1996, Black Metal
-"Hell Comes to Essen" 1999, Black Metal
-"Rise of the Antichrist" 2002, Black Metal
-"Spiritual Warfare" 2006, Black Metal
+
+
+## Дискография
+
+### "Diabolical Desecration" 1996, Black Metal
+
+1.  Hard As Steel (Hot As Hell)
+2.  Hellcult
+3.  Born Of Flames
+4.  Deathspell
+5.  Bloodthirst
+6.  Burnin' Paradise
+7.  Holy Whore
+8.  Triumph Of Evil
+9.  Firehymn
+10.  Dressed In Blood
+11.  Blade Of The Ripper
+12.  The Witches Plague
+13.  Diabolical Desecration
+
+All Songs Written By BEWITCHED.
+Produced By BEWITCHED.
+Recorded & Mixed At UMT Studio.
+
+Blackheim - Howling Guitars & Diabolical Fire Burnin'
+Vargher - Infernal Distortion & Throat Molestin'
+Warthyr - Holocaust Bass
+Reaper - Drums Of Doom
+
+(P)c 1996 OSMOSE Productions
+
+### "Encyclopedia of Evil" 1996, Black Metal
+
+1.  Prologue (BEWITCHED)
+2.  Warhead (VENOM)
+3.  Sacrifice (BATHORY)
+4.  Evil (MERCYFUL FATE)
+5.  The Circle Of The Tyrants (CELTIC FROST)
+6.  Come To The Sabbath (BLACK WIDOW)
+7.  Hellcult (BEWITCHED)
+
+All Tracks Recorded & Mixed At UMT Studio.
+
+Blackheim - Howling Guitars & Diabolical Fire Burnin'
+Vargher - Infernal Distortion & Throat Molestin'
+Warthyr - Holocaust Bass
+Reaper - Drums Of Doom
+
+(P)c 1996 OSMOSE Productions
+
+### "Hell Comes to Essen" 1999, Black Metal
+
+
+
+### "Rise of the Antichrist" 2002, Black Metal
+
+01. Worship the Fire 
+
+02. Under Satan's Spell 
+
+03. Victim of the Cult 
+
+04. Rise of the Antichrist 
+
+05. Sacrificed in Flames 
+
+06. Hell's Triumph 
+
+07. The Rippers Return 
+
+08. Bewitched by Evil 
+
+09. Prayer of Desecration
+
+
+
+### "Spiritual Warfare" 2006, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

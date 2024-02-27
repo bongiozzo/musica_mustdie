@@ -1,10 +1,25 @@
 # Slash
 
-Дискография
-"Slash" 2010, Hard Rock
-"Live In Manchester (2 CD)" 2010, Hard Rock
-"Made In Stoke 24/7/11" 2011, Hard Rock
-"Apocalyptic Love" 2012, Hard Rock
+
+
+## Дискография
+
+### "Slash" 2010, Hard Rock
+
+
+
+### "Live In Manchester (2 CD)" 2010, Hard Rock
+
+
+
+### "Made In Stoke 24/7/11" 2011, Hard Rock
+
+
+
+### "Apocalyptic Love" 2012, Hard Rock
+
+
+
 
 ## Отношения с другими группами
 

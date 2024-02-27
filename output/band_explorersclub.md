@@ -1,8 +1,23 @@
 # Explorer's Club
 
-Дискография
-"Age Of Impact" 1998, Progressive
-"Raising The Mamoth" 2002, Progressive
+
+
+## Дискография
+
+### "Age Of Impact" 1998, Progressive
+
+1. Fate Speaks
+2. Fading Fast
+3. No Returning
+4. Time Enough
+5. Last Call
+
+### "Raising The Mamoth" 2002, Progressive
+
+1. Raising the Mammoth 1
+2. Raising the Mammoth 2
+3. Gigantipithicus
+
 
 ## Отношения с другими группами
 

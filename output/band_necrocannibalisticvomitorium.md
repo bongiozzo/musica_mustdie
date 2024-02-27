@@ -1,6 +1,9 @@
 # Necrocannibalistic Vomitorium
 
-Дискография
+Death-grind from Ukraine
+
+## Дискография
+
 
 ## Отношения с другими группами
 

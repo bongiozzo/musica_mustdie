@@ -1,7 +1,26 @@
 # Virulence
 
-Дискография
-"A Conflict Scenario" 2001, Techno Death
+
+
+## Дискография
+
+### "A Conflict Scenario" 2001, Techno Death
+
+1. Entrance
+2. Reptilian Triangle
+3. Painting
+4. Texture Shock
+5. Evolutionary Masquerade
+6. Cementing With Introspection
+7. Pipeline Dialogue
+8. Your Own Palestine
+
+
+Chris Danecek - voice
+Nick Peyer - guitar
+Dave Sheaffer - bass
+Dan Meath - drums 
+
 
 ## Отношения с другими группами
 

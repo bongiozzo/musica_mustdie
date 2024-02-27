@@ -1,10 +1,56 @@
 # Dismal
 
-Дискография
-"Our Sad Saga" 1996, Gothic
-"Fiaba Lacrimevole" 1998, Gothic
-"Dionisiaca (mcd)" 2001, Gothic
-"Rubino Liquido - Three Scarlet Drops" 2003, Gothic
+
+
+## Дискография
+
+### "Our Sad Saga" 1996, Gothic
+
+
+
+### "Fiaba Lacrimevole" 1998, Gothic
+
+
+
+### "Dionisiaca (mcd)" 2001, Gothic
+
+
+
+### "Rubino Liquido - Three Scarlet Drops" 2003, Gothic
+
+first drop Nigredo 
+I tre scarlatte stille… 
+II invisible drops (or Lux atque Tenebra) 
+III per Aspera ad Astra 
+IV chemical nature of Rubedo 
+
+second drop Vanitis 
+V Stasi 
+VI Ametistia 
+VII … di lagrima'ntica (a melody from the past) 
+VIII esse "S" 
+
+third drop Dionisiaca 
+a Venere (new version) 
+
+
+
+Bradac (keyboards, synths, piano, programming & rhythm guitar)
+Afelio (voices of howl, dismallian guitars)
+Ae (female vocals)
+
+SESSION MUSICIANS:       
+ Frater Alchemoth Katharian (bass)  		
+ Alessandro Verando (lead guitar)
+
+Orchestra directed by Angelo Corvino
+The Orchestra:
+Violins: Angelo Corvino, Walter Matacera, Giulia S., Nicolas P., Bruno Meyer
+Violas: Alessandro Cipolletta, Anja Haben, Roberto Laiolo, Jenny
+Cellos: Alfredo Giarbella, Federico T., Giulia T.
+
+
+
 
 ## Отношения с другими группами
 

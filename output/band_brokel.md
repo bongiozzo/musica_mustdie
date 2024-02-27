@@ -1,7 +1,20 @@
 # Brokel
 
-Дискография
-"Rebirth of the Unholy" 2008, Death Metal
+
+
+## Дискография
+
+### "Rebirth of the Unholy" 2008, Death Metal
+
+1. Thrones Of Supremacy 04:48
+2. Murderous 04:48
+3. In Baphomet's Possession 04:44
+4. Beside The Gateway Of Hell 04:11
+5. Brutal Dismember Of A Worthless Body 03:35
+6. V.E.N.T. 04:16
+7. Forever Hating your god In Hell's Abattoir (The Night Of The christian's Sacrifice) 06:59
+8. Wrath's Incarnation 05:10 
+
 
 ## Отношения с другими группами
 

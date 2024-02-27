@@ -1,8 +1,34 @@
 # Solace Of Requiem
 
-Дискография
-"Solace Of Requiem" 2004, Death Metal
-"Utopia Reborn" 2006, Death Metal
+
+
+## Дискография
+
+### "Solace Of Requiem" 2004, Death Metal
+
+1. Beyond Grace 04:21  
+2. Trials 04:05  
+3. It Feeds 05:02  
+4. Deceiver 05:11  
+5. Stir No Echo 04:26  
+6. The Ocean North 05:54  
+7. On To Unreal 05:40  
+8. Left Blinded 03:53  
+9. Hell is for those who sleep 03:54  
+10. I Need You 04:42 
+
+### "Utopia Reborn" 2006, Death Metal
+
+1. Theoretics   
+2. Red Sea
+3. Language Of The Gods
+4. Lost - Vapors   
+5. Deceiver   
+6. To Suffer Mortality
+7. Beyond Grace
+8. Your Last Enemy   
+9. Cry Out For Mercy 
+
 
 ## Отношения с другими группами
 

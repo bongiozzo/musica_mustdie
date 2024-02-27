@@ -1,12 +1,134 @@
 # Aeternitas
 
-Дискография
-"Requiem" 2000, Gothic
-"La Danse Macabre" 2004, Gothic
-"Rappacinis Tochter - Gesamtwerk" 2009, Gothic
-"Rappacinis Tochter - Highlights" 2009, Gothic
-"Ethelred (single)" 2014, Gothic
-"House of Usher" 2016, Gothic
+Gothic Metal
+
+## Дискография
+
+### "Requiem" 2000, Gothic
+
+1. Introitus 3.31
+2. Kyrie 1.54
+3. Graduale  4.12
+4. Tractus 3.13
+5. Sequenz   21.44
+   - I. Dies Irae
+   - II.Mors Stupebit
+   - III. Rex Tremendae
+   - IV. Confutatis
+   - V. Lacrymosa
+6. Offertorium 4.30 
+7. Sanctus 2.48
+8. Communio  1.46
+9. Responsorium  4.32
+
+
+
+Alexander Hunzinger (V, G, K, Progr.)
+Anja Malchau (K)
+
+Guests: 
+Andreas Libera (V+B)
+Michael Hahn (G)
+Kornelius Bцttcher (V)
+Anneke Stemmer (Soprano V)
+
+Produced, Mixed and Mastered by Michael Hahn
+Recorded at Rosenquarz Studio 
+
+### "La Danse Macabre" 2004, Gothic
+
+01. Der Erste Prediger
+02. Kaiser & Kaiserin
+03. Kruppel
+04. Edelmann & Edelfrau
+05. Jurist
+06. Nonne
+07. Kardinal
+08. Papst
+09. Abt
+10. Konig
+11. Chorherr
+12. Mutter & kind
+13. Der Zweite Prediger
+
+Alexander Hunzinger - voice
+Doria Theis - soprano
+Birger Hinz - vocals
+Anja Malchau - keyboards
+Thomas Teschner - guitars
+Mirke Lipke - guitars
+Martin Hertz - bass
+
+### "Rappacinis Tochter - Gesamtwerk" 2009, Gothic
+
+ 1. Prolog
+ 2. Ouvertьre
+ 3. Vaters Gebot
+ 4. Das Wiedersehen
+ 5. Schatten der Vergangenheit
+ 6. Garten Serenade
+ 7. Ein neuer Morgen
+ 8. Wer seid Ihr?
+ 9. Ein Mдdchen
+ 10. Tochter des Teufels
+ 11. Der Weg in der Garten
+ 12. Heimliche Begegnung
+ 13. Mein eigenes Leben
+ 14. Das Machtwort
+ 15. Maria
+ 16. Liebe sprengt die Ketten
+ 17. Entr'act
+ 18. Gefдllt euch mein Garten?
+ 19. Mein Lebenswerk
+ 20. Er ist nun dein
+ 21. Kein Traum
+ 22. Ich stehe Fest zu dir
+ 23. Das Gegengift
+ 24. Die Letzte Tat
+ 25. Fьr immer Frei
+ 26. Wahre Liebe
+
+### "Rappacinis Tochter - Highlights" 2009, Gothic
+
+ 1. Ouvertьre (Edit)
+ 2. Vaters Gebot
+ 3. Ein Neuer Morgen
+ 4. Tochter Des Teufels
+ 5. Das Machtwort
+ 6. Maria
+ 7. Liebe Sprengt Die Ketten
+ 8. Mein Lebenswerk
+ 9. Die Letzte Tat
+ 10. Fьr Immer Frei
+ 11. Wahre Liebe
+
+### "Ethelred (single)" 2014, Gothic
+
+1. Ethelred  03:43   
+
+### "House of Usher" 2016, Gothic
+
+1. Le Coeur  01:12  
+2. House of Usher  04:25  
+3. The Prophecy  03:34  
+4. Roderick  03:27 
+5. Madeline  04:03    
+6. Fear  04:04  
+7. Forbidden Love  04:20  
+8. The Haunted Palace  04:09  
+9. Tears  03:37  
+10. Buried Alive  04:03   
+11. Can You Hear the Demons  04:23  
+12. The Fall  04:11   
+13. Falling Star  04:40   
+14. Open Your Eyes  03:24   
+15. Ethelred  03:44  
+
+
+Recorded and mixed at Serpina Studio.
+Vocals produced at Vocalbase.
+Mastered at Wonderlandstudio.
+
 
 ## Отношения с другими группами
 

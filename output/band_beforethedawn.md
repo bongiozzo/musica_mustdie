@@ -1,14 +1,113 @@
 # Before The Dawn
 
-Дискография
-"Gehenna" 2001, Melodic Death Metal
-"My Darkness" 2003, Melodic Death Metal
-"4:17 am" 2004, Melodic Death Metal
-"Deadsong" 2007, Melodic Death Metal
-"Deadlight" 2007, Melodic Death Metal
-"Soundscape Of Silence " 2008, Metal
-"Deathstar Rising" 2011, Metal
-"Rise of the Phoenix" 2012, Metal
+Melancholic gothic melodic death
+
+## Дискография
+
+### "Gehenna" 2001, Melodic Death Metal
+
+1. The Nell   
+2. Gehenna   
+3. Not Divine As Them   
+4. In Fear They Sleep   
+5. Upon The Earth   
+6. Angel
+
+### "My Darkness" 2003, Melodic Death Metal
+
+1. Intro 01:07  
+2. Unbreakable 03:29 
+3. Seraphim 03:20 
+4. My Darkness 04:16 
+5. Take My Pain 04:06 
+6. Father and Son 04:19 
+7. Alone 03:53
+8. Angel 02:45 
+9. Undone 04:05 
+10. Human Hatred 03:54 
+11. 4.16am 04:18
+
+### "4:17 am" 2004, Melodic Death Metal
+
+1. Heaven 04:15 
+2. Seed 04:17  
+3. Dreamer 03:53 
+4. Fade away 04:00
+5. Crush 05:21  
+6. Into you 06:19  
+7. My room 05:17 
+8. The Black 04:34  
+9. Vengeance 04:19 
+10. Hiding 04:33
+
+### "Deadsong" 2007, Melodic Death Metal
+
+1. Deadsong 03:23  
+2. Bitter End (Placebo Cover) 04:21  
+3. Gehenna (New Version) 03:25
+
+### "Deadlight" 2007, Melodic Death Metal
+
+1. Wrath 04:08  
+2. Faithless 03:16  
+3. Fear Me 04:30  
+4. Eternal 04:02  
+5. Morning Sun 04:52  
+6. Deadsong 03:23  
+7. Guardian 04:41  
+8. Star Of Fire 03:18  
+9. Reign Of Fire 03:16  
+10. ... 04:14
+
+Tuomas Saukkonen - Guitar, Dark Vocals 
+Lars Eikind - Bass, Vocals 
+Juho Raiha - Guitar
+
+### "Soundscape Of Silence " 2008, Metal
+
+1. Dying Sun 03:11  
+2. Exile 03:59
+3. Silence 03:01 
+4. Dead Reflection 03:41 
+5. Hide Me 03:30
+6. Fabrication 03:50 
+7. Saviour 03:14  
+8. Monsters 04:50  
+9. Cold 04:09 
+10. Last Song 02:52 
+11. Ignite 
+
+
+### "Deathstar Rising" 2011, Metal
+
+1. The First Snow 01:20  
+2. Winter Within 04:32  
+3. Deathstar 03:31  
+4. Remembrance 03:38  
+5. Unbroken 04:40  
+6. Judgement 04:20  
+7. The Wake 05:07  
+8. Sanctuary 04:52  
+9. Butterfly Effect 03:53  
+10. Wreith 05:16 
+
+
+### "Rise of the Phoenix" 2012, Metal
+
+01. Exordium 1:28 
+02. Pitch-Black Universe 4:44 
+03. Phoenix Rising 4:43 
+04. Cross To Bear 3:30 
+05. Throne Of Ice 6:31 
+06. Perfect Storm 4:43 
+07. Fallen World 4:22 
+08. Eclipse 5:39 
+09. Closure 3:45 
+10. Unbreakable (2012 Version / Bonus) 3:18 
+11. Deliverance (Bonus) 3:27 
+12. Reflection (1999 Demo / Bonus) 5:23
+
+
 
 ## Отношения с другими группами
 

@@ -1,17 +1,135 @@
 # Alkonost
 
-Дискография
-"Songs of the Eternal Oak (demo)" 2000, Black Metal
-"Неведомые земли (demo)" 2001, Folk
-"Spirit Tending to Revolt (demo)" 2001, Black Metal
-"Alkonost" 2002, Black Metal
-"Between The Worlds" 2004, Black Metal
-"Межмирье" 2005, Folk
-"Путь Непройденный" 2006, Folk
-"Песни Вечного Древа" 2007, Folk
-"Каменного Сердца Кровь" 2008, Folk
-"На Крыльях Зова" 2010, Folk
-"Сказки Странствий" 2013, Folk
+Russian Folk-Doom-Black Metal
+
+## Дискография
+
+### "Songs of the Eternal Oak (demo)" 2000, Black Metal
+
+1. years of prophecy
+2. sun shine our land
+3. song of smith (sledge hammer!)
+4. war is closed by us
+5. holyday of fathers
+6. rain of former days
+
+### "Неведомые земли (demo)" 2001, Folk
+
+1. Кровавые травы
+2. Бездна
+3. Лихолетье
+
+### "Spirit Tending to Revolt (demo)" 2001, Black Metal
+
+1. My Last Day
+2. Vortex Of Times
+3. Life On Glory's Blade
+
+### "Alkonost" 2002, Black Metal
+
+1. Years Of Prophecy
+2. Sun Shine Our Land
+3. Song Of The Smiths (Sledge Hammer!)
+4. War Is Closed By Us
+5. Holyday Of Fathers
+6. Rain Of Former Days (short edit)
+7. My Last Day
+8. Vortex Of Times
+9. Life On Glory's Blade
+
+In memory of academician Boris Rybakov
+
+Alkonost are:
+Elk - guitars, back-vocals
+Alex Nightbird - bass, vocals
+Almira - keyboards, back-vocals
+VL - drums, vocals (1998-2001)
+Anton - drums (now)
+Alena - vocals, back-vocals
+
+1-6 songs (album "Songs Of The Eternal Oak")
+were written in autumn 1997,
+recorded in February 1998 - August 1999,
+Mixed in November 1999 - January 2000.
+Recorded and mixed at Unknown Studio.
+Engineered and mixed by Igor Hotko.
+Lyrics by Dm.Pokrov and Alex Nightbird & Mary Swift.
+
+7-9 songs (demo "Spirit Tending To Revolt")
+Recorded & mixed Spring-Autumn 2001
+Recorded at Factory Of Music Studio
+Mixed at Ukhov Stidio
+Engineered and mixed by Vadim Ukhov
+Lyrics by Alex Nightbird & Mary Swift
+
+This CD contains also 2 pc videoclips:
+Years Of Prophecy (2000)
+My Last Day (2001)
+
+All music composed by Alkonost
+
+Artwork by: nata kasatkina
+Layout by: Stoffel
+
+### "Between The Worlds" 2004, Black Metal
+
+1. Bloody Grasses
+2. Nevertimes
+3. The Abyss
+4. Waiting
+5. Eviltimes
+6. Unknown Lands
+7. Before The Epoch Of Twightlight
+8. Мать-тоска
+
+Все песни сочинены группой ALKONOST.
+Тексты Alex Nightbird и Мэри Свифт, кроме "Мать-тоска" (стихи А.К.Толстого).
+Записывалось в студиях радио "Старый город", "Шатлык", "Мир звука"
+(осень 2002 - весна 2004).
+Оформление: Дм.Покрова, Владимира Уракова.
+Фото: Динара Муксинова.
+
+(p) 2004 Союз/MetalAgen
+
+### "Межмирье" 2005, Folk
+
+1. Лихолетье
+2. Безвременье 
+3. Бездна 
+4. Ожидание
+5. Кровавые травы 
+6. Неведомые Земли 
+7. Пред Эпохой Забвенья
+8. Мать-тоска 
+
+### "Путь Непройденный" 2006, Folk
+
+
+
+### "Песни Вечного Древа" 2007, Folk
+
+
+
+### "Каменного Сердца Кровь" 2008, Folk
+
+
+
+### "На Крыльях Зова" 2010, Folk
+
+
+
+### "Сказки Странствий" 2013, Folk
+
+1. Intro
+2. Два меча
+3. Туманы холодных снов
+4. Сказки странствий
+5. Подруга ночь
+6. Земля грёз
+7. Ветры-бури
+8. Одиночество моё
+9. The Eerie (Gods Tower cover)
+
 
 ## Отношения с другими группами
 

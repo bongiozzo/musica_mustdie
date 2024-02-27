@@ -1,20 +1,398 @@
 # Ancient Rites
 
-Дискография
-"Dark Ritual [demo]" 1990, Black Metal
-"Evil Prevails 7"" 1992, Death Metal
-"The Diabolic Serenades" 1994, Death Metal
-"Blasfemia Eternal" 1996, Black Metal
-"The Diabolic Serenades [re-issue]" 1996, Death Metal
-"Fatherland" 1998, Black Metal
-"Dark Ritual [Picture 12"]" 1999, Black Metal
-"The First Decade 1989-1999" 1999, Black Metal
-"Dim Carcosa" 2001, Viking Metal
-"Scenes of Splendour [Video CDR]" 2001, Black Metal
-"And the Hordes Stood as One (live)" 2003, Black Metal
-"And the Hordes Stood as One [DVD]" 2003, Black Metal
-"Rubicon" 2006, Black Metal
-"Laguz" 2015, Black Metal
+Viking from Belgium
+
+## Дискография
+
+### "Dark Ritual [demo]" 1990, Black Metal
+
+01. Intro (Dark Ritual)
+02. Eternal Blasphemy
+03. Fallen Angel
+04. From Beyond the Grave
+05. Not Anymore
+06. Outro (Tribute to Insanity)
+
+
+Format: Tape
+Label: none
+Line-up: Gunther (bass/vocals) - Stefan (drums) - Philip (guitars) - Johan (guitars)
+Studio: Seagull Studio, Belgium
+Producer: Rudy
+Additional Musicians:
+Louis (keyboards on "Dark Ritual" and "Tribute to Insanity")
+
+### "Evil Prevails 7"" 1992, Death Metal
+
+01. G&ouml;tterd&auml;mmerung (Intro)
+02. Longing for the Ancient Kingdom
+03. Obscurity Reigns (Fields of Flanders)
+04. Evil Prevails
+05. Black Plague
+
+
+Format: 7" Vinyl
+Label: Fallen Angel Records (Belgium)
+Line-up: Gunther (bass/vocals) - Walter (drums) - Bart (guitars) - Pascal (guitars)
+Studio: Studio 20 - Tienen, Belgium
+Producers: Louis and Thierry
+
+### "The Diabolic Serenades" 1994, Death Metal
+
+01. (Intro) Infant Sacrifices to Baalberith
+02. Crucifixion Justified (Roman Supremacy)
+03. Satanic Rejoice
+04. Obscurity Reigns (Field of Flanders)
+05. Death Messiah
+06. Land of Frost and Despair
+07. Assyrian Empire
+08. Longing for the Ancient Kingdom
+09 - Morbid Glory (Gilles de Rais 1404-1440)
+10. Ritual Slayings (Goat Worship Pure)
+11. Evil Prevails
+12. Last Rites / Echoes of Melancholy (Outro)
+
+
+Format: CD, LP, Tape
+Label: After Dark Records (Belgium)
+
+Gunther Theys - Bass, Vocals
+Bart Vandereycken - Guitars
+Walter Van Cortenberg - Drums
+Louis Jans -Kkeyboards (additional musician)
+
+All Music & Lyrics By ANCIENT RITES
+Produced by ANCIENT RITES
+Engineered by Louis Tans
+Recorded At Studio 20 - Teinen
+
+&copy; 1995 AFTER DARK Records
+
+### "Blasfemia Eternal" 1996, Black Metal
+
+1. Blasfemia Eternal (Intro)
+2. Total Misanthropia
+3. Garden Of Delights (Eva)
+4. Quest For Blood (Le Vampire)
+5. Blood Of Christ (Mohammed Wept)
+6. Epebos Aionia
+7. (Het Verdronken Land Van) Saeftinge
+8. Shades Of Eternal Battlefields (Our Empire Fell)
+9. Vae Victis
+10.Fallen Angel
+
+Music Written By B.Vandereycken / W.Van Cortenberg
+Lyrics Written By G.Theys
+Recorded & Mixed at Studio 20, Tienen.
+Produced By ANCIENT RITES & Louis Jans
+Engineered By Louis Jans
+
+Bart Vandereycken - Guitars
+Walter Van Cortenberg - Drums
+Gunther Theys - Bass, Vocals
+
+&copy; 1996 MASCOT Music //M 7017
+
+### "The Diabolic Serenades [re-issue]" 1996, Death Metal
+
+01. (Intro) Infant Sacrifices to Baalberith
+02. Crucifixion Justified (Roman Supremacy)
+03. Satanic Rejoice
+04. Obscurity Reigns (Field of Flanders)
+05. Death Messiah
+06. Land of Frost and Despair
+07. Assyrian Empire
+08. Longing for the Ancient Kingdom
+09. Morbid Glory (Gilles de Rais 1404-1440)
+10. Ritual Slayings (Goat Worship Pure)
+11. Evil Prevails
+12. Last Rites / Echoes of Melancholy (Outro)
+13 - From Beyond the Grave (Part 2) * CD-Bonus
+
+
+Format: CD
+Label: Mascot Records (Holland)
+Line-up: Gunther Theys (bass/vocals) - Walter Van
+Cortenberg (drums) - Bart Vandereycken (guitars)
+Studio: Studio 20 - Tienen, Belgium
+Storm Studio - Athens, Greece ("From Beyond the Grave (Part 2)")
+Producers: Ancient Rites
+Engineer: Louis Jans
+Re-mastering: Tapeless Studio - Amsterdam, Holland
+Additional Musicians:
+Louis Jans (keyboards)
+Magus Wampyr Daoloth (keyboards/organ on "From Beyond the Grave (Part 2)")
+
+### "Fatherland" 1998, Black Metal
+
+1. Avondland
+2. Mother Europe
+3. Aris
+4. Fatherland
+5. Season's Change (Solstice)
+6. 13th Of October 1307
+7. Dying In A Moment Of Splendour
+8. Rise And Fall (Anno Satana)
+9. The Seducer
+10.Cain
+
+All music by Ancient Rites
+Except "Cain" by Jan "Цrkki" Yrlund
+All lyrics by Gunther Theys
+All arrangements by Ancient Rites
+Orchestra by Jan & Oliver
+
+Recorded in studio "Spacelab", Tцnisvorst (GER) between 14.2- 24.3.1998
+Engineered and mixed by Christian "Moschus" Moos
+Produced by Oliver Philipps & Christian Moos & Ancient Rites
+Mastered by Peter Brussee at Q-point, Hilversum (NL) 
+
+Additional musicians:
+Mika Luttinen - additional vocals on "The Seducer (Fallen Angel)
+Ellen Van Wauwe - flute on "13th Of October 1307"
+Oliver Phillipps - keyboards
+
+Layout by Jan Yrlund
+Photos by Siegie
+
+
+Walter Van Cortenberg uses exclusively 
+Adams, Paiste 
+
+© Mascot Music Productions & Publishing, 1998
+Catalogue Number: M70352
+
+### "Dark Ritual [Picture 12"]" 1999, Black Metal
+
+01. Intro (Dark Ritual)
+02. Eternal Blasphemy
+03. Fallen Angel
+04. From Beyond the Grave
+05. Not Anymore
+06. Outro (Tribute to Insanity)
+
+
+Format: 12" Vinyl
+Label: Painkiller Records (Belgium)
+Line-up: Gunther (bass/vocals) - Stefan (drums) -
+Philip (guitars) - Johan (guitars)
+Studio: Seagull Studio, Belgium
+Producer: Rudy
+Additional Musicians:
+Louis (keyboards on "Dark Ritual" and "Tribute to Insanity")
+
+### "The First Decade 1989-1999" 1999, Black Metal
+
+01. From Beyond the Grave ('90 demo)
+02. Infant Sacrifices to Baalberith ('94)
+03. Death Messiah ('94)
+04. Longing for the Ancient Kingdom ('94)
+05. Land of Frost and Despair ('94)
+06. Evil Prevails ('94)
+07. Last Rites / Echoes of Melancholy ('94)
+08. Total Misantropia ('96)
+09. Blood of Christ (Mohammed Wept) ('96)
+10. Fallen Angel (outro) ('96)
+11. (Het Verdronken Land van) Saeftinge ('96)
+12. Quest for Blood (Le Vampire) ('96)
+13. Avondland ('98)
+14. Mother Europe ('98)
+15. Aris ('98)
+16. Season's Change ('98)
+17. Fatherland ('98)
+18. Cain ('98)
+
+
+Format: CD
+Label: Mascot Records (Holland)
+Line-ups:
+Gunther (bass/vocals) - Stefan (drums) - Philip (guitars)
+- Johan (guitars) (track 1)
+Gunther Theys (bass/vocals) - Walter Van Cortenberg
+(drums) - Bart Vandereycken (guitars) (tracks 2-12)
+Gunther Theys (bass/vocals) - Walter Van Cortenberg
+(drums) - Jan "Цrkki" Yrlund (guitars) - Erik Sprooten
+(guitars) (tracks 13-18)
+Additional Musicians:
+Louis Jans (keyboards)
+Ellen Van Wauwe (flute)
+Oliver Philipps (keyboards)
+
+### "Dim Carcosa" 2001, Viking Metal
+
+1 - The Return
+2 - Exile (Les Litanies de Satan)
+3 - Victory or Valhalla (Last Man Standing)
+4 - ...and The Horns called for War
+5 - North Sea
+6 - Gцtterdдmmerung (Twilight of the Gods)
+7 - (Ode to Ancient) Europa
+8 - Remembrance
+9 - Lindisfarne (Anno 793)
+10 - On Golden Fields (De Leeuwen Dansen)
+11 - Dim Carcosa
+
+
+
+Line-up: Gunther (vocs, bass) - Walter (drums) - Erik (guitar) - Jan (guitar) - Domingo (keys)
+Studio: Spacelab - Tцnisvorst, Germany
+Producers: Oliver Phillips & Christian "Moschus" Moos
+Coproducers: Jan Yrlund & Ancient Rites
+Engineer:: Christian "Moschus" Moos
+Mastering: E.M.C - Brecherfield, Germany
+Additional Muscicians: Oliver Philipps (vocs, piano), Ciara (vocs) 
+
+
+### "Scenes of Splendour [Video CDR]" 2001, Black Metal
+
+<i>Descending into Darkness:</i>
+<small>Live Wertheim, Germany - 23 January 1994</small>
+01. Assyrian Empire
+02. Satanic Rejoice
+03. Obscurity Reigns (Fields of Flanders)
+04. Longing for the Ancient Kingdom
+05. Crucifixion Justified
+06. Death Messiah
+07. Land of Frost and Despair
+08. From Beyond the Grave
+09. Morbid Glory (Gilles de Rais 1404-1440)
+
+<i>At the Gates of Hell:</i>
+<small>Live Zaal Vinea, Veerle, Belgium - 01 May 1998</small>
+01. Total Misanthropia
+02. Quest for Blood
+03. Blood of Christ (Mohammed Wept)
+04. (Het Verdronken Land van) Saeftinge
+
+<i>Dynamo Open Air:</i>
+Interview with Gunther and Walter
+alternated with excerpts of the gig.
+
+
+Format: CDR
+Label: none
+
+<i>Descending into Darkness</i>
+Venue: Wertheim, Germany
+Line-up: Gunther (bass/vocals) - Bart (guitars) - Walter (drums)
+Production: Claire Angelus Nigra Entertainments
+Director: Matt Vain
+
+<i>At the Gates of Hell</i>
+Venue: Zaal Vinea, Veerle, Belgium
+Line-up: Gunther (bass/vocals) - Erik (guitars) - Jan (guitars) - Walter (drums)
+
+<i>Dynamo Open Air</i>
+Venue: Dynamo Open Air, The Netherlands
+Line-up: Gunther (bass/vocals) - Erik (guitars) - Jan (guitars) - Domingo (keyboards) - Walter (drums)
+Production: ROB TV
+
+### "And the Hordes Stood as One (live)" 2003, Black Metal
+
+01. The Return
+02. Exile (Les Litanies de Satan)
+03. Victory or Valhalla (Last Man Standing)
+04. Total Misanthropia
+05. Aris
+06. ...And the Horns Called for War
+07. North Sea
+08. Blood of Christ
+09. Longing for the Ancient Kingdom
+10. Gotterdammerung (Twilight of the Gods)
+11. (Ode to Ancient) Europa
+12. (Het Verdronken Land van) Saeftinge
+13. On Golden Fields (De Leeuwen Dansen)
+14. Mother Europe
+15. Evil Prevails
+16. Fatherland
+
+
+Format: CD, 2LP
+Label: Hammerheart Records (Holland)
+
+Line-up:
+- Gunther Theys (bass/vocals)
+- Jan "Orkki" Yrlund (guitar)
+- Erik Sprooten (guitar)
+- Davy Wouters (keyboards)
+- Walter Van Cortenberg (drums)
+
+Venue: Biebob, Vosselaar, Belgium
+Post-production: Spacelab - Oedt, Germany
+Producers: Oliver Phillips, Christian Moos & Ancient Rites
+Engineer: Christian Moos
+Mastering: Eroc at E.M.R. - Breckerfeld, Germany
+
+### "And the Hordes Stood as One [DVD]" 2003, Black Metal
+
+<i>And the Hordes Stood as One:</i>
+<small>Live Biebob, Vosselaar, Belgium - 14 June 2002</small>
+01. The Return
+02. Exile (Les litanies de Satan)
+03. Victory or Valhalla (Last Man Standing)
+04. Total Misanthropia
+05. Aris
+06. And the Horns Called for War
+07. North Sea
+08. Infant Sacrifices to Baalberith
+09. Blood of Christ
+10. Longing for the Ancient Kingdom
+11. Gotterdammerung (Twilight of the Gods)
+12. Ode to Ancient Europa
+13. (Het Verdronken Land van) Saeftinge
+14. On Golden Fields (De Leeuwen Dansen)
+15. Mother Europe
+16. Evil Prevails
+17. Fatherland
+18. Dim Carcosa
+
+<i>Extra DVD Features:</i>
+"Victory or Valhala" video
+"And the Horns Called for War" video
+Documentary: Tour in Finland 2000
+Video Collage from Ancient Times
+Picture Gallery
+
+
+Format: DVD-9
+Picture Format: PAL 4:3
+Region Code: All
+Audio: 5.1 (Dolby Surround)
+Venue: Biebob, Vosselaar, Belgium
+Line-up: Gunther (bass/vocals) - Erik (guitars) - Jan (guitars) - Davy (keyboards) - Walter (drums)
+Production: Jouko Kulppi, Sound & Picture
+Director: Jari Koskela
+
+### "Rubicon" 2006, Black Metal
+
+01. Crusade
+02. Templar
+03. Mithras
+04. Thermopylae
+05. Rubicon
+06. Invictus
+07. Ypres
+08. Galilean
+09. Cheruscan
+10. Brabantia
+
+### "Laguz" 2015, Black Metal
+
+1. Golden Path to Samarkand  01:47    
+2. Carthago Delenda Est  05:29   
+3. Under the Sign of Laguz 05:17    
+4. Von Gott entfernt (Bij nacht en ontij)  04:57    
+5. Apostata (Imperator Fidelis)  06:07    
+6. Legio V Alaudae (Fifth Larks Legion)  05:06    
+7. Mind Unconquered  04:13    
+8. Umbra Sumus (We Are Shadows)  05:59    
+9. Frankenland  04:15    
+10. Fatum (Ill Fate/Noodlot)  02:44    
+
+Recorded at Spacelab Studio, Grefrath, Germany.
+Mastered at Eroc’s Mastering Ranch.
+
+
 
 ## Отношения с другими группами
 

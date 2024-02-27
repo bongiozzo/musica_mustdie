@@ -1,7 +1,23 @@
 # Metastasis
 
-Дискография
-"From The Snow The Executioner Rises Again" 2011, Thrash
+
+
+## Дискография
+
+### "From The Snow The Executioner Rises Again" 2011, Thrash
+
+1. Do My Will		 
+2. Corpse Profanors		 
+3. Executioner's Rise		 
+4. The Light is Coming		 
+5. Extreme Unction		 
+6. Nuclear Winter (Sodom Cover)		 
+7. Deep's Of Mind		 
+8. Sentenced To Electrocution		 
+9. Under The Snow		 
+10. Neuronal Killing Progress		 
+11. Metastasis
+
 
 ## Отношения с другими группами
 

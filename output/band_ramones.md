@@ -1,13 +1,134 @@
 # Ramones
 
-Дискография
-"Rocket To Russia" 1977, Punk
-"Road To Ruin" 1978, Punk
-"Animal Boy" 1986, Punk
-"Halfway To Sanity" 1987, Punk
-"Brain Drain" 1989, Punk
-"Mondo Bizarro" 1992, Punk
-"Adios Amigos" 1995, Punk
+Classic American Punk
+
+## Дискография
+
+### "Rocket To Russia" 1977, Punk
+
+1.  Cretin Hop
+2.  Rockaway Beach
+3.  Her Today, Gone Tomorrow
+4.  Locket
+5.  I Don't Care
+6.  Sheena Is A Punk Rocker
+7.  We're A Happy Family
+8.  Teenage Lobotomy
+9.  Do You Wanna Dance ?
+10.I Wanna Be Well
+11.I Can't Give You Anything
+12.Ramona
+13.Surfin' Bird
+14.Why Is It Always This Way ?
+
+(P)c 1977
+
+### "Road To Ruin" 1978, Punk
+
+1.  I Just Want To Have Something To Do
+2.  I Wanted Everything
+3.  Don't Come Close
+4.  I Don't Want You
+5.  Needles And Pins
+6.  I'm Against It
+7.  I Wanna Be Sedated
+8.  Go Mental
+9.  Questioningly
+10.She's The One
+11.Bad Brain
+12.It's A Long Way Back
+
+(P)c 1978
+
+### "Animal Boy" 1986, Punk
+
+1.  Somebody Put Something In My Drink
+2.  Animal Boy
+3.  Love Kills
+4.  Apeman Hip
+5.  She Belongs To Me
+6.  Grummy Stuff
+7.  My Brain Is Hanging Upside Down
+8.  Mental Hell
+9.  Fat That Rat
+10.Freak Of Nature
+11.Hair Of The Dog
+12.Something To Believe In
+
+(P)c 1986
+
+### "Halfway To Sanity" 1987, Punk
+
+1.  I Wanna Live
+2.  Bop 'Till You're Drop
+3.  Garden Of Serenity
+4.  Weasel Face
+5.  Go Lil' Camaro Go
+6.  I Know Better Now
+7.  Death Of Me
+8.  I Lost My Mind
+9.  A Real Cool Time
+10.I'm Not Jesus
+11.Bye Bye Baby
+12.Worm Man
+
+(P)c 1987
+
+### "Brain Drain" 1989, Punk
+
+1.  I Believe In Miracles
+2.  Zero Zero UFO
+3.  Don't Bust My Chops
+4.  Punishment Fits The Crime
+5.  All Screwed Up
+6.  Palisades Park
+7.  Pet Sematary
+8.  Learn To Listen
+9.  Can't Get You Outta My Mind
+10.Ignorance Is Bliss
+11.Come Back, Baby
+12.Merry Christmas ( I Don't Want To Fight Tonight)
+
+(P)c 1989
+
+### "Mondo Bizarro" 1992, Punk
+
+1.  Censorshit
+2.  The Job That Ate My Brain
+3.  Poison Heart
+4.  Anxiety
+5.  Strength To Endure
+6.  It's Gonna Be Alright
+7.  Take It As It Comes
+8.  Main Man
+9.  Tomorrow She Goes Away
+10.I Won't Let It Happens
+11.Cabbies On Crack
+12.Heidi Is A Headcase
+13.Touring
+
+(P)c 1992
+
+### "Adios Amigos" 1995, Punk
+
+1. I Don't Want To Grow Up
+2. Makin Monsters For My Friends
+3. Its Not For Me To Know
+4. The Crusher
+5. Life's A Gas
+6. Take The Pain Away
+7. Come Out & Play
+8. I Love You
+9. Cretin Family
+10.Scatter Gun
+11.Got A Lot To Say
+12.The Tolks To Rainbows
+13.Born To Die In Berlin
+
+Produced By Daniel Rey.
+
+(P)&(C) 1995 EMI Records
+
 
 ## Отношения с другими группами
 

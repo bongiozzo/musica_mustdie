@@ -1,7 +1,22 @@
 # Fuck Shit Up
 
-Дискография
-"Generation Of Defecation" 2003, Grindcore
+Porno Grind Core from Nahodka
+
+## Дискография
+
+### "Generation Of Defecation" 2003, Grindcore
+
+1. Global Deformity (intro)
+2. Generation Of Defecation
+3. Self-Delusion Patriots
+4. Digitalized Mind's Blast
+5. People = Conceited Dust
+6. Corged By Lie
+7. Fucked To Death
+8. Carnal
+9. Reality / Roots / Chaos
+10. Solnishko
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,44 @@
 # Disincarnate
 
-Дискография
-"Dreams Of The Carrion Kind" 1993, Death Metal
+ex-Death, Obituary, Cancer
+
+## Дискография
+
+### "Dreams Of The Carrion Kind" 1993, Death Metal
+
+1. De Profundis (Intro)
+2. Stench Of Paradise Burning
+3. Beyond The Flesh 1)
+4. In Sufferance
+5. Monarch Of The Sleeping Marches 2)
+6. Soul Erosion
+7. Entranced
+8. Confine Of Shadows
+9. Deadspawn
+10.Sea Of Tears
+11.Immemorial Dream (Outro)
+
+ Bryan Cegon - Vocals
+ James Murphy - Lead,Rhythm & Acoustic Guitars
+ Jason Carman - Rhythm Guitar
+ Tommy Viator - Drums
+
+Bass Guitar On This Album Performed By James Murphy.
+Guest Backing Vocals On 1) Performed By John Walker
+Of CANCER.
+Guest Trade-Off Vocals On 2) Performed By Aaron
+Stainthorpe Of MY DYING BRIDE.
+Keyboard Samples Courtesy Of Pete "Pee Wee" Coleman.
+Produced & Mixed By Colin Richardson.
+Engineered By Pete Coleman.
+Recorded At Windings, N. Wales,UK.
+Mixed At Amazon Studios,Liverpool,UK.
+Mastered By Chris Gehringer At The Hit Factory DMS,New York,NY.
+A&R : Monte Connor.
+
+(p) 1993 THE ALL BLACKS B.V.
+(c) 1993 THE ALL BLACKS B.V.
+
 
 ## Отношения с другими группами
 

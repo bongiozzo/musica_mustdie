@@ -1,21 +1,312 @@
 # Unleashed
 
-Дискография
-"And The Laughter Has Died... (EP)" 1991, Death Metal
-"Where No LIfe Dwells" 1991, Death Metal
-"Shadows In The Deep" 1992, Death Metal
-"Live In Vienna' 93" 1993, Death Metal
-"Across The Open Sea" 1993, Death Metal
-"Victory" 1995, Death Metal
-"Eastern Blood, Hail To Poland" 1996, Death Metal
-"Warrior" 1997, Death Metal
-"Hell's Unleashed" 2002, Death Metal
-"Sworn Allegiance" 2004, Death Metal
-"Midvinterblot" 2006, Death Metal
-"Hammer Battalion" 2008, Death Metal
-"As Yggdrasil Trembles" 2010, Death Metal
-"Odalheim" 2012, Death Metal
-"Dawn Of The Nine" 2015, Death Metal
+
+
+## Дискография
+
+### "And The Laughter Has Died... (EP)" 1991, Death Metal
+
+1. The Dark One
+2. Where Life Ends
+
+ Johnny - Vocals & Bass
+ Fredrik - Guitar
+ Thomas - Rhythm Guitar
+ Anders - Drums
+
+All Guitars On This Recordings Played By Fredrik.
+Recorded At Nobel Studios Bielefeld,Dec. 1990 
+In Germany.
+
+(p)&(c) 1991 CENTURY MEDIA Records
+
+### "Where No LIfe Dwells" 1991, Death Metal
+
+1. Where No Life Dwells
+2. Dead Forever
+3. Before The Creation Of Time
+4. For They Shall Be Slaim
+5. If They Had Eyes (The Watchers Of The Earth)
+6. The Dark One
+7. Into Glory Ride
+8. ...And The Laughter Has Died
+9. Unleashed
+10.Violent Exstasy
+11.Where Life Ends
+
+ Johnny - Vocals & Bass
+ Frederik - Guitars
+ Anders - Drums
+ Tomas - Guitars
+
+Music & Lyrics By Johnny Hedlund.
+Produced By Waldemar Sorychta.
+Engineered By Siggi Bemm.
+Recorded At Woodhouse Studios At Dortmund,
+Germany In April 1991.
+Executive Producer: Robert Kampf.
+Photography By Jens Schmidt.
+
+(p)&(c) 1991 CENTURY MEDIA Records
+
+### "Shadows In The Deep" 1992, Death Metal
+
+1. The Final Silence
+2. The Immortals
+3. A Life Beyond
+4. Shadows In The Deep
+5. Countess Bathory *
+6. Never Ending Hate
+7. Onward To Countless Battles
+8. Crush The Skull
+9. Bloodbath
+10.Land Of Ice
+
+ Johnny - Vocals & Bass
+ Frederik - Guitars
+ Thomas - Rhythm Guitar
+ Anders - Drums
+
+All Songs By UNLEASHED.
+Except Of * By VENOM.
+Produced By UNLEASHED & W.Sorychta.
+Recorded At Woodhouse Studio In Dortmund,April 1992.
+
+(p)&(c) 1992 CENTURY MEDIA Records
+
+### "Live In Vienna' 93" 1993, Death Metal
+
+1. The Final Silence
+2. Bloodbath
+3. Before The Creation Of Time
+4. Shadows In The Deep
+5. Never Ending Hate
+6. If They Had Eyes
+7. Open Wide
+8. Onward Into Counless Battles
+9. Where No Life Dwells
+10.Dead Forever
+11.Counless Bathory
+12.The Immortals
+13.Into Glory Ride
+14.Breaking The Law
+
+Recorded Live In Vienna On 19th January 1993
+
+(p)&(c) 1993 CENTURY MEDIA Records
+
+### "Across The Open Sea" 1993, Death Metal
+
+1. To Asgaard We Fly
+2. Open Wide
+3. I Am God
+4. The One Insane
+5. Across The Open Sea
+6. In The Northern Lands
+7. Forever Goodbye (2045)
+8. Execute Them All
+9. Captured
+10.Breaking The Law *
+11.The General
+
+* By G.Tipton,R.Halford,K.K.Downing
+
+Produced By UNLEASHED.
+Engineered By Fredrik Andersson.
+Recorded At EMI Studios In Stockholm, Sweden In July 1993.
+
+(P)&(C) 1993 CENTURY MEDIA Records
+
+### "Victory" 1995, Death Metal
+
+1. Victims Of War
+2. Legal Rapes
+3. Hail The New Age
+4. The Defender
+5. In The Name Of God
+6. Precious Land
+7. Berserk
+8. Scream For Aggression
+9. Against The World
+10.Revenge
+
+ Johnny - Vocals, Bass
+ Fredrik - Lead & Rhythm Guitars
+ Tomas - Rhythm Guitars
+ Anders - Drums
+
+All Songs Written By UNLEASHED
+Produced By UNLEASHED
+Engineered By Fredrik Andersson
+Recorded At EMI Studios In Stockholm, Sweden
+
+(p)&(c) 1995 CENTURY MEDIA Records
+
+### "Eastern Blood, Hail To Poland" 1996, Death Metal
+
+1.  Execute Them All
+2.  The Immortals
+3.  Revenge
+4.  The Defender
+5.  In The Name Of God
+6.  Against The World
+7.  Victims Of War
+8.  Shadows In The Deep
+9.  Before The Creation Of Time
+10.Berserkr
+11.Into Glory Ride
+12.Dead Forever
+13.If They Had Eyes
+14.For They Shall Be Slain
+15.Unleashed
+16.The Immortals
+17.The Dark One
+18.Into Glory Ride
+19.Shadows In The Deep
+20.Violent Exstasy
+21.Before The Creation Of Time
+
+ Johnny - Vocals, Bass
+ Fredrik - Lead & Rhythm Guitars
+ Tomas - Rhythm Guitars
+ Anders - Drums
+
+All Songs Written By UNLEASHED
+
+Songs 1-11 Recorded Live In Katovice (Poland), November 24th 1995.
+Songs 12-21 Recorded Live In Cologne (Germany), April 24th 1992.
+
+(P)(C) 1996 CENTURY MEDIA Records
+
+### "Warrior" 1997, Death Metal
+
+1. WARMACHINE
+2. IN HELLFIRE
+3. MEDIAWHORE
+4. DOWN UNDER GROUND
+5. MY LIFE FOR YOU
+6. DEATH METAL VICTORY
+7. HERO OF THE LAND
+8. L™NGT NID (Instrumental)
+9. BORN DERANGED
+10.I HAVE RETURNED
+11.RAGNAR™K
+12. YOUR PAIN, MY GAIN
+13.THE END
+
+Anders - drums
+Johnny - bass and vocals
+Tomas - rhythm guitar
+Fredrik - lead and rhuthm guitar
+
+Recorded at EMI STUDIOS in Stockholm, Sweden in March 1997.
+Produced by UNLEASHED & Fredrik Andresson
+Engineered by Fredrik Andersson
+Mastered by Clas Persson at CRP Recording
+All arrangements by UNLEASHED
+Photo by Ola Bergman
+Lay-out & artwork by Jonas / EXIT 5
+Composition Rickard Albinsson
+
+
+### "Hell's Unleashed" 2002, Death Metal
+
+1. Don't Want To Be Born  
+2. Hell's Unleashed  
+3. Demoneater  
+4. Fly Raven Fly  
+5. Mrs. Minister  
+6. Joy In The Sun  
+7. Demons Rejoice  
+8. We'll Come For You  
+9. Triggerman  
+10. Dissection Leftovers  
+11. Peace, Piece By Piece  
+12. Burnt Alive  
+13. Your Head Is Mine  
+14. Made In Hell  
+
+
+### "Sworn Allegiance" 2004, Death Metal
+
+01. Winterland
+02. Destruction (Of The Race Of Men)
+03. Only The Dead
+04. The Longships Are Coming
+05. Helljoy
+06. Insane For Blood
+07. I Bring You Death
+08. Attack!
+09. CEO
+10. One Night In Nazareth
+11. Praised Be The Lord
+12. Metalheads
+13. To Miklagеrd
+14. Long Live The Beast
+
+### "Midvinterblot" 2006, Death Metal
+
+
+
+### "Hammer Battalion" 2008, Death Metal
+
+1. The Greatest Of All Lies 03:22  
+2. Long Before Winter's Call 03:51  
+3. Your Children Will Burn 03:57  
+4. Hammer Battalion 03:29  
+5. This Day Belongs To Me 02:38  
+6. Marching Off To War 03:50  
+7. Entering The Hall Of The Slain 03:33  
+8. Black Horizon 03:54  
+9. Carved In Stone 03:19  
+10. Warriors Of Midgard 03:35  
+11. Midsummer Solstice 03:06  
+12. Home Of The Brave 02:51  
+13. I Want You Dead 04:03 
+
+
+### "As Yggdrasil Trembles" 2010, Death Metal
+
+1. Courage Today, Victory Tomorrow! 03:54
+2. So It Begins 03:24
+3. As Yggdrasil Trembles 04:52
+4. Wir Kapitulieren Niemals 03:26
+5. This Time We Fight 03:02
+6. Master of the Ancient Art 03:48
+7. Chief Einherjar 03:41
+8. Return Fire 04:04 
+9. Far Beyond Hell 03:18
+10. Dead to Me 02:47 
+11. Yahweh and the Chosen Ones 03:52
+12. Cannibalistic Epidemic Continues 04:59 
+
+### "Odalheim" 2012, Death Metal
+
+01. Fimbulwinter 04:11 
+02. Odalheim 04:29 
+03. White Christ 03:12 
+04. The Hour Of Defeat 03:11 
+05. Gathering The Battalions 03:06 
+06. Vinland 03:58 
+07. Rise Of The Maya Warriors 02:41 
+08. By Celtic And British Shores 03:49 
+09. The Soil Of Our Fathers 04:55 
+10. Germania 03:34 
+11. The Great Battle Of Odalheim 05:52
+
+### "Dawn Of The Nine" 2015, Death Metal
+
+01. A New Day Will Rise
+02. They Came To Die
+03. Defenders Of Midgard
+04. Where Is Your God Now?
+05. The Bolt Thrower
+06. Let The Hammer Fly
+07. Where Churches Once Burned
+08. Land Of The Thousand Lakes
+09. Dawn Of The Nine
+10. Welcome The Son Of Thor!
+
 
 ## Отношения с другими группами
 

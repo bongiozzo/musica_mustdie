@@ -1,8 +1,44 @@
 # Victor Smolski
 
-Дискография
-"The Heretic" 2000, Heavy Metal
-"Majesty & Passion" 2004, Heavy Metal
+Guitarist from Rage. Neo symphonic.
+
+## Дискография
+
+### "The Heretic" 2000, Heavy Metal
+
+Baptism Of Fire 
+The Testamony 
+Hex Of The Six Strings 
+The Necromancer 
+Witches Hammer 
+The Inquisitors Dream 
+The Heretic 
+
+
+### "Majesty & Passion" 2004, Heavy Metal
+
+Majesty & Passion 
+Suite 1: 
+- Covrante 
+- Gavotte 
+- Forlane 
+- Menuet 
+Concert for Violin & Oboe with Orchestra, chapter 3 
+Suite 2: 
+- Bourree 
+- Menuet 
+Suite 4: Sarabande 
+Concert for 2 Violins with Orchestra: 
+- Chapter 1 
+- Chapter 2 
+- Chapter 3 
+Бонусы (c EP “Destiny”): 
+- Rocker Rider 
+- Day Without Your Love 
+- Destiny 
+- Longing 
+(Dedicated To My Family)
+
 
 ## Отношения с другими группами
 

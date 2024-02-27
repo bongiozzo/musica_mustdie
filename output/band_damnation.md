@@ -1,8 +1,31 @@
 # Damnation
 
-Дискография
-"Resist" 2000, Death Metal
-"'Ressurection Of Azarath'" 2003, Death Metal
+death-metal
+
+## Дискография
+
+### "Resist" 2000, Death Metal
+
+
+
+### "'Ressurection Of Azarath'" 2003, Death Metal
+
+01. WHO YOUR GOD IS
+02. SON OF FIRE
+03. REBEL SOULS
+04. AZARATH (WATCHING IN DARKNESS)
+05. FROM THE ABYSSLAND
+06. DELIVERANCE
+07. MIGHT RETURNS
+08. CORONATION
+09. SPELL MASTER
+10. SWORN TO THE DARKSIDE
+11. NUCLEUS OF DARKNESS
+12. NIGHT OF BLASPHEMY
+13. BEYOND THE GATE
+14. A MANSION IN DARKNESS
+15. BLEED FOR THE DEVIL
+
 
 ## Отношения с другими группами
 

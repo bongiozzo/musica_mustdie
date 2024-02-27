@@ -1,7 +1,13 @@
 # Ocultan
 
-Дискография
-"Bellicus Profanus" 2000, Black Metal
+примитивный Black-metal
+
+## Дискография
+
+### "Bellicus Profanus" 2000, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

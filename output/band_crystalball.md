@@ -1,15 +1,188 @@
 # Crystal Ball
 
-Дискография
-"In the Beginning" 1999, Hard Rock
-"Hard Impact" 2000, Hard Rock
-"Virtual Empire" 2002, Hard Rock
-"Hellvetia" 2003, Hard Rock
-"TimeWalker" 2005, Hard Rock
-"Secrets" 2007, Hard Rock
-"Dawnbreaker" 2013, Heavy Metal
-"Liferider" 2015, Heavy Metal
-"Deja-Voodoo" 2016, Heavy Metal
+(Switzerland Power)
+
+## Дискография
+
+### "In the Beginning" 1999, Hard Rock
+
+1. Twilight Zone 
+ 2. Magic 
+ 3. Fire Still Burns 
+ 4. Me and You 
+ 5. Lay Down the Law  
+ 6. Shake Me 
+ 7. Leave Me Alone 
+ 8. Take Me Down 
+ 9. Promised Land 
+10. A Million Tears 
+
+
+### "Hard Impact" 2000, Hard Rock
+
+1. Reincarnation 
+ 2. Soul Mate 
+ 3. Won't Bite 
+ 4. FM 
+ 5. Own Way 
+ 6. Queen of the Night 
+ 7. Passion 
+ 8. Never Surrender 
+ 9. Shine On 
+10. Step by Step 
+11. Crystal Ball 
+12. Stare at the Sun 
+ 
+    
+
+
+### "Virtual Empire" 2002, Hard Rock
+
+01. 3RD DIMENSION
+02. HANDS OF GOD
+03. SAVAGE MIND
+04. AM I FREE ?
+05. VIRTUAL EMPIRE
+06. NIGHT AND DAY
+07. DANCE WITH THE DEVIL
+08. WHEN THE NIGHT IS OVER
+09. BLIND SIDE
+10. TALK IN CIRCLES
+11. LOOK IN MY EYES
+12. PRIVATE VISITOR
+13. FIND YOUR GROUND
+
+Marcel Sardella - drums
+Dany Schallibaum - bass
+Mark Sweeney- lead vocals
+Scott Leach - Lead & Rhythm Guitar
+Tom Graber - Keyboard & Rhythm Guitar
+
+Produced. Engineered, Mned and Mastered by TOMMY
+NEWTON @ Area 51 Studios, Celle, Germany from
+December 2001 to February 2002.
+Assistant Engineer: PAULO MIGUEL MELO
+Drum-tuning: MATTHIAS LIEBETRUTH
+Background Vocais: MICHAEL BORMANN, MICHAEL VOSS
+Photos: HUGO RABER
+Sleeve Design and Execution. SEBASTIAN KOZAK @
+American Images International
+
+### "Hellvetia" 2003, Hard Rock
+
+01. Hellvetia
+02. Forever And Eternally
+03. My Life
+04. Opposites Attract
+05. Last Dance
+06. Want It All
+07. Pictures Of Love
+08. Bird On A Wire
+09. Misery Needs Company
+10. One Day At A Time
+11. Wasn't It Love
+
+Mark Sweeney - lead vocals
+Scott Leach - lead and rhythm guitars, backing
+vocals
+Tom Graber - rhythm guitars, keyboards, backing
+vocals
+Dany Schallibaum - bass, backing vocals
+Marcel Sardella - drums
+
+Mixed and produced by Stefan Kaufmann.
+Recorded at Roxx Studios, Pulheim, Germany
+from May to August 2003.
+Mastered by Manfred Melchior at MM Sound in
+August 2003 in Steinhagen.
+Background vocals: Michael Bormann, Michael Voss.
+Design: Thomas Ewerhard.
+
+### "TimeWalker" 2005, Hard Rock
+
+01. Digital World
+02. Tear Down The Wall
+03. He Came To Change The World
+04. Walk Through Time
+05. Mozart Symphony
+06. Powerflight
+07. Fallen From Grace
+08. Celebration
+09. Sensational
+10. The Eye Of The Storm
+11. Talking To The Walls
+
+### "Secrets" 2007, Hard Rock
+
+Moondance 
+I Will Drag You Down 
+Minor Key 
+It's Not Love 
+Time Has Come 
+Secrets 
+Wings Of Fire 
+Dreaming Of You 
+Destiny 
+I'll Be Waiting 
+Face The Truth 
+Pretend You're Laughing (Bonus Track)
+
+Mark Sweeney - вокал
+Scott Leach - гитары
+Hungi Berglas - гитары
+Sven Sieber - бас
+Philipp Meier - клавишные
+Marcel Sardella - ударные
+
+### "Dawnbreaker" 2013, Heavy Metal
+
+1. Zarathustra  01:29  
+2. Break of Dawn  03:09  
+3. Anyone Can Be a Hero  03:50   
+4. The Brothers Were Wright  03:38   
+5. Eternal Flame  03:46   
+6. Skin to Skin  04:44   
+7. Walls Fall Down  04:09   
+8. Back for Good  04:10   
+9. Power Pack  04:06   
+10. Stranded  05:36   
+11. Sun Came Out  04:33  
+12. Touch the Sky  * 04:19   
+13. Bond of Love  * 03:06 
+
+
+### "Liferider" 2015, Heavy Metal
+
+1. Mayday!      
+2. Eye to Eye      
+3. Paradise      
+4. Balls of Steel      
+5. Hold Your Flag      
+6. Gods of Rock      
+7. Take It All      
+8. Bleeding      
+9. Rock of Life      
+10. Antidote      
+11. Liferider     
+12. Memory Run   
+13. Sacred Heart  *    
+14. Union of the Southern Cross  *   
+15. Not Like You  * 
+
+### "Deja-Voodoo" 2016, Heavy Metal
+
+1. Deja-Voodoo  
+2. Director's Cut  
+3. Suspended  
+4. Never a Guarantee  
+5. Reaching Out  
+6. Home Again  
+7. To Freedom and Progress  
+8. Time and Tide  
+9. Without a Net  
+10. Dr. Hell No  
+11. To Be with You Once More 
+
 
 ## Отношения с другими группами
 

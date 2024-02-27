@@ -1,12 +1,104 @@
 # Thou Art Lord
 
-Дискография
-"Eosforos" 1994, Black Metal
-"Apollyon" 1995, Black Metal
-"DV8" 2002, Death Metal
-"Orgia Deamonicum" 2005, Death Metal
-"Three-headed Hydra [single]" 2012, Death Metal
-"The Regal Pulse of Lucifer" 2013, Death Metal
+Ultra Fast Melodic Satanic Black
+
+## Дискография
+
+### "Eosforos" 1994, Black Metal
+
+1. For The Lust Of Lilith
+2. Disciples Of Black Sorcery
+3. Eosforos Rex Infernus
+4. Tower Of The Autumn Moon
+5. A Call To Chaos
+6. Through The Eye Of The Hierophant
+7. Warhammer
+8. The Era Of Satan Rising
+
+ Gothmog - Vocals
+ Necromayhem - Guitars
+ Magus Wampyr Daoloth - Bass, Synth
+ Lord Daemon - Drums
+ Mika Luttinen - Extra Vocals On 5
+ 
+All Music & Lyrics By THOU ART LORD
+Engineered By George Zaharopoulos & Anthony Delaportas
+Recorded At Storm Studio In Spring 1994
+
+
+
+### "Apollyon" 1995, Black Metal
+
+1. Hate Is Thicker Than Love
+2. Prelude To Apocalypse
+3. Wardance Of The Empress
+4. He Whom The Gods Hath Feared
+5. Societas Satanas
+6. Excremental Magic
+7. Moonscar
+8. In Blood We Trust
+
+ Gothmog - Vocals
+ Necromayhem - Guitars
+ Magus Wampyr Daoloth - Bass, Synth, Vocals
+ Lord Daemon - Drums
+ 
+All Music & Lyrics By THOU ART LORD
+Recorded By Dimitris Lahanis.
+Mixed By Christos Hajiostamov & D.Lahanis.
+Recorded & Mixed At Sin Ena Studio.
+
+
+
+### "DV8" 2002, Death Metal
+
+01 - Chaldean Hex
+02 - Baphomets Meteor
+03 - Crowning The Winged Skull
+04 - Society Of The Dielettanti
+05 - Desire, Lust And Incubus
+06 - Eyes White Shut And Lips Wide Open
+07 - The Shadow Doctrine
+08 - Behind The Druid Walls
+09 - Those We Guide
+
+
+Sakis - guitars, backing vocals
+Seth - vocals
+The Magus - bass, backing vocals
+Akis K. - drums
+
+### "Orgia Deamonicum" 2005, Death Metal
+
+1. Possesed / The Legion   
+2. Hecate Unveiled   
+3. An Apparition Of Vengeance   
+4. He, the great worm   
+5. The Gnostic Code   
+6. The Royal Invocation Of Apophis   
+7. Orgia Deamonicum   
+8. Necromantic   
+9. Satanic Aphorisms   
+10. Onslaught (Power from Hell)
+
+### "Three-headed Hydra [single]" 2012, Death Metal
+
+1. Three-headed Hydra 04:06
+
+### "The Regal Pulse of Lucifer" 2013, Death Metal
+
+1. Nine Steps to Hell  03:52    
+2. ПОЛITEIA ДAIMONON  03:56    
+3. Das Messer  04:17  
+4. The Regal Pulse of Lucifer  05:30
+5. Artificial Malevolence  04:02    
+6. Justicia Profana  05:52   
+7. L'Evangelium de Diable  05:05  
+8. Infernarium  04:05    
+9. Fire and Blood  04:46 
+
+Recorded, mixed and mastered at Silicon Factory studios, Moschato, Athens. 
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,13 @@
 # Hellogoodbye
 
-Дискография
-"Mush Slowly And Guac (EP)" 2005, Punk
+
+
+## Дискография
+
+### "Mush Slowly And Guac (EP)" 2005, Punk
+
+
+
 
 ## Отношения с другими группами
 

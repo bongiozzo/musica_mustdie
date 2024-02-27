@@ -1,8 +1,37 @@
 # Zonaria
 
-Дискография
-"Infamy and the Breed" 2007, Black Metal
-"The Cancer Empire" 2008, Black Metal
+
+
+## Дискография
+
+### "Infamy and the Breed" 2007, Black Metal
+
+1. Infamy 01:38  
+2. The Last Endeavour 03:26
+3. Pandemic Assault 03:48
+4. The Armageddon Anthem 03:43
+5. Rendered in Vain 04:17 
+6. Image of Myself 04:20 
+7. Evolution Overdose 04:02 
+8. Attending Annihilation 03:58 
+9. Descend into Chaos 03:42 
+10. Ravage the Breed 03:34
+11. The Black Omen 04:54
+12. Everything is Wasteland 04:45 
+
+### "The Cancer Empire" 2008, Black Metal
+
+1. Slaughter is Passion 04:14  
+2. Praise the Eradication 04:05  
+3. Crowning King Cancer 05:46  
+4. Contra Mundum 04:37  
+5. Termination Process 03:32  
+6. At War with the Inferior 03:21  
+7. From the Abysmal Womb 05:26  
+8. Damnation Dressed in Flesh 04:01  
+9. Humanity Vs Sanity 04:15  
+10. The Icon and the Faceless 05:55 
+
 
 ## Отношения с другими группами
 

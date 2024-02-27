@@ -1,7 +1,23 @@
 # Maple Cross
 
-Дискография
-"Next Chapter" 2003, Thrash
+Finnish melodic thrash-metal
+
+## Дискография
+
+### "Next Chapter" 2003, Thrash
+
+1. The Spirit Of Northern Broterhood
+2. Au Revoir
+3. Last Steps Of Joe
+4. World Wide Mystery
+5. The Chosen People
+6. Simply Simplicity
+7. Invincibles
+8. Victim Of Life
+9. Nothing Starts From The Beginning
+10. Embodiment Of Air
+11. New Direction
+
 
 ## Отношения с другими группами
 

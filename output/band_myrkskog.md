@@ -1,8 +1,25 @@
 # Myrkskog
 
-Дискография
-"Deathmachine" 2000, Death Metal
-"Superior Massacre" 2002, Death Metal
+
+
+## Дискография
+
+### "Deathmachine" 2000, Death Metal
+
+1.Discipline Misantrophy 
+2.The Hate Syndicate 
+3.A Poignant Scenario Of Horror 
+4.Synthetic Lifeworm 
+5.Syndrome 9 
+6.Morphinemangled Torture 
+7.Deathfare To The Devil 
+8.Deathmachine 
+9.Pilar Deconstruction (Syndrome 9 re-mix)
+
+### "Superior Massacre" 2002, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

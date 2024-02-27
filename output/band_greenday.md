@@ -1,11 +1,123 @@
 # Green Day
 
-Дискография
-"1039 Smoothed Out Slappy Hours" 1990, Punk
-"Kerplunk" 1992, Punk
-"Dookie" 1994, Punk
-"Insomniac" 1995, Punk
-"Warning" 2000, Punk
+Commercial Post-Punk
+
+## Дискография
+
+### "1039 Smoothed Out Slappy Hours" 1990, Punk
+
+1. The Library
+2. Don't Leave Me
+3. I Was There
+4. Disappearing Boy
+5. Green Day
+6. Going To Passalaqua
+7. 16
+8. Road To Acceptance
+9. Rest
+10.The Judge's Daughter
+11.Paper Lanterns
+12.Why Do You Want Him ?
+13.409 In Your Coffeemaker
+14.Knowledge
+15.1000 Hours
+16.Dry Ice
+17.Only Of You
+18.The One I Want
+19.I Want To Be Alone
+
+Produced By Andy Ernst & GREEN DAY.
+Engineered By Andy Ernst.
+Recorded At Art Of Ears Studio SF.
+
+(p)&(c) 1990 LOOK OUT Records
+
+### "Kerplunk" 1992, Punk
+
+1. 2000 Light Years Away
+2. One For Razorbacks
+3. Welcome To The Paradise
+4. Christie Road
+5. Private Ale
+6. Dominated Love Slave
+7. One Of My Lies
+8. 80
+9. Android
+10.No One Knows
+11.Who Wrote Holden Caufield ?
+12.Worlds I Might Have Hate
+13.Sweet Children
+14.Best Thing In Town
+15.Strangeland
+16.My Generation
+
+Produced By Andy Ernst & GREEN DAY.
+Engineered & Mixed By Andy Ernst.
+Recorded May-September 1994 At Art Of Ears Studio.
+
+Billie - Vocals, guitars
+Mike - Bass
+Tre Cool - Drums
+
+(p)&(c) 1992 LOOK OUT Records
+
+### "Dookie" 1994, Punk
+
+1. Burn Out
+2. Having A Blast
+3. Chump
+4. Long View
+5. Welcome To A Paradise
+6. Pulling Teeth
+7. Basket Case
+8. She
+9. Sassafras Roots
+10.When I Come Around
+11.Coming Clean
+12.Emenius Sleepus
+13.In The End
+14.F.O.D.
+
+All Songs Written By GREEN DAY.
+Produced By Rob Cavallo & GREEN DAY.
+Engineered By Neil King.
+
+(p)&(c) 1994 REPRISE Records
+
+### "Insomniac" 1995, Punk
+
+1. Armatage Shanks
+2. Brat
+3. Stuck With Me
+4. Geek Stink Breath
+5. No Pride
+6. Bab's Uvula Who ?
+7. 86
+8. Panic Song
+9. Stuart And The Ave
+10.Brain Stew
+11.Jaded
+12.Westbound Sign
+13.Tight Wad Hill
+14.Walking Contradiction
+
+(P)&(C) 1995 REPRISE Records
+
+### "Warning" 2000, Punk
+
+1. Warning 
+2. Blood, Sex And Booze 
+3. Church On A Sunday 
+4. Fashion Victim 
+5. Castaway 
+6. Misery 
+7. Deadbeat Holiday 
+8. Hold On 
+9. Jack Ass 
+10. Waiting 
+11. Minority 
+12. Macys Day Parade 
+
 
 ## Отношения с другими группами
 

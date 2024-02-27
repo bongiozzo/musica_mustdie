@@ -1,25 +1,390 @@
 # Crematory
 
-Дискография
-"Transmigration" 1993, Death Doom
-"...Just Dreaming" 1994, Death Doom
-"Illusions" 1995, Death Doom
-"Ist Es Wahr" 1996, Death Doom
-"Crematory" 1996, Death Doom
-"Live...At The Out Of The Dark Festivals" 1997, Death Doom
-"Awake" 1997, Death Doom
-"Act Seven" 1999, Death Doom
-"Believe" 2000, Death Doom
-"Remind (live)" 2001, Death Doom
-"Remind DVD" 2001, Death Doom
-"Greed EP" 2004, Gothic
-"Revolution" 2004, Gothic
-"Live Revolution Dvd" 2005, Gothic
-"Klagebilder" 2006, Death Doom
-"Pray" 2008, Gothic
-"Infinity" 2010, Gothic
-"Antiserum" 2014, Gothic
-"Monument" 2016, Gothic
+Melodic Electronic Death-Doom
+
+## Дискография
+
+### "Transmigration" 1993, Death Doom
+
+1. Bequest Of The Wicked
+2. Eyes Of Suffering
+3. Deformity
+4. Never Forgotten Place
+5. Hall Of Torment
+6. Reincarnation
+7. Victims
+8. Through My Soul
+9. The Way Behind The Light
+10.Bequest Of The Hallow
+
+ Lothar Forst - Guitars
+ Heinz Steinhauser - Bass
+ Markus Jullich - Drums
+ Gerhard Stass - Vocals
+ Katrin Goger - Keyboards
+
+All Songs Written By CREMATORY
+Produced By Torsten Hartmann
+Engineered And Mixed By Gerhard Magin
+Recorded And Mixed At Commusication Studios In Feb.-Mar. 1993
+
+(p)&(c) 1993 MASSACRE Records
+
+### "...Just Dreaming" 1994, Death Doom
+
+1. Heavens Throat
+2. Transmigration
+3. Only Once In A Lifetime
+4. Shadows Of Mine
+5. I Saw The Angels Fly
+6. In My Hands
+7. The Instruction
+8. The Prophecy
+9. Dreams
+10.For Those Who Believe
+
+ Felix - Vocals
+ Lotte - Guitars
+ Harald - Bass
+ Markus - Drums
+ Katrin - Keyboards
+
+All Songs Composed By Lotte & CREMATORY
+Recorded & Mixed At Commusication Studios,
+January 1994
+Engeenired By Gerhard Magin.
+Produced By Torsten Hartmann
+
+(p)&(c) 1994 MASSACRE Records
+
+### "Illusions" 1995, Death Doom
+
+1. Reflexionen
+2. Faces
+3. Tears Of Time
+4. My Way
+5. Lost In Myself
+6. An Other... ?
+7. The Atmosphere
+8. The Beginning Of The End
+9. Sweet Solitude
+10. Dreams Of Dancing
+[11]. ...Just Dreaming
+[12]. Visions
+
+[11],[12] Side B
+
+All Songs By CREMATORY.
+Produced By Gerhard Magin & CREMATORY.
+
+Felix - Vocals
+Lotte - Guitars
+Harald - Bass
+Markus - Drums
+Katrin - Keyboards
+
+(P)&(C) !995 MASSACRE Records
+
+### "Ist Es Wahr" 1996, Death Doom
+
+1. Ist Es Wahr
+2. Tears Of Time
+3. Shadows Of Mine
+4. Eyes Of Suffering
+
+All songs written by CREMATORY
+Produced by Gerhard Magin and CREMATORY
+Engineered and mixed by Gerhard Magin
+Recorded and mixed at Commusication Studios
+
+Felix - Vocals
+Lotte - Guitars
+Harald - Bass
+Markus - Drums
+Katrin - Keyboards
+
+(p)(c) 1996 MASSACRE Records
+
+### "Crematory" 1996, Death Doom
+
+1. Utopia (1.40)
+2. Das Licht In Dir  (5.18)
+3. Flieg Mit Mir (5.27)
+4. Ist Es Wahr (5.53)
+5. Ewigkeit (4.18)
+6. Trugbilder (3.44)
+7. Flammen (4.47)
+8. Die Suche (5.14)
+9. Illusionen (5.00)
+10. Sehnsucht (3.18)
+
+All  songs  written  by CREMATORY.
+Produced by CREMATORY and Gerhard Magin
+Engineered and mixed by Gerhard Magin.
+Recorded at Commusication TonStudios.
+
+Felix - Gesang
+Katrin - Tasten
+Lotte - Gitarre
+Harald - Bass
+Markus - Schlagzeug
+
+(p)(c) 1996 MASSACRE Records
+
+### "Live...At The Out Of The Dark Festivals" 1997, Death Doom
+
+1.  Reflexionen
+2.  Deformity
+3.  Tears Of Time
+4.  Ewigkeit
+5.  Only Once In A Life Time
+6.  Shadows Of Mine
+7.  Out Of The Dark
+8.  Lost In Myself
+9.  Dreams
+10.Ist Es Wahr
+11.Eyes Of Suffering
+12.An Other...
+13.The Beginning Of The End
+14.... Just Dreaming
+15.Visions
+
+Recorded live at the "OUT OF THE DARK FESTIVALS 1996"
+Mixed and mastered by Gerhard Magin at Communication Tonstudio.
+
+Katrin
+Markus
+Harald
+Felix
+Lotte
+
+(P)(C) 1997 CRC Records
+
+### "Awake" 1997, Death Doom
+
+1. Maze.
+2. Lord Of Lies.
+3. Away.
+4. Temple Of Love.
+5. For Love.
+6. Crematory.
+7. My Last Words.
+8. The Loss.
+9. Yuorself.
+10. Mirror
+
+(p)1997 EDITION DRAKKAR
+(c)1997 NUCLEAR BLAST
+
+FELIX -  vocals
+KATRIN - keyboards
+LOTTE - guitars, background vocals
+HARALD - bass
+MARKUS - drums
+
+Recorded and mixed at Communications Tonstudio in April & May 1997 by Gerhard Magin. Produced by Gerhard 
+Magin & Lotte. Mastered at Studio Nord in May 1997 by Bernd Steinwedel. Coverpainting by Hermann Hoormann. 
+Crematory logo design by Raymond Neck. Photos by Darius Romazani. Design and modification by Massive Design & 
+Consilio A, V & C/Worms.
+
+### "Act Seven" 1999, Death Doom
+
+1. Shining. 1:58
+2. I Never Die. 5:52
+3. Moonlight. 5:05
+4. Fly. 5:51
+5. Memory. 5:13
+6. The Holy One. 5:23
+7. The Game. 5:54
+8. Waiting. 4:01
+9. Awake. 5:42
+10. Tale. 4:31
+
+(c)&(p) 1999 NUCLEAR BLAST
+
+FELIX – vocals
+MATTIAS HECHLER – guitar
+KATRIN – keyboards
+HARALD – bass
+MARKUS JULLICH -drums
+
+### "Believe" 2000, Death Doom
+
+Crematory "Belive"  2000 y
+
+1.  Redemption Of Faith 
+2.  Endless 
+3.  The Fallen 
+4.  Take 
+5.  Act Seven 
+6.  Time For Tears 
+7.  Eternal 
+8.  Unspoken 
+9.  Caroline 
+10. The Curse 
+11. Why 
+12. Perils Of The Wind 
+
+
+### "Remind (live)" 2001, Death Doom
+
+
+
+### "Remind DVD" 2001, Death Doom
+
+
+
+### "Greed EP" 2004, Gothic
+
+01. Greed (Single version)
+02. Greed (Album version)
+03. Farewell Letter
+04. One (Metallica Cover)
+
+05. Greed (Video clip)
+
+Felix - vocals
+Katrin - keys
+Harald - bass
+Matthias - guitar
+Markus - drums
+
+### "Revolution" 2004, Gothic
+
+01. Resurrection
+02. Wake Up
+03. Greed
+04. Reign Of Fear
+05. Open Your Eyes
+06. Tick Tack
+07. Angel Of Fate
+08. Solitary Psycho
+09. Revolution
+10. Human Blood
+11. Red Sky
+12. Farewell Letter
+
+Bonus:
+Revolution (Videoclip)
+
+Felix - vocals
+Matthias Hechler - guitar
+Katrin - keyboards
+Harald - bass
+Markus Jullich - drums
+
+This album is dedicated to Katrin`s and Markus`
+daughter Janina - date of birth 06/11/2003
+
+Produced by Markus jullich and Crematory
+Arrangements by Markus jullich and Hohle
+Photos by Hady Muller
+Coverartwork by Raimond Nack
+Layout by Katrin and Massive Design
+Videoclip produced by Camelot Film
+
+Recorded at Kohlekeller Studio by Christian "Hohle" Hohlmannslehner
+Mixed at Gerassi Park Studio by Gerhard Magin and Markus Jullich
+Mastered at House of Audio by Jurgen Lusky and Markus Jullich
+
+### "Live Revolution Dvd" 2005, Gothic
+
+Live in concert:
+
+01. Resurrection
+02. Wake Up
+03. Fly
+04. Greed
+05. Angel Of Fate
+06. Tears Of Time
+07. Revolution
+08. The Fallen
+09. Tick Tack
+10. Ist es Wahr
+11. Open Your Eyes
+12. Temple Of Love
+
+Videoclips:
+
+13. Greed
+14. Revolution
+15. Tick Tack
+
+Extras:
+
+Backstage
+Interview
+Photogallery
+
+### "Klagebilder" 2006, Death Doom
+
+
+
+### "Pray" 2008, Gothic
+
+1. When Darkness Falls 05:10  
+2. Left the Ground 04:24  
+3. Alone 05:47  
+4. Pray 04:46  
+5. Sleeping Solution 05:20  
+6. Just Words 03:41  
+7. Burning Bridges 04:16  
+8. Have You Ever 04:52  
+9. Remember 04:14  
+10. Say Goodbye 06:12
+
+### "Infinity" 2010, Gothic
+
+1. Infinity 04:52  
+2. Sense of Time 05:45  
+3. Out of Mind 03:21  
+4. Black Celebration (Depeche Mode cover) 04:56  
+5. Never Look Back 04:11  
+6. Broken Halo 04:19  
+7. Where Are You Now? 05:02  
+8. A Story About... 04:52  
+9. No One Knows 04:28  
+10. Auf der Flucht 04:35 
+
+
+### "Antiserum" 2014, Gothic
+
+Disc 1  
+1. Apocalyptic Vision  02:16  
+2. Until the End  04:48  
+3. Shadowmaker  03:39  
+4. If You Believe  03:56   
+5. Inside Your Eyes  04:07  
+6. Kommt nдher  04:25  
+7. Irony of Fate  03:57  
+8. Virus  03:43  
+9. Back from the Dead  03:32  
+10. Welcome  03:57  
+11. Antiserum  05:03   
+12. Shadowmaker (Elektro Mix)  04:09  
+13. Shadowmaker (Centhron Mix)  04:07   
+
+Disc 2  
+1. Shadowmaker  03:39 
+2. Shadowmaker (Elektro Mix) 04:09 
+3. Shadowmaker (Centhron Mix)  04:07 
+
+
+### "Monument" 2016, Gothic
+
+1. Misunderstood
+2. Haus mit Garten
+3. Die So Soon
+4. Ravens Calling
+5. Eiskalt
+6. Nothing
+7. Before I Die
+8. Falsche Tranen
+9. Everything
+10. My Love Within
+11. Die letzte Schlacht
+12. Save Me
+
 
 ## Отношения с другими группами
 

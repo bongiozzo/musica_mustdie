@@ -1,7 +1,23 @@
 # Arabia
 
-Дискография
-"1001 Nights" 2001, Hard Rock
+hard-rock
+
+## Дискография
+
+### "1001 Nights" 2001, Hard Rock
+
+1. The Heart Is A Lonely Hunter 
+2. Dark Side Of Love 
+3. Love Me Do 
+4. 1001 Nights 
+5. Till The Day I Die 
+6. So Tired 
+7. Runaway Renee 
+8. I Wanna Be King 
+9. Waiting 
+10. Mariah 
+11. Brother Louie
+
 
 ## Отношения с другими группами
 

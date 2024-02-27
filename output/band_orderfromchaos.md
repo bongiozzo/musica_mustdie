@@ -1,7 +1,29 @@
 # Order From Chaos
 
-Дискография
-"Stillbirth Machine" 1993, Grindcore
+
+
+## Дискография
+
+### "Stillbirth Machine" 1993, Grindcore
+
+1. The Edge Of Forever
+2. Power Elite
+3. Iconoclasm Conquest
+4. Forsake Me THis Mortal Coil
+5. Stillbirth Machine
+6. Blood And Thunder
+7. As The Body Falls Away
+
+ Pete Helmkamp - Vocals & Bass
+ Chuck Keller - Guitars
+ Mike Miller - Drums
+
+Produced By Ron Wyst & Chuck Keller.
+Recorded & Mixed At The Sound Factory Olathe,
+Kansas.
+
+(p)&(c) 1993 WILD RAGS Records
+
 
 ## Отношения с другими группами
 

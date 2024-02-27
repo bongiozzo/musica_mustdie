@@ -1,23 +1,160 @@
 # Pink Floyd
 
-Дискография
-"The Piper at the Gates of Dawn" 1967, Rock
-"A Saucerful of Secrets" 1968, Rock
-"Ummagnumma" 1968, Rock
-"More" 1969, Rock
-"Atom Heart Mother" 1970, Rock
-"Meddle" 1971, Progressive
-"Obscured by Clouds" 1972, Progressive
-"Dark Side of the Moon" 1973, Rock
-"Wish You Were Here" 1975, Rock
-"Animals" 1977, Rock
-"The Wall" 1979, Hard Rock
-"The Final Cut" 1983, Progressive
-"A Momentary Lapse of Reason" 1987, Progressive
-"Delicate Sound of Thunder [live]" 1988, Progressive
-"The Division Bell" 1994, Progressive
-"Pulse [live]" 1995, Progressive
-"Tribute Angular: Signs of Life" 2001, Progressive
+psychadelic
+
+## Дискография
+
+### "The Piper at the Gates of Dawn" 1967, Rock
+
+
+
+### "A Saucerful of Secrets" 1968, Rock
+
+
+
+### "Ummagnumma" 1968, Rock
+
+
+
+### "More" 1969, Rock
+
+
+
+### "Atom Heart Mother" 1970, Rock
+
+1. Atom Heart Mother: Father's Shout/Breast... - 23:44 
+2. If - 4:30 
+3. Summer '68 - 5:29 
+4. Fat Old Sun - 5:22 
+5. Alan's Psychedelic Breakfast: Rise and... - 13:00
+
+### "Meddle" 1971, Progressive
+
+1. One of These Days - 5:56 
+2. A Pillow of Winds - 5:13 
+3. Fearless - 6:08 
+4. San Tropez - 3:43 
+5. Seamus - 2:15 
+6. Echoes - 23:27
+
+### "Obscured by Clouds" 1972, Progressive
+
+
+
+### "Dark Side of the Moon" 1973, Rock
+
+1. Speak to Me/Breathe in the Air - 4:00 
+2. On the Run - 3:33 
+3. Time - 7:06 
+4. The Great Gig in the Sky - 4:44 
+5. Money - 6:32 
+6. Us and Them - 7:40 
+7. Any Colour You Like - 3:25 
+8. Brain Damage - 3:50 
+9. Eclipse - 2:04
+
+### "Wish You Were Here" 1975, Rock
+
+1. Shine on You Crazy Diamond, Pts. 1-5 - 13:40 
+2. Welcome to the Machine - 7:31 
+3. Have a Cigar - 5:08 
+4. Wish You Were Here - 5:34 
+5. Shine on You Crazy Diamond, Pts. 6-9 - 12:31
+
+### "Animals" 1977, Rock
+
+1.Pigs on the Wing, Pt. 1 - 1:25 
+2.Dogs - 17:08 
+3.Pigs (Three Different Ones) - 11:28 
+4.Sheep - 10:20 
+5.Pigs on the Wing, Pt. 2 - 1:25
+
+### "The Wall" 1979, Hard Rock
+
+CD1:
+1. In the Flesh? - 3:19 
+2. The Thin Ice - 2:29 
+3. Another Brick in the Wall, Pt. 1 - 3:09 
+4. The Happiest Days of Our Lives - 1:51 
+5. Another Brick in the Wall, Pt. 2 - 3:59 
+6. Mother - 5:36 
+7. Goodbye Blue Sky - 2:48 
+8. Empty Spaces - 2:08 
+9. Young Lust - 3:30 
+10. One of My Turns - 3:37 
+11. Don't Leave Me Now - 4:17 
+12. Another Brick in the Wall, Pt. 3 - 1:14 
+13. Goodbye Cruel World - 1:17 
+
+CD2:
+1. Hey You - 4:42 
+2. Is There Anybody Out There? - 2:40 
+3. Nobody Home - 3:24 
+4. Vera - 1:33 
+5. Bring the Boys Back Home - 1:27 
+6. Comfortably Numb - 6:24 
+7. The Show Must Go On - 1:35 
+8. In the Flesh - 4:17 
+9. Run Like Hell - 4:24 
+10. Waiting for the Worms - 3:58 
+11. Stop - 0:30 
+12. The Trial - 5:20 
+13. Outside the Wall - 1:44
+
+### "The Final Cut" 1983, Progressive
+
+1. The Post War Dream
+2. Your Possible Pasts
+3. On Of The Few
+4. The Hero's Return
+5. The Gunners Dream
+6. Paranoid Eyes
+7. Get Your Filthy Off My Desert
+8. The Fletcher Memorial Home
+9. Southamthon Dock
+10. The Final Cut
+11. Not Now John
+12. Two Suns In The Sunset
+
+### "A Momentary Lapse of Reason" 1987, Progressive
+
+1. Signs of Life - 4:25 
+2. Learning to Fly - 4:53 
+3. The Dogs of War - 6:08 
+4. One Slip - 5:07 
+5. On the Turning Away - 5:39 
+6. Yet Another Movie/Round and Around - 7:27 
+7. New Machine, Pt. 1 - 1:46 
+8. Terminal Frost - 6:17 
+9. New Machine, Pt. 2 - :38 
+10. Sorrow - 8:48
+
+### "Delicate Sound of Thunder [live]" 1988, Progressive
+
+
+
+### "The Division Bell" 1994, Progressive
+
+1. Cluster One - 5:58 
+2. What Do You Want from Me - 4:21 
+3. Poles Apart - 7:04 
+4. Marooned - 5:28 
+5. A Great Day for Freedom - 4:18 
+6. Wearing the Inside Out - 6:49 
+7. Take It Back - 6:12 
+8. Coming Back to Life - 6:19 
+9. Keep Talking - 6:11 
+10. Lost for Words - 5:15 
+11. High Hopes - 8:32
+
+### "Pulse [live]" 1995, Progressive
+
+
+
+### "Tribute Angular: Signs of Life" 2001, Progressive
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,13 +1,110 @@
 # Altar
 
-Дискография
-"Ex Oblivione" 1993, Death Metal
-"Youth Against Christ" 1994, Death Metal
-"Ego Art" 1996, Death Metal
-"Provoke" 1998, Death Metal
-"In The Name of The Father" 1999, Death Metal
-"Until Heaven Forbids" 2000, Death Metal
-"Red Harvest" 2001, Death Metal
+Satanic Band from Holland
+
+## Дискография
+
+### "Ex Oblivione" 1993, Death Metal
+
+ 1. Nothing Human
+ 2. Lifeless Passion
+ 3. Decapitated
+ 4. A Message From The Grave
+ 5. Ex Oblivione
+ 6. Severed On The Attic
+ 7. No Flesh
+
+
+### "Youth Against Christ" 1994, Death Metal
+
+1. Throne Of Fire
+2. Jesus Is Dead !
+3. Divorced From God
+4. Hypochristianity
+5. Forced Imprudence
+6. Psycho Damn
+7. Cross The Bridge Of False Prophecies
+8. Cauterize The Church Council
+
+All Songs By ALTAR.
+Produced At Franky's Recording Kitchen.
+Engineered By Ronny v/d Wey & Mixed By Berthus Westerhuis.
+Recorded In The Darkest Studio Of Holland In March & April '94.
+
+Edwin Kelder - Vocals
+Marcel v. Haaff - Guitars
+Bert Huisjes - Guitars
+Nils Vos - Bass
+Marco Arends - Drums
+
+(P)&(C) 1994 DISPLEASED Records
+
+### "Ego Art" 1996, Death Metal
+
+1. Eidolon
+2. I Take
+3. Ego Art
+4. C.C.C.
+5. Truly Untrue
+6. Pathetic Priest
+7. Destructive Selection
+8. Egovernment
+9. Follow Me
+10.Tonight This Country Will Die
+
+All Songs By ALTAR.
+Produced By Berthus Westerhuis & ALTAR.
+Engineered By Ronny v/d Wey & Mixed By Berthus Westerhuis.
+Recorded At Franky's Recording Kitchen..
+
+Edwin Kelder - Vocals
+Marcel Verdurmen - Lead & Rhythm Guitars
+Bert Huisjes - Rhythm Guitar
+Nils Vos - Bass
+Marco Arends - Drums
+
+(P)c 1996 DISPLEASED Records
+
+### "Provoke" 1998, Death Metal
+
+
+
+### "In The Name of The Father" 1999, Death Metal
+
+Holy Mask 
+Spunk 
+God Damn You 
+In The Name of The Father 
+I Spit Black Bile On You 
+Hate Scenario 
+Pro Jagd 
+Walhalla Express 
+In Our Dominion
+
+### "Until Heaven Forbids" 2000, Death Metal
+
+I Am Your Provider 
+The Trooper 
+Throne of Fire (Live) 
+Psycho Damn (Live) 
+Throne of Fire (Demo) 
+Forced Imprudence (Demo) 
+Psycho Damn (Demo) 
+'Cross the bridge of false prophecies (Demo) 
+God Damn You (videoclip) 
+
+
+### "Red Harvest" 2001, Death Metal
+
+Sick 
+The Stress Factor 
+On the Throne 
+The Unbeliever 
+Red Harvest 
+Generation X 
+To my Friends (RIP) 
+Punishment for Decency 
+
 
 ## Отношения с другими группами
 

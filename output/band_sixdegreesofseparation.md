@@ -1,7 +1,25 @@
 # Six Degrees Of Separation
 
-Дискография
-"Moon 2002 - Nocturnal Breed" 2002, Death Doom
+
+
+## Дискография
+
+### "Moon 2002 - Nocturnal Breed" 2002, Death Doom
+
+1. Invitation
+2. Prayer
+3. The Whisperer
+4. Nightbreath
+5. Dream And Reality
+6. Moon And Lust
+7. Seeds Of Evil
+8. Nameless Forever
+9. On Wings Of Long Slow Dreams
+10. Immortal Sins / Succubus Nights
+11. Raven Comes
+12. We Shall Start The Fire
+13. Across The Unseen Border
+
 
 ## Отношения с другими группами
 

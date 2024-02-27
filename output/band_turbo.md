@@ -1,7 +1,27 @@
 # Turbo
 
-Дискография
-"The Last Warrior" 1988, Thrash
+
+
+## Дискография
+
+### "The Last Warrior" 1988, Thrash
+
+1. The Last Warrior 6.45
+2. Berud`s Sword 7.07
+3. The Trojan Horse 6.55
+4. Seance With Vampire 6.33
+5. Tempest`s Son 4.30
+6. Goddess Of Confusion 5.35
+7. Angel From Hell 3.54
+
+Greg - Vocals
+Boggy - Drums
+Woytek - Guitar
+Andrei - Guitar
+Tomas - Bass
+
+(p)&(c) 1988 NOISE International
+
 
 ## Отношения с другими группами
 

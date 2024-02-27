@@ -1,7 +1,23 @@
 # Zimmers Hole
 
-Дискография
-"When You Were Shouting At The Devil…We Were In League With Satan" 2008, Heavy Metal
+
+
+## Дискография
+
+### "When You Were Shouting At The Devil…We Were In League With Satan" 2008, Heavy Metal
+
+When You Were Shouting At The Devil... We Were In League With Satan 
+We Rule The Fucking Land 
+The Flight Of The Night Bat 
+1312 
+Devil's Mouth 
+The Vowel Song 
+Fista Corps 
+Anonymous Esophagus 
+Alright 
+Hair Doesn't Grow On Steel 
+What's My Name... Evil! 
+
 
 ## Отношения с другими группами
 

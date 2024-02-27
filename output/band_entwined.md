@@ -1,7 +1,29 @@
 # Entwined
 
-Дискография
-"Dancing Under Glass" 1998, Gothic
+
+
+## Дискография
+
+### "Dancing Under Glass" 1998, Gothic
+
+1. The Sound Of Her Wings.
+2. Shed Nightward Beauty.
+3. Under A Killing Moon.
+4. The Forgotten.
+5. A Moment Of Sadness.
+6. The Sacrifice Of Spring.
+7. Red Winter.
+8. Heaven Rise.
+9. XIII.
+
+(c)&(p) 1998 EARACHE RECORDS
+
+SIMON - bass
+MARK ROYEE – keyboards
+JAMES SOUTHGATE – drums
+LEE JAMES - electric six string
+STEPHEN JOHN TOVEY - voices & guitar
+
 
 ## Отношения с другими группами
 

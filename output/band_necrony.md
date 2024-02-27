@@ -1,8 +1,51 @@
 # Necrony
 
-Дискография
-"Pathological Perfomances" 1993, Grindcore
-"Necronycism: Distorting The Original" 1994, Grindcore
+High Class Grinders
+
+## Дискография
+
+### "Pathological Perfomances" 1993, Grindcore
+
+1. Rigor Mortis Sets In
+2. Dexterous Embyectomy
+3. Submassive Necrosis Disgorgement
+4. Gynopathalogical Excav-Eater
+5. Accumulation Of Exudate
+6. Ocular Obliteration
+7. Pro-Rectual Carnage
+8. Excavated,Eviscerated & Emaciated
+9. Effervescing Discharge Of Putrescent Corpulence
+10.The Squirming Worms
+11.Acute Pyencephalus & Cerebral Decomposure
+12.Funeral Ferocity
+
+(p)&(c) 1993 POSERSLAUGHTER Records
+
+
+### "Necronycism: Distorting The Original" 1994, Grindcore
+
+1. Fermenting Innards (Carcass)
+2. Swarming Vulgar Mass Of Infected Virulency (Carcass)
+3. Die In Pain
+4. Musupuruience Expector (Carcass)
+5. Dis - Organ - Ized (Impetigo)
+6. Bodily Dismemberment (Carnage)
+7. Festering Boils 
+8. Cenotaph (Bolt Thrower)
+9. Lucid Fairytale (Napalm Death)
+10. The Kill
+11. Deceiver
+12. The Day Man Lost
+
+ Anders Jakobson - Vocals,Guitars,Bass
+ Rickard Alriksson - Drums,Vocals
+
+All Songs Written By Copyright Control
+Recorded June 16-18 In Unisound Studios, Finspang.
+Engineered By Dan Swano
+
+(p) & (c) 1994 Poser Slaughter Records.
+
 
 ## Отношения с другими группами
 

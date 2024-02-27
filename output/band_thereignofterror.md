@@ -1,10 +1,66 @@
 # The Reign of Terror
 
-Дискография
-"Light in the Sky" 1995, Heavy Metal
-"Second Coming" 1999, Heavy Metal
-"Sacred Ground" 2001, Power Metal
-"Conquer & Divide" 2002, Power Metal
+(Joe Stump and Mike Vescera project)
+
+## Дискография
+
+### "Light in the Sky" 1995, Heavy Metal
+
+
+
+### "Second Coming" 1999, Heavy Metal
+
+01:22  Sonata Hypnotica  
+06:13  Devil's Playground  
+07:37  You Turn My World Around  
+06:24  Hold On To Your Dreams  
+05:21  Speed Kills  
+01:54  Enchanted Sleep  
+06:13  All Things Must End  
+07:41  Take Your Life  
+05:25  Change  
+08:58  Hell And Back  
+02:45  Tapping Toccata  
+
+
+### "Sacred Ground" 2001, Power Metal
+
+1.   Save Me (Stump/Vescera) - 5:05 
+2.   Sacred Ground (Stump/Vescera) - 5:23 
+3.   The Unknown (Stump/Vescera) - 6:29 
+4.   Paginini's Purgatory [*] (Stump/Vescera) - 3:05 
+5.   Set Us Free (Stump/Vescera) - 4:05 
+6.   When Will We Know (Stump/Vescera) - 7:27 
+7.   Last Time (Stump/Vescera) - 5:42 
+8.   Undercover (Stump/Vescera) - 4:58 
+9.   Hellbound (Stump/Vescera) - 4:54 
+10.  Dante's Danza [*] (Stump/Vescera) - 4:13 
+11.  Still Holding On (Stump/Vescera) - 7:27 
+12.  Kill the King (Blackmore/Dio/Powell) - 4:26 
+
+
+### "Conquer & Divide" 2002, Power Metal
+
+06:26  Conquer And Divide  
+06:02  No Forgiving  
+05:41  Mark Of The Devil  
+05:22  No Limits  
+07:38  Forsaken  
+05:36  Sacrifice  
+05:54  Sign Of The Cross  
+05:33  Seance  
+05:01  Bite The Bullet  
+07:02  The Meaning  
+04:23  Lament (bonus track)
+
+
+JOE STUMP guitar
+MICHAEL VESCERA vocals 
+JAY RIGNEY bass 
+MATT SURFIELD drums
+MATS OLAUSSON keyboards
+
+
 
 ## Отношения с другими группами
 

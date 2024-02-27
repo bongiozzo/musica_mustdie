@@ -1,12 +1,43 @@
 # Ultimatum
 
-Дискография
-"Symphonic Extremities" 1995, Thrash
-"Puppet Of Destruction" 1998, Thrash
-"The Mechanics Of Perilous Times" 2000, Thrash
-"...Til the End! (EP)" 2006, Thrash
-"Into The Pit" 2007, Thrash
-"Lex Metalis" 2009, Thrash
+Thrash Metal
+
+## Дискография
+
+### "Symphonic Extremities" 1995, Thrash
+
+
+
+### "Puppet Of Destruction" 1998, Thrash
+
+
+
+### "The Mechanics Of Perilous Times" 2000, Thrash
+
+
+
+### "...Til the End! (EP)" 2006, Thrash
+
+
+
+### "Into The Pit" 2007, Thrash
+
+1.	One for All	
+2.	Exonerate	
+3.	Deathwish	
+4.	Blood Covenant	
+5.	Heart of Metal	
+6.	Wrathchild (Iron Maiden Cover)	
+7.	Transgressor	
+8.	Blink	
+9.	Blind Faith	
+10.	Into the Pit (Instrumental)	
+11.	Game Over
+
+### "Lex Metalis" 2009, Thrash
+
+
+
 
 ## Отношения с другими группами
 

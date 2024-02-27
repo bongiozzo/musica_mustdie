@@ -1,7 +1,13 @@
 # Eternal Blade, The
 
-Дискография
-"Eternal Blade, The" 2005, Black Metal
+
+
+## Дискография
+
+### "Eternal Blade, The" 2005, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

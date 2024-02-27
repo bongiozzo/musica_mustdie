@@ -1,11 +1,86 @@
 # Killswitch Engage
 
-Дискография
-"Killswitch Engage" 2002, Hardcore
-"Alive or Just Breathing" 2003, Hardcore
-"The End of Heartache" 2004, Hardcore
-"As Daylight Dies" 2006, Metalcore
-"Killswitch Engage" 2009, Metalcore
+Melodic metalcore
+
+## Дискография
+
+### "Killswitch Engage" 2002, Hardcore
+
+1. Temple From the Within
+2. Vide Infra
+3. Irreversal
+4. Rusted Embrace
+5. Prelude
+6. Soilborn
+7. Numb Sickened Eyes
+8. In The Unblind
+9. One Last Sunset
+
+### "Alive or Just Breathing" 2003, Hardcore
+
+1. Numbered Days
+2. Self Revolution
+3. Fixation on the Darkness
+4. My last Serenade
+5. Life to Lifeless
+6. Just Barely Breathing
+7. To Sons of Man
+8. Temple From the Within
+9. Element of One
+10. Vide Infra 
+11. Without A Name (Instrumental)
+12. Rise Inside
+
+### "The End of Heartache" 2004, Hardcore
+
+1. A Bid Farewell
+2. Take This Oath
+3. When Darkness Falls
+4. Rose Of Sharyn
+5. Inhale
+6. Breathe Life
+7. The End Of Heartache
+8. Declaration
+9. World Ablaze
+10. And Embers Rise
+11. Wasted Sacrifice
+12. Hope Is...
+
+### "As Daylight Dies" 2006, Metalcore
+
+1. As Daylight Dies 04:06 
+2. This Is Absolution 03:35
+3. The Arms Of Sorrow 03:50  
+4. Unbroken 03:10  
+5. My Curse 04:05 
+6. For You 04:11 
+7. Still Beats Your Name 03:20  
+8. Eye Of The Storm 03:56  
+9. Break The Silence 04:33  
+10. Desperate Times 04:41  
+11. Reject Yourself 04:44
+
+
+Howard Jones - vocals 
+Joel Stroetzel - guitars
+Adam Dutkiewicz - guitars, formerly drums 
+Mike D'Antonio - bass 
+Justin Foley - drums
+
+### "Killswitch Engage" 2009, Metalcore
+
+1. Never Again 03:09 
+2. Starting Over 03:52  
+3. The Forgotten 03:17 
+4. Reckoning 02:39 
+5. The Return 04:28 
+6. A Light in a Darkened World 02:51
+7. Take Me Away 02:47
+8. I Would Do Anything 03:22
+9. Save Me 03:44
+10. Lost 03:46
+11. This is Goodbye 04:16 
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,55 @@
 # Kivimetsan Druidi
 
-Дискография
-"Shadowheart" 2008, Folk
-"Betrayal, Justice, Revenge" 2010, Folk
+
+
+## Дискография
+
+### "Shadowheart" 2008, Folk
+
+1. Northwind - Prelude 01:29  
+2. Blacksmith 06:01  
+3. Jддssд Varttunut 05:51  
+4. Halls of Shadowheart 04:36  
+5. Pedon Loitsu 05:57
+6. Burden 04:31
+7. The Tyrant 05:44
+8. Tiarnдch - Verinummi 02:33  
+9. Verivala 04:01  
+10. Korpin Laulu 05:19  
+11. Mustan Valtikan Aika 07:00 
+
+Line-up:
+Leena-Maria - Vocals
+Joni - Growling vocals & guitar
+Antti - Keyboards & backing vocals
+Rinksa - Lead guitar
+Simo - Bass & backing vocals
+Atte - Drums & backing vocals
+
+The Choir: Joni, Antti, Atte, Vesa Virtanen, Esa Orjatsalo, Janne Virkki, Olle Korte, Pasi Itдniemi and Ville Konka.
+All arrangements by Kivimetsдn Druidi.
+Produced & recorded by Esa Orjatsalo at Noisecamp Studio in Turku June till August 2008.
+Additional edit by Timo Kuismanen & Artturi Laukkanen.
+Mixed by Esa Orjatsalo at Sonic Pump Studios in Helsinki.
+Mastered by Svante Fцrsback / Chartmakers Oy.
+Cover artwork by Martti Sinkkonen. 
+
+Track 2 and 3 are re-recordings of songs from the "Taottu" EP.
+Track 5 and 11 are re-recordings of songs from the "Mustan Valtikan Aika" EP.
+Tracks 6 and 7 are re-recordings of songs from the "The New Chapter" demo.
+
+### "Betrayal, Justice, Revenge" 2010, Folk
+
+1. Lament for the Fallen 02:01  
+2. Aesis Lilim 05:57 
+3. Seawitch and the Sorcerer 04:55 
+4. The Visitor 04:01
+5. Manalan vartija 03:13
+6. Tuoppein'nostelulaulu 04:57
+7. Chant of the Winged One 06:03
+8. Of Betrayal 06:33
+9. Desolation: White Wolf 06:13 
+
 
 ## Отношения с другими группами
 

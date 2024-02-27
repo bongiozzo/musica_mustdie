@@ -1,17 +1,180 @@
 # Helheim
 
-Дискография
-"Nidr Ok Nordr Liggr Helvegr" 1994, Black Metal
-"Jormundgand" 1995, Black Metal
-"Fenris" 1996, Black Metal
-" Av Norron Aett" 1997, Black Metal
-"Terrorveldet [EP]" 1999, Black Metal
-"Blod og Ild" 2000, Black Metal
-"Yersinia Pestis" 2003, Black Metal
-"The Journeys and Experiences of Death" 2006, Black Metal
-"Kaoskult" 2008, Black Metal
-"Asgards Fall" 2010, Black Metal
-"Heidindomr Ok Motgangr" 2011, Black Metal
+Viking-Crash-Black-Satan Metal
+
+## Дискография
+
+### "Nidr Ok Nordr Liggr Helvegr" 1994, Black Metal
+
+
+
+### "Jormundgand" 1995, Black Metal
+
+1. Jormundgand 07:47 
+2. Vigrids Vеrd 08:14
+3. Nidr Ok Nordr Liggr Helvegr 04:28
+4. Gravlagt I Eljudne 08:45 
+5. Svart Visdom 09:06
+6. Jotnevandring 02:26
+7. Nattravnens Tokt 05:10
+
+### "Fenris" 1996, Black Metal
+
+1.  Synders Makt
+2.  SagaMorket
+3.  Amok
+4.  Fimbulvinter
+
+Recorded and Mixed at X-Ray Studios.
+Engineered by Roger Berntzen and Pal Espen Johannesen.
+Cover artwork by Zeb.
+Band residence: USA.
+
+Zorn - Guitars, Bass. Drum Programming
+Jon - Vocals
+Zeb - Synth, Samples, Drum Programming
+
+(P)(C) 1997 NECROPOLIS Records // NR 6666
+
+### " Av Norron Aett" 1997, Black Metal
+
+1. En Forgangen Tid 02:54
+2. Vinterdшden 10:18 
+3. Fra Ginnunga-gap Til Evig Tid 06:50 
+4. Mшrk, Evig Vinter 09:25 
+5. Еpenbaringens Natt 07:24
+6. De Eteriske Еndevesenes Skumringsdans 08:45 
+7. Av Norrшn Жtt 09:34 
+
+### "Terrorveldet [EP]" 1999, Black Metal
+
+1. Helheim (Part I) 04:31  
+2. Jernskogen 04:38
+3. Cosmic Winter 05:45
+
+### "Blod og Ild" 2000, Black Metal
+
+1. Blod og Ild 04:55 
+2. Evig 04:06
+3. Helheim (Part II) 02:13  
+4. Jernskogen 03:44
+5. Еsgеrdsreien 04:18
+6. Kjenn Din Fiende 06:14
+7. Odins Mшy 04:29
+8. Terrorveldet 06:58
+9. Yme 02:44 
+
+### "Yersinia Pestis" 2003, Black Metal
+
+1. Helheim 4 01:32
+2. Yersinia Pestis 05:37
+3. Stones To The Burden 04:16
+4. Sinners Wake 03:43
+5. Elde 05:35
+6. Warlot 05:34  
+7. Den Glemte Lov 04:15 
+8. God of Slander 03:24  
+9. Iron Icon 9 03:50
+10. Hjelmstorm 04:31 
+
+### "The Journeys and Experiences of Death" 2006, Black Metal
+
+1. Veneration for the Dead
+2. Dead Man's Eyes 
+3. Bewitchment 
+4. Second Death 
+5. Entering the Beast 
+6. Helheim 5
+7. Oaken Dragons
+8. Thirteen to the Perished
+9. Threll and the Master
+
+### "Kaoskult" 2008, Black Metal
+
+1. Det Norrшne Alter 05:19  
+2. Northern Forces 04:17  
+3. Om Smerte og Liv 07:32  
+4. Om Tilblivelsen av Gapende Tomhet 03:31  
+5. Helheim 6 02:50  
+6. Еndevind 06:07  
+7. Symboler, Fremover og Bakover 03:07  
+8. Altered Through Ages 03:25  
+9. Svart Seid 04:45 
+
+V'gandr - Bass & Vocals
+H'grimnir - Rhythm Guitar & Vocals
+Thorbjшrn - Rhythm and Lead Guitar
+Lindheim - Keyboards
+Hrymr - Drums & Programming
+
+Guest artists:
+Rolf Royce - Vocals
+Bjшrnar Nilsen - Vocals
+Marius Lynghjem - Vocals & Programming
+
+Recorded in Conclave Studio
+Engineered by Bjшrnar Nilsen & Helheim. 
+
+### "Asgards Fall" 2010, Black Metal
+
+1. Еsgards Fall, Pt. I  09:28    
+2. Еsgards Fall (Interlude)  02:09    
+3. Еsgards Fall, Pt. II  12:02    
+4. Helheim, Pt. VII  01:04    
+5. Dualitet Og Ulver  04:35    
+6. Jernskogen (2010 Version)  04:13 
+
+
+
+Recorded at the Conclave and Earshot Studio in Bergen. Produced by Helheim and Bjornar Nilsen (Vulture Industries, Black Hole Generator), and was mastered by Herbrand Larsen (Enslaved, Audrey Horne).
+
+Guest members:
+Hoest - Vocals
+Gunnar Emmerhoff - Vocals
+PV - Vocals
+Trine Mjanger - French horn
+
+“Asgards Fall” offers two complete new and epic tracks which will only be found on this release. In addition, the release offers the song “Dualitet og Ulver” from the forthcoming album “Heiрenрomr ok motgangr” (out February 2011), as well as a re-recording of their classic track “Jernskogen” (originally from the “Blod & Ild” album). 
+
+
+### "Heidindomr Ok Motgangr" 2011, Black Metal
+
+1. Viten og mot (sindighet)  07:37    
+2. Dualitet og ulver  05:57    
+3. Viten og mot (stolthet)  06:16    
+4. Madr  05:51    
+5. Viten og mot (arvakenhet)  06:55    
+ 6. Element  06:40    
+7. Naudr  04:01    
+8. Viten og mot (bevissthet)  05:09    
+9. Helheim 8  04:37  
+
+
+
+
+Bonus DVD track-listing:
+
+Live at Inferno Metal Festival 2009:
+1. Northern Forces
+2. Bewitchment
+3. Jormundgand
+4. Det norrшne alter
+5. Jernskogen
+6. Nattravnens tokt
+
+Live at With Full Force Festival 2009:
+1. Jormundgand
+2. Oaken Dragons
+3. Det norrшne alter
+4. Bewitchment
+5. Nattravnens tokt
+
+Music videos:
+1. Dualitet og ulver (feat. Hoest)
+2. Jernskogen
+3. Stones to the Burden (live) 
+
+
 
 ## Отношения с другими группами
 

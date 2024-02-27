@@ -1,8 +1,26 @@
 # Oddland
 
-Дискография
-"The Treachery of Senses" 2012, Progressive
-"Origin" 2016, Progressive
+
+
+## Дискография
+
+### "The Treachery of Senses" 2012, Progressive
+
+1.	 Above and Beyond	04:46	 
+2.	 Flooding Light	05:00	 
+3.	 In the Eyes of the Mourning	04:27	 
+4.	 Aisle of Array	04:43	 
+5.	 Past the Gates	03:56	 
+6.	 Still the Spirits Stay	04:55	 
+7.	 In Endless Endeavour	03:58	 
+8.	 Sewers	05:18	 
+9.	 Lines of Silver Blood	05:31	 
+10.	 Ire	08:10	
+
+### "Origin" 2016, Progressive
+
+
+
 
 ## Отношения с другими группами
 

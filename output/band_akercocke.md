@@ -1,11 +1,60 @@
 # Akercocke
 
-Дискография
-"Rape of the Bastard Nazarene" 1999, Death Metal
-"The Goat of Mendes" 2001, Death Metal
-"Choronzon" 2003, Death Metal
-"Words That Go Unspoken, Deeds That Go Undone" 2005, Death Metal
-"Antichrist" 2007, Death Metal
+
+
+## Дискография
+
+### "Rape of the Bastard Nazarene" 1999, Death Metal
+
+1. Hell  
+2. Nadja  
+3. The Goat  
+4. Marguerite & Gretchen  
+ 5. Sephiroth Rising  
+6. Zulieka  
+7. Conjuration  
+8. Il Giardino Di Monte Oliveto Maggiore  
+9. Justine
+
+### "The Goat of Mendes" 2001, Death Metal
+
+1. Of Menstrual Blood And Semen  6:26 
+2. A Skin For Dancing In  7:19 
+3. Betwixt Iniquitatis And Prostigiators  2:13 
+4. Horns Of Baphomet  7:06 
+5. Masks Of God  4:53 
+6. The Serpent  3:48 
+7. Fortune My Foe  1:17 
+8. Infernal Rites  4:30 
+9. He Is Risen  4:48 
+10. Breaking Silence  4:17 
+11. Initiation  1:11 
+12. Ceremony Of Nine Angels  8:54 
+13. Infernal rites  44 Mb  video (MOV)
+
+### "Choronzon" 2003, Death Metal
+
+1. Praise the name of Satan  
+2. Prince of the East  
+3. Leviathan  
+4. Enraptured by Evil  
+5. Chorozon  
+6. Valley of the Crucified  
+7. Bathykolpian Avatar  
+8. Upon Coriacious Wings  
+9. Scapegoat  
+10. Son of the Morning  
+11. Becoming the Adversary  
+12. Goddess Flesh
+
+### "Words That Go Unspoken, Deeds That Go Undone" 2005, Death Metal
+
+
+
+### "Antichrist" 2007, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,41 @@
 # Hekate
 
-Дискография
-"Ten Years Of Endurance" 2003, Folk
-"Goddess" 2005, Folk
+Ambient, dark folk
+
+## Дискография
+
+### "Ten Years Of Endurance" 2003, Folk
+
+01. Burning Terror (перезаписанная песня с Sanctuary Tape Version, 1993)
+02. Endless Life (перезаписанная песня Track Chorea minor, 1993 Sanctuary Tape)
+03. Bad Dream Of Colour (The seventh sign CD 1995-96)
+04. The Sign Of The Silence (The seventh sign CD 1995 -96)
+05. Die Gedanken sind frei (Hambach 1848 Vinyl 350.lim 1998)
+06. Das Buergerlied (Hambach 1848 Vinyl 350.lim 1998)
+07. Heckers Traum (Hambach 1848 Vinyl 350.lim 1998)
+08. Unser die Welt, trotz alledem (Hambach 1848 Vinyl 350.lim 1998)
+08. To Break A Heart (Sonnentanz CD 2000)
+09. In Deinem Leben (Sonnentanz 2000)
+10. Dance Of L'Obscurite (Sonnentanz 2000)
+11. Tempo Di Lupi (Tempelt&#228;nze 2001)
+12. Ich hab' die Nacht getraeumt (Tempelt&#228;nze 2001)
+13. Barbarossa (ранее не издавалась)
+14. Sonnentanz (Sonnentanz CD 2000)
+
+### "Goddess" 2005, Folk
+
+Morgane le Fay 
+Montsйgur 
+Barbarossa 
+Morituri te salutant 
+Flammenlied 
+Lord of Heaven 
+Europa 
+Dance of Taurus 
+Maure 
+Ocean Blue 
+Break the silence
+
 
 ## Отношения с другими группами
 

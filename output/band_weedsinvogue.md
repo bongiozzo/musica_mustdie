@@ -1,9 +1,45 @@
 # Weeds in Vogue
 
-Дискография
-"Gravestone Poetry" 2001, Black Metal
-"The Bitchripper" 2002, Melodic Death Metal
-"Buried Until Now" 2004, Metal
+Moscow's Doom-Death-Black
+
+## Дискография
+
+### "Gravestone Poetry" 2001, Black Metal
+
+1. Under the veil of dusk and sorrow (intro) 
+2. Necrodance 
+3. Out of the dark caves 
+4. Widow's grief 
+5. To where the stars fall 
+6. Witchcunt 
+7. Love after death 
+8. Her pre-burial slumber dreams (outro) 
+
+### "The Bitchripper" 2002, Melodic Death Metal
+
+1. The Bitchripper
+2. Stolen By Heaven
+3. The Sweet Licks Of Death’s Scythe
+
+Mikhail Krasnov – guitars, bass, vocals
+Konstantin Timofeev – guitars
+Anna Kurmaeva – keyboards
+
+Recorded at CDM-Records Studio (Moscow), June 2002
+Produced, mixed, engineered and mastered by Lazar
+
+### "Buried Until Now" 2004, Metal
+
+1. Deliverance
+2. Porn Dead
+3. Stolen by Heaven
+4. The Bitchripper
+5. Suffering Beneath the Black Rainbow
+6. The Sweet Licks of Death’s Scythe
+7. Confess to the Fallen
+8. Buried Until Now
+9. Weeds
+
 
 ## Отношения с другими группами
 

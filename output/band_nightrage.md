@@ -1,11 +1,113 @@
 # Nightrage
 
-Дискография
-"Sweet Vengeance" 2003, Thrash
-"Descent Into Chaos" 2005, Thrash
-"A New Disease is Born" 2007, Melodic Death Metal
-"Wearing a Martyr's Crown " 2009, Melodic Death Metal
-"Insidious" 2011, Melodic Death Metal
+
+
+## Дискография
+
+### "Sweet Vengeance" 2003, Thrash
+
+1. The Tremor (3:17)
+2. The Glow Of The Setting Sun (4:09) 
+3. Hero (3:57) 
+4. Elusive Emotion (3:45) 
+5. Gloomy Daydreams (4:12)
+6. Macabre Apparition (3:31)
+7. In My Heart (3:19)
+8. Ethereal (4:50) 
+9. Circle Of Pain (4:21) 
+10. At The Ends Of The Earth (4:34)
+11. The Howls Of The Wolves (1:42) 
+
+
+### "Descent Into Chaos" 2005, Thrash
+
+
+
+### "A New Disease is Born" 2007, Melodic Death Metal
+
+1. Spiral 04:39 
+2. Reconcile 04:25 
+3. Death-Like Silence 04:36
+4. A Condemned Club 03:45 
+5. Scars 03:39 
+6. De-Fame 02:52  
+7. Scathing 04:36  
+8. Surge of Pity 04:12 
+9. Encircle 03:34
+10. Drone 03:23  
+11. Spiritual Impulse 03:33 
+12. A New Disease is Born (Instrumental) 02:58 
+
+
+
+Recorded at Hansen studios in Ribe, Denmark.
+Produced by Jacob Hansen.
+
+Line-up:
+Jimmie Strimell - Vocals
+Marios Iliopoulos - Guitars
+Henric Karlsson - Bass
+Alex Svenningson - Drums
+
+The Japanese version includes the bonus track:
+13. Ostentatious (3:17) 
+
+### "Wearing a Martyr's Crown " 2009, Melodic Death Metal
+
+1. Shed the Blood 04:13 
+2. Collision of Fate 05:13 
+3. A Grim Struggle 05:03  
+4. Wearing a Martyr's Crown 04:30 
+5. Among Wolves 04:29 
+6. Abandon 04:30 
+7. Futile Tears 05:18 
+8. Wounded Angels 04:00  
+9. Mocking Modesty 04:29 
+10. Failure of All Human Emotions 04:36  
+11. Sting of Remorse 05:21 
+
+
+Line-up:
+Antony Hдmдlдinen - Vocals
+Marios Iliopoulos - Guitars
+Olof Mцrck - Guitars
+Anders Hammer - Bass
+Johan Nunez - Drums
+
+Recorded at Studio Fredman in Gothenburg
+with producer Fredrik Nordstrцm.
+
+Bonus track for Limited Edition Digipak:
+12. Failure of All Human Emotions (Demo Version) (04:40)
+
+### "Insidious" 2011, Melodic Death Metal
+
+01. So far Away (intro) 01:19 
+02. Delirium Of The Fallen 04:14 
+03. Insidious 03:43 
+04. Wrapped In Deceitful Dreams 03:52 
+05. Hate Turns Black 04:31 
+06. Sham Piety 05:30 
+07. Cloaked In Wolf Skin 03:22 
+08. This World Is Coming To An End 03:27 
+09. Utmost End Of Pain 04:23 
+10. Poignant Memories 03:55 
+11. Hush Of Night 03:38 
+12. Poisoned Pawn 03:58 
+13. Solar Eclipse (Prelude) 00:35 
+14. Solar Corona 05:43 
+15. Emblem Of Light (Outro) 01:05
+
+
+Recorded by Terry Nikas at Zero Gravity Studios in Athens, Greece.
+ Vocals recorded by Ryan Butler at Arcane Digital Recording Studio in Arizona, USA.
+ Mixed and mastered by Fredrik Nordstrцm at Studio Fredman in Gothenburg, Sweden.
+ 
+* The track "16. Photograph (Def Leppard cover)" is only on the Japanese and the Digital Version of the album.
+ 
+Vinyl version will be released by Floga Records.
+ 400 copies on black and 100 copies on green-clear splatter vinyl. 
+
 
 ## Отношения с другими группами
 

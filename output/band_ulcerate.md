@@ -1,11 +1,29 @@
 # Ulcerate
 
-Дискография
-"Of Fracture and Failure" 2007, Techno Death
-"Everything Is Fire" 2009, Techno Death
-"The Destroyers of All" 2011, Techno Death
-"Vermis" 2013, Techno Death
-"Shrines of Paralysis" 2016, Techno Death
+
+
+## Дискография
+
+### "Of Fracture and Failure" 2007, Techno Death
+
+
+
+### "Everything Is Fire" 2009, Techno Death
+
+
+
+### "The Destroyers of All" 2011, Techno Death
+
+
+
+### "Vermis" 2013, Techno Death
+
+
+
+### "Shrines of Paralysis" 2016, Techno Death
+
+
+
 
 ## Отношения с другими группами
 

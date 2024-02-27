@@ -1,6 +1,9 @@
 # Brill Monglers
 
-Дискография
+swedish grindcore/noise
+
+## Дискография
+
 
 ## Отношения с другими группами
 

@@ -1,11 +1,83 @@
 # Wizards
 
-Дискография
-"Wizards" 1995, Power Metal
-"Sounds of Life" 1996, Power Metal
-"Beyond the Sight" 1998, Power Metal
-"The Kingdom" 2002, Power Metal
-"Best Spells" 2003, Power Metal
+
+
+## Дискография
+
+### "Wizards" 1995, Power Metal
+
+1. MAGIC MOON
+2. GUARDIANS OF THEIR OWN SOULS
+3. NEW LIFE
+4. DISTANT VOICE
+5. NO MORE
+6. ROCK'N ROLL FOREVER
+7. ARABIAN CARAVAN
+8. SOME FRIENDS
+9. FREEDOM
+10.WIZARDS
+
+### "Sounds of Life" 1996, Power Metal
+
+1. MADNESS
+2. PSYCHO MAZE
+3. DANGEROUS WAY
+4. A PROMISSE OF LOVE
+5. PICO
+6. I'LL BELIEVE
+7. REACH OUT
+8. BLACK CITY
+9. SOUND OF LIFE
+10.WIZARDS II
+
+### "Beyond the Sight" 1998, Power Metal
+
+1. W
+2. THUNDERBOLT
+3. CRACK
+4. SHINE (TRIBUTE TO HELLOWEEN)
+5. THE PLAY
+6. SHADOWS AND LIGHT
+7. I DONT'T GIVE A DAWN
+8. FLIGHT
+9. KILLING BLUES
+10.NEST OF WORDS
+11.MEMORIES OF AVALON
+
+### "The Kingdom" 2002, Power Metal
+
+1. The Kingdom
+2. King Without A Crown
+3. Fallen Angels
+4. Riding The Twilight
+5. Daydreaming
+6. Willing To Be Free
+7. Call Of War
+8. Sinners And Saints
+9. Love And Recall
+10. Step Back
+11. Bring Down The House
+
+### "Best Spells" 2003, Power Metal
+
+01. Magic Moon 
+02. Guardians Of Their Own Souls 
+03. Arabian Caravan 
+04. Freedom 
+05. Wizards 
+06. New Life 
+07. Pico 
+08. I'll Believe 
+09. Reach Out 
+10. A Promise Of Love 
+11. Wizards Ii 
+12. Thunderbolt 
+13. Shine 
+14. I Don't Give A Damn 
+15. Shadows And Light 
+16. Bring Down The House 
+17. King Without A Crown (Unplugged)
+
 
 ## Отношения с другими группами
 

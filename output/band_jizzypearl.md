@@ -1,7 +1,23 @@
 # Jizzy Pearl
 
-Дискография
-"Vegas Must Die" 2005, Hard Rock
+
+
+## Дискография
+
+### "Vegas Must Die" 2005, Hard Rock
+
+01. Hit and Miss
+02. True Love
+03. Look at You Now
+04. Little Dancer
+05. How'd I Get So Lonely
+06. Lies
+07. Long Time
+08. You Don't Own Me
+09. Only Wait So Long
+10. Ball and Gag
+11. Good Girl
+
 
 ## Отношения с другими группами
 

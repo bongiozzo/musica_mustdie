@@ -1,7 +1,20 @@
 # Mystical Gate
 
-Дискография
-"In Sadness Gloom" 2004, Doom
+
+
+## Дискография
+
+### "In Sadness Gloom" 2004, Doom
+
+1. Intro
+2. There stones weeping somewhere
+3. Then only rain can hide my tears
+4. Long for the sun...
+5. Long for the stars...
+6.  No mirror illusion can stop making you weak
+7.  Gloom
+8. Fling the doors open wide. Let wind go !
+
 
 ## Отношения с другими группами
 

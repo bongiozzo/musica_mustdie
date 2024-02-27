@@ -1,8 +1,29 @@
 # Frantic Amber
 
-Дискография
-"Burning Insight (single)" 2014, Melodic Death Metal
-"Burning Insight" 2015, Melodic Death Metal
+
+
+## Дискография
+
+### "Burning Insight (single)" 2014, Melodic Death Metal
+
+1. Burning Insight 04:27
+
+
+### "Burning Insight" 2015, Melodic Death Metal
+
+1. Intro 01:08
+2. Burning Insight 04:27
+3. Bleeding Sanity 04:18
+4. Soar 05:29 
+5. Drained 05:39
+6. Awakening 03:51
+7. Entwined 04:35
+8. Wrath of Judgement 05:01
+9. Unbreakable 05:23
+10. Destruction 05:31
+11. Ghost 05:52
+
+
 
 ## Отношения с другими группами
 

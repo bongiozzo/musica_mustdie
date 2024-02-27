@@ -1,17 +1,197 @@
 # Die Apokalyptischen Reiter
 
-Дискография
-"Soft & Stronger" 1998, Death Metal
-"Allegro Barbaro" 1999, Death Metal
-"All You Need Is Love" 2001, Death Metal
-"Have A Nice Trip" 2003, Metal
-"Samurai" 2004, Metal
-"Friede Sei mit Dir" 2006, Metal
-"Riders On The Storm" 2006, Metal
-"Der Weg (single)" 2008, Metal
-"Licht" 2008, Metal
-"Tobsucht [DVD]" 2008, Metal
-"Moral & Wahnsinn " 2011, Metal
+
+
+## Дискография
+
+### "Soft & Stronger" 1998, Death Metal
+
+Iron Fist
+The Almighty
+Execute
+Downfall
+Instinct
+V. A. D. E. R.
+Metal Will Never Die
+Dostulata
+Eye Of A Rose
+Slaves Of Hate
+To Live Is To Die
+Enslaved
+Human End
+
+### "Allegro Barbaro" 1999, Death Metal
+
+The last Hope burned down to Dust
+Sometimes
+Perfect without Mercy
+The March of Revenge
+Game of Violence
+Heavy Metal
+Dance with me
+The Fire
+The naked Beauty
+No Questions
+The Smell of Death
+Revelation
+Total Human End
+
+### "All You Need Is Love" 2001, Death Metal
+
+Licked By The Tongues Of Pride
+Unter der Asche
+Erhelle meine Seele
+Gone
+Regret
+Reitermania
+Hate
+Peace Of Mind
+Geopfert
+Rausch
+Die Schцnheit der Sklaverei
+Vom Ende der Welt
+
+### "Have A Nice Trip" 2003, Metal
+
+01. Vier Reiter stehen bereit
+02. Warum?
+03. Sehnsucht
+04. Terra Nola
+05. We Will Never Die
+06. Baila ConmМigo
+07. Ride On
+08. Du kleiner Wicht
+09. Komm
+10. Das Paradies
+11. Fatima
+12. Wo die Geister ganz still sterben
+13. Seid Willkommen
+14. Master Of The Wind
+
+die trip recording crew: fuchs (vocals, guitars),
+volk-man (bass,screams), dr.pest (keyboards), sir
+g. (drums, percussion)
+
+additional credits: frieder w.bergner (trombone
+on Baila ConmМigo), daniel hoffmann (trumpet on
+Baila ConmМigo), christian rosenau (acoustic
+guitars on Baila ConmМigo), andy classen
+(additiona guitars on warzum), volk-man (guitars
+on ride on), recorded and mixed at stage one
+studio.
+producer (Die Apokalyptischen Reiter & Andy
+Classen), mastering (ekki straus (turnstyle
+mastering)
+Band picture (anja thummler & thor wanzek), band
+logo & sun tribals (sascha ebrich), cover (Alf
+Svensson) layout (Volk-man)
+
+### "Samurai" 2004, Metal
+
+01. Wahnsinn
+02. Eruption
+03. Rock'N'Roll
+04. Silence Of Sorrow
+05. Der Teufel
+06. Reitermaniacs
+07. Barmherzigkeit
+08. Per Aspera Ad Astra
+09. Lazy Day
+10. Die Sonne schient
+11. Roll My Heart
+12. Hey-Ho
+13. Northern Lights
+
+### "Friede Sei mit Dir" 2006, Metal
+
+
+
+### "Riders On The Storm" 2006, Metal
+
+01. Friede Sei Mit Dir
+02. Riders On The Storm
+03. Seemann
+04. Der Adler
+05. Revolution
+06. Wenn ich traume
+07. Soldaten dieser Erde
+08. In The Land Of The White Horses
+09. Liebe
+10. Schenk mir heut Nacht
+11. Himmelskind
+12. Feuer (bonus)
+13. Mmmh
+14. Peace May Be With You (bonus)
+
+### "Der Weg (single)" 2008, Metal
+
+1. Der Weg 03:28  
+2. Es Wird Schlimmer 04:05  
+3. Ich Suche 04:16  
+4. Adrenalin (Monster mix version) 02:54 
+
+
+### "Licht" 2008, Metal
+
+
+
+### "Tobsucht [DVD]" 2008, Metal
+
+Wacken
+01. Enforcamento (Intro)
+02. …Vom Ende Der Welt
+03. Friede Sei Mit Dir
+04. Riders On The Storm
+05. Himmelskind
+06. …Und Vier Reiter Stehen Bereit
+07. Revolution
+08. Seemann
+09. Sehnsucht
+10. Drum Intermezzo
+11. MMMX
+12. We Will Never Die
+13. Der Kleine Wicht
+14. Reitermania
+15. Die Sonne Scheint
+16. Metal Will Never Die
+
+Party.San
+01. Kampfende Pferde (Intro)
+02. Geopfert
+03. Instinct
+04. Unter Der Asche
+05. Gone
+06. Die Schonheit Der Sklaverei
+07. The Fire
+08. Erhelle Meine Seele
+09. The March Of Revenge
+10. Drum Solo
+11. The Smell Of Death
+12. V.A.D.E.R.
+13. The Iron Fist
+14. Dostulata
+15. Metal Will Never Die
+
+Bonus:
+- Backstage Report
+- Roadmovie Russia / Ukraine
+- Fanvideo contest
+- Slide show
+
+### "Moral & Wahnsinn " 2011, Metal
+
+1. Die Boten	03:28	
+2. Gib dich hin	03:51	
+3. Hammer oder AmboЯ	03:34	
+4. Dir gehцrt nichts	03:03	
+5. Dr. Pest	03:54	
+6. Moral & Wahnsinn	03:12	
+7. Erwache	03:33	
+8. Heimkehr	01:45	
+9. Wir reiten	03:57	
+10. Hцrt auf	03:30	
+11. Ein liebes Lied	03:14
+
 
 ## Отношения с другими группами
 

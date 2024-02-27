@@ -1,6 +1,9 @@
 # Pantokrator
 
-Дискография
+melodic and brutal death metal
+
+## Дискография
+
 
 ## Отношения с другими группами
 

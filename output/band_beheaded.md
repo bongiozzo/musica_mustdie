@@ -1,10 +1,38 @@
 # Beheaded
 
-Дискография
-"Souldead (demo)" 1995, Death Metal
-"Perpetual Mockery" 1998, Death Metal
-"Resurgence Of Oblivion (mini CD)" 2000, Death Metal
-"Recounts Of Disembodiment" 2002, Death Metal
+death metal band from Malta
+
+## Дискография
+
+### "Souldead (demo)" 1995, Death Metal
+
+
+
+### "Perpetual Mockery" 1998, Death Metal
+
+
+
+### "Resurgence Of Oblivion (mini CD)" 2000, Death Metal
+
+1. Transmutation Of Veracity
+2. Extortion of Benevolence (full version)
+3. Resurgence of Oblivion
+4. Paramnesic Dream
+5. Suffer Some More
+
+### "Recounts Of Disembodiment" 2002, Death Metal
+
+1. Broken Thoughts Of Righteousness
+2. Horde Of The Stolen Sun
+3. Recounts Of Disembodiment (full version)
+4. Consecrated Absurdities
+5. Compelling Derangement
+6. Inherited Plague
+7. Fed Upon Odium
+8. Disdain
+9. Spreading Contagion
+10. Unbound
+
 
 ## Отношения с другими группами
 

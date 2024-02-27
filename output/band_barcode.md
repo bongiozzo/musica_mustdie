@@ -1,11 +1,69 @@
 # Barcode
 
-Дискография
-"Hard Jet Super Flash" 1997, Hardcore
-"Beerserk" 1999, Hardcore
-"Hardcore" 2002, Hardcore
-"Showdown" 2005, Hardcore
-"Ahead Of The Game" 2006, Hardcore
+
+
+## Дискография
+
+### "Hard Jet Super Flash" 1997, Hardcore
+
+
+
+### "Beerserk" 1999, Hardcore
+
+
+
+### "Hardcore" 2002, Hardcore
+
+
+
+### "Showdown" 2005, Hardcore
+
+01. Shots Out
+02. Rise To Dignity
+03. Showdown
+04. For What It's Worth
+05. Fanatics
+06. End The War
+07. No Lust For Life
+08. Bad Standing
+09. Drinkslinger
+10. In The Pit
+11. Make My Day
+12. Padre Sifferdi
+13. Game Of The Lame
+14. Stressed
+15. Aggressive Grim Filthy
+16. I'm A Rebel
+
+Butch - vocals
+Dr. J. - guitar
+Panter - guitar
+Rookie - bass
+Snick - drums
+
+Produced by Dr. J. at Smart'n'Hard Productions and
+Jailhouse Studios, December 2004.
+Mixed and mastered by Tue Madsen at Antfarm,
+December 2004 - January 2005.
+Photos by Jesper Norgaard Sorensen. Design and
+artwork by Adam Hansel, Dead Voltage Des.
+All music by Dr. J. All lyrics by Butch, except
+"Fanatics" by Panter.
+"I'm A Rebel" originally performed by Accept
+(written by George Alexander).
+Vocal battle on "End The War": Laurits Medom - As
+We Fight/The Produced.
+Recitation on "Fanatics": Kenrod - head coach of
+the Aarhus Crocodiles (ice hockey club).
+Backing vocals: Barcode, Jimmie and Jake (Blunt),
+Rob and Che (Born From Pain),
+Obeast (Mnemic), Dirk (PP), Kenrod and the Nuclear
+Porn Sisters from Hell (Yvette and Kathy).
+
+### "Ahead Of The Game" 2006, Hardcore
+
+
+
 
 ## Отношения с другими группами
 

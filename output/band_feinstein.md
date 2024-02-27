@@ -1,7 +1,13 @@
 # Feinstein
 
-Дискография
-"Third Wish" 2004, Heavy Metal
+hard'n'heavy
+
+## Дискография
+
+### "Third Wish" 2004, Heavy Metal
+
+
+
 
 ## Отношения с другими группами
 

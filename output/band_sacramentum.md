@@ -1,10 +1,76 @@
 # Sacramentum
 
-Дискография
-"Finis Malorum" 1995, Black Metal
-"Far Away From The Sun" 1996, Black Metal
-"The Coming Of Chaos" 1997, Death Metal
-"The Black Destiny" 1999, Death Metal
+
+
+## Дискография
+
+### "Finis Malorum" 1995, Black Metal
+
+1. Moonfog
+2. Travel With The Northern Winds
+3. Devide Et Impera
+4. Pagan Fire
+5. Finis Malorum (Outro)
+
+All Songs By SACRAMENTUM.
+Produced & Mixed By Dan Swano & SACRAMENTUM.
+Engineered By Dan Swano.
+Recorded In Unisound Studios.
+
+Mikael Ryden - Drums
+Freddy Andersson - Bass
+Nisse Karlen - Vocals, Guitar
+Anders Brolucke - Guitars
+
+(P)&(C) 1995 ADIPOCERE Records
+
+### "Far Away From The Sun" 1996, Black Metal
+
+1. Fog's Kiss
+2. Far Away From The Sun
+3. Blood Shall Be Spilled
+4. When Night Surrounds Me
+5. Cries From A Restless Soul
+6. Obsolete Tears
+7. Beyond All Horizons
+8. The Vision And The Voice
+9. Outro - Darkness Falls For Me / Far Away From The Sun (Part II)
+
+All songs written by SACRAMENTUM.
+Produced by SACRAMENTUM.
+Recorded and mixed at Unisound Studios.
+
+Nicklas Rudolfsson - Drums
+Nisse Karlen - Vocals, Bass
+Anders Brolycke - Guitars
+
+(p)c 1996 ADIPOCERE Records
+
+### "The Coming Of Chaos" 1997, Death Metal
+
+01. Dreamdeath 
+02. ..As Obsidian
+03. Awaken Chaos
+04. Burning Lust 
+05. Abyss of Time 
+06. Portal of Blood 
+07. Black Destiny 
+08. To the Sound of Storms
+09. The Coming of Chaos
+
+### "The Black Destiny" 1999, Death Metal
+
+01. Ironwinds 
+02. The Manifestation
+03. Shun the Light
+04. Demonaeon 
+05. Overlord 
+06. Deathobsession
+07. Spiritual Winter
+08. Rapturous Paradise
+09. Weave of Illusion 
+10. Thy Black Destiny
+
 
 ## Отношения с другими группами
 

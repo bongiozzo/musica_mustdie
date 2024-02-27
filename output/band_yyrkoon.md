@@ -1,10 +1,49 @@
 # Yyrkoon
 
-Дискография
-"Oniric Transition" 1998, Death Metal
-"Dying Sun" 2002, Thrash
-"Occult Medicine" 2004, Thrash
-"Unhealthy Opera" 2006, Thrash
+melodic thrash death
+
+## Дискография
+
+### "Oniric Transition" 1998, Death Metal
+
+
+
+### "Dying Sun" 2002, Thrash
+
+
+
+### "Occult Medicine" 2004, Thrash
+
+1. Intro 00:16  
+2. Doctor X 03:56  
+3. Censored Project 04:36  
+4. Blasphemy 04:11  
+5. Occult Medicine 06:51  
+6. Revenant Horde 04:49  
+7. Reversed World 04:31  
+8. Trapped Into Life 04:17  
+9. Surgical Distortion 04:37  
+10. Schyzophrenic Carnage 03:39  
+11. Erase The Past 04:35
+
+### "Unhealthy Opera" 2006, Thrash
+
+1. Something Breathes   
+2. Unhealthy Opera   
+3. From the Depths   
+4. Avatar Ceremony   
+5. Temple of Infinity   
+6. Abnormal Intrusion   
+7. Screaming Shores   
+8. The Book   
+9. Horror from the Sea   
+10. Lair...   
+11. ...Of Madness   
+12. Injecting Dementia 
+
+Features a guest appearance by KING DIAMOND guitarist Andy LaRocque on the song
+"Horror from the Sea".
+
 
 ## Отношения с другими группами
 

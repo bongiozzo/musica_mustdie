@@ -1,22 +1,139 @@
 # Ratos De Porao
 
-Дискография
-"Crucificados Pelo Sistema" 1984, Punk
-"Descanse Em Paz" 1986, Punk
-"Dirty & Aggressive" 1987, Thrash
-"Brasil" 1989, Crossover
-"Anarchophobia" 1991, Thrash
-"RDP Ao Vivo (Live)" 1992, Crossover
-"Just Another Crime In Massacreland" 1994, Thrash
-"Feijoada Acidente? - Brasil" 1995, Crossover
-"Feijoada Acidente? - International" 1995, Crossover
-"Carniceria Tropical" 1997, Crossover
-"Guerra Civil Canibal (EP)" 2000, Thrash
-"Sistemados Pelo Crucifa" 2001, Crossover
-"Onisciente Coletivo" 2002, Crossover
-"Ao Vivo No CBGB (Live)" 2003, Crossover
-"Homem Inimigo Do Homem" 2006, Crossover
-"Seculo Sinistro" 2014, Crossover
+Brasilian Thrash, Friends Of SEPULTURA
+
+## Дискография
+
+### "Crucificados Pelo Sistema" 1984, Punk
+
+
+
+### "Descanse Em Paz" 1986, Punk
+
+
+
+### "Dirty & Aggressive" 1987, Thrash
+
+1. Tatoo Maniax
+2. Ignorance
+3. General Crisis
+4. Death & Despair
+5. L.E.D.D.M.A.
+6. Trench Hole Thoughts
+7. Sexual Plaque
+8. To Feel Hate & Nothing Else
+9. Street Corner Mugging
+10.There Are No Other Lines
+
+ Gordo - Vocals
+ Jao - Guitar
+ Jaba - Bass
+ Spaghetti - Drums
+
+All Songs By RATOS DE PORAO.
+Produced By Harris Johns.
+
+(p)&(c) 1992 COGUMELO Records
+
+### "Brasil" 1989, Crossover
+
+
+
+### "Anarchophobia" 1991, Thrash
+
+1. Counting The Dead
+2. Death Or The KIng
+3. Born To Suffer
+4. Rise And Fall
+5. Mad Society
+6. Harted
+7. Anarchophobia
+8. Universal Church
+9. Commando
+10.T.V. Slave
+
+(p)&(c) 1991 ROADRACER Records
+
+### "RDP Ao Vivo (Live)" 1992, Crossover
+
+
+
+### "Just Another Crime In Massacreland" 1994, Thrash
+
+1. Money
+2. Massacreland
+3. Diet Paranoia
+4. Satanic Bullshit
+5. Breaking All The Rules
+6. C.R.A.C.K.
+7. Video Macumba
+8. The Right Side Of Wrong Life
+9. Suposicollor
+10.Real Enemies
+11.Quando Ci Vuole,Ci Vuole !
+12.Bad Trip
+13.Ultra Seven No Uta
+
+Gordo - Laulu
+Jao - Kitarat
+Bart - Basso
+Boka - Rummut
+
+All Songs Written By R.D.P.
+Produced By Alex Newport.
+Engineered By Beto Machado.
+Recorded At Be Bop Sound Studio,Brazil.
+
+(p)&(c) 1994 ROADRUNNER Records
+
+### "Feijoada Acidente? - Brasil" 1995, Crossover
+
+
+
+### "Feijoada Acidente? - International" 1995, Crossover
+
+
+
+### "Carniceria Tropical" 1997, Crossover
+
+
+
+### "Guerra Civil Canibal (EP)" 2000, Thrash
+
+
+
+### "Sistemados Pelo Crucifa" 2001, Crossover
+
+
+
+### "Onisciente Coletivo" 2002, Crossover
+
+
+
+### "Ao Vivo No CBGB (Live)" 2003, Crossover
+
+
+
+### "Homem Inimigo Do Homem" 2006, Crossover
+
+
+
+### "Seculo Sinistro" 2014, Crossover
+
+01. Conflito Violento
+02. Neocanibalismo
+03. Grande Bosta
+04. Sangue & Bunda
+05. S&#233;culo Sinistro
+06. Jornada Para O Inferno
+07. Pren&#250;ncio De Treta
+08. Stress P&#243;s-Traum&#225;tico
+09. Viciado Digital
+10. Boiada Pra Bandido
+11. Progreria Of Power (Anti-Cimex Cover)
+12. Puta, Viagra E Corrup&#231;&#227;o
+13. Pra Fazer Pobre Chorar
+
 
 ## Отношения с другими группами
 

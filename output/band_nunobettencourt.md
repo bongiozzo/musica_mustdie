@@ -1,9 +1,57 @@
 # Nuno Bettencourt
 
-Дискография
-"Schizophonic" 1997, Instrumental
-"Mourning Widows" 1999, Instrumental
-"Furnished Souls for Rent" 2000, Instrumental
+(Ex-Extreme guitar player)
+
+## Дискография
+
+### "Schizophonic" 1997, Instrumental
+
+     Gravity   
+     Swollen Princess   
+     Crave   
+     What You Want   
+     Fallen Angel   
+     2 Weeks In Dizkneelande   
+     Pursuit of Happiness   
+     Fine By Me   
+     Karmalaa   
+     Confrontation   
+     Note on the Screen Door   
+     I Wonder   
+     Got to Have You   
+     You   
+     Severed
+
+### "Mourning Widows" 1999, Instrumental
+
+1 All Automatic 6:53 (Nuno) 
+2 Paint the Town Red 4:54 (Nuno) 
+3 Temp 4:33 (Nuno) 
+4 Air That You Breathe 4:40 (Nuno) 
+5 I Wanna Be Your Friend 7:07 (Nuno) 
+6 Hotel Asylum 5:52 (Nuno) 
+7 Over & Out 4:50 (Nuno) 
+8 Love Is a Cigarette 6:18 (Nuno) 
+9 Too Late 5:02 (Nuno) 
+10 True Love in the Galaxy 6:55 (Nuno) 
+11 Sex in a Jar [Demo Version] 5:41 (Nuno) 
+12 And the Winner Is... [Demo Version] 5:23 (Nun) 
+
+
+### "Furnished Souls for Rent" 2000, Instrumental
+
+1 Furnished Souls for Rent 5:04 (Mourning Widows) 
+2 No Regrets 4:43 (Mourning Widows) 
+3 Upsidedownside 4:42 (Mourning Widows) 
+4 Monkey Play 4:04 (Mourning Widows) 
+5 667 4:35 (Mourning Widows) 
+6 Space 5:33 (Mourning Widows) 
+7 Swing 4:01 (Mourning Widows) 
+8 Fuck You 5:00 (Mourning Widows) 
+9 War Paint 4:25 (Mourning Widows) 
+10 Angerexia 5:01 (Mourning Widows) 
+
+
 
 ## Отношения с другими группами
 

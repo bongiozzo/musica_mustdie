@@ -1,8 +1,78 @@
 # Sons Of Seasons
 
-Дискография
-"Gods Of Vermin" 2009, Progressive
-"Magnisphyricon" 2011, Progressive
+
+
+## Дискография
+
+### "Gods Of Vermin" 2009, Progressive
+
+1. The Place Where I Hide 01:10  
+2. Gods Of Vermin 06:00  
+3. A Blind Man's Resolution 04:38  
+4. Fallen Family 05:11  
+5. The Piper 04:55  
+6. Wheel Of Guilt 07:59  
+7. Belial's Tower 06:21  
+8. Fall Of Byzanz 06:33  
+9. Wintersmith 05:24  
+10. Dead Man's Shadows 03:48  
+11. Sanatorim Song 05:43  
+12. Third Moon Rising 07:11  
+13. Melanchorium 07:06 
+
+Line-up:
+
+Oliver Palotai - Keyboards, Guitars
+Henning Basse - Vocals
+Jьrgen Steinmetz - Bass
+Daniel Schild - Drums
+
+Release dates:
+Apr. 29 - Finland, Spain
+Apr. 30 - Germany, Austria, Switzerland, Belgium, Netherlands, Luxembourg,
+France, Italy, Sweden
+May 04 - Rest of Europe
+May 19 - USA, Canada
+
+Track 13 is a bonus track and can be found on the digipak edition.
+
+Recorded at Vocalbase Studio (Lьneburg), Deep Fridge Studios (Aachen) and Rhцn
+Records (Fulda).
+Produced by Sons of Seasons.
+Co-produced by Alex Krull.
+Drum engineering by Norman Meiritz.
+Recorded, mixed, mastered at Mastersound Studios (Steinheim) by Alex Krull.
+All music by Oliver Palotai except "Sanatorium Song" by Henning Basse and
+Oliver Palotai.
+All vocal lines by Henning Basse and Oliver Palotai except "Gods of Vermin",
+"The Piper", "A Blind Man's Resolution" and "Sanatorium Song" by Henning Basse,
+Oliver Palotai and Tijs Vanneste; "Fallen Family" and "Wintersmith" by Henning
+Basse, Oliver Palotai and Simone Simons.
+Guest vocals by Simone Simons, Mark Jansen and Tijs Vanneste.
+Additional choir by Christian Meyke and Jan Peter.
+Guitar solo on "Sanatorium Song" by Luca Princiotta.
+Sons of Seasons logo by RMDdesign.
+Artwork and layout by Stefan Heilemann.
+Photography by Stefan Heilemann, Simone Simons, John Simons and Rudy DeDoncker.
+
+### "Magnisphyricon" 2011, Progressive
+
+1. Magnisphyricon: Temperance 02:03  
+2. Bubonic Waltz 05:47  
+3. Soul Symmetry 05:01  
+4. Sanctuary 05:56  
+5. Casus Belli I: Guilt's Mirror 06:01  
+6. Magnisphyricon: Adjustement 00:41  
+7. Into the Void 05:17  
+8. A Nightbird's Gospel 07:03  
+9. Tales of Greed 04:56  
+10. Lilith 05:30  
+11. Casus Belli II: Necrologue to the Unborn 05:26  
+12. Magnisphyricon: The Aeon 00:23  
+13. 1413 06:53  
+14. Yesteryears 05:06 
+
+
 
 ## Отношения с другими группами
 

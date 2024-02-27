@@ -1,10 +1,70 @@
 # Vendetta
 
-Дискография
-"Go And Live...Stay And Die" 1988, Thrash
-"Brain Damage" 1988, Thrash
-"Hate" 2007, Thrash
-"Feed the Extermination" 2011, Thrash
+
+
+## Дискография
+
+### "Go And Live...Stay And Die" 1988, Thrash
+
+ Side One: Go And Live...
+1. Suicidal Lunacy * 6.41
+2. Go And Live...Stay And Die + 4.23
+3. Traitor`s Fate *+ 6.07
+ Side Two: ...Stay And Die
+1. System Of Death * 7.59
+2. Drugs And Corruption + 1.13
+3. Revolution Command * 5.23
+4. On The Road *+ 3.18
+
+Daxx - Guitars & Vocals On *
+Micky - Lead Guitars & Vocals On +
+Samson - Drums
+Heiner - Bass
+
+Produced By VENDETTA & Harris Johns.
+
+(p)&(c) 1988 NOISE International
+
+### "Brain Damage" 1988, Thrash
+
+ Side One:
+1. War
+2. Brain Damage
+3. Conversation
+4. Precious Existence
+ Side Two:
+1. Never Die
+2. Love Song
+3. Fade To Insanity
+4. Dominance Of Violence
+5. Metal Law
+
+(p)&(c) 1988
+
+### "Hate" 2007, Thrash
+
+1.	 Hannibal	03:10
+2.	 Lying Society	02:53
+3.	 Guerrillas	03:45
+4.	 Hate	05:25
+5.	 Prepare Your Self For Hostility	03:14
+6.	 Mother	04:09
+7.	 Rise For Revolution	04:15
+8.	 Dead People Are Cool	02:58
+
+### "Feed the Extermination" 2011, Thrash
+
+1.	 Feed the Extermination	05:06	 
+2.	 Tremendous Brutality	05:58	 
+3.	 Cancer	04:30	 
+4.	 Ovulation Bitch	04:01	 
+5.	 Storage of Anger	04:36	 
+6.	 Dog in the Manger	05:23	 
+7.	 De-Organ-Izer	04:07	 
+8.	 Abuse	07:30	 
+9.	 Trust in God	04:05	 
+10.	 Till I'm Dead	03:49
+
 
 ## Отношения с другими группами
 

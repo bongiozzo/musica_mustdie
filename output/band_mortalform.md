@@ -1,8 +1,35 @@
 # Mortal Form
 
-Дискография
-"Evil Reborn" 2002, Thrash
-"Taste the Blood" 2009, Thrash
+
+
+## Дискография
+
+### "Evil Reborn" 2002, Thrash
+
+1. Write my Death   
+2. End of Times   
+3. Animal Dynamo   
+4. Am I Fooled   
+5. Subject Saccharine   
+6. Two Bloody Years   
+7. Resurrector   
+8. Birth in the Cesspool   
+9. Shader   
+10. P.O.S. 
+
+### "Taste the Blood" 2009, Thrash
+
+1. The Uprising 04:06  
+2. From Ape to Christ 04:36  
+3. Besiege 05:06  
+4. Construction of Deconstruction 05:45  
+5. Territorial 04:03  
+6. King of Gauls 03:04  
+7. Blasphemer 03:47  
+8. Guts in the Gutter 04:02  
+9. Taste the Blood 04:13  
+10. Screwed 04:38 
+
 
 ## Отношения с другими группами
 

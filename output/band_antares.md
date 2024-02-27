@@ -1,9 +1,35 @@
 # Antares
 
-Дискография
-"Sad Hope" 2001, Death Metal
-"Made In Fear" 2003, Techno Death
-"Mind Collectors" 2005, Techno Death
+
+
+## Дискография
+
+### "Sad Hope" 2001, Death Metal
+
+1. Sad Hope   
+2. The Affect   
+3. Autumn of Life   
+4. Tears of Empty Blind Eyes   
+5. Dark Lake   
+6. Inter Faeces et Urinam Nascimur   
+7. The Walz of Death   
+8. Scrub (Stolen Birthday)
+
+### "Made In Fear" 2003, Techno Death
+
+
+
+### "Mind Collectors" 2005, Techno Death
+
+1. Mind Collectors
+2. Unirony
+3. Fly with Breeze
+4. Dialogue III
+5. Deamon Within
+6. Triumph
+7. Guilty or Not 
+8. Requiem
+
 
 ## Отношения с другими группами
 

@@ -1,14 +1,202 @@
 # Insomnium
 
-Дискография
-"In The Halls Of Awaiting" 2002, Melodic Death Metal
-"Since The Day It All Came Down" 2004, Melodic Death Metal
-"Above the Weeping World" 2006, Melodic Death Metal
-"Across the Dark" 2009, Melodic Death Metal
-"Weather The Storm (single)" 2011, Melodic Death Metal
-"One For Sorrow" 2011, Melodic Death Metal
-"Shadows of the Dying Sun" 2014, Melodic Death Metal
-"Winter's Gate" 2016, Melodic Death Metal
+Melodic Death Metal from Finland
+
+## Дискография
+
+### "In The Halls Of Awaiting" 2002, Melodic Death Metal
+
+1. Ill-Starred Son 04:46 
+2. Song of the Storm 04:22
+3. Medeia 04:21 
+4. Dying Chant 04:13  
+5. The Elder 04:46 
+6. Black Water 05:00
+7. Shades of Deep Green 07:33 
+8. The Bitter End 05:08 
+9. Journey Unknown 04:32 
+10. In The Halls of Awaiting 10:55 
+
+
+Recorded at Media Works Studios, by Jone Vддnдnen in August 2001
+Mixed at Astia-Studio A by Anssi Kippo
+Mastered at Finnvox by Mika Jussila
+
+All arrangements by Insomnium
+Keyboards by Varpu Vahtera
+
+Photography by Heikki Kokkonen
+Band photos by Sakari Lindell
+Booklet design and layout by Ville Kaisla
+
+### "Since The Day It All Came Down" 2004, Melodic Death Metal
+
+1. Nocturne 01:57  
+2. The Day It All Came Down 04:57 
+3. Daughter of The Moon 06:09 
+4. The Moment of Reckoning 05:47 
+5. Bereavment 04:16 
+6. Under The Plaintive Sky 04:10
+7. Resonance 02:29  
+8. Death Walked The Earth 05:10 
+9. Disengagement 08:39
+10. Closing Words 04:26  
+11. Song of The Forlorn Son 05:45 
+
+
+Recorded and mixed at Mediaworks Studios, Joensuu, between July and September
+2003 by Jone Vддnдnen, assisted by Timo Pekkarinen 
+Mastered at Finnvox by Mika Jussila 
+Produced by Insomnium and Jone Vддnдnen 
+
+All arrangements by Insomnium 
+Keyboards by Jone Vддnдnen except 
+tracks 6 and 11 by Aleksi Munter 
+Cellos by Laura Naire
+
+### "Above the Weeping World" 2006, Melodic Death Metal
+
+1. The Gale 02:41  
+2. Mortal Share 04:00  
+3. Drawn to Black 06:00  
+4. Change of Heart 04:31  
+5. At the Gates of Sleep 07:05  
+6. The Killjoy 05:23  
+7. Last Statement 07:32  
+8. Devoid of Caring 05:40  
+9. In the Groves of Death 10:08
+
+### "Across the Dark" 2009, Melodic Death Metal
+
+1. Equivalence 03:18
+2. Down With The Sun 04:22
+3. Where The Last Wave Broke 05:03
+4. The Harrowing Years 06:39
+5. Against The Stream 06:11
+6. Lay Of The Autumn 09:08
+7. Into The Woods 05:08
+8. Weighed Down With Sorrow 05:51
+
+
+Line-up:
+ Niilo Sevanen - Vocals, Bass
+ Ville Friman - Guitar
+ Ville Vanni - Guitar
+ Marcus Hirvonen - Drums
+ 
+The CD was recorded at Fantom Studios.
+ 
+Guest musicians:
+ Clean vocals - Jules Naveri (Profane Omen, Enemy of The Sun)
+ Keyboards - Aleksi Munter (Swallow the Sun) 
+
+Special edition bonus tracks:
+ 09. The New Beginning (07:15)
+ 10. Into the Evernight (05:28)
+ 
+The bonus track "In the Evernight" was recorded during the "Since the Day it All Came Down" sessions. 
+
+### "Weather The Storm (single)" 2011, Melodic Death Metal
+
+1. Weather the Storm [feat. Mikael Stanne] 04:55
+2. Beyond the Horizon 05:11
+
+
+Markus Hirvonen Drums 
+Ville Friman Guitars 
+Niilo Sevanen Bass, Vocals 
+Ville Vanni Guitars 
+
+
+
+### "One For Sorrow" 2011, Melodic Death Metal
+
+1. Inertia 03:43
+2. Through The Shadows 04:31
+3. Song of the Blackest Bird 07:29
+4. Only One Who Waits 05:17
+5. Unsung 05:04
+6. Every Hour Wounds 05:25
+7. Decoherence 03:18
+8. Lay the Ghost to Rest 07:46
+9. Regain the Fire 04:27
+10. One For Sorrow 06:07
+
+
+Markus Hirvonen - Drums 
+Ville Friman - Guitars 
+Niilo Sevanen - Vocals, bass 
+Ville Vanni - Guitars 
+
+
+
+### "Shadows of the Dying Sun" 2014, Melodic Death Metal
+
+1. The Primeval Dark  03:17    
+2. While We Sleep  06:20    
+3. Revelation  05:15   
+4. Black Heart Rebellion  07:03    
+5. Lose to Night  04:59    
+6. Collapsing Words  04:38    
+7. The River  07:57    
+8. Ephemeral  04:01 
+9. The Promethean Song  06:41    
+10. Shadows of the Dying Sun  06:32 
+
+
+Released on April 28th in Europe and on April 29th in North America.
+ Drums recorded at Studio SF Sound.
+ Rest of the instruments recorded at Studio Korkeakoski.
+ Mixed at Fascination Street Studios.
+ Mastered at Chartmakers.
+
+ Released as:
+ * CD
+ * 2 CD Digipack
+ * 2 LP
+ * Casket edition cardboard box, including:
+ - 2 CD (Limited Digipak)
+ - T-shirt
+ - Textile Flag (75 x 110 cm)
+ - Signed postcard (A5)
+ - Patch
+
+ Second CD tracklisting:
+ 01. Out to the Sea (05:17)
+ 02. The Emergence
+ 03. The Swarm
+ 04. The Descent 
+ (Tracks 2-4 originally appeared on the "Ephemeral" EP)
+
+
+
+### "Winter's Gate" 2016, Melodic Death Metal
+
+1. Winter's Gate, Pt. 1  06:14   
+2. Winter's Gate, Pt. 2  06:37  
+3. Winter's Gate, Pt. 3  05:51  
+4. Winter's Gate, Pt. 4  05:26  
+5. Winter's Gate, Pt. 5  04:20 
+6. Winter's Gate, Pt. 6  05:12  
+7. Winter's Gate, Pt. 7  06:18    
+  
+This is a concept album based on the short story "Winter's Gate", written by Niilo Sevanen.
+
+Includes:
+- Regular CD of the album.
+- A bonus CD featuring the audiobook version of the story.
+- 16-page booklet featuring the story in Finnish, English and German language.
+- Expanded artwork.
+- Sticker.
+
+
+Recorded during March - April 2016 at various studios:
+- Drums recorded at Sound Studio in Lehmo, Finland.
+- Bass, guitars and vocals recorded at Studio Korkeakoski in Kotka, Finland.
+- Keyboards recorded at Noisework Productions in Jyvaskyla, Finland.
+Mixed and mastered in May 2016 at Unisound in Finspang, Sweden.
+
+
 
 ## Отношения с другими группами
 

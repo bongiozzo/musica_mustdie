@@ -1,7 +1,13 @@
 # Happy The Man
 
-Дискография
-"The Muse Awakens" 2004, Progressive
+
+
+## Дискография
+
+### "The Muse Awakens" 2004, Progressive
+
+
+
 
 ## Отношения с другими группами
 

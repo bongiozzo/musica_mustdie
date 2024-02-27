@@ -1,8 +1,38 @@
 # Sunrise
 
-Дискография
-"Liberty" 2008, Power Metal
-"Trust Your Soul" 2010, Power Metal
+
+
+## Дискография
+
+### "Liberty" 2008, Power Metal
+
+1. Born To Find
+2. Gone With The Time
+3. Illusion Of Life
+4. Lies And Truth
+5. Hear Me
+6. Stay With Me
+7. Look To Eternity	 
+8. Inside Of The Rising Sun
+9. Can You Feel The Pain?
+10. Travel
+11. Ілюзія Життя
+
+### "Trust Your Soul" 2010, Power Metal
+
+1. Trust Your Soul
+2. All This Time
+3. You And Me
+4. Man In The World
+5. Love Will Set You Free
+6. Dreamer Online
+7. Hey!
+8. Relax
+9. Tell Me Why
+10. Forgotten Secrets
+11. Invisible Place
+12. Дух Всесвіту (Bonus Track)
+
 
 ## Отношения с другими группами
 

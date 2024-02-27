@@ -1,9 +1,54 @@
 # Shadow
 
-Дискография
-"Shadow" 2001, Melodic Death Metal
-"Forever Chaos" 2008, Melodic Death Metal
-"Forever Chaos" 2008, Ambient
+Melodic death metal from Japan
+
+## Дискография
+
+### "Shadow" 2001, Melodic Death Metal
+
+1. The Arrival At The Last Quarter 04:49  
+2. Lunar Eclipse 03:54  
+3. Eden 05:18  
+4. Weep For The Sin 03:13  
+5. Beyond The Drizzly Nights 06:55  
+6. The Reunion In Soul Asylum 03:36  
+7. Breath Of Awakening 04:10  
+8. Observes From The Satellite 04:27  
+9. Towards Obession 05:34 
+
+
+
+Tokiko Shimamoto - vocals 
+Yuichi Sumimoto - guitars 
+Shinichiro Okada - guitars 
+Yoshio Kubo - bass 
+Mitsuhiro Enomoto - drums 
+
+### "Forever Chaos" 2008, Melodic Death Metal
+
+1. Forever Chaos 04:24  
+2. The Existence Of Suffering 04:30  
+3. Before True Light 04:43  
+4. Within The Winter Silence 03:21  
+5. The Orators 03:24  
+6. Master Of Impieties 03:54  
+7. Wings Of Flame 04:08  
+8. My Apologies 03:54  
+9. Shudders Hell 03:37  
+10. Land Of A Dream 06:08  
+11. Black Magic (Cover of Slayer) 03:26 
+
+
+Tokiko Shimamoto - Vocals
+Yuichi Sumimoto - Guitar
+Yoshio Kubo - Bass
+Shinichiro Okada - Guitar
+Mitsuhiro Enomoto - Drums 
+
+### "Forever Chaos" 2008, Ambient
+
+
+
 
 ## Отношения с другими группами
 

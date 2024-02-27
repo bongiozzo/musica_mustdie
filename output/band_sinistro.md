@@ -1,8 +1,17 @@
 # Sinistro
 
-Дискография
-"Sinistro" 2012, Metal
-"Semente" 2016, Metal
+
+
+## Дискография
+
+### "Sinistro" 2012, Metal
+
+
+
+### "Semente" 2016, Metal
+
+
+
 
 ## Отношения с другими группами
 

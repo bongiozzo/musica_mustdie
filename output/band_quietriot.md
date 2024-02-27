@@ -1,17 +1,166 @@
 # Quiet Riot
 
-Дискография
-"Quiet Riot I" 1977, Hard Rock
-"Quiet Riot II" 1978, Hard Rock
-"Metal Health" 1983, Hard Rock
-"Condition Critical" 1984, Hard Rock
-"QR III" 1986, Hard Rock
-"Quiet Riot" 1988, Hard Rock
-"Terrified" 1993, Heavy Metal
-"Down To The Bone" 1995, Heavy Metal
-"Alive And Well" 1999, Heavy Metal
-"Guilty Pleasures" 2001, Heavy Metal
-"Rehab" 2006, Heavy Metal
+
+
+## Дискография
+
+### "Quiet Riot I" 1977, Hard Rock
+
+1. It's Not So Funny 03:48
+2. Mama's Little Angels 03:05
+3. Tin Soldier (Small Faces Cover) 03:31
+4. Ravers 03:07 
+5. Back to the Coast 02:48
+6. Glad All Over (Dave Clark Five Cover) 03:09
+7. Get Your Kicks 02:48 
+8. Look In Any Window 03:36
+9. Just How You Want It 02:45 
+10. Riot Reunion 02:08
+11. Fit To Be Tied 03:26 
+12. Demolition Derby 02:15 
+
+### "Quiet Riot II" 1978, Hard Rock
+
+1. Slick Black Cadillac 05:10
+2. You Drive Me Crazy 04:17
+3. Afterglow (Of Your Love) (Small Faces cover) 03:37
+4. Eye for an Eye 04:02
+5. Trouble 05:10
+6. Killer Girls 04:50
+7. Face to Face 04:38 
+8. Inside You 04:49 
+9. We've Got the Magic 04:40 
+
+### "Metal Health" 1983, Hard Rock
+
+1. Metal Health 05:16
+2. Cum On Feel The Noize (Slade cover) 04:50
+3. Don't Wanna Let You Go 04:42
+4. Slick Black Cadillac 04:12
+5. Love's A Bitch 04:11
+6. Breathless 03:51
+7. Run For Cover 03:38
+8. Battle Axe 01:38  
+9. Let's Get Crazy 04:08 
+10. Thunderbird 04:43 
+
+### "Condition Critical" 1984, Hard Rock
+
+1. Sign of the Times 05:03
+2. Mama Weer All Crazee Now 03:38
+3. Party All Night 03:32
+4. Stomp Your Hands, Clap Your Feet 04:38
+5. Winners Take All 05:32
+6. Condition Critical 05:02
+7. Scream And Shout 04:01
+8. Red Alert 04:28
+9. Bad Boy 04:21
+10. (We Were) Born To Rock 03:34 
+
+### "QR III" 1986, Hard Rock
+
+1. Main Attraction 04:43
+2. The Wild and The Young 03:37
+3. Twilight Hotel 04:35 
+4. Down and Dirty 03:15
+5. Rise or Fall 04:01
+6. Put Up or Shut Up 04:07 
+7. Still of the Night 04:42
+8. Bass Case 00:59  
+9. The Pump 04:02
+10. Slave to Love 03:55 
+11. Helping Hands 04:13 
+
+### "Quiet Riot" 1988, Hard Rock
+
+1. Stay With Me Tonight 04:29
+2. Callin' The Shots 04:41
+3. Run To You 04:38
+4. I'm Fallin' 04:17
+5. King Of The Hill 04:24
+6. Joker 03:55
+7. Lunar Obsession 01:44  
+8. Don't Wanna Be Your Fool 05:02
+9. Coppin' A Feel 03:44
+10. In A Rush 02:38
+11. Empty Promises 04:26 
+
+### "Terrified" 1993, Heavy Metal
+
+1. Cold Day in Hell 06:03  
+2. Loaded Gun 06:20  
+3. Itchycoo Park (Small Faces cover) 03:56
+4. Terrified 04:13  
+5. Rude Boy 05:50  
+6. Dirt Lover 05:44  
+7. Psycho City 06:00  
+8. Rude, Crude Mood 03:45  
+9. Little Angel 03:58  
+10. Resurrection 06:10 
+
+### "Down To The Bone" 1995, Heavy Metal
+
+1. Dig 05:51
+2. Pretty Pack O' Lies 04:40
+3. All Day And All Of The Night (The Kinks cover) 03:16
+4. Whatever It Takes 06:24  
+5. Wings Of A Cloud 05:06
+6. Trouble Again 05:57
+7. Down To The Bone 04:32 
+8. Voodoo Brew 05:50 
+9. Monday Morning Breakdown 06:00 
+10. Live 'Til It Hurts 05:22 
+11. Twisted 05:24 
+12. All Wound Up 04:32 
+13. Hell Or High Water 04:25
+14. Wings Of A Cloud (revisited) 01:26 
+
+### "Alive And Well" 1999, Heavy Metal
+
+1. Don't Know What I Want 04:52
+2. Angry 05:22 
+3. Alive and Well 05:03 
+4. The Ritual 06:07 
+5. Overworked and Underpaid 05:36
+6. Slam Dunk (Way To Go!) 03:23
+7. Too Much Information 04:28 
+8. Against The Wall 04:46
+9. Highway to Hell 03:59
+10. Sign Of The Times 04:53 
+11. Don't Wanna Let You Go 04:52 
+12. The Wild and the Young 05:32
+13. Mama Weer All Crazee Now 03:21 
+14. Cum on Feel The Noize 04:40
+15. Metal Health 05:15 
+
+### "Guilty Pleasures" 2001, Heavy Metal
+
+1. Vicious Circle 05:29  
+2. Feel The Pain 05:00  
+3. Rock The House 04:46  
+4. Shadow Of Love 04:18  
+5. I Can't Make You Love Me 05:20  
+6. Feed The Machine 04:04  
+7. Guilty Pleasures 04:09  
+8. Blast From The Past 03:38  
+9. Let Me Be The One 05:43  
+10. Street Fighter 03:22  
+11. Fly To High 04:56 
+
+### "Rehab" 2006, Heavy Metal
+
+1. Free 04:04 
+2. Blind Faith 03:23 
+3. South of Heaven 05:32
+4. Black Reign 05:48
+5. Old Habits Die Hard 06:17
+6. Strange Daze 04:15 
+7. In Harm's Way 04:31
+8. Beggars and Thieves 06:38
+9. Don't Think So 04:51
+10. It Sucks to Be You 04:00
+11. Evil Woman 08:49 
+
 
 ## Отношения с другими группами
 

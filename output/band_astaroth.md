@@ -1,11 +1,86 @@
 # Astaroth
 
-Дискография
-"Christenfeind, EP" 1996, Black Metal
-"Sklavengott" 1997, Black Metal
-"Violent Soundtrack Martyrium" 1999, Black Metal
-"Annus Suprimus" 2001, Black Metal
-"Organic Perpetual Hatework" 2005, Black Metal
+
+
+## Дискография
+
+### "Christenfeind, EP" 1996, Black Metal
+
+1. Astaroth 00:38  
+2. Onward To Destroy 04:15  
+3. Beyond Forgotten Times 05:38  
+4. Pagan Rites 06:09  
+5. In Medieval Winterstorms 03:49
+
+### "Sklavengott" 1997, Black Metal
+
+1. Iskariots Kiss 01:57  
+2. For Those We Hate 02:48  
+3. Revelations Of A New Dimension 03:58 
+4. Sklavengott 04:48  
+5. Kyrie Astaroth Eleison 05:14  
+6. Rape The Shining Stars In The Sky 04:19  
+7. Christenfeind 03:36  
+8. We, Princes Of Darkness 03:54 
+9. Symphony For A Requiem 03:22
+10. Black Decade 02:14 
+
+
+BERSERKER - Revelations
+STYX - Requiem Strings
+MYR - Bass
+ASTAROTH - Sado Drums
+
+Produced by Claus Prellinger
+Recorded at CCP-Studio, Linz, January 97
+All music and lyrics by ASTAROTH
+
+### "Violent Soundtrack Martyrium" 1999, Black Metal
+
+1. O.M.D. (Orchestral Manoever in the Dark) 00:18  
+2. In Memorium - Heavenly Creatures 04:56 
+3. Enter the Darkside of Eden 09:32 
+4. Invisible in Heaven 08:21  
+5. The Millenium (Embodiment Forsaken) 06:47 
+6. Resistance (The Rebellion) 11:43
+7. Members of the Black Empire (Finishing Move) 06:33
+
+### "Annus Suprimus" 2001, Black Metal
+
+1. Black decade 02:23  
+2. Christenfeind 03:33  
+3. In medieval winterstorms 03:47  
+4. Pagan rites 06:09  
+5. Beyond forgotten times 05:40  
+6. Onward to destroy 04:14  
+7. Buch der Weisheit (Videoclip)   
+8. Kyrie Astaroth eleison (Live Videoclip)   
+9. Rape the shining stars in the sky (Live Videoclip) 
+
+
+Re-Mastered Demo with the Videoclip "Buch der Weisheit" and 2 Live Videoclips
+
+### "Organic Perpetual Hatework" 2005, Black Metal
+
+1. The Machinist 02:30  
+2. Bloodwork 07:03  
+3. Lateral Ergonomic Organic Marooned 04:37  
+4. Soulcloned 05:01  
+5. Eugenic (designed duality) 03:47  
+6. Perpetual Spirit 06:21  
+7. Accursed 07:17 
+
+
+All songs written by ASTAROTH
+Produced by Claus Prellinger
+Recorded and mixed at CCP Studio
+
+Nemesis - Screams, Guitars, All Keyboards, Synth and Programming
+Beowulf - Bass
+Astaroth - Drums
+
+Inch (session musician) - Guitars and Programming
+
 
 ## Отношения с другими группами
 

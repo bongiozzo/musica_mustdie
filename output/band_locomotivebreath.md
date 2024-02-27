@@ -1,7 +1,39 @@
 # Locomotive Breath
 
-Дискография
-"Change Of Track" 2006, Hard Rock
+heavy metal
+
+## Дискография
+
+### "Change Of Track" 2006, Hard Rock
+
+1. H.M.M 
+2. Shadow 
+3. What I've Become 
+4. Leaving My Heart With You 
+5. Speed Driven 
+6. Feel My Rage 
+7. Firestarter 
+8. High On Illusion 
+9. Phyxious 
+10. Kingdom Of Tragedy 
+11. Chains Around Heaven 
+12. I'll Be Fighting 
+13. Gargleblaster 
+
+Mattias Osbдck: Vocals, 
+Janne Stark: Guitars, 
+Ted Wernersson: Drums, 
+Marcel Jacob: Bass 
+
+Guests 
+Hank Shermann (FORCE OF EVIL, MERCYFUL FATE, FATE etc), 
+Mattias Ia Eklundh (FREAK KITCHEN), 
+Tommy Denander (RADIOACTIVE), 
+Lars Eric Mattsson (MATTSSON), 
+Per Karlsson (UNCHAINED), 
+David Blomй (UNCHAINED) and 
+Boner (THE BONES).
+
 
 ## Отношения с другими группами
 

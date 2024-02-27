@@ -1,8 +1,24 @@
 # Summoner
 
-Дискография
-"Summoner' Sign" 2002, Death Metal
-"Winter Solstice" 2003, Melodic Death Metal
+(black/death metal with gothic influences from Italy)
+
+## Дискография
+
+### "Summoner' Sign" 2002, Death Metal
+
+
+
+### "Winter Solstice" 2003, Melodic Death Metal
+
+1. Following Your Insight 
+2. Winter Solstice 
+3. Gaia Flowered Mantle  
+4. The Epoch Of Stillness  
+5. In Dreamy Lullabies
+6. My Epitaph  
+7. Renewed  
+8. Forever Fellows
+
 
 ## Отношения с другими группами
 

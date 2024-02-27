@@ -1,6 +1,9 @@
 # Blockheads
 
-Дискография
+french fast grindcore/hardcore
+
+## Дискография
+
 
 ## Отношения с другими группами
 

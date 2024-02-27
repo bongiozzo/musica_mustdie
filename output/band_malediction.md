@@ -1,7 +1,27 @@
 # Malediction
 
-Дискография
-"Chronicles Of Dissection" 1994, Death Metal
+
+
+## Дискография
+
+### "Chronicles Of Dissection" 1994, Death Metal
+
+1. Mould Of An Industrial Horizon
+2. Weeping Tears Of Covetousness
+3. Infestation
+4. Framework Of Contortion
+5. Longterm Result
+6. System Fear
+7. Doctrines Eternal Circles
+
+All Music & Lyrics By MALEDICTION
+Produced by Matt & MALEDICTION
+Engineered by Matt
+Recorded at 16-tracks at St.Mary's Hall,
+Middlesbrough, England.
+
+(P)c 1994 GWB Records
+
 
 ## Отношения с другими группами
 

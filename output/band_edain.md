@@ -1,7 +1,17 @@
 # Edain
 
-Дискография
-"Through Thought and Time" 2009, Techno Death
+
+
+## Дискография
+
+### "Through Thought and Time" 2009, Techno Death
+
+1. The Downward Spiral 04:42
+2. Fragments of Frail Designs 09:40
+3. Aphrodisiac 04:59
+4. Eden Lies Obscured 10:06
+5. Earn Your Pain 04:51 
+
 
 ## Отношения с другими группами
 

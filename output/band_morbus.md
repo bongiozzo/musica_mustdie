@@ -1,7 +1,18 @@
 # Morbus
 
-Дискография
-"Punishment" 2000, Death Metal
+death-metal from Italy
+
+## Дискография
+
+### "Punishment" 2000, Death Metal
+
+Punishment
+Devoid Of Soul
+Afterglows
+From The Sky...
+Hope Of Life
+L.M.D.
+
 
 ## Отношения с другими группами
 

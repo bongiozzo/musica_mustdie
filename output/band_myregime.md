@@ -1,7 +1,26 @@
 # My Regime
 
-Дискография
-"Dogmas" 2016, Thrash
+Spice plays SLAYER
+
+## Дискография
+
+### "Dogmas" 2016, Thrash
+
+A BLACK STONE
+A.A.
+MIND THE GAP
+DARKNESS WILL ARISE
+ELECTRIC NIGHTINGALE
+AGONY IN THE GARDEN
+SUICIDE CRIST
+THE BUTCHER OF LA CABANA
+CUBA LIBRE
+ACCRETION
+CLEAN WITH FIRE
+THE FAKE BREEZE OF SUMMER
+THE GHOST
+GET IN LINE
+
 
 ## Отношения с другими группами
 

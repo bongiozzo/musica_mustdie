@@ -1,11 +1,84 @@
 # Black Messiah
 
-Дискография
-"Sceptre Of Black Knowledge" 1998, Black Metal
-"Oath Of A Warrior" 2005, Metal
-"Of Myths And Legends" 2006, Metal
-"First War Of The World" 2009, Metal
-"The Final Journey" 2012, Metal
+
+
+## Дискография
+
+### "Sceptre Of Black Knowledge" 1998, Black Metal
+
+1. Intro 01:24  
+2. Old Gods 09:19  
+3. Diabolic Rites 02:55  
+4. Queen Of Darkness 05:36  
+5. Sceptre Of Black Knowledge 03:37  
+6. Crusade Of The Blackened 07:29  
+7. Pagan Winter 06:36  
+8. Outro 01:24
+
+### "Oath Of A Warrior" 2005, Metal
+
+1. Gotterdammerung 02:48  
+2. A New Messiah 07:04 
+3. Blutsbruder 04:47
+4. Bury the Lambs of Christ 07:18  
+5. Setting Sails 02:06  
+6. Riding the Drakkar 03:34
+7. Christenfeind 07:18 
+8. Feld der Ehre 04:36 
+9. Entering the Halls of Odhinn 02:08  
+10. My Way to Asgaard 06:48  
+11. Der Eid 08:13
+
+### "Of Myths And Legends" 2006, Metal
+
+1. In Remembrance 01:43  
+2. Of Myths And Legends 04:47  
+3. Irminsul 04:11  
+4. Father Of War 05:11  
+5. Sauflied 03:26  
+6. Howl Of The Wolves 04:04  
+7. Erik, Der Rote 04:57  
+8. Lokis Tanz 01:51  
+9. Die Sьhne Des Feuerbringers 05:05  
+10. Moskau 04:01  
+11. The Bestial Hunt Of The Fenrizwolf 03:44
+
+### "First War Of The World" 2009, Metal
+
+01. Prologue - The Discovery (2:53)
+02. The Vanir Tribe (5:54)
+03. Gullveig (8:08)
+04. Von Rachsucht Und Luege (5:34)
+05. March Of The Warriors (0:39)
+06. Vor Den Toren Valhalls (6:23)
+07. The Battle Of Asgaard (7:10)
+08. The Chase (1:20)
+09. Burn Vanaheim (5:36)
+10. Das Unterpfand (5:51)
+11. Peace At A High Price (0:54)
+12. Andacht (9:41)
+13. Soeldnerschwein (4:36)
+
+Zagan - Vocals, Violin, Guitar
+Garm - Bass
+Zoran - Lead Guitar
+Meldric - Guitar
+Agnar - Keys, Synths
+Brцh - Drums
+
+### "The Final Journey" 2012, Metal
+
+1.	 Windloni	05:10	 
+2.	 Der Ring Mit Dem Kreuz	08:35	 
+3.	 To Become a Man	06:10	 
+4.	 Into the Unfathomed Tower (A Tribute to Candlemass)	03:18	 
+5.	 Feld Der Ehre	04:29	 
+6.	 Lindisfarne	05:00	 
+7.	 The Naglfar Saga : Prologue - The Final Journey	03:47	 
+8.	 The Naglfar Saga : Mother Hel	05:43	 
+9.	 The Naglfar Saga : On Board	06:43	 
+10.	 The Naglfar Saga : Sailing Into Eternity	06:28
+
 
 ## Отношения с другими группами
 

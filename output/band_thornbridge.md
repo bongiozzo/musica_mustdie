@@ -1,7 +1,13 @@
 # Thornbridge
 
-Дискография
-"What Will Prevail" 2016, Power Metal
+
+
+## Дискография
+
+### "What Will Prevail" 2016, Power Metal
+
+
+
 
 ## Отношения с другими группами
 

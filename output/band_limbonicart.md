@@ -1,13 +1,91 @@
 # Limbonic Art
 
-Дискография
-"Moon in Scorpio" 1996, Black Metal
-"In Abhorrence Dementia" 1997, Black Metal
-"Epitome of Illusions" 1998, Black Metal
-"Ad Noctum: Dynasty of Death" 1999, Black Metal
-"The Ultimate Death Worship" 2002, Black Metal
-"Legacy of Evil" 2007, Black Metal
-"Phantasmagoria" 2010, Black Metal
+Kick ass Sympho-Black Metal
+
+## Дискография
+
+### "Moon in Scorpio" 1996, Black Metal
+
+1.  Beneath The Burial Surface
+2.  Moon In The Scorpio
+3.  Through Gleams Of Death
+4.  In Mourning Mystique
+5.  Beyond The Candles Burning
+6.  Darkzone Martyrium
+
+Daemon - Vocals, Guitars, Nocturnal Poetry
+Morteus - Guitars, Vocals, Keymaster
+
+(P)(C) 1997 NOCTURNAL ART Prod // ECLIPSE 005
+
+### "In Abhorrence Dementia" 1997, Black Metal
+
+In abhorrence dementia
+A demonoid virtue
+A venomous kiss of profane grace
+When mind and flesh departs 
+Deathtrip to a mirage asylum 
+Under burdens of life's holocaust 
+Oceania 
+Behind the mask obscure
+Misanthropic spectrum
+
+
+    Daemon   Lead Vocals, Guitars, Nocturnal Poetry
+    Morteus  Lead Guitars, Vocals, Keymaster
+
+### "Epitome of Illusions" 1998, Black Metal
+
+Symphony in moonlight and nightmares
+Eve of midnight
+Path of ice
+Sources to agonies
+Solace of the shadows
+The black hearts nirvana
+Arctic odyssey
+
+### "Ad Noctum: Dynasty of Death" 1999, Black Metal
+
+The dark paranormal calling
+As the bell of immolation calls
+Pits of the cold beyond
+Dynasty of death
+The supreme sacrifice
+In embers of infernal greed
+The yawning abyss of madness
+
+### "The Ultimate Death Worship" 2002, Black Metal
+
+
+
+### "Legacy of Evil" 2007, Black Metal
+
+1. A Cosmic Funeral Of Memories 07:39  
+2. A Void Of Lifeless Dreams 04:51  
+3. Grace By Torments 05:20  
+4. Infernal Phantom Kingdom 05:30  
+5. Legacy Of Evil 05:37  
+6. Lycanthropic Tales 06:44  
+7. Nebulous Dawn 04:42  
+8. Seven Doors Of Death 07:07  
+9. Twilight Omen 07:22  
+10. Unleashed From Hell 04:14
+
+### "Phantasmagoria" 2010, Black Metal
+
+1. Prologue / Phantasmagoria 05:02
+2. Crypt of Bereavement 05:52
+3. Curse of the Necromancer 06:22
+4. Portal to the Unknown 04:22
+5. Dark Winds 05:40
+6. A World in Pandemonium 06:43
+7. Flight of the Minds Eye 03:48
+8. Apocalyptic Manifestation 04:02
+9. Prophetic Dreams 05:40
+10. The Burning Vortex 06:54
+11. A Black Sphere of Serenity 08:24
+12. Astral Projection 08:13
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,49 @@
 # Mystifier
 
-Дискография
-"Goetia" 1993, Black Metal
-"Wicca" 1993, Black Metal
+Member Pyogenesis
+
+## Дискография
+
+### "Goetia" 1993, Black Metal
+
+1. Aleister Crowley And Ordo Templi Orientis
+2. An Elizabethan Devil Worshipper's Prayer Book
+3. The Sign Of The Unholy Cross
+4. Caerimonia Sanguilentu (Goetia)
+5. Beelzebuth
+6. The Realm Of Antichristus
+7. The True Story About The Doctor Faust's Pact With Mephistopheles
+8. Cursed Excruciation / The Sinuous Serpent Of Genesis (Leviathan)
+9. The Baphometic Goat Of Knights Templar In The 12th Century
+
+ Asmodeus  - Vocals
+ Behemoth  - Lead Guitar
+ Astaroth  - Lead Guitar
+ Beelzebuth  - Bass Guitar
+ Lucefuge Rofocale - Drums
+
+All Keyboards By Ze Luiz
+All Songs Written By MYSTIFIER
+Produced By Beelzebuth
+Engineered & Mixed By Michael Hoffmann
+Recorded & Mixed May-June '93 At ProAudio Studio
+
+(p)&(c) 1993 OSMOSE PRODUCTION
+
+### "Wicca" 1993, Black Metal
+
+1. The Witch Voisin Recites Our Gloat 
+2. Osculum Obscenun 
+3. Tormentum Aeternum 
+4. Cursed Excruciation 
+5. Defloration (The Antichrist Lives) 
+6. (Invocacione) The Almighty  Sathanas 
+7. The Dark Kingdom (T.E.A.R.) 
+8. An Elizabethan Devil Worshippers Prayer Book
+9. Hyoscyamus Niger 
+10. Mystifier (Satanґs Messengers) 
+11. Our Gloat
+
 
 ## Отношения с другими группами
 

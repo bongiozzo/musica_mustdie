@@ -1,12 +1,33 @@
 # Killer
 
-Дискография
-"Ready For Hell" 1980, Heavy Metal
-"Wall Of Sound" 1981, Heavy Metal
-"Shock Waves" 1984, Heavy Metal
-"Fatal Attraction" 1990, Heavy Metal
-"Broken Silence" 2003, Heavy Metal
-"Immortal" 2005, Heavy Metal
+
+
+## Дискография
+
+### "Ready For Hell" 1980, Heavy Metal
+
+
+
+### "Wall Of Sound" 1981, Heavy Metal
+
+
+
+### "Shock Waves" 1984, Heavy Metal
+
+
+
+### "Fatal Attraction" 1990, Heavy Metal
+
+
+
+### "Broken Silence" 2003, Heavy Metal
+
+
+
+### "Immortal" 2005, Heavy Metal
+
+
+
 
 ## Отношения с другими группами
 

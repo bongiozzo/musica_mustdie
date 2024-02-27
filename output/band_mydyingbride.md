@@ -1,30 +1,390 @@
 # My Dying Bride
 
-Дискография
-"Symphonaire Infernus Et Spera Empyrium" 1991, Death Doom
-"As The Flowers Withers" 1992, Death Doom
-"The Thrash Of Naked Limbs" 1993, Death Doom
-"Turn Loose The Swans" 1993, Death Doom
-"I Am The Bloody Earth" 1994, Death Doom
-"The Angel And The Dark River" 1995, Death Doom
-"Live At The Dynamo" 1996, Death Doom
-"Like Gods Of The Sun" 1996, Death Doom
-"34.788%... Complete" 1998, Death Doom
-"The Light At The End Of The World" 1999, Death Doom
-"Meisterwerk-1" 2000, Death Doom
-"The Dreadful Hours" 2001, Death Doom
-"Meisterwerk-2" 2001, Death Doom
-"Voice Of The Wretched (live)" 2002, Death Doom
-"Songs Of Darkness, Words Of Light" 2004, Death Doom
-"A Line Of Deathless Kings" 2006, Death Doom
-"Deeper Down (single)" 2006, Death Doom
-"An Ode to Woe [CD/DVD]" 2008, Death Doom
-"For Lies I Sire" 2009, Death Doom
-"Evinta" 2011, Death Doom
-"A Map Of All Our Failures " 2012, Death Doom
-"The Manuscript" 2013, Death Doom
-"Hollow Cathedra (single)" 2015, Doom
-"Feel The Misery" 2015, Death Doom
+Classic English Doom
+
+## Дискография
+
+### "Symphonaire Infernus Et Spera Empyrium" 1991, Death Doom
+
+1. Symphonaire Infernus Et Spera Empyrium   Act I
+2. Symphonaire Infernus Et Spera Empyrium   Act II
+3. God Is Alone
+4. De Sade Soliloquay
+
+ Aaron - Vocals
+ Andy - Guitar
+ Calvin - Guitar
+ Ade - Bass
+ Rick - Drums
+
+Produced By Hammy.Engineered By Keith Appleton.
+Violin Composed And Played By Martin Powell.
+Recorded At Academy Studios, West Yorkshire,
+August / September 1991.
+
+(p) 1991 PEACEVILLE Records
+(c) 1991 VILE MUSIC Records Vile 27
+
+### "As The Flowers Withers" 1992, Death Doom
+
+1. Silent Dance
+2. Sear Me
+3. The Forever People
+4. The Bitterness & The Bereavement
+5. Vast Choirs
+6. The Return Of The Beautiful
+7. Erotical Literature *
+
+ Aaron - Vocals
+ Andy - Guitar
+ Calvin - Guitar
+ Ade - Bass
+ Rick - Drums
+
+* Bonus CD's Track.
+Produced By Hammy & MY DYING BRIDE.
+Violin Composed And Played By Martin Powell.
+Horn By Wolfgans Bremmers.
+Engineered By Keith Appleton.
+Mastered At Transfermation, London By Noel
+Summerville.
+
+(p) 1992 PEACEVILLE Records
+(c) 1992 VILE MUSIC Records Vile 32
+
+### "The Thrash Of Naked Limbs" 1993, Death Doom
+
+1. The Thrash Of Naked Limbs
+2. Le Cerf Malade
+2. Gather Me Up Forever
+
+ Aaron - Vocals
+ Andy - Guitar
+ Calvin - Guitar
+ Ade - Bass
+ Rick - Drums
+ Martin - Violin
+
+All Songs By MY DYING BRIDE.
+Engineered By Mags.
+Recorded At Academy Studios, 11-th & 12-th
+September, 1992.
+
+(p) 1993 PEACEVILLE Records
+(c) 1993 VILE MUSIC Records   Vile 37
+
+### "Turn Loose The Swans" 1993, Death Doom
+
+1. Sear Me MCMXCIII
+2. Your River
+3. The Songless Bird
+4. The Snow In My Hand
+5. The Crown Of Sympathy
+6. Turn Loose The Swans
+7. Black God *
+
+ Aaron - Vocals
+ Andrew - Guitar
+ Calvin - Guitar
+ Ade - Bass
+ Rick - Drums
+ Martin - Violin,Keyboards
+ Zena - Female Vocals On *
+
+All Songs By MY DYING BRIDE
+Produced By MY DYING BRIDE & Mags
+Engineered By Mags
+Recorded & Mixed At Academy Studios,
+West Yorkshire, In June & July 1993
+
+(p) 1993 PEACEVILLE Records
+(c) 1993 VILE MUSIC Records   Vile 39
+
+### "I Am The Bloody Earth" 1994, Death Doom
+
+1. I Am The Bloody Earth
+2. Transcending  (Into The Exquisite)
+3. Crown Of Sympathy (Remix)
+
+ Aaron - Vocals
+ Andrew - Guitar
+ Calvin - Guitar
+ Rick - Drums
+ Martin - Violin, Keyboards
+ Ase - Bass
+
+All Songs By MY DYING BRIDE
+1: Produced By Mags & MY DYING BRIDE
+Engineered By Mags
+Recorded At Academy Studios June-July 1993
+Extra Vocals By Ghost
+2: Produced At Finsbury Street Studios, York
+3: Produced By MY DYING BRIDE
+
+(p)&(c) 1994 PEACEVILLE Records
+
+### "The Angel And The Dark River" 1995, Death Doom
+
+1. The Cry Of Mankind
+2. From Darkest Skies
+3. Black Voyage
+4. A Sea To Suffer In
+5. Two Winters Only
+6. Your Shameful Heaven
+
+Recorded & Mixed At Academy Studios Dec.-Jan. 1995
+Produced By Mags & MDB.
+Cover & Photos By Aaron
+
+(p)&(c) 1995 PEACEVILLE Records
+
+### "Live At The Dynamo" 1996, Death Doom
+
+1. Your River (8.13)
+2. A Sea To Suffer In (6.21 )
+3. Your Shameful Heaven (6.37)
+4. The Forever People (4.S2)
+
+All songs written by MY DYING BRIDE.
+Recorded live at The Dynamo 1995.
+
+Aaron - Vocals
+Andrew - Guitar
+Calvin - Guitar
+Rick - Drums
+Martin - Violin, Keyboards
+Ase - Bass
+
+(p)c 1996 PEACEVILLE Records
+
+### "Like Gods Of The Sun" 1996, Death Doom
+
+1. Like The Gods Form The Sun
+2. The Dark Caress
+3. Grace Unhearing
+4. A Kiss To Remember
+5. All Swept Away
+6. For You
+7. It Will Come
+8. Here In The Throat
+9. Fallen Angel
+
+All songs written by MY DYING BRIDE.
+Recorded & Mixed At Academy Studios.
+Produced By Mags, Calvin & Andy.
+
+(p)c 1996 PEACEVILLE Records
+
+### "34.788%... Complete" 1998, Death Doom
+
+1. The Whore, The Cook And The Mother.
+2. The Stance Of Evander Sinque.
+3. Der Uberlebende.
+4. Heroin Chic.
+5. Apocalypse Woman.
+6. Base Level Erotica.
+7. Under Your Wings And Into Your Arms.
+
+(p)&© 1998 MUSIC FOR NATIONS
+
+Ade – bass
+Andrew – guitar
+Aaron – vocals
+Bill – drums
+Calvin – guitar
+
+Recorded at Academy Studios, Dewsbury, West Yorkshire, England. 
+Engineered & produced by Mags. Assisted by Calvin. 
+Mixed at Chapel Studios, Lincoln by Mags and Calvin, Summer 1998.
+Assistant engineers: Steve Clow and James Anderson.
+
+### "The Light At The End Of The World" 1999, Death Doom
+
+1. She Is The Dark
+2. Edenbeast
+3. The Night He Died
+4. The Light At The End Of The World
+5. The Fever Sea
+6. Into The Lake Of Ghosts
+7. The Isis Script
+8. Christliar
+9. Sear Me III
+
+### "Meisterwerk-1" 2000, Death Doom
+
+'Symhonaire Infernus Et Spera Empyrium'
+'The Crown Of Sympathy'
+'The Grief Of Age'
+'A Kiss To Remember'
+'Grace Unhearing' (Portishell Mix)
+'For You'
+'Unreleased Bitterness'
+'Sear Me III'
+'The Cry Of Mankind'
+
+### "The Dreadful Hours" 2001, Death Doom
+
+The Dreadful Hours 9:24 
+Raven and the Rose 8:13 
+Le Figlie Della Tempesta 10:09 
+Black Heart Romance 5:24 
+A Cruel Taste of Winter 7:36 
+My Hope the Destroyer 6:45 
+The Deepest of All Hearts 8:56 
+Return to the Beautiful 14:24
+
+### "Meisterwerk-2" 2001, Death Doom
+
+1. Sear Me MCMXCIII
+2. Follower
+3. Vast Choirs (Demo)
+4. She Is The Dark
+5. Catching Feathers (Demo)
+6. Two Winters Only
+7. Your River
+8. Some Velvet Morning
+9. Roads
+
+### "Voice Of The Wretched (live)" 2002, Death Doom
+
+1. She is the Dark 
+2. The Snow in my Hand 
+3. Cry of Mankind 
+4. Turn Loose the Swans 
+5. A Cruel Taste of Winter 
+6. Under Your Wings and Into Your Arms 
+7. A Kiss to Remember 
+8. Your River 
+9. The Fever Sea 
+10. Symphonaire Infernus et Spera Empyrium
+
+### "Songs Of Darkness, Words Of Light" 2004, Death Doom
+
+1. The Wreckage of My Flesh 8:45 
+2. The Scarlet Garden 7:49 
+3. Catherine Blake 6:32 
+4. My Wine in Silence 5:53 
+5. The Prize of Beauty 8:02 
+6. The Blue Lotus 6:33 
+7. And My Fury Stands Ready 7:45 
+8. A Doomed Lover 7:54
+
+### "A Line Of Deathless Kings" 2006, Death Doom
+
+1. To Remain Tombless 6:06 
+2. L'Amour Detruit 9:08 
+3. I Cannot Be Loved 7:04 
+4. And I Walk With Them 6:37 
+5. Thy Raven Wings 5:22 
+6. Love's Intolerable Pain 6:14 
+7. One of Beauty's Daughters 5:40 
+8. Deeper Down 6:28 
+9. The Blood, The Wine, The Roses 8:21
+
+### "Deeper Down (single)" 2006, Death Doom
+
+
+
+### "An Ode to Woe [CD/DVD]" 2008, Death Doom
+
+1. To Remain Tombless 07:43 
+2. My Hope, the Destroyer 05:45
+3. For You 06:41 
+4. The Blue Lotus 06:33 
+5. Like Gods of the Sun 05:21
+6. Catherine Blake 06:18
+7. The Cry of Mankind 06:07
+8. The Whore, the Cook and the Mother 05:42
+9. Thy Raven Wings 05:22
+10. The Snow in My Hand 07:09
+11. She is the Dark 07:59
+12. The Dreadful Hours 12:55 
+
+Album Lineup:
+
+Aaron Stainthorpe - Vocals 
+Andrew Craighan - Guitar 
+Hamish Hamilton Glencross - Guitar 
+Sarah Stanton - Keyboards
+Lena Abй - Bass 
+Dan "Storm" Mullins - Drums
+
+Recorded live at the Paradiso, Amsterdam, Holland, in April 2007.
+
+Disc 2 is a DVD with the following tracklist:
+
+1. To Remain Tombless 
+2. My Hope, The Destroyer 
+3. For You 
+4. The Blue Lotus 
+5. Like Gods Of The Sun 
+6. Catherine Blake 
+7. The Cry Of Mankind 
+8. The Whore, The Cook & the Mother 
+9. Thy Raven Wings 
+10. The Snow In My Hand 
+11. She Is The Dark 
+12. The Dreadful Hours 
+13. The Forever People* (on DVD only) (5:28) 
+
+### "For Lies I Sire" 2009, Death Doom
+
+1. Fall With Me 07:15  
+2. My Body, A Funeral 06:47  
+3. The Lies I Sire 05:29 
+4. Bring Me Victory 04:08
+5. Echoes From A Hollow Soul 07:19  
+6. ShadowHaunt 04:37  
+7. Santuario Di Sangue 08:27  
+8. A Chapter in Loathing 04:46  
+9. Death Triumphant 11:06 
+
+
+### "Evinta" 2011, Death Doom
+
+
+
+### "A Map Of All Our Failures " 2012, Death Doom
+
+01. Kneel Till Doomsday
+02. The Poorest Waltz
+03. A Tapestry Scorned
+04. Like A Perpetual Funeral
+05. A Map Of All Our Failures
+06. Hail Odysseus
+07. Within The Presence Of Absence
+08. Abandoned As Christ
+
+CD was recorded and mixed at Futureworks Studios in Manchester, England with the band's longtime production partner Rob "Mags" Magoolagan at the helm.
+
+### "The Manuscript" 2013, Death Doom
+
+1. The Manuscript 06:24
+2. Var Gud Over Er 08:49
+3. A Pale Shroud of Longing 07:48
+4. Only Tears to Replace Her With 04:20
+
+
+All tracks recorded during the sessions for "A Map of All Our Failures". 
+
+### "Hollow Cathedra (single)" 2015, Doom
+
+1. Hollow Cathedra  06:43 
+
+Exclusive song that will not appear on the Feel the Misery album
+
+### "Feel The Misery" 2015, Death Doom
+
+1. And My Father Left Forever  09:22    
+2. To Shiver in Empty Halls  09:47    
+3. A Cold New Curse  09:15    
+4. Feel the Misery  06:20  
+5. A Thorn of Wisdom  05:05   
+6. I Celebrate Your Skin  06:53    
+7. I Almost Loved You  05:26  
+8. Within a Sleeping Forest  10:43  
+
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,23 @@
 # Hate Division
 
-Дискография
-"Strategy of Obsolescence" 2011, Death Metal
+
+
+## Дискография
+
+### "Strategy of Obsolescence" 2011, Death Metal
+
+1. Exitium (Intro)	 
+2. Strategy of Obsolescence	 
+3. Regression of Reality	 
+4. The Great Recession	 
+5. Medicinal Perdition	 
+6. Assimilation or Death	 
+7. A Slice of Freedom	 
+8. Parisitic Agenda	 
+9. A Division of Hate	 
+10. Denialism		 
+11. Tyranny of the Weak
+
 
 ## Отношения с другими группами
 

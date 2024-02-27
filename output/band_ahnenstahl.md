@@ -1,7 +1,19 @@
 # Ahnenstahl
 
-Дискография
-"Zwischen Tod und Leben" 2006, Black Metal
+
+
+## Дискография
+
+### "Zwischen Tod und Leben" 2006, Black Metal
+
+1. Die Offenbarung 07:01
+2. Am Gnadenfall 05:36
+3. Zur letzten Ruh' 05:32
+4. Der Ьbergang 06:08
+5. Zwischen Tod und Leben 05:19
+6. Die Wiederkehr 08:09
+7. Aufbruch 02:34 
+
 
 ## Отношения с другими группами
 

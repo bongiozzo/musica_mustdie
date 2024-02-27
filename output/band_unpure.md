@@ -1,7 +1,32 @@
 # Unpure
 
-Дискография
-"Coldland" 1997, Black Metal
+
+
+## Дискография
+
+### "Coldland" 1997, Black Metal
+
+1.  Blacker Than Ever
+2.  Coldland
+3.  Full Of Hate
+4.  Cold Freezing Dark
+5.  Call Of Doom (Part II)
+6.  Horny Goats
+7.  Count Dracula
+8.  Frozen
+9.  All Dead
+10.Valley Of Whirling Winds
+
+Recorded and Mixed at PJ Sound by Janne Thunholm.
+Produced by Hrasvelg and Kolgrim.
+
+Hrasvelg - Drums, Vocals
+Kolgrim - Bass, Vocals
+John - Guitars
+Vic - Guitars
+
+(P)(C) 1997 NAPALM Records // NPR 022
+
 
 ## Отношения с другими группами
 

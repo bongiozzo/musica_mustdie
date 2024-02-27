@@ -1,7 +1,24 @@
 # Dragon
 
-Дискография
-"Fallen Angel" 1990, Death Metal
+
+
+## Дискография
+
+### "Fallen Angel" 1990, Death Metal
+
+ Side One:
+1. Fallen Angel 5.47
+2. I'll Split Your Face 7.04
+3. Tears Of Satan 7.18
+ Side Two:
+1. Deceived 4.52
+2. Simon Peter 7.01
+3. Destructor (Sewer Of Graves) 5.07
+4. Into The Dark 5.10
+
+(p) 1990 UNDER ONE FLAG Records
+(c) 1990 POWSKI Music
+
 
 ## Отношения с другими группами
 

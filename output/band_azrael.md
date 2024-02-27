@@ -1,7 +1,31 @@
 # Azrael
 
-Дискография
-"There Shall Be No Answer" 1995, Death Metal
+
+
+## Дискография
+
+### "There Shall Be No Answer" 1995, Death Metal
+
+1. Streckbank (intro)
+2. Inaugeration Of The Common Death
+3. Reduced To Ashes
+4. Reveal Adventists
+5. From Chet To Osiris-Aspis
+6. Terra Incognita
+7. Ignorant
+8. Gruesome Odd
+9. Crycify The Raven
+10. There Shall Be No Answer
+11. Euthanasia
+12. Behind The Walls
+13. Overload
+Produced by T.Hades and Azrael
+Hermann - Bass
+T. Hades - Vocals
+R.T. - Drums
+Boom - Guitars
+(p)(c)1995 Nuclear Blast
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,17 @@
 # Allons
 
-Дискография
-"God's Vibrator" 1996, Thrash
-"DEFRAG" 1998, Thrash
+Thrash-death from Almaty Kazakhstan
+
+## Дискография
+
+### "God's Vibrator" 1996, Thrash
+
+
+
+### "DEFRAG" 1998, Thrash
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,27 @@
 # Natural Spirit
 
-Дискография
-"Русколунь" 2005, Metal
-"Sita Rosa" 2008, Metal
+
+
+## Дискография
+
+### "Русколунь" 2005, Metal
+
+
+
+### "Sita Rosa" 2008, Metal
+
+1. Ros'-Reka 04:51 
+2. Kladovest 04:19 
+3. Son 03:40 
+4. Luchi Moroka 05:20 
+5. Prigvozhdena 03:23 
+6. Kupala 04:36 
+7. Sita Rosa 04:27 
+8. Diva 03:27 
+9. Mezhdumirie 03:31 
+10. Kolybelnaja 05:36 
+11. Civilizacia 04:58 
+
 
 ## Отношения с другими группами
 

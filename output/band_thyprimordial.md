@@ -1,8 +1,17 @@
 # Thy Primordial
 
-Дискография
-"The Heresy Of An Age Of Krason" 2000, Black Metal
-"Pestilence Upon Mankind" 2004, Black Metal
+true-black-metal
+
+## Дискография
+
+### "The Heresy Of An Age Of Krason" 2000, Black Metal
+
+
+
+### "Pestilence Upon Mankind" 2004, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,6 +1,9 @@
 # Brodequin
 
-Дискография
+punishing blood soaked torture inspired death/grind from Knoxville
+
+## Дискография
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,67 @@
 # Chain Collector
 
-Дискография
-"The Masquerade" 2005, Melodic Death Metal
-"Unrestrained" 2008, Melodic Death Metal
+members of GREEN CARNATION
+
+## Дискография
+
+### "The Masquerade" 2005, Melodic Death Metal
+
+1. Hierarchy Of Murder - Code Of Silence; 
+2. Harvester; 
+3. Neverwhere; 
+4. And Then There Was None; 
+5. Crucifixion; 
+6. Project Savior; 
+7. Tapping The Vein; 
+8. Fallen Angel; 
+9. Wicked Mask; 
+10. Winter Princess
+
+All songs written by CHAIN COLLECTOR
+Produced by Endre Kirkesola and CHAIN COLLECTOR
+Engineered by Endre Kirkesola
+Recorded and mixed at Dub Studio
+
+Goran Bomann - Guitars
+Kjetil Nordhus - Clean Vocals
+Svenn Aksel Henriksen - Screaming Vocals
+Kjell Jacobsen - Guitars
+Anders Kobro - Drums
+
+Session Musicians:
+Endre Kirkesola - Bass, Keys and Samples
+Ingjerd Kolstad - Choir and Crusifixion
+
+### "Unrestrained" 2008, Melodic Death Metal
+
+1. Dominant 05:37  
+2. Your halo of thorns 04:49  
+3. One-way ticket 04:58  
+4. Fading embers 04:16  
+5. As the play unfolds 05:16  
+6. Forgotten sins, future lies 04:33  
+7. The letter I 05:10  
+8. Generic portraits 04:49  
+9. Psychotic disorder 04:51  
+10. Bringer of sins 06:01 
+
+
+Line up:
+Gшran Bomann - Guitar
+Svenn-Aksel Henriksen - Vocals
+Runar Hansen - Guitar
+Anders Kobro - Drums
+
+Session:
+Endre Kirkesola - Bass, keys and samples.
+Hanne Kolstш - Female vocals 
+
+Cover consept & design by Niklas Sundin 
+
+Band photos by Jon Tшnnesen
+
+Lyrics by Svenn-Aksel Henriksen & Gшran Bomann 
+
 
 ## Отношения с другими группами
 

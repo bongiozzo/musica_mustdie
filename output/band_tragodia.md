@@ -1,8 +1,34 @@
 # Tragodia
 
-Дискография
-"The Promethean Legacy" 2007, Gothic
-"Theomachy" 2012, Gothic
+
+
+## Дискография
+
+### "The Promethean Legacy" 2007, Gothic
+
+1.	 I, Decline	05:52	 
+2.	 The Wreck of Hope	04:02	 
+3.	 Forsaken Dreams	04:58	 
+4.	 Love Among the Ruins	04:48	 
+5.	 Icons in a Wasteland	05:31	 
+6.	 Elegy of the Restless	03:33	 
+7.	 Deep Space Confine	04:13	 
+8.	 Downfall of the Ancients	05:14	 
+9.	 Of Beauty and Tempest	06:28	 
+
+### "Theomachy" 2012, Gothic
+
+1.	 The Siege	04:52	 
+2.	 Tentacles	05:32	 
+3.	 The Eve of the End	04:44	 
+4.	 The Stones of Uruk	06:34	 
+5.	 Mother Wisdom, Father War	03:50	 
+6.	 Iceberg	04:39	 
+7.	 Once We Were Titans	05:52	 
+8.	 The Fields of Yore	05:12	 
+9.	 By the Gates of Oblivion	04:14	 
+10.	 Barbarian Pride	05:27	
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,47 @@
 # Sins of Omission
 
-Дискография
-"The Creation" 1999, Melodic Death Metal
-"Flesh On Your Bones" 2001, Melodic Death Metal
+
+
+## Дискография
+
+### "The Creation" 1999, Melodic Death Metal
+
+Eager For The Fray
+Reap The Storm
+The Creation
+Burn The Night
+The Experiment
+Let Them March
+The Serpentine Route
+To The Grind
+Exhibition Of Sins
+Bonus tracks for Japan only:
+Maybe the Time (instrumental) 
+Red Sharks (Crimson Glory -88)
+
+Studio:Studio Fredman (Gothenburg)
+Produced by: Fredrik Nordstrцm and Sins Of Omission
+Mastered at: The Cutting Room by Gцran Finnberg
+Cover artwork: Kristian Wеhlin
+
+### "Flesh On Your Bones" 2001, Melodic Death Metal
+
+01 Intro
+02 The Secret Agenda
+03 Pound for Pound
+04 Revolution
+05 Angel Killers
+06 The Rape...
+07 ...of Innocence
+08 A Wicked Slaughterhouse Tale
+09 The Grinder
+10 Sinners Redemption
+11 Angel of Death
+12 The Sentinel (Japan only) 
+
+Produced by Pelle "Let's take a five hour lunch break" Sдter and Lasse "Let's not take lunch at all" Lindйn 
+
+
 
 ## Отношения с другими группами
 

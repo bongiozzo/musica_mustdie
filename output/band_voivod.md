@@ -1,23 +1,265 @@
 # Voivod
 
-Дискография
-"Rrroooaaarrr" 1986, Thrash
-"Killing Technology" 1987, Thrash
-"Dimension Hatross" 1988, Thrash
-"Nothingface" 1989, Thrash
-"Angel Rat" 1991, Thrash
-"The Outer Limits" 1993, Thrash
-"Negatron" 1995, Thrash
-"Phobos" 1997, Industrial
-"Voivod Lives" 2000, Thrash
-"Voivod" 2003, Thrash
-"Katorz" 2006, Thrash
-"Infini" 2009, Thrash
-"Warriors Of Ice (Live)" 2011, Thrash
-"To the Death 84 (Compilation)" 2011, Thrash
-"Live At Roadburn 2011" 2012, Thrash
-"Target Earth" 2013, Thrash
-"Post Society (EP)" 2016, Thrash
+Canadian Star
+
+## Дискография
+
+### "Rrroooaaarrr" 1986, Thrash
+
+1. Korgull The Exterminator
+2. Fuck Off And Die
+3. Slaughter In Grave
+4. Ripping Headaches
+5. Thrashing Rage
+6. The Heelldriver
+7. Build Your Weapons
+8. To The Death !
+
+ Snake - Vocals
+ Piggy - Guitar
+ Blacky - Bass
+ Away - Drums
+
+Produced By VOIVOD & Mike Amstadt.
+Executive Producer Maurice "Rocker" Richard.
+Recorded And Mixed At "l`Autre Studio" Montreal,
+Between October 11th & November 17th 1985.
+Engineer: Mike Amstadt.Assistant Engineer:Sue,Blacky,Piggy.
+Lyrics By Snake.
+Music By Piggy,Blacky,Away.
+
+(p)&(c) 1986 NOISE International
+
+### "Killing Technology" 1987, Thrash
+
+1. Killing Technology
+2. Overreaction
+3. Tornado
+4. Forgotten In Space
+5. Ravenous Medicine
+6. Order Of The Blackguards
+7. This Is Not An Exercise
+
+ Snake - Vocals
+ Piggy - Guitar
+ Blacky - Bass
+ Away - Drums
+
+(p)&(c) 1987 NOISE International
+
+### "Dimension Hatross" 1988, Thrash
+
+1. ...Prolog...
+    Experiment
+2. Tribal Convictions
+3. Chaosmongers
+4. Technocratic Manipulators
+5. ...Epilog...
+    Macrosolutions To Megaproblems
+6. Brain Scan
+7. Psychis Vacuum
+8. Cosmic Drama
+9. Batman
+
+ Snake - Vocals
+ Piggy - Guitar
+ Blacky - Bass
+ Away - Drums
+
+(p)&(c) 1988 NOISE International
+
+### "Nothingface" 1989, Thrash
+
+1. The Unknown Knows
+2. Nothingface
+3. Astronomy Domine *
+4. Missing Sequence
+5. X-Ray Mirror
+6. Inner Combustion
+7. Pre-Ignition
+8. Into My Hypercube
+9. Sub-Effect
+
+ Denis Belanger (Snake) - Vox
+ Denis D`Amour (Piggy) - Guitars
+ Jean-Yves Theriault (Blacky) - Bass
+ Michael Langevin (Away) - Drums
+
+All Songs By VOIVOD Except * By Syd Barrett.
+Music By Piggy,Blacky & Away.
+Lyrics By Snake.
+Engineered & Mixed By Glen Robinson.
+
+(p)&(c) 1989 NOISE International
+
+
+### "Angel Rat" 1991, Thrash
+
+1. Shortwave Intro
+2. Panorama
+3. Clouds In My House
+4. The Prow
+5. Best Regards
+6. Twin Dummy
+7. Angel Rat
+8. Golem
+9. The Outcast
+10.Nuage Fractal
+11.Freedom
+12.None Of The Above
+
+ Denis Belanger - Vocals
+ Denis D`Amour - Guitars
+ Jean-Yves Theriault - Bass
+ Michael Langevin - Drums
+
+All Songs By VOIVOD.
+Produced By Terry Brown.
+
+(p)&(c) 1991 NOISE International
+
+### "The Outer Limits" 1993, Thrash
+
+1. Fix My Heart
+2. Moonbeam Rider
+3. Le Pont Noir
+4. The Nile Song * 
+5. The Lost Machine
+6. Time Warp
+7. Jack Luminous
+8. Wrong-Way Street
+9. We Are Not Alone
+
+ Denis Belanger - Vocals
+ Denis D`Amour - Guitars,Keyboards
+ Pierre St-Jean - Studio Session Bass
+ Michael Langevin - Drums,Keyboards
+
+All Songs Written By VOIVOD,Except Of * By Roger Waters.
+Recorded At Music Grinder Studios,Hollywood,CA.
+Produced,Recorded & Mixed By Mark S. Berry.
+
+(p)&(c) 1993 MCA Records
+
+### "Negatron" 1995, Thrash
+
+1. Insect
+2. Project X
+3. Nanoman
+4. Reality ?
+5. Negatron
+6. Planet Hell
+7. Meteor
+8. Cosmic Conspiracy
+[9]. Bio - TV
+[10].Drift
+[11].D.N.A. (Don't No Anything)
+
+Tracks [9]-[11] на стороне B
+
+All Songs By VOIVOD.
+
+(P)&(C) 1995 HYPNOTIC Records
+
+### "Phobos" 1997, Industrial
+
+1. Catalepsy I
+2. Rise
+3. Mercury
+4. Phobos
+5. Bacteria
+6. Temps Mort
+7. The Tower
+8. Quantum
+9. Neutrino
+10.Forlorn
+11.Catalepsy II
+
+Produced By Voivod & Rob Sanzo
+{P}(C) 1997
+
+### "Voivod Lives" 2000, Thrash
+
+
+
+### "Voivod" 2003, Thrash
+
+
+
+### "Katorz" 2006, Thrash
+
+
+
+### "Infini" 2009, Thrash
+
+
+
+### "Warriors Of Ice (Live)" 2011, Thrash
+
+1. Voivod
+2. The Unknown Knows
+3. The Prow
+4. Ripping Headaches
+5. Ravenous Medicine
+6. Tribal Convictions
+7. Overreaction
+8. Panorama
+9. Global Warning
+10. Treasure Chase
+11. Tornado
+12. Nothingface
+13. Brain Scan
+14. Nuclear War
+15. Astronomy Domine (Pink Floyd cover)
+
+### "To the Death 84 (Compilation)" 2011, Thrash
+
+01. Voivod
+02. Condemned to the Gallows
+03. Hell Driver
+04. Live for Violence
+05. War and Pain
+06. Incantation
+07. Buried Alive (Venom cover) / Suck Your Bone
+08. Blower
+09. Slaughter in a Grave
+10. Nuclear War
+11. Black City
+12. Iron Gang
+13. Evil (Mercyful Fate cover)
+14. Bursting Out (Venom cover)
+15. Warriors of Ice
+
+### "Live At Roadburn 2011" 2012, Thrash
+
+01. The Prow
+02. Ravenous Medicine
+03. Overreaction
+04. Experiment
+05. Global Warning
+06. Ripping Headaches
+07. Nothingface
+08. Forlorn
+09. Voivod
+10. Astronomy Domine (Pink Floyd cover)
+
+### "Target Earth" 2013, Thrash
+
+01. Target Earth 06:05 
+02. Kluskap O'Kom 04:24 
+03. Empathy For The Enemy 05:46 
+04. Mechanical Mind 07:35 
+05. Warchaic 07:01 
+06. Resistance 06:45 
+07. Kaleidos 06:27 
+08. Corps Йtranger 04:35 
+09. Artefact 06:26 
+10. Defiance 01:32
+
+### "Post Society (EP)" 2016, Thrash
+
+
+
 
 ## Отношения с другими группами
 

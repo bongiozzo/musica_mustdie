@@ -1,16 +1,252 @@
 # Nightmare
 
-Дискография
-"Waiting for the Twilight" 1984, Power Metal
-"Power of the Universe" 1985, Power Metal
-"Astral Deliverance" 1999, Power Metal
-"Live Deliverance" 2000, Power Metal
-"Cosmovision" 2001, Power Metal
-"Silent Room" 2003, Power Metal
-"The Dominion Gate " 2005, Heavy Metal
-"Genetic Disorder" 2007, Heavy Metal
-"Insurrection" 2009, Heavy Metal
-"The Burden of God" 2012, Heavy Metal
+French power-speed metal
+
+## Дискография
+
+### "Waiting for the Twilight" 1984, Power Metal
+
+1. Trust a crowd
+2. Waiting for the twilight
+3. Too late
+4. Royal death
+5. Drive down to hell
+6. Lord of the sky
+7. The legend
+8. Fool on the scene
+
+Bonus tracks (demo, in french !) :
+9. Le jour du chвtiment
+10. Victime de l'exil
+11. Esprits sortilиges
+12. Les forces du mal
+
+### "Power of the Universe" 1985, Power Metal
+
+1. Running for the deal
+2. Diamond crown
+3. Prowler in the night
+4. Power of the universe
+5. Let's go
+6. Judgement day
+7. Princess of the rising sun
+8. Invisible world
+
+Bonus tracks Live (Live in Eybens 1985) :
+9. Princess of the rising sun
+10. Diamond crown
+11. Waiting for the twilight
+12. Power of the universe
+12. Let's go
+12. Invisible world
+
+
+### "Astral Deliverance" 1999, Power Metal
+
+1. Astral deliverance
+2. The legend 
+3. Heart of fire
+4. Princess of the rising sun
+5. Howlers of insanity
+
+### "Live Deliverance" 2000, Power Metal
+
+CD1 :
+1. Astral deliverance
+2. The legend
+3. Trust a crowd
+4. Princess of the rising sun
+5. Let's go
+6. Waiting for the twilight / Le jour du chвtiment
+7. Diamond crown
+8. Heart of fire
+9. Power of the universe
+10. Too late
+11. Judgement day
+
+CD2 :
+1. Invisible world
+2. Howlers of insanity
+3. Fool on the scene
+4. Prowler in the night
+5. Drive down to hell
+6. Sortilиge
+7. Lord of the sky MP3 (136kbps, 1mn09, 1,2Mo)
+8. Metal heart
+
+
+The first “double live“ CD of the whole French metal scene's history !!! The reunion show of Grenoble (F) dated october 30th. 1999, featuring a 16 pages booklet + a CDRom track “The Legend” (for Mac & PC) + 2 covers “Sortilиge” from SORTILEGE and “Metal Heart” from ACCEPT.
+
+
+
+### "Cosmovision" 2001, Power Metal
+
+1 - Roads to Nazca (intro)  
+2 - Cosmovision 
+3 - Corridors Of Knowledge 
+4 - Spirits Of The Sunset 
+5 - The Church 
+6 - Behold The Highttime 
+7 - Necropolis
+8 - The Cemetary Road 
+9 - Kill For The New Messiah 
+10- The Spiral Of Madness 
+11 - Last Flight To Sirius 
+12 - Riddle In The Ocean
+
+
+ Jo Amore (lead vocals)
+Nicolas De Dominicis (Guitar & vocals) 
+Jeannot Strippoli (Guitar & vocals) 
+Yves Campion (Bass & vocals) 
+Dauid Amore (Drums & vocals) 
+
+Recorded and mixed at Sound Suite Studio (France) (June-July 2001)
+Produced by Terje Refsnes
+Mastered by Ulf Horbell -DMS (Germany)
+Front cover by Jean Pascal Fournier
+Photos by Hors Norm/Vision Mystique
+Cover art/design by Iside Occella for Metallian Graphiks
+All music & lyrics by Nightmare
+Special guest musicians:
+Stephane Rabillound - additional keyboards
+Patrick Rondat - lead guitar on pirits Of The Sunset
+Audrey Bucci - female vocals on Cosmovision
+
+
+
+
+### "Silent Room" 2003, Power Metal
+
+» Chapter I (The Awakening)
+01. Paranormal Magnitude
+02. The Rise Of A Child
+
+» Chapter II (The Game)
+03. Strange Connection
+04. Travel In The Spheres Of Dreams
+05. Shades In The Night
+06. Silent Room
+
+» Chapter III (The Cure)
+07. Mind Matrix Schizophrenia
+08. A Piece Of Paradise
+
+» Chapter IV (The Decadence)
+09. Virtual Freedom
+10. Sniper In The Playground
+11. The Death Toll
+
+» Chapter V (Epilogue)
+12. Prisoner Of The System
+13. Bonus Track : Ship Of Fools (Vicious Rumors
+cover)
+
+Emilie Lesbros, Sandrine Lachapelle, Johanna
+Giraud, Damien Surian & Hubert Piazzola ( Choirs )
+Jeannot Strippoli (Second &. fourth guitar solo on
+"Strange Connection ")
+Fabrice Emmanuelson (Backing Vocals on "Mind
+Matrix Schizophrenia ", " Silent Room " and "
+Prisoner Of The System")
+Sandrine Lachapelle (Female vocals on " Paranormal
+Magnitude ")
+All keyboards by Terje Refsnes, Yves Campion &
+Alex Hilbert
+All music and lyrics by Nightmare
+All songs published by Iron Avantgarde Publishing
+Concept / Story written by Yves Campion and Jo
+Amore
+Sound effects courtesy of Sounddogs.com,
+Coocooland I & II
+Produced, mixed and arranged by Terje Refsnes
+Recorded at Soundsuite Studio ( France ) in March
+/ April 2003
+Mastered by Mika Jussila at Finnvox Studios (
+Finland ) in April 2003
+Art / Design: Iside Occella for Metallian Craphiks
+( metallian@wanadoo.fr )
+Photography: Christelle De Dominicis, Jeep Monco
+
+Jo Amore ( Vocals }
+Alex Hilbert ( Guitars )
+Nicolas De Dominicis (Guitars)
+Yves Campion ( Bass )
+David Amore ( Drums )
+
+### "The Dominion Gate " 2005, Heavy Metal
+
+1. Temple Of Tears 04:05
+2. A Taste Of Armageddon 04:12 
+3. Messenger Of Faith 05:01  
+4. Secret Rules (Beati Paoli) 04:53 
+5. The Dressmaker 06:18  
+6. Endless Agony 04:31  
+7. Paranormal Magnitude Part II 02:04
+8. Circle Of The Dark 04:19 
+9. Haunting Memories 05:13  
+10. Heretic 05:40  
+11. The Dominion Gate 08:12 
+12. The Watchtower 05:24  
+13. K-141 05:31 
+
+
+Line-up:
+Jo Amore - vocals
+Alex Hilbert - guitars
+Franck Milleliri - guitars
+Yves Campion - bass
+David Amore - drums 
+
+### "Genetic Disorder" 2007, Heavy Metal
+
+1. Nothing Left Behind 05:15 
+2. Battleground for Suicide 04:16 
+3. Queen of Love & Pain 03:46 
+4. Conspiracy 04:09  
+5. Leader of the Masquerade 04:22
+6. Final Procession 05:01 
+7. The Dominion Gate (Part II) 06:21
+8. The Winds of Sin 04:28  
+9. Forsaken Child 04:33 
+10. A Thrill of Death 04:58  
+11. Wicked White Demon 03:41 
+12. Dawn of Darkness 06:08 
+
+
+
+Recorded at Studio Fredman in Gothenburg, Sweden with producers Fredrik
+Nordstrцm and Henrik Udd.
+
+### "Insurrection" 2009, Heavy Metal
+
+1. Eternal Winter 05:09  
+2. The Gospel Of Judas 04:14  
+3. Insurrection 04:55  
+4. Legions Of The Rising Sun 05:01  
+5. Three Miles Island 08:43  
+6. Mirrors Of Damnation 05:25  
+7. Decameron 04:50  
+8. Target For Revenge 06:20  
+9. Cosa Nostra (Part I- The Light) 05:20  
+10. Angels Of Glass 04:19 
+
+
+### "The Burden of God" 2012, Heavy Metal
+
+1. Gateways to the Void 02:25 
+2. Sunrise in Hell 05:03 
+3. The Burden of God 04:02 
+4. Crimson Empire 05:04 
+5. Children of the Nation 04:39 
+6. The Preacher 05:42 
+7. Shattered Hearts 05:45 
+8. The Doomsday Prediction 04:20 
+9. The Dominion Gate (Part III) 07:31 
+10. Final Outcome 04:23 
+11. Afterlife 03:50
+
+
 
 ## Отношения с другими группами
 

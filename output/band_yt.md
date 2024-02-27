@@ -1,18 +1,271 @@
 # Y&T
 
-Дискография
-"Yesterday & Today" 1976, Heavy Metal
-"Alcohol" 1978, Heavy Metal
-"Earthshaker" 1981, Heavy Metal
-"Black Tiger" 1982, Heavy Metal
-"Mean Streak" 1983, Heavy Metal
-"In Rock We Trust" 1984, Heavy Metal
-"Down for the Count" 1985, Heavy Metal
-"Contagious" 1987, Heavy Metal
-"Ten" 1990, Heavy Metal
-"Musically Incorrect" 1995, Heavy Metal
-"Endangered Species" 1998, Heavy Metal
-"Facemelter" 2010, Heavy Metal
+(Yesterday and Today)
+
+## Дискография
+
+### "Yesterday & Today" 1976, Heavy Metal
+
+
+
+### "Alcohol" 1978, Heavy Metal
+
+
+
+### "Earthshaker" 1981, Heavy Metal
+
+  1.   Hungry for Rock (Alves/Haze/Kennemore/Meniketti/Shulman/Sieff) - 3:47 
+  2.   Dirty Girl (Alves/Haze/Kennemore/Meniketti/Shulman/Sieff) - 5:06 
+  3.   Shake It Loose (Alves/Haze/Kennemore/Meniketti/Shulman/Sieff) - 2:55 
+  4.   Squeeze (Alves/Haze/Kennemore/Meniketti) - 4:04 
+  5.   Rescue Me (Alves/Haze/Kennemore/Meniketti/Shulman/Sieff) - 4:44 
+  6.   Young and Tough (Alves/Haze/Kennemore/Meniketti/Shulman/Sieff) - 3:47 
+  7.   Hurricane (Alves/Haze/Kennemore/Meniketti) - 3:23 
+  8.   Let Me Go (Alves/Haze/Kennemore/Meniketti/Shulman/Sieff) - 3:12 
+  9.   Knock You Out (Alves/Haze/Kennemore/Meniketti) - 2:59 
+  10.   I Believe in You (Alves/Haze/Kennemore/Meniketti) - 7:14 
+
+
+Joey Alves  -  Guitar (Acoustic), Guitar, Guitar (Electric), Vocals 
+Hugh Brown  -  Photography 
+Harvey Goldberg  -  Engineer, Mixing 
+Leonard Haze  -  Drums, Vocals 
+Phil Kennemore  -  Bass, Vocals 
+Ken Kessie  -  Engineer 
+Gary Ladinsky  -  Engineer 
+Wayne Lewis  -  Engineer 
+Gary Lubow  -  Engineer 
+Gregg Mann  -  Mixing 
+George Marino  -  Mastering 
+Dave Meniketti  -  Guitar, Vocals 
+Bob Shulman  -  Producer 
+Norman Moore  -  Design, Cover Art Concept 
+Chuck Beeson  -  Art Direction 
+David Sieff  -  Producer 
+
+
+
+### "Black Tiger" 1982, Heavy Metal
+
+  1.   From the Moon (Y&T) - 0:42 
+  2.   Open Fire (Y&T) - 4:10 
+  3.   Don't Wanna Lose (Y&T) - 4:09 
+  4.   Hell or High Water (Y&T) - 3:44 
+  5.   Forever (Y&T) - 5:48 
+  6.   Black Tiger (Y&T) - 4:17 
+  7.   Barroom Boogie (Y&T) - 4:19 
+  8.   My Way or the Highway (Y&T) - 4:43 
+  9.   Winds of Change (Y&T) - 6:19 
+
+
+Joey Alves  -  Guitar, Vocals 
+Bill Freesh  -  Mixing Assistant 
+Leonard Haze  -  Drums, Vocals 
+Phil Kennemore  -  Bass, Vocals 
+Dave Meniketti  -  Guitar, Vocals 
+Max Norman  -  Producer, Engineer 
+Chuck Beeson  -  Art Direction, Design 
+Scott Boorey  -  Engineer, Assistant Engineer 
+
+
+### "Mean Streak" 1983, Heavy Metal
+
+  1.   Mean Streak (Y&T) - 4:06 
+  2.   Straight Thru the Heart (Y&T) - 4:14 
+  3.   Lonely Side of Town (Y&T) - 4:48 
+  4.   Midnight in Tokyo (Y&T) - 5:40 
+  5.   Breaking Away (Y&T) - 4:42 
+  6.   Hang 'Em High (Y&T) - 5:29 
+  7.   Take You to the Limit (Y&T) - 4:57 
+  8.   Sentimental Fool (Y&T) - 3:11 
+  9.   Down and Dirty (Y&T) - 3:55 
+
+
+Joey Alves  -  Guitar, Vocals 
+Richard Corsello  -  Engineer 
+Mike Fink  -  Design 
+Leonard Haze  -  Drums, Vocals 
+Michael Herbick  -  Engineer 
+Phil Kennemore  -  Bass, Vocals 
+Dave Meniketti  -  Guitar, Vocals 
+Chris Tsangarides  -  Engineer 
+Chuck Beeson  -  Art Direction 
+Nigel James  -  Production Arrangement 
+
+
+### "In Rock We Trust" 1984, Heavy Metal
+
+  1.   Rock & Roll's Gonna Save the World (Kennemore/Leib/Y&T) - 4:41 
+  2.   Life, Life, Life (Kennemore/Leib/Y&T) - 4:36 
+  3.   Masters and Slaves (Kennemore/Leib/Y&T) - 4:01 
+  4.   I'll Keep on Believin' (Do You Know) (La BArge/Leib/Y&T) - 3:48 
+  5.   Break Out Tonight! (Kennemore/Leib/Y&T) - 4:22 
+  6.   Lipstick and Leather (Kennemore/Leib/Y&T) - 3:26 
+  7.   Don't Stop Runnin' (Kennemore/Leib/Y&T) - 4:21 
+  8.   (Your Love Is) Drivin' Me Crazy (Kennemore/Leib/Y&T) - 4:55 
+  9.   She's a Liar (Kennemore/Leib/Y&T) - 3:35 
+  10.   This Time (Kennemore/Leib/Y&T) - 5:37 
+
+
+
+Randy Bachman  -  Photography 
+Tom (Colonel) Allom  -  Producer 
+Robert Ellis  -  Photography 
+David Luke  -  Assistant Engineer 
+Buddy Thornton  -  Assistant Engineer 
+Chuck Beeson  -  Art Direction 
+Dave Lepori  -  Photography 
+
+
+### "Down for the Count" 1985, Heavy Metal
+
+  1.   In the Name of Rock (Y&T) - 5:30 
+  2.   All American Boy (Y&T) - 2:22 
+  3.   Any Time at All (Y&T) - 4:30 
+  4.   Anything for Money (Y&T) - 3:20 
+  5.   Face Like an Angel (Y&T) - 4:34 
+  6.   Summertime Girls (Y & T) - 3:27 
+  7.   Looks Like Trouble (Y&T) - 4:05 
+  8.   Your Mama Don't Dance (Y&T) - 2:48 
+  9.   Don't Tell Me What to Wear (Y&T) - 4:00 
+  10.   Hands of Time (Y&T) - 6:10 
+
+
+
+Jeff Gold  -  Art Direction 
+Joey Alves  -  Guitar, Vocals 
+Bruce Barris  -  Engineer 
+Kevin Beamish  -  Producer, Engineer 
+Leonard Haze  -  Percussion, Cymbals, Drums 
+Phil Kennemore  -  Bass, Vocals 
+Dave Meniketti  -  Guitar, Vocals 
+Randy Nichols  -  Keyboards 
+John Nymann  -  Vocals 
+Tony Platt  -  Remixing 
+Steffen Presley  -  Keyboards 
+Claude Schnell  -  Keyboards 
+Chuck Beeson  -  Art Direction 
+Neon Park  -  Illustrations 
+
+
+### "Contagious" 1987, Heavy Metal
+
+  1.   Contagious (Meniketti/Rhodes) - 3:19 
+  2.   L.A. Rocks (Kennemore/Meniketti) - 4:36 
+  3.   Temptation (Kennemore/Pitrelli/Revell) - 4:22 
+  4.   The Kid Goes Crazy (DeGrasso/Kennemore/Meniketti) - 4:14 
+  5.   Fight for Your Life (Alves/Kennemore/Meniketti) - 4:46 
+  6.   Armed and Dangerous (DeGrasso/Kennemore/Meniketti) - 4:17 
+  7.   Rhythm or Not (Alves/Kennemore/Meniketti) - 5:04 
+  8.   Bodily Harm (Johnson/Rhodes) - 3:30 
+  9.   Eyes of a Stranger (Kennemore/Meniketti/Rhodes) - 4:38 
+  10.   I'll Cry for You [instrumental] (Alves/Meniketti) - 2:35 
+
+
+Joey Alves  -  Guitar (Acoustic), Guitar (Electric) 
+Bruce Barris  -  Engineer 
+Kevin Beamish  -  Producer, Engineer 
+Wally Buck  -  Assistant Engineer 
+Kevin Elson  -  Vocals (bckgr), Mixing 
+Greg Fulginiti  -  Mastering 
+Phil Kennemore  -  Guitar (Bass), Vocals (bckgr) 
+Dave Meniketti  -  Guitar, Vocals, Vocals (bckgr) 
+Steffen Presley  -  Keyboards 
+Hugh Syme  -  Art Direction 
+Glenn Wexler  -  Photography 
+Jimmy DeGrasso  -  Drums 
+Scott Boorey  -  Producer, Engineer, Executive Producer 
+
+
+### "Ten" 1990, Heavy Metal
+
+ 
+  1.   Hard Times (Kennemore/Meniketti) - 5:14 
+  2.   Lucy (Kennemore) - 4:43 
+  3.   Don't Be Afraid of the Dark (Johnson/Rhodes) - 4:51 
+  4.   Girl Crazy (De Grasso/Kennemore/Meniketti) - 4:01 
+  5.   City (DeGrasso/Kennemore/Pitrelli) - 5:37 
+  6.   Come in from the Rain (Burns/Meniketti) - 6:03 
+  7.   Red Hot and Ready (Kennemore/Meniketti/Paris) - 4:18 
+  8.   She's Gone (Kennemore/Meniketti) - 4:17 
+  9.   Let It Out (Calhoun/Paris) - 4:46 
+  10.   Ten Lovers (Kennemore) - 6:06 
+  11.   Goin' off the Deep End (Kennemore/Meniketti) - 4:32 
+  12.   Surrender (DeGrasso/Kennemore/Meniketti) - 5:22 
+
+
+Stef Burns  -  Guitar, Vocals 
+Phil Kennemore  -  Guitar (Bass), Vocals 
+Dave Meniketti  -  Guitar, Vocals 
+Jimmy DeGrasso  -  Drums 
+
+
+### "Musically Incorrect" 1995, Heavy Metal
+
+  1.   Long Way Down - 7:10 
+  2.   Fly Away - 7:03 
+  3.   Quicksand - 5:46 
+  4.   Cold Day in Hell - 5:06 
+  5.   I've Got My Own - 4:26 
+  6.   Nowhere Land - 6:34 
+  7.   Pretty Prison - 6:25 
+  8.   Don't Know What to Do - 4:51 
+  9.   21st Century - 5:33 
+  10.   I'm Lost - 3:18 
+  11.   Confusion - 3:06 
+  12.   No Regrets - 5:26 
+
+
+Stef Burns  -  Guitar 
+Phil DeLancie  -  Mastering 
+Phil Kennemore  -  Bass, Keyboards, Vocals, Producer 
+Dave Meniketti  -  Guitar, Songwriter, Vocals, Producer, Engineer, Art Direction 
+Jimmy DeGrasso  -  Percussion, Drums, Cover Design 
+Scott Boorey  -  Producer, Engineer, Mixing 
+
+
+
+### "Endangered Species" 1998, Heavy Metal
+
+  1.   Hello! Hello! I'm Back Again (DeGrasso/Kennemore/Meniketti) - 5:00 
+  2.   Black Gold (Kennemore/Meniketti) - 4:46 
+  3.   Gimme the Beat (Kennemore/Meniketti) - 4:42 
+  4.   God Only Knows (Kennemore/Meniketti) - 5:12 
+  5.   Sumthin 4 Nuth'n (DeGrasso/Meniketti) - 4:11 
+  6.   Still Falling (Kennemore) - 5:37 
+  7.   Voices (DeGrasso/Kennemore/Meniketti) - 4:21 
+  8.   I Wanna Cry (Kennemore/Meniketti) - 4:24 
+  9.   Sail on By (Kennemore/Meniketti) - 5:20 
+  10.   Can't Stop the Rain (DeGrasso/Kennemore/Meniketti) - 3:39 
+  11.   Try to Believe (Kennemore) - 4:58 
+  12.   Rocco [*] (Meniketti) - 4:39 
+
+
+Stef Burns  -  Guitar 
+Phil Kennemore  -  Bass, Vocals, Producer, Annotation 
+Ken Lee  -  Mastering 
+Dave Meniketti  -  Guitar, Vocals, Producer, Engineer, Graphic Design, Art Direction, Cover Art Concept 
+Jimmy DeGrasso  -  Percussion, Drums, Producer 
+Scott Boorey  -  Producer, Engineer, Mixing 
+Erin Conigliaro  -  Graphic Design 
+
+
+### "Facemelter" 2010, Heavy Metal
+
+1. Prelude, On With The Show 
+2. On With The Show 
+3. How Long 
+4. Shine On 
+5. I Want Your Money 
+6. Wild Child 
+7. I'm Coming Home 
+8. If You Want Me 
+9. Hot Shot 
+10. Blind Patriot 
+11. Don't Bring Me Down 
+12. Gonna Go Blind 
+13. One Life
+
 
 ## Отношения с другими группами
 

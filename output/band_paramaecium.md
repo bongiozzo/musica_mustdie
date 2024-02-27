@@ -1,9 +1,76 @@
 # Paramaecium
 
-Дискография
-"Exhumed Of The Earth" 1993, Death Doom
-"Within The Ancient Forest" 1996, Death Doom
-"A Time to Mourn" 1999, Death Doom
+
+
+## Дискография
+
+### "Exhumed Of The Earth" 1993, Death Doom
+
+1. The Unnatural Conception
+2. Injudicial
+3. The Killing
+4. Untombed
+5. The Voyage Of The Severed
+6. Haemorrage Of Hatred
+7. Removed Of The Grave
+
+ Andrew Tompkins - Bass & Vocals
+ Jason De Ron - Guitars
+ Jayson Sherlock - Drums & Cymbals
+
+All Songs Composed & Arranged By PARAMAECIUM
+Recorded & Mixed At Toybox Studios, Northcote, Melbourne, Australia
+Engineered By Mark Tulk
+
+(p)&(c) 1994 WITCHHUNT Records
+
+### "Within The Ancient Forest" 1996, Death Doom
+
+1.  In Exordium
+2.  Song Of The Ancient
+3.  I Am Not Alive
+4.  The Grave, My Soul
+5.  Gone Is My Former Resolve
+6.  Of My Darkest Hour
+7.  Darkness Dies
+
+
+All songs written by PARAMAECIUM
+Produced by Andrew Tompkins and Adrian De Witts, with PARAMAECIIIM
+Engineered by Adrian De Witts
+Recorded and mixed at Toybox Studios, Melbourne.
+
+Andrew Tompkins - Bass and Vocals
+Jason De Ron - Guitar
+Jayson Sherlock - Drums
+Chris Burton - Guitar
+
+Female vocals on З by Sue Bock
+                    on ЗЗ by Rosemary Sutton
+                  on ЗЗЗ Annette Dowdle
+Cello performed by Roxanne Lascaris.
+Piano and Harpsichord performed by Sebastian Lorefice.
+Flute performed by Judy Hellemons
+
+(p)c 1996 PLEIEGEIER Records
+
+### "A Time to Mourn" 1999, Death Doom
+
+A moment 
+I'm not to blame  
+My thoughts  
+Betrayed again  
+Enter in time  
+Live for the day 
+Even the walls  
+Unceasing 
+
+
+
+Produced by Andrew Tompkins. Recorded and mixed variously at Toyland Recording Studio and The Operating Theatre, Melbourne. Mastered by Don Bartley at Studios 301, Sydney. 
+
+All lyrics written by Andrew Tompkins 
+
 
 ## Отношения с другими группами
 

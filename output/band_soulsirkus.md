@@ -1,7 +1,30 @@
 # Soul Sirkus
 
-Дискография
-"World Play" 2005, Hard Rock
+
+
+## Дискография
+
+### "World Play" 2005, Hard Rock
+
+01. World Play
+02. Highest Ground
+03. New Position
+04. Another World
+05. Soul Goes On
+06. Alive
+07. Periled Divide
+08. Peephole
+09. Abailar To’ Mundo
+10. Friends To Lovers
+11. Praise
+12. My Sanctuary
+13. Coming Home
+14. My Love, My Friend
+15. Close The Door
+16. Soulspace
+17. Soulspace
+16. James Brown
+
 
 ## Отношения с другими группами
 

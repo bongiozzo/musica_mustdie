@@ -1,8 +1,33 @@
 # Garden Of Shadows
 
-Дискография
-"Heart of the Corona" 1999, Death Doom
-"Oracle Moon" 2001, Death Doom
+melodic death-doom
+
+## Дискография
+
+### "Heart of the Corona" 1999, Death Doom
+
+Solar Pulse (Intro)
+Heart of the Corona
+Lovely Cold
+Company in Solitude
+Apollonian Realm
+Shards of the Sphere
+
+
+  
+
+
+### "Oracle Moon" 2001, Death Doom
+
+Oracle Moon
+Citadel of Dreams
+Into Infinity
+Dissolution of the forms
+Continuum
+Desert Shadows
+Twilight Odyssey
+
+
 
 ## Отношения с другими группами
 

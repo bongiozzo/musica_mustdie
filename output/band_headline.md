@@ -1,9 +1,61 @@
 # Headline
 
-Дискография
-"VOICES OF PRESENCE" 1999, Progressive
-"ESCAPE" 2000, Progressive
-"Duality" 2002, Progressive
+progressive metal
+
+## Дискография
+
+### "VOICES OF PRESENCE" 1999, Progressive
+
+1.THE CALL   
+2. GETTING DOWN TO IT  
+3.TRILOGY part I - PRESENCE  
+4. TRILOGY part II - THE MESSAGE  
+5.TRILOGY part III -ACKNOWLEDGEMENTS   
+6. LAST WILL   
+7. SEVEN  
+8. NEVER ENOUGH    
+9. GIVE UP ONCE  
+10.AWAKEN DREAM 
+
+Sylvie Grare - lead vocals
+- Didier Chesneau - Guitars
+- Christophe Babin - Bass
+- Aymeric Ribot - Keyboards
+- Dirk Verbeuren - Drums
+
+### "ESCAPE" 2000, Progressive
+
+1.AVALON  
+2. THE TIME OF LORDS  
+3. FEVER  
+4. U'RE WHAT U'VE GOT  
+5. WHO ARE WE  
+6. SAD CLOWN   
+7. THRU THE DAYLIGHT  
+8. MASQUERADE  
+9. ESCAPE  
+10. THE NIGHT IS OVER  
+11. WHAT CAN I DO 
+
+- Sylvie Grare - lead vocals
+- Didier Chesneau - Guitars
+- Christophe Babin - Bass
+- Phil Woindrich - Keyboards
+- Fred Moreau - Drums
+
+### "Duality" 2002, Progressive
+
+01. Exorcise Me
+02. In High Dungeon
+03. For Those Who Die
+04. Bereft Of Sky
+05. Insanity
+06. The Almighty
+07. Farewell
+08. My Own Life
+09. Replay
+10. Epilog
+
 
 ## Отношения с другими группами
 

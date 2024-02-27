@@ -1,7 +1,13 @@
 # Squad 21
 
-Дискография
-"Skullduggery" 2004, Punk
+project of Gus Chambers (Grip Inc.) punk-rock & rock'n'roll
+
+## Дискография
+
+### "Skullduggery" 2004, Punk
+
+
+
 
 ## Отношения с другими группами
 

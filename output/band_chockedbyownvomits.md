@@ -1,7 +1,28 @@
 # Chocked By Own Vomits
 
-Дискография
-"Shit Autopsy" 2009, Grindcore
+
+
+## Дискография
+
+### "Shit Autopsy" 2009, Grindcore
+
+1. Pungent Stench
+2. Mouth Full Of Vomit
+3. To Comen Shitn Wipen Leave
+4. A Shit Nailed To The_Wall
+5. Disgorging Foetus (Regurgitate Cover)
+6. Im Gonna Vomit
+7. I Want My Name To Be A Rectum, I Would Be Your Best Friend In Return'
+8. Dark Side Of The Ass
+9. Shit Autopsy
+10. Exploding Ass
+11. One Half Does Not Jabber
+12. Room No. 207
+13. Fuck! Shit! Cunt! Bitch!
+14. And The Ass Has Closed
+15. Turbo Anal Motocross
+16. Eaten Alive (Gruesom Stuff Relish Cover)
+
 
 ## Отношения с другими группами
 

@@ -1,10 +1,65 @@
 # Dalriada
 
-Дискография
-"Kikelet" 2007, Folk
-"Szelek" 2008, Folk
-"Arany - Album" 2009, Folk
-"Igeret" 2011, Folk
+
+
+## Дискография
+
+### "Kikelet" 2007, Folk
+
+1. Bucsuzo  04:32  
+2. Kikelet  04:59   
+3. Vandor-Fohasz  04:35   
+4. Taltosenek  04:55  
+5. Nema Harangok  05:04 
+6. Szentfold  05:59 
+7. Tuzhozo  04:00   
+8. Tavasz Dala  07:10 
+9. Szondi Ket Aprodja (2. Resz)  04:59
+
+### "Szelek" 2008, Folk
+
+1. Szelek  01:43    
+2. Megegyszer...  04:41  
+3. A Nap es Szel Haza  04:40   
+4. Hajnalpir  04:24  
+5. Egi Madar  05:21  
+6. Hazateres  04:42  
+7. Egnek Ostora  05:29  
+8. Hej Viragom  05:08 
+9. A Szikla Legendaja  04:21 
+10. Vilagfuto Szel  05:32  
+11. Tavaszkoszonto  03:19 
+
+### "Arany - Album" 2009, Folk
+
+1. Zach Klara  06:34   
+2. Janos Pap Orszaga (Reszlet)  04:51 
+3. Bor Vitez  04:46   
+4. Agnes Asszony (1. resz)  06:00   
+5. Agnes Asszony (2. resz)  07:21 
+6. Szent Laszlo (1. resz)  06:11 
+7. Szent Laszlo (2. resz)  05:56 
+8. A Walesi Bardok (1. resz)  04:16   
+9. A Walesi Bardok (2. resz)  05:18
+10. A Walesi Bardok (3. resz)  05:51 
+11. A Rab Golya (Reszlet)  06:59 
+12. Szondi Ket Aprodja (1. resz)  05:40
+13. Szondi Ket Aprodja (2. resz)  05:20
+
+### "Igeret" 2011, Folk
+
+1. Intro  02:43 
+2. Hajdutanc  04:59  
+3. Hozd el, Isten  04:33 
+4. Mennyei Harang  06:17  
+5. Igeret  04:37  
+6. Igazi Tuz  04:42  
+7. Kinizsi Mulatsaga  04:19 
+8. A Hadak Utja  06:41 
+9. Leszek A Csillag  05:50 
+10. Leszek A Hold  06:14  
+11. Outro  00:50 
+
 
 ## Отношения с другими группами
 

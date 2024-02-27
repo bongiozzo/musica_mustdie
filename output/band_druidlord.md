@@ -1,7 +1,20 @@
 # Druid Lord
 
-Дискография
-"Hymns For The Wicked" 2010, Death Doom
+
+
+## Дискография
+
+### "Hymns For The Wicked" 2010, Death Doom
+
+01. Chamber of Ghastly Horror
+02. Witchfinder
+03. Castle of Count Sadist
+04. Awaken by the Dead
+05. Baron Blood 
+06. Eerie Ways 
+07. Gorgon Witch
+08. Circling of Vultures
+
 
 ## Отношения с другими группами
 

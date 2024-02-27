@@ -1,7 +1,27 @@
 # Serpens
 
-Дискография
-"Nox Irae" 2009, Black Metal
+
+
+## Дискография
+
+### "Nox Irae" 2009, Black Metal
+
+1. В Вечность
+2. Инициация Смерти
+3. Наместник Вселенной
+4. Nox Irae
+5. Сумерки
+6. На Костёр
+7. Проклинающий
+8. В Образе Змея
+
+Produced By Serpens. Recorded and Mixed at Black Studio, SPb, Russia.
+Recording engineer: Denis Devichensky
+All Music and Lyrics by SERPENS
+Cover and Inside Artworks by Ksenia Storozhenko
+Additional Backing vocal by Denis Devichensky
+Keyboards by Denis Devichensky
+
 
 ## Отношения с другими группами
 

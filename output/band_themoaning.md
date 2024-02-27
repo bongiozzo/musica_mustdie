@@ -1,7 +1,20 @@
 # The Moaning
 
-Дискография
-"Blood From Stone" 1996, Melodic Death Metal
+Melodic death-black metal
+
+## Дискография
+
+### "Blood From Stone" 1996, Melodic Death Metal
+
+1) Blood From Stone 
+2) Still Born 
+3) Of Darkness I Brees 
+4) Dying Infernal Embers 
+5) A Dark Decade`s Rising 
+6) Dreams In Black 
+7) Mirror Of The Soul 
+8) Dark Reflections
+
 
 ## Отношения с другими группами
 

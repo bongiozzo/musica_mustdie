@@ -1,11 +1,29 @@
 # Aztec Jade
 
-Дискография
-"Aztec Jade Demo #1" 1994, Progressive
-"Modern Prophet" 1995, Progressive
-"Frame Of Mind" 1997, Progressive
-"Paradise Lost" 2000, Progressive
-"Concrete Eden" 2002, Progressive
+prog-metal
+
+## Дискография
+
+### "Aztec Jade Demo #1" 1994, Progressive
+
+
+
+### "Modern Prophet" 1995, Progressive
+
+
+
+### "Frame Of Mind" 1997, Progressive
+
+
+
+### "Paradise Lost" 2000, Progressive
+
+
+
+### "Concrete Eden" 2002, Progressive
+
+
+
 
 ## Отношения с другими группами
 

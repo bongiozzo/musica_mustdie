@@ -1,27 +1,272 @@
 # Tankard
 
-Дискография
-"Zombie Attack" 1986, Thrash
-"Chemical Invasion" 1987, Thrash
-"The Morning After" 1988, Thrash
-"Alien (EP)" 1989, Thrash
-"Hair Of The Dog" 1989, Thrash
-"The Meaning Of Life" 1990, Thrash
-"Fat, Ugly And Live" 1991, Thrash
-"Stone Cold Sober" 1992, Thrash
-"Two-Faced" 1994, Thrash
-"The Tankard" 1995, Thrash
-"Disco Destroyer" 1998, Thrash
-"Kings of Beer" 2000, Thrash
-"B-Day" 2002, Thrash
-"Beast Of Bourbon" 2004, Thrash
-"The Beauty And The Beer" 2006, Thrash
-"Best Case Scenario: 25 Years In Beers (2 CD)" 2007, Thrash
-"Thirst" 2008, Thrash
-"Vol(l)ume 14" 2010, Thrash
-"A Girl Called Cerveza" 2012, Thrash
-"Fooled by Your Guts (single)" 2014, Thrash
-"R.I.B." 2014, Thrash
+Maniacs Of Beer
+
+## Дискография
+
+### "Zombie Attack" 1986, Thrash
+
+1.  Zombie Attack
+2.  Acid Death
+3.  Mercenary
+4.  Maniac Forces
+5.  Alcohol
+6.  (Empty) Tankard
+7.  Thrash `Till Death
+8.  Chains
+9.  Poison
+10.Screamin` Victims
+
+ Gerre - Vocal
+ Andy - Guitar
+ Axel - Guitar
+ Frank - Bass
+ Oliver - Drums
+
+Produced By Harris Johns
+
+(p)(c) 1986 NOISE Intl.
+
+### "Chemical Invasion" 1987, Thrash
+
+1. Total Addiction
+2. Tantrum
+3. Don`t Panic
+4. Puke
+5. For A Thousand Beer
+6. Chemical Invasion
+7. Farewell To A Slut
+8. Traytor
+9. Alcohol
+
+(p)&(c) 1987 NOISE Intl.
+
+
+### "The Morning After" 1988, Thrash
+
+1. Intro
+2. Commandments
+3. Shitfaced
+4. T.V. Hero
+5. F.U.N.
+6. Try Again
+7. The Morning After
+8. Desperation
+9. Feed The Lohocla
+10.Held Yourself
+11.Mon Cher
+12.Outro
+
+(p)&(c) 1988 NOISE Intl.
+
+### "Alien (EP)" 1989, Thrash
+
+1. Alien		
+2. 666 Packs 		
+3. Live To Dive 		
+4. Remedy 		
+5. (Empty) Tankard
+
+### "Hair Of The Dog" 1989, Thrash
+
+
+
+### "The Meaning Of Life" 1990, Thrash
+
+1.  Open All Night
+2.  We Are Us
+3.  Dancing On Our Grave
+4.  Mechanical Man
+5.  Beermuda
+6.  The Meaning Of Life
+7.  Space Beer
+8.  Always Them
+9.  Wheel Of Rebirth
+10.Barfly
+11.Wonderfull Life
+
+ Frank - Bass
+ Andy - Guitars
+ Gerre - Vocals
+ Axel - Guitars
+ Arnulf - Drums
+
+(p)(c) 1990 NOISE Records
+
+### "Fat, Ugly And Live" 1991, Thrash
+
+
+
+### "Stone Cold Sober" 1992, Thrash
+
+1. Jurisdiction
+2. Broken Image
+3. Mindwild
+4. Ugly Beauty
+5. Centerfold
+6. Behind The Back
+7. Stone Cold Sober
+8. Blood, Guts And Rock'n'Roll
+9. Lost And Found (Tantrum Part 2)
+10. Sleeping With The Past
+11. Freibier
+12. Of Strange Talking People Under Arabian Skies
+
+### "Two-Faced" 1994, Thrash
+
+1.  Death Penalty
+2.  RTV
+3.  Betrayed
+4.  Nation Over Nation
+5.  Days Of The Gun
+6.  Up From Zero
+7.  Two Faced
+8.  Ich Brauch Meinen Suff
+9.  Cyberworld
+10.Mainhattan
+11.Jimmy B. Bad
+
+(P)&(C) 1994 NOISE Records
+
+### "The Tankard" 1995, Thrash
+
+1.  Grave New World
+2.  Minds On The Moon
+3.  The Story Of Mr.Cruel
+4.  Close Encounter
+5.  Poshor Golovar
+6.  Mess In The West
+7.  Atomic Twilight
+8.  Fuck Christmas
+9.  Positive
+10. Hope?
+
+All Songs By TANKARD.
+Produced By Harris Johns.
+Mixed & Engineered By Harris Johns & TANKARD.
+Recorded & Mixed At Musiclab, Berlin.
+
+Gerre - Vocals
+Andy - Guitar, Banjo & Vocals
+Frank - Bass
+Olaf - Drums
+
+(P)(C) 1995 MODERN MUSIC Records
+
+### "Disco Destroyer" 1998, Thrash
+
+
+
+### "Kings of Beer" 2000, Thrash
+
+
+
+### "B-Day" 2002, Thrash
+
+Notorious Scum 
+Rectifier 
+Need Money for Beer 
+Ugly, Fat And Still Alive 
+Underground (Atmosphere: Hostile) 
+Voodoo Box 
+Sunscars 
+Zero Dude 
+New Liver Please! 
+Rundown Quarter 
+Alcoholic Nightmares 
+
+### "Beast Of Bourbon" 2004, Thrash
+
+1. Under Friendly Fire
+2. Slipping From Reality
+3. Genetic Overkill
+4. Die With A Beer in Your Hand
+5. The Horde
+6. Endless Pleasure
+7. Dead Men Drinking
+8. Alien Revenge
+9. Fistful Of Love
+10. Beyond The Pubyard
+11. Weґre Coming Back
+
+### "The Beauty And The Beer" 2006, Thrash
+
+1. Ice-olation   
+2. We Still Drink The Old Ways   
+3. Forsaken World   
+4. Rockstars no. 1   
+5. The Beauty And The Beer   
+6. Blue Rage - Black Redemption   
+7. Frankfurt: We Need More Beers   
+8. Metaltometal   
+9. Dirty Digger   
+10. Shaken Not Stirred
+
+### "Best Case Scenario: 25 Years In Beers (2 CD)" 2007, Thrash
+
+
+
+### "Thirst" 2008, Thrash
+
+1. Octane Warriors
+2. Deposit Pirates
+3. Stay Thirsty!
+4. Hyperthermia
+5. Echoes Of Fear
+6. When Daddy Comes To Play
+7. Zodiac Man
+8. G.O.L.A.W.
+9. Myevilfart
+10. Sexy Feet Under
+
+### "Vol(l)ume 14" 2010, Thrash
+
+1. Time Warp 06:01  
+2. Rules For Fools 03:55  
+3. Fat Snatchers (The Hippo Effect) 05:12  
+4. Black Plague (BP) 04:24  
+5. Somewhere In Nowhere 04:09  
+6. The Agency 05:04  
+7. Brain Piercing Of Death 04:20  
+8. Beck`s In The City 03:29  
+9. Condemnation 06:23  
+10. Weekend Warriors 07:25 
+
+
+### "A Girl Called Cerveza" 2012, Thrash
+
+01. Rapid Fire (A Tyrant's Elegy) 05:12
+02. A Girl Called Cerveza 04:14 
+03. Witchhunt 2.0 05:42 
+04. Masters Of Farces 04:08 
+05. The Metal Lady Boy 04:59 
+06. Not One Day Dead (But One Day Mad) 04:01 
+07. Son Of A Fridge 05:53 
+08. Fandom At Random 05:27 
+09. Metal Magnolia 05:07
+10. Running On Fumes 05:30
+
+Recorded at Studio 23 in Frankfurt, Germany.
+ 
+''Cerveza'' means ''beer'' in Spanish. 
+
+### "Fooled by Your Guts (single)" 2014, Thrash
+
+1. Fooled by Your Guts  03:16  
+
+### "R.I.B." 2014, Thrash
+
+1. War Cry  
+2. Fooled by Your Guts  03:16   
+3. R.I.B. (Rest in Beer) 
+4. Riders of the Doom  
+5. Hope Can’t Die     
+6. No One Hit Wonder      
+7. Breakfast for Champions     
+8. Enemy of Order   
+9. Clockwise to Deadline 
+10. The Party Ain’t over ‘Til We Say So 
+
 
 ## Отношения с другими группами
 

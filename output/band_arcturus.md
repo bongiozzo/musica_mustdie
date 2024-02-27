@@ -1,15 +1,147 @@
 # Arcturus
 
-Дискография
-"My Angel" 1991, Black Metal
-"Constellation" 1994, Black Metal
-"Aspera Hiems Symfonia" 1996, Black Metal
-"La Masquerade Infernale" 1997, Black Metal
-"And the Deception Circus Disguised Masters" 1999, Black Metal
-"The Sham Mirrors" 2002, Black Metal
-"Aspera Hiems Symphonia & Constellation & My Angel" 2002, Black Metal
-"Sideshow Symphonies" 2005, Alternative
-"Arcturian" 2015, Alternative
+Legend of Symphonic Black Metal from Norway
+
+## Дискография
+
+### "My Angel" 1991, Black Metal
+
+1. My angel  - 5:55 
+2. Morax  - 6:27
+
+### "Constellation" 1994, Black Metal
+
+1. Rod Og Svart  - 6:10 
+2. Icebound Streams And Vapours Gray  - 4:48 
+3. Naar Kulda Tar (Frostnettenes Prolog)  - 4:32 
+4. Du Nordavind  - 4:30
+
+### "Aspera Hiems Symfonia" 1996, Black Metal
+
+1.  To Thou Who Dwellest In The Night
+2.  Wintry Grey
+3.  Whence & Whitness Goest The Wind
+4.  Raudt Og Svart
+5.  The Bodkin & The Quietus (:To Reach The Stars)
+6.  Du Nordavind
+7.  Fall Of Man
+8.  Naar Kulda Tar (Frostnettenes Prolog)
+
+All Songs Written By ARCTURUS.
+Produced By ARCTURUS.
+Recorded & Mixed by Mr.Kristian Romsee.
+Recorded At Panser Studios
+
+ARCTURUS Are: Hellhammer, August, Gram, Sverd.
+
+(P)c 1996 ANCIENT LORE CREATION Records
+
+### "La Masquerade Infernale" 1997, Black Metal
+
+1. Master Of Disguise
+2. Ad Astra
+3. The Chaos Path
+4. La Masquerade Infernale
+5. Alone
+6. The Throne Of Tragedy
+7. Painting My Horror
+8. Of Nails And Sinners
+
+### "And the Deception Circus Disguised Masters" 1999, Black Metal
+
+Preludium
+ 1. White Tie Black Noise
+ 2. Deception Genesis
+ 3. Du Nordavind
+Interludium
+ 4. Alone
+ 5. The Throne Of Tragedy
+ 6. La Masquerade Infernale
+ 7. Master Of Disguise
+ 8. Painting My Horror
+ 9. Ad Astra
+Postludium
+10. Ad Astra
+
+### "The Sham Mirrors" 2002, Black Metal
+
+1. Kinetic - 5:26 
+2. Nightmare Heaven - 6:05 
+3. Ad Absurdum - 6:48 
+4. Collapse Generation - 4:13 
+5. Star Crossed - 5:01 
+6. Radical Cut - 5:08 
+7. For To End Yet Again - 10:33
+
+### "Aspera Hiems Symphonia & Constellation & My Angel" 2002, Black Metal
+
+--- Disk One ---
+1. To Thou Who Dwellest in the Night - 6:46
+2. Wintry Grey - 4:34 
+3. Whence and Whither Goest the Wind - 5:15 
+4. Raudt Og Svart - 5:49 
+5. The Bodkin & the Quietus - 4:34 
+6. Du Nordavind - 4:00 
+7. Fall of Man - 6:05 
+8. Naar Kulda Tar - 4:22 
+
+--- Disk Two --- 
+1. The Deep is the Skies - 4:19
+2. Cosmojam - 1:46
+3. Raudt og Svart - 6:08
+4. Icebound Streams and Vapours Grey - 4:45 
+5. Naar Kulda Tar - 4:28 
+6. Du Nordavind - 4:29 
+7. My Angel - 5:57
+8. Morax - 6:28
+
+### "Sideshow Symphonies" 2005, Alternative
+
+1. Hibernation Sickness Complete 05:02 
+2. Shipwrecked Frontier Pioneer 08:32 
+3. Demon Painter 05:33
+4. Nocturnal Vision Revisited 05:16
+5. Evacuation Code Deciphered 06:16  
+6. Moonshine Delirium 07:10
+7. White Noise Monster 03:55 
+8. Reflections 03:42  
+9. Hufsa 05:07
+
+
+Knut Magne Valle - Guitars 
+Hugh Stephen James Mingay (Skoll) - Bass 
+Steinar Sverd Johnsen - Keyboards 
+Simen Hestnaes "ICS Vortex" - vocals, lyrics 
+Tore Moren - Guitars 
+Jan Axel Von Blomberg (Hellhammer) - Drums
+
+### "Arcturian" 2015, Alternative
+
+Disc 1
+1. The Arcturian Sign  05:08   
+2. Crashland  04:08  
+3. Angst  04:26   
+4. Warp  03:51   
+5. Game Over  05:57   
+6. Demon  03:27   
+7. Pale  05:10   
+8. The Journey  04:14  
+9. Archer  05:36   
+10. Bane  05:50   
+
+Disc 2 - Reacturianized  
+1. Angst (Industrial Club Remix by Pride and Fall)  * 05:43 
+2. Archer (Sun of the Sleepless Geisterbahn Remix)  * 04:29   
+3. Game Over (Germ Remix)  * 06:02  
+4. Warp (Wormhole Remix by Encephalon)  * 05:12   
+5. Angst (Nailbomb Remix by Fractured)  * 04:03  
+6. Arcturian Psychedelic Sign (MшllarN Remix)  * 05:52   
+7. Warp (Germ Remix)  * 03:57  
+8. Pale (Necro Deathmort Remix)  * 06:16 
+
+Recorded at Mшlla between 2010 and 2014.
+Engineered, mixed and mastered by Mollarn and Arcturus.
+
 
 ## Отношения с другими группами
 

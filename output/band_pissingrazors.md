@@ -1,7 +1,24 @@
 # Pissing Razors
 
-Дискография
-"Fields Of Disbelief" 2000, Thrash
+
+
+## Дискография
+
+### "Fields Of Disbelief" 2000, Thrash
+
+1 Between heaven and hell
+2 Fork tongue
+3 Ruin
+4 You'll never know
+5 Selfish
+6 Fields of disbelief
+7 Three
+8 Out of control
+9 The other side
+10 Regnet
+11 Sever the ties
+12 Choises
+
 
 ## Отношения с другими группами
 

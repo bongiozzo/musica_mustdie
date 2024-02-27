@@ -1,11 +1,40 @@
 # Five Finger Death Punch
 
-Дискография
-"The Way Of The Fist" 2007, Groove
-"War Is The Answer" 2009, Groove
-"American Capitalist" 2011, Groove
-"The Wrong Side of Heaven and the Righteous Side of Hell, Volume 1" 2013, Groove
-"The Wrong Side of Heaven and the Righteous Side of Hell, Volume 2" 2013, Groove
+
+
+## Дискография
+
+### "The Way Of The Fist" 2007, Groove
+
+
+
+### "War Is The Answer" 2009, Groove
+
+
+
+### "American Capitalist" 2011, Groove
+
+
+
+### "The Wrong Side of Heaven and the Righteous Side of Hell, Volume 1" 2013, Groove
+
+
+
+### "The Wrong Side of Heaven and the Righteous Side of Hell, Volume 2" 2013, Groove
+
+01. Here to Die (2:59)
+02. Weight Beneath My Sin (3:39)
+03. Wrecking Ball (3:13)
+04. Battle Born (3:44)
+05. Cradle to the Grave (3:18)
+06. Matter of Time (3:16)
+07. The Agony of Regret (1:42)
+08. Cold (3:48)
+09. Let This Go (3:16)
+10. My Heart Lied (3:37)
+11. A Day in My Life (3:46)
+12. House of The Rising Sun (4:07)
+
 
 ## Отношения с другими группами
 

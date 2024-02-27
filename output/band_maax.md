@@ -1,7 +1,21 @@
 # Maax
 
-Дискография
-"Dawnbringer" 2009, Black Metal
+
+
+## Дискография
+
+### "Dawnbringer" 2009, Black Metal
+
+1. Blut Reich... Blood Dawn 05:32  
+2. Breath Upon The Embers 03:48  
+3. Dawnbringer 04:47  
+4. Reborn Beneath A Black Sun 08:06  
+5. Open Fire 04:33  
+6. Vered In Impurity 03:45  
+7. Wickedness Of Eternal Death 05:17  
+8. Purge Of Depravity Luciferi Rex 05:56  
+9. Dethroned Emperor (Celtic Frost cover) 04:03 
+
 
 ## Отношения с другими группами
 

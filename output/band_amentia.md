@@ -1,8 +1,36 @@
 # Amentia
 
-Дискография
-"Burn to Hate" 2007, Death Metal
-"Incurable Disease" 2011, Death Metal
+
+
+## Дискография
+
+### "Burn to Hate" 2007, Death Metal
+
+1. Born to Hate 01:48  
+2. I don`t give a fuck 04:13  
+3. Live Without Hesitation 04:45  
+4. Going for Death 04:39  
+5. Suicide 05:17  
+6. Slavery as a sentence 04:21  
+7. Quiet Obedience 04:36  
+8. Crucifixion Decapitated (Exhumator cover) 04:33 
+
+### "Incurable Disease" 2011, Death Metal
+
+1. My Pain (Intro)
+2. Selling Hope
+3. Legal Violence
+4. Weakness Makes One Cruel
+5. Thoughts Kill
+6. Fear
+7. Beauty Is Implement Of Murder
+8. He Proclamated Himself God
+9. Incurable Disease
+
+Bass, Drums –  Александр Горон
+Vocals -  Вадим Загорский
+Guitars – Артем “Tirpitz”Сердюк
+
 
 ## Отношения с другими группами
 

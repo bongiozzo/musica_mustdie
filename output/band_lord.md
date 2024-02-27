@@ -1,9 +1,52 @@
 # Lord
 
-Дискография
-"A Personal Journey" 2003, Heavy Metal
-"Ascendence" 2007, Heavy Metal
-"Set in Stone" 2009, Heavy Metal
+
+
+## Дискография
+
+### "A Personal Journey" 2003, Heavy Metal
+
+1. The Dreaming  01:57  
+2. Footsteps In The Sand  06:04
+3. Reflections  04:49  
+4. Freedom  05:38   
+5. By George!  05:23  
+6. The Richest Man  04:27   
+7. Journey Through Hell  08:47  
+8. The Traveller  05:55   
+9. One World  05:06  
+10. Behind The Mask  07:36   
+11. Rainy Nights  03:35
+12. Last Rites  07:25 
+
+### "Ascendence" 2007, Heavy Metal
+
+1. Echoes of the Past  00:37 
+2. Reborn  05:49   
+3. Going Down  04:28   
+4. Same Old Lines  05:39 
+5. Rain  06:05  
+6. My Own Way  06:20   
+7. Through the Fire  04:48   
+8. The Calm  01:10  
+9. Limb From Limb  05:44 
+10. 220  02:20 
+11. Legacy  03:29 
+
+### "Set in Stone" 2009, Heavy Metal
+
+1. Spectres Of The Ascendant  00:48    
+2. Redemption  05:31  
+3. 100 Reasons  04:44  
+4. Eternal Storm  05:31   
+5. Set In Stone  05:13 
+6. Someone Else's Dream  05:50   
+7. Forever  07:59   
+8. Beyond The Light  03:38   
+9. The End Of Days  08:22   
+10. Be My Guest  07:52   
+11. New Horizons  06:51 
+
 
 ## Отношения с другими группами
 

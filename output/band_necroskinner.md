@@ -1,7 +1,23 @@
 # Necroskinner
 
-Дискография
-"Chaoskinner" 2009, Thrash
+
+
+## Дискография
+
+### "Chaoskinner" 2009, Thrash
+
+1. Face A Face 
+2. Desepero	 
+3. Marcas Da Guerra 
+4. R.N.T. 
+5. Conformation 
+6. Pilares Da Consciencia 
+7. Amazon Hell Forest 
+8. Emergencia 
+9. Poser Traidor 
+10. Escoria Do Submundo 
+11. Necrorush
+
 
 ## Отношения с другими группами
 

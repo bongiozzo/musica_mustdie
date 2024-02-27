@@ -1,9 +1,39 @@
 # Skull Fist
 
-Дискография
-"Heavier Than Metal (EP)" 2010, Heavy Metal
-"Head Of The Pack" 2011, Heavy Metal
-"Chasing The Dream" 2014, Heavy Metal
+
+
+## Дискография
+
+### "Heavier Than Metal (EP)" 2010, Heavy Metal
+
+
+
+### "Head Of The Pack" 2011, Heavy Metal
+
+1.	 Head of the Pack
+2.	 Ride the Beast
+3.	 Commanding the Night
+4.	 Get Fisted
+5.	 Cold Night
+6.	 Tear Down the Wall
+7.	 Commit to Rock
+8.	 Ride On
+9.	 Like a Fox
+10.	 No False Metal
+11.	 Attack Attack (Tokyo Blade cover)
+
+### "Chasing The Dream" 2014, Heavy Metal
+
+1. Hour To Live
+2. Bad For Good
+3. Chasing The Dream
+4. Call Of The Wild
+5. Sign Of The Warrior
+6. You're Gonna Pay
+7. Don't Stop The Fight
+8. Shred's Not Dead
+9. Mean Street Rider
+
 
 ## Отношения с другими группами
 

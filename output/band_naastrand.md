@@ -1,7 +1,19 @@
 # Naastrand
 
-Дискография
-"Total Holocaust (1st Black Metal Assault)" 2006, Black Metal
+
+
+## Дискография
+
+### "Total Holocaust (1st Black Metal Assault)" 2006, Black Metal
+
+1. Intro 01:11  
+2. Black Metal Terrorism 04:23  
+3. Chainsaw (Self Mutilation) 02:52  
+4. Shadows Under a Full Moon Light 03:17  
+5. Nuclear Devastation 04:09  
+6. My Darkest Dream 04:19  
+7. Invertid Vuestro Crucifijo 05:28 
+
 
 ## Отношения с другими группами
 

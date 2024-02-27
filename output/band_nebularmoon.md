@@ -1,9 +1,106 @@
 # Nebular Moon
 
-Дискография
-"MOURNING" 1998, Black Metal
-"...OF DREAMS AND MAGIC" 1999, Black Metal
-"METAMORPHOSIS" 2000, Black Metal
+
+
+## Дискография
+
+### "MOURNING" 1998, Black Metal
+
+1. Flames
+2. Nevermore
+3. Divine agony
+4. Pest
+5. Mirror of truth
+6. Escape
+7. All is lost
+
+BONUS TRACKS:
+
+8. My Cold Eternity
+9. Nightfall
+10. Demons Of Time
+
+
+Remastered and remixed version inc. 3 bonus tracks from ґ98 "Nightfall (A Moment Like Infinity)" "Promo MCD"
+Tracks I - IV recorded 06.1997 at J.F. Studios Isselburg by J.F.
+Bonus tracks VIII - X recorded 98 at GAW-Studios by Damian Hein.
+All tracks remastered 98 by J.F. Vocals on I - VII by A.W.F.
+All music by Nebular Moon.
+Lyrics by Ingo Haltermann & Darius Widera.
+Cover artwork by Darius Widera
+
+### "...OF DREAMS AND MAGIC" 1999, Black Metal
+
+Chapter I - Steeple of Forgotten Knowledge.
+
+1. Gates of Experience Part I
+2. Gates of Experience Part II
+
+Lyrics: Markus Esch 
+
+Chapter II - Dust of Transience.
+
+3. My Cold Eternity
+4. Schwanengesang
+
+Lyrics: Darius Widera 
+
+Chapter III - Castle of Oblivion.
+
+5. Dark Angel
+6. Beyond the Sky
+
+Lyrics: Ingo Haltermann 
+
+Chapter IV - Dark Dormant Desires.
+
+7. An Erotic Nightmare
+8. Awakening in Black Thorns
+
+Lyrics: Markus Esch
+
+
+
+Recorded at SOUND FACTORY - SCHLOЯ FALKENHORST during December of `98 by Bonzo -Michael Bousonville.
+Mastered 06 March `99 by Marcel Sude & Michael Bousonville at Twilight Studio Illingen.
+All Music Composed and Arranged by Nebular Moon.
+Female Voice on My Cold Eternity by Rebekka Butwil.
+Lyrics by Markus Esch, Ingo Haltermann and Darius Widera.
+Produced by Nebular Moon for Last Episode Productions.
+Logo by Michael Schindler / Dragon Design.
+Coverpainting by Kris Verwimp.
+Booklet by Markus Esch, Marek Widera, Darius Widera.
+Photos by Photostudio Rцsler GmbH Bocholt.
+
+
+### "METAMORPHOSIS" 2000, Black Metal
+
+1. Der Ketzer und das Kind
+2. Daemonenland
+3. Der finale Schrei
+4. Jagdfieber
+5. Als der Hass meine Seele zerfrass
+6. Metamorphose
+7. Winter des Vergessens
+8. Fleischeslust
+9. Sturm der Seelen
+10. Tyrannenmord
+
+
+Recorded 07. & 12.2000 @ SpaceLab Studios Kempen.
+Produced by Christian Moos, Oliver Phillips & Nebular Moon.
+Mixed by Christian Moos & Nebular Moon.
+Mastered by Eroc.
+Music composed by Nebular Moon
+Arranged by Nebular Moon & Oliver Phillips.
+Lyrics by Ingo Haltermann, Pasquale Mдtzold, Darius Widera & Holger Terite.
+Orchestral Arrangement by Oliver Phillips (www.everon.de).
+Guest Vocals by Bjoern Goosses (Night in Gales/ www.night-in-gales.de) & Markus Esch (Abaddon/www.abaddon.de)
+Female Voice by Carolin D.
+Layout/Design by Bjoern Goosses (Killustraions.com/www.killustrations.com)
+Pictures by Daniel Wirth (Dwirth@web.de), Bjoern Gooses, Julia Zimmermann
+
+
 
 ## Отношения с другими группами
 

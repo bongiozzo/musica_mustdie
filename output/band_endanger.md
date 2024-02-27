@@ -1,7 +1,28 @@
 # Endanger
 
-Дискография
-"Addicted To The Masses" 2004, Synthpop
+
+
+## Дискография
+
+### "Addicted To The Masses" 2004, Synthpop
+
+01.  Give Me A Reason
+02.  Velvet Heart
+03.  Bist Du Bereit ?!
+04.  I Count On You
+05.  Spark (Discofashion mix)
+06.  I Come Undone
+07.  Spurst Du’s Nicht ?!
+08.  Like Heaven
+09.  Addicted To The Masses
+10.  Victory Of The Heart
+11.  Enter The Remix-Zone
+12.  Give Me A Reason (Club-Mix)
+13.  Give Me A Reason (Assamblage 23 Mix)
+14.  Give Me A Reason (NamNamBulu mix)
+15.  Give Me A Reason (Pestillanz-Mix By Massiv In Mensch)
+16.  Give Me A Reason (Hecq – Reemoqs)
+
 
 ## Отношения с другими группами
 

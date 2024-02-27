@@ -1,16 +1,205 @@
 # Nocturnal Rites
 
-Дискография
-"In A Time Of Blood And Fire" 1995, Power Metal
-"Tales Of Mystery And Imagination" 1998, Power Metal
-"The Sacred Talisman" 1999, Power Metal
-"Afterlife" 2000, Power Metal
-"Shadow Land" 2002, Power Metal
-"New World Messiah" 2004, Power Metal
-"Lost in Time: The Early Years of Nocturnal Rites" 2005, Power Metal
-"Grand Illusion" 2005, Power Metal
-"The 8th Sin" 2007, Power Metal
-"Phoenix" 2017, Power Metal
+Power Metal
+
+## Дискография
+
+### "In A Time Of Blood And Fire" 1995, Power Metal
+
+1. Sword Of Steel 03:21 
+2. Skyline Flame 05:28 
+3. Black Death 04:05 
+4. In A Time Of Blood And Fire  05:01 
+5. Dawnspell 05:37 
+6. Lay Of Ennui 05:00 
+7. Winds Of Death 04:16 
+8. Rest In Peace 03:37 
+9. Dragonisle 06:53 
+
+
+
+LINE-UP    
+Jonny Lindkvist Vocals 
+Fredrik Mannberg Guitar 
+Nils Eriksson Bass
+Nils Norberg Lead & Rhythm Guitar, Guitar Synthesizer 
+Owe Lingvall Drums 
+Mattias Bernhardsson Keyboards 
+
+
+
+
+
+
+
+
+
+### "Tales Of Mystery And Imagination" 1998, Power Metal
+
+1. Ring Of Steel 06:42 
+2. Dark Secret 05:04 
+3. Test Of Time 05:00 
+4. Lost in Time 03:01 
+5. The Vision 04:21 
+6. Warrior's Return 04:43 
+7. Change The World 03:45 
+8. Pentagram 03:47 
+9. Eye Of The Demon 04:42 
+10. End Of The World 03:23 
+11. The Curse 04:03
+12. Burn In Hell 03:37
+ 
+
+
+
+
+
+
+
+
+### "The Sacred Talisman" 1999, Power Metal
+
+1. Destiny Calls 03:58 
+2. The Iron Force 04:20 
+3. Ride On 03:16 
+4. Free At Last 03:49 
+5. Hold On To The Flame 04:08 
+6. Eternity Holds 04:00 
+7. Fire Comes To Ice 03:48 
+8. The Legend Lives On 05:47 
+9. The King's Command 03:24 
+10. Unholy Powers 03:12 
+11. Glorius 03:23
+ 
+ 
+ 
+
+
+
+
+
+
+
+
+### "Afterlife" 2000, Power Metal
+
+1 Afterlife 5:26 (Nocturnal Rites) 
+2 Wake up Dead 3:48 (Nocturnal Rites) 
+3 Sinners Cross 3:47 (Nocturnal Rites) 
+4 Hell and Back 3:39 (Nocturnal Rites) 
+5 Sign 3:50 (Nocturnal Rites) 
+6 Devil's Child 3:18 (Nocturnal Rites) 
+7 Genetic Distortion Sequence 4:01 (Nocturnal Rites) 
+8 Sacrifice 3:21 (Nocturnal Rites) 
+9 Temple of the Dead 4:47 (Nocturnal Rites) 
+10 Hellenium 4:46 (Nocturnal Rites) 
+
+
+### "Shadow Land" 2002, Power Metal
+
+1. Eyes of the Dead
+2. Shadowland
+3. Invincible
+4. Revelation
+5. Never Die
+6. Underworld
+7. Vengeance 
+8. Faceless God
+9. Birth of Chaos
+10. The Watcher
+
+### "New World Messiah" 2004, Power Metal
+
+1. New World Messiah 
+2. Against The World 
+3. Avalon 
+4. Awakening 
+5. Egyptica 
+6. Break Away 
+7. End Of Days 
+8. The Flame Will Never Die 
+9. One Nation 
+10. Nightmare 
+
+Line-Up: 
+Nils Norberg - guitar 
+Nils Eriksson - bass 
+Fredrik Mannberg - guitar 
+Owe Lingvall - drums 
+Jonny Lindkvist - vocals
+
+### "Lost in Time: The Early Years of Nocturnal Rites" 2005, Power Metal
+
+
+
+### "Grand Illusion" 2005, Power Metal
+
+1. Fools Never Die (3:54) 
+2. Never Trust (4:43) 
+3. Still Alive (4:02) 
+4. Something Undefined (4:08) 
+5. Our Wasted Days ((5:17) 
+6. Cuts Like A Knife (5:10) 
+7. End Of Our Rope (5:26) 
+8. Never Ending (4:29) 
+9. One By One (4:23) 
+10. Deliverance (5:00)
+
+### "The 8th Sin" 2007, Power Metal
+
+Disc 1 (CD)  
+1. Call Out to the World  03:48   
+2. Never Again  03:19  
+3. Not the Only  05:16  
+4. Tell Me  04:13   
+5. Not like You  04:25  
+6. Leave Me Alone  03:00   
+7. Till I Come Alive  03:45  
+8. Strong Enough  03:13   
+9. Me  04:13  
+10. Pain & Pleasure  03:53  
+11. Fools Parade  02:37  (instrumental)  
+12. Coming Home (03:53)  (Japanese bonus track)
+
+
+Disc 2 (DVD) 
+1. European Tour 2005  
+2. Japanese Tour 2006  
+3. Fools Never Die (Live)  
+4. Cuts Like A Knife (Live)  
+5. The Flame Will Never Die (Live)  
+6. Making Of 'Never Again'  
+7. Never Again (Promo)  
+
+
+All songs by Mannberg/Eriksson/Norberg.
+
+Drums recorded at Toontrack Music, Umea, Sweden, November — January 2006-2007.
+Keyboards and backing vocals recorded at Toontrack Music, Umea, Sweden, December — January 2006-2007.
+Guitars and lead vocals recorded at Svarta Myran, Umea, Sweden, December — February 2006-2007.
+Lead guitars recorded at Flesh-Hole Studios, Umea, Sweden, December — February 2006-2007.
+Bass recorded at Dynamite Night, Gunnarn, Sweden, December — February 2006-2007.
+Female vocals recorded at Toontrack Music, January 2007.
+Narrations, percussion and salt marimba recorded at Звук Укуса Акулы, Vitsyebsk, Belarus, January 2007.
+Produced by Nocturnal Rites.
+Mixed by Mattias Eklund and Nocturnal Rites at Toontrack Music, January—February 2007.
+
+
+### "Phoenix" 2017, Power Metal
+
+1. A Heart as Black as Coal  
+2. Before We Waste Away  
+3. The Poisonous Seed  
+4. Repent My Sins      
+5. What’s Killing Me    
+6. A Song for You     
+7. The Ghost Inside Me  
+8. Nothing Can Break Me 
+9. Flames   
+10. Welcome to the End 
+11. Used To Be God (Digipak Bonus Track)  
+
+
 
 ## Отношения с другими группами
 

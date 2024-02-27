@@ -1,7 +1,27 @@
 # Crystal Age
 
-Дискография
-"Far Beyond Divine Horizons" 1996, Black Metal
+
+
+## Дискография
+
+### "Far Beyond Divine Horizons" 1996, Black Metal
+
+ACT I  : The Proclamation (Far Beyond Divine Horizons / Fortune And Glory)
+ACT II : Being Lead Astray (The Beauty Of Evil / Son Of Time)
+ACT III: Deities Overthrown (Crystals Of The Wise / On Blooded Wings)
+ACT IV: Rage Of Vindication (Tempt Not Thy Maker / Star Destroyer)
+ACT V : Conclusion; The War Endeth (Retaliation)
+
+Recorded, Mixed & Produced By CRYSTAL AGE & Fredrik Nordstrom At Studio Fredman.
+Cover Artwork By Kristian Wahlin.
+
+Oscar Dronjak - Guitars, Vocals
+Moses Jonathan - Guitars
+Fredrik Larsson - Bass
+Hans Nilsson - Drums
+
+(P)(C) 1996 VIC Records // 2
+
 
 ## Отношения с другими группами
 

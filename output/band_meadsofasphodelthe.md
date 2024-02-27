@@ -1,10 +1,76 @@
 # Meads Of Asphodel, The
 
-Дискография
-"The Excommunication of Christ" 2001, Black Metal
-"Exhuming the Grave of Yeshua " 2003, Black Metal
-"Damascus Steel" 2005, Black Metal
-"The Early Years" 2009, Black Metal
+
+
+## Дискография
+
+### "The Excommunication of Christ" 2001, Black Metal
+
+1. The Excommunication of Christ 01:30  
+2. Angelwhore 03:16
+3. The Watchers of Catal Huyuk 04:46
+4. Agrat Bat Malah 04:53 
+5. Weeping Tears of Angel Light 03:17 
+6. Bene Ha Elohim 03:56 
+7. Assault and Battery (Hawkwind cover) 04:02
+8. Jezebel and the Philistines 04:25  
+9. Pale Dread Hunger 05:38
+10. Rise in Godless Hell 04:07
+11. Disembodied Voices of Melchizeden 02:01  
+12. Falling with Lightning Rays Beamed through the Blazing Firmament Towards the Untented Burial Ground of Kharsag 02:11 
+13. Calling All Monsters 04:46 
+
+### "Exhuming the Grave of Yeshua " 2003, Black Metal
+
+1. Intro - Exhuming the Grave of Yeshua 02:22
+2. God Is Rome 02:04 
+3. Blood Blasted Holy War 07:13
+4. 80 Grains of Sand 07:14 
+5. Guts for Sale 04:26
+6. Utopia 04:16
+7. Sons of Anak Rise 05:36
+8. A Healer Made God 06:45
+9. Sluts of the Netherworld 04:15
+10. On Graven Images I Glide Beyond the Monstrous Gates of Pandemonium to Face the Baptized Warriors of Yahweh in the Skull Littered Plain of Esdraelon 
+
+### "Damascus Steel" 2005, Black Metal
+
+1. Psalm 666 (Intro) 02:32  
+2. Creed of Abraham 05:46
+3. Hollow Womb of Suicide 02:53 
+4. Sword of the East (Hawkwind cover) 06:53
+5. Satanic Black Nubian Pharaohs 06:39 
+6. Wonderful World (Louis Armstrong cover) 02:17
+7. The Gods Who Mock Us 05:27
+8. Behold the Kindred Battle Carcasses Strewn Across the Bloodied Dunes of Gilgamesh Mute in the Frenzied Clamour of Death's Rolling Tongue and Ravenous Bursting Steel 11:01 
+9. Beyond Death and Darkness 17:57 
+
+### "The Early Years" 2009, Black Metal
+
+1. Angelwhore 04:51
+2. Book of Dreams 05:41
+3. The Gleaming Red Serpent 05:53
+4. Just Another Time to Kill 05:00  
+5. Pale Dread Hunger 05:41 
+6. Rise in Godless Hell 04:05
+7. Give Me Fire (G.B.H. cover) 03:03
+8. Neurodeliri (Bulldozer cover) 04:51  
+9. Bound Alive 03:35  
+10. Bleed for Me 03:43  
+11. Calling All Monsters 04:50  
+12. Paradise 04:14 
+13. Another God in Another Place 04:19
+14. Ogs Last Stand 04:27 
+
+#1 & #2 taken from the 1998 demo "The Bemoaning Of Metatron".
+#3 & #4 taken from the 1999 demo "Metatron And The Red Gleaming Serpent".
+#5, #6 & #7 taken from the 1999 demo "The Watchers Of Catal Huyuk".
+#8 is an unreleased track from what was to be a split 7".
+#9 appeared on Godreah Records' "No Holy Additives Vol. 4" in 2000.
+#10 is previously unreleased.
+#11 was a bonus track for the first pressing of "The Excommunication Of Christ" (2001).
+#12, #13 & #14 are demo versions of tracks intended for the "Jihad" split CD (2002). 
+
 
 ## Отношения с другими группами
 

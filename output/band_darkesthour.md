@@ -1,13 +1,46 @@
 # Darkest Hour
 
-Дискография
-"Mark Of The Judas" 2000, Death Metal
-"So Sedated, So Secure" 2001, Death Metal
-"Hidden Hands Of A Sadist Nation" 2003, Death Metal
-"Undoing Ruin" 2005, Death Metal
-"Deliver Us" 2007, Death Metal
-"The Eternal Return" 2009, Death Metal
-"The Human Romance" 2011, Death Metal
+(American band in way of Swedish Death metal)
+
+## Дискография
+
+### "Mark Of The Judas" 2000, Death Metal
+
+1 For the Soul of the Savior 6:02 (Darkest Hour) 
+2 Blessing in Tragedy 3:06 (Darkest Hour) 
+3 Legacy 3:42 (Darkest Hour) 
+4 Part LL 2:31 (Darkest Hour) 
+5 Eclipse 4:56 (Darkest Hour) 
+6 Mark of the Judas 4:39 (Darkest Hour) 
+7 Escape Artist 4:19 (Darkest Hour) 
+8 Messiah Complex 4:28 (Darkest Hour) 
+9 How the Beautiful Decay 7:15 (Darkest Hour) 
+
+
+### "So Sedated, So Secure" 2001, Death Metal
+
+
+
+### "Hidden Hands Of A Sadist Nation" 2003, Death Metal
+
+
+
+### "Undoing Ruin" 2005, Death Metal
+
+
+
+### "Deliver Us" 2007, Death Metal
+
+
+
+### "The Eternal Return" 2009, Death Metal
+
+
+
+### "The Human Romance" 2011, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

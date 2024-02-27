@@ -1,8 +1,51 @@
 # Miasma
 
-Дискография
-"Changes" 1992, Death Metal
-"Love Songs" 1993, Death Metal
+
+
+## Дискография
+
+### "Changes" 1992, Death Metal
+
+1. Baphomet
+2. Ancient Rhymes
+3. Melting Of Imagining Existence
+4. Schizophrenia ?
+5. Drowning In Blood
+6. The Prayer
+7. Morbid Knocking
+8. Still Birth
+
+ Gorehead - Voices
+ Peter Prochazka - Guitar
+ Ares Cancer - Guitar
+ Capral Adorator - Drums
+ Attems - Bass
+
+Produced By MIASMA,Kurh & Ulli Fink.
+Mixed By Ulli Fink & Martin Schirenc.
+Recorded & Mixed At U.L.L.I. Studios
+Kenna,October `91.
+
+(p)&(c) 1992 LETHAL Records
+
+### "Love Songs" 1993, Death Metal
+
+1. Love Song (To A Lost Little Girl)
+2. The Unbearable Resurrection Of A Suspicious Character
+3. Morbid Knocking (Alive)
+
+ Gorehead  - Voice
+ Ares Cancer - Guitar
+ Peter Prochazka - Guitar
+ Capral Adorator - Drums
+ Attems  - Bass
+
+Produced By Michi Zastoupil & MIASMA.
+Mixed By Michi Zastoupil & Michael Plesch.
+Recorded & Mixed At Vienna Power Station.
+
+(p)&(c) 1993 LETHAL Records
+
 
 ## Отношения с другими группами
 

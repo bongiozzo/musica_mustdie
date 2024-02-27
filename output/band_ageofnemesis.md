@@ -1,7 +1,23 @@
 # Age Of Nemesis
 
-Дискография
-"Psychogeist" 2006, Progressive
+
+
+## Дискография
+
+### "Psychogeist" 2006, Progressive
+
+1. Fate's Door
+2. Grey Room
+3. Faceless Enemy
+4. Mommy's Crying
+5. Psychogeist
+6. Breaking Away
+7. Goddess Nemesis
+8. Eye Of The Snake
+9. Karma
+10. Abraxas
+11. Awaking Minds
+
 
 ## Отношения с другими группами
 

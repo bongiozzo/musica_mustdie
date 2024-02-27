@@ -1,7 +1,32 @@
 # Insidious Disease
 
-Дискография
-"Shadowcast" 2010, Death Metal
+
+
+## Дискография
+
+### "Shadowcast" 2010, Death Metal
+
+1. Nuclear Salvation 03:28  
+2. Boundless 04:27  
+3. Conceived Through Hate 04:12  
+4. Abortion Stew 05:31  
+5. The Desire 04:09  
+6. Rituals of Bloodshed 03:20  
+7. Facemask 04:42  
+8. Insomniac 03:43  
+9. Value in Flesh 04:12  
+10. Abandonment 02:13  
+11. Leprosy (Death cover) 06:21 
+
+
+Groo (Marc Grewe) - Vocals 
+Silenoz (Sven Atle Kopperud) - Guitars 
+Jardar (Jon Oyvind Andersen) - Guitars 
+Shane Embury - Bass 
+Tony Laureano - Drums
+
+Frank "Killjoy" Pucci of Necrophagia co-wrote and performed guest vocals on "Rituals of Bloodshed". 
+
 
 ## Отношения с другими группами
 

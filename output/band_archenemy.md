@@ -1,22 +1,274 @@
 # Arch Enemy
 
-Дискография
-"Black Earth" 1997, Melodic Death Metal
-"Stigmata" 1998, Melodic Death Metal
-"Burning Bridges" 1999, Melodic Death Metal
-"Burning Japan - Live" 1999, Melodic Death Metal
-"Wages Of Sin" 2001, Melodic Death Metal
-"Anthems Of Rebellion" 2003, Melodic Death Metal
-"Dead Eyes See No Future EP" 2004, Melodic Death Metal
-"Doomsday Machine" 2005, Melodic Death Metal
-"Live Apocalypse DVD" 2006, Melodic Death Metal
-"Rise Of The Tyrant" 2007, Melodic Death Metal
-"The Root Of All Evil" 2009, Melodic Death Metal
-"Khaos Legions" 2011, Melodic Death Metal
-"War Eternal (single)" 2014, Melodic Death Metal
-"War Eternal" 2014, Melodic Death Metal
-"Will To Power" 2017, Melodic Death Metal
-"The World Is Yours (Single)" 2017, Melodic Death Metal
+
+
+## Дискография
+
+### "Black Earth" 1997, Melodic Death Metal
+
+1. Bury Me An Angel
+2. Dark Insanity
+3. Eureka
+4. Idolatress
+5. Cosmic Retribution
+6. Demoniality
+7. Transmigration Macabre
+8. Tiem Capsule
+9. Fields Of Desolation
+
+Produced By Fredrik Nordstrom & Michael Amott.
+Engineered By Fredrik Nordstrom.
+Recorded & Mixed At Studio Fredman.
+
+Michael Amott - Guitars
+Johan Liiva - Bass, Vocals
+Christopher Amott - Guitars
+Daniel Erlandsson - Drums
+
+All keyboards played by Fredrik Nordstrom.
+
+(P)(C) 1997 WRONG AGAIN Records
+
+### "Stigmata" 1998, Melodic Death Metal
+
+1 Beast of Man 3:41 (Arch Enemy) 
+2 Stigmata [Instrumental] 2:12 (Arch Enemy) 
+3 Sinister Mephisto 5:45 (Arch Enemy) 
+4 Dark of the Son 7:01 (Arch Enemy) 
+5 Let the Killing Begin 5:18 (Arch Enemy) 
+6 Black Earth 6:40 (Arch Enemy) 
+7 Tears of the Dead 5:56 (Arch Enemy) 
+8 Vox Stellarum [Instrumental] 2:09 (Arch Enemy) 
+9 Bridge of Destiny 7:44 (Arch Enemy) 
+
+
+### "Burning Bridges" 1999, Melodic Death Metal
+
+1 Immortal 3:42 (Arch Enemy) 
+2 Dead Inside 4:10 (Arch Enemy) 
+3 Pilgrim 4:31 (Arch Enemy) 
+4 Silverwing 4:07 (Arch Enemy) 
+5 Demonic Science 5:21 (Arch Enemy) 
+6 Seed Of Hate 4:07 (Arch Enemy) 
+7 Angelclaw 4:03 (Arch Enemy) 
+8 Burning Bridges 5:10 (Arch Enemy) 
+
+
+### "Burning Japan - Live" 1999, Melodic Death Metal
+
+01. The Immortal 
+02. Dark Insanity 
+03. Dead Inside
+04. Diva Satanica 
+05. Pilgrim 
+06. Silverwing 
+07. Best Of Man 
+08. Bass Intro/Tears Of The Dead 
+09. Bridge Of Destiny 
+10. Transmigration Macabre 
+11. Angelclaw
+
+### "Wages Of Sin" 2001, Melodic Death Metal
+
+Enemy Within 
+Burning Angel 
+Heart Of Darkness 
+Ravenous 
+Savage Messiah 
+Dead Bury Their Dead 
+Web Of Lies 
+The First Deadly Sin 
+Behind The Smile 
+Snow Bound (Instrumental) 
+Shadows And Dust 
+
+Playing time:  46 metal minutes 
+Produced by: Fredrik Nordstrom and Michael Amott 
+Mixed by: Andy Sneap 
+Release dates: JAPAN - April 25th 
+
+
+
+### "Anthems Of Rebellion" 2003, Melodic Death Metal
+
+1. Tear Down The Walls (Intro) 
+2. Silent Wars
+3. We Will Rise 
+4. Dead Eyes See No Future 
+5. Instinct 
+6. Leader Of The Rats 
+7. Exist to Exit 
+8. Marching On A Dead End Road (Instr.) 
+9. Despicable Heroes 
+10. End of the Line 
+11. Dehumanization 
+12. Anthem (Instr.) 
+13. Saints and Sinners
+
+### "Dead Eyes See No Future EP" 2004, Melodic Death Metal
+
+01. Dead Eyes See No Future (from "Anthems of Rebellion")
+02. Burning Angel (Live in Paris 2004)
+03. We Will Rise (Live in Paris 2004)
+04. Heart of Darkness (Live in Paris 2004)
+05. Symphony of Destruction (MEGADETH cover)
+06. Kill With Power (MANOWAR cover) 
+07. Incarnated Solvent Abuse (CARCASS cover).
+08. We Will Rise (Enhanced video clip)
+
+### "Doomsday Machine" 2005, Melodic Death Metal
+
+1. Enter The Machine 02:02  
+2. Taking Back My Soul 04:36  
+3. Nemesis 04:12  
+4. My Apocalypse 05:26  
+5. Carry The Cross 04:12  
+6. I Am Legend / Out For Blood 04:59  
+7. Skeleton Dance 04:34  
+8. Hybrids Of Steel 03:49  
+9. Mechanic God Creation 06:00  
+10. Machtkampf 04:16  
+11. Slaves Of Yesterday 05:01
+
+### "Live Apocalypse DVD" 2006, Melodic Death Metal
+
+Disc 1: 
+
+01. Tear Down The Walls 
+02. Enemy Within 
+03. Silent Wars 
+04. Burning Angel 
+05. Dead Eyes See No Future 
+06. Dead Bury Their Dead 
+07. Bury Me An Angel 
+08. Drum Solo 
+09. Instinct 
+10. Savage Messiah 
+11. First Deadly Sin 
+12. The Immortal 
+13. Bridge Of Destiny 
+14. We Will Rise 
+15. Heart Of Darkness 
+16. Snowbound 
+17. Ravenous 
+18. Fields Of Desolation 
+19. Nemesis 
+20. My Apocalypse 
+21. Skeleton Dance 
+
+Disc 2: 
+
+01. Ravenous 
+02. We Will Rise 
+03. Nemesis 
+04. My Apocalypse 
+05. Dead Eyes See No Future 
+06. Bury Me An Angel 
+07. Heart Of Darkness 
+
+Bonus Material: 
+* Interviews 
+* Backstage footage 
+* On The road from 2004-2005 Tour
+
+### "Rise Of The Tyrant" 2007, Melodic Death Metal
+
+1. Blood on Your Hands 04:41  
+2. The Last Enemy 04:15  
+3. I Will Live Again 03:32  
+4. In this Shallow Grave 04:54  
+5. Revolution Begins 04:11  
+6. Rise of the Tyrant 04:33  
+7. The Day You Died 04:52  
+8. Intermezzo Libertй 02:51  
+9. Night Falls Fast 03:18  
+10. The Great Darkness 04:46  
+11. Vultures 06:35 
+
+
+Angela Gossow - Vocals
+Michael Amott - Guitars
+Christopher Amott - Guitars
+Sharlee D'Angelo - Bass
+Daniel Erlandsson - Drums
+
+### "The Root Of All Evil" 2009, Melodic Death Metal
+
+1. The Root Of All Evil (Intro) 01:06  
+2. Beast Of Man 03:45
+3. The Immortal 03:47  
+4. Diva Satanica 03:48  
+5. Demonic Science 05:24
+6. Bury Me An Angel 04:25 
+7. Dead Inside 04:24 
+8. Dark Insanity 03:25
+9. Pilgrim 04:50 
+10. Demoniality 01:40  
+11. Transmigration Macabre 03:33
+12. Silverwing 04:22
+13. Bridge Of Destiny 07:53 
+
+### "Khaos Legions" 2011, Melodic Death Metal
+
+1. Khaos Overture (instrumental)
+2. Yesterday Is Dead And Gone
+3. Bloodstained Cross
+4. Under Black Flags We March
+5. No Gods, No Masters
+6. City Of The Dead
+7. Through The Eyes Of A Raven
+8. Cruelty Without Beauty
+9. We Are A Godless Entity (instrumental)
+10. Cult Of Chaos
+11. Thorns In My Flesh
+12. Turn To Dust (instrumental)
+13. Vengeance Is Mine
+14. Secrets 
+15. The Zoo 
+16. Snow Bound (acoustic)
+
+
+### "War Eternal (single)" 2014, Melodic Death Metal
+
+1. War Eternal 04:15
+
+
+### "War Eternal" 2014, Melodic Death Metal
+
+01. Tempore Nihil Sanat (Prelude in F minor) 
+02. Never Forgive, Never Forget 
+03. War Eternal 
+04. As The Pages Burn 
+05. No More Regrets 
+06. You Will Know My Name 
+07. Graveyard Of Dreams 
+08. Stolen Life 
+09. Time Is Black 
+10. On And On
+11. Avalanche 
+12. Down To Nothing 
+13. Not Long For This World
+
+### "Will To Power" 2017, Melodic Death Metal
+
+1. Set Flame to the Night  01:18    
+2. The Race  03:15    
+3. Blood in the Water  03:55    
+4. The World is Yours  04:53    
+5. The Eagle Flies Alone  04:59  
+6. Reason to Believe  04:47    
+7. Murder Scene  03:50    
+8. First Day in Hell  04:48    
+9. Saturnine  01:09    
+10. Dreams of Retribution  06:40    
+11. My Shadow and I  04:05    
+12. A Fight I Must Win  06:37 
+13. City Baby Attacked By Rats (Charged GBH cover)  02:48   
+
+### "The World Is Yours (Single)" 2017, Melodic Death Metal
+
+1. The World is Yours  04:53 
+
 
 ## Отношения с другими группами
 

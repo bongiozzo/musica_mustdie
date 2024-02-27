@@ -1,7 +1,13 @@
 # Cynicon
 
-Дискография
-"Cybernetic" 2003, Black Metal
+
+
+## Дискография
+
+### "Cybernetic" 2003, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

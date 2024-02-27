@@ -1,8 +1,29 @@
 # Hammerschmitt
 
-Дискография
-"Hammerschmitt" 2001, Gothic
-"Still On Fire" 2016, Gothic
+
+
+## Дискография
+
+### "Hammerschmitt" 2001, Gothic
+
+1. Einsamkeit 
+2. Sunder 
+3. Worte 
+4. Das Bose In Mir 
+5. Halleluja 
+6. Hammerschmitt 
+7. Fleisch Und Blut 
+8. Richter 
+9. Sex Mit Dir 
+10. Nein 
+11. BSE 
+12. Opferlamm 
+13. Krank 
+
+### "Still On Fire" 2016, Gothic
+
+
+
 
 ## Отношения с другими группами
 

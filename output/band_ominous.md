@@ -1,7 +1,13 @@
 # Ominous
 
-Дискография
-"The Spectral Manifest" 2000, Death Metal
+Sweden brutal death-metal
+
+## Дискография
+
+### "The Spectral Manifest" 2000, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

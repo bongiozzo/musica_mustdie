@@ -1,9 +1,56 @@
 # Company, The
 
-Дискография
-"The Company" 1995, Thrash
-"Frozen By Heat" 1997, Thrash
-"Awaking Under Dogs" 2002, Thrash
+
+
+## Дискография
+
+### "The Company" 1995, Thrash
+
+1.	 Cry of Souls	00:54	 
+2.	 Animal Farm	03:51	 
+3.	 Human experimental Subjects	03:57	 
+4.	 Antarctica	04:27	 
+5.	 Out of the Competition	04:13	 
+6.	 Daddy comes Home	01:34	 
+7.	 14 (Slave for the Perverse)	06:56	 
+8.	 Bury the Hatchet	04:46	 
+9.	 The Right to Rule	04:45	 
+10.	 Bullet in your Head	03:07	 
+11.	 Reactor	04:01	 
+12.	 Children of the Revolution (T-Rex Cover)	03:12
+13.	 Glimmer of Hope	05:59	 
+
+### "Frozen By Heat" 1997, Thrash
+
+1.	 Imposter		 
+2.	 Citizen Streetkid		 
+3.	 Animal Farm		 
+4.	 Frozen By Heat		 
+5.	 Lies Of Life		 
+6.	 Listen		 
+7.	 Antarctia		 
+8.	 Gimme 5		 
+9.	 Chemical Youthkill		 
+10.	 Alkoholidays		 
+11.	 The Bitter Point		 
+12.	 Hate In Cold Eyes		 
+13.	 Leave 'Em Alone
+
+### "Awaking Under Dogs" 2002, Thrash
+
+1.	 Soul Cold Brother	03:45	 
+2.	 My Opinion	04:11	 
+3.	 Mindwar	04:37	 
+4.	 Riding On Business	05:03	 
+5.	 Jailhouse Webcam	03:10	 
+6.	 You Spin Me Round (Like A Record)	03:13	 
+7.	 Naked Behind The Wall	03:20	 
+8.	 ...Senses...	03:43	 
+9.	 Texas Chain Law Massacre	03:33	 
+10.	 U.-Army	03:48	 
+11.	 Sofa Rebels	03:10	 
+12.	 The Spirit Of Paul Aner	12:17
+
 
 ## Отношения с другими группами
 

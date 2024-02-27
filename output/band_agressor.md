@@ -1,10 +1,91 @@
 # Agressor
 
-Дискография
-"Neverending Destiny" 1990, Death Metal
-"Toward Beyond" 1992, Death Metal
-"Symposium Of Rebirth" 1994, Death Metal
-"The Merciless Onslaught" 2002, Death Metal
+
+
+## Дискография
+
+### "Neverending Destiny" 1990, Death Metal
+
+1. Paralytic Disease
+2. The Unknown Spell
+3. Elemental Decay
+4. Voices From Below
+5. Neverending Destiny
+ Side Two:
+1. Prince Of Fire
+2. Dark Power
+3. The Arrival
+4. Brainstorm (Remix)
+5. Bloody Corpse
+
+ Alex C-T.  - Guitars & Vocals
+ Laurent  - Bass
+ Thierry  - Drums
+
+All Songs Written By A. Colin-Tocquaine.
+Produced By Boss.
+Engineered By Sven Conquest.
+
+(p)&(c) 1990 NOISE Intl./TYFON GRAMMOFON
+
+### "Toward Beyond" 1992, Death Metal
+
+1. Intro
+2. Primeval Transubstantation
+3. The Fortress
+4. Positonic Showering
+5. Antediluvian
+6. Epileptic Aura
+7. Hyaloid
+8. The Crypt
+9. Future Past / Eldest Things
+10.Turkish March
+
+Alex Colin-Tocquaine - Guitars & Vocals
+Patrick Gibelin "Manny" - Guitar
+Joel Guigon "Jo"  - Bass
+Steiphen Swegwam  - Drums
+
+All Lyrics By Colin-Tocquaine.
+All Music By AGRESSOR,Except * By W.A.Mozart.
+Produced By Boss & AGRESSOR.
+Engineered By Rex Gisslen.
+Recorded & Mixed At Montezuma Studio,Stockholm,
+March `92.
+
+(p)&(c) 1992 BLACK MARK Productions
+
+### "Symposium Of Rebirth" 1994, Death Metal
+
+1.  Barabas
+2.  Rebirth
+3.  Negative Zone
+4.  Apocalyptic Prophecies
+5.  Erga Meam Salutem
+6.  Overloaded
+7.  Theology
+8.  Civilisation
+9.  Wheel Of Pain
+10.Abhuman Dreadnaught
+11.Torture
+12.Dor Firn-I-Guinar
+13.After World Obliteration
+
+Produced by Borje Forsberg.
+Engineered by Guerra Waldemar.
+
+Manu Rogot - Guitars
+Alex Colin-Tocquaine - Guitars & Vocals
+Patrick Gibelin "Manny" - Guitar
+Joel Guigon "Jo" - Bass
+Steiphen Swegwam  - Drums
+
+(P)(C) 1994 BLACK MARK Productions // BMCD 55
+
+### "The Merciless Onslaught" 2002, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,13 +1,160 @@
 # Iron Fire
 
-Дискография
-"Thunderstorm" 2000, Heavy Metal
-"On The Edge" 2001, Heavy Metal
-"Revenge" 2006, Heavy Metal
-"Blade Of Triumph" 2008, Heavy Metal
-"To The Grave" 2009, Heavy Metal
-"Metalmorphosized" 2010, Heavy Metal
-"Voyage of the Damned" 2012, Heavy Metal
+Dannish power-metal
+
+## Дискография
+
+### "Thunderstorm" 2000, Heavy Metal
+
+The Final Crusade 
+When The Heroes Fall 
+Rise Of The Rainbow 
+Metal Victory 
+Thunderstorm 
+Behind The Mirror 
+Warriors Of Steel 
+The Battle Of Freedom 
+Glory To The King 
+Angel Of Light 
+Until The End 
+Riding Free 
+Under The Jolly Roger 
+
+
+### "On The Edge" 2001, Heavy Metal
+
+1. Eternal Damnation 
+2. The End Of It All 
+3. Prince Of Agony 
+4. On The Edge 
+5. Into The Abyss 
+6. Thunderspirit 
+7. Wanted Man 
+8. Lost n' Alone 
+9. Forever Evil
+10. Here And Alive 
+11. Miracle 
+12. The Price Of Blood
+
+
+Martin Steene  - lead and backing vocals
+Kristian H. Martinsen - guitars and percussions
+Jakob Lykkebo - bass 
+Martin Slott - guitars
+Morten Plenge - drums
+
+Tommy Hansen - keyboards, harmonica and backing vocals  
+
+
+
+
+### "Revenge" 2006, Heavy Metal
+
+01. Wings Of Rage
+02. Ironhead
+03. Metal Messiah
+04. Whirlwind Of Doom
+05. Savage Prophecy
+06. Fate Of Fire
+07. Stand As King
+08. Brotherhood Of The Brave
+09. Alone In The Dark
+10. Mind Machine
+11. Ice-cold Arion
+12. Break The Spell
+13. Gates Of Cybertron (bonus track)
+14. Odin's Call (bonus track)
+
+### "Blade Of Triumph" 2008, Heavy Metal
+
+1. Dragonheart 05:47
+2. Bloodbath of Knights 04:23
+3. Dawn of Victory 04:52
+4. Lord of the Labyrinth 04:23
+5. Bridges Will Burn 04:38 
+6. Follow the Sign 04:37 
+7. Steel Invaders 04:32
+8. Jackal's Eye 05:36
+9. Legend of the Magic Sword 04:27
+10. Gladiator's Path 04:11
+11. Blade of Triumph 07:26 
+
+
+### "To The Grave" 2009, Heavy Metal
+
+1. The Beast From The Blackness 04:50 
+2. Kill For Metal 04:10
+3. The Demon Master 03:39
+4. Cover The Sun 05:09 
+5. To The Grave 04:54
+6. March Of The Immortals 04:03
+7. The Kingdom 04:23
+8. Frozen In Time 05:25 
+9. Hail To Odin 04:59
+10. Doom Riders 05:40
+11. Ghost Of Vengeance 04:25 
+12. The Battlefield 03:59 
+
+### "Metalmorphosized" 2010, Heavy Metal
+
+1. Reborn To Darkness 05:08  
+2. Nightmare 03:48  
+3. Still Alive 05:05  
+4. Back In The Pit 03:30  
+5. The Underworld 06:30  
+6. Crossroad 04:28  
+7. Riding Through Hell 03:17  
+8. Left For Dead 04:11  
+9. The Graveyard 03:43  
+10. My Awakening 04:25  
+11. Drowning In Blood 03:57  
+12. The Phantom Symphony 09:41 
+
+
+Line-up:
+Martin Steene: vocals
+Kirk Backarach: guitars
+Martin Lund: bass
+Jens B.: drums
+
+Special Guests:
+
+Ivan Grosmeyer: Guest vocals on track, 5
+Sofie Emilie Puggaard: Guest vocals on track, 6
+
+Rune Stiassny (Saturnus) : All keyboarding on album
+
+The album features 14 tracks in total, some previously unreleased songs from
+recordings between On The Edge and Revenge, others completely new.
+
+The album also features guest appearances by all former Iron Fire members.
+
+Tracks 2,4,5,6,7,9,11,12,13 are from the demos
+
+Tracks 1,3,8,10 are completely new songs
+
+Bonus tracks on the Digipack editions:
+
+13. Afterlife
+14. Crossroads (Orchestral) 
+
+### "Voyage of the Damned" 2012, Heavy Metal
+
+1. The Dark Beyond 01:26 
+2. Enter Oblivion OJ-666 04:13 
+3. Taken 05:12 
+4. Slaughter of Souls 05:13 
+5. Leviathan 05:54 
+6. The Final Odyssey 05:58 
+7. Ten Years In Space 04:12 
+8. Voyage of the Damned 10:07 
+9. With Different Eyes 04:33 
+10. Dreams of the Dead Moon 05:18 
+11. Verge to Collide 04:34 
+12. Realm of Madness 04:04 
+13. Warmaster of Chaos 3:36 (digipack bonus Track)
+
+
 
 ## Отношения с другими группами
 

@@ -1,16 +1,83 @@
 # Bongzilla
 
-Дискография
-"Mixed Bag (EP)" 1996, Stoner
-"Hemp For Victory (EP)" 1998, Stoner
-"Methods For Attaining Extreme Altitudes (EP)" 1998, Stoner
-"Stash" 1999, Stoner
-"Apogee" 2000, Stoner
-"Shake: The Singles (Compilation)" 2002, Stoner
-"Gateway" 2002, Stoner
-"Contamination Festival 2003" 2004, Stoner
-"Amerijuanican" 2005, Stoner
-"Nuggets (Compilation)" 2007, Stoner
+
+
+## Дискография
+
+### "Mixed Bag (EP)" 1996, Stoner
+
+
+
+### "Hemp For Victory (EP)" 1998, Stoner
+
+
+
+### "Methods For Attaining Extreme Altitudes (EP)" 1998, Stoner
+
+1. Melovespot – 6:58
+2. High Like a Dog – 5:10
+3. Smoke/I Love Maryjane – 13:42
+
+
+### "Stash" 1999, Stoner
+
+01. Gestation – 3:50
+02. Sacred Smoke – 5:49
+03. American – 3:52
+04. Budgun/T.H.C. – 5:45
+05. Prohibition (4th Amendment) – 4:09
+06. Grog Lady – 4:44
+07. Harvest – 8:39
+08. P.O.W. – 6:06
+09. Under The Sun – 6:03
+
+### "Apogee" 2000, Stoner
+
+01. H.P. Keefmaker – 10:26
+02. Salvation – 5:42
+03. Grim Reefer – 10:43
+04. Witch Weed (Live) – 6:37
+05. Dealer McDope (Live) – 6:07
+06. Sacred Smoke (Live) – 5:03
+07. American (Live) – 4:00
+
+### "Shake: The Singles (Compilation)" 2002, Stoner
+
+
+
+### "Gateway" 2002, Stoner
+
+01. Greenthumb – 4:07
+02. Stone A Pig – 9:47
+03. Sunnshine Green – 4:20
+04. 666lb. Bongsession – 7:55
+05. Trinity [Gigglebush] – 4:40
+06. Gateway – 7:18
+07. Keefmaster – 4:27
+08. Hashdealer – 4:32
+
+
+### "Contamination Festival 2003" 2004, Stoner
+
+1. Gateway - 5:14
+2. Stone a Pig - 7:02
+3. Hashdealer - 4:02
+4. Keefmaster - 4:54
+
+### "Amerijuanican" 2005, Stoner
+
+Amerijuanican - 6:46
+Kash Under Grass - 4:22
+Tri-Pack Master - 3:05
+Cutdown - 6:59
+Weedy Woman - 4:24
+Stonesphere - 12:26
+Champagne & Reefer - 4:46
+
+### "Nuggets (Compilation)" 2007, Stoner
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,19 +1,266 @@
 # Suicidal Tendencies
 
-Дискография
-"Suicidal Tendencies" 1983, Crossover
-"Join The Army" 1987, Crossover
-"How Will I Laugh Tomorrow...  When I Can't Even Smile Today" 1988, Crossover
-"Controlled By Hatred / Feel Like Shit... Deja-Vu" 1989, Crossover
-"Lights... Camera... Revolution" 1990, Crossover
-"The Art Of Rebelion" 1992, Crossover
-"Still Cyco After All These Years" 1993, Crossover
-"Suicidal For Life" 1994, Crossover
-"Prime Cuts" 1997, Crossover
-"Freedump" 1999, Crossover
-"Free Your Soul And Save My Mind" 2000, Crossover
-"13" 2013, Crossover
-"World Gone Mad" 2016, Crossover
+
+
+## Дискография
+
+### "Suicidal Tendencies" 1983, Crossover
+
+1.  Memories Of Tomorrow
+2.  Possessed
+3.  I Saw Your Mommy
+4.  Fascist Pig
+5.  I Want More
+6.  Suicidal Failure
+7.  Suicide's An Alternative
+8.  Two-Sided Politics
+9.  I Shot Reagan
+10.Subliminal
+11.Won't Fall In Love Today
+12.Institutionalized
+
+All Lyrics By Mike Muir
+
+Produced by GLEN E. FRIEDMAN
+Engineered by RANDY BURNS
+Album Photography & Design by GLEN E. FRIEDMAN
+Art Mechanicals by DEE ZEE
+Roadies - MARC LEWIS & DAVE FLYNN
+Lyric Sheet Typesetting by MARK STERN
+
+   SPECIAL THANX TO: Mike Ball, Dave
+ Hutchinson, Rick Clayton, Mark Regalado,
+ Billy Evans, Valor Smith, Glen E. Friedman, Jim
+ & Marilyn Muir, Dunagin Bros., Jay Adams,
+ Mike Fraser, Caullen, Spot, THE BYO, Lisa
+ Fancher, BLACK FLAG, Albert & his Crandma,
+ Our Families, All Da Suicidal Boyz & Chix, and
+ everyone that voted us worst band & biggest
+ assholes in Flipside '82 polls.
+
+(P)c 1983
+
+### "Join The Army" 1987, Crossover
+
+1.  Suicidal Maniac
+2.  Join The Army
+3.  You Got, I Want
+4.  A Little Each Day
+5.  The Prisoner
+6.  War Inside My Head
+7.  I Feel Your Pain
+8.  Human Guinea Pig
+9.  Possessed To Skate
+10.No Name, No Words
+11.Cyco
+12.Two Wrongs Don't Make A Right
+     (But They Make Me Feel A Whole Lot Better)
+13.Looking In Your Eyes
+14.Celtic Frost Tristesses De La Lune
+
+ Mike Muir - Vocals
+ Rocky George - Guitar
+ Louiche Mayorga - Bass
+ R.J. Herrera - Drums
+
+Produced By SUICIDAL TENDENCIES & Lester Claypool
+
+(p)&(c) 1987 CAROLINE Records
+
+### "How Will I Laugh Tomorrow...  When I Can't Even Smile Today" 1988, Crossover
+
+1.  Trip At The Brain
+2.  Hearing Voices
+3.  Pledge Your Allegiance
+4.  How Will I Laugh Tomorrow 
+5.  The Miracle
+6.  Suicyco Mania
+7.  Surf And Slam
+8.  If I Don't Wake Up
+9.  Sorry ?!
+10.One Too Many Times
+11.The Feeling's Back
+
+ Mike Muir  - Vocals
+ Rocky George - Lead Guitar
+ Mike Clark - Rhythm Guitar
+ Rob Heathcote - Bass
+ R.J. Herrera - Drums
+
+Produced By Mark Dodson &
+SUICIDAL TENDENCIES
+
+(p)&(c) 1988 CBS Records
+
+### "Controlled By Hatred / Feel Like Shit... Deja-Vu" 1989, Crossover
+
+1. Master Of No Mercy
+2. How Will I Laugh Tomorrow*  (Video Edit)
+3. Just Another Love Song
+4. Waking The Dead
+5. Controlled By Hatred
+6. Choosing My Own Way Of Life
+7. Feel Like Shit...  Deja-Vu
+8. It's No Easy
+9. How Will I Laugh Tomorrow*  (Heavy Emotion Version)
+
+ Mike Muir - Vocals
+ Rocky George - Lead Guitar
+ Mike Clark - Rhythm Guitar
+ Stymee - Bass
+ R.J. Herrera - Drums
+
+Produced By Paul Winger & SUICIDAL TENDENCIES
+Except * Produced By Mark Dodson & SUICIDAL TENDENCIES
+
+(p)&(c) 1989 CBS Records
+
+
+### "Lights... Camera... Revolution" 1990, Crossover
+
+1.  You Can't Bring Me Down
+2.  Lost Again
+3.  Alone
+4.  Lovely
+5.  Give It Revolution
+6.  Get Whacked
+7.  Send Me Your Money
+8.  Emotion No.13
+9.  Disco's Out, Murder's In
+10.Go'n Breakdown
+
+Produced By Mark Dodson & SUICIDAL TENDENCIES
+
+(p)&(c) 1990 CBS Records
+
+### "The Art Of Rebelion" 1992, Crossover
+
+1.  Can't Stop
+2.  Accept My Sacrifice
+3.  Nobody Hears
+4.  Tap Into The Power
+5.  Monopoly On Sorrow
+6.  We Call This Mutha Revenge
+7.  I Wasn't Meant To Feel This Asleep At The Wheel
+8.  Gotta Kill Captain Stupid
+9.  I'll Hate You Better
+10.Which Way To Free ?
+11.It's Going Down
+12.Where's The Truth
+
+(p)(c) 1992 CBS Records
+
+### "Still Cyco After All These Years" 1993, Crossover
+
+1.  Suicide's An Alternative
+2.  Two - Sides Politics
+3.  Subliminal
+4.  I Shot The Devil
+5.  Won't Fall In Love Today
+6.  Institutionalized
+7.  War Inside My Head
+8.  Don't Give Me Your Nothin
+9.  Memories Of Tomorrow
+10.Possessed
+11.I Saw Your Mommy ...
+12.Fascist Pig
+13.A Little Each Day
+14.I Want More
+15.Suicidal Failure
+
+ Mike Muir - Vocals
+ Robert Trujillo - Bass
+ Rocky George - Lead Guitars
+ R.J. Herrera - Drums
+ Mike Clark - Rhythm Guitars
+
+(p)(c) 1993 SONY Music
+
+### "Suicidal For Life" 1994, Crossover
+
+1.  Invocation
+2.  Don't Give A Fuck
+3.  No Fuck'n Problem
+4.  Suicyco Muthafucka
+5.  Fucked Up Just Right !
+6.  No Bullshit
+7.  What Else Could I Do ?
+8.  What You Need's A Friend
+9.  I Wouldn't Mind
+10.Depression And Anguish
+11.Evil
+12.Love Vs. Loneliness
+13.Benediction
+
+ Cyko Miko Muir - Vocals
+ Rocky George - Guitars
+ Mike Clark - Guitars
+ Robert Trujillo - Bass
+ Jimmy DeGrasso - Drums
+
+Produced By Paul Northfield & SUICIDAL TENDENCIES
+Engineered And Mixed By Paul Northfield
+Recorded At Ocean Way Studios, Hollywood
+
+(p)(c) 1994 CBS Records
+
+### "Prime Cuts" 1997, Crossover
+
+
+
+### "Freedump" 1999, Crossover
+
+
+
+### "Free Your Soul And Save My Mind" 2000, Crossover
+
+Self Destruct
+Su casa es mu casa
+No more no less
+Free your soul, save my mind
+Pop songs
+Bullenium animal
+Animal
+Straight from heart
+Cyco speak
+Start your brain
+Public Dissension
+Children of the bored
+Got mutation
+Charlie Monroe
+Home
+
+
+### "13" 2013, Crossover
+
+01. Shake It Out (3:50)
+02. Smash It! (3:46)
+03. This Ain't A Celebration (3:31)
+04. God Only Knows Who I Am (5:28)
+05. Make Your Stand (5:54)
+06. Who's Afraid? (4:07)
+07. Show Some Love...Tear It Down (3:31)
+08. Cyco Style (4:41)
+09. Slam City (5:36)
+10. Till My Last Breath (4:39)
+11. Living The Fight (4:22)
+12. Life...(Can't Live With It, Can't Live Without It) (4:35)
+13. This World (5:07)
+
+### "World Gone Mad" 2016, Crossover
+
+01. Clap Like Ozzy
+02. The New Degeneration
+03. Living For Life
+04. Get Your Fight On!
+05. World Gone Mad
+06. Happy Never After
+07. One Finger Salute
+08. Damage Control
+09. The Struggle Is Real
+10. Still Dying To Live
+11. This World
+
 
 ## Отношения с другими группами
 

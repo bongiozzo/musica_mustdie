@@ -1,23 +1,306 @@
 # Candlemass
 
-Дискография
-"Epicus Doomicus Metallicus" 1986, Doom
-"Nightfall" 1987, Doom
-"Ancient Dreams" 1988, Doom
-"Tales Of Creation" 1989, Doom
-"Chapter VI" 1992, Doom
-"Dactylus Glomerata" 1998, Doom
-"From the 13:th sun" 1999, Doom
-"Doomed For Live-Reunion 2002" 2003, Doom
-"Candlemass" 2005, Doom
-"The Curse Of Candlemass (DVD)" 2005, Doom
-"King of the Grey Islands" 2007, Doom
-"Lucifer Rising" 2008, Doom
-"Death Magic Doom" 2009, Doom
-"Ashes to Ashes [CD/DVD]" 2010, Doom
-"Dancing in the Temple of the Mad Queen Bee (single)" 2012, Doom
-"Psalms For The Dead" 2012, Doom
-"Death Thy Lover (EP)" 2016, Doom
+
+
+## Дискография
+
+### "Epicus Doomicus Metallicus" 1986, Doom
+
+1. Solitude   5.34
+2. Demon's Gate  9.10
+3. Cristal Ball  5.21
+4. Black Stone Wielder 7.34
+5. Under The Oak  6.52
+6. A Sorcener's Pledge  8.20
+
+ Johan Langquist - Vocals
+ Mats Bjoerkman - Guitar
+ Klas Bergwall - Guitars
+ Leif Edling  - Bass
+ Matz Ekstroem - Drums
+
+All Songs & Lyrics By Leif Edling
+
+(p)&(c) 1986 BLACK DRAGON Records
+
+### "Nightfall" 1987, Doom
+
+1. Gothic Stone
+2. The Well Of Souls
+3. Codex Gigas
+4. At The Gallows End
+5. Samarithan
+6. Marche Funebre*
+7. Dark Are The Veils Of Death
+8. Mourners Lament
+9. Bewitched
+10.Black Candles**
+
+ Messiah Marrolin - Vocals
+ Mats Bjorkman - Rhythm Guitar
+ Lars Johansson - Lead Guitar
+ Leif Edling - Bass
+ Jan Lindth - Drums
+
+All Titles By Leif Edling, Except * By Chopin,
+** By Mike Wead
+Produced By CANDLEMASS
+Mixed By Mats
+
+(p)&(c) 1987 AXIS Records
+
+### "Ancient Dreams" 1988, Doom
+
+1. Mirror, Mirror
+2. A Cry from the Crypt
+3. Darkness in Paradise
+4. Incarnation of Evil
+5. Bearer of Pain
+6. Ancient Dreams
+7. The Bells of Acheron
+8. Epistle No. 81
+9. Black Sabbath Medley
+
+
+### "Tales Of Creation" 1989, Doom
+
+1. The Prophecy
+2. Dark Reflections
+3. Voices In The Wind
+4. Under The Oak
+5. Tears
+6. Into The Unfathomed Tower
+7. It The Edge Of Heathen
+8. Somewhere In Nowhere
+9. Through Infinitive Halls Of Death
+10.Dawn 
+11.A Tale Of Creation
+
+ Messiah Marcolin - Vocals
+ Mats Bjoerkman - Rhythm Guitar
+ Lars Johansson - Lead Guitar
+ Leif Edling - Bass
+ Janne Lindh - Drums
+
+All Songs By Leif Edling.
+Produced By Mats Lindfors & CANDLEMASS.
+
+(p)&(c) 1989 MUSIC FOR NATIONS Productions
+
+### "Chapter VI" 1992, Doom
+
+1. The Dying Illusion
+2. Julie Laughs No More
+3. Where The Runes Still Speak
+4. The Ebony Throne
+5. Temple Of The Dead
+6. Aftermath
+7. Black Eyes
+8. The End Of Pain
+
+ Tomas Vikstrom - Vocals
+ Mats Bjoerkman - Rhythm Guitar
+ Lars Johansson - Lead Guitar
+ Leif Edling - Bass
+ Janne Lindth - Drums
+
+All Songs Written By Leif Edling
+Produced By Rex Gissen & Leif Edling
+Recorded At Montezuma Recording By
+Rex Gissen
+
+(p)&(c) 1992 MFN
+
+### "Dactylus Glomerata" 1998, Doom
+
+Wiz
+I Still See The Black
+Dustflow
+Cylinder
+Karthago
+Abstrakt Sun
+Apathy
+Lidocain God
+Molotov
+
+
+
+### "From the 13:th sun" 1999, Doom
+
+
+
+### "Doomed For Live-Reunion 2002" 2003, Doom
+
+ CD 1 
+1.   Mirror Mirror  05:50  
+2.   Bewitched  04:33  
+3.   Dark Are The Veils Of Death  04:04  
+4.   Demons Gate  09:22  
+5.   Under The Oak  06:16  
+6.   At The Gallows End  05:32  
+7.   Samarithan  05:15  
+8.   Dark Reflections  04:43  
+9.   Mourners Lament  04:46  
+10.   Black Stone Wielder  02:54  
+ 
+ CD 2 
+1.   The Well Of Souls  08:53  
+2.   A Sorcerers Pledge  10:23  
+3.   Bearer Of Pain  04:26  
+4.   Ancient Dreams  00:30  
+5.   Somewhere In Nowhere  04:32  
+6.   Solitude  07:39  
+7.   Crystal Ball  07:22 
+
+
+### "Candlemass" 2005, Doom
+
+1. Enemy (intro) 00:12  
+2. Black Dwarf 05:30  
+3. Seven Silver Keys 04:59  
+4. Assassin of the Light 06:29  
+5. Copernicus 07:17  
+6. The Man Who Fell from the Sky 03:26  
+7. Witches 06:22  
+8. Born In A Tank 04:56  
+9. Spellbreaker 07:02  
+10. The Day and the Night 08:52  
+11. Mars and Volcanoes (digipak bonus track) 03:23
+
+### "The Curse Of Candlemass (DVD)" 2005, Doom
+
+Demons Gate 
+Dark Reflections
+Well of Souls
+Into the Unfathomed Tower
+Ancient Dreams
+The Bells of Acheron
+Witches
+Mirror Mirror
+A Cry From the Crypt
+Mourners Lament
+Black Stone Weilder
+Solitude
+Gallows End
+
+### "King of the Grey Islands" 2007, Doom
+
+1. Prologue 00:56  
+2. Emperor of the Void 04:29  
+3. Devil Seed 05:44  
+4. Of Stars and Smoke 05:38 
+5. Demonia 6 06:24 
+6. Destroyer 07:55
+7. Man of Shadows 06:17  
+8. Clearsight 06:52  
+9. The Opal City 01:13  
+10. Embracing the Styx 08:19 
+
+
+Lineup:
+Robert Lowe - vocals
+Mats Bjorkman - guitar
+Lasse Johansson - guitar
+Leif Edling - bass
+Jan Lindh - drums
+
+Also released in a digipack with two bonus tracks:
+11. Solitude [5:57]
+12. At the Gallows End [5:22]
+These are both re-recordings with Lowe on vocals. The back cover lists them in
+the wrong order.
+
+Also released as a tin box set limited to 500 copies. This comes with a bonus
+5" CD with two tracks:
+1. Black Dwarf
+2. Demonia 6 (early version)
+"Black Dwarf" is a rerecording with Lowe on vocals. These songs also appear on
+the Black Dwarf 7".
+
+Also released as a gatefold double vinyl limited to 500 copies with three bonus
+tracks:
+11. Edgar Grey [4:45]
+12. At the Gallows End [5:21]
+13. Solitude [5:57]
+"Edgar Grey" is exclusive to the double vinyl edition. "At the Gallows End" and
+"Solitude" are the same rerecordings featuring Lowe as on the digipak. 
+
+
+### "Lucifer Rising" 2008, Doom
+
+1. Lucifer Rising 04:07  
+2. The White God 05:01  
+3. Demons Gate (re-recorded) 09:03  
+4. At The Gallows End 05:17  
+5. Solitude 06:55 
+6. Emperor Of The Void 04:53  
+7. Devil Seed 06:03
+8. Mirror Mirror 06:04
+9. Under The Oak 07:01
+10. Of Stars And Smoke 05:51
+11. Black Dwarf 05:30 
+12. Samarithan 05:53 
+
+
+Including two new tracks "Lucifer Rising" and "The White God", a re-recorded
+version of "Demons Gate", and 9 songs live from Athens, 2007.
+
+Line-up:
+Robert Lowe - Vocals
+Mats Bjorkman - Rhythm Guitar
+Lars Johansson - Lead Guitar
+Leif Edling - Bass
+Jan Lindh - Drums 
+
+### "Death Magic Doom" 2009, Doom
+
+
+
+### "Ashes to Ashes [CD/DVD]" 2010, Doom
+
+1. Dark Are the Veils of Death 04:07  
+2. Samarithan 06:11  
+3. If I Ever Die 05:12  
+4. Hammer of Doom 07:05  
+5. At the Gallows End 05:38  
+6. Emperor of the Void 04:24  
+7. The Bleeding Baroness 08:03  
+8. A Sorcerers Pledge 11:47  
+9. Solitude 06:54  
+10. Kill the King [Rainbow cover] 05:30 
+
+### "Dancing in the Temple of the Mad Queen Bee (single)" 2012, Doom
+
+01. Dancing in the Temple of the Mad Queen Bee 03:28 
+02. The Killing of the Sun 04:03
+
+
+### "Psalms For The Dead" 2012, Doom
+
+1. Prophet 
+2. The Sound of Dying Demons 
+3. Dancing in the Temple (of the Mad Queen Bee) 
+4. Waterwitch 
+5. The Lights of Thebe 
+6. Psalms for the Dead 
+7. The Killing of the Sun 
+8. Siren Song 
+9. Black as Time  
+
+### "Death Thy Lover (EP)" 2016, Doom
+
+01. Death Thy Lover (06:50)
+02. Sleeping Giant (05:30)
+03. Sinister And Sweet (06:34)
+04. The Goose (06:34)
+
+Leif Edling - Bass  
+Mats Leven - Vocals  
+Mats Bjorkman - Guitars (rhythm)  
+Jan Lindh - Drums  
+Lars Johansson - Guitars (lead)  
+
+
 
 ## Отношения с другими группами
 

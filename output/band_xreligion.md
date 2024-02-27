@@ -1,8 +1,23 @@
 # X-Religion
 
-Дискография
-"Sodom And Gomorra XXI" 2002, Progressive
-"Dances on gobelins" 2003, Progressive
+(progressive)
+
+## Дискография
+
+### "Sodom And Gomorra XXI" 2002, Progressive
+
+
+
+### "Dances on gobelins" 2003, Progressive
+
+1. Agnostic Eparchy 10:39
+2. Waiting For the Sign of Eternity 4:33
+3. Transformation of Mentality 8:45
+4. Yesterday's Tomorrow 9:54
+5. Religion of the Dead 6:07
+6. A. L. I. V. E. - Epitaph 9:02
+7. Dances On Gobelins 9:18
+
 
 ## Отношения с другими группами
 

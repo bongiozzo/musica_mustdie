@@ -1,9 +1,68 @@
 # Empire
 
-Дискография
-"Hypnotica" 2001, Metal
-"Trading Souls" 2003, Hard Rock
-"The Raven Ride" 2006, Hard Rock
+AOR/Melodic Hard Rock
+
+## Дискография
+
+### "Hypnotica" 2001, Metal
+
+1. Hypnotica
+2. Fool In Love 
+3. Into The Light 
+4. You're All That I'm Looking For 
+5. Spread My Wings 
+6. Bad, Bad Boy
+7. Here I Am 
+8. I Will Always Be There 
+9. A Different Sign 
+10. Shelter 
+11. Back To Me 
+12. Another Place, Another Time 
+
+The Musicians:
+Lance King - Vocals
+Rolf Munkes - Guitars, Bass
+Neil Murray - Bass
+Gerald Kloos - Drums
+Guests:
+Mark Boals - Vocals (Track 3&8)
+Anders Johansson - Drums (Track 3&12)
+Don Airey - Keyboards (Track 5)
+
+### "Trading Souls" 2003, Hard Rock
+
+1. One In A Million
+2. Pay Back Time 
+3. Teenage Deadhead 
+4. Big World, Little Man 
+5. You 
+6. Perfect Singularity 
+7. Wherever You Go 
+8. Did You Ever Love Me 
+9. Comin' Home 
+10. Back In The Light
+
+Tony Martin - Vocals
+Rolf Munkes - Guitars
+Neil Murray - Bass
+Gerald Kloos - Drums
+Don Airey - Keyboards
+Guest:
+Anders Johansson - Drums (Track 3&7)
+
+### "The Raven Ride" 2006, Hard Rock
+
+1. The Raven Ride 04:26 
+2. Breathe 04:43  
+3. Carbon Based Lifeform 04:06 
+4. Satanic Curses 05:04 
+5. Al Sirat - The Bridge To Paradise 05:16  
+6. What Would I Do 04:45 
+7. Changing World 04:38 
+8. Maximum 03:54 
+9. I Can't Trust Myself 04:07 
+10. The Devil Speaks, The Sinner Cries 07:24
+
 
 ## Отношения с другими группами
 

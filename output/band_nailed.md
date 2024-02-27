@@ -1,7 +1,13 @@
 # Nailed
 
-Дискография
-"Sickness For This World (Demo)" , Nu Metal
+Nu-metal/modern death
+
+## Дискография
+
+### "Sickness For This World (Demo)" , Nu Metal
+
+
+
 
 ## Отношения с другими группами
 

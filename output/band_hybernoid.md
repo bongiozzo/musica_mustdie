@@ -1,8 +1,35 @@
 # Hybernoid
 
-Дискография
-"" 1995, Death Doom
-"Todays Tomorrows, Yesterday" 1996, Death Doom
+
+
+## Дискография
+
+### "" 1995, Death Doom
+
+
+
+### "Todays Tomorrows, Yesterday" 1996, Death Doom
+
+1.  Dread The Time
+2.  Todays Tomorrows, Yesterday
+3.  Dust In The Wind
+4.  Mind Liberty
+5.  World Of Ruin
+6.  Sear
+7.  When Two Lives
+8.  Strive To Convert
+
+All Songs Written By HYBERNOID.
+
+Dunk Goodenough - Vocals
+Paula Smith - Vocals
+Dave Evans - Guitars
+Andy Bennet - Guitars
+Andy J.Bennet - Bass
+Paul Stansfield - Drums
+
+(P)&c 1996 DISPLEASED Records
+
 
 ## Отношения с другими группами
 

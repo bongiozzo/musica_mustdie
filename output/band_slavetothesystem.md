@@ -1,7 +1,13 @@
 # Slave To The System
 
-Дискография
-"s/t" 2006, Alternative
+
+
+## Дискография
+
+### "s/t" 2006, Alternative
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,9 +1,74 @@
 # Clock DVA
 
-Дискография
-"Advantage" 1989, Industrial
-"Man-Umplified" 1992, Industrial
-"Sign" 1993, Industrial
+
+
+## Дискография
+
+### "Advantage" 1989, Industrial
+
+1. Tortured Heroine
+2. Beautiful Losers
+3. Resistance
+4. Eternity In Paris
+5. The Secret Life Of The 
+   Big Black Suit
+6. Breakdown
+7. Dark Encounter
+8. Poem
+9. Noises In Limbo
+10.Black Angels Death Song
+11.Resistance 12" Mix
+12.Breakdown 12" Mix
+
+ Adi Newton - Vocals,Trumpet
+ John Valentine Carruthers - Guitar
+ Paul Browse - Saxophones
+ Dean Dennis - Bass
+ Nick Sanderson - Drums
+
+Produced By Hugh Jones.
+Recorded At Rockfield Studio.
+
+(p)&(c) 1989 ANTERIOR Records
+
+### "Man-Umplified" 1992, Industrial
+
+1. Man-Umplifiers
+2. Techno Geist
+3. Axiomatic & Heuristic
+4. NYC Overload
+5. Transitional Voices
+6. Bit Stream
+7. Final Programm
+8. Memories Of Sound
+
+ Adi Newton - Cyphers & Semantics
+ Dean Dennis - Digital & Analog Machines
+ Robert Baker - Coding & Sonoric Syntactics
+
+Recorded At Anterior Digital Research Studio.
+
+(p)&(c) 1992 CONTEMPTO Records
+
+### "Sign" 1993, Industrial
+
+1. Signal
+2. Voice Recognition Test
+3. The Obsession Intensifies
+4. Two Souls
+5. Re-entry
+6. Poll Of Shades
+7. Return To Blue
+8. Eternity
+9. Sign
+
+Recording Of The Mariner VI And Skylab
+And The Voices Of Neil A.Armstrong And
+Edwin Eugene Aldrin Jr.,Courtesy Of The
+National Aeronautics And Space Administration.
+
+(p)&(c) 1993 CARGO Records
+
 
 ## Отношения с другими группами
 

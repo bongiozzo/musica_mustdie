@@ -1,9 +1,31 @@
 # War From A Harlots Mouth
 
-Дискография
-"Transmetropolitan" 2007, Death Metal
-"In Shoals" 2009, Metalcore
-"MMX" 2010, Deathcore
+
+
+## Дискография
+
+### "Transmetropolitan" 2007, Death Metal
+
+
+
+### "In Shoals" 2009, Metalcore
+
+
+
+### "MMX" 2010, Deathcore
+
+01. Insomnia (2:34)
+02. To Age And Obsolete (3:43)
+03. The Increased Sensation Of Dullness (2:30)
+04. Sleep Is The Brother Of Death (1:35)
+05. The Polyglutamine Pact (2:54)
+06. Cancer Man (0:53)
+07. C.G.B. Spender (3:52)
+08. Sugarcoat (1:31)
+09. Spineless (4:18)
+10. Recluse MMX (2:58)
+11. Inferno III/VI (5:34)
+
 
 ## Отношения с другими группами
 

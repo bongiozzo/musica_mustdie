@@ -1,7 +1,23 @@
 # Purson
 
-Дискография
-"The Circle And The Blue Door" 2013, Rock
+
+
+## Дискография
+
+### "The Circle And The Blue Door" 2013, Rock
+
+01. Wake Up Sleepy Head (2:06)
+02. The Contract (4:11)
+03. Spiderwood Farm (5:09)
+04. Sailor's Wife's Lament (3:59)
+05. Leaning on a Bear (3:27)
+06. Tempest and the Tide (5:06)
+07. Mavericks and Mystics (3:48)
+08. Well Spoiled Machine (5:09)
+09. Sapphire Ward (5:02)
+10. Rocking Horse (4:25)
+11. Tragic Catastrophe (5:21)
+
 
 ## Отношения с другими группами
 

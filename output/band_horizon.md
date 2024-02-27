@@ -1,8 +1,56 @@
 # Horizon
 
-Дискография
-"The Sky's The Limit" 2002, Progressive
-"Worlds Apart" 2004, Progressive
+
+
+## Дискография
+
+### "The Sky's The Limit" 2002, Progressive
+
+1. Sunset
+2. Freedom
+3. Living In Danger
+4. Keep On Fighting
+5. Don't Hide In The Shadow
+6. Hometown Star
+7. Put Your Money Where Your Mouth Is
+8. Atlantis
+9. So Long Ago
+10. Caught In The Middle
+11. The End
+
+All songs written by HORIZON
+Produced by Krissy Friedrich and Patrick Hemer
+Engineered and mixed Krissy Friedrich
+Recorded and mixed at Kaiserfriedrich Studio
+
+Patrick Hemer - All Guitars, Lead and Background Vocals
+Vinnie Angelo - Keyboards, Background Vocals
+Bruno J.Frank - Bass, Background Vocals
+Krissy Friedrich - Drums, Background Vocals
+
+### "Worlds Apart" 2004, Progressive
+
+1. Burning Hunger
+2. Always A Stranger
+3. Edge Of Insanity
+4. When The Night Falls
+5. Brainwashed
+6. Hell Or High Water
+7. The Black Mark
+8. Mercy
+9. Backstabber
+10. S & M
+
+All songs written by HORIZON
+Produced by Krissy Friedrich and Patrick Hemer
+Co-Produced and mastered by Achim Kohler
+Engineered and mixed Krissy Friedrich
+Recorded and mixed at Kaiserfriedrich Studio
+
+Patrick Hemer - Guitars, Bass, Keyboards, Lead and Background Vocals
+J.P. Giraldi - Keyboards
+Krissy Friedrich - Drums, Background Vocals
+
 
 ## Отношения с другими группами
 

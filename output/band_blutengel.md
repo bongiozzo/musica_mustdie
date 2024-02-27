@@ -1,14 +1,55 @@
 # Blutengel
 
-Дискография
-"Child of Glass" 1999, Gothic
-"Bloody Pleasures (Maxi)" 2001, Gothic
-"Seelenschmerz" 2001, Gothic
-"Black Roses (Maxi)" 2001, Gothic
-"Vampire Romance (Maxi)" 2002, Gothic
-"Angel Dust" 2002, Gothic
-"Forever (Maxi)" 2003, Gothic
-"Demon Kiss" 2004, Gothic
+
+
+## Дискография
+
+### "Child of Glass" 1999, Gothic
+
+
+
+### "Bloody Pleasures (Maxi)" 2001, Gothic
+
+
+
+### "Seelenschmerz" 2001, Gothic
+
+
+
+### "Black Roses (Maxi)" 2001, Gothic
+
+
+
+### "Vampire Romance (Maxi)" 2002, Gothic
+
+
+
+### "Angel Dust" 2002, Gothic
+
+
+
+### "Forever (Maxi)" 2003, Gothic
+
+
+
+### "Demon Kiss" 2004, Gothic
+
+01. Angels Of The Dark
+02. Forever
+03. Silent Tears (For You)
+04. In The Distance
+05. Solitary Angel
+06. Love Killer
+07. Senseless Life
+08. Navigator
+09. Stay
+10. Ice Angel
+11. Go To Hell?
+12. Resurrection
+13. Frozen Heart
+14. In My Dreams
+15. Verzweiflung
+
 
 ## Отношения с другими группами
 

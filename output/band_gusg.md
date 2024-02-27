@@ -1,9 +1,54 @@
 # Gus G.
 
-Дискография
-"Guitar Master" 2001, Instrumental
-"I Am the Fire" 2014, Heavy Metal
-"Brand New Revolution" 2015, Heavy Metal
+
+
+## Дискография
+
+### "Guitar Master" 2001, Instrumental
+
+1. Hardly Enough  03:59  
+2. Nightwalker  04:06  
+3. Blue Groove  04:46  
+4. Divine D  04:30  
+5. Cruel Heart  04:02   
+6. Girls in Heat  03:54  
+7. Lying Low  04:57   
+8. The 8th Degree  04:27  
+9. So Alone  04:24 
+
+
+### "I Am the Fire" 2014, Heavy Metal
+
+1. My Will Be Done  03:15   
+2. Blame It on Me  03:23  
+3. I Am the Fire  03:14  
+4. Vengeance  04:26  
+5. Long Way Down  03:02  
+6. Just Can't Let Go  04:00   
+7. Terrified  03:14   
+8. Eyes Wide Open  04:19   
+9. Redemption  04:15   
+10. Summer Days  03:49   
+11. Dreamkeeper  04:45   
+12. End of the Line  04:59   
+13. Without You (bonus) 05:00 
+
+
+### "Brand New Revolution" 2015, Heavy Metal
+
+01. The Quest
+02. Brand New Revolution (feat. Jacob Bunton)
+03. Burn (feat. Jacob Bunton)
+04. We Are One (feat. Jacob Bunton)
+05. What Lies Below (feat. Elize Ryd)
+06. Behind Those Eyes (feat. Jacob Bunton)
+07. Gone To Stay (feat. Jeff Scott Soto)
+08. One More Try (feat. Jacob Bunton)
+09. Come Hell Or High Water (feat. Mats Leven)
+10. If It Ends Today (feat. Mats Leven)
+11. Generation G (feat. Jeff Scott Soto)
+12. The Demon Inside (feat. Mats Leven)
+
 
 ## Отношения с другими группами
 

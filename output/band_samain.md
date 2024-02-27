@@ -1,7 +1,33 @@
 # Samain
 
-Дискография
-"Indomitus" 1997, Black Metal
+
+
+## Дискография
+
+### "Indomitus" 1997, Black Metal
+
+1.  Heralding The High King
+2.  Mac An Earraich Uane Ri Caisge
+3.  Stormclouds Gather
+4.  Lament
+5.  Fianna
+6.  Tir Na Noc
+7.  The Red Field
+8.  A Pagan Funeral 
+9.  Seeking The Way
+10.Beyond The Waves
+
+Recorded and Mixed at Upper Room
+Produced by Alan Smith and Warren Hately
+Cover artwork by Andrea Wood
+Band residence: Australia
+
+Liam Stone - Session Drums
+Nick Bell - Guitars
+Warren Hately - Bass, Vocals
+
+(P)(C) 1997 BLOODLESS CREATION Records // BLCR 7001
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,42 @@
 # Arcane Grail
 
-Дискография
-"Mysteries Of Ancient Charnel" 2006, Melodic Death Metal
-"Arya Marga (Ninefold Path to the Innocence)" 2009, Black Metal
+
+
+## Дискография
+
+### "Mysteries Of Ancient Charnel" 2006, Melodic Death Metal
+
+1.Foreword 
+2.Cemetery Of The Lost Souls 
+3.Summon The Fiend 
+4.Bewitched Wolves 
+5.Ghostly Retinue 
+6.Tragic Love 
+7.Frightful Night Of Revenge 
+8.Lapped In Moonless Centuries 
+9.Anachoret's Orisons 
+
+Recorded in Autumn 2004 at DIE-Records studio by producer Evgeniy Vinogradov
+
+Demether - вокал
+Natalie - чистый вокал (сопрано и scratching)
+Eugen - соло, ритм и акустическая гитара
+Anastasia - клавишные
+Alexander - ударные
+Kir - бас-гитара
+
+### "Arya Marga (Ninefold Path to the Innocence)" 2009, Black Metal
+
+1. Arcane Grail 
+2. of Snake and Raven 
+3. Autumn Wed Us, Sinned and Lone 
+4. Renaissant the Reverie 
+5. Sorrow of Forgotten Pride 
+6. Imprisoned in the Greatest War 
+7. Die Sonnenhymne 
+8. Iniquitous Yoke 
+9. Святой Грааль 
+
 
 ## Отношения с другими группами
 

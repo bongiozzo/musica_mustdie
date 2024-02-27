@@ -1,16 +1,139 @@
 # Gurd
 
-Дискография
-"Gurd" 1995, Thrash
-"Addicted" 1995, Thrash
-"D-Fect" 1996, Thrash
-"D-Fect The Remixes" 1997, Thrash
-"Down The Drain" 1998, Thrash
-"Bedlam" 2000, Hardcore
-"Encounter" 2003, Metal
-"Bang !" 2006, Thrash
-"Your Drug Of Choice" 2009, Thrash
-"Never Fail" 2011, Thrash
+Thrash a-la Pantera & Machine Head
+
+## Дискография
+
+### "Gurd" 1995, Thrash
+
+1. Get Up  03:06   
+2. You Won't Make It  04:54 
+3. I.O.U. Nothing  04:38  
+4. Enough  04:11   
+5. The Mant (Groovy)  03:55 
+6. Scum  04:34  
+7. Cut It Out  04:02  
+8. The Way You Want  05:40  
+9. Distinction  05:06  
+10. Gone So Far  04:20  
+11. Ceasfire  04:02  
+12. Don't Ask Me  07:19 
+
+### "Addicted" 1995, Thrash
+
+1. HxHxHx  04:12  
+2. Learn  03:26    
+3. Chill Out  03:26   
+4. Feel the Silence  04:32    
+5. Ghost Dance  05:25
+6. Face to Face  03:48  
+7. Red House  05:28  
+8. Give In  05:05   
+9. Down and Out  05:00    
+10. Too Vicious  04:15 
+11. Higher  02:20 
+
+### "D-Fect" 1996, Thrash
+
+1.  What Do You Live For
+2.  No  Sleep 
+3.  We've Been Told
+4.  Fever Of Pain
+5.  Bullshit
+6.  Human Existence
+7.  Go-Go-Go
+8.  Look Away
+9.  This Place
+10.Read My Lips
+11.Think
+12.Heaven Sent
+13.Lose Myself
+
+(P)(C) 1997 CENTURY MEDIA Records
+
+### "D-Fect The Remixes" 1997, Thrash
+
+
+
+### "Down The Drain" 1998, Thrash
+
+1. Down the Drain  04:06   
+2. Head Full of Shit  04:59  
+3. Dead or Alive  04:05  
+4. Bow My Head  03:47   
+5. I Remember  05:47   
+6. My Future  05:13   
+7. T.R.T.L.  02:57   
+8. Time to Forget  04:53 
+9. Caught  04:29   
+10. Help Me  03:33   
+11. Survive  03:10  
+12. Skin Up!!!  05:47 
+
+### "Bedlam" 2000, Hardcore
+
+Masterplan
+Big Shot
+Bedlam
+Stardust
+Always
+Rule The Pit
+V.U.L.T.
+Take My Hand
+Golden Age
+Shed No Tears
+Defiance
+We will Resist
+Warmachine
+
+### "Encounter" 2003, Metal
+
+
+
+### "Bang !" 2006, Thrash
+
+1. The Grand Deception  03:37 
+2. Bang !  03:32 
+3. Spirit of Rock  04:33
+4. Black Money  05:09  
+5. Break the Ban  04:39   
+6. Like a Man  04:22   
+7. Wish  03:54   
+8. Seducer  05:30   
+9. Wise Up  03:38   
+10. Children of the Grave (Black Sabbath cover)  05:09 
+11. Prelude  01:43 
+12. The Storm  05:18 
+
+### "Your Drug Of Choice" 2009, Thrash
+
+1. Your Drug Of Choice  04:13    
+2. Seven Starz  05:45  
+3. Once For All  04:41   
+4. Colony Collapse Disorder  03:34 
+5. Beneath The Sea  04:46  
+6. Madness Reigns  05:01  
+7. Nothing To Lose  03:57   
+8. Sceptic  04:07    
+9. Refused  03:29    
+10. Stuck In A Box  03:40  
+11. Let Me Die In Dignity  03:25 
+12. We Stand Up Today  04:34    
+13. Cold Gin (Bonus Track)  04:22 
+
+### "Never Fail" 2011, Thrash
+
+1.	 Never Fail	03:46	 
+2.	 Terminate	03:59	 
+3.	 Burn Yourself	03:09	 
+4.	 Rising From The Ashes	04:53	 
+5.	 Higher Meaning	03:53	 
+6.	 The Truth Will Leak	03:25	 
+7.	 Blame Someone Else	05:06	 
+8.	 No Sleep For The Damned [Grapes Of Wrath]	04:24	 
+9.	 Secret Underground (Bonus Track)	05:16	 
+10.	 Velvet Apocalypse	06:40
+
 
 ## Отношения с другими группами
 

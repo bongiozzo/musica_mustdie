@@ -1,9 +1,57 @@
 # Ewigheim
 
-Дискография
-"Mord nicht ohne Grund" 2002, Gothic
-"Heimwege" 2004, Gothic
-"Bereue Nichts" 2012, Gothic
+
+
+## Дискография
+
+### "Mord nicht ohne Grund" 2002, Gothic
+
+1. Einlauf
+2. Ein boser Scherz
+3. Kinderwald
+4. Ruckrad
+5. Leiche zur See
+6. Dein Zweck
+7. Mord nicht ohne Grund
+8. Ewigheim
+
+
+Produziert, abgemischt und gemastert vom 16.4.-25.4.2001 und 17.9-23.9.2001
+in der Klangschmiede E in Zeltingen-Rachtig/Mosel von M. Stock und Ewigheim
+
+Alle Lieder und Texte entstanden zwischen November 1999 und August 2001 im "Klangkreis Th&#1100;ringen"
+
+### "Heimwege" 2004, Gothic
+
+1. Vorspiel   
+2. Das Rad der Kдfer   
+3. Der Tanz der Motten  
+4. Mondtier  
+5. Leib in Laub 
+6. Humus Humanus 
+7. Der Prophet 
+8. Odem  
+9. Heimweg 
+Limited Edition Bonus CD:
+1. Im Leib der Wahrheit
+2. Der Bauer im Ruin
+3. Nur meine Liebe zдhlt
+4. Wenn Schweine fliegen
+
+### "Bereue Nichts" 2012, Gothic
+
+1. Heimkehr
+2. Bereue Nichts
+3. Staubfrei
+4. Stahl Trifft Kopf
+5. Morgenrot
+6. Schatten
+7. Schmutzengel
+8. Was Bleibt...
+9. Durrer Mann
+10. Der Letzte Mensch
+11. Mal Ehrlich (Bonus) 
+
 
 ## Отношения с другими группами
 

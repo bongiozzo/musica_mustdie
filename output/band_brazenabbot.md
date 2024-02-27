@@ -1,13 +1,233 @@
 # Brazen Abbot
 
-Дискография
-"Live and Learn" 1995, Hard Rock
-"Eye of the Storm" 1996, Hard Rock
-"Bad Religion" 1997, Hard Rock
-"Guilty As Sin" 2003, Hard Rock
-"A Decade Of Brazen Abbot" 2004, Hard Rock
-"My Resurrection" 2005, Hard Rock
-"A Decade Of Brazon Abbot DVD" 2005, Hard Rock
+hard rock
+
+## Дискография
+
+### "Live and Learn" 1995, Hard Rock
+
+1. Extraordinary Child (L: Gцran Edman)
+2. No Way Out of Nowhere (L: Nikolo Kotzev)
+3. Live and Learn (L: Glenn Hughes)
+4. Russian Roulette (L: Thomas Vikstrцm)
+5. Clean Up Man (L: Glenn Hughes)
+6. When November Reigns ( L: Thomas Vikstrцm)
+7. Miracle (L: Glenn Hughes)
+8. Big Time Blues (L: Nikolo Kotzev)
+9. Feeling Like A Rolling Stone ( L: Gцran Edman)
+10. Children of Today (L: Thomas Vkstrцm)
+11. Shadows of the Moon (L: Nikolo Kotzev)
+
+
+All music written by Nikolo Kotzev.
+Arranged, recorded, engineered, and mixed by Nikolo Kotzev.
+At Nitrax Studios, Mariehamn, Finland
+produced by Nikolo Kotzev
+All songs published by SPM music-Sweden
+Coverconcept by Nikolo Kotzev
+
+(C) + (P) 1995 Nikolo Kotzev
+Licensed 1996 by USG Records
+
+MUSICIANS:
+Nikolo Kotzev - guitars, keyboards, pianos, violin, percussion 
+The Singers: 
+Glenn Hughes (vocals on 3, 5, 7)
+Thomas Vikstrцm (vocals on 2, 4, 6, 8, 10, 11)
+Gцran Edman (vocals on 1, 9)
+
+The Players: 
+Ian Haugland - drums
+Mic Michaeli - organ
+Svante Henryson - bass
+
+### "Eye of the Storm" 1996, Hard Rock
+
+1. Eye of the Storm (L: Joe Lynn Turner, Robert Held)
+2. Twist of Fate (L: Joe Lynn Turner, Robert Held)
+3. Fool In Love (L: G&#246;ran Edman)
+4. Line of Fire (L: Joe Lynn Turner, Robert Held)
+5. Wake Up Everybody (L: Thomas Vikstr&#246;m)
+6. Everything's Gonna Be Allright (L: G&#246;ran Edman)
+7. Common People (L: G&#246;ran Edman)
+8. The Road to Hell (L: Joe Lynn Turner)
+9. Restless In Seattle (L: Gцran Edman)
+10. Highway Cindy (L: Thomas Vikstr&#246;m)
+11. I'll Be There For You (L: G&#246;ran Edman)
+??. The Devil's Allegro (instrumental) [Japanese bonus track]
+
+
+All music written by Nikolo Kotzev
+Produced by Nikolo Kotzev
+Arranged, Recorded, Engineered, and Mixed by Nikolo Kotzev at Nitrax Studios, Mariehamn, Finland
+Mastered by Peter in De Betou at Cutting Room, Stockholm
+
+Licensed 1997 by USG Records
+(C) 1997 USG Records (P) 1996 Nikolo Kotzev
+
+MUSICIANS:
+Nikolo Kotzev - Guitars, keyboards, piano, percussion, violin, bass on 11, organ on 11.
+
+The Singers: 
+Joe Lynn Turner - vocals on 1, 2, 4, 8
+Thomas Vikstr&#246;m - vocals on 5, 10
+G&#246;ran Edman - vocals on 3, 6, 7, 9, 11
+
+The Players:
+Ian Haugland - drums
+Mic Michaeli - organs
+John Leven - bass
+
+### "Bad Religion" 1997, Hard Rock
+
+1. The Whole World Is Crazy (L: Joe Lynn Turner, Robert Held)
+2. Nightmares (L: Thomas Vikstrцm)
+3. Two of a Kind (L: Gцran Edman)
+4. I Will Rise Again (L: Joe Lynn Turner, Robert Held)
+5. Day of the Eagle (L: Gцran Edman)
+6. We Don't Talk Anymore (L: Thomas Vikstrцm)
+7. Wings of a Dream (L: Joe Lynn Turner, Robert Held)
+8. Bad Religion (L: Gцran Edman)
+9. Father to Child (L: Thomas Vikstrцm)
+10. Love Is On Our Side (L: Joe Lynn Turner)
+11. The Empire of the Sun (L: Gцran Edman)
+
+
+(P) and (c) 1997 Nikolo Kotzev, Teosto, NCB Kotzev
+
+All Music written and arranged by Nikolo Kotzev
+Engineered, recorded and mixed by Nikolo Kotzev
+at Nitrax Studios, Mariehamn, Finland
+Produced by Nikolo Kotzev
+Mastered by Nikolo Kotzev at Nitrax Studios
+
+MUSICIANS:
+Nikolo Kotzev - guitars, violin, piano, keyboard, percussion
+
+The Singers: 
+Joe Lynn Turner - vocals on 1, 4, 7, 10
+Thomas Vikstrцm - vocals on 2, 6, 9
+Gцran Edman - vocals on 3, 5, 8, 11
+
+The Players:
+Ian Haugland - drums
+Mic Michaeli - organs
+John Leven - bass
+
+### "Guilty As Sin" 2003, Hard Rock
+
+1. One Life To Live (l: Joe Lynn Turner)
+2. Eyes On The Horizon (l: J©Єrn Lande)
+3. I'll Be Free (l: Nikolo Kotzev)
+4. Slip Away (l: Joe Lynn Turner)
+5. Mr. Earthman (l: J©Єrn Lande)
+6. Like Jonah (l: G¬иran Edman)
+7. Bring The Colors Home (l: J©Єrn Lande)
+8. Fool's Confession (l: G¬иran Edman)
+9. Supernatural (l: Joe Lynn Turner)
+10. Eve (l: Nikolo Kotzev)
+11. A Whole Lotta Woman (l: J©Єrn Lande)
+12. Guilty As Sin (l: Joe Lynn Turner)
+??. Love is On Our Side (Acoustic Version) (l: Joe Lynn Turner) [Japanese Bonus Track] 
+
+All music written by Nikolo Kotzev
+Produced by Nikolo Kotzev
+Arranged, Recorded, Engineered, Mixed and Mastered by Nikolo Kotzev at Nitrax Studios, Mariehamn, Finland
+
+Licensed 2003 by SPV Records
+(C) 2003 SPV Records (P) 2003 Nikolo Kotzev
+
+MUSICIANS:
+Nikolo Kotzev - guitars, keyboards, piano, percussion, violin
+
+The Singers: 
+Joe Lynn Turner - vocals on 1, 4, 9, 12
+J©Єrn Lande - vocals on 2, 5, 7, 11
+G¬иran Edman - vocals on 3, 6, 8, 10
+
+The Players:
+Mic Michaeli - organs
+John Leven - bass
+Ian Haugland - drums
+
+### "A Decade Of Brazen Abbot" 2004, Hard Rock
+
+01. Intro
+02. Mr. Earthman
+03. One Life To Live
+04. Slip Away
+05. Guilty As Sin Part 1
+06. Guilty As Sin Part 2
+07. Supernatural
+08. Keyboard solo
+09. Can't Let You Go
+10. All Be Free
+11. I Surrender
+12. Drum solo
+13. Road To Hell
+14. Love Is On Our Side (acoustic bonus track)
+
+Nikolo Kotzev - guitars, vocals
+Joe Lynn Turner - lead vocals, acoustic guitar
+Wayne Banks - bass, vocals
+Thomas Broman - drums
+Lars Pollack - keys, vocals
+
+### "My Resurrection" 2005, Hard Rock
+
+1. My Resurrection (l: Joe Lynn Turner)
+2. Bad Madman (l: Goran Edman)
+3. Godforsaken (l: Tony Harnell)
+4. Dreams (l: Joe Lynn Turner)
+5. Flyin' Blind (l: Gцran Edman)
+6. Another Day Gone (l: Tony Harnell)
+7. More Than Money (l: Joe Lynn Turner)
+8. The Shadows (l: Erik Martensson)
+9. Beggar's Lane (l: Gцran Edman)
+10. Rage Of Angels (l: Joe Lynn Turner)
+11. Lost (l: Tony Harnell)
+12. Shades Of Grey (l: by Gцran Edman)
+
+
+All music written by Nikolo Kotzev
+Produced by Nikolo Kotzev
+Arranged, Recorded, Engineered, Mixed and Mastered by Nikolo Kotzev at Nitrax Studios, Mariehamn, Finland
+
+Licensed 2005 by Frontiers Records
+(C) 2005 Frontiers Records (P) 2005 Nikolo Kotzev
+
+MUSICIANS:
+Nikolo Kotzev - guitars, keyboards, piano, percussion, violin
+
+The Singers: 
+Joe Lynn Turner - vocals on 1, 4, 7, 10
+Gцran Edman - vocals on 2, 5, 9, 12
+Tony Harnell - vocals on 3, 6, 11
+Erik Mеrtensson - vocals on 8, featured also on 9, 10
+
+The Players:
+Nelko Kolarev - organs
+Wayne Banks - bass
+Mattias Knutas - drums
+
+String orchestra:
+The Sofia Strings
+
+### "A Decade Of Brazon Abbot DVD" 2005, Hard Rock
+
+01. Mr. Earthman
+02. Slip Away
+03. Supernatural
+04. Feeling Like A Rollingstone
+05. Jamsession
+06. Stone Cold
+07. Guilty As Sin
+08. I Surrender
+09. Can't Let You Go
+10. I'll Be Free
+11. One Life to Live
+12. Road To Hell
+
 
 ## Отношения с другими группами
 

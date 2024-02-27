@@ -1,8 +1,54 @@
 # The Black
 
-Дискография
-"The Priest Of Satan" 1995, Black Metal
-"Black Blood" 1996, Black Metal
+
+
+## Дискография
+
+### "The Priest Of Satan" 1995, Black Metal
+
+1. The Beast Of Fire
+2. The Book Of Leviathan
+3. Towards Tho Golden Dawn
+4. The Sign Of The Evil Spirit
+5. Lady Lilith
+6. Black Blood
+7. The Spirit Of Solitude
+8. After My Prayers
+9. The Goat Of Mendes
+10. The Priest Of Satan
+11. The Black Opal Eye
+12. Whirlwinds Through The Land Of Ice
+
+ Rietas - Vocals, Guitars, Keyboards
+ Leviathan - Bass Guitar
+ The Black - Drums, Keyboards
+
+All Songs By THE BLACKS
+Produced By THE BLACKS & Cribbe Lagerwall
+Engineered By Cribbe Lagerwall
+Recorded & Mixed At Underground Studio
+
+(p)&(c) 1995 NECROPOLIS Records
+
+### "Black Blood" 1996, Black Metal
+
+1. Book Of Leviathan
+2. Lady Lilith
+3. Towards The Golden Dawn
+4. Black Blood
+5. The Spirit Of Solitude
+6. The Goat Of Mendes
+7. The Black Opal Eye
+
+Rietas - Vocals, Guitars
+The Black - Drums
+Leviathan - Bass
+
+Produced by THE BLACK at
+Balsta Studios, 1992.
+
+(p)(c) 1996 NECROPOLIS  Records NR 012
+
 
 ## Отношения с другими группами
 

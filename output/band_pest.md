@@ -1,7 +1,23 @@
 # Pest
 
-Дискография
-"Vado Mori" 2004, Black Metal
+
+
+## Дискография
+
+### "Vado Mori" 2004, Black Metal
+
+01. Prelude to the end
+02. The failure of creation
+03. Eternal darkness
+04. Infinity awaits
+05. Vado mori
+06. Before the storm
+07. The glimmer
+08. Yersinia
+09. Der Ewige
+10. Into madness
+11. Es lebe der Tod
+
 
 ## Отношения с другими группами
 

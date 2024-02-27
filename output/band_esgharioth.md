@@ -1,7 +1,19 @@
 # Esgharioth
 
-Дискография
-"Asylum of the Wretched" 2009, Black Metal
+
+
+## Дискография
+
+### "Asylum of the Wretched" 2009, Black Metal
+
+1. The Raven
+2. Blood On The Snow
+3. Cathedral Of The Lost Souls
+4. Bloodline
+5. Through the Pain
+6. Dievarication
+7. Outro
+
 
 ## Отношения с другими группами
 

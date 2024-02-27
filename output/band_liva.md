@@ -1,7 +1,25 @@
 # Liva
 
-Дискография
-"Requiem" 2002, Gothic
+
+
+## Дискография
+
+### "Requiem" 2002, Gothic
+
+Kyrie 
+Dies Irae 
+Tuba Mirum 
+Rex Tremendae 
+Recordare 
+Confutatis 
+Lacrymosa 
+Domine Jesu 
+Hostias 
+Sanctus 
+Agnus Dei 
+Tuba Mirum (Live Video) (Bonus) 
+Interview (Bonus)
+
 
 ## Отношения с другими группами
 

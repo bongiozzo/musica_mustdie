@@ -1,8 +1,35 @@
 # Vond
 
-Дискография
-"Selvmord" 1995, Ambient
-"The Dark River" 1997, Ambient
+
+
+## Дискография
+
+### "Selvmord" 1995, Ambient
+
+1. Selvmord
+2. Nar Livet Tar Farvel
+3. Reisen Til En Ny Verden
+4. Slipp Sorgen Las
+
+All Songs Written By MORTIIS.
+Recorded At Studio S,Norway.
+
+(P)&(C) 1995 MALICIOUS Records
+
+### "The Dark River" 1997, Ambient
+
+1. Love I Never Had
+2. Host II
+3. Suicide Is Painless
+4. Black Hole Space Window
+5. The Dark River
+6. Host III
+
+All Songs Written By MORTIIS.
+Recorded At Studio S,Norway.
+
+(P)(C) 1997 DARK DUNGEON MUSIC // TOWER 3
+
 
 ## Отношения с другими группами
 

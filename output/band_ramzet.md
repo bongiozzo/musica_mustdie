@@ -1,11 +1,68 @@
 # Ram-Zet
 
-Дискография
-"Pure Therapy" 2000, Black Metal
-"Escape" 2002, Black Metal
-"Intra" 2005, Black Metal
-"Neutralized" 2009, Progressive
-"Freaks In Wonderland" 2012, Alternative
+
+
+## Дискография
+
+### "Pure Therapy" 2000, Black Metal
+
+The fall
+King
+For the sake of mankind
+Eternal voice
+No peace
+Kill my thoughts
+Sense
+Through the eyes of the children
+
+
+
+### "Escape" 2002, Black Metal
+
+
+
+### "Intra" 2005, Black Metal
+
+01. The Final Thrill
+02. Left Behind As Pieces
+03. Enchanted
+04. Ballet
+05. Peace
+06. And Innocence
+07. Born
+08. Lullaby For The Dying
+09. Closing A Memory
+
+### "Neutralized" 2009, Progressive
+
+1. Infamia 04:43
+2. I Am Dirt 05:33
+3. 222 05:00
+4. Addict 10:27
+5. God Don't Forgive 05:05
+6. Beautiful Pain 10:29
+7. To Ashes 08:21
+8. Requiem 10:20 
+
+### "Freaks In Wonderland" 2012, Alternative
+
+01. Story Without a Happy End 08:03 
+02. I Am 05:49 
+03. Mojo 06:23 
+04. Land of Fury 06:54 
+05. Madre 05:53 
+06. Circle 05:48 
+07. The Sign 06:31 
+08. As the Carpet Silent Falls 10:00
+
+
+Zet - Guitars, Vocals 
+SfinX - Vocals (female) 
+Kьth - Drums, Percussion 
+Lanius - Bass, Didgeridoo 
+Ka - Keyboards, Vocals (backing) 
+Sareeta - Violin, Vocals (backing) 
+
 
 ## Отношения с другими группами
 

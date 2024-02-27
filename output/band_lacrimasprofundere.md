@@ -1,18 +1,283 @@
 # Lacrimas Profundere
 
-Дискография
-"...And The Wings Embraced Us" 1996, Death Doom
-"La Naissance D'Un Reve" 1997, Death Doom
-"Memorandum" 2000, Death Doom
-"Burning: A Wish" 2001, Death Doom
-"Fall, I Will Follow" 2003, Gothic
-"Ave End" 2004, Gothic
-"Again It's Over EP" 2006, Gothic
-"Filthy Notes For Frozen Hearts" 2006, Gothic
-"Songs for the Last View" 2008, Gothic
-"The Grandiose Nowhere" 2010, Gothic
-"Antiadore" 2013, Gothic
-"Hope Is Here" 2016, Gothic
+Gothic Death-Doom
+
+## Дискография
+
+### "...And The Wings Embraced Us" 1996, Death Doom
+
+1.  Snow
+2.  Perfume Of Withered Roses
+3.  Amorous
+4.  Eternal Sleep
+5.  Autumn Mourning
+6.  Embracing Wings
+
+Produced by LP
+Recorded and Mixed at Studio Zinnkopf Audio
+Engineered and Mixed by Sebastian Dunst
+
+Oliver Schroid - Guitars
+Christian Greisberger - Drums
+Christopher Schmid - Vocals
+Markus Lapper - Bass
+Manu Ehrlich - Guitars
+Anja Hotzendorfer - Violine & Clean Vocals
+Eva Stoger - Flute & Keyboards
+
+(P)c 1996 O'SCHMID, L. P.
+
+### "La Naissance D'Un Reve" 1997, Death Doom
+
+1. A Fayry's Breath		 13:14
+2. Priamus			 11:38
+3. Lilienmeer			  2:36
+4. The Gesture Of The Gist	 10:26
+5. An Orchid Fior My Withering
+Garden				  6:42
+6. Enchanted And In ilent Beauty 12:02	
+
+Christofer Shcmid - vocals
+Markus Lapper - bass
+Christian Steiner - keyboards
+Eva Stoger - flute
+Stefan Eireiner - drums
+Oliver Schmid - all guitars
+Anja Holzendorfer - violin & vocals
+
+Recorded and mixed at Zinnkopf Audio, Germany in September
+and October of 1996
+Engineered by Sebastian Dunst
+Mixed by Sebastian Dunst in assistance with
+LACRIMAS PROFUNDERE
+
+(c)(p)1997 O.SCHMID L.P.
+
+### "Memorandum" 2000, Death Doom
+
+1. Infinity
+2. Helplessness
+3. ...And How To Drown In Your Arms
+4. Black Swans
+5. Reminiscence
+6. The Crown Of Leaving
+7. All Your Radiance...
+8. The Embrace And The Eclipse
+9. The Fate Of Equilibrium
+
+### "Burning: A Wish" 2001, Death Doom
+
+1. Melantroduction
+2. Without
+3. Adorer And Somebody
+4. A Summerґs End
+5. Solicitude, Silence
+6. 2 Sec. And A Tear
+7. Lastdance
+8. Morning...Grey
+9. Diotima
+10. Re-Silence
+
+
+Christopher Schmid:vocals
+Oliver Schmid:lead-, clean-, rhythm- and accousticguitars, feedbacks
+Christian Steiner:keyboards
+Marco Praschberger: rhythmguitar 
+Rico Galvagno:bassguitar
+Willi Wurm:  drums
+ 
+
+Recorded, mixed and mastered at lungfull studios during november and december 2000.
+
+Engineered, mixed and mastered by Marc Patrick Fleischer.
+
+Produced by Martin Fahrnholz, Marc Patrick Fleischer, Oliver Schmid and Christian Steiner. 
+
+All arrangements by Oliver Schmid.
+Vocal lines by Christopher Schmid.
+All keyboards composed and arranged by Christian Steiner.
+
+Coverdesign and layout by kathi klimm.
+
+ 
+
+
+
+### "Fall, I Will Follow" 2003, Gothic
+
+1. For Bad Times
+2. Adorertwo
+3. Last
+4. I Did It For You
+5. Sear Me Pale Sun
+6. The Nothing-Ship
+7. Liquid
+8. Under Your...
+9. ...And Her Enigma
+10. Fornever
+
+Oliver Nikolas Schmid : Lead guitars, Clean guitars, Feed backs
+Christopher Schmid : Vocals
+Christian Steiner : Hammond, Keyboards
+Willi Wurm : Drums
+Rico Galvagno : Bass
+
+(p) 2002 Napalm / Irond
+
+### "Ave End" 2004, Gothic
+
+01. One Hope's Evening
+02. Ave End
+03. To Bleed Or Not To Be
+04. Sarah Lou
+05. Amber Girl
+06. Tesitified
+07. Astronautumn
+08. Evade
+09. Wake Down
+10. Black
+11. Come, Solitude
+
+Oliver Nikolas – lead guitars
+Christopher - vocals
+Christian - keys
+Willi - drums
+Chris – rhythm guitars
+Daniel - bass
+
+Produced by Lacrimas Profundere and Marc Patrick Fleischer.
+Engineered by Marc Patrick Fleischer.
+Mixed by Marc Patrick Fleischer and Lacrimas Profundere.
+Recorded and mixed at Lungtull Studios.
+Mastered at Finnvox Studio by Mikko Karmila.
+Pre-production by Christian Steiner at Rock'n'sad Studio & Voyage Studio.
+'Ave End' album recorded February-March 2004.
+All songs written and composed by Oliver Nikolas Schmid
+except track 5 by Willy Wurm, track 11 by Christian Steiner. Verse at track 2 by Daniel Techner.
+All lyrics by Christopher Schmid.
+All arrangements by Lacrimas Profundere.
+
+### "Again It's Over EP" 2006, Gothic
+
+1. Again it's over (Single Edit) 03:18  
+2. Gallowsong 03:06  
+3. Supreme Surrender 03:34  
+4. Again it's over (Album Version) 03:19  
+5. To watch her while she wipe her eyes 04:00  
+6. To love her on knees 02:57
+
+### "Filthy Notes For Frozen Hearts" 2006, Gothic
+
+1. My Velvet Little Darkness 03:29  
+2. Again It's Over 03:18  
+3. Not To Say 03:11  
+4. No Dear Hearts 03:14  
+5. Short Glance 03:45  
+6. Filthy Notes 03:18  
+7. Sweet Caroline 03:00  
+8. An Irresistable Fault 03:31  
+9. To Love Her on Knees 02:56  
+10. Sad Theme for a Marriage 03:33  
+11. Should 03:36  
+12. My Mescaline 06:13  
+13. Shiver 04:18
+
+### "Songs for the Last View" 2008, Gothic
+
+1. The Last View 00:57  
+2. A Pearl 03:01 
+3. The Shadow I Once Kissed 03:23
+4. Veins 02:47 
+5. We Shouldn't Be Here 03:33 
+6. And God's Ocean 05:37 
+7. Suicide Sun 03:54 
+8. Dear Amy 03:03] 
+9. A Dead Man 03:59
+10. Sacrificial Lamb 05:13
+11. Lullaby for a Weeping Girl 03:32
+12. While 05:25 
+
+
+
+line up:
+Rob Vitacca: Vocal
+Oliver Nikolas Schmid: Guitar
+Tony Berger: Guitar
+Peter Kafka: Bass
+Korl Fuhrmann: Drums
+
+
+Bonus tracks on limited edition:
+13. Burn
+14. The Beauty of Who You Are
+15. The Shadow I Once Kissed (alternate version)
+16. Sweet Letter C
+
+The limited edition also comes with a bonus CD:
+1. A Pearl (music video) 
+2. A Pearl (the making of the video) 
+3. Songs for the Last View (tour movie) 
+4. live footage 
+
+### "The Grandiose Nowhere" 2010, Gothic
+
+1. Be Mine in Tears 03:25  
+2. The Letter 03:53  
+3. Lips 03:53  
+4. I Don't Care 04:06  
+5. Her Occasion of Sin 02:41  
+6. A Plea 03:09  
+7. Not for Love 03:20  
+8. The Fear of Being Alone 03:11  
+9. My Little Fear 03:30  
+10. Side 03:48  
+11. Dead Heart Serenade 03:24  
+12. No Matter Where You Shoot Me Down 04:05 
+
+
+The album was produced by John Fryer (H.I.M., Nine Inch Nails), who previously
+handled the production on the band's last two albums.
+
+Digipak bonus tracks:
+13. All Is Suffering 3:21
+14. Of Words and Rain 2:44 
+
+### "Antiadore" 2013, Gothic
+
+01. My Release in Pain 
+02. Antiadore 
+03. What I’m Not 
+04. All For Nothing 
+05. Dead To Me 
+06. Abandon 
+07. Still in Need 
+08. Deny For Now 
+09. Head Held High 
+10. My Chest 
+11. Remembrance Song 
+12. A Sigh 
+13. Words
+14. Doomed And Unarmed
+
+### "Hope Is Here" 2016, Gothic
+
+1. The Worship of Counting Down  06:20   
+2. My Halo Ground  03:05   
+3. Hope Is Here  03:43   
+4. Aramis  03:31  
+5. A Million Miles  04:26  
+6. No Man's Land  03:24   
+7. Pageant  03:55  
+8. You, My North  04:26  
+9. Awake  03:54   
+10. The Path of Broken Homes  01:20   
+11. Timbre  03:16   
+12. Black Moon  04:24  
+13. Aramis (Eisbrecher Neuschnitt)  05:59 
+
+
+Mixed and mastered at the Kohlekeller Studio.
+
 
 ## Отношения с другими группами
 

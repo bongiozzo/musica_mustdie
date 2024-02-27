@@ -1,10 +1,49 @@
 # Quill
 
-Дискография
-"The Quill" 2000, Stoner
-"Voodoo Caravan" 2002, Stoner
-"Hooray! It's A Deathtrip" 2003, Stoner
-"In Triumph" 2006, Stoner
+stoner
+
+## Дискография
+
+### "The Quill" 2000, Stoner
+
+1. Dry
+2. Homespun
+3. Lodestar
+4. From where I am
+5. The flood
+6. In my shed
+7. A sinner's fame
+8. Not a single soul
+9. In the sunlight I drown
+10. I lost a world today
+11. Sweetly
+
+### "Voodoo Caravan" 2002, Stoner
+
+1. Voodoo caravan
+2. Sell no soul
+3. Shapes of afterlife
+4. Until earth is bitter gone
+5. (Wade across) The mighty river
+6. Save me
+7. Hole in my head
+8. Overlord
+9. Travel without moving
+10. Drifting
+11. Virgo
+
+Japanese edition includes:
+'Gather round the sun' and
+'Thousand years'
+
+### "Hooray! It's A Deathtrip" 2003, Stoner
+
+
+
+### "In Triumph" 2006, Stoner
+
+
+
 
 ## Отношения с другими группами
 

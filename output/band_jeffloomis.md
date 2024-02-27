@@ -1,8 +1,26 @@
 # Jeff Loomis
 
-Дискография
-"Zero Order Phase" 2008, Progressive
-"Plains Of Oblivion" 2012, Heavy Metal
+
+
+## Дискография
+
+### "Zero Order Phase" 2008, Progressive
+
+
+
+### "Plains Of Oblivion" 2012, Heavy Metal
+
+Mercurial
+The Ultimatum
+Escape Velocity
+Tragedy and Harmony
+Requiem for the Living
+Continuum Drift
+Surrender
+Chosen Time
+Rapture
+Sibylline Origin
+
 
 ## Отношения с другими группами
 

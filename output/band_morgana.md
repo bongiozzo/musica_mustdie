@@ -1,7 +1,22 @@
 # Morgana
 
-Дискография
-"Angel" 2001, Progressive
+
+
+## Дискография
+
+### "Angel" 2001, Progressive
+
+Twilight 
+The Downfall Of Rain 
+Beyound Our Truth 
+The Syndrome 
+Angel 
+The Different 
+Let's Free The Essence 
+Your Recall 
+Roads To Nowhere 
+Infinite
+
 
 ## Отношения с другими группами
 

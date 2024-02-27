@@ -1,6 +1,9 @@
 # Autoritar
 
-Дискография
+crustcore/grind from Germany
+
+## Дискография
+
 
 ## Отношения с другими группами
 

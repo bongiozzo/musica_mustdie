@@ -1,12 +1,113 @@
 # Ugly Kid Joe
 
-Дискография
-"As Ugly As They Wanna Be (EP)" 1990, Heavy Metal
-"America's Least Wanted" 1992, Heavy Metal
-"Menace To Sobriety" 1995, Heavy Metal
-"Motel California" 1996, Heavy Metal
-"Stairway To Hell (EP)" 2012, Heavy Metal
-"Uglier Than They Used ta Be" 2015, Heavy Metal
+
+
+## Дискография
+
+### "As Ugly As They Wanna Be (EP)" 1990, Heavy Metal
+
+1. Madman
+2. Whiplash Liquor
+3. Too Bad
+4. Everything About You
+5. Sweet Leaf/Funky Fresh Country Club
+6. Heavy Metal
+
+Whitfield Crane - Vocals
+Klaus Eichstadt - Guitars
+Roger Lahr - Guitars
+Mark Davis - Drums
+Cordell Crockett - Bass 
+
+(P)(C) 1990
+
+### "America's Least Wanted" 1992, Heavy Metal
+
+1.  Neighbor
+2.  Goddamn Devil
+3.  Come Tomorrow
+4.  Panhandlin' Prince
+5.  Busy Bee
+6.  Don't Go
+7.  So Damn Cool
+8.  Same Side
+9.  Cats in the Cradle
+10.I'll Keep Tryin'
+11.Everything About You
+12.Madman('92 re-mix)
+13.Mr.Recordman 
+
+Whitfield Crane - Lead Vocals
+Cordell Crockett - Bass & Vocals 
+Klaus Eichstadt - Guitar & Vocals
+Dave Fortman - Guitar & Vocals
+Mark Davis - Drums & Percussion
+
+(P)(C) 1992
+
+### "Menace To Sobriety" 1995, Heavy Metal
+
+1. Intro
+2. God
+3. Tomorrows World
+4. Clover
+5. C.U.S.T.
+6. Milkman's Son
+7. Suckerpath
+8. Cloudy Skies
+9. Jesus Rode A Harley
+10.10 / 10
+11.V.I.P.
+12.Oompa
+13.Candle Song
+14.Slower Than Nowhere
+
+Dave Fortman,Whit Crane,Shannon Larkin,Klaus Eichstadt,Cordell Crockett.
+
+(P)&(C) 1995
+
+### "Motel California" 1996, Heavy Metal
+
+1.  It's A Lie
+2.  Dialogue
+3.  Sandwich
+4.  Rage Against The Answering Machine
+5.  Would You Like To Be There Little Red Man
+6.  Bicycle Wheels
+7.  Father
+8.  Undertow
+9.  Shine
+10.Strange
+11.12 Cents
+
+Produced By UGLY KID JOE.
+Mixed By Phil Nicolo.
+
+(P)(C) 1996
+
+### "Stairway To Hell (EP)" 2012, Heavy Metal
+
+01. Devil’s Paradise (3:37)
+02. You Make Me Sick (3:42)
+03. No One Survives (4:02)
+04. I’m Alright (3:21)
+05. Love Ain’t True! (Feat. Angelo Moore & Dirty Walt of Fishbone) (3:28)
+06. Another Beer (3:33)
+
+### "Uglier Than They Used ta Be" 2015, Heavy Metal
+
+01. Hell Ain't Hard To Find
+02. Let The Record Play
+03. Bad Seed
+04. Mirror Of The Man
+05. She's Already Gone
+06. Nothing Ever Changes
+07. My Old Man
+08. Under The Bottom
+09. Ace Of Spades
+10. The Enemy
+11. Papa Was A Rolling Stone
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,28 @@
 # Control Denied
 
-Дискография
-"The Fragile Art of Existence" 1999, Death Metal
+
+
+## Дискография
+
+### "The Fragile Art of Existence" 1999, Death Metal
+
+1. Consumed 
+2. Breaking the Broken 
+3. Expect the Unexpected 
+4. What If...? 
+5. When the Link Becomes Missing 
+6. Believe 
+7. Cut Down 
+8. The Fragile Art of Existence 
+
+Chuck Schuldiner - Guitar 
+Shannon Hamm - Guitar 
+Tim Aymar - Voice 
+Richard Christy - Drums 
+Steve DiGiorgio - Bass 
+
+Produced by Jim Morris and Chuck Schuldiner 
+
 
 ## Отношения с другими группами
 

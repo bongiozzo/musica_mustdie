@@ -1,7 +1,26 @@
 # Eva O
 
-Дискография
-"Damnation & Salvation" 2005, Gothic
+
+
+## Дискография
+
+### "Damnation & Salvation" 2005, Gothic
+
+01. Damnation
+02. One By One
+03. Blood Lust
+04. Ride The Madness
+05. Beauty Of Hell
+06. Diablo
+07. Are You Ready To Die
+08. Eye To Eye
+09. Who Is Your Father
+10. Do You Hear Me
+11. Harlots Tears
+12. Not Seen
+13. Rumors Of War
+14. Revelation
+
 
 ## Отношения с другими группами
 

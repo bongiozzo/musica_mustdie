@@ -1,7 +1,18 @@
 # Svarti Loghin
 
-Дискография
-"Empty World" 2008, Black Metal
+
+
+## Дискография
+
+### "Empty World" 2008, Black Metal
+
+1. Karg Nordisk Vinter 08:24  
+2. Inner Desolation 07:25  
+3. Empty World 08:55  
+4. The Silence Always Returns 06:18  
+5. Cold Void 09:29  
+6. Outro 03:04 
+
 
 ## Отношения с другими группами
 

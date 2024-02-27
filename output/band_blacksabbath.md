@@ -1,26 +1,372 @@
 # Black Sabbath
 
-Дискография
-"Paranoid" 1970, Heavy Metal
-"Black Sabbath" 1970, Hard Rock
-"Master Of Reality" 1971, Heavy Metal
-"Vol. IV" 1972, Heavy Metal
-"Sabbath Bloody Sabbath" 1973, Heavy Metal
-"Sabotage" 1975, Heavy Metal
-"Technical Ecstasy" 1976, Heavy Metal
-"Never Say Die" 1978, Heavy Metal
-"Heaven And Hell" 1980, Hard Rock
-"Mob Rules" 1981, Hard Rock
-"Born Again" 1983, Hard Rock
-"Seventh Star" 1986, Hard Rock
-"The Eternal Idol" 1987, Hard Rock
-"Headless Cross" 1989, Hard Rock
-"Tyr" 1990, Hard Rock
-"Dehumanizer" 1992, Heavy Metal
-"Forbidden" 1995, Hard Rock
-"Nativity in black 2. Tribute to Black Sabbath" 2000, Heavy Metal
-"13" 2013, Heavy Metal
-"The End [EP]" 2016, Heavy Metal
+Fathers of Heavy Metal
+
+## Дискография
+
+### "Paranoid" 1970, Heavy Metal
+
+1.  War Pigs / Luke's Wall
+2.  Paranoid
+3.  Planet Caravan
+4.  Iron Man
+5.  Electric Funeral
+6.  Hand Of Doom
+7.  Red Salad
+8.  Jack The Stripper / Fairies Wear Boots
+
+Ozzy Osbourne - Vocals
+Tony Iommi - Lead Guitar
+Terry "Geezer" Butler - Bass
+Bill Ward - Drums
+
+(P)c 1970
+
+### "Black Sabbath" 1970, Hard Rock
+
+1. Black Sabbath
+2. The Wizard
+3. Wasp / Behind The Wall Of Sleep/
+Basically/N.B.I.
+4. Wicked World
+5. A Bit Of Finger/Sleeping Village/
+Warning
+
+Ozzy Osbourne - Vocals
+Tony Tommi - Lead Guitar
+Terry "Geezer" Butler - Bass
+Bill Ward - Drums
+
+(P)&(C) 1970
+
+### "Master Of Reality" 1971, Heavy Metal
+
+1. Sweet Leaf
+2. After Forever
+3. Embryo
+4. Children Of The Grave
+5. Orchid
+6. Lord Of This World
+7. Solitude
+8. Into The Void
+
+Ozzy Osbourne - Vocals
+Tony Tommi - Lead Guitar
+Terry "Geezer" Butler - Bass
+Bill Ward - Drums
+
+(P)&(C) 1971
+
+### "Vol. IV" 1972, Heavy Metal
+
+1.  Wheels Of Confusion
+2.  Tomorrow's Dream
+3.  Changes
+4.  FX
+5.  Supernaut
+6.  Snowblind
+7.  Cornucopia
+8.  Laguna Sunrise
+9.  St.Vitus Dance
+10.  Under The Sun
+
+(P)c 1972
+
+### "Sabbath Bloody Sabbath" 1973, Heavy Metal
+
+1.  Sabbath Bloody Sabbath
+2.  A National Acrobat
+3.  Fluff
+4.  Sabbra Cadabra
+5.  Killing Yourselves To Live
+6.  Who Are You
+7.  Looking For Today
+8.  Spiral Architect
+
+(P)c 1973
+
+### "Sabotage" 1975, Heavy Metal
+
+1.  Hole In The Sky
+2.  Don't Start (Too Late)
+3.  Symptom Of The Universe
+4.  Megalomania
+5.  Thrill Of It All
+6.  Supertzar
+7.  Am I Going Insane (Radio)
+8.  The Writ
+
+All songs written/arranged by Black Sabbath
+All instrumentation by Black Sabbath
+Produced by Black Sabbath with Mike Butcher
+Engineered by Mike Butcher/Robin Black
+Tape Operator and saboteur: David Harris
+Recorded at Morgan Studios London and Brussels
+Mastered at Sterling Sound New York
+English Chamber Choir arranged by Will Malone
+
+(P)c 1975 VERTIGO Records
+
+### "Technical Ecstasy" 1976, Heavy Metal
+
+1. Back Street Kids
+2. You Won't Change Me
+3. It's Alright
+4. Gypsy
+5. All Moving Parts (Stand Still)
+6. Rock'N'Roll Doctor
+7. She's Gone
+8. Dirty Women
+
+Ozzy Osbourne - Vocals
+Tony Tommi - Lead Guitar
+Terry "Geezer" Butler - Bass
+Bill Ward - Drums
+
+(P)&(C) 1976
+
+### "Never Say Die" 1978, Heavy Metal
+
+1. Never Say Die
+2. Johnny Blade
+3. Juniors Eyes
+4. Hard Road
+5. Shock Wave
+6. Air Dance
+7. Over To You
+8. Break Out
+9. Swinging The Chain
+
+Ozzy Osbourne - Vocals
+Tony Tommi - Lead Guitar
+Terry "Geezer" Butler - Bass
+Bill Ward - Drums
+
+(P)&(C) 1978
+
+### "Heaven And Hell" 1980, Hard Rock
+
+1.  Neon Knights
+2.  Children Of The Sea
+3.  Lady Evil
+4.  Heaven And Hell
+5.  Wishing Well
+6.  Die Young
+7.  Walk Away
+8.  Lonely Is The Word
+
+Ronnie James Dio  - Vocals
+Tony Iommi - Lead Guitar
+Terry "Geezer" Butler - Bass
+Bill Ward - Drums
+
+(P)c 1980
+
+### "Mob Rules" 1981, Hard Rock
+
+1. Turn Up The Night
+2. Voodoo
+3. The Sign Of The Southern Cross
+4. E5 - 150
+5. Mob Rules
+6. Country Girl
+7. Slippin' Away
+8. Falling Off The Edge Of The World
+9. Over And Over
+
+Ronnie James Dio  - Vocals
+Tony Iommi - Lead Guitar
+Terry "Geezer" Butler - Bass
+Vinnie Appice - Drums
+
+(P)c 1981
+
+### "Born Again" 1983, Hard Rock
+
+1.  Trashed
+2.  Stonehenge
+3.  Disturbing the Priest
+4.  The Dark
+5.  Zero the Hero
+6.  Digital Bitch
+7.  Born Again
+8.  Hot Line
+9.  Keep It Warm
+
+Tony Iommi    - guitars, guitar effects, flute
+Geezer Butler - bass, bass effects
+Ian Gillan    - vocals
+Bill Ward     - drums, percussion
+All keyboards by Geoff Nicholls
+
+All songs written by Gillan/Ward/Iommi/Butler except for
+"Hot Line" and "Keep It Warm" written by Gillan/Iommi/Butler
+Produced by Robin Black and Black Sabbath
+Engineered by Robin Black
+Assistant engineer: Steve Chase
+Recorded at The Manor Studio, Shipton on Cherwell, Oxfordshire, England
+ 
+(P)c 1983 WARNER Bros  23978-1    (USA 1983)
+
+### "Seventh Star" 1986, Hard Rock
+
+1. In For The Kill
+2. No Stranger To Love
+3. Turn To Stone
+4. Sphinx (The Guardian)
+5. Seventh Star
+6. Danger Zone
+7. Heart Like A Wheel
+8. Angry Heart
+9. In Memory...
+
+Glenn Hughes - Vocals
+Tony Iommi - Lead Guitar
+Dave "The Beast" Spitz - Bass
+Eric Singer - Drums
+Geoff Nichols -Keyboards
+
+(P)c 1986
+
+### "The Eternal Idol" 1987, Hard Rock
+
+1.  The Shining
+2.  Ancient Warrior
+3.  Hard Life To Love
+4.  Glory Ride
+5.  Born To Lose
+6.  Nightmare
+7.  Scarlet Pimpernel
+8.  Lost Forever
+9.  Eternal Idol
+
+Tony Martin - Vocals
+Tony Iommi - Lead Guitar
+Dave Spitz; Bob Daisley - Bass
+Eric Singer - Drums
+Geoff Nichols - Keyboards
+Bev Bevan - Percussion
+
+(P)c 1987
+
+### "Headless Cross" 1989, Hard Rock
+
+1.  The Gates Of Hell
+2.  Headless Cross
+3.  Devil And Daughter
+4.  When Death Calls
+5.  Kill In The Spirit World
+6.  Call Of The World
+7.  Black Moon
+8.  Nightwind
+
+Tony Martin - Vocals
+Tony Iommi - Lead Guitar
+Laurence Cottle - Bass
+Cozy Powell - Drums
+Geoff Nichols - Keyboards
+
+(P)c 1989
+
+### "Tyr" 1990, Hard Rock
+
+1.  Anno Mundi
+2.  The Lawmaker
+3.  Jerusalem
+4.  Sabbath Stones
+5.  The Battle Of Tyr
+6.  Odin's Court
+7.  Valhalla
+8.  Feels Good To Me
+9.  Heaven In Black
+
+Neil Murray - Bass
+Tony Martin - Vocals
+Tony Iommi - Guitars
+Cozy Powell - Drums
+Geoff Nichols - Keyboards
+
+(P)c 1990
+
+### "Dehumanizer" 1992, Heavy Metal
+
+1.  Computer God
+2.  After All (the Dead)
+3.  TV Crimes
+4.  Letters From Earth
+5.  Master Of Insanity
+6.  Time Machine
+7.  Sins Of The Father
+8.  Too Late
+9.  I
+10.  Buried Alive
+11.  Time Machine
+
+Geezer Butler - Bass
+Ronnie James Dio - Vocals
+Tony Iommi - Guitars
+Vinny Appice - Drums
+Geoff Nichols - Keyboards
+
+(P)c 1992
+
+### "Forbidden" 1995, Hard Rock
+
+1.  The Illusion Of Power
+2.  Get A Grip
+3.  Can't Get Close Enough
+4.  Shaking Off The Chains
+5.  I Won't Cry For You
+6.  Guilty As Hell
+7.  Sick And Tired
+8.  Rusty Angels
+9.  Forbidden
+10.  Kiss Of Death
+
+(P)c 1995
+
+### "Nativity in black 2. Tribute to Black Sabbath" 2000, Heavy Metal
+
+1 Godsmack "sweat leaf"
+2 Machine head "hole in the sky"
+3 Static X "behind the wall of sleep"
+4 Megadeth "never say die"
+5 System of a down "snowblind"
+6 Pantera "electric funeral"
+7 Primus with Ozzy "N.I.B."
+8 Slayer "hand of doom"
+9 Soulfly "under the sun"
+10 (Hed)pe "sabbra cadabra"
+11 Monster magnet "into the void"
+12 Busta Rhymes "iron man"
+
+### "13" 2013, Heavy Metal
+
+1.  End Of The Beginning (8:07)
+2.  God Is Dead? (8:54)
+3.  Loner (5:06)
+4.  Zeitgeist (4:28)
+5.  Age Of Reason (7:02)
+6.  Live Forever (4:49)
+7.  Damaged Soul (7:43)
+8.  Dear Father (7:06)
+Deluxe edition bonus tracks:
+9. Methademic
+10. Peace of Mind
+11. Pariah 
+
+### "The End [EP]" 2016, Heavy Metal
+
+1. Season of the Dead      
+2. Cry All Night      
+3. Take Me Home      
+4. Isolated Man      
+5. God is Dead? (Live Sydney, Australia, 4/27/13)      
+6. Under the Sun (Live Auckland, New Zealand, 4/20/13)      
+7. End of the Beginning (Live Hamilton, ON, Canada, 4/11/14)      
+8. Age of Reason (Live Hamilton, ON, Canada, 4/11/14)  
+
+
 
 ## Отношения с другими группами
 

@@ -1,11 +1,118 @@
 # Susperia
 
-Дискография
-"Illusions of Evil (demo)" 1999, Black Metal
-"Predominance" 2001, Black Metal
-"Vindication" 2002, Death Metal
-"Unlimited" 2004, Death Metal
-"Cut from Stone" 2007, Thrash
+Black metal band.  Project of Tjodalv (ex- dimmu Borgir, ex-Old Man's Child)
+
+## Дискография
+
+### "Illusions of Evil (demo)" 1999, Black Metal
+
+1. The Hellchild 
+2. Illusions Of Evil 
+3. Of Hate We Breed 
+4. A Story Of Tormented Souls 
+5. Behind Consecrated Walls 
+
+Lineup on this recording:
+Tjodalv: Drums 
+Cyrus: Guitars 
+Memnock: Bass 
+Athera: Vocals 
+
+### "Predominance" 2001, Black Metal
+
+1. I Am Pain 
+2. Vainglory 
+3. Illusions of Evil 
+4. Specimen 
+5. Journey Into Black 
+6. Of Hate We Breed
+7. Objects of Desire
+8. The Hellchild
+9. Blood on my Hands
+10. The Coming of a Darker Time 
+
+
+
+Recorded at Abyss studio A&C oct, 2000
+Produced & engineered by Lars Szoke.
+Supervision by Peter Tagtgren
+Cover artwork by Rune Tyvold Mediaworks & Athera
+Lyrics by Athera
+Music by Cyrus 
+
+
+Tjodalv: Drums 
+Cyrus: Guitars 
+Memnock: Bass 
+Athera: Vocals 
+Elvorn: Guitar
+
+### "Vindication" 2002, Death Metal
+
+1. Cage of Remembrance
+2. The Bitter Man
+3. Anguished Scream (For Vengance)
+4. Petrified
+5. The Bounty Hunter
+6. Comlpetion
+7. Warmaster
+8. Dead Man`s World
+9. Cast Life Into Fire
+10. Bleed Yourself
+ 
+
+
+Music recorded in Abyss Studio A -Sweden, during November and December 2001
+Engineered and recorded by Lars Szoke
+Vocals recorded in BBM Studio -Norway, during December 2001
+Engineered and recorded by Bjorn Boge
+Vocals produced by Athera & Bjorn Boge
+Album mixed by Peter Tagtgren 
+Produced by SUSPERIA and Peter Tagtgren
+All music written & arranged by Cyrus
+All lyrics written & arranged by Athera
+Cover design & artwork by Rune Tyvold
+Band photos by Nicole Marie Boyland
+Anguished girl: Tine Svae
+
+All music performed by SUSPERIA
+No synthesizers were used while recording this album.
+All effects are created with vocals & guitars
+
+
+Tjodalv: Drums 
+Cyrus: Guitars 
+Memnock: Bass 
+Athera: Vocals 
+Elvorn: Guitar
+
+### "Unlimited" 2004, Death Metal
+
+1. Chemistry
+2. The Coming Past
+3. Situational Awareness
+4. Devil May Care
+5. Off The Grid
+6. Years Of Infinity
+7. Home Sweet Hell
+8. Mind Apart
+9. Beast By Design
+10. Untouched
+
+### "Cut from Stone" 2007, Thrash
+
+1. More 03:33  
+2. Lackluster Day 03:22  
+3. The Clone 04:14  
+4. Distant Memory 06:55  
+5. Release 04:44  
+6. Life Deprived 04:23  
+7. Between the Lines 03:35  
+8. Bound to Come 03:45  
+9. Under 04:09  
+10. Brother 03:16  
+11. Cut from Stone 05:11
+
 
 ## Отношения с другими группами
 

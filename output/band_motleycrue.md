@@ -1,23 +1,145 @@
 # Motley Crue
 
-Дискография
-"Too Fast for Love" 1982, Glam
-"Shout at the Devil" 1983, Glam
-"Theatre of Pain" 1985, Glam
-"Girls, Girls, Girls" 1987, Glam
-"Dr. Feelgood" 1989, Glam
-"Decade of Decadence '81-'91" 1991, Glam
-"Motley Crue" 1994, Hard Rock
-"Quaternary" 1994, Hard Rock
-"Generation Swine" 1997, Hard Rock
-"Greatest hits" 1998, Glam
-"Supersonic and Demonic" 1999, Hard Rock
-"Live: Entertainment Or Death" 1999, Glam
-"New Tatoo" 2000, Hard Rock
-"20th Century Masters: Millennium Collection" 2003, Glam
-"Music To Crash Your Car To, Volume 1" 2003, Glam
-"Carnival Of Sins Live (2 CD)" 2006, Glam
-"Saints Of Los Angeles" 2008, Hard Rock
+Glam Rock
+
+## Дискография
+
+### "Too Fast for Love" 1982, Glam
+
+1.  Live Wire
+2.  Come On And Dance
+3.  Public Enemy #1
+4.  Merry-Go-Round
+5.  Take Me The Top
+6.  Piece Of Your Action
+7.  Starry Eyes
+8.  Too Fast For Love
+9.  On With The Show
+
+Nikki Sixx - Bass, Back Vocals
+Tommy Lee - Drums
+Mick Mars - Guitars
+Vince Neil - Vocals
+
+(P)c 1982 ELECTRA / ASYLUM Records
+
+### "Shout at the Devil" 1983, Glam
+
+
+
+### "Theatre of Pain" 1985, Glam
+
+1.  City Boy Blues
+2.  Smokin' In The Boys Room
+3.  Louder Than Hell
+4.  Keep Your Eye On The Money
+5.  Home Sweet Home
+6.  Tonight (We Need A Lover) 
+7.  Use It Or Loose It
+8.  Save Our Souls
+9.  Raise Your Hands To Rock
+10.Fight For Your Rights
+
+Nikki Sixx - Bass, Back Vocals
+Tommy Lee - Drums
+Mick Mars - Guitars
+Vince Neil - Vocals
+
+(P)c 1985 ELECTRA / ASYLUM Records
+
+### "Girls, Girls, Girls" 1987, Glam
+
+1.  Wild Side
+2.  Girls, Girls, Girls
+3.  Dancing On Glass
+4.  Bad Boy Boogie
+5.  Nona
+6.  Five Years Dead
+7.  All In The Name Of ...
+8.  Sumthin' For Nuthin'
+9.  You're All I Need
+10.Jailhouse Rock (Live)
+
+Nikki Sixx - Bass, Back Vocals
+Tommy Lee - Drums
+Mick Mars - Guitars
+Vince Neil - Vocals
+
+(P)c 1987 ELECTRA / ASYLUM Records
+
+### "Dr. Feelgood" 1989, Glam
+
+
+
+### "Decade of Decadence '81-'91" 1991, Glam
+
+
+
+### "Motley Crue" 1994, Hard Rock
+
+
+
+### "Quaternary" 1994, Hard Rock
+
+
+
+### "Generation Swine" 1997, Hard Rock
+
+
+
+### "Greatest hits" 1998, Glam
+
+
+
+### "Supersonic and Demonic" 1999, Hard Rock
+
+
+
+### "Live: Entertainment Or Death" 1999, Glam
+
+1. Looks That Kill 
+2. Knock 'Em Dead, Kid 
+3. Too Young to Fall in Love 
+4. Live Wire 
+5. Public Enemy #1 
+6. Shout at the Devil 
+7. Merry-Go-Round 
+8. Ten Seconds to Love 
+9. Piece of Your Action 
+10. Starry Eyes 
+11. Helter Skelter 
+ 
+1. Smokin' in the Boys' Room 
+2. Don't Go Away Mad (Just Go Away) 
+3. Wild Side 
+4. Girls, Girls, Girls 
+5. Dr. Feelgood 
+6. Without You 
+7. Primal Scream 
+8. Same Ol' Situation (S.O.S.) 
+9. Home Sweet Home 
+10. Kickstart My Heart
+
+### "New Tatoo" 2000, Hard Rock
+
+
+
+### "20th Century Masters: Millennium Collection" 2003, Glam
+
+
+
+### "Music To Crash Your Car To, Volume 1" 2003, Glam
+
+
+
+### "Carnival Of Sins Live (2 CD)" 2006, Glam
+
+
+
+### "Saints Of Los Angeles" 2008, Hard Rock
+
+
+
 
 ## Отношения с другими группами
 

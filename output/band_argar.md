@@ -1,8 +1,33 @@
 # Argar
 
-Дискография
-"CWM ANNWN" 2001, Black Metal
-"Grim March To Black Eternity" 2004, Black Metal
+
+
+## Дискография
+
+### "CWM ANNWN" 2001, Black Metal
+
+1. Reborn in Utterdarkness (Part II)
+2. Millenium Funerarium
+3. Bloodtears Fall from Heaven
+4. Twin of Evil
+5. CWM ANNWN
+6. Blood Black in the Funeral Winds
+7. She, Lady of the Abyss
+8. Travel to Kadath
+9. Pure Hate Black
+
+### "Grim March To Black Eternity" 2004, Black Metal
+
+1. Solitude Of The Dead
+2. Cold And Eternal
+3. Furvus Avernus I
+4. Grim March To Black Eternity
+5. Furvus Avernus II
+6. A Grave For Us
+7. A Revelation In Solitude
+8. Heralds Of A Dead World
+9. The End
+
 
 ## Отношения с другими группами
 

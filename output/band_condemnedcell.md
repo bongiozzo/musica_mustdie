@@ -1,7 +1,13 @@
 # Condemned Cell
 
-Дискография
-"Shadows Of The Past" 2004, Gothic
+
+
+## Дискография
+
+### "Shadows Of The Past" 2004, Gothic
+
+
+
 
 ## Отношения с другими группами
 

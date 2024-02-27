@@ -1,13 +1,122 @@
 # Powerwolf
 
-Дискография
-"Return In Bloodred" 2005, Heavy Metal
-"Lupus Dei" 2007, Heavy Metal
-"Bible Of The Beast" 2009, Heavy Metal
-"Blood Of The Saints" 2011, Heavy Metal
-"The Rockhard Sacrament (EP)" 2013, Heavy Metal
-"Preachers Of The Night" 2013, Heavy Metal
-"Blessed & Possessed" 2015, Heavy Metal
+
+
+## Дискография
+
+### "Return In Bloodred" 2005, Heavy Metal
+
+01. Mr. Sinister 
+02. We Came To Take Your Souls 
+03. Kiss Of The Cobra King 
+04. Black Mass Hysteria 
+05. Demons & Diamonds 
+06. Montecore 
+07. The Evil Made Me Do It 
+08. Lucifer In Starlight 
+09. Son Of The Morning Star 
+
+Line-Up: 
+Attila Dorn - Vocals 
+Matthew Greywolf - Guitar 
+Charles Greywolf - Bass Guitar 
+Falk Maria Schlegel - Organ 
+Stйfane Funиbre - Drums
+
+### "Lupus Dei" 2007, Heavy Metal
+
+1. Intro (Lupus Demonae) 
+2. We Take It From The Living 
+3. Prayer In The Dark 
+4. Saturday Satan 
+5. In Blood We Trust 
+6. Behind The Leathermask 
+7. Vampires Don't Die 
+8. When The Moon Shines Red 
+9. Mother Mary Is Bird Of Prey 
+10. Tiger Of Sabrod 
+11. Lupus Dei
+
++ 3 bonus video live tracks
+
+### "Bible Of The Beast" 2009, Heavy Metal
+
+
+
+### "Blood Of The Saints" 2011, Heavy Metal
+
+01. Opening: Agnus Dei
+02. Sanctified With Dynamite
+03. We Drink Your Blood
+04. Murder At Midnight
+05. All We Need Is Blood
+06. Dead Boys Don't Cry
+07. Son Of A Wolf
+08. Night Of The Werewolves
+09. Phantom Of The Funeral
+10. Die, Die, Crucified
+11. Ira Sancti (When the Saints Are Going Wild)
+
+### "The Rockhard Sacrament (EP)" 2013, Heavy Metal
+
+1. Amen & Attack  03:55   
+2. In the Name of God  03:15   
+3. Headless Cross (Black Sabbath cover)  06:10   
+4. Nightcrawler (Judas Priest cover)  05:43  
+5. Living on a Nightmare  03:51   
+6. Amen & Attack (Orchestral Version)  04:55 
+
+
+### "Preachers Of The Night" 2013, Heavy Metal
+
+1. Amen & Attack  03:54   
+2. Secrets of the Sacristy  04:07    
+3. Coleus Sanctus  03:45   
+4. Sacred & Wild  03:40 
+5. Kreuzfeuer  03:47    
+6. Cardinal Sin  03:47    
+7. In the Name of God (Deus Vult)  03:15   
+8. Nochnoi Dozor  03:45    
+9. Lust for Blood  03:54    
+10. Extatum Et Oratum  03:56  
+11. Last of the Living Dead  07:42 
+
+
+The Deluxe Edition of the album includes, as Bonus Tracks:
+12. Headless Cross (Black Sabbath cover)
+13. Nightcrawler (Judas Priest cover)
+14. Amen & Attack (Orchestral Version)
+15. Coleus Sanctus (Orchestral Version)
+16. Kreuzfeuer (Orchestral Version) 
+17. Cardinal Sin (Orchestral Version) 
+
+### "Blessed & Possessed" 2015, Heavy Metal
+
+Disc 1  
+1. Blessed & Possessed     
+2. Dead Until Dark      
+3. Army of the Night  03:23  
+4. Armata Strigoi     
+5. We Are the Wild     
+6. Higher than Heaven    
+7. Christ & Combat    
+8. Sanctus Dominus    
+9. Sacramental Sister  
+10. All You Can Bleed    
+11. Let There Be Night       
+
+Disc 2 
+1. Touch of Evil  *  
+2. Conquistadores  *   
+3. Edge of Thorns  *   
+4. Power and Glory  *   
+5. Out in the Fields  *   
+6. Shot in the Dark  * 
+7. Gods of War Arise  *  
+8. The Evil that Men Do  *  
+9. Headless Cross  * 
+10. Nightcrawler  * 
+
 
 ## Отношения с другими группами
 

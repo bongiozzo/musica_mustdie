@@ -1,10 +1,100 @@
 # Bay Laurel
 
-Дискография
-"Under A Clouded Sky" 1995, Gothic
-"Lost In Black Love" 1996, Gothic
-"Days Of Joy" 1996, Gothic
-"Where Pain Comes To Die" 1999, Gothic
+Light Gothic Music
+
+## Дискография
+
+### "Under A Clouded Sky" 1995, Gothic
+
+1. In The Arms Of Silence
+2. Winter Flight
+3. Black Candles
+4. Breeding Tears
+5. Celestial Signs
+6. Thoughts
+7. In Nothingness
+8. The Dying
+9. Not Of That Kind
+10. Dream Forever
+
+ Rikard Lofgren - Vocals
+ Anders Karlsson - Guitars
+ Petter Miller - Guitars
+ Mattias Jonsson - Bass
+ Tobias Gustafsson - Drums
+ Johan Carlsson - Keyboards
+ Sofia Svensson - Additional Vocals
+
+All Songs Written By BAY LAUREL
+Produced & Mixed By Daniel Bergsrand & BAY LAUREL
+Engineered By Daniel Bergsrand
+Recorded At Sound Front Studios Uppsala, Sweden In October 1994
+
+(p)&(c) 1995 NOXIOUS Records
+
+### "Lost In Black Love" 1996, Gothic
+
+1.  Lost In Black Love
+2.  Blue
+3.  Bloodstained
+4.  It's All Right
+
+Recorded and Mixed at Unisound Recordings.
+Engineered by Dan Swano.
+Cover artwork by Peder Hildor.
+
+Rikard Lofgren - Vocals, Guitars, Keyboards
+Anders Karlsson - Guitars
+Mattias Johnson - Bass
+Dan Borg - Keyboards
+Andreas Nyren - Drums
+
+(P)c 1996 NOXIOUS Records // NOX 007
+
+### "Days Of Joy" 1996, Gothic
+
+1.  Lost In Black Love
+2.  A Lighter Of Sperm
+3.  Black Dove
+4.  In Sorrows Tide
+5.  Blue
+6.  Down The Hall
+7.  We Lost
+8.  Outside
+9.  Apart
+10.Worms And Blood
+11.Paint
+
+Recorded and Mixed at Unisound Recordings.
+Engineered by Dan Swano.
+All music by Rikard Lofgren, Anders Karlsson.
+All lyrics by Rikard Lofgren.
+Cover artwork by Peder Hildor.
+
+Rikard Lofgren - Vocals, Guitars, Keyboards
+Anders Karlsson - Guitars
+Mattias Johnson - Bass
+Dan Borg - Keyboards, Backing Vocals
+Andreas Nyren - Drums
+
+(P)c 1996 NOXIOUS Records // NOX 005
+
+### "Where Pain Comes To Die" 1999, Gothic
+
+ 1. Strive
+ 2. A Misery Song
+ 3. Pale Colours
+ 4. Anxiety
+ 5. On The Verge
+ 6. Away
+ 7. Outside These Walls
+ 8. Slow Demise
+ 9. At Night
+ 10. Where Pain Comes To Die
+bonus:
+ 11. First We Take Manhattan (L. COHEN)
+ 12. Heroes (D. BOWIE)
+
 
 ## Отношения с другими группами
 

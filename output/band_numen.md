@@ -1,8 +1,36 @@
 # Numen
 
-Дискография
-"HAIZE SORGINDUEN INTZIRIAK" 2000, Black Metal
-"GALDUTAKO ITXAROPENAREN ERESIA" 2001, Black Metal
+(Pagan black metal)
+
+## Дискография
+
+### "HAIZE SORGINDUEN INTZIRIAK" 2000, Black Metal
+
+1. Haize Sorginduen Intziriak
+2. Ehiztari Beltza
+3. Heriotza Eta Geroa
+4. Gaua Gauekoentzat...
+5. Beotibar
+
+
+
+
+
+### "GALDUTAKO ITXAROPENAREN ERESIA" 2001, Black Metal
+
+1. Gauerdia Erortzean
+2. Denboraren Iluntasuna
+3. Gau Hotz Isilaren Magalean 
+4. Mendiaren Irrintzia
+5. Arbasoen Oroimenean Kulunka
+6. Galdutako Itxaropenaren Eresia
+7. Oinazearen Itzalak
+8. Iheslaria
+9. Ama Lurra
+10. Galdutako Itxaropenaren Eresia
+(Bigarren Atala)
+
+
 
 ## Отношения с другими группами
 

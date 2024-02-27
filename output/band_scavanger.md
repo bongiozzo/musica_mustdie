@@ -1,8 +1,38 @@
 # Scavanger
 
-Дискография
-"Giving Entrance" 2010, Power Metal
-"Between the Devil And the Sea" 2011, Power Metal
+
+
+## Дискография
+
+### "Giving Entrance" 2010, Power Metal
+
+1. Rebirth
+2. The Last Judgement
+3. Stalker
+4. The Evil Rocks The Night
+5. Riders Of The Storm
+6. Metal Queen
+7. Assassins Of Ankh Morpork
+8. Togehter We Stand, Togehter We Die
+9. Dead End
+10. Between The Devil And The Deep Blue Sea
+11. Heavy Metal's Calling (Acoustic Version)
+
+### "Between the Devil And the Sea" 2011, Power Metal
+
+1. Intro		 
+2. Rebirth		 
+3. The Last Judgement		 
+4. Stalker		 
+5. The Evil Rocks the Night		 
+6. Riders of the Storm		 
+7. Metal Queen		 
+8. Assassins Of Ankh Morpork		 
+9. Together We Stand Together We Die		 
+10. Dead End		 
+11. Between the Devil And the Sea		 
+12. Heavy Metal’s Calling
+
 
 ## Отношения с другими группами
 

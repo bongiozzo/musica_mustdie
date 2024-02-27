@@ -1,10 +1,61 @@
 # Beyond Dawn
 
-Дискография
-"Longing For Scarlet Days" 1994, Death Doom
-"Pity Love" 1996, Death Doom
-"Revelry" 1998, Doom
-"Electric Sulking Machine" 1999, Gothic
+doom rock
+
+## Дискография
+
+### "Longing For Scarlet Days" 1994, Death Doom
+
+1. Cold
+2. Moonwomb
+3. Chaosphere
+4. Clouds Swept Away The Colours
+
+ Tore Gjedrm - Vocals,Bass
+ Espen Ingierd - Guitars,Vocals
+ Petter Haavik - Guitars
+ Einar Sjurso - Drums,Tambourine
+ Dag Midbrod - Trombone
+
+All Songs Written By BEYOND DAWN
+Recorded At Creaive Studios,Scarlet Season 1993
+
+(P)&(C) 1994 ADIPOCERE Records
+
+### "Pity Love" 1996, Death Doom
+
+1. When Beauty Dies
+2. The Penance
+3. (Never A) By Gone
+4. Teardance
+5. As The Evening Falters, The Dogs Howl
+6. Embers
+7. Storm
+8. Ripe As The Night
+[9].Daughter Sunday
+
+[9] На Стороне B
+
+ Tore Gjedrm - Vocals,Bass
+ Espen Ingierd - Electric & Acoustic Guitars,Vocals
+ Petter Haavik - Electric Guitars
+ Einar Sjurso - Drums & Percussion
+ Dag Midbrod - Trombone & Keyboards
+
+All Songs Written By BEYOND DAWN.
+Produced By Petter Haavik & Espen Ingierd.
+Recorded & Mixed At Oslo Lydstudio.
+
+(P)&(C) 1996 CANDLE LIGHT Records
+
+### "Revelry" 1998, Doom
+
+
+
+### "Electric Sulking Machine" 1999, Gothic
+
+
+
 
 ## Отношения с другими группами
 

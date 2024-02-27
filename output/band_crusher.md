@@ -1,7 +1,21 @@
 # Crusher
 
-Дискография
-"Endless Torment" 2012, Thrash
+
+
+## Дискография
+
+### "Endless Torment" 2012, Thrash
+
+1.Intro
+2.On The Needle
+3.Den Of Iniquity
+4.Politishit
+5.Endless Torment
+6.S(k)atanic Ride
+7.Jesus Saves
+8.Living for...
+9.Thrasher In Hell
+
 
 ## Отношения с другими группами
 

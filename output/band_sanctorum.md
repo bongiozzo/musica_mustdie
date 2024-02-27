@@ -1,8 +1,36 @@
 # Sanctorum
 
-Дискография
-"The Heavens Shall Burn" 2006, Death Metal
-"Ashes Of Redemption" 2008, Death Metal
+
+
+## Дискография
+
+### "The Heavens Shall Burn" 2006, Death Metal
+
+1. Bloodlust	 
+2. Ancient Words	 
+3. Lifeless Love	 
+4. Closure	 
+5. Stand Alone	 
+6. Rise	 
+7. Watch Me Suffer	 
+8. Dark Lullaby 
+9. My Sickness	 
+10. Desolate Soul
+
+### "Ashes Of Redemption" 2008, Death Metal
+
+1. Carved In Stone	 
+2. Sorrow Of Man	 
+3. Against Us All	 
+4. These Killing Hands	 
+5. Hope Of Salvation	 
+6. Ashes Of Redemption	 
+7. The Reckoning	 
+8. Calls To Arms	 
+9. Tales Of A Horror	 
+10. Fallen	 
+11. Take It All
+
 
 ## Отношения с другими группами
 

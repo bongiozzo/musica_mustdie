@@ -1,10 +1,87 @@
 # 18 Summers
 
-Дискография
-"Phoenix From The Flames" 2001, Synthpop
-"Down In The Park (DVD)" 2001, Synthpop
-"Virgin Mary" 2002, Synthpop
-"Unplugged (EP)" 2002, Synthpop
+
+
+## Дискография
+
+### "Phoenix From The Flames" 2001, Synthpop
+
+1. Felix In The Sky - 4:51
+2. This Is My Life - 3:17
+3. Phoenix From The Flames - 3:57
+4. Shining Star - 4:16
+5. Marry Me - 2:45
+6. Down In The Park - 4:27
+7. Wie eine Feder - 4:11
+8. Daddy's Coming - 3:18
+9. She's Leaving Home - 4:12
+10. Love Never Dies - 4:36
+11. Into The Sea - 4:26
+12. Aj:Na - 5:15
+
+Released:
+ 28.05.2001 (re-release: 03.03.2003) 
+ 
+Produced by:
+Roman Schцnsee / John Fryer
+
+### "Down In The Park (DVD)" 2001, Synthpop
+
+1. The Letter - 4:15
+2. Blue Eyes - 3:02
+3. Daddy's Coming - 3:18
+4. Felix In The Sky - 4:29
+5. Marry Me - 2:45
+6. Down In The Park - 4:00
+7. Aj:Na - 6:43
+
+Bonus:
+Felix In The Sky [Videotrack]
+Making of "Felix In The Sky"
+
+Produced by:
+VIVA2-Soundmix: Juergen Moelders
+Regie: Paul Hauptmann 
+
+Studio: Komed Saal - Cologne (GER)
+
+Distributed by: BMG
+
+### "Virgin Mary" 2002, Synthpop
+
+01. Turn Off The Radio
+02. Virgin Mary
+03. Here And Everywhere
+04. Girl Of 18 Summers
+05. Sensation White
+06. Heavenly Creatures
+07. Dr. Leylend
+08. Golden Days
+09. She&#180;s Running
+10. Some Words In A Diary
+11. Sibyl Vane
+
+Felix Flaucher (Vocals, Lyrics, Bass-Guitars, Keyboards)
+Frank Schwer (Guitars, Keyboards)
+
+### "Unplugged (EP)" 2002, Synthpop
+
+1. The Letter - 4:15
+2. Blue Eyes - 3:02
+3. Daddies Coming - 3:18
+4. Felix In The Sky - 4:29
+5. Marry Me - 2:45
+6. Down In The Park - 4:00
+7. Aj:Na - 6:43
+Bonus:
+Eleanor Rigby - 2:56 (unreleased Studiotrack)
+
+Produced by:
+VIVA2-Soundmix: Juergen Moelders
+Regie: Paul Hauptmann 
+ 
+Studio: Komed Saal Cologne
+
 
 ## Отношения с другими группами
 

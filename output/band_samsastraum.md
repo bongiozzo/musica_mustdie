@@ -1,10 +1,74 @@
 # Samsas Traum
 
-Дискография
-"Die Liebe Gottes" 1999, Gothic
-"Oh Luna Mein" 2000, Gothic
-"Tineoidea oder: Die Folgen einer Nacht" 2003, Gothic
-"A Ura Und Das Schnecken Haus 2cd" 2004, Gothic
+
+
+## Дискография
+
+### "Die Liebe Gottes" 1999, Gothic
+
+1. Elite - Vorspiel auf dem Theater 
+2. Der Protog im Himmel 
+3. Sterbende Liebe 
+4. Tragische Trauertr&#228;nen 
+5. Der Krieg im Himmel 
+6. Satanshimmel voller Geigen 
+7. Fl&#252;gel aus Wachs 
+8. Der Einfall in den Himmel 
+9. Die Vernichtung des Gabriel 
+10. Meine Augen sind die Sterne 
+11. Aber die Liebe h&#246;rt niemals auf 
+12. Epilog auf Erden
+
+### "Oh Luna Mein" 2000, Gothic
+
+
+
+### "Tineoidea oder: Die Folgen einer Nacht" 2003, Gothic
+
+1. Die Hoffnung stirbt zuletzt - Am Anfang stirbt der Glaube
+2. Narrenspiel - Das letzte Tor zum Leben
+3. Ein Foetus wie Du - Komm’ auf mein Begr&#228;bnis, Baby!
+4. &#220;ber der Erde - Dies ist Feigheit
+5. Scherben bringen Gl&#252;ck - Ab jetzt geht es um Gott
+6. In der Kirche des Todestrips - Die Horrorhochzeit
+7. F.M.N.F. - Nikotin und Meskalin
+8. Cafe Koma - Das gro&#223;e Diskoinferno
+9. Die Z&#228;rtlichkeit der Verdammten - Willkommen bei den Peingebrecks
+10. Der F&#228;hrmann - Nur ein einziger Gefallen noch
+11. Im Embryovernichtungslager - Letztlich bleibt uns nur die H&#246;lle
+12. Tineoidea
+
+Bonus Tracks:
+
+13. Madmoiselle Karma
+14. Es war einmal...
+
+### "A Ura Und Das Schnecken Haus 2cd" 2004, Gothic
+
+01. K.ein einziges Wort
+02. Der Riesenraddieb
+03. Das MДdchen aus dem [...]
+04. Der Junge lebt im Brunnen
+05. Flohzirkus
+06. Sisyphos
+07. a.Ura und das Schnecken.Haus
+08. Der Spiegel sieht mich nicht
+09. Die KЖnigin der Kinder.Katzen
+10. Die KrДhen.Kutsche
+11. Der Wald der vergessenen Puppen
+12. Ein Kater kennt den Weg
+13. In der HЖhle des KДfers
+14. Ein Name im Kristall
+15. K.haos-Prinz und Wind-Prinzessin
+16. Dort oben sterben Tiere
+17. Ich wЭnsch' mir, dass das [...]
+18. Endstation.Eden
+19. Mohn auf weiъen Laken
+20. Blut ist in der Waschmuschel
+21. Die ZДhne in der Hand
+22. A.usgesperrt
+23. Zwei Gelsen und ein Strick
+
 
 ## Отношения с другими группами
 

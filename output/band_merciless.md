@@ -1,9 +1,61 @@
 # Merciless
 
-Дискография
-"The Treasures Within" 1992, Melodic Death Metal
-"Unbound" 1994, Melodic Death Metal
-"Merciless" 2002, Thrash
+
+
+## Дискография
+
+### "The Treasures Within" 1992, Melodic Death Metal
+
+1.  The Treasures Within
+2.  Mind Possession
+3.  Darkened Cloud
+4.  The Book Of Lies
+5.  Perish
+6.  Shadows Of Fire
+7.  Lifeflame
+8.  Act Of Horror
+9.  Branded By Sunlight
+10.Dying World
+
+ Rogga - Vocals
+ Erik - Guitars
+ Karlen - Bass
+ Stipen - Drums
+
+All Songs Written By MERCILESS
+Produced By Tomas Skogsberg & MERCILESS
+Recorded & Mixed In Studio Sunlight June, July 1991
+
+(p)&(c) 1992 ACTIVE Records
+
+### "Unbound" 1994, Melodic Death Metal
+
+1. Unbound
+2. The Land I Used To Walk
+3. Feebleminded
+4. Back To North
+5. Silent Truth
+6. Lost Eternally
+7. Nuclear Attack
+8. Forbidden Pleasure
+
+ Rogga - Lead vocals
+ Erik - Electric/Acoustic guitars
+ Karler - Bass/Back vocals
+ Stjarnvind - Drums
+ Keyboards & effects by Dan Swano
+
+All lyrics by Rogga
+Music by MERCILESS
+Produced by MERCILESS
+Recorded & mixed by MERCILES & Dan Swano at Unisound Recording Sept. 1993
+
+(p)(c) 1994 NO FASHION Records
+
+### "Merciless" 2002, Thrash
+
+
+
 
 ## Отношения с другими группами
 

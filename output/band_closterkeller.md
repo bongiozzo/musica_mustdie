@@ -1,18 +1,81 @@
 # Closterkeller
 
-Дискография
-"Purple" 1989, Gothic
-"Blue" 1990, Gothic
-"Agnieszka" 1993, Gothic
-"Violet" 1993, Gothic
-"Scarlet" 1995, Gothic
-"Cyan" 1996, Gothic
-"Koncert’97" 1997, Gothic
-"Graphite" 1999, Gothic
-"Fin de siecle" 2000, Gothic
-"Pastel" 2001, Gothic
-"Graphite" 2003, Gothic
-"Nero" 2004, Gothic
+Gothic rock
+
+## Дискография
+
+### "Purple" 1989, Gothic
+
+
+
+### "Blue" 1990, Gothic
+
+
+
+### "Agnieszka" 1993, Gothic
+
+
+
+### "Violet" 1993, Gothic
+
+
+
+### "Scarlet" 1995, Gothic
+
+
+
+### "Cyan" 1996, Gothic
+
+
+
+### "Koncert’97" 1997, Gothic
+
+
+
+### "Graphite" 1999, Gothic
+
+
+
+### "Fin de siecle" 2000, Gothic
+
+
+
+### "Pastel" 2001, Gothic
+
+
+
+### "Graphite" 2003, Gothic
+
+Athe
+Somewhere Inbetween
+The Mermaid
+The Pearl
+The Secret Place
+The Ego Game
+Eve and Adam
+Two Days
+Marble Enchanted
+The Reign of the Comet
+The Symbol Shattered
+Love for Money
+The Piano
+Graphite
+
+### "Nero" 2004, Gothic
+
+1 -  Watching as you Drown 
+2 -  Fight Club 
+3 -  As I Glide 
+4 -  Like Rain Against Stone 
+5 -  Queen 
+6 -  He Comes when the Night Falls 
+7 -  Nero 
+8 -  Mirage
+9 -  No Matter What Will Be 
+10 -  Amber 
+11 -  Have You Seen 
+12 -  Sin
+
 
 ## Отношения с другими группами
 

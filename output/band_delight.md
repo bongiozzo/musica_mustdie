@@ -1,11 +1,82 @@
 # Delight
 
-Дискография
-"Last Temptation" 2000, Gothic
-"The Fading Tale" 2001, Gothic
-"Eternity" 2002, Gothic
-"ANew" 2004, Gothic
-"Breaking Ground" 2007, Gothic
+Melodic metal with female vocal
+
+## Дискография
+
+### "Last Temptation" 2000, Gothic
+
+1. Revelation of a sinner 
+2. Plenitude is a perfect vacancy 
+3. The last temptation 
+4. Dajmonion 
+5. Time of revenge 
+6. Farewell 
+7. Sator 
+8. Eyes that last I saw in tears 
+9. The shapes and shadows 
+10. The lamentable monument of stone
+ 
+
+### "The Fading Tale" 2001, Gothic
+
+1. The Fading Tale 
+2. Nymphaea 
+3. Carving The Way 
+4. The Gates Of The Green 
+5. Backwards
+6. Careless Whisper 
+7. Orchard
+8. Great Words On The Altars
+9. Sombre Wine
+
++ Carving The Way ( video )
+
+### "Eternity" 2002, Gothic
+
+1.The Hand 
+2.Stained Glass
+3.Requiem 
+4.Spring Day 
+5.Whale's Lungs
+6.I promise
+7.The Sun
+8.Outhereness 
+9.Wieczny Fina&#1110;
+
++ Stainted Glass (video)
+ 
+
+
+### "ANew" 2004, Gothic
+
+Anew 
+More 
+Emotune 
+Your Name 
+Set Me Free 
+The Pact Of Silence 
+All That's In Me 
+About You 
+Bare Tree 
+Sleep
+Бонус-видео:Emotune
+
+### "Breaking Ground" 2007, Gothic
+
+1. Divided
+2. Sleep With The Light On
+3. In Too Deep
+4. Reasons
+5. Fire
+6. Every Time
+7. Emotune
+8. More
+9. Juliet
+10. All Alone
+11. Your Name
+12. Bare Tree
+
 
 ## Отношения с другими группами
 

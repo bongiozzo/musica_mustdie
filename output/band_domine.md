@@ -1,10 +1,108 @@
 # Domine
 
-Дискография
-"Champion Eternal" 1997, Power Metal
-"Dragonlord" 1999, Power Metal
-"Stormbringer Ruler (The Legend Of The Power Supreme)" 2001, Power Metal
-"Emperor Of The Black Runes" 2004, Power Metal
+(Italian Epic Power)
+
+## Дискография
+
+### "Champion Eternal" 1997, Power Metal
+
+1) Hymn 
+2) The Mass Of Chaos 
+3) The Chronicles Of The Black Sword 
+i)Doomed Lord Dreaming 
+ii)Stormbringer 
+4) The Freedom Flight 
+5) Army Of The Dead 
+i)The Vision And The Promise 
+ii)Promise Denied 
+iii)Prophecy Fullfilled 
+iv)Army Of The Dead 
+v)Doomed City 
+6) The Proclamation 
+7) Dark Emperor 
+8) Rising From The Flames 
+9) The Midnight Meat Train 
+10) The Eternal Champion 
+i)Prologue 
+ii)Screaming The Battlecry 
+iii)Blow My Blow 
+iv)Death Of The Champion 
+v)Heroes In Tears 
+vi)Destiny Revealed 
+vii)Epilogue 
+
+
+Line Up: Enrico Paoli : guitar; Riccardo Paoli : bass 
+Mimmo Palmiotta : drums; Morby : vocals
+
+### "Dragonlord" 1999, Power Metal
+
+Anthem (A Declaration Of War) 
+Thunderstorm 
+Last Of The Dragonlords (Lord Elric's Imperial March) 
+Blood Brothers' Fight 
+Defenders 
+Mars , The Bringer Of War 
+Dragonlord (The Grand Master Of The Mightiest Beasts) 
+Uriel , The Flame Of God 
+The Ship of The Lost Souls 
+The Battle For The Great Silver Sword 
+(A Suite in VII parts , Opera III) 
+i) Overture - The Dawn Of Steel 
+ii) The Pipes Of War 
+iii) The Sacrifice Chant 
+iv) War 
+v) Sword Fight 
+vi) The Sword Is Broken 
+vii) Finale - The Sunset Of Steel 
+Queen Of The Reich (only japanese version) 
+
+
+Line Up: Enrico Paoli : guitar; Riccardo Paoli : bass 
+Mimmo Palmiotta : drums; Morby : vocals; Riccardo Iacono : keyboards 
+
+
+  
+
+### "Stormbringer Ruler (The Legend Of The Power Supreme)" 2001, Power Metal
+
+1) The Legend Of The Power Supreme (intro) 
+2) The Hurricane Master 
+3) Horn Of Fate -  
+(The Chronicles Of The Black Sword – The End Of An Era part 2) 
+4) The Ride Of The Valkyries 
+5) True Leader Of Men 
+6) The Bearer Of The Black Sword  
+(The Chronicles Of The Black Sword – The End Of An Era part 1) 
+7) The Fall Of The Spiral Tower 
+8) For Evermore  
+(The Chronicles Of The Black Sword – The End Of An Era part 3) 
+9) Dawn Of A New Day – A Celtic Requiem 
+(The Chronicles Of The Black Sword – The End Of An Era part 4) 
+10) Stargazer (bonus track)  
+
+
+Line Up: 
+Enrico Paoli : guitar; 
+Riccardo Paoli : bass 
+Stefano Bonini : drums; 
+Morby : vocals; 
+Riccardo Iacono : keyboards
+
+### "Emperor Of The Black Runes" 2004, Power Metal
+
+01. Overture Mortale 
+02. Battle Gods 
+03. Arioch, The Chaos Star 
+04. The Aquilonia Suite Part 1 
+05. The Prince In The Scarlet Robe 
+06. Icarus Ascending 
+07. The Song Of The Swords 
+08. The Sun Of The New Season 
+09. True Believer 
+10. The Forest Of Light 
+11. Altar Of The King (RIOT cover) (Japanese bonus track)
+
 
 ## Отношения с другими группами
 

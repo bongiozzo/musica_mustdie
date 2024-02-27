@@ -1,11 +1,54 @@
 # Forgotten Tomb
 
-Дискография
-"Songs To Leave " 2002, Black Metal
-"Springtime Depression" 2003, Black Metal
-"Love's Burial Ground " 2004, Black Metal
-"Negative Megalomania " 2007, Black Metal
-"Under Saturn Retrograde" 2011, Black Metal
+
+
+## Дискография
+
+### "Songs To Leave " 2002, Black Metal
+
+1. Entombed by Winter 10:57  
+2. Solitude Ways 07:42 
+3. Steal My Corpse 09:29  
+4. No Way Out 06:46
+5. Disheartenment 12:42 
+
+
+### "Springtime Depression" 2003, Black Metal
+
+1. Todestrieb 08:50  
+2. Scars 07:12
+3. Daylight Obsession 07:22
+4. Springtime Depression 04:50  
+5. Colourless Despondency 07:02 
+6. Subway Apathy 11:30 
+
+
+### "Love's Burial Ground " 2004, Black Metal
+
+1. Malus Vivendi Part I 02:15  
+2. Kill Life 08:43] 
+3. Alone 11:57  
+4. House of Nostalgia 13:09 
+5. Malus Vivendi Part II 01:04  
+6. Love's Burial Ground 10:55  
+7. Slave to Negativity 09:15 
+8. Forgotten Tomb MMIII 05:49  
+9. Malus Vivendi Part III 02:02 
+
+
+### "Negative Megalomania " 2007, Black Metal
+
+1. A Dish Best Served Cold 07:49 
+2. No Rehab (Final Exit) 11:47 
+3. Negative Megalomania 11:40 
+4. The Scapegoat 11:39 
+5. Blood and Concrete 14:06 
+
+
+### "Under Saturn Retrograde" 2011, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

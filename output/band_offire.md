@@ -1,8 +1,17 @@
 # Of Fire
 
-Дискография
-"Carnage Fever" 2014, Death Metal
-"Death Do Us All" 2016, Death Metal
+
+
+## Дискография
+
+### "Carnage Fever" 2014, Death Metal
+
+
+
+### "Death Do Us All" 2016, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

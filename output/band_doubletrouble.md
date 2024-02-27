@@ -1,9 +1,103 @@
 # Double Trouble
 
-Дискография
-"Live Alive" 1986, Blues
-"Live at Carnegie Hall" 1997, Blues
-"Been A Long Time" 2001, Blues
+(Stevie Ray Vaughan's Band)
+
+## Дискография
+
+### "Live Alive" 1986, Blues
+
+  1.   Say What (Vaughan) - 4:51 
+  2.   Ain't Gone 'N' Give up on Love (Vaughan) - 6:25 
+  3.   Pride and Joy (Vaughan) - 5:05 
+  4.   Mary Had a Little Lamb (Guy) - 4:15 
+  5.   Superstition (Wonder) - 4:43 
+  6.   I'm Leaving You (Commit a Crime) - 5:35 
+  7.   Cold Shot (Clark) - 5:40 
+  8.   Willie the Wimp - 4:39 
+  9.   Look at Little Sister (Ballard) - 4:15 
+  10.   Texas Flood (Davis/Scott) - 6:30 
+  11.   Voodoo Chile (Slight Return) (Hendrix) - 9:37 
+  12.   Love Struck Baby (Vaughan) - 3:46 
+  13.   Change It (Bramhall) - 5:03 
+
+
+Randy Bachman  -  Photography 
+Allen Abrahamson  -  Assistant Engineer, Assistant 
+Double Trouble  -  Producer, Liner Notes 
+Gordon Garrison  -  Assistant Engineer, Assistant 
+Joe Gastwirt  -  Preparation 
+James Geddes  -  Assistant Engineer, Assistant 
+Malcolm Harper  -  Assistant Engineer, Assistant 
+Kalifornia Kurt Kinzel  -  Engineer 
+Chris Layton  -  Drums, Photography 
+Andrew Long  -  Photography 
+Dave McNair  -  Assistant Engineer, Assistant 
+Stephen J. Mendell  -  Assistant Engineer, Assistant 
+Gary Olazabal  -  Engineer, Mixing 
+Dave Richards  -  Engineer 
+Tommy Shannon  -  Bass, Drums, Guitar (Bass), Photography 
+Stuart Sullivan  -  Assistant Engineer, Assistant 
+Jimmie Vaughan  -  Guitar, Organ (Hammond), 6-String Bass 
+Stevie Ray Vaughan  -  Guitar, Vocals, Producer, Performer, Liner Notes 
+Reese Wynans  -  Keyboards 
+Ron Cote  -  Engineer 
+Stevie Ray Vaughan & Double Trouble  -  Performer 
+Christopher Austopchuk  -  Art Direction, Cover Design 
+Laura Levine  -  Photography 
+Barry Spillman  -  Assistant Engineer, Assistant 
+Craig Robinson  -  Assistant Engineer, Assistant 
+Steve Van Arden  -  Assistant Engineer, Mixing Assistant, Assistant 
+Dale Allen  -  Photography 
+Mason Harlow  -  Assistant Engineer, Assistant 
+
+
+### "Live at Carnegie Hall" 1997, Blues
+
+  1.   Intro 
+  2.   Scuttle Buttin' (Vaughan) 
+  3.   Testify (Clinton/Taylor) 
+  4.   Love Struck Baby (Vaughan) 
+  5.   Honey Bee (Vaughan) 
+  6.   Cold Shot (Clark/Kindred) 
+  7.   Letter to My Girlfriend (Jones) 
+  8.   Dirty Pool (Bramhall/Vaughan) 
+  9.   Pride and Joy (Vaughan) 
+  10.   The Things That I Used to Do (Guitar Slim [Eddie Jones]) 
+  11.   C.O.D. (Gooden) 
+  12.   Iced Over (Collins) 
+  13.   Lenny (Vaughan) 
+  14.   Rude Mood (Vaughan) 
+
+
+
+John Hammond, Jr.  -  Performer 
+Dr. John  -  Keyboards 
+Porky Cohen  -  Trombone 
+Double Trouble  -  Performer 
+Bob Enos  -  Trumpet 
+Doug James  -  Sax (Baritone) 
+Rich Lataille  -  Sax (Alto) 
+Chris Layton  -  Drums 
+Bob Ludwig  -  Mastering 
+Richard Mullen  -  Engineer 
+Greg Piccolo  -  Sax (Tenor) 
+Jeff Powell  -  Mixing 
+George Rains  -  Drums 
+Andy Schwartz  -  Liner Notes 
+Tommy Shannon  -  Bass 
+Angela Strehli  -  Vocals 
+Jimmie Vaughan  -  Guitar 
+Stevie Ray Vaughan  -  Guitar, Vocals, Producer 
+Chuck Pulin  -  Photography 
+Josh Cheuse  -  Art Direction 
+Tony Martell  -  Executive Producer 
+Brian Lee  -  Mastering 
+
+
+### "Been A Long Time" 2001, Blues
+
+
+
 
 ## Отношения с другими группами
 

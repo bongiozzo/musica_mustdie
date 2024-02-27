@@ -1,6 +1,9 @@
 # Weeping Silence
 
-Дискография
+Maltese, atmospheric, power/doom metal
+
+## Дискография
+
 
 ## Отношения с другими группами
 

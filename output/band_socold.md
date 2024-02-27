@@ -1,7 +1,21 @@
 # So Cold
 
-Дискография
-"Gone With The Storm" 2009, Gothic
+
+
+## Дискография
+
+### "Gone With The Storm" 2009, Gothic
+
+1. Black Harmony 04:13  
+2. The Deceiver 06:01  
+3. Disappeared 05:07  
+4. Alison 04:26  
+5. Kiss the Scythe 04:12  
+6. Rain 04:33  
+7. Gone With the Storm 05:22  
+8. My Own Prison 04:52  
+9. For the One 05:31 
+
 
 ## Отношения с другими группами
 

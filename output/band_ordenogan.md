@@ -1,12 +1,142 @@
 # Orden Ogan
 
-Дискография
-"Testimonium A.D." 2004, Folk
-"Vale" 2008, Power Metal
-"Easton Hope" 2010, Power Metal
-"To The End" 2012, Power Metal
-"Ravenhead" 2015, Power Metal
-"Gunmen" 2017, Power Metal
+
+
+## Дискография
+
+### "Testimonium A.D." 2004, Folk
+
+1. Testimonium A.D. 02:44 
+2. Ethereal Ocean 05:28 
+3. Angels War 06:56 
+4. Moods 07:20 
+5. Y, U, Id Ant My 05:57 
+6. Golden 07:30 
+7. The Step Away 04:28
+
+
+Line-up:
+ Sebastian Levermann - Vocals , Guitar
+ Stefan Manarin - Guitar
+ Sebastian Severin - Bass
+ Sebastian Grьtling - Drums
+ Nils Weise - Keyboard
+ Verena Melchert - Flute 
+
+### "Vale" 2008, Power Metal
+
+CD1 
+01. Graves Bay 01:16 
+02. To New Shores Of Sadness 06:35 
+03. Winds Of Vale 03:24 
+04. Farewell 03:50 
+05. Reality Lost 06:52 
+06. This Is 03:09 
+07. This Was 00:27 
+08. Something Pretending 05:53 
+09. The Lords Of The Flies 04:01 
+10. ...And If You Do Right 04:04 
+11. What Im Recalling 03:56 
+12. A Friend Of Mine 03:41 
+13. The Candle Lights 05:13 
+14. (Who's The) Green Man? 02:41 
+
+CD2 
+01. Winds Of Vale (From the album 'Vale') (3:28) 
+02. To New Shores Of Sadness (From the album 'Vale') (6:40) 
+03. The Yearning Remains (Previously Unreleased) (9:03) 
+04. Splattered In Seconds (Live at WNT06) (1:38) 
+05. Splattered In A Half Minute (Live at WNT 06) (1:07) 
+
+
+Line-up:
+ Sebastian Levermann - Vocals, guitar
+ Tobias Kersting - Guitar
+ Lars Schneider - Bass
+ Sebastian Grьtling - Drums
+ Nils Weise - Keyboards
+ 
+Guest: Martin Walczak (Evenless) - Additional vocals on "Reality Lost".
+ 
+
+
+### "Easton Hope" 2010, Power Metal
+
+1. Rise And Ruin 02:16 
+2. Nobody Leaves 05:57 
+3. Goodbye 04:10 
+4. Easton Hope 06:49 
+5. Welcome Liberty 05:46 
+6. All These Dark Years 05:47 
+7. Nothing Remains 06:46 
+8. Requiem 04:58 
+9. We Are Pirates 07:34 
+10. The Black Heart 06:00 
+11. Of Downfall And Decline 08:51
+
+Limited digipak edition comes with two bonus tracks:
+ 
+To New Shores Of Sadness (Orchestral Version)
+This Is (Orchestral Version)
+ 
+As well as a multimedia section with a making-of documentary, videos, gallery and wallpapers. 
+
+### "To The End" 2012, Power Metal
+
+01. The Frozen Few 01:56 
+02. To The End 05:53 
+03. The Things We Believe In 05:06 
+04. Land Of The Dead 04:42 
+05. The Ice Kings 04:53 
+06. Till The Stars Cry Out 06:16 
+07. This World Of Ice 04:42 
+08. Dying Paradise 06:07 
+09. Mystic Symphony 04:15 
+10. Angels War 07:20 
+11. Take This Light 03:32 
+12. Masks (Bonus Track) 04:22 
+13. The Battle Of Waterloo (Running Wild Cover) (Bonus Track) 06:59
+
+### "Ravenhead" 2015, Power Metal
+
+01. Orden Ogan
+02. Ravenhead
+03. F.E.V.E.R
+04. The Lake
+05. Evil Lies In Every Man
+06. Here At The End Of The World
+07. A Reason To Give
+08. Deaf Among The Blind
+09. Sorrow Is Your Tale
+10. In Grief And Chains
+11. Too Soon
+
+### "Gunmen" 2017, Power Metal
+
+Disc 1 (CD)  
+1. Gunman  05:17  
+2. Fields of Sorrow  06:43   
+3. Forlorn and Forsaken  04:48    
+4. Vampire in Ghost Town  06:16    
+5. Come with Me to the Other Side (feat. Liv Kristine) 06:14    
+6. The Face of Silence  06:14   
+7. Down Here  03:53 
+8. Ashen Rain  03:15    
+9. One Last Chance  05:15  
+10. Finis Coronat Opus  08:48    
+  
+Disc 2 (DVD)  
+1. Orden Ogan (Intro) 
+2. Ravenhead 
+3. Here at the End of the World  
+4. We Are Pirates! 
+5. Deaf Among the Blind 
+6. Sorrow Is Your Tale  
+7. F.E.V.E.R  
+8. The Things We Believe In  
+9. In Grief and Chains (Outro)  
+
+
 
 ## Отношения с другими группами
 

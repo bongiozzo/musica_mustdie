@@ -1,9 +1,28 @@
 # Hordes Of Nebulah
 
-Дискография
-"...And Blasphemous Night Shall Fall " 2004, Black Metal
-"Lay Waste To The Myths Of The Seraphim" 2005, Black Metal
-"When The Sun Was Bled Of Its Light" 2005, Black Metal
+
+
+## Дискография
+
+### "...And Blasphemous Night Shall Fall " 2004, Black Metal
+
+1. The Cold Infernal Presence
+2. On The Night Of Wind And Storm   
+3. Black Canonization  
+4. A Dark Malediction
+5. Awash In The Blood Of My Enemies   
+6. Moontide   
+7. When The Sun Was Bled of Its Light 
+8. And Death I Leave With You 
+
+### "Lay Waste To The Myths Of The Seraphim" 2005, Black Metal
+
+
+
+### "When The Sun Was Bled Of Its Light" 2005, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

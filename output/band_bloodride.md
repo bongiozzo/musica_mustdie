@@ -1,8 +1,30 @@
 # Bloodride
 
-Дискография
-"Bloodridden Disease" 2004, Thrash
-"Crowned in Hell" 2011, Thrash
+
+
+## Дискография
+
+### "Bloodridden Disease" 2004, Thrash
+
+1. The arrival
+2. Killing the silence 
+3. Iced ground
+4. Reckoning day
+5. Forbid 
+6. King of pain
+
+### "Crowned in Hell" 2011, Thrash
+
+1.There Will be Blood	 
+2. March of the Dead	 
+3. Straight from Hell	 
+4. Slave of Evil	 
+5. Cain	 
+6. Demon's Way	 
+7. God	 
+8. Promised	 
+9. Thrown into Darkness (Unholy War)
+
 
 ## Отношения с другими группами
 

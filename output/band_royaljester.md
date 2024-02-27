@@ -1,7 +1,22 @@
 # Royal Jester
 
-Дискография
-"Night is Young" 2010, Power Metal
+
+
+## Дискография
+
+### "Night is Young" 2010, Power Metal
+
+1. Night is Young
+2. Born Again
+3. Wings of Tomorrow
+4. The New Order
+5. Enter the Mist
+6. Royal Jester
+7. Vile Smile
+8. The King Has Fallen	
+9. If You Were Mine
+10. Age of Terror
+
 
 ## Отношения с другими группами
 

@@ -1,9 +1,30 @@
 # Babylon Whores
 
-Дискография
-"Deggael" 1998, Gothic
-"King Fear" 2000, Gothic
-"Death Of The West" 2002, Gothic
+death-rock-n-roll
+
+## Дискография
+
+### "Deggael" 1998, Gothic
+
+
+
+### "King Fear" 2000, Gothic
+
+Errata Stigmata 
+Radio Werewolf 
+Hand of Glory 
+Veritas 
+Skeleton farm 
+To behold the Suns below 
+Exit Eden 
+Sol niger 
+Fey 
+King Fear: Song for the Damned
+
+### "Death Of The West" 2002, Gothic
+
+
+
 
 ## Отношения с другими группами
 

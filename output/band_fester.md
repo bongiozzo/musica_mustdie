@@ -1,8 +1,52 @@
 # Fester
 
-Дискография
-"Winter Of Sin" 1993, Death Metal
-"Silence" 1995, Death Metal
+
+
+## Дискография
+
+### "Winter Of Sin" 1993, Death Metal
+
+1. Winter Of Sin
+2. Senses Are The True You
+3. The Ancient Gods More Black
+4. Entering...
+5. Victory !!!
+6. Liberation
+7. As The Swords Clinch The Air
+8. A Dogfight Leaves A Trace
+
+ Jorgen  - Bass
+ Tiger  - Guitars
+ Rolf Tommy - Guitars, Vocals
+ Jan Sjelge  - Drums
+
+All Songs By FESTER
+
+(p)&(c) 1993 NO FASHION Records
+
+### "Silence" 1995, Death Metal
+
+1. Dream
+2. Silent Is The Raven
+3. Frustration
+4. The Maze
+5. The Conformists
+6. Voices From The Woods
+7. Elisabeta - In My World Of Thoughts
+8. Growing Thirst
+9. Nar Noen Dor ...
+
+ Rolf Tommy Simonsen - Guitars, Vocals
+ Tiger Mathisen - Guitars, Vocals
+ Jorgen Skjolden - Bass
+ Jan Skjolden - Drums
+
+All Music & Lyrics By FESTER
+Produced & Mixed By Michi Zastoupil
+Recorded At Vienna Power Station, Vienna
+
+(p)&(c) 1995 LETHAL Records
+
 
 ## Отношения с другими группами
 

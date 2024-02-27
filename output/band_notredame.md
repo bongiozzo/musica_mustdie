@@ -1,10 +1,38 @@
 # Notre Dame
 
-Дискография
-"Le Theatre Du Vampire" 1999, Metal
-"Coming Soon to a Theatre Near You!!!" 2002, Metal
-"Near You, The 2nd" 2002, Metal
-"Demi Mondo Bizarros" 2004, Metal
+Horror metal (feat. Snowy Shaw (Dream Evil, ex-King Diamond)
+
+## Дискография
+
+### "Le Theatre Du Vampire" 1999, Metal
+
+
+
+### "Coming Soon to a Theatre Near You!!!" 2002, Metal
+
+
+
+### "Near You, The 2nd" 2002, Metal
+
+
+
+### "Demi Mondo Bizarros" 2004, Metal
+
+1. The Thing...
+2. Munsters!
+3. The Ride 
+4. My Ride Into Afterlife
+5. The Stripper
+6. Verbal Diarrhoea
+7. Bon Voyage Mutherfucker!
+8. The Master, The Servant And The Slave
+9. Beyond The Threshold Of Pain
+10. Hitmusic For Hitmen
+11. Demi Monde Bizarros
+12. S/S Hellride
+13. These Boots Are Made For Walking (Bonus Live)
+14. The World Is Sick...And So Are We (Bonus Live)
+
 
 ## Отношения с другими группами
 

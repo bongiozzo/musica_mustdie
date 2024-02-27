@@ -1,8 +1,32 @@
 # Human Mincer
 
-Дискография
-"Embryonized" 2002, Death Metal
-"Devoured Flesh" 2005, Death Metal
+
+
+## Дискография
+
+### "Embryonized" 2002, Death Metal
+
+1. Cerebral Torture 
+2. Death By Infestation Of Grubs
+3. Repugnant Desire
+4. Embryonized
+5. The Edge Of My Perversion
+6. Putrefact Agony
+7. Son Of Decay
+8. Cannibal Resurrection
+9. Filth's Creator
+
+### "Devoured Flesh" 2005, Death Metal
+
+01. Exterminated Illusions
+02. Light Of Evil
+03. Reposes On Blood
+04. Eternal Ways Of Devil
+05. Devoured Flesh
+06. Nest Of Hate
+07. Ghost Of The Past
+08. Dirty Remembrances
+
 
 ## Отношения с другими группами
 

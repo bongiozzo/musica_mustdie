@@ -1,16 +1,190 @@
 # Helstar
 
-Дискография
-"Burning Star" 1984, Speed Metal
-"Remnants Of War " 1986, Speed Metal
-"A Distant Thunder " 1988, Speed Metal
-"Nosferatu" 1989, Speed Metal
-"Multiples Of Black" 1995, Heavy Metal
-"Sins Of The Past" 2007, Speed Metal
-"The King Of Hell " 2008, Heavy Metal
-"Glory Of Chaos" 2010, Heavy Metal
-"30 Years of Hel (DVD + 2CD)" 2012, Speed Metal
-"This Wicked Nest" 2014, Speed Metal
+
+
+## Дискография
+
+### "Burning Star" 1984, Speed Metal
+
+1. Burning Star 03:50
+2. Towards the Unknown 04:44 
+3. Witch's Eye 03:03 
+4. Run With the Pack 06:38 
+5. Leather and Lust 03:26
+6. Possession 03:28 
+7. Shadows of Iga 04:59 
+8. Dracula's Castle 04:51 
+
+
+Line-up:
+Bill Lionel (aka James Rivera) - Vocals
+Larry Barragan - Guitars
+Tom Rogers - Guitars
+Paul Medina - Bass
+Hector Pavon - Drums
+
+
+### "Remnants Of War " 1986, Speed Metal
+
+1. Unidos por Tristeza 00:47  
+2. Remnants of War 03:46 
+3. Conquest 03:48 
+4. Evil Reign 04:34
+5. Destroyer 05:03 
+6. Suicidal Nightmare 05:20 
+7. Dark Queen 04:01  
+8. Face the Wicked One 05:16
+9. Angel of Death 06:16 
+
+
+
+Line-up: 
+James Rivera - Vocals
+Larry Barragan - Guitars
+Robert Trevino - Guitars
+Jerry Abarca - Bass
+Rene Luna - Drums
+
+### "A Distant Thunder " 1988, Speed Metal
+
+1. The King Is Dead 04:03 
+2. Bitter End 04:22 
+3. Abandon Ship 06:56
+4. Tyrannicide 05:29 
+5. Scorcher 05:49 
+6. Genius of Insanity 05:01 
+7. (The) Whore of Babylon 02:33 
+8. Winds of War 06:09 
+9. He's a Woman, She's a Man (Scorpions cover) 02:55 
+
+
+
+Line-up:
+James Rivera - Vocals
+Larry Barragan - Guitars
+Andre Corbin - Guitars
+Jerry Abarca - Bass
+Frank Ferreira - Drums 
+
+
+
+### "Nosferatu" 1989, Speed Metal
+
+1. Rhapsody in Black 00:58  
+2. Baptized in Blood 04:25 
+3. To Sleep, Per Chance to Scream 04:37 
+4. Harker's Tale (Mass of Death) 04:26
+5. Perseverence and Desperation 04:16  
+6. The Curse Has Passed Away 05:08
+7. Benediction 05:57
+8. Harsh Reality 03:15 
+9. Swirling Madness 04:04 
+10. Von Am Lebem Desto Strum 01:58  
+11. Aieliaria and Everonn 03:46 
+
+
+
+Line-up:
+James Rivera - Vocals
+Larry Barragan - Guitars
+Andre Corbin - Guitars
+Jerry Abarca - Bass
+Frank Ferreira - Drums 
+
+### "Multiples Of Black" 1995, Heavy Metal
+
+1. No Second Chance
+2. Will It Catch Again
+3. Lost To Be Found
+4. When We Only Bleed
+5. Reality
+6. Good Day To Die
+7. Beyond The Realm Of Death *
+8. Save Time
+9. Black Silouette Skies
+10. Last Serenade
+
+ James Rivera - Vocals
+ Aaron Garza - Guitars
+ D. Michael Heald - Guitars
+ Gerald Abarka - Bass
+ Russel De Leon - Drums
+
+All Songs Written By HELSTAR, Except * By JUDAS PRIEST
+Produced By Dave Eleffson
+
+
+
+### "Sins Of The Past" 2007, Speed Metal
+
+Burning Star
+Suicidal Nightmare
+The King Is Dead
+Evil Reign
+Baptized In Blood
+Witch's Eye
+Tyrannicide
+Harker's tale
+Angel Of Deathe
+Dracula's Castle
+Face The Wicked One
+Tormentor (new song)
+Caress Of The Dead (new song)
+
+James Rivera (aka Bill Lionel) - вокал
+Larry Barragan - гитары
+Robert Trevino - гитары
+Jerry Abarca - бас
+Russel DeLeon - ударные
+
+### "The King Of Hell " 2008, Heavy Metal
+
+1. The King of Hell 06:28 
+2. The Plague Called Man 04:53 
+3. Tormentor 05:13 
+4. When Empires Fall 03:53 
+5. Wicked Disposition 06:13
+6. Caress of the Dead 05:04 
+7. Pain Will Be Thy Name 03:47
+8. In My Darkness 05:37
+9. The Garden of Temptation 08:53 
+
+
+The first press includes three bonus tracks:
+10. White Witch (Angel Witch cover) 4:47
+11. Tormentor (Sins Of The Past version) 5:25
+12. Caress Of The Dead (Sins Of The Past version) 5:00 
+
+### "Glory Of Chaos" 2010, Heavy Metal
+
+1. Angels Fall To Hell   
+2. Pandemonium   
+3. Monarch Of Bloodshed   
+4. Bone Crusher   
+5. Summer Of Hate   
+6. Dethtrap   
+7. Anger   
+8. Trinity Of Heresy   
+9. Alma Negra   
+10. Zero One 
+
+
+### "30 Years of Hel (DVD + 2CD)" 2012, Speed Metal
+
+
+
+### "This Wicked Nest" 2014, Speed Metal
+
+01. Fall Of Dominion
+02. Eternal Black
+03. This Wicked Nest
+04. Souls Cry
+05. Isla De Las Munecas
+06. Cursed
+07. It Has Risen
+08. Defy The Swarm
+09. Magormissabib
+
 
 ## Отношения с другими группами
 

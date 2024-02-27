@@ -1,9 +1,63 @@
 # Shylock
 
-Дискография
-"Pyronized" 2001, Hard Rock
-"Welcome to Illusion" 2004, Hard Rock
-"Rock Buster" 2010, Hard Rock
+Melodic Hard
+
+## Дискография
+
+### "Pyronized" 2001, Hard Rock
+
+BLOODSISTER 
+LOVERS IN CHAINS 
+... NEVER GIVE UP FIGHTING 
+LOST IN A DREAM 
+THAT KILLS ME 
+DESPERATION`S SONG 
+IN VAIN 
+HEART ON THE LINE 
+BAD `N`SAD (WON`T YOU HEAL MY SOUL) 
+ANOTHER LONELY NIGHT 
+FREEDOM RISING
+
+### "Welcome to Illusion" 2004, Hard Rock
+
+1- Welcome to Illusion
+2- Closer
+3- Revolution
+4- But I Like It
+5- Darkness
+6- Middle of Paradise
+7- Lose You
+8- Out in the Streets
+9- World of the Lonely
+10- Late Night Show
+11- The Need
+12- Tomorrow
+13- Guilty
+14- Hard to Hold On
+15- I Will Come Back
+
+Matthias Schenk (lv)
+Stefan Appel (g, bv)
+Steven Wussow (b)
+Helmut Welther (d)
+Matthias Appel (k)
+Johannes Lцhr (g, bv)
+
+### "Rock Buster" 2010, Hard Rock
+
+1. Damn Good
+2. Dawn
+3. Rumours
+4. Sunshine vs. Rain
+5. Just For U
+6. Much
+7. Rose Of Cairo
+8. Strong
+9. Somebody Else
+10. The Moment
+11. We Are
+12. Wrong Planet
+
 
 ## Отношения с другими группами
 

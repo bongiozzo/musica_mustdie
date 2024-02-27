@@ -1,7 +1,23 @@
 # Faro
 
-Дискография
-"Down Of Forever" 2003, Metal
+AOR/Melodic Hard rock
+
+## Дискография
+
+### "Down Of Forever" 2003, Metal
+
+01. Living In Extremes 4:49 
+02. I Remember 3:34 
+03. Surrender 3:33 
+04. Coast To Coast 4:24 
+05. You're On The Run 5:00 
+06. We Entertain Ya 4:24 
+07. Materiel World 3:08 
+08. Shot Down 4:41 
+09. I Am What I Am 3:24 
+10. The Beast 4:55 
+11. Long Way Home 5:11 
+
 
 ## Отношения с другими группами
 

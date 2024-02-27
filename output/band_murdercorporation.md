@@ -1,14 +1,95 @@
 # Murder Corporation
 
-Дискография
-"Blood Revolution 2050 (mini-CD)" 1996, Death Metal
-"Murder Corporation" 1997, Death Metal
-"Kill! (mini-CD)" 1997, Death Metal
-"Retract the Hostile - 7" Single" 1998, Death Metal
-"Split With Grind Buto: Santa Is Satan" 2000, Death Metal
-"Whole Lotta Murder Goin On (collection)" 2000, Death Metal
-"Split With Vomitory - 7" Single" 2000, Death Metal
-"Tagged & Bagged" 2001, Death Metal
+Total Meat Death from Sweden
+
+## Дискография
+
+### "Blood Revolution 2050 (mini-CD)" 1996, Death Metal
+
+1. Bulls Eye Eight in the Head
+2. Cyber Genocide
+3. Blood Revolution 2050
+4. Point Blank Range
+5. I am in Hell
+
+
+Line-Up:
+
+Dan Bengtsson - Bass
+Jens Johansson - Vocals
+Johan Axelsson - Guitar
+Rikard Wermen - Drums
+
+### "Murder Corporation" 1997, Death Metal
+
+01. Chaos Killed the World /2:19
+02. Out of Bullets /2:25
+03. Point Black Range /2:37
+04. Squeeze the Trigger /2:59
+05. Colombian Necktie /3:07
+06. Black Money /3:05
+07. Held in Bondage /2:30
+08. Self Teached Judges /2:36
+09. 9 Mm Lobotomy /2:52
+10. Brand New Scapegoats /4:12
+11. Creating Something I Despise /2:11
+12. Re-Lease the Prisoners /6:66
+
+
+MURDER CORPORATION AIN'T NEVER
+GOING TO HANG AROUND THE WOODS!
+
+Contact Murder Corp. at:
+R. Wermen &Auml;ngav&auml;gen 2 245 62 Hj&auml;rup Sweden
+"Whenever possible, send along a few IRC's! Thanks!"
+Electronic Hate Mail: forcefeed@hotmail.com
+
+Recorded 3-5/10 '97 at Berno Studio
+Mixed 24-26/10 '97 at Berno Studio
+Engineered, Mixed and Co-Produced by Henrik Larsson
+Produced by Mur-Der Corporation
+
+Photographs/Layout: Lars Hejll
+
+REGAIN RECORDS:
+P.O. Box 12026, SE-245 02 Hj&auml;rup, Sweden
+Fax: +46 40 422777, E-mail: regain@telia.com
+
+&copy; 1997 Regain Records
+
+### "Kill! (mini-CD)" 1997, Death Metal
+
+1. Violated (Only Rage Remains)
+2. 9 Mm Lobotomy
+3. Squeeze the Trigger
+4. ...Nameless
+5. Die Laughing
+6. Dog Heaven
+
+### "Retract the Hostile - 7" Single" 1998, Death Metal
+
+1. Retract the Hostile
+2. Forced Into Regression
+
+Info:
+Only available on 7 inch vinyl. Limited edition to 500 copies in brown vinyl.
+
+### "Split With Grind Buto: Santa Is Satan" 2000, Death Metal
+
+
+
+### "Whole Lotta Murder Goin On (collection)" 2000, Death Metal
+
+
+
+### "Split With Vomitory - 7" Single" 2000, Death Metal
+
+
+
+### "Tagged & Bagged" 2001, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,10 +1,65 @@
 # Sorcery
 
-Дискография
-"Bloodchilling Tales" 1991, Death Metal
-"Arrival At Six" 2013, Death Metal
-"Legacy Of Blood (Compilation)" 2013, Death Metal
-"Garden Of Bones" 2016, Death Metal
+Sweden Satanic Death Metal
+
+## Дискография
+
+### "Bloodchilling Tales" 1991, Death Metal
+
+01. Bloodchilling Tales
+02. Legacy Of Blood
+03. The Rite Of Sacrifice
+04. Death
+05. Dragons Of The Burning Twilight
+06. Rivers Of The Dead
+07. Immortality Given
+08. Descend To The Ashes
+09. Lucifer's Legions
+10. By These Words
+
+(p)&(c) 1991 U.G.R. 03 UNDERGROUND Records
+
+
+### "Arrival At Six" 2013, Death Metal
+
+01. We Who Walk Among The Dead
+02. Created From Darkness And Rage
+03. Master Of The Chains
+04. United Satanic Alliance
+05. Arrival At Six
+06. Warbringer
+07. Maculated Life
+08. Beyond The Wall
+09. Reborn Through Hate
+
+### "Legacy Of Blood (Compilation)" 2013, Death Metal
+
+01. Intro - Bloodchilling Tales
+02. Legacy Of Blood
+03. The Rite Of Sacrifice
+04. Death
+05. Dragons Of The Burning Twilight
+06. Rivers Of The Dead
+07. Immortality Given
+08. Descend To The Ashes
+09. Lucifer's Legions
+10. By These Words
+11. Rivers Of The Dead
+12. The Rite Of Sacrifice
+
+### "Garden Of Bones" 2016, Death Metal
+
+1. Holy Ground	05:17	 
+2. The New Armageddon	05:13	 
+3. Insanity Arise	03:59	 
+4. Dark Waves	05:29	 
+5. Hellstorm	05:16	 
+6. Cleansed by Fire	06:21	 
+7. Mass Murder	03:47	 
+8. The Creator	04:50	 
+9. Black Wings	03:30	 
+10. Garden of Bones	07:27	
+
 
 ## Отношения с другими группами
 

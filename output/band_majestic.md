@@ -1,7 +1,13 @@
 # Majestic
 
-Дискография
-"Abstract Symphony" 1999, Heavy Metal
+power a-la Stratovarius
+
+## Дискография
+
+### "Abstract Symphony" 1999, Heavy Metal
+
+
+
 
 ## Отношения с другими группами
 

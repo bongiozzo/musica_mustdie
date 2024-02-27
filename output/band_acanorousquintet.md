@@ -1,9 +1,74 @@
 # A Canorous Quintet
 
-Дискография
-"As Tears" 1995, Melodic Death Metal
-"Silence Of The World Beyond" 1996, Melodic Death Metal
-"The Only Pure Hate" 1998, Melodic Death Metal
+
+
+## Дискография
+
+### "As Tears" 1995, Melodic Death Metal
+
+1. Through Endless Illusions
+2. The Joy Of Sorrow
+3. When Happiness Dies
+4. Strangeland
+
+All Songs Written By A CONOROUS QUINTET.
+Produced & Mixed By Dan Swano.
+Recorded & Mixed At Unisound Studios.
+
+Linus Nirbrant - Guitar
+Jesper Lofgren - Bass
+Fredrik Andersson - Drums
+Leo Pignon - Guitar
+Marten Hansen - Vocals
+
+(P)&(C) 1995 CHAOS Records
+
+### "Silence Of The World Beyond" 1996, Melodic Death Metal
+
+1. Silence Of The World Beyond
+2. Naked With Open Eyes
+3. Spellbound
+4. The Orchid's Sleep
+5. The Black Spiral
+6. The Last Journey
+7. In The Twilight Of Fear
+8. Burning, Emotionless
+9. Dream Reality
+
+All Songs Written By A CANOROUS QUINTET.
+Produced & Mixed By Peter Tagtgren & A CANOROUS QUINTET.
+Recorded & Mixed At Abyss Studio.
+Cover Artwork By Tommy Wihistrand.
+
+Linus Nirbrant - Guitar
+Jesper Lofgren - Bass
+Fredrik Andersson - Drums, Keyboards
+Leo Pignon - Guitar
+Marten Hansen - Vocals
+
+(P)(C) 1996 NO FASHON Records
+
+### "The Only Pure Hate" 1998, Melodic Death Metal
+
+01. Selfdeceiver 
+02. Embryo Of Lies 
+03. Red
+04. The Void 
+05. Everbleed 
+06. The Complete Emptiness 
+07. Retaliation
+08. Realm Of Rain
+09. The Storm 
+10. Land Of The Lost
+
+Linus Nirbrant - Guitars
+Leo Pignon - Guitars
+Fredrik Andersson - Drums
+Jesper Lofgren - Bass
+Marten Hansen - Vocals
+
+No Fashion Records
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,36 @@
 # No Souls Lost
 
-Дискография
-"Eulogy of Genocide" 2006, Death Metal
-"Hostis Humani Generis" 2008, Death Metal
+
+
+## Дискография
+
+### "Eulogy of Genocide" 2006, Death Metal
+
+1.	 Endtro	00:57	 
+2.	 Eulogy Of Genocide	03:37	 
+3.	 Hateful Obstruction	04:13
+4.	 Captions Of The Past	04:04	 
+5.	 Darkness Owns You	03:59	 
+6.	 Desolate Faith	03:30	 
+7.	 Bleeding Of Vanity	03:30	 
+8.	 Paradise Falls	03:34	 
+9.	 Spheres Of Madness (Decapitated cover)	04:22
+
+### "Hostis Humani Generis" 2008, Death Metal
+
+1.	 Hostis Humani Generis	01:28	  instrumental
+2.	 Greater Pestilence	02:52	 
+3.	 Dracolich	03:38	 
+4.	 Metaphysics of Murder	04:49	 
+5.	 793	03:50	 
+6.	 The Plane of Crossing	02:01	  instrumental
+7.	 Enuma Elish	07:20	 
+8.	 Catatonic Death Trance	03:39	 
+9.	 Solstice	04:29	 
+10.	 Impure Empire	03:47	 
+11.	 Descent Into Madness	01:02	  instrumental
+12.	 Heartwork (Carcass Cover)	04:39
+
 
 ## Отношения с другими группами
 

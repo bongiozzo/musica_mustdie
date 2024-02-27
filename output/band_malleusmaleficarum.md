@@ -1,7 +1,17 @@
 # Malleus Maleficarum
 
-Дискография
-"Zarach' Baal' Tharagh" 2001, Black Metal
+black-metal
+
+## Дискография
+
+### "Zarach' Baal' Tharagh" 2001, Black Metal
+
+The Funeral Worship
+Vici
+Zarach' Baal' Tharagh
+Necrophilia
+Lord Of War
+
 
 ## Отношения с другими группами
 

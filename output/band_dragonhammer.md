@@ -1,7 +1,21 @@
 # Dragonhammer
 
-Дискография
-"Time For Expiation" 2004, Power Metal
+Melodic Power Metal
+
+## Дискография
+
+### "Time For Expiation" 2004, Power Metal
+
+1. Intro
+2. Eternal Sinner
+3. Believe
+4. Fear Of A Child
+5. The Pages I Never Wrote
+6. Free Land
+7. Blind Justice
+8. YMD
+9. Time For Expiation
+
 
 ## Отношения с другими группами
 

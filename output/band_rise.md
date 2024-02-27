@@ -1,7 +1,28 @@
 # Rise
 
-Дискография
-"Life Into Ever Black" 1996, Death Doom
+
+
+## Дискография
+
+### "Life Into Ever Black" 1996, Death Doom
+
+1. Life Into Ever Black
+2. Deathrow
+3. Storm Of Sorrow
+4. Captured In A Dream
+
+Produced & Engineered By RISE & Larry Melero.
+Recorded & Mixed At Urban Studios.
+Cover Artwork By Will Lee.
+
+Rick Hansen - Guitars
+John Cardenas - Bass
+Rob Alaniz - Drums
+Albert Gonzales - Guitars
+Istvan Lendvay - Vocals
+
+(P)(C) 1996 RISE Records / Wild Records // WRR064
+
 
 ## Отношения с другими группами
 

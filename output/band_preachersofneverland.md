@@ -1,7 +1,32 @@
 # Preachers Of Neverland
 
-Дискография
-"The Artificial Paradise" 1996, Gothic
+
+
+## Дискография
+
+### "The Artificial Paradise" 1996, Gothic
+
+1. The Stratagem (Of Taciturn)
+2. Enbalmada (The Trip)
+3. Autoskopia
+4. Damned If They Do...
+5. Thespians
+6. Charger
+7. Cyanide Euphoria
+8. Peepshow, Creepshow
+9. Metamorphine
+
+All Songs Written By PREACHERS OF NEVERLAND.
+Produced By PREACHERS OF NEVERLAND. 
+Recorded & Mixed At H.W. Studio By Rob Wiktorzon.
+
+N.Vincent - Vocals, Guitars
+C.Deerman - Bass, Samples
+P.Ashman - Guitars
+A.Swans - Guitars
+
+(P)&(C) 1996 PREACHERS Records
+
 
 ## Отношения с другими группами
 

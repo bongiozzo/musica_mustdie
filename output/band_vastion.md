@@ -1,7 +1,22 @@
 # Vastion
 
-Дискография
-"Closed Eyes To Nothing" 2000, Death Metal
+
+
+## Дискография
+
+### "Closed Eyes To Nothing" 2000, Death Metal
+
+1. Closed Eyes To Nothing
+2. Cease To Exist
+3. Passage Of Pain
+4. Buried And Nameless
+5. Murder Is Not Enough
+6. Horrid Sights
+7. Ensuring Your Death
+8. To Die Alone
+9. Who Lives Who Dies
+10. Cold Stares Of The Dead
+
 
 ## Отношения с другими группами
 

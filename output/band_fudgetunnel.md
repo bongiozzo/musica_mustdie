@@ -1,8 +1,48 @@
 # Fudge Tunnel
 
-Дискография
-"Hate Songs In E Minor" 1991, Metal
-"The Complicated Futility Of Ignorance" 1994, Metal
+
+
+## Дискография
+
+### "Hate Songs In E Minor" 1991, Metal
+
+1. Hate Song
+2. Bed Crumbs
+3. Spanish Fly
+4. Kitchen Belt
+5. Hate Song (Version)
+6. Boston Baby
+7. Gut-Rot
+8. Soap And Water
+9. Tweezers
+10. Sunshine Of Your Love
+
+Produced By Colin Richardson.
+Recroded & Mixed At Sawmills Studio,Cornwall.
+
+(p)&(c) 1991 EARACHE Records
+
+### "The Complicated Futility Of Ignorance" 1994, Metal
+
+1. Random Acts Of Cruelty
+2. The Joy Of Irony
+3. Backed Down
+4. Cover Up
+5. Six Eight
+6. Long Day
+7. Excuse
+8. Find Your Fortune
+9. Suffering Makes
+10. Great Stories
+11. Circle Of Friends, Circle Of Trends
+12. Rudge With AG
+
+All Songs By FUDGE TUNNEL, Except * By Neil Fallon
+Produced By Alex Newport
+Engineered By John Cornfield & Dave Buchanan
+
+(p)&(c) 1994 EARACHE Records
+
 
 ## Отношения с другими группами
 

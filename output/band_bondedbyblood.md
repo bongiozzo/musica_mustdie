@@ -1,9 +1,31 @@
 # Bonded By Blood
 
-Дискография
-"Extinguish The Weak (EP)" 2007, Thrash
-"Feed The Beast" 2008, Thrash
-"Exiled To Earth" 2010, Thrash
+US thrash-metal
+
+## Дискография
+
+### "Extinguish The Weak (EP)" 2007, Thrash
+
+
+
+### "Feed The Beast" 2008, Thrash
+
+
+
+### "Exiled To Earth" 2010, Thrash
+
+01. 600 AB (After the Bomb)
+02. Episodes of Aggression
+03. Prototype: Death Machine
+04. Prison Planet
+05. Genetic Encryption
+06. Blood Spilled Offerings
+07. Exiled to Earth
+08. Parasitic Infection
+09. Desolate Future
+10. Sector 87
+11. Cross-Insemination
+
 
 ## Отношения с другими группами
 

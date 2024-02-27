@@ -1,7 +1,31 @@
 # Burialmound
 
-Дискография
-"Black Death" 2001, Death Metal
+(Blackness Death Metal from Finland)
+
+## Дискография
+
+### "Black Death" 2001, Death Metal
+
+1. Legion (Intro)
+2. Black Death
+3. Devilspawn
+4. Black Goat of the woods
+5. Dust of Necropolis
+6. Funeral Night and the Immortal Evil
+7. Hellbounded Infernal Ones
+8. Elohim
+9. Beast Among Us
+10. Hunger Crawls Under Surface
+11. The Grim (Black Death pt. II)
+
+Total running time: 44:25
+Released through Sound Riot Records 2001
+Recorded at Watercastle studios during 6th-14th January 2001
+
+Lineup: Raven - Vocals
+A. Sддksniemi - Guitars
+B. Niininen - Drums, Bass, Guitars 
+
 
 ## Отношения с другими группами
 

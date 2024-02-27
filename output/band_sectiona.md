@@ -1,8 +1,31 @@
 # Section A
 
-Дискография
-"The Seventh Sign" 2003, Hard Rock
-"Parallel Lines" 2006, Progressive
+prog metal
+
+## Дискография
+
+### "The Seventh Sign" 2003, Hard Rock
+
+The Seventh Sign 
+Riot 
+Pray For Rain 
+Nightmare 
+Tomorrow 
+The Man In The Mirror 
+Killing Fields 
+Into The Fire
+
+### "Parallel Lines" 2006, Progressive
+
+1. Hunted
+2. The Gift
+3. Awakening
+4. Dark Alliance
+5. Moment Of Truth
+6. Hoping For A Miracle
+7. Changing The Past
+8. Beginning Of The End
+
 
 ## Отношения с другими группами
 

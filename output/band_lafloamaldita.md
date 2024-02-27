@@ -1,9 +1,60 @@
 # La Floa Maldita
 
-Дискография
-"Dedication! Separation?" 1996, Gothic
-"Sorciere" 1996, Gothic
-"L'Oasis" 1997, Gothic
+
+
+## Дискография
+
+### "Dedication! Separation?" 1996, Gothic
+
+1. Your Indecision (6.32)
+2. Sorciere (5.00)
+3. Force Motrice (5.11)
+4. La Fin (4.55)
+5. Last Call (2.00)
+6. Daydreamer (5.16)
+7. Such Is Life (4.35)
+8. No Destination (5.19)
+9. Dedication! Separation! (5.56)
+
+All songs written by LA FLOA MALDITA.
+
+LA FLOA MALDITA is Guido Lefric and Rhea (Friederike Sattler)
+Backing Vocals on "Daydreamer" by Alexandra Balk.
+
+(p)c 1996 KODEX Records
+
+### "Sorciere" 1996, Gothic
+
+1. Sorciere (5.00)
+2. Pas De Confiance (4.27)
+3. March'O'Zero (3.02)
+4. C'est Normal (3.45)
+5. Sorciere (DAS ICH Remix) (4.46)
+
+All songs written by LA FLOA MALDITA
+
+LA FLOA MAI.DITA is Guido Lefric and Rhea (Friedeiike Sattler)
+
+(p)c 1996 KODEX Records
+
+### "L'Oasis" 1997, Gothic
+
+1. L'Oasis (Radio Version)
+2, Moonstruck
+3. The Strongest Man
+4. L'Oasis (Reconstructed By HAUJOBB)
+5. Day Dreamer (Beyond)
+6. Break Now (Animated By OOMPH!)
+7. L'Oasis (Night)
+
+All songs written by LA FLOA MALDITA.
+
+LA FLOA MALDITA is 
+Guido LeFric - Music, Guitars, Keys
+Rhea - Lyrics, Vocals
+
+(p)c 1997 CANDYLAND Records
+
 
 ## Отношения с другими группами
 

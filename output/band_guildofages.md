@@ -1,9 +1,54 @@
 # Guild Of Ages
 
-Дискография
-"One" 1998, Hard Rock
-"Vox Dominatas" 1999, Hard Rock
-"Citadel" 2001, Hard Rock
+melodic hard rock. Ex-CITA
+
+## Дискография
+
+### "One" 1998, Hard Rock
+
+Into The Night 
+Live To Fight 
+Will I Surrender 
+River Of Desire 
+I Believe 
+Walk The Line 
+Something Inside 
+Heaven Is Waiting 
+Looking For Love
+On The Wire
+Angels
+
+### "Vox Dominatas" 1999, Hard Rock
+
+Let It Go 
+Change (Hey You) 
+Bring The Revolution On 
+Save Me Tonight 
+Jump In The Fire 
+Wish That I Was There 
+Set Me Free 
+When You Run Away 
+Waiting For The Dawn 
+Hungry Like The Wolf
+
+### "Citadel" 2001, Hard Rock
+
+1. Wicked Game 
+2. Losing My Religion 
+3. From Now On 
+4. Until The End 
+5. This Could Be You 
+6. Reaching Out 
+7. That's Why 
+8. How Many Times 
+9. Feeding The Fire 
+10. How Can I Just Say 
+
+Danny Martinez (lead vocals, guitar) 
+Anthony Trujillo (guitar, backing vocals) 
+James Lostetter (bass) 
+Steve Stuntz (drums. backing vocals)
+
 
 ## Отношения с другими группами
 

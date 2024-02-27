@@ -1,9 +1,49 @@
 # Vesania
 
-Дискография
-"Firefrost Arcanum" 2003, Black Metal
-"God The Lux" 2005, Black Metal
-"Distractive Killusions" 2007, Black Metal
+black-metal from Poland
+
+## Дискография
+
+### "Firefrost Arcanum" 2003, Black Metal
+
+Mystherion. Crystaleyes 
+Introit Algor 
+Nova Persei 
+Algorfocus Nefas 
+Marduke`s Mazemerising 
+Monnthrone. Dawn Broken 
+Introit Focus 
+Daemoonion Act II 
+Introit Nefas 
+Dukedoom Black
+
+### "God The Lux" 2005, Black Metal
+
+1. path I rest in pain 05:31 
+2. path II posthuman kind 03:37 
+3. path III lumen clamosum 01:54  
+4. path IV god the lux 04:00 
+5. path V synchroscheme 05:21 
+6. path VI phosphorror 03:45  
+7. path VII lumen funescum 01:31  
+8. path VIII the mystory 04:54 
+9. path IX fireclipse 05:36 
+10. path X lumen coruscum 00:30  
+11. path XI legions are me 03:25 
+12. path XII inlustra nigror 25:58
+
+### "Distractive Killusions" 2007, Black Metal
+
+1.	 Narrenschyff
+2.	 The Dawnfall (Hamartia and Hybris)
+3.	 Infinity Horizon
+4.	 Rage of Reason
+5.	 Of Bitterness and Clarity
+6.	 Silence Makes Noise (Eternity - The Mood)
+7.	 Hell is for Children
+8.	 Aesthesis
+9.	 Distractive Cryscendo
+
 
 ## Отношения с другими группами
 

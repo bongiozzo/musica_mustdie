@@ -1,15 +1,183 @@
 # Haunted, The
 
-Дискография
-"Haunted" 1998, Thrash
-"The Haunted Made Me Do It" 2000, Thrash
-"Live Rounds In Tokyo" 2001, Thrash
-"One Kill Wonder" 2003, Thrash
-"rEVOLVEr" 2004, Thrash
-"The Dead Eye" 2006, Thrash
-"Versus" 2008, Thrash
-"Unseen" 2011, Metalcore
-"Eye of the Storm (EP)" 2014, Thrash
+Swedish Thrash-Death Metal
+
+## Дискография
+
+### "Haunted" 1998, Thrash
+
+01. Hate Song 
+02. Chasm
+03. In Vein
+04. Undead
+05. Chokehold
+06. Three Times
+07. Bullet Hole
+08. Now You Know
+09. Shattered
+10. Soul Fracture
+11. Bloodrust
+12. Forensick
+
+Recorded and mixed in Studio Fredman, G&ouml;teborg, Sweden nov - dec 1997.
+Released in june 1998.
+Engineered by Fredrik Nordstr
+Produced by The Haunted and Fredrik Nordstr
+Mixed by Fredrik Nordstr
+
+
+### "The Haunted Made Me Do It" 2000, Thrash
+
+01. Dark Intensions
+02. Bury Your Dead
+03. Trespass
+04. Leech
+05. Hollow Ground
+06. Revelation
+07. The World Burns
+08. Human Debris
+09. Silencer
+10. Under the Surface
+11. Victim Iced
+
+
+Release October 27, 2000.
+Recorded at Berno Studio, Malm&ouml;, Sweden between Dec. 1999 - Feb. 2000
+Engineered by Berno Paulsson.
+Assistant Engineering by Henrik Larsson
+Produced by berno Paulsson & The Haunted
+
+Mixed by Berno Paulsson, Anders Bj&ouml;rler & Per M Jensen in March 2000 at Berno Studio.
+All arrangements by The Haunted.
+Mastered by G&ouml;ran Finnberg at The Mastering Room.
+
+
+### "Live Rounds In Tokyo" 2001, Thrash
+
+01. Intro 
+02. Dark Intentions 
+03. Bury Your dead 
+04. Chasm 
+05. Trespass 
+06. Shattered 
+07. Hollow Ground 
+08. Chokehold 
+09. Leech
+10. In Vein
+11. Revelation 
+12. Bullethole
+13. Silencer 
+14. Three times 
+15. Undead
+16. Hate Song
+(+ Bonus studio track "Eclipse") 
+
+European release: December 10, 2001
+U.S release: TBC
+Recorded at Akasaka Blitz, Tokyo, Japan 16:th November 2000
+
+
+### "One Kill Wonder" 2003, Thrash
+
+1. Privation Of Faith Inc. (intro) 
+2. Godpuppet 
+3. Shadow World 
+4. Everlasting 
+5. D.O.A. 
+6. Demon Eyes 
+7. Urban Predator 
+8. Downward Spiral 
+9. Shithead 
+10. Bloodletting 
+11. One Kill Wonder 
+
+### "rEVOLVEr" 2004, Thrash
+
+1. No Compromise 
+2. 99 
+3. Abysmal 
+4. Sabotage 
+5. All Against All 
+6. Sweet Relief 
+7. Burnt To A Shell 
+8. Who Will Decide 
+9. Nothing Right 
+10. Liquid Burns 
+11. My Shadow 
+
+Line-Up: 
+Peter Dolving – Vocals/Sеng 
+Anders Bjцrler – Guitar/Gitarr 
+Jonas Bjцrler – Bass/Bas 
+Jensen – Guitar/Gitarr 
+Per Mцller Jensen – Drums/Trummor
+
+### "The Dead Eye" 2006, Thrash
+
+1. The Premonition 00:58  
+2. The Flood 04:07  
+3. The Medication 03:10  
+4. The Crowning 04:13  
+5. The Reflection 03:47  
+6. The Prosecution 03:50  
+7. The Fallout 04:22  
+8. The Medusa 04:05  
+9. The Shifter 02:55  
+10. The Cynic 03:48  
+11. The Failure 05:10  
+12. The Stain 04:14  
+13. The Guilt Trip 10:17
+
+### "Versus" 2008, Thrash
+
+01. Moronic Colossus
+02. Pieces
+03. Little Cage
+04. Trenches
+05. Ceremony
+06. Skuld
+07. Crusher
+08. Rivers Run
+09. Iron Mask
+10. Faultline
+11. Imperial Death March
+
+### "Unseen" 2011, Metalcore
+
+1. Never Better 03:34  
+2. No Ghost 03:34  
+3. Catch 22 03:44  
+4. Disappear 03:50  
+5. Motionless 04:25  
+6. Unseen 03:02  
+7. The Skull 04:04  
+8. Ocean Park 00:49  
+9. The City 03:08  
+10. Them 04:06  
+11. All Ends Well 04:16  
+12. Done 03:49 
+
+
+Limited Edition Bonus Tracks:
+13. Attention (3:52)
+14. The Reflection (Live) (3:46)
+15. The Fallout (Live) (4:06) 
+
+### "Eye of the Storm (EP)" 2014, Thrash
+
+1. Eye of the Storm  03:46    
+2. Infiltrator  03:31    
+3. My Enemy  00:59   
+
+Jonas Bjцrler - Bass  
+Adrian Erlandsson - Drums  
+Patrik Jensen - Guitars  
+Marco Aro - Vocals  
+Ola Englund - Guitars  
+
+
+Features 3 brand new songs, and marks the comeback of former vocalist Marco Aro.
+
 
 ## Отношения с другими группами
 

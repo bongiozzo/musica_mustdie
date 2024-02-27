@@ -1,7 +1,25 @@
 # Mechanix
 
-Дискография
-"Mechanix" 2008, Thrash
+
+
+## Дискография
+
+### "Mechanix" 2008, Thrash
+
+1. Break Up The Wall 
+2. Overtake 
+3. Disclose The Secret 
+4. Outstrip The Wind 
+5. Last Price 
+6. Undamaged Seed 
+7. Reason To Exist 
+8. Feel The Pain
+
+Dmitry Volkov - guitar, vocals
+Dmitry Rodionov - guitar
+Nikolay Novikov - bass
+Nikita Kotov - drums
+
 
 ## Отношения с другими группами
 

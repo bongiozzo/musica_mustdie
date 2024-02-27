@@ -1,9 +1,51 @@
 # Burden of Grief
 
-Дискография
-"Haunting Requiems" 2000, Melodic Death Metal
-"On Darker Trails" 2001, Melodic Death Metal
-"Death End Road" 2007, Thrash
+fast melodic death metal
+
+## Дискография
+
+### "Haunting Requiems" 2000, Melodic Death Metal
+
+1. Smashed to pieces 
+2. Paradox reality
+3. Deliverance 
+4. Eternal solar eclipse
+5. A duet of thoughts  
+6. Prowler (Iron Maiden - Cover)
+7. My beauty’s embrace
+8. In the name of my blood
+9. Days of anguish                  
+10. Immense infinity
+11. Gedankenwelt
+
+
+### "On Darker Trails" 2001, Melodic Death Metal
+
+1. On Darker Trails (Intro)
+ 2. Cold fire
+3. Demonized 
+4. Reborn
+5. Another sphere of life
+6. Stigmata
+7. Frozen pain
+8. Under burning skies 
+9. Master of puppets (Metallica - Cover)
+
+### "Death End Road" 2007, Thrash
+
+1. Death End Road (instrumental)
+2. Vita Reducta
+3. Swallow The Sun
+4. The Game
+5. Running Scared
+6. The Killer In Me
+7. Drown In Sorrow
+8. Schizophrenic
+9. Passion Of The Night
+10. Road Of Visions
+11. Smashed To Pieces '07 (bonus track)
+12. Immense Infinity '07 (bonus track)
+
 
 ## Отношения с другими группами
 

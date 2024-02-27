@@ -1,10 +1,54 @@
 # Swordmaster
 
-Дискография
-"Wraths Of Time" 1996, Melodic Death Metal
-"Postemortem Tales" 1997, Melodic Death Metal
-"Deathrider" 1998, Melodic Death Metal
-"Moribund Transgoria" 1999, Melodic Death Metal
+
+
+## Дискография
+
+### "Wraths Of Time" 1996, Melodic Death Metal
+
+1.  Wrath Of Time
+2.  Upon Blood And Ashes:
+3.  Conspiracy - Preview
+
+Whiplasher - Vocals
+Inferno - Drums
+Night - Guitars
+Thunder - Bass
+
+(P)c 1996 FULLMOON Productions
+
+### "Postemortem Tales" 1997, Melodic Death Metal
+
+01. Intro 
+02. The Masters Possession 
+03. Crush to Dust 
+04. Postmortem Tales 
+05. Past Redemption 
+06. Claws of Death 
+07. Blood Legacy 
+08. The Serpent Season 
+09. Metallic Devastation 
+10. Black Ace
+
+### "Deathrider" 1998, Melodic Death Metal
+
+01. Deathraider 2000 
+02. Firefall of the Fireball 
+03. Necronaut Psychout 
+04. Iron Corpse 
+05. Stand for the Fire Demon
+
+### "Moribund Transgoria" 1999, Melodic Death Metal
+
+01. Deathspawn of the Eibound 
+02. Towards Erotomech Eve 
+03. The Angels and the Masters 
+04. Metalmorphosis - The Sweat of Cain 
+05. Sulphur Skelethrones 
+06. Moribund Transgoria 
+07. Doom at Motordome 
+08. The Grotesque Extravaganza
+
 
 ## Отношения с другими группами
 

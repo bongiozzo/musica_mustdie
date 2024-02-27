@@ -1,7 +1,31 @@
 # Dominion Caligula
 
-Дискография
-"A New Era Rises" 2000, Black Metal
+melodic atmospheric metal
+
+## Дискография
+
+### "A New Era Rises" 2000, Black Metal
+
+1. A New Era Rises
+2. Dominion
+3. Praise Thy Victorious
+4. In Love with the Gods
+5. Let them Hate Me
+6. Drink the Royal Seed (Fellatio Me Scrotum)
+7. Let me Become
+8. Cold Black
+
+
+
+Lars Johansson - guitars
+Matti Mдkelд - guitars
+Joamim Widfдldt - bass
+Masse Broberg - vocals
+Robert Lundin - drums
+
+
+
+
 
 ## Отношения с другими группами
 

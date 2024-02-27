@@ -1,7 +1,13 @@
 # Vaginal Carnage
 
-Дискография
-"Dildo Detention" 2002, Deathcore
+
+
+## Дискография
+
+### "Dildo Detention" 2002, Deathcore
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,21 +1,282 @@
 # Grave
 
-Дискография
-"Into The Grave" 1991, Death Metal
-"You'll Never See" 1992, Death Metal
-"...And Here I Die ... Satisfield" 1994, Death Metal
-"Soulless" 1994, Death Metal
-"Hating Life" 1996, Death Metal
-"Extremely Rotten Live" 1997, Death Metal
-"Back From The Grave" 2002, Death Metal
-"Fiendish Regression" 2004, Death Metal
-"As Rapture Comes" 2006, Death Metal
-"Enraptured (DVD)" 2006, Death Metal
-"Dominion VIII" 2008, Death Metal
-"Burial Ground" 2010, Death Metal
-"Endless Procession Of Souls" 2012, Death Metal
-"Morbid Ascent (EP)" 2013, Death Metal
-"Out Of Respect For The Dead" 2015, Death Metal
+Sweden Death Metal
+
+## Дискография
+
+### "Into The Grave" 1991, Death Metal
+
+1. Deformed
+2. In Love
+3. For Your God
+4. Obscure Infinity
+5. Hating Life
+6. Into The Grave
+7. Extremely Rotten Flesh
+8. Haunted
+9. Day Of Mourning
+10.Inhuman
+11.Banished To Live
+
+ Jorgen - Vocals & Guitar
+ Jense - Drums
+ Ola - Guitar & Back Vocals
+ Jonas - Bass
+
+Produced & Mixed By Thomas Skogsberg & GRAVE.
+
+(p)&(c) 1991 CENTURY MEDIA Records
+
+### "You'll Never See" 1992, Death Metal
+
+1. You`ll Never  See
+2. Now And Forever
+3. Morbid Way To Die
+4. Obsessed
+5. Grief
+6. Severing Flesh
+7. Brutally Deceased
+8. Christi(ns)anity
+
+ Jorgen Sandstrom - Vocals,Bass & Guitar
+ Jensa Paulsson - Drums & Keyboard
+ Ola Lindgren - Guitar & Back Vocals
+
+Produced By Thomas Skogsberg .
+Recorded & Mixed At Sunlight Studios, June 1992.
+By Thomas Skogsberg.
+Executive Producer: R.Kampf.
+
+(p)&(c) 1992 CENTURY MEDIA Records
+
+### "...And Here I Die ... Satisfield" 1994, Death Metal
+
+1. ...And  Here I Die ... Satisfield
+2. I Neeed Yo
+3. Black Dawn*
+4. Tremendous Pain
+5. Day Of Mourning
+6. Inhuman
+
+ Ola - Guitar
+ Jorgen - Bass,vocals
+ Jensa - Drums
+ Jonas - Bass on 4-6
+ Jorgen - second guitar on 4-6
+
+All music & lurics by GRAVE except* by CORPSE
+Tracks 1-3: Produced & engineered by Toben Johansson & GRAVE
+Recorded & mixed at Studio Musiciano,
+Visby 27-29th of July 1993
+Tracks 4-6: Recorded at Nobel Studios,
+Bielefeld Oct '90
+
+(p)(c) 1994 CENTURY MEDIA Records
+
+
+
+### "Soulless" 1994, Death Metal
+
+1. Turning Black
+2. Soulless
+3. I Need You
+4. Bullets Are Mine
+5. Blodshed
+6. Judas
+7. Unknown
+8. And Here I Die
+9. Genocide
+10. Rain
+11. Scars
+
+Ola Lindgren - Guitar
+Jorgen Sandstrom- Bass/Vocals
+Jensa Paulson - Drums
+
+Produced by Tomas Skogsberg
+Assisted by  Fred Estby
+Recorded and Mixed at Sunlight studio 94
+Mastered by Peter in de Broue at Cutting Room
+All Music and Lyrics,written and performed by Grave.
+
+(p)&(c) 1994 CENTURY MEDIA Records
+
+### "Hating Life" 1996, Death Metal
+
+1. Worth The Wait
+2. Restrained
+3. Winternight
+4. Two Of Me
+5. Beauty Within
+6. Lovesong
+7. Sorrowfilled Moon
+8. Harvest Day
+9. Redless
+10. Still Hating Life
+
+All songs written by GRAVE
+Produced by Tomas Skogsberg
+Recorded and mixed at Sunlight Studio
+By Team Sunlight: Tomas, Anders and
+Fred.
+
+Ola Lindgren - Guitars, Bass, Vocals
+Jensa Paulsson - Drums, Vocals
+
+ (p)(c) 1996 CENTURY MEDIA Records
+
+### "Extremely Rotten Live" 1997, Death Metal
+
+- Extremely rotten flesh -
+- Turning black -
+- Restrained -
+- Winternight -
+- Haunted -
+- Two of me -
+- Hating life -
+- Youґll never see -
+- Lovesong -
+- Sorrowfilled moon -
+- Rain -
+- Soulless -
+- And here I die -
+- Into the Grave -
+- Reborn miscarriage -
+
+During two shows on the 1997 US tour the EXTREMELY ROTTEN LIVE was recorded in Corona outside L.A. The tapes were brought back to Sweden and mixed over supervision of Ola and Jensa together with (of course) Thomas Skogsberg. The result was a full lenght live album which contains all of the old GRAVE goodies as well as newer material
+
+### "Back From The Grave" 2002, Death Metal
+
+
+
+### "Fiendish Regression" 2004, Death Metal
+
+01. Last Journey
+02. Reborn
+03. Awakening
+04. Breeder
+05. Trial by Fire
+06. Out of the Light
+07. Inner Voice
+08. Bloodfeast
+09. Heretic
+Bonus Tracks:
+10. Burial At Sea (SAINT VITUS cover)
+11. Autopsied (re-recorded GRAVE classic)
+
+### "As Rapture Comes" 2006, Death Metal
+
+1. Intro - Day Of Reckoning 00:49  
+2. Burn 06:24  
+3. Through Eternity 03:45  
+4. By Demons Bred 04:16  
+5. Living The Dead Behind 06:26  
+6. Unholy Terror 03:44  
+7. Battle Of Eden 03:38  
+8. Epic Obliteration 04:02  
+9. Them Bones (Alice In Chains cover) 02:32  
+10. As Rapture Comes 05:34
+
+### "Enraptured (DVD)" 2006, Death Metal
+
+
+
+### "Dominion VIII" 2008, Death Metal
+
+1. A World In Darkness 05:58
+2. Fallen (Angel Son) 04:56  
+3. Deathstorm 04:33  
+4. Stained By Hate 04:10 
+5. Bloodpath 03:34 
+6. Annihilated Gods 05:12  
+7. Sinners Lust 03:55 
+8. Dark Signs 04:16  
+9. 8th Dominion 07:34 
+
+
+Lineup:
+Ola Lindgren-Guitar, Vocals & Lyrics
+Fredrik Isaksson-Bass
+Ronnie Bergerstahl-Drums
+
+
+''Annihilated Gods'' is a re-recorded song from the ''Sick Disgust Eternal''
+demo from 1988
+
+Guest:
+Co-Lyrics for ''A World in Darkness'': Matti Karki of DismembeR 
+
+### "Burial Ground" 2010, Death Metal
+
+1. Liberation 03:40  
+2. Semblance in Black 04:20  
+3. Dismembered Mind 06:05  
+4. Ridden With Belief 04:06  
+5. Conquerer 04:45  
+6. Outcast 03:40  
+7. Sexual Mutilation 04:02  
+8. Bloodtrail 04:05  
+9. Burial Ground 07:23  
+
+
+ 
+Produced, recorded, mixed and mastered by Ola Lindgren and Ronnie Bergerstеhl at
+Studio Soulless - Stockholm.
+
+Guest appearance guitar lead on "Bloodtrail" by Karl Sanders (Nile).
+Additional lyrics on "Dismembered Mind" by Matti Kдrki (Dismember).
+
+Artwork and layout by Costin Chioreanu, Twillight13 Media  
+
+
+### "Endless Procession Of Souls" 2012, Death Metal
+
+01. Dystopia 00:35 
+02. Amongst Marble and the Dead 05:21 
+03. Disembodied Steps 05:42 
+04. Flesh Epistle 03:23 
+05. Passion of the Weak 04:36 
+06. Winds of Chains 05:37 
+07. Encountering the Divine 03:55 
+08. Perimortem 04:42 
+09. Plague of Nations 03:35 
+10. Epos 07:45
+
+Recorded at Grave's own Studio Soulless.
+ 
+Limited edition box set includes a poster, an embroidered patch and a bonus CD called Covered in Blood:
+ 1. Killing Technology (Voivod cover) (04:48)
+ 2. Efilnikufesin (N.F.L.) (Anthrax cover) (05:21)
+ 3. Mesmerized (Celtic Frost cover) (03:21)
+ 
+Double vinyl version in gatefold sleeve includes the bonus tracks:
+ 1. Killing Technology (Voivod cover)
+ 2. Efilnikufesin (N.F.L.) (Anthrax cover)
+ 3. Mesmerized (Celtic Frost cover)
+ 4. Them Bones (Alice in Chains cover)
+ 5. Burial at Sea (St. Vitus cover)
+ 6. Vermin (Asphyx cover) 
+
+### "Morbid Ascent (EP)" 2013, Death Metal
+
+01. Venial Sin
+02. Morbid Ascent
+03. Possessed (SATYRICON Cover)
+04. Epos (Risen From The Tomb Remix)
+05. Reality Of Life (Re-Recorded Demo Track)
+
+### "Out Of Respect For The Dead" 2015, Death Metal
+
+01. Intro / Mass Grave Mass
+02. Flesh Before My Eyes
+03. Plain Pine Box
+04. Out Of Respect For The Dead
+05. The Ominous "They"
+06. Redeemed Through Hate
+07. Deified
+08. Trail Of Ungodly Trades
+09. Grotesque Glory
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,32 @@
 # Miscreant
 
-Дискография
-"Dreaming Eyes" 1995, Death Metal
+
+
+## Дискография
+
+### "Dreaming Eyes" 1995, Death Metal
+
+1. Ashes
+2. Twilight Shadows
+3. Forever Not To Be
+4. The Colonnade In Light
+5. Horizon Of Dreams
+6. Naked
+7. Without Grace
+
+ Johnny Vranning - Vocals
+ Peter Kim - Lead, Rhythm & Acoustic Guitars
+ Peter Johansson - Lead, Rhythm & Acoustic Guitars
+ Magnus Ek - Bass & Keyboards
+ Johan Burman - Drums & Percussion
+
+All Titles By MISCREANT
+Produced By MISCREANT, Pelle Saether & L. Linden
+Engineered By Pelle Saether
+Recorded & Mixed At Studio Underground, Vasteras, Sweden
+
+(p)&(c) 1995 WRONG AGAIN Records
+
 
 ## Отношения с другими группами
 

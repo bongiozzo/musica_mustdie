@@ -1,7 +1,21 @@
 # Eeriness
 
-Дискография
-"A Life Beyond The Shades Of Time" 2003, Gothic
+Gothic metal
+
+## Дискография
+
+### "A Life Beyond The Shades Of Time" 2003, Gothic
+
+1. November - Thy Weakness
+2. The Unbounded Misfortune
+3. Grotesque Misery
+4. Dead Souls Embrace
+5. Silent Voices
+6. Only The Rain
+7. Lay Down
+8. Graveyard Birds
+9. Sun and Moon Eclips
+
 
 ## Отношения с другими группами
 

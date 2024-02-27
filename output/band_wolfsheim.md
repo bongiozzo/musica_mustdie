@@ -1,22 +1,160 @@
 # Wolfsheim
 
-Дискография
-"The Sparrows and the Nightingales (single)" 1991, Synthpop
-"It's Not Too Late (single)" 1992, Synthpop
-"No Happy View" 1992, Synthpop
-"Thunderheart (single)" 1992, Synthpop
-"Now I Fall (single)" 1993, Synthpop
-"Popkiller" 1993, Synthpop
-"Elias (single)" 1994, Synthpop
-"Hamburg Rom Wolfsheim (live)" 1997, Synthpop
-"It's Hurting for the First Time (single)" 1998, Synthpop
-"Once in a Lifetime (single)" 1998, Synthpop
-"Spectators" 1999, Synthpop
-"Kuenstliche Welten (single)" 1999, Synthpop
-"Sleep somehow (vinyl single)" 1999, Synthpop
-"Casting Shadows" 2003, Synthpop
-"Kein Zurueck (single)" 2003, Synthpop
-"Find You're Here (single)" 2003, Synthpop
+
+
+## Дискография
+
+### "The Sparrows and the Nightingales (single)" 1991, Synthpop
+
+1. The Sparrows and the Nightingales (long version)
+2. Leading men
+3. The Sparrows and the Nightingales (radio edit)
+
+### "It's Not Too Late (single)" 1992, Synthpop
+
+1. It's Not Too Late (Don't Sorrow)
+2. Angry Today
+3. It's Not Too Late (remix 909)
+4. It's Not Too Late (radio edit)
+
+### "No Happy View" 1992, Synthpop
+
+1. ...Can Manage... 
+2. Following You 
+3. Annie 
+4. Leading Men 
+5. It's Not Too Late 
+6. The Sparrows and the Nightingales 
+7. Angry Today 
+8. Kissing the Wall 
+9. This Time
+10. Anybody's Window 
+11. Listen!
+
+### "Thunderheart (single)" 1992, Synthpop
+
+1. A Look into Your Heart
+2. Anybody's Window (remix 909 nr.:2)
+3. Youth And Greed
+
+### "Now I Fall (single)" 1993, Synthpop
+
+1. Now I Fall
+2. Where Greed Talks
+3. For You (instrumental)
+
+### "Popkiller" 1993, Synthpop
+
+1. For You I'm Bleeding 
+2. Tender Days 
+3. Lovesong 
+4. Kaufraush 
+5. Entrophy 
+6. No Happy View 
+7. Now I Fall 
+8. (The Obvious Fact That) Scars Remain (And How To Cope with It) 
+9. Childhood Cruel 
+10. Gates
+11. Auf Ein Wort... 
+12. Faith
+
+### "Elias (single)" 1994, Synthpop
+
+1. Elias
+2. Lovesong (club mix)
+3. Tender Days (indian mix)
+4. Elias (drumless)
+5. Lovesong (short-cut)
+
+### "Hamburg Rom Wolfsheim (live)" 1997, Synthpop
+
+1. Intro (inspired by Anton Dvorak) 
+2. The sparrows and the nightingales 
+3. A look into your heart 
+4. It&#180;s not too late 
+5. Annie 
+6. Kissing the wall 
+7. Now I fall 
+8. For you I&#180;m bleeding 
+9. Elias 
+10. A million Lovesongs
+11. Closer still
+12. Upstairs
+13. Old man&#180;s valley 
+14. A broken whisper 
+15. A new starsystem has been explored 
+16. Leave no deed undone 
+17. Uebers Jahr 
+18. Ruby, don&#180;t take you love to town 
+19. This time
+
+### "It's Hurting for the First Time (single)" 1998, Synthpop
+
+1. It's hurting for the first time
+2. It's hurting for the first time (instrumental)
+3. Real (live)
+
+### "Once in a Lifetime (single)" 1998, Synthpop
+
+1. Once in a lifetime
+2. Heroin, she said
+3. Love is strange
+4. Once in a lifetime (extended)
+
+### "Spectators" 1999, Synthpop
+
+1. It's hurting for the first time 
+2. Kuenstliche Welten 
+3. Touch 
+4. Blind 
+5. Once in  a lifetime 
+6. Sleep somehow 
+7. For you 
+8. Read this lines 
+9. I don&#180;t love you anymore 
+10. Heroin she said
+11. E
+
+### "Kuenstliche Welten (single)" 1999, Synthpop
+
+1. Kuenstliche Welten  (video-radio-edit)
+2. Kuenstliche Welten (Praha-edit performed by the City Philharmonic of Prague) 
+3. Kuenstliche Welten (club edit)
+4. F
+
+### "Sleep somehow (vinyl single)" 1999, Synthpop
+
+1. Sleep somehow (extended mix)
+2. Sleep somehow (instrumental)
+
+### "Casting Shadows" 2003, Synthpop
+
+1. Everyone Who Casts a Shadow 
+2. Care For You 
+3. I Won't Believe 
+4. Kein Zurueck 
+5. And I... 
+6. Underneath the Veil 
+7. Find You're Gone 
+8. This is for Love 
+9. Wundervoll 
+10. Approaching Lightspeed 
+11. in Time
+
+### "Kein Zurueck (single)" 2003, Synthpop
+
+1. Kein Zurueck
+2. And I...
+3. Iou
+4. Kein Zurueck (Oliver Pinelli mix)
+
+### "Find You're Here (single)" 2003, Synthpop
+
+1. Find you're here (Single Edit)
+2. Find you're gone (Single Edit)
+3. Kein Zurueck (live) 
+4. K&#252;nstliche Welten (live)
+
 
 ## Отношения с другими группами
 

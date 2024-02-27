@@ -1,8 +1,73 @@
 # Falchion
 
-Дискография
-"Legacy of Heathens" 2005, Melodic Death Metal
-"Chronicles of the Dead" 2008, Melodic Death Metal
+
+
+## Дискография
+
+### "Legacy of Heathens" 2005, Melodic Death Metal
+
+1. Immortal Heroes 05:34  
+2. The Ancient Tale 04:09 
+3. Folk in the Golden Town 04:16  
+4. Broken Stone 06:22 
+5. Journey in the Woods 06:31 
+6. Swordmaster of the Dragonland 05:01  
+7. The Darkest Valleys of Mist 04:17 
+8. Burning the Gates 07:03
+9. Black Crown 04:50 
+
+
+Line-up:
+Juho Kauppinen: Lead, rhythm & acoustic guitars, vocals
+Seppo Tiaskorpi: Bass
+Teemu Peltonen: Drums
+Jani Laine: Rhythm & melody guitars
+
+All music and lyrics by Juho Kauppinen
+Produced by Juho Kauppinen
+Recorded at Studio Watercastle, Jyvдskylд, Finland June 2004
+Recorded and mixed by Arttu Sarvanne June/July 2004
+Mastered at Studio 57, Alaveteli, Kronoby municipality of Finland October 2004
+Mastered by Timo Lehtimдki
+Cover artwork, design and layout by Timo Tyynismaa.
+
+'Folk In The Golden Town' and 'The Darkest Valleys Of Mist' are re-recorded
+versions of tracks with the same name originally from Falchion's 'Glory Of The
+Sword' demo. 
+
+### "Chronicles of the Dead" 2008, Melodic Death Metal
+
+1. Primitive Again 05:26  
+2. Chronicles of the Dead 05:25  
+3. Shadows in the Wasteland 04:39  
+4. Kingdom of Dust 05:04  
+5. Desert Breeze (Instrumental) 05:25  
+6. Shades of Grey 07:12  
+7. Dying Dreams 06:52  
+8. Mayhem Machine (Instrumental) 02:47  
+9. Evolution in Reverse 04:56 
+
+
+Recorded and mixed at Adamantium Studios, Tampere, Finland in March 2008
+Produced by Falchion and Jukka Ruostila 
+Vocals produced by Jukka Ruostila 
+Assistant producer Jussi Ala-Karvia 
+Mixed by Jukka Ruostila 
+Engineered by Jukka Ruostila and Jussi Ala-Karvia 
+Mastered by Mika Jussila at Finnvox Studios, Helsinki, Finland in March 2008
+Cover artwork, layout and design by Katja Piolka
+Band pictures by Sami Reivinen
+
+All music by Juho Kauppinen 
+All lyrics by Miikka Tulimдki 
+Orchestral arrangements by Tapani Siirtola
+
+Line-up on this recording:
+Juho Kauppinen: vocals and lead guitar
+Miikka Tulimдki: guitar 
+Matti Johansson: drums
+Janne Kielinen: bass 
+
 
 ## Отношения с другими группами
 

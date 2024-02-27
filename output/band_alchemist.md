@@ -1,13 +1,168 @@
 # Alchemist
 
-Дискография
-"Jar of Kingdom" 1993, Alternative
-"Lunasphere" 1995, Alternative
-"Spiritech" 1997, Alternative
-"Organasm" 2000, Alternative
-"Austral Alien" 2003, Alternative
-"Embryonics [compilation]" 2005, Alternative
-"Tripsis" 2007, Alternative
+Progressive Death Metal
+
+## Дискография
+
+### "Jar of Kingdom" 1993, Alternative
+
+1.  Abstraction
+2.  Shell
+3.  Purple
+4.  Jar Of Kingdom
+5.  Wandering And Wandering
+6.  Found
+7.  Enhancing Enigma
+8.  Whale
+9.  Brumal: A View From Pluto
+10.Worlds Within Worlds
+
+ Adam - Voice & Guitar
+ Rodney - Drums
+ John - Bass
+ Roy - Guitar
+
+All Female Vocals By Michelle Klemke.
+All Music & Poetry By ALCHEMIST.
+Produced By ALCHEMIST & Front Bottom.
+Engineered By Brett "Front Bottom" Stanton.
+Recorded At Powerhouse Studios.
+Mixed At Rich Music Studios,Sydney,
+Australia In Feb.1993.
+
+(p)&(c) 1993 LETHAL Records
+
+### "Lunasphere" 1995, Alternative
+
+1. Soul Return
+2. Lunation
+3. Unfocused
+4. Luminous
+5. Clot
+6. Yoni Kunda
+7. My Animated Truth
+8. Garden Of Eroticism
+9. Closed Chapter
+
+All songs written by ALCHEMIST.
+Produced by ALCHEMIST and John
+Hresc.
+Engineered by John Hresc.
+Recorded at Paradise, Powerhouse and
+Sony Studios.
+
+John - Bass
+Adam - Guitars, Vox
+Roy - Guitars
+Rodney - Drums
+
+(p)(c) 1996 SHOCK Records
+
+### "Spiritech" 1997, Alternative
+
+1. Chinese Whispers 09:32  
+2. Road to Ubar 05:39  
+3. Staying Conscious 05:42  
+4. Beyond Genesis 07:19 
+5. Spiritechnology 06:32 
+6. Inertia 05:00  
+7. Hermaphroditis 04:31 
+8. Dancing to Life 06:03
+9. Figments 11:07 
+
+
+Adam Agius - vocals/guitars/keyboards 
+Roy Torkington - guitars 
+John Bray - bass/keyboards/samples 
+Rodney Holder - drums 
+
+
+Recorded by John Hersc at Rocking Horse Studios Byron Bay. 
+Mixed by DW Norton at Backbeach Studios VIC
+
+### "Organasm" 2000, Alternative
+
+1. Austral Spectrum 05:41
+2. The Bio Approach 04:59  
+3. Rampant Micro Life 04:31  
+4. Warring Tribes - Eventual Demise 05:14
+5. Single Sided 05:24 
+6. Surreality 03:32  
+7. New Beginning 05:00 
+8. Tide In, Mind Out 05:30 
+9. Eclectic 05:22  
+10. Escape from the Black Hole 05:29 
+
+
+Adam Agius - vocals/guitars/keyboards 
+Roy Torkington - guitars 
+John Bray - bass/keyboards/samples 
+Rodney Holder - drums
+
+### "Austral Alien" 2003, Alternative
+
+1. First Contact 03:07  
+2. Great Southern Wasteland 04:11  
+3. Solarburn 03:49  
+4. Alpha Capella Nova Vega 04:32  
+5. Older Than the Ancients 04:41 
+6. Backward Journey 04:25  
+7. Nature on a Leash 04:02
+8. Grief Barrier 03:34  
+9. Epsilon 04:06  
+10. Speed of Life 03:34 
+11. Letter to the Future 05:52 
+
+Adam Agius - vocals/guitars/keyboards 
+Roy Torkington - guitars 
+John Bray - bass/keyboards/samples 
+Rodney Holder - drums
+
+### "Embryonics [compilation]" 2005, Alternative
+
+Disc 1 
+1. Chinese Whispers 09:37  
+2. Abstraction 03:37  
+3. Unfocused 06:21  
+4. Enhancing Enigma 05:17  
+5. Dancing to Life 06:03  
+6. Brumal 05:45  
+7. Lunation 03:46  
+8. Staying Conscious 05:42  
+9. Shell 04:03  
+10. Garden of Eroticism 07:24  
+11. Jar of Kingdom 06:16  
+12. Paisley Bieurr 03:51  
+13. Yoni Kunda (live) 06:16  
+14. Closed Chapter (live) 05:02  
+Disc 2 
+1. Eve of the War (Jeff Wayne cover) 05:17  
+2. Beyond Genesis 07:19  
+3. Yoni Kunda 05:11  
+4. Purple 03:42  
+5. Imagination Flower 02:44  
+6. Spiritechnology 06:33  
+7. Soul Return 08:17  
+8. Road to Ubar 05:37  
+9. Found 01:20  
+10. Clot 04:34  
+11. Worlds Within Worlds 07:05  
+12. My Animated Truth 03:35  
+13. Closed Chapter 05:03  
+14. Chinese Whispers (live) 09:29 
+
+### "Tripsis" 2007, Alternative
+
+1. Wrapped in Guilt 04:34  
+2. Tongues and Knives 05:15  
+3. Nothing in No Time 05:50  
+4. Anticipation of a High 04:34  
+5. Grasp the Air 04:36  
+6. CommunicHate 04:26  
+7. Substance for Shadow 04:50  
+8. God Shaped Hole 05:05  
+9. Degenerative Breeding 03:47
+
 
 ## Отношения с другими группами
 

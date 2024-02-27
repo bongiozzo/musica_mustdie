@@ -1,11 +1,272 @@
 # Diabolical Masquerade
 
-Дискография
-"Ravendusk In My Heart" 1996, Black Metal
-"The Phantom Lodge" 1997, Black Metal
-"Nightwork" 1998, Black Metal
-"Death's Design" 2001, Black Metal
-"Death's Design (re-issue)" 2007, Black Metal
+
+
+## Дискография
+
+### "Ravendusk In My Heart" 1996, Black Metal
+
+1. The Castle Of Blackheim
+2. Blackheim's Quest To Bring Back The Stolen Autumn
+3. Beyond The Spiritual Moon
+4. The Sphere In Blackheim's Shrine
+5. Under The Banner Of The Sentinel *
+6. Blackheim's Forest Kept The Season Forever
+7. The Darkblue Seajourneys Of The Sentinel
+8. Blackheim's Hunt For Nocturnal Grace
+9. Ravendusk In My Heart
+
+All songs written by DIABOLICAL MASQUERADE
+Produced by Dan Swano and DIABOLICAL MASQUERADE
+Mixed and engineered by Dan Swano
+Recorded and mixed at Unisound  Studios
+
+Blackheim - Electric and Acoustic Guitars, Bass, Drums, Keyboards  and Vocals
+The Spirits - Unearthly Presence
+Heavy Metal vocals  on * By Dan Swano
+
+(p)(c) 1996 ADIPOCERE Records
+
+### "The Phantom Lodge" 1997, Black Metal
+
+1. Astray within the Coffinwood Mill
+2. The Puzzling Constellation of a Deathrune
+3. Ravenclaw
+4. The Walk of the Hunchbacked
+5. Cloaked by the Moonshine Mist
+6. Across the Open Vault and Away. . . 
+7. Hater
+8. The Blazing Demondome of Murmurs and Secrecy
+9. Upon the Salty Wall of the Broody Gargoyle
+
+
+
+
+Digitally captured at Unisound, September 1996
+Produced and Mixed by Dan Swano with Blackheim
+Mastered with the assistance of Blackheim at Cutting Room by Peter in de Betou
+Albumcover Painting by Jean-Pascal Fournier
+Backcover Painting by J.V. Valkenburg
+Additional Drawing by Backheim
+Photo by Mala
+All music, lyrics and concepts written 1995/1996
+Performed by DIABOLICAL MASQUERADE with Guest Musicians
+
+The Ones behind the Masques:
+Blackheim - Electric and Acoustic Lead/Rythm guitars, bassguitar, keyboards/FX and vocals
+The Spirits - Unearthly Presence
+
+Guest Musicians exclusively:
+Sean C. Bates - 
+Drums and Percussion
+Tina Sahlstedt and Marie Gaard Engberg - Flutes on Tracks 5 & 6
+Ingmar Dцhn -
+Bassguitar solo on track 5
+Dan Swanц - 
+Heavy Metal vocals on track 7
+Roger Oberg - 
+Pagan shouts on track 1
+
+
+
+
+
+### "Nightwork" 1998, Black Metal
+
+1. Rider on the Bonez
+2. Dreadventurouz
+3. The Zkeleton Keyz to the Dead
+4. Thiz Ghoultimate Omen
+5. All Onboard the Perdition Hearze!
+6. The Eerie Obzidian Circuz
+7. Haunted by Horror
+
+
+
+Produced by Dan Swanц with Blakkheim
+Recorded, Mixed and Mastered at 
+The Sanctuary April 1998
+
+Album photo by 
+Matthew Septimus / Photonic / Bulls
+Blakkheim photo by Mala
+Diabolical Masquerade logo by Blakkheim
+Digital design and concept by Blakkheim
+And Sir Robert Graves 
+(Greylife Research)
+Driven by a morbid taste for bones.
+
+All music, lyrics, and concepts written and a rranged 1997/1998
+Performed by Diabolical Masquerade with guest musicians
+
+The Ones behind the Masques:
+
+Blakkheim:
+Electric and Acoustic Lead/Rhythm Guitars, Bass, Keyboards/FX and Vocals
+The Spirits:
+Unearthly presence and dark omens
+
+Guest musicians invited to the Masquerade:
+
+Dan Swanц:
+Drums and Percussions, Keyboards/FX and additional backing vocals
+Ingmar Dцhn:
+Cello and additional basslines
+Marie Gaard Engberg:
+Flute
+
+
+
+
+
+### "Death's Design" 2001, Black Metal
+
+1:st MOVEMENT
+1. Nerves In Rush
+2. Death Ascends - The Hunt (part I)
+3. You Can't Hide Forever
+4. Right On Time For Murder - The Hunt (part II)
+
+2:nd MOVEMENT
+5. Conscious In No Materia
+6. A Different Plane
+7. Invisible To Us
+8. The One Who Hides a Face Inside
+
+3:rd MOVEMENT
+9. ...And Don't Ever Listen To What It Says
+10. Revelation of The Puzzle
+11. Human Prophecy 
+12. Where The Suffering Leads
+
+4:th MOVEMENT
+13. The Remains of Galactic Expulsions
+14. With Panic In The Heart
+15. Out From The Dark
+16. Still Coming At You
+17. Out From a Deeper Dark
+
+5:th MOVEMENT
+18. Spinning Back The Clocks
+
+6:th MOVEMENT
+19. Soaring Over Dead Rooms
+
+7:th MOVEMENT
+20. The Enemy Is The Earth
+21. Recall
+22. All Exits Blocked
+23. The Memory Is Weak
+24. Struck at Random/Outermost Fear
+25. Sparks of Childhood Coming Back
+
+8:th MOVEMENT
+26. Old People's Voodoo Seance
+27. Mary-Lee Goes Crazy 
+28. Something Has Arrived
+29. Possession of The Voodoo Party
+
+9:th MOVEMENT
+30. Not of Flesh, Not of Blood
+31. Intact With a Human Psyche
+32. Keeping Faith
+
+10:th MOVEMENT
+33. Someone Knows What Scares You
+34. A Bad Case of Nerves
+35. The Inverted Dream / No Sleep In Peace
+36. Information 
+37. Setting The Course
+
+11:th MOVEMENT
+38. Ghost Inhabitants
+39. Fleeing From Town
+40. Overlooked Parts 
+
+12:th MOVEMENT
+41. A New Spark - Victory Theme (part I) 
+42. Hope - Victory Theme (part II)
+43. Family Portraits - Victory Theme (part III)
+
+13:Th MOVEMENT
+44. Smokes Starts To Churn 
+45. Hesitant Behaviour
+46. A Hurricane of Rotten Air
+
+14:th MOVEMENT
+47. Mastering The Clock
+
+15:th MOVEMENT
+48. They Come, You Go
+
+16:th MOVEMENT
+49. Haarad El Chamon
+50. The Egyptian Resort
+51. The Pyramid
+52. Frenzy Moods and Other Odditites
+
+17:th MOVEMENT
+53. Still Part of The Design - The Hunt (part III)
+54. Definite Departure
+
+18:th MOVEMENT
+55. Returning To Haarad El Chamon
+56. Life Eater
+57. The Pulze 
+58. The Defiled Feeds
+
+19:th MOVEMENT
+59. The River In Space
+60. A Soulflight Back To Life
+
+20:th MOVEMENT
+61. Instant Rebirth - Alternate Ending
+
+
+
+Music score composed and produced by Blakkheim and 
+Dan Swanц
+Performed by Diabolical Masquerade with guest musicians and the Maalten Quartet, Estonia
+
+Recorded at The Sanctuary except orchestrations recorded at Trivial Studios and drums recorded at Westglobe studios
+Orchestrations ocnducted by Lembit Metzig and Ingmar Dцhn
+
+Music edited, assembled and mixed by Dan Swanц at 
+The Sanctuary except drums edited by Ryan Taylor and Sean C. Bates at Mobile Soundvision
+Production mastered by Peter In De Betou at Cutting Room
+
+Performers line-up:
+Rhythm/lead/acoustic and midi-guitars, ambiances and vocals by Blakkheim
+Drums and percussion by 
+Sean C. Bates
+Keyboards, ambiences and lead guitar solo on "Keeping the Faith" plus keyboard solo on "A Hurricane of Rotton Air" by 
+Dan Swanц
+Bass guitars by 
+Ingmar Dцhn
+Lead guitar solos on "POssession of the Voodoo Party", "Frenzy Moods and Other Oddities", "They Come You Go", "Still Part of The Design - The Hunt (part iii)" and "The Defiled Feeds" by
+Aag
+Jazz guitar solos on "Overlooked Parts" and "Mastering the Clock" by Patrik Selsfors
+Orchestra: The Maalten Quartet with 
+violin #1 by Artieer Garsnek
+violin #2 by Jaak Gunst
+violin #3 by Heiki Schmolski
+viola by Elmo Meltz
+cello by Konstantin Uweholst
+grand piano by Jaari Fleger
+courtesy of Oktan Records
+
+Art direction and digital design by
+Travis Smith
+Photography and movie stills from the motion picture "Death's Design" courtesy of West & Hill Corp.
+Ambient samples courtesy of "Distorted Reality" / Spectrasonics
+
+
+
+
+### "Death's Design (re-issue)" 2007, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,28 @@
 # Twilight Force
 
-Дискография
-"Tales of Ancient Prophecies" 2014, Power Metal
-"Heroes of Mighty Magic" 2016, Power Metal
+
+
+## Дискография
+
+### "Tales of Ancient Prophecies" 2014, Power Metal
+
+
+
+### "Heroes of Mighty Magic" 2016, Power Metal
+
+1. Battle of Arcane Might 
+2. Powerwind  
+3. Guardian of the Seas  
+4. Flight of the Saphire Dragon  
+5. There and Back Again 
+6. Riders of the Dawn 
+7. Keepers of Fate 
+8. Rise of a Hero 
+9. To the Stars 
+10. Heroes of Mighty Magic 
+11. Epilogue 
+12. Knights of Twilight's Might
+
 
 ## Отношения с другими группами
 

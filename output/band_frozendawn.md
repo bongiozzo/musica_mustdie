@@ -1,7 +1,23 @@
 # Frozen Dawn
 
-Дискография
-"The Old Prophecy of Winterland" 2011, Black Metal
+
+
+## Дискография
+
+### "The Old Prophecy of Winterland" 2011, Black Metal
+
+1. Cold Winds 
+2. Black Spells 
+3. The Order of the Winter Moon
+4. Through the Gates of Hate  
+5. Cold Souls 
+6. Dark Lady  
+7. Calm Before the Storm 
+8. Winds from the North 
+9. Frozen Dawn
+10. The Old Prophecy of Winterland  
+11. Fuel for Hatred (Satyricon cover)
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,31 @@
 # Adolf Castle
 
-Дискография
-"Really Crazy Germans" 1994, Heavy Metal
+REAL heavy metal from Russia!
+
+## Дискография
+
+### "Really Crazy Germans" 1994, Heavy Metal
+
+1. Crazy Germans
+2. Gallow Tree
+3. Heart Of Spring
+4. Oh' Grand Old Alaric!
+5. Russian Polizei
+6. Fall In Hate
+7. Crowned By The Sun
+8. Fat Mad Marta
+9. Iron Riders
+10.Vilissa
+11.The Great Attila Inversion
+12.Fritz Und Hans (live in Dortmund)
+13.Brothers In Metal
+
+Dylan Troy - Vocals
+Cyril Thor - Guitars
+Wolf Hunter - Guitars
+Attila - Bass
+St. Patric - Drums
+
 
 ## Отношения с другими группами
 

@@ -1,11 +1,41 @@
 # Witchfinder General
 
-Дискография
-"Death Penalty" 1982, Doom
-"Friends Of Hell" 1983, Doom
-"Live '83" 2005, Doom
-"Buried Amongst The Ruins (Compilation)" 2005, Doom
-"Resurrected" 2005, Doom
+Classic Doom a-la Black Sabbath
+
+## Дискография
+
+### "Death Penalty" 1982, Doom
+
+1.  Invisible Hate
+2.  Free Country
+3.  Death Penalty
+4.  No Slayer
+5.  Witchfinder General
+6.  Burning A Sinner
+7.  R.I.P.
+
+Produced by Pete Hinton.
+Engineered by Robin George and Pat.
+Recorded and Mixed at Metro Sound Studio
+
+(P)(C) 1997(1982) HEAVY METAL Records
+
+### "Friends Of Hell" 1983, Doom
+
+
+
+### "Live '83" 2005, Doom
+
+
+
+### "Buried Amongst The Ruins (Compilation)" 2005, Doom
+
+
+
+### "Resurrected" 2005, Doom
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,25 @@
 # Yuri Gagarin
 
-Дискография
-"Yuri Gagarin" 2013, Rock
-"At The Center Of All Infinity" 2015, Rock
+
+
+## Дискография
+
+### "Yuri Gagarin" 2013, Rock
+
+01. First Orbit (09:09)
+02. Sonic Invasion 2910 (07:40)
+03. Za Kosmosom (08:34)
+04. The Big Rip (10:27)
+
+### "At The Center Of All Infinity" 2015, Rock
+
+1. The New Order (07:50)
+2. Cluster Of Minds (05:42)
+3. In The Abyss (06:25)
+4. I See No God Up Here (03:01)
+5. At The Center Of All Infinity (08:06)
+6. Oblivion (09:15)
+
 
 ## Отношения с другими группами
 

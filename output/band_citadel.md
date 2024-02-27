@@ -1,7 +1,13 @@
 # Citadel
 
-Дискография
-"Transition" 2004, Power Metal
+finnish power-metal
+
+## Дискография
+
+### "Transition" 2004, Power Metal
+
+
+
 
 ## Отношения с другими группами
 

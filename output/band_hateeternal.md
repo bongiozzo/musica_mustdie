@@ -1,13 +1,107 @@
 # Hate Eternal
 
-Дискография
-"Conquering The Throne" 1999, Death Metal
-"King Of All Kings" 2002, Death Metal
-"I, Monarch" 2005, Death Metal
-"The Perilous Fight" 2006, Death Metal
-"Fury And Flames" 2008, Death Metal
-"Phoenix Amongst the Ashes" 2011, Death Metal
-"Infernus" 2015, Death Metal
+
+
+## Дискография
+
+### "Conquering The Throne" 1999, Death Metal
+
+1. Praise of the Almighty - 2:38
+2. Dogma Condemned - 3:00
+3. Catacombs - 3:16
+4. Nailed to Obscurity - 2:22
+5. By His Own Decree - 3:25
+6. The Creed of the Chaotic Divinity - 2:58
+7. Dethroned - 2:35
+8. Sacrilege of Hate - 2:22
+9. Spiritual Holocaust - 3:27
+10. Darkness by Oath - 4:10
+11.   Saturated in Dejection - 3:08
+
+### "King Of All Kings" 2002, Death Metal
+
+1. Our Beckoning 
+2. King Of All Kings 
+3. The Obscure Terror 
+4. Servants Of The Gods 
+5. Beyond Redemption 
+6. Born By Fire 
+7. Chants In Declaration 
+8. Rising Legions of Black 
+9. In Spirit (The Power Of Mana) 
+10. Powers That Be
+
+### "I, Monarch" 2005, Death Metal
+
+1. Two Demons
+2. Behold Judas
+3. The Victorious Reign
+4. To Know Our Enemies
+5. I, Monarch
+6. Path to the Eternal Gods
+7. The Plague of Humanity
+8. It Is Our Will
+9. Sons of Darkness
+10. Faceless One
+
+### "The Perilous Fight" 2006, Death Metal
+
+Main feature: Hate Eternal Live at The Garage, London 4th June 2006 
+
+01. Two Demons 
+02. Servants Of The Gods 
+03. The Victorious Reign 
+04. Dogma Condemned 
+05. I, Monarch 
+06. Behold Judas 
+07. The Obscure Terror 
+08. To Know Our Enemies 
+09. Powers That Be 
+10. By His Own Decree 
+11. Sons Of Darkness 
+12. King Of All Kings 
+
+Promo videos: 
+
+01. The Powers That Be 
+02. I, Monarch 
+03. The Victorious Reign 
+
+Bonus Features: 
+
+Hate Eternal interview (20 mins) 
+Behind the Scenes at Mana Studios (30 mins)
+
+### "Fury And Flames" 2008, Death Metal
+
+01. Hell Envenom
+02. Whom Gods May Destroy
+03. Para Bellum
+04. Bringer of Storms
+05. The Funerary March
+06. Thus Salvation
+07. Proclamation of the Damned
+08. Fury Within
+09. Tombeau (Le Tombeau De La Fureur et Des Flames)
+10. Coronach
+
+### "Phoenix Amongst the Ashes" 2011, Death Metal
+
+1. Rebirth  01:17  
+2. The Eternal Ruler  03:10 
+3. Thorns of Acacia  04:29   
+4. Haunting Abound  05:01   
+5. The Art of Redemption  04:42
+6. Phoenix Amongst the Ashes  05:42   
+7. Deathveil  03:31   
+8. Hatesworn  04:48
+9. Lake Ablaze  04:29
+10. The Fire of Resurrection  03:57 
+
+### "Infernus" 2015, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

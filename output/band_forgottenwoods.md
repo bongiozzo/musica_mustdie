@@ -1,7 +1,34 @@
 # Forgotten Woods
 
-Дискография
-"The Curse Of Mankind" 1996, Black Metal
+
+
+## Дискография
+
+### "The Curse Of Mankind" 1996, Black Metal
+
+1. Overmotets Pris
+2. My Scars Hold Your Dreams
+3. The Starlit Waters / I, The Mountain
+4. With Swans I'll Share My Thirst
+5. Den Ansiktslose
+6. The Velvet Room
+7. En Natt Med Storm Og Ravners Skrik
+
+All songs written by FORGOTTEN WOODS.
+Produced and mixed by Reinhardt Toresen and FORGOTTEN WOODS.
+Recorded at Lydloftet Studio, Olen.
+
+Olav Berland - Guitar and Drums
+Rune Vedaa - Bass
+Thomas - Lead Vocals
+Jamne - Vocals
+Roger - Drums on track 2 and 5
+
+Backing Vocals and Harmonica by
+Reinhardt Toresen
+
+(p)(c) 1996 NO COLOURS Records
+
 
 ## Отношения с другими группами
 

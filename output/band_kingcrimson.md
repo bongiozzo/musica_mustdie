@@ -1,19 +1,377 @@
 # King Crimson
 
-Дискография
-"In the Court of the Crimson King" 1969, Instrumental
-"In the Wake of Poseidon" 1970, Instrumental
-"Lizard" 1970, Instrumental
-"Islands" 1971, Instrumental
-"Earthbound" 1972, Instrumental
-"Larks' Tongues in Aspic" 1973, Instrumental
-"Starless and Bible Black" 1974, Instrumental
-"Red" 1974, Instrumental
-"Discipline" 1981, Instrumental
-"Beat" 1982, Instrumental
-"3 of a Perfect Pair" 1984, Instrumental
-"THRAK" 1995, Instrumental
-"Cirkus" 1999, Instrumental
+
+
+## Дискография
+
+### "In the Court of the Crimson King" 1969, Instrumental
+
+1.   21st Century Schizoid Man (Including... (Fripp/Giles/Lake/McDonald/Sinfield) - 7:20 
+2.   I Talk to the Wind (Fripp/Giles/Lake/McDonald/Sinfield) - 6:05 
+3.   Epitaph (Including March for No Reason... (Fripp/Giles/Lake/McDonald/Sinfield) - 8:47 
+4.   Moonchild (Including The Dream/The... (Fripp/Giles/Lake/McDonald/Sinfield) - 12:11 
+5.   The Court of the Crimson King (Including... (McDonald/Sinfield) - 9:22 
+
+
+King Crimson  -  Producer 
+Greg Lake  -  Bass, Guitar (Bass), Vocals 
+Robbin Thompson  -  Engineer 
+Dik  -  Equipment Manager 
+Robert Fripp  -  Guitar, Keyboards, Remastering 
+Michael Giles  -  Percussion, Drums, Vocals 
+Ian McDonald  -  Flute, Reeds, Keyboards, Vocals, Mellotron, Vibraphone, Woodwind 
+Peter Sinfield  -  Lyricist 
+Tony Arnold  -  Remastering 
+Tony Page  -  Engineer, Assistant Engineer 
+Robin Thompson  -  Engineer 
+Barry Godber  -  Cover Design, Cover Art 
+Vick  -  Equipment Manager 
+Paul Sinfield  -  Illustrations, Spoken Word 
+
+
+
+### "In the Wake of Poseidon" 1970, Instrumental
+
+   1.   Peace/A Beginning (Fripp/Sinfield) - :50 
+   2.   Pictures of a City (Fripp/Sinfield) - 8:01 
+   3.   Cadence and Cascade (Fripp/Sinfield) - 4:37 
+   4.   In the Wake of Poseidon [Including Libra's Theme] (Fripp/Sinfield) - 7:56 
+   5.   Peace - A Theme (Fripp) - 1:15 
+   6.   Cat Food (Fripp/McDonald/Sinfield) - 4:55 
+   7.   The Devil's Triangle (Fripp) - 11:34 
+   8.   Peace/An End (Fripp/Sinfield) - 1:52 
+
+
+Keith Tippett  -  Piano, Keyboards 
+Gordon Haskell  -  Bass, Vocals 
+Greg Lake  -  Bass, Vocals 
+Robbin Thompson  -  Engineer 
+Mel Collins  -  Flute, Saxophone 
+Robert Fripp  -  Guitar, Director, Keyboards, Producer, Mellotron, Devices 
+Michael Giles  -  Drums, Vocals 
+Peter Giles  -  Bass 
+Jeff  -  Engineer 
+Peter Sinfield  -  Director, Lyricist, Producer, Design, Paintings 
+Tony  -  Engineer 
+Robin Thompson  -  Engineer 
+
+
+
+### "Lizard" 1970, Instrumental
+
+   1.   Cirkus (Including Entry of the Chameleons) (Fripp/Sinfield) - 6:28 
+   2.   Indoor Games (Fripp/Sinfield) - 5:41 
+   3.   Happy Family (Fripp/Sinfield) - 4:16 
+   4.   Lady of the Dancing Water (Fripp/Sinfield) - 2:44 
+   5.   Lizard: Prince Rupert Awakes/Bolero-The... (Fripp/Sinfield) - 23:12 
+
+
+Jon Anderson  -  Vocals 
+Marc Charig  -  Cornet 
+Keith Tippett  -  Piano, Keyboards, Piano (Electric) 
+Gordon Haskell  -  Bass, Guitar (Bass), Vocals 
+Robbin Thompson  -  Engineer 
+Robin Miller  -  Oboe, Cor Anglais 
+Mel Collins  -  Flute, Saxophone 
+Nick Evans  -  Trombone 
+Robert Fripp  -  Guitar, Keyboards, Producer, Mellotron, Writer, Remastering 
+Andy McCulloch  -  Drums 
+Obin Miller  -  Wind 
+Peter Sinfield  -  Lyricist, Producer, Writer 
+Tony Arnold  -  Remastering 
+Robin Thompson  -  Engineer 
+
+
+
+### "Islands" 1971, Instrumental
+
+   1.   Formentera Lady (Fripp/Sinfield) - 10:18 
+   2.   Sailor's Tale (Fripp) - 7:29 
+   3.   The Letters (Fripp/Sinfield) - 4:29 
+   4.   Ladies of the Road (Fripp/Sinfield) - 5:34 
+   5.   Prelude: Song of the Gulls (Fripp) - 4:14 
+   6.   Islands (Fripp/Sinfield) - 11:51 
+
+
+King Crimson  -  Producer 
+Harry Miller  -  Bass, String Bass 
+Marc Charig  -  Cornet 
+Keith Tippett  -  Piano, Keyboards 
+Robin Miller  -  Oboe 
+Boz Burrell  -  Bass, Vocals 
+Mel Collins  -  Flute, Flute (Bass), Saxophone, Vocals 
+Robert Ellis  -  Photography 
+Robert Fripp  -  Guitar, Harmonium, Keyboards, Mellotron, Mastering, Remastering, Pedals 
+Paulina Lucas  -  Soprano, Vocals, Soprano (Vocal) 
+Obin Miller  -  Wind 
+Peter Sinfield  -  Lyricist, Speech/Speaker/Speaking Part, Sounds, Cover Design, Vision Control, Cover Painting 
+Ian Wallace  -  Percussion, Drums, Vocals 
+Tony Arnold  -  Mastering 
+Simon Heyworth  -  Remastering 
+Andy Hendrikson  -  Engineer 
+Mike  -  Equipment Technician 
+Vick  -  Equipment Technician 
+
+
+
+### "Earthbound" 1972, Instrumental
+
+   1.   21st Century Schizoid Man (Fripp/Giles/Lake/McDonald/Sinfield) 
+   2.   Peoria 
+   3.   The Sailor's Tale (Fripp) 
+   4.   Earthbound 
+   5.   Groon (Fripp) 
+
+
+Bill Bruford  -  Percussion, Drums 
+Boz Burrell  -  Bass, Vocals 
+Mel Collins  -  Saxophone 
+Robert Fripp  -  Producer 
+Peter Sinfield  -  Lyricist 
+Ian Wallace  -  Drums, Vocals 
+
+
+
+### "Larks' Tongues in Aspic" 1973, Instrumental
+
+ 
+   1.   Larks' Tongues in Aspic, Pt. 1 (Bruford/Cross/Fripp/Muir/Palmer-James/Wetton) - 13:36 
+   2.   Book of Saturday (Fripp/Palmer-James/Wetton) - 2:56 
+   3.   Exiles (Cross/Fripp/Palmer-James) - 7:42 
+   4.   Easy Money (Fripp/Palmer-James/Wetton) - 7:53 
+   5.   The Talking Drum (Bruford/Cross/Fripp/Muir/Wetton) - 7:26 
+   6.   Larks' Tongues in Aspic, Pt. 2 (Fripp/Palmer-James) - 7:09 
+
+
+Bill Bruford  -  Drums 
+King Crimson  -  Producer 
+John Wetton  -  Bass, Vocals 
+David Cross  -  Violin, Keyboards, Viola, Mellotron 
+Robert Fripp  -  Guitar, Keyboards, Mellotron, Remastering, Devices 
+Jamie Muir  -  Percussion 
+Nick Ryan  -  Engineer 
+Tony Arnold  -  Remastering 
+Simon Heyworth  -  Remastering 
+Hugh O'Donnell  -  Design 
+
+
+### "Starless and Bible Black" 1974, Instrumental
+
+ 
+   1.   The Great Deceiver (Fripp/Palmer-James/Wetton) - 4:03 
+   2.   Lament (Fripp/Palmer-James/Wetton) - 4:02 
+   3.   We'll Let You Know (Bruford/Cross/Fripp/Wetton) - 3:41 
+   4.   The Night Watch (Fripp/Palmer-James/Wetton) - 4:42 
+   5.   Trio (Bruford/Cross/Fripp/Wetton) - 5:41 
+   6.   The Mincer (Bruford/Fripp/Palmer-James/Wetton) - 4:09 
+   7.   Starless and Bible Black (Bruford/Fripp/Wetton) - 9:14 
+   8.   Fracture (Fripp) - 11:17 
+
+
+Bill Bruford  -  Percussion, Drums 
+King Crimson  -  Producer 
+John Wetton  -  Bass, Voices 
+George Chkiantz  -  Coordination 
+David Cross  -  Violin, Keyboards, Viola 
+Robert Fripp  -  Guitar, Keyboards, Mellophonium, Mellotron, Devices 
+Peter Henderson  -  Assistant Engineer 
+Tom Phillips  -  Cover Design 
+Chris  -  Equipment Coordinator 
+Tex  -  Equipment Coordinator 
+
+
+### "Red" 1974, Instrumental
+
+ 
+   1.   Red (Fripp) - 6:16 
+   2.   Fallen Angel (Fripp/Palmer-James/Wetton) - 6:04 
+   3.   One More Red Nightmare (Fripp/Wetton) - 7:07 
+   4.   Providence (Bruford/Cross/Fripp/Wetton) - 8:11 
+   5.   Starless (Cross/Fripp/Palmer-James/Wetton) - 12:18 
+
+
+Bill Bruford  -  Percussion, Drums 
+King Crimson  -  Producer 
+John Wetton  -  Bass, Vocals 
+Marc Charig  -  Cornet 
+Robin Miller  -  Oboe, Wind 
+George Chkiantz  -  Engineer 
+Mel Collins  -  Saxophone, Sax (Soprano) 
+David Cross  -  Violin, Keyboards 
+Robert Fripp  -  Guitar, Keyboards, Mellotron, Remastering 
+Ian McDonald  -  Flute, Keyboards, Sax (Alto) 
+Rod Thear  -  Engineer, Assistant Engineer 
+Tony Arnold  -  Remastering 
+John Kosh  -  Photography, Cover Design 
+Gered Mankowitz  -  Photography 
+
+
+### "Discipline" 1981, Instrumental
+
+ 
+   1.   Elephant Talk (Belew/King Crimson) - 4:43 
+   2.   Frame by Frame (King Crimson) - 5:09 
+   3.   Matte Kudasai (King Crimson) - 3:47 
+   4.   Indiscipline (King Crimson) - 4:33 
+   5.   Thela Hun Ginjeet (King Crimson) - 6:26 
+   6.   The Sheltering Sky (King Crimson) - 8:22 
+   7.   Discipline (King Crimson) - 5:13 
+   8.   Matte Kudasai [Alternative Version] (King Crimson) - 3:50 
+
+
+
+Adrian Belew  -  Guitar, Vocals 
+Bill Bruford  -  Bass, Drums, Bateria 
+King Crimson  -  Producer 
+Steven Ball  -  Logo 
+Rhett Davies  -  Producer 
+Robert Fripp  -  Guitar, Keyboards, Mastering, Remastering, Devices 
+Tony Levin  -  Bass, Guitar (Bass), Stick, Vocals, Photography 
+Tony Arnold  -  Remastering 
+Simon Heyworth  -  Mastering 
+Nigel Mills  -  Assistant Engineer 
+Peter Saville  -  Assistant Engineer 
+Graham Davies     
+
+
+### "Beat" 1982, Instrumental
+
+ 
+   1.   Neal and Jack and Me (Belew/King Crimson) - 4:22 
+   2.   Heartbeat (Belew/King Crimson) - 3:54 
+   3.   Sartori in Tangiers (Belew/King Crimson) - 3:34 
+   4.   Waiting Man (Belew/King Crimson) - 4:27 
+   5.   Neurotica (Belew/King Crimson) - 4:48 
+   6.   Two Hands (Belew/Belew/King Crimson) - 3:23 
+   7.   The Howler (Belew/King Crimson) - 4:13 
+   8.   Requiem (Belew/King Crimson) - 6:38 
+
+
+Adrian Belew  -  Guitar, Vocals 
+Bill Bruford  -  Drums 
+Rhett Davies  -  Producer 
+Robert Fripp  -  Organ, Guitar, Keyboards, Remastering, Frippertronics 
+Tony Levin  -  Bass, Guitar (Bass), Stick, Vocals, Vocals (bckgr), Photography 
+Rob O'Connor  -  Cover Design 
+Tony Arnold  -  Remastering 
+William Coupon  -  Photography 
+Tony Fripp  -  Remastering 
+
+
+### "3 of a Perfect Pair" 1984, Instrumental
+
+ 
+   1.   Three of a Perfect Pair (King Crimson) - 4:12 
+   2.   Model Man (King Crimson) - 3:49 
+   3.   Sleepless (Belew/King Crimson) - 5:21 
+   4.   Man With an Open Heart (King Crimson) - 3:03 
+   5.   Nuages (That Which Passes, Passes Like... (King Crimson) - 4:47 
+   6.   Industry (King Crimson) - 7:05 
+   7.   Dig Me (King Crimson) - 3:17 
+   8.   No Warning (King Crimson) - 3:29 
+   9.   Larks' Tongues in Aspic, Pt. 3 (Belew/Bruford/Fripp/Levin) - 6:07 
+
+
+
+Adrian Belew  -  Guitar, Composer, Vocals, Fretless Bass 
+Bill Bruford  -  Drums, Drums (Electric) 
+King Crimson  -  Composer, Producer 
+Bob Clearmountain  -  Mixing 
+Brad Davis  -  Engineer 
+Robert Fripp  -  Guitar, Keyboards, Remastering 
+Peter Hefter  -  Assistant Engineer 
+Tony Levin  -  Synthesizer, Bass, Stick, Vocals, Vocals (bckgr) 
+Tony Arnold  -  Engineer, Remastering 
+Ray Niznick  -  Assistant Engineer 
+Timothy Eames  -  Artwork 
+
+
+### "THRAK" 1995, Instrumental
+
+ 
+   1.   Vroom (Belew/King Crimson) - 4:38 
+   2.   Coda: Marine 475 (Belew/King Crimson) - 2:41 
+   3.   Dinosaur (King Crimson/King Crimson) - 6:35 
+   4.   Walking on Air (Belew/King Crimson) - 4:34 
+   5.   B'Boom (Belew/King Crimson) - 4:11 
+   6.   Thrak (Belew/King Crimson) - 3:58 
+   7.   Inner Garden I (Belew/King Crimson) - 1:47 
+   8.   People (Belew/King Crimson) - 5:53 
+   9.   Radio I (Belew/King Crimson) - :43 
+   10.   One Time (Belew/King Crimson) - 5:21 
+   11.   Radio II (Belew/King Crimson) - 1:02 
+   12.   Inner Garden II (Belew/King Crimson) - 1:15 
+   13.   Sex Sleep Eat Drink Dream - 4:50 
+   14.   Vroom Vroom (Belew/King Crimson) - 5:37 
+   15.   Vroom Vroom: Coda (Belew/King Crimson) - 3:00 
+
+
+Adrian Belew  -  Guitar 
+Bill Bruford  -  Drums 
+King Crimson  -  Producer 
+Trey Gunn  -  Bass 
+David Bottrill  -  Producer, Engineer 
+Richard Chadwick  -  Coordination 
+Robert Fripp  -  Guitar 
+Tony Levin  -  Bass, Mixing 
+Pat Mastelotto  -  Drums 
+David Singleton  -  Digital Editing, Assistant Producer 
+Ian Cooper  -  Mastering 
+Noah Evens  -  Engineer 
+George Glossop  -  Mixing 
+Russell Kearney  -  Assistant Engineer 
+
+
+
+### "Cirkus" 1999, Instrumental
+
+ 
+   1.   Dinosaur [#] (Belew/King Crimson) 
+   2.   Thela Hun Ginjeet (Belew/King Crimson) 
+   3.   Red [#] (Belew/King Crimson) 
+   4.   B'boom [#] (Belew/King Crimson) 
+   5.   Thrak [#] (Belew/King Crimson) 
+   6.   1 ii 2 (Bruford/Fripp/Gunn/Levin) 
+   7.   Neurotica [#] (Belew/King Crimson) 
+   8.   Indiscipline [#] (Belew/King Crimson) 
+   9.   Vrooom Vrooom [#] (Belew/King Crimson) 
+   10.   Coda: Marine 475 [#] (Belew/King Crimson) 
+   11.   Deception of the Thrush (Belew/Fripp/Gunn) 
+   12.   Heavy ConstruKction (Belew/Fripp/Gunn) 
+   13.   Three of a Perfect Pair (Belew/King Crimson) 
+   14.   Sleepless (Belew/King Crimson) 
+   15.   Elephant Talk [#] (Belew/King Crimson) - 4:35 
+   16.   21st Century Schizoid Man (Fripp/Giles/Lake/McDonald/Sinfield) - 9:26 
+   17.   Ladies of the Road [#] (Fripp/Sinfield) - 5:59 
+   18.   A Man, a City (Fripp/Giles/Lake/McDonald/Sinfield) - 9:59 
+   19.   In the Court of the Crimson King (McDonald/Sinfield) - 6:49 
+   20.   Fracture (Fripp) - 11:02 
+   21.   Easy Money (Fripp/Palmer-James/Wetton) - 6:10 
+   22.   Improv: Besancon [#] (Bruford/Cross/Fripp/Wetton) - 1:33 
+   23.   The Talking Drum (Bruford/Cross/Fripp/Muir/Wetton) - 6:24 
+   24.   Larks' Tongues in Aspic, Pt. 2 [#] (Fripp) - 6:29 
+   25.   Starless (Bruford/Cross/Fripp/Palmer~James/Wetton) - 12:04 
+
+
+Adrian Belew  -  Guitar, Vocals 
+Bill Bruford  -  Percussion, Drums, Drums (Electric) 
+John Wetton  -  Bass, Guitar, Vocals 
+Greg Lake  -  Guitar (Bass), Vocals 
+Trey Gunn  -  Guitar, Spoken Word 
+Boz Burrell  -  Guitar (Bass), Vocals 
+Mel Collins  -  Flute, Saxophone 
+David Cross  -  Violin, Mellotron 
+Robert Fripp  -  Guitar, Producer, Mellotron 
+Michael Giles  -  Percussion, Drums, Vocals 
+Tony Levin  -  Synthesizer, Bass, Stick, Vocals 
+Pat Mastelotto  -  Percussion 
+Ian McDonald  -  Flute, Saxophone, Vocals, Mellotron 
+Peter Sinfield  -  Spoken Word 
+David Singleton  -  Producer 
+Ian Wallace  -  Drums 
+Ronan Chris Murphy  -  Mixing 
+
+
 
 ## Отношения с другими группами
 

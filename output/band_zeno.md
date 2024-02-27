@@ -1,9 +1,81 @@
 # Zeno
 
-Дискография
-"Zeno" 1986, Hard Rock
-"Zenology" 1995, Hard Rock
-"Listen To The Light" 1998, Hard Rock
+
+
+## Дискография
+
+### "Zeno" 1986, Hard Rock
+
+1. Eastern Sun - 4:45 
+2. A Little More Love - 3:48 
+3. Love Will Love - 4:43 
+4. Signs On The Sky - 3:58 
+5. Far Away - 4:34 
+6. Emergency - 3:01 
+7. Don't Tell The Wind - 6:11 
+8. Heart On The Wing - 5:16 
+9. Circle Of Dawn - 3:53 
+10. Sent By Heaven - 4:50 
+11. Sunset - 0:35 
+12. Don't Count Me Out - 3:36 
+13. Signs On The Sky (demo version) - 3:42 
+14. Far Away (demo version) - 3:27 
+15. Don't Tell The Wind (demo version) - 5:20 
+16. Love Will Love (extended version) - 6:28 
+
+Band line-up:
+Michael Flexig (Lead Vocals)
+Zeno Roth (Guitars)
+Ule W. Ritgen (Bass)
+Don Airey (Keyboards)
+Chuck Bьrgi (Drums).
+
+### "Zenology" 1995, Hard Rock
+
+1. Heat Of Emotion - 3:32 
+2. Is It Love - 3:45 
+3. Together - 4:23 
+4. Surviving The Night - 3:52 
+5. In The Dark - 4:24 
+6. Let There Be Heaven - 4:28 
+7. Man On The Run - 4:28 
+8. Out In The Night - 4:38 
+9. You Got Me Down - 3:47 
+10. Ticket To Nowhere - 3:28 
+11. In Love With An Angel - 4:30 
+12. Crystal Dreams - 3:14 
+
+Band line-up:
+Michael Flexig, Tommy Heart (Lead Vocals)
+Zeno Roth, Helge Engelke (Guitars, Bass, Keyboards)
+Ule W. Ritgen (Bass)
+Rainer Przywara (Keyboards)
+C. C. Beherens (Drums)
+
+### "Listen To The Light" 1998, Hard Rock
+
+1. Goddess Of Sunrise 
+2. Love In Your Eyes 
+3. I Would Die For You 
+4. Meet Me At The Rainbow 
+5. Light Of The Morning 
+6. Follow The Wind 
+7. Listen To The Light 
+8. Luna And Mercury (instrumental) 
+9. Some Rocks Don't Roll 
+10. Eden On Fire 
+11. Romorrow Arise 
+12. Rainforest Tears 
+13. Sunset In Paradise 
+14. Walking On A Thin Line (1987) 
+15. World Of Tomorrow (1987) 
+16. Time (1987)
+
+Состав группы 
+Zeno Roth - гитара, бас, барабаны, клавиши
+Michael Flexig - вокал
+C.C. Behrens - барабаны на песнях 14, 15, 16.
+
 
 ## Отношения с другими группами
 

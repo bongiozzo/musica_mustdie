@@ -1,15 +1,174 @@
 # Primordial
 
-Дискография
-"Imrama" 1995, Black Metal
-"A Journey's End" 1998, Black Metal
-"The Burning Season (EP)" 1999, Black Metal
-"Spirit The Earth Aflame" 2000, Black Metal
-"Storm Before Calm" 2002, Black Metal
-"The Gathering Wilderness" 2005, Metal
-"To The Nameless Dead" 2007, Metal
-"Redemption at the Puritan's Hand" 2011, Metal
-"Where Greater Men Have Fallen" 2014, Metal
+celtic black-metal
+
+## Дискография
+
+### "Imrama" 1995, Black Metal
+
+01 Fuil Arsa 
+02 Infernal Summer
+03 Here I am King
+04 The Darkest Flame
+05 The Fires... 
+06 Mealltach
+07 Let The Sun Set on Life Forever
+08 To The Ends of The Earth
+09 Beneath a Bronze Sky
+10 Awaiting The Dawn
+
+
+Recorded at Skerrieshell Studios
+Engineered & mixed by Andrew Radley
+Mixed by Mags at Academy Studios 
+
+Music by Primordial
+Lyrics by A.A. Nemtheanga 
+ 
+
+
+ In 2001 HHR released the album, re-mastered and re-designed in a special Slipcase-CD with two bonus-tracks. ("The Calling" and "Among The Lazarae") 
+
+
+### "A Journey's End" 1998, Black Metal
+
+01 Graven Idol
+02 Dark Song*
+03 Autumn's Ablaze 
+04 Journey's End 
+05 Solitary Mourner
+06 Bitter Harvest
+07 On Aistear Deirneach 
+
+Produced by Primordial
+Recorded at Academy Studios
+Engineered and mixed by Mags 
+
+Music by Primordial, except * by Fergal Flannery
+Lyrics by A.A. Nemtheanga 
+ 
+
+
+ The albums was also released on LP with the original planned cover by Hammerheart Records. 
+
+   In 2001 HHR released the album, re-mastered and re-designed in a special Slipcase-CD with a bonus-track. ("And The Sun Set on Life Forever") 
+
+
+### "The Burning Season (EP)" 1999, Black Metal
+
+01 The Calling 
+02 Among The Lazarae
+03 The Burning Season
+04 And The Sun Sets on Life Forever
+05 Forever
+
+Recorded at Sun Studios, Dublin, Ireland
+Produced by Mags and Primordial
+Engineered by Mags
+Assistant engineer: Dennis Buckley 
+
+Music & lyrics by Primordial 
+
+
+### "Spirit The Earth Aflame" 2000, Black Metal
+
+01 Spirit The Earth Aflame
+02 Gods to The Godless 
+03 The Soul Must Sleep
+04 The Burning Season 
+05 Glorious Dawn
+06 The Cruel Sea*
+07 Children of The Harvest 
+
+Recorded at Sun Studios, Dublin, Ireland
+Somewhat produced by Mags and Primordial
+Engineered by Mags
+Assistant engineer: Sean Ronan 
+
+Music by Primordial, except * trad.
+Lyrics by A.A. Nemtheanga 
+ 
+
+
+ The album was also released as a limited digipack with different cover, featuring a re-recording of "To Enter Pagan" as bonus-track. 
+
+
+### "Storm Before Calm" 2002, Black Metal
+
+1. The Heretic's Age 
+2. Fallen to Ruin
+3. Cast to The Pyre
+4. What Sleeps Within 
+5. Suns First Rays
+6. Sons of The Morrigan 
+7. Hosting of The Sidhe
+
+Produced by Mags 
+
+
+A.A. Nemtheanga (Vocals)
+Ciбran MacUiliam (Guitars)
+Michael O'Floinn (Guitars)
+Pуl MacAmlaigh (Bass)
+Simon O'Laoghaire (Drums) 
+
+
+### "The Gathering Wilderness" 2005, Metal
+
+1. The Golden Spiral
+2. The Gathering Wilderness
+3. Song of the Tomb
+4. End of all Times
+5. The Coffin Ships
+6. Tragedy’s Birth (The Martyr’s Fire)
+7. Cities Carved in Stone
+
+### "To The Nameless Dead" 2007, Metal
+
+1. Empire Falls
+2. Gallows Hymn
+3. As Rome Burns
+4. Failures Burden
+5. Heathen Tribes
+6. The Rising Tide
+7. Traitors Gate
+8. No Nation On This Earth
+
+
+### "Redemption at the Puritan's Hand" 2011, Metal
+
+1. No Grave Deep Enough  07:10    
+2. Lain With the Wolf  08:25    
+3. Bloodied Yet Unbowed  08:48     
+4. God's Old Snake  06:25    
+5. The Mouth of Judas  08:53    
+6. The Black Hundred  06:19    
+7. The Puritan's Hand  08:36    
+8. Death of the Gods  09:21 
+
+
+A.A. Nemtheanga  Vocals  
+Ciaran MacUiliam  Guitars  
+Micheal O'Floinn  Guitars  
+Pol MacAmlaigh  Bass  
+Simon O'Laoghaire  Drums  
+ 
+Cover art for "Redemption at the Puritan's Hand" by Paul McCarroll 
+
+
+### "Where Greater Men Have Fallen" 2014, Metal
+
+1. Where Greater Men Have Fallen  08:06  
+2. Babel's Tower  08:14    
+3. Come the Flood  07:16    
+4. The Seed of Tyrants  05:31    
+5. Ghosts of the Charnel House  07:28    
+6. The Alchemist's Head  06:06    
+7. Born to Night  08:54    
+8. Wield Lightning to Split the Sun  07:03  
+
+
+
 
 ## Отношения с другими группами
 

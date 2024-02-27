@@ -1,7 +1,24 @@
 # Sorrows Path
 
-Дискография
-"The Rough Path of Nihilism" 2010, Power Metal
+
+
+## Дискография
+
+### "The Rough Path of Nihilism" 2010, Power Metal
+
+1. All Love is Lost
+2. The Beast (S.P.R.)
+3. Honestly...
+4. Fetish
+5. Dirty Game
+6. Mr. Holy
+7. Getting Closer
+8. Queen of Doom
+9. Prostitute
+10. Hymn of Differentiation
+11. Empty Eyes and Blackened Hearts
+12. Nihilism
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,32 @@
 # Abigail williams
 
-Дискография
-"Legend" 2006, Black Metal
-"In The Shadow Of A Thousand Suns" 2008, Black Metal
+Black metal / USA
+
+## Дискография
+
+### "Legend" 2006, Black Metal
+
+1.From a Buried Heart 
+2.Like Carrion Birds 
+3.The Conqueror Wyrm 
+4.Watchtower 
+5.Procession of the Aeons 
+
+
+### "In The Shadow Of A Thousand Suns" 2008, Black Metal
+
+1.I 
+2.The World Beyond 
+3.Acolytes 
+4.A Thousand Suns 
+5.Into the Ashes 
+6.Smoke and Mirrors 
+7.A Semblance of Life 
+8.Empyrean: Into the Cold Wastes 
+9.Floods 
+10.The Departure
+
+
 
 ## Отношения с другими группами
 

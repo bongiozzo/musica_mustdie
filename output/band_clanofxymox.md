@@ -1,26 +1,228 @@
 # Clan of Xymox
 
-Дискография
-"Subsequent Pleasures" 1984, Gothic
-"A Day (7")" 1985, Gothic
-"Clan of Xymox" 1985, Gothic
-"A Day / Stranger (12")" 1985, Gothic
-"Louise / Michelle (7")" 1986, Gothic
-"Muscoviet Musquito (7")" 1986, Gothic
-"Medusa" 1986, Gothic
-"Subsequent Pleasures (re-release)" 1994, Gothic
-"Hidden Faces" 1997, Gothic
-"Out of the Rain (single)" 1997, Gothic
-"This World (single)" 1998, Gothic
-"Creatures" 1999, Gothic
-"Consolation (single)" 1999, Gothic
-"Liberty (single)" 2000, Gothic
-"Live" 2000, Gothic
-"Notes from the Underground" 2001, Gothic
-"There's No Tomorrow (single)" 2002, Gothic
-"Remixes from the Underground" 2002, Gothic
-"Farewell" 2003, Gothic
-"The Best Of (Past And Present)" 2005, Gothic
+synth goth
+
+## Дискография
+
+### "Subsequent Pleasures" 1984, Gothic
+
+Going Round
+Moscovite Musquito
+Strange 9 to 9
+Call it Weird
+Abysmal Thoughts
+
+### "A Day (7")" 1985, Gothic
+
+
+
+### "Clan of Xymox" 1985, Gothic
+
+
+
+### "A Day / Stranger (12")" 1985, Gothic
+
+
+
+### "Louise / Michelle (7")" 1986, Gothic
+
+
+
+### "Muscoviet Musquito (7")" 1986, Gothic
+
+
+
+### "Medusa" 1986, Gothic
+
+
+
+### "Subsequent Pleasures (re-release)" 1994, Gothic
+
+
+
+### "Hidden Faces" 1997, Gothic
+
+1. Out of the Rain
+2. This World
+3. Going Round 97
+4. The child in me
+5. Wailing Wall
+6. It's all a Lie
+7. Sing a Song
+8. Hypocrite
+9. Special Friends
+10. Piano Piece
+11. Your Vice
+12. November
+13. The story ends
+
+### "Out of the Rain (single)" 1997, Gothic
+
+1. Out of the Rain
+2. Going Round
+3. Flatlands
+
+### "This World (single)" 1998, Gothic
+
+1. This World (COX remix) 
+2. Sing A Song
+3. Not For The Money
+4. This World (John A. Rivers remix)
+
+### "Creatures" 1999, Gothic
+
+1. Jasmine and Roses
+2. Crucified 
+3. Taste Of Medicine 
+4. Undermined 
+5. Consolation 
+6. Waterfront 
+7. Creature 
+8. All I Have 
+9. Falling Down 
+10. Without A Name 
+11. Doubts
+
+### "Consolation (single)" 1999, Gothic
+
+1. Consolation
+2. Jasmine & Rose
+3. Reason
+
+### "Liberty (single)" 2000, Gothic
+
+1. Liberty
+2. Number One
+3. At Your Mercy
+4. Liberty (Greg Rule Remix)
+
+### "Live" 2000, Gothic
+
+
+
+### "Notes from the Underground" 2001, Gothic
+
+
+
+### "There's No Tomorrow (single)" 2002, Gothic
+
+
+
+### "Remixes from the Underground" 2002, Gothic
+
+
+
+### "Farewell" 2003, Gothic
+
+
+
+### "The Best Of (Past And Present)" 2005, Gothic
+
+01. There`s No Tomorrow
+All instruments and vocals recorded by Ronny
+Moorings
+Published by Xymox Control (Europe) & Future Music
+(USA)
+First appeared on the album 'Farewell' in 2003
+02. Jasmine And Rose
+Recorded & Mixed by Ronny Moorings @ The Torture
+Chamber 2004
+All instruments and vocals recorded by Ronny
+Moorings
+Published by BMG/UFA Musicverlage
+First appeared on the album 'Creatures' in 1999
+03. I Want You Now**
+New Mix by Ronny Moorings @ The Torture Chamber
+2004
+All instruments and vocals recorded by Ronny
+Moorings
+Published by BMG/UFA Musicverlage
+First appeared on the album 'Creatures' in 1999
+04. A Day*
+Recorded & Mixed by Ronny Moorings @ The Torture
+Chamber 2004
+All instruments and vocals recorded by Ronny
+Moorings
+Bass played by Mojca
+Published by Universal/Momentum Music Ltd
+First appeared on the self titled album 'Clan Of
+Xymox' in 1985
+05. Louise*
+Recorded & Mixed by Ronny Moorings @ The Torture
+Chamber 2004
+All instruments and vocals recorded by Ronny
+Moorings
+Bass played by Mojca
+Published by Universal/Momentum Music Ltd
+First appeared on the album 'Medusa' in 1987
+06. Consolation
+Recorded & Mixed by Ronny Moorings @ The Torture
+Chamber 2004
+All instruments and vocals recorded by Ronny
+Moorings
+Published by BMG/UFA Musicverlage
+First appeared on the album 'Creatures' in 1999
+07. This World
+Recorded & Mixed by Ronny Moorings @ The Torture
+Chamber 2004
+All instruments and vocals recorded by Ronny
+Moorings
+Published by BMG/UFA Musicverlage
+First appeared on the album 'Hidden Faces' in 1997
+08. Innocent
+All instruments and vocals recorded by Ronny
+Moorings
+Published by Xymox Control (Europe) & Future Music
+(USA)
+First appeared on the album 'Notes From The
+Undeground' in 2001
+09. Into Extremes**
+New Mix by Ronny Moorings @ The Torture Chamber
+2004
+All instruments and vocals recorded by Ronny
+Moorings
+Published by Xymox Control (Europe) & Future Music
+(USA)
+First appeared on the album 'Farewell' in 2003
+10. Out Of The Rain
+Recorded & Mixed by Ronny Moorings @ The Torture
+Chamber 2004
+All instruments and vocals recorded by Ronny
+Moorings
+Published by BMG/UFA Musicverlage
+First appeared on the album 'Hidden Faces' in 1997
+11. Muscoviet Musquito*
+Recorded & Mixed by Ronny Moorings @ The Torture
+Chamber 2004
+All instruments and vocals recorded by Ronny
+Moorings
+Bass played by Mojca
+Published by Universal/Momentum Music Ltd
+First appeared on the album 'Subsequent Pleasures'
+in 1984
+12. Back Door*
+Recorded & Mixed by Ronny Moorings @ The Torture
+Chamber 2004
+All instruments and vocals recorded by Ronny
+Moorings
+Bass played by Mojca
+Published by Universal/Momentum Music Ltd
+First appeared on the album 'Medusa' in 1987
+13. Farewell
+All instruments and vocals recorded by Ronny
+Moorings
+Published by Xymox Control (Europe) & Future Music
+(USA)
+First appeared on the album 'Farewell' in 2003
+14. Stranger*
+Recorded & Mixed by Ronny Moorings @ The Torture
+Chamber 2004
+All instruments and vocals recorded by Ronny
+Moorings
+Published by Universal/Momentum Music Ltd
+First appeared on the self titled album 'Clan Of
+Xymox' in 1985
+
 
 ## Отношения с другими группами
 

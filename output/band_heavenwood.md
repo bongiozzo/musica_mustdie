@@ -1,11 +1,130 @@
 # Heavenwood
 
-Дискография
-"Diva" 1996, Death Doom
-"Swallow" 1998, Death Doom
-"Redemption" 2008, Death Doom
-"Abyss Masterpiece" 2011, Death Doom
-"The Tarot Of The Bohemians" 2016, Death Doom
+
+
+## Дискография
+
+### "Diva" 1996, Death Doom
+
+1.  Frozen Images
+2.  Emotional Wound
+3.  Flames Of Vanity
+4.  Since The First Smile
+5.  Tears Of Grief
+6.  Moonlight Girl
+7.  Judith Heavenwood
+[8].Weeping Heart
+[9].Frithiof's Saga
+[10].Lament
+
+[8] - [10] - На стороне B
+
+All songs written by HEAVENWOOD.
+Produced By Gerhard Magin.
+Mixed By Gerhard Magin.
+Recorded & Mixed At Commusication Studio.
+
+Ernesto Guerra - Vocals
+Ricardo Dias - Guitar, Vocals
+Mario Rui Lemos - Guitar
+Bruno Silva - Bass
+Jose Barbosa - Drums
+Joao Soares - Keyboards
+
+(P)(C) 1996 MASSACRE Records
+
+### "Swallow" 1998, Death Doom
+
+1. Heartquake
+2. Soulsister
+3. Rain Of July
+4. Suicidal Letters
+5. Shadowflower
+6. Luna
+7. Season'98
+8. At Once And Forever
+9. DownCast
+
+### "Redemption" 2008, Death Doom
+
+01. 13th Moon 5:17
+02. Me & You 5:30
+03. Bridge To Neverland 5:08
+04. Fragile 4:14
+05. One Step To Devotion 6:02
+06. Foreclosure 5:56
+07. Obsolete 5:36
+08. Her Scent In The Spiral 6:42
+09. Take My Hand 4:50
+10. Slumber 5:06
+
+Ernesto Guerra - vocals
+Ricardo Dias - guitara, vocals
+Bruno Silva - guitars
+
+Produced by HEAVENWOOD and Daniel Cardoso
+Recorded at ULTRASOUND Studios by Daniel Cardoso, Braga, Portugal,
+between February & April 2008
+Assistant Recording Engineer Pedro Mendes
+Mixed and Mastered by Jens Bogren at FASCINATION STREET
+Studios, Orebro, Sweden - April 2008
+Executive Producers: Filipe Marta for AVANTEGARDE
+Management and Manuel Teixeira for RECITAL Records
+Guest Musicians:
+"Redemption" drum tracks played by Daniel Cardoso
+Jeff Waters (Annihilator) guitar-solo on" Bridge to Neverland"
+Gus G (Firewind) guitar-solo on" One Step to Devotion"
+Tijs Vanneste (Oceans Of Sadness) vocals on"Obsolete "
+Female backing vocals by Ana Gomes on" 13thMoon"," Slumber" 
+Female backing vocals by Ana Costa on " Me & You" 
+Female voice by Kristine on" Her Scent On The Spiral"
+Artwork by Jobert Mello - www.jmellodesign.com
+HeavenfixbyWojtekBlasiak
+Covermodel - Sophia, Ribeira Grande/ Acores
+All Band Photos by Rita Carmo
+Studio Photos by Rita Carmo at CUTDESIGN Studios (Vila Nova de Gaia )
+Cover photo by Sophia
+All music by Ricardo Dias and Bruno Silva
+Lyrics by Ernesto Guerra and Ricardo Dias
+All Portuguese dark poetry by Filipe Marta & Heavenwood
+Management & booking by Filipe Marta for
+AVANTEGARDE MNGT, P.O. Box 408,4703 Braga, Portugal
+Fax-+351.253003316, Phone- +351.919051581/ 960066622,
+email: avantegarde.mngt(o)gmail.com
+www.myspace.com/lachispadelamuerte
+
+### "Abyss Masterpiece" 2011, Death Doom
+
+1. The Arcadia Order 04:48  
+2. Morning Glory Clouds (In Manus Tuas Domine) 05:00  
+3. Goddess Presiding Over Solitude 04:25  
+4. Once a Burden 04:03  
+5. Winter Slave 05:26  
+6. Leonor 06:37  
+7. A Poem for Matilde 05:21  
+8. Fading Sun 04:39  
+9. September Blood 04:40  
+10. Sudden Scars 05:57  
+11. Like Yesterday 05:00  
+12. Her Lament 04:19 
+
+
+### "The Tarot Of The Bohemians" 2016, Death Doom
+
+1. The Juggler  06:44    
+2. The High Priestess  06:05  
+3. The Emperor  05:22    
+4. The Pope  04:17 
+5. The Lovers  05:25 
+6. The Empress  04:53  
+7. The Chariot  05:05   
+8. Justice  04:04    
+9. The Hermit  05:21   
+10. The Wheel Of Fortune  04:59 
+11. Strength  05:32  
+12. The Hanged Man  05:07  
+
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,25 @@
 # Alas
 
-Дискография
-"Absolute Purity" 2001, Gothic
+
+
+## Дискография
+
+### "Absolute Purity" 2001, Gothic
+
+01. - Absolute Purity 
+02. - The Enchanted
+03. - Endlessly Searching
+04. - Silencing The Sorrow
+05. - Loss Of A Life 
+06. - Tragedies 
+07. - Quest Of Serenity
+08. - Rejection Of What You Perceive
+09. - Surmounting The Masses
+10. - Longing For Destiny
+
+produced by Erik Rutan
+
+
 
 ## Отношения с другими группами
 

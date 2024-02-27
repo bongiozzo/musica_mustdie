@@ -1,10 +1,76 @@
 # A.C.T
 
-Дискография
-"Today's Report" 1999, Progressive
-"Imaginary Friends" 2001, Progressive
-"Last Epic" 2003, Progressive
-"Silence" 2006, Progressive
+prog rock
+
+## Дискография
+
+### "Today's Report" 1999, Progressive
+
+1. Abandoned World (4:04) 
+2. The Wandering (5:37) 
+3. Waltz with Mother Nature (6:38) 
+4. Why Bother (4:52) 
+5. Today' Report (4:44) 
+6. Welcome (5:50) 
+7. Cat Eyes (4:26) 
+8. The Chase (5:14) 
+Personalities (The long one) 
+1. Foreplay (0:23) 
+2. Piece of Meat (1:15) 
+3. Tinnitus (2:24) 
+4. Lord of Lies (2:24) 
+5. Emely (2:00) 
+6. Insomniac (4:38) 
+7. Concluding Speech (0:34)- Herman Saming / lead vocals, backing vocals, silent trumpet
+- Jerry Sahlin / synthesizers, vocals, backing vocals, vocoder
+- Ola Andersson / guitars, backing vocals
+- Peter Asp / bass, percussion, backing vocals 
+- Tomas Erlandsson / acoustic and electronic drums and percussion, soundscapes, baking machine and swollen kneecap, backing vocals
+
+### "Imaginary Friends" 2001, Progressive
+
+1. Take It Easy 
+2. Hippest Flop 
+3. A Supposed Tour 
+4. Biggest Mistake 
+5. Imaginary Friends 
+6. She-Male 
+7. At The Altar 
+8. Svetlana 
+9. No Perspective 
+10. Second Thoughts 
+11. Mr Unfaithful 
+12. Gamophobia 
+13. Little Beauty 
+14. And They Lived Happily AfterLine-up
+
+- Jerry Sahlin / synthesizers, vocals, backing vocals, vocoder, and synthetic drums (11)
+- Ola Andersson / electric and acoustic guitar, backing vocals
+- Peter Asp / bass, backing vocals
+- Herman Saming / lead vocals, backing vocals, silent trumpet
+- Tomas Erlandsson / drums, percussion, backing vocals; lead vocals and keyboards (14)
+
+### "Last Epic" 2003, Progressive
+
+01 Intro
+02 Wailings From a Building
+03 Mr.Landlord
+04 Torn By a Phrase 
+05 Ted's Ballad
+06 Dance of Mr.Gumble
+07 Wake Up
+08 Manipulator 
+09 A Loaded situation
+10 The Observer
+11 The Cause
+12 The Effect 
+13 Summary
+14 Outro
+
+### "Silence" 2006, Progressive
+
+
+
 
 ## Отношения с другими группами
 

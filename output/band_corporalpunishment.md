@@ -1,7 +1,33 @@
 # Corporal Punishment
 
-Дискография
-"Stonefield Of A Lifetime" 1997, Death Doom
+
+
+## Дискография
+
+### "Stonefield Of A Lifetime" 1997, Death Doom
+
+1.  Remember Me
+2.  Dead Skin
+3.  Wrong Side
+4.  And I Said Now
+5.  No One Knows
+6.  Old Photos
+7.  Short Moments
+8.  Empty
+9.  Justificated ?
+10.+ - 0
+
+Produced by Mikko Karmila.
+Recorded at Soundtrack Studio Laryy Place and MD Studio by Mikko Karmila.
+Mixed at Finnvox Studios by Mikko Karmila..
+
+Ali - Bass, Vocals
+Lare - Guitars
+Yka - Drums
+Nirri - Guitars
+
+(P)(C) 1997 BLACK MARK Productions // BMCD 101
+
 
 ## Отношения с другими группами
 

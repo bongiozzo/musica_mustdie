@@ -1,10 +1,33 @@
 # Ghost
 
-Дискография
-"Opus Eponymous" 2010, Psychedelic
-"Infestissumam" 2013, Psychedelic
-"If You Have Ghost (EP)" 2013, Psychedelic
-"Meliora" 2015, Psychedelic
+
+
+## Дискография
+
+### "Opus Eponymous" 2010, Psychedelic
+
+1. Deus Culpa 01:33 
+2. Con Clavi Con Dio 03:33 
+3. Ritual 04:28 
+4. Elizabeth 04:01 
+5. Stand By Him 03:56 
+6. Satan Prayer 04:38 
+7. Death Knell 04:36 
+8. Prime Mover 03:53 
+9. Genesis 04:03 
+
+### "Infestissumam" 2013, Psychedelic
+
+
+
+### "If You Have Ghost (EP)" 2013, Psychedelic
+
+
+
+### "Meliora" 2015, Psychedelic
+
+
+
 
 ## Отношения с другими группами
 

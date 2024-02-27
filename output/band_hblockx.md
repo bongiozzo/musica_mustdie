@@ -1,8 +1,55 @@
 # H-Blockx
 
-Дискография
-"Time To Move" 1994, Rap Metal
-"Discover My Soul" 1996, Rap Metal
+
+
+## Дискография
+
+### "Time To Move" 1994, Rap Metal
+
+1. Pour Me A Glass
+2. Revolution
+3. Say Baby
+4. Move
+5. Fight The Force
+6. Little Girl
+7. Risin' High
+8. H-Blockx
+9. Real Love
+10.Do What You Wanna Do (Dave Don't Like It)
+11.Go Freaky
+12.Fuck The Facts
+13.Time To Fight
+
+(P)(C) 1994 SING SING / BMG ARIOLA MEDIA
+
+### "Discover My Soul" 1996, Rap Metal
+
+1.  Try Me One More Time
+2.  Gimme More
+3.  Discover My Soul
+4.  How Do You Feel ?
+5.  Heaven
+6.  Step Back
+7.  I Can't Rely On You
+8.  I Heard Him Cry
+9.  This Is Not America
+10.Rainman
+11.Duality Of Mind
+12.Gotta Find A Way
+13.Life Is Feeling Dizzy
+
+Produced By Ralph Quick.
+Trax 1, 3, 4, 5, 7, 8, 10, 11, 12 Mixed By Ralph Quick.
+Trax 2, 6, 9, 13 Mixed By Boogieman.
+
+Henning
+Tim
+Dave
+Gudze
+Mason
+
+(P)(C) 1996 SING SING / BMG ARIOLA MEDIA
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,26 @@
 # Istapp
 
-Дискография
-"Blekinge" 2010, Black Metal
-"Frostbiten" 2015, Black Metal
+
+
+## Дискография
+
+### "Blekinge" 2010, Black Metal
+
+1. Vinterriket 03:26  
+2. Kцldens Union 04:16  
+3. 1160 (Miovik) 03:29  
+4. I Vдntan Pе Den Absoluta Nollpunkten 03:38
+5. Evig Kцld Koncentrerad 03:28  
+6. Snц 03:18
+7. Fjдllhцga Nord 04:03  
+8. Bortgеng Af Alvrцdul, Ljusets Fцrfall 03:51  
+9. - 04:40  
+10. Blekinge 03:48 
+
+### "Frostbiten" 2015, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

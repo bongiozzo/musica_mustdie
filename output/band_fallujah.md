@@ -1,11 +1,40 @@
 # Fallujah
 
-Дискография
-"Leper Colony (EP)" 2009, Deathcore
-"The Harvest Wombs" 2011, Deathcore
-"Nomadic (EP)" 2013, Deathcore
-"The Flesh Prevails" 2014, Deathcore
-"Dreamless" 2016, Deathcore
+
+
+## Дискография
+
+### "Leper Colony (EP)" 2009, Deathcore
+
+
+
+### "The Harvest Wombs" 2011, Deathcore
+
+
+
+### "Nomadic (EP)" 2013, Deathcore
+
+
+
+### "The Flesh Prevails" 2014, Deathcore
+
+
+
+### "Dreamless" 2016, Deathcore
+
+01. Face Of Death (3:30)
+02. Adrenaline (4:21)
+03. The Void Alone (4:18)
+04. Abandon (4:31)
+05. Scar Queen (4:04)
+06. Dreamless (6:18)
+07. The Prodigal Son (4:17)
+08. Amber Gaze (4:32)
+09. Fidelio (2:44)
+10. Wind For Wings (6:14)
+11. Les Silences (5:56)
+12. Lacuna (4:53)
+
 
 ## Отношения с другими группами
 

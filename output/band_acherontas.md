@@ -1,9 +1,43 @@
 # Acherontas
 
-Дискография
-"Tat Tvam Asi (Universal Omniscience)" 2007, Black Metal
-"Theosis" 2010, Black Metal
-"Vamachara" 2011, Black Metal
+
+
+## Дискография
+
+### "Tat Tvam Asi (Universal Omniscience)" 2007, Black Metal
+
+1.	 Alfa: Genesis	03:10	  instrumental
+2.	 Tat Tvam Asi	06:55	 
+3.	 Soma "Elixir of the Ancient Ones"	06:48	 
+4.	 Kali-Yuga	09:44	 
+5.	 Sophia	03:16	 
+6.	 The Final Harvest	06:01	 
+7.	 The Dreamer	08:16	 
+8.	 Omega: The Seal of the Dragon	03:26
+
+### "Theosis" 2010, Black Metal
+
+1.	 bnH cEb kH can A	02:02	  instrumental
+2.	 Pestilence of Mortality	05:02
+3.	 The Winged Skull Rising	08:47
+4.	 Oath of Fealty	06:00	 
+5.	 Legacy of Tiamat	08:16
+6.	 Dreams of Adam Kadmon	04:05	 
+7.	 Theosis	07:33	 
+8.	 Apethantos	05:01	 
+9.	 Finis Coronat	05:04	 
+10.	 Conjuration of the Five Negatives	05:43
+
+### "Vamachara" 2011, Black Metal
+
+1.	 Opening the Eye of the Storm	02:41	 
+2.	 Blood Current Illumination	07:38	 
+3.	 &#913;&#946;&#961;&#945;&#958;&#945;&#962;	05:50	 
+4.	 Vamachara	06:20	 
+5.	 Ohm Krim Kali	06:28	 
+6.	 Beyond the Mazeways to Ophidian Gnosis	05:31	 
+7.	 Drakonian Womb (Double Mem and Single Aleph)	10:54
+
 
 ## Отношения с другими группами
 

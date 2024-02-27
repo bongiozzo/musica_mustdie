@@ -1,8 +1,26 @@
 # Helrunar
 
-Дискография
-"Frostnacht" 2005, Black Metal
-"Baldr Ok Iss" 2008, Black Metal
+
+
+## Дискография
+
+### "Frostnacht" 2005, Black Metal
+
+
+
+### "Baldr Ok Iss" 2008, Black Metal
+
+01. Dickichtgott
+02. Loka Logsaga
+03. Schwarzer Frost
+04. Baldr
+05. Iss
+06. Winter
+07. Glamr
+08. Hunta and Boga
+09. Til Jardar
+10. Baldrs Draumar
+
 
 ## Отношения с другими группами
 

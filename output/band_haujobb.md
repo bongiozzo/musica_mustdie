@@ -1,10 +1,88 @@
 # Haujobb
 
-Дискография
-"Homes & Gardens" 1993, Industrial
-"Eye Over You" 1995, Industrial
-"Freeze Frame Reality" 1996, Industrial
-"Frames" 1996, Industrial
+
+
+## Дискография
+
+### "Homes & Gardens" 1993, Industrial
+
+1. Haujobb's State - 5:43 
+2. Maternal Instict - 3:44 
+3. Yearning - 4:59 
+4. Eye Over You - 3:42 
+5. Final Race - 3:51 
+6. Kilo-Cycle Respirator - 4:06 
+7. Tame - 4:00 
+8. Slugbait - 4:46 
+9. The Flood - 5:51 
+10. Homes And Gardens (MY-1) - 5:25 
+11. Skull Fission XXX - 4:41 
+12. Mediaeval - 9:48 
+13. Homes And Gardens (Optimized v1.2) - 5:36 
+14. Skull Fission (Not Silent) - 4:49 
+
+(p)1995 Pendragon
+
+### "Eye Over You" 1995, Industrial
+
+1. Eye Over You (Extended Surveillance)
+2. Sepsis
+3. Friction
+4. Eye Over You (Re-Constructed By CLOCK DVA)
+
+(P)&(C) 1995 OFF BEAT Records
+
+### "Freeze Frame Reality" 1996, Industrial
+
+1. Solid State Logic
+2. Dream Aid
+3. Consciousness
+4. Perfect Average
+5. Nezzwerk
+6. Trivial
+7. World Window
+8. Cold Comfort
+9. Analysis
+[10]. Sensor
+
+[10] - Ha cтopoнe B
+
+All songs written by HAUJOBB
+All tracks constructed, produced and
+mixed by HAUJOBB
+Engineered at Electric Sun with
+N.O.D.Y.
+
+HAUJOBB are :
+B.Junemann
+Deian S.
+D.Meici
+
+(p)(c) 1996 OFF BEAT Records
+
+### "Frames" 1996, Industrial
+
+1. Dream Aid (High and Low Frequent)
+2. Cold Comfort (Scrap Yard)
+3. Dream Aid (Different Species)
+4. Cold Comfort (Frozen)
+5. Yearning (Sub Merged)
+6. A4 - Main Title
+
+All songs written by HAUJOBB
+All tracks constructed, produced and
+mixed by HAUJOBB
+Engineered at Electric Sun with
+N.O.D.Y.
+
+HAUJOBB are:
+                                                                  -
+B.Junemann
+Deian S.
+D.Meier
+
+(p)(c) 1996 OFF BEAT Records
+
 
 ## Отношения с другими группами
 

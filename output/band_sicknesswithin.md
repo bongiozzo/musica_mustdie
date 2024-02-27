@@ -1,7 +1,15 @@
 # Sickness Within
 
-Дискография
-"Constructed Hate [EP]" 2010, Metalcore
+
+
+## Дискография
+
+### "Constructed Hate [EP]" 2010, Metalcore
+
+1. Cold Sweat Mourning
+2. Constructed Hate
+3. Grey Life, Grey Death
+
 
 ## Отношения с другими группами
 

@@ -1,11 +1,134 @@
 # Serenity
 
-Дискография
-"Words Untold & Dreams Unlived" 2007, Progressive
-"Fallen Sanctuary" 2008, Progressive
-"Death & Legacy" 2011, Progressive
-"War of Ages" 2013, Progressive
-"Codex Atlanticus" 2016, Progressive
+
+
+## Дискография
+
+### "Words Untold & Dreams Unlived" 2007, Progressive
+
+01. Canopus 3
+02. Thriven
+03. Dreams Unlived (instr.)
+04. Reduced To Nothingness
+05. Forever
+06. Dead Man Walking
+07. From Where The Dark Is Born
+08. Words Untold (instr.)
+09. Circle Of My 2nd Life
+10. Engraved Within
+
+Georg Neuhauzer - lead & backing vocals
+Thomas Buchberger - rhythm & lead guitars
+Mario Hirzinger - keys & backing vocals
+Simon Holzknecht - bass
+Andreas Schipfinger - drums & backing vocals
+
+Produced & engineered in 2006 by Jan Vacik.
+Recorded at Dreamscape Studios in munich.
+Additional recordings at Serenity Studios by Thomas Buchberger.
+Mixed by Teropekka Virtanen and Jan Vacik at Finnvox Studios, Helsinki.
+Mastered by Mikka Jussila at Finnvox Studios, Helsinki.
+All songs by Buchberger/Hirzinger/Neuhauzer, arranged by Serenity.
+"Dead Man Walking" written by Anker/Hirzinger/Buchberger/Neuhauzer.
+Choir arrangements by Franz-Josef Hauser and Roman Hauser.
+Guest guitar solos by Lanvall (Edenbridge) on "Forever" and "Thriven".
+Shouts & growls by Axumis/Maggo Wenzel (tristwood/Inzest).
+Orchestration by Hans Valter In Prague.
+Artwork and layout by Spiros Antoniou (SetdEsign).
+Photography by Caroline Traitler.
+
+### "Fallen Sanctuary" 2008, Progressive
+
+01. All Lights Reversed
+02. Rust Of Coming Ages
+03. Coldness Kills
+04. To Stone She Turned
+05. Fairytales
+06. The Heartblood Symphony
+07. Velatum
+08. Derelict
+09. Sheltered (By The Obscure)
+10. Oceans Of Ruby
+
++ "Velatum" music video
+
+Georg Neuhauser (vocals)
+Andreas Schipflinger (drums)
+Simon Holzknecht (bass)
+Mario Hirzinger (keys, backing vocals)
+Thomas Buchberger (guitars)
+
+All songs written by Buchberger, Hirzinger and Neuhauser
+Arranged by Serenity, Jan Vacik and Oliver Philipps
+Orchestral arrangements and additional keyboards by Oliver 'Mr. Monstermail' Philipps at Spacelab Studios (www.spacelab-studio.com )
+Drum and bass recordings and additional pianos by Jan Vacik at Dreamscape Studios (www.dreamscape-studios.de )
+Choir arrangements and vocal recordings by Lanvall 
+Guitar and guest vocal recordings by Thomas Buchberger
+Keyboard recordings by Mario Hirzinger
+Female vocals performed by Sandra Schleret
+Death vocals performed by Maggo Wenzel
+All backing vocals on this recording performed by Georg Neuhauser
+
+Additional hours of clipping and editing by Jan Vacik
+Mix and mastering by Jacob Hansen at Hansen Studios (www.jacobhansen.com )
+
+All photos by Caroline Traitler (www.photopit.com)
+All artwork and logos by Gustavo Sazes (www.abstrata.net )
+
+### "Death & Legacy" 2011, Progressive
+
+1. Set Sail To... (Intro) 00:29  
+2. New Horizons 06:49  
+3. The Chevalier 05:32  
+4. Far From Home 04:48  
+5. Heavenly Mission 05:24  
+6. Prayer (Interlude) 01:22  
+7. State Of Siege 06:48  
+8. Changing Fate 05:42  
+9. When Canvas Starts To Burn 04:48  
+10. Serenade Of Fiames 04:55  
+11. Youngest Of Widows 04:08  
+12. Below Eastern Skies (Interlude) 01:35  
+13. Beyond Desert Sands 04:54  
+14. To India's Shores 04:34  
+15. Lament (Interlude) 00:40  
+16. My Legacy 04:45 
+
+### "War of Ages" 2013, Progressive
+
+1. Wings of Madness  05:51   
+2. The Art of War  05:08   
+3. Shining Oasis  05:08  
+4. For Freedom's Sake  04:35   
+5. Age of Glory  06:38   
+6. The Matricide  04:56  
+7. Symphony for the Quiet  04:57  
+8. Tannenberg  05:49  
+9. Legacy of Tudors  05:01   
+10. Royal Pain  04:46   
+11. Fairytales (Piano Version)  * 04:29  
+12. Love of my Life (Queen cover)  * 03:50 
+
+ All music & lyrics by Serenity
+ Bass guitar recordings at Artesonika studios
+ Mixed and mastered at Dreamsound studios
+
+
+### "Codex Atlanticus" 2016, Progressive
+
+1. Codex Atlanticus      
+2. Follow Me     
+3. Sprouts of Terror      
+4. Iniquity   
+5. Reason      
+6. My Final Chapter     
+7. Caught in a Myth      
+8. Fate of Light      
+9. The Perfect Woman      
+10. Spirit in the Flesh    
+11. The Order 
+
+
 
 ## Отношения с другими группами
 

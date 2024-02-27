@@ -1,10 +1,72 @@
 # Ens Cogitans
 
-Дискография
-"Heart Of The Way" 1996, Doom
-"Re-Vision / Pinnacle's Obsession" 1999, Doom
-"Disangelium" 2002, Progressive
-"Deigital Conflict" 2006, Progressive
+Russian Progressive Doom Metal
+
+## Дискография
+
+### "Heart Of The Way" 1996, Doom
+
+1. Stone Rill:
+a) Grain Of Sand (Intro)
+b) Stone Rill
+2. Fire From Within
+3. Search OF Kalokagathy (Original Version)
+4. Heart Of The Way:
+a) Prologue
+b) Heart 
+c) Epilogue
+5. As The Heartbeat Evanishes In A Secret Moonlight Garden
+6. Through The Moonlight 
+
+
+### "Re-Vision / Pinnacle's Obsession" 1999, Doom
+
+1. Cage 
+2. As I Want 
+3. Dying In Your Hands Again 
+4. Cage (Oversun Edit)
+5. No Place To Burn
+6. In My Single Day
+7. Sacred Sin ( I Feel ) 
+8. Way Out
+9. Falling
+
+
+### "Disangelium" 2002, Progressive
+
+01. Suspiria
+02. Desert Of Rain
+03. All My Born Days
+04. Ground' Salt
+05. Canticles
+06. Karma
+
+Oleg Alimov - vocals
+Dmitry Kezhvatov - guitars
+Dmitry Lobanov - bass
+Sergey Ponkratiev - guitars
+Roman Shmelev - drums
+
+Music by Ens Cogitans
+Lyrics by Oleg
+Recorded through 2001-2002 at both Red Rose Studio
+(drums) and P&A DS Studio
+Mixed and mastered at P&A DS Studio, 2002
+Design and layout by Konstantin 'Bonez' Viktorov
+
+### "Deigital Conflict" 2006, Progressive
+
+1. Deigital Conflict 05:08 
+2. Last Chance To Die In Time 06:14 
+3. Just Another Way Home 05:29  
+4. Recapping 02:07  
+5. One Wish For Me 05:07  
+6. Lake Of Perception (OWFM Trance Edit) 06:43  
+7. Call My Name 04:50 
+8. Rabbit And The Hole 05:46 
+9. Sun In My Chest (Dancing Heh Kuh Rahs) 08:36 
+
+
 
 ## Отношения с другими группами
 

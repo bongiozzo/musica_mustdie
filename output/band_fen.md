@@ -1,8 +1,30 @@
 # Fen
 
-Дискография
-"The Malediction Fields" 2009, Black Metal
-"Epoch" 2011, Black Metal
+
+
+## Дискография
+
+### "The Malediction Fields" 2009, Black Metal
+
+1. Exile's Journey 08:08
+2. A Witness to the Passing of Aeons 07:07
+3. Colossal Voids 08:32
+4. As Buried Spirits Stir 06:58
+5. The Warren 07:10 
+6. Lashed by Storm 08:54
+7. Bereft 11:49 
+
+### "Epoch" 2011, Black Metal
+
+1. Epoch 06:18
+2. Ghosts of the Flood 06:25
+3. Of Wilderness and Ruin 08:18 
+4. The Gibbet Elms 06:29
+5. Carrier of Echoes 10:38
+6. Half-Light Eternal 08:22
+7. A Warning Solace 09:51
+8. Ashbringer 08:34 
+
 
 ## Отношения с другими группами
 

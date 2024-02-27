@@ -1,7 +1,30 @@
 # Circle of Dust
 
-Дискография
-"Brainchild" 1995, Industrial
+
+
+## Дискография
+
+### "Brainchild" 1995, Industrial
+
+1. Cranial Tyrant
+2. Telltale Crime
+3. Prayers Of A Dead Man
+4. Regressor (Aggressive Mix)
+5. Enshrined
+6. Course Of Ruin
+7. Descend
+8. Deviate
+9. Pale Reflection
+
+ Scott Albert - Vocals, Guitars, Bass, Drums, Programming
+
+All Music Bu Scott Albert
+Produced By Scott Albert & Doug Mann
+Engineered By Martin Woodlee
+Recorded At The Sphere "Fear" Room, Quad Studios, Nashville, TN
+
+(p)&(c) 1995 R.E.X. Music Inc.
+
 
 ## Отношения с другими группами
 

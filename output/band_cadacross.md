@@ -1,8 +1,71 @@
 # Cadacross
 
-Дискография
-"So Pale is the Light" 2001, Melodic Death Metal
-"Corona Borealis - The Northern Crown" 2002, Melodic Death Metal
+
+
+## Дискография
+
+### "So Pale is the Light" 2001, Melodic Death Metal
+
+1. Intro
+2. Twilight 
+3. So Pale is the Light 
+4. Battle of North 
+5. Might of Sword 
+6. Dawn Breaks Behind My Eyes 
+7. Turmion Taival 
+8. Forest Remains Victor (bonus)
+9. King Of Grim (bonus)
+10. Flaming Ember (bonus)
+
+
+
+Georg Laakso: Guitars & Vocals
+Tommi Saari: Guitars 
+Mathias Nygеrd: Keyboards 
+Jarkko Lemmetty: Bass 
+Janne Salo: Drums 
+
+
+### "Corona Borealis - The Northern Crown" 2002, Melodic Death Metal
+
+1. The Northern Crown (2.14)
+2. Among The Stars (4.16) 
+3. Learn The Dark (4.37) 
+4. Flaming Ember (4.12) 
+5. Morningstar (4.52) 
+6. Forest Remains Victor (4.29) 
+7. Bring Out Your Dead (3.35) 
+8. Kings of Grim (5.43) 
+9. Wreath of Seven Star (4.42) 
+10. Turmion Taival (8.17) 
+11. Wreath Of Seven Stars (4:42) - bonus track
+
+
+All music Written by Georg Laakso except the northern crown by Ventola & Laakso.
+All Lyrics Written By Sami Aarnio.
+
+Recorded at Watercastle studios by Arttu Sarvanne.
+Recorded At Steeltrack Studios by Georg Laakso.
+Mixed by Mikko Oinonen at Soundstation.
+Mastered By Mika Jussila St Finnvox Studios.
+
+
+Sami Aarnio - Vocals
+Georg Laakso - Guitar
+Tino Ahola - Guitar
+Jukka-Pekka Miettinen - Bass
+Antti Ventola - Keyboards
+Kimmo Miettinen - Drums
+Nina Laakso - Vocals
+
+Additional musicians:
+Jari Moenpaa - Guitar
+Jukka Salo - Vocals
+Riku Ylitalo - Accordion
+
+
+
+
 
 ## Отношения с другими группами
 

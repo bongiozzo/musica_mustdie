@@ -1,7 +1,13 @@
 # Uaral
 
-Дискография
-"Uaral - Sounds Of Pain" 2004, Gothic
+doom-folk project coming from the south of Chile
+
+## Дискография
+
+### "Uaral - Sounds Of Pain" 2004, Gothic
+
+
+
 
 ## Отношения с другими группами
 

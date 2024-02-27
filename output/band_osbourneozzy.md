@@ -1,21 +1,273 @@
 # Osbourne, Ozzy
 
-Дискография
-"Blizzard Of Ozz" 1980, Heavy Metal
-"Diary Of A Madman" 1981, Heavy Metal
-"Bark At The Moon" 1983, Heavy Metal
-"The Ultimate Sin" 1986, Heavy Metal
-"No Rest For The Wicked" 1988, Heavy Metal
-"Just Say Ozzy" 1989, Heavy Metal
-"No More Tears" 1991, Heavy Metal
-"Live & Loud" 1993, Heavy Metal
-"Ozzmosis" 1995, Heavy Metal
-"See You On The Other Side" 1996, Heavy Metal
-"The Ozzman Cometh" 1997, Heavy Metal
-"Down to Earth" 2001, Heavy Metal
-"Black Rain" 2007, Heavy Metal
-"Let Me Hear You Scream (single)" 2010, Heavy Metal
-"Scream" 2010, Heavy Metal
+Metal legend
+
+## Дискография
+
+### "Blizzard Of Ozz" 1980, Heavy Metal
+
+1.  I Don't Know
+2.  Crazy Train
+3.  Goodbye To Romance
+4.  Dee
+5.  Suicide Solution
+6.  Mr. Crowley
+7.  No Bone Movies
+8.  Revelation (Mother Earth)
+9.  Steal Away (The Night)
+
+(P)c 1980
+
+### "Diary Of A Madman" 1981, Heavy Metal
+
+1.  Over The Mountain
+2.  Flying High Again
+3.  You Can't Kill Rock'N'Roll
+4.  Believer
+5.  Little Dolls
+6.  Tonight
+7.  S.A.T.O.
+8.  Diary Of A Madman
+
+Ozzy Osbourne - Vocals
+Randy Rhoads - Guitar
+Tommy Aldridge - Drums
+Rudy Sarzo - Bass
+
+(P)c 1981
+
+### "Bark At The Moon" 1983, Heavy Metal
+
+1.  Bark At The Moon
+2.  You're Not Different
+3.  Now You See It (Now You Don't)
+4.  Rock'N'Roll Rebel
+5.  Centre Of Eternity
+6.  So Tired
+7.  Slow Down
+8.  Waiting For Darkness
+9.  Spiders In The Night
+
+Produced By Osbourne/ Daisley /Norman.
+Mixed By Toni Bongiovi At Power Station, NY.
+
+Ozzy Osbourne - Vocals
+Tommy 'E' Lee - Guitar
+Tommy Aldridge - Drums
+Bob Daisley - Bass
+Don Airey - Keyboards
+
+(P)c 1983
+
+### "The Ultimate Sin" 1986, Heavy Metal
+
+1.  The Ultimate Sin
+2.  Secret Loser
+3.  Never Know Why
+4.  Thank God For The Bomb
+5.  Never
+6.  Lightning Strikes
+7.  Killer Of Giants
+8.  Fool Like You
+9.  Shot In The Dark
+
+Ozzy Osbourne - Vocals
+Jake E. Lee - Guitar
+Randy Castillo - Drums
+Phil Soussan - Bass
+
+(P)c 1986, 1995 SONY Music Entertainment
+
+### "No Rest For The Wicked" 1988, Heavy Metal
+
+1.  Miracle Man
+2.  Devil's Daughter
+3.  Crazy Babies
+4.  Breaking All The Rules
+5.  Bloodbath In Paradise
+6.  Tattoed Dancer
+7.  Demon Alcohol
+8.  Hero
+
+Produced By Keith Olsen & Roy Thomas Baker.
+All Tracks Mixed By Keith Olsen.
+
+(P)c 1988 CBS Records
+
+### "Just Say Ozzy" 1989, Heavy Metal
+
+1. Miracle Man
+2. Bloodbath In Paradise
+3. Shoot In The Dark
+4. Tattooed Dancer
+5. Sweet Leaf
+6. War Pigs
+
+Ozzy Osbourne - Vocals
+Zakk Wylde - Guitar
+Randy Castillo - Drums
+Geezer Butler - Bass
+
+(P)&(C) 1989 SONY MUSIC Entertainment
+
+### "No More Tears" 1991, Heavy Metal
+
+1.  Mr.Tinkertrain
+2.  I Don't Want To Change The World
+3.  Mama, I'm Coming Home
+4.  Desire
+5.  No More Tears
+6.  S.I.N.
+7.  Hellraiser
+8.  Time After Time
+9.  Zombie Stomp
+10.A.V.H.
+11.Road To Nowhere
+
+Ozzy Osbourne - Vocals
+Zakk Wylde - Guitar
+Randy Castillo - Drums
+Bob Daisley - Bass
+John Sinclair - Keyboards
+Michael Inez - Bass / Inspiration & Musical Direction
+
+(P)&(C) 1991 EPIC Records
+
+### "Live & Loud" 1993, Heavy Metal
+
+1. Intro
+2. Paranoid
+3. I Don't Want to Change the World
+4. Desire
+5. Mr. Crowley
+6. I Don't Know
+7. Road to Nowhere
+8. Flying High Again
+9. Guitar Solo
+10. Suicide Solution
+11. Goodbye to Romance
+
+12. Shot in the Dark
+13. No More Tears
+14. Miracle Man
+15. Drum Solo
+16. War Pigs
+17. Bark at the Moon
+18. Mama, I'm Coming Home
+19. Crazy Train
+20. Black Sabbath
+21. Changes  
+
+### "Ozzmosis" 1995, Heavy Metal
+
+1. Perry Mason
+2. I Just Want You
+3. Ghost Behind My Eyes
+4. Thunder Underground
+5. See You On The Other Side
+6. Tomorrow
+7. Denial
+8. My Little Man
+9. My Jekyll Doesn't Hide
+10.Old L.A. Tonight
+
+Ozzy Osbourne - Vocals
+Geezer Butler - Bass
+Zakk Wylde - Guitars
+Deen Castronovo - Drums
+Rick Wakeman - Keyboards
+Michael Beinhorn - Keyboards
+
+Produced By Micahel Beinhorn.
+
+(P)&(C) 1995 SONY MUSIC Entertainment
+
+### "See You On The Other Side" 1996, Heavy Metal
+
+1. See You On The Other Side (Short Version)
+2. Voodoo Dancer
+3. Living With The Enemy
+4. Perry Mason (Edit)
+
+Ozzy Osbourne - Vocals
+Geezer Butler - Bass
+Zakk Wylde - Guitars
+Deen Castronovo - Drums
+Rick Wakeman - Keyboards
+Michael Beinhorn - Keyboards
+
+Produced By Micahel Beinhorn.
+
+(P)&(C) 1996 SONY MUSIC Entertainment
+
+### "The Ozzman Cometh" 1997, Heavy Metal
+
+1. Black Sabbath
+2. War Pigs
+3. Goodbye to Romance
+4. Crazy Train
+5. Mr. Crowley
+6. Over the Mountain
+7. Paranoid (Live)
+8. Bark at the Moon
+9. Shot in the Dark
+10. Crazy Babies
+11. No More Tears (Edit)
+12. Mama, I'm Coming Home
+13. I Don't Want to Change the World (Live)
+14. I Just Want You
+15. Back on Earth
+16. Fairies Wear Boots
+17. Behind the Wall of Sleep
+18. Interview With Ozzy (1988)
+
+
+### "Down to Earth" 2001, Heavy Metal
+
+Gets Me Through
+Facing Hell
+Dreamer
+No Easy way Out
+That I Never Had
+You Know…
+Junkie
+Running Out of Time
+Black Illusion
+Alive
+Can You Hear Them
+
+
+### "Black Rain" 2007, Heavy Metal
+
+1. I Don't Wanna Stop (First single)
+2. Not Going Away
+3. Thank God For The Almighty Dollar
+4. Civilize The Universe
+5. Black Rain
+6. Countdown's Begun
+7. Trap Door
+8. Here for You
+9. Lay Your World Down on Me
+10. 11 Silver
+
+### "Let Me Hear You Scream (single)" 2010, Heavy Metal
+
+1. Let Me Hear You Scream 03:26 
+
+### "Scream" 2010, Heavy Metal
+
+1. Let It Die 06:05
+2. Let Me Hear Your Scream 03:26
+3. Soul Sucker 04:22
+4. Life Won't Wait 05:07
+5. Diggin' Me Down 06:03
+6. Crucify 03:30
+7. Fearless 03:42
+8. Time 05:31
+9. I Want It More 05:37
+10. Latimer's Mercy 04:27
+11. I Love You All 01:03 
+
 
 ## Отношения с другими группами
 

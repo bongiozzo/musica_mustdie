@@ -1,8 +1,28 @@
 # Nervosa
 
-Дискография
-"Time Of Death (EP)" 2012, Thrash
-"Victim Of Yourself" 2014, Thrash
+
+
+## Дискография
+
+### "Time Of Death (EP)" 2012, Thrash
+
+
+
+### "Victim Of Yourself" 2014, Thrash
+
+01. Intro
+02. Twisted Values
+03. Justice Be Done
+04. Wake Up And Fight
+05. Nasty Injury
+06. Envious
+07. Morbid Courage
+08. Death
+09. Into Mosh Pit
+10. Deep Misery
+11. Victim Of Yourself
+12. Uranio Em Nos 
+
 
 ## Отношения с другими группами
 

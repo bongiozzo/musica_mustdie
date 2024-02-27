@@ -1,7 +1,31 @@
 # Sabu
 
-Дискография
-"Heartbreak" 1985, Hard Rock
+melodic hard/glam
+
+## Дискография
+
+### "Heartbreak" 1985, Hard Rock
+
+1. Angeline 
+2. Call Of The Wild 
+3. Shake, Rattle, Roll 
+4. Just For The Moment 
+5. Hot Flash 
+6. Heartbreak 
+7. Tuff Stuff 
+8. Still Alive 
+9. Breakin? Out 
+10. New Girl In Town 
+11. Cassie 
+12. Shake It Out 
+13. Street Angel 
+
+
+Paul Sabu - lead vocals, guitar 
+Dan Ellis - keys 
+Charles J. Esposito - drums 
+Rick Bozzo - bass
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,13 @@
 # Dissector (RUS)
 
-Дискография
-"Cry For Me" 2007, Melodic Death Metal
+THE LUST member
+
+## Дискография
+
+### "Cry For Me" 2007, Melodic Death Metal
+
+
+
 
 ## Отношения с другими группами
 

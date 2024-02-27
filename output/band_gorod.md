@@ -1,12 +1,106 @@
 # Gorod
 
-Дискография
-"Neurotripsicks" 2005, Techno Death
-"Leading Vision" 2006, Techno Death
-"Process of a New Decline" 2009, Techno Death
-"Transcendence" 2011, Techno Death
-"A Perfect Absolution" 2012, Techno Death
-"A Maze of Recycled Creeds" 2015, Techno Death
+
+
+## Дискография
+
+### "Neurotripsicks" 2005, Techno Death
+
+1. Intro / Gorod Rises Up (1:23)
+2. Gutting Job (3:55)
+3. Smoked Skulls (4:00)
+4. Hunt to the Weaks (4:23)
+5. Beware of Tramps (4:42)
+6. Pig's Bloated Face (5:27)
+7. Rusted Nails Attack (5:15)
+8. Harmony in Torture (5:26)
+9. Earth Pus (4:38)
+10. Neuronal Disorder State (5:45)
+11. Gorod (1999) (3:43)
+12. Submission Transfer (2005) (2:31)
+
+
+### "Leading Vision" 2006, Techno Death
+
+1. Here Die Your Gods 04:35 
+2. Thirst For Power 03:09 
+3. Blackout 04:46 
+4. Chronicle From The Stone Age 03:18 
+5. Life Controller 04:43 
+6. Edaenia 2312 05:27 
+7. State Of Secret 04:24 
+8. Eternal Messiah 03:12 
+9. Obsequium Minaris 03:53 
+10. Hidden Genocide 05:20
+
+
+### "Process of a New Decline" 2009, Techno Death
+
+1. Disavow Your God 05:02 
+2. Programmers of Decline 05:11 
+3. Diverted Logic 04:58 
+4. Rebirth of Senses 04:05 
+5. The Path 03:44 
+6. Splinters of Life 05:20 
+7. Guilty of Dispersal 04:23 
+8. Gilded Cage 03:25 
+9. A Common Hope 04:16 
+10. Watershed 05:05 
+11. Almighty Murderer 04:35
+
+
+Arnaud - Guitar (Trarko) 
+Barby - Bass (Voracious Gangrene) 
+Guillaume - Vocals (Voracious Gangrene) 
+Mathieu - Guitar 
+Sam - Drums (Zubrowska) 
+
+
+### "Transcendence" 2011, Techno Death
+
+01. Earth Pus 03:53 
+02. Earth Pus (Salvation) 05:28 
+03. Blackout (Renewed Souls) 04:11 
+04. Textures (Cynic cover) 04:49 
+05. Transcendence (feat. Ross Dolan) 15:22
+
+
+First pressing on digipak. Originally planned to be released along with a bonus DVD, but for budget reasons this didn't happen.
+ 
+ Track 1 is a new version of "Earth Pus", recorded in Spring 2010.
+ Track 2 is a new acoustic version of "Blackout".
+ Track 3 is a Cynic cover.
+ Track 4 is a new acoustic version of "Earth Pus".
+ Track 5 is a new song. 
+
+### "A Perfect Absolution" 2012, Techno Death
+
+1. Birds Of Sulphur 
+2. Sailing Into The Earth 
+3. Elements And Spirit 
+4. The Axe Of God 
+5. 5000 At The Funeral 
+6. Carved In The Wind 
+7. Varangian Paradise 
+8. Tribute Of Blood 
+
+
+### "A Maze of Recycled Creeds" 2015, Techno Death
+
+1. Air de l'Ordre  00:58  
+2. Temple to the Art-God  03:21 
+3. Celestial Nature  04:26  
+4. Inner Alchemy  06:13   
+5. The Mystic Triad of Artistry  05:08   
+6. An Order to Reclaim  04:31  
+7. From Passion to Holiness  05:46   
+8. Dig into Yourself  03:20   
+9. Rejoice Your Soul  04:50   
+10. Syncretic Delirium  05:07   
+11. An Order to Reclaim (Alternative Version)  04:15  
+12. Celestial Nature (Alt. Tracking)  
+
+
 
 ## Отношения с другими группами
 

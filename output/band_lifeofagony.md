@@ -1,11 +1,76 @@
 # Life Of Agony
 
-Дискография
-"River Runs Red" 1993, Alternative
-"Ugly" 1995, Alternative
-"Soul Searching Sun" 1997, Alternative
-"River Runs Again - Live 2003" 2003, Alternative
-"Broken Valley" 2005, Alternative
+
+
+## Дискография
+
+### "River Runs Red" 1993, Alternative
+
+1. This Time
+2. Underground
+3. Monday
+4. River Runs Red
+5. Through & Through
+6. Words & Music
+7. Bad Seed
+8. Respect
+9. Method Of Groove
+10.The Stain Remains
+11.Friday
+
+ Keith Capulo - Lead Vocals & Keyboards, Guitars
+ Joey Z. - Guitar & Vocals
+ Alan Robert - Bass & Vocals
+ Sal Abruscato - Drums
+
+All Music By LIFE OF AGONY.
+All Lyrics By Alan Robert.
+Produced By Josh Silver.
+Engineered By Ed Reed & Joe Marciano.
+Recorded & Mixed At Systems Two,Brooklyn,NY.
+
+(p)&(c) 1994 ROADRUNNER Prod. B.V.
+
+### "Ugly" 1995, Alternative
+
+1. Seasons
+2. I Regret
+3. Lost At 22
+4. Other Side Of The River
+5. Let's Pretend
+6. Ugly
+7. Drained
+[8].How It Would Be
+9. Unstable
+10.Damned If I Do
+11.Don't You (Forget About Me)
+
+{8] На Стороне B
+
+All Songs By LIFE OF AGONY.
+Produced By Steve Thompson.
+Engineered By Mike Marciano & Eddie Reed.
+Recorded At Systems Two, Brooklyn, NY.
+
+Keith Caputo - Lead Vocals
+Sal Abruscato - Drums
+Alan Robert - Bass
+Joey Z. - Lead & Rhythm Guitars
+
+(P)&(C) 1995 ROADRUNNER Records
+
+### "Soul Searching Sun" 1997, Alternative
+
+
+
+### "River Runs Again - Live 2003" 2003, Alternative
+
+
+
+### "Broken Valley" 2005, Alternative
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,25 @@
 # Markize
 
-Дискография
-"Transparence" 2007, Gothic
+
+
+## Дискография
+
+### "Transparence" 2007, Gothic
+
+1. Mon Ange 04:51
+2. Another Breath 04:20
+3. In my Dream 05:01
+4. PoussiЁЁres de Vie 04:19
+5. In the Obscure... 01:28
+6. ...Believe 05:08
+7. Paperdoll 03:56
+8. Pardonne-moi 04:45
+9. Will You be Here 04:35 
+10. Позвони мне, позвони 04:07
+11. Etheral 00:37  
+12. No More Life 04:56
+13. Transparence 05:08 
+
 
 ## Отношения с другими группами
 

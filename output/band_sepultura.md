@@ -1,28 +1,515 @@
 # Sepultura
 
-Дискография
-"Bestial Devastation" 1985, Thrash
-"Morbid Visions" 1986, Thrash
-"Schizophrenia" 1987, Thrash
-"Beneath The Remains" 1989, Thrash
-"Under Siege" 1991, Thrash
-"Arise" 1991, Thrash
-"Chaos A.D." 1993, Thrash
-"Slave New World" 1994, Thrash
-"Kaiowas" 1995, Thrash
-"Roots" 1996, Thrash
-"Roots Bloody Roots" 1996, Thrash
-"Against" 1998, Thrash
-"Nation" 2001, Thrash
-"No Coracao Dos Deuses / In The Heart Of The Gods" 2002, Thrash
-"Under A Pale Grey Sky" 2002, Thrash
-"Roorback" 2003, Alternative
-"Dante XXI" 2006, Alternative
-"A-Lex" 2009, Thrash
-"Kairos" 2011, Thrash
-"The Age of the Atheist (single)" 2013, Thrash
-"The Mediator Between Head and Hands Must Be the Heart" 2013, Thrash
-"Machine Messiah" 2017, Thrash
+Legend of Brazil Death-Thrash
+
+## Дискография
+
+### "Bestial Devastation" 1985, Thrash
+
+1. The Curse
+2. Bestial Devastation
+3. Antichrist
+4. Necromancer
+5. Warriors Of Death
+
+ Max - Vocal & Guitar
+ Igor - Drums
+ Paulo Jr. - Bass
+ Jairo T. - Guitar
+
+Produced By SEPULTURA,Cogumelo Producoes.
+
+(p)&(c) 1985 COGUMELO Producoes
+
+### "Morbid Visions" 1986, Thrash
+
+1. Intro
+2. Morbid Visions
+3. Mayhem
+4. Troops Of Doom
+5. War
+6. Crucifixion  *
+7. Show Me The Wrath
+8. Funeral Rites
+9. Empire Of The Damned
+
+ Max - Vocal & Guitar
+ Igor - Drums
+ Paulo Jr. - Bass
+ Jairo T. - Guitar / Vocal On *
+
+Produced By SEPULTURA,Cogumelo Producoes.
+
+(p)&(c) 1986,1987 SHARK Records
+
+### "Schizophrenia" 1987, Thrash
+
+1. From The Past Comes The Storms +
+2. To The Wall  *+
+3. Escape To The Voids
+4. Inquisition Symphony
+5. Screams Behind Shadows
+6. Septic Schizo
+7. The Abyss
+8. R.I.P. (Rest In Pain)
+9. Troops Of Doom (Bonus Track)
+
+ Max Cavalera - Vocals & Rhythm Guitar
+ Andreas Kisser - Lead,Acoustic Guitar, B.Vocal On +
+ Paulo J.R. - Bass
+ Igor Cavalera - Drums
+
+All Songs By SEPULTURA.
+All Lyrics By Andreas & Max,Except * By Korg (Chakal).
+Recorded In 16 Tracks At J.G. Estudios
+(B.H.) In August 1987.
+Engineered,Mastered By Tarso & SEPULTURA.
+All Synthetizers By Henrique (Pouso Alto).All Violins By Paulo Gordo.
+Produced By Cogumelo Producoes.
+
+(p)&(c) 1987 SHARK Records
+
+### "Beneath The Remains" 1989, Thrash
+
+1. Beneath The Remains
+2. Innerself
+3. Stronger Than Hate
+4. Mass Hypnosis
+5. Sarcastic Existence
+6. Slaves Of Pain
+7. Lobotomy
+8. Hungry
+9. Primitive Future
+
+ Max Cavalera - Vocals & Rhythm Guitar
+ Andreas Kisser - Lead,Acoustic Guitar
+ Paulo J.R. - Bass
+ Igor Cavalera - Drums
+
+Produced By Scott Burns.
+
+(p)&(c) 1989 ROADRUNNER Records
+
+
+
+### "Under Siege" 1991, Thrash
+
+ Side One:
+1. Under Siege (Regnum Irae) 4.53
+ Side Two:
+1. Orgasmatron 4.13
+2. Troops Of Doom 3.17
+
+Max Cavalera - Vocals & Guitars
+Igor Cavalera - Drums
+Andreas Kisser - Guitars
+Paulo Jr. - Bass
+
+(p)&(c) 1991 ROADRACER Records
+
+### "Arise" 1991, Thrash
+
+1. Arise
+2. Dead Embryonic Cells
+3. Desperate Cry
+4. Murder
+5. Subtraction
+6. Altered State
+7. Under Siege (Regnum Irae)
+8. Meaningless Movement
+9. Infected Voice
+
+ Max Cavalera - Vocals & Rhythm Guitar
+ Andreas Kisser - Lead,Acoustic Guitar
+ Paulo J.R. - Bass
+ Igor Cavalera - Drums
+
+All Music Composed By SEPULTURA.
+All Lyrics Written By Max & Andreas.
+Synthesizers By Herique.
+Sound Effects Created By Kent Smith
+Soundsimith Productions.
+Produced By Scott Burns & SEPULTURA.
+Mixed By Andy Wallace.
+Recorded & Engineered By Scott Burns.
+Assistant Engineer Fletcher McLean.
+Assistant Mix Engineer Steve Sisco.
+Recorded At Morrisound Studios, 
+Tampa,Florida.
+Mixed At Quantum Sound Studios,Jersey City,NJ.
+Mastered By Howie Weinberg At Masterdisk,
+New York,NY.
+Cover illusrtation Michael Whelan.
+
+(p) 1991 ROADRUNNER Records &
+         MUSIC PUBLISHING Co. Inc.
+         ROADRACER
+
+### "Chaos A.D." 1993, Thrash
+
+1. Refuse / Resist 
+2. Territory
+3. Slave New World
+4. Amen
+5. Kaiowas
+6. Propaganda
+7. Biotech Is Godzilla
+8. Nomad
+9. We Who Are Not As Others
+10.Manifest
+11.The Hunt
+12.Clenched Fist
+
+ Max Cavalera - Throat, 4 String G., Nylon Strings Acoustic *
+ Andreas Kisser - Guitar,12 String Steel Acoustic, Nylon Strings Acoustic
+ Paulo J.R. - Bass And Floor Tom *
+ Igor Cavalera - Drums And Percussion
+
+All Music Written By SEPULTURA, Except "The Hunt",
+Music & Lyrics By NEW MODEL ARMY.
+Produced By Andy Wallace.
+Co-Produced By SEPULTURA.
+Mixed And Recorded By Andy Wallace.
+Recorded At Rockfield Studios, S.Wales, England.
+"Kaiowas" Recorded At Chepstow Castle, Wales,England.
+Mixed At The Wool Hall Recording Studios, Bath, England.
+Mastered By Georgio Marino At Sterling Sound, New York,NY.
+
+(p)&(c) 1993 THE ALL BLACKS B.V,/
+             ROADRUNNER Records
+
+### "Slave New World" 1994, Thrash
+
+1. Slave New World
+2. Desperate Cry (Live)
+3. Refuse / Resist *
+4. Inhuman Nature
+5. Propaganda *
+
+ Max Cavalera - Throat, 4 String G., Nylon Strings Acoustic *
+ Andreas Kisser - Guitar,12 String Steel Acoustic, Nylon Strings Acoustic
+ Paulo J.R. - Bass And Floor Tom *
+ Igor Cavalera - Drums And Percussion
+
+* From Album "Chaos A.D."
+Track 2 & 4 Previously Unreleased.
+All Tracks Written By SEPULTURA, 
+Except Track 4 By Rob Martinez (FINAL CONFLICT)
+Produced Andy Wallace & SEPULTURA
+Recorded & Mixed By Andy Wallace
+
+(p)&(c) 1994 ROADRUNNER Records
+
+### "Kaiowas" 1995, Thrash
+
+1. Refuse / Resist (Album Version)
+2. Chaos B.C. *
+3. Kaiowas (Album Version)
+4. Kaiowas (Tribal Jam) **
+5. Territory (Album Version)
+6. Territory (Live)
+7. Amen / Inner Self (Live) ***
+
+ Max Cavalera - Throat, 4 String G., Nylon Strings Acoustic *
+ Andreas Kisser - Guitar,12 String Steel Acoustic, Nylon Strings Acoustic
+ Paulo J.R. - Bass And Floor Tom *
+ Igor Cavalera - Drums And Percussion
+
+All Music Written By SEPULTURA, Co-Produced By SEPULTURA.
+Mixed And Recorded By Andy Wallace.
+Recorded At Rockfield Studios, S.Wales, England.
+Mixed At The Wool Hall Recording Studios, Bath, England. 
+Mastered By Georgio Marino At Sterling Sound, New York,NY.
+
+(p)&(c) 1993 THE ALL BLACKS B.V,/
+             ROADRUNNER Records
+
+### "Roots" 1996, Thrash
+
+1.  Roots Bloody Roots
+2.  Attitude
+3.  Cut - Throat
+4.  Ratamahatta
+5.  Breed Apart
+6.  Straighthate
+7.  Spit
+8.  Lookaway
+9.  Dusted
+10.  Born Stubborn
+11.  Jasco
+12.  Itsari
+13.  Ambush
+14.  Endangered Species
+15.  Dictatorshit
+
+Produced By Ross Robinson.
+Co-Produced By SEPULTURA.
+Mixed By Andy Wallace.
+
+ Max Cavalera - Throat, 4 String G., Nylon Strings Acoustic *
+ Andreas Kisser - Guitar,12 String Steel Acoustic, Nylon Strings Acoustic
+ Paulo J.R. - Bass And Floor Tom *
+ Igor Cavalera - Drums And Percussion
+
+(p)&(c) 1996 ROADRUNNER Records
+
+### "Roots Bloody Roots" 1996, Thrash
+
+1. Roots Bloody Roots
+2. Chaos B.C.
+3. Symptom Of The Universe
+4. Kaiowas (Live)
+
+All songs written by SEPULTURA
+Produced by Ross Robinson
+Co-Produced by SEPULTlJRA
+Engineered by Chuck Johnson
+Recorded at Indigo Ranch, Malibu, CA
+
+Max Cavalera - Vocals, Guitar
+Andreas Kisser - Guitar
+Paulo Jr. - Bass
+Igor Cavalera - Drums
+
+ (p)(c) 1996 ROADRUNNER Records
+
+### "Against" 1998, Thrash
+
+1. Against
+2. Choke
+3. Rumors
+4. Old Earth
+5. Floaters In Mud
+6. Boycott
+7. Tribus
+8. Common Bonds
+9. F.O.E.
+10.Reza
+11.Unconscious
+12.Kamaitachi
+13.Drowned Out
+14.Hatred Aside
+15.TЗrcermillenium
+
+
+Derrick Green - Vocals
+Andreas Kisser - Guitars, Vocals
+Paulo Jr. - Bass
+Igor Cavalera - Drums & Percussion
+
+Produced by Horward Benson
+Co-Produced by Sepultura
+
+(p) 1998 The All Blacks B.V.
+(c) 1998 The All Blacks B.V.
+
+### "Nation" 2001, Thrash
+
+1. Sepulnation 
+2. Border Wars 
+3. Revolt 
+4. One Man Army 
+5. Who Must Die? 
+6. Saga 
+7. Ways Of Faith 
+8. Vox Populi 
+9. Uma Cura 
+10. Human Cause 
+11. Politricks 
+12. Reject 
+13. Water 
+
+Produced by Steve Evetts
+Co-Produced by Sepultura
+Mixed by Steve Thompson and John Goodmanson
+
+(p)&(c) 2001 The All Blacks B.V.
+
+### "No Coracao Dos Deuses / In The Heart Of The Gods" 2002, Thrash
+
+01. O Desconhecido
+02. Walkman
+03. Bigao De Couro
+04. Bruxaria
+05. Aldeia
+06. Tamandua De Troia
+07. Enforcamento
+08. Tauana E Pedro
+09. Procura O Cara (feat. Mike Patton)
+10. Saida Das Canoas
+11. Indios
+12. Martirios
+13. A Feiticaraia De Gabriel
+14. Terra De Manoa
+
+### "Under A Pale Grey Sky" 2002, Thrash
+
+              CD 1
+
+1. Itsari (Intro) 
+2. Roots Bloody Roots 
+3. Spit 
+4. Territory 
+5. Monologo Ao P&#1081; Do Ouvido 
+6. Breed Apart 
+7. Attitude 
+8. Cut-Throat 
+9. Troops Of Doom 
+10. Beneath The Remains/Mass Hypnosis 
+11. Born Stubborn 
+12. Desperate Cry 
+13. Necromancer 
+14. Dusted 
+15. Endaragered Species
+
+
+                CD 2 
+16. We Who Are Not As Others 
+17. Straighthate 
+18. Dictatorshit 
+19. Refuse/Resis 
+20. Arise/Dead Embryonic Cells 
+21. Slave New World 
+22. Biotech Is Godzilla 
+23. Inner Self 
+24. Policia 
+25. We Gotta Know 
+26. Kaiowas 
+27. Ratamahatta 
+28. Orgasmatron 
+
+
+### "Roorback" 2003, Alternative
+
+1. Come Back Alive 
+2. Godless 
+3. Apes Of God 
+4. More Of The Same 
+5. Urge 
+6. Corrupted 
+7. As It Is 
+8. Mind War 
+9. Leech 
+10. The Rift 
+11. Bottomed Out 
+12. Activist 
+13. Outro 
+14. Bullet The Blue Sky
+
+### "Dante XXI" 2006, Alternative
+
+01. Dark Wood of Error
+02. Convicted In Life
+03. City of Dis
+04. False
+05. Fighting On
+06. Ostia
+07. Buried Words
+08. Nuclear Seven
+09. Repeating the Horror
+10. Crown and Miter
+11. Still Flame
+
+### "A-Lex" 2009, Thrash
+
+1. A-Lex I 01:54  
+2. Moloko Mesto 02:09  
+3. Filthy Rot 02:46  
+4. We've Lost You 04:15  
+5. What I do! 02:01  
+6. A-Lex II 02:18  
+7. The Treatment 03:24  
+8. Metamorphosis 03:02  
+9. Sadistic Values 06:51  
+10. Forceful Behavior 02:28  
+11. Conform 01:54  
+12. A-Lex III 02:03  
+13. The Experiment 03:28  
+14. Strike 03:41  
+15. Enough Said 01:37  
+16. Ludwig Van 05:30  
+17. A-Lex IV 02:46  
+18. Paradox 02:16 
+
+
+A-Lex stands for "no law" or "without law". It also resembles the name of the
+protagonist, Alex, of Anthony Burgess' A Clockwork Orange upon which the
+album is based.
+
+
+
+### "Kairos" 2011, Thrash
+
+1. Spectrum  04:03    
+2. Kairos  03:37    
+3. Relentless  03:36    
+4. 2011  00:30    
+5. Just One Fix (Ministry cover)  03:33    
+6. Dialog  04:57    
+7. Mask  04:31    
+8. 1433  00:31    
+9. Seethe  02:27    
+10. Born Strong  04:40    
+11. Embrace the Storm  03:32    
+12. 5772  00:29    
+13. No One Will Stand  03:17    
+14. Structure Violence (Azzes)  05:39    
+15. 4648  08:22  
+
+A deluxe edition will also feature:
+16. Firestarter (The Prodigy cover)
+17. Point of No Return 
+
+Paulo "Destructor"  Bass  
+Andreas Kisser  Guitars  
+Derrick Green  Vocals / Guitars  
+Jean Dolabella  Drums  
+ 
+
+
+### "The Age of the Atheist (single)" 2013, Thrash
+
+1. The Age of the Atheist  04:19     
+2. Zombie Ritual (Death cover)  04:45 
+
+
+### "The Mediator Between Head and Hands Must Be the Heart" 2013, Thrash
+
+1. Trauma of War     
+2. The Vatican     
+3. Impending Doom      
+4. Manipulation of Tragedy      
+5. Tsunami       
+6. The Bliss of Ignorants      
+7. Grief     
+8. The Age of the Atheist       
+9. Obsessed      
+10. Da Lama ao Caos (Chico Science & Naзгo Zumbi cover)  
+
+
+"The Mediator Between the Head and Hands Must be the Heart" is inspired by the classic 1927 film "Metropolis".
+
+ Deluxe edition comes with two bonus tracks:
+ 11. Stagnate State of Affairs
+ 12. Zombie Ritual (Death cover)
+
+ Bonus DVD:
+ 1. The Making Of “The Mediator Between the Head and Hands Must Be the Heart”.
+
+
+### "Machine Messiah" 2017, Thrash
+
+01. Machine Messiah
+02. I Am The Enemy
+03. Phantom Self
+04. Alethea
+05. Iceberg Dances
+06. Sworn Oath
+07. Resistant Parasites
+08. Silent Violence
+09. Vandals Nest
+10. Cyber God
+
 
 ## Отношения с другими группами
 

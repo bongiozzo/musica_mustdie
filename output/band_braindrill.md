@@ -1,8 +1,33 @@
 # Brain Drill
 
-Дискография
-"Apocalyptic Feasting" 2008, Death Metal
-"Quantum Catastrophe" 2010, Death Metal
+
+
+## Дискография
+
+### "Apocalyptic Feasting" 2008, Death Metal
+
+1. Gorification 03:53  
+2. The Parasites 03:24 
+3. Apocalyptic Feasting 03:42 
+4. Swine Slaughter 03:10
+5. Forcefed Human Shit 01:31
+6. Consumed by the Dead 03:18 
+7. Revelation 03:44 
+8. Bury the Living 04:13
+9. The Depths of Darkness 03:54
+10. Sadistic Abductive 04:19 
+
+### "Quantum Catastrophe" 2010, Death Metal
+
+1. Obliteration Untold 03:47
+2. Beyond Bludgeoned 04:17 
+3. Awaiting Imminent Destruction 02:51
+4. Nemesis of Neglect 04:28
+5. Entity of Extinction 03:46
+6. Mercy to None 03:14
+7. Monumental Failure 03:28 
+8. Quantum Catastrophe 16:03 
+
 
 ## Отношения с другими группами
 

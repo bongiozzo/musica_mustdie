@@ -1,10 +1,33 @@
 # Blut Formicarium
 
-Дискография
-"Hellburn (demo)" 1999, Industrial
-"Godless sin (demo)" 2000, Thrash
-"Gothic'a" 2001, Black Metal
-"Ante Scortum Mortem : Dead poems Authority" 2002, Black Metal
+black-dark-folk-metal
+
+## Дискография
+
+### "Hellburn (demo)" 1999, Industrial
+
+
+
+### "Godless sin (demo)" 2000, Thrash
+
+
+
+### "Gothic'a" 2001, Black Metal
+
+
+
+### "Ante Scortum Mortem : Dead poems Authority" 2002, Black Metal
+
+1. Intro ( suspect the infinity )
+2. Symphony of black soul
+3. Dead poem's authority
+4. MOR'dorsaga
+5. Failer of the god
+6. Requiem of eclipse 
+7. Francisco
+8. Закат потухнет вновь огнем
+9. Outo
+
 
 ## Отношения с другими группами
 

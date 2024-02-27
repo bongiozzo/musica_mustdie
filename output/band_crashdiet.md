@@ -1,10 +1,53 @@
 # Crashdiet
 
-Дискография
-"Rest In Sleaze" 2005, Glam
-"The Unattractive Revolution" 2007, Glam
-"Generation Wild" 2010, Glam
-"The Savage Playground" 2013, Glam
+
+
+## Дискография
+
+### "Rest In Sleaze" 2005, Glam
+
+1. Knock 'Em Down 03:36 
+2. Riot In Everyone 03:57
+3. Queen Obscene/69 Shots 03:45
+4. Breakin' The Chainz 03:02
+5. Needle In Your Eye 03:48
+6. Tikket 03:33
+7. Out Of Line 03:43
+8. Itґs A Miracle 03:30
+9. Straight Outta Hell 02:59
+10. Back On Trakk 03:39 
+
+### "The Unattractive Revolution" 2007, Glam
+
+1. In The Raw 03:46
+2. Like A Sin 02:55 
+3. Falling Rain 04:46
+4. I Don't Care 04:01 
+5. Die Another Day 04:24 
+6. Alone 03:47
+7. Thrill Me 04:45 
+8. Overnight 04:02
+9. XTC Overdrive 04:02
+10. Bound To Be Enslaved 03:34 
+11. The Buried Song 03:49 
+
+### "Generation Wild" 2010, Glam
+
+1. Armageddon 04:06  
+2. So Alive 04:12  
+3. Generation Wild 03:56
+4. Rebel 03:23  
+5. Save Her 03:26
+6. Down with the Dust 02:47  
+7. Native Nature 04:28  
+8. Chemical 04:17  
+9. Bound to Fall 04:15  
+10. Beautiful Pain 04:42 
+
+### "The Savage Playground" 2013, Glam
+
+
+
 
 ## Отношения с другими группами
 

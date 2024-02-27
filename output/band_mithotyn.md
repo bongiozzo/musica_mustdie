@@ -1,9 +1,55 @@
 # Mithotyn
 
-Дискография
-"In the Sign of the Ravens" 1997, Viking Metal
-"King of the Distant Forest" 1998, Viking Metal
-"Gathered Around the Oaken Table" 1999, Viking Metal
+
+
+## Дискография
+
+### "In the Sign of the Ravens" 1997, Viking Metal
+
+Upon raging waves        5.06 
+    In the sign
+      of the ravens          5.52 
+    Shadows of the past      7.34 
+    Lost in the mist         4.17 
+    Embraced by frost        7.19 
+    In the forest
+      of moonlight           4.20 
+    Tills dagen gryr         1.01 
+    Strories carved
+      in stone               8.00 
+    Freezing storms of snow  7.26 
+    Where my spirit
+      forever shall be       4.07 
+    Let thy ale swing        0.58
+
+### "King of the Distant Forest" 1998, Viking Metal
+
+1. King Of The Distant Forest (Weinerhall) 5:29
+2. Hail Me (Beckmann/Weinerhall) 6:45
+3. From The Frozen Plains (Beckmann/Weinerhall) 5:59
+4. On Misty Pathways (Beckmann/Weinerhall) 5:22
+5. Legacy (Beckmann/Weinerhall) 5:41
+6. Trollvisa (Beckmann/Weinerhall) 2:03
+7. Under The Banner (Beckmann/Martinsson/Weinerhall) 5:48
+8. We March (Beckmann/Weinerhall) 5:54
+9. Venegeance (Beckmann/Martinsson/Weinerhall) 6:06
+10.Masters Of Winderness (Beckmann/Weinerhall) 5:59
+11.In A Time Of Tales (Weinerhall) 3:35
+
+### "Gathered Around the Oaken Table" 1999, Viking Metal
+
+Lord of ironhand         5.12 
+    Watchmen of the wild     5.17 
+    In the clash of arms     6.41 
+    Hearts of stone          4.56 
+    The well of mimir        4.39 
+    Chariot of power         5.55 
+    Nocturnal riders         3.06 
+    The guardian             4.41 
+    Imprisoned               4.33 
+    Guided by history        6.33 
+    The old rover            3.44
+
 
 ## Отношения с другими группами
 

@@ -1,17 +1,53 @@
 # Birdflesh
 
-Дискография
-"The Butcherbitctape (demo)" 1994, Grindcore
-"Demo of Hell (demo)" 1995, Grindcore
-"Fishfucked (demo)" 1997, Grindcore
-"We Were 7 Who 8 Our Neighbours on a Plate (demo)" 1998, Grindcore
-"Trip to the Grave 7"" 1999, Grindcore
-"Misery of the Defenceless - Split 7" With Carcass Grinder" 2000, Grindcore
-"Morbid Jesus - Split 7" With Squash Bowels" 2000, Grindcore
-"Alive Autopsy (LP)" 2001, Grindcore
-"The Dead/Birdflesh - Split CD" 2001, Grindcore
-"Night of the Ultimate Mosh" 2002, Grindcore
-"Carnage in the Fields of Rice 7"" 2002, Grindcore
+Brutal Swedish Grindcore
+
+## Дискография
+
+### "The Butcherbitctape (demo)" 1994, Grindcore
+
+
+
+### "Demo of Hell (demo)" 1995, Grindcore
+
+
+
+### "Fishfucked (demo)" 1997, Grindcore
+
+
+
+### "We Were 7 Who 8 Our Neighbours on a Plate (demo)" 1998, Grindcore
+
+
+
+### "Trip to the Grave 7"" 1999, Grindcore
+
+
+
+### "Misery of the Defenceless - Split 7" With Carcass Grinder" 2000, Grindcore
+
+
+
+### "Morbid Jesus - Split 7" With Squash Bowels" 2000, Grindcore
+
+
+
+### "Alive Autopsy (LP)" 2001, Grindcore
+
+
+
+### "The Dead/Birdflesh - Split CD" 2001, Grindcore
+
+
+
+### "Night of the Ultimate Mosh" 2002, Grindcore
+
+
+
+### "Carnage in the Fields of Rice 7"" 2002, Grindcore
+
+
+
 
 ## Отношения с другими группами
 

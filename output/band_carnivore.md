@@ -1,8 +1,47 @@
 # Carnivore
 
-Дискография
-"Carnivore" 1985, Hardcore
-"Retaliation" 1987, Hardcore
+Peter O'Steele First Project
+
+## Дискография
+
+### "Carnivore" 1985, Hardcore
+
+1. Predator
+2. Carnivore
+3. Male Supremacy
+4. Armageddon
+5. Legion Of Doom
+6. God Is Dead
+7. Thermonuclear Warrior
+8. World Wars III & IV
+
+Produced By Norman Dunn
+All Songs Written By Pete Steele
+
+(p)&(c) 1985 ROADRUNNER Records
+
+### "Retaliation" 1987, Hardcore
+
+1. Jack Daniel's And Pizza
+2. Angry Neurotic Catholics
+3. S.M.D.
+4. Ground Zero Brooklyn
+5. Race War
+6. Inner Conflict
+7. Jesus Hitler
+8. Technophobia
+9. Manic Depression
+10.U.S.A. For U.S.A.
+11.Five Billion Dead
+12.Sex And Violence
+
+ Peter - Vocal,Bass
+ Marc - Guitar,Vocal
+ Louie - Drums,Vocal
+
+(p)&(c) 1987 ROADRUNNER Records
+
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,24 @@
 # Eternal Flame
 
-Дискография
-"King Of The King" 2002, Power Metal
+power metal
+
+## Дискография
+
+### "King Of The King" 2002, Power Metal
+
+1)King Of The King 
+2)Pluto's Bait 
+3)Bridge To Your Heart 
+4)Hold On 
+5)Bag Of Nerve 
+6)Fall Of Men 
+7)Spanish Flair 
+8)Can't Believe In You No More 
+9)Stargazer 
+10)My Son 
+11)Dawn In The Sky
+
+
 
 ## Отношения с другими группами
 

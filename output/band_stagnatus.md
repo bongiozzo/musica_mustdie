@@ -1,7 +1,21 @@
 # Stagnatus
 
-Дискография
-"Ultima Thule" 2002, Black Metal
+Cyber black metal
+
+## Дискография
+
+### "Ultima Thule" 2002, Black Metal
+
+Intro (Погружение в глубину) 
+В Зале Тысячи Свечей 
+Apud Inferos 
+Варяги 
+Свет Зимцерлы 
+Interlude 
+Ultima Thule 
+Триумф 
+Престол Божества
+
 
 ## Отношения с другими группами
 

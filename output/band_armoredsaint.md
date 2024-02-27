@@ -1,14 +1,131 @@
 # Armored Saint
 
-Дискография
-"March of the Saint" 1984, Heavy Metal
-"Delirious Nomad" 1985, Heavy Metal
-"Raising Fear" 1987, Heavy Metal
-"Saints Will Conquer" 1988, Heavy Metal
-"Symbol of Salvation" 1991, Heavy Metal
-"Revelation" 2000, Heavy Metal
-"Nod To The Old School" 2001, Heavy Metal
-"La Raza" 2010, Heavy Metal
+
+
+## Дискография
+
+### "March of the Saint" 1984, Heavy Metal
+
+1 March Of The Saint 4:11 (Armored Saint) 
+2 Can U Deliver 3:34 (Armored Saint) 
+3 Mad House 3:53 (Armored Saint) 
+4 Take A Turn 3:50 (Armored Saint) 
+5 Seducer 3:49 (Armored Saint) 
+6 Mutiny On The World 3:29 (Armored Saint) 
+7 Glory Hunter 5:09 (Armored Saint) 
+8 Stricken By Fate 3:30 (Armored Saint) 
+9 Envy 2:56 (Armored Saint) 
+10 False Alarm 4:14 (Armored Saint) 
+
+
+### "Delirious Nomad" 1985, Heavy Metal
+
+1 Long Before I Die (Armored Saint) 
+2 Nervous Man (Armored Saint) 
+3 Over the Edge (Armored Saint) 
+4 Laugh (Armored Saint) 
+5 Conqu4eror (Armored Saint) 
+6 For The Sake Of Heaviness (Armored Saint) 
+7 Aftermath (Armored Saint) 
+8 In the Hole (Armored Saint) 
+9 You're Never Alone (Armored Saint) 
+10 Released (Armored Saint) 
+
+
+### "Raising Fear" 1987, Heavy Metal
+
+1 Raising Fear 3:48 (Armored Saint) 
+2 Saturday Night Special 4:22 (Armored Saint) 
+3 Out On A Limb 3:29 (Armored Saint) 
+4 Isolation 5:56 (Armored Saint) 
+5 Chemical Euphoria 4:42 (Armored Saint) 
+6 Crisis Of Life 3:50 (Armored Saint) 
+7 Frozen Will/Legacy 6:03 (Armored Saint) 
+8 Human Vulture 5:15 (Armored Saint) 
+9 Book of Blood 4:38 (Armored Saint) 
+10 Terror 4:48 (Armored Saint) 
+11 Underdogs 4:18 (Armored Saint) 
+
+
+### "Saints Will Conquer" 1988, Heavy Metal
+
+1 Raising Fear 3:32 (Armored Saint) 
+2 Nervous Man 3:28 (Armored Saint) 
+3 Chemical Euphoria 4:20 (Armored Saint) 
+4 Book of Blood 4:28 (Armored Saint) 
+5 Can U Deliver 4:58 (Armored Saint) 
+6 Long Before I Die 2:48 (Armored Saint) 
+7 Madhouse 4:18 (Armored Saint) 
+8 No Reason to Live 4:00 (Armored Saint) 
+
+
+### "Symbol of Salvation" 1991, Heavy Metal
+
+1 Reign of Fire 3:57 (Armored Saint) 
+2 Dropping Like Flies 4:39 (Armored Saint) 
+3 Last Train Home 5:18 (Armored Saint) 
+4 Tribal Dance 4:07 (Armored Saint) 
+5 Truth Always Hurts 4:39 (Armored Saint) 
+6 Another Day 5:32 (Armored Saint) 
+7 Symbol of Salvation 4:35 (Armored Saint) 
+8 Hanging Judge 3:45 (Armored Saint) 
+9 Warzone 3:38 (Armored Saint) 
+10 Burning Question 4:18 (Armored Saint) 
+11 Tainted Past 7:04 (Armored Saint) 
+12 Spineless 4:16 (Armored Saint) 
+
+
+### "Revelation" 2000, Heavy Metal
+
+1 Pay Dirt 4:12 (Armored Saint) 
+2 Pillar 4:58 (Armored Saint) 
+3 After Me, the Flood 5:07 (Armored Saint) 
+4 Tension 5:23 (Armored Saint) 
+5 Creepy Feelings 5:24 (Armored Saint) 
+6 Damaged 6:30 (Armored Saint) 
+7 Den of Theives 6:03 (Armored Saint) 
+8 Control Issues 6:22 (Armored Saint) 
+9 No Me Digas 5:05 (Armored Saint) 
+10 Deep Rooted Anger 5:19 (Armored Saint) 
+11 What's Your Pleasure 3:06 (Armored Saint) 
+12 Upon My Departure 4:40 (Armored Saint) 
+
+
+### "Nod To The Old School" 2001, Heavy Metal
+
+01. Real Swagger
+02. Unstable 
+03. March of the saint 
+04. Day of the Eagle 
+05. Never satisfied 
+06. Tainted Past 
+07. After Me, The Flood 
+08. Creepy Feelings 
+09. Lesson Well Learned 
+10. False Alarm 
+11. On The Way 
+12. Stricken by Fate 
+13. Reign of Fire 
+14. Betty 79 
+15. People 
+16. Get Lost 
+17. Nothing Between the Ears 
+18. Pirates
+
+
+### "La Raza" 2010, Heavy Metal
+
+1. Loose Cannon 05:46
+2. Head On 05:06  
+3. Left Hook From Right Field 05:31  
+4. Get Off The Fence 04:48  
+5. Chilled 05:02  
+6. La Raza 06:41  
+7. Black Feet 05:07  
+8. Little Monkey 04:45  
+9. Blues 03:32  
+10. Bandit Country 05:16 
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,63 @@
 # Mysterium
 
-Дискография
-"The Glowering Facades Of Night" 2000, Black Metal
-"Soulwards" 2003, Metal
+
+
+## Дискография
+
+### "The Glowering Facades Of Night" 2000, Black Metal
+
+Primordium Mysteriorum
+Where Morning Still Stays Far Away
+Ceremony Of The Nightfall
+The Red-Eyed Wrath
+Ode To The Dark One
+Ere Love Sank Passing Fair
+Cynthia`s Child
+Winter Enshrined
+
+
+
+Recorded at Klangschmiede Studio E in May/July 1999
+Engineered & Mastered by Markus Stock,
+cover/inlayphotos by Lars Newald, ststue paintings
+by Sebastian Gehrlein. Booklet/Artwork design by
+Companions In Art. Bandphotos by Markus Stock.
+All music & lyrics are written, arranged and
+performed by P.Domma, A.Landvoigt & Mysterium
+
+
+
+Peter Domma: Guitars, Vocals
+Norman Al-Rubai: Guitars
+Timo Wohlfahrt: Bass
+Andreas Landvoigt: Keyboards
+Sabine Tiefensee: Additional female vocals, flute
+Andre Holstein: Drums
+
+
+
+
+### "Soulwards" 2003, Metal
+
+1) Ambivalentika
+2) Within Tempted Moon
+3) Sirrah
+4) Awaiting Thy Pentacle Aeon
+5) These Mirrored Is
+6) Dreams Unfold
+7) Spiral Mystery
+8) Sphereflight
+
+
+
+Peter Domma: Guitars, Vocals
+Norman Al-Rubai: Guitars
+Timo Wohlfahrt: Bass
+Andreas Landvoigt: Keyboards
+Sabine Tiefensee: Additional female vocals, flute
+Andrй Holstein: Drums
+
+
 
 ## Отношения с другими группами
 

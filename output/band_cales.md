@@ -1,8 +1,60 @@
 # Cales
 
-Дискография
-"Bonds of Togetherness" 1997, Black Metal
-"The Pass In Time" 2001, Black Metal
+Czech Pagan Doom Metal  
+
+
+## Дискография
+
+### "Bonds of Togetherness" 1997, Black Metal
+
+Ashes and Dust 
+People of Shadows 
+Darkness and Ice 
+Autumn Return 
+November Waxvorx 
+Oblivion 
+Bonds of Togetherness 
+Statues 
+
+### "The Pass In Time" 2001, Black Metal
+
+Hymn Of Meeting
+Wandering Phantom
+Along Paths Of Return (Pagan Nostalgia)
+From The Bosom Of Oblivion
+Faces In The Walls
+Sacrifice To Fire
+Burn My Blood
+The Last Winter Dance
+The Rebirth
+On The Way (Tribal Essence)
+
+
+
+Peter "Blackie" Hosek - guitar
+
+Produced, Arranged and Performed by Blackie
+
+Guest Musicians
+DeSed : Screams and Vocals
+Tudy : Keyboards and Programming
+Evil: Percussion
+Ashok: Lead Guitars
+Skuny: Vocals
+Zuzha: Vocals
+Alesh: Backing Vocals
+
+Recorded at Studio Shaark in Days of Samhaine 2000
+Mastered by Jan Nemec at Studio Magic Minds,
+Hannover 2001
+Mixed by Pavel Hiavica and Blackie
+Technical Engineered by Petr Nejezchleba
+Graphics by Courtney Dawis
+Booklet Layout by Redblack
+ 
+
+
+
 
 ## Отношения с другими группами
 

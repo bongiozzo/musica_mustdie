@@ -1,14 +1,175 @@
 # The Crown
 
-Дискография
-"The Burning" 1995, Melodic Death Metal
-"Eternal Death" 1997, Melodic Death Metal
-"Hell Is Here" 1999, Thrash
-"Deathrace King" 2000, Thrash
-"Crowned In Terror" 2002, Thrash
-"Possessed 13" 2003, Thrash
-"Crowned Unholy" 2004, Thrash
-"Doomsday King" 2010, Thrash
+
+
+## Дискография
+
+### "The Burning" 1995, Melodic Death Metal
+
+Of Good And Evil
+Soulicide Demon-Might
+Godless 
+The Lord Of The Rings
+I Crawl
+Forever Heaven Gone
+Earthborn
+Neverending Dream
+Night of The Swords
+Candles
+Forget The Light
+
+
+Studio: Berno Studio (May-April ґ95)
+Produced by: The Crown & Berno Paulsson
+Masterd at: Digitalfabriken
+Cover artwork: Kristian Wеhlin a.k.a Necrolord
+
+
+### "Eternal Death" 1997, Melodic Death Metal
+
+Angels Die 
+Beautiful Evil Soul
+In Bitterness And Sorrow 
+The Black Heart
+World Within
+The Serpent Garden
+Kill (the priest) 
+Misery Speaks 
+Hunger
+Death Of God
+
+
+Studio: Berno Studio (Sept.-Okt.ґ97)
+Produced by: The Crown & Berno Paulsson
+Nocturnal Assistant Engineer: Henrik Larson
+Mastered at: Mastering Room by Gцran Finnberg
+& The Crown
+Cover artwork: Kristian Wеhlin a.k.a Necrolord 
+
+
+### "Hell Is Here" 1999, Thrash
+
+1. The Poison
+2. At The End
+3. 1999-Revolution 666
+4. Dying Of The Heart
+5. Electric Night
+6. Black Lightning
+7. The Devil And The Darkness
+8. Give You Hell
+9. Body And Soul
+10. Mysterion
+11. Death By My Side
+
+
+Studio: Berno studio (July-August ґ99)
+Produced by: The Crown & Berno Paulsson
+Mastered at: CD Plant by Staffan Olsson, Berno Paulsson & The Crown
+Cover artwork: The photo is by Dan Wallin
+and then computer designed by Thomas Ewerhard/Klarsicht
+
+
+### "Deathrace King" 2000, Thrash
+
+1. Deathexplosion
+2. Executioner - Slayer of the light
+3. Back From The Grave
+4. Devil Gate Ride
+5. Vengeance
+6. Rebel Angel
+7. I Wonґt Follow
+8. Blitzkrieg Witchcraft
+9. Dead Manґs Song
+10. Total Satan
+11. Killing Star - (Superbia Luxuria XXX)
+
+
+
+Studio: Studio Fredman (Nov ґ99 - Janґ00)
+Produced by: The Crown & Fredrik Nordstrцm
+Mastered at: Masteringroom by Gцran Finnberg and The Crown
+Cover artwork: Alf Svensson
+Lay Out: Thomas www.ewerhard.de
+Band photos: Jocke Nywall
+
+Guest appereance on Devil Gate Ride by Thomas Lindberg
+and on Total Satan by Mika Luttinen
+
+
+### "Crowned In Terror" 2002, Thrash
+
+01. House Of Hades (intro)
+02. Crowned In Terror
+03. Under The Whip
+04. Drugged Unholy
+05. World Below
+06. The Speed Of Darkness
+07. Out For Blood
+08. I Am Hell
+09. Death Is The Hunter
+10. Satanist
+11. Death Metal Holocaust
+
+### "Possessed 13" 2003, Thrash
+
+1. No Tomorrow
+2. Deliverance
+3. Face Of Destruction / Deep Hit Of Death
+4. Are You Morbid?
+5. Dream Bloody Hell (instrumental)
+6. Cold Is The Grave
+7. Kill 'Em All
+8. Morningstar Rising
+9. Natashead Overdrive
+10. Bow To None
+11. Zombiefied!
+12. Dawn Of Emptiness
+13. The Endless Gate (instrumental)
+
+### "Crowned Unholy" 2004, Thrash
+
+01. introduction House of Hades 
+02. Crowned in Terror 
+03. Under The Whip 
+04. Drugged Unholy 
+05. World Below 
+06. The Speed of Darkness 
+07. Out of Blood 
+08. (i am) Hell 
+09. Death is The Hunter 
+10. Satanist 
+11. Death Metal Holocaust
+
+### "Doomsday King" 2010, Thrash
+
+1. Doomsday King 04:06  
+2. Angel Of Death 1839 03:47  
+3. Age Of Iron 03:12  
+4. The Tempter And The Bible Black 04:40  
+5. Soul Slasher 03:21  
+6. Blood O.D 04:08  
+7. Through Eyes Of Oblivion 03:48  
+8. Desolation Domain 04:51  
+9. From The Ashes I Shall Return 06:08  
+10. He Who Rises In Might- From Darkness to Light 06:06 
+
+
+Limited edition available in digipak format with a bonus disc with the following
+bonus tracks:
+
+1. Die Before Dying (03:33)
+2. In Bitterness and Sorrow (03:27)
+3. Kill 2010 (01:33)
+4. Falling Beneath The Heaven's Sea (3:21)
+
+
+
+Jonas Stеlhammar - Vocals
+Marcus Sunesson - Guitars 
+Marko Tervonen - Guitars 
+Magnus Olsfelt - Bass
+Janne Saarenpaa - Drums
+
 
 ## Отношения с другими группами
 

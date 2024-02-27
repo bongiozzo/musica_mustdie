@@ -1,13 +1,57 @@
 # Gloomy Grim
 
-Дискография
-"Blood, Monsters, Darkness" 1998, Black Metal
-"Reborn Through Hate" 1999, Black Metal
-"Life?" 2000, Black Metal
-"Written in Blood" 2001, Black Metal
-"The Grand Hammering" 2004, Black Metal
-"Under the Spell of the Unlight" 2008, Black Metal
-"The Age of Aquarius" 2016, Black Metal
+gothic black
+
+## Дискография
+
+### "Blood, Monsters, Darkness" 1998, Black Metal
+
+
+
+### "Reborn Through Hate" 1999, Black Metal
+
+
+
+### "Life?" 2000, Black Metal
+
+1. Arrival of the Antichrist
+2. Born in Fire
+3. The Chosen One
+4. Mistress of the Stormblast
+5. Revelation 666
+6. Redeemer
+7. Elder Ones
+8. At the Gates
+9. My Domain
+10. Heralds of Pestilence
+11. To the Death
+
+
+### "Written in Blood" 2001, Black Metal
+
+
+
+### "The Grand Hammering" 2004, Black Metal
+
+
+
+### "Under the Spell of the Unlight" 2008, Black Metal
+
+
+
+### "The Age of Aquarius" 2016, Black Metal
+
+1. The Rise of the Great Beast	04:54	 
+2. Germination	02:53	 
+3. A Lady in White	03:23	 
+4. Beyond the Hate	04:46	 
+5. One Night I Heard a Scream	05:33	 
+6. The Shameful Kiss	03:05	 
+7. The Mist	05:01	 
+8. Time	04:21	 
+9. Light of Lucifer Shine on Me	06:17	 
+10. Trapped in Eternal Darkness	04:05
+
 
 ## Отношения с другими группами
 

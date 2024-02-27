@@ -1,7 +1,16 @@
 # Aphotic
 
-Дискография
-"To Find New Darkness (split w/DUSK)" 2005, Death Doom
+
+
+## Дискография
+
+### "To Find New Darkness (split w/DUSK)" 2005, Death Doom
+
+1. Crystalized
+2. Spade
+3.Sea
+4. All We Have Is This
+
 
 ## Отношения с другими группами
 

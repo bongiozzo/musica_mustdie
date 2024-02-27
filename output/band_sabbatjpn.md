@@ -1,15 +1,76 @@
 # Sabbat (Jpn)
 
-Дискография
-"Envenom" 1991, Black Metal
-"Evoke" 1992, Black Metal
-"Disembody" 1993, Black Metal
-"Fetishism" 1994, Black Metal
-"The Dwelling" 1996, Black Metal
-"Karisma" 1999, Black Metal
-"Satanasword" 2000, Black Metal
-"Karmagmassacre" 2004, Black Metal
-"Sabbatrinity" 2011, Black Metal
+
+
+## Дискография
+
+### "Envenom" 1991, Black Metal
+
+
+
+### "Evoke" 1992, Black Metal
+
+
+
+### "Disembody" 1993, Black Metal
+
+
+
+### "Fetishism" 1994, Black Metal
+
+
+
+### "The Dwelling" 1996, Black Metal
+
+
+
+### "Karisma" 1999, Black Metal
+
+
+
+### "Satanasword" 2000, Black Metal
+
+
+
+### "Karmagmassacre" 2004, Black Metal
+
+01. The Answer Is Hell
+02. I'm Your Satan
+03. Demonic Serenade / Brothers Of Demons
+04. Plasmas Goat
+05. In League With Devils
+06. Black Magical Circle Of Witches
+07. The Letter From Death
+08. Possession Of The Reaper
+09. Satansword
+
+Gezolucifer - vocals & bass
+Temis Osmond - guitars
+Zoregulion - drums
+
+Produced by Sabbat.
+Recorded & mixed at I.M.I. light inc. 2003.
+Engineer: Mr.Yamada.
+Mastered at Witch's Mill studio & Ghostrain
+Studio.
+Remastered by Mike Sheffield.
+Photos by Elizabigore.
+Logo & cover concept by Gezol.
+Cover drawing by Kris Verwimp.
+
+### "Sabbatrinity" 2011, Black Metal
+
+1. Black Metal Scythe 04:01
+2. Total Destruction 05:29
+3. Witchflight 03:33
+4. Witch Hammers 04:24
+5. Northern Satanism 03:02
+6. Root of Ultimate Evil 03:43
+7. Ravens Tell 04:41
+8. Witch’s Torches (version 1) 04:05
+9. Karmagmassacre 06:05
+10. Witch’s Weed (instr.) 02:35
+
 
 ## Отношения с другими группами
 

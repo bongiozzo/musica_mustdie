@@ -1,8 +1,35 @@
 # Armaga
 
-Дискография
-"In The Ruins" 2009, Death Doom
-"Dark Authority" 2010, Death Doom
+
+
+## Дискография
+
+### "In The Ruins" 2009, Death Doom
+
+1. Time has Come 02:24  
+2. In the Ruins 03:27  
+3. Fear is Near 03:01  
+4. The Left Manor 04:09  
+5. Phantom 02:45  
+6. Poisoned 03:48  
+7. Human Plant 03:21  
+8. Black River 03:35  
+9. Shadows 04:14  
+10. Time has Gone 02:40 
+
+### "Dark Authority" 2010, Death Doom
+
+01. Overgrown Gates
+02. Heartless
+03. Cave
+04. Last Exile
+05. Dead Garden
+06. One Ghost's Story
+07. Dark Waltz
+08. Cryptic Mirror
+09. Ravaged
+10. Dark Authority
+
 
 ## Отношения с другими группами
 

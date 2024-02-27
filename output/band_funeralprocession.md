@@ -1,6 +1,9 @@
 # Funeral Procession
 
-Дискография
+Total Black Metal
+
+## Дискография
+
 
 ## Отношения с другими группами
 

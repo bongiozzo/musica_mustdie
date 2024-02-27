@@ -1,14 +1,114 @@
 # Lugubrum
 
-Дискография
-"Winterstones" 1996, Black Metal
-"Gedachte & Geheugen" 1997, Black Metal
-"De Totem" 1999, Black Metal
-"Bruyne Troon" 2001, Black Metal
-"De Vette Cuecken" 2004, Black Metal
-"Heilige Dwazen" 2005, Black Metal
-"De Ware Hond" 2007, Black Metal
-"Albino de Congo" 2008, Black Metal
+Atmospheric Black Doom Metal
+
+## Дискография
+
+### "Winterstones" 1996, Black Metal
+
+1.  Embracing The Moonlit Snowclouds
+2.  Sose Gilimida Sin
+3.  Aardmannen
+4.  Ogenboom
+5.  Dance Of The Winterking
+6.  Foltas
+7.  Fliegenpilz
+8.  Winds Enter My Mouth
+9.  Black Hag
+
+Recorded and Mixed at Lugubrum Studio
+All music by LUGUBRUM
+
+Midgaard - Guitars, Bass, Synth, Lyrics, Artwork
+Barditus - Drums, Vocals
+
+(P)c 1996 SKRAMASAX Records // SKR 001
+
+### "Gedachte & Geheugen" 1997, Black Metal
+
+1. Waar het vuur en de kraaien zingen 02:51
+2. Stahlhelm I 03:13
+3. Stahlhelm II 04:43
+4. Als de goden zwijgen 03:17
+5. Zomermoord 03:20
+6. Dampen uit een ondiep graf 04:47
+7. Lugubrum 01:58  
+8. Trollenkloof 04:26  
+9. De vlam der krijg 07:47  
+10. Het dromen der Berken 06:41  
+11. De geheimenhelmen 11:56  
+12. Mijn Koninkrijk van groen 05:45 
+
+### "De Totem" 1999, Black Metal
+
+1. Intro: Beer 01:23  
+2. Hoornkluiten 04:22
+3. Udder of Death 04:47
+4. De Totem 06:29
+5. Ratteknaeghen 05:13
+6. Beard of Disease 07:18
+7. Midgets of Evil 05:27
+8. Inner Magma 04:57
+9. Reet Reel 01:25  
+10. Voos 06:10
+11. Outro: Oui Maitre 03:20 
+
+### "Bruyne Troon" 2001, Black Metal
+
+1. Invade (Stinker of Stink) 00:49  
+2. Gekloofd 04:38
+3. Low Dog 04:57
+4. Bruyne Troon 04:21
+5. Druipstaartend 05:18  
+6. Kleigerukt 04:30
+7. The Great Dressler 05:13
+8. Het Spook van de Goudmijn 05:33
+9. Sponge 00:54  
+10. Staertgebroet 05:08 
+11. Kannibaal 05:40
+12. Pump Room Brawl 07:12
+13. Old Grey Hair 05:31
+14. Schaambaard 05:23
+15. Holebeard Blues 03:34
+16. Expunge 01:20 
+
+### "De Vette Cuecken" 2004, Black Metal
+
+1. Apйritif 00:59  
+2. Attractive to the Flies 06:12 
+3. In Den Ghoot by Kaerschlight 05:42
+4. De Maeghere Cuecken 05:34
+5. De Vette Cuecken 05:15
+6. Dust Binst Drinken 06:03
+7. Robust Shades of Brown 06:00
+8. Poussy-cafй 04:49 
+
+### "Heilige Dwazen" 2005, Black Metal
+
+1. Holy Fools Embodied 07:19
+2. The Kiss on the Anus 05:31
+3. At the Base of Their Tail 05:36
+4. Though Chained 06:23
+5. We Slyly Sucked Stolen Bread 06:55 
+6. On Anemone Meteorites 13:49 
+
+### "De Ware Hond" 2007, Black Metal
+
+1. Movement I : Opwaartse Hond 15:48  
+2. Movement II : The Dog In The Doorway 07:55  
+3. Movement III : Neerwaartse Hond 14:12  
+4. Movement IV : Flinke Hond Von Hell Slaapwel 07:45 
+
+### "Albino de Congo" 2008, Black Metal
+
+1. Kadurha 04:43  
+2. Lugwampinga 04:44  
+3. Kabondobondo, muborobondo 04:15  
+4. Mushole 03:35  
+5. Bwikalabalume 03:52  
+6. Kurlerha omugongo 09:38  
+7. Isirhe 07:33 
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,36 @@
 # Hess
 
-Дискография
-"Just Another Day" 2003, Rock
+
+
+## Дискография
+
+### "Just Another Day" 2003, Rock
+
+1. Look Right Through Me
+2. Wasted Away
+3. Everybody
+4. Just Another Day
+5. Two Ways
+6. The Deep End
+7. Undone
+8. Why
+9. Miles Away
+10. Sentimental Blvd.
+
+
+
+Harry Hess - vocals, guitars
+Pete Lesperance - guitars
+Creighton Doane - drums
+Mike Turner - guitars
+Mike Bokorsky - guitars
+Ray Coburn - keyboards
+Eric Martin - backgr. vocals
+Darren Smith - backgr. vocals
+
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,35 @@
 # Internal Bleeding
 
-Дискография
-"Voracious Contempt" 1996, Deathcore
+
+
+## Дискография
+
+### "Voracious Contempt" 1996, Deathcore
+
+1. Languish In Despair
+2. Anointed In Servitude
+3. Reflection Of Ignorance
+4. Epoch Of Barbarity
+5. Gutted Human Sacrifice
+6. God Of Subservience
+7. Prophet Of The Blasphemes
+8. Humanicide
+9. Inhuman Suffering
+10.Despoilment Of Rotting Flesh
+
+All songs written by INTERNAL BLEEDING
+Produced by Dug and INTERNAL BLEEDING
+Engineered by Scott Burns
+Recorded and mixed at Cove City Sound Studios, NY
+
+Chris Perveus - Guitars
+Brian Hobbie - Bass
+Anthony Miola - Guitars
+Bill Tolley - Drums
+Frank Rini - Vocals
+
+(p)c 1996 PAVEMENT Music
+
 
 ## Отношения с другими группами
 

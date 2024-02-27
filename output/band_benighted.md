@@ -1,12 +1,96 @@
 # Benighted
 
-Дискография
-"Benighted" 2000, Death Metal
-"Psychose" 2002, Death Metal
-"Insane Cephalic Production" 2004, Death Metal
-"Identisick" 2006, Death Metal
-"Icon" 2007, Death Metal
-"Asylum Cave" 2011, Death Metal
+Brutal Death Black Metal
+
+## Дискография
+
+### "Benighted" 2000, Death Metal
+
+1. The Diabolical Reign of the Four Fallen Angels 03:01  
+2. Werewolf's Nightmare 05:04  
+3. Last Part of Humanity 05:41 
+4. Nocturne 03:13
+5. Benighted Transcendence 05:36
+6. Abysses of Sadness 05:37
+7. Infernal Killings 03:23 
+
+
+### "Psychose" 2002, Death Metal
+
+1. Prйmices Psychotiques 01:23  
+2. Paranoia 04:37  
+3. Dйgйnйrescence 04:12
+4. Banished 03:23 
+5. Arcanes Dйmoniaques 04:14 
+6. Aversion Fanatique 05:41 
+7. Lost in Catalepsy 04:00  
+8. From Desire to Disgust 03:35
+9. Internal Sufferings 01:10  
+10. Claustrophobia 04:19 
+11. Feasting on the Disinterred Corpse 05:04
+12. Unleash Hell 05:59 
+13. Slay the Benighted (bonus track)
+
+
+### "Insane Cephalic Production" 2004, Death Metal
+
+1. Bestial breeding  
+2. Stay brutal 
+3. Foetus 
+4. Deviant 
+5. Perpueral cannibalism 
+6. Self-proclaimed god 
+7. Dementia (the precocious symptoms of mental perversion) 
+8. Phlebotomized 
+9. Insane cephalic production 
+10. Insomnies
+
+### "Identisick" 2006, Death Metal
+
+1. Nemesis 03:32
+2. Collapse 03:47 
+3. Identisick 03:54 
+4. Sex-Addicted 03:55  
+5. Mourning Affliction 04:11 
+6. The Twins 03:21
+7. Ransack the Soul 03:19 
+8. Blind to the World 03:58
+9. Spiritual Manslaughter 03:18
+10. Iscarioth 03:44 
+11. Suffer the Children (Napalm Death cover) 04:08 
+
+
+### "Icon" 2007, Death Metal
+
+1. Complete Exsanguination 00:26  
+2. Slut 03:00  
+3. Grind Wit 03:39  
+4. Saw It All 03:54  
+5. Forsaken 03:30 
+6. Smile Then Bleed 03:38 
+7. Pledge of Retaliation 03:03  
+8. Icon 04:18  
+9. Human Circles 03:49  
+10. Invoxhate 03:28 
+11. The Underneath 03:01 
+12. Blindfolded Centuries 03:21 
+
+
+### "Asylum Cave" 2011, Death Metal
+
+1. Asylum Cave 03:30  
+2. Let the Blood Spill between my Broken Teeth 03:51  
+3. Prey 03:53  
+4. Hostile 02:39  
+5. Fritzl 04:36  
+6. Unborn Infected Children 04:07  
+7. The Cold Remains 03:58  
+8. A Quiet Day 03:39  
+9. Shadows Descend 02:57  
+10. Swallow 03:00  
+11. Lethal Merycism 03:34  
+12. Drowning 05:19 
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,32 @@
 # Circumcised
 
-Дискография
-"Bitter Way" 1996, Death Metal
+
+
+## Дискография
+
+### "Bitter Way" 1996, Death Metal
+
+1.  ... We Live With Jesus
+2.  Search Me
+3.  Lack Of Clarity
+4.  Questions...
+5.  Street Urchin
+6.  If We Clay
+7.  Pain
+8.  The Bitter Way
+9.  Blind
+
+Recorded & Mixed at S-Bahn Studio
+Produced, Engineered and Mixed by Winny & CIRCUMCISED.
+Cover artwork by Tilo Lier
+
+Thomas - Guitars
+Markus - Bass
+Stefan - Drums
+Martin - Vocals
+
+(P)c 1996 PLEITEGEIR Records // PGD 6910
+
 
 ## Отношения с другими группами
 

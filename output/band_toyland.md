@@ -1,8 +1,35 @@
 # Toyland
 
-Дискография
-"With Every Breath" 2003, Heavy Metal
-"Promo single" 2004, Heavy Metal
+
+
+## Дискография
+
+### "With Every Breath" 2003, Heavy Metal
+
+1. manipulation with numbers
+2. Bliss
+3. The Chosen
+4. Maggot
+5. Sophomore
+6. Pull Me Out Of The Water
+7. War
+8. Black Magic
+9. Nerve Camp
+10. My Rusty Armor and Wings
+11. The Way We Were
+12. Summer Nights and You
+13. Turning Point
+14. Heat Seekers
+
+### "Promo single" 2004, Heavy Metal
+
+1. Prisoner Of Life
+2. Twelve Gauge, One Shot
+
+INCLUDES:
+Tons of enhanced media such as interviews with the band, photos,
+behind the scenes and more.
+
 
 ## Отношения с другими группами
 

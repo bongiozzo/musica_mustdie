@@ -1,8 +1,34 @@
 # Token
 
-Дискография
-"Tomorrowland" 2002, Hard Rock
-"Punch" 2004, Hard Rock
+hard'n'heavy
+
+## Дискография
+
+### "Tomorrowland" 2002, Hard Rock
+
+1.How does it feel
+2.Human
+3.Someone's watching
+4.Eternally yours
+5.Destination nightmare
+6.Think about it
+7.The undiscovered rose
+8.(Shine on) Dark side of fate
+9.Wings of desire
+10.Last to know
+11.Speechless
+12.Tomorrowland (Rainbows end)
+
+H.B Anderson - vocals
+Niclas Holmkvist - bass guitar
+Mikael Rosengren - keyboards
+Johan Sj&#246;berg - guitars
+Pontus &#197;geryd - drums
+
+### "Punch" 2004, Hard Rock
+
+
+
 
 ## Отношения с другими группами
 

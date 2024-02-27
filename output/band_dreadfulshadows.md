@@ -1,10 +1,87 @@
 # Dreadful Shadows
 
-Дискография
-"Estrangement" 1994, Gothic
-"Buried Again" 1996, Gothic
-"Beyond The Maze" 1998, Gothic
-"The Cycle" 1999, Gothic
+
+
+## Дискография
+
+### "Estrangement" 1994, Gothic
+
+1.  Ressurection
+2.  Over The Worst
+3.  Dead Can Wait
+4.  Still Alive
+5.  Through The Mirror
+6.  Funeral Procession
+7.  A Sea Of Tears
+8.  Dirge
+9.  Her Devotion
+10.  The Release
+11.  Estrangement
+
+Produced By DREADFUL SHADOWS, Hartmut Bredemann & Ted Loose.
+Recorded & Mixed During The Season Of Fall 1993 At Sonic Art Studio, Bad Laer.
+Engineered & Mixed By Hartmut Bredemann.
+
+Sven Friedrich - Vocals, A.Guitars, Keyboards
+Frank Hofer - Guitar, Backing Vocals
+Stefan Neubaer - Guitar
+Jens Riedeger - Bass Guitar
+Ron Thiele - Drums, Backing Vocals
+
+(P)  1994 Vielklang Musikverlag
+c  1994 SOUNDS Of DELIGHT Records
+
+### "Buried Again" 1996, Gothic
+
+1.  Providence
+2.  Chains
+3.  Condemnation
+4.  Dusk
+5.  Obituary
+6.  Everlasting Words
+7.  Dissolution
+8.  Mortal Hope
+9.  The Racking Call
+[10].Buried Again
+
+[10] - На стороне B
+
+Produced By Thommy Hein & DREADFUL SHADOWS.
+Recorded & Mixed At Thommy Hein Studio, Berlin.
+Recording Director - Thommy Hein.
+
+Sven Friedrich - Vocals, Guitars, Keyboards
+Stefan Neubaer - Guitar
+Jens Riedeger - Bass Guitar
+Ron Thiele - Drums, Backing Vocals
+
+Louisa Bradshaw & Julia Richter - Female Vocals
+
+(P)c 1996 DEATHWISH OFFICE
+
+### "Beyond The Maze" 1998, Gothic
+
+1. Crusade
+2. Fall
+3. The Figures Of Disguise
+4. Ties Of Time
+5. Craving
+6. The Soil
+7. The Drowning Time
+8. Desolated Home
+9. Burning The Shrouds
+10. Beyond The Maze
+Sven Frederich - Vocals, Acoustic Guitars, Keyboards
+Norman Selbig - Guitars, Keyboards
+Andre Feller - Guitars
+Jens Riediger - Bassguitar
+Ron Thiele - Drums
+(c)1998 Vieklang Musikverlag
+
+### "The Cycle" 1999, Gothic
+
+
+
 
 ## Отношения с другими группами
 

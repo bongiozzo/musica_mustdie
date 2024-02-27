@@ -1,7 +1,13 @@
 # Stereo Total
 
-Дискография
-"Do The Bambi" 2005, Electronic
+
+
+## Дискография
+
+### "Do The Bambi" 2005, Electronic
+
+
+
 
 ## Отношения с другими группами
 

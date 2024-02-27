@@ -1,7 +1,21 @@
 # Judgement Day
 
-Дискография
-"Cir-Cum-Cis. Jon Of The Mar-Tyr" 1996, Black Metal
+Melodic Black Doom Metal
+
+## Дискография
+
+### "Cir-Cum-Cis. Jon Of The Mar-Tyr" 1996, Black Metal
+
+1.  Horror Path
+2.  Dailyrituals
+3.  The Old Tree
+4.  Sexual Intercourse
+5.  Invisible Downfall
+6.  Clouds of Mordor
+7.  Pathology Of Crowding
+
+(P)c 1996 EFFIGY Records // EFFI006
+
 
 ## Отношения с другими группами
 

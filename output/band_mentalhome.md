@@ -1,10 +1,86 @@
 # Mental Home
 
-Дискография
-"Mirrorland" 1995, Doom
-"Vale" 1996, Doom
-"Black Art" 1998, Doom
-"Upon The Shores Of Inner Seas" 2000, Death Doom
+(Russian Atmospheric Dark Doom Metal)
+
+## Дискография
+
+### "Mirrorland" 1995, Doom
+
+1. Dreaming Beneath The Rain 07:16
+2. Amidst The Waves 04:31
+3. Drowned 04:07
+4. Mirrorland 04:47
+5. Cemetary Flowers (Remix) 05:22
+6. Outro 01:16 
+
+### "Vale" 1996, Doom
+
+1.Stranger Dove   (6:10) 
+2.Southern Calm Waters   (5:00) 
+3.Aevin's Cage   (6:05) 
+4.The Euphoria   (7:44) 
+5.The Vale   (6:06) 
+6.My Necklace   (2:41) 
+7.Christmas Mercy   (6:01) 
+8.Their Finest Voyage   (5:41) 
+
+
+
+Line Up :  
+            Sergey Dmitriev - Vocal, Guitar. 
+            Sergey Kalachov - Lead Guitar. 
+            Roman Povarov - Keyboards. 
+            Denis Samusev - Bass. 
+            Igor Dmitriev - Drums. 
+
+All songs by MENTAL HOME. 
+Produced by MENTAL HOME. 
+Recorded & mixed at VNUKOVO STUDIO, Moscow. 
+Sound engineered & mixed by MENTAL HOME. 
+Mastered at RACURS STUDIO. 
+(c) 1996, MENTAL HOME 
+(c)+(p) 1997, THE END 
+
+  
+
+
+### "Black Art" 1998, Doom
+
+1. Under The Wing
+2. The Plague Omen
+3. Into The Realms Of Marena
+4. Silent Remembrance
+5. In The Shades Of Inspiration
+6. Pagan Freedom
+7. Winter Art
+8. On A Hand Of The Universe
+9. Tides Of Time
+ 
+
+
+
+### "Upon The Shores Of Inner Seas" 2000, Death Doom
+
+1. Downstairs (5:26) 
+2. Late To Revise (4:33) 
+3. Eternal Moan (4:47) 
+4. Bliss (5:37) 
+5. Against My Will (5:22) 
+6. Breakdown (3:19) 
+7. Stained (4:24) 
+8. Amidst The Waves'99* (3:56) 
+
+
+
+Recorded at VNUKOVO Studio, Nov.'98 - May'99. 
+Engineered by Sergey Blinov, Sergey Alekseenko and MENTAL HOME. Mixed at VNUKOVO Studio in July'99 by Paul Faster. 
+Mastered at SBI Studio in July'99 and at P&F Studio in December'99 by Paul Faster. 
+Produced by MENTAL HOME. 
+Front Cover Artwork: Clay M. Hagebusch (pwrpetey@terraworld.net)
+Layouts by Andreas Katsambas 
+
+
+
 
 ## Отношения с другими группами
 

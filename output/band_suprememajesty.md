@@ -1,10 +1,60 @@
 # Supreme Majesty
 
-Дискография
-"Divine Enigma" 1999, Heavy Metal
-"Tales Of A Tragic Kingdom" 2001, Heavy Metal
-"Danger" 2003, Hard Rock
-"Elements Of Creation" 2005, Heavy Metal
+swedish heavy metal
+
+## Дискография
+
+### "Divine Enigma" 1999, Heavy Metal
+
+1. No Farewells 
+2. Die In A Dream
+3. King Of Eternity's Realm
+4. The Blood We Spilled
+
+Recorded and mixed at Suburban Soundworks, Sweden. Produced by Henrik Gцtz and Supreme Majesty. Layout and logo by H.R Graphics. 
+
+### "Tales Of A Tragic Kingdom" 2001, Heavy Metal
+
+1. Strike Like Thunder 
+2. Not of This World 
+3. Towards the Northern Star 
+4. Forever I'll Be 
+5. Let It Go 
+6. Tales of a Tragic Kingdom 
+7. Queen of Egypt 
+8. Keeper of the Dead 
+9. Supreme Majesty 
+10. Eye of the Storm
+
+Recorded and mixed at Studio Fredman, Sweden. Produced by Fredrik Nordstrцm and Supreme Majesty. Design & layout by C.A Interactive. Coverartwork by Niklas Sundin/Cabin Fever Media.
+
+### "Danger" 2003, Hard Rock
+
+1. Fallen Star
+2. Heroes Of Our Lands
+3. Danger
+4. Until The End Of Time
+5. Save Me
+6. Cruel Circle
+7. Two Against Many
+8. After Midnight
+9. By Your Side
+
+All songs written by SUPREME MAJESTY
+Produced and mixed by Fredrik Nordstrom and SUPREME MAJESTY
+Engineered by Daniel Andersson and Fredrik Nordstrom
+Recorded and mixed at Studio Fredman
+
+Joakim Olsson - Lead Vocals
+Chrille Andersson - Guitars and Keyboards
+Rille Svensson - Guitars
+Daniel Andersson - Bass, Backing Vocals
+Jocke Unger - Drums
+
+### "Elements Of Creation" 2005, Heavy Metal
+
+
+
 
 ## Отношения с другими группами
 

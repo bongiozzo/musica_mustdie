@@ -1,14 +1,118 @@
 # Vomitory
 
-Дискография
-"Raped In Their Own Blood" 1996, Death Metal
-"Redemption" 1999, Death Metal
-"Revelation Nausea" 2000, Death Metal
-"Blood Rapture" 2002, Death Metal
-"Primal Massacre" 2004, Death Metal
-"Terrorize brutalize sodomize" 2007, Death Metal
-"Carnage Euphoria" 2009, Death Metal
-"Opus Mortis VIII" 2011, Death Metal
+Sweden old school death metal
+
+## Дискография
+
+### "Raped In Their Own Blood" 1996, Death Metal
+
+1.  Nervegasclouds
+2.  Raped In Their Own Blood
+3.  Dark Grey Epoch
+4.  Pure Death
+5.  Through Sepulchral Shadows
+6.  Inferno
+7.  Sad Fog Over Sinister Runes
+8.  Into Winter Through Sorrow
+9.  Perdition
+10.Thorns
+
+Recorded and Mixed at Studio Prima Volta.
+Produced, Engineered and Mixed by Living Skull and VOMITORY.
+Cover artwork by Volcanic Wolf.
+Band residence: Sweden.
+
+Tobias Gustafsson - Drums
+Thomas Bergqvist - Bass, Backing Vocals
+Ulf Dalegren - Guitars
+Urban Gustafsson - Guitars
+Ronnie Olson - Vocals
+
+### "Redemption" 1999, Death Metal
+
+1. The Voyage 
+2. Forty Seconds Bloodbath
+3. Forever In Gloom 
+4. Heaps Of Blood
+5. Embraced By Pain
+6. Redemption 
+7. Ashes Of Mourning Life
+8. Partly Dead
+
+### "Revelation Nausea" 2000, Death Metal
+
+Revelation nausea
+The corpsegrinder experience
+Beneath the soil
+Under clouds of blood
+The art of war
+When silence conquers
+Chapter of pain
+The holocaust
+Exhaling life
+9 mm salvation
+
+### "Blood Rapture" 2002, Death Metal
+
+
+
+### "Primal Massacre" 2004, Death Metal
+
+1. Primal Massacre 
+2. Gore Apocalypse 
+3. Stray Bullet Kill 
+4. Epidemic (Created To Kill) 
+5. Demons Divine 
+6. Autopsy Extravaganza 
+7. Retaliation 
+8. Condemned by pride 
+9. Cursed Revelations 
+10. Chainsaw Surgery
+
+### "Terrorize brutalize sodomize" 2007, Death Metal
+
+01 - Eternal trail of corpses
+02 - Scavenging the slaughtered
+03 - Terrorize brutalize sodomize
+04 - The burning black
+05 - Defiled and inferior
+06 - March into oblivion
+07 - Whispers from the dead
+08 - Heresy
+09 - Flesh passion
+10 - Cremation ceremony
+Vomitory is
+Erik Rundqvist - Bass & Vocals
+Urban Gustafsson - Guitar
+Petter Ostlund - Lead Guitar
+Tobias Gustafsson - Drums
+
+### "Carnage Euphoria" 2009, Death Metal
+
+1. The Carnage Rages On 04:30
+2. Serpents 03:24 
+3. A Lesson In Virulence 04:46 
+4. Ripe Cadavers 04:19 
+5. Rage of Honour 02:35
+6. The Ravenous Dead 04:31
+7. Deadlock 03:10
+8. Rebirth of the Grotesque 04:04 
+9. Possessed 02:14 
+10. Great Deceiver 05:25 
+
+### "Opus Mortis VIII" 2011, Death Metal
+
+01. Regorge In The Morgue
+02. Bloodstained
+03. They Will Burn
+04. The Dead Awaken
+05. Hate In A Time Of War
+06. Torturous Ingenious
+07. Forever Damned
+08. Shrouded In Darkness
+09. Combat Psychosis
+10. Requiem For The Fallen
+
 
 ## Отношения с другими группами
 

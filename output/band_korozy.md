@@ -1,8 +1,73 @@
 # Korozy
 
-Дискография
-"Long Road to the Land of Black" 1999, Black Metal
-"From the Cradle to the Grave" 2000, Black Metal
+Sympho Black Metal from Bulgaria
+
+## Дискография
+
+### "Long Road to the Land of Black" 1999, Black Metal
+
+Road to the land of black
+Dying memories
+Welcome to the Black Palace
+Birth of the Witch
+The blessing of Kehajota Witch
+Soul belongs to evil
+The anger of servent
+Crystal ball
+
+### "From the Cradle to the Grave" 2000, Black Metal
+
+1 From The Cradle To The Grave
+2 With The soul Of Autumn
+3 Khan Aspsrough
+4 Lord Of Future
+5 Tsar Samuil`s Endless Night
+6 Keeper Of The Cemetary
+7 Heats The Devil`s Shadow
+8 The Garden Of Black Flowers
+9 Keeper Of The Cemetary (overdrive remix)
+10 The Garden Of Black Flowers (bulgarian version) - bonus
+
+
+ Recording line-up:
+G McManus - guitars, vocals
+P Volgoth - keyboards
+V Necron - bass
+N Kalhas - drums
+
+KOROZY are proud to hail the new members on board:
+Agrax - drums
+Astaroth - guitars 
+
+Recorded and mixed at Acoustic Version studio, Boijana, Soha
+between November 1999 and March 2000
+Engineered by Borislav Prodanov and Georgy Gogov
+Produced by Korozy. Mastered by RMS III
+
+Additional participation:
+Female vocals on Within the Soul of Autumn performed by
+Gergana Dimitrova courtesy appearing from Eva Quartet and The Mystery Of The Bulgarian Voices choir
+Spoken words on Lord of Future performed by Angela De Ville
+Keeper of the Cemetery remixed by ZZ Mineff & R.O.B.T.F.
+
+Cover: Design concept by lvailo Sokolov and Angela Alexandrova.
+Front artwork: airbrush painting by Kaloyan Smokov.
+Photos by Martin Cnichov. Pictures shot on location ol the ancient cave
+sanctuary The Horseman of Madara near the first Bulgarian capital ol Pliska.
+Layout by Kostilkata
+
+All music by Korozy. Lyrics by G McManus
+
+English version adapted by Vesso The Teacher and Angela De Ville
+Vocal theme on Within the Soul ol Autumn based upon the Bulgarian folk song
+Priturilase Planinata /The Mountain has overturned/
+Chorus theme on Neath the Devils Shadow, freely interpreted, based upon the
+Bulgarian folk song Hubava si Moia Goro /You are Beautiful, My Forest/
+
+Executive producers
+lvailo Sokolov and Angela Alexandrova at 0.4.3.
+Band management provided by 0.4.3. 
+
 
 ## Отношения с другими группами
 

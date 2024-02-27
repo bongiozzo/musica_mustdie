@@ -1,7 +1,19 @@
 # Undina
 
-Дискография
-"Die Funfwindstrasse" 2008, Death Doom
+
+
+## Дискография
+
+### "Die Funfwindstrasse" 2008, Death Doom
+
+1. Not Fun 03:58  
+2. Die Funfwindstrasse 04:01  
+3. Undina 06:16  
+4. Ave Maria 05:11  
+5. I am Crying with the Blood 09:43  
+6. Shedrik 01:49  
+7. Time to Body Change 05:31 
+
 
 ## Отношения с другими группами
 

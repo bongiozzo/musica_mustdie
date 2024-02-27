@@ -1,7 +1,23 @@
 # Bodies in the Gears of the Apparatus
 
-Дискография
-"Simian Hybrid Prototype [EP]" 2004, Deathcore
+
+
+## Дискография
+
+### "Simian Hybrid Prototype [EP]" 2004, Deathcore
+
+1. A Lubricated Rubber Glove & Pornographic Photos of a Decapitated Chinese Hooker
+2. Of Things to Come	 
+3. Love Affair With a Mannequin
+4. Big, Bad, Mean & Nasty 
+5. Hoist the Black Flag (And Begin Slitting Throats)
+6. Seventeen Reasons to Die Wearing Black
+7. Fuck Her Like You Paid For It
+8. The Ugliest Smile in Rock & Roll 
+9. White Trash Whore
+10. Fuck the Middle East (S.O.D. cover)	
+11. Last Words Can Be So Cliche
+
 
 ## Отношения с другими группами
 

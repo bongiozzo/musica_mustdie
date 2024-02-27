@@ -1,16 +1,87 @@
 # Razor
 
-Дискография
-"Armed And Dangerous (EP)" 1984, Thrash
-"Evil Invaders" 1985, Thrash
-"Executioner's Song" 1985, Thrash
-"Malicious Intent" 1986, Thrash
-"Custom Killing" 1987, Thrash
-"Violent Restitution" 1988, Thrash
-"Shotgun Justice" 1990, Thrash
-"Open Hostility" 1991, Thrash
-"Exhumed (Best Of)" 1994, Thrash
-"Decibels" 1997, Thrash
+
+
+## Дискография
+
+### "Armed And Dangerous (EP)" 1984, Thrash
+
+
+
+### "Evil Invaders" 1985, Thrash
+
+1. Nowhere Fast (Instr.) 4.30
+2. Cross Me Fool 3.13
+3. Legacy OF Doom 3.23
+4. Evil Invaders 3.46
+5. Iron Hammer 3.39
+6. Instant Death 2.56
+7. Cut Throat 4.11
+8. Speed Merchants 3.44
+9. Tortured Skull 5.33
+10. Thrashdance 3.17
+
+ Stace "Sheepdog" McLaren - Vocals
+ Dave Carlo - Guitar
+ Mike Campagnolo - Bass
+ M-Bro - Drums
+
+(p)&(c) 1985
+
+### "Executioner's Song" 1985, Thrash
+
+
+
+### "Malicious Intent" 1986, Thrash
+
+
+
+### "Custom Killing" 1987, Thrash
+
+
+
+### "Violent Restitution" 1988, Thrash
+
+ Side One:
+1. The Marshall Arts 2.38
+2. Hyperstenia 3.12
+3. Taste The Floor 2.03
+4. Behind The Bars 2.08
+5. Below The Belt 2.47
+6. Ill Only Say Horse 2.22
+7. Enforcer 3.35
+ Side Two:
+1. Violent Restitution 2.25
+2. Out Of The Game 2.38
+3. Edge Of The Razor 4.04
+4. Eve Of The Storm 3.10
+5. Discipline 0.20
+6. Fed Up 2.25
+7. Soldier Of Fortune 2.53
+
+Stelce "Sheepdog" McLaren - Vocals
+Dave Carlo - Guitars
+Adam Carlo - Bass
+Rob Mills - Drums
+
+(p)&(c) 1988 STEAMHAMMER Records
+
+### "Shotgun Justice" 1990, Thrash
+
+
+
+### "Open Hostility" 1991, Thrash
+
+
+
+### "Exhumed (Best Of)" 1994, Thrash
+
+
+
+### "Decibels" 1997, Thrash
+
+
+
 
 ## Отношения с другими группами
 

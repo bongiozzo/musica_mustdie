@@ -1,10 +1,63 @@
 # OSI
 
-Дискография
-"Office Of Strategic Influence" 2003, Progressive
-"Free" 2006, Electronic
-"Re: Free (EP)" 2006, Ambient
-"Fire Make Thunder" 2012, Progressive
+
+
+## Дискография
+
+### "Office Of Strategic Influence" 2003, Progressive
+
+1. The New Math (What He Said) 
+2. OSI 
+3. When You're Ready 
+4. Horseshoes And B-52's 
+5. Head 
+6. Hello, Helicopter! 
+7. Shutdown 
+8. Dirt From A Holy Place
+9. Memory Daydreams Lapses
+10. Standby (Looks Like Rain) 
+
+
+
+Jim Matheos – Guitar, keyboards, programming
+Kevin Moore – Vocals, keyboards, programming
+Mike Portnoy – Drums
+
+Sean Malone – Bass, Stick
+Steven Wilson – Vocals on shutDOWN
+
+Lyrics by Moore, except shutDOWN by Wilson
+Bass on OSI by Matheos
+
+### "Free" 2006, Electronic
+
+01. Sure You Will 
+02. Free 
+03. Go 
+04. All Gone Now 
+05. Home Was Good 
+06. Bigger Wave 
+07. Kicking 
+08. Better 
+09. Simple Life 
+10. Once 
+11. Our Town
+
+### "Re: Free (EP)" 2006, Ambient
+
+
+
+### "Fire Make Thunder" 2012, Progressive
+
+01. Cold Call
+02. Guards
+03. Indian Curse
+04. Enemy Prayer
+05. Wind Won't Howl
+06. Big Chief II
+07. For Nothing
+08. Invisible Men
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,13 @@
 # Amethyst
 
-Дискография
-"Flames Of Eternity" 2000, Hard Rock
+
+
+## Дискография
+
+### "Flames Of Eternity" 2000, Hard Rock
+
+
+
 
 ## Отношения с другими группами
 

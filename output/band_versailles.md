@@ -1,9 +1,21 @@
 # Versailles
 
-Дискография
-"Lyrical Sympathy (EP)" 2007, Metal
-"Noble" 2008, Metal
-"Jubilee" 2010, Metal
+
+
+## Дискография
+
+### "Lyrical Sympathy (EP)" 2007, Metal
+
+
+
+### "Noble" 2008, Metal
+
+
+
+### "Jubilee" 2010, Metal
+
+
+
 
 ## Отношения с другими группами
 

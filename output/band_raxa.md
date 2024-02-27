@@ -1,8 +1,33 @@
 # Raxa
 
-Дискография
-"Rabinal Achi" 2007, Death Doom
-"Oxlahun Ti Ku" 2007, Death Doom
+Ethnic doom-metal
+
+## Дискография
+
+### "Rabinal Achi" 2007, Death Doom
+
+1. U NABE BANBAL
+2. U NABEMUL CA CHAU QUECHE-ACHI
+3. U CAMUL CA CHAU RABINAL ACHI
+4. MUN
+5. U CAMUL CA CHAU QUECHE ACHI
+6. ROXMUL CA CHAU RABINAL ACHI
+7. ROXMUL CA CHAU QUECHE ACHI
+8. U CAHMUL CA CHAU RABINAL ACHI
+
+### "Oxlahun Ti Ku" 2007, Death Doom
+
+1. Ni cah Raxa (I am Raxa) 
+2. Oxlahun Ti Ku (Underground Supreme War) 
+3. Tzonimolco (Hall of Fame) 
+4. Mimixcoa icuic (Mixcoatl) 
+5. Citialin calpolli (Star Tribe) 
+6. Xippe Totec (Nightgod) 
+7. Tlaloc 
+8. Iamat 
+9. Ma xipatinemi (Farewell) 
+10. Nahua cochi (Fadu)
+
 
 ## Отношения с другими группами
 

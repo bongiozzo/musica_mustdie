@@ -1,7 +1,25 @@
 # Al'Virius
 
-Дискография
-"Beyond The Human Nation" 2007, Thrash
+
+
+## Дискография
+
+### "Beyond The Human Nation" 2007, Thrash
+
+1. Intro 
+2. The Book of the Dead
+
+Armageddon thrilogy
+3. Dark Dreams (part 1) 
+4. The Voices (part 2) 
+5. I Am the One (part 3) 
+
+6. Dying 
+7. Piano Passage 
+8. Chamber of the Sin 
+9. Into the Underworld 
+10. As a Legend
+
 
 ## Отношения с другими группами
 

@@ -1,13 +1,116 @@
 # Drowning Pool
 
-Дискография
-"Sinner" 2001, Nu Metal
-"Desensitized" 2004, Nu Metal
-"Full Circle" 2007, Nu Metal
-"Loudest Common Denominator (Live)" 2009, Nu Metal
-"Drowning Pool" 2010, Nu Metal
-"Resilience" 2013, Nu Metal
-"Hellelujah" 2016, Nu Metal
+
+
+## Дискография
+
+### "Sinner" 2001, Nu Metal
+
+01. Sinner (2:27)
+02. Bodies (3:21)
+03. Tear Away (4:14)
+04. All Over Me (3:12)
+05. Reminded (3:24)
+06. Pity (2:52)
+07. Mute (3:19)
+08. I Am (3:49)
+09. Follow (3:20)
+10. Told You So (3:06)
+11. Sermon (4:19)
+
+### "Desensitized" 2004, Nu Metal
+
+01. Think (3:32)
+02. Step Up (3:17)
+03. Numb (3:31)
+04. This Life (3:42)
+05. Nothingness (3:23)
+06. Bringing Me Down (3:07)
+07. Love and War (3:37)
+08. Forget (3:22)
+09. Cast Me Aside (4:12)
+10. Killin' Me (3:07)
+11. Hate (3:40)
+
+### "Full Circle" 2007, Nu Metal
+
+01. Full Circle (3:18)
+02. Enemy (3:26)
+03. Shame (3:10)
+04. Reborn (4:09)
+05. Reason I'm Alive (3:50)
+06. Soldiers (3:31)
+07. Paralyzed (3:42)
+08. Upside Down (4:18)
+09. 37 Stitches (3:50)
+10. No More (4:35)
+11. Love X2 (3:25)
+12. Duet (3:21)
+13. Rebel Yell (Billy Idol cover) (4:22)
+
+### "Loudest Common Denominator (Live)" 2009, Nu Metal
+
+01. Sinner (2:49)
+02. Full Circle (3:11)
+03. Enemy (3:34)
+04. Step Up (3:46)
+05. Shame (3:14)
+06. Reminded (3:41)
+07. Soldiers (5:46)
+08. Reborn (4:13)
+09. Pity (3:49)
+10. Bodies (10:02)
+11. Tear Away (5:04)
+12. 37 Stitches (Acoustic) (3:46)
+13. Shame (Acoustic) (4:25)
+
+### "Drowning Pool" 2010, Nu Metal
+
+01. Let The Sin Begin (3:37)
+02. Feel Like I Do (3:33)
+03. Turn So Cold (3:38)
+04. Regret (3:17)
+05. Over My Head (3:26)
+06. All About Me (3:41)
+07. More Than Worthless (3:56)
+08. Children Of The Gun (3:31)
+09. Alcohol Blind (4:11)
+10. Horns Up (3:45)
+11. King Zero (2:59)
+
+### "Resilience" 2013, Nu Metal
+
+01. Anytime Anyplace
+02. Die For Nothing
+03. One Finger And A Fist
+04. Digging These Holes
+05. Saturday Night
+06. Low Crawl
+07. Life Of Misery
+08. Broken Again
+09. Understand
+10. Bleed Wth You
+11. Skip To The End
+Bonus tracks:
+12. In Memory Of
+13. Blindfold
+
+### "Hellelujah" 2016, Nu Metal
+
+01. Push (3:13)
+02. By The Blood (3:27)
+03. Drop (3:41)
+04. Hell To Pay (4:01)
+05. We Are The Devil (4:05)
+06. Snake Charmer (3:47)
+07. My Own Way (3:33)
+08. Goddamn Vultures (3:53)
+09. Another Name (3:41)
+10. Sympathy Depleted (3:31)
+11. Stomping Ground (3:40)
+12. Meet The Bullet (4:00)
+13. All Saints Day (4:19)
+
 
 ## Отношения с другими группами
 

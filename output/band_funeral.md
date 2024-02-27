@@ -1,13 +1,90 @@
 # Funeral
 
-Дискография
-"Tristese" 1994, Death Doom
-"Tragedies" 1995, Death Doom
-"In Fields Of Pestilent Grief" 2002, Death Doom
-"From These Wounds" 2007, Doom
-"As the Light Does the Shadow" 2008, Death Doom
-"To Mourn Is a Virtue" 2011, Death Doom
-"Oratorium" 2012, Death Doom
+
+
+## Дискография
+
+### "Tristese" 1994, Death Doom
+
+1. Thoughts Of Tranquillity 10:38 
+2. A Poem For The Dead 18:28 
+3. Yearning For Heaven 10:24
+
+### "Tragedies" 1995, Death Doom
+
+1. Taarene (12.25)
+2. Under Ebony Shades (13.32)
+3. Demise (8.43)
+4. When Nightfall Clasps (14.20)
+5. Moment In Black (9.39)
+
+
+
+All songs written by FUNERAL.
+Produced and mixed by FUNERAL and
+Per Oyvind Borgen.
+Recorded at V.L.K. Studios.
+
+Einar Fredriksen - Vocals, Bass
+Toril Snyen - Vocals
+Thomas Angell - Guitar
+Anders Eek - Drums
+Christian Loos - Guitar
+
+ Session musicians:
+ Herman - Violin
+ Jorgen - Organ and Timphany
+
+### "In Fields Of Pestilent Grief" 2002, Death Doom
+
+1. Yield To Me 07:07 
+2. Truly a Suffering 04:33 
+3. The Repentant 06:41  
+4. The Stings I Carry 05:40 
+5. When Light Will Dawn 08:34  
+6. In Fields of Pestilent Grief 01:45  
+7. Facing Failure 06:13  
+8. What Could Have Been 03:42 
+9. Vile Are The Pains 05:49  
+10. Epilogue 04:29
+
+### "From These Wounds" 2007, Doom
+
+1. The Barren Skin 08:10  
+2. From These Wounds 07:42  
+3. The Architecture of Loss 09:02  
+4. Red Moon 08:32  
+5. Vagrant God 06:15  
+6. Pendulum 09:13  
+7. Saturn 08:24
+
+### "As the Light Does the Shadow" 2008, Death Doom
+
+
+
+### "To Mourn Is a Virtue" 2011, Death Doom
+
+
+
+### "Oratorium" 2012, Death Doom
+
+1. Burning With Regret
+2. Hate
+3. Break Me
+4. Song Of The Knell
+5. From The Orchestral Grave
+6. Making The World My Tomb
+7. Will You Have Me?
+
+
+The vinyl edition features one bonus track:
+ 8. Thou Who Parts Flesh
+ 
+The Deluxe Digipak Edition includes a bonus CD with 3 additional tracks:
+ 1. So Now Scorn Leads the Vessel
+ 2. Need
+ 3. Eg Ser 
+
 
 ## Отношения с другими группами
 

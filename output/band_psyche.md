@@ -1,7 +1,23 @@
 # Psyche
 
-Дискография
-"The 11th Hour" 2005, Synthpop
+
+
+## Дискография
+
+### "The 11th Hour" 2005, Synthpop
+
+01. Bloodcurse
+02. Yearning
+03. Defenseless
+04. 15 Minutes
+05. September Moon
+06. Until
+07. The Belonging Kind
+08. Justice And Damnation
+09. 11th Hour
+10. Buried Alive
+11. Theme 7
+
 
 ## Отношения с другими группами
 

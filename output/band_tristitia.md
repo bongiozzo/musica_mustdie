@@ -1,14 +1,127 @@
 # Tristitia
 
-Дискография
-"Winds of Sacrifice (demo)" 1993, Death Doom
-"Reminiscences of the Mourner (demo)" 1994, Death Doom
-"One with Darkness" 1995, Death Doom
-"Crucidiction" 1997, Death Doom
-"The Last Grief" 2000, Death Doom
-"Crucidiction (re-release)" 2000, Death Doom
-"Garden of Darkness" 2002, Black Metal
-"One with Darkness (re-release)" 2005, Death Doom
+
+
+## Дискография
+
+### "Winds of Sacrifice (demo)" 1993, Death Doom
+
+1. Dancing Souls
+2. Burn the Witch
+3. Winds of Sacrifice
+4. The Other Side
+
+### "Reminiscences of the Mourner (demo)" 1994, Death Doom
+
+1. Envy The Dead
+2. Reminisences of the Mourner
+3. Ashes of the Witch
+4. Mark My Words
+
+### "One with Darkness" 1995, Death Doom
+
+1.  Sorrow
+2.  Kiss The Cross
+3.  One With Darkness
+4.  Winds Of Sacrifice
+5.  Burn The Witch
+6.  Hymn Of Lunacy
+7.  Ashes Of The Witch
+8.  Dancing Souls
+9.  Adagio 1809
+[10].Reminiscences Of The Mourner
+[11].Dance Of The Selenites
+
+[10]-[11] На Стороне B
+
+Thomas Karlsson - Vocals
+Louis B. Golvez - All Guitars, Bass & Keyboards
+Bruno Nilsson - Drums
+
+All Music & Arrangements By TRISTITIA.
+Produced By Luis B. Galvez.
+Engineered By Stefan Isenbring.
+Recorded & Mixed In Three Dark, Cold & Icy Winter Weeks At No Quarter Studio, Jan.- Feb. 1995, Sweden.
+
+(P)&(C) 1995 HOLY Records
+
+### "Crucidiction" 1997, Death Doom
+
+1.  Ego Sum Ressurectio
+2.  Christianic Indulgence
+3.  Crucidiction
+4.  Wintergrief
+5.  Envy The Dead
+6.  Lioness' Roar
+7.  Mark My Words
+8.  Gardenia
+[9]. Final Lament
+
+[9] - На Стороне B
+
+Thomas Karlsson - Chants Of Death
+Louis B. Golvez - All True Axes Of Darkness, Hatred & Madness, Keyboards
+Adrian Letelier - Bass Of Depths
+Session Drums Of Doom By Alessio
+
+All Music & Arrangements By TRISTITIA.
+Produced By Luis B. Golvez.
+Engineered By Dan Swano.
+Recorded At Unisound, Orebro, Sweden.
+
+(P)(C) 1997 HOLY Records
+
+### "The Last Grief" 2000, Death Doom
+
+Once Upon A Dawn... 
+In The Light Of The Moon 
+Slaughteary 
+Evolic 
+Golden Goddess Of Fire 
+Tears & Tequila 
+Angelwitches Palace 
+Memory's Garden 
+Instrumental Hollowcoast 
+MediEvil 
+Under The Cross 
+Darknia : The Last Grief
+
+### "Crucidiction (re-release)" 2000, Death Doom
+
+
+
+### "Garden of Darkness" 2002, Black Metal
+
+1. The Entrance
+2. Path I (Beholder"s Tears)
+3. Path II (Black Godz Serenade - Part I)
+4. Path III (As Death Says Mine)
+5. Path IV (When Tears Cry)
+6. Path V (Beyond The 7th Valley)
+7. Path VI (There Will Never Be Another Dawn)
+8. Path VII (Black Godz Serenade - Part II)
+9. Path VIII (Tears Of The Moon)
+
+### "One with Darkness (re-release)" 2005, Death Doom
+
+1. Sorrow
+2. Kiss the Cross
+3. One with Darkness
+4. Winds of Sacrifice
+5. Burn the Witch
+6. Hymn of Lunacy
+7. Ashes of the Witch
+8. Dancing Souls
+9. Adagio 1809
+10. Reminiscences of the Mourner
+11. Dance of the Selenites
+12. Prelude of Solitude *
+13. The Other Side *
+14. Envy the Dead *
+15. Mark My Words *
+
+* bonus
+
 
 ## Отношения с другими группами
 

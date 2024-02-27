@@ -1,17 +1,210 @@
 # Acheron
 
-Дискография
-"Messe Noir (live demo)" 1989, Death Metal
-"Rites of the Black Mass" 1992, Death Metal
-"Hail Victory" 1993, Death Metal
-"Satanic Victory" 1994, Death Metal
-"Lex Talionis" 1995, Death Metal
-"Anti-God, Anti-Christ" 1996, Death Metal
-"Those Who Have Risen" 1998, Death Metal
-"Tribute to the Devil's Music" 2003, Death Metal
-"Rebirth: Metamorphosing Into Godhood" 2003, Death Metal
-"Decade Infernus 1988 - 1998 (2 CD)" 2004, Death Metal
-"Final Conflict: Last Days Of God" 2009, Death Metal
+Satanic Death-Black Metal
+
+## Дискография
+
+### "Messe Noir (live demo)" 1989, Death Metal
+
+
+1. Intro
+2. Prayer of Hell
+3. As Thou Wilt
+4. Midnight Offering
+5. Alla Xul
+6. So It Is Done
+
+
+### "Rites of the Black Mass" 1992, Death Metal
+
+1. To Thee We Confess
+2. Thou Art Lord
+3. Ave Satanas
+4. Summoning The Master
+5. One With Darkness
+6. Prayer Of Hell
+7. Unholy Praises
+8. Cursed Nazarene
+9. The Enochian Key
+10.Let Us Depart
+
+ Vincent Crowley - Vocals & Bass
+ Peter Slate - Guitar
+ Robert Orr - Drums
+
+Produced By Scott Burns,Vincent Crowley & 
+Peter Slate.
+Recorded At Morrisound Studios,Tampa,Florida.
+Peter H.Gilmore Infernal Adviser & Intros.
+Special Back-Up Vocals Done By Mike Browning (NOCTURNUS).
+
+(p)&(c) 1992 TURBO MUSIC
+
+### "Hail Victory" 1993, Death Metal
+
+1. Intro 1
+ 2. Unholy Praises
+ 3. Intro 2
+ 4. Seven Deadly Sins
+ 5. Intro 3
+ 6. Satanic Erotica
+ 7. Intro 4
+ 8. Prayer Of Hell
+ 9. Intro 5
+10. 666
+11. Intro 6
+12. God Is Dead
+13. Intro 7
+14. Alla Xul
+15. Intro 8
+16. One With Darkness
+17. Outro
+
+### "Satanic Victory" 1994, Death Metal
+
+	
+UNHOLY PRASES
+SEVEN DEADLY SINS
+SATANIC EROTICA
+PRAYER OF HELL
+666
+GOD IS DEAD
+
+### "Lex Talionis" 1995, Death Metal
+
+1. Intro
+2. Legions Of Hatred
+3. Intro
+4. Enter Thy Coven
+5. Intro
+6. Slaughterisation For Satan
+7. Intro
+8. Voices Within
+9. Intro
+10.Purification Day
+11.Intro
+12.Inner Beasts
+13.Intro
+14.The Entity
+15.Intro
+16.I.N.R.I.
+17.Lex Talionis March
+
+ Vincent Crowley - Vocals
+ Vincent Breeding - Lead Guitars
+ Mike Browning - Drums
+ Troy Heffern - Bass
+ Special Guest Peter Gilmore - Introductions
+
+All Music & Lyrics By ACHERON
+Produced By Michi Zastoupil
+Recorded & Mixed At Viena Power Station
+
+(p)&(c) 1995 LETHAL Records
+
+### "Anti-God, Anti-Christ" 1996, Death Metal
+
+1. INTRO / FUCK THE WAYS OF CHRIST
+2. INTRO / SHEMHAMFORASH (THE ULTIMATE BLASPHEMY)
+3. INTRO / BLESSED BY DAMNATION
+4. INTRO / BAPTISM FOR DEVLYN ALEXANDRA
+5. INTRO / TOTAL WAR
+6. AVE SATANAS (1996 version)
+7. BLESSED BY DAMNATION (live)
+
+### "Those Who Have Risen" 1998, Death Metal
+
+1. Intro: Nosferatu Prelude (Gilmore) 
+2. Lifeforce (The Blood) (Crowley) 
+3. Hekal Tiamat (Crowley) 
+4. Necromanteion Communion (Crowley) 
+5. Out of Body (Crowley) 
+6. Undead Celebration (Crowley) 
+7. Final Harvest (Crowley) 
+8. Shurpu Kishpu (Crowley) 
+9. Calling (Crowley) 
+10.Immortal Sigil (Crowley) 
+
+
+### "Tribute to the Devil's Music" 2003, Death Metal
+
+1. Black Sabbath (BLACK SABBATH)
+2. Evil Dead (DEATH)
+3. Dawn Of Megiddo (CELTIC FROST)
+4. Wrathchild (IRON MAIDEN)
+5. Flag Of Hate (KREATOR)
+6. Don't Need - Religion (MOTORHEAD)
+7. Room Of Golden Air (MERCYFUL FATE)
+8. War Machine (KISS)
+9. Raise The Dead (BATHORY)
+10. Devil's Child (JUDAS PRIEST)
+11. Countee Bathory (VENOM)
+12. Ave Satanas (ACHERON)
+
+### "Rebirth: Metamorphosing Into Godhood" 2003, Death Metal
+
+1. Chaos Invocation
+2. Church Of One
+3. Xomaly
+4. Bow Before Me
+5. The Kindred
+6. A Long Time Ago
+7. Golgotha's Truth
+8. Betrayed (A Broken Pact)
+9. The 9th Gate
+
+
+### "Decade Infernus 1988 - 1998 (2 CD)" 2004, Death Metal
+
+Диск 1
+Thou Art Lord
+God Is Dead
+Slaughterization For Satan
+Blessed By Damnation
+Immortal Sigil
+Let Us Depart
+Satanic Erotica
+One With Darkness
+Fuck The Ways Of Christ
+Lifeforce
+The Enochian Key
+Six Six Six
+Enter Thy Coven
+Final Harvest
+Ave Satanas 
+Prayer Of Hell
+Диск 2
+Out Of Body
+Alla Xul
+To Thee We Confess
+Shehamforash
+Purification Day
+Hekal Tiamat
+Seven Deadly Sins
+Cursed Nazarene
+Necromanteion Communion
+Baptism For Devlyn Alexandra
+Legions Of Hatred
+Unholy Praises
+Summoning The Master
+Voices Within
+Undead Celebration
+The Entity
+
+### "Final Conflict: Last Days Of God" 2009, Death Metal
+
+1. Intro 00:48  
+2. The Apocalypse 05:59  
+3. Rise Of Rebellion 05:44  
+4. Blood Oath (Pactum Tacitum) 05:29  
+5. I Am Heathen 04:13  
+6. Godless (We Are Gods!) 04:58  
+7. Salvation Through Hatred 04:40  
+8. Power And Might 06:06  
+9. Millennium's End 04:41  
+10. A New Age 05:46  
+11. Anno Armegeddon 02:45 
+
 
 ## Отношения с другими группами
 

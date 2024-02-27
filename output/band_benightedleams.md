@@ -1,7 +1,21 @@
 # Benighted Leams
 
-Дискография
-"Ferly Centesms" 2004, Black Metal
+
+
+## Дискография
+
+### "Ferly Centesms" 2004, Black Metal
+
+01. Floccinaucinihilipilification 
+02. Ferly Centesms 
+03. Dryad of the Fylfot 
+04. Orphny of Arain Blood 
+05. Confraction 
+06. The Day of Mirandous Sarmassation 
+07. The Ormod Liss of Transuranical Noctivagations 
+08. Sullen Slumber of Swooning Gloom 
+09. The Ice Desert
+
 
 ## Отношения с другими группами
 

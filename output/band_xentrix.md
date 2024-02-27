@@ -1,14 +1,162 @@
 # Xentrix
 
-Дискография
-"Shattered Existence" 1989, Thrash
-"For Whose Advantage" 1990, Thrash
-"Dilute to Taste" 1991, Thrash
-"Kin" 1992, Thrash
-"Scourge" 1996, Thrash
-"Kin [re-release]" 2006, Thrash
-"Shattered Existence [re-release]" 2006, Thrash
-"For Whose Advantage [re-release]" 2006, Thrash
+
+
+## Дискография
+
+### "Shattered Existence" 1989, Thrash
+
+1. No Compromise 03:03 
+2. Balance Of Power 05:13  
+3. Crimes 05:35 
+4. Back In The Real World 03:58 
+5. Dark Enemy 04:06 
+6. Bad Blood 05:03 
+7. Reasons For Destruction 05:28
+8. Position Of Security 05:05 
+9. Heaven Cent 05:06 
+
+
+Vocals : Chris Astley
+Guitars : Chris Astley
+Guitars : Kristian Havard 
+Bass : Paul MacKenzie
+Drums : Dennis Gasser
+
+### "For Whose Advantage" 1990, Thrash
+
+1. Questions 05:09  
+2. For Whose Advantage 06:21  
+3. The Human Condition 03:37 
+4. False Ideals 05:49 
+5. The Bitter End 05:18 
+6. New Beginnings 01:16  
+7. Desperate Remedies 04:50  
+8. Kept In The Dark 04:13
+9. Black Embrace 03:51 
+10. Running White Faced City Boy 02:47 
+
+
+Recorded in June 1990 at Loco Studios, South Wales
+Produced by John Cuniberti
+Engineered by John Cuniberti and Mark Flannery
+Mixed at Raezor Studios, London by John Cuniberti
+Assistant engineer Doug Bennett
+Speech on ‘For Whose Advantage?’ by Professor Smithy Nicks
+Backing vocals by John Cuniberti & Phlombe Pik
+All songs written by Astley, Gasser, Havard & Mackenzie,
+except ‘Running White Faced City Boy’ written by Colin Townes
+All songs published by Roadblock Music (ASCAP),
+except ‘Running White Faced City Boy’ published by Pussy Music Ltd. / Chappell
+Music Ltd.
+Cover Artwork / Illustrations by Dave Higginson
+Package Design / Type by Brian Burrows
+Band Photos by Andrew Horsfield
+
+### "Dilute to Taste" 1991, Thrash
+
+1. Pure Thought 05:43 
+2. Shadows of Doubt 06:09
+3. Balance of Power 04:55 
+4. Kept In the Dark 04:25 
+5. Crimes 05:36 
+6. Ghostbusters [Ray Parker Jr. cover] 02:40
+
+### "Kin" 1992, Thrash
+
+1. The Order of Chaos 04:41 
+2. A Friend To You 04:55 
+3. All Bleed Red 03:28 
+4. No More Time 06:58 
+5. Waiting 04:31
+6. Come Tomorrow 05:37
+7. Release 05:31
+8. See Through You 06:09  
+9. Another Day 04:49
+
+### "Scourge" 1996, Thrash
+
+1. 13 Years 06:01  
+2. Scourge 05:21  
+3. Incite 03:22  
+4. Caught You Living 03:41  
+5. Strength of Persuasion 06:07  
+6. Never Be 04:26  
+7. The Hand That Feeds Itself 05:06  
+8. Blood Nation 06:59  
+9. Creed 04:45  
+10. Breathe 06:46
+
+### "Kin [re-release]" 2006, Thrash
+
+The Order of Chaos 
+A Friend To You 
+All Bleed Red 
+No More Time 
+Waiting 
+Come Tomorrow 
+Release 
+See Through You 
+Another Day 
++ бонусы
+Reward (from The Order Of Chaos single)
+Never Be (demo)
+The Hand That Feeds Itself (demo)
+Silence (demo)
+
+Dennis Gasser - ударные
+Kristian Havard - гитары
+Chris Astley - вокал, гитары
+Paul Mackenzie - бас
+сессионный музыкант:
+Carl Arnfield - клавишные
+
+### "Shattered Existence [re-release]" 2006, Thrash
+
+No Compromise 
+Balance of Power 
+Crimes 
+Back in the Real World 
+Dark Enemy 
+Bad Blood 
+Reasons for Destruction 
+Position of Security 
+Heaven Cent 
++ бонусы
+Ghostbusters 
+Nobody's Perfect 
+Interrogate
+
+Chris Astley - вокал, гитары
+Kristian Havard - гитары
+Paul MacKenzie - бас
+Dennis Gasser - ударные
+
+### "For Whose Advantage [re-release]" 2006, Thrash
+
+Questions 
+For Whose Advantage 
+The Human Condition 
+False Ideals 
+The Bitter End 
+New Beginnings 
+Desperate Remedies 
+Kept In The Dark 
+Black Embrace 
+Running White Faced City Boy 
++ бонусы
+Pure Thought
+Shadows Of Doubt
+Balance Of Power (live)
+Kept In The Dark (live)
+Crimes (live)
+Ghostbusters (live)
+
+Chris Astley - вокал, гитары
+Kristian Havard - гитары
+Paul MacKenzie - бас
+Dennis Gasser - ударные
+
 
 ## Отношения с другими группами
 

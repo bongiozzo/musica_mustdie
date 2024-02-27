@@ -1,7 +1,13 @@
 # Cry Of Dawn
 
-Дискография
-"Cry Of Dawn" 2016, Metal
+feat. Goran Edman
+
+## Дискография
+
+### "Cry Of Dawn" 2016, Metal
+
+
+
 
 ## Отношения с другими группами
 

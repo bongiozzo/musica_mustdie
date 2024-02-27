@@ -1,21 +1,157 @@
 # Tygers of Pan Tang
 
-Дискография
-"Wild Cat" 1980, Heavy Metal
-"Spellbound" 1981, Heavy Metal
-"Crazy Nights" 1981, Heavy Metal
-"Live At Nottingham Rock City" 1981, Heavy Metal
-"The Cage" 1982, Heavy Metal
-"The Wreck-Age" 1985, Heavy Metal
-"First Kill (Re-release of early demo recordings)" 1986, Heavy Metal
-"Burning In The Shade" 1987, Heavy Metal
-"Mystical" 2001, Heavy Metal
-"Live At Wacken" 2001, Heavy Metal
-"Live In The Roar" 2003, Heavy Metal
-"Noises From The Cathouse" 2004, Heavy Metal
-"Leg Of The Boot: Live in Holland" 2005, Heavy Metal
-"Big Game Hunting (The Rarities) 2 CD" 2005, Heavy Metal
-"Animal Instinct" 2008, Heavy Metal
+(legend of  New Wave of British Heavy Metal)
+
+## Дискография
+
+### "Wild Cat" 1980, Heavy Metal
+
+1.   Euthanasia (Cox/Dick/Laws/Weir) - 3:49 
+2.   Slave to Freedom (Cox/Dick/Laws/Weir) - 6:00 
+3.   Don't Touch Me There (Cox/Dick/Laws/Weir) - 3:03 
+4.   Money (Cox/Dick/Laws/Weir) - 3:22 
+5.   Killers (Cox/Dick/Laws/Weir) - 6:38 
+6.   Fireclown (Cox/Dick/Laws/Weir) - 3:17 
+7.   Wild Catz (Cox/Dick/Laws/Weir) - 3:10 
+8.   Suzie Smiled (Cox/Dick/Laws/Weir) - 5:16 
+9.   Badger Badger (Cox/Dick/Laws/Weir) - 4:15 
+10.  Insanity (Cox/Dick/Laws/Weir) - 6:29 
+11.  Rock and Roll Man (Cox/Dick/Laws/Weir) - 2:35 
+12.  Alright on the Night (Cox/Dick/Laws/Weir) - 3:09 
+13.  Tush (Beard/Gibbons/Hill) - 2:18 
+14.  Straight as a Die (Cox/Dick/Laws/Weir) - 3:14 
+15.  Don't Take Nothing (Cox/Dick/Laws/Weir) - 3:04 
+16.  Bad Times (Cox/Dick/Laws/Weir) - 3:13 
+17.  Burning Up (Cox/Dick/Laws/Weir) - 2:58 
+18.  Don't Touch Me There [demo version] Cox/Dick/Laws/Weir) - 2:13 
+
+
+Jess Cox  -  Vocals 
+Brian Dick  -  Drums 
+Rocky Laws  -  Bass, Vocals 
+Chris Tsangarides  -  Producer, Engineer 
+Robb Weir  -  Guitar, Vocals 
+Big Dick  -  Gong, Stick 
+
+
+
+### "Spellbound" 1981, Heavy Metal
+
+1.   Gangland (Deverill/Dick/Laws/Sykes/Weir) - 3:40 
+2.   Take It (Deverill/Dick/Laws/Sykes/Weir) - 4:27 
+3.   Minotaur (Deverill/Dick/Laws/Sykes/Weir) - 0:23 
+4.   Hellbound (Deverill/Dick/Laws/Sykes/Weir) - 3:30 
+5.   Mirror (Deverill/Dick/Laws/Sykes/Weir) - 4:34 
+6.   Silver and Gold (Deverill/Dick/Laws/Sykes/Weir) - 3:38 
+7.   Tyger Bay (Deverill/Dick/Laws/Sykes/Weir) - 3:29 
+8.   The Story So Far (Deverill/Dick/Laws/Sykes/Weir) - 3:30 
+9.   Black Jack (Deverill/Dick/Laws/Sykes/Weir) - 3:17 
+10.  Don't Stop By (Deverill/Dick/Laws/Sykes/Weir) - 4:08 
+11.  All or Nothing (Lane/Marriott) - 2:44 
+12.  Don't Give a Damn (Deverill/Dick/Laws/Sykes/Weir) - 4:32 
+13.  Bad Times (Deverill/Dick/Laws/Sykes/Weir) - 2:42 
+14.  It Ain't Easy (Deverill/Dick/Laws/Sykes/Weir) - 4:04 
+15.  Don't Take Nothing (Deverill/Dick/Laws/Sykes/Weir) - 2:47 
+
+
+John Sykes  -  Guitar 
+Jon Deverill  -  Vocals 
+Brian Dick  -  Drums 
+Chris Garides  -  Keyboards 
+Rocky Laws  -  Bass 
+Robb Weir  -  Guitar, Vocals 
+
+
+
+### "Crazy Nights" 1981, Heavy Metal
+
+1.   Do It Good (Tigers Of Pan Tang) - 4:26 
+2.   Love Don't Stay (Tigers Of Pan Tang) - 4:18 
+3.   Never Satisfied (Tygers of Pan Tang) - 3:49 
+4.   Running Out of Time (Tigers Of Pan Tang) - 4:38 
+5.   Crazy Nights (Tigers Of Pan Tang) - 4:35 
+6.   Down and Out (Tigers Of Pan Tang) - 3:51 
+7.   Lonely Man (Tigers Of Pan Tang) - 4:19 
+8.   Make a Stand (Tigers Of Pan Tang) - 4:26 
+9.   Raised on Rock (Tygers of Pan Tang) - 3:25 
+10.  Slip Away (Tigers Of Pan Tang) - 3:14 
+11.  Stormlands (Tigers Of Pan Tang) - 4:17 
+12.  Paradise Drive (Tigers Of Pan Tang) - 3:42 
+
+
+John Sykes  -  Guitar 
+Jess Cox  -  Vocals 
+Jon Deverill  -  Vocals 
+Brian Dick  -  Drums 
+Dennis MacKay  -  Producer, Engineer 
+Fred Purser  -  Guitar 
+Rocky Laws  -  Bass 
+Andrew Warwick  -  Artwork, Design, Layout Design 
+Robb Weir  -  Guitar, Vocals 
+Rick Walton  -  Photography 
+Rodney Matthews  -  Artwork, Layout Design, Sleeve Design 
+Rocky  -  Bass 
+
+
+
+### "Live At Nottingham Rock City" 1981, Heavy Metal
+
+
+
+### "The Cage" 1982, Heavy Metal
+
+
+
+### "The Wreck-Age" 1985, Heavy Metal
+
+
+
+### "First Kill (Re-release of early demo recordings)" 1986, Heavy Metal
+
+
+
+### "Burning In The Shade" 1987, Heavy Metal
+
+
+
+### "Mystical" 2001, Heavy Metal
+
+
+
+### "Live At Wacken" 2001, Heavy Metal
+
+
+
+### "Live In The Roar" 2003, Heavy Metal
+
+
+
+### "Noises From The Cathouse" 2004, Heavy Metal
+
+
+
+### "Leg Of The Boot: Live in Holland" 2005, Heavy Metal
+
+
+
+### "Big Game Hunting (The Rarities) 2 CD" 2005, Heavy Metal
+
+
+
+### "Animal Instinct" 2008, Heavy Metal
+
+01. Rock Candy (4:15)
+02. Cry Sweet Freedom (4:14)
+03. Live For The Day (4:39)
+04. Let It Burn (4:06)
+05. If You See Kay (5:32)
+06. Hot Blooded (5:03)
+07. Devil's Find A Fool (4:09)
+08. Winners And Losers (4:55)
+09. Cruisin' (4:29)
+10. Bury The Hatchet (4:15)
+11. Dark Rider (4:39)
+
 
 ## Отношения с другими группами
 

@@ -1,9 +1,72 @@
 # Midnattsol
 
-Дискография
-"Where Twilight Dwells" 2005, Folk
-"Nordlys" 2008, Gothic
-"The Metamorphosis Melody" 2011, Gothic
+melodic metal band with Liv Kristine's sister, Carmen Elise Espenaes, on vocals
+
+## Дискография
+
+### "Where Twilight Dwells" 2005, Folk
+
+1. Another Return 05:03 
+2. Lament 04:07  
+3. Unpayable Silence 05:04 
+4. Haunted 03:24 
+5. Desolation 04:22
+6. Enlightenment 04:07  
+7. Tarefall 04:23 
+8. Infinite Fairytale 04:46 
+9. Pa Leting 04:07 
+10. Dancing with the midnight Sun 03:58  
+11. Tapt Av Hap 07:56 
+
+
+
+Carmen Elise Espanaes : Vocals 
+Daniel Droste. : Guitar 
+Christian Hector. : Guitar 
+Daniel Fischer. : Keyboard 
+Birgit Ollbrunner. : Bass 
+Chris Merzinsky : Drums
+
+### "Nordlys" 2008, Gothic
+
+01. Open Your Eyes 
+02. Skogens Lengsel 
+03. Northern Light 
+04. Konkylie 
+05. Wintertime 
+06. Race of Time 
+07. New Horizon 
+08. River of Virgin Soil 
+09. En Natt I Nord 
+10. Octobre (Bonus Track)
+
+### "The Metamorphosis Melody" 2011, Gothic
+
+1. Alv  01:45    
+2. The Metamorphosis Melody  05:52    
+3. Spellbound  05:23    
+4. The Tide  05:16    
+5. A Poet's Prayer  05:31    
+6. Forlorn  04:49    
+7. Kong Valemons Kamp  06:34    
+8. Goodbye  03:31    
+9. Forvandlingen  06:53    
+10. Motets Makt  05:21    
+11. My Re-creation  05:24   
+
+
+Carmen Elise Espenaes  Vocals  
+Alex Kautz  Guitars  
+Daniel Droste  Guitars  
+Birgit Цllbrunner  Bass  
+Chris Merzinsky  Drums  
+Daniel Fischer  Keyboards  
+ 
+
+
+The Special Edition version of the CD has one bonus track, "A Predatorґs Prey" and a DVD with video footage from MFVF VII 2009. 
+
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,30 @@
 # Solhverv
 
-Дискография
-"Tagernes Artusinde" 1996, Black Metal
+Melodic Atmospheric Black Metal Doom
+
+## Дискография
+
+### "Tagernes Artusinde" 1996, Black Metal
+
+1.  Tagernes Artusinde
+2.  Helvedeskedlen
+3.  Ur-Tidens Ekko
+4.  Manens Skygge
+5.  Blodig Haevn
+6.  Under Dodens Grumme Svobe
+7.  Gravkammerets Gru
+8.  Alt Ondt Skal Komme Fra Norden
+9.  Glams Ojne
+
+Recorded and Mixed at Take One Studio by Casper Munkebo and SOLHVER
+Cover artwork by Manin F. Jorgensen
+
+Erik E.Marcussen - Drums,
+Thomas F.Jorgensen - Guitus, Vocals
+Martin F. Jorgesen - Bass, Vocals, Keyboards
+
+(P)c 1996 EUPHONOUS Records // PHONI 004
+
 
 ## Отношения с другими группами
 

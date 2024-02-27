@@ -1,8 +1,30 @@
 # DeadXhead
 
-Дискография
-"Deadhead" 2005, Thrash
-"Regressive By Default" 2006, Thrash
+thrash a-la Megadeth
+
+## Дискография
+
+### "Deadhead" 2005, Thrash
+
+
+
+### "Regressive By Default" 2006, Thrash
+
+1. Dead Head 04:08 
+2. Like A Rat In A Hole! 04:21 
+3. Regressive By Default 04:05 
+4. Monster's Mind 04:54  
+5. Maximum 05:45 
+6. Time To Go Away 04:06  
+7. Extraordinary 06:15 
+8. Trial By Life 05:44  
+9. Gift (Shot Into Blood) 05:39  
+10. Hangar 18 05:11
+
+
+Paul Staine (Vocals/Lead Guitars)
+Serge Chirkoff (Lead Vocals/Guitars)
+
 
 ## Отношения с другими группами
 

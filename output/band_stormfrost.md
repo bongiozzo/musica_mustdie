@@ -1,7 +1,23 @@
 # Storm Frost
 
-Дискография
-"Detaching From Humans" 2008, Black Metal
+
+
+## Дискография
+
+### "Detaching From Humans" 2008, Black Metal
+
+1. War Of The Winter's Demons
+2. Storm Frost Demons
+3. Those Parts At The Cemetery
+4. Reflecting In Solitude
+5. Obscure Dream
+6. The Night In Which I Was Chosen
+7. Intro
+8. Sons Of The Hate
+9. Total Black Thought
+10. True Black Metal
+11. Outro
+
 
 ## Отношения с другими группами
 

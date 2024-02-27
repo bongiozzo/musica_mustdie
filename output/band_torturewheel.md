@@ -1,7 +1,16 @@
 # Torture Wheel
 
-Дискография
-"Crushed Under..." 2005, Doom
+Ambient/Drone/Funeral Doom
+
+## Дискография
+
+### "Crushed Under..." 2005, Doom
+
+1. Broken By The Wheel 09:09  
+2. Shadow Sect 10:55  
+3. Mary 12:14  
+4. Crushed Under... 12:46
+
 
 ## Отношения с другими группами
 

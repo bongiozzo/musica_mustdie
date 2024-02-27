@@ -1,13 +1,184 @@
 # Celtic Frost
 
-Дискография
-"Morbid Tales" 1984, Thrash
-"To Mega Therion" 1985, Thrash
-"Emperor' Return" 1985, Thrash
-"Into The Pandemonium" 1987, Thrash
-"Vanity / Nemesis" 1990, Thrash
-"Parched With Thirst Ami And Dying" 1992, Thrash
-"Monotheist" 2006, Thrash
+Classic Heavy Thrash
+
+## Дискография
+
+### "Morbid Tales" 1984, Thrash
+
+1. In To The Crypts Of Rays 4.15
+2. Visions Of Mortality 4.46
+3. Procreation (Of The Wicked) 3.59
+4. Return To Eve 4.01
+5. Dance Macabre 3.43
+6. Nocturnal Fear 3.42
+
+Tom Warrior - Lead Vocals/ Guitar/ Guitar Effects
+Steve Priestly - Session Drummer/ Drums Percussion
+Martin Ain - Bass/ Additional Vocals/ Bass Effects
+
+(p)&(c) 1984 NOISE / MALDOROR MUSIKVERLAG
+
+### "To Mega Therion" 1985, Thrash
+
+1. Innocence And Wrath
+2. The Usurper
+3. Jewel Throne
+4. Dawn Of Megiddo
+5. Eternal Summer
+6. Circle Of Tyrants
+7. Beyond The North Winds
+8. Fainted Eyes
+9. Tears In A Prophet`s Dream
+10.Necromantical Screams
+
+ Tom Warrior - Vocal & Guitar
+ R.St.Mark - Drums
+ D. Steiner - Bass
+
+(p)&(c) 1985 NOISE International
+
+### "Emperor' Return" 1985, Thrash
+
+1. Circle Of Tyrants 4.28
+2. Morbid Tales 3.24
+3. Dethroned Emperor 4.33
+4. Visual Aggression 4.11
+5. Suicidal Winds 4.35
+
+Tom Warrior - Lead Vocals/ Guitar
+Reed St.Mark - Drums/ Percussion
+Martin Ain - Bass/ Bass Effects
+
+Produced By: T.G.Warrior & Rick "Lights".
+Co-Produced By: Martin Ain.
+
+(p)&(c) 1985 NOISE International
+
+### "Into The Pandemonium" 1987, Thrash
+
+1. Mexican Radio 3.28
+2. Mesmerised 3.24
+3. Inner Sanctum 5.14
+4. Sorrows Of The Moon 3.02
+5. Babylon Fell 4.18
+6. Caress Into Oblivion 5.10
+7. One In Their Pride (Porthole Mix) 2.50
+8. I Won`t Dance 4.31
+9. Rex Irae 5.57
+10.Oriental Masquerade 1.15
+
+Reed St.Mark - Drums
+Thomas Gabriel Warrior - Vocals & Guitars
+Martin Eric Ain - Bass
+
+Produced By C.F. Engineered By Jan Nemec.
+Recorded At Horus Sound Studio,Hannover,Germany,
+January/February/March/April `87.
+
+(p)&(c) 1987 NOISE International
+
+### "Vanity / Nemesis" 1990, Thrash
+
+1. The Heart Beneath 3.50
+2. Wine In My Hand (Third From The Sun) 3.28
+3. Wings Of Solitude 4.46
+4. The Name Of My Bridge 4.32
+5. This Island Earth 5.50
+6. Restless Seas 4.40
+7. Phallic Tantrum 3.29
+8. A Kiss Or A Whisper 3.05
+9. Vanity 4.25
+10.Nemesis 7.49
+
+Thomas Gabriel Warrior - Vocals & Guitars
+Martin Eric Ain - Bass
+Stephen Priestly - Drums
+Curt Victor Bryant - Guitar
+
+Produced By Roli Mosimann.
+Engineered By Voco Fauxpas & Brian Martin.
+Executive Producer Karl U.Walterbach.
+Recorded At Sky Track Studio & Hansa Studios,
+Berlin,Fall/Winter`89.
+Mixed By Brian Martin At Hansa Studios,Berlin,Winter `89.
+Assistant Engineers Michael Herzog,Andreas Gerhaldt,
+Michelle Amar,Alex Leser,Tom Re.
+
+(p) 1990 EMI Electrola / NOISE International
+(p) 1990 Modern Music Karl Ulrich Walterbach Gmbh.
+
+### "Parched With Thirst Ami And Dying" 1992, Thrash
+
+1. Idols Of Chagrin
+2. A Descent To Babylon (Babylon Asleep)
+3. Return To The Eve
+4. Juices Like Wine
+5. The Inevitable Factor
+6. The Hearth Beneath
+7. Cherry Orchards
+8. Tristesses De La Lune
+9. Wings Of Solitude
+10. The Usurper
+11. Journey Into Fear
+12. Downtown Hanoi
+13. Circle Of The Tyrants
+14. In The Chapel In The Moonlight
+15. I Won't Dance
+16. The Name Of My Bride
+17. Mexican Radio
+18. Under Apollyon's Sun
+ 
+
+ 
+ALL TRACKS REMASTERED 1999
+
+c 1992 Maldoror Musikverlag GmbH except: 6, 9, 16,18 Equinox/Warner Chappell Music; 14: Shapiro, Bernstein & Co., Francis Day & Hunter; 17: Big Talk/Illegal Music Limited
+P 1999 Modern Music Records GmbH
+
+Art & Grafix by Istvan Vizner and by Celtic Frost
+Liner Notes by Celtic Frost
+Up-To-Date Line-Up Shot by Nick Matthews
+Personal Legal Representation: Robert Edward Donnelly
+Booking: Jeff Rowlands/ICM
+All jams arranged by Celtic Frost
+Executive Producer: Karl-Ulrich Walterbach
+All Selections Published by Maldoror Musikverlag except Tracks 1 & 18 by Equinox Publishing; Track 14 by Shapiro, Bernstein & Co./Francis Day & Hunter; Track 17 by Big Talk/Illegal Music
+Mastered by Howie Weinberg at Masterdisk, New York
+This album is dedicated to: Robert Edward Donnelly, Christopher Bruckner, Scott Crossfield, Our Friends & Families, and - above all - The True Frost Fans Everywhere. The Slow Freeze has become an Undefrostable Ice Age. Thank U, love & admiration 2 U 4 ever. Thank U 2 God.
+Copyright by Noise International, 1992
+
+Tracks 1, 17 & 18 Recorded and Mixed at Artag Studio, Zurich, Switzerland, November 1991. Engineered & Mixed By Voco Fauxpas.
+
+Tracks 2, 6, 9 & 16 Produced by Roli Mosimann. Engineered by Voco Fauxpas & Brian Martin. Recorded at Sky Track Studio & Hansa Studios, Berlin, Germany, Fall/Winter/1989. Mixed by Brian Martin at Hansa Studios, Winter 1989. Assistant Engineers: Michael Herzog, Andreas Gerhardt, Michele Amar, Alex Leser, Tom Re.
+
+Tracks 3 & 10 Produced by Thomas Gabriel Warrior & Martin Eric Ain. Recorded & Engineered by Horst Muller At Casablanca Studio, Berlin, Germany, September 1985. Re-Recorded & Remixed by Harris Johns at Music Lab Studio, Berlin, March 1986.
+
+Tracks 4 & 12 Produced by Celtic Frost. Recorded & Engineered by Tony Platt at Sky Trak Studio & Hansa Studios, Berlin, Germany, and Conny Plank Studio, Cologne, Germany, Summer 1988. Assistant Engineers: Dexter, Thomas Steeler. Re-Recorded & Remixed by Voco Fauxpas at Artag Studio, Zurich, Switzerland, November 1991.
+
+Track 7 Produced by Tony Platt. Recorded at Sky Trak Studio & Hansa Studios, Berlin, Germany, and Conny Plank Studio, Cologne, Germany. Mixed by Tony Platt at Conny Park Studio, Fall 1988. Assistant Engineers: Dexter, Thomas Steeler.
+
+Tracks 5, 8, 14 & 15 Produced by Celtic Frost. Recorded, Engineered & Mixed by Jan Nemec at Horus Sound Studio, Hannover, Germany, January - April 1987.
+
+Track 11 Produced by Celtic Frost. Recorded & Engineered by Thomas Susstrunk at Line In Studio, Zurich, Switzerland, April 1985. Remixed by Horst Muller.
+
+Track 13 Produced by Horst Muller. Recorded, Engineered & Mixed by Horst Muller at Casablanca Studio, Berlin, Germany, September/October 1985.
+
+### "Monotheist" 2006, Thrash
+
+01. Progeny
+02. Ground
+03. A Dying God Coming Into Human Flesh
+04. Drown In Ashes
+05. Os Abysmi Vel Daath
+06. Obscured
+07. Domain Of Decay
+08. Ain Elohim
+Triptych:
+09. Totengott
+10. Synagoga Satanae
+11. Winter (Requiem, Chapter Three: Finale
+
 
 ## Отношения с другими группами
 

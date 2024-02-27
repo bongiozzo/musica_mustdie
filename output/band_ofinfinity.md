@@ -1,7 +1,13 @@
 # Of Infinity
 
-Дискография
-"The Essence Of Infinity" 2004, Heavy Metal
+Dark Powerful Female-Fronted Melodic Metal
+
+## Дискография
+
+### "The Essence Of Infinity" 2004, Heavy Metal
+
+
+
 
 ## Отношения с другими группами
 

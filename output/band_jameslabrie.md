@@ -1,8 +1,50 @@
 # James LaBrie
 
-Дискография
-"Elements Of Persuasion" 2005, Progressive
-"Static Impulse" 2010, Progressive
+
+
+## Дискография
+
+### "Elements Of Persuasion" 2005, Progressive
+
+01. Crucify 06:03
+02. Alone 05:36
+03. Freak 05:38
+04. Invisible 05:42
+05. Lost 03:41
+06. Undecided 05:30
+07. Smashed 05:31
+08. Pretender 05:36
+09. Slightly Out Of Reach 05:51
+10. Oblivious 05:20
+11. In Too Deep 06:56
+12. Drained 05:14
+
+### "Static Impulse" 2010, Progressive
+
+1. One More Time 04:16  
+2. Jekyll Or Hyde 03:46  
+3. Mislead 04:18  
+4. Euphoric 05:09  
+5. Over The Edge 04:20  
+6. I Need You 04:11  
+7. Who You Think I Am 03:57  
+8. I Tried 03:58  
+9. Just Watch Me 04:18  
+10. This Is War 04:30  
+11. Superstar 03:32  
+12. Coming Home 04:29 
+
+
+Line-up:
+James LaBrie - Vocals 
+Marco Sfogli - Guitars
+Ray Riendeau - Bass 
+Peter Wildoer - Drums, Screams
+Matt Guillory - Keyboards, Backing Vocals
+
+Recorded between 2009 and 2010. Produced by James LaBrie. Mixed and mastered by
+Jens Borgen. 
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,21 @@
 # Rain Fell Within
 
-Дискография
-"Believe" 2000, Gothic
-"Refuge" 2002, Gothic
+Gothic / doom metal
+
+## Дискография
+
+### "Believe" 2000, Gothic
+
+A False Reality 
+Alone 
+Believe 
+Sorrow Becomes Me 
+The Sun In My Wound
+
+### "Refuge" 2002, Gothic
+
+
+
 
 ## Отношения с другими группами
 

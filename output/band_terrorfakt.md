@@ -1,7 +1,13 @@
 # Terrorfakt
 
-Дискография
-"Cold Steel World" 2004, Industrial
+
+
+## Дискография
+
+### "Cold Steel World" 2004, Industrial
+
+
+
 
 ## Отношения с другими группами
 

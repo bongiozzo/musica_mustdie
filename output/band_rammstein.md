@@ -1,17 +1,173 @@
 # Rammstein
 
-Дискография
-"Herzeleid" 1995, Industrial
-"Sehnsucht" 1997, Industrial
-"Live Aus Berlin" 1999, Industrial
-"Mutter" 2001, Industrial
-"Mein Teil (single)" 2004, Industrial
-"Reise Reise" 2004, Industrial
-"Amerika (single)" 2004, Industrial
-"Rosenrot" 2005, Industrial
-"Volkerball DVD/CD" 2006, Industrial
-"Liebe Ist Fur Alle Da" 2009, Industrial
-"Made in Germany 1995–2011" 2011, Industrial
+
+
+## Дискография
+
+### "Herzeleid" 1995, Industrial
+
+[01] Wollt ihr das Bett in Flammen sehen 5:17     
+[02] Der Meister  4:08     
+[03] Weisses Fleisch  3:35     
+[04] Asche zu Asche  3:51     
+[05] Seemann  4:48     
+[06] Du riechst so gut  4:49     
+[07] Das alte Leid  5:44     
+[08] Heirate mich  4:44     
+[09] Herzeleid 3:41     
+[10] Laichzeit  4:20     
+[11] Rammstein  4:25   
+
+### "Sehnsucht" 1997, Industrial
+
+[01] Sehnsucht  4:04     
+[02] Engel  4:24     
+[03] Tier  3:46     
+[04] Bestrafe mich 3:36     
+[05] Du hast  3:54     
+[06] Bьck dich  3:21     
+[07] Spiel mit mir 4:45     
+[08] Klavier  4:22     
+[09] Alter Mann  4:22     
+[10] Eifersucht 3:35     
+[11] Kьss mich (Fellfrosch) 3:30    
+ 
+
+### "Live Aus Berlin" 1999, Industrial
+
+[01] Spiel mit mir  5:22     
+[02] Bestrafe mich  3:49      
+[03] Weisses Fleisch  4:35      
+[04] Sehnsucht  4:25      
+[05] Asche zu Asche  3:24     
+[06] Wilder Wein  5:17     
+[07] Heirate mich  6:26     
+[08] Du riechst so gut  5:24     
+[09] Du hast  4:27     
+[10] Bьck Dich 5:57     
+[11] Engel  5:57     
+[12] Rammstein  5:29     
+[13] Laichzeit  5:14     
+[14] Wollt ihr das Bett in Flammen sehen? 5:52     
+[15] Seemann  6:54    
+
+### "Mutter" 2001, Industrial
+
+[01] Mein Herz brennt  4:39     
+[02] Links 2 3 4  3:36     
+[03] Sonne  3:35     
+[04] Ich will  3:37     
+[05] Feuer Frei!  3:08     
+[06] Mutter  4:28     
+[07] Spieluhr  4:46     
+[08] Zwitter  4:17     
+[09] Rein Raus 3:09     
+[10] Adios  3:48     
+[11] Nebel  4:54
+
+released on: 04/03/2001
+
+(P) & (C) 2001 Motor Music GmbH, Hamburg
+Music & Lyrics by Rammstein: Christoph Doom Schneider, Doktor Christian Lorenz, Richard Z. Kruspe-Bernstein,
+Till Lindemann, Paul Landers, Oliver Riedel
+
+Produced by Jacob Hellner with Rammstein
+Mixed by Stefan Glaumann at MVG Studio Stockholm, Sweden
+Recorded at Studio Miraval, France
+Engineered by Ulf Kruckenberg, assisted by Myriam Correge
+Logic & Protools programming by Florian Ammon
+Mastered by Howie Weinberg at Masterdisk Corporation,
+New York
+Pre-Production at "Haus Weimar", Heiligendamm, Germany
+Additional Recordings at Galaxy Studios, Belgium and Nukleus Studio, Berlin, Germany
+
+Child's voice "Spieluhr" by Khira Li
+Background Vocals "Nebel" by Bobo
+
+String Arrangements "Mutter", "Nebel", "Mein Herz brennt" by Olsen Involtini
+Orchestra Parts by Filmorchester Babelsberg, recorded at Studio Saal 1, Berlin, conducted by Gьnter Joseck, engineered by Michael Schubert
+Samples "Sonne" courtesy of Spectrasonic's "Symphony of Voices"
+
+Photography by WWW.Daniel-Geo-Fuchs.COM
+Sleeve Design by Dirk Rudolph and Formgeber
+Image Treatment by Formgeber
+
+All songs published by Edition Rammstein (GEMA). All rights for the world o/b/o Edition Rammstein controlled by Musik-Edition Discoton GmbH (GEMA). All rights for the US o/b/o Musik-Edition Discoton Admin. by BMG Songs, Inc. (ASCAP).
+
+Management: Emanuel Fialik/Pilgrim Management
+Contact: Pilgrim, Postfach 540 101, 10042 Berlin, Germany
+
+
+### "Mein Teil (single)" 2004, Industrial
+
+
+
+### "Reise Reise" 2004, Industrial
+
+01. Reise, Reise (4:12) 
+02. Mein Teil (4:33) 
+03. Dalai Lama (5:39) 
+04. Keine Lust (3:43) 
+05. Los (4:24) 
+06. Amerika (3:47) 
+07. Moskau (4:17) 
+08. Morgenstern (4:00) 
+09. Stein um Stein (3:53) 
+10. Ohne dich (4:32) 
+11. Amour (4:51)
+
+### "Amerika (single)" 2004, Industrial
+
+01. Amerika
+02. Amerika (English Version)
+03. Amerika (Digital Hardcore Mix)
+04. Amerika (Western Remix)
+05. Amerika (Andy Panthen & Mat Diaz's Clubmix)
+06. Amerika (Electro Ghetto Remix)
+07. Amerika (Jam & Spoon So kann's gehen Mix)
+08. Mein Herz brennt Orchesterlied V (Album Version)
+
+### "Rosenrot" 2005, Industrial
+
+01. Benzin
+02. Mann Gegen Mann
+03. Rosenrot
+04. Spring
+05. Wo Bist Du
+06. Stirb Nicht Vor Mir
+07. Zerstцren
+08. Hilf Mir
+09. Te Quiero Puta
+10. Feuer & Wasser
+11. Ein Lied
+
+### "Volkerball DVD/CD" 2006, Industrial
+
+
+
+### "Liebe Ist Fur Alle Da" 2009, Industrial
+
+
+
+### "Made in Germany 1995–2011" 2011, Industrial
+
+1. Engel
+2. Links 2-3-4
+3. Keine Lust
+4. Mein Teil
+5. Du hast
+6. Du riechst so gut
+7. Ich will
+8. Mein Herz brennt
+9. Mutter
+10. Pussy
+11. Rosenrot
+12. Haifisch
+13. Amerika
+14. Sonne
+15. Ohne dich
+16. Mein Land
+
 
 ## Отношения с другими группами
 

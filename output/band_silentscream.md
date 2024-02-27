@@ -1,7 +1,29 @@
 # Silent Scream
 
-Дискография
-"From The Darkest Depths Of Imagination" 1992, Death Metal
+
+
+## Дискография
+
+### "From The Darkest Depths Of Imagination" 1992, Death Metal
+
+1. Self Abuse
+2. From The Darkest Depths Of Imagination
+3. Open Season
+4. Theatre Of The Depraved
+5. Matrix Of Madness
+6. Distraction Of Thought
+7. Rise And Fall
+8. Prey Upon The Weak
+
+	Mario Atencio - Bass & Vocals
+	Chris McCarthy - Guitars
+	Tom Perry - Guitars
+	Patrick Short - Drums
+
+Produced By Gene Hoglan & SILENT SCREAM.
+
+(p)&(c) 1992 TOMBSTONE Records
+
 
 ## Отношения с другими группами
 

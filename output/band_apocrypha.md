@@ -1,9 +1,52 @@
 # Apocrypha
 
-Дискография
-"The Forgotten Scroll" 1987, Instrumental
-"The Eyes of Time" 1988, Instrumental
-"Area 54" 1990, Instrumental
+(Tony Fredianelli band)
+
+## Дискография
+
+### "The Forgotten Scroll" 1987, Instrumental
+
+Penance (Keep The Faith) 
+Lost Children Of Hope 
+Holy Wars (Only Lock The Doors) 
+Fall Of The Crest 
+Tablet Of Destiny
+Look To The Sun
+Riding In The Night
+Solo 
+Distorted Reflections 
+Broken Dream 
+ 
+
+
+### "The Eyes of Time" 1988, Instrumental
+
+Father Time  
+West World 
+Twilight Of Modern Man
+Alexander The King  
+The Day Time Stood Still
+The Hour Glass
+H.G. Wells
+The Man Who Saw Tomorrow 
+Mystic 
+ 
+
+
+### "Area 54" 1990, Instrumental
+
+Terrors Holding On To You 
+Catch 22
+A Night In Fog
+The Power Elite
+Instrubation #3
+Area 54
+Tian'anmen Square
+The Detriment Of Man
+Refuse The Offer You Can't Refuse
+Born To This World 
+
+
 
 ## Отношения с другими группами
 

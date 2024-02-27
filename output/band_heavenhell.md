@@ -1,10 +1,74 @@
 # Heaven & Hell
 
-Дискография
-"Live Radio City Music Hall (2 CD)" 2007, Heavy Metal
-"Live Radio City Music Hall [DVD]" 2007, Heavy Metal
-"The Devil You Know" 2009, Heavy Metal
-"Neon Nights: 30 Years of Heaven & Hell" 2010, Heavy Metal
+(Iommi, Butler, Dio, Appice)
+
+## Дискография
+
+### "Live Radio City Music Hall (2 CD)" 2007, Heavy Metal
+
+
+
+### "Live Radio City Music Hall [DVD]" 2007, Heavy Metal
+
+1 E5150/After All (The Dead) 
+2 The Mob Rules 
+3 Children of the Sea 
+4 Lady Evil 
+5 I 
+6 The Sign of the Southern Cross 
+7 Voodoo 
+8 The Devil Cried 
+9 Computer God 
+10 Falling off the Edge of the World 
+11 Shadow of the Wind 
+12 Die Young 
+13 Heaven and Hell 
+14 Lonely Is the Word 
+15 Neon Knights 
+EXTRAS : 
+16 Heaven and Hell Road Movie 
+17 Hail the Gods of Metal 
+18 Meet the Mob 
+19 Radio City
+
+### "The Devil You Know" 2009, Heavy Metal
+
+1. Atom & Evil 05:15  
+2. Fear 04:48  
+3. Bible Black 06:30 
+4. Double the Pain 05:25  
+5. Rock & Roll Angel 06:25  
+6. The Turn of the Screw 05:02  
+7. Eating the Cannibals 03:37  
+8. Follow the Tears 06:12  
+9. Neverwhere 04:35  
+10. Breaking into Heaven 07:03 
+
+
+Line-up:
+Ronnie James Dio - Vocals
+Tony Iommi - Guitars
+Terrance "Geezer" Butler - Bass
+Vinny Appice - Drums
+
+The album was recorded at Rockfield Studios in Wales, U.K. 
+
+### "Neon Nights: 30 Years of Heaven & Hell" 2010, Heavy Metal
+
+1. E5150		
+2. The Mob Rules	03:47	
+3. Children of the Sea	06:31	
+4. I	06:17	
+5. Bible Black	06:30	
+6. Time Machine	04:40	
+7. Fear	04:36	
+8. Falling Off the Edge of the World	05:40	
+9. Follow the Tears	06:12	
+10. Die Young	06:42	
+11. Heaven and Hell	17:49	
+12. Encore: Country Girl		
+13. Neon Knights	05:45
+
 
 ## Отношения с другими группами
 

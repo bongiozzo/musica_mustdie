@@ -1,6 +1,9 @@
 # Unabomber Files, The
 
-Дискография
+Paulo Jr. (SEPULTURA)
+
+## Дискография
+
 
 ## Отношения с другими группами
 

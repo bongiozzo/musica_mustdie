@@ -1,18 +1,60 @@
 # Broken Bones
 
-Дискография
-"Dem Bones" 1984, Crossover
-"I..O..U....Nothing" 1984, Crossover
-"Bonecrusher" 1985, Crossover
-"Live 100 Club" 1985, Crossover
-"Trader In Death" 1987, Crossover
-"F.O.A.D." 1987, Crossover
-"Losing Control" 1989, Crossover
-"Stitched Up" 1991, Crossover
-"Without Conscience" 2001, Crossover
-"Time For Anger, Not Justice" 2005, Crossover
-"Fuck You And All You Stand For!" 2010, Crossover
-"Dead & Gone (EP)" 2014, Crossover
+
+
+## Дискография
+
+### "Dem Bones" 1984, Crossover
+
+
+
+### "I..O..U....Nothing" 1984, Crossover
+
+
+
+### "Bonecrusher" 1985, Crossover
+
+
+
+### "Live 100 Club" 1985, Crossover
+
+
+
+### "Trader In Death" 1987, Crossover
+
+
+
+### "F.O.A.D." 1987, Crossover
+
+
+
+### "Losing Control" 1989, Crossover
+
+
+
+### "Stitched Up" 1991, Crossover
+
+
+
+### "Without Conscience" 2001, Crossover
+
+
+
+### "Time For Anger, Not Justice" 2005, Crossover
+
+
+
+### "Fuck You And All You Stand For!" 2010, Crossover
+
+
+
+### "Dead & Gone (EP)" 2014, Crossover
+
+01. Tread On Me (03:18)
+02. Vigilante (02:34)
+03. Dead And Gone (03:07)
+04. City Fodder (01:30)
+
 
 ## Отношения с другими группами
 

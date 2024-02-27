@@ -1,7 +1,20 @@
 # Tension Prophecy
 
-Дискография
-"Riot of Sacrificers" 2010, Deathcore
+
+
+## Дискография
+
+### "Riot of Sacrificers" 2010, Deathcore
+
+1. Lasting for All Time (Intro) 
+2. Pretension Until Death	 
+3. Homicidal Premonitions	 
+4. Unleash the Fury	 
+5. Deadly Orison	 
+6. Contemplate Before Killing
+7. Necrophobic 
+8. Hidden Ferocity
+
 
 ## Отношения с другими группами
 

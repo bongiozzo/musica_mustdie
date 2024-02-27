@@ -1,22 +1,194 @@
 # Neurosis
 
-Дискография
-"Neurosis /demo/" 1986, Hardcore
-"Pain Of Mind" 1988, Hardcore
-"Aberration /EP/" 1989, Hardcore
-"Empty /EP/" 1990, Hardcore
-"The Word As Law" 1991, Hardcore
-"Souls At Zero" 1992, Hardcore
-"Enemy Of The Sun" 1993, Hardcore
-"Through Silver In Blood" 1996, Hardcore
-"Times Of Grace" 1999, Hardcore
-"Sovereign /EP/" 2000, Hardcore
-"Neurosis/Soilent Green: In These Black Days, Vol. 6 /split/" 2000, Hardcore
-"A Sun That Never Sets" 2001, Hardcore
-"Live In Lyon /live/" 2002, Hardcore
-"Neurosis & Jarboe" 2003, Hardcore
-"Live In Stockholm /live/" 2003, Hardcore
-"The Eye Of Every Storm" 2004, Hardcore
+unique post-hardcore/artcore band
+
+## Дискография
+
+### "Neurosis /demo/" 1986, Hardcore
+
+01] Dominoes Fall
+02] Ingrown
+03] Pain Of Mind
+04] Security
+05] Self-Taught Infection
+06] Infections
+07] Life On Your Knees
+08] Reason To Hide
+09] Faith Or Fraud
+
+### "Pain Of Mind" 1988, Hardcore
+
+01] Pain Of Mind [03:06]
+02] Self-Taught Infection [03:01]
+03] Reasons To Hide [03:02]
+04] Black [04:56]
+05] Training [01:02]
+06] Progress [01:46]
+07] Stalemate [02:30]
+08] Bury What's Dead [02:06]
+09] Geneticide [02:34]
+10] Ingrown [02:23]
+11] United Sheep [03:06]
+12] Dominoes Fall [03:00]
+13] Life On Your Knees [02:20]
+14] Grey [02:41]
+
+This album was reissued in 2000 on Neurot Recordings. The re-release contains a bonus disc that includes a demo (#), live radio (##) and live (###) tracks.
+
+01] United Sheep ###
+02] Stalemate ###
+03] Black ###
+04] Instrumental ###
+05] Grey ##
+06] Pollution ##
+07] Reasons To Hide #
+08] Ingrown #
+09] Pain Of Mind #
+10] Dominoes Fall #
+
+### "Aberration /EP/" 1989, Hardcore
+
+01] Self-Doubt
+02] Nonsense
+03] Pollution
+
+### "Empty /EP/" 1990, Hardcore
+
+01] The Choice
+02] Day Of The Lords [Joy Division Cover]
+
+### "The Word As Law" 1991, Hardcore
+
+01] Double-Edged Sword [04:05]
+02] The Choice [04:07]
+03] Obsequious Obsolesсence [05:12]
+04] To What End? [06:23]
+05] Tomorrow's Reality [05:47]
+06] Common Inconsistencies [04:24]
+07] Insensitivity [00:47]
+08] Blisters [07:18]
+09] Life On Your Knees [02:54]
+10] Pain Of Mind [03:10]
+11] Grey [03:01]
+12] United Sheep [03:15]
+13] Pollution [04:09]
+14] Day Of The Lords [Joy Division Cover] [05:17]
+
+### "Souls At Zero" 1992, Hardcore
+
+01] To Crawl Under One's Skin [07:51]
+02] Souls At Zero [09:18]
+03] Zero [01:40]
+04] Flight [04:05]
+05] The Web [04:55]
+06] Sterile Vision [06:20]
+07] A Chronology For Survival [09:34]
+08] Stripped [08:00]
+09] Takeahnase [07:56]
+10] Empty [01:36]
+
+This album was reissued in 1999 on Neurot Recordings. The re-release includes a demo (#) and live (##) tracks.
+
+11] Souls At Zero #
+12] Zero #
+13] Cleanse III ##
+
+Scott Kelly - guitar, vocals
+Steve Von Till - guitar, vocals
+Dave Edwardson - bass, vocals
+Simon Mcllroy - keyboards, samples, tapes
+Jason Roeder - drums
+
+Walter P.Sunday - cello
+Kris Force - viola, violin
+Sarah Augros - flute
+Siovhan King - trumpet
+
+Produced by Neurosis, Bill Thompson
+Engineered by Bill Thompson
+Assisted by Jeff Fogerty, Jeffrey Grey, Malcolm Sherwood
+
+Recorded at Starlight Studios, Richmond, Virginia, US
+
+### "Enemy Of The Sun" 1993, Hardcore
+
+
+
+### "Through Silver In Blood" 1996, Hardcore
+
+1 Through Silver in Blood 12:11 (Neurosis) 
+2 Rehumanize 1:47 (Neurosis) 
+3 Eye 5:18 (Neurosis) 
+4 Purify 12:18 (Neurosis) 
+5 Locust Star 5:48 (Neurosis) 
+6 Strength of Fates 9:44 (Neurosis) 
+7 Become the Ocean 1:27 (Neurosis) 
+8 Aeon 11:44 (Neurosis) 
+9 Enclosure in Flame 10:20 (Neurosis) 
+
+
+### "Times Of Grace" 1999, Hardcore
+
+1 Suspended in Light (Neurosis) 
+2 Doorway (Neurosis) 
+3 Under the Surface (Neurosis) 
+4 Last You'll Know (Neurosis) 
+5 Belief (Neurosis) 
+6 Exist (Neurosis) 
+7 End of the Harvest (Neurosis) 
+8 Descent (Neurosis) 
+9 Away (Neurosis) 
+10 Times of Grace (Neurosis) 
+11 Road to Sovereignty (Neurosis) 
+
+
+### "Sovereign /EP/" 2000, Hardcore
+
+01] Prayer [07:25]
+02] An Offering [07:50]
+03] Flood [04:08]
+04] Sovereign [15:47]
+
+### "Neurosis/Soilent Green: In These Black Days, Vol. 6 /split/" 2000, Hardcore
+
+
+
+### "A Sun That Never Sets" 2001, Hardcore
+
+Erode
+The Tide
+From The Hill
+A Sun That Never Sets
+Falling Unknown
+From Where It's Roots Run
+Crawl Back In
+Watchfire
+Resound
+Stones From The Sky
+
+### "Live In Lyon /live/" 2002, Hardcore
+
+
+
+### "Neurosis & Jarboe" 2003, Hardcore
+
+01] Within
+02] His Last Words
+03] Taker
+04] Receive
+05] Erase
+06] Cringe
+07] In Harm's Way
+08] Seizure
+
+### "Live In Stockholm /live/" 2003, Hardcore
+
+
+
+### "The Eye Of Every Storm" 2004, Hardcore
+
+
+
 
 ## Отношения с другими группами
 

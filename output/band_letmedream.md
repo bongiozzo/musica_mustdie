@@ -1,7 +1,36 @@
 # Let Me Dream
 
-Дискография
-"My Dear Succubus" 1995, Death Doom
+
+
+## Дискография
+
+### "My Dear Succubus" 1995, Death Doom
+
+1. Centuries Of Longing
+2. Throne Of Dominating Force 
+3. The Sight
+4. Burnt Into My Mind
+5. Once In These Misty Fields / When The Sun Rises In The South
+6. Thousand Decades Ago ...
+7. Bed In The Ancient River
+8. In Agony Of My Soul
+9. A Clear Line Of Sanity
+10. When I Ride To Beyond
+11. My Dear Succubus
+12. Outro: A Cold Wind Blues
+
+ Jani Koskela - Vocals, Guitars
+ Marko Tuominen - Bass, Vocals
+ Janne Peltoranta - Drums, Vocals
+ Jari Koskela - Keyboards
+
+All Songs Written By LET ME DREAM
+Produced By ADIPOCERE
+Engineered By P. Karri, J. Saarinen & T. Ristila
+Recorded At Soundwall Studio, Seinajoki, Dec. 1994
+
+(p)&(c) 1995 ADIPOCERE Records
+
 
 ## Отношения с другими группами
 

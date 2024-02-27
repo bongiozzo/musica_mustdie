@@ -1,7 +1,30 @@
 # Cruciform
 
-Дискография
-"Atavism" 1996, Death Metal
+
+
+## Дискография
+
+### "Atavism" 1996, Death Metal
+
+1. Prologue
+2. Sanctuary
+3. Reduced To Dust
+4. Necropolis
+5. Proboscis
+6. I, To The Heavens Shall Lift My Eyes
+
+All songs written by CRUCIFORM
+Produced by John J.Zulaikha and CRUCIFORM.
+Engineered by John J.Zulaikha.
+Recorded at Emerald City Studio, Sydney.
+
+Leon Kelly - Rhythm and Lead Guitars
+Michael Lenton - Drums, Lead and Backing Vocals
+Daniel Moth - Bass Guitar, Lead and Backing Vocals
+Tony Mulheacn - Rhythm Guitar, Lead and Backing Vocals
+
+(p)(c) 1996 WARHEAD Records
+
 
 ## Отношения с другими группами
 

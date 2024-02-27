@@ -1,15 +1,246 @@
 # At Vance
 
-Дискография
-"No Escape" 1999, Power Metal
-"Heart Of Steel" 2000, Power Metal
-"Dragonchaser" 2001, Power Metal
-"Only Human" 2002, Power Metal
-"The Evil In You" 2003, Power Metal
-"Chained" 2005, Power Metal
-"VII" 2007, Power Metal
-"Ride The Sky" 2009, Power Metal
-"Facing Your Enemy" 2012, Power Metal
+neoclassic metal
+
+## Дискография
+
+### "No Escape" 1999, Power Metal
+
+FLYING HIGH 
+NO ESCAPE 
+NO SPEAK 
+DIE IN YOUR ASS 
+ALL FOR ONE, ONE FOR ALL 
+MONEY,MONEY,MONEY 
+ANTONIO VIVALDI;FOUR SEASONS - SUMMER 
+LOST IN YOUR LOVE 
+POWER & GLORY 
+SEVEN SEAS 
+EYE OF THE TIGER * 
+SHOUT * 
+
+*BONUS TRACKS
+
+
+Uli Mueller - keyboards
+Olaf Lenk - guitars
+Oliver Hardmann - vocals
+Rainald Koenig - bass
+Spoony - drums
+
+
+
+Produced by Olaf Lenk and Axel Thubeauville
+Recorded at Guitarland, Germany between January and April 1999
+Mixed by Olaf Lenk and Axel Thubeauville
+Mastered by Olaf Lenk
+Frontartwork by Eric Philippe, Belgium
+
+All music and lyrics by Olaf Lenk, except:
+All For One, One For All - Oliver Hartmann
+Four Seasons - Summer - Antonio Vivaldi
+Eye Of The Tiger - Suvivor (bonus track)
+Shout - Orzabal, Stanley, Anderson, Ulvaeus (bonus track)
+
+
+
+
+
+
+### "Heart Of Steel" 2000, Power Metal
+
+PRELUDE 
+SOLDIER OF TIME 
+THE BRAVE AND THE STRONG 
+HEART OF STEEL 
+S.O.S. 
+KING OF YOUR DREAMS 
+PRINCESS OF THE NIGHT 
+GOODBYE 
+WHY DO YOU CRY ? 
+DON'T YOU BELIEVE A STRANGER 
+CHOPIN / ETUDE NO.4 
+LOGICAL SONG (BONUS TRACK)
+
+
+Uli Mueller - keyboards
+Olaf Lenk - guitars
+Oliver Hardmann - vocals
+Rainald Koenig - guitars
+Jochen Schnur - bass
+Juergen Lucas - drums
+
+
+
+Produced by Olaf Lenk and Axel Thubeauville
+Recorded at Guitarland, Germany
+Mixed by Olaf Lenk
+Mastered by Olaf Lenk
+Cover design by Eric Philippe, Belgium
+Photos by Michael Ueckel
+
+All music and lyrics by Olaf Lenk, except:
+S.O.S. - Abba
+Chopin Etude No.4 - Chopin
+Logical Song - Davies, Hodgson (bonus track)
+
+
+
+
+
+
+
+### "Dragonchaser" 2001, Power Metal
+
+DRAGONCHASER 
+AGES OF GLORY 
+CRUCIFIED 
+BEETHOVEN, 5TH SYMPHONY 
+HEAVEN CAN WAIT 
+THE WINNER TAKES IT ALL 
+MY BLEEDING HEART 
+TWO KINGS 
+TOO LATE 
+ASES DEATH 
+BANDINERI (BONUS TRACK)
+
+
+Uli Mueller - keyboards
+Olaf Lenk - guitars
+Oliver Hardmann - vocals
+Rainald Koenig - guitars
+Jochen Schnur - bass
+Juergen Lucas - drums
+
+
+
+Produced by Olaf Lenk
+Mixed by Olaf Lenk
+Mastered by Olaf Lenk
+Cover concept by Olaf Lenk and Uli Muller
+Artwork by Cristoph Bersch
+Executive producer Axel Thubeauville
+
+All music and lyrics by Olaf Lenk, except:
+The Winner Takes It All - Abba
+
+
+
+
+
+
+### "Only Human" 2002, Power Metal
+
+THE TIME HAS COME 
+ONLY HUMAN 
+TAKE MY PAIN 
+FLY TO THE RAINBOW 
+HOLD YOUR FIRE 
+FOUR SEASONS/SPRING 
+TAKE ME AWAY 
+TIME 
+SOLFEGGIETTO 
+SING THIS SONG 
+WITCHES DANCE 
+WINGS TO FLY 
+I SURRENDER 
+HEROES OF HONOR (BONUS TRACK)
+
+
+Uli Mueller - keyboards
+Olaf Lenk - guitars
+Oliver Hardmann - vocals
+Rainald Koenig - guitars
+Jochen Schnur - bass
+Juergen Lucas - drums
+
+
+PRODUCED by Olaf Lenk
+
+
+### "The Evil In You" 2003, Power Metal
+
+Fallen Angel
+Broken Vow
+The Evil In You
+Stronger Than You Think
+The Curtain Will Fall
+One Million Miles
+Right Or Wrong
+Shining Star
+Streets Of My Dreams
+Caprice No.16
+Princess of ice
+
+### "Chained" 2005, Power Metal
+
+Rise from the Fall
+Heaven
+Tell me
+Chained
+Who's Fooling Who (bonus)
+Now or Never
+Two Hearts
+Invention N° Thirteen
+Run/Leave
+Live for the Sacred
+Vivaldi Winter
+Run for your Life
+Flight of the Bumblebee (bonus)
+
+### "VII" 2007, Power Metal
+
+1. Breaking The Night 04:03  
+2. Shiver 04:07 
+3. Cold As Ice 02:34 
+4. Victory 03:48  
+5. Friendly Fire 04:35 
+6. Golden Leaves 03:50 
+7. Answer Me 05:34
+8. Shine 04:16 
+9. Truth 02:21 
+10. Lost In Your Love 03:55 
+
+
+Digipack Version has a bonus track:
+11. Broken Vow (Live)
++ Video Track
+
+Japanese Edition has the following bonuses:
+11. Bach Cello Prelude in G Major (01:48)
+12. Broken Vow (Live) (04:00) 
+
+### "Ride The Sky" 2009, Power Metal
+
+1. Ride The Sky 03:31  
+2. Torn - Burning Like Fire 04:40  
+3. Last In Line 04:31  
+4. Wishing Well ( Free cover) 03:13  
+5. Salvation Day 04:24  
+6. Vivaldi, Summer 2nd Set 03:45  
+7. Power 03:34  
+8. You And I 05:23  
+9. End Of Days 03:31  
+10. Falling 06:13  
+11. Farewell 05:37 
+
+
+### "Facing Your Enemy" 2012, Power Metal
+
+01. Heaven Is Calling 04:50 
+02. Facing Your Enemy 04:32 
+03. Eyes Of A Stranger 03:43 
+04. Fear No Evil 03:51 
+05. Live & Learn 03:32 
+06. Donґt Dream 05:26 
+07. See Me Crying 06:05 
+08. Saviour 03:38 
+09. Tokyo 04:08 
+10. March Of The Dwarf 01:52 
+11. Fame And Fortune 04:21 
+12. Things I Never Needed 03:44
+
+
 
 ## Отношения с другими группами
 

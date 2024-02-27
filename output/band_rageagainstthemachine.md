@@ -1,10 +1,78 @@
 # Rage Against The Machine
 
-Дискография
-"Bullet In The Head" 1993, Rap Metal
-"Rage Against The Machine" 1993, Rap Metal
-"Evil Empire" 1996, Rap Metal
-"Renegades" 2000, Alternative
+
+
+## Дискография
+
+### "Bullet In The Head" 1993, Rap Metal
+
+1.  Bullet In The Head
+2.  Bullet In The Head (Remix)
+3.  Bullet In The Head (Live)
+4.  Settle For Nothing (Live)
+
+Zack De La Rocha - Vocals
+Timmy C. - Bass
+Brad Wilk - Drums
+Tom Morello - Guitars
+
+Produced By RAGE AGAINST THE MACHINE & Gggarth.
+Mixed By Andy Wallace.
+
+(P)&(C) 1993 SONY Music
+
+### "Rage Against The Machine" 1993, Rap Metal
+
+1. Bombtrack
+2. Killing In The Name
+3. Take The Power Back
+4. Seatlle For Nothing
+5. Bullet In The Head
+6. Know Your Enemy
+7. Wake Up
+8. Fistful Of Steel
+9. Township Rebellion
+10. Freedom
+
+ Zack De La Rocha - Vocals
+ Timmy C. - Bass
+ Brad Wilk - Drums
+ Tom Morello - Guitars
+
+Produced By RAGE AGAINST THE MACHINE & Gggarth
+Mixed By Andy Wallace
+
+(P)&(C) 1993 SONY Music
+
+### "Evil Empire" 1996, Rap Metal
+
+1. People Of The Sun
+2. Bulls On Parade
+3. Vietnow
+4. Revolver
+5. Snakecharmer
+6. Tire Me
+7. Down Rodeo
+8. Without A Face
+9. Wind Below
+10.Roll Right
+11.Year Of The Boomerang
+
+Produced by Brendon O'Brien.
+Mixed by Andy Wallace.
+Recorded by Nick Didna at Cole Studios.
+
+Zack De La Rocha - Vocals
+Tim Bob - Bass
+Brad Wilk - Drums
+Tom Morelo - Guitars
+
+(p)(c) 1996 SONY Music
+
+### "Renegades" 2000, Alternative
+
+
+
 
 ## Отношения с другими группами
 

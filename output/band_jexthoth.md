@@ -1,10 +1,33 @@
 # Jex Thoth
 
-Дискография
-"Jex Thoth" 2008, Psychedelic
-"Totem (EP)" 2009, Psychedelic
-"Witness (EP)" 2010, Psychedelic
-"Blood Moon Rise" 2013, Psychedelic
+
+
+## Дискография
+
+### "Jex Thoth" 2008, Psychedelic
+
+
+
+### "Totem (EP)" 2009, Psychedelic
+
+
+
+### "Witness (EP)" 2010, Psychedelic
+
+
+
+### "Blood Moon Rise" 2013, Psychedelic
+
+1. To Bury
+2. The Places You Walk
+3. The Divide
+4. Into A Sleep
+5. And The River Ran Dry
+6. Keep Your Weeds
+7. Ehja
+8. The Four Of Us Are Dying
+9. Psyar
+
 
 ## Отношения с другими группами
 

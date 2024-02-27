@@ -1,7 +1,33 @@
 # Excruciate
 
-Дискография
-"Passage Of Life" 1993, Deathcore
+
+
+## Дискография
+
+### "Passage Of Life" 1993, Deathcore
+
+1. Confused Mind
+2. Endless Suffocation
+3. Inhuman Postnatal
+4. Eternal Incubation*
+5. Anatomical Self-Fertilization
+6. Passage Of Life
+7. Sabbath In The Mortuary
+8. Beyond The Circle
+
+All songs written by EXCRUCIATE except* lyrics written by 
+Christoffer Johnson
+Produced , engineered & mixed byThomas Skogsberg & EXCRUCIATE
+Recorded & mixed at Studio Sunlight Oct-Dec 1991
+
+ Lars Levin  - Vocals
+ Hempa Brynolfsson - Guitars
+ Johan Melander - Guitars
+ Fredrik Isaksson - Bass
+ Per Ax  - Drums
+
+(p)(c) 1994 THRASH Records
+
 
 ## Отношения с другими группами
 

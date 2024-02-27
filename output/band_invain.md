@@ -1,8 +1,33 @@
 # In Vain
 
-Дискография
-"The Latter Rain" 2007, Black Metal
-"Mantra" 2010, Black Metal
+
+
+## Дискография
+
+### "The Latter Rain" 2007, Black Metal
+
+1. The Latter Rain 01:45  
+2. In the Midnight Hour 09:41
+3. Det Rakner! 08:27 
+4. Octoberґs Monody 06:33
+5. Their Spirits Ride with the Wind 08:47
+6. I Total Triumf 06:04
+7. The Titan 07:09
+8. As I Wither 07:39
+9. Morning Sun 02:20  
+10. Sorgenfri 06:33 
+
+### "Mantra" 2010, Black Metal
+
+1. Captivating Solitude 07:01
+2. Mannefall 07:03  
+3. Ain't No Lovin' 01:50  
+4. On the Banks of the Mississippi 08:09 
+5. Dark Prophets, Black Hearts 09:25
+6. Wayakin (The Guardian Spirit of the Nez Perce) 09:19
+7. Circle of Agony 09:03  
+8. Sombre Fall, Burdened Winter 14:36 
+
 
 ## Отношения с другими группами
 

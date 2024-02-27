@@ -1,7 +1,42 @@
 # Rupture Christ
 
-Дискография
-"Molesting The Entrails Of The Disemboweled" 2002, Grindcore
+GRINDING DEATH METAL
+
+## Дискография
+
+### "Molesting The Entrails Of The Disemboweled" 2002, Grindcore
+
+1. Intro - Malevolence Through Molestation
+2. Fetus Fucker
+3. Sludge Oozing Slop Hole
+4. Puss Filled Pussy
+5. Oozing Vaginal Discharge (Cover version of LIVIDITY)
+6. Penetrating Pre-School Pussy
+7. Invading The Placenta
+8. Discharging Parasite Infested Feces
+9. Macaroni And Afterbirth
+10. Gorged On Innards
+11. Cum Ready Cock
+
+
+Rusty Barrus - Guitar
+Travis Bruner - Bass 
+Braxton Keyser - Vocals 
+Doug Lapczynski - Drums, Vocals 
+Ryan Varville - Guitar
+
+Recorded in Rusty's House in the dining room in February 2002. Engineered and
+Mixed by Dave Boccuzzi in March 2002. Mastered by Jacob Hansen at Aabenraa
+Studios in April 2002. The Album was recorded with no Harmonizer on the
+Vocals.
+
+Guest Vocals on "Invading the Placenta" and "Penetrating Pre-School Pussy" by
+Dave Boccuzzi and Dan Pevide of Anoxia.
+Guest Bass Solo in "Cum Ready Cock" and "Macaroni and Afterbirth" By Dave
+Boccuzi of Anoxia.
+Artwork on front cover, booklet and CD label by Jason Juta. Design and layout
+by Louis Rodrigues.
+
 
 ## Отношения с другими группами
 

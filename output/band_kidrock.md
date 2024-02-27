@@ -1,12 +1,33 @@
 # Kid Rock
 
-Дискография
-"Grits Sandwiches for Breakfast" 1990, Hard Rock
-"The Polyfuze Method" 1993, Hard Rock
-"Early Mornin' Stoned Pimp" 1996, Hard Rock
-"Devil Without a Cause" 1998, Alternative
-"Cocky" 2001, Alternative
-"Kid Rock" 2003, Rap Metal
+aka Robert James Ritchie; hard rock, rap-metal, alternative
+
+## Дискография
+
+### "Grits Sandwiches for Breakfast" 1990, Hard Rock
+
+
+
+### "The Polyfuze Method" 1993, Hard Rock
+
+
+
+### "Early Mornin' Stoned Pimp" 1996, Hard Rock
+
+
+
+### "Devil Without a Cause" 1998, Alternative
+
+
+
+### "Cocky" 2001, Alternative
+
+
+
+### "Kid Rock" 2003, Rap Metal
+
+
+
 
 ## Отношения с другими группами
 

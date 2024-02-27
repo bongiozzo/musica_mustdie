@@ -1,7 +1,21 @@
 # Exivious
 
-Дискография
-"Exivious" 2009, Instrumental
+
+
+## Дискография
+
+### "Exivious" 2009, Instrumental
+
+1. Ripple of a Tear 07:30  
+2. Time and Its Changes 04:39  
+3. Asurim 05:31  
+4. All That Surrounds: Part I 03:38  
+5. Waves of Thought 06:24  
+6. The Path 05:45  
+7. All That Surrounds: Part II 03:39  
+8. Embrace the Unknown 04:44  
+9. An Elusive Need 04:39 
+
 
 ## Отношения с другими группами
 

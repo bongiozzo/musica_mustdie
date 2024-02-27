@@ -1,10 +1,35 @@
 # Heathen
 
-Дискография
-"Breaking The Silence" 1987, Thrash
-"Victims Of Deception" 1991, Thrash
-"Recovered" 2004, Thrash
-"The Evolution Of Chaos" 2009, Thrash
+
+
+## Дискография
+
+### "Breaking The Silence" 1987, Thrash
+
+
+
+### "Victims Of Deception" 1991, Thrash
+
+
+
+### "Recovered" 2004, Thrash
+
+
+
+### "The Evolution Of Chaos" 2009, Thrash
+
+01. Intro [01:21] 
+02. Dying Season [05:40] 
+03. Control By Chaos [07:09] 
+04. No Stone Unturned [11:10] 
+05. Arrows Of Agony [06:40] 
+06. Fade Away [05:44] 
+07. A Hero's Welcome [06:51] 
+08. Undone [06:42] 
+09. Bloodkult [04:30] 
+10. Red Tears Of Disgrace [05:51] 
+11. Silent Nothingness [06:50]
+
 
 ## Отношения с другими группами
 

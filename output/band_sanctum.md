@@ -1,7 +1,33 @@
 # Sanctum
 
-Дискография
-"Raped Of Your Religion" 1993, Deathcore
+Black Satanic Deathcore
+
+## Дискография
+
+### "Raped Of Your Religion" 1993, Deathcore
+
+1. Parasite
+2. Inner Depravity
+3. Overcasting The Truth
+4. Errission
+5. Dimensions Of The Mind
+6. Our Violent World
+7. Raped Of Your Religion
+8. To Whiter Away
+
+ Brad Cranwell - Vocals, Keyboards
+ Marty Howe - Lead Guitar
+ Cherry  - Lead & Acoustic Guitars
+ Bradless  - Bass
+ Shirty  - Drums
+
+Produced By SANCTUM
+Recorded At Basement Studios, London
+Mixed At Vienna Power Station
+By Micht Zastoupil & Michael Piesch
+
+(p)&(c) 1993 LETHAL Records
+
 
 ## Отношения с другими группами
 

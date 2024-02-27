@@ -1,7 +1,13 @@
 # Nugent, Ted
 
-Дискография
-"Love Grenade" 2007, Hard Rock
+
+
+## Дискография
+
+### "Love Grenade" 2007, Hard Rock
+
+
+
 
 ## Отношения с другими группами
 

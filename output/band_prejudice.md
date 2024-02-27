@@ -1,10 +1,61 @@
 # Prejudice
 
-Дискография
-"Broken Promises" 1998, Techno Death
-"Reality" 2001, Techno Death
-"Dominion of Chaos" 2004, Techno Death
-"Megalomanic Infest" 2009, Techno Death
+
+
+## Дискография
+
+### "Broken Promises" 1998, Techno Death
+
+1.	 Society's Victim	04:06	 
+2.	 Eyes Only	03:53	 
+3.	 As Long As It Lasts	04:03	 
+4.	 Serial Minds	04:29	 
+5.	 Second Guess	06:31	 
+6.	 Last Scream	04:04	 
+7.	 Shadows Of Society	02:49	 
+8.	 Perpetual Pain	05:13	 
+9.	 Predjudice	05:36	 
+10.	 Broken Promises	04:00	
+
+### "Reality" 2001, Techno Death
+
+1.	 New Breed	 
+2.	 Act Of Despair
+3.	 Deformity
+4.	 Dictated Lives
+5.	 Embrace
+6.	 Betrayed	
+7.	 In-Vitro
+8.	 Shadowed Thoughts
+9.	 Vicious Conduct
+10.	 Nuclear Malediction
+11.	 Spheres
+
+### "Dominion of Chaos" 2004, Techno Death
+
+1.	 Suffer
+2.	 Unobtrusive Hatebreed
+3.	 Undecided
+4.	 Obsolete
+5.	 Destructive Soul
+6.	 Convicted
+7.	 Resolved	
+8.	 Remains
+
+### "Megalomanic Infest" 2009, Techno Death
+
+1.	 Improved Chaos (Intro)	01:58	 
+2.	 Exanimate	03:42	 
+3.	 Compulsive Leech	03:48	 
+4.	 Beneath the Flesh	04:25	 
+5.	 Lack of Comprehension (Death cover)	03:18
+6.	 Stigmatized - Impassive (Instrumental)	01:16	 
+7.	 Terminal	03:41	 
+8.	 Profane	04:55	 
+9.	 Darkened	05:00	 
+10.	 Prejudice	05:47	 
+11.	 Die!	01:09	
+
 
 ## Отношения с другими группами
 

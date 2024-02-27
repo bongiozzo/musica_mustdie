@@ -1,9 +1,50 @@
 # Sturm
 
-Дискография
-"Flut" 1999, Thrash
-"Krakatoa" 2000, Thrash
-"Fragmente" 2002, Thrash
+
+
+## Дискография
+
+### "Flut" 1999, Thrash
+
+1. Firtina   
+2. Der Hass   
+3. Lach-Haft   
+4. Unwille   
+5. Stumm   
+6. Symphonie Deer Steele   
+7. Gier   
+8. Triebtentakel   
+9. 1997   
+10. Wahn & Sinn   
+11. Seemann 
+
+### "Krakatoa" 2000, Thrash
+
+1. Krakatau 05:57  
+2. Stumm 03:52  
+3. Von Leidenschaft 07:36  
+4. Lach-Haft 06:54  
+5. Triebtentakel 04:37  
+6. Fehde 04:10  
+7. Der Hass 03:05  
+8. Prophet 04:23  
+9. Der Totentanz 02:49  
+10. Sturm 10:07 
+
+### "Fragmente" 2002, Thrash
+
+1. Schmerz 04:26  
+2. Fleisch 03:23  
+3. Blutbad 04:48  
+4. Kalte Gefьhle 04:29  
+5. Stahlfleisch 04:24  
+6. De Histrione 03:21  
+7. Egophil 07:28  
+8. Priester 04:46  
+9. Bestie 06:17  
+10. Wahn & Sinn 05:54  
+11. Fragmente 08:05 
+
 
 ## Отношения с другими группами
 

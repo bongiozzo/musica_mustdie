@@ -1,7 +1,27 @@
 # Gae Bolg
 
-Дискография
-"Aucassin et Nicolette" 2005, Folk
+a project of Sol Invictus' trumpet player Eric Roger
+
+## Дискография
+
+### "Aucassin et Nicolette" 2005, Folk
+
+1. Prelude
+2. Invocation I
+3. Le Diable Parle
+4. La Maladie d'Aucassin
+5. Chanson
+6. Sur les Bords de l'Ille
+7. Dans la Loge
+8. Les Visions de Theophile
+9. Invocation II
+10. Danse
+11. Le Tygne Noir
+12. Ballade
+13. Passacaille
+14. Le Retour d'Aucassin
+15. Aucassin et Nicolette
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,22 @@
 # Infernal Necromancy
 
-Дискография
-"Infernal Necromancy" 2008, Black Metal
+
+
+## Дискография
+
+### "Infernal Necromancy" 2008, Black Metal
+
+1. Black Wolf War 04:22  
+2. Forgotten Wisdom 04:43  
+3. Kamikaze 04:48  
+4. Formless Ashes 07:50  
+5. Gate 04:29  
+6. Inside the Gloomy Hole 05:07  
+7. War Gods 05:39  
+8. Ouka 04:08  
+9. Amduscias 04:17  
+10. Kaiten 05:14 
+
 
 ## Отношения с другими группами
 

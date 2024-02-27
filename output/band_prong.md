@@ -1,20 +1,177 @@
 # Prong
 
-Дискография
-"Primitive Origins" 1987, Crossover
-"Force Fed" 1988, Crossover
-"Beg To Differ" 1990, Crossover
-"Prove You Wrong" 1991, Crossover
-"Cleansing" 1994, Crossover
-"Rude Awakening" 1996, Industrial
-"100% Live" 2002, Industrial
-"Scorpio Rising" 2003, Industrial
-"Power Of The Damager" 2007, Industrial
-"Power Of The Damn Mixxxer" 2009, Industrial
-"Carved Into Stone" 2012, Metal
-"Ruining Lives" 2014, Metal
-"Songs From The Black Hole" 2015, Metal
-"X - No Absolutes" 2016, Metal
+
+
+## Дискография
+
+### "Primitive Origins" 1987, Crossover
+
+
+
+### "Force Fed" 1988, Crossover
+
+
+
+### "Beg To Differ" 1990, Crossover
+
+1. For Dead Life     3.25
+2. Steady Decline     4.12
+3. Beg To Differ     4.14
+4. Lost And Found     4.03
+5. Your Fear     4.51
+6. Take It In Hand     3.43
+7. Intermenstrual, D.S.B.    3.12
+8. Right To Nothing     2.56
+9. Prime Cut     3.49
+10.Just The Same     4.41
+11.Third From The Sun (Live)    5.55
+
+ Mike Kirkland - Bass, Vocals
+ Tommy Victor - Guitar,Vocals
+ Ted Parsons - Drums
+
+All Songs By PRONG
+Produced By Mark Dodson & PRONG
+Engineered By Mark Dodson
+
+(p)&(c) 1990 CBS Records
+
+### "Prove You Wrong" 1991, Crossover
+
+1. Irrelevant Thoughts
+2. Unconditional
+3. Positively Blind
+4. Prove You Wrong
+5. Hell If I Could
+6. Pointless
+7. Contradictions
+8. Torn Between
+9. Brainwave
+10.Territorial Rites
+11.Get A Grip (On Yourself)
+12.Shouldn't Have Bothered
+13.No Way To Deny It
+
+ Troy Gregory - Bass, Vocals
+ Tommy Victor - Guitar, Vocals
+ Ted Parsons - Drums
+
+All Songs Written By PRONG
+Produced By Mark Dodson & PRONG
+Engineered By Mark Dodson
+
+(p)&(c) 1991 SONY Music
+
+### "Cleansing" 1994, Crossover
+
+1. Another Wordly Device
+2. Whose Fist It This Anyway ?
+3. Snap Your Fingers, Snap Your Neck
+4. Cut-Rate
+5. Broken Peace
+6. One Outnumbered
+7. Out Of This Misery
+8. No Question
+9. Not Of This Earth
+10. Home Rule
+11. Sublime
+12. Test
+
+Produced By Terry Date & PRONG
+
+(p)&(c) 1994 SONY Music
+
+### "Rude Awakening" 1996, Industrial
+
+1. Controller
+2. Caprice
+3. Rude Awakening
+A. Unfortunately
+5. Face Value
+6. Avenue Of The Finest
+7. Slicing
+8. Without Hope
+9. Mansruin
+10. Innocence Gone
+11. Dark Signs
+12. Close The Door
+13. Proud Division
+
+All songs written by PRONG
+Produced by Terry Date And Tommy Victor
+Co-Produced by PRONG.
+Recorded and mixed by Terry Date
+Recorded at Sunset Sound Factory
+
+Tommy Victor - Vocals and Guitar
+Ted Parsons - Drums
+Paul Raven - Bass
+
+(p)(c) 1996 SONY Music
+
+### "100% Live" 2002, Industrial
+
+
+
+### "Scorpio Rising" 2003, Industrial
+
+
+
+### "Power Of The Damager" 2007, Industrial
+
+
+
+### "Power Of The Damn Mixxxer" 2009, Industrial
+
+
+
+### "Carved Into Stone" 2012, Metal
+
+
+
+### "Ruining Lives" 2014, Metal
+
+01. Turnover (3:34)
+02. The Barriers (3:31)
+03. Windows Shut (4:04)
+04. Remove, Separate Self (3:59)
+05. Ruining Lives (4:40)
+06. Absence of Light (3:42)
+07. The Book of Change (3:21)
+08. Self Will Run Riot (3:50)
+09. Come To Realize (3:48)
+10. Chamber of Thought (3:44)
+11. Limitations And Validations (3:33)
+
+### "Songs From The Black Hole" 2015, Metal
+
+01. Doomsday (DISCHARGE cover)
+02. Vision Thing (SISTERS OF MERCY cover)
+03. Goofy's Concern (BUTTHOLE SURFERS cover)
+04. Kids Of The Black Hole (ADOLESCENTS cover)
+05. Bars (BLACK FLAG cover)
+06. Seeing Red (KILLING JOKE cover)
+07. Don't Want To Know If You Are Lonely (H&#220;SKER D&#220; cover)
+08. Give Me The Cure (FUGAZI cover)
+09. Banned in D.C. (BAD BRAINS cover)
+10. Cortez The Killer (NEIL YOUNG cover)
+
+### "X - No Absolutes" 2016, Metal
+
+01. Ultimate Authority
+02. Sense Of Ease
+03. Without Words
+04. Cut And Dry
+05. No Absolutes
+06. Do Nothing
+07. Belief System
+08. Soul Sickness
+09. In Spite Of Hindrances
+10. Ice Runs Through My Veins
+11. Worth Pursuing
+12. With Dignity
+13. Universal Law (bonus)
+
 
 ## Отношения с другими группами
 

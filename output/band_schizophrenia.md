@@ -1,12 +1,130 @@
 # Schizophrenia
 
-Дискография
-"MEMOIRS OF Dr.PSYCHO" 1994, Grindcore
-"HOLY SHIT" 1994, Grindcore
-"MOVE A BOWEL" 1995, Grindcore
-"ANAESTHETIC" 1995, Grindcore
-"INVOLUNTARY VOMIT" 1995, Grindcore
-"Encephalopatia" 2001, Grindcore
+(Siberian grind-core)
+
+## Дискография
+
+### "MEMOIRS OF Dr.PSYCHO" 1994, Grindcore
+
+1. Anaesthetic (intro) Обезболивающая 
+2. Dr.Psycho Makes a Post Mortem Examination Доктор Психоу Производит Посмертное Вскрытие 
+3. Endoparasites Глисты 
+4. Big Nasty Dick Большой Отвратительный Пенис 
+5. Enemaphobia Клизмобоязнь 
+6. Stinky Vaginal Pus Вонючий Вагинальный Гной 
+7. Death Of Heroic Pioneer Смерть Пионера-Героя 
+8. Inside Cunt Внутри Письки 
+9. Call Of Stomach Зов Желудка 
+10. Dr.Psycho: Perversion In Morgue Доктор Психоу: Извращение В Морге 
+11. Dr.Psycho Treats Constipation To Mr.Greeg Доктор Психоу Лечит Запор У Мистера Грига 
+12. Happy God’s Birth Day Счастливое Рождество 
+13. Life Sucks Жизнь Дерьмо 
+14. The Funeral Of Mr.Greeg Похороны Мистера Грига 
+15. Brains Run Out Nose Мозги Вытекают Из Носа 
+16. Schizophrenia Раздвоение Личности 
+17. Electrocution Казнь На Электрическом Стуле 
+18. Merri Good Song Веселая Добрая Пестня 
+19. Insalubrious Love Of Dr.Psycho Болезненная Любовь Доктора Психоу 
+20. Good Negro is Dead Negro Хороший Негр - Мертвый Негр 
+21. Bloody Diarrhoea Кровавый Понос 
+
+  
+
+
+### "HOLY SHIT" 1994, Grindcore
+
+1. Dr.Psycho Makes Abortion To Mother Of God Доктор Психоу Абортирует Богоматерь 
+2. Dr.Psycho Rapes Santa Maria Anal Hollow Доктор Психоу Насулует Санта Марию В Анальное Отверстие 
+3. All That She Wants Все, Что Она Хочет 
+4. Bleeding Eye-Sockets Кровоточащие Глазницы 
+5. God: What The Fuck Is It, Male Or Female? Бох. Что Это, Самец Или Самка? 
+6. Rotten Balls Of Jesus Christ Тухлые Яйца Иисуса Христа 
+7. Ytaertne (Great Love, part II) Йтаертне 
+8. Outpouring Anal Pus Истекающий Анальный Гной 
+9. God’s Vomit Богова Блевотина 
+10. Removing Of Dick Удаление Пениса 
+11. Ayulilla Алилуйа 
+12. Dislocation Of Santa Cuntus Вывих Санта Кантуса 
+13. Raping Of Hollers-Idiots Изнасилование Святош-Идиотов 
+14. 666’th 666-й 
+15. Who Eat Shit Of Jesus Christ Кто Ест Говно Иисуса Христа 
+16. Spiritual Healing Духовное Излечение 
+17. Spiritual Falling Духовное Падение 
+18. No Name Без Названия 
+19. Ode For Santa Cuntus Ода Санта Кантусу 
+20. Running Stream Of Church’s Sickness Mass Бегущий Поток Болезненных Церковных Масс 
+21. Die Ubelkeit (germany vomit) Рвота(германская рвота) 
+22. Outro Аутро 
+
+ 
+
+
+
+### "MOVE A BOWEL" 1995, Grindcore
+
+1. I am Sick To My Stomach Меня тошнит 
+2. Long-Awaited Moment Долгожданный Момент 
+3. Mutilator Уродец 
+4. Merry Christmas (1978) Рождество-1978 
+5. The New Crucifiction Новое распятие 
+6. Haemorrhoids Гемморрой 
+
+
+### "ANAESTHETIC" 1995, Grindcore
+
+1. Vomit Defecation (part I) Блевотное Испражнение 
+2. Worm The Victor Червяк Победитиль 
+3. Diarrhoea Диарея 
+4. Copulation With Natural Единение С Природным 
+5. Inside The Pressmashine Внутри Гидравлического Пресса 
+6. Rotten Genitals Of Beautiful Lyusia Сгнившие Гениталии Прекрасной Люси 
+7. Internal Damage Внутреннее Повреждение 
+8. The Walk In Night Town Прогулка По Ночному Городу 
+
+### "INVOLUNTARY VOMIT" 1995, Grindcore
+
+1. Anaesthetic/Long-Awaited Moment (intro-remix) Долгожданный Момент 
+2. Inside The Pressmashine Внутри Гидравлического Пресса 
+3. Vomit Defecation (part II) Блевотное Испражнение 
+4. Kaboom (babach!!!) Бабах! 
+5. Vile Fatty Creature Мерзкая Жирная Тварь 
+6. In The Spring Весной 
+7. Fuck’n Suck Рок н рол 
+8. So Must To Be Так И Должно Быть 
+
+ 
+
+
+
+### "Encephalopatia" 2001, Grindcore
+
+1. Intro...1:20
+2. The Conspitation...0:33
+3. G.O.D. (new version)...0:22
+4. Esuss...0:18
+5. Herstozz...0:35
+6. Asshole from Orthodox Church...1:13
+7. AssUmption of You...1:13
+8. In The Spring (naturalistischen mixt)...0:53
+9. Encephalopatia...1:27
+10. Vile Fatty Creature (new version)...2:16
+11. Vomit Defecation (part III)...2:32
+12. Inside The Pressmachine (magometan mixt)...0:53
+13. Bowel Symphony...0:35
+14. Hallelujah Hajulellah...0:40
+15. Virgin Mary Morning...0:46
+16. Menstruation: The Look Insight...1:03
+17. Отравленный Хот-Дог...0:40
+18. Sinless Moslem...0:49
+19. Диалектика Убийства...0:25
+20. Na Li Lullaby...1:45
+21. Schizophilia...0:35
+22. In Puss...0:48
+23. Melodismus Sucks (part II)...1:01 
+24. Anaesthetic (outro)...0:47
+
+
+
 
 ## Отношения с другими группами
 

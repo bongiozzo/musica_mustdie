@@ -1,9 +1,27 @@
 # Eversin
 
-Дискография
-"Divina Distopia" 2010, Power Metal
-"Tears on the Face of God" 2012, Thrash
-"Trinity: The Annihilation" 2015, Thrash
+
+
+## Дискография
+
+### "Divina Distopia" 2010, Power Metal
+
+1. X.E.N.O.S.	 
+2. Wings Ov Tears	 
+3. In The Shadow Of The Rose	 
+4. Divina Distopia	 
+5. Angel Of Silence	 
+6. Suddenly		 
+7. In My Dream They Live
+
+### "Tears on the Face of God" 2012, Thrash
+
+
+
+### "Trinity: The Annihilation" 2015, Thrash
+
+
+
 
 ## Отношения с другими группами
 

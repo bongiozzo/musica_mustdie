@@ -1,16 +1,251 @@
 # Korpiklaani
 
-Дискография
-"Spirit of the Forest" 2003, Folk
-"Voice of Wilderness" 2005, Folk
-"Tales Along This Road" 2006, Folk
-"Tervaskanto" 2007, Folk
-"Korven Kuningas" 2008, Folk
-"Karkelo" 2009, Folk
-"Ukon Wacka" 2011, Folk
-"Metsalle (single)" 2011, Folk
-"Manala" 2012, Folk
-"Noita" 2015, Folk
+Folk-Metal from the Forests of Finland
+
+## Дискография
+
+### "Spirit of the Forest" 2003, Folk
+
+1. Wooden Pints
+2. Before the Morning Sun
+3. God of Wind
+4. With Trees
+5. Pellonpekko
+6. You Looked Into My Eyes
+7. Hullunhumppa
+8. Man Can Go Even Through the Grey Stone
+9. Pixies Dance
+10. Juokse Sina Humma
+11. Crows Bring the Spring
+12. Hengettomilta Hengilta
+13. Shaman Drum
+14. Mother Earth
+
+
+Jonne - vocals, acoustic & electric guitars, shaman drum
+Arto - bass
+Ali - percussions
+Honka - guitar
+Hittavainen - violin, jouhikko, flutes
+Matson - drums
+
+Session drums: Samu 'Dominator' Ruotsalainen.
+Additional guitar: Jay Bjugg.
+Accordion: Tarnanen.
+
+Produced by Jay Bjugg.
+Recorded and mixed by BT-Powerhouse.
+Recorded by Jay, Tarnanen, Ozzie & Jameye.
+Mixed by Jay & Tarnanen.
+Mastered at Finnvox by Mika Jussila.
+Cover & booklet designs by Pekka Keskinen (Grotto Art).
+Photos by Pekka Keskinen & sini-Suvi Helenius.
+Band photos by Jani Rantalainen.
+
+### "Voice of Wilderness" 2005, Folk
+
+1. Cottages & Saunas
+2. Journey man
+3. Fields in flames
+4. Pine woods
+5. Spirit of the forest
+6. Native land
+7. Hunting song
+8. Ryyppajaiset
+9. Beer Beer
+10. Old tale
+11. Kadet siipina
+
+Bonus "Hounting Song" Videoclip
+
+
+Hittavainen - violin, jouhikko, flutes
+Jonne - vocals, acoustic & electric guitars, shaman drum
+Arto - bass
+Ali - percussions
+Honka - guitar
+Matson - drums
+
+Guests
+Katja Juhola: accordion
+Virva Holtiton: kantele, throat roaring
+Frank: backing shouts
+Makkara: backing shouts
+
+Wesilahti Wiking Choir
+On the song "Kadet siipina"
+Eero Jarvela
+Raimo Jarvela
+Mauri Laitinen
+Ilkka Uusitalo
+Esko Salonen
+
+Recorded, mixed and mastered: Samu Oittinen at
+Fantom studio, Tampere Finland
+Produced by Samu Oittinen
+Photos: Monica Nordling, Boris Stefanov, Pekka
+Keskinen, Sini-Suvi Helenius, Jonne Jarvela
+Cover art: Pekka Keskinen/Grotto art.
+
+### "Tales Along This Road" 2006, Folk
+
+
+
+### "Tervaskanto" 2007, Folk
+
+1. Let's Drink 02:43  
+2. Tervaskanto 03:54  
+3. Viima 03:33  
+4. Veriset Apдrдt 04:27  
+5. Running with Wolves 03:53  
+6. Liekkiцn Isku 02:56  
+7. Palovana 05:04  
+8. Karhunkaatolaulu 02:52  
+9. Misty Fields 03:25  
+10. Vesilahden Verдjillд 06:58  
+11. Nordic Feast 02:46 
+
+
+Songs Translation:
+
+1. Let's Drink
+2. Resinous Stump
+3. Icy Wind
+4. Bloody Bastards Children
+5. Running With Wolves
+6. The Revenge of Liekkio
+7. Inner Fire
+8. Bear Hunt Song
+9. Misty Fields
+10. At the Gates of Vesilahti
+11. Nordic Feast
+
+### "Korven Kuningas" 2008, Folk
+
+1. Tapporauta  
+2. Metsдmies   
+3. Keep On Galloping 
+4. Northern Fall   
+5. Shall We Take A Turn?   
+6. Paljon On Koskessa Kiviд   
+7. Ali Jдisten Vetten   
+8. Gods On Fire   
+9. Kipakka (Japan bonus track)   
+10. Kantaiso   
+11. Kipumylly   
+12. Suden Joiku   
+13. Runamoine   
+14. Syntykoski Syцmmehessдin   
+15. Korven Kuningas   
+16. Nuolet nomalan (digipack bonus track)
+
+### "Karkelo" 2009, Folk
+
+1. Vodka 03:00  
+2. Erдmaan Дrjyt 02:57  
+3. Isku Pitkдstд Ilosta 04:11  
+4. Mettдnpeiton Valtiaalle 06:41  
+5. Juodaan Viinaa 03:15  
+6. Uniaika 04:22  
+7. Kultanainen 06:16  
+8. Bring Us Pints Of Beer 02:49  
+9. Huppiaan Aarre 05:13  
+10. Vesaisen Sota 03:40  
+11. Sulasilmд 05:37  
+12. Kohmelo 03:28  
+13. Kцnnin Kuokkamies (Bonus track) 03:04 
+
+
+
+Line-up:
+
+Jonne Jдrvelд - Vocals, Guitars
+Kalle "Cane" Savijдrvi - Guitars
+Jarkko Aaltonen - Bass
+Matti "Matson" Johansson - Drums
+Jaakko "Hittavainen" Lemmetty - Violin, Jouhikko, Bagpipes, Flute
+Juho Kauppinen - Accordion
+
+The CD was recorded at Petrax studio in Hollola, Finland. 
+
+### "Ukon Wacka" 2011, Folk
+
+1. Louhen Yhdeksдs Poika 03:25  
+2. Pддt Pois Tai Hirteen 03:14  
+3. Tuoppi Oltta 03:37  
+4. Lonkkaluut 05:41  
+5. Tequila 02:44 
+6. Ukon Wacka 05:08  
+7. Korvesta Liha 04:34  
+8. Koivu Ja Tдhti 04:20  
+9. Vaarinpolkka 02:22 
+
+Iron Fist (Motorhead Cover) is the bonus track on the digipak version
+
+
+Line-up:
+Jonne Jдrvelд - Vocals, Guitars
+Cane - Guitars
+Jarkko Aaltonen - Bass
+Matson - Drums
+Hittavainen - Violin, Jouhikko, Bagpipes, Flute
+Juho Kauppinen - Accordion
+
+"Ukon Wacka" is a ceremonial gathering to worship the pagan god "Ukko".
+
+
+1. Louhi's Ninth Son
+2. Head off, or the gallows
+3. A Pint of Beer
+4. Hip Bone
+5. Tequila
+6. Ukon Wacka
+7. Wilderness Meat
+8. The Birch and the Star
+9. Grandfather's Polka
+10. Death
+
+
+
+### "Metsalle (single)" 2011, Folk
+
+1. Metsalle 05:35
+
+
+"Metsalle" was originally composed for the upcoming album and was presented by them at the Eurovision song contest.
+ 
+The song describes part of the Kalevala story, the national epic of Finland. 
+
+### "Manala" 2012, Folk
+
+1.	 Kunnia	03:25
+2.	 Tuonelan Tuvilla	03:10	 
+3.	 Rauta	03:06
+4.	 Ruuminmultaa	03:37	 
+5.	 Petoel&#228;imen Kuola	03:15	 
+6.	 Synkk&#228;	05:25	 
+7.	 Ievan Polkka	03:08
+8.	 Husky-Sledge	01:48	  instrumental
+9.	 Dolorous	03:05	  instrumental
+10.	 Uni	03:49	 
+11.	 Mets&#228;lle	05:41	 
+12.	 Sumussa H&#228;m&#228;r&#228;n Aamun	06:19	 
+
+### "Noita" 2015, Folk
+
+1. Viinamaen mies  02:58   
+2. Pilli on pajusta tehty  02:43   
+3. Lempo  05:35  
+4. Sahti  03:28   
+5. Luontoni  03:01   
+6. Mina naain vedessa neidon  06:09   
+7. Jouni Jouni (Tommy James and the Shondells cover)  04:52  
+8. Kylasta kevainen kehto  04:42  
+9. Ammanhauta  05:18   
+10. Sen verran minakin noita  06:37   
+11. Antaja  * 05:13  
+
+
 
 ## Отношения с другими группами
 

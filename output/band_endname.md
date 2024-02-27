@@ -1,8 +1,22 @@
 # Endname
 
-Дискография
-"Dreams of a Cyclops" 2009, Metal
-"Anthropomachy" 2011, Metal
+
+
+## Дискография
+
+### "Dreams of a Cyclops" 2009, Metal
+
+1. Inception  07:16   
+2. North  08:40   
+3. Eclipse  13:50  
+4. Beyond The Scope  06:36  
+5. Dissolution  07:28   
+6. Dissociation  10:45 
+
+### "Anthropomachy" 2011, Metal
+
+
+
 
 ## Отношения с другими группами
 

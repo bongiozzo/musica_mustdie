@@ -1,7 +1,19 @@
 # Bokrag
 
-Дискография
-"Mental Sickness" 2011, Death Metal
+
+
+## Дискография
+
+### "Mental Sickness" 2011, Death Metal
+
+1. Hallucination Vortex
+2. The Rise Of Eradication
+3. Malady
+4. Inner Hades
+5. Inferior
+6. Mental Sickness
+7. The Weight Of The World
+
 
 ## Отношения с другими группами
 

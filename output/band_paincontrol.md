@@ -1,7 +1,13 @@
 # Pain Control
 
-Дискография
-"Subvert" 2002, Metal
+Angry-modern metal from England
+
+## Дискография
+
+### "Subvert" 2002, Metal
+
+
+
 
 ## Отношения с другими группами
 

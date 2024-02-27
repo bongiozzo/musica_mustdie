@@ -1,7 +1,18 @@
 # A Dream of Poe
 
-Дискография
-"The Mirror of Deliverance" 2011, Death Doom
+
+
+## Дискография
+
+### "The Mirror of Deliverance" 2011, Death Doom
+
+1. Neophyte	 
+2. Os Vultos	 
+3. Lady of Shalott	 
+4. Liber XLIX	 
+5. The Lost King of the Lyre	 
+6. Chrysopoeia
+
 
 ## Отношения с другими группами
 

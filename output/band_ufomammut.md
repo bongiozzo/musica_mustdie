@@ -1,15 +1,63 @@
 # Ufomammut
 
-Дискография
-"Godlike Snake" 2000, Doom
-"Snailking" 2004, Doom
-"Lucifer Songs" 2005, Doom
-"Supernaturals Record One" 2007, Doom
-"Idolum" 2008, Doom
-"Eve" 2010, Doom
-"Oro: Opus Primum" 2012, Doom
-"Oro: Opus Alter" 2012, Doom
-"Ecate" 2015, Doom
+
+
+## Дискография
+
+### "Godlike Snake" 2000, Doom
+
+
+
+### "Snailking" 2004, Doom
+
+
+
+### "Lucifer Songs" 2005, Doom
+
+1. Blind
+2. Hellcore
+3. Hypnotized
+4. Mars
+5. Astrodronaut
+6. Lucifer Song
+
+### "Supernaturals Record One" 2007, Doom
+
+
+
+### "Idolum" 2008, Doom
+
+
+
+### "Eve" 2010, Doom
+
+
+
+### "Oro: Opus Primum" 2012, Doom
+
+1. Empireum
+2. Aureum
+3. Infearnatural
+4. Magickon
+5. Midomine
+
+### "Oro: Opus Alter" 2012, Doom
+
+1. Oroborus
+2. Luxon
+3. Sulphurdew
+4. Sublime
+5. Deityrant
+
+### "Ecate" 2015, Doom
+
+1. Somnium 9:55
+2. Plouton 3:08
+3. Chaosecret 10:47
+4. Temple 7:32
+5. Revelation 4:01
+6. Daemon 10:30
+
 
 ## Отношения с другими группами
 

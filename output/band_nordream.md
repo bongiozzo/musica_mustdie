@@ -1,7 +1,43 @@
 # Nordream
 
-Дискография
-"Memories Progression" 2000, Progressive
+progressive -melodic-doom
+
+## Дискография
+
+### "Memories Progression" 2000, Progressive
+
+of a hope 
+vaguest dreams 
+piercing time 
+i love 
+the 2 beauties 
+forcefed 
+ugly face 
+a heaven in hell's despair 
+hvost 
+
+
+Produced by Igor Lobanov
+
+Recorded and Engineered by Evgeny Trushin at SNC Records Autumn 1999. Mixed by Evgeny Trushin and Igor Lobanov at SNC Records July 2000. Mastered by Sergey Rybin at SNC Records. 
+
+Arranged by NORDREAM:
+
+Bass- Mikhail Khololov
+Drums- Stas Koulikov
+Guitars- Rouben Kazariyan
+Keyboards- Julia Chistyakova
+
+Guest musicians:
+
+Lead vocals- Oleg Alimov (Ens Cogitans, Oversun)
+Additional vocals- Igor Lobanov (End Zone)
+Female vocals- Svetlana Kolbasina
+Spoken parts by Boris Specter (Specter)
+Drums on "Ugly Face" by Andrei Ischenko (End Zone)
+
+   
+
 
 ## Отношения с другими группами
 

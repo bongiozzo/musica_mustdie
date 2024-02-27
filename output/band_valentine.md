@@ -1,13 +1,53 @@
 # Valentine
 
-Дискография
-"Robby Valentine" 1992, Hard Rock
-"The magic infinity" 1993, Hard Rock
-"Valentine" 1995, Hard Rock
-"Valentine 4 United" 1997, Hard Rock
-"No Sugar Added" 1998, Hard Rock
-"Believing Is Seeing" 2000, Hard Rock
-"The Most Beautiful Pain" 2006, Hard Rock
+melodic hard/classic rock
+
+## Дискография
+
+### "Robby Valentine" 1992, Hard Rock
+
+
+
+### "The magic infinity" 1993, Hard Rock
+
+
+
+### "Valentine" 1995, Hard Rock
+
+
+
+### "Valentine 4 United" 1997, Hard Rock
+
+
+
+### "No Sugar Added" 1998, Hard Rock
+
+
+
+### "Believing Is Seeing" 2000, Hard Rock
+
+
+
+### "The Most Beautiful Pain" 2006, Hard Rock
+
+1. I Should Have Know Better 
+2. A New World 
+3. I?m Going Under (Sedated) 
+4. One Of These Days 
+5. The Cold And Lonely Life 
+6. She (Abandoned Heart) 
+7. Magnum Opus 
+8. Everyday Hero 
+9. Supernova 
+10. Magical Memories 
+11. How Many Times 
+12. Mickey 
+13. How Can I Live Without You 
+14. One Heart 
+15. Back To The Future Theme 
+16. Now Or Never 
+17. Exodus Elephants
+
 
 ## Отношения с другими группами
 

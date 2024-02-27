@@ -1,8 +1,29 @@
 # Nashville Pussy
 
-Дискография
-"Get some!" 2005, Hard Rock
-"Live! In Hollywood (DVD)" 2008, Rock and Roll
+
+
+## Дискография
+
+### "Get some!" 2005, Hard Rock
+
+1. Pussy Time 8. One Way Down 
+2. Come On Come On 9. Raisin Hell Again 
+3. Going Down Swinging 10. Atlanta's Still Burning 
+4. Good Night For A Heartattack 11. Nutbush City Limits 
+5. Hate And Whiskey 12. Meaner Than My Mama 
+6. Lazy White Boy 13. Snowblind 
+7. Hell Ain't It Used To Be 
+8. One Way Down
+9. Raisin Hell Again
+10. Atlanta's Still Burning
+11. Nutbush City Limits
+12. Meaner Than My Mama
+13. Snowblind
+
+### "Live! In Hollywood (DVD)" 2008, Rock and Roll
+
+
+
 
 ## Отношения с другими группами
 

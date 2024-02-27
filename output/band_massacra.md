@@ -1,10 +1,114 @@
 # Massacra
 
-Дискография
-"Final Holocaust" 1990, Death Metal
-"Enjoy The Violence" 1991, Death Metal
-"Signs Of The Decline" 1992, Death Metal
-"Humanize Human" 1996, Death Metal
+France Death Metal Star
+
+## Дискография
+
+### "Final Holocaust" 1990, Death Metal
+
+1. Apocalyptic Warriors
+2. Researches Of Tortures
+3. Sentenced For Life
+4. War Of Attrition
+5. Trained To Kill
+6. Nearer To Death *
+7. Final Holocaust
+8. Eternal Hate *
+9. The Day Of Massacra
+
+ Chris Palengat - Drums
+ Fred - Guitars & Vocals On *
+ Jean Marc Tristani - Lead Guitar
+ Pascal - Bass & Vocals
+
+All Songs By MASSACRA.
+All Songs Composed & Arranged By MASSACRA.
+Produced By Uli Posselt For CLM Prod.
+Associated Producer Axel Thubeauville.
+Recorded & Mixed By Uli Posselt At Ra.Sh.
+Studios,Oct. `89.
+Cover Artwork By Formosa.
+Logo Design By Denis GRR.
+
+(p)&(c) 1990 SHARK Records
+
+### "Enjoy The Violence" 1991, Death Metal
+
+1. Enjoy The Violence
+2. Ultimate Antichrist
+3. Gods Of Hate *
+4. Atrocious Crimes
+5. Revealing Cruelty
+6. Full Of Hatred *
+7. Seas Of Blood
+8. Near Death Experience
+9. Sublime Extermination *
+10. Agonizing World
+
+ Pascal Jorgensen - Bass & Vocals
+ Fred Death  - Guitars & Vocals On *
+ Jean-Marc Tristani - Lead Guitar
+ Chris Palengat - Drums
+
+All Songs Composed & Arranged By MASSACRA.
+Produced By Ulli Pфsselt.
+Associated Producer Axel Thubeauville.
+Mixed By Ulrich Pфsselt & Axe Thubeauville At
+RA, SH - Studio / West Germany,
+
+(p)&(c) 1991 SHARK Records / CLM
+
+### "Signs Of The Decline" 1992, Death Metal
+
+1. Evidence Of Abominations
+2. Defying Man`s Creation
+3. Baptized In Decadence
+4. Mortify Their Flesh
+5. Traumatic Paralyzed Mind *
+6. Excruciating Commands
+7. Worlds Dies Screaming
+8. Signs Of The Decline
+9. Civilization In Regression *
+10.Full Frontal Assault
+
+ Pascal Jorgensen - Vocals & Bass
+ Fred Death - Guitars,Vocals On *
+ Jean-Marc Tristani - Guitars
+ Matthias Limmer - Drums
+
+All Songs Composed & Arranged By MASSACRA.
+Produced By Tim Buktu.
+Mixed By Colin Richardson.
+Associated Producer Axel Thubeauville.
+Recorded By Tim Buktu At T&T Recording Studio,
+Germany / April 1992.
+
+(p)&(c) 1992 PHONOGRAM Gmbh
+
+### "Humanize Human" 1996, Death Metal
+
+1. Need  For Greed
+2. Feel Unreal
+3. My Only Friend
+4. Mad To Be Normal
+5. How Free Are You
+6. Humanize Human
+7. Dejected
+8. Pay For My Tears
+
+ Pascal Jorgensen - Vocals & Bass
+ Fred Death - Rhythm Guitar
+ Jean-Marc Tristani - Lead Guitar
+ Bjorn Crugger - Drums
+
+All Songs Composed & Arranged By MASSACRA.
+Produced By Tim Buktu.
+Mixed By Tim Buktu & MASSACRA..
+Recorded  At T&T Recording Studio,
+Germany..
+
+(P)&(C) 1996 ROUGH TRADE Records
+
 
 ## Отношения с другими группами
 

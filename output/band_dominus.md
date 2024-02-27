@@ -1,8 +1,61 @@
 # Dominus
 
-Дискография
-"View To The Dim" 1995, Death Metal
-"The First 9" 1996, Death Metal
+
+
+## Дискография
+
+### "View To The Dim" 1995, Death Metal
+
+1.  Symphony Of The Goddess (Intro)
+2.  Tears In Black
+3.  Bring Down The Roars
+4.  Spiritual Mountain
+5.  Awakening Of The Overthrown
+6.  View To The Dim
+7.  Lost Behind Scars
+8.  A Sign From The Cryptic Winter
+9.  The Blaze Of Valhalla
+10.Ideral Path Of Colours
+11.The Ravens Eye
+12.Weiv Eht oT Mid (Outro)
+
+All Songs By DOMINUS.
+Produced & Mixed By Morten Nilson & DOMINUS.
+Engineered By Casper Munkebo.
+Recorded & Mixed In 'Take One' Studio.
+
+Michael Poulsen - Vocals, Guitars
+Mads Hansen - Lead Guitar
+Jess Larsen - Drums
+Jesper Olsen - Bass
+
+(P)&(C) 1995 PROGRESS Records
+
+### "The First 9" 1996, Death Metal
+
+1.  Dancing With Magic
+2.  Soul - Damnation
+3.  Final Journey
+4.  The Burning Maid
+5.  Ancient Emperor
+6.  Next Living Obliging
+7.  Confront The 9
+8.  Second Palace
+9.  The Crystal Demon
+10.Final Journey Part II
+
+All Songs Written By DOMINUS.
+Produced & Mixed By Casper Munkebo & DOMINUS.
+Engineered By Casper Munkebo.
+Recorded & Mixed In 'Take One' Studio, Denmark.
+
+Michael Poulsen - Vocals, Guitars
+Jens Peter Storm - Lead Guitar
+Lars Hald - Drums
+Jesper Olsen - Bass
+
+(P)(C) 1996 PROGRESS Records
+
 
 ## Отношения с другими группами
 

@@ -1,9 +1,45 @@
 # Vektor
 
-Дискография
-"Black Future" 2009, Thrash
-"Outer Isolation" 2011, Thrash
-"Terminal Redux" 2016, Thrash
+
+
+## Дискография
+
+### "Black Future" 2009, Thrash
+
+1. Black Future 05:03 
+2. Oblivion 04:54 
+3. Destroying the Cosmos 06:47 
+4. Forests of Legend 10:16 
+5. Hunger for Violence 05:30 
+6. Deoxyribonucleic Acid 04:45 
+7. Asteroid 06:49 
+8. Dark Nebula 10:28 
+9. Accelerating Universe 13:31
+
+### "Outer Isolation" 2011, Thrash
+
+1. Cosmic Cortex (10:22)
+2. Echoless Chamber (5:17)
+3. Dying World (5:18)
+4. Tetrastructural Minds (5:21)
+5. Venus Project (6:47)
+6. Dark Creations, Dead Creators (3:25)
+7. Fast Paced Society (6:45)
+8. Outer Isolation (8:27)
+
+### "Terminal Redux" 2016, Thrash
+
+01. Charging The Void
+02. Cygnus Terminal
+03. LCD (Liquid Crystal Disease)
+04. Mountains Above The Sun
+05. Ultimate Artificer
+06. Pteropticon
+07. Psychotropia
+08. Pillars Of Sand
+09. Collapse
+10. Recharging The Void
+
 
 ## Отношения с другими группами
 

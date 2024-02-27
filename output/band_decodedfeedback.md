@@ -1,12 +1,110 @@
 # Decoded Feedback
 
-Дискография
-"Overdosing" 1996, Metal
-"Technophoby" 1997, Metal
-"Bio-Vital" 1998, Metal
-"Evolution" 1999, Metal
-"Mechanical Horizon" 2000, Metal
-"Shockwave" 2003, Metal
+EBM
+
+## Дискография
+
+### "Overdosing" 1996, Metal
+
+1. mother tenebrarum  
+  2. deathcall
+  3. deep emotion
+  4. birth of a nation
+  5. fear (ATD remix)
+  6. prophecy
+  7. technophoby
+  8. no way out
+  9. overdosing
+10. coming down
+11. dream machine
+12. red cell
+13. it's armageddon
+14. fall-out
+
+### "Technophoby" 1997, Metal
+
+1. corrosion  
+  2. mother tenebrarum
+  3. human instinct
+  4. euthanasia
+  5. fear (analogue to digital remix)
+  6. night's calling
+  7. birth of a nation
+  8. passion of flesh
+  9. deep emotion
+10. time machine
+11. technophoby (extraction remix)
+
+### "Bio-Vital" 1998, Metal
+
+1. breathe  
+  2. machine kontrol
+  3. this world
+  4. bio-vital
+  5. relic
+  6. synthesis
+  7. bodycell
+  8. god's sin
+  9. ragescape
+10. again (cover version)
+11. corrosion (lights of euphoria remix)
+
+### "Evolution" 1999, Metal
+
+Part I - d.n.a. 
+  1. evolution 
+  2. endless light
+  3. infect me
+  4. bodies of seals
+  5. frozen
+  6. re/animation
+
+Part II - genetically altered
+  7. breathe (infected mix) 
+  8. bio-vital (fictional remix)
+  9. breathe (in strict confidence remix)
+10. relic (aghast view "intense" remix)
+11. bio-vital (funker vogt remix)
+12. relic (din_fiv remix)
+
+Part III - cloned
+13. bio-vital (frozen autumn cover version)
+
+### "Mechanical Horizon" 2000, Metal
+
+1. reflect in silence
+  2. atlantis 
+  3. celestia
+  4. dark-star
+  5. immortal
+  6. a kill to an end
+  7. existence
+  8. the sequel (cover version)
+  9. desire
+10. mechanical horizon
+11. fear 2000 (exclusive remix)
+relic video (pc/mac)
+
+### "Shockwave" 2003, Metal
+
+01. Phoenix
+02. Bondage
+03. Democracy
+04. The Fruit Of Wisdom
+05. Heaven
+06. Do You See
+07. Nothingness
+08. Organic
+09. Shockwave
+10. Burn Europe Burn
+11. Love Will Save You
+12. Phoenix (video)
+
+Marco Biagiotti - vox, lyrics, samples, sequences,
+basses and drums
+Yone Dudas - keyboards, sequences, arrangement,
+basses and drums
+
 
 ## Отношения с другими группами
 

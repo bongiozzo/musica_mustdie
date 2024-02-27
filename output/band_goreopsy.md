@@ -1,7 +1,13 @@
 # Goreopsy
 
-Дискография
-"Co. - Ed Killer" 2004, Deathcore
+
+
+## Дискография
+
+### "Co. - Ed Killer" 2004, Deathcore
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,18 +1,139 @@
 # Onslaught
 
-Дискография
-"Power From Hell" 1985, Thrash
-"The Force" 1986, Thrash
-"Let There Be Rock (EP)" 1987, Thrash
-"Shellshock (EP)" 1988, Thrash
-"Welcome To Dying (EP)" 1989, Thrash
-"In Search Of Sanity" 1989, Thrash
-"Killing Peace" 2007, Thrash
-"The Shadow Of Death (compilation)" 2008, Thrash
-"Live Damnation" 2009, Thrash
-"Sounds Of Violence" 2011, Thrash
-"VI" 2013, Thrash
-"Live At The Slaughterhouse (CD/DVD)" 2016, Thrash
+
+
+## Дискография
+
+### "Power From Hell" 1985, Thrash
+
+01. Damnation / Onslaught (Power from Hell)
+02. Thermonuclear Devastation
+03. Skullcrusher I
+04. Lord of Evil
+05. Death Metal
+06. Angels of Death
+07. The Devil's Legion [Part 1]
+08. The Devil's Legion [Part 2]
+09. Steel Meets Steel
+10. Skullcrusher II
+11. Witch Hunt
+12. Mighty Empress
+
+### "The Force" 1986, Thrash
+
+01. Let There Be Death
+02. Metal Forces
+03. Fight with the Beast
+04. Demoniac
+05. Flame of the Antichrist
+06. Contract in Blood
+07. Thrash till the Death
+
+### "Let There Be Rock (EP)" 1987, Thrash
+
+1. Let There Be Rock
+2. Metal Forces
+3. Power From Hell
+4. Angels Of Death
+
+Nige Rockett - Lead Guitars
+Rob Trotman - Lead Guitars
+James Hinder - Bass
+Steve Grice - Drums
+Sy Keeler - Vocals
+
+(p)&(c) 1987 UNDER ONE FLAG Records
+
+### "Shellshock (EP)" 1988, Thrash
+
+
+
+### "Welcome To Dying (EP)" 1989, Thrash
+
+
+
+### "In Search Of Sanity" 1989, Thrash
+
+01. Asylum
+02. In Search of Sanity
+03. Shellshock
+04. Lightning War
+05. Let There Be Rock (AC/DC cover)
+06. Blood Upon the Ice
+07. Welcome to Dying
+08. Power Play
+09. Confused (Angel Witch cover) (bonus track)
+
+### "Killing Peace" 2007, Thrash
+
+1. Burn 
+2. Killing Peace 
+3. Destroyer Of Worlds 
+4. Pain 
+5. Prayer For The Dead, A 
+6. Tested To Destruction 
+7. Twisted Jesus 
+8. Planting Seeds Of Hate 
+9. Shock & Awe
+
+### "The Shadow Of Death (compilation)" 2008, Thrash
+
+
+
+### "Live Damnation" 2009, Thrash
+
+01. Killing Peace
+02. Let There Be Death
+03. Destroyer of Worlds
+04. Metal Forces
+05. Seeds of Hate
+06. Demoniac
+07. Burn
+08. Power from Hell
+
+### "Sounds Of Violence" 2011, Thrash
+
+1. Into the Abyss (Intro) 01:01  
+2. Born for War 05:55  
+3. The Sound of Violence 04:04  
+4. Code Black 06:22  
+5. Rest in Pieces 04:43  
+6. Godhead 04:50  
+7. Hatebox 04:52  
+8. Antitheist 06:32  
+9. Suicideology 05:13  
+10. End of the Storm (Outro) 01:31  
+11. Bomber (Motцrhead cover) 02:50 
+
+### "VI" 2013, Thrash
+
+01. A New World Order
+02. Chaos Is King
+03. Fuel For My Fire
+04. Children Of The Sand
+05. Slaughterize
+06. 66’Fucking’6
+07. Cruci-Fiction
+08. Dead Man Walking
+09. Enemy Of My Enemy
+10. Shellshock (re-recorded 2013) (Bonus Track)
+
+### "Live At The Slaughterhouse (CD/DVD)" 2016, Thrash
+
+01. The Sound Of Violence
+02. Killing Peace
+03. Chaos Is King
+04. Let There Be Death
+05. Children Of The Sand
+06. Rest In Pieces
+07. 66 'Fucking' 6
+08. Destroyer Of Worlds
+09. In Search Of Sanity
+10. Fight With The Beast
+11. Metal Forces
+12. Onslaught (Power From Hell)
+13. Thermonuclear Devastation
+
 
 ## Отношения с другими группами
 

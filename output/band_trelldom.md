@@ -1,7 +1,20 @@
 # Trelldom
 
-Дискография
-"Til Minne" 2007, Black Metal
+Gaahl (GORGOROTH)
+
+## Дискография
+
+### "Til Minne" 2007, Black Metal
+
+Til Minne... 
+Bortkomne Svar 
+Fra Mitt Gamle... 
+By My Will 
+Vinternatt 
+From This Past 
+Steg 
+Eg Reiste i Minnet...
+
 
 ## Отношения с другими группами
 

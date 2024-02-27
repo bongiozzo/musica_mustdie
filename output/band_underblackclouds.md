@@ -1,7 +1,35 @@
 # Under Black Clouds
 
-Дискография
-"Dawn" 1995, Death Metal
+
+
+## Дискография
+
+### "Dawn" 1995, Death Metal
+
+1. Hope For The New End
+2. To Silence You
+3. Into Another World
+4. Mortal Worlds
+5. The Mercyless Of Time
+6. The Reason Why...
+7. Do You Have Confidence In Me ?
+8. Beyond The Sun
+9. In A Spare Moment
+
+All Songs By UNDER BLACK CLOUDS.
+Produced & Mixed By UNDER BLACK CLOUDS &
+Andreas Hilbert.
+Engineered By Andreas Hilbert.
+Recorded & Mixed At Blue Art Studio In Feb. 1995.
+
+Andreas Greupner - Vocals
+Andre Andrejew - Guitar
+Simon Schmitt - Keyboard
+Christoph Dobberstein - Bass
+Rene Puhlmann - Drums
+
+(P)&(C) 1995 INVASION Records
+
 
 ## Отношения с другими группами
 

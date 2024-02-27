@@ -1,10 +1,126 @@
 # Roxette
 
-Дискография
-"Look Sharp !" 1988, Hard Rock
-"Joyride" 1991, Hard Rock
-"Tourism" 1992, Hard Rock
-"Crash ! Boom ! Bang !" 1994, Hard Rock
+
+
+## Дискография
+
+### "Look Sharp !" 1988, Hard Rock
+
+1.  The Look
+2.  Dressed For Success
+3.  Sleeping Single
+4.  Paint 
+5.  Dance Away
+6.  Cry
+7.  Chances
+8.  Dangerous
+9.  Half A Woman, Half A Shadow
+10.View From A Hill
+11.(I Could Never) Give You Up
+12.Shadow Of A Doubt
+13.Listen To Your Heart
+
+13 Thrilling Programmes In One Night !
+
+All songs written by Per Gessle & Marie Fredriksson.
+Produced By Clarence Ofwerman.
+
+Per Gessle - Guitar, Vocals
+Marie Fredriksson - Vocals
+Pelle Alsing - Drums & Hi-Hat
+Anders Herrlin - Programming & Bass
+Erik Hausler - Saxophone
+Jonas Isacsson - Electric & Acoustic Guitars
+Jalle Lorensson - Harmonica
+Janne Oldaeus - Slide Guitar
+Erik Borilius - Spanish Guitar
+Clarence Ofwerman - Keyboards & Programming
+
+(P)c 1988 EMI Records
+
+### "Joyride" 1991, Hard Rock
+
+1.  Joyride
+2.  Hotblooded
+3.  Fading Like A Flower (Every Time You Leave)
+4.  Knockin' On Every Door
+5.  Spending My Time
+6.  I Remember You
+7.  Watercolours In The Rain
+8.  The Big L
+9.  Soul Deep
+10.(Do You Get) Excited ?
+11.Church Of Your Heart
+12.Small Talk
+13.Physical Fascination
+14.Things Will Never Be The Same
+15.Perfect Day
+
+All songs written by Per Gessle & Marie Fredriksson.
+Produced By Clarence Ofwerman.
+Track 9  - (P)c 1986.
+
+(P)c 1991 EMI Svenska
+
+### "Tourism" 1992, Hard Rock
+
+1.  How Do You Do !
+2.  Fingertips
+3.  The Look
+4.  The Heart Shaped Sea
+5.  The Rain
+6.  Keep Me Waiting
+7.  It Must Have Been Love
+8.  Cinnamon Street
+9.  Never Is A Long Time
+10.Silver Blue
+11.Here Comes The Weekend
+12.So Far Away
+13.Come Back (Before You Leave)
+14.Things Will Never Be The Same
+15.Joyride
+16.Queen Of Rain
+
+All Songs Written By Per Gessle.
+Published By Jimmy Fun Music.
+Songs From Studios, Stages, Hotelrooms & Other Strange Places.
+
+(P)c 1992 EMI Records
+
+### "Crash ! Boom ! Bang !" 1994, Hard Rock
+
+1.  Harleys & Indians (Riders In The Sky)
+2.  Crash ! Boom ! Bang !
+3.  Fireworks
+4.  Run To You
+5.  Sleeping In My Car
+6.  Vulnerable
+7.  The First Girl On The Moon
+8.  Place Your Love
+9.  I Love The Sound Of Crashing Guitars
+10.What's She Like ?
+11.Do You Wanna Go The Whole Way ?
+12.Lies
+13.I'm Sorry
+14.Love Is All (Shine Your Light On Me)
+15.Go To Sleep
+
+All songs written by Per Gessle & Marie Fredriksson.
+Produced By Clarence Ofwerman.
+
+Electric Guitars - Per Gessle, Jonas Isacsson, Pelle Siren, Janne Oldaeus, M.P.Persson
+Acoustic Guitars - Jonas Isacsson, Per Gessle, Pelle Siren
+Drums & Percussion - Pelle Alsing, Nicki Wallin, Christer Jansson, Alar Suurna, Mats Persson
+Dobro Guitar - Per Gessle
+Programming - Clarence Ofwerman, Anders Herrlin
+Keyboards - Clarence Ofwerman
+Harmonica - Jalle Lorensson & Per Gessle
+Mandolin - Jonas Isacsson, M.P.Persson
+Bass - Anders Herrlin
+Back Vocals - Vicki Benckert, Staffan Ofwerman, Woodwind Quartet From Swedish Radio Symphony Orchestra.
+
+(P)c 1994 EMI Svenska
+
 
 ## Отношения с другими группами
 

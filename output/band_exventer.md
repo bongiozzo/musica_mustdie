@@ -1,8 +1,24 @@
 # Exventer
 
-Дискография
-"Procederum Finic" 2005, Death Metal
-"Bioconveyor Of Instincts" 2006, Death Metal
+
+
+## Дискография
+
+### "Procederum Finic" 2005, Death Metal
+
+
+
+### "Bioconveyor Of Instincts" 2006, Death Metal
+
+1. The Law For The Agonizing
+2. Corporal Reconstruction
+3. From The Cunt To The Grave
+4. Bioconveyor Of Instincts
+5. Narcotized-fuck Creature
+6. Sebaceous Matter Of Superior Intellect
+7. Manifest Of Power
+8. Necrodeflorator
+
 
 ## Отношения с другими группами
 

@@ -1,10 +1,42 @@
 # Deathrow
 
-Дискография
-"Satan's Gift" 1986, Thrash
-"Raging Steel" 1987, Thrash
-"Deception Ignored" 1988, Thrash
-"Life Beyond" 1992, Thrash
+
+
+## Дискография
+
+### "Satan's Gift" 1986, Thrash
+
+
+
+### "Raging Steel" 1987, Thrash
+
+ Side One:
+1. The Dawn 1.23
+2. Raging Steel 4.13
+3. Scattered By The Wind 5.07
+4. Dragon's Blood 5.55
+5. The Thing Within 5.56
+ Side Two:
+1. Pledge To Die 4.04
+2. Mortal Dread 4.47
+3. The Undead Cry 4.04
+4. Beyond The Light 6.37
+
+Milo - Bass & Vocals
+Markus Hahn - Lead Guitars
+Sven Flugge - Guitars
+Thomas Priebe - Drums
+
+(p)&(c) 1987 NOISE International
+
+### "Deception Ignored" 1988, Thrash
+
+
+
+### "Life Beyond" 1992, Thrash
+
+
+
 
 ## Отношения с другими группами
 

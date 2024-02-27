@@ -1,8 +1,28 @@
 # Answer, The
 
-Дискография
-"Rise" 2006, Hard Rock
-"Revival" 2011, Hard Rock
+
+
+## Дискография
+
+### "Rise" 2006, Hard Rock
+
+
+
+### "Revival" 2011, Hard Rock
+
+1.Waste Your Tears 
+2.Use Me 
+3.Trouble 
+4.Nowhere Freeway 
+5.Tornado 
+6.Vida (I Want You) 
+7.Caught On The Riverbed 
+8.Destroy Me 
+9.New Day Rising 
+10.Can't Remember, Can't Forget 
+11.One More Revival 
+12.Lights Are Down
+
 
 ## Отношения с другими группами
 

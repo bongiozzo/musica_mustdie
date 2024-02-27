@@ -1,12 +1,84 @@
 # Chthonic
 
-Дискография
-"Where the Ancestors' Souls Gathered" 1999, Black Metal
-"9th Empyrean" 2000, Black Metal
-"Relentless Recurrence" 2002, Black Metal
-"Seediq Bale" 2005, Black Metal
-"Mirror of Retribution" 2009, Black Metal
-"Takasago Army" 2011, Black Metal
+
+
+## Дискография
+
+### "Where the Ancestors' Souls Gathered" 1999, Black Metal
+
+1. Drift Out to Mystery  00:42  
+2. Across the Sea  04:41 
+3. Breath of Ocean  03:16   
+4. Mother Isle Disingrated, Aboriginal Gods Enthroned  09:52
+5. Deep Rising  04:01  
+6. Yen Geh Shin  04:55   
+7. Bloody Cloud  03:48
+8. Holy War  06:50 
+9. Nightmare (Bonus Track)  07:08 
+
+### "9th Empyrean" 2000, Black Metal
+
+1. Breath of Ocean  02:45  
+2. Intro  01:39   
+3. Floated Unconsciously in the Acheron  06:58 
+4.  Summon of China  06:02 
+5. Gods Souls Gathered  01:43  
+6. Invasion  07:46
+7. Upon the Empyrean  02:10    
+8. Guard the Isle Eternally  09:06 
+
+### "Relentless Recurrence" 2002, Black Metal
+
+1. Nemesis  02:44 
+2. Onset of Tragedy  06:33   
+3. Obituary Tuning  03:39 
+4. Grievance, Acheron Poem  08:37   
+5. Revert to Mortal territory  03:42   
+6. Funest Demon Born  02:26    
+7. Vengeance Arise  04:26   
+8. Slaughter in Tri-Territory  08:20   
+9. Grab the Soul to Hell  08:12   
+10. Relentless Recurrence  08:10 
+
+### "Seediq Bale" 2005, Black Metal
+
+1. Progeny of Rmdaxtasing  04:35  
+2. Indigenous Laceration  04:03
+3. Enthrone  01:03   
+4. Bloody Gaya Fulfilled  06:39  
+5. The Gods Weep  05:55  
+6. Where the Utux Ancestors Wait  05:35  
+7. Exultant Suicide  04:59  
+8. Banished Into Death  03:49
+9. Quasi Putrefaction  06:57 
+
+### "Mirror of Retribution" 2009, Black Metal
+
+1. Autoscopy (Intro)  01:57   instrumental  
+2. Blooming Blades  04:41   
+3. Hearts Condemned  04:31   
+4. Venom In My veins  03:02 
+5. The Aroused  05:07  
+6. Sing-Ling Temple  04:07  
+7. 1947  04:18   instrumental  
+8.  Forty-Nine Theurgy Chains  03:36  
+9. Rise Of The Shadows  04:09  
+10. Bloody Waves Of Sorrow  04:49  
+11. Spell Of Setting Sun: Mirror Of Retribution  05:56 
+
+### "Takasago Army" 2011, Black Metal
+
+1. The Island  02:15    
+2.  Legacy Of The Seediq  04:21    
+3. Takao  04:19   
+4. Oceanquake  03:44 
+5. Southern Cross  03:53  
+6. KAORU  05:38   
+7. Broken Jade  05:43   
+8. Root Regeneration  01:24  
+9. MAHAKALA  04:02  
+10. Quell The Souls In Sing Ling Temple  05:18 
+
 
 ## Отношения с другими группами
 

@@ -1,15 +1,68 @@
 # The Almighty
 
-Дискография
-"Blood, Fire And Love" 1989, Heavy Metal
-"Soul Destruction" 1991, Heavy Metal
-"Powertrippin'" 1993, Heavy Metal
-"Crank" 1994, Heavy Metal
-"Just Add Life" 1996, Heavy Metal
-"The Almighty" 2000, Heavy Metal
-"Psycho-Narco" 2001, Heavy Metal
-"Wild And Wonderful (Compilation)" 2002, Heavy Metal
-"All Proud, All Live, All Mighty (Live)" 2008, Heavy Metal
+
+
+## Дискография
+
+### "Blood, Fire And Love" 1989, Heavy Metal
+
+
+
+### "Soul Destruction" 1991, Heavy Metal
+
+
+
+### "Powertrippin'" 1993, Heavy Metal
+
+
+
+### "Crank" 1994, Heavy Metal
+
+
+
+### "Just Add Life" 1996, Heavy Metal
+
+1. Ongoing And Total
+2. Do You Understand
+3. All Sussed Out
+4. How Real Is Real For You
+5. Dead Happy
+6. Some Kind Of Anything
+7. Coalition Star
+8. 8 Day Depression
+9. Look That Happened Tomorrow
+10.360
+11.Feed The Need
+12.Afraid Of Flying
+13.Independent Deterrent
+
+All songs written by THE ALMIGHTY
+Produced, engineered and mixed by Chris Sheldon
+Recorded and mixed at Great Linford Manor
+
+Ricky Warwick - Vocals and Guitars
+Pete Friesen - Guitars
+Floyd London - Bass and Vocals
+Stumpy Munroe - Drums
+
+(p)c 1996 THE ALMIGHTY
+
+### "The Almighty" 2000, Heavy Metal
+
+
+
+### "Psycho-Narco" 2001, Heavy Metal
+
+
+
+### "Wild And Wonderful (Compilation)" 2002, Heavy Metal
+
+
+
+### "All Proud, All Live, All Mighty (Live)" 2008, Heavy Metal
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,24 @@
 # Goreaphobia
 
-Дискография
-"Mortal Repulsion" 2009, Death Metal
+
+
+## Дискография
+
+### "Mortal Repulsion" 2009, Death Metal
+
+1. Ordeal of the Abyss  03:30  
+2. Amulet of Damnation  04:07  
+3. Negative Screams (Passage)  03:36  
+4. Grave Plagued Planet  04:07    
+5. Primal Nothingness  02:32   
+6. Faded Into Ends (part 1)  01:13    
+7. Despised and Ruined  05:06    
+8. Black Ash Eyes  04:04  
+9. A Grievous Curse  03:49  
+10. Ascending Into Vices  03:52  
+11. The Inevitable Punishment / Faded Into Ends (part 2)  08:23 
+12. Mortal Repulsion  04:04 
+
 
 ## Отношения с другими группами
 

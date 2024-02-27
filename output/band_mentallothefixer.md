@@ -1,7 +1,32 @@
 # Mentallo & The Fixer
 
-Дискография
-"Continuum" 1996, Industrial
+
+
+## Дискография
+
+### "Continuum" 1996, Industrial
+
+1. Narcotic
+2. Doomsday Accelerate
+3. Perish In Peril
+4. Wicked
+5. Clusterfuck
+6. Continuum
+7. Peril
+8. Natalia
+
+All trax composed, programmed and
+conceived by MENTALLO & THE
+FIXER.
+To the fanatics:
+The tracks on this CD are what is left from the Wreckage of our earlier days as MENTALLO & FIXER
+All of these trax have been  digitally remastered from the original master
+tapes. Most of it is  spontanous remixes, outtakes and previously unreleased instrumental  material. Some of these songs are not in the typical vein of  MENTALLO & THE FIXER, such as
+"Natalia" or "Perish In Peril" which  were inspired by a personal emotional
+ transition.
+
+(p)(c) 1996 OFF BEAT Records
+
 
 ## Отношения с другими группами
 

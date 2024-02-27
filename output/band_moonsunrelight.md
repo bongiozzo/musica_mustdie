@@ -1,6 +1,9 @@
 # Moonsun Relight
 
-Дискография
+Gothic-black from St. Peterburg
+
+## Дискография
+
 
 ## Отношения с другими группами
 

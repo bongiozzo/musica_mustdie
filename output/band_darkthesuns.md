@@ -1,11 +1,91 @@
 # Dark The Suns
 
-Дискография
-"In Darkness Comes Beauty" 2007, Gothic
-"The Dead End (EP)" 2008, Gothic
-"All Ends in Silence " 2009, Gothic
-"Don't Fear The Sleep (single)" 2010, Gothic
-"Sleepwalking in a Nightmare" 2010, Gothic
+
+
+## Дискография
+
+### "In Darkness Comes Beauty" 2007, Gothic
+
+1. Reflections 04:17
+2. The Sleeping Beauty 03:37 
+3. Black Sun 04:14  
+4. Alone 04:15 
+5. A Darkness to Drown In 03:37 
+6. Angel Soul 04:01 
+7. Drama For Gods 03:53 
+8. Ghost Bridges 04:09  
+9. Like Angels and Demons 03:18
+10. Away 04:35 
+
+
+
+Line-up:
+Mikko Ojala - Vocals & Guitar
+Toni Tuomioja - Guitar
+Juha Kokkonen - Keyboards
+Inka Tuomaala - Bass
+Markus Lehtinen - Drums
+
+Recorded by Juha Kokkonen at Nightmare Workshop, and Arttu Sarvanne at Studio
+Watercastle.
+Mixed by Arttu Sarvanne.
+Mastered by Mika Jussila at Finnvox Studios. 
+
+### "The Dead End (EP)" 2008, Gothic
+
+1. The Dead End 03:47 
+2. Take This Pain 03:18  
+3. Episode 666 (In Flames cover) 03:44  
+4. When Love and Death Embrace (HIM cover) 03:58 
+
+
+### "All Ends in Silence " 2009, Gothic
+
+1. Unbroken Silence 04:13
+2. Everlasting 04:04 
+3. The Dead End 03:46 
+4. All Ends In Silence 04:55 
+5. Sleepless Angels 04:13 
+6. Cold Dawn 03:47 
+7. Rimed With Frost 04:44  
+8. The Rain 03:55 
+9. Guardians 04:30  
+10. Gone 06:42 
+
+
+
+They recorded the guitars and keyboards in their home studio and drums, bass and
+vocals were recorded in Studio Watercastle. The whole album was also mixed in
+Watercastle by Arttu Sarvanne and mastered in Finnvox Studios by Mika Jussila.
+
+### "Don't Fear The Sleep (single)" 2010, Gothic
+
+1. Don’t Fear the Sleep 05:03  
+2. Wounded by Broken Dreams 04:33 
+ 
+official single from the upcoming album "Sleepwalking in a Nightmare" 
+
+### "Sleepwalking in a Nightmare" 2010, Gothic
+
+1. Insomnia 04:11  
+2. Devoid of the Sun 05:09  
+3. Wounded by Broken Dreams 04:31  
+4. World Stood Still 04:04  
+5. Don't Fear the Sleep 05:01  
+6. Last Farewell 04:27  
+7. Walking with an Angel 05:37  
+8. Into the Blind World 04:37  
+9. Lake of a Thousand Tears 06:12  
+10. Requiem for a Dream 06:36 
+
+
+Line-up:
+-Mikko Ojala: Guitar, vocals
+-Inka Tuomaala: Bass, synths
+-Eliisa Tuomanen: Backing vocals
+-Joonas Paananen: Guitar
+-Markus Lehtinen: Drums 
+
 
 ## Отношения с другими группами
 

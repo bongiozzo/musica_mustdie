@@ -1,10 +1,64 @@
 # Neuraxis
 
-Дискография
-"Imagery" 1997, Death Metal
-"A Passage into Forlorn" 2001, Death Metal
-"Truth Beyond..." 2003, Techno Death
-"Trilateral Progression" 2005, Techno Death
+Techno Death Metal
+
+## Дискография
+
+### "Imagery" 1997, Death Metal
+
+1. Intro 00:17  
+2. A Temporal Calamity 03:28  
+3. Oscilliated To Intelligence 03:10  
+4. Cyberwar 01:58  
+5. Inquisition On Mortality 03:02 
+6. Lid To Your Soul 03:46  
+7. Reasons Of Being 03:17  
+8. Atmospheric Holocaust 01:59  
+9. Psycho - Waves 04:14  
+10. A Drift... 00:44  
+11. Driftwood 03:20 
+12. The Drop 00:47
+
+### "A Passage into Forlorn" 2001, Death Metal
+
+1. Unite 03:03 
+2. Virtuosity 05:14  
+3. The Art Of Sadness 03:44 
+4. Link 04:09 
+5. Blind The Vision That Shatters 03:04 
+6. To Pacify 02:22 
+7. The Drop 00:40 
+8. Forlorn... 01:39
+
+### "Truth Beyond..." 2003, Techno Death
+
+1. ...Of Divinity 03:39
+2. Impulse 04:12  
+3. Fractionized 04:36 
+4. Xenobiotic 02:55  
+5. Reflections 04:21 
+6. Imagery 03:45  
+7. Momento 01:30  
+8. Structures 03:29 
+9. Mutiny 03:56  
+10. Essence 02:25  
+11. Neurasthenic 00:36  
+12. Truth Beyond Recognition... 05:43 
+13. Outro 01:43
+
+### "Trilateral Progression" 2005, Techno Death
+
+1.  Introspect 
+2.  Clarity    
+3.  Thought Adjuster 
+4.  Shatter the Wisdom 
+5.  Monitoring the Mind 
+6.  A Curative Struggle 
+7.  Chamber of Guardians 
+8.  Caricature 
+9.  Axioms 
+10.  The Apex
+
 
 ## Отношения с другими группами
 

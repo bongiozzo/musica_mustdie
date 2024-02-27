@@ -1,7 +1,35 @@
 # Epilepsy Bout
 
-Дискография
-"Lost Control" 1996, Rap Metal
+
+
+## Дискография
+
+### "Lost Control" 1996, Rap Metal
+
+1. Lost Control
+2. I Would Be Free
+3. Inside Wars
+4. When The Big Fight Going On
+5. Overdose
+6. The Pig's Troubles (Porky's Childhood)
+7. Headache
+8. Hiccupophobia
+9. Pride
+10.Flesh Without Bone
+11.You're In The Army Now
+
+Щуренко Макс - Vocals
+Жаров Алексей - Lead Guitar
+Григоренко Олег - Guitar, Back Vocal
+Воронцов Александр - Bass
+Воронцов Константин - Drums
+
+Sound Engineer - Дмитрий Калинин.
+Produced By Agen Price & EPILEPSY BOUT.
+Mastered - Ария Рекордс.
+
+(P)(C) 1996 METALAGEN / "СОЮЗ"
+
 
 ## Отношения с другими группами
 

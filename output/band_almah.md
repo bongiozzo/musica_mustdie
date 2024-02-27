@@ -1,11 +1,103 @@
 # Almah
 
-Дискография
-"Almah" 2007, Power Metal
-"Fragile Equality" 2008, Power Metal
-"Motion" 2011, Heavy Metal
-"Unfold" 2013, Power Metal
-"E.V.O" 2016, Power Metal
+
+
+## Дискография
+
+### "Almah" 2007, Power Metal
+
+King 
+Take Back Your Spell 
+Forgotten Land 
+Scary Zone 
+Children Of Lies 
+Break All The Welds 
+Golden Empire 
+Primitive Chaos 
+Breathe 
+Box Of Illusion 
+Almah
+The Sign Of Glory (bonus)
+Supermind (bonus)
+
+### "Fragile Equality" 2008, Power Metal
+
+1. Birds Of Prey 04:45  
+2. Beyond Tomorrow 04:03  
+3. Magic Flame 03:32  
+4. All I Am 04:40  
+5. You’ll Understand 06:03  
+6. Invisible Cage 05:46  
+7. Fragile Equality 03:48  
+8. Torn 04:42  
+9. Shade Of My Soul 04:58  
+10. Meaningless World 04:48 
+
+
+Line up:
+
+Edu Falaschi: vocals
+Marcelo Barbosa: guitars
+Paulo Schroeber: guitars
+Felipe Andreoli: bass
+Marcelo Moreira: drums
+
+Produced by Edu Falaschi and Felipe Andreoli.
+
+### "Motion" 2011, Heavy Metal
+
+1. Hypnotized 
+2. Living And Drifting 
+3. Days Of The New 
+4. Bullets On The Altar 
+5. Zombies Dictator 
+6. Trace Of Trait 
+7. Soul Alight 
+8. Late Night in '85 
+9. Daydream Lucidity 
+10. When And Why
+
+
+Marcelo Moreira - Drums 
+Paulo Schroeber - Guitars 
+Marcelo Barbosa - Guitars 
+Edu Falaschi - Vocals, guitar, and keyboards 
+Felipe Andreoli - Bass 
+
+
+
+### "Unfold" 2013, Power Metal
+
+1. In My Sleep  04:17   
+2. Beware the Stroke  05:32   
+3. The Hostage  04:02  
+4. Warm Wind  04:58   
+5. Raise the Sun  05:06   
+6. Cannibals in Suits  04:59   
+7. Wings of Revolution  04:47  
+8. Believer  05:39   
+9. I Do  05:06   
+10. You Gotta Stand  05:04   
+11. Treasure of the Gods  09:47   
+12. Farewell  03:40  
+13. Pegasus Fantasy 04:05   
+14. Moonlight Serenade (Frank Sinatra cover) 
+
+### "E.V.O" 2016, Power Metal
+
+1. Age of Aquarius  07:13   
+2. Speranza  04:55   
+3. The Brotherhood  04:41 
+4. Innocence  04:35   
+5. Higher  05:09    
+6. Infatuated  04:05  
+7. Pleased to Meet You  04:24   
+8. Final Warning  04:13  
+9. Indigo  03:46   
+10. Corporate War  04:19    
+11. Capital Punishment  04:00 
+
+
 
 ## Отношения с другими группами
 

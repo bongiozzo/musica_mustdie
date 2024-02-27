@@ -1,14 +1,59 @@
 # Kylesa
 
-Дискография
-"Kylesa" 2002, Metal
-"No Ending (EP)" 2004, Metal
-"To Walk A Middle Course" 2005, Metal
-"Time Will Fuse Its Worth" 2006, Metal
-"Static Tensions" 2009, Metal
-"Unknown Awareness (EP)" 2009, Metal
-"Spiral Shadow" 2010, Metal
-"Exhausting Fire" 2015, Metal
+
+
+## Дискография
+
+### "Kylesa" 2002, Metal
+
+1. No Remorse
+2. Ceaseless Becoming
+3. The Scarab
+4. Point of Stillness
+5. Testing The God of Man
+6. Descend Within
+7. Dream of The Freedom To Come
+8. Parent's Song
+
+
+### "No Ending (EP)" 2004, Metal
+
+
+
+### "To Walk A Middle Course" 2005, Metal
+
+
+
+### "Time Will Fuse Its Worth" 2006, Metal
+
+
+
+### "Static Tensions" 2009, Metal
+
+
+
+### "Unknown Awareness (EP)" 2009, Metal
+
+
+
+### "Spiral Shadow" 2010, Metal
+
+01. Tired Climb
+02. Cheating Synergy
+03. Drop Out
+04. Crowded Road
+05. Don’t Look Back
+06. Distance Closing In
+07. To Forget
+08. Forsaken
+09. Spiral Shadow
+10. Back And Forth
+11. Dust
+
+### "Exhausting Fire" 2015, Metal
+
+
+
 
 ## Отношения с другими группами
 

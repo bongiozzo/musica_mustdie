@@ -1,14 +1,112 @@
 # Illnath
 
-Дискография
-"Behind the Veil (demo)" 1999, Metal
-"Bring Down the Witching Hour (demo)" 2000, Metal
-"Angelic Voices Calling [EP]" 2001, Metal
-"Cast Into Fields of Evil Pleasure" 2003, Metal
-"Second Skin of Harlequin" 2005, Metal
-"Three Nights In The Sewers Of Sodom" 2009, Black Metal
-"Third Act in the Theatre of Madness" 2011, Black Metal
-"Lead The Way (EP)" 2011, Black Metal
+Danish Horror Metal
+
+## Дискография
+
+### "Behind the Veil (demo)" 1999, Metal
+
+1. Through Mournfull Times (01:11)
+2. Behind the Veil (02:40)
+3. Weakness (03:05)
+4. XIII (03:39)
+5. Bj&ouml;rn (Live) (02:15)
+
+Released when the band was known as "Flagellation".
+
+&copy; 1999 Illnath
+
+### "Bring Down the Witching Hour (demo)" 2000, Metal
+
+1. Bring Down the Witching Hour (04:30)
+2. The Blood Is the Almighty Sin (04:36)
+
+&copy; 2000 Illnath
+
+### "Angelic Voices Calling [EP]" 2001, Metal
+
+1. Ancient Legacy (0:49)
+2. Death Becomes All (4:48)
+3. The Blood Is the Almighty Sin (4:15)
+4. Angelic Voices Calling (3:53)
+5. Never Again (4:08)
+
+Mini-CD, 5 tracks
+Released: September 2001
+
+&copy; 2001 Illnath
+
+### "Cast Into Fields of Evil Pleasure" 2003, Metal
+
+1. Zetite (4:06)
+2. Behind the Mirrors (4:23)
+3. Cast Into Fields of Evil Pleasure (5:07)
+4. Temporary Borders (5:04)
+5. The Creator's Biggest Pride (4:37)
+6. Gloomy Gathering (1:42)
+7. Bring Down the Witching Hour (4:29)
+8. By the Hands of Violent Winter (5:40)
+9. Frozen Constellations (4:36)
+
+
+Narrenschiff – vocals
+Tobias – bass
+Pete – guitars
+Tyr – synths
+Benjamin – drums
+
+All music and lyrics written by Illnath.
+Engineered and produced by Jan Borsing and Illnath at Borsing recording, Denmark.
+Design and photomanipulation by Wilhelm Steiner.
+Portrait photos by Dror Kasinsky.
+Band photo by Claus Peuckert.
+Female vocals by Lena.
+
+Released: June 23rd, 2003
+
+&copy; 2003 World Chaos Productions
+
+### "Second Skin of Harlequin" 2005, Metal
+
+1. And There Was Light 04:59 
+2. Virgin Soil 04:08 
+3. Pieta 04:06  
+4. Sought By The Fallen One 04:57 
+5. She, The Plague 04:56 
+6. Feathers Shall Fall 04:23 
+7. Clockwork of Time 05:57 
+8. Book of Sand 05:02  
+9. Aqua Diabolicom (Bonus track) 05:05 
+
+
+### "Three Nights In The Sewers Of Sodom" 2009, Black Metal
+
+1. Ravenous Crows 03:28
+2. Damnation's Dawn 03:22
+3. Burn to Stone 04:53
+
+
+
+### "Third Act in the Theatre of Madness" 2011, Black Metal
+
+01. Third Act 05:36 
+02. Scare Crow 04:51 
+03. Lead The Way 06:30 
+04. Snake Of Eden 03:26 
+05. Shorthanded 05:50 
+06. Spring Will Come 05:20 
+07. Tree Of Life And Death 05:34 
+08. Fall Of Giants 06:06 
+09. Vampiria 05:31
+10. Kingship Incarnate (CD Bonus) 04:29
+
+### "Lead The Way (EP)" 2011, Black Metal
+
+01. Lead The Way 
+02. Scarecrow 
+03. Snake Of Eden
+
+
 
 ## Отношения с другими группами
 

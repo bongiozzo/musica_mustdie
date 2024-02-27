@@ -1,7 +1,33 @@
 # Consequence
 
-Дискография
-"Volition" 1996, Industrial
+
+
+## Дискография
+
+### "Volition" 1996, Industrial
+
+0. > connect
+1. Reliance (3.48)
+2. />Transform</ (0.48)
+3. Access Denied (3.57)
+4. (Not) Allowed (3.55)
+5. />Kontakt</ (1.34)
+6. Application Form: Life (3.54)
+7. />Conversion Modulator</ (1.47)
+8. High (3.2G)
+9. Definition Factor: F *.* (4.33)
+10.T.A. Edicated (4.17)
+11. />Processed</ (1.34)
+12. If You Want (3.34)
+13. N-D-E (5.08)
+    >disconnect
+       /resume/ (2.07
+
+All music and words by Michael Irmer = CONSEQUENCE
+Larynx, VCFs, X-Modulations,  Con/Structure, Production, Programming CONSEQUENCE
+
+(p)(c) 1996 HARD Records
+
 
 ## Отношения с другими группами
 

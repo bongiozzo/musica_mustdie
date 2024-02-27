@@ -1,10 +1,32 @@
 # Imperium Frost
 
-Дискография
-"Mystikal" 2000, Black Metal
-"Битвы Прусских земель" 2002, Black Metal
-"Ответ прошепчут тебе небеса (single)" 2003, Black Metal
-"Antichristian Flame" 2006, Black Metal
+black metal band from Koenigsberg
+
+## Дискография
+
+### "Mystikal" 2000, Black Metal
+
+
+
+### "Битвы Прусских земель" 2002, Black Metal
+
+1. Разъяренное пламя мечей
+2. Во имя ушедших воинов...
+
+### "Ответ прошепчут тебе небеса (single)" 2003, Black Metal
+
+
+
+### "Antichristian Flame" 2006, Black Metal
+
+1. Evil
+2. Библия
+3. Вкус крови
+4. Вызов
+5. "Сквозь темный лес..."
+6. Ритуал
+7. "Взошла луна..."
+
 
 ## Отношения с другими группами
 

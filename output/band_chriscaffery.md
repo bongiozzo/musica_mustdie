@@ -1,9 +1,85 @@
 # Chris Caffery
 
-Дискография
-"Faces / God Damn War" 2004, Heavy Metal
-"W.A.R.P.E.D" 2006, Heavy Metal
-"Pins & Needles" 2007, Heavy Metal
+ex- Savatage. Heavy-prog
+
+## Дискография
+
+### "Faces / God Damn War" 2004, Heavy Metal
+
+Disc 1 
+1. Alas 01:33  
+2. Faces 04:37  
+3. Fade into the X 05:14  
+4. Pisses Me Off 05:24  
+5. Remember 04:42  
+6. The Fall 04:03 
+7. Music Man 04:52 
+8. Life, Crazy Life!!! 04:32  
+9. The Mold 05:04 
+10. Bag O'Bones 03:31  
+11. Evil Is as Evil Does 03:20 
+12. Never 06:43  
+13. So Far Today 04:48  
+14. Jealousy 06:06 
+15. Preludio 04:57 
+16. Abandoned 06:50 
+
+Disc 2 
+1. God Damn War 06:33  
+2. Fool, Fool 02:57  
+3. Edge of Darkness 04:10  
+4. Saddamize 07:37  
+5. I 04:31  
+6. Amazing Grace 01:37 ] 
+7. Piece Be with You 05:54  
+8. Beat Me, You'll Never Beat Me 05:59  
+9. Curtains 03:14
+
+### "W.A.R.P.E.D" 2006, Heavy Metal
+
+Home Is Where The Hell Is * 
+God Damn War 
+Election Day * 
+Erase * 
+Fool, Fool! 
+Edge Of Darkness 
+Saddamize 
+"I" 
+Iraq Attack * 
+W.A.R.P.E.D. ** 
+State Of The Head * 
+Amazing Grace 
+Piece Be With You 
+Beat Me, You’ll Never Beat Me 
+Curtains
+
+* Previously Unreleased
+** Included On The U.S.A. Edition of "Faces" 
+
+Chris Caffery - Lead & Background Vocals, All Electric & Acoustic Guitars
+Jeff Plate - Drums & Percussion
+Dave Z - Bass
+Paul Morris - Piano & Keyboards
+Jon Oliva - Lead Vocals on "Iraq Attack"
+Brian Gregory - Bass on "Iraq Attack"
+
+### "Pins & Needles" 2007, Heavy Metal
+
+1. Pins & Needles 04:51  
+2. Sixty-Six 04:44  
+3. Torment 03:35  
+4. Walls 05:35  
+5. YGBFKM 04:09  
+6. Sad 04:43  
+7. Chained 04:05  
+8. Worms 04:12  
+9. Crossed 04:16  
+10. The Time 03:26  
+11. Metal East 04:11  
+12. Qualdio 02:10  
+13. The Temple 01:37  
+14. Once Upon A Time (bonus track) 05:32
+
 
 ## Отношения с другими группами
 

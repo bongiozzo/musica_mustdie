@@ -1,8 +1,26 @@
 # Esqarial
 
-Дискография
-"Amorphous" 1999, Death Metal
-"Klassika" 2004, Progressive
+Death from Poland
+
+## Дискография
+
+### "Amorphous" 1999, Death Metal
+
+
+
+### "Klassika" 2004, Progressive
+
+1. Prelude D-moll 01:07  
+2. Toy Soldier 04:40 
+3. Requiem 04:15  
+4. Eye Of The Cyclone 04:41  
+5. El Fuego 02:11  
+6. Timequake 04:39 
+7. True Lies 04:13
+8. Sleeping In The Flame 04:50
+9. Moonlight Sonata 04:47 
+10. Pure Formality 03:46
+
 
 ## Отношения с другими группами
 

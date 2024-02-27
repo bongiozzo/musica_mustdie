@@ -1,8 +1,44 @@
 # Heresiarh
 
-Дискография
-"Dragons of War" 1999, Black Metal
-"Mythical Beasts and Mediaeval Warfare" 2001, Black Metal
+Latvian black metal band
+
+## Дискография
+
+### "Dragons of War" 1999, Black Metal
+
+Side WAR 
+I. Horns Of War 6:06
+II. The Cruel Bard 6:31
+III. Lamenting Shield-maid 6:11
+
+Side DRAGONS 
+IV. Dragons Domain 6:43
+V. Wolfghosts (In Winter) 5:55
+VI. Жlfwine 2:20
+
++ a hidden bonus live track
+
+Elven Witchcraft 001
+
+Produced by Heresiarh & Elven Witchcraft.
+Recorded and mixed by Jвnis Levits and Heresiarh at Phoenix Studio, Riga, between December 17 - 31, 1997
+
+### "Mythical Beasts and Mediaeval Warfare" 2001, Black Metal
+
+All Hail The Wyverns
+Horns Of War
+Dragons Domain
+The Crownless King
+The Cruel Bard
+Saga of the Shield-Maid pt. I - The Old Forest (of Lament)
+Saga of the Shield-Maid pt. II - Of Her Triumph
+Higher Than Hills
+Trollstorm
+Elfwine
+Wolfghosts (In Winter)
+
+
+
 
 ## Отношения с другими группами
 

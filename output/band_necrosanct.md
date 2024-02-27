@@ -1,9 +1,61 @@
 # Necrosanct
 
-Дискография
-"Equal In Death" 1990, Death Metal
-"Incarnate" 1992, Death Metal
-"Desolate" 1993, Death Metal
+Intense Satanic Death Metal
+
+## Дискография
+
+### "Equal In Death" 1990, Death Metal
+
+
+
+### "Incarnate" 1992, Death Metal
+
+1. Ritual Acts
+2. Inevitable Demise
+3. Undeath Dead Dying
+4. Abhorrence
+5. Necronomicon
+6. Incarnate
+7. Exiternity
+8. Restless Dead
+9. Solace
+10.Ominous Despair
+11.Oblivion Seed
+
+ Ant Ryan - Bass Guitar & Vocal
+ Finlay Light - Drums
+ Chris Cooper - Rhythm Guitar
+ Cal Scott - Lead Guitar
+
+Produced By Boss.
+
+(p)&(c) 1992 BLACK MARK Productions
+
+### "Desolate" 1993, Death Metal
+
+1. Bleed
+2. Reprisal
+3. Plagued Mind
+4. Epitaph
+5. Darkest Fears
+6. Chaotic Veins
+7. Black Dawn
+8. Manifest
+9. Desolate
+10.Dirge
+
+ Ant Ryan - Bass Guitar & Vocal
+ Finlay Light - Drums
+ Chris Cooper - Rhythm Guitar
+ Cal Scott - Lead Guitar
+
+All Songs By NECROSANCT.
+Produced By Rex & NECROSANCT.
+Recorded At Montezuma Studio,
+Stockholm,Feb. 1-st To 16-h,1993.
+
+(p)&(c) 1993 BLACK MARK Productions
+
 
 ## Отношения с другими группами
 

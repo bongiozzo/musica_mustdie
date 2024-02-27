@@ -1,9 +1,48 @@
 # Miseration
 
-Дискография
-"Your Demons, Their Angels" 2007, Melodic Death Metal
-"The Mirroring Shadow" 2009, Melodic Death Metal
-"Tragedy Has Spoken" 2012, Melodic Death Metal
+
+
+## Дискография
+
+### "Your Demons, Their Angels" 2007, Melodic Death Metal
+
+1.Thrones
+2.Perfection Destroyed
+3.Seven Are The Sins
+4.World Lethality
+5.The End Designed
+6.Chain-Work Soul
+7.Noctivagant
+8.Foul Invective
+9.Scattering The Few
+
+### "The Mirroring Shadow" 2009, Melodic Death Metal
+
+1. Dreamdecipher 02:13
+2. Blueprinted Aeon Collapse 03:58
+3. Voyaging The Seas Of Thought 04:05
+4. The Mirroring Shadow 04:55
+5. A Trail Blazed Through Time 03:36
+6. Dimorphic 04:30
+7. Sulphury Sun 04:20
+8. Imago 2.0 04:16
+9. Theca 04:10 
+
+### "Tragedy Has Spoken" 2012, Melodic Death Metal
+
+1. Stepping Stone Agenda 05:01
+2. Children of the Flames 03:27
+3. Ghost Barrier 04:24
+4. Ciniphes 04:51
+5. Hill of the Poison Tree 02:22
+6. Disaster Cage 03:13
+7. On Wings of Brimstone 04:46
+8. White Light / Black Rain 04:07
+9. Tomb of Tephra 04:05
+10. Waylayer 06:03
+
+
+
 
 ## Отношения с другими группами
 

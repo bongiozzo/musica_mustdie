@@ -1,9 +1,32 @@
 # Godkiller
 
-Дискография
-"The Rebirth Of The Middle Ages" 1996, Black Metal
-"The End Of The World" 1998, Metal
-"Deliverence" 2000, Metal
+
+
+## Дискография
+
+### "The Rebirth Of The Middle Ages" 1996, Black Metal
+
+1.  Hymn For The Black Knights
+2.  From The Castle In The Fog
+3.  Path To The Unholy Frozen Empire
+4.  Blood On My Swordblade
+5.  The Neverending Reign Of The Black Knights
+
+Recorded and Mixed at Ancient Catacombs by Duke Satanael
+All music and lyrics by Duke Satanael
+
+Duke Satanael - War Cries, All Guitars, Bass, Synth
+
+(P)c 1996 WOUNDED LOVE Records // WLR O10
+
+### "The End Of The World" 1998, Metal
+
+
+
+### "Deliverence" 2000, Metal
+
+
+
 
 ## Отношения с другими группами
 

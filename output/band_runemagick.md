@@ -1,12 +1,83 @@
 # Runemagick
 
-Дискография
-"The Supreme Force Of Eternity" 1998, Death Metal
-"Enter The Realm Of Death" 1999, Death Metal
-"Resurrection In Blood" 2000, Death Metal
-"Ancient Incantations" 2001, Death Metal
-"Dark Live Magick" 2001, Death Metal
-"Moon Of The Chaos Eclipse" 2002, Death Metal
+Sweden Death metal
+
+## Дискография
+
+### "The Supreme Force Of Eternity" 1998, Death Metal
+
+
+
+
+
+
+
+
+
+Label: Century Media Records
+Information: Recorded and mixed at Studio Fredman, 7 days of June 1998.
+Recording line-up:
+Nicklas Rudolfsson
+Fredrik Johnsson
+
+
+### "Enter The Realm Of Death" 1999, Death Metal
+
+
+
+
+Label: Century Media Records
+Information: Recorded and mixed at Los Angered Recording, 10 days of May 1999. Mastered at Digital Fabriken.
+Recording line-up:
+Nicklas Rudolfsson
+Fredrik Johnsson
+
+
+### "Resurrection In Blood" 2000, Death Metal
+
+
+
+
+Label: Century Media Records
+Information: Recorded, mixed and mastered at Los Angered Recording, 9 days of June 2000.
+Recording line-up:
+Nicklas Rudolfsson
+Fredrik Johnsson
+
+
+### "Ancient Incantations" 2001, Death Metal
+
+
+
+
+Label: Aftermath Music
+Information: Released in 500 copies. Material is taken from unreleased demo recordings.
+Recording line-up:
+Various constellations
+
+
+### "Dark Live Magick" 2001, Death Metal
+
+Side Dark
+01. Celebration Of Death (intro)
+02. Hymn Of Darkness
+03. Dark Necroshadows
+04. Death Collector
+05. Return Of The Reaper
+06. Dreamvoid Serpent
+07. Reborn In Necromancy
+
+Side Magick
+09. Curse Of The Dark Rune
+10. Dethrone The Flesh
+11. When Death Is The Key
+12. Lord Of The Grave*
+13. Hail Death*
+
+### "Moon Of The Chaos Eclipse" 2002, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

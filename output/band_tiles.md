@@ -1,12 +1,114 @@
 # Tiles
 
-Дискография
-"Tiles" 1995, Progressive
-"Fence the Clear" 1997, Progressive
-"Presents of Mind" 1999, Progressive
-"Presence In Europe" 1999, Progressive
-"Window Dressing" 2004, Progressive
-"Fly Paper" 2008, Progressive
+(Prog rock in a way of Rush)
+
+## Дискография
+
+### "Tiles" 1995, Progressive
+
+1. Analysis Paralysis (5.11)
+lyrics: herin
+music: herin, evans, rarick, chown 
+2. Token Pledge (6.40) lyrics: herin
+music: herin, evans, rarick, chown 
+3. Retrospect (2.12) music: herin 
+4. Trading Places (4.27) lyrics: herin
+Music: herin, evans, rarick, chown 
+5. Bridges Of Grace (4.44) 
+lyrics: herin
+music: herin, evans, rarick, chown 
+6. Dancing Dogs (5.46) lyrics: herin
+music: herin, evans, rarick, chown 
+7. Scattergram (5.38) lyrics: herin
+music: herin, evans, rarick, chown 
+8. Dress Rehearsal (4.56) music: herin, evans, chown 
+9. Supply And Demand (6.11) lyrics: herin
+music: herin, evans, rarick, chown 
+ 
+
+ 
+
+
+### "Fence the Clear" 1997, Progressive
+
+1. patterns (4.31) lyrics: herin
+music: herin, evans 
+2. beneath the surface (5.00) lyrics: herin
+music: herin 
+3. catcus valley (6.58) 
+lyrics: herin
+music: herin 
+4. another's hand (6.32) 
+lyrics: herin
+music: herin, whittle 
+5. the wading pool (6.24) lyrics: herin
+music: herin 
+6. gameshow (3.40) lyrics: herin
+music: herin 
+7. fallen pieces (1.25) music: whittle 
+8. changing the guard (7.18) 
+lyrics: herin
+music: herin 
+9. gabby's happy song (.50) music: herin 
+10. checkerboards (14.43) lyrics: herin
+music: herin 
+ 
+ BONUS TRACKS - JAPANESE RELEASE
+11. Splinters Of Truth (Previously Unreleased) (.50)
+12. No Failure (Previously Unreleased Demo) (5.38)
+
+
+### "Presents of Mind" 1999, Progressive
+
+   1.   Static (Herin/Truax) - 5:43 
+   2.   Modification (Herin) - 3:42 
+   3.   Crossing Swords (DeLeon/Whittle) - 1:06 
+   4.   Facing Failure (Evans/Herin) - 5:41 
+   5.   The Learning Curve (Herin) - 4:40 
+   6.   Ballad of the Sacred Cows (Herin/Traux/Whittle) - 6:55 
+   7.   The Sandtrap Jig [instrumental] (Herin) - :48 
+   8.   Taking Control (Herin) - 5:12 
+   9.   Safe Procedures (Herin) - 7:04 
+   10.   Resonable Doubt (Herin) - 11:22 
+   11.   Patterns [live/*] - 4:05 
+   12.   Token Pledge [live/*] - 6:49 
+
+
+### "Presence In Europe" 1999, Progressive
+
+. Introduction (.46)
+(Transborder - Lyon, France - November 21, 1999)
+
+2. Patterns (4.34)
+(Forum - Nurnberg, Germany - November 15, 1999) 
+
+3. Token Pledge (7.17)
+(Kulturfabrik - Esch-Alzette, Luxembourg - November 23, 1999) 
+
+4. Static (5.51)
+(Kulturfabrik - Esch-Alzette, Luxembourg - November 23, 1999) 
+
+5. Modification (3.36)
+(Elysee Montmartre - Paris, France - November 24, 1999) 
+
+6. Ballad Of The Sacred Cows (7.03)
+(Kulturfabrik - Esch-Alzette, Luxembourg - November 23, 1999) 
+
+7. Facing Failure (5.44)
+(Elysee Montmarte - Paris, France - November 24, 1999) 
+
+
+8. Another's Hand (7.03)
+(Elysee Montmarte - Paris, France - November 24, 1999)
+
+### "Window Dressing" 2004, Progressive
+
+
+
+### "Fly Paper" 2008, Progressive
+
+
+
 
 ## Отношения с другими группами
 

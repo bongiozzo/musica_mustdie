@@ -1,15 +1,160 @@
 # Mercyful Fate
 
-Дискография
-"Melissa" 1983, Heavy Metal
-"Don't Break the Oath" 1984, Heavy Metal
-"Into the Beginning" 1987, Heavy Metal
-"Return of the Vampire" 1992, Heavy Metal
-"Dangerous Meeting (Part I)" 1992, Heavy Metal
-"Time" 1994, Heavy Metal
-"The Bell Witch" 1994, Heavy Metal
-"Into the Unknown" 1996, Heavy Metal
-"9" 1999, Heavy Metal
+
+
+## Дискография
+
+### "Melissa" 1983, Heavy Metal
+
+1. Evil
+2. Curse Of The Pharaohs
+3. Into The Coven
+4. At The Sound Of The Demon Bell
+5. Black Funeral
+6. Satan's Fall
+7. Melissa
+
+(P)&(C) 1983 ROADRUNNER Records
+
+### "Don't Break the Oath" 1984, Heavy Metal
+
+1. A Dangerous Meeting
+2. Nightmare
+3. Desecration Of Souls
+4. Night Of The Unborn
+5. The Oath
+6. Gypsy
+7. Welcome, Princess Of Hell
+8. Come To The Sabbath
+
+(P)&(C) 1984 ROADRUNNER Records
+
+### "Into the Beginning" 1987, Heavy Metal
+
+1. Doomed By The Living Dead
+2. A Corpse Without Soul
+3. Nuns Have No Fun
+4. Devil Eyes
+5. Curse Of The Pharaohs
+6. Evil
+7. Satan's Fall
+8. Black Masses
+
+(P)&(C) 1987 ROADRUNNER Records
+
+### "Return of the Vampire" 1992, Heavy Metal
+
+1. Burning The Cross
+2. Curse Of The Pharaos
+3. Return Of The Vampire
+4. On A Night Of Full Moon
+5. A Corpse Without Soul
+6. Death Kiss
+7. Leave My Soul Alone
+8. M.D.A.
+9. You Asked For It
+
+(p)&(c) 1992
+
+### "Dangerous Meeting (Part I)" 1992, Heavy Metal
+
+1.  Doomed By The Living Dead
+2.  A Corpse Without Soul
+3.  Evil
+4.  Curse Of The Pharaohs
+5.  Into The Coven
+6.  Satan's Fall
+7.  A Dangerous Meeting
+8.  Gypsy
+9.  Come To The Sabbath
+
+(P)&c 1992 ROADRUNNER Records
+
+### "Time" 1994, Heavy Metal
+
+1. Nightmare Be Thy Name +
+2. Angel Of Light
+3. Witches' Dance
+4. The Mad Arab *
+5. My Demon
+6. Time
+7. The Preacher *
+8. Lady In Black
+9. Mirror +
+10.The Afterlife *
+[11].Castillo Del Mortes *
+
+All Songs Written By King Diamond.
+Except Of * By Shermann - Diamond,
++ By Denner - Diamond.
+Produced By King Diamond & Tim Kimsey.
+Engineered By Tim Kimsey.
+Recorded & Mixed At Dallas Sound Lab 
+May-April 1994.
+
+King Diamond - Vocals
+Hank Shermann - Guitars
+Michael Denner - Guitars
+Sharlee D'Angelo - Bass
+Snowy Shaw - Drums
+
+(P)&(C) 1994 METAL BLADE Records
+
+### "The Bell Witch" 1994, Heavy Metal
+
+1. The Bell Witch *
+2. Is That You, Melissa
+3. Curse Of The Pharaohs *
+4. Egypt
+5. Come To The Sabbath
+6. Black Funeral
+
+All Songs Written By King Diamond.
+Except Of * By Shermann - Diamond.
+Tracks 1-2 Produced By King Diamond,
+Hank Shermann & Tim Kimsey.
+Tracks 3-6 Produced By King Diamond
+& Tim Kimsey.
+Recorded Live In L.A., CA, 1993.
+
+King Diamond - Vocals
+Hank Shermann - Guitars
+Michael Denner - Guitars
+Sharlee D'Angelo - Bass
+Snowy Shaw - Drums
+
+(P)&(C) 1994 METAL BLADE Records
+
+### "Into the Unknown" 1996, Heavy Metal
+
+1.  Lucifer
+2.  The Uninvited Guest
+3.  The Ghost Of Change
+4.  Listen To The Bell
+5.  Fifteen Men (And A Bottle Of Rum)
+6.  Into The Unknown
+7.  Under The Spell
+8.  Deadtime
+9.  Holy Water
+10.Kutulu (The Mad Arab Part II)
+
+All Songs Written By MERCYFUL FATE.
+Produced By King Diamond & Tim Kimsey.
+Engineered By Tim Kimsey.
+Recorded & Mixed At Dallas Sound Lab.
+
+King Diamond - Vocals
+Hank Shermann - Guitars
+Michael Denner - Guitars
+Sharlee D'Angelo - Bass
+Bjarne T.Holm - Drums
+
+(P)&(C) 1996 METAL BLADE Records
+
+### "9" 1999, Heavy Metal
+
+
+
 
 ## Отношения с другими группами
 

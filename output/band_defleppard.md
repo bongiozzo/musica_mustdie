@@ -1,19 +1,290 @@
 # Def Leppard
 
-Дискография
-"On Through the Night" 1980, Heavy Metal
-"High 'N' Dry" 1981, Hard Rock
-"Pyromania" 1983, Hard Rock
-"Hysteria" 1987, Hard Rock
-"Adrenalize" 1992, Hard Rock
-"Retro Active" 1993, Hard Rock
-"Vault: Def Leppard's Greatest Hits (compilation)" 1995, Hard Rock
-"Slang" 1996, Metal
-"Euphoria" 1999, Metal
-"X" 2002, Metal
-"Yeah!" 2006, Hard Rock
-"Songs from the Sparkle Lounge " 2008, Hard Rock
-"Def Leppard" 2015, Hard Rock
+The LEGEND of the New Wave of British Heavy Metal
+
+## Дискография
+
+### "On Through the Night" 1980, Heavy Metal
+
+1.  Rock Brigade
+2.  Hello America
+3.  Sorrow Is a Woman
+4.  It Could Be You
+5.  Satellite
+6.  When the Walls Came Tumbling Down
+7.  Wasted
+8.  Rocks Off 
+9.  It Don't Matter
+10.  Answer to the Master
+11.  Overture
+
+Steve Clark - Guitar
+Pete Willis - Guitar
+Rick Savage - Bass
+Rick Allen - Drums
+Joe Elliott - Throat
+
+(P)c 1980
+
+### "High 'N' Dry" 1981, Hard Rock
+
+1. LET IT GO
+2. ANOTHER HIT AND RUN
+3. HIGH 'N' DRY (SATURDAY NIGHT)
+4. BRINGIN' ON THE HEARTBREAK
+5. SWITCH 625
+6. YOU GOT ME RUNNIN'
+7. LADY STRANGE
+8. ON THROUGH THE NIGHT
+9. MIRROR, MIRROR (LOOK INTO MY EYES)
+10. NO NO NO
+11. BRINGIN' ON THE HEARTBREAK (REMIX)
+12. ME & MY WINE (REMIX)
+ 
+BAND:
+RICK ALLEN-DRUMS/VOCAL
+PETE WILLIS-LEAD GUITAR/VOCAL
+JOE ELLIOT-LEAD VOCAL
+STEVE CLARK-LEAD GUITAR/VOCAL
+RICK SAVAGE-BASS GUITAR/VOCAL
+RICK ALLEN PLAY LUDWIG DRUMS
+PETE WILLIS, RICK SAVAGE PLAY HAMER GUITARS
+ 
+Produced by Robert John 'Mutt' Lange
+Engineered by Mike Shipley
+Remixes by Robert John 'Mutt' Lange
+February 1984
+Assistant at Battery Studios, London
+Management: Q Prime Inc.
+Cover by Hipnosis
+ 
+Thanks to: Our Crew-
+Robert Alien--Tour Manager
+Phay MacMahoh--Lights
+Steve Cox--Sound
+Mike Rogers--Guitars and backline
+Russell Major--Drums
+Malvin Mortimer--Guitars
+Joanie Turnbull--Wardrobe
+Nick Cua--Tour accountant
+And most of all You for your patience
+Special thanks to Phil Collen
+ 
+Def Leppard Official Fan Club
+P.O.Box 970
+Old Chelsea station
+New York. NY 10113
+(Fans outside North America, please send
+international reply coupon.)
+
+### "Pyromania" 1983, Hard Rock
+
+1.  Rock Rock ('Till You Drop)
+2.  Photograph
+3.  Stagefright
+4.  Too Late for Love
+5.  Die Hard the Hunter
+6.  Foolin'
+7.  Rock of Ages
+8.  Comin' Under Fire
+9.  Action! Not Words
+10.  Billy's Got a Gun
+
+Steve Clark - Guitar
+Phil Collen - Guitar
+Rick Savage - Bass
+Rick Allen - Drums
+Joe Elliott - Throat
+
+(P)c 1983
+
+### "Hysteria" 1987, Hard Rock
+
+1. Women
+2. Rocket
+3. Animal
+4. Love Bites
+5. Pour Some Sugar on Me
+6. Armageddon It
+7. Gods of War
+8. Don't Shoot Shotdun
+9. Run Riot
+10. Hysteria
+11. Excitable
+12. Love and Affection
+ 
+Joe Elliot - Lead Vocals
+Steve Clark - Guitars
+Phil Collen - Guitars
+Rick Savage - Bass
+Rick Allen - Drums
+ 
+Released: 3 August 1987 (Bludgeon Riffola/Phonogram HYSLP1/830 675-1)
+Produced by: Robert John "Mutt" Lange
+
+### "Adrenalize" 1992, Hard Rock
+
+1. Let's Get Rocked
+2. Heaven Is
+3. Make Love Like a Man
+4. Tonight
+5. White Lightning
+6. Stand Up (Kick Love Into Motion)
+7. Personal Property
+8. have You Ever Needed Someone So Bad
+9. I Wanna Touch U
+10. Tear It Down
+ 
+Joe Elliot - Lead Vocals
+Phil Collen - Guitars/Vocals
+Rick Savage - Bass/Vocals
+Rick Allen - Drums
+ 
+Released: 30 March 1992 (Bludgeon Riffola/Phonogram)
+Produced by: Mike Shipley & Def Leppard
+
+### "Retro Active" 1993, Hard Rock
+
+1. Desert Song
+2. Fractured Love
+3. Action
+4. Two Steps Behind
+5. She's Too Touch
+6. Miss You in a Heartbeat
+7. Only After Dark
+8. Ride into the Sun
+9. From the Inside
+10. Ring of Fire
+11. I Wanna Be Your Hero
+ 
+Joe Elliot - Lead Vocals
+Vivian Campbell - Guitars/Vocals
+Phil Collen - Guitars/Vocals
+Rick Savage - Bass/Vocals
+Rick Allen - Drums/Vocals
+ 
+Released: August 1993 (Bludgeon Riffola/Phonogram)
+Produced by: Def Leppard
+
+### "Vault: Def Leppard's Greatest Hits (compilation)" 1995, Hard Rock
+
+
+
+### "Slang" 1996, Metal
+
+1.  Truth ?
+2.  Turn To Dust
+3.  Slang
+4.  All I Want Is Everything
+5.  Work It Out
+6.  Breathe A Sigh
+7.  Deliver Me
+8.  Gift Of Flesh
+9.  Blood Runs Red
+10.  Where Does Love When It Dies
+11.  Pearl Of Euphoria
+
+Phil Collen - Guitars, Vocals
+Rick Savage - Bass
+Vivian Campbell - Guitars, Vocals
+Rick Allen - Drums
+Joe Elliott - Lead Vocals
+
+(P)c 1996
+
+### "Euphoria" 1999, Metal
+
+1. Demolition Man
+2. Promises
+3. Back in Your Face
+4. Goodbye
+5. All Night
+6. Paper Sun
+7. It's Only Love
+8. 21st Century Sha la la la Girl 
+9. To Be Alive
+10. Guilty
+11. Day After Day
+12. Kings of Oblivion
+ 
+ 
+Joe Elliot - Lead Vocals
+Phil Collen - Guitar/Vocals
+Vivian Campbell - Guitar/Vocals
+Rick Savage - Bass/Vocals
+Rick Allen - Drums/Vocals
+ 
+Released: April 1999 (Bludgeon Riffola/Phonogram)
+Produced by: Pete Woodroffe & Def Leppard
+
+### "X" 2002, Metal
+
+              1. NOW 
+              2. UNBELIEVABLE 
+              3. YOU'RE SO BEAUTIFUL 
+              4. EVERYDAY 
+              5. LONG, LONG WAY TO GO 
+              6. FOUR LETTER WORD 
+              7. TORN TO SHREDS 
+              8. LOVE DON'T LIE 
+              9. GRAVITY 
+              10. CRY 
+              11. GIRL LIKE YOU 
+              12. LET ME BE THE ONE 
+              13. SCAR 
+
+
+              Produced by: Pete Woodroffe 
+
+
+
+### "Yeah!" 2006, Hard Rock
+
+
+
+### "Songs from the Sparkle Lounge " 2008, Hard Rock
+
+1. Go 
+2. Nine Lives   
+3. C'mon C'mon     
+4. Love   
+5. Tomorrow 
+6. Cruise Control   
+7. Hallucinate
+8. Only the Good Die Young  
+9. Bad Actress   
+10. Come Undone   
+11. Give It Away 
+
+
+Joe Elliott - lead vocals 
+Phil Collen - guitars, backing vocals 
+Vivian Campbell - guitars, backing vocals 
+Rick Savage - bass, backing vocals 
+Rick Allen - drums, percussion, backing vocals 
+
+Additional musicians:
+Tim McGraw - vocals on "Nine Lives"
+
+
+### "Def Leppard" 2015, Hard Rock
+
+1. Let's Go  05:01   
+2. Dangerous  03:23    
+3. Man Enough  03:54    
+4. We Belong  05:06  
+5. Invincible  03:46    
+6. Sea of Love  04:04    
+7. Energized  03:23   
+8. All Time High  04:19   
+9. Battle of My Own  02:42    
+10. Broke 'N' Brokenhearted  03:17
+11. Forever Young  02:21    
+12. Last Dance  03:09    
+13. Wings of an Angel  04:23    
+14. Blind Faith  05:33  
+
+
 
 ## Отношения с другими группами
 

@@ -1,24 +1,130 @@
 # Riot
 
-Дискография
-"Rock City" 1977, Hard Rock
-"Narita" 1979, Hard Rock
-"Fire Down Under" 1981, Hard Rock
-"Restless Breed" 1982, Hard Rock
-"Born in America" 1984, Hard Rock
-"Thundersteel" 1988, Speed Metal
-"The Priviledge of Power" 1990, Hard Rock
-"Riot Live" 1993, Hard Rock
-"Night Breaker" 1994, Hard Rock
-"The Brethren of the Long House" 1996, Hard Rock
-"Inishmore" 1998, Hard Rock
-"Shine On" 1999, Hard Rock
-"Live in Japan" 1999, Hard Rock
-"Sons of Society" 1999, Hard Rock
-"Through the Storm" 2002, Hard Rock
-"Army Of One" 2006, Heavy Metal
-"Immortal Soul" 2011, Heavy Metal
-"Unleash The Fire" 2014, Heavy Metal
+
+
+## Дискография
+
+### "Rock City" 1977, Hard Rock
+
+
+
+### "Narita" 1979, Hard Rock
+
+
+
+### "Fire Down Under" 1981, Hard Rock
+
+
+
+### "Restless Breed" 1982, Hard Rock
+
+
+
+### "Born in America" 1984, Hard Rock
+
+
+
+### "Thundersteel" 1988, Speed Metal
+
+
+
+### "The Priviledge of Power" 1990, Hard Rock
+
+
+
+### "Riot Live" 1993, Hard Rock
+
+
+
+### "Night Breaker" 1994, Hard Rock
+
+
+
+### "The Brethren of the Long House" 1996, Hard Rock
+
+
+
+### "Inishmore" 1998, Hard Rock
+
+
+
+### "Shine On" 1999, Hard Rock
+
+
+
+### "Live in Japan" 1999, Hard Rock
+
+
+
+### "Sons of Society" 1999, Hard Rock
+
+
+
+### "Through the Storm" 2002, Hard Rock
+
+Turn The Tables (5:21) 
+Lost Inside This World (4:43) 
+Chains Revolving (4:42) 
+Through The Storm (6:13) 
+Let It Show (4:37) 
+Burn The Sun (4:26) 
+To My Head (5:58) 
+Essential Enemies (3:48) 
+Only You Can Rock Me (3:56) 
+Isle Of Shadows (4:07) 
+Here Comes The Sun (3:20)
+
+
+
+Mike DiMeo - lead vocals
+Mark Reale - electric guitars, acoustic guitars, keyboards
+Mike Flyntz - electric guitars
+Pete Perez - bass guitar
+Bobby Rondinelli - drums
+
+Additional musicians:
+Tony Harnell - backing vocals
+Yoko Kayumi - violins, varied speed violin, keyboards, recorder
+Josh Pincus - keyboards (9)
+
+
+### "Army Of One" 2006, Heavy Metal
+
+
+
+### "Immortal Soul" 2011, Heavy Metal
+
+01. Riot
+02. Still Your Man
+03. Crawling
+04. Wings Are For Angels
+05. Fall Before Me
+06. Sins Of The Father
+07. Majestica
+08. Immortal Soul
+09. Insanity
+10. Whiskey Man
+11. Believe
+12. Echoes
+
+### "Unleash The Fire" 2014, Heavy Metal
+
+01. Ride Hard Live Free
+02. Metal Warrior
+03. Fall From The Sky
+04. Bring The Hammer Down
+05. Unleash The Fire
+06. Land Of The Rising Sun
+07. Kill To Survive
+08. Return Of The Outlaw
+09. Immortal
+10. Take Me Back
+11. Fight Fight Fight
+12. Until We Meet Again
+
+Бонус-трек:
+13. Thundersteel (Live)
+
 
 ## Отношения с другими группами
 

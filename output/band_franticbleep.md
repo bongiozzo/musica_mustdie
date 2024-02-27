@@ -1,7 +1,50 @@
 # Frantic Bleep
 
-Дискография
-"The Sense Apparatus" 2005, Alternative
+dark avantgarde progressive metal from Norway (members of Madder Mortem)
+
+## Дискография
+
+### "The Sense Apparatus" 2005, Alternative
+
+1 A Survey 
+2 The Expulsion 
+3 Sins of Omission 
+4 But a Memory 
+5 Mausolos 
+6 Curtainraiser 
+7 Mandaughter 
+8 Nebolous Termini 
+9 Cone
+
+
+Patrick Scantlebury - Guitars, Synth
+Eywin Sundstrom - Guitars
+Sten Svendheim - Drums
+Paul Mozart Bjorke - Vocals, Bass
+
+Lead vocals on "Sins Of Omission" - Daniel Solheim. Backing Vocals: Agnete M. Kirkevaag, Kjetil Fosseid, Odd E. Ebbesen, Per Oyvind Bjerknes
+
+Released worldwide on The End Records February 8th, 2005, except in Europe released on Elitist records February 14th, 2005.
+
+The Sense Apparatus was recorded between 2003 and 2004 at the following locations:
+Drums recorded at huset, guitars recorded at Breidablikk, vocals recorded at Engelaug & Knapper, bass, overdubs & additional vocals recorded at Tora Bora Studios
+
+Mixed at Tora Bora Studios September 2004
+Mastered by Tom Kvalsvoll at Strype Audio October 12th 2004
+
+Mixed, produced & enginered by Patrick Scantlebury.
+Vocals produced by Agnete M. Kirkevaag & Odd Eivind Ebbesen.
+Agnete Kirkevaag appears cortesy of Century Media.
+
+All lyrics by Paul Mozart Bjorke.
+
+All music by Scantlebury, Except "Curtainraiser" and "Mandaughter" by Scantlebury/Sundstrom.
+
+Cover art created by Christian Ruud
+
+All songs copyright 2002-2004
+Frantic Music.
+
 
 ## Отношения с другими группами
 

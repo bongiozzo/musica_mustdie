@@ -1,18 +1,192 @@
 # Skylark
 
-Дискография
-"The Horizon & the Storm" 1995, Power Metal
-"Waiting for the Princess..." 1996, Power Metal
-"Dragon's Secrets" 1997, Power Metal
-"After The Storm" 1998, Power Metal
-"Divine Gates part I: Gate Of Hell" 1999, Power Metal
-"Belzebu" 1999, Power Metal
-"Divine Gates Part II: Gate of Heaven" 2000, Power Metal
-"The Princess' Day" 2001, Power Metal
-"Wings" 2004, Power Metal
-"In The Heart Of The Princess (compilation)" 2005, Power Metal
-"Fairytales" 2005, Power Metal
-"Divine Gates Part III: The Last Gate" 2007, Power Metal
+symphonic power metal from Italy
+
+## Дискография
+
+### "The Horizon & the Storm" 1995, Power Metal
+
+The horizon (piano intro)
+Fear of the moon
+Little girl
+Skylark / Crystal lake
+A star in the universe
+Escape from the dark
+The storm 
+
+### "Waiting for the Princess..." 1996, Power Metal
+
+Tribute to W. A. Mozart:
+Eine kleine nachtmusik K525 - Allegro
+Skylark (edit version)
+Was called empire
+Albatros on sea / Princess of the Snow 
+
+
+### "Dragon's Secrets" 1997, Power Metal
+
+The temple
+Creature of the devil
+The answers
+Skylark
+Waiting for the Princess
+Light
+Princess of the Snow
+Dragon's secrets
+
+### "After The Storm" 1998, Power Metal
+
+The Horizon (piano intro)
+Fear of the moon
+Little girl
+Skylark / Crystal lake
+A star in the universe
+Escape from the dark
+The storm
+Tribute to W. A. Mozart : Eine kleine Nachtmusik K525 - Allegro
+Skylark (edit version)
+Was called Empire
+Albatros on sea
+
+
+### "Divine Gates part I: Gate Of Hell" 1999, Power Metal
+
+Intro
+Welcome
+The Triumph
+Belzebu
+The Last Questions
+Earthquake
+I Can't Find Love Tonight
+Satan Arise
+Why did you kill the Princess?
+Lift for the Sky
+Dance of Stars
+
+
+Personaggi e interpreti 
+The divine speaker: Giovanni De Giorgi 
+White Warrior: Fabio Dozzo 
+Guardian angel: Folco Orlandini 
+Lady of the Light: Monica Golfetto 
+Princess of the Snow: Marina Maggioni 
+Belzebъ: Belzebъ 
+Satan: Satan 
+The divine spirit: Rob Tyrant 
+The unknown spirit: Eddy Antonini 
+
+
+
+### "Belzebu" 1999, Power Metal
+
+Belzebu (edit version)
+Among the clouds
+A star in the universe ('99 version)
+Twilight
+
+### "Divine Gates Part II: Gate of Heaven" 2000, Power Metal
+
+Among The Clouds
+Who is God?
+Lady of The Sky
+Monday 13 October
+Insanity is The Truth
+The Guardian Angel
+The Heaven Church
+Last Christmas In Hell
+Outro
+A Star In The Universe('99 Version)
+
+
+Personaggi e interpreti 
+The Divine Speaker: Giovanni De Giorgi 
+White Warrior: Fabio Dozzo 
+Guardian Angel: Folco Orlandini 
+Lady of the Light: Monica Golfetto 
+Princess of the Snow: Marina Maggioni 
+The Divine Spirit: Rob Tyrant 
+The Unknown Spirit: Eddy Antonini 
+
+
+
+### "The Princess' Day" 2001, Power Metal
+
+1. The Princess' Day
+2. I will cry tonight
+3. Journey through the Fire
+4. Another Life
+5. Rufus (Intro)
+6. Rufus (Re-recorded version of "Rufus" from Eddy's solo album)
+7. Symbol of Freedom (Rufus II)
+8. The Tragedy
+9. White Warrior
+10. Princess of The Snow (Orchestral Ver.) - bonus track 
+
+
+Fabio Dozzo - Lead & Backing Vocals
+Fabrizio "Pota" Romani - Guitar
+Eddy Antonini - Piano, Keys, Harpsichord & Backing Vocals
+Roberto "Brodo" Potenti - 6 Strings Bass Guitar
+Federico Ria - Drums & Percussion
+
+
+Guitar on track 1,8,9: Vic Mazzoni
+Lead vocals on track 6: Folco Orlandini
+Speaker on track 8: Giovanni De Giorgi 
+
+Additional lead vocals on track 6 by Eddy 
+
+All songs written by Eddy Antonini 
+
+
+
+### "Wings" 2004, Power Metal
+
+01. Rainbow in the Dark
+02. Summer of 2001
+03. Another Reason to Believe
+04. Belzebu 2
+05. Faded Fantasy
+06. Last Ride
+07. A Stupid Song
+08. When Love and Hate Collide
+
+### "In The Heart Of The Princess (compilation)" 2005, Power Metal
+
+
+
+### "Fairytales" 2005, Power Metal
+
+1. Music   
+2. First Night   
+3. Mt. Fuji 
+4. A Rose in Her Hand   
+5. Lions are the World   
+6. I'm the Evil   
+7. Moonlight Shadow   
+8. Little Red Riding Hood   
+9. Love
+
+### "Divine Gates Part III: The Last Gate" 2007, Power Metal
+
+1. Intro   
+2. The Scream   
+3. Soul Of The Warrior   
+4. Dying Inside   
+5. Hurricane   
+6. Believe In Love   
+7. All Is Wrong   
+8. Time   
+9. The Heaven Church   
+10. A Story Not To Tell   
+11. Mt. Fuji (version 2006) 
+
+
+Kiara - Lead Vocals
+Fabrizio ``Pota`` Romani - Guitars 
+Roberto ``Brodo`` Potenti - Bass 
+Eddy Antonini - Keyboards, Piano, Harpsichord
+
 
 ## Отношения с другими группами
 

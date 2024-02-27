@@ -1,9 +1,70 @@
 # Nocturnus
 
-Дискография
-"The Key" 1990, Death Metal
-"Thresholds" 1992, Death Metal
-"Ethereal Tomb" 2000, Death Metal
+Original Death Metal
+
+## Дискография
+
+### "The Key" 1990, Death Metal
+
+1. Lake Of Fire
+2. Standing In Blood
+3. Visions From Beyond The Grave
+4. Neolithic
+5. BC / AD
+6. Andromeda Stain
+7. Droid Sector
+8. Destroying The Manger
+9. Empire Of Sands
+
+ Mike Davis - Guitar
+ Sean McNenny - Guitar
+ Jeff Estes - Bass
+ Louis Panzer - Keyboard
+ Mike Browning - Vocals & Drums
+
+Back Vocals By Kam Lee (MASSACRE).
+Produced By Tom Morris & NOCTURNUS.
+Engineered By Tom Morris.
+Recorded At Morrisound Studio.
+
+(p)&(c) 1990 EARACHE Records
+
+### "Thresholds" 1992, Death Metal
+
+1. Climate Controller
+2. Tribal Vodoun
+3. Nocturne In Bm
+4. Arctic Crypt
+5. Aquatica
+6. Subterranean Infiltrator
+7. Alter Reality
+8. Gridzone
+
+ Mike Davis - Guitar
+ Louis Panzer - Keyboard
+ Mike Browning - Drums
+ Dan Inzo - Vocals
+ Sean McNenny - Guitar
++ Chris Anderson - Bass
+
+Produced By Tom Morris & NOCTURNUS.
+Recorded At Morrisound Recording,Tampa,Florida,
+December 1991.
+
+(p)&(c) 1992 EARACHE/RELATIVITY Records
+
+### "Ethereal Tomb" 2000, Death Metal
+
+Orbital Decay 
+Apostle of Evil 
+Edge of Darkness 
+The Killing 
+Search for the Trident 
+Paranormal States 
+The Science of Horror 
+Outland 
+
+
 
 ## Отношения с другими группами
 

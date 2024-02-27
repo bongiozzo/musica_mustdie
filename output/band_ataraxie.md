@@ -1,8 +1,25 @@
 # Ataraxie
 
-Дискография
-"Slow Transcending Agony" 2005, Doom
-"Anhedonie" 2008, Doom
+
+
+## Дискография
+
+### "Slow Transcending Agony" 2005, Doom
+
+1. Step into the Gloom 06:14  
+2. Funeral Hymn 10:06
+3. L'Ataraxie 11:44
+4. Slow Transcending Agony 11:43
+5. Another Day of Despondency 11:15 
+
+### "Anhedonie" 2008, Doom
+
+1. Origin 00:33  
+2. Silence of Death 17:10
+3. Walking Through the Land of Falsity 13:48 
+4. Anhйdonie 18:33 
+5. Avide de Sens 24:00 
+
 
 ## Отношения с другими группами
 

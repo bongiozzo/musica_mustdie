@@ -1,7 +1,26 @@
 # Kaliban
 
-Дискография
-"The Tempest Of Thoughts" 2002, Melodic Death Metal
+
+
+## Дискография
+
+### "The Tempest Of Thoughts" 2002, Melodic Death Metal
+
+Orchard 
+Carnal Cage 
+The Angel 
+Forever in Bloom 
+The Crimson Ark 
+Call of Siren 
+My Songs Silent 
+Time to Burn
+
+
+Toni Kettunen - guitar
+Henri Peltola - guitar, voc
+Mertsi Helppi - drums
+Olli Simola - bass, voc
+
 
 ## Отношения с другими группами
 

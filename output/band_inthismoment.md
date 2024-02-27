@@ -1,11 +1,39 @@
 # In This Moment
 
-Дискография
-"The Dream" 2008, Gothic
-"A Star-Crossed Wasteland" 2010, Metalcore
-"Blood (single)" 2012, Metalcore
-"Blood" 2012, Metalcore
-"Sick Like Me (Single)" 2014, Gothic
+
+
+## Дискография
+
+### "The Dream" 2008, Gothic
+
+The Rabbit Hole 
+Forever 
+All For You 
+Lost At Sea 
+Mechanical Love 
+Her Kiss 
+Into The Light 
+You Always Believed 
+The Great Divide 
+Violet Skies 
+The Dream 
+
+### "A Star-Crossed Wasteland" 2010, Metalcore
+
+
+
+### "Blood (single)" 2012, Metalcore
+
+
+
+### "Blood" 2012, Metalcore
+
+
+
+### "Sick Like Me (Single)" 2014, Gothic
+
+1. Sick Like Me 
+
 
 ## Отношения с другими группами
 

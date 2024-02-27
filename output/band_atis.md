@@ -1,7 +1,20 @@
 # Atis
 
-Дискография
-"Paranoia" 2009, Gothic
+
+
+## Дискография
+
+### "Paranoia" 2009, Gothic
+
+01. Introductio
+02. Liberatio Mentis
+03. Oratio Virginis
+04. Invidia
+05. Mortuus Ferflatus I
+06. Mortuus Ferftalus II
+07. Fortunae Verbera
+08. Conclusio
+
 
 ## Отношения с другими группами
 

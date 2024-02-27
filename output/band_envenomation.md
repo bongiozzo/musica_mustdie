@@ -1,7 +1,16 @@
 # Envenomation
 
-Дискография
-"Pyogenic Harvest [EP]" 2010, Deathcore
+
+
+## Дискография
+
+### "Pyogenic Harvest [EP]" 2010, Deathcore
+
+1. Pyogenic Harvest	 
+2. Shockwave Geotripsy	 
+3. Human Xenogenesis	 
+4. Catatonic Transcendence
+
 
 ## Отношения с другими группами
 

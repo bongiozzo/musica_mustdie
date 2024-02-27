@@ -1,12 +1,141 @@
 # Dvar
 
-Дискография
-"Piirrah" 2002, Darkwave
-"Roah" 2003, Darkwave
-"Taai Liira" 2004, Darkwave
-"Rakhilim" 2004, Darkwave
-"Hor Hor" 2005, Darkwave
-"Oramah Maalhur" 2005, Darkwave
+dark wave
+
+## Дискография
+
+### "Piirrah" 2002, Darkwave
+
+Al Hilaji
+Lina Tamiira
+Taai Liira
+Vo Rah Arrah Iil
+Hissen Rai
+Iih Rah
+Abisser
+Itiir
+Vaii Han
+Schraii Ariil Iaat
+
+### "Roah" 2003, Darkwave
+
+01. ha t`annah 3.50
+02. siferah 4.05
+03. ai-lu 4.04
+04. iillah 1.02
+05. merra tah 2.40
+06. kiam kiam 2.22
+07. iina tamiira (v.2) 5.10
+08. raah dhar 3.57
+09. hora 2.04
+10. keruah 3.18
+11. haya haya 3.15
+12. ihirrah 4.05
+13. mathaar d`ham 3.16
+
+### "Taai Liira" 2004, Darkwave
+
+1. al hilaji
+2. iina tamiira
+3. taai lira
+4. vo rah arrah iill
+5. hissen raii
+6. iih rah
+7. abisser
+8. itiir
+9. vaii han
+10. schraii
+11. ud rah
+12. hissen raii v.2
+13. vaii han (mix)
+14. taai liira(dark mix)
+15. hissen raii v.211
+16. taai liira(light mix)
+
+### "Rakhilim" 2004, Darkwave
+
+01. Rakhilim (музыка: Dvar, текст: Dvar)
+2.41 
+02. Ieroh (музыка: Dvar, текст: Dvar) 4.14
+03. Ieroh 2 (музыка: Dvar, текст: Dvar) 0.52
+04. Yar Yar (музыка: Dvar, текст: Dvar) 2.09
+05. Ir Rahilim (музыка: Dvar, текст: Dvar) 1.07
+06. Leriil (музыка: Dvar, текст: Dvar) 2.38
+07. Naakhiil (музыка: Dvar, текст: Dvar) 2.38
+08. Ya Raii Ta Hirrih (музыка: Dvar, текст: Dvar)
+3.54
+09. Hannar (музыка: Dvar, текст: Dvar) 1.37
+10. Nadrah (музыка: Dvar, текст: Dvar) 1.58
+11. Schekhirail (музыка: Dvar, текст: Dvar) 1.27
+12. Yalaraa t'Kiin (музыка: Dvar, текст: Dvar)
+2.10
+13. Tavirim (музыка: Dvar, текст: Dvar) 2.35
+14. Amaas Takhi (музыка: Dvar, текст: Dvar) 2.32
+15. Kamharim (музыка: Dvar, текст: Dvar) 1.05
+16. Schraii (музыка: Dvar, текст: Dvar) 1.32
+17. Vo Rakhilim (музыка: Dvar, текст: Dvar) 1.05
+18. Arraheem (музыка: Dvar, текст: Dvar) 2.25
+19. Ieroh 3 (музыка: Dvar, текст: Dvar) 1.47
+20. Nehadaim (музыка: Dvar, текст: Dvar) 3.27
+
+### "Hor Hor" 2005, Darkwave
+
+01. maadi ya haadi (музыка: Dvar, текст: Dvar)
+2:09
+02. hishmaliin (музыка: Dvar, текст: Dvar)
+3:38
+03. tzamihavar (музыка: Dvar, текст: Dvar)
+2:15
+04. eraam (музыка: Dvar, текст: Dvar)
+1:17
+05. hor hor (музыка: Dvar, текст: Dvar)
+1:47
+06. yashaar (музыка: Dvar, текст: Dvar)
+3:31
+07. myadah (музыка: Dvar, текст: Dvar)
+1:58
+08. maad k'han (музыка: Dvar, текст: Dvar)
+3:25
+09. vaii daha (музыка: Dvar, текст: Dvar)
+1:32
+10. annoahim (музыка: Dvar, текст: Dvar)
+2:14
+11. lyarrah 2 (музыка: Dvar, текст: Dvar)
+1:18
+12. takhiir (музыка: Dvar, текст: Dvar)
+4:38
+13. hor hor (музыка: Dvar, текст: Dvar)
+1:53
+14. yashaar 2 (музыка: Dvar, текст: Dvar)
+1:16
+15. akhi raandah! (музыка: Dvar, текст: Dvar)
+2:25
+16. hiyari naai (музыка: Dvar, текст: Dvar)
+4:10
+17. t'ndara kitah (музыка: Dvar, текст: Dvar)
+2:17
+
+### "Oramah Maalhur" 2005, Darkwave
+
+01. noahaliroh
+02. akhtariil
+03. ta matii yadhan
+04. itlabshaar
+05. raamshar
+06. hinderashim
+07. ah menahaim
+08. hosermoah
+09. lyarrah
+10. seir koham
+11. mi raamshar
+12. nomenahaim 2
+13. iihotoeohain
+14. akhtariil 2
+15. nomenahaim
+16. laay iill
+17. raah dhar
+18. oramah maalhur
+
 
 ## Отношения с другими группами
 

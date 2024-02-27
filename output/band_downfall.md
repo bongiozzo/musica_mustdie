@@ -1,7 +1,37 @@
 # Downfall
 
-Дискография
-"My Last Prayer" 2002, Gothic
+
+
+## Дискография
+
+### "My Last Prayer" 2002, Gothic
+
+01. Hateshades 4:02
+02. Sweetest Wrath 3:32
+03. Hollow Mind 3:55
+04. Time To Pay 4:18
+05. My Last Prayer 3:43
+06. Torn Apart 4:10
+07. Soulsearching 4:00
+08. Revelation Black 4:09
+09. Dark Parade 3:51
+10. Withered 3:50
+
+
+Recorded and mixed at Watercastle by Arttu Sarvanne February 2002
+Mastered at Soundstation by Mikko Oinonen
+Cover artwork by Timo Tyynismaa
+
+
+
+Jani Peippo - vocals
+Timo Eskelinen - guitar
+Hannu Kumpula - guitar
+Kalle Tulonen - drums
+Dmitry Martynoff - Bass
+
+
+
 
 ## Отношения с другими группами
 

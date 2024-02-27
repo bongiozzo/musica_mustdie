@@ -1,8 +1,19 @@
 # Comatose Vigil
 
-Дискография
-"Not A Gleam Of Hope" 2005, Doom
-"Fuimus, non Sumus..." 2011, Doom
+funeral doom
+
+## Дискография
+
+### "Not A Gleam Of Hope" 2005, Doom
+
+
+
+### "Fuimus, non Sumus..." 2011, Doom
+
+1. Fuimus, Non Sumus…
+2. Autophobia
+3. The Day Heaven Wept
+
 
 ## Отношения с другими группами
 

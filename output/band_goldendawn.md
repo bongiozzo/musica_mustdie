@@ -1,10 +1,73 @@
 # Golden Dawn
 
-Дискография
-"The Art Of Dreaming" 1997, Black Metal
-"A Solemn Day" 2000, Black Metal
-"Masquerade" 2003, Black Metal
-"Return to Provenance" 2012, Black Metal
+
+
+## Дискография
+
+### "The Art Of Dreaming" 1997, Black Metal
+
+1.  Ideosynchronicity
+2.  The Art Of Dreaming
+3.  Nothing But The Wind
+4.  My Confession To War
+5.  Sub Specie Aeternitatis
+6.  The Majesty Of My Kingdom Afar
+7.  The Sorcery Of The Nagual Side
+8.  Per Aspera As Astra
+9.  Beyond The Mortal Shell
+
+Recorded and Mixed At Sing Sang Studios.
+Engineered and Mixed by Alex B. Rain.
+Produced by Martin Schirenc.
+All music and lyrics by Stefan Traunmuller.
+
+(P)(C) 1997 DARK MATTER Records // DMR 4025
+
+### "A Solemn Day" 2000, Black Metal
+
+1. As If All Light Had Passed Away	 
+2. Soulwinter	 
+3. Presence Of The Dark	 
+4. A Solemn Day	 
+5. Rising Sun/Sublimity Pt. 2	 
+6. Forever Free	 
+7. One And Everything	 
+8. Wandering Between The Worlds
+
+### "Masquerade" 2003, Black Metal
+
+01. Silent Inferno
+02. Doomsday Celebration
+03. Alive And Immortal?
+04. Where Dragons Reign
+05. Masquerade
+06. Enthralled By Unknown Dimensions
+07. Unborn Again
+08. A Memory`s Reflection
+09. Sic Transit Gloria Mundi
+10. Angel
+
+Stefan Traunmuller - Keyboards, Vocals, Additional
+Guitars
+Sebastian Reiter - Bass, Lead & Acoustic Guitar
+Karim Kienzle - Rhythm & Lead Guitar
+Moritz Neuner - Drums
+
+Recorded at Mirror Studios, Insbruck, Austria
+Produced by Stefan Traunmuller
+Artwork by Wilhelm Steiner
+
+### "Return to Provenance" 2012, Black Metal
+
+1. Nameless
+2. Return To Provenance
+3. Dark Illumination
+4. Dionysian Eucharist
+5. Denial
+6. Seduction
+7. Vision Of Entirety
+8. Self-destruction
+
 
 ## Отношения с другими группами
 

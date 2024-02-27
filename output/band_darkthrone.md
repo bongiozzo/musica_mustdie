@@ -1,27 +1,327 @@
 # Darkthrone
 
-Дискография
-"Soulside Journey" 1991, Death Metal
-"A Blaze In The Northern Sky" 1992, Black Metal
-"Under A Funeral Moon" 1993, Black Metal
-"Transilvanian Hunger" 1994, Black Metal
-"Panzerfaust" 1995, Black Metal
-"Total Death" 1996, Black Metal
-"Goatlord" 1996, Black Metal
-"The Roots Of Evilness" 1997, Black Metal
-"Darkthrone Holy Darkthrone (Tribute)" 1998, Metal
-"Ravishing Grimness" 1999, Black Metal
-"Plague Wielder" 2001, Black Metal
-"Preparing for War" 2001, Black Metal
-"Hate Them" 2003, Black Metal
-"Sardonic Wrath" 2004, Black Metal
-"The Cult Is Alive" 2006, Black Metal
-"F.O.A.D." 2007, Black Metal
-"NWOBHM (single)" 2007, Black Metal
-"Dark Thrones and Black Flags" 2008, Black Metal
-"Circle the Wagons " 2010, Black Metal
-"The Underground Resistance" 2013, Black Metal
-"Arctic Thunder" 2016, Black Metal
+Norwegian Cult Raw Black Metal
+
+## Дискография
+
+### "Soulside Journey" 1991, Death Metal
+
+1. Cromlech
+2. Sunrise Over Locus Mortis
+3. Soulside Journey
+4. Accumulation Of Generalization
+5. Neptune Towers
+6. Sempiternal Sepulchralith
+7. Grave With A View
+8. Iconoclasm Sweeps Cappadoua
+9. Nor The Silent Whispers
+10.The Watchtower
+
+ Ted Skjellum - Guitar & Vocals
+ Ivar Enger - Guitar
++ Dag Nielsen - Bass
+ Hank Amarillo - Drums
+
+(p)&(c) 1991 VILE MUSIC Records
+                        PEACEVILLE Records
+
+
+### "A Blaze In The Northern Sky" 1992, Black Metal
+
+1. Kathaarian Life Code
+2. In The Shadow Of The Horns
+3. Paragon Belial
+4. Where Cold Winds Blow
+5. A Blaze In The Northern Sky
+6. The Pagan Winter
+
+ Nocturno Culto - Lead Guitar,Voice
+ Zephyrous - Rhythm Guitar
+ Fenriz - Drums
++ Dag Nielsen - Session Bass Guitar
+
+Engineered By Erik Avnskog.
+Recorded In Creative Studios.
+
+(p)&(c) 1992 PEACEVILLE Records
+
+### "Under A Funeral Moon" 1993, Black Metal
+
+1. Natassia In Eternal Sleep
+2. Summer Of The Diabolical Holocaust
+3. The Dance Of Eternal Shadows
+4. Unholy Black Metal
+5. To Walk The Infernal Fields
+6. Under A Funeral Moon
+7. Inn I Dype Skogers Favn
+8. Crossing The Triangle Of Flames
+
+ Zephyrous  - Electic Lead Guitar
+ Nocturno Culto - Bass Guitar & Summuning
+ Fenriz  - Satan's Poet, Percussion
+
+All Songs By DARK THRONE
+Grimly Produced By DARK THRONE
+Engineered By Vidar
+Recorded In Creative Studios, June,
+The Year Of XXVII
+
+(c) 1993 VILE Music
+(p) 1993 PEACEVILLE
+
+### "Transilvanian Hunger" 1994, Black Metal
+
+1. Transilvanian Hunger
+2. Over Fjeld Og Gjennom Torner
+3. Skald Av Satans Sol
+4. Slottet Det Fjerne
+5. Graven Takeheimens Saler
+6. I En Hall Med Flesk Og Mjod
+7. As Flittermice As Satans Spys
+8. En As I Dype Skogen
+
+All Songs Written By DARK THRONE
+Recorded At November & December 1993
+
+(p)&(c) 1994 PEACEVILLE Records
+
+### "Panzerfaust" 1995, Black Metal
+
+1. En Vind Av Sorg
+2. Triumphant Gliam
+3. The Hords Of Nebulach
+4. Hans Siste Vinter
+5. Beholding The Throne Of My Might
+6. Quintessence *
+7. Sno Og Granskog
+
+All Songs Written By DARK THRONE, 
+Except * Written For DARK THRONE By Count Grieshnakh (BURZUM)
+Produced By DARK THRONE
+Recorded In Febr.- Apr. 1994 In Necrohell Studios
+This Album Is Dedicated To Satyr Of Satyricon
+
+(p)&(c) 1995 MOONFOG Productions
+
+### "Total Death" 1996, Black Metal
+
+1. Earth's Last Picture 
+2. Blackwinged 
+3. Gather For Attack On The Pearly Gates 
+4. Black Victory Of Death 
+5. Majestic Desolate Eye 
+6. Blasphemer 
+7. Ravnajiv 
+8. The Serpents Harvest
+
+Recorded & Mixed At Ancient Spectre Ruins,1995.
+Engineered by P.A.Roald
+Produced by Nocturno Culto
+Design by Nocturno Culto, Moonfog, and Union of lost souls
+
+(P)&(C) 1996 MOON FOG Production
+
+### "Goatlord" 1996, Black Metal
+
+1. Rex
+2. Puc Demoniac Blessing
+3. (The) Grimness Of Which Shepherds Mourn
+4. Sadomasochistic Rites
+5. As Desertshadows
+6. In His Lovely Kingdom
+7. Toward(s) The Thornfields
+8. (Birth Of Evil) Virgin Sin
+9. Green Cave Float
+
+Goatlord is a rehearsal tape recorded in '90 '91, vocals done in 94
+Recorded in darkest hell year '91.
+Designed Friday l3th by Nocturno Culto, Moonfog and Union of the lost souls.
+
+(P)c 1996 MOONFOG  PROD // FOG 013
+
+### "The Roots Of Evilness" 1997, Black Metal
+
+1.  Cromlech
+2.  Sunrise Ever Locuus Mortis
+3.  Soulside Journey
+4.  Accumulation Of Generalization
+5.  Sempiternal Past - Prescence View Sepulchrality
+6.  Iconoclasm Sweeps Cappadocia
+7.  Neptune Towards
+8.  Dismissal
+9.  Eon - Thulcandra
+10. Archipielago
+11. Kathaarian Life Code
+
+### "Darkthrone Holy Darkthrone (Tribute)" 1998, Metal
+
+1. Kathaarian Life Code (Satyricon)
+2. Natassja In Eternal Sleep (Enslaved)
+3. The Pagan Winter (Thorns)
+4. Cromlech (Emperor)
+5. Green Cave Float (Dodheimsgard)
+6. Transilvanian Hunger (Gehenna)
+7. Slottel I Det Fjerne (Gorgoroth)
+8. To Walk The Infernal Fields (Immortal)
+
+(c) 1998 Moonfog
+
+### "Ravishing Grimness" 1999, Black Metal
+
+Lifeless
+The Beast
+The Claws Of Time
+Across The Vacuum
+Ravishing Grimness
+To The Death
+
+All Music : Nocturno Culto
+except Track 2 : Fenriz
+
+All Lyrics : Fenriz
+Except Track 2 : Aldrahn R Fog
+
+
+### "Plague Wielder" 2001, Black Metal
+
+1. Weakling Avenger
+2. Raining Murder
+3. Sin Origin
+4. Command
+5. I, Voidhanger
+6. Wreak
+
+
+Moonfog Productions (FOG 028)
+Released: 3rd September 2001
+
+
+### "Preparing for War" 2001, Black Metal
+
+  1.   Transilvanian Hunger (Darkthrone) - 5:59 
+  2.   Snowfall (Darkthrone) - 9:04 
+  3.   Archipelago (Darkthrone) - 4:52 
+  4.   I en Hall Med Flesk Og Mjod (Darkthrone) - 5:04 
+  5.   The Pagan Winter (Darkthrone) - 6:34 
+  6.   Grave With a View (Darkthrone) - 3:27 
+  7.   con/Thulcandra (Darkthrone) - 4:51 
+  8.   Soria Moria (Darkthrone) - 3:42 
+  9.   Natassja in Eternal Sleep (Darkthrone) - 3:26 
+  10.   Cromlech (Darkthrone) - 4:08 
+  11.   in the Shadow of the Horns (Darkthrone) - 6:57 
+  12.   Neptune Towers (Darkthrone) - 3:27 
+  13.   Under a Funeral Moon (Darkthrone) - 4:57 
+  14.   Skald au Satans So (Darkthrone) - 4:18 
+  15.   Iconoclasm Sweeps Cappadoria (Darkthrone) - 4:01 
+
+### "Hate Them" 2003, Black Metal
+
+1. Rust
+2. Det Svartner Na
+3. Fucked Up And Ready To Die
+4. Ytterst I Livet
+5. Divided We Stand
+6. Striving For A Piece Of Lucifer
+7. In Honour Of Thy Name 
+
+
+### "Sardonic Wrath" 2004, Black Metal
+
+01. Information Wants To Be Syndicated (4:20)
+02. Sjakk Matt Jesu Krist (4:03) 
+03. Straightening Sharks (3:26) 
+04. Alle Gegen Alle (3:21) 
+05. Mann Tanker Sitt (3:04) 
+06. God Of Doubt (4:33) 
+07. Silent Majority (3:56)
+
+### "The Cult Is Alive" 2006, Black Metal
+
+1. The Cult Of Goliath 04:02  
+2. Too Old, Too Cold 03:04  
+3. Atomic Coming 04:51  
+4. Graveyard Slut 04:04  
+5. Underdogs And Overlords 04:02  
+6. Whisky Funeral 03:59  
+7. De Underjordiske 03:14  
+8. Tyster Pе Gud 03:09  
+9. Shut Up 04:46  
+10. Forebyggende Krig 03:41
+
+### "F.O.A.D." 2007, Black Metal
+
+1. These Shores Are Damned   
+2. Canadian Metal  
+3. The Church of Real Metal   
+4. The Banners of Old   
+5. Fuck Off and Die   
+6. Splitkein Fever   
+7. Raised on Rock   
+8. Pervertor of the 7 Gates   
+9. Wisdom of the Dead
+
+### "NWOBHM (single)" 2007, Black Metal
+
+1. Wisdom of the Dead 04:06 
+2. Canadian Metal 04:39 
+3. Hedninger Fra Helvete 05:12  
+4. Bad Attitude (Testors Cover) 01:47
+
+### "Dark Thrones and Black Flags" 2008, Black Metal
+
+1. The Winds They Called the Dungeon Shaker   
+2. Oath Minus   
+3. Hiking Metal Punks 
+4. Blacksmith of the North   
+5. Norway in September   
+6. Grizzly Trade   
+7. Hanging Out in Haiger   
+8. Dark Thrones and Black Flags   
+9. Launchpad to Nothingness   
+10. Witch Ghetto 
+
+
+The way this album is performed and composed is slightly different from the
+other Darkthrone releases as Nocturno Culto and Fenriz have shared all the duty
+from composition to recording with Fenriz composing guitar parts and Nocturno
+Culto singing on some songs, etc...
+
+### "Circle the Wagons " 2010, Black Metal
+
+1. Those Treasures Will Never Befall You 04:21 
+2. Running for Borders 04:04 
+3. I Am the Graves of the 80s 03:07
+4. Stylized Corpse 07:33 
+5. Circle the Wagons 02:46 
+6. Black Mountain Totem 05:36
+7. I Am the Working Class 05:08
+8. Eyes Burst At Dawn 03:49
+9. Brдnn Inte Slottet 04:37 
+
+### "The Underground Resistance" 2013, Black Metal
+
+1. Dead Early  04:49   
+2. Valkyrie  05:14   
+3. Lesser Men  04:55   
+4. The Ones You Left Behind  04:16   
+5. Come Warfare, the Entire Doom  08:38  
+6. Leave No Cross Unturned  13:49  
+
+Recorded in May 2010/March 2012/July 2012.
+Mastered at Enormous Door Mastering, Austin, TX.
+
+### "Arctic Thunder" 2016, Black Metal
+
+1. Tundra Leech  05:02  
+2. Burial Bliss  04:59 
+3. Boreal Fiends  05:50  
+4. Inbred Vermin  05:49  
+5. Arctic Thunder  04:41    
+6. Throw Me Through the Marshes  05:00   
+7. Deep Lake Tresspass  04:48    
+8. The Wyoming Distance  03:14  
+
+
 
 ## Отношения с другими группами
 

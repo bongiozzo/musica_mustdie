@@ -1,9 +1,21 @@
 # Rigor Mortis
 
-Дискография
-"Rigor Mortis" 1988, Thrash
-"Freaks (EP)" 1989, Thrash
-"Rigor Mortis VS. The Earth" 1991, Thrash
+Thrash Metal
+
+## Дискография
+
+### "Rigor Mortis" 1988, Thrash
+
+
+
+### "Freaks (EP)" 1989, Thrash
+
+
+
+### "Rigor Mortis VS. The Earth" 1991, Thrash
+
+
+
 
 ## Отношения с другими группами
 

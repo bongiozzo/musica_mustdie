@@ -1,7 +1,22 @@
 # Walpurgis Night
 
-Дискография
-"Under the Moonlight" 2011, Heavy Metal
+
+
+## Дискография
+
+### "Under the Moonlight" 2011, Heavy Metal
+
+1. Castle Ghoul
+2. Laser Smash
+3. The Assassin
+4. Nightrider
+5. Under the Moonlight
+6. Invaders with Chains
+7. Stab in the Back
+8. Caught in the Act
+9. Devil Sight
+10. The Temple of Anubis
+
 
 ## Отношения с другими группами
 

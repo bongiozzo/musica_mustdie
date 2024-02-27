@@ -1,6 +1,9 @@
 # Demonic Orgy
 
-Дискография
+chainsaw noisy grindcore from South Florida
+
+## Дискография
+
 
 ## Отношения с другими группами
 

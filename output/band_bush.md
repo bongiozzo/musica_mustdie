@@ -1,8 +1,39 @@
 # Bush
 
-Дискография
-"Sixteen Stone" 1995, Alternative
-"Razorblade Suitcase" 1996, Alternative
+
+
+## Дискография
+
+### "Sixteen Stone" 1995, Alternative
+
+1. Everything Zen
+2. Swim
+3. Bomb
+4. Little Things
+5. Come Down
+6. Body
+7. Machinehead
+8. Testosterone
+9. Monkey
+10.Glycerine
+
+(p)(c) 1995
+
+### "Razorblade Suitcase" 1996, Alternative
+
+1.  Personal Holloway
+2.  Greedy Fly
+3.  Swallowed
+4.  Insect Kin
+5.  Cold Contagious
+6.  A Tendency To Start Fires
+7.  Mouth
+8.  Straight No Chaser
+9.  History
+10.Synapse
+
+(P)(C) 1996
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,37 @@
 # Temple of the Absurd
 
-Дискография
-"Absurd" 1996, Death Metal
+Techno-Thrash-Death-Metal, Ex-Holy Moses
+
+## Дискография
+
+### "Absurd" 1996, Death Metal
+
+1.  Get The Power (3.47)
+2.  The Mirror (4.02)
+3.  Darker Than Hate (3.31)
+4.  Cross The Line (2.53)
+5.  Another State Of Mind (5.11)
+6.  Release (4.18)
+7.  Beside The Rain (4.29)
+8.  Encroach Your Brain (3.51)
+9.  Plain Of Existance (2.44)
+10.Face The Fear (4.21)
+11.Absurd (5.42)
+
+All songs written by TEMPLE OF THE
+ABSURD.
+Produced, recorded, engineered and
+mixed by Schrodey.
+Recorded at Stage One Studio, Buhne, Germany.
+
+Schrodey - Lead and Rhythm Guitars
+Phil - Rhythm Guitars
+Sabina - Lead and Backing Vocals
+Ozzy - Bass Guitars
+Mike - Drums
+
+(p)(c) 1996 TEMPLE OF THE ABSURD
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,28 @@
 # Thine Eyes Bleed
 
-Дискография
-"In the Wake of Separation" 2005, Melodic Death Metal
+
+
+## Дискография
+
+### "In the Wake of Separation" 2005, Melodic Death Metal
+
+1. Cold Victim 03:58  
+2. Without Warning 03:22  
+3. And Since Forgotten 03:46  
+4. Live To Die 04:38  
+5. Corpse You Up 04:16  
+6. Innocent Mind 03:05  
+7. Silver 03:39  
+8. Consqeuence Unknown 03:40  
+9. Regret Your Fear 05:55
+
+
+Justin Wolfe - Vocals
+Jeff Phillips - Guitar
+Johnny Araya - Bass
+Darryl Stephens - Drums
+Derek Ward - Guitar
+
 
 ## Отношения с другими группами
 

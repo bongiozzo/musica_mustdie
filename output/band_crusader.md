@@ -1,9 +1,45 @@
 # Crusader
 
-Дискография
-"This Mortal Flesh" 2000, Heavy Metal
-"Fools" 2004, Heavy Metal
-"Skinclad" 2007, Heavy Metal
+
+
+## Дискография
+
+### "This Mortal Flesh" 2000, Heavy Metal
+
+1. Call of the White Wolf
+2. Dragon's Tears
+3. Sleep of the Innocent
+4. Beast From the South
+5. The Ally
+6. Cancer of Cowardice
+7. A Tale for Druids
+8. The Knight Who Wouldn't Die
+
+### "Fools" 2004, Heavy Metal
+
+Flowers Of War 
+Wouldst Thou Me 
+I...Joan 
+Win Or Die 
+Carnival
+Angus
+The Snow 
+The 7th Crusade 
+King Of Kings
+
+### "Skinclad" 2007, Heavy Metal
+
+Casualty 
+The Catcher 
+A Pure Heart 
+Arigatou 
+My Father, My Friend 
+My Mother, My Meadow 
+Hey You 
+Leprechauns 
+The Confession - Part I 
+The Confession - Part II
+
 
 ## Отношения с другими группами
 

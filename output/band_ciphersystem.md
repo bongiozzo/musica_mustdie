@@ -1,8 +1,55 @@
 # Cipher System
 
-Дискография
-"Central Tunnel 8" 2004, Melodic Death Metal
-"Communicate the Storms" 2011, Melodic Death Metal
+
+
+## Дискография
+
+### "Central Tunnel 8" 2004, Melodic Death Metal
+
+1. In Perfection 04:35 
+2. 24 Hours Left 04:17  
+3. What If 03:45 
+4. State Unknown 03:51 
+5. Central Tunnel Eight 03:48
+6. Life Surrounds 04:19  
+7. C.S.I. 05:31  
+8. Sufferstream 03:38  
+9. Receive, Retrive & Escalate 04:12  
+10. Complete 04:08  
+11. Slow Chemical - Control H (Outro) 03:22 
+
+
+
+Magnus Dolander - Guitar
+Johan Eskilsson - Guitar
+Pontus Andersson - Drums 
+Peter Engstrom - Electronics
+Henric Carlsson - Bass 
+Daniel Scholdstrom - Vocals
+
+### "Communicate the Storms" 2011, Melodic Death Metal
+
+01. 7 Inch Cut 04:27 
+02. Forget To Forgive 04:41 
+03. Communicate The Storms 04:44 
+04. Gods Terminal 03:43 
+05. End My Path 03:50 
+06. Objection 04:54 
+07. The Stairway 05:29 
+08. A Lesson Learned 05:17 
+09. Project Life Collapse 03:57 
+10. The Failure Starts 05:33 
+11. The Universe On Hold (Bonus Track) 01:31
+
+Henric Carlsson - Bass 
+Emil Frisk - Drums 
+Johan Eskilsson - Guitars 
+Andreas Allenmark - Guitars 
+Peter Engstrцm - Keyboards 
+Carl Obbel - Vocals 
+
+
+
 
 ## Отношения с другими группами
 

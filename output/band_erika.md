@@ -1,11 +1,50 @@
 # Erika
 
-Дискография
-"In The Arms Of The Stranger" 1991, Rock
-"Lady Luck" 1993, Rock
-"Planet X" 1997, Rock
-"Ripe" 1998, Rock
-"Cold Winter Night" 2004, Rock
+pop-rock
+
+## Дискография
+
+### "In The Arms Of The Stranger" 1991, Rock
+
+
+
+### "Lady Luck" 1993, Rock
+
+
+
+### "Planet X" 1997, Rock
+
+
+
+### "Ripe" 1998, Rock
+
+
+
+### "Cold Winter Night" 2004, Rock
+
+1. Prelude
+2. Together Weґre Lost
+3. Line Of Fire
+4. Hurting So Bad
+5. Heavenly
+6. Cold Winter Night
+7. Living Like A Hurricane
+8. Love In Vain
+9. Emergency
+10. Last Call For Love
+11. Postlude
+12. Super Sonic City (bonus track, unreleased)
+13. Together We're Lost (bonus track, unreleased extended version)
+14. Together We're Lost (bonus track, unreleased dance version) 
+
+Erika (vocals)
+Benny Jansson (guitar)
+Bobby Ljunggren (guitar)
+Yngwie Malmsteen (guitar)
+Hakan Almqvist (keyboards)
+Johan Akerfeldt (drums) 
+Fredrik Lundfeldt (drums)
+
 
 ## Отношения с другими группами
 

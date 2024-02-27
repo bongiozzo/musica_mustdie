@@ -1,8 +1,51 @@
 # Bowes & Morley
 
-Дискография
-"Moving Swiftly Along" 2002, Fusion
-"Mo's Barbeque" 2004, Fusion
+Thunder members
+
+## Дискография
+
+### "Moving Swiftly Along" 2002, Fusion
+
+1 Dancing The Night Away 
+2 Hypnotized 
+3 Something About My Baby 
+4 Powertripping 
+5 Don't Take Your Love Away 
+6 Freakshow 
+7 You're Drifting Away 
+8 Hesitate 
+9 Change 
+10 The River Of Life 
+11 Better Times 
+12 Sick & Tired 
+13 I'd Take The Stars Out Of The Sky
+
+### "Mo's Barbeque" 2004, Fusion
+
+1.  Desire  
+2.  Living For The City  
+3.  On A Day Like Today  
+4.  Why Did You Do It  
+5.  Since I Left Her  
+6.  Come Together In The Morning  
+7.  Waiting For The Sky To Fall  
+8.  Illogical  
+9.  How Could You?  
+10.  That’s Not Love  
+11.  I Can’t Stand The Rain
+
+Danny Bowes - Vocals
+Luke Morley - All the guitars, percussion, backing vocals etc.
+Mario Goossens - Drums
+Chris Childs - Bass
+Mark Taylor - Piano, Organ and all keyboards
+Ben Gant - Trumpet
+Martine Robertson - Sax
+Ian Moffat - Trombone
+TJ Davies - Backing vocals
+Angela Murrell - Backing vocals
+Tara McDonald - Additional vocals on 'How Could You?'
+
 
 ## Отношения с другими группами
 

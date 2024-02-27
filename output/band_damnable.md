@@ -1,6 +1,9 @@
 # Damnable
 
-Дискография
+brutal death/grind from Poland
+
+## Дискография
+
 
 ## Отношения с другими группами
 

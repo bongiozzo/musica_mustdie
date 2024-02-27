@@ -1,9 +1,79 @@
 # Mournful Gust
 
-Дискография
-"She's my grief" 2005, Doom
-"The Frankness Eve" 2008, Doom
-"She's My Grief... Decade [2CD compilation]" 2010, Doom
+
+
+## Дискография
+
+### "She's my grief" 2005, Doom
+
+(Dedicated to memory of Stanislav Shahin 1944 – 2000)
+1. The First Spring Without You
+2. Path Of My Tears
+3. Once We Were Happy
+4. Sweet Embrace Of Scarlet Twilight
+5. I Saw Her Sad Eyes
+6. As A Wingless Bird
+7. …And We Shall Die Together
+
+All music composed by Alexander Glavniy
+All lyrics by Vladislav Shahin
+Arranged by MOURNFUL GUST
+
+Vladislav Shahin – vocals
+Alexander Glavniy – lead guitar
+Evgeniy Vecher – rhythm guitar
+Evgeniy Kozlovskiy – bass guitar
+Artem Lygun – keyboards
+Vjacheslav Kapusta – drums
+
+Additional musicians:
+Oksana Krivenko – soprano
+Anna Dobrydneva – female vocal (also on concerts)
+Andrey Chistoserdov – violin
+Alexander Ulanov – flute
+
+Recorded and mixed at Jazz Club Studio by Vitaliy Seroshtan (Krivoy Rog, 2 May – 2 October 2000)
+
+Cover photo by Dmitriy Boyko. Model: Julia Oskina.  Design’s idea by Vladislav Shahin. Band’s logotype by Aljona Kljenova. Designer Evgeniy Ponomarev.
+
+Special thanks for : Vitaliy Verko ( our concert keyboards player ) , Alexey Korenevskiy , Denis Ostrovskiy , Andrey Komisarenko ,   Vadim Shatniy (METAL FORCE Records) , Yuriy Samarets (TSEPNAYA REACTSIYA), Victor Ozolin (FLYING) , Vadim Labkovich (OLD LAND) , Konstantin Zmievskiy (TESSARACT) , Igor Simonenko (TERRORAISER Productions) and our fans in Krivoy Rog , Kiev , Minsk , Kharkov and Vinnitsa .
+Metal greetings for: IZMENA, TSEPNAYA REACTSIYA, MORANA, VAE SOLIS, ALIVE ,BROKEN MIRROR, TRIZNA, INFINEON , CD - TIHO , POLYN , SPARROW MUTANT , UNERASE , TE DEUM , PROPHETIC DREAMS , ICE BRAINS , INFESTUM , OSSUARY , MORBID VICTORY , POST SCRIPTUM , DIABOLISM , BLAST , MALEDICTION , TESSARACT , LITIA , REDIF , TEATR TENEY , ARISE , SAD and Agen Price  (METAL AGEN Records ).
+
+c/o Vladislav Shahin, p.o.box 3747 ,Krivoy Rog, 50074, Ukraine
+e – mail: vomitthroat@ukr.net
+
+### "The Frankness Eve" 2008, Doom
+
+1.  A Pain To Remember  9:18 
+2.  Itґs Our Own Tragedy  4:52 
+3.  To Your Deceits... Again  4:49 
+4.  From Illusions And Jealousy  8:39 
+5.  The Cold Solitude  6:53 
+6.  With Every Suffering  7:44 
+7.  Honey For My Wounds  2:35 
+8. Recover Me In Sores  5:20
+
+### "She's My Grief... Decade [2CD compilation]" 2010, Doom
+
+Disc 1 
+1. The First Spring Without You 03:36  
+2. Path Of My Tears 08:13  
+3. Once We Were Happy 08:49  
+4. Sweet Embrace Of Scarlet Twilight 07:49  
+5. I Saw Her Sad Eyes 10:26  
+6. As A Wingless Bird 07:50  
+7. ...And We Shall Die Together 09:41  
+Disc 2 
+1. A Pain To Remember (demo version) 09:15  
+2. It's Our Own Tragedy (demo version) 04:48  
+3. To Your Deceits... Again (demo version) 04:46  
+4. The First Spring Without You (Somnolent version) 06:02  
+5. I Saw Her Sad Eyes (Stas Mischenko version) 04:51  
+6. The Cold Solitude (Soundform & Practical Senses version) 02:50  
+7. The Cold Solitude (Alexander Naydenov version) 05:54  
+8. The Cold Solitude (demo version) 06:46  
+9. With Every Suffering (Video Clip) 05:47 
+
 
 ## Отношения с другими группами
 

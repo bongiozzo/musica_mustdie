@@ -1,7 +1,13 @@
 # Heavy Lord
 
-Дискография
-"From Cosmos To Chaos" 2006, Doom
+
+
+## Дискография
+
+### "From Cosmos To Chaos" 2006, Doom
+
+
+
 
 ## Отношения с другими группами
 

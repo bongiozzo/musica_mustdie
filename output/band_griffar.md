@@ -1,7 +1,21 @@
 # Griffar
 
-Дискография
-"Monastery" 2011, Black Metal
+
+
+## Дискография
+
+### "Monastery" 2011, Black Metal
+
+1. Blessed in Lava	 
+2. Monastery	 
+3. Relentless Infamy	 
+4. The Demented God	 
+5. My Wolf Legacy	 
+6. Tale of the Navigator	 
+7. Diabolical Kingdoms	 
+8. Rebirth	 
+9. Last World
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,17 @@
 # Harlott
 
-Дискография
-"Origin" 2013, Thrash
-"Proliferation" 2015, Thrash
+
+
+## Дискография
+
+### "Origin" 2013, Thrash
+
+
+
+### "Proliferation" 2015, Thrash
+
+
+
 
 ## Отношения с другими группами
 

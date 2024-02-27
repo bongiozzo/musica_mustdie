@@ -1,7 +1,41 @@
 # Drogheda
 
-Дискография
-"Pogromist" 1997, Grindcore
+
+
+## Дискография
+
+### "Pogromist" 1997, Grindcore
+
+1.  Carcass Dweller
+2.  Song Of Hate And Sorrow
+3.  Consigned To The Tomb
+4.  Demented
+5.  Newborn Corpse
+6.  Sea Of Vomit
+7.  Laid To Waste
+8.  Darkening Amoral Morality
+9.  God Infection
+10.Lesions
+11.Caries
+12.Bleed
+13.Pain
+14.Lords Of Chaos (Unabomber Dance Remix)
+15.Kill The Light
+16.Maggot Spawn
+17.Drogheda
+18.Desperation Madness
+19.Stygian Nightmare
+20.Lords Of Chaos
+
+Recorded and Mixed at Drunk Tank Studios.
+Produced by DROGHEDA.
+
+John Roddy - Hyper Speed Kettles, Cymbal Wipeouts
+Buddy Mitchell - State Hospital Vocals, Septic Tank Guitars
+Dan Haynes - Open Sewer Vocals, Largemouth Bass
+
+(P)(C) 1997 WILD RAGS Records // WRR 054
+
 
 ## Отношения с другими группами
 

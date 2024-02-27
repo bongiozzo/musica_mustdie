@@ -1,7 +1,23 @@
 # Angel Crew
 
-Дискография
-"One Life One Sentence" 2005, Hardcore
+hardcore
+
+## Дискография
+
+### "One Life One Sentence" 2005, Hardcore
+
+Life Sentence
+Break Through
+Spit It Out
+Bring Down The World
+Carry On The War
+Dead End Sin 
+Cross The Line
+Chapter Of Violence
+Another King Down
+Shut Them Down
+Life Of An Angel
+
 
 ## Отношения с другими группами
 

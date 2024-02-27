@@ -1,7 +1,35 @@
 # HDK
 
-Дискография
-"Serenades Of The Netherworld" 2014, Metal
+AFTER FOREVER guitarist
+
+## Дискография
+
+### "Serenades Of The Netherworld" 2014, Metal
+
+01. Revelation 
+02. Electric Soul 
+03. Mortal Zombie 
+04. Serenade of the Netherworld 
+05. Return from Tomorrow 
+06. Let Life Be Done 
+07. Eternal Journey 
+08. Witness 
+09. Book of Lies 
+10. Omega
+
+
+Amanda Somerville - Vocals (Kiske / Somerville, Trillium, Avantasia (live), Aina, ex-Epica (live))
+Geert Kroes - Vocals (Dead Man's Curse, ex-Blind Sight)
+Sander Gommans - Guitars & Bass (Kiske / Somerville, Trillium, ex-After Forever, ex-Mayan, ex-Scheepers (live))
+Uri Dijk - Keyboards (Textures, Ethereal, The Ulex, ex-Mortar)
+Erik Van Ittersum - Keyboards (Ethereal (live), Insomnia (live))
+Koen Herfst - Drums (Dew-Scented, I Chaos, ex-Xenobia, Bagga Bownz, ex-Cypher (live), ex-Epica (live), ex-After Forever (live))
+
+Guest Musicians:
+Paul Owsinski - Guitar (Trillium)
+Mark Burnash - Bass (Trillium)
+Stephen Pursey - Guest Solo 
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,20 @@
 # Stench
 
-Дискография
-"In Putrescence" 2010, Death Metal
+
+
+## Дискография
+
+### "In Putrescence" 2010, Death Metal
+
+1.	 The Blackness	03:14
+2.	 Face of Death	02:38	 
+3.	 Ghosts	04:31
+4.	 Breath of the Rottenness	04:28	 
+5.	 The Fire	03:09
+6.	 Crimson Hills	03:34	 
+7.	 Drenched in the Light	06:08
+8.	 The ones who Rot	03:16
+
 
 ## Отношения с другими группами
 

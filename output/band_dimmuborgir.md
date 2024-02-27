@@ -1,26 +1,498 @@
 # Dimmu Borgir
 
-Дискография
-"For All Tid..." 1994, Black Metal
-"Inn I Evighetens Moslasharke (7" EP)" 1994, Black Metal
-"Stormblast" 1996, Black Metal
-"Devil's Path [EP]" 1996, Black Metal
-"Enthrone Darkness Triumphant" 1997, Black Metal
-"Godless Savage Garden" 1998, Black Metal
-"Live & Plugged, Vol. 2 (video)" 1998, Black Metal
-"Spiritual Black Dimensions" 1999, Black Metal
-"Puritanical Euphoric Misanthropia" 2001, Black Metal
-"Alive in Torment [EP]" 2001, Black Metal
-"World Misanthropy [EP]" 2002, Black Metal
-"World Misanthropy [DVD]" 2002, Black Metal
-"Death Cult Armageddon" 2003, Black Metal
-"Progenies of the Great Apocalypse (single)" 2003, Black Metal
-"Vredesbyrd (single)" 2004, Black Metal
-"Stormblast (re-release)" 2005, Black Metal
-"In Sorte Diaboli" 2007, Black Metal
-"The Invaluable Darkness [DVD]" 2008, Black Metal
-"Gateways (single)" 2010, Black Metal
-"Abrahadabra" 2010, Black Metal
+Greatest Norwegian Misanthropic Symphonic Black Metal
+
+## Дискография
+
+### "For All Tid..." 1994, Black Metal
+
+1. Det Nye Riket 
+2. Under Korpens Vinger 
+3. Over Bleknede Blaner Til Dommedag
+4. Stien 
+5. Glittertind 
+6. For All Tid 
+7. Hunnerkongens Sorgsvarte Ferd Over Steppene 
+8. Raabjorn Speiler Draugheimens Skodde 
+9. Den Glemte Sannhets Hersker 
+
+   * Shagrath - Vocals & Guitars
+   * Tjodalv - Drumms & Percussion
+   * Erkekjetter Silenoz - Guitars
+   * Nagash - Bassguitar
+   * Stian Aarstad - Synthesizers & Piano
+
+Screams by Vicotnik from Ved Buens Ende
+Session vocals: Draug Aldrahn from Dodheimsgard
+
+(P)(C) 1995
+
+### "Inn I Evighetens Moslasharke (7" EP)" 1994, Black Metal
+
+1. Inn I Evighetens Morke (Part. I) - 4:25
+2. Inn I Evighetens Morke (Part. II) - 1:58
+3. Raabjorn speiler draugheims skodde - 4:51
+
+All Lyrics by Shagrath, Silenoz
+All music by Shagrath and Silenoz 
+Produced by Dimmu Borgir
+All songs composed & Performed by Dimmu Borgir
+(Available in 7" format only)
+
+Line up on this recording: 
+Shagrath - Drums & Vocals
+Erkekjetter Silenoz - Guitar & Vocals
+Tjodalv - Guitar
+Brynjard Tristan - Bass
+Stian Aarstad - Synthesisers, Piano & Effects
+
+### "Stormblast" 1996, Black Metal
+
+1. Alt Lys Er Svunnet Hen
+2. Broderskapets Ring
+3. Nar Sjelen Hentes Til Helvete
+4. Sorgens Kammer
+5. Da Den Kristne Satte Livet Til
+6. Stormblast
+7. Dodsferd
+8. Antikrist
+9. Vinder Fra En Ensom Grav
+10.Guds Fortapelse - Apenbaring Av Dommedag 
+
+Produced By DIMMU BORGIR.
+Recorded & Mixed At Endless Sound Production.
+Engineered By Good Time Charlie.
+Mastered At Strype Audio By Kristian Romsoe
+Cover By Alex Kurtagic
+
+Shagrath - Lead Guitar And Vocals
+Tjodalv - Drums & Percussion
+Erkekjetter Silenoz - Rhythm Guitar And Vocals
+Stian Aarstad - Synthesizers & Piano
+
+(P)c 1996 CACOPHONOUS Records // NIHIL 12CD
+
+### "Devil's Path [EP]" 1996, Black Metal
+
+1. Master Of Disharmony
+2. Devil's Path
+3. Nocturnal Fear
+4. Nocturnal Fear (Celtically Prosessed) 
+
+Shagrath - Guitar, Vocals & Synthesisers
+Erkekjetter Silenoz - Guitar
+Nagash - Bassguitar
+Tjodalv - Drums & Percussio
+
+Recorded and mixed at Stovner Rockefabrikk June '96.
+Engineered by Marius Ryen.
+All Lyrics by Shagrath, all music by Shagrath and Silenoz,
+except "Nocturnal Fear" by Celtic Frost.
+All songs composed and performed by Dimmu Borgir.
+Mastered at Strype Audio by Vargnatt inc.
+Cover by Shagrath/Egolego.
+
+This is a CD-single. 
+Contains cover-version of the "cult-band" Celtic Frost. 
+These songs are on a new musical path that the band has chosen. 
+So, it's quite different from the material on "Stormblast".
+This is more like the music that will appear on their forthcoming album:
+"Enthroned darkness triumphant".
+This is a mix of majestic agressivness/black metal/heavy metal and 
+thrash metal in the vain of destruction/sodom etc.. 
+And their 3. full-inch album will be released on Nuclear Blast-jan.97" -
+
+### "Enthrone Darkness Triumphant" 1997, Black Metal
+
+Mourning Palace
+Spellbound (By the devil)
+In Death's Embrace
+Relinquishment Of Spirit And Flesh
+The Night Masquerade
+Tormentor Of Christian Souls
+Entrance
+Master Of Disharmony
+Prudence's Fall
+A Succubus In Rapture
+Bonus Track: Raabjorn Speiler Draughheimens Skodde
+
+### "Godless Savage Garden" 1998, Black Metal
+
+1. Moonchild Domain.
+2. Hunnerkongen.
+3. Chaos Without Prophecy.
+4. Raabjorn Speiler Draugheimens Skodde.
+5. Metal Heart.
+6. Stormblast. (Live)
+7. Master Of Disharmony. (Live)
+8. In Death's Embrace. (Live)
+
+(c)&(p) 1998 NUCLEAR BLAST RECORDS
+
+SHAGRATH
+ASTENNU
+ERKEKJETTER SILENOZ
+NAGASH
+TJODALV
+
+Recorded at Abyss Studios, Sweden, January and July 1997. Engineered and mixed by Peter Tagtgren. Mastered at 
+Cuttingroom, Sweden. Produced by Dimmu Borgir. All music by Dimmu Borgir except "Metal Heart" written by 
+Accept. Tracks 2 and 4 are re-recorded version and are originally to be found on our first album "For All Tid". All 
+music and lyrics published by Prophecies publishing.
+
+### "Live & Plugged, Vol. 2 (video)" 1998, Black Metal
+
+1. Mourning Palace - 5:13
+2. D&#248;dsferd - 5:30
+3. In Death's Embrace - 5:43
+4. Spellbound (by the devil) - 4:08
+5. Master of Disharmony - 4:15
+6. Alt lys er svunnet hen - 6:07
+7. Mourning Palace (Video)
+
+### "Spiritual Black Dimensions" 1999, Black Metal
+
+1 - Reptile
+2 - Behind The Curtains Of Night, Phantasmagoria
+3 - Dreamside Dominions
+4 - United In Unhallowed Grace
+5 - The Promised Future Aeons
+6 - The Blazing Monoliths Of Defiance
+7 - The Insight And The Catharsis
+8 - Grotesquery Conceiled (Within Measureless Magic)
+9 - Arcane Lifeforce Mysteria
+
+Line up on this recording: 
+Shagrath - Vocals, 
+Erkekjetter Silenoz - Guitar, 
+Astennu - Lead Guitar, 
+Tjodalv - Drums & Percussion, 
+Nagash - Bass, 
+Mustis - Synthesizers & Piano.
+
+### "Puritanical Euphoric Misanthropia" 2001, Black Metal
+
+Fear And Wonder
+Blessings Upon The Throne Of Tyranny
+Kings Of The Carnival Creation
+Hybrid Stigmata - The Apostasy
+Architecture Of A Genocidal Nature
+Puritania
+IndoctriNation
+The Maelstrom Mephisto
+Absolut Sole Right
+Sympozium
+Perfection of Vanity
+Burn in Hell
+
+
+
+
+Recorded at Studio Fredman, Gothenburg, Sweden 09-11/2000
+Engineered and mixed by Fredrik Nordstrom
+Assistant engineer: Jan Banan
+Produced by Dimmu Borgir & Fredrik Nordstrom
+Mastered at mastering Room, Gothenburg
+Sample manipulation onPuritania by Charlie Storm
+Cover art, photos and design by Alf Borjesson
+Layout by Thomas Ewerhard
+All music arranged by Dimmu Borgir, except "Burn In Hell" written by Dee Snider.
+Orchestral parts arranged and conducted by Gaute Storas, performed by The Gothenburg Opera Orchestra
+
+### "Alive in Torment [EP]" 2001, Black Metal
+
+1. Tormentor of Christian Souls
+2. The Blazing Monoliths of Defiance
+3. The Insight and the Catharsis
+4. Puritania
+5. The Maelstrom Mephisto
+
+5 live songs limited shape CD, recorded in Stuttgart on the Puritanical tour 2001. Mixed by Peter T&#228;gtgren in Abyss studio.
+
+Line up on this recording: 
+Shagrath - Vocals, 
+Erkekjetter Silenoz - Lead Guitar, 
+Galder - Lead Guitar, 
+Nick Barker- Drums & Percussion, 
+ICS Vortex- Bass, 
+Mustis - Synthesizers & Piano
+
+### "World Misanthropy [EP]" 2002, Black Metal
+
+1. Masses For The New Mesiah
+2. Devil's Path, re-recording
+3. Blessings upon The Throne of Tyranny 
+4. Kings of The Carnival Creation 
+5. Puritania
+6. IndoctriNation
+
+Line up on this recording: 
+Shagrath - Vocals, 
+Erkekjetter Silenoz - Lead Guitar, 
+Galder - Lead Guitar, 
+Nick Barker- Drums & Percussion, 
+ICS Vortex- Bass, 
+Mustis - Synthesizers & Piano.
+
+Credits: 
+
+Produced and directed by Dimmu Borgir 
+Created & Developed by Dimmu Borgir & Yvette Uhlmann (A&R) 
+Edited at Birdsmill Media, Germany, by Shagrath, Silenoz, Nicholas, Snake and Vila Richter 
+Birdsmill Media Crew: Vila Richter & Snake 
+DVD Menu Design and Mastering: Martin Preu&#223; 
+Director of Photography: Yvette Uhlmann 
+Cover concept by Joachim Luetke 
+Art Direction and design: Nuclear Blast 
+Photography: Alf B&#248;rjesson 
+
+Wacken live-sound mixed by Fredrik Nordstr&#246;m at Studio Fredman 
+Stuttgart live-sound mixed by Peter T&#228;gtgren at Abyss Studio 
+
+All music and lyrics by Dimmu Borgir 
+Songs published by Prophecies Publishing (Stormbl&#229;st published by Vinyl Schnozza Ltd)
+
+### "World Misanthropy [DVD]" 2002, Black Metal
+
+Disk 1:
+
+-- Experience All Misanthropy
+- Live Clips
+- Exclusive Member Interviews
+- Backstage
+- Home Footage & Craziness shot during the world tour 2001/2002
+
+-- Experience Live Misanthropy
+- 4 Songs recorded live at Stuttgart 2001
+- 4 Songs recorded live at Wacken Open Air 2001
+
+Disk 2:
+
+- Live in Poland 1998
+- Festivals / Live 1999
+- 4 Clips 1995-2001
+- 4 Photo Galleries
+- Credits
+
+### "Death Cult Armageddon" 2003, Black Metal
+
+1. Allegiance
+2. Progenies Of The Great Apocalypse
+3. Lepers Among Us
+4. Vredesbyrd
+5. For The World To Dictate Our Death
+6. Blood Hunger Doctrine
+7. Allehelgens Dod I Helveds Rike
+8. Cataclysm Children
+9. Eradication Instincts Defined
+10. Unorthodox Manifesto
+11. Heavenly Perverse
+12. Satan My Master (bonus)
+
+
+Shagrath - vocals
+Silenoz - guitars
+Galder - lead guitar
+Vortex - bass guitar & clean voice
+Mustis - grand piano & synth
+Nicholas Barker - assault & battery
+
+
+Recorded at Fredman Studio, Gothenburg, Sweden
+During March, April & May 2003
+Produced by Dimmu Borgir & Fredrik Nordstrom
+Engineered & mixed by Fredrik Nordstrom
+Assistant engineers: Patrik Sten & Arnold Lindberg
+Mastered at Tailor Maid, Stockholm by Peter in de
+Betou
+Additional synthetics and sample assistance by
+Charlie Storm
+Special guest vocal appearance on track 2 and
+track 11 by The Son of Northern Darkness - Abbath
+
+All music arranged and written by Dimmu Borgir
+Published by Prophecies Publishing
+
+Orchestration arranged by Gaute Storaas
+Recorded with the Prague Philharmonic Orchestra
+Conducted by Adam Klemens
+
+### "Progenies of the Great Apocalypse (single)" 2003, Black Metal
+
+
+
+### "Vredesbyrd (single)" 2004, Black Metal
+
+
+
+### "Stormblast (re-release)" 2005, Black Metal
+
+01. Alt Lys Er Sunnet Hen
+02. Broderskapets Ring
+03. Nar Sjelen Hentes Til Helvete
+04. Sorgens Kammer - Del II
+05. Da Den Kristne Satte Livet Til
+06. Stormblast
+07. Dodsferd
+08. Antikrist
+09. Vinder Fra En Ensom Grab
+10. Guds Fortapelse - Apenbaring Av Dommedag
+11. Avmaktslave
+
+Shagrath - guitars/bass/vocals
+Silenoz - guitars/bass/vocals
+
+Special guests:
+Mustis - keys & piano
+Hellhammer - drums
+
+Hellraised for the 2nd time in Abyss Studio, Sweden, Summer 2005.
+Engineered and mixed by Peter Tagtgren.
+Produced by Shagrath & Silenoz.
+Supervised by Peter Tagtgren & The Abyss Choir.
+Mastered at Cuttingroom by Bjorn Engelmann.
+All music and lyrics by Shagrath & Silenoz 1993-1995.
+Photos by Dimmu Borgir 1993-1995.
+Layout by Tobe, Shagrath & Silenoz.
+Front cover by Joachim Luetke.
+Backside cover by Alf Borjesson.
+
+### "In Sorte Diaboli" 2007, Black Metal
+
+
+
+### "The Invaluable Darkness [DVD]" 2008, Black Metal
+
+DVD One:
+
+I. The Invaluable Darkness Tour - Europe 2007
+
+Sentrum Scene in Oslo, Norway – November 6, 2007:
+
+01. Introduction
+02. Progenies Of The Great Apocalypse
+03. The Serpentine Offering
+04. The Chosen Legacy
+05. Spellbound (By The Devil)
+06. Sorgens Kammer Del II
+07. The Insight And The Catharsis
+08. Raabjшrn Speiler Draugheimens Skodde
+09. The Sacrilegious Scorn
+10. Mourning Palace
+11. The Fallen Arises
+
+Columbiahalle in Berlin, Germany - October 21,
+2007:
+
+12. The Sinister Awakening
+13. A Succubus In Rapture
+14. Fear & Wonder
+15. Blessings Upon the Throne of Tyranny
+
+The Forum in London, UK – September 28, 2007:
+
+16. Vredesbyrd
+17. Puritania
+
+II. Behind-The-Scenes Footage
+
+III. Special Feature
+
+DVD Two
+
+I. Wacken Open Air, Germany – Black Metal Stage –
+August 2, 2007
+
+01. Introduction
+02. Progenies Of The Great Apocalypse
+03. Vredesbyrd
+04. Cataclysm Children
+05. Kings Of The Carnival Creation
+06. Sorgens Kammer Del II
+07. Indoctrination
+08. A Succubus In Rapture
+09. The Serpentine Offering
+10. The Chosen Legacy
+11. The Insight And The Catharsis
+12. Spellbound (By The Devil)
+13. Mourning Palace
+14. The Fallen Arises
+
+II. P3 Session – NRK Studio 19 IN Oslo, Norway –
+September 18, 2007
+
+01. The Serpentine Offering
+02. Spellbound (By The Devil)
+03. Mourning Palace
+
+III. Video Gallery
+
+01. Progenies Of The Great Apocalypse
+02. Vredesbyrd
+03. Sorgens Kammer Del II
+04. The Serpentine Offering
+05. The Sacrilegious Scorn
+06. The Chosen Legacy
+
+IV. Gold Awards Oslo
+
+V. Image Gallery
+
+
+### "Gateways (single)" 2010, Black Metal
+
+1. Gateways (Single Version) 04:59 
+
+
+Music by Dimmu Borgir.
+Lyrics by Silenoz.
+
+Produced by Dimmu Borgir.
+Mixed by Andy Sneap and Dimmu Borgir.
+Mastered by Andy Sneap, Russ Russell and Dimmu Borgir.
+
+Original design by Joachim Luetke. 
+
+### "Abrahadabra" 2010, Black Metal
+
+1. Xibir 02:50  
+2. Born Treacherous 05:02  
+3. Gateways 05:10  
+4. Chess With The Abyss 04:08  
+5. Dimmu Borgir 04:35  
+6. Ritualist 05:13  
+7. The Demiurge Molecule 05:29  
+8. A Jewel Traced Through Coal 05:16  
+9. Renewal 04:11  
+10. Endings And Continuations 05:58 
+
+
+Line-up:
+Shagrath - Vocals, Keyboards
+Silenoz - Guitars
+Galder - Guitars
+
+Guest members:
+Snowy Shaw - Bass, Clean Vocals
+Daray - Drums
+Agnete Maria Forfang Kjшlsrud - Female Vocals
+Kringkastingsorkestret (The Norwegian Radio Orchestra), conducted by Gaute
+Storaas
+The Schola Cantorum Choir
+
+
+The limited edition includes a bonus track:
+11. Gateways (Orchestral Version) (05:11)
+
+
+Produced by Dimmu Borgir.
+Drums, Shagrath's and Snowy's vocals were recorded with Daniel Bergstrand in
+Uppsala, Sweden.
+Guitars, bass and keyboards were recorded in Oslo, Norway with Russ Russell as
+the engineer.
+Mixed and mastered in England by Andy Sneap.
+Cover artwork by Joachim Luetke. 
+
 
 ## Отношения с другими группами
 

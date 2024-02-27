@@ -1,8 +1,23 @@
 # Catacombs
 
-Дискография
-"Echoes Through the Catacombs [EP]" 2003, Doom
-"In the Depths of R'lyeh" 2006, Doom
+
+
+## Дискография
+
+### "Echoes Through the Catacombs [EP]" 2003, Doom
+
+1. Consigned to Flames of Woe 16:33  
+2. Echoes Through the Catacombs 13:35 
+
+### "In the Depths of R'lyeh" 2006, Doom
+
+1. In the Depths of R'lyeh 11:16
+2. Dead Dripping City 16:38 
+3. At the Edge of the Abyss 13:29
+4. Where No Light Hath Shone... (But for That of the Moon) 12:41
+5. Fallen into Shadow 16:15
+6. Awakening of the World's Doom (Reprise) 02:11 
+
 
 ## Отношения с другими группами
 

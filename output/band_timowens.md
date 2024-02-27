@@ -1,7 +1,13 @@
 # Tim Owens
 
-Дискография
-"Play My Game" 2009, Heavy Metal
+ex-singer of JUDAS PRIEST
+
+## Дискография
+
+### "Play My Game" 2009, Heavy Metal
+
+
+
 
 ## Отношения с другими группами
 

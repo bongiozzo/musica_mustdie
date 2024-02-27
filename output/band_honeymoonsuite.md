@@ -1,8 +1,43 @@
 # Honeymoon Suite
 
-Дискография
-"H M S Live" 2005, Hard Rock
-"H M S Live DVD" 2005, Hard Rock
+
+
+## Дискография
+
+### "H M S Live" 2005, Hard Rock
+
+01. Other Side Of Midnight
+02. What I Know
+03. Stay In The Light
+04. Burning In Love
+05. Wave Babies
+06. Touch The Sun
+07. Piano Solo
+08. What Does It Take
+09. Feel It Again
+10. All Along You Knew
+11. Lookin` Out For No. 1
+12. Guitar Solo
+13. Bad Attitude
+14. New Girl Now
+
+### "H M S Live DVD" 2005, Hard Rock
+
+01. Other Side Of Midnight
+02. What I Know
+03. Stay in the Light
+04. Burning in Love
+05. Wave Babies
+06. Touch The Sun
+07. Piano Solo
+08. What Does it Take
+09. Feel it Again
+10. All Along You Knew
+11. Lookin’ Out For No. 1
+12. Guitar Solo
+13. Bad Attitude
+14. New Girl Now
+
 
 ## Отношения с другими группами
 

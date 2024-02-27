@@ -1,10 +1,117 @@
 # Satellite
 
-Дискография
-"A Street Between Sunrise And Sunset" 2003, Progressive
-"Evening Games" 2005, Progressive
-"Into The Night" 2007, Progressive
-"Nostalgia" 2009, Progressive
+Prog from Poland
+
+## Дискография
+
+### "A Street Between Sunrise And Sunset" 2003, Progressive
+
+1. THE EVENING WIND (12:45)
+2. ON THE RUN (14:51)
+3. MIDNIGHT SNOW (4:59)
+4. NO DISGRACE (5:34)
+5. NOT AFRAID (3:55)
+6. NOW (10:13)
+7. FIGHT (4:29)
+8. A STREET BETWEEN SUNRISE AND SUNSET (11:18)
+9. CHILDREN (3:56)
+
+
+All music and lyrics written by Wojtek Szadkowski except ON THE RUN by Szadkowski/Lisowski and FIGHT by Szadkowski/Bieniak.
+Arranged and produced by Wojtek Szadkowski 
+Additional arrangements by Darek Lisowski
+Artwork and logo by Mark Wilkinson
+Cover concept by Wojtek Szadkowski 
+
+
+Wojtek Szadkowski - Drums, Percussion, Additional Guitars, Keyboards, Backing Vocals 
+Robert Amirian - Vocals 
+Mirek Gil - Guitars 
+Sarhan - Guitars 
+Darek Lisowski - Keyboards 
+Krzysiek Palczewski - Keyboards 
+Piotr Zaczek - Bass Guitar 
+Przemek Zawadzki - Bass Guitar
+
+### "Evening Games" 2005, Progressive
+
+1. EVENING GAMES
+2. NEVER NEVER
+3. RUSH
+4. LOVE IS AROUND YOU
+5. WHY
+6. BEAUTIFUL WORLD
+7. EVENING OVERTURE
+8. TAKE IT AS IT IS
+
+Special edition's bonus tracks:
+9. I'LL FOLLOW THE RAIN
+10. YOU KNOW AND I KNOW
+
+All music and lyrics written by Wojtek Szadkowski
+Arranged by Wojtek Szadkowski
+Produced by Wojtek Szadkowski & Krzysiek Palczewski 
+Mix by Krzysiek Palczewski 
+
+Wojtek Szadkowski - Drums, Percussion 
+Robert Amirian - Vocals 
+Sarhan - Guitars 
+Krzysiek Palczewski - Keyboards 
+Przemek Zawadzki - Bass Guitar
+
+### "Into The Night" 2007, Progressive
+
+1. Into The Night
+2. Dreams
+3. Downtown Skyline
+4. Lights
+5. Don't Go Away In Silence
+6. Heaven Can Wait
+7. Forgiven And Forgotten
+
+Bonus tracks (available only on the digipak edition:
+8. Around The World
+9. Time Stands Still
+
+Line-up/Musicians 
+- Robert Amirian / vocals, bass 
+- Sarhan Kubeisi / guitars 
+- Krzysiek Palczewski / keyboards 
+- Wojtek Szadkowski / drums 
+- Jarek Michalski / bass
+
+
+
+### "Nostalgia" 2009, Progressive
+
+1. Every desert got its ocean (9:13)
+2. Repaint the sky (6:56)
+3. Afraid of what we say (8:47)
+4. I want you to know (7:20)
+5. Over horizon (8:04)
+6. Am I losing touch? (9:45)
+7. Is it over? (7:30)
+
+Total Time: 57:39
+
+Bonus tracks on CD digipak
+8. The color of the rain
+9. Relaxed
+
+
+
+Line-up/Musicians 
+- Robert Amirian / vocals
+- Saharan Kubeisi / guitar, acoustic guitar
+- Jarek Michalski / bass guitar
+- Wojtek Szadkowski / keyboards, acoustic guitar, drums
+
+With
+- Krzysiek Palczewski / additional keyboards
+- Amarok / some additional keyboards, last guitar solo on ''Is it over''
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,23 +1,386 @@
 # Impaled Nazarene
 
-Дискография
-"Tol Cormpt Norz Norz Norz" 1993, Black Metal
-"Ugra-Karma" 1993, Black Metal
-"Suomi Finland Perkele" 1994, Black Metal
-"In the Name of Satan" 1996, Black Metal
-"Latex Cult" 1996, Black Metal
-"Motorpenis" 1996, Black Metal
-"Rapture" 1999, Black Metal
-"Nihil" 2000, Black Metal
-"Decade Of Decadence" 2000, Black Metal
-"Absence of War Does Not Mean Peace" 2001, Black Metal
-"All That You Fear" 2003, Black Metal
-"Death Comes In 26 Carefully Selected Pieces (live)" 2005, Black Metal
-"Pro Patria Finlandia" 2006, Black Metal
-"Manifest" 2007, Black Metal
-"Road to the Octagon" 2010, Black Metal
-"Vigorous and Liberating Death" 2014, Black Metal
-"Morbid Fate (single)" 2017, Black Metal
+Kings of Satanic Black Metal from Finland
+
+## Дискография
+
+### "Tol Cormpt Norz Norz Norz" 1993, Black Metal
+
+1. Apolokia
+2. I Al Purg Vompo
+3. My Blessing (The Beginning Of The End)
+4. Apolokia II: Aikolopa 666
+5. In The Name Of Satan
+6. Impure Orgies
+7. Goat Perversion
+8. The Forest (The Darkness)
+9. Mortification / Blood Red Razor Blade
+10.The God (Symmetry Of Penis)
+11.Condemned To Hell
+12.The Dog (Art Of Vagina)
+13.The Crucified
+14.Apolokia III: Agony
+15.Body-Mind-Soul
+16.Hoath: Darbs Lucifero
+17.Apolokia Finale XXVII A.S.
+18.Damnation (Raping The Angels)
+
+ Mika Luttinen - Vocals
+ Kimmo Luttinen - Drums, Lead Guitar
++ Taneli Jarva - Bass (Session)
++ Jarno Anttila - Guitar (Session)
+
+Recorded Faraway In Pain & Misery
+XXVII Anno Satanas.
+
+(p)&(c) 1993 OSMOSE Productions
+
+### "Ugra-Karma" 1993, Black Metal
+
+1. Goatzied
+2. The Horny And The Horned
+3. Sadhu Satana
+4. Chaosgoat Law
+5. Hate
+6. Gott Ist Tot (Antichrist War Mix)
+7. Coraxo
+8. Soul Rape
+9. Kali - Yuga
+10.Cyberchrist
+11.False Jйhova
+12.Sadistic 666 / Under A Golden Shower
+
+ Mika Luttinen - Vocals
+ Kimmo Luttinen - Drums, Lead Guitar
+ Taneli Jarva - Bass
+ Jarno Anttila - Guitar
+
+All Music And Lyrics By Kimmo Luttinen & Mika Luttinen
+The Cyber-Production Of Sound By Ahty Kortelainen
+Recorded July XXVIII Anno Satanas At Tico-Tico Studio,
+Kemi, Finland
+
+(p&(c) 1993 OSMOSE Production
+
+### "Suomi Finland Perkele" 1994, Black Metal
+
+1. Intro
+2. Vituksen Multihuipennus
+3. Blood Is Thicker Than Water
+4. Steelvagina
+5. Total War - Winter War
+6. Quasb / The Burning
+7. Kuolema Kaikille (Paitsi Meille)
+8. Let's Fucking Die
+9. Genocide
+10. Ghettoblaster
+11. The Oath Of The Goat
+
+ Sir Luttinen - Vocals
+ The Fuck You-Man - Drums, Lead Guitar
+ Dr. J-Ace - Bass
+ Mr. M.L. G-D-6-th - Guitars
+
+(p)&(c) 1994 OSMOSE Prod.
+
+### "In the Name of Satan" 1996, Black Metal
+
+1. Ghostriders
+2. Sadogoat
+3. Noisrevrep Taog
+4. In The Name Of Satan
+5. Noisrevrep Eht Refta
+6. Damnation (Raping The Angels)
+7. The Black Vomit
+8. Nuctemeron Of Necromanteion
+9. Condemned To Hell
+10.Impurity Of Dawn
+11.The Crucified
+12.Infernus
+13.Morbid Fate
+14.Ave Satanas !
+15.In The Name Of Satan (Part II)
+16.Fall To Fornication
+17.Damnation (Part II)
+
+Produced by Impaled Nazarene.
+
+(p)(c) 1996 OSMOSE Productions
+
+### "Latex Cult" 1996, Black Metal
+
+1.  66.6S Of Foreplay
+2.  1999: Karmakeddon Warriors
+3.  Violence I Crave
+4.  Bashing In Heads
+5.  Motorpenis
+6.  Zum Kotzen
+7.  Alien Militant
+8.  Goat War
+9.  Punishment Is Absolute
+10.When All Golden Turn To Shit
+11.Masterbator
+12.The Burning Of Provinciestraat
+13.I Eat Pussy For Breakfast
+14.Delirium Tremens
+
+All Songs Written By IMPALED NAZARENE.
+Produced By Luttinen & Antilla.
+Engineered By Ahti Kortelainen.
+Recorded & Mixed At Tico-Tico Music 
+Studio, Kemi, Finland.
+
+Luttinen - Vocals
+Kellokoski - Drums
+Jarva - Bass
+Antilla - Guitars
+
+(p)&(c) 1996 OSMOSE Productions
+
+### "Motorpenis" 1996, Black Metal
+
+1.  Motorpenis
+2.  Whore
+3.  S-M Party
+4.  Transvestite
+5.  Alkohol
+
+3 - Song By TAFF - BEY
+4 - Song By TERVEET KADET
+5 - Song By GANG GREEN
+
+Recorded At Tico-Tico Studio
+Produced By Luttinen And Antilla
+Engineered By Ahti 'Katevaa' Kortelainen
+
+Luttinen - Vocals
+Kellokoski - Drums
+Antilla - Guitars
+Jarva - Bass
+
+(P)c 1996 OSMOSE Productions// OPCD 039
+
+### "Rapture" 1999, Black Metal
+
+1. Penis et Circes
+2. 6th Degree Mindfuck
+3. Iron Fist with an Iron Will
+4. Angel Rectums Do Bleed
+5. We're Satan's Generation
+6. Goatvomit And Gasmasks
+7. Fallout Theory in Practice
+8. Healers of the Red Plague
+9. The Pillory
+10. The Return of Nuclear Gods
+11. Vitutation
+12. JCS
+13. Inbred
+14. Phallus Maleficarum
+
+bonus LP tracks:
+15. "Burst Command 'til War" (Sodom cover) 
+16. "Nuclear Metal Retaliation" 
+
+
+### "Nihil" 2000, Black Metal
+
+1. Cogito Ergo Sum
+2. Human-proof
+3. Wrath Of The Goat
+4. Angel rectums Still Bleed - the sequel
+5. Post Eclipse Era
+6. Nothing Is Sacred
+7. Zero Tolerance
+8. Assault The Weak
+9. How The Laughter Died
+10. Nihil
+
+
+### "Decade Of Decadence" 2000, Black Metal
+
+
+
+### "Absence of War Does Not Mean Peace" 2001, Black Metal
+
+Stratagem
+Absence Of War
+The Lost Art Of Goat Sacrificing
+Prequel To Bleeding (Angels III)
+Hardboiled And Still Hellbound
+Into The Eye Of The Storm
+Before The Fallout
+Humble Fuck Of Death
+Via Dolorosa
+Nyrkill&#228; Tapettava Huora
+Never Forgive
+Satan Wants You Dead
+The Madness Behind
+
+
+
+Total running time: 37:08
+
+recorded at Astia Studio by Anssi Kippo, assistant engineer Sauli Impola
+mixed at Finnvox Studio by Mikko Karmila
+mastered at Finnvox Studio by Mika Jussila
+produced by Anssi Kippo and Impaled Nazarene
+
+all this was done between July - August 2001 
+
+
+
+### "All That You Fear" 2003, Black Metal
+
+1 Kohta El Naura Enaa Jeesuskaan Squad  
+2 Amrageddon Death  
+3 The Endless War  
+4 The Maggot Crusher   
+5 Curse of the Dead Medusa  
+6 Suffer In Silence  
+7 Halo of Flies  
+8 Recreate thru Hate  
+9 Goat Seeds of Doom  
+10 Even More Pain  
+11 Tribulation Hell  
+12 Urgent Need to Kill  
+13 All That You Fear
+
+### "Death Comes In 26 Carefully Selected Pieces (live)" 2005, Black Metal
+
+Intro 
+The Horny And The Horned 
+Armageddon Death Squad 
+Goat Perversion 
+1999: Karmageddon Warriors 
+Motorpenis 
+Kohta Ei Naura Enaa Jeesuskaan 
+The Endless War 
+Sadhu Satana 
+Ghettoblaster 
+Coraxo 
+Soul Rape 
+Sadistic 666/Under A Golden Shower 
+Zero Tolerance 
+The Maggot Crusher 
+Let's Fucking Die 
+Tribulation Hell 
+We're Satan's Generation 
+Cogito Ergo Sum 
+Goat Seeds Of Doom 
+Condemned To Hell 
+Intro S.F.P. 
+Sadogoat 
+Vitutuksen Multihuipennus 
+The Lost Art Of Goat Sacrificing 
+Total War – Winter War
+
+### "Pro Patria Finlandia" 2006, Black Metal
+
+01. Weapons To Tame A Land
+02. Something Sinister
+03. Goat Sodomy
+04. Neighbourcide
+05. One Dead Nation Under Dead God
+06. For Those Who Have Fallen
+07. Leucorrhea
+08. Kut
+09. This Castrated World
+10. Psykosis
+11. Contempt
+12. I Wage War
+13. Cancer
+14. Hate – Despise – Arrogance
+
+### "Manifest" 2007, Black Metal
+
+1. Intro: Greater Wrath 01:21  
+2. The Antichrist Files 01:23
+3. Mushroom Truth 03:39  
+4. You Don't Rock Hard 02:14 
+5. Pathogen 03:04 
+6. Pandemia 01:58  
+7. The Calling 03:56  
+8. Funeral for Despicable Pigs 03:33 
+9. Planet Nazarene 03:51  
+10. Blueprint for Your Culture's Apocalypse 02:49 
+11. Goat Justice 02:29 
+12. Die Insane 03:55 
+13. Original Pig Rig 03:42  
+14. Suicide Song 03:26  
+15. When Violence Commands the Day 03:34 
+16. Dead Return 05:34 
+
+
+
+Line-up:
+Arc Basstard - bass
+Anttila - guitar
+Ug - lead guitar
+Repe Misanthrope - drums
+Mikaakim - vocals
+
+Tuomio played all lead guitars on this album.
+
+"Manifest" was recorded and mixed at Sonic Pump Studio by Tapio Pennanen between
+May and July 2007. Mastered at Finnvox Studio by Mika Jussila in August 2007.
+All songs written by Impaled Nazarene, except "Intro: Greater Wrath" by
+Trollhorn and Repe Misanthrope.
+
+
+
+### "Road to the Octagon" 2010, Black Metal
+
+1. Enlightenment Process 02:19  
+2. The Day of Reckoning 02:26  
+3. Corpses 02:45  
+4. Under Attack 02:44  
+5. Tentacles of the Octagon 01:32  
+6. Reflect on this 02:16  
+7. Convulsing Uncontrollably 02:14  
+8. Cult of the Goat 03:09  
+9. Gag Reflex 03:00  
+10. The Plan 01:59  
+11. Silent and Violent Type 02:18  
+12. Execute Tapeworm Extermination 02:10  
+13. Rhetoric Infernal 04:21 
+
+
+### "Vigorous and Liberating Death" 2014, Black Metal
+
+1. King Reborn  02:39   
+2. Flaming Sword of Satan  03:16   
+3. Pathological Hunger for Violence  02:33   
+4. Vestal Virgins  02:44   
+5. Martial Law  02:24  
+6. Riskiarvio  03:25  
+7. Apocalypse Principle  02:39   
+8. Kuoleman varjot  01:37  
+9. Vigorous and Liberating Death  02:38   
+10. Drink Consultation  02:21   
+11. Dystopia A. S.  02:31   
+12. Sananvapaus  00:44   
+13. Hostis Humani Generis  04:17 
+
+First 2000 copies are in transparent red jewel cases. 
+
+ Song title translations:
+ 6. Risk Evaluation
+ 8. Shadows of Death
+ 12. Freedom of Speech
+
+
+ Recorded between December 2013 and February 2014 at S/Mental and City Lights Studios.
+ Mixed at Studio Fungus in February 2014.
+ Mastered at Finnvox Studios.
+
+
+### "Morbid Fate (single)" 2017, Black Metal
+
+1. Morbid Fate  03:08   
+2. Riding with the Driver (Motorhead cover)  03:51
+
+"Morbid Fate" is a new re-recorded version of the song from the "Taog eht fo Htao Eht" demo (1991).
+
 
 ## Отношения с другими группами
 

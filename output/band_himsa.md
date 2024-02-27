@@ -1,7 +1,23 @@
 # Himsa
 
-Дискография
-"Summon In Thunder" 2007, Metalcore
+
+
+## Дискография
+
+### "Summon In Thunder" 2007, Metalcore
+
+01. Reinventing The Noose 
+02. Haunter 
+03. Big Timber
+04. Given In To The Taking 
+05. Skinwalkers 
+06. Curseworship 
+07. Hooks As Hands 
+08. Ruin Them 
+09. Den Of Infamy 
+10. Unleash Carnage 
+11. Summon In Thunder
+
 
 ## Отношения с другими группами
 

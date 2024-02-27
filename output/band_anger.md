@@ -1,7 +1,32 @@
 # Anger
 
-Дискография
-"Chaos" 2002, Deathcore
+
+
+## Дискография
+
+### "Chaos" 2002, Deathcore
+
+1. F.I.Y.A. 
+2. Change 
+3. Inside 
+4. Lady Violence 
+5. Petit Paradise 
+6. Back to be Alive 
+7. Fuck off 
+8. Discodeath 
+9. United States of Satan 
+10. Blackside 
+11. Walking Down 
+12. Out of Control 
+
+
+
+Mass Quake - bass/drum patterns/editing
+Oleg Smirnoff - synth and keyboards
+Frank Andiver - drums
+Maurice Butler - all guitars and vocals
+
+
 
 ## Отношения с другими группами
 

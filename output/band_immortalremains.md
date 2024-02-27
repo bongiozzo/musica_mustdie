@@ -1,9 +1,42 @@
 # Immortal Remains
 
-Дискография
-"Porta Ad Tenebras" 2004, Black Metal
-"Seelenfeuer" 2006, Black Metal
-"Everlasting Night" 2009, Black Metal
+
+
+## Дискография
+
+### "Porta Ad Tenebras" 2004, Black Metal
+
+1. Praeludium	 
+2. Twinable Blood	 
+3. Temptation To Die	 
+4. Declaration Of War	 
+5. Armageddon	 
+6. Non Serviam
+
+### "Seelenfeuer" 2006, Black Metal
+
+1. Codex Eternum	04:32	 
+2. K&#246;nigreich Der Dunkelheit	03:49
+3. Seelenfeuer	05:29	 
+4. Flammenpfad	01:55	 
+5. Dem K&#246;nigreich in Ewigkeit	04:49	 
+6. Glad About Killing You	04:13	 
+7. Blutspiel	05:00	 
+8. When the Black Gate Opens
+
+### "Everlasting Night" 2009, Black Metal
+
+1. Intro 
+2. Xeper	 
+3. The Hunting		 
+4. Everlasting Night	 
+5. Die Nacht	 
+6. Goatpath 
+7. Insomnia	 
+8. Thorn	 
+9. Keys 
+10. Outro
+
 
 ## Отношения с другими группами
 

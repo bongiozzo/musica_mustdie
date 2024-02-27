@@ -1,7 +1,13 @@
 # Adenosine-Tri-Phosphate
 
-Дискография
-"Deranged Angel" 2000, Gothic
+Japan Gothic Rock
+
+## Дискография
+
+### "Deranged Angel" 2000, Gothic
+
+
+
 
 ## Отношения с другими группами
 

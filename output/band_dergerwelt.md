@@ -1,8 +1,27 @@
 # Der Gerwelt
 
-Дискография
-"Revelation 666" 2000, Black Metal
-"Human Breed" 2003, Death Metal
+
+
+## Дискография
+
+### "Revelation 666" 2000, Black Metal
+
+1. Sons Of The Moon And Fire  
+2. Revelation 666  
+3. Thy Darkness And Hate  
+4. Descending In The Mist  
+5. Nordic Power (Bonus) 
+
+### "Human Breed" 2003, Death Metal
+
+1. Intro
+2. A Shred of Me I Cannot Reach 
+3. Newborn World As We Know It
+4. Into Mayhem 
+5. A Bleeding Path 
+6. Dreaming With The Dead 
+7. Human Breed (Ripped Open to a New Reality)
+
 
 ## Отношения с другими группами
 

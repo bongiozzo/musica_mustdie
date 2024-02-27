@@ -1,6 +1,9 @@
 # War March
 
-Дискография
+drummer of Disciples of Power
+
+## Дискография
+
 
 ## Отношения с другими группами
 

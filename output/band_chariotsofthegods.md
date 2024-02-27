@@ -1,8 +1,17 @@
 # Chariots of the Gods
 
-Дискография
-"Tides of War" 2013, Metalcore
-"Ages Unsung" 2016, Metalcore
+
+
+## Дискография
+
+### "Tides of War" 2013, Metalcore
+
+
+
+### "Ages Unsung" 2016, Metalcore
+
+
+
 
 ## Отношения с другими группами
 

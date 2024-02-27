@@ -1,18 +1,210 @@
 # Jorn Lande
 
-Дискография
-"Starfire" 2000, Hard Rock
-"Worldchanger" 2001, Hard Rock
-"Out To Every Nation" 2004, Hard Rock
-"The Duke" 2006, Hard Rock
-"The Gathering" 2007, Hard Rock
-"Unlocking the Past" 2007, Hard Rock
-"Live In America" 2007, Hard Rock
-"Lonely Are The Brave " 2008, Heavy Metal
-"Spirit Black" 2009, Hard Rock
-"Dukebox" 2009, Hard Rock
-"Song For Ronnie James" 2010, Hard Rock
-"Bring Heavy Rock to the Land" 2012, Hard Rock
+the best new rock vocalist
+
+## Дискография
+
+### "Starfire" 2000, Hard Rock
+
+1. Starfire
+2. Edge Of The Blade
+3. Forever Yours
+4. The Day The Earth Caught Fire
+5. Gate Of Tears
+6. Burn
+7. End Comes Easy
+8. Just The Same
+9. Abyss Of Evil
+
+### "Worldchanger" 2001, Hard Rock
+
+1. Tungur Knivur
+2. Sunset Station
+3. Glow In The Dark
+4. House Of Cards
+5. Bless The Child
+6. Captured
+7. Worldchanger
+8. Christine
+9. Bridges Will Burn
+
+### "Out To Every Nation" 2004, Hard Rock
+
+1. Young Forever
+2. Out To Every Nation
+3. Something Real
+4. Living With Wolves
+5. Vision Eyes
+6. One Day We Will Put Out The Sun
+7. Behind The Clown
+8. Rock Spirit
+9. Through Day And Night
+10. When Angel Wings Were White
+
+### "The Duke" 2006, Hard Rock
+
+We Brought the Angels Down 
+Blacksong 
+Stormcrow 
+End of Time 
+Duke of Love 
+Burning Chains 
+After the Dying 
+Midnight Madness 
+Are You Ready? (Thin Lizzy cover) 
+Starfire (2005 version)
+
+### "The Gathering" 2007, Hard Rock
+
+01. Something Real
+02. Gonna Find The Sun
+03. Bridges Will Burn
+04. Young Forever
+05. Tungur Knivur
+06. One Day We Will Put Out The Sun
+07. Sunset Station
+08. Hourglass
+09. Gate Of Tears
+10. House Of Cards
+11. My Own Way
+12. Worldchanger
+13. Abyss Of Evil
+14. Where The Winds Blow
+15. Christine
+16. Big
+
+### "Unlocking the Past" 2007, Hard Rock
+
+01. On And On (MSG)
+02. Fool For Your Loving (WHITESNAKE)
+03. Cold Sweat (THIN LIZZY)
+04. Lonely Is The Word/Letters From Earth (BLACK SABBATH)
+05. Burn (DEEP PURPLE)
+06. Feel Like Making Love (BAD COMPANY)
+07. Kill The King (RAINBOW)
+08. Perfect Strangers (DEEP PURPLE)
+09. Naked City (KISS)
+10. The Day The Earth Caught Fire (CITY BOY)
+
+### "Live In America" 2007, Hard Rock
+
+Disc 1
+1. We Brought The Angels Down
+2. Duke Of Love
+3. Are You Ready
+4. Cold Sweat
+5. Drum Solo
+6. Out To Every Nation
+7. Guitar Solo
+8. Straight Through The Heart
+
+Disc 2
+1. Godless And Wicket
+2. Soulburn
+3. Devilbird
+4. Perfect Strangers
+5. Gonna Find The Sun
+6. The Withesnake Medley
+7. Out To Every Station
+8. Lonely Is the Word / Letters From Earth
+9. Sacrificical Feelings
+
+Jorn Lande - vocals
+Tore Moren - guitar
+Jorn Viggo Lofstad - guitar
+Willy Bendricksen - drums
+Stian Kristofferson - drums
+Steinar Krokmo - bass
+Lasse Finbratten - keys
+
+### "Lonely Are The Brave " 2008, Heavy Metal
+
+1. Lonely Are The Brave 04:17  
+2. Night City 05:27  
+3. War Of The World 05:33  
+4. Shadow People 03:34  
+5. Soul Of The Wind 06:03  
+6. Man Of The Dark 05:11  
+7. Promises 04:44  
+8. The Inner Road 04:56  
+9. Hellfire 06:12 
+Available on the Special Limited Edition:
+10. Stormbringer
+11. Like Stone In Water 
+
+### "Spirit Black" 2009, Hard Rock
+
+1. Spirit Black 04:41  
+2. Below 04:35  
+3. Road of the Cross 05:28  
+4. The Last Revolution 03:40  
+5. City Inbetweeen 05:49  
+6. Rock And Roll Angel 04:46  
+7. Burn Your Flame 02:42  
+8. World Gone Mad 04:20  
+9. I Walk Alone 04:28  
+10. The Sun Goes Down 
+
+
+Line-up:
+
+Jшrn Lande - Vocals
+Igor Gianola - Guitars
+Tore Moren - Guitars
+Nic Angileri - Bass
+Willy Bendiksen - Drums
+
+Last track is bonus track exclusively included in the first limited edition pressing in digipak. 
+
+### "Dukebox" 2009, Hard Rock
+
+1. Man Of The Dark 
+2. Starfire 
+3. Young Forever 
+4. Soul Of The Wind 
+5. Living With Wolves 
+6. War Of The World 
+7. Sunset Station 
+8. We Brought The Angels Down 
+9. The Inner Road 
+10. Tungur Knivur 
+11. Stormcrow 
+12. Out To Every Nation 
+13. Lonely Are The Brave 
+14. Blacksong 
+15. Shadow People 
+16. Duke Of Love 
+
+### "Song For Ronnie James" 2010, Hard Rock
+
+1. Song For Ronnie James
+2. Invisible
+3. Shame Of The Night
+4. Push
+5. Stand Up And Shout
+6. Don't Talk To Strangers
+7. Lord Of The Last
+8. Night People
+9. Sacred Heart
+10. Sunset Superman
+11. Lonely Is The World/Letters From The Earth
+12. Kill The King
+13. Straight Through The Heart
+
+### "Bring Heavy Rock to the Land" 2012, Hard Rock
+
+01. My Road
+02. Bring Heavy Rock To The Land
+03. A Thousand Cuts
+04. Ride Like The Wind
+05. Chains Around You
+06. The World I See
+07. Time To Be King
+08. Ride To The Guns
+09. Black Morning
+10. I Came To Rock
+11. Live And Let Fly (bonus track)
+
 
 ## Отношения с другими группами
 

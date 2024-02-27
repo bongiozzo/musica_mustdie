@@ -1,10 +1,54 @@
 # Architects
 
-Дискография
-"Nightmares" 2006, Metalcore
-"Ruin" 2008, Metalcore
-"Hollow Crown" 2009, Metalcore
-"The Here And Now" 2011, Metalcore
+
+
+## Дискография
+
+### "Nightmares" 2006, Metalcore
+
+To The Death 
+You Don't Walk Away From Dismemberment 
+Minesweeper 
+They'll Be Hanging Us Tonight 
+This Confession Means Nothing 
+Portrait For The Deceased 
+In The Desert 
+Darkest Tomb
+
+### "Ruin" 2008, Metalcore
+
+1. Buried At Sea
+2. Hunt Them Down
+3. You'll Find Safety
+4. Always
+5. Sail This Ship Alone
+6. Heartless
+7. North Lane
+8. I Can't See The Light
+9. Low
+10. Running From The Sun
+11. Save Me
+
+### "Hollow Crown" 2009, Metalcore
+
+01. Early Grave
+02. Dethroned
+03. Numbers Count For Nothing
+04. Follow The Water
+05. In Elegance
+06. We're All Alone
+07. Borrowed Time
+08. Every Last Breath
+09. One Of These Days
+10. Dead March
+11. Left With A Last Minute
+12. Hollow Crown
+13. To The Death (2008)
+
+### "The Here And Now" 2011, Metalcore
+
+
+
 
 ## Отношения с другими группами
 

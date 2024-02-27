@@ -1,7 +1,25 @@
 # Mutiilation
 
-Дискография
-"Vampires Of Black Imperial Blood" 1996, Black Metal
+Killer Brutal Black Metal
+
+## Дискография
+
+### "Vampires Of Black Imperial Blood" 1996, Black Metal
+
+1.  Magical Shadows Of A Tragic Past
+2.  Born Under The Master's Spell
+3.  Ravens Of My Funeral
+4.  Black Imperial Blood
+5.  Eternal Empire Of Majesty Death
+6.  Transylvania
+7.  Under Ardalles Night
+8.  Tears Of A Melancholic Vampire
+
+Mordred - Bass,
+Meyhna'ch - Moonyells, Guitars
+
+(P)c 1996 DRAKKAR PROD // DK 001
+
 
 ## Отношения с другими группами
 

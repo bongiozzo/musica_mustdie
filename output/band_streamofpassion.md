@@ -1,11 +1,134 @@
 # Stream Of Passion
 
-Дискография
-"Embrace the Storm" 2005, Gothic
-"Feat Ayreon Live In The Real World Dvd" 2006, Gothic
-"The Flame Within" 2009, Gothic
-"Darker Days" 2011, Gothic
-"A War of Our Own" 2014, Gothic
+Gothic Rock feat A. Lucassen
+
+## Дискография
+
+### "Embrace the Storm" 2005, Gothic
+
+1. Spellbound 
+2. Passion 
+3. Deceiver 
+4. I'll Keep on Dreaming 
+5. Haunted 
+6. Wherever You Are 
+7. Open Your Eyes 
+8. Embrace the Storm 
+9. Breathing Again 
+10. Out in the Real World 
+11. Nostalgia 
+12. Calliopeia 
+
+
+Johan van Stratum - Bass guitar 
+Davy Mickers - Drums 
+Marcela Bovio - Vocals, lyrics, violin 
+Arjen Lucassen - Guitars, music 
+Lori Linstruth - Lead guitars 
+Alejandro Millбn - Piano
+
+### "Feat Ayreon Live In The Real World Dvd" 2006, Gothic
+
+01. Intro
+02. Spellbound
+03. Passion
+04. Waracle
+05. Wherever You Are
+06. Computer Eyes
+07. Calliopeia
+08. Valley Of The Queens
+09. Haunted
+10. The Charm Of The Seer
+11. Deceiver/Songs Of The Ocean
+12. Day One: Vigil
+13. Day Three: Pain
+14. Nostalgia
+15. Out In The Real World
+16. The Castle Hall
+17. Into The Black Hole
+18. When The Levee Breaks
+19. Day Eleven: Love
+
+Extras:
+
+01. Live in concert (2.0 and 5.1)
+02. Behind the scenes
+03. Photo gallery
+04. Out In The Real World (video clip)
+05. Making of the video clip
+06. Tour diary
+
+### "The Flame Within" 2009, Gothic
+
+1. The Art Of Loss 03:57  
+2. In The End 04:01  
+3. Now Or Never 04:13  
+4. When You Hurt Me The Most 04:46  
+5. Run Away 04:16  
+6. Games We Play 04:02  
+7. This Endless Night 04:20  
+8. My Leader 04:53  
+9. Burn My Pain 04:18  
+10. Let Me In 03:32  
+11. Street Spirit 05:22  
+12. A Part Of You 04:48  
+13. All I Know 02:12 
+
+
+Full-length, Napalm Records
+May 29th, 2009  [add/edit review]   
+ 
+ 
+ 
+Line-up:
+
+Marcela Bovio - Vocals, Violins
+Eric Hazebroek - Guitars
+Stephan Schultz - Guitars
+Johan van Stratum - Bass
+Jeffrey Revet - Keyboards
+Davy Mickers - Drums
+
+The digipack edition contains the bonus song:
+14. Far And Apart
+ 
+
+
+### "Darker Days" 2011, Gothic
+
+1. Lost  05:27 
+2. Reborn  03:37   
+3. Collide  05:20   
+4. The Scarlet Mark  03:41  
+5. Spark  02:36  
+6. Our Cause  04:43   
+7. Darker Days  04:29   
+8. Broken  04:45   
+9. This Moment  03:54
+10. Closer  04:37   
+11. The Mirror  03:31
+12. Nadie Lo Ve  03:04   
+13. The World Is Ours  03:46 
+
+### "A War of Our Own" 2014, Gothic
+
+1. Monster 05:53
+2. A War of Our Own 04:10
+3. The Curse 04:24
+4. Autophobia 03:48
+5. Burning Star 03:44
+6. For You 03:01
+7. Exile 05:10
+8. Delirio 05:02
+9. Earthquake 04:27
+10. Secrets 04:39
+11. Don't Let Go 06:00
+12. Out of the Darkness 04:43
+
+
+Digipack bonus track:
+13. The Distance Between Us 
+
 
 ## Отношения с другими группами
 

@@ -1,12 +1,100 @@
 # Charon
 
-Дискография
-"Sorrowburn" 1998, Gothic
-"Tearstained" 2000, Gothic
-"Downhearted" 2002, Gothic
-"Religious/Delicious (single)" 2003, Gothic
-"The Dying Daylights" 2003, Gothic
-"Songs for the Sinners" 2005, Gothic
+finnish gothic-doom
+
+## Дискография
+
+### "Sorrowburn" 1998, Gothic
+
+1. Burndown
+2. Wortex 
+3. Breeze
+4. Serenity
+5. To serve you 
+6. Nightwing
+7. Neverbirth 
+8. Kheimos
+9. November's eve 
+10. Morrow 
+
+
+Sorrowburn was recorded and mixed in BRR-studio/Raahe, Finland in Januarius 1998 by J. Matinheikki & Charon. 
+
+
+
+
+
+### "Tearstained" 2000, Gothic
+
+1. Worthless 
+2. Sorrowbringer 
+3. 4 Seasons rush
+4. Deepest scar
+5. Christina bleeds
+6. The drift
+7. Sin
+8. Holy
+9. Your Christ
+10. As we die 
+11. Stone  
+
+
+Recorded by Juha Matinheikki at BRR-studios, Raahe in November 1999, Mixed by Mikko Karmila at Finnvox-studios, Helsinki in December 1999, Mastered by Mika Jussila at Finnvox-studios, Helsinki in December 1999 
+
+
+
+### "Downhearted" 2002, Gothic
+
+1. Bitter Joy 
+2. At The End of Our Day
+3. Craving
+4. Little Angel 
+5. Fall
+6. Erase Me 
+7. Desire You
+8. Come Tonight 
+9. All I Care Is Dying
+10. Sister Misery 
+11. Sorrowsong 
+
+
+Produced by Charon and Juha Matinheikki, Additional production by Mikko Karmila, Recorded by Juha Matinheikki and Antti Karihtala at BRR-Studios, Raahe in July-September 2001. Engineered by Juha Matinheikki and Mikko Karmila. Additional recordings by Risto Hemmi and Mikko Karmila at Finnvox-studios, Helsinki in October 2001, Mixed by Mikko Karmila at Finnvox-studios, Helsinki in December 2001, except "Little angel", "Sister misery" and "Desire you" mixed in October 2001, Mastered by Mika Jussila at Finnvox-studios, Helsinki in December 2001 
+
+
+
+### "Religious/Delicious (single)" 2003, Gothic
+
+
+
+### "The Dying Daylights" 2003, Gothic
+
+01. Failed
+02. Religious/Delicious
+03. Death Can Dance 
+04. In Brief War 
+05. Guilt On Skin 
+06. Unbreak, Unchain 
+07. Drive
+08. Every Failure 
+09. In Trust Of No One 
+10. If 
+11. No Saint
+12. Built For My Ghosts (digipack only) 
+13. Re-collected (digipack only)
+
+### "Songs for the Sinners" 2005, Gothic
+
+01. Colder 
+02. Deep Water 
+03. Bullet 
+04. Rain 
+05. Air 
+06. She Hates 
+07. Ride on Tears 
+08. Gray 
+09. Rust 
+10. House of the Silent
+
 
 ## Отношения с другими группами
 

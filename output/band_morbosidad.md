@@ -1,10 +1,25 @@
 # Morbosidad
 
-Дискография
-"Morbosidad" 2000, Black Metal
-"Cojete a Dios por el Culo" 2004, Black Metal
-"Legiones Bestiales (EP)" 2006, Black Metal
-"Profana la Cruz del Nazareno" 2008, Black Metal
+
+
+## Дискография
+
+### "Morbosidad" 2000, Black Metal
+
+
+
+### "Cojete a Dios por el Culo" 2004, Black Metal
+
+
+
+### "Legiones Bestiales (EP)" 2006, Black Metal
+
+
+
+### "Profana la Cruz del Nazareno" 2008, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

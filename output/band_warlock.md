@@ -1,10 +1,80 @@
 # Warlock
 
-Дискография
-"Burning The Witches" 1984, Heavy Metal
-"Hellbound" 1985, Heavy Metal
-"True As Steel" 1986, Heavy Metal
-"Triumph And Agony" 1987, Heavy Metal
+
+
+## Дискография
+
+### "Burning The Witches" 1984, Heavy Metal
+
+1. Sign Of Satan
+2. After The Bomb
+3. Dark Fade
+4. Homicide Rocker
+5. Without You
+6. Metal Racer
+7. Burning The Witches
+8. Hateful Guy
+9. Holding Me
+
+ Doro Pesch - Vocals
+ Peter Sziget - Guitars
+ Rudy Graf - Guitars
+ Frank Rittel - Bass
+ Michael Eurich - Drums
+
+(p)&(c) 1984 PHONOGRAM Records
+
+### "Hellbound" 1985, Heavy Metal
+
+1. Hellbound
+2. All Night
+3. Earthshaker Rock
+4. Wrathchild
+5. Down And Out
+6. Out Of Control
+7. Time To Die
+8. Shout It Out
+9. Catch My Heart
+
+ Doro Pesch - Vocals
+ Peter Sziget - Guitars
+ Rudy Graf - Guitars
+ Frank Rittel - Bass
+ Michael Eurich - Drums
+
+(p)&(c) 1985 PHONOGRAM Records
+
+### "True As Steel" 1986, Heavy Metal
+
+1. Mr.Gold
+2. Fight For Rock
+3. Cove In Danger Zone
+4. Speed Of Sound
+5. Midnight In China
+6. Vorwarts All Right!
+7. True As Steel
+8. Lady In Rock 'N' Roll Hell
+9. Love Song
+10. Igloo On The Moon
+11. T.O.L.
+
+(P)&(C) 1986 PHONOGRAM Records
+
+### "Triumph And Agony" 1987, Heavy Metal
+
+1. All We Are
+2. Threee Minute Warning
+3. I Rule The Ruins
+4. Kiss Of Death
+5. Make Time For Love
+6. East Meets West
+7. Touch Of Evil
+8. Metal Tango
+9. Cold,Cold World
+10.Fur Immer
+
+(P)&(C) 1987 PHONOGRAM Records
+
 
 ## Отношения с другими группами
 

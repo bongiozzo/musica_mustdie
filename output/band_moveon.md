@@ -1,7 +1,35 @@
 # Move On
 
-Дискография
-"...Anytime But Now" 1994, Rap Metal
+RAP Style
+
+## Дискография
+
+### "...Anytime But Now" 1994, Rap Metal
+
+1. Intro
+2. Convicted
+3. Check Your Laws
+4. Words
+5. One The Way Down
+6. Dust In My Dick
+7. Friends
+8. Sometimes
+9. Anytime But Now
+10. Cripped By Convention
+11. Straight Up
+12. Burning Out
+
+ Till BC - Voice
+ Johannes - Guitars
+ Lars - Bass
+ Titus - Drums
+
+All Songs By MOVE ON
+Produced By Sascha Wolff
+Recorded In May - June 1994 At House Tonstudio,  Karldorf
+
+(p)&(c) 1994 WOLVERINE Records
+
 
 ## Отношения с другими группами
 

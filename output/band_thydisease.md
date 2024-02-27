@@ -1,13 +1,109 @@
 # Thy Disease
 
-Дискография
-"Art Of Decadence (demo)" 2000, Death Metal
-"Devilish Act of Creation" 2001, Death Metal
-"Cold Skin Obsession" 2002, Death Metal
-"Neurotic World Of Guilt" 2004, Death Metal
-"Rat Age (Sworn Kinds Final Verses)" 2006, Metal
-"Anshur-Za" 2009, Death Metal
-"Costumes Of Technocracy" 2014, Death Metal
+
+
+## Дискография
+
+### "Art Of Decadence (demo)" 2000, Death Metal
+
+
+
+### "Devilish Act of Creation" 2001, Death Metal
+
+1.Condemnation of Whores 
+2.Angel Ashamed 
+3.Impure Lust 
+4.Crashing the Soul 
+5.Finding God 
+6.The Wish 
+7.New Slaughter 
+8.Art of Decadence 
+9.Cursed 
+10.My Serpent 
+11.Frozen 
+12.Act of Creation  
+
+
+
+PSYCHO - vocals 
+YANUARY - guitars 
+PEPEK - guitars 
+MARCO'TIC - bass guitar
+PINOCCHIO - drums
+CUBE - keyboards
+
+
+
+Music by Yanuary & Cube 
+Lyrics by Psycho 
+Produced and engineered by Jarosіaw Baran 
+Recorded and mixet at Jaro Home Studio, Skawina 2001 VIII-IX 
+Layout by Jarosіaw Kubicki 
+
+### "Cold Skin Obsession" 2002, Death Metal
+
+1. Perfect Form 
+2. Blade Intimacy 
+3. War is Mine 
+4. Ultimate Reign 
+5. The Last of the Mohicans 
+6. Cold 
+7. Redemption in... Pain 
+8. Nihilistic Tranquillity 
+9. Qualbuhu la jadruqqu
+10. Without Judgement
+
+ 
+
+
+PSYCHO - vocals 
+YANUARY - guitars 
+PEPEK - guitars 
+MARCO'TIC - bass guitar
+PINOCCHIO - drums
+CUBE - keyboards
+
+
+
+Music by Yanuary & Cube 
+Lyrics by Psycho 
+Produced and engineered by Jarosіaw Baran 
+Recorded and mixet at Jaro Home Studio, Skawina 2002 IX 
+Layout by Jarosіaw Kubicki 
+
+### "Neurotic World Of Guilt" 2004, Death Metal
+
+The Feast 
+Spawn 
+Mean, Holy Species 
+Mother Death 
+Humans Dust 
+Hollowed Being 
+Neurotic World Of Guilt - Dissected God 
+Neurotic World Of Guilt - Slaved Sorrow 
+Neurotic World Of Guilt - Shame Upadіe Anioіy (polish version)
+
+### "Rat Age (Sworn Kinds Final Verses)" 2006, Metal
+
+
+
+### "Anshur-Za" 2009, Death Metal
+
+
+
+### "Costumes Of Technocracy" 2014, Death Metal
+
+01. Slave State 03:27
+02. Muted Scream 03:34
+03. Costumes of Technocracy 04:24
+04. Psycho Parasites 04:13
+05. Holographic Reality 04:20
+06. Corporate Cull 04:54
+07. Synthetic Messiah 03:33
+08. Drowning 04:33
+09. MK Ultra 03:01
+10. Global Technocratic Prison 04:53
+
 
 ## Отношения с другими группами
 

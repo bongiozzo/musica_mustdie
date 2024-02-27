@@ -1,7 +1,28 @@
 # Uneven Structure
 
-Дискография
-"Februus" 2011, Progressive
+
+
+## Дискография
+
+### "Februus" 2011, Progressive
+
+Disc One:
+1. Awaken
+2. Frost
+3. Hail
+4. Exmersion
+5. Buds
+6. Awe
+7. Quittance
+8. Limbo
+9. Plenitude
+10. Finale
+
+Disc Two:
+11. Dew Upon Shapeless Bounds
+12. Winds From Untold Memories
+13. Promises Of Our Early Days
+
 
 ## Отношения с другими группами
 

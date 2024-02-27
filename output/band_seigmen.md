@@ -1,7 +1,31 @@
 # Seigmen
 
-Дискография
-"Ameneon" 1995, Thrash
+
+
+## Дискография
+
+### "Ameneon" 1995, Thrash
+
+1.  Simone
+2.  Monsun
+3.  Negativ
+4.  Plutonium
+5.  Ameneon
+6.  Korsfarer
+
+All Songs Written By SEIGMEN.
+Produced By SEIGMEN.
+Engineered By Kai O.Andersen.
+Recorded At Athletic Sound Studio.
+
+Alex Moklebust - Vocals
+Sverre Okshoff - Guitars
+Norald Ronthi - Drums
+Marius Roth - Guitars
+Kim Ljung - Bass
+
+(P)&c 1995 VOICES Of WONDER Records
+
 
 ## Отношения с другими группами
 

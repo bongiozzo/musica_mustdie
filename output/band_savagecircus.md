@@ -1,9 +1,52 @@
 # Savage Circus
 
-Дискография
-"Dreamland Manor" 2005, Heavy Metal
-"Live In Atlanta [DVD]" 2007, Heavy Metal
-"Of Doom and Death" 2009, Heavy Metal
+
+
+## Дискография
+
+### "Dreamland Manor" 2005, Heavy Metal
+
+1. Evil Eyes
+2. Between The Devil And The Seas
+3. Waltz of The Demon
+4. Tomorrowland
+5. It - The Gathering
+6. Beyond Reality
+7. When Hell Awakes
+8. Ghost Story
+9. Born Again By The Night
+
+
+Thomen Stauch -drums
+Jens Carlsson - guitars, vocal
+Piet Sielck - bass
+Emil Norberg - guitars
+
+### "Live In Atlanta [DVD]" 2007, Heavy Metal
+
+01. Tomorrowland
+02. Evil Eyes
+03. Waltz Of The Demon
+04. IT - The Gathering
+05. Between The Devil And The Seas
+06. Beyond Reality
+07. Ghost Story
+08. When Hell Awakes
+09. Born Again by The Night
+10. Ca Plane Pour Moi
+
+### "Of Doom and Death" 2009, Heavy Metal
+
+1. Of Doom and Death 06:30
+2. The Ordeal 07:02
+3. Devil's Spawn 06:37 
+4. Chasing the Rainbow 07:08
+5. Empire 07:31
+6. Ballad of Susan 05:48
+7. Legend of Leto II 07:03 
+8. From the Ashes 07:27
+9. Dreamland 02:32 
+
 
 ## Отношения с другими группами
 

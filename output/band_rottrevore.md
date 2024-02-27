@@ -1,7 +1,36 @@
 # Rottrevore
 
-Дискография
-"Iniquitous" 1993, Deathcore
+
+
+## Дискография
+
+### "Iniquitous" 1993, Deathcore
+
+1. Jesters Of Recession
+2. Ceased By Failure
+3. Spawn Of Ignorance
+4. Unanimous Appoval
+5. Dismal Fate
+6. Disembodied
+7. Incompetent Secondary
+8. Conspiracised
+9. Actions For Loss
+10.Crude Domination
+11.Unbeknowst (Instr. Outro)
+
+ Mark Mastro - Guitar & Vocals
+ Chris Weber - Guitar & Vocals
+ Chris Free - Bass
+ Jason Graham - Drums
+
+All Music & Lyrics Written & Arranged By C. Weber & M.Mastro
+Engineered By Joe West
+Mixed By Joe West, C. Weber, & M. Mastro
+Recorded At Audiomation Studios, Pittsburg, Pennsylvania
+On February 2nd & 3nd, 1993
+
+(p)&(c) 1993 DROWNED Productions
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,24 @@
 # Kari Rueslatten
 
-Дискография
-"Other People’s Stories" 2004, Folk
+
+
+## Дискография
+
+### "Other People’s Stories" 2004, Folk
+
+Other People’s Stories
+Sorrow to My Door Dog Star
+Cry
+When Lilies Bloom on Winter Days…
+Push 
+Fishing
+Ride
+Carved in Stone
+Life
+Orlando
+Бонус: 
+Other people’s stories (видео)
+
 
 ## Отношения с другими группами
 

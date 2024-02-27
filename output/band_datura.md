@@ -1,8 +1,28 @@
 # Datura
 
-Дискография
-"Impulse 80" 2005, Deathcore
-"Mastodont 95 [EP]" 2006, Deathcore
+
+
+## Дискография
+
+### "Impulse 80" 2005, Deathcore
+
+1. Bodhisatva 01:05  
+2. Supertsar 02:46
+3. Godzilnik 02:33
+4. Bent Within 02:51
+5. Living For Free 02:22
+6. Operation Saturn 02:37 
+7. Carnivorous Ways (Deeds Of Flesh Cover) 03:04
+8. Fucked In Motherland 02:37
+9. Impulse 80 04:55 
+
+### "Mastodont 95 [EP]" 2006, Deathcore
+
+1. Dark Harmonists 02:58  
+2. Blessed are the sick (Morbid angel cover) 03:08  
+3. Torn into enthrallment (Suffocation cover) 05:53  
+4. Hypertrophic Sodom 02:46 
+
 
 ## Отношения с другими группами
 

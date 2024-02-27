@@ -1,10 +1,66 @@
 # Verjnuarmu
 
-Дискография
-"Muanpiallinen helevetti" 2006, Folk
-"Ruatokansan uamunkoetto" 2008, Folk
-"Lohuton" 2010, Folk
-"Pimmeyvven Ruhtinas" 2012, Black Metal
+Folk Metal
+
+## Дискография
+
+### "Muanpiallinen helevetti" 2006, Folk
+
+1. Kurjuuvven valssi 02:57 
+2. Vihankylyvaja 03:51  
+3. Noetavaeno 03:38  
+4. Jalakelaenen 03:34  
+5. Tuljmyrskyt 04:01  
+6. Itkuvirsj' 03:13  
+7. Kuuvven sylen syvvyyvessa 04:24  
+8. Kalaman kalapee 02:30  
+9. Laalavat jouset 05:02  
+10. Karahtany kyla 06:49
+
+### "Ruatokansan uamunkoetto" 2008, Folk
+
+1. Tulesta pimmeyven 
+2. Kuu paestaa, kuollu ajjaa 
+3. Mustan virran silta 
+4. Luita ja hampaeta 
+5. Surmatun s&#228;kkeet 
+6. Huaskalinnut 
+7. Kuhtumattomat vieraat 
+8. Kirkkomaun kansoo 
+9. R&#228;&#228;h&#228;henki 
+10. Kalamavesj&#180; 
+
+### "Lohuton" 2010, Folk
+
+01. Turja 
+02. Kuvajaenen 
+03. Luutarha 
+04. Paha paemenen puvussa 
+05. Lohuton 
+06. Pirun saana 
+07. Ualtoen viemдt 
+08. Korvo 
+09. Sysisyvдn 
+10. Vetteinen
+
+
+### "Pimmeyvven Ruhtinas" 2012, Black Metal
+
+01. Pimmeyvven Ruhtinas Palluu 03:28 
+02. Pimmeyvven Ruhtinas 03:26 
+03. Kalaman Kalopee 02:30 
+04. Harmoo Talo 04:14 
+05. Helevetin Vehkeet 02:16 
+06. Haavvan Takkoo 04:34 
+07. Mustan Virran Silta (Live)(Vaenajat Laateilla) 04:20 
+08. Kuuven Sylen Syvvyyvessa (Live)(Ruumiit Laateilla) 04:42 
+09. Itkuvirsj’ (Live)(Kuolleet Laateeilla) 04:23 
+10. Lentava Kalakukko 02:29 
+11. Kallavesj’ 07:12
+
+
+
+
 
 ## Отношения с другими группами
 

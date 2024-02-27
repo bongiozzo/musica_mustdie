@@ -1,7 +1,30 @@
 # Frown
 
-Дискография
-"Features and Causes Of The Frozen Origin" 2001, Gothic
+Type O'Negative Clone
+
+## Дискография
+
+### "Features and Causes Of The Frozen Origin" 2001, Gothic
+
+01. unnatural notion of love
+02. dawning (for a sweet girl)
+03. features and causes of the frozen origin
+04. enslaved hope
+05. breath for dead
+06. purged by the god
+07. dreadful moon
+08. dark side of the bark
+09. skyline (demo 98)
+10. i`m haunted (demo 98)
+Additional vocals: (2/3/4/6/7) Marek Gabor
+(Saprophyte) Drahos Jurik (Wayd) Oly (7) Chemik
+All lyrics by Marian Drac
+All songs on this album are composed by Frown
+(Marian Drac)
+Artwork: Slovakian crew - Peter Drac & Erik Perzel
+(bandphotos) German crew - Mikis Wesensbitter &
+Alex-The-Rock-Lobster (Layout & The Rest)
+
 
 ## Отношения с другими группами
 

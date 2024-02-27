@@ -1,9 +1,94 @@
 # Demoniac
 
-Дискография
-"Prepare For War" 1994, Black Metal
-"Stormblade" 1996, Black Metal
-"The Fire and the Wind" 1999, Black Metal
+Melodic Black Metal
+
+## Дискография
+
+### "Prepare For War" 1994, Black Metal
+
+1. Intro (Prologue Of War) - Prepare For War
+2. The Birth Of Diabolic Blood
+3. The Earth Calls Me
+4. Missein Anthropos
+5. Hammer Of Damnation
+6. The Return Of The Darkness And Evil *
+7. Celtic Sword Of Iron
+8. A. Narain
+9. Evocation
+10. Charoist
+11. So Bar Gar
+12. Dormant Entity
+13. Final (Epilogue Of War)
+
+ Adramolech - Vocals, Bass
+ Heimdall - Vocals, Drums
+ The Magus - Guitars
+ Behemoth - Adiitional Keyboards
+
+All Songs Written By DEMONIAC, Except * By BATHORY
+Produced By Neil Maddever & DEMONIAC
+Engineered By Neil Maddever
+Recorded & Mixed November - December 1994
+
+
+
+### "Stormblade" 1996, Black Metal
+
+1. Burn the Witch
+2. Domination
+3. Red Light
+4. Into the Cavern Light
+5. Hatred is Purity
+6. Fight the War
+7. Red Headed Maniac
+8. N.slut
+9. Stormblade & (Intro) 
+
+
+Recorded at Marmalade Studio New Zealand
+September 1996
+Mixed and mastered by Andre Downes and Demoniac
+Cover artwork by Jean Pascal Fournier
+ 
+Behemoth - Vocals, Bass
+Heimdall - Guitars
+Adramolech - Drums, Vocals
+
+ 
+
+
+### "The Fire and the Wind" 1999, Black Metal
+
+1. The Eagle Spreads Its Wings
+2. Daggers and Ice
+3. Demoniac Spell
+4. Night Demons
+5. Demons of the Night
+6. Myths of Metal
+7. Sons of the Master
+8. The Fire and the Wind
+
+
+All songs written and arranged by Behemoth, Heimdall, Li, Setinc
+Recorded at the Academy Music Studio January 1999
+Produced by Mags & Demoniac
+Engineered and mixed by Mags
+Mastered by fuck knows
+
+Cover concept by Demoniac
+Cover, sleeve, designed and laid out by Herman Li
+Censored cover by Graf'ik
+Additional logo artwork by Herman Li
+Photography by a bunch of metallers
+ 
+
+Behemoth - Vocals, Bass
+Heimdall - Lead & Rhythm Guitars, Keyboards
+Herman 'Shred' Li - Lead & Rhythm Guitars
+Matej Setinc - Drums
+
+
+
 
 ## Отношения с другими группами
 

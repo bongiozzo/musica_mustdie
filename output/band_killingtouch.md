@@ -1,7 +1,24 @@
 # Killing Touch
 
-Дискография
-"One of a Kind" 2009, Power Metal
+
+
+## Дискография
+
+### "One of a Kind" 2009, Power Metal
+
+1. The Touch
+2. Black Ice
+3. Wheel of Fortune
+4. Mimicking Death
+5. The Danger Zone
+6. One of a Kind
+7. Tommy’s Cane
+8. Still Walking	 
+9. Walls of Sympathy
+10. Falling Away
+11. Justify
+12. Thy Will Be Done
+
 
 ## Отношения с другими группами
 

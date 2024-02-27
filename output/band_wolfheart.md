@@ -1,8 +1,36 @@
 # Wolfheart
 
-Дискография
-"Winterborn" 2013, Metal
-"Shadow World" 2015, Metal
+In January 2013 Tuomas Saukkonen decided to disband all his then active bands, Before the Dawn, The Final Harvest, Black Sun Aeon, RoutaSielu and Dawn of Solace, in order to concentrate on his new band Wolfheart.
+
+## Дискография
+
+### "Winterborn" 2013, Metal
+
+1. The Hunt  04:56   
+2. Strength and Valor  04:09  
+3. Routa Pt.2  07:32   
+4. Gale of Winter  04:41   
+5. Whiteout  05:17   
+6. Ghosts of Karelia  04:41   
+7. I  04:48   
+8. Chasm  07:37   
+9. Breathe  05:53   
+10. Isolation  (Bonus 2015) 04:05   
+11. Into the Wild (Bonus 2015) 04:50 
+
+
+### "Shadow World" 2015, Metal
+
+1. Aeon of Cold      
+2. Zero Gravity     
+3. Storm Centre   
+4. Last of    
+5. All Winters     
+6. Nemesis      
+7. Abyss   
+8. Resistance  
+9. Veri  
+
 
 ## Отношения с другими группами
 

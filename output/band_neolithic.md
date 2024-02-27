@@ -1,8 +1,55 @@
 # Neolithic
 
-Дискография
-"The Personal Fragment Of Life" 1995, Death Doom
-"For Destroy The Lament" 1996, Death Doom
+Poland Death-Doom
+
+## Дискография
+
+### "The Personal Fragment Of Life" 1995, Death Doom
+
+1. Intro
+2. Wickedness Of The Objects
+3. Nightly Friends
+4. Unupdate Museum (In Memory Of Bruno Schulz)
+5. Undesirable Return
+6. Landscape
+
+ Piotr Wtulich - Vocals, Guitars
+ Miroslaw Szymanczak - Guitars
+ Michal Sarnowski - Bass
+ Janusz Jastrzebowski - Drums
+ Robert Bielak - Violin, Keyboards
+
+All Songs Written By NEOLITHIC
+Engineered By Bogdan Kuzniak
+Recorded & Mixed At Modern Sound Studio
+
+(p)&(c) 1995 ADIPOCERE Records
+
+### "For Destroy The Lament" 1996, Death Doom
+
+1. For Destroy The Lament
+2. Oddity
+3. Gardens Of Phantasms
+4. Szacunek Dla Zmarlego
+5. Last Fix
+6. Chattles
+7. Choreogratia
+[8].Stained-Glass Window
+
+[8] - Ha cтоpoнe B
+
+All songs written by NEOLITHIC
+Engineered by Bogdan Kuzminski
+Recorded and mixed at Modern Sound Studio
+
+Piotr Wtulich - Vocals, Guitars
+Miroslaw Szymanczak - Guitars
+Michal Sarnowski - Bass
+Janusz Jastrzehowski - Drums
+Michal Stefaniak - Keyboards
+
+(p)c 1996 ADIPOCERE Records
+
 
 ## Отношения с другими группами
 

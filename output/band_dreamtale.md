@@ -1,12 +1,86 @@
 # Dreamtale
 
-Дискография
-"Beyond Reality" 2002, Power Metal
-"Ocean's Heart" 2003, Power Metal
-"Difference" 2005, Power Metal
-"Phoenix" 2008, Power Metal
-"Epsilon" 2011, Power Metal
-"World Changed Forever" 2013, Power Metal
+
+
+## Дискография
+
+### "Beyond Reality" 2002, Power Metal
+
+
+
+### "Ocean's Heart" 2003, Power Metal
+
+
+
+### "Difference" 2005, Power Metal
+
+Lost souls 
+Wings of Icaros 
+New life 
+Lucid times 
+the Mirror 
+World*s child 
+Sail away 
+Fly 
+Secret door 
+We are one 
+Green fields 
+Powerplay (Bonus)
+
+### "Phoenix" 2008, Power Metal
+
+1. Yesterday's News 
+2. Eyes Of The Clown 
+3. Payback 
+4. Failed States 
+5. Take What The Heavens Create 
+6. Great Shadow 
+7. No Angels No More 
+8. Faceless Men 
+9. Firebird 
+10. The Vigilante
+
+### "Epsilon" 2011, Power Metal
+
+1. Firestorm  04:30    
+2. Angel Of Light  04:04   
+3. Each Time I Die  05:13    
+4. Where Eternal Jesters Reign  03:33    
+5. Fly Away  05:08    
+6. Reasons Revealed  04:48    
+7. Strangers' Ode  05:58    
+8. Mortal Games  03:45    
+9. Lady Of A Thousand Lakes  05:51    
+10. March To Glory  06:28  
+
+
+Petteri Rosenbom  Drums  
+Rami Kerдnen  Guitars   
+Akseli Kaasalainen  Keyboards  
+Kolehmainen  Guitars  
+Erkki Seppanen  Vocals  
+Heikki Ahonen  Bass  
+ 
+
+
+
+### "World Changed Forever" 2013, Power Metal
+
+1. The Shore
+2. Island of My Heart
+3. Tides of War
+4. We Have No God
+5. The Signs Were True
+6. The Heart After Dark
+7. Join the Rain
+8. Back to the Stars
+9. World Changed Forever
+10. My Next Move
+11. Dreamtime
+12. Destiny's Chance 
+Japanese bonus track:
+13 The End of Our Days 
+
 
 ## Отношения с другими группами
 

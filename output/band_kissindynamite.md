@@ -1,10 +1,55 @@
 # Kissin' Dynamite
 
-Дискография
-"Steel of Swabia" 2008, Glam
-"Addicted to Metal" 2010, Glam
-"Money, Sex And Power" 2012, Glam
-"Megalomania" 2014, Glam
+
+
+## Дискография
+
+### "Steel of Swabia" 2008, Glam
+
+1. Let's Get Freaky
+2. Out In The Rain
+3. Steel Of Swabia
+4. Against The World
+5. My Religion
+6. Only The Good Die Young
+7. Zombie
+8. Welcome To The Jungle
+9. Heartattack
+10. Lie For Me
+11. Ready Steady Thunder
+
+### "Addicted to Metal" 2010, Glam
+
+1. Addicted to Metal
+2. Run for Your Life
+3. Supersonic Killer
+4. High Enough
+5. Love Me Hate Me
+6. Hysteria
+7. All Against All
+8. In the Name of Iron Fist
+9. Assassins of Love
+10. Why Can't You Hear Me
+11. We Want More
+12. Metal Nation
+
+### "Money, Sex And Power" 2012, Glam
+
+01. Money, Sex & Power
+02. I Will Be King
+03. Operation Supernova
+04. Sex Is War
+05. Club 27
+06. Dinosaurs Are Still Alive
+07. She's A Killer
+08. Sleaze Deluxe
+09. Ego-Shooter
+10. Six Feet Under
+
+### "Megalomania" 2014, Glam
+
+
+
 
 ## Отношения с другими группами
 

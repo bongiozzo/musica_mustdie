@@ -1,16 +1,179 @@
 # Madball
 
-Дискография
-"Balls Of Destruction" 1989, Hardcore
-"Set It Off" 1994, Hardcore
-"Demonstrating My Style" 1996, Hardcore
-"Look My Way" 1998, Hardcore
-"Hold It Down" 2000, Hardcore
-"NYHC (EP)" 2002, Hardcore
-"Legacy" 2005, Hardcore
-"Infiltrate The System" 2007, Hardcore
-"Empire" 2010, Hardcore
-"Rebellion (EP)" 2012, Hardcore
+
+
+## Дискография
+
+### "Balls Of Destruction" 1989, Hardcore
+
+01. Smell the Bacon (What's With You?)
+02. Discriminate Me
+03. We Should Care
+04. Colossal Man
+05. Get Out Listen
+06. Last Warning
+07. Fight Listen
+08. It's My Life
+09. Smell the Bacon (What's With You?)
+10. Spit on Your Grave
+11. Discriminate Me
+12. Never Had It
+13. Ready to Fight
+14. Get Out
+15. Across Your Face
+16. We Should Care
+17. No Return
+18. Step to You
+19. Friend or Foe
+20. It's My Life
+
+### "Set It Off" 1994, Hardcore
+
+1. Set It Off
+2. Lockdown
+3. New York City
+4. Never Had It
+5. It's Time
+6. C.T.Y.C (R.I.P.)
+7. Across Your Face
+8. Down By Law
+9. Spit On Your Grave
+10.Face To Face
+11.Smell The Bacon (What's With You)
+12.Get Out
+13.The World Is Mine
+
+ Freddy Cricien - Vocals
+ Matt Henderson - Guitars,Vocals
+ Vinnie Stigma - Guitars
+ Hoya - Bass
+ Will Shepler - Drums
+
+Produced By Laime Locke & MADBALL.
+Engineered & Mixed By Laime Locke.
+Recorded At Brown Sound Gloucester,MA.
+
+(p)&(c) 1994 ROADRUNNER Records
+
+### "Demonstrating My Style" 1996, Hardcore
+
+1.  Demonstrating My Style
+2.  Unity
+3.  Live Or Die
+4.  Pride (Times Are Changing)
+5.  Streets Of Hate
+6.  Back Of The Bus
+7.  Hardcore Still Lives !
+8.  Nuestra Familia
+9.  5-0
+10.Addict
+11.True To The Come
+12.Godfather
+13.In Memory Of ...
+14.Ball Of Destruction
+
+All Songs Written By MADBALL.
+Produced By Jaime Locke & MADBALL.
+Engineered & Mixed By Jaime Locke.
+Recorded At Brown Sound & Metroplois Recording.
+
+Freddy Cricien - Vocals
+Matt Henderson - Guitars
+Hoya - Bass
+Will Shepler - Drums
+
+(p)(c) 1996 ROADRUNNER Records
+
+### "Look My Way" 1998, Hardcore
+
+01. Look My Way
+02. Moment Of Truth
+03. Cut Off
+04. Temptation Or Restraint
+05. Waste Of Time
+06. False Threats
+07. Pushin' Me
+08. Walk Away
+09. Our Family
+10. Lesson Of Life
+11. All I Can Take
+12. Been There, Done That
+
+### "Hold It Down" 2000, Hardcore
+
+01. Intro
+02. Can't Stop, Won't Stop
+03. Hold It Down
+04. Fall This Time
+05. Everyday Hate
+06. Done...
+07. Say What?
+08. D.I.F.M.M.
+09. Show No Fear
+10. Never Look Back
+11. Still Searching
+12. Confessions
+13. Thinking to Myself
+14. Semper Fi
+
+### "NYHC (EP)" 2002, Hardcore
+
+01. For My Enemies
+02. Tight Rope 
+03. My Rage 
+04. Para Mi Gente
+
+### "Legacy" 2005, Hardcore
+
+01. Adapt And Overcome
+02. Heavenhell
+03. Behind These Walls
+04. Legacy
+05. Timebomb
+06. Darkest Days
+07. The Crown
+08. War And Hate
+09. Until Then
+10. Final Round
+11. Pretty Dirty
+12. For My Enemies
+13. 100%
+14. Hardcore Pride
+15. H.C. United
+16. Worldwide
+
+### "Infiltrate The System" 2007, Hardcore
+
+
+
+### "Empire" 2010, Hardcore
+
+01. Invigorate
+02. Danger Zone
+03. Timeless
+04. All Or Nothing
+05. Glory Years
+06. Empire
+07. Shatterproof [feat. Roger Miret]
+08. The End
+09. Con Fuerza
+10. R.A.H.C.
+11. Hurt You
+12. "Tough Guy"
+13. Dark Horse
+14. Spider's Web
+15. Delete
+16. Rebel4life18
+
+### "Rebellion (EP)" 2012, Hardcore
+
+01. You Reap What You Sow (3:08)
+02. The Beast (2:09)
+03. Rebellion (2:36)
+04. My Blood (2:24)
+05. Get Out ("Ball Of Destruction" re-recording) (0:54)
+06. It's My Life ("Ball Of Destruction" re-recording) (0:56)
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,13 @@
 # Carnified
 
-Дискография
-"Where The Gods Bleed" 2003, Death Metal
+
+
+## Дискография
+
+### "Where The Gods Bleed" 2003, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

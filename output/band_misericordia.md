@@ -1,7 +1,19 @@
 # Misericordia
 
-Дискография
-"Painful Dream" 2000, Death Doom
+death-doom
+
+## Дискография
+
+### "Painful Dream" 2000, Death Doom
+
+Misericordia
+Escape...Closed Present
+Shadows Of Light
+Blind Desire Of Perversion
+Even Beyond Death
+Painful Dream (Pt. I)
+Painful Dream (Pt. II)
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,17 @@
 # Seirim
 
-Дискография
-"Empire Of The Dead" 2000, Black Metal
-"Kill. War. Chaos" 2002, Black Metal
+
+
+## Дискография
+
+### "Empire Of The Dead" 2000, Black Metal
+
+
+
+### "Kill. War. Chaos" 2002, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

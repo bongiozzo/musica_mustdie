@@ -1,10 +1,67 @@
 # Alastor
 
-Дискография
-"Crushing Christendom" 2000, Black Metal
-"Hellward" 2001, Black Metal
-"Infernal Lord" 2004, Black Metal
-"Demon Attack" 2011, Black Metal
+
+
+## Дискография
+
+### "Crushing Christendom" 2000, Black Metal
+
+1. The Return of Alastor  01:13    
+2. Spawn of Evil  05:01    
+3. Infernal Power  03:57   
+4. Witch Hammer  05:09 
+5. Necronomicunt  03:53  
+6. The Fall of God  00:47    
+7. Total Devastation  04:20 
+8. Black Mass  06:00    
+9. Power Thrashing Death (Whiplash cover)  04:17 
+
+### "Hellward" 2001, Black Metal
+
+1. Para o Mundo Inferior  03:19    
+2. Ataque Final do Inferno  04:27   
+3. Rainha dos Mortos  05:38  
+4. Demonios Antigos  04:12  
+5. Sacrificio em Golgota  03:55  
+6. Serva De Satanas  04:29    
+7. (Metal) Blasfemia Eterna  06:26 
+8. Sinner (Iron Angel cover)  03:52
+
+### "Infernal Lord" 2004, Black Metal
+
+1. Condenac&#227;o: Introduc&#227;o  01:03  
+2. Destruic&#227;o Do Para&#237;so  04:14    
+3. Reino Dos Mortos  04:06    
+4. Invocac&#227;o Nocturna  04:49 
+5. Senhor Das Trevas  03:47  
+6. S&#250;cubo  05:45   
+7. Templo De Satan&#225;s  04:03   
+8. Violence And Force (Exciter cover)  03:41  
+9. Tempestades Infernais  05:37    
+10. Condenac&#227;o Eterna  01:12 
+
+### "Demon Attack" 2011, Black Metal
+
+1. Antes do Ataque  00:43 
+2. Pura Devasta&#231;&#227;o  04:51    
+3. Evoca&#231;&#227;o a Lilith  05:36    
+4. Necromante  05:16   
+5. As Portas do Inferno  03:41    
+6. Hino Funebre  02:44   
+7. Fogo e Sangue  03:14    
+8. Orgia Nocturna  06:29    
+9. A M&#227;o esquerda de Deus  03:56    
+10. Red Hot (M&#246;tley Cr&#252;e cover)  03:29  
+11. Depois do Ataque  02:02  
+12. Through the Gates  04:00    
+13. Sacrifice to Satan  04:06   
+14. Hell on Earth  04:09    
+15. No Exorcism  03:53   
+16. Bestial Wrath of the Antichrist  03:12   
+17. Possessed by Darkness  03:28
+18. Children of the Grave (Black Sabbath cover)  03:49  
+19. Spawn of Evil  05:01 
+
 
 ## Отношения с другими группами
 

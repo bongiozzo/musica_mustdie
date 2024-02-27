@@ -1,15 +1,99 @@
 # Mortiis
 
-Дискография
-"Fodt Til Е Herske" 1993, Ambient
-"Anden Som Gjorde Oppror" 1995, Ambient
-"Keiser Av En Dimension Ukjent" 1995, Ambient
-"Crypt Of The Wizard" 1996, Ambient
-"The Stargate" 1999, Ambient
-"The Smell Of Rain" 2001, Ambient
-"The Grudge" 2004, Industrial
-"Some Kind Of Heroin" 2007, Industrial
-"Perfectly Defect" 2010, Industrial
+
+
+## Дискография
+
+### "Fodt Til Е Herske" 1993, Ambient
+
+  1.   Fodt Til Е Herske (Pt. 1) (Mortiis) 
+  2.   Fodt Til Е Herske (Pt. 2) (Mortiis) 
+
+
+Mortiis  -  Engineer, Liner Notes, Design 
+Sam Rosenthal  -  Design 
+
+
+### "Anden Som Gjorde Oppror" 1995, Ambient
+
+1. Reflections Of Horizont's Dark
+2. Visions Of A Future Centuries Ago
+
+All Music & Lyrics Was Composed, Arranged, Performed & Recorded By MORTIIS
+Recorded & Mixed  At Studio Ljudhuset, Sweden
+
+(p)&(c) 1995 COLD MEAT INDUSTRY
+
+### "Keiser Av En Dimension Ukjent" 1995, Ambient
+
+1. Journeys To Deserts And Dungeons
+2. Emperor Of A Dimension Unknown
+
+All Music & Lyrics By MORTIIS.
+Produced By MORTIIS.
+Recorded & Mixed At Studio Ljudhuset, Sweden.
+
+(P)&(C) 1995 COLD MEAT INDUSTRY
+
+### "Crypt Of The Wizard" 1996, Ambient
+
+
+
+### "The Stargate" 1999, Ambient
+
+  1.   Child of Curiosity and the Old Man of... (Mortiis) - 5:33 
+  2.   I Am the World (Mortiis) - 6:18 
+  3.   World Essence (Tranй) - 5:58 
+  4.   Across the World of Wonders (Mortiis) - 6:42 
+  5.   (Passing by) An Old Raped Village (Tranй) - 5:09 
+  6.   Towards the Gate of Stars (Mortiis) - 7:45 
+  7.   Spirit of Conquest/The Warfare (Mortiis) - 9:16 
+  8.   Army of Conquest/The Warfare (Ever... (Tranй) - 13:04 
+
+
+Mortiis  -  Vocals (bckgr), Producer, Mixing 
+Anna Kallberg  -  Photography 
+
+
+### "The Smell Of Rain" 2001, Ambient
+
+01. Scar Trek/Parasite God 
+02. Flux/Mental Maelstrom 
+03. Spirit In A Vacuum 
+04. Monolith 
+05. You Put A Hex On Me 
+06. Everyone Leaves 
+07. Marshland 
+08. Antimental 
+09. Smell The Witch
+
+### "The Grudge" 2004, Industrial
+
+
+
+### "Some Kind Of Heroin" 2007, Industrial
+
+01. Underdog (Zombie Girl Remix)
+02. The Grudge (Gothminister mix)
+03. Twist The Knife (The Gibbering mix by Implant)
+04. Broken Skin feat. Stephan Groth (Septic Wound mix by XP8)
+05. The Grudge (Mental Siege Mix)
+06. Gibber (PIG Remix)
+07. Way too Wicked (Rape, Dope and the American Way mix by The Kovenant)
+08. Gibber (Lysergic Club Mix by Velvet Acid Christ)
+09. The Worst in Me (Girls Under Glass Mix)
+10. The Grudge (David Wallace Remix)
+11. Broken Skin feat. Stephan Groth (Funker Vogt Remix)
+12. The Grudge (Emotional Heresy by Kubrick)
+13. Decadent & Desperate (Therafuck remix by Dope Stars)
+14. Gibber (Gibbering Idiot)
+15. Way too Wicked (Absinthium mix)
+16. The Worst in Me (Extraction mix by In the Nursery)
+
+### "Perfectly Defect" 2010, Industrial
+
+
+
 
 ## Отношения с другими группами
 

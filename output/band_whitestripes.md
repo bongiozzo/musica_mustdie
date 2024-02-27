@@ -1,11 +1,97 @@
 # White Stripes
 
-Дискография
-"The White Stripes" 1999, Hard Rock
-"De Stijl" 2000, Hard Rock
-"White Blood Cells" 2001, Hard Rock
-"Elephant" 2003, Hard Rock
-"Get Behind Me Satan" 2005, Hard Rock
+
+
+## Дискография
+
+### "The White Stripes" 1999, Hard Rock
+
+01. Jimmy The Exploder
+02. Stop Breaking Down
+03. The Big Three Killed My Baby
+04. Suzy Lee
+05. Sugar Never Tasted So Good
+06. Wasting My Time
+07. Cannon
+08. Astro
+09. Broken Bricks
+10. When I Hear My Name
+11. Do
+12. Screwdriver
+13. One More Cup Of Coffee
+14. Little People
+15. Slicker Drips
+16. St. James Infirmary Blues
+17. I Fought Piranhas
+
+### "De Stijl" 2000, Hard Rock
+
+1. You're Pretty Good Looking
+2. Hello Operator
+3. Little Bird
+4. Apple Blossom
+5. I'm Bound To Pack It Up
+6. Death Letter
+7. Sister, Do You Know My Name?
+8. Truth Doesn't Make A Noise
+9. A Boy's Best Friend
+10. Let' Build A Home
+11. Jumble, Jumble
+12. Why Can't You Be Nicer To Me
+13. Your Southern Can Is Mine
+
+### "White Blood Cells" 2001, Hard Rock
+
+01. Dead Leaves And The Dirty Ground
+02. Hotel Yorba
+03. I'm Finding It Harder To Be A Gentleman
+04. Fell In Love With A Girl
+05. Expecting
+06. Little Room
+07. The Union Forever
+08. The Same Boy You've Always Known
+09. We're Going To Be Friends
+10. Offend In Every Way
+11. I Think I Smell A Rat
+12. Aluminum
+13. I Can't Wait
+14. Now Mary
+15. I Can Learn
+16. This Protector
+
+### "Elephant" 2003, Hard Rock
+
+01. Seven Nation Army
+02. Black Math
+03. There's No Home For You Here
+04. I Just Don't Know What To Do With Myself
+05. In The Cold, Cold Night
+06. I Want To Be The Boy To Warm Your Mother's Heart 
+07. You've Got Her In Your Pocket
+08. Ball and Biscuit
+09. The Hardest Button To Button
+10. Little Acorns
+11. Hypnotize
+12. The Air Near My Fingers
+13. Girl, You Have No Faith In Medicine
+14. It's True That We Love One Another
+
+### "Get Behind Me Satan" 2005, Hard Rock
+
+01. Blue Orchid 
+02. The Nurse 
+03. My Doorbell 
+04. Forever For Her (Is Over For Me) 
+05. Little Ghost 
+06. The Denial Twist 
+07. White Moon 
+08. Instinct Blues 
+09. Passive Manipulation 
+10. Take, Take, Take 
+11. As Ugly As I Seem 
+12. Red Rain 
+13. I'm Lonely (But I Ain't That Lonely Yet)
+
 
 ## Отношения с другими группами
 

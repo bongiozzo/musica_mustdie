@@ -1,7 +1,21 @@
 # Mirror
 
-Дискография
-"Mirror" 2015, Heavy Metal
+
+
+## Дискография
+
+### "Mirror" 2015, Heavy Metal
+
+1. Mirror  05:02
+2. Curse of the Gypsy  04:36
+3. Year of the Red Moon  04:31
+4. Heavy King  03:38
+5. Madness and Magik  05:28
+6. Galleon  03:45
+7. Cloak of a Thousand Secrets  04:53
+8. Orion's Sword  00:56
+9. Elysian  06:55  
+
 
 ## Отношения с другими группами
 

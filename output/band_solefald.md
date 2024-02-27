@@ -1,12 +1,66 @@
 # Solefald
 
-Дискография
-"The Linear Scaffold" 1997, Black Metal
-"Neonism" 1999, Black Metal
-"In Harmonia Universali" 2003, Progressive
-"Solefald - Red for Fire : An Icelandic Odyssey Part 1" 2005, Alternative
-"Black for Death: An Icelandic Odyssey Part 2" 2006, Alternative
-"Norron Livskunst" 2010, Alternative
+
+
+## Дискография
+
+### "The Linear Scaffold" 1997, Black Metal
+
+
+
+### "Neonism" 1999, Black Metal
+
+
+
+### "In Harmonia Universali" 2003, Progressive
+
+
+
+### "Solefald - Red for Fire : An Icelandic Odyssey Part 1" 2005, Alternative
+
+1. Sun I Call 06:19 
+2. Survival Of The Outlaw 06:37  
+3. Where Birds Have Never Been 05:55  
+4. Bragi 01:18  
+5. White Frost Queen 06:57  
+6. There Is Need 05:53  
+7. Prayer Of A Son 01:47  
+8. Crater Of The Valkyries 08:21  
+9. Sea I Called 05:34
+
+### "Black for Death: An Icelandic Odyssey Part 2" 2006, Alternative
+
+01. Red for Fire, Black for Death
+02. Queen in the Bay of Smoke
+03. Silver Dwarf
+04. Underworld
+05. Necrodyssey
+06. Allfathers
+07. Lokasenna Part 2
+08. Loki Trickster God
+09. Spoken to the End of All
+10. Dark Waves Dying
+11. Lokeasenna Part 3
+12. Stagateller
+
+### "Norron Livskunst" 2010, Alternative
+
+1. Song Til Stormen 04:56 
+2. Norron Livskunst 04:16 
+3. Tittentattenteksti 04:14  
+4. Stridsljod (Blackabilly) 05:49  
+5. Eukalyptustreet 09:24  
+6. Raudedauden 03:11  
+7. Vitets Vidd I Verdi 05:35 
+8. Hugferdi 05:53  
+9. Waves Over Vallhalla (An Icelandic Odyssey Part 3) 06:28 
+10. Til Heimen Yver Havet 04:15 
+
+
+Lineup:
+Lazare - Vocals, synth, electronic beats, drums and percussion 
+Cornelius - vocals, guitar and bass 
+
 
 ## Отношения с другими группами
 

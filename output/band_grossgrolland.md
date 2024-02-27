@@ -1,7 +1,22 @@
 # Gross Grolland
 
-Дискография
-"What Doesn't Kill Me Makes A Big Mistake" 2012, Thrash
+
+
+## Дискография
+
+### "What Doesn't Kill Me Makes A Big Mistake" 2012, Thrash
+
+1.Камикадзе
+2.Под Прицелом
+3.Здохни
+4.Bye 
+5.Оно
+6.Голоса
+7.648 
+8.Полицай Тропилло
+9.Пятница
+10.Дружба
+
 
 ## Отношения с другими группами
 

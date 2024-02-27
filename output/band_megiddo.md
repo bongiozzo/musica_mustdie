@@ -1,7 +1,13 @@
 # Megiddo
 
-Дискография
-"Subterranean Empire..." 2003, Black Metal
+
+
+## Дискография
+
+### "Subterranean Empire..." 2003, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

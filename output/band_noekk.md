@@ -1,8 +1,23 @@
 # Noekk
 
-Дискография
-"The Water Sprite" 2005, Folk
-"The Grimalkin" 2006, Metal
+ex-EMPYRIUM
+
+## Дискография
+
+### "The Water Sprite" 2005, Folk
+
+1. The watersprite
+2. T.B.'s Notion
+3. Strange mountain
+4. How fortunate the man with none
+5. The fiery flower
+6. Moonface is dead
+7. The riddle seeker
+
+### "The Grimalkin" 2006, Metal
+
+
+
 
 ## Отношения с другими группами
 

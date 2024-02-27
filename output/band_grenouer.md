@@ -1,14 +1,130 @@
 # Grenouer
 
-Дискография
-"Border Of Misty Times" 1996, Death Metal
-"Gravehead" 1999, Death Metal
-"The Odour O' Folly" 2000, Death Metal
-"Presence With War" 2004, Thrash
-"T R Y EP" 2005, Thrash
-"The Odour O' Folly (re-issued)" 2005, Death Metal
-"T R Y" 2008, Techno Death
-"Lifelong Days" 2008, Metalcore
+Russian Death Metal/ later metalcore
+
+## Дискография
+
+### "Border Of Misty Times" 1996, Death Metal
+
+ARIA RECS Studios
+
+
+
+(p)1997 METAL AGEN
+
+
+Andrew the Indian Merzlyakov – vocals
+Slava Koltchin – bass
+Sergey Lalin – drums
+Gosha Klimov – guitars
+
+### "Gravehead" 1999, Death Metal
+
+ARIA RECS Studios
+
+(p)1999 SOUND AGE
+
+Andrew the Indian Merzlyakov – vocals
+Slava Koltchin – bass
+Sergey Lialin – drums
+Alexander Schatov – guitars
+
+Guest keyboards by Alexander Dronov
+
+### "The Odour O' Folly" 2000, Death Metal
+
+NAVAHOHUT Studios
+
+(p) 2001 MORE HATE/BLACKSMITH
+
+Andrew the Indian Merzlyakov – vocals
+Slava Koltchin – bass
+Sergey Lialin – drums
+Alexander Motor Sokolov – guitars
+
+
+### "Presence With War" 2004, Thrash
+
+1. MERCENARY FIELDS 5.21 
+2. SEX OPTICA 3.08 
+3. THE CHOICE OF FLESH 6.05 
+4. THE LAST BULLET MAGIC 4.36 
+5. CRASH CRASH CRASH 5.20 
+6. CLONETWIGS 3.44 
+7. SHEITAN 3.24 
+8. COMMUNIST SKINHEAD 5.12 
+9. A FAREWELL TO ARMS 1.31
+RECORDED AND MIXED AT NAVAHOHUT STUDIOS, MOSCOW
+MASTERED BY MIKA JUSSILA AT FINNVOX STUDIOS, HELSINKI
+
+### "T R Y EP" 2005, Thrash
+
+1. Devil's Eye
+2. All Along The Runway
+3. Powdering Squeeze
+
+### "The Odour O' Folly (re-issued)" 2005, Death Metal
+
+
+
+### "T R Y" 2008, Techno Death
+
+01. Intro: Verified (0:21)
+02. * Devil's Eye (3:11)
+03. [*] Open Up Entrails (3:14)
+04. [*] A Passage In The Sky (3:40)
+05. * All Along The Runway (3:16)
+06. */[*] Powdering Squeeze (3:50)
+07. [*] Wanting To Be Alone (3:16)
+08. z The Message (5:19)
+09. z Shut My Eyes (5:48)
+
++ Multimedia: Verified
+
+IND /Андрей/ - vocals
+MOTOR /Александр/- guitars
+GRAVE /Илья/ - drums
+SLAVIJ /Вячеслав/- bass
+
+All music and anti-lyrics by GRENOUER
+Recorded at
+[*] Navahohut Studio
+www.navahohut.com
+Engineered by Arkady Navajo
+* Phantom Pain Studio
+Engineered by Igor Anokhin Jr.
+Intro guitars and all vocals recorded at
+Moscow Gates Apartment
+Engineered by Alexey Bolotov
+Mixed at Astia-A Studio by Anssi Kippo
+http://www.astiastudio.fi
+z Remixed by gipnoz
+Mastered at Mika Jussila at Finnvox Studios
+http://finnvox.fi
+Artwork & design layout by Arts-KILL project
+Multimedia design & programming by Arts-KILL
+project
+http://www.arts-kill.com
+Video Art (Multimedia) by 642
+Band inlay photos by YuK and Sergey Travkin
+Multimedia photos by anybody
+Produced by GRENOUER
+Executive producer Alexey Bolotov
+
+### "Lifelong Days" 2008, Metalcore
+
+1. Indecent Loyalty 03:43
+2. Addicted to You 04:22
+3. Taken Off the List 04:17
+4. With No Concern 03:08
+5. Away from Now 04:47
+6. Finding the One 04:06
+7. Off the Back of Others 04:25
+8. The Unexpected 03:47
+9. Employed Beggar 04:38
+10. Re-Active 04:35
+11. Patience 04:38 
+
 
 ## Отношения с другими группами
 

@@ -1,10 +1,108 @@
 # Orphanage
 
-Дискография
-"Oblivion" 1995, Death Doom
-"By Time Alone" 1996, Death Doom
-"Inside" 2000, Death Doom
-"Driven" 2004, Death Doom
+
+
+## Дискография
+
+### "Oblivion" 1995, Death Doom
+
+1. Chameleon
+2. Weltschmerz
+3. The Case Of Charles Dexter Ward
+4. In The Garden Of Eden
+5. Journey Into The Unknown
+6. Druid
+7. Veils Of Blood
+8. Sea Of Dreams
+9. The Collector
+10.Victim Of Fear
+
+All Songs Written By ORPHANAGE.
+Produced, Arranged, Mixed, Edited By Lex Vogeleaar.
+Engineeered Wilbert Montens.
+Recorded At Tape Production Studio.
+
+George Oosthock - Vocals
+Martine Van Loon - Vocals
+Lex Vogelaar - Vocals & Guitar
+Eric Hoogendoorn - Bass
+Jules Vleugels - Drums
+Guus Eikens - Keyboards & Vocals
+
+(P)&(C) 1995 DISPLEASED Records
+
+### "By Time Alone" 1996, Death Doom
+
+1. The Crumbling Of My Denial
+2. At The Mountains Of Madness
+3. Five Crystals
+4. The Dark Side
+5. Deceiver
+6. Cliffs Of Mother
+7. By Time Alone
+8. Ancient Rhytmes
+9. Obyssey
+10.Requiem
+11.Leafless
+12.Deliverance
+
+George Oosthoek - Guitars, Screams
+Lex Vogelaar - Guitars, Vocals
+Erwin Polderman - Drums
+Eric Hoogendoorn - Bass
+Rosan van der Aa - Vocals
+Guus Eikens - Vocals, Synths, Samples, Noises
+
+Produced and Mixed by Lex Vogelaar.
+Recorded at Moskou Studio.
+Mixed at Studio 29.
+Band residence: Netherlands.
+
+(p)(c) 1996 DSFA Records 1004
+
+### "Inside" 2000, Death Doom
+
+
+
+### "Driven" 2004, Death Doom
+
+01. The Sign
+02. Black Magic Mirror
+03. Cold
+04. Prophecies Of Fame
+05. Dead Ground
+06. My Master?s Master
+07. Black Gate
+08. In Slavery
+09. Truth Or Lies
+10. Driven
+11. Infinity
+12. Addiction
+13. Beyond The Fall
+14. Enders Game
+
+George Oosthoek - lead grunt singer
+Rosan van der Aa - lead female singer
+Sureel - drummer
+Lasse Dellbrugge - keyboards
+Remko van der Spek - bass guitar
+Guus Eikens - guitar
+
+Production: Remko van der Spek & Orphanage - 2003
+Drums pre-production at Double Noise Studio,
+Tilburg
+Engineer: Gerben Van Der Aa
+Recorded at Studio Moskou, Utrecht
+Engineer: Silvia Vermeulen
+Mixed and mastered at The Dark Side'
+Engineer: Remko van der Spek
+Guitars on Ender s Game: Lex Vogelaar
+Design: Carlo van Leeuwen and Cootje Mombers
+Cover and inside photos: Marjan van Nus
+Additional inside photos: Tegwin Deacon (page 8 &
+9)
+Image manipulation and layout: Carlo van Leeuwen
+
 
 ## Отношения с другими группами
 

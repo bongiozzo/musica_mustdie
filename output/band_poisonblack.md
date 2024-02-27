@@ -1,12 +1,101 @@
 # Poisonblack
 
-Дискография
-"Escapexstasy" 2003, Gothic
-"Lust Stained Despair" 2006, Gothic
-"A Dead Heavy Day" 2008, Gothic
-"Of Rust and Bones" 2010, Gothic
-"Drive" 2011, Gothic
-"Lyijy" 2013, Gothic
+project of Ville Laihiala (Sentenced)
+
+## Дискография
+
+### "Escapexstasy" 2003, Gothic
+
+01. The Glow Of The Flames
+02. Love Infernal
+03. The State
+04. All Else Is Hollow
+05. In Lust
+06. The Exciter
+07. Lay Your Heart To Rest
+08. With Her I Die
+09. Illusion/Delusion
+10. The Kiss Of Death 
+
+Ville Laihiala - lead & rhythm guitars, backing vocals , J.P. Leppaluoto - vocals, Janne Kukkonen - bass Session-musicians: Tarmo Kanerva - drums, Marco Sneck - keyboards
+
+### "Lust Stained Despair" 2006, Gothic
+
+1. Nothing Else Remains 
+2. Hollow Be My Name 
+3. The Darkest Lie 
+4. Rush 
+5. Nail 
+6. Raivotar 
+7. Soul In Flames 
+8. Pain Becomes Me 
+9. Never Enough 
+10. Love Controlled Despair 
+11. The Living Dead 
+
+Line-Up: 
+Ville Laihiala - Vocals, Lead Guitar 
+Janne Markus - Guitars 
+Antti Remes - Bass 
+Tarmo Kanerva - Drums 
+Marco Sneck - Keyboards
+
+### "A Dead Heavy Day" 2008, Gothic
+
+01. Introuder 
+02. Diane 
+03. Left Behind 
+04. Bear The Cross 
+05. A Dead Heavy Day 
+06. Me, Myself & I 
+07. X 
+08. Human-Compost 
+09. The Days Between 
+10. Hatelove 
+11. Lowlife 
+12. Only You Can Tear Me Apart
+
+### "Of Rust and Bones" 2010, Gothic
+
+1. My Sun Shines Black 04:50
+2. Leech 03:48
+3. My World 03:57 
+4. Buried Alive 04:39 
+5. Invisible 08:07 
+6. Casket Case 03:44
+7. Down The Drain 08:03
+8. Alone 04:43
+9. The Last Song 07:33
+10. My World (Acoustic version) 03:21 
+
+### "Drive" 2011, Gothic
+
+1. Piston Head  04:06    
+2. Mercury Falling  04:08    
+3. A Good Day for the Crows  04:24    
+4. Maggot Song  03:49    
+5. From Now-here to Nowhere  06:11    
+6. Sycophant  03:49    
+7. The Dead-End Stream  03:29    
+8. Futile Man  06:22    
+9. Scars  05:08    
+10. Driftwood  03:30  
+
+
+### "Lyijy" 2013, Gothic
+
+01. Home Is Where the Sty Is
+02. Down the Ashes Rain
+03. The Flavor of the Month
+04. The Absentee
+05. Maybe Life Is Not for Everyone
+06. Death by the Blues
+07. The Halfway Bar
+08. Them Walls
+09. Blackholehead
+10. Pull the Trigger
+11. El&#228;m&#228;n kevat
+
 
 ## Отношения с другими группами
 

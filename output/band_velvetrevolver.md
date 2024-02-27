@@ -1,7 +1,25 @@
 # Velvet Revolver
 
-Дискография
-"Contraband" 2004, Alternative
+ex-Guns'n'Roses members project
+
+## Дискография
+
+### "Contraband" 2004, Alternative
+
+1. Sucker Train Blues 
+2. Do It For The Kids 
+3. Big Machine 
+4. Illegal i Song 
+5. Spectacle Velvet 
+6. Fall To Pieces 
+7. Headspace 
+8. Superhuman 
+9. Set Me Free 
+10. You Got No Right 
+11. Slither 
+12. Dirty Little Thing 
+13. Loving The Alien
+
 
 ## Отношения с другими группами
 

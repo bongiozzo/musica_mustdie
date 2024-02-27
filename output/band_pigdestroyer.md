@@ -1,8 +1,60 @@
 # Pig Destroyer
 
-Дискография
-"Prowler In The Yard" 2001, Grindcore
-"Terrifyer" 2004, Grindcore
+Crazy deathgrind
+
+## Дискография
+
+### "Prowler In The Yard" 2001, Grindcore
+
+01. Jennifer
+02. Cheerleader Corpses
+03. Scatology Homework
+04. Trojan Whore
+05. Ghost Of A Bullet
+06. Heart And Crossbones
+07. Strangled With A Halo
+08. Intimate Slavery
+09. Mapplethorpe Grey
+10. Evacuating Heaven
+11. Tickets To The Car Crash
+12. Naked Trees
+13. Sheet Metal Girl
+14. Preacher Crawling
+15. Pornographic Memory
+16. Murder Blossom
+17. Body Scout
+18. Snuff Film At Eleven
+19. Hyperviolet
+20. Starbelly
+21. Junkyard God
+22. Piss Angel
+ 
+(c) 2001 Relapse Records
+
+### "Terrifyer" 2004, Grindcore
+
+01. Intro
+02. Pretty In Casts
+03. Boy Constrictor
+04. Scarlet Hourglass
+05. Thumbsucker
+06. Gravedancer
+07. Lost Cause
+08. Sourheart
+09. Towering Flesh
+10. Song Of Filth
+11. Verminess
+12. Torture Ballad
+13. Restraining Order Blues
+14. Carrion Fairy
+15. Downpour Girl
+16. Soft Assassin
+17. Dead Carnations
+18. Crippled Horses
+19. The Gentleman
+20. Crawl Of Time
+21. Terrifyer
+
 
 ## Отношения с другими группами
 

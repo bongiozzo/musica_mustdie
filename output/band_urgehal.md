@@ -1,12 +1,79 @@
 # Urgehal
 
-Дискография
-"Arma Christi" 1997, Black Metal
-"Massive Terrestrial Strike" 1998, Black Metal
-"Atomkinder" 2001, Black Metal
-"Through Thick Fog Till Death" 2003, Black Metal
-"Goatcraft Torment" 2006, Black Metal
-"Ikonoklast" 2009, Black Metal
+
+
+## Дискография
+
+### "Arma Christi" 1997, Black Metal
+
+1. Blood Hunt 03:46
+2. The Night Armageddon Comes 08:27
+3. Embraced By Cold 07:21 
+4. The Eternal Eclipse 05:46
+5. Conjuring The Hordes Of Blasphemy 05:13
+6. Maatte Blodet Flomme 04:38 
+7. Evocation Of The Satanic Ascendancy 06:22
+8. Dethronation Of God 05:47 
+
+### "Massive Terrestrial Strike" 1998, Black Metal
+
+1. The Sodomizer 04:45
+2. The Saturnine Denomination 04:59
+3. Supreme Evil 06:49 
+4. Image Of The Horned King 05:40
+5. Tellus Dшd/Armageddons Suшpe 02:02
+6. Apocalyptic Destruction 06:41
+7. Flames Of Black Candles 05:47 
+
+### "Atomkinder" 2001, Black Metal
+
+1. Atomkinder 04:22
+2. Nocturnal Revelation 07:05
+3. Through The Grace OHell 06:37
+4. Nyx 02:45
+5. Ripping Corpse (Kreator cover) 02:52 
+6. Antichrist (Sepultura cover) 03:24
+7. Bleed Suffer Die 01:13 
+
+### "Through Thick Fog Till Death" 2003, Black Metal
+
+1. 666 00:47  
+2. Possessed (Raped By Evil) 02:29
+3. Raise The Symbols Of Satan 06:21
+4. Invasion 08:23
+5. Through Thick Fog Till Death 04:06
+6. Mirror Satan 04:22
+7. Satanic Deathlust 05:50
+8. Dead Cold December 07:41 
+9. Dшd, Dшd Og Atter Dшd 06:17 
+10. Supreme Blasphemy 04:40 
+11. Mankind Murder 05:44 
+
+### "Goatcraft Torment" 2006, Black Metal
+
+1. Goatcraft Torment 04:00
+2. Risus Sardonius 05:14
+3. Antireligiшs 06:15 
+4. Dшdsmarsj Til Helvete 04:18
+5. Satanic Black Metal In Hell 04:33
+6. Nefastus Nex Necis 05:50
+7. Gathered Under The Horns 05:08
+8. Selvmordssalme 06:00
+9. Sentiment Of Chaos 02:43
+10. Et Steg Nжrmere Lucifer 07:00 
+
+### "Ikonoklast" 2009, Black Metal
+
+1. Stesolid Self-Destruction to Damnation 04:42
+2. Dшdelagt 04:38
+3. Cut Their Tongue Shut Their Prayer 05:17
+4. The Necessity of Total Genocide 07:11
+5. Kniven Rider Dypt I Natt 05:18
+6. Astral Projection to Rabid Hell 07:09
+7. Approaching Doom 05:03
+8. Holocaust in Utopia 07:39
+9. Sopor Necrosanctus 09:22 
+
 
 ## Отношения с другими группами
 

@@ -1,12 +1,166 @@
 # Dead Kennedy's
 
-Дискография
-"Fresh Fruits For Rotting Vegetables" 1980, Punk
-"In God We Trust,Inc." 1981, Punk
-"Plastic Surgery Disasters" 1982, Punk
-"Frankenchrist" 1985, Punk
-"Badtime For Democracy" 1986, Punk
-"Give Me Convenience Or Give Me The Death" 1987, Punk
+
+
+## Дискография
+
+### "Fresh Fruits For Rotting Vegetables" 1980, Punk
+
+1. Kill The Poor
+2. Forward To Death
+3. When Ya Get Drafted
+4. Let's Lynch The Landford
+5. Drug Me
+6. Your Emotions
+7. Chemical Warfare
+8. California Uber Alles
+9. I Kill Children
+10.Stealing People Mail
+11.Funland At The Bitch
+12.Ill In The Head
+13.Holiday In Cambodia
+14.Viva Las Vegas
+
+ Jello Biafra - Vocals
+ East Bay Bay - Guitar
+ Klaus Flouride - Bass
+ D.H.Peligro - Drums
+
+All Songs By DEAD KENNEDYS.
+
+(p)&(c) 1980 CHERRY Records
+
+### "In God We Trust,Inc." 1981, Punk
+
+1. Religious Vomit
+2. Moral Majority
+3. Hyperactive Child
+4. Kerone Factory
+5. Dog Bite
+6. Nazi Punks Fuck Off
+7. We've Got A Bigger Problem Now
+8. Rawhide
+
+ Jello Biafra - Vocals
+ East Bay Bay - Guitar
+ Klaus Flouride - Bass
+ D.H.Peligro - Drums
+
+All Songs By DEAD KENNEDYS.
+
+(p)&(c) 1981 STATIC Records
+
+### "Plastic Surgery Disasters" 1982, Punk
+
+1. Government Flu
+2. Terminal Prepple
+3. Trust Your Mechanic
+4. Well Payed Scientist
+5. Buzzbomb
+6. Forest Fire
+7. Halloween
+8. Winnebago Warrior
+9. Riot
+10.Bleed For Me
+11.I Am The Owl
+12.Dead End
+13.Moon Over The Marin
+
+ Jello Biafra - Vocals
+ East Bay Bay - Guitar
+ Klaus Flouride - Bass
+ D.H.Peligro - Drums
+
+All Songs By DEAD KENNEDYS.
+
+(p)&(c) 1982 STARVING MISSILE Records
+
+### "Frankenchrist" 1985, Punk
+
+1. Soup Is A Good Food
+2. Hellnation
+3. This Could Be Anywhere
+4. A Growing Boy Needs His Lunch
+5. Chicken Farm
+6. Jock-O-Rama
+7. Groons Of Hazard
+8. MTV-Get Off The Air
+9. At My Job
+10.Stars & Stripes Of Corruption
+
+ Jello Biafra - Vocals
+ East Bay Bay - Guitar
+ Klaus Flouride - Bass
+ D.H.Peligro - Drums
+
+All Songs By DEAD KENNEDYS.
+
+(p)&(c) 1985 ALTERNATIVE TENTACLES Records
+
+### "Badtime For Democracy" 1986, Punk
+
+1. Take This Job & Shove It
+2. Hop With The Jet Set
+3. Dear Abby
+4. Rambozo The Clown
+5. Flesh Dance
+6. The Great Wall
+7. Shrine
+8. Triumph Of The Smill
+9. Mach Insecurity
+10.I Spy
+11.Cesspools In Eden
+12.One Way Ticket
+13.Do The Slag
+14.A Commercial
+15.Gone With My Wind
+16.Anarchy For Sale
+17.Chickenshit Conformist
+18.Where Do Ya Draw The Line
+19.Potshot Heart Round The World
+20.D.M.S.O.
+21.Lie Detector
+
+ Jello Biafra - Vocals
+ East Bay Bay - Guitar
+ Klaus Flouride - Bass
+ D.H.Peligro - Drums
+
+All Songs By DEAD KENNEDYS.
+Produced By Jello Biafra.
+Recorded At City Sound Recording.
+
+(p)&(c) 1986 ALTERNATIVE TENTACLES Records
+
+### "Give Me Convenience Or Give Me The Death" 1987, Punk
+
+1. Police Truck
+2. Too Drunk To Fuck
+3. California Uber Alles
+4. The Man With The Dogs
+5. Insight
+6. Life Sentence
+7. A Child & His Lawnmower
+8. Holiday In Cambodia
+9. I Fought The Law
+10.Saturday Night Holocaust
+11.Pull My Strings
+12.Short Songs
+13.Straight
+14.Kinky Sex Makes The World Go 'Round
+15.The Prey
+16.Night Of The Living Rednecks
+17.Buzzbomb From Passadena
+
+ Jello Biafra - Vocals
+ East Bay Bay - Guitar
+ Klaus Flouride - Bass
+ D.H.Peligro - Drums
+
+All Songs By DEAD KENNEDYS.
+
+(p)&(c) 1987 ALTERNATIVE TENTACLES Records
+
 
 ## Отношения с другими группами
 

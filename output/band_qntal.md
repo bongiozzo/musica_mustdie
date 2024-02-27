@@ -1,10 +1,93 @@
 # Qntal
 
-Дискография
-"I" 1992, Folk
-"II" 1995, Folk
-"III Tristan Un Izolde" 2003, Folk
-"V Silver Swan" 2006, Folk
+Dark ethnic/techno gothic
+
+## Дискография
+
+### "I" 1992, Folk
+
+1. Un Vers De Dreyt Nien
+2. Ad Mortem Festinamus
+3. Anc Non Lo Vi
+4. Por Mau Tens
+5. Floris E Blanchaflor
+6. Unter der Linden
+7. Rossinhol
+8. Non Sofre Santa Maria
+9. Doussa Res
+10. Jherusalem
+11. Sanctus
+12. Black Death
+
+### "II" 1995, Folk
+
+Introitus
+Palestinalied
+Frьhling
+Hymni Nocturnales
+Vos Attestor
+Herbst
+Abaelard
+Virgo Splendens
+Trobar Clus
+Sine Nomine
+Ab Vox D'Angel
+Epilog
+
+### "III Tristan Un Izolde" 2003, Folk
+
+Owi Tristan
+Name Der Rose
+Maiden In The Mor
+Lamento De Tristano
+Am Morgen Frou
+Lasse
+Ecce Gratum
+Spiegelglas
+Maravillosos
+Entre Moi Et Mon Amin
+Gottinne Minne
+Vedes Amigo
+Verirret
+
+
+Musicians:
+Syrah - Vocals
+Michael Popp - Fidel, Ud, Saz, Tar, Vocals
+Fil - Keyboards, Guitars, Programming
+
+Guests:
+Ernst Schwindl - Drehleier
+Thomas Zцller - Dudelsack
+Andreas Seyferth - Narrator on "Gottinne Minne"
+Till-Robin Hennecke - Djembe on "Maravillosos"
+Klaus-Dietrich Groth - Additional Vocals on "Ecce Gratum"
+
+Produced by Philipp "Fil" Groth
+Recorded 2002 at Novalton Berlin
+Mastered by Turnstyle Mastering Berlin, Ekkehard Strauhs und Thomas Heimann-Trosien
+Photos by Christian Hartmann
+Styling and Make-up by Susie Hartmann-Sinds
+Artwork: schwecke.mueller Werbeagentur GmbH
+
+Musik by QNTAL
+Arranged by QNTAL
+Lyrics traditional/bearbeitet by QNTAL
+
+### "V Silver Swan" 2006, Folk
+
+01. Monsieur's Departure
+02. Amis Raynaut
+03. Levis
+04. Von den Elben
+05. Lingua Mendax
+06. Falling Star
+07. The Whyle
+08. Winter
+09. Altas Undas
+10. 292
+11. Silver Swan
+
 
 ## Отношения с другими группами
 

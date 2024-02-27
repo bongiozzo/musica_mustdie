@@ -1,10 +1,48 @@
 # Uncle Acid And The Deadbeats
 
-Дискография
-"Volume 1" 2010, Psychedelic
-"Blood Lust" 2012, Psychedelic
-"Mind Control" 2013, Psychedelic
-"The Night Creeper" 2015, Psychedelic
+
+
+## Дискография
+
+### "Volume 1" 2010, Psychedelic
+
+01. Crystal Spiders
+02. Witches Garden
+03. Dead Eyes of London
+04. Lonely and Strange
+05. Vampire Circus
+06. Do What Your Love Tells You
+07. I Don't Know
+08. Wind Up Toys
+
+### "Blood Lust" 2012, Psychedelic
+
+1. I'll Cut You Down
+2. Death's Door
+3. Over And Over Again
+4. Curse In The Trees
+5. I'm Here To Kill You
+6. 13 Candles
+7. Ritual Knife
+8. Withered Hand Of Evil
+9. Bonus Track
+
+### "Mind Control" 2013, Psychedelic
+
+1. Mt. Abraxas
+2. Mind Crawler
+3. Poison Apple
+4. Desert Ceremony
+5. Evil Love
+6. Death Valley Blues
+7. Follow The Leader
+8. Valley Of The Dolls
+9. Devil's Work
+
+### "The Night Creeper" 2015, Psychedelic
+
+
+
 
 ## Отношения с другими группами
 

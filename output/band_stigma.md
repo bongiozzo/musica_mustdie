@@ -1,9 +1,21 @@
 # Stigma
 
-Дискография
-"Cut By Chainsaw" 2005, Death Metal
-"Non Furtum Facies" 2006, Death Metal
-"Pain For My Body" 2009, Death Metal
+CZ
+
+## Дискография
+
+### "Cut By Chainsaw" 2005, Death Metal
+
+
+
+### "Non Furtum Facies" 2006, Death Metal
+
+
+
+### "Pain For My Body" 2009, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

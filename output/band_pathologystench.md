@@ -1,7 +1,13 @@
 # Pathology Stench
 
-Дискография
-"Accion Mutante" 2000, Death Metal
+
+
+## Дискография
+
+### "Accion Mutante" 2000, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,21 @@
 # Intestine Baalism
 
-Дискография
-"An Anatomy Of The Beast" 1997, Death Doom
+Death-Doom From Japan
+
+## Дискография
+
+### "An Anatomy Of The Beast" 1997, Death Doom
+
+1. Corporal Celebration
+2. Anatomy Of The Beast
+3. AEastor Possess
+4. Cannibal Sodom
+5. Energumenus (The Birth Of The Cursed Creations)
+6. Blasphemy Resurrected
+7. A Place Their Gods Left Behind
+8. Burn Thou In Efiggy (Instrumental)
+9. Tyrant
+
 
 ## Отношения с другими группами
 

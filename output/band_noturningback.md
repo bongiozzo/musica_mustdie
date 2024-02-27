@@ -1,13 +1,37 @@
 # No Turning Back
 
-Дискография
-"Revenge Is A Right" 2003, Hardcore
-"Damage Done" 2004, Hardcore
-"Rise From The Ashes (EP)" 2005, Hardcore
-"Holding On" 2006, Hardcore
-"1997 - 2007" 2007, Hardcore
-"Stronger" 2008, Hardcore
-"Take Control" 2011, Hardcore
+
+
+## Дискография
+
+### "Revenge Is A Right" 2003, Hardcore
+
+
+
+### "Damage Done" 2004, Hardcore
+
+
+
+### "Rise From The Ashes (EP)" 2005, Hardcore
+
+
+
+### "Holding On" 2006, Hardcore
+
+
+
+### "1997 - 2007" 2007, Hardcore
+
+
+
+### "Stronger" 2008, Hardcore
+
+
+
+### "Take Control" 2011, Hardcore
+
+
+
 
 ## Отношения с другими группами
 

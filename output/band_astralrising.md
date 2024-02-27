@@ -1,8 +1,36 @@
 # Astral Rising
 
-Дискография
-"Abeona Adeona" 1993, Death Doom
-"In Quest" 1995, Death Doom
+French Death-Doom-Gothic
+
+## Дискография
+
+### "Abeona Adeona" 1993, Death Doom
+
+
+
+### "In Quest" 1995, Death Doom
+
+1. In Quest
+2. Beggar Of New Hopes
+3. Wasteland
+4. Gowns Black Veils
+5. Anguish Feelings
+6. Choral Fantasy
+7. Pray In A Garden
+8. The Realm To Come
+9. Callioppe
+
+All Songs By ASTRAL RISING.
+Produced & Engineered By Tim Buktu.
+Recorded At Manufaktur Studio,Germany.
+
+Frank Tomse - Guitar,Vocals
+Essem - Guitar,Vocals
+Philippe Guiziou -Bass
+Jerome Lachaud - Drums
+
+(P)&(C) 1995 ACTIVE Records
+
 
 ## Отношения с другими группами
 

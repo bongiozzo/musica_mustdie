@@ -1,7 +1,20 @@
 # Cerber
 
-Дискография
-"Hatred, Death, Intolerance…" 2004, Black Metal
+
+
+## Дискография
+
+### "Hatred, Death, Intolerance…" 2004, Black Metal
+
+1. Notified by Glory 08:33
+2. Firebirds 05:42  
+3. Thy Winter Throne 04:02
+4. Heart of Ahriman 01:27 
+5. Dethrone the Master, Eternally 06:27
+6. At the Dark of the Labyrinth 05:37 
+7. De Sanguis Dom Deus 05:34 
+8. Finsternis 02:14 
+
 
 ## Отношения с другими группами
 

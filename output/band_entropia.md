@@ -1,7 +1,23 @@
 # Entropia
 
-Дискография
-"Takte Morbid" 2005, Deathcore
+
+
+## Дискография
+
+### "Takte Morbid" 2005, Deathcore
+
+1. Rebentat 04:35 [view lyrics] 
+2. Dret a Mort 03:14  
+3. Sodomia Kristiana 02:12  
+4. Santeria Proletаria 03:32
+5. Sуc Tu 03:53
+6. Skum 02:00  
+7. Fuck Bush 00:11  
+8. Mata al Teu Botxн 03:55  
+9. Hematomes Tumefactes Rectovaginals 03:18
+10. Takte Mтrbid 04:42  
+11. Entropia Parla 02:06 
+
 
 ## Отношения с другими группами
 

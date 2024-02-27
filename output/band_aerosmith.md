@@ -1,17 +1,235 @@
 # Aerosmith
 
-Дискография
-"Aerosmith" 1973, Hard Rock
-"Get Your Wings" 1974, Hard Rock
-"Toys In The Attic" 1975, Hard Rock
-"Rocks" 1976, Hard Rock
-"Draw The Line" 1977, Hard Rock
-"Rock In A Hard Place" 1982, Hard Rock
-"Permanent Vacation" 1987, Hard Rock
-"Pump" 1989, Hard Rock
-"Get A Grip" 1993, Hard Rock
-"" 1994, Hard Rock
-"Nine Lives" 1997, Hard Rock
+
+
+## Дискография
+
+### "Aerosmith" 1973, Hard Rock
+
+  1.   Make It (Tyler) - 3:38 
+  2.   Somebody (Emspack/Tyler) - 3:45 
+  3.   Dream On (Tyler) - 4:27 
+  4.   One Way Street (Tyler) - 7:00 
+  5.   Mama Kin (Tyler) - 4:27 
+  6.   Write Me a Letter (Tyler) - 4:10 
+  7.   Movin' Out (Perry/Tyler) - 5:02 
+  8.   Walking the Dog (Thomas) - 3:12 
+
+
+Tom Hamilton  -  Bass 
+Joe Perry  -  Bass, Guitar, Percussion, Vocals, Vocals (bckgr) 
+Adrian Barber  -  Producer, Engineer 
+Joey Kramer  -  Drums 
+Steven Tyler  -  Bass, Harmonica, Percussion, Keyboards, Vocals, Flute (Wood) 
+Caryl Weinstock  -  Engineer 
+Brad Whitford  -  Guitar, Guitar (Rhythm) 
+David Woodford  -  Saxophone 
+Stu Werbin  -  Liner Notes 
+
+
+### "Get Your Wings" 1974, Hard Rock
+
+1.  Same Old Song And Dance
+2.  Lord Of The Thighs
+3.  Spaced
+4.  Woman Of The World 
+5.  S.O.S. (Too Bad)
+6.  Train Kept A Rollin
+7.  Seasons Of Wither
+8.  Pandora's Box
+
+(P)c 1974
+
+### "Toys In The Attic" 1975, Hard Rock
+
+1.  Toys In The Attic
+2.  Uncle Salty
+3.  Adam's Apple
+4.  Walk This Way
+5.  Big Ten Inch Records
+6.  Sweet Emotion
+7.  No More No More
+8.  Round And Round
+9.  You See Me Crying
+
+(P)c 1975
+
+
+Tom Hamilton  -  Bass, Guitar 
+Aerosmith  -  Arranger 
+Joe Perry  -  Guitar (Acoustic), Bass, Guitar, Percussion, Guitar (Rhythm), Vocals, Vocals (bckgr), Slide Guitar 
+Scott Cushnie  -  Piano 
+Jack Douglas  -  Arranger, Producer 
+Tony Hamilton  -  Bass, Guitar (Rhythm) 
+Joey Kramer  -  Percussion, Drums, Vocals 
+Jimmy Ienner, Jr.  -  Photography 
+Michael Mainieri, Jr.  -  Conductor, Orchestral Arrangements 
+Jay Messina  -  Percussion, Marimba, Engineer 
+Rod O'Brien  -  Assistant Engineer 
+Doug Sax  -  Mastering 
+Corky Stasiak  -  Assistant Engineer 
+David Thoener  -  Assistant Engineer 
+Steven Tyler  -  Bass, Harmonica, Percussion, Arranger, Keyboards, Vocals 
+Brad Whitford  -  Guitar, Guitar (Rhythm) 
+David Krebs  -  Director 
+Steve Leber  -  Director 
+Lisa Sparagano  -  Design 
+Ken Fredette  -  Design 
+
+
+### "Rocks" 1976, Hard Rock
+
+1.  Back In The Saddle
+2.  Last Child
+3.  Rats In The Cellar
+4.  Combination
+5.  Sick As A Dog
+6.  Nobody's Fault
+7.  Get The Lead Out
+8.  Lick And A Promise
+9.  Home Tonight
+
+Tom Hamilton - Bass
+Joey Kramer - Drums
+Joe Perry - Guitars, Vocals
+Lap Steel - Guitar
+Steven Tyler - Vocals, Keyboards
+Brad Whitford - Guitars
+
+(P)c 1976
+
+### "Draw The Line" 1977, Hard Rock
+
+1.  Draw The Line
+2.  I Wanna Know Why
+3.  Critical Mass
+4.  Get It Up
+5.  Bright Light Fright
+6.  Kings And Queens
+7.  The Hand That Feeds
+8.  Sight For Sore Eyes
+9.  Milk Cow Blues
+
+Tom Hamilton - Bass
+Joey Kramer - Drums
+Rick Dufay - Guitars
+Steven Tyler - Vocals, Piano
+Brad Whitford - Guitar
+
+(P)c 1977
+
+### "Rock In A Hard Place" 1982, Hard Rock
+
+1.  Jailbait
+2.  Lightning Strikes
+3.  Bitch's Brew
+4.  Bolivian Ragamuffin
+5.  Cry Me A River
+6.  Prelude To Joanie
+7.  Joanie's Butterfly
+8.  Rock In A Hard Place (Cheshire Cat)
+9.  Jig Is Up
+10.  Push Comes To Shove
+
+Tom Hamilton - Bass
+Joey Kramer - Drums
+Rick Dufay - Guitars
+Steven Tyler - Vocals, Piano
+Jimmy Crespo - Guitar
+
+(P)c 1982
+
+### "Permanent Vacation" 1987, Hard Rock
+
+1.  Heart's Done Time
+2.  Magic Touch
+3.  Rag Doll
+4.  Simoriah
+5.  Dude(Looks Like A Lady)
+6.  St.John
+7.  Hangman Jury
+8.  Girl Keeps Coming Apart
+9.  Angel
+10.Permanent Vacation
+11.I'm Down
+12.The Movie
+
+Tom Hamilton - Bass
+Joey Kramer - Drums
+Rick Dufay - Guitars
+Steven Tyler - Vocals, Piano
+Brad Whitford - Guitar
+
+(P)c 1987
+
+### "Pump" 1989, Hard Rock
+
+1.  Young Lust
+2.  F.I.N.E.
+3.  Going Down
+4.  Love In An Elevator
+5.  Monkey On My Back
+6.  Water Song
+7.  Janie's Got A Gun
+8.  Dulcimer Stomp
+9.  The Other Side
+10.My Girl
+11.Don't Get Mad, Get Even
+12.Hoodoo
+13.Voodoo Medicine Man
+14.What It Takes
+
+(P)c 1989
+
+### "Get A Grip" 1993, Hard Rock
+
+1.  Intro
+2.  Eat The Rich
+3.  Get A Grip
+4.  Fever
+5.  Livin' On The Edge
+6.  Flesh
+7.  Walk On Down
+8.  Shut Up And Dance
+9.  Cryin'
+10.Gotta Love It
+11.Crazy
+12.Line Up
+13.Can't Stop Messin'
+14.Amazing
+15.Boogie Man
+
+(P)c 1993
+
+### "" 1994, Hard Rock
+
+
+
+### "Nine Lives" 1997, Hard Rock
+
+1.  Nine Lives
+2.  Falling In Love
+3.  Hole In My Soul
+4.  Taste Of India
+5.  Full Circle
+6.  Something's Gotta Give
+7.  Ain't That A Bitch
+8.  The Farm
+9.  Crash
+10.Kiss Your Past Goodbye
+11.Pink
+12.Falling Off
+13.Attitude Adjustant
+14.Fallen Angels
+
+Tom Hamilton - Bass, Chapman Stick
+Joey Kramer - Drums
+Joe Perry - Guitars, Back Vocals
+Steven Tyler - Vocals, Piano
+Brad Whitford - Guitar
+
+(P)(C) 1997 COLUMBIA / SONY Music
+
 
 ## Отношения с другими группами
 

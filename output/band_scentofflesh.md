@@ -1,8 +1,50 @@
 # Scent Of Flesh
 
-Дискография
-"Roaring Depths of Insanity" 2002, Death Metal
-"Valor In Hatred" 2004, Death Metal
+
+
+## Дискография
+
+### "Roaring Depths of Insanity" 2002, Death Metal
+
+1. Cursed to Suffer 
+2. Eternity in Torment 
+3. Dark Years of Carnage 
+4. Witness my Madness 
+5. Drowned into the Darkness 
+6. Rotten, Shattered, Burned and Spoiled  
+7. Feed the Greed 
+8. Beneath the Tombstones 
+9. Towards Eternal Lost 
+10. Reign in Violent Perfection 
+
+
+
+Matti Viisainen - Guitar & Backing Vocals
+Niko Ahokas - Vocals
+Herkko Miikki - Guitar
+Sofian Gezuri - Bass 
+Antti Suikkanen - Drums
+
+
+### "Valor In Hatred" 2004, Death Metal
+
+01. Valor in Hatred
+02. Art of Beheading
+03. Circle of Dark Beliefs
+04. Visions of Death
+05. Descent to Dark Clarity
+06. Unleashed be the Ungodly
+07. Suicidal Cannibalism
+08. The Last Awakening
+
+SCENT OF FLESH lineup:
+
+Matti Viisainen - Guitar, Backing vocals 
+Herkko Miikki - Guitar 
+Sofian Gezuri - Bass 
+Antti Suikkanen - Drums 
+Niko Ahokas - Vocals
+
 
 ## Отношения с другими группами
 

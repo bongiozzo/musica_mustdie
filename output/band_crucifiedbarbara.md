@@ -1,8 +1,37 @@
 # Crucified Barbara
 
-Дискография
-"In Distortion We Trust" 2005, Metal
-"'Til Death Do Us Party" 2009, Metal
+
+
+## Дискография
+
+### "In Distortion We Trust" 2005, Metal
+
+1.  Play Me Hard
+2.  In Distortion We Trust
+3.  Losing The Game
+4.  Motorfucker
+5.  I Need A Cowboy From Hell
+6.  My Heart Is Black
+7.  Hide ‘Em All
+8.  Going Down
+9.  I Wet Myself
+10. Rock’n’Roll Bachelor
+11. Bad Hangover
+
+### "'Til Death Do Us Party" 2009, Metal
+
+1.  Killer On His Knees
+2.  Pain & Pleasure
+3.  Sex Action
+4.  Creatures
+5.  Jennyfer
+6.  Dark Side
+7.  Can’t Handle Love
+8.  Blackened Bones
+9.  Danger Danger
+10. Rats
+11. Feels Like Death
+
 
 ## Отношения с другими группами
 

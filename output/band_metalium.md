@@ -1,13 +1,199 @@
 # Metalium
 
-Дискография
-"Millenium Metal - Chapter One" 1999, Heavy Metal
-"State Of Triumph - Chapter Two" 2000, Power Metal
-"Hero-Nation - Chapter Three" 2002, Power Metal
-"As One - Chapter Four" 2004, Heavy Metal
-"Demons Of Insanity - Chapter Five" 2005, Heavy Metal
-"Nothing To Undo - Chapter Six" 2007, Heavy Metal
-"Incubus - Chapter Seven" 2008, Heavy Metal
+true heavy-metal
+
+## Дискография
+
+### "Millenium Metal - Chapter One" 1999, Heavy Metal
+
+Circle of Fate - Intro 
+Fight 
+Dream of Doom 
+Break the Spell 
+Revelation 
+Metalium 
+Metamorphosis 
+Void of Fire 
+Free Forever 
+Strike Down the Heathen 
+Pilgrimage 
+Metalians 
+Smoke on the Water 
+Burning 
+
+
+### "State Of Triumph - Chapter Two" 2000, Power Metal
+
+Elements 
+Steel Avenger 
+Years of Darion 
+Break Out 
+Erania 
+Stygian Flames 
+ Prophecy 
+Eye of the storm 
+Inner Sight 
+State of Triumph 
+Thank You For The Music  
+
+### "Hero-Nation - Chapter Three" 2002, Power Metal
+
+1- Source of Souls (Intoduction)
+2- Revenge of Tizona (Spain - El Cid)
+3- In The Name Of Blood (Italy - Nero)
+4- Rasputin (Russia)
+5- Odin's Spell (Scandinavia)
+6- Accused to be a Witch (France - Jeanne D'Ark)
+7- Throne in the Sky (Germany - Loreley)
+8- Odyssey (Greece - Odysseus)
+9- Fate conquered the power (South America - Inkas)
+10- Infinite love (United Kingdom - Shakespeare's Romeo&Juliet)
+11- Heronation (Finale)
+12- Heart Of The Tiger
+
+
+
+Lars Ratz - Bass
+Mathias Lange - Guitar
+Henning Basse - Vocals 
+Micheal Ehre - Drums
+
+
+
+
+### "As One - Chapter Four" 2004, Heavy Metal
+
+01. Astral Avatar
+02. Warrior
+03. Pain Crawles In The Night
+04. Find Out
+05. No One Will Save You
+06. Meaning Of Light
+07. Illuminated (Opus One)
+08. Meaning Of Light (reprise)
+09. Athena
+10. Power Strikes To Earth
+11. Screaming In The Darkness (bonus)
+12. Goddess Of Love And Pain
+13. As One
+
+Henning Basse - Vocals
+Matthias Lange - Guitars
+Lars Ratz - Bass
+Michael Ehre - Drums
+
+Guest appearances:
+Don Airey - keyboards and Moog
+Stefan Schlabritz - voice of metal god
+Saeko Kitamae - voice of the Metaliana
+
+Shouting choir:
+Didi Schulz, Kay Carstens, Gabriel Palermo,
+Michael, Matthias, Lars
+
+All vocal lines by Henning Basse
+All solos by Matthias Lange
+Additional guitars by Michael Ehre
+Additional guitars and keyboards by Lars Ratz
+Narrations written by Lars Ratz
+
+Produced and mixed by Lars Ratz
+Co-produced by Michael Ehre
+
+Recorded at Tornado Studio Hamburg Feb/Oct 2003 with Steinberg 
+Additional engineering by Edu Garcia, Florian Sommer and Alex Hunziger
+Mastered at Soundgarden by Chris V. Rautenkranz and Lars Ratz
+Concept idea, booklet layout by Lars Ratz 
+Photos booklet background by Lars Ratz
+Slide-photos by the band members
+bandphotos and portrait photos by Dirk Illing
+Retouching and booklet graphics layout by Martin Butzko
+
+### "Demons Of Insanity - Chapter Five" 2005, Heavy Metal
+
+01. Intro
+02. Power Of Time
+03. Demons Of Insanity
+04. Cyber Horizon
+05. Ride On
+06. Endless Believer
+07. Sky Is Falling
+08. Destiny
+09. Mother Earth
+10. Out Of The Silence
+11. Atrocity
+12. Silence Of The Night
+13. Visions Of Paradise
+14. One By One
+
+Henning Basse - vocals
+Matthias Lange - guitars
+Lars Ratz - bass
+Michel Ehre - drums
+
+Guest appearances:
+Don Airey - all keyboards and moog sounds
+Stefan Schlabritz - voice of the metal god
+Fred H. Ranzenberger - tenor choir voices
+Marcus Deml - additional lead guitar (tracks
+7,8,9)
+Victor Bullock - additional lead guitar (track 10)
+Shouting choir:
+Michael Ehre, Lars Ratz, Henning Basse, Matthias
+Lange.
+Vocal lines by Henning Basse and Lars Ratz.
+Narrations written by Lars Ratz.
+Michael Ehre and Lars Ratz - additional guitars.
+
+Produced by Lars Ratz.
+Co-produced by Michael Ehre and Matthias Lange.
+Concept idea and lyrics written by Lars Ratz and
+Michael Ehre.
+Cover artwork by Frans Mensink.
+Photos by Friedrun Reinhold at Shotz, Hamburg.
+Graphical work and booklet by Kai Swillus.
+Drums recorded by Christian Jungelbuth at
+Blue Noise Studios, Hamburg in Dec. 2004.
+Vocals recorded by Lars Ratz at Jumpower
+Studio, Mallorca in Jan. 2005.
+Guitars recorded by Matthias Lange and bass
+recorded
+by Lars Ratz at Tornado Studio, Hamburg, Jan.-Feb.
+2005.
+Additional engineering and editing by
+Christian Jungelbuth and Victor Bullock.
+Mixed by Florian Sommer, Lars Ratz and Victor
+Bullock.
+Mastered at Pinguin Mastering, Hamburg by Ralph
+Kessler,
+Christian Jungelbuth and Lars Ratz.
+
+### "Nothing To Undo - Chapter Six" 2007, Heavy Metal
+
+01. Spineless Scum
+02. Spirits
+03. Mindless
+04. Straight Into Hell
+05. Mental Blindness
+06. Heroes
+07. Way Home
+08. Dare
+09. Follow the Sign
+
+### "Incubus - Chapter Seven" 2008, Heavy Metal
+
+1. Trust (Intro)   
+2. Resurrection   
+3. Gates   
+4. Incubus   
+5. Take Me Higher   
+6. Never Die   
+7. At Armageddon   
+8. Sanity   
+9. Meet Your Maker   
+10. Hellfire   
+11. Soulchaser [Japanese bonus]
+
 
 ## Отношения с другими группами
 

@@ -1,20 +1,147 @@
 # Judas Iscariot
 
-Дискография
-"Judas Iscariot (Demo)" 1993, Black Metal
-"The Cold Earth Slept Below" 1995, Black Metal
-"March Of The Apocalypse" 1996, Black Metal
-"Thy Dying Light" 1997, Black Metal
-"Of Great Eternity" 1997, Black Metal
-"Arise, My Lord (EP)" 1997, Black Metal
-"Heaven In Flames" 1999, Black Metal
-"Distant In Solitary Night" 1999, Black Metal
-"To The Coming Age Of Intolerance (Split with Krieg)" 1999, Black Metal
-"Under The Black Sun (Live In Germany)" 2000, Black Metal
-"Dethroned, Conquered And Forgotten" 2000, Black Metal
-"To Embrace The Corpses Bleeding" 2002, Black Metal
-"The Cold Earth Slept Below (Re-Release)" 2002, Black Metal
-"Moonlight Butchery" 2002, Black Metal
+
+
+## Дискография
+
+### "Judas Iscariot (Demo)" 1993, Black Metal
+
+1. Babylon In Ruin
+2. Unholy Victory
+3. In Den Qualen Der Hoelle
+4. The Cold Earth
+5. Outro
+
+### "The Cold Earth Slept Below" 1995, Black Metal
+
+Damned Below Judas 
+Wrath 
+Babylon 
+The Cold Earth Slept Below 
+Midnight Frost 
+Ye Blessed Creatures 
+Reign 
+Fidelity 
+Nietzsche 
+
+### "March Of The Apocalypse" 1996, Black Metal
+
+1. Armageddon
+2. Extinction
+
+### "Thy Dying Light" 1997, Black Metal
+
+1. But eternals beheld his vast forests...
+2. His eternal life, like a dream was obliterated...
+3. Helpless it lay, like a worm in his frozen track...
+4. Behold, our race of unstoppable genius...
+5. From his woven darkness above...
+6. Writhing upon the wind of mystic philosophy and dreams...
+7. They saw his pale visage emerge from the darkness...
+8. Thy dying light, and desolate darkness...
+9. Arise, my lord of infernal wisdom...
+ 
+All music written, performed, and recorded by Akhenaten
+Recorded March, 1996 
+
+
+### "Of Great Eternity" 1997, Black Metal
+
+The Heavens Drop With Human Gore 
+I Filled With Woes The Passing Wind 
+Then Mourns The Wanderer 
+For The Last Judgement Draweth Nigh 
+Call To Heaven For Human Blood 
+Our Sons Shall Rule The Empire Of The Sea 
+
+### "Arise, My Lord (EP)" 1997, Black Metal
+
+1. The Wind Stands Silent
+2. The Black Clouds Roll Under The Parapet Of The Sky
+
+### "Heaven In Flames" 1999, Black Metal
+
+An Eternal Kingdom of Fire 
+Gaze Upone Heaven in Flames 
+Eternal Bliss...Eternal Death 
+Before a Circle of Darkness 
+From Hateful Visions 
+Spill the Blood of the Lamb 
+An Ancient Starry Sky 
+
+### "Distant In Solitary Night" 1999, Black Metal
+
+The Wind Stands Silent 
+Where The Winter Beats Incessant 
+The Black Clouds Roll Under The Parapet Of The Sky 
+The Clear Moon, And The Glory Of The Darkness
+To The Black Tower Of Victory 
+In The Bliss Of The Eternal Valleys Of Hate 
+Portions Of Eternity Too Great For The Eye Of Man 
+
+### "To The Coming Age Of Intolerance (Split with Krieg)" 1999, Black Metal
+
+1. Winterheart (by Judas Iscariot)
+2. Destruction Ritual (by Krieg)
+
+### "Under The Black Sun (Live In Germany)" 2000, Black Metal
+
+Babylon In Ruin 
+The Black Clouds Roll Under The Parapet Of The Sky 
+The Heavens Drop With Human Gore 
+Spill The Blood Of The Lamb 
+Karmageddon (Nargaroth Cover) 
+Black Eternal Winds 
+
+### "Dethroned, Conquered And Forgotten" 2000, Black Metal
+
+Descent To The Abyss 
+Benevolent Whore Dethroned For Eternity 
+Jouney Through Visions Of War 
+March Upon A Mighty Throne 
+Spill The Blood Of The Lamb (Blitzkrieg Version) 
+
+### "To Embrace The Corpses Bleeding" 2002, Black Metal
+
+01. I Awoke To A Night Of Pain And Carnage
+02. Bathed In Clouds Of Blood
+03. Terror From The Eastern Sky
+04. Where Eagles Cry And Vultures Laugh
+05. In The Valley Of Death, I Am Their King
+06. With Lust And Murder For Our Drink
+07. Behold The Lamb Of God Descending
+08. Spectral Dance Of The Macabre
+09. The Dead Burst Forth From Their Tomb
+
+All music written, performed and recorded by
+Akhenaten
+Lyrics written 07.2001 in Scharburg and Kronstadt,
+Romania
+Session hammer: Cryptic Winter
+Logo by C. Szpaidel
+Booklet assistence courtesy F. Volker
+"In The Valley Of Death..." keyboards added at
+Studio z.g. Ton, Nurnberg, Germany
+
+### "The Cold Earth Slept Below (Re-Release)" 2002, Black Metal
+
+Damned Below Judas 
+Wrath 
+Babylon 
+The Cold Earth Slept Below 
+Midnight Frost 
+Ye Blessed Creatures 
+Reign 
+Fidelity 
+Nietzsche 
+
+### "Moonlight Butchery" 2002, Black Metal
+
+Moonlight Butchery (Death's Hammer) 
+Crucified, Conjuring Hells Fire 
+Armageddon 
+Winterheart 
+
 
 ## Отношения с другими группами
 

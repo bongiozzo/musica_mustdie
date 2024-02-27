@@ -1,7 +1,13 @@
 # Flinch
 
-Дискография
-"Irrallaan" 2008, Rock
+Finnish rock
+
+## Дискография
+
+### "Irrallaan" 2008, Rock
+
+
+
 
 ## Отношения с другими группами
 

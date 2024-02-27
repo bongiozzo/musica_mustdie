@@ -1,8 +1,41 @@
 # Nocturnal Winds
 
-Дискография
-"Everlasting Fall" 1999, Melodic Death Metal
-"Of Art And Suffering" 2001, Melodic Death Metal
+
+
+## Дискография
+
+### "Everlasting Fall" 1999, Melodic Death Metal
+
+
+
+### "Of Art And Suffering" 2001, Melodic Death Metal
+
+01. Chaotic Universe Of Mind
+02. Silent Winds
+03. Erased
+04. Winter In My Heart
+05. Of Art And Suffering
+06. The Seer and the Quietus
+07. Choir Of Shadows
+
+
+
+Ville Matilainen : drums
+Miika Luolajan-Mikkola : guitars
+Juha Pennanen : guitars
+Jani Loikas : bass, vocals
+
+
+All music by Nocturnal Winds and Jyrki Nieminen
+Lyrics on 1,2,3,7 by Mikko Virkki
+Lyrics on 4,5 by Tomi Kalliola
+Lyrics and vocals on The Seer and the Quietus by
+Juhani Palomaki (courtesy of Yearning/Holy
+records)
+Recorded, produced, mixed & mastered by
+Band photos by Jari Koskela
+
+
 
 ## Отношения с другими группами
 

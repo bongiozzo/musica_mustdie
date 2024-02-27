@@ -1,7 +1,34 @@
 # Second Skin
 
-Дискография
-"Suture" 1995, Gothic
+
+
+## Дискография
+
+### "Suture" 1995, Gothic
+
+1. Disintegrating
+2. Kitschchrist
+3. Dirtpool
+4. No'I Fan
+5. Blutvergiftung
+6. Motormouth
+7. Kiss The Floor
+8. Bloodpressure
+9. Uniform
+10.Scum
+
+All Songs Written By SECOND SKIN.
+Produced By Jor & SECOND SKIN.
+Mixed By Jor At Machinery Studio.
+Programmed, Recorded & Mixed At
+Megaphon, Radar & Machinery Studios.
+
+Jim Hedberg - Vocals, Machines, Vibraphone
+Kristian Lundquist - Machines, Casiotone
+Mathias Hellquist - Guitars
+
+(P)&(C) 1995 DYNAMICA/MODERN MUSIC
+
 
 ## Отношения с другими группами
 

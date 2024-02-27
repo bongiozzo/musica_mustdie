@@ -1,9 +1,55 @@
 # Monumentum
 
-Дискография
-"In Absentia Christi" 1995, Ambient
-"Ad Nauseam" 2002, Ambient
-"Metastasi" 2004, Ambient
+
+
+## Дискография
+
+### "In Absentia Christi" 1995, Ambient
+
+1. Battesimo: Nero Opaco
+2. A Thousand Breathing Crosses
+3. Consuming Jerusalem
+4. Fade To Grey
+5. On Perspective Of Spiritual Catharsis
+6. From These Wounds
+7. Terra Mater Orfanorum
+8. Nephtali
+9. La Noia
+
+All Songs Written By Roberto Mammarella.
+Recorded & Mixed In 156 Exhausting Hours.
+Sources, Sounds, Moods & Agonies Magistrally Captured By Paolo Mauri.
+Recorded At B.I.P.S. Studio, Milan.
+
+Andrea Zanetti - Vocals
+Francesca Nicoli - Vocals
+Paolo Mauri - Samples
+Roberto Mammarella - Strings, Keys
+Mox Cristadoro - Percussions
+
+(P)&(C) 1995 MISANTHROPY Records
+
+### "Ad Nauseam" 2002, Ambient
+
+
+
+### "Metastasi" 2004, Ambient
+
+01. The Godfather
+02. La Noia Nella Casa Del Dolore
+03. Distance
+04. Windfall
+05. A Tainted Retrospective
+06. Theme I
+07. Orthodoxia
+08. The Colour Of Compassion
+09. Under Monochrome Rainbow
+10. Black And Violet
+11. Last Call For Life
+12. Fade To Grey
+13. I Stand Nowhere
+14. A Moment Of Silence For The Blind Universe
+
 
 ## Отношения с другими группами
 

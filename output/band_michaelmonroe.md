@@ -1,7 +1,23 @@
 # Michael Monroe
 
-Дискография
-"Sensory Overdrive" 2011, Glam
+ex-HANOI ROCKS
+
+## Дискография
+
+### "Sensory Overdrive" 2011, Glam
+
+01. Trick Of The Wrist
+02. ’78
+03. Got Blood?
+04. Superpowered Superfly
+05. Modern Day Miracle
+06. Bombs Away
+07. All You Need
+08. Later Won’t Wait
+09. Gone, Baby Gone
+10. Center Of Your Heart
+11. Debauchery As A Fine Art
+
 
 ## Отношения с другими группами
 

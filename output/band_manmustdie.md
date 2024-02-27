@@ -1,9 +1,49 @@
 # Man Must Die
 
-Дискография
-"...Start Killing" 2004, Death Metal
-"The Human Condition" 2007, Death Metal
-"No Tolerance for Imperfection" 2009, Death Metal
+
+
+## Дискография
+
+### "...Start Killing" 2004, Death Metal
+
+1. A Lesson Once Learned  05:27 
+2. Indulge In Genocide  03:33 
+3. Severe Facial Reconstruction  03:11 
+4. All Shall Perish  04:57    
+5. War On Creation  04:09   
+6. Eradicate the Weak  03:28    
+7. Scumkiller  04:52    
+8. Kingdoms Shall Fall  03:41    
+9. Faint Figure In Black  05:03 
+
+### "The Human Condition" 2007, Death Metal
+
+1. Intro  01:08   
+2. Silent Observer  03:24  
+3. March of the Clones  02:46
+4. Waster  04:11 
+5. 1000 Promises of Pain  05:00   
+6. Cardboard Gangster  04:08 
+7. Past the Point  04:55   
+8. You Stand Alone  04:29   
+9. Elitist  04:39 
+10. Organized Insanity  03:19 
+11. Suicide Gene  05:34 
+
+### "No Tolerance for Imperfection" 2009, Death Metal
+
+1. No Tolerance For Imperfection  04:39  
+2. Gainsayer  04:54   
+3. Kill It Skin It Wear It  04:18   
+4. It Comes In Threes  05:05   
+5. This Day Is Black  04:38   
+6. Hide The Knives  04:33  
+7. Dead In The Water  04:40  
+8. What I Can't Take Back  03:33    
+9. Reflections From Within  06:06 
+10. How The Mighty Have Fallen  05:18 
+11. Survival Of The Sickest  02:45 
+
 
 ## Отношения с другими группами
 

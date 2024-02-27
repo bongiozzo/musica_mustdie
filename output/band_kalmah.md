@@ -1,13 +1,127 @@
 # Kalmah
 
-Дискография
-"Swamplord" 2000, Melodic Death Metal
-"They Will Return" 2002, Melodic Death Metal
-"Swampsong" 2003, Melodic Death Metal
-"The Black Waltz" 2006, Melodic Death Metal
-"For The Revolution" 2008, Melodic Death Metal
-"12 Gauge" 2010, Melodic Death Metal
-"Seventh Swamphony" 2013, Melodic Death Metal
+Melodic death from Finland
+
+## Дискография
+
+### "Swamplord" 2000, Melodic Death Metal
+
+    Evil in you              5.08
+    Withering away           3.34
+    Heritance of Berija      4.29
+    Black roija              4.14
+    Dance of the water       4.31
+    Hades                    4.24
+    Alteration               4.41
+    Using the word           5.07
+
+    Altti Vetelinen          Bass
+    Pekka Kokko   Guitar & Vocals
+    Petri Sankala           Drums
+    Pasi Hiltula        Keyboards
+    Antti Kokko       Lead Guitar
+
+Produced and mixed at Tico-Tico Studios, Kemi, in September 2000.
+Produced by Kalmah 7 Ahti Kortelainen.
+Mastered at Finnvox by Mika Jussila.
+
+### "They Will Return" 2002, Melodic Death Metal
+
+1. Hollow Heart 
+2. Swamphell 
+3. Principle Hero 
+4. Human Fates 
+5. They Will Return 
+6. Kill the Idealist     
+7. The Blind Leader     
+8. My Nation     
+9. Skin O' My Teeth     
+  
+
+
+### "Swampsong" 2003, Melodic Death Metal
+
+1. Heroes to Us
+2. Burbot's Revenge
+3. Cloned Insanity
+4. The Third, The Magical
+5. Bird of Ill Omen
+6. Doubtful about it All
+7. Tordah
+8. Man with Mystery
+9. Moon of my Nights
+
+Swamplords:
+Timo Lehtinen: Bass
+Janne Kusmin: Drums
+Pasi Hiltula: Keyboards
+Pekka Kokko: Vocals, Rhytm guitar
+Antti Kokko: Lead guitar
+
+www.Kalmah.com
+
+Swampsessions:
+Recordings: Ahti Kortelinen, Tico-Tico Studios, February 2003
+Mixing: Mikko Karmila, Finvox studios, March 2003
+Producing: Kalmah
+Arrangements: Kalmah
+Artwork: Juha Vuorma
+Bouklet Design: Pasi Moilanen
+Band photography: Mika Vuoto
+
+(C) 2003 Ranka Publishing
+(P) 2003 Spinefarm Records
+(P) 2003 ООО "ФОНО" по лицензии Spinefarm Records 2003
+
+### "The Black Waltz" 2006, Melodic Death Metal
+
+1. Defeat 05:32  
+2. Bitter Metallic Side 04:27  
+3. Time Takes Us All 04:22  
+4. To The Gallows 04:40  
+5. Svieri Doroga 01:08  
+6. The Black Waltz 04:37  
+7. With Terminal Intensity 04:56  
+8. Man Of The King 04:02  
+9. The Groan Of Wind 05:02  
+10. Mindrust 04:06  
+11. One From The Stands 04:32
+
+### "For The Revolution" 2008, Melodic Death Metal
+
+01. For the Revolution
+02. Dead Man's Shadow
+03. Holy Symphony of War
+04. Wings of Blackening
+05. Ready for Salvation
+06. Towards the Sky
+07. Outremer
+08. Coward
+09. Like a Slave
+
+### "12 Gauge" 2010, Melodic Death Metal
+
+1. Rust Never Sleeps 05:16
+2. One Of Fail 04:10
+3. Bullets Are Blind 04:27
+4. Swampwar 04:19
+5. Better Not To Tell 03:58
+6. Hook The Monster 04:04
+7. Godeye 04:25
+8. 12 Gauge 05:50
+9. Sacramentum 06:28 
+
+### "Seventh Swamphony" 2013, Melodic Death Metal
+
+1. Seventh Swamphony
+2. Deadfall
+3. Pikemaster
+4. Hollo
+5. Windlake Tale
+6. Wolves on the Throne
+7. Black Martenґs Trace
+8. The Trapper 
+
 
 ## Отношения с другими группами
 

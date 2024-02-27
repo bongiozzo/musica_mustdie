@@ -1,15 +1,173 @@
 # Hatebreed
 
-Дискография
-"Under the Knife (EP)" 1996, Hardcore
-"Satisfaction Is The Death Of Desire" 1997, Hardcore
-"Perseverance" 2002, Hardcore
-"The Rise Of Brutality" 2003, Hardcore
-"Supremacy " 2006, Hardcore
-"For The Lions " 2009, Hardcore
-"Hatebreed" 2009, Hardcore
-"The Divinity Of Purpose" 2013, Hardcore
-"The Concrete Confessional" 2016, Thrash
+
+
+## Дискография
+
+### "Under the Knife (EP)" 1996, Hardcore
+
+1. Smash Your Enemies - 2:12 
+2. Kill An Addict - 1:02 
+3. Under The Knife - 1:33 
+4. Filth - 1:42 
+5. Not One Truth - 2:09 
+6. Severed - 2:40 
+7. Puritan - 3:07 
+
+Jamie Pushbutton  -  Drums 
+Lou Richards  -  Guitar 
+Matt McIntosh  -  Guitar 
+Chris Beattie  -  Bass 
+Jamey Shanahan  -  Vocals 
+
+
+### "Satisfaction Is The Death Of Desire" 1997, Hardcore
+
+01. Empty Promises 
+02. Burn The Lies 
+03. Before Dishonor 
+04. Puritan 
+05. Conceived Through An Act Of Violence 
+06. Afflicted Past 
+07. Prepare For War 
+08. Not One Truth 
+09. Betrayed By Life 
+10. Mark My Words 
+11. Last Breath 
+12. Burial For The Living 
+13. Worlds Apart 
+14. Driven by Suffering
+
+Alan Douches  -  Mastering 
+Steve Evetts  -  Producer, Engineer 
+Adam Tanner  -  Photography 
+Sean Bonner  -  Construction 
+Jesse Burke  -  Photography 
+Jamie Murphy  -  Photography 
+Jamie Pushbutton  -  Drums 
+
+
+### "Perseverance" 2002, Hardcore
+
+01. Proven [2:35]
+02. Perseverance [2:20]
+03. You're Never Alone [3:21]
+04. I Will Be Heard [2:58]
+05. A Call For Blood [3:05]
+06. Below The Bottom [2:25]
+07. We Still Fight [1:35]
+08. Unloved [2:37]
+09. Bloodsoaked Memories [2:52]
+10. Hollow Ground [2:39]
+11. Final Prayer [2:12]
+12. Smash Your Enemies [2:09]
+13. Healing To Suffer Again [2:49]
+14. Judgement Strikes (Unbreakable) [1:25]
+15. Remain Nameless [2:50]
+16. Outro [0:38]
+
+### "The Rise Of Brutality" 2003, Hardcore
+
+01. Tear It Down [1:47]
+02. Straight To Your Face [2:17]
+03. Facing What Consumes You [3:29]
+04. Live For This [2:49]
+05. Doomsayer [3:22]
+06. Another Day Another Vendetta [3:03]
+07. A Lesson Lived Is A Lesson Learned [2:03]
+08. Beholder Of Justice [2:44]
+09. This Is Now [3:36]
+10. Voice Of Contention [2:27]
+11. Choose Or Be Chosen [1:39]
+12. Confide In No One [2:38]
+
+### "Supremacy " 2006, Hardcore
+
+01. Defeatist [3:19]
+02. Horrors Of Self [2:29]
+03. Mind Over All [1:59]
+04. To The Threshold [2:49]
+05. Give Wings To My Triumph [3:05]
+06. Destroy Everything [3:29]
+07. Divine Judgment [2:28]
+08. Immortal Enemies [2:29]
+09. The Most Truth [2:44]
+10. Never Let It Die [3:39]
+11. Spitting Venom [2:49]
+12. As Diehard As They Come [2:16]
+13. Supremacy Of Self [2:47]
+
+### "For The Lions " 2009, Hardcore
+
+01. Ghosts of War (Slayer Cover) 04:00
+02. Suicidal Maniac (Suicidal Tendencies Cover) 03:06
+03. Escape (Metallica Cover) 04:38
+04. Hatebreeders (The Misfits Cover) 02:51
+05. Set It Off (Madball Cover) 02:37
+06. Thirsty and Miserable (Black Flag Cover) 02:21
+07. All I Had I Gave (Crowbar Cover) 03:15
+08. Your Mistake (Agnostic Front Cover) 01:43
+09. I'm in Pain (Obituary Cover) 04:11
+10. It's the Limit (Cro-Mags Cover) 01:40
+11. Refuse/Resist (Sepultura Cover) 03:07
+12. Supertouch/Shitfit (Bad Brains Cover) 02:21
+13. Evil Minds (Dirty Rotten Imbeciles Cover) 00:57
+14. Shut Me Out (Sick Of It All Cover) 02:14
+15. Sick of Talk (Negative Approach Cover) 00:38
+16. Life Is Pain (Merauder Cover) 03:21
+17. Hear Me (Judge Cover) 01:54
+18. Boxed in (Subzero Cover) 02:59
+
+### "Hatebreed" 2009, Hardcore
+
+1. Become The Fuse
+2. Not My Master
+3. Between Hell And A Heartbeat
+4. In Ashes They Shall Reap
+5. Hands Of A Dying Man
+6. Everyone Bleeds Now
+7. No Halos For The Heartless
+8. Through The Thorns
+9. Every Lasting Scar
+10. As Damaged As Me
+11. Words Became Untruth
+12. Undiminished
+13. Merciless Tide
+14. Pollution Of The Soul
+15. Escape (New Diehard Edit)
+
+
+### "The Divinity Of Purpose" 2013, Hardcore
+
+01. Put It To The Torch (2:12)
+02. Honor Never Dies (3:12)
+03. Own Your World (3:39)
+04. The Language (3:14)
+05. Before The Fight Ends You (3:17)
+06. Indivisible (2:56)
+07. Dead Man Breathing (3:19)
+08. The Devinity Of Purpose (3:39)
+09. Nothing Scars Me (3:08)
+10. Bitter Truth (2:40)
+11. Boundless (Time To Murder it) (3:21)
+12. Idolized and Vilified (2:23)
+
+### "The Concrete Confessional" 2016, Thrash
+
+01. A.D.
+02. Looking Down The Barrel Of Today
+03. Seven Enemies
+04. In The Walls
+05. From Grace We've Fallen
+06. Us Against Us
+07. Something's Off
+08. Remember When
+09. Slaughtered In Their Dreams
+10. The Apex Within
+11. Walking The Knife
+12. Dissonance
+13. Serve Your Masters
+
 
 ## Отношения с другими группами
 

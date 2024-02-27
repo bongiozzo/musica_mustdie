@@ -1,8 +1,28 @@
 # Voodoo Circle
 
-Дискография
-"Voodoo Circle" 2008, Hard Rock
-"Broken Heart Syndrome" 2011, Hard Rock
+
+
+## Дискография
+
+### "Voodoo Circle" 2008, Hard Rock
+
+
+
+### "Broken Heart Syndrome" 2011, Hard Rock
+
+1. No Solution Blues	 
+2. King Of Your Dreams	 
+3. Devil's Daughter	 
+4. This Could Be Paradise	 
+5. Broken Heart Syndrome		 
+6. When Destiny Calls	 
+7. Blind Man	 
+8. Heal My Pain	 
+9. The Heavens Are Burning	 
+10. Don't Take My Heart	 
+11. I'm In Heaven	 
+12. Wings Of Fury
+
 
 ## Отношения с другими группами
 

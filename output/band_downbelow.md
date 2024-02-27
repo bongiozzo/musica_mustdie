@@ -1,7 +1,25 @@
 # Down Below
 
-Дискография
-"Silent Wings Eternity" 2004, Gothic
+
+
+## Дискография
+
+### "Silent Wings Eternity" 2004, Gothic
+
+00. Neb-cheperu-re
+01. He's The Sun
+02. How To Die In Space
+03. Embalmment
+04. Biban El Moluk
+05. The Man Who Robs Dead People…
+06. The Seals Shall Be Broken
+07. Up And Away…
+08. Vision: Gold
+09. Return Back From Ignorance
+10. Now The Night has taken Over…
+11. Uprising: Sundown
+12. Twelve
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,21 @@
 # Serpentine Dominion
 
-Дискография
-"Serpentine Dominion" 2016, Melodic Death Metal
+
+
+## Дискография
+
+### "Serpentine Dominion" 2016, Melodic Death Metal
+
+1. Intro 
+2. The Vengeance in Me 
+3. Vanquished unto Thee 
+4. Divide, Conquer, Burn, and Destroy 
+5. Sovereign Hate  
+6. On the Brink of Devastation 
+7. Jagged Cross Legions 
+8. Prelude 
+9. This Endless War 
+
 
 ## Отношения с другими группами
 

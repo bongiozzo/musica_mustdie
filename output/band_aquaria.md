@@ -1,7 +1,22 @@
 # Aquaria
 
-Дискография
-"Luxaeterna" 2006, Power Metal
+
+
+## Дискография
+
+### "Luxaeterna" 2006, Power Metal
+
+01. Aeternalux
+02. And Let The Show Begin
+03. Here Comes The Life
+04. Spirits Of Light
+05. Humanity
+06. Whispers And Pain Of Mother nature
+07. Choice Time
+08. Judgement Day
+09. Your Majesty Gaia
+10. Luxaeterna
+
 
 ## Отношения с другими группами
 

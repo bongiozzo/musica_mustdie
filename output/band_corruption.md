@@ -1,7 +1,42 @@
 # Corruption
 
-Дискография
-"Ecstasy" 1996, Death Doom
+Death-Doom-Gothic
+
+## Дискография
+
+### "Ecstasy" 1996, Death Doom
+
+1.  Ecstasy
+2.  Animals He Served
+3.  Winter Winds
+4.  Mystic Whores Fly
+5.  Wooden Jesus
+6.  Receive My Sacrifice
+7.  Scarlet - Souled
+8.  Eye In The Shroud
+9.  Breezy Winds
+10.Sorrows 
+11.A Heart Of Ashes
+12.When Love Was Mine
+
+P.Horne - Vocals
+Janusz Kubicki - Guitars
+Piotr Wacisz - Bass
+Grzegorz Wilkowski - Drums
+Miroslaw Mroz - Keyboards
+
+Guests:
+Januariusz Bizon - Vocals, Violin
+Radek Twarog - Accordion
+
+Produced by CORRUPTION and Bogdan Nowak.
+
+Executive producer Andrzej Mackiewicz.
+Recorded and Mixed at Spaart Studio by Bogdan Nowak.
+Band residence: Poland.
+
+(p)(c) 1996 DSFA Records DSFA 1006
+
 
 ## Отношения с другими группами
 

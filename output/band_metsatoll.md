@@ -1,8 +1,27 @@
 # Metsatoll
 
-Дискография
-"Aio" 2010, Folk
-"Ulg" 2011, Folk
+
+
+## Дискография
+
+### "Aio" 2010, Folk
+
+
+
+### "Ulg" 2011, Folk
+
+01. Agu
+02. Sojasuda 
+03. Kuu
+04. Muhu oud
+05. Kivine maa
+06. Rabakannel
+07. Isata
+08. Kahjakaldad
+09. Tormilind
+10. Ulg
+11. Eha
+
 
 ## Отношения с другими группами
 

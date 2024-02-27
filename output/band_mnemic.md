@@ -1,11 +1,106 @@
 # Mnemic
 
-Дискография
-"Mechanical Spin Phenomena" 2003, Nu Metal
-"The Audio Injected Soul" 2004, Nu Metal
-"Passenger" 2007, Nu Metal
-"Sons Of The System" 2010, Metalcore
-"Mnemic" 2012, Metalcore
+Modern Metal
+
+## Дискография
+
+### "Mechanical Spin Phenomena" 2003, Nu Metal
+
+01. Liquid
+02. Blood Stained
+03. Ghost
+04. DB'XX'D
+05. Tattoos
+06. The Naked And The Dead
+07. Closed Eyes
+08. Mechanical Spin Phenomenon
+09. Zero Gravity
+10. Blood Stained (Rhys Fulber remix)*
+
+Multimedia part:
+01. Ghost (videoclip)**
+
+Michael Bogballe - voice mech
+Mircea Gabriel Eftemie - guitar-mech and
+guitar-synth
+Brian Rasmussen - drum-mech and keyboards
+Rune Stigart - rhythm-guitar mech
+Mikkel Larsen - bassline-mech
+
+Recorded at the AntFarm (www.antfarm) Studios in
+March 2003
+Produced and engineered by Tue Madsen except
+* remix and programming by Rhys Fulber
+*Mixed by Greg Reely
+**directed by Patric Ullaeus
+
+design/logo/layout by Clint Nielsen
+Concept by Clint Nielsen / Mnemic
+Photography by Lasse Hoile
+All keyboards by Brylle and Tue Madsen
+All programming and sampling by DJ Traesko
+All synthguitars by Mircea
+
+
+### "The Audio Injected Soul" 2004, Nu Metal
+
+01. Dreamstate Emergency
+02. Door 2.12
+03. Illuminate
+04. Deathbox
+05. Sane Vs. Normal
+06. Jack Vegas
+07. Mindsaver
+08. Overdose in the Hall of Fame
+09. The Silver Drop
+10. Wild Boys (DURAN DURAN cover)
+
+### "Passenger" 2007, Nu Metal
+
+01. Humanaut
+02. In The Nothingness Black
+03. Meaningless
+04. Psykorgasm
+05. Pigfuck
+06. In Control
+07. Electric I'd Hypocrisy
+08. Stuck Here
+09. What's Left
+10. Shape Of The Formless
+11. The Eye On Your Back
+12. Zero Synchronized (Japanese Bonus Track)
+
+### "Sons Of The System" 2010, Metalcore
+
+01. Sons Of The System
+02. Diesel Uterus
+03. Mnightmare
+04. The Erasing
+05. Climbing Towards Stars
+06. March Of The Tripods
+07. Fate
+08. Hero(in)
+09. Elongated Sporadic Bursts
+10. Within
+11. Orbiting
+Bonus-tracks:
+12. Dreamjunkie
+13. Orbiting (Remix By Leatherstrip)
+
+### "Mnemic" 2012, Metalcore
+
+01. Transcend 
+02. Valves 
+03. Junkies On The Storm 
+04. I’ve Been You 
+05. Pattern Platform 
+06. Mnemesis 
+07. There’s No Tomorrow 
+08. Haven At The End Of The World 
+09. Ocean Of Void 
+10. Blue Desert In A Black Hole 
+11. Empty Planet
+
 
 ## Отношения с другими группами
 

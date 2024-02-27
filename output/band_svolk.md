@@ -1,8 +1,36 @@
 # Svolk
 
-Дискография
-"Svolk" 2009, Heavy Metal
-"Svolk 'em All" 2011, Stoner
+
+
+## Дискография
+
+### "Svolk" 2009, Heavy Metal
+
+1. 52  05:26   
+2. This Is It  04:23  
+3. Anchor  05:07    
+4. Sweet Agony  03:29  
+5. Miss Alcohol  06:19    
+6. 12 Times The Pain  03:28    
+7. End Of Days  04:44  
+8. Inferno  05:52   
+9. Dead:30  03:26 
+
+### "Svolk 'em All" 2011, Stoner
+
+1.	 52	05:28	 
+2.	 This is It	04:24	 
+3.	 Anchor	05:09	 
+4.	 Sweet Agony	03:31	 
+5.	 Miss Alcohol	06:21	 
+6.	 12 Times the Pain	03:30	 
+7.	 End of Days	04:45	 
+8.	 Inferno	05:54	 
+9.	 Dead 00_30	03:30	 
+10.	 Time for the Dying (Bonus Track)	05:36	 
+11.	 Warm Within (Bonus Track)	05:05	 
+12.	 Overload (Bonus Track)	07:02	
+
 
 ## Отношения с другими группами
 

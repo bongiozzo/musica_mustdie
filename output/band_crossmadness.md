@@ -1,7 +1,22 @@
 # Cross Madness
 
-Дискография
-"Endless Chaos" 2011, Black Metal
+
+
+## Дискография
+
+### "Endless Chaos" 2011, Black Metal
+
+01. Introduction
+02. Divine Libertinage
+03. The Executions
+04. Saint Digger
+05. Satan's Place
+06. From Beyond
+07. Winter
+08. For You
+09. Endless Chaos
+10. Funeral Under Moon (Outro)
+
 
 ## Отношения с другими группами
 

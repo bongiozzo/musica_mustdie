@@ -1,9 +1,46 @@
 # Deformity
 
-Дискография
-"Misanthrope" 1997, Death Metal
-"Murder Within Sin" 1999, Death Metal
-"Superior" 2002, Death Metal
+death metal
+
+## Дискография
+
+### "Misanthrope" 1997, Death Metal
+
+-My Creation
+-Splitting
+-They Watch
+-God Defined
+-AIDG
+
+### "Murder Within Sin" 1999, Death Metal
+
+-Eyes
+-Bloodfields
+-Stained Red
+-Enter Witin The Lust Divine
+-33
+-Angelheart
+-The Dark Sun
+-Speak Out My Name
+-Misanthrope
+-Burn Down The Heavens
+-Night Scars
+
+### "Superior" 2002, Death Metal
+
+Dawn Of Omega 
+Samslaysman 
+7 Fathers I 
+Raven 
+Time (The Avenger) 
+The Prophet Game 
+Daylight Bleeding 
+Vassago 
+Eden Is Burning 
+Shadowcross 
+L'ame Des Immortels 
+Godwind
+
 
 ## Отношения с другими группами
 

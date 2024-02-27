@@ -1,9 +1,21 @@
 # Steel Panther
 
-Дискография
-"Feel The Steel" 2009, Metal
-"Balls Out" 2011, Metal
-"All You Can Eat" 2014, Metal
+
+
+## Дискография
+
+### "Feel The Steel" 2009, Metal
+
+
+
+### "Balls Out" 2011, Metal
+
+
+
+### "All You Can Eat" 2014, Metal
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,10 +1,57 @@
 # Obtest
 
-Дискография
-"Tukstantmetis" 1997, Metal
-"Auka Seniems Dievams" 2001, Metal
-"Is Kartos I Karta" 2005, Metal
-"Gyvybes Medis" 2008, Metal
+War Pagan Metal
+
+## Дискография
+
+### "Tukstantmetis" 1997, Metal
+
+1. Karo Dvasia 06:38 
+2. Is Nualinto Krasto (Kai Nieko Nebelieka) 04:06  
+3. Vilkalokiai 07:10  
+4. Tolstant Krantams 04:14  
+5. 997 - Menulio Karunos Kautynes 05:13  
+6. Sakme apie ugnine sirdj 04:19  
+7. Amziams 04:50
+
+### "Auka Seniems Dievams" 2001, Metal
+
+1. Ip Pirdies... 05:13 
+2. Anapus Nemuno 05:37  
+3. Auka Seniems Dievams 02:49  
+4. Svarbiausias Mыpis 03:53  
+5. Kruvinos Papvaistлs 04:39 
+6. Groюtantys Su Karo Ugnim 04:00
+7. Priepa Parklupdyk 04:25 
+8. Ћirgas Parnep Mano Kыna 04:40 
+9. Eime Su Mumis 04:38
+10. Vardan... 03:54
+
+### "Is Kartos I Karta" 2005, Metal
+
+1. Paskutine Akimirka
+2. Devyniaragis
+3. Is Kartos I Karta
+4. Pergale
+5. Griausmavaldys
+6. Audronasa
+7. Burtai
+8. Pirmyn!
+9. Suminti Juodi Takai
+
+### "Gyvybes Medis" 2008, Metal
+
+1. Apeigos   
+2. Vedlys   
+3. Sviesa   
+4. Gyvybes Medis   
+5. Sakalo Vaikai   
+6. Аzuolas   
+7. Gelezinis Vilkas   
+8. Tai Ne Pabaiga   
+9. Ikaitai 
+
+
 
 ## Отношения с другими группами
 

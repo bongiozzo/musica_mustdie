@@ -1,15 +1,114 @@
 # Cyclotimia
 
-Дискография
-"Insomnia" 1999, Industrial
-"New Death Order" 2000, Industrial
-"Wasteland" 2002, Ambient
-"AlphaOmega" 2002, Ambient
-"Same Time Same Place" 2002, Ambient
-"Metamorphosis" 2002, Ambient
-"Trivial Pleasures" 2003, Ambient
-"Eschaton" 2004, Ambient
-"Algorithms" 2005, Ambient
+industrial/ambient
+
+## Дискография
+
+### "Insomnia" 1999, Industrial
+
+1. Innocence
+    2. Dust
+    3. Undead
+    4. Epitaph
+    5. Meat Pulse
+    6. Rebellion
+    7. Triumph of Death
+    8. Sleeping Room / Bonus
+
+### "New Death Order" 2000, Industrial
+
+1. Miserere
+    2. NDO
+    3. Cursed Ground
+    4. Manifest Destiny I
+    5. Manifest Destiny II
+
+### "Wasteland" 2002, Ambient
+
+1. Morphology
+    2. Neon Sleep Empires
+    3. Stockmarket
+    4. Hole
+    5. Liturgy
+    6. Wasteland
+    7. Drifting
+    8. Soliloquy
+    9. Figures Frozen
+  10. Same Time Same Place
+
+### "AlphaOmega" 2002, Ambient
+
+1. Doctrine
+2. Alpha Omega
+3. Epsilon
+4. Final Immersion
+
+### "Same Time Same Place" 2002, Ambient
+
+SIDE A:
+    1. Empty Fields
+    2. Same Time
+    3. Paradise X / Dub
+
+  SIDE B:
+    1. Same Place
+    2. Bugs
+    3. Distance
+    4. Lifestyle
+
+### "Metamorphosis" 2002, Ambient
+
+SIDE A:
+    1. Metamorphosis
+    2. Lament
+    3. Gross Market
+
+  SIDE B:
+    1. At Home
+    2. At Office
+    3. Nomansland
+
+### "Trivial Pleasures" 2003, Ambient
+
+1. ID Number
+    2. NASDAQ
+    3. 24 Hours Of Non-Stop Consumption
+    4. Market Experts
+    5. VeriChip
+    6. 99
+    7. Another Digital Solution
+    8. Currency Indicator
+    9. Stock Talk
+  10. From Channel To Channel
+  11. Office Comfort
+
+### "Eschaton" 2004, Ambient
+
+1. Leviathan
+    2. Fibre Optic Angel
+    3. Shelter
+    4. Meltdown
+    5. Norns I
+    6. Market Report
+    7. Algorithms
+    8. Manhattan
+    9. Norns II
+  10. Crusade
+  11. Gloria
+
+### "Algorithms" 2005, Ambient
+
+01. Algorithms
+02. Leviathan (Sea Power Edit)
+03. Immersion
+04. Messe
+05. Trade Network
+06. Wasteland (Silentium)
+07. Dakkota
+08. Radio Pentagon
+Bonus:
+Algorithms - Video
+
 
 ## Отношения с другими группами
 

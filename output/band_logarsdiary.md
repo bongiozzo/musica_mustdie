@@ -1,7 +1,28 @@
 # Logar's Diary
 
-Дискография
-"Book I: Iostros" 2001, Power Metal
+
+
+## Дискография
+
+### "Book I: Iostros" 2001, Power Metal
+
+ 1. Earthdawn - (2.24)
+ 2. Lonely on the Serpent River - (4.49)
+ 3. Travelling to the Blood Woods - (4.16)
+ 4. Ti' An - A troubadour's ballad - (3.30)
+ 5. Demon in the Kaer - (4.06)
+ 6. Travar - The Golden City - (3.23)
+ 7. Home of the Traders - Barterstown - (5.18)
+ 8. King's Hall - (5.05)
+ 9. Iostros - (5.20)
+10. My Love still Exists - (4.24)
+11. Deja Vu - (3.36)
+12. Riding The Storm (bonus) - (05:36) 
+
+Produced by Logarґs Diary and released in 2001 
+  
+
+
 
 ## Отношения с другими группами
 

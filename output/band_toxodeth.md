@@ -1,9 +1,77 @@
 # Toxodeth
 
-Дискография
-"Mysteries About Life And Death" 1991, Death Metal
-"Lo mas Morbido de la Realidad" 1993, Death Metal
-"Demons Black Metal Demons [compilation]" 2011, Death Metal
+
+
+## Дискография
+
+### "Mysteries About Life And Death" 1991, Death Metal
+
+ Side One:
+1. Intro
+2. The Beacon
+3. Phantasm
+4. Visit Of The Dead
+5. Doom Predictions
+ Side Two:
+1. Graveyard
+2. Mausoleum
+3. Seeing To Our Ages
+4. Tale From The Beyond
+
+(p)&(c) 1991 WILD RAGS Records
+
+### "Lo mas Morbido de la Realidad" 1993, Death Metal
+
+1. El mensaje
+2. Lo mas mуrbido de la realidad
+3. convulsiуn extrema
+4. Remembranzas del muerto
+5. Impulso
+6. Llamado antiguo	 
+7. їCuбndo van a morir?	
+8. Profundo desconocido
+9. їQuй hay en esa mente sucia?
+10. Locura del vudъ
+11. Lla danza de los gnomos (por la muerte del ser humano)	 
+12. Repeticiуn de la bastardez
+13. Castillo de los duendes
+
+### "Demons Black Metal Demons [compilation]" 2011, Death Metal
+
+1. Words of Doom	 
+2. World at War	 
+3. The Arena Agenda	 
+4. Universal Norm of Doom	 
+5. War Celebration	 
+6. Cold Forest of Doom	 
+7. Lower Worlds Intervention	 
+8. Black Doom	 
+9. Desolation Valley (Intro)	 
+10. Priceless Whores	 
+11. Curse of the Dominant		 
+12. The Last Days	 
+13. Kill the Ghost	 
+14. Bitches from Hell	 
+15. Will Never See It	 
+16. (Outro) Olmecas	 
+17. Cutting Heads (Intro)	 
+18. Kali Punishment	 
+19. Eating Their Victim's Flesh	 
+20. Victim's Blood Celebration	 
+21. Human Sacrifice	 
+22. Hell	 
+23. After Death There's No Rest	 
+24. Conditioned Souls	 
+25. Demons	 
+26. Lower Planetary System	 
+27. Hellish Planets	 
+28. A Description of the Hellish Planets	 
+29. Hundreds and Thousands of Hellish Planets	 
+30. Screams from Hell	 
+31. Sex Indiscriminatelly	 
+32. Sinful Position	 
+33. Smutly Whore
+
 
 ## Отношения с другими группами
 

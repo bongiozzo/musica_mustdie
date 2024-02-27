@@ -1,7 +1,22 @@
 # Diaboli
 
-Дискография
-"Mesmerized By Darkness" 1996, Black Metal
+Brutal Death Black
+
+## Дискография
+
+### "Mesmerized By Darkness" 1996, Black Metal
+
+1.  Into The Northern Darkness
+2.  Under The Leadership Of A New God
+3.  Mesmerized By Darkness
+4.  Thy Must Prepare To Fall
+5.  Fall Of Human Race
+6.  Victory Celebration
+7.  Chaos
+8.  Supreme
+
+(P)c 1996 UNISOUND REC // USR 26
+
 
 ## Отношения с другими группами
 

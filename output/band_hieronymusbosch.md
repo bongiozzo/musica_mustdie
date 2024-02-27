@@ -1,9 +1,53 @@
 # Hieronymus Bosch
 
-Дискография
-"The Human Abstract" 1995, Techno Death
-"Artifical Emotions" 2005, Techno Death
-"Equivoke" 2008, Techno Death
+Russian techno-death metal band
+
+## Дискография
+
+### "The Human Abstract" 1995, Techno Death
+
+1. The Apogee
+2. Through Racism Forms
+3. Petra Scandali
+4. Black Lake Blues
+5. The Human Abstract
+6. Mental Perfection
+7. The Gardens Of Earthly Delight
+8. Doubt Soul
+9. Expectation Of Autumn
+
+
+Всеволод Горбенко – bass, vocals and keyboards effects.
+Владимир Лейвиман – solo, rhythm, acoustic guitar
+Павел Богородицкий – drums
+Вячеслав Молчанов – solo guitar
+
+### "Artifical Emotions" 2005, Techno Death
+
+1. Interference 
+2. Third Half 
+3. Nodus 
+4. Escape from Primitivity 
+5. Tired Eyes 
+6. Blind Windows Stare 
+7. Dew Swimmer 
+8. Practical Criticism 
+9. Whispers in Bedlam 
+10. Heartbeat Seismology
+
+### "Equivoke" 2008, Techno Death
+
+Zero On A Dice 
+Fingerprint Labyrinth 
+Monad Hecatomb 
+Forlorn Luminary 
+Stones And Stocks 
+Tracer Bullet Falling Star 
+Scrupulum 
+Broke 
+Scoffer Tragedian 
+The Mime
+
 
 ## Отношения с другими группами
 

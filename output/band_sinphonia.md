@@ -1,8 +1,43 @@
 # Sinphonia
 
-Дискография
-"When The Tide Breaks" 2000, Gothic
-"The Divine Disharmony" 2002, Gothic
+Dark Gothic Progressive Metal
+
+## Дискография
+
+### "When The Tide Breaks" 2000, Gothic
+
+Medusa
+Lost
+Moonstruck
+Blear The Hideous
+Beyond The Clouds
+Path Of Life
+Odyssey
+Now And Forever
+
+
+### "The Divine Disharmony" 2002, Gothic
+
+Prologue 
+The Reflective And the Sleeper 
+A Spectre of Dust 
+Disclosure 
+The Essence of Desire 
+Strength of the Static Sight 
+Within a Script 
+My Will Is Wisdom 
+The Divine Disharmony 
+Epilogue 
+
+
+
+Monika Pedersen - vocals 
+Henrik Rangstrup - guitars  
+Thor Jeppesen - bass  
+Dennis Buhl - drums  
+Peter Jensen - keyboard 
+
+
 
 ## Отношения с другими группами
 

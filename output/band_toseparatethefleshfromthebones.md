@@ -1,7 +1,37 @@
 # To Separate The Flesh From The Bones
 
-Дискография
-"Utopia Sadistica" 2004, Grindcore
+
+
+## Дискография
+
+### "Utopia Sadistica" 2004, Grindcore
+
+01. Meatbash 
+02. Cold Cuts 
+03. Rotten Siege 
+04. The Final Extinction 
+05. Preternatural Pervert 
+06. Meretricious Murderess 
+07. Disconsolated Suffer 
+08. Pussyfer 
+09. Amputated Whore 
+10. Conflagration 
+11. Absolute Holocaust 
+12. Mass Of Vipers 
+13. Brain Drain Faucet 
+14. The Rot 
+15. Art Of Aggression 
+16. The Spoon 
+17. Bare Your Wounds For Me 
+18. Reek Of Excrete 
+19. The Revolt 
+20. Mutilated Virgin Slut 
+21. Profanity 
+22. Drowned In Semen 
+23. The Manticore 
+24. Drunk & Nauseous 
+25. Condition Dead
+
 
 ## Отношения с другими группами
 

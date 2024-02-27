@@ -1,8 +1,60 @@
 # Kittie
 
-Дискография
-"Spit" 1999, Heavy Metal
-"Paperdoll" 2000, Alternative
+
+
+## Дискография
+
+### "Spit" 1999, Heavy Metal
+
+  1.   Spit (Kittie) - 2:21 
+  2.   Charlotte (Kittie) - 3:57 
+  3.   Suck (Kittie) - 3:32 
+  4.   Do You Think I'm a Whore (Kittie) - 3:02 
+  5.   Brackish (Kittie) - 3:08 
+  6.   Jonny (Kittie) - 2:25 
+  7.   Trippin' (Kittie) - 2:22 
+  8.   Raven (Kittie) - 3:25 
+  9.   Get off (You Can Eat a Dick) (Kittie) - 2:52 
+  10.   Choke (Kittie) - 4:06 
+  11.   Paperdoll (Kittie) - 3:24 
+  12.   Immortal (Kittie) - 2:51 
+
+
+### "Paperdoll" 2000, Alternative
+
+  1.   Paperdoll (Remix) - 3:09 
+  2.   Spit (Kittie) - 2:42 
+  3.   Brackish (Kittie) - 2:55 
+  4.   Suck (Kittie) - 3:20 
+  5.   Do You Think.... (Kittie) - 2:01 
+  6.   Raven (Kittie) - 4:02 
+
+
+GGGarth  -  Producer, Engineer 
+Howie Weinberg  -  Mastering 
+Larry Busacca  -  Photography 
+DJ Dave  -  Loops 
+"Kitten"  -  Artwork 
+Michael McLaughlin  -  Photography 
+Talena Atfield  -  Bass, Vocals 
+Juli Berg  -  Director 
+Fallon Bowman  -  Guitar, Vocals 
+Matt Chiaraville  -  Editing 
+Candace Corelli  -  Director 
+Andrew Grimo  -  Production Assistant 
+Nicky Guilfoil  -  Photography 
+Laurel Harris  -  Executive Producer 
+Ben Kaplan  -  Production Assistant 
+Mercedes Lander  -  Drums 
+Morgan Lander  -  Guitar, Vocals 
+Bob Nation  -  Engineer 
+Michael Santorelli  -  Executive Producer 
+Brandy Stephen  -  Paintings 
+Tanya Candler  -  Bass 
+Christopher Shaw  -  Mixing 
+
+
+
 
 ## Отношения с другими группами
 

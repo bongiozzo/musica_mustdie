@@ -1,7 +1,21 @@
 # Dehydrated
 
-Дискография
-"Duality of Existence" 2011, Death Metal
+
+
+## Дискография
+
+### "Duality of Existence" 2011, Death Metal
+
+1. W.T.D. 01:58  
+2. Alive Underground 03:09  
+3. Virus 03:44  
+4. Dehydrated 04:34  
+5. Die Angst 02:51  
+6. Immer 03:29  
+7. Predator 03:31  
+8. I Split Myself 03:29  
+9. Blood and Suffering 04:37 
+
 
 ## Отношения с другими группами
 

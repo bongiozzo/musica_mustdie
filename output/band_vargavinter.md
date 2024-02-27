@@ -1,7 +1,34 @@
 # Vargavinter
 
-Дискография
-"Frostfodd" 1996, Black Metal
+
+
+## Дискография
+
+### "Frostfodd" 1996, Black Metal
+
+1. Dimman Kring Bjorko
+2. Forstfodd
+3. Den Lyosko Orn
+4. Alvdans
+5. Av Vargkvinna Fodd
+6. Som De Sade
+7. Vintern Min Slavinna
+
+All songs written By VARGAVINTER.
+Engineered By Anders & Niklas, 
+Recorded & Mixed At Studio Urskog, Bergslagen.
+
+Hughen - Bass Guitar & Vocals
+Gabhen - Guitars
+Munhen - Drums & Percussion
+
+Additional Musicians:
+Manstrale - Piccoloflute & Spoken Rhymes
+Hrymr - Oboe
+Svantvit - Elf-Vocals
+
+(P)(C) 1996 INVASION Records
+
 
 ## Отношения с другими группами
 

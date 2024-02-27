@@ -1,7 +1,22 @@
 # Bleed The Sky
 
-Дискография
-"Paradigm In Entropy" 2005, Death Metal
+
+
+## Дискография
+
+### "Paradigm In Entropy" 2005, Death Metal
+
+01. Minion
+02. Killtank
+03. Paradigm In Entropy
+04. Skin On Skin
+05. Leverage
+06. The Martyr
+07. Gated
+08. God In The Frame
+09. Division
+10. Borrelia Mass
+
 
 ## Отношения с другими группами
 

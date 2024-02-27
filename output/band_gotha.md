@@ -1,7 +1,30 @@
 # Gotha
 
-Дискография
-"Take Your Soul" 2002, Thrash
+(italian thrash metal)
+
+## Дискография
+
+### "Take Your Soul" 2002, Thrash
+
+1 - Take Your Soul
+2 - The Battle
+3 – Banshee
+
+Recorded in the hospitable Bunker Studio in March 2002
+
+Take Your Soul well represents what Gotha are now: a working well together
+band, endowed with a good technique but overall very hardened.
+The tracks are violent and cruel, and also in the most "quiet" parts 
+they're always powerful and massive.
+
+The first two tracks included in the cd will be part of the split ep 7" expected for the end of the summer with the deathers Abiura. The vynil will be edited in special version (333 copies): it will have an opening cover including a booklet full of photo's, lyrics and other informations (everything for a very low price).
+
+Take Your Spul has a promotional intent, and it's going to be only sent to magazines, radio's, record labels, webzines and fanzines (it's not for sale).
+
+Gotha are now looking for a label willing to believe in them and in their music, 
+and they're sure that the cd Take Your Soul will help'em at this.
+
+
 
 ## Отношения с другими группами
 

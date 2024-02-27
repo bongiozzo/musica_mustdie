@@ -1,7 +1,30 @@
 # Caledonian
 
-Дискография
-"Acolyte" 2002, Death Doom
+
+
+## Дискография
+
+### "Acolyte" 2002, Death Doom
+
+1. Intro
+2. Depth of her love
+3. Lust for Celtic dark 
+4. Ragdoll
+5. Silkrose
+6. Sparrow inside black ruins
+7. Opera of forgotten words
+
+
+Ari Nieminen (vocals)
+Mikko "Mice" Paavilainen (keybs)
+Petri Immonen (guitars)
+Ville Leppдnen (guitars)
+Narttu (drums & lyrics)
+Hermanni (bass)
+Riina Rinkinen (female vocals)
+
+
+
 
 ## Отношения с другими группами
 

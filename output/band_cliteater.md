@@ -1,10 +1,89 @@
 # Cliteater
 
-Дискография
-"Clit 'Em All" 2003, Deathcore
-"Eat Clit or Die" 2005, Deathcore
-"Scream Bloody Clit" 2008, Deathcore
-"The Great Southern Clitkill" 2010, Deathcore
+
+
+## Дискография
+
+### "Clit 'Em All" 2003, Deathcore
+
+1. Ejaculation Feast on a Baked Fetus  00:49   
+2. Masticating on Maggots  01:26 
+3. Profane Martyr  02:53  
+4. Extort to Saturate  00:57
+5. I Killed R.L.  02:53   
+6. Cliteater  00:56   
+7. Portable Gasstove  02:46   
+8. $4 Bitch Disfigurement  02:08  
+9. Take the Pain  02:15 
+10. Hobo Shooting  00:53   
+11. Disease  01:49   
+12. Disposal of Abundance  03:18   
+13. The Positive Aspects of Collective Chaos  00:15    
+14. Degree of Risk Involved  01:47  
+15. Pissing Out the Seasons  01:34   
+16. Hate Towards Humanity  01:17
+17. Sperminator (Gut Cover)/Septic Oral Sex (Gut Cover)  04:49 
+
+### "Eat Clit or Die" 2005, Deathcore
+
+1. CT Eunuch  01:41  
+2. Consumed  02:10  
+3. Cock and Love  02:07   
+4. Beaten Senseless  02:01 
+5. Crash Test Fetus  01:24   
+6. I’m in Hell  01:50 
+7. A Fridge Too Full  01:34   
+8. Pit of Grubs  00:32   
+9. Inbreed Seed  01:51   
+10. Destined to Rot  01:43   
+11. Chamber of Clits  01:16   
+12. Whores' Desire  05:08   
+13. Frigid Fuck  01:30 
+14. Death of J-Lo  01:20
+15. Positive Aspects of Collective Chaos Pt. II  00:37 
+16. Eat Clit or Die (S.O.D. Cover)  02:23  
+17. Built to Kill  01:27  
+18. Incarcerated  01:42 
+19. Misantropigs  05:09 
+
+### "Scream Bloody Clit" 2008, Deathcore
+
+1. Nathan Gale (Rot in Hell)  02:15    
+2. M.I.L.F. Hunter  02:10    
+3. Desolate  02:43   
+4. Mummified on Formaldehyde  02:15  
+5. Impulse to Destruct  02:57   
+6. 1001 Nights in Perversia  01:20    
+7. Porn of the Dead  01:58
+8. Bruce-Dick-in-Son  01:58   
+9. Your Mouth, My Seed  03:48  
+10. Promised Land  02:30    
+11. Positive Aspects of Collective Chaos Pt. III  00:32    
+12. Didgeridildo  02:04
+13. Obese Obsession  02:30    
+14. Pedophilliac Cult  03:06    
+15. Sea of Faeces  03:01 
+
+### "The Great Southern Clitkill" 2010, Deathcore
+
+1. Now I Lay Me Down to Cheat  01:00 
+2. Crime Scene Cleaner  01:42
+3. Daryl Rhea  02:31 
+4. F.F. (Fuckin' Faggot)  02:22
+5. I Hypochondriac  01:49 
+6. The Great Southern Clitkill  01:38 
+7. Cellar Dweller  01:40  
+8. La Bestia  01:14   
+9. Fred Shipman (a Sick Man)  02:01 
+10. Saturday Night Beaver  01:30 
+11. Gruntlichkeit  00:40 
+12. Glory Hole  02:36 
+13. In-Diana Jones  01:46   
+14. Family Ties  01:20 
+15. Positive Aspects of Collective Chaos (Part IV)  02:10  
+16. Knoxville Horror Mutilations  02:47 
+17. BTS (Biomedical Tissue Services)  03:55 
+
 
 ## Отношения с другими группами
 

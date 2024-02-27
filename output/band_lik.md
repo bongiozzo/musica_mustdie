@@ -1,7 +1,13 @@
 # Lik
 
-Дискография
-"Mass Funeral Evocation" 2015, Death Metal
+Sweden death metal
+
+## Дискография
+
+### "Mass Funeral Evocation" 2015, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,10 +1,44 @@
 # Vile
 
-Дискография
-"Stench Of The Deceased" 1999, Deathcore
-"Depopulate" 2002, Deathcore
-"The New Age Of Chaos" 2005, Deathcore
-"Metamorphosis" 2011, Death Metal
+Death/Grind
+
+## Дискография
+
+### "Stench Of The Deceased" 1999, Deathcore
+
+
+
+### "Depopulate" 2002, Deathcore
+
+01. Depopulate
+02. Butchered
+03. Path To Incarnation
+04. Retaliation
+05. Engulfing Horde
+06. Eat The Rude
+07. Unit 731
+08. Interrogation Rites 
+09. Bitternes
+
+### "The New Age Of Chaos" 2005, Deathcore
+
+
+
+### "Metamorphosis" 2011, Death Metal
+
+1. March Towards The Dawn 
+2. The Revealing 
+3. What Lies Beyond 
+4. Rise 
+5. I Am Alive 
+6. Wolf At Your Door 
+7. I Am Become Death 
+8. Shadow Work 
+9. Prophetic Betrayal 
+10. As One 
+11. Redemption 
+
+
 
 ## Отношения с другими группами
 

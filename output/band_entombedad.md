@@ -1,8 +1,33 @@
 # Entombed A.D.
 
-Дискография
-"Back To The Front" 2014, Death Metal
-"Dead Dawn" 2016, Death Metal
+ex-Entombed
+
+## Дискография
+
+### "Back To The Front" 2014, Death Metal
+
+01. Kill To Live (04:44)
+02. Bedlam Attack (04:44)
+03. Pandemic Rage (04:02)
+04. Second To None (04:28)
+05. Bait And Bleed (04:37)
+06. Waiting For Death (02:56)
+07. Eternal Woe (05:08)
+08. Digitus Medius (06:01)
+09. Vulture And The Traitor (04:45)
+10. The Underminer (02:57)
+11. Soldier Of No Fortune (06:50)
+12. Gospel Of The Horns (Bonus)
+
+L-G Petrov (Vocals)
+Nico Elgstrand (Guitars )
+Olle Dahlstedt (Drums )
+Victor Brandt (Bass)
+
+### "Dead Dawn" 2016, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

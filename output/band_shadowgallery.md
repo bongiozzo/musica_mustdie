@@ -1,11 +1,86 @@
 # Shadow Gallery
 
-Дискография
-"Shadow Gallery" 1994, Progressive
-"Carved In Stone" 1995, Progressive
-"Tyranny" 1998, Progressive
-"Legacy" 2001, Progressive
-"Room V" 2005, Progressive
+high quality progressive metal
+
+## Дискография
+
+### "Shadow Gallery" 1994, Progressive
+
+1.The Dance of Fools 7:31 
+2.Darktown 9:12  
+3.Mystified 7:07  
+4.Questions at Hand 6:56  
+5.The Final Hour 4:15  
+6.Say Goodbye to the Morning 6:43  
+7.The Queen of the city of Ice 17:22  
+
+
+### "Carved In Stone" 1995, Progressive
+
+1. Cliffhanger 8:50  
+3. Crystalline Dream 5:45  
+5. Don't Ever Cry, Just Remember 6:25 
+7. Warcry 5:56  
+8. Celtic Princess 2:04  
+9. Deeper Than Life 4:33  
+11.Alaska 5:21 
+13.Ghostship 21:56 
+
+
+### "Tyranny" 1998, Progressive
+
+ACT I  
+1. Stiletto in the Sand 1:57  
+2. War For Sale 5:35  
+3. Out of Nowhere 4:20  
+4. Mystery 5:42  
+5. Hope For Us 6:00  
+6. Victims 5:13  
+7. Broken 1:54  
+
+                                                           ACT II  
+
+8. I Believe 8:41  
+9. Roads Of Thunder 6:06  
+10. Spoken Words 4:38  
+11. New World Order 8:11  
+12. Chased 4:36  
+13. Ghost Of A Chance 5:19  
+14. Christmas Day 5:40 
+
+
+### "Legacy" 2001, Progressive
+
+1. Cliffhanger 2 13:05 
+    a) Hang On 
+    b) The Crusher 
+2. Destination Unknown  7:01 
+3.  Colors  7:02 
+4.  Society Of The Mind  5:23 
+5.  Legacy  5:04 
+6.  First Light  34:18
+
+
+### "Room V" 2005, Progressive
+
+ACT III
+Manhunt 
+Comfort Me 
+The Andromeda Strain 
+Vow 
+Birth of a Daughter 
+Death of a Mother 
+Lamentia 
+
+ACT IV
+Seven Years 
+Dark 
+Torn 
+The Archer of Ben Salem 
+Encrypted 
+Room V 
+Rain
+
 
 ## Отношения с другими группами
 

@@ -1,9 +1,66 @@
 # Hypocrite
 
-Дискография
-"Edge Of Existence" 1996, Melodic Death Metal
-"Into The Halls Of The Blind" 1999, Melodic Death Metal
-"Edge Of Existence (re-issue)" 2000, Melodic Death Metal
+
+
+## Дискография
+
+### "Edge Of Existence" 1996, Melodic Death Metal
+
+1.  Vita Dolorosa
+2.  Deep Within This Flower Of Sin
+3.  Edge Of Existence
+4.  The Scream...
+5.  Voices From The Dark Side
+6.  Heaven's Tears
+7.  A Black Wound
+8.  When I'm Gone
+9.  Sanctuary Of Slepeping God
+10.Welcome To Abaddon
+11.Forsaken By Christ
+12.Beyond The Edge
+
+Recorded & Mixed At Bunker Studio By HYPOCRITE & Krister Asvik.
+
+Johan Haller - Bass, Vocals
+Niclas Aberg - Guitars
+Henrik Hedberg - Guitars
+Peter Nagy - Drums
+
+Guests:
+
+L.G.Petrov - Vocals On 5, 9
+Thomas Vilkstrom - Vocals On 7
+
+(P)(C) 1996 BLUE POWER / BRUTAL MUSIC
+
+### "Into The Halls Of The Blind" 1999, Melodic Death Metal
+
+01. Dreadful Shadow 
+02. In Blood We End 
+03. Mind Reaper 
+04. Slavery Society 
+05. Blood Blind6) Eye Of The Serpent 
+07. Dark Blue Velvet 
+08. Son Of The Sungod 
+09. Of A Fiend Kind 
+10. Into The Halls Of The Blind 
+11. Awakening Of The God
+
+### "Edge Of Existence (re-issue)" 2000, Melodic Death Metal
+
+01. Vita Dolorosa 
+02. Deep Within This Flower Of Sin 
+03. Edge Of Existence 
+04. The Scream… 
+05. Voices From The Dark Side 
+06. HeavenґS Tears 
+07. A Black Wound 
+08. When IґM Gone 
+09. Sanctuary Of The Sleeping God 
+10. Welcome To Abaddon 
+11. Forsaken By Christ 
+12. Beyond The Edge
+
 
 ## Отношения с другими группами
 

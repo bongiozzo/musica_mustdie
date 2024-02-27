@@ -1,8 +1,37 @@
 # Pandaemonium
 
-Дискография
-"...And the Runes Begin to Pray" 1999, Power Metal
-"Return to Reality" 2005, Power Metal
+
+
+## Дискография
+
+### "...And the Runes Begin to Pray" 1999, Power Metal
+
+1. The Alchemist  04:52   
+2. Birth of the Fallen Angel  02:29  
+3. Sabbath Day  04:25 
+4. Wings of the Wind  04:29  
+5. The Dark Before...  04:30
+6. The War of Races  04:33 
+7. ...the Light  03:37  
+8. Lone Warrior  05:06  
+9. Pandaemonium  04:53  
+10. The Alchemist (piano version)  03:34 
+
+### "Return to Reality" 2005, Power Metal
+
+1. Intro  01:27   
+2. Time of Glory  03:43   
+3. Evil Star  05:09  
+4. Ancient Time  04:19  
+5. Fires in the Sky  06:45 
+6. Return to Reality  04:26   
+7. Himn to the Fifth Element  04:39  
+8. Miracle  04:35  
+9. Flying over the Clouds  04:54  
+10. Blazing Fire  05:01   
+11. Warrior Lost in Time  05:50   
+12. Land of Dreams  05:00 
+
 
 ## Отношения с другими группами
 

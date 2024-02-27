@@ -1,7 +1,21 @@
 # Cobra
 
-Дискография
-"Lethal Strike" 2011, Heavy Metal
+
+
+## Дискография
+
+### "Lethal Strike" 2011, Heavy Metal
+
+1. Overwhelmed
+2. Rockmetal	 
+3. Men of War	 
+4. Whitechapel	 
+5. The Roadrunner (Bite My Dust)	 
+6. Denim Attack	 
+7. Blessed by Beer	 
+8. Scene of Our End	 
+9. Highland Warrior
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,36 @@
 # Perpetua
 
-Дискография
-"Irrational" 1996, Alternative
+Brutal Alternative & Death
+
+## Дискография
+
+### "Irrational" 1996, Alternative
+
+1.  What I Conceived 
+2.  Mind Crisis
+3.  Irrational (One Deception)
+4.  Same Questions
+5.  ... One Time
+6.  Revolution O
+7.  Old Plague Revives
+8.  Spineless Destiny
+9.  Faith's Lost
+10.M.I.C.
+11.Denied
+12.Same Deception
+
+Kaskote - Vocals
+German Biondo - Guitars, Noise, Backing Vocals
+Diego Rodriguez - Bass, Backing Vocals
+Leo Grunbaum - Drums, Synths, Backing Vocals
+
+PRODUCED by PERPETUA.
+
+Recorded and Mixed at DIGIART Studios by Oscar Gimenez.
+Mastered by Andres Mayo at MR. MASTER.
+
+(p)(c) 1996 PAVEMENT MUSIC
+
 
 ## Отношения с другими группами
 

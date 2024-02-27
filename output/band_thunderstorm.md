@@ -1,11 +1,68 @@
 # Thunderstorm
 
-Дискография
-"Kingdom of Storms" 1999, Black Metal
-"Sorrows of Winter" 2000, Black Metal
-"Evilnorth" 2001, Black Metal
-"Hatred Burning Northern Sky" 2005, Black Metal
-"Light From Darkness" 2011, Black Metal
+
+
+## Дискография
+
+### "Kingdom of Storms" 1999, Black Metal
+
+1. Rise of Stormbeasts  05:10 
+2. The Forestman  03:56    
+3. ...with Howling Wolves  05:46    
+4. Rulers of the Darkest Realms  04:51  
+5. Lords of the Wind  03:53    
+6. Freezing Eyes of Winter  04:29   
+7. Revelations of Wanderer  02:44    
+8. Elderravens Know  05:52   
+
+### "Sorrows of Winter" 2000, Black Metal
+
+1. Dethroned Deception  05:05   
+2. Bloodred Tears  04:19    
+3. Sorrows That Came to Stay Forever  07:22   
+4. Kingdom in the North  05:34    
+5. Feel My Wrath  04:36  
+6. Vast Forest of My Memories and Dreams  03:27  
+7. Winter Never Dies  05:00 
+
+### "Evilnorth" 2001, Black Metal
+
+1. To End This Life... In Battle  05:07
+2. Saga Of The Ancient Warrior  05:27  
+3. Evilnorthern  05:14    
+4. Thundra  04:03    
+5. ...And Thundersstorm Forever  04:05  
+6. Pagans  04:31
+7. Icewind  01:16   
+8. Bloodred Tears  04:21 
+9. Transilvanian Hunger (Darkthrone cover)  04:46 
+
+### "Hatred Burning Northern Sky" 2005, Black Metal
+
+1. Intro  00:14    
+2. Ride of the Black Horseman  03:44    
+3. Dethroned Deception  04:48  
+4. New Era  03:00    
+5. Hatred Burning Northern Sky  05:31
+6. Enter Darkness  04:42    
+7. for Eternity  04:03   
+8. Freezing Eyes of Winter  04:14 
+9. to End this Life in Battle  05:04
+10. Outro  00:31 
+
+### "Light From Darkness" 2011, Black Metal
+
+01. Bloodred Tears
+02. Sorrows That Came To Stay Forever
+03. Hatred Burning Northern Sky
+04. To End This Life In Battle
+05. The Last Battle (Последняя Битва)
+06. forestman
+07. Spirit Of The Dark Forest
+08. Winterwolf
+09. Freezing Eyes Of Winter
+10. For Eternity….
+
 
 ## Отношения с другими группами
 

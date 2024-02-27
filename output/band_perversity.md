@@ -1,7 +1,21 @@
 # Perversity
 
-Дискография
-"Words Like Poison" 2004, Death Metal
+
+
+## Дискография
+
+### "Words Like Poison" 2004, Death Metal
+
+01 The Foreplay	
+02 Hypnotic Blood	
+03 Words Like Poison	
+04 Seeds Of Damnation	
+05 Disgust	
+06 Experience Of Death	
+07 True Name For The Devil
+08 Fury Within
+09 Embodied Slavery
+
 
 ## Отношения с другими группами
 

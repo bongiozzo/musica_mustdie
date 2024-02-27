@@ -1,7 +1,28 @@
 # Cardinal Sin
 
-Дискография
-"Spiteful Intents" 1997, Melodic Death Metal
+
+
+## Дискография
+
+### "Spiteful Intents" 1997, Melodic Death Metal
+
+1.  Spiteful Intents
+2.  Probe With A Quest
+3.  The Cardinal Sin
+4.  Language Of Sorrow
+
+Recorded and Mixed at Berno Studio.
+Produced by CARDINAL SIN and Berno Paulsson.
+Engineered by Berno Paulsson & Devo Andersson.
+
+Devo Andersson - Guitars
+Jocke Gotltberg - Drums
+Dan-Ola Persson - Vocals
+Alex Losback - Bass
+John Zwetsloot - Guitars
+
+(P)(C) 1997 WRONG AGAIN Records // WAR 010
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,17 @@
 # Exhumation
 
-Дискография
-"Dance Across The Past" 1998, Death Metal
-"Traumaticon" 2000, Death Metal
+
+
+## Дискография
+
+### "Dance Across The Past" 1998, Death Metal
+
+
+
+### "Traumaticon" 2000, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

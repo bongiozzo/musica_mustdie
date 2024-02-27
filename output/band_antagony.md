@@ -1,6 +1,9 @@
 # Antagony
 
-Дискография
+grind/death from California
+
+## Дискография
+
 
 ## Отношения с другими группами
 

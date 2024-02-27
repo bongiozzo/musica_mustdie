@@ -1,7 +1,34 @@
 # Lobotomy
 
-Дискография
-"Lobotomy" 1995, Death Metal
+
+
+## Дискография
+
+### "Lobotomy" 1995, Death Metal
+
+1. The Hate That Breathes
+2. Soulshifter
+3. Depriver Of Life
+4. Be Gone
+5. Turmoil
+6. Against The Gods
+7. Nalled
+8. Darkened Limes
+9. Misery End
+
+All Songs Written By LOBOTOMY.
+Produced By LOBOTOMY.
+Engineered By Ronald Orchard.
+Recorded At SVLT-Dead House Studios, Jakobsberg, Stockholm.
+
+Max Collin - Vocals
+Lars Jelleryd - Guitar
+Etienne Belmar - Guitar
+Patric Carsana - Bass
+Daniel Strachal - Drums
+
+(P)&(C) 1995 CHAOS Records
+
 
 ## Отношения с другими группами
 

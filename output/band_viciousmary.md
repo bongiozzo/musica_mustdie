@@ -1,7 +1,28 @@
 # Vicious Mary
 
-Дискография
-"Vicious Mary" 2002, Hard Rock
+
+
+## Дискография
+
+### "Vicious Mary" 2002, Hard Rock
+
+Love Or Hate 
+When He Cries 
+Outside 
+Million Words 
+Crying For You 
+The Call 
+E.L.I.S.A. 
+Keysage 
+I'll Be There For You 
+You Run Me Wild 
+Indian Giver 
+
+
+Produced by Pat Scalabrino & Vicious Mary
+
+
+
 
 ## Отношения с другими группами
 

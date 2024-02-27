@@ -1,12 +1,126 @@
 # Infinity
 
-Дискография
-"Beto Vasquez Infinity" 2001, Power Metal
-"Wizard" 2003, Power Metal
-"Flying Towards the New Horizon" 2006, Power Metal
-"Darkmind" 2008, Power Metal
-"Existence" 2010, Power Metal
-"Beyond Space Without Limits" 2012, Power Metal
+All-Star Project
+
+## Дискография
+
+### "Beto Vasquez Infinity" 2001, Power Metal
+
+1. Until Dawn (Angels of Light) 07:39
+2. Wizard 05:10
+3. The Battle of the Past 04:23
+4. Sadness in the Night 07:02
+5. Through Times Part I (Instrumental) 01:41  
+6. Through Times Part II 02:27
+7. Golden Hair 02:49 
+8. Infinity Space (Instrumental) 04:01  
+9. Through Times Part III 04:38
+10. The Laws of the Future 04:40
+11. Promises Under the Rain 05:37 
+
+### "Wizard" 2003, Power Metal
+
+1. Wizard (Remastered Version) 05:10
+2. Until Dawn (Rough Mix - Original Lyrics) 05:50 
+3. Sadness In The Night (Radio Edit) 05:51
+4. Wizard (Early Rough Mix) 05:05
+5. A Tale That Wasn't Right (Instrumental Version) 05:25  
+6. Promises Under The Rain (Candice Version) 05:42
+7. Danjorland (Early Mix) 06:27
+8. Wizard (Karaoke Version) 05:10  
+9. Wizard (Video Clip) 04:33 
+
+### "Flying Towards the New Horizon" 2006, Power Metal
+
+1. Cardassia and Bajor 01:30  
+2. After the Tempest 06:37
+3. Lord of the Sky (Remake 2006) 05:21
+4. The Tunnel of the Souls 04:23
+5. Time of Reflection 04:56
+6. Soldiers of Hope (Remake 2006) 05:45
+7. Star Losers 04:20
+8. Secret 05:36
+9. She is my Guide 03:07
+10. Sunrise 01:59  
+11. Dreaming in Clouds 04:22 
+12. Tale of the Black Tower 07:49 
+
+### "Darkmind" 2008, Power Metal
+
+1. From your heart 03:12 
+2. Kingdom of liberty 04:33
+3. Magical moments of time 04:44 
+4. Mystic 03:27
+5. Darkmind 04:35
+6. For time runs in my veins 03:40
+7. Sleeping in the shadows 06:16
+8. Chronicles of a world without gods 03:39
+9. Close your eyes 04:30
+10. Follow the moonlight 03:43
+11. Memories of reinglow 04:38
+12. The tunnel of the souls (Bonus track, Spanish Version) 04:21 
+
+### "Existence" 2010, Power Metal
+
+Disc 1 
+1. Shadows Fall feat. Jason Droguett 04:57 
+2. Council Of My Dreams feat. Sonya Scarlet 04:46
+3. The Temple feat. Alfred Romero & Enrik Garcнa 03:18
+4. Existence feat. Timo Tolkki & Darнo Schmunck 04:31
+5. Beyond Myself feat. Jacob Hansen & Patricio Molini 05:25
+6. Celestial Meeting feat. Mikki Straatsma 05:52
+7. Tonight feat. Cristian Bertoncelli 03:31
+8. Future City feat. Slava Popova 03:57
+9. Freedom 04:42
+10. Dark Night feat. Lady Angellyca 03:45
+Disc 2 
+1. Eyes of Destiny feat. Dusk & Dominique Leurquin 04:06
+2. Cold Soul feat. Mik 03:21
+3. Endless Tears 04:43 
+4. Epic Travel feat. Melissa Ferlaak 04:26
+5. Arwen Song feat. Simone Christinat & Sascha Froma 04:47 
+6. Watching You 04:20 
+7. The Vortex 03:44
+8. Earth 04:32
+9. Ghost Of Time feat. Gaby Koss 04:45
+10. To Live for The King feat. Darнo Schmunck (Bonus Track) 05:15 
+
+Guest Musicians
+
+Alfred Romero appears courtesy of Dark Moor
+Cristian Bertoncelli appears courtesy of Renacer / Icarus Music
+Darнo Schmunck appears courtesy of Darнo Schmunck
+Dominique Leurquin appears courtesy of Rhapsody of Fire / Luca Turilli's
+Dreamquest
+Dusk appears courtesy of Crysalys
+Enrik Garcнa appears courtesy of Dark Moor
+Gaby Koss appears courtesy of Gaby Koss
+Jacob Hansen appears courtesy of Anubis Gate
+Jason Droguett appears courtesy Jason Droguett
+Lady Angellyca appears courtesy of Forever Slave / SPV-Wacken Records
+Melissa Ferlaak appears courtesy of Echoterra
+Mikki Straatsma appears courtesy of Viveynne
+Mik appears courtesy of So Cold
+Sascha Froma appears courtesy of Sascha Froma
+Simone Christinat appears courtesy of Legenda Aurea
+Slava Popova appears courtesy of Operatika
+Sonya Scarlet appears courtesy of Theatres Des Vampires
+Timo Tolkki appears courtesy of Timo Tolkki / Del Imaginario Discos / Eric de
+Haas 
+Pablo G. Soler appears courtesy of Pablo G. Soler
+Patricio Molini appears courtesy of Nordica
+
+20 guest musicians, 11 countries participating.
+
+Limited Edition only for Argentina.
+
+Double Digipack, numbered, 28 pages booklet, poster, sticker reminder of the
+tenth anniversary. 
+
+### "Beyond Space Without Limits" 2012, Power Metal
+
+
+
 
 ## Отношения с другими группами
 

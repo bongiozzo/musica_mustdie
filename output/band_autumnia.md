@@ -1,9 +1,34 @@
 # Autumnia
 
-Дискография
-"In Loneliness Of Two Souls" 2005, Death Doom
-"By the Candles Obsequial " 2006, Death Doom
-"O'Funeralia" 2009, Death Doom
+Death Doom Metal
+
+## Дискография
+
+### "In Loneliness Of Two Souls" 2005, Death Doom
+
+1. ... By Your Hand
+2. Before Leave For Ever
+3. In Sorrow And Solitude
+4. At Eternal Parting
+5. Pray For Me ...
+6. Into The Grave ...
+
+### "By the Candles Obsequial " 2006, Death Doom
+
+1. Increasing the Grief Terrestrial 09:01
+2. With Wailing and Lament 06:56
+3. Bitterness of Loss 07:19
+4. ...And the Life dies away... 12:50 
+5. In Loneliness of two Souls 09:21 
+
+### "O'Funeralia" 2009, Death Doom
+
+1. In Heavens... Among the Tombs 10:30
+2. Blessing Your Illness 10:31
+3. Falling Asleep With Entreaty 05:31  
+4. Breathe Your Mourning Into Me 10:08
+5. By The Candles Obsequial 12:53 
+
 
 ## Отношения с другими группами
 

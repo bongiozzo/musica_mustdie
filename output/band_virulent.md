@@ -1,8 +1,17 @@
 # Virulent
 
-Дискография
-"Under The Hex Of Amdusias" 2000, Death Metal
-"Azoth" 2002, Death Metal
+
+
+## Дискография
+
+### "Under The Hex Of Amdusias" 2000, Death Metal
+
+
+
+### "Azoth" 2002, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

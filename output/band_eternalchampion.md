@@ -1,7 +1,13 @@
 # Eternal Champion
 
-Дискография
-"The Armor of Ire" 2016, Heavy Metal
+
+
+## Дискография
+
+### "The Armor of Ire" 2016, Heavy Metal
+
+
+
 
 ## Отношения с другими группами
 

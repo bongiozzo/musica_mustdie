@@ -1,7 +1,34 @@
 # Trans-Siberian Orchestra
 
-Дискография
-"Beethoven's Last Night" 2000, Progressive
+classic-progressive
+
+## Дискография
+
+### "Beethoven's Last Night" 2000, Progressive
+
+Overture
+Midnight
+Fate
+What Good This Deafness
+Mephistopheles
+What Is Eternal
+The Moment
+Vienna
+Mozart/Figaro
+The Dreams Of Candlelight
+Requiem (The Fifth)
+I'll Keep Your Secrets
+The Dark
+F§оr Elise
+After The Fall
+A Last Illusion
+This Is Who You Are
+Beethoven
+Mephistopheles' Return
+Misery
+Who Is This Child
+A Final Dream
+
 
 ## Отношения с другими группами
 

@@ -1,15 +1,105 @@
 # Ill Nino
 
-Дискография
-"Ill Nino (EP)" 2000, Nu Metal
-"Revolution Revolucion" 2002, Nu Metal
-"Confession" 2003, Nu Metal
-"One Nation Underground" 2005, Nu Metal
-"The Under Cover Sessions (EP)" 2006, Nu Metal
-"Enigma" 2008, Nu Metal
-"Dead New World" 2010, Nu Metal
-"Epidemia" 2012, Nu Metal
-"Till Death, La Familia" 2014, Nu Metal
+Wonderful spanish nu-metal band a-la Flaw
+
+## Дискография
+
+### "Ill Nino (EP)" 2000, Nu Metal
+
+
+
+### "Revolution Revolucion" 2002, Nu Metal
+
+1. God Save Us
+2. If You Still Hate Me
+3. Unreal
+4. Nothing's Clear
+5. What Comes Around
+6. Liar
+7. Rumba
+8. Predisposed
+9. I Am Loco
+10. No Murder
+11. Rip Out Your Eyes
+12. Revolution/Revolucion
+13. With You
+
+(c) 2002 Roadrunner Records
+
+Ill Nino is:
+Cristian Machado - vocals
+Marc Rizzo - lead and acoustic guitar
+Jardel Paisante - rhythm guitar
+Lazaro Pina - bass guitar
+Dave Chavarri - drums
+Roger Vasquez - percussion
+
+Produced and engineered by Dave Chavarri
+Co-produced by Ill Nino
+Additional production by Cristian Machado
+Mixing and additional production by Steve Regina
+Rob Caggiano and Eddie Wohl for Scrap 60 Productions
+Recorded at Showplace Studios, Dover, NJ
+Assisant engineer: Henri Martinez
+Additional engineering: Laz Pina
+Digital editing by Carl Nappa
+Additional digital editing by Matt James
+Mixed at Red Clay Studios, Suffern, NY
+Mastered by George Marino at Sterling Sound, NY
+A&R: Mike Gitter
+
+Cover photography: Clay Patrick McBride
+Web direction and design: Lauren Buckner
+
+All music written by Cristian Machado, Marc Rizzo and
+Dave Chavarri, all lyrics by Cristian Machado, all songs
+published by EMI Blackwood Music Inc./Nino Chavarri Music/
+Ill Marc Rizzo Music/Ill Christian Music (BMI).
+
+### "Confession" 2003, Nu Metal
+
+1. Le Amo I Hate You
+2. How Can I Live
+3. Two (Vaya Con Dios)
+4. Unframed
+5. Cleansing
+6. This Time's For Real
+7. Lifeless Life
+8. Numb
+9. Have You Ever Felt
+10. When It Cuts
+11. Let It Go
+12. All The Right Words
+13. Re-Birth
+Bonus:
+14. How Can I Live (Spanish Version)
+
+(c) 2003 Roadrunner Records
+
+### "One Nation Underground" 2005, Nu Metal
+
+
+
+### "The Under Cover Sessions (EP)" 2006, Nu Metal
+
+
+
+### "Enigma" 2008, Nu Metal
+
+
+
+### "Dead New World" 2010, Nu Metal
+
+
+
+### "Epidemia" 2012, Nu Metal
+
+
+
+### "Till Death, La Familia" 2014, Nu Metal
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,9 +1,37 @@
 # Dargaard
 
-Дискография
-"In Nomine Aeternitatis" 2000, Gothic
-"The Dissolution Of Eternity" 2001, Gothic
-"Rise And Fall" 2004, Darkwave
+
+
+## Дискография
+
+### "In Nomine Aeternitatis" 2000, Gothic
+
+
+
+### "The Dissolution Of Eternity" 2001, Gothic
+
+
+
+### "Rise And Fall" 2004, Darkwave
+
+01. Rise and Fall 10:47
+02. Bearer of the Flame 4:50
+03. Niobe 4:39
+04. Takhisis Dance 3:58
+05. Winter 7:02
+06. Ave Atque Vale 6:12
+07. Queen of the Woods 6:42
+08. Ancestors of Stone 6:02
+09. The Halls of Dargaard (bonus track) 6:04
+
+Tharen - keyboards, vocals
+Elisabeth Toriser - female vocals
+
+Recorded mixed and mastered at Pure Sound
+Audio engineer Tomas Pure
+Produced by Tharen
+Co-produced by Tomas Pure
+
 
 ## Отношения с другими группами
 

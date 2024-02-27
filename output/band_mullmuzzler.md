@@ -1,7 +1,22 @@
 # Mullmuzzler
 
-Дискография
-"Keep It To Yourself" 1999, Progressive
+(Dream Theater vocalist James Labrie project)
+
+## Дискография
+
+### "Keep It To Yourself" 1999, Progressive
+
+1 His Voice 3:43 (Mullmuzzler) 
+2 Statued 3:23 (Mullmuzzler) 
+3 Shores of Avalon 7:51 (Mullmuzzler) 
+4 Beelzebubba 5:20 (Mullmuzzler) 
+5 Guardian Angel 7:27 (Mullmuzzler) 
+6 Sacrifice 5:14 (Mullmuzzler) 
+7 Lace 4:14 (Mullmuzzler) 
+8 Slow Burn 6:20 (Mullmuzzler) 
+9 As a Man Thinks 8:11 (Mullmuzzler) 
+
+
 
 ## Отношения с другими группами
 

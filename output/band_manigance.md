@@ -1,10 +1,68 @@
 # Manigance
 
-Дискография
-"Ange ou demon" 2002, Progressive
-"Signe De Vie" 2003, Progressive
-"D'un Autre Sang" 2004, Progressive
-"L'ombre Et La Lumiure" 2006, Progressive
+progressive metal
+
+## Дискография
+
+### "Ange ou demon" 2002, Progressive
+
+1. En Mon Nom
+2. Comme Une Ombre
+3. L'ultime Seconde
+4. Utopia
+5. Ange Ou Dйmon
+6. Fleurs Du Mal
+7. Dernier Hommage
+8. Dиs Mon Retour
+9. Intйgrite
+10. Nomade
+11. Dйsobeis
+12. Messager
+
+### "Signe De Vie" 2003, Progressive
+
+01. Sans Fard
+02. Signe De Vie
+03. Ligne Blanche
+04. Rebelle
+05. Aube Nouvelle
+06. Rouge Comme La Peau
+07. L?Ultime Seconde [acoustic bonus track]
+08. All The King?s Horses [bonus track]
+09. Carry On The Flame [bonus track]
+10. Believer [bonus track]
+
+### "D'un Autre Sang" 2004, Progressive
+
+01. Mirage
+02. Empire Viruel
+03. Mourir En Heros
+04. Heritier
+05. Hors La Loi
+06. Maudits
+07. Memoire
+08. Damocles
+09. La Mort Dans L'Ame
+10. D'un Autre Sang
+11. Enfin Delivre
+12. Future world ["Pretty Maids" cover only for Japan]
+
+### "L'ombre Et La Lumiure" 2006, Progressive
+
+1. Abysse 01:04  
+2. Envahisseur 05:46  
+3. L'ombre Et La Lumiure 07:35  
+4. Prison Dorae 05:51  
+5. Prйdateur 05:34  
+6. Sang Millanaire 05:37  
+7. Priviluge 05:30  
+8. La Force Des Souvenirs 05:10  
+9. Sentinelle 05:37  
+10. Miroir De La Vie 05:06  
+11. Esclave 05:56  
+12. Labyrinthe 05:26  
+13. Hors La Loi (Live) (Japanese Bonus) 05:29
+
 
 ## Отношения с другими группами
 

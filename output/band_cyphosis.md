@@ -1,8 +1,34 @@
 # Cyphosis
 
-Дискография
-"Gods Torned" 2008, Black Metal
-"To North And Under" 2010, Black Metal
+
+
+## Дискография
+
+### "Gods Torned" 2008, Black Metal
+
+1. Intro		 
+2. Gods Torned		 
+3. Waking Dream		 
+4. Last Words		 
+5. Black		 
+6. Bloodlines		 
+7. Tainted		 
+8. Collector of Souls		 
+9. Voices		 
+10. Between Two Flames
+
+### "To North And Under" 2010, Black Metal
+
+1. Prologue	 
+2. Filth Within	 
+3. Time Is An Enemy	 
+4. Passage Of Evil	 
+5. Across Black Water	 
+6. Nine Seas	 
+7. Servitude	 
+8. To North And Under	 
+9. Forged
+
 
 ## Отношения с другими группами
 

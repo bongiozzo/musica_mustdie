@@ -1,19 +1,86 @@
 # Poison
 
-Дискография
-"Look But You Can't Touch" 1983, Glam
-"Look What the Cat Dragged In" 1986, Glam
-"Open Up and Say...Ahh!" 1988, Glam
-"Flesh & Blood" 1990, Glam
-"Swallow This Live [live]" 1991, Hard Rock
-"Native Tongue" 1993, Hard Rock
-"Poison's Greatests Hits: 1986-1996 [compilation]" 1996, Glam
-"Power to the People" 2000, Hard Rock
-"Crack a Smile... And More [live]" 2000, Hard Rock
-"Rock Champions [compilation]" 2001, Hard Rock
-"Hollyweird" 2002, Hard Rock
-"Best of Ballads and Blues [compilation]" 2003, Hard Rock
-"On Your Way to Number 1" 2004, Hard Rock
+
+
+## Дискография
+
+### "Look But You Can't Touch" 1983, Glam
+
+
+
+### "Look What the Cat Dragged In" 1986, Glam
+
+
+
+### "Open Up and Say...Ahh!" 1988, Glam
+
+
+
+### "Flesh & Blood" 1990, Glam
+
+
+
+### "Swallow This Live [live]" 1991, Hard Rock
+
+
+
+### "Native Tongue" 1993, Hard Rock
+
+1.  Native Tongue
+2.  The Scream
+3.  Stand
+4.  Stay Alive
+5.  Until You Suffer Some (Fire And Ice)
+6.  Body Talk
+7.  Bring It Home
+8.  7 Days Over You
+9.  Richie's Acoustic Thang
+10.Ain't That The Truth
+11.Theatre Of The Soul
+12.Strike Up The Band
+13.Ride Child Ride
+14.Blind Faith
+15.Bastard Son Of Thousand Blues
+
+Produced By Richie Zito.
+Engineered By Jeff Hendricksson.
+Mixed By Chris Lord-Alge.
+
+Bret Michaels - Vocals, Rhythm & Acoustic Guitar, Harmonica
+Bobby Dall - Bass, Backing Vocals
+Rikki Rockett - Drums, Backing Vocals, Percussion, Tribal Drums
+Richie Kotzen - Lead, Rhythm & Acoustic Guitar, Backing Vocals, Mandolin, Dobro, Piano
+
+(P)c 1993 CAPITOL Records
+
+### "Poison's Greatests Hits: 1986-1996 [compilation]" 1996, Glam
+
+
+
+### "Power to the People" 2000, Hard Rock
+
+
+
+### "Crack a Smile... And More [live]" 2000, Hard Rock
+
+
+
+### "Rock Champions [compilation]" 2001, Hard Rock
+
+
+
+### "Hollyweird" 2002, Hard Rock
+
+
+
+### "Best of Ballads and Blues [compilation]" 2003, Hard Rock
+
+
+
+### "On Your Way to Number 1" 2004, Hard Rock
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,31 @@
 # Puncture
 
-Дискография
-"Puncture" 1994, Industrial
+
+
+## Дискография
+
+### "Puncture" 1994, Industrial
+
+1. Miscalculation
+2. Nailed To A Cross
+3. Youth Gone Mild
+4. Gag Rule
+5. Processor
+6. Mission
+7. Graft
+8. American Dream
+9. Breeding Contempt
+10.Abort
+
+All Songs Written By PUNCTURE.
+Produced By Tim Grundle & PUNCTURE.
+Recorded At Sound Logic Studios, Dallas, Texas.
+
+Rick Perry - Voice, Guitar, Bass, Programming
+Per Nilsson - Sequencer, Samplers, Programming
+
+(P)&(C) 1994 CENTURY MEDIA Records
+
 
 ## Отношения с другими группами
 

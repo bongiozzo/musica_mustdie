@@ -1,11 +1,58 @@
 # Blake
 
-Дискография
-"Fireroot" 2002, Stoner
-"Starbringer" 2004, Stoner
-"Planetizer" 2005, Stoner
-"Sa7urnus" 2008, Stoner
-"Haze Parade" 2010, Stoner
+stoner
+
+## Дискография
+
+### "Fireroot" 2002, Stoner
+
+WELCOME 
+MAN IS A PLANET 
+FIREROOT 
+ABOVE 
+HEALER 
+WHERE THE STARS GROW 
+I'LL TAKE YOU 
+TALKING TO GODS 
+PLANETIZER 
+NOT THE ONE 
+GROUND 
+SISTER UNIVERSE
+
+### "Starbringer" 2004, Stoner
+
+01. TO THE STARS (INTRO) 
+02. STARBRINGER 
+03. CALL HER NAME 
+04. EVIL REMAINS EVIL 
+05. WALK IN 
+06. CIRCLES OF LIGHT 
+07. OTHER SIDE (INTERMISSION) 
+08. BEGGARS FARM 
+09. CRAWL 
+10. SON OF FIRE 
+11. BLACK SPIRIT 
+12. JUNKIE IS COMING 
+13. DARK SIDE OF THE PLANET (OUTRO) 
+
+Line-Up: 
+Aaro Seppovaara - Vocals & Guitar 
+Sami Hassinen - Guitar 
+Kimmo Aroluoma - Bass 
+Sami Ojala - Drums
+
+### "Planetizer" 2005, Stoner
+
+
+
+### "Sa7urnus" 2008, Stoner
+
+
+
+### "Haze Parade" 2010, Stoner
+
+
+
 
 ## Отношения с другими группами
 

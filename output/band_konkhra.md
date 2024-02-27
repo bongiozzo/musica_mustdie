@@ -1,13 +1,202 @@
 # Konkhra
 
-Дискография
-"Sexual Affective Disorder" 1993, Death Metal
-"Spit or Swallow" 1995, Death Metal
-"Live Eraser" 1996, Death Metal
-"Weed out the Weak" 1998, Death Metal
-"Come Down Cold" 1999, Death Metal
-"Reality Check" 2003, Death Metal
-"Nothing Is Sacred " 2009, Death Metal
+Killer Danish Death-Thrash
+
+## Дискография
+
+### "Sexual Affective Disorder" 1993, Death Metal
+
+1. Center Of The Flesh 04:18  
+2. Seasonal Affective Disorder 05:09  
+3. The Dying Art 04:43  
+4. Visually Intact 04:09 
+5. Evilution 03:47  
+6. Lucid Dreams 03:43 
+7. Blindfolded 05:24 
+8. Thoughts Abandoned 04:32  
+9. Chaos To Climb 02:55 
+10. Empty Frames 05:10 
+
+
+
+Recorded in Sunlight Studio
+Produced by Tomas Skogsberg and Konkhra
+Executive Producer Tomas Skogsberg
+July 1993.
+Debut album. Also available on gatefold vinyl.
+
+Line up:
+Anders Lundemark - Guitar, vocals
+Johnny Nielsen - Drums
+Lars Schmidt - Bass
+Claus Vedel - Guitar, vocals
+
+### "Spit or Swallow" 1995, Death Metal
+
+1. Centuries 05:14 
+2. Spit Or Swallow 03:24 
+3. Life Eraser 05:29
+4. Hail The Body, Burden The Spirit 04:08 
+5. Hooked 04:10  
+6. Facelift 04:55 
+7. Scorn Of The Earth 03:58 
+8. Subconscience 04:46  
+9. Necrosphere 02:37 
+10. Hold Another Level 03:11 
+
+
+Recorded in Sunlight Studio
+Produced by Fred Estby and Konkhra
+Executive producer Tomas Skogsberg
+Oct. 1994
+Available in two versions.
+Second release of the album included the songs from "The Facelift EP".
+
+Line up:
+Anders Lundemark - Guitar, vocals
+Johnny Nielsen - Drums
+Lars Schmidt - Bass
+Kim Mathiesen - Guitar
+
+### "Live Eraser" 1996, Death Metal
+
+1. Hooked
+2. Warzone
+3. Basic facts Of Life
+4. S.A.D.
+5. The Dying Art
+6. Centures
+7. Drowning (Dead Dreaming)
+8. Facelift
+9. Subconscience
+10. Life Eraser
+11. Spit Or Swallow
+
+Live at Roskilde Festival '95 was recorded June 30th at said festival a nice noon.
+Recorded by Radiomafia / YLE2, Finland
+Produced by Jukka Hakokongas
+Engineered by Tarxno Haatenen and Antti Snellman
+Mixed by Morten Nielson and  KONKHRA at Take One
+Produced by KONKHRA
+
+(P)c 1996 PROGRESS REC // PCD 31
+
+### "Weed out the Weak" 1998, Death Metal
+
+1. HEAVENSENT
+2. TIME WILL HEAL
+3. CROWN OF THE EMPIRE
+4. KINSHASA HIGHWAY
+5. THROUGH MY VEINS
+6. THE RECKONING
+7. MISERY
+8. BACKSTABBER
+9. MELTING
+10. INHUMAN
+11. PAIN AND SORROW
+12. MY BELIEF
+
+
+J.F. Murphy - Lead, Group Member 
+Anders Lundemark - Arranger, Lead, Group Member
+Jack Christensen - Bass, Group Member
+Christopher Ash - Mastering
+Sean Alberts - Assistant Engineer, Assistant
+Ben Lund - Pre-Production, Choir Director
+James Michel - Mastering
+Dan Daniel - Assistant Engineer, Assistant
+James Murphy - Producer, Engineer, Mixing 
+Michael Rosen - Mastering, Mixing 
+Vincent Wojno - Mixing
+Konkhra - Producer
+
+### "Come Down Cold" 1999, Death Metal
+
+ 1. GODGIVEN
+ 2. WHITE
+ 3. LOST TO THE WORLD
+ 4. DIVIDE & CONQUER
+ 5. TRULY DEFILED
+ 6. COLD
+ 7. SIGHT FOR SORE EYES
+ 8. BACK IN THE DAY
+ 9. CONVENE THE FREAKS
+10. BLESSED
+11. LIFE IS FRAGILE
+12. PROCREATION
+
+Produced by Vincen Wojno and konkhra
+Co-produced by Bo Lund
+Recorded at Puk Recording Studio, Denmark and star-Struck Studio, Denmark
+during March 1999. Engineered by Bo Lund and Peter Iversen.
+Additional recordings at Sound Temple Studio, Oakland, Ca. Engineered by James
+murphy
+Mixed by Vincent Wojno at The Plant, sausalito, Ca., assisted by Mike
+Cresswell.
+Digital editing by Mike Bemesderfer.
+Mastering by James Murphy at Sound Temple Studio, and Anders Lundemark at
+ALMastering.
+
+All music written by Per M. Jensen and Anders Lundemark
+All lyrics written by Anders Lundemark.
+Cover design, illustration and photography by Dave McKean at Hourglass.
+
+Line-up:
+Anders Lundemark: vocal, guitar
+Per M. Jensen: drums
+Lars Schmidt: bass
+Lars Mayland: lead guitar
+
+
+### "Reality Check" 2003, Death Metal
+
+ 1) Warmonger
+ 2) Lions Are Hungry
+ 3) Reality Check
+ 4) Eye Of Horus
+ 5) Hellhound On My Trail
+ 6) Fear Of God
+ 7) The Coming Of (R)Age
+ 8) Grapes Of Wrath
+ 9) Parasite
+10) Day Of The Dog
+11) Lowlife 
+12) The Blackest Of Dawns
+
+
+
+Anders Lundemark - Guitar + vocals 
+Johnny Nielsen - Drums 
+Lars Schmidt - Bass 
+Kim "Hakim" Mathiesen - Lead Guitar
+
+
+Recorded in Starstruck Studio, Denmark 2002 
+Produced by Anders Lundemark
+Engineered by Johnny Nielsen, Hakim and Anders Lundemark
+Mixed by Tue Madsen and Anders Lundemark
+
+### "Nothing Is Sacred " 2009, Death Metal
+
+1. Prelude To Perversion 01:02  
+2. Hail To The King 03:51  
+3. Religion Is A Whore 05:47  
+4. Breathe The Fear 03:34  
+5. Killswitch 04:57  
+6. Nothing Is Sacred 03:49  
+7. Legacy Of Truth 04:59  
+8. Sufficient To Sicken 03:47  
+9. The Race 03:00  
+10. I Defy 03:55  
+11. The Promise Of Antagonism 04:24 
+
+
+
+Anders Lundemark - Vocals/Guitar 
+Michael Skovbakke - Guitar
+Lars Schmidt - Bass 
+Mads Lauridsen - Drums
+
 
 ## Отношения с другими группами
 

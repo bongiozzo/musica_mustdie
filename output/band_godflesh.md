@@ -1,16 +1,179 @@
 # Godflesh
 
-Дискография
-"Godflesh" 1988, Industrial
-"Streetcleaner" 1989, Industrial
-"Slavestate" 1991, Industrial
-"Cold World (Single)" 1991, Industrial
-"Pure" 1992, Industrial
-"Merciless (Single)" 1994, Industrial
-"Selfless" 1994, Industrial
-"Songs Of Love And Hate" 1996, Industrial
-"Us And Them" 1999, Industrial
-"Hymns" 2001, Industrial
+Fathers Of Industrial
+
+## Дискография
+
+### "Godflesh" 1988, Industrial
+
+
+
+### "Streetcleaner" 1989, Industrial
+
+1. Like Rats
+2. Christbait Rising
+3. Pulp
+4. Dream Long Dead
+5. Head Dirt
+6. Devastator/Mighty Trust Krusher
+7. Life Is Easy
+8. Streetcleaner
+9. Locust Furnace
+10.Tiny Tears *
+11.Wound *
+12.Dead Head *
+13.Suction *
+
+(*) Extra Tracks.
+Side One Recorded,Mixed At Soundcheck In
+Birmingham,May - August 1989.
+ Machine - Rhythm
+ G. Christian Green - Bass
+ Justin Broadrick - Guitar,Vocal
+Engineered By Pete Gault.
+Produced By GODFLESH.
+Side Two Recorded,Mixed At Square Dance In Derby,
+May 1989.
+ Machine - Rhythm
+ G. Christian Green - Bass
+ Paul Neville - Guitar
+ Justin Broadrick - Guitar,Vocal
+Engineered By Rick Peet.
+Produced By GODFLESH.
+Visuals GODFLESH.Thanks To All.
+
+(p)&(c) 1989 EARACHE Records
+
+
+### "Slavestate" 1991, Industrial
+
+1. Slavestate
+2. Perfect Skin
+3. Someone Somethere Scorned
+4. Meltdown
+5. Slavestate (Radio Slave)
+6. Slavestate Total State Mix
+7. Perfect Skin Dub
+8. Slateman
+9. Wound `91
+
+Recorded & Mixed At Avalanche Studios,
+Feb.-Mar. 1991.
+Produced By J.K.Broadrick /
+GODFLESH Visuals-GODFLESH For GODFLESH
+J.K.Broadrick, G.C.Green, P.Neville.
+
+(p)&(c) 1991 EARACHE Records
+
+### "Cold World (Single)" 1991, Industrial
+
+1. Cold World
+2. Nihil
+3. Nihil (Total Belief Mix)
+4. Nihil (No Belief Mix)
+
+ G.C.Green - Bass
+ J.K.Broadrick - Guitar & Vocal
+ R.Hampson - Guitar
+ P.F.Neville - Guitar
+ Machines - Rhythm & Samples
+
+R.Hampson Appears Courtesy Of Situation
+Two/Beggars Banquet,All Others Is The Same.
+
+(p)&(c) 1992 EARACHE Records
+
+### "Pure" 1992, Industrial
+
+1. Spite *
+2. Mothra
+3. I Wasn`t Born To Follow *
+4. Predominance *
+5. Pure
+6. Monotremata
+7. Baby Blue Eyes
+8. Don`t Bring Me Flowers *
+9. Love,Hate (Slugbaiting) **
+10.Pure ][ *
+
+ G.C.Green - Bass
+ J.K.Broadrick - Guitar & Vocal
+ R.Hampson - Guitar On *
+ P.F.Neville - Guitar On **
+ Machines - Rhythm & Samples
+
+Recorded & Mixed At Avalanche Studios,
+Sep.-Oct. 1991.
+Engineered & Produced By G.C.Green &
+J.K.Broadrick.
+** Recorded At 1989.
+
+(p)&(c) 1992 EARACHE Records
+
+### "Merciless (Single)" 1994, Industrial
+
+1. Merciless
+2. Blind
+3. Unworthy *
+4. Flowers *
+
+ J.K.Broadrick - Vocals,Guitar
+ G.C.Green - Bass
+ Robert Hampson - Guitar On *
+
+Produced & Engineered By Broadrick - Green.
+All Mixed At Avalance, Birmingham, Jan.1994.
+
+(p)&(c) 1994 EARACHE Records
+
+### "Selfless" 1994, Industrial
+
+1. Xnoybis
+2. Bigot
+3. Black Boned Angel
+4. Anything Is Mine
+5. Empyreal
+6. Crush My Soul
+7. Body Dome Light
+8. Toll
+9. Heartless
+10. Mantra
+11. Go Soread Your Wings
+
+ Justin K. Broadrick - Vocals, Guitars
+ G.C. Green - Bass
+ Machines - Rhythm, Synths, Samples
+
+(p)&(c) 1994 EARACHE Records
+
+
+Recorded, Mixed & Produced By Broadrick/ Green At Avalanche Jan-May 1994
+Mastered By Bob Ludwig
+
+
+### "Songs Of Love And Hate" 1996, Industrial
+
+
+
+### "Us And Them" 1999, Industrial
+
+1.  I, Me, Mine  (5:20) 
+2.  Us and Them  (5:56) 
+3.  Endgames  (4:56) 
+4.  Witchhunt  (5:11) 
+5.  Whose Truth is Your Truth?  (5:03) 
+6.  Defiled  (5:29) 
+7.  Bittersweet  (4:34) 
+8.  Nail  (4:09) 
+9.  Descent  (5:38) 
+10.  Controlfreak  (5:37) 
+11.  The Internal  (6:33) 
+12.  Live to Lose  (5:39)
+
+### "Hymns" 2001, Industrial
+
+
+
 
 ## Отношения с другими группами
 

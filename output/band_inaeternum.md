@@ -1,7 +1,20 @@
 # In Aeternum
 
-Дискография
-"Forever Blasphemy" 1999, Death Metal
+
+
+## Дискография
+
+### "Forever Blasphemy" 1999, Death Metal
+
+Majesty of fire          5.13
+Spawned to crush         4.31
+Reaper in black          4.29
+The pale black death     5.21
+Forever blasphemy        6.20
+Of unhallowed blood      5.44
+When the vultures left   5.42
+
+
 
 ## Отношения с другими группами
 

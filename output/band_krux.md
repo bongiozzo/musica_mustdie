@@ -1,9 +1,51 @@
 # Krux
 
-Дискография
-"Krux" 2002, Doom
-"II" 2006, Doom
-"III - He Who Sleeps Amongst the Stars" 2011, Doom
+
+
+## Дискография
+
+### "Krux" 2002, Doom
+
+1. Black Room 05:50
+2. Krux 07:06 
+3. Nimis 03:57 
+4. Sibiria 02:11  
+5. Omfalos 06:40 
+6. Enigma EZB 04:55 
+7. Pococatйpetl 04:53  
+8. Evel Rifaz 02:19 
+9. Lunochod 12:11
+
+### "II" 2006, Doom
+
+01. Devil Sun
+02. Serpent
+03. Sea of Doom
+04. Lex Lucifero
+05. Pirates of the Black Hand
+06. Depressive Strokes of Indigo
+07. Too Close to Evil
+08. The Big Empty
+
+### "III - He Who Sleeps Amongst the Stars" 2011, Doom
+
+1. He Who Sleeps Amongst The Stars 4:58 
+2. The Hades Assembly 7:07 
+3. Emily Payne (And The Black Maze) 4:51 
+4. Small Deadly Curses 5:29 
+5. Prince Azaar And The Invisible Pagoda 10:40 
+6. The Death Farm 4:43 
+7. A Place Of Crows 7:27
+
+
+line-up: 
+Mats Leven - Vocals  
+Jorgen Sandstrom - Guitar  
+Fredrik Akesson - Solo Guitar 
+Leif Edling - Bass  
+Peter Stjarnvind - Drums 
+Per Wiberg - Keyboards
+
 
 ## Отношения с другими группами
 

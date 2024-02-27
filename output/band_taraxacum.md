@@ -1,8 +1,25 @@
 # Taraxacum
 
-Дискография
-"Spirit Of Freedom" 2001, Power Metal
-"Rainmaker" 2003, Power Metal
+
+
+## Дискография
+
+### "Spirit Of Freedom" 2001, Power Metal
+
+1. Spirit Of Freedom 
+2. Blast Off 
+3. Alone 
+4. Circle Of Fools
+5. Delirium
+6. Life Goes On
+7. Never Let You Go
+8. Believe In You
+9. Think!
+
+### "Rainmaker" 2003, Power Metal
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,34 @@
 # Denigrare
 
-Дискография
-"Venganza" 2006, Death Metal
-"Sangre" 2010, Death Metal
+
+
+## Дискография
+
+### "Venganza" 2006, Death Metal
+
+1. Te Poseo	 
+2. Venganza	 
+3. Hasta Tu Orgasmo	 
+4. Zombi Hembra	 
+5. La M (Mafia Mexicana)	 
+6. Efecto Malilla	 
+7. XXXXXXXXX
+
+### "Sangre" 2010, Death Metal
+
+1. Grito De Guerra	 
+2. Venganza II	 
+3. Animal Y Bestia	 
+4. Sangre	 
+5. Traidor	 
+6. Arma Karma	 
+7. Vocнfero Suicida	 
+8. Cer-dios	 
+9. Vйrtigo	 
+10. Bio-lencia	 
+11. Delirium Tremens	 
+12. La Despedida
+
 
 ## Отношения с другими группами
 

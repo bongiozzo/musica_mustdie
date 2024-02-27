@@ -1,9 +1,75 @@
 # Construcdead
 
-Дискография
-"Repent" 2002, Death Metal
-"Violadead" 2004, Melodic Death Metal
-"Grand Machinery" 2005, Melodic Death Metal
+Melodic technical death metal
+
+## Дискография
+
+### "Repent" 2002, Death Metal
+
+01. God after me
+02. Repent
+03. As time bleeds
+04. My undying hate
+05. Moral in corrosion
+06. Through parasite eyes
+07. I`ve come to rule
+08. Rain
+09. To war
+10. At any cost
+11. Metamorphosia
+
+Erik Thyselius : Drums
+Joakim Harju : Bass
+Jonas Sandberg : Vocals
+Rickard Dahlberg : Guitar
+Christian Ericson : Guitar
+
+"Repent" Was Recorded & Mixed At Studio
+Underground During October - December 2001,
+Recorded & Mixed By Pelle Saether And Lars
+"Benton" Linden
+Engineered By P. Saether, L. Linden, M. Jepsson &
+M. Soderman
+Mastered at CRP Recording by Claes Persson.
+All Music And Lyrics By Coostrucdead,
+Guestsolo on "To war" By Magnus Soderman
+Female vocals on "I' ve come to rule" By Linda
+Lidebrant
+Cover Art And Layout By Joakim Harju, Photos by
+Carin Ostberg, Joakim Harju & Tomas Undsen,
+Model On Front Cover: Lucky Mangarda
+
+### "Violadead" 2004, Melodic Death Metal
+
+1. Pinhook
+2. Rise
+3. Bricks
+4. Hate
+5. Wounded
+6. Cancer
+7. The Saviour
+8. Disbelief
+9. New Skin
+10. Re-Arrange
+11. Turn
+12. Bitter End (featuring Speed & Henry of "Soilwork")
+13. Evil As I (demo-version, bonustrack Japan)
+
+### "Grand Machinery" 2005, Melodic Death Metal
+
+1. Grand Machinery 
+2. A Coc In The Machinery 
+3. The Lustfull 
+4. In A Moment Of Sobriety 
+5. 8 Inches Of Flesh 
+6. The Cynical revolution 
+7. Treachery 
+8. The Eye Of Revelation 
+9. Pater Noster 
+10. Rusty Amour 
+11. Forever Cin 
+12. Hatelist
+
 
 ## Отношения с другими группами
 

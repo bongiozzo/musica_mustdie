@@ -1,9 +1,21 @@
 # Mygrain
 
-Дискография
-"Orbit Dance" 2006, Melodic Death Metal
-"Signs Of Existence" 2008, Melodic Death Metal
-"Mygrain" 2011, Melodic Death Metal
+
+
+## Дискография
+
+### "Orbit Dance" 2006, Melodic Death Metal
+
+
+
+### "Signs Of Existence" 2008, Melodic Death Metal
+
+
+
+### "Mygrain" 2011, Melodic Death Metal
+
+
+
 
 ## Отношения с другими группами
 

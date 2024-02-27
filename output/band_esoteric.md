@@ -1,10 +1,65 @@
 # Esoteric
 
-Дискография
-"Epistemological Despondency" 1996, Death Doom
-"Metamorphogenesis" 1999, Death Doom
-"Subconscious Dissolution into the Continuum" 2004, Doom
-"Paragon of Dissonance" 2011, Death Doom
+
+
+## Дискография
+
+### "Epistemological Despondency" 1996, Death Doom
+
+1. Bereft  (20.29)
+2. Only Hate  (2.47)
+3. The Noise Of Depression  (18.59)
+4. Lamented Despondency  (12.38)
+5. Eratification (Offthorns)  (7.19)
+6. Awaiting My Death  (26.20)
+
+Produced by ESOTERIC.
+
+Engineered by Steve Wilson.
+Recorded at Rich Bitch Studios,
+Birmingham, England.
+All songs written by ESOTERIC
+
+Greg - Vocals
+Gordon - Lead Guitar, Samples, Synth
+Stuart - Guitar
+Simon - Lead Guitars, Samples
+Bryan - Bass
+Darren - Drums
+
+(p)(c) 1995 AESTHETIC DEATH Records
+
+### "Metamorphogenesis" 1999, Death Doom
+
+
+
+### "Subconscious Dissolution into the Continuum" 2004, Doom
+
+Morphia 
+The Blood of the Eyes 
+Grey Day 
+Arcane Dissolution
+
+### "Paragon of Dissonance" 2011, Death Doom
+
+CD I: 
+1. Abandonment 13:34 
+2. Loss Of Will 07:05 
+3. Cipher 09:16 
+4. Non Being 15:30 
+CD II: 
+1. Aberration 15:45 
+2. Disconsolate 15:33 
+3. Torrent Of Ills 17:16
+
+
+Greg Chandler - Vocals, Guitar 
+Mark Bodossian - Bass 
+Joe Fletcher - Drums 
+Jim Nolan - Guitars 
+
+
+
 
 ## Отношения с другими группами
 

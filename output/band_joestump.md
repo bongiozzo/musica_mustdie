@@ -1,12 +1,84 @@
 # Joe Stump
 
-Дискография
-"Guitar Dominance" 1993, Instrumental
-"NIGHT OF THE LIVING SHRED" 1994, Instrumental
-"Supersonic Shred Machine" 1996, Instrumental
-"Rapid Fire Rondo" 1998, Instrumental
-"Shooting Hemlock -"Clockwatcher"" 1999, Instrumental
-"Second Coming" 1999, Heavy Metal
+(guitar virtuoso in a way of Y.Malmsteen)
+
+## Дискография
+
+### "Guitar Dominance" 1993, Instrumental
+
+01. Prince Of Darkness 
+02. In For The Kill  
+03. Paganini's Revenge  
+04. Strat Attack 
+05. The Ultraviolence 
+06. Jetaime 
+07. Behind The 8 Ball 
+08. Survival Of The Fastest 
+09. Breakneck Boogie 
+10. Farewell To Truth 
+
+
+### "NIGHT OF THE LIVING SHRED" 1994, Instrumental
+
+"Prestissimo"
+"Facemelter"
+"Heavy Handed"
+"Night of the Living Shred"
+"Texas Chainsaw Boogie"
+"The Jimi Stomp" 
+"Never Forgotten"
+"Timeless"
+"Chasing the Jack"
+"The Sorcerer's Apprentice"
+"Chop Shop Serenade" 
+
+### "Supersonic Shred Machine" 1996, Instrumental
+
+01. Demon's Eye   
+02. Wrecking Machine   
+03. R.B.N.C.S.F. No. II   
+04. Lost Soul   
+05. Tornado Watch   
+06. Where No Man Shred   
+07. Backstabber   
+08. The Need for Speed   
+09. Fall From Grace   
+10. The Dark Gift   
+
+
+### "Rapid Fire Rondo" 1998, Instrumental
+
+01. Rapid Fire Rondo   
+02. Echo Andante   
+03. Thrill of the Chase   
+04. End on an Era   
+05. Speedball Sonatina   
+06. Shreddine in Shuffle   
+07. Unrelenting   
+08. Dominance Factor   
+09. Eurotrashed   
+10. Pharaoh's Delight   
+
+
+### "Shooting Hemlock -"Clockwatcher"" 1999, Instrumental
+
+
+
+### "Second Coming" 1999, Heavy Metal
+
+01:22  Sonata Hypnotica  
+06:13  Devil's Playground  
+07:37  You Turn My World Around  
+06:24  Hold On To Your Dreams  
+05:21  Speed Kills  
+01:54  Enchanted Sleep  
+06:13  All Things Must End  
+07:41  Take Your Life  
+05:25  Change  
+08:58  Hell And Back  
+02:45  Tapping Toccata  
+
+
 
 ## Отношения с другими группами
 

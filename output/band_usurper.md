@@ -1,13 +1,154 @@
 # Usurper
 
-Дискография
-"Diabolosis..." 1995, Black Metal
-"Threshold Of The Usurper" 1997, Black Metal
-"Skeletal Season" 1999, Black Metal
-"Visions From The Gods (Re-Issue)" 2000, Black Metal
-"Necronemesis" 2002, Black Metal
-"Twilight Dominion" 2003, Black Metal
-"Cryptobeast" 2005, Black Metal
+Black-Thrash the Hellhammer / Celtic Frost way
+
+## Дискография
+
+### "Diabolosis..." 1995, Black Metal
+
+1. HYPNOTIC VOID (Music: 11/93, 9/94: RS) (Lyrics: 10/94: DS/RS)
+2. BLOOD PASSION (Music: 12/94: RS) (Lyrics: 1/95: DS/RS)
+3. FULL MOON HARVEST (Music: 8/94: RS) (Lyrics: 9/94: DS/RS)
+4. NULLA SALLUS EXTRA ECCELCIUM (Music: 9/94: RS) (Lyrics: 10/94: DS)
+5. DEEP IN THE FOREST (Music: 9/93: RS) (Lyrics: 11/93: DS)
+6. THE INFERNAL STORM (Music: 10/93: RS) 
+7. DIABOLOSIS (Music: 10/93, 11/94: RS) (Lyrics: 10/93, 11/95: DS, RS)
+8. THE RUINS OF GOMORRAH (Music: 8/92: RS) (Lyrics: 10/93: DS/RS)
+9. DUSK (Music: 8/92: RS) (Lyrics: 12/93: DS)
+
+
+
+RICK SCYTHE: guitars
+DIABOLICAL SLAUGHTER: vocals
+APOCALYPTIC WARLORD: drums
+NECROMANCER: bass
+
+Recorded and Mixed at EATON RECORDS, Chicago, IL : Jan.-Mar. 1995
+Produced by BRIAN EATON w/USURPER
+ALL SONGS (Music & Lyrics) ©1992-1995, USURPER
+
+First 1000 copies of the CD had a misprint on the spine that read “UNSURPER”. Second pressing (3000 copies), correction was made. Third pressing (3000 copies), the original “blue” cover was replaced with a “Gold & Black” duotone cover. First 666 copies of the vinyl were gatefold with poster.
+
+
+
+
+
+
+
+### "Threshold Of The Usurper" 1997, Black Metal
+
+1. NECROCULT pt. I (The Metal War) (Music: 6/95: RS) (Lyrics: 6/95: DS)
+2. SLAVEHAMMER (Music: 8/94: RS) (Lyrics: 8/94: DS)
+3. BLACK FUNERAL* (Music: Hank Sherman) (Lyrics: King Diamond)
+4. THE DEAD OF WINTER (Music: 3/95: RS) (Lyrics: 3/95: RS)
+5. THRESHOLD OF THE USURPER (Music: 9/94: RS) (Lyrics: 9/94: DS)
+
+
+RICK SCYTHE: guitars
+DIABOLICAL SLAUGHTER: vocals
+APOCALYPTIC WARLORD: drums
+NECROMANCER: bass
+
+Recorded & Mixed at EATON RECORDS, CHICAGO, IL - Track # 1 & 4: January/March 1996; Track # 2 & 5: Feb. 1995; Track # 3 July 1995.
+Produced by BRIAN EATON & USURPER
+ALL SONGS (Music & lyrics) ©1994-1996 USURPER, except * ©1983 Mercyful Fate 
+
+
+
+
+### "Skeletal Season" 1999, Black Metal
+
+1. SHADOWFIEND (Music: 1/96: RS) (Lyrics: 6/96: DS/RS)
+2. DISMAL WINGS OF TERROR (Music: 3/98: RS) (Lyrics: 3/98: RS)
+3. SKELETAL SEASON (Music: 10/95: RS) (Lyrics: 10/95: RS)
+4. EMBRACE OF THE DEAD (Music: 12/95: RS) (Lyrics: 4/96: DS)
+5. PROWLING DEATH (Music: 3/96: RS) (Lyrics: 3/96: DS)
+6. CEMETARIAN (Music: 1/97: RS) (Lyrics: 2/97: RS/DS)
+7. BRIMSTONE FIST (Music: 8/95,7/97: RS) (Lyrics: 8/97: DS)
+8. WOLFLORD (Music: 5/96: RS) (Lyrics: 6/96: RS)
+
+
+RICK SCYTHE: guitars
+GENERAL DIABOLICAL SLAUGHTER: vocals
+JON NECROMANCER: bass
+DAVE HELLSTORM: drums
+
+Recorded at MEDICAL RECORDS (drums), Burr Ridge, IL - August 1998
+EATON RECORDS (guitar, bass, vocals), Chicago, IL -Aug-September 1998
+Engineered by BRIAN EATON & BRIAN MITCHEL
+Produced by BRIAN EATON
+ALL SONGS (Music & Lyrics) ©1995-1999 USURPER 
+
+
+### "Visions From The Gods (Re-Issue)" 2000, Black Metal
+
+1. SOULSTALKER ‘96 (Music: 8/93, 1/94: RS) (Lyrics: 3/94: RS/DS)
+2. DEEP IN THE FOREST (Music: 9/93: RS) (Lyrics: 11/93: DS)
+3. VISIONS FROM THE GODS (Music: 12/93: RS) (Lyrics: 3/94: RS)
+4. DUSK (Music: 10/93: RS) (Lyrics: 12/93: DS)
+5. SOULSTALKER (Demo Version) (Music: 8/93, 1/94: RS) (Lyrics: 3/94: DS/RS)
+6. ANNO SATANAS * (Music: RS 1995) (Lyrics: DS/RS 1995)
+7. CHARON † (Music: King Diamond/Michael Denner) (Lyrics: King Diamond)
+8. BONEFIRE (Music: 1/96: RS) (Lyrics: 9/96: RS)
+9. WOLFLORD (Night Prowler Version) (Music: 5/96: RS) (Lyrics: 6/96: RS)
+10. BLOOD PASSION (Live 1998) Ґ (Music: 12/94: RS) (Lyrics: RS/DS: 1/95)
+11. WARRIORS OF IRON AND RUST (Live 2000)* (Music: 4/99: RS) (Lyrics: 9/99: RS)
+* exclusive to the EARACHE re-relese.
+Ґ exclusive to the NECROPOLIS version. 
+
+
+
+RICK SCYTHE: guitar on all songs
+GENERAL DIABOLICAL SLAUGHTER: vocals on all songs
+JON NECROMANCER: bass on tracks: 1, 6, 7, 8, 9, 10, 11
+APOCALYPTIC WARLORD: drums on tracks: 1-6
+DAVE HELLSTORM: drums on tracks: 7-11
+CARCASS CHRIS: guitar on track 11.
+
+All Songs Recorded and Mixed at EATON RECORDS (1994-1999) except: Ґ recorded live at LaLaterie, France 1998; and * recorded live at LaLaiterie, France 2000
+ALL SONGS (Music & Lyrics) ©1993-2000 USURPER, except † ©1986 KING DIAMOND
+
+
+### "Necronemesis" 2002, Black Metal
+
+1. THE INCUBUS BREED (Music: 8/98: RS) (Lyrics: 8/98: RS)
+2. SLAUGHTERSTORM (Music: 1/99: RS) (Lyrics: 12/98: DS/RS)
+3. IN REMEMBRANCE (Music: 1/00: RS/JN) 
+4. NECRONEMESIS (Music: 8/99: RS) (Lyrics: 8/99: RS)
+5. 1666 A.D. (Music: 11/99: RS) (Lyrics: 8/99: RS)
+6. WARRIORS OF IRON AND RUST (Music: 4/99: RS) (Lyrics: 9/99: RS)
+7. DEATHWISH (Music: 1/00: RS) (Lyrics: 2/00: RS)
+8. FULL METAL MAELSTROM (Music: 10/99: RS) (Lyrics: 1/00: RS)
+9. FUNERAL WATERS (Music: 9/99: RS) (Lyrics: 10/99: RS)
+10. INTO THE OBLONG BOX (Music: 6/99: RS) (Lyrics: 12/98: RS)
+11. TALES OF THE MACABRE* (Music & Lyrics: SLAUGHTER)
+
+
+
+RICK SCYTHE: guitars
+GENERAL DIABOLICAL SLAUGHTER: vocals
+JON NECROMANCER: bass
+DAVE HELLSTORM: drums
+
+Recorded, Mixed and Mastered at NOMAD STUDIOS, Dallas, TX - March 2000
+Produced by KOL MARSHALL
+ALL SONGS (Music & Lyrics) ©1998-2000 USURPER; except *©1986 SLAUGHTER
+
+Track 4 features vocals by KING DIAMOND. 
+Track 8 feature vocals by Sir Proscriptor McGovern (Absu). 
+Track 11* exclusive to EARACHE version.
+
+
+
+
+### "Twilight Dominion" 2003, Black Metal
+
+
+
+### "Cryptobeast" 2005, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

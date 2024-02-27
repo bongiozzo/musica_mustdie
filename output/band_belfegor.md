@@ -1,8 +1,27 @@
 # Belfegor
 
-Дискография
-"Immortality" 2001, Black Metal
-"The Work of Destruction" 2004, Black Metal
+
+
+## Дискография
+
+### "Immortality" 2001, Black Metal
+
+In the Name of the Blasphemer
+In the Wet Embrace of Dreams 
+Benediction 
+Loneliness Amidst My Wrath 
+White Gleaming Desert 
+The Work of Destruction 
+Winter Storm 
+The Last Journey 
+Fiery Bed 
+Holy Whores, Burning Virgins 
+видеоклип “Loneliness Amidst My Wrath”
+
+### "The Work of Destruction" 2004, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

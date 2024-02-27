@@ -1,7 +1,31 @@
 # Death Vomit
 
-Дискография
-"Death Vomit" 1993, Deathcore
+Russian Deathcore
+
+## Дискография
+
+### "Death Vomit" 1993, Deathcore
+
+1. She Is Dead
+2. The Howling
+3. Death Vomit
+4. Leprous
+5. The Monastic Wall
+6. A Town
+7. The Morn Approach
+8. Mind's Eye
+
+ Pater - Vocals, Bass, Guitars, Acoustic Guitars
+ Boltrover - Guitars
+ Goblin - Drums
+
+Produced By Alen Price
+Engineered By Slava Chernikov
+Recorded At Bizi Tracks Studio, Moscow, Jan. 1993
+Mixed At Russkaya Troika Studio
+
+(p)&(c) 1993 METALAGEN Records
+
 
 ## Отношения с другими группами
 

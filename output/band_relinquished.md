@@ -1,8 +1,17 @@
 # Relinquished
 
-Дискография
-"Susanna Lies in Ashes" 2010, Melodic Death Metal
-"Onward Anguishes" 2012, Melodic Death Metal
+
+
+## Дискография
+
+### "Susanna Lies in Ashes" 2010, Melodic Death Metal
+
+
+
+### "Onward Anguishes" 2012, Melodic Death Metal
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,26 @@
 # Devilment
 
-Дискография
-"The Great And Secret Show" 2014, Black Metal
+featuring Dani "Filth" Davey (CRADLE OF FILTH)
+
+## Дискография
+
+### "The Great And Secret Show" 2014, Black Metal
+
+1. Summer Arteries
+2. Even Your Blood Group Rejects Me
+3. Girl From Mystery Island
+4. The Stake In My Heart
+5. Living With The Fungus
+6. Mother Kali
+7. Staring At The Werewolf Corpse
+8. Sanity Hits A (Perfect) Zero"
+9. Laudanum Skull
+10. The Great And Secret Show 
+Bonus Tracks:
+11. Beds Are Burning (Midnight Oil cover)
+12. Psycho Babble
+13. Even Your Blood Group Rejects Me (Motion Picture Soundtrack)
+
 
 ## Отношения с другими группами
 

@@ -1,13 +1,37 @@
 # Driller Killer
 
-Дискография
-"Brutalize" 1994, Punk
-"Total Fucking Hate" 1995, Punk
-"Fuck The World" 1997, Punk
-"Reality Bites" 1998, Punk
-"And The Winner Is…" 2000, Punk
-"Cold, Cheap & Disconnected" 2002, Punk
-"The 4Q Mangrenade" 2006, Punk
+swedish crustcore
+
+## Дискография
+
+### "Brutalize" 1994, Punk
+
+
+
+### "Total Fucking Hate" 1995, Punk
+
+
+
+### "Fuck The World" 1997, Punk
+
+
+
+### "Reality Bites" 1998, Punk
+
+
+
+### "And The Winner Is…" 2000, Punk
+
+
+
+### "Cold, Cheap & Disconnected" 2002, Punk
+
+
+
+### "The 4Q Mangrenade" 2006, Punk
+
+
+
 
 ## Отношения с другими группами
 

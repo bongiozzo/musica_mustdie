@@ -1,11 +1,144 @@
 # Artrosis
 
-Дискография
-"Hidden Dimension" 1999, Gothic
-"In the flowers' shade" 2000, Gothic
-"Fetish" 2001, Gothic
-"In Nomie Noctis" 2001, Gothic
-"Melange" 2002, Gothic
+Gothic Metal from Poland
+
+## Дискография
+
+### "Hidden Dimension" 1999, Gothic
+
+Lisa 
+
+Black And White Dreams 
+
+Dance 
+
+Nazguls 
+
+Seventh Seal 
+
+Rzeka Istnien (The River Of Existences) 
+
+Unconfined Insurmontable Forces 
+
+Epitafium 
+
+Gora Przeznaczenia (The Mountain Of Desstiny) 
+
+Emerald Night
+
+
+### "In the flowers' shade" 2000, Gothic
+
+Unreal story part I
+
+Unreal story part II
+
+White page
+
+Ѓ‰
+
+And I will
+
+Morpheus
+
+Among flowers and shadows
+
+The following chapter
+
+ЃЉ
+
+Two ways
+
+We
+
+Delusion
+
+
+### "Fetish" 2001, Gothic
+
+Fetish
+The Second Face
+Under Constraint
+Black Truth
+Samuel
+The Poisoned
+Homini Noctis
+Cosmos
+Ostatni raz
+Mur
+Suita
+0101010101
+
+
+Line-up:
+Magdalena "Medeah" Dobosz 
+Maciej Niedzielski 
+Krzysztof "Chris" Bialas 
+Marcin Pendowski 
+Rafal Grunt 
+
+
+lyrics by Medeah
+music by Maciej Niedzielski & Medeah & Grunthell
+recorded at Hendrix Studio
+recorded & mix Piotr Banka
+translation into English by: Eliza LL (Umbra)
+the band`s photographs by ElizaLL, other photos by: J.Kubicki
+Cover art by: Jaroslaw "K`haal" Kubicki
+
+
+### "In Nomie Noctis" 2001, Gothic
+
+Hidden dimension
+
+World without end
+
+Hypnosis
+
+Towards the top
+
+Nothingness
+
+Crazy
+
+The request
+
+To evil
+
+Bonus:
+
+Prosba (special version )
+
+Ukryty wymiar (special version )
+
+
+### "Melange" 2002, Gothic
+
+In A Daze
+
+In Low Spirits
+
+Was It Meant To Be Like That?
+
+Melange
+
+Tone Of The Gloom
+
+Somewhere Between
+
+Stone Infatuated
+
+Angemel
+
+A Leaden Sky
+
+A Yen
+
+Bonus:
+
+Impre Sjon
+
+
 
 ## Отношения с другими группами
 

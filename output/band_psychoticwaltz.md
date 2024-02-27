@@ -1,12 +1,80 @@
 # Psychotic Waltz
 
-Дискография
-"Aslan (demo)" 1986, Progressive
-"Psychotic Waltz (demo)" 1988, Progressive
-"A Social Grace" 1989, Progressive
-"Into The Everflow" 1992, Progressive
-"Mosquito" 1994, Progressive
-"Bleeding" 1996, Progressive
+
+
+## Дискография
+
+### "Aslan (demo)" 1986, Progressive
+
+To Chase The Stars
+No Glory
+Spiral Tower
+The Fry Tape 
+
+
+### "Psychotic Waltz (demo)" 1988, Progressive
+
+And The Devil Cried
+Successor
+Halo Of Thorns
+I Of The Storm
+
+
+
+### "A Social Grace" 1989, Progressive
+
+1. And The Devil Cried  
+2. Halo Of Thorns  
+3. Another Prophet Song  
+4. Successor  
+5. In This Place  
+6. I Remember  
+7. I Of The Storm  
+8. A Psychotic Waltz  
+9. Only In A Dream  
+10. Spiral Tower  
+11. Strange  
+12. Nothing  
+
+### "Into The Everflow" 1992, Progressive
+
+1. Ashes
+2. Out Of Mind
+3. Tiny Streams
+4. Into The Everflow
+5. Little People
+6. Hangin' On A String
+7. Freakshow
+9. Butterfly
+
+### "Mosquito" 1994, Progressive
+
+
+1. Mosquito
+2. Lovestone Blind
+3. Haze One
+4. Shattered Sky
+5. Cold
+6. All The Voices
+7. Dancing In The Ashes
+8. Only Time
+9. Locked Down
+10. Mindsong
+
+### "Bleeding" 1996, Progressive
+
+1. Faded
+2. Locust
+3. Morbid
+4. Bleeding 
+5. Need
+6. Drift
+7. Northern Lights
+8. Sleep
+9. My Grave
+10. Skeleton
+11. Freedom?
+
 
 ## Отношения с другими группами
 

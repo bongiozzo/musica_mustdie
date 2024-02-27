@@ -1,7 +1,13 @@
 # Grimlock
 
-Дискография
-"Crusher" 2004, Hardcore
+hardcore with metal
+
+## Дискография
+
+### "Crusher" 2004, Hardcore
+
+
+
 
 ## Отношения с другими группами
 

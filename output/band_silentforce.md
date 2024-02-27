@@ -1,10 +1,113 @@
 # Silent Force
 
-Дискография
-"The Empire Of The Future" 2000, Power Metal
-"Infatuator" 2001, Power Metal
-"Worlds Apart" 2004, Power Metal
-"Walk The Earth" 2007, Heavy Metal
+power star project
+
+## Дискография
+
+### "The Empire Of The Future" 2000, Power Metal
+
+The beginning 
+Live for the day 
+Empire of future 
+Saints and sinners 
+Tell me why 
+New experiment 
+Six past the hour 
+Broken wings 
+We must remain 
+I'll be there
+
+### "Infatuator" 2001, Power Metal
+
+1. Infatuator
+2. Fall into oblivion
+3. Hear me calling
+4. Promised land
+5. We must use the power
+6. All guns blazing 
+
+     TRILOGY
+7. Cena libera
+8. Gladiator
+9. The blade
+
+10. Last time
+11. World aflame
+12. In your arms
+13. Northern lights
+
+
+In-fat-u-a-tor (in-fach'oo-at'or) -  Person who inspires foolish and unreasoning love or attraction. 
+ 
+Produced by Alexander Beyrodt 
+Engineered, Mixed and Mastered by Achim Kцhler at House of Music Studios, Winterbach/Germany
+Vocals produced by Victor Smolski, Engineered by Ingo Czaikowski at VPS Studios, Hamm/Germany
+
+Cover Design & Booklet artwork by Axel Hermann
+Band pictures by Axel Jusseit at Burg Linn/Krefeld
+
+Alexander Beyrodt is published by Warner Chappell Music
+DC Cooper and Andre Hilgers are published by PC 69 Songs
+
+Female Voice at "In my arms":
+Inka Auershagen
+
+"Cena Libera" performed by 
+the Belorussian State TV & Radio Orchstra
+
+ 
+
+
+
+### "Worlds Apart" 2004, Power Metal
+
+01. Ride The Storm
+02. No One Lives Forever
+03. Hold On
+04. Once Again
+05. Master Of My Destiny
+06. Heroes
+07. Death Comes In Disguise
+08. Merry Minstrel
+09. Spread Your Wings
+10. Iron Hand
+11. Heart Attack
+12. Worlds Apart
+
+DC COOPER / Vocals
+ALEXANDER BEYRODT / Guitars
+JЬRGEN STEINMETZ / Bass
+TORSTEN RЦHRE / Keyboard
+ANDRЙ HILGERS / Drums
+
+Recorded at: House of Audio - Karlsdorf, Germany
+Produced by: Dennis Ward & Silent Force
+Mixed at: The TrackShack
+Mixed by: Dennis Ward
+Mastered at: House of Audio
+
+### "Walk The Earth" 2007, Heavy Metal
+
+1. Man & Machine 05:28  
+2. Walk the Earth 06:29  
+3. Point of No Return   
+4. In From the Dark   
+5. The King of Fools   
+6. The Child Within   
+7. Goodby My Ghost   
+8. Save Me From Myself   
+9. My Independence Day   
+10. Blind Leading the Blind   
+11. Running Through the Fire   
+12. Picture of a Shadow 
+
+
+DC Cooper - Vocals
+Alex Beyrodt - Guitars 
+Jurgen Steinmetz - Bass 
+Andre Hilgers - Drums 
+Torsten Rohre - Keyboards
+
 
 ## Отношения с другими группами
 

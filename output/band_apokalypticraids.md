@@ -1,10 +1,52 @@
 # Apokalyptic Raids
 
-Дискография
-"Only Death Is Real..." 2001, Death Metal
-"The Return Of The Satanic Rites" 2003, Black Metal
-"The Third Storm - World War III" 2005, Death Metal
-"Vol.4 - Phonocopia" 2010, Death Metal
+
+
+## Дискография
+
+### "Only Death Is Real..." 2001, Death Metal
+
+1. The Enemy (Intro)
+2. Evil
+3. Forgotten Tales
+4. Into The Twilight Zone
+5. Eternal Gloom
+6. Angels Of Hell
+7. Humankind Dies	
+8. Tyrant, Emperor
+9. Apocalyptic Raids
+10. Tales Of Horror (Outro)
+
+### "The Return Of The Satanic Rites" 2003, Black Metal
+
+
+
+### "The Third Storm - World War III" 2005, Death Metal
+
+1. I'm a Metal Head/Revelations Of Doom (Hellhammer cover)
+2. Fallen Beyond Hope
+3. Vision Shadows
+4. Manifesto Politicamente Incorreto (Ou Um Dia De Furia)
+5. Never Forget What You Are
+6. Humankind Dies
+7. Mankind Defeated (Humankind Dies pt. II)s
+8. The Power in My Mind
+9. When The World Ends in Fire (Metal Returns)
+10. I'm a Metal Head (reprise)
+
+### "Vol.4 - Phonocopia" 2010, Death Metal
+
+1. Nightmare (In Frost and Fire)
+2. Stare into the Abyss
+3. Victim O'Velocity
+4. Remember the Future
+5. The Revenge of History
+6. Priest Of Evil
+7. A World Without Danger
+8. Crucify The Agnostic
+9. The Unquiet Grave
+10. Nothing Will Happen
+
 
 ## Отношения с другими группами
 

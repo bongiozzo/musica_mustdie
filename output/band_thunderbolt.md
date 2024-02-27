@@ -1,9 +1,62 @@
 # Thunderbolt
 
-Дискография
-"Demons And Diamonds" 2003, Heavy Metal
-"Love And Destruction" 2006, Heavy Metal
-"Dung Idols" 2011, Heavy Metal
+
+
+## Дискография
+
+### "Demons And Diamonds" 2003, Heavy Metal
+
+1. Palantir (Instrumental)
+2. Lidless Eye
+3. Demons & Diamonds
+4. The great Walls of Stone
+5. Days of Confusion
+6. Enforcer
+7. Heartrazor
+8. The murderer's Dream (of Purgatory)
+9. Haunted by Shadows
+10. Baptized by Fire
+11. Crucified
+
+### "Love And Destruction" 2006, Heavy Metal
+
+1. Heavy Metal Thunder; 
+2. Bad Boys; 
+3. Love And Destruction; 
+4. Hi-Fidelity Heartbreak; 
+5. Metallic Depression; 
+6. It's A Hard Life (But...); 
+7. Call Out The Lions; 
+8. We Will Survive; 
+9. Sin, Sex And Spandex
+
+All music and lyrics written by THUNDERBOLT
+Engineered by Eivind Skovedal and Tony Johannessen
+Recorded and mixed at Waterfall Production, Oslo and Sound Residence, Oslo
+
+Tony Johannessen - Vocals
+Frank Johannessen - Guitars
+Marius Halleland - Guitars, Vocals
+Morten Eriksen - Bass, Vocals
+Vegard Waske - Drums
+
+Additional Musicians:
+Cato Syversrud, Geir Marius - Lead Guitars and Solos
+Bjorn Boge, Andreas Tylden, Torgny Amdam, Per Erik Holt, Karl Jorgen Weme - Backing Vocals
+
+### "Dung Idols" 2011, Heavy Metal
+
+1. Dung Idols	 
+2. Metal Tide	 
+3. Special	 
+4. Land Of The Living	 
+5. Majestic Travesty	 
+6. Fight	 
+7. The Moderators	 
+8. Heel Run	 
+9. Black Horde	 
+10. Crime Of The Sentry
+
 
 ## Отношения с другими группами
 

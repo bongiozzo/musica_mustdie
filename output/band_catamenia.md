@@ -1,16 +1,205 @@
 # Catamenia
 
-Дискография
-"Halls of Frozen North" 1998, Black Metal
-"Morning Crimson" 1999, Black Metal
-"Eternal Winter's Prophecy" 2000, Black Metal
-"Eskhata" 2002, Black Metal
-"Chaos Born" 2003, Black Metal
-"Winternight Tragedies" 2005, Black Metal
-"Location:COLD" 2006, Black Metal
-"Bringing cold to Poland (DVD+CD)" 2006, Black Metal
-"VIII: The Time Unchained" 2008, Black Metal
-"Cavalcade" 2010, Black Metal
+Ice Cold Nordic Black Metal
+
+## Дискография
+
+### "Halls of Frozen North" 1998, Black Metal
+
+01 - Dreams of Winterland
+02 - Into Infernal
+03 - Freezing winds of North
+04 - Enchanting Woods
+05 - Halls of Frozen North
+06 - Forest Enthroned
+07 - Awake in Dark
+08 - Song of the Nightbird
+09 - Icy Tears of Eternity
+10 - Burning Aura
+11 - Child of Sunset
+12 - Land of the Autumn Winds
+13 - Pimea Yo
+14 - Outro
+
+
+
+
+
+Mika Tonning - Vocals
+Riku Hopeakoski - Guitars
+Sampo Ukkola - Guitars
+Timo Lehtinen - Bass
+Toni Tervo - Drums
+Heidi Riihinen - Keyboards
+
+All music and lyrics by Catamenia
+Recorded and mixed in september 1997 at Commusication Studios, Beindersheim, Germany
+Produced by Gerhard Magin and Catamenia
+Mastered by Alex Krull at Master Sound
+
+
+
+
+
+
+### "Morning Crimson" 1999, Black Metal
+
+ 1. Aurora Borealis
+ 2. Talviyon Varjot
+ 3. And Winter Descends
+ 4. In Blood They Lay
+ 5. Beauty Embraced By Night
+ 6. Passing Moment Of Twilight Time
+ 7. Cast The Stars Beyond
+ 8. Morning Crimson
+ 9. The Forests Of Tomorrow
+10. Towards The Winds Of Winter
+11. When The Frost Took The Lakes
+12. Shadeweaver's Season
+13. Winternacht
+
+### "Eternal Winter's Prophecy" 2000, Black Metal
+
+01 Gates Of Anubis
+02 Sorror Mystica
+03 Blackmension
+04 Kingdom Of Legions
+05 Half Moons, Half Centuries
+06 Forever Night
+07 Dawn Of The Chosen World
+08 Eternal Winter's Prophecy
+09 In The Void
+10 The Darkened Sun
+11 In The Capricorn's Cradle
+
+
+
+### "Eskhata" 2002, Black Metal
+
+01 - Storm 
+02 - Rain of Blood 
+03 - Flames 
+04 - Vortex 
+05 - Coexistence Circle 
+06 - Landscape 
+07 - Karma 
+08 - Astral Tears 
+09 - Time in My Hands 
+10 - Beyond the Starlight 
+11 - Eskhata 
+
+Mika Tцnning - Vocals 
+Riku Hopeakoski - Guitars & Keys 
+Ari Nissilд - Guitars & Clean Vocal 
+Timo Lehtinen - Bass 
+Janne Kusmin - Drums
+
+ Produced by Mika Pohjola SoundMix Studio, Oulu, Finland. 
+Cover artwork by Thomas Ewerhard 
+
+
+
+
+### "Chaos Born" 2003, Black Metal
+
+1. Kuolon Tanssi 
+2. Calm before the storm 
+3. The fallen angel Pt. I (Astaroth & Astarte)
+4. The fear‘s shadow 
+5. Mirrorized Thoughts 
+6. Lost in bitterness
+7. The era 
+8. The fallen angel Pt. II (The Rising)
+9. One with Sorrow
+10. Hollow Out-ChaosBorn
+
+
+
+Recorded, Mixed and Mastered at Neo-Studios February 2003 by Kakke Vahakuopus, Immu Ilmarinen and Catamenia.
+
+Produced by Kakke Vahakuopus, Immu Ilmarinen and Catamenia. Cover-Art and Layout by Thomas Ewerhard
+
+Band Photos by Mika Vuoto / Vasen Photographics
+All Music and Lyrics by Catamenia
+
+Mika ‘Deimhal’ Tonning Vocals
+Riku ‘K-oz’ Hopeakoski Lead Guitar
+Ari ‘WarTechs’ Nissila Rhythm Guitar
+Timo ’Lede’ Lehtinen Bass
+Veikko ‘Moottorisaha’ Jumisko Drums
+Tero ’Vitun Hippi’ Nevala Keyboards
+
+Guest musicians
+Clean Male Vocals on Songs 5 & 6 by Kakke Vahakuopus
+Female Vocals on Songs 3, 4 & 6 by Essi
+
+
+
+
+
+### "Winternight Tragedies" 2005, Black Metal
+
+1. The Heart of Darkness 05:03 
+2. Verikansa 04:53
+3. Strength and Honor 05:07
+4. The Crystal Stream 03:54
+5. Kaamos Warrior 03:53 
+6. My Blood Stained Path 04:54  
+7. Perintц Pohjolan 05:00  
+8. Iced Over 05:24 
+9. The Ancient 05:46  
+10. Fuel For Hatred (Satyricon cover)
+
+### "Location:COLD" 2006, Black Metal
+
+1. The Tribe Of Eternity 05:20
+2. Gallery Of Fear 04:37  
+3. Coldbound 05:16  
+4. Tuhat Vuotta 04:15  
+5. Closed Gates Of Hope 04:34
+6. Zero Gravity 04:41  
+7. Location:COLD 05:33 
+8. The Day When The Sun Faded Away 05:17 
+9. Expect No Mercy 04:28 
+10. I Wanna Be Somebody [W.A.S.P. cover] 03:11
+
+### "Bringing cold to Poland (DVD+CD)" 2006, Black Metal
+
+
+
+### "VIII: The Time Unchained" 2008, Black Metal
+
+01. Garden of Thorns
+02. Alive…Cold…Dead!
+03. Tuhon Oma
+04. Dominion
+05. The Time Unchained
+06. Embody and Behold
+07. Fallen
+08. Uhrimalja
+09. Road of Bones
+10. The Last Day Before…
+
+Riku Hopeakoski - Lead Guitar
+Ari Nissila - Vocals & Rhythm Guitar
+Toni Kansanoja - Bass & Low Grunts
+Mikko Nevanlahti - Drums
+Kari Vahakuopus - Clean Vocals
+
+### "Cavalcade" 2010, Black Metal
+
+1. Blood Trails 04:59
+2. Cavalcade 04:59
+3. The Path That Lies Behind Me 04:20 
+4. Silence 04:29
+5. Quantity of Sadness 04:29
+6. Post Mortem 04:27 
+7. The Vulture's Feast 05:15
+8. A Callous Mind 04:06
+9. Reincarnation 05:23 
+10. Angry Again (Megadeth cover) 03:36 
+11. Farewell (Sentenced cover)(Bonus Track) 03:38 
+
 
 ## Отношения с другими группами
 

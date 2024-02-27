@@ -1,13 +1,46 @@
 # Wolves in the Throne Room
 
-Дискография
-"Diadem of 12 Stars" 2006, Black Metal
-"Two Hunters" 2007, Black Metal
-"Black Cascade" 2009, Black Metal
-"Celestial Lineage" 2011, Black Metal
-"BBC Session 2011 Anno Domini (EP)" 2013, Black Metal
-"Celestite" 2014, Black Metal
-"Turning Ever Towards the Sun - Live at Neudegg Alm" 2014, Black Metal
+
+
+## Дискография
+
+### "Diadem of 12 Stars" 2006, Black Metal
+
+1. Queen of the Borrowed Light  12:58  
+2. Face in a Night Time Mirror: Part 1  13:21   
+3. Face in a Night Time Mirror: Part 2  13:58
+4. (A Shimmering Radiance) Diadem of 12 Stars  20:22 
+
+### "Two Hunters" 2007, Black Metal
+
+1. Dea Artio  05:58   instrumental  
+2. Vastness and Sorrow  12:12   
+3. Cleansing  09:55  
+4. I Will Lay Down My Bones Among the Rocks and Roots  18:16 
+
+### "Black Cascade" 2009, Black Metal
+
+1. Wanderer Above the Sea of Fog  10:33   
+2. Ahrimanic Trance  14:05    
+3. Ex Cathedra  10:58    
+4. Crystal Ammunition  14:20 
+
+### "Celestial Lineage" 2011, Black Metal
+
+
+
+### "BBC Session 2011 Anno Domini (EP)" 2013, Black Metal
+
+
+
+### "Celestite" 2014, Black Metal
+
+
+
+### "Turning Ever Towards the Sun - Live at Neudegg Alm" 2014, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

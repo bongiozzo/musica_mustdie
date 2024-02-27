@@ -1,14 +1,41 @@
 # Zeni Geva
 
-Дискография
-"All Right You Little Bastards" 1993, Hardcore
-"Desire For Agony" 1993, Hardcore
-"Maximum Money Monster" 1994, Hardcore
-"Freedom Bondage" 1995, Hardcore
-"Nai-Ha" 1995, Hardcore
-"Trance Europe Express" 1995, Hardcore
-"Total Castration" 1996, Hardcore
-"10000 light years" 2001, Hardcore
+alternative-art-core
+
+## Дискография
+
+### "All Right You Little Bastards" 1993, Hardcore
+
+
+
+### "Desire For Agony" 1993, Hardcore
+
+
+
+### "Maximum Money Monster" 1994, Hardcore
+
+
+
+### "Freedom Bondage" 1995, Hardcore
+
+
+
+### "Nai-Ha" 1995, Hardcore
+
+
+
+### "Trance Europe Express" 1995, Hardcore
+
+
+
+### "Total Castration" 1996, Hardcore
+
+
+
+### "10000 light years" 2001, Hardcore
+
+
+
 
 ## Отношения с другими группами
 

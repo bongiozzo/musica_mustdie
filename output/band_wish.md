@@ -1,7 +1,31 @@
 # Wish
 
-Дискография
-"Monochrome" 1995, Gothic
+
+
+## Дискография
+
+### "Monochrome" 1995, Gothic
+
+1. Balance
+2. Ten Bridges Burning
+3. Rain
+4. Thelena
+5. Elsewhen
+6. Judas Kiss
+7. Gentle Nova
+8. Monument
+
+All Tracks By WISH.
+Produced By WISH.
+Engineered By Oscar Holleman.
+Recorded At RS29 Waalwijk, The Netherlands.
+
+Bart Smiths (Ex-THE GATHERING)
+Alwin Roes
+Micha V.D. Ven
+
+(P)&(C) 1995 MOONLIGHT Records
+
 
 ## Отношения с другими группами
 

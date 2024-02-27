@@ -1,7 +1,13 @@
 # Sceptic
 
-Дискография
-"Pathetic Being" 2001, Death Metal
+death metal from Poland
+
+## Дискография
+
+### "Pathetic Being" 2001, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

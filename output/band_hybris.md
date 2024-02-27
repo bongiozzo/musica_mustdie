@@ -1,7 +1,17 @@
 # Hybris
 
-Дискография
-"Ethereal Hopes" 1995, Death Metal
+
+
+## Дискография
+
+### "Ethereal Hopes" 1995, Death Metal
+
+1.  Raise Myself
+2.  For An Enchanted Dream
+3.  Sons Of 8th Day
+
+(P)(C) 1995 BOUNDLESS REC // BLR 004
+
 
 ## Отношения с другими группами
 

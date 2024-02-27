@@ -1,7 +1,22 @@
 # Phantasm
 
-Дискография
-"Keeper Of Death" 1993, Black Metal
+
+
+## Дискография
+
+### "Keeper Of Death" 1993, Black Metal
+
+1.  Rotten Plague
+2.  Stick In Back
+3.  Brainsuckers Spiders
+4.  Night Of The Living Dead
+5.  Keeper Of Death
+6.  Black Castle
+7.  Phantasm (Instrumental)
+8.  Grave Digger
+
+(P)c 1993 MOROZ Records
+
 
 ## Отношения с другими группами
 

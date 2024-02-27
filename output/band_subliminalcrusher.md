@@ -1,9 +1,45 @@
 # Subliminal Crusher
 
-Дискография
-"Life Drought" 2003, Melodic Death Metal
-"Antithesis" 2005, Melodic Death Metal
-"Endvolution" 2008, Melodic Death Metal
+
+
+## Дискография
+
+### "Life Drought" 2003, Melodic Death Metal
+
+1. Armageddon 01:21  
+2. Sense of Impotence 03:41
+3. History 02:53
+4. Terrifying Symphonies 04:06
+5. Life Drought 03:42
+6. Affection 04:36
+7. Outro 01:41  
+8. Pull the Plug (Death Cover) 05:50 
+
+### "Antithesis" 2005, Melodic Death Metal
+
+1. Fuck-Simile 04:15  
+2. Affection 04:26  
+3. Technocratic 03:56  
+4. I.R.A.Q. 03:45  
+5. Slavery 05:05  
+6. Fearbox 03:37  
+7. Unfertile Suggestion 03:35  
+8. Poetry 03:58  
+9. Into the Pit (Testament cover) 11:13 
+
+### "Endvolution" 2008, Melodic Death Metal
+
+1. Preface 01:38  
+2. Just All I Want 03:32  
+3. Bored 04:13  
+4. Later 04:17  
+5. The Visionaire Pt.1: Desert Chains/Liberation 04:44  
+6. The Promise 04:12  
+7. Life Arises 04:29  
+8. Wellness Perfection 03:46  
+9. Endvolution 03:44  
+10. The Visionaire Pt.2: The Darkest Vision 04:19 
+
 
 ## Отношения с другими группами
 

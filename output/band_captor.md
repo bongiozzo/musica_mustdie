@@ -1,8 +1,59 @@
 # Captor
 
-Дискография
-"Lay It To Rest" 1993, Death Metal
-"Drowned" 1996, Death Metal
+Original Death Metal
+
+## Дискография
+
+### "Lay It To Rest" 1993, Death Metal
+
+1. Intro
+2. Traumatic Depressive Lunacy
+3. Aspects Of Positive Thinking
+4. Jaws Of Lust
+5. Domination
+6. Left Revolution Speak
+7. Possessed
+8. Depression
+9. Trail Of Death
+10.Lay It To Rest
+
+ Fredrik Olofsson - Lead, Acoustic Guitar
+ Niklas Kullstrom - Lead, Acoustic Guitar
+ Jacob Nordangard - Bass, Lead Guitar
+ Angelo Mikaj - Drums, Back Vocals
+
+All Keyboards By "Bino"
+All Music & Lyrics By CAPTOR
+Produced By CAPTOR & Andreas Ahlenius
+Engineered By Andreas Ahlenius
+Engineered & Mixed At Gеvle Ljudstudio
+1-14 February 1993
+
+(p)&(c) 1993 EURORECORDS
+
+### "Drowned" 1996, Death Metal
+
+1.  So Bold As Cold
+2.  Disbelieve
+3.  Mother
+4.  Zombiehead
+5.  Hostile Reality
+6.  Refuse To Die
+7.  Insane
+8.  Lost
+9.  Confession
+10.More Life
+11.Pray
+12.Sick
+
+Mange - Vocals
+Nicklas - Guitars
+Fredrick - Guitars
+Angelo - Drums
+Christoffer - Bass
+
+(P)c 1996 ROASTING HOUSE // PCD 34
+
 
 ## Отношения с другими группами
 

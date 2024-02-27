@@ -1,7 +1,44 @@
 # Scheepers
 
-Дискография
-"Scheepers" 2011, Heavy Metal
+Ralf Scheepers solo project
+
+## Дискография
+
+### "Scheepers" 2011, Heavy Metal
+
+1. Locked In The Dungeon 04:08  
+2. Remission Of Sin 04:09  
+3. Cyberfreak 03:45  
+4. The Fall 04:05  
+5. Doomsday 06:28  
+6. Saints Of Rock 04:32 
+7. Before The Dawn 03:06  
+8. Back On The Track 04:40  
+9. Dynasty 03:57  
+10. The Pain Of The Accused 06:18  
+11. Play With Fire 04:08  
+12. Compassion 03:16 
+
+
+
+Line-up:
+Ralf Scheepers - Vocals, Acoustic Guitar, Keyboards
+
+Session members:
+Magnus Karlsson - Guitar, Bass, Banjo, Accordion, Keyboards
+Sander Gommans - Guitar
+Mat Sinner - Bass, Keyboards
+Snowy Shaw - Drums
+
+Guest members:
+Tim "Ripper” Owens" - Vocals on "Remission Of Sin"
+"Metal" Mike Chlasciak - Lead Guitar on "Locked In The Dungeon"
+Victor Smolski - Lead Guitar on "Before The Dawn"
+Kai Hansen - Lead Guitar on "The Pain Of The Accused"
+Alex Beyrodt - Lead Guitar
+
+The album was mixed and mastered by Achim Kцhler and produced by Mat Sinner. 
+
 
 ## Отношения с другими группами
 

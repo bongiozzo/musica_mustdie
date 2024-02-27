@@ -1,7 +1,22 @@
 # Apokrypha
 
-Дискография
-"To The Seven" 2004, Black Metal
+
+
+## Дискография
+
+### "To The Seven" 2004, Black Metal
+
+1. To the Seven
+2. Humilation
+3. Earth Beneath
+4. Crowd
+5. Oblivion	 
+6. Moral Sloth
+7. Noctifer
+8. Ignorance
+9. Climax
+10. Black Demons
+
 
 ## Отношения с другими группами
 

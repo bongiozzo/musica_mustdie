@@ -1,8 +1,35 @@
 # Antithesis
 
-Дискография
-"Antithesis" 1999, Heavy Metal
-"Dying For Life" 2001, Heavy Metal
+Heavy-prog
+
+## Дискография
+
+### "Antithesis" 1999, Heavy Metal
+
+1. Netherworld   
+2. Breeding The Beast   
+3. Limbo   
+4. Sword Of Mouth   
+5. The Web   
+6. Secret Fires   
+7. Plastic   
+8. The Curse   
+9. Descend (instr.)  
+
+
+### "Dying For Life" 2001, Heavy Metal
+
+1. Consequence 
+2. Soul of Ice 
+3. Times of Trial 
+4. Deceiver Within 
+5. Distanced 
+6. Mad Poet 
+7. Politicide 
+8. Dying for Life (Limbo 2) 
+9. Netherworld (Bonus U.S. Release) 
+10. Secret Fires (Bonus European Release) 
+
 
 ## Отношения с другими группами
 

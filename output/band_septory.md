@@ -1,8 +1,26 @@
 # Septory
 
-Дискография
-"World War Chaos" 2008, Death Metal
-"Seductive Art Profane" 2011, Death Metal
+
+
+## Дискография
+
+### "World War Chaos" 2008, Death Metal
+
+
+
+### "Seductive Art Profane" 2011, Death Metal
+
+1. Entangled of Madness
+2. Seductive Art Profane
+3. Open Eyes of Chaos
+4. Virtual God
+5. Victimized 
+6. Self-Genocide
+7. The Endless Torments
+8. Final Path
+9. Blind Bastard Manifest
+10 Brake Your Idols
+
 
 ## Отношения с другими группами
 

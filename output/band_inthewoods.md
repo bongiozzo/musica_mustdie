@@ -1,13 +1,119 @@
 # In the Woods
 
-Дискография
-"Heart of the Ages" 1995, Metal
-"A Return to the Isle of Men" 1996, Metal
-"Omnio" 1997, Black Metal
-"Strange in Stereo" 1999, Progressive
-"Three Times Seven on a Pilgrimage" 2000, Progressive
-"liveatthecaledonienhall" 2003, Metal
-"Pure" 2016, Progressive
+Melodic Atmosphere Black Metal
+
+## Дискография
+
+### "Heart of the Ages" 1995, Metal
+
+1. Yearning The Seeds Of A New Dimension
+2. Heart Of The Ages
+3. ... In The Woods
+   a) Prologue
+   b) Moments Of ...
+   c) Epilogue
+4. Mourning The Death Of Aase
+5. Pigeon
+6. The Divirity Of Wisdom
+7. Wotan's Return
+
+All Songs Written By IN THE WOODS
+Produced & Engineered By Trond & Bjorn Harstad
+Recorded & Mixed At Star Studio, Iceren, 1995
+
+### "A Return to the Isle of Men" 1996, Metal
+
+1. The Wings Of My Dreamland
+2. Tell De Dode
+3. In The Woods...
+4. Creations Of An Ancient Shape
+5. Wotan'S Return
+6. Heart Of The Ages
+7. Child Of Universal Tounge
+
+X Botteri, C.M. Botteri; Oddvar a:m; Kobro; Synne Diana; B.Berserk; Ovl. Svithjod
+
+### "Omnio" 1997, Black Metal
+
+1.   299 796 KM/S (In The Woods) - 14:46 
+  2.   I Am Your Flesh (In The Woods) - 7:07 
+  3.   Kairos! (In The Woods) - 3:34 
+  4.   Weeping Willow (In The Woods) - 11:39 
+  5.   Omnio? (In The Woods) - 11:59 
+  6.   -Pre (In The Woods) - 5:54 
+  7.   -Bardo (In The Woods) - 8:09 
+  8.   -Post (In The Woods)
+
+### "Strange in Stereo" 1999, Progressive
+
+1.   Closing In - 5:41 
+  2.   Cell - 4:33 
+  3.   Vanish in the Absence of Virtue - 4:16 
+  4.   Basement Corridors - 5:18 
+  5.   Ion - 5:39 
+  6.   Generally More Worried Than Married - 8:52 
+  7.   Path of the Righteous - 6:55 
+  8.   Dead Man's Creek - 7:43 
+  9.   Titan Transendence - 5:40 
+  10.   Shelter - :36 
+  11.   By the Banks of Pandemonium - 7:56
+
+### "Three Times Seven on a Pilgrimage" 2000, Progressive
+
+1. Seed Of Sound
+2. Karmakosmik
+3. Epitaph
+4. Empty Room 
+5. Let There Be More Light
+6. Child Of Universal Tongue 
+7. Soundtrack For Cycoz 1st Ed
+8. White Rabbit 
+9. Mourning The Death Of Aase
+10. If It'S In You
+
+### "liveatthecaledonienhall" 2003, Metal
+
+CD One:
+1. introducing...
+2. medley on heartworks
+3. heart of the ages
+4. beer
+5. white rabbit
+6. mourning the death of aase
+7. 299.796 km/s
+8. i am your flesh
+9. kairos
+10. weeping willow
+11. omnio (pre) 
+
+
+CD Two
+1. omnio (bardo+post)
+2. empty room
+3. don’t care
+4. dead man’s creek
+5. karmakosmik
+6. path of the righteous
+7. titan transcendence
+8. epitaph
+9. closing in
+
+### "Pure" 2016, Progressive
+
+1. Pure  
+2. Blue Oceans Rise (Like a War)  
+3. Devil's at the Door  
+4. The Recalcitrant Protagonist   
+5. The Cave of Dreams  
+6. Cult of Shining Stars  
+7. Towards the Black Surreal  
+8. Transmission KRS   
+9. This Dark Dream     
+10. Mysteryof the Constellations 
+
+ Recorded at Woodscave Studio.
+ Mixed and mastered by WSL Studio.
+
 
 ## Отношения с другими группами
 

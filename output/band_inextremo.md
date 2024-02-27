@@ -1,17 +1,213 @@
 # In Extremo
 
-Дискография
-"Weckt Die Toten" 1999, Folk
-"Verehrt Und Angespien" 1999, Folk
-"Die Verruckten Sind In Der Stadt" 1999, Folk
-"Zunder ohne Zugel" 2001, Folk
-"Seven" 2003, Industrial
-"Mein Rasend Herz" 2005, Folk
-"Frei zu Sein (single)" 2008, Folk
-"SangerKrieg" 2008, Folk
-"Sterneneisen" 2011, Folk
-"Kunstraub" 2013, Folk
-"Quid Pro Quo " 2016, Folk
+
+
+## Дискография
+
+### "Weckt Die Toten" 1999, Folk
+
+
+
+### "Verehrt Und Angespien" 1999, Folk
+
+1. Merseburger Zauberspruche (Album Version)
+ 2. Ich Kenne Alles
+ 3. Herr Mannelig
+ 4. Pavane
+ 5. Spielmannsfluch
+ 6. Weiberfell
+ 7. Miss Gordon Of Gight
+ 8. Werd Ich Am Galgen Hochgezogen
+ 9. This Corrosion
+10. Santa Maria
+11. Vanner Och Frande
+12. In Extremo
+13. Herr Mannelig (Acoustic Version)
+
+Das letzte Einhorn: alle Gesange, Harp und Zyster
+Thomas der Munzer: Gitarre
+Die Lutter: Bass, Drumscheid
+Der Morgenstern: Schlagzeug, Percussion, Pauke
+Dr. Pymonte: Dudelsack, Schallmei, Flute, Harfe
+Flex der Biegsame: Dudelsack, D-Sack, Schallmei, Flute
+Yellow Pfeiffer: Dudelsack, C-Sack, Schallmei, Flute, Nykelharpa
+
+(p) 1999 Metal Blade
+
+### "Die Verruckten Sind In Der Stadt" 1999, Folk
+
+1. Ansage 6 Vagabunden
+2. Galgen
+3. Ansage Totus Florio
+4. Totus Florio
+5. Ansage Maria
+6. Scaracuila
+7. Ansage Dodet
+8. Skudrinka (Dodet)
+9. Ansage Quant
+10. Quant Je Suis Mis Au Retour
+11. Hameln
+12. Neva Ceng I Harbe
+13. Ansage Villeman
+14. Villeman Og Magnhild
+15. Neunerle
+16. Ansage Fred
+17. Traubentritt
+18. Vorstellung
+19. Ecce Rex Darius
+20. Ansage Englander
+21. Wie Kann Ich Das Herz Meiner Liebsten Gewinnen
+22. Absammeln
+
+(p) 1998 Stars in the Dark / Vielklang Musikproduktion
+
+### "Zunder ohne Zugel" 2001, Folk
+
+1. Wind 
+ 2. Krummavнsur 
+ 3. Lebensbeichte 
+ 4. Merseburger Zaubersprьche II  
+ 5. Stetit Puella 
+ 6. Vollmond 
+ 7. Die Gier 
+ 8. Omnia Sol Temperat 
+ 9. Le 'Or Chiyuchech 
+ 10. Der Rattenfдnger 
+ 11. Уskasteinar 
+ 12. Nature Nous Semont  
+ 13. Ьber den Wolken
+
+### "Seven" 2003, Industrial
+
+1. Erdbeermund
+2. Sefardim
+3. Ave Maria
+4. Mein Kind
+5. Sagrada Trobar
+6. Kuss Mich
+7. Davert-Tanz
+8. Melancholie
+9. Albtraum
+10. Pferdesegen
+11. Nymphenzeit
+12. Madre Deus
+13. Segel Setzen
+
+(p)(c) 2003 Motor / Urban
+
+### "Mein Rasend Herz" 2005, Folk
+
+01.  Raue See  
+02.  Horizont  
+03.  Wesserbronner Gebet  
+04.  Nur ihr allein  
+05.  Fontaine la Jolie  
+06.  Macht und Dummheit  
+07.  Tannhuser  
+08.  Laim  
+09.  Rasend Herz  
+10.  Singapur  
+11.  Poc vocem  
+12.  Spielmann
+
+### "Frei zu Sein (single)" 2008, Folk
+
+1. Frei zu sein 03:07 
+2. Frei zu sein (Album Version) 03:35  
+3. Berlin 03:36 
+
+Including "Mein rasend Herz" live video from Wacken Open Air 2006. 
+
+
+### "SangerKrieg" 2008, Folk
+
+01. Sieben Kцche
+02. Sдngerkrieg
+03. Neues Glьck
+04. En Esta Noche [feat. Josй Andrлa]
+05. Mein Sehnen
+06. Flaschenpost
+07. Requiem
+08. Frei zu sein
+09. Zauberspruch
+10. In diesem Licht
+11. Tanz mit mir
+12. An End Has A Start [Editors cover]
+13. Mein liebster Feind
+14. Auf's Leben
+
+### "Sterneneisen" 2011, Folk
+
+ 01. Zigeunerskat 
+ 02. Gold 
+ 03. Viva La Vida 
+ 04. Siehst du das Licht 
+ 05. Stalker 
+ 06. Hol die Sterne 
+ 07. Sterneneisen 
+ 08. Zauberspruch No. VII 
+ 09. Auge um Auge 
+ 10. Schau zum Mond 
+ 11. Unsichtbar 
+ 12. Ich vermiss dich 
+
+### "Kunstraub" 2013, Folk
+
+1. Der die Sonne schlafen schickt  03:56      
+2. Wege ohne Namen  04:21      
+3. Lebemann  03:21      
+4. Himmel und Hцlle  03:55      
+5. Gaukler  03:51      
+6. Kunstraub  03:22      
+7. Feuertaufe  03:26      
+8. Du und ich  03:29      
+9. Doof  03:49      
+10. Alles schon gesehen  03:28      
+11. Belladonna  04:00      
+12. Die Beute  03:40 
+
+
+The record is released in different editions.
+
+ The regular edition contains the twelve regular tracks. There also exists a regular vinyl version with MP3 download codes and a Nuclear Blast red vinyl version of the regular album.
+
+ The EMP edition comes with a pair of suspenders for trousers.
+
+ "Media Markt" and "Saturn" editions of the regular or deluxe packages come with two exclusive bonus tracks.
+
+ 13. Bunter Vogel 04:37
+ 14. Meie Din 04:30
+
+ The normal deluxe edition comes in a digipack and contains a bonus DVD with a documentary about the creating process behind "Kunstraub".
+
+### "Quid Pro Quo " 2016, Folk
+
+CD 1
+01. Stortebeker 
+02. Roter Stern 
+03. Quid Pro Quo 
+04. Pikse Palve 
+05. Lieb Vaterland, magst ruhig sein 
+06. Flaschenteufel 
+07. Dacw 'Nghariad 
+08. Moonshiner 
+09. Gluck auf Erden 
+10. Черный ворон
+11. Sternhagelvoll 
+12. Wenn das Licht angeht 
+13. Palastinalied 2 
+14. Quid Pro Quo (Akustik Version) 
+
+CD 2
+01. Siehst du das Licht (Schifffahrt 2015 ЁC Live) 
+02. Lebensbeichte (Schifffahrt 2015 ЁC Live) 
+03. Nur ihr allein (Schifffahrt 2015 ЁC Live) 
+04. In diesem Licht (Schifffahrt 2015 ЁC Live) 
+05. Frei zu sein (Schifffahrt 2015 ЁC Live) 
+06. Kuss Mich (Schifffahrt 2015 ЁC Live) 
+07. Gaukler (Schifffahrt 2015 ЁC Live) 
+08. Feuertaufe (Schifffahrt 2015 ЁC Live) 
+
 
 ## Отношения с другими группами
 

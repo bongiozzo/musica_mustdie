@@ -1,9 +1,56 @@
 # Hole
 
-Дискография
-"Pretty On The Inside" 1994, Grunge
-"Live Through This" 1995, Grunge
-"Ask For It" 1995, Grunge
+
+
+## Дискография
+
+### "Pretty On The Inside" 1994, Grunge
+
+1. Teenage Whore
+2. Babydoll
+3. Garbage Man
+4. Sassy
+5. Good Sister/Bad Sister
+6. Mrs. Jones
+7. Berry
+8. Loaded
+9. Star Belly
+10.Pretty On The Inside
+(P)&c 1994
+
+### "Live Through This" 1995, Grunge
+
+1. Violet
+2. Miss World
+3. Plump
+4. Asking For It
+5. Credit In The Straight World
+6. Softer,Softest
+7. Jennifers Body
+8. Doll Parts
+9. She Walks On Me
+10.I Think That I Would Die
+11.Gutless
+12.Rock Star
+
+(P)&(C) 1995 CAROLINE Records
+
+### "Ask For It" 1995, Grunge
+
+1. Over The Edge
+2. Pale Blue Eyes
+3. Drown Soda
+4. Doll Parts
+5. Violet
+6. Forming / Hot Chocolate Boy
+
+Track 1 Recorded By Brian Foxworthy (3-92).
+Track 2 Live At The Whiskey (2.11.92) 
+Recorded By The Carlos Nunez.
+Tracks 3-6 John Peel Session BBC Radio (11.91)
+
+(P)&(C) 1995 CAROLINE Records Inc.
+
 
 ## Отношения с другими группами
 

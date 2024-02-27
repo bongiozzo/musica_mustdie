@@ -1,7 +1,20 @@
 # Capharnaum
 
-Дискография
-"Fractured" 2005, Techno Death
+
+
+## Дискография
+
+### "Fractured" 2005, Techno Death
+
+1. ingrained
+2. fractured
+3. perpetuate catatonia
+4. machines
+5. icons of malice
+6. reins of humanity
+7. the scourge trial
+8. refusal
+
 
 ## Отношения с другими группами
 

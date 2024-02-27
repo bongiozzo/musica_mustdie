@@ -1,7 +1,20 @@
 # Sol Sistere
 
-Дискография
-"Unfading Incorporeal Vacuum" 2016, Black Metal
+
+
+## Дискография
+
+### "Unfading Incorporeal Vacuum" 2016, Black Metal
+
+1. Death Knell 
+2. Relentless Ascension 
+3. Deliver Us 
+4. Sight of the Oracle 
+5. Degraded Soul 
+6. Towards the Morning Sun 
+7. 6th Replicant  
+8. Seeker of Souls 
+
 
 ## Отношения с другими группами
 

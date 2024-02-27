@@ -1,8 +1,37 @@
 # Chimp Spanner
 
-Дискография
-"Imperium Vorago" 2004, Instrumental
-"At the Dream's Edge" 2009, Instrumental
+
+
+## Дискография
+
+### "Imperium Vorago" 2004, Instrumental
+
+1. Clarity In Chaos
+2. Spirals
+3. Broken
+4. Smiles and Cries
+5. Hour 11
+6. The Last Day
+7. DOA
+8. Jacob's Ladder
+9. Three Ring (+ Core)
+
+### "At the Dream's Edge" 2009, Instrumental
+
+1. Galaxy Rise
+2. Supererogation
+3. At the Dream's Edge
+4. The Mirror
+5. Bad Code
+6. Harvey Wallbanger
+7. Ghosts of the Golden City
+8. Far From Home
+9. Terminus Pt I
+10. Terminus Pt II
+11. Terminus Pt III
+12. Under One Sky
+13. All Good Things
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,20 @@
 # Dotma
 
-Дискография
-"Sleep Paralyses" 2011, Power Metal
+
+
+## Дискография
+
+### "Sleep Paralyses" 2011, Power Metal
+
+1. Legend of Blackbird	 
+2. Reborn	 
+3. Silent Sunshine	 
+4. Indian Fall	 
+5. Whispering	 
+6. The Cave	 
+7. Kingdom of the Sky	 
+8. Memory Worth Dying For
+
 
 ## Отношения с другими группами
 

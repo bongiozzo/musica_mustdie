@@ -1,7 +1,13 @@
 # Tharsis
 
-Дискография
-"Portrait Of My Soul" 2001, Techno Death
+
+
+## Дискография
+
+### "Portrait Of My Soul" 2001, Techno Death
+
+
+
 
 ## Отношения с другими группами
 

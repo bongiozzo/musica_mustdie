@@ -1,8 +1,55 @@
 # Professional Murder Music
 
-Дискография
-"Professional Murder Music" 2001, Alternative
-"Looking Through" 2003, Alternative
+Alternative rock with atmospheric keyboards
+
+## Дискография
+
+### "Professional Murder Music" 2001, Alternative
+
+1. Slow
+2. Fall Again
+3. Of Uknown Origin
+4. Does It Dream
+5. Darker *
+6. These Days
+7. Sleep Deprivation
+8. A Night Like This
+9. Everything In The World
+10. Dissolve
+11. Your World *
+12. Painkiller Introduction **
+
+Produced by Josh Abraham
+Mixed by Tom Lord-Alge
+except: * mixed by Dave "Rave" Ogilvie and ** Roman Marisak
+executive producer: Jordan Schur
+
+Line-up:
+Roman Marisak - vocals/guitars
+Tom Logan        - guitars
+Jeff Schartoff   - bass
+Justin Bennett  - drums
+
+(c)&(p) 2001 Geffen Records
+
+### "Looking Through" 2003, Alternative
+
+Something New 
+Don't Stop 
+As It's Fading 
+Disconnect 
+Start Again 
+Clear 
+All Lost Things 
+Staring 
+Endless 
+Something New (remix) 
+
+Line-up:
+Roman Marisak (vocals/guitars)
+Tom Logan (bass)
+Justin Bennett (drums)
+
 
 ## Отношения с другими группами
 

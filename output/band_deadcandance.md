@@ -1,15 +1,295 @@
 # Dead Can Dance
 
-Дискография
-"Dead Can Dance" 1984, Gothic
-"Spleen And Ideal" 1985, Gothic
-"Within The Realm Of A Dying Sun" 1987, Gothic
-"The Serpent Egg" 1988, Gothic
-"Aion" 1990, Gothic
-"A Passage In Time" 1991, Gothic
-"Into The Labyrinth" 1993, Gothic
-"Toward The Within" 1994, Gothic
-"Spiritchaser" 1996, Gothic
+gothic-ethno-dark-ambient
+
+## Дискография
+
+### "Dead Can Dance" 1984, Gothic
+
+1. The Fatal Impact 
+2. The Trial 
+3. Frontier 
+4. Fortune 
+5. Ocean 
+6. East Of Eden 
+7. Threshold 
+8. A Passage In Time 
+9. Wild In The Woods 
+10.Musica Eterna
+Garden Of The Arcane Delights
+11.Carnival Of Light 
+12.In Power We Trust The Love Advocated 
+13.The Arcane 
+14.Flowers Of The Sea
+
+Tracks 11, 12, 13 and 14 engineered by Joe Gillingham and Kenny Jones
+
+Written and Produced by Dead Can Dance
+Recorded and Mixed at Vineyard
+
+A special thank-you to Ivo, Robin and Vaughan for all the interest they have shown
+
+(P)(C) 1984 4AD Records CAD 404 CD
+
+### "Spleen And Ideal" 1985, Gothic
+
+1.  De Profundis (Out Of The Depths Of Sorrow)
+2.  Ascension
+3.  Circumradiant Dawn
+4.  The Cardinal Sin
+5.  Mesmerism
+6.  Enigma Of The Absolute
+7.  Advent
+8.  Avatar
+9.  Indoctrination (A Design For Living)
+
+Cello: Gus Ferguson
+Cello: Martin McGarrick
+Timpani: James Pinker
+Timpani: Tony Ayres
+Trombone: Richard Avison
+Soprano on 'De Profundis': Andrew Hutton
+Violin: Carolyn Costin
+
+All other instruments and voices performed by Brendan Perry and Lisa Gerrard
+
+Produced by Dead Can Dance and John A. Rivers
+Engineering by John A. Rivers and Jonathan Dee
+Recorded and mixed at Woodbine St. Recording Studios during
+September/November 1985
+
+(P)c 1985 4AD Records
+
+### "Within The Realm Of A Dying Sun" 1987, Gothic
+
+1. Anywhere Out Of The World 
+2. Windfall 
+3. In The Wake Of Adversity 
+4. Xavier 
+5. Dawn Of The Iconoclast 
+6. Cantara 
+7. Summoning Of The Muse 
+8. Persephone
+   The Gathering Of Flowers
+
+Violin: Alison Harling
+Violin: Emlyn Singleton
+Viola: Piero Gasparini
+Cello: Tony Gamage
+Cello: Gus Ferguson
+Trumpet: Mark Gerrard
+Trombone: Richard Avison
+Trombone: John Singleton
+Bass Trombone and Tuba: Andrew Claxton
+Oboe: Ruth Watson
+Timpani and Military Snare: Peter Ulrich
+
+All other instruments and voices performed by Brendan Perry and Lisa Gerrard
+Photograph by Bernard Oudin
+Design by Brendan Perry
+
+Written by: Brendan Perry and Lisa Gerrard
+Produced by: Dead Can Dance and John A. Rivers
+Engineered by: John A. Rivers and Francisco Cabeza
+Recorded/Mized: Woodbine Street Recording Studios April/May 1987
+Published by: Beggars Banquet Music Ltd/Momentum Music Ltd
+
+(P)(C) 1987 4AD Records CAD 705 CD
+
+### "The Serpent Egg" 1988, Gothic
+
+1. The Host  Of  Seraphim
+2. Or Bis De Ignis
+3. Severance
+4. The Writing On My Father's
+5. In The Kingdom Of The Blind
+   The One  -  Eyed  Are Kings
+6. Chant Of The Paladin
+7. Song Of Sophia
+8. Echolalia
+9. Mother  Tongue
+10.Ullyses
+
+(P)&(C) 1988 4AD Records
+
+### "Aion" 1990, Gothic
+
+1. The Arrival And The Reunion
+2. Saltarello (Instrumental Dance - Anonymous - Italian 14th Century)
+3. Mephisto
+4. The Song Of Sibyl (Traditional Version Catalan 16th Century) Dedicated To The Memory Of Jamie Salas
+5. Fortune Presents Gifts Not According To The Book (Words By Luis De Gongora)
+6. As The Bell Rings The Maypole Spins
+7. The End Of Words
+8. Black Sun
+9. Wilderness
+10.The Promised Womb
+11.The Garden Of Zephirus
+12.Radharc
+
+Produced by Dead Can Dance
+
+Musicians:
+John Bonnar: Keyboards on Band No 5 and Co-arrangements on Band Nos 2 and 5
+David Navarro Sust: Vocals on Band Nos 1 and 7
+Robert Perry: Bagpipes on Band No 6
+
+Band No 10
+Andrew Robinson: Bass Viol
+Lucy Robinson: Tenor Viol
+Anne Robinson: Bass Viol
+Honor Carmody: Tenor Viol
+
+All other Instruments and Voices Performed by Brendan Perry and Lisa Gerrard
+
+Recorded and Produced in Ireland
+With the Exception of Band Nos 1 and 7
+Recorded and Produced at Woodbine Studios, Leamington Spa
+
+Cover Design by Brendan Perry
+
+Detail from 'The Garden of Delights'
+A Painting by Hieronymus Bosch
+(Courtesy of "The Prado Museum" Madrid)
+
+(P)&(C) 1990 4AD Records
+
+### "A Passage In Time" 1991, Gothic
+
+1. Saltarello
+2. Song of Sophia ('90)
+3. Ulysses ('88)
+4. Cantara ('88)
+5. The Garden Of Zephirus ('87)
+6. Enigma Of The Absolute ('90)
+7. Wilderness ('85)
+8. The Host Of Seraphim ('90)
+9. Anywhere Out Of The World ('88)
+10.The Writing On My Fathers Hand ('87)
+11.Severance ('88)
+12.The Song Of The Sybil ('88)
+13.Fortune Presents Gifts Not According To The Book ('90)
+14.In The Kingdom Of The Blind The One-Eyed Are Kings ('90)
+15.Bird ('88)
+16.Spirit
+
+"A Passage in Time" Press Release from Ryko
+
+All tracks written by Dead Can Dance except where indicated
+Track 6 Produced by Dead Can Dance & John Rivers from Spleen and Ideal CAD 512 CD
+
+Tracks 4 & 9 Produced by Dead Can Dance & John A. Rivers from Within the Realm of a Dying Sun CAD 705 CD
+Tracks 2, 3 & 8 Produced by Dead Can Dance & John A. Rivers, Tracks 10, 11 & 14 Produced by Dead Can Dance from The Serpent's Egg CAD 808 CD
+Tracks 1, 5, 7, 12 & 13 Produced by Dead Can Dance from Aion CAD 0007 CD
+Tracks 15 & 16 Produced by Dead Can Dance recorded for A Passage in Time
+
+Design: Chris Bigg & Brendan Perry
+Photography: N. Downer / Planet Earth Pictures
+Portrait Photography: Sara Leigh Lewis
+
+Published by Beggars Banquet Music Ltd. / Momentum Music Ltd.
+
+Copyright 1985-87-88-90 4AD
+Copyright 1991 4AD
+
+(P)(C) 1991 4AD Records CAD 1010 CD
+
+### "Into The Labyrinth" 1993, Gothic
+
+1. Yulunga Spirit Dance 
+2. The Ubiquitous Mr. Lovegrove 
+3. The Wind That Shakes The Barley 
+4. The Carnival Is Over 
+5. Ariadne 
+6. Saldek 
+7. Towards The Within 
+8. Tell Me About The Forest You Once Called Home 
+9. The Spider's Stratagem 
+10.Emmeleia 
+11.How Fortunate The Man With None
+
+Performed by Lisa Gerrard & Brendan Perry
+Engineered and Produced by Brendan Perry at Quivvy Church
+Front cover image: "Hands of the World"
+A Photograph by Touhami Ennadre, Copyright by Touhami Ennadre
+Inside images by Ken Kavanagh
+Design by Chris Bigg & Brendan Perry
+"The Wind that Shakes the Barley" is dedicated to the memory of Maureen Copper
+
+(P)(C) 1993 4AD Records CAD 3013 CD
+
+### "Toward The Within" 1994, Gothic
+
+1. Rakim 
+2. Persian Love Song 
+3. Desert Song 
+4. Yulunga Spirit Dance 
+5. Piece For Solo Flute 
+6. The Wind That Shakes The Barley 
+7. I Am Stretched On Your Grave 
+8. I Can See Now 
+9. American Dreaming 
+10.Cantara 
+11.Oman 
+12.Song Of The Sibyl 
+13.Tristan 
+14.Sanvean 
+15.Don't Fade Away
+
+Lisa Gerrard: voice, yang ch'in, percussion
+Brendan Perry: voice, 12 string guitar, percussion, Irish bouzouki, d whistle
+Robert Perry: uillean pipes, Irish bouzouki, low d whistle, percussion
+John Bonnar: keyboards, voice, percussion
+Ronan O'Snodaigh: percussion, voice
+Andrew Claxton: keyboards
+Lance Hogan: bass guitar, 6 string guitar, percussion, voice
+
+Recorded and mixed by Guy Charbonneau (Le Mobile Remote Recording)
+Assistant audio engineer: Charlie Bouis
+
+Recorded live at The Mayfair Theatre, Santa Monica, California
+Front cover photography: Linda Connor courtesy of Paul Kopeikin Gallery, Los Angeles
+Art direction: Chris Bigg
+Design and other photography: Darren Woolford & Tim Vary @ VWX
+
+This is the soundtrack from the film Toward the Within - Dead Can Dance, available on 4AD/Warners Home Video
+
+(P)(C) 1994 4AD Records CAD 4015 CD
+
+### "Spiritchaser" 1996, Gothic
+
+1.Nierika 
+2.Song of the Stars 
+3.Indus 
+4.Song Of The Dispossessed 
+5.Dedicacй Outт 
+6.The Snake And The Moon 
+7.Song Of The Nile 
+8.Devorzhum
+
+All instruments performed by Brendan Perry & Lisa Gerrard
+
+except:
+
+Renaud Pion (Turkish clarinet on Indus)
+Peter Ulrich (Percussion on Nierika & Dedicacй Outт)
+Lance Hogan (Percussion on Nierika & Dedicacй Outт)
+Ronan O'Snodaigh (Percussion on Nierika & Dedicacй Outт)
+Robert Perry (Percussion on Nierika & Dedicacй Outт)
+Klaus Vormehr (Percussion on Nierika & Dedicacй Outт)
+
+in memory of Mark Gerrard and Eleanor Vormehr
+
+Written, Recorded and Produced by Brendan Perry and Lisa Gerrard at Quivvy Church.
+Published by Momentum Music Ltd./Beggars Banquet Music Ltd. adm. by EMI Virgin Music, Inc. ASCAP. "Indus" contains a reference to "Within You Without You" (Maclen Music BMI). Used by kind permission of George Harrison. Lyrics Reprinted by Permission. All Rights Reserved.
+Design and Art Direction by Chris Bigg at v23. Photography by Kevin Westenberg.
+Thanks to Geoffrey Perrin, Fred Mьller, Noel Long, Klaus Vormehr, Peader Gaffney and Andrew Hutton without whom...
+harmonies of heaven and earth
+Joscelyn Godwin (c1987 Thames & Hudson)
+In most musical instruments the resonator is made of wood while the actual sound generator is of animal origin. In cultures where music is still used as a magical force, the making of an instrument always involves the sacrifice of a living being. That being's soul then becomes part of the instrument and in the tones that come forth, the 'singing dead,' who are ever present with us, make themselves heard.
+
+(P)(C) 1996 4AD Records CAD 6008 CD
+
 
 ## Отношения с другими группами
 

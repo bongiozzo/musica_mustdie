@@ -1,7 +1,13 @@
 # Resurrected
 
-Дискография
-"Blood Spilled" 2003, Death Metal
+Death-grind from Germany
+
+## Дискография
+
+### "Blood Spilled" 2003, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

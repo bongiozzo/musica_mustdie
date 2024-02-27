@@ -1,7 +1,30 @@
 # Charger
 
-Дискография
-"Confessions Of A Man (Mad Enough To Live Amongst Beasts)" 2003, Metal
+
+
+## Дискография
+
+### "Confessions Of A Man (Mad Enough To Live Amongst Beasts)" 2003, Metal
+
+1. Ultra Violet Flyer 
+2. God Made Us In The Image Of His Ass 
+3. Pennies For Soil 
+4. Chide And Harmonize 
+5. Carbon Wings 
+6. Airtank Face Pincers 
+7. - 
+8. A Ventilation System For Cooling Poultry
+
+
+Recorded and produced by Billy Anderson and Charger, Mighty Atom Studios, 
+Swansea, Wales, October 2002. 
+
+Tim (vocals),
+Jim (guitar), 
+Jay (guitar), 
+Tom (bass), 
+Paul (drums)
+
 
 ## Отношения с другими группами
 

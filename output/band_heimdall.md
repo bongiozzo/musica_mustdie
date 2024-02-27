@@ -1,7 +1,22 @@
 # Heimdall
 
-Дискография
-"Hard As Iron" 2004, Power Metal
+
+
+## Дискография
+
+### "Hard As Iron" 2004, Power Metal
+
+Hard As Iron 
+Midnight 
+Moon-Red Light 
+Black Tower 
+Cold 
+The Emperor 
+Dark Home 
+Black Heaven 
+Holy Night 
+Hollow Planet
+
 
 ## Отношения с другими группами
 

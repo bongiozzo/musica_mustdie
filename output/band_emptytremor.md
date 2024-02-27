@@ -1,9 +1,55 @@
 # Empty Tremor
 
-Дискография
-"APOCOLOKYNTOSYS" 1997, Progressive
-"Eros & Thanatos" 2000, Progressive
-"The Alien Inside" 2004, Progressive
+Prog-metal
+
+## Дискография
+
+### "APOCOLOKYNTOSYS" 1997, Progressive
+
+The Eyes Of Universe (7:36) 
+Rules Of Time (6:36) 
+The Message Keeper (7:32) 
+Running Rusty Rails (5:10) 
+Apocolokyntosys (9:16) 
+Middleman (4:42) 
+Slice Of Life (2:58) 
+Screaming Loud The Sins Of The World (8:27) 
+
+Japan only bonus track : 
+ To Loose You Forever
+
+### "Eros & Thanatos" 2000, Progressive
+
+The Future Needs Your Name (7:52) 
+Always There (5:14) 
+Lost In The Past (4:25) 
+Outside (7:11) 
+Chinese Box (6:08) 
+Star (7:04) 
+Y2K (8:53) 
+Just For Today (6:07) 
+The Timeless Night (10:45)
+
+### "The Alien Inside" 2004, Progressive
+
+1. THE ALIEN INSIDE (9.39) 
+
+2. I FOUND YOU (7.12)
+
+3. A NEW WORLD (5.35)
+
+4. WHO YOU REALLY ARE (8.24)   
+
+5. DON'T STOP ME (9.37)   
+
+6. STAY (4:20)  
+
+7. THE LOVE I'VE NEVER HAD (8.46)
+
+8. THE ALIEN OUTSIDE (6.29)
+
+9. *WAITING FOR YOU  (6:12) *(Bonus track only on Japanese release)
+
 
 ## Отношения с другими группами
 

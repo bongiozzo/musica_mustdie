@@ -1,7 +1,23 @@
 # Panzer
 
-Дискография
-"Send Them All To Hell" 2014, Metal
+
+
+## Дискография
+
+### "Send Them All To Hell" 2014, Metal
+
+01. Death Knell (04:57)
+02. Hail And Kill (03:55)
+03. Temple Of Doom (04:00)
+04. Panzer (05:06)
+05. Freakshow (04:50)
+06. Mr. Nobrain (04:45)
+07. Why? (06:09)
+08. Virtual Collision (04:43)
+09. Roll The Dice (05:47)
+10. Bleed For Your Sins (05:20)
+11. Murder In The Skies (Gary Moore Cover) (04:33)
+
 
 ## Отношения с другими группами
 

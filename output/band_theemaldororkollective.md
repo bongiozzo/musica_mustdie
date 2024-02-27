@@ -1,7 +1,30 @@
 # Thee Maldoror Kollective
 
-Дискография
-"New Era Viral Order (Dogma Slaughterhouse and The Children Of Anaemia)" 2002, Black Metal
+
+
+## Дискография
+
+### "New Era Viral Order (Dogma Slaughterhouse and The Children Of Anaemia)" 2002, Black Metal
+
+1. Xaos DNA Released
+2. Haemorrhage Transmission
+3. Drain-Wound-Cosmosis (Iera Porneusis)
+4. Rythmagick Disturbance (Embodiment Cell)
+5. La Flamme Vivant
+6. Rigid Pulse Starfire (93)
+7. The Toxium Discipline (Null Industries)
+8. Slaughter Mass 2002
+9. Epidemic Noise Age (remix by MZ412)
+
+Kundahli   
+L.V.X.ifer 
+Sein   
+Drakon N.o.x.   
+E.V.A.nghelya 
+
+
+
+
 
 ## Отношения с другими группами
 

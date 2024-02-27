@@ -1,7 +1,22 @@
 # Conniption
 
-Дискография
-"A Method to Madness" 2008, Techno Death
+
+
+## Дискография
+
+### "A Method to Madness" 2008, Techno Death
+
+1. Light the Stage
+2. Workhorse
+3. The Witches Hammer
+4. Return to Terror
+5. Selective Amnesia
+6. Eye for an Eye
+7. Quietus
+8. The Illusion
+9. Metal Mayhem
+10. Successor to the Throne
+
 
 ## Отношения с другими группами
 

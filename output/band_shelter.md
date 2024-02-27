@@ -1,7 +1,15 @@
 # Shelter
 
-Дискография
-"Mantra" 1995, Rap Metal
+RAP Style
+
+## Дискография
+
+### "Mantra" 1995, Rap Metal
+
+No Titles On This Album
+
+(P)&(C) 1995 ROADRUNNER Records
+
 
 ## Отношения с другими группами
 

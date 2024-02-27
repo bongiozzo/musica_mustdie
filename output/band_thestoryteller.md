@@ -1,8 +1,53 @@
 # The Storyteller
 
-Дискография
-"Tales Of A Holy Quest" 2003, Power Metal
-"Underworld" 2006, Power Metal
+
+
+## Дискография
+
+### "Tales Of A Holy Quest" 2003, Power Metal
+
+01. Voices from the past
+02. Seed of lies
+03. Conviction
+04. A holy quest
+05. Words out of greed
+06. Chamber of torture
+07. The mass
+08. Blinded eyes
+09. When all hope has faded
+10. Trails of blood
+11. ...and still they speak
+
+L-G Persson - Lead vocals & bass
+Fredrik Groth - Guitars & keyboards
+Martin Hjerpe - Drums & percussion
+Jacob Wennerqvist - Guitar
+
+Guest musicians: Ronny Hemlin, Magnus Arnarr,
+Johan Sohlberg, Per Holmgren, Anna-Lena Persson,
+Helena Lattman, Jessica Wahlberg, Johanna
+Bergel/Jansson - Backing vocals. Per Nilsson -
+Guitar solos, on tracks 2 and 8
+
+Recording details: Drums, bass & rhythm guitars
+recorded at Studio Fredman in April 2003,
+engineered by Fredrik Nordstrom., Patrik J. Steen,
+Henrik Udd and The Storyteller. Vocals Recorded at
+Studio Slowbeat in April and May 2003, engineered
+by Jonas Stromberg. Lead guitars and
+orchestrations recorded at Studio Flaklypa in May
+to July 2003, engineered by Fredrik Groth, Mixed
+at Studio Fredman in June 2003 by Fredrik
+Nordstrom, Patrik J. Steen and The Storyteller.
+Mastered at Polarstudio in July 2003 by Henke.
+Executive producers: Carl Von Schewen & Johan
+Hargeby
+Illustration & design: www.charliegranberg.com
+
+### "Underworld" 2006, Power Metal
+
+
+
 
 ## Отношения с другими группами
 

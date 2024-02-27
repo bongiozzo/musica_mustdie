@@ -1,7 +1,19 @@
 # Cabal
 
-Дискография
-"Midian" 1990, Thrash
+Killjoy
+
+## Дискография
+
+### "Midian" 1990, Thrash
+
+1. Images in Blood	 
+2. Midian	 
+3. Dark Desires 
+4. God Complex	 
+5. Past Sins	 
+6. Khaos Theory	 
+7. Nocturnal Reign
+
 
 ## Отношения с другими группами
 

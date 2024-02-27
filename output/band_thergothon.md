@@ -1,7 +1,26 @@
 # Thergothon
 
-Дискография
-"Stream From The Heavens" 1994, Death Doom
+
+
+## Дискография
+
+### "Stream From The Heavens" 1994, Death Doom
+
+1. Everlasting
+2. Yet The Watchers Guard
+3. The Unknown Kadalth.In.The.Cold.Waste
+4. Elemental
+5. Who Rides The Astral Winds
+6. Crying Blood+Crimson Snow
+
+Music & lurics by THERGOTHON
+Recorded & mixed by Markus
+Patrikainen October+November 1993
+
+(p)(c) 1994 AVANTGARDE MUSIC
+
+
+
 
 ## Отношения с другими группами
 

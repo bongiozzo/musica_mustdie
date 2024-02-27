@@ -1,10 +1,71 @@
 # Avalon
 
-Дискография
-"Why Now" 1995, Power Metal
-"Mystic Places" 1997, Power Metal
-"Vision Eden" 1998, Progressive
-"Eurasia" 2000, Progressive
+Power metal
+
+## Дискография
+
+### "Why Now" 1995, Power Metal
+
+1. Why Now  [5:06]  
+2. Rhythm Of My Heart  [4:53]  
+3. Never  [4:48]  
+4. True Mental  [5:54]  
+5. Follow Me  [6:05]  
+6. Foreplay  [1:35]  
+7. Just Try  [6:03]  
+8. More Than Words Can Say  [5:45]  
+9. Ever And Ever  [5:21]  
+10. One Night  [6:07] 
+
+
+### "Mystic Places" 1997, Power Metal
+
+1. Mystic Places  [1:12]  
+2. I'm Falling  [4:44]  
+3. Passion For Glory  [5:42]  
+4. Crystal Ball  [1:38]  
+5. Through The Eye Of The End  [5:02]  
+6. Prisoner Of My Mind  [4:38]  
+7. Two Mental  [6:31]  
+8. Time Of The Universe  [6:16]  
+9. Wasted Time  [5:04]  
+10. Burning Down The House  [4:38]  
+11. Isolation  [1:57]  
+12. Blind Dance  [6:21]  
+
+
+
+### "Vision Eden" 1998, Progressive
+
+1. They Are In Between Us  [4:22]  
+2. Children Of War  [6:25]  
+3. Lord Of Dignity  [4:44]  
+4. Fate Of Centuries  [4:39]  
+5. Age Of Salvation  [5:32]  
+6. Dancing With The Devil  [5:33]  
+7. The Road To Eden  [2:25]  
+8. Far Away  [5:02]  
+9. Gene Genius  [5:13]  
+10. Solitune  [2:15]  
+
+
+
+### "Eurasia" 2000, Progressive
+
+1. Aurora  [2:11]  
+2. Burning Souls  [4:31]  
+3. Temujin  [4:52]  
+4. Black Hole Wisdom  [4:27]  
+5. Eternal Flame  [7:23]  
+6. Save The Holy Land  [4:29]  
+7. The Last Call  [5:19]  
+8. Eurasia  [3:07]  
+9. The Stranger  [4:59]  
+10. The Painting  [4:09]  
+11. Kyrie  [3:29]  
+12. Semaruma  [2:47] 
+
+
 
 ## Отношения с другими группами
 

@@ -1,9 +1,38 @@
 # Perished
 
-Дискография
-"Kark" 1998, Black Metal
-"Grim (EP)" 2001, Black Metal
-"Seid" 2003, Black Metal
+
+
+## Дискография
+
+### "Kark" 1998, Black Metal
+
+
+
+### "Grim (EP)" 2001, Black Metal
+
+
+
+### "Seid" 2003, Black Metal
+
+1.
+2.
+3.
+4.
+5.
+6.
+7.
+8.
+
+
+
+Bathyr - Vocals
+Ymon - Guitars
+Ihizahg - Guitars
+Bruthor - Bass
+Kunt Pelthor
+Jehmod - Drums
+
+
 
 ## Отношения с другими группами
 

@@ -1,9 +1,80 @@
 # John Zorn
 
-Дискография
-"The Big Gundown" 1986, Alternative
-"Elegy" 1992, Alternative
-"More News For Lulu" 1992, Alternative
+ex-Brutal Truth, Naked City
+
+## Дискография
+
+### "The Big Gundown" 1986, Alternative
+
+1. The Big Gundown
+2. Peur Sur La Ville
+3. Poverty (Once Upon A Time In America)
+4. Milano Odea
+5. Erotico (Burglars)
+6. Battle Of Algiers
+7. Giu La Testa (Duck,You Sucker)
+8. Metamorfosi (La Classe Operaia Va In Paradiso)
+9. Tre Nel 5000
+10.Once Upon A Time In West
+
+All Compostions By Ennio Morricone,
+Except 9 By John Zorn.
+
+(p)&(c) 1986 ICON Records
+
+### "Elegy" 1992, Alternative
+
+1. Blue
+2. Yellow
+3. Pink
+4. Black
+
+ Mike Patton - Voice
+ Barbara Chaffe - Alto & Bass Flute
+ David Abel - Viola
+ Scummy - Guitar
+ David Shea - Turntables
+ David Slusser - Sound Effects
+ William Winant - Percussion
+
+Recorded At Different Fur Studios,
+San Francisco,Nov.1991 By Howard Johnston.
+Mixed At Eastside Sound,NYC,Jan.1992 By 
+Joe Ferla.
+Produced By John Zorn.
+
+(p)&(c) 1992 EVA Records
+
+### "More News For Lulu" 1992, Alternative
+
+1. Blue Minor I
+2. Hank's Other Tune
+3. News For Lulu
+4. Gare Guillemins
+5. Minor Swing
+6. KD's Motion/Windmill
+7. Funk In Deep Space
+8. Eastern Incident
+9. Lotus Blossom
+10.Melanie
+11.Ole
+12.Blue Minor II
+13.Peckin' Time
+14.Blues,Blues,Blues
+15.Melody For C
+
+ John Zorn - Alto Saxophone
+ George Lewis - Trombone
+ Bill Frisell - Guitar
+
+Produced By Pia & Werner X.Uehlinger.
+Tracks 1-7 Recorded Live By RADIO FRANCE
+At The Maison De La Radio,Paris On Jan.19,'89.
+Tracks 8-15 Recorded Live By Peter Pfister In
+Basel,January 18,1989.
+
+(p)&(c) 1992 HAT ART Records
+
 
 ## Отношения с другими группами
 

@@ -1,27 +1,405 @@
 # Katatonia
 
-Дискография
-"Jhva Elohim Meth...The Revival" 1992, Death Doom
-"Dance Of December Souls" 1994, Death Doom
-"For Funeral To Come..." 1995, Death Doom
-"Brave Murder Day" 1996, Death Doom
-"Sounds of Decay (EP)" 1997, Gothic
-"Discouraged Ones" 1998, Gothic
-"Saw you Drown (EP)" 1998, Gothic
-"Tonight's Decision" 1999, Gothic
-"Last Fair Deal Gone Down" 2001, Gothic
-"Tonight's Music" 2001, Gothic
-"Teargas (EP)" 2001, Gothic
-"Viva Emptiness" 2003, Gothic
-"The Black Sessions (2CD+DVD compilation)" 2005, Gothic
-"The Great Cold Distance" 2006, Gothic
-"July" 2007, Gothic
-"Live Consternation [CD/DVD]" 2007, Gothic
-"Forsaker (single)" 2009, Gothic
-"Night Is the New Day" 2009, Gothic
-"Dead End Kings" 2012, Gothic
-"Dethroned and Uncrowned" 2013, Psychedelic
-"The Fall of Hearts" 2016, Psychedelic
+Very Melodic Band. Later, Doom-Death.
+Nowdays, Emotional Metal
+
+## Дискография
+
+### "Jhva Elohim Meth...The Revival" 1992, Death Doom
+
+1. Midwinter Gates (Prologue)
+2. Without God
+3. Palace Of Frost
+4. The Northern Silence
+5. Crimson Tears (Epilogue)
+
+ Blackheim - Electric & Acoustic Guitars, Bass
+ Lord Seth - Drums & Vocals
+
+All Acoustic Vocals & Keyboards By Day DiSyhrah
+All Music Composed By Blackheim
+All Lyrics Written By Lord Seth
+Recorded At Studio Gorysound During Three Days (3/7-5/7) In The Summer Of 1992
+Produced By KATATONIA & Dan Swano
+
+(p)&(c) 1992 VIC Records
+
+### "Dance Of December Souls" 1994, Death Doom
+
+1. Seven Dreaming Souls
+2. Gateways Of Bereavement
+3. In Silence Enshrined
+4. Without God
+5. Elohim Meth
+6. Velvet Thorns (Of Drynwhyl)
+7. Tomb Of Isomnia
+8. Dancing December
+
+ Blackheim - Electric & Acoustic String Of Sorrow
+ Lord J.Renske - Drums,Percussion & Voice
+ Israphel Wing - Bass guitar
+
+All music by Blackhiem
+All lyric by Lord J.Renske
+Produced by Dan Swano & KATATONIA.
+Engineered & mixed by Dan Swano & Day DiSyraah
+Recorded in UNISOUND Studios 4-9 April 1993
+
+(p)(c) 1994 NO FASHION Records
+
+### "For Funeral To Come..." 1995, Death Doom
+
+1. Funeral Wedding
+2. Shades Of Emerald Fields
+3. For Funerals To Come...
+4. Epistel
+
+ Blackheim - Guitars, Vocals
+ Le Huche - Bass
+ Renske - Drums
+
+All Songs Written By KATATONIA
+Produced By KATATONIA
+Engineered By Dan Swano
+Recorded & Mixed At Unisound Recording
+
+(p)&(c) 1995 AVANTGARDE Music
+
+### "Brave Murder Day" 1996, Death Doom
+
+1.  Brave
+2.  Murder
+3.  Day
+4.  Rainroom
+5.  12
+6.  Endtime
+
+Recorded and Mixed at Unisound Studios
+Produced by KATATONIA
+Engineered by Dan Swano
+All music by KATATONIA
+All lyrics by J. Renske
+
+Blackheim - Guitars, Bass
+Fredrik Norrroan - Guitars
+Jonas Renske - Drums, Vocals
+Distorted Vocals By Mike Akerfeldt (OPETH)
+
+(P)c 1996 AVANTGARDE MUSIC // AV 022
+
+### "Sounds of Decay (EP)" 1997, Gothic
+
+01. Nowhere 
+02. At last 
+03. Inside the fall
+
+### "Discouraged Ones" 1998, Gothic
+
+1. I Break.
+2. Stalemate.
+3. Deadhouse.
+4. Relention.
+5. Cold Ways.
+6. Gone.
+7. Last Resort.
+8. Nerve.
+9. Saw You Drown.
+10. Instrumental.
+11.Distrust.
+
+(c)&(p) 1998 AVANTGARDE MUSIC
+
+JONAS RENKSE - drums, guitars, lead vocals
+ANDERS NYSTROM - guitars, keyboards, backing vocals
+FRED NORRMAN - guitars 
+MICKE ORETOFT - bass
+
+Recorded and mixed at Sunlight Studios, July-August '97. Engineered by Fred Estby & Tomas Skogsberg. Produced by 
+KATATONIA. Vocals co-produced by Micke Akerfeldt.
+All music & lyrics by Nystrom & Renkse.
+
+### "Saw you Drown (EP)" 1998, Gothic
+
+01. Saw you drown 
+02. Nerve 
+03. Quiet world 
+04. Scarlet heavens 
+
+(p) 1998 Avantgarde Music
+
+### "Tonight's Decision" 1999, Gothic
+
+01. For my demons
+02. I am nothing
+03. In death, a song
+04. Had to (leave)
+05. This punishment
+06. Right into the bliss
+07. No good can come of this
+08. Strained
+09. A darkness coming
+10. Nightmares by the sea
+11. Black session
+
+### "Last Fair Deal Gone Down" 2001, Gothic
+
+Dispossession
+Chrome
+We Must Bury You
+Teargas
+I Transpire
+Tonight's Music
+Clean Today
+The Future Of Speech
+Passing Bird
+Sweet Nurse
+Don't Tell A Soul
+
+Jonas Renkse - Lead and Backing Vocals
+Anders Nystrom - Rhythm/Lead Guitar, Mellotrone
+Fred Norrman - Rhythm/Lead Guitar
+Daniel Liljekvist - Drums
+Mattias Norrman - Bass
+
+### "Tonight's Music" 2001, Gothic
+
+1. Tonight's music
+2. Help me disappear
+3. O how I enjoy the light
+
+
+Track 1 Recorded and Mixed at Sunlight Studio
+Produced by Katatonia
+Engineered by Tomas Skogsberg & Jocke Petterson
+Track 2 & 3 Recorded and Mixed at Black Lounge Studio
+Produced by Katatonia
+Engineered by Jonas Kjellgren
+Photography & Design by Travis Smith @ Seempieces 
+Track 1 & 2 Music by Nystrцm, Lyrics by Renkse
+Published by Vile Music
+(a Division of Zomba Music Publishing)
+Track 3 Music by Will Oldham
+Published by Royal Stable Music (ASCAP)
+
+
+Jonas Renkse - Lead & Backing Vocals
+Anders Nystrцm - Rhythm/Lead Guitars, Keyboards
+Fred Norrman - Rhythm/Lead Guitars
+Daniel Liljekvist - Drums
+Mattias Norrman - Bass
+
+
+### "Teargas (EP)" 2001, Gothic
+
+01. Teargas
+02. Sulfur
+03. March 4
+
+### "Viva Emptiness" 2003, Gothic
+
+01. Ghost Of The Sun 
+02. Sleeper 
+03. Criminals 
+04. A Premonition
+05. Will I Arrive 
+06. Burn The Remembrance 
+07. Wealth 
+08. One Year From Now 
+09. Walking By A Wire
+10. Complicity 
+11. Evidence 
+12. Omerta 
+13. Inside The City Of Glass
+
+### "The Black Sessions (2CD+DVD compilation)" 2005, Gothic
+
+CD #1:
+
+1. Teargas [3:32]
+2. Right Into The Bliss [5:05] 
+3. Criminals [3:47]
+4. Help Me Disappear [5:14]
+5. Nerve [4:30]
+6. The Future Of Speech [5:39]
+7. Ghost Of The Sun [4:07]
+8. I Am Nothing [4:37]
+9. Deadhouse [4:35]
+10. Passing Bird [3:38]
+11. Sleeper [4:08]
+12. Sulfur [6:23]
+13. No Devotion [4:49]
+14. Chrome [5:14]
+15. A Premonition [3:34] 
+
+CD #2 
+
+1, Dispossession [5:37]
+2. Cold Ways [5:23]
+3. Nightmares By The Sea [4:16]
+4. O How I Enjoy The Light [2:44]
+5. Evidence [4:36]
+6. March 4 [3:53]
+7. I Break [4:22]
+8. For My Demons [5:43]
+9. Omerta [2:58]
+10. Tonight's Music [4:20]
+11. Stalemate [4:19]
+12. Wait Outside [3:38]
+13. Fractured [5:52]
+14. Sweet Nurse [3:56]
+15. Black Session [7:02] 
+
+DVD: LIVE AT KRAKOW, POLAND, APRIL 2003 
+
+1. Ghost Of The Sun
+2. Criminals
+3. Teargas
+4. I Break
+5. I Am Nothing
+6. Sweet Nurse
+7. Sleeper
+8. Tonight's Music
+9. For My Demons
+10. Chrome
+11. Future Of Speech
+12. Complicity
+13. Burn The Remembrance
+14. Evidence
+15. Deadhouse
+16. Murder
+
+### "The Great Cold Distance" 2006, Gothic
+
+1. Leaders 04:21  
+2. Deliberation 04:00  
+3. Soil's Song 04:12  
+4. My Twin 03:41  
+5. Consternation 03:51  
+6. Follower 04:46  
+7. Rusted 04:21  
+8. Increase 04:20  
+9. July 04:45  
+10. In The White 04:54  
+11. The Itch 04:20  
+12. Journey Through Pressure 04:21
+
+### "July" 2007, Gothic
+
+1. July 04:46 
+2. Soil's Song (Krister Linder 2012 Remix) 04:40  
+3. Unfurl 04:52
+
+
+Jonas Renkse (Lord Seth) - vocals, programming  
+Anders Nystrom (Blackheim) - guitars, programming, backing vocals 
+Fredrik Norrman - guitars 
+Mattias Norrman - bass 
+Daniel Liljekvist - drums, backing vocals
+
+### "Live Consternation [CD/DVD]" 2007, Gothic
+
+1. Leaders 05:11
+2. Wealth 04:48 
+3. Soil's Song 04:15
+4. Had To (Leave) 04:53
+5. Cold Ways 05:23
+6. Right into the Bliss 05:20
+7. Ghost of the Sun 04:07 
+8. Criminals 04:02
+9. Deliberation 04:05
+10. July 04:42 
+11. Evidence 05:01 
+
+### "Forsaker (single)" 2009, Gothic
+
+1. Forsaker 04:05 
+
+### "Night Is the New Day" 2009, Gothic
+
+1. Forsaker 04:05
+2. The Longest Year 04:39  
+3. Idle Blood 04:23 
+4. Onward Into Battle 03:52
+5. Liberation 04:18
+6. The Promise of Deceit 04:18
+7. Nephilim 04:27 
+8. New Night 04:28
+9. Inheritance 04:30  
+10. Day & Then the Shade 04:27
+11. Departer 05:27 
+
+### "Dead End Kings" 2012, Gothic
+
+1. The Parting
+2. Hyphone
+3. Undo You
+4. The Racing Heart
+5. Buildings
+6. Leech
+7. The One You Are Looking For Is Not Here (feat. Silje Wergeland)
+8. First Prayer
+9. Ambitions
+10. Lethean
+11. Dead Letters
+
+### "Dethroned and Uncrowned" 2013, Psychedelic
+
+1. The Parting 
+2. The One You Are Looking For Is Not Here
+3. Hypnone 
+4. The Racing Heart 
+5. Buildings 
+6. Leech 
+7. Ambitions 
+8. Undo You 
+9. Lethean 
+10. First Prayer 
+11. Dead Letters
+
+
+Acoustic version of the "Dead End Kings" album.
+Also released as a 2 disc set with 5.1 mixes of the album. 
+As well as linking it to "...Kings", the title also refers to the stripped-down instrumentation: "the drums will be dethroned and the distorted rhythm guitars will be uncrowned". 
+
+### "The Fall of Hearts" 2016, Psychedelic
+
+Disc 1 (CD)  
+1. Takeover  07:09    
+2. Serein  04:46    
+3. Old Heart Falls  04:22  
+4. Decima  04:46    
+5. Sanction  05:07    
+6. Residual  06:54    
+7. Serac  07:25    
+8. Last Song Before the Fade  05:01  
+9. Shifts  04:54    
+10. The Night Subscriber  06:10   
+11. Pale Flag  04:23    
+12. Passer  06:25   
+13. Vakaren  (bonus) 04:54    
+14. Sistere (bonus) 04:11    
+   
+Disc 2 (DVD) - bonus 
+1. Takeover  
+2. Serein  
+3. Old Heart Falls 
+4. Decima  
+5. Sanction 
+6. Residual  
+7. Serac 
+8. Last Song Before the Fade 
+9. Shifts  
+10. The Night Subscriber 
+11. Pale Flag 
+12. Passer  
+
+
+Deluxe 12” Hardbook featuring:
+- 30+ page artwork book, with alternative album artwork from Travis Smith.
+- CD The Fall Of Hearts 12 original album tracks plus 2 bonus tracks ‘Sistere’ & ‘Vakaren’.
+- DVD-V The Fall Of Hearts 12 original tracks hi resolution stereo & 5.1 audio (DTS 96/24 5.1 & 96/24 Stereo LPCM) mixed by Bruce Soord.
+- Special Double 10" vinyl edition of The Fall Of Hearts 12 original tracks plus bonus track ‘Wide Awake In Quietus’ (with MP3 download code) featuring guest guitarist Paradise Lost’s Gregor Mackintosh.
+
 
 ## Отношения с другими группами
 

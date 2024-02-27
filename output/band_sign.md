@@ -1,7 +1,27 @@
 # Sign
 
-Дискография
-"The Second Coming" 2004, Instrumental
+
+
+## Дискография
+
+### "The Second Coming" 2004, Instrumental
+
+01. Aryon Overture
+02. Stained (Gone)
+03. The Morning After (Time To Run)
+04. Motorcycle Messiah
+05. Shine
+06. Bliss
+07. If For One Moment
+08. Flame Of The Oracle
+09. The Ooze
+10. Inner Child (Exorcise)
+11. Black Mountain
+12. Keep On Breathin'
+13. Shine (Finale)
+14. Rapture (Ode To Aryon)
+15. Maniac
+
 
 ## Отношения с другими группами
 

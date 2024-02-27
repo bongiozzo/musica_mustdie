@@ -1,7 +1,45 @@
 # Lucyfire
 
-Дискография
-"This Dollar Saved My Life At Whitehorse" 2001, Gothic
+gothic-rock project of Johan Edlund (Tiamat)
+
+## Дискография
+
+### "This Dollar Saved My Life At Whitehorse" 2001, Gothic
+
+1. Baby Come On (Sheґs A Devil Of A Woman)
+2. Thousand Million Dollars In The Fire
+3. Mistress Of The Night
+4. Over & Out
+5. As Pure As S.I.N. (Zi Nanna)
+6. Automatic
+7. Perfect Crime
+8. You Can Have All My Love Tonite
+9. Sharp Dressed Man
+10. Annabel Lee
+11. The Pain Song
+
+
+All songs written by Johan Edlund, published by copyright control
+Except "Sharp Dressed Man", written by Gibbons, Hill, Beard. Published by Hamstein Music Company/ASCAP
+
+Produced by Dirk Draeger
+Mixed by Lars Nissen
+
+Johan Edlund - Lead Vocals
+Sille Lemke - Backing Vocals
+Dirk Draeger - Guitars & Keys
+Jan Kazda - Bass
+Bertram Engel - Drums
+Marc Engemann - Keys
+
+Recorded at Woodhouse, Hafenklang, PUK & Element
+Mixed at PUK
+
+Mastered at SDC, supervised by Lars Nissen
+
+
+
+
 
 ## Отношения с другими группами
 

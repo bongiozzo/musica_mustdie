@@ -1,10 +1,36 @@
 # De Profundis
 
-Дискография
-"Beyond Redemption" 2007, Death Doom
-"A Bleak Reflection" 2010, Death Doom
-"The Emptiness Within" 2012, Death Doom
-"Kingdom of the Blind" 2015, Death Doom
+
+
+## Дискография
+
+### "Beyond Redemption" 2007, Death Doom
+
+1. In Contemplation of Existence	 
+2. Delusion of Life	 
+3. Nihilism Vortex	 
+4. A Caustic Vexation	 
+5. Into Eternity
+
+### "A Bleak Reflection" 2010, Death Doom
+
+1. The Ephemeral Burden	 
+2. Ablaze in Autumn's Fire	 
+3. Nocturnal Splendour	 
+4. Cease to Be	 
+5. Crimson Black Bleeding	 
+6. Cold is the Grave	 
+7. Longing
+8. The Mourner	
+
+### "The Emptiness Within" 2012, Death Doom
+
+
+
+### "Kingdom of the Blind" 2015, Death Doom
+
+
+
 
 ## Отношения с другими группами
 

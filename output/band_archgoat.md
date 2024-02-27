@@ -1,12 +1,38 @@
 # Archgoat
 
-Дискография
-"Angelcunt - Tales of Desecration (EP)" 1992, Black Metal
-"Angelslaying Black Fucking Metal (EP)" 2005, Black Metal
-"Whore Of Bethlehem" 2006, Black Metal
-"The Light-Devouring Darkness" 2009, Black Metal
-"The Aeon Of Angelslaying Darkness (Compilation)" 2009, Black Metal
-"Heavenly Vulva (Christ's Last Rites)" 2011, Black Metal
+
+
+## Дискография
+
+### "Angelcunt - Tales of Desecration (EP)" 1992, Black Metal
+
+
+
+### "Angelslaying Black Fucking Metal (EP)" 2005, Black Metal
+
+
+
+### "Whore Of Bethlehem" 2006, Black Metal
+
+
+
+### "The Light-Devouring Darkness" 2009, Black Metal
+
+
+
+### "The Aeon Of Angelslaying Darkness (Compilation)" 2009, Black Metal
+
+
+
+### "Heavenly Vulva (Christ's Last Rites)" 2011, Black Metal
+
+1. Intro 1:07 
+2. Blessed Vulva 3:28 
+3. Penetrator of the Second Temple 3:10 
+4. Goddess of the Abyss of Graves 2:39 
+5. Day of Clouds 2:32 
+6. Passage to Millennial Darkness 3:08
+
 
 ## Отношения с другими группами
 

@@ -1,16 +1,170 @@
 # Bonfire
 
-Дискография
-"Fire Works" 1987, Hard Rock
-"" 1989, Hard Rock
-"Knock Out" 1991, Hard Rock
-"Feels Like Coming Home" 1996, Hard Rock
-"Rebel Soul" 1998, Hard Rock
-"Live Over Europe" 2002, Hard Rock
-"One Acoustic Night - Live At The Private Music Club (2 CD)" 2005, Hard Rock
-"Double X" 2006, Hard Rock
-"The Rauber" 2008, Hard Rock
-"Branded" 2011, Hard Rock
+
+
+## Дискография
+
+### "Fire Works" 1987, Hard Rock
+
+1.  Ready $ Reaction
+2.  Never Mind
+3.  Sleeping All Alone
+4.  Champion
+5.  Don't Get Me Wrong
+6.  Sweet Obsession
+7.  Rock Me Now
+8.  American Nights
+9.  Fantasy
+10.  Give It A Try
+11.  Gold Days
+
+Claus Lessmann - Vocals
+Claus Ziller - Guitar, Back Vocals
+Horst Maier-Thorn - Rhythm Guitar, Vocals
+Joerg Deisinger - Bass, Back Vocals
+Ken Mary - Drums
+
+(P)c 1987
+
+### "" 1989, Hard Rock
+
+
+
+### "Knock Out" 1991, Hard Rock
+
+1.  Streets Of Freedom
+2.  The Stroke
+3.  Dirty Love
+4.  Rivers Of Glory
+5.  Home Babe
+6.  Shake Down
+7.  Hold You
+8.  Down And Out
+9.  Take My Heart And Run
+10.  All We Got
+11.  Fight For Love
+12.  Tonmeister
+
+Claus Lessmann - Vocals
+Claus Ziller - Guitar, Back Vocals
+Horst Maier-Thorn - Rhythm Guitar, Vocals
+Joerg Deisinger - Bass, Back Vocals
+Ken Mary - Drums
+
+(P)c 1991
+
+### "Feels Like Coming Home" 1996, Hard Rock
+
+01. Easy Come Easy Go
+02. Back To You
+03. Feels Like Comin' Home
+04. Mama
+05. I'd Love You To Want Me
+06. Say
+07. Right Now
+08. Highway To Your Dreams
+09. You Are All
+10. Whenever You Cry
+11. Rock' N' Roll Cowboy
+12. I Don't Want You
+13. Can't Wait
+14. Feels Like Comin' Home (Piano Version)
+
+### "Rebel Soul" 1998, Hard Rock
+
+01. Wake Up 05:37
+02. Just to Say We Did 05:24
+03. Before We Say Goodbye 04:59
+04. Somebody's Waiting 05:15
+05. Lay Your Heart on the Line 04:12
+06. Hearts Bleed Their Own Blood 06:05
+07. Rock Me 'Til I Die 03:58
+08. Desire 05:32
+09. Good or Bad 04:01
+10. The First Cut Is the Deepest 03:58
+11. You'll Be Alright 05:44
+12. Dixie 03:28
+13. Wild Dixie 02:50
+
+### "Live Over Europe" 2002, Hard Rock
+
+01. Daytona Nights
+02. Don't Go Changin' me
+03. Bang Down The Door
+04. Hot To Rock
+05. Don't Touch The Light
+06. Sweet Obsession
+07. Down To Atlanta
+08. Proud Of My Country
+09. Heat In The Glow
+10. Who's Foolin' Who
+11. Goodnight Amanda
+12. Under Blue Skies
+13. American Nights
+14. Sweet Home Alabama
+15. Strike Back
+16. Good Time Rock 'N 'Roll
+17. Until The Last Goodbye
+
+### "One Acoustic Night - Live At The Private Music Club (2 CD)" 2005, Hard Rock
+
+
+
+### "Double X" 2006, Hard Rock
+
+1. Day 911 
+2. But We Still Rock 
+3. Cry For help 
+4. Bet Your Bottom Dollar 
+5. What?s On Your Mind? 
+6. Blink Of An Eye 
+7. Rap Is Crab! 
+8. Notion Of Love 
+9. Right Things Right 
+10. Hard To say 
+11. Wings To Fly 
+12. So What? 
+13. Blink Of An Eye (extended version) 
+
+Состав: 
+Chris Limburg - guitars 
+Uwe Kohler - bass 
+Claus Lessmann - lead vocals, rhythm guitar 
+Hans Ziller - lead, rhythm & acoustic guitars 
+Jurgen Wiehler - drums
+
+### "The Rauber" 2008, Hard Rock
+
+1. The Rauber
+2. Bells of Freedom
+3. Refugee of Fate
+4. The Oath
+5. Blut and Todt
+6. Love Don't Lie
+7. Black Night
+8. Hip Hip Hooray
+9. Do You Still Love Me
+10. Let Me Be Your Water
+11. Lass Die Toten Schlafen
+12. The Good Die Young
+13. Time
+14. Father's Return
+
+### "Branded" 2011, Hard Rock
+
+1. Deadly Contradiction
+2. Just Follow the Rainbow
+3. Save Me
+4. Let It Glow
+5. Better Days
+6. Do Or Die
+7. Close To The Edge
+8. Crazy
+9. Loser's Lane
+10. Hold Me Now
+11. I Need You
+12. Rivers of Glory
+
 
 ## Отношения с другими группами
 

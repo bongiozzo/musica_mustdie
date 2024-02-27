@@ -1,9 +1,47 @@
 # Nahemah
 
-Дискография
-"Chrysalis" 2001, Black Metal
-"The Second Philosophy" 2007, Progressive
-"A New Constellation" 2009, Death Doom
+
+
+## Дискография
+
+### "Chrysalis" 2001, Black Metal
+
+1. Ochre Mantle Stare 06:42 
+2. Sybilla 06:47 
+3. Autumn is my Sin 07:04 
+4. Bloodstained Carnival 07:10  
+5. Thy Quivering Wings 02:32  
+6. The Teardrop Fall 06:44 
+7. From the Temples High 03:45
+8. Ligeia (Immortality Through Crime) 09:07  
+9. A Crystal Delirium 07:04
+
+### "The Second Philosophy" 2007, Progressive
+
+1. Siamese 04:34  
+2. Killing My Architect 05:02  
+3. Nothing 06:30  
+4. Like A Butterfly In A Storm 06:40  
+5. Change 07:13  
+6. Labyrinthine Straight Ways 05:42  
+7. Subterranean Airports 08:30  
+8. Phoenix 05:18  
+9. Today Sunshine Ain't The Same 06:46  
+10. The Speech 04:34
+
+### "A New Constellation" 2009, Death Doom
+
+1. Much Us 05:49  
+2. Absynthe 04:38  
+3. Follow Me 04:46  
+4. Reaching The Stars 04:22  
+5. The Perfect Depth Of The Mermaids 05:49  
+6. Air 01:57  
+7. Under The Mourning Rays 07:12  
+8. The Trip 05:38  
+9. Smoke's Men 05:17  
+10. Outer 03:10 
+
 
 ## Отношения с другими группами
 

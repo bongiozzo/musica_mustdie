@@ -1,7 +1,22 @@
 # Izakaron
 
-Дискография
-"Chaoschrist" 2000, Black Metal
+russian sympho-black metal
+
+## Дискография
+
+### "Chaoschrist" 2000, Black Metal
+
+1. Hunting on Troyan Path 
+2. Aphrodite of Hatered 
+3. Woods of Thy Might 
+4. Thou art Incarnated Souls 
+5. The Origin 
+6. I am of the Serpent 
+7. The Profound 
+8. Cold Kingdom 
+9. Benighted/ At the 9th Gate 
+
+
 
 ## Отношения с другими группами
 

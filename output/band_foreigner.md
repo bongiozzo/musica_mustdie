@@ -1,15 +1,45 @@
 # Foreigner
 
-Дискография
-"Foreigner" 1977, Metal
-"Double Vision" 1978, Metal
-"Head Games" 1979, Metal
-"4" 1981, Metal
-"Agent Provocateur" 1984, Metal
-"Inside Information" 1987, Metal
-"Unusual Heat" 1991, Metal
-"The Very Best Of... And Beyond" 1992, Metal
-"Mr. Moonlight" 1994, Metal
+Hard Rock / AOR
+
+## Дискография
+
+### "Foreigner" 1977, Metal
+
+
+
+### "Double Vision" 1978, Metal
+
+
+
+### "Head Games" 1979, Metal
+
+
+
+### "4" 1981, Metal
+
+
+
+### "Agent Provocateur" 1984, Metal
+
+
+
+### "Inside Information" 1987, Metal
+
+
+
+### "Unusual Heat" 1991, Metal
+
+
+
+### "The Very Best Of... And Beyond" 1992, Metal
+
+
+
+### "Mr. Moonlight" 1994, Metal
+
+
+
 
 ## Отношения с другими группами
 

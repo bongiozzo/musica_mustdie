@@ -1,10 +1,46 @@
 # Sirius
 
-Дискография
-"The Eclipse: The Summons of the Warriors of Armageddon (demo)" 1998, Black Metal
-"Fiery Strife at the Cosmic Gates of Armageddon (promo track)" 1998, Black Metal
-"Aeons of Magick" 2000, Black Metal
-"Spectral Transition - Dimension SiriuS" 2001, Black Metal
+Sympho-Black Metal from Portugal
+
+## Дискография
+
+### "The Eclipse: The Summons of the Warriors of Armageddon (demo)" 1998, Black Metal
+
+1. Fiery Strife at the Cosmic Gates of Armageddon
+2. Out of the Serpent Line
+3. The Quest for Dreamlore Essence
+4. Unveiled the Path of Algol -The Riddles Beyond the Star
+
+
+### "Fiery Strife at the Cosmic Gates of Armageddon (promo track)" 1998, Black Metal
+
+
+
+### "Aeons of Magick" 2000, Black Metal
+
+1.Sidereal Mirror 
+2.The Collapsing Spheres Of Time 
+3.Ethereal Flames Of Chaos 
+4.The Stargate 
+5.Travellers Of The Stellar Ocean 
+6.Aeons Of Magick 
+7.Beyond The Scarlet Horizon
+
+### "Spectral Transition - Dimension SiriuS" 2001, Black Metal
+
+1; Spectral Transition
+2; Spiritual Metamorphosis - Destroy the Earthly
+3; In Astral Pains of Trance
+4; Abstract Eerie Corridors
+5; Desolate Magnetic Fields
+6; Into Forbidden Dimensions
+7; Axis
+8; Stellar Transcendence
+9; Paradox Timeline
+10; Dimensional Quantum
+11; The Majesty of the Nightsky * (EMPEROR Cover) 
+
+
 
 ## Отношения с другими группами
 

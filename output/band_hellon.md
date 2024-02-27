@@ -1,11 +1,41 @@
 # Hell:On
 
-Дискография
-"Strong Enough" 2006, Thrash
-"Re:Born" 2008, Thrash
-"Age of Oblivion" 2012, Thrash
-"Hunt" 2013, Thrash
-"Once upon a Chaos..." 2015, Thrash
+
+
+## Дискография
+
+### "Strong Enough" 2006, Thrash
+
+1. Endless shape 05:19  
+2. Creatures of my mind 06:07  
+3. The flame that dwells inside 05:11  
+4. Hear the voice 04:25  
+5. New gods 04:43  
+6. Purification by pain 04:34 
+
+### "Re:Born" 2008, Thrash
+
+1. Fake 04:01
+2. To Snatch the Mask 03:32
+3. Tame the Beast 04:57
+4. To Become Alive 04:35
+5. The Door 05:07
+6. Wake Up 03:04
+7. Warrior's Way 03:39 
+8. The Haunted House 03:58 
+
+### "Age of Oblivion" 2012, Thrash
+
+
+
+### "Hunt" 2013, Thrash
+
+
+
+### "Once upon a Chaos..." 2015, Thrash
+
+
+
 
 ## Отношения с другими группами
 

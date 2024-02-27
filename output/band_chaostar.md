@@ -1,10 +1,42 @@
 # Chaostar
 
-Дискография
-"Chaostar" 2000, Metal
-"Threnody" 2002, Gothic
-"The Scarlet Queen" 2004, Gothic
-"Anomima" 2013, Gothic
+Neo-classical / gothic / dark ambient
+
+## Дискография
+
+### "Chaostar" 2000, Metal
+
+1. Project Atom Traveller
+2. An Electric Storm Of Thoughts
+3. No Gravity
+4. The Field Of Ante Cun
+5. The Accident In Ambere
+6. Time Was Running Out
+7. The First Meeting
+8. Finale
+
+### "Threnody" 2002, Gothic
+
+1. Threnody 
+2. Day Of Anger 
+3. Lamentation 
+4. Canticles 
+5. Let Them Free 
+6. Miasma 
+7. Whose God? 
+8. Exaudi 
+9. Epitaphium 
+10. Mantis 
+
+
+### "The Scarlet Queen" 2004, Gothic
+
+
+
+### "Anomima" 2013, Gothic
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,40 @@
 # Angel
 
-Дискография
-"A Woman's Diary - Chapter I" 2005, Gothic
+
+
+## Дискография
+
+### "A Woman's Diary - Chapter I" 2005, Gothic
+
+1. Fallen Angel
+2. A Womans Diary
+3. Little Princess
+4. Butterfly
+5. Lead You Through Fire
+6. Mother
+7. Glow in the Dark
+8. Flames of Desire
+9. Darkness
+10. Little Girl
+11. Love of My Life
+12. Funeral
+
+
+Helena Iren Michaelsen - vocals and choirs
+Jan "Orkki" Yrlund - guitar and programming
+John Stam - guitar
+Gerry Verstreken - bass
+Steve Wolz - drums
+Audun Gronnestad - orchestrations 
+Oliver Philipps - piano & classical guitar on "A Woman's Diary"
+
+Produced by Oliver Philipps & Christian "Moschus" Moos
+
+Recorded and mixed at Spacelab Studios, (Oedt, Germany) in March and April 2005. “Mother” and “Darkness”recorded in January 2005. Spacelab uses Steinberg Cubase SX3 recording gear.
+
+Additional vocals on “Little Princess” by Oliver Philipps. Acoustic and classical guitars, piano and orchestrations by Oliver Philipps. Grand piano on the bonus song “Don’t Wanna Run” by Jan Meiborg.
+Acoustic guitar on “Mother” by Jan "Цrkki" Yrlund. Cello by Rupert Gillet and violin by Axel Lindner.
+
 
 ## Отношения с другими группами
 

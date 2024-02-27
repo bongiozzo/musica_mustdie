@@ -1,16 +1,152 @@
 # Wizard
 
-Дискография
-"Son of Darkness" 1995, Power Metal
-"Battle of Metal" 1997, Power Metal
-"Bound By Metal" 1999, Power Metal
-"Head Of The Deceiver" 2001, Power Metal
-"Odin" 2003, Power Metal
-"Magic Circle" 2005, Power Metal
-"Goochan" 2007, Power Metal
-"Thor" 2009, Power Metal
-"...Of Wariwulfs and Bluotvarwes" 2011, Power Metal
-"Trail Of Dead" 2013, Power Metal
+power-metal
+
+## Дискография
+
+### "Son of Darkness" 1995, Power Metal
+
+
+
+### "Battle of Metal" 1997, Power Metal
+
+
+
+### "Bound By Metal" 1999, Power Metal
+
+Intro
+Hammer, Bow, Axe and Sword 
+Brave Warriors 
+Dark Wings 
+Mighty Wizard 
+A Nice Day to Die 
+Gladiators of Steel 
+Unicorn 
+Believe in Metal 
+Spill the Blood of Our Enemies 
+Battlefield of Death 
+Bound by Metal 
+Bloodsteel
+
+### "Head Of The Deceiver" 2001, Power Metal
+
+Evitum Okol 
+Magic Potion 
+Head of the Deceiver 
+Collective Mind 
+Defenders of Metal 
+Calm of the Storm 
+Demon Witches 
+Iron War 
+The First One 
+Revenge 
+True Metal
+
+### "Odin" 2003, Power Metal
+
+The Prophecy 
+Betrayer 
+Dead Hope 
+Dark God 
+Lokis Punishment 
+Beginning of the End 
+Thors Hammer 
+Hall of Odin 
+The Powergod 
+March of the Einheriers 
+End of All 
+Ultimate War 
+Golden Dawn
+
+### "Magic Circle" 2005, Power Metal
+
+Enter the magic circle 
+Fire and blood 
+Call of the wild 
+Death is my life 
+On your knees 
+Metal 
+Uruk-Hai 
+Circle of steel 
+Warriors of the night 
+No way out 
+The magic goes on 
+Don't say goodbye 
+Master of the holy flame (Bonus) 
+Sons of the north (Bonus)
+
+### "Goochan" 2007, Power Metal
+
+01. Witch of the enchanted forest
+02. Pale rider
+03. Call to the dragon
+04. Children of the night
+05. Black worms
+06. Lonely in desertland
+07. Dragons death
+08. Sword of vengeance
+09. Two faces of balthasar
+10. Return of the thunder warriors
+
+### "Thor" 2009, Power Metal
+
+01. Utgard (False Games)
+02. Midgards Guardian
+03. Asgard
+04. Serpents Venom
+05. Resurrection
+06. The Visitor
+07. What Would You Do?
+08. Utgard (The Beginning)
+09. Stolen Hammer
+10. Lightning
+11. Pounding In The Night
+
+Sven D`Anna - vocals
+Dano Boland - guitars
+V. Leson - bass
+S. Van Heek - drums
+Michael Maas - guitars
+
+All songs written and arranged by Wizard
+Drums and vocals recorded by Andy Horn at the Red Room, Berolzheim
+Guitars recirded by V. Leson at Magic Hall Studios, Bocholt, www.magichall.de
+Mixed and mastered by Achim Kohler
+Artwork by Katja Piolka
+photos and photodesign by Johen Van Eden
+Story concept by Christian Bartel / Meldric
+
+
+### "...Of Wariwulfs and Bluotvarwes" 2011, Power Metal
+
+1. ...Of Wariwulfs and Bluotvarwes 04:58 
+2. Undead Insanity 03:38  
+3. Taste of Fear 04:44  
+4. Bluotvarwes 03:48 
+5. Messenger of Death 05:39 
+6. In the Sign of the Cross 03:46 
+7. Fair Maiden Mine 04:47  
+8. Hearteater 04:33 
+9. Hagre 03:56 
+10. Bletzer 03:44  
+11. Hagen von Stein 03:48 
+
+
+### "Trail Of Dead" 2013, Power Metal
+
+
+1. Creeping Death  05:56
+2. War Butcher  03:52
+3. Electrocution  05:12 
+4. Angel of Death  06:24   
+5. Angel of the Dark  04:35  
+6. Black Death  04:54  
+7. One for All  03:57  
+8. Post Mortem Vivere  04:48   
+9. Death Cannot Embrace Me  04:41
+10. Machinery of Death  04:01
+11. We Won't Die for Metal  04:48
+
 
 ## Отношения с другими группами
 

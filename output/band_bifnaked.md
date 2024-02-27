@@ -1,7 +1,25 @@
 # Bif Naked
 
-Дискография
-"Superbeautifulmonster" 2006, Alternative
+
+
+## Дискография
+
+### "Superbeautifulmonster" 2006, Alternative
+
+01. Abandonment
+02. Let Down
+03. Everyday
+04. Yeah, You
+05. That's Life
+06. Nothing Else Matters
+07. I Want
+08. Funeral Of A Good Grrl
+09. Henry
+10. The World Is Over
+11. The Question Song
+12. Ladybug Waltz
+13. After A While
+
 
 ## Отношения с другими группами
 

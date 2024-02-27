@@ -1,19 +1,215 @@
 # TNT
 
-Дискография
-"TNT" 1982, Ambient
-"Knights of the New Thunder" 1984, Hard Rock
-"Tell No Tales" 1987, Hard Rock
-"Intuition" 1989, Hard Rock
-"Realized Fantasies" 1992, Hard Rock
-"Firefly" 1997, Hard Rock
-"Transistor" 1999, Hard Rock
-"My Religion" 2004, Hard Rock
-"All the Way to the Sun" 2005, Hard Rock
-"The New Territory" 2007, Hard Rock
-"Atlantis" 2008, Hard Rock
-"Engine" 2010, Hard Rock
-"A Farewell To Arms" 2011, Hard Rock
+Hard'n'heavy
+
+## Дискография
+
+### "TNT" 1982, Ambient
+
+1. Harley Davidson 04:05 
+2. USA 03:38
+3. Bakgеrdsrotter 03:15 
+4. Etyde i Fuzz-mеl 01:16  
+5. Eddie 04:47
+6. Showet Er I Gang 03:36
+7. Pirrende Irene 03:29
+8. Mafia 03:07
+9. Eventyr 03:42
+10. Varmt Og Hardt 04:05 
+
+### "Knights of the New Thunder" 1984, Hard Rock
+
+1. Seven Seas 04:15
+2. Ready to Leave 02:57 
+3. Klassisk Romance 00:58  
+4. Last Summers Evil 02:36 
+5. Without Your Love 03:50
+6. Tor with the Hammer 02:20
+7. Break the Ice 02:22 
+8. U.S.A. 03:40 
+9. Deadly Metal 02:30
+10. Knights of the Thunder 04:10
+11. Eddie 04:43 
+
+### "Tell No Tales" 1987, Hard Rock
+
+1. Everyone's A Star 03:21
+2. 10,000 Lovers (In One) 02:54
+3. As Far As The Eye Can See 03:41
+4. Sapphire 01:14  
+5. Child's Play 04:25 
+6. Smooth Syncopation 00:50  
+7. Listen To Your Heart 03:18 
+8. Desperate Night 03:33 
+9. Northern Ligths 04:10
+10. Incipits 00:50  
+11. Tell No Tales 02:21 
+
+### "Intuition" 1989, Hard Rock
+
+1. A Nation Free 01:09 
+2. Caught Between The Tigers 04:16
+3. Tonight I'm Falling 03:55 
+4. End Of The Line 04:21
+5. Intuition 04:19 
+6. Forever Shine On 04:46 
+7. Learn To Live 03:38
+8. Ordinary Lover 00:53
+9. Take Me Down (Fallen Angel) 04:28 
+10. Wisdom 05:01 
+
+### "Realized Fantasies" 1992, Hard Rock
+
+1. Downhill Racer 04:48
+2. Hard To Say Goodbye 05:12 
+3. Mother Warned Me 04:43
+4. Lionheart 04:49
+5. Rain 04:30
+6. Purple Mountain's Majesty 06:14 
+7. Rock'n'Roll Away 05:51
+8. Easy Street 04:58
+9. All You Need 04:21
+10. Indian Summer 05:00 
+
+### "Firefly" 1997, Hard Rock
+
+Disc 1 
+1. Firefly 04:27
+2. Angels Ride 04:26 
+3. Tripping 04:39 
+4. Daisy Jane 04:42
+5. Somebody Told You 03:56
+6. Month Of Sundays 03:59
+7. Only The Thief (whistles at night) 02:11  
+8. Heaven's Gone 04:09
+9. Moonflower 04:47
+10. Sunless Star 04:58
+11. Cool It 03:40
+12. Soldier Of The Light 05:26
+Disc 2 
+1. Purple Mountains Majesty 06:42
+2. Hard To Say Goodbye 05:24
+3. Downhill Razer 05:09
+4. As Far As The Eye Can See 04:49
+5. 10.000 Lovers (in one) 02:56 
+6. Guitar solo 07:01  
+7. Indian Summer 05:38 
+8. Lionheart 08:48
+9. Seven Seas 08:42
+10. Mother Warned Me 03:09
+11. Everyone's A Star 06:10 
+
+### "Transistor" 1999, Hard Rock
+
+1. Just Like God 03:55 
+2. Wide Awake 03:25 
+3. No Such Thing 03:59
+4. Crashing Down 03:39 
+5. Fantasia Espanola 04:46
+6. Because I Love You 04:36
+7. The Whole You're In 04:00
+8. Mousetrap 03:01 
+9. Into Pieces 04:09  
+10. Under My Pillow 04:26
+11. No Guarantees 02:31 
+
+### "My Religion" 2004, Hard Rock
+
+1 - Invisible Noise 
+  2 - She Needs Me 
+  3 - Lonely Nights 
+  4 - My Religion 
+  5 - Give Me A Sign 
+  6 - Perfectly 
+  7 - You'll Be There 
+  8 - Flow 
+  9 - Live Today 
+  10 - Everybody's Got A Secret 
+  11 - Everything U R 
+  12 - Song 4 Dianne 
+  13 - The Last Word 
+
+Tony Harnell Vocals 
+Ronni Le Tekro Guitars 
+Morty Black Bass 
+Diesel Dahl Drums
+
+### "All the Way to the Sun" 2005, Hard Rock
+
+1. Too Late 04:12
+2. A Fix 04:04  
+3. Driving 04:05  
+4. Me and I 03:43  
+5. Sometimes 04:09  
+6. All The Way to the Sun 05:04  
+7. What a Wonderful World 03:04  
+8. The Letter 04:02  
+9. Mastic Pines 01:25  
+10. Black Butterfly 02:59  
+11. Save Your Love 03:58  
+12. Ready to Fly 04:36  
+13. Get What You Give (Bonus Track) 04:35 
+
+### "The New Territory" 2007, Hard Rock
+
+1. A Constitution 04:15 
+2. Substitute 02:41
+3. Are You Blind? 03:49
+4. Golden Opportunity 03:28
+5. Something Special 03:21
+6. Now We're Talkin' 03:36
+7. Wild Life 03:06
+8. Fountain of Love 04:24
+9. June 03:27
+10. Can't Go On Without 03:15 
+11. 2 Seconds Away 03:19 
+12. Milestone River 04:51
+13. Let's Party Mills 02:11 
+
+### "Atlantis" 2008, Hard Rock
+
+1. Hello, Hello 04:03
+2. Peter Sellers Blues 04:45
+3. Baby's got Rhythm 03:39 
+4. Tango Girl 04:08 
+5. Me and Dad 07:52
+6. Atlantis 04:09
+7. The Taste of Honey 03:42 
+8. Bottle of Wine 03:17 
+9. Missing Kind 04:07
+10. Love of My Life 03:14
+11. Had it, Lost it, Found it 04:55 
+
+### "Engine" 2010, Hard Rock
+
+1. Engine   
+2. Refugee   
+3. Ship In The Night   
+4. Take It Like a Man - Woman!   
+5. Come   
+6. Barracuda   
+7. A Signature On A Demon's Self-Portrait   
+8. Don't Misunderstand Me   
+9. A Farewell To Arms   
+10. Someone Else   
+11. Godnatt, Marie   
+12. June (Live) (bonus track) 
+
+### "A Farewell To Arms" 2011, Hard Rock
+
+1. Engine 
+2. Refugee 
+3. Spin in the Night 
+4. Take It Like A Man-Woman! 
+5. Come 
+6. Barracuda 
+7. A Signature of a Demons Self-Portrait 
+8. Don?t Misunderstand Me 
+9. A Farewell To Arms 
+10. Someone Else 
+11. God Nat, Marie 
+12. Harley-Davidson (Live) 
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,40 @@
 # My Shameful
 
-Дискография
-"Of All The Wrong Things" 2003, Doom
-"...of Dust" 2004, Doom
+
+
+## Дискография
+
+### "Of All The Wrong Things" 2003, Doom
+
+1. Intro
+2. Scattered Ashes
+3. Blackend Lies
+4. A Saddened Sunset
+5. The Wind that Burns all
+6. Beneath
+7. I Fear
+8. Blamed
+
+
+
+Sami Rautio - guitars, vocals, bass, synths, programming
+Harri Jussila - guitars, vocals, bass, synths
+ 
+
+
+
+
+### "...of Dust" 2004, Doom
+
+1. ...Of Dust 05:57 
+2. And Waters Will Close 07:31  
+3. Your Darkness Shine 09:01  
+4. One Lost 06:13 
+5. I Found Nothing Sacred 06:39  
+6. These Empty Rooms 06:06  
+7. Disappointment 06:28 
+8. To Never Return 08:00
+
 
 ## Отношения с другими группами
 

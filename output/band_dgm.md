@@ -1,16 +1,194 @@
 # DGM
 
-Дискография
-"Random Access Zone" 1996, Progressive
-"Change Direction" 1997, Progressive
-"Wings Of Time" 1999, Progressive
-"Dreamland" 2001, Progressive
-"Hidden Place" 2003, Progressive
-"Misplaced" 2004, Progressive
-"Different Shapes" 2007, Progressive
-"FrAme" 2009, Progressive
-"Momentum" 2013, Progressive
-"The Passage" 2016, Progressive
+
+
+## Дискография
+
+### "Random Access Zone" 1996, Progressive
+
+  1 - Hard Race
+  2 - Run
+  3 - Data Error
+  4 - Melpomenia
+
+
+   Luciano Regoli - Vocals
+   Diego Reali - Guitars
+   Ingo Schwartz - Bass
+   Roberto Riccitelli - Keybords
+   Gianfranco Tassella - Drums
+
+
+
+### "Change Direction" 1997, Progressive
+
+  1 - Brainstorming
+  2 - in My Heart
+  3 - The Last Memory
+  4 - Lonely Nights
+  5 - Anthem
+  6 - Do What You Want
+  7 - Change Direction
+  8 - Flyin' Fantasy
+
+
+
+   Luciano Regoli - Vocals
+   Diego Reali - Guitars
+   Marco Marchiori - Bass
+   Maurizio Pariotti - Keybords
+   Gianfranco Tassella - Drums
+
+
+   Produced by: DGM and Elevate Records.
+   Recorded at: Random Music House
+
+### "Wings Of Time" 1999, Progressive
+
+  1 - Guiding Light
+  2 - I'll Dream Of You
+  3 - Mirrors Of The Night
+  4 - Deep Inside
+  5 - Waiting For The Sunrise
+  6 - A Drop Of Shadow
+  7 - Nightmare
+  8 - Silence
+
+
+   Luciano Regoli - Vocals
+   Diego Reali - Guitars
+   Marco Marchiori - Bass
+   Maurizio Pariotti - Keybords
+   Fabio Costantino - Drums
+
+
+   Produced by: DGM and Elevate Records.
+   Recorded at: Random Music House.
+
+
+### "Dreamland" 2001, Progressive
+
+  1 - Dreamland
+  2 - Eternity
+  3 - Lost In Time
+  4 - The Rain Falls In The Desert
+  5 - Reason To Live
+  6 - Ego's Battle
+  7 - Lie!
+  8 - Sweet Surrender
+  9 - Feeling Forever
+
+
+   Titta Tani - Vocals
+   Diego Reali - Guitars and Bass
+   Maurizio Pariotti - Keybords
+   Fabio Costantino - Drums
+
+
+   Produced by: DGM and Elevate Records.
+   Recorded at: Random Music House.
+   Mixed at: Acquario Studio by Claudio Simonetti.
+
+
+### "Hidden Place" 2003, Progressive
+
+  1 - A Day Without The Sun 
+  2 - Save Me 
+  3 - Hidden Places
+  4 - Invisible Rain
+  5 - Storm #351
+  6 - Heaven
+  7 - Alone
+  8 - Blind!!
+  9 - Age Of The Flame
+  10 - Winter Breeze
+
+
+   Titta Tani - Vocals
+   Diego Reali - Guitars
+   Andrea Arcangeli - Bass
+   Fabio Sanges - Keybords
+   Fabio Costantino - Drums
+
+
+   Produced by: DGM and Scarlet Records.
+   Recorded at: Random Music House.
+   Mixed at: Outer Sount Studio by Giuseppe Orlando.
+
+
+
+### "Misplaced" 2004, Progressive
+
+1. Livin' On The Edge
+2. Is Hell Without Love?
+3. Through My Tears
+4. Still Believe
+5. Pride!!
+6. Amazing Journey
+7. A New Day's Coming
+8. Perennial Quest
+
+### "Different Shapes" 2007, Progressive
+
+1. New Life 05:04  
+2. The Alliance 05:42  
+3. Some Day, One Day 04:58  
+4. Unkept Promises 05:10  
+5. The Fallen Angel 06:32 
+6. Peace Of Mind 04:41
+7. Frontiers 04:31 
+8. Signs Of Time 05:19  
+9. Close To You 04:36  
+10. A Man I'll Never Be 05:57 
+
+
+Line-up: 
+Titta Tani - Lead and Back Vocals
+Simone Mularoni - Guitars, Orchestrations and background vocals
+Fabio Costantino - Drums
+Andrea Arcangeli - Bass
+Emanuele Casali - Keyboards
+
+Bonus video clip for Japan:
+11. You Wa Shock! (Ai Wo Torimodose) 
+
+### "FrAme" 2009, Progressive
+
+1. Hereafter 04:33  
+2. Enhancement 04:22  
+3. Not in Need 04:22  
+4. No Looking Back 05:25  
+5. Trapped... 02:01  
+6. ...In a Movie 04:03  
+7. Away 05:19  
+8. Heartache 05:29  
+9. Rest in Peace 03:46  
+10. Brand New Blood 05:05  
+11. Fading & Falling 04:36  
+12. Rose in the Wind 
+
+
+### "Momentum" 2013, Progressive
+
+
+
+### "The Passage" 2016, Progressive
+
+1. The Secret (Part 1)  08:24   
+2. The Secret (Part 2)  07:15   
+3. Animal  05:18   
+4. Ghost of Insanity  05:35   
+5. Fallen  05:39  
+6. The Passage  05:10   
+7. Disguise  01:53  
+8. Portrait  05:39   
+9. Daydreamer  05:35  
+10. Dogma  05:45   
+11. In Sorrow  03:40   
+12. Animal (Acoustic version)  04:02 
+
+Recorded, mixed and mastered at Domination Studio in San Marino, Italy.
+
 
 ## Отношения с другими группами
 

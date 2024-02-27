@@ -1,7 +1,28 @@
 # Numb
 
-Дискография
-"Wasted Sky" 1994, Industrial
+
+
+## Дискография
+
+### "Wasted Sky" 1994, Industrial
+
+1. Wasted Sky
+2. Blood
+3. Driven
+4. Keyak *
+5. Ophelia
+6. Ratblast
+7. Smile
+8. Effigy
+9. Seven Types Of Ambiguity
+
+All Songs By D.Gorgon / C.Hunter, 
+Except * By D.Gorgon / C.Hunter / K.Marshall.
+Produced & Assembled By Hiwatt Marshall & NUMB.
+Recorded & Mixed At Squelch Sound & Mushroom Studios During June & July 1994.
+
+(P)&(C) 1994 KK Records
+
 
 ## Отношения с другими группами
 

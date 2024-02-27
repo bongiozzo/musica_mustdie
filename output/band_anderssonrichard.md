@@ -1,7 +1,22 @@
 # Andersson, Richard
 
-Дискография
-"The Ultimate Andersson Collection" 2005, Metal
+virtuoso keyboardist
+
+## Дискография
+
+### "The Ultimate Andersson Collection" 2005, Metal
+
+Time Requiem
+Confusicus
+Attar of Roses
+Black Moon Rising
+Above and Beyond
+Emposium
+Golden Sea
+The Rapture of Canaan
+Visions of New Dawn
+Voodoo Treasure
+
 
 ## Отношения с другими группами
 

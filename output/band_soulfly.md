@@ -1,17 +1,144 @@
 # Soulfly
 
-Дискография
-"Soulfly" 1998, Metal
-"Soulfly (Bonus CD)" 1998, Metal
-"Primitive" 2000, Metal
-"III" 2002, Metal
-"Prophecy" 2004, Metal
-"Dark Ages" 2005, Metal
-"Conquer" 2008, Metal
-"Omen" 2010, Metal
-"Enslaved" 2012, Metal
-"Savages" 2013, Metal
-"Archangel" 2015, Metal
+
+
+## Дискография
+
+### "Soulfly" 1998, Metal
+
+
+
+### "Soulfly (Bonus CD)" 1998, Metal
+
+1. Tribe [Fuck Shit Up Mix]
+2. Quilombo [Extreme Ragga Dub Mix]
+3. Umbabarauma [World Cup Mix]
+4. No Hope = No Fear [Live]
+5. Bleed [Live]
+6. Bumba [Live]
+7. Quilombo [Live]
+8. The Song Remains Insane [Live]
+9. Eye For An Eye [Live At Indigo Ranch]
+10. Tribe [Tribal Terrorism Mix]
+11. Umbabarauma [Brasil'70 Mix]
+12. Quilombo [Zumbi Dub Mix]
+13. Soulfly [Eternal Spirit Mix]
+
+### "Primitive" 2000, Metal
+
+1 Back to the primitive
+2 Pain
+3 Bring it
+4 Jump da fuck up
+5 Mulambo
+6 Son Song
+7 Boom
+8 Terrorist
+9 The Prophet
+10 Soulfly 2
+11 In Memory off
+12 Fly high
+13 Eye for an eye (Live)
+14 Tribe (Live)
+15 Soulfire
+16 Soulfly (Mix)
+
+Produced by Toby Wright
+Co-produced and masterminded by Max Cavalera
+"Son Song" produced by Sean Lennon, Max Cavalera and Toby Wright
+Mixed by Andy Wallace
+
+(p)&(c) 2000 The All Blacks B.V.
+
+### "III" 2002, Metal
+
+1. Downstroy
+2. Seek 'n' Strike
+3. Enter Faith
+4. One
+5. LOTM
+6. Brasil
+7. Tree Of Pain
+8. One Nation
+9. 9-11-01
+10. Call To Arms
+11. Four Elements
+12. Soulfy III
+13. Sangue De Bairro
+14. Zumbi
+
+
+
+### "Prophecy" 2004, Metal
+
+
+
+### "Dark Ages" 2005, Metal
+
+
+
+### "Conquer" 2008, Metal
+
+01. Blood Fire War Hate
+02. Unleash
+03. Paranoia
+04. Warmageddon
+05. War Ghost
+06. Rough
+07. Fall Of Sycophants
+08. Doom
+09. Rot
+10. Touching The Void
+11. Soulfly VI
+
+Max Cavalera - guitars, vocals
+Joe Nunez - drums
+Bobby Burns - bass
+Marc Rizzo - guitars
+
+Producer: Max Cavalera
+Mixer: Andy Sneap
+
+### "Omen" 2010, Metal
+
+01. Bloodbath & Beyond
+02. Rise of the Fallen
+03. Counter Sabotage
+04. Jeffrey Dahmer
+05. Lethal Injection
+06. Great Depression
+07. Mega-Doom
+08. Kingdom
+09. Off With Their Heads
+10. Vulture Culture
+11. Soulfly 7
+
+### "Enslaved" 2012, Metal
+
+1. Resistance 
+2. World Scum 
+3. Intervention 
+4. Gladiator 
+5. Legions 
+6. American Steel 
+7. Redemption Of Man By God 
+8. Treachery 
+9. Plata O Plomo 
+10. Revengeance 
+11. Chains 
+12. Slave 
+13. Bastards 
+14. Soulfly VIII
+
+
+### "Savages" 2013, Metal
+
+
+
+### "Archangel" 2015, Metal
+
+
+
 
 ## Отношения с другими группами
 

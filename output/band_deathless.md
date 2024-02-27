@@ -1,10 +1,46 @@
 # Deathless
 
-Дискография
-"Promo Tape '96 /demo/" 1996, Death Metal
-"The Time To Be Immortal" 2000, Death Metal
-"Promo 2.002 /demo/" 2002, Death Metal
-"The Sound Of The New World" 2004, Death Metal
+Old scool swedish death metal from Spain
+
+## Дискография
+
+### "Promo Tape '96 /demo/" 1996, Death Metal
+
+01] Razing Life
+02] Two Ways
+
+### "The Time To Be Immortal" 2000, Death Metal
+
+01] Razing Life
+02] Torture's Deep Inside My Mind
+03] Two Ways
+04] Under Fear
+05] World's Heartbeat
+06] The Price Of Our Wasting Lives
+07] Where No Sun Shines
+08] Law Of Fire
+09] Holy Sepulchre
+10] Years Later
+
+Emilio Canas - vocals
+Jose Contreras - guitar
+Michael Fidalgo - guitar
+Antonio J.Canto - bass
+Jose L.Gonzales - drums
+
+(p)(c) 2000 Goldtrack Records
+
+### "Promo 2.002 /demo/" 2002, Death Metal
+
+01] Worshipers Of Darkness
+02] Distortionated Word
+03] Wrong Again
+04] The Sound Of The New World
+
+### "The Sound Of The New World" 2004, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

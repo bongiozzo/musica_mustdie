@@ -1,16 +1,195 @@
 # Carpathian Forest
 
-Дискография
-"Through Chasm, Caves and Titan Woods" 1995, Black Metal
-"Black Shining Leather" 1998, Black Metal
-"Picture E.P." 2000, Black Metal
-"Strange Old Brew" 2000, Black Metal
-"Morbid Fascination of Death" 2001, Black Metal
-"We Are Going to Hell for This" 2002, Black Metal
-"Defending the Throne of Evil" 2003, Black Metal
-"Skjend Hans Lik" 2004, Black Metal
-"We`re Going To Hollywood For This (dvd)" 2004, Black Metal
-"Fuck You All!!!!" 2006, Black Metal
+Misanthropic Black Metal
+
+## Дискография
+
+### "Through Chasm, Caves and Titan Woods" 1995, Black Metal
+
+1. Carpathian forest
+2. The pale mist hovers towards the nightly shores
+3. The eclipse / the raven 
+4. When thousand moon have circled
+5. Journey through the cold moors of svarttjern 
+
+
+### "Black Shining Leather" 1998, Black Metal
+
+1. Black Shining Leather  4:32  
+2. The Swordsmen  4:07  
+3. Death Triumphant  4:27  
+4. Sadomasochistic  4:02  
+5. Lupus  3:06  
+6. Pierced Genitalia  4:18  
+7. In Silence I Observe  3:42  
+8. Lunar Nights  6:34  
+9. Third Attempt  3:18  
+10. The Northern Hemisphere  6:42  
+11. A Forest  5:57  
+
+
+### "Picture E.P." 2000, Black Metal
+
+1. Ghoul
+2. He's turning blu
+
+### "Strange Old Brew" 2000, Black Metal
+
+1. Intro - Damnation Chant  1:01
+2. Bloodcleansing  2:43
+3. Mask of the Slave  4:12
+4. Martur / Sacrificulum  3:26
+5. Thanatology  4:40
+6. The Suicide Song  3:39
+7. House of the Whipcord  3:58
+8. Cloak of Midnight  5:28
+9. Return of the Freezing Winds  3:07
+10. Theme for Nekromantikk  3:04
+11. The Good Old Enema Treatment  1:52
+12. He's turning Blue ( bonus track )  2:53
+
+### "Morbid Fascination of Death" 2001, Black Metal
+
+1. Fever, flames and hell
+2. Doomed to walk the earth
+3. Morbid fascination of death
+4. Through self-mutilation 
+5. Knokkelmann 
+6. Warlor of Misanthropy 
+7. A world of bones 
+8. Carpathian Forest 
+9. Cold Comfort 
+10. Speechless 
+11. Ghoul 
+12. Nostalgia
+
+### "We Are Going to Hell for This" 2002, Black Metal
+
+Erased / relived
+Suicidal
+Where The strong Live Forever
+Machine Supreme
+Paradies
+Retention Of Illusion
+Thou Shalt Forever Suffer
+Shrouded Are The Pleasures Of Flesh
+Heartless
+Slit Wide Open
+Ad Libitum
+
+### "Defending the Throne of Evil" 2003, Black Metal
+
+1. It's Darker Than You Think 
+2. Skjend Hans Lik 
+3. The Well of All Human Tears 
+4. Put to Sleep Like a Sick Animal !!! 
+5. Hymne Til Doden 
+6. Ancient Spirit of the Underworld 
+7. Spill the Blood of the Lamb 
+8. One With the Earth 
+9. Christian Incoherent Drivel 
+10. The Old House on the Hill 
+11. Necrophiliac / Anthropophagus Maniac 
+12. Cold Murderous Music
+
+
+
+R. Nattefrost - vocals, guitars
+Vrangsinn - bass
+Tchort - guitars
+A. Kobro - drums
+
+### "Skjend Hans Lik" 2004, Black Metal
+
+Skjend Hans Lik
+(alternate mix) 
+Humiliation Chant (unreleased) 
+Spill the Blood of the Lamb (pre-prod) 
+Martyr / Sacrificulum (live)
+ 
+Through the Black Veil of the Bergo Pass 
+Bloodlust and Perversion 
+Return of the Freezing Winds 
+The Woods of Wallachia 
+Wings over the mountain of Sighisoara 
+(1992 demo)
+
+Carpathian Forest (bonus video)
+
+### "We`re Going To Hollywood For This (dvd)" 2004, Black Metal
+
+Intro I
+Sadomasochistic
+Bloodcleansing
+Intro II (с Defending The Throne Of Evil)
+It's Darker Than You Think
+Skjend Hans Lik
+The Well Of All Human Tears
+Mask Of The Slave
+Morbid Fascination Of Death
+Return Of The Freezing Winds
+I Am Possessed
+Intro III
+Black Shining Leather
+Carpathian Forest
+He's Turning Blue
+Nuclear Fucking Death Machine
+Knokkelmann
+Bloodlust and Perversion
+Outro
+Редкие бутлеги
+Doomed To Walk The Earth As Slaves Of The Living Dead
+Martyr / Sacrificulum
+Suicide Song
+Carpathian Forest
+Ghoul
+One With The Earth
+Wacken Open Air 2003
+Knokkelmann
+It's Darker Than You Think
+Skjend Hans Lik
+The Well Of All Human Tears
+Mask Of The Slave
+Angel And The Sodomizer
+One With The Earth
+Black Shining Leather
+Carpathian Forest (видео)
+Аудио:
+Nostalgia (demo 1999)
+Pierced Genitalia
+Third Attempt
+The Swordsmen
+Dodsangst
+Black Shining Leather
+The Northern Hemisphere
+Mask Of The Slave
+He's Turning Blue (live)
+Defending The Throne Of Evil pre-production
+Towards Hell
+Skjend Hans Lik
+It's Darker Than You Think
+Ancient Spirits Of The Underworld
+Humiliation Chant Part I
+Cold Murdeous Music Part I
+World Destryer 2000
+One With The Earth
+Grimm Nordisk Viner
+The Embrace Of The Cold
+Born In The Hands Of Doom
+
+### "Fuck You All!!!!" 2006, Black Metal
+
+1. Vi Apner Porten Til Helvete 06:36  
+2. The Frostbitten Woodlands of Norway 04:58  
+3. Start Up The Incinerator (Here Comes Another Useless Fool) 05:12  
+4. Submit To Satan!!! 04:07  
+5. Diabolism (The Seed And The Sower) 04:14  
+6. Dypfryst / Dette Er Mit Helvete 04:04  
+7. Everyday I Must Suffer 04:17  
+8. The First Cut Is The Deepest 04:45  
+9. Evil Egocentrical Existecialism 03:47  
+10. Shut Up, There No Excuse To Live 04:14
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,27 @@
 # Virus
 
-Дискография
-"Pray For War" 1987, Thrash
+
+
+## Дискография
+
+### "Pray For War" 1987, Thrash
+
+1. Pray For War
+2. To The Death
+3. Malignant Massacre
+4. Thermo-Nuclear Thrash
+5. Sacred For Life
+6. Nightsiege
+7. Risen From The Death
+8. Neo Warlords, Nuclear Gods
+9. Cannibal Holocaust
+
+Neston
+Hesse
+Kaylor
+
+(p)&(c) 1987 ARMAGEDON
+
 
 ## Отношения с другими группами
 

@@ -1,9 +1,59 @@
 # X-Wild
 
-Дискография
-"So What!" 1994, Heavy Metal
-"Monster Effect" 1995, Heavy Metal
-"Savageland" 1996, Heavy Metal
+Ex-Running Wild
+
+## Дискография
+
+### "So What!" 1994, Heavy Metal
+
+Can`t Tame The Wild 
+Dealing With The Devil 
+Scarred To The Bone 
+Wild Frontier 
+Sky Bolter 
+Beastmaster 
+Kid Racer 
+Into The Light 
+Freeway Devil 
+Mystica Deamonica 
+Thousand Guns 
+Differnt, (So What) 
+
+### "Monster Effect" 1995, Heavy Metal
+
+
+
+### "Savageland" 1996, Heavy Metal
+
+1. Savageland (Intro) (2.58)
+2. Braveheart (6.07)
+3. Savageland (4.37)
+4. Born For War (6.39)
+5. Murder In Thy Name (4:53)
+6. Children Of The Underground (3.58)
+7. Dragonslair (7.09)
+8. Die Like A Man (4.24)
+9. Field Of Blackbirds (5.07)
+[10].Clash Of The Titans (4.56)
+[11].Hunting The Damned (6.13)
+[12].Chaos Ends (4.28)
+
+[10]-[12] - Ha cтopoнe B
+
+All songs written by X-WILD.
+Produced by Axel Morgan, Jens Aecker
+and Oliver Grosse-Pawig.
+Mixed by Thomas Korge and Axel
+Morgan.
+Recorded and mixed in Studio M.CeIle
+
+Axel Morgan - Guitars
+Frank Knight - Vocals
+Jens Becker - Bass
+Frank Ullrich - Drums
+
+(p)(c) 1996 TRICOLOR Music
+
 
 ## Отношения с другими группами
 

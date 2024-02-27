@@ -1,9 +1,49 @@
 # Naamah
 
-Дискография
-"Naamah" 2000, Gothic
-"Ultima" 2003, Gothic
-"Resensement" 2004, Gothic
+
+
+## Дискография
+
+### "Naamah" 2000, Gothic
+
+1. Intro/Kolejny Raz (Intro/One more time)
+2. Dokad Idziesz? (Where Are You Going?) (lyrics: E. Stachura, modern polish poet)
+3. Daleylah
+4. Twoja (Yours)
+5. Kantylena (Cantilene) (lyrics: K.K. Baczynski, great polish poet)
+6. Ostatni Walc (The Last Waltz) (instrumental)
+7. Eternal Fear
+8. Aniol (The Angel)  
+ 
+
+### "Ultima" 2003, Gothic
+
+1 - Intro
+2 - Stranger
+3 - Last Night
+4 - Dream
+5 - Eternal Fear
+6 - She Is My Sin
+7 - Noli Me Tangere
+8 - Outro
+9 - Jeszcze jedno
+10 - Sen
+11 - Zireael
+
+
+### "Resensement" 2004, Gothic
+
+Daydream Part One 
+Severed 
+Not For You 
+Subsistance 
+Red Light (instrumental) 
+Alright 
+Daydream Part Two
+Бонусы: 
+Subsistance (polish version) 
+Twoja (piano version)
+
 
 ## Отношения с другими группами
 

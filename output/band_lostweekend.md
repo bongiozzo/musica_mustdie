@@ -1,9 +1,55 @@
 # Lost Weekend
 
-Дискография
-"Lost Weekend" 1996, Hard Rock
-"Presence Of Mind" 2000, Hard Rock
-"New Religion" 2002, Hard Rock
+progressive hard-rock
+
+## Дискография
+
+### "Lost Weekend" 1996, Hard Rock
+
+1. Don't Walk Away From Love 
+2. Baby Don't Leave Me This Way 
+3. One Step Closer 
+4. Is It Love 
+5. Find My Way Back To You 
+6. Desperate Love 
+7. Hopeless Romance 
+8. Don't Want To Be Lonely 
+9. Cry Through The Rain 
+10. I'm Gonna Make Her Mine 
+
+### "Presence Of Mind" 2000, Hard Rock
+
+Holding On 
+I Need You 
+One Chance 
+Slippin' Through My Hands 
+The Best Is Yet To Come 
+Kiss From The Heart 
+All Hands To The Fire 
+One Day At A Time 
+This Moment So Long 
+I Don't Want To Be Your Friend 
+Can You Believe 
+In Time
+
+### "New Religion" 2002, Hard Rock
+
+1.   Who's The One To Blame
+2.   Feed On Emotion
+3.   Can t Get You out Of My Mind
+4.   By Now
+5.   Sophia's Song (My Shining Star)
+6.   New Religion
+7.   All Alone
+8.   Dead In The Water
+9.   Faith
+10. Once In A Moment 
+11. Whose Heart
+12. I'm Not The One
+
+Produced by Murray Daigle & Mike Dmitrovic of Emerald Rain.
+
+
 
 ## Отношения с другими группами
 

@@ -1,10 +1,47 @@
 # Twilightning
 
-Дискография
-"Delirium Veil" 2002, Power Metal
-"Plague-House Puppet Show" 2004, Power Metal
-"Bedlam EP" 2006, Power Metal
-"Swinelord" 2007, Power Metal
+
+
+## Дискография
+
+### "Delirium Veil" 2002, Power Metal
+
+
+
+### "Plague-House Puppet Show" 2004, Power Metal
+
+01. Plague-House Puppet Show 
+02. Into Treason
+03. The Fiend
+04. Victim of Deceit
+05. Painting the Blue Eyes
+06. In the Fervor's Frontier
+07. Fever Pitch
+08. Diamonds of Mankind
+09. Riot Race
+10. Lubricious Thoughts
+
+### "Bedlam EP" 2006, Power Metal
+
+01. Space of Disgrace
+02. Rolling Heads
+03. Sex Jail
+04. Plague Overload
+05. Train to Bedlam
+
+### "Swinelord" 2007, Power Metal
+
+01. Isolation Shell
+02. SwineLord
+03. Reflection of the Cuckoo
+04. Vice Jesus
+05. Pimps, Witches, Thieves & Bitches
+06. The Gun
+07. Not a Word
+08. Consume Gap 
+09. With the Flow
+10. Wounded & Withdrawn
+
 
 ## Отношения с другими группами
 

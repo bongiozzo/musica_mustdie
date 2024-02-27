@@ -1,12 +1,100 @@
 # Enid
 
-Дискография
-"Nachtgedanken" 1999, Black Metal
-"Abschiedsreigen" 2000, Black Metal
-"Der Tag Zur Nacht Sich Senkt... (10" MLP)" 2001, Black Metal
-"Seelenspiegel" 2002, Black Metal
-"Gradwanderer" 2004, Black Metal
-"Munsalvaesche" 2011, Metal
+folk black metal
+
+## Дискография
+
+### "Nachtgedanken" 1999, Black Metal
+
+1. "Silentium Obscuritate" (1:08 min.)
+2. "Institutio Immortales" (8:26 min.)
+3. "Of Wisdom's Shadows" (6:13 min.)
+4. "Aurora" (Instrumental) (6:27 min.)
+5. "Nachtgedanken" (9:22 min.)
+6. "Art Of The Blacksmith" (Instrumental piano) (4:23 min.)
+7. "Nebelthron" - (do not take it too serious!) (1:58 min.) 
+8. "Intransitority (I'll Leave At Twelve)" (7:28 min.) 
+
+
+### "Abschiedsreigen" 2000, Black Metal
+
+1. Chapter One "Erinnerungen" (7:13 min.)
+2. Chapter Two "Weg Der Weisung" (5:30 min.)
+3. Chapter Three "Reverie Of Youth In Spheres Of Dream" (7:31 min.)
+4. Chapter Four "Meer Der Einsamkeit" (7:39 min.)
+5. Chapter Five "Zug Der Vergessenen Reiter" (8:12 min.)
+6. Chapter Six "Bondage's Coronation" (6:09 min.)
+7. Chapter Seven "Herbststurm" (3:52 min.)
+8. Final Chapter "Whispering Of Good-bye" (5:31 min.)
+
+
+### "Der Tag Zur Nacht Sich Senkt... (10" MLP)" 2001, Black Metal
+
+Side A: 
+1. "Darkness Closing In" (2:35 min.)
+2. "Der Tag Zur Nacht Sich Senkt..." (8:30 min.)
+
+Side B: 
+3. "Sturmritt" (8:56 min.)
+4. "Crush Of Death" (3:24 min.)
+
+
+### "Seelenspiegel" 2002, Black Metal
+
+1. 'Soulglass' (Introduction) 2:40  
+2.  'Land Of The Lost' 5:08 
+3.  'Nexus' 4:45 
+4.  'Patience's Ring' 6:42 
+5.  'Interlude' (Instrumental) 2:37 
+6.  'The Forbidden Site' 6:58 
+7.  'And Soon Will Fall The Days...' 6:03 
+8.  'Seelenfrieden' 2:47 
+9.  'Helios' Niedergang' 7:56 
+
+
+
+All music and lyrics by Martin, recorded at 'Mirror Studios', Innsbruck (Austria) in September 2001, mastered at 'Fear Studio', Ravenna in December 2001.
+Release by 'Code666' (Italy) on 25th of February, 2002.
+
+
+### "Gradwanderer" 2004, Black Metal
+
+1. Chimera      
+2. An Ode To The Forlorn      
+3. Silent Stage      
+4. Gradwanderer      
+5. Die Seelensteine      
+6. When The Last Glow Flies      
+7. Exemption      
+8. The Burning Of The Sea      
+9. Herbststurm (bonus) 
+
+
+Martin Wiese (vocals, choirs, piano, synths), 
+Alboоn Goldmund (rhythm guitars), 
+Jens „Southie“ Basfeld (bass), 
+Patrick Damiani (lead and acoustic guitars, additional bass and rhythm guitars), 
+Boltthorn (drums), 
+Thalos (additional lead guitar and lead guitar on „Herbststurm“), 
+Sebastian Schluter (drums on „Herbststurm“).
+
+Recorded, mixed and mastered in September and October 2003 by Patrick Damiani at Tidal Wave Studios, Karlsruhe. 
+Vocals on „Herbststurm“ recorded in January 2004 at Wiesensound Homerecording, Porta Westfalica.
+
+All music and lyrics by Martin Wiese.
+
+### "Munsalvaesche" 2011, Metal
+
+01. Red Knight 05:36 
+02. Legends From The Storm 07:25 
+03. Belrapeire 05:58 
+04. Munsalvaesche 10:54 
+05. Condwiramurs 05:27 
+06. The Journey 06:09 
+07. Valley Under Two Suns 04:41 
+08. Sheafs Of Sparks 05:47
+
+
 
 ## Отношения с другими группами
 

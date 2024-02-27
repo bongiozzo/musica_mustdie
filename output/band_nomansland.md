@@ -1,11 +1,67 @@
 # Nomans Land
 
-Дискография
-"The Last Son Of The Fjord" 2000, Viking Metal
-"Hammerfrost" 2005, Viking Metal
-"Raven Flight" 2006, Viking Metal
-"Farnord" 2009, Viking Metal
-"Last Crusade" 2015, Viking Metal
+
+
+## Дискография
+
+### "The Last Son Of The Fjord" 2000, Viking Metal
+
+1. The Last Son Of The Fjord 06:26 
+2. The Swan Road 04:57 
+3. Back Home 05:15 
+4. The Call Of Ancestors 04:52 
+5. Nomans Land 02:45  
+6. Two Fathers 04:50
+7. In The Skin Of A Bear 05:20 
+8. Ale 01:17
+
+### "Hammerfrost" 2005, Viking Metal
+
+1. Lord Of The Seas 05:33  
+2. Breath Of The North 05:29  
+3. In The Odin's Fest 06:39  
+4. Konung 02:57  
+5. Triumph Of Winter 05:08  
+6. The Source Of MIMIR 04:15  
+7. Ale - part 2 01:48  
+8. Twilight Of The Ages 04:46  
+9. Fjell Og Fjord 03:37  
+10. Balfor 07:06
+
+### "Raven Flight" 2006, Viking Metal
+
+
+
+### "Farnord" 2009, Viking Metal
+
+1. Shield of Northern Fjords 05:02  
+2. Valhalla Calls 03:31  
+3. Nornorheim 04:58  
+4. Prophecy of Runes 04:36  
+5. Land of a Cold Flame 05:03  
+6. Ulvsjar 04:57  
+7. Father North 04:38  
+8. Storm of Steel 05:59  
+9. Voice of Battle 04:10 
+
+
+Hjervard - Vocals, Bass 
+Sigurd - Guitar
+Bardi - Guitar 
+Ainar - Drums 
+
+### "Last Crusade" 2015, Viking Metal
+
+1. Right to Luck  04:43  
+2. Sons of the Nord  05:56    
+3. Victory Horns  04:53   
+4. Strain at the Oars  05:14    
+5. Dragons  04:52    
+6. Last Crusade  05:38   
+7. Warrior's Path  05:00  
+8. Bereza  04:19 
+
+
 
 ## Отношения с другими группами
 

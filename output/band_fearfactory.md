@@ -1,25 +1,308 @@
 # Fear Factory
 
-Дискография
-"Soul Of A New Machine" 1992, Death Industrial
-"Fear Is The Mindkiller (EP)" 1993, Death Industrial
-"Dog Day Sunrise (single)" 1995, Death Industrial
-"Demanufacture" 1995, Death Industrial
-"Remanufacture (Cloning Technology)" 1997, Industrial
-"Burn (single)" 1997, Death Industrial
-"Obsolete" 1998, Death Industrial
-"Resurrection (single)" 1998, Death Industrial
-"Evolution (EP)" 1998, Death Industrial
-"Cars (single)" 1999, Industrial
-"Digimortal" 2001, Industrial
-"Concrete (demo)" 2002, Death Industrial
-"Hatefiles (compilation)" 2003, Death Industrial
-"Archetype" 2004, Death Industrial
-"Transgression" 2005, Death Industrial
-"Mechanize" 2010, Death Industrial
-"Recharger [single]" 2012, Death Industrial
-"The Industrialist" 2012, Death Industrial
-"Genexus" 2015, Industrial
+Legend of death-industrial metal
+
+## Дискография
+
+### "Soul Of A New Machine" 1992, Death Industrial
+
+1. Martyr
+2. Leech Master
+3. Scapegoat
+4. Chrisis
+5. Crash Test
+6. Flesh Hold
+7. Lifeblind
+8. Scumgrief
+9. Natividad
+10.Big God/Raped Souls
+11.Arise Above Oppression
+12.Self Immolation
+13.Suffer Age
+14.W.O.E.
+15.Desecrate
+16.Escape Confusion
+17.Manipulation
+
+ Burton C. Bell - Dry Lung Vocal Martyr Hardware, Utilities
+ Dino Cazares - All Discordant Guitar & Bass, Hardware, Utilities
+ Andrew Shives - Discordant Bass
+ Raymond Herrera - Variable Percussive Wrecking
+
+Produced By Colin Richardson.
+Engineered By Steve Harris.
+
+(p)&(c) 1992 ROADRUNNER Production B.V.
+
+### "Fear Is The Mindkiller (EP)" 1993, Death Industrial
+
+1. Martyr  (Suffer Bastard Mix)
+2. Self Immolation (Vein Tap Mix)
+3. Scapegoat (Pigfuck Mix)
+4. Scumgrief (Deep Dub Trauma Mix)
+5. Self Immolation (Liquid Sky Mix)
+6. Self Immolation (LP Version) *
+
+ Burton C. Bell - Dry Lung Vocal Martyr Hardware, Utilities
+ Dino Cazares - All Discordant Guitar & Bass, Hardware, Utilities
+ Andrew Shives - Discordant Bass
+ Raymond Herrera - Variable Percussive Wrecking
+ Raynor Diego - Samples Keyboard
+
+All Music By Dino Cazares.
+All Lyrics By Burton C. Bell.
+Original Tracks Produced By Colin Richardson.
+
+(p)&(c) 1993 THE ALL BLACKS B.V.
+
+### "Dog Day Sunrise (single)" 1995, Death Industrial
+
+1. Dog Day Sunrise (Edit)
+2. Replica (Electric Sheep Mix)
+3. Concreto
+4. Dog Day Sunrise
+
+All songs written by FEAR FACTORY
+Produced by Colin Richardson
+Mixed by Greg Reely, Rhys Fulber and
+FEAR FACTORY
+
+Dino Cazares - heavy duty scarifier
+Raymond Herrera - maximum effective
+pulse generator
+Burton C.Bell - dry lung vocal martyr
+Christian Olde Wolbers - total harmonic
+distortion
+
+(p)(c) 1996 ROADRUNNER Records
+
+### "Demanufacture" 1995, Death Industrial
+
+1. Demanufacture
+2. Self Bias Resistor
+3. Zero Signal
+4. Replica
+5. New Breed
+6. Dog Day Sunrise
+7. Body Hammer
+8. Flashpoint
+9. H-K (Hunter Killer)
+10.Pisschrist
+11.A Therapy For Pain
+
+Dino Cazares 
+Raymond Herrera
+Burton C. Bell
+Christian Olde Wolbers
+
+(P)&(C) 1995 THE ALL BLACKS B.V.
+
+### "Remanufacture (Cloning Technology)" 1997, Industrial
+
+ 1. Remanufacture (Demanufacture)
+ 2. National Panel Beating (Body Hammer)
+ 3. Genetic Blueprint (New Breed)
+ 4. Faithless (Zero Signal)
+ 5. Bionic Chronic
+ 6. Cloning Technology (Replica)
+ 7. Burn (Flashpoint)
+ 8. T-1000 (H-K)
+ 9. Machines Of Hate (Self Bias Resistor)
+10. 21st Century Jesus (Pisschrist)
+11. Bound For Forgiveness (A Therapy For Pain)
+12. Refinery
+13. Remanufacture (Edited Version)
+
+
+
+
+### "Burn (single)" 1997, Death Industrial
+
+1. Burn
+2. Cyberdyne
+3. Transgenic
+4. Refueled
+
+### "Obsolete" 1998, Death Industrial
+
+1. Shock
+ 2. Edgecrusher
+ 3. Smasher/Devourer
+ 4. Securitron (Police State 2000)
+ 5. Descent 
+ 6. Hi-Tech Hate
+ 7. Freedom or Fire
+ 8. Obsolete
+ 9. Resurrection
+10. Timelessness
+11. Cars (*)
+12. 0-0 (Where Evil Dwells) (*)
+13. Soulwound (*)
+14. Messiah (*) 
+15. Concreto (*)  
+
+(*) Tracks from collector's edition
+
+### "Resurrection (single)" 1998, Death Industrial
+
+1. Resurrection
+2. O-O (Where Evil Dwells)
+3. Soulwound
+
+### "Evolution (EP)" 1998, Death Industrial
+
+1. Edgecrusher
+2. Remanufacture
+3. Replica
+4. Your Mistake
+5. Scapegoat (Pigfuck Mix)
+6. Martyr
+
+### "Cars (single)" 1999, Industrial
+
+1. Cars
+2. Edgecrusher (Urban Assault Mix)
+3. Descent (Falling Deeper Mix)
+
+### "Digimortal" 2001, Industrial
+
+1. What Will Become? 
+ 2. Damaged  
+ 3. Digimortal    
+ 4. No One  
+ 5. Linchpin  
+ 6. Invisible Wounds (Dark Bodies)  
+ 7. Acres of Skin  
+ 8. Back the F*** Up  
+ 9. Byte Block  
+10. Hurt Conveyor  
+11. (Memory Imprints) Never End  
+12. Dead Man Walking (*)  
+13. Strain Vs. Resistance (*)  
+14. Repentance (*)  
+15. Full Metal Contact (*)  
+
+(") Collector's edition tracks
+
+### "Concrete (demo)" 2002, Death Industrial
+
+1. Big God/Raped Souls
+2. Arise Above Oppression
+3. Concrete
+4. Crisis
+5. Escape Confusion
+6. Sangre de Ninos
+7. Soulwomb
+8. Echoes Of Innocence
+9. Dragged Down By The Weight Of Existence
+10. Deception
+11. Desecrate
+12. Suffer Age
+13. Anxiety
+14. Self Immolation
+15. Piss Christ
+16. Ulceration
+
+### "Hatefiles (compilation)" 2003, Death Industrial
+
+1. Terminate 
+2. Frequency 
+3. Demolition Racer 
+4. Machine Debaser 
+5. Invisible Wounds (The Suture Mix) 
+6. Edgecrusher (Urban Assault Mix) 
+7. Descent (Falling Deeper Mix) 
+8. Body Hammer (Colin Richardson Mix) 
+9. Zero Signal (Colin Richardson Mix) 
+10. Resurrection (T.L.A. Big Rock Mix) 
+11. Cars (Numanoid Mix) 
+12. Dark Bodies (Demo) 
+13. Replica 
+14. Cyberdyne 
+15. Refueled 
+16. Transgenic
+
+### "Archetype" 2004, Death Industrial
+
+1. Slave Labor
+2. Cyberwaste
+3. Act of God
+4. Default Judgement
+5. Corporate Cloning
+6. Archetype
+7. Drones
+8. Bite The Hand That Bleeds... 
+9. Bonescraper
+10. Undercurrent
+11. Human Shields
+12. Ascencion (outro)
+13. School (NIRVANA cover) (bonus track)
+
+### "Transgression" 2005, Death Industrial
+
+01. Transgression
+02. Contagion Empire
+03. Empty Vision
+04. New Promise
+05. Supernova
+06. 540,000 Degrees Fahrenheit
+07. Spinal Contagion
+08. Moment of Impact
+09. Ammunition
+10. Echo of My Scream
+11. Anthem (GODFLESH)
+12. Millenium (KILLING JOKE)
+
+### "Mechanize" 2010, Death Industrial
+
+1. Mechanize
+2. Industrial Discipline
+3. Fear Campaign
+4. Powershifter
+5. Christploitation
+6. Oxidizer
+7. Controlled Demolition
+8. Designing the Enemy
+9. Metallic Division
+10. Final Exit
+11. Crash Test
+
+### "Recharger [single]" 2012, Death Industrial
+
+01. Recharger 04:09
+
+
+### "The Industrialist" 2012, Death Industrial
+
+1. The Industrialist
+2. Recharger
+3. New Messiah
+4. God Eater
+5. Depraved Mind Murder
+6. Virus of Faith
+7. Difference Engine
+8. Dissemble
+9. Religion is Flawed Because Man is Flawed
+10. Human Augmentation
+11. Blush Response (Difference Engine) (Bonus Track)
+12. Landfill (Bonus Track) 
+
+### "Genexus" 2015, Industrial
+
+1. Autonomous Combat System  
+2. Anodized      
+3. Dielectric   
+4. Soul Hacker  03:11  
+5. Protomech    
+6. Genexus   
+7. Church of Execution   
+8. Regenerate     
+9. Battle for Utopia     
+10. Expiration Date      
+11. Mandatory Sacrifice (Genexus Remix)  *  
+12. Enhanced Reality  * 
+
+
 
 ## Отношения с другими группами
 

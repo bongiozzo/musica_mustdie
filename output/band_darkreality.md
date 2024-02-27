@@ -1,8 +1,54 @@
 # Dark Reality
 
-Дискография
-"Blossom Of Mourning" 1996, Death Doom
-"Oh Precious Haze Pervade The Pain" 1997, Death Doom
+
+
+## Дискография
+
+### "Blossom Of Mourning" 1996, Death Doom
+
+1. Am Ende Des Weges (5.39)
+2. Ants Under Glass (5.13)
+3. In The Cathedral (7.18)
+4. Ashen (7.16)
+5. Gruselett (1.25)
+6. Gewitterfront (5.08)
+7. Moping Carol (6.00)
+8. Will To Deny (5.29)
+9. Little Chaffinch (2.13)
+
+All songs written by DARK REALITY
+Produced by DARK REALITY
+Engineered by Hardy Heinlin
+Recorded and mixed at Marquee Studios Reutlinger
+
+Alex Schiem - Bass
+Martin Heinzelmann - Guitars
+Oliver Ramacher - Stimme, Vocals
+Philipp Kailer - Guitars, Programming
+Andres Waldura - Blockfloten,  Krummhorn, Vocals
+
+(p)c 1996 WITCHHUNT Records
+
+### "Oh Precious Haze Pervade The Pain" 1997, Death Doom
+
+1. Silberstreif
+2. Rain Orison
+3. Skytied
+4. Spingono I Vecchi Giorni
+5. Fruhling, Elegisch
+6. Futility
+7. Erkenntnis
+8. A Glimpse
+9. Lokrischer Traum
+10. Facetting
+11. Sternennacht
+Martin Heinzelmann - Gittaren, Hintergrundgesang
+Philipp Kailer - Gitarren, Gesang
+Alexander Schiem - Bassgitarre, Hintergrundgesang
+Andres Waldura - Gesang, Blockfloten, Krummhorn
+Violoncello in 4 : Ulrich Schmatz
+(p)1997 PCN by DARK REALITY
+
 
 ## Отношения с другими группами
 

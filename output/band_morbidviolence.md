@@ -1,7 +1,24 @@
 # Morbid Violence
 
-Дискография
-"Winds of Madness" 2009, Black Metal
+
+
+## Дискография
+
+### "Winds of Madness" 2009, Black Metal
+
+1. The Mass 05:53  
+2. Whitch Never Die 04:40  
+3. The Winds of Madness and the Kings of a Past 04:27  
+4. Angels 05:48  
+5. Hear Me! 06:58  
+6. Dead Bride 04:30  
+7. The Star of Bifliem 06:06  
+8. Exile of Heaven 04:41  
+9. Master of Creation 04:15  
+10. Knights 05:01  
+11. Devils Daughter 04:46  
+12. Savages 04:29 
+
 
 ## Отношения с другими группами
 

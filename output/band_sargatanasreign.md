@@ -1,7 +1,22 @@
 # Sargatanas Reign
 
-Дискография
-"Bloodwork - Techniques Of Torture" 2005, Death Metal
+
+
+## Дискография
+
+### "Bloodwork - Techniques Of Torture" 2005, Death Metal
+
+Preface 
+Techniques of Torture 
+Chaos Theory 
+Sliver 
+Come Greet me Crawlers 
+Hellnation 
+Blood Katharsis 
+The Parnassus Journal 
+Blindfolded 
+Kevlar Throat
+
 
 ## Отношения с другими группами
 

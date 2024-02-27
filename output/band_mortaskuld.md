@@ -1,10 +1,68 @@
 # Morta Skuld
 
-Дискография
-"Dying Remains" 1993, Death Metal
-"" 1994, Death Metal
-"For All Eternity" 1995, Death Metal
-"Re-Surface... The Best Of Morta Skuld" 2005, Death Metal
+
+
+## Дискография
+
+### "Dying Remains" 1993, Death Metal
+
+1. Lifeless (Instr.)
+2. Without Sin
+3. Devoured Fears
+4. Dying Remains
+5. Useless To Mankind
+6. Rotting Ways
+7. Withering Seclusion
+8. Hatred Creation
+9. Consuming Existence
+10.Presumed Dead
+
+ Dave Gregor - Vocals & Guitars
+ Jason O`Connel - Guitars
+ Jason Hellman - Bass
+ Kent Truckenbrod - Drums
+
+All Music Written By MORTA SKULD.
+Produced By Paul Kneevers & MORTA SKULD.
+Engineered By Paul Kneevers.
+Recorded At Cornerstone Recording Studios,
+Milwaukee,Wisconsin.
+
+(c) 1993 VILE MUSIC Records
+(p) 1993 DEAF Records
+
+### "" 1994, Death Metal
+
+
+
+### "For All Eternity" 1995, Death Metal
+
+1. Bitter Remembrance
+2. Justify
+3. Second Thought
+4. Crawl Inside
+5. For All Eternity
+6. Tears Of A Fallen Race
+7. The Bleeding Heart
+8. Burning Daylight
+9. The Vicious Circle
+
+All Songs By MORTA SKULD.
+Produced By Paul Kneevers & MORTA SKULD.
+Recorded & Engineered By Paul Kneevers & Jeff Hamilton.
+Recorded & Mixed At Guerilla Recording Studios, Milwaukee.
+ 
+Dave Gregor - Vocals &Guitars
+Jason O'Connell - Guitar
+Jason Hellman - Bass
+Kent Truckenbrod - Drums
+
+(P)&(C) 1995 PEACEVILLE Records
+
+### "Re-Surface... The Best Of Morta Skuld" 2005, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,43 @@
 # Epitaph
 
-Дискография
-"Epitaph" 1992, Death Doom
-"Seeming Salvation" 1994, Death Doom
+Melodic Death Metal
+
+## Дискография
+
+### "Epitaph" 1992, Death Doom
+
+1. I Endeavor
+2. Once Removed
+3. Transgression Of Dreams
+
+(p)&(c) 1992
+
+### "Seeming Salvation" 1994, Death Doom
+
+1. Chastity
+2. Seeming Salvation
+3. Pray To Dismay
+4. Engraving The Epitaph
+5. The Twisted Grace
+6. Self-Inflicted
+7. Purgation From Within
+8. Disorientation
+9. Seeking Life
+10. Of Violet Fire
+
+ Manne Svensson - Guitars
+ Nicke Hagen - Bass
+ Johan Enochsson - Drums, Vocals
+Nicke (FLESHCRAWL) - Back Vocals On 3
+Christopher Johnsson (THERION) - Back Vacals On 6,7
+
+All Songs By EPITAPH
+Produced By Tomas Skogsberg & EPITAPH
+Engineered By Tomas Skogsberg
+Recorded In Sunlight Studios
+
+(p)&(c) 1994 THRASH Records
+
 
 ## Отношения с другими группами
 

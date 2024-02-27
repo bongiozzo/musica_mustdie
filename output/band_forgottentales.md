@@ -1,9 +1,64 @@
 # Forgotten Tales
 
-Дискография
-"The Promise" 2001, Power Metal
-"All The Sinners" 2004, Power Metal
-"We Shall See The Light" 2010, Power Metal
+
+
+## Дискография
+
+### "The Promise" 2001, Power Metal
+
+      1. Intro
+      2. Word Of truth
+      3. Cold Heart
+      4. Far Away
+      5. Gates Beyond Reality
+      6. Sanctuary
+      THE TALE OF NEERIS
+      7. Part I.She's Falling
+      8. Part II.Deadly Grasp
+      9. Part III.Endless Dream
+      10. Part IV.The Promise
+
+
+
+      Sonia Pineault- vocals
+      Martin Desharnais-guitars
+      Alexandre Therrien-guitars
+      Cedric Prevost-drums
+      Patrick Vir-bass
+      Frederic Desroches-keyboards
+
+
+### "All The Sinners" 2004, Power Metal
+
+1. The hideaway (1:53) 
+2. Lady of the forest (5:00) 
+3. All The Sinners (4:02) 
+4. Wind Oh Wind (6:09) 
+5. The message (4:44) 
+6. March for freedom (4:25) 
+7. Three wishes (8:47) 
+8. Fairytales (5:11)
+9. My soul (6:42) 
+10. Magic fountain (4:28) 
+
+- Sonia Pineault / vocals 
+- Martin Desharnais / guitar 
+- Pat Vir / bass 
+- Frйdйrick Desroches / keyboards 
+- Cйdrick Prйvost / drums
+
+### "We Shall See The Light" 2010, Power Metal
+
+1. We Shall See The Light  05:25   
+2. Guardian Angel  05:09 
+3. Keepers Of The Field  05:15   
+4. The Reaper  05:05   
+5. Diviner  06:22  
+6. The Calling  05:40 
+7. Howling At The Moon  05:20 
+8. Broken Wings  05:26 
+9. Angel Eyes  04:55 
+
 
 ## Отношения с другими группами
 

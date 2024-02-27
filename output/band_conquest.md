@@ -1,11 +1,93 @@
 # Conquest
 
-Дискография
-"Endless Power" 2002, Power Metal
-"Frozen Sky" 2005, Power Metal
-"Empire" 2009, Power Metal
-"IV" 2011, Power Metal
-"Taste Of Life" 2015, Power Metal
+
+
+## Дискография
+
+### "Endless Power" 2002, Power Metal
+
+01. Motherland (Overture)
+02. I`ve Seen You In My Dreams
+03. I`m Flying Back
+04. Angry Angel
+05. Winter Has Come
+06. Ancient Winds
+07. This World Law
+08. Before It`s Done
+09. I Wanna Be With You
+10. The Last Sphinx
+11. Rock'n'Roll To Death
+12. Destiny
+13. Endless Power
+
+
+
+Jenick D. Lenkoff - lead vocals
+W. Angel - guitars, back vocals & additional keyboards
+Alexander Zakharov - guitars, back vocals
+Alexander 'KoSa' Kovalevsky - bass
+Sergei Balalajev - drums
+
+Recorded at W. Angel studio / S.M.S Factory
+(Kharkiv) in May - July 2000
+Engineered by W. Angel
+Produced by W. Angel & Conquest
+Management: CoreZone
+All songs written by Conquest
+Solo in "Ancient Winds" by Stratovarius
+Layout and final disign by Igor 'Jeff' Polyakov
+
+
+
+
+
+### "Frozen Sky" 2005, Power Metal
+
+1. Intro   
+2. The Ways Of Vice   
+3. My Aim   
+4. The Road To Nowhere   
+5. Flying In The Rain   
+6. The Temple Of Fear   
+7. Don't Tell Me Farewell   
+8. Sunset   
+9. Before The War   
+10. Warbeast   
+11. Frozen Sky
+
+### "Empire" 2009, Power Metal
+
+1. In the Darkness (Intro) 01:42  
+2. It Begins From Your Heart 05:05  
+3. Far Beyond 05:26  
+4. Prisoner of the Universe 04:54  
+5. We Have Returned 03:48  
+6. When the Skies Fall 04:46  
+7. We Are the Ones 04:43  
+8. Faith Within 05:27  
+9. The Never-Ending Quest Will End 04:46  
+10. Empire 06:22 
+
+### "IV" 2011, Power Metal
+
+1. Storm
+2. Last Battle
+3. Godless Territory
+4. Metal Wings
+5. My Special Way
+6. Seventh Gate
+7. Save Me
+8. Frozen Angel
+9. Be My Light
+10. Intruder
+11. Forgotten Dreams
+12. Anthem	
+13. I Wanna Be With You (Acoustic) (Japanese Bonus Track)
+
+### "Taste Of Life" 2015, Power Metal
+
+
+
 
 ## Отношения с другими группами
 

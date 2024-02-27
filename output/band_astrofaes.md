@@ -1,13 +1,87 @@
 # Astrofaes
 
-Дискография
-"Dying Emotions Domain" 1998, Black Metal
-"The Eyes of the Beast" 2000, Black Metal
-"Ancestors' Shadows" 2002, Black Metal
-"Heritage" 2002, Black Metal
-"Those Whose Past is Immortal " 2005, Black Metal
-"Idea. Form. Essence " 2007, Black Metal
-"Live Hate [DVD]" 2009, Black Metal
+
+
+## Дискография
+
+### "Dying Emotions Domain" 1998, Black Metal
+
+1. The Black Woods Theory 01:36  
+2. Fiery Mysticism 09:10
+3. At Nightfall 04:34 
+4. Path To Burning Space 05:02
+5. Necromantical Screams 04:54
+6. Ad Infinitum (Dark II) 08:10 
+7. Dying Emotions Domain 06:32  
+8. A Song of the Night Birds 01:18 
+
+### "The Eyes of the Beast" 2000, Black Metal
+
+1. The Eyes of the Beast 06:29
+2. And Winter Will Rise... 05:55
+3. Secret of Eternal Forests 04:46
+4. The Solstice 04:43 
+5. The Light of Blood and Pain 06:21
+6. Days of Darkness 05:01
+7. Damnation of Silence 08:52 
+
+### "Ancestors' Shadows" 2002, Black Metal
+
+1. On the Eternal Way 05:49
+2. Under the Cover of Destiny 05:42 
+3. Thunder I Shall Bring 07:54 
+4. Immortality Reached Fire 06:12 
+5. After the Battle 07:44 
+6. The Last Dawn 05:22  
+7. The Call of My Land 07:00 
+
+### "Heritage" 2002, Black Metal
+
+1. The Spirit Born of Freedom 08:08
+2. Forgotten Name 04:42
+3. Ancestors' Shadows 05:57
+4. Awakening 06:28 
+5. Through Time of Memory 08:11 
+
+### "Those Whose Past is Immortal " 2005, Black Metal
+
+1. The Principle of Existence 08:39
+2. Hate Fang 06:44  
+3. The Depths of the Past 09:45
+4. Blackest Mountain Chain of Cursed Time 09:45
+5. The Abyss (The Edge of Eternity) 07:09
+6. Soul of The Black Forest 05:47 
+7. Glacial Darkness 03:53 
+
+### "Idea. Form. Essence " 2007, Black Metal
+
+1. Let Life Be Carried Away By Emptiness 05:22
+2. The Catacombs Of Consciousness 08:13
+3. Idea. Form. Essence... 04:30
+4. And Swallowing The Foam Of Fury In The Rage 07:55
+5. Among Hungry Curs 07:13
+6. Conspiracy Of Silence 04:18 
+7. In The Fog 09:06 
+
+### "Live Hate [DVD]" 2009, Black Metal
+
+Live In Moscow 15/05/2004
+The Eyes of The Beast
+The Principle of Existence
+Hate Fang
+Dшdens Grшde*
+Soul of The Black Forest
+Thunder I Shall Bring
+
+Live In Kyiv 30/04/2004
+Hate Fang
+Dшdens Grшde*
+
+Live in Minsk 11/06/2004
+The Eyes of The Beast
+The Principle of Existence
+Soul of The Black Forest 
+
 
 ## Отношения с другими группами
 

@@ -1,22 +1,173 @@
 # Scorn
 
-Дискография
-"Vae Solis" 1992, Industrial
-"Deliverance (single)" 1992, Industrial
-"Lick Forever Dog (EP)" 1992, Industrial
-"Colossus" 1993, Industrial
-"Evanescence" 1994, Industrial
-"Gyral" 1995, Industrial
-"Ellipsis" 1995, Industrial
-"Logghi Barogghi" 1996, Industrial
-"Zander" 1997, Industrial
-"Whine" 1997, Industrial
-"Greetings From Birmingham" 2000, Industrial
-"Imaginaria Award (EP)" 2000, Industrial
-"Plan B" 2002, Industrial
-"List Of Takers" 2004, Industrial
-"Stealth" 2007, Industrial
-"Refuse;Start Fires" 2010, Industrial
+ex-Napalm Death
+
+## Дискография
+
+### "Vae Solis" 1992, Industrial
+
+1. Spasm
+2. Suck And Eat You
+3. Hit
+4. Walls Of My Heart
+5. Lick Forever Dog
+6. Thoughts Of Escape
+7. Deep In - Eaten Over & Over...
+8. On Ise
+9. Heavy Blood
+10.Scumafter Death (Dub)
+11.Fleshpile (Edit)
+12.Orgy Of Holiness
+13.Still Life
+
+ M.J.Harris  (Michael John Harris).
+ N.J.Bullen  (Nicholas James Bullen).
+
+Instruments Used: Bass Guitar,Drums,Drum Machine,
+ Samples/Sequenser.
+
+Vocals:  N.J. Bullen.
+Backing Vocals: M.J. Harris.
+
+All Lyrics: N.J. Bullen.
+All Music Constructed By: M.J. Harris,N.J. Bullen.
+Respect To Justin Broadrick For Playing Guitar On
+This Recording.
+Recorded & Mixed At Rhythm Studios-Bidford/Warwickshire.
+Engineered By Paul Johnson.
+Produced By M.J. Harris And N.J. Bullen.
+
+(p)&(c) 1992 EARACHE Records
+
+### "Deliverance (single)" 1992, Industrial
+
+1. Deliverance
+2. Deliverance Through Dub
+3. Delivered
+4. To High Heaven
+5. Black Sun Rising
+
+ Michael John Harris
+ Nicholas James Bullen
+
+SCORN Use: Bass Guitar,Lead Guitar
+  Percussion,Drum Machine,
+  Samples,Voice.
+
+Produced By SCORN.
+Engineered By John Wakelin.
+Recorded & Mixed At "Jasmince Cafe Studio"
+Birmingham,July-August 1992.
+
+(p)&(c) 1993 EARACHE Records
+
+### "Lick Forever Dog (EP)" 1992, Industrial
+
+1. Lick Forever Dog
+2. On Ice (Disembodied In Dub)
+3. Heavy Blood (Ambied Treaks Mix)
+4. Heavy Blood (The Blood Fire Dub)
+
+(p)&(c) 1992 EARACHE Records
+
+### "Colossus" 1993, Industrial
+
+1. Endless
+2. Crimson Seed
+3. Blackout
+4. The Sky Is Loaded
+5. Nothing,Hunger
+6. Beyond
+7. Little Angel
+8. White Irises Blind
+9. Scorpionic
+10.Nights Ash Black
+11.Sunstroke
+
+ Michael John Harris
+ Nicholas James Bullen
+
+SCORN Use: Bass Guitar,Lead Guitar, Percussion, Drum Machine, Samples,Voice.
+
+Produced By SCORN.
+Engineered By John Wakelin.
+Recorded & Mixed At "Jasmince Cafe Studio"
+Birmingham,Dec `92 - Jan `93.
+
+(p)&(c) 1993 EARACHE Records
+
+### "Evanescence" 1994, Industrial
+
+1. Silver Rain Fell
+2. Light Trap
+3. Falling
+4. Automata
+5. Days Passed
+6. Dreamspace
+7. Exodus
+8. Night Tide
+9. The End
+10. Slumber
+
+### "Gyral" 1995, Industrial
+
+1. Six Hours One Week
+2. Time Went Slow
+3. Far In Out
+4. Stairway
+5. Forever Turning
+6. Black Box
+7.Hush
+8.Trondheim - Gavle
+9.Pashupatinath *
+
+All Songs By SCORN, Except *
+Written By PAINKILLER For SCORN.
+Created & Mixed By Mick Harris.
+Mastered By Noel Summerville.
+
+(P)&(C) 1995 EARACHE Records
+
+### "Ellipsis" 1995, Industrial
+
+
+
+### "Logghi Barogghi" 1996, Industrial
+
+
+
+### "Zander" 1997, Industrial
+
+
+
+### "Whine" 1997, Industrial
+
+
+
+### "Greetings From Birmingham" 2000, Industrial
+
+
+
+### "Imaginaria Award (EP)" 2000, Industrial
+
+
+
+### "Plan B" 2002, Industrial
+
+
+
+### "List Of Takers" 2004, Industrial
+
+
+
+### "Stealth" 2007, Industrial
+
+
+
+### "Refuse;Start Fires" 2010, Industrial
+
+
+
 
 ## Отношения с другими группами
 

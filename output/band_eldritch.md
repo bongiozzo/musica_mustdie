@@ -1,16 +1,119 @@
 # Eldritch
 
-Дискография
-"Seeds of Rage" 1995, Progressive
-"Headquake" 1997, Progressive
-"El Nino" 1998, Progressive
-"Reverse" 2001, Progressive
-"Portrait Of the Abyss Within" 2004, Progressive
-"Neighbourhell" 2006, Progressive
-"Blackenday" 2007, Progressive
-"Gaia's Legacy" 2011, Progressive
-"Tasting the Tears" 2014, Progressive
-"Underlying Issues" 2015, Progressive
+prog-power
+
+## Дискография
+
+### "Seeds of Rage" 1995, Progressive
+
+1. Incurably Ill  06:42   
+2. Under This Ground  04:58 
+3. Chains  05:12   
+4. Cage of Sins  04:49  
+5. Colors  06:15   
+6. The Deaf and the Blind  04:00   
+7. Ultimate Solution  05:19   
+8. I Don't Know Why  04:41   
+9. Chalice of Insanity  03:38   
+10. Blind Promise  05:18 
+
+### "Headquake" 1997, Progressive
+
+1. Ghoulish Gift  06:52   
+2. The Last Embrace  06:42   
+3. Lord of an Empty Place  05:28
+4. Sometimes in Winter  06:18   
+5. At the Restless Sea  07:02   
+6. Salome's Dance  05:27   
+7. Erase  06:08 
+8. The Quest(ion)  05:28   
+9. Clockwork Bed  05:29  
+10. Dawn of the Dying  06:29 
+
+### "El Nino" 1998, Progressive
+
+1. Fall from Grace  02:06    
+2. No Direction Home  07:06 
+3. Heretic Beholder  05:05 
+4. Scar  04:27
+5. Bleed Mask Bleed  04:38   
+6. The Last Days of the Year  04:32   
+7. From Dusk till Dawn  05:38 
+8. To Be or Not to Be (God)  07:14  
+9. El Nino  05:32 
+
+### "Reverse" 2001, Progressive
+
+1. E-Nest  01:10    
+ 2. Reverse  05:08  
+3. Slavery on Line  05:17   
+4. Leftovers and Crumbs  04:32 
+5. Bittersweet Penny  04:28 
+6. Bio-Trinity  05:51   
+7. Suffering Degree  04:31 
+8. My Sharona  03:10    
+9. Soul Shrinkage  04:02  
+10. Leech  04:30 
+11. Little Irwin  06:10 
+
+### "Portrait Of the Abyss Within" 2004, Progressive
+
+
+
+### "Neighbourhell" 2006, Progressive
+
+
+
+### "Blackenday" 2007, Progressive
+
+1. Silent Flame  04:48   
+2. The Deep Sleep  03:22
+3. The Blackened Day  04:48 
+4. Why?  03:39   
+5. Black Rain  03:30   
+6. Broken Road  04:54   
+7. Rumors  05:29   
+8. Frozen  04:31  
+9. The Child That Never Smiles  03:23 
+10. The Fire  03:45   
+11. Shallow Water Flood  04:33   
+12. Never Dawn  04:20 
+
+### "Gaia's Legacy" 2011, Progressive
+
+1. Gaia's Legacy 
+2. Deviation 
+3. Our Land 
+4. Vortex Of Disaster 
+5. Mother Earth 
+6. Everything's Burning 
+7. Thinning Out 
+8. Like A Child 
+9. Signs 
+10. Thoughts Of Grey 
+11. Thirst In Our Hands (Dry Tears) 
+12. Through Different Eyes (Fates Warning Cover)
+
+
+Terence Holler: Vocals 
+Eugene Simone: Lead guitars  
+Rudj Ginanneschi: Rhythm guitars
+John Crystal: Bass 
+Gabriele Caselli: Keyboards 
+Raffahell Dridge: Drums 
+Guest: 
+Bob Katsionis - Keyboards Solo
+
+Concept on global warming based on Al Gore’s documentary ‘An Inconvenient Truth’. 
+
+### "Tasting the Tears" 2014, Progressive
+
+
+
+### "Underlying Issues" 2015, Progressive
+
+
+
 
 ## Отношения с другими группами
 

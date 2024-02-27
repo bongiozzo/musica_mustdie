@@ -1,7 +1,42 @@
 # Skeletal Earth
 
-Дискография
-"Eulogy For A Dying Fetus" 1991, Death Metal
+
+
+## Дискография
+
+### "Eulogy For A Dying Fetus" 1991, Death Metal
+
+1. Intro
+2. No Room For Mortals
+3. Dying By The Dollar
+4. Generations Of The Lamb
+5. Vegetable
+6. Psych
+7. Animated Life Stules
+8. Skank Or Rot
+9. You Really Got Me
+10.I Wanna Puke
+11.Generic Ruins
+12.System Slut
+13.You`re The Subject
+14.Third World Vacation
+15.Fat Maggot
+16.Even The Water Reeks
+17.No Fucking Way
+18.Chainsaw Sodomy
+19.Fucking You
+
+ Travis Ogletree - Vocals
+ Eric Hosmer - Guitars
+ Jared Reed - Bass
+ Doug Sylvia - Drums
+
+All Songs By Skeletal Earth
+Produced By Scott Burns
+Recorded At Morrisound Recording, Tampa, Florida
+
+(p)&(c) 1991 FOUNDATION 2000 Productions
+
 
 ## Отношения с другими группами
 

@@ -1,10 +1,89 @@
 # All Shall Perish
 
-Дискография
-"Hate Malice Revenge" 2005, Nu Metal
-"The Price Of Existence" 2006, Nu Metal
-"Awaken The Dreamers" 2008, Metalcore
-"This Is Where It Ends" 2011, Metalcore
+
+
+## Дискография
+
+### "Hate Malice Revenge" 2005, Nu Metal
+
+01. Deconstruction
+02. Laid To Rest
+03. Our Own Grave
+04. The Spreading Disease
+05. Sever The Memory
+06. For Far Too Long…
+07. Never Ending War
+08. Herding The Brainwashed
+
+### "The Price Of Existence" 2006, Nu Metal
+
+01. Eradication
+02. Wage Slaves
+03. The Day Of Justice
+04. There Is No Business To Be Done On A Dead
+Planet
+05. Better Living Through Catastrophe
+06. Prisoner Of War
+07. Greyson
+08. We Hold These Truths
+09. The True Beast
+10. Promises
+11. Last Relapse
+
+### "Awaken The Dreamers" 2008, Metalcore
+
+01. When Life Meant More...
+02. Black Gold Reign
+03. Never...Again
+04. The Ones We Left Behind
+05. Awaken The Dreamers
+06. Memories Of A Glass Sanctuary
+07. Stabbing To Purge Dissimulation
+08. Gagged, Bound, Shelved And Forgotten
+09. Until The End
+10. From So Far Away
+11. Misery's Introduction
+12. Songs For The Damned
+
+Beniko Orum - Guitar
+Mike Tiner - Bass
+Matt Kuykendall - Drums
+Chris Storey - Lead Guitar
+Hernan Hermida - Vocals
+
+Recorded at Castle Ultimate studios in Emeryville,
+ca, April 7th to may 2nd 2008 by Zack Ohren.
+Produced by All Shall Perish and Zack Ohren
+Mixed by All Shall Perish and Zack Ohren
+Masted by Alan Douches at West Side Mastering
+Artwork and layout by Colin Marks @ Rain Song
+Design
+Cover illustation by Skylar @ www.skygraprix.com
+Touring musicians:
+Ian Webb- guitar
+Bray Almini - bass
+Joey Ellis- guitar
+Jeremy Cohen -bass
+Music by All Shall Perish
+Solos by Chris Storey except on "from so far away"
+by Rusty Cooley
+Lyrics by Herman Hermida and Matt Kuykendall
+
+### "This Is Where It Ends" 2011, Metalcore
+
+1. Divine Illusion  03:22   
+2. There Is Nothing Left  03:22  
+3. Procession of Ashes  04:37
+4. A Pure Evil  05:12 
+5. Embrace the Curse  02:57 
+6. Spineless  03:57   
+7. The Past Will Haunt Us Both  06:05 
+8. Royalty into Exile  04:24
+9. My Retaliation  03:23 
+10. Rebirth  05:29  
+11. The Death Plague  03:03
+12. In this Life of Pain  07:33 
+
 
 ## Отношения с другими группами
 

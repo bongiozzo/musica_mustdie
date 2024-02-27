@@ -1,8 +1,17 @@
 # Wishbone Ash
 
-Дискография
-"Lost Pearls" 2004, Rock
-"Clan Destiny" 2006, Rock
+
+
+## Дискография
+
+### "Lost Pearls" 2004, Rock
+
+
+
+### "Clan Destiny" 2006, Rock
+
+
+
 
 ## Отношения с другими группами
 

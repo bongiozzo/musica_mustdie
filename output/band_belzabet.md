@@ -1,7 +1,17 @@
 # Belzabet
 
-Дискография
-"Before Night Fall" 2003, Melodic Death Metal
+
+
+## Дискография
+
+### "Before Night Fall" 2003, Melodic Death Metal
+
+The Return... 
+In The Dawn Of The Eternal Life (Vers. 2)/Between Moons 
+Mistress Of Frigid Night (Vers. 2) 
+Tragedy In Theater Of Hermandstadt 
+Before Night Fall
+
 
 ## Отношения с другими группами
 

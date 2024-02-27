@@ -1,8 +1,36 @@
 # Kabak
 
-Дискография
-"Descomposicion Cerebral" 1999, Deathcore
-"Cronicas Del Quirofano" 2002, Deathcore
+
+
+## Дискография
+
+### "Descomposicion Cerebral" 1999, Deathcore
+
+1. Asauras Purulentas [Intro] 00:34  
+2. Catastrofe Letrinal 05:02
+3. Descomposicion Cerebral 05:40  
+4. Supuracion 04:34  
+5. Execrable Electrolisis 08:32  
+6. Expectoracion Necrotizada 00:27  
+7. Macrovomitorium 04:51  
+8. Necrocomezon 04:55  
+9. Parasitos Incontrolables De Putrefaccion 04:55  
+10. Ventosos Lacrimogenos 03:52 
+
+### "Cronicas Del Quirofano" 2002, Deathcore
+
+1. Several Necrosis 05:20  
+2. Mala Praxis (Breast Cancer) 04:26  
+3. Cronica Arteritis Posttraumatica 04:59  
+4. Cataplexia Ante Mortem 04:56  
+5. Antiperistaltismo Duodenal 05:20  
+6. Intro / Several Necrosis 05:03  
+7. Cronica Arteritis Postraumatico 04:23  
+8. Supuracion 04:00  
+9. Reversion Genetica Epifenomena 04:37  
+10. Mala Praxis 04:01  
+11. 3 Live tracks on CD-Rom 
+
 
 ## Отношения с другими группами
 

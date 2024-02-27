@@ -1,11 +1,102 @@
 # Tenhi
 
-Дискография
-"Hallavedet" 1998, Folk
-"Kauan" 2000, Folk
-"airut:ciwi" 2000, Folk
-"Vare" 2002, Folk
-"Maaдet" 2006, Folk
+folk-gothic-rock
+
+## Дискография
+
+### "Hallavedet" 1998, Folk
+
+1. Hallavedet
+2. The Glacial Waters
+3. Hilajaiseksi Lampi Jaa
+4. The Pond Stays Still
+
+
+
+tyko saarikko: vocals, synth, guitar
+ilkka salminen: vocals, drums, guitar
+ilmari issakainen: bass 
+
+
+### "Kauan" 2000, Folk
+
+1. nokin laulu
+2. huomen
+3. revontulet
+4. hallavedet
+5. etoisyyksien taa
+6. lauluni sinulle, taival
+7. soutu 
+
++niin auer hiljaa vie
++kielo (unreleased version) 
+
+
+
+tyko saarikko: vocals, synth, guitar, effects
+ilkka salminen: drums, guitar, vocals
+ilmari issakainen: bass, guitar, grand piano, percussions, backing vocals
+eleonora lundell: violin 
+
+
+### "airut:ciwi" 2000, Folk
+
+1. tuulennostatus
+2. kielo
+3. ciwenkierto 
+
+
+
+tyko saarikko: vocals, synth, guitar, mouth harp, didgeridoo
+ilkka salminen: guitar
+ilmari issakainen: bass, guitar, piano, percussions
+eleonora lundell: violin
+veera partanen: flute 
+
+
+### "Vare" 2002, Folk
+
+1. Vastakaiun
+2. Jaljen
+3. Vilja
+4. Kevain
+5. Yota
+6. Suortuva
+7. Tenhi
+8. Sutoi
+9. Katve
+10. Varis Eloinen
+11. Kuolleesi Jokeen 
+
+
+
+tyko saarikko: vocals, synth, guitar, mouth harp, didgeridoo
+ilkka salminen: vocals, guitar
+ilmari issakainen: drums, bass, guitar, piano, percussions, backing vocals
+eleonora lundell: alto violin
+janina lehto: flute
+inka eerola: violin
+jaakko hilppo: bass, backing vocals
+kirsikka: cello
+
+
+
+
+### "Maaдet" 2006, Folk
+
+Varpuspaiva
+Kuoppa
+Kuulut Kesiin
+Salain
+Viimeiseen
+Vahainen Violetissa
+Sarastuskaivija
+Maa Syttyy
+Tuulenkaato
+Aatos
+Uuvu Oravan Luu
+Rannalta Haettu
+
 
 ## Отношения с другими группами
 

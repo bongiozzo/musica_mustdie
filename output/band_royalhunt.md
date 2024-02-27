@@ -1,24 +1,275 @@
 # Royal Hunt
 
-Дискография
-"Land Of  Broken Hearts" 1993, Progressive
-"Moving Target" 1995, Progressive
-"Clown In The Mirror" 1996, Progressive
-"Paradox" 1997, Progressive
-"Fear" 1999, Progressive
-"Intervention" 2000, Progressive
-"The Mission" 2001, Progressive
-"The Watchers" 2002, Progressive
-"Eye Witness" 2003, Progressive
-"Paper Blood" 2005, Progressive
-"2006 Live (CD/DVD)" 2006, Progressive
-"2006 Live (2 CD)" 2006, Progressive
-"Collision Course... Paradox 2" 2008, Progressive
-"X" 2010, Progressive
-"Hard Rain's Coming (single)" 2011, Progressive
-"Show Me How To Live" 2011, Progressive
-"A Life To Die For" 2013, Progressive
-"Devil's Dozen" 2015, Progressive
+
+
+## Дискография
+
+### "Land Of  Broken Hearts" 1993, Progressive
+
+Running Wild
+Easy Rider
+Flight
+Age gone wild
+Martial arts
+One by one
+Heart of the city
+Land of broken hearts
+Freeway Jam
+Kingdom dark
+
+
+### "Moving Target" 1995, Progressive
+
+Last Goodbye
+1348
+Makin' A Mess
+Far Away
+Step By Step
+Autograph (instrumental)
+Stay Down
+Give It Up
+Time
+Far Away (acoustic)
+
+
+### "Clown In The Mirror" 1996, Progressive
+
+
+
+### "Paradox" 1997, Progressive
+
+1. The Awakening
+2. River Of Pain
+3. Tearing Down The World
+4. Message To God
+5. Long Way Home
+6. Time Will Tell
+7. Silent cream
+8. It's Over
+D.C. Cooper - Vocal
+Steen Mogensen - bass
+Andre Andersen - Keyboards & Guitars
+Jacob Kjaer - Guitars
+Add. Musicians: 
+Alan Sorensen - Drums
+Maria McTurk, Lise Hansen, Kenny Luebecke - 
+backing vocals
+Produced by Andre Andersen
+(p)(c)1997 Majestic Entertainment
+
+### "Fear" 1999, Progressive
+
+Fear
+Faces Of War
+Cold City Lights
+Lies
+Follow Me
+Voices
+Sea Of Time
+
+
+  
+
+
+### "Intervention" 2000, Progressive
+
+Intervention (Part I)
+Lies (live version)
+Flight (live version)
+Follow Me (acoustic)
+U-Turn
+
+### "The Mission" 2001, Progressive
+
+Take Off
+The Mission
+Exit Gravity
+Surrender
+Clean Sweep
+Judgement Day
+Metamorphosis
+World Wide War
+Dreamline
+Out Of Reach
+Fourth Dimension
+Days Of No Trust
+Total Recall
+
+### "The Watchers" 2002, Progressive
+
+Intervention
+Lies
+Flight
+Message To God
+Epilogue
+One By One
+Clown In The Mirror
+Day In Day Out
+Legion Of The Damned
+Intervention
+
+### "Eye Witness" 2003, Progressive
+
+1)Hunted 
+2)Can't let go 
+3)The Prayer 
+4)Edge of the World 
+5)Burning the Sun 
+6)Wicked Lounge 
+7)5th Element 
+8)Help us God 
+9)Game of Fear 
+10)Eyewitness 
+
+### "Paper Blood" 2005, Progressive
+
+
+
+### "2006 Live (CD/DVD)" 2006, Progressive
+
+DVD track listing:
+
+01. Paper Blood
+02. Time
+03. The Mission
+04. Never Give Up
+05. Can't Let Go
+06. Last Goodbye
+07. Follow Me
+08. Cold City Lights
+09. Martial Arts
+10. Surrender
+11. Running Wild
+12. Far Away
+13. Lies
+14. Wasted Time
+15. Message To God
+16. SK983
+17. Epilogue
+
+2-CD track listing:
+
+Disc 1:
+
+01. Paper Blood
+02. Time
+03. The Mission
+04. Never Give Up
+05. Can't Let Go
+06. Last Goodbye
+07. Follow Me
+08. Cold City Lights
+
+Disc 2:
+
+01. Martial Arts
+02. Surrender
+03. Running Wild
+04. Far Away
+05. Lies
+06. Wasted Time
+07. Message To God
+08. Epilogue
+09. Long Way Home (bonus track)
+
+### "2006 Live (2 CD)" 2006, Progressive
+
+
+
+### "Collision Course... Paradox 2" 2008, Progressive
+
+Principles of Paradox
+The First Rock
+Exit Wound
+Divide and Reign
+High Noon at the Battlefield
+The Clan
+Blood In Blood Out
+Tears of the Sun
+Hostile Breed
+Chaos A.C.
+
+### "X" 2010, Progressive
+
+1. Episode X (Arrival) 01:59 
+2. End Of The Line 04:50  
+3. King For A Day 04:49  
+4. The Well 04:52  
+5. Army Of Slaves 06:00  
+6. Shadowman 05:35  
+7. Back To Square One 05:25  
+8. Blood Red Stars 06:21  
+9. The Last Leaf 04:25  
+10. Falling Down 04:16  
+11. Episode X (Departure) 01:06 
+
+
+
+Andre Andersen - keyboards, guitars
+Marcus Jidell - guitars, cello
+Allan Sorensen - drums, percussion
+Mark Boals - lead and backing vocals
+Andreas Passmark - bass
+
+Maria McTurk, Henrik Brockmann, Kenny Lubcke, Gertrud Mogelgaard, Michelle
+Raitzin - additional vocals,
+Patricia Skovgaard - violin,
+Erik Rosenqvist - woodwinds
+"Wasted choir": Mark, Elena, Anne-Sophie, Philip
+
+Recorded at Northpoint Productions, Media Sound and Sun Studios
+Michelle's vocals recorded by Bill Malina at Sherman Oaks Studios, LA
+Mixed at Puk Studios by Lars Overgaard and Andrй Andersen
+Mastered by Jan Eliasson at Audio Planet
+Cover, booklet & artwork design by Kai Brockschmidt
+Photography: Allen Ross Thomas
+Management: Michael Raitzin/Majestic Ent. Co LLC. 
+
+### "Hard Rain's Coming (single)" 2011, Progressive
+
+1. Hard Rain's Coming
+2. Martial Arts (Live from ProgPower USA) [previously unreleased]
+
+### "Show Me How To Live" 2011, Progressive
+
+1. One More Day 
+2. Another Man Down 
+3. An Empty Shell 
+4. Half Past Loneliness 
+5. Hard Rain's Coming 
+6. Show Me How to Live 
+7. Angel's Gone 
+
+
+Allan White Sorensen - Drums 
+Andreas Passmark - Bass 
+Jonas Larsen - Guitars 
+Andre Andersen - Keyboards 
+D.C. Cooper - Vocals 
+
+
+
+### "A Life To Die For" 2013, Progressive
+
+1. Hell Comes Down from Heaven
+2. A Bullet's Tale
+3. Running Out Of Tears
+4. One Minute Left To Live
+5. Sign Of Yesterday
+6. Won't Trust, Won't Fear, Won't Beg
+7. A Life To Die For
+
+### "Devil's Dozen" 2015, Progressive
+
+1. So Right So Wrong
+2. May You Never (Walk Alone)	 
+3. Heart On A Platter
+4. A Tear In The Rain	 
+5. Until The Day
+6. Riches To Rags
+7. Way Too Late
+8. How Do You Know
+
 
 ## Отношения с другими группами
 

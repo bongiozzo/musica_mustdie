@@ -1,7 +1,23 @@
 # Balance
 
-Дискография
-"Equilibrium" 2009, Hard Rock
+
+
+## Дискография
+
+### "Equilibrium" 2009, Hard Rock
+
+1. Twist Of Fate
+2. Breathe
+3. Old Friends
+4. Look What You've Done
+5. Winner Takes All
+6. Crazy Little Suzie
+7. Liar
+8. Walk Away
+9. Who You Gonna Love
+10. Forever
+11. Rainbow Ends
+
 
 ## Отношения с другими группами
 

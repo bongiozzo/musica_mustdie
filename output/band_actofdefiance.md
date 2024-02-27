@@ -1,8 +1,17 @@
 # Act Of Defiance
 
-Дискография
-"Birth And The Burial" 2015, Metal
-"Old Scars, New Wounds" 2017, Metal
+
+
+## Дискография
+
+### "Birth And The Burial" 2015, Metal
+
+
+
+### "Old Scars, New Wounds" 2017, Metal
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,34 @@
 # Sleeper
 
-Дискография
-"Smart" 1995, Grunge
+
+
+## Дискография
+
+### "Smart" 1995, Grunge
+
+1. Inbetweener
+2. Swallow
+3. Delicius
+4. Hunch
+5. Amuse
+6. Bedhead
+7. Lady Love Your Countryside
+8. Vegas
+9. Poor Flying Man
+10. Alice In Vain
+11. Twisted
+12. Pyrotechnical
+
+ Louise Wener - Vocals, Guitars
+ Jon Stewart - Guitars
+ Diid Osman - Bass
+ Andy Maclure - Drums
+
+Produced By Paul Corkatt & SLEEPER
+Engineered By Adie, Chris & Nick
+
+(p)&(c) 1995 BMG Records
+
 
 ## Отношения с другими группами
 

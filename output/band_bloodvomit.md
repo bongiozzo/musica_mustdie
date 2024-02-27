@@ -1,7 +1,13 @@
 # Blood Vomit
 
-Дискография
-"Up from the Grave" 2002, Grindcore
+
+
+## Дискография
+
+### "Up from the Grave" 2002, Grindcore
+
+
+
 
 ## Отношения с другими группами
 

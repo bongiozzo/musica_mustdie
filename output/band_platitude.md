@@ -1,9 +1,71 @@
 # Platitude
 
-Дискография
-"Secrets Of Life" 2003, Power Metal
-"Nine" 2004, Heavy Metal
-"Silence Speaks" 2006, Heavy Metal
+heavy/prog
+
+## Дискография
+
+### "Secrets Of Life" 2003, Power Metal
+
+1. Deception
+2. Just One Try
+3. Dance Thru The Fire
+4. Memories
+5. Anima
+6. Last Sunset
+7. Raining Tears
+8. Secrets Of Life
+9. Illusions
+10. Evil Sky
+
+
+Erik Blomkvist- vocals
+Daniel Hall - guitar 
+Gustav Kollerstrom - guitar 
+Marcus Hoher - drums 
+Patrik Jansson - bass 
+Andreas Lindahl- keyboards
+Tommie Lundgren - keyboards 
+
+
+
+
+### "Nine" 2004, Heavy Metal
+
+1. Dark Mind 
+2. Trust
+3. Oblivion
+4. Haleyon Days
+5. Catch 22
+6. Avalon Farewell
+7. Skies Of Xenon
+8. Falling
+9. Aeronautica
+10. Endless
+11. Starlight
+
+### "Silence Speaks" 2006, Heavy Metal
+
+1. Tell The Truth; 
+2. Silence Speaks; 
+3. Nobody's Hero; 
+4. Empty Inside; 
+5. Fear (It's Over Now); 
+6. Don't Be Afraid; 
+7. Falling Down; 
+8. After The Storm; 
+9. Walk With Me; 
+10. You
+
+All songs written by PLATITUDE
+Produced by Tommy Hansen and PLATITUDE
+Recorded at Jailhouse Studios, Denmark and Panicroom Studios, Sweden
+
+Andreas Brobjer - Drums and Backing Vocals
+Erik Blomkvist - Lead and Backing Vocals
+Gustav Kollerstrom - Guitars
+Wachen - Synthesizers and Backing Vocals
+Patrik Janson - Bass
+
 
 ## Отношения с другими группами
 

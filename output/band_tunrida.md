@@ -1,7 +1,27 @@
 # Tunrida
 
-Дискография
-"Imperial" 2005, Black Metal
+
+
+## Дискография
+
+### "Imperial" 2005, Black Metal
+
+-OPUS I – 
+Sign Of The Fiery Legion 
+Mass Murderer
+Countdown To Doomsday
+ 
+-OPUS II – 
+Beholldrr
+Worship No God 
+Nihilist 
+
+-OPUS III – 
+Manifestation 
+Hail Satan 
+Still In Satan's Embrace 
+Imperial
+
 
 ## Отношения с другими группами
 

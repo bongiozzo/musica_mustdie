@@ -1,7 +1,34 @@
 # Wombbath
 
-Дискография
-"Internal Caustic Torments" 1993, Deathcore
+
+
+## Дискография
+
+### "Internal Caustic Torments" 1993, Deathcore
+
+1. Prevent Anemia
+2. Intestinal Bleeding
+3. As Silent As The Grave
+4. Corporal Punishment
+5. Performed In Depth
+6. Conceal Interior Torments
+7. Beyond The Gloomy
+8. Abandon
+9. Several Shapes
+
+ Tobbe Holmgren - Guitar
+ Richard Logberg - Bass
+ Hakan Stuvemark - Lead Guitars
+ Roger Enstedt - Drums
+ Tomas Lindfors - Vocals
+
+All Keyboards By Boppe Andersson On Abandon
+All Songs Written By WOMBBATH
+Produced & Mixed By Peter Rosenbach & WOMBBATH
+Recorded At Studio Skyline, Sweden
+
+(p)&(c) 1993 THRASH Records
+
 
 ## Отношения с другими группами
 

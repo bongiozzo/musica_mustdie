@@ -1,14 +1,154 @@
 # Clawfinger
 
-Дискография
-"Deaf Dumb Blind" 1993, Rap Metal
-"Pin Me Down" 1995, Rap Metal
-"Use Your Brains" 1995, Rap Metal
-"CLawfinger" 1997, Rap Metal
-"A Whole Lot Of Nothing" 2001, Rap Metal
-"Zeroes And Heroes" 2003, Rap Metal
-"Hate Yourself With Style" 2005, Rap Metal
-"Life Will Kill You" 2007, Rap Metal
+Sweden Extreme "Fuck Off" Hardcore & Hip-Hop Band
+
+## Дискография
+
+### "Deaf Dumb Blind" 1993, Rap Metal
+
+1. Nigger
+2. Truth
+3. Rosegrove
+4. Don't Get Me Wrong
+5. I Need You
+6. Catch Me
+7. Warfair
+8. Wonderful World
+9. Sad To See Your Sorrow
+10. I Don't Care
+
+ Zak Tell
+ Jocke Skog
+ Erlend Ottem
+ Bard Torstensen
+ Andre Skaug - Bass
+ Morten Skaug - Drums
+
+All Songs By CLAWFINGER
+Produced By CLAWFINGER & Jacob Hellner
+Recorded By Adam Kviman, At Decibel Studios, Stockholm, Sweden
+Mixed By Stefan Glaumann
+
+This Records Is Loaded With Samples, Loops, And No Guitar Amps
+
+(p)&(c) 1993 MVG Records
+
+### "Pin Me Down" 1995, Rap Metal
+
+1. Pin Me Down
+2. Better Than This
+3. Rosegrowes (Live)
+4. Pin Me Down (DIE KRUPPS Remix)
+
+ Zak Tell - Vocals
+ Erlend  Ottem - Guitars & Noise
+ Bard Torstensen - Guitars & Back Vocals
+ Jocke Skog - Programming, Keyboards & Back Vocals
+
+Produced By Jacob Hellner & CLAWFINGER
+Engineered By Adam Kviman & Jacob Hellner
+Mixed By Stefan Glauman At MVG Studio, Stockholm, Sweden
+Recorded At Decibel Studio, Stockholm, Sweden
+All Songs By CLAWFINGER.
+
+(P)&(C) 1995 MVG Records /
+     WARNER MUSIC Sweden
+
+### "Use Your Brains" 1995, Rap Metal
+
+1. Power
+2. Pay The Bill
+3. Pin Me Down
+4. Wipe My Ass
+5. Die High
+6. It
+7. Do What I Say
+8. Undone
+9. What Are You Afraid Of
+10. Back To The Basics
+11. Easy Way Out
+12. Tomorrow
+
+ Zak Tell - Vocals
+ Erlend  Ottem - Guitars & Noise
+ Bard Torstensen - Guitars & Back Vocals
+ Jocke Skog - Programming, Keyboards & Back Vocals
+
+Produced By Jacob Hellner & CLAWFINGER
+Engineered By Adam Kviman & Jacob Hellner
+Mixed By Stefan Glauman At MVG Studio, Stockholm, Sweden
+Recorded At Decibel Studio, Stockholm, Sweden
+
+(p)&(c) 1995 MVG Records
+
+### "CLawfinger" 1997, Rap Metal
+
+1. Two Sides
+2. Hold Your Head Up
+3. Biggest & The Best
+4. Chances
+5. Don't Wake Me Up
+6. Not Even You
+7. Nobody Knows
+8. I Can See Them Coming
+9. Wrong State Of Mind
+10.I'm Your Life & Religion
+11.Crazy
+12.I Guess I'll Never Know
+
+
+
+### "A Whole Lot Of Nothing" 2001, Rap Metal
+
+Two steps away
+Out to get me 
+Nothing going on
+Are you man enough
+Confrontation
+Evolution
+Don't look at me
+Simon says
+Burn in hell
+I close my eyes
+Fool in paradise
+Revenge
+Vienna
+
+
+
+### "Zeroes And Heroes" 2003, Rap Metal
+
+1. Zeros & Heroes
+2. Recipe For Hate
+3. When Everything Crumbles
+4. 15 Minutes Of Fame
+5. World Domination
+6. Bitch
+7. Four Letter Word
+8. Money Power Glory
+9. Kick It
+10. Live Like A Man
+11. Step Aside
+12. Blame
+
+### "Hate Yourself With Style" 2005, Rap Metal
+
+01. The Faggot In You
+02. Hate Yourself With Style
+03. Dirty Lies
+04. The Best & The Worst
+05. Breakout (Embrace The Child Inside You)
+06. Right To Rape
+07. What We've Got Is What You're Getting
+08. Sick Of Myself
+09. Hypocrite
+10. Without A Case
+11. God Is Dead
+
+### "Life Will Kill You" 2007, Rap Metal
+
+
+
 
 ## Отношения с другими группами
 

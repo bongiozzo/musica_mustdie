@@ -1,8 +1,46 @@
 # Infernal Angels
 
-Дискография
-"Skining Evil Light" 2005, Black Metal
-"Midwinter Blood" 2009, Black Metal
+
+
+## Дискография
+
+### "Skining Evil Light" 2005, Black Metal
+
+1. Requiem For A Soul; 
+2. In November Days; 
+3. Palace Of Silence; 
+4. Shining Evil Light; 
+5. Dominus Silentii; 
+6. Digilia Secunda; 
+7. Obscure Dimension (Take The Evil Beauty); 
+8. Endtime Divine; 
+9. At The Heart Of Winter *
+
+All songs written by INFERNAL ANGELS
+except * written by IMMORTAL
+Produced by Officina Rock Records
+Engineered by Antonia Deodati at T.S.R. Studio
+
+Xes - Lead and Background Vocals
+Stygian - All Guitars and Background Vocals
+
+Guests:
+Deimos - Drums
+Jblis - Bass
+
+### "Midwinter Blood" 2009, Black Metal
+
+1. Prologus Odii	 
+2. Melody of Pain	 
+3. Midwinter Blood	 
+4. Coronation of Dark Victory	 
+5. Conquering the Throne of Sin	 
+6. A New Era Is Coming	 
+7. Tutto Quel Che Rimane	 
+8. Sangue	 
+9. Inesorabile	 
+10. Epilogus Humanitatis
+
 
 ## Отношения с другими группами
 

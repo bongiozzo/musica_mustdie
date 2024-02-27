@@ -1,8 +1,34 @@
 # Dead Shape Figure
 
-Дискография
-"The Grand Karoshi" 2008, Thrash
-"The Disease Of St. Vitus" 2010, Thrash
+
+
+## Дискография
+
+### "The Grand Karoshi" 2008, Thrash
+
+1. Intro  02:18    
+2. Blades  02:43   
+3. Lesser the Man  05:23    
+4. Bend the Weak  05:22    
+5. Remington Lucifer  04:21    
+6. Fight Against, Lie Behalf  04:42  
+7. Blithering Icon  02:31    
+8. Kar&#245;shi - From Contempt to Obliteration  06:44 
+9. 6 x 9  05:01    
+10. Perinde Ac Cadaver  08:32 
+
+### "The Disease Of St. Vitus" 2010, Thrash
+
+1. Suicide Continental  04:59 
+2. Seraphim  04:47    
+3. Face On The Nails  04:56  
+4. Felix Culpa  04:36  
+5. Amberstar  05:31  
+6. Madonna Of Seven Sorrows  04:31  
+7. Idiopolis  05:50 
+8. Shrouds  05:17    
+9. Cities Of The Plain (Jordan's Gomorrah)  02:58 
+
 
 ## Отношения с другими группами
 

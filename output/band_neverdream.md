@@ -1,9 +1,42 @@
 # Neverdream
 
-Дискография
-"Chemical Faith" 2006, Progressive
-"SOULS - 26 April 1986" 2008, Progressive
-"Said" 2010, Progressive
+
+
+## Дискография
+
+### "Chemical Faith" 2006, Progressive
+
+1. Mother  08:11 
+2. Slave Of Loneliness  05:11    
+3. Just a Sacrifice  04:45    
+4. Chemical Faith  05:34 
+5. This Tragic Show  04:13   
+6. Sogni  03:44   
+7. Zoologischer Garten (Hell's Gate)  05:48 
+8. Narkonon (instrumental)  05:44    
+9. Whispers (Berlin 1976)  08:52 
+
+### "SOULS - 26 April 1986" 2008, Progressive
+
+1. Silence  05:57  
+2. Burning the Hopes  07:17 
+3. Victims  07:11  
+4. Across the Tears  02:56    
+5. Looking the Lies  07:56    
+6. Waterfall  11:42 
+7. City of Ghosts  07:52 
+8. Souls  09:02 
+
+### "Said" 2010, Progressive
+
+1. Kinshasa  08:16  
+2. God's Mistake  07:37 
+3. Secrets  08:03    
+4. Black Mirror  08:41
+5. Voodoo  09:19    
+6. Amistad  07:35  
+7. The Long Walk To Freedom  15:33 
+
 
 ## Отношения с другими группами
 

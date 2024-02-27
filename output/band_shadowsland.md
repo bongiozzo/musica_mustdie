@@ -1,8 +1,48 @@
 # Shadows Land
 
-Дискография
-"Ante Christum (Natum)" 2004, Death Metal
-"Terminus Ante Quem" 2006, Death Metal
+
+
+## Дискография
+
+### "Ante Christum (Natum)" 2004, Death Metal
+
+1. Hybrid 02:38  
+2. My Name Are Three Sixes 03:36 
+3. Z PAGE IA- IDON ODMICALZO... 04:55 
+4. Decimal 01:15  
+5. Last Way 02:41  
+6. Vortex 04:15 
+7. You Are God 03:06 
+8. I'm Dead 03:38 
+9. Flash 02:45 
+10. b.o.r.y.s.S.IX 00:58  
+11. Smell of Pain 03:07  
+12. Pagan Fears (Mayhem Cover) 04:35
+
+### "Terminus Ante Quem" 2006, Death Metal
+
+1. The Absolute   
+2. Narcotic vision (the meeting)   
+3. The energy of masses + Interlude   
+4. Hunger of Infinity   
+5. Efface yourself   
+6. And the master says...   
+7. LUX_NOX   
+8. Space of light 
+
+
+Recorded and mastered in Hertz Studio. 
+In Poland released by Empire rec., in other countrys by Osmose prod.
+
+Aro - lead and rhythm guitars, all vocals 
+J.Nerexo - drums and percussion 
+Lexative (Pith) - bass 
+
+Guests:
+Br.Martin (Phaeton) - guitar
+Kruen (Cruentus) - programminng
+T.Borys - samples
+
 
 ## Отношения с другими группами
 

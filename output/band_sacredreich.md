@@ -1,13 +1,73 @@
 # Sacred Reich
 
-Дискография
-"Ignorance" 1987, Thrash
-"Surf Nicaragua (EP)" 1988, Thrash
-"Alive At The Dynamo (EP)" 1989, Thrash
-"The American Way" 1990, Thrash
-"Independent" 1993, Thrash
-"Heal" 1996, Thrash
-"Still Ignorant (Live)" 1997, Thrash
+
+
+## Дискография
+
+### "Ignorance" 1987, Thrash
+
+1. Death Squad
+2. Victim Of Demise
+3. Layed To Rest
+4. Ignorance
+5. No Believers
+6. Violent Solutions
+7. Rest In Peace
+8. Sacred Reich
+9. Administrative Decisions
+
+Phil Rind - Bass & Vocals
+Willey Arnett - Lead Guitar
+Jason Rainey - Rhythm Guitar
+Greg Hall - Drums
+
+(p)&(c) 1987 METAL BLADE Records
+
+### "Surf Nicaragua (EP)" 1988, Thrash
+
+
+
+### "Alive At The Dynamo (EP)" 1989, Thrash
+
+
+
+### "The American Way" 1990, Thrash
+
+
+
+### "Independent" 1993, Thrash
+
+
+
+### "Heal" 1996, Thrash
+
+1. Blue Suit, Brown Shirt (2.27)
+2. Heal (3.42)
+3. Break Through (3.37)
+4. Low (4.03)
+5. Don't (2.51)
+6. Jason's Idea (0.39)
+7. Ask Ed (4.07)
+8. Who Do You Want To Be (2.22)
+9. Seen Through My Eyes (3.18)
+10. I Don't Care (3.16)
+11. The Power Of The Written Word (2.37)
+
+All songs written by SACRED REICH
+Produced by Bill Metoyer and SACRED REICH.
+Engineered and mixed by Bill Metoyer.
+
+Phil Rind - Bass and Vocals
+Wiley Arnett - Lead Guitar
+Jason Rainey - Rhythm Guitar
+Dave McClain - Drums
+
+(p)(c) 1996 METAL BLADE Records
+
+### "Still Ignorant (Live)" 1997, Thrash
+
+
+
 
 ## Отношения с другими группами
 

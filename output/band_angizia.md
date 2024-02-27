@@ -1,12 +1,301 @@
 # Angizia
 
-Дискография
-"Split with Amestigon" 1996, Black Metal
-"Die Kemenaten Scharlachroter Lichter" 1997, Black Metal
-"Das Tagebuch Der Hanna Anikin" 1997, Black Metal
-"Das Schachbrett Des Trommelbuben Zacharias" 1999, Gothic
-"39 Jahre fur den Leierkastenmann" 2001, Gothic
-"Ein Toter Fahrt Gern Ringelspiel" 2004, Metal
+Dark Death-Black-Doom Opera !
+
+## Дискография
+
+### "Split with Amestigon" 1996, Black Metal
+
+ 1. Die Stimmen Eines Baches Dort
+ 2. Herbstlegende
+ 3. Der Stechlin
+
+
+
+### "Die Kemenaten Scharlachroter Lichter" 1997, Black Metal
+
+Kapitel I   - Szenicher Monolog / Das Rote Gold Des Kerzenwachses
+Kapitel II  - Der Kirschgarten Oder Memoiren An Die Stirn Der Kindeszeit
+Kapitel III - Halbe Wahreit, Schemelglanz Und Totenlichter
+Kapitel IV - Ein Sangerleben - Welch Wunderbarer Nachtgesang ?
+Kapitel V  - Schellenklingeln / Vom Kurzen Leben Fast Verschneiter Gruner Trauben
+
+"Die Kemenaten Scharlachroter Lichter" is a story written down by Engelke.
+Recorded & mixed By Georg Hrauda & ANGIZIA at Studio Hoernix, November '96 - January '97.
+
+Engelke
+Szinonem
+Aastedet
+Henning
+
+Cello by Sophie Muller, Transverse Flute by Sabine Kastner, Tenor Voices by Friedrich Rieder, Soprano Voices by Irene Denner, Bass by Claus Nedoschil, Acoustic Guitars by Markus Frohlich, Electric Guitars by Jurgen Porkesch.
+
+(P)(C) 1997 NAPALM Records // NPR 026
+
+### "Das Tagebuch Der Hanna Anikin" 1997, Black Metal
+
+1. MEIN SCHALLTRICHTER SUMMT MEMMENHAFT EIN TOTENLIED
+Die rhapsodie vom blechschaden und dem stuckwerk einer begrabniszelttafel
+2. SPATHERBST 1832. DAS SPINNRAD IST EIN MEMORIENSIGNAL
+Serjoscha? Und dreht um die schnurrende spindel den leidlichen faden
+3. VOM SPIEL DER LIESEN FRAGEN. WIE SHALLE ICH DEN AUGAPFEL?
+Und tierisch kleinlaute schmachtfetzen leierten masshalten und geschmack
+4. ZWIEGESPRACHNIEDERSCHRIFTEN - EIN VERMUMMTES TRAUERSPIEL
+Blaue schlotterbodeninsekten und der ingrimm eines vogelbeerbaumes
+5. DIE ELENDEN SKRIBENTEN VON BACH UND WOLKENKUCKUCKSHEIM
+Die notz von mutter wohlgestalt. Es starb eine eintragung am 16 Oktober
+6. DIE FIEBERSCHAUER EINES BETRUNKNEN SCHWARZEN SCHMETTERLINGS
+Innerer monolog uber die komodie und den nutzen des komischen geistes
+
+### "Das Schachbrett Des Trommelbuben Zacharias" 1999, Gothic
+
+Pique Dame und Rachmaninov, 1904
+Ich bin ein Bewohner des S/W-Diagramms
+Der Kinderzar
+Schlittenfahrt mit einer Lodenpuppe
+Ungeliebter Kammerfrieden
+Der Essayist
+2 Millionen Rubel
+Das Bauernendspiel
+
+### "39 Jahre fur den Leierkastenmann" 2001, Gothic
+
+1 EROFFNUNG
+2 MEIN JAHR IN LEMBERG, 1911
+3 MEHMET UND DIE ZIRKUSSTADT
+4 ZINNSOLDATEN UND KANONEN, 1917
+5 ANASTASIA SPENNOCCHI, 1920
+6 DER WEIN DER LUMPENSAMMLER, 1923
+7 LIED FUR DIE ARMUT ANDERER LEUTE
+8 JUDENKINDER ODER DIE KOMODIE VOM KRIEG
+9 DIE ZINNOBERROTE MARIONETTE
+10 UNTERSTADT-OBERSTADT- ZIRKUSSTADT
+11 DIE LINKE HAND DES MUSIKANTEN
+12 KOMIK UND ELEGISCHE MOMENTE
+13 BLUMEN VON TSCHANDRAVATII, 1938
+14 EINE UNGELEBTE STUNDE, 1941
+15 ITHZAK KAUFMANN UND DAS BINDFADENCELLO
+16 DER LUSTIGE TOTE
+17 EPILOG AUS DER JUDENGRUFT
+18 MEIN LETZTES STUCK
+
+### "Ein Toter Fahrt Gern Ringelspiel" 2004, Metal
+
+A production by Michael Haas & Irene Denner
+Coordination, concept and arrangements by Michael Haas
+Sound, recordings and mix by Bernhard Gittenberger,
+Recordable Studio, Stockerau
+Mastering by Blume Molli, Recordable Studio, Stockerau
+
+01 Klopfzeichen, 1947 2:25 
+  speaker: Michael Haas
+violin: Aliosha Biz 
+recording-sessions: Recordable Studio Stockerau (July 2004)
+sound/mix: Bernhard Gittenberger
+composition: Michael Haas
+text: Michael Haas  
+02 Ein Toter fдhrt gern Ringelspiel 6:27 
+  voices: Michael Haas, Irene Denner, Jochen Stock,
+Rainer Guggenberger
+piano: Barbara Rektenwald, violin: Roland Bentz,
+guitars - Emmerich Haimer
+drums: Alex Dostal, bass: Harald Hauser,
+clarinet: Bernhard Seibt
+recording-sessions: HoriSon Studio (April/August 2003),
+Klangwerk Studio (Aug-Sep-Dec 2003)
+sound: Roland Bentz, Bernhard Gittenberger, 
+mix: Bernhard Gittenberger
+composition: Michael Haas, Emmerich Haimer
+text: Michael Haas  
+03 Macht die Sдge "siege-sage" 1:02 
+  speaker: Jochen Stock, Michael Haas
+hammond organ/saw: Jochen Stock, Michael Haas 
+recording-sessions: HoriSon Studio Hall in Tirol (April 2003)
+sound: Jochen Stock
+text: Michael Haas 
+04 Schaukelkind 5:41 
+  voices: Michael Haas, Irene Denner, Jochen Stock
+piano: Barbara Rektenwald, violin: Roland Bentz, 
+guitars: Emmerich Haimer
+drums: Alex Dostal, bass: Harald Hauser, 
+clarinet: Bernhard Seibt, cello: Giuseppe Gravino 
+recording-sessions: HoriSon Studio (April/August 2003), 
+Klangwerk Studio (Aug-Sep-Dec 2003)
+sound: Roland Bentz, Bernhard Gittenberger, 
+mix: Bernhard Gittenberger
+composition: Michael Haas, Emmerich Haimer
+text: Michael Haas 
+05 Der Teufel hдlt die Fдden 3:28 
+  voices: Michael Haas, Irene Denner, Rainer Guggenberger
+accordion: Krzysztof Dobrek, drums: Alex Dostal,
+bass: Harald Hauser
+clarinet: Bernhard Seibt, 
+recording-sessions: Recordable Studio Stockerau (June/July 2004)
+sound: Bernhard Gittenberger, mix: Bernhard Gittenberger
+composition: Michael Haas, Emmerich Haimer
+text: Michael Haas 
+06 Mit einem purpurroten Leichenkarren 1:02 
+  speaker: Michael Haas 
+recording-sessions: Recordable Studio Stockerau (August 2004)
+sound: Bernhard Gittenberger, mix: Bernhard Gittenberger
+text: Michael Haas 
+07 Macht Platz und lasst die Toten vor! 1:23 
+  voice: Michael Haas
+piano: Barbara Rektenwald
+recording-sessions: 4tune Studio Vienna (May 2004),
+Recordable Studio Stockerau (July 2004)
+sound: David Petermann, Bernhard Gittenberger,
+mix: Bernhard Gittenberger
+composition: Michael Haas
+text: Michael Haas 
+08 Das Mдdchen im Prinzessinnenkleid 4:34 
+  voices: Michael Haas, Irene Denner
+drums: Alex Dostal, bass: Harald Hauser, 
+violin: Aliosha Biz 
+recording-sessions: Recordable Studio Stockerau (June/July 2004)
+sound: Bernhard Gittenberger
+composition: Michael Haas, Emmerich Haimer
+text: Michael Haas 
+09 Klezmerabend 0:32 
+  clarinet: Bernhard Seibt
+recording-sessions: Recordable Studio Stockerau (July 2004)
+sound: Bernhard Gittenberger, mix: Bernhard Gittenberger
+composition: Michael Haas 
+10 Totenackerswing 4:11 
+  voices: Michael Haas, Irene Denner, Rainer Guggenberger
+drums: Alex Dostal, bass: Harald Hauser, 
+violin: Aliosha Biz, clarinet: Bernhard Seibt
+recording-sessions: Recordable Studio Stockerau (June/July 2004)
+sound: Bernhard Gittenberger, mix: Bernhard Gittenberger
+composition: Michael Haas, Emmerich Haimer
+text: Michael Haas 
+11 Du wundervoller Zeitvertreib 2:51 
+  voice: Michael Haas
+piano: Barbara Rektenwald, violin: Aliosha Biz 
+recording-sessions: 4tune Studio Vienna (May 2004), 
+Recordable Studio Stockerau (June 2004)
+sound: David Petermann, Bernhard Gittenberger, 
+mix: Bernhard Gittenberger
+composition: Michael Haas
+text: Michael Haas 
+12 Liebt dich Range die Dohle? 2:27 
+  voices: Michael Haas, Irene Denner
+piano: Barbara Rektenwald, violin: Aliosha Biz, 
+percussion: Alex Dostal, bass: Harald Hauser 
+recording-sessions: 4tune Studio Vienna (May 2004), 
+Recordable Studio Stockerau (June/July 2004)
+sound: David Petermann, Bernhard Gittenberger, 
+mix: Bernhard Gittenberger
+composition: Michael Haas
+text: Michael Haas 
+13 Schwarze Puppen 3:39 
+  voices: Michael Haas, Irene Denner, Rainer Guggenberger
+accordion: Krzysztof Dobrek, drums: Alex Dostal,
+bass: Harald Hauser
+clarinet: Bernhard Seibt 
+recording-sessions: Recordable Studio Stockerau (June/July 2004)
+sound: Bernhard Gittenberger, mix: Bernhard Gittenberger
+composition: Michael Haas, Emmerich Haimer
+text: Michael Haas 
+14 Es reiten die Toten so schnell 5:38 
+  voices: Michael Haas, Irene Denner, Rainer Guggenberger
+accordion: Krzysztof Dobrek, 
+violin: Aliosha Biz, drums: Alex Dostal
+bass: Harald Hauser, contrabass: Josef Niederhammer
+recording-sessions: Recordable Studio Stockerau (June/July 2004)
+sound: Bernhard Gittenberger, mix: Bernhard Gittenberger
+composition: Michael Haas, Emmerich Haimer
+text: Michael Haas 
+15 Die flьchtige Leiche 1:48 
+  voice: Irene Denner
+piano: Barbara Rektenwald, violin: Aliosha Biz
+recording-sessions: 4tune Studio Vienna (May 2004), 
+Recordable Studio Stockerau (June 2004)
+sound: David Petermann, Bernhard Gittenberger, 
+mix: Bernhard Gittenberger
+composition: Michael Haas
+text: Michael Haas 
+16 Das Gerippe geht dem Ausgang zu 4:14 
+  voices: Michael Haas, Irene Denner, Jochen Stock
+Rainer Guggenberger
+piano: Barbara Rektenwald, violin: Roland Bentz, 
+guitars: Emmerich Haimer, drums: Alex Dostal
+bass: Harald Hauser, clarinet: Bernhard Seibt 
+recording-sessions: HoriSon Studio (April/August 2003), 
+Klangwerk Studio (Aug-Sep-Dec 2003)
+sound: Roland Bentz, Bernhard Gittenberger, 
+mix: Bernhard Gittenberger
+composition: Michael Haas, Emmerich Haimer
+text: Michael Haas 
+17 Die graue Welt macht keine Freude mehr 2:51 
+  voices: Michael Haas, Irene Denner
+piano: Barbara Rektenwald, violin: Aliosha Biz
+recording-sessions: 4tune Studio Vienna (May 2004), 
+Recordable Studio Stockerau (June/July 2004)
+sound: David Petermann, Bernhard Gittenberger, 
+mix: Bernhard Gittenberger
+composition: Michael Haas
+text: Michael Haas 
+18 Er blieb noch ein Weilchen am Leben 3:25 
+  voices: Michael Haas, Irene Denner
+piano: Barbara Rektenwald, violin: Aliosha Biz
+recording-sessions: 4tune Studio Vienna (May 2004), 
+Recordable Studio Stockerau (July 2004)
+sound: David Petermann, Bernhard Gittenberger,
+mix: Bernhard Gittenberger
+composition: Michael Haas
+text: Michael Haas 
+19 Zehn tote Hampelmдnner 0:57 
+  voice: Michael Haas
+recording-sessions: Recordable Studio Stockerau (July 2004)
+sound: Bernhard Gittenberger
+text: Michael Haas 
+20 Der Kirchhof spielt zum Leichenschmaus 4:57 
+  voices: Michael Haas, Irene Denner, Rainer Guggenberger
+accordion: Krzysztof Dobrek, violin: Aliosha Biz, 
+clarinet: Bernhard Seibt, drums: Alex Dostal,
+bass: Harald Hauser
+recording-sessions: Recordable Studio Stockerau (June/July 2004)
+sound: Bernhard Gittenberger, mix: Bernhard Gittenberger
+composition: Michael Haas
+text: Michael Haas 
+21 Hoppa Hoppa Reiter (Requiemmix) 0:41 
+  speaker: Jochen Stock
+musical background: Jochen Stock, Michael Haas 
+recording-sessions: HoriSon Studio Hall in Tirol (April 2003)
+sound: Jochen Stock
+text: Michael Haas 
+22 Mein Gaul, mein Gaul verreckt im Dreck 3:09 
+  voices: Michael Haas, Irene Denner, Jochen Stock,
+Rainer Guggenberger
+piano: Barbara Rektenwald, violin: Roland Bentz,
+clarinet: Bernhard Seibt, drums: Alex Dostal,
+bass: Harald Hauser, cello: Giuseppe Gravino 
+recording-sessions: HoriSon Studio (April/August 2003),
+Klangwerk Studio (Aug-Sep-Dec 2003)
+sound: Roland Bentz, Bernhard Gittenberger, 
+mix: Bernhard Gittenberger
+composition: Michael Haas, Emmerich Haimer
+text: Michael Haas 
+23 Siehst du dein Kцpfchen im Spiegel? Nein. 3:43 
+  voices: Michael Haas, Irene Denner
+piano: Barbara Rektenwald, violin: Aliosha Biz
+recording-sessions: 4tune Studio Vienna (May 2004), 
+Recordable Studio Stockerau (June/July 2004)
+sound: David Petermann, Bernhard Gittenberger, 
+mix: Bernhard Gittenberger
+composition: Michael Haas
+text: Michael Haas 
+24 Der Vorhang fдllt 4:33 
+  voice: Michael Haas
+piano: Barbara Rektenwald, violin: Aliosha Biz
+recording-sessions: 4tune Studio Vienna (May 2004), 
+Recordable Studio Stockerau (June/July 2004)
+sound: David Petermann, Bernhard Gittenberger, 
+mix: Bernhard Gittenberger
+composition: Michael Haas
+text: Michael Haas
+
 
 ## Отношения с другими группами
 

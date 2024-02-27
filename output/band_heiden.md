@@ -1,10 +1,52 @@
 # Heiden
 
-Дискография
-"Potomkum Pozemskeho Soumraku" 2004, Black Metal
-"Tinne" 2005, Black Metal
-"Era 2" 2007, Black Metal
-"Obsidian" 2009, Black Metal
+
+
+## Дискография
+
+### "Potomkum Pozemskeho Soumraku" 2004, Black Metal
+
+1. Tam hlubko mezi stromy... (Intro)  02:12 
+2. J&#225;-strom  05:27   
+3. Bohyn&#283; v kameni  05:29   
+4. V zajet&#237; bou&#345;e  06:25 
+5. V doup&#283;ti sedych st&#237;n&#367;  03:01   
+6. V korun&#225;ch...  03:49    
+7. Pomsta d&#345;ev&#283;n&#233;ho rodu  04:05   
+8. S &#345;ekou p&#237;se&#328; do ticha (Outro)  03:16 
+
+### "Tinne" 2005, Black Metal
+
+1. Ngetal (Instrumental)  02:12    
+2. Oh&#242;ov&#225; noc  04:27   
+3. Prom&#236;na (znovuzrozen k z&#225;niku)  02:08 
+4. Chladn&#253; dech podzimu  07:11   
+5. Kdy&#382; lesy sp&#237; (Instrumental)  02:38   
+6. Hn&#236;v nebes nesmrteln&#253;ch  07:55
+7. Pol&#225;rn&#237; den  06:02 
+
+### "Era 2" 2007, Black Metal
+
+1. Ledarium  05:23   
+2. Blame  06:42  
+3. People Of North  04:55   
+4. Proxima Centauri  06:03  
+5. Under The Iron Wings Of Stars  06:01  
+6. Everyone's Fate  06:20 
+7. Night Wandering  05:13  
+8. Land Of Tears  08:23 
+
+### "Obsidian" 2009, Black Metal
+
+1. Nostalgia Echo  02:41    
+2. Catharsis  04:39  
+3. Triad  06:33    
+4. At a Funeral  05:17 
+5. Thujone  05:31   
+6. Post Lux Tenebras  04:17
+7. Monomania  06:50  
+8. Buried 100 Years Ago  04:21 
+
 
 ## Отношения с другими группами
 

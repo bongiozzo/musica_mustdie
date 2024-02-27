@@ -1,8 +1,55 @@
 # Scum
 
-Дискография
-"Mother Nature" 1994, Death Doom
-"Purple Dreams And Magic Poems" 1995, Death Doom
+
+
+## Дискография
+
+### "Mother Nature" 1994, Death Doom
+
+1. Creation Of Flesh
+2. Voyage Into Depth Of Insanity
+3. Sickness Prevails
+4. Mother Nature
+5. Macabre Moors Of Morgoth
+6. Shadow Hunting
+7. House Of The Rising Sun *
+8. Final Vision
+9. Message
+
+ P.T. Ascola - Vocals
+ Jussi Haakana - Guitars
+ Jani Riikonen - Guitars
+ Micky Jaatinen - Bass
+ Tony Peiju - Drums
+
+All Songs Written By SCUM, Except * By ANIMALS 1964
+Recorded & Mixed By T. Valtonen At Sun Studio Service In November 1993
+
+(p)&(c) 1994 BLACK MARK Productions
+
+### "Purple Dreams And Magic Poems" 1995, Death Doom
+
+1. Dance Of The White Demons
+2. Circus Of The Freaks
+3. Narcotic Dreams
+4. In The Crest Of The Northern Wave
+5. Flames Of The Silver Sea 
+6. White Dragon
+7. Conception
+8. Oriental Fantasy
+9. Valley Of Dark Dreams
+
+All Songs By SCUM.
+Recorded & Mixed By Ahti Kortelainen At Tico-Tico Studios.
+
+P.T. Ascola - Vocals
+Jussi Haakana - Guitars
+Jani Riikonen - Guitars
+Micky Jaatinen - Bass
+Tony Peiju - Drums
+
+(P)&(C) 1995 BLACK MARK Production
+
 
 ## Отношения с другими группами
 

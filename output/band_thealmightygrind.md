@@ -1,6 +1,9 @@
 # The Almighty Grind
 
-Дискография
+Original Band. Hard Core with groove
+
+## Дискография
+
 
 ## Отношения с другими группами
 

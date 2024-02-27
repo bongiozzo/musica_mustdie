@@ -1,23 +1,389 @@
 # Manowar
 
-Дискография
-"Battle Hymns" 1982, Heavy Metal
-"Into Glory Ride" 1983, Heavy Metal
-"Hail to England" 1984, Heavy Metal
-"Sign of the Hammer" 1984, Heavy Metal
-"Fighting the World" 1987, Heavy Metal
-"Kings of Metal" 1988, Heavy Metal
-"The Triumph of Steel" 1992, Heavy Metal
-"Louder Than Hell" 1996, Heavy Metal
-"Hell on Wheels Live" 1997, Heavy Metal
-"Hell on Stage Live" 1999, Heavy Metal
-"Warriors of the World" 2002, Heavy Metal
-"Hell On Earth III (2 DVD)" 2004, Heavy Metal
-"Hell on earth IV (2 DVD+CD)" 2005, Heavy Metal
-"The Sons Of Odin (EP)" 2006, Heavy Metal
-"Gods Of War" 2007, Heavy Metal
-"Gods Of War Live (2 CD)" 2007, Heavy Metal
-"The Lord Of Steel" 2012, Heavy Metal
+Epic Heavy/Power Metal
+
+## Дискография
+
+### "Battle Hymns" 1982, Heavy Metal
+
+1. Death Tone - 4:51
+2. Metal Daze - 4:20
+3. Fast Taker - 3:56
+4. Shell Shock - 4:07
+5. Manowar - 3:38
+6. Dark Avenger - 6:23
+7. William's Tale - 1:54
+8. Battle Hymn - 6:56
+
+Eric Adams - Vocal.
+Ross the Boss - Guitars, Keyboards.
+Joey DeMaio - Bass Guitars.
+Donnie Hamzik - Drums & Percussion. 
+
+All lyrics and music by ManowaR.
+Produced by Bob Currie.
+Recording: Criteria Recording Studio. Florida, USA.
+Liberty Records.
+
+### "Into Glory Ride" 1983, Heavy Metal
+
+1. Warlord - 4:15
+2. Secret of Steel - 5:50
+3. Gloves of Metal - 5:25
+4. Gates of Valhalla - 7:12
+5. Hatred - 7:42
+6. Revelation (Death's Angel) - 6:31
+7. March for Revenge (By the Soldiers of Death) - 8:31
+
+
+Eric Adams - Vocal.
+Ross the Boss - Guitars, Keyboards.
+Joey DeMaio - Bass Guitars.
+Scott Columbus - Drums & Percussion. 
+
+All lyrics and music by ManowaR.
+Produced by ManowaR and John Mathias.
+Music for Nations.
+
+### "Hail to England" 1984, Heavy Metal
+
+1. Blood of My Enemies - 4:12
+2. Each Dawn I Die - 4:17
+3. Kill With Power - 3:54
+4. Hail to England - 4:19
+5. Army of the Immortals - 4:23
+6. Black Arrows - 3:02
+7. Bridge of Death - 9:05
+
+Eric Adams - Vocal.
+Ross the Boss - Guitars, Keyboards.
+Joey DeMaio - Bass Guitars.
+Scott Columbus - Drums & Percussion. 
+
+All lyrics and music by ManowaR.
+Produced by Jack Richardson.
+Recording in Phase One Studio. Toronto, Canada.
+Music for Nations.
+
+### "Sign of the Hammer" 1984, Heavy Metal
+
+1. All Men Play on Ten - 4:01
+2. Animals - 3:33
+3. Thor (The Powerhead) - 5:23
+4. Mountains - 7:39
+5. Sign of the Hammer - 4:18
+6. The Oath - 4:54
+7. Thunderpick - 3:31
+8. Guyana (The Cult of Damned) - 7:10
+
+Eric Adams - Lead Vocal.
+Ross the Boss - Guitars, Keyboards.
+Joey DeMaio - Bass Guitars.
+Scott Columbus - Drums & Percussion. 
+
+All lyrics and music by ManowaR.
+Produced by: Jack Richardson.
+EMI Records.
+
+### "Fighting the World" 1987, Heavy Metal
+
+1. Fighting the World - 3:46
+2. Blow Your Speakers - 3:36
+3. Carry On - 4:08
+4. Violence and Bloodshed - 3:59
+5. Defender - 6:01
+6. Drums of Doom - 1:18
+7. Holy War - 4:40
+8. Master of Revenge - 1:31
+9. Black Wind, Fire and Steel - 5:17
+
+Eric Adams - Lead Vocal.
+Ross the Boss - Guitars, Keyboards.
+Joey DeMaio - Bass Guitars.
+Scott Columbus - Drums & Percussion. 
+
+All lyrics and music by ManowaR.
+Produced by: Jason Flom.
+Recording: Universal Recording. Chicago, USA.
+Atlantic Records.
+
+### "Kings of Metal" 1988, Heavy Metal
+
+1. Wheels of Fire - 4:11
+2. Kings of Metal - 3:43
+3. Heart of Steel - 5:10
+4. Sting of the Bumblebee - 2:45
+5. The Crown and the Ring (Lament of the Kings) - 4:46
+6. Kingdome Come - 3:55
+7. Pleasure Slave* - 5:37
+8. Hail and Kill - 5:54
+9. The Warriors Prayer - 4:20
+10. Blood of the Kings - 7:30
+
+Eric Adams - Lead Vocal.
+Ross the Boss - Guitars, Keyboards.
+Joey DeMaio - Bass Guitars.
+Scott Columbus - Drums & Percussion. 
+
+The Crown and the Ring (Lament of the King) record in St. Paul's Cathedral (Birmingem, England).
+
+All lyrics and music by ManowaR.
+Produced by Jason Flom and ManowaR.
+Mixing, Recording, Synclavier Programming by Rich Breen.
+Recording: Universal Recording. Florida, USA.
+Atlantic Records.
+
+### "The Triumph of Steel" 1992, Heavy Metal
+
+1. Achilles, Agony and Ecstasy in Eight Parts - 28:38
+2. Metal Warriors (Brothers of Metal Pt. I) - 3:54
+3. Ride the Dragon - 4:32
+4. Spirit Horse of the Cherokee - 6:02
+5. Burning - 5:10
+6. The Power of Thy Sword - 7:50
+7. The Demon's Whip - 7:50
+8. Master of the Wind - 5:26
+
+Eric Adams - Lead Vocal.
+David Shankle - Guitars.
+Joey DeMaio - Bass Guitars, Keyboards.
+Rhino Edwards - Drums & Percussion. 
+
+All Lyric and music by ManowaR.
+Produced by ManowaR.
+Mixing by Hank Neuberger, Stefon Taylor, Dave Kresl, Doug McBride, Dan Stout.
+Recorded in Haus Wanfried. New York, USA.
+Atlantic Records.
+
+### "Louder Than Hell" 1996, Heavy Metal
+
+1. Return of the Warlord
+2. Brothers of Metal (Pt.I)
+3. The Gods Made Heavy Metal
+4. Courage
+5. Number
+6. Outlaw
+7. King
+8. Today Is a Good Day to Die
+9. My Spirit Lives On
+10.The Power
+
+Eric Adams - Vocals
+Joey DeMaio - Four String, Eight String And Piccolo Bass Guitars, Bass Pedals
+Karl Logan - Electric, Acoustic & Classical Guitars
+Rhino - Drums & Percussion
+
+All Songs Written & Produced By MANOWAR.
+
+(p)&(c) 1996 Geffen Records
+
+### "Hell on Wheels Live" 1997, Heavy Metal
+
+CD1:
+
+1. Manowar - 5:22
+2. Kings of Metal - 3:33
+3. Kill With Power - 3:28
+4. Sign of the Hammer - 4:51
+5. My Spirit Lives On - 4:25
+6. Piano Interlude - 1:29
+7. Courage - 4:15
+8. Spirit Horse of the Cherokee - 5:07
+9. Blood of My Enemies - 4:21
+10. Hail and Kill - 8:17
+11. Warriors of the World - 3:05
+
+
+CD2:
+
+1. Wheels of Fire - 4:33
+2. Metal Warriors (Brothers of Metal Pt. I) - 3:47
+3. Army of the Immortals - 4:51
+4. Black Arrows - 10:14
+5. Fighting the World - 4:24
+6. Thor (The Powerhead) - 5:07
+7. The King - 4:57
+8. The Gods Made Heavy Metal - 5:32
+9. Black Wind, Fire and Steel - 7:24
+10. Return of the Warlord - 4:40
+11. Carry On - 3:07
+12. Battle Hymn - 12:44
+
+Eric Adams - Vocal.
+Karl Logan - Guitars.
+Joey DeMaio - Bass Guitars, Keyboards.
+Scott Columbus - Drums & Percussion. 
+
+BMG Records
+
+### "Hell on Stage Live" 1999, Heavy Metal
+
+CD1:
+
+1. Metal Daze - 4:33
+2. Dark Avenger - 6:26
+3. March for Revenge (By the Soldiers of Death) - 9:02
+4. Gates of Valhalla - 7:57
+5. Hatred - 8:40
+6. Bridge of Death - 9:14
+7. William's Tale [instrumental] - 3:08
+8. Guyana (The Cult of Damned) - 7:34
+
+Time: 56:44 
+
+CD2:
+
+1. The Warriors Prayer - 4:23
+2. Blood of the Kings - 8:04
+3. Sting of Bumblebee [instrumental] - 5:59
+4. Heart of Steel - 6:23
+5. Master of the Wind - 5:36
+6. Outlaw - 3:29
+7. The Power - 4:08
+8. The Crown & The Rings (Lament of the Kings) - 2:56
+
+Time: 40:58 
+
+Eric Adams - Vocal.
+Karl Logan - Guitars.
+Joey DeMaio - Bass Guitars, Keyboards.
+Scott Columbus - Drums & Percussion. 
+
+Metal Blade Records
+
+### "Warriors of the World" 2002, Heavy Metal
+
+1. Call to Arms - 5:31
+2. The Fight for Freedom - 4:30
+3. Nessun Dorma - 3:29
+4. Valhalla - 0:35
+5. Swords in the Wind - 5:20
+6. An American Trilogy - 4:20
+7. The March - 4:01
+8. Warriors of the World United - 5:51
+9. Hand of Doom - 5:49
+10. House of Death - 4:25
+11. Fight Until We Die - 4:02
+
+Eric Adams - Lead Vocal.
+Karl Logan - Guitars.
+Joey DeMaio - Bass Guitars, Keyboards.
+Scott Columbus - Drums & Percussion. 
+
+All Songs Recorded and Produced in Hell by MANOWAR
+Mixed At Galaxy Studios Mol, Belgium
+Mixed by Ronald Prent
+Mastered by Rene Schardt at Galaxy Mastering
+Assistant Engineer Rob Sannen
+
+Grand Piano, Pipe Organ and Orchestral Arrangements
+(as well as perfect pitch and many others great and glorious things)
+by Joe Rozler, a true talent as well as a true friend.
+
+Backing vocal on American Trilogy sung by Mary Breon and Joe Rozler. Mary Breon appears courtesy of Magic Circle Music.
+
+All Songs Publishing By Inar Music 2002
+An American Trilogy Published by a cuff-Rose 1971.
+Nessun Dorma Published by BMG 1926.
+
+### "Hell On Earth III (2 DVD)" 2004, Heavy Metal
+
+DVD 1
+ 
+1.   HELL ON EARTH III: Introduction 
+2.   Fighting the world 
+3.   Heart of steel 
+4.   Evil eclipse 
+5.   Kings of metal 
+6.   Duel of the titans 
+7.   Hail and kill 
+8.   Nessun dorma 
+9.   Return of the warlord 
+10.   Monsters of the millenium 
+11.   Gates of Valhalla 
+12.   Brothers of metal & sisters of steel 
+13.   Credits 
+14.   BONUS: Black wind, fire & steel 
+15.   Herz aus Stahl 
+16.   March for revenge 
+17.   Wheels of fire 
+18.   Alexander the great 
+19.   Moments in time 
+20.   Friends 
+21.   Moments of truth 
+22.   Nessun dorma - The story 
+23.   Wildlife 
+
+DVD 2
+ 
+1.   LIVE IN GERMANY - The Ringfest: Introduction 
+2.   Manowar 
+3.   Kings of metal 
+4.   Eric's speech 
+5.   Herz aus Stahl 
+6.   Evil eclipse 
+7.   Warriors of the world united 
+8.   Kill with power 
+9.   House of death 
+10.   Joey's speech 
+11.   Black wind, fire and steel 
+12.   The crown and the ring 
+13.   VIDEOS: Gloves of metal 
+14.   Blow your spearkers 
+15.   Metal warriors [Live] 
+16.   Return of the warlord 
+17.   Courage [Live] 
+18.   Warriors of the world united 
+19.   I believe 
+20.   Gloves of metal [Special edition] 
+21.   Secrets of steel 
+22.   BONUS: The making of 'Gloves of Metal', Making of 'Gloves of Metal' Special edition, Making of 'Blow your Speakers', Making of 'Return of the Warlord', Making of 'Warriors of the World United' (Fire, ice & gasoline), Making of 'Believe', The Warrior's Prayer, Ringfest Documentary
+
+### "Hell on earth IV (2 DVD+CD)" 2005, Heavy Metal
+
+
+
+### "The Sons Of Odin (EP)" 2006, Heavy Metal
+
+
+
+### "Gods Of War" 2007, Heavy Metal
+
+1. Overture to the Hymn of the Immortal Warriors 06:19  
+2. The Ascension 02:30  
+3. King of Kings 04:18
+4. Army of the Dead, Part I 01:58  
+5. Sleipnir 05:13  
+6. Loki God of Fire 03:50  
+7. Blood Brothers 04:54  
+8. Overture to Odin 03:41  
+9. The Blood of Odin 03:57  
+10. The Sons of Odin 06:23  
+11. Glory Majesty Unity 04:41  
+12. Gods of War 07:26  
+13. Army of the Dead, Part II 02:20  
+14. Odin 05:27  
+15. Hymn of the Immortal Warriors 05:29
+16. Die For Metal (bonus) 05:17
+
+### "Gods Of War Live (2 CD)" 2007, Heavy Metal
+
+
+
+### "The Lord Of Steel" 2012, Heavy Metal
+
+01. The Lord Of Steel (4:07)
+02. Manowarriors (4:46)
+03. Born In A Grave (5:47)
+04. Righteous Glory (6:10)
+05. Touch The Sky (3:49)
+06. Black List (6:58)
+07. Expendable (3:10)
+08. El Gringo (4:57)
+09. Annihilation (4:00)
+10. Hail Kill And Die (3:56)
+11. The Kingdom Of Steel [bonus track] (7:20)
+
 
 ## Отношения с другими группами
 

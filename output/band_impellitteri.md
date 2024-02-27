@@ -1,20 +1,212 @@
 # Impellitteri
 
-Дискография
-"Impellitteri (EP)" 1987, Heavy Metal
-"Stand In Line" 1988, Heavy Metal
-"Grin and Bear It" 1992, Heavy Metal
-"Victim Of The System (EP)" 1993, Heavy Metal
-"Answer To The Master" 1994, Heavy Metal
-"Screaming Symphony" 1996, Heavy Metal
-"Eye Of The Hurricane" 1997, Heavy Metal
-"Fuel For The Fire (EP)" 1997, Heavy Metal
-"Live! Fast! Loud! (Live)" 1998, Heavy Metal
-"Crunch" 2000, Heavy Metal
-"System X" 2002, Heavy Metal
-"Pedal To The Metal" 2005, Heavy Metal
-"Wicked Maiden" 2009, Heavy Metal
-"Venom" 2015, Heavy Metal
+(Guitar virtuoso in a way of Yngwie Malmsteen)
+
+## Дискография
+
+### "Impellitteri (EP)" 1987, Heavy Metal
+
+1. Lost In The Rain
+2. Play With Fire
+3. Burning
+4. I'll Be Searching
+
+Rob Rock - Vocals
+Chris Impellitteri - All Guitars
+Loni Silva - Drums
+
+
+
+### "Stand In Line" 1988, Heavy Metal
+
+1. Stand In Line
+2. Since You've Been Gone
+3. Secret Lover
+4. Somewhere Over The Rainbow
+5. Tonight I Fly
+6. White And Perfect
+7. Leviathan
+8. Goodnight And Goodbye
+9. Playing With Fire
+
+### "Grin and Bear It" 1992, Heavy Metal
+
+1. When The Well Runs Dry
+2. Ball And Chain
+3. Wake Up Sally
+4. Power Of Love
+5. Under The Gun
+6. Endless Nights
+7. City's On Fire
+8. Grin & Bear It
+9. Dance
+
+### "Victim Of The System (EP)" 1993, Heavy Metal
+
+1. Victim Of The System
+2. Visual Prison
+3. Glory
+4. Cross To Bear
+5. The Young And The Ruthless
+
+### "Answer To The Master" 1994, Heavy Metal
+
+1. The Future Is Black
+2. Fly Away
+3. Warrior
+4. I'll Wait
+5. Hold The Line
+6. Somethings Wrong With The World Today
+7. Answer To The Master
+8. Hungry Days
+9. The King Is Rising
+
+### "Screaming Symphony" 1996, Heavy Metal
+
+1. Father Forgive Them
+2. I'll Be With You
+3. Walk Away
+4. Kingdom Of Light
+5. Countdown To The Revolution
+6. 17th Century Chicken Pickin'
+7. Rat Race
+8. For Your Love
+9. You Are The Fire
+
+### "Eye Of The Hurricane" 1997, Heavy Metal
+
+EYE OF THE HURRICANE
+SHED YOUR BLOOD
+FUEL FOR THE FIRE
+BLEED IN SILENCE
+MASTER OF DISGUISE
+ON AND ON
+EVERYTHING IS YOU
+KINGDOM FIGHTER
+PARADISE
+STAND OR FALL
+TEARS IN THE EYES OF THE WORLD
+
+
+
+This new CD is perhaps their most prolific release yet, with a tidal-wave of raw sound, musical passages, ballads, two instrumentals, and lyrics from the heart. Features the blistering instrumental "Race into the Light", and the furious vocals of "Shed your Blood".
+
+
+Rob Rock-Vocals
+Chris Impellitteri-All Guitars
+James Amelio Pulli-Bass
+Edward Harris Roth-Keyboards
+Ken Mary-Drums
+
+
+
+### "Fuel For The Fire (EP)" 1997, Heavy Metal
+
+1. Fuel For The Fire
+2. Stand Or Fall
+3. Paradise
+4. Tears In The Eyes Of The World
+
+### "Live! Fast! Loud! (Live)" 1998, Heavy Metal
+
+01. Overture
+02. Visual Prison
+03. I'll Be With You
+04. Victim Of The System
+05. Walk Away
+06. Stand In Line
+07. Countdown To The Revolution
+08. Screaming Symphony
+09. Burning
+10. Lost In The Rain
+11. For Your Love
+12. Over The Rainbow
+13. Warrior
+14. Highway Star
+15. Meet The Band
+16. The King Is Rising
+
+### "Crunch" 2000, Heavy Metal
+
+01. Beware Of The Devil
+02. Turn Of The Century
+03. Speed Demon
+04. Wake Me Up
+05. Spanish Fire
+06. Slay The Dragon
+07. Wasted Earth
+08. Forever Yours
+09. Texas Nuclear Boogie
+10. Fear No Evil
+
+Rob Rock - Vocals
+Chris Impellitteri - All Guitars
+James Amelio Pulli - Bass
+Edward Harris Roth - Keyboards
+Glen Sobel - Drums
+
+### "System X" 2002, Heavy Metal
+
+01. United We Stand
+02. Perfect Crime
+03. End Of The World
+04. She's A Nighttime Lover
+05. Slow Kill
+06. Why Do They Do That
+07. Rock'n'Roll Heroes
+08. Gotta Get Home
+09. What Kind Of Sanity
+10. Falling In Love With A Stranger
+
+### "Pedal To The Metal" 2005, Heavy Metal
+
+1. THE WRITINGS ON THE WALL
+2. CRUSHING DAZE
+3. DESTRUCTION
+4. DANCE WITH THE DEVIL
+5. HURRICANE
+6. JUDGMENT DAY
+7. THE ICEMAN COMETH
+8. PUNK
+9. PROPAGANDA MIND
+10. STAY TONIGHT
+11. THE FALL OF TITUS
+
+Curtis Skelton-Vocals
+Chris Impellitteri-All Guitars
+James Amelio Pulli-Bass
+Glen Sobel-Drums
+
+### "Wicked Maiden" 2009, Heavy Metal
+
+1. Wicked Maiden 04:01
+2. Last of A Dying Breed 03:12
+3. Weapons Of Mass Distortion 03:51
+4. Garden Of Eden 05:13
+5. The Vision 04:56
+6. Eyes of an Angel 04:15
+7. Hi-Scool Revolution 04:36
+8. Wonderful Life 04:02
+9. Holy Man 04:15
+10. The Battle Rages On 04:41 
+
+### "Venom" 2015, Heavy Metal
+
+01. Venom
+02. Empire Of Lies
+03. We Own The Night
+04. Nightmare
+05. Face The Enemy
+06. Domino Theory
+07. Jehovah
+08. Rise
+09. Time Machine
+10. Holding On
+
+Бонус-треки:
+11. Rock Through The Night
+12. Reach For The Sky
+
 
 ## Отношения с другими группами
 

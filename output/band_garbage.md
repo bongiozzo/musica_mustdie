@@ -1,7 +1,35 @@
 # Garbage
 
-Дискография
-"Garbage" 1996, Alternative
+
+
+## Дискография
+
+### "Garbage" 1996, Alternative
+
+1. Supervixen (3.55)
+2. Queer (4.36)
+3. Only Happy When It Rains (3.56)
+4. As Heaven Is Wide (4.44)
+5. Not My Idea (3.41)
+6. A Stroke Of Luck (4.44)
+7. Vow (4.30)
+8. Stupid Girl (4.18)
+9. Dog New Tricks (3.56)
+10.My Lover's Box (3.55)
+11.Milk (3.53)
+
+All songs written by CARBAGE
+Engineered by Mike Zirkel
+Recorded by CARBAGE at Smart
+Studios
+
+Shirley Manson - Vocals, Guitar
+Steve Markes - Guitars, Bass, Samples
+Duke Erikson - Guitars, Keyboards, Bass
+Butch Vig - Drums
+
+(p)(c) 1996 ALMO Sounds
+
 
 ## Отношения с другими группами
 

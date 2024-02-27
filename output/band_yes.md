@@ -1,10 +1,45 @@
 # Yes
 
-Дискография
-"Open Your Eyes" 1997, Instrumental
-"The Ladder" 1999, Instrumental
-"House Of Yes: Live From The House Of Blues (2 CD)" 2000, Instrumental
-"Live At Montreux 2003 (2 CD)" 2007, Instrumental
+
+
+## Дискография
+
+### "Open Your Eyes" 1997, Instrumental
+
+New State of Mind 
+Open Your Eyes 
+Universal Garden 
+No Way We Can Lose 
+Fortune Seller 
+Man In The Moon
+Wonderlove
+From The Balcony
+Love Shine 
+Somehow, Someday 
+The Solution
+
+### "The Ladder" 1999, Instrumental
+
+Homeworld (The Ladder) 
+It Will Be A Good Day (The River) 
+Lightning Strikes 
+Can I? 
+Face To Face 
+If Only You Knew 
+To Be Alive (Hep Yadda) 
+Finally 
+The Messenger 
+New Language 
+Nine Voices (Longwalker)
+
+### "House Of Yes: Live From The House Of Blues (2 CD)" 2000, Instrumental
+
+
+
+### "Live At Montreux 2003 (2 CD)" 2007, Instrumental
+
+
+
 
 ## Отношения с другими группами
 

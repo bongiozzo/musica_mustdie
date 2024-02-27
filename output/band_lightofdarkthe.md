@@ -1,9 +1,44 @@
 # Light of Dark, The
 
-Дискография
-"Spiritual Cannibalism" 2004, Death Metal
-"Beyond Darkness And Hell We Come" 2007, Death Metal
-"World War Satan" 2011, Death Metal
+
+
+## Дискография
+
+### "Spiritual Cannibalism" 2004, Death Metal
+
+1. Intro  00:16  
+2. Ode For Thy Mist  03:52  
+3. Breathless Sleep  02:58  
+4. Savage Holy Land  03:57   
+5. Immaculated In Sin  05:38   
+6. Murdering In Silence  03:46  
+7. Drowned In Fire  05:10   
+8. Messiah Of Eternal Pest  03:42 
+9. Horrorgore  04:39 
+
+### "Beyond Darkness And Hell We Come" 2007, Death Metal
+
+1. Al Azif  04:51
+2. Beyond Darkness And Hell We Come  02:50  
+3. Crowns For The Crowns  03:20
+4. Murderer Conception  03:44   
+5. Among Deads  04:22  
+6. Underworld Command Attack  05:09   
+7. Burial In The Void  04:28   
+8. When Your Candles Goes Off  03:03 
+
+### "World War Satan" 2011, Death Metal
+
+1. Sumerian magic 
+2. Unnatural criminal
+3. World War Satan
+4. Patient Zero 
+5. Electronic Voice Phenomena
+6. Voodoo made Zombies 
+7. Mother Death 
+8. Blaspheme Chaos Destruction 
+9. Dead child Cry
+
 
 ## Отношения с другими группами
 

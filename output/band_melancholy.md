@@ -1,19 +1,161 @@
 # Melancholy
 
-Дискография
-"The Fatal Deconstruction Of World" 2001, Gothic
-"Fear Of Emptiness" 2003, Gothic
-"Closed Eyes" 2003, Gothic
-"Abeyance" 2005, Gothic
-"Proфet Ver.1" 2005, Gothic
-"Nano (English Version)" 2006, Gothic
-"Nano (Russian Version)" 2006, Gothic
-"Capsula" 2008, Gothic
-"10 Years Of Madness [DVD]" 2009, Metalcore
-"Organics - Ashes Of Faith" 2010, Metal
-"Organics - Levitation" 2012, Metal
-"Organics - Happiness Formula" 2014, Metal
-"St. Portal" 2016, Metal
+
+
+## Дискография
+
+### "The Fatal Deconstruction Of World" 2001, Gothic
+
+1. Falling Souls
+2. Dying Rain
+3. Frozen
+4. Run
+5. Ruins Of Me
+6. Strange Thoughts
+7. Sky Bar
+
+### "Fear Of Emptiness" 2003, Gothic
+
+1. Fear
+2. Beyond The Being
+3. Dying Rain
+4. Drift
+5. Nuclear Dance
+6. Cry
+7. Look
+8. Say Just Words*
+9. Last Day
+
+
+* - a song of PARADISE LOST
+
+Roos Beast - guitar, vocals
+Vikkey - female vocals
+Nuch - guitar
+Viktoria Ugly - keyboards
+Loss - bass
+Dr.Smaller - drums
+
+
+All music by Roos Beast
+All Lyrics By Ivan Nuch
+Recorded and mixed on MINDCRUSHER LABS studio during spring 2002
+Engineered by Roos Beast, Alex Loss & Ivan Nuch
+Mastered by Roos Beast 
+
+### "Closed Eyes" 2003, Gothic
+
+
+
+### "Abeyance" 2005, Gothic
+
+1. Introlude 
+2. Final try 
+3. Mist 
+4. Mu-gum 
+5. Suspension 
+6. Infected 
+7. No odinary love 
+8. Die,forgive 
+9. Abeyance 
+10. Die,forgive (Vugy variation)
+
+### "Proфet Ver.1" 2005, Gothic
+
+1. Cryptocode
+2. Nu_religion
+3. Eutanasi
+4. Криптокод
+5. Новая Религия
+6. Эвтаназия
+7. Replica
+8. Re_Code
+
+### "Nano (English Version)" 2006, Gothic
+
+1. From Within
+2. Faith, Hope, Death...
+3. Nu Religion
+4. Cyber Nation
+5. Creep In a Sell
+6. Cryptocode
+7. My Paradise
+8. Beatiful Day
+9. Free
+10. Master of the Game
+
+### "Nano (Russian Version)" 2006, Gothic
+
+1. Кибер поколение
+2. Пять
+3. Новая религия
+4. Free
+5. Рай в руке
+6. Изнутри
+7. Пустота
+8. Урод в скорлупе
+9. Утро следующего дня
+10. Криптокод
+
+### "Capsula" 2008, Gothic
+
+1. Inside me
+2. Smiling
+3. Wild
+4. Stay
+5. Goo
+6. Failing reality
+7. My priority
+8. I'm ok
+9. Insomnia
+10. Renascence
+11. Races are over
+
+Время звучания:  57:30
+Формат: ltd.edition - СD+DVD -slim-case
+Региональная версия - CD (упрощенная)
+
+Состав группы:
+Roos - Guitar, Vocal
+Tanin - vocal
+Alex - bass
+Kron - key, guitar
+Bruno - cello, key
+Yuri - drums
+
+Дата релиза - Россия - 5 мая с.г. - Mindcrusher/MetalAgen Records
+World release - 14 may - Taliesin Records/Century Media Distro
+
+
+### "10 Years Of Madness [DVD]" 2009, Metalcore
+
+
+
+### "Organics - Ashes Of Faith" 2010, Metal
+
+
+
+### "Organics - Levitation" 2012, Metal
+
+
+
+### "Organics - Happiness Formula" 2014, Metal
+
+
+
+### "St. Portal" 2016, Metal
+
+01. The Search For Truth
+02. Stone Eye
+03. Blood & Magic
+04. 13 Days Of Cell Division 
+05. Crossing The Line 
+06. Twisted Forest
+07. Waves And Clouds
+08. Testosterone
+09. High Stakes
+10. Home
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,13 @@
 # Fifth Reason
 
-Дискография
-"Within Or Without" 2001, Progressive
+prog metal, ex Memory Garden, Memento Mori, Hexenhaus, Abstract Algebra, Tad Morose
+
+## Дискография
+
+### "Within Or Without" 2001, Progressive
+
+
+
 
 ## Отношения с другими группами
 

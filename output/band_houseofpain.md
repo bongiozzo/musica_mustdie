@@ -1,8 +1,50 @@
 # House Of Pain
 
-Дискография
-"House Of Pain" 1992, Rap Metal
-"Same As It Ever Was" 1994, Rap Metal
+
+
+## Дискография
+
+### "House Of Pain" 1992, Rap Metal
+
+1.  Salutation
+2.  Jump Around
+3.  Put Your Head Out
+4.  Top O' The Morning To Ya
+5.  Commercial 1
+6.  House And The Rising Son
+7.  Shamrocks And Shenanigans
+8.  House Of Pain Anthem
+9.  Danny Boy, Danny Boy
+10.Guess Who's Back
+11.Commercial 2
+12.Put On Your Shit Kickers
+13.Come And Get Some Of This
+14.Life Goes On
+15.One For The Road
+16.Feel It
+17.All My Love
+
+(P)c 1992
+
+### "Same As It Ever Was" 1994, Rap Metal
+
+1.  Back From The Dead
+2.  I'm A Swing It
+3.  All That
+4.  On Point
+5.  Runnin' Up On Ya
+6.  Over These Shit
+7.  Word Is Bond
+8.  Keep It Comin'
+9.  Interlude
+10.Same As It Ever Was
+11.It Ain't A Crime
+12.Where I'm From
+13.Still Got A Lotta Love
+14.Who's The Man
+
+(P)c 1994
+
 
 ## Отношения с другими группами
 

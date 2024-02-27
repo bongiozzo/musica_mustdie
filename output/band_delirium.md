@@ -1,7 +1,27 @@
 # Delirium
 
-Дискография
-"Zzooouhh" 1991, Death Metal
+
+
+## Дискография
+
+### "Zzooouhh" 1991, Death Metal
+
+1. The Ninth Dimension
+2. The Warrior
+3. Bitch
+4. Amputation
+5. Voices From Zzooouhh
+6. Floods Of Intricate
+7. Menace Unseen
+8. The Sign Of Orth
+9. Beyond The Gates Of Afterdead
+
+ Mark Honout - All Guitars & All Vocals
+ Laura Bennger - Bass
+ Han Swagerman - Drums
+
+(p)&(c) 1991 PROPHECY
+
 
 ## Отношения с другими группами
 

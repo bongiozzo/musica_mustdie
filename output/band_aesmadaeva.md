@@ -1,9 +1,40 @@
 # Aesma Daeva
 
-Дискография
-"Here Lies whose name was written in water" 2000, Gothic
-"The Eros Of Frigid Beauty" 2002, Gothic
-"Dawn of the New Athens" 2007, Gothic
+Industrial Gothic-Doom with a Female Vocal
+
+## Дискография
+
+### "Here Lies whose name was written in water" 2000, Gothic
+
+O Death (Rock me asleep) 
+Downvain 
+Stay 
+Disdain 
+Introit I 
+When I have Fears that I may cease to be 
+Perpetua Luceat Eis 
+Introit II 
+Communion 
+Sanctus 
+Darkness (Stromkern) 
+
+
+### "The Eros Of Frigid Beauty" 2002, Gothic
+
+
+
+### "Dawn of the New Athens" 2007, Gothic
+
+1. Tisza's Child 06:36
+2. The Bluish Shade 05:14 
+3. Artemis 06:22  
+4. Hymn to the Sun 04:21 
+5. D'Oreste 03:25 
+6. The Camp of Souls 05:36
+7. Ancient Verses 04:32  
+8. Since the Machine 06:49 
+9. The Loon 06:32
+
 
 ## Отношения с другими группами
 

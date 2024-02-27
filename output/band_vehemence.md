@@ -1,7 +1,23 @@
 # Vehemence
 
-Дискография
-"Helping The World To See" 2004, Melodic Death Metal
+
+
+## Дискография
+
+### "Helping The World To See" 2004, Melodic Death Metal
+
+1. By Your Bedside 
+2. Kill For God 
+3. Trinity Broadcasting (Know Your Enemy) 
+4. To The Taste 
+5. You Don't Have To Be Afraid Anymore 
+6. Alone In Your Presence 
+7. Spirit Of The Soldier 
+8. Darkness Is Comfort 
+9. What Could Go Wrong? 
+10. We Are All Dying 
+11. Her Beautiful Eyes
+
 
 ## Отношения с другими группами
 

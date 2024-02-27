@@ -1,7 +1,13 @@
 # Betercore
 
-Дискография
-"_" , Grindcore
+fast youthcrustcore
+
+## Дискография
+
+### "_" , Grindcore
+
+
+
 
 ## Отношения с другими группами
 

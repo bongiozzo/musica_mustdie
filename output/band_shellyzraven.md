@@ -1,7 +1,21 @@
 # Shellyz Raven
 
-Дискография
-"Desolation" 2000, Gothic
+gothic darkwave from Norway
+
+## Дискография
+
+### "Desolation" 2000, Gothic
+
+Falling 
+Lady of Shadows 
+Heavenly Inferno 
+Sweet Sister Torment 
+Desolation 
+Frost 
+Forlorn 
+Nihilist 
+Monochrama 
+
 
 ## Отношения с другими группами
 

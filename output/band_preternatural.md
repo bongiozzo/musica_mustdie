@@ -1,7 +1,13 @@
 # Preternatural
 
-Дискография
-"Statical" 2008, Techno Death
+
+
+## Дискография
+
+### "Statical" 2008, Techno Death
+
+
+
 
 ## Отношения с другими группами
 

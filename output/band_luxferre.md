@@ -1,7 +1,21 @@
 # Lux Ferre
 
-Дискография
-"Antichristian War Propaganda" 2004, Black Metal
+
+
+## Дискография
+
+### "Antichristian War Propaganda" 2004, Black Metal
+
+01. Antichristian War Propaganda
+02. By My Grace... I Am Divine
+03. Corrosive Torment
+04. Next To Satan
+05. Achtung! (The Devil`s Garden) 
+06. Subvert (Denial`s End) 
+07. Summoning The Eternal Darkness
+08. Horns` Crush In Celebration
+09. Brotherhood Of The Goat
+
 
 ## Отношения с другими группами
 

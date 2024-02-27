@@ -1,7 +1,22 @@
 # Mess Age
 
-Дискография
-"Self Convicted" 2002, Thrash
+thrash from Poland
+
+## Дискография
+
+### "Self Convicted" 2002, Thrash
+
+1. Among The Empty Walls. 
+2.Fulfilled With Nothing. 
+3. Infected By Deflections. 
+4. The Existence Door. 
+5. C.O.L.D. 
+6. Post Scriptum. 
+7. Devoured With Famished Eyes. 
+8. The Scarlet Rings. 
+9. Kill The Falsehood 
+10. Wating For Miracle.
+
 
 ## Отношения с другими группами
 

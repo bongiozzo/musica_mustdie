@@ -1,16 +1,213 @@
 # Rough Silk
 
-Дискография
-"Rough Silk EP" 1991, Heavy Metal
-"Roots Of Hate" 1993, Progressive
-"Walls Of Never" 1994, Progressive
-"Circle Of Pain" 1996, Progressive
-"Mephisto" 1997, Progressive
-"Beyond The Sundown" 1998, Progressive
-"Wheels Of Time" 1999, Progressive
-"Symphony Of Life" 2001, Progressive
-"End of Infinity" 2003, Progressive
-"A New Beginning" 2009, Progressive
+
+
+## Дискография
+
+### "Rough Silk EP" 1991, Heavy Metal
+
+Through The Fire
+Desert Wind
+You Can't Buy Love
+Ups And Downs 
+Through The Fire ( Acoustic Version )
+
+
+### "Roots Of Hate" 1993, Progressive
+
+The Grapes Of Wrath (Instrumental)
+Roots Of Hate 
+In The Deep Of The Night
+Calls To The Wind
+When Thunder Rolls
+Candle In The Rain
+Cemetary Dawn
+Sentimental Trust 
+Wasteland Serenader
+Through The Fire
+Ups And Downs
+Why
+Eyes Of A Stranger
+Forever
+
+
+
+Produced by Stefan Kaufmann
+
+
+Jan Barnett
+Ferdy Doernberg
+Herbert Hartmann
+Hilmer Staacke
+Ralf Schwertner
+
+
+### "Walls Of Never" 1994, Progressive
+
+Walls Of Never 
+H8 What U Want
+Somebody's Out There
+Toxical Roses
+One More For The Ride
+Gloria In Destiny
+Never Loose Again 
+Missing You
+Lust Is A Killer
+Never Say Never
+Don't Leave Me Now
+The Clown
+
+
+
+
+
+### "Circle Of Pain" 1996, Progressive
+
+The End 
+Insania
+Circle Of Pain
+Les Chiens De La Guerre
+Life Goes On
+When The Skunk's Got You Down
+...And The Winds Scream In Anger 
+For Once In My Life
+On The Wrong Side Of The Moon
+The Mysterious Boot Hill Grave Inscription
+The Angel And The Raven
+The Beginning (Instrumental)
+
+
+Produced By ROUGH SILK & Jochen Wollenhaupt.
+Engineered & Mixed By Jochen Wollenhaupt.
+Recorded At Big House Studios, Hannover.
+
+Jan Barnett - Lead Vocals, Acoustic Guitars, Mandolin
+Ferdy Doernberg - Keyboards, Guitars, Accordeon, Dombro
+Herbert Hartmann - Drums, Percussion, Timpani
+Andreas Laszewski - Guitars
+Ralf Schwertner - Bass Guitar, Harmonica
+
+
+
+### "Mephisto" 1997, Progressive
+
+Mystery Bay 
+Recall
+Mephisto
+Subway Angel's Caravan
+My Last Farewell
+Dust To Sand
+Glissando 
+Stay Gold
+Far From Home
+The Day Of The Loner
+Wheels Of Time
+
+
+### "Beyond The Sundown" 1998, Progressive
+
+From Here To Eternity 
+Nosferatu
+Beyond The Sundown
+Gods Of Darkness
+A Matter Of Size
+Neutrophobia
+Face To Faith 
+Something To Believe In
+When Life And Pain Unite
+Friends
+Where The Red Waters Flow
+Never Loose Again '98
+
+
+### "Wheels Of Time" 1999, Progressive
+
+CD 1: 
+Plane - You - Down
+Beyond The Sundown
+Insania
+In The Deep Of The Night
+Subway Angel's Caravan
+Pianoman
+Somebody's Out There
+My Last Farewell
+Gods Of Darkness
+Roots Of Hate
+The Clown 
+Nosferatu
+Walls Of Never
+A Matter Of Size
+
+CD 2: 
+Wisdom Of Steel
+Circle Of Pain
+Never Say Never
+Just A Mouldrin' Body
+Desert Wind
+Friends
+Mephisto
+Something To Believe In
+Wheels Of Time
+Never Loose Again
+The Angel And The Raven
+The End
+
+
+### "Symphony Of Life" 2001, Progressive
+
+Symphony Of Life 
+Suicide King & Chaos Queen
+Savannah
+Lucifer
+The Truth
+Nice Day For A Funeral
+Opposite Of Yes 
+Silicone
+Under The Guilliutine
+Stories To Tell
+Savannah (Radio edit)
+Nice Day For A Funeral (Radio edit) 
+
+
+
+Thomas Ludolphy
+Ferdy Doernberg
+Herbert Hartmann
+Nils Wunderlich
+Ralf Schwertner
+
+### "End of Infinity" 2003, Progressive
+
+1. Who Killed Vinyl 01:04  
+2. Isolation 04:51
+3. Lucifer's Hotel 07:10
+4. Restless Heart 04:36
+5. Ambrosia 05:33
+6. What if Darkness is Brighter 06:21
+7. My Little Friend 06:32
+8. Fiddler on the Skeleton Horse 06:16
+9. Carry on 04:13
+10. The End of Infinity 06:12
+11. Mrs. Jealousy & Mr. Greed 05:48
+12. Set Me Free 04:25
+13. Dolly the Sheep 04:15 
+
+### "A New Beginning" 2009, Progressive
+
+1. Temple Of Evil 04:57  
+2. Home Is Where The Pain Is 03:54  
+3. Reborn To Wait 04:17  
+4. The Roll Of The Dice 06:32  
+5. When The Circus Is Coming To Town 03:25  
+6. Sierra Madre 06:34  
+7. A New Beginning 05:15  
+8. Warpaint 03:50  
+9. Black Leather 04:05  
+10. We've Got A File On You 02:35  
+11. Deadline 03:40  
+12. We All Need Something To Hold On To In This Life 05:17  
+13. A Song For Hilmer 07:15 
+
 
 ## Отношения с другими группами
 

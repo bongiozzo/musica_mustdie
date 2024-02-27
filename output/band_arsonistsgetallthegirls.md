@@ -1,9 +1,21 @@
 # Arsonists Get All The Girls
 
-Дискография
-"Hits From The Bow" 2006, Deathcore
-"The Game Of Life" 2007, Deathcore
-"Portals" 2009, Deathcore
+
+
+## Дискография
+
+### "Hits From The Bow" 2006, Deathcore
+
+
+
+### "The Game Of Life" 2007, Deathcore
+
+
+
+### "Portals" 2009, Deathcore
+
+
+
 
 ## Отношения с другими группами
 

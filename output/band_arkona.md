@@ -1,12 +1,76 @@
 # Arkona
 
-Дискография
-"Imperium" 1996, Black Metal
-"An Eternal Curse Of Pagan Godz [comp]" 1997, Black Metal
-"Zeta Reticuli (A Tale About Hatred And Total Enslavement)" 2001, Black Metal
-"Nocturnal Arkonian Hordes" 2002, Black Metal
-"Konstelacja Lodu" 2003, Black Metal
-"Wszechzlodowacenie [comp]" 2008, Black Metal
+Atmospheric Gothic Black Doom
+
+## Дискография
+
+### "Imperium" 1996, Black Metal
+
+1. Skrajna Nienawisc Egoisteczrez Egzystencji
+2. Epidemia Rozezarowaria I Nedza Duehowa
+3. Kuzdy Los To Cjer
+4. Jesienne Cienje Czekajace Na Kolejnu Reinkarnacze
+5. Wscieklose Ktora Nadchodzi
+6. Pluje Na Twa Marrosc Psie !
+7. Pogurda  Dla Wrogow Imperium Wszechmocy
+
+Recorded & Mixed At Tuba Studio.
+Remixed July 1995.
+Realization By Grzegorz Czachor.
+Produced By ARKONA.
+All Music By Khorzon.
+All Lyrics By Messiah.
+
+Khorzon - Guitars, Bass
+Pitzer - Guitars
+Messiah - Vocals
+Sylvian - Drums
+T.Lewinski - Keyboards
+
+(P)(C) 1996 ASTRAL WINGS Records // ERNBLISS 006
+
+### "An Eternal Curse Of Pagan Godz [comp]" 1997, Black Metal
+
+
+
+### "Zeta Reticuli (A Tale About Hatred And Total Enslavement)" 2001, Black Metal
+
+
+
+### "Nocturnal Arkonian Hordes" 2002, Black Metal
+
+1. Christianblood for Pagan Might 05:20 
+2. Awaiting Old Millennium Return 04:18
+3. Yelling Beasts of the Wintermoon 05:42
+4. No Blood in My Body 06:09  
+5. Abyss of the Frozen Ravenland 10:07 
+6. Looking for a Shadow of the Master 10:37 
+
+### "Konstelacja Lodu" 2003, Black Metal
+
+1. Mуdl siк do wiatru o powrуt mуj ... 05:55 
+2. Gdzie bogowie s± jak bracia i siostry ... 07:47
+3. Chіodne i dostojne s± nasze oblicza ... 05:30
+4. Moja mistyczna droga do gwiazd ... 05:04 
+5. Kiedy psy w zagrodach ujadaj± ... 07:24 
+6. W mglistej konstelacji lodu ... 10:19 
+
+
+### "Wszechzlodowacenie [comp]" 2008, Black Metal
+
+1. Swit Bogow Zmierzch Bogow I 06:52  
+2. Kajdany Zniewolenia 05:35  
+3. Swit Bogow Zmierzch Bogow II 06:21  
+4. A Dark Dream (Veles cover) 05:00  
+5. Opetany Bluznierca (Besatt cover) 04:37  
+6. Gdzie Bogowie Sa Jak Bracia I Siostry (Remix - 2005) 07:26  
+7. Holokaust Zniewolonych Mas 03:09  
+8. Zrodzony Z Ognia I Lodu 10:15  
+9. Matka Zima 08:34  
+10. Niech Polaczy Nas Kosmos 07:20  
+11. In The Glare Of The Burning Churches (Graveland cover) 04:39  
+12. Triumf Nowej Ery (Honor cover) 07:26 
+
 
 ## Отношения с другими группами
 

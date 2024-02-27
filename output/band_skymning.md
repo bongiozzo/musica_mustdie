@@ -1,9 +1,21 @@
 # Skymning
 
-Дискография
-"Stormchoirs" 1999, Melodic Death Metal
-"Artificial Supernova" 2002, Melodic Death Metal
-"Machina Genova" 2004, Melodic Death Metal
+
+
+## Дискография
+
+### "Stormchoirs" 1999, Melodic Death Metal
+
+
+
+### "Artificial Supernova" 2002, Melodic Death Metal
+
+
+
+### "Machina Genova" 2004, Melodic Death Metal
+
+
+
 
 ## Отношения с другими группами
 

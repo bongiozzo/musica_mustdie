@@ -1,6 +1,9 @@
 # Butchery
 
-Дискография
+crazy goregrind from Canada
+
+## Дискография
+
 
 ## Отношения с другими группами
 

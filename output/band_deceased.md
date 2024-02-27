@@ -1,15 +1,91 @@
 # Deceased
 
-Дискография
-"Luck Of The Corpse" 1991, Death Metal
-"The 13 Frightened Souls (EP)" 1993, Death Metal
-"The Blueprints For Madness" 1995, Death Metal
-"Fearless Undead Machines" 1997, Death Metal
-"Supernatural Addiction" 2000, Death Metal
-"Behind The Mourner's Veil (EP)" 2001, Death Metal
-"Legions Of Arrggghhhh (Compilation)" 2004, Death Metal
-"As The Weird Travel On" 2005, Death Metal
-"Surreal Overdose" 2011, Thrash
+
+
+## Дискография
+
+### "Luck Of The Corpse" 1991, Death Metal
+
+1. Fading Survival
+2. The Cemetary`s Full
+3. Experimating With Failure
+4. Futuristic Doom
+5. Haunted Cerebellum
+6. Decrepit Coma
+7. Shriek From The Hearse
+8. Psychedelic Warriors
+9. Feasting On Skulls
+10.Birth By Radiation
+11.Gutwrench
+
+ King Fowley - Vocals & Drums
+ Mark Adams - Guitar
+ Mike Smith - Guitar
+ Les Snyder - Bass & Back Vocals
+
+Produced By DECEASED & Frank Marchand.
+Engineered By Frank Marchand.
+Mixed By DECEASED & Frank Marchand.
+Recorded At Oz Studios,Winter `90.
+All Second Guitar Tracks By Doug Souther.
+Photos By Joe Scorza.
+
+(p)&(c) 1991 RELAPSE Records
+
+
+### "The 13 Frightened Souls (EP)" 1993, Death Metal
+
+1. The 13 Frightened Souls
+2. Robotic Village
+3. Voivod *
+4. Planet Graveyard
+5. Nuclear Exorcist
+
+ King Fowley - Vocals & Drums
+ Mark Adams - Guitar
+ Mike Smith - Guitar
+ Les Snyder - Bass & Back Vocals
+
+All Songs By DECEASED Except Of * By VOIVOD.
+Recorded & Mixed May `92 At Inner Ear Studio
+By Don Zientara,Frank Marchland & DECEASED.
+Live Photo By Rushan Baday.
+Executive Producers William J.Yurkiewicz Jr. &
+Matthew F.Jacobson.
+Band Photo By Dianne Dommasch Smith.
+Cover Art By Tchelitchew , Pavel.
+"Hide And Seek" ["Cache-Cache"],1940-42.
+
+(p)&(c) 1993 RELAPSE Records
+
+### "The Blueprints For Madness" 1995, Death Metal
+
+
+
+### "Fearless Undead Machines" 1997, Death Metal
+
+
+
+### "Supernatural Addiction" 2000, Death Metal
+
+
+
+### "Behind The Mourner's Veil (EP)" 2001, Death Metal
+
+
+
+### "Legions Of Arrggghhhh (Compilation)" 2004, Death Metal
+
+
+
+### "As The Weird Travel On" 2005, Death Metal
+
+
+
+### "Surreal Overdose" 2011, Thrash
+
+
+
 
 ## Отношения с другими группами
 

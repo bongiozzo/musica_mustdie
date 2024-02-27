@@ -1,7 +1,31 @@
 # Liquido
 
-Дискография
-"Float" 2005, Alternative
+
+
+## Дискография
+
+### "Float" 2005, Alternative
+
+01. Flip To Play
+02. Lay Your Head Down
+03. Love Me Em Evol
+04. Bulletin
+05. Mr. Officer
+06. Ordinary Life
+07. Fake Boys/Girls
+08. No Sensitive Healing
+09. The Final Strike
+10. High Roller
+11. Drag Me Down
+12. The Standart
+13. Jump Off
+14. Valentine
+
+Wolfgang - vocals, guitars, keyboards
+Tim - vocals, guitars
+Stefan - bass
+Wolle - drums
+
 
 ## Отношения с другими группами
 

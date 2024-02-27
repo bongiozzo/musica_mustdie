@@ -1,7 +1,33 @@
 # Regorge
 
-Дискография
-"Kingdoms Of Derision" 2002, Death Metal
+Pure Scottish Sickness
+
+## Дискография
+
+### "Kingdoms Of Derision" 2002, Death Metal
+
+1. Path of God (7.35)
+2. Inverted Throat Fuck (4.03)
+3. Descend and Despise (6.07)
+4. Assembled in Defiance (5.53)
+5. Rest in Pieces (5.22)
+6. The Bloodletting (5.40)
+7. Phrenology of Sin (6.09)
+8. Unleashing the Beast (7.54)
+9. Consume-ate the Inhumane (5.36)
+
+Regorge:
+Richy Graham - vocals
+John Lee - drums
+Phil Wilson - bass guitar and vocals
+Ged Leitch - guitars
+
+The cover art on the CD painted by renowned US artist and tattooist Jon Zig
+who is famous in the metal scene for his work with such bands as Lividity,
+Deeds of Flesh, Sinister, Disgorge (US), Disavowed and Howitzer.
+
+(p)(c) 2002 Dead Again Records
+
 
 ## Отношения с другими группами
 

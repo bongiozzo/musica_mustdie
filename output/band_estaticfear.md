@@ -1,8 +1,29 @@
 # Estatic Fear
 
-Дискография
-"Somnium Obmutum" 1997, Death Doom
-"A Sombre Dance" 1999, Death Doom
+
+
+## Дискография
+
+### "Somnium Obmutum" 1997, Death Doom
+
+Des Nachtens sussґ Gedone (instrumental with flute) 
+Somnium Obmutum 
+As Autumn calls 
+Ode to Solitude 
+
+### "A Sombre Dance" 1999, Death Doom
+
+1.Intro
+2.Chapter I 
+3.Chapter II 
+4.Chapter III 
+5.Chapter IV 
+6.Chapter V 
+7.Chapter VI 
+8.Chapter VII 
+9.Chapter VIII (Instrumental with two classical guitars) 
+10. Chapter IX 
+
 
 ## Отношения с другими группами
 

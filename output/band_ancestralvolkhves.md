@@ -1,8 +1,33 @@
 # Ancestral Volkhves
 
-Дискография
-"Son O Iriyi" 2004, Black Metal
-"Perun Do Vas !!!" 2008, Black Metal
+
+
+## Дискография
+
+### "Son O Iriyi" 2004, Black Metal
+
+1. xxx Existence xxx
+2. Silence At The End of The Labyrinth
+3. Svantovit Perun
+4. Of Steel And Pain
+5. Worship of Volkhves
+6. Thus Speak To Gamayun
+7. Gromovezhcu - Bogu Perunu
+8. V Carstve Mojho Sna
+
+### "Perun Do Vas !!!" 2008, Black Metal
+
+1. A Ruiny Prehovoria, Ked Stichne Cas...
+2. Nas Raj Je V Tieni Meca
+3. Perun Do Vas!!!
+4. Dcera Noci
+5. Nezasinaj Beskide V Nav'
+6. Rubanja
+7. Slavorozhdenje
+8. Ku Hviezdam Vola Srdce	
+9. My Slavjane!!!
+10. Ich Do Tmy
+
 
 ## Отношения с другими группами
 

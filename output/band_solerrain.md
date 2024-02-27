@@ -1,7 +1,21 @@
 # Solerrain
 
-Дискография
-"Fighting The Illusions" 2010, Melodic Death Metal
+Melodic Death from St. Peterburg
+
+## Дискография
+
+### "Fighting The Illusions" 2010, Melodic Death Metal
+
+1. Побеждая Иллюзии
+2. Обещание
+3. Верой и Правдой
+4. Нечего Терять
+5. Твой Ад
+6. Вечный Обман
+7. Восходящая Влась
+8. Последний Свет
+9. Проклятье
+
 
 ## Отношения с другими группами
 

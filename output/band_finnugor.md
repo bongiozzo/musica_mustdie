@@ -1,9 +1,63 @@
 # Finnugor
 
-Дискография
-"Black Flames" 2002, Black Metal
-"Death Before Dawn" 2003, Black Metal
-"Darkness Needs Us" 2004, Black Metal
+
+
+## Дискография
+
+### "Black Flames" 2002, Black Metal
+
+
+
+### "Death Before Dawn" 2003, Black Metal
+
+
+
+### "Darkness Needs Us" 2004, Black Metal
+
+01. Darkness Needs Us (featuring Attila Csihar)
+02. Lord Of The Darkest Freedom (featuring Ville
+Sorvali)
+03. Hand Of light (featuring AOD)
+04. Vigour Of The Dead
+05. Wings Of Kryy
+06. Bearer Of Moonlight Decay (featuring Peter
+Meynckens)
+07. Lycanthropic Warmasters
+08. Fire-Raiser Of Devastation (featuring Sture
+Dingsoyr)
+09. We Came Back With The Nightfall (featuring
+Marcus Ehlin)
+10. Mortal Reality
+11. Our Blood Is The Ocean (featuring Christopher
+B. Wildman)
+12. Forest Of Bane (featuring RMS Hreidmarr)
+13. Wings Of Kryy (Subtracted Blast mix by
+Morfeus)
+
+Godslayer N. Vassago - guitars, bass guitars,
+synths, drums
+Gabriel Wolf - gothic instruments, vocals on
+tracks 1,5,9,10,13 and "evil clown" laughters on 9
+Attila Csihar (Aborym, Tormentor, Mayhem)/Hungary
+- vocals on track 1
+Ville Sorvali (Moonsorrow, Amoral)/Finland -
+vocals on track 2
+Wircki (Hin Onde)/Finland - co-composer on track 2
+Frederic Mercier aka AOD (Dagorlad)/Belgium -
+vocals on track 3
+Peter Meynckens (Axamenta, Butcher)/Belgium -
+vocals on track 6
+Sture Dingsoyr (Windir, Ulcus)/Norway - vocals on
+track 8
+Marcus Ehlin (Siebenburgen)/Sweden - vocals on
+track 9
+Christopher B. Wildman (Asgaroth)/Spain - vocals
+on track 11
+RMS Hreidmarr (Anorexia Nervosa)/France - vocals
+on track 12
+Morfeus (Limbonic Art)/Norway - remixed version of
+"Wings Of Kryy"
+
 
 ## Отношения с другими группами
 

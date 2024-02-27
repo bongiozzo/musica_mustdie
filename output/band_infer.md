@@ -1,9 +1,47 @@
 # Infer
 
-Дискография
-"In Cold Being" 2005, Black Metal
-"Anti-Human" 2008, Black Metal
-"Sede Vacante Aeternum" 2010, Black Metal
+
+
+## Дискография
+
+### "In Cold Being" 2005, Black Metal
+
+1. In Cold Being	 
+2. Liar's Slavery	 
+3. Summon By Wind of Disease	 
+4. Father Hell, Mother Death	 
+5. Confession	 
+6. The One Who Come After	 
+7. Evil Is My Name	 
+8. The Ghost On Nameless Grave	 
+9. Destroying Your Desires
+
+### "Anti-Human" 2008, Black Metal
+
+1. A Will to Die	 
+2. Anti-human, Anti-life	 
+3. Unlimited Hatred	 
+4. Blackhorned Master of Midnight Pain	 
+5. Ravisher	 
+6. Song of Triple 6	 
+7. Mistress of the Goat	 
+8. Satis Est Nullus	 
+9. Arcanum (Parting From the Death)	 
+10. Proclaiming of Death
+
+### "Sede Vacante Aeternum" 2010, Black Metal
+
+1. The Day After The Fall
+2. Abort The Holy
+3. Salvation
+4. Sede Vacante Aeternum
+5. Behind Sacred Walls
+6. The One Who Believes In Nothingness
+7. Recollection VII
+8. Disease Man
+9. Destriying Your Desires	 
+10. Der Tod Wuotans (Burzum cover)
+
 
 ## Отношения с другими группами
 

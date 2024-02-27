@@ -1,7 +1,38 @@
 # Journey
 
-Дискография
-"Generations" 2005, Metal
+
+
+## Дискография
+
+### "Generations" 2005, Metal
+
+1. Faith In The Heartland 
+(Jonathan Cain, Neal Schon & Steve Augeri)
+2. The Place In Your Heart 
+(Jonathan Cain & Neal Schon)
+3. A Better Life (lead vocals Deen Castronovo) 
+(Jonathan Cain & Neal Schon)
+4. Every Generation (lead vocals Jonathan Cain) 
+(Jonathan Cain)
+5. Butterfly (She Flies Alone)
+(Steve Augeri)
+6. Believe 
+(Steve Augeri)
+7. Knowing That You Love Me 
+(Jonathan Cain)
+8. Out Of Harms Way 
+(Jonathan Cain & Neal Schon)
+9. Self-Defense (lead vocals Neal Schon)
+(Jonathan Cain & Neal Schon)
+10. Better Together 
+(Jonathan Cain, Neal Schon & Steve Augeri)
+11. Gone Crazy (lead vocals Ross Valory) 
+(Jonathan Cain, Kim Tribble & Neal Schon)
+12. Beyond the Clouds 
+(Neal Schon & Steve Augeri).
+13. It's Never Too Late (lead vocals Deen Castronovo) 
+(Jonathan Cain, Neal Schon & Jack Blades) – bonus track
+
 
 ## Отношения с другими группами
 

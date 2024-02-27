@@ -1,8 +1,33 @@
 # Demented
 
-Дискография
-"How Much for My Death?" 2006, Deathcore
-"Psychoanalysis of Eternal Pain" 2008, Deathcore
+
+
+## Дискография
+
+### "How Much for My Death?" 2006, Deathcore
+
+1. Darkness	 
+2. Emperors of the dark	 
+3. Epidemic	 
+4. Slab	 
+5. End	 
+6. Dementia	 
+7. Penumbra		 
+8. Deep	 
+9. In the divine name of pain
+
+### "Psychoanalysis of Eternal Pain" 2008, Deathcore
+
+1. Done	 
+2. Tired	 
+3. 20.000$	 
+4. One Death	 
+5. Nothing=Zero	 
+6. Hymen	 
+7. Ineludible Certainty	 
+8. Pharmaco 
+9. Kwaidan
+
 
 ## Отношения с другими группами
 

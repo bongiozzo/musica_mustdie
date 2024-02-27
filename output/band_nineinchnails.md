@@ -1,11 +1,78 @@
 # Nine Inch Nails
 
-Дискография
-"Pretty Hate Machine" 1989, Industrial
-"" 1992, Industrial
-"The Downward Spiral" 1994, Industrial
-"Further Down The  Spiral" 1995, Industrial
-"And all that could have been" 2002, Industrial
+
+
+## Дискография
+
+### "Pretty Hate Machine" 1989, Industrial
+
+1.  Head Like A Hole
+2.  Terrible Lie
+3.  Down In It
+4.  Sanctified
+5.  Something I Can Never Have
+6.  Kinda I Want To
+7.  Sin
+8.  That's What I Get
+9.  The Only Time
+10.  Ringfinger
+
+(P)&c 1989 TVT / INTERSCOPE Records
+
+### "" 1992, Industrial
+
+
+
+### "The Downward Spiral" 1994, Industrial
+
+1. Mr. Self Destruct
+2. Piggy
+3. Heresy
+4. March Of The Pigs
+5. Closer
+6. Ruiner
+7. The Becoming
+8. I Do Not Want This
+9. Big Man With A Gun
+10. A Warm Place
+11. Eraser
+12. Reptile
+13. The Downward Spiral
+14. Hurt
+
+ Writing, Arrangement & Performance: Trent Reznor
+Additional Engineered: Sean Beavan, Chris Vrenna, Alan Moulder, Bill Kennedy, Brian Pollack, John Aguto
+Additional Sampling & Sound Design: Chris Vrenna
+Studios: Le Pig Of Beverly Hills, The Record Plant, A&M Studios
+
+(P)&(C) 1994 NOTHING / TVT / INTERSCOPE Records
+
+### "Further Down The  Spiral" 1995, Industrial
+
+1. Piggy (Nothing Can Stop Me Now)
+2. The Art Of Self Destruction Part 1
+3. Self Destruction Part 2
+4. The Downward Spiral (The Bottom)
+5. Hurt (Quiet)
+6. Eraser (Denial: Realisation)
+7. At The Heart Of It All
+8. Eraser (Polite)
+[9].Self Destruction, Final
+[10].The Beauty Of Being Numb
+[11].Eraser, Over, Out
+
+[9]-[11] - на стороне B
+
+Writing, production, arrangement &
+performance; Trent Reznor
+
+(p)(c) 1995 Nothing/TVT/Interscope
+  Records
+
+### "And all that could have been" 2002, Industrial
+
+
+
 
 ## Отношения с другими группами
 

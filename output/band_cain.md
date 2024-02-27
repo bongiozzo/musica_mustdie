@@ -1,7 +1,19 @@
 # Cain
 
-Дискография
-"Alliance Of Spite" 2006, Groove
+
+
+## Дискография
+
+### "Alliance Of Spite" 2006, Groove
+
+1.	 The Same Mistakes
+2.	 The Misty Fountains of Fate
+3.	 Borderline
+4.	 Alliance of Spite	 
+5.	 Irony
+6.	 The Last Day of Grievance
+7.	 January
+
 
 ## Отношения с другими группами
 

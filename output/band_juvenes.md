@@ -1,7 +1,17 @@
 # Juvenes
 
-Дискография
-"Riddle of Steel" 2000, Black Metal
+epic-folk-black-metal
+
+## Дискография
+
+### "Riddle of Steel" 2000, Black Metal
+
+Prolog 
+Chariots of Gods 
+Ubi Sunt... 
+Riddle of Steel 
+Epilog
+
 
 ## Отношения с другими группами
 

@@ -1,11 +1,86 @@
 # Hearse
 
-Дискография
-"Dominion Reptilian" 2003, Melodic Death Metal
-"Armageddon Mon Amour" 2004, Melodic Death Metal
-"Cambodia EP" 2005, Melodic Death Metal
-"The Last Ordeal" 2005, Melodic Death Metal
-"In These Veins" 2006, Melodic Death Metal
+
+
+## Дискография
+
+### "Dominion Reptilian" 2003, Melodic Death Metal
+
+. Dominion Reptilian 03:50  
+2. Torch 04:43  
+3. Cosmic Daughter 04:14  
+4. Contemplation 04:43  
+5. Rapture In Twilight 04:53  
+6. Well Of Youth 04:10  
+7. Abandoned 03:30  
+8. End Of Days 04:43  
+9. So Vague 08:42  
+10. The Unknown (bonus) 04:46  
+11. Avalon (bonus) 04:00
+
+### "Armageddon Mon Amour" 2004, Melodic Death Metal
+
+01. Mountain Of The Solar Eclipse
+02. Turncoat
+03. Crops Of Waste
+04. In Love And war
+05. Ticket To Devastation
+06. Tools
+07. Cambodia
+08. Sodi
+09. Play Without Rules
+10. Determination
+11. Armageddon. Mon Amour
+
+Max Thornell
+Mattias Ljung
+Johan Liiva
+
+
+Support musicians:
+John Gripe - keyboards
+Susanne Fahlberg - vocals
+Mats Kjallstrom - aaaaing
+
+All music and lyrics by the Hearse team (except
+"Cambodia" by R.Wilde/M.Wilde).
+Pre-production at Studio Gubbsjuk Mobile System.
+Recorded by Jonas Edler in Basement Audio System,
+Stockholm, Sweden in the
+summer/autumn 2003.
+Mixing and trixing: Jonas Edler and Max Thornell
+Photos: Mats Kjallstrom.
+Cover layout: Marco Jeurissen.
+
+### "Cambodia EP" 2005, Melodic Death Metal
+
+1. Cambodia (cover Kim Wilde)
+2. The Accused (new song)
+3. Wheels of Misfortune (new song)
+4. Torch (7” version)
+5. Avalon (7” version)
+6. Well of Youth (demo version)
+7. Raptured in Twilight (demo version)
+8. Dominion Reptilian (demo version)
+9. So Vague (demo version)
+
+### "The Last Ordeal" 2005, Melodic Death Metal
+
+
+
+### "In These Veins" 2006, Melodic Death Metal
+
+1. House of Love 06:07  
+2. Corroding Armor 05:07  
+3. Intoxication 03:28  
+4. Naked Truth 04:04  
+5. Crusade 02:56  
+6. Among The Forlorn 04:24  
+7. Atrocious Recoil 04:19  
+8. Hearse 02:46  
+9. In These Veins 05:15  
+10. Mayfly Euphoria (Bonus Track) 05:23
+
 
 ## Отношения с другими группами
 

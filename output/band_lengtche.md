@@ -1,10 +1,25 @@
 # Leng Tch'e
 
-Дискография
-"Death By A Thousand Cuts" 2002, Grindcore
-"ManMadePredator" 2003, Grindcore
-"The Process Of Elimination" 2005, Grindcore
-"Marasmus" 2007, Grindcore
+
+
+## Дискография
+
+### "Death By A Thousand Cuts" 2002, Grindcore
+
+
+
+### "ManMadePredator" 2003, Grindcore
+
+
+
+### "The Process Of Elimination" 2005, Grindcore
+
+
+
+### "Marasmus" 2007, Grindcore
+
+
+
 
 ## Отношения с другими группами
 

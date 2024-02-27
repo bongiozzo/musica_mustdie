@@ -1,11 +1,39 @@
 # Chelsea Grin
 
-Дискография
-"Chelsea Grin (EP)" 2008, Deathcore
-"Desolation Of Eden" 2010, Deathcore
-"My Damnation" 2011, Deathcore
-"Ashes to Ashes" 2014, Deathcore
-"Self Inflicted" 2016, Deathcore
+
+
+## Дискография
+
+### "Chelsea Grin (EP)" 2008, Deathcore
+
+
+
+### "Desolation Of Eden" 2010, Deathcore
+
+
+
+### "My Damnation" 2011, Deathcore
+
+
+
+### "Ashes to Ashes" 2014, Deathcore
+
+
+
+### "Self Inflicted" 2016, Deathcore
+
+"Welcome Back"
+"Four Horsemen"
+"Love Song"
+"Clickbait"
+"Skin Deep"
+"Scratching and Screaming"
+"Strung Out"
+"Broken Bonds"
+"Life Sentence"
+"Never, Forever"
+"Say Goodbye"
+
 
 ## Отношения с другими группами
 

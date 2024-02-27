@@ -1,8 +1,36 @@
 # Tower
 
-Дискография
-"The Swan Princess" 1998, Death Doom
-"Mercury" 1999, Death Doom
+Doom Death a-la Tiamat
+
+## Дискография
+
+### "The Swan Princess" 1998, Death Doom
+
+01. Dark Room
+02. The Swan Princess
+03. Magic Nights
+04. Shadows
+05. My Lovely Princess
+06. Victim
+07. Secret Land
+08. Vampire
+09. Night Of Sin
+10. Scarlet
+11. The Edge Of Heaven
+12. Silent Fall
+
+### "Mercury" 1999, Death Doom
+
+1. The Tempter
+2. Forgotten
+3. The Corridor
+4. Silent Scream
+5. Luciferion
+6. Mercury
+7. Silent Climbers
+8. Masquerade
+9. Earth
+
 
 ## Отношения с другими группами
 

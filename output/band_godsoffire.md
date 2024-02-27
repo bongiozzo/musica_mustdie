@@ -1,7 +1,20 @@
 # Gods Of Fire
 
-Дискография
-"Wrath Of The Gods" 2004, Heavy Metal
+US heavy-metal
+
+## Дискография
+
+### "Wrath Of The Gods" 2004, Heavy Metal
+
+1)Welcome To Hell
+2)City Of Gold
+3)Hyperion
+4)The Long Walk
+5)Digital Neon
+6)Eternally Strong
+7)Nectar Of The Gods
+8)Prometheus Unbound
+
 
 ## Отношения с другими группами
 

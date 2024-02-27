@@ -1,10 +1,54 @@
 # Abhor
 
-Дискография
-"I.gne N.atura R.enovatur I.ntegra" 2000, Black Metal
-"Vocat Spiritum Morti" 2004, Black Metal
-"Vehementia" 2005, Black Metal
-"In Nostrum Maleficium" 2007, Black Metal
+
+
+## Дискография
+
+### "I.gne N.atura R.enovatur I.ntegra" 2000, Black Metal
+
+1. Wizard  05:48   
+2. Incubus Carnis  01:02  
+3. Paranormal Mantric Experience I: Pentaculum  03:13  
+4. Spellbound Atmosphere Of Fiendish Calm  05:18   
+5. Trees Of Stone  06:23
+6. Serpens. Misericordia Nociva  02:04   
+7. Paranormal Mantric Experience II: Signa Stellarum Nigrarum  02:30 
+8. Dark Glory`s Magnificence  05:46  
+9. Endless Cosciential Journey  06:47 
+10. Magica Salamandra  01:55 
+
+### "Vocat Spiritum Morti" 2004, Black Metal
+
+1. Hic Sunt Leones  06:08    
+2. Dwarf  05:23   
+3. Vinum Sabbati  06:48
+4. Wizard  05:20    
+5. Spellbuond Atmosphere of Friendish Calm  05:17   
+6. Non Ho Sonno (Goblin)  03:59    
+7. Profondo Rosso (Goblin)  03:42 
+
+### "Vehementia" 2005, Black Metal
+
+1. Ignis Sulphuris  01:42  
+2. Evocative Prayer To Lilith  04:39 
+3. Garden Of The Philosophers  05:46   
+4. Monarch Of Lie  04:04   
+5. Fabled Ceremony  04:46
+6. Rivers Of Incense  04:36   
+7. Principium Ater  04:22   
+8. Shamhain (Umbrae Ritualis)  09:01 
+
+### "In Nostrum Maleficium" 2007, Black Metal
+
+1. Shades And Conspiracy  05:23  
+2. Rottennes Of The Purity  05:00 
+3. A New Sun  05:09   
+4. Verba Secretorum Hermetis  07:51  
+5. By His Hands Through Me  05:16   
+6. Plague Of Necromancer  04:01
+7. Wandering Stone  05:07  
+8. Amphiteatrum Sapientiae Aeternae  07:28 
+
 
 ## Отношения с другими группами
 

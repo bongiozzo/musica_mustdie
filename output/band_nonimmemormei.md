@@ -1,8 +1,25 @@
 # Non Immemor Mei
 
-Дискография
-"Реквием Опавших Листьев" 2005, Doom
-"antibioTHic" 2009, Death Doom
+doom-metal from Moscow
+
+## Дискография
+
+### "Реквием Опавших Листьев" 2005, Doom
+
+1. Когда красота перестаёт удивлять
+2. Реквием опавших листьев
+3. Thy Will Be Done
+4. В объятьях заката
+
+### "antibioTHic" 2009, Death Doom
+
+1. Eintauchen 03:57  
+2. Hope 05:54  
+3. antibioTHic 13:22  
+4. Amplituda 07:56  
+5. The Wanderer... In the Mist 07:13  
+6. Hope /psychophant remix/ (bonustrack) 04:51 
+
 
 ## Отношения с другими группами
 

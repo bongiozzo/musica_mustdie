@@ -1,9 +1,30 @@
 # Grond
 
-Дискография
-"Steel Coffins (EP)" 2010, Death Metal
-"Howling From The Deep" 2013, Death Metal
-"Worship the Kraken" 2016, Death Metal
+
+
+## Дискография
+
+### "Steel Coffins (EP)" 2010, Death Metal
+
+
+
+### "Howling From The Deep" 2013, Death Metal
+
+
+
+### "Worship the Kraken" 2016, Death Metal
+
+01. Invocation
+02. Kronos the Devourer
+03. Steel Coffins
+04. White Waters of South
+05. Blood Monk (Goatlord cover)
+06. Worship the Kraken
+07. Below the Thunders...
+08. Devonian Tyrant
+09. Japetus the Ice Gate (feat. Lasse Pyykkц)
+10. Typhoon is Coming 
+
 
 ## Отношения с другими группами
 

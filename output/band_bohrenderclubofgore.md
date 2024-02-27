@@ -1,13 +1,37 @@
 # Bohren & Der Club Of Gore
 
-Дискография
-"Gore Motel" 1994, Jazz
-"Midnight Radio (2CD)" 1995, Jazz
-"Sunset Mission" 2000, Jazz
-"Black Earth" 2002, Jazz
-"Geisterfaust" 2005, Jazz
-"Dolores" 2008, Jazz
-"Beileid" 2011, Jazz
+
+
+## Дискография
+
+### "Gore Motel" 1994, Jazz
+
+
+
+### "Midnight Radio (2CD)" 1995, Jazz
+
+
+
+### "Sunset Mission" 2000, Jazz
+
+
+
+### "Black Earth" 2002, Jazz
+
+
+
+### "Geisterfaust" 2005, Jazz
+
+
+
+### "Dolores" 2008, Jazz
+
+
+
+### "Beileid" 2011, Jazz
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,9 +1,96 @@
 # Persephone
 
-Дискография
-"Home" 2002, Gothic
-"Atma Gyan" 2004, Gothic
-"Mera Sangeet Kho Gaya" 2004, Gothic
+gothic
+
+## Дискография
+
+### "Home" 2002, Gothic
+
+01. My Prayer
+02. Immersion
+03. The Day You Went Away
+04. Guardian Angel
+05. The Gift
+06. The Man Who Swallowed My Soul
+07. Beautiful Prince
+08. Forest Song
+09. My Greatest Day
+10. Reflection
+11. Home
+12. Coming Home
+
+Sonja Kraushofer - vocals
+
+Instruments:
+Martin Hofert - cello
+Katrin Ebert - violin
+Natalie Eis - doublebass
+Carsten Weilnau - trombone
+Hans Jaeckel - accordion
+Wim Leydes, Jochen Schibetz, Mark Zellekens -
+guitars
+Robert Beyer - acoustic bass
+Lothar Weise - drums
+Tobias Hahn - piano
+
+### "Atma Gyan" 2004, Gothic
+
+01. My Music Is Gone
+02. Facing The Ruins
+03. Lost
+04. My Sweetest Pain
+05. Secret Garden
+06. Eternal Grief
+07. Black Widow
+08. Our Dream
+09. Shadow Dance
+10. The End Of The World
+11. Lullaby
+12. Atma Gyan
+
+Sonja Kraushofer - vocals
+Martin Hofert - cello, piano
+Holger Wilhelm - cello
+Katrin Ebert - violin, viola
+Matt Howden - violin
+Johannes Kramer - doublebass
+Wim Leydens - guitar
+Robert Beyer - bass guitar
+David Distelmann - sitar
+John Abel-Sayed - tambura, didgeridoo, percussions
+Lothar Weise - drums
+Brijesh Kumar - voice on "Secret Garden"
+
+### "Mera Sangeet Kho Gaya" 2004, Gothic
+
+01. Labyrinth Of Longings
+02. From Within
+03. Only The Good Ones Die In Summer
+04. Drowning Theme
+05. Nightingales Lament
+06. Waiting
+07. Magic Mirror
+08. Realm Of Silence
+09. La Danse Sur La Corde
+10. The Last Song
+11. Winter
+12. Mera Sangeet Kho Gaya
+
+Sonja Kraushofer - vocals
+Martin Hofert - cello, piano
+Holger Wilhelm - cello
+Katrin Ebert - violin, viola
+Matt Howden - violin
+Johannes Kramer - doublebass
+Fredrik Behrens - guitar
+Robert Beyer - bass guitar
+David Distelmann - sitar
+Vassily Duk - bajan
+Tim Warweg - vibraphone
+John Abdel-Sayed - tambura, monochord, koto,
+flute, percussions
+Lothar Weise - drums
+
 
 ## Отношения с другими группами
 

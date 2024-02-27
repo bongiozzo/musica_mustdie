@@ -1,10 +1,46 @@
 # Daath
 
-Дискография
-"Futility" 2004, Death Metal
-"The Hinderers" 2007, Death Metal
-"The Concealers" 2009, Death Metal
-"Daath" 2010, Death Metal
+
+
+## Дискография
+
+### "Futility" 2004, Death Metal
+
+1. The One 01:27 
+2. Placenta 01:33
+3. Filter 03:40
+4. Child Says 02:40
+5. Infestation 03:33
+6. Concentrate Living 03:32
+7. Blender For The Baby 04:17
+8. Slow 04:03 
+9. Just For A Second 03:06
+10. Crystasis 05:48 
+
+### "The Hinderers" 2007, Death Metal
+
+. Subterfuge 03:39
+2. From the Blind 03:47 
+3. Cosmic Forge 04:27 
+4. Sightless 03:17
+5. Under a Somber Sign 03:36 
+6. Ovum 03:24
+7. Festival Mass Soulform 03:18 
+8. Above Lucium 04:08
+9. Who Will Take the Blame 04:12
+10. War Born (Tri-Adverserenade) 02:01 
+11. Dead on the Dancefloor 03:55
+12. Blessed Through Misery 04:11
+13. The Hinderers 04:23 
+
+### "The Concealers" 2009, Death Metal
+
+
+
+### "Daath" 2010, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

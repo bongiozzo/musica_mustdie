@@ -1,10 +1,74 @@
 # Van Canto
 
-Дискография
-"A Storm to Come" 2006, Power Metal
-"Hero" 2008, Power Metal
-"Tribe of Force" 2010, Power Metal
-"Break The Silence" 2011, Metal
+
+
+## Дискография
+
+### "A Storm to Come" 2006, Power Metal
+
+1. Stora Rцvardansen 01:33  
+2. King 03:44
+3. The Mission 04:18
+4. Lifetime 04:49 
+5. Rain 04:03
+6. She's Alive 04:12 
+7. I Stand Alone 04:44
+8. Starlight 04:40 
+9. Battery (Metallica cover) 05:13 
+
+### "Hero" 2008, Power Metal
+
+1. Speed of Light 04:23 
+2. Kings of Metal (Manowar cover) 03:41 
+3. Pathfinder 04:48
+4. Wishmaster (Nightwish cover) 04:22
+5. The Bard's Song (Blind Guardian cover) 03:09
+6. Quest for Roar 03:32
+7. Take to the Sky 04:41
+8. Fear of the Dark (Iron Maiden cover) 07:09
+9. Hero 05:18 
+
+### "Tribe of Force" 2010, Power Metal
+
+1. Lost Forever 04:40
+2. To Sing a Metal Song 03:24
+3. One to Ten (feat. Victor Smolski) 04:06
+4. I Am Human 03:56
+5. My Voice 05:30
+6. Rebellion (Grave Digger Cover - feat. Chris Boltendahl) 04:05 
+7. Last Night of the Kings 03:52 
+8. Tribe of Force 03:17 
+9. Water. Fire. Heaven. Earth. 03:32 
+10. Master of Puppets (Metallica cover) 08:23
+11. Magic Taborea 03:22
+12. Hearted (feat. Tony Kakko) 04:00
+13. Frodo's Dream 03:06 
+
+### "Break The Silence" 2011, Metal
+
+1. If I Die In Battle
+2. Dangers in my Head
+3. Bed of Nails (Alice Cooper Cover)
+4. The Seller of Souls
+5. Black Wings of Hate
+6. Neuer Wind
+7. Spelled in Waters (feat. Marcus Siepen / Blind Guardian)
+8. Primo Victoria (feat. Joakim Broden / Sabaton / Sabaton Cover)
+9. The Higher Flight
+10. Master of the Wind (Manowar Cover)
+11. Betrayed (Bonus Track)
+12. Bad to The Bone (Bonus Track / Running Wild Cover)
+13. A Storm To Come (Bonus Track)
+
+
+Dennis Schunke (Sly) – lead vocals
+ Inga Scharf – higher lead vocals
+ Stefan Schmidt – lower rakkatakka vocals, wahwah solo guitar vocals
+ Ross Thompson – higher rakkatakka vocals
+ Ingo Sterzinger (Ike) – lowest dandan vocals
+ Bastian Emig – drums
+
+
 
 ## Отношения с другими группами
 

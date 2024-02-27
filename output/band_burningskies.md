@@ -1,8 +1,17 @@
 # Burning Skies
 
-Дискография
-"Desolation" 2006, Metalcore
-"Greed.Flith.Abuse.Corruption" 2008, Deathcore
+
+
+## Дискография
+
+### "Desolation" 2006, Metalcore
+
+
+
+### "Greed.Flith.Abuse.Corruption" 2008, Deathcore
+
+
+
 
 ## Отношения с другими группами
 

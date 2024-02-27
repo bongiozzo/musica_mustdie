@@ -1,7 +1,37 @@
 # Korova
 
-Дискография
-"A Kiss In The Charnel Fields" 1995, Black Metal
+Black metal
+
+## Дискография
+
+### "A Kiss In The Charnel Fields" 1995, Black Metal
+
+1. Intro: Der Weltenbrand /
+Das Kreuz Un Der Metzenapfel
+2. After The Fruits Of Ephemeral Pulchritude
+3. Lachrydeus Mittelgard
+4. Entlebt In Tristem Morgenblut
+5. Intro: Im Teich Erlischt Ein Bachleim
+6. Awakening From Perpetual Contemplation
+7. Latin Dreams In Turpentine
+8. Nordsciltim - In The Filth Where Cull Perambulates Pain
+9. Salomeh, Des Teufels Braut
+10.A Kiss In The Charnel Fields
+
+All Songs Written By KOROVA.
+Recorded By KOROVA & Markus Uberbacher At Live 
+Wire Imst.
+Mixed By KOROVA At Swimstone Recordings.
+
+Christof Niederwieser - Vocals,Guitars,Keyboards & Fx
+George Razesberger - Guitars
+Michael Kroll - Bass
+Moritz Neuner - Drums & Percussion
+Renaud Tschirner - Violin
+Christine Hortnagl - Female Vocals
+
+(P)&(C) 1995 NAPALM Records
+
 
 ## Отношения с другими группами
 

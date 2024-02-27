@@ -1,7 +1,22 @@
 # Savior From Anger
 
-Дискография
-"Lost in the Darkness" 2009, Thrash
+
+
+## Дискография
+
+### "Lost in the Darkness" 2009, Thrash
+
+1. Claustrophobia	 
+2. Victim of Rage	 
+3. No Way Out	 
+4. Killing Greed	 
+5. Double Shot	 
+6. Mindstruck	 
+7. Shudder of Death	 
+8. Through This Life	 
+9. Shock Wave	 
+10. Puncture of Submission (Bonus)
+
 
 ## Отношения с другими группами
 

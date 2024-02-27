@@ -1,7 +1,35 @@
 # Netherworld
 
-Дискография
-"Netherworld" 1996, Black Metal
+Nordic Black Metal With Heavy
+
+## Дискография
+
+### "Netherworld" 1996, Black Metal
+
+1.  Into The Netherworld
+2.  Sacrificial Slumber
+3.  Dark Spirit Of Our Time
+4.  Netherworld
+5.  Succubus Descends
+6.  She... The Undead
+7.  Grim
+8.  Horizons Past
+9.  Ascent From The Netherworld
+
+Produced by Morgue, Vanthe and Justin Allen.
+Drums Produced by Anvil.
+Engineered by Jusin Allen.
+Recorded and Mixed at Morbid Crazing Studios.
+Mixed by Justin Allen and NETHERWORLD.
+Cover artwork by Ruth Gruner
+
+Anvil - Dnxms,
+Vanthe - Bass, Keyboards, Vocals,
+Screeches
+Morgue - Guitars, Vocals
+
+(P)c 1996 HEAD NOT FOUND // HNF 025
+
 
 ## Отношения с другими группами
 

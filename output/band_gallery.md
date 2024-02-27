@@ -1,8 +1,33 @@
 # Gallery
 
-Дискография
-"Dreamscapes" 1997, Progressive
-"Fateful Passion" 1998, Progressive
+
+
+## Дискография
+
+### "Dreamscapes" 1997, Progressive
+
+01. Ea
+02. Unfaded dream
+03. Soporific
+04. A voyage into infinity
+05. Kalokagathia
+06. Schwanenfleet
+07. Cordiality aging
+08. Meadowland
+09. Elemente
+10. Foreign energy
+
+### "Fateful Passion" 1998, Progressive
+
+1. A wave of mature grain
+2. This urgent denial
+3. Vice of mallorn
+4. Preservation
+5. No excuse
+6. Opposite sun 22
+7. The sun always shines on T.V.
+8. Enter the meadow saffron
+
 
 ## Отношения с другими группами
 

@@ -1,19 +1,208 @@
 # Satyricon
 
-Дискография
-"Dark Medieval Times" 1993, Black Metal
-"The Shadowthrone" 1994, Black Metal
-"The Forest Is My Throne" 1996, Black Metal
-"Nemesis Divina" 1996, Black Metal
-"Megiddo" 1997, Black Metal
-"Intermezzo II" 1999, Black Metal
-"Rebel Extravaganza" 1999, Black Metal
-"Ten Horns — Ten Diadems" 2002, Black Metal
-"Volcano" 2002, Black Metal
-"Now, Diabolical" 2006, Black Metal
-"The Age Of Nero" 2008, Black Metal
-"Satyricon" 2013, Black Metal
-"Deep Calleth Upon Deep" 2017, Black Metal
+Original Black Metal
+
+## Дискография
+
+### "Dark Medieval Times" 1993, Black Metal
+
+1. Walk The Path Of Sorrow
+2. Dark Medieval Times
+3. Skyggedans
+4. Min Hyllest Til Vinterland
+5. Into The Mighty Forest
+6. The Dark Castle In The Deep Forest
+7. Taakeslotten
+
+All Titles Written By SATYRICON.
+Produced By Satyr.
+
+ Satyr - Guitars,Acoustic Guitars,Bass & Nocturnal Voices
+ Frost - Drums
+
+(P)&(C) 1994 MOONFOG Productions
+
+### "The Shadowthrone" 1994, Black Metal
+
+1. Hvite Krists Dod.
+2. In The Mist By The Hills.
+3. Woods To Eternity.
+4. Vikingland.
+5. Dominions Of Satyricon.
+6. The King Of The Shadowthrone.
+7. I En Svart Kiste.
+
+©&(p) 1994 SATYR MUSIC / MOONFOG PRODUCTIONS
+
+SATYR – guitars, grim voices and choir, acoustics
+FROST – battary
+SAMOTH – bass guitar
+
+Session synth and grand piano by S. S.
+Synth on "I En Svart Kiste" by Satyr.
+
+The "Shadowthrone" was recorded during May, mixed in June, July and August in Waterfall Studios anno 1994.
+All music composed by Satyr august 1993 – january 1994. All lyrics by Satyr, spring 1992 – january 1994.
+Produced by Satyr, engineered by K. Moen.
+Correct listening at maximum volume.
+
+### "The Forest Is My Throne" 1996, Black Metal
+
+1. Black Wind
+2. The Forest Is My Throne
+3. Min Hyllest Til Vinterland
+4. The night of the triumphator   
+
+All songs written by SATYRICON
+Produced and engineered by Satyr
+Recorded and mixed March 1993
+
+Satyr - Strings and Nocturnal Voice
+Frost - Battery
+
+(p)(c) 1996 MOONFOG Productions
+
+### "Nemesis Divina" 1996, Black Metal
+
+   The Conquering
+Part I The Dawn Of A New Age
+Part II Forhekset
+Part III Mother North
+Part IV Du Som hater gud
+Part V Immortality Passion
+Part VI Nemesis Divina
+Part VII Transcendental Requiem Of Slaves
+
+Recorded in Waterfall Studios.
+Mastered at  Bel Productions 
+Produced by Satyr.
+Engineered by Odd H.Jensen & Satyr 
+Mixed by Kai Robole, Satyr & Odd.
+
+Satyr - Voice & Lead Guitar, Bass
+Kveldulv - Guitars
+Frost - Battery
+Bratland - Synth,Piano
+
+ (p)(c) 1996 Moonfog Productions.
+
+### "Megiddo" 1997, Black Metal
+
+1. The Dawn of a New Age (Remixed be Apoptigma Berzerk)
+2. Night of Divine Power
+3. Forhekset
+4. Orgasmatron (originally performed by Motorhead)
+
+
+### "Intermezzo II" 1999, Black Metal
+
+01. A Moment of Clarity [06:40] 
+02. INRI [02:09] 
+03. Nemesis Divina [05:15] 
+04. Blessed from Below [06:05] 
+
+
+### "Rebel Extravaganza" 1999, Black Metal
+
+Tied In Bronze Chains
+Filthgrinder
+Rhapsody In Filth
+Havoc Vulture
+Prime Evil Renaissance
+Supersonic Journey
+End Of Journey
+A Moment Of Clarity
+Down South, Up North
+The Scorn Torrent
+________________________
+
+Satyr - Vox, Lead & Rhythm Guitars
+Frost - Battery
+
+Music, Lyrics and Arrangements by Satyr
+Production affairs by Satyr, mixed by Mike Hartung & Satyr
+
+1999 Moonfog Productions, FOG022
+
+### "Ten Horns — Ten Diadems" 2002, Black Metal
+
+01. Filthgrinder 
+02. Dominions Of Satyricon 
+03. Forhekset 
+04. Night of Divine Power 
+05. Hvite Krists Dшd 
+06. Mother North 
+07. Supersonic Journey 
+08. Taakeslottet 
+09. (untitled bonustrack) 
+10. Repined Bastard Nation (taken from the forthcoming album—exclusively mastered version)
+
+
+
+### "Volcano" 2002, Black Metal
+
+1   With Ravenous Hunger  
+2   Angstridden  
+3   Fuel For Hatred 
+4   Suffering The Tyrants  
+5   Possessed  
+6   Repined Bastard Nation 
+7   Mental Mercury  
+8   Black Lava  
+
+
+### "Now, Diabolical" 2006, Black Metal
+
+01. Now, Diabolical
+02. K.I.N.G
+03. The Pentagram Burns
+04. A New Enemy
+05. The Rite Of Our Cross
+06. That Darkness Shall Be Eternal
+07. Delirium
+08. To The Mountains
+
+### "The Age Of Nero" 2008, Black Metal
+
+01. Commando
+02. The Wolfpack
+03. Black Crow On A Tombstone
+04. Die By My Hand
+05. My Skin Is Cold (album version)
+06. The Sign Of The Trident
+07. Last Man Standing
+08. Den Siste
+
+Satyr - Guitar, Bass, keyboards, vocals
+Frost - drums
+
+### "Satyricon" 2013, Black Metal
+
+1. Voice of Shadows 
+2. Tro og Kraft 
+3. Our World, It Rumbles Tonight 
+4. Nocturnal Flare 
+5. Phoenix 
+6. Walker Upon The Wind 
+7. Nekrohaven 
+8. Ageless Northern Spirit 
+9. The Infinity of Time and Space 
+10. Natt
+11. Phoenix (Recording Session Mix)
+12. Our World, It Rumbles Tonight (Deeper Low Mix)
+13. Natt (Wet Mix) 
+
+### "Deep Calleth Upon Deep" 2017, Black Metal
+
+1. Midnight Serpent
+2. Blood cracks open the ground
+3. To your brethren in the dark
+4. Deep calleth upon Deep
+5. The Ghost Of Rome
+6. Dissonant
+7. Black wings and withering gloom
+8. Burial Rite
+
 
 ## Отношения с другими группами
 

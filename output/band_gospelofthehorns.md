@@ -1,12 +1,47 @@
 # Gospel Of The Horns
 
-Дискография
-"The Satanist's Dream" 1996, Black Metal
-"Monuments Of Impurity (EP)" 1998, Black Metal
-"Eve Of The Conqueror (EP)" 2000, Black Metal
-"A Call To Arms" 2002, Black Metal
-"Realm Of The Damned" 2007, Black Metal
-"Ceremonial Conjuration (EP)" 2012, Black Metal
+Black Death
+
+## Дискография
+
+### "The Satanist's Dream" 1996, Black Metal
+
+1.  Cold Endless Season Of Darkness
+2.  The Satanist's Dream
+3.  Rites Of Demonic Possession
+4.  Calling From The Gods
+5.  Land Of Ancient Forest
+
+Cover artwork by Bruce Liddel
+Band residence: Australia
+
+Transvaal - Vocals, Poet
+Paimon - Drums,
+Hellbutcher - Guitars, Bass,
+Tracey A.H. - Session female voice
+
+(P)c 1996 POLYPHEMUS REC // ENSTD 001
+
+### "Monuments Of Impurity (EP)" 1998, Black Metal
+
+
+
+### "Eve Of The Conqueror (EP)" 2000, Black Metal
+
+
+
+### "A Call To Arms" 2002, Black Metal
+
+
+
+### "Realm Of The Damned" 2007, Black Metal
+
+
+
+### "Ceremonial Conjuration (EP)" 2012, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

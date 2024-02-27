@@ -1,8 +1,30 @@
 # Immortal Rites
 
-Дискография
-"Beyond the Gates of Pain" 1999, Death Metal
-"Art of Devolution" 2004, Melodic Death Metal
+
+
+## Дискография
+
+### "Beyond the Gates of Pain" 1999, Death Metal
+
+The Shadowsouls 
+Tormenting Emotions 
+Beyond the Gates of Pain 
+Weeping Tears 
+The Script of Sadness
+
+### "Art of Devolution" 2004, Melodic Death Metal
+
+1. Eugenic (Intro) 
+2. Fatal Exploited 
+3. Dressed In Amazing Red 
+4. Digital God 
+5. United Scars Anthem 
+6. Mirror Reflections 
+7. Hallucinations Overture  
+8. The Utter Dark 
+9. Pathetic Patterns 
+10. The Cadaverizer
+
 
 ## Отношения с другими группами
 

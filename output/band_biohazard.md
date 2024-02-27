@@ -1,17 +1,214 @@
 # Biohazard
 
-Дискография
-"Biohazard" 1990, Hardcore
-"Urban Discipline" 1992, Hardcore
-"State Of The World Address" 1994, Hardcore
-"Mata Leao" 1996, Hardcore
-"No Holds Barred (Live in Europe)" 1997, Hardcore
-"New World Disorder" 1999, Hardcore
-"Tales From The B-Side" 2001, Hardcore
-"Uncivilization" 2001, Hardcore
-"Kill Or Be Killed" 2003, Hardcore
-"Means To An End" 2005, Hardcore
-"Reborn in defiance" 2012, Hardcore
+Classic Hardcore
+
+## Дискография
+
+### "Biohazard" 1990, Hardcore
+
+ 1. Retribution
+ 2. Victory
+ 3. Blue Blood
+ 4. Howard Beach
+ 5. Wrong Side of The Tracks
+ 6. Justified Violence
+ 7. Hold My Own
+ 8. Pain
+ 9. Panic Attack
+10. Survival of The Fittest
+11. There and Back
+12. Scarred For Life
+
+
+### "Urban Discipline" 1992, Hardcore
+
+1. Chamber Spins Three
+2. Punishment
+3. Shades Of Grey
+4. Business
+5. Black And White And Red All Over
+6. Man With A Promise
+7. Urban Discipline
+8. Disease
+9. Loss
+10.Wrong SIde Of The Tracks
+11.We`re Only Gonna Die
+12.Mistaken Identity
+13.Tears Of Blood
+
+ Evan Seinfeld - Vocals & Bass
+ Billy Graziabei - Vocals & Guitar
+ Bobby Hambel - Lead Guitar
+ Danny Schuler - Drums
+
+Produced By Wharton Tiers & BIOHAZARD.
+Recorded At Fun City Studios.
+
+(p)&(c) 1993 ROADRUNNER Records
+
+### "State Of The World Address" 1994, Hardcore
+
+1. State Of The World Address
+2. Down For Life
+3. What Makes Us Sick
+4. Tales From The Hard Side
+5. How It Is
+6. Remember
+7. Five Blocks To The Subway
+8. Each Day
+9. Failed Territory
+10. Lack There Of
+11. Pride
+12. Human Animal
+13. Cornered
+14. Loved Denied
+
+ Evan Seifeld - Vocals,bass
+ Billy Graziabei - Vocals,guitars & piano
+ Bobby Hambel - Lead & acoustic guitars
+ Danny Schuler - Drums,percussion
+
+All songs by BIOHAZARD
+Produced by Ed Stasium
+Engineered by Lord Randall Wine
+Recorded & mixed at A&M Studios,Hollywood,CA
+
+(p)(c) 1994 WARNER BROS. Records
+
+### "Mata Leao" 1996, Hardcore
+
+1. Authority
+2. These Eyes
+3. Stigmatized
+4. Control
+5. Cleansing
+6. Competition
+7. Modern Democracy
+8. Better Days
+9. Gravity
+10.Alot To Learn
+11.Waitin' To Die
+12.Away
+13.True Strengths
+14.Thorn
+15.In Vain
+
+All songs by BIOHAZARD
+Produced by Ed Stasium
+Engineered by Lord Randall Wine
+Recorded & mixed at A&M Studios, Hollywood, CA
+
+Evan Seinfeld - Vocals, Bass
+Billy Graziabei - Vocals,Guitars & Piano
+Bobby Hambel - Lead & Acoustic Guitars
+Danny Schuler - Drums, Percussion
+
+(p)(c) 1996 WARNER BROS. Records
+
+### "No Holds Barred (Live in Europe)" 1997, Hardcore
+
+1. Shades Of Grey
+2. What Makes Us Tick
+3. Authority
+4. Urban Discipline
+5. Modern Democracy
+6. Love Denied
+7. Business
+8. Tales From The Hardside
+9. Better Days
+10. Victory
+11. Survival of the Fittest
+12. Blue Blood
+13. Black and White And Red All Over
+14. Victory (Reprise)
+15. How It Is
+16. After Forever
+17. Tears Of Blood
+18. German Lesson #7
+19. Chamber Spins Three
+20. Wrong Side Of The Tracks
+21. Waiting To Die
+22. These Eyes (Have Seen)
+23. Punishment
+24. Hold My Own
+
+
+### "New World Disorder" 1999, Hardcore
+
+1. Resist
+2. Switchback
+3. Salvation
+4. End Of My Rope
+5. All For None
+6. Breakdown
+7. Inner Fear On
+8. Abandon In Place
+9. Skin
+10. Camouflage
+11. Decline
+12. Cycle Of Abuse
+13. Dogs Of War
+14. New World Disorder
+
+
+### "Tales From The B-Side" 2001, Hardcore
+
+1. Three Point Back
+2. Falling
+3. Sumptin' To Prove (Demo Version)
+4. Slam (Remix)
+5. Beaten
+6. How It Is (Remix)
+7. Sadman
+8. Enslaved
+9. Judgement Night
+10. Inhale
+11. Piece Of Mind
+12. Shades Of Grey (Demo Version)
+13. Punishment (Demo Version)
+
+
+### "Uncivilization" 2001, Hardcore
+
+1. Sellout
+2. Uncivilization
+3. Wide Awake
+4. Get Away
+5. Unified - Featuring Roger Miret of Agnostic Front & Danny Diablo and Puerto Rican Mike from Skarhead
+6. Gone - Featuring Igor Cavalera of Sepultura 
+7. Letter Go
+8. Last Man Standing - Featuring Sen Dog of Cypress Hill 
+9. H.F.F.K. - Featuring Phil Anselmo of Pantera
+10. Domination - Featuring Slipknot & Jamie Jasta of Hatebreed 
+11. Trap - Featuring Andreas Kisser and Derrick Green of Sepultura 
+12. Plastic
+13. Cross The Line - Featuring Pete Steele of Type O Negative 
+
+
+### "Kill Or Be Killed" 2003, Hardcore
+
+
+
+### "Means To An End" 2005, Hardcore
+
+
+
+### "Reborn in defiance" 2012, Hardcore
+
+1 9:IIIX6.941
+2 Vengeance Is Mine
+3 Decay
+4 Reborn
+5 Killing Me
+6 Countdown Doom
+7 Come Alive
+8 Vows Of Redemption
+9 Waste Away
+10 You Were Wrong
+11 Skullcrusher
+12 Never Give In
+13 Season The Sky
+
 
 ## Отношения с другими группами
 

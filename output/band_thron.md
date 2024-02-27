@@ -1,8 +1,42 @@
 # T.H.R.O.N.
 
-Дискография
-"Seduction Of The Unbaptized Darkness" 1998, Black Metal
-"Subject To Damage" 2000, Death Metal
+
+
+## Дискография
+
+### "Seduction Of The Unbaptized Darkness" 1998, Black Metal
+
+
+
+### "Subject To Damage" 2000, Death Metal
+
+World Of Animal Behavior
+T.H.R.O.N.mageddon 2000
+Treacherous Gene
+World In My Eyes
+As A Worm
+Battering Ram
+Spit Blood
+Sophism
+Twist The Knife (Slowly)
+
+
+All songs by THRON except "Twist The Knife" by NAPALM DEATH and "World In my eyes" by DEPECHE MODE.
+Recorded and mixed in Navahohut Studios Apr.-Aug.1999. Zelenograd, Russia.
+Produced and engineered by Navaho
+Cover concept by Yuri.
+Front picture of V."Vicious" Sulkov.
+
+
+
+Yu.K. - vocals
+Navaho - guitars, synth
+Raven - guitars
+Khot - bass
+Coffin - drums 
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,36 @@
 # Opera Magna
 
-Дискография
-"El Ultimo Caballero" 2006, Power Metal
-"POE" 2010, Power Metal
+
+
+## Дискография
+
+### "El Ultimo Caballero" 2006, Power Metal
+
+1. Al otro Lado del Espejo 01:28  
+2. Horizontes de Gloria 04:46
+3. Largo Viaje 05:11 
+4. El Fuego de mi Venganza 06:00
+5. Un Sueсo, una Esperanza 01:38  
+6. Lamentos en la Oscuridad 07:19
+7. Tierras de Tormento 05:00
+8. Mas Allб de la Muerte 04:49
+9. La Sangre del Enemigo 05:29
+10. El Ъltimo Caballero 12:56 
+
+### "POE" 2010, Power Metal
+
+1. El Cuervo (Intro) 01:52
+2. El Pozo Y El Pendulo 04:42  
+3. Un Sueсo En Un Sueсo 05:36  
+4. La Mascara De La Muerte Roja 04:35
+5. Annabel Lee 02:02 
+6. El Demonio De La Diversidad 04:12 
+7. El Entierro Prematuro 05:56
+8. El Retraro Oval 03:32
+9. El Corazon Delator 04:32
+10. La Caida De La Casa Usher 04:35
+11. Edgar Allan Poe 10:29 
+
 
 ## Отношения с другими группами
 

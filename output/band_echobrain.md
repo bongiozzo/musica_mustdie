@@ -1,7 +1,22 @@
 # EchoBrain
 
-Дискография
-"EchoBrain" 2002, Alternative
+(Jason Newsted band)
+
+## Дискография
+
+### "EchoBrain" 2002, Alternative
+
+01. Colder World (3:20) 
+02. The Feeling Is Over (3:37) 
+03. Spoonfed (4:45) 
+04. Adrift (3:15) 
+05. Keep Me Alive (3:49) 
+06. We Are Ghosts (3:50) 
+07. SuckerPunch (5:36) (feat. Kirk Hammett) 
+08. HWY 44 (4:16) 
+09. I Drank You (3:08) 
+10. Cryin' Shame (12:06). 
+
 
 ## Отношения с другими группами
 

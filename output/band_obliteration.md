@@ -1,7 +1,22 @@
 # Obliteration
 
-Дискография
-"Obscured Within" 1991, Grindcore
+
+
+## Дискография
+
+### "Obscured Within" 1991, Grindcore
+
+1. Into The Void
+2. Your Choice
+3. Trenchmouth
+4. Inner Dreams
+5. Claustrophobia
+6. Macabre Insanity
+7. Void Existence
+8. Parental Guidance
+
+(p)&(c) 1991 EMOTIONS
+
 
 ## Отношения с другими группами
 

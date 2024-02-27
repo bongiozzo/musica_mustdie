@@ -1,13 +1,37 @@
 # Revocation
 
-Дискография
-"Empire Of The Obscene" 2008, Techno Death
-"Existence Is Futile" 2009, Techno Death
-"Chaos Of Forms" 2011, Techno Death
-"Teratogenesis (EP)" 2012, Techno Death
-"Revocation" 2013, Techno Death
-"Deathless" 2014, Techno Death
-"Great Is Our Sin" 2016, Techno Death
+
+
+## Дискография
+
+### "Empire Of The Obscene" 2008, Techno Death
+
+
+
+### "Existence Is Futile" 2009, Techno Death
+
+
+
+### "Chaos Of Forms" 2011, Techno Death
+
+
+
+### "Teratogenesis (EP)" 2012, Techno Death
+
+
+
+### "Revocation" 2013, Techno Death
+
+
+
+### "Deathless" 2014, Techno Death
+
+
+
+### "Great Is Our Sin" 2016, Techno Death
+
+
+
 
 ## Отношения с другими группами
 

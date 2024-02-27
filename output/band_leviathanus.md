@@ -1,9 +1,50 @@
 # Leviathan (US)
 
-Дискография
-"The Tenth Sub Level of Suicide" 2003, Black Metal
-"Tentacles of Whorror " 2004, Black Metal
-"Massive Conspiracy Against All Life " 2008, Black Metal
+
+
+## Дискография
+
+### "The Tenth Sub Level of Suicide" 2003, Black Metal
+
+1. Introit 01:14 
+2. Fucking Your Ghost in Chains of Ice 05:40 
+3. Sardoniscorn 09:54 
+4. The Bitter Emblem of Dissolve 05:55  
+5. Scenic Solitude and Leprosy 06:45 
+6. He Whom Shadows Move Towards 06:38  
+7. Submersed 03:15  
+8. Mine Molten Armor 07:03  
+9. The Idiot Sun 09:33 
+10. At the Door to the Tenth Sub Level of Suicide 15:02 
+
+
+### "Tentacles of Whorror " 2004, Black Metal
+
+1. What Fresh Hell 04:24 
+2. Heir to the Noose of Ghoul 04:27 
+3. Cut, With the Night Into Mine Heart 05:13 
+4. A Bouquet of Blood For Skull 04:16 
+5. Deciphering Legend Within the Serpent's Briar 06:48 
+6. A Necessary Mutilation 04:40
+7. Vexed and Vomit Hexed 06:48
+8. Tentacles of Whorror (Revel the Tyrant) 09:09
+9. Requiem For a Turd World 07:45
+10. Blood Red and True: Part 3 (Plummeting Obscure) 03:42 
+11. Mouth Orifice Bizarre 06:49 
+12. The History of Rape 08:19 
+
+
+### "Massive Conspiracy Against All Life " 2008, Black Metal
+
+1. Vesture Dipped in the Blood of Morning 05:22 
+2. Merging With Sword, Onto Them 10:58 
+3. Made as the Stale Wine of Wrath 08:44 
+4. VI-XI-VI 07:09  
+5. Receive the World 07:48
+6. Vulgar Asceticism 09:20
+7. Noisome Ash Crown 12:55 
+
+
 
 ## Отношения с другими группами
 

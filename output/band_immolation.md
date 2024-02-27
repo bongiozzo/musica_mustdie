@@ -1,19 +1,229 @@
 # Immolation
 
-Дискография
-"Dawn Of Possession" 1991, Death Metal
-"Stepping On Angels...Before Dawn" 1994, Death Metal
-"Here In After" 1996, Death Metal
-"Failures for Gods" 1999, Death Metal
-"Close To A World Below" 2000, Death Metal
-"Unholy Cult" 2002, Death Metal
-"Harnessing Ruin" 2005, Death Metal
-"Shadows in the Light" 2007, Death Metal
-"Hope and Horror [EP/DVD]" 2007, Death Metal
-"Majesty and Decay" 2010, Death Metal
-"Providence (EP)" 2011, Death Metal
-"Kingdom of Conspiracy" 2013, Death Metal
-"Atonement" 2017, Death Metal
+
+
+## Дискография
+
+### "Dawn Of Possession" 1991, Death Metal
+
+1. Into Everlasting Fire
+2. Despondent Souls
+3. Dawn Of Possession
+4. Those Left Behind
+5. Internal Decadence
+6. No Forgiveness (Without Bloodshed)
+7. Burial Ground
+8. After My Prayers
+9. Fall In Disease
+10.Immolation
+
+ Ross Dolan - Vocals, Bass
+ Robert Vigna - Guitar
+ Tom Wilkinson - Guitar
+ Craig Smilowski - Drums
+
+All Songs Written By Ross Dolan, Robert Vigna
+And Tom Wilkinson.
+Produced By Harris Johns.
+Recorded & Mixed At Musiclab Studios, Berlin,
+Germany.
+
+(p) 1991 THE ALL BLACKS B.V./ ROADRUNNER Productions B.V.
+(c) 1991 THE ALL BLACKS B.V.
+
+### "Stepping On Angels...Before Dawn" 1994, Death Metal
+
+
+
+### "Here In After" 1996, Death Metal
+
+1. Nailed To Gold (3.54)
+2. Burn With Jesus (4.00)
+3. Here ln After (4.54)
+4. I Feel Nothing (4.41)
+5. Away From God (4.45)
+6. Towards Earth (4.47)
+7. Under The Supreme (4.23)
+8. Christ's Cage (5.52)
+
+All songs written by IMMOLATION
+Produced by IMMOLATION and Wayne
+Dorell
+Engineered and mixed by Wayne Dorell
+Recorded and mixed at Water Music
+Studios
+
+Ross Dolan - Vocals, Bass
+Robert Vigna - Guitar
+Thomas Wilkinson - Guitar
+Craig Smilowski - Drums
+
+(p)(c) 1996 METAL BLADE Records
+
+### "Failures for Gods" 1999, Death Metal
+
+1. Once Ordained (Immolation) 
+2. No Jesus, No Beast (Immolation) 
+3. Failures For Gods (Immolation) 
+4. Unsaved (Immolation) 
+5. God Made Filth (Immolation) 
+6. Stench Of High Heaven (Immolation) 
+7. Your Angel Died (Immolation) 
+8. The Devil I Know (Immolation) 
+
+
+### "Close To A World Below" 2000, Death Metal
+
+Higher Coward 
+Father, You'Re Not A Father 
+Furthest From The Truth 
+Fall From A High Place 
+Unpardonable Sin 
+Lost Passion 
+Put My Hand In The Fire 
+Close To A World Below 
+
+### "Unholy Cult" 2002, Death Metal
+
+01. Of Martyrs And Men
+02. Sinful Nature
+03. Unholy Cult
+04. Wolf Among The Flock
+05. Reluctant Messiah
+06. A Kingdom Divided
+07. Rival The Eminent
+08. Bring Them Down
+
+
+
+Ross Dolan : Vocal, Bass
+Bill Taylor : Guitar
+Robert Vigna : Guitar
+Alex Hernandez : Drums
+
+
+
+
+### "Harnessing Ruin" 2005, Death Metal
+
+01. Swarm of Terror
+02. Our Savior Sleeps
+03. Challenge the Storm
+04. Harnessing Ruin
+05. Dead to Me
+06. Son of Iniquity
+07. My Own Enemy
+08. Crown the Liar
+09. At Mourning's Twilight
+
+### "Shadows in the Light" 2007, Death Metal
+
+1. Hate's Plague 02:50  
+2. Passion Kill 03:41  
+3. World Agony 03:56  
+4. Tarnished 03:36  
+5. The Weight of Devotion 04:21  
+6. Breathing the Dark 04:00  
+7. Deliverer of Evil 03:45  
+8. Shadows in the Light 03:44  
+9. Lying with Demons 04:33  
+10. Whispering Death 06:04
+
+### "Hope and Horror [EP/DVD]" 2007, Death Metal
+
+AUDIO TRACKS 
+1- Den of thieves 
+2- The condemned 
+3- The struggle of hope and horror 
+
+DVD TRACKS 
+1- Swarm of terror 
+2- Unholy cult 
+3- Into everlasting fire 
+4- Dead to me 
+5- Sinful nature 
+6- Harnessing ruin 
+7- Unpardonable sin 
+8- Crown the liar 
+9- No jesus, No beast 
+10- At mourning's twilight
+
+### "Majesty and Decay" 2010, Death Metal
+
+1. Intro 01:19  
+2. The Purge 03:18 
+3. A Token of Malice 02:41
+4. Majesty and Decay 04:29 
+5. Divine Code 03:38 
+6. In Human Form 04:04 
+7. A Glorious Epoch 04:37 
+8. Intro 02:04  
+9. A Thunderous Consequence 03:58 
+10. The Rapture of Ghosts 05:19 
+11. Power and Shame 03:44 
+12. The Comfort of Cowards 05:52 
+
+
+Line-up :
+Ross Dolan - Vocals, Bass
+Robert Vigna - Guitar
+Bill Taylor - Guitar
+Steve Shalaty - Drums
+
+The CD was recorded Millbrook Sound Studios in New York with longtime producer
+Paul Orofino. Mixing duties were handled by Zack Ohren. 
+
+### "Providence (EP)" 2011, Death Metal
+
+1. What They Bring
+2. Illumination
+3. Still Lost
+4. Providence
+5. Swallow The Fear
+
+### "Kingdom of Conspiracy" 2013, Death Metal
+
+1. Echoes Of Despair
+2. Keep The Silence
+3. Kingdom Of Conspiracy
+4. Serving Divinity
+5. The Great Sleep
+6. Indoctrinate
+7. A Spectacle of Lies
+8. God Complex
+9. Bound To Order
+10. All That Awaits 
+
+
+Recorded at Millbrook Sound Studios in New York.
+ Mixed and mastered at Castle Ultimate Studios, California.
+
+ 
+Available editions:
+ • Digipak CD
+ • Slimepack edition limited to 300 numbered copies
+ • LP version. Released in different colours:
+ &#12288;- 100 orange (FirePower Records exclusive)
+ &#12288;- 150 red (High Roller Records exclusive)
+ &#12288;- 250 clear (Nuclear Blast exclusive)
+ &#12288;- 250 white with black splatter (Nuclear Blast exclusive)
+ &#12288;- Regular black 
+
+### "Atonement" 2017, Death Metal
+
+1. The Distorting Light   
+2. When the Jackals Come
+3. Fostering the Divide   
+4. Rise the Heretics   
+5. Thrown to the Fire  
+6. Destructive Currents   
+7. Lower   
+8. Atonement    
+9. Above All      
+10. The Power of Gods    
+11. Epiphany  
+
+
 
 ## Отношения с другими группами
 

@@ -1,15 +1,123 @@
 # Scream Silence
 
-Дискография
-"To Die For ..." 1999, Gothic
-"The 2nd" 2001, Gothic
-"Seven Tears" 2003, Gothic
-"Elegy" 2004, Gothic
-"Saviourine" 2006, Gothic
-"Aphelia" 2007, Gothic
-"Apathology" 2008, Gothic
-"Scream Silence" 2012, Gothic
-"Heartburnt" 2015, Gothic
+Gothic-rock
+
+## Дискография
+
+### "To Die For ..." 1999, Gothic
+
+
+
+### "The 2nd" 2001, Gothic
+
+Suppressed Again 
+Forgotten Days 
+Lost Love 
+New Life 
+Satellite 
+Transient 
+Strange Wings 
+Hurt Me 
+Greed For Love 
+Diary 
+
+### "Seven Tears" 2003, Gothic
+
+1. Somewhere 
+2. Timid Try 
+3. Eternal Exile 
+4. Breathless 
+5. The Pretender 
+6. Morphosis 
+7. Ebony Sun 
+8. Consolation 
+9. Asylum 
+10. Seven Tears 
+
+Hardy Fieting: vocals, keyboards
+Robert Klausch: guitars
+Cornel Otto: bass
+Heiko Wolf : drums
+
+### "Elegy" 2004, Gothic
+
+1 The Sign 5:24 
+2 Without A Trace 3:34 
+3 Living In The Rose 3:38 
+4 Curious Changes 4:53 
+5 Oblivion 4:07 
+6 The Doubt 3:32 
+7 Derangement 4:07 
+8 Agony 3:31 
+9 My Swallow Bride 5:58 
+10 Elegy 8:25 
+11 The Sleep 4:15
+
+
+### "Saviourine" 2006, Gothic
+
+1 Narrowness (9:00)
+2 Finite State (3:45)
+3 Homecoming (3:57)
+4 Creed (3:38)
+5 Verity (4:05)
+6 Nonentity (4:16)
+7 The Void (6:22)
+8 Like The Upcoming Coldness / While You're Drowning In Yourself And Try To Gasp (5:06)
+9 Beloved Sweet Curse (3:42)
+10 The Fright (4:26)
+11 Yon (8:12)
+
+
+### "Aphelia" 2007, Gothic
+
+
+
+### "Apathology" 2008, Gothic
+
+1. The Faint (6:03) 
+2. Counterfeit (3:43) 
+3. Apathy (4:04) 
+4. Above And Within (4:08) 
+5. Downfallen (6:57) 
+6. Their Bleakest Sun (4:11) 
+7. Athanasia (4:30) 
+8. And This Is What We Left Behind (5:16) 
+9. Killing Essay (3:45) 
+10. The Antagonist (7:27) 
+11. Euphoria (8:18)
+
+
+### "Scream Silence" 2012, Gothic
+
+01. Wayfare 8:15 
+02. One 4:06 
+03. New Flood 4:42 
+04. Dreamer's Court 4:53 
+05. Blushed 4:12 
+06. In These Words 5:21 
+07. Surd 4:08 
+08. Horizons 4:00 
+09. Downside 3:28 
+10. Days of Yore 4:06 
+11. Solitude 7:16 
+12. Cocoon 6:06
+
+
+### "Heartburnt" 2015, Gothic
+
+1 Born With Blood On My Hands  6:09  
+2 Art Remains  3:34  
+3 The Seventh Sorrow  6:02  
+4 We Can Do No Wrong  4:21  
+5 Heartburnt  6:19  
+6 The Weeping  2:58  
+7 Conversation 16  5:17  
+8 Etwas Starb In Mir  6:15  
+9 Echoes  3:53  
+10 The End Of The Lie  6:51 
+
+
 
 ## Отношения с другими группами
 

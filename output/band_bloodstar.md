@@ -1,7 +1,24 @@
 # Bloodstar
 
-Дискография
-"Anytime - Anywhere" 1993, Hardcore
+
+
+## Дискография
+
+### "Anytime - Anywhere" 1993, Hardcore
+
+1. Waste Land
+2. Windtime
+3. Whales
+4. Implications Of Death
+5. The Gift Of God
+6. Ghost Rider
+7. Scanner
+
+Produced By BLOODSTAR.
+Recorded At Desert Engine Studio.
+
+(p)&(c) 1993 RED DECIBEL Records
+
 
 ## Отношения с другими группами
 

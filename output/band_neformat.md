@@ -1,7 +1,31 @@
 # Neformat
 
-Дискография
-"Breathe with hatred" 2004, Death Metal
+(Death Metal from Kazakhstan)
+
+## Дискография
+
+### "Breathe with hatred" 2004, Death Metal
+
+01. Suggestion 
+02. Voice within 
+03. Pain after death 
+04. Nothing Remains 
+05. Philosophy of pain 
+06. Breathe with Hatred 
+07. Death Observer 
+08. Bioconstructor 
+09. Eleсtric Funeral (tribute to Black Sabbath) 
+
+
+Self production. June 2004.
+
+Line-up:
+
+Андрей (Jesus) - бас, вокал 
+MEG - гитара, гитара соло, электроника 
+NIK (Tornado) - гитара 
+Олег - барабаны, перкуссия
+
 
 ## Отношения с другими группами
 

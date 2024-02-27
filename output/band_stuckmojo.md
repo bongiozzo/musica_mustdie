@@ -1,9 +1,79 @@
 # Stuck Mojo
 
-Дискография
-"Snappin' Necks" 1995, Rap Metal
-"Pigwalk" 1996, Rap Metal
-"Declaration of a head hunter" 2000, Rap Metal
+Biohazard & Clawfinger Hip-Hop Hardcore
+
+## Дискография
+
+### "Snappin' Necks" 1995, Rap Metal
+
+1.  Not-Promised Tomorrow
+2.  Snappin' Necks
+3.  F.O.D.
+4.  The Beginning Of The End
+5.  Cake
+6.  2 Minutes Of Death
+7.  Who's The Devil
+8.  Change My Ways
+9.  Monkey Behind The Wheel
+10.Uncle Sam Sham
+11.Propaganda
+
+ Bonz - Lyrical Expressionist
+ Rich Ward - Guitars, Back. Vocals
+ Dwayne Fowler - Bass, Back. Vocals
+ Brent Bayne - Drums
+
+Produced By Joseph Nuyens
+Recorded By Mike Janas
+Mixed By Joseph Nuyens & Mike Janas
+Recorded & Mixed At The Castle, Franklyn, DN
+
+(p)&(c) 1995 CENTURY MEDIA
+
+### "Pigwalk" 1996, Rap Metal
+
+1.  Pigwalk
+2.  Mental Melt Down
+3.  (Here Comes) The Monster
+4.  Twisted
+5.  The Sermon
+6.  Despise
+7.  Animal
+8.  Only The Strong Survive
+9.  Violated
+10.Inside My Head
+11.Down Breeding
+
+All songs written by STUCK MOJO
+Produced by Joseph Nuvens.
+Recorded by Mike Janas.
+Mixed by Joseph Nuyens and Mike Janas.
+Recorded and mixed at The Castle, Franklyn, DN.
+
+Bonz - Vocals
+Rich Ward - Guitars, Backing Vocals
+Dwayne Fowler - Bass, Backing Vocals
+Brent Bayne - Drums
+
+ (p)c 1996 CENTURY MEDIA Records
+
+### "Declaration of a head hunter" 2000, Rap Metal
+
+1 Set the tone
+2 April 29th
+3 Raise the dead man
+4 Drawing blood
+5 An open letter
+6 Give war a chance
+7 Feel it comin down
+8 The one
+9 Evilution
+10 Declaration
+11 The ward is the Shepherd
+12 Walk the line
+13 Hate breed
+14 Reborn
+
 
 ## Отношения с другими группами
 

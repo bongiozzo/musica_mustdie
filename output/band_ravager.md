@@ -1,7 +1,13 @@
 # Ravager
 
-Дискография
-"Naxzgul Rising" 2004, Death Metal
+brutal-death from Mexico
+
+## Дискография
+
+### "Naxzgul Rising" 2004, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,9 +1,58 @@
 # Evanescence
 
-Дискография
-"Fallen" 2003, Gothic
-"The Open Door" 2006, Gothic
-"Evanescence" 2011, Gothic
+Epic dramatic dark rock
+
+## Дискография
+
+### "Fallen" 2003, Gothic
+
+1. Going Under  
+2. Bring Me To Life    
+3. Everybody's Fool   
+4. My Immortal  
+5. Haunted   
+6. Tourniquet        
+7. Imaginary        
+8. Taking Over Me        
+9. Hello        
+10. My Last Breath        
+11. Whisper        
+
+
+Amy Lee - Vocals
+Ben Moody - Lead Guitar
+John LeCompt - Guitar
+Rocky Gray - Drums
+
+### "The Open Door" 2006, Gothic
+
+
+
+### "Evanescence" 2011, Gothic
+
+1. What You Want 03:41 
+2. Made Of Stone 03:32 
+3. The Change 03:43
+4. My Heart Is Broken 04:29
+5. The Other Side 04:04 
+6. Erase This 03:52
+7. Lost in Paradise 04:42 
+8. Sick 03:29
+9. End Of The Dream 03:49
+10. Oceans 03:36
+11. Never Go Back 04:26 
+12. Swimming Home 03:43
+
+
+ Amy Lee – keyboards, harp, vocals
+ Terry Balsamo – guitar
+ Will Hunt – drums
+ Tim McCord – bass guitar
+ Troy McLawhorn – rhythm guitar
+ Nick Raskulinecz – producer
+ David Campbell – string arrangements
+
+
 
 ## Отношения с другими группами
 

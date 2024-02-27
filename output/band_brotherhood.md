@@ -1,7 +1,19 @@
 # Brotherhood
 
-Дискография
-"Bratstvo Hromu" 2010, Metal
+
+
+## Дискография
+
+### "Bratstvo Hromu" 2010, Metal
+
+1. Srdce Bojovnika 04:01  
+2. Synovia Peruna 03:18  
+3. Moja Vlast 04:51  
+4. Posledna Burka i 04:41  
+5. Posledna Burka ii 03:56  
+6. Vecny Boj 03:21  
+7. Put 06:15 
+
 
 ## Отношения с другими группами
 

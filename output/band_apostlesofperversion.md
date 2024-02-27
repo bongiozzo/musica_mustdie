@@ -1,7 +1,20 @@
 # Apostles of Perversion
 
-Дискография
-"Meeting of Atrocities [EP]" 2011, Death Metal
+spanish old school death-metal
+
+## Дискография
+
+### "Meeting of Atrocities [EP]" 2011, Death Metal
+
+1. Myxedematous Coma	 
+2. Conditions from a Tormented Past	 
+3. Meeting of Atrocities	 
+4. Disturbing Eating Disorder	 
+5. Postmortal Sexual Taste	 
+6. Myxedematous Coma (Demo Version)	 
+7. Intracraneal Hypertension	 
+8. Believe
+
 
 ## Отношения с другими группами
 

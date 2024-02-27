@@ -1,7 +1,24 @@
 # Die!
 
-Дискография
-"Manche Bluten Ewig" 2005, Gothic
+
+
+## Дискография
+
+### "Manche Bluten Ewig" 2005, Gothic
+
+01. Immortalitas
+02. Bis ans Ziel
+03. Gehr'mit mir
+04. Manche bluten ewig
+05. rette mein herz
+06. Fleisch
+07. Fur immer
+08. Helden
+09. S.O.S.
+10. Bis auf's Blut
+11. Leben
+12. Bi sans Ziel (Part II)
+
 
 ## Отношения с другими группами
 

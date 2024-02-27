@@ -1,8 +1,28 @@
 # Majestic Downfall
 
-Дискография
-"Temple of Guilt" 2009, Gothic
-"The Blood Dance" 2011, Gothic
+
+
+## Дискография
+
+### "Temple of Guilt" 2009, Gothic
+
+1. Temple of Guilt
+2. Unexpected
+3. Swallow: Pride
+4. Failure
+5. Bleeding Sun
+
+### "The Blood Dance" 2011, Gothic
+
+1. The Blood Dance	 
+2. From Black to Dead	 
+3. Majestic Embrace	 
+4. Dimension Plague	 
+5. Army of Salvation	 
+6. An Untravelled Road	 
+7. Cronos	 
+8. On Silent Wings	
+
 
 ## Отношения с другими группами
 

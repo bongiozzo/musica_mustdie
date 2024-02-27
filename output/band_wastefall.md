@@ -1,9 +1,55 @@
 # Wastefall
 
-Дискография
-"Fallen Stars And Rising Scars" 2003, Progressive
-"Soulrain 21" 2004, Progressive
-"Self Exile" 2006, Progressive
+
+
+## Дискография
+
+### "Fallen Stars And Rising Scars" 2003, Progressive
+
+1.	 Killing of Wolves
+2.	 Like Father Like None
+3.	 For What Is to Be Lost	 
+4.	 Fall of Eva
+5.	 Annabel Lee
+6.	 Confession
+7.	 Subroutine
+8.	 April's Ruin
+9.	 That Was All About	
+10.	 One With the Fall
+
+### "Soulrain 21" 2004, Progressive
+
+Disc 1
+1.	 Soulrain	02:55
+2.	 Stunned to the World	05:06
+3.	 Empty Haven	07:19
+4.	 Lullaby of the Gods	06:40
+5.	 Lasser	06:46
+6.	 Live With It	05:28
+7.	 Summerlonging Angels	04:55
+8.	 S.E.P. (Self Extinction Project)	05:13
+9.	 Riot of Oblivion	10:34
+10.	 21	05:03	
+Disc 2
+1.	 Fountains of Fire (Walk With Me)	05:56
+2.	 Numb Lake	05:16
+3.	 Stunned to the World (Video)	05:06	
+
+### "Self Exile" 2006, Progressive
+
+1.	 Intro	 
+2.	 Willow Man
+3.	 The Muzzle Affection
+4.	 Dance of Descent
+5.	 Another Empty Haven
+6.	 Strife of Definition
+7.	 Sleep Walk
+8.	 E.Y.E.
+9.	 Utopia Fragmented	
+10.	 4 Minutes to Abandon
+11.	 Provoke the Divine
+12.	 April's Ruin (2006 Version)
+
 
 ## Отношения с другими группами
 

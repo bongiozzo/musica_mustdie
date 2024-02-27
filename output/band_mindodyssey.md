@@ -1,11 +1,74 @@
 # Mind Odyssey
 
-Дискография
-"Keep it All Turning" 1994, Heavy Metal
-"Schizophenia" 1995, Heavy Metal
-"Nailed to the Shade" 1998, Heavy Metal
-"Signs" 1999, Heavy Metal
-"Time to Change It" 2009, Heavy Metal
+
+
+## Дискография
+
+### "Keep it All Turning" 1994, Heavy Metal
+
+1.	 Possessed By You	04:06
+2.	 The Reaper	04:51
+3.	 Because of You	05:16
+4.	 Illusions	06:06
+5.	 Fire in the Sky	04:53
+6.	 Odyssey	06:16
+7.	 Keep It All Turning	03:47
+8.	 Open Fire	04:00
+9.	 Stranger in the City	05:56
+10.	 I've Opened My Eyes	05:43
+
+### "Schizophenia" 1995, Heavy Metal
+
+1.	 Schizophenia	03:35
+2.	 Evolution	04:56
+3.	 Robotman	04:05
+4.	 Nervous Breakdown	04:51
+5.	 Money, Cheques, Creditcards	03:15
+6.	 Emptiness Inside	05:43
+7.	 Voodoo Can't Save Me Now	04:33
+8.	 The Leader	04:25
+9.	 Computer Madness	04:01
+10.	 Don't Touch Me	04:12
+11.	 Silent Scream	03:04
+12.	 The Stand	03:48
+
+### "Nailed to the Shade" 1998, Heavy Metal
+
+1.	 Overture - Ascending To Heaven	01:26	 
+2.	 Nailed to the Shade	04:30
+3.	 In the Dark	04:07
+4.	 Gone	05:21
+5.	 No Religion	05:13
+6.	 Apollo 13	06:09
+7.	 Confide in You	06:19
+8.	 Not With Me	05:17
+9.	 Memories	15:54
+
+### "Signs" 1999, Heavy Metal
+
+1.	 Fountain of Music	01:32	 
+2.	 Men of No Return	05:25
+3.	 Golden Age	05:55
+4.	 In the Picture	07:31
+5.	 Slaves of the Desert	06:57
+6.	 Born Bastards	04:56
+7.	 Welcome Demon	06:54
+8.	 Signs	06:59
+9.	 The Liar	05:25
+
+### "Time to Change It" 2009, Heavy Metal
+
+1.	 Riding and Ruling	03:24
+2.	 Enemy Daggers	03:56
+3.	 I Want it All	04:37
+4.	 Face in the Rain	03:52
+5.	 Final Fight	04:00
+6.	 Higher Ground	06:11
+7.	 Storm Warning	05:17
+8.	 Time to Change it	04:54
+9.	 Raven and Swan	03:27
+10.	 Under the Moonlight	04:28
+
 
 ## Отношения с другими группами
 

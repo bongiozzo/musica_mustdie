@@ -1,10 +1,69 @@
 # Thrudvangar
 
-Дискография
-"Ahnenthron" 2004, Viking Metal
-"Walhall" 2006, Viking Metal
-"Zwischen Asgard Und Midgard" 2007, Viking Metal
-"Durch Blut Und Eis" 2010, Viking Metal
+Viking Black Metal
+
+## Дискография
+
+### "Ahnenthron" 2004, Viking Metal
+
+1. Intro 02:27  
+2. Die Drachen Und Der Runenstein 04:08 
+3. Jul 04:42 
+4. Ahnenthron 03:45 
+5. Heilige Flamme 04:02
+6. Piraten Des Nordens 04:15
+7. Kampf Des Lebens 04:57
+8. Thingfrieden 04:21 
+9. Departure In The Night 05:45  
+10. Einherjer 04:55  
+11. Thrudvangar (Instrumental) 03:24
+
+### "Walhall" 2006, Viking Metal
+
+1. Intro 02:34  
+2. Asatru 02:34  
+3. Kriegernacht 05:30  
+4. Das Schwert der Asen 03:42  
+5. Walhall 07:00  
+6. Blut und Feuer 03:47  
+7. Helheim 06:08  
+8. Grцnland 06:45  
+9. Odins Jungfern 04:47  
+10. Die Heimholung 04:52
+
+### "Zwischen Asgard Und Midgard" 2007, Viking Metal
+
+1. Thor 04:59  
+2. Bдrenpelz und Wolfsmantel 05:48  
+3. Heimwдrts 05:01  
+4. Runenstein 05:17  
+5. Midsommernacht 03:53  
+6. Zwei Raben 07:08  
+7. Siegvater 06:06  
+8. Frostland 08:02 
+
+### "Durch Blut Und Eis" 2010, Viking Metal
+
+1. Intro 02:02  
+2. Thorvald`s Tod 05:56  
+3. Thodhild`s Gunst 06:30  
+4. Habichtstal 04:34  
+5. Leif- Der Gewalten Gabe 05:57  
+6. Holmgang 04:23  
+7. Lьge, Verrat und Meineid 05:24  
+8. Ochseninsel 06:02  
+9. Der Schwerter Klingen 04:15  
+10. Thornesthing 05:39  
+11. Ьberfahrt 05:42  
+12. Am Ende eines Fjords 05:35  
+13. Sein letzter Ritt 03:24 
+
+
+Durch Blut Und Eis means "Through Blood and Ice" in German.
+
+The first pressing is limited and includes bonus DVD featuring the live cut from
+Barther Metal Open Air plus clip and interview. 
+
 
 ## Отношения с другими группами
 

@@ -1,14 +1,55 @@
 # Walls of Jericho
 
-Дискография
-"The Bound Feed The Gagged" 1999, Hardcore
-"A Day And A Thousand Years (EP)" 1999, Hardcore
-"All Hail The Dead" 2004, Metalcore
-"With Devils Amongst Us All" 2006, Metalcore
-"From Hell (EP)" 2006, Metalcore
-"The American Dream" 2008, Metalcore
-"Redemption (EP)" 2008, Metalcore
-"No One Can Save You From Yourself" 2016, Metalcore
+metalcore
+
+## Дискография
+
+### "The Bound Feed The Gagged" 1999, Hardcore
+
+
+
+### "A Day And A Thousand Years (EP)" 1999, Hardcore
+
+
+
+### "All Hail The Dead" 2004, Metalcore
+
+
+
+### "With Devils Amongst Us All" 2006, Metalcore
+
+
+
+### "From Hell (EP)" 2006, Metalcore
+
+
+
+### "The American Dream" 2008, Metalcore
+
+
+
+### "Redemption (EP)" 2008, Metalcore
+
+
+
+### "No One Can Save You From Yourself" 2016, Metalcore
+
+01. Intro
+02. Illusion Of Safety
+03. No One Can Save You From Yourself
+04. Forever Militant
+05. Fight The Good Fight
+06. Cutbird
+07. Relentless
+08. Damage Done
+09. Reign Supreme
+10. Wrapped In Violence
+11. Anthem
+12. Beyond All Praise
+13. Probably Will
+14. Revival Never Goes Out Of Style (Bonus Track)
+15. Glory Hound (Bonus Track)
+
 
 ## Отношения с другими группами
 

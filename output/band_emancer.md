@@ -1,11 +1,64 @@
 # Emancer
 
-Дискография
-"Utopian Illusions" 2001, Black Metal
-"The Human Expirement" 2002, Black Metal
-"Invisible" 2004, Black Metal
-"The Menace Within" 2005, Black Metal
-"Twilight and Randomness" 2008, Black Metal
+black-metal
+
+## Дискография
+
+### "Utopian Illusions" 2001, Black Metal
+
+1. As Frost In A Desert 05:43
+2. A Glimpse of Beauty 05:44
+3. As The Breath of Life Calms To Silence 07:09
+4. Recurrence of Mayhem 04:36 
+5. Vengeance 06:27
+6. Boiling Sulphur 06:36  
+7. Lysets Bortgang [Light's Demise] 03:54 
+
+### "The Human Expirement" 2002, Black Metal
+
+1. In The Greater Picture 04:46 
+2. Prison Tellus 04:28
+3. The Human Experiment 06:08
+4. The Greatest of Pains 07:55
+5. Dead End 06:10
+6. Destroy 06:01
+7. Celebrate Perfection 06:23 
+
+### "Invisible" 2004, Black Metal
+
+1. Emancipation 06:36
+2. On Borrowed Time 08:02
+3. Smashed Mirror World 05:38
+4. A Comedy Of Hunger 09:46
+5. Man Denied 05:26
+6. Mass Destruction 08:00
+7. Invisible 05:57 
+
+### "The Menace Within" 2005, Black Metal
+
+1. Enter Goddamned CNS 04:54  
+2. Volatile Winter 05:00  
+3. Claustrophobium 05:31  
+4. Pallid Eyes 04:16
+5. Reclamation of Merciless January 07:08  
+6. Bloodwhore 06:40  
+7. Disfigured Divinity 08:19  
+8. Enticing Defeat 04:28  
+9. Explicit Repugnance (of Dying) 06:57 
+
+### "Twilight and Randomness" 2008, Black Metal
+
+1. Randomness 00:59  
+2. Dice Man 08:23
+3. The Beast Attacks 04:15
+4. The Pointing Finger 07:52
+5. Comfort Fix 08:09
+6. Twilight 02:25
+7. Cunning Vital Guardian 08:01
+8. Moron 05:33
+9. The Rewarding Schemes 08:01
+10. Winged Omniscience 06:57 
+
 
 ## Отношения с другими группами
 

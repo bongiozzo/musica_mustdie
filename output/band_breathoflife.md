@@ -1,7 +1,36 @@
 # Breath of Life
 
-Дискография
-"Lost Children" 1996, Gothic
+
+
+## Дискография
+
+### "Lost Children" 1996, Gothic
+
+1. Impromptu
+2. Noamina
+3. Hazywish
+4. Into The Flames
+5. Nightfall
+6. Reason
+7. The Land Fourdays
+8. Thoughts
+9. The Soul
+10.Magkae
+11.Echo
+12.Idyll
+
+All Songs By BREATH OF LIFE.
+Produced By Gilles Martin & BREATH OF LIFE.
+Recorded & Mixed By Gilles Martin At The 'Caraibes' Studio.
+
+Isabelle Dekeyser - Vocals
+Philippe Mauroy - Guitars, Drums
+Benoit Sokay - Bass
+Giovanni Bortolin - Keyboards, Violins
+
+(P)&(C) 1996 HALL OF SERMON / 
+PROPHECIES Publishing
+
 
 ## Отношения с другими группами
 

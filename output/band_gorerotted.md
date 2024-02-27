@@ -1,8 +1,43 @@
 # Gorerotted
 
-Дискография
-"Mutilated In Minutes" 2000, Grindcore
-"Only Tools And Corpses" 2003, Grindcore
+Original brutal deathcore
+
+## Дискография
+
+### "Mutilated In Minutes" 2000, Grindcore
+
+1. Hacksore
+2. Bed 'em, Behead 'em
+3. Stab Me Till I Cum
+4. Cut, Gut, Beaten, Eaten
+5. Corpse Fucking Art
+6. Put Your Bits In A Concrete Mix
+7. Mutilated In Minutes, Severed In Seconds
+8. Gagged, Shagged, Bodybagged
+9. Severed, Sawn And Sold As Porn
+
+(p)(c) 2000 Dead Again Records
+
+### "Only Tools And Corpses" 2003, Grindcore
+
+1. Zombie Graveyard Rape Bonanza
+2. Hacked in the Back and Dumped in a Sack
+3. Fuck Your Ass With Broken Glass
+4. Only Tools and Corpses
+5. Her Gash I Did Slash
+6. Can't Fit Her Limbs in the Fridge
+7. Village People Of The Damned
+8. Masticated by the Spasticated
+9. To Catch a Killer
+
+
+GORESKIN (aka Babysliced) - Grunting And Groaning - (low vocals)
+MR GORE - Strangulated Screams - (high/mid vocals)
+FLUFFY OFALSTENCH - High Pitch Garrotting Wires - (guitar)
+ROBIN PANTS - One String Banjo Strummer - (guitar + lead guitar)
+THE WILSON - Bass-ment Torture Screams - (bass and screaming vocals)
+JUNKY JON (aka Rushy Insane) - Skunk And Skins - (drums)
+
 
 ## Отношения с другими группами
 

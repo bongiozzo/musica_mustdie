@@ -1,15 +1,214 @@
 # Sweet
 
-Дискография
-"Thursday" 1968, Glam
-"Gimme Dat Ding" 1970, Glam
-"Funny How Sweet Coco Can Be" 1971, Glam
-"Sweet" 1973, Glam
-"Sweet Fanny Adams" 1974, Glam
-"Desolation Boulevard" 1974, Glam
-"Strung Up" 1975, Glam
-"Give Us a Wink" 1976, Glam
-"Off the Record" 1977, Glam
+
+
+## Дискография
+
+### "Thursday" 1968, Glam
+
+
+
+### "Gimme Dat Ding" 1970, Glam
+
+   1.    The Lollipop Man (Hammond/Hazelwood) 
+   2.    Time (Sweet) 
+   3.    All You'll Ever Get from Me (Cook/Greenaway) 
+   4.    The Juicer (Stewart) 
+   5.    Get on the Line (Barry/Kim) 
+   6.    Mr. McGallagher (Stewart) 
+   7.    Gimme Dat Ding (Hammond/Hazelwood) 
+   8.    Yakety Yak (Leiber/Stoller) 
+   9.    The People That You Wanna Phone Ya (Hammond/Hazelwood) 
+   10.    My Baby Loves Lovin' (Cook/Greenaway) 
+   11.    Busy Line (Semos/Stanton) 
+   12.    Sunny Honey Girl (Cook/Goddison/Greenaway/Hiller) 
+
+
+Steve Priest  -  Bass, Harmonica, Vocals 
+Andy Scott  -  Synthesizer, Guitar, Vocals 
+Mick Tucker  -  Drums, Vocals 
+
+
+
+### "Funny How Sweet Coco Can Be" 1971, Glam
+
+   1.    Co Co 
+   2.    Chop Chop 
+   3.    Reflections 
+   4.    Honeysuckle Love 
+   5.    Santa Monica Sunshine 
+   6.    Daydream 
+   7.    Funny Funny 
+   8.    Tom Tom Turnaround 
+   9.    Jeanie (Chapman/Chinn) 
+   10.    Sunny Sleeps Late 
+   11.    Spotlight 
+
+
+Brian Connolly  -  Vocals 
+Steve Priest  -  Bass, Harmonica, Vocals 
+Andy Scott  -  Synthesizer, Guitar, Vocals 
+Mick Tucker  -  Drums, Vocals 
+
+
+
+### "Sweet" 1973, Glam
+
+   1.    Little Willy (Chapman/Chinn) 
+   2.    New York Connection (Conolly/Priest/Scott/Tucker) 
+   3.    Wig-Wam Bam (Chapman/Chinn) 
+   4.    Done Me Wrong All Right (Connolly/Priest/Scott/Tucker) 
+   5.    Hell Raiser (Chapman/Chinn) 
+   6.    Blockbuster (Chapman/Chinn) 
+   7.    Need a Lot of Lovin' (Conolly/Priest/Scott/Tucker) 
+   8.    Man from Mecca (Conolly/Priest/Scott/Tucker) 
+   9.    Spotlight (Conolly/Priest/Scott/Tucker) 
+   10.    You're Not Wrong for Loving Me (Connolly/Priest/Scott/Tucker) 
+   11.    Jeanie [*] (Chapman/Chinn) 
+   12.    Poppa Joe [*] (Chapman/Chinn) 
+   13.    Alexander Graham Bell [*] (Chapman/Chinn) 
+   14.    Co Co [*] (Chapman/Chinn) 
+   15.    Funny Funny [*] (Chapman/Chinn) 
+
+
+
+Brian Connolly  -  Vocals 
+Elliot Federman  -  Mastering 
+Steve Priest  -  Bass, Harmonica, Vocals 
+Andy Scott  -  Synthesizer, Guitar, Vocals 
+Phil Wainman  -  Producer 
+Mick Tucker  -  Drums, Vocals 
+Bill Pitzonka  -  Liner Notes 
+David Richman  -  Redesign 
+Jeremy Holiday  -  Production Coordination 
+
+### "Sweet Fanny Adams" 1974, Glam
+
+    1.   Set Me Free 
+    2.   Heartbreak Today 
+    3.   No You Don't (Chinn) 
+    4.   Rebel Rouser 
+    5.   Peppermint Twist 
+    6.   Sweet F.A. 
+    7.   Restless 
+    8.   Into the Night (Scott) 
+    9.   AC/DC (Chinn) 
+
+
+Brian Connolly  -  Vocals 
+Steve Priest  -  Bass, Harmonica, Vocals 
+John Rollo  -  Engineer 
+Andy Scott  -  Synthesizer, Guitar, Vocals 
+Mick Tucker  -  Drums, Vocals 
+
+
+
+### "Desolation Boulevard" 1974, Glam
+
+    1.   Ballroom Blitz (Chapman/Chinn) - 4:06 
+    2.   The 6-Teens (Chapman/Chinn) - 4:05 
+    3.   No You Don't (Chapman/Chinn) - 4:36 
+    4.   AC/DC (Chapman/Chinn) - 3:28 
+    5.   I Wanna Be Committed (Chapman/Chinn) - 3:13 
+    6.   Sweet F.A. (Connolly/Priest/Scott/Tucker) - 6:15 
+    7.   Fox on the Run (Connolly/Preist/Scott/Tucker) - 3:27 
+    8.   Set Me Free (Scott) - 3:59 
+    9.   Into the Night (Scott) - 4:25 
+    10.   Solid Gold Brass (Connolly/Priest/Scott/Tucker) - 5:35 
+
+
+Sweet  -  Arranger, Producer 
+Nicky Chinn  -  Producer 
+Peter Coleman  -  Engineer 
+Brian Connolly  -  Vocals, Producer 
+Johnny Dyer  -  Art Direction 
+Steve Priest  -  Bass, Harmonica, Guitar (Bass), Vocals, Producer 
+Andy Scott  -  Synthesizer, Guitar, Vocals, Producer 
+Phil Wainman  -  Producer 
+Mick Tucker  -  Drums, Gong, Vocals, Bells, Producer, Tympani [Timpani], Tubular Bells 
+Mike Chapman  -  Producer 
+
+
+
+### "Strung Up" 1975, Glam
+
+    1.   Hell Raiser 
+    2.   Burning 
+    3.   Someone Else Will 
+    4.   Rock & Roll Disgrace 
+    5.   Need a Lot of Lovin' 
+    6.   Done Me Wrong All Right 
+    7.   You're Not Wrong for Loving Me 
+    8.   Man With the Golden Arm (Bernstein/Fine) 
+    9.   Action 
+    10.   Fox on the Run (Connolly/Priest/Scott/Tucker) 
+    11.   Set Me Free 
+    12.   Miss Demeanour 
+    13.   Ballroom Blitz 
+    14.   Burn on the Flame 
+    15.   Solid Gold Brass 
+    16.   The Six Teens 
+    17.   I Wanna Be Committed (Chinn) 
+    18.   Blockbuster 
+
+
+Brian Connolly  -  Vocals 
+Steve Priest  -  Bass, Harmonica, Vocals 
+Andy Scott  -  Synthesizer, Guitar, Vocals 
+Mick Tucker  -  Drums, Vocals 
+
+
+
+### "Give Us a Wink" 1976, Glam
+
+   1.    Action 
+   2.    Yesterday's Rain 
+   3.    White Mice 
+   4.    Healer 
+   5.    The Lies in Your Eyes 
+   6.    Cockroach 
+   7.    Lady Starlight (Scott) 
+   8.    Keep It In 
+   9.    4th of July 
+
+
+Brian Connolly  -  Vocals 
+Steve Priest  -  Bass, Harmonica, Vocals 
+Andy Scott  -  Synthesizer, Guitar, Vocals 
+Phil Wainman  -  Producer 
+Mick Tucker  -  Drums, Vocals 
+Frank Torpey  -  Guitar 
+Mike Chapman  -  Composer 
+
+
+
+### "Off the Record" 1977, Glam
+
+   1.    Fever of Love (Connolly/Priest/Scott/Tucker) - 3:59 
+   2.    Lost Angels (Connolly/Priest/Scott/Tucker) - 4:02 
+   3.    Midnight to Daylight (Connolly/Priest/Scott/Tucker) - 3:30 
+   4.    Laura Lee (Show Me the Way) (Connolly/Priest/Scott/Tucker) - 4:16 
+   5.    Windy City (Connolly/Priest/Scott/Tucker) - 7:27 
+   6.    Stairway to the Stars (Connolly/Priest/Scott/Tucker) - 3:05 
+   7.    Live for Today (Connolly/Priest/Scott/Tucker) - 3:22 
+   8.    Funk It up (David's Song) (Connolly/Priest/Scott/Tucker) - 3:33 
+   9.    Hard Times (Connolly/Priest/Scott/Tucker) - 4:00 
+   10.    She Gimme Lovin' (Connolly/Priest/Scott/Tucker) - 4:04 
+
+
+Sweet  -  Arranger, Producer 
+Louie Austin  -  Engineer 
+Brian Connolly  -  Vocals 
+Steve Priest  -  Bass, Harmonica, Guitar (Bass), Vocals, Vocals (bckgr) 
+Nick Ryan  -  Engineer 
+Andy Scott  -  Synthesizer, Guitar, Keyboards, Vocals 
+Phil Wainman  -  Producer 
+Mick Tucker  -  Percussion, Drums, Vocals 
+Frank Torpey  -  Guitar 
+Mike Chapman  -  Composer 
+
+
+
 
 ## Отношения с другими группами
 

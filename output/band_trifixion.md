@@ -1,7 +1,29 @@
 # Trifixion
 
-Дискография
-"The First And The Last Commandment" 1995, Black Metal
+
+
+## Дискография
+
+### "The First And The Last Commandment" 1995, Black Metal
+
+1. Prologue
+2. Prince Lucifer Here I Stand
+3. Dreams Of Burning Churches
+4. Faceless Souls
+5. From Far Beyond This Land
+6. Let The Feast Begin
+7. Ascending Of The Empire
+8. The First And The Last Commandment
+
+All Songs Written By Trifixion Of The Horned King.
+Engineered By Spzineah & D.D.
+Recorded & Mixed At Beowulf Studio.
+
+Trifixion Of The Horned King - Vocals, Drums, Bass, Keyboards
+Yog Sototh - Session Guitars
+
+(P)&(C) 1995 LETHAL Records
+
 
 ## Отношения с другими группами
 

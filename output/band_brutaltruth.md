@@ -1,12 +1,141 @@
 # Brutal Truth
 
-Дискография
-"Extreme Conditions Demands Extreme Responses" 1992, Grindcore
-"Perpetual Conversion (EP)" 1993, Grindcore
-"Need To Control" 1994, Grindcore
-"Kill Trend Suicide" 1996, Grindcore
-"Sounds Of The Animal Kingdom" 1997, Grindcore
-"Evolution Through Revolution" 2009, Grindcore
+ex-S.O.D.,Nuclear Assault, Winter, Naked City
+
+## Дискография
+
+### "Extreme Conditions Demands Extreme Responses" 1992, Grindcore
+
+1. P.S.P.I.
+2. Birth Of Ignorance
+3. Stench Of Prophet
+4. I`ll-Neglect
+5. Denial Of Existence
+6. Regression-Progression
+7. Collateral Damage
+8. Time
+9. Walking Corpse
+10.Monetary Gain
+11.Wilt
+12.H.O.P.E.
+13.Blockhead
+14.Anti-Homophobe
+15.Injust Compromise
+
+ Kevin Sharpe - Vocals & Power Tools
+ Danny Lilker - Bass ,Additional Vocals &       Samples
+ Brent "Gum" McCarty - Guitars
+ Scott Levis - Drums
+
+All Music By BRUTAL TRUTH.
+Produced By Colin Richardson.
+Engineered By Garris Shipon.
+Recorded & Mixed At Baby Monster Studios N.Y.C.
+
+(p)&(c) 1992  EARACHE Records
+
+### "Perpetual Conversion (EP)" 1993, Grindcore
+
+1. Perpetual Conversion
+2. Perpetual Larceny
+3. Walking Corpse
+4. Lord Of This World
+5. Bed Street
+
+ Kevin Sharpe - Vocals & Power Tools
+ Danny Lilker  - Bass ,Additional Vocals &       Samples
+ Brent "Gum" McCarty - Guitars
+ Scott Levis - Drums
+
+Songs 1,4 Recorded At Baby Monster Studios N.Y.C.
+With Steve Burgh.
+Song 2 Recorded,Sampled,Mixed & Destroyed
+By Steve Gurney & Russel Of Larceny.
+
+(p)&(c) 1993 EARACHE Records
+
+### "Need To Control" 1994, Grindcore
+
+1. Collapse
+2. Black Door Mine
+3. Turn Face
+4. GodPlayer
+5. I See Red
+6. Ironlung
+7. Bite The Hand
+8. Ordinary Madness
+9. Media Blitz*
+10.Judgement 
+11.Brain Trust
+12.Choice Of A New Generation
+13.Mainliner
+14.Displacement
+15.Crawlspace
+
+ Kevin Sharpe - Vocals & Power Tools
+ Danny Lilker  - Bass ,Additional Vocals &       Samples
+ Brent "Gum" McCarty - Guitars
+ Scott Levis - Drums
+
+Vocals On * By Mike EYEHATEGOD Wiiliams Courtesy
+
+(p)&(c) 1994 EARACHE Records
+
+### "Kill Trend Suicide" 1996, Grindcore
+
+1. Blind Leading The Blind
+2. Pass Some Down
+3. Let's Go To War
+4. Hypocrite Invasion
+5. Everflow
+6. Zombie
+7. Homesick
+8. Humanity's Folly
+9. I Killed My Family * (Original by YDI)
+10.Kill Trend Suicide
+
+Richard Hoak - Drums
+Kevin Sharp - Vocals
+Danny Lilker - Bass, Vocals
+Curn - Guitars
+
+Produced by BRUTAL TRUTH and Billy Anderson.
+Recorded at Cutting Room.
+Engineered by Billy Anderson, with assistance of John Hopkins.
+Mastered at M Works by Dave Shirk and Bill Yurkiewicz.
+Band residence: USA.
+
+(p)(c) 1996 RELAPSE Records RR 6948
+
+### "Sounds Of The Animal Kingdom" 1997, Grindcore
+
+01. dementia
+02. k.a.p.
+03. vision
+04. fucktoy
+05. jemenez cricket
+06. soft mind
+07. average people
+08. blue world
+09. callous
+10. fisting
+11. die laughing
+12. dead smart
+13. sympathy kiss
+14. pork farm
+15. promise
+16. foolish bastard
+17. postulate then liberate
+18. it's after the end of the world
+19. machine parts
+20. 4:20
+21. unbaptized
+22. prey
+
+### "Evolution Through Revolution" 2009, Grindcore
+
+
+
 
 ## Отношения с другими группами
 

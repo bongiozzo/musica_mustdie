@@ -1,9 +1,36 @@
 # Dimple Minds
 
-Дискография
-"" 1988, Punk
-"" 1990, Punk
-"Maximum Debilium" 1996, Punk
+
+
+## Дискография
+
+### "" 1988, Punk
+
+
+
+### "" 1990, Punk
+
+
+
+### "Maximum Debilium" 1996, Punk
+
+1.  Denen Man Nicht Vergibt
+2.  Malen Nach Zahlen
+3.  Die Null In Mir
+4.  Schattenboxen
+5.  Schwarzer Fruhling
+6.  Weibe Mause
+7.  Benzin
+8.  Unsichtbarer Feind
+9.  Wir Sind Debil
+10.Falsche Freunde
+11.Anders Sein
+12.Hautnah
+13.Prime Mover
+14.Der Schrei
+
+(P)c 1996 STEAMHAMMER Records
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,35 @@
 # Diabolical Breed
 
-Дискография
-"Compendium Infernus" 2004, Black Metal
+(sympho-black)
+
+## Дискография
+
+### "Compendium Infernus" 2004, Black Metal
+
+01. Dies Irae
+02. Descendants Of Satan
+03. In Mojorem Sathanas Gloriam
+04. Hominis Nocturn
+05. The Night Of Shooting Star
+06. In The Eyes Of The Storm
+07. Falne Krigere
+
+Commander Kael - voice
+Berserker - guitars
+Nochmar - bass
+Count Darcon - key
+Marquis De Enfer - drums
+
+All music & lyrics by Diabolical Breed
+Compendium Infernus was recorded and mixed at
+Studio Nord, August 4-10 2003
+Produced by Diabolical Breed
+Mixed by Hans "Father Jackob" Oksne
+Mastered by Fred Endresen
+Cover artwork by Diabolical Breed
+Band photographies & fancy guitar lead by Stian
+"Boogir" Jensen
+
 
 ## Отношения с другими группами
 

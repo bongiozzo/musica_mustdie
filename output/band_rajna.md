@@ -1,10 +1,72 @@
 # Rajna
 
-Дискография
-"Ishati" 1999, Folk
-"Yahili" 1999, Folk
-"The Heady Wine of Praise" 2001, Folk
-"The Door of Serenity" 2002, Folk
+Dark Ethnic
+
+## Дискография
+
+### "Ishati" 1999, Folk
+
+1. Kahar
+2. Yak
+3. Silnen Kempur
+4. rajna
+5. sanctuary 
+6. Ophelia
+7. Nomineum
+8. Lahul Nati 
+9. Nundrй
+10. Traghodia
+11. Sharanghi
+
+### "Yahili" 1999, Folk
+
+1 . Road to Kandahar        
+2. Traoma
+3. Diakri
+4. Shalai 
+5. Adjah
+ 6 . Diwali 
+ 7 .Shandailo
+ 8 . Dies irae
+ 9 . Gansha gaurab mp3
+10 . Ham Shallam
+11 . Malia Vali
+12 .Yihillish
+
+### "The Heady Wine of Praise" 2001, Folk
+
+1. The Passage
+2. Sunyata
+3. Marian mp3
+4. Cantara : Dead Can Dance remake 
+5. Syrta
+6. Mysterious Lanka
+7. Kalos Irtes 
+8. Elizian Dance
+9. Surya
+10. Pearl of Ashes
+11. Black Star
+12. Lullaby 
+13. OM Mani Padme Hum 
+14. Kezh
+
+### "The Door of Serenity" 2002, Folk
+
+1.Djalambo
+2.Belorbai 
+3.Tore sensuous
+4.The Door of Serenity 
+5.Elisia 
+6.Whirling Souls
+7.Masati
+8.Dervishing 
+9.Into the Dream
+10. Shalim Dhar
+11.Djalambo (epilogue)
+12.Yйmendrй Trйbйsi #
+13.Halam # 
+     # bonus tracks
+
 
 ## Отношения с другими группами
 

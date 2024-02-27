@@ -1,7 +1,33 @@
 # I.N.R.I.
 
-Дискография
-"Hyper Bastard Breed" 2002, Death Metal
+(brutal death metal in the vein of Deicide and Hypocrisy)
+
+## Дискография
+
+### "Hyper Bastard Breed" 2002, Death Metal
+
+1. More Rustless Than the Devil
+2. The Depth Society
+3. Shoot, Hammer and Krush
+4. Terrorfreak
+5. Masturbate
+6. Hyper Bastard Breed
+7. Candidate for the Fuck of God
+8. The Resonance of Triumph
+9. Annihilation
+10. The Glorythrone
+11. Spawn of Abraham
+12. This World's Ends, Wipe Out!!
+13. Your Mighty Privilege
+14. Hell Is Rising
+15. The All Consuming Darkness
+
+Henry "InrI" Veltink - vocals
+Patrick Koning - guitars
+Gerjan Slot - bass
+Wilfred Spijker - guitars
+William Vlierman - drums
+
 
 ## Отношения с другими группами
 

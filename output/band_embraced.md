@@ -1,8 +1,32 @@
 # Embraced
 
-Дискография
-"Amorous Anathema" 1998, Melodic Death Metal
-"Within" 2000, Melodic Death Metal
+
+
+## Дискография
+
+### "Amorous Anathema" 1998, Melodic Death Metal
+
+01. A Dying Flame
+02. The End.. And Here We All Die
+03. Nightfall 
+04. Princess Of Twilight 
+05. Into The Unknown 
+06. Memento Of Emotions
+07. The Beautyful Flow Of An Autumn Storm 
+08. Dirge Of The Masquerade
+
+### "Within" 2000, Melodic Death Metal
+
+01. Solitude Of My Own
+02. Within Me
+03. The Fallen
+04. Putrefaction 
+05. Era Of Changes 
+06. Nighttime Drama 
+07. Sacred Tears 
+08. Blessed Are Those
+09. Outro
+
 
 ## Отношения с другими группами
 

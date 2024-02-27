@@ -1,7 +1,24 @@
 # Fejd
 
-Дискография
-"Storm" 2009, Folk
+
+
+## Дискография
+
+### "Storm" 2009, Folk
+
+1. Offerцk 05:39  
+2. Svanesеng 04:23  
+3. Дlvorna Dansar 05:25  
+4. Vid Jore Е 05:31  
+5. Egils Polska 02:57  
+6. Storm 06:59  
+7. Varg i Veum 04:30  
+8. Дril 04:57  
+9. Skuld 06:04  
+10. Likfдrd 03:51  
+11. Bergakungen (Bonus Track) 04:48
+12. Morgonstjдrnan (Bonus Track) 04:48 
+
 
 ## Отношения с другими группами
 

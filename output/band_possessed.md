@@ -1,10 +1,25 @@
 # Possessed
 
-Дискография
-"Seven Churches" 1985, Thrash
-"Beyond The Gates" 1986, Thrash
-"The Eyes Of Horror" 1986, Thrash
-"Beyond The Gates/ The Eyes Of Horror" 1986, Thrash
+
+
+## Дискография
+
+### "Seven Churches" 1985, Thrash
+
+
+
+### "Beyond The Gates" 1986, Thrash
+
+
+
+### "The Eyes Of Horror" 1986, Thrash
+
+
+
+### "Beyond The Gates/ The Eyes Of Horror" 1986, Thrash
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,32 @@
 # Mictlan
 
-Дискография
-"Donde Habitan Los Muertos" 1995, Death Metal
-"Ce Miquiztli" 1998, Death Metal
+
+
+## Дискография
+
+### "Donde Habitan Los Muertos" 1995, Death Metal
+
+1. Panoramas De Mictlan
+2. La Leyenda De Coyolxauhqui
+3. Guerrero Por Conviccion
+4. El Quinto Sol	 
+5. Gukumatz
+6. Ome
+7. Estado Consciente Despues De La Muerte
+8. Autosacrificio (Tlacoquixtilixtli)
+
+### "Ce Miquiztli" 1998, Death Metal
+
+1. Ce Miquiztli (uno Muerte)
+2. Con Tu Llegada (invasor)
+3. Gracias A Dios
+4. Serpiente Celeste
+5. Flores De Guerra
+6. Su Verdad
+7. Aqui Donde es (No busques)
+8. Guerra Florida
+9. El Aconsejado De Los Colibres
+
 
 ## Отношения с другими группами
 

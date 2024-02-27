@@ -1,11 +1,88 @@
 # Liv Kristine
 
-Дискография
-"Deus ex Machina" 1998, Gothic
-"Enter My Religion" 2006, Gothic
-"Skintight" 2010, Gothic
-"Libertine" 2012, Gothic
-"Vervain" 2014, Gothic
+
+
+## Дискография
+
+### "Deus ex Machina" 1998, Gothic
+
+
+
+### "Enter My Religion" 2006, Gothic
+
+01. Over the Moon
+02. Fake a Smile
+03. All the Time in the World
+04. My Revelation
+05. Coming Home
+06. Trapped in your Labyrinth
+07. Blue Emptiness
+08. You are the Night
+09. Enter my Religion
+10. Streets of Philadelphia (BRUCE SPRINGSTEEN cover)
+11. You Take Me Higher
+12. For a Moment
+
+### "Skintight" 2010, Gothic
+
+1. Skintight 03:18 
+2. Twofold 03:07  
+3. Train to Somewhere 03:33 
+4. Love in Grey 04:10 
+5. Emotional Catastrophies 02:43
+6. Life Line 03:04 
+7. Boy at the Window 03:45
+8. Wonders 03:11
+9. Versified Harmonies 04:12  
+10. The Rarest Flower 04:05 
+
+
+
+The CD was recorded at Mastersound Studio and the artwork was created by Stefan
+Heilemann. Produced by Alex Krull.
+All music by Torsten Bauer and Liv Kristine. All lyrics by Liv Kristine.
+
+The album will be released as Jewel Case and Limited Edition Digipak which
+contains a bonus track "One of Them". 
+
+### "Libertine" 2012, Gothic
+
+01. Interlude (intro)
+02. Solve Me 
+03. Silence 
+04. Vanilla Skin Delight (duet with Tobias Regner)
+05. Panic 
+06. Paris Paris 
+07. Wait For Rain 
+08. Love Crime 
+09. Libertine 
+10. Meet Me In The Red Sky 
+11. The Man With A Child In His Eyes (KATE BUSH cover)
+
+
+### "Vervain" 2014, Gothic
+
+1. My Wilderness  03:31    
+2. Love Decay (feat. Michelle Darkness) 04:42    
+3. Vervain  05:00    
+4. Stronghold of Angels (feat. Doro Pesch)  04:44    
+5. Hunters  03:32    
+6. Lotus  03:46    
+7. Elucidation  03:45    
+8. Two and a Heart  05:09    
+9. Creeper  03:49    
+10. Oblivious  04:52    
+Bonus:
+11. Unbreakable  04:21    
+12. Love Decay  04:59    
+13. Stronghold of Angels  04:42 
+
+
+Produced by Alexander Krull at Mastersound Studio
+
+
+
+
 
 ## Отношения с другими группами
 

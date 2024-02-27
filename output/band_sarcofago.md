@@ -1,13 +1,89 @@
 # Sarcofago
 
-Дискография
-"INRI" 1987, Death Metal
-"Rotting" 1989, Death Metal
-"The Laws Of Scourge" 1991, Death Metal
-"Hate" 1994, Death Metal
-"Decade of Decay" 1995, Death Metal
-"The Worst" 1996, Death Metal
-"Crust" 2000, Death Metal
+ex-Sepultura
+
+## Дискография
+
+### "INRI" 1987, Death Metal
+
+1 Satanic Lust (Sarcofago) 
+2 Desecration of Virgin (Sarcofago) 
+3 Nightmare (Sarcofago) 
+4 I.N.R.I. (Sarcofago) 
+5 Christ's Death (Sarcofago) 
+6 Satanas (Sacofago) 
+7 Ready to Fuck (Sarcofago) 
+8 Deathtrash (Sarcofago) 
+9 Last Slaughter (Sarcofago) 
+10 Recrucify [*] (Sarcofago) 
+11 Black Vomit [*] (Sarcofago 
+
+
+### "Rotting" 1989, Death Metal
+
+
+
+### "The Laws Of Scourge" 1991, Death Metal
+
+1. The Laws Of Scourge
+2. Piercings
+3. Midnight Queen
+4. Screeches From The Silence
+5. Prelude To A Suicide
+6. The Black Vomit
+7. Secrets Of A Window
+8. Little Julie
+9. Crush, Kill, Destroy
+
+ Lucio Olliver - Drums
+ Gerald Minelli - Bass
+ Wagner Lamounier - Vocals, Guitars
+ Fabio Jhaso - Guitars
+
+All Music By SARCOFAGO
+Produced By COGUMELO & SARCOFAGO
+Recorded & Mixed By Gauguin
+Recorded At J.G. Studios, Belo Horizonte, 1991
+
+(p)&(c) 1992 UNDER ONE FLAG
+
+
+### "Hate" 1994, Death Metal
+
+
+
+### "Decade of Decay" 1995, Death Metal
+
+
+
+### "The Worst" 1996, Death Metal
+
+1  Growin' Up Growing Dumb-Slapstick  
+2  Rwe Can't Tan-Cooley's Market  
+3  So Much-The Impossibles  
+4  Our Street-The Facet  
+5  This Mess-The Skallops  
+6  Halibut-Half Empty  
+7  Sheltered-Sam The Butcher  
+8  Ties That Bind-Skankin' Pickle  
+9  Mystery Song-Gargamel  
+10  Preston-Dr Manette  
+11  I Hate The World-Skeptic Tank  
+12  Screwed-Link 80  
+13  False Positive-Red Devlin & The Tormentors  
+14  Avenue-Blindshot  
+15  Burrito Snatcherz-78 Rpm's  
+16  Meth Girl-Adam's Alcoholics  
+17  Oi Shit-The Critics  
+18  Boba Fett-Eclectics  
+19  Jacknife-Johnny Socko  
+20  Epilog-The Project  
+
+
+### "Crust" 2000, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

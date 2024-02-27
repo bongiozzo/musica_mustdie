@@ -1,7 +1,29 @@
 # Offense
 
-Дискография
-"Aside" 1996, Death Metal
+
+
+## Дискография
+
+### "Aside" 1996, Death Metal
+
+1.  Seating On Distress
+2.  Why ?
+3.  The Defect
+4.  Law Of Life
+5.  Shining Dawn
+6.  Basic
+
+All Songs Written By OFFENSE.
+Produced By Alfonso Alminana.
+Recorded at Duetto Studios.
+
+Wensho - Drums
+Mariano - Vocals, Bass
+Javi - Guitar
+Loren - Guitar
+
+(P)c 1996 REPULSE Records
+
 
 ## Отношения с другими группами
 

@@ -1,12 +1,83 @@
 # Defleshed
 
-Дискография
-"Ma Belle Scalpelle" 1994, Death Metal
-"Abrah Kadavrah" 1996, Death Metal
-"Under The Blade" 1997, Death Metal
-"Death... The High Cost Of Living" 1998, Death Metal
-"Fast Forward" 1999, Death Metal
-"Reclaim the Beat" 2005, Death Metal
+
+
+## Дискография
+
+### "Ma Belle Scalpelle" 1994, Death Metal
+
+01. Gathered Files 
+02. Morbidiance Blue Cafй 
+03. Simply Fell Towards 
+04. Many Mangled Maggots 
+05. Ma Belle Scalpelle 
+
+### "Abrah Kadavrah" 1996, Death Metal
+
+ No titles on this album
+
+All songs written by DEFLESHED
+Produced by Dan Swano and
+DEFLESHED
+Engineered by Dan Swano
+Recorded and mixed at Unisound Studio
+
+(p)(c) I996 INVASION Records
+
+### "Under The Blade" 1997, Death Metal
+
+01. Ferwell To The Flesh 
+02. Entering My Yesterdays 
+03. Eat The Meat Raw 
+04. Sons Of Spellcraft And Starfall 
+05. Metalbounded 
+06. Under The Blade 
+07. Thorns Of The Black Rose 
+08. Cinderellas Return And Departure 
+09. Walking The Moons Of Mars 
+10. Metallic Warlust 
+11. Curse The Gods
+
+### "Death... The High Cost Of Living" 1998, Death Metal
+
+01. Entering My Yesterdays 
+02. Mary Bloody Mary 
+03. Metallic Warlust 
+04. Under The Blade 
+05. Walking The Moons Of March 
+06. In Chains And Leather 
+07. Thorns Of The Black Rose
+
+### "Fast Forward" 1999, Death Metal
+
+01. The Return Of The Flesh 
+02. The Heat From Another Sun 
+03. Fast Forward 
+04. The Iron And The Maiden 
+05. Proud To Be Dead 
+06. Snowballing Blood 
+07. Wilder Than Fire 
+08. Feeding Fatal Fairies 
+09. Lightning Strikes Thrice 
+10. Domination Of The Sub-queen 
+11. Speeding The Ways
+
+### "Reclaim the Beat" 2005, Death Metal
+
+1. Stripped to the Bone
+2. Abstinence for Turbulence
+3. Chain Reaction
+4. Reclaim the Beat
+5. Grind and Rewind
+6. Under Destruction
+7. Red Hot (MOTLEY CRUE cover)
+8. Bulldozed (Back to Basic)
+9. Ignorance is Bliss
+10. May the Flesh be with You
+11. Needless to Pray
+12. Aggroculture
+13. Over and Out
+
 
 ## Отношения с другими группами
 

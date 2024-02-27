@@ -1,13 +1,131 @@
 # Xandria
 
-Дискография
-"Kill The Sun" 2003, Gothic
-"Ravenheart" 2004, Gothic
-"India" 2005, Gothic
-"Salome - The Seventh Veil" 2007, Gothic
-"Now And Forever [CD/DVD]" 2008, Gothic
-"Neverworld's End" 2012, Gothic
-"Sacrificium" 2014, Gothic
+Gothic-metal with female vocal
+
+## Дискография
+
+### "Kill The Sun" 2003, Gothic
+
+
+
+### "Ravenheart" 2004, Gothic
+
+01. Ravenheart 
+02. The Lioness 
+03. Back To The River
+04. Eversleeping
+05. Fire Of Universe 
+06. Some Like It Cold
+07. Answer
+08. My Scarlet Name
+09. Snow-White
+10. Black Flame
+11. Too Close To Breathe
+12. Keep My Secret Well
+
+### "India" 2005, Gothic
+
+
+
+### "Salome - The Seventh Veil" 2007, Gothic
+
+01. Save My Life (03:56)
+02. Vampire (04:31)
+03. Beware (03:21)
+04. Emotional Man (04:03)
+05. Salome (06:11)
+06. Only For The Stars In Your Eyes (03:17)
+07. Firestorm (04:50)
+08. A New Age (03:37)
+09. The Wind And The Ocean (03:24)
+10. Sisters Of The Light (03:37)
+11. Sleeping Dogs Lie (04:11)
+12. On My Way (03:51)
+Bonus:
+13. Sisters Of The Light (remixed by Jesus On Extasy)
+
+Lisa Middelhauve - Vocals
+Marco Heubaum - Guitar
+Nils Middelhauve - Bass
+Philip Restemeier - Guitar
+Gerit Lamm - Drums
+
+Alt songs published by edition drakkar|adm. BMG music publishing except track 2 & ll by edition drakkar| adm. BMG music publishing and amv talpa jh-force publishing, track 4,8 & 12 by amv talpaf h-force publishing.
+Save My Life_music Marco Heubaum | words Lisa Middelhauve & Marco Heubaum
+Vampire_music Marco Heubaum | words Lisa & Nils Middelhauve
+Beware_music Lisa Middelhauve & Marco Heubaum| words Lisa Middelhauve
+Emotional Man...music & words Nils Middelhauve Salome_music Marco Heubaum | words Lisa Middelhauve
+Only For The Stars In Your Eyes, music Marco Heubaum & Lisa Middelhauve | words Lisa Middelhauve
+Firestorm..music Marco Heubaum | words Lisa Middelhauve
+A New Age .music & words Nils Middelhauve The Wind And The Ocean_music & words Lisa Middelhauve
+Sisters Of The Light, music Marco Heubaum & Lisa Middelhauve | words Lisa Middelhauve
+Sleeping Dogs Lie_music Nils Middelhauve & Marco Heubaum | words Nils Middelhauve
+On My Way . music & words Nils Middelhauve Produced by Marco Heubaum and Xandria.
+Recorded, mixed and mastered at Principal Studios.
+Engineered by Jorg Umbreit (Resetti Brothers).
+Orchestral arrangements, keyboards and programrnings by Henning Verlage & Marco Heubaum.
+Additional vocals on >0nly for the Stars In Your Eyes< and >Emotional Man< by Mika Tauriainen.
+Grand Piano on >The Wind and the Ocean< played by Henning Verlage.
+Artwork design by Britta Sumkotter & Marcus Langer (info@sumdesign.de & info@marcuslanger.de)
+Band photography by Von Uslar Fotodesign (ivu@von-uslar-fotodesign.de)
+Promotion: Ina Reeg-Knittel (ina@absolutpromotion.de) Management: Hidden Force (info@hidden-force.com)
+Marco uses EARFORCE amps and cabinets.
+XANDRIA are supported by www.undergroundfactory.de - the alternative clothing store.
+www.xandria.de | www.drakkar.de |
+www.principal-studios.de | www.hidden-force.com
+
+### "Now And Forever [CD/DVD]" 2008, Gothic
+
+
+
+### "Neverworld's End" 2012, Gothic
+
+01. A Prophecy Of Worlds To Fall 
+02. Valentine 
+03. Forevermore 
+05. Euphoria 
+04. Blood On My Hands 
+06. Soulcrusher 
+07. The Dream Is Still Alive 
+08. The Lost Elysion 
+09. Call Of The Wind 
+10. A Thousand Letters 
+11. Cursed 
+12. The Nomad's Crown
+Bonus track:
+ 13. When the Mirror Cracks (04:08)
+ 14. The Sailor And The Sea (Exclusive USA Amazon MP3) (03:10) 
+
+### "Sacrificium" 2014, Gothic
+
+1. Sacrificium  10:21  
+2. Nightfall  04:02   
+3. Dreamkeeper  04:36   
+4. Stardust  04:00   
+5. The Undiscovered Land  07:34   
+6. Betrayer  06:15   
+7. Until the End  05:47  
+8. Come with Me  03:46   
+9. Little Red Relish  04:39   
+10. Our Neverworld  03:51   
+11. Temple of Hate  05:59   
+12. Sweet Atonement  04:20 
+
+Limited first edition digibook edition includes a bonus CD:
+ 1. The Watcher (Bonus track)
+ 2. Sacrificium (Instrumental Version)
+ 3. Nightfall (Instrumental Version)
+ 4. Dreamkeeper (Instrumental Version)
+ 5. Stardust (Instrumental Version)
+ 6. The Undiscovered Land (Instrumental Version)
+ 7. Betrayer (Instrumental Version)
+ 8. Until the End (Instrumental Version)
+ 9. Come with Me (Instrumental Version)
+ 10. Little Red Relish (Instrumental Version)
+ 11. Our Neverworld (Instrumental Version)
+ 12. Temple of Hate (Instrumental Version)
+ 13. Sweet Atonement (Instrumental Version)
+
 
 ## Отношения с другими группами
 

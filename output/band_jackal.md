@@ -1,10 +1,34 @@
 # Jackal
 
-Дискография
-"Rise" 1990, Heavy Metal
-"Vague Visions" 1993, Heavy Metal
-"A Safe Look in Mirrors" 1994, Heavy Metal
-"IV" 2009, Heavy Metal
+
+
+## Дискография
+
+### "Rise" 1990, Heavy Metal
+
+
+
+### "Vague Visions" 1993, Heavy Metal
+
+
+
+### "A Safe Look in Mirrors" 1994, Heavy Metal
+
+
+
+### "IV" 2009, Heavy Metal
+
+1.	 Reinforcement (intro)	01:01	 
+2.	 In To the Core	04:38	 
+3.	 Innocence	03:35	 
+4.	 Angels	06:08	 
+5.	 Disciple of the Night	07:11	 
+6.	 No Lifeguard on Duty	05:16	 
+7.	 When the Heart is Strong	04:54	 
+8.	 Endgame	04:42	 
+9.	 No One	04:05	 
+10.	 Hunter	04:52
+
 
 ## Отношения с другими группами
 

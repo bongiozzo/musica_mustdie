@@ -1,7 +1,21 @@
 # Valkija
 
-Дискография
-"Avengers of Steel" 2004, Heavy Metal
+
+
+## Дискография
+
+### "Avengers of Steel" 2004, Heavy Metal
+
+1. The Last One 04:19
+2. Sign of the Hammer 04:04  
+3. Hold On 04:49  
+4. Steel Avenger 04:04  
+5. Hatchet Blade 06:11  
+6. Return of the King 07:09  
+7. Eyes of the Shadow 06:59  
+8. Son of Thunder 03:40  
+9. The Unknown Kaddath 07:36 
+
 
 ## Отношения с другими группами
 

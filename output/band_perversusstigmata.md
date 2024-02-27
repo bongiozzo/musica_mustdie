@@ -1,7 +1,18 @@
 # Perversus Stigmata
 
-Дискография
-"Interstellar Hatred Void" 2009, Black Metal
+
+
+## Дискография
+
+### "Interstellar Hatred Void" 2009, Black Metal
+
+1. Hate 05:20  
+2. Astral 03:13  
+3. Black Stars 05:52  
+4. Silence 04:34  
+5. Perversus Stigmata 06:43  
+6. Death 05:07 
+
 
 ## Отношения с другими группами
 

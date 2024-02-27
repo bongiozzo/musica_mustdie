@@ -1,8 +1,46 @@
 # Domina Noctis
 
-Дискография
-"Nocturnalight" 2005, Gothic
-"Second Rose" 2008, Gothic
+
+
+## Дискография
+
+### "Nocturnalight" 2005, Gothic
+
+1. Shades Of Dark And Light (7.06); 
+2. My Book Of Shadows (7.02); 
+3. Let Me Flood Your Mind (6.15); 
+4. Gloom (6.05); 
+5. It's On Me* (3.08); 
+6. Lilith (The Black Moon) (7.19); 
+7. Nevermore (4.08); 
+8. Venus In A Dust Whirl (8.55)
+
+All music composed and arranged by Asher
+All lyrics and vocal harmonies composed by Edera
+except * written by PYOGENESIS
+Produced by DOMINA NOCTIS
+Recorded, mixed and mastered by Giordano Occhi
+Recorded at Sonora Studio, Italy
+
+Edera - Vocals
+Asher - Guitars
+Azog - Bass
+Erik - Keyboards
+Nicola - Drums
+
+### "Second Rose" 2008, Gothic
+
+1. Electric Dragonfly 04:33  
+2. Untold 04:10  
+3. Into Hades 04:19  
+4. Because The Night 04:46  
+5. Lamia 04:11  
+6. Sisters In Melancholy 05:53  
+7. Broken Flowers 05:23  
+8. Exile 05:09  
+9. The Mask 05:36  
+10. Bang Bang (Bonus Track) 03:13 
+
 
 ## Отношения с другими группами
 

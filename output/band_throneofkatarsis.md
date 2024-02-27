@@ -1,8 +1,25 @@
 # Throne of Katarsis
 
-Дискография
-"An Eternal Dark Horizon" 2007, Black Metal
-"Helvete - Det Iskalde Morket" 2009, Black Metal
+
+
+## Дискография
+
+### "An Eternal Dark Horizon" 2007, Black Metal
+
+1. Funeral Moonlight  12:10   
+2. Under Guds Hud  12:07 
+3. Symbols of Winter  11:17  
+4. Nattaander  09:53   
+5. An Eternal Dark Horizon  09:58 
+
+### "Helvete - Det Iskalde Morket" 2009, Black Metal
+
+1. The Winds of Blasphemy  15:55   
+2. Lysets Endeligt  11:21  
+3. The Darkest Path  04:59  
+4. Det Iskalde M&#248;rket  09:47  
+5. Summoning the Horns  15:24 
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,29 @@
 # Abysmal
 
-Дискография
-"The Pillorian Age" 1995, Black Metal
+
+
+## Дискография
+
+### "The Pillorian Age" 1995, Black Metal
+
+1. The Pillorian Age
+2. Velvet Pilloria
+3. Temptation And Undoing
+4. Four Ravens Flews
+5. The Sleeping Antarct
+6. Thunder In The Gallows Land
+7. Out Of My Flesh
+
+All Songs Written By ABYSMAL.
+Produced By Endre Begby & ABYSMAL.
+Recorded & Mixed At MqQuake Studio,By Raymond C.Pellicer.
+
+Endre Begby - Guitars & Basses
+Ian Svendsen - Guitars & Vocals
+Karl Halvorsen - Drums
+
+(P)&(C) 1995 AVANTGARDE MUSIC
+
 
 ## Отношения с другими группами
 

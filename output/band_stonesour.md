@@ -1,14 +1,55 @@
 # Stone Sour
 
-Дискография
-"Stone Sour" 2002, Metal
-"Come What(ever) May" 2006, Metal
-"Audio Secrecy" 2010, Metal
-"House of Gold & Bones – Part 1" 2012, Metal
-"House of Gold & Bones – Part 2" 2013, Metal
-"Meanwhile in Burbank... (EP)" 2015, Metal
-"Straight Outta Burbank... (EP)" 2015, Metal
-"Hydrograd" 2017, Metal
+
+
+## Дискография
+
+### "Stone Sour" 2002, Metal
+
+
+
+### "Come What(ever) May" 2006, Metal
+
+
+
+### "Audio Secrecy" 2010, Metal
+
+
+
+### "House of Gold & Bones – Part 1" 2012, Metal
+
+
+
+### "House of Gold & Bones – Part 2" 2013, Metal
+
+
+
+### "Meanwhile in Burbank... (EP)" 2015, Metal
+
+
+
+### "Straight Outta Burbank... (EP)" 2015, Metal
+
+
+
+### "Hydrograd" 2017, Metal
+
+01. Ysif
+02. Taipei Person/Allah Tea
+03. Knievel Has Landed
+04. Hydrograd
+05. Song #3
+06. Fabuless
+07. The Witness Trees
+08. Rose Red Violent Blue (This Song Is Dumb & So Am I)
+09. Thank God It's Over
+10. St. Marie
+11. Mercy
+12. Whiplash Pants
+13. Friday Knights
+14. Somebody Stole My Eyes
+15. When The Fever Broke
+
 
 ## Отношения с другими группами
 

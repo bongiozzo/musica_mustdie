@@ -1,18 +1,238 @@
 # Pantera
 
-Дискография
-"Metal Magic" 1983, Heavy Metal
-"Projects in the Jungle" 1984, Heavy Metal
-"I Am the Night" 1985, Heavy Metal
-"Power Metal" 1988, Heavy Metal
-"Cowboys From Hell" 1990, Thrash
-"Vulgar Display Of Power" 1992, Metal
-"Far Beyond Driven" 1994, Metal
-"I'm Broken" 1994, Metal
-"Cemetary Gates" 1995, Metal
-"The Great Southern Trendkill" 1996, Metal
-"Official Live: 101 Proof" 1997, Metal
-"Reinventing the Steel" 2000, Metal
+Canonic Angry Thrash Metal
+
+## Дискография
+
+### "Metal Magic" 1983, Heavy Metal
+
+  1.   Ride My Rocket 
+  2.   I'll Be Alright 
+  3.   Tell Me If You Want It 
+  4.   Latest Lover 
+  5.   Biggest Part of Me 
+  6.   Metal Magic 
+  7.   Widowmaker 
+  8.   Nothin' On (But the Radio) 
+  9.   Sad Lover 
+  10.   Rock Out 
+
+
+### "Projects in the Jungle" 1984, Heavy Metal
+
+  1.   All Over Tonight 
+  2.   Out for Blood 
+  3.   Blue Light Turnin' Red 
+  4.   Like Fire 
+  5.   In Over My Head 
+  6.   Projects in the Jungle 
+  7.   Heavy Metal Rules 
+  8.   Only a Heartbeat Away 
+  9.   Killers 
+  10.   Takin' My Life 
+
+
+### "I Am the Night" 1985, Heavy Metal
+
+  1.   Hot and Heavy 
+  2.   I Am the Night 
+  3.   Onward We Rock 
+  4.   D*G*T*T*M 
+  5.   Daughters of the Queen 
+  6.   Down Below 
+  7.   Come-On Eyes 
+  8.   Right on the Edge 
+  9.   Valhalla 
+  10.   Forever Tonight 
+
+
+### "Power Metal" 1988, Heavy Metal
+
+  1.   Rock the World 
+  2.   Power Metal 
+  3.   We'll Meet Again 
+  4.   Over and Outproud to Be Loud 
+  5.   Down Below 
+  6.   Death Trap 
+  7.   Hard Ride 
+  8.   Burnnn 
+  9.   P.S.T. "88" 
+
+### "Cowboys From Hell" 1990, Thrash
+
+ 1. Cowboys From Hell
+ 2. Primal Concrete Sledge
+ 3. Psycho Holiday
+ 4. Heresy
+ 5. Cemetery Gates
+ 6. Domination
+ 7. Shattered
+ 8. Clash With Reality
+ 9. Medicine Man
+10. Message In Blood
+11. The Sleep
+12. The Art Of Shredding
+
+ Philipp Anselmo - Vocals
+ Diamond Darrell - Guitars
+ Rex  - Bass
+ Vinnie Paul - Drums
+
+All Songs Written By PANTERA
+Produced & Engineered By Terry Date
+
+(p)&(c) 1990 ATLANTIC Records
+
+### "Vulgar Display Of Power" 1992, Metal
+
+1. Mouth For Way
+2. A New Level
+3. Walk
+4. Fucking Hostile
+5. This Love
+6. Rise
+7. No Good (Attack The Radical)
+8. Live In A Hole
+9. Regular People (Conceit)
+10.By Demons Be Driven
+11.Hollow
+
+ Philip Anselmo - Vocals
+ Diamond Darrel - Guitars
+ Rex - Bass
+ Vinnie Paul - Drums
+
+All Songs Written By PANTERA
+Produced By Terry Date & Vinnie Paul
+Co-Produced By PANTERA
+
+(p)&(c) 1992 ATLANTIC Records
+
+
+### "Far Beyond Driven" 1994, Metal
+
+ 1. Strength Beyond Strength
+ 2. Becoming
+ 3. 5 Minutes Alone
+ 4. I'm Broken
+ 5. Good Freinds And A Bottle Of Pills
+ 6. Hard Lines, Sunken Cheeks
+ 7. Slaughtered
+ 8. 25 Years
+ 9. Shedding Skin
+10. Use My Third Arm
+11. Throes Of Rejection
+12. Planet Caravan
+
+ Philip Anselmo - Vocals
+ Dimebag  Darel - Guitars
+ Vinnie Paul - Drums
+ Rex - Bass
+
+Produced, Engineered And Mixed By Terry Date & Vinnie Paul,
+Co-Produced By PANTERA.
+
+(P)&(C) 1994 ATLANTIC Recording  Corporation
+
+### "I'm Broken" 1994, Metal
+
+1. I'm Broken
+2. Slaughtered
+3. Cowboys From Hell *
+4. Psycho Holiday *
+
+* Recorded 28 September '91,
+Live At Moscow.
+Produced, Engineered And Mixed By 
+Terry Date & Vinnie Paul, Co-Produced By PANTERA..
+
+ Philip Anselmo - Vocals
+ Dimebag  Darel - Guitars
+ Vinnie Paul - Drums
+ Rex - Bass
+
+(P)&(C) 1994 ATLANTIC Recording  Corporation
+
+### "Cemetary Gates" 1995, Metal
+
+1. Cemetary Gates (Demon Knight Edit, Soundtrack)
+2. Policia (Track By SEPULTURA)
+3. Instant Larry
+4. Psycho Holiday (Live)
+
+Produced By Terry Date & PANTERA.
+
+(P)&(C) 1995 WARNER MUSIC
+
+### "The Great Southern Trendkill" 1996, Metal
+
+1.  The Great Southern Trendkill
+2.  War Nerve
+3.  Drag The Waters
+4.  10's
+5.  13 Steps To Nowhere
+6.  Suicide Note Part 1.
+7.  Suicide Note Part 2.
+8.  Living Through Me (Hell's Wrath)
+9.  Floods
+10.  The Underground In America
+11.  (Reprise) Sandblasted Skin
+
+Philip Anselmo - Vocals
+Dimebag  Darell - Guitars
+Vinnie Paul - Drums
+Rex - Bass
+
+Produced, Engineered And Mixed By Terry Date & Vinnie Paul,
+Co-Produced By PANTERA.
+
+(P)c 1996 ATLANTIC Recording Corp.
+
+### "Official Live: 101 Proof" 1997, Metal
+
+ 1. New Level  
+ 2. Walk  
+ 3. Becoming  
+ 4. 5 Minutes Alone  
+ 5. Sandblasted Skin 
+ 6. Suicide Note, Pt. 2 
+ 7. War Nerve 
+ 8. Strength Beyond Strength 
+ 9. Domination/Hollow
+10. This Love
+11. I'm Broken 
+12. Cowboys from Hell
+13. Cemetery Gates
+14. Hostile 
+15. Where You Come From 
+16. I Can't Hide
+ 
+ 
+ Philipp Anselmo - Vocals
+ "Dimebag" Darell - Guitars
+ Vinnie Paul - Drums
+ Rex - Bass
+
+
+### "Reinventing the Steel" 2000, Metal
+
+ 1. Hellbound 
+ 2. Goddamn Electric 
+ 3. Yesterday Don't Mean Shit
+ 4. You've Got to Belong to It
+ 5. Revolution Is My Name
+ 6. Death Rattle 
+ 7. We'll Grind That Axe for a Long Time 
+ 8. Up Lift
+ 9. It Makes Them Disappear 
+10. I'll Cast a Shadow  
+
+
+ Philipp Anselmo - Vocals
+ Dimebag Darell - Guitars
+ Vinnie Paul - Drums
+ Rex - Bass
+
 
 ## Отношения с другими группами
 

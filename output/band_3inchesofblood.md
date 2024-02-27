@@ -1,11 +1,50 @@
 # 3 Inches Of Blood
 
-Дискография
-"Battlecry Under A Wintersun" 2002, Heavy Metal
-"Advance And Vanguish" 2004, Heavy Metal
-"Fire Up The Blades" 2007, Heavy Metal
-"Here Waits Thy Doom" 2009, Heavy Metal
-"Long Live Heavy Metal" 2012, Heavy Metal
+
+
+## Дискография
+
+### "Battlecry Under A Wintersun" 2002, Heavy Metal
+
+
+
+### "Advance And Vanguish" 2004, Heavy Metal
+
+
+
+### "Fire Up The Blades" 2007, Heavy Metal
+
+
+
+### "Here Waits Thy Doom" 2009, Heavy Metal
+
+01. Battles and Brotherhood
+02. Rock In Hell
+03. Silent Killer
+04. Fierce Defender
+05. Preachers Daughter
+06. Call of the Hammer
+07. Snake Fighter
+08. At the Foot of the Great Glacier
+09. All of them Witches
+10. 12:34
+11. Execution Tank
+
+### "Long Live Heavy Metal" 2012, Heavy Metal
+
+Metal Woman
+My Sword Will Not Sleep
+Leather Lord
+Chief and the Blade
+Dark Messenger
+Look Out
+4000 Torches
+Leave It on the Ice
+Die for Gold (Upon the Boiling Sea IV)
+Storming Juno
+Men of Fortune
+One for the Ditch
+
 
 ## Отношения с другими группами
 

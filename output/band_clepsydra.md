@@ -1,12 +1,75 @@
 # Clepsydra
 
-Дискография
-"Pieces from the Hologram" 1991, Progressive
-"Hologram" 1991, Progressive
-"Fly Man" 1993, Progressive
-"More Grains of Sand" 1994, Progressive
-"Fears" 1997, Progressive
-"Alone" 2001, Progressive
+prog-power
+
+## Дискография
+
+### "Pieces from the Hologram" 1991, Progressive
+
+Fleeting Moments 
+Fading Clouds Of Time 
+New Day (Part One) 
+Steve And Jane
+
+### "Hologram" 1991, Progressive
+
+
+
+### "Fly Man" 1993, Progressive
+
+Fly Man 
+Moonshine On Heights 
+New Day (Part One) 
+Fly Man (instrumental) 
+
+### "More Grains of Sand" 1994, Progressive
+
+The First Grain (Setting The Hour Glass) (0:45)
+Moonshine On Heights (7:13) 
+Birthday Party (7:17)
+Eagles (5:55)
+Hold Me Tight (3:18)
+No Place For Flowers (8:04):-i)Darkness-ii)The Return Of The Light
+The Outermost Bounds (2:54)
+Fly Man (4:10)
+The River In Your Eyes (8:45)
+Grain Dance (2:05)
+The Prisoner's Victory (7:15)
+Vienna (4:40)
+The Last Grain (You Can Always Turn The Hour Glass Again) (1:21)
+
+### "Fears" 1997, Progressive
+
+1)  Soaked  9.02  
+2)  The Missing Spark  9.02  
+3)  Into My Cartoon  4.08  
+4)  The Age Of Glass  5.53  
+5)  Fearless  3.57  
+6)  Daisies In The Sunshine  2.31  
+7)  The Cloister  5.46  
+8)  The Nineteenth Hole  8.42  
+9)  Sweet Smelling Wood  2.46  
+10)  Fear  10.53 
+
+Aluisio Maggini - vocals
+Marco Cerulli - guitars and sax
+Philip Hubert - keyboards
+Andy Thommen - bass
+Pietro Duca - drums and percussions
+
+
+### "Alone" 2001, Progressive
+
+1/2/3/Tuesday Night
+4/5/6/Travel Of Dream
+7/The Return
+8/The Father
+9/10/Alone
+11/The Nest
+12/God or Beggar
+13/End Of Tuesday
+
+
 
 ## Отношения с другими группами
 

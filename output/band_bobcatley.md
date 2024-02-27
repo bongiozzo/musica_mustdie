@@ -1,13 +1,107 @@
 # Bob Catley
 
-Дискография
-"The Tower" 1998, Metal
-"Live At The Gods" 1998, Metal
-"Legends" 1999, Metal
-"Middle Earth" 2001, Metal
-"When Empires Burn" 2003, Metal
-"Spirit Of Man" 2006, Metal
-"Immortal" 2008, Hard Rock
+AOR
+
+## Дискография
+
+### "The Tower" 1998, Metal
+
+Dreams
+Scream
+Far Away
+Deep Winter
+Fire & Ice
+Madrigal
+Steel
+The Tower
+Fear Of The Dark
+Epilogue 
+
+### "Live At The Gods" 1998, Metal
+
+Dreams
+Scream
+Far Away
+Deep Winter
+Lonely Night
+Fire And Ice
+On A Storyteller's Night
+The Tower
+Fear Of The Dark
+Just Like An Arrow 
+
+Vinny Burns - Lead Guitar, Paul Hodson - Keyboards/BV's. Murray Daigle - BV's/Acoustic Guitar. Mike Dmitrovic - Rhythm Guitar. Sean Gregory - Bass Guitar. Kyle Lazenka - Drums
+
+### "Legends" 1999, Metal
+
+THE PAIN
+SHELTER FROM THE NIGHT
+CARPE DIEM
+TENDER IS THE NIGHT
+MEDUSA
+HYDRA
+BEAUTIFUL NIGHT FOR LOVE
+TOO LATE
+THE LIGHT 
+WHERE THE HEART IS 
+
+### "Middle Earth" 2001, Metal
+
+1. THE WRAITH OF THE RINGS
+2.(i) THE FIELDS THAT I RECALL
+(ii) EMISSARY
+(iii) THE FIELDS THAT I RECALL (REPRISE)
+3. CITY WALLS
+4. AGAINST THE WIND
+5. (i) WHERE YOU LEAD I`LL FOLLOW
+(ii) STORMCROW AND PILGRIM
+(iii) WHERE YOU LEAD I`LL FOLLOW (REPRISE)
+6. RETURN OF THE MOUNTAIN KING
+7. THE END OF SUMMER (GALADRIEL`S THEME)
+8. THIS GALLANT BAND OF MANIC STRANGERS
+9. THE FELLOWSHIP 
+
+### "When Empires Burn" 2003, Metal
+
+· The Torment
+· Children Of The Circle
+· Gonna Live Forever
+· The Prophecy
+· I'll Be Your Fool
+· Every Beat Of My Heart
+· When Empires Burn
+· Meaning Of Love
+· This Is The Day
+· Someday Utopia
+· My America
+· Heaven Can Wait*
+· When The Earth Lies Still (demo)*
+
+### "Spirit Of Man" 2006, Metal
+
+1. Heart Of Stone 
+2. Moment Of Truth 
+3. In The Name Of The Cause 
+4. Blinded By A Lie 
+5. Last Snows Of Winter 
+6. Spirit Of Man 
+7. The Fire Within Me 
+8. Judgement Day 
+9. Lost To The Night 
+10. Beautiful Mind 
+11. Walk On Water 
+12. End Of The Story 
+
+Bob Catley - vocals 
+Vince O'Regan - guitar 
+Irvin Parratt - keyboards 
+Al Barrow - bass 
+Jamie Little - drums
+
+### "Immortal" 2008, Hard Rock
+
+
+
 
 ## Отношения с другими группами
 

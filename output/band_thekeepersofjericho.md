@@ -1,8 +1,49 @@
 # The Keepers of Jericho
 
-Дискография
-"A Tribute To Helloween - Part I" 2000, Power Metal
-"A Tribute To Helloween - Part II" 2002, Power Metal
+
+
+## Дискография
+
+### "A Tribute To Helloween - Part I" 2000, Power Metal
+
+RHAPSODY - GUARDIANS 
+SONATA ARCTICA - I WANT OUT 
+HEAVENS GATE - A LITTLE TIME 
+METALIUM - RIDE THE SKY 
+LUCA TURILLI - IґM ALIVE 
+MORIFADE - JUDAS 
+VISION DIVINE - EAGLE FLY FREE 
+BRAINSTORM - SAVAGE 
+LABYRINTH - FUTURE WORLD 
+CYDONIA - SAVE US 
+SQUEALER - VICTIM OF FATE 
+DARK MOOR - HALLOWEEN 
+SECRET SPHERE - HOW MANY TEARS 
+
+
+
+### "A Tribute To Helloween - Part II" 2002, Power Metal
+
+IRON SAVIOR - PHANTOMS OF DEATH
+STEEL ATTACK - DR. STEIN
+POWERGOD - STARLIGHT
+CELESTY - THE CHANCE
+BETO VAZQUEZ - A TALE THAT WASN'T RIGHT (Featuring Elisa - DARK MOOR - on Lead vocals)
+PARAGON - METAL INVADERS
+ARWEN - MARCH OF TIME
+FRETERNIA - MURDERER
+VHALDEMAR - GORGAR
+DRAGONLAND - SOUL SURVIVOR
+AXENSTAR - TWILIGHT OF THE GODS
+HIGHLORD - POWER
+RED WINE - RISE & FALL
+
+
+All tracks have been recorded exclusively for this album
+The cover artwork has been painted by Travis Smith
+
+
+
 
 ## Отношения с другими группами
 

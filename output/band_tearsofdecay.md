@@ -1,7 +1,13 @@
 # Tears of Decay
 
-Дискография
-"Saprophyt" 2002, Death Metal
+Brutal death/grind
+
+## Дискография
+
+### "Saprophyt" 2002, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,9 +1,49 @@
 # Unexpect
 
-Дискография
-"Utopia" 1999, Alternative
-"In a Flesh Aquarium" 2006, Alternative
-"Fables of the Sleepless Empire" 2011, Alternative
+
+
+## Дискография
+
+### "Utopia" 1999, Alternative
+
+1. Vespers Gold  07:32   
+2. Constellation And Mysticism  05:38  
+3. Metamorphosis  02:45 
+4. Shades Of A Forbidden Passion  06:46   
+5. Palace Of Dancing Souls  02:55 
+6. The Fall Of Arthrone  07:29  
+7. Ethereal Dimensions  07:47  
+8. The Flames Of Knowledge Forever Lost  07:16
+9. In Velvet Coffins We Sleep  08:55  
+10. The Revival  08:31 
+
+### "In a Flesh Aquarium" 2006, Alternative
+
+1. Chromatic Chimera  05:52
+2. Feasting Fools  06:17   
+3. Desert Urbania  07:29   
+4. Summoning Scenes  07:46   
+5. Silence_011010701  05:13  
+6. Megalomaniac Trees  05:57   
+7. The Shiver - Another Dissonant Chord  03:00  
+8. The Shiver - Meet Me at the Carrousel  04:07  
+9. The Shiver - A Clown's Mindtrap  03:41 
+10. Psychic Jugglers  11:10 
+
+### "Fables of the Sleepless Empire" 2011, Alternative
+
+1. Unsolved Ideas of a Distorted Guest  06:54 
+2. Words 05:57
+3. Orange Vigilantes  04:55   
+4. Mechanical Phoenix  06:55   
+5. The Quantum Symphony  06:04 
+6. Unfed Pendulum  07:55  
+7. In the Mind of the Last Whale  02:58   
+8. Silence this Parasite  05:19   
+9. A Fading Stance  02:06   
+10. When the Joyful Dead are Dancing  04:38   
+11. Until yet a few more Deaths do us Part  02:05 
+
 
 ## Отношения с другими группами
 

@@ -1,9 +1,53 @@
 # Illness
 
-Дискография
-"Black Schizophrenic Metal" 2007, Black Metal
-"Necroterror" 2009, Black Metal
-"Planet Paranoia" 2010, Black Metal
+
+
+## Дискография
+
+### "Black Schizophrenic Metal" 2007, Black Metal
+
+1. Paranoicall	 
+2. Hail Your Murderer	 
+3. Antihuman Antilife Antichrist	 
+4. Necrosadistic Christianwhore Whiping	 
+5. Black Schizophrenic Metal
+6. Intro	 
+7. Kingdom of Rats	 
+8. N.S.T.M
+9. Trapped Scared and soon to be Dead
+10. Last Cut (outro)
+
+### "Necroterror" 2009, Black Metal
+
+1. Intro	 
+2. Necroterror
+3. Dope and Die !!!
+4. Arsonist	 
+5. Devilish Stigmata	 
+6. Destroy Humanity	 
+7. Gatewey to Madness	 
+8. No More Dreams	 
+9. Sentenced to Death
+10. I Walk Alone
+11. Suicide	 
+12. Оverdose	 
+13. Outro
+
+### "Planet Paranoia" 2010, Black Metal
+
+01. Intro
+02. Total Paranoia
+03. Deadlights
+04. Into The Paranoic Abyss
+05. Selftorture
+06. Death And War
+07. Higher Level Of Inhumanity
+08. Visions
+09. Cmentarz
+10. I’m The One
+11. Terrified
+12. Outro
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,13 @@
 # Infinited Hate
 
-Дискография
-"Revel In Bloodshed" 2004, Death Metal
+members of Sinister
+
+## Дискография
+
+### "Revel In Bloodshed" 2004, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

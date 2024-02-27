@@ -1,8 +1,17 @@
 # Iwrestledabearonce
 
-Дискография
-"Iwrestledabearonce (EP)" 2007, Alternative
-"It's All Happening" 2009, Alternative
+
+
+## Дискография
+
+### "Iwrestledabearonce (EP)" 2007, Alternative
+
+
+
+### "It's All Happening" 2009, Alternative
+
+
+
 
 ## Отношения с другими группами
 

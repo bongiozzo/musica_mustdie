@@ -1,13 +1,64 @@
 # Omen
 
-Дискография
-"Battle Cry" 1984, Heavy Metal
-"Nightmares (EP)" 1985, Heavy Metal
-"Warning Of Danger" 1985, Heavy Metal
-"The Curse" 1986, Heavy Metal
-"Escape To Nowhere" 1988, Heavy Metal
-"Reopening The Gates" 1997, Heavy Metal
-"Eternal Black Dawn" 2003, Heavy Metal
+
+
+## Дискография
+
+### "Battle Cry" 1984, Heavy Metal
+
+1. Death Rider
+2. The Axeman
+3. Last Rites
+4. Dragon's Breath
+5. Be My Wench
+6. Battle Cry
+7. Die By The Blade
+8. Prince Of Darkness
+9. Bring Out The Beast
+10. In The Arena
+
+### "Nightmares (EP)" 1985, Heavy Metal
+
+
+
+### "Warning Of Danger" 1985, Heavy Metal
+
+1.   Warning of Danger - 4:25
+2.   March On - 4:03
+3.   Ruby Eyes (Of the Serpent) - 3:51
+4.   Don't Fear the Night - 5:04
+5.   V.B.P. - 5:01
+6.   Premonition - 1:52
+7.   Termination - 3:34
+8.   Make Me Your King - 3:49
+9.   Red Horizon - 3:38
+10.   Hell's Gate - 5:38
+ 
+Omen  -  Producer 
+Bill Metoyer  -  Engineer 
+Eddy Schreyer  -  Mastering 
+Brian Slagel  -  Producer 
+Jody Henry  -  Bass, Vocals (bckgr) 
+Kenny Powell  -  Guitar, Vocals (bckgr) 
+Steve Wittig  -  Drums 
+J.D. Kimball  -  Vocals
+
+### "The Curse" 1986, Heavy Metal
+
+
+
+### "Escape To Nowhere" 1988, Heavy Metal
+
+
+
+### "Reopening The Gates" 1997, Heavy Metal
+
+
+
+### "Eternal Black Dawn" 2003, Heavy Metal
+
+
+
 
 ## Отношения с другими группами
 

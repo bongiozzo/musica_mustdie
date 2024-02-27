@@ -1,7 +1,21 @@
 # Gorbalrog
 
-Дискография
-"Untergang" 1999, Black Metal
+
+
+## Дискография
+
+### "Untergang" 1999, Black Metal
+
+1. Intro	 
+2. Blutige Schwingen	 
+3. Widergeist	 
+4. Stille	 
+5. Ars Mortis		 
+6. Sternengriff	 
+7. Untergang	 
+8. ...und es beginnt	 
+9. Aeonen verwesender Anmut
+
 
 ## Отношения с другими группами
 

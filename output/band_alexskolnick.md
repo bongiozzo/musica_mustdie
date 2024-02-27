@@ -1,6 +1,9 @@
 # Alex Skolnick
 
-Дискография
+(guitar player ex-Testament and Savatage)
+
+## Дискография
+
 
 ## Отношения с другими группами
 

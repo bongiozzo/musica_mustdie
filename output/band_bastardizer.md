@@ -1,7 +1,21 @@
 # Bastardizer
 
-Дискография
-"Enforcers Of Evil" 2014, Metal
+
+
+## Дискография
+
+### "Enforcers Of Evil" 2014, Metal
+
+1. Bastards, Bullets, Bitches & Beer
+2. Enforcers Of Evil
+3. Bathory & Lust
+4. Eureka
+5. WWIII
+6. Pentagram Of Pleasure
+7. Bareback In Brazil / Baphomet's Bukkake
+8. The Belanglo Bastard
+9. The Black Scourge Of Death
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,22 @@
 # Octavia Sperati
 
-Дискография
-"Grace Submerged" 2007, Gothic
+
+
+## Дискография
+
+### "Grace Submerged" 2007, Gothic
+
+01. Guilty I Am
+02. Moonlit
+03. Going North
+04. Don't Believe A Word
+05....And Then The World Froze
+06. The Final Rest
+07. Deprivation
+08. Provenance Of Hate
+09. Dead End Poem
+10. Submerged
+
 
 ## Отношения с другими группами
 

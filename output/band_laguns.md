@@ -1,41 +1,834 @@
 # L.A. Guns
 
-Дискография
-"Collector's Edition No. 1 [EP]" 1985, Hard Rock
-"L.A. Guns" 1988, Glam
-"Sex Action (single)" 1988, Glam
-"Cocked & Loaded" 1989, Glam
-"Rip and Tear (single)" 1989, Glam
-"Malaria (single)" 1989, Glam
-"Never Enough (single)" 1989, Glam
-"I Wanna Be Your Man (single)" 1989, Glam
-"I Wanna Be Your Man [EP]" 1990, Glam
-"The Ballad of Jayne (single)" 1990, Glam
-"Hollywood Vampires" 1991, Glam
-"Holiday Foreplay (promo only) [EP]" 1991, Glam
-"Kiss My Love Goodbye (single)" 1991, Glam
-"Some Lie 4 Love (single)" 1991, Glam
-"It's Over Now (single)" 1991, Glam
-"Cuts [EP]" 1992, Glam
-"Live! Vampires (Japan only) [EP]" 1992, Glam
-"Over the Edge (single)" 1992, Glam
-"Vicious Circle" 1994, Hard Rock
-"Face Down (single)" 1994, Hard Rock
-"Killing Machine (single)" 1994, Hard Rock
-"Long Time Dead (single)" 1994, Hard Rock
-"American Hardcore" 1996, Punk
-"Wasted [EP]" 1998, Glam
-"Greatest Hits & Black Beauties" 1999, Glam
-"Shrinking Violet" 1999, Glam
-"Live! A Nite on the Strip" 2000, Glam
-"Cocked & Re-Loaded" 2000, Glam
-"Man in the Moon" 2001, Glam
-"Waking the Dead" 2002, Glam
-"Ultimate L.A. Guns" 2002, Glam
-"Golden Bullets" 2003, Glam
-"Rips The Covers Off" 2004, Glam
-"Tales From The Strip" 2005, Glam
-"Hollywood Forever" 2012, Glam
+Glam
+
+## Дискография
+
+### "Collector's Edition No. 1 [EP]" 1985, Hard Rock
+
+1. Don't Love Me
+2. When Dreams Don't Follow Through
+3. It's Not True
+4. Something Heavy
+
+
+Ole Beich - Bass
+Rob Gardner - Drums
+Tracii Guns - Guitars
+Michael Jagosz - Vocals
+
+### "L.A. Guns" 1988, Glam
+
+1.   No Mercy - 2:46
+ 2.   Sex Action - 3:41
+ 3.   One More Reason - 3:07
+ 4.   Electric Gypsy - 3:25
+ 5.   Nothing to Lose - 4:14
+ 6.   Bitch Is Back - 2:52
+ 7.   Cry No More - 1:18
+ 8.   One Way Ticket - 4:20
+ 9.   Hollywood Tease - 2:52
+ 10.   Shoot for Thrills - 4:29
+ 11.   Down in the City - 3:55
+
+Japanese bonus track:
+12. Winter's Fool
+
+
+Nickey Alexander - Drums
+Mick Cripps - Guitars
+Tracii Guns - Guitars
+Phil Lewis - Vocals
+Kelly Nickels - Bass
+
+Produced by Jim (H. M.) Faraci
+Engineered by Charlie Brocco & Jim (H. M.) Faraci
+String Arrangements by Howard Benson
+Baritone & Tenor Sax by Alan Jones
+Art Direction by Michael Bays
+Designed by Mitchell Kanner
+Photography by John Scarpati
+
+&copy; 1988 PolyGram Records, Inc.
+
+### "Sex Action (single)" 1988, Glam
+
+Japanese vinyl tracklisting:
+
+A. Sex Action
+B. Hollywood Tease
+
+
+Nickey Alexander - Drums
+Mick Cripps - Guitars
+Tracii Guns - Guitars
+Phil Lewis - Vocals
+Kelly Nickels - Bass
+
+### "Cocked & Loaded" 1989, Glam
+
+1.  Letting Go - 1:22
+2.  Slap in the Face - 3:54
+3.  Rip and Tear - 4:11
+4.  Sleazy Come Easy Go - 4:01
+5.  Never Enough - 4:10
+6.  Malaria - 5:22
+7.  The Ballad of Jayne - 4:30
+8.  Magdalaine - 6:05
+9.  Give a Little - 3:29
+10.  I'm Addicted [Guitar Solo] - 1:51
+11.  17 Crash - 3:39
+12.  Showdown (Riot on Sunset) - 3:18
+13.  Wheels of Fire - 4:56
+14.  I Wanna Be Your Man - 3:36
+
+Japanese bonus tracks:
+15.  Rock Candy (live)
+16.  No Mercy (live)
+
+Track 14 does not appear on the vinyl version of this record. It was a bonus
+track on the CD version to promote the CD medium.
+
+
+Mick Cripps - Guitars, Piano
+Tracii Guns - Guitars
+Phil Lewis - Vocals
+Kelly Nickels - Bass
+Steve Riley - Drums
+
+Produced by Tom Werman, Duane Baron & John Purdell
+Engineered by Duane Baron & John Purdell
+Assistant Engineers: Robert Hart, Laurence Ethan, Mike Tacci, Gary Wagner,
+Marnie Riley
+Mastered by Howie Weinberg
+Photography by Jeff Katz
+Artwork by Maxine Miller
+Art Direction by Michael Bays
+Designed by Nausica Loukakos & Michael Klotz
+
+&copy; 1989 PolyGram Records, Inc.
+
+### "Rip and Tear (single)" 1989, Glam
+
+Promo CD tracklisting:
+1. Rip and Tear
+
+Promo 12" tracklisting:
+1. Rip and Tear
+2. No Mercy (live)
+3. Rock Candy (live)
+
+Japanese mini CD tracklisting:
+1. Rip and Tear
+2. Rock Candy (live)
+
+
+Mick Cripps - Guitars
+Tracii Guns - Guitars
+Phil Lewis - Vocals
+Kelly Nickels - Bass
+Steve Riley - Drums
+
+### "Malaria (single)" 1989, Glam
+
+Vinyl promo tracklisting:
+
+A. Malaria
+B. Malaria
+
+
+Mick Cripps - Guitars
+Tracii Guns - Guitars
+Phil Lewis - Vocals
+Kelly Nickels - Bass
+Steve Riley - Drums
+
+### "Never Enough (single)" 1989, Glam
+
+1. Never Enough (edit)
+2. Never Enough (LP version)
+
+
+Mick Cripps - Guitars
+Tracii Guns - Guitars
+Phil Lewis - Vocals
+Kelly Nickels - Bass
+Steve Riley - Drums
+
+### "I Wanna Be Your Man (single)" 1989, Glam
+
+1. I Wanna Be Your Man (remix 1)
+2. I Wanna Be Your Man (remix 2)
+3. I Wanna Be Your Man (LP version)
+
+
+Mick Cripps - Guitars
+Tracii Guns - Guitars
+Phil Lewis - Vocals
+Kelly Nickels - Bass
+
+### "I Wanna Be Your Man [EP]" 1990, Glam
+
+1. I Wanna Be Your Man (remix 1)
+2. I Wanna Be Your Man (remix 2)
+3. Never Enough (remix)
+4. Rip and Tear (live)
+5. Malaria (live)
+
+
+Mick Cripps - Guitars
+Tracii Guns - Guitars
+Kelly Nickels - Bass
+Phil Lewis - Vocals
+Steve Riley - Drums
+
+### "The Ballad of Jayne (single)" 1990, Glam
+
+U.S.A. tracklisting:
+1. The Ballad of Jayne (edit)
+2. The Ballad of Jayne (LP version)
+
+German tracklisting:
+1. The Ballad of Jayne (edit)
+2. Some Lie 4 Love (live)
+3. Electric Gypsy (live)
+
+U.K. #1 tracklisting:
+1. The Ballad of Jayne (edit)
+2. Dirty Luv (live)
+3. My Koo Ka Choo (live)
+4. Over the Edge (live)
+
+U.K. #2 tracklisting:
+1. The Ballad of Jayne (edit)
+2. Some Lie 4 Love (live)
+3. Kiss My Love Goodbye (live)
+4. Over the Edge (live)
+
+Picture disc tracklisting:
+1. The Ballad of Jayne (edit)
+2. The Ballad of Jayne (live)
+
+CDs released from 1990 to 1991
+
+
+Mick Cripps - Guitars
+Tracii Guns - Guitars
+Kelly Nickels - Bass
+Phil Lewis - Vocals
+Steve Riley - Drums
+
+### "Hollywood Vampires" 1991, Glam
+
+1.  Over the Edge - 5:41
+2.  Some Lie 4 Love - 3:34
+3.  Kiss My Love Goodbye - 4:42
+4.  Here It Comes - 4:37
+5.  Crystal Eyes - 5:54
+6.  Wild Obsession - 4:14
+7.  Dirty Luv - 4:29
+8.  My Koo Ka Choo - 4:06
+9.  It's Over Now - 4:10
+10.  Snake Eyes Boogie - 2:56
+11.  I Found You - 3:43
+12.  Big House - 4:12
+
+Japanese bonus track:
+13. Ain't the Same
+
+Alternate track on German version:
+13. The Ballad of Jayne
+
+
+Mick Cripps - Guitars
+Tracii Guns - Guitars
+Phil Lewis - Vocals
+Kelly Nickels - Bass
+Steve Riley - Drums
+
+Produced by Michael James Jackson
+Engineered by Will Rogers, Michael James Jackson,
+Chris Minto, Pat Regan, Micajah Ryan & David Thoener
+Assistant Engineer - Jim Wirt
+Mixed by Mick Guzauski, Micajah Ryan & David Thoener
+Mixing Assistants - Kevin Becka, Ed Korengo, Gil Marales
+Mastered by Stephen Marcussen
+Drum Technician - Ron Grinel
+Arranged by Kevin Savigar, Mick Cripps
+Back Vocals by John Townsend
+Photography by Dennis Keeley
+Illustrations by Maxine Miller
+
+&copy; 1991 PolyGram Records, Inc.
+
+### "Holiday Foreplay (promo only) [EP]" 1991, Glam
+
+1. Dirty Luv
+2. Some Lie 4 Love (live)
+3. Rip And Tear (live)
+4. Sex Action (live)
+5. Holiday Greetings
+
+
+Mick Cripps - Guitars
+Tracii Guns - Guitars
+Kelly Nickels - Bass
+Phil Lewis - Vocals
+Steve Riley - Drums
+
+### "Kiss My Love Goodbye (single)" 1991, Glam
+
+1. Kiss My Love Goodbye (edit)
+
+Japanese mini CD tracklisting:
+1. Kiss My Love Goodbye (edit)
+2. Malaria (live)
+
+
+Mick Cripps - Guitars
+Tracii Guns - Guitars
+Phil Lewis - Vocals
+Kelly Nickels - Bass
+Steve Riley - Drums
+
+### "Some Lie 4 Love (single)" 1991, Glam
+
+1. Some Lie 4 Love
+2. Malaria (live)
+3. Slap in the Face (live)
+4. Bitch Is Back (live)
+
+Tracklisting 7" vinyl:
+1. Some Lie 4 Love
+2. Rip and Tear (live)
+3. Sex Action (live)
+4. Bitch Is Back (live)
+
+Tracklisting 12" picture disc:
+1. Some Lie 4 Love
+2. Slap in the Face (live)
+3. Electric Gypsy (live)
+
+
+Mick Cripps - Guitars
+Tracii Guns - Guitars
+Phil Lewis - Vocals
+Kelly Nickels - Bass
+Steve Riley - Drums
+
+### "It's Over Now (single)" 1991, Glam
+
+1. It's Over Now (remix)
+2. It's Over Now (album version)
+
+
+Mick Cripps - Guitars
+Tracii Guns - Guitars
+Phil Lewis - Vocals
+Kelly Nickels - Bass
+Steve Riley - Drums
+
+### "Cuts [EP]" 1992, Glam
+
+1. Night of the Cadillacs
+2. Suffragette City
+3. Ain't the Same '92
+4. Papa's Got a Brand New Bag
+5. Killer Mahari
+
+Japanese tracklisting:
+1. Love Song
+2. Rock 'n' Roll Highschool
+3. Night of the Cadillacs
+4. Suffragette City
+5. Ain't the Same '92
+6. Papa's Got a Brand New Bag
+7. Killer Mahari
+
+
+Mick Cripps - Guitars
+Michael 'Bones' Gershima - Drums
+Tracii Guns - Guitars
+Kelly Nickels - Bass
+Phil Lewis - Vocals
+
+### "Live! Vampires (Japan only) [EP]" 1992, Glam
+
+1. Kiss My Love Goodbye (live)
+2. Wild Obsession (live)
+3. Dirty Luv (live)
+4. Rip and Tear (live)
+5. One More Reason (live)
+6. Some Lie 4 Love (live)
+7. It's Over Now
+8. Crystal Eyes / hidden track
+
+
+Mick Cripps - Guitars
+Tracii Guns - Guitars
+Kelly Nickels - Bass
+Phil Lewis - Vocals
+Steve Riley - Drums
+
+### "Over the Edge (single)" 1992, Glam
+
+1. Over the Edge (edit)
+2. Over the Edge
+
+
+Mick Cripps - Guitars
+Tracii Guns - Guitars
+Phil Lewis - Vocals
+Kelly Nickels - Bass
+Steve Riley - Drums
+
+### "Vicious Circle" 1994, Hard Rock
+
+1. Face Down
+2. No Crime
+3. Long Time Dead
+4. Killing Machine
+5. Fade Away
+6. Tarantula
+7. Crystal Eyes
+8. Nothing Better to Do
+9. Chasing the Dragon
+10. Kill That Girl
+11. I'd Love to Change the World
+12. Who's in Control (Let 'Em Roll)
+13. I'm the One
+14. Why Ain't I Bleeding
+15. Kiss of Death
+
+
+Japanese tracklisting:
+
+1. Face Down
+2. No Crime
+3. Long Time Dead
+4. Kill That Girl
+5. Fade Away
+6. Tarantula
+7. Nothing Better to Do
+8. Chasing the Dragon
+9. Killing Machine
+10. I'd Love to Change the World
+11. Who's in Control (Let 'Em Roll)
+12. I'm the One
+13. Why Ain't I Bleeding
+14. Kiss of Death
+15. Death in America
+16. Empire Down
+
+
+Mick Cripps - Guitars
+Tracii Guns - Guitars
+Phil Lewis - Vocals
+Kelly Nickels - Bass, Vocals
+
+
+
+
+### "Face Down (single)" 1994, Hard Rock
+
+1. Face Down (radio version)
+2. Face Down (LP version)
+3. Death in America
+4. Empire Down
+
+
+Mick Cripps - Guitars
+Michael 'Bones' Gershima - Drums
+Tracii Guns - Guitars
+Phil Lewis - Vocals
+Kelly Nickels - Bass
+
+### "Killing Machine (single)" 1994, Hard Rock
+
+1. Over the Edge (edit)
+2. Over the Edge
+
+
+Mick Cripps - Guitars
+Tracii Guns - Guitars
+Phil Lewis - Vocals
+Kelly Nickels - Bass
+Steve Riley - Drums
+
+### "Long Time Dead (single)" 1994, Hard Rock
+
+1. Long Time Dead (LP version)
+
+
+Mick Cripps - Drum Programming, Keyboards
+Tracii Guns - Guitars
+Kelly Nickels - Bass
+Phil Lewis - Vocals, Guitar
+
+### "American Hardcore" 1996, Punk
+
+1. F.N.A. - 0:21
+2. What I've Become - 3:37
+3. Unnatural Act - 4:09
+4. Give - 3:16
+5. Don't Pray - 4:06
+6. Pissed - 4:01
+7. Mine - 3:35
+8. Kevorkian - 4:45
+9. Hey World - 5:01
+10. Next Generation - 2:32
+11. Hugs and Needles - 3:08
+12. I am Alive - 6:59
+
+Japanese bonus track:
+13. Black Sabbath
+
+
+Johnny Crypt - Bass
+Tracii Guns - Guitars
+Steve Riley - Drums
+Chris Van Dahl - Vocals
+
+Produced by L.A. Guns & Denis Degher
+Mixed by Denis Degher
+Mastered by Alan Yoshida
+Engineered by Brent Reilly & Denis Degher
+Strings by Scarlett Rivera
+Artwork by Johnny Crypt
+Photography by Karen Murphy & Jeffrey Fiterman
+Mandolin & Harmony Vocals by Scott King
+
+Release Date: Oct 29, 1996
+
+&copy; 1996 CMC International
+
+### "Wasted [EP]" 1998, Glam
+
+1. Wasted
+2. Well Spent
+3. Heavy Head
+4. Forgiving Eyes
+5. The Ballad of Jayne '98
+6. Cold Gin
+
+
+Johnny Crypt - Bass, Vocals
+Tracii Guns - Guitars, Vocals
+Ralph Saenz - Vocals
+Steve Riley - Drums, Vocals
+
+### "Greatest Hits & Black Beauties" 1999, Glam
+
+1. Bricks
+2. One More Reason '99
+3. Ritual
+4. Electric Gypsy '99
+5. No Mercy '99
+6. Sex Action '99
+7. Rip and Tear '99
+8. Disbelief
+9. The Ballad of Jayne '99
+10. Time
+11. Heart Full of Soul
+12. 3 Minute Atomic Egg
+13. One More Reason (Julian Beeston remix)
+14. Sex Action (Intra-Venus remix)
+
+Japanese bonustracks:
+15. Do You Love Me
+16. 3 Minute Atomic Egg (alt. take)
+17. I am the Walrus (Electraform remix by Mick Cripps)
+
+Note: The European version of Black Beauties is called ... The Very Best Of.
+This album was released in April 2000.
+
+
+Mick Cripps - Guitars
+Tracii Guns - Guitars
+Phil Lewis - Vocals
+Kelly Nickels - Bass
+Steve Riley - Drums
+
+### "Shrinking Violet" 1999, Glam
+
+1. Girl You Turn Me On 
+2. Shrinking Violet 
+3. Dreamtime 
+4. Barbed Wire 
+5. I'll Be There 
+6. California 
+7. Cherries 
+8. Decide 
+9. Big Little Thing 
+10. It's Hard 
+11. Bad Whiskey 
+12. How Many More Times 
+
+
+French Tracklisting:
+
+1. I'll Be There 
+2. Girl You Turn Me On 
+3. Cherries 
+4. Decide 
+5. It's Hard 
+6. California 
+7. Dreamtime 
+8. Bad Whiskey 
+9. Barbed Wire 
+10. Big Little Thing 
+11. Shrinking Violet 
+12. How Many More Times 
+
+
+Johnny Crypt - Bass 
+Tracii Guns - Guitars 
+Jizzy Pearl - Vocals 
+Steve Riley - Drums
+
+### "Live! A Nite on the Strip" 2000, Glam
+
+1. Face Down
+2. Sex Action
+3. One More Reason
+4. Kiss My Love Goodbye
+5. Bitch Is Back
+6. Time
+7. Long Time Dead
+8. Over the Edge
+9. Never Enough
+10. Nothing Better to Do
+11. Guitar Solo
+12. Electric Gypsy
+13. The Ballad of Jayne
+14. Rip and Tear
+
+
+French tracklisting:
+
+1. Face Down
+2. Sex Action
+3. One More Reason
+4. Kiss My Love Goodbye
+5. Bitch Is Back
+6. Time
+7. Long Time Dead
+8. Over the Edge
+9. Never Enough
+10. Nothing Better to Do
+11. Guitar Solo / Electric Gypsy
+12. The Ballad of Jayne
+13. Rip and Tear
+
+
+Mick Cripps - Guitars, Keyboard
+Tracii Guns - Guitars, Vocals
+Phil Lewis - Vocals
+Kelly Nickels - Bass, Vocals
+Steve Riley - Drums
+
+### "Cocked & Re-Loaded" 2000, Glam
+
+U.S.A. tracklisting:
+
+1. Letting Go '00
+2. Slap in the Face '00
+3. Rip and Tear '00
+4. Sleazy Come Easy Go '00
+5. Never Enough '00
+6. Malaria '00
+7. The Ballad of Jayne '00
+8. Magdalaine '00
+9. Give a Little '00
+10. I'm Addicted '00
+11. 17 Crash '00
+12. Showdown (Riot on the Sunset) '00
+13. Wheels of Fire '00
+14. I Wanna Be Your Man '00
+15. Rip and Tear (Spahn Ranch remix)
+
+
+German tracklisting:
+
+1. Letting Go / Slap in the Face '00
+2. Rip and Tear '00
+3. Sleazy Come Easy Go '00
+4. Never Enough '00
+5. Malaria '00
+6. The Ballad of Jayne '00
+7. Magdalaine '00
+8. Give a Little '00
+9. I'm Addicted '00
+10. 17 Crash '00
+11. Showdown (Riot on the Sunset) '00
+12. Wheels of Fire '00
+13. I Wanna Be Your Man '00
+14. Rip and Tear (Spahn Ranch remix)
+
+
+Mick Cripps - Guitars, Keyboards
+Tracii Guns - Guitars
+Phil Lewis - Vocals
+Kelly Nickels - Bass
+Steve Riley - Drums
+
+### "Man in the Moon" 2001, Glam
+
+1. Girl You Turn Me On - 4:46
+2. Shrinking Violet - 3:13
+3. Dreamtime - 4:49
+4. Barbed Wire - 5:48
+5. I'll Be There - 3:59
+6. California - 3:29
+7. Cherries - 3:52
+8. Decide - 5:42
+9. Big Lil' Thing - 3:02
+10. It's Hard - 4:47
+11. Bad Whiskey - 5:02
+12. How Many More Times - 8:51
+
+Johnny - Crypt Bass
+Tracii Guns - Guitars
+Jizzy Pearl - Vocals
+Steve Riley - Drums
+
+### "Waking the Dead" 2002, Glam
+
+1. Don't Look at Me That Way - 4:00
+2. OK, Let's Roll - 3:54
+3. Waking the Dead - 3:23
+4. Revolution - 3:26
+5. The Ballad - 5:21
+6. Frequency - 4:38
+7. Psycopathic Eyes - 3:04
+8. Hellraisers Ball - 3:23
+9. City of Angels - 3:39
+10. Don't You Cry - 4:22
+
+Japanese bonus track:
+11. Call of the Wild
+
+Tracii Guns - Guitars
+Adam Hamilton - Bass
+Phil Lewis - Vocals
+Steve Riley - Drums
+
+Produced by Andy Johns
+Mastering by Dave Schultz
+Engineered by Bruce Witkin
+Crew by Brad Nelson
+Cover Art by Maxine Miller
+Design & Layout Design by Vinny Cimino
+Photography by Glen LaFerman
+
+### "Ultimate L.A. Guns" 2002, Glam
+
+1. Slap in the Face '00
+2. Sex Action '00
+3. Ritual
+4. Electric Gypsy '99
+5. The Ballad of Jayne '00
+6. Nothing Better to Do (live)
+7. Over the Edge (live)
+8. One More Reason (live)
+9. Time
+10. Long Time Dead (live)
+11. Never Enough '00
+12. Face Down (live)
+13. Bitch Is Back (live)
+14. My Michelle (Guns N' Roses tribute)
+15. Kiss My Love Goodbye (live)
+16. Letting Go '00
+17. Disbelief
+18. Wheels of Fire '00
+19. Give a Little '00
+20. Rip and Tear
+
+
+Mick Cripps - Guitars, Keyboards
+Tracii Guns - Guitars
+Phil Lewis - Vocals
+Kelly Nickels - Bass, Vocals
+Steve Riley - Drums
+
+### "Golden Bullets" 2003, Glam
+
+SLAP IN THE FACE 
+SEX ACTION 
+RITUAL 
+ELECTRIC GYPSY '99 
+THE BALLAD OF JAYNE 
+NOTHING BETTER TO DO 
+OVER THE EDGE 
+ONE MORE REASON 
+TIME 
+LONG TIME DEAD 
+NEVER ENOUGH 
+FACE DOWN 
+BITCH IS BACK 
+MY MICHELLE 
+KISS MY LOVE GOODBYE 
+LETTING GO 
+DISBELIEF 
+WHEELS OF FIRE 
+GIVE A LITTLE 
+RIP AND TEAR
+
+### "Rips The Covers Off" 2004, Glam
+
+01. Rock And Roll Outlaw
+02. I Just Want To Make Love
+03. Tie Your Mother Down
+04. Until I Get You
+05. Wheels Of Steel
+06. Nobody's Fault
+07. Custard Pie
+08. Moonage Daydream
+09. Marseilles
+10. Hurdy Gurdy Man
+11. Search And Destroy
+12. Revolution (live)
+13. Don't Look At Me That Way (live)
+
+Phil Lewis - vocals, guitar and harmonica
+Stacey Blades - guitar and vocals
+Adam Hamilton - bass and vocals
+Steve Riley - drums, percussion and vocals
+
+### "Tales From The Strip" 2005, Glam
+
+01. It Don`t Mean Nothing
+02. Electric Neon Sunset
+03. Sypsy Soul
+04. Original Sin
+05. Vampire
+06. Hollywood`s Burning
+07. 6.9 Earthshaker
+08. Rox Baby Girl
+09. Crazy Motorcycle
+10. Skin
+11. Shame
+12. Resurrection
+13. Amanecer
+14. (Can`t Give You) Anything Better Than Love
+
+### "Hollywood Forever" 2012, Glam
+
+01. Hollywood Forever (4:42)
+02. You Better Not Love Me (4:17)
+03. Eel Pie (2:40)
+04. Sweet Mystery (4:01)
+05. Burn (4:01)
+06. Vine St. Shimmy (2:48)
+07. Dirty Black Night (4:50)
+08. Underneath The Sun (4:40)
+09. Queenie (3:43)
+10. Crazy Tango (4:40)
+11. Venus Bomb (2:36)
+12. I Won’t Play (3:09)
+13. Requiem (Hollywood Forever) (4:04)
+14. Arana Negra (Black Spider) (4:59)
+
 
 ## Отношения с другими группами
 

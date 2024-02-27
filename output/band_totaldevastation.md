@@ -1,8 +1,40 @@
 # Total Devastation
 
-Дискография
-"Roadmap of Pain" 2003, Death Metal
-"Reclusion" 2005, Death Metal
+Modern Death metal from Finland
+
+## Дискография
+
+### "Roadmap of Pain" 2003, Death Metal
+
+1. I Am God
+2. Struggling From Chokehold
+3. Disguise
+4. Fragments
+5. Production Peak
+6. Left Hand of The Devil
+7. Fleshing
+8. Let it Bleed
+9. Prepare to Die
+10. Ignoring Pain
+
+### "Reclusion" 2005, Death Metal
+
+1. Murderous 
+2. Divine
+3. They Stand On 3 
+4. Reclusion
+5. Full Circle 
+6. Converted Illusion 
+7. Ground Zero 
+8. Repentance 
+9. Well of the Dead 
+10. No Surrender 
+11. Bleeding Time 
+12. In The Grip Of Winter (Autopsy cover)*
+13. Reclusion video *
+
+* bonus material on ltd slipcase edition
+
 
 ## Отношения с другими группами
 

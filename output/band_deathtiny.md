@@ -1,7 +1,13 @@
 # Deathtiny
 
-Дискография
-"... In The Dusk" 2004, Power Metal
+
+
+## Дискография
+
+### "... In The Dusk" 2004, Power Metal
+
+
+
 
 ## Отношения с другими группами
 

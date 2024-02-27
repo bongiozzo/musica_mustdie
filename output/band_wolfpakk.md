@@ -1,7 +1,22 @@
 # Wolfpakk
 
-Дискография
-"Wolfpakk" 2011, Hard Rock
+
+
+## Дискография
+
+### "Wolfpakk" 2011, Hard Rock
+
+01. Sirens
+02. Dark Horizons
+03. Lost
+04. Slam Down The Hammer
+05. The Crow
+06. Wolfpup
+07. Let Me Die
+08. Reptile&#180;s Kiss
+09. Ride The Bullet
+10. Wolfony
+
 
 ## Отношения с другими группами
 

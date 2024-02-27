@@ -1,7 +1,13 @@
 # Solar Fake
 
-Дискография
-"Broken Grid" 2008, Electronic
+
+
+## Дискография
+
+### "Broken Grid" 2008, Electronic
+
+
+
 
 ## Отношения с другими группами
 

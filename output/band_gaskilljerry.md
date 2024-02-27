@@ -1,7 +1,13 @@
 # Gaskill, Jerry
 
-Дискография
-"Come Somewhere" 2004, Progressive
+retro-prog, art-rock
+
+## Дискография
+
+### "Come Somewhere" 2004, Progressive
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,13 @@
 # Funeral Speech
 
-Дискография
-"E tenebris" 2010, Techno Death
+
+
+## Дискография
+
+### "E tenebris" 2010, Techno Death
+
+
+
 
 ## Отношения с другими группами
 

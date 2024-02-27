@@ -1,10 +1,80 @@
 # Ring of Fire
 
-Дискография
-"Oracle" 2001, Metal
-"Dreamtower" 2002, Heavy Metal
-"Lapse Of Reality" 2004, Hard Rock
-"Battle of Leningrad" 2014, Metal
+Mark Boals project
+
+## Дискография
+
+### "Oracle" 2001, Metal
+
+1. Prelude For The Oracle
+2. Circle Of Time
+3. Shadow In The Dark
+4. Vengeance For Blood
+5. Samurai
+6. City Of The Dead
+7. Dreams Of Empire
+8. The Oracle
+9. Interlude
+10. Land Of Illusion
+11. Take Me Home
+12. Face The Fire
+13. Sakura Sakura (bonus for Japan)
+
+Produced by Mark Boals and Vitalij Kuprij
+Engineered by Neil Citron and Erik Norlander
+
+All lyrics and vocal melodies written by Mark Boals
+All musical arrangements written by Vitalij Kuprij 
+
+
+### "Dreamtower" 2002, Heavy Metal
+
+
+
+### "Lapse Of Reality" 2004, Hard Rock
+
+01. Lapse Of Reality
+02. Saint Fire
+03. The Key
+04. Darkfall
+05. One Little Mystery
+06. Perfect World
+07. Change
+08. That Kind Of Man
+09. You Were There
+10. Machine
+11. Faithfully
+12. I Don't Know (What You're Talking About)
+
+Vocals : Mark Boals (Mark Boals)
+Guitar : Tony MacAlpine (Mark Boals - Planet X)
+Bass : Philip Bynoe
+Keyboards : Steve Weingart
+Drums : Virgil Donati (Planet X)
+
+### "Battle of Leningrad" 2014, Metal
+
+1. Mother Russia  05:11    
+2. They're Calling Your Name  04:05    
+3. Empire  05:36    
+4. Land of Frozen Tears  04:43    
+5. Firewind  07:41    
+6. Where Angels Play  04:56    
+7. Battle of Leningrad  06:14    
+8. No Way Out  05:14    
+9. Our World  04:14    
+10. Rain  04:26 
+
+
+
+Tony MacAlpine - Guitars  
+Vitalij Kuprij - Keyboards  
+Mark Boals - Vocals  
+Timo Tolkki - Bass  
+Jami Huovinen - Drums  
+
+
+
 
 ## Отношения с другими группами
 

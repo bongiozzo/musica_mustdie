@@ -1,19 +1,112 @@
 # Kayak
 
-Дискография
-"SEE SEE THE SUN" 1973, Instrumental
-"KAYAK II" 1974, Instrumental
-"ROYAL BED BOUNCER" 1975, Instrumental
-"THE LAST ENCORE" 1976, Instrumental
-"STARLIGHT DANCER" 1977, Instrumental
-"PHANTOM OF THE NIGHT" 1979, Instrumental
-"PERISCOPE LIFE" 1980, Instrumental
-"MERLIN" 1981, Instrumental
-"EYEWITNESS" 1981, Instrumental
-"Close To The Fire" 2000, Instrumental
-"Night Vision" 2001, Instrumental
-"Merlin - Bard Of The Unseen" 2003, Instrumental
-"Merlin – Bard Of The Unseen (dvd)" 2003, Instrumental
+art-rock
+
+## Дискография
+
+### "SEE SEE THE SUN" 1973, Instrumental
+
+
+
+### "KAYAK II" 1974, Instrumental
+
+
+
+### "ROYAL BED BOUNCER" 1975, Instrumental
+
+
+
+### "THE LAST ENCORE" 1976, Instrumental
+
+
+
+### "STARLIGHT DANCER" 1977, Instrumental
+
+
+
+### "PHANTOM OF THE NIGHT" 1979, Instrumental
+
+
+
+### "PERISCOPE LIFE" 1980, Instrumental
+
+
+
+### "MERLIN" 1981, Instrumental
+
+
+
+### "EYEWITNESS" 1981, Instrumental
+
+
+
+### "Close To The Fire" 2000, Instrumental
+
+Close To The Fire
+When Hearts Grow Cold
+Dream Child
+Frozen Flame
+Forever
+Worlds Apart
+Crusader
+Two Wrongs
+Anybody's Child
+Here Today
+Just a Matter of Time
+Full Circle
+Ruthless Queen
+
+### "Night Vision" 2001, Instrumental
+
+Icarus
+Miracle Man
+Cassandra
+A Million Years
+Water For Guns
+The Way of the World
+Hold Me Forever
+Tradition
+All Over Again
+Life Without Parole
+How
+Carry On Boy
+Good Riddance
+Rings of Saturn
+
+### "Merlin - Bard Of The Unseen" 2003, Instrumental
+
+Merlin
+Tintagel
+The Future King
+The Sword In The Stone
+When The Seer Looks Away
+Branded
+At Arthur's Court
+The Otherworld
+The Purest Of Knights
+Friendship And Love
+The King's Enchanter
+Niniane
+The Last Battle
+Avalon
+
+### "Merlin – Bard Of The Unseen (dvd)" 2003, Instrumental
+
+Merlin 
+Tintagel 
+The Future King 
+The Sword in the Stone 
+When the Seer looks away 
+Branded 
+At Arthur’s Court 
+The Otherworld 
+The Purest of Knights 
+Friendship and love 
+The King’s Enchanter 
+Niniane 
+The Last Battle 
+Avalon
+
 
 ## Отношения с другими группами
 

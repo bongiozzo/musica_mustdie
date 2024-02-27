@@ -1,8 +1,36 @@
 # Heaven's Cry
 
-Дискография
-"Food For Thought Substitude" 1996, Progressive
-"Primal Power Addiction" 2002, Progressive
+progressive
+
+## Дискография
+
+### "Food For Thought Substitude" 1996, Progressive
+
+Your Gods Crime  
+Out of Me  
+March    
+The Alchemist  
+Gaia's Judgement  
+Face  
+Cruel Disguise  
+The Horde  
+Wings 
+
+
+### "Primal Power Addiction" 2002, Progressive
+
+2K Awe Tick 
+Masterdom's Profit 
+A New Paradigm 
+Divisions 
+A Higher Moral Ground 
+Komma 
+Remembrance 
+One Of Twentyfour 
+Waves 
+The Inner Stream Remains 
+Beds Are Burning
+
 
 ## Отношения с другими группами
 

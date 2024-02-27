@@ -1,9 +1,59 @@
 # Kemet
 
-Дискография
-"Pieces..." 1998, Death Doom
-"Dying With Elegance" 2001, Death Doom
-"The Night Before" 2004, Metal
+Gothic doom-death metal from France
+
+## Дискография
+
+### "Pieces..." 1998, Death Doom
+
+1 Embers Of Dawn 
+ Lovers Gluide Guided By Desire 
+ Lovers Collide With Reality 
+2 La Fin Du Silence 
+3 The Breath Through The Stone 
+4 This Eternal Bitterness 
+
+
+### "Dying With Elegance" 2001, Death Doom
+
+1. Immaculate
+2. Yours Cowardly
+3. Will You Forgive Me
+4. Like a Musing
+5. Dying With Elegance
+6. Insignificant
+7. Apologia For Suicide
+8. Of Sex and Rage
+9. Mon Dernier Voyage
+
+
+
+Recorded and mixed at All Sounds Studio, Lyon (France) (July 2000/Lyon) by Romain Noiret and Laurent Guillot
+Mastered by Philippe Tchekemian at Avedis, Lyon (France)
+Music by Kemet
+Lyrics by Eric Fiorletta
+Additional female vocals by Veronique Hoy
+Artwork by Gilles Langlois and Kemet
+
+
+Guillaume B. (Bass)
+Gilles L. (Guitar)
+Eric F.(Vocals)
+Vincent V.M. (Guitar)
+Bertrand F. (Drums)
+
+
+### "The Night Before" 2004, Metal
+
+1. Emilie's Broken Heart (Or The Real Story Of The Plucked Liar)
+2. Sister Sorrow
+3. Short Term God
+4. One Chance Left
+5. Valuable Things
+6. The Lucid Song (Embers Of Dawn - Part II)
+7. Suicide Me
+8. Orchids for Kids
+
 
 ## Отношения с другими группами
 

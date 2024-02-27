@@ -1,7 +1,13 @@
 # Healer
 
-Дискография
-"Enthrall! Gibbet! Interdict!" 2012, Groove
+extreme groove metal / post-thrash
+
+## Дискография
+
+### "Enthrall! Gibbet! Interdict!" 2012, Groove
+
+
+
 
 ## Отношения с другими группами
 

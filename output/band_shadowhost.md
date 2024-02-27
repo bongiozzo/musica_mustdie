@@ -1,16 +1,183 @@
 # Shadow Host
 
-Дискография
-"Nothing Left Behind (demo)" 1994, Power Metal
-"Beyond the Line (demo)" 1996, Power Metal
-"Twilight Legend" 1997, Power Metal
-"Downfall" 1999, Power Metal
-"Neverland" 2002, Power Metal
-"Prophecy (demo)" 2004, Power Metal
-"Curse Of The Angeleye" 2005, Power Metal
-"Bringer Of Revenge" 2011, Power Metal
-"Demon Hunter (EP)" 2013, Power Metal
-"Apocalyptic Symphony" 2013, Power Metal
+Melodic Power Metal
+
+## Дискография
+
+### "Nothing Left Behind (demo)" 1994, Power Metal
+
+1. The Last Hope (7:24)
+2. Speedfire (5:35)
+3. Time to Go (4:28)
+4. Through the Path of the Dead (6:22)
+5. Court of Unjustice (4:19)
+6. Lost Dream (4:17)
+7. Cry (4:58)
+8. Into the Dark (7:46)
+
+
+Sergey Kayumov - Vocals, Rhythm Guitar
+Alexey Arzamazov - Lead, Rhythm, Acoustic Guitars & Backing Vocals
+Platon Ukhnovetz - Bass & Keyboards
+Roman Proschenko - Drums 
+
+Recorded 2-19 dec. 1994
+Produced by Shadow Host
+
+### "Beyond the Line (demo)" 1996, Power Metal
+
+1. Beyond the Line - 4:10
+
+
+Sergey Kayumov - Vocals & Bass
+Alexey Arzamazov - Lead, Rhythm, Acoustic Guitars & Backing Vocals
+Oleg Sonin - Lead, Rhythm, Acoustic Guitars & Backing Vocals
+Roman Proschenko - Drums & Backing Vocals
+
+Produced by SHADOW HOST and Max Lebedev
+Recorded & mixed by Max Lebedev at TEF Studio, Moscow, Russia, from Jan. to Feb. 1996
+
+(Additional keyboards & backing vocals by Victor Radzishevski)
+
+
+### "Twilight Legend" 1997, Power Metal
+
+1. Visions - 0:53
+2. The Last Hope - 5:46
+3. In the Mirrorland - 5:12
+4. Echo of Sunrise - 6:10
+5. The Inviolable Balance - 5:28
+6. The Call of Unknown - 5:10
+7. Forgotten Words - 2:11
+8. Seven Songs - 3:25
+9. Beyond the Line - 4:20
+
+
+Sergey Kayumov - Vocals & Bass
+Alexey Arzamazov - Lead, Rhythm, Acoustic Guitars & Backing Vocals
+Alexey Martynov - Lead, Rhythm, Acoustic Guitars & Backing Vocals
+Sergey Kutaev - Drums
+
+Produced by SHADOW HOST and Max Lebedev
+Recorded & mixed by Max Lebedev at TEF Studio, Moscow, Russia, from May to July 1997
+Mastered by Helen Stepanova at TEF Studio in August and September 1997
+All music and lyrics written by SHADOW HOST from 1993 to 1996
+
+(Additional keyboards by Jasmina Khalina)
+
+(p) 1997 Hobgoblin Rec.
+
+### "Downfall" 1999, Power Metal
+
+1. Secret Signs 
+2. Downfall Of My Holy Faith
+3. Galadriel  
+4. Magic Sword 
+5. Nothing Left Behind
+6. The Enchantment
+
+ 
+
+### "Neverland" 2002, Power Metal
+
+1. Visions (instr)
+2. The Last Hope
+3. Beyond The Line 
+4. Call Of The Unknown
+5. Forgotten Words (instr)
+6. Dragonfire's Burning 
+7. In The Mirrorland
+8. Echo Of Sunrise
+9. Inviolable Balance
+10. Nothing Left Behind
+11. Twilight Of The Gods* (bonus)
+
+
+
+Sergey Sergeev - vocals
+Alexey Arzamazov - 7 & 6 string electric and acoustic guitars
+Alexey Martynov - 7 & 6 string electric and acoustic guitars
+Sergey Kutaev - drums
+
+bass guitar: tracks 2, 3, 5, 9 - Sergey Lobanov
+                               4, 7, 10 - Alexey Arzamazov 
+                               6, 8 ,11 - Alexey Martynov
+keyboards arranged by  Alexey Martynov 
+
+All music and lyrics written by SHADOW HOST except (*) by Hansen (c)1987 Noise International. Produced by Alexey Arzamazov & Alexey Martynov 
+Recorded, engineered and mixed by Alexey Martynov at
+AM Art Studio, Moscow, Russia, april/may 2002
+Mastered by Ruslan Demchenko at studio "2/12", Murmansk, Russia, May 2002
+Cover artwork and layout by YARRY
+
+
+
+### "Prophecy (demo)" 2004, Power Metal
+
+Darkness Descends 4:31 
+Dying Beauty 4:57 
+Follow The Madness 5:25 
+The Angeleye 4:31 
+Final Prophecy 5:23 
+Before The Storm 5:10 
+No Chance To Survive 4:30 
+Condemned 4:50 
+The Hour Of Damnation 5:25 
+ 
+
+Produced by SHADOW HOST. 
+Drums & vocals recorded at Zverinetz studio (www.zverinetz.ru) by Vladimir Zelenin, 
+guitars and bass recorded by Alexey Arzamazov, mixed and mastered by Ilya Egorichev. Artwork by YARRY. 
+Music by SHADOW HOST, lyrics by Alexey Arzamazov.  
+Sergey Sergeev - Vocals 
+Alexey Arzamazov - Rhythm & lead guitars, back vocals 
+Andrey Smirnov - Lead & acoustic guitars, back vocals 
+Alexey Zavolokin - Bass & back vocals 
+Sergey Kutaev - Drums
+
+### "Curse Of The Angeleye" 2005, Power Metal
+
+The Hour Of Eclipse (intro)
+Darkness Descends
+Dying Beauty
+Follow The Madness
+The Angeleye
+Final Prophecy
+Before The Storm
+No Chance To Survive
+Condemned
+The Hour Of Damnation
+
+### "Bringer Of Revenge" 2011, Power Metal
+
+1. Bringer Of Revenge (1:09)
+2. Wicked Curse (4:22)
+3. Eye For An Eye (4:52)
+4. Forsaken One (5:06)
+5. Demon Hunter (4:01)
+6. Secret Left Untold (6:37)
+7. Back To The Shadowland (5:36)
+8. Beware Your Dreams (5:34)
+9. Facing The Truth (6:32)
+
+### "Demon Hunter (EP)" 2013, Power Metal
+
+
+
+### "Apocalyptic Symphony" 2013, Power Metal
+
+1. Lunacy Divine  04:47    
+2. Treason  04:19    
+3. Blinded by Greed  04:23    
+4. Empty Eyes  05:01    
+5. Silent Killing  04:03    
+6. Guardians of the Wretched  04:30    
+7. Divide and Rule  05:56    
+8. Reborn in Hate  04:30    
+9. Seeds of Sorrow  05:59    
+10. Apocalypse Within  05:34 
+
+
 
 ## Отношения с другими группами
 

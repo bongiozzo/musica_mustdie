@@ -1,8 +1,29 @@
 # Ulvdalir
 
-Дискография
-"Soul void" 2008, Black Metal
-"Flame Once Lost" 2008, Black Metal
+
+
+## Дискография
+
+### "Soul void" 2008, Black Metal
+
+1. Tormenting catharsis 11:33  
+2. Herald of ruin 06:50  
+3. Dropping the gulp of blood 06:41  
+4. Night of the soul void 05:00  
+5. Life denial 07:23  
+6. Enemy of every human 04:53  
+7. In the glare of the pyres 08:32  
+8. Gates of death 05:26 
+
+### "Flame Once Lost" 2008, Black Metal
+
+1. The black wind 11:33  
+2. To the great eternity 06:50  
+3. Cold of the solitude 06:41  
+4. Purity to blood 05:00  
+5. The cold hall 07:23  
+6. In a blaze of sunset 04:53 
+
 
 ## Отношения с другими группами
 

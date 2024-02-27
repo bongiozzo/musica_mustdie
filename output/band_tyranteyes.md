@@ -1,8 +1,57 @@
 # Tyrant Eyes
 
-Дискография
-"Book Of Souls" 2000, Power Metal
-"The Darkest Hour" 2003, Power Metal
+
+
+## Дискография
+
+### "Book Of Souls" 2000, Power Metal
+
+1. Book Of Souls 
+2. Broken Wings 
+3. Dark Side Of The Moon 
+4. Timebomb 
+5. Shadows From Heaven 
+6. Land Of Death 
+7. When The Storm Comes Down 
+8. Fly To The Rainbow 
+9. Of Rage And Honour 
+10. The Gate 
+
+
+
+Alex Reimund - Vocals
+Marcus Amend - Guitars
+Michael Apfel - Bass
+Jьrgen Bormuth - Keys
+Sascha Tilger - Drums
+
+
+
+
+
+### "The Darkest Hour" 2003, Power Metal
+
+1. Night Of The Defender
+2. Delight In Dying
+3. Magic Touch
+4. The Dawn
+5. Out Of The Dark
+6. NDE
+7. Command To Destroy
+8. Gladiator
+9. The Last Light
+
+
+
+Alexander Reimund: vocals
+Marcus Amend: guitars
+Michael Apfel: bass
+Jьrgen Bormuth: keyboards
+Sascha Tilger: drums
+
+
+
+
 
 ## Отношения с другими группами
 

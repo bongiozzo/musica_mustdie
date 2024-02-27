@@ -1,8 +1,27 @@
 # Pokerface
 
-Дискография
-"Terror Is the Law (EP)" 2014, Thrash
-"Divide And Rule" 2015, Thrash
+
+
+## Дискография
+
+### "Terror Is the Law (EP)" 2014, Thrash
+
+
+
+### "Divide And Rule" 2015, Thrash
+
+1. All Is Lie  03:39    
+2. Kingdom of Hate  03:47    
+3. The Chessboard Killer  05:47    
+4. Existence  03:04    
+5. Into The Inferno  04:05    
+6. Human Control  03:07    
+7. Killed By Me  03:04    
+8. Shut Up!  03:01    
+9. Divide And Rule  02:58    
+10. Age Of Terrorism  03:29  
+
+
 
 ## Отношения с другими группами
 

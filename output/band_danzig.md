@@ -1,18 +1,229 @@
 # Danzig
 
-Дискография
-"Danzig I" 1988, Metal
-"Danzig II - Lucifuge" 1990, Metal
-"Danzig III - How The Gods Kill" 1992, Metal
-"Black Aria" 1992, Ambient
-"Thrall-Demonsweatlive (EP)" 1993, Metal
-"Danzig IV" 1994, Metal
-"Blackacidevil" 1996, Industrial
-"Danzig 6:66 - Satans Child" 1999, Metal
-"Live On The Black Hand Side (Live)" 2001, Heavy Metal
-"I Luciferi" 2002, Metal
-"Circle Of Snakes" 2004, Metal
-"Deth Red Sabaoth " 2010, Heavy Metal
+
+
+## Дискография
+
+### "Danzig I" 1988, Metal
+
+1. Twist of Cain
+2. Not Of This World
+3. She Rides
+4. Soul On Fire
+5. Am I Demon
+6. Mother
+7. Possesion
+8. End Of Time
+9. The Hunter
+10.Evil Thing
+
+Glenn Danzig - vocals
+Eerie Von - bass
+John Christ - lead guitar
+Chuck Biscuits - drums
+
+Production Credits
+David Bianco: Engineer
+Barry Diament: Digital Mastering, Mastering
+Steven Ett: Engineer
+Rick Rubin: Producer
+Jim Scott: Engineer
+Howie Weinberg: Mastering
+Mark Weiss: Photography 
+
+
+### "Danzig II - Lucifuge" 1990, Metal
+
+1. Long Way Back From Hell
+2. Snakes Of Christ
+3. Killer Wolf
+4. Tired Of Being Alive
+5. I'm The One
+6. Her Black Wings
+7. Devil's Plaything
+8. 777
+9. Blood And Tears
+10.Girl
+11.Pain In The World
+
+Glenn Danzig - vocals
+Eerie Von - bass
+John Christ - guitars
+Chuck Biscuits - drums
+
+### "Danzig III - How The Gods Kill" 1992, Metal
+
+1. Godless
+2. Anything
+3. Bodies
+4. How The Gods Kill
+5. Dirty Black Summer
+6. Left Hand Black
+7. Heart Of The Devil
+8. Sistinas
+9. Do You Wear The Mark
+10.When The Dying Calls
+
+Glenn Danzig - vocals and keyboards
+Eerie Von - bass
+John Christ - guitars
+Chuck Biscuits - drums
+
+(p)&(c) 1992 DEF AMERICAN Records
+
+### "Black Aria" 1992, Ambient
+
+1. Overture Of The Rebel Angels
+2. Conspiracy Dirge
+3. Battle For Heaven
+4. Retreat And Descent
+5. Dirge Of Defeat
+6. And The Angels Weep
+7. Shifter
+8. The Morrigu
+9. Cwn Anwnn
+
+"First.
+This is not a rock record.
+It does not sound like anything I have done previously.
+Some people won't get it.
+That's ok.
+I'm used to that.
+But for those who will understand and appreciate the true
+power and majesty contained within, may this take you 
+someplace you have never been.
+But have always longed to be." Glenn Danzig - 4/92
+
+### "Thrall-Demonsweatlive (EP)" 1993, Metal
+
+1. It's Coming Down
+2. The Violet Fire
+3. Trouble
+4. Snakes Of Christ*
+5. Am I Demon*
+6. Sistinas*
+7. Mother*
+
+*recorded "live" 10/31/92 Irvine Meadows, CA
+
+Glenn Danzig - vocals, keyboards, guitar
+Eerie Von - bass
+John Christ - guitars
+Chuck Biscuits - drums
+
+### "Danzig IV" 1994, Metal
+
+1. Brand New God
+2. Little Whip
+3. Cantspeak
+4. Going Down To Die
+5. Until You Call In The Dark
+6. Dominion
+7. Bringer Of Death
+8. Sadistikal
+9. Son Of The Morning Star
+10.I Don't Mind The Pain
+11.Stalker Song
+12.Let It Be Captured
+
+ Glenn Danzig - Vocals & Keyboards
+ Eerie Von - Bass
+ John Christ - Guitars
+ Chuck Bisquits - Drums
+
+Produced By Glenn Danzig & Rick Rubin.
+Recorded At Ocean Way Studio,Hollywood.
+
+(p)&(c) 1994 DEF AMERICAN Records
+
+### "Blackacidevil" 1996, Industrial
+
+1. 7th House
+2. Blackacidevil
+3. See All You Were
+4. Sacrifice
+5. Hint Of Her Blood
+6. Deeper
+7. Serpentia
+8. Come To Silver
+9. Hand Of Doom
+10.Bleedangel
+11.Power Of Darkness
+12.Ashes
+13.Don't Be Afraid
+
+Glenn Danzig - vocals, guitars, bass, keyboards
+Joey Castillo - drums
+Joseph Bishara - keyboards and programming
+Josh Lazie - bass on Sacrifice
+
+Jerry Cantrell appears on Tracks 3, 7, 8.
+Mark Chaussee: extra guitar on tracks 4 and 6.
+
+### "Danzig 6:66 - Satans Child" 1999, Metal
+
+1. Five Finger Crawl
+2. Belly Of The Beast
+3. Lilin
+4. Unspeakable
+5. Cult Without A Name
+6. East Indian Devil (Kali's Song)
+7. Firemass
+8. Cold Eternal
+9. Satans Child
+10.Into The Mouth Of Abandonment
+11.Apokalips
+12.Thirteen
+
+
+### "Live On The Black Hand Side (Live)" 2001, Heavy Metal
+
+
+
+### "I Luciferi" 2002, Metal
+
+01. Black Mass
+02. Kiss The Skull
+03. Dead Inside
+04. God Of Light
+05. Angel Blake
+06. Wicked Pussycat
+07. Halo Goddess Bone
+08. The Coldest Sun
+09. Dying Serph
+10. Dark Secret Side
+11. Soul Eater
+12. Malefical Bride of Hell
+13. LiberSkull
+14. Naked Witch 
+
+### "Circle Of Snakes" 2004, Metal
+
+01. Skincarver
+02. 1000 Devils Reign
+03. Netherbound
+04. Circle of Snakes
+05. When We Were Dead
+06. Black Angel, White Angel
+07. Skull Forrest
+08. Hellmask
+09. My Darkness
+
+### "Deth Red Sabaoth " 2010, Heavy Metal
+
+1. Hammer of the Gods 05:20  
+2. The Revengeful 04:10  
+3. Rebel Spirits 03:58  
+4. Black Candy 04:08  
+5. On a Wicked Night 04:02  
+6. Deth Red Moon 03:58  
+7. Ju Ju Bone 04:45  
+8. Night Star Hel 06:41  
+9. Pyre of Souls: Infanticle 03:18  
+10. Pyre of Souls: Seasons of Pain 07:17  
+11. Left Hand Rise Above 04:22 
+
+
 
 ## Отношения с другими группами
 

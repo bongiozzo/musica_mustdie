@@ -1,7 +1,35 @@
 # Non-Fiction
 
-Дискография
-"In The Know" 1992, Alternative
+
+
+## Дискография
+
+### "In The Know" 1992, Alternative
+
+1. Preface
+2. In The Know
+3. First And Lasting  Impressions
+4. Acceptance
+5. A Million Tears Ago
+6. Next To Nothing
+7. Reason To Die
+8. Reason To Live
+9. All My Needs
+10. Peaked
+11. No Comment
+12. The Naked Truth
+13. One Last Time
+
+ Alan Tecchio - Vocals
+ Kevin Bolembach - Bass
+ Mike Cristi - Drums
+ Dan Lorenzo - Guitars
+
+Produced By Mason Temple & NON-FICTION
+Engineered By Matt Kasha
+
+(p)&(c) 1992 GRAND SLAMM Records
+
 
 ## Отношения с другими группами
 

@@ -1,9 +1,34 @@
 # Sinisthra
 
-Дискография
-"Softly Whispering Mountains to Gravel" 2002, Gothic
-"Empty Banalities Adorned with Dashing Eloquence" 2004, Gothic
-"Last of the Stories of Long Past Glories" 2005, Gothic
+
+
+## Дискография
+
+### "Softly Whispering Mountains to Gravel" 2002, Gothic
+
+1. To Have and to Hold  
+2. Fragile 
+3. Innocence...In a Sense
+4. Colder Still
+
+### "Empty Banalities Adorned with Dashing Eloquence" 2004, Gothic
+
+1. Completely Incomplete 04:49  
+2. Ice Cube Sun 05:45 
+3. Unrevealed 05:24
+
+### "Last of the Stories of Long Past Glories" 2005, Gothic
+
+1. Coming Up Roses   
+2. Ice Cube Sun   
+3. Fearless Under The Falling Sky   
+4. To The One Far Away   
+5. Unrevealed   
+6. My Sweet Nothing   
+7. Fucking Fragile   
+8. Innocence… Is a Sense    
+9. Completely Incomplete
+
 
 ## Отношения с другими группами
 

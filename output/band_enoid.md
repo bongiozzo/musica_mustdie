@@ -1,9 +1,43 @@
 # Enoid
 
-Дискография
-"Livssyklus" 2006, Black Metal
-"Dodssyklus" 2007, Black Metal
-"Ataraxiis" 2009, Black Metal
+
+
+## Дискография
+
+### "Livssyklus" 2006, Black Metal
+
+1. Riruop 03:51  
+2. Ecnassian 05:40  
+3. Ridnarg 03:48  
+4. Erviv 02:36  
+5. Rillieiv 05:49  
+6. Riruom 04:37  
+7. Noitpecnoc + Namuhitna 29:30 
+
+### "Dodssyklus" 2007, Black Metal
+
+1. Ortni 00:25  
+2. Edicius 05:10  
+3. Ecnarffuos 04:15  
+4. Edulretni 00:31  
+5. Trom 03:12  
+6. Noitcurtsed 08:20  
+7. Dlrow Eht Kcuf 13:34 
+
+### "Ataraxiis" 2009, Black Metal
+
+1. By the Flames 03:51  
+2. The Darkening of My Soul 04:31  
+3. Black Thought 02:19  
+4. Je Ne Regretterais Pas 04:12  
+5. Slashes 04:48  
+6. The Sickness 04:58  
+7. Humanicide 04:19  
+8. Under a Blood-Red Sky 03:43  
+9. Hopelessness Overwhelms Me 06:26  
+10. The End of Days 05:54  
+11. Souffrances 04:09 
+
 
 ## Отношения с другими группами
 

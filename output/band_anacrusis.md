@@ -1,11 +1,29 @@
 # Anacrusis
 
-Дискография
-"Suffering Hour" 1988, Thrash
-"Reason" 1990, Thrash
-"Manic Impressions" 1991, Thrash
-"Screams And Whispers" 1993, Thrash
-"Annihilation Complete (Compilation)" 2009, Thrash
+
+
+## Дискография
+
+### "Suffering Hour" 1988, Thrash
+
+
+
+### "Reason" 1990, Thrash
+
+
+
+### "Manic Impressions" 1991, Thrash
+
+
+
+### "Screams And Whispers" 1993, Thrash
+
+
+
+### "Annihilation Complete (Compilation)" 2009, Thrash
+
+
+
 
 ## Отношения с другими группами
 

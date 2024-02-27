@@ -1,7 +1,21 @@
 # Nordafrost
 
-Дискография
-"Back To The Shores Of Grey" 2008, Black Metal
+
+
+## Дискография
+
+### "Back To The Shores Of Grey" 2008, Black Metal
+
+1. Feverish Phantasmagoria 05:40  
+2. Cursed Despot 05:57  
+3. Carnal Worship 05:16  
+4. Tempestas Autumnalis 04:49  
+5. Aversion 05:57  
+6. The Return (Back to the Shores of Grey) 04:10  
+7. In Destitution You'll Freeze 03:51  
+8. Surrender 04:24  
+9. Final Sunrise 07:23 
+
 
 ## Отношения с другими группами
 

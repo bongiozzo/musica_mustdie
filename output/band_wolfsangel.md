@@ -1,7 +1,28 @@
 # Wolfsangel
 
-Дискография
-"Widdershins" 2004, Folk
+
+
+## Дискография
+
+### "Widdershins" 2004, Folk
+
+1.Barditus 
+2.Njord 
+3.Ice 
+4.Of Ye Birch Tree Slain 
+5.Lullaby 
+6.King Of Northern Trolls 
+7.Wolfsangel 
+8.Lady Of Darkness 
+
+Line-Up: 
+Дмитрий Петрас - бас, семплы, tin whistle, перкуссия, бэк-вокал 
+Яна "Raynach" Никулина - клавиши и вокал 
+Rob McReddin - вокал 
+Алексей Евдокимов - барабаны 
+Федор Наумов - гитара 
+Стас Матвеев - гитара
+
 
 ## Отношения с другими группами
 

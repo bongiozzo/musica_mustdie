@@ -1,11 +1,68 @@
 # Andromeda
 
-Дискография
-"Extension Of The Wish" 2001, Progressive
-"II=I" 2003, Progressive
-"Chimera" 2006, Progressive
-"The Immunity Zone" 2008, Progressive
-"Manifest Tyranny" 2011, Progressive
+
+
+## Дискография
+
+### "Extension Of The Wish" 2001, Progressive
+
+01. Extension Of The Wish 
+02. Cresendo Of Thoughts 
+03. In The Deepest Of Waters 
+04. Starshooter Supreme 
+05. Chameleon Carneval 
+06. The Words Unspoken 
+07. Arch Angel 
+
+### "II=I" 2003, Progressive
+
+1.	 Encyclopedia	07:35
+2.	 Mirages	05:42
+3.	 Reaching Deep Within	04:50
+4.	 Two Is One	10:09
+5.	 Morphing into Nothing	07:34
+6.	 Castaway	06:16
+7.	 Parasite	06:54
+8.	 One in My Head	08:02
+9.	 This Fragile Surface	08:04
+
+### "Chimera" 2006, Progressive
+
+1.	 Periscope
+2.	 In the End
+3.	 The Hidden Riddle
+4.	 Going Under
+5.	 The Cage of Me
+6.	 No Guidelines
+7.	 Iskenderun
+8.	 Inner Circle
+9.	 Blink of an Eye
+
+### "The Immunity Zone" 2008, Progressive
+
+1.	 Recognizing Fate	07:19
+2.	 Slaves of the Plethora Season	05:34
+3.	 Ghosts on Retinas	04:28
+4.	 Censoring Truth	06:42
+5.	 Worst Enemy	06:01
+6.	 My Star	05:40
+7.	 Another Step	05:58
+8.	 Shadow of a Lucent Moon	07:22
+9.	 Veil of Illumination	17:25
+
+### "Manifest Tyranny" 2011, Progressive
+
+1.	 Preemptive Strike
+2.	 Lies 'r' Us
+3.	 Stay Unaware
+4.	 Survival of the Richest
+5.	 False Flag
+6.	 Chosen by God
+7.	 Asylum
+8.	 Play Dead
+9.	 Go Back to Sleep
+10.	 Antidote
+
 
 ## Отношения с другими группами
 

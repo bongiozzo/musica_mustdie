@@ -1,7 +1,25 @@
 # Giuseppe Silvestri
 
-Дискография
-"La Rosa Del Deserto" 2008, Instrumental
+
+
+## Дискография
+
+### "La Rosa Del Deserto" 2008, Instrumental
+
+1. Inferno 04:07  
+2. Gates Of Passion 04:41  
+3. Black Venus 04:23  
+4. La Rosa Del Deserto 03:23  
+5. Garden Of Memories 04:28  
+6. Coral Castle 05:28  
+7. Portrait Of Isabel 02:56  
+8. Eternity 06:22  
+9. Redemption 07:03  
+10. Stregata 01:16  
+11. Les Fleurs Du Mal 03:25  
+12. La Ballerina Rusa 03:53  
+13. Daisy 03:50 
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,13 @@
 # Rainbird
 
-Дискография
-"Poet’s Blood" 2006, Death Doom
+
+
+## Дискография
+
+### "Poet’s Blood" 2006, Death Doom
+
+
+
 
 ## Отношения с другими группами
 

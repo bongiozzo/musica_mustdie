@@ -1,8 +1,26 @@
 # Dedication
 
-Дискография
-"Reflections Of Time" 2004, Heavy Metal
-"The Enemy Within" 2007, Heavy Metal
+
+
+## Дискография
+
+### "Reflections Of Time" 2004, Heavy Metal
+
+
+
+### "The Enemy Within" 2007, Heavy Metal
+
+1. Thunder And Lightning  03:55    
+2. Walk Into The Fire  04:47    
+3. Use Your Mind  05:16  
+4. Waiting  05:03    
+5. In Search For The Truth  04:55  
+6. Evil Eyes  04:33   
+7. No Way Out  05:25  
+8. Heavenly Divine  05:05    
+9. Salvation  04:36    
+10. Much Too Late  03:39 
+
 
 ## Отношения с другими группами
 

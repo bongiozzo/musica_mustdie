@@ -1,10 +1,48 @@
 # Jesu
 
-Дискография
-"Jesu" 2004, Ambient
-"Conqueror" 2007, Ambient
-"Infinity" 2009, Ambient
-"Ascension" 2011, Ambient
+
+
+## Дискография
+
+### "Jesu" 2004, Ambient
+
+01. Your Path to Divinity
+02. Friends Are Evil
+03. Tired of Me
+04. We All Faulter
+05. Walk on Water
+06. Sun Day
+07. Man / Woman
+08. Guardian Angel
+
+### "Conqueror" 2007, Ambient
+
+01. Conqueror
+02. Old Year
+03. Transfigure
+04. Weightless and Horizontal
+05. Medicine
+06. Brighteyes
+07. Mother Earth
+08. Stanlow
+
+### "Infinity" 2009, Ambient
+
+
+
+### "Ascension" 2011, Ambient
+
+01. Fools
+02. Birth Day
+03. Sedatives
+04. Broken Home
+05. Brave New World
+06. Black Lies
+07. Small Wonder
+08. December
+09. King Of Kings
+10. Ascension
+
 
 ## Отношения с другими группами
 

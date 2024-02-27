@@ -1,7 +1,27 @@
 # Nergal
 
-Дискография
-"The Wizard Of Nerath" 1995, Black Metal
+
+
+## Дискография
+
+### "The Wizard Of Nerath" 1995, Black Metal
+
+1. Timeless Father
+2. My Soul, Blood, Will Be Dripping
+3. The Wind Of Hate
+4. Ljus m Rker
+5. The Wizard Of Nerath
+6. 6 Katares
+7. The Dream Of The Dragon
+8. Sparagmos
+
+All Songs By NERGAL.
+Produced By NERGAL & Magus Wampyr Daoloth.
+Engineered By George Zaharopoulos.
+Recorded & Mixed At Storm Studio, Athens.
+
+(P)&(C) 1995 UNISOUND Records
+
 
 ## Отношения с другими группами
 

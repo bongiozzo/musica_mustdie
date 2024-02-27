@@ -1,10 +1,44 @@
 # Mindfield
 
-Дискография
-"Fields Of Vision" 1996, Thrash
-"The Final Piece" 1997, Thrash
-"Deviant" 2000, Thrash
-"Be-Low" 2003, Melodic Death Metal
+Melodic death thrash metal
+
+## Дискография
+
+### "Fields Of Vision" 1996, Thrash
+
+
+
+### "The Final Piece" 1997, Thrash
+
+
+
+### "Deviant" 2000, Thrash
+
+
+
+### "Be-Low" 2003, Melodic Death Metal
+
+1. Made to Measure
+2. Destination 666
+3. Desperate (Death Parade)
+4. Mucher No Illores
+5. Dead End Love
+6. Gallery in Black
+7. Below
+8. A silent moment
+9. The sobering
+10. They speak
+11. If you wish
+12. Night's end 
+
+
+
+Rainer Sicker - rhythm & lead guitars
+Marc Zirnsak - rhythm & lead guitars
+Danny Carbus - keyboards, vocals
+Sascha Schiller - drums
+Philip Akoto - bass, growls
+
 
 ## Отношения с другими группами
 

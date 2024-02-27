@@ -1,6 +1,9 @@
 # Gorman Prophecy
 
-Дискография
+alternative metal band from Baltimore, Maryland
+
+## Дискография
+
 
 ## Отношения с другими группами
 

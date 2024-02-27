@@ -1,7 +1,21 @@
 # Fightcast
 
-Дискография
-"Breeding a Divinity" 2008, Metalcore
+
+
+## Дискография
+
+### "Breeding a Divinity" 2008, Metalcore
+
+1. Poison Cage	 
+2. Filter	 
+3. Three Ghosts for You	 
+4. The White Pitch	 
+5. Chrome Within	 
+6. New Shade Behind	 
+7. Illogical Trip 
+8. Charlie B.	 
+9. Breeding a Divinity
+
 
 ## Отношения с другими группами
 

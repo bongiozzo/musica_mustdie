@@ -1,7 +1,23 @@
 # Undead
 
-Дискография
-"The Call Of Blood [promo]" 2007, Melodic Death Metal
+
+
+## Дискография
+
+### "The Call Of Blood [promo]" 2007, Melodic Death Metal
+
+1. The Call Of Blood
+2. Don't Wake The Dead!
+3. D.I.S. (Death Intelligence Service)
+4. The Deep-Night Candlelight [instrumental]
+5. Infinity [instrumental]
+
+Юрий "Ворон" Бахтин - вокал
+Алексей "Slayer" Казаринов - гитара
+Константин "Northerner" Дмитриев - гитара
+Дмитрий "Avenger" Хмелёв - бас-гитара
+Евгений "Sargeras" Космынин - барабаны
+
 
 ## Отношения с другими группами
 

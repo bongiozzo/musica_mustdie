@@ -1,8 +1,17 @@
 # Will 'O' Wisp
 
-Дискография
-"Enchiridion" 2001, Gothic
-"Unseen" 2002, Gothic
+progressive-gothic-rock from Italy
+
+## Дискография
+
+### "Enchiridion" 2001, Gothic
+
+
+
+### "Unseen" 2002, Gothic
+
+
+
 
 ## Отношения с другими группами
 

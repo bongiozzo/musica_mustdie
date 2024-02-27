@@ -1,7 +1,13 @@
 # Doykod
 
-Дискография
-"Accept The New Order" 2002, Thrash
+
+
+## Дискография
+
+### "Accept The New Order" 2002, Thrash
+
+
+
 
 ## Отношения с другими группами
 

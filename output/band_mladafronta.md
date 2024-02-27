@@ -1,8 +1,17 @@
 # Mlada Fronta
 
-Дискография
-"FE2 O3" 2001, Metal
-"Oxydes" 2002, Metal
+dark electro
+
+## Дискография
+
+### "FE2 O3" 2001, Metal
+
+
+
+### "Oxydes" 2002, Metal
+
+
+
 
 ## Отношения с другими группами
 

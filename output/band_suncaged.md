@@ -1,9 +1,65 @@
 # Sun Caged
 
-Дискография
-"Sun Caged" 2003, Progressive
-"Artemisia" 2007, Progressive
-"The Lotus Effect" 2011, Progressive
+Dutch Progressive Metal
+
+## Дискография
+
+### "Sun Caged" 2003, Progressive
+
+1. Sedation
+2. Sun Caged
+3. Home
+4. Soil
+5. Hollow
+6. Closing In
+7. The Eighth Day
+8. Secrets Of Flight
+9. Unchanging
+
+### "Artemisia" 2007, Progressive
+
+1.Lyre's Harmony 07:22
+2. A Fair Trade 06:26
+3. Unborn 06:27
+4. Blood Lines 09:30
+5. Painted Eyes 04:26
+6. Engelbert The Inchworm 04:36
+7. Afraid To Fly 07:09
+8. Dialogue 08:24
+9. Departing Words 08:05
+10. Doldrums 07:32
+
+
+Bonus track for Japan:
+ 11. Land of Confusion (Genesis cover) 
+
+### "The Lotus Effect" 2011, Progressive
+
+1. Seamripper (& The Blanket Statement) 08:13
+2. Tip-Toe the Fault-Line 06:57
+3. Ashes To Ear 05:18
+4. Shades of Hades 05:43
+5. Reductio ad Absurdum 06:18
+6. On Again / Off Again 07:25
+7. Lotus 06:17
+8.Pareidolized (The Ocean in the Shell) 10:00
+9.Parasol 01:43
+10. Wave the Banner 01:41
+11. Fish Afraid of Drowning 02:14
+12. Moebius Knot 02:26
+13. Full Circle 01:55
+14. Let it Wash Away (The Lotus Effect) 05:49
+
+
+
+Daniel Kohn Bass 
+Roel van Helden Drums 
+Marcel Coenen Guitars 
+Rene Kroon Keyboards 
+Paul Adrian Villarreal Vocals 
+
+
+
 
 ## Отношения с другими группами
 

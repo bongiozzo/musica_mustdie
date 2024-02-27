@@ -1,7 +1,22 @@
 # Morgue's Child
 
-Дискография
-"...From The Cunt To The Grave" 2010, Deathcore
+
+
+## Дискография
+
+### "...From The Cunt To The Grave" 2010, Deathcore
+
+1. I Fuck Your Life, You Must Be Dead 01:43  
+2. Pain And Scream (Golovkin Maniac) 01:49  
+3. Degloving Injury 01:54  
+4. Syphilitic End 02:05  
+5. Frigidity 01:54  
+6. Genetic Torture 03:27  
+7. Fog Of Death (Mortician Cover) 01:51
+8. Concensque (Gut Cover) 01:05  
+9. Roast Body 02:16  
+10. ...From The Cunt To The Grave 01:40 
+
 
 ## Отношения с другими группами
 

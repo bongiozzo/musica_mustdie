@@ -1,13 +1,46 @@
 # This Is Hell
 
-Дискография
-"This Is Hell (EP)" 2005, Hardcore
-"Sundowning" 2007, Hardcore
-"Cripplers (EP)" 2007, Hardcore
-"Misfortunes" 2008, Hardcore
-"Warbirds (EP)" 2009, Hardcore
-"Weight Of The World" 2010, Hardcore
-"Black Mass " 2011, Hardcore
+
+
+## Дискография
+
+### "This Is Hell (EP)" 2005, Hardcore
+
+
+
+### "Sundowning" 2007, Hardcore
+
+
+
+### "Cripplers (EP)" 2007, Hardcore
+
+
+
+### "Misfortunes" 2008, Hardcore
+
+
+
+### "Warbirds (EP)" 2009, Hardcore
+
+
+
+### "Weight Of The World" 2010, Hardcore
+
+
+
+### "Black Mass " 2011, Hardcore
+
+01. Acid Rain (3:31)
+02. Black History (3:52)
+03. Salt The Earth (3:42)
+04. Black Mass (3:59)
+05. The wars: Part I (4:20)
+06. Mi Nombre (2:29)
+07. The Last Outlaw (3:37)
+08. Demons (1:28)
+09. The Reckoning (4:25)
+10. The wars: Part II (3:20)
+
 
 ## Отношения с другими группами
 

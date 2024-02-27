@@ -1,8 +1,17 @@
 # One Machine
 
-Дискография
-"The Distortion of Lies and the Overdriven Truth" 2014, Thrash
-"The Final Cull" 2015, Thrash
+Steve Smyth project
+
+## Дискография
+
+### "The Distortion of Lies and the Overdriven Truth" 2014, Thrash
+
+
+
+### "The Final Cull" 2015, Thrash
+
+
+
 
 ## Отношения с другими группами
 

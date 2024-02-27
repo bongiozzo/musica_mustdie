@@ -1,10 +1,60 @@
 # Eterne
 
-Дискография
-"As The Silence Fades" 1993, Death Doom
-"Still Dreaming" 1995, Death Doom
-"A Certain Kind Of Bitterness" 1995, Death Doom
-"Deadauthor" 1997, Death Doom
+
+
+## Дискография
+
+### "As The Silence Fades" 1993, Death Doom
+
+1. As The Silence Fades 
+2. Lament 
+
+(P)&c 1993
+
+### "Still Dreaming" 1995, Death Doom
+
+1. Flesh Made Word
+2. Divine
+3. The Crawling Chaos
+4. Scarlet Field
+5. Marionette
+6. The Endless
+7. Forever
+8. Still Dreaming
+9. In Retrospect
+
+All Songs Written By ETERNE.
+Produced By ETERNE & Julian Hill.
+Engineered By Julian Hill.
+Recorded At State Of Art Studios, Bristol.
+
+David Dando - Lead Vocals, Guitars, Bass, Programming
+Martyn Lear - Keyboards, Programming
+Additional Vocals By Debbie & Shaun.
+
+(P)&(C) 1995 CANDLE LIGHT Records
+
+### "A Certain Kind Of Bitterness" 1995, Death Doom
+
+1. A Certain Kind Of Bitterness
+2. Epilogue
+3. Thanatos
+
+All Songs Written By ETERNE.
+Produced By ETERNE & Julian Hill.
+Engineered By Julian Hill.
+Recorded At State Of Art Studios, Bristol.
+
+David Dando - Lead Vocals, Guitars, Bass, Programming
+Martyn Lear - Keyboards, Programming
+Additional Vocals By Debbie & Shaun.
+
+(P)&(C) 1995 CANDLE LIGHT Records
+
+### "Deadauthor" 1997, Death Doom
+
+
+
 
 ## Отношения с другими группами
 

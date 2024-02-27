@@ -1,7 +1,38 @@
 # Different World
 
-Дискография
-"Wonderful World" 2005, Ambient
+
+
+## Дискография
+
+### "Wonderful World" 2005, Ambient
+
+1. DIFFERENT WORLD 05:18  
+2. MOTHER 08:55  
+3. NECCESARY WAR 05:07  
+4. HERES NO WAY OUT 03:05  
+5. TRUTH 06:09  
+6. SO CLOSE SO FAR AWAY 03:05  
+7. WONDERFUL WORLD 03:34  
+8. INDIFFERENT 04:05  
+9. POWER OF REASON 04:45  
+10. I BELIEVE 03:51 
+
+
+All songs composed and arranged by Different World.
+Produced by Different World.
+Enginnered By Maciek Mularczyk.
+Recorded at Alkatras Studio Katowice.
+Lyrics by Piotr Sobaszek.
+Cover art by Piotr Sobaszek.
+
+Recording Line-up:
+Piotr Sobaszek - Guitar
+Jaroslaw Bandurski - Bass
+Leszek Ganiek - Vocals
+Tomasz Jagla - Drums
+Jadwiga Siwicka - Vocals
+Daniel Serkowski - Keyboards
+
 
 ## Отношения с другими группами
 

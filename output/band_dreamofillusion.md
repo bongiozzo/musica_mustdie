@@ -1,7 +1,26 @@
 # Dream of Illusion
 
-Дискография
-"Decadence" 2011, Power Metal
+
+
+## Дискография
+
+### "Decadence" 2011, Power Metal
+
+1.	 Intro	01:16	 
+2.	 The Crow	04:42	 
+3.	 Spiked Rain	04:50	 
+4.	 Rocker Warrior	04:10	 
+5.	 Mistery	03:31	 
+6.	 One Last Chance	05:17	 
+7.	 End Of The World	04:58	 
+8.	 Two Skies	03:25	 
+9.	 Through The Storm	04:36	 
+10.	 Born To Rock	03:46	 
+11.	 Interlude	00:29	 
+12.	 Hysteria	05:00	 
+13.	 Back To The Evil Age	05:36	 
+14.	 Outro	02:06	
+
 
 ## Отношения с другими группами
 

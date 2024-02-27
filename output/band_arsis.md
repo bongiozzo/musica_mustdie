@@ -1,13 +1,77 @@
 # Arsis
 
-Дискография
-"A Celebration of Guilt" 2005, Techno Death
-"A Diamond For Disease" 2005, Techno Death
-"United In Regret" 2006, Techno Death
-"As Regret Becomes Guilt [compilation]" 2007, Techno Death
-"We Are The Nightmare " 2008, Techno Death
-"Starve for the Devil" 2010, Melodic Death Metal
-"Unwelcome" 2013, Techno Death
+
+
+## Дискография
+
+### "A Celebration of Guilt" 2005, Techno Death
+
+
+
+### "A Diamond For Disease" 2005, Techno Death
+
+
+
+### "United In Regret" 2006, Techno Death
+
+
+
+### "As Regret Becomes Guilt [compilation]" 2007, Techno Death
+
+1. Elegant and Perverse (2002 demo) 02:57
+2. Wholly Night (2002 demo) 04:24
+3. Worship Depraved (2002 demo) 03:06
+4. Seven Whispers Fell Silent (2002 demo) 03:46
+5. Veil of Mourning Black (2002 demo) 03:02
+6. Fortune's Envy (2001 demo) 02:57  
+7. Close (2001 demo) 03:50  
+8. Painted Eyes (2001 demo) 02:56
+9. Elegant and Perverse (2002 alternate version) 02:33 
+10. Seven Whispers Fell Silent (2002 alternate version) 03:58 
+
+### "We Are The Nightmare " 2008, Techno Death
+
+
+
+### "Starve for the Devil" 2010, Melodic Death Metal
+
+1. Forced to Rock 02:56 
+2. A March for the Sick 04:23 
+3. From Soulless to Shattered (Art in Dying) 04:27
+4. Beyond Forlorn 04:01
+5. The Ten of Swords 03:44 
+6. Closer to Cold 05:08  
+7. Sick Perfection 03:55 
+8. Half Past Corpse O'Clock 04:12
+9. Escape Artist 04:22
+10. Sable Rising 03:36 
+
+### "Unwelcome" 2013, Techno Death
+
+1. Unwelcome
+2. Carve My Cross
+3. Handbook For The Recently Deceased
+4. Choking On Sand
+5. Let Me Be The One
+6. Sunglasses At Night
+7. Martyred Or Mourning
+8. No One Lies To The Dead
+9. I Share In Shame
+10. Scornstar 
+
+
+The digipak edition of the album will come with the following bonus tracks:
+ 
+11. The Face of My Innocence [2013 Version]
+ 12. Haunted, Fragile, and Frozen*
+ 13. Six Coffins Wide*
+ 14. Veil of Mourning Black*
+ 15. A Tearful Haunt, Condemned*
+ 16. Carve My Cross*
+ 17. Denied*
+ 
+*taken from the EP “Leper’s Caress” 
+
 
 ## Отношения с другими группами
 

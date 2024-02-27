@@ -1,10 +1,100 @@
 # Cryptic Wintermoon
 
-Дискография
-"Cryptic Wintermoon" 1997, Black Metal
-"The age of cataclysm" 1999, Black Metal
-"A Coming Storm" 2003, Black Metal
-"Of Shadows..." 2005, Black Metal
+
+
+## Дискография
+
+### "Cryptic Wintermoon" 1997, Black Metal
+
+1.) Shadowland
+2.) Angels never die
+3.) Visions of eternal darkness
+4.) Doomsday 
+
+
+
+Ronny (vocals)
+Larsen (guitars)
+Pohli (drums)
+Christian Ender (bass)
+Jochen (guitars)
+Andrea (synth)
+
+
+
+### "The age of cataclysm" 1999, Black Metal
+
+1.) The cataclysm
+2.) The abyssal Spectre 
+3.) Born in fire
+4.) Into ashes
+5.) Fallen kingdoms
+6.) When daylight dies
+7.) Blood of the dragon
+8.) Winter of apocalypse
+9.) Black moon
+10.) Angels never die
+11.) Gods of fire and ice
+12.) Necrobiosis
+13.) Dawn of ages
+
+
+Larsen (guitars)
+Ronny (vocals)
+Pohli (drums)
+Christian Ender (bass)
+Micha (guitars)
+Andrea (synth)
+
+
+### "A Coming Storm" 2003, Black Metal
+
+1. Hate Revealed
+2. Messiah
+3. Supersatan
+4. Nocturnal Whispers
+5. The Shadowkeep
+6. Dark Crusade
+7. Bastard
+8. A Coming Storm
+9. Darkness Forever
+10. Obsidian Fragments
+11. The Righteous Slayer
+12. Necromancer
+13. Nightcrawler *
+14. When All Is Said And Done
+
+All songs written by CRYPTIC WINTERMOON
+except * written by JUDAS PRIEST
+Produced by Larsen El Bosso and CRYPTIC WINTERMOON
+Engineered by Larsen El Bosso
+Recorded and mixed at The Frost Studio
+
+Ronny - Vocals
+Andreas - Drums
+Gary - Bass
+Larsen - Guitars
+Andrea - Keyboards
+Michael - Guitars
+
+All bassparts on this album played by Jens Lohner
+
+
+### "Of Shadows..." 2005, Black Metal
+
+1. The dark things you fear
+2. Thrashomatic overdrive
+3. Portals of nightfall
+4. Bonegrinder
+5. Synthetic God
+6. Where the oceans meet eternity
+7. Grave without a name
+8. Once in the windblasted north
+9. W.A.R. (without any regret)
+10.Heavy armed assault
+11.Open fire
+12.Grim frost
+
 
 ## Отношения с другими группами
 

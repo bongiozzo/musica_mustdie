@@ -1,7 +1,19 @@
 # God
 
-Дискография
-"Hell And Heaven [EP]" 2006, Folk
+
+
+## Дискография
+
+### "Hell And Heaven [EP]" 2006, Folk
+
+01. The Promised Land 
+02. Riders Of Hell & Heaven 
+03. Barbarian Gods 
+04. Mystic Song 
+05. Riders From Hell* 
+
+* Special “Hells Angels” version.
+
 
 ## Отношения с другими группами
 

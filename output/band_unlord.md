@@ -1,9 +1,67 @@
 # Unlord
 
-Дискография
-"Schwarzwald" 1997, Death Metal
-"Gladiator" 2000, Death Metal
-"Lord Of Beneath" 2002, Death Metal
+Evil Black/Death Metal
+
+## Дискография
+
+### "Schwarzwald" 1997, Death Metal
+
+1. Inferno Bizarre  3:07 
+2. Uprising Hordes  2:44 
+3. Rivers Of Fire And Blood  3:44 
+4. Schwarzwald  4:25 
+5. Monarchy Dies  1:19 
+6. Heroism  4:56 
+7. Outburst Of Hate  2:25 
+8. Where Fires Burn  3:42 
+9. E Caha Di Bela  4:05 
+10. Messiah Noir  2:17 
+11. Blackbird  4:01 
+12. Thunderbuilder  3:11 
+13. Summoned Be Thy Flesh  3:53 
+
+
+### "Gladiator" 2000, Death Metal
+
+1. Into the gates  0:20 
+2. Hell's gates are opened  3:44 
+3. Swallow all pride  3:29 
+4. Victory  4:34 
+5. Evil spawn  3:58 
+6. Bloodgrief  3:54 
+7. Slavesend  2:36 
+8. Impaled line  1:48 
+9. Hellbender  3:12 
+10. Crushed 'till death  3:22 
+11. Hymn of the gladiator  2:16 
+
+
+
+### "Lord Of Beneath" 2002, Death Metal
+
+1. Into The Dark Ages  
+2. Condemned To The Throne Of Azrael  
+3. Force Of The Serpent  
+4. Horsemen Out Of The Cold  
+5. Angel Of Fire  
+6. Lord Of Beneath  
+7. The Plague  
+8. Begehm Ir Mista Begehm  
+9. Midnight In Hell  
+10. Bloodshed  
+11. Hail Satanas  
+12. Torch The Bastards  
+13. Bring Out The Dead  
+
+
+
+Xzerberus Xzyphiluss - vocals
+Gor Gho Phon - vocal, guitars
+Thorgrim - vocals, guitars
+Yhe - bass
+Stabath - drums
+
+
 
 ## Отношения с другими группами
 

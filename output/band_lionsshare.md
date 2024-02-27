@@ -1,12 +1,81 @@
 # Lion's Share
 
-Дискография
-"Lion's Share" 1995, Heavy Metal
-"Two" 1997, Heavy Metal
-"Fall From Grace" 1999, Heavy Metal
-"Entrance" 2001, Heavy Metal
-"Emotional Coma" 2007, Heavy Metal
-"Dark Hours" 2009, Heavy Metal
+
+
+## Дискография
+
+### "Lion's Share" 1995, Heavy Metal
+
+
+
+### "Two" 1997, Heavy Metal
+
+1.  Wild At Heart
+2.  Lord Of The Pain
+3.  Transient
+4.  Don't Come Easy
+5.  Shadows
+6.  Baptism Of Fire
+7.  Flash In The Night
+8.  World Gone Wrong
+9.  Rat-Face
+
+(P)(C) 1997 CENTURY MEDIA Records
+
+### "Fall From Grace" 1999, Heavy Metal
+
+
+
+### "Entrance" 2001, Heavy Metal
+
+01. Entrance (intro)
+02. Shotgun Messiah
+03. Waiting
+04. Through The Clouds
+05. Lost
+06. Mystery
+07. Believe
+08. War Machine
+09. On And On
+10. Losing My Head
+11. Free Your Mind
+
+
+### "Emotional Coma" 2007, Heavy Metal
+
+Cult Of Denial 
+The Arsonist 
+Emotional Coma (feat. Glen Drover) 
+Clones of Fate 
+The Edge of the Razor (feat. Bruce Kulick) 
+Toxication Rave 
+Trafficking 
+Bloodstained Soil 
+Soultaker 
+Hatred's My Fuel 
+Sorcerers (ANGEL WITCH cover) 
+Ring of Stupidity (bonus track)
+The Edge Of The Razor (bonus video)
+
+Nils Patrik Johansson - вокал
+Lars "Chriss" - гитары
+Sampo Axelsson - бас
+Richard Evensand - ударные
+
+### "Dark Hours" 2009, Heavy Metal
+
+1. Judas Must Die 03:38  
+2. Phantom Rider 03:54  
+3. Demon in Your Mind 03:21  
+4. Heavy Cross to Bear 04:58  
+5. The Bottomless Pit 03:50  
+6. Full Metal Jacket 03:12  
+7. The Presidio 27 03:58  
+8. Barker Ranch 03:41 
+9. Napalm Nights 04:17  
+10. Space Scam 03:59  
+11. Behind the Curtain 05:19 
+
 
 ## Отношения с другими группами
 

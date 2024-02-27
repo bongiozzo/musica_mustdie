@@ -1,9 +1,28 @@
 # Doppelganger
 
-Дискография
-"...Desire Lost Forever?" 2003, Gothic
-"Dancing" 2005, Gothic
-"Saturnian Rings" 2007, Gothic
+gothic-rock
+
+## Дискография
+
+### "...Desire Lost Forever?" 2003, Gothic
+
+1.The Cold
+2.Winters' Misery
+3.Kiss to my last breath
+4.Immortal Lady
+5.The Sins of October
+6.Untitled Dream no.13
+7.Greed
+8.True Romance
+
+### "Dancing" 2005, Gothic
+
+
+
+### "Saturnian Rings" 2007, Gothic
+
+
+
 
 ## Отношения с другими группами
 

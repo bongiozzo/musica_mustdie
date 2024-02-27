@@ -1,7 +1,35 @@
 # Ceremony
 
-Дискография
-"Tyranny from Above" 1993, Deathcore
+
+
+## Дискография
+
+### "Tyranny from Above" 1993, Deathcore
+
+1. Inner Demon
+2. Drowned In Terror
+3. Solitary World
+4. Ceremonial Resurrection
+5. When Tears Are Falling
+6. Humanity
+7. Beyond The Boundaries Of This World
+8. Tribulation Foreseen
+
+ Micha Verboom - Vocals
+ Peter Verhoef - Guitar
+ Ron Vd Polder - Bass
+ Johan Vd Slujis - Guitar
+ Patrik Van Gelder - Drums
+
+All Music Written By Peter & John & Arranged 
+By CEREMONY.
+Produced By Frits & CEREMONY.
+Engineered By Frits Van Mourik.
+Recorded & Mixed At Studio Het Pand,Holland,
+July 1993.
+
+(p)&(c) 1993 CYBER MUSIC
+
 
 ## Отношения с другими группами
 

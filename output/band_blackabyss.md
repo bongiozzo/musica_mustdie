@@ -1,8 +1,54 @@
 # Black Abyss
 
-Дискография
-"Why" 1998, Power Metal
-"Land Of Darkness" 2000, Power Metal
+Power metal
+
+## Дискография
+
+### "Why" 1998, Power Metal
+
+Black Abyss 
+Never 
+Day By Day 
+Revolution 
+Why 
+One And Only 
+Key Of Hope 
+Sleep 
+Father 
+Use The Day 
+
+
+### "Land Of Darkness" 2000, Power Metal
+
+  1.      Eye Of The Storm 
+  2.      Black Mirror 
+  3.      Chainbreaker 
+  4.      Burning Bridges 
+  5.      Frozen Tears ** 
+  6.      Hunted Forever 
+  7.      The Trooper * (Duett with Sven D’anna from Wizard)
+  8.      The Missing Link 
+  9.      Betrayer 
+10.      Land Of Darkness 
+
+
+Vocals: Olliver Hornung
+Guitar: Markus Weiser
+Guitar: Stefan Ruder
+Bass: Bernd Gerosa
+Drums: Andreas Heidmann
+
+
+All music and lyrics by BLACK ABYSS except 
+*  music and lyrics by Steve Harris / IRON MAIDEN 
+** music by BLACK ABYSS and Thorsten Lichtner 
+Additional Backing Vocals by Thorsten Lichtner & Marcus Jьrgens
+All Keyboards by Stephan Waibel 
+Recorded, Mixed & Mastered at SUB ZERO Studios, Backnang, Germany by Ecki Erlenbusch and BLACK ABYSS 
+
+
+
+
 
 ## Отношения с другими группами
 

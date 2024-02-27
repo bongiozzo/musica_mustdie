@@ -1,10 +1,25 @@
 # Soulitude
 
-Дискография
-"The Crawlian Supremacy" 2006, Power Metal
-"Destroy All Humans" 2008, Power Metal
-"Wonderfool World" 2010, Power Metal
-"Requiem for a Dead Planet" 2012, Power Metal
+
+
+## Дискография
+
+### "The Crawlian Supremacy" 2006, Power Metal
+
+
+
+### "Destroy All Humans" 2008, Power Metal
+
+
+
+### "Wonderfool World" 2010, Power Metal
+
+
+
+### "Requiem for a Dead Planet" 2012, Power Metal
+
+
+
 
 ## Отношения с другими группами
 

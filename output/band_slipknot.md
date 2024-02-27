@@ -1,12 +1,144 @@
 # Slipknot
 
-Дискография
-"Mate. Feed. Kill. Repeat." 1996, Metal
-"Slipknot" 1999, Nu Metal
-"Spit It Out (single)" 2000, Nu Metal
-"Iowa" 2001, Nu Metal
-"Vol. 3: The Subliminal Verses" 2004, Nu Metal
-"All Hope Is Gone" 2008, Nu Metal
+Nu metal
+
+## Дискография
+
+### "Mate. Feed. Kill. Repeat." 1996, Metal
+
+1. Slipknot
+2. Gently
+3. Do Nothing (Bitch Slap)
+4. Only One
+5. Tattered & Torn
+6. Confessions
+7. Some Feel
+8. Killers Are Quiet
+9. Dog Fish Rising (Hidden Track)
+
+
+
+Anders Colsefni (vocals)
+Donnie Steele (guitars)
+Josh Brainard (guitars)
+Paul Gray (bass)
+Joey Jordison (drums)
+Shawn Crahan (percussions)
+
+
+### "Slipknot" 1999, Nu Metal
+
+1 74261700027 0:36 (Slipknot) 
+2 (Sic) 3:19 (Slipknot) 
+3 Eyel Ess 3:56 (Slipknot) 
+4 Wait and Bleed 2:27 (Slipknot) 
+5 Sur Facing 3:38 (Slipknot) 
+6 Spit It Out 2:39 (Slipknot) 
+7 Tattered and Torn 2:53 (Slipknot) 
+8 Me Inside 2:39 (Slipknot) 
+9 Liberate 3:06 (Slipknot) 
+10 Proshetics 4:58 (Slipknot) 
+11 No Life 2:47 (Slipknot) 
+12 Diluted 3:23 (Slipknot) 
+13 On L Y One 2:26 (Slipknot) 
+14 Sci Ssor S 8:25 (Slipknot) 
+15 Get This 2:03 (Slipknot) 
+16 Spit It Out [Hyper Version] 2:24 (Slipknot) 
+17 Wait and Bleed [Terry Date Mix] 2:31 (Slipknot) 
+18 Interloper [Demo Version] 2:18 (Slipknot) 
+19 Despise [Demo Version] 3:41 (Slipknot) 
+20 Surfacing [Live] [*] 12:39 (Slipknot) 
+ 
+
+ 
+ 
+
+
+### "Spit It Out (single)" 2000, Nu Metal
+
+1 Spit It Out 9:13 (Slipknot) 
+2 Surfacing [Live] 6:31 (Slipknot) 
+3 Wait and Bleed [Live] 2:45 (Slipknot) 
+
+
+### "Iowa" 2001, Nu Metal
+
+1. People = Shit
+2. Disasterpiece
+3. My Plague
+4. Everything Ends
+5. The Heretic Anthem
+6. Gently
+7. Left Behind
+8. The Shape
+9. I Am Hated
+10. Skin Ticket
+11. New Abortion
+12. Metabolic
+13. Iowa
+
+
+### "Vol. 3: The Subliminal Verses" 2004, Nu Metal
+
+01. Prelude 3.0
+02. The Blister Exists
+03. Three Nil
+04. Duality
+05. Opium Of The People
+06. Circle
+07. Welcome
+08. Vermilion
+09. Pulse Of The Maggots
+10. Before I Forget
+11. Vermilion Pt. 2
+12. The Nameless
+13. The Virus Of Life
+14. Danger - Keep Away
+
+- Corey #8 - vocals
+- Mick #7 - guitar
+- Sid #0 - turntables
+- Shawn #6 - custom percussion
+- Paul #2 - bass
+- Joey #1 - drums
+- Chris #3 - custom percussion
+- James #4 - guitar
+- Craig #5 - samples/media
+
+Produced by Rick Rubin
+Engineer Greg Fidelman
+
+### "All Hope Is Gone" 2008, Nu Metal
+
+01. .execute.
+02. Gematria (The Killling Name)
+03. Sulfur
+04. Psychosocial
+05. Dead Memories
+06. Vendetta
+07. Butcher's Hook
+08. Gehenna
+09. This Cold Black
+10. Wherein Lies Continue
+11. Snuff
+12. All Hope Is Gone
+Bonus:
+13. Child Of Burning Time
+14. Vermilion Pt. 2 (Bloodstone Mix)
+15. 'Til We Die
+
+- Corey #8 - vocals
+- Mick #7 - guitar
+- Sid #0 - turntables
+- Shawn #6 - custom percussion
+- Paul #2 - bass
+- Joey #1 - drums
+- Chris #3 - custom percussion
+- James #4 - guitar
+- Craig #5 - samples/media
+
+Produced by Dave Fortman
+
 
 ## Отношения с другими группами
 

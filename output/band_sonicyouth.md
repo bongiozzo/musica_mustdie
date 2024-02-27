@@ -1,14 +1,52 @@
 # Sonic Youth
 
-Дискография
-"Confusion Is Sex" 1983, Grunge
-"Bad Moon Rising" 1985, Grunge
-"Made in USA" 1986, Grunge
-"EVOL" 1986, Grunge
-"Daydream Nation" 1988, Grunge
-"Dirty" 1992, Grunge
-"Experimental Jet Set, Trash & No Star" 1994, Grunge
-"Washing Machine" 1995, Grunge
+
+
+## Дискография
+
+### "Confusion Is Sex" 1983, Grunge
+
+
+
+### "Bad Moon Rising" 1985, Grunge
+
+
+
+### "Made in USA" 1986, Grunge
+
+
+
+### "EVOL" 1986, Grunge
+
+
+
+### "Daydream Nation" 1988, Grunge
+
+
+
+### "Dirty" 1992, Grunge
+
+
+
+### "Experimental Jet Set, Trash & No Star" 1994, Grunge
+
+
+
+### "Washing Machine" 1995, Grunge
+
+1. Becuz
+2. Junkie's Promise
+3. Saucer-Like
+4. Washing Machine
+5. Unwind
+6. Little Trouble Girl
+7. No Queen Blues
+8. Panty Lies
+9. Skip Tracer
+10.The Diamond Sea
+
+(P)&(C) 1995
+
 
 ## Отношения с другими группами
 

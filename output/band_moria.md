@@ -1,8 +1,26 @@
 # Moria
 
-Дискография
-"PSY." 2009, Thrash
-"Pain Shreds" 2011, Thrash
+
+
+## Дискография
+
+### "PSY." 2009, Thrash
+
+
+
+### "Pain Shreds" 2011, Thrash
+
+1. Battle Is Your Pain
+2. Clouded Mind
+3. Dead Memory
+4. Fragments of Thoughts
+5. Hate, War
+6. My World
+7. Open The Road
+8. Outlaw
+9. Revolution
+10. Truth And Lie
+
 
 ## Отношения с другими группами
 

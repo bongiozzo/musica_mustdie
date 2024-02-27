@@ -1,9 +1,43 @@
 # Secrets Of The Moon
 
-Дискография
-"Carved In Stigmata Wounds" 2004, Black Metal
-"The Axis Zero EP" 2005, Black Metal
-"Antithesis" 2007, Black Metal
+
+
+## Дискография
+
+### "Carved In Stigmata Wounds" 2004, Black Metal
+
+Prophecy:
+Crowns 
+Cosmogenesis 
+Miasma 
+Psychoccult Hymn
+
+Destuny: 
+To the ultimate embers & ash 
+Kaosthrone 
+Evolution Valour Admission
+
+Extinction: 
+Epoch 
+Carved in stigmata wounds 
+Dust
+
+### "The Axis Zero EP" 2005, Black Metal
+
+
+
+### "Antithesis" 2007, Black Metal
+
+01. Nowhere
+02. Versus
+03. Ordinance
+04. Confessions
+05. Metamorphoses
+06. Ghost
+07. Seraphim is Dead
+08. Lucifer Speaks
+09. Exit
+
 
 ## Отношения с другими группами
 

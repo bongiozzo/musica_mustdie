@@ -1,9 +1,40 @@
 # Autumn
 
-Дискография
-"And we are falling leaves..." 1997, Doom
-"Чёрные крылья" 2000, Doom
-"Осень вечна..." 2003, Doom
+doom-metal from Russia
+
+## Дискография
+
+### "And we are falling leaves..." 1997, Doom
+
+1. The End of Last Summer (intro) 
+2. The Druid Autumn  
+3. Whispering your name...  
+4. Fallman  
+5. Gods 
+6. The sons of ocean  
+7. The dance In blood  
+8. Bottomless... 
+9. Shine On Me
+
+### "Чёрные крылья" 2000, Doom
+
+1. Aurora postera (intro)  
+2. Ради этих глаз... 
+3. The conqueror of my heart  
+4. Голодное сердце  
+5. Чёрные крылья  
+6. Гимн безумным (outro)
+
+### "Осень вечна..." 2003, Doom
+
+1. Эпитафия (intro)   
+2. Осень вечна 
+3. Ангелы   
+4. Демон, рвущийся к солнцу   
+5. Заклинание   
+6. Когда наши глаза были чистыми...   
+7. Отчаяние
+
 
 ## Отношения с другими группами
 

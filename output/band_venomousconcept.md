@@ -1,8 +1,17 @@
 # Venomous Concept
 
-Дискография
-"Retroactive Abortion" 2004, Hardcore
-"Poisoned Apple" 2008, Hardcore
+
+
+## Дискография
+
+### "Retroactive Abortion" 2004, Hardcore
+
+
+
+### "Poisoned Apple" 2008, Hardcore
+
+
+
 
 ## Отношения с другими группами
 

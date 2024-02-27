@@ -1,12 +1,33 @@
 # Risk
 
-Дискография
-"The Daily Horror News" 1988, Speed Metal
-"Ratman (EP)" 1989, Speed Metal
-"Hell's Animals" 1989, Speed Metal
-"Dirty Surfaces" 1990, Speed Metal
-"The Reborn" 1992, Metal
-"Turpitude" 1993, Metal
+
+
+## Дискография
+
+### "The Daily Horror News" 1988, Speed Metal
+
+
+
+### "Ratman (EP)" 1989, Speed Metal
+
+
+
+### "Hell's Animals" 1989, Speed Metal
+
+
+
+### "Dirty Surfaces" 1990, Speed Metal
+
+
+
+### "The Reborn" 1992, Metal
+
+
+
+### "Turpitude" 1993, Metal
+
+
+
 
 ## Отношения с другими группами
 

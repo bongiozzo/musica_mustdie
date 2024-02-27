@@ -1,7 +1,29 @@
 # Torchbearer
 
-Дискография
-"Yersinia Pestis" 2004, Thrash
+Swedish death/thrash metal
+
+## Дискография
+
+### "Yersinia Pestis" 2004, Thrash
+
+1. Assail The Creation
+2. Sown Are The Seeds Of Death 
+3. Dead Children, Black Rats 
+4. Faith Bled Dry 
+5. Bearer Of The Torch 
+6. Pest Cometh 
+7. Fad Advanced Closure 
+8. Thus Came Dying Unto Kaffa 
+9. Shorespread God 
+10. Failure's Dawn 
+
+
+Pier Johansson - Lead Vocals
+Christian Avestam - Guitars & Backing Vocals
+Goran Johansson - Guitars
+Mikael Degerman - Bass
+Henrik Schonstrom - Drums
+
 
 ## Отношения с другими группами
 

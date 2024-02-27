@@ -1,7 +1,21 @@
 # Tormented
 
-Дискография
-"Rotten Death" 2009, Death Metal
+
+
+## Дискография
+
+### "Rotten Death" 2009, Death Metal
+
+01. Rotten Death
+02. Vengeance From Beyond The Grave
+03. Blood Of The Undead
+04. Burning Torment
+05. Death Owns The Night
+06. Come Back From The Dead
+07. Drowning In Decaying Flesh
+08. Tomb Of Corpses
+09. Reversed Funeral
+
 
 ## Отношения с другими группами
 

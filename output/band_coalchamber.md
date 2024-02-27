@@ -1,11 +1,42 @@
 # Coal Chamber
 
-Дискография
-"Coal Chamber" 1997, Nu Metal
-"Chamber Music" 1999, Nu Metal
-"Dark Days" 2002, Nu Metal
-"Giving The Devil His Due (Compilation)" 2003, Nu Metal
-"Rivals " 2015, Nu Metal
+
+
+## Дискография
+
+### "Coal Chamber" 1997, Nu Metal
+
+
+
+### "Chamber Music" 1999, Nu Metal
+
+
+
+### "Dark Days" 2002, Nu Metal
+
+
+
+### "Giving The Devil His Due (Compilation)" 2003, Nu Metal
+
+
+
+### "Rivals " 2015, Nu Metal
+
+01. I.O.U. Nothing
+02. Bad Blood Between Us
+03. Light in the Shadows
+04. Suffer in Silence
+05. The Bridges You Burn
+06. Orion
+07. Another Nail in the Coffin
+08. Rivals
+09. Wait
+10. Dumpster Dive
+11. Over My Head
+12. Fade Away (Karma Never Forgets)
+13. Empty Handed
+14. Worst Enemy
+
 
 ## Отношения с другими группами
 

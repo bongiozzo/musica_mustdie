@@ -1,6 +1,9 @@
 # Bloodred Bacteria
 
-Дискография
+powerviolence (Agathocles, Night in Gales members)
+
+## Дискография
+
 
 ## Отношения с другими группами
 

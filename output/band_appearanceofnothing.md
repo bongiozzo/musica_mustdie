@@ -1,8 +1,49 @@
 # Appearance of Nothing
 
-Дискография
-"Wasted Time" 2008, Progressive
-"All Gods Are Gone" 2011, Progressive
+Progressive Metal from Switzerland 
+
+## Дискография
+
+### "Wasted Time" 2008, Progressive
+
+1. Man In The Mirror 05:31  
+2. The Gambler 04:58  
+3. Drifting Away 04:47  
+4. Wasted Time 06:54  
+5. Wrapped In Silence 02:25  
+6. Lies Of A Memory 04:27  
+7. Into The Light 05:18  
+8. Out Of The Dark 06:07  
+9. Reprise 03:11  
+10. The Last Song 02:56 
+
+
+### "All Gods Are Gone" 2011, Progressive
+
+1. The Mirror’s Eyes 06:03  
+2. 2nd God 06:18  
+3. Sweet Enemy 09:00  
+4. Destination 09:10  
+5. The Call of Eve 05:17  
+6. ...I said Silence 07:31  
+7. The Rise and Fall of Nothing 04:56 
+
+
+
+Line-up:
+Pat Gerber - Vocals, guitar
+Omar Cuna - Vocals, bass
+Peter Berger - Lead guitar
+Marc Petralito - Keyboards
+Yves Lьthi - Drums
+
+Produced by Markus Teske, Bazement Studio & Marc Petralito.
+Mixed & Mastered by Markus Teske
+
+Guest appearances:
+Dan Swanц (Edge of Sanity, Nightingale) - Death vocals on "The Mirror's Eyes", "... I said Silence" and "2nd God"
+Devon Graves (Psychotic Waltz, Deadsoul Tribe) - Lead Vocals on "Sweet Enemy" 
+
 
 ## Отношения с другими группами
 

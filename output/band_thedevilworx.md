@@ -1,7 +1,27 @@
 # The Devilworx
 
-Дискография
-"Devilworx" 2009, Alternative
+Septic Flesh members
+
+## Дискография
+
+### "Devilworx" 2009, Alternative
+
+1.The Prayer 
+2.Sloth 
+3.Blessed be my pain 
+4.Pride 
+5.Pathetic people 
+6.Deathrow 
+7.AngHell
+
+
+
+Kostas - Vocals 
+Chris - Guitar 
+Jim - Guitar 
+Seth - Bass 
+Fotis - Drums & Vocals
+
 
 ## Отношения с другими группами
 

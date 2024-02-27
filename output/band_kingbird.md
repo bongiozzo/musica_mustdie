@@ -1,7 +1,26 @@
 # King Bird
 
-Дискография
-"Sunshine" 2008, Hard Rock
+
+
+## Дискография
+
+### "Sunshine" 2008, Hard Rock
+
+1. New Rays of the Old Sun
+2. Road to Ruin
+3. Getting Over My Faith
+4. I've Been Looking
+5. Still Driffitin
+6. Here Comes the Zeppelin
+7. Cross the Muddy River
+8. Where Are You Going
+9. Let the Rock Roll
+10. Dealin with the Boss
+11. Sunshine
+12. Whazzup Jack
+13. Palm Reader
+14. New Day Comin'
+
 
 ## Отношения с другими группами
 

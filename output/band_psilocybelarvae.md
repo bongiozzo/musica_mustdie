@@ -1,9 +1,77 @@
 # Psilocybe Larvae
 
-Дискография
-"Stigmata" 2000, Death Metal
-"Agony" 2003, Death Metal
-"Non-Existence" 2007, Metal
+Death-Black Metal from Vyborg, Russia
+
+## Дискография
+
+### "Stigmata" 2000, Death Metal
+
+1. Yearning Spirit 4:34 
+2. Raped Angels 4:05   
+3. Revenge of Angels 4:37   
+4. The Mystery 2:50 
+5. Stigmata 4:18 
+6. Euthanasia 6:20   
+7. Sun of the Sleepless 4:44   
+8. My Personal Inferno 5:56  
+9. Burning Sunset 4:39 
+
+
+Recorded & Mixed at Signal Records St-Petersburg 2000
+Sound engineers : Max Polyakov & Vova Deshko
+
+Vitaly  -  lead guitar , vocals , samples
+Denis  -  rhythm guitar
+Oleg    -  bass
+Alan    -  drums
+
+All music & lyrics written by Vitaly
+Except  “ Sun of the Sleepless “ lyric by G.G.Byron
+
+### "Agony" 2003, Death Metal
+
+1. Kuiva
+2. Agony
+3. Justified… Crusified
+4. Out Of Sanity
+5. Skywalker
+6. Darkest Sun
+7. Hostile Emptiness
+8. Battle For Your Mind
+9. I’m The Bloodthorn
+10. Dying Slouly
+11. Awake
+
+
+Agony recorded during September-November 2002 at Kalipso studio(St.Petersburg)
+Mixed & mastered by Vladimir Spravtsev
+Produced by Psilocybe Larvae
+All music & lyrics by Vitaly 
+All songs composed during 2001-2002,exept Awake composed in 1997
+Intro in Out of Sanity by Alan
+Cover art by Vladimir Parshikov
+Layout by Kair studio
+Band photo by Alexei Shashkov
+
+### "Non-Existence" 2007, Metal
+
+1. Castaway   
+2. Sleepwalkers   
+3. Let The Flame...   
+4. Cold Desert Of Eternity   
+5. Non-Existent World   
+6. Great Silence   
+7. Asylum   
+8. Threshold   
+9. Condemnation 
+
+
+Larv (Vitaly Belobritsky) - lead guitars, voices
+Liga (Alex Legotin) - bass (Mute Proj, Torquemada)
+Alan (Ilya Piyaev )- drums
+Andrey - rhythm guitar
+Chaos - keyboards
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,13 @@
 # Evanesce
 
-Дискография
-"Sower Of Sedition" 2000, Death Metal
+brutal melodic death metal from UK
+
+## Дискография
+
+### "Sower Of Sedition" 2000, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

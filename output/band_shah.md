@@ -1,10 +1,61 @@
 # Shah
 
-Дискография
-"Beware" 1989, Thrash
-"Terror Collection" 1991, Thrash
-"P.S.I.H.O." 1993, Thrash
-"Escape From Mind" 1994, Thrash
+Russian Thrash
+
+## Дискография
+
+### "Beware" 1989, Thrash
+
+1.  Total Devastation
+2.  Beware
+3.  Coward
+4.  Bloodbrothers
+5.  Save The Human Race
+6.  Age Of Dismay
+7.  Threshold Of Pain (Say "Hi" To Anthrax)
+
+### "Terror Collection" 1991, Thrash
+
+1.  Killing Machine
+2.  Overload
+3.  Damned Sinner
+4.  Age Of Darkness
+5.  Thrashing Metal Race
+6.  Terror Collection
+7.  Masdon Must Die
+8.  Mad Future
+9.  Ashes To Ashes
+10.Metal Fight
+
+(P)c 1991
+
+### "P.S.I.H.O." 1993, Thrash
+
+1. P.S.I.H.O.
+2. Rhythm Of Instincts
+3. Open
+4. Turn Of The Chances
+5. Final Vocal
+6. Terminal Point
+7. Trespass
+8. Through Inside
+
+ Antonio Garcia - Vocals, Guitars
+ Dmitri Saar - Guitars
+ Alexei Ovcinnikov - Bass
+ Andrey Sazonov - Drums
+
+All Songs By Antonio Garcia.
+Produced & Mixed By Antonio Garcia.
+Recorded By Sergei Dolgov & Antonio Garcia.
+Recorded At SNC Studio, Moscow, Feb-Mar. 1993.
+
+(p)&(c) 1993 MOROZ Records
+
+### "Escape From Mind" 1994, Thrash
+
+
+
 
 ## Отношения с другими группами
 

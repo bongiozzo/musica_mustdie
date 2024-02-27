@@ -1,11 +1,29 @@
 # Onanizer
 
-Дискография
-"Split 7" LP with Cause for Effect" 1998, Grindcore
-"Ansikte Mot Ansikte" 1999, Grindcore
-"3-way split live with Podegra/Neurasthenia" 2002, Grindcore
-"Rop" 2003, Grindcore
-"Too Good To Be True" 2005, Grindcore
+Grindcore
+
+## Дискография
+
+### "Split 7" LP with Cause for Effect" 1998, Grindcore
+
+
+
+### "Ansikte Mot Ansikte" 1999, Grindcore
+
+
+
+### "3-way split live with Podegra/Neurasthenia" 2002, Grindcore
+
+
+
+### "Rop" 2003, Grindcore
+
+
+
+### "Too Good To Be True" 2005, Grindcore
+
+
+
 
 ## Отношения с другими группами
 

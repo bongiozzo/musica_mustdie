@@ -1,8 +1,30 @@
 # Satanic Slaughter
 
-Дискография
-"Satanic Slaughter" 1996, Black Metal
-"Banished To the Underworld" 2002, Black Metal
+
+
+## Дискография
+
+### "Satanic Slaughter" 1996, Black Metal
+
+1.  Immortal Death
+2.  Forever I Burn
+3.  Dark Ritual
+4.  Into The Catacombs
+5.  Breath Of The Serpent That Rules The Cold World
+6.  On Black Wings
+7.  Nocturnal Presence
+8.  Legion Of Hades
+9.  Divine Exorcism
+10.  I'll Await My Lord
+11.  Embraced By Darkness
+12.  Domine Lucipherous
+
+(P)c 1996 NECROPOLIS Records //NR04
+
+### "Banished To the Underworld" 2002, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,29 @@
 # Apophis
 
-Дискография
-"Gateway To The Underworld" 1994, Death Doom
-"I Am Your Blindness" 2005, Death Metal
+
+
+## Дискография
+
+### "Gateway To The Underworld" 1994, Death Doom
+
+
+
+### "I Am Your Blindness" 2005, Death Metal
+
+1. Mount To Redeem 01:23  
+2. Sick At Heart 04:32  
+3. Welcome To My World 05:47  
+4. Extinct Life 06:34  
+5. That's Why I've Killed You 07:04  
+6. Reanimation 06:25 
+
+
+Jцrg 'High Tech' Bartelt - Guitar 
+Kristian 'Henne' Hahn - Vocals 
+Roger 'Handwerker' Kirchner - Guitar 
+Erik Stegmaier - Drums 
+Gert Wiedmann - Bass
+
 
 ## Отношения с другими группами
 

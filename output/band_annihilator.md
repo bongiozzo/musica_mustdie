@@ -1,24 +1,350 @@
 # Annihilator
 
-Дискография
-"Alice in Hell" 1989, Thrash
-"Never, Neverland" 1990, Thrash
-"Set the World on Fire" 1993, Thrash
-"King of the Kill" 1994, Thrash
-"Refresh the Demon" 1996, Thrash
-"Remains" 1997, Thrash
-"Criteria for a Black Widow" 1999, Thrash
-"Carnival Diablos" 2000, Thrash
-"Waking the Fury" 2002, Thrash
-"Double Live Annihilation" 2003, Thrash
-"All For You" 2004, Thrash
-"Schizo Deluxe" 2005, Thrash
-"Metal" 2007, Thrash
-"Live at Masters of Rock [CD/DVD]" 2009, Thrash
-"Annihilator" 2010, Thrash
-"Feast" 2013, Thrash
-"Suicide Society (single)" 2015, Thrash
-"Suicide Society" 2015, Thrash
+Canadian Super Star, Techno Thrash
+
+## Дискография
+
+### "Alice in Hell" 1989, Thrash
+
+1. Crystal Ann
+2. Alison Hell
+3. W.T.Y.D.
+4. Wicked Mystic
+5. Burns Like Buzzsaw Blade
+6. Word Salad
+7. Shizos (Are Never Alone) Part I & II
+8. Ligeia
+9. Human Insecticide
+
+(p)&(c) 1989 ROADRUNNER
+
+### "Never, Neverland" 1990, Thrash
+
+1.  The Fun Palace
+2.  Road To Ruin
+3.  Sixes And Sevens
+4.  Stonewall
+5.  Never, Neverland
+6.  Imperiled Eyes
+7.  Kraf Dinner
+8.  Phantasmagoria
+9.  Reduced To Ash
+10.I Am In Command
+
+(p)&(c) 1990 ROADRUNNER
+
+### "Set the World on Fire" 1993, Thrash
+
+1. Set The World On Fire
+2. No Zone
+3. Bats In The Belfry
+4. Snake In The Grass
+5. Phoenix Rising
+6. Knight Jumps Queen
+7. Sounds Good To Me
+8. The Edge
+9. Don`t Bother Me
+10.Brain Dance
+
+ Aaron Randall - Vocals
+ Jeff Waters - Guitar
+ Neil Goldberg - Guitar
+ Wayne Darley - Bass
+ Mike Magini - Drums
+
+All Songs Written By ANNIHILATOR.
+Produced By Jeff Waters.
+Engineered By Paul Blake.
+Recorded At Fiasco Brothers Recording,
+New Westminster & Creation Studios,Vancouver B.C.
+
+(p)&(c) 1993 ROADRUNNER Prod. B.V.
+
+### "King of the Kill" 1994, Thrash
+
+1.  The Box
+2.  King Of The Kill
+3.  Hell Is A War
+4.  Bliss
+5.  Second To None
+6.  Annihilator
+7.  21
+8.  In The Blood
+9.  Fiasco (State)
+10.Fiasco
+11.Catch The Wind
+12.Speed
+13.Bad Child
+
+
+
+### "Refresh the Demon" 1996, Thrash
+
+1.  Refresh The Demon
+2.  Man Called Nothing
+3.  Hunger
+4.  Syn Kill I
+5.  Ultraparanoia
+6.  Voices And Victims
+7.  Awaken
+8.  City Of Ice
+9.  Innocent Eyes
+10.Pastor Of Disaster
+11.Anything For Money
+
+All songs written by Jeff Waters.
+Produced by Jeff Waters.
+Recorded at Waters Sound Studios, Mapleridge BC
+
+
+
+### "Remains" 1997, Thrash
+
+1. Murder 04:27
+2. Sexecution 04:35
+3. No Love 04:46 
+4. Never 05:15
+5. Human Remains 02:20
+6. Dead Wrong 05:13 
+7. Wind 04:21 
+8. Tricks and Traps 04:59  
+9. I Want 04:26  
+10. Reaction 03:28 
+11. Bastiage 04:39 
+
+### "Criteria for a Black Widow" 1999, Thrash
+
+1. Bloodbath 
+2. Back To The Palace 
+3. Punctured 
+4. Criteria For A Black Widow 
+5.Schizos (are never alone) part 3 
+6. Nothing Left 
+7. Loving The Sinner 
+8. Double Dare 
+9. Sonic Homicide 
+10. Mending 
+
+
+Randy Rampage : Vocals
+Jeff Waters : Guitars
+Ray Hartman : Drums
+Dave Davis : Guitar
+Russell Bergquist : Bass 
+
+Produced by : Jeff Waters
+
+ 
+
+
+### "Carnival Diablos" 2000, Thrash
+
+1. Denied
+2. The Perfect Virus
+3. Battered
+4. Carnival Diablos
+5. Shallow Grave
+6. Time Bomb
+7. The Rush
+8. Insomniac
+9. Liquid Oval
+10. Epic Of War
+11. Hunter Killer
+12. The Box
+13. Riff Raff
+
+
+### "Waking the Fury" 2002, Thrash
+
+1. Ultramotion 
+2. Torn 
+3. My Precious Lunatic Asylum 
+4. Striker 
+5. Ritual 
+6. Prime Time Killing 
+7. The Blackest Day 
+8. Nothing to Me 
+9. Firepower 
+10. Coldblooded
+
+
+Joe Comeau: Vocals
+Jeff Waters: Guitars
+Randy Black: Drums
+Curran Murphy: Guitar
+Russell Berquist : Bass
+
+Produced By Jeff Waters
+
+
+### "Double Live Annihilation" 2003, Thrash
+
+01. Murder
+02. Ultra Motion
+03. The Box
+04. Denied
+05. The Blackest Day
+06. King Of The Kill
+07. Torn Lunatic Asylum
+08. Set The World On Fire
+09. I Am In Command
+10. Refresh The Demon
+11. Syn. Kill 1
+12. Never, Neverland
+13. Striker
+14. Bliss
+15. Phantasmagoria
+16. Crystal Ann
+17. Alison Hell
+18. Shallow Grave 
+
+### "All For You" 2004, Thrash
+
+
+
+### "Schizo Deluxe" 2005, Thrash
+
+Maximum Satan 
+Drive 
+Warbird 
+Plasma Zombies 
+Invite It
+Like Father, Like Gun 
+Pride 
+Too Far Gone 
+Clare 
+Something Witchy
+
+### "Metal" 2007, Thrash
+
+1. Clown Parade – feat. Jeff Loomis (Nevermore) 
+2. Couple Suicide – feat. Danko Jones (Danko Jones) & Angela Gossow (Arch Enemy) 
+3. Army Of One – feat. Steve ґLips` Kudlow (Anvil) 
+4. Downright Dominate – feat. Alexi Laiho (Children Of Bodom) 
+5. Smothered – feat. Anders Bjшrler (The Haunted) 
+6. Operation Annihilation – feat. Michael Amott (Arch Enemy) 
+7. Haunted – feat. Jesper Strшmblad (In Flames) 
+8. Kicked – feat. Corey Beaulieu (Trivium) 
+9 . Detonation – feat. Jacob Lynam (Lynam) 
+10. Chasing The High – feat. William Adler (Lamb Of God)
+
+Line-up:
+Dave Padden - Vocals & Rhythm Guitar
+Jeff Waters - Lead/Rhythm Guitars & Bass
+Mike Mangini - Drums
+
+### "Live at Masters of Rock [CD/DVD]" 2009, Thrash
+
+1. Intro   
+2. King Of The Kill  
+3. Blackest Day 
+4. Operation Annihilation 
+5. Clown Parade  
+6. Set The World On Fire 
+7. I Am In Command
+8. Never, Neverland 
+9. Fun Palace 
+10. Phantasmagoria 
+11. W.T.Y.D. 
+12. Wicked Mystic
+13. Alison Hell 
+14. Shallow Grave 
+15. Credits 
+
+### "Annihilator" 2010, Thrash
+
+1. The Trend 07:04 
+2. Coward 04:21  
+3. Ambush 03:21 
+4. Betrayed 04:34
+5. 25 Seconds 04:49
+6. Nowhere To Go 05:07  
+7. The Other Side 04:19
+8. Death In Your Eyes 05:58
+9. Payback 04:47 
+10. Romeo Delight (Van Halen cover) 04:26 
+
+Dave Padden - Vocals
+Jeff Waters - Guitars, Bass
+Ryan Ahoff - Drums 
+
+### "Feast" 2013, Thrash
+
+1. Deadlock
+2. No Way Out
+3. Smear Campaign
+4. No Surrender
+5. Wrapped
+6. Perfect Angel Eyes
+7. Demon Code
+8. Fight The World
+9. One Falls, Two Rise 
+
+
++ Bonus Disc “Re-Kill” (best of rerecorded 2012)
+1. Fun Palace
+2. Alison Hell
+3. King of the Kill
+4. Never, Neverland
+5. Set the World on Fire
+6. Welcome To Your Death
+7. No Zone
+8. Bloodbath
+9. 21
+10. Stonewall
+11. Ultra Motion
+12. Time Bomb
+13. Refresh the Demon
+14. Word Salad
+15. Brain Dance
+
+
+
+Jeff Waters - Guitars, Vocals 
+Dave Padden - Vocals, Guitars (rhythm) 
+Alberto Campuzano - Bass
+Mike Harshaw - Drums 
+
+
+### "Suicide Society (single)" 2015, Thrash
+
+1. Suicide Society  03:50 
+
+### "Suicide Society" 2015, Thrash
+
+Disc 1  
+1. Suicide Society  03:50    
+2. My Revenge  05:06   
+3. Snap  04:54    
+4. Creepin' Again  04:16
+5. Narcotic Avenue  05:19    
+6. The One You Serve  05:45    
+7. Break, Enter  05:47   
+8. Death Scent  05:11   
+9. Every Minute  05:00     
+
+Disc 2 - Raven Street Sessions  
+1. Deadlock (Live in Studio)  05:23 
+2. Set the World on Fire (Live in Studio)   04:50 
+3. Knight Jumps Queen (Live in Studio)   04:34  
+4. Ambush (Live in Studio)  03:38  
+5. Never, Neverland (Live in Studio)  05:59 
+6. Time Bomb (Live in Studio)  05:18 
+7. Smear Campaign (Live in Studio) 04:54 
+8. Carnival Diablos (Live in Studio)   05:17
+9. Reduced to Ash (Live in Studio)  03:16  
+10. I Am in Command (Live in Studio)  04:24 
+11. Jeff Talks "Suicide Society"  01:18  
+12. Jeff Talks "Creepin' Again"  01:13   
+13. Jeff Talks "Snap"  00:38  
+14. Jeff Talks "Narcotic Avenue"  00:36    
+15. Jeff Talks "My Revenge"  01:06   
+16. Jeff Talks "The One You Serve"  00:57  
+17. Jeff Talks "Break, Enter"  02:01
+18. Jeff Talks "Death Scent"  00:31 
+19. Jeff Talks "Every Minute"  01:35 
+
+
 
 ## Отношения с другими группами
 

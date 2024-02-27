@@ -1,6 +1,9 @@
 # Manic Depression Psychosis
 
-Дискография
+dark-progressive band from Armenia
+
+## Дискография
+
 
 ## Отношения с другими группами
 

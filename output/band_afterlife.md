@@ -1,7 +1,31 @@
 # Afterlife
 
-Дискография
-"Surreality" 1993, Death Metal
+Brutal Deathcore
+
+## Дискография
+
+### "Surreality" 1993, Death Metal
+
+1. Surreality
+2. Eve Of Eclipse
+3. Divine Enlightment
+4. Dreaming The Marrow
+5. Embrace
+6. Shell Of A Being
+7. Dead Lights Gla
+
+ Paul Ritchings - Vocals
+ Chris Elliot - Guitars
+ Larry Mancini - Guitars
+ Ben Elliot - Bass
+ Dave Ross - Drums
+
+All Songs By AFTERLIFE.
+Engineered By Phil Bonnet.
+Recorded At Solid Sound Studios,IL,USA.
+
+(p)&(c) 1993 GRIND CORE Records
+
 
 ## Отношения с другими группами
 

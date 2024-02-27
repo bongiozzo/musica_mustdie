@@ -1,10 +1,71 @@
 # Terem
 
-Дискография
-"Satan's Orgy (Demo - Self Release)" 2001, Black Metal
-"Your Grave (Mini - Self Release)" 2002, Black Metal
-"Live Destruction (split with Butchery)(Video - Live)" 2003, Black Metal
-"Terem For "UnderGround Group" (Demo - Self-release)" 2004, Black Metal
+
+
+## Дискография
+
+### "Satan's Orgy (Demo - Self Release)" 2001, Black Metal
+
+1. Your Grave
+2. Rape Me (Nirvana)
+3. Самоубийца
+4. Кровь Зверя
+5. Казнь (Instrumental)
+6. Sabbath In Dark Forest (Instrumental)
+
+All songs writted by LAST MAD, accept No.2
+Consert recorded by LAST MAD at 25/12/2001
+Mixed by Belyaev Victor at 18/02/2002
+
+Wolf (Kondratov Grigory) - Vocals, Guitars
+Forgoth (Vichkutkin Denis) - Bass
+S.A.Tyr (Belyaev Victor) - Drums
+
+(p)(c) 2001 LAST MAD Recordings
+
+### "Your Grave (Mini - Self Release)" 2002, Black Metal
+
+1. Кровь Зверя
+2. Казнь
+3. Black Being
+4. Плач Из Могилы
+5. Your Grave
+6. Morbid Angel
+7. Смерть пришла...
+
+All songs writted by TEREM
+Recoded by TEREM at 16, 17, 21, 22 dec. 2002, 25, 26 jan. 2003
+Mixed by S.A.Tyr at 16, 17, 21, 22 dec. 2002, 2 feb. 2003
+
+Wolf - Guitars
+Forgoth - Bass
+S.A.Tyr - Drums
+Raven - Vocals
+
+(p)(c) 2002 LAST MAD Recordings
+
+### "Live Destruction (split with Butchery)(Video - Live)" 2003, Black Metal
+
+
+
+### "Terem For "UnderGround Group" (Demo - Self-release)" 2004, Black Metal
+
+1. В Паутине Злотворцев
+2. Из Глубины Веков
+3. Hunnerkongens Sorgsvarte Ferd (Dimmu Borgir Cover)
+
+All songs writted by TEREM
+Recoded by TEREM at jan.-feb. 2003
+Mixed by S.A.Tyr jan.-feb. 2003
+
+Wolf - Guitar
+Forgoth - Bass
+S.A.Tyr - Drums
+Raven - Vocals
+Svarog - Guitar
+
+(p)(c) 2004 LAST MAD Recordings
+
 
 ## Отношения с другими группами
 

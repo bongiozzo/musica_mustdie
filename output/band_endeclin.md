@@ -1,8 +1,38 @@
 # En Declin
 
-Дискография
-"Trama" 2005, Gothic
-"Domino-Consequence" 2009, Gothic
+gothic-rock from Italy
+
+## Дискография
+
+### "Trama" 2005, Gothic
+
+1. ( )	 
+2. Until Bleeding
+3. 1647
+4. My Anger
+5. Still Anger
+6. When Edge...
+7. ...Turns Blade
+8. Isquosadmove
+9. Lost...
+10. ...In The TRAMA
+11. A Passage...
+
+### "Domino-Consequence" 2009, Gothic
+
+1. Fourteen Days	 
+2. Over	 
+3. Envied Routine	 
+4. Naiive	 
+5. Domino	 
+6. Consequence	 
+7. Keyword Out Of Context	 
+8. Leave Apart A Sense	 
+9. The Script	 
+10. While My Guitar Gently Weeps (The Beatles cover)	 
+11. Dipped	 
+12. Keyword Out Of Context (Italian version)(Bonus Track)	
+
 
 ## Отношения с другими группами
 

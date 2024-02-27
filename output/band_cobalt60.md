@@ -1,7 +1,35 @@
 # Cobalt 60
 
-Дискография
-"Elemental" 1996, Industrial
+
+
+## Дискография
+
+### "Elemental" 1996, Industrial
+
+1. Bye Bye (3.58)
+2. T.O.M.A.M. (3.51)
+3. Before (3.39)
+4. You Are (4.19)
+5. The Worried Well (5.12)
+6. If I Was (3.33)
+7. La Mort (4.50)
+8. In The Valley (4.36)
+9. Born Again (4.49)
+10.Little Planet * (3.42)
+11.Poor Poor Pam (3.04)
+
+All songs by D.Lallement/J.- L. De Meyer.
+Produced by Craig Leon
+Engineered by Marcus Green
+Recorded at the Doghouse Studio, Henley-On-Thames
+Mixed at Eden Studios, London
+
+Jean-Luc De Meyer - Vocals
+Dominique Lallement - Machines
+Backing Vocals on * by Cassell Webb
+
+(p)(c) 1996 'EDEL'
+
 
 ## Отношения с другими группами
 

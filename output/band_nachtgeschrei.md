@@ -1,7 +1,41 @@
 # Nachtgeschrei
 
-Дискография
-"Hoffnungsschimmer" 2008, Folk
+
+
+## Дискография
+
+### "Hoffnungsschimmer" 2008, Folk
+
+01. Intro
+02. Hoffnungsschimmer
+03. Rauber der Nacht
+04. Deine Spur
+05. Windstill
+06. Drei Lugen
+07. Lass mich raus
+08. Wutis
+09. Die Flugel
+10. Das Spiel
+11. Der Meister
+12. Reise zu den Seen
+
+Hotti (Gesang, Gitarre)
+Joe (Drehleier, Akkordeon)
+Nik (Dudelsack, Flote)
+Tilman (Gitarre)
+Sane (Gitarre)
+Oli (Bass)
+Danu (Schlagzeug)
+
+Produziert und aufgenommen von NACHTGESCHREI
+Gemischt und gemastert von Frank Motnik in den FMO
+Studios Frankfurt/Main wuTV.fmostudios.com
+Cover Artwork von Daniel Giinther
+Bandfoto von Caroline Marie Rubach
+Artworks basieren auf Bildern von www.photocase.de
+www.nachtgeschrei.de
+Musik und Texte verlegt von Sylvian Music
+
 
 ## Отношения с другими группами
 

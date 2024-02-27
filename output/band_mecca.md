@@ -1,7 +1,40 @@
 # Mecca
 
-Дискография
-"Mecca" 2002, Rock
+
+
+## Дискография
+
+### "Mecca" 2002, Rock
+
+Velocitized
+Without You
+Can't Stop Love
+Silence of the Heart
+You Still Shock Me
+Mecca
+Wishing Well
+Close That Gap
+Blinded by Emotion
+Falling Down 
+
+
+Lead vocals - Joe “JV” Vana
+Lead vocals - Fergie Frederiksen
+Guitars - Mike Aquino
+Bass Guitar - David Hungate
+Drums and Percussion - Shannon Forrest
+Keyboards - Jimmy Nichols 
+
+Recorded using the 80-channel API Legacy Counsel at The Legendary "Big Boy" Room, The Sound Kitchen, Franklin, Tennessee 
+Overdubs at Legacy Sound Recorders, Burr Ridge, Illinois 
+
+
+Engineered by Larry Millas. Produced by Jim Peterik and Larry Millas
+Executive Producer: Wasabi! LLC 
+
+
+
+
 
 ## Отношения с другими группами
 

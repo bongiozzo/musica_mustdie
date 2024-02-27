@@ -1,18 +1,222 @@
 # Nightfall
 
-Дискография
-"Parade Into Centuries" 1993, Death Doom
-"Oh Black Queen, Oh You're Mine" 1993, Death Doom
-"Macabre Sunsets" 1994, Death Doom
-"Athenian Echoes" 1995, Death Doom
-"Eons Aura" 1995, Death Doom
-"Lesbian Show" 1997, Death Doom
-"Electronegative" 1999, Death Doom
-"Diva Futura" 1999, Death Doom
-"I am Jesus" 2003, Death Doom
-"LYSSA: Rural Gods And Astonishment Punishments" 2004, Death Doom
-"Astron Black and the Thirty Tyrants" 2010, Metal
-"Cassiopeia" 2013, Metal
+Satanic Melodic Band from Greece
+
+## Дискография
+
+### "Parade Into Centuries" 1993, Death Doom
+
+1. Thoughts
+2. Domestication Of Wildness
+3. Vanity
+4. The Passage
+5. In God They Trust (Intro)
+6. For My Soul,When Dark Fal
+7. Immaculate / Enslaved By Need
+8. Birth (Intro)
+9. Crying Out The Fear Within
+10.Domestication Of Wildness
+      (Longest And Deadliest Version) *
+
+* CD Extra Track
+
+ Efthimis K. - Bass,Vocals & Keyboards
+ Mike G. - Guitars
+ Christian A. - Guitars
+ Costas S. - Drums
+
+Produced & Mixed By C.Parisis & Efthimis K.
+Engineered By C.Parisis.
+Recorded April - May 1992 At "Praxis" Studios,Athens.
+
+(p)&(c) 1993 HOLY Records
+
+### "Oh Black Queen, Oh You're Mine" 1993, Death Doom
+
+Blasphemous side
+
+As Your God Is Failing Once Again
+
+Deadly Side
+
+Enormous/The Anthem of the Death (edit)
+
+
+### "Macabre Sunsets" 1994, Death Doom
+
+1. Epolis Ealo (odious)
+2. Precious/ All My Love Is Lost
+3. As Your God Is Failing Once Again
+4. Macabre Sunsets / Love Songs For  A Black Soul
+5. Bitterness Leads To My Savoir Death
+6. Mothewr Of All Gods, Mother Of Mine
+7. Poetry Of Death
+8. Enormous/ The Anthem Of Death
+9. As Your God Is Failing Once Again
+
+ Efthimis K. - Bass/vocals,guitars
+ Mike G. - Guitars
+ Chris A. - Guitars
+ Costas S. - Drums
+
+(p)(c) 1994 HOLY Records
+
+
+### "Athenian Echoes" 1995, Death Doom
+
+1. Aye Azure
+2. Armada
+3. Ishtar (Celebrate Your Beauty)
+4. The Vineyard
+5. I'am Daemond
+6.Iris (And The Burning Aureole)
+7. My Red,Red Moon  (Emma O)
+8. Monuments Of Its Own Magnificience
+
+All Songs Written By NIGHTFALL.
+Produced By Efthimis Karadimas.
+Engineered  & Mixed By C.Parisis.
+Recorded At Praxis Studio,Athens.
+
+Efthimis Karadimas - Bass, Vocals, Guitars
+Mike Galiatsos - Guitars
+Chris Adamon - Guitars
+Costas Savidis - Drums
+George Aspiotis - Keyboards
+
+(P)&(C) 1995 HOLY Records
+
+### "Eons Aura" 1995, Death Doom
+
+1. Eroding
+2. Ardour Was I
+3. Until The Day God Helps Us All
+4. Thor *
+
+ Efthimis Karadimas - Bass, Vocals, Guitars
+ Mike Galiatsos - Guitars
+ Chris Adamou - Guitars
+ Costas Savidis - Drums
+ George Aspiotis - Samples, Keyboards
+
+All Songs Written By NIGHTFALL, Except * By MANOWAR
+Produced By Efthimis Karadimas & Mike Galiatsos
+Engineered By C. Parisis
+Recorded At Praxis Studio, Autumn 1994
+
+(p)&(c) 1995 HOLY Records
+
+### "Lesbian Show" 1997, Death Doom
+
+1. Lesbian Show			3:04
+2. Aenaon			4:31
+3. Dead Woman, Adieu		3:47
+4. The Secret Admirer		5:12
+5. My Own Troy			4:05
+6. The Fleshmaker		5:34
+7. Death Star			3:26
+8. Cold Bloody Killer		5:47
+9. Lashed Augusth Reign		6:10
+
+Efthimis Karadimas - Bass & Vocals
+Mike Galiatsos - Guitars
+Jim Agelopoulos - Guitars
+Costas Savidis - Drums
+
+Recorded at Tico-Tico Studio, Kemi, Finland, 
+December 1996 - January 1997.
+Engineered by Ahti Kortelainen.
+Mixed by Ahti Kortelainen and Efthimis Karadimas
+Produced by Efthimis Karadimas and Mike Galiatsos
+Poetry and Music by Efthimis Karadimas.
+Hammond and Keys by George Aspiotis
+
+(p)(c)1997 Holy Records
+
+### "Electronegative" 1999, Death Doom
+
+1. Diva
+2. The Sunless Smile
+3. Dead Don't Need Revenge
+4. Everything
+
+### "Diva Futura" 1999, Death Doom
+
+1. Master, Faster, Sweet Desaster
+2. Sin
+3. The Sheer Misfit
+4. Diva
+5. Licked One's Iced Lips
+6. Picture Me
+7. Some Deaths Take For Ever
+8. Lowve
+9. Ceaseless
+10. My Trator's Kiss
+11. Pleasure
+
+### "I am Jesus" 2003, Death Doom
+
+1. Death Of Neira
+2. Senior Lover Of Diamanda
+3. I Am Jesus
+4. Pale Crescendo Of Diamand Suns
+5. Luciferin
+6. Muscat
+7. The Poor Us
+8. I've Never Dream The Life We Share
+9. Treasures In Aramatic Tears
+10. Semana Tragica
+11. Nightfall
+
+### "LYSSA: Rural Gods And Astonishment Punishments" 2004, Death Doom
+
+1. Dark red sky 03:28  
+2. Swollen 03:12  
+3. Christless 03:46  
+4. Master of my dreams 03:39  
+5. The perfect li(f)e 03:59  
+6. The end times 04:04  
+7. Synastry 03:45  
+8. One of these days 05:01  
+9. Victimized 03:16  
+10. So(u)l invictus 03:11  
+11. Essence 03:07
+
+### "Astron Black and the Thirty Tyrants" 2010, Metal
+
+1. Intro 00:37  
+2. Astron Black 04:20  
+3. Astronomica / Saturnian Moon 04:09  
+4. Astra Planeta / We Chose the Sun 04:43  
+5. Ambassador Of Mass 04:34  
+6. The Criterion 03:13  
+7. Asebeia 04:16  
+8. I-I 01:14  
+9. Archon Basileus 03:28  
+10. Proxima Centauri / Dead Bodies 04:44  
+11. The Thirty Tyrants 04:11  
+12. Epsilon Lyrae 03:33 
+
+
+Recorded at various places, including Soundlodge in Germany. Produced by
+Karadimas and Uken (God Dethroned, Sinister)
+
+Cover artwork by Travis Smith (Nevermore, Opeth, Katatonia, Death). 
+
+### "Cassiopeia" 2013, Metal
+
+01. Phaethon 04:35 
+02. Oberon & Titania 04:33 
+03. Colonized Cultures 03:21 
+04. The Nightwatch 04:49 
+05. Stellar Parallax 04:05 
+06. Hubris 05:18 
+07. The Reptile Gods 04:42 
+08. Hyperion 04:27 
+09. Akhenaton, the 9th Pharaoh of the 18th Dynasty 04:10 
+10. The Sand Reckoner 04:20 
+11. Astropolis 06:14
+
 
 ## Отношения с другими группами
 

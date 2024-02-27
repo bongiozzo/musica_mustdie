@@ -1,13 +1,37 @@
 # Girl
 
-Дискография
-"Sheer Greed" 1980, Heavy Metal
-"Wasted Youth" 1982, Heavy Metal
-"Blood, Women, Roses" 1987, Heavy Metal
-"Have Yourself a Rockin' Swingin' Cristmas" 1997, Rock
-"Live at the Marquee (live)" 2001, Heavy Metal
-"Live at the Exposition Hall, Osaka Japan (live)" 2001, Heavy Metal
-"Anthology (compilation)" 2002, Heavy Metal
+indie rock
+
+## Дискография
+
+### "Sheer Greed" 1980, Heavy Metal
+
+
+
+### "Wasted Youth" 1982, Heavy Metal
+
+
+
+### "Blood, Women, Roses" 1987, Heavy Metal
+
+
+
+### "Have Yourself a Rockin' Swingin' Cristmas" 1997, Rock
+
+
+
+### "Live at the Marquee (live)" 2001, Heavy Metal
+
+
+
+### "Live at the Exposition Hall, Osaka Japan (live)" 2001, Heavy Metal
+
+
+
+### "Anthology (compilation)" 2002, Heavy Metal
+
+
+
 
 ## Отношения с другими группами
 

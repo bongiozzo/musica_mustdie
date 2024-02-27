@@ -1,8 +1,31 @@
 # Manes
 
-Дискография
-"Under ein blodraud maane" 1995, Black Metal
-"Vilosophe" 2003, Alternative
+
+
+## Дискография
+
+### "Under ein blodraud maane" 1995, Black Metal
+
+1. Min trone star til evig tid		5:34  
+2. Maanes natt			6:18  
+3. Uten liv ligger landet ode		5:41  
+4. De morke makters dyp		7:38  
+5. Under ein blodraud maane		5:33  
+6. Til kongens grav de dode vandrer	6:29  
+
+
+### "Vilosophe" 2003, Alternative
+
+i. nodamnbrakes
+ii. diving with your hands bound (nearly flying)
+iii. white devil black shroud
+iv. terminus a quo / terminus ad quem
+v. death of the genuine
+vi. ende
+vii. the hardest of comedowns
+viii. confluence
+
+
 
 ## Отношения с другими группами
 

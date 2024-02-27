@@ -1,9 +1,61 @@
 # Pegazus
 
-Дискография
-"Wings of Destiny" 1998, Heavy Metal
-"Breaking the Chains" 1999, Heavy Metal
-"The Headless Horseman" 2002, Heavy Metal
+(Australian)
+
+## Дискография
+
+### "Wings of Destiny" 1998, Heavy Metal
+
+   1.   Wings of Steel (Stoj) - 5:38 
+   2.   Cry Out (Stoj) - 4:37 
+   3.   Braveheart (Stoj) - 5:25 
+   4.   Mother Earth (Stoj) - 5:12 
+   5.   Enchanted World (King/Stoj/Stoji) - 8:22 
+   6.   Life on Mars [instrumental] (Stoj) - 4:06 
+   7.   The Werewolf (Stoj) - 3:30 
+   8.   Witches Hex (Stoj) - 7:11 
+   9.   Destiny (Stoj) - 5:29 
+
+
+Dave King  -  Bass 
+Andreas Marshall  -  Artwork 
+Pegazus  -  Producer 
+David Briggs  -  Mastering 
+
+
+
+### "Breaking the Chains" 1999, Heavy Metal
+
+   1.   Metal Flower - 4:35 
+   2.   The Crusade - 7:43 
+   3.   Queen Evil - 6:26 
+   4.   Breaking the Chains - 4:12 
+   5.   Tears of the Angels - 4:05 
+   6.   Chariots of the Gods - 7:14 
+   7.   Emerald Eyes [Acoustic Instrumental] - 2:40 
+   8.   Bastards of War - 5:32 
+   9.   Apache Warrior - 3:42 
+   10.   A Little Time [*] - 3:51 
+
+
+
+
+
+### "The Headless Horseman" 2002, Heavy Metal
+
+Intro
+The Headless Horseman
+Nightstalker
+A Call To Arms
+The Patriot
+Look To The Stars
+Dragon Slayer
+Spread Your Wings
+Forever Chasing Rainbow
+Victim
+Neon Angel
+Ballad Of A Thin Man
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,21 @@
 # Shadow Cut
 
-Дискография
-"Pictures of Death" 2005, Death Metal
+
+
+## Дискография
+
+### "Pictures of Death" 2005, Death Metal
+
+1. Drug/ Murder/ Them 4:11
+2. Throatcuts Nine 4:39
+3. My Sweet Cult 4:57
+4. Hate 5:08
+5. Servant of Pain 4:09
+6. Pictures of Death 3:25
+7. The End of Humanity 6:18
+8. Inter Arma 8:28
+9. Manifest 00:50
+
 
 ## Отношения с другими группами
 

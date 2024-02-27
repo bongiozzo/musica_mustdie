@@ -1,11 +1,29 @@
 # Semargl
 
-Дискография
-"Attack On God" 2005, Black Metal
-"Satanogenesis" 2006, Black Metal
-"Manifest" 2007, Black Metal
-"Ordo Bellictum Satanas" 2010, Black Metal
-"Satanic Pop Metal" 2012, Metal
+
+
+## Дискография
+
+### "Attack On God" 2005, Black Metal
+
+
+
+### "Satanogenesis" 2006, Black Metal
+
+
+
+### "Manifest" 2007, Black Metal
+
+
+
+### "Ordo Bellictum Satanas" 2010, Black Metal
+
+
+
+### "Satanic Pop Metal" 2012, Metal
+
+
+
 
 ## Отношения с другими группами
 

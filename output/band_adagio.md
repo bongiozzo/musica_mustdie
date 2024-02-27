@@ -1,7 +1,13 @@
 # Adagio
 
-Дискография
-"Romantic Serenades" 2000, Death Doom
+Classic Doom-Death Metal
+
+## Дискография
+
+### "Romantic Serenades" 2000, Death Doom
+
+
+
 
 ## Отношения с другими группами
 

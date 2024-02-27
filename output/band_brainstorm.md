@@ -1,18 +1,198 @@
 # Brainstorm
 
-Дискография
-"Hungry" 1997, Power Metal
-"Unholy" 1998, Power Metal
-"Ambiguity" 2000, Power Metal
-"Metus Mortis" 2001, Power Metal
-"Soul Temptation" 2003, Heavy Metal
-"Liquid Monster" 2005, Heavy Metal
-"All Those Words (single)" 2005, Heavy Metal
-"Downburst" 2008, Heavy Metal
-"Memorial Roots" 2009, Power Metal
-"On the Spur of the Moment" 2011, Heavy Metal
-"Firesoul" 2014, Power Metal
-"Scary Creatures" 2016, Power Metal
+
+
+## Дискография
+
+### "Hungry" 1997, Power Metal
+
+
+
+### "Unholy" 1998, Power Metal
+
+1. MCMXCVIII
+2. Holy War
+3. Here Comes The Pain (MP3)
+4. Voices (MP3)
+5. The Healer
+6. Don't Stop Believing
+7. Heart Of Hate
+8. Rebellion
+9. For The Love Of Money
+10. Love Is A Lie
+11. Into The Fire
+12. Dog Days Coming Down
+Bonus track on some CDs
+and all CDs in metal box:
+13. Wooly Bully
+Bonus track on Japanese version:
+13. Up From The Ashes
+
+All songs written by Brainstorm
+(Except "Wooly Bully":
+music & lyrics by Domingo Samudio)
+Lyrical assistence by Kevin "Ace" Grote
+
+Line-up:
+Marcus Jьrgens - Vocals
+Torsten Ihlenfeld - Guitar
+Milan Loncaric - Guitar
+Andreas Mailдnder - Bass
+Dieter Bernert - Drums
+
+Additional musicians:
+Michael "Miro" Rodenberger - keyboards
+Uwe Hцrmann - some great guitars
+Harald Sprengler - backing vocals
+
+
+Cover Concept by Brainstorm
+Graphics & Photography by Karl-Heinz Schuster
+& Andreas Mailдnder
+Pyrotechnikerschule PreiЯenberg
+
+ 
+Produced by Charlie Bauerfeind & Brainstorm
+Mixed by Charlie Bauerfeind for SCS, Hamburg
+Mastered by Charlie Bauerfeind, Hamburg
+Recorded at Hansen Studio Hamburg and
+Soundworx Studio Gerstetten, Germany
+Vox & Guitars engineered by Uwe Hцrmann, Harald Sprengler
+& Dirk Schlдchter at Soundworx Studio Gerstetten
+Drums & Bass recorded at Hansen Studio Hamburg,
+engineered by Dirk Schlдchter
+
+ 
+
+
+### "Ambiguity" 2000, Power Metal
+
+
+
+### "Metus Mortis" 2001, Power Metal
+
+1. Metus Mortis
+2. Blind Suffering (MP3)
+3. Shadowland
+4. Checkmate In Red
+5. Hollow Hideaway (MP3)
+6. Weakness Sows Its Seed
+7. Into The Never
+8. Under Lights
+9. Cycles
+10. Behind
+11. Meet Me In The Dark
+12. Face Down (bonus track)
+13. Strength Of Will
+
+
+
+Andy B. Franck · lead & back-up vocals
+Torsten Ihlenfeld · guitars, back-up vocals
+Milan Loncaric · guitars, back-up vocals
+Andy Mailдnder · bass
+Dieter Bernert · drums
+Additional musician:
+Michael "Miro" Rodenberger · keyboards
+
+Total design-concept by Andy B. Franck
+Typesetting by Karl-Heinz Schuster
+Total artwork by Jan Meininghaus / www.Jan-Meininghaus.de
+Photos by Axel Jusseit except "Andy B. Franck · live" by Andrea Gaggioli
+
+Produced by Achim Kцhler & Brainstorm
+All songs written and arranged by Brainstorm
+All lyrics and vocal-melody-lines by Andy B. Franck for FranckґnґFree Music
+Drums & vocals engineered by Achim Kцhler
+at House of Music Studios Winterbach/ Germany · May/June 2001
+Guitars & bass engineered by Torsten Ihlenfeld
+at Storm-your-Brain-Studios Gerstetten/ Germany -May 2001
+Keyboards engineered at Gate Studios Wolfsburg/ Germany · July 2001
+by Michael "Miro" Rodenberger
+Mixed & mastered by Achim Kцhler at House of Music
+
+
+
+
+### "Soul Temptation" 2003, Heavy Metal
+
+1. Highs Without Lows 
+2. Doorway To Survive 
+3. The Leading 
+4. Nunca Nos Rendimos 
+5. Fading 
+6. Shiva's Tears 
+7. Fornever 
+8. Soul Temptation 
+9. Dying Outside 
+10. To The Head 
+11. Rising 
+
+Line-Up: 
+Andy B. Franck - vocals 
+Torsten "Todde“ Ihlenfeld - guitars 
+Milan "Mille“ Loncaric - guitars 
+Andreas Mailдnder - bass 
+Dieter Bernert - drums
+
+### "Liquid Monster" 2005, Heavy Metal
+
+
+
+### "All Those Words (single)" 2005, Heavy Metal
+
+
+
+### "Downburst" 2008, Heavy Metal
+
+
+
+### "Memorial Roots" 2009, Power Metal
+
+1. Forsake What I Believed 06:31
+2. Shiver 03:17
+3. The Conjuction of 7 Planets 06:34
+4. Cross the Line 05:01
+5. Nailed Down Dreams 05:37
+6. Blood Still Stains 04:10 
+7. Ahimsa 04:21
+8. The Final Stages of Decay 06:27
+9. Victim 04:16
+10. When No One Cares 03:19
+11. Would You 05:11 
+
+### "On the Spur of the Moment" 2011, Heavy Metal
+
+1. Below The Line 
+2. In The Blink Of An Eye 
+3. Temple Of Stone 
+4. In These Walls 
+5. Still Insane 
+6. Dark Life 
+7. No Saint - No Sinner 
+8. Where Your Actions Lead You To Live 
+9. A Life On Hold 
+10. My Own Hell
+
+Produced by Axel Heckert in Studio 22. 
+
+### "Firesoul" 2014, Power Metal
+
+
+
+### "Scary Creatures" 2016, Power Metal
+
+1. The World to See      
+2. How Much Can You Take      
+3. We Are...      
+4. Where Angels Dream      
+5. Scary Creatures      
+6. Twisted Ways      
+7. Caressed by the Blackness      
+8. Scars in Your Eyes      
+9. Take Me to the Never      
+10. Sky Among the Clouds  
+
 
 ## Отношения с другими группами
 

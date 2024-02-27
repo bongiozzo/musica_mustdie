@@ -1,7 +1,13 @@
 # Hospice
 
-Дискография
-"Land Of Eternal Night" 2006, Black Metal
+
+
+## Дискография
+
+### "Land Of Eternal Night" 2006, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

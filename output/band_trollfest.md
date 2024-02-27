@@ -1,12 +1,135 @@
 # Trollfest
 
-Дискография
-"Willkommen Folk Tell Drekka Fest! " 2005, Folk
-"Brakebein" 2006, Folk
-"Villanden " 2009, Folk
-"En Kvest For Den Hellige Gral" 2011, Folk
-"Brumlebassen" 2012, Folk
-"Kaptein Kaos" 2014, Folk
+
+
+## Дискография
+
+### "Willkommen Folk Tell Drekka Fest! " 2005, Folk
+
+1. TrollfesT 01:31  
+2. Willkommen Folk Tell Drekka Fest!! 03:21  
+3. Helvetes Hunden GARM 03:44 
+4. En Ytterst Heftig Sak 02:48
+5. Sagaen om Suttungs-Mjцd 03:38  
+6. Der Erste Krieg 04:14  
+7. Du kom for Seint... 03:20 
+8. Trollkamp 01:38 
+9. Die Ьrgammal Gebrдu 03:35 
+10. Offer-visa 02:26 
+11. Der Tag Nach-hinter 02:27  
+12. ...Nе mе DU drikka mest! 03:48 
+
+
+Recorded in “Trollskogen Recording Facilities” in fall 2004.
+Recorded and mixed by Trollfest.
+Mastering: LivingRoom Mastering v/"Chris"
+
+The 1st track, 'Trollfest', is a re-recording from a track with the same name
+used on the band's promo/demo.
+
+The title can be translated to English as "Welcome People to Drinking Fest!" 
+
+
+### "Brakebein" 2006, Folk
+
+1. Legendarisk ШL 03:12 
+2. Brakebein 03:11  
+3. Utmarschen 03:39 
+4. PiratKriegen 04:02 
+5. Den еpne sjш 03:48
+6. Das MeerUngeheuer 03:53 
+7. EssenFest 03:29  
+8. Inni den grotte 02:23  
+9. IllanterGesteignungh 03:31
+10. PresteFeste 04:03 
+11. Yameeka 02:07  
+12. Skogsgjensyn 03:26 
+13. Egen Mjшd, Heidunder Mjшd! 04:56 
+
+
+Recorded in “TrollskogeN recording facilitieS” in fall 2005. 
+Recorded and mixed by TrollfesT.
+Artwork/Layout by theterje.com. 
+Mastering: StrypeAudio v/"Tom"
+
+Also released as a Limited Digipack 
+
+### "Villanden " 2009, Folk
+
+1. Wo bin ich jetz Aufgewacht? 02:02  
+2. Der JegerMeister 04:22  
+3. Uraltes Elemente 03:13  
+4. Villanden 04:01  
+5. Per, Pеl og Brakebeins Abenteuer 00:57  
+6. Der Uhr ist Skandalшst Schдndlich 03:21  
+7. God Fart 01:55  
+8. Festival 03:48  
+9. En Ny Erfaring 02:26  
+10. Trinkevisen 03:45  
+11. Die Kirche undt der Mache 07:26 
+
+
+
+Recorded in “TrollskogeN recording facilitieS” January 2008 - June 2008, Except
+Drums: Recorded at Sound Riot Studio December 2007. Recorded by TrollfesT.
+Mixed by TrollfesT with assistance from Petter Ringstad. 
+
+Artwork by Jonas Darnell 
+Layout by theterje.net. 
+Mastering: StrypeAudio v/"Tom" 
+
+### "En Kvest For Den Hellige Gral" 2011, Folk
+
+1. Die Verdammte Hungersnot  04:07    
+2. Karve  05:33    
+3. Die Berьchtiges Bande  03:55    
+4. Gjetord  05:44    
+5. Der Sьndenbock Gegalte  03:27    
+6. Korstog  03:56    
+7. Undermaelere  04:09    
+8. Jevnes med Jorden  04:22    
+9. En gammel Trollsti  05:03    
+10. Epilog (digipak bonus track)  04:54  
+
+
+The CD will be made available as a limited-edition digipak with a bonus track. 
+The title "En Kvest For Den Hellige Gral" can be roughly translated to "A Quest For The Holy Grail", 
+and is a play on the word "quest" in both the accepted sense and in the sense of the Norwegian word "kvesting," 
+which refers to the crushing of the crusaders — which is something the Trolls are doing throughout the album. 
+
+
+### "Brumlebassen" 2012, Folk
+
+1. Brumlebassen 05:38 
+2. Bose Tivoli 04:08 
+3. Illsint 03:06 
+4. Hevlette 01:49 
+5. Finsken, Norsken og Presten 04:32 
+6. Mystisk Maskert 01:45 
+7. Apis Mellifera 04:33 
+8. Trinkentroll 03:09 
+9. Verboten Kjaerleik 04:04 
+10. Brak 04:13 
+11. Sellout 04:31 
+12. Rundt Balet 02:00 
+13. Konterbier 04:35
+
+### "Kaptein Kaos" 2014, Folk
+
+1. Trolltramp 02:28
+2. Kaptein Kaos 03:35
+3. Vulkan 04:06
+4. Ave Maria 04:26
+5. Filzlaus Verkьndiger 01:22
+6. Die grosse Echsen 03:43
+7. Seduction Suite No.21 04:20
+8. Solskinnsmedisin 04:21
+9. Troll gegen Mann 03:46
+10. Sagn om stein 03:45
+11. Renkespill 03:52
+12. Kinesisk alkymi 04:21
+13. Doden banker pa
+
 
 ## Отношения с другими группами
 

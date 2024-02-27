@@ -1,9 +1,57 @@
 # Saxorior
 
-Дискография
-"Return from the Darkside" 1995, Death Metal
-"Portent of Eternity" 1999, Death Metal
-"Saxot" 2001, Death Metal
+
+
+## Дискография
+
+### "Return from the Darkside" 1995, Death Metal
+
+1.) ...from the dark side
+2.) Recommendation to die
+3.) Compromise for destruction
+4.) In search of life
+5.) World of emptiness
+6.) August the Strong
+7.) Marching in sorrow
+8.) Morbid nightmares
+9.) Dropped by justice
+10.) No comment 
+
+### "Portent of Eternity" 1999, Death Metal
+
+1.Arrival/Intro 
+2.One Step Into Eternity 
+3.Burning Stone 
+4.Hagen von Tronje 
+5.Einzug in Walhalla 
+6.Coma 
+7.In Memory 
+8.The Might Of Fire 
+9.Creatures Of Time 
+10.Leaving For Another World
+
+### "Saxot" 2001, Death Metal
+
+1. Welcome To Another World 
+2. Roots Of Time
+3. Misguided Promise
+4. Battle Of Wittekind
+5. Vicious Circle
+6. Hic Nulla Pax
+7. Fire Of Retaliation
+8. Overtьre Siegfried 
+9. Siegfried
+10. Tubular Bells (Mike Oldfield cover/ "Exorcist theme")
+
+
+
+Frank Nitzsche - keyboards
+Uwe Vogt - bass
+Michael Mann - drums
+Matthias Eschrisch - guitars & vocals
+Kai Uwe Schneider - guitars & vocals
+
+
 
 ## Отношения с другими группами
 

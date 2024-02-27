@@ -1,8 +1,54 @@
 # Righteous Pigs
 
-Дискография
-"Live And Learn" 1989, Grindcore
-"Turmoil" 1989, Grindcore
+member NAPALM DEATH
+
+## Дискография
+
+### "Live And Learn" 1989, Grindcore
+
+1. Stone
+2. I Hope You Die In Hotel Fire
+3. Just Friends
+4. Malevolent Supplication
+5. Stool Softener
+6. Flee The Jurisdction
+7. Joint Effort 
+8. Dormant Catastrophe
+9. Celibate Tease
+10.Misconduct
+11.Hidden Zit
+12.Destined To Rot
+13.Minor Consumption
+14.Incontinent 
+15.Sickened By Your Own Existance +
+16.Fly The Friendly Skies +
+
+Joe Cader - Vocals
+Mitch Harris - Guitars
+Stephen Chiatovich - Bass
+Scott Leonard - Drums
+
+Produced By RIGHTEOUS PIGS.
+Engineered By Talbot Snow.
+
+(p)&(c) 1989 NUCLEAR BLAST Records
+
+### "Turmoil" 1989, Grindcore
+
+1. Turmoil
+2. Dormant Catastrophe
+3. Incontinent
+
+ Joe Caper - Vocals
+ Mitch Harris - Guitars
+ Stephen Chiatovich - Bass
+ Alan Strong - Drums
+
+Recorded By Quinton Stevenson At
+Sound Master In Las Vegas.
+
+(p)&(c) 1989 NUCLEAR BLAST
+
 
 ## Отношения с другими группами
 

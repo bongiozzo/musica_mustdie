@@ -1,7 +1,26 @@
 # Zrec
 
-Дискография
-"Zertva" 2008, Folk
+
+
+## Дискография
+
+### "Zertva" 2008, Folk
+
+1. Vнtej, Novэ Dne 01:49  
+2. Ћertva 04:21  
+3. Kamennэ Kult 05:39
+4. Lystoczku Czerwenyj 02:23  
+5. Krev Predku 06:04 
+6. Novэ Vek Pohanskэ 07:24
+7. Nebeskй Strнbro Perunovo (Nokturnal Mortum cover) 06:33
+8. Rarбљ Rakбљa 08:48 
+
+'Nebesk&#233; Str&#237;bro Perunovo' is a cover of Nokturnal Mortum's 'Perun's Celestial
+Silver' with poeticized lyrics in Czech language
+
+Gues:
+Petra S&#233;lesov&#225; - Violin 
+
 
 ## Отношения с другими группами
 

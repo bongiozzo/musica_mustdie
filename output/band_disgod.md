@@ -1,7 +1,24 @@
 # Disgod
 
-Дискография
-"Sanguine Scales" 2008, Thrash
+
+
+## Дискография
+
+### "Sanguine Scales" 2008, Thrash
+
+1. Rising hate 01:57  
+2. Spasm 02:50  
+3. Grind peace 03:06  
+4. Undercover enslavement 01:47  
+5. For the transient 01:28  
+6. Mirror of mors 02:22  
+7. StabbinвЂ™ with a nail 01:59  
+8. Ghouls 02:15  
+9. To shoot to be 02:20  
+10. The killed 03:04  
+11. Sharp 01:40  
+12. The ancient dreamer 05:02 
+
 
 ## Отношения с другими группами
 

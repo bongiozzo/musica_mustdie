@@ -1,8 +1,26 @@
 # Rasta
 
-Дискография
-"Take My Hate" 2003, Metal
-"Between Two Times" 2005, Metal
+belorussian hardcore
+
+## Дискография
+
+### "Take My Hate" 2003, Metal
+
+
+
+### "Between Two Times" 2005, Metal
+
+1. Blast
+2. One Of Them
+3. New God
+Bonus from Take My Hate:
+4. Save from You
+5. Deformed
+6. God Wants Me To Pray,
+7. Feel Like Hate,
+8. In Dust We Trust
+Live Video: One Of Them, Blast, New God, Hakkah, I wish, Neverfly.
+
 
 ## Отношения с другими группами
 

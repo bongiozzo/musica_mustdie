@@ -1,30 +1,344 @@
 # Nazareth
 
-Дискография
-"Nazareth" 1971, Hard Rock
-"Exercises" 1972, Hard Rock
-"Razamanaz" 1973, Hard Rock
-"Loud 'N' Proud" 1973, Hard Rock
-"Rampant" 1974, Hard Rock
-"Hair Of The Dog" 1975, Hard Rock
-"Close Enough For Rock'n'roll" 1976, Hard Rock
-"Play 'N' The Game" 1976, Hard Rock
-"Expect No Mercy" 1977, Hard Rock
-"No Mean City" 1978, Hard Rock
-"Malice In Wonderland" 1980, Hard Rock
-"The Fools Circle" 1981, Hard Rock
-"Snaz" 1981, Hard Rock
-"2xS" 1982, Hard Rock
-"Sound Elixir" 1983, Hard Rock
-"The Catch" 1984, Hard Rock
-"Cinema" 1986, Hard Rock
-"Snakes 'N' Ladders" 1989, Hard Rock
-"No Jive" 1992, Hard Rock
-"Move Me" 1995, Hard Rock
-"Greatest Hits" 1996, Hard Rock
-"Boogaloo" 1998, Hard Rock
-"The Newz" 2008, Hard Rock
-"Big Dogz" 2011, Hard Rock
+(Hard-rock Pioneers)
+
+## Дискография
+
+### "Nazareth" 1971, Hard Rock
+
+1.Witchdoctor Woman
+2.Dear John
+3.Empty Arms, Empty Heart
+4.I Had A Dream
+5.Red Light Lady
+6.Fat Man
+7.Country Girl
+8.Morning Dew
+9.The King Is Dead
+
+### "Exercises" 1972, Hard Rock
+
+01.I Will Not Be Led 
+02.Cat's Eye, Apple Pie 
+03.In My Time 
+04.Woke Up This Morning 
+05.Called Her Name 
+06.Fool About You 
+07.Love, Now You're Gone 
+08.Madelaine 
+09.Sad Song 
+10.1692 (Glen Coe Massacre)
+
+### "Razamanaz" 1973, Hard Rock
+
+1.Razamanaz [3:50]
+2.Alcatraz [4:22]
+3.Vigilante Man [5:22]
+4.Woke Up This Morning [3:51]
+5.Night Woman [3:28]
+6.Bad Bad Boy [3:56]
+7.Sold My Soul [4:47]
+8.Too Bad So Sad [2:54]
+9.Broken Down Angel [3:44]
+
+### "Loud 'N' Proud" 1973, Hard Rock
+
+1.Go Down Fighting
+2.Not Fakin' It
+3.Turn On Your Receiver
+4.Teenage Nervous Breakdown
+5.Free Wheeler
+6.This Flight Tonight
+7.Child In The Sun
+8.The Ballad Of Hollis Brown
+
+### "Rampant" 1974, Hard Rock
+
+1.Silver Dollar Forger
+2.Glad When You're Gone
+3.Loved And Lost
+4.Shanghai'd In Shanghai
+5.Jet Lag
+6.Light My Way
+7.Sunshine
+8.(a)Shapes Of Things 
+(b)Space Safari
+
+### "Hair Of The Dog" 1975, Hard Rock
+
+1.Hair Of The Dog
+2.Miss Misery
+3.Guilty
+4.Changin' Times
+5.(a)Beggars Day (b)Rose In Heather
+6.Whisky Drinkin' Woman
+7.Please Don't Judas Me
+
+### "Close Enough For Rock'n'roll" 1976, Hard Rock
+
+1.Telegram
+2.Vicki
+3.Homesick Again
+4.Vancouver Shakedown
+5.Born Under The Wrong Sign
+6.Loretta
+7.Carry Out Feelings
+8.Lift The Lid
+9.You're The Violin
+
+### "Play 'N' The Game" 1976, Hard Rock
+
+1.Somebody To Roll
+2.Down Home Girl
+3.Flying
+4.Waiting For The Man
+5.Born To Love
+6.I Want To Do Everything For You
+7.I Don't Want To Go On Without You
+8.Wild Honey
+9.L.A. Girls
+
+### "Expect No Mercy" 1977, Hard Rock
+
+01.Expect No Mercy
+02.Gone Dead Train
+03.Shot Me Down
+04.Revenge Is Sweet
+05.Gimme What's Mine
+06.Kentucky Fried Blues
+07.New York Broken Toy
+08.Busted
+09.Place In Your Heart
+10.All The Kings Horses
+
+### "No Mean City" 1978, Hard Rock
+
+1.Just To Get Into It
+2.May The Sunshine
+3.Simple Solution
+4.Star
+5.Claim To Fame
+6.Whatever You Want Babe
+7.What's In It For Me
+8.No Mean City
+
+### "Malice In Wonderland" 1980, Hard Rock
+
+1. Holiday
+ 2. Showdown At The Border
+ 3. Talkin' To One Of The Boys
+ 4. Heart's Grown Cold
+ 5. Fast Cars
+ 6. Big Boy
+ 7. Talkin' 'Bout Love
+ 8. Fallen Angel
+ 9. Ship Of Dreams
+10. Turning A New Leaf
+11. Heart's Grown Cold
+12. Razamanaz
+13. Hair of the Dog
+14. Talkin' to One of the Boys
+
+### "The Fools Circle" 1981, Hard Rock
+
+01.Dressed To Kill
+02.Another Year
+03.Moonlight Eyes
+04.Pop The Silo
+05.Let Me Be Your Leader
+06.We Are The People
+07.Every Young Man's Dream
+08.Little Part Of You
+09.Cocaine (Live)
+10.Victoria
+
+### "Snaz" 1981, Hard Rock
+
+disc one 
+telegram: 
+part 1 - on your way / part 2 - so you want to be a rock 'n' roll star / part 3 - sound check 
+razamanaz 
+i want to do everything for you 
+this flight tonight 
+beggar's day 
+every young man's dream 
+heart's grown cold 
+java blues 
+cocaine 
+big boy 
+disc two 
+holiday 
+dressed to kill 
+hair of the dog 
+expect no mercy 
+shapes of things 
+let me be your leader 
+love hurts 
+tush 
+бонусы:
+juicy lucy (студийный трек с оригинального издания)
+morning dew (студийная версия 1981 года с оригинального издания Snaz)
+
+### "2xS" 1982, Hard Rock
+
+01.Love Leads To Madness
+02.Boys In The Band
+03.You Love Another
+04.Gatecrash
+05.Games
+06.Back To The Trenches
+07.Dream On
+08.Lonely In The Night
+09.Preservation
+10.Take The Rap
+
+
+### "Sound Elixir" 1983, Hard Rock
+
+01.All Nite Radio
+02.Milk And Honey
+03.Whippin' Boy
+04.Rain On The Window
+05.Backroom Boys
+06.Why Don't You Read The Book
+07.I Ran
+08.Rags To Riches
+09.Local Still
+10.Where Are You Now?
+
+### "The Catch" 1984, Hard Rock
+
+1.Party Down
+2.Ruby Tuesday
+3.Last Exit Brooklyn
+4.Moondance
+5.Love Of Freedom
+6.This Month's Messiah
+7.You Don't Believe In Us
+8.Sweetheart Tree
+9.Road To Nowhere
+
+### "Cinema" 1986, Hard Rock
+
+1.Cinema [4:48]
+2.Juliet [4:13]
+3.Just Another Heartache [5:01]
+4.Other Side Of You [3:48]
+5.Hit The Fan [3:39]
+6.One From The Heart [4:20]
+7.Salty Salty [3:46]
+8.White Boy [5:07]
+9.A Veteran's Song [5:23]
+
+### "Snakes 'N' Ladders" 1989, Hard Rock
+
+1. We Are Animals
+2. Lady Luck
+3. Hang On To A Dream
+4. Piece Of My Heart
+5. Trouble
+6. The Key
+7. Back To School
+8. Girls
+9. Donna Get Off That Crack
+10. See You, See Me
+11. Helpless
+
+(p) 1989 Vertigo
+
+### "No Jive" 1992, Hard Rock
+
+1.Hire And Fire 
+ 2.Do You Wanna Play House 
+ 3.Right Between The Eyes 
+ 4.Every Time It Rains 
+ 5.Keeping Our Love Alive 
+ 6.Thinkin' Man's Nightmare 
+ 7.Lap Of Luxury 
+ 8.Cry Wolf
+ 9.The Rowan Tree/Tell Me That You Love Me
+10.Cover Your Heart
+
+### "Move Me" 1995, Hard Rock
+
+1. Let Me Be Your Dog
+2. Can't Shake Those Shakes
+3. Crack Me Up
+4. Move Me
+5. Steamroller
+6. Stand By Your Beds
+7. Rip It Up
+8. Demon Alcohol
+9. You Had It Comin'
+10. Bring It On Home To Mama
+11. Burning Down
+12. Razamanaz
+13. My White Bicycle
+14. This Flight Tonight
+
+(p) 1995 Mayhem
+
+### "Greatest Hits" 1996, Hard Rock
+
+1.  Razamanaz
+2.  Holy Roller
+3.  Shanghai'd In Shanghai
+4.  Love Hurts
+5.  Turn On Your Receiver
+6.  Bad Bad Boy
+7.  This Flight Tonight
+8.  Broken Down Angel
+9.  Sunshine
+10.  My White Bicycle
+11.  Woke Up This Morning
+
+(P)c 1996
+
+### "Boogaloo" 1998, Hard Rock
+
+1. Light Comes Down
+2. Cheerleader
+3. Loverman
+4. Open Up Woman
+5. Talk Talk
+6. Nothing So Good
+7. Party
+8. God Save The South
+9. Robber And The Roadie
+10. Waiting
+11. May Heaven Keep You
+
+(p) 1998 CMC International
+
+### "The Newz" 2008, Hard Rock
+
+01. Goin Loco 05:24
+02. Day at the Beach 04:56
+03. Liar 06:44
+04. See Me 04:54
+05. Enough Love 05:50
+06. Warning 04:36
+07. Mean Streets 04:16
+08. Road Trip 02:48
+09. Gloria 05:48
+10. Keep on Travellin 03:56
+11. Loggin on 04:50
+12. The Gathering 07:08
+13. Dying Breed 13:23
+
+
+### "Big Dogz" 2011, Hard Rock
+
+01. Big Dog's Gonna Howl :03:58
+02. Claimed :03:55
+03. No Mean Monster :05:01
+04. When Jesus Comes To Save The World Again :06:24
+05. Radio :04:17
+06. Time And Tide :07:20
+07. Lifeboat :04:58
+08. The Toast :03:59
+09. Watch Your Back :04:32
+
 
 ## Отношения с другими группами
 

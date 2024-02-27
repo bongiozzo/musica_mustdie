@@ -1,10 +1,25 @@
 # Eths
 
-Дискография
-"Soma" 2004, Metalcore
-"Teratologie" 2007, Metalcore
-"III" 2011, Metalcore
-"Ankaa" 2016, Metalcore
+
+
+## Дискография
+
+### "Soma" 2004, Metalcore
+
+
+
+### "Teratologie" 2007, Metalcore
+
+
+
+### "III" 2011, Metalcore
+
+
+
+### "Ankaa" 2016, Metalcore
+
+
+
 
 ## Отношения с другими группами
 

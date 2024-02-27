@@ -1,8 +1,49 @@
 # Dkay.com
 
-Дискография
-"Decaydenz" 2000, Industrial
-"Deeper Into The Heart Of Disfunction" 2002, Industrial
+Ex-Die Krupps
+
+## Дискография
+
+### "Decaydenz" 2000, Industrial
+
+01. Split Infinity [3:51]
+02. Hell Is Heaven [5:04]
+03. Drag Me Down [3:42]
+04. The Final Show [4:26]
+05. Numb [4:34]
+06. E-Motion [3:42]
+07. How Many Times [4:46]
+08. Neverland [5:02]
+09. The Paradise Way [4:05]
+10. Cerulian Blue [3:54]
+11. Here We Are Strangers [4:51]
+...silence...
+39. F**k You (track does not appear in CD-tracklisting!) [3:47]
+--
+Multimedia-track: Diablo II Sneak Preview
+
+### "Deeper Into The Heart Of Disfunction" 2002, Industrial
+
+01. The Beauty's In The Beast [4:22]
+02. Your Own Prison [3:38]
+03. 2 B.F. [4:51]
+04. Friendly Fire [5:05]
+05. All-Time Low [4:30]
+06. Film Noir [5:16]
+07. Born Exposed [4:11]
+08. The Old Primal Force [4:49]
+09. Deeper Into The Heart Of Dysunction [5:17]
+10. Minefield Of Emotions [3:16]
+11. Sanctuary [4:28]
+12. Carcrash Music For Now People [4:22]
+13. Ghostrider [4:38]
+14. B.C. 2002 [2:26]
+15. Uebermensch [4:17]
+16. What's Next? [4:35]
+-- (Bonus Tracks) --
+17. Film Noir (In Strict Confidence Remix) [3:34]
+18. Your Own Prison (Under Heavy Pressure Remix) [4:32]
+
 
 ## Отношения с другими группами
 

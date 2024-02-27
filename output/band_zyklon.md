@@ -1,9 +1,103 @@
 # Zyklon
 
-Дискография
-"World ov Worms" 2001, Black Metal
-"Aeon" 2003, Black Metal
-"Disintegrate" 2006, Death Metal
+new band of Emperor's members
+
+## Дискография
+
+### "World ov Worms" 2001, Black Metal
+
+candlelight records 2001
+candle061
+   
+1. Hammer Revelation 6:23 
+2. Deduced to Overkill 3:16 
+3. Chaos Deathcult 5:59 
+4. Storm Detonation 4:41 
+5. Zycloned 5:24 
+6. Terrordrome 3:59 
+7. Worm World 4:15 
+8. Transcendental War -
+Battle Between Gods 7:19 
+
+Credits:
+Recorded & Mixed at Akkerhaugen Lydstudio, July and September 2000
+Produced by Thorbjшrn Akkerhaugen and Zyklon 
+Mastered at Strype Audio, September 2000 by Tom Kvеlsvoll and Zyklon
+
+Design by: Johan Hammarman of Neverland (www.neverland.nu)
+Band photos by Morten Andersen
+Additional know photo credits: Johan Hammarman & Zamoth
+Islamic chant sample © Jens O. Haugen
+All lyrics by Bеrd "Faust" Eithun. Zamoth contributed with lyrical ideas on "Terrordrome" as well as title-concept on "Worm World" and "Zycloned". Album-title by Zamoth. Textual explanations by Bеrd "Faust" Eithun
+
+Trym uses Gibraltar Hardware exclusively
+
+Recording line-up:
+Zamoth - Guitar & Bass
+Trym - Drums, Percussion & Programming
+Destructhor - Lead-guitar & Bass
+Additional musicians: 
+Daemon - Lead vocals & main vocal arrangement
+Trickster G - Clean vocals on "Trancendental War…" & spoken words on "Chaos Deathcult"
+T. Akkerhaugen - Genuinely contributed with programming and effect-, keyboard- and bass-arrangements. 
+Persephone - Spoken female voice
+
+Daemon appears courtesy of Nocturnal Art Prod.
+Trickster G appears courtesy of Jester/ VoW
+
+### "Aeon" 2003, Black Metal
+
+1. Psyklon Aeon - 3:26
+2. Core Solution - 5:12
+3. Subtle Manipulation - 3:17
+4. Two Thousand Years - 5:49
+5. No Names Above The Names - 4:16
+6. The Prophetic Method - 3:16
+7. Specimen Eruption - 4:38
+8. Electric Current - 5:44
+9. An Eclectic Manner - 6:16
+
+Recorded at Akkerhaugen Lydstudio, sporadically during February, March and April 2003
+Mixed at Fredman Studios, G&#246;teborg by Fredrik Nordstr&#246;m, May 2003
+Produced by Thorbj&#248;rn Akkerhaugen, Fredrik Nordstr&#246;m and Zyklon
+Mastered at Strype Audio, May 2003 by Tom Kv&#229;lsvoll and Samoth 
+Design by: Stephen O’ Malley in co-operation with Samoth 
+Samoth – Guitar 
+Trym – Drums
+Destructhor – Lead-guitar 
+Secthdamon – Vocals & Bass
+
+All music and arrangements by Zyklon 
+(Except “No Names Above the Names”, music by Zyklon & Cosmocrator)
+All lyrics & textual explanations by B&#229;rd “Faust” Eithun
+Synth arrangements and programming by Thorbj&#248;rn Akkerhaugen and Zyklon. 
+
+Special guest appearances:
+Matt Jarman/ Dissident Sound Industries – outro arrangement/ programming on “Electric Current” 
+Daemon – backing and additional vocals on “Two Thousand Years”, “The Prophetic Method” and “Electric Current”
+Ofu Kahn – lead vocals on “An Eclectic Manner”
+Lrz – additional drones and programming on “An Eclectic Manner”
+
+### "Disintegrate" 2006, Death Metal
+
+01 - In Hindsight
+02 - Disintegrate
+03 - War Of The World
+04 - Subversive Faith
+05 - A Cold Grave
+06 - Vile Ritual
+07 - Underdog
+08 - Wrenched
+09 - Vulture
+10 - Skinned And Endangered
+
+Zyklon is
+Secthdamon - Bass & Vocals
+Samoth - Guitar
+Destructhor - Guitar
+Trym - Drums
+
+
 
 ## Отношения с другими группами
 

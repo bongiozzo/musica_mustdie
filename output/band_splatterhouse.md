@@ -1,7 +1,13 @@
 # Splatterhouse
 
-Дискография
-"The House That Dead Built" 2004, Grindcore
+
+
+## Дискография
+
+### "The House That Dead Built" 2004, Grindcore
+
+
+
 
 ## Отношения с другими группами
 

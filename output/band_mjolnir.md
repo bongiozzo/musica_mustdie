@@ -1,7 +1,30 @@
 # Mjolnir
 
-Дискография
-"Whispering Sorcery" 2002, Gothic
+
+
+## Дискография
+
+### "Whispering Sorcery" 2002, Gothic
+
+01. Mysterica
+02. Whispering Sorcery
+03. Times Before The Past
+04. Dragon Sword
+05. Moonlight: The Nocturnal Serenade
+06. Bloomed But Withering
+07. My Sweltering Black Eyes Of Innocence
+08. Falling Into Decay
+09. A Wasted Journey
+
+Marijke - hymns
+Jarno - vocals
+Xander - keyboard
+Wilfred - guitar
+Linda - drums, backing vocals
+Bas - bassguitar
+
+
+
 
 ## Отношения с другими группами
 

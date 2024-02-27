@@ -1,7 +1,42 @@
 # Clearwater Deathblow
 
-Дискография
-"Parasite Cleansing" 2008, Grindcore
+
+
+## Дискография
+
+### "Parasite Cleansing" 2008, Grindcore
+
+1. Broken Glass 01:11  
+2. Reduced To Juice 01:23  
+3. Minefield 01:20  
+4. Stranger Than Friction 01:18  
+5. Mucus 01:35  
+6. Fragile Heart 00:58  
+7. The 11th Commandment 01:31  
+8. Braincells Ashtray 01:54  
+9. Piss On Blood 01:31  
+10. Fluid 01:44  
+11. Wrraaaaahhhh!!! 01:12  
+12. Grind Fucking Song 01:20  
+13. Saddamized 01:00  
+14. The Wound 00:48  
+15. Long-Term Special Effects 01:22  
+16. Pharmacophobia Phenomenon 00:58  
+17. Slash 00:51  
+18. It Seems 01:40  
+19. Initiation To Human Stupidity 00:20  
+20. Devil Behind The Wheel 02:07  
+21. Elementary 00:47  
+22. Cold 01:33  
+23. Narco-Empire 01:21  
+24. Political Atheist 01:20  
+25. Dead Routine 00:47  
+26. Thirteen 01:37  
+27. Doggy Bag 00:58  
+28. Collective Heritage 01:30  
+29. Worldwide Socio-Lies 01:19  
+30. Hypocritical Masquerade 02:14 
+
 
 ## Отношения с другими группами
 

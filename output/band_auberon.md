@@ -1,8 +1,29 @@
 # Auberon
 
-Дискография
-"Tale Of Black" 1999, Melodic Death Metal
-"Grossworld" 2001, Melodic Death Metal
+
+
+## Дискография
+
+### "Tale Of Black" 1999, Melodic Death Metal
+
+01. Intro 
+02. Infinite Beauty 
+03. Secrets 
+04. A Whispering Wind 
+05. The End Of All 
+06. The Dance 
+07. A Farewell Of Creation 
+08. The White Ships 
+09. Tearless 
+10. For All Time 
+
+ 
+
+
+### "Grossworld" 2001, Melodic Death Metal
+
+
+
 
 ## Отношения с другими группами
 

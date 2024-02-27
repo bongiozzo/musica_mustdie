@@ -1,28 +1,341 @@
 # Oomph!
 
-Дискография
-"Ich Bin Du" 1991, Industrial
-"Oomph!" 1992, Industrial
-"Der neue Gott" 1993, Industrial
-"Breathtaker" 1993, Industrial
-"Sperm" 1994, Industrial
-"Sex" 1994, Industrial
-"3+1" 1994, Industrial
-"Defect" 1995, Industrial
-"Ice-Coffin" 1995, Industrial
-"Wunschkind" 1996, Industrial
-"Gekreuzigt" 1998, Industrial
-"Unsere Rettung" 1998, Industrial
-"BEST OF 1991 - 1996: The Early Works" 1998, Industrial
-"Unrein" 1998, Industrial
-"Das weisse Licht" 1999, Industrial
-"Fieber" 1999, Industrial
-"Plastik" 1999, Industrial
-"Ego" 2001, Industrial
-"Wahrheit oder Pflicht" 2004, Industrial
-"GlaubeLiebeTod" 2006, Industrial
-"Des Wahnsinns Fette Beute" 2012, Gothic
-"Alles Aus Liebe (single)" 2015, Gothic
+
+
+## Дискография
+
+### "Ich Bin Du" 1991, Industrial
+
+1. Ich bin Du (Clubber Mix) 
+2. Me Inside You (Inside Mix) 
+3. Ich bin Du (Single Version) 
+
+
+### "Oomph!" 1992, Industrial
+
+1.  Mein Herz
+2.  Me Inside You
+3.  Der Neue Gott
+4.  No Heart No Pain
+5.  Breathe
+6.  Gleichschritt
+7.  Under Pressure
+8.  Wir Leben
+9.  Purple Skin
+10.Ich Bin Du
+11.Der Neue Gott
+
+All music by OOMPH!
+All lyrics by Devo
+Recorded and Mixed at Wyrwas Tonstudio.
+Produced by OOMPH!
+Engineered by Olli Belz and Mathias Kontny
+
+Robext Flux - Samples and Sequences
+Dero Goi - Vocals, Drums
+Crap - Guitars, Keyboards
+
+(P)c 1992 MACHINERY Records // MA 8
+
+### "Der neue Gott" 1993, Industrial
+
+1. Der neue Gott (Extended God Mix) 
+2. Der neue Gott (Machinery Mix) 
+3. Sick Song (Healthy Mix) 
+4. Jack Is Dead (Censored Radio Mix)
+
+### "Breathtaker" 1993, Industrial
+
+1. Breathtaker (Asthmatic Club Mix) 
+2. Breathtaker (Airplay Mix) 
+3. U Said (Primary Mix) 
+4. U Said (Alzheimer Mix) 
+
+### "Sperm" 1994, Industrial
+
+1. Suck Taste Spit
+2. Sex
+3. War
+4. Dick Head
+5. Feiert Das Kreuz Love
+6. Das Ist Freiheit
+7. Breathtaker
+8. Ich Bin Der Weg
+9. U-Said (Live)
+
+ Dero - Vox & Drums
+ Flux - Samplers & Guitars
+ Crap - Guitars & Keys
+
+Engineered By Mattias Kontny at Wyrwas Tonstudio, Braunschweig.
+Vocs & Guits Recorded At Home.
+"U-Said" Recorded At The LimeLight, In New-York, Summer 1993
+
+(p)&(c) 1994 DYNAMICA
+
+### "Sex" 1994, Industrial
+
+1. Sex (Radio Per-Version) 
+2. Sex (Club Penetration Mix) 
+3. Sex (Angel-Grinder Remix) 
+
+Produced by OOMPH!
+Mixed by Flux and OOMPH! at Wyrwas Tonstudio.
+All music written by Crap, Dero and Flux
+Lyrics by Dero
+Engineered by Matthias Kontny
+
+Dero - Vocals, Drums,
+Crap - Guitars, Keyboards,
+Flux - Guitars, Samples
+
+(P)c 1994 DYNAMICA Records // DY 6-9
+
+### "3+1" 1994, Industrial
+
+1. Suck-Taste-Spit (Milk Mix) 
+2. Feiert das Kreuz (Pope Mix) 
+3. Das ist Freiheit (Jailhouse) 
+4. Fleisch 
+
+Produced by OOMPH!
+Mixed by Flux and OOMPH! at Wyrwas Tonstudio.
+All music written by Crap, Dero and Flux
+Lyrics by Dero
+Engineered by Matthias Kontny
+
+Dero - Vocals, Drums,
+Crap - Guitars, Keyboards,
+Flux - Guitars, Samples
+
+(P)c 1994 DYNAMICA Records // DY 6-9
+
+### "Defect" 1995, Industrial
+
+1. Hate Sweet Hate
+2. Willst Du Hoffnung ?
+3. Hello My Name Is Cancer
+4. Hast Du Geglaubt ?
+5. Come And Kick Me
+6. Turn The Knife
+7. Mitten Ins Herz
+8. Your Love Is Killing Me
+9. Defect
+
+All Music By OOMPH!
+All Lyrics By Dero.
+Produced By Oomph!
+Engineered & Mixed By Flux At
+Nagel-Studio.
+
+Dero - Vox & Drums
+Flux - Samplers & Guitars
+Crap - Guitars & Keys
+
+(P)&(C) 1995 DYNAMICA/ MODERN MUSIC
+
+### "Ice-Coffin" 1995, Industrial
+
+1. Ice-Coffin 
+2. Asshole 
+3. A.L.I.V.E. 
+
+### "Wunschkind" 1996, Industrial
+
+1. Born - Praised - Kissed
+2. Wunschkind
+3. You've Got It
+4. Down In This Hole
+5. Walsungenblut
+6. Kruppel
+7. My Soubrette
+8. Mind Over Matter
+9. Filthy Playground
+10.I.N.R.I. Vs. JAHWE
+11.Song For Whoever
+12.Der Alptraum Der Kindheit
+
+(P)(C) 1996 DYNAMICA Records / DY 021
+
+### "Gekreuzigt" 1998, Industrial
+
+1. Gekreuzigt (Single Version) 
+2. Gekreuzigt (Naghavi Mix) 
+3. Gekreuzigt (Jelly & Fish Edit Mix) 
+4. Gekreuzigt (Haujobb Mix) 
+Limited Edition 
+1. Gekreuzigt (Single Version) 
+2. Gekreuzigt (Naghavi Mix) 
+3. Gekreuzigt (Jelly & Fish Edit Mix) 
+4. Gekreuzigt (Haujobb Mix) 
+5. Gekreuzigt (Myer Mix) 
+
+
+### "Unsere Rettung" 1998, Industrial
+
+1. Unsere Rettung (Radio Mix) 
+2. Unsere Rettung (Club Mix) 
+3. This Time 
+4. Monolith 
+
+### "BEST OF 1991 - 1996: The Early Works" 1998, Industrial
+
+1 .Mein Herz 
+2. Ich Bin Du 
+3. Der Neue Gott 
+4. Suck-Taste-Spit 
+5. Sex 
+6. Feiert Das Kreuz 
+7. Ice-Coffin 
+8. Hast Du Geglaubt 
+9. Mitten Ins Herz 
+10. Wunschkind 
+11. You've Got It 
+12. I.N.R.I. vs JAHWE 
+13. Ice-Coffin (Remix) 
+14. I.N.R.I. vs JAHWE (Dies Irae Mix) 
+15. Krьppel (Ureil Mix Shortened) 
+
+### "Unrein" 1998, Industrial
+
+1. Mutters SchoЯ 
+2. Unsere Rettung 
+3. Die Maske 
+4. My Hell 
+5. Gekreuzigt 
+6. Zero Endorphine 
+7. Willst du mein Leben entern? 
+8. (Why I'll never be) clean again 
+9. Unrein 
+10. Anniversary 
+11. Foil 
+12. Bastard 
+13. Another disease 
+14. Meine Wunden 
+
+### "Das weisse Licht" 1999, Industrial
+
+1. Das Weisse Licht (Single Version) 
+2. Das Weisse Licht (Fьtter Mich-Remix) 
+3. Das Weisse Licht (Cleener-Remix) 
+4. Das Weisse Licht (Camouflage-Remix) 
+5. Das Weisse Licht (Headcrashed-Remix) 
+Limited Edition 
+1. Das Weisse Licht (Single Version) 
+2. Das Weisse Licht (Fьtter Mich Remix by Schallbau) 
+3. Das Weisse Licht (Cleener Remix by Daniel Meyer) 
+4. Das Weisse Licht (Camouflage Remix by Heiko Maile) 
+5. Das Weisse Licht (Headcrashed Remix by H. Meyszner) 
+6. Das Weisse Licht (Haujobb Remix by Daniel Myer) 
+7. Das Weisse Licht (Submarine Remix by Econic) 
+
+
+### "Fieber" 1999, Industrial
+
+1. Fieber (Singel Version) 
+2. Fieber (Remixed By Oliver Belte 
+3. Fieber (Remixed By Oomph!) 
+4. Fieber (Remixed By Steve Naghavi) 
+5. Unsere Rettung 
+6. Gekreuzigt 
+
+### "Plastik" 1999, Industrial
+
+1. Das weisse Licht 
+2. Kennst du mich 
+3. Scorn 
+4. Keine Luft mehr 
+5. Hunger 
+6. Nothing is real 
+7. Mein Traum 
+8. Always 
+9. Goldenes Herz 
+10. I come alive 
+11. Fieber (feat. Nina Hagen) 
+12. My own private prison 
+13. Das weisse Licht 
+
+### "Ego" 2001, Industrial
+
+1. Ego
+2. Supernova
+3. Willst du Frei sein?
+4. Drop the Lie
+5. Bitter
+6. Transformation
+7. Atem
+8. Serotonin
+9. Swallow
+10. Viel zu Tief
+11. My Darkest Cave
+12. Rette Mich
+13. Who You Are
+14. Kontrollverlust
+15. Dopamin
+16. Trдum Weiter
+
+
+
+
+
+
+
+### "Wahrheit oder Pflicht" 2004, Industrial
+
+1 AUGEN AUF! 3:21
+2 TAUSEND NEUE LЬGEN 3:56
+3 WENN DU WEINST 4:33
+4 SEX HAT KEINE MACHT 4:19
+5 DEIN WEG 3:29
+6 DU SPIELST GOTT 4:17
+7 DEIN FEUER 3:49
+8 DER STROM 3:04
+9 NICHTS (IST KДLTER ALS DEINE LIEBE) 4:13
+10 DIESMAL WIRST DU SEHN 4:02
+11 TIEF IN DIR 4:13
+12 IM LICHT 4:09
+
+Music by OOMPH! Lyrics by DERO except track 1 music by DERO, CRAP, FLUX, Maik Straatmann & Marek Vejvoda. Lyrics by DERO & Oliver Woidt.
+All tracks published by Warner Chappell, except track 1 published by Warner Chappell & Radar Musikkontor/Arabella Musikverlag
+
+Backing vocals on ‘Augen Auf!’ by Magdalena Maj from flow-fy, Voice of the kid on ‘Augen Auf!‘ by Mika Musiol
+ 
+ 
+Produced by OOMPH!
+Recorded & mixed by FLUX & OOMPH! at Nagelstudio. Mastering at La Source Mastering, Paris / France by Jean-Pierre Chalbos, assisted by Jean-Sйbastien Dupuis. 
+
+Photos by Bernd Wondollek, Ralf Strathmann & Fuego-Archiv. Art direction & Design by FUEGO / Friedel Muders / www.fuego.de
+
+Release-Date: 02.16.2004
+Bestnr.: 82876 58937 2
+Label: GUN/SUPERSONIC / BMG
+
+### "GlaubeLiebeTod" 2006, Industrial
+
+
+
+### "Des Wahnsinns Fette Beute" 2012, Gothic
+
+01. Unzerstorbar 3:40 
+02. Zwei Schritte Vor 4:21 
+03. Such Mich Find Mich 3:30 
+04. Bis Der Spiegel Zerbricht 3:36 
+05. Die Geister Die Ich Rief 3:04 
+06. Bonobo 4:00 
+07. Deine Eltern 4:04 
+08. Kleinstadtboy 3:59 
+09. Regen 4:13 
+10. Kosmonaut 4:01 
+11. Komm zuruck 3:10 
+12. Aus Meiner Haut 3:08 
+13. Seemannsrose 3:09 
+14. Unendlich 5:17
+
+
+### "Alles Aus Liebe (single)" 2015, Gothic
+
+1. Alles Aus Liebe  03:40
+
 
 ## Отношения с другими группами
 

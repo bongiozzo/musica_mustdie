@@ -1,7 +1,25 @@
 # Magister Dixit
 
-Дискография
-"Andar and the Curse of Azagath" 2001, Black Metal
+Sympho-Black metal from Canada
+
+## Дискография
+
+### "Andar and the Curse of Azagath" 2001, Black Metal
+
+1. Civilization of the New Days
+2. The Land of Andar
+3. Dancing under a Fullmoon Awaiting the Final Battle
+4. The Epoch of Unblessed Tragedies
+5. Reunion of the Four Elements
+6. Firestorm
+7. Azagath's Dream
+8. Iced are the Eyes of Winter 
+9. Mors Certa Vita Incerta
+10. Absence of light
+11. The burning end
+
+
+
 
 ## Отношения с другими группами
 

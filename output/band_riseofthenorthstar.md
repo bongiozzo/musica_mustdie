@@ -1,7 +1,13 @@
 # Rise Of The Northstar
 
-Дискография
-"Welcame" 2014, Hardcore
+
+
+## Дискография
+
+### "Welcame" 2014, Hardcore
+
+
+
 
 ## Отношения с другими группами
 

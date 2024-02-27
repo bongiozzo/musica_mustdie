@@ -1,7 +1,47 @@
 # ICS Vortex
 
-Дискография
-"Storm Seeker" 2011, Progressive
+
+
+## Дискография
+
+### "Storm Seeker" 2011, Progressive
+
+1. The Blackmobile 
+2. Odin's Tree 
+3. Skoal! 
+4. Dogsmacked 
+5. Aces 
+6. Windward 
+7. When Shuffled Off 
+8. Oil In Water 
+9. Storm Seeker 
+10. Flaskeskipper 
+11. The Sub Mariner
+
+
+Simen "ICS Vortex"' Hestnжs - Vocals 
+Asgeir Mickelson - Drums  
+Terje "Cyrus" Andersen - Guitars 
+Jens F. Ryland - Guitars  
+Steinar "Azarak" Gundersen - Bass
+
+Written and performed by ICS Vortex.
+ Drums by Asgeir Mickelson.
+ Guitar lead on The Blackmobile, Odin’s Tree and When Shuffled Off by Cyrus.
+ Piano on the song Storm Seeker, Hammond on Skoal! and Windward by Arne Martinussen.
+ Sub FX on Flaskeskipper by Asgeir Mickelson.
+ Photos by Rockefotograf Kjell Ivar Lund.
+ Cover design by Asgeir Mickelson.
+ Stock photos by Dreamstime.
+ ICS Vortex symbol by verdens vakreste: Lise Myhre.
+ Mastered by Peter at Tailor Made Production.
+ Produced by Bшrge Finstad, Asgeir Mickelson and ICS Vortex. Engineered by Bшrge Finstad.
+ Tracked and mixed at Toproom Studio, 2010.
+ Edited by Asgeir Mickelson.
+ Bass and V-Keys recorded in Studio Qul.
+ The Sub Mariner recorded and mixed in Studio Qul.
+ Publishing by Magic Arts Publishing. 
+
 
 ## Отношения с другими группами
 

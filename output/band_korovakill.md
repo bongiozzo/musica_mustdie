@@ -1,7 +1,24 @@
 # Korovakill
 
-Дискография
-"Waterhells" 2001, Alternative
+
+
+## Дискография
+
+### "Waterhells" 2001, Alternative
+
+1. Birth  01:40    
+2. Waterhells  04:17  
+3. Drown Symphony  04:57   
+4. Into The Underwhirls  06:22  
+5. The Bleeding Lap Of Undines  05:22  
+6. Blue Thrones  02:43   
+7. All Statues Leave Their Stones  01:16 
+8. The ShadowHordes  05:14   
+9. It's A Fools World  05:31   
+10. Lord Golden Blizzard  04:25 
+11. Within The Sunstorm  04:48  
+12. Through Neptunes Broken Nets  02:13 
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,17 @@
 # Adversarial
 
-Дискография
-"All Idols Fall Before the Hammer" 2010, Black Metal
-"Death, Endless Nothing and the Black Knife of Nihilism" 2015, Black Metal
+
+
+## Дискография
+
+### "All Idols Fall Before the Hammer" 2010, Black Metal
+
+
+
+### "Death, Endless Nothing and the Black Knife of Nihilism" 2015, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

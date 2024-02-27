@@ -1,9 +1,39 @@
 # Talamyus
 
-Дискография
-"As Long As It Flows..." 2005, Melodic Death Metal
-"...In These Days of Violence" 2007, Melodic Death Metal
-"Raven's Call To Annihilation" 2011, Melodic Death Metal
+
+
+## Дискография
+
+### "As Long As It Flows..." 2005, Melodic Death Metal
+
+1. Enter Talamyus	 
+2. Hunger
+3. Dark Land	
+4. In the Name of Blood
+5. Never Betray
+6. Darkest Void	 
+7. Weakness
+8. Blood Bath...
+9. ...In the Battlefield
+10. Dreaming (In a Dead World)
+
+### "...In These Days of Violence" 2007, Melodic Death Metal
+
+1. Punishable by Death
+2. Pride of a Viking
+3. Conviction	
+4. Possessed	
+5. God of War
+6. In These Days of Violence
+7. Sealed in Blood
+8. In War, in Death
+9. Violent Faith
+10. Keep Your Enemy Closer
+
+### "Raven's Call To Annihilation" 2011, Melodic Death Metal
+
+
+
 
 ## Отношения с другими группами
 

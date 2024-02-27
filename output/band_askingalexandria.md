@@ -1,12 +1,45 @@
 # Asking Alexandria
 
-Дискография
-"Stand Up And Scream" 2009, Metalcore
-"Life Gone Wild (EP)" 2010, Metalcore
-"Reckless & Relentless" 2011, Metalcore
-"Stepped Up And Scratched (Remixes)" 2011, Metalcore
-"From Death To Destiny" 2013, Metalcore
-"The Black" 2016, Metalcore
+
+
+## Дискография
+
+### "Stand Up And Scream" 2009, Metalcore
+
+01. Alerion
+02. The Final Episode (Let's Change the Channel)
+03. A Candlelit Dinner with Inamorta
+04. Nobody Don't Dance No More
+05. Hey There Mr. Brooks
+06. Hiatus
+07. If You Can't Ride Two Horses at Once... You Should Get Out of the Circus
+08. A Single Moment of Sincerity
+09. Not the American Average
+10. I Used to Have a Best Friend (But Then He Gave Me an STD)
+11. A Prophecy
+12. I Was Once, Possibly, Maybe, Perhaps a Cowboy King
+13. When Everyday's the Weekend
+
+### "Life Gone Wild (EP)" 2010, Metalcore
+
+
+
+### "Reckless & Relentless" 2011, Metalcore
+
+
+
+### "Stepped Up And Scratched (Remixes)" 2011, Metalcore
+
+
+
+### "From Death To Destiny" 2013, Metalcore
+
+
+
+### "The Black" 2016, Metalcore
+
+
+
 
 ## Отношения с другими группами
 

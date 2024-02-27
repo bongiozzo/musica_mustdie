@@ -1,15 +1,140 @@
 # Christ Agony
 
-Дискография
-"Unholyunion" 1993, Black Metal
-"Daemoonseth - Act II" 1995, Black Metal
-"Moonlight - Act III" 1996, Black Metal
-"Darkside" 1997, Black Metal
-"Trilogy" 1998, Black Metal
-"Elysium" 1999, Black Metal
-"Condemnation" 2008, Black Metal
-"NocturN" 2011, Black Metal
-"Black Blood (EP)" 2015, Black Metal
+
+
+## Дискография
+
+### "Unholyunion" 1993, Black Metal
+
+1. Inceremonical
+    Prophetical Part II
+2. Darkthurnal
+    Eternal
+    Shouts
+3. Dies Irae
+4. Ritualus Sceptrus
+    Mystery
+    Prophetical Part I
+
+Engineered By Tom Bonarowski.
+Recorded At Modern Sound Studio (20-31.07.1993).
+Mixed By Tom Bonarowski & CHRIST AGONY.
+Lyrics & Music By Cezar.
+
+Cezar - Guitars, Vocals
+Zurek - Drums
+Ash - Bass, Vocals
+
+(C) 1993 CHRIST AGONY
+(P) 1995 BARON Records
+
+### "Daemoonseth - Act II" 1995, Black Metal
+
+1. Introit Moon
+2. Urtica Iaoica Cultha
+3. Athyrium Typha Luciferi
+4. Diaboli Necronasti
+5. Sacronacturn
+6. Abasatha Pagan (Prophetical Part 3)
+
+ Zurek
+ Ash
+ Cezar
+
+All Songs By CHRIST AGONY
+Engineered & Mixed By CHRIST AGONY
+Recorded At Modern Sound Studio
+
+(p)&(c) 1995 ADIPOCERE Records
+
+### "Moonlight - Act III" 1996, Black Metal
+
+1. Asmoondei
+2. Devilish Sad
+[3].Paganhorns
+4. Mephistospell
+5. Moonlight
+6. Eternalhate
+
+[3] - На стороне B
+
+Mauser - Bass Guitar & Vocals
+Cezar - Guitar & Vocals
+Gilan - Drums & Percussion
+
+All Songs By CHRIST AGONY
+Produced By Cezar.
+Engineered By R.Szmit & J.Kardas.
+Recorded & Mixed At Pro-Studio, Olsztyn.
+
+(P)(C) 1996 CACAPHONOUS Records
+
+### "Darkside" 1997, Black Metal
+
+
+
+### "Trilogy" 1998, Black Metal
+
+1. Spell Of Death  02:46   
+2. Hellspawn  03:07   
+3. Eternal Desires  05:30   
+4. Hail Darkness!  02:59 
+5. Dying Star  02:12   
+6. Elysium  04:49   
+7. Downfall  02:55  
+8. Unvirtue Diabolical  08:02   
+9. Faithless  06:45  
+10. Necro'no'manticism  06:24  
+11. Prophetical Part III  06:56 
+
+### "Elysium" 1999, Black Metal
+
+1. Sadness of Immortality  04:46 
+2. Fiery Torches  04:13 
+3. Demon's Lover  03:00 
+4. Immortal Dust  03:13   
+5. Eternal Stars  03:52   
+6. Elysium  04:37  
+7. Lords of the Night  03:23 
+8. Cold Eyes  04:04   
+9. Bleeding Heart  04:50  
+10. Unvirginity Sin  03:32 
+
+### "Condemnation" 2008, Black Metal
+
+1. Devil's Invocation  06:06   
+2. Psalm ov Livia Khao'tsu  04:48  
+3. Condemnation P.I  04:17   
+4. Temptation ov Lost  06:13   
+5. MarchManifesto  05:30 
+6. BloodSeedNation  04:30   
+7. Condemnation P.II  04:15   
+8. Cult Domination  05:38  
+9. The LeviThan'Suite  12:13   
+10. Purgatory Beast  02:20 
+
+### "NocturN" 2011, Black Metal
+
+1 Opus Sacrum / Reign Of Chaos 03:01 
+2 Frozen Path Unholy Fire 05:28 
+3 The Stigma Of Hell 06:04 
+4 Silent Gods Of Darkness 05:36 
+5 Demonicon Illuminati 05:39 
+6 Black Star Falling 06:47 
+7 Flames Of Several Suns 07:12 
+8 Opus Profanum / Fields Of Inferno 05:50
+
+
+Cezar - Guitars, Vocals 
+Reyash - Bass 
+Inferno - Drums
+
+### "Black Blood (EP)" 2015, Black Metal
+
+1. Black Blood Universe
+2. Coronation
+3. Kingom Of Abyss
+
 
 ## Отношения с другими группами
 

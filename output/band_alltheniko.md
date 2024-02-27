@@ -1,9 +1,53 @@
 # Alltheniko
 
-Дискография
-"We Will Fight!" 2006, Thrash
-"Devasterpiece" 2008, Speed Metal
-"Millennium Re-Burn" 2011, Speed Metal
+
+
+## Дискография
+
+### "We Will Fight!" 2006, Thrash
+
+1. Thrash All Around
+2. Strong Commandos In Black 
+3. Wheel Of Fortune
+4. Sufferman
+5. Dead Brain (Extermination)
+6. Sound of Rust
+7. Coming Soon
+8. The Silent Priest
+9. Alltheniko
+10. Criminal Mind
+11. Carcass
+12. Ace of Spades (Motцrhead Cover) [Bonus Track]
+
+### "Devasterpiece" 2008, Speed Metal
+
+1. Erased	05:19	 
+2. The Evil Forces	04:55	 
+3. Thunder and Steel	04:45	 
+4. Law of the Stronger	04:29	 
+5. Devasterpiece (Intro)	01:22	 
+6. Metal Unchained	04:55	 
+7. Rise and Fall	04:31	 
+8. I'm a Fuckin Zombie	03:35	 
+9. Feel the Power	04:28	 
+10. When This Demon's Coming	05:05	 
+11. The Godfather	05:49	 
+
+### "Millennium Re-Burn" 2011, Speed Metal
+
+1. (Intro) Millennium	01:00
+2. Spirit of the Highway	04:53
+3. No More Fear*	04:30	 
+4. Harold Will Survive	04:39	 
+5. Metal Lord	05:36	 
+6. The Inner Self	05:55	 
+7. Masterful Man	03:42	 
+8. Army of Nerds	05:05	 
+9. Hide In The Dark	04:49
+10. In The Name Of The Cross	04:52	 
+11. Broken Wings	06:25	 
+12. Re-Burn	04:25	
+
 
 ## Отношения с другими группами
 

@@ -1,12 +1,88 @@
 # Exhumed
 
-Дискография
-"Gore Metal" 1998, Grindcore
-"Slaughtercult" 2000, Grindcore
-"Anatomy Is Destiny" 2003, Grindcore
-"Platters Of Splatter (Compilation)" 2004, Grindcore
-"Garbage Daze Re-Regurgitated" 2005, Grindcore
-"All Guts, No Glory" 2011, Deathcore
+Great deathgrind
+
+## Дискография
+
+### "Gore Metal" 1998, Grindcore
+
+1. Necromaniac
+2. Open the Abscess
+3. Postmortem Procedures	
+4. Limb From Limb
+5. Enucleation
+6. Casketkrusher
+7. Deathmask
+8. In My Human Slaughterhouse
+9. Sepulchral Slaughter
+10. Vagitarian ll
+11. Blazing Corpse
+12. Deadest of the Dead
+13. Sodomy and Lust (Sodom cover)
+
+### "Slaughtercult" 2000, Grindcore
+
+1. Decrepit Crescendo
+2. Forged in Fire (Formed in Flame)
+3. A Lesson in Pathology
+4. This Axe Was Made to Grind
+5. Carnal Epitaph
+6. Dinnertime in the Morgue
+7. Fester Forever
+8. Deep Red
+9. Infester
+10. Slave to the Casket
+11. Slaughtercult
+12. Funeral Fuck
+13. Vacant Grave
+
+### "Anatomy Is Destiny" 2003, Grindcore
+
+1. Anatomy Is Destiny	 
+2. Waxwork
+3. The Matter of Splatter
+4. Under the Knife
+5. Consuming Impulse
+6. Grotesqueries
+7. In the Name of Gore
+8. Arclight
+9. Nativity Obscene (A Nursery Chyme)
+10. Death Walks Behind You
+11. A Song for the Dead
+
+### "Platters Of Splatter (Compilation)" 2004, Grindcore
+
+
+
+### "Garbage Daze Re-Regurgitated" 2005, Grindcore
+
+1. A Reflection	 
+2. All Murder, All Guts, All Fun (Samhain cover)
+3. Pay to Die (Master cover)
+4. The Power Remains (Amebix cover)
+5. Uninformed (Unseen Terror cover)
+6. No Quarter (Led Zeppelin cover)
+7. Trapped Under Ice (Metallica cover)
+8. Necrophilia (GBH cover)
+9. The Ghoul (Pentagram cover)
+10. In Fear We Kill (Epidemic cover)	 
+11. Twisted Face (Sadus cover)
+12. Drop Dead (Siege cover)
+
+### "All Guts, No Glory" 2011, Deathcore
+
+1. All Guts, No Glory
+2. As Hammer to Anvil
+3. Your Funeral, My Feast
+4. Through Cadaver Eyes
+5. Death Knell
+6. Distorted and Twisted to Form
+7. I Rot Within
+8. Dis-assembly Line
+9. Necrotized
+10. Funereality
+11. So Let It Be Rotten… So Let It Be Done
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,30 @@
 # Immortalis
 
-Дискография
-"Indicium De Mortuis" 1991, Death Metal
+Melodic Sweden Death Metal
+
+## Дискография
+
+### "Indicium De Mortuis" 1991, Death Metal
+
+1. Intro
+2. Burning Existence
+3. Subordinate Gods
+4. Bleeding Inheritance
+5. Quo Vadis (Everlasting Life)
+6. Indicium De Mortuis
+7. My Requiem
+8. Voices Of Forgotten Souls
+9. Blasphemous Process
+10.Countess Bathory * 
+
+Produced, Mixed, Engineered, Mastered At
+Stage 1 Studio, November, Germany By
+Andy Classen.
+All Lyrics & Music By Sebastian Bielecki,
+Except Of (*) By VENOM.
+
+(p)&(c) 1991 MORBID MUSIC Records
+
 
 ## Отношения с другими группами
 

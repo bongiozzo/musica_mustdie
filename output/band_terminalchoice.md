@@ -1,11 +1,90 @@
 # Terminal Choice
 
-Дискография
-"in the shadow of death" 1996, Metal
-"navigator" 1998, Metal
-"black past" 1999, Metal
-"ominous future" 2000, Metal
-"menschenbrecher" 2003, Metal
+EBM/Dark Electro
+
+## Дискография
+
+### "in the shadow of death" 1996, Metal
+
+The Awaking
+Aggression (German Boy)
+Serial Killer (Original Mix)
+Invitation To Death
+Bodylation
+Sehnsucht
+Kiss You (Remix)
+Flesh In Chains
+Psychopath
+Die Macht
+Black Dressed Woman
+Beg For Absolution
+
+### "navigator" 1998, Metal
+
+Actual Reality? (Intro)
+Without Warning
+Victim Of Life
+Someone
+Navigator I
+Der Tod
+House Of Evil
+No Escape
+The Sons Of Doom
+Tenderness
+Navigator II
+The Eternal Evil
+Kaltes Herz
+Navigator III
+Navigator IV (Version)
+
+### "black past" 1999, Metal
+
+Creatures
+Kill Them All
+The Evil Command
+Life Full Of Tragedy
+Necromantic Lover
+Die Ewigkeit
+Digital Terror
+Kiss You
+(Orig. Demo Version)
+The End Of The
+Human Race
+When I Close My Eyes
+Klaustrophobia
+Death
+
+### "ominous future" 2000, Metal
+
+The Savior
+No Chance
+Animal
+Armageddon
+In Your Soul
+Human Hunter
+Universe Of Love
+Time
+On The Battlefield
+My Way
+New World
+I Kissed Her
+Perverted Love
+
+### "menschenbrecher" 2003, Metal
+
+She's The Devil
+Menschenbrecher
+You Don't Deserve Me
+Injustice
+Stay With Me
+Warriors From Outa Space
+Engelstod
+Pull The Trigger
+Eiszeit
+Why Me?
+Out Of The Dark
+Be Like Me
+
 
 ## Отношения с другими группами
 

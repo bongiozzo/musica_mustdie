@@ -1,30 +1,405 @@
 # Marduk
 
-Дискография
-"Fuck Me Jesus" 1991, Black Metal
-"Dark Endless" 1992, Black Metal
-"Those Of The Unlight" 1993, Black Metal
-"Opus Nocturne" 1994, Black Metal
-"Heaven Shall Burn...When We Are Gathered" 1996, Black Metal
-"Glorification (MCD)" 1996, Black Metal
-"Germania (live)" 1997, Black Metal
-"Here's no Peace (MCD)" 1997, Black Metal
-"Nightwing" 1998, Black Metal
-"Panzer Division Marduk" 1999, Black Metal
-"Fuck Me Jesus" 1999, Black Metal
-"Infernal Eternal (live, 2CD)" 2000, Black Metal
-"Obedience (EP)" 2000, Black Metal
-"La Grande Danse Macabre" 2001, Black Metal
-"Blackcrowned (Box Set)" 2002, Black Metal
-"World Funeral" 2003, Black Metal
-"Hearse (EP)" 2003, Black Metal
-"Plague Angel" 2004, Black Metal
-"Funeral Marches and Warsongs DVD" 2004, Black Metal
-"Blood Puke Salvation DVD" 2006, Black Metal
-"Rom 5:12" 2007, Black Metal
-"Wormwood" 2009, Black Metal
-"Serpent Sermon" 2012, Black Metal
-"Frontschwein" 2015, Black Metal
+Satanic black metal band
+
+## Дискография
+
+### "Fuck Me Jesus" 1991, Black Metal
+
+1. Fuck Me Jesus
+2. Departure from the Mortals
+3. The Black
+4. Within the Abyss
+5. Shut up and Suffer 
+
+### "Dark Endless" 1992, Black Metal
+
+1. Still Fucking Dead (Here's No Peace)
+2. The Sun Turns Black At Night
+3. Within The Abyss
+4. The Funeral Seems To Be Endless
+5. Departure From The Mortals
+6. The Black...
+7. Dark Endless
+8. Holy Inquisition
+
+ Andreas Axelsson - Vox
+ Devo Andersson - Guitar
+ Morgan Hakansson - Guitar
+ Joakim Grave - Drums
+ Bogge Svensson - Bass
+
+Bass On This Album By Rickard Kalm
+All Songs Written By MARDUK
+Produced & Mixed By Dan Swano And MARDUK
+Recorded At Hellspawn Studios
+
+(p)&(c) 1992 NO FASHION Records
+
+### "Those Of The Unlight" 1993, Black Metal
+
+1. Darkness Breeds Immortality
+2. Those Of The Unlight
+3. Wolves
+4. On Darkened Winds
+5. Burn My Coffin
+6. A Sculpture Of The Night
+7. Echoes From The Past
+8. Stone Stands It`s Silent Vigil
+
+All Music & Arrangements By MARDUK.
+All Lyrics By Morberg Hakansson.
+Produced By MARDUK.
+Recorded & Mixed At Hellspawn Studios 
+During April 1993.
+
+(p)&(c) 1993 OSMOSE Productions
+
+
+### "Opus Nocturne" 1994, Black Metal
+
+1. Intro/The Apperance Of Spirits Of Darkness
+2. Sulphur Souls
+3. From Subterranean Throne Profound
+4. Autumnal Reaper
+5. Materialized In Tone
+6. Untrodden Paths (Wolves Part II)
+7. Opus Nocturne
+8. Deme Quaden Thyrane
+9. The Sun Has Failed
+
+ Morgan Hakansson - Guitars
+ Fredrik Andersson - Drums
+ Joakim Af Gravf - Vocals
+ B. War - Bass
+
+All Songs Written By MARDUK
+Produced By MARDUK
+Engineered & Mixed By Dan Swano
+Recorded At Unisound, September 1994
+
+(p)&(c) 1994 OSMOSE Productions
+
+
+### "Heaven Shall Burn...When We Are Gathered" 1996, Black Metal
+
+1. Summon The Darkness
+2. Beyond The Grace Of God
+3. Infernal Eternal
+4. Glorification Of The Black God
+5. Darkness It Shall Be
+6. The Black Tormentors Of Satan
+7. Dracul Va Domni Din Nou In Transilvania
+8. Legion
+
+Morgan Stenmeyer Hakansson - All Guitars
+Fredrik Andersson - Drums Of Doom
+Legion - Mouth Of Satan
+B. War - Bass
+
+All Music & Lyrics Written By MARDUK
+Produced By Peter Tagtgren & MARDUK.
+Engineered & Mixed By Peter Tagtgren.
+Recorded & Mixed At Abyss Studio, Sweden.
+
+(p)&(c) 1996 OSMOSE Productions
+
+### "Glorification (MCD)" 1996, Black Metal
+
+ 1. Glorification Of The Black God (remix)
+ 2. Total Disaster (Destruction cover)
+ 3. Sodomize The Dead (Piledriver cover)
+ 4. Sex With Satan (Piledriver cover)
+ 5. The Return Of Darkness And Evil (Bathory cover)
+
+### "Germania (live)" 1997, Black Metal
+
+1. Beyond the Grace of God
+2. Sulphur Souls
+3. The Black
+4. Darkness it shall Be
+5. Materialized in Stone
+6. Infernal Eternal
+7. On Darkened Wings
+8. Wolves
+9. Untrodden Paths (Wolves pt II)
+10. Dracul va Domni..
+11. Legion
+12. Total Desaster 
+
+
+
+### "Here's no Peace (MCD)" 1997, Black Metal
+
+1. Here's no Peace
+2. Still Fucking Dead
+3. Within the Abyss 
+
+### "Nightwing" 1998, Black Metal
+
+1. Preludium
+2. Blood tide (xxx)
+3. Of Hells fire
+4. Slay the Nazarene
+5. Nightwing
+6. Dreams of Blood and Iron
+7. Dracole Wayda
+8. Kaziklu Bay - The lord impaler
+9. Deme quaden thyrane
+10.Anno Domini 1476
+
+### "Panzer Division Marduk" 1999, Black Metal
+
+1. Panzer Division Marduk
+2. Baptism by Fire
+3. Christraping Black Metal
+4. Scorched Earth
+5. Beast of Prey
+6. Blooddawn
+7. 502
+8. Fistfucking God's Planet 
+
+### "Fuck Me Jesus" 1999, Black Metal
+
+01. Fuck Me Jesus 
+02. Departure From The Mortals 
+03. The Black 
+04. Within The Abyss 
+05. Shut Up And Suffer 
+06. Dark Endless (bonus track) 
+07. In Conspiracy With Satan (bonus track) 
+08. Woman Of Dark Desires (bonus track)
+
+### "Infernal Eternal (live, 2CD)" 2000, Black Metal
+
+CD1 - 
+'Panzer Division Marduk'
+'Burn My Coffin', 
+'Baptism By Fire', 
+'The Sun Turns Black As Night', 
+'Of Hells Fire', 
+'502', 
+'Materialized In Stone', 
+'Beast Of Prey', 
+'Those Of The Unlight', 
+'Sulphur Souls', 
+'Dreams Of Blood And Iron' 
+'Fistfucking Gods Planet'. 
+
+CD2- 
+'On Darkened Wings', 
+'Into The Crypts Of Rays', 
+'Still Fucking Dead', 
+'Slay The Nazarene', 
+'Departure From The Mortals', 
+'Legion' и 
++ CD-ROM's bonus tracks.
+
+### "Obedience (EP)" 2000, Black Metal
+
+01. Obedience 
+02. Funeral Bitch 
+03. Into The Crypts Of Rays
+
+### "La Grande Danse Macabre" 2001, Black Metal
+
+01. Ars Moriendi 
+02. Azrael 
+03. Pompa Funebris 1660 
+04. Obedience Unto Death 
+05. Bonds of Unholy Matrimony 
+06. La Grande Danse Macabre 
+07. Death Sex Ejaculation 
+08. Funeral Bitch 
+09. Summers End 
+10. Jesus Christ…Sodomized
+
+### "Blackcrowned (Box Set)" 2002, Black Metal
+
+
+
+### "World Funeral" 2003, Black Metal
+
+01. With Satan And Victorious Weapons
+02. Bleached Bones
+03. Cloven Hoof
+04. Hearse
+05. To The Death's Head True
+06. World Funeral
+07. Castrum Doloris
+08. Night Of The Long Knives
+09. Bloodletting
+10. Blessed Unholy
+11. Blackcrowned
+
+
+### "Hearse (EP)" 2003, Black Metal
+
+
+
+### "Plague Angel" 2004, Black Metal
+
+01. The Hangman of Prague
+02. Throne of Rats
+03. Seven Angels, Seven Trumpets
+04. Life's Emblem
+05. Steel Inferno
+06. Perish In Flames
+07. Holy Blood, Holy Grail
+08. Warschau
+09. Deathmarch
+10. Everything Bleeds
+11. Blutrache
+
+### "Funeral Marches and Warsongs DVD" 2004, Black Metal
+
+9 апреля 2003, Париж, Франция 
+Blackcrowned 
+With Satan and Victorious Weapons 
+Azrael 
+Wolves 
+World Funeral 
+Hearse 
+Bleached Bones 
+Of Hell’s Fire 
+Darkness it Shall be 
+Fistfucking God’s Planet 
+5 апреля 2003, Катовице, Польша 
+Blackcrowned 
+With Satan and Victorious Weapons 
+Azrael 
+Wolves 
+World Funeral 
+Hearse 
+Bleached Bones 
+Of Hells Fire 
+Darkness it Shall be 
+Fistfucking God’s Planet 
+7 августа 2003, Party San (open air festival), Bad Berka, Германия 
+Jesus Christ… Sodomized 
+Baptism by Fire 
+The Black 
+Still Fucking Dead 
+Видеоклипы: 
+Hearse (снят в апреле 2003) 
+World Funeral (снят в апреле 2003)
+
+### "Blood Puke Salvation DVD" 2006, Black Metal
+
+Disc 1:
+Tillburg, Holland December 18th 2004
+Azrael
+The hangman of Prague
+Burn my coffin
+With Satan and victorious weapons
+Perish in Flames
+Slay the nazarene
+Sulphur souls
+Panzer division marduk
+The Black
+Warschau
+Bleached bones
+On darkened wings
+Throne of rats
+Wolves
+Anwerpen, Belgium December 19th 2004
+The Black
+Bleached bones
+Throne of rats
+World funeral
+Slay the nazarene
+Sulphur souls
+Panzer division marduk
+photogallery
+Disc 2:
+Videos:
+Throne of Rats
+Steel Inferno
+The Hangman of Prague
+Deathmarch 2004/2005 (incl. 21 tracks from various concert during touring 2004 & 2005)
+Interviews with Morgan Steinmeyer Hakansson and Mortuus
+Behind the scenes material
+
+### "Rom 5:12" 2007, Black Metal
+
+1. The Levelling Dust 05:11  
+2. Cold Mouth Prayer 03:28  
+3. Imago Mortis 08:36  
+4. Through The Belly Of Damnation 04:19  
+5. 1651 04:54  
+6. Limbs Of Worship 04:24  
+7. Accuser / Opposer 08:43  
+8. Vanity Of Vanities 03:40  
+9. Womb Of Perishableness 07:01  
+10. Voices From Avignon 05:08 
+
+Morgan Steinmeyer Hеkansson - Guitars 
+Mortuus ``Arioch`` - Vocals 
+Magnus ``Devo`` Andersson - Bass 
+Lars Broddesson - Drums 
+
+Recorded at Endarker studio
+CD Version Comes with a massive 44page booklet
+LP and PicLP 500 Limited to 500 copies each
+
+Guest vocals:
+Joakim Gцthberg on "Cold Mouth Prayer"
+Naihmass Nemtheanga on "Accuser / Opposer"
+
+"1651" was made by Arditi & Marduk
+
+### "Wormwood" 2009, Black Metal
+
+1. Nowhere, No-One, Nothing 03:19  
+2. Funeral Dawn 05:51  
+3. This Fleshly Void 03:06  
+4. Unclosing The Curse 02:15  
+5. Into Utter Madness 04:56  
+6. Phosphorous Redeemer 06:11  
+7. To Redirect Perdition 06:41  
+8. Whorecrown 05:29  
+9. Chorus Of Cracking Necks 03:47  
+10. As A Garment 04:17 
+
+
+Line-up:
+
+Daniel "Mortuus" Rosten - Vocals
+Morgan "Evil" Steinmeyer HГҐkansson - Guitars
+Magnus "Devo" Andersson - Bass
+Lars Broddesson - Drums
+
+Recorded at Endarker Studios in NorrkпїЅping with engineer/producer Magnus
+"Devo" Andersson. 
+
+### "Serpent Sermon" 2012, Black Metal
+
+1. Serpent Sermon
+2. Messianic Pestilence
+3. Souls For Belial
+4. Into Second Death
+5. Temple Of Decay
+6. Damnations Gold
+7. Hail Mary ( Piss-soaked Genuflexion)
+8. M.A.M.M.O.N.
+9. Gospel Of The Worm
+10. World Of Blades
+11. Coram Satanae (Bonus Track) 
+
+### "Frontschwein" 2015, Black Metal
+
+1. Frontschwein  03:13    
+2. The Blond Beast  04:26    
+3. Afrika  04:00    
+4. Wartheland  04:17    
+5. Rope of Regret  03:52    
+6. Between the Wolf-Packs  04:28    
+7. Nebelwerfer  06:17    
+8. Falaise: Cauldron of Blood  04:58 
+9. Doomsday Elite  08:11    
+10. 503  05:12    
+11. Thousand-Fold Death  03:45   
+
 
 ## Отношения с другими группами
 

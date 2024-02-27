@@ -1,7 +1,22 @@
 # Eminence
 
-Дискография
-"The God Of All Mistakes" 2008, Thrash
+
+
+## Дискография
+
+### "The God Of All Mistakes" 2008, Thrash
+
+Resistance 
+Written In Dust 
+Enemy Inside 
+The God Of All Mistakes 
+Diablo“s Odiado 
+Stainer 
+Injected Lies 
+Undermind 
+Egomaniac 
+Threatened By A New Plague 
+
 
 ## Отношения с другими группами
 

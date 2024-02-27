@@ -1,7 +1,33 @@
 # Elnordia
 
-Дискография
-"Insight" 2007, Gothic
+
+
+## Дискография
+
+### "Insight" 2007, Gothic
+
+1. Velvet Of Night; 
+2. Dark Phoenix Rise; 
+3. Ghost Of The Sunset; 
+4. Phantom Queen; 
+5. Frozen Flame; 
+6. My Desire; 
+7. Nocturnal Fears; 
+8. Within The Cry Of Loneliness; 
+9. Dusk Of The Age
+
+All songs written by ELNORDIA
+Recorded by Dmitriy Panov and Nykolay Gribenyuk at Faust Records Studio
+Mixed and mastered by Andrey Klyushnikov at Soundrecord Studio
+
+Nina Kuzmina - Vocals
+Ekaterina Karapetyan - Keyboards
+Dmitriy Kupchin - Drums
+Dmitriy Maryashin - Guitars
+Roman Smirnov - Bass
+Vladimir Karman - Guitars
+Spartak Glovatsky - Vocals
+
 
 ## Отношения с другими группами
 

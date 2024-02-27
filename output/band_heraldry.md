@@ -1,7 +1,31 @@
 # Heraldry
 
-Дискография
-"Shadows Of Ancient Skies" 2002, Power Metal
+
+
+## Дискография
+
+### "Shadows Of Ancient Skies" 2002, Power Metal
+
+1. Dream Fighter
+2. The Afterglow
+3. Last Warrior's cry
+4. Landscape
+5. The Fortune Teller
+6. Heraldry
+7. Shadows Of Ancient Skies 
+8. Last warrior's Cry (edit version) 
+
+
+
+Max Romano - Vocal, guitars
+Antonio Machera - guitar
+Enzo Ferlazzo - guitar
+Michele Garolla - keyboards
+Fabrizio Machera - Drums
+
+
+
+
 
 ## Отношения с другими группами
 

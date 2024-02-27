@@ -1,7 +1,13 @@
 # Lex Talionis
 
-Дискография
-"The Supreme Aggression" 2003, Death Metal
+
+
+## Дискография
+
+### "The Supreme Aggression" 2003, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

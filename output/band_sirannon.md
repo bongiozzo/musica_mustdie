@@ -1,7 +1,25 @@
 # Sirannon
 
-Дискография
-"Semer Caliga" 2011, Black Metal
+
+
+## Дискография
+
+### "Semer Caliga" 2011, Black Metal
+
+1. Annon Morin
+2. Lunar Seas
+3. In the Shadow of the Excommunication
+4. Karayug
+5. Magna Mater
+6. Children of the Wolves
+7. Black Annis
+8. The Holy Raven
+9. Eternity is Theirs
+10. My Hegira
+11. Erke Solton
+12. Ethereal Empire
+13. In Etemenanki
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,29 @@
 # Limbo
 
-Дискография
-"Zos Kia Kaos" 1995, Industrial
+
+
+## Дискография
+
+### "Zos Kia Kaos" 1995, Industrial
+
+1. Cyberchrist
+2. Trans Neuro Regress
+3. Teleoblivione
+4. From Mass Mutations To Chaos Theory
+5. Mentecaptus
+6. Biometallica
+7. Genetica Magica Atomica
+8. Eurape
+9. Street Surgery
+10.Pre Entropia Escatologica
+
+Produced, Mixed & Recorded At 
+Birdland Genova By LIMBO.
+All Songs Composed & Arranged By LIMBO,
+Except Track 2 By Hutter/Schult & Track 6 By METALLICA.
+
+(P)&(C) 1995 DISCORDIA Records
+
 
 ## Отношения с другими группами
 

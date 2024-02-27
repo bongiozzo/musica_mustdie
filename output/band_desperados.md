@@ -1,7 +1,26 @@
 # Desperados
 
-Дискография
-"The Dawn Of Dying" 2001, Thrash
+
+
+## Дискография
+
+### "The Dawn Of Dying" 2001, Thrash
+
+1.      The Beginning 
+2.      As A Judgement 
+3.      Gomorrha Of The Plains 
+4.      The Dawn Of Dying 
+5.      My Gun And Me 
+6.      Gone With The Wind 
+7.      Rattlesnake Shake 
+8.      (Ghost) Riders In The Sky 
+9.      Devilґs Horse 
+10.  Jumpinґ Down The Running Train 
+11.  Dodge City 
+12.  Desperados 
+13.  The End 
+14.  Oriental Saloon
+
 
 ## Отношения с другими группами
 

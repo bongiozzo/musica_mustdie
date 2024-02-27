@@ -1,8 +1,30 @@
 # Beatrik
 
-Дискография
-"Journey Through The End of Life" 2004, Black Metal
-"Requiem of December " 2005, Black Metal
+
+
+## Дискография
+
+### "Journey Through The End of Life" 2004, Black Metal
+
+1. Buried Among Skeletal Woods 05:55 
+2. To Feel the End Near 06:37 
+3. The Charon's Embrace 06:09  
+4. Beatrмk 04:40  
+5. Last Dawn 06:06 
+6. Journey Through the End of Life 05:02 
+7. Spell of Destruction (Burzum cover) 05:50 
+
+
+### "Requiem of December " 2005, Black Metal
+
+1. My Funeral to Come 10:30 
+2. Requiem of December 07:21 
+3. Eternal Rest 05:24  
+4. The Last Wandering 08:08  
+5. Apollonia's December, 7th 1647 07:48 
+6. Returning After a Death 08:40 
+
+
 
 ## Отношения с другими группами
 

@@ -1,9 +1,62 @@
 # Degradead
 
-Дискография
-"Til Death Do Us Apart" 2008, Melodic Death Metal
-"Out Of Body Experience" 2009, Melodic Death Metal
-"A World Destroyer" 2011, Melodic Death Metal
+
+
+## Дискография
+
+### "Til Death Do Us Apart" 2008, Melodic Death Metal
+
+1. Genetic Waste 03:50
+2. Take Control 03:36 
+3. Burned 03:34 
+4. Pass Away 04:40 
+5. Relations To The Humanity 04:07 
+6. The Bloodchain 03:33 
+7. The Fallen 04:14 
+8. Day Of The Dead 03:36 
+9. Resemblace Of The Past 04:39
+10. Reborn 03:01 
+11. Til Death Do Us Apart 02:16 
+
+### "Out Of Body Experience" 2009, Melodic Death Metal
+
+1. All Is Gone 04:06  
+2. Wake The Storm 03:53  
+3. Achieve The Sky 03:33  
+4. Everlasting Hatred 05:14  
+5. Depths Of Darkness 03:15  
+6. V.X.R 03:13  
+7. Future Is Now 03:42  
+8. Transmigration 02:31  
+9. The Burning Orchid 03:24  
+10. Almost Dead 03:16  
+11. Dream 03:15  
+12. Illusion 03:41  
+13. Suffering 03:32  
+14. Unfortunate 04:20 
+
+### "A World Destroyer" 2011, Melodic Death Metal
+
+1. Human Nature  04:20    
+2. A Taste Of Destiny  03:47    
+3. A False Hope  04:16    
+4. The Final Judgment  03:28    
+5. Broken  03:37    
+6. Part Of The System  05:24    
+7. No One Prevail  04:31    
+8. Cold Blood  03:38    
+9. Near The End  03:46    
+10. Kept In The Dark  03:45  
+
+
+Michel Barzen  Bass  
+Kenneth Helgesson  Drums  
+Anders Nystrom  Guitars  
+David Szucs  Guitars  
+Mikael Sehlin  Vocals  
+ 
+
+
 
 ## Отношения с другими группами
 

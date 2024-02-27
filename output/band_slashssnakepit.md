@@ -1,8 +1,57 @@
 # Slash's Snakepit
 
-Дискография
-"It's Five O'Clock Somewhere" 1995, Hard Rock
-"Ain't Life Grand" 2000, Hard Rock
+Member Guns'N'Roses
+
+## Дискография
+
+### "It's Five O'Clock Somewhere" 1995, Hard Rock
+
+1. Neither Can I
+2. Dime Store Rock
+3. Beggars & Hangers-On
+4. Good To Be Alive
+5. What Do You Want To Be
+6. Monkey Show
+7. Soma City Ward
+8. Jizz Da Pit
+9. Lower
+10. Take It Away
+11. Doin't Time
+12. Be The Ball
+13. I Hate Everybody (But You)
+14. Back And Forth Again
+
+Eric Dover - Vocal
+Slash - Guitars
+Gilby Clark - Rhythm Guitars
+Mike Inez - Bass
+Matt Sarum - Drums
+Dizzy Reed - Keyboards
+
+(P)&(C) 1995
+
+### "Ain't Life Grand" 2000, Hard Rock
+
+1. Been There Lately
+2. Just Like Anything
+3. Shine
+4. Mean Bone
+5. Back to the Moment
+6. Life's Sweet Drug
+7. Serial Killer
+8. The Truth
+9. Landslide
+10. Ain't Life Grand
+11. Speed Parade
+12. The Alien
+
+BONUS TRACKS - JAPANESE/AUSTRALIA ONLY
+JAPANESE {13 AND 14} AUSTRALIA {14} 
+13. Rusted Heroes
+14. Something About Your Love
+
+
+
 
 ## Отношения с другими группами
 

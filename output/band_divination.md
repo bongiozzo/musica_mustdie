@@ -1,7 +1,34 @@
 # Divination
 
-Дискография
-"Ambient Dub" 1994, Hardcore
+
+
+## Дискография
+
+### "Ambient Dub" 1994, Hardcore
+
+1. Divination One
+2. Seven Heavens
+3. Erratta
+4. Delta
+5. Tian Zhen
+6. Agrippa
+7. Godspeed
+8. Ain Soph Aour
+
+ Bill Laswell
+ Liu Sola
+ Jeff Bova
+ Nicky Skopelitis
+ Buckethead
+ Robert Musso
+
+Produced By Bill Laswell.
+Engineered By Robert Musso.
+Recorded & Mixed At Greenpoint
+Studios,Brooklyn.
+
+(p)&(c) 1994 SUBHARMONIC Records
+
 
 ## Отношения с другими группами
 

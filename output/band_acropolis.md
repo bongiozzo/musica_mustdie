@@ -1,6 +1,9 @@
 # Acropolis
 
-Дискография
+Neoclassical Progressive/Power Metal from Israel
+
+## Дискография
+
 
 ## Отношения с другими группами
 

@@ -1,15 +1,128 @@
 # Mourning Beloveth
 
-Дискография
-"Debut (demo)" 1996, Death Doom
-"Autumnal Fires (demo)" 1998, Death Doom
-"Dust" 2001, Death Doom
-"Dust (re-released)" 2002, Death Doom
-"The Sullen Sulcus" 2003, Death Doom
-"A Murderous Circus" 2005, Death Doom
-"A Disease for the Ages" 2008, Death Doom
-"Formless" 2013, Death Doom
-"Rust & Bone" 2016, Death Doom
+(Heavy Hypnotic Doom Metal)
+
+
+## Дискография
+
+### "Debut (demo)" 1996, Death Doom
+
+
+
+### "Autumnal Fires (demo)" 1998, Death Doom
+
+Forever Lost Emeralds
+A Haunting Vision (this obsequious dream)
+Autumns Fires in Somnolent Harmony
+
+
+Demo
+Release Date: April 1998 
+Recorded & Mixed in Poppyhill Studios April 11th & 12th 1998.
+Engineered by Graham Ryan and Paul Jordan.
+Produced by Graham Ryan and Adrian Butler.
+All Music by Mourning Beloveth.
+All Words by Darren. 
+
+Line Up:
+Darren - Vocals
+Frank - Guitar
+Brian - Guitar
+Timmy - Drums
+Adrian - Bass 
+
+
+
+### "Dust" 2001, Death Doom
+
+The Mountains are Mine
+In Mourning my Days
+Dust
+Autumnal Fires
+All Hope is Pleading
+Sinistra (Hidden Track)
+
+
+Format: CD
+Release Date: January 23rd 2001 
+Recorded and mixed in Academy May 30 to June 7 2000.
+Engineered and produced by Mags.
+All music and lyrics by Mourning Beloveth. 
+
+Line Up:
+Darren - Vocals
+Frank - Guitar
+Brian - Guitar
+Timmy - Drums
+Adrian - Bass 
+
+
+### "Dust (re-released)" 2002, Death Doom
+
+Recorded at Academy Studios, England, produced by Mags and remastered by Stuart Anstsis.
+ 
+1.The Mountains Are Mine
+2.In Mourning My Days
+3.Dust 
+4.Autumnal Fires
+ 5.All Hope Is Pleading
+6.It Almost Looked Human (taken from Mourning Beloveth's yet to be released second full-length The Sullen Sulcus)
+7.Sinistra
+8.Forever Lost Emeralds (taken from Autumnal Fires demo)
+
+### "The Sullen Sulcus" 2003, Death Doom
+
+1. The Words That Crawled
+2. It Almost Looked Human
+3. The Insolent Caul
+4. Narcissistic Funeral
+5. My Sullen Sulcus
+6. Angers Steaming Arrows
+
+Darren - Vocals
+Frank - Guitar
+Brian - Guitar
+Timmy - Drums
+Adrian - Bass
+
+Recorded and mixed in Academy April/May 2002
+Mixed, recorded and produced by Mags.
+Mastered by Stuart Anstis.
+All music and lyrics by Mourning Beloveth.
+
+(p) 2003 Aftermath Music
+(p) Irond - Dark Division
+
+### "A Murderous Circus" 2005, Death Doom
+
+The Apocalypse Machine
+Elemental Nausea
+The Crashing Wave
+Nothing (The March of Death)
+…yet Everything
+
+### "A Disease for the Ages" 2008, Death Doom
+
+1. The Sickness 13:08  
+2. Trace Decay 08:46  
+3. Primeval Rush 12:44  
+4. The Burning Man 10:47  
+5. Poison Beyond All 10:31 
+
+
+### "Formless" 2013, Death Doom
+
+
+
+### "Rust & Bone" 2016, Death Doom
+
+1. Godether  16:23
+2. Rust  01:54   instrumental  
+3. The Mantle Tomb  11:00    
+4. Bone  01:16   instrumental  
+5. A Terrible Beauty Is Born  06:58  
+
+
 
 ## Отношения с другими группами
 

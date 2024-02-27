@@ -1,22 +1,298 @@
 # Entombed
 
-Дискография
-"But Life Goes On (demo)" 1989, Death Metal
-"Left Hand Path" 1990, Death Metal
-"Clandestine" 1991, Death Metal
-"Stranger Aeons" 1992, Death Metal
-"Hollowman" 1993, Death Metal
-"Wolverine Blues" 1993, Death Metal
-"Out Of Hand" 1994, Death Metal
-"To Ride, Shoot Straight And Speak The Truth" 1997, Death Metal
-"Entombed" 1997, Death Metal
-"Same Difference" 1999, Death Metal
-"Uprising" 2000, Death Metal
-"Morning Star" 2001, Death Metal
-"Inferno" 2003, Death Metal
-"Unreal Estate" 2004, Death Metal
-"Serpent Saints - The Ten Amendments" 2007, Death Metal
-"Amok (single)" 2012, Metal
+Swedish Legend
+
+## Дискография
+
+### "But Life Goes On (demo)" 1989, Death Metal
+
+
+
+### "Left Hand Path" 1990, Death Metal
+
+1. Left Hand Path
+2. Drowned
+3. Revel In Flesh
+4. When Life Has Ceased
+5. Supposed To Rot
+6. But Life Goes On
+7. Bitter Loss
+8. Morbid Devourment
+9. Abnormally Deceased
+10.The Truth Beyond
+
+ Lars-Goran Petrov - Vocals
+ Alex Hellid - Guitars
+ Uffe Cederlund - Bass
+ Nicke Andersson - Drums
+
+All Lyrics By Nicke & Alex.
+All Music By Nicke,Uffe & Leffe.
+Arrangements By ENTOMBED / NIHILIST.
+Produced By Thomas Skogsberg & ENTOMBED.
+Engineered By Thomas Skogsberg.
+Recorded & Mixed At Sunlight Studio,Stockholm,
+December.
+Cover Art By Dan SeaGrave.
+Photos By Micke Lundstrom.
+
+(p)&(c) 1990 EARACHE Records
+
+
+### "Clandestine" 1991, Death Metal
+
+1. Living Dead
+2. Sinners Bleed
+3. Evilyn
+4. Blessed Be
+5. Stranger Aeons
+6. Chaos Breed
+7. Crawl
+8. Severe Burns
+9. Through The Collonades
+
+ Johnny Dordevic - Vocals
+ Alex Hellid - Guitars
+ Ulf Cederlund - Guitar & Backing Vocal
+ Nicke Andersson - Drums & Backing Vocal
+ Lars Rosenberg - Bass
+
+All Songs By ENTOMBED.
+Produced & Engineered By ENTOMBED & Thomas Skogsberg.
+Recorded At Sunlight Studios,Stockholm,1991.
+
+(p)&(c) 1991 EARACHE Records Mosh 037
+
+### "Stranger Aeons" 1992, Death Metal
+
+1. Stranger Aeons    3.25
+2. Dusk     2.34
+3. Shreds Of Flesh    2.02
+
+ Johnny Dordevic - Vocals
+ Ulf Cederlund - Guitars & Back. Vocals
+ Alex Hellid - Guitars
+ Lars Rosenberg - Bass
+ Nicke Andersson - Drums & Back. Vocals
+
+Produced By ENTOMBED.
+Engineered By Thomas Skogsberg.
+Recorded At Sunlight Studio,Stockholm.
+
+(p)&(c) 1992 EARACHE Records
+
+### "Hollowman" 1993, Death Metal
+
+1. Hollowman
+2. Serpent Speech
+3. Wolverine Blues
+4. Bonehouse
+5. Put Off The Scent
+6. Hellraiser *
+
+ Lars-Goran Petrov - Vocals
+ Alex Hellid - Guitars
+ Ulf Cederlund - Guitar & Tambourine
+ Nicke Andersson - Drums
+ Lars Rosenberg - Bass
+
+All Songs By ENTOMBED,Except (*) By
+Christopher Young.
+Produced By ENTOMBED & Thomas Skogsberg.
+Recorded At Sunlight Studio,Stockholm.
+
+(p)&(c) 1993 EARACHE Records
+
+### "Wolverine Blues" 1993, Death Metal
+
+1. Eyemaster
+2. Rotten Soil
+3. Wolverine Blues
+4. Demon
+5. Contempt
+6. Full Of Hell
+7. Blood Song
+8. Hollowman
+9. Out Of Hand
+
+ Lars-Goran Petrov - Vocals
+ Alex Hellid - Guitars
+ Ulf Cederlund - Guitar & Tambourine
+ Nicke Andersson - Drums
+ Lars Rosenberg - Bass
+
+All Songs By ENTOMBED
+Produced By ENTOMBED & Thomas Skogsberg
+Engineered By Thomas Skogsberg
+Recorded At Sunlight Studios,Stockholm 92,93
+
+(p)+(c) 1993 EARACHE Records
+
+
+### "Out Of Hand" 1994, Death Metal
+
+1. Out Of Hand
+2. God Of Thunder *
+3. Black Breath **
+
+ Lars-Goran Petrov - Vocals
+ Alex Hellid - Guitars
+ Ulf Cederlund - Guitar & Tambourine
+ Nicke Andersson - Drums
+ Lars Rosenberg - Bass
+
+All Songs Written By ENTOMBED, Except * By KISS, ** By REPULSION
+
+(p)&(c) 1994 EARACHE Records
+
+### "To Ride, Shoot Straight And Speak The Truth" 1997, Death Metal
+
+1. To Ride, Shoot Straight And Speak The Truth
+2. Like This With The Devil
+3. Lights Out
+4. Wound
+5. They
+6. Somewhat Peculiar
+7. DCLXVI
+8. Parasight
+9. Damn Deal Done
+10.Put Me Out
+11.Just As Sad
+12.Boats
+13.Uffe's Horrorshow
+14.Wreckage
+15.Kick Out Jams *
+16.21st Century Schizoid Man **
+17.Bursting Out ***
+18.Under The Sun ****
+
+*    written by MC5
+**   written by KING CRIMSON
+***  written by VENOM
+**** written by BLACK SABBATH
+Produced, recorded & engineered by Tomas Skogsberg & ENTOMBED.
+Recorded & mixed at Sunlight Studio.
+
+Lars-Goran Petrov - Vocals, Piano
+Alex Hellid - Guitars
+Monster Cederlund - Guitar
+Nicke Andersson - Drums
+Jorgen Sandstrom - Bass
+
+(P)(C) 1997 MUSIC FOR NATIONS
+
+### "Entombed" 1997, Death Metal
+
+1. Out Of Hand 
+2. God Of Thunder (Kiss cover) 
+3. Black Breath 
+4. Stranger Aeons 
+5. Dusk 
+6. Shreds Of Flesh 
+7. Crawl 
+8. Forsaken 
+9. Bitter Loss 
+10. Night Of The Vampire 
+11. State Of Emergency (Stiff Little Fingers cover) 
+12. Vandal X 
+
+
+### "Same Difference" 1999, Death Metal
+
+1. Addiction King  
+2. The Supreme God  
+3. Clauses  
+4. Kick In The Head  
+5. Same Difference  
+6. Close But Nowhere Near  
+7. What You Need  
+8. High Waters  
+9. 20/20 Vision  
+10.The Day, The Earth  
+11.Smart Aleck  
+12.Jack Worm  
+13.Wolf Tickets
+
+
+### "Uprising" 2000, Death Metal
+
+1. Seeing Red 
+2. Say It In Slugs 
+3. Won't Back Down 
+4. Insanity Contagious 
+5. Something Out Of Nothing 
+6. Scottish Hell ( Deadhorse cover) 
+7. Time Out 
+8. The Itch 
+9. Year In Year Out 
+10. Returning To Madness 
+11. Come Clean 
+12. In The Flesh 
+
+### "Morning Star" 2001, Death Metal
+
+01 - Chief Rebel Angel                            [04:39]
+02 - I for an Eye                                     [03:09]
+03 - Bringer of Light                                [04:02]
+04 - Ensemble of the Restless               [02:37]
+05 - Out of Heaven                                [03:38]
+06 - Young Man Willing                           [02:46]
+07 - Year One Now                                [01:56]
+08 - Fractures                                        [03:36]
+09 - When it Hits Home                          [02:24]
+10 - City of Ghosts                                 [02:32]
+11 - About to Die                                    [02:14]
+12 - Mental Twin                                     [03:16]
+
+### "Inferno" 2003, Death Metal
+
+01        Retaliation 
+02        The Fix Is In 
+03        Incinerator 
+04        Children Of The Underworld 
+05        Thats When I Became A Satanist 
+06        Nobodaddy 
+07        Intermission 
+08        Young And Dead 
+09        Descent Into Inferno 
+10        Public Burning 
+11        Flexing Muscles 
+12        Skeleton Of Steel 
+13        Night For Day
+
+### "Unreal Estate" 2004, Death Metal
+
+01. DCLXVI / Intermission
+02. Chief Rebel Angel
+03. Say It in Slugs
+04. It Is Later Than You Think
+05. Returning to Madness
+06. Mental Twin
+07. Night of the Vampire
+08. Unreal Estate
+09. In the Flesh
+10. Something Out of Nothing
+11. Left Hand Path (outro)
+
+### "Serpent Saints - The Ten Amendments" 2007, Death Metal
+
+01. Serpent Saints
+02. Masters Of Death
+03. Amok
+04. Thy Kingdom Koma
+05. When In Sodom
+06. In The Blood
+07. Ministry
+08. The Dead, The Dying And The Dying To Be Dead
+09. Warfare, Plague, Famine, Death
+10. Love Song For Lucifer
+
+
+### "Amok (single)" 2012, Metal
+
+1. Amok (2012 Ninetone Version) 03:21
+
+
 
 ## Отношения с другими группами
 

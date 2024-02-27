@@ -1,7 +1,22 @@
 # Spastic Ink
 
-Дискография
-"Ink Compatible" 2004, Progressive
+
+
+## Дискография
+
+### "Ink Compatible" 2004, Progressive
+
+1. Aquanet 
+2. Just a Little Bit
+3. Words for Nerds
+4. Melissa's Friend
+5. Read Me
+6. Multi-Masking
+7. In Memory of...
+8. A Chaotic Realization of Nothing Yet Misunderstood
+9. The Cereal Mouse
+10. A Quick Affix (Japanese bonus track)
+
 
 ## Отношения с другими группами
 

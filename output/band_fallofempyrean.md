@@ -1,8 +1,41 @@
 # Fall Of Empyrean
 
-Дискография
-"Fall Of Empyrean" 2001, Death Doom
-"Anhedonia" 2002, Death Doom
+Doom Death metal from Arizona
+
+## Дискография
+
+### "Fall Of Empyrean" 2001, Death Doom
+
+1. Behind Vacant Eyes (7:23)
+2. Cascading Rivers of Black (5:33)
+3. Solar Journey (6:09)
+4. This Sanguine Farewell (5:51)
+
+
+
+Richard Medina  - vocals
+Justin Burning  - guitar
+Adam Russell  - guitar
+Dan Sobeck  - bass
+Steven Henson - drums
+
+### "Anhedonia" 2002, Death Doom
+
+1. Wounded Skies (1:27)
+2. This Paradise Crumbles (8:19)
+3. Drowning in Gray (8:30)
+4. Virga (3:03)
+5. The Catatonic (4:53)
+6. Destructive Light of Dawn (10:30)
+
+
+
+Richard Medina  - vocals
+Justin Burning  - guitar
+Cris Felix  - guitar
+Dan Sobeck  - bass
+Steven Henson - drums
+
 
 ## Отношения с другими группами
 

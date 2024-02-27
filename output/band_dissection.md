@@ -1,18 +1,174 @@
 # Dissection
 
-Дискография
-"The Grief Prophecy (demo)" 1990, Death Metal
-"Into Infinite Obscurity (EP)" 1991, Death Metal
-"The Somberlain" 1993, Black Metal
-"Storm Of The Light's Bane" 1995, Black Metal
-"Where Dead Angels Lie" 1996, Black Metal
-"The Past Is Alive (The Bably Mischief)" 1997, Death Metal
-"Night's Blood" 1998, Death Metal
-"Frozen In Wacken" 1999, Death Metal
-"Sacrifice (split 7")" 1999, Death Metal
-"Live Legacy" 2003, Death Metal
-"Maha Kali" 2004, Death Metal
-"Reinkaos" 2006, Death Metal
+
+
+## Дискография
+
+### "The Grief Prophecy (demo)" 1990, Death Metal
+
+1. Intro - severed into shreds - 4:43 
+2. The call of the mist - 4:27 
+3. Consumed - 2:54
+
+### "Into Infinite Obscurity (EP)" 1991, Death Metal
+
+Shadows Over A Lost Kingdom - 2:42
+Son Of The Mourning  - 3:16
+Into Infinite Obscurity - 1:01
+
+### "The Somberlain" 1993, Black Metal
+
+1. Black horizons - 8:12 
+2. The somberlain - 7:07 
+3. Crimson towers - 0:51 
+4. A land forlorn - 6:40 
+5. Heaven's damnation - 4:42 
+6. Frozen - 3:48 
+7. Into infinite obscurity - 1:06 
+8. In the cold winds of nowhere - 4:22 
+9. The grief prophecy / shadows over a lost kingdom - 3:32 
+10. Mistress of the bleeding sorrow - 4:37 
+11. Feathers fell - 0:41 
+12. Son of the mourning - 3:14 (japanese bonus)
+
+ Jon Nodtveidt - Vocals,guitars
+ John Zwetsloot - Guitars
+ Peter Palmadahl - Bass
+ Ole Ohmah - Drums
+
+Produced by DISSECTION
+Engineered by Dan Swano
+Recorded Betweeen 1st & 6th March
+1993 At Hellspawn/Unisound Studios
+
+(P)&(C) 1993 NO FASHION Records
+
+### "Storm Of The Light's Bane" 1995, Black Metal
+
+1. At The Fathomless Depths
+2. Night's Blood
+3. Unhallowed
+4. Where Dead Angels Lie
+5. Retribution-Storm Of The Light's Bane
+6. Thorns Of Crimson Death
+7. Soulreaper
+8. No Dreams Breed In Breathless Sleep
+
+All Songs Written By DISSECTION.
+Recorded At Hellspawn/Unisound Studios March 1995.
+
+Jon  Nodtveidt - Vocals, Guitars
+Johan Norman - Rhythm Guitars
+Peter Palmdahl - Bass
+Ole Ohman - Drums
+
+(P)&(C) 1995 NUCLEAR BLAST Records
+
+### "Where Dead Angels Lie" 1996, Black Metal
+
+1. Where Dead Angels Lie (Demo Version)
+2. Elisabeth Bathory *
+3. Anti Christ **
+4. Feathers Fell
+5. Son Of The Mourning
+6. Where Dead Angels Lie
+
+All Songs Written By DISSECTION, except * written by QUORTHON
+          ** written by SLAYER.
+Recorded At Hellspawn/Unisound Studios March 1995.
+
+Jon  Nodtveidt - Vocals, Guitars
+Johan Norman - Rhythm Guitars
+Peter Palmdahl - Bass
+Ole Ohman - Drums
+
+(P)(C) 1996 NUCLEAR BLAST Records
+
+### "The Past Is Alive (The Bably Mischief)" 1997, Death Metal
+
+Shadows over a lost Kingdom
+Frozen 
+Feathers Fell
+Son of the morning
+Mistress of the bleeding sorrow
+In the gold winds of nowhere
+Into infinite obscurity
+The call of the mist
+Severed into shreds
+Satanized *
+Born if fire *
+
+__________________
+*Perfomed by SATANIZED.
+
+### "Night's Blood" 1998, Death Metal
+
+01. Frozen
+02. In The Cold Winds Of Nowhere
+03. Heavens Damnation
+04. The Somberlain
+05. Where Dead Angels Lie (Instrumental)
+06. A Land Forlorn
+07. Shadows Over A Lost Kingdom
+
+Recorded in Oslo, Norway, on the 4th of April 1994. CD version contains the The Grief Prophecy demo as bonustracks.
+
+### "Frozen In Wacken" 1999, Death Metal
+
+01. At The Fathomless Depths / Night's Blood
+02. Unhallowed
+03. Frozen
+04. Where Dead Angels Lie
+05. Retribution - Storm Of The Light's Bane
+06. Thorns Of Crimson Death
+07. The Somberlain
+
+Recorded at Wacken Open Air, Germany, on the 8th of August 1997. Repressed with alternate artwork. Both have incorrect tracklist.
+
+### "Sacrifice (split 7")" 1999, Death Metal
+
+01. Sacrifice (Bathory Cover)
+02. Unsilent Storms In The North Abyss (By Immortal)
+
+Track 1 recorded in Stockholm, Sweden on the 25th of February 1995. Track 2 recorded in Copenhagen, Denmark in April 1994.
+
+### "Live Legacy" 2003, Death Metal
+
+01. Intro - At The Fathomless Depths 
+02. Retribution - Storm Of The Light's Bane 
+03. Unhallowed 
+04. Where Dead Angels Lie 
+05. Frozen 
+06. Thorns Of Crimson Death 
+07. The Somberlain
+
+LINE-UP  
+Jon Nцdtveidt - Vocals & Lead Guitar
+Emil Nцdtveidt - Bass Guitar 
+Tobias Kellgren - Battery
+Johan Norman - Rhythm Guitar 
+
+Recorded: live at Wacken open Air, Germany, Aug 8 1997
+
+### "Maha Kali" 2004, Death Metal
+
+1. Maha Kali
+2. Unhallowed (Rebirth Version)
+
+### "Reinkaos" 2006, Death Metal
+
+01. Nexion 218
+02. Beyond The Horizon
+03. Starless Aeon
+04. Black Dragon
+05. Dark Mother Divine
+06. Xeper-I-Set
+07. Chaosophia
+08. God Of Forbidden Light
+09. Reinkaos
+10. Internal Fire
+11. Maha Kali
+
 
 ## Отношения с другими группами
 

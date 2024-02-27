@@ -1,7 +1,13 @@
 # Ecliptic Sunset
 
-Дискография
-"…From These Dried Lands" 2003, Black Metal
+
+
+## Дискография
+
+### "…From These Dried Lands" 2003, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

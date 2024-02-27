@@ -1,12 +1,84 @@
 # Purgatory
 
-Дискография
-"Bestial" 1997, Deathcore
-"Damage Done By Worms" 1997, Deathcore
-"Blessed With Flame Of Hate" 2000, Deathcore
-"Luciferianism" 2004, Deathcore
-"Cultus Luciferi - The Splendour of Chaos" 2008, Deathcore
-"Necromantaeon" 2011, Deathcore
+
+
+## Дискография
+
+### "Bestial" 1997, Deathcore
+
+
+
+### "Damage Done By Worms" 1997, Deathcore
+
+1.  Orgy Of Sickening Dreams
+2.  Deep Under The Light
+3.  Sodomized Time
+4.  Robes Of Skin
+5.  Psychopathia Sexualis Pt. II
+6.  Necrocannibalistic Insanity
+7.  Brood Of Incest
+8.  Irresolute Injection
+9,  The Final Breath
+10.Frozen Braincells
+[11].Paroxysm Of Mortal Lust
+[12].Sadistic Spell
+[13].Necronomical Necropsy
+
+[11]-[13] - На стороне B
+
+Produced & engineered by Jens Eisbein, Michael Heiderich & PURGATORY.
+All songs recorded & mixed at Bruckenhaus Audio Productions, Dresden.
+
+Rene - Guitars, Vocals
+Uwe - Bass
+Lutz - Drums
+Sicki - Vocals
+
+All keyboards by Jens Eisbein.
+Female vocals by Janett.
+
+(P)(C) 1997 INVASION Records
+
+### "Blessed With Flame Of Hate" 2000, Deathcore
+
+
+
+### "Luciferianism" 2004, Deathcore
+
+1. Bloodsoil Revelation  04:21   
+2. Death World Struggle  03:51 
+3. Seeds of Annihilation  03:17   
+4. In Fervent Eyes  03:50 
+5. The Serpent's Creation  03:27    
+6. The Inexorable Darkness  01:48   Show lyrics  
+7. Judas Billygoats/Judasb&#246;cke (Lemming Project Cover)  04:55 
+8. None Divine Passion  03:50   
+9. Luciferic  05:17 
+
+### "Cultus Luciferi - The Splendour of Chaos" 2008, Deathcore
+
+1. Realm Of The Vortex  03:01   
+2. Chaos Aeon  03:00  
+3. Ruler Of The East  03:40 
+4. Forbidden Wisdom  03:17    
+5. Red Prison  03:39    
+6. Hammering The Nails - Vengeance Of The Damned  05:42  
+7. Pits Of Utmuno (Morgoth Cover)  04:43 
+8. Burial Of A Plague  03:36   
+9. The Enemy Within  04:59 
+
+### "Necromantaeon" 2011, Deathcore
+
+1. Arrival of the Undivine  01:05    
+2. Reaping the Diseased  03:44   
+3. Where Darkness Reigns  03:19  
+4. Glorification of the Lightbearer  03:22  
+5. Downwards Into Unlight  04:08 
+6. Scourging Blasphemies  03:17    
+7. Calling the Grand Destroyers  03:45 
+8. Necromantaeon  04:18  
+9. The Collapse of Tides  05:33 
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,22 @@
 # Fleshgore
 
-Дискография
-"Killing Absorption" 2003, Death Metal
+Brutal death/grind band from Kyiv
+
+
+## Дискография
+
+### "Killing Absorption" 2003, Death Metal
+
+1. Domain of Death
+2. Devoured by Helminthes
+3. Sky Funeral
+4. Infernal Earth
+5. Severe Pain
+6. Interuterine Dilemms
+7. Prepare to Die
+8. The Plague
+9. Vengeance Expectation
+
 
 ## Отношения с другими группами
 

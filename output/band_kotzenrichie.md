@@ -1,6 +1,9 @@
 # Kotzen, Richie
 
-Дискография
+(shred, fusion, jazz-rock and blues virtuoso)
+
+## Дискография
+
 
 ## Отношения с другими группами
 

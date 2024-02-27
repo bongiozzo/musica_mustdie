@@ -1,15 +1,127 @@
 # Norther
 
-Дискография
-"Dreams of Endless War" 2001, Melodic Death Metal
-"Mirror of Madness" 2003, Melodic Death Metal
-"Death Unlimited" 2004, Melodic Death Metal
-"Solution 7" 2005, Melodic Death Metal
-"Till Death Unites Us" 2006, Melodic Death Metal
-"No Way Back" 2007, Melodic Death Metal
-"N" 2008, Melodic Death Metal
-"Break Myself Away [single]" 2010, Melodic Death Metal
-"Circle Regenerated " 2011, Melodic Death Metal
+
+
+## Дискография
+
+### "Dreams of Endless War" 2001, Melodic Death Metal
+
+DARKEST TIME
+LAST BREATH
+RELEASED
+ENDLESS WAR
+DREAM
+VICTORIOUS ONE
+NOTHING LEFT
+THE LAST NIGHT
+FINAL COUNTDOWN 
+
+
+### "Mirror of Madness" 2003, Melodic Death Metal
+
+BLACKHEARTED
+BETRAYED
+OF DARKNESS AND LIGHT
+MIDNIGHT WALKER
+CRY
+EVERYTHING IS AN END
+UNLEASH HELL
+DEAD
+MIRROR OF MADNESS
+
+### "Death Unlimited" 2004, Melodic Death Metal
+
+
+
+### "Solution 7" 2005, Melodic Death Metal
+
+1. Day Zero
+2. YDKS
+3. Hellhole
+4. Thorn
+5. Chasm (remix)
+
+### "Till Death Unites Us" 2006, Melodic Death Metal
+
+01. Throwing My Life Away 
+02. Drowning 
+03. Norther 
+04. Everything 
+05. Evil Ladies 
+06. Omen 
+07. Scream 
+08. Fuck You 
+09. Alone in the End 
+10. Die 
+11. Wasted Year 
+12. The End of Our Lives 
+
+Line-Up: 
+Kristian Ranta - lead guitar 
+Pete Lindroos - vocals, guitar 
+Heikki Saari - drums 
+Jukka Koskinen - bass 
+Tuomas Planman - keyboards
+
+### "No Way Back" 2007, Melodic Death Metal
+
+1. Frozen Angel 04:07  
+2. C.U.S. 03:13  
+3. No Way Back 05:20  
+4. Reach Out 03:38  
+5. Close Your Eyes 04:37
+
+### "N" 2008, Melodic Death Metal
+
+01. My Antichrist 
+02. Frozen Angel 
+03. Down 
+04. To Hell 
+05. Savior 
+06. Black Gold 
+07. We Rock 
+08. Always & Never 
+09. Tell me Why 
+10. If You Go 
+11. Self-righteous Fuck 
+12. Forever and Ever 
+
+### "Break Myself Away [single]" 2010, Melodic Death Metal
+
+01 - Break Myself Away (04:06)
+
+
+### "Circle Regenerated " 2011, Melodic Death Metal
+
+1. Through It All   
+2. The Hate I Bear   
+3. Truth   
+4. Some Day   
+5. Break Myself Away  
+6. Believe   
+7. Falling   
+8. We Do Not Care   
+9. The Last Time   
+10. Closing In 
+
+
+Line-up:
+Aleksi Sihvonen - Vocals
+Kristian Ranta - Guitar, Clean Vocals
+Daniel Freyberg - Guitar, Backing Vocals
+Jukka Koskinen - Bass, Backing Vocals
+Tuomas Planman - Keyboards, Programming
+Heikki Saari - Drums
+
+Bonus tracks:
+11. New Beginning
+12. Hear You Call My Name
+13. Bimbo (Lambretta cover)
+
+Recorded and produced by Anssi Kippo at Astia Studios.
+
+
+
 
 ## Отношения с другими группами
 

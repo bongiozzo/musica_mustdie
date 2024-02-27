@@ -1,13 +1,69 @@
 # Forbidden
 
-Дискография
-"Forbidden Evil" 1988, Thrash
-"Raw Evil: Live At The Dynamo" 1989, Thrash
-"Twisted into Form" 1990, Thrash
-"Point Of No Return (compilation)" 1992, Thrash
-"Distortion" 1994, Thrash
-"Green" 1997, Thrash
-"Omega Wave" 2010, Thrash
+Thrash Metal
+
+## Дискография
+
+### "Forbidden Evil" 1988, Thrash
+
+
+
+### "Raw Evil: Live At The Dynamo" 1989, Thrash
+
+
+
+### "Twisted into Form" 1990, Thrash
+
+
+
+### "Point Of No Return (compilation)" 1992, Thrash
+
+
+
+### "Distortion" 1994, Thrash
+
+
+
+### "Green" 1997, Thrash
+
+1.  What Is The Last Time ?
+2.  Green
+3.  Phat
+4.  Turns To Rage
+5.  Face Down Heroes
+6.  Over The Middle
+7.  Kanaworms
+8.  Non Cent$
+9.  Blank
+10.Focus
+
+Produced by Patrick Coughlin and FORBIDDEN.
+Mastered by Steve Hall at Future Disc
+Cover artwork by Stephen Kasner.
+
+Russ Anderson - Vocals
+Craig Locicero - Guitars
+Tim Calvert - Guitars
+Matt Camacho - Bass
+Steven Jacobs - Drums
+
+(P)(C) 1997 GUN Records // GUN 114
+
+### "Omega Wave" 2010, Thrash
+
+1. Alpha Century 02:00  
+2. Forsaken at The Gates 04:54
+3. Overthrow 04:43
+4. Adapt Or Die 05:14
+5. Swine 06:30
+6. Chatter 02:16  
+7. Dragging My Casket 06:44
+8. Hopenosis 05:30
+9. Immortal Wounds 05:29
+10. Behind The Mask 05:39
+11. Inhuman Race 06:25 
+12. Omega Wave 06:00 
+
 
 ## Отношения с другими группами
 

@@ -1,11 +1,82 @@
 # Illogicist
 
-Дискография
-"Polymorphism of Death" 2002, Techno Death
-"Dissonant Perspectives" 2003, Techno Death
-"Subjected" 2004, Techno Death
-"The Insight Eye" 2007, Techno Death
-"The Unconsciousness of Living" 2011, Techno Death
+techno-death from Italy
+
+## Дискография
+
+### "Polymorphism of Death" 2002, Techno Death
+
+1. Warped
+2. Vision Of Decay
+3. Grimaces
+
+
+luca minieri (gt/v)
+remy curtaz (dr)
+fabio filippone (gt)
+roberto zeppa (bs)
+
+recorded at OneVoice Studio in Chivasso, italy, by Daniele Giordana
+mixed and produced by remy curtaz and luca minieri.
+
+### "Dissonant Perspectives" 2003, Techno Death
+
+1. The Soul Feeder
+2. Knowledge Curse
+3. Dissonant Perspectives
+
+
+luca minieri (gt/v)
+remy curtaz (dr)
+diego ambrosi (gt)
+emilio dattolo (bs)
+recorded at OneVoice Studio in Chivasso, italy, by Daniele Giordana
+mixed and produced by illogicist
+mastered at finnvox studios.
+
+### "Subjected" 2004, Techno Death
+
+Into Your Mind (Intro) 
+The High Price Of Confidence 
+Knowledge Curse 
+Every Straight Lie 
+Dissonant Perspectives 
+Subjected 
+Introspection (Instrumental) 
+The Soul Feeder 
+The Last Show
+
+### "The Insight Eye" 2007, Techno Death
+
+1. The Insight Eye 04:46  
+2. Brain Collapse 05:19  
+3. Rooms of Emptiness 04:48  
+4. The Absolute or Nothing 05:01  
+5. Soundless Pain 04:33  
+6. Core 05:16  
+7. Be My Guide 05:50  
+8. Secrets of Human Hate 04:57
+
+### "The Unconsciousness of Living" 2011, Techno Death
+
+1. Ghosts Of Unconsciousness 05:35 
+2. Hypnotized 06:19 
+3. Perceptions From The Deceiving Memory 05:41 
+4. The Mind Reaper 04:56 
+5. A Past Defeated Suffering 05:44 
+6. The Same Old Collision 05:40 
+7. Misery Of A Profaned Soul 04:51 
+8. A Never Ending Fall 05:59
+
+
+
+Luca Minieri - Guitars, Vocals 
+Diego Ambrosi - Guitars 
+Emilio Dattolo - Bass 
+Alessandro Tinti - Drums 
+
+
+
 
 ## Отношения с другими группами
 

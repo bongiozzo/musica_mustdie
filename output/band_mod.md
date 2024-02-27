@@ -1,14 +1,122 @@
 # M.O.D.
 
-Дискография
-"U.S.A. For M.O.D." 1987, Hardcore
-"Surfin' M.O.D." 1988, Hardcore
-"Gross Misconduct" 1989, Hardcore
-"Rhythm Of Fear" 1992, Hardcore
-"Devolution" 1994, Hardcore
-"Dictated Aggression" 1996, Hardcore
-"The Rebel You Love To Hate" 2003, Hardcore
-"Red, White & Screwed" 2007, Hardcore
+
+
+## Дискография
+
+### "U.S.A. For M.O.D." 1987, Hardcore
+
+
+
+### "Surfin' M.O.D." 1988, Hardcore
+
+
+
+### "Gross Misconduct" 1989, Hardcore
+
+1. No Hope 4.12
+2. No Glove,No Love 2.02
+3. The Colors 3.48
+4. Accident Scene 3.12
+5. God Zula 2.26
+6. E Factor 3.08
+7. Gross Misconduct 4.03
+8. Satan's Cronyes 2.36
+9. In The City 1.57
+10. Come As You Are 2.45
+11. Vents 0.13
+12. The Me 2.06
+13. P.B.M. 1.18
+14. The Ride 5.00
+
+ Billy Milano - Vocals
+ John Monte - Bass
+ Louie Svitek - Guitars
+ Tim Mallare - Drums
+
+(p)&(c) 1989 MEGAFORCE Records
+
+### "Rhythm Of Fear" 1992, Hardcore
+
+1. Objection/Dead End
+2. Get Up And Dance
+3. Step By Step
+4. Rhymestein
+5. Minute Of Courage
+6. Irresponsible
+7. Override Negative
+8. I, The Earth
+9. Spy Vs. Spy
+10. Intruder
+11. Jive Time Jimmy's Revenge
+12. Rally (NYC)
+
+ Billi Milano - Bass & Vocals
+ Tim McMurtrie - Rhythm Guitars & Back Vocals
+ Dave Chavarri - Drums
+
+Produced & Engineered & Mixed By Steve Evetts
+Executive Producer Jon & Marsha Zazula
+Recorded & Mixed At Trax East Studios, South River, NJ
+
+(p)&(c) 1992 MEGAFORCE Records
+
+### "Devolution" 1994, Hardcore
+
+1. Land Of The Free
+2. Devolution
+3. Repent
+4. The Angry Man
+5. Resist
+6. Crash N'Burn
+7. Super Touch
+8. Rock Tonite
+9. Behind
+10. Running
+11. Time Bomb
+12. Unhuman Race
+
+ Billy Milano - Rhythm Guitars, Vocals
+ Tommy Klimchuk - Lead Guitars
+ Rob (The Mad Doctor) Moschetti - Bass & Vox
+ Dave Chavarri - Drums
+
+Produced By Rob (Wacko!) Hunter & Billy Milano
+Recorded & Mixed in 25 Days At Pyramid Studios By Alex Perialas
+
+(p)&(c) 1994 MUSIC FOR NATIONS
+
+### "Dictated Aggression" 1996, Hardcore
+
+1.  Dictated Aggression
+2.  Silence Your Sin
+3.  Damaged
+4.  Shot Glass
+5.  Stand Or Fall
+6.  One Was Johnny
+7.  Nation
+8.  Empty Vision
+9.  In My Shoes
+10.U.S.Dreams
+11.Hippypottomus
+12.Just Got Fired
+13.Whiteout
+14.Brutal Beats
+
+Billy Milano - Rhythm Guitars, Vocals Bass
+Joe Young - Lead Guitars, Backing Vocals
+Dave Chavarri - Drums & Percussion
+
+(p)&c 1996 MUSIC FOR NATIONS Records
+
+### "The Rebel You Love To Hate" 2003, Hardcore
+
+
+
+### "Red, White & Screwed" 2007, Hardcore
+
+
+
 
 ## Отношения с другими группами
 

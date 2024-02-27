@@ -1,8 +1,32 @@
 # Wintersun
 
-Дискография
-"Wintersun" 2004, Melodic Death Metal
-"Time I" 2012, Melodic Death Metal
+Viking Folk/Black Metal from Finland
+
+## Дискография
+
+### "Wintersun" 2004, Melodic Death Metal
+
+01. Beyond The Dark Sun
+02. Winter Madness
+03. Sleeping Stars
+04. Battle Against Time
+05. Death And The Healing
+06. Starchild
+07. Beautiful Death
+08. Sadness And Hate
+
+### "Time I" 2012, Melodic Death Metal
+
+1. When Time Fades Away
+2. Sons Of Winter And Stars
+ I. Rain Of Stars
+ II. Surrounded By Darkness
+ III. Journey Inside A Dream
+ IV. Sons of Winter And Stars
+3. Land Of Snow And Sorrow
+4. Darkness And Frost
+5. Time
+
 
 ## Отношения с другими группами
 

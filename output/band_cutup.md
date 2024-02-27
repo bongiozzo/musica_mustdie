@@ -1,7 +1,25 @@
 # Cut Up
 
-Дискография
-"Forensic Nightmares" 2015, Death Metal
+ex-VOMITORY (Old School Sweden Death Metal)
+
+## Дискография
+
+### "Forensic Nightmares" 2015, Death Metal
+
+1. Enter Hell  02:52    
+2. Burial Time  02:55    
+3. Remember the Flesh  04:50   
+4. A Butchery Improved  04:01    
+5. Brain Cell Holocaust  04:27    
+6. Forensic Nightmare  03:25    
+7. Camouflesh  02:57  
+8. Order of the Chainsaw  04:04  
+9. Stab And Stab Again  02:46    
+10. Bunker Z16  03:31    
+11. Dead and Impaled  05:21 
+
+
+
 
 ## Отношения с другими группами
 

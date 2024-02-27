@@ -1,13 +1,91 @@
 # Twisted Sister
 
-Дискография
-"Under The Blade" 1982, Heavy Metal
-"You Can't Stop Rock 'N' Roll" 1983, Heavy Metal
-"Stay Hungry" 1984, Heavy Metal
-"Come Out And Play" 1985, Heavy Metal
-"Love Is For Suckers" 1987, Heavy Metal
-"Still Hungry" 2004, Heavy Metal
-"A Twisted Christmas" 2006, Heavy Metal
+
+
+## Дискография
+
+### "Under The Blade" 1982, Heavy Metal
+
+
+
+### "You Can't Stop Rock 'N' Roll" 1983, Heavy Metal
+
+1.   The Kids Are Back
+2.   Like a Knife In The Back
+3.   Ride To Live, Live To Ride
+4.   I Am (I'm Me)
+5.   The Power And The Glory
+6.   We're Gonna Make It
+7.   I've Had Enough
+8.   I'll Take You Alive
+9.   You're Not Alone (Suzette's Song)
+10. You Can't Stop Rock 'N' Roll
+11. One Man Woman (bonus track on Spitfire CD)
+12. Four Barrel Heart Of Love (bonus track on Spitfire CD)
+13. Feel The Power (bonus track on Spitfire
+
+### "Stay Hungry" 1984, Heavy Metal
+
+1. Stay Hungry
+2. We're Not Gonna Take It
+3. Burn In Hell
+4. Horror-Teria (The Beginning)
+    A) Captain Howdy
+    B) Street Justice
+5. I Wanna Rock
+6. The Price
+7. Don't Let Me Down
+8. The Beast
+9. S.M.F.
+
+### "Come Out And Play" 1985, Heavy Metal
+
+1.   Come Out And Play
+2.   Leader Of The Pack
+3.   You Want What We Got
+4.   I Believe In Rock 'N' Roll
+5.   The Fire Still Burns
+6.   Be Chrool To Your Scuel
+7.   I Believe In You
+8.   Out On The Streets
+9.   Lookin' Out For #1
+10. Kill Or Be Killed
+11. King Of The Fools (bonus track on CD, cassette and picture disc LP)
+
+### "Love Is For Suckers" 1987, Heavy Metal
+
+1. Wake Up (The Sleeping Giant)
+2. Hot Love
+3. Love Is For Suckers
+4. I'm So Hot For You
+5. Tonight
+6. Me And The Boys
+7. One Bad Habit
+8. I Want This Night (To Last Forever)
+9. You Are All That I Need
+10. Yeah Right!
+11. Feel Appeal (bonus track on Spitfire CD)
+12. Statutory Date (bonus track on Spitfire CD)
+13. If That's What You Want (bonus track on Spitfire CD)
+14. I Will Win (bonus track on Spitfire CD)
+
+### "Still Hungry" 2004, Heavy Metal
+
+
+
+### "A Twisted Christmas" 2006, Heavy Metal
+
+Have Yourself A Merry Little Christmas 
+Oh Come All Ye Faithful 
+White Christmas 
+I'll Be Home For Christmas (featuring Lita Ford) 
+Silver Bells 
+I Saw Mommy Kissing Santa Claus 
+Let It Snow 
+Deck The Halls 
+The Christmas Song (Chestnuts Roasting) 
+Heavy Metal Christmas (12 Days Of Christmas)
+
 
 ## Отношения с другими группами
 

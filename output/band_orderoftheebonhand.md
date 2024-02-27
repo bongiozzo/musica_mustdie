@@ -1,8 +1,38 @@
 # Order Of The Ebon Hand
 
-Дискография
-"The Mystic Path to the Netherworld" 1997, Black Metal
-"XV: The Devil" 2005, Black Metal
+Black metal from Greece
+
+## Дискография
+
+### "The Mystic Path to the Netherworld" 1997, Black Metal
+
+1. Unbroken Vow 02:58  
+2. Under A Pale Moonlight 04:34  
+3. While The Gods Laugh 05:09  
+4. Fallen Hierarchy 03:29  
+5. Tears In Red 10:44  
+6. Orion's Astron 01:12  
+7. Behold The Sign Of A New Era 04:31  
+8. Awakening 04:23  
+9. The Skull/The Mystic Path To The Netherworld 05:18
+
+### "XV: The Devil" 2005, Black Metal
+
+1. For Marchosias 05:29  
+2. To Alloces 06:35  
+3. Gateway to Silence 07:27  
+4. The Visitors 04:32  
+5. Eibon 02:58  
+6. Eibon 06:25  
+7. Spellbound 03:26  
+8. The Swordwraith (unbroken vow II) 04:51  
+9. (You are) the Gleaming King 05:58 
+
+
+Merkaal : Vocals, Bass 
+Phlaigon : Guitars 
+Lethe : Bass, Keyboards
+
 
 ## Отношения с другими группами
 

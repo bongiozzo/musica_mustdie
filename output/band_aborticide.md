@@ -1,7 +1,13 @@
 # Aborticide
 
-Дискография
-"_" , Deathcore
+Brutal Death from Poland
+
+## Дискография
+
+### "_" , Deathcore
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,36 @@
 # Century
 
-Дискография
-"The Secret Inside" 1999, Gothic
-"Melancholia" 2001, Gothic
+
+
+## Дискография
+
+### "The Secret Inside" 1999, Gothic
+
+Here Is The Rain
+Lost 
+Dancing With Tears In My Eyes
+Save The Pain
+One, Five, Seven 
+Between All Time
+When Weak Eyes
+The Secret Inside
+Down On This Side
+Nohold
+
+### "Melancholia" 2001, Gothic
+
+1. Perfect Lie
+2. Fall For You
+3. I Regret
+4. High And Low
+5. Finally
+6. Me, Myself And I
+7. I Would Know
+8. Melancholic Light
+9. Nothing No More
+10. Shine
+
+
 
 ## Отношения с другими группами
 

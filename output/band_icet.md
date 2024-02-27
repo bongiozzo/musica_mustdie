@@ -1,10 +1,88 @@
 # Ice T
 
-Дискография
-"Rhyme Pays" 1987, Rap Metal
-"Power" 1988, Rap Metal
-"The Iceberg" 1989, Rap Metal
-"Return Of The Real" 1996, Rap Metal
+
+
+## Дискография
+
+### "Rhyme Pays" 1987, Rap Metal
+
+1.  Intro
+2.  6'n Morning
+3.  Make It Funky
+4.  Somebody Gotta Do It
+5.  409
+6.  I Love Ladies
+7.  Sex
+8.  Pain
+9.  Squeeze The Trigger
+10.  Make It Funky (Mix)
+11.  Sex (Bonus Beat)
+12.  Somebody Gotta Do It (Mix)
+13.  Our Most Requested Record
+
+(P)&c 1987
+
+### "Power" 1988, Rap Metal
+
+1.  Intro
+2.  Power
+3.  Drama
+4.  Heartbeat
+5.  The Syndicate
+6.  Radio Suckers
+7.  I'm Your Pusher
+8.  Personal
+9.  Girls L.G.B.N.A.F.
+10.  High Rollers
+11.  Grand Larceny
+12.  Soul On Ice
+13.  Outro
+
+(P)&c 1988
+
+### "The Iceberg" 1989, Rap Metal
+
+1.  Shut Up, Be Happy
+2.  The Iceberg
+3.  Lethal Weapon
+4.  You Played Yourself
+5.  Peel Their Caps Back
+6.  The Girl Tried To Kill Me
+7.  Black'N'Decker
+8.  Hit The Deck
+9.  This One's For Me
+10.  The Hunted Child
+11.  What Ya Wanna Do?
+12.  Freedom Of Speech
+13.  My Word Is Bond
+
+(P)&c 1989
+
+### "Return Of The Real" 1996, Rap Metal
+
+1.  Pimp Anthem
+2.  Where The Goes Down
+3.  Bouncin' Down The Strezeet
+4.  Return Of The Real
+5.  I Must Stand
+6.  (Alotta Niggaz)
+7.  Rap Games Hijacked
+8.  How Does It Feel
+9.  The Lane
+10.(Rap Is Fake)
+11.Make The Loot Loop
+12.Syndicate 4 Ever
+13.The 5th
+14.(It's Goin' Down)
+15.They Want Me Back In
+16.Inside Of Gangsta
+17.Forced To Do Dirt
+18.(Haters)
+19.Cramp Your Style
+20.(Real)
+
+(P)c 1996 RSYND Records
+
 
 ## Отношения с другими группами
 

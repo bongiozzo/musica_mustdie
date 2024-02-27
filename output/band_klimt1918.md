@@ -1,8 +1,48 @@
 # Klimt 1918
 
-Дискография
-"Undressed Momento" 2003, Gothic
-"Dopoguerra" 2005, Gothic
+
+
+## Дискография
+
+### "Undressed Momento" 2003, Gothic
+
+1. _
+2. Pale Song
+3. Parade Of Adolescence
+4. We Don’t Need No Music
+5. Undressed Momento 
+6. That Girl
+7. Naif Watercolour
+8. If Only You Could See Me Now
+9. Stalingrad Theme
+
+
+Marco Soellner - guitars and vocals
+Alessandro Pace - guitars
+Davide Pesola - bass
+Paolo Soellner – drums
+
+### "Dopoguerra" 2005, Gothic
+
+1 -
+2 They Were Wed By The Sea
+3 Snow Of '85
+4 Rachel
+5 Nightdriver
+6 Because Of You, Tonight
+7 Dopoguerra
+8 La Tregua
+9 Lomo
+10 Sleepwalk In Rome
+
+Tracklist Bonus CD of the Luxuary Edition:
+
+1 Never Ever
+2 They Were Wed By The Sea
+3 Cry A Little
+4 Driving At The End Of The Night
+and some alternative versions of some „Dopoguerra“ songs
+
 
 ## Отношения с другими группами
 

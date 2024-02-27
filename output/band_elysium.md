@@ -1,11 +1,91 @@
 # Elysium
 
-Дискография
-"Dreamlands" 2000, Melodic Death Metal
-"Eclipse" 2001, Melodic Death Metal
-"Feedback" 2003, Melodic Death Metal
-"Deadline" 2004, Melodic Death Metal
-"Godfather" 2006, Melodic Death Metal
+Melodic death metal from Poland
+
+## Дискография
+
+### "Dreamlands" 2000, Melodic Death Metal
+
+1. Six cold days 
+2. Sister moon 
+3. Dreamlands 
+4. Swallow her 
+5. Suicidal angels 
+6. Edenfall 
+7. Starguardians 
+8. Our love is eternal 
+9. Farewell  
+10. April rainy night
+
+
+Maciek Miskiewicz - vocal
+Michaі Maryniak - gitara
+Kuba Jasic - gitara
+Roman Felczyсski - bas
+Mariusz Bogacz - perkusja
+Kola - klawisze
+ 
+
+### "Eclipse" 2001, Melodic Death Metal
+
+1. Welcome Millenium 
+2. Solar Spectacle 
+3. Timebomb
+4. In memoriam
+5. Virgin suicide 
+6. Eclipse 
+7. Youth is forgotten
+8. Elysium
+
+
+
+Maciek Miskiewicz - vocal
+Michaі Maryniak - gitara 
+Bartek Nowak - gitara
+Roman Felczyсski - bas
+Maciej Oryl - perkusja
+Rafaі Borowiec - klawisze
+
+ 
+
+### "Feedback" 2003, Melodic Death Metal
+
+1. World Hello Day 
+2. Feedback 
+3. Aeolian Choreography 
+4. 4.48 (for Sarah) 
+5. Sinusoid Forward 
+6. Venus Project 
+7. Departure Fresco 
+8. Digital Future Anthem 
+9. Suicide Generation 
+
+
+
+Maciek Miskiewicz - vocal
+Michaі Maryniak - gitara 
+Michaі Wіosik - gitara
+Roman Felczyсski - bas
+Maciej Oryl - perkusja
+ 
+
+### "Deadline" 2004, Melodic Death Metal
+
+Death Dealer 
+Pandemonium Avenue 
+Inglorious Bastards 
+Deadline 
+Natural Predators 
+Serene Neon Ocean 
+Riot Starter 
+Quicksilver Shadow 
+Download Damage 
+How Do You Die (hidden track)
+
+### "Godfather" 2006, Melodic Death Metal
+
+
+
 
 ## Отношения с другими группами
 

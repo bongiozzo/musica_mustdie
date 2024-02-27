@@ -1,10 +1,36 @@
 # Headhunter
 
-Дискография
-"Parody of Life" 1990, Thrash
-"A Bizarre Gardening Accident" 1992, Thrash
-"Rebirth" 1994, Thrash
-"Parasite of Society" 2008, Thrash
+Schmier project
+
+## Дискография
+
+### "Parody of Life" 1990, Thrash
+
+
+
+### "A Bizarre Gardening Accident" 1992, Thrash
+
+
+
+### "Rebirth" 1994, Thrash
+
+
+
+### "Parasite of Society" 2008, Thrash
+
+1. 3rd Man Introduction   
+2. Parasite Of Society   
+3. Silverskull   
+4. Remission   
+5. Doomsday For The Prayer   
+6. 18 And Life   
+7. Read My Lips   
+8. Backs To The Wall   
+9. Egomaniac   
+10. The Calling   
+11. Payback Time   
+12. Rapid Fire
+
 
 ## Отношения с другими группами
 

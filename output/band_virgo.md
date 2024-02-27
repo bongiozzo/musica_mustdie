@@ -1,7 +1,26 @@
 # Virgo
 
-Дискография
-"Virgo" 2001, Hard Rock
+Project of Andre Matos and Sacha Paeth
+
+## Дискография
+
+### "Virgo" 2001, Hard Rock
+
+To Be
+Crazy Me
+Take Me Home
+Baby Doll
+No Need To Have An Answer
+Discovery
+Strret To Babylon
+River
+Blowing Away
+I Want You To Konw
+Fiction
+Data Track
+
+
+
 
 ## Отношения с другими группами
 

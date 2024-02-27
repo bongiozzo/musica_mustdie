@@ -1,25 +1,303 @@
 # Morbid Angel
 
-Дискография
-"The Beginning [demo]" 1985, Death Metal
-"Abominations of Desolations" 1986, Death Metal
-"Bleed for the Devil [demo]" 1986, Death Metal
-"Scream Forth Blasphemies [demo]" 1986, Death Metal
-"Thy Kingdom Come [demo]" 1987, Death Metal
-"Altars of Madness" 1989, Death Metal
-"Blessed are the Sick" 1991, Death Metal
-"Covenant" 1993, Death Metal
-"Rapture [single]" 1993, Death Metal
-"Laibach Remixes [EP]" 1994, Death Metal
-"Domination" 1995, Death Metal
-"Entangled in Chaos [live]" 1996, Death Metal
-"Formulas Fatal to the Flash" 1998, Death Metal
-"Love of Lava [compilation]" 1999, Death Metal
-"Gateways to Annihilation" 2000, Death Metal
-"Gateways to Annihilation [EP]" 2000, Death Metal
-"Heretic" 2003, Death Metal
-"Illud Divinum Insanus" 2011, Death Metal
-"Nevermore (single)" 2011, Death Metal
+Legend of Florida's Deathcore
+
+## Дискография
+
+### "The Beginning [demo]" 1985, Death Metal
+
+
+
+### "Abominations of Desolations" 1986, Death Metal
+
+1. The Invocations
+2. Chapel Of Ghouls
+3. Unholy Blasphemies
+4. Angel Of Disease
+5. Azagthoth
+6. The Gate
+7. Lord Of All Fevers And Plague
+8. Hellspawn
+9. Abominations
+10.Demon Seed
+11.Welcome To Hell
+
+ Trey Azagthoth - Lead Guitars
+ Richard Brunelle - Lead Guitars
+ Mike Browning - Drums & Vocals
+ Sterling Von Scarborough - Bass
+
+Produced By David Vincent And MORBID ANGEL
+Engineered & Mixed By Bill Metoyer
+All Music And Lyrics By MORBID ANGEL
+Japan - 1986 Goreque
+
+(p)&(c) 1986 SATANIC Records Satanic 666
+
+
+### "Bleed for the Devil [demo]" 1986, Death Metal
+
+
+
+### "Scream Forth Blasphemies [demo]" 1986, Death Metal
+
+
+
+### "Thy Kingdom Come [demo]" 1987, Death Metal
+
+
+
+### "Altars of Madness" 1989, Death Metal
+
+1. Immortal Rites
+2. Suffocation
+3. Vision From The Dark Side
+4. Mase Of Torment
+5. Chapel Of Ghouls
+6. Bleed For The Devil
+7. Damnation
+8. Blasphemy
+9. Evil Spells
+
+ David Vincent - Vocals & Bass
+ Trey Azagthoth - Guitars
+ Richard Brunelle - Guitars
+ Pete Sandaval - Drums
+
+Produced By Dig & MORBID ANGEL.
+Executive Producer: Digby Pearson.
+Recorded & Mixed At Morrisound Recording
+Tampa,Florida.
+Engineered By Tom Morris.
+This Album Dedicated To The Underground
+And All Speed,Death,Black Metal Fans Everywhere.
+
+(p)&(c) 1989 EARACHE Records Mosh 11
+
+
+### "Blessed are the Sick" 1991, Death Metal
+
+1. Intro
+2. Fall From Grace
+3. Brain Storm
+4. Rebel Lands
+5. Doomsday Celebration
+6. Day Of Suffering
+7. Blessed Are The Sick/Leading The Rats
+8. Thy Kingdome Come
+9. Unholy Blasphemies
+10.Abominations
+11.Desolate Ways
+12.The Ancient Ones
+13.In Remembrance
+
+ David Vincent - Vocals & Bass
+ Trey Azagthoth - Guitars
+ Richard Brunelle - Guitars
+ Pete Sandoval - Drums
+
+Produced By MORBID ANGEL.
+Engineered & Mixed By Tom Morris.
+Recorded Jan.-Feb. `91 At Morrisound,
+Tampa,Florida.
+
+(p)&(c) 1991 EARACHE Records Mosh 31
+
+
+### "Covenant" 1993, Death Metal
+
+1. Rapture
+2. Pain Divine
+3. World Of Shit (The Promised Land)
+4. Vengeance Is Mine
+5. Lions Den
+6. Blood On My Hands
+7. Angel Of Disease
+8. Sworn To The Black
+9. Nar Mattaru
+10.God Of Emptyness
+
+ David Vincent - Vocals,Bass
+ Pete 'Commando' Sandoval - Drums
+ Trey Azagthoth - All Guitar / Keyboards
+
+All Songs By MORBID ANGEL.
+Produced By MORBID ANGEL & Flemming Rasmussen.
+Engineered By Tom Morris & Flemming Rasmussen
+At Morrisound Studios, Tampa, Florida.
+Mixed By Flemming Rasmussen.
+
+(p)&(c) 1993 EARACHE Records
+
+
+### "Rapture [single]" 1993, Death Metal
+
+
+
+### "Laibach Remixes [EP]" 1994, Death Metal
+
+1. God Of Emptiness
+2. Sworn To The Black
+3. Sworn To The Black (LAIBACH Re-Mix)
+4. God Of Emptiness (LAIBACH Re-Mix)
+
+ David Vincent - Vocals,Bass
+ Pete 'Commando' Sandoval - Drums
+ Trey Azagthoth - All Guitar / Keyboards
+
+Re-Mixed Produced By 300.000 V.K.
+Re-Mixed By Janes Krizai In Studio 26, RTV - Ljubljana, Jan 1994
+
+(p)&(c) 1994 EARACHE Records 
+
+### "Domination" 1995, Death Metal
+
+1. Dominate
+2. Where The Slime Live
+3. Eyes To See, Ears To Hear
+4. Melting
+5. Nothing But Fear
+6. Dawn Of The Angry
+7. This Means War
+8. Caesar's Palace
+9. Dreaming
+10.Inquisition (Burn With Me)
+11.Hatework
+
+ Trey Azagthoth - Guitars & Keyboards
+ David Vincent - Vocals & Bass
+ Erik Rutan - Guitars & Keyboards
+ Pete Sandoval - Drums
+
+Produced By MORBID ANGEL & Bill Kennedy
+Engineered & Mixed By Bill Kennedy
+Recorded & Mixed At Morrisound Studios, Nov. 94 - Jan. 95.
+Mastered At A&M Studios By Alan Yoshida
+
+(p)&(c) 1995 GIANT Records
+
+### "Entangled in Chaos [live]" 1996, Death Metal
+
+1.  Immortal Rites
+2.  Blasphemy Of The Holy Ghost
+3.  Sworm To The Black
+4.  Lord Of All Fever And Plague
+5.  Blessed Are The Sick
+6.  Day Of Suffering
+7.  Chapel Of Ghouls
+8.  Maze Of Torment
+9.  Rapture
+10.Blood On My Hands
+11.Dominate
+
+Produced By Trey Azagthoth.
+Mixed By Tom Morris.
+Mastered By Tom Morris & Trey Azagthoth.
+Live Recording By Wes Faulkner.
+
+Trey Azagthoth - Guitars & Keyboards
+David Vincent - Vocals & Bass
+Erik Rutan - Guitars & Keyboards
+Pete Sandoval - Drums
+
+(P)(C) 1996 EARACHE Records // MOSH 167
+
+### "Formulas Fatal to the Flash" 1998, Death Metal
+
+1.Heaving Earth. 
+2.Prayer Of Hattred. 
+3.Bil Ur-Sag. 
+4.Nothing Is Not. 
+5.Chambers Of Dis. 
+6.Disturbance In The Great Slumber. 
+7.Umulamahri. 
+8.Hellspawn: The Rebirth. 
+9.Covenant Of Death. 
+10.Hymn To A Gas Giant. 
+11.Invocation Of The Continual One. 
+12.Ascent Through The Spheres. 
+13.Hymnos Rituales De Guerra. 
+14.Trooper.
+
+
+### "Love of Lava [compilation]" 1999, Death Metal
+
+
+
+### "Gateways to Annihilation" 2000, Death Metal
+
+Kawazu 
+Summoning Redemption 
+Ageless, Still I Am 
+He Who Sleeps 
+To the Victor the Spoils 
+At One with Nothing 
+Opening of the Gates 
+Secured Limitations 
+Awakening 
+I 
+God of the Forsaken
+
+--------------------------------------------
+Trey Azagthoth : Guitars/Guitar Synth/Vocals
+Steve Tucker : Bass/Vocals
+Erik Rutan : Guitars/Keyboards
+Pete Sandoval : Drums
+
+
+### "Gateways to Annihilation [EP]" 2000, Death Metal
+
+
+
+### "Heretic" 2003, Death Metal
+
+1. Cleansed In Pestilence (Blade Of Elohim)
+2. Enshrined By Grace (mp3)
+3. Beneath The Hollow
+4. Curse The Flesh
+5. Praise The Strength
+6. Stricken Arise
+7. Place Of Many Death
+8. Abyssous
+9. God Of Our Own Divinity
+10. Within Thy Enemy
+11. Memories Of The Past
+12. Victorious March Of Reign The Conqueror
+13. Drum Check
+14. Born Again 
+
+### "Illud Divinum Insanus" 2011, Death Metal
+
+1. Omni Potens      
+2. Too Extreme!      
+3. Existo Vulgore  04:00    
+4. Blades of Baal      
+5. I Am Morbid      
+6. 10 More Dead      
+7. Destructos Vs. the Earth / Attack      
+8. Nevermore      
+9. Beauty Meets Beast      
+10. Radikult      
+11. Profundis - Mea Culpa  
+
+
+David Vincent  Vocals, bass  
+Destructhor  Guitars  
+Trey Azagthoth  Guitars  
+ 
+
+First release in eight years and with bassist/vocalist David Vincent in sixteen years.
+The drum tracks to six songs on "Illud Divinum Insanus" were recorded at Mana Recording Studios in St. Petersburg, Florida with engineer Erik Rutan (former Morbid Angel guitarist and producer for such bands as Cannibal Corpse and Goatwhore).
+Artwork by Gustavo Sazes.
+
+
+
+### "Nevermore (single)" 2011, Death Metal
+
+1. Nevermore  05:07    
+2. Destructos vs. the Earth (remixed by Combichrist)  05:04 
+
+
 
 ## Отношения с другими группами
 

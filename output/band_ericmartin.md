@@ -1,11 +1,62 @@
 # Eric Martin
 
-Дискография
-"Eric Martin" 1985, Metal
-"I'm Only Fooling Myself" 1987, Metal
-"I'm Goin' Sane" 2002, Metal
-"Somewhere in the Middle" 2003, Metal
-"Destroy All Monsters" 2004, Metal
+AOR/Melodic Hard Rock
+
+## Дискография
+
+### "Eric Martin" 1985, Metal
+
+
+
+### "I'm Only Fooling Myself" 1987, Metal
+
+
+
+### "I'm Goin' Sane" 2002, Metal
+
+1. My Disease
+2. Spaceman
+3. Goin' Sane
+4. Free Of It
+5. Marie
+6. There Goes The Neighborhood
+7. Carnival Of Souls
+8. Bigger Man
+9. Who Am I Supposed To Be
+10. Everyday
+11. Fly
+12. In Case You Didnt Know
+
+### "Somewhere in the Middle" 2003, Metal
+
+1. Fly On A Wall        
+2. Wink And A Smile        
+3. Dont Count Me Out        
+4. Kisses Stain        
+5. No One Said Goodbye        
+6. Better Day        
+7. Somewhere In The Middle        
+8. Thats What Im Here For        
+9. Somethin From Nothin        
+10. Have I Been Here Before        
+11. Over My Heart        
+12. I Love The Way You Love Me (Bonus Track)
+
+### "Destroy All Monsters" 2004, Metal
+
+1. What's the Worst That Could Happen 
+2. KANSAS 
+3. I WOKE UP TOO LATE 
+4. JANIE WON'T OPEN 
+5. WHERE ARE YOU? 
+6. YOU'RE TOO GOOD FOR HIM 
+7. LIVING IN BLACK & WHITE 
+8. SOMETHING THERE 
+9. WHAT IF 
+10. I CAN DIE NOW 
+11. BURNIN' IN MY MIND 
+12. IF (Bonus Track)
+
 
 ## Отношения с другими группами
 

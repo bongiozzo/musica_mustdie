@@ -1,12 +1,116 @@
 # Evoken
 
-Дискография
-"Shades Of Night Descending" 1996, Death Doom
-"Embrace The Emptiness" 1998, Doom
-"Quetus" 2001, Doom
-"Antithesis Of Light" 2005, Death Doom
-"A Caress Of The Void" 2007, Death Doom
-"Atra Mors" 2012, Death Doom
+funeral doom
+
+## Дискография
+
+### "Shades Of Night Descending" 1996, Death Doom
+
+1. Intro
+2. In Graven Image
+3. Shades Of Night Descending
+4. Towers Of Frozen Dusk
+5. Into The Autumn Shade
+
+All songs written by EVOKEN
+Produced by EVOKEN, Tim Carlin and Matt Lane
+Engineered and mixed by Tim Carlin and Matt Lane
+Recorded at Solid Sounds Studio
+
+Iohn Paradiso - Guitars and Vocals
+Nick Orlando - Guitars
+Bill Manley - Bass
+Vin Verkay - Drums
+
+All keyboards by John Paradiso and Tim Carlin.
+
+(p)(c) 1996 ADIPOCERE Records
+
+### "Embrace The Emptiness" 1998, Doom
+
+1. Intro (Instrumental) 03:22  
+2. Tragedy Eternal 09:52  
+3. Chime the Centuries End 09:45
+4. Lost Kingdom of Darkness 11:52
+5. Ascend Into the Maelstrom 09:53
+6. To Sleep Eternally 12:49 
+7. Curse the Sunrise 12:57 
+
+
+### "Quetus" 2001, Doom
+
+1. In Pestilence, Burning 08:39  
+2. Withering Indignation 08:52  
+3. Tending the Dire Hatred 07:07  
+4. Where Ghosts Fall Silent 10:39
+5. Quietus 10:47 
+6. Embrace the Emptiness 12:52 
+7. Atrementous Journey (Outro) 04:14 
+
+
+
+Produced by Evoken and Ron Thal
+Engineered by Ron Thal
+Assistant Engineers: Jimmy Wilgus and Zak Rizvi
+Recorded at WAVE Studios (Staten Island, NY) through October/November 1999
+Additional recording done at Den Studios (Whippany, NJ) in December 1999.
+Mixed and Mastered by Ron Thal at the Hermit Hole
+Layout by Stephen O'Malley
+
+John Paradiso - Guitars/Vocals
+Nick Orlando - Guitars
+Steve Moran - Bass
+Vince Verkay - Drums
+Dario Derna - Keyboards
+
+
+### "Antithesis Of Light" 2005, Death Doom
+
+1. Intro 00:49  
+2. In Solitary Ruin 10:44 
+3. Accursed Premonition 12:33  
+4. The Mournful Refusal 13:30  
+5. Pavor Nocturnus 10:46 
+6. Antithesis of Light 12:16  
+7. The Last of Vitality 11:00 
+
+Produced by Evoken and Bumblefoot
+Recorded, Mixed & Mastered by Bumblefoot at the Hermit Hole - Kendall Park, NJ
+from March '04 to November '04.
+Layout by Troll at Elegy Records
+
+John Paradiso - Vocals/Guitars/Bass
+Nick Orlando - Guitars
+Vince Verkay - Drums
+Denny Hahn - Keyboards
+
+Session Cello by Chris Kuffner
+
+
+
+### "A Caress Of The Void" 2007, Death Doom
+
+1. A Caress Of The Void 08:52  
+2. Mare Erythraeum 07:19  
+3. Of Purest Absolution 07:46  
+4. Astray In Eternal Night 08:37  
+5. Descend The Lifeless Womb 09:12  
+6. Suffer A Martyr's Trial (Procession At Dusk) 13:46  
+7. Orogeny 06:06 
+
+
+Line Up:
+John Paradiso - Guitar, Vocals
+Nick Orlando - Guitar
+Craig Pillard - Bass
+Vince Verkay - Drums
+Don Zaros - Keyboards
+
+
+### "Atra Mors" 2012, Death Doom
+
+
+
 
 ## Отношения с другими группами
 

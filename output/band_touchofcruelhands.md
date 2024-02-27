@@ -1,7 +1,35 @@
 # Touch of Cruel Hands
 
-Дискография
-"Sors" 1995, Death Doom
+
+
+## Дискография
+
+### "Sors" 1995, Death Doom
+
+1. Touch Of Cruel Hands
+2. A Figure Of No Avail
+3. Clock's Long Hand Stands Still
+4. Joshua
+5. In The Maze Of Lunacy
+6. Sors (Fate)
+7. Spendthrift Of  Yourself
+8. Your Own Hero Legend
+9. The Storm
+[10].Little Step
+
+[10] на стороне B
+
+All Songs Written By TOUCH OF CRUEL HANDS.
+Mixed By Didi Muller & TOUCH OF CRUEL HANDS.
+Recorded At AT Studio Recklinghausen.
+
+Cornelius Rambadt - Drums
+Marcel Monnig - Vocals,Guitars
+Oliver Zinn - Bass,Vocals
+Susanne Kempken - Female Vocals
+
+(P)&(C) 1995 ZYX Music
+
 
 ## Отношения с другими группами
 

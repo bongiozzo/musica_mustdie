@@ -1,7 +1,22 @@
 # Atoma
 
-Дискография
-"Skylight" 2012, Metal
+
+
+## Дискография
+
+### "Skylight" 2012, Metal
+
+1. Atoma 
+2. Skylight 
+3. Hole in the Sky 
+4. Highway 
+5. Bermuda Riviera 
+6. Resonance 
+7. Solaris 
+8. Rainmen 
+9. Saturn and I 
+10. Cloud Nine 
+
 
 ## Отношения с другими группами
 

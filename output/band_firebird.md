@@ -1,6 +1,9 @@
 # Firebird
 
-Дискография
+(led by former CARCASS/NAPALM DEATH guitarist Bill Steer)
+
+## Дискография
+
 
 ## Отношения с другими группами
 

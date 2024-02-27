@@ -1,7 +1,31 @@
 # Frontline
 
-Дискография
-"Circles" 2006, Hard Rock
+
+
+## Дискография
+
+### "Circles" 2006, Hard Rock
+
+1. No One; 
+2. I Give You The Rest; 
+3. Save Me; 
+4. Did You Ever (Taste The Pain); 
+5. Say, What You Have To say; 
+6. Don't Run Away; 
+7. Hunter; 
+8. Into Deep; 
+9. It Is You; 
+10. My Vision
+
+All songs written by Boebel/Kaemmerer
+Produced by Robert Boebel
+Engineered andd mixed by Robert Boebel
+
+Robert Boebel - Guitars, Keyboards and Programming
+Stephan Kaemmerer - Lead and Backing Vocals
+Thomas Bauer - Bass
+Rami Ali - Drums
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,59 @@
 # Ensoph
 
-Дискография
-"Bleeding Womb Of Ananke" 2001, Black Metal
-"Opus Dementiae - per speculum et in aenigmate" 2004, Black Metal
+gothic-black
+
+## Дискография
+
+### "Bleeding Womb Of Ananke" 2001, Black Metal
+
+01. The Shattered Void 04:58
+02. The Spyral-Stigmata 07:49 
+03. I (Be & Will Be) 04:21 
+04. Tanz der Erinnerung (Chant Of The Void's
+Disciples) 06:31 
+05. In The Blossom of the Inertness 05:43 
+06. Aletheia 05:28 
+07. Amber Shrine 09:20 
+08. The Ivory Ouroboros 03:30 
+09. The Bleeding Womb Of Anake (Bonus Track) 07:08
+10. 7 volte 3 (Bonus Track) 09:05
+
+Giuliano: guitar, bass
+Zenone: drums,percussions
+Leonardo: Keys, piano, accordion
+Nicolas: male vocal
+Massimo: bass
+Anna: flute
+
+Tracks 1-8: recorded, mixed and masted at NoBrain
+studio
+by L. Castellani and Ensoph (winter 2001)
+
+Tracks 9-10: recorded, mixed and mastered at
+NoBrain studio
+by L. Castellani and Ensoph (winter 2000)
+Female vocals by Patrizia Apuzzo
+
+Concept and lyrics by Zenone and Giuliano
+All songs written, arranged and perforned by
+Ensoph
+Additional lyrics on track 4 by Rosita
+
+for news, info and previous releases visit the
+site:
+www.mp3.com/ensophx
+
+Cover, booklet and artwork by BOO - LOLAY graphic
+todenwalt@yahoo.com
+
+Graphic supervision and lay-out by Luigi
+M.Mennella
+for Sephiroth Graphix: awf@aruba.it
+
+### "Opus Dementiae - per speculum et in aenigmate" 2004, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

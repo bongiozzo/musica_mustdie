@@ -1,9 +1,39 @@
 # Necronomicon
 
-Дискография
-"Pharaoh Of Gods" 1999, Death Metal
-"The Secret Medicine" 2003, Death Metal
-"The Return Of The Witch" 2009, Death Metal
+
+
+## Дискография
+
+### "Pharaoh Of Gods" 1999, Death Metal
+
+1. Revelation 03:22
+2. The Guardian 04:56 
+3. The Silver Key 06:27 
+4. Egypt, the Red Earth 05:59 
+5. Initiation 05:44 
+6. Pharaoh of Gods 05:27 
+7. The Symbol of Life 06:11 
+8. Becoming the Hands That Carry the Spirit 09:25  
+9. The Daring One (Akhnaton) 06:33
+
+### "The Secret Medicine" 2003, Death Metal
+
+1. Through the Door of Time 03:56 
+2. Dark Wings of Deceptions 05:00 
+3. The Threshold 02:33  
+4. Behind the Mask 03:43
+5. Calling the Spirits 01:19  
+6. The Sacred Medicines 04:25 
+7. The Pillar of Balance 03:23  
+8. Quetzalcoatl 04:17 
+9. Quest For Vision 04:37 
+10. Dreaming 07:18  
+11. Temple of the Sun 05:13
+
+### "The Return Of The Witch" 2009, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

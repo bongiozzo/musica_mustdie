@@ -1,7 +1,32 @@
 # Disembowelment
 
-Дискография
-"Transcendence Into The Peripherial" 1993, Death Metal
+Death-Doom-Grind
+
+## Дискография
+
+### "Transcendence Into The Peripherial" 1993, Death Metal
+
+1. The Tree Of Life And Death
+2. Your Prophetic Throne Of Ivory
+3. Excoriate
+4. Nightside Of Eden
+5. A Burial At Orhans
+6. The Spirits Of The Tall Hills
+7. Cerulean Transience Of All My Imagined Shores
+
+ Renato Gallina - Vocals,Chant,Guitars
+ Jason Kells - Guitars
+ Matt Skarajew - Bass
+ Paul Mazziotta - Drums
+
+All Music & Lyrics By Renato Gallina
+Produced By DISEMBOWELMENT
+Engineered By Doug Saunders
+Recorded During The Processio Of Winter &
+Spring 1992 At Toybox
+
+(p)&(c) 1993 RELAPSE Records
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,21 @@
 # Ferro Ignique
 
-Дискография
-"World Wide War" 1999, Black Metal
+
+
+## Дискография
+
+### "World Wide War" 1999, Black Metal
+
+1. Enthral Christ Demonsides 04:21  
+2. Perceiving The Signs 05:52  
+3. Of Altars And Virgins 02:51  
+4. In The Forest of Frozen Time 07:40  
+5. DCLXVI - Paradise Parasites 00:37  
+6. Under The Hell Shelter 00:38  
+7. Sundown (Over The Realm of Christ) 04:43  
+8. G.G.C. 03:59  
+9. Seelenwinter 04:40 
+
 
 ## Отношения с другими группами
 

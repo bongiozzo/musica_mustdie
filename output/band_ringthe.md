@@ -1,7 +1,22 @@
 # Ring, The
 
-Дискография
-"Tales From Midgard" 2004, Power Metal
+
+
+## Дискография
+
+### "Tales From Midgard" 2004, Power Metal
+
+In The Beginning 
+Gathering Darkness 
+Voices Of The Fallen Kings 
+Into The Wild 
+Unite Or Fall 
+Halls Of Doom 
+Signs By The Silver Stream 
+The Chase 
+Last Battle 
+Escape
+
 
 ## Отношения с другими группами
 

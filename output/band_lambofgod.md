@@ -1,14 +1,103 @@
 # Lamb Of God
 
-Дискография
-"New American Gospel" 2000, Metalcore
-"As The Palaces Burn" 2003, Metalcore
-"Ashes of the Wake" 2004, Metalcore
-"Sacrament" 2006, Metalcore
-"Wrath" 2009, Groove
-"Ghost Walking (single)" 2011, Groove
-"Resolution" 2012, Groove
-"VII - Sturm Und Drans" 2015, Groove
+
+
+## Дискография
+
+### "New American Gospel" 2000, Metalcore
+
+1. Black Label 04:52
+2. A Warning 02:23
+3. In The Absence of The Sacred 04:36
+4. Letter To The Unborn 02:56  
+5. The Black Dahlia 03:19  
+6. Terror And Hubris In The House of Frank Pollard 05:37
+7. The Subtle Arts of Murder And Persuasion 04:10
+8. Pariah 04:24
+9. Confessional 04:01
+10. O.D.H.G.A.B.F.E. 05:14 
+
+### "As The Palaces Burn" 2003, Metalcore
+
+1. Ruin 03:54
+2. As The Palaces Burn 02:24 
+3. Purified 03:10
+4. 11th Hour 03:44
+5. For Your Malice 03:43
+6. Boot Scraper 04:34
+7. A Devil In God's Country 03:14
+8. In Defense of Our Good Name 04:10
+9. Blood Junkie 04:23
+10. Vigil 04:42 
+
+### "Ashes of the Wake" 2004, Metalcore
+
+1. Laid to Rest 03:50 
+2. Hourglass 04:00
+3. Now You've Got Something to Die for 03:39
+4. The Faded Line 04:37 
+5. Omerta 04:46
+6. Blood of the Scribe 04:23
+7. One Gun 03:59
+8. Break You 03:35
+9. What I've Become 03:28
+10. Ashes of the Wake 05:45
+11. Remorse Is for the Dead 05:39 
+
+### "Sacrament" 2006, Metalcore
+
+1. Walk With Me In Hell 05:12
+2. Again We Rise 04:30 
+3. Redneck 03:41
+4. Pathetic 04:31
+5. Foot To The Throat 03:14
+6. Descending 03:35
+7. Blacken The Cursed Sun 05:28
+8. Forgotten (Lost Angels) 03:06
+9. Requiem 04:11
+10. More Time To Kill 03:37 
+11. Beating On Death's Door 05:07 
+
+### "Wrath" 2009, Groove
+
+1. The Passing 01:58  
+2. In Your Words 05:24 
+3. Set to Fail 03:44
+4. Contractor 03:22
+5. Fake Messiah 04:33
+6. Grace 03:54 
+7. Broken Hands 03:53
+8. Dead Seeds 03:40
+9. Everything to Nothing 03:50
+10. Choke Sermon 03:20
+11. Reclamation 07:05 
+
+### "Ghost Walking (single)" 2011, Groove
+
+1. Ghost Walking 04:31
+
+### "Resolution" 2012, Groove
+
+1. Straight for the Sun 
+2. Desolation 
+3. Ghost Walking 
+4. Guilty 
+5. The Undertow 
+6. The Number Six 
+7. Barbarosa 
+8. Invictus 
+9. Cheated 
+10. Insurrection 
+11. Terminally Unique 
+12. To the End 
+13. Visitation 
+14. King Me 
+
+
+### "VII - Sturm Und Drans" 2015, Groove
+
+
+
 
 ## Отношения с другими группами
 

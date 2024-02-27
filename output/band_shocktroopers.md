@@ -1,8 +1,38 @@
 # Shock Troopers
 
-Дискография
-"Shock Troopers" 2008, Crossover
-"Blades And Rods" 2010, Crossover
+
+
+## Дискография
+
+### "Shock Troopers" 2008, Crossover
+
+1. A Reason For War 
+2. Shock Troopers
+3. Goodbye Liver
+4. Allowed Submission
+5. Slave of State
+6. O.P.A. (Obsolete Proud Attack)
+7. Brainsucker
+8. Nothing Remains 
+9. Stranglehold
+10. Sunday Night Fever 
+11. Goodbye Liver (Live) 
+12. Allowed Submission (Live)
+
+### "Blades And Rods" 2010, Crossover
+
+1. Intro (Metal Slug)
+2. Competition
+3. Take Your Eyes Off Me
+4. Blades And Rods
+5. Vice
+6. Road Thrash
+7. Toilet Show
+8. Protection Money
+9. Jail World
+10. Waterboarding
+11. The Rape
+
 
 ## Отношения с другими группами
 

@@ -1,9 +1,52 @@
 # AB/CD
 
-Дискография
-"Victim Of Rock" 1987, Heavy Metal
-"The Rock 'N' Roll Devil" 1992, Heavy Metal
-"Cut The Crap!" 1995, Heavy Metal
+(great AC/DC cover band)
+
+## Дискография
+
+### "Victim Of Rock" 1987, Heavy Metal
+
+1. Victim of Rock
+2. The Rockin&#1169;Times
+3. Time Bomb
+4. AB/CD
+5.Poison in your veins
+6. Blood Money
+
+
+
+### "The Rock 'N' Roll Devil" 1992, Heavy Metal
+
+  1.   Jackpot 
+  2.   Bingo 
+  3.   The Rock & Roll Devil 
+  4.   Bengus' Bomb 
+  5.   Your Name on My Bullet 
+  6.   Love Doll 
+  7.   Booze Blues 
+  8.   Harley Davidson 
+  9.   Party Time 
+  10.   Bengus' Starlicks 
+  11.   Killershark 
+  12.   The Master Plan 
+  13.   Devils Dinner 
+  14.   Have You Got the Guts 
+
+
+### "Cut The Crap!" 1995, Heavy Metal
+
+1. White Moonshine Whiskey Maker
+2. Mikey's Butt
+3. Twelve Beers
+4. Attack of the Perfumed Turd
+5. Too short to be the King
+6. Six Feet Down Below
+7. MTV Recipe
+8. Facelift Boogie
+9. Bengus' handjob
+10. Rock'n'Rolex
+11. Elvis, Bugs and Oldies 
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,22 @@
 # Tenochtitlan
 
-Дискография
-"Epoch Of The Fifth Sun" 2005, Doom
+doom
+
+## Дискография
+
+### "Epoch Of The Fifth Sun" 2005, Doom
+
+1. Venus Rising (intro)
+2. Sun Winds 
+3. 1 366 560
+4. Secrets of Pacal and Virakochi
+5. ye cham-el a-em-aan
+6. Teotihuacan
+7. Morning Chosts of Tikal
+8. Roads to Kopan
+9. The Hymn of Huitzilopochtli 
++ multimedia section
+
 
 ## Отношения с другими группами
 

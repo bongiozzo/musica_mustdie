@@ -1,7 +1,20 @@
 # Verdict Denied
 
-Дискография
-"Condamned" 2009, Thrash
+
+
+## Дискография
+
+### "Condamned" 2009, Thrash
+
+1. Fake Abilities 05:26  
+2. Dark Twisted Laughter 05:06  
+3. This Soul Of Black Is Mine 06:08  
+4. 94 x 1 Vain (They Return) 07:02  
+5. Black Tango 08:21  
+6. Twisted And Menacing My Stare 06:20  
+7. Battle Within 05:18  
+8. The Last Act 04:37 
+
 
 ## Отношения с другими группами
 

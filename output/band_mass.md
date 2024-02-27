@@ -1,7 +1,24 @@
 # Mass
 
-Дискография
-"Rushing Flood Perfume" 1991, Grindcore
+
+
+## Дискография
+
+### "Rushing Flood Perfume" 1991, Grindcore
+
+1. Someone Else
+2. Sadoseduction
+3. Raining
+4. Thinking
+5. Terminal
+6. Pulling
+7. Chaser
+8. Medusa
+9. Home
+10.Unnamed
+
+(p)&(c) 1991 ABSTRACT Records
+
 
 ## Отношения с другими группами
 

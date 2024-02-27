@@ -1,7 +1,27 @@
 # Helloise
 
-Дискография
-"Cosmogony" 1985, Hard Rock
+
+
+## Дискография
+
+### "Cosmogony" 1985, Hard Rock
+
+  1.   Cosmogony 
+  2.   Broken Hearts 
+  3.   Run a Mile 
+  4.   Die Hard 
+  5.   Ready for the Night 
+  6.   For a Moment 
+  7.   Gates of Heaven 
+  8.   Hard Life 
+ 
+Ben Blaauw  -  Guitar 
+Arjan Boogerds  -  Guitar 
+Marchell Remeeus  -  Bass 
+Ernst VanEe  -  Drums 
+Stan Verbraak  -  Vocals 
+
+
 
 ## Отношения с другими группами
 

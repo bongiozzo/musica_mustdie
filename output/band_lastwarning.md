@@ -1,9 +1,45 @@
 # Last Warning
 
-Дискография
-"From the Floor of the Well" 1994, Progressive
-"Under a Spell" 2000, Progressive
-"Throughout Time" 2009, Progressive
+
+
+## Дискография
+
+### "From the Floor of the Well" 1994, Progressive
+
+1. From The Floor Of The Well 07:23
+2. Without Power 05:21
+3. Mistery 07:46  
+4. On The Wire 07:20  
+5. Scream To The Mirror 05:05  
+6. Killing Dust 05:55  
+7. Rain On The Flame 06:28  
+8. Faith And Misery 08:48 
+
+### "Under a Spell" 2000, Progressive
+
+1. Begining 04:12  
+2. Away 06:50  
+3. Discover 07:02  
+4. Human Fire 05:44  
+5. Waiting 02:57  
+6. Rules 08:21  
+7. Under a Spell 06:14  
+8. Way Out 05:30  
+9. Face Truth 10:01 
+
+### "Throughout Time" 2009, Progressive
+
+1. Madness 07:30  
+2. Secret 05:50  
+3. It Slowly Dries My Tears 06:59  
+4. Bloody Dream 04:49  
+5. Throughout Time 09:14  
+6. For A Lifetime 07:06  
+7. Only Silence 06:21  
+8. Higher 06:45  
+9. In The Flood 09:02  
+10. Cry Out (bonus track) 04:49 
+
 
 ## Отношения с другими группами
 

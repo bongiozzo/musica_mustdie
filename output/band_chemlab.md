@@ -1,7 +1,34 @@
 # Chemlab
 
-Дискография
-"East Side Militia" 1996, Alternative
+
+
+## Дискография
+
+### "East Side Militia" 1996, Alternative
+
+1. Exile On Mainline
+2. Jesus Christ Porno Star
+3. Vera Blue (96/69)
+4. Pyromance
+5. Lo-Grade Fever
+6. Electric Molecular
+7. Latex
+8. Pink
+9. Exiled
+
+Pre-Production at the CHEMLAB Mobile Unit.
+Produced By Critter & CHEMLAB.
+
+Dylan Thomas More - Composition, Programming, Sampling
+Jared - Vox, Lyrics, Arrangement
+John DeSalvo - Drumming, Samples, Programming
+William Tucker - Guitars
+Geno Leonardo - Guitars
+Solomon Snyder - Bass
+Sister Stella Soleil - Female Vox
+
+(P)(C) 1996 FIFTH COLUMN / METAL BLADE Records
+
 
 ## Отношения с другими группами
 

@@ -1,12 +1,100 @@
 # Ihsahn
 
-Дискография
-"The Adversary" 2006, Black Metal
-"angL" 2008, Progressive
-"After" 2010, Progressive
-"Eremita" 2012, Progressive
-"Das Seelenbrechen" 2013, Progressive
-"Arktis." 2016, Progressive
+ex-EMPEROR
+
+## Дискография
+
+### "The Adversary" 2006, Black Metal
+
+01. Invocation
+02. Called by the Fire
+03. Citizen
+04. Homecoming
+05. Astera ton Proinon
+06. Panem et Circenses
+07. And He Shall Walk in Empty Places
+08. Will You Will Love Me Now?
+09. The Pain is Still Mine
+
+### "angL" 2008, Progressive
+
+1. Misanthrope 04:58  
+2. Scarab 05:17  
+3. Unhealer 06:17  
+4. Emancipation 05:27  
+5. Malediction 04:19  
+6. Alchemist 04:19  
+7. Elevator 05:07  
+8. Threnody 05:08  
+9. Monolith 06:27 
+
+
+Mikael Еkerfeldt of Opeth performs lead vocals on the track "Unhealer".
+Ihsahn (Vegard Sverre Tveitan) - Vocals, Guitars, Bass, Keyboards 
+Asgeir Mickelson - Session Drums
+Lars Norberg (Spiral Architect, Satyricon) plays the bass on the album. 
+
+
+### "After" 2010, Progressive
+
+1. The Barren Lands 05:12  
+2. A Grave Inversed 04:25  
+3. After 04:47  
+4. Frozen Lakes On Mars 05:54  
+5. Undercurrent 10:00  
+6. Austere 06:16  
+7. Heaven's Black Sea 06:15  
+8. On The Shores 10:12 
+
+### "Eremita" 2012, Progressive
+
+1. Arrival
+2. The Paranoid
+3. Introspection
+4. The Eagle And The Snake
+5. Catharsis
+6. Something Out There
+7. Grief
+8. The Grave
+9. Departure
+
+Limited Edition Digibook includes a bonus track:
+10. Recollection (05:39) 
+
+### "Das Seelenbrechen" 2013, Progressive
+
+1. Hiber  05:12   
+2. Regen  05:03   
+3. NaCl  04:24  
+4. Pulse  04:53  
+5. Tacit 2  04:58   
+6. Tacit  04:36 
+7. Rec  02:26   
+8. M  04:39  
+9. Sub Ater  05:15   
+10. See  07:29 
+11. Entropie  04:45  
+12. Hel  02:49 
+
+
+### "Arktis." 2016, Progressive
+
+1. Disassembled  05:02    
+2. Mass Darkness  03:52    
+3. My Heart Is of the North  04:43    
+4. South Winds  05:34    
+5. In the Vaults  04:09    
+6. Until I Too Dissolve  05:24   
+7. Pressure  06:04    
+8. Frail  03:39    
+9. Crooked Red Line  04:16 
+10. Celestial Violence  05:24    
+11. Til Tor Ulven (Sшppelsolen)  09:13    
+
+Track 11 is a bonus track and not listed on the back of the release.
+
+
+
 
 ## Отношения с другими группами
 

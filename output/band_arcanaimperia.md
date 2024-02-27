@@ -1,7 +1,42 @@
 # Arcana Imperia
 
-Дискография
-"Hymns Of Infinite Decay" 2008, Black Metal
+
+
+## Дискография
+
+### "Hymns Of Infinite Decay" 2008, Black Metal
+
+1. Ingressus ad Hortus Malum (intro) 02:06  
+2. Agony 02:58  
+3. In the Realms of Desolation 03:34  
+4. Atlas 03:05  
+5. Nil Sine Numine 03:56  
+6. Deities of Nothingness 02:51  
+7. Quiet Spite (instrumental) 04:07  
+8. Why God is blind? 03:47  
+9. Grandeur 03:33  
+10. The Celestial Traveller 03:44  
+11. Cladere Portae (outro) 01:57 
+
+Recording line-up:
+Darvit – vocals
+Eugene – guitar, sitar, drums 
+Alexey – guitar, bass
+Olga – keyboards
+
+
+Guest vocals:
+Demether Grail (Arcane Grail) on “In the Realms…”, “Nil Sine Numine”,
+“Deities…”, “Celestial Traveller”
+
+Den Sain (Stigmatic Chorus) on “Celestial Traveller”
+
+Sandra (Cadaveric Stench) on “Celestial Traveller” 
+
+Arcane Choir is Demether Grail and Den Sain
+
+Mixed and mastered by Igor Korolyov at Kiv-Records 
+
 
 ## Отношения с другими группами
 

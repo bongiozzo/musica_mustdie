@@ -1,13 +1,135 @@
 # The Awakening
 
-Дискография
-"Risen" 1997, Gothic
-"Ethereal Menace" 1999, Gothic
-"Request" 1999, Gothic
-"The Fourth Seal of Zeen" 2000, Gothic
-"Roadside Heretics" 2002, Gothic
-"Sacrificial Etchings" 2003, Gothic
-"Razor Burn" 2006, Gothic
+gothic rock
+
+## Дискография
+
+### "Risen" 1997, Gothic
+
+1 nightfall 
+2 past idol
+3 change 
+4 focus 
+5 the sounds of silence
+6 difference
+7 intervention
+8 holocaust
+9 standing 
+10 turn away
+11 jezzebel 
+12 sacrificial 
+13 child of the moon
+
+### "Ethereal Menace" 1999, Gothic
+
+1 in etherea 
+2 naked
+3 chains
+4 wasted miracle
+5 still the sun
+6 sentimental runaways
+7 nostalgia
+8 the march (part 1) 
+9 the march (part 2) 
+10 dreams in fire
+
+### "Request" 1999, Gothic
+
+1 request 
+2 to give 
+3 rain 
+4 carnival 
+5 before i leap 
+6 maree 
+7 tamzin 
+8 marked 
+9 in the unholy 
+10 where roses grow 
+11 myst 
+
+(bonus tracks 
+12 before i leap (dub-coma mix) 
+13 the safety dance
+14 request (reprise)
+
+### "The Fourth Seal of Zeen" 2000, Gothic
+
+1 precious (a shard)
+2 stigma
+3 amethyst
+4 a promise of zeen
+5 the dark romantics 
+6 eve 
+7 prophet
+8 zeen 
+9 the other garden
+10 ward 
+11 the harmony of imperfection
+12 missing chapters 
+13 figment 
+14 precious
+15 ( - )
+
+### "Roadside Heretics" 2002, Gothic
+
+1 roadside heretics
+2 mirror tricks 
+3 the maker
+4 beautiful
+5 my world
+6 fallen
+7 angels
+8 away from home
+9 the no-where mind
+10 tracey-junkie
+11 complexion
+12 cover
+
+### "Sacrificial Etchings" 2003, Gothic
+
+1 the dark romantics (single mix)
+2 the sounds of silence (splintered version 2002)
+3 vampyre girl (previously unreleased)
+4 eve (wish version)
+5 before i leap (dark mix)
+6 the march (single version)
+7 rain
+8 martyr
+9 maree (version 2)
+10 to give
+11 the fountain
+12 standing (solitude verion '02)
+13 dreams in fire (solitude verion '02)
+14 sacrificial (lacerated version 2002)
+15 amethyst (live piano version)
+
+### "Razor Burn" 2006, Gothic
+
+1. (Outside The Asylum) (1.37); 
+2. Arrow (4.06); 
+3. Heaven Waits (4.20); 
+4. The Neon Sky (3.56); 
+5. Razor Burn (4.37); 
+6. Darkness Calls (3.28); 
+7. Bleeding (4.13); 
+8. Descent (4.08); 
+9. Oblivion (4.55); 
+10. Halo (4.04); 
+11. Below (3.03); 
+12. Asylum (6.38)
+
+All songs written by Ashton Nyte
+Produced by Ashton Nyte and Jon Buckley
+Engineered and mixed by Jon Buckley
+Recorded at Intervention Studios and Sonovision Music
+
+Ashton Nyte - Vocals, Guityars and Keyboards
+Frankie Clark - Bass and Backing Vocals
+Marcus Van Der Tuin - Guitars
+
+Additional Guitars by Jon Buckley
+Additional Drums by Herman Kruger
+
 
 ## Отношения с другими группами
 

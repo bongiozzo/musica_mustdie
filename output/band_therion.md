@@ -1,32 +1,636 @@
 # Therion
 
-Дискография
-"Beyond the Darkest Veils of Inner Wickedness [demo]" 1989, Death Metal
-"Paroxysmal Holocaust [demo]" 1989, Death Metal
-"Time Shall Tell [EP]" 1990, Death Metal
-"Of Darkness..." 1991, Death Metal
-"Beyond Sanctorum" 1992, Death Metal
-"Symphony Masses Ho Drakon Ho Megas" 1993, Death Doom
-"Lepaca Kliffoth" 1995, Death Doom
-"The Beauty in Black [single]" 1995, Death Doom
-"Theli" 1996, Gothic
-"Siren of the Woods" 1996, Gothic
-"A'Arab Zaraq Lucid Dreaming" 1997, Gothic
-"Vovin" 1998, Gothic
-"Eye of Shiva [single]" 1998, Gothic
-"Crowning of Atlantis" 1999, Gothic
-"Deggial" 2000, Gothic
-"Secret of the Runes" 2001, Gothic
-"Bells of Doom [compilation]" 2001, Gothic
-"Live in Midgard" 2002, Gothic
-"Sirius B" 2004, Metal
-"Lemuria" 2004, Metal
-"Atlantis Lucid Dreaming [compilation]" 2005, Gothic
-"Gothic Kabbalah" 2007, Metal
-"Live Gothic [live]" 2008, Gothic
-"The Miskolc Experience [live]" 2009, Metal
-"Sitra Ahra" 2010, Metal
-"Les Fleurs Du Mal" 2012, Metal
+Original Sweden Epic Metal
+
+## Дискография
+
+### "Beyond the Darkest Veils of Inner Wickedness [demo]" 1989, Death Metal
+
+
+
+### "Paroxysmal Holocaust [demo]" 1989, Death Metal
+
+
+
+### "Time Shall Tell [EP]" 1990, Death Metal
+
+
+
+### "Of Darkness..." 1991, Death Metal
+
+1. The Return
+2. Asphyxiate With Fear
+3. Morbid Reality
+4. Megalomaniac
+5. A Suburb To Hell
+6. Genocidal Raids
+7. Time Shall Tell
+8. Dark Eternity
+
+ Peter Hansson - Lead Guitar & Rhythm Guitar
+ Cristofer Johnsson - Vocals & Rhythm Guitar
+ Oskar Forss - Drums
+ Eric Gustafsson - Bass
+
+Produced By Thomas Skogsberg & THERION.
+Engineered By Thomas Skogsberg.
+Recorded & Mixed At Sunlight Studio,
+Stockholm ,Aug.- Sept. 1990.
+
+(p) 1991 PEACEVILLE Records
+(c) 1991 DEAF Productions
+
+### "Beyond Sanctorum" 1992, Death Metal
+
+1.  Future Consciousness
+2.  Pandemonic Outbreak
+3.  Cthulhu
+4.  Symphony Of The Dead
+5.  Beyond Sanctorum
+6.  Enter The Depths Of Eternal Darkness
+7.  Illusions Of Life
+8.  The Way
+9.  Paths
+10.Tyrants Of The Damned
+
+ Peter Hansson - Guitars & Bass
+ Cristofer Johnsson - Vocals,Guitars & Bass
+ Oskar Forss - Drums
+
+All Songs By C.Johnsson / P.Hansson.
+Produced By C.Johnsson / P.Hansson & Rex.
+Recorded At The Montezuma Recordings.
+
+(p)&(c) 1992 ACTIVE Records
+
+### "Symphony Masses Ho Drakon Ho Megas" 1993, Death Doom
+
+1. Baal Reginon
+2. Dark Princess Naamah
+3. A Black Rose
+4. Symphony Drakonis Inferni
+5. Dawn Of Perishness
+6. The Eye Of Eclipse
+7. The Ritual Dance Of The Yezidas
+8. Powerdance
+9. Procreation Of Eternity
+10.Ho Drakon Ho Megas
+ Act 1: The Dragon Throne
+ Act 2: Fire & Ecstacy
+
+ Cristofer Johnsson - Vocals,Guitar,Keyboard
+ Magnus Barthelson - Guitar
+ Andreas Wallan Wahl - Bass
+ Piotr Wawrzeniuk - Drums
+
+Produced By THERION & Rex Gisslen.
+Engineered By Rex Gisslen.
+Recorded & Mixed At Montezuma Studio,
+December `92 - January `93.
+
+(p)&(c) 1993 MEGAROCK Records
+
+### "Lepaca Kliffoth" 1995, Death Doom
+
+1. The Wings Of Hydra
+2. Melez
+3. Arrival Of The Darkest Queen
+4. The Beauty In Black
+5. Riders Of Theli
+6. Black
+7. Darkness Eve
+8. Sorrows Of The Moon *
+9. Let The New Day Begin
+10.Lepaca Kliffoth
+11.Evocation Of Vovin
+
+ Christofer Johnsson - Guitar,Vocals & Keyboards
+ Piotr Wawrzeniuk - Drums
+ Fredrik Isaksson - Bass
+ Hans Groning - Bass Baryton Vocals On Songs 4,11
+ Claudia Maria Mokri - Sopran Vocals On Songs 4,6,11
+ Jan - Additional Vocals (Chorus Parts On Songs 1,8)
+ Harris Johns - Lead Guitar (First Part Of Solo On 4)
+
+All Songs By THERION Except * By CELTIC FROST.
+Recorded In Music Lab,Berlin 1994.
+Engineered By Harris Johns & Simon.
+Mixed By Harris Johns Except 7 Which Was Mixed By Simon.
+Produced By Christofer Johnsson.
+
+(p)&(c) 1995 NUCLEAR BLAST Records
+
+### "The Beauty in Black [single]" 1995, Death Doom
+
+
+
+### "Theli" 1996, Gothic
+
+1. Preludium
+2. To Mega Therion
+3. Cults Of The Shadow
+4. In The Desert Of Set
+5. Interludium
+6. Nightside Of Eden
+7. Opus Eclipse
+8. Invocation Of Naamah
+9.The Siren Of The Woods
+10.Grand Finale / Postludium
+
+Christofer Johnsson - Guitars, Vocals & Keyboards
+Piotr Wawrzeniuk - Drums, Vocals
+Lars Rosenberg - Bass
+Jonas Mellberg - Guitar, A.Guitar, Keyboards
+
+Dan Swano - Vocals
+Axel Patz - Solo Bass Baryton 
+Anja Krenz - Solo Soprano
+Jan Peter Genkel - Grand Piano, Additional Keyboards & Programming
+Gottfried Koch - Additional Keyboards & Programming
+
+The orchestration on this album was made by The Barmbek Symphony Orchestra.
+
+All Songs By THERION.
+Produced By Jan Peter Genkel, G.Koch & THERION.
+Mixed By Jan Peter Genkel.
+Recorded January - March 1996 At Impuls Studio, Hamburg.
+Mastered At Central Sound Studio, Hamburg.
+
+(p)&(c) 1996 NUCLEAR BLAST Records
+
+### "Siren of the Woods" 1996, Gothic
+
+1. The Siren Of The Woods (Single Version)
+2. Cults Of The Shadow (Edited Version)
+3. Babylon
+
+Christofer Johnsson - Guitars, Vocals & Keyboards
+Piotr Wawrzeniuk - Drums, Vocals
+Lars Rosenberg - Bass
+Jonas Mellberg - Guitar, A.Guitar, Keyboards
+
+Dan Swano - Vocals
+Axel Patz - Solo Bass Baryton 
+Anja Krenz - Solo Soprano
+Jan Peter Genkel - Grand Piano, Additional Keyboards & Programming
+Gottfried Koch - Additional Keyboards & Programming
+
+The orchestration on this album was made by The Barmbek Symphony Orchestra.
+
+All Songs By THERION.
+Produced By Jan Peter Genkel, G.Koch & THERION.
+Mixed By Jan Peter Genkel.
+Recorded January - March 1996 At Impuls Studio, Hamburg.
+Mastered At Central Sound Studio, Hamburg.
+
+(p)&(c) 1996 NUCLEAR BLAST Records
+
+### "A'Arab Zaraq Lucid Dreaming" 1997, Gothic
+
+Cover versions:
+1. In Rememrance.
+2. Black Faery.
+3. Fly To The Rainbow.
+4. Children Of The Damned.
+5. Under Jolly Roger.
+6. Symphony Of The Dead.
+7. Here Comes The Tears.
+
+Therion versions:
+8. Enter Transcendental Sleep.
+9. The Quiet Desert.
+10. Down The Qliphothic Tunnel.
+11. Up To Netzach / Floating Back.
+
+Original soundtrack from "Golden Embrace" Art movie 1997:
+12. The Fall Into Eclipse.
+13. Enter Transcendental Sleep.
+14. The Gates To A'arab Zaraq Are Open.
+15. The Quiet Desert.
+16. Down The Qliphothic Tunnel.
+17. Up To Netzach.
+18. Floating Back.
+
+(p)&© 1997 NUCLEAR BLAST RECORDS
+
+### "Vovin" 1998, Gothic
+
+1. The Rise of Sodom and Gomorrah.
+2. Birth of Venus Illegitima.
+3. Wine of Aluqah.
+4. Clavicula Nox.
+5. The Wild Hunt.
+6. Eye of Shiva.
+7. Black Sun.
+
+Draconian trilogy:
+8. The Opening.
+9. Morning Star.
+10. Black Diamond.
+11. Raven of Dispersion.
+
+(p)&(c) 1998 NUCLEAR BLAST RECORDS
+
+Recorded, mixed and mastered at Woodhouse studios, Dec '97 - Jan '98. Engineered by Mattias Klinkman, produced, 
+mixed and mastered by Sigfried Bemm. Co-produced by Christofer Johnsson. Music written by Christofer Johnsson, 
+lyrics written by Thomas Karlsson, classic orchestra and choir arrangements written and arranged by Christofer 
+Johnsson with additional arrangements by Jan Kazda. Orchestra and choir conducted by Jan Kazda.
+
+Christofer Johnsson (guitar, keyboard), Tommy Ericsson (guitar), Waldemar Sorychta (additional guitars), Siggi Bemm 
+(additional guitars), Jan Kazda (bass), Wolf Simons (drums), Lorenz Aspen (hammond organ on "Draconian trilogy"), 
+Ralf Scheepers (lead vocals on "The Wild Hunt"), Martina Hornbacher (solo and duet alto and soprano vocals), Sarah 
+Jizebel Diva (solo, duet, alto and soprano vocals), Eileen Kupper choir (soprano vocals), Angelika Martzchoir (soprano 
+vocals), Dorothee Fischer (choir alto vocals), Anne Tributh (choir alto vocals), Gregor Dippel (choir tenor vocals), Max 
+Cilotek (chooir tenor vocals), Javier Zapater (choir bass vocals), Jochen Bauer (choir bass vocals).
+Orchestration by The Indigo orchrstra: Petra Stalz (violin), Heike Haushalter (violin), Monika Malek (viola), Gesa 
+Hangen (cello), Alois Kott (doublebass/kontrabass).
+
+### "Eye of Shiva [single]" 1998, Gothic
+
+
+
+### "Crowning of Atlantis" 1999, Gothic
+
+1. The Crowning Of Atlantis.
+2. Mark Of Cain.
+3. Clavicula Nox.
+4. Crazy Nights.
+5. From The Dionysian Days.
+6. Thor. 
+7. Seawinds.
+8. To Mega Therion (live).
+9. The Wings Of The Hydra (live).
+10. Black Sun (live).
+
+(c)&(p) 1999 NUCLEAR BLAST
+
+CHRISTOFER JOHNSSON – lead and rhythm guitar, keyboards
+TOMMI ERIKSSON – lead and rhythm guitar
+JAN KAZDA – bass, acoustic guitar
+WOLF SIMON – drums (except "The Crowning Of Atlantis")
+SAMI KARPPINEN – drums on "The Crowning Of Atlantis"
+WALDEMAR SORYCHTA – additional guitars solo on "The Crowning Of Atlantis", "Seawinds" and second solo on 
+"Crazy Nights"
+
+Ralf Scheepers – vocals on "Mark Of Cain" and "Thor"
+Eileen Kupper – vocals on "Mark Of Cain"
+Angelika Marz - vocals on "Mark Of Cain"
+Cossima Russo - vocals on "Mark Of Cain"
+Martina Hornbacher – vocals on "Seawinds"
+Sarah Jezibel Deva – vocals on "Seawinds" and "ending" vocal line on "Clavicula Nox"
+Johan Bauer – solo bass vocals on "Clavicula Nox"
+Jorg Brauer – solo tenor vocals on "Clavicula Nox"
+ 
+Choir vocals by:
+Eileen Kupper – soprano
+Angelika Marz – soprano
+Anne Tributh – alto
+Jorg Brauer – bass
+Johan Bauer – bass
+
+Orchestration by The Indigo orchestra:
+Heike Haushalter – violin
+Petra Staltz – violin
+Monika Maltek – viola
+Gesa Hangen – cello
+
+All choir/vocal melodies and classic orchestra arrangemens written by Christofer Johnsson with additional 
+arrangements by Jan Kazda. Choir and orchestra were conducted by Jan Kazda.
+
+Live-line on the Vovin-98 tour:
+Cristofer Johnsson – guitar, vocals
+Tommi Eriksson – guitar
+Kim Blomkvuist – bass
+Sami Karppinen – drums
+Sarah Jezibel Deva – vocals
+Martina Hornbacher – vocals
+Cinthia Acosta Vera – vocals
+
+Track 1-7 was recorded and mixed at Woodhouse Studio (hagen, Germany). Engineered by Mathias Klinkmann and 
+produced by Siggi Bemm.Track 8-10 was recorded on the 1998 Vovin tour and mixed by Christofer Johnsson at Dark 
+Age Studio (Stockholm, Sweden).
+Track 1 recorded and mixed feb. '99. Track 2 mixed feb. '99, drums/bass recorded dec. '97/jan. 98, guitar, vocals 
+recorded feb.  '99. Track 3 drums/bass/guitar/strings recorded dec. '97/jan. 98, choir solo, bass/solo tenor, additional 
+strings, piano recorded and mixed feb. '99. Track 4, 5, 7 recorded and mixed dec. '97/jan. 98,. Track 6 recorded dec. 
+'97/jan. 98, mixed feb. '99.
+All songs mastered at Woodhouse Mastering Studio.
+
+### "Deggial" 2000, Gothic
+
+1. Seven Secrets Of The Sphinx.
+2. Eternal Return.
+3. Enter Vril-Ya.
+4. Ship Of Luna.
+5. The Invincible.
+6. Deggial.
+7. Emerald Crown.
+8. The Flight Of The Lord Of Flies.
+9. Flesh Of The Gods.
+10. Via Nocturna.
+Part 1: The Path.
+Part 2: Hexentanz.
+11. O Fortuna.
+
+(c)&(p) 2000 NUCLEAR BLAST
+
+CHRISTOFER JOHNSSON – guitar, keyboard
+KRISTIAN NIEMANN – lead guitar
+JOHAN NIEMANN – bass guitar
+SAMI KARPPINEN – drums
+
+Hansi Kursch – lead vocals on 8
+Jan Kazda – acoustic guitar
+Waldemar Sorychta – acoustic guitar on 11
+Alexander Schimmeroth – piano
+
+The different world orchestra / choir:
+Eileen Kupper – soprano (choir, solo)
+Angelika Marz – soprano (choir)
+Dorothee Fischer – alto (choir)
+Anne Tributh – alto (choir)
+Georg Hansen – tenor (choir, solo)
+Miguel Rosales – tenor (choir)
+Jorg Brauker – bass (choir, solo)
+Javier Zapater – bass (choir)
+
+Heike Haushalter – 1 violin
+Petra Stalz – 2 violin
+Monika Malek – viola
+Gesa Hangen – cello
+Konstantin Wienstroer – doublebass (kontrabass)
+Annette Gadatsch –flute
+Stefanie Dietz – oboe
+John Ellis – french horn
+Volker Goetz – flugelhorn, trumpet
+Dietrich Geese – tuba, sousaphon, trumpet
+Daniel Hacker – orchestral drums
+
+Recorded, mixed and mastered during September, October and November 1999 at Woodhouse Studio, Germany. 
+Produced, recorded and mastered by Sigfried Bemm, Jr. Mixed by Dan Diamond. Pre- and co-produced by Christofer 
+Johnsson. Engineered by Matthias Klinkmann. All music written by Christofer Johnsson except 11. All lyrics written by 
+Thomas Karlsson except 11. "O Fortuna" written by Carl Orff. Metal and rock arrangements by Christofer Johnsson 
+and Therion. Classic arrangements by Christofer Johnsson with additional arrangements by Jan Kazda.
+
+### "Secret of the Runes" 2001, Gothic
+
+Ginnungagap (Prologue)
+Midgard
+Asgard
+Jotunheim
+Schwarzalbenheim (Svartalfheim)
+Ljusalfheim
+Muspelheim
+Nifelheim
+Vanaheim
+Helheim
+Secret of The Runes (Epilogue)
+Crying days (remixed)
+Summer night city (remixed)
+
+
+
+
+
+Christofer Johnsson - guitars
+Kristian Niemann - guitars
+Sami Karpinen - drums
+Johann Niemann - bass
+
+
+
+When recording and mixing this album, building the Modem Art recording studio,
+gathering the right classic musicians/singers (and taking care of many of the other
+things needed to be done during the creation process of this album), tnere were a
+few people that helped us out in various ways and we would hereby like to salute
+the following (nople for their great help:
+
+David, Leffe, Thompa och Jorgen from Estrad Musik, Christian Ratsch, Lars Skold,
+Erik Johnsson, Jarmo Virtanen, Anna Artursson, Anna Rodell, Erik Rodell, Petri
+Keino, Holger and Direct, Nuclear Blast Records and Mikko Karmila.
+
+Produced by C.Johnsson and THERION.
+Engineered by S.Karppninen
+
+Assistant Engineering by K. Kiemann and C. Johnsson.
+Mixed by Mikko Karmila.
+
+Mastered by Mika Jussila and Mikko Karmila.
+Recorded during tne spring 2001 at
+MODERN ART, Stockholm, Sweden.
+Mixed and mastered in June-July at FINNVOX, Helsinki, Finland
+
+All songs on Secret of the runes were written by Chrislofer Johnsson/Thomas
+Karlsson, except "Ginnungagap" which was written by Kristian Niemann/ChristoferJohnsson/Thomas Karlsson.
+Alt classic and opera arrangemants by C.Johnsson.
+German translation of "Schwarzalbenheim" by Christian Ricch.
+
+Cover S Layout by Thomas Ewerhard
+
+### "Bells of Doom [compilation]" 2001, Gothic
+
+
+
+### "Live in Midgard" 2002, Gothic
+
+Disc 1:
+1. Ginnungagap
+2. Invocation Of Naamah
+3. Birth Of Venus Illegitima
+4. Enter Vril-Ya
+5. Riders Of Theli
+6. Symphony Of The Dead
+7. A Black Rose
+8. The Return
+9. Baal Reginon
+10. Flesh Of The Gods
+11. Seawinds
+12. Schwarzalbenheim
+13. In The Desert Of Set
+
+Disc 2:
+1. The Wings Of The Hydra
+2. Asgard
+3. The Secret Of The Runes
+4. The Rise Of Sodom And Gomorrah
+5. Summernight City
+6. Beauty In Black
+7. Seven Secrets of the Sphynx
+8. The Wine Of Aluqah
+9. The Raven Of Dispersion
+10. To Mega Therion
+11. Cults Of The Shadow
+
+Christopher Johnsson – lead and rhythm guitars, lead vocals
+Kristian Niemann – lead and rhythm guitars
+Johan Niemann – bass
+Sami Karppinen – drums
+
+Sarah Jezebel Deva – soprano + lead vocals
+Maria Ottoson – soprano
+Johanna Marlov – alto
+Anders Engberg – tenor + lead vocals
+Petri Heino – baritone
+Risto Hamalainen – baritone
+
+### "Sirius B" 2004, Metal
+
+01. Blood of Kingu
+02. Son of the Sun
+03. The Khlysti Evangelist
+04. Dark Venus Persephone
+05. Kali Yuga Part 1
+06. Kali Yuga Part 2
+07. The Wonderous World of Punt
+08. Melek Taus
+09. Call of Dagon
+10. Sirius B
+11. The Voyage of Gurdjieff
+
+### "Lemuria" 2004, Metal
+
+01. Typhon
+02. Uthark Runa
+03. Three Ships of Berik, Part 1: Calling to Arms and Fighting the Battle
+04. Three Ships of Berik, Part 2: Victory! 
+05. Lemuria
+06. Quetzalcoatl
+07. The Dreams of Swedenborg
+08. An Arrow From the Sun
+09. Abraxas
+10. Feuer OvertЁ№re/Prometheus Entfesselt
+
+### "Atlantis Lucid Dreaming [compilation]" 2005, Gothic
+
+
+
+### "Gothic Kabbalah" 2007, Metal
+
+CD1
+1. Der Mitternachtslцwe 
+2. The Gothic Kabbala
+3. The Perrennial Sophia 
+4. Wisdom and the Cage 
+5. Son of the Staves of Time 
+6. Tuna 1613 
+7. Trul 
+8. Close up the Streams 
+CD2
+1. Wand of Abaris 
+2. Three Treasures 
+3. The Path to Arcady 
+4. TOF - The Trinity 
+5. Chain of Minerva 
+6. The Falling Stone
+7. Adulruna Rediviva
+
+### "Live Gothic [live]" 2008, Gothic
+
+1. Der Mitternachtlцwe 06:19
+2. Scharzalbenheim 03:56
+3. The Blood Of Kingu 05:57
+4. The Falling Stone 04:08
+5. An Arrow From The Sun 05:47
+6. Deggial 05:03
+7. Wine Of Aluqah 05:12
+8. The Perennial Sophia 04:36
+9. Son Of The Sun 05:42
+10. Son Of The Staves Of Time 05:07 
+11. Birth Of Venus Illegitima 05:17 
+12. Tuna 1613 04:18
+13. Drum Solo 04:05
+14. Muspelheim 02:47
+Disc 2 
+1. The RIse Of Sodom And Gomorrah 06:47
+2. Ginnungagap 05:49 
+3. Grand Finale 04:18  
+4. Lemuria 04:16 
+5. The Wand Of Abaris 05:49
+6. Nightside Of Eden 07:43
+7. To Mega Therion 10:16
+8. Thor (The Powerhead) (Manowar Cover) 05:48 
+
+### "The Miskolc Experience [live]" 2009, Metal
+
+1. Clavicula Nox 10:34
+2. Symphony No. 9 (Excerpt) (Dvorak) 02:04  
+3. Vedi! Le Fosche Notturne Spotigle (from "Il Trovatore") (Verdi) 02:45 
+4. Dies Irae (from "Reqiuem") (Mozart) 01:59  
+5. Symphony No. 3 (Excerpt) (Saint-Saens) 02:14  
+6. Notung! Notung! Niedliches Schwert! (from "The Ring") (Wagner) 07:10
+7. Overture (Excerpt) (from "Rienzi") (Wagner) 03:12  
+8. Der Tag Ist Da, Pt. 2 (from "Rienzi") (Wagner) 07:17 
+9. Herbei! Herbei!, Pt. 1 (from "Rienzi") (Wagner) 01:47  
+
+1. Blood of Kingu 05:53 
+2. Sirius B 03:51
+3. Lemuria 04:22
+4. Eternal Return 07:21 
+5. Draconian Trilogy 08:37 
+6. Schwarzalbenheim (Svartalfheim) (Gold Der Unterwelt) 05:28 
+7. Via Nocturna 09:43
+8. The Rise of Sodom and Gomorrah 06:54
+9. Grand Finale (Postludium) 04:23 
+
+### "Sitra Ahra" 2010, Metal
+
+1. Introduction/Sitra Ahra 05:24 
+2. Kings of Edom 08:51  
+3. Unguentum Sabbati 05:10  
+4. Land of Canaan 10:32  
+5. Hellequin 05:18  
+6. 2012 04:16  
+7. Cъ Chulainn 04:16  
+8. Kali Yuga, Pt. 3 03:41  
+9. The Shells are Open 03:44  
+10. Din 02:37  
+11. After the Inquisition: Children of the Stone 07:22 
+
+
+Line-up:
+Christofer Johnsson - Guitars, Keyboards
+Snowy Shaw - Vocals
+Thomas Vikstrцm - Vocals
+Lori Lewis - Vocals
+Christian Vidal - Guitars
+Nalle "Grizzly" Pahlsson - Bass
+Johan Koleberg - Drums
+
+Recorded between 2009 and 2010 in the Polar Studio, Stockholm. Produced by Christofer Johnsson.
+Cover art by Thomas Ewerhard
+
+### "Les Fleurs Du Mal" 2012, Metal
+
+01. Poupйe De Cire, Poupйe The Son 02:51 
+02. Une Fleur Dans Le Coeur 03:03 
+03. Initials B.B. 03:44 
+04. Mon Amour, Mon Ami 04:35 
+05. Polichinelle 02:28 
+06. La Maritza 03:54 
+07. Soeur Angelique 03:05 
+08. Dis-Moi Poupйe 03:24 
+09. Lilith 02:30 
+10. En Alabama 02:39 
+11. Wahala Manitou 02:34 
+12. Je N'al Besoin Que De Tendresse 02:14 
+13. La Licorne D'or 02:45 
+14. J'al Le Mal De Toi 02:51 
+15. Poupйe De Cire, Poupйe The Son 02:31 
+16. Les Sucettes 02:40
+
+
+"Les Fleurs du mal" (a reference to the famous french poet Charles Baudelaire) is a cover album of 60's/70's french pop songs.
+ 
+Recorded at Adulruna Studio & Decibel Studios. Mixed at Toytown Studios.
+ Cover art by Йdouard-Henri Avril (1849–1928).
+ 
+The album was financed by Christofer Johnsson and released by End of the Light (Cat. # EOL022).
+ 
+It will only be available from the band's merch stall on tour and the Therion online store. 
+
+On the edition sold at the concerts of the "Flowers of Evil" tour there is a bonus track:
+ 
+16. Les sucettes (France Gall cover) (02:40) 
+
 
 ## Отношения с другими группами
 

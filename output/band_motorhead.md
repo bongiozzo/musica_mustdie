@@ -1,35 +1,650 @@
 # Motorhead
 
-Дискография
-"Motorhead" 1977, Heavy Metal
-"Overkill" 1978, Heavy Metal
-"Bomber" 1979, Heavy Metal
-"Ace Of Spades" 1980, Heavy Metal
-"No Sleep 'Til Hammersmith" 1981, Heavy Metal
-"Iron Fist" 1982, Heavy Metal
-"Another Perfect Day" 1983, Heavy Metal
-"Orgasmatron" 1986, Heavy Metal
-"Rock And Roll" 1988, Heavy Metal
-"1916" 1991, Heavy Metal
-"March Or Die" 1992, Heavy Metal
-"Bastards" 1993, Heavy Metal
-"Sacrifice" 1995, Heavy Metal
-"Overnight Sensation" 1996, Heavy Metal
-"On Parole" 1997, Heavy Metal
-"Snake Bite Love" 1998, Heavy Metal
-"Jailbait" 1999, Heavy Metal
-"We Are Motorhead" 2000, Heavy Metal
-"25 & alive / Boneshaker" 2001, Heavy Metal
-"Hammered" 2002, Heavy Metal
-"Inferno" 2004, Heavy Metal
-"Stage fright (2DVD)" 2005, Heavy Metal
-"Kiss Of Death" 2006, Heavy Metal
-"Better Motorhead Than Dead - Live At Hammersmith (2 CD)" 2007, Heavy Metal
-"Motorizer" 2008, Heavy Metal
-"The World Is Yours" 2010, Heavy Metal
-"The World Is Ours - Vol. 1 (Everywhere Further Than Everyplace Else)" 2011, Heavy Metal
-"Aftershock" 2013, Heavy Metal
-"Bad Magic" 2015, Heavy Metal
+
+
+## Дискография
+
+### "Motorhead" 1977, Heavy Metal
+
+   1.   Motorhead (Kilmister) - 3:10 
+   2.   Vibrator (Brown/Wallace) - 3:36 
+   3.   Lost Johnny (Farren/Lemmy) - 4:13 
+   4.   Iron Horse/Born to Lose (Brown/Lawrence/Taylor) - 5:19 
+   5.   White Line Fever (Lemmy) - 2:37 
+   6.   Keep Us on the Road (Farren/Motorhead) - 5:55 
+   7.   The Watcher (Kilmister) - 4:27 
+   8.   The Train Kept A Rollin' (Boothe/Kay) - 3:16 
+   9.   City Kids (Sanderson/Wallis) - 3:24 
+   10.   Beer Drinkers & Hell Raisers [*] (Beard/Gibbons/Hill) - 3:25 
+   11.   On Parole [*] (Wallis) - 5:57 
+   12.   Instro [*] (Clarke/Kilmister/Taylor) - 2:27 
+   13.   I'm Your Witchdoctor [*] (Mayall) - 2:57 
+
+
+
+John "Speedy" Keen  -  Producer 
+Fast Eddie Clarke  -  Guitar 
+Lucas Fox  -  Drums 
+Lemmy  -  Bass, Vocals 
+Phil Taylor  -  Drums 
+Larry Wallis  -  Guitar 
+Phil Smee  -  Package Design 
+Ray Staff  -  Post Production 
+Joe Petagno  -  Design 
+Mike Gitter  -  Liner Notes 
+
+
+### "Overkill" 1978, Heavy Metal
+
+  1.   Overkill (Clarke/Lemmy/Taylor) 
+   2.   Stay Clean (Clarke/Lemmy/Taylor) 
+   3.   (I Won't) Pay Your Price (Clarke/Kilmister/Taylor) 
+   4.   I'll Be Your Sister (Clarke/Lemmy/Taylor) 
+   5.   Capricorn (Clarke/Kilmister/Taylor) 
+   6.   No Class (Clarke/Lemmy/Taylor) 
+   7.   Damage Case (Clarke/Lemmy/Taylor) 
+   8.   Tear Ya Down (Clarke/Lemmy/Taylor) 
+   9.   Metropolis (Clarke/Lemmy/Taylor) 
+   10.   Limb from Limb (Clarke/Lemmy/Taylor) 
+   11.   Too Late Too Late [*] (Clarke/Kilmister/Taylor) 
+   12.   Like a Nightmare [*] (Clarke/Lemmy/Taylor) 
+   13.   Louie, Louie [*] (Berry) 
+   14.   Tear Ya Down [*] (Clarke/Kilmister/Taylor) 
+   15.   Louie, Louie [*] (Berry) 
+
+
+Jimmy Miller  -  Producer, Remixing 
+Fast Eddie Clarke  -  Guitar 
+Ashley Howe  -  Engineer 
+Lemmy  -  Bass, Guitar, Vocals 
+Neil Richmond  -  Producer, Engineer 
+Phil Taylor  -  Drums 
+Trevor Hallesy  -  Engineer 
+(Ex) Cat Heads     
+Steffan Chirazi  -  Liner Notes 
+Curtis Evans  -  Reissue Design 
+Mick Stevenson  -  Photography 
+
+
+### "Bomber" 1979, Heavy Metal
+
+  1.   Dead Men Tell No Tales (Clarke/Lemmy/Taylor) 
+   2.   Lawman (Clarke/Lemmy/Taylor) 
+   3.   Sweet Revenge (Clarke/Kilmister/Taylor) 
+   4.   Sharpshooter (Clarke/Kilmister/Taylor) 
+   5.   Poison (Clarke/Lemmy/Taylor) 
+   6.   Stone Dead Forever (Clarke/Kilmister/Taylor) 
+   7.   All the Aces (Clarke/Lemmy/Taylor) 
+   8.   Step Down (Clarke/Lemmy/Taylor) 
+   9.   Talking Head (Clarke/Kilmister/Taylor) 
+   10.   Bomber (Clarke/Lemmy/Taylor) 
+   11.   Over the Top [*] (Clarke/Lemmy/Taylor) 
+   12.   Leaving Here [live/*] (Dozier/Holland/Holland) 
+   13.   Stone Dead Forever [live/*] (Clarke/Kilmister/Taylor) 
+   14.   Dead Men Tell No Tales [live/*] (Clarke/Lemmy/Taylor) 
+   15.   Too Late Too Late [live/*] (Clarke/Kilmister/Taylor) 
+
+
+
+Jimmy Miller  -  Producer 
+Fast Eddie Clarke  -  Guitar, Vocals 
+Lemmy  -  Bass, Vocals 
+Phil Taylor  -  Percussion, Drums, Human Beatbox 
+Trevor Hallesy  -  Engineer 
+Mickey Stevenson  -  Photography 
+Steffan Chirazi  -  Liner Notes 
+Curtis Evans  -  Design, Reissue Design 
+Mick Stevenson  -  Photography 
+
+
+### "Ace Of Spades" 1980, Heavy Metal
+
+   1.   Ace of Spades (Clarke/Lemmy/Lemmy/Lemmy/Taylor) - 2:49 
+   2.   Love Me Like a Reptile (Clarke/Kilmister/Lemmy/Taylor) - 3:23 
+   3.   Shoot You in the Back (Clarke/Kilmister/Lemmy/Taylor) - 2:39 
+   4.   Live to Win (Clarke/Kilmister/Lemmy/Taylor) - 3:37 
+   5.   Fast and Loose (Clarke/Kilmister/Lemmy/Taylor) - 3:23 
+   6.   (We Are) The Road Crew (Clarke/Kilmister/Lemmy/Taylor) - 3:12 
+   7.   Fire, Fire (Clarke/Kilmister/Lemmy/Taylor) - 2:44 
+   8.   Jailbait (Clarke/Kilmister/Lemmy/Taylor) - 3:33 
+   9.   Dance (Clarke/Kilmister/Lemmy/Taylor) - 2:38 
+   10.   Bite the Bullet (Clarke/Kilmister/Lemmy/Taylor) - 1:38 
+   11.   The Chase Is Better Than the Catch (Clarke/Kilmister/Lemmy/Taylor) - 4:18 
+   12.   The Hammer (Clarke/Kilmister/Lemmy/Taylor) - 2:48 
+   13.   Dirty Love* [*] (Clarke/Kilmister/Lemmy/Taylor) - 2:56 
+   14.   Please Don't Touch* [*] (Clarke/Lemmy/Robinson/Taylor) - 2:49 
+   15.   Emergency* [*] (Clarke/Dufort/Johnson/Lemmy/McAuliffe/Taylor/Williams) - 3:00 
+
+
+Fast Eddie Clarke  -  Guitar 
+Lemmy  -  Bass, Vocals 
+Vic Maile  -  Producer 
+Phil Taylor  -  Drums 
+(Ex) Cat Heads  -  Performer 
+Steffan Chirazi  -  Liner Notes 
+Martin Poole  -  Design 
+Curtis Evans  -  Reissue Design 
+Alan Ballard  -  Photography, Sleeve Photo 
+
+
+
+### "No Sleep 'Til Hammersmith" 1981, Heavy Metal
+
+1. ACE OF SPADES
+2. STAY CLEAN
+3. METROPOLIS
+4. HAMMER
+5. IRON HORSE
+6. NO CLASS
+7. OVERKILL
+8. WE ARE THE ROAD CREW
+9. CAPRICORN
+10. BOMBER
+11. MOTORHEAD
+
+### "Iron Fist" 1982, Heavy Metal
+
+ 
+   1.   Iron Fist (Clarke/Lemmy/Taylor) - 2:53 
+   2.   Heart of Stone (Clarke/Lemmy/Taylor) - 3:02 
+   3.   I'm the Doctor (Clarke/Lemmy/Taylor) - 2:39 
+   4.   Go to Hell (Clarke/Lemmy/Taylor) - 3:07 
+   5.   Loser (Clarke/Lemmy/Taylor) - 3:51 
+   6.   Sex and Outrage (Clarke/Lemmy/Taylor) - 2:08 
+   7.   America (Clarke/Lemmy/Taylor) - 3:36 
+   8.   Shut It Down (Clarke/Lemmy/Taylor) - 2:38 
+   9.   Speed Freak (Clarke/Lemmy/Taylor) - 3:20 
+   10.   (Don't Let 'Em) Grind Ya Down (Clarke/Lemmy/Taylor) - 3:06 
+   11.   (Don't Need) Religion (Clarke/Lemmy/Taylor) - 2:40 
+   12.   Bang to Rights (Clarke/Lemmy/Taylor) - 2:39 
+   13.   Remember Me, I'm Gone [*] (Clarke/Lemmy/Taylor) - 2:16 
+   14.   (Don't Let 'Em) Grind Ya Down [*] (Clarke/Lemmy/Taylor) 
+   15.   Lemmy Goes to the Pub [*] (Clarke/Lemmy/Taylor) 
+   16.   Same Old Song, I'm Gone [*] (Clarke/Lemmy/Taylor) 
+   17.   Young and Crazy [*] (Clarke/Lemmy/Taylor) 
+
+
+Motцrhead  -  Producer 
+Fast Eddie Clarke  -  Guitar 
+Charles Harrowell     
+Lemmy  -  Bass, Guitar, Vocals 
+Phil Taylor  -  Drums 
+Steffan Chirazi  -  Liner Notes 
+John Strednansky  -  Liner Notes 
+Martin Poole  -  Artwork, Photography 
+Curtis Evans  -  Reissue Design 
+Allan Ballard  -  Artwork, Photography 
+Mick Stevenson  -  Photography 
+Evil Red Neck  -  Producer 
+
+
+### "Another Perfect Day" 1983, Heavy Metal
+
+  1.   Back at the Funny Farm - 4:14 
+   2.   Shine - 3:11 
+   3.   Dancing on Your Grave - 4:29 
+   4.   Rock It - 3:55 
+   5.   One Track Mind (Lemmy/Taylor) - 5:55 
+   6.   Another Perfect Day - 5:29 
+   7.   Marching off to War (Lemmy/Taylor) - 4:11 
+   8.   I Got Mine - 5:24 
+   9.   Tales of Glory (Lemmy/Taylor [2]) - 2:56 
+   10.   Die You Bastard - 4:25 
+   11.   Turn You Round Again (Lemmy/Taylor [2]) - 3:57 
+   12.   Hoochie Coochie Man (Dixon) - 6:31 
+   13.   (Don't Need) Religion - 2:54 
+
+
+Lemmy  -  Bass, Vocals 
+Tony Platt  -  Producer 
+
+
+### "Orgasmatron" 1986, Heavy Metal
+
+1.  Deaf Forever
+2.  Nothing Up My Sleeve
+3.  Ain't My Crime
+4.  Claw
+5.  Mean Machine
+6.  Built For Speed
+7.  Ridin' With The Driver
+8.  Dr. Rock
+9.  Orgasmatron.
+
+Bill Laswell  -  Producer, Engineer 
+Jason Corsaro  -  Producer, Engineer 
+Steffan Chirazi  -  Liner Notes 
+Joe Petagno  -  Paintings 
+Alan Ballard  -  Photography 
+Nick Marchant  -  Design 
+
+
+(P)c 1986
+
+### "Rock And Roll" 1988, Heavy Metal
+
+ 
+   1.   Rock & Roll (Burston/Campbell/Lemmy/Taylor) - 3:49 
+   2.   Eat the Rich (Burston/Campbell/Lemmy/Taylor) - 4:34 
+   3.   Blackheart (Burston/Campbell/Lemmy/Taylor) - 4:03 
+   4.   Stone Deaf in the USA (Burston/Campbell/Lemmy/Taylor) - 3:40 
+   5.   - 1:02 
+   6.   The Wolf (Burston/Campbell/Lemmy/Taylor) - 3:28 
+   7.   Traitor (Burston/Campbell/Lemmy/Taylor) - 3:17 
+   8.   Dogs (Burston/Campbell/Lemmy/Taylor) - 3:48 
+   9.   All for You (Burston/Campbell/Lemmy/Taylor) - 4:10 
+   10.   Boogeyman (Burston/Campbell/Lemmy/Taylor) - 3:07 
+   11.   Cradle to the Grave [*] (Burston/Campbell/Lemmy/Taylor) - 4:05 
+   12.   Just 'Cos You Got the Power [*] (Burston/Campbell/Lemmy/Taylor) - 7:30 
+
+
+
+Motцrhead  -  Producer 
+Bill Laswell  -  Engineer 
+Jason Corsaro  -  Engineer 
+Lemmy  -  Bass, Guitar, Vocals 
+Arabella Rodriguez  -  Assistant Engineer 
+Phil Taylor  -  Drums 
+Wurzel  -  Guitar, Vocals (bckgr), Slide Guitar 
+Guy Bidmead  -  Producer, Engineer, Remixing 
+Philip Anthony Campbell  -  Guitar, Vocals (bckgr), Slide Guitar 
+Phil Dane  -  Assistant Engineer 
+Hugh Gilmour  -  Reissue Design 
+Roland Herrington  -  Assistant Engineer 
+John F. McGill  -  Design, Layout Design 
+Joe Petagno  -  Artwork 
+Phillip Campbell  -  Guitar, Vocals (bckgr), Slide Guitar 
+Mick Stevenson  -  Photography 
+Alan Chesters  -  Set Design, Stage Design 
+Caroline Ornme  -  Assistant Engineer 
+Chrissie Turville-Petre  -  Set Design, Stage Design 
+Lemmy Kilmister  -  Bass, Guitar, Vocals 
+
+Band Lineup: Lemmy, Wurzel, Phil Campbell, Philthy.
+
+(P)c 1988
+
+### "1916" 1991, Heavy Metal
+
+   1.   One to Sing the Blues (Burston/Campbell/Lemmy/Taylor) 
+   2.   I'm So Bad (Baby I Don't Care) (Burston/Campbell/Lemmy/Taylor) 
+   3.   No Voices in the Sky (Burston/Campbell/Lemmy/Taylor) 
+   4.   Going to Brazil (Burston/Campbell/Lemmy/Taylor) 
+   5.   Nightmare/The Dreamtime (Burston/Campbell/Lemmy/Taylor) 
+   6.   Love Me Forever (Burston/Campbell/Lemmy/Taylor) 
+   7.   Angel City (Lemmy) 
+   8.   Make My Day (Burston/Campbell/Lemmy/Taylor) 
+   9.   R.A.M.O.N.E.S. (Burston/Campbell/Lemmy/Taylor) 
+   10.   Shut You Down (Burston/Campbell/Lemmy/Taylor) 
+   11.   1916 (Lemmy) 
+
+
+Lemmy     
+Casey McMackin  -  Engineer 
+Craig Nelson  -  Artwork 
+Peter Solley  -  Producer, Mixing 
+Ed Stasium  -  Producer 
+Wurzel     
+Toni Hanzon  -  Artwork 
+Steve Hall  -  Mastering 
+
+
+### "March Or Die" 1992, Heavy Metal
+
+   1.   Stand (Burston/Campbell/Lemmy) 
+   2.   Cat Scratch Fever (Nugent) 
+   3.   Bad Religion (Burston/Campbell/Lemmy) 
+   4.   Jack the Ripper (Burston/Campbell/Lemmy) 
+   5.   I Ain't No Nice Guy (Lemmy) 
+   6.   Hellraiser (Lemmy/Osbourne/Wylde) 
+   7.   Asylum Choir (Burston/Campbell/Lemmy) 
+   8.   Too Good to Be True (Burston/Campbell/Lemmy) 
+   9.   You Better Run (Burston/Campbell/Lemmy) 
+   10.   Name in Vain (Burston/Campbell/Lemmy) 
+   11.   March or Die (Lemmy) 
+
+
+Motцrhead     
+Ozzy Osbourne  -  Vocals 
+Dawn Patrol  -  Art Direction 
+Zoom  -  Guitar (Acoustic), Guitar 
+Laurence Ethan  -  Assistant Engineer 
+Tom Fletcher  -  Engineer 
+Lemmy  -  Guitar (Acoustic), Guitar (Bass), Noise, String Arrangements 
+Casey McMackin  -  Engineer 
+Billy Sherwood  -  Producer 
+Slash  -  Guitar 
+Peter Solley  -  Keyboards, Producer, String Arrangements 
+Wurzel  -  Guitar 
+Marlene Rosenberg  -  Photography 
+Mikkey Dee     
+Tim Nitz  -  Assistant Engineer 
+Steve Hall  -  Mastering 
+
+
+### "Bastards" 1993, Heavy Metal
+
+  1.   On Your Feet or on Your Knees (Burston/Campbell/Dee/Kilmister/Lemmy) - 2:34 
+   2.   Burner (Burston/Campbell/Dee/Kilmister/Lemmy) - 2:52 
+   3.   Death or Glory (Burston/Campbell/Dee/Kilmister/Lemmy) - 4:50 
+   4.   I Am the Sword (Burston/Campbell/Dee/Kilmister/Lemmy) - 4:28 
+   5.   Born to Raise Hell (Kilmister/Lemmy) - 4:58 
+   6.   Don't Let Daddy Kiss Me (Kilmister/Lemmy) - 4:05 
+   7.   Bad Woman (Burston/Campbell/Dee/Kilmister/Lemmy) - 3:16 
+   8.   Liar (Burston/Campbell/Dee/Kilmister/Lemmy) - 4:12 
+   9.   Lost in the Ozone (Burston/Campbell/Dee/Kilmister/Lemmy) - 3:27 
+   10.   I'm the Man (Burston/Campbell/Dee/Kilmister) - 3:28 
+   11.   We Bring the Shake (Burston/Campbell/Dee/Kilmister/Lemmy) - 3:48 
+   12.   Devils (Burston/Campbell/Dee/Kilmister/Lemmy) - 6:00 
+   13.   Jumpin' Jack Flash [*] (Jagger/Richards) - 3:20 
+
+
+
+Zoom  -  Guitar (Acoustic), Guitar 
+Mickey Dee  -  Drums 
+The Eagle  -  Technician 
+John Aguto  -  Assistant Engineer 
+Howard Benson  -  Producer, Mixing 
+Ryan Dorn  -  Engineer, Mixing 
+Devin Foutz  -  Assistant Engineer 
+Darrin Mann  -  Assistant Engineer 
+Wurzel  -  Guitar, Guitar (Rhythm) 
+Randy Wine  -  Assistant Engineer 
+John Barrett  -  Assistant Engineer 
+John McCourt  -  Technician 
+Lisa Lake  -  Design, Layout Design 
+Lemmy Kilmister  -  Guitar (Acoustic), Guitar (Bass), Vocals 
+
+
+### "Sacrifice" 1995, Heavy Metal
+
+   1.   Sacrifice (Motorhead) - 3:16 
+   2.   Sex and Death (Motorhead) - 2:02 
+   3.   Over Your Shoulder (Motorhead) - 3:17 
+   4.   War for War (Motorhead) - 3:08 
+   5.   Order/Fade to Black (Motorhead) - 4:02 
+   6.   Dog Face Boy (Motorhead) - 3:25 
+   7.   All Gone to Hell (Motorhead) - 3:41 
+   8.   Make 'Em Blind (Kilmister) - 4:25 
+   9.   Don't Waste Your Time (Lemmy) - 2:32 
+   10.   In Another Time (Motorhead) - 3:09 
+   11.   Out of the Sun (Motorhead) - 3:43 
+
+
+Motцrhead  -  Producer 
+Bill Bergman  -  Saxophone 
+Robert John  -  Artwork 
+Howard Benson  -  Producer, Mixing 
+Phil Campbell  -  Guitar 
+Ryan Dorn  -  Producer, Engineer, Mixing 
+Devin Foutz  -  Assistant Engineer 
+Lemmy  -  Guitar (Bass), Vocals 
+Eddie Schreyer  -  Mastering 
+Mikkey Dee  -  Drums 
+Gene Kirkland  -  Artwork 
+Matthew Ellard  -  Assistant Engineer 
+Tim Butcher  -  Guitar 
+
+
+### "Overnight Sensation" 1996, Heavy Metal
+
+  1.   Civil War (Campbell/Campbell/Dee/Rose) - 3:01 
+   2.   Crazy Like a Fox (Campbell/Dee/Lemmy/Lemmy) - 4:32 
+   3.   I Don't Believe a Word (Campbell/Dee/Kilmister) - 6:31 
+   4.   Eat the Sun (Campbell/Dee/Kilmister) - 2:13 
+   5.   Overnight Sensation (Campbell/Dee/Lemmy/Lemmy) - 4:10 
+   6.   Love Can't Buy You Money (Campbell/Dee/Kilmister) - 3:06 
+   7.   Broken (Campbell/Dee/Kilmister/Lemmy) - 4:34 
+   8.   Them Not Me (Campbell/Dee/Kilmister) - 2:47 
+   9.   Murder Show (Campbell/Dee/Kilmister) - 3:03 
+   10.   Shake the World (Campbell/Dee/Kilmister) - 3:29 
+   11.   Listen to Your Heart (Kilmister/Lemmy) - 3:45 
+
+
+
+Motцrhead  -  Producer 
+Mickey Dee  -  Drums 
+Howard Benson  -  Producer 
+Phil Campbell  -  Guitar 
+Ryan Dorn  -  Producer, Mixing 
+Dan Hersch  -  Mastering 
+Lemmy  -  Guitar (Acoustic), Harmonica, Guitar (Bass), Vocals 
+Tom Miller  -  Guitar, Stage Manager 
+Mikkey Dee  -  Drums 
+Tim Butcher  -  Guitar 
+James "Fade" Ornelas  -  Assistant Engineer 
+Lemmy Sez  -  Guitar (Acoustic), Harmonica, Guitar (Bass), Vocals 
+Annamaria DiSanto  -  Cover Photo 
+Diane Medak  -  Production Coordination 
+Dan Hersh  -  Mastering 
+
+
+### "On Parole" 1997, Heavy Metal
+
+   1.   Motorhead (Kilminster) - 2:49 
+   2.   On Parole (Wallis) - 5:37 
+   3.   Vibrator (Brown/Wallis) - 2:52 
+   4.   Iron Horse/Born to Lose (Brown/Taylor/Tramp) - 5:14 
+   5.   City Kids (Sanderson/Wallis) - 3:43 
+   6.   The Watcher (Kilminster) - 4:46 
+   7.   Leaving Here (Dozier/Holland/Holland) - 2:53 
+   8.   Lost Johnny (Farren/Kilminster) - 3:30 
+   9.   Fools (Brown/Wallis) - 5:35 
+   10.   On Parole [alternate take] (Wallis) - 6:57 
+   11.   City Kids [alternate take] (Sanderson/Wallis) - 3:47 
+   12.   Motorhead [alternate take] (Kilminster) - 2:48 
+   13.   Leaving Here [alternate take] (Dozier/Holland/Holland) - 3:01 
+
+
+Dave Edmunds  -  Producer 
+Motцrhead  -  Producer 
+Mick Farren  -  Sleeve Notes 
+Fast Eddie Clarke  -  Guitar 
+Lucas Fox  -  Drums 
+Fritz Fryer  -  Producer 
+Lemmy  -  Bass, Vocals 
+Phil Taylor  -  Drums 
+Larry Wallis  -  Guitar, Vocals 
+Paul Hicks  -  Mixing 
+Terry Burch  -  Digital Remastering 
+Nigel Reeve  -  Project Coordinator, Tape Research 
+
+
+### "Snake Bite Love" 1998, Heavy Metal
+
+  1.   Love for Sale 
+   2.   Dogs of War (Motorhead) 
+   3.   Snake Bite Love (Motorhead) 
+   4.   Assassin (Motorhead) 
+   5.   Take the Blame (Motorhead) 
+   6.   Dead and Gone (Motorhead) 
+   7.   Night Side (Motorhead) 
+   8.   Don't Lie to Me (Lemmy) 
+   9.   Joy of Labour (Motorhead) 
+   10.   Desperate for You (Motorhead) 
+   11.   Better off Dead (Motorhead) 
+
+
+Motцrhead  -  Producer 
+Howard Benson  -  Producer, Digital Editing 
+Greg d'Angelo  -  Assistant Engineer 
+Mark Dearnley  -  Engineer, Mixing 
+Lemmy     
+Mikkey Dee     
+Chris Morrison  -  Assistant Engineer 
+Kris Solem  -  Mastering 
+
+
+### "Jailbait" 1999, Heavy Metal
+
+  1.   Iron Fist (Clarke/Lemmy/Taylor) 
+   2.   Heart of Stone (Clarke/Lemmy/Taylor) 
+   3.   The Hammer (Clarke/Kilmister/Taylor) 
+   4.   Jailbait (Clarke/Lemmy/Taylor) 
+   5.   America (Clarke/Lemmy/Taylor) 
+   6.   Religion (I Don't Need) (Clarke/Kilmister/Taylor) 
+   7.   Capricorn (Clarke/Kilmister/Taylor) 
+   8.   Grind Ya Down (Clarke/Kilmister/Taylor) 
+   9.   (We Are) The Road Crew (Clarke/Lemmy/Taylor) 
+   10.   No Class (Clarke/Lemmy/Taylor) 
+   11.   Bite the Bullet (Clarke/Lemmy/Taylor) 
+   12.   The Chase Is Better Than the Catch (Clarke/Kilmister/Taylor) 
+   13.   Overkill (Clarke/Lemmy/Taylor) 
+   14.   Too Late Too Late (Clarke/Kilmister/Taylor) 
+   15.   Step Down (Clarke/Lemmy/Taylor) 
+   16.   Shoot You in the Back (Clarke/Lemmy/Taylor) 
+   17.   Metropolis (Clarke/Lemmy/Taylor) 
+   18.   Train Kept A Rollin' (Bradshaw/Kay/Mann) 
+   19.   Motorhead (Kilmister) 
+   20.   Bomber (Clarke/Lemmy/Taylor) 
+   21.   White Line Fever (Haggard) 
+   22.   Leavin' Here (Dozier/Holland/Holland) 
+
+
+
+
+### "We Are Motorhead" 2000, Heavy Metal
+
+ 1. See Me Burning
+ 2. Slow Dance
+ 3. Stay Out Of Jail
+ 4. God Save The Queen
+ 5. Out To Lunch
+ 6. Wake The Dead
+ 7. One More Fucking Time
+ 8. Stage Fright / Crash And Burn
+ 9. Heart On Your Sleeve (Wearing Your)
+10. We Are Motorhead
+
+### "25 & alive / Boneshaker" 2001, Heavy Metal
+
+
+
+### "Hammered" 2002, Heavy Metal
+
+01. Shut Your Mouth
+02. Kill The World
+03. Dr. Love
+04. No Remorse
+05. Walk A Crooked Mile
+06. Down The Line
+07. Brave New World
+08. Voices From The War
+09. Mine All Mine
+10. Red Raw
+11. Serial Killer 
+
+### "Inferno" 2004, Heavy Metal
+
+1. Terminal Show
+2. Killers
+3. In The Name Of Tragedy
+4. Suicide
+5. Life's A Bitch
+6. Down On Me
+7. In The Black
+8. Fight
+9. In The Year Of The Wolf
+10. Keys To The Kingdom
+11. Smiling Like A Killer
+12. Whorehouse Blues
+
+### "Stage fright (2DVD)" 2005, Heavy Metal
+
+
+
+### "Kiss Of Death" 2006, Heavy Metal
+
+
+
+### "Better Motorhead Than Dead - Live At Hammersmith (2 CD)" 2007, Heavy Metal
+
+
+
+### "Motorizer" 2008, Heavy Metal
+
+
+
+### "The World Is Yours" 2010, Heavy Metal
+
+1. Born to Lose 04:01
+2. I Know How to Die 03:19
+3. Get Back in Line 03:35
+4. Devils in My Head 04:21
+5. Rock 'n' Roll Music 04:25
+6. Waiting for the Snake 03:41
+7. Brotherhood of Man 05:15
+8. Outlaw 03:30
+9. I Know What You Need 02:58 
+10. Bye Bye Bitch Bye Bye 04:04 
+
+### "The World Is Ours - Vol. 1 (Everywhere Further Than Everyplace Else)" 2011, Heavy Metal
+
+CD1:
+01. We Are Motorhead
+02. Stay Clean
+03. Get Back In Line
+04. Metropolis
+05. Over The Top
+06. One Night Stand
+07. Rock Out
+08. The Thousand Names Of God
+09. I Got Mine
+10. I Know How To Die
+11. The Chase Is Better Than The Catch
+12. In The Name Of Tragedy
+13. Just Cos You Got The Power
+
+CD2:
+01. Going To Brazil
+02. Killed By Death
+03. Ace Of Spades
+04. Overkill
+05. Rock Out
+06. The Thousand Names Of God
+07. Killed By Death (feat. Doro Pesch E Todd Youth)
+08. We Are Motorhead
+09. Stay Clean
+10. Be My Baby
+11. Get Back In Line
+12. I Know How To Die
+13. Born To Raise Hell (feat. Michael Monroe)
+
+### "Aftershock" 2013, Heavy Metal
+
+1. Heartbreaker  03:04      
+2. Coup de Grace  03:45      
+3. Lost Woman Blues  04:09      
+4. End of Time  03:17      
+5. Do You Believe  02:58      
+6. Death Machine  02:37      
+7. Dust and Glass  02:50      
+8. Going to Mexico  02:51      
+9. Silence When You Speak to Me  04:30      
+10. Crying Shame  04:28      
+11. Queen of the Damned  02:40      
+12. Knife  02:57      
+13. Keep Your Powder Dry  03:54      
+14. Paralyzed  02:50  
+
+
+### "Bad Magic" 2015, Heavy Metal
+
+1. Victory or Die  03:09    
+2. Thunder and Lightning  03:06  
+3. Fire Storm Hotel  03:35    
+4. Shoot Out All of Your Lights  03:15  
+5. The Devil  02:54    
+6. Electricity  02:17    
+7. Evil Eye  02:20    
+8. Teach Them How to Bleed  03:13  
+9. Till the End  04:05   
+10. Tell Me Who to Kill  02:57 
+11. Choking on Your Screams  03:33  
+12. When the Sky Comes Looking for You  02:58  
+13. Sympathy for the Devil (The Rolling Stones cover)  05:35 
+
+
 
 ## Отношения с другими группами
 

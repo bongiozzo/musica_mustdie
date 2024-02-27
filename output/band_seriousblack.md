@@ -1,8 +1,65 @@
 # Serious Black
 
-Дискография
-"As Daylight Breaks" 2015, Power Metal
-"Mirror World" 2016, Power Metal
+
+
+## Дискография
+
+### "As Daylight Breaks" 2015, Power Metal
+
+1. I Seek No Other Life  03:13  
+2. High and Low  03:38   
+3. Sealing My Fate  04:29  
+4. Temple of the Sun  01:14  
+5. Akhenaton  04:20   
+6. My Mystic Mind  04:16  
+7. Trail of Murder  02:52   
+8. As Daylight Breaks  04:30   
+9. Someone Else's Life  (bonus) 03:51   
+10. Setting Fire to the Earth  04:22  
+11. Older and Wiser  03:58   
+12. Listen to the Storm  04:46   
+13. Fly On   (bonus) 05:32   
+14. No Son of Mine (Genesis cover)   (bonus) 06:22 
+
+Recorded at:
+- Dreamsound Studios in Munich, Germany.
+- Grapow Studios in Hamburg, Germany. (Additional guitars)
+Mixed and mastered at Dreamsound Studios in Munich, Germany.
+
+Mario Lochert - Bass  
+Thomen Stauch - Drums  
+Dominik Sebastian - Guitars  
+Roland Grapow - Guitars  
+Jan Vacik - Keyboards  
+Urban Breed - Vocals  
+
+
+### "Mirror World" 2016, Power Metal
+
+01. Breaking The Surface
+02. As Long As I’m Alive
+03. Castor Skies
+04. Heartbroken Soul
+05. Dying Hearts
+06. You’re Not Alone
+07. Mirrorworld
+08. Emotional Blackmail (Digipak Bonus)
+09. The Life That You Want (Digipak Bonus)
+10. State of My Despair
+11. The Unborn Never Die
+12. This Machine Is Broken (Digipak Bonus)
+13. Hello Moon (Digipak Bonus)
+14. Goodbye My Angel (Digipak Bonus)
+15. I Show You My Heart - Acoustic Version (Digipak Bonus)
+16. Sealing My Fate - Acoustic Version (Digipak Bonus)
+
+Mario Lochert - Bass  
+Dominik Sebastian - Guitars  
+Jan Vacik - Keyboards  
+Urban Breed - Vocals  
+Bob Katsionis - Guitars  
+
+
 
 ## Отношения с другими группами
 

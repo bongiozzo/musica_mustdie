@@ -1,8 +1,18 @@
 # Fantomas
 
-Дискография
-"Fantomas" 1999, Alternative
-"The Director's Cut" 2001, Alternative
+Mike Patton's project
+
+
+## Дискография
+
+### "Fantomas" 1999, Alternative
+
+
+
+### "The Director's Cut" 2001, Alternative
+
+
+
 
 ## Отношения с другими группами
 

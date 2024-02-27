@@ -1,8 +1,53 @@
 # Non Serviam
 
-Дискография
-"Between Light And Darkness" 1997, Melodic Death Metal
-"Necrotical" 1998, Melodic Death Metal
+
+
+## Дискография
+
+### "Between Light And Darkness" 1997, Melodic Death Metal
+
+Temptation of Blood 
+Obscurity Unveiled 
+Between Light and Darkness 
+Satanґs Spree 
+The Enchanting Dance of Mischief 
+Face Behind the Mirror Wall 
+Infernal Spirit 
+Queen of Beauty 
+Sins and the Embracing of Shades 
+Throne of Mendes 
+Sense of Whithering 
+Melody of Grief 
+Witches Sabbath 
+
+Line up: 
+Johannes Andersson - Guitars 
+Rikard "Amon" Nilsson -Vocals 
+Chrille "Tyr" Andersson - Bass, growling vocals 
+Magnus Emilsson - Drums 
+Daniel "Janos" Andersson - Guitar, clean vocals
+
+### "Necrotical" 1998, Melodic Death Metal
+
+The Heretic 
+Possessed 
+Hatred Unleashed 
+Arch Angel 
+Which Eternal Lie 
+From Chaos and Pain 
+Haunted Domains 
+Inherited Blood 
+Incarnation (of Evil) 
+Bringers of Total Death 
+Sex, Religion, Suicide 
+
+Line up: 
+Anders Nyander - Guitars 
+Rikard "Amon" Nilsson -Vocals 
+Chrille "Tyr" Andersson - Bass, growling vocals 
+Magnus Emilsson - Drums 
+Daniel "Janos" Andersson - Guitar, clean vocals
+
 
 ## Отношения с другими группами
 

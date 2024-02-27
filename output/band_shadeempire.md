@@ -1,11 +1,99 @@
 # Shade Empire
 
-Дискография
-"Sinthetic" 2004, Black Metal
-"Intoxicate O.S." 2006, Black Metal
-"Zero Nexus" 2008, Black Metal
-"Omega Arcane" 2013, Death Metal
-"Anti-Life Saviour" 2017, Death Metal
+Finnish hellrockersS
+
+## Дискография
+
+### "Sinthetic" 2004, Black Metal
+
+01. Conjuration
+02. Pain & Pleasure
+03. Human Sculpture
+04. Designed For Blood
+05. Creation Of Death
+06. Ja Pymeys Laskeutui
+07. Extreme Form Of hatred
+08. Demonized
+
+J. Harju - vocals
+Olli Savolainen - synthetics
+Antti Makkonen - drums
+Eero Mantere - bass
+Juha Sarkkia - guitars
+Janne Niiranen - guitars
+
+Recorded in studio Perkele early 2003.
+Drum tracks recorded at Studio Sound & engineered
+by Mikko Tegelman.
+Produced, engineered and mixed by S. jamsen.
+Mastered at Finnvox by Minerva Pappi.
+Cover, booklet design & photography by Alan E.
+Smith.
+Cover artwork by Sg. 7 - remixed by Alan E. Smith.
+Special guest appearance by Marco Hietala from
+Tarot & Nightwish and
+Spellgoth from Trollheims Gratt.
+All music arranged & written by Shade Empire.
+Lyrics by J. Harju.
+Additional orchestral arrangements by S. Jamsen.
+
+### "Intoxicate O.S." 2006, Black Metal
+
+01. Slitwrist Ecstasy 
+02. Bloodstar 
+03. Chemical God 
+04. Rat In A Maze 
+05. Soulslayers 
+06. The Silver Fix 
+07. Embrace The Gods Of Suffering 
+08. Ravine 
+09. Hatefeast 
+
+Line-Up: 
+Juha Harju - Vocals 
+Juha Sirkkiд - Guitar 
+Janne Niiranen - Guitar 
+Olli Savolainen - Keyboards 
+Eero Mantere - Bass
+
+### "Zero Nexus" 2008, Black Metal
+
+01. 9 In 1
+02. Adam & Eve
+03. Blood Colours The White
+04. Flesh Relinquished
+05. Harvesters Of Death
+06. Serpent-Angel
+07. Whisper From The Depths
+08. Ecstasy Of Black Light
+09. Victory
+
+### "Omega Arcane" 2013, Death Metal
+
+1. Ruins 
+2. Dawnless Days 
+3. Until No Life Breeds 
+4. Ash Statues 
+5. Disembodiment 
+6. Malicious Winds 
+7. Traveler Of Unlight 
+8. Devolution 
+9. Slumbering Giant 
+10. Nomad 
+11. Omega Arcane 
+
+### "Anti-Life Saviour" 2017, Death Metal
+
+1. Anti-Life Saviour  09:58 
+
+Eero Mantere - Bass  
+Juha Sirkkia - Guitars  
+Olli Savolainen - Keyboards, Orchestrations  
+Juha Harju - Vocals  
+Rasane - Drums  
+Aapeli Kivimдki  Guitars  
+
+
 
 ## Отношения с другими группами
 

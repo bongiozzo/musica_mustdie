@@ -1,8 +1,27 @@
 # Twilight Is Mine
 
-Дискография
-"The Egregor Of Evil" 2004, Black Metal
-"Wreaking Oberrun" 2004, Black Metal
+
+
+## Дискография
+
+### "The Egregor Of Evil" 2004, Black Metal
+
+1. Barbaric march.
+2. Casemate #802.
+3. Winds of Eternal Grief.
+4. The Egregor of Evil.
+5. The Sufferers.
+6. Созвездие Лиры и Орла.
+7. Bearer of Knowledge always Alone.
+8. The Trumpet Call.
+9. Помни о Смерти.
+10. Dissonant Occult Experience.
+11. Egmont (the minor version of L.V. Beethoven).
+
+### "Wreaking Oberrun" 2004, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

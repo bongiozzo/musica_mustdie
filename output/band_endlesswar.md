@@ -1,7 +1,22 @@
 # Endless War
 
-Дискография
-"Triumphant Hate & Bloody Swords" 2004, Black Metal
+
+
+## Дискография
+
+### "Triumphant Hate & Bloody Swords" 2004, Black Metal
+
+1. Intro
+2. Hateful 
+3. Total War
+4. Blood and Thunder 
+5. The Call of Goat’s Lord 
+6. Beautiful Lands 
+7. ...Of a New World 
+8. The Hammer and the Golden Dawn 
+9. Wolf 
+10. Triunfo
+
 
 ## Отношения с другими группами
 

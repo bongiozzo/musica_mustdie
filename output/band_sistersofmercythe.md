@@ -1,7 +1,31 @@
 # Sisters of Mercy, The
 
-Дискография
-"A Slight Case Of Overbombing" 1993, Gothic
+Classic of Gothica
+
+## Дискография
+
+### "A Slight Case Of Overbombing" 1993, Gothic
+
+1.  Under The Gun
+2.  Temple Of Love (1992)
+3.  Vision Thing
+4.  Detonation Boulevard
+5.  Doctor Jeep
+6.  More
+7.  Lucretia My Reflection
+8.  Domination / Mother Russia
+9.  This Corrosion
+10.No Time To Cry
+11.Walk Away
+12.Body Soul
+
+Produced By Eldrich.
+Written By Andrew Eldrich, Hughes, Steinman, Marx, Adams & Hussey.
+
+Back Vocals By Ofra Haza & Terri Nunn. 
+
+(P)c 1993 WARNER Music UK Ltd.
+
 
 ## Отношения с другими группами
 

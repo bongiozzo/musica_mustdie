@@ -1,7 +1,19 @@
 # Dogma
 
-Дискография
-"Live in Moldova" 2004, Melodic Death Metal
+melodic death-metal from Lviv, Ukraine
+
+## Дискография
+
+### "Live in Moldova" 2004, Melodic Death Metal
+
+1. Striped, Raped and Strangled 
+2. Aeons of Sorrow 
+3. Into the Never 
+4. Year Of The Armageddon 
+5. Born To Crawl 
+6. Vortex Of Fear 
+7. Nuclear Messiah
+
 
 ## Отношения с другими группами
 

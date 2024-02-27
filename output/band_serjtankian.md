@@ -1,10 +1,96 @@
 # Serj Tankian
 
-Дискография
-"Eject The Dead" 2008, Alternative
-"Imperfect Harmonies" 2010, Alternative
-"Figure It Out (single)" 2012, Alternative
-"Harakiri" 2012, Alternative
+
+
+## Дискография
+
+### "Eject The Dead" 2008, Alternative
+
+1 Empty Walls  
+2 The Unthinking Majority  
+3 Money  
+4 Feed Us  
+5 Saving Us  
+6 Sky Is Over  
+7 Baby  
+8 Honking Antelope  
+9 Lie Lie Lie  
+10 Praise the Lord and Pass the Ammunition  
+11 Beethoven's C*nt  
+12 Elect the Dead  
+ Special Edition Bonus Disc  
+1 Blue – 2:45  
+2 Empty Walls (Acoustic) – 3:46  
+3 Feed Us (Acoustic) – 4:21  
+4 Falling Stars – 3:05  
+ iTunes Special Edition  
+13 The Reverend King – 2:49 (also appears on Japanese Standard Edition)  
+14 Blue – 2:45  
+15 Falling Stars – 3:05  
+16 Lie Lie Lie (Music Video) (pre-order only) 
+
+
+All songs written & performed by Serj Tankian (guitars, bass, piano, vocals, synthesizers, drum programming, melodica, bells, and various tone generating beauties[sic])
+All songs recorded at Serjical Strike Studios
+Produced by Serj Tankian
+Engineered by Dan Monti and Serj Tankian
+Mastered by Vlado Meller at Sony Music Studios in New York, NY
+
+All drums recorded at The Pass in Los Angeles, CA
+Drum engineer Krish Sharma
+Assistant drum engineer Bo Joe
+Drum technician at The Pass Sako Karaian
+Mixed by Neal Avron at Paramount Recording Studios in Los Angeles, CA
+Mix assistant Nicholas Fournier
+Drumming on tracks 1, 3, 7-9, 11 by Brain
+Drumming on track 2 by John Dolmayan
+Drumming on tracks 4 and 5 by Brain and John Dolmayan
+Drum programming on track 6 by Dan Monti
+Additional guitar on tracks 1-4, 6, 8, 11 by Dan Monti
+Additional bass on tracks 2, 6-9, 11 by Dan Monti
+Additional solo guitar on track 5 by Diran Noubar
+Additional vocals on tracks 5 and 9 by Ani Maldjian
+Additional cello on tracks 1, 3, 4, 6, 8, 11, 12 by Cameron Stone
+Additional violin on tracks 1, 3, 4, 6, 8 by Antonio Pontarelli
+Additional synthesizers on track 6 by Dan Monti and Fabrice Favre
+
+Bonus disc
+Drums on track 4 recorded at The Pass in Los Angeles, CA
+Additional engineering on track 1 by Thom Russo
+Drum engineer on track 4 Krish Sharma
+Assistant drum engineer on track 4 Bo Joe
+Drum technician on track 4 Sako Karaian
+Tracks 1-3 mixed by Serj Tankian and Dan Monti
+Track 4 mixed by Neal Avron
+Track 4 mix assistant Nicholas Fournier
+Drumming on track 4 by John Dolmayan
+Violin solo on track 4 by Antonio Pontarelli
+Additional guitars on track 4 by Dan Monti
+Additional violin on tracks 2-4 by Antonio Pontarelli
+Additional cello on tracks 2-4 by Cameron Stone
+
+### "Imperfect Harmonies" 2010, Alternative
+
+1. Disowned Inc. 4:07 
+2. Borders Are... 4:38 
+3. Deserving 4:06 
+4. Beatus 4:42 
+5. Reconstructive Demonstrations 5:05 
+6. Electron 3:46 
+7. Gate 21 2:43 
+8. Yes, It's Genocide 3:15 
+9. Peace Be Revenged 3:59 
+10. Left Of Center 3:07 
+11. Wings Of Summer 4:46
+
+### "Figure It Out (single)" 2012, Alternative
+
+
+
+### "Harakiri" 2012, Alternative
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,32 @@
 # Stillness Blade
 
-Дискография
-"The First Dark Chapter (Misanthropic Elevation)" 2007, Death Metal
-"Break of the Second Seal - The Eternal Damnation" 2010, Death Metal
+
+
+## Дискография
+
+### "The First Dark Chapter (Misanthropic Elevation)" 2007, Death Metal
+
+1. The Awakening towards Death	 
+2. Sleep of the Vile	 
+3. The cold Dagger's Blade	 
+4. Tomb of Soul	 
+5. The half-Redemption	 
+6. The Stake of Sorrow	 
+7. The Messenger of lost Hate	 
+8. Misanthropic Elevation	 
+9. The deceptive quiet
+
+### "Break of the Second Seal - The Eternal Damnation" 2010, Death Metal
+
+1. Path of Damnation - Break of the Second Seal	 
+2. Napalm Rain	 
+3. Chains of Damnation	 
+4. Black Aura Shadow	 
+5. Materialistic Suffocation	 
+6. Stock of Vengeance	 
+7. Sadistic Flesh Pleasure	 
+8. Ascension of Seven Blades - Sorrow Descends
+
 
 ## Отношения с другими группами
 

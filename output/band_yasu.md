@@ -1,7 +1,21 @@
 # Yasu
 
-Дискография
-"Magica" 2002, Metal
+Neo classical electric guitar
+
+## Дискография
+
+### "Magica" 2002, Metal
+
+01. Prelude
+02. Concerto For Electric Guitar No.2
+03. Concerto For Electric Guitar No.6
+04. Baroque Dance 1
+05. Eisenarch Rondo
+06. Guitar Sonata No.1
+07. Guitar Sonata No.2
+08. Guitar Sonata No.3
+09. Counter Point 1
+
 
 ## Отношения с другими группами
 

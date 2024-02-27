@@ -1,8 +1,37 @@
 # Ancient Dome
 
-Дискография
-"Human Key" 2009, Thrash
-"Perception of this World" 2010, Thrash
+
+
+## Дискография
+
+### "Human Key" 2009, Thrash
+
+1. Ancient Dome
+2. State of Regression
+3. The Defeat	 
+4. Tyrants
+5. Human Key
+6. Aeons	 
+7. Fall of the Dominion
+8. Cold September
+9. Lost Creature
+10. Architect of Dreams
+11. Total Command
+
+### "Perception of this World" 2010, Thrash
+
+1. Intro (Mission)
+2. Liar
+3. When Day Dies...
+4. Predominance
+5. Perception of this World
+6. Confused Certainty
+7. Dream Again
+8. Gordian Knot
+9. Face The Facts
+10. Collision
+11. DevastHate
+
 
 ## Отношения с другими группами
 

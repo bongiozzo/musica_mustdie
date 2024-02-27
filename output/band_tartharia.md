@@ -1,9 +1,43 @@
 # Tartharia
 
-Дискография
-"Abstract Nation" 2004, Death Metal
-"Crown By Name Ver.1.0 [EP]" 2005, Death Metal
-"Тартариа" 2009, Death Metal
+
+
+## Дискография
+
+### "Abstract Nation" 2004, Death Metal
+
+The Land of a Thousand Hopes 
+Misery My Loneliness 
+At Every Step 
+Abstract Nation 
+VI Feet 
+Warlife 
+Stand In the Wind 
+Reprise 
+D.I.
+
+### "Crown By Name Ver.1.0 [EP]" 2005, Death Metal
+
+1. Crown By Name	 
+2. Unfear	 
+3. Satan's Little Shelter	 
+4. Unfear R.M.X.
+
+### "Тартариа" 2009, Death Metal
+
+1. Состояние Войны
+2. Венчание Эго
+3. Баллада О Смерти
+4. Любить По Живому
+5. Бесстрашные
+6. Безымянный Ужас
+7. Жизнь В Скорлупе
+8. Потерянный День Моей Жизни
+9. Разрушение Изнутри
+10. Нешлифованные Алмазы
+11. Изо Всех Сил
+12. Укрощение Гнева
+
 
 ## Отношения с другими группами
 

@@ -1,17 +1,227 @@
 # Shining
 
-Дискография
-"Submit to self-destruction (EP)" 1998, Black Metal
-"I - Within deep dark chambers" 2000, Black Metal
-"II - Livets Andhеllplats" 2001, Black Metal
-"III - Angst - Sjalvdestruktivitetens Emissarie" 2002, Black Metal
-"The Darkroom Sessions (Rare Rehearsals & Outtakes)" 2004, Black Metal
-"IV - The Eerie Cold" 2005, Black Metal
-"V - Halmstad" 2007, Black Metal
-"VI - Klagopsalmer" 2009, Black Metal
-"VII: Fodd Forlorare" 2011, Black Metal
-"Redefining Darkness" 2012, Black Metal
-"Lots of Girls Gonna Get Hurt (EP)" 2012, Black Metal
+Suicidal black metal
+
+## Дискография
+
+### "Submit to self-destruction (EP)" 1998, Black Metal
+
+1. Endless Solitude 06:32 
+2. Submit to Self Destruction 07:01 
+
+Line-up:
+
+Wraith (aka Kvarforth) - Guitars, Bass
+Robert - Vocals
+Impaler (aka Wedebrand) - Drums 
+
+
+### "I - Within deep dark chambers" 2000, Black Metal
+
+1. Reflecting in Solitude 08:40 
+2. Stonelands 08:53  
+3. Vita Detestabilis 07:32  
+4. Ren Djдvla Angest 06:43 
+5. Inisis 08:07
+6. And Only Silence Remains... 10:49 
+
+
+Line-up
+Kvarforth: vocals, guitars, keyboards
+Classen: vocals
+Wedebrand: drums
+Tusk: bass
+
+
+### "II - Livets Andhеllplats" 2001, Black Metal
+
+1. Ett Liv Utan Mening 07:34 
+2. Att Med Kniv Gцra Sig Illa 02:08  
+3. Дnnu Ett Steg Nдrmare Total Utfrysning 10:19  
+4. Dцd 07:37  
+5. Svart (Ur Dagerman's Perspektiv) 07:13 
+6. Livets Andhеllplats 09:18 
+
+
+Line-up:
+Kvarforth: vocals, guitars, keyboards
+Tusk: bass
+Wedebrand: drums
+
+
+### "III - Angst - Sjalvdestruktivitetens Emissarie" 2002, Black Metal
+
+01. Morda Dig Sjalv... 09.07
+02. Svart Industriell Olycka 08.05
+03. Sjalvdestruktivitetens Emissarie 08.29
+04. Submit to Self-destruction 07.12
+05. Till Minne Av Daghen 04.22
+06. Fields of Faceless 10.21
+
+Kvarforth: Lead & Rythm Guitars, Vocals
+Phil A. Cirone: Bass & Keys
+Hellhammer: Drums
+Inisis: Rythm Guitars
+
+Shining, the third, was recorded in toproom
+studios of norway and abyss studios of sweden
+during frustration and despair, january and
+february the year of 2002
+produced and mixed by daniel halen, kvarforth and
+the toolbox
+engineered by tommy tagtgren and borge -mr.fuckup-
+executive producer: avantgarde music
+all music and lyrics written by kvarforth except -
+Till Minne Av Daghen -, written and solely
+performed by phil, a cirone, and - Morda Dig
+Sjalv-, written by kvarforth and inisis
+
+### "The Darkroom Sessions (Rare Rehearsals & Outtakes)" 2004, Black Metal
+
+1. Mцrda Dig Sjдlv 08:30
+2. Fields of Faceless 10:04  
+3. Ett Liv Utan Mening 09:01  
+4. Svart Industriell Olycka 09:04 
+5. Sjдlvdestruktivitetens Emissarie 08:24  
+6. Дnnu Ett Steg Nдrmare Total Utfrysning 09:30 
+
+
+### "IV - The Eerie Cold" 2005, Black Metal
+
+1. I Och Med Insikt Skall du Fцrgе 07:32  
+2. Vemodets Arkitektur 07:58  
+3. Nеgonting Дr Jдvligt Fel 06:21 
+4. Eradication of the Condition 07:00  
+5. The Eerie Cold (Samvetskvalens Ballad) 05:53  
+6. Claws of Perdition 06:18 
+
+
+Line-up:
+Kvarforth - Vocals, Guitars, Keyboards
+John Doe - Guitars
+Phil A. Cirone - Bass, Keyboards
+Hellhammer - Drums
+
+
+
+### "V - Halmstad" 2007, Black Metal
+
+1. Yttligare Ett Steg Normare Total Jovla Utfrysning 06:22
+2. Langtar Bort Frеn Mitt Hjarta 08:29  
+3. Lеt Oss ta Allt Frеn Varandra 06:05 
+4. Besvikelsens Dystra Monotoni 10:05 
+5. Еttiosextusenfyrahundra 02:43  
+6. Neka Morgondagen 08:49 
+
+
+
+Line-up:
+Kvarforth - Vocals
+Fredric Grеby - Guitars
+Peter Huss - Guitars
+Johan Hallander - Bass
+Ludwig Witt - Drums
+
+Track 5 is an adaptation of the first movement of Ludwig van Beethoven's piano
+sonata no. 14 (a.k.a. "The Moonlight Sonata", op. 27).
+
+English translations:
+1. Yet Another Step Towards Complete Fucking Desolation
+2. Longing Away from My Heart
+3. Let Us Take Everything from Each Other
+4. The Dismal Monotony of Disappointment
+5. Eightysixthousandfourhundred
+6. Deny Tomorrow 
+
+### "VI - Klagopsalmer" 2009, Black Metal
+
+1. Vilseledda Barnasalars Hemvist  06:39    
+2. Plaegoande O'helga Plaegoande  06:49   
+3. Fullstandigt Javla Dod Inuti  08:02    
+4. Ohm - Sommar Med Siv  07:10    
+5. Krossade Drцmmar Och Brutna Loften  05:06    
+6. Total Utfrysning  16:46 
+
+
+Kvarforth  Vocals, Guitars, Keys, Concept  
+Graeby  Lead and Rhythm Guitars  
+Huss  Lead and Rhythm Guitars  
+Larssen  Bass  
+Schill  Drums  
+ 
+
+"Klagopsalmer" is Swedish for "Hymns of Lament".
+Tracks translated to English is as follows:
+1. "Vilseledda barnasjдlars hemvist" (Misled Child-souls' Residence)
+2. "Plaegoande O'helga Plaegoande" (Tormenting Spirit, Oh Holy Tormenting Spirit)
+3. "Fullstandigt Jдvla Dod Inuti" (Completely Fucking Dead Inside) 
+4. "Ohm - Sommar Med Siv" (Ohm - Summer With Siv)
+5. "Krossade Drommar Och Brutna Loften" (Crushed Dreams And Broken Promises) 
+6. "Total Utfrysning" (Total Desolation) 
+
+"Ohm - Sommar Med Siv" is a cover of "Ohm" from Norwegian metal band Seigmen's 1994 album "Total". "Ohm - Sommar Med Siv" is sung in Norwegian. It is the only song not sung in Swedish on "Klagopsalmer". 
+
+
+### "VII: Fodd Forlorare" 2011, Black Metal
+
+1. Fortvivlan, Min Arvedel  06:29    
+2. Tiden Laker Inga Saer  08:10   
+3. Manniska O'Avskyvarda Manniska  06:42   
+4. Tillsammans Ar Vi Allt  09:22    
+5. I Nattens Timma (Landberk cover)  
+6. FFF  07:00 
+
+
+Niklas Kvarforth  Vocals  
+Fredric Graeby  Guitars  
+Peter Huss  Guitars  
+Richard Schill  Drums  
+Andreas Larsen  Bass  
+ 
+All music and lyrics are written by Niklas Kvarforth.
+Recorded and produced by Rickard Bengtsson at Slaughterhouse Studios, Sweden.
+Fodd Forlorare means "Born Loser".
+
+Song Translations:
+1. Despair, My Heredity
+2. Time Heals No Wounds
+3. Man, Oh Despicable Man
+4. Together We Are Everything
+5. In the Hour of Night 
+
+
+### "Redefining Darkness" 2012, Black Metal
+
+01. Du, Mitt Konstverk 07:41 
+02. The Ghastly Silence 07:18 
+03. Han Som Hatar Manniskan 06:48 
+04. Hail Darkness Hail 07:05 
+05. Det Stora Ga 03:26 
+06. For the God Below 08:36
+
+
+
+English song title translations:
+ 1. You, My Artwork
+ 3. He Who Hates Humans
+ 5. The Great Grey
+ 
+The sample starting at 4:00 in the song "Hail Darkness Hail" is from the movie "Hipnos" by David Carreras Sole.
+ 
+The album is dedicated to the memory of Trond Brathen. 
+
+### "Lots of Girls Gonna Get Hurt (EP)" 2012, Black Metal
+
+1. For My Demons (Katatonia Cover) 06:03 
+2. Utan Dina Andetag (Kent Cover) 04:30 
+3. Kung Av Jidder (Imperiet Cover) 04:53 
+4. Carnival Of Rust (Poets Of The Fall Cover) 04:41
+
+Niklas Kvarforth - Vocals, Guitars, Keyboards (Skitliv, ex-Funeral Dirge, ex-Bethlehem, ex-Den Saakaldte, ex-Diabolicum, ex-Ondskapt) 
+Peter Huss - Guitars (Apostasy, ex-Cretoria, ex-Sinergy (live)) 
+Christian Larsson - Bass (Livsnekad, Svart, Reciprocity, ex-Promenia, ex-Sanctum Sanguis, ex-Apati) 
+Ludwig Witt - Drums (Grand Magus, Spiritual Beggars, ex-Sandalinas (live), ex-Firebird )
+
 
 ## Отношения с другими группами
 

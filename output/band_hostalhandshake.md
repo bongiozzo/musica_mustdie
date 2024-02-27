@@ -1,7 +1,21 @@
 # Hostal Handshake
 
-Дискография
-"Hellish" 2008, Stoner
+
+
+## Дискография
+
+### "Hellish" 2008, Stoner
+
+Going Crazy
+Born That Way
+Savage Rose
+My Own Dominion
+Standing In The Corner
+Reveries
+Hellish
+Form Of Agony
+Mayhem Under Control
+
 
 ## Отношения с другими группами
 

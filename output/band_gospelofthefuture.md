@@ -1,7 +1,20 @@
 # Gospel Of The Future
 
-Дискография
-"Gospel Of The Future" 2008, Stoner
+
+
+## Дискография
+
+### "Gospel Of The Future" 2008, Stoner
+
+01 Cabal
+02 The Power Of Black Sun
+03 Brotherhood Of Freak Fountain
+04 Caves Have Ears
+05 5ive
+06 Dark Bell
+07 Ministry Of Occultism
+08 Moonwalk Hunters..
+
 
 ## Отношения с другими группами
 

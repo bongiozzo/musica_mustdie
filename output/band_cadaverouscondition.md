@@ -1,14 +1,148 @@
 # Cadaverous Condition
 
-Дискография
-"In Melancholy" 1993, Death Metal
-""For Love" I Said" 1996, Death Metal
-"Tryst [split]" 1997, Death Metal
-"The Lesser Travelled Seas" 2001, Death Metal
-"What the Waves Were Always Saying" 2003, Death Metal
-"To the Night Sky" 2006, Death Metal
-"Destroying the Night Sky" 2008, Death Metal
-"Burn Brightly Alone" 2011, Death Metal
+
+
+## Дискография
+
+### "In Melancholy" 1993, Death Metal
+
+1. Katzentanz  05:15  
+2. To Be  04:20  
+3. Beautiful  04:58   
+4. Marian (The Sisters Of Mercy cover)  04:37   
+5. The Flower  04:38   
+6. Shine  02:01  
+7. The Sadness Out Of Me  04:17   
+8. You Remain  05:13  
+9. Depart (With Me)  04:00   
+10. And I Wait  02:21  
+11. May Fragments Not Dissolve  04:12 
+12. Eisbaer (Grauzone cover)  03:55 
+
+### ""For Love" I Said" 1996, Death Metal
+
+1. M
+2. Tryst
+3. A Song For
+4. All The Vastness
+5. What The Moon Brings
+6. In June, As I Killed Time
+7. Your And My Dead Stars
+8. I Love You
+9. The Ever Bleating Fools
+10.Cold
+11....And Then Forgotten
+12.Teenage Kicks *
+
+All songs written by CADAVEROUS
+CONDITION
+except * written by UNDERTONES
+Produced and mixed by Cornelius Oih
+Recorded at Cosmic Studios, Vienna
+
+Wolfgang Weiss - Vocals
+Rene Kramer - Guitars
+Peter Droneberger - Bass
+Paul Droneberger - Drums
+
+(p)(c) 1996 LETHAL Records
+
+### "Tryst [split]" 1997, Death Metal
+
+
+
+### "The Lesser Travelled Seas" 2001, Death Metal
+
+1. The Moon And The Scars  04:10
+2. youngBlood  04:30   
+3. Time  03:07   
+4. The Lonely Have No Right To Share The Summer Sun  03:16   
+5. The Lesser Travelled Seas  03:49  
+6. Tesco Girl  03:57  
+7. I Came To Leave  04:08
+8. Lead Me  04:45   
+9. First Song  03:36  
+10. Arrival  04:32  
+11. Heaven Street (Death In June Cover)  04:02   
+12. The Nothing Out Of Me  04:29
+13. A Dream Within A Dream  04:12
+14. Add Endum  00:12 
+
+### "What the Waves Were Always Saying" 2003, Death Metal
+
+1. Now We Make The Past Undone  03:18 
+2. To The Distant Grey  03:09   
+3. Snaketime (Reptilicus Cover)  04:02 
+4. Shores Of Yesterday  03:01
+5. The Once And Future King  02:48  
+6. Tesco Girl (Rerecorded Version)  03:13
+7. Plate IV  05:18   
+8. And Never Return  03:35 
+
+### "To the Night Sky" 2006, Death Metal
+
+1. Fireship  03:59   
+2. The Loneliest Grave  03:56 
+3. Destroy Your Life  03:56
+4. There Is No Death And There Are No Dead  03:34   
+5. At The Crossroads  03:39   
+6. North Isles Motel  04:26   
+7. Repent  04:07  
+8. Black (Bonnie Prince Billy cover)  04:00  
+9. Sleep On the Wind  04:31  
+10. The Once And Future King  03:07   
+11. To The Distant Grey  03:18   
+12. Now We Make The Past Undone  03:32 
+13. My Ocean Is Shipless  04:14   
+14. I Woke From A Sleep That Lasted All My Life  04:15 
+
+### "Destroying the Night Sky" 2008, Death Metal
+
+1. At The Crossroads Motel      
+2. Defiled (At The Crossroads)
+3. Deconstruction 02   
+4. Still Dreaming   
+5. Relentless Repentance    
+6. Deconstruction 01   
+7. Nosedive      
+8. now I see      
+9. Degraded (Fireship)   
+10. Death Warmed Up  
+11. Deconstruction 06  
+12. Du gl&#252;ckliches &#214;sterreich   
+13. Whole Lotta CC     
+14. Destroy Your Beautiful Life  
+
+### "Burn Brightly Alone" 2011, Death Metal
+
+1. Ghost
+2. Driftwood
+3. We Knew They Were Coming
+4. We Both Go Down Together
+5. Alone I Will Travel In Time Tonight
+6. Wicklow Nightfall
+7. Use Your Blood
+8. Into My River
+9. Order Of The Forlorn
+10. The Clearing
+11. The Small Roads Out Of Town
+12. Shine Unseen, Then Disappear
+13. Deathless
+
+Состав:
+
+Wolfgang Weiss: vocals
+Rene Kramer: guitars
+Peter Droneberger: bass
+Paul Droneberger: drums
+
+В записи пластинки приняли участие следующие сессионные музыканты:
+
+Mark Breyer (Skooshny, Son Of Skooshny): vocals
+Tobias Nathaniel (The Black Heart Procession): piano
+Andrew Liles (Current 93, Nurse With Wound): sounds
+Paul Beauchamp (Blind Cave Salamander, Nurse With Wound): saw
+
 
 ## Отношения с другими группами
 

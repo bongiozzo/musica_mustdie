@@ -1,9 +1,47 @@
 # Corpus Mortale
 
-Дискография
-"Spiritism" 1998, Death Metal
-"With Lewd Demeanor" 2003, Metal
-"A New Species of Deviant" 2007, Death Metal
+
+
+## Дискография
+
+### "Spiritism" 1998, Death Metal
+
+1. The book of blood  04:07  
+2. Malicious  05:22  
+3. A notorius feeling  04:06    
+4. Immaterialism  04:51 
+5. False Prophecies  04:10
+6. One black destiny  03:52 
+7. Time elapses  04:44    
+8. Another dead soul  05:57 
+
+### "With Lewd Demeanor" 2003, Metal
+
+1. Mass Funeral Pyre  03:47  
+2. Exaltation of the Macabre  03:39   
+3. Force Fed Obedience  03:22  
+4. The Dismal Recurrance  02:34  
+5. Sombre and Vile  03:33  
+6. Lucid Dreaming  04:28 
+7. Succumb to the Superior  04:01
+8. Tragical Art  01:17   
+9. Undesirable  04:25 
+10. The Illaffected  05:17  
+11. Too Dark to See  01:48 
+
+### "A New Species of Deviant" 2007, Death Metal
+
+1. An Embrace to Wake the Dead  01:39  
+2. Dehumanized  03:29  
+3. Postmortem Rape  03:41  
+4. Scorched  05:17  
+5. Cold Earth  04:34    
+6. Erosion of the Flesh  04:03 
+7. Devoid in Compassion  05:05  
+8. Sustained Depressed Fractures  03:15  
+9. Descent Into the Maelstrom  04:09    
+10. Shallow Graves  05:17 
+
 
 ## Отношения с другими группами
 

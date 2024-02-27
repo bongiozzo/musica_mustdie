@@ -1,8 +1,38 @@
 # Avian
 
-Дискография
-"From the Depths of Time" 2005, Heavy Metal
-"Ashes and Madness" 2009, Heavy Metal
+
+
+## Дискография
+
+### "From the Depths of Time" 2005, Heavy Metal
+
+1.	 Through the Past and Into Forever
+2.	 As the World Burns
+3.	 Black Masquerade
+4.	 The Fear
+5.	 Final Frontier
+6.	 Across the Millions
+7.	 Time and Space Part I: City of Peace
+8.	 Single Blade of Vengeance
+9.	 Blinding Force
+10.	 Time Is All We Need
+11.	 Queen of the Insane
+12.	 Last Moon
+13.	 The Depths of Time
+
+### "Ashes and Madness" 2009, Heavy Metal
+
+1.	 Ashes and Madness
+2.	 The Lost and Forsaken
+3.	 Into the Other Side
+4.	 Esoteric Lies
+5.	 Fall from Grace	 
+6.	 Beyond the Hallowed Gates
+7.	 Thundersou
+8.	 All The Kings Horses
+9.	 Never Fade from Me
+10.	 Time and Space Part II: Unlock the Mystery
+
 
 ## Отношения с другими группами
 

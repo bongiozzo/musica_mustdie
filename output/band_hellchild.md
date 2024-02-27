@@ -1,7 +1,22 @@
 # Hellchild
 
-Дискография
-"Circulating Contradiction" 2001, Death Metal
+japan death-metal
+
+## Дискография
+
+### "Circulating Contradiction" 2001, Death Metal
+
+Caress Wounds
+In Search For The Scattered
+Clockwork Toy
+Walking Barefoot
+For The Vanishing
+To Find The Unknown
+Sea, The BLue
+The Scent Of Summer Rain
+In The Midst Of Happiness
+Raise The Right Fist
+
 
 ## Отношения с другими группами
 

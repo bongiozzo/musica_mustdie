@@ -1,9 +1,60 @@
 # Mesmerize
 
-Дискография
-"Tales Of Wonder" 1998, Heavy Metal
-"Vultures Paradise" 2002, Heavy Metal
-"Off The Beaten Path" 2002, Heavy Metal
+
+
+## Дискография
+
+### "Tales Of Wonder" 1998, Heavy Metal
+
+The Werewolf (3:25)
+Hell On Wheels (5:28)
+Logan's Run (0:29)
+Children Of Reality (4:55)
+Sea Of Lies (4:15)
+Ragnarцk (4:25)
+Danse Macabre (5:20)
+The Catalyst (1:04)
+Forging The Darksword (4:00)
+War Journal (4:40)
+Flatliners (5:15)
+Chorus Of The Rain (4:11)
+
+### "Vultures Paradise" 2002, Heavy Metal
+
+Vultures Paradise (5:28)
+The Cube (5:52)
+Screams Of A Dying World (4:38)
+Chains Of Life (5:57)
+D'Ailleurs (2:28)
+Winter Tears (4:41)
+Tierra Santa (3:58)
+Die Young (4:47)
+Tierra Santa (English version) (3:58)
+
+
+
+Folco Orlandini - Vocals
+Piero Paravidino - Lead & Rhythm Guitar
+Paolo Chiodini - Rhythm & Acoustic Guitar
+Andrea Tito - Bass
+Andrea Garavaglia - Drums
+
+
+
+### "Off The Beaten Path" 2002, Heavy Metal
+
+Argos Died Twice (5:38)
+King Of Terror (4:03)
+Off The Beaten Path (5:45)
+Jail TV (4:05)
+Warriors (When The Battle Calls) (7:34)
+Pit Of Charming Snakes (5:56)
+Where Skye Meets The Sea (7:15)
+Doom Of The Darksword (5:23)
+The Ancient Prophecy (1:11)
+Overdoze (4:44)
+Gates Of Mercy (4:10)
+
 
 ## Отношения с другими группами
 

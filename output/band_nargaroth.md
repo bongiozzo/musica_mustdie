@@ -1,12 +1,77 @@
 # Nargaroth
 
-Дискография
-"Herbstleyd" 1999, Black Metal
-"Black Metal Ist Krieg (A Dedication Monument)" 2001, Black Metal
-"Geliebte des Regens" 2003, Black Metal
-"Prosatanica Shooting Angels" 2004, Black Metal
-"Semper Fidelis" 2007, Black Metal
-"Jahreszeiten" 2009, Black Metal
+
+
+## Дискография
+
+### "Herbstleyd" 1999, Black Metal
+
+1. Introduction - Herbstleyd 16:03
+2. Karmageddon 04:26
+3. Nargaroth 03:03  
+4. Des Alten Kriegers Seelenruh 08:42 
+5. Amarok - Zorn Des Lammes 18:38
+6. Das Schwarze Gemдlde 08:40  
+7. Vom Traum, Die Menschheit Zu Tцten - Outroduction 10:13 
+
+### "Black Metal Ist Krieg (A Dedication Monument)" 2001, Black Metal
+
+1. Introduction 02:03  
+2. Black Metal Ist Krieg 05:01
+3. Far Beyond the Stars (Azhubham Haani cover) 04:48  
+4. Seven Tears Are Flowing to the River 14:47
+5. I Burn for You (Lord Foul cover) 02:56
+6. The Day Burzum Killed Mayhem 09:20 
+7. Pisen pro Satana (Root cover) 02:40
+8. Amarok - Zorn Des Lammes III 09:30 
+9. Erik, May You Rape the Angels 06:58
+10. The Gates Of Eternity (Moonblood cover) 05:04
+11. Possessed by Black Fucking Metal 06:33 
+
+### "Geliebte des Regens" 2003, Black Metal
+
+1. Intro - Calling the Rain 03:58  
+2. Manchmal Wenn Sie Schlдft 17:40
+3. Wenn Regen Liebt 11:58
+4. Von Scherbengestalten Und Regenspaziergang 11:51
+5. Manchmal Wenn Sie Schlдft (Alternative Version) 17:16
+6. Outro - Leb' Wohl 10:18 
+
+### "Prosatanica Shooting Angels" 2004, Black Metal
+
+1. Love Is Always Over With Ejaculation 01:12
+2. Be Dead Or Satanic 08:41
+3. Satan Industries 05:33 
+4. Thinking Below The Ocean 04:51  
+5. Black And Blasphemic Death Metal 08:13 
+6. A Tear In The Face Of Satan 10:17
+7. The Dark Side Of The Moon 02:50  
+8. Hunting Season 06:10 
+9. I Bring My Harvest Home 08:32 
+
+### "Semper Fidelis" 2007, Black Metal
+
+1. Introduction 01:12
+2. Artefucked 09:48
+3. Der Satan Ist's 05:57
+4. Vereinsamt 08:56
+5. Der Leiermann 07:38
+6. Semper Fi 05:36
+7. Hate Song 07:19
+8. Into The Dead Faces Of Aftermath 01:37 
+9. Meine Phantasien Sind Wie Brennendes Laub... Nicht Von Dauer... 12:24
+10. I Got My Dead Man Sleep 10:35
+11. I Still Know 06:04
+12. Outroduction 02:46 
+
+### "Jahreszeiten" 2009, Black Metal
+
+1. Prolog 03:01
+2. Frьhling 10:33
+3. Sommer 13:51
+4. Herbst 21:59
+5. Winter 16:39 
+
 
 ## Отношения с другими группами
 

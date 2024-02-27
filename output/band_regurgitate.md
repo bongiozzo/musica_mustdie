@@ -1,17 +1,243 @@
 # Regurgitate
 
-Дискография
-"Regurgitate/Grudge [Split 7" with Grudge]" 1993, Grindcore
-"Concrete Human Torture [Demo]" 1994, Grindcore
-"Effortless Regurgitation Of Bright Red Blood" 1994, Grindcore
-"Regurgitate/Dead [Split 7" with Dead]" 1994, Grindcore
-"Effortless Regurgitation... The Torture Sessions" 1999, Grindcore
-"Carnivorous Erection" 2000, Grindcore
-"Sodomy And Carnal Assault [Split 7" with Gore Beyond Necropsy]" 2000, Grindcore
-"Freaks [Split 7" with Cripple Bastards]" 2002, Grindcore
-"Hatefiled Vengeance [EP]" 2002, Grindcore
-"Deviant" 2003, Grindcore
-"Regurgitate/Supposity [Split 7" with Suppository]" 2004, Grindcore
+Infernal Grindcore Assassins
+
+## Дискография
+
+### "Regurgitate/Grudge [Split 7" with Grudge]" 1993, Grindcore
+
+
+
+### "Concrete Human Torture [Demo]" 1994, Grindcore
+
+
+
+### "Effortless Regurgitation Of Bright Red Blood" 1994, Grindcore
+
+01. Intro: The Act Of Intestinal Regurgitation   
+02. Disgorging Foetus   
+03. Confluent Macular Drug Eruption   
+04. Bullous Impetigo   
+05. Fleshfeast   
+06. Anorectal Ulceration   
+07. Vulva Fermentation   
+08. Multicystic Kidney   
+09. Mucupurulent Offal Grinder   
+10. Total Dismemberment Of A Female Corpse   
+11. Carnal Cacophony   
+12. Vomit Breath   
+13. Complete Rectal Prolapse   
+14. Testicular Trauma   
+15. Genital Cancer   
+16. Malignant Tumor   
+17. Diffuse Systemic Scerosis   
+18. Owner Of A Necrotic Intestine   
+19. Newborn Regurgitation   
+20. Torsion Of The Testicle   
+21. Worm Eaten Rectum   
+22. Chronic Lymphatic Leukemie   
+23. Meatal Ulcer   
+24. Purulent Discharge From The Urethra   
+25. Vaginal Obstriction   
+26. Cloudy, Grayish Vomitus   
+27. Fleshmangler   
+28. Splattered Brains   
+29. Bulging Vaginal Septum   
+30. Acute Urinary Infection   
+31. Severe Necroses Of The Face   
+32. Bleeding Peptic Ulcer   
+33. Face Mutilation   
+34. Extensive Ulcerative Tumor   
+35. Tumescent Foetal Fluids To Expurgate   
+36. Carbonized Bowels   
+37. Effortless Regurgitation Of Bright Red Blood   
+
+(c) 1994 Lowland Records
+
+### "Regurgitate/Dead [Split 7" with Dead]" 1994, Grindcore
+
+
+
+### "Effortless Regurgitation... The Torture Sessions" 1999, Grindcore
+
+01. Intro: The Act Of Intestinal Regurgitation   
+02. Disgorging Foetus   
+03. Confluent Macular Drug Eruption   
+04. Bullous Impetigo   
+05. Fleshfeast   
+06. Anorectal Ulceration   
+07. Vulva Fermentation   
+08. Multicystic Kidney   
+09. Mucupurulent Offal Grinder   
+10. Total Dismemberment Of A Female Corpse   
+11. Carnal Cacophony   
+12. Vomit Breath   
+13. Complete Rectal Prolapse   
+14. Testicular Trauma   
+15. Genital Cancer   
+16. Malignant Tumor   
+17. Diffuse Systemic Scerosis   
+18. Owner Of A Necrotic Intestine   
+19. Newborn Regurgitation   
+20. Torsion Of The Testicle   
+21. Worm Eaten Rectum   
+22. Chronic Lymphatic Leukemie   
+23. Meatal Ulcer   
+24. Purulent Discharge From The Urethra   
+25. Vaginal Obstriction   
+26. Cloudy, Grayish Vomitus   
+27. Fleshmangler   
+28. Splattered Brains   
+29. Bulging Vaginal Septum   
+30. Acute Urinary Infection   
+31. Severe Necroses Of The Face   
+32. Bleeding Peptic Ulcer   
+33. Face Mutilation   
+34. Extensive Ulcerative Tumor   
+35. Tumescent Foetal Fluids To Expurgate   
+36. Carbonized Bowels   
+37. Effortless Regurgitation Of Bright Red Blood 
+38. Basic Torture Procedure
+39. Phrenetic Chainsaw Slaughter Of A Crippled Infant
+40. Revel In Menstrual Excrements
+41. Uncontrolled Anus Violation
+42. Drugged, Raped And Excreted  
+43. Self-Dismembered Foetus 
+44. Bloodspattered Wideopen Abdomen  
+45. Deranged Menarche Injection
+46. Bludgeoned To Death
+47. Drastical Decapitation Of A Raped Infant  
+48. Forced Abortion Through The Rectum
+49. Maiming The Defenseless
+50. Bloody Ejaculation
+51. Coprophagical Mutilator
+52. Putrid Reek Of Decomposed Embryos 
+53. Putrefactive Bowel Consumer   
+54. Frenzy Faecal Munching  
+55. Corpse Allergy   
+56. Sickening Thoughts   
+57. Brainscrambler 
+58. Regurgitated Giblets
+59. Methylated Bile  
+60. Liquid Excrements   
+61. Carnal Cacophony 
+62. Vomit Breath 
+63. Suicide...
+
+(c)&(p) 1999 Relapse Records
+
+Note:
+This CD makes up the bands early release, "Effortless Regurgitation of Bright Red Blood", their demo and various songs which appeared on 7 inch singles.
+
+### "Carnivorous Erection" 2000, Grindcore
+
+1. You're About To Fu*kin' Die 
+2. Domination Through Mutilation 
+3. Escort Service Of The Dead 
+4. Obscene Body Slayings 
+5. Fecal Freak 
+6. Humiliated In Your Own Blood 
+7. Just Another Stillborn 
+8. Parade Of The Decapitated Midgets 
+9. Ruptured Remains In A Doggybag 
+10. Copious Head Carnage 
+11. Carnivorous Erection 
+12. Relentless Pursuit Of Rotting Flesh 
+13. Swallow The Human Filth 
+14. Dismantle The Afterbirth 
+15. Choked In Shit 
+16. Funeral Genocide 
+17. Rancid Head Of Splatter 
+18. Rage Against Humanity 
+19. To Boil A Corpse  20. Bloody Pile Of Human Waste 
+21. Drenched In Cattleblood 
+22. Carbonated Death 
+23. Skull Of Shit and Sludge 
+24. Desperate Need For Violation 
+25. 37 Stabwounds 
+26. Vomified (Regurgitated To The Core) 
+27. Headless She Died 
+28. Breath Like Rotten Meat 
+29. I Wanna Kill 
+30. Claw-Hammer Castration 
+31. Festering Embryonic Vomit 
+32. Smeared With Bloodmixed Semen 
+33. The Pulsating Feast 
+34. Stinking Genital Warts 
+35. Pyronecrobestiality 
+36. Self Disembowelment 
+37. Savage Gorewhore 
+38. The Combustion and Consumption Of Pyorrheic Waste  
+
+### "Sodomy And Carnal Assault [Split 7" with Gore Beyond Necropsy]" 2000, Grindcore
+
+
+
+### "Freaks [Split 7" with Cripple Bastards]" 2002, Grindcore
+
+
+
+### "Hatefiled Vengeance [EP]" 2002, Grindcore
+
+01. Confluent Macular Drug Eruption
+02. Vulva Fermentation  
+03. Complete Rectal Prolapse 
+04. Testicular Trauma  
+05. Cloudy Grayish Vomitus 
+06. Fleshmangler   
+07. Bulging Vaginal Septum 
+08. Bleeding Peptic Ulcer  
+09. Deranged Menarche Injection   
+10. Drastical Decapitation 
+11. Emethic Jizz Treatment 
+12. Destined To Burn   
+13. Hatefilled Vengeance   
+14. 666 Casualties  
+15. Deathlike Incest  
+16. Choke That Piggy
+17. Devastation And Nuclear Apocalypse 
+18. Diciples Of Obliteration
+
+
+Recorded at Soundlab Studios September 2001
+Tracks 1-8  - Re-recorded tracks from "Effortless Regurgitation Of Bright Red
+Blood"
+Tracks 9-10 - Re-recorded tracks from "Concrete Human Torture" (Demo 1994)
+
+### "Deviant" 2003, Grindcore
+
+01. Drowning In Filth 
+02. Embrace Obscenity And Kiss The Eruption Of Destruction 
+03. Seal Your Doom
+04. Grotesque Anoplasty 
+05. Blind Fiends Of Chaos
+06. Visions Of Sodomy
+07. Severe Necrotic Manifesto 
+08. Annihilation Meets Depravation  
+09. Amphigory
+10. Screams Of Death Your God Won't Hear  
+11. Reeking Hellhole
+12. Lethean Sleep
+13. Waging War On Benevolence 
+14. Exterminate The Virtuous  
+15. Alone In Oblivion
+16. Deviant Malpractice
+17. The Ultimate Enslavement 
+18. Systematic Demoralization 
+19. Unfed
+20. Manipulation Reigns Supreme 
+21. Charred Remains (Unseen Terror)
+22. Crossed Out Existance
+23. Vice And Iniquity 
+24. Lobotochrist  
+25. Twisted Rhymes Of Perversion
+26. Depopulation Of The Human Race 
+27. Life Falls Before Our Feet
+
+### "Regurgitate/Supposity [Split 7" with Suppository]" 2004, Grindcore
+
+
+
 
 ## Отношения с другими группами
 

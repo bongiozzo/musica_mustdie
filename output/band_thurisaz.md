@@ -1,10 +1,63 @@
 # Thurisaz
 
-Дискография
-"Scent of a Dream" 2004, Death Metal
-"Circadian Rhythm" 2007, Black Metal
-"The Cimmerian Years" 2011, Black Metal
-"The Pulse of Mourning" 2015, Death Metal
+Atmospheric Death Black Metal
+
+## Дискография
+
+### "Scent of a Dream" 2004, Death Metal
+
+1. A Timeless Flame 07:11  
+2. Scent of a Dream 08:42  
+3. Years of Silence 07:19  
+4. When Images are Fading 04:50  
+5. Anno Viroviacum 05:32  
+6. Endless... 05:32 
+
+
+Pepijn de Raeymaecker - Drums / Whispers
+Mattias Theuwen - Guitar / Vocals
+Kobe Canniиre - Keyboards
+Lars Vereecke - Bass
+Peter Theuwen - Guitar / Grunts / Clean Vocals
+
+### "Circadian Rhythm" 2007, Black Metal
+
+1. Symbols
+2. Falling
+3. Point Of No Return
+4. Circadian Rhythm
+5. Fading Dreams
+6. Switch To Red
+7. Impending...
+8. ...Betrayal
+9. Past Perfect
+
+### "The Cimmerian Years" 2011, Black Metal
+
+1.	 Broken	02:01
+2.	 My Precious Unknown	05:47
+3.	 Second Mirror	06:31
+4.	 No Regrets	07:48
+5.	 Fare Thee Well	04:34
+6.	 The Carnival of Miscreation	07:47
+7.	 Inner Voices	02:54
+8.	 Unhealed	08:01
+9.	 A Glance of Misperception	08:52
+
+### "The Pulse of Mourning" 2015, Death Metal
+
+1. Longing...  03:06    
+2. ...for a Change  02:39    
+3. Patterns of Life  07:00    
+4. Tangram  04:16    
+5. Rays of Light  06:25    
+6. One Final Step  08:02    
+7. Enslaved Dreams  01:21    
+8. In All Remembrance  06:49    
+9. Stargaze  04:31   
+
+
+
 
 ## Отношения с другими группами
 

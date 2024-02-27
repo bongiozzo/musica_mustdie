@@ -1,7 +1,24 @@
 # Svartpest
 
-Дискография
-"Ved Den Drabelige Inngang Til Helvete" 2003, Black Metal
+
+
+## Дискография
+
+### "Ved Den Drabelige Inngang Til Helvete" 2003, Black Metal
+
+1. Ved Den Drabelige Inngang Til Helvete 02:51  
+2. Det Stolte Norske Rike 02:32  
+3. I Skapelsen Av Det Kolde… 02:36  
+4. En Hyllest Til Norge Vaart Land 03:08  
+5. I Sannhet Var 03:26  
+6. Drep De Harmloese 03:26  
+7. I Vaar Tilbakevendtes Herre Navn 03:02  
+8. Lokket In I Skyggens Grep 01:59  
+9. Den Gjeld De Har, I Blod 03:17  
+10. I Skogens Moerke 06:58  
+11. Seier 06:30  
+12. Med Blodstaur Skal Dei… 02:24 
+
 
 ## Отношения с другими группами
 

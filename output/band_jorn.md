@@ -1,6 +1,9 @@
 # Jorn
 
-Дискография
+Jorn Lande (solo-project) см. Lande Jorn
+
+## Дискография
+
 
 ## Отношения с другими группами
 

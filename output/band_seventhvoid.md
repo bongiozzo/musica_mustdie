@@ -1,7 +1,22 @@
 # Seventh Void
 
-Дискография
-"Heaven Is Gone " 2009, Doom
+
+
+## Дискография
+
+### "Heaven Is Gone " 2009, Doom
+
+01. Closing In - 3:59 (Brown, Matt/Hickey, Kenny)
+02. Heaven Is Gone - 4:37 (Brown, Matt/Hickey, Kenny)
+03. The End of All Time - 4:49 (Hickey, Kenny)
+04. Broken Sky - 3:13 (Hickey, Kenny)
+05. Killing You Slow - 4:58 (Hickey, Kenny)
+06. Descent - 4:10 (Hickey, Kenny)
+07. Shadow on Me - 4:09 (Hickey, Kenny)
+08. Drown Inside - 3:32 (Hickey, Kenny)
+09. Death of a Junkie - 5:41 (Hickey, Kenny)
+10. Last Walk in the Light - 3:11 (Hickey, Kenny)
+
 
 ## Отношения с другими группами
 

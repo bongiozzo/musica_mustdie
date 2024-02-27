@@ -1,7 +1,13 @@
 # 8thsin
 
-Дискография
-"Sinners Inc." 2005, Electronic
+
+
+## Дискография
+
+### "Sinners Inc." 2005, Electronic
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,12 +1,200 @@
 # Halford
 
-Дискография
-"Resurrection" 2000, Heavy Metal
-"Live Insurrection" 2001, Heavy Metal
-"Crucible" 2002, Heavy Metal
-"Metal God Essentials: Volume 1" 2006, Heavy Metal
-"Winter Songs" 2009, Heavy Metal
-"Halford IV - Made of Metal" 2010, Heavy Metal
+Cool Heavy Metal
+
+## Дискография
+
+### "Resurrection" 2000, Heavy Metal
+
+Resurrection 
+Made In Hell 
+Locked And Loaded 
+Night Fall 
+Silent Screams 
+The One You Love To Hate 
+Cyberworld 
+Slowdown 
+Twist 
+Temptation 
+Drive 
+Saviour
+
+### "Live Insurrection" 2001, Heavy Metal
+
+Disc 1 
+1. Resurrection 04:02  
+2. Made In Hell 04:14  
+3. Into The Pit 04:15 
+4. Nailed To The Gun 03:35  
+5. Light Comes Out Of Black 05:01 
+6. Stained Class 05:33 
+7. Jawbreaker 03:25 
+8. Running Wild 03:02 
+9. Slow Down 04:40 
+10. The One You Love To Hate (featuring Bruce Dickinson) 03:12
+11. Life in Black 04:26 
+12. Hell`s Last Survivor 03:25
+13. Sad Wings 03:33
+14. Saviour 02:58
+15. Silent Screams 07:32 
+Disc 2 
+1. Intro 00:14  
+2. Cyberworld 03:05 
+3. The Hellion 00:48  
+4. Electric Eye 03:29
+5. Riding On The Wind 03:11  
+6. Genocide 07:36 
+7. Beyond The Realms Of Death 06:52
+8. Metal Gods 04:34 
+9. Breaking The Law 03:50
+10. Tyrant 04:41
+11. Screaming In The Dark 03:42
+12. Heart Of A Lion 03:51  
+13. Prisoner Of Your Eyes 04:34 
+
+
+
+Rob Halford - Vocals
+Patrick Lachman - Guitars
+''Metal'' Mike Claschiak - Guitars
+Ray Riendeau - Bass
+Bobby Jarzombek - Drums
+
+"Screaming In the Dark" is a new Halford studio track.
+
+"Heart of A Lion" and "Prisoner of Your Eyes" are Judas Priest songs that never
+made it onto a studio album.
+
+The Japanese version contains a cover of The Scorpions' "Blackout" with Rudolf
+Schenker on guitar. 
+
+### "Crucible" 2002, Heavy Metal
+
+1. Park Manor 01:11  
+2. Crucible 04:27
+3. One Will 03:32  
+4. Betrayal 03:04 
+5. Handing Out Bullets 03:16
+6. Hearts of Darkness 03:48 
+7. Crystal 04:38  
+8. Heretic 03:49 
+9. Golgotha 04:21 
+10. Wrath of God 03:12  
+11. Weaving Sorrow 03:28  
+12. Sun 03:48 
+13. Trail of Tears 04:27 
+
+
+Lineup:
+Rob Halford - vocals
+Patrick Lachman - guitar
+''Metal'' Mike Chlasciak - guitar
+Ray Riendeau - bass
+Bobby Jarzombek - drums
+
+European/American bonus tracks on first 20,000 copies:
+14. She
+15. Fugitive
+
+Japanese bonus tracks:
+14. Rock the World Forever
+15. In the Morning
+
+The versions with bonus tracks have 1:30 of silence between "Trail of Tears"
+and track 14. 
+
+### "Metal God Essentials: Volume 1" 2006, Heavy Metal
+
+1. 'Resurrection' (Resurrection 2000/2006) 03:58  
+2. 'Made In Hell' (Resurrection 2000/2006) 04:11  
+3. 'Screaming In The Dark' (Live Insurrection 2001/2006) 03:37
+4. 'Golgotha' (Crucible 2002/2006) 04:22 
+5. 'Silent Screams' - 1999 Demo (1999/2006) 07:14  
+6. 'Crystal' (Crucible 2002/2006) 04:47  
+7. 'Into The Pit' (New K5 - 1992/2006) 04:34 
+8. 'Nailed To The Gun' (New K5 - 1992/2006) 03:33 
+9. 'Slow Down' (Resurrection 2000/2006) 04:49  
+10. 'Forgotten Generation' (New - 2006) 03:17 
+11. 'Drop Out' (New - 2006) 04:34 
+12. 'Locked And Loaded' (Resurrection 2000/2006) 03:38
+13. 'War Of Words' (New K5 - 1992/2006) 04:56  
+14. 'Sun' (Crucible 2002/2006) 03:49 
+15. 'Trail Of Tears' (Crucible 2002/2006) 04:27 
+
+
+
+iTunes exclusive release
+The Halford: Metal God Essentials - Volume 1 (2006) iTunes digital pack
+features: mastered audio, new art by artist Marc Sasso, and expanded liner
+notes/exclusive media at RobHalford.com with your iTunes order number. Bonus era
+film footage of Halford performing 'Forgotten Generation' is packaged with your
+full-album iTunes digital download purchase.
+
+Tracks 7, 8, and 13 are demo recordings taken from the Fight K5 sessions.
+Tracks 10 and 11 are new tracks and are said to be included on the upcoming
+Halford album release.
+
+A special limited edition digipack version was released. It is limited to 5000
+copies and features embossed limited edition numbering. There is one bonus track
+and a bonus DVD. The bonus track is:
+
+16. Hypocrisy (exclusive U.S. mix)
+
+Bonus DVD (HALFORD promotional videos):
+
+01. Resurrection (behind the scenes Rob Halford Vox sessions)
+02. Live Insurrection (behind the scenes HALFORD band on tour)
+03. Made In Hell (video)
+04. Betrayal (Video)
+05. In The Morning (video)
+06. Silent Screams (Live at Rock In Rio III)
+07. Never Satisfied (Live Crucible film)
+08. Forgotten Generation (video)
+
+The first pressing of the Japanese edition comes with the DVD and a bonus audio
+CD:
+1. Vendetta (Australian/So America Mix)
+2. Redemption (European Mix)
+3. Resistance (Canadian Mix)
+4. Defiance (Japan Mix) 
+
+### "Winter Songs" 2009, Heavy Metal
+
+1. Get Into the Spirit   
+2. What Child Is This   
+3. Oh Emanuel   
+4. Winter Song   
+5. We Three Kings   
+6. Oh Holy Night   
+7. When Christmas Comes for Everyone   
+8. Oh Come All Ye Faithful   
+9. I Don't Care If It's Christmas Night 
+
+
+### "Halford IV - Made of Metal" 2010, Heavy Metal
+
+1. Undisputed 05:17  
+2. Fire and Ice 02:52  
+3. Made of Metal 03:55  
+4. Speed of Sound 04:32  
+5. Like There's No Tomorrow 04:20  
+6. Till The Day I Die 03:50  
+7. We Own the Night 03:54  
+8. Heartless 03:38  
+9. Hell Razor 03:44  
+10. Thunder and Lightning 05:28  
+11. Twenty-Five Years 07:01  
+12. Matador 05:39  
+13. I Know We Stand a Chance 03:51  
+14. The Mower 04:37 
+
+
+Rob Halford - Vocals 
+Metal Mike Chlasciak - Guitars
+Roy "Z." Ramirez - Guitars 
+Mike Davis - Bass 
+Bobby Jarzombek - Drums
+
 
 ## Отношения с другими группами
 

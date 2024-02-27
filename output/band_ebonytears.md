@@ -1,9 +1,43 @@
 # Ebony Tears
 
-Дискография
-"Tortura Insomniae" 1997, Melodic Death Metal
-"A Handful of Nothing" 1999, Melodic Death Metal
-"Evil as Hell" 2001, Thrash
+
+
+## Дискография
+
+### "Tortura Insomniae" 1997, Melodic Death Metal
+
+1. Moonlight
+2. Freak Jesus
+3. Nectars Of Eden
+4. With Tears In My Eyes
+5. Involuntary Existance
+6. Opacity
+7. Spoonbender
+8. Evergrey
+9. Skunk Hour
+
+### "A Handful of Nothing" 1999, Melodic Death Metal
+
+01. Inferno 
+02. Harvester Of Pain 
+03. A Handful Of Nothing 
+04. Scenario 
+05. When Depression Speaks
+06. Erised
+07. Cosmical Transformation
+08. The End
+
+### "Evil as Hell" 2001, Thrash
+
+01. Deviation
+02. Soulcrusher 
+03. Outrage 
+04. Negative Creep
+05. Lowdown
+06. Hands Of Doom
+07. Lucified... Evil As Hell
+08. Deamon Ride
+
 
 ## Отношения с другими группами
 

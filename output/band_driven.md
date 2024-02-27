@@ -1,7 +1,31 @@
 # Driven
 
-Дискография
-"Self Inflicted" 2001, Hardcore
+
+
+## Дискография
+
+### "Self Inflicted" 2001, Hardcore
+
+1. World To Me
+2. Necessary
+3. Shine
+4. No 1 2 U
+5. The Best Of Me
+6. Driven
+7. Mr. Perfect
+8. Pump
+9. Speck (a 2nd Movement In c#minor)
+10. Bittersweet
+11. The Lorax
+12. Come Clean
+
+Timm Saxton - Vocals
+Tracy G - Guitar
+Larry "Bones" Dennison - Bass
+Mike Terrana - Drums
+
+
+
 
 ## Отношения с другими группами
 

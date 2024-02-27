@@ -1,7 +1,24 @@
 # Jasser Arafats, The
 
-Дискография
-"Condemnation" 2010, Thrash
+
+
+## Дискография
+
+### "Condemnation" 2010, Thrash
+
+1. Crawl To...	 
+2. Condemnation	 
+3. Empty Horizon	 
+4. Gun=Life	 
+5. Price	 
+6. Diseased	 
+7. Checkmate	 
+8. Ritual Of Justice	 
+9. Stillborn	 
+10. Alone	 
+11. Axis Reborn	 
+12. Kaos
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,38 @@
 # Perialnыe Kondilomы
 
-Дискография
-"Polymorphism Of Structural Heterohromatine" 2009, Grindcore
+
+
+## Дискография
+
+### "Polymorphism Of Structural Heterohromatine" 2009, Grindcore
+
+1. Intro – Уникал   
+2. Недержание кала (Encopresis)   
+3. Болезнь с запахом клёнового сиро   
+4. Пассивная копрофилия   
+5. Жопа под маринадом   
+6. Геникомастия   
+7. Синдром горящего ануса   
+8. Симптом граммофона   
+9. Самоизнасилование (часть1)   
+10. Вакуумный самоотсос   
+11. Just short of the line   
+12. Анальная деформация   
+13. Синдром неразличённого половог&#   
+14. Клинопись   
+15. Синдром скрытого полового члена   
+16. Симмулированая эякуляция   
+17. Залёт через рот   
+18. Миграция яичка   
+19. Кукла маша   
+20. Спазм пизды   
+21. Самоизнасилование с залётом   
+22. Самоубийство через мастурбацию   
+23. Полиморфизм структурного гетер&#   
+24. Outro   
+25. Anal deformation (Copro Party Mix by Diversant:13) (Bonus track)   
+26. Vagina real history, Dima is here (new edit Equinox Syndicate Cult mix) (Bonus track) 
+
 
 ## Отношения с другими группами
 

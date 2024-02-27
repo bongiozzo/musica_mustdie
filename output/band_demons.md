@@ -1,7 +1,46 @@
 # Demons
 
-Дискография
-"Сладкая Розмари" 2001, Deathcore
+shock/horror metal
+
+## Дискография
+
+### "Сладкая Розмари" 2001, Deathcore
+
+Пульсар (интро) 
+Сладкая Розмари 
+В Храм Пытки и Оргазма 
+Умри под мой рок'н'ролл 
+Вечное рабство 
+Угости меня собой
+Цепь 
+Трасса 666 
+Луна-парк 
+Облизни 
+
+
+
+Kрок -drums
+Ал.Дронов -Keys
+Blackie Spears -vocals
+Пан - bass
+Протеус - guitars 
+
+Записано и сведено на студии Pro-Sound (октябрь-декабрь 99)
+Звукоинженер Коля Черкасов
+Пре-мастеринг - Сева Устинов gala Records
+Дизайн обложки - Троицкий Д. (Satyr)
+Фото группы - Ольга Чумаченко
+
+Recorded and mixed at PRO-SOUND
+Records by Cherkasov N.,octobe r- december'99
+AH music written by PROTEUS except (5), (6), (8) by PAN
+All lyrics written by BLACKIE SPEARS except (5) by PAN
+CyberFX & arrangement by Al DRONOFF
+Covers inlay design by D.TROITSKY (SATYR)
+satyr@rambler.ru
+Cover photo "The Pig "is taken from David
+LaChapelle's works 
+
 
 ## Отношения с другими группами
 

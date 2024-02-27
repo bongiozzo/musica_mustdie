@@ -1,10 +1,35 @@
 # Avenger
 
-Дискография
-"Minster Of Madness (demo)" 1994, Death Metal
-"The Black Zone (demo)" 1995, Death Metal
-"Shadows Of The Damned" 1996, Death Metal
-"Fall Of Devotion - Wrath And Blasphemy" 2001, Death Metal
+Czech black-death metal band
+
+## Дискография
+
+### "Minster Of Madness (demo)" 1994, Death Metal
+
+
+
+### "The Black Zone (demo)" 1995, Death Metal
+
+
+
+### "Shadows Of The Damned" 1996, Death Metal
+
+1. Preludium
+2. Koreny Zla
+3. Monstra
+4. Nelze Zapomenout
+5. Za Svitu Luny .... Inkvizice
+6. Tam Dole
+7. Odvracena Tvar Boha
+
+Bonus Tracks:
+8. Kolem Kotle (Master‘s Hammer)
+9. Cry Of Mankind (My Dying Bnde)
+
+### "Fall Of Devotion - Wrath And Blasphemy" 2001, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

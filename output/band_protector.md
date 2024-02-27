@@ -1,14 +1,164 @@
 # Protector
 
-Дискография
-"Misanthropy (EP)" 1987, Thrash
-"Golem" 1988, Thrash
-"Urm The Mad" 1989, Thrash
-"Leviathan`s Desire (EP)" 1990, Thrash
-"A Shedding Of Skin" 1991, Thrash
-"The Heritage" 1993, Thrash
-"Reanimated Homunculus" 2013, Thrash
-"Cursed And Coronated" 2016, Thrash
+German Legend
+
+## Дискография
+
+### "Misanthropy (EP)" 1987, Thrash
+
+1. Intro
+2. Misanthropy
+3. Holy Inquisition
+4. Agoraphobia
+5. The Mercenary
+6. Kain And Abel
+7. Holocaust
+
+ Michael Hasse - Drums
+ Hansi Muller - Guitar
+ Martin Missy - Vocal
+ Ede Belichmeier - Bass
+
+(p)&(c) 1987 ATOM H Records
+
+### "Golem" 1988, Thrash
+
+1. Delirium Tremens
+2. Apocalyptic Revelations
+3. Golem
+4. Protector Of Death
+5. Operation Plaga Extrema
+6. Megalomania
+7. Only the Strong Survive
+8. Omnipresent Aggression
+9. Space Cake
+
+ Michael Hasse - Drums
+ Hansi Muller - Guitar
+ Martin Missy - Vocal
+ Ede Belichmeier - Bass
+
+(p)&(c) 1988 ATOM H Records
+
+
+### "Urm The Mad" 1989, Thrash
+
+1. Capitascism
+2. Sliced, Hacked And Grinded
+3. Nothing Has Changed
+4. The Most Repugnant Antagonist Of Life
+5. Quasimodo
+6. Urm The Mad
+7. Decadence
+8. Atrocities
+9. Molotow Cocktail
+
+ Michael Hasse - Drums
+ Hansi Muller - Guitar
+ Martin Missy - Vocal
+ Ede Belichmeier - Bass
+
+All Music By PROTECTOR
+All Lyrics By M.Missy
+Recorded August 1989 At Phoenix Studios,Bochum
+Engineered And Produced By Jorg Stegert
+
+(p)+(c) 1989 ATOM H Records
+
+
+### "Leviathan`s Desire (EP)" 1990, Thrash
+
+1. Intro
+2. Humanized Leviathan
+3. Subordinate
+4. Mortal Passion
+5. Kain And Abel (Extended Version)
+
+ Michael Hasse - Drums
+ Hansi Muller - Guitar
+ Oliver Wiebel - Vocal
+ Eduard Belichmeier - Bass
+
+(p)&(c) 1990 ATOM H Records
+
+### "A Shedding Of Skin" 1991, Thrash
+
+1. Intro
+2. Mortuary Nightmare
+3. A Shedding Of Skin
+4. Face Fear
+5. Retribution In Darkness
+6. Doomed To Falure
+7. Thy Will Be Done
+8. Whom Gods Destroy
+9. Necropolis
+10.Tantalus
+11.Death Comes Soon
+12.Unleashed Terror
+13.Toward Destruction
+
+ Oliver Wiebel -  Vocals,Guitar
+ Matze  -  Bass
+ Michael  -  Drums
+
+Produced By Harris Johns
+
+(p)&(c) 1991 MAJOR Records
+
+### "The Heritage" 1993, Thrash
+
+1. Mental Malaria
+2. Scars Bleed Life Long
+3. The Heritage
+4. Lost Properties
+5. Convicts On The Street
+6. Protective Unconsciousness
+7. Paralizer
+8. Chronology
+9. Palpitation
+10.Outro
+
+ Olly Wieber - Guitar, Vox
+ Matze Grьn - Bass, Back Vox
+ Marco Pape - Drums
+
+All Songs Written By PROTECTOR
+Produced By Tim Buktu
+Engineered By Tim Buktu & Unkas
+Recorded At T&T Studio, Gelsenkirchen
+
+(p)&(c) 1993 MAJOR Records GmbH
+
+### "Reanimated Homunculus" 2013, Thrash
+
+01. Sons Of Kain
+02. Deranged Nymphomania
+03. Holiday In Hell
+04. Reanimated Homunculus
+05. Birth Of A Nation
+06. Lycopolis
+07. Road Rage
+08. Antiman
+09. The End
+10. Calle Brutal
+
+### "Cursed And Coronated" 2016, Thrash
+
+01. Intro
+02. Xenophobia
+03. Selfdesdrugtion
+04. Crosses In Carelia
+05. Cursed And Coronated
+06. Six Hours On The Cross
+07. Base 104
+08. The Dimholt
+09. To Serve And Protect
+10. Terra Mater
+11. The Old Boil
+12. Intro / Misanthropy (Live)
+13. Sliced, Hacked And Grinded (Live)
+14. Protector Of Death (Live)
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,36 @@
 # Black Majesty
 
-Дискография
-"Sands Of Time" 2003, Heavy Metal
-"Silent Company" 2005, Heavy Metal
+
+
+## Дискография
+
+### "Sands Of Time" 2003, Heavy Metal
+
+Fall Of The Reich 
+Legacy 
+Guardian 
+Sands Of Time 
+Destination 
+Journeys End 
+Colliding Worlds 
+No Sanctuary
+Beyond Reality 
+Lady Of The Lake
+
+### "Silent Company" 2005, Heavy Metal
+
+Dragon Reborn 
+Silent Company 
+Six Ribbons 
+Firestorm 
+New Horizons 
+Darkened Room 
+Visionary 
+Never Surrender 
+A Better Way to Die
+Chasing Time (bonus)
+Silent Company (bonus video)
+
 
 ## Отношения с другими группами
 

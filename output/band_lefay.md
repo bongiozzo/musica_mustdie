@@ -1,9 +1,51 @@
 # Lefay
 
-Дискография
-"The Seventh Seal" 1999, Power Metal
-"Symphony Of The Damned" 1999, Power Metal
-"SOS" 2000, Power Metal
+(ex-Morgana Lefay)
+
+## Дискография
+
+### "The Seventh Seal" 1999, Power Metal
+
+01. End Of Living 
+02. The Seventh Seal 
+03. I Am 
+04. The Boon He Gives 
+05. Moonlit Night 
+06. Child Of Time 
+07. Harga 
+08. So Strange 
+09. As Far As I Can Go 
+10. Shadow Empire
+
+### "Symphony Of The Damned" 1999, Power Metal
+
+01. The Whore Of Babylon 
+02. Symphony Of The Damned 
+03. Fatal Illusions 
+04. Last Rites 
+05. Lullaby 
+06. The Secret Doctrine 
+07. Tequila 
+08. Catacombs 
+09. War Without End 
+10. Crazy (Bonus track) 
+11. Captain Howdy (Bonus track) 
+12. Strange Way (Bonus track) 
+13. Cocaine (Bonus track)
+
+### "SOS" 2000, Power Metal
+
+01. Save Our Souls 
+02. Cimmerian Dream 
+03. Sleepwalker 
+04. Epicedium 
+05. When Gargoyles Fly 
+06. What Dreams Forebode 
+07. Bloodred Sky 
+08. Help Me Out Of Here 
+09. The Quest For Reality 
+10. The Choice
+
 
 ## Отношения с другими группами
 

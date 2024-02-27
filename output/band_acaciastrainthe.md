@@ -1,12 +1,33 @@
 # Acacia Strain, The
 
-Дискография
-"...And Life Is Very Long" 2002, Deathcore
-"3750" 2004, Deathcore
-"The Dead Walk" 2006, Deathcore
-"Continent" 2008, Deathcore
-"Wormwood" 2010, Deathcore
-"Death Is The Only Mortal" 2012, Deathcore
+
+
+## Дискография
+
+### "...And Life Is Very Long" 2002, Deathcore
+
+
+
+### "3750" 2004, Deathcore
+
+
+
+### "The Dead Walk" 2006, Deathcore
+
+
+
+### "Continent" 2008, Deathcore
+
+
+
+### "Wormwood" 2010, Deathcore
+
+
+
+### "Death Is The Only Mortal" 2012, Deathcore
+
+
+
 
 ## Отношения с другими группами
 

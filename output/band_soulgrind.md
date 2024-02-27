@@ -1,7 +1,28 @@
 # Soulgrind
 
-Дискография
-"Ladit AD 1999: Bihttpotv" 1996, Gothic
+Gothic Black Industrial
+
+## Дискография
+
+### "Ladit AD 1999: Bihttpotv" 1996, Gothic
+
+1.  Introitus Nostradamus
+2.  Black Orchid
+3.  Darkseed Lust
+4.  As Shadows Whisper The Shine
+5.  Shamanic Extasy
+6.  Elaman Kierre
+7.  The Pandemonium Of The Bizarre
+8.  Immortal Desire
+9.  Industrial Holocaust (Inferia)
+10.The End Of All
+
+Recorded at Purgatory Studios, 1994 by Tussi Heikkinen.
+Mixed at Catacomb and Manken Studios, 1994 by Heikkinen and Tuha Kaivola.
+Cover artwork by Tussi Heikkinin and Joni Stolt.
+
+(p)(c) 1996 MMI Records MMI 020
+
 
 ## Отношения с другими группами
 

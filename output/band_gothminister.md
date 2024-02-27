@@ -1,9 +1,47 @@
 # Gothminister
 
-Дискография
-"Gothic Electronic Anthems" 2003, Industrial
-"Empire Of Dark Salvation" 2005, Industrial
-"Happiness In Darkness" 2008, Industrial
+gothic-industrial
+
+## Дискография
+
+### "Gothic Electronic Anthems" 2003, Industrial
+
+
+
+### "Empire Of Dark Salvation" 2005, Industrial
+
+1.    Dark Salvation
+2.    Welcome
+3.    Monsters
+4.    The Calling
+5.    Daughter of S
+6.    Forgotten
+7.    Nachtzehrer
+8.    Leviathan
+9.    Swallowed by the Earth
+10.    We die in Dreams
+11.    Gates of Salvation
+12.    Happiness in Darkness
+
+music, words, voices, programming - Gothminister (Bjorn Alexander Brem)
+additional voices - Dementia
+guitars & bass - Bjorn Aadland
+guitars - Rico Darum
+programming - Andy Moxnes
+orchestral arrangements - Peder Goatfather Kjellsby
+
+### "Happiness In Darkness" 2008, Industrial
+
+01. Dusk Till Dawn [04:42]
+02. Darkside [03:55]
+03. Your Saviour [03:49]
+04. Freak [04:02]
+05. Sideshow [04:59]
+06. The Allmighty [02:06]
+07. Beauty After Midnight [04:19]
+08. Emperor [04:25]
+09. Mammoth [03:47]
+
 
 ## Отношения с другими группами
 

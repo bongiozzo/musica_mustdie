@@ -1,11 +1,98 @@
 # Abdullah
 
-Дискография
-"Snake Lore" 1999, Doom
-"Abdullah" 2000, Doom
-"Graveyard Poetry" 2002, Doom
-"Demos 2003" 2003, Death Doom
-"Glisten" 2003, Doom
+doom rock
+
+## Дискография
+
+### "Snake Lore" 1999, Doom
+
+1. The Path to Enlightenment
+2. Distant Lights / Sot-Weed
+3. In the Belly of the Beast
+4. Firmament / Lam
+5. The Sickness Unto Death
+6. The Black Ones
+
+Jeff Shirilla - Drums,vocals
+Alan Seibert - Guitars,bass
+
+Recorded between April 12th and October 3rd,1999 on Tascam 424 by J. Shirilla
+Digitally mastered by Paul Hamann at SUMA Sound Recording
+Released on Rage of Achilles June 12th,2000
+
+### "Abdullah" 2000, Doom
+
+1. The Path to Enlightenment
+2. Conundrum
+3. Earth's Answer
+4. Visions of the Daughters of Time
+5. Now Is the Winter
+6. Lucifer in Starlight
+7. The Black Ones
+8. Awakening the Colossus
+9. Proverbs of Hell
+10. Journey to the Orange Island
+11. Lotus Eaters
+
+Jeff Shirilla: vocals, drums
+Alan Seibert: guitars
+Jameson Walters: bass
+Ed Milich: additional bass
+
+Released December 12th, 2000 on MeteorCity Records
+Recorded in July 2000 by Paul Hamann at Suma recording studio
+
+### "Graveyard Poetry" 2002, Doom
+
+1. Rune
+2. Black Helicopters
+3. A Dark but Shining Sun
+4. The Whimper of Whipped Dogs
+5. Deprogrammed
+6. Pantheistic
+7. Beyounf the Mountain
+8. Salamander
+9. Strange Benedictions
+10. Secret Teaching of Lost Ages
+11. Medicine Man
+12. Guided by the Spirit
+13. Behold a Pale Horse
+14. They, the Tyrants
+
+Jeff Shirilla - vocals
+Alan Seibert - guitars
+Ed Stephens - bass
+Jim Simonian - drums
+
+Released October 8th, 2002 on MeteorCity Records
+Recorder between April and May 2002 by Paul Hamann at Suma recording studio
+
+### "Demos 2003" 2003, Death Doom
+
+1. Ribbons
+2. Burning Away
+3. With Guilt
+4. Bones and Ashes
+5. Hybrid Moments (Misfits cover)
+
+Jeff Shirilla: vocals
+Alan Seibert: guitars
+Aaron Dallison: guitars
+Ed Stephens: bass
+Jameson Walters: drums
+
+Self-released CD-R
+Recorded May 8th and 9th, 2003 by Pat Lewis at MJR
+Mastered by Jeff at Forked Tongue
+
+### "Glisten" 2003, Doom
+
+1. Glisten
+
+7" EP split with Nephusim
+Recorded May 2003 by Jeff at Forked Tongue
+Released October 2003 by Obscure Sombre Records
+
 
 ## Отношения с другими группами
 

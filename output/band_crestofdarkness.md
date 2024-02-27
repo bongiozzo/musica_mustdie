@@ -1,12 +1,56 @@
 # Crest of Darkness
 
-Дискография
-"Quench My Thirst" 1996, Black Metal
-"The Ogress" 1999, Black Metal
-"Project Regeneration" 2000, Black Metal
-"Evil Knows Evil" 2004, Black Metal
-"Give Us the Power to Do Your Evil" 2007, Black Metal
-"In the Presence of Death" 2013, Black Metal
+Satanic Norwegian Black Metal With Goth Elements
+
+## Дискография
+
+### "Quench My Thirst" 1996, Black Metal
+
+1.  On A Sea Of Darkness
+2.  Quench My Thirst
+3.  This Is The Mourning Of Magic
+4.  Absorption
+
+All music and lyrics by Angar Amlien.
+Produced and Engineered by Nils Harald Maehlum.
+Recorded and Mixed at MLP Studio.
+Cover artwork by Angar Amlien.
+
+Angas Amlien - Vocals, Guitars, Bass
+Nils Harald Maehlum - Drums
+Lars Christian Narum - Keyboards
+
+(P)c 1996 HEAD NOT FOUND Records // HNF 020
+
+### "The Ogress" 1999, Black Metal
+
+
+
+### "Project Regeneration" 2000, Black Metal
+
+
+
+### "Evil Knows Evil" 2004, Black Metal
+
+1. Chapter One
+2. Inexplicable Bloodthirstiness
+3. From The Shadows 
+4. Black Hole Mystery
+5. Power Of Hate
+6. The Lust
+7. As A Part Of Your Universe
+8. Cosmic Terror
+9. The Greatest Gift (instrumental)
+10. Warhead 666
+
+### "Give Us the Power to Do Your Evil" 2007, Black Metal
+
+
+
+### "In the Presence of Death" 2013, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

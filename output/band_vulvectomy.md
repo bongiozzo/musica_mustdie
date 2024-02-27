@@ -1,7 +1,26 @@
 # Vulvectomy
 
-Дискография
-"Putrescent Clitoral Fermentation" 2007, Death Metal
+
+
+## Дискография
+
+### "Putrescent Clitoral Fermentation" 2007, Death Metal
+
+1. Festering Detatched Genitals 03:56  
+2. Pusfull Hymen Liquified 03:36  
+3. Depilated Cunt Twitch 03:39  
+4. Masturbating with Defecated Entrails 04:16  
+5. Putrescent Clitoral Fermentation 04:13  
+6. Regurgitation of Menstrual Scabs 03:51  
+7. Fornicate In Putrefaction 04:05  
+8. Postmortal Orifice Lubrication 03:40 
+
+
+Diego Fanelli - Vocals 
+Mario Di Giambattista - Guitar, drum programming  
+Marco Diciolla - Bass 
+
+
 
 ## Отношения с другими группами
 

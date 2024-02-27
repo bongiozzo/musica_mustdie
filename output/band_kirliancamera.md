@@ -1,7 +1,23 @@
 # Kirlian Camera
 
-Дискография
-"Coroners Sun" 2007, Gothic
+
+
+## Дискография
+
+### "Coroners Sun" 2007, Gothic
+
+01 Panic Area (2.35)
+02 Coroner's Sun (Official Version) (5.27)
+03 Beauty As A Sin (4.09)
+04 Illegal Apology Of Crime (4.27)
+05 Kaczynski Code (6.29)
+06 CIA Haunted Headquarters (2.36)
+07 No One Remained (5.19)
+08 Koma-Menschen (7.39)
+09 Citizen Una (5.38)
+10 The Day Of Flowers (incl. "Il Cielo Prima Della
+Fine") (6.33)
+
 
 ## Отношения с другими группами
 

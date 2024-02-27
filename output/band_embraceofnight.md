@@ -1,7 +1,13 @@
 # Embrace Of Night
 
-Дискография
-"With Purest Blackness" 2000, Black Metal
+dark metal
+
+## Дискография
+
+### "With Purest Blackness" 2000, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

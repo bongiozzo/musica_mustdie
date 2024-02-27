@@ -1,7 +1,28 @@
 # Gloom
 
-Дискография
-"Nostalgia" 2006, Ambient
+
+
+## Дискография
+
+### "Nostalgia" 2006, Ambient
+
+1. Sorrowfilled   
+2. Time that united Us  
+3. Kiss to Goodbye (Farewell)  
+4. Buried Alive in Your Heart   
+5. Love Never Dies 
+6. In Loving Memory   
+7. Alone 
+8. Dead Romance  
+9. Nostalgia 
+
+
+Radoslav Priputen - drums
+Igor Tinak – guitars
+Tomas Misick – guitars
+Ivan Elias – bass
+Ondrej Blascak – keyboards
+
 
 ## Отношения с другими группами
 

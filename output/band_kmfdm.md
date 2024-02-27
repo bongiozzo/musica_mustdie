@@ -1,22 +1,280 @@
 # KMFDM
 
-Дискография
-"What Do You Know, Deutschland ?" 1986, Industrial
-"Don't Blow Your Top" 1988, Industrial
-"Uaioe" 1989, Industrial
-"Money" 1992, Industrial
-"Angst" 1993, Industrial
-"Naive / Hell To Go" 1994, Industrial
-"Nihil" 1995, Industrial
-"Juke-Joint Jesebel" 1995, Industrial
-"Xtort" 1996, Industrial
-"Retro" 1996, Industrial
-"Symbols" 1997, Industrial
-"Agogo" 1998, Industrial
-"Adios" 1999, Industrial
-"Attak" 2002, Industrial
-"WWIII" 2003, Industrial
-"Hau Ruck" 2005, Industrial
+KEIN MEHRHEIT FUR DIE MITLEID/Kill Mother Fucking Depeche Mode
+
+## Дискография
+
+### "What Do You Know, Deutschland ?" 1986, Industrial
+
+KICKIN' ASS 
+ME I FUNK 
+WHAT DO YOU KNOW? 
+CONILLON
+ITCHY-BITCHY
+DEUTSCHE SCHULD
+SIEG-SIEG
+POSITIV
+LUFTHANS
+ITCHY-BITCHY (DANCE-VERSION)
+THE UNRESTRAINED USE OF EXCESSIVE FORCE
+
+(The original release of WHAT DO YOU KNOW, DEUTSCHLAND? was on vinyl only. It had a b/w photo of Irina Gorbatchev on the cover and a different tracklist. It is a rare collectors-item since only 1000 were pressed in 1986. 
+It was released on Z-Records, a small label from Hamburg, Germany.
+In 1987, Skysaw Records from Liverpool re-released the same album
+(on CD and Vinyl) with our first cover done by BRUTE !)
+This is WAX TRAX!' '91 Re-Release of 'KMFDM's Debut-Album' 
+
+### "Don't Blow Your Top" 1988, Industrial
+
+NO MEAT-NO MAN
+DON'T BLOW YOUR TOP
+KILLING
+DISGUST
+OH LOOK
+KING KONG DUB RUBBER MIX
+WHAT A RACE
+NO NEWS
+TOD DURCH BONGO-BONGO
+KILLING (FOR YOUR SAMPLING-KIT)
+OH SHIT
+
+### "Uaioe" 1989, Industrial
+
+MURDER
+UAIOE
+LOVING CAN BE AN ART
+MORE&FASTER 243
+RIP THE SYSTEM
+THRASH UP !
+EN ESCH
+GANJA ROCK
+THUMB-THUMB
+
+### "Money" 1992, Industrial
+
+1. Money (5.29)
+2. Vogue (4.05)
+3. Help Us/Save Us/Take Us Away (6.02)
+4. Bargeld (7.14)
+5. Spiritual House (5.12)
+6. Sex On The Flag (Jezebeelzebuttfunkmix) (4.24)
+7. I Will Pray (5.58)
+8. We Must Awaken (5.01)
+
+All songs written & composed by KMFDM.
+Produced & Mixed by Sascha & KMFDM 12/90-9/91 at Mob-Studios, Hamburg, Germany.
+
+(p)(c) 1992 WAX TRAX! Records Inc.
+
+### "Angst" 1993, Industrial
+
+1. Light
+2. A Drug Against War
+3. Blood (Evil Mix)
+4. Lust
+5. Glory
+6. Move On
+7. No Peace
+8. A Hole In The Wall
+9. Sucks
+
+ Sasha Konetzko
+ En Esch
+ Suet Am
+ Mark Durante
+
+All Songs By KMFDM
+Produced & Mixed By KMFDM Inc.
+Engineered By Chris Shepard
+Recorded & Mixed At Chicago Recording Corp.
+
+(p)&(c) 1993 WAX TRAX ! Records
+
+### "Naive / Hell To Go" 1994, Industrial
+
+1. Welcome
+2. Naive
+3. Go To Hell (Fuck MTV Mix)
+4. Virus (Pestilence Mix)
+5. Godlike (Doglike Mix)
+6. Leibesleid (Infingement Mix)
+7. Die Now Live Later (Born Again Mix)
+8. Achtung !
+9. Friede 
+10. Disgust (Live In Seattle)
+
+ Sascha Konetzko
+ En Esch
+ Svet Am
+ Mark Durante
+ Rudolph Naomi
+
+All Songs By Written & Composed By Sascha Konetzko / En Esch / Svet Am
+Produced & Mixed By KMFDM
+Recorded & Mixed At  M.O.B. Studios, Hamburg & Chicago Recording Comp.
+
+(p)&(c) 1994 WAX TRAX ! Records
+
+### "Nihil" 1995, Industrial
+
+1. Ultra
+2. Juke Joint Jezebel
+3. Flesh
+4. Beast
+5. Terror
+6. Search And Destroy
+7. Disobedience
+8. Revolution
+9. Trust
+10. Brute
+
+Produced & Mixed By Sasha Konetzko, Chris Shepard & KMFDM
+Recorded & Mixed At Studio X/Bad Animals, Seattle
+Pre-Production, Sequencing, Sampling, Programming, 
+Arrangements, 
+Manipulations & Tracking By Sasha Konetzko & Gunter Schulz 
+At Hole In The Wall Studio, Seattle
+
+(p)&(c) 1995 WAX TRAX! / TVT Records
+
+### "Juke-Joint Jesebel" 1995, Industrial
+
+1. Juke-Joint Jesebel
+2. Kraut
+3. Blood
+
+Produced & Mixed By Sasha Konetzko, Chris Shepard & KMFDM
+Recorded & Mixed At Studio X / Bad Animals, Seattle
+
+(p)&(c) 1995 WAX TRAX ! / TVT Records
+
+### "Xtort" 1996, Industrial
+
+1. Power (5.26)
+2. Apathy (3.10)
+3. Rules (4.07)
+4. Kraze (3.31)
+5. Dogma (4.06)
+6. Inane (5.30)
+7. Blame (4.05)
+8. Son Of A Gun (4.23)
+9. Icons (4.11)
+10. Wrath (6.66)
+
+Produced & mixed by Sasha Konetzko, Gunter Schultz & Chris Shepard
+
+Recorded & mixed at Hole In The Wall and Chicago Recording Co.
+
+Sasha Konetzko - Vocals/Drums/Bass/Loops/Nord Lead
+Gunter Schultz - Guitars
+Mark Durante - Guitars
+En Esch - Guitars
+Chris Connelly - Vocals
+Cheril Wilson - Vocals
+Dorona Alberti - Vocals
+Nicole Blackman - Vocals
+Jennifer Insberg - Vocals
+William Rieflin - Drums
+John Van Iaton - Sounds/Noise
+
+(p)c 1996 WAX TRAX! Records. Inc.
+
+### "Retro" 1996, Industrial
+
+POWER
+JUKE-JOINT JEZEBEL
+BRUTE
+A DRUG AGAINST WAR
+LIGHT
+MONEY
+VOGUE
+GODLIKE (different from the version on "AGOGO")
+VIRUS (different from the version on "AGOGO")
+LEIBESLEID
+MORE & FASTER
+RIP THE SYSTEM (different from the version on "AGOGO")
+WHAT DO YOU KNOW, DEUTSCHLAND ?
+DON'T BLOW YOUR TOP ! 
+
+In mid-1996 this record had been devised as a promotional-item, given to so and so few people, mostly dj's and journalists. As word got out that there was some sort of a 'KMFDM-Greatest Hits', demand rose to the point that we just couldn't hold them back anymore. First we gave them away and they were ALL gone ! That's right: GONE. That meant there were NONE left... 
+But 2 Years later, people still wanted RETRO.... so now it is commercially available. 
+
+
+### "Symbols" 1997, Industrial
+
+MEGALOMANIAC
+STRAY BULLET
+LEID & ELEND
+MERCY
+TORTURE
+SPIT SPERM
+ANARCHY
+DOWN & OUT
+UNFIT
+WASTE
+
+
+### "Agogo" 1998, Industrial
+
+THANK YOU (previously unreleased)
+GODLIKE (different from the version on "RETRO")
+VIRUS-DUB (different from the version on "RETRO")
+RIP THE SYSTEM (different from the version on "RETRO")
+NAFF OFF (from the discontinued MORE & FASTER 12"-Single)
+MYSTERIOUS WAYS (cover-version of the U2 song)
+OOH LA LA (from the Hell raiser III Soundtrack)
+HOLE IN THE WALL (remix of the track from "ANGST")
+AGOGO (previously unreleased)
+ZIP (previously unreleased)
+
+A compilation of rare, discontinued or previously unreleased KMFDM, it features 'lost' jewels such as the original version of RIP THE SYSTEM from the MORE & FASTER 12"-Vinyl-Single which was discontinued in 1992 and the original version of GODLIKE as well as a cover-version of U2's MYSTERIOUS WAYS sung by En Esch... a must have for every KMFDM fan ! 
+
+
+### "Adios" 1999, Industrial
+
+ADIOS
+SYCOPHANT
+D.I.Y
+TODAY
+WITNESS (feat. Nina Hagen)
+R.U.OK? THAT'S ALL (feat. Nivek Ogre)
+FULL WORM GARDEN (feat. Nivek Ogre)
+RUBICON
+BEREIT
+
+
+### "Attak" 2002, Industrial
+
+1. Attak/Reload
+2. Skurk
+3. Dirty
+4. Urban Monkey Warfare
+5. Save Me
+6. Yohoho
+7. Superhero
+8. Sturm & Drang
+9. Preach/Pervert
+10. Risen
+11. Sleep
+
+### "WWIII" 2003, Industrial
+
+WWIII
+From Here On Out
+Blackball
+Jihad
+Last Things
+Pity For The Pious
+Stars & Stripes
+Bullets, Bombs & Bigotry
+Moron
+Revenge
+Intro
+
+### "Hau Ruck" 2005, Industrial
+
+
+
 
 ## Отношения с другими группами
 

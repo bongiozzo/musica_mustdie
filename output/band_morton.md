@@ -1,7 +1,25 @@
 # Morton
 
-Дискография
-"Come Read the Words Forbidden" 2011, Power Metal
+
+
+## Дискография
+
+### "Come Read the Words Forbidden" 2011, Power Metal
+
+1. Calling for the Storm	 
+2. Eaglemark	 
+3. Brotherhood of Light	 
+4. Sleeping King	 
+5. Losing Faith	 
+6. We Are the Shades	 
+7. Oblivion
+8. Grimoire
+9. Burning Prisoner	 
+10. Werewolf Hunt
+11. Black Witch
+12. Azrael	 
+13. Weeping Bell
+
 
 ## Отношения с другими группами
 

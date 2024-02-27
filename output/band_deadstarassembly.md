@@ -1,7 +1,38 @@
 # Deadstar Assembly
 
-Дискография
-"Deadstar Assembly" 2006, Industrial
+
+
+## Дискография
+
+### "Deadstar Assembly" 2006, Industrial
+
+1. Blurred And Muted
+2. Undone
+3. Just Like You
+4. Normal
+5. Send Me An Angel
+6. Breathe For Me
+7. Comes To Tongue
+8. Your Fiend
+9. Therapy Scares Me
+10. How To Destroy And Angel
+11. A Deep Breath
+12. Where The Beauty Ends
+13. Precious Nothing
+14. Fucked Just Like You (Less Brains More Drugs Remix)
+
+
+All songs written by DEADSTAR ASSEMBLY
+except * written by David Sterry and Richard Zatorski
+Produced and engineered by Luis Duran
+Recorded at The Tank Miami Beach, FL and Platinum Post Studios Orlando, FL
+
+Cygnus - Percussion and Blood Sucking
+Mubo - Electronic Messiah and Anti DJ
+Dearborn - Vox and Orchestrated Mayhem
+Dro - Subsonic Tremors and Pyro
+Dreggs - Crunch Guitar and Pornography
+
 
 ## Отношения с другими группами
 

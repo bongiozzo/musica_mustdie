@@ -1,12 +1,61 @@
 # Lost Soul
 
-Дискография
-"Eternal Darkness (demo)" 1993, Death Metal
-"Superior Ignotum (demo)" 1994, Death Metal
-"...Now is Forever... (demo)" 1998, Death Metal
-"The Scream of The Mourning Star" 2000, Death Metal
-"UBERMENSCH (Death of God)" 2002, Death Metal
-"Chaostream" 2005, Death Metal
+Polish brutal band
+
+## Дискография
+
+### "Eternal Darkness (demo)" 1993, Death Metal
+
+
+
+### "Superior Ignotum (demo)" 1994, Death Metal
+
+
+
+### "...Now is Forever... (demo)" 1998, Death Metal
+
+
+
+### "The Scream of The Mourning Star" 2000, Death Metal
+
+1. My Kingdom
+2. Divine Satisfaction
+3. Tabernaculum Miser
+4. The Highest Pleasure
+5. Malediction
+6. Entrance to the Nothingness
+7. We Want God
+8. Nameless
+9. An Eternal Sleep
+10. Unclean
+
+### "UBERMENSCH (Death of God)" 2002, Death Metal
+
+1. The Dawn
+2. No Salvation
+3. Beast Rising
+4. The Source of Thee
+5. Incinerate
+6. To the New Light!
+7. Soul Hunger
+8. Lords of Endeavours
+9. Apeiron
+10. Adoration of Violet
+11. The One You Seek
+12. The Crown
+
+### "Chaostream" 2005, Death Metal
+
+1. Word Of Sin 04:31  
+2. Godstate 04:00  
+3. Death Crowns All 03:55  
+4. Shameful Race 04:52  
+5. The Hidden Law 06:11  
+6. Mortal Cage 04:22  
+7. Christian Meat 06:14  
+8. Angel's Cry 04:59  
+9. The Birth Of Babalon 06:52
+
 
 ## Отношения с другими группами
 

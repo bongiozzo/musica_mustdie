@@ -1,7 +1,27 @@
 # XIV Dark Centuries
 
-Дискография
-"...den Ahnen zum Grusse..." 2003, Metal
+Heidnischer Thuringer Metal 
+
+
+## Дискография
+
+### "...den Ahnen zum Grusse..." 2003, Metal
+
+ 1. Nordwaerts (instrumental)     
+ 2. Walhalla's Tore  
+ 3. Fenrir  
+ 4. Thor's Hammer  
+ 5. Falsche Propheten   
+ 6. Teutonentanz  
+ 7. Unseren Ahnen zum Grusse  
+ 8. Holmgang 
+ 9. Prolog  
+10. Des Kriegers Traum   
+11. Tetes Coupees - der Schдdelkult    
+12. Valpurga 
+13. Tanz der Schwerter (instrumental) 
+
+
 
 ## Отношения с другими группами
 

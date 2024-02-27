@@ -1,7 +1,21 @@
 # Frailty
 
-Дискография
-"Lost Lifeless Lights" 2008, Death Doom
+
+
+## Дискография
+
+### "Lost Lifeless Lights" 2008, Death Doom
+
+1. Intro
+2. I Know Your Pain
+3. Ariadne
+4. The River of Serpents
+5. Graphics in Ebony
+6. The Fall of Eve
+7. A Summer to Die
+8. The Scorn
+9. Lыgрana (Monro Cover)
+
 
 ## Отношения с другими группами
 

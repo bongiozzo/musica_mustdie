@@ -1,12 +1,100 @@
 # MSG
 
+
+
+## Дискография
+
+### "Adventures Of The Imagination" 2000, Hard Rock
+
+
+
+### "Be Aware of Scorpions" 2001, Hard Rock
+
+
+
+### "Arachnophobiac" 2003, Hard Rock
+
+Track Listing 
+· Evermore
+· Illusion
+· Arachnophobiac
+· Rock N Roll Believer
+· Into The Sands Of Time
+· Weathervane
+· Over Now
+· One World
+· Break The Cycle
+· Alive
+· Fatal Strike
+
+· Chris Logan: Vocals
+· Michael Schenker: Guitar
+· Jeremy Colson: Drums
+· Stu Hamm: Bass
+
+### "World Wide Live 2004 (dvd)" 2004, Hard Rock
+
+Ready To Rock
+Mother Mary
+Assault Attack
+Let It Roll
+Lights Out
+Rock'n'roll Believer
+Arachnophobiac
+Into the Arena
+Only You Can Rock Me
+On and On
+Too Hot to Handle
+Armed and Ready
+Doctor Doctor
+Rock Bottom
+
+Анимационное меню
+Биография
+Интервью
 Дискография
-"Adventures Of The Imagination" 2000, Hard Rock
-"Be Aware of Scorpions" 2001, Hard Rock
-"Arachnophobiac" 2003, Hard Rock
-"World Wide Live 2004 (dvd)" 2004, Hard Rock
-"Heavy Hitters" 2005, Hard Rock
-"Tales Of Rock’n’Roll" 2006, Hard Rock
+Фотогалерея
+
+### "Heavy Hitters" 2005, Hard Rock
+
+
+
+### "Tales Of Rock’n’Roll" 2006, Hard Rock
+
+1. The Ride 
+2. Setting Sun 
+3. Angel Of Avalon 
+4. Dreams Inside 
+5. Dust To Dust 
+6. Voice Of My Heart 
+7. Journey Man 
+8. Big Deal 
+9. St. Ann 
+10. Shadow Lady 
+11. Love Trade 
+12. Human Child 
+13. Bitter Sweet 
+14. Blind Alley 
+15. Freedom 
+16. Lifevacation 
+17. Rock'n'roll 
+18. Tell A Story 
+19. Live Goes On
+
+Состав: 
+Michael Schenker - all guitars 
+Jari Tiura - vocals 
+Pete Way - bass 
+Jeff Martin - drums 
+
+Additional vocalists: 
+Gary Barden 
+Graham Bonnet 
+Robin McAley 
+Leif Sundin 
+Kelly Keeling 
+Chris Logan
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,32 @@
 # Morpheus
 
-Дискография
-"Son Of Hypnos" 1993, Death Metal
+
+
+## Дискография
+
+### "Son Of Hypnos" 1993, Death Metal
+
+1. Depths Of Silence
+2. Through The Halls Of Darkness
+3. God Against All
+4. The Third Reich 3797 A.C.
+5. Of Memories Made (The God Of Dreams)
+6. Memento Mori
+7. Among Others
+8. Inflame The Mass
+9. Wonderland
+10.Dreams
+
+ David Brink - Vocals
+ Sebastian Ramstedt - Guitar
+ Johan De Daux - Bass
+ Markus Ruden - Drums
+
+All Songs By Morpheus
+Recorded At Unicorn Music Studio,9-12 April 1993
+
+(p)&(c) 1993 STEP ONE Records
+
 
 ## Отношения с другими группами
 

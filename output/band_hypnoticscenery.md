@@ -1,9 +1,60 @@
 # Hypnotic Scenery
 
-Дискография
-"Vacuum" 1996, Death Doom
-"Deeper And Deeper" 1998, Death Doom
-"Back In The Bloody Ruins" 2002, Death Doom
+chech metal band
+
+## Дискография
+
+### "Vacuum" 1996, Death Doom
+
+1. Orgasme Flammae 
+2. Tenebrosa Alta 
+3. Detur 
+4. Scintilla Vitae 
+5. Flumen Maeroris 
+6. Voluptotis Incognitae 
+7. Quare? 
+8. Vacuum
+
+Recorded & Mixed At Barbarella
+Studios, Ostrava,1995.
+Produced and Engineered by Jiri Krejci
+and Pavel Zym.
+Mixed by Pavel Zym.
+
+Angel - Drums
+Mike - Bass
+Catherini - Keyboards
+Robert - Vocals
+Martin - Guitars
+
+(P)&(C) 1996 HYPNOTIC SCENERY
+
+### "Deeper And Deeper" 1998, Death Doom
+
+1. Moonlightning  
+2. Sic Itur Ad Astra  
+3. Beautiful Nymph   
+4. Nothing Is a Chance  
+5. Deeper And Deeper   
+6. Deus Mortuus  
+7. Blind Journey  
+8. Wretched Man  
+9. My Trust  
+10. Mystery And Enigma  
+11. Hypogeum 
+
+### "Back In The Bloody Ruins" 2002, Death Doom
+
+1. Whereґs the land   
+2. Planet adamah   
+3. Caelicoa   
+4. Orgy of love   
+5. I see your eyes  
+6. The picture of apocalypse   
+7. A purple rain  
+8. Back in the bloody ruins   
+9. Recalled to life 
+
 
 ## Отношения с другими группами
 

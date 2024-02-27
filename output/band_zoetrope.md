@@ -1,7 +1,28 @@
 # Zoetrope
 
-Дискография
-"Life Of Crime" 1987, Thrash
+
+
+## Дискография
+
+### "Life Of Crime" 1987, Thrash
+
+1. Detention
+2. Seeking Asylum
+3. Promiscuity
+4. N.A.S.A.
+5. Unbridled Energy
+6. Prohibition
+7. Company Man
+8. Pickpocket
+9. Hard To Survive
+
+Barry Stern - Vocals & Drums
+Louie Svitek - Guitars
+Kevin Michael - Guitars
+Calvin "Willis" Humphrey - Bass
+
+(p)&(c) 1987 MUSIC FOR NATIONS Records
+
 
 ## Отношения с другими группами
 

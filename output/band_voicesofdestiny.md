@@ -1,7 +1,24 @@
 # Voices Of Destiny
 
-Дискография
-"From The Ashes" 2010, Gothic
+
+
+## Дискография
+
+### "From The Ashes" 2010, Gothic
+
+1. Ray Of Hope 03:15
+2. Twisting The Knife 03:33
+3. Return From The Ashes 03:23
+4. Relief 02:58
+5. Icecold 04:52
+6. Apathy 03:34
+7. Endeavour To Life 04:22
+8. All Eyes On Me 03:46
+9. Bitter Visions 05:01 
+10. Hourglass 03:49
+11. Red Winter's Snow II: Blood And Stone 03:45
+12. Not The One 03:35 
+
 
 ## Отношения с другими группами
 

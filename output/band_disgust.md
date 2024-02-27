@@ -1,7 +1,38 @@
 # Disgust
 
-Дискография
-"Brutality Of War" 1994, Death Metal
+
+
+## Дискография
+
+### "Brutality Of War" 1994, Death Metal
+
+1. Intro
+2. Mother Earth
+3. As Millions Suffer
+4. An Horrific End
+5. Thrown Into Oblivion
+6. Civilization Decays
+7. Relentless Slaughter
+8. And Still
+9. The Light Of Death
+10.What Kind Of Mind
+11.You Have No Right
+12.Sea Of Tears
+13.The Anguished City
+14.Life Erased
+15.Outro
+
+ Dean Jones - Vocals
+ Dave Ellesmere - Guitar
+ Gary Sumner - Guitar
+ Lee Barrett - Bass
+ Steve Beatty - Drums
+
+Produced By Steve Beatty.
+Engineered By Graemme Tollit.
+
+(p)&(c) 1994 EARACHE Records
+
 
 ## Отношения с другими группами
 

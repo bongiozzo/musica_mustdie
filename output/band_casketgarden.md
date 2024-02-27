@@ -1,9 +1,40 @@
 # Casketgarden
 
-Дискография
-"This Corroded Soul of Mine" 2003, Thrash
-"Open the Casket, Enter the Garden" 2006, Thrash
-"Incompleteness in Absence" 2008, Thrash
+melodic death thrash assault from Hungary
+
+## Дискография
+
+### "This Corroded Soul of Mine" 2003, Thrash
+
+
+
+### "Open the Casket, Enter the Garden" 2006, Thrash
+
+1. The First Handful Of Soil
+2. Open The Casket
+3. Spirit Unseen, Body Unknown
+4. Why The Vultures Cry?
+5. One More Lie
+6. A Grief History
+7. Poisonvein 1010011010	
+8. To Relive My Carnage
+9. ...Alone As God
+10. Enter The Garden
+
+### "Incompleteness in Absence" 2008, Thrash
+
+1. Half-hearted (Intro)	 
+2. The Absent
+3. The Great Abductor
+4. Sulphur Breath Laughter
+5. Unwinged
+6. Something I'm Not
+7. The Incomplete (Instrumental)	 
+8. Intersection of Parallels
+9. After Us Fire Floods
+10. The Corporate Thorn
+11. Another Mourning Comes
+
 
 ## Отношения с другими группами
 

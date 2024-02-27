@@ -1,11 +1,45 @@
 # Halestorm
 
-Дискография
-"Halestorm" 2009, Rock
-"Live In Philly 2010 (CD/DVD)" 2010, Rock
-"ReAniMate: The Covers (EP)" 2011, Rock
-"Hello, It's Mz. Hyde (EP)" 2012, Rock
-"The Strange Case Of..." 2012, Rock
+
+
+## Дискография
+
+### "Halestorm" 2009, Rock
+
+
+
+### "Live In Philly 2010 (CD/DVD)" 2010, Rock
+
+01. It's Not You
+02. Innocence
+03. Bet U Wish U Had Me Back
+04. Love/Hate Heartbreak
+05. I'm Not An Angel
+06. Familiar Taste of Poison
+07. Boom City
+08. Nothing To Do With Love
+09. Dirty Work
+10. I Get Off
+11. Tell Me Where It Hurts
+12. Better Sorry Than Safe
+
+### "ReAniMate: The Covers (EP)" 2011, Rock
+
+1. Slave to the Grind (Skid Row cover)
+2. Bad Romance (Lady Gaga cover)
+3. Hunger Strike (Temple of the Dog cover)
+4. Out ta Get Me (Guns N' Roses cover)
+5. All I Wanna Do Is Make Love to You (Heart cover)
+6. I Want You (She's So Heavy) (The Beatles cover)
+
+### "Hello, It's Mz. Hyde (EP)" 2012, Rock
+
+
+
+### "The Strange Case Of..." 2012, Rock
+
+
+
 
 ## Отношения с другими группами
 

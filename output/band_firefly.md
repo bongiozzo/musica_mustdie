@@ -1,7 +1,22 @@
 # Firefly
 
-Дискография
-"Automatic" 2003, Hard Rock
+Melodic Hard
+
+## Дискография
+
+### "Automatic" 2003, Hard Rock
+
+01. Automatic
+02. Show Down
+03. Sky High
+04. Yesterday’s News
+05. Ride The Fire
+06. If you’re Lucky
+07. Another Measure
+08. She’ll Never Know
+09. Animalize
+10. If What It Takes
+
 
 ## Отношения с другими группами
 

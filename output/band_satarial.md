@@ -1,11 +1,152 @@
 # Satarial
 
-Дискография
-"...И Огонь Возьмет Храмы Христа" 1996, Black Metal
-"Королева Эльфийской Земли" 1997, Metal
-"Larm" 2000, Metal
-"Heidenlarm" 2001, Metal
-"Tanz Mit... Tod..." 2005, Metal
+Russian Gothic Folk Metal
+
+## Дискография
+
+### "...И Огонь Возьмет Храмы Христа" 1996, Black Metal
+
+1. Holy Lucifer
+2. The Child Of Grief
+3. AVE SATANAS!
+4. The Son Of The Astral Fire
+5. ...And The Flame Will Take The Temples Of Christ
+    1)part one *
+    2)part two ** 
+    3)part three *** 
+
+ 
+Line-Up:    
+Lord Seth-guitars,vocals; 
+Angel Bust-keyboards;  
+Morana - violin; 
+Demogorgon - drums.
+
+
+All music & lyrics written by Lord Seth . Except * music, keyboards & violin by Morana . ** music by Angel Bust . Arragements by SATARIAL . Sound effects by Demogorgon & Lord Seth (with support Max Lebedeff). Bass on this record played by Nergal (session).
+
+Produced, engineered & mixed by Max Lebedeff
+
+Co-produced by SATARIAL
+
+
+
+
+
+
+### "Королева Эльфийской Земли" 1997, Metal
+
+1.The Queen Of The Elves' Land
+2.Ode #1*
+3.Asbbat Of Witchcraft
+4.Ode #2*
+5.I Damned You Holy One
+6.Ode #3*
+7.The Son Of The Astral Fire
+8.Ode #4*
+9.Hymn Of War
+10.Ode #5*
+11.Mistress Of Dreams**
+
+
+All music & lyrics by Lord Seth. Except * music & keyboards by Morana.
+All arrangements by SATARIAL.
+The Album was recorded live and mixed at SNC studio in 60 hours in november-december 1997.
+Engineered by E.Trushin.
+Produced by SATARIAL. Executive production: Beyond... Prod.
+Mastered at SBI Records.
+** Acoustic guitar by A.Muratov.
+
+Cover Desing Concept - Angel Bust.
+Cover Design - Oleg Bocharoff.
+All photos by Drigin Valera.
+
+LIVE CREW:
+War Legion - Ram, Romul, Eadan, Kentavr, Astarta, Olve, Dook, Andrew, Hellocves, Ratman.
+MakeUp, dress design - Lilith.
+Show Maker - Tatyana Shemetova.
+Sound Effects - Nord.
+Sound Engineer - T.Parferoff.
+
+Line-Up: Lord Seth-guitars,vocals; Angel Bust-keyboards; Necromancer-bass; Morana-violin; Demogorgon-drums; Vampirella-flute.
+
+### "Larm" 2000, Metal
+
+1. In The Flame Of Sabbath ("Heidenlarm" (CD) 2001, Mix Tommy Sadist)
+2. Those Shall Gloriously Rise In Decline (Mix 1999)
+3. Do Not Baptize My Land ("Heidenlarm" (CD) 2001, Mix Tommy Sadist)
+4. The Dark Bride (Mix 1999)
+5. Dead Cities' Children (Mix 1999)
+6. The Ice Castle (Mix 1999)
+7. The Morning Of A Black Dawn (Mix 1999)
+8. Do Not Baptize My Land (remastering 2001)
+9. Satarial (remastering 2001)
+
+Line-up:
+
+Lord Seth - Vocals, Guitar
+Angel Bust - Keyboards
+Demogorgon - Drums
+Necromancer - Bass
+Orm - Flute
+Hamlet - Violin
+Juice - Female Vocals
+
+Recorded in Dorofeev's Studio (Moscow)
+Mixed in Nadir Studio (Italy) by Tommy of Sadist
+Music and lyrics by Lord Seth
+Design by Oleg Bocharoff
+Photos by Valery Drygin
+
+(c) 2001 Neuro Empire Records
+
+### "Heidenlarm" 2001, Metal
+
+1. Lover Of The Night (The Beloved Of The Night)
+2. Russian Traditional Song (XV-XVI Centuries) 
+3. In The Flame Of Sabbath (The Final Battle) 
+4. Russian Traditional Ballad (XVI Century) 
+5. Satarial (The Ice Castle) 
+6. Satarial Untradition Ballad (XXI Century) 
+7. Do Not Baptize My Land 
+8. Russian Traditional Ballad (XVI century) 
+9. The Cup Of Heady Pain (Dead Cities' Children) 
+10. Russian Traditional Song (XI century) 
+11. Divine Race 
+
+
+
+
+Recorded in Dorofeev's Studio (Moscow)
+Produced by Giovanni Indorato 
+Mixed in Nadir Studio (Italy) by Tommy of Sadist 
+Music and lyrics by Lord Seth 
+Artwork, digital treatments & lay-out by Sephiroth Graphix 
+Design by Oleg Bocharoff 
+Photos by Valery Drygin 
+
+
+
+Lord Seth - vocals, gitars
+Angel Bust - keyborads
+Demogorgon - drums
+Necromancer - bass
+Orm - flute
+Hamlet - violin
+Juice - female voices
+
+### "Tanz Mit... Tod..." 2005, Metal
+
+Шлюха-Смерть
+Потомки Россов
+Волк
+Лакающий Кровь
+Сжигая Жизнь
+Подари Любимой Смерть
+Ангел Смерти
+Ты Умрешь
+Зов Крови Волчьей
+
 
 ## Отношения с другими группами
 

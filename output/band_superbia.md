@@ -1,7 +1,21 @@
 # Superbia
 
-Дискография
-"Overcoming the Pain" 2010, Melodic Death Metal
+melodic death-metal with prog touches
+
+## Дискография
+
+### "Overcoming the Pain" 2010, Melodic Death Metal
+
+1. Black Sun	 
+2. One Last Time	 
+3. Embracing the Evil	 
+4. Lost Life	 
+5. Silenzio & Vuoto	 
+6. Before Dying	 
+7. Panta Rei	 
+8. Alpha & Omega	 
+9. Paranoid Insomnia	
+
 
 ## Отношения с другими группами
 

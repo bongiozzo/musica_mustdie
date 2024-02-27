@@ -1,7 +1,31 @@
 # Timeless Miracle
 
-Дискография
-"Into The Enchanted Chamber" 2005, Power Metal
+
+
+## Дискография
+
+### "Into The Enchanted Chamber" 2005, Power Metal
+
+1. Curse Of The Werewolf (7.15); 
+2. Witches Of Black Magic (4.24); 
+3. Into The Enchanted Chamber (6.07); 
+4. The Devil (5.30); 
+5. The Red Rose (5.43); 
+6. A Minor Intermezzo (1.21); 
+7. Return Of The Werewolf (4.55); 
+8. Memories (4.15); 
+9. The Gates Of Hell (4.21); 
+10. Down To The Gallows (5.46); 
+11. The Dark Side Forest (0.47); 
+12. The Voyage (14.10)
+
+All songs written by TIMELESS MIRACLE
+Produced by Anders Theander and Pontus Lindmark
+Engineered and mixed by Anders Theander
+Recorded and mixed at RoastingHouse Recording Studio AB, Malmo, Sweden
+
+Violin by Nina Christensen
+
 
 ## Отношения с другими группами
 

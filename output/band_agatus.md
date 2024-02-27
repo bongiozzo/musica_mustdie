@@ -1,7 +1,34 @@
 # Agatus
 
-Дискография
-"Dawn Of Martyrdom" 1996, Black Metal
+Melodic Black Metal a-la Rotting Christ (Ex-Rotting Christ)
+
+## Дискография
+
+### "Dawn Of Martyrdom" 1996, Black Metal
+
+1.  Under The Spell Of The Dragon
+2.  Desecrate From The Dark War
+3.  Son Of The Fire
+4.  Black Moon's Blood
+5.  The Return Of Flying Horses
+6.  Demons Of White Moon
+7.  Force Of Desecration
+8.  Freezing Wind Of Winter
+9.  Outro
+10.Circling Around The Fire Of The Woods I
+11.Sodomizing Bloodshed Under A Frozen Blaze Of Catachtonian Land
+12.Descent Of The Dark One
+13.Circling Around The Fire Of The Woods II
+
+Recorded and Mixed at Storm Studio
+Produced by Morbid and AGATUS
+
+Eskarth The Dark One - Vocals, Guitars, Bass
+Prince Korthrlage - Guitars, Keyboards
+Emperor Vorskaath - Percussion
+
+(P)c 1996 NO COLOURS Records
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,33 @@
 # Attick Demons
 
-Дискография
-"Atlantis" 2011, Heavy Metal
-"Let's Raise Hell" 2016, Heavy Metal
+
+
+## Дискография
+
+### "Atlantis" 2011, Heavy Metal
+
+1.	 Back in Time
+2.	 Atlantis
+3.	 City of Golden Gates
+4.	 The Flame of Eternal Knowledge
+5.	 Riding the Storm
+6.	 Sacrifice
+7.	 Meeting the Queen
+8.	 In Memoriam
+9.	 Listen to the Fool
+
+### "Let's Raise Hell" 2016, Heavy Metal
+
+1. The Circle Of Light
+2. Adamastor
+3. Glory to Gawain
+4. Dark Angel
+5. The Endless Game
+6. Let’s Raise Hell
+7. Ghost
+8. Nightmares
+9. Ritual
+
 
 ## Отношения с другими группами
 

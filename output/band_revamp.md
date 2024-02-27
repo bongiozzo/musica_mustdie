@@ -1,8 +1,45 @@
 # ReVamp
 
-Дискография
-"Revamp" 2010, Gothic
-"Wild Card" 2013, Gothic
+
+
+## Дискография
+
+### "Revamp" 2010, Gothic
+
+1. Here's My Hell 05:12
+2. Head Up High 03:32 
+3. Sweet Curse 04:16 
+4. Million 04:20 
+5. In Sickness 'Till Death Do Us - All Goodbyes Are Said 03:32
+6. Break 04:06 
+7. In Sickness 'Till Death Do Us, Pt. 2 - Disdain 03:32
+8. In Sickness 'Till Death Do Us, Pt. 3 - Disgraced 03:28 
+9. Kill Me With Silence 03:56
+10. Fast Forward 03:57 
+11. The Trial Of Monsters 04:20
+12. Under My Skin 04:07
+13. I Lost Myself 03:30 
+
+### "Wild Card" 2013, Gothic
+
+1. The Anatomy of a Nervous Breakdown: On the Sideline  03:46    
+2. The Anatomy of a Nervous Breakdown: The Limbic System  04:54    
+3. Wild Card  04:22    
+4. Precibus  04:24    
+5. Nothing  03:54    
+6. The Anatomy of a Nervous Breakdown: Neurasthenia  05:07    
+7. Distorted Lullabies  04:58    
+8. Amendatory  04:47    
+9. I Can Become  03:48    
+10. Misery's No Crime  04:03    
+11. Wolf and Dog  05:01  
+Bonus track:
+12. Sins (04:07)
+ iTunes bonus track:
+13. Infringe (04:53) 
+
+
+
 
 ## Отношения с другими группами
 

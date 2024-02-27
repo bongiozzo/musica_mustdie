@@ -1,12 +1,115 @@
 # Squash Bowels
 
-Дискография
-"Tnyribal" 2000, Grindcore
-"The Mass Rotting - The Mass Sickening" 2002, Grindcore
-"Grind Your Fucking Head (split CD with Disgorge)" 2003, Grindcore
-"No Mercy" 2004, Grindcore
-"Love Songs" 2005, Grindcore
-"Grindvirus" 2009, Grindcore
+Brutal goregrind
+
+## Дискография
+
+### "Tnyribal" 2000, Grindcore
+
+1. Stranger Mind 02:37  
+2. Dark Corridors 03:11  
+3. Zema Inpa 08:49  
+4. Zonhori Nteve 06:31  
+5. Bad Sector 03:22  
+6. Black Thing 01:48 
+
+### "The Mass Rotting - The Mass Sickening" 2002, Grindcore
+
+1. Screams Saints Pig Head 02:46  
+2. Breaking Those Who Suspend To Talk 01:42  
+3. Strong Will 02:05  
+4. When Memories Came Back 03:21  
+5. Dead Nature 02:52  
+6. Life Business 02:06  
+7. The Mass Rotting 01:26  
+8. The Mass Sickening 02:10  
+9. Behind Pane Hides Hate 02:30  
+10. Regulations People Fear 00:58  
+11. Life & Death 01:52  
+12. Handsome Scum 02:26  
+13. Triumph Of Act Revenge 02:26  
+14. Naive Distress 03:35  
+15. Childhood 02:07 
+
+### "Grind Your Fucking Head (split CD with Disgorge)" 2003, Grindcore
+
+Squash Bowels:
+01. Fear
+02. Blood Supply
+03. Who Is Gay?
+04. Grind Your Head
+05. Hasta La Vista Baby
+06. Radio Hit (Anal Cunt cover)
+07. Material Under Test
+08. Murder On Street
+09. Wo-Man
+10. Call-Girls
+11. Shit In W.C.
+12. Regulations Peoples Fear
+13. Pussy On Your Face
+14. Human Barbecue
+15. Pseudo Feaces
+16. Vulture Ritual (bonus song)
+
+Disgorge:
+17. Spasmobliterance Filtrates Scabs
+18. Urethrive Decortico Xantomatose Muco Gestated Scallfolds 
+19. Shredded Humans (Cannibal Corpse cover)
+20. Disgorging Foetus (Regurgitate cover)
+21. Pedigree (Anarchus cover)
+
+(c)&(p) 2003 Bizarre Leprous Production
+
+### "No Mercy" 2004, Grindcore
+
+1. No Mercy 05:43  
+2. Garrotte 01:53  
+3. Vulture Ritual 01:39  
+4. Guillotine In Lunapark 01:51  
+5. Squabble 01:50  
+6. Flesh Grinder 01:27  
+7. Dead Stumble 02:19  
+8. Human Extinction 01:40  
+9. Splinter Off Blood 02:27  
+10. Saint Father Paedophile 01:17  
+11. Inclement Instructor 00:45  
+12. Blood Supply 01:12  
+13. Face In Cowpox 01:56  
+14. Ufo-rder 04:31 
+
+### "Love Songs" 2005, Grindcore
+
+1. Dead Field 02:06  
+2. Grind Standart 01:36  
+3. Ungovernable 01:18  
+4. Syringe With Wit 01:57  
+5. Searching for the Kill 03:15  
+6. Stinker Spoiling for a Fight 02:30  
+7. More Our Colors 01:58  
+8. To Flash the Hash... 01:27  
+9. Ruthless Rabble 01:57  
+10. Swinish Snout - Liar 01:27  
+11. Naive... 02:18  
+12. Wound Fuck (Gut cover) 01:42  
+13. Fuck Instructor 01:03 
+
+### "Grindvirus" 2009, Grindcore
+
+1. Grindvirus 01:47  
+2. Two Cows and Monkey 01:58  
+3. Oust - Odour Eliminator 02:13  
+4. Wriggler 01:46  
+5. Abhorrently Stinking Rich Man 01:40  
+6. Shit Oneself 02:54  
+7. D. I. 02:10  
+8. Sheep Dag 01:54  
+9. Bacterial Fertiliser 01:41  
+10. Hamsters in Your Head 01:35  
+11. Don't Look a Gift Horse in the Ass 02:05  
+12. Nose - Lunger 01:28  
+13. Child Victims 03:30  
+14. Anodal Closing Odour 01:55 
+
 
 ## Отношения с другими группами
 

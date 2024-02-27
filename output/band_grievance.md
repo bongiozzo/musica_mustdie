@@ -1,6 +1,9 @@
 # Grievance
 
-Дискография
+Norvegian Progressive Blacketal
+
+## Дискография
+
 
 ## Отношения с другими группами
 

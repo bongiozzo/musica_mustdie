@@ -1,7 +1,24 @@
 # Grief Of Emerald
 
-Дискография
-"Christian Termination" 2002, Black Metal
+
+
+## Дискография
+
+### "Christian Termination" 2002, Black Metal
+
+1. Alas, Spiriti Sancti
+ 2. The Almighty Is Rising
+ 3. Raped By The Servant Of God
+ 4. Scum Of The Earth
+ 5. The Cause
+ 6. Christian Termination
+ 7. Deformed Imaginations
+ 8. Consumed By Fire
+ 9. Those Who Bear The Mark
+10. Humanity's Fall
+
+(p) 2002 Listenable Records
+
 
 ## Отношения с другими группами
 

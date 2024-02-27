@@ -1,7 +1,20 @@
 # Batushka
 
-Дискография
-"Litourgiya" 2015, Black Metal
+
+
+## Дискография
+
+### "Litourgiya" 2015, Black Metal
+
+01. Yekteniya 1
+02. Yekteniya 2
+03. Yekteniya 3
+04. Yekteniya 4
+05. Yekteniya 5
+06. Yekteniya 6
+07. Yekteniya 7
+08. Yekteniya 8
+
 
 ## Отношения с другими группами
 

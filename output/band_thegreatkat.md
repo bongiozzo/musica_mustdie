@@ -1,9 +1,51 @@
 # The Great Kat
 
-Дискография
-"Worship Me or Die" 1987, Instrumental
-"Beethoven on Speed" 1990, Instrumental
-"Rossini's Rape" 2000, Instrumental
+(Neo-Classical Metal)
+
+## Дискография
+
+### "Worship Me or Die" 1987, Instrumental
+
+
+
+### "Beethoven on Speed" 1990, Instrumental
+
+  1.   Beethoven on Speed - 1:54 
+  2.   Ultra-Dead - 3:18 
+  3.   The Flight of the Bumblebee (Rimsky-Korsakov) - 2:07 
+  4.   Revenge Mongrel - 1:31 
+  5.   Funeral March - 3:06 
+  6.   Kat-Abuse - 1:53 
+  7.   God! - 1:17 
+  8.   Made in Japan - 1:54 
+  9.   Sex & Violins - 1:32 
+  10.  Beethoven Mosh (5th Symphony in C Minor) - 2:07 
+  11.  Gripping Obsession - 2:21 
+  12.  Paganini's 24th Caprice - 1:55 
+  13.  Worshipping Bodies - 2:29 
+  14.  Guitar Concerto in Blood Minor: 1st... 
+  15.  Guitar Concerto in Blood Minor: 2nd... 
+  16.  Guitar Concerto in Blood Minor: 3rd... 
+  17.  Total Tyrant - 2:00 
+  18.  Bach to the Future: For Geniuses Only! - :22 
+
+
+### "Rossini's Rape" 2000, Instrumental
+
+1.   Rossini'a "William Tell Overture" for... (Great Kat) - 1:54 
+2.   Sodomize (Great Kat) - 1:42 
+3.   Castration (Great Kat) - 1:12 
+4.   Bazzini's "The Round of the Goblins" for... (Great Kat) - 1:35 
+
+
+The Great Kat  -  Clarinet, Flute, Guitar, Violin, Bassoon, Conductor, French Horn, Piccolo, Viola, Vocals, Double Bass, Screams 
+Lionel Cordew  -  Drums, MIDI Drums 
+Jeffrey Kawalek  -  Mixing 
+Brian Harding  -  Engineer, Mixing 
+Jeff Ingegno  -  Bass, Associate Producer 
+
+
+
 
 ## Отношения с другими группами
 

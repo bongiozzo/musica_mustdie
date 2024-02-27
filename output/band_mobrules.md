@@ -1,13 +1,99 @@
 # Mob Rules
 
-Дискография
-"Savage Land" 1999, Heavy Metal
-"Temple of Two Suns" 2000, Heavy Metal
-"Hollowed Be Thy Name" 2002, Heavy Metal
-"Among the Gods" 2004, Heavy Metal
-"Ethnolution A.D." 2006, Heavy Metal
-"Radical Peace" 2009, Heavy Metal
-"Cannibal Nation" 2012, Heavy Metal
+heavy metal
+
+## Дискография
+
+### "Savage Land" 1999, Heavy Metal
+
+Prologue 
+Insurgeria 
+Rain Song 
+Hold Back the Light 
+Secret Signs 
+Savage Land part I 
+Savage Land part II 
+Savage Land part III 
+Coast to Coast 
+Blaze of First Warning 
+Pray for Sunlight 
+Down in Nowhere Land 
+End of All Days 
+
+### "Temple of Two Suns" 2000, Heavy Metal
+
+1. The Temple Fanfare 02:24 
+2. Pilot of Earth 02:49 
+3. Outer Space 03:42 
+4. Celebration Day (Sun Serenade, Opus I) 06:01 
+5. Flag of Life (Sun Serenade, Opus II) 04:25
+6. Unknown Man 06:01
+7. Hold On 03:45 
+8. Evolution's Falling 05:48 
+9. Inside the Fire 05:01 
+10. Eyes of All Young 03:54 
+11. Hold On (Reprise) 05:02
+
+Line-up:
+Klaus Dirks - vocals
+Matthias Mineur - guitar
+Oliver Fuhlhage - guitar
+Thorsten Plorin - bass
+Arved Mannott - drums
+
+Produced by Mob Rules. Recorded between June and August 2000. Mixed and mastered by Sascha Paeth
+ Choir: Thomas Rettke, Susanne Mohle, Miro
+ All guitars on "Inside the Fire" and "Eyes of All Young" by Sascha Paeth
+ Logo and cover artwork by Eric Philippe 
+
+### "Hollowed Be Thy Name" 2002, Heavy Metal
+
+
+
+### "Among the Gods" 2004, Heavy Metal
+
+01. Black Rain
+02. Hydrophobia
+03. Invitation Time
+04. The Miracle Dancer
+05. Among The Gods
+06. New World Symphony
+07. Ship Of Fools
+08. Seven Seas
+09. Meet You In Heaven
+10. Arabia
+
+### "Ethnolution A.D." 2006, Heavy Metal
+
+
+
+### "Radical Peace" 2009, Heavy Metal
+
+1. Children Of The Flames 07:27  
+2. Trial By Fire 05:23  
+3. Warchild 05:53  
+4. Astral Hand 05:48  
+5. The Oswald File (Ethnolution Part II - A Matter Of Unnecessary Doubt) 18:10  
+6. Waiting For The Sun 04:29  
+7. The Glance Of Fame 05:23 
+
+### "Cannibal Nation" 2012, Heavy Metal
+
+01. Close My Eyes 06:19 
+02. Lost 06:29 
+03. Tele Box Fool 04:17 
+04. Ice And Fire 07:01 
+05. Soldiers Of Fortune 04:50 
+06. The Sirens 04:26 
+07. Scream For The Sun (May 29th 1953) 05:39 
+08. Cannibal Nation 04:18 
+09. Sunrise 05:31
+
+
+Limited digipak edition contains 1 bonus track:
+ 
+10. Children of the Flames (live in Atlanta) 
+
 
 ## Отношения с другими группами
 

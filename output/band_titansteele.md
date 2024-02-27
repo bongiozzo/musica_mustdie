@@ -1,7 +1,13 @@
 # Titan Steele
 
-Дискография
-"The Force" 2007, Heavy Metal
+
+
+## Дискография
+
+### "The Force" 2007, Heavy Metal
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,13 @@
 # Empty Shell
 
-Дискография
-"Soul Surgery" 2008, Death Metal
+ex-THORN
+
+## Дискография
+
+### "Soul Surgery" 2008, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

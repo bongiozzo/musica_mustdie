@@ -1,9 +1,67 @@
 # Karelia
 
-Дискография
-"Usual Tragedy" 2004, Metal
-"Raise" 2005, Power Metal
-"Restless" 2008, Gothic
+
+
+## Дискография
+
+### "Usual Tragedy" 2004, Metal
+
+1. Intro
+2. Letter For An Angel
+3. Torn Dress
+4. Usual Tragedy
+5. Deserter
+6. Blind
+7. Called Up
+8. Daddy's Grave
+9. My Guilty Absence
+10. Slave Of Time
+
+All songs written by KARELIA
+Produced, recorded, mixed by Renaud Hebinger
+Recorded and mixed at Studio Blue Bird, France
+
+Matthieu Kleiber - Vocals
+Bertrand Maillot - Keyboards
+Erwan Morice - Guitars, Bass
+Lons Jenn - Drums
+Gilles Thiebaut - Bass
+
+Additional Guitars by Chris Savourey
+
+Opera Choirs:
+Soprano - Celine Innocenti
+Mezzo - Celine Flota
+Alto - Anne Utzmann, Sylvie Hencky
+Matthieu Kleiber - Tenor
+Julien Belle - Bass
+
+### "Raise" 2005, Power Metal
+
+1.Raise
+2.Child has gone
+3.Breakdown
+4.The hermit
+5.Disharmonic dogmas
+6.Cross and crescent
+7.Tearful clown
+8.Unbreakable cordon
+9.Coming turn
+10.High hopes
+
+### "Restless" 2008, Gothic
+
+1. Restless 03:48
+2. Trial 03:13 
+3. Mirror Mirror 04:19 
+4. Lift Me Up 03:53 
+5. Please Come On In 03:43
+6. Lovin' Wife 03:37 
+7. Crash 03:19 
+8. Give It Away 04:05 
+9. From My Windown 02:56
+10. Losing My Religion (R.E.M. cover) 04:33 
+
 
 ## Отношения с другими группами
 

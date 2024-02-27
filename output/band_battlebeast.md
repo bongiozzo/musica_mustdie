@@ -1,8 +1,39 @@
 # Battle Beast
 
-Дискография
-"Steel" 2011, Heavy Metal
-"Battle Beast" 2013, Heavy Metal
+
+
+## Дискография
+
+### "Steel" 2011, Heavy Metal
+
+1. Enter the Metal World
+2. Armageddon Clan
+3. The Band of the Hawk	
+4. Justice And Metal
+5. Steel
+6. Die-Hard Warrior
+7. Cyberspace
+8. Show Me How To Die
+9. Savage And Saint
+10. Iron Hand
+11. Victory
+
+### "Battle Beast" 2013, Heavy Metal
+
+01. Let it Roar
+02. Out of Control
+03. Out on the Streets
+04. Neuromancer
+05. Raven
+06. Into the Heart of Danger
+07. Machine Revolution
+08. Golden Age
+09. Kingdom
+10. Over the Top
+11. Fight, Kill, Die
+12. Black Ninja
+13. Rain Man
+
 
 ## Отношения с другими группами
 

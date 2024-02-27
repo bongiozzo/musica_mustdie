@@ -1,8 +1,17 @@
 # Babymetal
 
-Дискография
-"Babymetal" 2014, Metal
-"Metal Resistance" 2016, Metal
+
+
+## Дискография
+
+### "Babymetal" 2014, Metal
+
+
+
+### "Metal Resistance" 2016, Metal
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,29 @@
 # Apocryphal
 
-Дискография
-"From depths" 1995, Death Metal
-"Black dreams..." 1999, Death Metal
+
+
+## Дискография
+
+### "From depths" 1995, Death Metal
+
+- STELLA 
+- FROM DEPTHS 
+- PANDEMONIUM 
+- HEDONE 
+- THE REVELING DREAMS 
+- THE OFFERING
+
+### "Black dreams..." 1999, Death Metal
+
+- No more tears
+- Black dream of silence
+- the unseen multitude
+- Leave
+- A time scale of reflection
+- Soul song
+- Hidden
+- Just a word
+
 
 ## Отношения с другими группами
 

@@ -1,9 +1,42 @@
 # Rahvira
 
-Дискография
-"Part I" 2011, Black Metal
-"Part II" 2011, Black Metal
-"Our Fight" 2011, Black Metal
+black-metal from Armenia
+
+## Дискография
+
+### "Part I" 2011, Black Metal
+
+01. Naxaban (Xosq Mecin)
+02. Ov Du ArIakan
+03. Ler
+04. I Gitutyun
+05. Lrutyun
+06. Miayn Araj
+07. Haghtanak
+08. Verjaban (Aryac Par)
+
+### "Part II" 2011, Black Metal
+
+01. Naxaban (Meci Xorhrdov)
+02. Taghel En Qez
+03. Hamerg
+04. Mahvan Simfonian
+05. Votqi Eleq
+06. Haverjakan Paterazm
+07. Menak Es
+08. Verjaban (Haghtakan Par)
+
+### "Our Fight" 2011, Black Metal
+
+01. Hayoc Visht
+02. Avarayr
+03. Es Voghj Em
+04. Erkatakert
+05. Lqvac Senyak
+06. Churanal
+07. Gharabagh
+08. Misht Hay
+
 
 ## Отношения с другими группами
 

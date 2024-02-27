@@ -1,12 +1,78 @@
 # Blaze Bayley
 
-Дискография
-"The Man Who Would Not Die" 2008, Heavy Metal
-"Promise and Terror" 2010, Heavy Metal
-"The King Of Metal" 2012, Heavy Metal
-"Alive In Poland" 2013, Heavy Metal
-"Soundtracks Of My Life (2CD - Compilation)" 2013, Heavy Metal
-"Infinite Entanglement" 2016, Heavy Metal
+
+
+## Дискография
+
+### "The Man Who Would Not Die" 2008, Heavy Metal
+
+1. The Man Who Would Not Die 04:35
+2. Blackmailer 04:43 
+3. Smile Back At Death 07:38
+4. While You Were Gone 05:27 
+5. Samurai 05:39 
+6. Crack In The System 05:53
+7. Robot 03:10 
+8. At The End Of The Day 03:39 
+9. Waiting For My Life To Begin 05:10 
+10. Voices From The Past 05:55 
+11. The Truth Is One 04:22
+12. Serpent Hearted Man 06:15 
+
+
+
+Line-up:
+Blaze Bayley - Vocals
+Nico Bermudez - Guitar
+Jay Walsh - Guitar
+David Bermudez - Bass
+Larry Paterson - Drums 
+
+### "Promise and Terror" 2010, Heavy Metal
+
+1. Watching the Night Sky 03:36 
+2. Madness and Sorrow 03:09 
+3. 1633 06:03 
+4. God of Speed 05:48 
+5. City of Bones 06:26 
+6. Faceless 03:46 
+7. Time to Dare 05:41
+8. Surrounded by Sadness 03:59
+9. The Trace of Things That Have No Words 05:48 
+10. Letting Go of the World 06:24 
+11. Comfortable in Darkness 05:00 
+
+
+
+
+
+### "The King Of Metal" 2012, Heavy Metal
+
+
+
+### "Alive In Poland" 2013, Heavy Metal
+
+
+
+### "Soundtracks Of My Life (2CD - Compilation)" 2013, Heavy Metal
+
+
+
+### "Infinite Entanglement" 2016, Heavy Metal
+
+01. Infinite Entanglement
+02. A Thousand Years
+03. Human
+04. What Will Come
+05. Stars Are Burning
+06. Solar Wind
+07. The Dreams of William Black
+08. Calling You Home
+09. Dark Energy 256
+10. Independence
+11. A Work of Anger
+12. Shall We Begin
+
 
 ## Отношения с другими группами
 

@@ -1,9 +1,76 @@
 # Ghost Brigade
 
-Дискография
-"Guided By Fire" 2007, Metal
-"Isolation Songs" 2009, Metal
-"Until Fear No Longer Defines Us" 2011, Metal
+
+
+## Дискография
+
+### "Guided By Fire" 2007, Metal
+
+Rails at the River 
+Hold on thin Line 
+Horns 
+Minus Side 
+Away and here 
+Along the Barriers 
+Based on you 
+Disgusted by the Light 
+Autoemotive 
+Deliberately
+
+Manne Ikonen - вокал
+Tommi Kiviniemi - гитары
+Wille Naukkarinen - гитары
+Janne Julin - бас
+Veli-Matti Suihkonen - ударные
+
+### "Isolation Songs" 2009, Metal
+
+1. Suffocated  05:28   
+2. My Heart is a Tomb  04:27   
+3. Into the Black Light  05:27 
+4. Lost in a Loop  05:03   
+5. 22.22 Nihil  05:48  
+6. Architect of New Beginnings  04:32 
+7. Birth  09:01   
+8. Concealed Revulsions  05:30   
+9. Secrets of the Earth  05:04   
+10. A Storm Inside  06:20 
+
+### "Until Fear No Longer Defines Us" 2011, Metal
+
+1. In the Woods 04:17
+2. Clawmaster 06:34
+3. Chamber 06:39
+4. Traces of Liberty 04:01
+5. Divine Act of Lunacy 05:02
+6. Grain 05:26
+7. Breakwater 08:51
+8. Cult of Decay 04:46
+9. Torn 04:44
+10. Soulcarvers 07:53
+
+
+Janne Julin - Bass 
+Veli-Matti Suihkonen - Drums 
+Tommi Kiviniemi - Guitars 
+Wille Naukkarinen - Guitars 
+Manne Ikonen - Vocals 
+
+
+Third full-length "Until Fear No Longer Defines Us" will be available in the following formats:
+ 
+* CD Digipack
+ * Double LP 12" gatefold coloured vinyl + Download Card
+ * Collectors Box
+ 
+Collectors Box includes the following items:
+ 
+* CD Digipak
+ * T-shirt
+ * Leather bracelet M/F
+ * Postcard signed by hand by all members
+ * 3 metal button badges 
+
 
 ## Отношения с другими группами
 

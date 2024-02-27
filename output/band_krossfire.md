@@ -1,8 +1,37 @@
 # Krossfire
 
-Дискография
-"Learning To Fly" 2011, Progressive
-"Shades of Darkness" 2016, Progressive
+
+
+## Дискография
+
+### "Learning To Fly" 2011, Progressive
+
+1.	 Visions [Intro]	02:53	  instrumental
+2.	 War Machine	06:03	 
+3.	 How Can There Be...?	04:25	 
+4.	 Icaria	02:05	 
+5.	 Learning To Fly	05:41	 
+6.	 Touch of Destiny	06:06	 
+7.	 False Reality	05:27	 
+8.	 Angels Cry	05:30	 
+9.	 Cold Wings	04:25	 
+10.	 The One	05:12	
+
+### "Shades of Darkness" 2016, Progressive
+
+1. The Ninth (The Lost Eagle, Part I) 
+2. The Last Ride (The Lost Eagle, Part II)
+3. King Will Come (The Lost Eagle, Part III)
+4. Destiny's Calling 
+5. One More Time 
+6. Farewell	 
+7. Fall from Grace
+8. Annabelle	 
+9. Glory to Heavens 
+10. Like a Shadow	 
+11. Rule the Dark	 
+12. Heaven Halls
+
 
 ## Отношения с другими группами
 

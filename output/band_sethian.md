@@ -1,7 +1,13 @@
 # Sethian
 
-Дискография
-"Into The Silence" 2003, Gothic
+
+
+## Дискография
+
+### "Into The Silence" 2003, Gothic
+
+
+
 
 ## Отношения с другими группами
 

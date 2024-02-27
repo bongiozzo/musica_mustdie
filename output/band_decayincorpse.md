@@ -1,6 +1,9 @@
 # Decayin Corpse
 
-Дискография
+grind/noise from Germany
+
+## Дискография
+
 
 ## Отношения с другими группами
 

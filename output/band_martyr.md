@@ -1,8 +1,33 @@
 # Martyr
 
-Дискография
-"Hopeless Hopes" 1997, Techno Death
-"Warp Zone" 2000, Techno Death
+
+
+## Дискография
+
+### "Hopeless Hopes" 1997, Techno Death
+
+01. Hopeless Hopes
+02. Prototype
+03. Elementals
+04. Non Conformis
+05. Ostrogoth
+06. The Blind's Reflection
+07. Inner Peace
+08. Ars Nova
+09. Nipsk
+
+### "Warp Zone" 2000, Techno Death
+
+01. Warp Zone
+02. Virtual Emotions
+03. Endless Vortex Towards Erasing Destiny
+04. Deseted Waters
+05. Carpe Diem
+06. The Fortune Teller
+07. Speechless
+08. RetryAbortIgnore
+09. Realms Of Reverie
+
 
 ## Отношения с другими группами
 

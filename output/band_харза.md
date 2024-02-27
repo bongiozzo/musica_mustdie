@@ -1,8 +1,24 @@
 # Харза
 
-Дискография
-"Восточный Фронт" 2008, Black Metal
-"War" 2010, Black Metal
+
+
+## Дискография
+
+### "Восточный Фронт" 2008, Black Metal
+
+
+
+### "War" 2010, Black Metal
+
+1. Heldenbrief 04:30
+2. Leibstandarte 03:32
+3. Panzer Fuhrer 05:23
+4. Nurnberg 04:44
+5. Eastern Front 06:18 
+6. Налет Врага - Enemy Airstrike 04:23
+7. Русский Воин - Russian Warrior 04:17
+8. В Пламени Ярости - In the Flame of Rage 04:58 
+
 
 ## Отношения с другими группами
 

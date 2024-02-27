@@ -1,7 +1,20 @@
 # Plastic Earth
 
-Дискография
-"S.E.A.M. - 01" 2004, Melodic Death Metal
+
+
+## Дискография
+
+### "S.E.A.M. - 01" 2004, Melodic Death Metal
+
+1.  Silent Field 
+2.  Thousand Me 
+3.  S.E.A.M.-01 
+4.  Remember Pain 
+5.  Sleep 
+6.  Standing on Sky 
+7.  Nothing Not 
+8.  Just you want be the Moon
+
 
 ## Отношения с другими группами
 

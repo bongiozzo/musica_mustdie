@@ -1,8 +1,23 @@
 # Ashaena
 
-Дискография
-"Cei nascuti din pamant" 2009, Metal
-"Calea" 2016, Metal
+
+
+## Дискография
+
+### "Cei nascuti din pamant" 2009, Metal
+
+
+
+### "Calea" 2016, Metal
+
+1. Tapae 87
+2. Calea
+3. Tara Berladnicilor
+4. Crapat di Cer
+5. Spirit-Sageata
+6. Zbor Insetat
+7. Mos Urs
+
 
 ## Отношения с другими группами
 

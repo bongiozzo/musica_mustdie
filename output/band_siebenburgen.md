@@ -1,12 +1,117 @@
 # Siebenburgen
 
-Дискография
-"Loreia" 1997, Black Metal
-"Grimjaur" 1998, Black Metal
-"Delictum" 2000, Black Metal
-"Plagued Be Thy Angel" 2001, Black Metal
-"Darker Designs & Images" 2005, Black Metal
-"Revelation VI" 2008, Black Metal
+
+
+## Дискография
+
+### "Loreia" 1997, Black Metal
+
+01. VAMPYRIA 
+02. NATTENS VAV 
+03. MARDROM 
+04. UNGENTUM PHARELIS 
+05. OM HOSTEN DOD 
+06. LOREIA 
+07. ATT DRICKA NAGONS BLOD 
+08. VITTRING AV LIV 
+09. MORGATARIA 
+10. DODENS SOMN
+
+### "Grimjaur" 1998, Black Metal
+
+01. GRIMJAUR 
+02. VINTERVILA 
+03. NATTSKRACKEN 
+04. SLOTTET AURAGON 
+05. FOR MIG...DITT BLOD UTGJUTET 
+06. DODENS SVARTA FANA 
+07. LUNA LUCIFERI 
+08. I DODEN FANN HON LIV 
+09. VARGABLOD 
+10. IBI CUBAVIT LAMIA
+
+### "Delictum" 2000, Black Metal
+
+01. DELICTUM 
+02. MAJESTIES INFERNAL 
+03. STORMS 
+04. THOU BLESSED BE BY NIGHT 
+05. AS OF SIN 
+06. LEVANDE BEGRAVD 
+07. THY SISTER THEE CRIMSON WED 
+08. OPACITAS (QUEEN OF THE DARK) 
+09. A DREAM OF SCARLET NIGHTS 
+10. OCULUS MALUS
+
+### "Plagued Be Thy Angel" 2001, Black Metal
+
+01 - Exordium
+02 - Plagued Be Thy Angel 
+03 - Destination Supremacy
+04 - Father Of All Lies
+05 - The Night Alit
+06 - Angelic 
+07 - For The Ones Who Sleep
+08 - Skдndat Sinne
+09 - The Roses Bleed At Night 
+10 - As Black As A Midnight Heart
+11 - Her Shadows Adored
+12 - Deliverance
+
+
+LINE-UP
+M.Ehlin - Vocals
+A.Rosdahl - Drums
+F.Brockert - Bass
+R.Bryngelsson - Guitar
+L.Ekstrцm - Guitar
+K.Hцijertz - Vocals
+
+Recorded Jun-Sep/01 in Six String Studio
+
+
+
+### "Darker Designs & Images" 2005, Black Metal
+
+01. Darker Designs
+02. Rebellion
+03. As Legion Rise
+04. A Crimson Coronation
+05. Skuggor
+06. Born Under A Black Sun
+07. Of Blood And Magic
+08. Remnants Of Ruin
+09. Harvest For The Devil
+10. Forged In Flames
+11. Summoner Of The Unseen
+12. A Nights Eternity
+13. Ut Ur Graven 2005
+
+### "Revelation VI" 2008, Black Metal
+
+1. Awaken 02:07  
+2. Rebirth Of The Nameless 03:50  
+3. Infernaliia 04:42  
+4. Revelation VI 05:21  
+5. Grimheim 05:20  
+6. After The Wolf (Do Dead Men Follow) 06:25  
+7. S.I.N. 04:26  
+8. The Oaken Throne 03:38  
+9. The Soulless 04:28  
+10. Enter Omega (Bonus Track) 03:09  
+11. In Sanctum 04:55  
+12. Fire Leaps High 04:37  
+13. At The End Of Twilight 04:01 
+
+
+Line up:
+Marcus Ehlin - Vocals, bass
+Dennis Ekdahl - Drums
+Richard Bryngelsson - Guitars
+Johnnie Gunther - Keyboards
+Joakim Ohlsson - Guitars
+Lisa Bohwalli Simonsson - Vocals 
+
 
 ## Отношения с другими группами
 

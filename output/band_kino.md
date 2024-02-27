@@ -1,7 +1,13 @@
 # Kino
 
-Дискография
-"Picture" 2005, Instrumental
+progressive
+
+## Дискография
+
+### "Picture" 2005, Instrumental
+
+
+
 
 ## Отношения с другими группами
 

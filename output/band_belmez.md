@@ -1,7 +1,30 @@
 # Belmez
 
-Дискография
-"Berserker" 1995, Black Metal
+
+
+## Дискография
+
+### "Berserker" 1995, Black Metal
+
+1. Und Leise Zieselt Der Wind ...
+2. Berserker
+3. Meine Kraft
+4. Medusa
+5. Spaziegrang Mit Pestmaske
+6. Lautloser Gigant
+7. Wurmland
+8. Villa Hildebrandt
+9. Lippen Auf Verwestem Fleisch
+
+ Karsten Breitung - Vocals, Guitars, Bass
+ Modest Zimmermann - Drums
+
+All Songs Written By BELMEZ
+Produced By Modest Zimmermann
+Recorded & Mixed At Digan Tonstudio, 1994
+
+(p)&(c) 1995 NAPALM Records
+
 
 ## Отношения с другими группами
 

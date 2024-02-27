@@ -1,8 +1,30 @@
 # Forgotten Silence
 
-Дискография
-"Thots" 1997, Death Metal
-"KaBaAch" 2000, Death Metal
+
+
+## Дискография
+
+### "Thots" 1997, Death Metal
+
+1.  Clara Writes
+2.  Rosa - The Beauty
+3.  Tres Marias Pt. I
+4.  Tres Marias Pt. II
+5.  Clara - The Clairvoyant
+6.  A Night At "Cristobal Colon"
+7.  Blanca - The Endless Desire
+8.  The Awakening
+9.  Alba - The Linle Girl
+10.The Evenings
+11.The Old Memories (The House Of The Spirits)
+12....And You Read
+
+(P)(C) 1997 METAL AGE Production // MA 008
+
+### "KaBaAch" 2000, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

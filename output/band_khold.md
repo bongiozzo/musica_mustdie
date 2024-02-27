@@ -1,11 +1,86 @@
 # Khold
 
-Дискография
-"Masterpiss Of Pain" 2001, Black Metal
-"Phantom" 2002, Black Metal
-"Morke Gravers Kammer" 2004, Black Metal
-"Krek" 2005, Black Metal
-"Hundre Еr Gammal" 2008, Black Metal
+
+
+## Дискография
+
+### "Masterpiss Of Pain" 2001, Black Metal
+
+01 - Nattpyre
+02 - Den Store Allianse
+03 - Norne
+04 - Svart Helligdom
+05 - Rovnatt
+06 - Kaldbleke Hender
+07 - Bortvandring
+08 - Mesterverk Av Smerte
+09 - Jol
+10 - Oeyne I Arv
+
+
+### "Phantom" 2002, Black Metal
+
+D&#248;dens Gr&#248;de (Death Crop)
+Skjebne (Vette (Bringer of fate))
+Hekseformular i Vev (Witchcraft in Loom)
+Phantom
+Fra Grav til M&#248;rke (From Grave to Gloom)
+D&#248;de Fuglers Sang (Dead Birds' Song)
+Slaktereika (Butcher's Oak)
+Ord i Flammer (Words in Flames)
+Vandring (Wandering)
+
+### "Morke Gravers Kammer" 2004, Black Metal
+
+1. Atselgraver 03:49  
+2. Dod / Niflheimr 06:42  
+3. Hevnerske 03:58  
+4. Med Nebb og Klor 03:37  
+5. Morke Gravers Kammer 04:29  
+6. Opera Seria / Sjeleskjender 08:26  
+7. Vardoger 03:31  
+8. Kamp 04:02
+
+### "Krek" 2005, Black Metal
+
+1. Krek 
+2. Blod og Blek 
+3. Innestengt I Eikekiste 
+4. Oskorei 
+5. Byrde 
+6. Lysets Flukt 
+7. Grepet Om Kniven 
+8. Midvinterblot 
+9. Varde 
+10. Silur Wie 
+
+Line-Up: 
+Gard: Vocals/Guitars 
+Rinn: Guitars 
+Grimd: Bass 
+Sarke: Drums
+
+### "Hundre Еr Gammal" 2008, Black Metal
+
+1. Der Kulden Rеr 03:28  
+2. Forrykt 03:31  
+3. Hundre Еr Gammal 03:29  
+4. Mester Og Trell 02:39  
+5. Trolшs 02:56  
+6. Rekviem 04:35  
+7. Sann Ditt Svik 02:03  
+8. Villfaren 03:36  
+9. Bшnn 03:15  
+10. Kor 03:17  
+11. Straff 03:35 
+
+
+Gard (Sverre Stokland) - Vocals, Guitars 
+Rinn (Geir Kildahl) - Guitars 
+Sarke (Thomas Berglie) - Drums 
+Grimd (Thomas Arnesen) - Bass
+
+
 
 ## Отношения с другими группами
 

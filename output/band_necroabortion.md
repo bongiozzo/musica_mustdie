@@ -1,7 +1,22 @@
 # Necroabortion
 
-Дискография
-"Brutal Misanthropy" 2008, Death Metal
+
+
+## Дискография
+
+### "Brutal Misanthropy" 2008, Death Metal
+
+1. Quartered In The Woods 03:12  
+2. Dim Abortion 02:29  
+3. Living Dead Abortion 03:21  
+4. Extermination 02:50  
+5. Following the evil's paths 02:30  
+6. Brutal Misanthropy 02:54  
+7. Psychotic Omnipotence 03:00  
+8. Mortuary 03:50  
+9. Violent Scenes 04:00
+10. N/N 03:12 
+
 
 ## Отношения с другими группами
 

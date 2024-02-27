@@ -1,11 +1,94 @@
 # Endraum
 
-Дискография
-"Zeitenlicht" 1992, Gothic
-"In Flimmernder Nacht" 1993, Gothic
-"Morgenrote" 1994, Gothic
-"Innerlichkeit" 1996, Gothic
-"Traumstaub" 2004, Gothic
+dark wave
+
+## Дискография
+
+### "Zeitenlicht" 1992, Gothic
+
+1. Nostalgie
+2. Regentanz
+3. Der Rosengarten
+4. Zuviel keiner Worte
+5. Des Zeitenlicht Spur
+6. Der Wanderer
+7. Der Traumer der keiner ist
+8. Schlafendes Tal
+9. Tres Turi
+
+### "In Flimmernder Nacht" 1993, Gothic
+
+01. Ouverture
+02. Schatten Der Nacht
+03. Albatros
+04. Orthosia
+05. Nostalghia
+06. Krumme Schatten Im Stummen Muster
+07. Hommage
+08. Dammerung Mein Lichterkranz
+09. Demeter
+10. Zerdruckte Kehle
+
+### "Morgenrote" 1994, Gothic
+
+01. Ouverture
+02. Die Stille Der Nacht
+03. Sternkleine Rose
+04. Schwan Der Meere
+05. Endraum
+06. Trilogie Der Farben (teil 1)
+07. Der Wanderer 2
+08. Trilogie Der Farben (teil 2)
+09. Ti La Socus
+10. Trilogie Der Farben (teil 3)
+11. Goessa
+12. Einsame Worte
+
+### "Innerlichkeit" 1996, Gothic
+
+1. An Dich
+2. In Grauer Stadt
+3. Der Blaue Kreis
+4. Mother Earth
+5. Nagila
+6. Mirabell
+7. Empfindung
+8. Weisser Herbst
+[9]. An Den Dichter
+[10].Re-Tanz
+[11].In Grauer Stadt II
+
+[9]-[11] - Ha стороне B
+
+All songs written by ENDRAUM.
+Produced by ENDRAUM.
+Recorded & mixed in "Weisser Herbat"
+Studio.
+
+ENDRAUM are: Hovi-M. and Roman R.
+
+(p)(c) 1996 WEISSER HERBST
+   Production
+
+### "Traumstaub" 2004, Gothic
+
+01. Movietransmitter
+02. Traumstaub
+03. Just One Kiss
+04. An Yvon Million
+05. Inkubation (Teil Eins)
+06. Dreamlight (Teil Eins)
+07. Ein Letztes Mal
+08. Korper und Haut
+09. Inkubation (Teil Zwei)
+10. Gift
+11. Zedernhauch
+12. Dreamlight (Teil Zwei)
+13. Inkubation (Teil Trei)
+14. Spiegel in Spiegel
+15. Im Schlaf der Hand
+16. Traumstaub (Stillife)
+
 
 ## Отношения с другими группами
 

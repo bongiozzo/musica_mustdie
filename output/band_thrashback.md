@@ -1,8 +1,36 @@
 # Thrashback
 
-Дискография
-"Possessed By Thrash" 2013, Thrash
-"Night Of The Sacrifice" 2015, Thrash
+
+
+## Дискография
+
+### "Possessed By Thrash" 2013, Thrash
+
+01. Human Race Extinction 0:52
+02. Bombers Of Death 3:07
+03. Box Of Pwer 4:01
+04. Possessed By Thrash 2:42
+05. Wardance 3:19
+06. Leatherface 3:18
+07. Thrashback 2:28
+08. Feast For The Dogs 3:11
+09. Unleashed The Beast 3:25
+10. Pounding Metal 4:51
+
+### "Night Of The Sacrifice" 2015, Thrash
+
+01. Let There Be Thrash
+02. Endless War
+03. Night of the Sacrifice
+04. Under the Hammer
+05. The Burning of Atlanta
+06. Abused
+07. Rest in Peace
+08. D.I.E.
+09. 1888 (Jack the Ripper)
+10. Maniac
+11. (We Are) The Thrash Crew
+
 
 ## Отношения с другими группами
 

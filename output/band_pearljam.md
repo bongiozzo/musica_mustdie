@@ -1,14 +1,268 @@
 # Pearl Jam
 
-Дискография
-"Ten" 1991, Grunge
-"Vs." 1993, Grunge
-"Vitalogy" 1994, Grunge
-"No Code" 1996, Grunge
-"Yield" 1998, Grunge
-"Live on Two Legs" 1998, Grunge
-"Binaural" 2000, Grunge
-"Riot Act" 2002, Grunge
+The Cult Grunge/Hard Rock Band of '90s from U.S.A.
+
+## Дискография
+
+### "Ten" 1991, Grunge
+
+1. Once - 3:51
+2. Even Flow - 4:53
+3. Alive - 5:40
+4. Why Go - 3:19
+5. Black - 5:48
+6. Jeremy - 5:18
+7. Oceans - 2:41
+8. Porch - 3:30
+9. Garden - 4:58
+10. Deep - 4:18
+11. Release - 6:30
+
+
+Released August 27, 1991
+Epic: 47857
+
+Dave Krusen - Drums
+Eddie Vedder - Vocals
+Mike McCready - Guitar
+Stone Gossard - Guitar
+
+Addition Players: 
+Rick Parashar - Piano, Organ, Percussion
+Walter Gray - Cello
+Tim Palmer - Fire Extinguisher, Pepper Shaker
+
+Produced by:
+Pearl Jam and Rick Parashar
+
+Recorded at:
+London Bridge Studios, Seattle, March/April '91
+
+Mixed by:
+Tim Palmer
+Additional Engineering by:
+Dave Hillis, Don Gilmore, Adrian Moore
+
+Mixed at:
+Ridge Farm Studios, Dorking, England, June '91
+Mastered by:
+Bob Ludwig
+
+&copy; 1991 Epic Associated
+
+### "Vs." 1993, Grunge
+
+1. Go - 3:13
+2. Animal - 2:49
+3. Daughter - 3:56
+4. Glorified G - 3:26
+5. Dissident - 3:36
+6. W.M.A. - 5:59
+7. Blood - 2:51
+8. Rearviewmirror - 4:44
+9. Rats - 4:15
+10. Elderly Woman Behind the Counter in a Small Town - 3:16
+11. Leash - 3:09
+12. Indifference - 5:03
+
+
+Released October 19, 1993
+Epic: 53136
+
+Dave Abbruzzese - Drums
+Jeff Ament - Bass
+Stone Gossard - Guitars
+Mike McCready - Guitars
+Eddie Vedder - Vocals
+
+Produced by:
+Brendan O'Brien and Pearl Jam
+
+Assisting:
+Nick DiDia, Kevin Scott, Adam Kasper
+
+Created at:
+Potatohead, Seattle, Washington
+The Site in Nicasio, California
+
+&copy; 1993 Epic Associated
+
+### "Vitalogy" 1994, Grunge
+
+1. Last Exit - 2:54
+2. Spin the Black Circle - 2:48
+3. Not for You - 5:52
+4. Tremor Christ - 4:12
+5. Nothingman - 4:35
+6. Whipping - 2:35
+7. Pry, To - 1:03
+8. Corduroy - 4:37
+9. Bugs - 2:45
+10. Satan's Bed - 3:31
+11. Better Man - 4:28
+12. Aye Davanita - 2:58
+13. Immortality - 5:28
+14. Stupid Mop (Hey Foxymophandlemama, That's Me) - 7:44
+
+  
+Released December 6, 1994 
+Epic: 66900
+
+Early Vinyl Release:
+November 22, 1994
+
+Eddie Vedder - Vocals, Guitar, Accordion
+Jeff Ament - Bass, StandUp, Vocals
+Stone Gossard - Guitar, Mellotron, Vocals
+Mike McCready - Guitar, Slide, Vocals
+Dave Abbruzzese - DrumKit
+
+Produced by:
+Brendan O'Brien and Pearl Jam
+
+Recorded by:
+Brendan O'Brien
+
+Engineered by:
+Nick DiDia
+
+Assisted by:
+Caram Costanzo, Adam Kasper, Trina Shoemaker, John Burton, Kevin Scott
+
+Recorded in:
+Seattle, Atlanta, New Orleans
+
+&copy; 1994 Epic Associated
+
+### "No Code" 1996, Grunge
+
+1. Sometimes
+2. Hail, Hail
+3. Who You Are
+4. In My Tree
+5. Smile
+6. Off He Goes
+7. Habit
+8. Red Mosquito
+9. Lukin
+10. Present Tense
+11. Mankind
+12. I'm Open
+13. Around the Bend
+
+
+Released August 27, 1996 
+EPIC: 67500
+
+Mike McCready - Guitar
+Jeff Ament - Bass
+Stone Gossard - Guitar, Vocals
+Jack Irons - Drums
+Ed Vedder - Vocals, Guitar
+
+Produced by:
+Brendan O'Brien, Pearl Jam
+
+Mixed by:
+Brendan O'Brien and Nick DiDia
+
+Recorded by:
+Nick DiDia
+
+Mastered by:
+Bob Ludwig
+
+Recorded in:
+Chicago, Atlanta, Studio Litho (Seattle)
+
+Assistant Engineers:
+Matt Bayles, Jeff Layne, Caram Costanzo
+
+&copy; 1996 Epic Associated
+
+### "Yield" 1998, Grunge
+
+1. Brain of J.
+2. Faithfull
+3. No Way
+4. Given To Fly
+5. Wishlist
+6. Pilate
+7. Do The Evolution
+8. Untitled
+9. MFC (Mini Fast Car)
+10. Low Light
+11. In Hiding
+12. Push Me, Pull Me
+13. All Those Yesterdays
+
+Released February 3, 1998
+Length: 48:37
+
+Mike McCready - guitar
+Stone Gossard - guitar
+Ed Vedder - vocals, guitar
+Jeff Ament - bass
+Jack Irons - drums 
+
+
+Produced by:
+Brendan O'Brien, Pearl Jam 
+Mixed by:
+Brendan O'Brien (except for Push Me, Pull Me 
+mixed by Nick DiDia) 
+Recorded by:
+Nick DiDia, Additional Engineering by Matt Bayles 
+Recorded and mixed at:
+Studio Litho and Studio X (Seattle) and Southern 
+Tracks Recording and Doppler (Atlanta). 
+Second Engineers:
+Matt Bayles at Studio Litho; Sam Hofstedt at Studio X 
+and Ryan Williams at Southern Tracks 
+Mastered at:
+Rodney Mills' Masterhouse
+
+### "Live on Two Legs" 1998, Grunge
+
+
+
+### "Binaural" 2000, Grunge
+
+1.Breakerfall
+2.Gods' Dice
+3.Evacuation
+4.Light Years
+5.Nothing As It Seems
+6.Thin Air
+7.Insignificance
+8.Of The Girl
+9.Grievance
+10.Rival
+11.Sleight Of Hand
+12.Soon Forget
+13.Parting Ways
+
+Released May 16, 2000
+Length: 52:05
+ 
+Eddie Vedder - vocals, guitar
+Stone Gossard - guitar
+Jeff Ament - bass
+Mike McCready - guitar
+Matt Cameron - drums
+
+Produced by: Tchad Blake and Pearl Jam 
+Recorded at: Studio Litho, Seattle, WA 
+Mixed by: Brendan O'Brien and Tchad Blake 
+Mixed at: Southern Tracks, Atlanta, GA 
+and Sunset Sound Factory, Los Angeles, CA 
+Engineered by: Matt Bayles 
+2nd Engineers: Ashley Stubbert Adam Samuels
+
+### "Riot Act" 2002, Grunge
+
+
+
 
 ## Отношения с другими группами
 

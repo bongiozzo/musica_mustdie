@@ -1,8 +1,27 @@
 # Daemonlord
 
-Дискография
-"Of War And Hate" 2005, Black Metal
-"Hellfire Centuries" 2006, Black Metal
+
+
+## Дискография
+
+### "Of War And Hate" 2005, Black Metal
+
+
+
+### "Hellfire Centuries" 2006, Black Metal
+
+1. Rifles and Hammers
+2. Riding the Mushhushu
+3. Monuments of Bereavement
+4. The Shattering
+5. Ancient Goddess of Lust and Battle 
+6. The Cannibals of Maarat
+7. The Paths of Glory 
+8. Apocalypse Revisited
+9. Wasteland 2035
+10. Kill the Descendants of Christ
+11. The Sharpened Edge of Ignorance
+
 
 ## Отношения с другими группами
 

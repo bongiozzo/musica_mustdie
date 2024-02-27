@@ -1,6 +1,9 @@
 # Arsedestroyer
 
-Дискография
+swedish noisy grindcore
+
+## Дискография
+
 
 ## Отношения с другими группами
 

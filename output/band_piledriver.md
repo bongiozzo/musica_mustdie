@@ -1,7 +1,25 @@
 # Piledriver
 
-Дискография
-"A Mouthful Of Venus' Soda" 1996, Industrial
+
+
+## Дискография
+
+### "A Mouthful Of Venus' Soda" 1996, Industrial
+
+1.  Broken Hearts
+2.  The Incredible Saga Of Djeigis Gandhi
+3.  A Mouthful Of Venus' Soda
+4.  Most Delicous Swine
+5.  A Kidney Shaped Coffin
+6.  Coolest Fuck
+7.  Cauliflower Bed
+8.  Mael
+9.  Transvestitional Speedway
+10.Theresa's Song
+11.I Am A Man
+
+(P)(C) 1996 PROGRESS Records
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,22 @@
 # Heathen Foray
 
-Дискография
-"The Passage" 2009, Metal
+
+
+## Дискография
+
+### "The Passage" 2009, Metal
+
+1. Fading Tree 05:19
+2. Northstar 03:34
+3. Winterking 04:56
+4. Fortress of Faith 04:18
+5. Chants 04:12
+6. Dragon's Eyes 04:33
+7. Ancient Secrets 03:40
+8. Wolkenbruch 03:58
+9. Theatre of Battle 05:06
+10. Wilderness Lore 03:47 
+
 
 ## Отношения с другими группами
 

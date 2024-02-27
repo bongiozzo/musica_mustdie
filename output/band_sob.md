@@ -1,12 +1,64 @@
 # S.O.B.
 
-Дискография
-"Don't Be Swindle" 1987, Grindcore
-"What's The Truth?" 1990, Grindcore
-"Gate Of Doom" 1993, Grindcore
-"Vicious World" 1994, Grindcore
-"Dub Grind" 1999, Grindcore
-"Still Grind Attitude" 2003, Grindcore
+
+
+## Дискография
+
+### "Don't Be Swindle" 1987, Grindcore
+
+
+
+### "What's The Truth?" 1990, Grindcore
+
+1. Over The Line
+2. Meddlesome Heart
+3. Unseen Terror
+4. Look Like Devil II (Hell)
+5. Obsessed With Wickedness
+6. What`s The Truth
+7. Never
+8. Slayer
+9. Repeat At Length
+10.Why ?
+11.Raging In Hell
+12.Give Me Advice
+13.Don`t Turn Your Back
+14.S.O.B.
+15.Nightmare
+16.No Control
+17.Luck Or Die
+18.Thrash Night
+
+ Toshimi - Guitar
+ Tottsuan - Vocals
+ Daisuke - Bass
+ Yasue - Drums
+
+Tracks 1-10 Recorded 15-19 September 1990.
+Tracks 11-18 Taken From Now Deleted "Thrash Night"EP,
+Recorded 20-21st June 1989.
+Naoto Plays Bass On These Tracks Only Sleeve Art.
+Tom Layout: Lee.
+
+(p) 1990 RISE 4 RISE ABOVE / SELFISH Records
+(c) 1990 RISE ABOVE Records
+
+### "Gate Of Doom" 1993, Grindcore
+
+
+
+### "Vicious World" 1994, Grindcore
+
+
+
+### "Dub Grind" 1999, Grindcore
+
+
+
+### "Still Grind Attitude" 2003, Grindcore
+
+
+
 
 ## Отношения с другими группами
 

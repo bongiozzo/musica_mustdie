@@ -1,8 +1,78 @@
 # Destiny's End
 
-Дискография
-"Breathe Deep the Dark" 1998, Power Metal
-"Transition" 2001, Power Metal
+
+
+## Дискография
+
+### "Breathe Deep the Dark" 1998, Power Metal
+
+1.  Rebirth
+ 2.  Breathe Deep the Dark
+ 3.  To Be Immortal
+ 4.  Idle City
+ 5.  The Fortress Unvanquishable
+ 6.  Sinister Deity
+ 7.  Unsolved World
+ 8.  Under Destruction's Thumb
+ 9.  Clutching at Straws
+10. Where Do We Go?
+11. The Obscure
+
+
+James Rivera - vocals
+Dan DeLucie - guitars
+Perry M. Grayson - guitars
+Nardo Andi - bass
+Brian Craig - drums
+
+
+### "Transition" 2001, Power Metal
+
+1.  Transition - 4:50
+ 2.  The Watcher - 4:21
+ 3.  A Passing phase - 5:36
+ 4.  The Suffering - 7:07
+ 5.  From Dust to Life - 4:52
+ 6.  Storm Cluds - 5:05
+ 7.  First You Dream, Then You Die - 6:31
+ 8.  The Legend - 4:21
+ 9.  A Choice of Graves - 4:54
+10.  Vanished - 7:30
+
+
+DESTINY'S END IS:
+
+Vocals: James Rivera
+Guitars: Dan DeLucie
+Guitars: Eric Halpern
+Bass: Nardo Andi
+Drums: Brian Craig
+
+**All Guitars on Transition recorded by Dan DeLucie and Perry M. Grayson
+
+DAN USES:
+Mesa/Boogie Amps, Dunlop Picks, Ernie Ball Strings
+
+NARDO USES:
+Ibanez Basses, Ernie Ball Strings
+
+BRIAN USES:
+Pearl Drums, Regal Corp. Sticks, Zildjian Cymbals, LP Percussion
+
+
+Recorded at Silver Cloud Studio, Burbank, CA March 2000
+Engineered by Joe Floyd
+Produced by Joe Floyd & Destiny's End
+Assistance Engineers Rick Carrete and Bill Metoyer
+Mixed by Achim Koler at House of Music, Germany
+All music written & arranged by DeLucie, Grayson, Andi, Rivera, Craig
+Cover art by Gerald Brom
+Layout by Karl-Heinz Schuster
+All photos by Alex Solca
+
+DESTINY'S END official website:
+www.destinysend.com
+
 
 ## Отношения с другими группами
 

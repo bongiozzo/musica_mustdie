@@ -1,8 +1,60 @@
 # Ebanath
 
-Дискография
-"That Now Is Necessary For You" 2006, Grindcore
-"Amoral Glamour" 2009, Grindcore
+
+
+## Дискография
+
+### "That Now Is Necessary For You" 2006, Grindcore
+
+1. Prelude To Anal Investigation 00:27  
+2. Trouble In Ass 02:02  
+3. Necrofolly 00:58  
+4. Perverse Quality 00:51  
+5. Stop The Vagin 01:49  
+6. Pathological Inclination To Sexual Bodies 01:20  
+7. Alabama, Mother Fuck! 00:33  
+8. Anal Dic(k)tator 02:01  
+9. Etatigruger's Song 00:52  
+10. Abra-K-Dabra - Corpsefucker Holocaust 00:49  
+11. SEXtrapussy 02:01  
+12. Puritanic Spermatorhoea 01:15  
+13. Cunt And All That Here Can Be Applied 01:24  
+14. God Damn, I Want To Fuck 01:28  
+15. Pukka Boombata 00:48  
+16. Mr. McFuck 01:34  
+17. Ebola 00:28  
+18. Easy Dizzy Dance (Romanticism With A Smack Of Cunt) 01:30  
+19. Something After Midnight Or New Travel Of Spermatozoon 00:46  
+20. Eureka!!! 01:50  
+21. Wound Fuck (GUT Cover) 01:16  
+22. I Killed My Family (BRUTAL TRUTH Cover) 01:18  
+23. Display To Me (NAPALM DEATH Cover) 00:04 
+
+### "Amoral Glamour" 2009, Grindcore
+
+1. Grind On 00:52  
+2. Time For Lickantropy 01:42  
+3. Talking With A Clit 01:37  
+4. Vaginal Marauders 01:33  
+5. Fester Detonation 01:15  
+6. Homophobic Erection 01:19  
+7. Tits Streched Till Cunt's Eyebrowes 00:52  
+8. Goreherd 01:24  
+9. Six Lips, One Clit 01:07  
+10. Fag 00:30  
+11. Body-Boy 01:39  
+12. Skiteaters 01:02  
+13. Copro De Negro 00:53  
+14. Where They Fuck 01:32  
+15. Da Bitches' Barricade 01:18  
+16. Who Believe 00:41  
+17. When Girls Lick A Pussy On Command 01:40  
+18. Maniacal Allegory 01:19  
+19. Abra-K-Dabra (Creamix) 01:40  
+20. Cuntpicker 02:19  
+21. Little Playful Vagina 00:52  
+22. Grind Off 01:34 
+
 
 ## Отношения с другими группами
 

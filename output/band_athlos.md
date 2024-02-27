@@ -1,7 +1,25 @@
 # Athlos
 
-Дискография
-"In the Shroud of Legendry - Hellenic Myths of Gods and Heroes" 2009, Folk
+
+
+## Дискография
+
+### "In the Shroud of Legendry - Hellenic Myths of Gods and Heroes" 2009, Folk
+
+1. In the Vineyards of Dionysus 01:31  
+2. The Wrath of the Hekatonkheives 05:37  
+3. Aegean Blue (Poseidon's Realm) 04:14  
+4. The Dance of Kouretes 03:23  
+5. Enslaved (A Slave's Odyssey) 08:15  
+6. Hellas Eternal 03:41  
+7. Ulysses Before the Gates of Hades (Necromantia) 03:30  
+8. Taurokatharpsia (Horns of Power) 02:27  
+9. Areth kai Pomh 03:30  
+10. Talos Unleashed 04:15  
+11. The First Faun (Song of the Elder) 02:02  
+12. The Son of Amon Ra (Intro) 02:14  
+13. The Son of Amon Ra 04:02 
+
 
 ## Отношения с другими группами
 

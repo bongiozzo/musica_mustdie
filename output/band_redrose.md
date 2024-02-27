@@ -1,7 +1,20 @@
 # Red Rose
 
-Дискография
-"Live The Life You've Imagined" 2011, Heavy Metal
+
+
+## Дискография
+
+### "Live The Life You've Imagined" 2011, Heavy Metal
+
+1. Turn Back The Time
+2. Name On The Stone
+3. The Last Drop
+4. Gone With The Sunrise
+5. Live The Life You've Imagined
+6. Dreamer
+7. Tough To Love
+8. When The Sun Goes Down
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,34 @@
 # Thromdarr
 
-Дискография
-"NorthStorm Arrives" 2000, Black Metal
-"Electric Hellfire" 2011, Death Metal
+SKEPTICISM members
+
+## Дискография
+
+### "NorthStorm Arrives" 2000, Black Metal
+
+1. NorthStorm Arrives	 
+2. An Eclipse Over The Mountains
+3. Eyes of Crystal
+4. Path Leads Over The Stone Bridge
+5. Ravens At The Lake
+6. A Crown of Black Thorns
+7. SilverThrone
+8. The Embrace of Cold
+9. By Thy Arrows
+
+### "Electric Hellfire" 2011, Death Metal
+
+1. Electric Hellfire
+2. Burn for the Eternity
+3. Into the Night
+4. Overture of Destruction
+5. Parade
+6. Farewell Dear Nothing
+7. Oasis of Desperation	 
+8. For All Those Who Dig My Grave	 
+9. Warriorsoul	 
+10. Heart of Darkness
+
 
 ## Отношения с другими группами
 

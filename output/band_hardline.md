@@ -1,11 +1,29 @@
 # Hardline
 
-Дискография
-"Double Eclipse" 1992, Hard Rock
-"II" 2002, Hard Rock
-"Leaving the End Open" 2009, Hard Rock
-"Danger Zone" 2012, Hard Rock
-"Human Nature" 2016, Hard Rock
+
+
+## Дискография
+
+### "Double Eclipse" 1992, Hard Rock
+
+
+
+### "II" 2002, Hard Rock
+
+
+
+### "Leaving the End Open" 2009, Hard Rock
+
+
+
+### "Danger Zone" 2012, Hard Rock
+
+
+
+### "Human Nature" 2016, Hard Rock
+
+
+
 
 ## Отношения с другими группами
 

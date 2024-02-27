@@ -1,7 +1,29 @@
 # L 7
 
-Дискография
-"Hungry For Stink" 1994, Punk
+
+
+## Дискография
+
+### "Hungry For Stink" 1994, Punk
+
+1. Andres
+2. Baggage
+3. Can I Run
+4. The Bomb
+5. Questioning My Sanity
+6. Riding With A Movie Star
+7. Stuck Here Again
+8. Fuel My Fire
+9. Freak Magnet
+10. She Has Eyes
+11. Shirley
+12. Talk Box
+
+Produced By L 7 & Gggarth
+Recorded By Joe Barresi & Gggarth At A&M Studios, Sound City & The Clubhouse
+
+(p)&(c) 1994 SLASH Records
+
 
 ## Отношения с другими группами
 

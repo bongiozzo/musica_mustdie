@@ -1,8 +1,32 @@
 # The Aerium
 
-Дискография
-"Song For The Dead King (demo)" 2003, Gothic
-"Song For The Dead King" 2004, Gothic
+Sympho/gothic metal (Russia)
+
+## Дискография
+
+### "Song For The Dead King (demo)" 2003, Gothic
+
+1. Song For The Dead King
+2. Sentinel
+3. Wanderer
+
+### "Song For The Dead King" 2004, Gothic
+
+1. Song For the Dead King 
+2. Prayer 
+3. Queen Of Snows 
+4. Treasure Hunter 
+5. Sentinel 
+6. Wanderer 
+7. Midnight 
+8. On the Pier 
+
+Sevostjanova Veronika - vocals
+Novikov Kirill - guitars
+Grishin Andrey - keyboards
+Reshetnikov Igor - bass
+Gubko Alexander – drums and percussion
+
 
 ## Отношения с другими группами
 

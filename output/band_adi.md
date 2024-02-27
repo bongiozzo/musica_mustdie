@@ -1,7 +1,34 @@
 # A.D.I.
 
-Дискография
-"Train Of Thought" 1996, Hardcore
+Metallized Hardcore-Punk
+
+## Дискография
+
+### "Train Of Thought" 1996, Hardcore
+
+1.  Brainstorm
+2.  Live Again
+3.  ...And Then Some
+4.  Jerusalem
+5.  Deny
+6.  The Ugly Truth
+7.  Intersections
+8.  Emergency Broadcast Signal
+9.  Self Respect
+10.A.D.I. (Adjusting Distorted Individuals)
+11.Fight Me
+
+Produced By ADI & Rigged Records.
+Recorded & Mixed At Sweetwood Sound Studios, Parsipanny, NJ.
+Engineered By Alap Momin.
+
+Dan Burkhoff - Vocals
+Stew Smith - Guitar
+Chris Laucella - Bass
+Rob Ciesla - Drums
+
+(P)(C) 1996 RIGGED Records
+
 
 ## Отношения с другими группами
 

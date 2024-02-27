@@ -1,8 +1,20 @@
 # Xe-None
 
-Дискография
-"Digital Fucker EP" 2004, Industrial
-"Dancefloration" 2011, Industrial
+cyber-metal from Russia
+
+## Дискография
+
+### "Digital Fucker EP" 2004, Industrial
+
+Slave On Line (edit)
+Digital Fucker
+Crazy Shit
+Ein, Zwei Polizei
+
+### "Dancefloration" 2011, Industrial
+
+
+
 
 ## Отношения с другими группами
 

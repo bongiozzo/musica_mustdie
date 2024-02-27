@@ -1,7 +1,27 @@
 # Circle Of Dead Children
 
-Дискография
-"Zero Comfort Margin" 2005, Grindcore
+
+
+## Дискография
+
+### "Zero Comfort Margin" 2005, Grindcore
+
+1.  Forward Through the Copper Sun 
+2.  Zero Comfort Margin 
+3.  No Tears Fall Through Hollow Eye Sockets    
+4.  Chemical Goat    
+5.  Whimper 
+6.  Android (120 ampere opiate) 
+7.  Host(age) 
+8.  Bohemian Grave 
+9.  The System as the Master Deceiver 
+10.  Born on a Bombshell 
+11.  Strip Naked for the Killer 
+12.  A Homage to Tombstone Granite 
+13.  Footprints in Fire 
+14.  Playdumb 
+15.  For Black Eyes Only a.k.a. Depopulate: Tears of Illuminati
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,54 @@
 # Legenda
 
-Дискография
-"Autumnal" 1997, Black Metal
-"Eclipse" 1999, Black Metal
+
+
+## Дискография
+
+### "Autumnal" 1997, Black Metal
+
+1. All Flesh Is Grass		3:25
+2. Bloodred Sunset		3:47
+3. Legend			5:02
+4. By The Moonlight		3:27
+5. Wolves, Honey, Wolves	3:43
+6. Kings			4:23
+7. Luciette			4:58
+8. Autumnal			3:41
+9. At Nightfalls		3:25
+10. Jackalian Cry		3:43
+11. Black Sky			3:40
+12. All Love Is Gone		3:07
+13. Winter Night		3:33
+
+Sir Luttinen - Guitars, drums, synths, vocals
+Niko Karppinen - Bass guitars
+
+Recorded and mixed by A.Kortelainen 
+at Tico-Tico Studio, Finland, 1997
+Produced by Legenda and A.Kortelainen
+All Music And Lyrics by Legenda
+
+(p)(c)1997 Holy Records
+
+### "Eclipse" 1999, Black Metal
+
+Tne night hasdrawn night 2.30
+Where the devils dance   5.09
+Rev. 66                  2.28
+Shades and shadows       2.54
+Dead red roses           5.35
+Melancholy               5.17
+Gohorts of demons        2.49
+Sister shadow sister
+  (Blooddance mix)       6.23
+The fall of grow         3.59
+Spring realm             3.54
+The heart of the north   4.35
+Eclipse                  5.26
+
+Sir Luttinen      Vocals, Drums & Synths
+Herr Happinen     Bass Guitar    
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,20 @@
 # Serpent Rise
 
-Дискография
-"Gathered By..." 2000, Death Doom
+brazil death-doom-metal
+
+## Дискография
+
+### "Gathered By..." 2000, Death Doom
+
+In the cosmic sea 
+... Kharma 
+Mistress of my paradise 
+Reflex in the last mirror 
+Betrayer god 
+Travelling free... 
+During the eternity 
+
+
 
 ## Отношения с другими группами
 

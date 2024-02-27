@@ -1,11 +1,35 @@
 # General Surgery
 
-Дискография
-"Necrology (EP)" 1993, Grindcore
-"Left Hand Pathology" 2006, Grindcore
-"Corpus In Extremis: Analysing Necrocriticism" 2009, Grindcore
-"A Collection Of Depravation (Compilation)" 2012, Grindcore
-"Like An Ever Flying Limp (EP)" 2012, Grindcore
+ex-Dismember, Afflicted
+
+## Дискография
+
+### "Necrology (EP)" 1993, Grindcore
+
+1. Ominous Lamentation 
+2. Slithering Maceration Of Ulcerous Facial Tissue 
+3. Grotesque Laceration Of Mortified Flesh 
+4. Severe Catatonia In Pathology 
+5. Crimson Concerto 
+6. The Succulent Aftermath Of A Subdural Haemorrhage 
+7. An Orgy Of Flying Limbs And Gore
+
+### "Left Hand Pathology" 2006, Grindcore
+
+
+
+### "Corpus In Extremis: Analysing Necrocriticism" 2009, Grindcore
+
+
+
+### "A Collection Of Depravation (Compilation)" 2012, Grindcore
+
+
+
+### "Like An Ever Flying Limp (EP)" 2012, Grindcore
+
+
+
 
 ## Отношения с другими группами
 

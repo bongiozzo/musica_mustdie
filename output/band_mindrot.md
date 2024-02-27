@@ -1,7 +1,13 @@
 # Mindrot
 
-Дискография
-"Dawning" 1995, Death Doom
+
+
+## Дискография
+
+### "Dawning" 1995, Death Doom
+
+(P)&(C) 1995 NUCLEAR BLAST Records
+
 
 ## Отношения с другими группами
 

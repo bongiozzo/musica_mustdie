@@ -1,7 +1,31 @@
 # Anesthesia
 
-Дискография
-"The State Of Being Unable To Feel Pain" 1997, Power Metal
+feat. Jan Rubach & Thomas Neck ex-GAMMA RAY
+
+## Дискография
+
+### "The State Of Being Unable To Feel Pain" 1997, Power Metal
+
+1. Welcome To The Church Of The Numb
+2. My Age
+3. Cancer
+4. Triptychon
+5. Winter
+6. Heroes Of Research
+7. Emperor Time
+8. I.L.O.I.
+9. The Prophet Song
+10. Caligula's Dance
+11. Atrocious Silence
+12. Egomania
+13. Habits
+Schraubah - Vocals
+Jan Rubach - Bass Guitar & Backing Vocals
+Hendrik Schott - Lead, Rhytm & Acoustic Guitars
+Andreas Mier - Lead & Rhytm Guitars
+Thomas Neck - Drums & Percussion & Backing Vocals
+(p)(c)1997 Semaphore
+
 
 ## Отношения с другими группами
 

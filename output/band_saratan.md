@@ -1,9 +1,39 @@
 # Saratan
 
-Дискография
-"Infected With Life [demo]" 2006, Thrash
-"The Cult of Vermin" 2008, Thrash
-"Antireligion" 2010, Thrash
+
+
+## Дискография
+
+### "Infected With Life [demo]" 2006, Thrash
+
+
+
+### "The Cult of Vermin" 2008, Thrash
+
+1. Future Is Grim
+2. Path of Mistakes
+3. Lynch Law	
+4. Eclipse	 
+5. Illnes We Preach
+6. Never Conform
+7. Satanic Verses
+8. Serve the Death
+9. In the Mists of Time	 
+10. Cancer of the Earth
+11. Vermin
+
+### "Antireligion" 2010, Thrash
+
+1. Extinguishing the Hope	 
+2. Antireligion Pt. 1	 
+3. Dead Inside	 
+4. My Demise	 
+5. Reject Adonai	 
+6. Pray for the Rest	 
+7. Destroy Yourself	 
+8. Crave Suicide	 
+9. Antireligion Pt. 2	
+
 
 ## Отношения с другими группами
 

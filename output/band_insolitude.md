@@ -1,8 +1,27 @@
 # In Solitude
 
-Дискография
-"Eternal" 1999, Gothic
-"Opus: Universe" 2000, Heavy Metal
+Portugal
+
+## Дискография
+
+### "Eternal" 1999, Gothic
+
+Heart of Thorns
+Winds of No Return
+Ethereal Dream
+Horizons Loss
+The Hurt Seasons
+Cry Without Tears
+A Dream With Me
+In Purple Skies
+My Daisy
+Children of the Dark
+
+
+### "Opus: Universe" 2000, Heavy Metal
+
+
+
 
 ## Отношения с другими группами
 

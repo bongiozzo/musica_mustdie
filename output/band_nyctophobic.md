@@ -1,7 +1,31 @@
 # Nyctophobic
 
-Дискография
-"War Criminal Views" 1996, Deathcore
+
+
+## Дискография
+
+### "War Criminal Views" 1996, Deathcore
+
+1.  Earthrise
+2.  Horrid Truth
+3.  Inner Manipulation
+4.  Access Denied
+5.  Jehova's Liars
+6.  Fundamentals
+7.  Rapid Eye Movement
+8.  Suffer Life
+9.  War Criminal Views
+10.The Pain Of A Conquered Being
+11.Racial Hierarchy
+12.The Remaining Silence
+13.War-Seeds
+14.Responsibilities
+15.Denial
+16.Destructive Ignorance
+17.Theatric Symbolization Of Life
+
+(P)(C) 1996 MORBID Records / MR029
+
 
 ## Отношения с другими группами
 

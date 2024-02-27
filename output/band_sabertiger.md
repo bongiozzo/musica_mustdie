@@ -1,20 +1,65 @@
 # Saber Tiger
 
-Дискография
-"Invasion" 1992, Heavy Metal
-"Paragraph 2" 1994, Heavy Metal
-"Agitation" 1994, Heavy Metal
-"Timystery" 1995, Heavy Metal
-"Project One" 1997, Heavy Metal
-"Brain Drain" 1998, Heavy Metal
-"Paragraph 3 - Museum" 1998, Heavy Metal
-"Saber Tiger" 2001, Heavy Metal
-"F.U.S.E." 2002, Heavy Metal
-"Indignation" 2005, Heavy Metal
-"Paragraph IV" 2011, Heavy Metal
-"Decisive" 2011, Heavy Metal
-"Messiah Complex" 2012, Heavy Metal
-"Bystander Effect" 2015, Heavy Metal
+
+
+## Дискография
+
+### "Invasion" 1992, Heavy Metal
+
+
+
+### "Paragraph 2" 1994, Heavy Metal
+
+
+
+### "Agitation" 1994, Heavy Metal
+
+
+
+### "Timystery" 1995, Heavy Metal
+
+
+
+### "Project One" 1997, Heavy Metal
+
+
+
+### "Brain Drain" 1998, Heavy Metal
+
+
+
+### "Paragraph 3 - Museum" 1998, Heavy Metal
+
+
+
+### "Saber Tiger" 2001, Heavy Metal
+
+
+
+### "F.U.S.E." 2002, Heavy Metal
+
+
+
+### "Indignation" 2005, Heavy Metal
+
+
+
+### "Paragraph IV" 2011, Heavy Metal
+
+
+
+### "Decisive" 2011, Heavy Metal
+
+
+
+### "Messiah Complex" 2012, Heavy Metal
+
+
+
+### "Bystander Effect" 2015, Heavy Metal
+
+
+
 
 ## Отношения с другими группами
 

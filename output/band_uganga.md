@@ -1,9 +1,57 @@
 # Uganga
 
-Дискография
-"Atitude Lotus" 2003, Thrash
-"Na Trilha do Homem de Bem" 2006, Thrash
-"Caos Carma Conceito" 2010, Thrash
+
+
+## Дискография
+
+### "Atitude Lotus" 2003, Thrash
+
+1. Lingua Nos Dentes		 
+2. Sai Fora		 
+3. Mar da Lembranca		 
+4. VG		 
+5. Prekol		 
+6. Nao Ponha Tudo a Perder		 
+7. Ouro de Julho		 
+8. Sibipiruna		 
+9. Loco (Fim de Tarde)		 
+10. 2000 e Pouco		 
+11. Couro Cru		 
+12. Aquatica		 
+13. Confluencia
+
+### "Na Trilha do Homem de Bem" 2006, Thrash
+
+1. Pagar Pra Ser Feliz		 
+2. Procurando o Mar		 
+3. Tri		 
+4. Loco II		 
+5. Corrida		 
+6. Falando de Igualdade		 
+7. Chaves		 
+8. A.C.		 
+9. Altos e Baixos		 
+10. Lado a Lado		 
+11. Quando Tudo Se Acaba		 
+12. 22:06		 
+13. 7CH (Graxa Dub Mix)
+
+### "Caos Carma Conceito" 2010, Thrash
+
+1. Kali-Yuga (Caos 1)		 
+2. Fronteiras da Tolerancia (Caos 2)		 
+3. 3XC (Caos 3)		 
+4. Meus Velhos Olhos de Enxergar o Mal (Caos 4)		 
+5. Asas Negras (Caos 5)		 
+6. Iso 666 (Caos 6)		 
+7. Velas (Carma 1)		 
+8. Sua Lei, Minha Lei (Carma 2)		 
+9. Encruzilhada (Carma 3)		 
+10. Milenar (Carma 4)		 
+11. Zona Arida (Carma 5)		 
+12. P.A.X. (Carma 6)		 
+13. O Primeiro Inquilino (Conceito 1)
+
 
 ## Отношения с другими группами
 

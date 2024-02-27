@@ -1,8 +1,41 @@
 # Her Enchantment
 
-Дискография
-"Sagas" 1998, Death Doom
-"Darkest" 2006, Death Doom
+
+
+## Дискография
+
+### "Sagas" 1998, Death Doom
+
+1. Frozen in Dark   
+2. The Conqueror Awaits Thee   
+3. Prodigiously Doleful   
+4. Awakening of a Goddes   
+5. Morpheus   
+6. The Gate Keeper   
+7. Penetrating Testimony   
+8. Defiance Within
+
+### "Darkest" 2006, Death Doom
+
+1. The Long Defeat 06:20  
+2. Lakes of Sorrow 03:45  
+3. Castle of Indolence 06:02  
+4. Bless for Me 03:44  
+5. Darkest 07:47  
+6. Resurrection 04:11  
+7. Lacrimae Mundi 05:33  
+8. Cloak of Despair 05:26  
+9. Imposed Disorder 04:35  
+10. Rahasia Spirits 04:11
+
+
+Lucy - vocals
+Richard Noordzij - vocals 
+Teun - guitar 
+Dave van Beers - guitar 
+John - bass 
+Sjoerd van den Berg - drums
+
 
 ## Отношения с другими группами
 

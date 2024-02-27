@@ -1,8 +1,67 @@
 # Tears of Anger
 
-Дискография
-"Still Alive" 2004, Progressive
-"In The Shadows" 2006, Progressive
+heavy/prog
+
+## Дискография
+
+### "Still Alive" 2004, Progressive
+
+01. The Awakening
+02. Still Alive
+03. Afraid Of The Dark
+04. Sword Of Sorrow
+05. Nightmare
+06. Moment Of Truth
+07. Revenge Will Come
+08. Watch Me Run
+09. Walk Away
+10. Kings Call
+11. Who I Am
+12. Dying Slow
+
+Bjorn Jansson - lead vocal
+Benny jansson - guitar
+Daniel Flores - drums
+Johan Niemann - bass
+
+Produced by Benny Jansson, Bjorn Jansson.
+All arrangements and production by Benny Jansson,
+Bjorn Jansson.
+Engineered by Daniel Flores at Sheep Valley
+Studio,
+Benny Jansson at Zinkens Studio and Bjorn Jansson
+at Backbone Studio.
+All drums recorded at Sheep Valley Studio, Tyreso,
+Sweden.
+All guitars and bass recorded at Zinkens Studio,
+Stockholm, Sweden.
+All lead and background vocal recorded at backbone
+Studio, Tyreso, Sweden.
+Mastering by Lion Music.
+Cover art by Benny Jansson.
+Pictures by Roger Gronstrand.
+
+### "In The Shadows" 2006, Progressive
+
+1. In The Shadows 
+2. Spirit Running Free 
+3. Tears In My Eyes 
+4. I Hate You 
+5. Sell My Soul 
+6. Live Thise Dreams 
+7. Scene Of The Crime 
+8. Light Up My Fuse 
+9. How Will I Live 
+10. Full Of Lies 
+11. Close To The Fire 
+12. I'm Coming Home
+
+Состав: 
+Benny Jansson: Guitar («Talisman», «Erika», «Snakes In Paradise»)
+Bj&#246;rn Jansson: Vocal, 
+Daniel Flores(MIND'S EYE, Faro): Drums 
+Johan Niemann(THERION, MIND'S EYE): : bass
+
 
 ## Отношения с другими группами
 

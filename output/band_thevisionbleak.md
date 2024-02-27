@@ -1,14 +1,122 @@
 # The Vision Bleak
 
-Дискография
-"The Vision Bleak (Single)" 2003, Metal
-"The Deathship Has A New Captain" 2004, Metal
-"Carpathia - A Dramatic Poem" 2005, Metal
-"The Wolves Go Hunt Their Prey" 2007, Metal
-"Set Sail To Mystery" 2010, Metal
-"Witching Hour" 2013, Metal
-"The Kindred of the Sunset (EP)" 2016, Metal
-"The Unknown" 2016, Metal
+
+
+## Дискография
+
+### "The Vision Bleak (Single)" 2003, Metal
+
+1. The Lone Night Rider
+2. Elisabeth Dane
+
+Recorded and mixed at Klangschmiede Studio E, Germany.
+
+Schwadorf (guitars, bass, keyboards)
+Konstanz (voices, drums,keyboards)
+
+### "The Deathship Has A New Captain" 2004, Metal
+
+1. A shadow arose
+2. Night of the living dead
+3. Wolfmoon
+4. Metropolis
+5. Elizabeth Dane
+6. Horror of Antarctica
+7. The Lone Night Rider
+8. The Grand Devilry
+9. Deathship Symphony
+
+
+Recorded and mixed at Klangschmiede Studio E, Germany.
+
+
+Schwadorf (guitars, bass, keyboards)
+Konstanz (voices, drums,keyboards)
+
+### "Carpathia - A Dramatic Poem" 2005, Metal
+
+1. The Drama Of The Wicked
+2. Secrecies In Darkness
+3. Carpathia
+4. Dreams In The Witchhouse
+5. Sister Najade (The Tarn By The Firs)
+6. The Curse Of Arabia
+7. Kutulu!
+8. The Carm Is Done
+
+### "The Wolves Go Hunt Their Prey" 2007, Metal
+
+1. Amala & Kamala 01:56  
+2. She Wolf 05:13  
+3. The Demon of the Mire 06:42  
+The Black Pharaoh Trilogy
+4. Part I: Introduction 03:21  
+5. Part II: The Shining Trapezohedron 05:10  
+6. Part III: The Vault Of Nephren-Ka 06:02  
+7. The Eldrich Beguilement 04:57  
+8. Evil is of Old Date 04:50  
+9. By Our Brotherhood With Seth 05:08 
+
+The Deluxe Edition comes with a bonus live DVD and a coupon for ordering an exclusive T-shirt that comes with a free patch. 
+
+Ulf Theodor Schwadorf (Markus Stock) - Guitar, Bass, Keyboards 
+Allen B. Konstanz (Tobias Schonemann) - Vocals, Drums, Keyboards
+
+### "Set Sail To Mystery" 2010, Metal
+
+1. A Curse of the Grandest Kind 03:55
+2. Descend into Maelstrom 05:26
+3. I Dined With the Swans 04:20
+4. A Romance With the Grave 05:50
+5. The Outsider 05:11
+6. Mother Nothingness (The Triumph of Ubbo Sathla) 08:11
+7. The Foul Within 05:59
+8. He Who Paints the Black of Night 05:54 
+
+
+### "Witching Hour" 2013, Metal
+
+Disc 1  
+1. Witching Hour  01:34 
+2. A Witch Is Born  04:10  
+3. The Blocksberg Rite  05:32  
+4. Cannibal Witch  06:06   
+5. The Wood Hag  03:57   
+6. Hexenmeister  04:00   
+7. Pesta Approaches  06:13  
+8. The Call of the Banshee   05:02  (instrumental)
+9. The Valkyrie  07:30   
+
+Disc 2  
+1. Witchery in Forests Dark I   09:44  (instrumental)
+2. Witchery in Forests Dark II  06:23  (instrumental) 
+
+
+### "The Kindred of the Sunset (EP)" 2016, Metal
+
+1. The Kindred of the Sunset  04:55    
+2. The Whine of the Cemetery Hound    
+3. The Sleeping Beauty (Tiamat Cover)     
+4. Purification Afterglow 
+
+
+### "The Unknown" 2016, Metal
+
+Disc 1  
+1. Spirits of the Dead   
+2. From Wolf to Peacock      
+3. The Kindred of the Sunset  04:55  
+4. Into the Unknown      
+5. Ancient Heart      
+6. The Whine of the Cemetery Hound    
+7. How Deep Lies Tartaros?   
+8. Who May Oppose Me?    
+9. The Fragrancy of Soil Unearthed   
+
+Disc 2  
+1. The Ghost in Me  
+2. Luster Nocturnal 
+
 
 ## Отношения с другими группами
 

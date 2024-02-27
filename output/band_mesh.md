@@ -1,25 +1,129 @@
 # Mesh
 
-Дискография
-"Fragile (EP)" 1994, Synthpop
-"In This Place Forever" 1996, Synthpop
-"Fragile - The Mixes (EP)" 1997, Synthpop
-"Fragile - Extended" 1997, Synthpop
-"Fragmente" 1998, Synthpop
-"The Point At Which It Falls Apart" 1999, Synthpop
-"Not Prepared (MCD)" 1999, Synthpop
-"Mark'Oh & Mesh - Waves (MCD)" 2000, Synthpop
-"On This Tour Forever - Live" 2000, Synthpop
-"Original 91-93" 2000, Synthpop
-"Who Watches Over Me?" 2002, Synthpop
-"Leave You Nothing (MCD)" 2002, Synthpop
-"Fragmente 2 (2 CD)" 2002, Synthpop
-"Friends Like These (MCD)" 2003, Synthpop
-"Original 91-93" 2003, Synthpop
-"We Collide" 2006, Synthpop
-"Crash (MCD)" 2006, Synthpop
-"My Hands Are Tied / Petrified (MCD)" 2006, Synthpop
-"A Perfect Solution" 2009, Synthpop
+
+
+## Дискография
+
+### "Fragile (EP)" 1994, Synthpop
+
+1. Her Needs
+2. Fragile
+3. State Of Mind
+4. Sympathy
+5. Beaten And Bruised
+6. Someone To Believe In
+
+### "In This Place Forever" 1996, Synthpop
+
+1. Involved
+2. Last Breath Of You
+3. I Only Wanted To
+4. You Didn't Want Me
+5. I Don't Think They Know
+6. Evolved
+7. Something Wrong
+8. Shatters
+9. Despised
+10. Confined
+
+### "Fragile - The Mixes (EP)" 1997, Synthpop
+
+
+
+### "Fragile - Extended" 1997, Synthpop
+
+1. Headstone
+2. Her Needs
+3. Fragile
+4. State Of Mind
+5. Sympathy
+6. Beaten And Bruised
+7. Hurt
+8. Someone To Believe In
+9. So Important
+
+### "Fragmente" 1998, Synthpop
+
+1. Trust You
+2. My Defender
+3. You Didn't Want Me (album)
+4. I Don't Think They Know
+5. Confined
+6. Someone To Believe In
+7. State Of Mind
+8. So Important (acoustic)
+9. In The Light Of Day
+10. I Don't Expect To Be Right
+11. The Purest People
+12. Trust You (mesh remix)
+
+### "The Point At Which It Falls Apart" 1999, Synthpop
+
+
+
+### "Not Prepared (MCD)" 1999, Synthpop
+
+
+
+### "Mark'Oh & Mesh - Waves (MCD)" 2000, Synthpop
+
+
+
+### "On This Tour Forever - Live" 2000, Synthpop
+
+
+
+### "Original 91-93" 2000, Synthpop
+
+
+
+### "Who Watches Over Me?" 2002, Synthpop
+
+1. Firefly
+2. Leave You Nothing
+3. To Be Alive
+4. Retaliation
+5. Little Missile
+6. Razorwire
+7. Four Walls
+8. What Does It Cost You?
+9. I Can't Imagine How It Hurts
+10. The Place You Hide
+11. Friends Like These
+12. The Trouble We're In
+
+### "Leave You Nothing (MCD)" 2002, Synthpop
+
+
+
+### "Fragmente 2 (2 CD)" 2002, Synthpop
+
+
+
+### "Friends Like These (MCD)" 2003, Synthpop
+
+
+
+### "Original 91-93" 2003, Synthpop
+
+
+
+### "We Collide" 2006, Synthpop
+
+
+
+### "Crash (MCD)" 2006, Synthpop
+
+
+
+### "My Hands Are Tied / Petrified (MCD)" 2006, Synthpop
+
+
+
+### "A Perfect Solution" 2009, Synthpop
+
+
+
 
 ## Отношения с другими группами
 

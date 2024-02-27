@@ -1,8 +1,17 @@
 # Enemy Is Us
 
-Дискография
-"We Have Seen The Enemy... And The Enemy Is Us" 2004, Death Metal
-"Venomized" 2008, Death Metal
+
+
+## Дискография
+
+### "We Have Seen The Enemy... And The Enemy Is Us" 2004, Death Metal
+
+
+
+### "Venomized" 2008, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

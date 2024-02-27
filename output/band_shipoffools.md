@@ -1,7 +1,21 @@
 # Ship of Fools
 
-Дискография
-"Let's Get This Mother Outta Here" 2002, Metal
+Prog-industrial
+
+## Дискография
+
+### "Let's Get This Mother Outta Here" 2002, Metal
+
+1. Diesel Spaceship
+2. L=SD2
+3. Where Is Here
+4. First Light
+5. In The Wake Of
+6. From Time
+7. Passage By Night
+8. Western Lands
+9. Guidance Is Internal
+
 
 ## Отношения с другими группами
 

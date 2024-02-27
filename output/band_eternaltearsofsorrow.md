@@ -1,14 +1,198 @@
 # Eternal Tears of Sorrow
 
-Дискография
-"Sinner's Serenade" 1997, Death Doom
-"Vilda Mannu" 1999, Death Doom
-"Chaotic Beauty" 2000, Melodic Death Metal
-"A Virgin And A Whore" 2001, Melodic Death Metal
-"Before the Bleeding Sun" 2006, Melodic Death Metal
-"Tears Of Autumn Rain [single]" 2009, Gothic
-"Children Of The Dark Waters" 2009, Gothic
-"Saivon Lapsi" 2013, Gothic
+Very Melodic Death Metal (with Black elements)
+
+## Дискография
+
+### "Sinner's Serenade" 1997, Death Doom
+
+- Dawn
+- Another One Falls Asleep
+- The Law of the Flames
+- Dirge
+- Into the Deepest Waters
+- Sinner's Serenade
+- My God, The Evil Wind
+- March
+- Bard's Burial *
+- The Son of the Forest *
+- Empty Eyes *
+
+
+
+* : from "Bard's Burial" promo tape
+
+
+Line-up:
+Altti Vetelдinen - vocals, bass
+Olli-Pekka Tцrrц - guitar, keyboards
+Jarmo Puolakanaho - guitar, keyboards 
+
+
+Recorded and mixed by
+Ahti Kortelainen at
+Tico-Tico Studio, Kemi,
+Finland. Songs 1-8
+recorded in Jul'96,
+9-11 in Oct'94
+
+
+
+### "Vilda Mannu" 1999, Death Doom
+
+1. Northern Doom
+2. Burning Flames' Embrace
+3. Goashem
+4. Scars Of Wisdom
+5. Raven (In Your Eyes)
+6. Nightwind's Lullaby
+7. Vilda Mannu
+8. Coronach
+9. Nodde Rahgam
+10.Seita
+
+Altti Vetelainen - vocals, 5 strings
+Olli-Pekka Torro - guitars
+Jarmo "Jape" Puolakanaho - guitars
+
+Recorded and Mixed at Tico-Tico Studio In summer '98
+Engineered by Ahti "Hyperventiloonkovai lyonko?" Kortelainen
+Female Vocals on 5 and 6 by Heli Luokkala
+
+(p)(c)1999 Spinefarm
+
+### "Chaotic Beauty" 2000, Melodic Death Metal
+
+1. Shattered Souls
+2. Autumn's Grief
+3. The Seventh Eclipse
+4. Bride Of The Crimson Sea
+5. Black Tears
+6. Tar Of Chaos
+7. Bhean Sidhe
+8. Nocturnal Strains
+9. Blood Of Faith Stains My Hands
+
+### "A Virgin And A Whore" 2001, Melodic Death Metal
+
+- Aurora Borealis
+- Heart of Wilderness
+- Prophetian
+- Fall of Man
+- The River Flows Frozen
+- The Last One For Life
+- Sick, Dirty and Mean
+- Blood of Hatred
+- Aeon
+- As I Die * +
+- The River Flows Frozen (acoustic) *
+
+* : Bonus in Japan
++ : Bonus in GER/AUT/CH
+
+
+Recorded Dec'00 & May-Jun'01 at Tico Tico
+studio by A. Kortelainen, and at Finnvox studios
+by M. Karmila. Mixed Aug'01 at Finnvox studios
+by M. Karmila. Mastered at Finnvox studios
+by M. Jussila.
+
+Produced by EToS. Layout by N. Sundin / Cabin
+Fever Media. Photos by T. Hдrkцnen.
+Songs & arrangements by EToS, 
+except #7 by Accept. Clean vocals & vocal
+arrangements #5 & #6 by J. Kylmдnen.
+Backing vocals #2 & #7 by A. Kokko. 
+
+
+Line-up:
+Altti Vetelдinen - vocals, bass
+Jarmo Puolakanaho - guitar
+Antti Kokko - guitar
+Pasi Hiltula - keyboards
+Petri Sankala - drums
+
+
+
+### "Before the Bleeding Sun" 2006, Melodic Death Metal
+
+1. Sweet Lilith of My Dreams 04:50  
+2. Another Me 03:52  
+3. Red Dawn Rising 05:06  
+4. Upon the Moors 04:47  
+5. Sakura No Rei 02:12  
+6. Sinister Rain 05:40  
+7. Lost Rune of Thunder 04:03  
+8. Tar Still Flows 03:55  
+9. Angelheart, Ravenheart (Act I: Before the Bleeding Sun) 08:40 
+
+
+Altti Vetelдinen (vocals, bass)
+Jarmo Puolakanaho (guitar)
+Risto Ruuth (lead guitar)
+Janne Tolsa (keyboards)
+Petri Sankala (drums)
+
+Guest vocalists: lead vocals by Jarmo Kylmдnen (Scyron) and Miriam ?Sfinx?
+Renvеg (Ram-Zet). Backing vocals by Jarmo Kylmдnen, Miriam Renvеg, Tony
+Kakko (Sonata Arctica) and Marco Hietala (Nightwish & Tarot).
+
+### "Tears Of Autumn Rain [single]" 2009, Gothic
+
+1. Tears of Autumn Rain 04:18 
+2. Vilda Mannu (Remake 2009) 05:25 
+
+
+
+Line up:
+Altti Vetelainen - Vocals & Bass
+Jarmo Kylmanen - Clean Vocals, Choirs
+Jarmo Puolakanaho - Guitar
+Risto Ruuth - Lead Guitar
+Janne Tolsa - Keyboards
+Petri Sankala - Drums
+
+Miriam Renvеg - Female Vocals
+Heidi Parviainen - Female Vocals
+
+Tears of Autumn Rain was recorded at Tico-Tico Studios, Note On Studios,
+Finnvox Studios in Finland and Space Valley Studios in Norway 2008.
+
+Engineered by Ahti Kortelainen, Janne Tolsa, Mikko Karmila and Henning Ramseth.
+Mixed at Finnvox Studios December 2008 by Mikko Karmila. Mastered at Finnvox
+Studios by Mika Jussila.
+
+Produced by Eternal Tears of Sorrow. All arrangements by Eternal Tears of
+Sorrow. All clean vocals and choirs produced and arranged by Jarmo Kylmдnen.
+Drums by Petri Sankala. Female vocals by Miriam Renvеg (Ram-Zet) and Heidi
+Parviainen (Amberian Dawn). 
+
+### "Children Of The Dark Waters" 2009, Gothic
+
+1. Angelheart, Ravenheart (Act II: Children of the Dark Waters) 06:00 
+2. Baptized By the Blood of Angels 04:21 
+3. Tears of Autumn Rain 04:13 
+4. Summon the Wild 04:28
+5. Sea of Whispers 04:14
+6. Midnight Bird 04:47 
+7. Diary of Demonic Dreams 04:25
+8. When the Darkest Night Falls 02:32
+9. Nocturne Thule 05:16 
+
+### "Saivon Lapsi" 2013, Gothic
+
+01. Saivo
+02. Dark Alliance
+03. Legion of Beast
+04. Kuura
+05. Dance of December
+06. The Day
+07. Sound of Silence
+08. Beneath the Frozen Leaves
+09. Swan Saivo
+10. Blood Stained Sea 
+11. Angelheart, Ravenheart (Act III: Saivon Lapsi)
+
 
 ## Отношения с другими группами
 

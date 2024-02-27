@@ -1,27 +1,353 @@
 # Rhapsody Of Fire
 
-Дискография
-"Land Of Immortals" 1994, Power Metal
-"Eternal Glory" 1995, Power Metal
-"Legendary Tales" 1997, Power Metal
-"Symphony Of Enchanted Lands" 1998, Power Metal
-"Emerald Sword" 1998, Power Metal
-"Dawn Of Victory" 2000, Power Metal
-"Holy Thunderforce" 2000, Power Metal
-"Rain Of A Thousand Flames" 2001, Power Metal
-"The Power Of Dragonflame" 2002, Power Metal
-"Tales From The Emerald Sword Saga" 2004, Power Metal
-"The Dark Secret EP" 2004, Power Metal
-"Symphony Of Enchanted Lands Part 2 - The Dark Secret" 2004, Power Metal
-"Unholy Warcry - one-song-CD" 2004, Power Metal
-"Live In Canada 2005 - The Dark Secret" 2006, Power Metal
-"Triumph or Agony" 2006, Power Metal
-"Visions From The Enchanted Lands [DVD]" 2007, Power Metal
-"The Frozen Tears of Angels" 2010, Power Metal
-"The Cold Embrace of Fear (EP)" 2010, Black Metal
-"From Chaos to Eternity" 2011, Power Metal
-"Dark Wings of Steel" 2013, Power Metal
-"Into The Legend" 2016, Power Metal
+Italian Sympho power metal (ex-Rhapsody)
+
+## Дискография
+
+### "Land Of Immortals" 1994, Power Metal
+
+1. Invernal Fury
+2. Warrior of Ice
+4. Land Of Immortals
+5. Holy Wind
+
+
+
+### "Eternal Glory" 1995, Power Metal
+
+1. Invernal Fury
+2. Warrior of Ice
+3. Tears At Nightfall
+4. Alive And Proud 
+5. Land Of Immortals
+6. Holy Wind
+7. Eternal Glory 
+
+
+### "Legendary Tales" 1997, Power Metal
+
+1. Ira Tenax
+2. Warrior Of Ice
+3. Rage Of The Winter
+4. Forest Of Unicorns
+5. Flames Of Revenge
+6. Virgin Skies
+7. Land Of Immortals
+8. Echoes Of Tragedy
+9. Lord Of Thunder
+10. Legendary Tales
+Luca Turilli - Guitars
+Alex Strapolli - Keyboards
+Daniele Carbonera - Drums
+Fabio Lione - Lead Vocals
+All Bass By Sascha Paeth & Robert Hunecke
+
+
+### "Symphony Of Enchanted Lands" 1998, Power Metal
+
+1. Epicus Furor
+2. Emerald Sword
+3. Wisdom Of The Kings
+4. Heroes Of The Lost Valley
+5. Eternal Glory
+6. Beyond The Gates Of Infinity
+7. Wings Of Destiny
+8. The Dark Tower Of Abyss
+9. Riding The Winds Of Eternity
+10.Symphony Of Enchanted Lands
+(c)1998 Limb Music
+
+
+
+### "Emerald Sword" 1998, Power Metal
+
+1. Emerald Sword  
+2. Where Dragons Fly 
+3. Modified version of "Land of Immortals"
+
+
+
+Rhapsody  -  Concept 
+Eric Philippe  -  Artwork 
+Sascha Paeth  -  Guitar (Acoustic), Mandolin, Balalaika, Producer, Engineer, Mastering, Mixing 
+Luca Turilli  -  Guitar, Vocals, Choir, Chorus 
+Friedrike Bauer  -  Violin 
+Cosima Bergk  -  Violin, Viola 
+Tatiana Bloch  -  Vocals, Choir, Chorus 
+Matthias Brommann  -  Violin 
+Davide Calabrese  -  Vocals, Choir, Chorus 
+Daniele Carbonera  -  Percussion, Drums 
+Stefanie Holk  -  Violin 
+Robert Hunecke  -  Vocals, Choir, Chorus 
+Don Kosaken  -  Vocals, Choir, Chorus 
+Hagen Kuhr  -  Cello 
+Jan Larsen  -  Violin, Viola 
+Soren Leupold  -  Lute, Baroque Lute 
+Fabio Lione  -  Vocals 
+Alessandro Lotta  -  Bass 
+Michele Mayer  -  Vocals, Choir, Chorus 
+Andre Neygenfind  -  Contrabass (Vocal) 
+Cinzia Rizzo  -  Vocals 
+Ricky Rizzo  -  Vocals 
+Almut Schlicker  -  Violin 
+R. Limb Schnoor  -  Executive Producer 
+Alex Staropoli  -  Piano, Harpsichord, Keyboards, Vocals, Choir, Chorus 
+Manuel Staropoli  -  Oboe, Recorder, Vocals, Choir, Chorus, Baroque Oboe, Baroque Recorder 
+Marie-Theres Strumpf  -  Viola 
+
+
+
+### "Dawn Of Victory" 2000, Power Metal
+
+Lux Triumphans 
+Dawn of Victory 
+Triumph for my Magic Steel 
+The Village of Dwarves 
+Dargor, Shadowlord of the Black Mountain 
+The Bloody Rage of the Titans 
+Holy Thunderforce 
+Trolls in the Dark (instrumental) 
+The Last Winged Unicorn 
+The Mighty Ride of the Firelord
+
+
+Laurence Vanryne
+Baroque recorders: Manuel Staropoli
+Lead violin: Maggie Ardorf
+Drums played by Thunderforce 
+
+All songs published by Limb Music Publishing, Germany 
+Executive Producer: R. Limb Schnoor 
+
+### "Holy Thunderforce" 2000, Power Metal
+
+1 Holy Thunderforce 4:22 
+2 Dargor, Shadowlord of the Black Mountain [Extended Version] 8:28 
+3 Rage of the Winter [Symphonic and Original Demo Length Version] 4:47 
+
+### "Rain Of A Thousand Flames" 2001, Power Metal
+
+1. Rain Of A Thousand Flames
+2. Deadly Omen
+3. Queen Of The Dark Horizons
+Rhymes Of A Tragic Poem - The Gothic Saga
+4. Tears Of A Dying Angel
+5. Elnor's Magic Valley
+6. The Poem's Evil Page
+7. The Wizard's Last Rhymes
+
+Produced by:
+
+Sascha Paeth & Miro
+
+
+
+### "The Power Of Dragonflame" 2002, Power Metal
+
+1. In Tenebris 
+2. Knightrider Of Doom 
+3. The Power Of The Dragonflame 
+4. The March Of The Swordmaster 
+5. When Demons Awake 
+6. Agony Is My Name (Bonustrack Ltd. Ed.) 
+7. Lamento Eroico 
+8. Steelgods Of The Last Apocalypse 
+9. The Pride Of The Tyrant 
+10. Rise From The Sea Of Flames 
+11. Gargoyles, Angels Of Darkness 
+
+
+Produced by Sacha Paeth and Miro
+
+Fabio Lione - vocals
+Luca Turilli - guitars
+Alessandro Lotta - bass
+Alex Staropoli - keyboards
+Alex Holzwarth - drums 
+
+
+
+### "Tales From The Emerald Sword Saga" 2004, Power Metal
+
+
+
+### "The Dark Secret EP" 2004, Power Metal
+
+"The Dark Secret" track listing:
+
+01. Unholy Warcry (short version)* 
+02. Thunder Mighty Roar* 
+03. Sacred Power Of Raging Winds 
+04. Guardians Of Destiny (English version)* 
+05. Non Ho Sonno
+
+* Titles will not appear on the upcoming studio album
+
+### "Symphony Of Enchanted Lands Part 2 - The Dark Secret" 2004, Power Metal
+
+
+
+### "Unholy Warcry - one-song-CD" 2004, Power Metal
+
+
+
+### "Live In Canada 2005 - The Dark Secret" 2006, Power Metal
+
+
+
+### "Triumph or Agony" 2006, Power Metal
+
+01. Dar-Kunor 
+I. Echoes From The Elvish Woods 
+II. Fear Of The Dungeons 
+02. Triumph Or Agony 
+03. Heart Of The Darklands 
+04. Old Age Of Wonders 
+05. The Myth Of The Holy Sword 
+06. Il Canto Del Vento 
+07. Silent Dream 
+08. Bloody Red Dungeons 
+09. Son Of Pain 
+10 The Mystic Prophecy Of The Demonknight 
+I. A New Saga Begins 
+II. Through The Portals Of Agony 
+III. The Black Order 
+IV. Nekron`s Bloody Rhymes 
+V. Escape From Horror 
+11. Dark Reign Of Fire 
+I. Winter Dawn`s Theme
+
+### "Visions From The Enchanted Lands [DVD]" 2007, Power Metal
+
+DVD 1: 
+
+Unholy warcry (Introduction) 
+The past few years 
+The wisdom of the kings (Live from Germany) 
+The fans 
+The village of dwarves (Live from Canada) 
+The mystical journey 
+Erian`s mystical rhymes (Live from Canada) 
+Drum solo (Live from Canada) 
+Canadian cousins 
+Dawn of victory (Live from Canada) 
+Lamento eroico (Live from Canada) 
+Emerald sword (Live from Canada) 
+The village of Dwarves (Live from Czech Republic) 
+Land of immortals (Live from Czech Republic) 
+Holy thunderforce (Live from Germany) 
+
+Bonus video: 
+
+Unholy Warcry-Extended version 
+The magic of the wizard's dream-German version 
+
+Unreleased bonus tracks: 
+
+Age of the red moon 
+Power of thy sword 
+
+DVD 2: 
+
+Unholy warcry music video 
+The magic of the wizard`s dream music video 
+The making of the dark secret - documentary 
+The making of the wizard's dream - documentary 
+Unholy warcry (Live from USA) 
+Live equipment 
+Additional interviews from 2005 tour 
+Triumph or agony - Electronic press Kit 
+Rehearsal - Erian`s Mystical Rhymes 
+The village of Dwarves 
+Outtakes
+
+### "The Frozen Tears of Angels" 2010, Power Metal
+
+1. Dark Frozen World 02:13  
+2. Sea of Fate 04:47  
+3. Crystal Moonlight 04:25  
+4. Reign of Terror 06:52  
+5. Danza Di Fuoco E Ghiaccio 06:25  
+6. Raging Starfire 04:56  
+7. Lost in Cold Dreams 05:12  
+8. On the Way to Ainor 06:58  
+9. The Frozen Tears of Angels 11:15 
+
+
+Line-up:
+Fabio Lione – Vocals
+Luca Turilli – Guitars
+Alex Staropoli – Keyboards
+Patrice Guers – Bass
+Alex Holzwarth – Drums
+
+Bonus tracks for Japan:
+10. Sea of Fate (Orchestral Version)
+11. Immortal New Reign
+
+The special limited deluxe digipak has two bonus tracks:
+10. Labyrinth of Madness (04:35)
+11. Sea of Fate (Orchestral Version) (04:04)
+It also includes a 32 page booklet, as well as jewelcase and vinyl.
+
+Produced by Luca Turilli and Alex Staropoli.
+
+This is the third chapter of "The Dark Secret Saga", which began with "Symphony
+Of Enchanted Lands II: The Dark Secret".
+
+"Danza Di Fuoco E Ghiaccio" means "Dance Of Fire And Ice" in Italian. 
+
+### "The Cold Embrace of Fear (EP)" 2010, Black Metal
+
+1. Act I The Pass of Nair-Kaan 02:01  
+2. Act II Dark Mystic Vision 01:41  
+3. Act III The Ancient Fires of Har-Kuun 14:56  
+4. Act IV The Betrayal 03:58  
+5. Act V Neve Rosso Sangue 04:41  
+6. Act VI Erian's Lost Secrets 04:28  
+7. Act VII The Angels' Dark Revelation 03:59 
+
+
+### "From Chaos to Eternity" 2011, Power Metal
+
+1. Ad Infinitum  01:30    
+ 2. From Chaos to Eternity  05:45    
+3. Tempesta Di Fuoco  04:48    
+4. Ghosts of Forgotten Worlds  05:35    
+5. Anima Perduta  04:46    
+6. Aeons of Raging Darkness  05:46    
+7. I Belong to the Stars  04:55    
+8. Tornado  04:57    
+9. Heroes of the Waterfalls' Kingdom  19:32  
+
+
+Heroes of the Waterfalls' Kingdom is divided in five parts,
+I. Lo Spirito Della Foresta
+II. Realm of Sacred Waterfalls
+III. Thanor's Awakening
+IV. Northern Skies Enflamed
+V. The Splendour of Angels' Glory (A Final Reveletion) 
+
+
+### "Dark Wings of Steel" 2013, Power Metal
+
+
+
+### "Into The Legend" 2016, Power Metal
+
+1. In Principio  02:45   
+2. Distant Sky  04:32    
+3. Into the Legend  05:01   
+4. Winter's Rain  07:44   
+5. A Voice in the Cold Wind  06:18    
+6. Valley of Shadows  06:55    
+7. Shining Star  04:39   
+8. Realms of Light  06:01  
+9. Rage of Darkness  06:02  
+10. The Kiss of Life  16:45    
+11. Volar sin dolor  *  
+
+
 
 ## Отношения с другими группами
 

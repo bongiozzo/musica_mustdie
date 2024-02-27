@@ -1,8 +1,30 @@
 # Absentia Lunae
 
-Дискография
-"In Vmbrarvm Imperii Gloria" 2006, Black Metal
-"Historia Nobis Assentietvr" 2009, Black Metal
+
+
+## Дискография
+
+### "In Vmbrarvm Imperii Gloria" 2006, Black Metal
+
+1. Fortis Cadere, Cedere Non Potest 02:58  
+2. Mid Summer Spiritual Holocaust 05:20
+3. Subliminal Aeternitate 05:55 
+4. Modern Cathedral 05:54 
+5. Died Story Manifesto 05:54
+6. Manipulated Statues of Flesh 05:05 
+7. Pale Lune 04:52  
+8. Memneso On 04:21 
+
+### "Historia Nobis Assentietvr" 2009, Black Metal
+
+1. Neuropa Calling 06:00  
+2. Sentenza al Criterio 07:41  
+3. Nel Gelido Sentore di Un'eterno Addio (nel Solco della mai Sopita Via) 08:43  
+4. L'Urlo ed il suo Illuminante Eco 05:39  
+5. L'immutabile Richiamo ed il suo Cruento Incontro 06:00  
+6. Nel Segno dell'Ariete la Storia ci darа Ragione 08:06  
+7. Il Sole Ritrovato degli Iperborei 04:20 
+
 
 ## Отношения с другими группами
 

@@ -1,9 +1,36 @@
 # Powergod
 
-Дискография
-"Evilution, Part One" 1999, Heavy Metal
-"Evilution - Part II: Back To Attack" 2000, Heavy Metal
-"Bleed For The Gods: That's Metal - Lesson 1" 2001, Heavy Metal
+
+
+## Дискография
+
+### "Evilution, Part One" 1999, Heavy Metal
+
+
+
+### "Evilution - Part II: Back To Attack" 2000, Heavy Metal
+
+
+
+### "Bleed For The Gods: That's Metal - Lesson 1" 2001, Heavy Metal
+
+Lion`s Roar / Bound to be free ( Savage Grace )
+Bleed for the Godz ( Agent Steel )
+Metal Church ( Metal Church )
+Ruler of the Wasteland ( Chastain )
+Kill with Power ( Manowar )
+Stars ( Hearґn Aid )
+Burning the Witches ( Warlock )
+Iґm a Viking ( Yngwie Malmsteen )
+X X X ( Nasty Savage )
+Steel the light ( Q 5 )
+Tor with the Hammer ( TNT )
+Madhouse ( Anthrax )
+Metal Merchants ( Hallows Eve )
+Red Rum ( Lizzy Borden )
+Soldiers under Command ( Stryper )
+You and I ( M.A.R.S / DRIVER )
+
 
 ## Отношения с другими группами
 

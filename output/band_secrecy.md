@@ -1,7 +1,24 @@
 # Secrecy
 
-Дискография
-"Beneath the Lies" 2005, Gothic
+darkwave/gothicrock
+
+## Дискография
+
+### "Beneath the Lies" 2005, Gothic
+
+1. One Day 
+2. Falling 
+3. Perfect Isolation 
+4. Secrecy 
+5. Sins for Love 
+6. A Myth 
+7. Who's Talking, Who's Crying 
+8. Wonderful Life 
+9. Cold as Ice 
+10. Hollow Man 
+11. Arise and Fall 
+12. Cry
+
 
 ## Отношения с другими группами
 

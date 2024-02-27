@@ -1,7 +1,35 @@
 # Flaw
 
-Дискография
-"Through The Eyes" 2001, Nu Metal
+Wonderful nu-metal band a-la Ill Nino
+
+## Дискография
+
+### "Through The Eyes" 2001, Nu Metal
+
+1. Only The Strong
+2. Payback
+3. My Letter
+4. Get Up Again
+5. Whole
+6. Amendment
+7. Scheme
+8. What I Have To Do
+9. Inner Strength
+10. Best I Am
+11. Out Of Whack
+12. Reliance
+13. One More Time 
+
+(c) 2000 Republic
+
+Состав:
+Chris Volz - vocals
+Jason Daunt - guitars
+Lance Arny - guitars
+Ryan Jurhs - bass
+Chris Ballinger - drums
+
+
 
 ## Отношения с другими группами
 

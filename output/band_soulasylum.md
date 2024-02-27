@@ -1,8 +1,44 @@
 # Soul Asylum
 
-Дискография
-"Grave Dancers Union" 1992, Grunge
-"Let Your Dim Light Shine" 1995, Grunge
+
+
+## Дискография
+
+### "Grave Dancers Union" 1992, Grunge
+
+1. Somebody To Shove
+2. Black Gold
+3. Runaway Train
+4. Keep It Up
+5. Homesick
+6. Get On Out
+7. New World
+8. April Fool
+9. Without A Trace
+10.Growing Into You
+11.99 %
+12.The Sun Maid
+
+(P)&(C) 1992
+
+### "Let Your Dim Light Shine" 1995, Grunge
+
+1. Misery
+2. Shut Down
+3. To My Own Devices
+4. Hopes Up
+5. Promises Broken
+6. Bittersweetheart
+7. String Of Pearls
+8. Caged Rat
+9. Eyes Of A Child
+10.Just Like Anyone
+11.Tell Me When
+12.Nothing To Write Home About
+13.I Did My Best
+
+(P)&(C) 1995
+
 
 ## Отношения с другими группами
 

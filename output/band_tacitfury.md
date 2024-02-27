@@ -1,8 +1,34 @@
 # Tacit Fury
 
-Дискография
-"Imaginary Suffering" 2002, Death Doom
-"The Invented Pain" 2006, Death Doom
+
+
+## Дискография
+
+### "Imaginary Suffering" 2002, Death Doom
+
+1. Silent Steps Of Madness (Intro) 01:44  
+2. Nothing Remained 05:57
+3. Imaginary Sufferings 06:28
+4. The Abyss 09:15
+5. Nuclear Winter 04:59
+6. Dying In My Kisses 04:50
+7. Biomass 05:23  
+8. Damned For Eternity 12:45 
+9. Damnation 06:37 
+10. The Sacrificed Virgin 06:11
+11. Die Biomasse (Remake) (Bonus) 04:27 
+
+### "The Invented Pain" 2006, Death Doom
+
+1. The Abyss 
+2. Indraught  
+3. I Despise  
+4. Life Aerie Pt. I 
+5. Sacrificed Virgin  
+6. Maze Of Thoughts  
+7. Nuclear Winter 
+8. For The Sake Of You
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,36 @@
 # Human Error
 
-Дискография
-"Pain" 1997, Punk
+
+
+## Дискография
+
+### "Pain" 1997, Punk
+
+1.  Understand
+2.  Crashtown
+3.  Tale You Tell
+4.  Pray For It
+5.  Mr.Big Man
+6.  Change
+7.  Plan
+8.  Clue
+9.  Lonely
+10.Move (Gotta Get Away)
+11.World At Mercy
+12.Bed Time Story
+
+Produced By Nordbanker UPA & HUMAN ERROR.
+Engineered By Christian Edgen.
+Recorded & Mixed At Traxton Recording.
+
+Jim Farula - Vocals
+Per Graden - Bass, Backing Vocals
+Magnus Hjort - Guitar, Backing Vocals
+Anton Olemyr - Drums
+Mats Larsson - Guitar
+
+(P)(C) 1997 BIRD NEST Records
+
 
 ## Отношения с другими группами
 

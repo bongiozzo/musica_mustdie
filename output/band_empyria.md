@@ -1,11 +1,73 @@
 # Empyria
 
-Дискография
-"Behind Closed Doors" 1996, Power Metal
-"Changing Currents" 1998, Power Metal
-"The Legacy" 2000, Power Metal
-"Sence Of Mind" 2002, Progressive
-"The Long Road Home" 2009, Progressive
+power-progressive metal from Canada
+
+## Дискография
+
+### "Behind Closed Doors" 1996, Power Metal
+
+The Test Of Time 
+Uncertain Reality 
+World's Apart 
+Lost In The Shadow 
+To Live Again 
+Solace 
+The Lighter Side Of Darkness
+Secret Visions 
+Seasons Of Change 
+Behind Closed Doors 
+The Calling
+
+### "Changing Currents" 1998, Power Metal
+
+Changing Currents 
+Desperate Lives 
+Will Of A Heart 
+The Grand Illusion 
+Silent Rage 
+Reflections 
+Secrets Of The Damned 
+A Part Of Life
+
+### "The Legacy" 2000, Power Metal
+
+Solace (Intro) 
+The Lighter Side of Darkness (Part I) 
+The Grand Illusion (Another Side of Darkness - Part-II) 
+Silent Rage (The Darkness Still Remains - Part III) 
+The Legacy (of Final Darkness - Part IV)
+Synchronicity II 
+Years Behind (Bonus Acoustic Track)
+
+
+### "Sence Of Mind" 2002, Progressive
+
+ties that bind
+no more lies
+in god's hands
+heaven's cry
+sense of mind
+where prejudice reigns
+long road home
+blackened heart
+a new beginning
+forever
+
+### "The Long Road Home" 2009, Progressive
+
+1. Intro  00:14    
+2. The Endless Circle  03:57 
+3. False Witness  04:05    
+4. No Other Way  04:23  
+5. Lonely People  03:55 
+6. Last Rites  03:25    
+7. Can't Wait Forever  04:09    
+8. Of All the Dreams  03:22 
+9. Without Within  03:53    
+10. Walk Away  03:07  
+11. Solitude  01:38   instrumental  
+12. Returning Home  07:02 
+
 
 ## Отношения с другими группами
 

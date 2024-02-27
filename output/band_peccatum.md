@@ -1,10 +1,147 @@
 # Peccatum
 
-Дискография
-"Strangling from Within" 1999, Black Metal
-"Amor Fati" 2000, Black Metal
-"Oh My Regrets [EP]" 2000, Black Metal
-"Lost in Reverie" 2004, Black Metal
+norwegian post-black metal project (emperor frontman)
+
+## Дискография
+
+### "Strangling from Within" 1999, Black Metal
+
+#1. Where Do I Belong
+#2. Speak of the Devil (As the Devil May Care)
+#3. The Change
+#4. The Song Which No Name Carry
+#5. The Sand Was Made of Mountains
+#6. I Breathe Without Access to Air
+#7. The World of No Worlds
+#8. And Pray for Me
+#9. An Ovation to Art
+
+
+Recorded and mixed at Symphonique Studio between April & September 1998.
+Mastered at Akkerhaugen Lydstudio October 1998.
+
+Engineered by Ihsahn
+Produced by Peccatum
+
+Vocal coproducer: Kaia Lia Solberg
+Mixing coproducer: Torbjoern Akkerhaugen
+
+Cover consept and design: Ihriel (Peccatum)
+Bandphotos: Knut Jacobsen
+Logo Kai Johnny Mosaker
+
+LINE UP
+Ihriel: Vocals
+Ihsahn: Vocals and Instruments
+Lord PZ: Vocals
+
+All music by Ihshahn
+Interpeted by Peccatum
+
+All lyrics by Ihriel except
+The Change: Ihiel and Ihsahn
+
+Consept by Ihriel
+Interpeted by Peccatum
+
+&copy; 1999 Candlelight Records
+
+### "Amor Fati" 2000, Black Metal
+
+#1. One Play. No Script
+#2. No Title for a Cause
+#3. Murder
+#4. A Game Divine?
+#5. [untitled]
+#6. Rise, Ye Humans
+#7. Between the Living and the Dead
+#8. [untitled]
+#9. - 10. The Watchers Mass
+
+
+Recorded and Mixed at in Akkerhaugen & Symphonique Studio between March-June 2000.
+Mixed by Torbj&oslash;rn Akkerhaugen & Peccatum in Akkerhaugen Lydstudio June 2000.
+Mastered by Tom Kv&aring;lsvoll & Peccatum in Strype Audio 7th of July 2000.
+
+Cover & sleeve-design: Kari Stai & Henning Lystad (go.to/ls_design)
+Bandphotos: Morten Andersen
+
+Mask sculpture by Trond Fredriksen, photographed by Peter Leu
+
+LINE UP 
+Ihriel: Vocals & Keys
+Ihsahn: Vocals, Keys & Guitars
+Lord PZ: Vocals
+Per Eriksen: Percussion
+
+All songs arranged by Ihriel/Ihsahn
+All music interpeted by Peccatum
+
+Vocal co-producer: Kaia Lia Solberg
+
+&copy; 2000 Candlelight Records
+
+### "Oh My Regrets [EP]" 2000, Black Metal
+
+#1. Rise, Ye humans
+#2. Oh, My Regrets
+#3. Blood Red Skies *
+
+*published by EMI Songs LTD
+
+
+Recorded at Symphonique & Akkerhaugen Lydstudio by Torbj&oslash;rn Akkerhaugen and Peccatum between August 1999-January 2000.
+Mixed by Torbj&oslash;rn Akkerhaugen & Ihsahn in Akkerhaugen Lydstudio, December 1999.
+Mastered at Strype Audio by Tom Kv&aring;lsvold & Peccatum, January 2000.
+
+Engineered by Torbj&oslash;rn Akkerhaugen & Ihsahn
+Produced by Peccatum & Torbj&oslash;rn Akkerhaugen
+Vocal coproducer: Kaia Lia Solberg
+
+Cover-painting: Linda Merethe Olsen (LP)
+
+Layout & design: Lord PZ
+Bandphotos: Morten Andersen
+
+LINE UP
+Ihriel: Vocals & Synthprogramming
+Ihsahn: Vocals, Synthprogramming & Guitars
+Lord PZ: Vocals
+Helene Vaage: Cello
+Trond Villa: Viola & Violin
+Per Eriksen: Percussion & Drums
+
+&copy; 2000 Candlelight Records
+
+### "Lost in Reverie" 2004, Black Metal
+
+#1. Desolate Ever After
+#2. In the Bodiless Heart
+#3. Parasite My Heart
+#4. Veils of Blue
+#5. Black Star
+#6. Stillness
+#7. The Banks of This River Is Night
+
+
+Recorded and Mixed at Symphonique Studio.
+Produced and Engineered by Ihirel and Ihsahn.
+Mastered at Strype Audio by Tom Kv&aring;lsvoll.
+
+Photos and drawings by Siren Lauvdal www.siren.no
+Styling by Camilla Binder&oslash;
+Design by Kim S&oslash;lve and Trine Paulsen www.trineogkim.no
+
+LINE UP
+Ihriel: Vocals and Instruments 
+Ihsahn: Vocals and Instruments 
+ 
+All music and words written and performed by Ihriel and ihsahn except:
+
+Drums and percussion by Knut Aalefj&aelig;r on tracks 2, 3, 4 and 5 / Additional vocals on tracks 3 and 5 by PZ and Einar Solberg
+
+2004 Mnemosyne Records
+
 
 ## Отношения с другими группами
 

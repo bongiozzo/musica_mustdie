@@ -1,9 +1,45 @@
 # Black Witchery
 
-Дискография
-"Desecration of the Holy Kingdom" 2001, Black Metal
-"Upheaval Of Satanic Might" 2005, Black Metal
-"Inferno of Sacred Destruction" 2010, Black Metal
+
+
+## Дискография
+
+### "Desecration of the Holy Kingdom" 2001, Black Metal
+
+1. Desecration of the Holy Kingdom
+2. Crush the Messiah
+3. Blasphemous Onslaught	
+4. Command of the Iron Baphomet
+5. Unholy Vengeance of War
+6. Into Damnation Eternal
+7. Chaostorms of Demonic Hate
+8. Invincible Antichrist Victory
+9. The Angelholocaust
+
+### "Upheaval Of Satanic Might" 2005, Black Metal
+
+Blood Oath 
+Heretic Death Call 
+Profane Savagery 
+Baphomet Throne Exaltation 
+Holocaust Summoning
+Hellstorm Of Evil Vengeance 
+Darkness Attack 
+Scorned And Crucified 
+Upheaval Of Satanic Might 
+Ritual (Blasphemy cover)
+
+### "Inferno of Sacred Destruction" 2010, Black Metal
+
+1. Holocaustic Church Devastation
+2. Antichrist Order of Holy Death
+3. Apocalyptic Carnage
+4. Barbarism Domination
+5. Inferno of Sacred Destruction
+6. Kingdom Against Kingdom (Conqueror cover) 
+7. Sepulchral Witchcraft	 
+8. Ascension of the Obscure Moon
+
 
 ## Отношения с другими группами
 

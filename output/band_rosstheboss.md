@@ -1,8 +1,67 @@
 # Ross The Boss
 
-Дискография
-"New Metal Leader" 2008, Heavy Metal
-"Hailstorm" 2010, Heavy Metal
+
+
+## Дискография
+
+### "New Metal Leader" 2008, Heavy Metal
+
+1. I. L. H. 00:49  
+2. Blood of Knives 03:22 
+3. I Got the Right 05:43 
+4. Death & Glory 03:54  
+5. Plague of Lies (Brain Surgeons cover) 04:30 
+6. God of Dying 05:27 
+7. May the Gods Be with You 04:10  
+8. Constantine's Sword (Brain Surgeons cover) 04:41 
+9. We Will Kill 04:34 
+10. Matador 04:48 
+11. Immortal Son 06:16 
+
+
+
+"Plague of Lies" and "Constantine's Sword" originally appeared on the Brain
+Surgeons album "Denial of Death."
+
+Limited digipak edition contain 1 bonus track:
+12. Falling One By One (2:43)
++ Blood of Knives - video 
+
+
+2-LP gatefold edition contain 2 bonus tracks:
+12. Falling One By One 
+13. Ross'n'Roll 
+
+
+Limited digibook edition (exclusive for Russia & CIS) also contains 2 bonus
+tracks:
+
+12. Falling One By One (2:43)
+13. Blood of Knives (video) 
+
+### "Hailstorm" 2010, Heavy Metal
+
+1. I.A.G.   
+2. Kingdom Arise   
+3. Dead Man's Curve   
+4. Hailstorm   
+5. Burn Alive   
+6. Shining Path   
+7. Great Gods Glorious   
+8. Behold The Kingdom   
+9. Among The Ruins   
+10. Crom   
+11. Empireґs Anthem   
+12. Vindicator (bonus track on ltd. digipack) 
+
+
+Patrick Fuchs – vocals
+Ross The Boss – guitars
+Carsten Kettering – bass
+Matthias Mayer - drums
+
+Comes as CD, LP and limited Digipack with a bonus track. 
+
 
 ## Отношения с другими группами
 

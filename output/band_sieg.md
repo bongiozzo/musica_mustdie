@@ -1,7 +1,20 @@
 # Sieg
 
-Дискография
-"Der Weg zum Polarstern/Sonnenkreuz" 2009, Black Metal
+
+
+## Дискография
+
+### "Der Weg zum Polarstern/Sonnenkreuz" 2009, Black Metal
+
+1. Auf dem Schlachtfeld 04:31  
+2. Nachtlied 01:48  
+3. Jotunheimr 05:46  
+4. Ostara 03:57  
+5. Das Nцrdliche Reich 06:46  
+6. Der Weg zum Polarstern 04:34  
+7. Sonnenkreuz 09:46  
+8. Die Sieben Siegel (Oder: Das Ja - Und Amen - Lied) 13:18 
+
 
 ## Отношения с другими группами
 

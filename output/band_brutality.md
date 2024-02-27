@@ -1,10 +1,103 @@
 # Brutality
 
-Дискография
-"Screams Of Anguish" 1993, Death Metal
-"When The Sky Turns Black" 1994, Death Metal
-"In Mourning" 1996, Death Metal
-"Sea Of Ignorance" 2016, Death Metal
+High Class Florida's Band
+
+## Дискография
+
+### "Screams Of Anguish" 1993, Death Metal
+
+1. These Walls Shall Be Your Grave
+2. Ceremonial Unearthing
+3. Sympathy
+4. Septicemic Plague
+5. Crushed
+6. Spirit World
+7. Exposed To The Elements
+8. Cries Of The Forsaken
+9. Cryptorium
+10.Spawned Illusion
+
+ Scott Reigel - Lead Vocals
+ Jeff Acres - Vocals & Bass
+ Don Gates - Lead Guitar
+ Jay Fernandez - Lead Guitar
+ Jim Coker - Drums
+
+All Songs By BRUTALITY.
+All Lyrics Written By BRUTALITY.
+Recorded At Morrisound Recording,Tampa,Florida,
+December 1992.
+Produced By Jim Morris & BRUTALITY.
+Executive Producer Markus Staiger.
+Engineered & Mixed By Jim Morris.
+Music Remixed March `93.
+All Photos By Tim Hubbard.
+Cover Art & Logo By Michael Stanfield.
+
+(p)&(c) 1993 NUCLEAR BLAST Records  NB075
+
+
+### "When The Sky Turns Black" 1994, Death Metal
+
+1. When the sky turns black      3:48
+2. Race defects                  4:46
+3. Awakenings                    2:21
+4. Electric funeral              4:57
+5. Foul lair                     5:54
+6. Screams of anguish            4:09
+7. Esoteric                      2:08
+8. Artistic butchery             5:05
+9. Violent generation            4:15
+10.Shrine of the master          4:37
+
+ Scott Reigel - Lead Vocals
+ Jeff Acres - Vocals & Bass
+ Don Gates - Lead Guitar
+ Bryan Hipp - Lead Guitars
+ Jim Coker - Drums
+
+All Songs Written By BRUTALITY, Except 4 By BLACK SABBATH
+Produced By Jim Morris & BRUTALITY
+Engineered By Jim Morris
+Recorded At Morrisound Studios, Tampa, Florida, July 1994
+
+(p)&(c) 1994 NUCLEAR BLAST Records
+
+### "In Mourning" 1996, Death Metal
+
+1. Obsessed
+2. The Past
+3. Waiting To Be Devoured
+4. Died With Open Eyes
+5. In Mourning
+6. Subjected To Torture
+7. Calculated Bloodshed
+8. Extinction
+
+All songs written by BRUTALI'TY
+Produced by Jim Morris and BRUTALITY
+Engineered by Jim Morris
+Recorded at Morrisound Studios, Tampa, Florida.
+
+Scott Reigel - Vocals
+Dana Walsh - Lead Guitar
+Pete Sykes - Lead Guitar
+Jeff Acres - Bass and Vocals
+Jim Coker - Drums
+
+(p)c 1996 NUCLEAR BLAST Records
+
+### "Sea Of Ignorance" 2016, Death Metal
+
+01. Sea Of Ignorance (04:38)
+02. 48 To 52 (06:15)
+03. Fatal Cure (03:00)
+04. Tribute (03:44)
+05. Perpetual Resolution (03:57)
+06. Barbarically Beheaded (03:36)
+07. Shores In Flames (Bathory cover) (11:14)
+08. End Of Days (03:17)
+
 
 ## Отношения с другими группами
 

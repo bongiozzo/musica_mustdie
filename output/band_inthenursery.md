@@ -1,7 +1,37 @@
 # In The Nursery
 
-Дискография
-"Deco" 1996, Gothic
+
+
+## Дискография
+
+### "Deco" 1996, Gothic
+
+1. Deco (4.46)
+2. Precedent (6.14)
+3. Syracuse (5.2 I )
+4. Mallarme (7.28)
+5. Woman (5 .10)
+6. Cedione (4.08)
+7. Caprice (5.03)
+8. Mandra (4.49)
+[9].  Bassilica (4.47)
+[10].Harmonia (2.46)
+[11].Moreau (5.10)
+
+[9] - [10] - Ha стороне B
+
+Written by Klive and Nigel Humberstol
+Documented at A17, Sheffield
+Translated from the original by Steve Harris and TTN
+Vocals by Dolores Marquerite C.
+
+Acknowledgements :
+Oboe by Jill Crowther
+Snare Drums and percussion by Christopher Adkin
+Flute and Bass Flute by Henrik Linnemann
+
+(p)c 1996 ITN Corporation
+
 
 ## Отношения с другими группами
 

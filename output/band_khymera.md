@@ -1,8 +1,54 @@
 # Khymera
 
-Дискография
-"Khymera" 2003, Rock
-"A New Promise" 2005, Hard Rock
+malodic hard
+
+## Дискография
+
+### "Khymera" 2003, Rock
+
+1. Khymera
+2. Strike Like Lightning
+3. Shadows
+4. Who’s Gonna Love You Tonight
+5. Living With A Memory
+6. Bless A Brand New Angel
+7. Written In The Wind
+8. Without Warning
+9. How You Gonna Live Without...
+10. Say It With Love
+11. Love Leads The Way
+12. Tears On The Pages
+
+
+Steve Walsh - vocals
+Daniele Liverani - guitars, bass, keyboards
+Dario Ciccioni - drums
+
+
+
+
+### "A New Promise" 2005, Hard Rock
+
+1. A NEW PROMISE 
+2. ALONE 
+3. LET IT BURN 
+4. LOOKING FOR YOU 
+5. ALL THAT I HAVE 
+6. DAMAGE IS DONE 
+7. AFTER THE WAY 
+8. YOU CAN'T TAKE ME (AWAY FROM YOU) 
+9. TOMORROW NEVER COMES 
+10. FIELDS OF FIRE 
+11. IF YOU DARE TO DREAM 
+12. GIVE IN TO THE WORLD 
+13. ALL IS GONE 
+
+Состав: 
+Dennis Ward - vocals 
+Daniele Laverani - keys and bass 
+Tommy Ermolli - guitars 
+Dario Ciccioni - drums
+
 
 ## Отношения с другими группами
 

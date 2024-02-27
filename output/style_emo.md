@@ -2,15 +2,20 @@
 
 ## Emo
 
+Группа: Hell Is For Heroes
+Альбом: "Transmit Disrupt"
+Стиль: Emo
+Год: 2005
+
 Группа: I Am Ghost
 Альбом: "We Are Always Searching"
 Стиль: Emo
 Год: 2005
 
-Группа: Hell Is For Heroes
-Альбом: "Transmit Disrupt"
+Группа: Escape The Fate
+Альбом: "Dying Is Your Latest Fashion"
 Стиль: Emo
-Год: 2005
+Год: 2006
 
 Группа: From First To Last
 Альбом: "Heroine"
@@ -19,11 +24,6 @@
 
 Группа: I Am Ghost
 Альбом: "Lovers' Requiem"
-Стиль: Emo
-Год: 2006
-
-Группа: Escape The Fate
-Альбом: "Dying Is Your Latest Fashion"
 Стиль: Emo
 Год: 2006
 
@@ -37,13 +37,13 @@
 Стиль: Emo
 Год: 2007
 
-Группа: Last Winter
-Альбом: "Under The Silver Of Machines"
+Группа: Escape The Fate
+Альбом: "Situations (EP)"
 Стиль: Emo
 Год: 2007
 
-Группа: Escape The Fate
-Альбом: "Situations (EP)"
+Группа: Last Winter
+Альбом: "Under The Silver Of Machines"
 Стиль: Emo
 Год: 2007
 

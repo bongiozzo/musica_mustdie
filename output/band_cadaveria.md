@@ -1,10 +1,54 @@
 # Cadaveria
 
-Дискография
-"The Shadows' Madame" 2002, Black Metal
-"Far Away from Conformity" 2004, Metal
-"In Your Blood" 2007, Metal
-"Horror Metal" 2012, Metal
+project of former Opera IX vocalist Cadaveria
+
+## Дискография
+
+### "The Shadows' Madame" 2002, Black Metal
+
+
+
+### "Far Away from Conformity" 2004, Metal
+
+1. Blood And Confusion
+2. Eleven Three O Three
+3. Irreverent Elegy
+4. The Divine Rapture
+5. Omen Of Delirium
+6. Call Me
+7. Out Body Experience
+8. Prayer Of Sorrow
+9. Vox Of Anti-Time
+
+### "In Your Blood" 2007, Metal
+
+1. 100.000 Faces 
+2. The Dream 
+3. Anagram 
+4. Memento Audere Semper 
+5. Laying in Black 
+6. Queen of forgotten 
+7. Exorcism to Chaos 
+8. Uneven like Clouds 
+9. Before the Apes came 
+10. Virtual Escape from Tragedy 
+11. Atypical Suggestions by a dead Artist 
+12. Enlightened
+
+### "Horror Metal" 2012, Metal
+
+Flowers in Fire
+The Night’s Theatre 
+Death Vision 
+Whispers of Sin 
+Assassin 
+The Days of the After and Behind 
+Apocalypse 
+The Oracle (of the Fog) 
+Requiem 
+This is Not the Silence 
+Hypnotic Psychosis
+
 
 ## Отношения с другими группами
 

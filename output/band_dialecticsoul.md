@@ -1,9 +1,41 @@
 # Dialectic Soul
 
-Дискография
-"DS" 2001, Black Metal
-"Terpsychora" 2007, Black Metal
-"Painsoul" 2009, Black Metal
+
+
+## Дискография
+
+### "DS" 2001, Black Metal
+
+1. Intro 
+2. We All Are Sinful 
+3. Martyres Road 
+4. World Of Ideal Incarnation 
+5. The Lord Of The Fates 
+6. Outro
+
+### "Terpsychora" 2007, Black Metal
+
+1. Polar Night 01:48  
+2. Artstone 05:42  
+3. Turnaround 04:35  
+4. Mile 04:54  
+5. Terpsychora 05:10  
+6. Master 5 06:05  
+7. Insomnia 04:59  
+8. Transarctica 03:46  
+Total playing time 36:59 
+
+### "Painsoul" 2009, Black Metal
+
+1. Titus 04:05  
+2. Progressive life 05:05  
+3. Painsoul 05:25  
+4. Last 04:06  
+5. Farewell my soul 04:29  
+6. Hard days 04:33  
+7. To go or to fly 04:30  
+8. In search of destiny 05:03 
+
 
 ## Отношения с другими группами
 

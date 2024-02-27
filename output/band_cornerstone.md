@@ -1,11 +1,112 @@
 # Cornerstone
 
-Дискография
-"Arrival" 2000, Hard Rock
-"Human Stain" 2002, Hard Rock
-"Once Upon Our Yesterdays" 2003, Hard Rock
-"Cornerstone, In Concert" 2005, Hard Rock
-"Two Tales and One Tomorrow" 2007, Hard Rock
+Smth. between Royal Hunt & Deep Purple
+
+## Дискография
+
+### "Arrival" 2000, Hard Rock
+
+1. Arrival 
+2. Walked on the water 
+3. Jungle 
+4. Straight to the bone 
+5. Top of the world 
+6. Reload 
+7. Gift of flesh 
+8. Grain of sand 
+9. Fooled 
+10. I’m alive 
+11. Basscamp 1 (Japanese bonustrack)
+
+
+Produced by Steen Mogensen • Engineered by Steen Mogensen and Andrй Andersen Recorded in Mirand Studio, North Point and Basscamp Studios, Denmark • Mixed and Mastered at Media Sound Studios by Peter Brander and Steen Mogensen • Art Direction & Illustration by Martin Burridge Grafisk Design/Denmark • Photos by Robin Skjoldborg and Nadia Lescuri • Management and Fanclub: Micheal Raitzin/Majestic Entertainment, inc. 5 Dakota Drive, Suite 305/Lake Success, NY 11042/USA.
+
+### "Human Stain" 2002, Hard Rock
+
+1. Unchosen One
+2. Some People Fly
+3. Wounded Land
+4. Singing Alone
+5. Future Rising
+6. Resurrection
+7. Sail On Stormy Waters
+8. Midnight In Tokyo
+9. House Of Nevermore
+10. Forever Young
+
+
+  
+
+Produced , recorded and engineered by Steen Mogensen at Media Sound Studios
+ and Northpoint Studio, Copenhagen 
+Mixed By Peter Brander and Steen Mogensen at Media Sound Studios
+Mastered By Jan Eliason at Tocano
+
+Dougie White - Vocals
+Steen Mogensen - Bass and Keyboards
+Kasper Damgaard - Electric and Accoustic Guitars
+Allan Sшrensen - Drums and Percussion
+
+Rune Brink - Additional Keyboards
+Kenny Lubkce - Backing vocals
+Anne Murillo - Backing Vocals on ( House Of Nevermore )
+Peter Brander - Slide Guitar on ( Resurrection )
+Jacob Kjaer - Guitar solo part 1 on ( House Of Nevermore )
+Tony Rahm - Guitar solo part 3 on ( House Of Nevermore )
+
+
+
+### "Once Upon Our Yesterdays" 2003, Hard Rock
+
+01. "When the Hammer Falls" 
+02. "Hour of Doom" 
+03. "Once Upon Our Yesterdays" 
+04. "Scream" 
+05. "Passion to Warfare" 
+06. "End of the World" 
+07. "Some Have Dreams" 
+08. "Welcome to Forever" 
+09. "Man Without Reason" 
+10. "21st Century Man"
+
+### "Cornerstone, In Concert" 2005, Hard Rock
+
+Disc 1
+1.Intro
+2.Welcome to Forever 
+3.Wounded Land
+4.Future Rising
+5.Passion to Warfare ~ Gtr solo
+6.21st Century Man
+7.House of Nevermore
+8.When The Hammer Falls 
+9.Some People Fly
+10.Once Upon Our Yesterdays ~ Gtr Solo 
+
+Disc 2
+1.Hour of Doom
+2.Singing Alone
+3.Black Masquerade
+4.Scream
+5.Unchosen One
+6.Im Alive
+7.Midnight in Tokyo
+8. Video clip
+
+### "Two Tales and One Tomorrow" 2007, Hard Rock
+
+01. Misery 
+02. One Mans Hell
+03. Mother Of Mercy 
+04. Two Tales of One 
+05. Tomorrow 
+06. Prey 
+07. Blinded 
+08. Starlight and Mystery 
+09. The Dance 
+10. Wicked 
+11. We Are The Dead
+
 
 ## Отношения с другими группами
 

@@ -1,9 +1,21 @@
 # Festerguts
 
-Дискография
-"Delicious Evisceration" 1995, Death Doom
-"Bloodsoaked" 2000, Death Doom
-"Festerguts (demo)" 2004, Death Metal
+Death Metal from Kaluga, Russia
+
+## Дискография
+
+### "Delicious Evisceration" 1995, Death Doom
+
+
+
+### "Bloodsoaked" 2000, Death Doom
+
+
+
+### "Festerguts (demo)" 2004, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,9 +1,52 @@
 # Blackthorn
 
-Дискография
-"Аранеум" 2009, Gothic
-"Codex Archaos" 2011, Gothic
-"Witch Cult Ternion" 2015, Black Metal
+Female moscow dramatic-metal band
+
+## Дискография
+
+### "Аранеум" 2009, Gothic
+
+1. Где под вуалью тонких паутин в бессмертниках стоит твоя гробница
+2. Одем
+3. Некроманс
+4. Чары Безумной Луны
+5. Сатурния
+6. Терновая Зима
+7. Таящийся во тьме
+8. Аранеум
+9. Блуждающий Огонь
+10. И тишь падёт на лес как саван белоснежный
+
+### "Codex Archaos" 2011, Gothic
+
+1. Divination in Blood 
+2. Vehemence Came As Anodyne
+3. Nemesis Incarnation
+4. Gorgon the Ascendant
+5. Emptysis Kiss
+6. Arria Marcella
+7. Posthumous Passion Ephemera
+8. Dismalediction and the Remedy
+9. Серебряный ключ
+10. Hexshadow Turned to Flesh
+11. Bestial Satan of Grotesque Beauty
+12. The Fading Ceremony
+
+### "Witch Cult Ternion" 2015, Black Metal
+
+1. Witch Cult Ternion      
+2. Bleeding Milliads      
+3. Obey the Noxdimensions      
+4. Strix Nebulosa      
+5. Heathendust      
+6. The Spectral Evildence
+7. Graven on a Deathless Sin      
+8. Moonbreed Sigil      
+9. Threnody in Flames      
+10. Witch Cult Ternion: Mater Mortis  *     
+11. Moonbreed Sigil: Incantamentum  *     
+12. Threnody in Flames: Finis Tantum Initium Est  * 
+
 
 ## Отношения с другими группами
 

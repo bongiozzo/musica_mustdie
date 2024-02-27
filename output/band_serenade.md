@@ -1,8 +1,46 @@
 # Serenade
 
-Дискография
-"The 28th Parallel" 1996, Death Doom
-"The Serpents Dance" 2002, Death Metal
+
+
+## Дискография
+
+### "The 28th Parallel" 1996, Death Doom
+
+1.  Introduction: 1492
+2.  Daring To Dream
+3.  The Hearing
+4.  Ocean Of Despair
+5.  Beyond The Mist
+6.  Arrival
+  1)  San Salvador
+  2)  The Encounter
+7.  Homeward
+  1)  Eden
+  2)  To Face The Glory
+8.  Eden After The All
+9.  This Was Their World
+10.Eternal Dream
+
+Produced & Engineered By John Turner & SERENADE.
+Recorded At Palladium Studios, Edinburgh from 15th-20th Sep.'95.
+Mixed 14th-15th Oct.'95.
+
+John Alexander - Vocals
+Gerry Magee - Electric Guitar, 6 & 12 String Acoustic Guitars, Keyboards
+Fraser McGartland - Electric Guitar, 6 & 12 String Acoustic Guitars
+Stephen Mitchell - 4 & 6 String Bass Guitars
+Graeme McGartland - Drums & Percussion
+
+Additional Instrumentation:
+
+Julie Ballantyne - Cello, Grand Piano, Hammond Organ, Keyboards
+
+(P)c 1996 DEVIATION Records
+
+### "The Serpents Dance" 2002, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

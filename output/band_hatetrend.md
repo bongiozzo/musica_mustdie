@@ -1,7 +1,22 @@
 # Hatetrend
 
-Дискография
-"Violated" 2011, Thrash
+
+
+## Дискография
+
+### "Violated" 2011, Thrash
+
+1. Free Yourself	 
+2. BreakNeck	 
+3. Borrowed Time	 
+4. The Chemical Me	 
+5. Violated	 
+6. Ice Cold	 
+7. This Is The suffering	 
+8. Disciple	 
+9. Introducing Me	 
+10. Weak
+
 
 ## Отношения с другими группами
 

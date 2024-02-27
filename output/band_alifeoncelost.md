@@ -1,11 +1,29 @@
 # A Life Once Lost
 
-Дискография
-"Open Your Mouth for the Speechless...In Case of Those Appointed to Die" 2000, Metalcore
-"The Fourth Plague: Flies (EP)" 2001, Metalcore
-"A Great Artist" 2003, Metalcore
-"Hunter" 2005, Metalcore
-"Iron Gag" 2007, Metalcore
+
+
+## Дискография
+
+### "Open Your Mouth for the Speechless...In Case of Those Appointed to Die" 2000, Metalcore
+
+
+
+### "The Fourth Plague: Flies (EP)" 2001, Metalcore
+
+
+
+### "A Great Artist" 2003, Metalcore
+
+
+
+### "Hunter" 2005, Metalcore
+
+
+
+### "Iron Gag" 2007, Metalcore
+
+
+
 
 ## Отношения с другими группами
 

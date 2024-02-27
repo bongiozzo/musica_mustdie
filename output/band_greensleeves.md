@@ -1,7 +1,35 @@
 # Greensleeves
 
-Дискография
-"The Elephant Truth" 2009, Progressive
+
+
+## Дискография
+
+### "The Elephant Truth" 2009, Progressive
+
+1. The Coward's Refuge	 
+2. Parasites in Paradise	 
+3. Fight my Fear	 
+4. Not so Long	 
+5. Comeback to Myself	 
+6. Exit	 
+7. Touch of Wind	 
+8. Out of Reality	 
+9. Invisible Man	 
+10. Time Should Be an Ally	 
+11. Introspection	 
+12. Crisis	 
+13. Best Friends	 
+14. The Blind Men and the Elephant	 
+15. Blind by Choice	 
+16. Recipes for the Greatest Lie	 
+17. Enginners of the Day	 
+18. Flood	 
+19. Red Ocean	 
+20. Passage	 
+21. Epiphany		 
+22. The Sentence	 
+23. The Coward's Refuse
+
 
 ## Отношения с другими группами
 

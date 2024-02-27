@@ -1,7 +1,13 @@
 # Sons Of Liberty
 
-Дискография
-"Brush-Fires Of The Mind" 2009, Heavy Metal
+
+
+## Дискография
+
+### "Brush-Fires Of The Mind" 2009, Heavy Metal
+
+
+
 
 ## Отношения с другими группами
 

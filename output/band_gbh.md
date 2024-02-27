@@ -1,7 +1,37 @@
 # G.B.H.
 
-Дискография
-"Punk Junkies" 1996, Punk
+
+
+## Дискография
+
+### "Punk Junkies" 1996, Punk
+
+1.  Junkies
+2.  Impounded
+3.  Harmony
+4.  Tokyo After Dark
+5.  Shakin' Hands With The Machine
+6.  Don't Drag Me Back
+7.  Break The Chains
+8.  Kangaroo Court
+9.  Stormchaser
+10.Hole
+11.Damn Good Time
+12.Cry (On The Hard Shoulder)
+13.Civilized
+14.Lowering The Standard
+15.Enzo
+
+Recorded and Mixed at Stables / Rhythm Studios.
+Produced by GBH and Paul Johnson
+
+Colin - Vocals
+Jock - Guitars
+Ross - Bass
+Scott - Drums
+
+(P)c 1996 WE BITE Records // 1-151-2
+
 
 ## Отношения с другими группами
 

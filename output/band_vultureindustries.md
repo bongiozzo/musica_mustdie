@@ -1,8 +1,38 @@
 # Vulture Industries
 
-Дискография
-"The Dystopia Journals" 2007, Progressive
-"The Malefactor's Bloody Register" 2010, Alternative
+
+
+## Дискография
+
+### "The Dystopia Journals" 2007, Progressive
+
+01. Pills Of Conformity
+02. Blood Don't Flow Streamlined
+03. A Path Of Infamy
+04. Soulcage
+05. The Benevolent Pawn
+06. The Crumbling Realm
+07. To Sever The Hand Of Corruption
+08. Grim Apparitions
+
+### "The Malefactor's Bloody Register" 2010, Alternative
+
+1. Crooks & Sinners 00:44  
+2. Race For The Gallows 06:24  
+3. The Hangman’s Hatch 04:58  
+4. The Bolted Door 06:43  
+5. This Cursed Flesh 06:32  
+6. I Hung My Heart On Harrow Square 05:16  
+7. Crowning The Cycle 06:25  
+8. Of Branded Blood 07:20 
+
+
+Bjornar Erevik Nilsen - Vocals, Programming
+Oyvind Madsen - Guitars 
+Eivind Huse - Guitars
+Kyrre Teigen - Bass
+Tor Helge Gjengedal - Drums
+
 
 ## Отношения с другими группами
 

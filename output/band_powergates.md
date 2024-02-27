@@ -1,7 +1,13 @@
 # Power Gates
 
-Дискография
-"Shout At The Evil" 2005, Death Metal
+Death-metal from Korea
+
+## Дискография
+
+### "Shout At The Evil" 2005, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,18 @@
 # Blackcrowned
 
-Дискография
-"Immortality" 2004, Black Metal
+
+
+## Дискография
+
+### "Immortality" 2004, Black Metal
+
+Reborn 
+The Last Dream 
+Ashes 
+For Honor 
+Fed By Blackness 
+Odhin's Raven
+
 
 ## Отношения с другими группами
 

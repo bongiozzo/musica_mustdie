@@ -1,12 +1,85 @@
 # Aura Noir
 
-Дискография
-"Dreams Like Deserts" 1996, Black Metal
-"Deep Tracts of Hell" 1998, Black Metal
-"Increased Damnation" 2001, Black Metal
-"Merciless" 2004, Black Metal
-"Hades Rise" 2008, Black Metal
-"Out To Die" 2012, Black Metal
+
+
+## Дискография
+
+### "Dreams Like Deserts" 1996, Black Metal
+
+1.  The Rape 
+2.  Forlorn Blessing To The  Dreamking
+3.  Dreams, Like Deserts
+4.  Snake
+5.  Mirage
+
+Recorded and Hellraised July 95
+All music written and performed by
+AURA NOIR, Lyrics by Aggressor
+
+Aggressor - Bass. Guitars and Vocals on
+tracks 1,3,5. Drums on tracks 2,4,6.
+Apollyon - Guitars and Vocals on trax
+2,4,6. Drums on trax 1,3,5
+
+(P)c 1995 HOT Records // HR 002
+
+### "Deep Tracts of Hell" 1998, Black Metal
+
+
+
+### "Increased Damnation" 2001, Black Metal
+
+Mirage
+Towers of Limbs and Fevers
+Released Damnation
+Broth of Oblivion
+Swarm of Vultures
+The One Who Smite
+Wretched Face of Evil
+Fighting for Hell
+The Rape
+Forlorn Blessing to the Dreamking
+Dreams Like Deserts
+Angel Ripper
+Snake
+Mirage
+Tower of Limbs and Fevers
+
+### "Merciless" 2004, Black Metal
+
+01. Upon The Dark Throne 
+02. Condor 
+03. Black Metal Law 
+04. Hell's Fire 
+05. Black Deluge Night 
+06. Funeral Thrash 
+07. Sordid 
+08. Merciless
+
+### "Hades Rise" 2008, Black Metal
+
+1. Hades Rise 03:25  
+2. Gaping Grave Awaits 04:00  
+3. Unleash The Demon 03:47  
+4. Pestilent Streams 03:26  
+5. Schitzoid Paranoid 02:45  
+6. Death-Mask 03:35  
+7. Shadows Of Death 05:47  
+8. Iron Night / Torment Storm 05:09  
+9. South American Death 03:13  
+10. The Stalker 03:07 
+
+### "Out To Die" 2012, Black Metal
+
+01. Trenches
+02. Fed To The Flames
+03. Abbadon
+04. The Grin From The Gallows
+05. Withheld
+06. Priest's Hellish Fiend
+07. Deathwish
+08. Out To Die
+
 
 ## Отношения с другими группами
 

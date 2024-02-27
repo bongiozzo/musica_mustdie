@@ -1,13 +1,199 @@
 # Pestilence
 
-Дискография
-"Malleus Maleficarum" 1988, Death Metal
-"Consuming Impulse" 1989, Death Metal
-"Testimony Of The Ancients" 1991, Death Metal
-"Spheres" 1993, Death Metal
-"Mind Reflections" 1994, Death Metal
-"Resurrection Macabre" 2009, Techno Death
-"Doctrine" 2011, Techno Death
+Highest Holland's Liga
+
+## Дискография
+
+### "Malleus Maleficarum" 1988, Death Metal
+
+1. Malleus Maleficarum (Antropomophia)
+2. Parricide
+3. Subordinate To The Domination
+4. Extreme Unction
+5. Commandements
+6. Chemo Therapy
+7. Bacterial Surgery
+8. Cycle Of Existence
+9. Osculum Infame  *
+10.Systematic Instruction
+
+ Martin Van Drunen - Vocals & Bass
+ Randy Meinhard - Guitars
+ Marco Foddis - Drums
+ Patrick Mameli - Lead Guitar
++ Kalle Trapp - Synthesizer On *
+
+Produced By Kalle Trapp.
+
+(p)&(c) 1988 ROADRUNNER Productions
+
+
+### "Consuming Impulse" 1989, Death Metal
+
+1. Dehydrated
+2. The Process Of Suffocation
+3. Suspended Animation
+4. The Trauma
+5. Chronic Infection
+6. Out Of Body
+7. Echoes Of Death
+8. Deify Thy Master
+9. Proliferous Souls
+10.Reduced To Ashes
+
+ Martin Van Drunen - Vocals & Bass
+ Marco Foddis - Drums
+ Patrick Mameli - Lead Guitar
+ Patrick Uterwijk - Lead Guitar
+
+Produced By Harris Johns.
+Recorded At Music Lab Studios,Berlin.
+
+(p)&(c) 1989 ROARACER Records
+
+
+### "Testimony Of The Ancients" 1991, Death Metal
+
+1. The Secrecies Of Horror
+2. Bitterness
+3. Twisted Truth
+4. Darkening
+5. Lost Souls
+6. Blood
+7. Land Of Tears
+8. Free Us From Temptation
+9. Prophetic Revelation
+10.Impure
+11.Testimony
+12.Soulless
+13.Presence Of The Dead
+14.Mindwarp
+15.Stigmatized
+16.In Sorrow
+
+ Patrick Mameli - Vocals,Lead Guitar
+ Patrick Uterwijk - Lead Guitar
+(Cynic) Tony Choy - Bass
+ Kent Smith - Keyboards
+ Marco Foddis - Drums
+
+Produced By PESTILENCE & Scott Burns.
+Engineered & Mixed By Scott Burns.
+Recorded & Mixed At Morrisound
+Recording,Tampa,Florida.
+Mastered By Eddie Schrever At Future
+Disc,Hollywood,CA.
+
+(p) 1991 THE ALL BLACKS B.V. /
+  ROADRUNNER Production B.V.
+(c) 1991 THE ALL BLACKS B.V.
+
+### "Spheres" 1993, Death Metal
+
+1. Mind Reflection 
+2. Multiple Beings
+3. The Level Of Perception
+4. Aurian Eyes
+5. Soul Search
+6. Personal Energy
+7. Voices From Within
+8. Spheres
+9. Changing Perspectives
+10.Phileas
+11.Demise Of Time
+
+ Patrick Mameli - Vocals,Guitars,Synth G.
+ Patrick Uterwijk - Guitars,Synth Guitars
+ Jeroen Paul Thesseling - Six & Four String Bass
+ Marco Foddis - Drums
+
+There Are No Keyboards On This Album.
+Produced By Steve Fontano & Patrick Mameli.
+Engineered By Steve Fontano.
+Mixed By Patrick Muhren & Steve Fontano.
+Recorded At Studio Arnold Muhren.
+Cover Illustration By Dan SeaGrave.
+
+(p)&(c) 1993 THE ALL BLACKS B.V.
+
+### "Mind Reflections" 1994, Death Metal
+
+1. Out Of The Body
+2. Twisted Truth
+3. The Process Of Suffocation
+4. Parricide
+5. Mind Reflections
+6. Dehydrated
+7. Land Of Tears
+8. Hatred Within *
+9. The Secrecies Of Horror
+10. Subordinate To The Domination
+11. Dehydrated (Live)
+12. Chemo Therapy (Live)
+13. Presence Of The Dead (Live)
+14. Testimony (Live)
+15. Chronic Infection (Live)
+16. Out Of The Body (Live)
+
+* Previously Unavailable
+All Songs By PESTILENCE
+Produced By Media Broadcast Services, Amsterdam
+Compiled By Monte Conner
+Live Tracks Recorded Live At Dynamo Open Air Festival, Eindhoven, Holland, June 1992
+
+(p)&(c) 1994 ROADRUNNER Records
+
+
+### "Resurrection Macabre" 2009, Techno Death
+
+1. Devouring Frenzy 02:54  
+2. Horror Detox 03:20  
+3. Fiend 03:29  
+4. Hate Suicide 04:18  
+5. Synthetic Grotesque 03:57  
+6. Neuro Dissonance 03:28  
+7. Dehydrated II 03:47  
+8. Resurrection Macabre 03:47  
+9. Hangman 02:52  
+10. Y2H 03:39  
+11. In Sickness & Death 05:00 
+Limited edition re-recorded bonus tracks:
+12. Chemo Therapy (4:59)
+13. Out of the Body (4:31)
+14. Lost Souls (4:33)
+
+
+Patrick Mameli - lead guitars, vocals
+Tony Choy - bass
+Peter Wildoer - drums
+Patrick Uterwijk - lead guitars
+
+"Resurrection Macabre" is Pestilence's first studio album since 1993's "Spheres".
+
+### "Doctrine" 2011, Techno Death
+
+1. The Predication (intro)  02:00    
+2. Amgod  03:33    
+3. Doctrine  03:07    
+4. Salvation  03:40    
+5. Dissolve  03:39    
+6. Absolution  03:38    
+7. Sinister  03:58    
+8. Divinity  04:06    
+9. Deception  03:57    
+10. Malignant  03:49    
+11. Confusion  03:55  
+
+
+Jeroen Paul Thesseling  Bass  
+Yuma Van Eekelen  Drums  
+Patrick Uterwijk  Guitars  
+Patrick Mameli  Vocals, Guitars  
+ 
+Recorded and mixed at Woodshed Studio with engineer Victor Bullok.
+Artwork designed by Marko Saarelainen. 
+
+
 
 ## Отношения с другими группами
 

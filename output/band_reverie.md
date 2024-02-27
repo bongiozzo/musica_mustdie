@@ -1,7 +1,26 @@
 # Reverie
 
-Дискография
-"Wandel" 2011, Gothic
+
+
+## Дискография
+
+### "Wandel" 2011, Gothic
+
+1. Sturm 
+2. Heliodromus 
+3. Nebel 
+4. Mond 
+5. Sommer 
+6. Hexe 
+7. Abgrund 
+8. Die Stadt 
+9. Ewigkeit 
+10. Wandel 
+11. Erinnerungen 
+12. Schwarze See (Bonus Track) 
+13. Ruhmlos (Bonus Track) 
+14. Mond (Album Version) (Bonus Track) 
+
 
 ## Отношения с другими группами
 

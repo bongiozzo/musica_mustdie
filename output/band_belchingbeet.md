@@ -1,8 +1,44 @@
 # Belching Beet
 
-Дискография
-"Mucubelching Beats" 2002, Grindcore
-"Out Of Sight" 2008, Grindcore
+old school grindcore from Germany
+
+## Дискография
+
+### "Mucubelching Beats" 2002, Grindcore
+
+1.	 Intro
+2.	 Love Is A Kind Of Mistery (Invisible Limits Cover)	 
+3.	 Out Of Hand (Entombed Cover)
+4.	 Break Away (Tracy Ullmann Cover)
+5.	 Thunder Kiss 65 (White Zombie Cover)
+6.	 I Can't Stand The Rain (Tina Turner Cover)
+7.	 Choice Of A New Generation (Brutal Truth Cover)
+8.	 You Spin Me Round (Dead Or Alive Cover)
+9.	 Whole Lotta Rosie (AC/DC Cover)
+10.	 We Die Young (Alice In Chains Cover)
+11.	 Blue Monday (New Order Cover)
+12.	 Dust To Dust (Misfits Cover)
+13.	 Salvation (Cranberries Cover)
+14.	 Conny Is A Punk Rocker (Ramones Cover: Sheena Is A Punkrocker) 
+15.	 Annemarie (Extrabreit Cover)
+16.	 Snap Your Fingers Snap Your Neck (Prong Cover)
+17.	 Wholes Are Empty (Pt. II) (Violent Femmes Cover) 
+18.	 Green Machine (Kyuss Cover)
+
+### "Out Of Sight" 2008, Grindcore
+
+1.	 No More	03:13	 
+2.	 Feelings	01:34	 
+3.	 Out Of Sight	03:02	 
+4.	 Uebergott	02:07	 
+5.	 Good Entertainment	02:10	 
+6.	 W.P.D.	02:25	 
+7.	 Dying Universe	02:49	 
+8.	 Who Killed Kenny?	02:17	 
+9.	 Meaning Of Life	02:33	 
+10.	 Like A Man	01:56	 
+11.	 Hasta Siempre Comandante	03:04	 
+
 
 ## Отношения с другими группами
 

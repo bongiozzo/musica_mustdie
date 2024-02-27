@@ -1,9 +1,83 @@
 # Comecon
 
-Дискография
-"Megatrends In Brutality" 1992, Death Metal
-"Converging Conspiracies" 1993, Death Metal
-"Fable Frolic" 1995, Death Metal
+ex-Pestilence,Entombed, Morgoth
+
+## Дискография
+
+### "Megatrends In Brutality" 1992, Death Metal
+
+1. Dog Days
+2. Slope
+3. Ulcer
+4. The Mule
+5. Conductor Of Ashes
+6. Teuton Tandrums
+7. Omnivorous Excess
+8. Good Boy Benito
+9. Armed Solution
+10.The Future Belongs To Us
+11.Wash Away The Filth
+
+ L.G. Petrov - Vocals
+ neerG srednA - Drums
+ Pelle Strom - Gits & Bass
+ Rasmus Ekman - Gits & Bass
+
+Recorded At Sunlight Studios, May-June 1991
+Engineer: Thomas Skogsberg
+Produced By Comecon & TS
+Cover Art: Thomas Bjorge
+
+(p)&(c) 1992 CENTURY MEDIA Records
+
+### "Converging Conspiracies" 1993, Death Metal
+
+1. Democrator
+2. The Ethno-Surge
+3. Community
+4. Aerie
+5. Bleed / Burn
+6. Morticide
+7. Worms
+8. Pinhole View
+9. The Whole World
+10.God Told Me To
+11.Dipstick
+12.The House That Man Built
+
+ Martin Van Drunen - Vocals
+ Fredrik Palsson - Drums
+ Pelle Strom - Gits & Bass
+ Rasmus Ekman - Gits & Bass
+
+Additional Vocals By Thomas Hammar
+Recorded At Sunlight Studios,Aug-Sep 1993
+Engineer: Tomas Skogsberg
+Produced By Comecon And TS
+Cover Art: P.Bruegel
+
+(p) 1993 MAGIC ARTS
+(c) 1993 CENTURY MEDIA
+
+
+### "Fable Frolic" 1995, Death Metal
+
+1. Soft, Creamy Lather
+2. How I Won The War
+3. Bovine Inspiration
+4. Frogs
+5. Ways Of Wisdom (Serve Two)
+6. Propelling Scythes
+7. The Family Album
+8. Imploder
+9. It Wears Me Down
+10. Anaconda Charms Grass Snake
+11. Icons Of Urine
+12. Sunday Stroll
+13. Canvas Of History
+
+(P)&(C) 1995 CENTURY MEDIA Records
+
 
 ## Отношения с другими группами
 

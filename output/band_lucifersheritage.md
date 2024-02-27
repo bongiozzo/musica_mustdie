@@ -1,8 +1,40 @@
 # Lucifer's Heritage
 
-Дискография
-"Symphonies of Doom" 1985, Speed Metal
-"Battalions of Fear" 1986, Speed Metal
+Future Blind Guardian
+
+## Дискография
+
+### "Symphonies of Doom" 1985, Speed Metal
+
+1. Halloween
+2. Brian
+3. Dead of the Night
+4. Symphonies of Doom
+5. Lucifer's Heritage
+
+
+Hansi Kursch - Vocals and Bass
+Andre Olbrich - Guitars
+Marcus Dork - Guitars
+Thomas Stauch - Drums
+
+
+### "Battalions of Fear" 1986, Speed Metal
+
+1. Intro
+2. Majesty
+3. Trial by the Archon
+4. Battalions of Fear
+5. Gandalf's Rebirth
+6. Run for the Night
+
+
+Hansi Kursch - Vocals and Bass
+Andre Olbrich - Guitars
+Christoff Theissen - Guitars
+Hans-Peter Frey - Drums
+
+
 
 ## Отношения с другими группами
 

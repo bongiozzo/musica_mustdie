@@ -1,8 +1,34 @@
 # Тиран
 
-Дискография
-"Демония" 2009, Black Metal
-"Reborn Chaos" 2011, Black Metal
+
+
+## Дискография
+
+### "Демония" 2009, Black Metal
+
+1. 39-666	 
+2. Провокатор 
+3. С.О.Д.О.М.	 
+4. Демония	 
+5. Культ Трупа	 
+6. Паника	 
+7. Молот Ведьм	 
+8. Твари	 
+9. Panzer, Vorwarts!	 
+10. Russian Vodka (Korrozia Metalla cover)
+
+### "Reborn Chaos" 2011, Black Metal
+
+1. Lucifer	 
+2. Genocide	 
+3. Room 16	 
+4. Children of War	 
+5. Travlia	 
+6. Forever Underground	 
+7. United Forces	 
+8. Reborn Chaos	 
+9. When Dawn Comes...
+
 
 ## Отношения с другими группами
 

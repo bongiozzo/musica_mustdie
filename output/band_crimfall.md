@@ -1,8 +1,55 @@
 # Crimfall
 
-Дискография
-"As the Path Unfolds... " 2009, Folk
-"The Writ Of Sword " 2011, Viking Metal
+
+
+## Дискография
+
+### "As the Path Unfolds... " 2009, Folk
+
+1. Neothera Awakening 02:55  
+2. The Crown of Treason 05:01  
+3. Wildfire Season 05:24  
+4. Where Waning Winds Lead 04:27  
+5. Sun Orphaned 02:04  
+6. Ascension Pyre 04:06  
+7. Shadow Hearth 04:55  
+8. Non Serviam 05:01  
+9. Aubade 03:41  
+10. Hundred Shores Distant 05:58  
+11. Novembrй 03:15 
+
+### "The Writ Of Sword " 2011, Viking Metal
+
+1. Dicembre 01:43  
+2. Storm Before The Calm 05:56  
+3. Frost Upon Their Graves 05:31  
+4. Cahceravga 01:11  
+5. Shackles Of The Moirai 05:01  
+6. The Writ Of Sword 06:53  
+7. Geadgai 04:35  
+8. Silver And Bones 08:21  
+9. Son Of North 05:49 
+
+
+Line-up:
+Jakke Viitala - Guitar, Orchestration, Programming
+Mikko Hдkkinen - Vocals
+Helena Haaparanta - Vocals
+Miska Sipilдinen - Bass
+Janne Jukarainen - Drums
+
+Session members:
+Olli Vдnskд - Violin
+
+Guest members:
+Tapio Wilska - Vocals
+Ville Seponpoika Sorvali - Vocals
+Mathias "Vreth" Lillmеns - Vocals
+Mathias Nygеrd - Vocals
+
+The album was mastered by Jens Bogren (Opeth, Soilwork, Katatonia, Paradise
+Lost, Bloodbath) at Fascination Street in Цrebro, Sweden. 
+
 
 ## Отношения с другими группами
 

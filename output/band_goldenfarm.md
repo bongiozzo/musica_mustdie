@@ -1,7 +1,34 @@
 # Golden Farm
 
-Дискография
-"Angel's Tears" 2001, Hard Rock
+
+
+## Дискография
+
+### "Angel's Tears" 2001, Hard Rock
+
+I Can't Tell You
+Tears Of Loving
+Fire And Ice
+Everything Sometimes
+I Need Your Love
+Time After Time
+All Night Long
+Why These Years
+I Want To Know
+They Say
+All I Want
+When The Morning Sun
+
+
+
+Tony Menguiano -v 
+Sergi -k 
+Loren -g 
+Ito -b 
+Vicente -d 
+
+
+
 
 ## Отношения с другими группами
 

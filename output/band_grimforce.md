@@ -1,7 +1,13 @@
 # Grim Force
 
-Дискография
-"Circulation To Conclusion" 2000, Thrash
+Thrash from Japan
+
+## Дискография
+
+### "Circulation To Conclusion" 2000, Thrash
+
+
+
 
 ## Отношения с другими группами
 

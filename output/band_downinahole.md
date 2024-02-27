@@ -1,7 +1,13 @@
 # Down In A Hole
 
-Дискография
-"Alone In Paradise" 2003, Gothic
+gothic-industrial-metal from Korea
+
+## Дискография
+
+### "Alone In Paradise" 2003, Gothic
+
+
+
 
 ## Отношения с другими группами
 

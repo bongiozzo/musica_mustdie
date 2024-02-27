@@ -1,7 +1,39 @@
 # Crumbsuckers
 
-Дискография
-"Life Of Dreams" 1986, Hardcore
+
+
+## Дискография
+
+### "Life Of Dreams" 1986, Hardcore
+
+ Side One:
+1. Just Sit There
+2. Trapped
+3. Interlude
+4. Super Tuesday
+5. Shits Creek
+6. Return To The Womb
+7. The Longest War
+8. Shot Down
+9. Prelude Intro
+ Side Two:
+1. Life Of Dreams
+2. Brain Washed
+3. Face Of Death
+4. Hubrun
+5. Bullshit
+6. Society
+7. Live To York
+8. Mr.Hyde
+
+Chris Notaro - Vocals
+Garry Meskill - Bass
+Dave Wynn - Guitars
+Chuck Lenihan - Guitars
+Dan Richardson - Drums
+
+(p)&(c) 1986 R.J. Records
+
 
 ## Отношения с другими группами
 

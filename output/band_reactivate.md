@@ -1,8 +1,42 @@
 # Re-Activate
 
-Дискография
-"Prevailing Domination" 1995, Power Metal
-"Prevailing of the Unkind Domination [compilation]" 2009, Power Metal
+
+
+## Дискография
+
+### "Prevailing Domination" 1995, Power Metal
+
+1. Prevailing Domination	 
+2. Status Futile	 
+3. Time Of Reality	 
+4. Haunting Your Thoughts	 
+5. Retard The Non-Essential	 
+6. Prognosis Negative	 
+7. 1/4 Past 7:30	 
+8. Immorally Correct	 
+9. Etiquitte Of the Endercast	 
+10. Meticulous Murder
+
+### "Prevailing of the Unkind Domination [compilation]" 2009, Power Metal
+
+1. Prognosis Negative	 
+2. Immorally Correct	 
+3. 1/4 Past 7:30	 
+4. Retard the Non-Essential	 
+5. Haunting Your Thoughts	 
+6. Etiquette of the Undercast	 
+7. Status Futile	 
+8. Time of Reality	 
+9. Prevailing Domination	 
+10. Meticulous Murder	 
+11. Fall from Grace	 
+12. Freak Show	 
+13. Fakin Da Funk	 
+14. Countdown Forever	 
+15. Crazy	 
+16. On My Way	 
+17. No Fun House
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,88 @@
 # James Murphy
 
-Дискография
-"Convergence" 1996, Progressive
-"Feeding the Machine" 1999, Progressive
+
+
+## Дискография
+
+### "Convergence" 1996, Progressive
+
+1. Since Forgotten 05:45 
+2. Convergence (instrumental) 04:23  
+3. The Last One 06:45 
+4. Vision (instrumental) 06:54  
+5. Touching The Earth 07:49  
+6. Red Alert (instrumental) 04:31  
+7. Deeper Within 08:04  
+8. Shadow's Fall (instrumental) 05:18  
+9. Tempus Omnia Revelat (instrumental) 03:51 
+
+
+
+
+Guest musicians:
+
+Chuck Billy: vocals on track 5
+Devin Townsend: vocals and keys on track 3, vocals on track 1
+Eddie Ellis: vocals on track 7
+Eddie Head: second guitar on track 7
+Greg Howe: second guitar on track 6
+Matt Guillory: keyboards on track 4, 5, 6, 8
+Michelle Rae Dean: additional backup vocals on track 5
+
+All music written by James Murphy, except track 6 written by Tony Newton.
+Lyrics for track 5 by James Murphy.
+Lyrics and vocal melody for track 7 by Eddie Head.
+Lyrics and vocal melody for track 1 & 3 by Devin Townsend.
+
+Produced by James Murphy.
+Drums and bass recorded at Prairie Sun, engineered by Steve Fontano.
+Guitars, keyboards and vocals recorded at Sound temple Studio, engineered by
+James Murphy.
+Mixed at Sound Tempel Studio by Christpher Ash and James Murphy.
+
+
+### "Feeding the Machine" 1999, Progressive
+
+1. Feeding the Machine 06:14  
+2. Contagion 05:20  
+3. No One Can Tell You 06:01  
+4. Epoch 07:15  
+5. Deconstruct 06:19  
+6. Odyssey 07:35  
+7. Through Your Eyes (Distant Mirrors) 07:42  
+8. Race With Devil on Spanish Highway 06:20  
+9. Visitors 07:01  
+10. In Lingua Mortua 03:46 
+
+
+
+Line-up:
+James Murphy: guitars, keyboards
+Steve DiGiorgio: bass
+Deen Castronovo: drums
+
+Guest musicians:
+Stu Hamm: bass on track 6
+Jeremy Colson: drums on 4, 6, 8, 9
+Clark Brown: vocals on 1, 5
+Chuck Billy: vocals on 3
+John west: vocals on 9
+Chris Long: vocals on 7
+Trent Gardner: vocals in middle section on 7
+Matt Guillory: all keys on 4, 6, 8, 9 and key solo on 2
+Vitalij Kupri: keyboard solo on 1
+Chris Kontos: percussion on 8
+Lonnie Park: additional vocals on 9
+
+Produced, engineered and mixed by James Murphy at Sound Temple Studio, Oakland,
+CA.
+
+All music written by James Murphy, except 6 (Dixie Dregs) and 8 (Al DiMeola)
+Lyrics for 3 by James Murphy, vocal melody by Chuck Billy.
+Lyrics and vocal melodies for 1, 5 by Clark Brown.
+Lyrics and vocal melody for 9 by John West.
+Lyrics and vocal melodies for 7 by Chris Long and Trent Gardner. 
+
 
 ## Отношения с другими группами
 

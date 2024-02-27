@@ -1,9 +1,58 @@
 # Thy Serpent
 
-Дискография
-"Forests Of  Witchery" 1996, Black Metal
-"Christcrusher" 1998, Black Metal
-"Death" 2000, Black Metal
+finnish dark-black-metal
+
+## Дискография
+
+### "Forests Of  Witchery" 1996, Black Metal
+
+1. Flowers Of Witchery Abloom
+2. Of Darkness And Light
+3. A Traveller Of Unknown Plains
+4. Only Dust Moves ...
+5. Like A Funeral Veil Of Melancholy
+6. Wine From Tears
+
+All songs written by THY SERPENT.
+Produced by Ahti Kortelainen & THY SERPENT.
+Engineered by Ahti Kortelainen.
+Recorded & Mixed at Tico-Tico Studio, Kemi.
+
+Azhemin - Synth & Vocals
+Luopio - Bass, Synth & Vocals
+Agathon - Drums
+Sami - Guitars
+
+(P)(C) 1996 SPINEFRAM Records
+
+### "Christcrusher" 1998, Black Metal
+
+1. Chamber Of Starwatcher.
+2. Curtain Of Trearchy.
+3. Thou Bade Nothingness.
+4. So Free Are The Wolves.
+5. Circle Of Pain.
+6. Christcrusher.
+7. Crystalmoors.
+8. Calm Blinking.
+
+©&(p) 1998 SPIN-FARM OY
+
+Agathon - drums, vocals
+Azhemin - vocals, sinths, bass
+Sami - guitars
+
+All music by Thy Serpent. Lyrics by T. Maensivu, except tracks 4 and 6 by Thy Serpent. 
+Recorded February '97 at Tico-Tico Studio, Remi. Engineerd by Ahti "pikkasenrankka" Rortelainen. Mastered at 
+Finnvox by Mikka Jussila.
+
+### "Death" 2000, Black Metal
+
+Deathbearer 
+Wounds of Death 
+Sleep in Oblivion 
+Parasites
+
 
 ## Отношения с другими группами
 

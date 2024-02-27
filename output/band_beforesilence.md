@@ -1,7 +1,13 @@
 # Before Silence
 
-Дискография
-"The Screaming Wolves" 2004, Progressive
+
+
+## Дискография
+
+### "The Screaming Wolves" 2004, Progressive
+
+
+
 
 ## Отношения с другими группами
 

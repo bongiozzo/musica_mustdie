@@ -1,8 +1,17 @@
 # Mandator
 
-Дискография
-"Initial Velocity" 1988, Thrash
-"Perfect Progeny" 1989, Thrash
+
+
+## Дискография
+
+### "Initial Velocity" 1988, Thrash
+
+
+
+### "Perfect Progeny" 1989, Thrash
+
+
+
 
 ## Отношения с другими группами
 

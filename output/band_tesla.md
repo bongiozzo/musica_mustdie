@@ -1,19 +1,189 @@
 # Tesla
 
-Дискография
-"Mechanical Resonance" 1986, Heavy Metal
-"The Great Radio Controversy" 1989, Heavy Metal
-"Five Man Acoustical Jam (live)" 1990, Heavy Metal
-"Psychotic Supper" 1991, Heavy Metal
-"Bust A Nut" 1994, Heavy Metal
-"The Millennium Collection: The Best Of Tesla" 2001, Heavy Metal
-"Replugged Live" 2001, Heavy Metal
-"Into The Now" 2004, Heavy Metal
-"Comin' Atcha Live [DVD]" 2008, Heavy Metal
-"Forever More" 2008, Heavy Metal
-"Alive In Europe" 2010, Heavy Metal
-"Twisted Wires & The Acoustic Sessions" 2011, Heavy Metal
-"Simplicity" 2014, Heavy Metal
+
+
+## Дискография
+
+### "Mechanical Resonance" 1986, Heavy Metal
+
+  1.   EZ Come EZ Go (Hannon/Keith/Luccketta/Skeoch/Wheat) - 3:32 
+  2.   Comin' Atcha Live (Hannon/Keith/Wheat) - 4:25 
+  3.   Gettin' Better (Hannon/Keith) - 3:20 
+  4.   2 Late 4 Love (Hannon/Keith/Luccketta/Skeoch/Wheat) - 3:50 
+  5.   Rock Me to the Top (Keith/Skeoch) - 3:38 
+  6.   We're No Good Together (Hannon/Keith/Luccketta) - 5:15 
+  7.   Modern Day Cowboy (Hannon/Keith/Skeoch) - 5:19 
+  8.   Changes (Hannon/Keith/Luccketta/Skeoch/Wheat) - 5:02 
+  9.   Little Suzi (Diamond [1]/Hymas) - 4:55 
+  10.   Love Me (Hannon/Keith/Wheat) - 4:15 
+  11.   Cover Queen (Hannon/Keith) - 4:32 
+  12.   Before My Eyes (Hannon/Keith/Luccketta/Skeoch) - 5:25 
+
+
+Jimmy Maelen  -  Percussion 
+Michael Barbiero  -  Vocals (bckgr), Producer, Engineer 
+Frank Hannon  -  Guitar (Acoustic), Mandolin, Guitar (Electric), Keyboards, Vocals (bckgr) 
+Jeff Keith  -  Vocals, Vocals (bckgr) 
+Troy Luccketta  -  Cymbals, Drums 
+Tommy Skeoch  -  Guitar (Electric), Vocals (bckgr) 
+Steve Thompson  -  Producer 
+Brian Wheat  -  Bass (Electric), Guitar (Bass), Guitar (Electric), Vocals (bckgr) 
+
+
+### "The Great Radio Controversy" 1989, Heavy Metal
+
+  1.   Hang Tough - 4:22 
+  2.   Lady Luck - 3:45 
+  3.   Heaven's Trail (No Way Out) (Keith/Skeoch) - 4:43 
+  4.   Be a Man - 4:29 
+  5.   Lazy Days, Crazy Nights - 4:27 
+  6.   Did It for the Money - 4:27 
+  7.   Yesterdaze Gone - 3:45 
+  8.   Makin' Magic - 5:07 
+  9.   The Way It Is (Hannon/Keith/Luccketta/Skeoch) - 5:08 
+  10.   Flight to Nowhere - 4:47 
+  11.   Love Song (Hannon/Keith) - 5:25 
+  12.   Paradise - 4:59 
+  13.   Party's Over - 4:20 
+
+
+Michael Barbiero  -  Producer, Engineer, Mixing 
+George Cowan  -  Engineer, Assistant Engineer 
+Victor Deyglio  -  Assistant Engineer 
+Barry Diament  -  Mastering 
+Frank Hannon  -  Organ, Guitar (Acoustic), Guitar, Piano, Gong, Guitar (Electric), Vocals, Vocals (bckgr), Guitar (12 String), Slide Guitar, Photography, Tremolo, Guitar (12 String Acoustic) 
+Jeff Keith  -  Vocals, Photography 
+Troy Luccketta  -  Percussion, Cymbals, Drums, Stick, Photography, Pedals, Tama 
+George Marino  -  Mastering 
+Tommy Skeoch  -  Guitar (Acoustic), Guitar, Strings, Guitar (Electric), Vocals, Vocals (bckgr), Soloist 
+Steve Thompson  -  Producer, Mixing 
+Brian Wheat  -  Bass, Strings, Vocals, Voices, Photography 
+Neil Zlozower  -  Photography 
+
+
+### "Five Man Acoustical Jam (live)" 1990, Heavy Metal
+
+
+
+### "Psychotic Supper" 1991, Heavy Metal
+
+01. Change in the Weather - 3:38 
+02. Edison's Medicine - 4:47 
+03. Don't De-Rock Me (Barbiero/Skeoch) - 5:11 
+04. Call It What You Want - 4:29 
+05. Song & Emotion - 8:29 
+06. Time (Hannon/J.K.) - 5:13 
+07. Government Personnel (Hannon) - :58 
+08. Freedom Slaves (Hannon/Wheat) - 6:40 
+09. Had Enough (Skeoch) - 4:49 
+10. What You Give (Hannon/Keith) - 7:15 
+11. Stir It Up - 5:41 
+12. Can't Stop - 5:27 
+13. Toke About It (Barbiero/Hannon) - 5:27 
+14. Rock The Nation - 3:31 
+15. I Ain't Superstitious - 3:12 
+16. Run Run Run - 2:46 
+
+Tesla  -  Arranger, Producer, Mixing 
+Lee Anthony  -  Mixing Assistant 
+Michael Barbiero  -  Arranger, Producer, Engineer, Mixing 
+George Cowan  -  Engineer 
+Victor Deyglio  -  Engineer 
+Nick Egan  -  Art Direction, Design 
+Lolly Grodner  -  Mixing Assistant 
+Frank Hannon  -  Guitar (Acoustic), Guitar (Electric), Keyboards, Vocals (bckgr) 
+Jeff Keith  -  Vocals 
+Troy Luccketta  -  Percussion, Drums 
+Mike Reiter  -  Mixing Assistant 
+Tommy Skeoch  -  Guitar (Acoustic), Guitar, Guitar (Electric), Vocals (bckgr) 
+Steve Thompson  -  Arranger, Producer, Mixing 
+Brian Wheat  -  Bass, Vocals (bckgr) 
+J.K.  -  Vocals 
+Michael Semanick  -  Engineer 
+Michael Halsband  -  Photography 
+Dan McGlendon  -  Engineer 
+Eric Roinestad  -  Design 
+
+
+### "Bust A Nut" 1994, Heavy Metal
+
+01. The Gate/Invited (Hannon/Keith/Skeoch/Wheat) - 5:36 
+02. Solution (Keith/Skeoch) - 3:55 
+03. Shine Away (Hannon/Keith/Skeoch/Wheat) - 6:42 
+04. Try So Hard (Keith/Wheat) - 5:43 
+05. She Want She Want (Hannon/Keith) - 5:13 
+06. Need Your Lovin' (Keith/Luccketta/Skeoch) - 4:18 
+07. Action Talks (Keith/Skeoch) - 3:48 
+08. Mama's Fool (Hannon/Keith) - 6:11 
+09. Cry (Hannon/Keith/Wheat) - 4:58 
+10. Earthmover (Hannon/Keith) - 4:05 
+11. Alot to Lose (Hannon/Keith/Wheat) - 5:11 
+12. Rubberband (Hannon/Keith/Wheat) - 4:35 
+13. Wonderful World (Hannon/Keith/Skeoch) - 3:48 
+  14.   Games People Play (South) - 4:55 
+
+
+Frank Hannon     
+Jeff Keith     
+Troy Luccketta     
+George Marino  -  Mastering 
+Andrew Scarth  -  Engineer 
+Tommy Skeoch     
+Hugh Syme  -  Art Direction, Design 
+Terry Thomas  -  Producer, Mixing 
+Brian Wheat     
+Rafe McKenna  -  Engineer, Mixing 
+Richard Duarte  -  Assistant Engineer 
+
+
+### "The Millennium Collection: The Best Of Tesla" 2001, Heavy Metal
+
+Tesla  -  Arranger, Producer, Mixing 
+Michael Barbiero  -  Arranger, Producer, Engineer, Mixing 
+Elliot Federman  -  Mastering 
+Frank Hannon  -  Keyboards, Vocals (bckgr) 
+Jeff Keith  -  Vocals 
+Troy Luccketta  -  Percussion, Drums 
+Dan McClendon  -  Producer, Mixing 
+Geri Miller  -  Liner Notes 
+Andrew Scarth  -  Engineer 
+Tommy Skeoch  -  Guitar, Vocals (bckgr) 
+Terry Thomas  -  Producer 
+Steve Thompson  -  Arranger, Producer, Mixing 
+Brian Wheat  -  Bass, Keyboards, Vocals (bckgr) 
+Rafe McKenna  -  Engineer 
+Mike Ragogna  -  Compilation Producer 
+Beth Stempel  -  Project Coordinator 
+
+
+### "Replugged Live" 2001, Heavy Metal
+
+
+
+### "Into The Now" 2004, Heavy Metal
+
+
+
+### "Comin' Atcha Live [DVD]" 2008, Heavy Metal
+
+
+
+### "Forever More" 2008, Heavy Metal
+
+
+
+### "Alive In Europe" 2010, Heavy Metal
+
+
+
+### "Twisted Wires & The Acoustic Sessions" 2011, Heavy Metal
+
+
+
+### "Simplicity" 2014, Heavy Metal
+
+
+
 
 ## Отношения с другими группами
 

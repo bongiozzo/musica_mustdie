@@ -1,11 +1,80 @@
 # Ocean, The
 
-Дискография
-"fluXion" 2004, Metal
-"Aeolian" 2005, Metal
-"Precambrian [2CD]" 2007, Metal
-"Anthropocentric" 2010, Metal
-"Heliocentric" 2010, Metal
+
+
+## Дискография
+
+### "fluXion" 2004, Metal
+
+1. Nazca  04:51    
+2. The Human Stain  08:37   
+3. Comfort Zones  03:59 
+4. Fluxion  04:19    
+5. Equinox  04:19   
+6. Loopholes  01:29    
+7. Dead On the Whole  05:05 
+8. Isla del Sol  09:40   
+9. The Greatest Bane  14:34 
+
+### "Aeolian" 2005, Metal
+
+1. The City in the Sea  07:33   
+2. Dead Serious & Highly Professional  01:28   
+3. Austerity  09:40   
+4. Killing the Flies  07:14   
+5. Une Saison En Enfer  04:58   
+6. Necrobabes.com  02:14   
+7. One With the Ocean  02:35   
+8. Swoon  05:00   
+9. Queen of the Food-Chain  07:11
+10. Inertia  05:10 
+
+### "Precambrian [2CD]" 2007, Metal
+
+Disc 1 
+1. Hadean/The Long March of the Yes-Men  03:48 
+2. Eoarchaean/The Great Void  04:46 
+3. Palaeoarchaean/Man and the Sea  02:46   
+4. Mesoarchaean/Legions of Winged Octopi  05:20 
+5. Neoarchaean/To Burn the Duck of Doubt  05:24   
+  22:04   
+Disc 2 
+1. Siderian  01:57    
+2. Rhyacian/Untimely Meditations  10:57   
+3. Orosirian/For the Great Blue Cold now Reigns  06:29  
+4. Statherian  05:58   
+5. Calymmian/Lake Disappointment  08:19   
+6. Ectasian/De Profundis  08:58 
+7. Stenian/Mount Sorrow  08:20   
+8. Tonian/Confessions of a Dangerous Mind  07:18 
+9. Cryogenian  03:32 
+
+### "Anthropocentric" 2010, Metal
+
+1. Anthropocentric  09:24  
+2. The Grand Inquisitor I: Karamazov Baseness  05:02  
+3. She Was the Universe  05:39   
+4. For He That Wavereth…  02:06   
+5. The Grand Inquisitor II: Roots & Locusts  06:33   
+6. The Grand Inquisitor III: A Tiny Grain of Faith  01:55 
+7. Sewers of the Soul  03:44 
+8. Wille Zum Untergang  06:02 
+9. Heaven TV  05:03 
+10. The Almightiness Contradiction  04:34 
+
+### "Heliocentric" 2010, Metal
+
+1. Shamayim  01:53   
+2. Firmament  07:29  
+3. The First Commandment of the Luminaries  06:47 
+4. Ptolemy Was Wrong  06:28 
+5. Metaphysics of the Hangman  05:41 
+6. Catharsis of a Heretic  02:08  
+7. Swallowed by the Earth  04:59
+8. Epiphany  03:21  
+9. The Origin of Species  07:23   
+10. The Origin of God  04:33 
+
 
 ## Отношения с другими группами
 

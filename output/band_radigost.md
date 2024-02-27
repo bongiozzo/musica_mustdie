@@ -1,11 +1,80 @@
 # Radigost
 
-Дискография
-"The Way (demo)" 1995, Doom
-"Nocturne (demo)" 1997, Black Metal
-"Nocturne" 1999, Black Metal
-"For the honor of our truth… For the honor of our faith" 2004, Black Metal
-"A Stellar kingdom " 2008, Black Metal
+Atmospheric Black-Doom
+
+## Дискография
+
+### "The Way (demo)" 1995, Doom
+
+1. Never-to-be-Forgotten (Rimmon/Rimmon) 
+2. Morning Star (Old Version)(Rimmon/Rimmon) 
+3. Autumn Serenade (Acoustic Instrumental)(Rimmon)
+4. The Way (Svar,Rimmon/Rimmon)
+
+
+### "Nocturne (demo)" 1997, Black Metal
+
+1. Full Moon (Rimmon/Rimmon) 
+2. The Cry of Desolated Souls (Rimmon,Svar/Rimmon) 
+3. Winter Dusk (Rimmon,Svar/Rimmon) 
+4. Outcast (Svar,Rimmon/Rimmon) 
+5. Autumn Dawn (Svar)
+
+
+### "Nocturne" 1999, Black Metal
+
+1. Full Moon 
+2. The Cry of Desolated Souls 
+3. Spirit of the Past 
+4. Morning Star (Part I) 
+5. Winter Dusk 
+6. Paths of Chronos 
+7. Outcast 
+8. Morning Star (Part II) 
+9. Nocturne 
+10. Autumn Dawn
+
+
+Rimmon - guitars 
+Svar - bass, vocals 
+Valafar - guitars 
+Pit Lord - drums & percussion   
+All keyboards by Rimmon & Svar. 
+
+
+### "For the honor of our truth… For the honor of our faith" 2004, Black Metal
+
+1. For the honor of our truth… For the honor of our faith
+2. В сердце битвы (In the heart of battle)
+3. The sacred aim of humanity
+4. Maestus
+5. Пути богов (Pathways of gods)
+6. Thousands years of darkness
+7. Woodlands
+8. Небесное пламя (Celestial flame)
+9. Blood and grief
+
+### "A Stellar kingdom " 2008, Black Metal
+
+1. Rivers of Fate 05:42  
+2. Obliterated memories (instrumental) 01:27  
+3. A Stellar Knigdom 04:17  
+4. Legends 04:32  
+5. Towards Eternal Glory 05:58  
+6. Dreamscape (instrumental) 03:41  
+7. За день грядущий! (For the day to come!) 03:14  
+8. Сквозь века (Through ages) 03:18  
+9. Mental Entropy 05:07  
+10. Twilight Sun 04:33 
+
+Irma Otto - вокал
+Svar - вокал, бас
+Rimmon - гитары
+Valafar - гитары
+Amoneth - клавишные
+Pit Lord - ударные
+
+
 
 ## Отношения с другими группами
 

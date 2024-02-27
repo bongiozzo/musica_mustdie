@@ -1,10 +1,38 @@
 # Tvangeste
 
-Дискография
-"Blood Dreams (single)" 1997, Black Metal
-"Thinking... - demo / Selfprod" 1998, Black Metal
-"Damnation of Regiomontum" 2000, Black Metal
-"FireStorm" 2002, Black Metal
+(The Best Russian Symphonic Black Metal)
+
+## Дискография
+
+### "Blood Dreams (single)" 1997, Black Metal
+
+
+
+### "Thinking... - demo / Selfprod" 1998, Black Metal
+
+
+
+### "Damnation of Regiomontum" 2000, Black Metal
+
+From Nameless Oracle
+Angel's Retreat
+Damnation of Regiomontum
+Thinking...
+Born to be King of Innerself
+
+
+
+### "FireStorm" 2002, Black Metal
+
+01 Introduction
+02 Raven (Under the Raven's Black Wings)
+03 Birth of the Hero
+04 Fire in our Hearts
+05 Perkuno's Flame
+06 Godless Freedom
+07 Storm
+08 Tears (Tears will wash off the Blood from my Sword)
+
 
 ## Отношения с другими группами
 

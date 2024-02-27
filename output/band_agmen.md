@@ -1,7 +1,21 @@
 # Agmen
 
-Дискография
-"Damnation" 2002, Black Metal
+Czech Black Metal
+
+## Дискография
+
+### "Damnation" 2002, Black Metal
+
+01        Andel Utrpeni 
+02        Apokalypsa 
+03        Temne Hory 
+04        Pisne Krkavcu 
+05        Mise Dobra 
+06        Zatraceni 
+07        Nesmrtelny 
+08        Pisne Temnych Noci 
+09        Kladivo Na Carodejnice [TORR Cover]
+
 
 ## Отношения с другими группами
 

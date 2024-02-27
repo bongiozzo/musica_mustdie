@@ -1,7 +1,18 @@
 # Volture
 
-Дискография
-"Shocking Its Prey (EP)" 2011, Heavy Metal
+
+
+## Дискография
+
+### "Shocking Its Prey (EP)" 2011, Heavy Metal
+
+1. Volture 03:13 
+2. Heavy Metal Machine 03:40 
+3. The Horde 03:49 
+4. Night Walker 03:23 
+5. Cheap Thrillz 03:02 
+6. Heathen's Revenge 04:42
+
 
 ## Отношения с другими группами
 

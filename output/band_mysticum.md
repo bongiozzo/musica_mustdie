@@ -1,7 +1,31 @@
 # Mysticum
 
-Дискография
-"In The Streams Of Inferno" 1996, Black Metal
+
+
+## Дискография
+
+### "In The Streams Of Inferno" 1996, Black Metal
+
+1. Industries Of Inferno
+2. The Rest
+3. Let The Kingdom Come
+4. Wintermass
+5. Where The Raven Flies
+6. Crypt Of Fear
+7. In Your Grave
+8. In The Last Of The Ruins We Search For A New Planet
+
+All songs written by MYSTICUM
+Produced by Anders G.Offenberg and
+MYSTICUM
+Engineered by Anders G.Offenberg
+Recorded at Bondi Lydstudio
+
+MYSTICUM are: Prime Evil, Cerastes,
+Mean Malmberg
+
+(p)(c)  1996 FULLMOON Productions
+
 
 ## Отношения с другими группами
 

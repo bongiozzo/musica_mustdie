@@ -1,31 +1,781 @@
 # Gamma Ray
 
-Дискография
-"Heading for Tomorrow" 1989, Power Metal
-"Heaven Can Wait (single)" 1990, Power Metal
-"Who Do You Think You Are (single)" 1990, Power Metal
-"Sigh No More" 1991, Power Metal
-"Heading for the East (video)" 1991, Power Metal
-"Insanity & Genius" 1993, Power Metal
-"Future Madhouse (single)" 1993, Power Metal
-"Lust for Live (video)" 1994, Power Metal
-"Land of the Free" 1995, Power Metal
-"Silent Miracles (single)" 1995, Power Metal
-"Alive '95 (live)" 1995, Power Metal
-"Rebellion in Dreamland (single)" 1995, Power Metal
-"Somewhere out in Space" 1997, Power Metal
-"The Karaoke Album" 1997, Power Metal
-"Valley of the Kings (single)" 1997, Power Metal
-"Powerplant" 1999, Power Metal
-"Blast from the Past" 2000, Power Metal
-"No World Order!" 2001, Power Metal
-"Heaven or Hell (single)" 2001, Power Metal
-"Skeletons in the Closet (live)" 2003, Power Metal
-"Majestic" 2005, Power Metal
-"Land Of The Free II" 2007, Power Metal
-"Hell Yeah!!! The Awesome Foursome - Live In Montreal (2 CD/2DVD)" 2008, Power Metal
-"To the Metal!" 2010, Power Metal
-"Empire of the Undead" 2014, Power Metal
+Legend of Speed-Power Metal
+
+## Дискография
+
+### "Heading for Tomorrow" 1989, Power Metal
+
+1. Welcome
+2. Lust for Life
+3. Heaven Can Wait
+4. Space Eater
+5. Money
+6. The Silence
+7. Hold Your Ground
+8. Free Time
+9. Heading for Tomorrow
+10. Look at Yourself
+11. Mr. Outlaw *
+
+
+   
+
+Kai Hansen (guitars, vocals)
+Ralf Scheepers (lead vocals)
+Uwe Wessel (bass guitar)
+Mathias Burchadt (drums)
+
+Produced by Kai Hansen
+Recorded and mixed at
+Horus Sound Studio Hannover from Sept. 89 to Jan. 90
+Engineered by Ralf Krause
+Second Engineer Piet Sielck
+Mixed by Tommy Newton except "Look At Yourself" by Ralf Krause
+
+### "Heaven Can Wait (single)" 1990, Power Metal
+
+1. Heaven Can Wait
+2. Who Do You Think You Are?
+3. Sail On
+4. Mr. Outlaw
+5. Lonesome Stranger
+
+
+  
+
+Kai Hansen (guitars, vocals)
+Ralf Scheepers (lead vocals)
+Dirk Schl&auml;chter (guitars)
+Uwe Wessel (bass guitar)
+Mathias Burchadt (drums)
+
+Produced by Kai Hansen. "Heaven Can Wait" & "Who Do You Think You Are?" co-produced by Piet Sielck
+Recorded & mixed at Karo-Music Studios, Brackel in June 1990
+Mixed and engineered by Piet Sielck & Kalle Trapp
+"Sail On", "Mr. Outlaw" & "Lonesome Stranger" recorded at Horus Studio, Hannover, Jan/Feb 1990
+Engineered by Ralf Krause and Piet Sielck
+Mixed by Tommy Newton and Piet Sielck
+
+Guest Musicians:
+Joal: Backing vocals
+Tommy Newton: Backing vocals
+Fernando Garcia: Backing vocals
+Micha Gerlach: Piano on "Sail On" & keyboards on "Lonesome Stranger"
+Piet Sielck: Backing vocals & keyboard on "Sail On"
+Mathias Burchard: Drums on track 3, 4, 5
+
+### "Who Do You Think You Are (single)" 1990, Power Metal
+
+1. Who Do You Think You Are
+2. Heaven Can Wait
+3. Heading for Tomorrow
+
+
+
+
+Kai Hansen (guitars, vocals)
+Ralf Scheepers (lead vocals)
+Dirk Schl&auml;chter (guitars)
+Uwe Wessel (bass guitar)
+Uli Kusch (drums)
+
+Produced by Kai Hansen
+Recorded and mixed at Horus Sound Studio, Hannover between September '89 and January '90
+Engineered by Ralf Krause, second engineer: Piet Sielck
+Mathias Burchard: Drums on track 2, 3
+
+### "Sigh No More" 1991, Power Metal
+
+1. Changes
+2. Rich & Famous
+3. As Time Goes By
+4. (We Won't) Stop the War
+5. Father and Son
+6. One With the World
+7. Start Running
+8. Countdown
+9. Dream Healer
+10. The Spirit
+11. Sail On [Live] *
+
+
+
+
+Kai Hansen (guitars, vocals)
+Ralf Scheepers (lead vocals)
+Dirk Schl&auml;chter (guitars)
+Uwe Wessel (bass guitar)
+Uli Kusch (drums)
+
+Produced by Tommy Newton
+Recorded at: Karo Studios, Brackel, May/July 1991
+Mixed and engeneered by Tommy Newton
+Second engeneer: Piet (The Professor) Sielck
+Executive producer: Karl-U. Walterbach
+Backing vocals by GAMMA RAY, Ralf Kohler, Piet Sielck + Tommy Newton.
+Keyboards by Tommy Hansen, Piet Sielck
+
+Guest Musicians:
+Fritz Randow (military snare on "One With the World")
+Tommy Newton (talk box solo on "Countdown", addicional rythim guitars on "Father and Son")
+All songs arranged by GAMMA RAY except "Father and Son" arranged by Tommy Newton + GAMMA RAY
+
+### "Heading for the East (video)" 1991, Power Metal
+
+1. Lust for Live
+2. Heaven Can Wait
+3. Space Eater
+4. Freetime
+5. Who Do You Think You Are
+6. The Silence
+7. Save Us
+8. I Want out Ride the Sky
+9. Hold Your Ground
+10. Money
+11. Heading for Tomorrow
+ 
+
+   
+
+Kai Hansen (guitars, vocals)
+Ralf Scheepers (lead vocals)
+Dirk Schl&auml;chter (guitars)
+Uwe Wessel (bass guitar)
+Uli Kusch (drums)
+
+Running time: approximately 90 min.
+All songs published by Maldoror/Wintrup
+Modern Video Productions GmbH
+Cover: Henni
+Photography: G&ouml;tz K&uuml;hnemund/Boggie Kopec
+Producer: Peter Ernst
+Executive Producer: Mike Smith
+Director: Steve Payne
+
+### "Insanity & Genius" 1993, Power Metal
+
+1. Tribute to the Past
+2. No Return
+3. Last Before the Storm
+4. The Cave Principle
+5. Future Madhouse
+6. Gamma Ray (edited version)
+7. Insanity & Genius
+8. 18 Years
+9. Your Turn Is Over
+10. Heal Me
+11. Brothers
+12. Heroes
+
+
+
+
+Kai Hansen (guitars, vocals)
+Ralf Scheepers (lead vocals)
+Dirk Schl&auml;chter (guitars)
+Jan Rubach (bass guitar)
+Thomas Nack (drums)
+
+Recorded March to May at Hansen Studios/Hamburg
+Engineered and Produced by Kai Hansen & Dirk Schl&auml;chter
+Tape operating by Scheepers/Rubach/Nack, for "Suck It to Me Range" production
+Mixed at Horus Sound Studios/Hannover by Charlie Bauerfeind
+Mastered at Chateau-Du-Pape by Achim Kruse
+Computer engineering and add. Key's by Sascha Paeth
+Technical support for Digidesign by Ergo Sum
+
+### "Future Madhouse (single)" 1993, Power Metal
+
+1. Future Madhouse
+2. Gamma Ray (long version)
+3. Dream Healer (preproduction)
+
+
+
+
+Kai Hansen (guitars, vocals)
+Ralf Scheepers (lead vocals)
+Dirk Schl&auml;chter (guitars)
+Jan Rubach (bass guitar)
+Thomas Nack (drums)
+
+Produced and co-produced by Kai Hansen & Dirk Schl&auml;chter
+Recorded at Hansen Studios, Hamburg
+Mixed at Horus Sound Studios, Hannover by Charlie Bauerfeind
+
+### "Lust for Live (video)" 1994, Power Metal
+
+1. Tribute to the Past
+2. No Return
+3. Interview "Big Balls"
+4. Changes
+5. Insanity & Genius
+6. Interview/Documentary
+7. Last Before the Storm
+8. Heal Me
+9. Documentary
+10. Medley
+11. I Want Out/Future World/Ride the Sky
+12. Future Madhouse
+13. Documentary
+14. Gamma Ray
+
+
+
+Kai Hansen (guitars, vocals)
+Ralf Scheepers (lead vocals)
+Dirk Schl&auml;chter (guitars)
+Jan Rubach (bass guitar)
+Thomas Nack (drums)
+
+Director: Christoph Albert
+Producer: Peter Ernst
+Sleeve Design: Peter Vahlefeld
+Video Sound & Mixing: Sven Conquest
+Sound Mix at Hansen Studios, Hamburg
+
+### "Land of the Free" 1995, Power Metal
+
+1. Rebellion in Dreamland
+2. Man on a Mission
+3. Fairytale
+4. All of the Damned
+5. Rising of the Damned
+6. Gods of Deliverance
+7. Farewell
+8. Salvation's Calling
+9. Land of the Free
+10. The Savior
+11. Abyss of the Void
+12. Time to Break Free
+13. Afterlife
+
+
+
+
+Kai Hansen (guitars, lead vocals)
+Dirk Schl&auml;chter (guitars)
+Jan Rubach (bass guitar)
+Thomas Nack (drums)
+
+Produced, Mixed, Engineered, and Discussed by:
+Bauerfeind, Hansen, Schl&auml;chter 
+Mastered by: Ralf Lindner
+Keyboard and Digidesign Programming by Sascha Paeth
+Recorded at: R.A.S.H. Studio Gelsenlirchen (drums),
+Hansen Studio Hamburg
+Mixed at: Horus Sound Studio Hannover
+
+Guest Musicians:
+Chois sung by: Hansi K&uuml;rsch (on track 1, 7 & 9)
+Hacky Hackmann (on all tracks)
+Catharina Boutari (on track 1, 2, 4 & 11)
+Axel Naschke (on track 2, 4, 6, 8 & 11)
+Thomas Nack (on all tracks)
+Kai Hansen (on track 2, 4, 6, 8 & 11)
+Michael Kiske (on track 9)
+Lead vocals on "Time to Break Free" by Michael Kiske
+
+### "Silent Miracles (single)" 1995, Power Metal
+
+1. Rebellion in Dreamland
+2. Land of the Free
+3. Heavy Metal Mania
+4. As Time Goes By
+
+
+
+
+Kai Hansen (guitars, lead vocals)
+Dirk Schl&auml;chter (guitars)
+Jan Rubach (bass guitar)
+Thomas Nack (drums)
+
+Produced, mixed, engineered and discussed by Charlie Bauerfind, Kai Hansen and Dirk Schl&auml;chter
+Keyboard and digidesign programming by Sacha Paeth
+Recorded at R.A.S.H. Studio Gelsenkirchen (drums) and Hansen Studio Hamburg
+Mixed at Horus Sound Studio Hannover
+
+Guest Musicians:
+Michael Kiske (Chorus on "Land of the Free")
+Hansi Kursh, "Hucky" Hackmann - Backing Vocals on Track 1 & 2
+
+"As Time Goes By" taken from the preproduction of "Sigh no More", '91
+
+### "Alive '95 (live)" 1995, Power Metal
+
+Disk One:
+1. Land of the Free
+2. Man on a Mission
+3. Rebellion in Dreamland
+4. Space Eater
+5. Fairytale
+6. Tribute to the Past
+7. Heal Me
+8. The Savior
+9. Abyss of the Void
+10. Ride the Sky
+11. Future World
+12. Heavy Metal Mania
+13. Lust for Life
+
+Disk Two:
+1. No Return
+2. Changes
+3. Insanity & Genius
+4. Last Before the Storm
+5. Future Madhouse
+6. Heading for Tomorrow/Dream Healer Medley
+
+
+
+
+Kai Hansen (guitars, lead vocals)
+Dirk Schl&auml;chter (guitars)
+Jan Rubach (bass guitar)
+Thomas Nack (drums)
+
+Music & Lyrics by Kai Hansen
+except Music: Hansen/Rubach, Lyrics: Hansen
+
+This Album was recorded during the 
+Land of the Free tour Oct/Nov 1995 in 
+Milano, Paris, Madrid, Pamplona and Erlangen.
+
+Recording by Wolfgang Eller/CCC Mobile Recording, Brauningshof
+
+Produced and mixed by Kai Hansen and Dirk Schl&auml;chter
+at Hansen Studios, Hamburg March 1996 for G.E.I.L. Productions
+
+### "Rebellion in Dreamland (single)" 1995, Power Metal
+
+1. Miracle
+2. Farewell
+3. The Silence ('95 version)
+4. A While in Dreamland
+
+
+
+
+Kai Hansen (guitars, lead vocals)
+Dirk Schl&auml;chter (guitars)
+Jan Rubach (bass guitar)
+Thomas Nack (drums)
+
+Produced by Kai Hansen & Dirk Schl&auml;chter
+Tracks 1, 3 & 4: Mixed at Hansen Studio, Hamburg by Hansen & Schl&auml;chter in December 1995 and 
+January 1996
+Track 2: Mixed at Horus Sound Studio, Hannover by Bauerfeind, Hansen & Schl&auml;chter
+
+### "Somewhere out in Space" 1997, Power Metal
+
+1. Beyond the Black Hole
+2. Men, Martians and Machines
+3. No Stranger (Another Day in Life)
+4. Somewhere out in Space
+5. The Guardians of Mankind
+6. The Landing
+7. Valley of the Kings
+8. Pray
+9. The Winged Horse
+10. Cosmic Chaos
+11. Lost in the Future
+12. Watcher in the Sky
+13. Rising Star
+14. Shine On
+15. Return to Fantasy *
+
+
+Release date: 1997
+
+Kai Hansen (guitars, lead vocals)
+Henjo Richter (guitars, keyboards)
+Dirk Schl&auml;chter (bass guitar)
+Dan Zimmermann (drums)
+
+All songs arranged by Gamma Ray 
+Produced by Hansen/Schl&auml;chter
+Recorded & Mixed at Hansen Studio, Hamburg March - June '97
+Mixed by Charlie Bauerfeind
+except Tracks 4, 7, 9 Mixed by Hansen/Schl&auml;chter
+Mastered at h.a.m. Audio by Ralf Lindner
+
+Guest musicians:
+Piet Sielck (add vocals, guitars left side on "Watcher in the Sky")
+Thomen Stauch (drums on "Watcher in the Sky")
+
+### "The Karaoke Album" 1997, Power Metal
+
+1. Beyond the Black Hole
+2. Men, Martians and Machines
+3. Valley of the Kings
+4. Somewhere out in Space
+5. Shine On
+6. Space Eater
+7. Abyss of the Void
+8. Man on a Mission
+9. Time to Break Free
+10. Heading for Tomorrow
+
+
+Release date: 1997
+
+Kai Hansen (guitars, lead vocals)
+Henjo Richter (guitars, keyboards)
+Dirk Schl&auml;chter (bass guitar)
+Dan Zimmermann (drums)
+
+Tracks 1, 2, 3, 4, 5 Produced by Kai Hansen & Dirk Schl&auml;chter
+Tracks 6, 10 Produced by Kai Hansen
+Tracks 7, 8, 9 Produced by Kai Hansen, Dirk Schl&auml;chter & Charlie Bauerfind
+
+### "Valley of the Kings (single)" 1997, Power Metal
+
+1. Valley of the Kings
+2. Somewhere out in Space
+3. Watcher in the Sky
+4. Victim of Changes
+
+
+
+
+Kai Hansen (guitars, lead vocals)
+Henjo Richter (guitars, keyboards)
+Dirk Schl&auml;chter (bass guitar)
+Dan Zimmermann (drums)
+
+Produced by: Hansen and Schl&auml;chter
+Track 3 by: Hansen and Sielck
+Co-produced by: Thomen Stauch
+Recorded at: Hansen Studio, Hamburg in March 1997
+Track 3: Powerhouse & Hansen Studio, Hamburg in January 1997
+Mixed at: Hansen Studio, Hamburg
+Mixed by: Hansen and Schl&auml;chter
+Track 3 by: Sielck
+
+Guests musicians:
+Piet Sielck: Additional vocals, guitars on "Watcher in the Sky"
+Thomen Stauch: Drums on "Watcher in the Sky"
+Jan Rubach: Bass on "Victim of Changes"
+Thomas Nack: Drums on "Victim Of Changes"
+
+### "Powerplant" 1999, Power Metal
+
+1. Anywhere in the Galaxy
+2. Razorblade Sigh
+3. Send Me a Sign
+4. Strangers in the Night
+5. Gardens of the Sinner
+6. Short as Hell
+7. It's a Sin
+8. Heavy Metal Universe
+9. Wings of Destiny
+10. Hand of Fate
+11. Armageddom
+12. Long Live Rock and Roll *
+
+
+Release date: 1999   
+
+Kai Hansen (guitars, lead vocals)
+Henjo Richter (guitars, keyboards)
+Dirk Schl&auml;chter (bass guitar)
+Dan Zimmermann (drums)
+
+All songs arranged by GAMMA RAY
+Recorded and mixed at Hansen Studio, Hamburg November 1998 - January 1999
+Produced by Kai Hansen & Dirk Schl&auml;chter
+Co-Produced by GAMMA RAY
+Mastered by Ralf Lindner at h.a.m. Audio, Hamburg
+Additional choirs on "Hand of Fate" by Piet Sielck
+
+### "Blast from the Past" 2000, Power Metal
+
+Disk One:
+1. Welcome
+2. Lust for Life
+3. Heaven Can Wait
+4. Heading for Tomorrow
+5. Changes
+6. Rich and Famous *
+7. One With the World
+8. Dream Healer
+9. Tribute to the Past
+10. Last Before the Storm
+11. Heal Me
+
+Disk Two:
+1. Rebellion in Dreamland
+2. Man on a Mission
+3. Land of the Free
+4. The Silence
+5. Beyond the Black Hole
+6. Somewhere out in Space
+7. Valley of the Kings
+8. Anywhere in the Galaxy
+9. Send me a Sign
+10. Armageddon
+
+
+
+
+Kai Hansen (guitars, lead vocals)
+Dirk Schlachter (bass guitar)
+Henjo Richter (guitar, keyboards)
+Dan Zimmermann (drums)
+
+All songs arranged by GAMMA RAY
+Recorded and mixed at Hansen Studio, Hamburg, Feb/May 2000
+Produced and engeneered by Kai Hansen and Dirk Schlachter
+Co-produced by GAMMA RAY
+Mastered by Ralf Lindner at h.a.m. audio, Hamburg
+
+Additional vocals on "Land of the Free" by Michael Kiske
+Bass guitar and drums on "The Silence" by Uwe Wessel & Mathias Burchadt
+
+All Tracks on CD 1 and Tracks 1-3 on CD 2 are completely new recorded in the year 2000!
+Tracks 4-10 on CD 2 are remastered
+
+### "No World Order!" 2001, Power Metal
+
+Induction (1:01)
+Dethrone Tyranny (4:14)  
+The Heart Of The Unicorn (4:48)
+Heaven Or Hell  (4:16)
+New World Order (5:01)
+Damn The Machine (5:04)
+Solid (4:23)
+Fire Below (5:34)
+Follow Me (4:43)
+Eagle (6:05)
+Lake Of Tears (6:47)
+Trouble (Japanese bonus track)
+
+
+Kai Hansen (guitars, lead vocals)   
+Henjo Richter (guitars, keyboards)   
+Dirk Schl&auml;chter (bass guitar)   
+Dan Zimmermann (drums)   
+
+
+
+All songs arranged by GAMMA RAY 
+Recorded and mixed at Hansen Studio, Hamburg 
+Produced and engineered by Kai Hansen & Dirk Schlдchter 
+Co-Produced by GAMMA RAY 
+Mastered by Ralf Lindner at .ham. Audio, Hamburg 
+Cover painting by Herve Monjeaud 
+Photos by Fin Costello 
+Digital Artworx & Booklet Design by Henjo Richter
+
+### "Heaven or Hell (single)" 2001, Power Metal
+
+1. Heaven or Hell
+2. Solid
+3. Angel of Death
+
+
+
+
+Kai Hansen (guitars, lead vocals)
+Henjo Richter (guitars, keyboards)
+Dirk Schl&auml;chter (bass guitar)
+Dan Zimmermann (drums)
+
+All songs arranged by GAMMA RAY
+Recorded and mixed at Hansen Studio, Hamburg
+Produced and engineered by Kai Hansen & Dirk Schl&auml;chter
+Co-Produced by GAMMA RAY
+Mastered by Ralf Lindner at .ham. Audio, Hamburg
+Cover painting by Herve Monjeaud
+Photos by Fin Costello
+Digital Artworx & Booklet Design by Henjo Richter
+Tracks 1 & 2 taken from the upcoming Gamma Ray album No World Order
+Track 3 is a Thin Lizzy song played by Gamma Ray exclusively for this single
+
+### "Skeletons in the Closet (live)" 2003, Power Metal
+
+1. Welcome <small>(Hansen)</small>  - 1:07
+2. Gardens of the Sinner <small>(Hansen, Zimmermann)</small> - 5:48
+3. Rich and Famous <small>(Hansen)</small> - 5:13
+4. All of the Damned <small>(Hansen)</small> - 5:00
+5. No Return <small>(Hansen)</small> - 4:13
+6. Armageddon <small>(Hansen)</small> - 9:24
+7. Heavy Metal Universe <small>(Hansen)</small> - 7:43
+8. One With the World <small>(Hansen, Wessel)</small> - 4:50
+9. Dan's Solo <small>(Zimmermann)</small> - 5:21
+10. Razorblade Sigh <small>(Hansen)</small> - 5:00
+11. Heart of the Unicorn <small>(Hansen)</small> - 4:41
+12. Last Before the Storm <small>(Hansen)</small> - 4:38
+13. Victim of Fate <small>(Hansen)</small> - 7:00
+14. Rising Star/Shine On <small>(Hansen, Schl&auml;chter)</small> - 7:52
+15. The Silence <small>(Hansen)</small> - 6:44
+16. Heaven or Hell <small>(Hansen)</small> - 4:16
+17. Guardians of Mankind <small>(Hansen)</small> - 5:21
+18. New World Order <small>(Hansen)</small> - 8:22
+19. I Want Out [*] <small>(Hansen)</small> - 7:17
+
+
+Release Date: Jul 22, 2003
+Recording Date: Oct 31, 2002; Nov 2, 2002 
+Type: Live, Enhanced
+
+Dan Zimmermann: Drums, Vocals
+Kai Hansen: Guitar, Vocals
+Henjo Richter: Guitar, Vocals
+Dirk Schlachter: Bass, Vocals
+Axel Mackenrott: Keyboards, Vocals (guest)
+
+Engineered by Kai Hansen, Pit Bender, Arne Lakenmacher, Dirk Schlachter.
+Assistant Engineer: Dirk Schlachter.
+Mixed by Kai Hansen & Dirk Schlachter.
+Mastering by Kai Hansen, Dirk Schlachter.
+
+Digital Editing, Pro-Tools by Arne Lakenmacher.
+Video Editing by Axel Mackenrott.
+
+Stage Technician: Sascha Gerbig.
+
+Photography by Gamma Ray, Josep Fenollar, Chris Kissadjekian, Gerrie Lemmens, Axel Mackenrott, Andreas Schowe, Stefan Malzkorn.
+
+Cover Art, Booklet Design, Digital Artwork by Henjo Richter.
+Lighting Design by Chris Gr&auml;f.
+
+J&ouml;rg Zaske: Production Coordination, Tour Manager.
+
+Produced by Gamma Ray.
+
+&copy; 2003 Japanese Import, 62272/3
+&copy; 2003 Victor Entertainment, 62419
+&copy; 2004 Metal-Is, 73017
+&copy; 2004 Metal-Is, 73016
+
+### "Majestic" 2005, Power Metal
+
+01. My Temple (4:57)
+02. Fight (3:24)
+03. Strange World (5:03)
+04. Hell Is Thy Home (4:46)
+05. Blood Religion (6:53)
+06. Condemned To Hell (4:56)
+07. Spiritual Dictator (5:38)
+08. Majesty (6:23)
+09. How Long (4:06)
+10. Revelation (8:30)
+
+### "Land Of The Free II" 2007, Power Metal
+
+
+
+### "Hell Yeah!!! The Awesome Foursome - Live In Montreal (2 CD/2DVD)" 2008, Power Metal
+
+Disc 1 
+1. Welcome   
+2. Gardens Of The Sinner 
+3. No World Order 
+4. Man On A Mission 
+5. Fight  
+6. Blood Religion
+7. Heavy Metal Universe
+8. Dream Healer
+9. Heart Of The Unicorn 
+10. Fairytale [acoustic version]
+11. The Silence 
+12. Beyond The Black Hole
+13. Valley Of The Kings 
+14. Somewhere Out In Space
+15. Land Of The Free
+16. Rebellion In Dreamland 
+17. I Want Out [Helloween cover] 
+18. Send Me A Sign 
+Disc 2 
+1. History   
+2. Road Movie USA 2006   
+3. Unplugged In Japan   
+4. Heavy Metal Universe (Video)  
+5. Space Eater (Video) 
+6. One With The World (Video) 
+7. Rebellion In Dreamland (Video) 
+8. Gamma Ray (Video) 
+9. Eagle (Video)
+10. Send Me A Sign (Video)
+11. One With The World (Live at Wacken 2006) 
+12. Last Before The Storm (Live at Wacken 2006)
+13. Rebellion In Dreamland (Live at Wacken 2006)  
+14. Heavy Metal Universe (Live at Wacken 2006) 
+15. Somewhere Out In Space (Live at Wacken 2006) 
+
+### "To the Metal!" 2010, Power Metal
+
+1. Empathy 05:04  
+2. All You Need To Know 04:00  
+3. Time To Live 04:48  
+4. To The Metal 05:29
+5. Rise 05:05  
+6. Mother Angel 05:20  
+7. Shine Forever 03:53  
+8. Deadlands 04:23  
+9. Chasing Shadows 04:23  
+10. No Need To Cry 05:56 
+
+
+
+"To The Metal" is available in four versions:
+
+* As a regular jewel case CD
+* As a limited edition featuring an additional DVD (including an exciting
+making-of)
+* As a red vinyl in gatefold packaging
+* as a collectors' edition featuring CD and 7" vinyl with two unreleased tracks,
+hand-signed 
+
+7" bonus tracks:
+A: Wannabees (bonus)
+B: To The Metal (demo version –bonus) 
+
+### "Empire of the Undead" 2014, Power Metal
+
+1. Avalon  09:21    
+2. Hellbent  05:22  
+3. Pale Rider  04:23
+4. Born to Fly  04:31 
+5. Master of Confusion  04:54   
+6. Empire of the Undead  04:25   
+7. Time for Deliverance  05:10    
+8. Demonseed  06:38    
+9. Seven  05:07    
+10. I Will Return  06:55 
+
+
+European (on CD and digital editions) bonus track:
+ 11. Built a World (04:22)
+
+ Released as a digital download, jewelcase (top cover), CD/DVD digipack (middle cover), LP (bottom cover) with download code and boxset.
+
+ iTunes version contains an exclusive bonus track:
+ 12. Men, Martians and Machines (Live from the final studio sessions) (03:50)
+
+ CD/DVD digipack comes with 3 bonus tracks:
+ 12. Avalon (Live from the Final Studio Sessions) 09:52
+ 13. The Spirit (Live from the Final Studio Sessions 1) 04:19
+ 14. Empire Of The Undead (Live from the Final Studio Sessions 1) 04:27
+
+ DVD:
+ *4 live songs from the final studio sessions:
+ 1. The Spirit (Live from the final studio sessions 2)
+ 2. Empire of the Undead (Live from the final studio sessions 2)
+ 3. Demonseed (Live from the final studio sessions 2)
+ 4. Empathy (Live from the final studio sessions)
+ * Tour of Hamburg with Gamma Ray
+ * Generic Interview with Kai Hansen & Gamma Ray
+ * To the Metal Promo Video
+ * 3 Videos from Skeletons & Majesties LIVE DVD:
+ 1. Gamma Ray
+ 2. Wings of Destiny
+ 3. Send Me a Sign (Acoustic)
+
+
 
 ## Отношения с другими группами
 

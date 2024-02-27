@@ -1,7 +1,21 @@
 # Militia Christi
 
-Дискография
-"Non Timor Domini, Non Timor Malus" 2004, Gothic
+
+
+## Дискография
+
+### "Non Timor Domini, Non Timor Malus" 2004, Gothic
+
+Cogitata Malus
+Cor Maleficus
+Incarnationis Mysterium (Annus Dei)
+MaledictumPater Noster
+Sanctus (Viae Perversae)
+Sapientia
+Segretum Magnum
+Sescenti Sexaginta Sex
+Verax Vitis
+
 
 ## Отношения с другими группами
 

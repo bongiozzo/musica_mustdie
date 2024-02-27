@@ -1,9 +1,31 @@
 # Pessimist
 
-Дискография
-"Cult of the Initiated" 1997, Death Metal
-"Blood For The Gods" 1999, Death Metal
-"Slaughtering the Faithful" 2002, Death Metal
+Death Metal
+
+## Дискография
+
+### "Cult of the Initiated" 1997, Death Metal
+
+
+
+### "Blood For The Gods" 1999, Death Metal
+
+
+
+### "Slaughtering the Faithful" 2002, Death Metal
+
+1. Requiem 
+2. Baptized in Blasphemy 
+3. Summoned to Suffer 
+4. Embodiment of Impurity 
+5. Slaughtering the Faithful 
+6. Infernal Abyss
+7. Metempsychosis 
+8. Resurrected Torment 
+9. Stripped of Immortality
+
+(c) Lost Disciple Records
+
 
 ## Отношения с другими группами
 

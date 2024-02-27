@@ -1,7 +1,21 @@
 # Immemorial
 
-Дискография
-"Monologue" 2002, Death Metal
+Polish death-metal
+
+## Дискография
+
+### "Monologue" 2002, Death Metal
+
+1. Forsaken In Nonentity 
+2. A Monologue 
+3. Wander Through Life 
+4. Demons Of Fate 
+5. Under Delusion 
+6. Born To Redeem 
+7. A Nightmare 
+8. Seized With Darkness 
++ Bonus: Video Track
+
 
 ## Отношения с другими группами
 

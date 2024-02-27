@@ -1,19 +1,285 @@
 # Malevolent Creation
 
-Дискография
-"The Ten Commandments" 1991, Deathcore
-"Retribution" 1992, Deathcore
-"Stillborn" 1993, Deathcore
-"Eternal" 1995, Deathcore
-"Joe Black (EP)" 1996, Deathcore
-"In Cold Blood" 1997, Deathcore
-"The Fine Art Of Murder" 1998, Deathcore
-"Envenomed" 2000, Deathcore
-"The Will to Kill" 2002, Deathcore
-"Warkult" 2004, Deathcore
-"Doomsday X" 2007, Deathcore
-"Invidious Dominion" 2010, Death Metal
-"Dead Man's Path" 2015, Death Metal
+Legend of Florida's death metal
+
+## Дискография
+
+### "The Ten Commandments" 1991, Deathcore
+
+1. Memorial Arrangements
+2. Premature Burial
+3. Remnants Of Withered Decay
+4. Multiple Stab Wounds
+5. Impaled Existence
+6. Thou Shall Kill !
+7. Sacrificial Annihilation
+8. Decadence Within
+9. Injected Sufferage
+10.Malevolent Creation
+
+ Bret Hoffmann - Vocals
+ Phil Fasciana - Guitar
+ Jeff Juszkiewicz - Guitar
+ Jason Blachowicz - Bass
+ Mark Simpson - Drums
+
+(p)&(c) 1991 ROADRACER Records
+
+
+### "Retribution" 1992, Deathcore
+
+1. Eve Of Apocalypse
+2. Systematic Execution
+3. Slaughter Of Innocence
+4. Coronation Of Our Domain *
+5. No Flesh Shall Be Spared
+6. The Coldest Survive
+7. Monster
+8. Mindlock
+9. Iced
+
+ Brett Hoffmann - Vocals
+ Phil Fasciana - Guitar
+ Rob Barret - Guitar
+ Jason Blachowicz - Bass
+ Alex Marquez - Drums
+
+Guest Solo On * By James Murphy.
+All Lyrics Written By Brett Hoffmann.
+All Music By MALEVOLENT CREATION.
+Produced By Scott Burns & MALEVOLENT CREATION.
+Engineered & Mixed By Scott Burns.
+Recorded At Criteria Recording,Miami,Florida.
+Mixed At Morrisound Studio,Tampa,Florida.
+Mastered By Mike Fuller At Fullersound,Miami,Florida.
+
+(p) 1992 THE ALL BLACKS B.V.
+(c) 1992 THE ALL BLACKS B.V.
+
+### "Stillborn" 1993, Deathcore
+
+1. Dominated Resurgency
+2. The Way Of All Flesh
+3. Dominion Of Terror
+4. Geared For Gain
+5. Stillborn
+6. Ordain The Hierarchy
+7. Carnivorous Misgivings
+8. Genetic Affliction
+9. Ethnic Cleansing
+10.Disciple Of Abhorrence
+
+ Brett Hoffmann - Vocals
+ Phil Fasciana - Guitar
+ Jon Rubin - Guitar
+ Jason Blachowicz - Bass
+ Alex Marquez - Drums
+
+Keyboards & Samples By Dave Smadbeck
+All Songs Written By MALEVOLENT CREATION
+Produced By Mark Pinske & Phil Fasciana
+Engineered & Mixed By Mark Pinske
+Recorded & Mixed At Pro Media Studios,
+Gainsville, FL
+
+(p)&(c) 1993 ROADRUNNER Records
+
+### "Eternal" 1995, Deathcore
+
+1. No Salvation
+2. Blood Brothers
+3. Infernal Desire
+4. Living In Fear
+5. Unearthly
+6. Enslaved
+7. Alliance Or War
+8. They Breed
+9. To Kill
+10. Hideous Reprisal
+11. Eternal
+12. Tasteful Agony
+
+Phil Fasciana-guitars, 
+Dave Culcross-drums, 
+Jason Blachowicz-bass/vocals, 
+Jon Rubin-guitars.
+
+
+
+### "Joe Black (EP)" 1996, Deathcore
+
+1. Joe Black
+2. Self Important Freak
+3. Sadistic Perversity
+4. No Salvation (Re-Mix)
+5. To Kill (Re-Mix)
+6. Tasteful Agony (Re-Mix)
+7. Genetic Affliction (93'Demo Version)
+8. Raining Blood З
+9. Remnants Of Withered Decay (90'Demo Version)
+10.Impaled Existence (90'Demo Version)
+
+All songs written by MALEVOLENT CREATION
+ except З written by SLAYER
+
+Produced by MALEVOLENT CREATION  and Scott Burns
+Engineered by Scott Butns and Erich Wytell
+Recorded and mixed at Innerface Studio
+
+Phil Fasciana - Guitar
+Jon Rubin - Guitar
+Jason Blachowicz - Bass, Vocals
+Dave Culross - Drums
+
+(p)c 1996 PAVEMENT Music
+
+### "In Cold Blood" 1997, Deathcore
+
+1. Nocturnal Overlord
+2. Prophecy
+3. Compulsive
+4. Narcotic Genocide
+5. Violated
+6. Leech
+7. In Cold Blood 
+8. Vision of Malice
+9. V II
+10. Preyed Upon
+11. Millions
+12. Condemned
+13. Seizure
+
+Phil Fasciana-guitars, 
+Derik Roddy-drums, 
+Jason Blachowicz-bass/vocals, 
+John Paul Soars-guitars.
+
+### "The Fine Art Of Murder" 1998, Deathcore
+
+1. To Die Is At Hand
+2. Manic Demise
+3. Instinct Evolved
+4. Dissect The Eradicated
+5. Mass Graves
+6. Fine Art Of Murder
+7. Bone Exposed
+8. Purge
+9. Fracture
+10. Rictus Surreal
+11. Scorn
+12. Day Of Lamentation
+13. Scattered Flesh
+
+Brett Hoffman-vocals, 
+Phil Fasciana-guitars, 
+Rob Barret-guitars, 
+Dave Culcross-drums, 
+Gordon Simms-bass
+
+### "Envenomed" 2000, Deathcore
+
+1. Homicidal Rant
+2. Night Of The Long Knives
+3. Kill Zone
+4. Halved
+5. Serial Dementia
+6. Bloodline Severed
+7. Pursuit Revised
+8. Conflict
+9. Viral Release
+10. The Deviant's March
+11. Envenomed
+
+Brett Hoffmann-vocals, 
+Phil Fasciana-guitars, 
+Dave Culcross-drums, 
+Rob Barret-guitars, 
+Gordon Simms-bass
+
+### "The Will to Kill" 2002, Deathcore
+
+"The Will To Kill"
+"Pillage And Burn"
+"All That Remains"
+"With Murderous Precision"
+"Lifeblood"
+"Assassin Squad"
+"Rebirth OF Terror"
+"Superior Firepower"
+"Divide And Conquer"
+"The Cardinals Law"
+"Burnt Beyond Recognition"
+
+### "Warkult" 2004, Deathcore
+
+1)Dead March
+2)Preemtive Strike
+3)Supremacy Through Annihilation
+4)Murder Reigns
+5)Captured
+6)Merciless
+7)Section 8
+8)On Grounds Of Battle
+9)Tyrannic Oppression
+10)Ravaged By Conflict
+11)Shock And Awe
+12)Jack The Ripper * (bonus track) Cover song from Australian cult thrash godz Hobbs Angel Of Death.
+
+### "Doomsday X" 2007, Deathcore
+
+1. Cauterized 03:47   
+2. Culture of Doubt 04:18  
+3. Deliver My Enemy 05:25  
+4. Archaic 03:09   
+5. Buried in a Nameless Grave 03:46  
+6. Dawn of Defeat 03:37   
+7. Prelude to Doomsday 03:32  
+8. Upon Their Cross 04:45  
+9. Strength in Numbers 04:57   
+10. Hollowed 04:34   
+11. Unleash Hell 03:28
+12. Bio Terror 03:59
+
+### "Invidious Dominion" 2010, Death Metal
+
+1. Intro 00:34
+2. United Hate 03:31 
+3. Conflict Finalized 03:31 
+4. Slaughterhouse 04:11 
+5. Compulsive Face Breaker 03:18 
+6. Lead Spitter 03:23  
+7. Target Rich Envrionment 03:39 
+8. Antagonized 03:39  
+9. Born Again Hard 03:16 
+10. Corruptor 03:52 
+11. Invidious Dominion 03:01 
+
+
+Cover artwork by Pдr Olofsson.
+
+line-up: 
+Brett Hoffmann - Vocals  
+Phil Fasciana - Guitar 
+Gio Geraca - Guitar
+Jason Blachowicz - Bass
+Gus Rios - Drums 
+
+
+### "Dead Man's Path" 2015, Death Metal
+
+01. Dead Man's Path
+02. Soul Razer
+03. Imperium (Kill Force Rising)
+04. Corporate Weaponry
+05. Blood of the Fallen
+06. Resistance Is Victory
+07. 12th Prophecy
+08. Extinction Personified
+09. Fragmental Sanity
+10. Face Your Fear
+11. Carnivorous Misgivings (Bonus Track)
+12. Dominated Resugency (Bonus Track)
+
 
 ## Отношения с другими группами
 

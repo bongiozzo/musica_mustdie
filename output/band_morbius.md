@@ -1,7 +1,13 @@
 # Morbius
 
-Дискография
-"Morbius EP" 2003, Melodic Death Metal
+melodic death-thrash from Portugal
+
+## Дискография
+
+### "Morbius EP" 2003, Melodic Death Metal
+
+
+
 
 ## Отношения с другими группами
 

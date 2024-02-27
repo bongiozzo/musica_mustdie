@@ -1,7 +1,24 @@
 # Maudlin Of The Well
 
-Дискография
-"My Fruit Psychobells...A Seed Combustible" 2000, Death Doom
+
+
+## Дискография
+
+### "My Fruit Psychobells...A Seed Combustible" 2000, Death Doom
+
+Ferocious Weights
+A Conception Pathetic
+Undine And Underwater Flowers 
+The Oceans, The Kingdom, And The Temptation
+Pondering A Wall
+Catharsis Of Sea Sleep
+Dreaming Shrines
+Blight Of River-Systems
+
+
+  
+
+
 
 ## Отношения с другими группами
 

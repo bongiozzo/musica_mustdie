@@ -1,11 +1,108 @@
 # Millenium
 
-Дискография
-"Millenium" 1997, Hard Rock
-"Angelfire" 1999, Hard Rock
-"Hourglass" 2000, Hard Rock
-"The Best Of... And More" 2004, Hard Rock
-"Jericho" 2004, Hard Rock
+
+
+## Дискография
+
+### "Millenium" 1997, Hard Rock
+
+1. Together as One   
+2. Believe in Love   
+3. Marianne   
+4. Come Back   
+5. Almost made it to Heaven   
+6. Hold on   
+7. Gabriella   
+8. Gonna let you go   
+9. Invincible
+
+### "Angelfire" 1999, Hard Rock
+
+1. Nations   
+2. Shamen   
+3. Beyond the Pain   
+4. Until the End of Time   
+5. Angelfire   
+6. Heaven Sent   
+7. Julia   
+8. Bound for Glory   
+9. Run   
+10. Waiting fot Godot   
+11. Remember   
+12. Saving Grace   
+13. The Color of Night   
+14. Hide Behind my Face   
+15. Dawn   
+16. Return(hidden track)
+
+### "Hourglass" 2000, Hard Rock
+
+1. Power to Love   
+2. Wheels are Turning   
+3. Hourglass   
+4. No more Miracles   
+5. Superstar   
+6. Rocket Ride   
+7. I Will Follow   
+8. I Still Believe   
+9. Masquerade   
+10. Chasing Time
+
+### "The Best Of... And More" 2004, Hard Rock
+
+Disc 1 
+1. Power To Love   
+2. Hourglass   
+3. Superstar   
+4. I Still Believe   
+5. Masquerade   
+6. Chasing Time   
+7. Shaman   
+8. Beyond The Pain   
+9. End Of Time   
+10. Angelfire   
+11. Heaven Sent   
+12. Run   
+13. Saving Grace   
+14. The Color Of Night   
+
+
+Disc 2 
+1. Together As One   
+2. Believe In Love   
+3. Almost Made It To Heaven   
+4. Invincible   
+5. On And On   
+6. I Surrender   
+7. Jane   
+8. Love Is Like Oxygen   
+9. Rain   
+10. Anybody   
+11. Gone Are The Chances   
+12. I Lost It   
+13. Heresy   
+14. Sea Of Madness
+
+### "Jericho" 2004, Hard Rock
+
+1. My Saving Grace 05:38  
+2. Heaven Awaits 04:02  
+3. My War 04:25  
+4. Heresy 04:19  
+5. Morning Star 05:03  
+6. Above This World 04:04  
+7. Enemy Of The Sun 03:24  
+8. Wheel Of Fortune 04:37  
+9. Let There Be Light 05:15  
+10. Burning Again 06:28 
+
+
+Todd Plant - Vocals
+Ralph Santolla - Lead Guitar and Keyboards 
+Shane French - Lead and Rhythm Guitars 
+Steve McKenna - Bass 
+Mark Prator - Drums
+
 
 ## Отношения с другими группами
 

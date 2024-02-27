@@ -1,10 +1,74 @@
 # Circus Maximus
 
-Дискография
-"The 1st Chapter" 2005, Progressive
-"Isolate" 2007, Progressive
-"Nine" 2012, Progressive
-"Havoc" 2016, Progressive
+
+
+## Дискография
+
+### "The 1st Chapter" 2005, Progressive
+
+01. Sin
+02. Alive
+03. Glory Of The Empire
+04. Biosfear
+05. Silence From Angels Above
+06. Why Am I Here
+07. The Prophecy
+08. The 1st Chapter
+09. Haunted Dreams (bonus track Europe)
+10. Imperial Destruction (bonus track USA)
+
+### "Isolate" 2007, Progressive
+
+1. A Darkened Mind 05:33  
+2. Abyss 05:00  
+3. Wither 04:46  
+4. Sane No More 03:55  
+5. Arrival Of Love 04:10  
+6. Zero 04:50  
+7. Mouth Of Madness 12:42  
+8. From Childhood's Hour 04:28  
+9. Ultimate Sacrifice 09:17
+
+### "Nine" 2012, Progressive
+
+1. Forging  01:16   
+2. Architect of Fortune  10:12   
+3. Namaste  04:02   
+4. Game of Life  05:01   
+5. Reach Within  04:59   
+6. I Am  04:20   
+7. Used  04:52   
+8. The One  04:00   
+9. Burn After Reading  08:48   
+10. Last Goodbye  10:00 
+11. Abyss (Live)  * 05:22   
+12. Wither (Live)  * 05:34 
+
+
+### "Havoc" 2016, Progressive
+
+Disc 1  
+1. The Weight  06:19  
+2. Highest Bitter   
+3. Havoc  03:24    
+4. Pages    
+5. Flames   
+6. Loved Ones    
+7. After the Fire 
+8. Remember   
+9. Chivalry    
+10. Loath  *   
+
+Disc 2  
+1. Forging (Live)  
+2. Namaste (Live)  
+3. The One (Live)  
+4. Arrival of Love (Live) 
+5. Abyss (Live)  
+6. Alive (Live)  
+7. Game of Life (Live)  
+8. Last Goodbye (Live)  
+
 
 ## Отношения с другими группами
 

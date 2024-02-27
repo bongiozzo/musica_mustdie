@@ -1,14 +1,117 @@
 # Absu
 
-Дискография
-"Varathrum: V.I.T.R.I.O.L." 1994, Black Metal
-"The Sun Of Tiphareth" 1995, Black Metal
-"...And shineth unto the cold cometh... (7" single)" 1995, Black Metal
-"The Third Storm Of Cythraul" 1997, Black Metal
-"Tara" 2001, Black Metal
-"Absu" 2009, Black Metal
-"Abzu" 2011, Black Metal
-"Hall of the Masters (single)" 2012, Black Metal
+Satanic Black Metal
+
+## Дискография
+
+### "Varathrum: V.I.T.R.I.O.L." 1994, Black Metal
+
+1. An Involution Of Throns
+2. Descent To Acheron
+3. An Equinox Of Fathomless Disheartenment
+4. The Thrice Is Greatest To Ninnigal
+5. Infinite And Profane Thrones
+6. Fantasizing To The Third Of The Pagan  Vision
+7. An Evolution Of Horns
+
+ Shaftiel - Guitar & Voice
+ Daviel Athron Mysteria - Guitars &  Voice
+ Lord Equitant Alastor - Bass
+ Emperor Proscriptor Magicus - Percussion, Voice & Poetic Ways
+ Black Massith - Synthesiers
+
+Produced,Engineered & Mastered By Daniel Brown
+Co-Produced by Brain McCurry
+Recorded during th 1993 Spring Equinox
+
+(p)(c) 1994 OSMOSE PRODUCTION
+
+### "The Sun Of Tiphareth" 1995, Black Metal
+
+1. Apzu
+2. Feis Mor Tir Na N'og
+3. Cyntefyn's Fountain
+4. A Quest Into The 77-th Novel
+5. Our Lust For Lunar Plains
+6. The Coming War
+7. The Sun Of Tiphareth
+
+ Shaftiel - Lead, Bass, Acoustic  Guitars & Voice
+ Equitant - Lead, Bass Guitars
+ Proscriptor - Drums, Keyboards, Flute & Voice
+
+All Music Produced, Composed & Written By ABSU
+Engineered By Danny Brown
+Recorded At Reel-To-Reel Studios, Dallas, Texas
+
+(p)&(c) 1995 OSMOSE Productions
+
+### "...And shineth unto the cold cometh... (7" single)" 1995, Black Metal
+
+1. Akhera goiti- Akhera beiti (One black opalith for tomorrow)
+2. ...and shineth unto the cold cometh...
+
+### "The Third Storm Of Cythraul" 1997, Black Metal
+
+1.  Prelusion To Cythraul (Including "...And Shineth Unto The Cold Cometh...")
+2.  Highland Tyrant Attack
+3.  A Magicians Lapis-Lazuli
+4.  Swords And Leather
+5.  The Winter Zephyr (...Within The Kingdoms Of Mist...)
+6.  Morbid Scream
+7.  Customs Of Tasseomancy (Quoth The Sky, Nevermore) Act I
+8.  Intelligence Towards The Crown
+9.  ...Of Celtic Fire, We Are Born (Including "Terminus -... In The Eyes Of Loldanach")
+
+Shaftiel - Electric Lead Guitar, Electric Bass Guitar, Acoustic Guitar, and Voice
+Equitant Ifernain - Electric Lead Guitar, Electric Bass Guitar, and Lyrical Obscurity
+Sir Proscriptor McGovern - Trap Kit, Dumbeck, Gong, Ice Bells, Octotron, Voice(s), and Lyrical Magick 
+
+(P)(C) 1997 OSMOSE Productions // OPCD 045
+
+### "Tara" 2001, Black Metal
+
+
+
+### "Absu" 2009, Black Metal
+
+1. Between the Absu of Eridu & Erech 04:08
+2. Night Fire Canonization 03:19
+3. Amy 04:54
+4. Nunbarshegunu 03:06
+5. 13 Globes 04:47
+6. ...of the Dead Who Never Rest in Their Tombs Are the Attendance of Familiar Spirits Including: A.) Diversified Signs Inscribed/B.) Our Earth of Black/C.) Voor 07:03 
+7. Magic(k) Square Cipher 04:49
+8. In the Name of Auebothiabathabaithobeuee 03:26
+9. Girra's Temple 02:39
+10. Those of the Void Will Re-Enter 04:56
+11. Sceptre Command 05:00
+12. Ye Uttuku Spells 04:42
+13. Twix Yesterday, the Day & the Morrow 
+
+### "Abzu" 2011, Black Metal
+
+1. Earth Ripper 03:47 
+2. Circles Of The Oath 05:11 
+3. Abraxas Connexus 03:53 
+4. Skrying in the Spirit Vision 03:51 
+5. Ontologically, It Became Time & Space 04:47 
+6. A Song for Ea 14:26
+
+Track 6, "A Song for Ea" consists of the following parts: 
+a. E-A 
+b. A Myriad of Portals 
+c. Third Tablet 
+d. Warren of Imhullu 
+e. The Waters – The Denizens 
+f. E-A (Reprise
+
+
+
+### "Hall of the Masters (single)" 2012, Black Metal
+
+1. Hall of the Masters 02:45
+
 
 ## Отношения с другими группами
 

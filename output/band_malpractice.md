@@ -1,7 +1,27 @@
 # Malpractice
 
-Дискография
-"Deviation From The Flow" 2005, Progressive
+power-prog from Finland
+
+## Дискография
+
+### "Deviation From The Flow" 2005, Progressive
+
+01. Assembly Line 
+02. Colours in Between 
+03. The Industry 
+04. The Long Run 
+05. Divided 
+06. Expedition 
+07. Circles in the Sand 
+08. Fragile Pages 
+
+Line-Up: 
+Joonas Koto - guitars 
+Markus Vanhala - guitars 
+Toni Paananen - drums 
+Mika Uronen - vocals 
+Jonas Mдki - bass
+
 
 ## Отношения с другими группами
 

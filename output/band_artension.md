@@ -1,13 +1,218 @@
 # Artension
 
-Дискография
-"Into The Eye Of The Storm" 1996, Metal
-"Phoenix Rising" 1997, Metal
-"Forces of Nature" 1999, Metal
-"Machine" 2000, Metal
-"Sacred Pathways" 2002, Metal
-"New Discovery" 2003, Metal
-"Future World" 2005, Metal
+
+
+## Дискография
+
+### "Into The Eye Of The Storm" 1996, Metal
+
+  1.   World of Illusion (Kuprij/West) - 5:31 
+  2.   Into the Eye of the Storm (Kuprij/West) - 4:36 
+  3.   Smoke and Fire (Kuprij/West) - 5:12 
+  4.   The Wind and the Rain (Kuprij/West) - 6:14 
+  5.   Lost Memory (Kuprij/West) - 6:00 
+  6.   The Key (Kuprij/West) - 6:35 
+  7.   Song of the Desert (Kuprij/West) - 3:34 
+  8.   Red's Recovery (Kuprij) - 7:05 
+  9.   Let It Ride (Kuprij/West) - 5:06 
+  10.   I Don't Care (Kuprij) - 2:28 
+
+
+Scott Johnson  -  Overdubs 
+Steve Fontano  -  Mixing 
+Michael Iacopelli  -  Mastering 
+Joe Marquez  -  Overdubs 
+James Murphy  -  Guitar, Overdubs 
+Mark Robertson  -  Engineer 
+Mike Terrana  -  Drums 
+Mike Varney  -  Producer 
+John West  -  Vocals 
+Jim Dean  -  Mixing 
+Larry Brewer  -  Engineer, Overdubs 
+Kevin Chown  -  Bass 
+Vitalij Kuprij  -  Piano, Keyboards, Producer 
+Tim Gennert  -  Digital Editing 
+
+
+### "Phoenix Rising" 1997, Metal
+
+  1.   Area 51 (Kuprij/West) 
+  2.   Through the Gate (Kuprij/West) 
+  3.   Valley of the Kings (Kuprij/West) 
+  4.   Blood Brother (Kuprij/West) 
+  5.   Into the Blue (Kuprij/West) 
+  6.   Phoenix Rising (Kuprij/West) 
+  7.   Forbidden Love (Kuprij/West) 
+  8.   The City Is Lost (Kuprij/West) 
+  9.   Goin' Home (Kuprij/West) 
+  10.   I Really Don't Care (Kuprij) 
+
+
+Pat Johnson  -  Photography 
+Joe Marquez  -  Engineer 
+James Murphy  -  Guitar, Engineer, Mixing 
+Mark Rennick  -  Engineer, Mixing 
+Mike Terrana  -  Drums 
+Mike Varney  -  Producer 
+John West  -  Vocals 
+Kevin Chown  -  Bass 
+Dave Stephens  -  Artwork, Graphic Design 
+Vitalij Kuprij  -  Keyboards, Producer 
+Christopher Ash  -  Mastering 
+
+
+### "Forces of Nature" 1999, Metal
+
+  1.   The Forces of Nature (Kuprij/West) - 6:29 
+  2.   Ride Like the Wind (Kuprij/West) - 5:10 
+  3.   Behind Your Eyes (Kuprij/West) - 7:24 
+  4.   The Truth (Kuprij/West) - 5:00 
+  5.   Tall Ships (Kuprij/West) - 6:07 
+  6.   Shape Shifter (Kuprij/West) - 6:16 
+  7.   Wild Trip (Kuprij/West) - 3:42 
+  8.   Guardian of the Hunt (Kuprij/West) - 7:05 
+  9.   Lost Horizon (Kuprij/West) - 7:09 
+  10.   You Are My Heart (Ode to Autumn) (Kuprij/West) - 2:47 
+
+
+Joe Marquez  -  Engineer 
+James Murphy  -  Guitar, Engineer 
+John Onder  -  Bass 
+Mark Rennick  -  Engineer, Mixing 
+Mike Varney  -  Producer 
+John West  -  Vocals 
+Ralph Patlan  -  Mixing 
+Dave Stephens  -  Design, Layout Design 
+Vitalij Kuprij  -  Piano, Arranger, Keyboards, Producer 
+Steve Jennings  -  Photography 
+Lonnie Park  -  Vocals (bckgr), Engineer 
+Christopher Ash  -  Mastering 
+Gene Cornelius  -  Assistant 
+Shane Gaalaas  -  Drums 
+
+
+### "Machine" 2000, Metal
+
+  1.   Machine - 5:24 
+  2.   The Way - 5:54 
+  3.   Madness Calling - 5:00 
+  4.   Mother Earth - 5:16 
+  5.   Wings of War - 5:07 
+  6.   Evolution in Reverse - 4:53 
+  7.   Time Goes Slowly By - 6:10 
+  8.   The Loser Never Wins - 4:55 
+  9.   I See Through Your Eyes - 6:20 
+
+
+James Murphy  -  Guitar, Keyboard Overdubs 
+John Onder  -  Bass 
+Mark Rennick  -  Engineer 
+Mike Varney  -  Producer 
+John West  -  Vocals 
+Ralph Patlan  -  Mixing 
+Dave Stephens  -  Graphic Design 
+Vitalij Kuprij  -  Keyboards, Producer 
+Steve Jennings  -  Photography 
+Lonnie Park  -  Vocal Engineer 
+Gene Cornelius  -  Assistant Engineer 
+Shane Gaalaas  -  Drums 
+
+
+### "Sacred Pathways" 2002, Metal
+
+01. Voyage To Nasca (instrumental) 
+02. Your Victory 
+03. Running Out Of Time 
+04. Sacred Pathways 
+05. Silent Temple (instrumental) 
+06. The Emperor 
+07. Nightmare 
+08. The Killing 
+09. The Calm Before The Storm 
+10. March To Ruin (instrumental) 
+11. Flower Of The Orient 
+12. Nightmare (radio edit)
+
+
+
+
+Vitalij Kuprij - Keyboards
+John West - Vocals
+Roger Staffelbach - Guitars
+Mike Terrana - Drums
+Kevin Chown - Bass
+
+
+### "New Discovery" 2003, Metal
+
+01) New Discovery
+02) Remember My Name
+03) Innocence Lost
+04) The Last Survivor
+05) Hearts Are Broken
+06) Symphonic Expedition
+07) Endless Days
+08) Call Of The Wild
+09) Story Teller
+10) Endless Days (radio edit)
+11) Prelude in E flat minor (theme by J.S.Bach) - Bonus track
+
+
+Vitalij Kuprij - keyboards
+John West - vocals
+Roger Staffelbach - guitars
+Mike Terrana - drums
+Kevin Chown - 6 string bass
+
+Produced by Vitalij Kuprij and John West
+All music written and arranged by Vitalij Kuprij
+All lyrics and vocal melodies by John West
+
+Mixing and Mastering done at:
+Ultimate Music Center, Cortland, NY
+by Lonnie Park assisted by Matt Barnes
+Mastered on Sonic Foundry Software
+All keyboards tracking by Shawn Leahy
+at Millenium Sound - Philadelphia
+All vocals recorded and engineered by Lonnie Park
+Guitars recorded and engineered by Peter Mьller
+at Titanik Recording Studio, Sursee - Switzerland
+Drums recorded by Roland Grapow
+at Crazy Kat Studio, Hamburg - Germany
+Bass tracks recorded at KC Audio Productions, Los Angeles, CA
+Additional engineering and audio transfers by Jono Brown
+at Word of Mouth Recording, Woodland Hills, CA
+
+Photography by Dana Merkur
+Stylist: Lisa Allen
+
+Logo, artwork & cover design by Eric Philippe
+
+All backing vocals by John West and Lonnie Park
+Preproduction done at Vitalij Kuprij Home Studio, Philadelphia, USA
+
+
+### "Future World" 2005, Metal
+
+01) New Discovery
+02) Remember My Name
+03) Innocence Lost
+04) The Last Survivor
+05) Hearts Are Broken
+06) Symphonic Expedition
+07) Endless Days
+08) Call Of The Wild
+09) Story Teller
+10) Endless Days (radio edit)
+11) Bonustrack: Prelude in E flat minor (theme by J.S.Bach)
+ 
+
+Vitalij Kuprij: keys
+Roger Staffelbach: guitars
+John West: vocals
+Mike Terrana: drums
+Steve DiGiorgio: bass
+
 
 ## Отношения с другими группами
 

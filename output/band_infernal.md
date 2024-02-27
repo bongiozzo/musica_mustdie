@@ -1,10 +1,61 @@
 # Infernal
 
-Дискография
-"The New Dawn" 1998, Black Metal
-"Whipping the Sacred Law" 1999, Black Metal
-"A Tragedy Called Existence" 2004, Black Metal
-"The Deepest Emptiness" 2009, Black Metal
+
+
+## Дискография
+
+### "The New Dawn" 1998, Black Metal
+
+1. Force	 
+2. A Forgotten Place	 
+3. The Infernal Throne (Instrumental) 
+4. The Gates Of The Glory	 
+5. Evil Milennium (Instrumental) 
+6. War Forever	 
+7. Freedom And Pleasure	 
+8. In The Silence A Morning Star	 
+9. Power Of Circle	 
+10. Total Feeling
+
+### "Whipping the Sacred Law" 1999, Black Metal
+
+1. In The Horizon Shines A Light	 
+2. A Sign Of Destruction	 
+3. Cham Dead	 
+4. Unholy War God	 
+5. In Memory Of My Soul	 
+6. Deny The Lie	 
+7. In The Search	 
+8. To The Waited Meeting	 
+9. My Belief (Possessed Cover)	 
+10. Lost In The Thoughts Of Labyrinths 
+11.	 War Forever	02:11	 
+12.	 Force
+
+### "A Tragedy Called Existence" 2004, Black Metal
+
+1. Unification Of The Highest Circle	 
+2. The Intense Flame Will Burn Forever
+3. Creations Of Man's Evil Thought	 
+4. The Horned Head Of Satan Attacks	 
+5. Ancestors Have Left An Historical Legacy	 
+6. Ritual Performing
+7. I Live In A World Of My Own	 
+8. A Tragedy Called Existence	 
+9. Transylvanian Hunger (Darkthrone Cover)
+10. By The Side Of The Road
+
+### "The Deepest Emptiness" 2009, Black Metal
+
+1. Into The Caven (intro)
+2. Harvesting Misery
+3. Blackened By Forces
+4. Force (Version 2009)
+5. Existencial Law
+6. Inspired By Cruelty
+7. Prisoner By Chance
+8. Pain, Agony & Death
+
 
 ## Отношения с другими группами
 

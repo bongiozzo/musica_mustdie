@@ -1,7 +1,18 @@
 # Sinister Frost
 
-Дискография
-"Cryotorment" 2012, Black Metal
+
+
+## Дискография
+
+### "Cryotorment" 2012, Black Metal
+
+1. Cryotorment (Intro)		 
+2. Mystery of Sinister Forest		 
+3. Nightmare	 
+4. Vicar of God of the Death
+5. Gomorrah and Sodom (Part I)		 
+6. Gomorrah and Sodom (Part II)
+
 
 ## Отношения с другими группами
 

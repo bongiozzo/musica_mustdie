@@ -1,7 +1,20 @@
 # Negative Voice
 
-Дискография
-"Infinite Dissonance" 2013, Metal
+
+
+## Дискография
+
+### "Infinite Dissonance" 2013, Metal
+
+1. Dissonance 07:17
+2. Grey Pools Heaven 05:21
+3. Idealistic 06:28
+4. Insane Blossoming 05:42
+5. Into Oblivion 06:33
+6. Euphoria From Being Depressed 06:30	
+7. Remission Time 05:35
+8. Rejection 09:58
+
 
 ## Отношения с другими группами
 

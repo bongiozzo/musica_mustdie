@@ -1,10 +1,44 @@
 # Withered
 
-Дискография
-"Memento Mori" 2005, Death Doom
-"Folie Circulaire" 2008, Death Metal
-"Dualitas" 2010, Death Metal
-"Grief Relic" 2016, Death Metal
+
+
+## Дискография
+
+### "Memento Mori" 2005, Death Doom
+
+1. It's All Said 05:02  
+2. Within Your Grief 03:37  
+3. Like Locusts 08:43  
+4. Silent Grave 02:01  
+5. Beyond Wrath 05:17  
+6. Fear And Pain That Cripples Me 02:52  
+7. Among Sorrow 08:49 
+
+
+Chris Freeman - Guitar, Vocals
+Mike Thompson - Guitar, Vocals
+Greg Hess - Bass
+Wes Kever - Drums
+
+### "Folie Circulaire" 2008, Death Metal
+
+
+
+### "Dualitas" 2010, Death Metal
+
+
+
+### "Grief Relic" 2016, Death Metal
+
+1. Leathery Rind  
+2. A Realm of Suffering 	 
+3. Withdraw 
+4. Feeble Gasp 
+5. Husk  
+6. Downward  
+7. Distort, Engulf 	 
+8. To Glimpse Godliness
+
 
 ## Отношения с другими группами
 

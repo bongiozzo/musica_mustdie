@@ -1,9 +1,26 @@
 # D.A.M
 
-Дискография
-"Tales of the Mad King" 2012, Melodic Death Metal
-"The Awakening" 2014, Melodic Death Metal
-"Premonitions [EP]" 2016, Melodic Death Metal
+
+
+## Дискография
+
+### "Tales of the Mad King" 2012, Melodic Death Metal
+
+
+
+### "The Awakening" 2014, Melodic Death Metal
+
+
+
+### "Premonitions [EP]" 2016, Melodic Death Metal
+
+1. Premonitions... (Under the Tree of Regrets)
+2. The Cage (Breaking the Paradigms)
+3. Untouchable (My Past Mistakes...)
+4. Anorexic Dysphoria (An Elegy for the Brainless)
+5. Changing the Directions (Unresolved)
+6. Frustration (Imprisoned Dreams)
+
 
 ## Отношения с другими группами
 

@@ -1,10 +1,80 @@
 # Alcatrazz
 
-Дискография
-"No Parole from Rock 'n' Roll" 1983, Heavy Metal
-"Disturbing the Peace" 1985, Heavy Metal
-"Dangerous Games" 1986, Heavy Metal
-"The Best Of Alcatrazz" 2007, Heavy Metal
+feat. Graham Bonnet, Yngwie Malmsteen & Steve Vai
+
+## Дискография
+
+### "No Parole from Rock 'n' Roll" 1983, Heavy Metal
+
+1. Island in the Sun 03:56
+2. General Hospital 04:50
+3. Jet To Jet 04:27 
+4. Hiroshima Mon Amour 04:01 
+5. Kree Nakoorie 06:10
+6. Incubus 01:24
+7. Too Young to Die, Too Drunk to Live 04:21
+8. Big Foot 04:07 
+9. Starcarr Lane 03:54
+10. Suffer Me 04:18 
+
+Line-up :
+Graham Bonnet - Vocals
+Yngwie Malmsteen - Guitars
+Gary Shea - Bass
+Jan Uvena - Drums
+Jimmy Waldo - Keyboard
+
+In Europe and Japan, this album was released in October 1983, and in the United
+States in January 1984.
+
+Tracks 1, 2, & 9 by Bonnet, Malmsteen & Waldo.
+Track 6 by Malmsteen.
+Tracks 3, 4, 5, 7, 8, & 10 by Bonnet & Malmsteen.
+
+### "Disturbing the Peace" 1985, Heavy Metal
+
+1. God Blessed Video 03:30
+2. Mercy 04:22 
+3. Will You Be Home Tonight 05:03 
+4. Wire and Wood 03:29
+5. Desert Diamond 04:20
+6. Stripper 03:53 
+7. Painted Lover 03:24
+8. Lighter Shade of Green 00:46  
+9. Sons and Lovers 03:37
+10. Skyfire 03:55
+11. Breaking the Heart of the City 04:58 
+
+Vocals : Graham Bonnet
+Guitars : Steve Vai
+Bass : Gary Shea
+Drums : Jan Uvena
+Keyboards : Jimmy Waldo 
+
+### "Dangerous Games" 1986, Heavy Metal
+
+1. It's My Life 04:05  
+2. Undercover 03:30  
+3. That Ain't Nothing 04:20  
+4. No Imagination 04:10  
+5. Okay Tokyo 03:10  
+6. Dangerous Games 03:30  
+7. Blue Boar 03:28  
+8. Only One Woman 03:40  
+9. Witchwood 03:55  
+10. Double Man 04:25  
+11. Night of the Shooting Star 01:00 
+
+Graham Bonnet - vocals
+Danny Johnson -guitars
+Gary Shea - bass
+Jimmy Waldo - keyboards
+Jan Uvena - drums 
+
+### "The Best Of Alcatrazz" 2007, Heavy Metal
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,6 +1,9 @@
 # Amenophis Dusk
 
-Дискография
+Melodramatic Pagan Dark Metal
+
+## Дискография
+
 
 ## Отношения с другими группами
 

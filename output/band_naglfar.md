@@ -1,13 +1,112 @@
 # Naglfar
 
-Дискография
-"Vittra" 1995, Black Metal
-"When Autumn Stormes Come (Vinyl EP)" 1997, Black Metal
-"Diabolical" 1998, Black Metal
-"Diabolical (re-release)" 2003, Black Metal
-"Pariah" 2005, Black Metal
-"Harvest" 2007, Black Metal
-"Teras" 2012, Death Metal
+
+
+## Дискография
+
+### "Vittra" 1995, Black Metal
+
+1. As The Twilight Gave Birth To The Night
+2. Enslave The Astral Fortress
+3. Through The Midnight Spheres
+4. The Eclipse Of Infernal Storms
+5. Emerging From Her Weepings
+6. Failing Wings
+7. Vittra
+8. Sunless Dawn
+9. Exalted Above Thrones
+
+All Songs Written By NAGLFAR.
+Engineered By Peter Tagtgren.
+Recorded At Abyss Studio.
+
+Jens Ryden - Vocals
+Morgan Hansson - Guitar
+Kristoffer Olivius - Bass
+Andreas Nilsson - Guitar
+
+(P)&(C) 1995 WRONG AGAIN Records
+
+### "When Autumn Stormes Come (Vinyl EP)" 1997, Black Metal
+
+01. When Autumn Stormes Come 
+02. The Brimstone Gate
+
+### "Diabolical" 1998, Black Metal
+
+01. Horncrowned Majesty [04:59] 
+02. Embracing the Apocalypse [05:29] 
+03. 12'th Rising [04:04] 
+04. Into the Cold Voids of Eternity [06:25] 
+05. The Brimstone Gate [04:42] 
+06. Blades [03:52] 
+07. When Autumn Storms Come [04:32] 
+08. A Departure In Solitude [01:59] 
+09. Diabolical - The Devil's Child [08:52] 
+
+
+### "Diabolical (re-release)" 2003, Black Metal
+
+01. Horcrowned Majesty 
+02. Embracing the Apocalypse 
+03. 12th Rising 
+04. Into the Cold Voids of Eternity 
+05. The Brimstone Gate 
+06. Blades 
+07. When Autumn Storms Come 
+08. A Departure in Solitude 
+09. Diabolical - A Devil's Child
+
+### "Pariah" 2005, Black Metal
+
+01. Proclamation
+02. A Swarm Of Plagues
+03. Spoken Words Of Venom
+04. The Murder Manifesto
+05. Revelations Carved In Flesh
+06. None Shall Be Spared
+07. And The World Shall Be Your Grave
+08. The Perpetual Horrors
+09. Carnal Scorn & Spiritual Malice
+
+### "Harvest" 2007, Black Metal
+
+1. Into the Black 04:33  
+2. Breathe Through Me 03:17  
+3. The Mirrors of My Soul 04:58  
+4. Odium Generis Humani 05:07  
+5. The Darkest Road 04:11  
+6. Way of the Rope 05:56  
+7. Plutonium Reveries 05:00  
+8. Feeding Moloch 05:12  
+9. Harvest 07:10 
+
+
+A limited-edition version of the album containing a bonus DVD featuring four
+professionally recorded live clips from the Party.San Open Air festival 2006,
+the video for the track "The Perpetual Horrors" as well as an interview with
+lead singer Kristoffer Olivius.
+
+The cover artwork was created by Travis Smith 
+
+Kristoffer "Wrath" Olivius - Vocals 
+Andreas Nilsson - Lead Guitar 
+Marcus "Vargher" E. Norman - Rhythm Guitar 
+Peter Morgan Lie - Bass 
+Mattias Grahn - Drums
+
+### "Teras" 2012, Death Metal
+
+T?ras
+Pale Horse
+III: Death Dimension Phantasma
+The Monolith
+An Extension of His Arm and Will
+Bring Out Your Dead
+Come, Perdition
+Invoc(H)ate
+The Dying Flame of Existence
+
 
 ## Отношения с другими группами
 

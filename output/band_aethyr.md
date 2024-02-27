@@ -1,10 +1,31 @@
 # Aethyr
 
-Дискография
-"Messio" 2010, Doom
-"Ave A (EP)" 2011, Doom
-"Cvltvs" 2012, Doom
-"Corpus" 2015, Doom
+
+
+## Дискография
+
+### "Messio" 2010, Doom
+
+
+
+### "Ave A (EP)" 2011, Doom
+
+
+
+### "Cvltvs" 2012, Doom
+
+
+
+### "Corpus" 2015, Doom
+
+1. Nihil Grail
+2. Sanctus Satanicus
+3. Atu
+4. Cvlt
+5. The Gnostic Mass
+6. Corpus
+7. Templum
+
 
 ## Отношения с другими группами
 

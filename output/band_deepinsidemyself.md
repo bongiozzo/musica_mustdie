@@ -1,7 +1,36 @@
 # Deep Inside Myself
 
-Дискография
-"At A Late Hour" 2002, Gothic
+gothic-metal with alternative
+
+## Дискография
+
+### "At A Late Hour" 2002, Gothic
+
+01. Curserow (Intro)
+02. Endless Winter 5:25
+03. Helpless Victim 4:09
+04. The Proof 4:55
+05. One Single Answer 4:30
+06. Misjudgement 5:06
+07. What You May Say 5:40
+08. A Part Of Me 4:49
+09. Without A Trace 4:53
+10. Freedom Counts 5:04
+11. Wishes And Hopes 4:14
+12. The Slave 4:29
+13. Early Autumn 5:50
+
+Marco Bauer - guitar, vocals, programming
+Roman Adam - guitar
+Stephan Laubmeier - bass
+
+All music by Marco except The Proof by
+Marco/Roman;
+All lyrics by Marco;
+Recorded at "Lost Studio G." by Marco
+February-April 2002;
+Mastered by Achim Kohler May 2002;
+
 
 ## Отношения с другими группами
 

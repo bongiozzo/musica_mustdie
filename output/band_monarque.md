@@ -1,9 +1,45 @@
 # Monarque
 
-Дискография
-"Fier Heretique" 2007, Black Metal
-"Ad Nauseam" 2009, Black Metal
-"Blasphemes et Cultes Morbides [compilation]" 2010, Black Metal
+
+
+## Дискография
+
+### "Fier Heretique" 2007, Black Metal
+
+1. Intro: Ces Charognes йparses 00:46  
+2. Fier Hйrйtique 06:18 
+3. Le Vent du Nord 06:48
+4. Passage Dans la Vallйe 04:15  
+5. Extinction 06:21
+6. Marches Funиbres 06:34
+7. Outro: Isolation 01:28 
+
+### "Ad Nauseam" 2009, Black Metal
+
+1. Ouverture 01:55  
+2. Ces Immondices... 05:03 
+3. Mes Blessures 06:16 
+4. Un Essaim de Corbeaux 06:32 
+5. Je ne suis Pas 04:35  
+6. L'Abysse aux Charognes 06:07  
+7. Non-Rйdemption 03:16  
+8. La Vallйe des Larmes 05:21 
+9. Noirceur 03:15 
+
+### "Blasphemes et Cultes Morbides [compilation]" 2010, Black Metal
+
+1. Fier Hйrйtique
+2. Le Vent du Nord
+3. Passage Dans la Vallйe
+4. Extinction
+5. Marches Funиbres / Aliйnation...
+6. Lycanthrope
+7. Cortиge Macabre
+8. La Vallйe des Larmes (Black Book rehearsal)
+9. Je ne suis Pas (demo)
+10. Marches Funиbres (demo)
+11. Funйrailles dans la Vallйe... 
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,17 @@
 # Thorium
 
-Дискография
-"Ocean Of Blasphemy" 2000, Death Metal
-"Unleashing The Demons" 2002, Death Metal
+
+
+## Дискография
+
+### "Ocean Of Blasphemy" 2000, Death Metal
+
+
+
+### "Unleashing The Demons" 2002, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

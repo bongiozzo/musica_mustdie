@@ -1,10 +1,79 @@
 # Fall Of The Leafe
 
-Дискография
-"Storm of the Autumnfall" 1996, Death Metal
-"Evanescent, Everfading" 1998, Death Metal
-"August Wernicke" 2000, Death Metal
-"Fermina" 2002, Black Metal
+death-black-metal
+
+## Дискография
+
+### "Storm of the Autumnfall" 1996, Death Metal
+
+ 1. Into the Autumnsphere
+2. Storm of the Autumnfall
+3. The Garden by the Shoreless Sea
+4. Starfire
+5. Upon the Verdant Vales of North 
+
+### "Evanescent, Everfading" 1998, Death Metal
+
+1. The Celestial Keeper
+2. …And the Heavens Fell
+3. The Garden by the Shoreless Sea
+4. Wings of my Desire Untamed
+5. My Weeping Goddess
+6. Starfire
+7. With Each Fall of the Leafe
+8. Within the Everfrozen Winternight
+9. Evanescent, Everfading
+
+
+
+Recording: May, 1997 at Tico-Tico Studios 
+Mixing and production: Fall of the Leafe & Ahti Kortelainen 
+
+
+
+
+### "August Wernicke" 2000, Death Metal
+
+1. Into the Autumnsphere
+2. Deference, Diminuend
+3. Platinum
+4. I Feathe to the Juniper
+5. Machina Mimesis (In the Corner Cafe)
+6. Lectured by the Demons of Dreams
+7. Wonder Clouds Rain
+8. Effloresce Black & White
+9. In Morning Mood a Utopia-Revelation
+10. Bleak Picture, August
+
+
+
+Recording: July-August 1999 at Popstudio 
+Mixing and production: Fall of the Leafe & Mika Haapasalo 
+
+
+
+
+### "Fermina" 2002, Black Metal
+
+1. Counterfeit Bloom
+2. Feather Duster Premiere
+3. Stumbling Stone
+4. Blind Carbon Copies
+5. Chameleon Loop
+6. Flamenco Scheme
+7. Fermination, Smooth and Fine
+8. Soul Bay Beat
+9. Signatures, Baby Bomb
+
+
+
+Recording: January-April, 2001 at Popstudio 
+Mixing and production: Fall of the Leafe & Mika Haapasalo 
+Mastering: Mika Jussila at Finnvox Studios 
+
+
+
+
 
 ## Отношения с другими группами
 

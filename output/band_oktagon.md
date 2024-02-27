@@ -1,8 +1,45 @@
 # Oktagon
 
-Дискография
-"Empty Words [single]" 2000, Gothic
-"Too Far From You [Mini-CD]" 2001, Gothic
+Progressive Gothic Doom Metal
+
+
+## Дискография
+
+### "Empty Words [single]" 2000, Gothic
+
+1. Empty Words  (6:22)
+2. The Way  (4:01)
+3. Crying Angel  (4:17)
+
+
+Ольга Лопина - вокал
+Илья Рогатов - гитара, клавиши, эффекты
+Сергей "Serg" Курцетов - гитара
+Юрий Бочаров - бас
+Михаил Зубик - ударные 
+
+
+
+
+
+### "Too Far From You [Mini-CD]" 2001, Gothic
+
+1. Empty Words
+2. The Way
+3. Too Far From You
+4. Timerun
+5. Crying Angel
+6. Still Flying (bonus track)
+
+
+Ольга Лопина - вокал
+Илья Рогатов - гитара, клавиши, эффекты
+Сергей "Serg" Курцетов - гитара
+Юрий Бочаров - бас
+Михаил Зубик - ударные 
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,17 @@
 # AnAkA
 
-Дискография
-"Down Devil's Road" 2001, Heavy Metal
-"Rust & Jade" 2004, Heavy Metal
+Heavy Metal/ Hard Rock band
+
+## Дискография
+
+### "Down Devil's Road" 2001, Heavy Metal
+
+
+
+### "Rust & Jade" 2004, Heavy Metal
+
+
+
 
 ## Отношения с другими группами
 

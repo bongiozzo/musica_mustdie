@@ -1,13 +1,100 @@
 # Ancient Ceremony
 
-Дискография
-"Where Serpents Reign" 1993, Black Metal
-"Cemetary Visions" 1996, Black Metal
-"Under Moonlight We Kiss" 1997, Black Metal
-"Fallen Angel's Symphony" 1999, Black Metal
-"Synagoga Diabolica" 2000, Black Metal
-"The Third Testament" 2002, Black Metal
-"P.uritan's B.lasphemy C.all (Ruf-Mord) MCD" 2005, Black Metal
+
+
+## Дискография
+
+### "Where Serpents Reign" 1993, Black Metal
+
+Journey through the Gates
+Where Serpents reign
+Kissing the Goat
+Consumed by Despair
+Poem of Blasphemy
+Moonlight Ceremonies
+Eternal Salvation
+
+### "Cemetary Visions" 1996, Black Metal
+
+1. Forsaken Gardens
+2. Cemetary Visions
+3, The God And The Idol
+4. Choir Of Immortal Queens
+5. An Ode To The Moon
+
+All songs written by ANCIENT CEREMONY
+Produced by A.Dumke and ANCIENT CEREMONY.
+Recorded at Alister Studio, Leiwen
+
+Christian Anderle - Vocals
+F.I.Korebs - Guitar
+Dirk Wirz - Guitar
+Frank Simon - Bass
+Christoph Mertes - Drums
+Stefan Muller - Keyboards
+
+(p)(c) 1996 AUSTER Records
+
+### "Under Moonlight We Kiss" 1997, Black Metal
+
+Eternal Goddess
+Her Ivory Slumber
+Shadows of the Undead
+Vampyre's Birth
+Thy Beauty in Candlelight
+Veil of Desire
+Secrets under blackened Sky
+Dulcet Seduction
+Angel's bloody Tears (...the once naked Flowers dress)
+New Eden embraces
+Pale Nocturnal Majesty
+Under Moonlight we kiss
+
+### "Fallen Angel's Symphony" 1999, Black Metal
+
+1. Death In Desire's Masquerade
+ 2. Bride's Ghostly Grace
+ 3. Black Roses On Her Grave (Desdemona's Secret)
+ 4. The Devil's Paradise
+ 5. The Tragedy Of Forsaken Angels
+ 6. Amidst Crimson Stars
+ 7. Babalon Ascends
+ 8. Symphoni Satani
+ 9. Vampyresque Weddingnight (Moonlight Love)
+
+### "Synagoga Diabolica" 2000, Black Metal
+
+1 Forbidden Fruit Sapientia
+2 Soul Darwinism
+3 Choir Of Immortal Queens
+4 Deorum Contemptor
+5 Crowned Child
+6 Exodus, 10;28
+7 Creeping Death
+
+### "The Third Testament" 2002, Black Metal
+
+Ex Insula Angelorum
+Al Shaitan mahrid
+Litanies in Blood
+Seed of Evil
+A Black Requiem
+With Mephistophelic Egotheism
+The ultimate Nemesis
+On Khaos Wings
+Salute O Satana
+Under Astral Tyranny
+Bells of Damnation
+
+### "P.uritan's B.lasphemy C.all (Ruf-Mord) MCD" 2005, Black Metal
+
+1. Te Deum
+2. P.uritan's B.lasphemy C.all
+3. Raped Paradise
+4. The Black Flame
+5. Diabolos Temptation
+6. God And Idol
+
 
 ## Отношения с другими группами
 

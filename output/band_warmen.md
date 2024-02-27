@@ -1,10 +1,77 @@
 # Warmen
 
-Дискография
-"Unknown Soldier" 2000, Instrumental
-"Beyond Abilities" 2001, Heavy Metal
-"Accept the Fact" 2005, Heavy Metal
-"Japanese Hospitality" 2009, Heavy Metal
+solo-project keyboardman of Children Of Bodom
+
+## Дискография
+
+### "Unknown Soldier" 2000, Instrumental
+
+
+
+### "Beyond Abilities" 2001, Heavy Metal
+
+Beyond Abilities 
+Spark 
+Hidden 
+Trip To... 
+Dawn 
+Singer's Chance 
+Alone 
+Confessions 
+Salieri Strikes Back 
+War Of Worlds 
+Finale
+
+### "Accept the Fact" 2005, Heavy Metal
+
+1. Accept the Fact 
+2. Invisible Power 
+3. Waters of Lethe 
+4. Roppongi Rumble 
+5. They All Blame Me 
+6. Puppet 
+7. Lying Delilah 
+8. Return of Salieri 
+9. Somebody's Watching Me 
+
+Line-Up: 
+Janne Warman – keyboards (Children of Bodom) 
+Antti Warman – guitars (ex-Wisard, Craydawn) 
+Sami Virtanen – guitars (Joe Doakes) 
+Lauri Porra – bass (Ben Granfelt Band) 
+Mirka Rantanen – drums (Tunnelvision)
+
+### "Japanese Hospitality" 2009, Heavy Metal
+
+1. Japanese Hospitality 04:23  
+2. Eye Of The Storm 03:27  
+3. Goodbye 03:40  
+4. My Fallen Angel 04:27  
+5. Don't Bring Her Here 03:02  
+6. High Heels On Cobblestone 03:47  
+7. Switcharoo 04:10  
+8. Black Cat (Janet Jackson cover) 04:23 
+9. Unconditional Confession 03:58  
+10. Separate Ways (Journey cover) 05:26 
+
+
+
+Line-up:
+Janne Warman - Keyboards
+Antti Warman - Guitars
+Jyri Helko - Bass
+Mirka Rantanen - Drums
+
+Guests:
+Alexi Laiho - Vocals (on track 6)
+Timo Kotipelto - Vocals (on track 2)
+Pasi Rantanen - Vocals (on tracks 4 and 10)
+Jonna Kosonen - Vocals (on tracks 3, 5, 8 and 11)
+Marko Vaara - Vocals (on track 9)
+
+Japanese bonus track:
+11. Fading Like A Flower (Roxette cover) 
+
 
 ## Отношения с другими группами
 

@@ -1,11 +1,45 @@
 # Alien
 
-Дискография
-"Alien" 1988, Hard Rock
-"Shiftin Gear" 1990, Hard Rock
-"Crash" 1995, Hard Rock
-"Best & Rare (Double CD)" 1997, Hard Rock
-"Dark Eyes" 2005, Hard Rock
+melidic hard rock
+
+## Дискография
+
+### "Alien" 1988, Hard Rock
+
+
+
+### "Shiftin Gear" 1990, Hard Rock
+
+
+
+### "Crash" 1995, Hard Rock
+
+
+
+### "Best & Rare (Double CD)" 1997, Hard Rock
+
+
+
+### "Dark Eyes" 2005, Hard Rock
+
+1. Dark Eyes 
+2. Don't Go Away 
+3. Oh Sarah 
+4. Fallen Eagle 
+5. Lethal Woman 
+6. Wild One 
+7. Don't Fight It 
+8. Riding With The Wind 
+9. Are You Ready 
+10. Fire (the game) 
+11. Sherylee
+
+Jim Jidhed - vocals & guitars 
+Tony Borg - guitars 
+Mats Sandborgh - keys 
+Berndt Ek - bass 
+Jan Lundberg - drums
+
 
 ## Отношения с другими группами
 

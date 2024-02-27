@@ -1,17 +1,112 @@
 # Clutch
 
-Дискография
-"Transnational Speedway League: Anthems, Anecdotes & Undeniable Truths" 1993, Hard Rock
-"Clutch" 1995, Hard Rock
-"The Elephant Riders" 1998, Hard Rock
-"Jam Room" 1999, Hard Rock
-"Pure Rock Fury" 2001, Hard Rock
-"Blast Tyrant" 2004, Hard Rock
-"Robot Hive/Exodus" 2005, Hard Rock
-"From Beale Street To Oblivion" 2007, Hard Rock
-"Strange Cousins From The West" 2009, Hard Rock
-"Earth Rocker" 2013, Ambient
-"Psychic Warfare" 2015, Rock
+
+
+## Дискография
+
+### "Transnational Speedway League: Anthems, Anecdotes & Undeniable Truths" 1993, Hard Rock
+
+01.   A Shogun Named Marcus (Clutch)
+02.   El Jefe Speaks (Clutch)
+03.   Binge and Purge (Clutch)
+04.   12 Ounce Epilogue (Clutch)
+05.   Bacchanal (Clutch)
+06.   Milk of Human Kindness (Clutch)
+07.   Rats (Clutch)
+08.   Earthworm (Clutch)
+09.   Heirloom (Clutch)
+10.   Walking in the Great Shining Path of... (Clutch)
+11.   Effigy (Clutch)
+
+Steve Haigler  -  Producer, Engineer, Mixing 
+George Marino  -  Mastering 
+Billy Anderson  -  Engineer, Assistant Engineer 
+Jonathan Burnside  -  Producer, Engineer, Mixing 
+Frank Gargiulo  -  Art Direction, Design 
+Neil Fallon  -  Vocals 
+Jean-Paul Gaster  -  Drums 
+Peter Stabuli  -  Engineer, Assistant Engineer 
+Tim Sult  -  Guitar 
+Dan Winters  -  Photography 
+Dan Maines  -  Bass
+
+### "Clutch" 1995, Hard Rock
+
+
+
+### "The Elephant Riders" 1998, Hard Rock
+
+
+
+### "Jam Room" 1999, Hard Rock
+
+
+
+### "Pure Rock Fury" 2001, Hard Rock
+
+01.   American Sleep
+02.   Pure Bock Fury
+03.   Open Tip the Border
+04.   Careful With That Mic
+05.   Red Horse Rainbow
+06.   The Great Outdoors!
+07.   Smike Banshee
+08.   Frankenstien
+09.   Sinkemlow
+10.   Immortal
+11.   Brazenhead
+12.   Drink to the Dead
+13.   Spacegrass [live]
+
+Heartbeat  -  Conga 
+Clutch  -  Drum Technician 
+Jason Corsaro  -  Mixing 
+Oscar Hernandez  -  Guitar Technician 
+Larry Packer  -  Engineer, Overdub Engineer 
+Leslie West  -  Vocals, Producer 
+Ben Elliot  -  Engineer 
+Neil Fallon  -  Organ, Guitar, Executive Producer 
+Jean-Paul Gaster  -  Drums, Executive Producer 
+Tim Sult  -  Guitar, Executive Producer 
+Dan Maines  -  Bass, Executive Producer 
+Chris Sherman  -  Lighting 
+
+
+### "Blast Tyrant" 2004, Hard Rock
+
+
+
+### "Robot Hive/Exodus" 2005, Hard Rock
+
+
+
+### "From Beale Street To Oblivion" 2007, Hard Rock
+
+
+
+### "Strange Cousins From The West" 2009, Hard Rock
+
+
+
+### "Earth Rocker" 2013, Ambient
+
+
+
+### "Psychic Warfare" 2015, Rock
+
+01. The Affidavit
+02. X-Ray Visions
+03. Firebirds
+04. A Quick Death In Texas
+05. Sucker For The Witch
+06. Your Love Is Incarceration
+07. Doom Saloon
+08. Our Lady Of Electric Light
+09. Noble Savage
+10. Behold The Colossus
+11. Decapitation Blues
+12. Son Of Virginia 
+
 
 ## Отношения с другими группами
 

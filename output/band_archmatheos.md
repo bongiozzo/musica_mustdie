@@ -1,7 +1,18 @@
 # Arch/Matheos
 
-Дискография
-"Sympathetic Resonance" 2011, Progressive
+
+
+## Дискография
+
+### "Sympathetic Resonance" 2011, Progressive
+
+01. Neurotically Wired
+02. Midnight Serenade
+03. Stained Glass Sky
+04. On The Fence
+05. Any Given Day (Strangers Like Me)
+06. Incense And Myrrh
+
 
 ## Отношения с другими группами
 

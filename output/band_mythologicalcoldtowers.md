@@ -1,10 +1,55 @@
 # Mythological Cold Towers
 
-Дискография
-"Sphere Of Nebaddon" 1996, Death Doom
-"Remoti Meridiani Hymni Towards The Magnificent Realm Of The Sun" 2000, Death Doom
-"The Vanished Pantheon" 2005, Death Doom
-"Immemorial" 2011, Death Doom
+Brazilian Dark Death-Doom
+
+## Дискография
+
+### "Sphere Of Nebaddon" 1996, Death Doom
+
+1.  In The Forgotten Melancholic Waves Of The Eternal Sea
+2.  Celestial Dimensions Into Silence
+3.  The Vastness Of A Desolated Glory
+4.  Slaves In The Imaginary Abyssal Line
+5.  Exotic Voluptuousness Of A Lost Feeling Of Life
+6.  Golden Bells From The Eternal Frost
+7.  Mythological Cold Towers
+8.  :Of Inexistancy
+9.  A Portal To My Darkest Soul
+10.  Sphere Of Nebaddon
+
+All music By Nechron, Flagellum & Hamon.
+Recorded & Mixed In Brazil, January 1995.
+Engineered By Tchelo Martins.
+Mastered At R.M.S. Studios, France.
+
+Samej - Vocals & Whisperings
+Akenaton - Keyboards
+Flagellum - Guitars
+Nechron - Guitars
+Hamon - Drums
+Leonard - Bass
+
+(P)c 1995 SOUND RIOT Records
+
+### "Remoti Meridiani Hymni Towards The Magnificent Realm Of The Sun" 2000, Death Doom
+
+
+
+### "The Vanished Pantheon" 2005, Death Doom
+
+
+
+### "Immemorial" 2011, Death Doom
+
+1. Lost Path to Ma-Noa 04:09 
+2. Akakor 06:45 
+3. Enter the Halls... 07:52 
+4. The Shrines of Ibez 05:19 
+5. Like an Ode Forged in Immemorial Eras 05:29 
+6. Fallen Race 09:26 
+7. Immemorial 05:35
+
+
 
 ## Отношения с другими группами
 

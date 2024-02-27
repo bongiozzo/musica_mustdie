@@ -1,7 +1,13 @@
 # Inertia
 
-Дискография
-"Black Ice Impact" 2005, Gothic
+
+
+## Дискография
+
+### "Black Ice Impact" 2005, Gothic
+
+
+
 
 ## Отношения с другими группами
 

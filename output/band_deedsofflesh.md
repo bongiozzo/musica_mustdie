@@ -1,14 +1,63 @@
 # Deeds Of Flesh
 
-Дискография
-"Gradually Melted (EP)" 1995, Death Metal
-"Trading Pieces" 1996, Death Metal
-"Inbreeding The Anthropophagi" 1998, Death Metal
-"Path Of The Weakening" 1999, Death Metal
-"Mark Of The Legion" 2001, Death Metal
-"Reduced To Ashes" 2003, Death Metal
-"Crown Of Souls" 2005, Death Metal
-"Of What's To Come" 2008, Death Metal
+Brutal Death Grind
+
+## Дискография
+
+### "Gradually Melted (EP)" 1995, Death Metal
+
+
+
+### "Trading Pieces" 1996, Death Metal
+
+1.  Carnivorous Ways
+2.  Born Then Torn Apart
+3.  Trading Pieces
+4.  Hunting Humans
+5.  Impious Offerings 
+6.  Acid Troops
+7.  Deeds Of Flesh
+8.  Erected On Stakes
+9.  Chunks In The Shower
+10. Blasted
+
+Erik - Guitars, Vocals
+Jacoby - Bass, Vocals
+Joey - Drums
+
+Produced by DEEDS OF FLESH.
+
+Recorded and Mixed at Moon Productions.
+Engineered by Tom Gingle.
+Cover Artwork by Jackie.
+Band Residence: USA.
+
+(p)(c) 1996 REPULSE  RPS 016
+
+### "Inbreeding The Anthropophagi" 1998, Death Metal
+
+
+
+### "Path Of The Weakening" 1999, Death Metal
+
+
+
+### "Mark Of The Legion" 2001, Death Metal
+
+
+
+### "Reduced To Ashes" 2003, Death Metal
+
+
+
+### "Crown Of Souls" 2005, Death Metal
+
+
+
+### "Of What's To Come" 2008, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

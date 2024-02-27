@@ -1,10 +1,75 @@
 # Гаина, Валерий
 
-Дискография
-"Gain" 1995, Heavy Metal
-"Снова Твой" 2006, Heavy Metal
-"С Кем Ты Играешь и Поёшь?!" 2008, Heavy Metal
-"Fingertips" 2011, Heavy Metal
+экс-Круиз
+
+## Дискография
+
+### "Gain" 1995, Heavy Metal
+
+1. You and Me	 
+2. Crazy Russian Life	 
+3. Fair Child2	 
+4. Feel my Fear	 
+5. Chain Reaction	 
+6. Hit for MTV
+7. Secret Passion	 
+8. Illusions Never Last	 
+9. Cannot Carry the World	 
+10. Woman in a Cage	 
+11. Still Waiting for Armistice
+12. Come With Us, Pilgrim Man	 
+13. Culture Shock	 
+14. Hit for MTV (Kruiz version)
+
+### "Снова Твой" 2006, Heavy Metal
+
+1. Ветер Мой, Ветер (Wind, My Wind)	 
+2. Пусть Тебе Будет Жаль (Let It Be That You Regret)	 
+3. Если (If)	 
+4. Снова Твой (Your's Again)	 
+5. Времени Река (River of Time)	 
+6. Возьми Печаль и Боль с Собой (Take the Sadness and Pain with You)	 
+7. Мне с Тобой не Взлететь (I Can't Take off with You)	 
+8. Милый Ангел (Dear Angel)	 
+9. Я не Знал (I Didn't Know)	 
+10. Когда (When)	 
+11. Я Ушёл (Звенящий Сон) (I Went Away (Jingly Dream))	 
+12. Мне не Хватает Слов (I Won't Have Enough Words)	 
+13. Тишина (Silence)	 
+14. Там (There)	 
+15. Пусть Тебе Будет Жаль (Let It Be That You Regret)
+16. Когда? (When?) (Louis mix)
+
+### "С Кем Ты Играешь и Поёшь?!" 2008, Heavy Metal
+
+1. Время	 
+2. Это Твой День	 
+3. С Кем Ты Играешь и Поёшь?!	 
+4. Кануло в Лету	 
+5. Письмо	 
+6. Наш Парень	 
+7. Хочешь не верить… 
+8. Привет-Пока! 
+9. Так Дай Же Мне
+10. Я Иду	 
+11. Плыви по Течению	 
+12. Switching Lanes (bonus track)
+
+### "Fingertips" 2011, Heavy Metal
+
+1. Fingertips
+2. The Raptor	
+3. Творец
+4. Punch In
+5. Big Time
+6. Война	
+7. Slow Go
+8. Go For It
+9. Твой Путь
+10. Down Under
+11. Не Убий, и не Убей	
+12. Clean Run
+
 
 ## Отношения с другими группами
 

@@ -1,10 +1,34 @@
 # Panzerchrist
 
-Дискография
-"Six Seconds Kill" 1996, Death Metal
-"Outpost Fort Europe" 1998, Death Metal
-"Soul Collector" 2000, Death Metal
-"Room Service" 2003, Death Metal
+
+
+## Дискография
+
+### "Six Seconds Kill" 1996, Death Metal
+
+
+
+### "Outpost Fort Europe" 1998, Death Metal
+
+
+
+### "Soul Collector" 2000, Death Metal
+
+
+
+### "Room Service" 2003, Death Metal
+
+1. Tomorrow 
+2. Creature 
+3. Lies 
+4. Suicide 
+5. At The Grave 
+6. Death Approaches 
+7. Metal Church 
+8. Room Service 
+9. The Red River 
+10. Evil
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,37 @@
 # Absence, The
 
-Дискография
-"From Your Grave" 2005, Melodic Death Metal
-"Riders of the Plague" 2007, Melodic Death Metal
+
+
+## Дискография
+
+### "From Your Grave" 2005, Melodic Death Metal
+
+1. Intro 01:39
+2. A Breath Beneath 04:40
+3. Necropolis 04:21
+4. From Your Grave 04:15
+5. Heaven Ablaze 04:44 
+6. Summoning the Darkness 05:24 
+7. Shattered 01:12
+8. I, Deceiver 04:35
+9. My Ruin 05:17
+10. Seven Demons 06:10 
+
+### "Riders of the Plague" 2007, Melodic Death Metal
+
+1. Riders of the Plague 04:01 
+2. Dead and Gone 05:04
+3. The Murder 05:22
+4. Echos 05:05
+5. World Divides 05:35
+6. Prosperity 04:08  
+7. Untitled 00:04  
+8. Awakening 05:13 
+9. Merciless 06:44
+10. Into the Pit (Testament cover) 02:48
+11. The Victorious Dead 04:16
+12. Outro 07:03 
+
 
 ## Отношения с другими группами
 

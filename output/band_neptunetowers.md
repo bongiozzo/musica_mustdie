@@ -1,7 +1,19 @@
 # Neptune Towers
 
-Дискография
-"Transmissions From Empire Algol" 1995, Ambient
+
+
+## Дискография
+
+### "Transmissions From Empire Algol" 1995, Ambient
+
+1. First Communion. Mode: Direct
+2. To Cold Void Desolation
+
+Created By Fenriz.
+Recorded, Produced & Engineered By Fenriz
+
+(P)&(C) 1995 MOONFOG Records
+
 
 ## Отношения с другими группами
 

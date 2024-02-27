@@ -1,6 +1,9 @@
 # Alpha Scorpii
 
-Дискография
+russian ethereal darkwave
+
+## Дискография
+
 
 ## Отношения с другими группами
 

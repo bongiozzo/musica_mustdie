@@ -1,12 +1,42 @@
 # Radio Moscow
 
-Дискография
-"Radio Moscow" 2007, Rock
-"Brain Cycles" 2009, Rock
-"The Great Escape Of Leslie Magnafuzz" 2011, Rock
-"3 & 3 Quarters" 2012, Rock
-"Rancho Tehama (EP)" 2013, Rock
-"Magical Dirt" 2014, Rock
+
+
+## Дискография
+
+### "Radio Moscow" 2007, Rock
+
+
+
+### "Brain Cycles" 2009, Rock
+
+
+
+### "The Great Escape Of Leslie Magnafuzz" 2011, Rock
+
+
+
+### "3 & 3 Quarters" 2012, Rock
+
+
+
+### "Rancho Tehama (EP)" 2013, Rock
+
+
+
+### "Magical Dirt" 2014, Rock
+
+01. So Alone
+02. Rancho Tehama Airport
+03. Death of a Queen
+04. Sweet Lil Thing
+05. These Days
+06. Bridges
+07. Gypsy Fast Woman
+08. Got the Time
+09. Before It Burns
+10. Stinging
+
 
 ## Отношения с другими группами
 

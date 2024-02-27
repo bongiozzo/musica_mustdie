@@ -38,7 +38,7 @@
 Год: 1959
 
 Группа: Presley, Elvis
-Альбом: "His Hand in Mine"
+Альбом: "Elvis Is Back!"
 Стиль: Rock and Roll
 Год: 1960
 
@@ -48,7 +48,7 @@
 Год: 1960
 
 Группа: Presley, Elvis
-Альбом: "Elvis Is Back!"
+Альбом: "His Hand in Mine"
 Стиль: Rock and Roll
 Год: 1960
 
@@ -73,12 +73,12 @@
 Год: 1963
 
 Группа: Presley, Elvis
-Альбом: "It Happened at the World's Fair"
+Альбом: "Girls! Girls! Girls!"
 Стиль: Rock and Roll
 Год: 1963
 
 Группа: Presley, Elvis
-Альбом: "Girls! Girls! Girls!"
+Альбом: "It Happened at the World's Fair"
 Стиль: Rock and Roll
 Год: 1963
 
@@ -113,19 +113,14 @@
 Год: 1966
 
 Группа: Presley, Elvis
-Альбом: "Spinout"
-Стиль: Rock and Roll
-Год: 1966
-
-Группа: Presley, Elvis
 Альбом: "Paradise, Hawaiian Style"
 Стиль: Rock and Roll
 Год: 1966
 
 Группа: Presley, Elvis
-Альбом: "How Great Thou Art"
+Альбом: "Spinout"
 Стиль: Rock and Roll
-Год: 1967
+Год: 1966
 
 Группа: Presley, Elvis
 Альбом: "Clambake"
@@ -137,18 +132,23 @@
 Стиль: Rock and Roll
 Год: 1967
 
+Группа: Presley, Elvis
+Альбом: "How Great Thou Art"
+Стиль: Rock and Roll
+Год: 1967
+
 Группа: Wurzel
 Альбом: "Bess (EP)"
 Стиль: Rock and Roll
 Год: 1987
 
-Группа: Spiha
-Альбом: "Ecoreactor"
+Группа: Doc Holliday
+Альбом: "Good Time Music"
 Стиль: Rock and Roll
 Год: 2003
 
-Группа: Doc Holliday
-Альбом: "Good Time Music"
+Группа: Spiha
+Альбом: "Ecoreactor"
 Стиль: Rock and Roll
 Год: 2003
 
@@ -182,11 +182,6 @@
 Стиль: Rock and Roll
 Год: 2005
 
-Группа: The Winyls
-Альбом: "Honey And Lime"
-Стиль: Rock and Roll
-Год: 2008
-
 Группа: Malignant Tumour
 Альбом: "In Full Swing"
 Стиль: Rock and Roll
@@ -194,6 +189,11 @@
 
 Группа: Nashville Pussy
 Альбом: "Live! In Hollywood (DVD)"
+Стиль: Rock and Roll
+Год: 2008
+
+Группа: The Winyls
+Альбом: "Honey And Lime"
 Стиль: Rock and Roll
 Год: 2008
 

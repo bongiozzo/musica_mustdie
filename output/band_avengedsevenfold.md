@@ -1,15 +1,189 @@
 # Avenged Sevenfold
 
-Дискография
-"Sounding the Seventh Trumpet" 2001, Metalcore
-"Waking the Fallen" 2003, Metalcore
-"City of Evil" 2005, Heavy Metal
-"All Excess (DVD)" 2007, Metalcore
-"Avenged Sevenfold" 2007, Heavy Metal
-"Live in the LBC & Diamonds in The Rough (DVD+CD)" 2008, Heavy Metal
-"Nightmare" 2010, Heavy Metal
-"Welcome To The Family (EP)" 2010, Heavy Metal
-"Hail to the King" 2013, Heavy Metal
+A7X
+
+## Дискография
+
+### "Sounding the Seventh Trumpet" 2001, Metalcore
+
+1.«To End The Rapture» — 1:24
+2.«Turn The Other Way» — 5:37
+3.«Darkness Surrounding» — 4:49
+4.«The Art Of Subconscious Illusion» — 3:46
+5.«We Come Out At Night» — 4:45
+6.«Lips Of Deceit» — 4:09
+7.«Warmness On The Soul» — 4:20
+8.«An Epic Of Time Wasted» — 4:19
+9.«Breaking Their Hold» — 1:12
+10.«Forgotten Faces» — 3:27
+11.«Thick And Thin» — 4:15
+12.«Streets» — 3:06
+13.«Shattered By Broken Dreams» — 7:04
+
+
+M. Shadows — вокал
+Zacky Vengeance — гитара
+Justin Sane — басы и пианино
+The Reverend Tholomew Plague — ударные
+Synyster Gates — гитара в «To End the Rapture» (переиздание)
+Dameon Ash — басы (переиздание)
+
+
+### "Waking the Fallen" 2003, Metalcore
+
+1.«Waking the Fallen» — 1:42
+2.«Unholy Confessions» — 4:45
+3.«Chapter Four» — 5:44
+4.«Remenissions» — 6:06
+5.«Desecrate Through Reverence» — 5:38
+6.«Eternal Rest» — 5:12
+7.«Second Heartbeat» — 7:00
+8.«Radiant Eclipse» — 6:09
+9.«I Won’t See You Tonight (Part 1)» — 8:58
+10.«I Won’t See You Tonight (Part 2)» — 4:44
+11.«Clairvoyant Disease» — 4:59
+12.«And All Things Will End» — 7:40
+
+
+
+M. Shadows — вокал
+Synyster Gates — лидер-гитара
+Zacky Vengeance — ритм-гитара
+Johnny Christ — бас-гитара
+The Rev — ударные
+
+
+### "City of Evil" 2005, Heavy Metal
+
+1.Beast and the Harlot
+2.Burn It Down
+3.Blinded In Chains
+4.Bat Country
+5.Trashed and Scattered
+6.Seize the Day
+7.Sidewinder
+8.The Wicked End
+9.Strength of the World
+10.Betrayed
+11.M.I.A.
+
+
+
+M. Shadows – вокал
+Synyster Gates – гитара, бэк-вокал, фортепиано
+Zacky Vengeance – гитара, бэк-вокал
+Johnny Christ – бас, бэк-вокал
+The Rev – ударные, перкуссия, бэк-вокал, фортепиано 
+
+
+### "All Excess (DVD)" 2007, Metalcore
+
+
+
+### "Avenged Sevenfold" 2007, Heavy Metal
+
+1.«Critical Acclaim» — 5:15
+2.«Almost Easy» — 3:54
+3.«Scream» — 4:50
+4.«Afterlife» — 5:51
+5.«Gunslinger» — 4:11
+6.«Unbound (The Wild Ride)» — 5:11
+7.«Brompton Cocktail» — 4:12
+8.«Lost» — 5:01
+9.«A Little Piece of Heaven» — 8:02
+10.«Dear God» — 6:33
+
+
+M. Shadows – вокал, клавишные
+Synyster Gates – гитара, бэк-вокал
+Zacky Vengeance – гитара, бэк-вокал
+Johnny Christ – бас, бэк-вокал
+The Rev – ударные, перкуссия, бэк-вокал 
+
+
+### "Live in the LBC & Diamonds in The Rough (DVD+CD)" 2008, Heavy Metal
+
+DVD
+1.Critical Acclaim
+2.Second Heartbeat
+3.Afterlife
+4.Beast and the Harlot
+5.Scream
+6.Seize the Day
+7.Walk
+8.Bat Country
+9.Almost Easy
+10.Gunslinger
+11.Unholy Confessions
+12.A Little Piece of Heaven
+
+
+CD
+1.Demons
+2.Girl I Know
+3.Crossroads
+4.Flash of the Blade (Кавер на Iron Maiden)
+5.Until the End
+6.Tension
+7.Walk (Кавер на Pantera)
+8.The Fight
+9.Dancing Dead
+10.Almost Easy (Ремикс для Need for Speed ProStreet)
+11.Afterlife (Альтернативная версия)
+
+
+
+M. Shadows – вокал, клавишные
+Synyster Gates – гитара, бэк-вокал
+Zacky Vengeance – гитара, бэк-вокал
+Johnny Christ – бас, бэк-вокал
+The Rev – ударные, перкуссия, бэк-вокал
+
+### "Nightmare" 2010, Heavy Metal
+
+1. «Nightmare» 6:14 
+2. «Welcome to the Family» 4:07 
+3. «Danger Line» 5:30 
+4. «Buried Alive» 6:43 
+5. «Natural Born Killer» 5:17 
+6. «So Far Away» 5:29 
+7. «God Hates Us» 5:21 
+8. «Victim» 7:31 
+9. «Tonight the World Dies» 4:43 
+10. «Fiction» 5:14 
+11. «Save Me» 10:56 
+iTunes Bonus Track 
+12. «Lost It All» 
+
+
+M. Shadows – Вокал
+Synyster Gates – Соло гитара, бэк вокал
+Zacky Vengeance – Ритм гитара guitar, бэк вокал
+Johnny Christ – Бас , бэк вокал
+The Rev - Пианино, Ударные, и вокал на "Fiction"
+
+Приглашённые музыканты:
+Mike Portnoy – ударные
+Brian Haner, Sr. – гитара
+Sharlotte Gibson – бэк-вокал
+Jessi Collins – бэк-вокал
+David Palmer – фортепиано, клавишные
+Stevie Blacke – струнные
+Stewart Cole – труба
+Mike Elizondo – клавишные 
+
+### "Welcome To The Family (EP)" 2010, Heavy Metal
+
+1. Welcome to the Family 4:05 
+2. 4:00 AM 5:00 
+3. Seize the Day (Live in Seattle) 5:38 
+
+
+
+### "Hail to the King" 2013, Heavy Metal
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,23 @@
 # Sister
 
-Дискография
-"Hated" 2011, Metal
+
+
+## Дискография
+
+### "Hated" 2011, Metal
+
+1. Radioactive Misery
+2. Body Blow
+3. Bullshit & Backstabbing
+4. Hated
+5. Motherfuckers (Like You)
+6. Werewolves On Blackstreet
+7. Spit On Me
+8. The Unlucky Minority
+9. Would You Love A Creature
+10. Too Bad For You
+11. Drag Me To The Grave
+
 
 ## Отношения с другими группами
 

@@ -1,6 +1,9 @@
 # Bloodboil
 
-Дискография
+brutal earsplitting death metal from Holland
+
+## Дискография
+
 
 ## Отношения с другими группами
 

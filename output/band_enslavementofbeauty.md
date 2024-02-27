@@ -1,10 +1,91 @@
 # Enslavement Of Beauty
 
-Дискография
-"Traces O'Red" 2000, Black Metal
-"Megalomania" 2001, Black Metal
-"Mere Contemplations " 2007, Black Metal
-"The Perdition" 2009, Black Metal
+Melodic Black Metal
+
+## Дискография
+
+### "Traces O'Red" 2000, Black Metal
+
+1) In Thro` the Cave of Impressions 1.29
+2) Traces o` Red - the fall and rise of vitality 4.30
+3) Be Thou My Lethe and Bleeding Quietus 4.29
+4) Dreams 4.24
+5) Something Unique 4.14
+6) The Poem of Dark Subconscious Desire 5.05
+7) Eerily Seductive 4.32
+8) My Irreverent Pilgrimage 4.14
+9) And Still I Wither 5.14
+10) I Dedicate My Beauty to the Stars 11.10 
+
+Released: October 1999
+Label: Head Not Found 
+Distribution: Voices of Wonder
+
+
+
+
+
+
+### "Megalomania" 2001, Black Metal
+
+1. Dainty Delusive Doll
+2. The Venial Blur
+3. Late Night, Red Wine Blight
+4. Malignant Midwinter Murders
+5. Comme Il Faut
+6. Benign Bohemian Brilliance
+7. Prudence Kept Her Purity
+8. Seven Dead Orchids
+9. The Dying Buds Of May
+10. Fifteen Minutes
+11. Ye That Tempteth, Ye That Bequeth
+12. C17-H19-NO3-H2O
+13. Tangled In Grand Affection
+
+Ole Alexander Myrholt - vocals
+Tony Eugene Tunheim - guitars,programming
+Asgeir Mickelson - drums
+Hans-Age Holmen - bass
+Fred Endresen - synth adds /fx and percussion 
+
+
+
+
+### "Mere Contemplations " 2007, Black Metal
+
+1. A Study of Love and Metaphors 03:21
+2. X and Moments 04:07 
+3. The Perilous Pursuit of Volition 03:31  
+4. Exit There; And Disappear 05:07  
+5. An Affinity for Exuberance 03:58  
+6. Abundance Extends to Lush 03:44
+7. I Raise My Craving Hands 03:27
+8. Nostalgia Grows 03:10  
+9. Impressions 04:07  
+10. 11:23 pm 05:12 
+
+
+### "The Perdition" 2009, Black Metal
+
+1. (Intro) A Kodak Kiss 01:06  
+2. I Treasure the Sadness 04:25  
+3. Lush 03:42  
+4. Severely Flawed 04:25  
+5. Mirror Souls 04:22  
+6. I Descend to Perdition... 03:19 
+
+
+
+The Perdition is an upcoming EP from the Norwegian metal band Enslavement of
+Beauty that will be released in earliest 2009. The album was recorded at
+Farmyard Studio and Kamfer Studios, in Mosjшen, Norway and will be released by
+INRI Unlimited. All music are written and performed by Tony Eugene Tunheim, the
+lyrics are written and vocals performd by Ole Alexander Myrholt. Cover art by
+Sten Brian Tunheim. The EP will be mixed and mastered by Henrik Ryцsд at
+SCANIMETAL in Luleе, Sweden. A video for the song "Lush", produced by Sten
+Brian Tunheim, was recorded in Bergen in springtime 2008. 
+
+
 
 ## Отношения с другими группами
 

@@ -1,12 +1,76 @@
 # Hibria
 
-Дискография
-"Defying The Rules" 2005, Heavy Metal
-"The Skull Collectors" 2008, Heavy Metal
-"Blind Ride" 2011, Heavy Metal
-"Silent Revenge" 2013, Heavy Metal
-"Defying the Rules: 10th Anniversary" 2014, Heavy Metal
-"Hibria" 2015, Heavy Metal
+
+
+## Дискография
+
+### "Defying The Rules" 2005, Heavy Metal
+
+01. Steel Lord On Wheels
+02. Change Your Life Line
+03. Millennium Quest
+04. A Kingdom To Share
+05. Living Under Ice
+06. Defying The Rules
+07. The Faceless In Charge
+08. High Speed Breakout
+09. Stare At Yourself
+
+Diego Kasper - guitars
+Marco Panichi - bass
+Iuri Sanson - vocals
+Abel Camargo - guitars
+Savio Sordi - drums
+
+All songs composed, arranged and performed by
+Hibria.
+All songs recorded by Fabio Lentino at Studio 1000
+-
+Porto Allegro, Brazil, except bass guitar on
+"Steel Lord
+On Wheels" and "Change Your Life Line" recorded at
+Studios del Rei - Buenos Aires, Argentina by E.
+Obregon.
+Mixed and mastered by Piet Sielck at
+Powerhouse Studios - Hamburg, Germany.
+Produced by Diego Kasper and Marco Panichi.
+Synth programming by Diego Kasper.
+All synths recorded at Studios del Rei - Buenos
+Aires, Argentina by E. Obregon.
+Cover illustration by Daniel HDR.
+Cover color by Sola Moon.
+Cover concept by Marco Panichi.
+Bookelt by Diego Kasper.
+Picture by Christiano Witt.
+
+### "The Skull Collectors" 2008, Heavy Metal
+
+1. Tiger Punch 04:14
+2. Reborn from Ashes 04:50
+3. Screaming Ghost 05:15
+4. Sea of Revenge 04:42
+5. The Anger Inside 04:53
+6. Devoted to Your Fear 06:40
+7. The Skull Collectors 05:15 
+8. Burning All the Flags 05:12
+9. Wings of Wax 08:37 
+
+### "Blind Ride" 2011, Heavy Metal
+
+
+
+### "Silent Revenge" 2013, Heavy Metal
+
+
+
+### "Defying the Rules: 10th Anniversary" 2014, Heavy Metal
+
+
+
+### "Hibria" 2015, Heavy Metal
+
+
+
 
 ## Отношения с другими группами
 

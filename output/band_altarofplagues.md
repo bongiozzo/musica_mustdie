@@ -1,11 +1,29 @@
 # Altar Of Plagues
 
-Дискография
-"Through The Cracks Of The Earth (EP)" 2007, Black Metal
-"Sol (EP)" 2008, Black Metal
-"White Tomb" 2009, Black Metal
-"Tides (EP)" 2010, Black Metal
-"Mammal" 2011, Black Metal
+
+
+## Дискография
+
+### "Through The Cracks Of The Earth (EP)" 2007, Black Metal
+
+
+
+### "Sol (EP)" 2008, Black Metal
+
+
+
+### "White Tomb" 2009, Black Metal
+
+
+
+### "Tides (EP)" 2010, Black Metal
+
+
+
+### "Mammal" 2011, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

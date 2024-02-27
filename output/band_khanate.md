@@ -1,9 +1,24 @@
 # Khanate
 
-Дискография
-"No Joy (remix) 12"" , Metal
-"Khanate" 2001, Industrial
-"Things Viral" 2003, Alternative
+James Plotkin`s (OLD) project
+
+## Дискография
+
+### "No Joy (remix) 12"" , Metal
+
+
+
+### "Khanate" 2001, Industrial
+
+
+
+### "Things Viral" 2003, Alternative
+
+Stephen O'Malley - guitars 
+James Plotkin - bass
+Alan Dubin - vocal
+Tim Wyskida - drums
+
 
 ## Отношения с другими группами
 

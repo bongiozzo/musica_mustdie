@@ -1,7 +1,35 @@
 # Thyestean Feast
 
-Дискография
-"Cycles Of Worldburn" 2002, Black Metal
+
+
+## Дискография
+
+### "Cycles Of Worldburn" 2002, Black Metal
+
+01. Cindemonium
+02. White Widow
+03. Order of the Elder Serpent
+04. Oblivions Bliss
+05. The Fall of Astraea
+06. Unio Mystica
+07. Cycles of Worldburn
+08. Prophecy of the Last Days
+09. Chimera Curse
+10. Treason
+
+
+
+m. saarinen
+m. hakkinen
+m. saikkonen
+j. savimaki
+t. sotikoff
+
+
+Recorded at Sonic Pump Studios between 7.9 and
+7.10.2001
+
+
 
 ## Отношения с другими группами
 

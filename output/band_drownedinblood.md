@@ -1,7 +1,19 @@
 # Drowned In Blood
 
-Дискография
-"The Warefare Continues" 2005, Death Metal
+
+
+## Дискография
+
+### "The Warefare Continues" 2005, Death Metal
+
+01. Warfare's Graves
+02. Brutal Execution
+03. Grind Down... Enemies
+04. Born To Kill 
+05. Warlike Canibalism
+06. Fire Discipline
+07. Troops of Chaos
+
 
 ## Отношения с другими группами
 

@@ -1,12 +1,120 @@
 # Bloodbound
 
-Дискография
-"Nosferatu" 2006, Heavy Metal
-"Book Of The Dead" 2007, Heavy Metal
-"Tabula Rasa" 2009, Heavy Metal
-"Unholy Cross" 2011, Heavy Metal
-"In The Name Of Metal" 2012, Heavy Metal
-"Stormborn" 2014, Heavy Metal
+
+
+## Дискография
+
+### "Nosferatu" 2006, Heavy Metal
+
+1. Behind The Moon 06:27 
+2. Into The Dark 04:31 
+3. Nosferatu 06:23 
+4. Metal Monster 04:24 
+5. Crucified 03:50 
+6. Desdemonamelia 04:14  
+7. Fallen From Grace 04:45 
+8. Screams In The Night 04:40 
+9. For The King 03:49 
+10. Midnight Sun 03:51 
+11. On The Battlefield 05:57 
+
+
+Urban Breed - Vocals 
+Tomas Olsson - Lead & Rhythm Guitar
+Fredrik Bergh - Bass, Keyboards & Backing Vocals
+Markus Albertson - Rhythm Guitar
+Jцrgen Andersson - Bass
+Pelle Еkerlind - Drums
+
+### "Book Of The Dead" 2007, Heavy Metal
+
+01. Sign Of The Devil
+02. The Tempter
+03. Book Of The Dead
+04. Bless The Unholy
+05. Lord Of Battle
+06. Flames Of Purgatory
+07. Into Eternity
+08. Black Heart
+09. Black Shadows
+10. Turn To Stone
+11. Seven Angels
+
+### "Tabula Rasa" 2009, Heavy Metal
+
+1. Sweet Dreams of Madness 04:34  
+2. Dominion 5 05:06  
+3. Take One 04:05
+4. Tabula Rasa 03:42 
+5. Night Touches You 04:18 
+6. Tabula Rasa, Pt. 2 (Nothing At All) 03:33 
+7. Plague Doctor 03:45 
+8. Master of My Dreams 03:34 
+9. Twisted Kind of Fate 03:45
+10. All Rights Reserved 04:32  
+11. A Year With Bloodbound (bonus video; limited digipack) 02:54 
+Bonus track for Japan:
+11. The Crying Kitten 
+
+
+
+### "Unholy Cross" 2011, Heavy Metal
+
+1. Moria 05:40  
+2. Drop The Bomb 03:56  
+3. The Ones We Left Behind 05:21  
+4. Reflections Of Evil 04:21  
+5. In For The Kill 04:29  
+6. Together We Fight 05:21  
+7. The Dark Side Of Life 03:58  
+8. Brothers Of War 05:06  
+9. Message From Hell 03:30  
+10. In The Dead Of Night 04:01  
+11. Unholy Cross 04:46 
+
+### "In The Name Of Metal" 2012, Heavy Metal
+
+1. In the Name of Metal  04:16  
+2. When Demons Collide  04:11 
+3. Bonebreaker  03:05  
+4. Metalheads Unite  05:00  
+5. Son of Babylon  03:19  
+6. Mr. Darkness  03:15   
+7. I'm Evil  03:55   
+8. Monstermind  03:34   
+9. King of Fallen Grace  03:19   
+10. Black Devil  03:47   
+11. Bounded by Blood  04:07 
+
+ Produced by Bloodbound
+ All songs published by Bloodbound 
+ Recorded at Bloodbound Studios, Bollnдs, Sweden
+ Drums recorded by: Pelle Еkerlind & Per Ryberg at Sound Creation, Bollnдs, Sweden
+ Programming & Keyboards recorded by: Fredrik Bergh at The Cabin, Bollnдs, Sweden 
+ Mixed & mastered at Black Lounge, Pдrlby, Sweden
+ Booklet artwork by: AFM Records
+ Make-up artist: Ester Berggren
+
+ Japanese version comes with a bonus track:
+ 12. Book of the Dead (2012 Version) (3:54)
+
+
+### "Stormborn" 2014, Heavy Metal
+
+01. Bloodtale  01:43   
+02. Satanic Panic  04:30  
+03. Iron Throne  03:36    
+04. Nightmares from the Grave  05:13    
+05. Stormborn  05:50    
+06. We Raise the Dead  03:55 
+07. Made of Steel  03:52    
+08. Blood of My Blood  03:51  
+09. When the Kingdom Will Fall  05:39 
+10. Seven Hells  04:01    
+11. When All Lights Fail  04:08    
+
+
+
 
 ## Отношения с другими группами
 

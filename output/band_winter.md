@@ -1,8 +1,46 @@
 # Winter
 
-Дискография
-"Into Darkness" 1992, Death Metal
-"Eternal Frost" 1994, Death Metal
+
+
+## Дискография
+
+### "Into Darkness" 1992, Death Metal
+
+1. Oppression Freedom
+2. Oppression (Reprise)
+3. Servants Of The Warsmen
+4. Goden
+5. Power And Might
+6. Destiny
+7. Eternal Frost
+8. Into Darkness
+
+All Music By Alan Alman & Stephen Flam.
+All Lyrics By Joe Goncalves.
+Produced By WINTER & Greg Marchak.
+Engineered By Greg Marchak.
+Executive Producer: Markus Staiger.
+Recorded April-May 1990 At S.O.S. Studios,
+Hempsted,NY.
+
+(p)&(c) 1992 NUCLEAR BLAST Records
+
+### "Eternal Frost" 1994, Death Metal
+
+1. Servants Of The Warsmen
+2. Eternal Frost
+3. Winter
+4. Black Whole
+
+ John Alman - Vocals, Bass
+ Stephen Flam - Guitars
+ Joe Gancaluis - Drums
+
+All Songs Written By WINTER
+Produced & Engineered By WINTER & Greg Marcheck
+
+(p)&(c) 1994 NUCLEAR BLAST Records
+
 
 ## Отношения с другими группами
 

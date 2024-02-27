@@ -1,16 +1,210 @@
 # Lake of Tears
 
-Дискография
-"Greater Art" 1994, Death Doom
-"Headstones" 1995, Death Doom
-"Lady Rosenred (single)" 1997, Gothic
-"A Crimson Cosmos" 1997, Gothic
-"Forever Autumn" 1999, Gothic
-"The Neonai" 2002, Gothic
-"Sorcerers (single)" 2002, Gothic
-"Black Brick Road" 2004, Gothic
-"Moons And Mushrooms" 2007, Gothic
-"Illwill" 2011, Heavy Metal
+Great Death-Doom-Gothic
+
+## Дискография
+
+### "Greater Art" 1994, Death Doom
+
+1. Under The Crescent*
+2. Eyes Of The Sky
+3. Upon The Highest Mountain
+4. Greater Art
+6. Evil Inside*
+7. Netherworld
+8. Tears
+
+Daniel Brennare - Vocals, Lead Guitar
+Jonas Eriksson - Rhythm Guitar
+Mikael Larsson - Bass
+Johan Oudhuis - Drums
+
+All Keyboards Played By M.Lodmalm (CEMETARY)
+
+All Music & Lyrics By Brennare Except * Lyrics By Brennare / Lodmalm.
+Produced & Mixed By Tomas Skogsberg, M.Lodmalm & LAKE OF TEARS.
+Engineered By Tomas Skogsberg.
+
+(P)&(C) 1994 BLACK MARK Production
+
+### "Headstones" 1995, Death Doom
+
+1. A Foreign Road
+2. Raven Land
+3. Dreamdemons
+4. Sweetwater
+5. Life's But A Dream
+6. Headstones
+7. Twilight
+8. Burn Fire Burn
+9. The Path Of The Gods
+   (Upon The Highest Mountain,Part II)
+
+All Songs Written By Daniel Brennare.
+Recorded, Mixed And Produced At The Wavestation
+In March/April 1995 By Ulf Petterson & LAKE OF TEARS.
+Executive Producer: Borje Forsberg.
+Acoustic Guitar On "Headstones" By Mikael Hult.
+All Keyboards Played By U.Petterson.
+Female Vocals By Annica Karlsson.
+
+Daniel Brennare - Vocals,Lead Guitar
+Jonas Eriksson - Rhythm Guitar
+Mikael Larsson - Bass
+Johan Oudhuis - Drums
+
+(P)&(C) 1995 BLACK MARK Productions
+
+### "Lady Rosenred (single)" 1997, Gothic
+
+1. Lady Rosenred
+2. Devil's Dinner
+3. A Crimson Cosmos
+
+All Songs Written By Daniel Brennare.
+Recorded & Mixed  At The Soundtrade Studios, Stockholm In January 1997.
+Produced by Ronny Lahti LAKE OF TEARS.
+Mastered at the Cutting Room by Peter in de Betou.
+Executive Producer: Borje Forsberg.
+Front cover by Kristian Wahlin.
+
+Daniel Brennare - Vocals, Lead Guitar
+Mikael Larsson - Bass
+Johan Oudhuis - Drums
+
+Jennie Tebler - Vocals on track 1
+Magnus Sahlgren - Guitar
+Pelle Hogbring - Keyboards
+Ronny Lahti - Keyboards, Guitar
+
+(P)(C) 1997 BLACK MARK Productions // BMCD 97
+
+### "A Crimson Cosmos" 1997, Gothic
+
+1. Boogie Bubble.
+2. Cosmic Weed.
+3. When My Sun Comes Down.
+4. Devil's Dinner.
+5. The Four Strings Of Mourning.
+6. To Die Is To Wake.
+7. Lady Rosenred.
+8. Raistlin And The Rose.
+9. A Crimson Cosmos.
+
+(p)&(c)1997 BLACK MARK PRODUCTIONS
+
+DANIEL BRENNARE – vocals, guitar
+MIKAEL LARSSON – bass
+JOHAN OUDHUIS – drums
+
+Additional musicians:
+Pelle Hogbring –keyboards
+Ronny Lahti –keyboards, guitar
+Magnus Sahlgren – guitar
+Jennie Teblor – vocals
+
+Lead guitar on tracks 1, 5, 6, 7 and 9 composed and performed by Magnus Sahlgren.
+All songs written by Daniel Brennare.
+Recorded and mixid at Soundtrade Studios, Stokholm in January, 1997. Engineered by Ronny Lahti. Produced by 
+Ronny Lahti and Lake Of Tears. Mastered at the Cutting Room by Peter in de Betou. Executive production by Borje 
+Forsberg.
+
+### "Forever Autumn" 1999, Gothic
+
+1. So Fell Autumn Rain.
+2. Hold On Tight.
+3. Forever Autumn.
+4. Pagan Wish.
+5. Otherwheres.
+6. The Homecoming.
+7. Come Night I Reign.
+8. Demon You / Lili Anne.
+9. To Blossom Blue.
+
+(c)&(p) 1999 BLACK MARK PRODUCTION
+
+DANIEL BRENNARE – vocals, guutar
+MIKAEL LARSSON – bass
+JOHAN OUDHUIS – drums
+CHRISTIAN SAARINEN – keyboards
+
+Additional musicians: Bo Hulpheres – accordian, fluite; Magnus Sahlgren – solo guitar; Henriette Schack – cello.
+
+Recorded and mixed at KTC Studios, Stokholm, January-March 1999. Engineered by Ulf Wahlberg. Produced by Ulf 
+Wahlberg and LAKE OF TEARS.
+Mastered at T. M. Nastering by Tom Muller. Executive production by Anders Forsberg and Bojre Forsberg.
+Songs written by Daniel Brennare. Arranged by Ulf Wahlberg and LAKE OF TEARS.
+"The Homecoming" is dedicated to Juha Saarinen (1952-1995).
+
+### "The Neonai" 2002, Gothic
+
+01 Return of ravens
+02 The shadowshires
+03 Solitude
+04 Leave a room
+05 Sorcerers
+06 Can die no more
+07 Nathalie and the fireflies
+08 Let us go as they do
+09 Down the nile
+10 bonus1
+11 bonus2
+
+### "Sorcerers (single)" 2002, Gothic
+
+
+
+### "Black Brick Road" 2004, Gothic
+
+01. The Greymen
+02. Making Evenings
+03. Black Brick Road
+04. Dystopia
+05. The Organ
+06. A Trip With the Moon
+07. Sister Sinister
+08. Rainy Day Away
+09. Crazyman
+
+### "Moons And Mushrooms" 2007, Gothic
+
+1. Last Purple Sky   
+2. You Better Breathe While There's Still Time   
+3. Waiting Counting   
+4. Like A Leaf   
+5. Children Of The Grey   
+6. Head On Phantom   
+7. Island Earth   
+8. Planet Of The Penguins 
+9. Is There a Better Way (Limited edition bonus track)
+
+Daniel Brennare - Vocals, Guitar 
+Mikael Larsson - Bass 
+Johan Oudhuis - Drums 
+Magnus Sahlgren - Guitar
+
+### "Illwill" 2011, Heavy Metal
+
+1. Floating In Darkness  03:14    
+2. Illwill  04:19  
+3. The Hating  04:37   
+4. U.N.S.A.N.E.  04:51   
+5. House Of The Setting Sun  05:37   
+6. Behind The Green Door  03:58    
+7. Parasites  02:55    
+8. Out Of Control  02:55   
+9. Taste Of Hell  03:46   
+10. Midnight Madness  04:11 
+
+
+
+Mikael Larsson  Bass 
+Johan Oudhuis  Drums 
+Daniel Brennare Vocals 
+Fredrik Jordanius  Guitars 
+ 
+
+
 
 ## Отношения с другими группами
 

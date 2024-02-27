@@ -1,7 +1,21 @@
 # God Seed
 
-Дискография
-"I Begin" 2012, Black Metal
+
+
+## Дискография
+
+### "I Begin" 2012, Black Metal
+
+1. Awake	 
+2. This from the Past	 
+3. Alt liv	 
+4. From the Running of Blood 
+5. Hinstu dagar	 
+6. Aldrande tre	 
+7. Lit 
+8. The Wound 
+9. Bloodline
+
 
 ## Отношения с другими группами
 

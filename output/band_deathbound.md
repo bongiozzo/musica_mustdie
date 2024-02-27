@@ -1,10 +1,58 @@
 # Deathbound
 
-Дискография
-"To Cure The Sane With Insanity" 2003, Death Metal
-"Doomsday Comfort" 2005, Death Metal
-"We Deserve Much Worse" 2007, Grindcore
-"Non Compos Mentis" 2010, Grindcore
+
+
+## Дискография
+
+### "To Cure The Sane With Insanity" 2003, Death Metal
+
+1. One mans hell is another mans heaven (2:36)
+2. Without Pain (3:51)
+3. Whitecoatparanoia (2:39)
+4. As reluctance grows (3:00)
+5. Treacherous breed (1:44)
+6. Silent city deathcount (4:06)
+7. Consumed (2:51)
+8. The house of the silent and friendly (3:03)
+9. The flesh is the cage (4:31)
+
+
+
+Produced by Hansu & Deathbound
+Mixed & mastered by Hansu at Kantola Studios
+Recorded during December 2002 / April 2003 by Hansu & Deathbound at Kantola Studio & Blackroom Studio, Vasa / Finland
+Layout & Coverdesign by Q 
+Deathbound logo by Petri Sundberg
+
+
+Pete - Guitars
+Kai - Vocals
+Tommi - Bass
+Q - Drums
+
+### "Doomsday Comfort" 2005, Death Metal
+
+
+
+### "We Deserve Much Worse" 2007, Grindcore
+
+
+
+### "Non Compos Mentis" 2010, Grindcore
+
+1. I Hate Them Still 03:03 
+2. The Wave Called Misery 02:20 
+3. Free Shackles For Everyone 02:01 
+4. The Process Of Destruction 01:32 
+5. A Better Tomorrow 02:26 
+6. A Reason For Your Fight 02:33 
+7. Hell Could Be The Cure 02:33 
+8. When The Seas Are Boiling 01:18 
+9. Strain 02:18 
+10. The Blues Of A Dying Man 01:38 
+11. Death Comes For A Visit 02:05 
+12. Non Compos Mentis 01:35
+
 
 ## Отношения с другими группами
 

@@ -1,9 +1,40 @@
 # Dies Irae (Polish)
 
-Дискография
-"Immolated" 2000, Death Metal
-"The Sin War" 2002, Death Metal
-"Sculpture Of Stone" 2004, Death Metal
+(brutal death metal)
+
+## Дискография
+
+### "Immolated" 2000, Death Metal
+
+1. Zohak 3:41 
+2. Message Of Aywaz 2:53 
+3. Sirius 5:03 
+4. Immolated 2:16 
+5. The Nameless City 3:39 
+6. Bestride Shantak 2:40 
+7. Turning Point 2:18 
+8. Hidden Lore 4:03 
+9. Lion of Knowledge 5:25 
+
+Produced & engineered by Szymon Czech 
+Recorded & mixed at Selani Studio, Oisztyn, June 2000
+
+### "The Sin War" 2002, Death Metal
+
+
+
+### "Sculpture Of Stone" 2004, Death Metal
+
+Beyond All Dimensions 
+The Hunger 
+Unrevealed by Words 
+The Art of an Endless Creation 
+Trapped in the Emptiness 
+The Plague 
+The Oceans of Filth
+The Beginning of Sin 
+Sculpture of Stone
+
 
 ## Отношения с другими группами
 

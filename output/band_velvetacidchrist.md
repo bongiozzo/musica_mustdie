@@ -1,7 +1,29 @@
 # Velvet Acid Christ
 
-Дискография
-"Church Of Acid" 1996, Industrial
+Satanic Acid Rave Body
+
+## Дискография
+
+### "Church Of Acid" 1996, Industrial
+
+1.  Hell One
+2.  Let's Kill All These Mother Fuckers
+3.  Dead Flesh
+4.  Futile (Nazi Bastard Mix)
+5.  We Have To See We Have To Know (End Of The World Mix)
+6.  Vaginismus (Crotch Kick Mix)
+7.  Mental Depression
+8.  Pain
+9.  Fade Away
+
+Recorded and Mixed at Electric Death Trip Studios
+Cover artwork by Disease Fadory
+
+Brian Erickson as Disease FaMory - Vocals, Synths, Drums, Programming, Mixing, Guitars
+Gaty Slaughter - Synths, Drums, Programming, Mixing
+
+(P)c 1996 OFF BEAT Records
+
 
 ## Отношения с другими группами
 

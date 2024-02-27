@@ -1,7 +1,27 @@
 # From The Inside
 
-Дискография
-"From The Inside" 2004, Hard Rock
+Melodic hard rock/AOR
+
+## Дискография
+
+### "From The Inside" 2004, Hard Rock
+
+TRACKS:
+  1. Nothing At All
+  2. Suddenly
+  3. Fight For Love
+  4. Losing Game
+  5. Damn
+  6. Stop
+  7. Relentless
+  8. Blessing In Disguise
+  9. Is Anybody Watching Me?
+10. Always
+11. Beautiful Goodbye
+
+12. Nothing At All (video)
+13. Danny Vaughn Video Interview
+
 
 ## Отношения с другими группами
 

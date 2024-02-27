@@ -1,7 +1,13 @@
 # Lunar Onlooker
 
-Дискография
-"Вовки Й Народ Великого Багаття" 2001, Black Metal
+black metal with art'nheavy elements
+
+## Дискография
+
+### "Вовки Й Народ Великого Багаття" 2001, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

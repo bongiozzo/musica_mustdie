@@ -1,8 +1,29 @@
 # Dezperadoz
 
-Дискография
-"The Legend And The Truth" 2006, Thrash
-"An Eye For An Eye" 2008, Thrash
+s. Desperados
+
+## Дискография
+
+### "The Legend And The Truth" 2006, Thrash
+
+
+
+### "An Eye For An Eye" 2008, Thrash
+
+1. An Eye For An Eye 01:51 
+2. Hate 03:22 
+3. Days Of Thunder 04:44 
+4. Wild Bunch 06:18 
+5. Wild Times 04:26 
+6. Riders On The Storm (The Doors cover) 05:26 
+7. Here Comes The Pain 04:49 
+8. Don't Give Up 05:41 
+9. May Heaven Strike Me Down 04:55 
+10. When The Circus Comes To Town 05:56 
+11. Tooth For A Tooth 02:33 
+12. 25 Minutes To Go (Mr. Johnny Cash) 03:05 
+13. Give Up (Special Russian Bonus) 5:40
+
 
 ## Отношения с другими группами
 

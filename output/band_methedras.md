@@ -1,10 +1,52 @@
 # Methedras
 
-Дискография
-"promo 2001" 2001, Thrash
-"Recursive" 2004, Thrash
-"The Worst Within" 2006, Thrash
-"Katarsis" 2009, Thrash
+
+
+## Дискография
+
+### "promo 2001" 2001, Thrash
+
+
+
+### "Recursive" 2004, Thrash
+
+1. Intro	 
+2. L. R. S.
+3. Drowning By Torment
+4. Wreck 'n' Roll
+5. My Iniquity Whirl
+6. Time To Die
+7. The Denied God
+8. Under
+9. Darkness
+
+### "The Worst Within" 2006, Thrash
+
+1. Free To Hate	 
+2. By Yourself	 
+3. Flash Over	 
+4. VermiNation	 
+5. One Trouble Less	 
+6. Estd. 1996	 
+7. No More Rules 
+8. The Denied God (live video from W:O:A 2004)		 
+9. Wreck 'N' Roll (live video from W:O:A 2004)		 
+10. L. R. S. (live video from W:O:A 2004)		 
+11. The Worst Within (making of video)
+
+### "Katarsis" 2009, Thrash
+
+1. Circle Of Fire	 
+2. T.D.K.M.	 
+3. Civil War	 
+4. Flag Of Life	 
+5. Slave Your Mind	 
+6. On My Knees	 
+7. Katarsis	 
+8. Mass Control	 
+9. Betrayed Again	 
+10. Nightmares
+
 
 ## Отношения с другими группами
 

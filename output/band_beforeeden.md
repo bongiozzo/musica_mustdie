@@ -1,8 +1,32 @@
 # Before Eden
 
-Дискография
-"Before Eden" 2001, Progressive
-"The Legacy of Gaia" 2005, Progressive
+
+
+## Дискография
+
+### "Before Eden" 2001, Progressive
+
+1. Prelude	 
+2. Fallen Angel
+3. Elemental Master
+4. Space Labyrinth	 
+5. Between Love and Glory Part I
+6. Between Love and Glory Part II
+7. Before Eden
+
+### "The Legacy of Gaia" 2005, Progressive
+
+1. Nomad Soul
+2. Wizard Of The South
+3. Essence
+4. I. Earth Cry	 
+5. II. Enemy Eve
+6. III. Toast of Mankind
+7. IV. Nova
+8. V. Tomorrowґs Gone
+9. VI. Everland
+10. Reality
+
 
 ## Отношения с другими группами
 

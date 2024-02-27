@@ -1,9 +1,31 @@
 # Maze Of Torment
 
-Дискография
-"The Force" 1997, Melodic Death Metal
-"Faster Disaster" 1998, Melodic Death Metal
-"Death Strikes" 2000, Melodic Death Metal
+
+
+## Дискография
+
+### "The Force" 1997, Melodic Death Metal
+
+
+
+### "Faster Disaster" 1998, Melodic Death Metal
+
+
+
+### "Death Strikes" 2000, Melodic Death Metal
+
+1. Death Strikes  
+2. Sodomizing Death Spell    
+3. Intense Slaughter  
+4. This Is Death  
+5. Aggressive Bloodhunt   
+6. Infernal Force    
+7. Sadist    
+8. Angels from Hell   
+9. Evil Beneath the Flames  
+10. (Untitled Track)  
+
+
 
 ## Отношения с другими группами
 

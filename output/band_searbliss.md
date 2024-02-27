@@ -1,13 +1,162 @@
 # Sear Bliss
 
-Дискография
-"Phantoms" 1996, Black Metal
-"The Pagan Winter" 1997, Black Metal
-"The Haunting" 1998, Black Metal
-"Grand Destiny" 2001, Black Metal
-"Forsaken Symphony" 2002, Black Metal
-"Glory And Perdition" 2004, Black Metal
-"The Arcane Odyssey" 2007, Black Metal
+
+
+## Дискография
+
+### "Phantoms" 1996, Black Metal
+
+1. Winter Voices 
+2. Far Above the Trees 
+3. Aeons of Desolation 
+4. 1100 Years Ago 
+5. As the Bliss is Burning 
+6. Land of the Phantoms 
+7. Beyond the Darkness 
+8. With Mournful Eyes 
+
+All songs written By SEAR BLISS.
+Produced & Mixed By Bertalan Domby, Ferenc Vida & SEAR BLISS.
+Recorded & Mixed At LMS Studio.
+
+Gergely Szucs - Trumpet & Synth
+Andras Nagy - Bass Guitar & Vocals
+Janos Barbarics - Guitars
+Winter - Synth
+Csaba Csejtei - Guitars
+Zoltan Csejtei - Drums & Backing Vocals
+
+
+
+### "The Pagan Winter" 1997, Black Metal
+
+1. Ancient 
+2. The Pagan Winter 
+3. ...Where the Darkness Always Reigned 
+4. Twilight 
+5. In the Shadow of Another World 
+
+The first four songs are the four songs from The Pagan Winter demo (1995). 
+
+Recorded and mixed at Nautilus Studio, Sopron, 7-11 November 1996 
+Produced and mixed by Andrбs Boda and Sear Bliss 
+Music by Sear Bliss 
+Lyrics by Andrбs Nagy and Zoltбn Csejtei 
+Spoken part by Csaba Csejtei 
+
+Andrбs Nagy - bass guitar and vocals 
+Jбnos Barbarics - guitars 
+Winter - synth 
+Zoltбn Csejtei - drums and backing vocals 
+Csaba Csejtei - guitars 
+Gergely Szьcs - trumpet and percussions 
+
+
+### "The Haunting" 1998, Black Metal
+
+1. Tunnels of Vision 
+2. Hell Within 
+3. Land of Silence 
+4. Unholy Dance 
+5. Soulless 
+6. The Haunting 
+7. Left in the Dark 
+
+
+
+Recorded and mixed at Beaufort Studio, Holland, August 1997 
+Produced by Han Swagerman and Viktor Scheer 
+Music by Sear Bliss 
+Lyrics by Sear Bliss except Tunnels of Vision, Hell Within and Unholy Dance by Attila Halбsz, Left in the Dark by Lбszlу Fodor 
+
+Andrбs Nagy - bass guitar and vocals 
+Jбnos Barbarics - guitars 
+Viktor Max Scheer - guitars 
+Zoltбn Schцnberger - drums 
+Gergely Szьcs - trumpet, synth 
+
+
+### "Grand Destiny" 2001, Black Metal
+
+1. The Slowing of Time 
+2. The World Beyond 
+3. Death in Torment 
+4. Arx Idolatriae 
+5. Labyrinth of Pain 
+6. Hate Blade 
+7. Black Heart 
+8. God Man 
+9. Moments of Falling 
+10. Infinitude 
+
+Recorded and mixed at Home Studio Szombathely, between 6 November and 9 December 2000 
+Engineered by Bertalan Domby 
+Produced by Andras Nagy, Zoltбn Schцnberger and Bertalan Domby 
+Music by Sear Bliss 
+Lyrics by Andras Nagy 
+
+Andras Nagy - bass guitar and vocals 
+Zoltan Schцnberger - drums 
+Istvan Neubrandt - guitars 
+Andras Horvath - guitars 
+Rуbert Pintйr - trumpet 
+Zoltan Pal - trombone and barytone 
+Tamas Kondor (session synth) 
+
+
+### "Forsaken Symphony" 2002, Black Metal
+
+1. Last Stand 
+2. My Journey To The Stars 
+3. She Will Return 
+4. The Vanishing 
+5. The Forsaken 
+6. When Death Comes 
+7. Eternal Battlefields 
+8. Enthralling Mystery 
+9. The Hour Of Burning 
+
+
+
+Csaba Csejtei - guitars 
+Zoltan Schцnberger - drums 
+Istvan Neubrandt - guitars 
+Zoltan Pal - trombone and barytone 
+Oliver Zisko - keyboards 
+Andras Nagy - bass and vocals 
+
+
+### "Glory And Perdition" 2004, Black Metal
+
+1. Birth of Eternity
+2. Reverie 
+3. Night Journey 
+4. Glory to Perdition 
+5. Two Worlds Collide 
+6. Ode to a Dying Star 
+7. Shores of Death 
+8. Dreams Spectre 
+9. Blood Serenade 
+10. Lacus Somniorum
+
+### "The Arcane Odyssey" 2007, Black Metal
+
+1. Blood On The Milky Way 08:06  
+2. A Deathly Illusion 06:19  
+3. Lost And Not Found 05:18  
+4. Thorns of Deception 04:01  
+5. The Venomous Grace 04:44  
+6. Omen of Doom 05:35  
+7. Somewhere 09:16  
+8. Path To The Motherland 04:18 
+
+
+Andros Nagy - Vocals, Bass, Keyboards 
+Istvon Neubrandt - Guitars
+Piter Kovacs - Guitars
+Zoltan Pol - Trombone
+Zoltan Schonberger - Drums
+
 
 ## Отношения с другими группами
 

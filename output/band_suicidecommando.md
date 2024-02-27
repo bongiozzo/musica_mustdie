@@ -1,10 +1,25 @@
 # Suicide Commando
 
-Дискография
-"Axis Of Evil" 2003, Metal
-"Bind, Torture, Kill" 2006, Industrial
-"Implements Of Hell" 2010, Metal
-"When Evil Speaks" 2013, Metal
+
+
+## Дискография
+
+### "Axis Of Evil" 2003, Metal
+
+
+
+### "Bind, Torture, Kill" 2006, Industrial
+
+
+
+### "Implements Of Hell" 2010, Metal
+
+
+
+### "When Evil Speaks" 2013, Metal
+
+
+
 
 ## Отношения с другими группами
 

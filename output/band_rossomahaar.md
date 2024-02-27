@@ -1,13 +1,139 @@
 # Rossomahaar
 
-Дискография
-"Grotesque" 1997, Black Metal
-"Imperium Tenebrarum" 1999, Black Metal
-"Quaerite Lux In Tenebris (Exploring the External Worlds)" 2002, Black Metal
-"Regnum Somni" 2003, Black Metal
-"Live And Die In Moscow" 2003, Black Metal
-"A Divinity For The Worthless" 2004, Death Metal
-"The Reign Of Terror" 2010, Death Metal
+(Russian Black Metal)
+
+## Дискография
+
+### "Grotesque" 1997, Black Metal
+
+1. Requiem 
+2. Black towers of Mordor 
+3. In the Gloomy Forest 
+4. Darkness 
+5. Into the Morija Tombs 
+6. Immortal Master 
+7. The Elvencraft 
+8. Seven Magic Runes 
+9. Dark Saga 
+10. The sword's ballad  
+11. Orcish's Tide 
+12. Grotesque 
+
+Album was records in august '97 at the Black Stone studio. 
+Lazar - guitars, voices , keybords and drum programming 
+  
+
+
+### "Imperium Tenebrarum" 1999, Black Metal
+
+1.Into The Domain Beyond All Horizons
+2.Mists Of Eternity
+3.The Spectral Prophecy 
+4.The Forlorn Existence Of Soul Divine 
+5.... Of Shadowy Exaltation (When Night Blackens With Storm) 
+6.Imperium Tenebrarum 
+7.Portals Of Chaos (The Final Transmigration)
+
+(1999, album was recorded at CDM-records studio 
+in april'99. Mixed and produced by Lazar in september'99. 
+Mastering by Andrew Shabaev in october'99) 
+
+Lazar - vocals, guitars, keyboards 
+Ixxaander - guitars & screams 
+Kniaz' - bass 
+Sigizmund- drums 
+
+ 
+
+
+### "Quaerite Lux In Tenebris (Exploring the External Worlds)" 2002, Black Metal
+
+1. Me, The Misanthrope 
+2. The Moon, The Sun, The Stars 
+3. Quaerite Lux In Tenebris (Exploring The External Worlds) 
+4. Praising The Departure Of Spiritual Strength
+5. Beneath The Fading Eclipse
+6. Sacred War 
+7. Crescent Moon (The Final Celebration)
+8. Those Spectres Within (Eternal Is The Nothingness I've Emerged From)
+9. Transenflamed Visions Of Your Mortal End
+
+
+
+Recorded and mixed at CDM Records Studio (Moscow), begining 2001 a.t.b.b.
+Mastered by Andrew Shabaev, July 2001 a.t.b.b.
+Produced, mixed and arranged by Lazar and Kniaz'
+Engineered by Lazar
+
+Lazar (vocals, guitars, keyboards)
+Kniaz (bass guitar)
+Yanarrdakh (drums)
+
+
+
+### "Regnum Somni" 2003, Black Metal
+
+1. What's Your Universe Built Upon
+2. 216
+3. Obscurity in Progress
+4. The Fragile Shades Of Grey
+5. Elemental Architecture
+6. Mijn Leven Voor U (Spiritual Resonance)
+7. Blind Eye And Muted Mind
+8. Bloodred Utopia
+9. Unto the Dimensional Complexity
+
+Lazar - guitars, vocals
+Kniaz' - bass
+Yanarrdakh - drums
+
+Guest musicants:
+Illia "Gum" - alt sax
+Vladimir - trombone
+
+Recorded and mixed at CDM Records , Moscow, June 2003.
+Mastered at CDM Records , Moscow, June 2003.
+All music by Rossomahaar
+
+(p) 2003 IROND Records
+
+### "Live And Die In Moscow" 2003, Black Metal
+
+1. Me, The Misanthrope
+2. The Moon, The Sun, The Stars
+3. Praising The Departure Of Spiritual Strength
+4. The Spectral Prophecy
+5. The Forlorn Existence Of Soul Divine
+6. Священная война
+7. Beneath The Fading Eclipse
+8. Crescent Moon (The Final Celebration)
+9. ...Of Shadowy Exaltation (When Night Blackens With Storm)
+10. Imperium Tenebrarum
+11. Я не верю в анархию
+bonus tracks:
+12. Я не верю в анархию
+13. Zwitter
+14. Born Dead
+15. Gloves Of Metal
+
+
+
+
+
+### "A Divinity For The Worthless" 2004, Death Metal
+
+
+
+### "The Reign Of Terror" 2010, Death Metal
+
+1. Ragnaroek 2014 05:31
+2. Найди, убей! 04:48
+3. Generation-Zero 04:04
+4. Зов шамана 01:55  
+5. Красота должна умереть 06:19
+6. Moscow - The Sanguine Reign Of Terror 04:38
+7. God #6 06:08 
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,26 @@
 # Crystal Tears
 
-Дискография
-"Choirs of Immortal" 2006, Heavy Metal
-"Generation X" 2010, Heavy Metal
+
+
+## Дискография
+
+### "Choirs of Immortal" 2006, Heavy Metal
+
+
+
+### "Generation X" 2010, Heavy Metal
+
+1.	 Inner Spirit	04:42	 
+2.	 Heroes	03:37	 
+3.	 Nightmare Serenade	04:57	 
+4.	 Empty Paradise	04:25	 
+5.	 Crystal Tears	04:03	 
+6.	 In The Beginning	04:05	 
+7.	 Rock Until We Fall	04:29	 
+8.	 Predators	03:41	 
+9.	 Flesh ‘N’ Bone	04:48	 
+10.	 The X Generation	03:38	 
+
 
 ## Отношения с другими группами
 

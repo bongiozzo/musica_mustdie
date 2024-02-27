@@ -1,9 +1,21 @@
 # Burning Witch
 
-Дискография
-"Towers..." 1998, Metal
-"Crippled Lucifer (Seven Psalms For Our Lord Of Light)" 1998, Metal
-"Goatsnake/Burning Witch - Split" 2000, Metal
+last band name is Thorr's Hammer (with Stephen O'Malley - Sunn O)))
+
+## Дискография
+
+### "Towers..." 1998, Metal
+
+
+
+### "Crippled Lucifer (Seven Psalms For Our Lord Of Light)" 1998, Metal
+
+
+
+### "Goatsnake/Burning Witch - Split" 2000, Metal
+
+
+
 
 ## Отношения с другими группами
 

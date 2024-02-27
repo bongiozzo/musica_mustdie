@@ -1,7 +1,19 @@
 # Moonlyght
 
-Дискография
-"Progressive Darkness" 2002, Black Metal
+
+
+## Дискография
+
+### "Progressive Darkness" 2002, Black Metal
+
+1. Fantasy 
+2. The Sceptic Traveller 
+3. Ride on Ice Storms 
+4. A Tale from a Fantastic Kingdom 
+5. The Autumn's Freezing Harmony 
+6. From Honnour to Nothingness 
+7. Progressive Darknesst
+
 
 ## Отношения с другими группами
 

@@ -1,12 +1,173 @@
 # Bulldozer
 
-Дискография
-"The Day Of Wrath" 1985, Thrash
-"The Final Separation" 1986, Thrash
-"IX" 1987, Thrash
-"Neurodeliri" 1988, Thrash
-"Alive...In Poland" 1990, Thrash
-"Unexpected Fate" 2009, Thrash
+
+
+## Дискография
+
+### "The Day Of Wrath" 1985, Thrash
+
+1. The Exorcism
+2. Cut-Throat
+2. Insurrection Of The Living Damned
+4. Fallen Angel
+5. The Great Deceiver
+6. Mad Man
+7. Whiskey Time
+8. Welcome Death
+9. Endless Funeral
+
+
+
+A.C. Wild - Vocals, Bass
+Andy Panigada - Guitars
+Don Andras - Drums
+Dario Carria - Bass*
+
+Re-released on August 13, 2007 by Metal Mind Productions from Poland as a new
+digipack edition on golden disc, featuring one bonus track, digitally remastered
+using 24-Bit process and limited to numerated 2000 copies. The bonus track is:
+10. Fallen Angel 
+
+### "The Final Separation" 1986, Thrash
+
+1. The Final Separation 4.50
+2. Ride Hard - Die Fast 3.59
+3. The Cave 4.34
+4. Sex Symbol`s Bull Shit 3.31
+5. "Don" Andras 3.04
+6. Never Relax 5.35
+7. Don`t Trust The "Saint" 4.23
+8. The Death Of Gods 10.05
+
+
+
+A.C. Wild - Vocals, Bass
+Andy Panigada - Guitars
+Don Andras - Drums, Vocals*
+
+Re-released on August 13, 2007 by Metal Mind Productions from Poland as a new
+digipack edition on golden disc, featuring one bonus track, digitally remastered
+using 24-Bit process and limited to numerated 2000 copies. The bonus track is:
+9. Another Beer (It's What I Need)
+
+### "IX" 1987, Thrash
+
+1. IX 03:37  
+2. Desert ! 04:30 
+3. Ilona the Very Best 02:41
+4. Misogynists 03:37 
+5. Heaven's Jail 02:48
+6. Rob "Klister" 02:00 
+7. The Derby 04:02 
+8. No-way 02:59
+9. The Vision Never Fades 04:48 
+
+
+
+A.C. Wild - Vocals, Bass, Keyboards
+Andy Panigada - Guitars
+Rob "Klister" Cabrini - Drums
+
+LP released in 1988 by Discomagic
+Pic-LP released in 2001 on Warmetal Records, limited to 500 copies.
+
+Re-released on August 13, 2007 by Metal Mind Productions from Poland as a new
+digipack edition on golden disc, featuring one bonus track, digitally remastered
+using 24-Bit process and limited to numerated 2000 copies. The bonus track is:
+10. The Derby (AC Wild+Labyrinth) - Live in Tokyo 
+
+### "Neurodeliri" 1988, Thrash
+
+1. Overture/Neurodeliri 05:01
+2. Minkions 02:46 
+3. We Are.....Italian 03:01 
+4. Art of Deception 04:26 
+5. Ilona Had Been Elected 04:13  
+6. Impotence 02:28 
+7. Mors Tua-Vita Mea 02:47  
+8. Willful Death/You'll Be Recalled 04:54 
+
+
+
+
+"This album IS dedicated to Dario Carria, founding member of Bulldozer who
+committed suicide this year. The title of this album, Neurodeliri, is named for
+the band he created after his involvement in Bulldozer. His contribution to our
+music has been very important and great. We respect his final choice."
+-Bulldozer
+
+A.C. Wild - Vocals, bass, keyboards, effects
+Andy Panigada - All guitars
+Rob "Klister" Cabrini - Drums, backing vocals
+
+All songs written by Contini/Panigada.
+Produced by John K. Birdsells and Bulldozer.
+
+LP released by Metalmaster in 1989.
+Pic-LP released in 2001 by Warlord Records, limited to 500 copies.
+
+Re-released on August 13, 2007 by Metal Mind Productions from Poland as a new
+digipack edition on golden disc, digitally remastered using 24-bit process,
+limited to 2000 numerated copies and featuring one bonus track taken from the EP
+"Trilogy - Dance Got Sick!":
+9. Dance Got Sick - Part One 
+
+### "Alive...In Poland" 1990, Thrash
+
+1. IX 06:05 
+2. Desert! 03:21 
+3. Ilona the Very Best 02:55
+4. Impotence 04:39 
+5. The Derby 02:23
+6. Heaven's Jail 02:45 
+7. Minkions 04:34
+8. Mors Tua Vita Mea 02:53
+9. Overkill (Motцrhead cover) 04:54 
+10. Willful Death (You'll Be Recalled) 04:23 
+
+
+
+Recorded in the Sport Hall in Zabrze for over 5,000 people in November 17th
+1989. 
+
+A.C. Wild - Vocals, Bass, Keyboards
+Andy Panigada - Guitars
+Rob "Klister" Cabrini - Drums 
+
+The CD version has extra tracks:
+8. Don't Trust the Saint
+9. The Cave
+11. The Final Separation
+
+There is also a bootleg CD version called 'Greetings from Poland', which adds
+some extra studio tracks from the 'IX' album.
+
+Remastered by Metal Mind Records (digipack version, limited to 2000 copies) on
+the 6th of April, 2009. 
+
+### "Unexpected Fate" 2009, Thrash
+
+1. Unexpected Fate 04:17  
+2. Aces Of Blasphemy 02:59  
+3. Salvation For Sale 02:39  
+4. Use Your Brain 03:55  
+5. Micro VIP 03:40  
+6. Bastards 03:29  
+7. Buried Alive By Trash 04:15  
+8. The Counter-Crusade 04:55  
+9. The Prediction 01:22  
+10. In The Name 05:26 
+
+
+
+Guitar solos on this album by Andy Panigada, Jennifer Batten, Kiko Loureiro,
+Olaf Thorsen and Andres Rain. Solo bass on "The Counter-Crusade" by Billy
+Sheehan.
+
+Released in Brazil by Paranoid Records on September 2009.
+Re-released by Night of the Vinyl Dead December 2009, lim.ed. 500 handnumbered
+copies, special vinyl remix + 20-page full-colour booklet 
+
 
 ## Отношения с другими группами
 

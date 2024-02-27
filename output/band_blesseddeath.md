@@ -1,8 +1,17 @@
 # Blessed Death
 
-Дискография
-"Kill Or Be Killed" 1985, Thrash
-"Destined For Extinction" 1987, Thrash
+
+
+## Дискография
+
+### "Kill Or Be Killed" 1985, Thrash
+
+
+
+### "Destined For Extinction" 1987, Thrash
+
+
+
 
 ## Отношения с другими группами
 

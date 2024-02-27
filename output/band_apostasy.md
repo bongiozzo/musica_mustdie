@@ -1,9 +1,36 @@
 # Apostasy
 
-Дискография
-"Cell 666" 2004, Black Metal
-"Devilution" 2005, Black Metal
-"Nuclear Messiah" 2011, Black Metal
+
+
+## Дискография
+
+### "Cell 666" 2004, Black Metal
+
+1. Crowned In Thorns  04:08   
+2. Infernal Majesty  04:32   
+3. Cell 666  05:55   
+4. Icon  04:56   
+5. 7th Throne  05:30   
+6. Beneath the Lies of Prophecy  04:49
+7. Reign of Chaos  03:51   
+8. Beauty of Death  05:52  
+9. Metempsychosis  01:52 
+
+### "Devilution" 2005, Black Metal
+
+1. Malignant  03:48   
+2. Sulphur Injection  07:06  
+3. Virus  05:25   
+4. Supreme Architecture  05:28   
+5. Vengeance  03:51  
+6. Salvation Denied  04:31   
+7. Soulgrime  04:50  
+8. Suicide Breeze  05:49 
+
+### "Nuclear Messiah" 2011, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,37 @@
 # Terrorvision
 
-Дискография
-"Regular Urban Survivors" 1996, Alternative
+
+
+## Дискография
+
+### "Regular Urban Survivors" 1996, Alternative
+
+1.  Enteralterego
+2.  Superchronic
+3.  Perseverance
+4.  Easy
+5.  Hide The Dead Girl
+6.  Conspiracy
+7.  Didn't Bleed Red
+8.  Dog Chewed The Handle
+9.  Junior
+10.Bad Actress
+11.If I Was You
+12.Celebrity Hit List
+13.Mugwump
+
+All songs written by TERRORVISION
+Produced by Gil Norton
+Engineered by Roy Spong
+Recorded and mixed at Abbey Road
+
+Tony Wright - Vocals
+Mark Yates - Guitars
+Leigh Marklew - Bass
+Shutty - Drums
+
+(P)(C) 1996 EMI Records
+
 
 ## Отношения с другими группами
 

@@ -1,15 +1,171 @@
 # Necromantia
 
-Дискография
-"Black Arts Lead To Everlasting Sins" 1991, Black Metal
-"Crossing The Fiery Path" 1994, Black Metal
-"Scarlet Evil Witching Black" 1995, Black Metal
-"From The Past We Summon Thee" 1996, Black Metal
-"Ancient Pride" 1997, Black Metal
-"IV: Malice" 2000, Black Metal
-"Covering Evil (12 Years Doing Devil's Work)" 2001, Black Metal
-"Cults Of The Shadow" 2002, Black Metal
-"The Sound Of Lucifer Storming Heaven" 2007, Black Metal
+Satanic Band
+
+## Дискография
+
+### "Black Arts Lead To Everlasting Sins" 1991, Black Metal
+
+1. Lord Of The Abyss
+2. The Feast Of Ghouls
+3. Evil Prayers *
+4. Lycantrophia
+5. Demagia Veterum **
+
+All Guitar Solo By Dave, Drums By Nick Or Darknova (*).
+All Music By NECROMANTIA.
+All Lyrics By NECROMANTIA Or Remi De Gourmount, 1900 (*).
+Recorded & Mixed At Sine Eha Studio In December 1991.
+** Performed Live & Recorded At Sine Eha Studio 1 December 1989.
+* Engineered By The Worshipper Of Pain.
+
+Magus Wampyr - Bass, Vocals
+Baron Blood - 8 String Bass
+Inferno - Synth, Piano
+Slow Death - Back Vocals, Howlings
+Yiannis The Worshipper Of Pain - Sax, Percussion
+
+
+### "Crossing The Fiery Path" 1994, Black Metal
+
+1. The Vampire Lord Speaks
+2. The Warlock
+3. Last Song For Valdezie
+4. Unchaining The Wolf (At War...)
+5. Les Litanies De Satan
+6. Lord Of The Abyss
+7. Tribes Of The Moon
+
+All Music & Lyrics By NECROMANTIA.
+Produced By MORBID & Chris Hajstamou.
+Engineered By Chris Hajstamou.
+Recorded & Mixed At Sin Eha Studios In Spring 1993.
+
+(P)&(C) 1994 OSMOSE Production
+
+### "Scarlet Evil Witching Black" 1995, Black Metal
+
+1. Devilskin 
+2. Black Mirror 
+3. Pretender to the Throne (Opus I: The Userper'S Spawn) 
+4. The Arcane Light of Hecate 
+5. Scarlet Witching Dreams 
+6. The Serpent and the Pentagram 
+7. Pretender to the Throne (Opus II: Battle at the Netherworld) 
+8. Spiritdance 
+
+
+All Music & Lyrics By NECROMANTIA.
+Produced By NECROMANTIA & Christo Hajstamou.
+Engineered By Christo Hajstamou.
+Recorded & Mixed At Sin Ena Studio.
+
+Magus Wampyr Daoloth - Bass, Vocals
+Baron Blood - Bass
+Inferno - Synth, Piano
+Divad - Guitars
+Yiannis - Sax, Percussion
+
+
+
+### "From The Past We Summon Thee" 1996, Black Metal
+
+1. Faceless Gods 
+2. Lycanthropia (Lycaonas Metamorhosis) 
+3. La Mort 
+
+### "Ancient Pride" 1997, Black Metal
+
+1. Shaman 
+2. Ancient Pride 
+3. For the Light of My Darkness 
+4. Each Dawn I Die
+
+### "IV: Malice" 2000, Black Metal
+
+1. The Blair Witch Cult 
+2. Those Who Never Sleep 
+3. Disciples of Sophia (the Templars) 
+4. Murder, Magic and Tears 
+5. Invictus 
+6. Malice 
+7. Circle of Burned Doves 
+
+Recorded and mixed at PRAXIS studio in Spring 2000 
+Sound engineer: Lambros Sfiris 
+Digital mastering at ATHENS MASTERING by Christos Hajistamou
+
+Cover and layout by SET (Spiros Antoniou) 
+Band photos by Kostas Kolimenos 
+Guitar solos by John (PHANTOM LORD) 
+Keyboards arranged by NECROMANTIA, performed by Iraklis (SWAN CHRISTY)
+
+All music by NECROMANTIA
+All lyrics M.W. Daoloth exept "Invictus" by W.E. Henley 
+Executive producer BLACK LOTUS record
+
+### "Covering Evil (12 Years Doing Devil's Work)" 2001, Black Metal
+
+CD1 - Covering Evil 
+
+1. My World, Your Hell 
+2. Death Rider * 
+3. The Number of the Beast ** 
+4. Demon's Whip *** 
+5. Mordor **** 
+
+
+CD2 - 12 Years Doing Devil's Work 
+
+(album: IV: Malice - 2000) 
+1. Those Who Never Sleep 
+2. Murder, Magic and Tears 
+
+(album: Ancient Pride - 1997) 
+3. Ancient Pride 
+4. For the Light of My Darkness 
+
+(album: Scarlet Evil, Witching Black - 1995) 
+5. The Black Mirror 
+6. Pretender to the Throne pt.1 - The Usurpers Spawn 
+7. Scarlet Witching Dreams 
+
+(album: Crossing the Fiery Path - 1993) 
+8. Les Litanies de Satan 
+
+(album: Th Black Arts - 1991) 
+9. Lord of the Abyss 
+
+CD1 recorded and mixed at PRAXIS studio (Athens, GREECE) during April-May 2001 
+Engineered by Lambros "Lucky Luck" Sfiris 
+Produced by NECROMANTIA and L. Sfiris 
+Guitar solos by John (PHANTOM LORD) 
+All keyboards arranged by NECROMANTIA, performed by L. Sfiris 
+Digital mastering at ATHENS MASTERING 
+Executive producer BLACK LOTUS records 
+Cover and layout art by Set 
+All music and lyrics by NECROMANTIA except: 
+* Kenny Powel, J.D. Kimball 
+** Steve Harris 
+*** Joey DeMaio, David Shankle 
+**** Rolf Kasparek
+
+### "Cults Of The Shadow" 2002, Black Metal
+
+
+
+### "The Sound Of Lucifer Storming Heaven" 2007, Black Metal
+
+1. The Sound Of Lucifer Storming Heaven (2:35) 
+2. Order Of The Black Sphinx (5:54) 
+3. For The Elder Magi- I-Eibon The Necromancer (7:06) 
+4. Architecture Of Exquisite Madness (4:53) 
+5. Knights Of The Black And White Eagle (5:24) 
+6. The Invisible Empire (5:15) 
+7. Hellseher (5:45) 
+8. Les Litanies De Satan - Act II: From Hell (4:51)
+
+
 
 ## Отношения с другими группами
 

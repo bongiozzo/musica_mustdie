@@ -1,7 +1,27 @@
 # Zillion
 
-Дискография
-"Zillion" 2004, Hard Rock
+melodic hard rock
+
+## Дискография
+
+### "Zillion" 2004, Hard Rock
+
+You And Me 
+This Day Is Gone 
+Dirty Little Secret 
+Never Down 
+Kryptonite 
+The Smile 
+Wonder Why 
+Take It Away 
+Day Or Night 
+The Hose 
+Say Goodbye 
+
+Sandro Giampietro – Vocals, Guitars & Keyboards
+Jens Becker – Bass Guitar
+Mike Terrana – Drums
+
 
 ## Отношения с другими группами
 

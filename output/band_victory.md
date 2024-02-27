@@ -1,8 +1,35 @@
 # Victory
 
-Дискография
-"Instinct" 2003, Hard Rock
-"Fuel To The Fire" 2005, Hard Rock
+hard rock
+
+## Дискография
+
+### "Instinct" 2003, Hard Rock
+
+
+
+### "Fuel To The Fire" 2005, Hard Rock
+
+1. Standing Like A Rock 
+2. Don't Tell No Lies 
+3. Take The Place 
+4. Running Scared 
+5. Templates Of Gold 
+6. Rock The Neighbours 
+7. Backseat Rider 
+8. Rock'n'Roll Kids 
+9. Rebel Ready 
+10. On The Loose 
+11. Check's In The Mail 
+12. So They Run 
+
+Состав: 
+Jioti Parcharidis - vox 
+Tommy Newton - guitar 
+Herman Frank - guitar 
+"Fargo" Peter Knorn - bass 
+Fritz Randow - drums
+
 
 ## Отношения с другими группами
 

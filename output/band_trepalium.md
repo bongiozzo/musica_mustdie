@@ -1,9 +1,55 @@
 # Trepalium
 
-Дискография
-"Through the Absurd" 2004, Techno Death
-"Alchemik Clockwork of Disorder" 2006, Techno Death
-"XIII" 2009, Techno Death
+
+
+## Дискография
+
+### "Through the Absurd" 2004, Techno Death
+
+1. Paranoпd 04:27  
+2. Martyr 03:25  
+3. Necropolis 02:46  
+4. Through the Absurd 02:38  
+5. The Worst 04:00  
+6. Filthy Carcass 03:41  
+7. Backstabber 03:53  
+8. Machine 01:48  
+9. Savage 03:45  
+10. Escape to Death 03:16  
+11. Pain's Threshold 03:21  
+12. Coalesce to Suffer 04:01  
+13. Salvation 02:23 
+
+### "Alchemik Clockwork of Disorder" 2006, Techno Death
+
+1. Decease My Life 03:02  
+2. Modus Operandi 02:57  
+3. Decayed Emotions 03:02  
+4. Alchemick Clockwork Of Disorder 04:14  
+5. Vesania 02:46  
+6. One Breath Of Peace 02:13  
+7. Perversion Of Reality 03:32  
+8. Ritual 04:06  
+9. Psycho Theme 01:48  
+10. Pulsion 04:04  
+11. Sick Boogie Murder 03:21  
+12. Who's Fucked Up ? 04:51 
+
+### "XIII" 2009, Techno Death
+
+1. Daddy's Happy 04:13  
+2. Glowing Cloud 03:26  
+3. Blink of Time 02:20  
+4. Addicted to Oblivion 03:47  
+5. Inner Hell 03:39  
+6. Unexpectable Lies 03:50  
+7. And Now... 05:12  
+8. Usual Crap 03:52  
+9. Become 04:15  
+10. World Plague 03:28  
+11. Sadistik Peace 05:13  
+12. Fant-Easy Reality 11:48 
+
 
 ## Отношения с другими группами
 

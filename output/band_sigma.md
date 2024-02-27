@@ -1,8 +1,17 @@
 # Sigma
 
-Дискография
-"Win or Lose (demo)" 2003, Heavy Metal
-"Win or Lose" 2003, Heavy Metal
+heavy from Italy
+
+## Дискография
+
+### "Win or Lose (demo)" 2003, Heavy Metal
+
+
+
+### "Win or Lose" 2003, Heavy Metal
+
+
+
 
 ## Отношения с другими группами
 

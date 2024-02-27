@@ -1,8 +1,43 @@
 # Blackguard
 
-Дискография
-"Profugus Mortis" 2009, Folk
-"Firefight" 2011, Melodic Death Metal
+
+
+## Дискография
+
+### "Profugus Mortis" 2009, Folk
+
+01. Scarlet To Snow
+02. This Round's On Me
+03. Allegiance
+04. I Demon
+05. The Sword
+06. In Time
+07. The Journey [bonus]
+08. Cinder
+09. Vain
+10. The Last We Wage
+
+Etienne (Bass)
+Jonathan (Keyboards)
+Justine (Drums)
+Kim (Lead Guitar)
+Paul Ablaze (Vocals)
+Terry (Rhythm Guitar)
+
+### "Firefight" 2011, Melodic Death Metal
+
+1. Tephra 00:34  
+2. Firefight 05:03  
+3. Farewell 04:07  
+4. Wastelands 06:20  
+5. Cruel Hands 04:43  
+6. Iblis 02:53  
+7. The Fear Of All Flesh 04:53  
+8. A Blinding Light 05:15  
+9. The Path 05:00  
+10. Sarissas 04:44 
+
+
 
 ## Отношения с другими группами
 

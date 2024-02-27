@@ -1,7 +1,30 @@
 # Tears
 
-Дискография
-"Winds Of Dreamland" 1995, Heavy Metal
+Kings Of Turkish Doom-Power Metal
+
+## Дискография
+
+### "Winds Of Dreamland" 1995, Heavy Metal
+
+1.  Winds Of Dreamland
+2.  We Are All Alone
+3.  Vicious Woman
+4.  First Light Of The Morning
+5.  Feel The Fire
+6.  Rest In Peace (For Umit Yilbar)
+7.  Silence Of The Night
+8.  Cries Of Memories
+9.  Farewell (Reprise)
+
+Ozgur Ozturk - Rhythm & Lead Guitar, Back Vocals, Programming
+Sinan Cilesiz - Vocals, Back Vocals
+Cenap Ustel - Bass
+
+Produced By HADES Records & TEARS.
+Recorded At Studio Doruk Onatkut.
+
+(P)c 1995 HADES Records
+
 
 ## Отношения с другими группами
 

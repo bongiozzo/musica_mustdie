@@ -1,14 +1,151 @@
 # Type O Negative
 
-Дискография
-"Slow, Deep And Hard" 1991, Alternative
-"The Origin Of The Feces" 1992, Alternative
-"Bloody Kisses" 1993, Alternative
-"October Rust" 1996, Alternative
-"World Coming Down" 1999, Alternative
-"Life Is Killing Me" 2003, Doom
-"Dead Again" 2007, Doom
-"Dead Again Bonus DVD (DVD)" 2008, Doom
+ex-Carnivore
+
+## Дискография
+
+### "Slow, Deep And Hard" 1991, Alternative
+
+1. Unsuccessfully Coping With The 
+     Natural Beauty Of Infidelity
+2. Der Untermensch
+3. Xero Tolerance
+4. Prelude To Agony
+5. Glass Walls Of Limbo (Dance Mix)
+6. The Misinterpretation Of Silence
+     And Its Disastrous Consequences
+7. Gravitational Constant: ...
+
+ P. - Vox,Bass
+ K. - Guitar,Vox
+ J. - Keys,Vox
+ S. - Drums
+
+All Songs Written By Peter Steele.
+Produced By TYPE O NEGATIVE.
+Engineered By Mike Marciano.
+Recorded & Mixed At Systems Two,Brooklyn,NY.
+
+(p)&(c) 1991 ROADRUNNER Prod. B.V.
+
+
+### "The Origin Of The Feces" 1992, Alternative
+
+1. I Know You're Fucking Else
+2. Are You Afraid
+3. Gravity
+4. Pain
+5. Kill You Tonight
+6. Hey Pete
+7. Kill You Tonight(Reprise)
+8. Paranoid
+        
+ P - Vocals,Bass
+ K - Guitar,Vocals
+ J - Keys,Vocals
+ S - Drums
+
+Produced by P.T. Barnum with Josh Silver & Peter Steele. 
+Executiv Producers: Bialishtor & Bloom
+Recorded Octobre 31st, 1991 at Brighton Beach,Brooklyn, NY.
+Mixed March 8th,1992 from 8:00 to 11:00PM at Systems Two, 
+Brooklyn,Ny.
+
+(p)&(c) 1992 THE ALL BLACK B.V.
+
+### "Bloody Kisses" 1993, Alternative
+
+1. Machine Screw
+2. Christian Woman
+3. Black No. 1
+4. Fay Wray Come Out And Play
+5. Kill All The White People
+6. Summer Breeze
+7. Set Me On Fire
+8. Dark Side Of The Womb
+9. We Hate Everyone
+10.Bloody Kisses
+11.3.0.I.F.
+12.Too Late: Frozen
+13.Blood And Fire
+14.Can't Lose You
+
+ P. - Vox, Bass
+ K. - Guitar, Vox
+ J. - Keys
+ S. - Drums
+
+Produced By Sylver-Steele
+Recorded At System Two - Brooklyn, NYC
+All Songs Decomposed By Steele
+
+(p)&(c) 1993 ROADRUNNER Prod. B.V.
+
+### "October Rust" 1996, Alternative
+
+1. Bad Ground
+2. No Name
+3. Love You To Death
+4. Be My Druidess
+5. Green Man
+6. Red Water (Christmas Mourning)
+7. My Girlfriend's Girlfriend 
+8. Die With Me
+9. Burnt Flowers Fallen
+10.In Praise Of Bacchus
+11.Cinnamon Girl
+12.The Glorious Liberation Of The People's 
+Technocratic Republic Of Vinnland By The Combined Forces 
+Of The United Territories Of Europa
+13.Wolf Moon (Including Zoanthropic Paranoia)
+14.Haunted
+15.No Name
+
+Produced By Silver/Steele.
+Recorded At SystemTwo / Brooklyn, NY.
+
+(P)c 1996 ROADRUNNER Records
+
+### "World Coming Down" 1999, Alternative
+
+
+
+### "Life Is Killing Me" 2003, Doom
+
+1. Uncle Freddy Died?
+2. I Don't Wanna Be Me
+3. Life Is Killing Me
+4. Anesthesia
+5. The Dream Is Dead
+6. Todd's Ship Gods (Above All Things)
+7. (We Were) Electrocute
+8. Less Than Zero
+9. ...A Dish Better Served Coldly
+10. Loud And Queer
+11. I Like Goils
+12. How Could She?
+13. Nettie
+14. Angry Inch
+15. IYDKMIGTHTKY (Gimme That)
+
+
+### "Dead Again" 2007, Doom
+
+1. Dead Again
+2. Tripping a Blind Man
+3. The Profits of Doom
+4. September Sun
+5. Halloween in Heaven
+6. These Three Things
+7. She Burned Me Down
+8. Some Stupid Tomorrow
+9. An Ode to Locksmiths
+10. Hail and Farewell to Britain
+
+### "Dead Again Bonus DVD (DVD)" 2008, Doom
+
+
+
 
 ## Отношения с другими группами
 

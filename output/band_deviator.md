@@ -1,7 +1,19 @@
 # Deviator
 
-Дискография
-"Mighty Black Inner Flame" 2009, Death Metal
+
+
+## Дискография
+
+### "Mighty Black Inner Flame" 2009, Death Metal
+
+1. Forgotten Hope 03:25  
+2. The Last day of Mankind 04:13 
+3. Mighty Black Inner Flame 06:53 
+4. Mesmerized by Blood 03:18 
+5. Undying Darkness 03:33  
+6. Raw Symphony of Sorrow 05:55  
+7. Undying Darkness (instrumental) 05:01 
+
 
 ## Отношения с другими группами
 

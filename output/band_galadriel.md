@@ -1,12 +1,111 @@
 # Galadriel
 
-Дискография
-"Empire of Emptiness" 1997, Death Doom
-"The Mirror of Ages" 1999, Death Doom
-"Oblivion" 2000, Death Doom
-"From Ashes & Dust" 2002, Gothic
-"World Under World" 2004, Metal
-"Renascence Of Ancient Spirit" 2007, Metal
+Melodic doom metal from Slovakia
+
+## Дискография
+
+### "Empire of Emptiness" 1997, Death Doom
+
+Empire Of Emptiness
+Solitude
+Sad Leaves Of The Dying Rose
+One Lost Child
+Kingdom Under The Ocean
+Silence And Screams
+Immortal Visions
+Dreaming Memories
+Tears Of Emptiness 
+
+
+### "The Mirror of Ages" 1999, Death Doom
+
+ The Forest Lullaby
+ The Flower And The Dark Butterfly
+ Fear In Their Eyes
+ Twilight Time
+ In The Garden Of Lost Shades
+ 1848
+ Vampirian Love
+ Lost Paths Of Unicorns
+ The Battle By Wogastisburg 
+
+
+### "Oblivion" 2000, Death Doom
+
+  On The Wings Of Gwaihir
+  Strokes Of Desire
+  As Your Body Burns
+  Blindness
+  Lavondyss
+  The Evening And Then Came The Night
+  My December
+  It Ends When The Moon Looses Its Face
+  Rivers Of Oblivion
+  Dowina
+  Acheron
+ 
+
+### "From Ashes & Dust" 2002, Gothic
+
+01. Thorns
+02. From Ashes & Dust
+03. Strong One Against the Storm
+04. Dark Erotica
+05. A Horned Man
+06. I'm the Everything
+07. The Rememberance
+08. 2848
+09. Armies of Valinor
+10. Among your Tears
+11. The Bard's Song - The Hobbit (bonus)
+
+
+Dodo Datel - vocal, bass
+Sona Witch Kozakova - vocal
+Tomax Gabris - guitars
+Lubomir Kozak - keyboards
+Dr. Victor - drums
+
+
+
+### "World Under World" 2004, Metal
+
+1. Under The Wings Of The Fallen One 05:46  
+2. The End Of Eternity 05:54  
+3. Imaginary Sins 03:34 
+4. The Fall 00:50  
+5. Bleeding Heart's Poetry 05:12  
+6. I Closed Your Book 04:48  
+7. Noxius Humanity 04:30  
+8. Insanity And Suffering 04:20
+9. Sex In The Underworld 02:51
+10. The Grave Is The Last 06:20 
+
+Line Up:
+Dodo Datel - Vocals and Bass
+Tomax Gabris - Guitars
+Matus Hanus - Guitars
+Lukash Shushka - Drums
+
+Guest Musicians:
+Lydia Lacova - Female Vocals
+Andrea Tkacova - Violin
+Martin Kolarik - Melodic Vocals
+Andrej Kutis - Melodic Vocals
+Vidar - Melodic Vocals
+Nathuruss - Vocals
+
+### "Renascence Of Ancient Spirit" 2007, Metal
+
+1. Ode To The Earth 03:57  
+2. Between The Worlds 05:52  
+3. Metamorphosis 04:15  
+4. Renascence of Ancient Spirit 04:53  
+5. Sorrowful Planet 06:29  
+6. No More Light 05:29  
+7. The Autumn Leaves 05:42  
+8. A Grain Of Sand 04:54
+
 
 ## Отношения с другими группами
 

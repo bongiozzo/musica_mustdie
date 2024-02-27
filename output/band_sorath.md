@@ -1,9 +1,51 @@
 # Sorath
 
-Дискография
-"Gnosis" 1998, Black Metal
-"Omnes Dii Gentium Daemonia" 2000, Black Metal
-"Vivimos En Perpetua Guerra" 2003, Black Metal
+
+
+## Дискография
+
+### "Gnosis" 1998, Black Metal
+
+1. Gnosis 00:32  
+2. Enlightenment 03:13  
+3. Skulls Of Innocents 03:00  
+4. Words Of Hate 04:47  
+5. Cries Of Churches 05:23  
+6. In Golden Light 02:02  
+7. The Law 05:29  
+8. Coldhearted Blasphemy 02:37  
+9. Satan's Sword 04:56  
+10. Coming 02:29  
+11. Torment 04:35  
+12. Calling 05:00 
+
+### "Omnes Dii Gentium Daemonia" 2000, Black Metal
+
+1. Coldhearted Blasphemy Alpha 05:42
+2. Invocation of Demogorgon 02:30 
+3. Fete 04:38
+4. House Of The Nameless Ones 03:14
+5. Supreme Cross 01:33 
+6. Chapel Of Abominations 01:57
+7. The Cold Air 05:33
+8. Dreamless Sleep 03:18
+9. Again As The Slaves (Misery Of Circulation) 03:31
+10. The Horny And The Horned (Bonus) 03:13 
+
+### "Vivimos En Perpetua Guerra" 2003, Black Metal
+
+1. My Last Heraldic Sign 02:32
+2. The Sign Of Burn / The Flames Of Hell 02:58 
+3. The Teacher Of Wisdom 05:31
+4. The Legions Of Bafomets 03:23
+5. The Curse Of Balance 02:05
+6. The Dream Of Victory 03:13
+7. In The Loathsome Cradle Of Wicked Christians 02:43
+8. The Fifth Point 02:47
+9. Dreaming Times 04:02 
+10. Vivimos En Perpetua Guerra 01:03  
+11. Finish Of The Sorath's Sword 03:59 
+
 
 ## Отношения с другими группами
 

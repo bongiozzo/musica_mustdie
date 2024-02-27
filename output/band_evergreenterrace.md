@@ -1,9 +1,30 @@
 # Evergreen Terrace
 
-Дискография
-"Wolfbiker" 2007, Hardcore
-"Almost Home" 2009, Metalcore
-"Dead Horses" 2013, Metalcore
+
+
+## Дискография
+
+### "Wolfbiker" 2007, Hardcore
+
+1. Bad Energy Troll 
+2. High Tide Or No Tide 
+3. Wolfbiker 
+4. Chaney Can't Quite Riff Like Helmet's Page Hamilton 
+5. Where There Is Fire We Will Carry Gasoline 
+6. Rip This! 
+7. Starter 
+8. To The First Baptist Church Of Jacksonville 
+9. Rolling Thunder Mental Illness 
+10. The Damned
+
+### "Almost Home" 2009, Metalcore
+
+
+
+### "Dead Horses" 2013, Metalcore
+
+
+
 
 ## Отношения с другими группами
 

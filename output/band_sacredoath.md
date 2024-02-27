@@ -1,10 +1,35 @@
 # Sacred Oath
 
-Дискография
-"A Crystal Vision" 1987, Power Metal
-"Darkness Visible" 2007, Power Metal
-"Sacred Oath" 2009, Power Metal
-"World On Fire" 2010, Power Metal
+
+
+## Дискография
+
+### "A Crystal Vision" 1987, Power Metal
+
+
+
+### "Darkness Visible" 2007, Power Metal
+
+
+
+### "Sacred Oath" 2009, Power Metal
+
+
+
+### "World On Fire" 2010, Power Metal
+
+1.	 Sweet Agony	04:48
+2.	 Meet Your Maker	04:56	 
+3.	 The King Must Die	05:26	 
+4.	 Sandrider	08:58	 
+5.	 Front Line	04:14	 
+6.	 Face of Evil	05:10	 
+7.	 Drums of War	03:40	 
+8.	 Revolution	05:12	 
+9.	 When the War is Over	04:49	 
+10.	 On Death Row	03:50	 
+11.	 World On Fire	07:03
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,66 @@
 # Wehrmacht
 
-Дискография
-"Shark Attack" 1987, Hardcore
-"Biermacht" 1988, Hardcore
+Legend Of Hardcore
+
+## Дискография
+
+### "Shark Attack" 1987, Hardcore
+
+1. Shark Attack
+2. Blow You Away
+3. S.O.B.
+4. Jabberjaw
+5. Barrage Of Sklankers
+6. United Shoebrothers
+7. Part II
+8. Go Home
+9. Anti
+10.Napalm Shower
+11.Crazy Ways People Die
+12.Frettboard Gymnastics
+13.Terminator
+
+ Tito Matos - Vocals
+ John Duffy - Guitars
+ Marco Zorich - Guitars
+ Shann Martimer - Bass
+ Brian Lehfeldt - Drums
+
+Produced By WEHRMACHT Guys.
+
+(p)&(c) 1987 SHARK Rec.
+
+### "Biermacht" 1988, Hardcore
+
+1. You Broke My Heart
+   (So I Broke Your Face)
+2. Gore Flix
+3. The Beer Is Here
+4. Drink Beer Be Free
+5. The Wehrmacht
+6. Everb 
+6 1/2. E ... !
+6 3/4. Micro-E !
+7. Munchies
+8. Night Of Pain (Part I)
+9. Balance Of Opinion
+10.Suck My Dick
+11.Interlude
+12.Drink Jack
+13.Radical Dissection
+14.Biermacht
+15.Outro
+
+ Tito Matos - Vocals
+ John Duffy - Guitars
+ Marco Zorich - Guitars
+ Shann Martimer - Bass
+ Brian Lehfeldt - Drums
+
+Produced By WEHRMACHT Guys.
+
+(p)&(c) 1988 SHARK Rec
+
 
 ## Отношения с другими группами
 

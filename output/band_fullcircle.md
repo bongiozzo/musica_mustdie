@@ -1,7 +1,27 @@
 # Full Circle
 
-Дискография
-"Negative" 1995, Thrash
+
+
+## Дискография
+
+### "Negative" 1995, Thrash
+
+1. Way Of Life
+2. Negative
+3. Fear Me
+4. Killing Tribe
+5. Dead Pit
+6. Coal Black Eyes
+7. Pale Flesh
+8. Color Of Hate
+9. Force Of Will
+10.Obvious
+11.Why Can't You
+
+All Songs Written By FULL CIRCLE.
+
+(P)&(C) 1995 MASSACRE Records
+
 
 ## Отношения с другими группами
 

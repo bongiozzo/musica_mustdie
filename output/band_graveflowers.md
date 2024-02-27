@@ -1,8 +1,37 @@
 # Grave Flowers
 
-Дискография
-"Solace Me" 2000, Gothic
-"Incarcerated Sorrows" 2005, Gothic
+melancholic gothic-doom-metal
+
+## Дискография
+
+### "Solace Me" 2000, Gothic
+
+
+
+### "Incarcerated Sorrows" 2005, Gothic
+
+1. At night
+2. Lackrosy
+3. Fear of future
+4. Sleep demons sleep
+5. Freeze the time
+6. Save me or destroy me
+7. Erase/Delete
+8. Cold despair
+9. Your memory lives on
+10. My final night
+11. Leaving the warzone (Count Raven cover)
+
+We recorded the drums at "Hairy Bones" and the rest of the album is recorded at "Speedball Studio" in Karlstad. 
+It took us 14 days to record this album and 5 days to mix it. The people who played on this album are.
+
+Matte Andersson: Vocals & Bass
+Jason Janson: All guitars
+
+Sessionmusicians
+Jacob Backman: Drums
+Elena Andersson: Keyboards
+
 
 ## Отношения с другими группами
 

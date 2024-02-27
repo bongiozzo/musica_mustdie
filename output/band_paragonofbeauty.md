@@ -1,9 +1,53 @@
 # Paragon Of Beauty
 
-Дискография
-"The Spring" 1998, Black Metal
-"Seraphine...far gone gleam" 1999, Black Metal
-"Comfort Me, Infinity" 2001, Gothic
+
+
+## Дискография
+
+### "The Spring" 1998, Black Metal
+
+
+
+### "Seraphine...far gone gleam" 1999, Black Metal
+
+1. To my unfading sorrow
+2. After dark vapours have oppressed our plains
+3. Narrenjagd
+4. Wie ein zartes blatt im morgenwind
+5. The company
+6. Lonesome
+
+
+
+### "Comfort Me, Infinity" 2001, Gothic
+
+1. This impossible moment
+2. One step into nothingness 
+3. Yonder thy primrose path, my shuddered face 
+4. Comfort me, infinity 
+5. A drowning day 
+6. About glum naiades and idle gods 
+7. How futile it seems to sow 
+8. I wished you wouldn't fall silent 
+
+
+
+Comfort me, infinity was recorded, mixed and mastered at Klangschmiede Studio E in March/February 2001 by Markus Stock
+Produced by Paragon of beauty and Markus Stock
+All music written and arranged between 1997 and 2001 by Monesol and Paragon of beauty
+All lyrics by Monesol
+Cover and booklet idea by Monesol
+Cover and booklet design by Companions In Art.
+
+
+
+Monesol: Gesang, Gitarren 
+Sol: Schlagzeug 
+Taisha: Bass 
+Oliver: Gitarren 
+Andreas: Gitarren 
+
+
 
 ## Отношения с другими группами
 

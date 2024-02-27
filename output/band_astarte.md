@@ -1,11 +1,94 @@
 # Astarte
 
-Дискография
-"Doomed Dark Years" 1998, Black Metal
-"Rise From Within" 2000, Black Metal
-"Quod Superius Sicut Inferius" 2002, Black Metal
-"Sirens" 2004, Black Metal
-"Demonized" 2007, Black Metal
+
+
+## Дискография
+
+### "Doomed Dark Years" 1998, Black Metal
+
+1. Passage to eternity (plelude)
+2. Voyage to eternal life
+3. Thorns of Charon(pt1) -Astarte's call
+4. Doomed Dark Years
+5. Thorns of Charon(pt2)-(Emerge from Hades)
+6. Thorns of Charon (pt3)-(Pathway to unlight)
+7. Empress of the shadow land
+8. The rise of Metropolis
+
+### "Rise From Within" 2000, Black Metal
+
+1. Furious Animosity
+2. Rise From Within I (Mystical Provocation)
+3. Rise From Within II (Selenium Erring)
+4. Naked Hands
+5. Genesis
+6. Liquid Myth
+7. Non Existent Equilibrium
+8. Rise From Within III
+9. Risen From Within
+
+### "Quod Superius Sicut Inferius" 2002, Black Metal
+
+01 - Reign Unfold
+02 - Inflamed Paradox
+03 - Oblivious Darkness
+04 - Deep Down The Cosmos
+05 - Astarte
+06 - Incarnate Legend Of Mummy Queen
+07 - In Velvet Slumber
+08 - Sichness
+09 - Quod Superius Sicut Inferius
+10 - Crossing The Wounded Mirror Of Death
+
+
+
+Kinthia (vocals, guitars, acoustic guitars, synth), 
+Nemesis (guitars, acoustic guitars, synth), 
+Tristessa (bass, classic guitar, synth)
+Ivar : (drums)
+
+      
+
+### "Sirens" 2004, Black Metal
+
+1. Dark Infected Circles (OUTBREAK)
+2. Black Mighty Gods
+3. LLOTH
+4. Bitterness of Mortality (with Nikos from LLOTH band)
+5. Deviate
+6. Oceanus Procellarum (with Sakis from Rotting Christ)
+7. Ring of Sorrow (with Shagrath from Dimmu Borgir)
+8. Twist, Nail, Torture
+9. Sirens
+10. Underwater Persephone
+
+### "Demonized" 2007, Black Metal
+
+1. Mutter 04:43  
+2. God I Hate them All 05:11  
+3. Lost 04:53  
+4. Whispers of Chaos 01:00  
+5. Demonized 03:59  
+6. Lycon 05:41  
+7. Queen of the Damned 05:29  
+8. Heart of Flames 05:36  
+9. God Among Men 05:05  
+10. Everlast 03:33  
+11. Black at Heart 04:47  
+12. Black Star 05:28  
+13. Princess of the Dawn 05:17  
+14. Everlast II 04:13 
+
+Tristessa (aka Lady Lilith) - Bass, Vocals, Lead/Acoustic Guitars (Insected, ex-Vorphalack, Lloth)
+Katharsis - Keyboards, Effects
+Hybris - Guitar
+
+With special guests on vocals:
+- God Among Men (with Nicolas Sic Maiis) (Lloth)
+- Lycon (with Attila Csihar) (Mayhem)
+- Queen of the Damned (with Henri Sattler) (God Dethroned)
+- Black at Heart (with Angela Gossow) (Arch Enemy)
+
 
 ## Отношения с другими группами
 

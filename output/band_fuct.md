@@ -1,8 +1,41 @@
 # F.U.C.T.
 
-Дискография
-"Dimensional Depth Perception" 1990, Crossover
-"Retain To The Aggro" 2008, Crossover
+
+
+## Дискография
+
+### "Dimensional Depth Perception" 1990, Crossover
+
+1. Infectious World 04:15  
+2. Lost 02:20  
+3. Ripen 04:34  
+4. Technikilation 02:07  
+5. Suekoesng 02:32  
+6. My Define 01:46  
+7. Screen 03:25  
+8. Infraction 02:56  
+9. Demeaning 02:16  
+10. Dimensional Depth Perception 03:03  
+11. Ungratical 03:03 
+
+### "Retain To The Aggro" 2008, Crossover
+
+1. Retain To the Aggro   
+2. Devotion To My Dying World   
+3. Matrillized Obsess   
+4. Of Slight Progression   
+5. A Foreboding Tale of Woe   
+6. Strill   
+7. Vapourlocke   
+8. Grievances Aside   
+9. Roo   
+10. A Repressed Meeting With Something Soon To Be Dead   
+11. Kicker   
+12. Belle   
+13. Plummet   
+14. October   
+15. The Vast Openness 
+
 
 ## Отношения с другими группами
 

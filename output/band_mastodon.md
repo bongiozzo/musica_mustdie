@@ -1,16 +1,149 @@
 # Mastodon
 
-Дискография
-"Lifesblood" 2001, Progressive
-"Remission" 2002, Progressive
-"Leviathan" 2004, Progressive
-"Call of the Mastodon" 2006, Progressive
-"Blood Mountain" 2006, Progressive
-"Crack the Skye" 2009, Progressive
-"The Hunter" 2011, Groove
-"Once More 'Round the Sun" 2014, Progressive
-"White Walker (single)" 2016, Progressive
-"Emperor of Sand" 2017, Progressive
+
+
+## Дискография
+
+### "Lifesblood" 2001, Progressive
+
+1. Shadows That Move 03:53
+2. Welcoming War 02:46  
+3. We Built This, Come Death 02:30  
+4. Hail to Fire 02:12 
+5. Battle at Sea 04:16
+
+### "Remission" 2002, Progressive
+
+1. Crusher Destroyer 02:00 
+2. March Of The Fire Ants 04:25 
+3. Where Strides The Behemoth 02:55  
+4. Workhorse 03:45  
+5. Ol'e Nessie 06:04
+6. Burning Man 02:46
+7. Trainwreck 07:04
+8. Trampled Under Hoof 03:00
+9. Trilobite 06:29 
+10. Mother Puncher 03:48  
+11. Elephant Man 08:01
+
+### "Leviathan" 2004, Progressive
+
+01. Blood And Thunder
+02. I Am Ahab
+03. Seabeast
+04. Island
+05. Iron Tusk
+06. Megalodon
+07. Naked Burn
+08. Aqua Dementia
+09. Hearts Alive
+10. Joseph Merrick
+
+### "Call of the Mastodon" 2006, Progressive
+
+1. Shadows that Move 03:37  
+2. Welcoming War 02:47  
+3. Thank You for this 01:40 
+4. We Built this Come Death 02:06 
+5. Hail to Fire 02:01  
+6. Battle at Sea 04:15 
+7. Deep Sea Creature 04:41 
+8. Slickleg 03:32
+9. Call of Mastodon 03:39 
+
+
+Re-release of the 1st demo with Troy and Brent on vocals instead of original
+vocalist Eric Saner.
+
+### "Blood Mountain" 2006, Progressive
+
+1. The Wolf is Loose 03:32   
+2. Crystal Skull 03:22   
+3. The Sleeping Giant 05:34  
+4. Capillarian Crest 04:24    
+5. Circle of Cysquatch 03:18   
+6. Bladecatcher 03:19    
+7. The Colony of Birchmen 04:18   
+8. Hunters of the Sky 03:49
+9. Hand of Stone 03:29  
+10. This Mortal Soil 04:54  
+11. The Siberian Divide 05:29  
+12. Pendulous Skin 05:01
+13. Hidden Track
+
+### "Crack the Skye" 2009, Progressive
+
+1. Oblivion 05:46
+2. Divinations 03:40
+3. Quintessence 05:27 
+4. The Czar 10:54 
+5. Ghost of Karelia 05:25
+6. Crack the Skye 05:54
+7. The Last Baron 13:00 
+
+### "The Hunter" 2011, Groove
+
+1. Black Tongue 03:26 
+2. Curl of the Burl 03:40 
+3. Blasteroid 02:35 
+4. Stargasm 04:40 
+5. Octopus Has No Friends 03:49 
+6. All the Heavy Lifting 04:31 
+7. The Hunter 05:18 
+8. Dry Bone Valley 04:00 
+9. Thickening 04:31 
+10. Creature Lives 04:41 
+11. Spectrelight 03:10 
+12. Bedazzled Fingernails 03:08 
+13. The Sparrow 05:32
+
+
+The Deluxe version contains different cover art, a bonus DVD, and the following bonus tracks (as digital downloads):
+ 14. The Ruiner
+ 15. Deathbound
+ 
+Bonus track for Japan:
+ 14. Deathbound 
+
+### "Once More 'Round the Sun" 2014, Progressive
+
+1. Tread Lightly 05:14
+2. The Motherload 04:59
+3. High Road 04:15
+4. Once More 'Round the Sun 02:58
+5. Chimes at Midnight 05:32
+6. Asleep in the Deep 06:12
+7. Feast Your Eyes 03:23
+8. Aunt Lisa 04:08
+9. Ember City 04:59
+10. Halloween 04:39
+11. Diamond in the Witch House 07:49
+
+
+### "White Walker (single)" 2016, Progressive
+
+1. White Walker      
+2. White Walker (A Cappella)  
+
+
+### "Emperor of Sand" 2017, Progressive
+
+1. Sultan's Curse  04:09  
+2. Show Yourself  03:02  
+3. Precious Stones  03:46 
+4. Steambreather  05:03   
+5. Roots Remain  06:28 
+6. Word to the Wise  04:00
+7. Ancient Kingdom  04:54    
+8. Clandestiny  04:28    
+9. Andromeda  04:05    
+10. Scorpion Breath  03:19    
+11. Jaguar God  07:56  
+
+
+Recorded at the Quarry in Kennesaw, Georgia.
+Mixed at Henson Studios in Los Angeles.
+
 
 ## Отношения с другими группами
 

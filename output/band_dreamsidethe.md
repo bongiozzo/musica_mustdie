@@ -1,11 +1,79 @@
 # Dreamside, The
 
-Дискография
-"Pale Blue Lights" 1995, Gothic
-"Nuda Veritas" 1996, Gothic
-"Apaika" 1996, Gothic
-"Mirror Moon" 2001, Gothic
-"Spin Moon Magic" 2005, Gothic
+gothic-rock
+
+## Дискография
+
+### "Pale Blue Lights" 1995, Gothic
+
+1. Divina
+2. Luis
+3. Slow
+4. Carpe Diem
+5. Women's Chart
+6. Godesses
+7. The Dreamside
+8. Travel
+9. Ritornerai
+
+ Remco Helbers - Chapman Stick & Programming
+ Kemi Vita - Vocals
+
+All Songs Written By THE DREAMSIDE
+Produced & Engineered By Remco Helbers & Marcello Dirks
+
+(p)&(c) 1995 DEATHWISH Records
+
+### "Nuda Veritas" 1996, Gothic
+
+1. Nuda Veritas
+2. The Divine (Based on Divina)
+3. Dance Goddesses Dance
+4. Nuda Veritas (Remix)
+
+All songs written by THE DREAMSlDE.
+Produced and mixed by Diex.
+Recorded by Smore.
+Recorded and mixed at the Wisseloord Studio 's Hilversum.
+
+Remco Helbers - Chapman Stick and
+Programming
+Kemi Vita - Vocals
+
+(p)(c) 1996 DEATHWISH OFFICE
+
+### "Apaika" 1996, Gothic
+
+1. Amazing Descendant (4.32)
+2. This Quest (8.13)
+3. Apaika (4.38)
+4. Dead End Streets (5.06)
+5. Troppo Per Del Tempo (4.00)
+6. Nuda Veritas (5.09)
+7. Fantasy (4.07)
+8. Paroles Dans La Nuit (5.07)
+9.Godsend (8.06)
+
+
+
+All songs written by THE DREAMSIDE
+Except Amazing Descendant, This Quest, Apaika, Nuda Veritas and Godsend, were written by Marcello Dirks 
+Produced by Vita.
+Engineered by Hans Bedeker and Bert Smorenburg.
+Recorded and mixed at the Wisseloord Studio's Hilversum.
+
+
+
+(p)(c) 1996 NUCLEAR BLAST Records
+
+### "Mirror Moon" 2001, Gothic
+
+
+
+### "Spin Moon Magic" 2005, Gothic
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,20 @@
 # S.O.S.
 
-Дискография
-"I Owe You Nothing (EP)" 2011, Hardcore
+
+
+## Дискография
+
+### "I Owe You Nothing (EP)" 2011, Hardcore
+
+01. Decontrol (intro)
+02. Keep Me Outside
+03. Part Of The Disease
+04. The Hard Truth
+05. I Owe You Nothing
+06. Never A Brother
+07. Choking On Dust
+
+
 
 ## Отношения с другими группами
 

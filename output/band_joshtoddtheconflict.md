@@ -1,7 +1,23 @@
 # Josh Todd & The Conflict
 
-Дискография
-"Year Of The Tiger" 2017, Rock
+
+
+## Дискография
+
+### "Year Of The Tiger" 2017, Rock
+
+01. Year of the Tiger
+02. Inside
+03. Fucked Up
+04. Rain
+05. Good Enough
+06. The Conflict
+07. Story of My Life
+08. Erotic City
+09. Push It
+10. Atomic
+11. Rain
+
 
 ## Отношения с другими группами
 

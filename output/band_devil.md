@@ -1,9 +1,41 @@
 # Devil
 
-Дискография
-"Magister Mundi Xum" 2010, Doom
-"Time To Repent" 2011, Doom
-"Gather The Sinners" 2013, Doom
+
+
+## Дискография
+
+### "Magister Mundi Xum" 2010, Doom
+
+
+
+### "Time To Repent" 2011, Doom
+
+01. The Welcome (Intro)
+02. Break the Curse
+03. Blood Is Boiling
+04. Time to Repent
+05. Crazy Woman
+06. Open Casket
+07. Death of a Sorcerer
+08. Howling (At the World)
+09. At the Blacksmith's 
+10. Outro 
+
+### "Gather The Sinners" 2013, Doom
+
+01. Southern Sun
+02. Beyond The Gate
+03. They Pale
+04. Legacy
+05. Restless Wanderer
+06. Untitled
+07. Ladies Of The Night
+08. Darkest Day
+09. Mother Shipton pt I
+10. Mother Shipton pt II
+11. Demons On Wheels
+12. Coffin Regatta
+
 
 ## Отношения с другими группами
 

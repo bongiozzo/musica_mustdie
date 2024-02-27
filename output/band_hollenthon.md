@@ -1,9 +1,70 @@
 # Hollenthon
 
-Дискография
-"Domus Mundi" 1999, Death Metal
-"With Vilest Of Worms To Dwell" 2001, Death Metal
-"Opus Magnum" 2008, Metal
+symphonic-dark metal
+
+## Дискография
+
+### "Domus Mundi" 1999, Death Metal
+
+Enrapture-Hinc Illae Lacrimae
+Homage-Magni Nominis Umbra
+Vestige-Non Omnis Moriar
+Lure-Pallida Mors
+Interlude-Ultima Ratio Regum
+Reprisal-Malis Avibus
+Premonition-Lex Talionis
+Eclipse-Vita Nova
+
+### "With Vilest Of Worms To Dwell" 2001, Death Metal
+
+1 Y Draig Goch
+2 Woe To The Defeated
+3 Lords Of Bedlam
+4 To Kingdom Come
+5 The Calm Before The Storm
+6 Fire Upon The Blade
+7 Conquest Demise
+8 Conspirator
+
+
+Martin Schirenc - vocals, guitar, bass and keyboards
+Mike Groeger - drums and percussion
+Elena Schirenc - vocals
+
+
+recorded and mixed by Martin Schirenc at Vato Loco Studio/Vienna, March 2001
+Mastered by Akeem Koehler at Indiscreet Audio/Winterbauch
+Cover concept and layout by Martin Schirenc
+Band photo by Klaus Pichler
+Music by Martin Schirenc
+Lyrics by Elena Schirenc
+Special thanks to Crazy Rob Barrett for the drunken solo!
+ 
+  
+
+
+
+
+### "Opus Magnum" 2008, Metal
+
+1. Ars Moriendi 05:33  
+2. ...Of Splendid Worlds 06:08  
+3. Once We Were Kings 04:50  
+4. To Fabled Lands 05:53  
+5. Dying Embers 05:28  
+6. Misterium Babel 08:31  
+7. On the Wings of a Dove 05:00  
+8. Son of Perdition 04:52  
+9. The Bazaar (The Tea Party cover) 
+
+
+
+Mike Gruger - Drums, Percussion 
+Martin Schirenc - Vocals, Guitar, Bass, Keyboards 
+Gregor "El Gore" Marboe - Bass, backing vocals 
+Martin Arzberger - Guitar
+Elena Schirenc - Female Vocals
+
 
 ## Отношения с другими группами
 

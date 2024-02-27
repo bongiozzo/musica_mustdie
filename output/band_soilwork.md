@@ -1,18 +1,309 @@
 # Soilwork
 
-Дискография
-"Steel Bath Suicide" 1998, Melodic Death Metal
-"Chainheart Machine" 1999, Melodic Death Metal
-"Predator's Portrait" 2001, Melodic Death Metal
-"Natural Born Chaos" 2002, Melodic Death Metal
-"Figure Number Five" 2003, Melodic Death Metal
-"Stabbing The Drama" 2005, Melodic Death Metal
-"Sworn To A Great Divide" 2007, Melodic Death Metal
-"The Panic Broadcast " 2010, Melodic Death Metal
-"The Living Infinite" 2013, Melodic Death Metal
-"Beyond the Infinite (EP)" 2014, Melodic Death Metal
-"The Ride Majestic (single)" 2015, Melodic Death Metal
-"The Ride Majestic" 2015, Melodic Death Metal
+
+
+## Дискография
+
+### "Steel Bath Suicide" 1998, Melodic Death Metal
+
+01. Entering the Angel Diabolique  
+02. Sadistic Lullaby 
+03. My Need  
+04. Skin After Skin  
+05. Wings of Domain  
+06. Steelbath Suicide 
+07. In a Close Encounter  
+08. Centro de Predomino  
+09. Razorlives  
+10. Demon in Veins  
+11. The Aardvark Trail
+
+Speed Strid: Vocals
+Ludvig Svartz: Lead and rhythm guitar
+Peter Wichers: Lead and rhythm guitar
+Jimmy Persson: Drums
+Ola Flink: Bass guitar
+Carlos Del Olmo Holmberg: Keyboards and synthetiser programming
+
+Produced by Fredrik Nordstrom and Soilwork
+
+(p) 1998 Listenable
+
+### "Chainheart Machine" 1999, Melodic Death Metal
+
+1 Chainheart Machine 4:02 
+2 Bulletbeast 4:38 
+3 Million Flame 4:20 
+4 Generation Speedkill (Nice Day for Public Suicide) 4:27 
+5 Neon Rebels 3:24 
+6 Possessing the Angels 3:55 
+7 Spirits of the Future Sun 6:00 
+8 Machine Gun Majesty 5:06  
+9 Room No. 99 7:39 
+
+### "Predator's Portrait" 2001, Melodic Death Metal
+
+01. Bastard Chain 
+02. Like An Average Stalker 
+03. Needlefeast 
+04. Neurotica Rampage 
+05. The Analyst 
+06. Grand Failure Anthem 
+07. Structure Divine 
+08. Shadowchild 
+09. Final Fatal Force 
+10. A Predatorґs Portrait
+
+### "Natural Born Chaos" 2002, Melodic Death Metal
+
+01. Follow The Hollow
+02. As We Speak
+03. The Flameout
+04. Natural Born Chaos
+05. Mindfields
+06. The Bringer
+07. Blackstar Deceiver (feat. Devin Townsend)
+08. Mercury Shadow
+09. No More Angels
+10. Song Of The Damned
+11. Mercury Shadow (Swedish version—Japanese bonus track)
+
+
+
+Produced by Fredrik Norstrom, Devin Townsend, and Soilwork
+Recorded at Studio Fredman in 2001, Released in 2002
+Cover artwork created by Travis Smith. 
+
+Peter Wichers: Lead and Rhythm guitar
+Bjorn "Speed" Strid: Vocals
+Ola Frenning: Lead and Rhythm guitar
+Henry Ranta: Drums
+Sven Karlsson: Keyboards
+Ola Flink: Bass guitar
+
+### "Figure Number Five" 2003, Melodic Death Metal
+
+01. Rejection Role
+02. Overload
+03. Figure Number Five
+04. Strangler
+05. Light the Torch
+06. Departure Plan
+07. Cranking the Sirens
+08. Brickwalker
+09. The Mindmaker
+10. Distortion Sleep
+11. Downfall 24
+
+Guest apperances
+Guest vocals on Figure Number Five - Jens Broman /
+Hatelight
+Tambourine on Brickwalker - Richard Larsson
+
+Produced by Soilwork
+Guitars and keyboards recorded at Queenstreet
+Recording December-January 2003
+Engineered by Richard Larsson and Peter Wichers
+Drums recorded at Dug-Out productions January 2003
+Engineered by Daniel Bergstrand
+Vocals and bass recorded at Studio Fredman
+January-February 2003
+Co-produced and engineered by Patrick Josten
+Additional Pro Tools:
+Fredrik Nordstrom, Patrick Josten, Pete Wichers,
+Rickard Larsson
+Mixed at Studio Fredman
+Mixed by Fredrik Nordstrom, Patrick Josten &
+Soilwork
+Mastered by Goran Finnberg at the Mastering Room
+Art direction - design: Nailstream (Carlos Del
+Olmo Holmberg)
+Photography: Olle Carlsson
+All songs written and arranged by Soilwork except
+"Cranking The Sirens" by Soilwork & Patrick Josten
+
+### "Stabbing The Drama" 2005, Melodic Death Metal
+
+1.Stabbing The Drama
+2.One With The Flies
+3.Weapon Of Vanity
+4.The Crestfallen
+5.Nerve
+6.Stalemate
+7.Distance
+8.Observation Slave
+9.Fate In Motion
+10.Blind Eye Halo
+11.If Possible
+
+Bonus:
+12. Wherever Thorns May Grow (on lim. Edition US/Europe + bonus for Japan)
+13.Killed By Ignition (Bonus for Japan only)
+
+### "Sworn To A Great Divide" 2007, Melodic Death Metal
+
+1. Sworn To A Great Divide   
+2. Exile   
+3. Breeding Thorns   
+4. Your Beloved Scapegoat   
+5. The Pittsburgh Syndrome   
+6. I, Vermin   
+7. Light Discovering Darkness   
+8. As The Sleeper Awakes   
+9. Silent Bullet   
+10. Sick Heart River   
+11. 20 More Miles 
+
+Vocals recorded in Vancouver, BC, Canada by Devin Townsend.
+
+Features a bonus song, track 12, called Martyr. 
+
+Bjorn ``Speed`` Strid - Vocals 
+Ola Frenning - Guitars
+Sven Karlsson - Keyboards 
+Ola Flink - Bass 
+Dirk Verbeuren - Drums
+Daniel Antonsson - Guitars
+
+### "The Panic Broadcast " 2010, Melodic Death Metal
+
+1. Late For The Kill, Early For The Slaughter 04:09  
+2. Two Lives Worth Of Reckoning 04:56 
+3. The Thrill 04:33  
+4. Deliverance Is Mine 03:50
+5. Night Comes Clean 05:12 
+6. King Of The Threshold 04:57 
+7. Let This River Flow 05:20 
+8. Epitome 04:44  
+9. The Akuma Afterglow 04:29 
+10. Enter Dog Of Pavlov 05:36 
+
+
+
+Line-up:
+Bjцrn "Speed" Strid - Vocals
+Peter Wichers - Lead Guitars
+Sylvain Coudret - Rhythm Guitars
+Ola Flink - Bass
+Sven Karlsson - Keyboards
+Dirk Verbeuren - Drums
+
+The album was produced and engineered by Peter Wichers and mixed at Fascination
+Street studio in Цrebro, Sweden with Jens Bogren (Opeth, Katatonia, Paradise
+Lost, Bloodbath).
+
+The deluxe edition has a bonus track:
+11. Sweet Demise (04:09)
+and a DVD which features:
+- Extended studio footage
+- High-definition drum video
+- Photo gallery
+
+Bonus tracks for Japan:
+11. Sweet Demise (04:09)
+12. Sadistic Lullaby (2010 Version) (2:56)
+13. The Crestfallen (Drop Syber's Revision) (4:37)
++ Bonus DVD
+
+
+### "The Living Infinite" 2013, Melodic Death Metal
+
+Disc 1 
+1. Spectrum of Eternity  04:01  
+2. Memories Confined  03:25  
+3. This Momentary Bliss  03:46   
+4. Tongue  04:17  
+5. The Living Infinite I  03:50 
+6. Let the First Wave Rise  02:52   
+7. Vesta  04:18   
+8. Realm of the Wasted  04:29   
+9. The Windswept Mercy  04:14  
+10. Whispers and Lights  05:09   
+
+Disc 2  
+1. Entering Aeons  02:34  
+2. Long Live the Misanthrope  05:26   
+3. Drowning with Silence  04:28  
+4. Antidotes in Passing  04:16  
+5. Leech  04:20   
+6. The Living Infinite II  05:39   
+7. Loyal Shadow  02:34  
+8. Rise Above the Sentiment  04:03  
+9. Parasite Blues  05:17   
+10. Owls Predict, Oracles Stand Guard  05:24 
+
+
+ Produced by Jens Bogren and Soilwork.
+ All lyrics by Bjorn "Speed" Strid, except "Owls Predict, Oracles Stand Guard" by Ola Flink and "Let the First Wave Rise" by David Andersson.
+
+ CD 1:
+ Tracks 5, 7, 9 by Strid.
+ Tracks 4, 6, 10 by Andersson.
+ Tracks 1, 3 by Strid/Andersson.
+ Track 2 by Karlsson.
+ Track 8 by Coudret.
+
+ CD 2:
+ Tracks 1, 2, 3, 4 by Andersson.
+ Tracks 6, 8 by Strid.
+ Track 9 by Strid/Andersson.
+ Track 10 by Karlsson.
+ Tracks 5, 7 by Coudret.
+
+
+### "Beyond the Infinite (EP)" 2014, Melodic Death Metal
+
+1. My Nerves, Your Everyday Tool 04:18
+2. These Absent Eyes 03:40
+3. Resisting the Current 04:29
+4. When Sound Collides 04:33
+5. Forever Lost in Vain 04:49
+
+
+Bjorn "Speed" Strid - Vocals 
+Ola Flink - Bass 
+Sven Karlsson - Keyboards 
+Dirk Verbeuren - Drums 
+Sylvain Coudret - Guitars 
+David Andersson - Guitars 
+
+
+### "The Ride Majestic (single)" 2015, Melodic Death Metal
+
+1. The Ride Majestic  04:27 
+
+
+Bjorn "Speed" Strid (Vocals) 
+David Andersson (Lead / Rhythm guitar) 
+Sylvain Coudret (Lead / Rhythm guitar) 
+Sven Karlsson (keyboards/samples) 
+Markus Wibom (Bass) 
+Dirk Verbeuren (Drums) 
+
+
+Single was recorded by David Castillo (OPETH, KATATONIA) at Studio Grondal, 
+Produced and mixed by Jens Bogren (KREATOR, AMON AMARTH) at Fascination Street.
+
+### "The Ride Majestic" 2015, Melodic Death Metal
+
+1. The Ride Majestic  04:09   
+2. Alight in the Aftermath  03:47  
+3. Death in General  04:59  
+4. Enemies in Fidelity  04:16   
+5. Petrichor by Sulphur  05:11   
+6. The Phantom  03:57  
+7. The Ride Majestic (Aspire Angelic)  04:46   
+8. Whirl of Pain  05:01   
+9. All Along Echoing Paths  04:21   
+10. Shining Lights  03:43  
+11. Father and Son, Watching the World Go Down  05:40   
+12. Of Hollow Dreams  04:08   
+13. Ghosts and Thunder  05:17  
+
+Recorded at Ghost Ward in Stockholm, Sweden.
+Mixed and mastered at Fascination Street Studios in Orebro, Sweden.
+
+
 
 ## Отношения с другими группами
 

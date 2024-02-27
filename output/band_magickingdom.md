@@ -1,10 +1,64 @@
 # Magic Kingdom
 
-Дискография
-"The Arrival" 1999, Heavy Metal
-"Metallic Tragedy" 2004, Power Metal
-"Symphony Of War" 2010, Power Metal
-"Savage Requiem" 2015, Power Metal
+
+
+## Дискография
+
+### "The Arrival" 1999, Heavy Metal
+
+Arriving at the Magic Kingdom (intro) 
+Land of the Fire 
+Judas Is Your Name 
+Lost in the Dust 
+Immortal Lord 
+Angels of Thunder 
+Chosts of Babylon 
+Heart of Stone 
+You'll Be Damned 
+The Final Star 
+Dragonson 
+
+
+Duchan Petrossi - Lead Guitars
+Chris Hoffbauer -Drums
+Vassili Moltchanov - Bass
+Max Leclerq - Vocals
+Frederik Donche - Keyboards
+
+### "Metallic Tragedy" 2004, Power Metal
+
+
+
+### "Symphony Of War" 2010, Power Metal
+
+Disc 1 
+1. Symphony Of War 05:28
+2. We Rise 05:37 
+3. Million Sinners World 06:05
+4. Evil Magician 08:14
+5. In The Name Of Heathen Gods 03:47 
+6. Monte Cristo 03:50
+7. I'm A Lionheart 05:05
+8. Sleeping Beauty (Bonus Track) 05:36  
+9. No Mercy For The Enemy (Bonus Track) 05:38  
+10. Unholy Abyss 04:15 
+Disc 2 
+1. Metallic Tragedy - Chapter 2: The Holy Pentalogy 29:08 
+
+### "Savage Requiem" 2015, Power Metal
+
+1. In Umbra Mea  01:08    
+2. Guardian Angels  07:08    
+3. Rivals Forever  05:16    
+4. Full Moon Sacrifice  06:30    
+5. Ship of Ghosts  04:43    
+6. Savage Requiem  06:35    
+7. Four Demon Kings of Shadowlands  07:03  
+8. With Fire and Sword  05:52    
+9. Dragon Princess  05:55    
+10. Battlefield Magic  06:26    
+11. Dragon Princess (acoustic)  06:13  
+
 
 ## Отношения с другими группами
 

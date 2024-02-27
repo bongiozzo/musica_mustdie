@@ -1,7 +1,30 @@
 # Stainless Steel
 
-Дискография
-"Wigant" 2000, Heavy Metal
+
+
+## Дискография
+
+### "Wigant" 2000, Heavy Metal
+
+ 1. Past Centuries
+ 2. A Great Adventure
+ 3. For The Glory Of Worms (Siegfried's Song)
+ 4. Land Of Ice
+ 5. The Mission (Gunther's Song)
+ 6. Conspiracy
+ 7. Outrage (The Brave Die Hard)
+ 8. The Sentinel (Hagen's Song)
+ 9. Couriers
+10. Scourge Of God
+11. Longing To Fly (Kriemhild's Song)
+12. One Dawn
+13. Farewell
+14. The Journey (On The Path Of The Damned)
+15. No Mercy
+16. The Final Act (Steel Is The Law)
+17. Never To Be Forgotten
+
+
 
 ## Отношения с другими группами
 

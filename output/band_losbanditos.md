@@ -1,7 +1,13 @@
 # Los Banditos
 
-Дискография
-"Collected Works" 2006, Metal
+
+
+## Дискография
+
+### "Collected Works" 2006, Metal
+
+
+
 
 ## Отношения с другими группами
 

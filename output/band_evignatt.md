@@ -1,8 +1,31 @@
 # Evig Natt
 
-Дискография
-"I am Silence" 2007, Gothic
-"Darkland" 2010, Gothic
+
+
+## Дискография
+
+### "I am Silence" 2007, Gothic
+
+1. Nemesis of Heart
+2. In My Darkest Hour
+3. My Demon
+4. In My Death I Dream of You
+5. A Final Lament
+6. I am Silence
+7. Fallen
+
+### "Darkland" 2010, Gothic
+
+1. Darkland
+2. Evig Natt
+3. Until The End
+4. I Die Again
+5. Sjelelaus
+6. The Wanderer
+7. Withered Garden
+8. My Sin
+9. Epitaph
+
 
 ## Отношения с другими группами
 

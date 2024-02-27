@@ -1,9 +1,25 @@
 # UFO
 
-Дискография
-"Walk on Water" 1997, Hard Rock
-"You Are Here" 2004, Hard Rock
-"The Monkey Puzzle" 2006, Hard Rock
+
+
+## Дискография
+
+### "Walk on Water" 1997, Hard Rock
+
+
+
+### "You Are Here" 2004, Hard Rock
+
+Phil Mogg - vocals 
+Pete Way - bass 
+Paul Raymond - keyboards 
+Vinnie Moore - guitars (ex-Vicious Rumors, Ex-Alice Cooper) 
+Jason Bonham - drums (son of Led Zeppelin drumer John Bonham)
+
+### "The Monkey Puzzle" 2006, Hard Rock
+
+
+
 
 ## Отношения с другими группами
 

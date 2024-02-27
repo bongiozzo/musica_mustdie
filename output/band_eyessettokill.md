@@ -1,9 +1,21 @@
 # Eyes Set To Kill
 
-Дискография
-"Reach" 2008, Nu Metal
-"The World Outside" 2009, Nu Metal
-"Broken Frames" 2010, Nu Metal
+
+
+## Дискография
+
+### "Reach" 2008, Nu Metal
+
+
+
+### "The World Outside" 2009, Nu Metal
+
+
+
+### "Broken Frames" 2010, Nu Metal
+
+
+
 
 ## Отношения с другими группами
 

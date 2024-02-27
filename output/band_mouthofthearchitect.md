@@ -1,10 +1,25 @@
 # Mouth Of The Architect
 
-Дискография
-"Time And Withering" 2004, Metal
-"The Ties That Blind" 2006, Metal
-"Quietly" 2008, Metal
-"The Violence Beneath (EP) " 2010, Metal
+
+
+## Дискография
+
+### "Time And Withering" 2004, Metal
+
+
+
+### "The Ties That Blind" 2006, Metal
+
+
+
+### "Quietly" 2008, Metal
+
+
+
+### "The Violence Beneath (EP) " 2010, Metal
+
+
+
 
 ## Отношения с другими группами
 

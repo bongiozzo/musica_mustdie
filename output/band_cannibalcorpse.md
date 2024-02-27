@@ -1,25 +1,481 @@
 # Cannibal Corpse
 
-Дискография
-"Eaten Back to Life" 1990, Death Metal
-"Butchered at Birth" 1991, Death Metal
-"Tomb of the Mutilated" 1992, Death Metal
-"Meat Hook Sodomy (Live)" 1992, Death Metal
-"Hammer Smashed Face (EP)" 1993, Death Metal
-"The Bleeding" 1994, Death Metal
-"Vile" 1996, Death Metal
-"Gallery of Suicide" 1998, Death Metal
-"Bloodthirst" 1999, Death Metal
-"Live Cannibalism (Live)" 2000, Death Metal
-"Gore Obsessed" 2002, Death Metal
-"Worm Infested (EP)" 2002, Death Metal
-"The Wretched Spawn" 2004, Death Metal
-"Kill" 2006, Death Metal
-"Centuries Of Torment [3DVD]" 2008, Death Metal
-"Evisceration Plague" 2009, Death Metal
-"Torture" 2012, Death Metal
-"A Skeletal Domain" 2014, Death Metal
-"Red Before Black" 2017, Death Metal
+Legend of Florida's Death Metal
+
+## Дискография
+
+### "Eaten Back to Life" 1990, Death Metal
+
+1. Shredded Humans
+2. Edible Autopsy
+3. Put Them To Death
+4. Mangled **
+5. Scattered Remains, Splattered Brains
+6. Born In Casket
+7. Rotting Head
+8. The Undead Will Feast
+9. Bloody Chunks
+10.A Skull Full Of Maggots*
+11.Buried In A Back Yard
+
+ Chris Barnes  - Vocals
+ Alex Webester - Bass
+ Rob Rusay - Guitars
+ Jack Owen - Guitars
+ Paul Mazurkiewicz - Drums
+
+All Music Composed By CANNIBAL CORPSE.
+Recorded At Morrisound Recording,Tampa,Forida.
+Produced By Scott Burns.
+Engineered By Scott Burns.
+Back Vocals On * & ** By Glen Benton
+(DEICIDE) And Francis M. Howard (INCUBUS).
+Cover Artwork By Vincent Locke
+
+(p)&(c) 1990 METAL BLADE Records Zorro 12
+
+### "Butchered at Birth" 1991, Death Metal
+
+1. Meat Hook Sodomy
+2. Gutted
+3. Living Dissection
+4. Under The Rotten Flesh
+5. Covered With Sores
+6. Vomit The Soul
+7. Butchered At Birth
+8. Rancid Amputation
+9. Innards Decay
+
+ Chris Barnes  - Vocals
+ Alex Webester - Bass
+ Rob Rusay - Guitars
+ Jack Owen - Guitars
+ Paul Mazurkiewicz - Drums
+
+All Music Composed By CANNIBAL CORPSE.
+All Lyrics By Chris Barnes.
+Produced By Scott Burns.
+Engineered By Scott Burns.
+Cover Artwork By Vincent Locke
+
+(p)&(c) 1991 METAL BLADE Records Zorro 26
+
+### "Tomb of the Mutilated" 1992, Death Metal
+
+1. Hammer Smashed Face
+2. I Cum Blood
+3. Addicted To Vaginal Skin
+4. Split Wide Open
+5. Necropedophile
+6. The Cryptic Stench
+7. Entrails Ripped From A Virgin`s Cunt
+8. Post Mortal Ejaculation
+9. Beyond The Cemetery
+
+ Chris Barnes - Vocals
+ Alex Webester - Bass
+ Rob Rusay - Guitars
+ Jack Owen - Guitars
+ Paul Mazurkiewicz - Drums
+
+All Music Written & Arranged By CANNIBAL CORPSE.
+All Lyrics & Vocal Arrangements By Chris Barnes.
+Produced By Scott Burns.
+Engineered,Recorded & Mixed By Scott Burns.
+At Morrisound Recording -Tampa,Florida June 1-15,92.
+Mastered At Fuller Sound -Miami,Florida.
+Electronic Harmonizer Was Not Used To Create
+Any Vocals On This Album
+Cover Artwork By Vincent Locke
+
+(p)&(c) 1992 METAL BLADE Records Zorro 49
+
+
+### "Meat Hook Sodomy (Live)" 1992, Death Metal
+
+1. Born In A Cascet
+2. Living Dissection
+3. Put Them To Death
+4. Hammer Smashed Face
+5. The Cryptic Stench
+6. Meat Hook Sodomy
+7. Edible Autopsy
+8. Bloody Chunks
+9. Entrails Ripped From A Virgin's Cunt
+10.Shredded Humans
+11.I Cum Blood
+12.Covered With Sores
+13.Innards Decay
+14.Addicted To Vaginal Skin
+15.A Skull Full Of Maggots
+
+Recorded Live In Tilburg, 18.10.92.
+All Music Composed By CANNIBAL CORPSE
+All Lyrics Written By CANNIBAL CORPSE
+
+(p)&(c) 1992 MORBUS Records Morbus 003
+
+
+### "Hammer Smashed Face (EP)" 1993, Death Metal
+
+1. Hammer Smashed Face
+2. Meat Hook Sodomy
+3. Shredded Humans
+4. The Exorcist   *
+5. Zero The Hero  *
+
+ Chris Barnes - Vocals
+ Alex Webester - Bass
+ Rob Rusay - Guitars
+ Jack Owen - Guitars
+ Paul Mazurkiewicz - Drums
+
+(*) Produced By Dennis Fura & CANNIBAL CORPSE.
+Produced By Scott Burns.
+Recorded & Mixed At Border City Recording,
+Niagara Falls,New York.
+
+Track 4 Written By Torrao (POSSESSED).
+Track 5 Written By Butler/Iommi/Ward/Gillan
+(BLACK SABBATH).
+
+(p)&(c) 1993 METAL BLADE Records
+
+### "The Bleeding" 1994, Death Metal
+
+1. Staring Through The Eyes Of The Dead
+2. Fucked With A Knife
+3. Stripped, Raped And Strangled
+4. Pulverized
+5. Return To Flesh
+6. The Pick-Axe Murders
+7. She Was Asking For It
+8. The Bleeding
+9. Force Red Broken Glass
+10.An Experiment In Homicide
+
+ Chris Barnes - Vocals
+ Alex Webester - Bass
+ Rob Barrett - Guitars
+ Jack Owen - Guitars
+ Paul Mazurkiewicz - Drums
+
+Recorded, Mixed & Engineered By Scott Burns 
+At Morrisound Recording, Tampa, FL From 
+Nov. 12 To Dec. 3 1993. 
+All Lyrics And Vocals By Chris Barnes. 
+Cover Art By Vincent Locke
+
+(p)&(c) 1994 METAL BLADE Records
+
+### "Vile" 1996, Death Metal
+
+1. Devoured By Vermin
+2. Mummified In Barbed Wire
+3. Perverse Suffering
+4. Disfigured
+5. Bloodlands
+6. Puncture Wound Massacre
+7. Relentless Beating
+8. Absolute Hatred
+9. Eaten From Inside
+10.Orgasm Through Torture
+11.Monolith
+
+All songs written by CANNIBAL
+CORPSE.
+Produced by Scott Burns and
+CANNIBALL CORPSE.
+Engineered and mixed by Scott Burns
+Recorded and mixed at Morrisound
+Recording, Tampa, FL
+
+George Fisher - Vocals
+Alex Webster - Bass
+Jack Owen - Guitar
+Rob Barrett - Guitar
+Paul Mazurkiewicz - Drums
+
+(p)(c) 1996 METAL BLADE Records
+
+### "Gallery of Suicide" 1998, Death Metal
+
+1. i will kill you
+2. disposal of the body
+3. sentenced to burn
+4. blood drenched execution
+5. gallery of suicide
+6. dismembered and molested
+7. from skin to liquid
+8. unite the dead
+9. stabbed in the throat
+10.chambers of blood
+11.headless
+12.every bone broken
+13.centuries of torment
+14.crushing the despised
+
+### "Bloodthirst" 1999, Death Metal
+
+1. pounded into dust
+2. dead human collection
+3. unleashing the bloodthirsty
+4. the spinesplitter
+5. ecstacy in decay
+6. raped by the beast
+7. coffinfeeder
+8. hacksaw decapitation
+9. blowtorch slaughter
+10.sickening metamorphosis
+11.condemened to agony
+
+
+### "Live Cannibalism (Live)" 2000, Death Metal
+
+Staring Through The Eyes Of The Dead 
+Blowtorch Slaughter 
+Stripped, Raped And Strangled 
+I Cum Blood 
+Covered With Sores 
+Fucked With A Knife 
+Unleashing The Bloodthirsty 
+Dead Human Collection 
+Gallery Of Suicide 
+Meat Hook Sodomy 
+Perverse Suffering 
+The Spine Splitter 
+Gutted 
+I Will Kill You 
+Devoured By Vermin 
+Disposal Of The Body 
+A Skull Full Of Maggots 
+Hammer Smashed Face 
+
+### "Gore Obsessed" 2002, Death Metal
+
+01. Savage Butchery
+02. Hatchet to the Head
+03. Pit of Zombies
+04. Dormant Bodies Bursting
+05. Compelled to Lacerate
+06. Drowning in Viscera
+07. Hung and Bled
+08. Sanded Faceless
+09. Mutation of the Cadaver
+10. When Death Replaces Life
+11. Grotesque 
+12*.
+
+### "Worm Infested (EP)" 2002, Death Metal
+
+1. Systematic Elimination - PREVIOUSLY UNRELEASED
+2. Worm Infested - PREVIOUSLY UNRELEASED
+3. Demon’s Night - PREVIOUSLY UNRELEASED (cover song of ACCEPT)
+4. The Undead Will Feast - PREVIOUSLY RELEASED ONLY IN JAPAN
+5. Confessions - PREVIOUSLY RELEASED ON EUROPEAN VERSION OF LIVE CANNIBALISM
+6. No Remorse - PREVIOUSLY RELEASED AS A LIMITED EDITION BONUS TRACK ON GORE OBSESSED 
+
+### "The Wretched Spawn" 2004, Death Metal
+
+1. Severed Head Stoning 
+2. Psychotic Precision 
+3. Decency Defied 
+4. Frantic Disembowelment 
+5. Rotted Body Landslide 
+6. Cyanide Assassin 
+7. Festering In The Crypt 
+8. Nothing Left To Mutilate 
+9. Blunt Force Castration 
+10. The Wretched Spawn 
+11. Slain 
+12. Bent Backwards And Broken 
+13. They Deserve To Die
+
+### "Kill" 2006, Death Metal
+
+1 - The Time To Kill Is Now 
+2 - Make Them Suffer 
+3 - Murder Worship 
+4 - Necrosadistic Warning 
+5 - Five Nails Through The Neck 
+6 - Purification By Fire 
+7 - Death Walking Terror 
+8 - Barbaric Bludgeonings 
+9 - The Discipline Of Revenge 
+10 - Brain Removal Device 
+11 - Maniacal 
+12 - Submerged In Boiling Flesh 
+13 - Infinite Misery 
+
+Line-Up: 
+Alex Webster - Bass 
+Paul Mazurkiewicz - Drums 
+George “Corpsegrinder” Fisher - Vocals 
+Pat O’Brien - Guitars 
+Rob Barrett - Guitars
+
+### "Centuries Of Torment [3DVD]" 2008, Death Metal
+
+DVD 1: CANNIBAL CORPSE History
+
+Three-hour definitive history of CANNIBAL CORPSE as told by the band and the
+people who were there along the way.
+
+1987-1995
+
+* Intro
+* Demo
+* Eaten Back to Life
+* Butchered at Birth
+* Tomb of the Mutilated
+* The Bleeding
+
+1995 вЂ“ Present
+
+* Vile
+* Gallery of Suicide
+* Bloodthirst
+* Gore Obsessed and The Wretched Spawn
+* Kill
+
+DVD 2: CANNIBAL CORPSE Performances
+
+With Full Force 2007
+
+01. Unleashing the Bloodthirsty
+02. Murder Worship
+03. Disposal of the Body
+
+Toronto 2006
+
+04. The Time To Kill Is Now
+05. Disfigured
+06. Death Walking Terror
+07. Covered With Sores
+08. Born In a Casket
+09. I Cum Blood
+10. Decency Defied
+11. Make Them Suffer
+12. Dormant Bodies Bursting
+13. Five Nails Through The Neck
+14. Devoured By Vermin
+15. Hammer Smashed Face
+16. Stripped, Raped, And Strangled
+
+* Toronto show directed by David Stuart and Nic Izzi
+
+Party.San 2005
+
+17. Puncture Wound Massacre
+18. Sentenced To Burn
+19. Fucked With A Knife
+20. Psychotic Precision
+21. Pulverized
+22. Pounded Into Dust
+23. The Wretched Spawn
+
+New York 2000
+
+24. The Spine Splitter
+25. Dead Human Collection
+
+Jacksonville, FL 1996
+
+26. Mummified In Barbed Wire
+
+Nashville, TN 1994
+
+27. Entrails Ripped From A Virgin\'s Cunt
+28. Pulverized
+
+Buffalo, NY 1989
+
+29. Shredded Humans
+30. Rotting Head
+
+Music Videos
+
+31. Staring Through the Eyes of the Dead
+32. Devoured By Vermin
+33. Sentenced To Burn
+34. Decency Defied
+35. Make Them Suffer
+36. Death Walking Terror
+37. Stripped, Raped, And Strangled 2007
+
+DVD 3: Bonus Chunks
+
+* Compelled To Illustrate
+* Every Ban Broken
+* Covered With Ink
+* Maniacal Merch
+* Relentless Touring
+* Word Infested
+* Sickening Metalocalypse
+* Diverse Offerings
+* Staring Through the Eyes of the Band
+* Kill Crane 
+
+### "Evisceration Plague" 2009, Death Metal
+
+1. Priests of Sodom 03:31
+2. Scalding Hail 01:46
+3. To Decompose 03:03
+4. A Cauldron of Hate 04:59
+5. Beheading and Burning 02:16
+6. Evidence in the Furnace 02:48 
+7. Carnivorous Swarm 03:36
+8. Evisceration Plague 04:30
+9. Shatter Their Bones 03:35
+10. Carrion Sculpted Entity 02:33
+11. Unnatural 02:22
+12. Skewered from Ear to Eye 03:49 
+
+### "Torture" 2012, Death Metal
+
+01. Demented Aggression
+02. Sarcophagic Frenzy
+03. Scourge of Iron
+04. Encased in Concrete
+05. As Deep As the Knife Will Go
+06. Intestinal Crank
+07. Followed Home Then Killed
+08. The Strangulation Chair
+09. Caged... Contorted
+10. Crucifier Avenged
+11. Rabid
+12. Torn Through
+
+### "A Skeletal Domain" 2014, Death Metal
+
+1. High Velocity Impact Spatter
+2. Sadistic Embodiment
+3. Kill Or Become
+4. A Skeletal Domain
+5. Headlong Into Carnage
+6. The Murderer’s Pact
+7. Funeral Cremation
+8. Icepick Lobotomy
+9. Vector Of Cruelty
+10. Bloodstained Cement
+11. Asphyxiate To Resuscitate
+12. Hollowed Bodies 
+
+### "Red Before Black" 2017, Death Metal
+
+01. Only One Will Die 
+02. Red Before Black 
+03. Code Of The Slashers 
+04. Shedding My Human Skin 
+05. Remaimed 
+06. Firestorm Vengeance 
+07. Heads Shoveled Off 
+08. Corpus Delicti 
+09. Scavenger Consuming Death 
+10. In The Midst Of Ruin 
+11. Destroyed Without A Trace 
+12. Hideous Ichor
+
 
 ## Отношения с другими группами
 

@@ -1,17 +1,173 @@
 # Caliban
 
-Дискография
-"A Small Boy And A Grey Heaven" 1999, Melodic Death Metal
-"Vent" 2001, Melodic Death Metal
-"Shadow Hearts" 2003, Melodic Death Metal
-"The Opposite From Within" 2004, Metalcore
-"The Undying Darkness" 2006, Metalcore
-"The Awakening" 2007, Metalcore
-"Say Hello To Tragedy" 2009, Metalcore
-"Coverfield (EP)" 2011, Metalcore
-"I Am Nemesis" 2012, Metalcore
-"Ghost Empire" 2014, Metalcore
-"Gravity" 2016, Metalcore
+
+
+## Дискография
+
+### "A Small Boy And A Grey Heaven" 1999, Melodic Death Metal
+
+1. Intro 01:19  
+2. Arena of Concealment 02:49
+3. In My Heart 02:30
+4. Destruction 04:27 
+5. A Small Boy and a Grey Heaven 04:14
+6. Skit I 00:39  
+7. A Faint Moment of Fortune 04:04
+8. Skit II 01:07  
+9. Supervision Until Death 04:01 
+10. Always Following Life 03:22
+11. Pollution 03:29
+12. Sylca 01:21  
+13. Intolerance (Ignorance II) 03:45
+14. De Rebus Que Gerunter 03:53
+15. Outro 00:40 
+
+### "Vent" 2001, Melodic Death Metal
+
+1. Entrance 01:35  
+2. Fire of Night 03:13
+3. Love Taken Away 03:43 
+4. In the Eye of the Storm 04:49
+5. About Time and Decisions 05:41
+6. Roots of Pain 04:41
+7. Happiness in Slavery 03:07 
+8. Tyranny of Small Misery 04:39
+9. For 04:47
+10. My Last Beauty 04:35 
+11. New Kind of Freedom 03:59 
+12. Sycamore Dreams 03:53
+13. Erase the Enemy 04:35
+14. Exit 01:47 
+
+### "Shadow Hearts" 2003, Melodic Death Metal
+
+1. Dark Shadows 01:32  
+2. Forsaken Horizon 02:52
+3. Storm of Rage 04:01
+4. Vicious Circle 03:53
+5. Bad Dream 02:58 
+6. The Seventh Soul 03:17 
+7. Scream from the Abyss 03:41 
+8. Detect Your Liberty 03:33 
+9. Fire Is My Witness 03:15
+10. Between the Worlds 03:03
+11. A Piece of My Life 03:13 
+
+### "The Opposite From Within" 2004, Metalcore
+
+1. The Beloved and the Hatred 03:47
+2. Goodbye 04:01
+3. I've Sold Myself 03:58
+4. Stand Up 03:48
+5. Senseless Fight 03:57 
+6. Stigmata 03:03
+7. Certainty...Corpses Bleed Cold 04:26
+8. My Little Secret 04:03
+9. One of These Days 03:18
+10. Salvation 03:52
+11. Dairy of an Addict 05:34
+12. 100 Suns 03:56 
+
+### "The Undying Darkness" 2006, Metalcore
+
+1. Intro 01:05  
+2. I Rape Myself 03:24
+3. Song About Killing 03:19 
+4. It's Our Burden to Bleed 03:49
+5. Nothing Is Forever 03:54
+6. Together Alone 03:10
+7. My Fiction Beauty 04:41
+8. No More 2nd Chances 04:04 
+9. I Refuse to Keep on Living... 05:01
+10. Sick of Running Away 03:48
+11. Moment of Clarity 02:40 
+12. Army of Me (Bonus Track) 03:33 
+13. Room of Nowhere 03:44 
+
+### "The Awakening" 2007, Metalcore
+
+1. I Will Never Let You Down 03:33 
+2. Let Go 03:58 
+3. Another Cold Day 03:34
+4. My Time Has Come 03:41
+5. Life Is Too Short 03:42
+6. Give Me a Reason 03:55
+7. Stop Running 03:18
+8. The Awakening 03:53 
+9. I Believe... 03:20
+10. Rise and Fight 03:37
+11. Nowhere to Run, No Place to Hide 03:38
+12. I'll Show No Fear 03:29 
+
+### "Say Hello To Tragedy" 2009, Metalcore
+
+1. 24 Years 03:47
+2. Love Song 03:27
+3. Caliban's Revenge 03:59
+4. End This Sickness 04:16
+5. Walk Like The Dead 04:15
+6. No One Is Safe 03:41
+7. Liar 04:39
+8. The Denegation Of Humanity 04:05
+9. Unleash Your Voice 03:35
+10. All I Gave 05:24
+11. In The Name Of Progression 04:46 
+12. Coma 03:47 
+
+### "Coverfield (EP)" 2011, Metalcore
+
+01. My Girlfriend's Girlfriend (Type O Negative Cover) (3:48)
+02. Sonne (Rammstein Cover) (3:48)
+03. Blinded by Fear (At the Gates Cover) (2:37)
+04. Helter Skelter (The Beatles Cover) (3:37)
+
+### "I Am Nemesis" 2012, Metalcore
+
+1. We Are The Many 
+2. The Bogeyman 
+3. Memorial 
+4. No Tomorrow 
+5. Edge Of Black 
+6. Davy Jones 
+7. Deadly Dream 
+8. Open Letter 
+9. Dein R3.ich 
+10. Broadcast To Damnation 
+11. This Oath 
+12. Modern Warfare 
+
+
+### "Ghost Empire" 2014, Metalcore
+
+01. King
+02. Chaos - Creation
+03. Wolves And Rats
+04. nebeL
+05. I Am Ghost
+06. Devil's Night
+07. yOUR Song
+08. Cries And Whispers
+09. Good Man
+10. I Am Rebellion
+11. Who We Are
+12. My Vertigo
+13. Falling Downwards (Bonus)
+
+### "Gravity" 2016, Metalcore
+
+01. Paralyzed
+02. Mein schwarzes Herz
+03. Who I Am
+04. Left For Dead
+05. Crystal Skies
+06. Walk Alone
+07. The Ocean's Heart
+08. brOKen
+09. For We Are Forever
+10. Inferno
+11. No Dream Without A Sacrifice
+12. Hurricane 
+
 
 ## Отношения с другими группами
 

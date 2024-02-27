@@ -1,9 +1,21 @@
 # !T.O.O.H.!
 
-Дискография
-"From Higher Will" 2000, Metal
-"Under the Reign of the Whip" 2002, Metal
-"Order And Punishment" 2005, Metal
+
+
+## Дискография
+
+### "From Higher Will" 2000, Metal
+
+
+
+### "Under the Reign of the Whip" 2002, Metal
+
+
+
+### "Order And Punishment" 2005, Metal
+
+
+
 
 ## Отношения с другими группами
 

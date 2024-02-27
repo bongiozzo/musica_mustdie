@@ -1,30 +1,450 @@
 # Doro
 
-Дискография
-"Force Majeure" 1989, Hard Rock
-"Doro" 1990, Hard Rock
-"True At Heart" 1991, Hard Rock
-"Angels Never Die" 1993, Hard Rock
-"Doro - Live" 1993, Hard Rock
-"Machine II Machine Electric Club Mix" 1995, Hard Rock
-"Machine II Machine" 1995, Hard Rock
-"A Whiter Shade Of Pale (Best Of)" 1995, Hard Rock
-"Love Me In Black" 1998, Hard Rock
-"The Ballads (Best Of)" 1998, Hard Rock
-"Best Of" 1998, Hard Rock
-"Calling The Wild" 2000, Hard Rock
-"Fight" 2002, Hard Rock
-"Fur Immer DVD" 2003, Hard Rock
-"Classic Diamonds" 2004, Hard Rock
-"Classic Diamonds DVD" 2004, Hard Rock
-"Warrior Soul" 2006, Hard Rock
-"For Love And Friendship / We're Like Thunder (EP+single)" 2006, Hard Rock
-"All We Are - The Fight" 2007, Hard Rock
-"Herzblut (single)" 2009, Heavy Metal
-"Fear No Evil" 2009, Heavy Metal
-"25 Years In Rock [2DVD]" 2010, Hard Rock
-"Raise Your Fist" 2012, Heavy Metal
-"Love's Gone To Hell (EP)" 2016, Heavy Metal
+
+
+## Дискография
+
+### "Force Majeure" 1989, Hard Rock
+
+1. A Whiter Shade Of Pale
+2. Save My Soul
+3. World Gone Wild
+4. Mission Of Mercy
+5. Angels With Dirty Faces
+6. Beyond The Trees
+7. Hard Times
+8. Hellraiser
+9. I Am What I Am
+10.Cry Wolf
+11.Under The Gun
+12.River Of Tears
+13.Bis Aufs Blut
+
+Doro Pesch - Vocals
+Bobby Rondinelli - Drums
+Tommy Henriksen - Bass,Back Vocals
+Jon Devin - Guitars
+
+(p)&(c) 1989 VERTIGO Records
+
+### "Doro" 1990, Hard Rock
+
+
+
+### "True At Heart" 1991, Hard Rock
+
+1. Cool Love
+2. You Gonna Break My Heart
+3. Even Angels Cry
+4. The Fortuneteller
+5. Live It
+6. Fall For Me Again
+7. Heartshaped Tattoo
+8. With The Wave Of Your Hand
+9. Hear Me
+10.I'll Make It On My Own
+11.Gettin' Nowhere Without You
+12.I Know You By Heart
+
+(P)&(C) 1991 VERTIGO Records
+
+### "Angels Never Die" 1993, Hard Rock
+
+1.  Eye On You
+2.  Bad Blood
+3.  Last Day Of My Life
+4.  Born To Bleed
+5.  Cryin' 
+6.  You Ain't Lived
+7.  So Alone Together
+8.  All I Want
+9.  Enough For You
+10.  Heaven With You
+11.  Don't Go
+12.  Alles Ist Gut
+
+(P)c 1993
+
+### "Doro - Live" 1993, Hard Rock
+
+
+
+### "Machine II Machine Electric Club Mix" 1995, Hard Rock
+
+1. The Want (Single Edit)
+2. Machine II Machine (Electric Mix)
+3. Ceremony (Die Krupps Mix)
+4. Tie Me Up (Hard & Fast Mix)
+5. Machien II Machine (Big Phat Mix)
+6. The Want (5 A.M. Mix)
+7. Emotional Suicide (Cave Man Mix)
+
+(P)(C) 1996
+
+### "Machine II Machine" 1995, Hard Rock
+
+1.  Tie Me Up
+2.  The Want
+3.  Ceremony
+4.  Machine II Machine
+5.  Are They Comin' For Me
+6.  Can't Stop Thinking About You
+7.  Don't Mistake It For Love
+8.  Desperately
+9.  Love Is A Thrill
+10.  Light In The Window
+11.  Welcome To The Tribe
+12.  Like Whiskey Straight
+13.  In Freihert Stirbt Mein Herz
+14.  Ceremony
+
+(P)c 1995
+
+### "A Whiter Shade Of Pale (Best Of)" 1995, Hard Rock
+
+
+
+### "Love Me In Black" 1998, Hard Rock
+
+
+
+### "The Ballads (Best Of)" 1998, Hard Rock
+
+
+
+### "Best Of" 1998, Hard Rock
+
+
+
+### "Calling The Wild" 2000, Hard Rock
+
+1. Kiss Me Like A Cobra 3:18
+2. Dedication (I Give My Blood) 3:54
+3. Burn It Up 2:45
+4. Give Me A Reason 4:19
+5. Who You Love 3:51
+6. Scarred 4:39
+7. Ich Will Alles 2:26
+8. White Wedding 4:37
+9. I Wanna Live 2:42
+10. Love Me Forever 5:15
+11. Fuel 3:50
+12. Constant Danger 3:39
+13. Black Rose 3:43
+14. Now Or Never (Hope In The Darkest Hour) 3:51
+15. Danke 2:57
+16. Alone Again (limited edition) (4:20)
+17. I Want More (limited edition) (2:26)
+
+### "Fight" 2002, Hard Rock
+
+1. Fight
+2. Always Live To Win
+3. Descent (feat. Peter Steele)
+4. Salvaje
+5. Undying
+6. Legends Never Die
+7. Rock Before You Bleed
+8. Sister Darkness
+9. Wild Heart
+10. Fight By Your Side
+11. Chained
+12. Hoffnung
+
+### "Fur Immer DVD" 2003, Hard Rock
+
+Hellbound
+Always Live To Win
+True As Steel
+I Rule The Runes
+Burn The Witches
+Love Me In Black
+Fur Immer
+Fall For Me Again
+East Meets West
+Drum Solo
+Burn It Up
+Fight
+All We Are
+Rock Before We Bleed
+Earthshaker Rock
+Undying
+Constant Danger
+Chained
+Ich Will Alles
+Metal Tango
+
+Making Of
+Doro Documentary
+A True Fan
+Doro Down Under
+Access All Areas
+Video Clip
+Sessions
+Discography
+Photo Gallery
+
+### "Classic Diamonds" 2004, Hard Rock
+
+I Rule The Ruins 
+Metal Tango 
+Breaking The Law 
+All We Are 
+Fur Immer 
+Let Love Rain On Me 
+Burn It Up 
+1000x Gelebt 
+I’m In Love With You 
+Undying 
+Love Me In Black 
+Always Live To Win 
+She’s Like Thunder (bonus) 
+Let Love Rain On Me (bonus – видеонарезка, wallpapers)
+
+### "Classic Diamonds DVD" 2004, Hard Rock
+
+Intro (01:00)
+
+Live in Wacken (43:00)
+Fear of the Dark
+I Rule the Ruins
+Touch of Evil
+Metal Tango
+Fur Immer
+Let Love Rain On Me
+Breaking the Law
+All We Are
+
+Impressions of the Tour (15:00)
+Love Me in Black
+Fur Immer
+Интервью
+Бонусы
+За сценой
+
+Live in Hamburg (61:00)
+I Rule the Ruins
+Metal Tango
+She’s Like Thunder
+Let Love Rain on Me
+Hellraiser
+Touch of Evil
+Fall For me Again
+Tausend Mal Gelebt
+Breaking the Law
+Fear of the Dark
+All We Are
+Outro
+
+Extras (63:00)
+Let Love Rain on Me (как делали клип)
+Let Love Rain on Me (клип)
+TV Show Rockpalast
+Metal Tango
+True As Steel
+Fur Immer
+Breaking the Law
+Интервью
+Let Love Rain on me
+Tausend Mal Gelebt
+All We Are
+
+### "Warrior Soul" 2006, Hard Rock
+
+01. You're My Family
+02. Haunted Heart
+03. Strangers Yesterday
+04. Thunderspell
+05. Warrior Soul
+06. Heaven I See
+07. Creep Into My Brain
+08. Above The Ashes
+09. My Majesty
+10. In Liebe Und Freundschaft
+11. Ungebrochen
+12. Shine On
+Bonus Tracks:
+13. Angel In The Dark
+14. 1999
+
+### "For Love And Friendship / We're Like Thunder (EP+single)" 2006, Hard Rock
+
+
+
+### "All We Are - The Fight" 2007, Hard Rock
+
+All We Are (2007 version) 
+Thunderspell 
+Everythings Lost 
+On My Own (duet with Krokus singer) 
+Babe I'm Gonna Leave You (Led Zeppelin Cover) 
++ video tracks:
+All We Are (Live 2006 videoclip)
+Above The Ashes
+Warrior Soul
+You're My Family (Live In Sweden Rock)
+On My Own (duet with Krokus Singer)
+
+### "Herzblut (single)" 2009, Heavy Metal
+
+1. Herzblut (Single Version) 03:43  
+2. Herzblut 04:39  
+3. A Fond Le Coeur - Herzblut (French) 03:59  
+4. Te Doy Mi Corazon - Herzblut (Spanish) 04:39  
+5. Eu Dou-Te O Meu Coraзгo - Herzblut (Portuguese) 04:07  
+6. Share My Fate 03:05 
+
+
+### "Fear No Evil" 2009, Heavy Metal
+
+1. The Night Of The Warlock 05:43  
+2. Running From The Devil 03:36  
+3. Celebrate 04:54  
+4. Caught In A Battle 03:09  
+5. Herzblut 04:39  
+6. On The Run 04:41  
+7. Walking With The Angels 04:54  
+8. I Lay My Head Upon My Sword 03:36  
+9. It Kills Me 04:28  
+10. Long Lost For Love 03:26  
+11. 25 Years 04:47 
+
+
+Doro Pesch - Vocals 
+Joe Taylor - Guitar 
+Oliver Palotai - Guitar, Keyboards 
+Nick Douglas - Bass 
+Johnny Dee (John DiTeodoro Jr.) - Drums 
+
+
+### "25 Years In Rock [2DVD]" 2010, Hard Rock
+
+DVD 1: 25 Years In Rock _And Still Going Strong
+
+The Concert (02:35:17)
+01. Intro _ 25 Years
+02. Earthshaker Rock
+03. I Rule The Ruins
+04. You're My Family
+05. The Night Of The Warlock
+06. Hellraiser
+07. Always Live To Win (feat. Bobby Blitz)
+08. Above The Ashes
+09. She's Like Thunder
+10. Herzblut
+11. Fur Immer
+12. Burn It Up (feat. Jean Beauvoir)
+13. Metal Tango
+14. Drum Solo by Johnny Dee
+15. Celebrate (Full Metal Female Version) (feat.
+Sabina Classen, Floor Jansen, Liv Kristine, Ji-In
+Cho, Liv Jagrell, Jackie Chambers, Enid Williams)
+16. Love Me In Black
+17. Walking With The Angels (feat. Tarja Turunen)
+18. East Meets West (feat. Chris Boltendahl and
+Axel Rudi Pell)
+19. Breaking The Law
+20. Big City Nights (feat. Klaus Meine and Rudolf
+Schenker)
+21. Rock You Like A Hurricane (feat. Klaus Meine
+and Rudolf Schenker)
+22. Fight For Rock (Warlock Line-Up 1986)
+23. Burning The Witches (Warlock Line-Up 1986)
+24. True As Steel (Warlock Line-Up 1986) (feat.
+Warrel Dane)
+25. Unholy Love (feat. Honza K. Behunek)
+26. Fight
+27. All We Are (feat. all guests of this special
+night and a lot of good friends)
+28. Outro
+
+DVD 2: 25 Years In Rock _And Still Going Strong
+
+_ The Documentary (01:17:25)
+01. Intro
+02. From Concept To Creation
+03. Soundcheck
+04. Ready to Go
+05. Earthshaker Rock
+06. I Rule The Ruins
+07. You're My Family
+08. Making Of The Warlock
+09. The Night Of The Warlock
+10. Always Live To Win
+11. Above The Ashes
+12. She's Like Thunder
+13. Herzblut
+14. Fur Immer
+15. Burn It Up
+16. Celebrate (Full Metal Female Version)
+17. Love Me In Black
+18. Walking With The Angels
+19. East Meets West
+20. Big City Nights
+21. Rock You Like A Hurricane
+22. Fight For Rock
+23. True As Steel
+24. Hellbound
+25. Unholy Love
+26. Fans International
+27. All We Are / Grand Finale
+28. The Show Is Over
+29. After The Show
+30. Outro
+
+EXTRA FEATURES, HIGHLIGHTS & BONUS GOODIES:
+
+01. 2500th Concert Special (15:27) (feat. extracts
+of I Rule The Ruins, Danke, Burning The Witches
+(with Andy Brings), Burn Bitch Burn, We Are The
+Metalheads (with Schmier), On My Own (with Luke
+Gasser and Marc Storace), You_re My Family &
+Unholy Love)
+02. China Special (03:13)
+03. Wacken Open Air 2009: (12:55)
+I. I Rule The Ruins
+II. Burning The Witches
+III. Burn It Up
+04. Bang Your Head 2010: (09:51)
+I. Egypt [The Chains Are On]
+II. Running From The Devil
+05. Summer Breeze 2007: (04:26)
+I. You_re My Family (feat. Chris Caffery)
+06. Metal Female Voices Fest 2009: (11:07)
+I. True As Steel
+II. Hellbound
+III. We Are The Metalheads
+07. TV Special: 2500th Concert (03:05)
+08. TV Special: A tattoo from Doro at Germany Ink
+(02:35)
+
+### "Raise Your Fist" 2012, Heavy Metal
+
+01. Raise Your Fist In The Air (03:48) 
+02. Coldhearted Lover (03:35) 
+03. Rock Till Death (03:02) 
+04. It Still Hurts (04:09) - feat. Lemmy
+05. Take No Prisoner (03:08) 
+06. Grab The Bull (Last Man Standing) (04:57) - feat. Gus G
+07. Engel (05:14) 
+08. Freiheit (Human Rights) (03:44) 
+09. Little Headbanger (Nackenbrecher) (03:15) 
+10. Revenge (04:49) 
+11. Free My Heart (05:09) 
+12. Victory (03:11) 
+13. Hero (04:05) - dedicated to Ronnie James Dio
+14. Sealed In Blood (Human Rights) (Bonus Track) (03:44)
+15. Strong And Proud (Bonus Track) (03:33)
+
+### "Love's Gone To Hell (EP)" 2016, Heavy Metal
+
+1. Love's Gone to Hell (radio version)  03:28    
+2. Love's Gone to Hell (single version)  04:13    
+3. It Still Hurts (feat. Lemmy Kilmister)  04:06 
+4. Rock Till Death (live - feat. Hansi Kursch)  03:59  
+5. Save My Soul (live)  03:37  
+6. Love's Gone to Hell (demo version)  04:54
+
 
 ## Отношения с другими группами
 

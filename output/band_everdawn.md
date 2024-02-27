@@ -1,8 +1,33 @@
 # Everdawn
 
-Дискография
-"Opera Of The Damned" 1996, Melodic Death Metal
-"Poems - Burn The Past" 1997, Melodic Death Metal
+
+
+## Дискография
+
+### "Opera Of The Damned" 1996, Melodic Death Metal
+
+1.  The Everdawn
+2.  Nightborn
+3.  The Silent Inter Sky
+4.  Opera Of The Damned
+
+Recorded and Mixed at Lucichrist Studio
+Engineered by G.Norman.
+Produced by EVERDAWN
+All music by Pierre & Patrik Tornkvist
+All lyrics by Pierre Tornkvist.
+Dedicated to entire Death/Blackmetal Underground
+
+Pierre Tornkvist - Guitars, Bass, Vocals
+Patrik Tornkvist - Guitars
+Oskar Karlsson - Drums
+
+(P)(C) 1997 BLACK DROWNED PROD // BDF 001
+
+### "Poems - Burn The Past" 1997, Melodic Death Metal
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,9 +1,70 @@
 # Exit-13
 
-Дискография
-"Don't Spare The Green Love" 1993, Grindcore
-"" 1994, Grindcore
-"...Just A Few More Hits" 1995, Grindcore
+
+
+## Дискография
+
+### "Don't Spare The Green Love" 1993, Grindcore
+
+1. Anthropocentric Conundrum
+2. Reevaluate Life
+3. Gaia
+4. Unintended Lyrical Befuddlement
+5. An Outline Of Intellectual Rubbish
+6. Where Is Exit-13
+7. Ecotopian Visions
+8. Constant Persistance Of Annoyance
+9. Inbreeding Populations
+10.Self-Misunderstood Cerebral Masturbations
+11.The Funk Song
+12.Get High On Life
+13.Disemboweling Party
+14.Shattnerspackle
+15.Spare The Wrench Surrender The Earth*
+16.Only Hypocrisy Prohibits Legality*
+17 Only Protest Gives A Hope Of Life*
+
+ Bill Yurkiewicz - Vocals
+ Steve O'Donell - Guitar
+ Joel Dupietro - Bass
+ Pat McCahan - Drums, Backing Vocals
+
+All Music By Steve O'Donell
+All Lyrics By Bill Yurkiewicz
+Produced By EXIT - 13
+Engineered By Al.B.Cox
+Recorded June-July 1990 At Studio 213 Dilsburg PA
+
+
+(p)&(c) 1993 RELAPSE Records
+
+### "" 1994, Grindcore
+
+
+
+### "...Just A Few More Hits" 1995, Grindcore
+
+1. Legalize Hemp Now
+2. A Man And His Lawnmower *
+3. Oral Fixation
+4. Constant Persistencve Of Annoyance
+5. Wake Up And Change !
+6. Snakes And Alligators
+
+ Bill Yurkiewicz - Vocals, Lyrics, Samples
+ Steve O'Donell - Guitars
+ Dan Lilker - Bass
+ Scott Lewis - Drums, Percussion
+
+All Music By Steve O'Donell
+All Lyrics By Bill Yurkiewicz
+Except * Written By DEAD KENNEDYS.
+Produced By EXIT - 13
+Engineered By Bill Grabowski.
+Recorded At Smash Studios, New York City.
+
+(P)&(C) 1995 RELAPSE Records
+
 
 ## Отношения с другими группами
 

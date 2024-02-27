@@ -1,7 +1,13 @@
 # Skeletor
 
-Дискография
-"HellFireRockMachine" 2004, Rock and Roll
+rock'n'roll & melodic rock
+
+## Дискография
+
+### "HellFireRockMachine" 2004, Rock and Roll
+
+
+
 
 ## Отношения с другими группами
 

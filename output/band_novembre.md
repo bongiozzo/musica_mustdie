@@ -1,13 +1,102 @@
 # Novembre
 
-Дискография
-"Wish I Could Dream It Again" 1995, Death Doom
-"Arte Novecento" 1997, Death Doom
-"Classica" 2000, Death Doom
-"Novembrine Waltz" 2001, Death Doom
-"Dreams D'Azur" 2002, Death Doom
-"Materia" 2006, Death Doom
-"The Blue" 2007, Death Doom
+
+
+## Дискография
+
+### "Wish I Could Dream It Again" 1995, Death Doom
+
+1. The Dream Of The Old Boats
+2. Novembre / It's Blood
+3. Night / At Once
+4. Let Me Hate
+5. Sirens In Filth
+6. Swim Seagull In The Sky
+7. The Music
+8. Nostalgia / His Gaze
+9. Behind My Window / My Seas Of South
+10.Old Lighthouse Tale
+11.The White Eyed
+12.Neanderthal Sands
+13.Christal
+
+ Carmelo Orlando - Vocals, Guitars
+ Antonio Poletti - Guitars
+ Fabio Vignati - Bass
+ Gjuseppe Orlando - Drums, Percussion
+ Thomas Negrini - Keyboards
+
+All Music & Lyrics Written By NOVEMBRE
+Recorded By Dan Swano At Unisound Studios
+
+(p)&(c) 1995 POLYPHEMUS Records
+
+### "Arte Novecento" 1997, Death Doom
+
+
+
+### "Classica" 2000, Death Doom
+
+Cold blue steel 
+Tales from a winter come 
+Nostalgiaplatz 
+My starving bambina 
+Love story 
+L'epoque noire 
+Onirica east 
+Foto blu infinito 
+Winter 
+Outro/spirit of the forest
+
+### "Novembrine Waltz" 2001, Death Doom
+
+1.Distances (6:17)
+2.Everasia (8:23)
+3.Come Pierrot (6:30)
+4.Child of the Twilight (6:35)
+5.Cloudbusting (5:09)
+6.Flower (6:26)
+7.Valentine (almost an instrumental) (7:21)
+8.Venezia Dismal (6:03)
+9.Conservatory Resonance (7:10)
+
+
+Recorded at Outer Sound Studios by Giuseppe (Summer 2001) 
+Mixed by Terje Refnes at Sound Suite Studios 
+All songs/lyrics by Novembre, except "Cloudbusting" 
+by Kate Bush (vocals by Ann-Marie Edvardsen, ex-Third And The Mortal) 
+Cover art by Travis Smith 
+
+
+Carmelo Orlando - Guitars, Vocals and Keys  
+Guiseppe Orlando - Drums and Backing Vocals 
+Massimiliano Pagliuso - Guitars and Backing Vocals  
+Damien Cristiani - bass
+  
+  
+
+### "Dreams D'Azur" 2002, Death Doom
+
+
+
+### "Materia" 2006, Death Doom
+
+1. Verne 05:44  
+2. Memoria Stoica 06:00  
+3. Reason 07:30  
+4. Aquamarine 05:13  
+5. Jules 05:47  
+6. Geppetto 06:59  
+7. Comedia 06:55  
+8. Promise 05:33  
+9. Materia 05:41  
+10. Croma 06:25  
+11. Nothijngrad 06:08
+
+### "The Blue" 2007, Death Doom
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,34 @@
 # Gandalf
 
-Дискография
-"Deadly Fairytales" 1999, Melodic Death Metal
-"Rock Hell" 2001, Melodic Death Metal
+Death metal from Finland in a way of Entombed and Sentenced
+
+## Дискография
+
+### "Deadly Fairytales" 1999, Melodic Death Metal
+
+1 End of Time (Gandalf) 
+2 Marionette (Gandalf) 
+3 Cradle (Gandalf) 
+4 Dark Memories (Gandalf) 
+5 Fade Away (Gandalf) 
+6 Price of My Deeds (Gandalf) 
+7 Forlorn (Gandalf) 
+8 Eternal fire (Gandalf) 
+9 Stronger Than Hell (Gandalf) 
+10 Never Again (Gandalf)
+
+### "Rock Hell" 2001, Melodic Death Metal
+
+L8X Queen
+One More For The Dead 
+Morning Sun
+Human Value Zero
+The Dragon, Geysir 
+Nightderanger
+Live To Suffer 
+Dead Man's Hand
+Castle Of The Stars
+
 
 ## Отношения с другими группами
 

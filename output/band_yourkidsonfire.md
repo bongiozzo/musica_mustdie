@@ -1,7 +1,34 @@
 # Your Kids On Fire
 
-Дискография
-"Aught Six: A Necrodyssey" 2006, Grindcore
+
+
+## Дискография
+
+### "Aught Six: A Necrodyssey" 2006, Grindcore
+
+1. YKOF For Life 01:54  
+2. Siamese Slut Slasher 01:37  
+3. Capture For Sex/Jizz Mopper 01:05  
+4. Relentless Hunger For Rancid Clotted Cunts 02:50  
+5. The Green Inferno 01:47  
+6. Offalmangler 03:06  
+7. Gore Is Life 02:04  
+8. Kill All The Glamfucks 00:57  
+9. Half-Decayed Bitch Raped & Tossed In A Ditch 03:01  
+10. Addicted To Smegma 01:10  
+11. Lesbian Necro Sluts 02:04  
+12. The Festering Stench Of Fly-Blown Death 02:56  
+13. Zombi Holocaust 01:26  
+14. Cock Rock Abbatoir 01:28  
+15. She Deserved What She Got 03:04  
+16. Premature Foetal Splatter 01:05  
+17. Grumegargler 03:01  
+18. One Foot In The Grave (Slaughter cover) 00:57  
+19. Beyond The Darkness 04:18  
+20. Frenetic Meathook Abortion 00:41  
+21. Parasitic Gaingroin 01:58  
+22. Blood-Spattered Drill-Bit Death 02:00 
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,54 @@
 # The Crest
 
-Дискография
-"Letters From Fire" 2002, Gothic
-"Vain City Chronicles" 2005, Gothic
+Gothic metal from Norway
+
+## Дискография
+
+### "Letters From Fire" 2002, Gothic
+
+1. Fire Walk With Me
+2. Butterflies And Dragons
+3. Thorn
+4. Never Sleep Again
+5. Childhood's End
+6. Pills For Broken Dreams
+7. In This Cage
+8. Triangle
+9. Frozen Garden
+10. Monument
+11. Armada
+
+All songs written by THE CREST
+
+Nell - Lead and Backing Vocals, Synth
+Magnus Westgaard - Bass, Backing Vocals
+Sebastian - Guitars, Backing Vocals
+Kristian Aeon - Guitars, Synth, Programming, Backing Vocals
+
+Drum Programming and Drums by Xander Sevon
+Loops and Additional Programming by Terje Refsnes
+
+Recorded August 2001 at Sound Suite Studio, Marseille
+Produced by Terje Refsnes
+Cover artwork by Niklas Sundin
+
+
+
+
+### "Vain City Chronicles" 2005, Gothic
+
+1. Run Like Blazes   
+2. My War   
+3. Silent   
+4. Another Life   
+5. Come On Down   
+6. Flavour Of The Day   
+7. Reptile   
+8. New Profound Fear   
+9. Imaginary Friend   
+10. House Of Mirrors   
+11. My War / Broken Glass
+
 
 ## Отношения с другими группами
 

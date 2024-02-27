@@ -1,14 +1,127 @@
 # Delain
 
-Дискография
-"Lucidity" 2006, Gothic
-"See Me In Shadow (single)" 2007, Gothic
-"April Rain" 2009, Gothic
-"We Are The Others" 2012, Gothic
-"Get the Devil Out of Me (single)" 2012, Gothic
-"The Human Contradiction" 2014, Gothic
-"Lunar Prelude (EP)" 2016, Gothic
-"Moonbathers" 2016, Gothic
+ex WITHIN TEMPTATION keyboarder
+
+## Дискография
+
+### "Lucidity" 2006, Gothic
+
+1. Sever 04:53  
+2. Frozen 04:43 
+3. Silhouette Of A Dancer 05:25 
+4. No Compliance 05:10  
+5. See Me In Shadow 04:41  
+6. Shattered 04:20  
+7. The Gathering 03:35  
+8. Daylight Lucidity 04:36 
+9. Sleepwalker's Dream 04:27
+10. Day For Ghosts 03:37 
+11. Pristine 04:31 
+12. Deep Frozen [grunt version of "Frozen"] 04:46
+
+### "See Me In Shadow (single)" 2007, Gothic
+
+1. See Me In Shadow (Single Edit) 03:40  
+2. Frozen (Acoustic Version) 04:31  
+3. Silhouette Of A Dancer (Acoustic Version) 03:23  
+4. See Me In Shadow (Acoustic Version) 03:38  
+5. See Me In Shadow (Video)
+
+### "April Rain" 2009, Gothic
+
+1. April Rain - 04:36 
+2. Stay Forever - 04:26 
+3. Invidia - 03:49 
+4. Control The Storm - 04:14 
+5. On The Other Side -04:11 
+6. Virtue And Vice - 03:55 
+7. Go Away - 03:37 
+8. Start Swimming - 05:21 
+9. Lost - 03:24 
+10. I'll Reach You - 03:30 
+11. Nothing Left - 04:39 
+12. Come Closer - 04:31
+
+### "We Are The Others" 2012, Gothic
+
+1. Mother Machine
+ 2. Electricity
+ 3. We Are The Others
+ 4. Milk And Honey
+ 5. Hit Me With Your Best Shot
+ 6. I Want You
+ 7. Where Is The Blood (feat. Burton C. Bell)
+ 8. Generation Me
+ 9. Babylon
+ 10. Are You Done With Me
+ 11. Get The Devil Out Of Me
+ 12. Not Enough 
+
+### "Get the Devil Out of Me (single)" 2012, Gothic
+
+1. Get the Devil Out of Me  03:21
+
+### "The Human Contradiction" 2014, Gothic
+
+1. Here Come the Vultures 06:05
+2. Your Body Is a Battleground 03:50
+3. Stardust 03:57
+4. My Masquerade 03:43
+5. Tell Me, Mechanist 04:52
+6. Sing to Me 05:09
+7. Army of Dolls 04:57
+8. Lullaby 04:56
+9. The Tragedy of the Commons 04:31
+
+
+All music written by Eikens, Wessels, and Westerholt.
+ All lyrics written by Wessels.
+ 
+BONUS CD is Included in the 2CD Mediabook, Boxset and 2LP Vinyl editions with the following tracklist:
+ 1. Scarlet (Brand new song) (04:37)
+ 2. Don't Let Go (Brand new song) (03:57)
+ 3. My Masquerade (Live) (05:01)
+ 4. April Rain (Live) (04:46)
+ 5. Go Away (Live) (03:42)
+ 6. Sever (Live) (04:54)
+ 7. Stay Forever (Live) (04:32)
+ 8. Sing to Me (Orchestra version) (03:43)
+ 9. Your Body is a Battleground (Orchestra version) (03:21) 
+
+### "Lunar Prelude (EP)" 2016, Gothic
+
+1. Suckerpunch      
+2. Turn the Lights Out    
+3. Don't Let Go      
+4. Lullaby (Live 2015)   
+5. Stardust (Live 2015)  
+6. Here Come the Vultures (Live 2015) 
+7. Army of Dolls (Live 2015)  
+8. Suckerpunch Orchestra  
+
+
+### "Moonbathers" 2016, Gothic
+
+1. Hands of Gold  05:09   
+2. The Glory and the Scum  04:03 
+3. Suckerpunch  04:09   
+4. The Hurricane  03:44  
+5. Chrysalis - The Last Breath  05:25  
+6. Fire with Fire  04:09   
+7. Pendulum  03:41    
+8. Danse Macabre  05:07 
+9. Scandal (Queen cover)  04:03   
+10. Turn the Lights Out  04:15   
+11. The Monarch  03:39    
+  
+Ltd. edition - Disc 2  
+1. Suckerpunch (Live in The Netherlands)  
+2. Turn the Lights Out (Live in The Netherlands)  
+3. The Glory and the Scum (Live in The Netherlands)  
+4. Don't Let Go (Live in The Netherlands)  
+5. The Glory and the Scum (Orchestral version) - instrumental  
+6. Hands of Gold (Orchestral version) - instrumental  
+
 
 ## Отношения с другими группами
 

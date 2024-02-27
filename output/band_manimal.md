@@ -1,8 +1,17 @@
 # Manimal
 
-Дискография
-"The Darkest Room" 2009, Progressive
-"Trapped In The Shadows" 2015, Power Metal
+
+
+## Дискография
+
+### "The Darkest Room" 2009, Progressive
+
+
+
+### "Trapped In The Shadows" 2015, Power Metal
+
+
+
 
 ## Отношения с другими группами
 

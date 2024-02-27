@@ -1,7 +1,22 @@
 # My Funeral
 
-Дискография
-"Carnal Obduction" 2010, Thrash
+
+
+## Дискография
+
+### "Carnal Obduction" 2010, Thrash
+
+1. Horn Crowned King	 
+2. Death's Attraction	 
+3. Legions	 
+4. God Overdose	 
+5. Servant of Grave 
+6. Call of War 
+7. One-Night Kill	 
+8. Age of Violence 
+9. Zodiac Inversion	 
+10. Tortured to Death
+
 
 ## Отношения с другими группами
 

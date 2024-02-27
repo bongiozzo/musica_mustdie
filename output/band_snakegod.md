@@ -1,7 +1,28 @@
 # Snakegod
 
-Дискография
-"Invitation" 2001, Heavy Metal
+(Melodic Metal from Finland)
+
+## Дискография
+
+### "Invitation" 2001, Heavy Metal
+
+ANOTHER PART OF HEAVEN
+DONT RESCUE HER
+DEFENDER
+BEHIND THE STORM
+BLACK HEART IS ALWAYS BLIND
+DIVINE HIGH PRIESTESS
+EVIL WOMAN
+KING OF THE DREAM
+LOST IN TIME
+SNAKEBITE
+SNAKEGOD
+TIME AND AGAIN
+INVITATION
+(part 1 of King and the Dream)
+
+
+
 
 ## Отношения с другими группами
 

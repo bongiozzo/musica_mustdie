@@ -1,7 +1,19 @@
 # Ewiges Reich
 
-Дискография
-"Krieg, Hass, Tod" 2004, Black Metal
+
+
+## Дискография
+
+### "Krieg, Hass, Tod" 2004, Black Metal
+
+1. Opferblut
+2. Von Illusionen und Gцtzenkult
+3. Propaganda
+4. Humanist - Masochist
+5. Untergang
+6. Krieg, Hass, Tod
+7. Ausklang
+
 
 ## Отношения с другими группами
 

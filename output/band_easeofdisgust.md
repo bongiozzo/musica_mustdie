@@ -1,7 +1,17 @@
 # Ease Of Disgust
 
-Дискография
-"The Shell" 2009, Deathcore
+
+
+## Дискография
+
+### "The Shell" 2009, Deathcore
+
+1. Save Your Mercy For The Lepers 04:12  
+2. Rot In Amphitheatre 03:47  
+3. Approaching The End 04:39  
+4. Running For Torment 02:43  
+5. The Shell 03:47 
+
 
 ## Отношения с другими группами
 

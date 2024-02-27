@@ -1,8 +1,19 @@
 # For My Pain
 
-Дискография
-"Fallen" 2003, Gothic
-"Killing Romance (single)" 2004, Gothic
+Side-project of Tuomas Holopainen (Nightwish) and musicians of Eternal Tears of Sorrow
+
+## Дискография
+
+### "Fallen" 2003, Gothic
+
+
+
+### "Killing Romance (single)" 2004, Gothic
+
+01. Killing Romance
+02. Joutsenlaulu (JUSSI HAKULINEN cover)
+03. Too Sad to Live
+
 
 ## Отношения с другими группами
 

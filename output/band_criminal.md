@@ -1,13 +1,108 @@
 # Criminal
 
-Дискография
-"Victimized" 1994, Thrash
-"Dead Soul" 1997, Thrash
-"Cancer" 2000, Thrash
-"No Gods No Masters" 2004, Thrash
-"Sicario" 2005, Thrash
-"White Hell" 2009, Thrash
-"Akelarre" 2011, Thrash
+Followers of Sepultura
+
+## Дискография
+
+### "Victimized" 1994, Thrash
+
+1. Self Destruction 02:41 
+2. Under My Skin 04:02 
+3. Worse 03:08 
+4. Downwards 03:43 
+5. Pressure 02:58 
+6. New Disorder 03:42 
+7. Gusano 02:40  
+8. Crucified 03:59 
+9. Psychopath 03:36 
+10. Still Born 04:05 
+
+### "Dead Soul" 1997, Thrash
+
+1. Denial 03:00  
+2. Scapegoat 03:11  
+3. Collide 03:04 
+4. Terror 02:30 
+5. Life Is Agony 04:36 
+6. No Salvation 03:16 
+7. Victimized 03:01 
+8. S.S.S. 02:43
+9. Hijos de la Miseria 04:36 
+10. Slave Master 02:22
+11. Nation of Hate 02:59 
+12. Guilt 04:45
+
+### "Cancer" 2000, Thrash
+
+1. Cancer 03:31  
+2. Force Fed 03:26
+3. Alma Muerta 03:41 
+4. Savergery 03:02 
+5. Control 03:19
+6. Green 02:32 
+7. Play God 03:14 
+8. Above and Beyond 03:46
+9. El Azote 02:29 ] 
+10. Greed Killing (Napalm Death cover) 02:56
+
+### "No Gods No Masters" 2004, Thrash
+
+1. Aberration
+2. Deconstruction
+3. Consumed
+4. No Return
+5. Tidal Wave
+6. Downfall
+7. Idol
+8. Dark Half
+9. Faceless
+10. Violent Change
+11. Bow To None
+
+### "Sicario" 2005, Thrash
+
+1. Rise and Fall 03:43 
+2. Time Bomb 03:31 
+3. Walking Dead 04:57 
+4. The Root of All Evil 04:28 
+5. Shot in the Face 04:28 
+6. Sicario 04:19 
+7. The Land God Forgot 03:51 
+8. Preacher of Hate 03:25 
+9. Touch of Filth 03:31 
+10. From the Ashes 03:58 
+11. Por la Fuerza de la Razуn 04:48
+12. Self Destruction 02:58 
+
+
+### "White Hell" 2009, Thrash
+
+1. 21st Century Paranoia 03:51  
+2. Crime and Punishment 05:10  
+3. Incubus 03:44  
+4. Black Light 03:44  
+5. The Deluge 04:12  
+6. Strange Ways 04:40  
+7. Mobrule 02:56  
+8. The Infidel 04:09  
+9. Invasion 04:29  
+10. Eyes of Temptation 03:41  
+11. Bastardom 04:00  
+12. Sons of Cain 05:33 
+
+### "Akelarre" 2011, Thrash
+
+Order From Chaos
+Resistance Is Futile
+The Ghost We Summoned
+Akelarre
+State Of Siege
+Tyrannicide
+Feel The Void
+The Power Of The Dog
+Vows Of Silence
+La Santa Muerte
+
 
 ## Отношения с другими группами
 

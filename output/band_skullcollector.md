@@ -1,8 +1,32 @@
 # Skull Collector
 
-Дискография
-"Depravity Indulged Through Fresh Corporal Parts" 2007, Death Metal
-"Home of the Grave" 2009, Death Metal
+
+
+## Дискография
+
+### "Depravity Indulged Through Fresh Corporal Parts" 2007, Death Metal
+
+1. Immortal Souls	 
+2. To Mince, Cleave And Cut	 
+3. Until The Bones Be Left Behind	 
+4. Slave of Death	 
+5. Sweet Suffering	 
+6. The Skull Collector	 
+7. Like Dust Upon Me	 
+8. Cock Cutting Craft	 
+9. Depravity Indulged Through Fresh Corporal Parts
+
+### "Home of the Grave" 2009, Death Metal
+
+1. Home of the Grave	 
+2. Inseminated by a Larvae Crotch	 
+3. Skullcollection	 
+4. Home of the Grave 2	 
+5. Come and See	 
+6. Malignant Needs	 
+7. To End All Pleasures	 
+8. From Daddy's Hand
+
 
 ## Отношения с другими группами
 

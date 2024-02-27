@@ -1,8 +1,62 @@
 # Godsend
 
-Дискография
-"As The Shadows Falls" 1993, Death Doom
-"In The Electric Mist" 1995, Death Doom
+
+
+## Дискография
+
+### "As The Shadows Falls" 1993, Death Doom
+
+1. Slaydream
+2. As The Shadows Falls
+3. With The Wind Comes The Rain
+4. Autumn Leaves
+5. Spiritual Lonelyness
+6. Beyond The Mist Of Memories
+7. My Lost Love
+8. Walking The Roads Of The Unbeheld
+9. Silence Of Time
+
+ Gunder Augun Trasten - Guitar & Bass
+ Dan Swano  - Vocal,Synthesizer
+ Benny Larsson  - Drums
+
+Dan Swano & Benny Larsson Feature On This Album
+As Session Musicians.
+All Music Written By Gunder Augun Trasten.
+Produced & Mixed By Dan Swano & Gunder Augun 
+Trasten.
+Recorded & Mixed In 16 Tracks-Unisound Studios 
+In August 1993.
+
+(p)&(c) 1993 HOLY Records
+
+### "In The Electric Mist" 1995, Death Doom
+
+1. Down Upon You
+2. Nobody Home
+3. Life Must Go On
+4. In The Bitter Waters
+5. Clarion Call
+6. Voyage In Oblivion
+7. The Sun Will Shine Again
+8. Lost
+9. Under Silver Linings
+10.Tranquillity
+
+All Songs Written By GODSEND.
+Produced By Dan Swano & GODSEND.
+Engineered By Dan Swano.
+Recorded & Mixed In Unisound Studios.
+
+Tom - Rhythm Guitar
+Per Morten - Vocals
+Tommy - Bass
+Henrik - Drums
+Gunder - Guitars
+Dan Swano - Synths
+
+(P)&(C) 1995 HOLY Records
+
 
 ## Отношения с другими группами
 

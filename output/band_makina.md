@@ -1,9 +1,53 @@
 # Makina
 
-Дискография
-"Dilemma" 1991, Thrash
-"Anabiosis" 1994, Thrash
-"The Blood Of My Race" 1998, Thrash
+
+
+## Дискография
+
+### "Dilemma" 1991, Thrash
+
+1. Citizenґs Hate
+2. Dreamtrapped
+3. Criminal Confession
+4. Official Misconduct
+5. The Clown Of This Town
+6. Ciudad De Cagadas
+7. The Window
+8. Antiwar
+9. Profound Conviction
+10. S.CH.C.M.E.U.P.
+11. Edge Of Confussion
+
+### "Anabiosis" 1994, Thrash
+
+1. Suddenly Dawned (Negative)	 
+2. Insomnia	 
+3. Human Wasted	 
+4. Silent Disease	 
+5. Nosotoxicotosis	 
+6. Perro	 
+7. Pinches Cerdos	 
+8. Mind Changes	 
+9. Lies	 
+10. Ripe	 
+11. Anabiosis 
+12. Nymphomanic
+
+### "The Blood Of My Race" 1998, Thrash
+
+1. I Am	 
+2. 2 Much 2 Much	 
+3. U	 
+4. K.F.S.	 
+5. Terror	 
+6. Chorizo	 
+7. Red	 
+8. The Left	 
+9. La Fuerza De La Tierra	 
+10. Tons Of Shit	 
+11. Millennium	 
+12. Faithless
+
 
 ## Отношения с другими группами
 

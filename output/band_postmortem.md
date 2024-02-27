@@ -1,12 +1,110 @@
 # Postmortem
 
-Дискография
-"Screams of Blackness" 1993, Deathcore
-"Der Totmacher [EP]" 1996, Deathcore
-"The Age of Massmurder " 1997, Deathcore
-"Repulsion" 1998, Deathcore
-"Constant Hate" 2008, Death Metal
-"Seeds of Devastation" 2010, Death Metal
+
+
+## Дискография
+
+### "Screams of Blackness" 1993, Deathcore
+
+1. God & Sins 04:32  
+2. Suicide 03:07  
+3. Reincarnation 02:47  
+4. Dreamland 02:17  
+5. Buried Alive 03:02  
+6. Lunacy 02:28  
+7. Bad Times 03:56  
+8. Shadows of Memory 04:12  
+9. Assvibrator 02:42  
+10. Death Control 02:42  
+11. Destroy the World 05:42  
+12. Treibjagd 02:59  
+13. Gutes Gefuehl 02:35 
+
+### "Der Totmacher [EP]" 1996, Deathcore
+
+1.  Pink Giant
+2.  Der Totmacher
+3.  Autumnrose
+4.  Postmortem
+5.  Anna
+
+(P)(C) 1997 MORBID Records // MR 031
+
+### "The Age of Massmurder " 1997, Deathcore
+
+1. Hi, 00:07  
+2. And 00:07  
+3. Welcome 00:07  
+4. In 00:07  
+5. Our 00:07  
+6. World 00:06  
+7. Of 00:07  
+8. Violence 00:06  
+9. And 00:07  
+10. Serial 00:07  
+11. Crime! 00:07  
+12. Listen To... 00:07  
+13. The Baby!!! 00:07  
+14. Albert "Cannibal" Fish 02:29  
+15. To Henry Lee Lucas (From Ottis) 03:29  
+16. Co-Ed-Killer 02:51  
+17. The Manson-Cult 02:23  
+18. Der Totmacher 05:40  
+19. Green River 03:50  
+20. Your Innocence 04:19  
+21. The Age Of Massmurder 03:11  
+22. Rosa Riese 03:51  
+23. The Son Of Sam 04:18  
+24. Are We Not Men? 01:42  
+25. 25 02:44  
+26. Cromwell Street 02:17 
+
+### "Repulsion" 1998, Deathcore
+
+1. Epitomize 04:08
+2. Clockwork Black 02:32  
+3. Gutterballs 03:01
+4. Bleeding 03:27  
+5. Beyond The Bounds 07:01
+6. Witches Burn 02:12  
+7. Over The Line 03:29  
+8. Heiligenschein 04:12
+9. Sin City (AC/DC cover) 04:01  
+10. Inside The Clockwork 02:11  
+11. Better Beware 02:47  
+12. Dreadful Sins 05:56
+13. Black Trinity 02:48  
+14. Sick And Twisted 03:30  
+15. Follow The Hypocrite 04:15  
+16. Epitaph 10:00 
+
+### "Constant Hate" 2008, Death Metal
+
+1. Are You Dead? 03:57  
+2. Suffer 03:36  
+3. Killing Days (to Ottis) 04:28  
+4. The Way of the Knife 04:08  
+5. Lobotomy 03:03  
+6. Please God 02:26  
+7. Revolution 05:26  
+8. As the Blood Rushed Out of Her Gutted Throat 01:49  
+9. Hate, Kill, Destroy 03:39  
+10. Can't Stop Killing 08:43 
+
+### "Seeds of Devastation" 2010, Death Metal
+
+1. Deliverance 05:43  
+2. Give Us Hate 02:39  
+3. Ghost of the Warship 04:01  
+4. Dark New World 05:32  
+5. Prelude to Devastation 00:54  
+6. Blood Spangled Banner 03:56  
+7. Drop Another Body 06:18  
+8. Chopped, Shredded and Grind to Meatballs 05:06  
+9. Nocturnal Prayer 04:18  
+10. So Cold 04:34  
+11. Waranthem 02:29 
+
 
 ## Отношения с другими группами
 

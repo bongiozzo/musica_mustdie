@@ -1,9 +1,31 @@
 # Mucupurulent
 
-Дискография
-"Sicko Baby" 1997, Death Metal
-"Horny Like Hell" 1999, Death Metal
-"Soul Reaver" 2002, Death Metal
+
+
+## Дискография
+
+### "Sicko Baby" 1997, Death Metal
+
+
+
+### "Horny Like Hell" 1999, Death Metal
+
+
+
+### "Soul Reaver" 2002, Death Metal
+
+1. Again 
+2. Pain Lasts Forever 
+3. Spine of Madness 
+4. Back to the Bones 
+5. Unbreakable 
+6. Soul Reaver 
+7. Nightcrawler 
+8. The Return of the Squad 
+9. Vermin 
+10. Like Gasoline 
+11. Drive Me Dead 
+
 
 ## Отношения с другими группами
 

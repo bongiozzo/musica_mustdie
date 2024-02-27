@@ -1,10 +1,56 @@
 # Tsjuder
 
-Дискография
-"Kill for Satan" 2000, Black Metal
-"Demonic Possession" 2002, Black Metal
-"Desert Northern Hell" 2004, Black Metal
-"Legion Helvete" 2011, Black Metal
+
+
+## Дискография
+
+### "Kill for Satan" 2000, Black Metal
+
+1. The Daemon Gate
+2. Necromancy
+3. Lord of Terror
+4. Raping Christianity
+5. Dying Spirits
+6. Unleashed
+7. Kill for Satan (The King's Birth)
+8. Sodomizing the Lamb (The King's Conquering)
+9. Beyond the Grave (The King's Reign)
+
+### "Demonic Possession" 2002, Black Metal
+
+1. Eriphion Epistates
+2. Demoner Av Satans Rike
+3. Ancient Hate
+4. Bloodshedding Horror
+5. Deathwish
+6. A Twisted Mind
+7. I-10
+8. Primeval Fear
+9. Outro
+
+### "Desert Northern Hell" 2004, Black Metal
+
+Malignant Coronation 
+Ghoul 
+Possessed 
+Lord Of Swords 
+Helvete 
+Mouth Of Madness 
+Unholy Paragon 
+Sacrifice (Bathory Cover) 
+Morbid Lust
+
+### "Legion Helvete" 2011, Black Metal
+
+1. The Daemon Throne	 
+2. Fra en Rеtten Kiste	 
+3. Dauрir	 
+4. Voldsherskeren	 
+5. Slakt	 
+6. Black Shadows of Hell	 
+7. Blod og Aske	 
+8. Vеrt Helvete
+
 
 ## Отношения с другими группами
 

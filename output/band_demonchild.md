@@ -1,8 +1,51 @@
 # Demon Child
 
-Дискография
-"Sorrow Cast Upon The Angels (demo)" 2001, Black Metal
-"Shadow Cult" 2002, Black Metal
+Extreme atmospheric black-metal
+
+## Дискография
+
+### "Sorrow Cast Upon The Angels (demo)" 2001, Black Metal
+
+1. Supreme Cruelty 
+2. Sorrow Cast Upon The Angels 
+3. Coldblessed (Chant Of Night) 
+ 
+
+Recorded at Popstudio, Loimaa during 14-15th May anno 2001 by Mika Haapasalo. Produced by Demon Child & Kata. 
+
+
+### "Shadow Cult" 2002, Black Metal
+
+1. Intro
+2. In Darkened World
+3. Supreme Cruelty
+4. The Fallen One Has Arrived
+5. The Order of the Black Flame (The Fallen One Has Arrived - pt.2)
+6. Shadow Cult
+7. Coldblessed
+8. Path of Fire & Blood
+9. Torch of War
+
+Deimos: Vocals
+E. Heinonen: Keyboards
+Pyromaniac: Drums and Percussion
+Charon: Guitar and Bass 
+
+
+Recorded and mixed at Pop Studio, Finland in June 2002. 
+Engineering done by Mika Haapasalo. 
+Mastered at Finnvox Studio, Finland in September 2002. 
+Mastering done by Mika Jussila. 
+Music composed by Demon Child. 
+Lyrics written by Demon Child. 
+Band logo by Kris Vervimp. 
+Band photos by Jari Nieminen and Demon Child. 
+Booklet original photos by Charles Schmidt, manipulated by Jason Juta. 
+Cover artwork by Jason Juta
+Design and layout by Louis Rod
+
+
+
 
 ## Отношения с другими группами
 

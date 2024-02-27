@@ -1,7 +1,13 @@
 # Spastik Inc
 
-Дискография
-"Ink Compatible" 2004, Progressive
+
+
+## Дискография
+
+### "Ink Compatible" 2004, Progressive
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,36 @@
 # All Pigs Must Die
 
-Дискография
-"All Pigs Must Die (EP)" 2010, Punk
-"God Is War" 2011, Punk
+
+
+## Дискография
+
+### "All Pigs Must Die (EP)" 2010, Punk
+
+1. Hungry Wolf, Easy Prey
+2. Sermon For The End
+3. Die Ignorant
+4. Noxchi Assault
+5. Death In My Wake
+
+### "God Is War" 2011, Punk
+
+CD1
+01. Death Dealer 3:52
+02. Pulverization 1:54
+03. Sacrosanct 3:17
+04. God Is War 5:02
+05. The Blessed Void 3:25
+06. Third World Genocide 4:26
+07. Extinction Is Ours 2:21
+08. Sadistic Vindicator 8:22
+
+CD2
+01. Hungry Wolf, Easy Prey 3:38
+02. Sermon For The End 3:42
+03. Die Ignorant 3:13
+04. Noxchi Assault 2:49
+05. Death In My Wake 6:35
+
 
 ## Отношения с другими группами
 

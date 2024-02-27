@@ -1,9 +1,58 @@
 # Mourning Caress
 
-Дискография
-"Perspectives" 2000, Melodic Death Metal
-"Imbalance" 2002, Melodic Death Metal
-"Inner Exile" 2008, Melodic Death Metal
+
+
+## Дискография
+
+### "Perspectives" 2000, Melodic Death Metal
+
+01 - Towards The Decline Of Existence  
+02 - Dead Rose Romance  
+03 - The Pain Of Remembrance  
+04 - A Lifeless Time  
+05 - Hope Dies At Last 
+
+
+### "Imbalance" 2002, Melodic Death Metal
+
+Creating A Hell
+Follow The Rain
+Lifeless Time
+Falling
+The Chain
+Towards The Decline Of Existence
+Dead Rose Romance
+Feed My Dreams
+Hope DIes At Last
+Escape
+Crazy Train (Bonus)
+
+
+
+
+benedikt bjarnason - guitar
+florian erhart - guitar
+dominik schlьter - drums
+gerrit mohr - vocals
+daniel busche - bass
+
+
+
+
+### "Inner Exile" 2008, Melodic Death Metal
+
+1. ... Of Fortune And Failure 03:34  
+2. Corroded By Fear 05:03  
+3. As Long As We Are One 03:49  
+4. Nothing Is Lost 04:28  
+5. The Pessimist 03:40  
+6. Enter Today 01:02  
+7. Sorrows 03:16  
+8. Close To Collapse 04:41  
+9. Too Deep Inside 03:43  
+10. Frustrations 03:22  
+11. Inner Exile 06:32
+
 
 ## Отношения с другими группами
 

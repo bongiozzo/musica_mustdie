@@ -1,9 +1,58 @@
 # Trapped Under Ice
 
-Дискография
-"Stay Cold (EP)" 2008, Hardcore
-"Secrets Of The World" 2009, Hardcore
-"Big Kiss Goodnight" 2011, Hardcore
+
+
+## Дискография
+
+### "Stay Cold (EP)" 2008, Hardcore
+
+01. Half A Person
+02. Stay Cold
+03. Skeleton Hands
+04. Street Lights
+05. Brain Waves
+06. Between The Sheets
+07. Soul Vice (Demo)
+08. Reality Unfolds (Demo)
+09. Evelyn (Demo)
+10. Unfinished Business (Demo)
+11. Heavy Thoughts (Demo)
+12. Evelyn/Street Lights (Live)
+13. Between The Sheets/Soul Vice (Live)
+14. Reality Unfolds (Live)
+15. Evelyn Dub (By Black Ark)
+
+### "Secrets Of The World" 2009, Hardcore
+
+01. See God
+02. Believe
+03. American Dreams
+04. TUI
+05. Gemini
+06. Too True
+07. The Vortex
+08. Eye Hand
+09. From Birth
+10. Titus
+11. Against The Wall
+12. World I Hate
+
+### "Big Kiss Goodnight" 2011, Hardcore
+
+01. Born To Die
+02. Pleased To Meet You
+03. Jail 
+04. Outcast
+05. Victimized 
+06. The Waits
+07. Dead Inside
+08. True Love 
+09. Disconnect 
+10. Draw The Line
+11. You And I 
+12. Still Cold
+13. Reality Unfolds
+
 
 ## Отношения с другими группами
 

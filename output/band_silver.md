@@ -1,8 +1,35 @@
 # Silver
 
-Дискография
-"Addiction" 2004, Hard Rock
-"Gold" 2005, Hard Rock
+
+
+## Дискография
+
+### "Addiction" 2004, Hard Rock
+
+Never Let Me Go 
+Angeline 
+I Saw 
+Finish What You Started 
+Why Did You Come Back 
+Addiction 
+This Is My Life 
+Leaving Tonight 
+Breathe 
+You Are Mine
+
+### "Gold" 2005, Hard Rock
+
+Creep 
+All That I Wanted 
+Wouldn’t You Agree 
+Joshua 
+Golden Days 
+Setting It Up 
+China Girl 
+Save Me 
+Easy 
+Daydream Believers
+
 
 ## Отношения с другими группами
 

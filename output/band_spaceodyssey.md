@@ -1,8 +1,38 @@
 # Space Odyssey
 
-Дискография
-"Embrace The Galaxy" 2003, Metal
-"The Astral Episode" 2005, Metal
+Neoclassical Melodic Metal
+
+## Дискография
+
+### "Embrace The Galaxy" 2003, Metal
+
+1. Despair And Pain
+2. Embrace The Galaxy
+3. Emposium
+4. Entering The Dome
+5. The House With A Houndred Windows
+6. Grand Opening
+7. Requiem For A Dream
+8. Seduction Of Life
+9. A Perfect Day
+
+
+Richard Andersson - Keyboard
+Magnus Nilsson – Guitars
+Zoltan Csorsz – Drums
+Patrik Johansson - Vocals
+
+### "The Astral Episode" 2005, Metal
+
+Through Dreams And Reality 
+Astral Episode 
+Lord Of The Winds 
+Dazzle The Devil 
+Back To The Dark 
+Presence Of Mind 
+Reversation 
+The Seventh Star Fantasy
+
 
 ## Отношения с другими группами
 

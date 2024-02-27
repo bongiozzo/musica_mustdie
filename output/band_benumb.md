@@ -1,6 +1,9 @@
 # Benumb
 
-Дискография
+USA grindcore/powerviolence
+
+## Дискография
+
 
 ## Отношения с другими группами
 

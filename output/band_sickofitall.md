@@ -1,22 +1,141 @@
 # Sick of It All
 
-Дискография
-"Blood, Sweat & No Tears" 1989, Hardcore
-"We Stand Alone (EP)" 1991, Hardcore
-"Just Look Around" 1992, Hardcore
-"Scratch The Surface" 1994, Hardcore
-"Live In A World Full Of Hate (Live)" 1995, Hardcore
-"Spreading The Hardcore Reality" 1995, Hardcore
-"Built To Last" 1997, Hardcore
-"Call To Arms" 1999, Hardcore
-"Yours Truly" 2000, Hardcore
-"Live In A Dive" 2002, Hardcore
-"Life On The Ropes" 2003, Hardcore
-"Outtakes For The Outcast" 2004, Hardcore
-"Death To Tyrants" 2006, Hardcore
-"Based On A True Story" 2010, Hardcore
-"Nonstop" 2011, Hardcore
-"Last Act Of Defiance" 2014, Hardcore
+
+
+## Дискография
+
+### "Blood, Sweat & No Tears" 1989, Hardcore
+
+
+
+### "We Stand Alone (EP)" 1991, Hardcore
+
+
+
+### "Just Look Around" 1992, Hardcore
+
+1.  We Want The Truth
+2.  Locomotive
+3.  The Pain Strikes
+4.  Shut Me Out
+5.  What's Going On
+6.  Never Measure Up
+7.  Just Look Around
+8.  Violent Generation
+9.  The Shield
+10.Now It's Gone
+11.We Stand Alone
+12.Indust
+
+ Lou Koller - Vocals
+ Pete Koller - Guitars
+ Rich  - Bass
+ Armond Majidi - Drums
+
+All Songs Written By SICK OF IT ALL
+Produced By SICK OF IT ALL
+Engineered & Mixed By Tom Soares
+Recorded & Mixed At Normandy Sound, Warren, RI
+
+(P)(C) 1992 REALTIVITY Records
+
+### "Scratch The Surface" 1994, Hardcore
+
+1. No Cure
+2. Insurrection
+3. Consume
+4. Who Set The Rules
+5. Goatless
+6. Step Down
+7. Maladjusted
+8. Scratch The Surface
+9. Free Spirit
+10. Force My Hand
+11. Desperate Fool
+12. Return To Reality
+13. Farm Team
+14. Cease Fire
+
+ Lou Koller - Vocals
+ Pete Koller - Guitars
+ Craig Setari - Bass
+ Arman Majidi - Drums
+
+All Songs Written By SICK OF IT ALL
+Produced By SICK OF IT ALL
+Engineered By Tom Soares
+Recorded & Mixed At Normandy Sound
+
+(p)&(c) 1994 ATLANTIC Recording
+
+### "Live In A World Full Of Hate (Live)" 1995, Hardcore
+
+
+
+### "Spreading The Hardcore Reality" 1995, Hardcore
+
+
+
+### "Built To Last" 1997, Hardcore
+
+
+
+### "Call To Arms" 1999, Hardcore
+
+
+
+### "Yours Truly" 2000, Hardcore
+
+
+
+### "Live In A Dive" 2002, Hardcore
+
+
+
+### "Life On The Ropes" 2003, Hardcore
+
+
+
+### "Outtakes For The Outcast" 2004, Hardcore
+
+
+
+### "Death To Tyrants" 2006, Hardcore
+
+
+
+### "Based On A True Story" 2010, Hardcore
+
+
+
+### "Nonstop" 2011, Hardcore
+
+01. Clobberin' Time (feat. KRS One)
+02. Injustice System!
+03. Sanctuary
+04. Scratch The Surface
+05. Us Vs. Them
+06. The Deal
+07. Just Look Around
+08. Ratpack
+09.  World Full Of Hate
+10. Pushed Too Far
+11. GI Joe Headstomp
+12. Never Measure Up
+13. Chip Away
+14. Busted
+15. Locomotive
+16. My Life
+17. Friends Like You
+18. Relentless
+19. No Labels
+20. Built To Last
+21. Clobberin' Time (feat. KRS One)
+
+### "Last Act Of Defiance" 2014, Hardcore
+
+
+
 
 ## Отношения с другими группами
 

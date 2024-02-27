@@ -1,16 +1,206 @@
 # Borknagar
 
-Дискография
-"Borknagar" 1996, Black Metal
-"The Olden Domain" 1997, Black Metal
-"The Archaic Course" 1998, Black Metal
-"Quintessence" 2000, Black Metal
-"Empiricism" 2001, Black Metal
-"Epic" 2004, Black Metal
-"Origin" 2006, Progressive
-"Universal" 2010, Progressive
-"Urd" 2012, Progressive
-"Winter Thrice" 2016, Black Metal
+
+
+## Дискография
+
+### "Borknagar" 1996, Black Metal
+
+1. Vintervredets Sjelesagn
+2. Tanker Mot Tind (Kvelding)
+3. Svartskogs Gilde
+4. Ved Steingard
+5. Krigsstev
+6. Dauden
+7. Grimskalle Trell
+8. Nord Naagauk
+9. Fandens Allheim
+10.Tanker Mot Tind (Gryning)
+
+(P)(C) 1997 MALICIOUS RECORDS // MR O 12
+
+### "The Olden Domain" 1997, Black Metal
+
+1. The eye of Oden 
+2. The Winterway 
+3. Om Hundredeaareralting Glemt 
+4. A tale of Pagan Tongue 
+5. The Mountains Rove 
+6. Grimland Domain 
+7. Ascension of our Fathers 
+8. The Dawn of the End
+
+(c)&(p)1997 CENTURY MEDIA
+Guitars: Oystein G. Brun 
+Drums: Grim 
+Bass: Kai K. Lie 
+Vocals: Garm 
+Synths: Ivar Bjornson 
+
+All songs written by Oystein G. Brun Recorded at the Woodhouse studios in Dortmund Germany. In the period of 29th 
+May '97 to July the 8th '97. Produced by Borknagar.
+
+### "The Archaic Course" 1998, Black Metal
+
+1. Oceans Rise (Brun) 
+2. Universal (Brun) 
+3. Witching Hour (Bjornson/Brun/Vortex) 
+4. Black Token (Brun) 
+5. Nocturnal Vision (Brun/Vortex) 
+6. Ad Noctum (Brun/Vortex) 
+7. Winter Millennium (Brun) 
+8. Fields of Long Gone Presence (Bjornson) 
+
+
+### "Quintessence" 2000, Black Metal
+
+1. Rivalry of Phantoms (Brun) - 4:36 
+2. Presence Is Ominous (Bun) - 4:54 
+3. Ruins of the Future (Brun) - 4:55 
+4. Colossus (Mickelson) - 4:27 
+5. Inner Landscape (Nedland) - 2:50 
+6. Invincible (Brun) - 4:24 
+7. Icon Dreams (Brun) - 4:32 
+8. Genesis Torn (Mickelson) - 5:15 
+9. Embers (Brun) - 1:25 
+10.Revolt (Brun) - 6:05
+
+~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~
+Guitars: Oystein G. Brun
+Guitars: Jens F. Ryland
+Drums: Asgeir Mickelson
+Bass: Simen Hestnes
+Vocals: Simen Hestnes (I.C.S. Vortex)
+Synths: Lazare
+
+All songs written by Oystein G. Brun except Colossus by Hestnes & Mickelson,
+Inner Landscape by Nedland, Genesis Torn by Brun & Mickelson.
+Recorded at the Abyss studios, in the period of 4 Jan '00 till 2 Feb '00.
+Produced by Peter Tagtren.
+Mastering at Strype Audio by Hestnes and Mickelson.
+
+### "Empiricism" 2001, Black Metal
+
+1. The Genuine Pulse
+2. Gods Of My World
+3. The Black Canvas
+4. Matter & Motion
+5. Soul Sphere
+6. Inherit The Earth
+7. The Stellar Dome
+8. Four Element Synchronicity
+9. Liberated
+10. The View Of Everlast
+
+
+
+Guitars: Шystein G. Brun
+Guitars: Jens F. Ryland
+Drums: Asgeir Mickelson
+Bass: Tyr
+Vocals: Vintersorg
+Synths: Lazare
+
+
+
+
+
+### "Epic" 2004, Black Metal
+
+01. Future Reminiscence (5:26)
+02. Traveller (5:03)
+03. Origin (4:58)
+04. Sealed Chambers of Electricity (4:12)
+05. The Weight of Wind (3:58)
+06. Resonance (4:28)
+07. Relate (Dialogue)(4:28)
+08. Cyclus (5:25)
+09. Circled (4:45)
+10. Inner Ocean Hypothesis (5:10)
+11. Quintessence (5:31)
+12. The Wonder (4:16)
+
+### "Origin" 2006, Progressive
+
+1. Earth Imagery 
+2. Grains 
+3. Oceans Rise 
+4. Signs 
+5. White 
+6. Cynosure 
+7. Human Nature 
+8. Acclimation 
+9. The Spirit of Nature 
+
+Line-Up: 
+Vintersorg - Vocals 
+Шystein G. Brun - Guitar 
+Lars A. Nedland - Synths and Samplers 
+Asgeir Mickelson - Bass & Drums
+
+### "Universal" 2010, Progressive
+
+1. Havoc 06:42 
+2. Reason 06:55 
+3. The Stir of Seasons 04:01 
+4. For a Thousand Years to Come 06:46 
+5. Abrasion Tide 07:14 
+6. Fleshflower 03:28 
+7. Worldwide 06:59 
+8. My Domain 04:49
+
+
+
+Available in four different formats: regular jewelcase CD, limited digipack (including bonus disc), CD box with extras and gatefold LP with double vinyl.
+ 
+Recorded and mixed at Toproom Studio in Lunner, Norway. Produced by Borknagar.
+ 
+All lyrics written by Шystein G. Brun except "Reason" and "Fleshflower" lyrics by Lars A. Nedland, "Abrasion Tide" lyrics by Vintersorg.
+ 
+All music written by Шystein G. Brun except "Fleshflower" music by Lars A. Nedland.
+ 
+The album was intended to be released in the fall of 2009, but the released date was postponed as a result of a label decision.
+ 
+Bonus tracks:
+ 09. Coalition Of The Elements (05:42)
+ 10. Loci (02:03) 
+
+### "Urd" 2012, Progressive
+
+1. Epochalypse 06:08 
+2. Roots 05:55 
+3. The Beauty of Dead Cities 04:15 
+4. The Earthling 06:51 
+5. The Plains of Memories 04:27 
+6. Mount Regency 06:08 
+7. Frostrite 04:50 
+8. The Winter Eclipse 08:45 
+9. In a Deeper World 05:42
+
+
+Recorded at Fascination Street Studios in Sweden.
+ 
+David Kinkade is not a session member, he was still a band member at the time of the recording.
+ 
+The limited edition digipack contains two extra tracks: 
+10. Age of Creation (06:19)
+11. My Friend of Misery (Metallica cover)(06:19) 
+
+### "Winter Thrice" 2016, Black Metal
+
+1. The Rhymes of the Mountain  06:43  
+2. Winter Thrice  06:13    
+3. Cold Runs the River  05:51   
+4. Panorama  05:51   
+5. When Chaos Calls  07:02    
+6. Erodent  06:56    
+7. Noctilucent  03:54    
+8. Terminus  07:09    
+9. Dominant Winds  07:18 (bonus)
+
+
+Mixed and mastered at Fascination Street Studios in Orebro, Sweden.
+
 
 ## Отношения с другими группами
 

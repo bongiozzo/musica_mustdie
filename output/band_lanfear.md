@@ -1,13 +1,94 @@
 # Lanfear
 
-Дискография
-"Towers of February" 1997, Progressive
-"Zero Poems" 1999, Progressive
-"The Art Effect" 2003, Progressive
-"Another Golden Rage" 2005, Progressive
-"X to the Power of Ten" 2008, Progressive
-"This Harmonic Consonance" 2012, Progressive
-"The Code Inherited" 2016, Progressive
+prog-power
+
+## Дискография
+
+### "Towers of February" 1997, Progressive
+
+1. Hate-Full-Pride  6:43  
+2. Precious Time 3:58   
+3. Ancient Skies 7:22   
+4. She's Never Left the Day 4:58   
+5. Vale Auditu 2:30   
+6. Time's Dark Laughter 5:14   
+7. Galtron's Tale 7:54   
+8. Unseen 5:02   
+9.
+I.
+II.
+III.
+IV.  The Towers of February
+Shore Leaves
+Axiom/moixA
+Inter Menses
+Februarium Et. Aprilem
+Soliloquy  15:02 
+
+
+### "Zero Poems" 1999, Progressive
+
+1. zero poems 5:27  
+2. turn the tide 5:36   
+3. eight silent chambers 7:40   
+4. epilogue: june, 2054 a.d. 1:11   
+5. how come? 9:36   
+6. my karma told me 4:00   
+7. to sear the flood 2:08   
+8. enlil/genesis 3:43   
+9. naked 4:02   
+10. twilight 3:54   
+11. electric storm, 2053 a.d. 4:34   
+
+
+### "The Art Effect" 2003, Progressive
+
+1. Heresy 0:54  
+2. Stigmatized 4:45     
+3. Traces of infinity 3:52     
+4. The Artefact 6:23     
+5. Conscience Inc. 5:39     
+6. Deeper 4:55     
+7. Beneath it all 4:02     
+8. Fortune lies within  4:13     
+9. V.o.a.t. 0:35   
+10. The Spell 5:08     
+11. Regression 4:15 
+
+
+### "Another Golden Rage" 2005, Progressive
+
+Another Golden Rage 
+The unrestrained 
+Dispraise 
+Transmigration 
+Eclipse 
+Shades of black 
+The voice within 
+In silence 
+Eternally 
+What...For? 
+Outliving the ages
+
+### "X to the Power of Ten" 2008, Progressive
+
+
+
+### "This Harmonic Consonance" 2012, Progressive
+
+
+
+### "The Code Inherited" 2016, Progressive
+
+1 The Delusionist		
+2 The Opaque Hourglass		 
+3 Evidence Based Ignorance		 
+4 The Code Inherited		
+5 Self-Assembled		 
+6 Converging Saints		 
+7 Remain Undone		 
+8 Summer of '89
+
 
 ## Отношения с другими группами
 

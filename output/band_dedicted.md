@@ -1,8 +1,30 @@
 # Dedicted
 
-Дискография
-"Argonauts" 2008, Thrash
-"ECDYSIS" 2010, Thrash
+
+
+## Дискография
+
+### "Argonauts" 2008, Thrash
+
+1.	 The Revenant	04:20	 
+2.	 Heretic	05:41	 
+3.	 Virgin Soil Epidemic	04:38	 
+4.	 Crystalline	06:28	 
+5.	 The Pathologically Grandiose Megalomaniacs	04:59	 
+6.	 Rebirth	06:11	 
+7.	 A Darker Shade	05:07	 
+8.	 Argonauts	04:30
+
+### "ECDYSIS" 2010, Thrash
+
+1.	 The Future Of Everything Fused Into Nothingness
+2.	 Pilgrimage Of Humble Men
+3.	 Aeons
+4.	 Les Fils Du Calvaire
+5.	 Fall Of The Argonauts	
+6.	 Building Ruins	
+7.	 Into The Mouth Of Time
+
 
 ## Отношения с другими группами
 

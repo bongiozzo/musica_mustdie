@@ -1,7 +1,39 @@
 # MCM
 
-Дискография
-"Ritual Factory" 2004, Progressive
+Alex Masi (guitar)
+
+## Дискография
+
+### "Ritual Factory" 2004, Progressive
+
+01. Ritual Factory
+02. The Whole Life
+03. Sadhu's Level
+04. Ghost In My House
+05. Dream Of Little Ground Fire
+06. Brozo
+07. Dead Monkey Road
+08. Black Market
+09. Ray-Gun
+10. Landings
+11. Red Quantum
+
+Alex Masi - guitar
+Randy Coven - bass
+John Macaluso - drums
+
+All songs written by MCM except "Black Market" by
+Josef Zawinul.
+Guitars and oddd bits and pieces engineered and
+produced by
+Alex Masi at Hunted Hill Studios in Studio City,
+CA.
+Bass and drums recorded at D-City Studios.
+Produced by D. Chaffin with Randy Coven and John
+Macaluso.
+Mixed and mastered at D-City Studios, Long Island,
+New York.
+
 
 ## Отношения с другими группами
 

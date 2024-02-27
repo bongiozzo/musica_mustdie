@@ -1,16 +1,225 @@
 # Living Death
 
-Дискография
-"Vengeance Of Hell" 1984, Speed Metal
-"Watch Out!" 1985, Speed Metal
-"Metal Revolution" 1985, Speed Metal
-"Back To The Weapons (EP)" 1986, Speed Metal
-"Protected From Reality" 1987, Speed Metal
-"Worlds Neuroses" 1988, Speed Metal
-"Killing In Action" 1991, Thrash
-"Living Death (2 CD Compliation)" 1994, Speed Metal
-"Vengeance Of Hell (remastered)" 2001, Speed Metal
-"Metal Revolution (remastered)" 2002, Speed Metal
+
+
+## Дискография
+
+### "Vengeance Of Hell" 1984, Speed Metal
+
+1. You and Me (4:07)
+2. Living Death (3:44)
+3. Nightlight (5:45)
+4. My Victim (4:13)
+5. Labyrinth (3:18)
+6. Heavy Metal Hurricane (3:43)
+7. Hell Pike (4:03)
+8. Riding a Virgin (4:01)
+9. Vengeance of Hell (5:13)
+
+
+
+Reiner Kelch (Guitar)
+Dieter Kelch (Bass)
+Frank Fricke (Guitar)
+Thorsten Bergmann (Vocals)
+Eric (Guest Musician - Drums)
+
+Produced by Axel Thubeauville for Metallian Music
+
+
+
+
+### "Watch Out!" 1985, Speed Metal
+
+1. Watch Out! (6:30)
+2. You and Me (Remix 4:13)
+3. Heavy Metal Hurricane (Remix 3:48)
+4. Nightlight (Remix 5:46)
+
+
+Reiner Kelch (Guitar)
+Dieter Kelch (Bass)
+Frank Fricke (Guitar)
+Thorsten Bergmann (Vocals)
+Andreas Oberhoff (Drums) 
+
+### "Metal Revolution" 1985, Speed Metal
+
+1. Killing Machine (3:13)
+2. Grippin' a Heart (4:39)
+3. Rulers Must Come (4:11)
+4. Screaming from a Chamber (6:12)
+5. Intro. / Shadow of the Dawn (4:45)
+6. Panic and Hysteria (4:13)
+7. Road of Destiny (4:32)
+8. Deep in Hell (3:55)
+
+ 
+
+Reiner Kelch (Guitar)
+Dieter Kelch (Bass)
+Frank Fricke (Guitar)
+Thorsten Bergmann (Vocals)
+Andreas Oberhoff (Drums) 
+
+### "Back To The Weapons (EP)" 1986, Speed Metal
+
+1. Nuclear Greetings (4:38)
+2. Bloody Dance(3:29)
+3. The Way (Your Soul Must Go) (4:34)
+4. Child of Illusion (3:17)
+
+
+Reiner Kelch (Guitar)
+Dieter Kelch (Bass)
+Frank Fricke (Guitar)
+Thorsten Bergmann (Vocals)
+Atomic Steif (Drums) 
+
+### "Protected From Reality" 1987, Speed Metal
+
+1. Horrible Solution (3:39)
+2. Manila Terror (3:49)
+3. Natures Death (4:39)
+4. Wood of Necrophiliac (5:18)
+5. Vengeance (4:07)
+6. Intruder (4:50)
+7. The Galley (5:34)
+8. War of Independence (3:31)
+9. Eisbein (mit sauerkraut) (2:51)
+ 
+
+Reiner Kelch (Guitar)
+Dieter Kelch (Bass)
+Frank Fricke (Guitar)
+Thorsten Bergmann (Vocals)
+Atomic Steif (Drums)
+
+
+Produced by Ralph Hubert 
+
+### "Worlds Neuroses" 1988, Speed Metal
+
+1. Last Birthday (3:50)
+2. Die Young (3:57)
+3. Schizophrenia (4:10)
+4. On the 17th Floor (3:39)
+5. Down (4:30)
+6. Worlds Neuroses (2:29)
+7. Bastard (at the Busstop) (2:43)
+8. The Testament of Mr. George (5:02)
+9. Sacred Chao (3:58)
+10. Tuesday (6:51)
+
+ 
+
+Reiner Kelch (Guitar)
+Dieter Kelch (Bass)
+Frank (Fred) Fricke (Guitar)
+Thorsten Bergmann (Vocals)
+Atomic Steif (Drums)
+
+
+Produced by: Ralph Hubert
+Engineer and co-producer: Jorg Stegert
+Lyrics and 2nd voice: Lemmie  
+
+### "Killing In Action" 1991, Thrash
+
+1. Killing in Action (4:00)
+2. Hang 'em High (3:24)
+3. Dire Weak Up (5:00)
+4. Hearteater (3:12)
+5. Polymorphic (3:10)
+6. World Weariness (2:00)
+7. Die For (For What We Lie For) (4:05)
+8. Stand Up (3:45)
+9. Tribut of Gutter (3:50)
+10. Daily Life (4:44) 
+
+ 
+
+Reiner Kelch (Guitar)
+Dieter Kelch (Bass)
+Gerald Thelen (Vocals)
+Frank Ullrich (Drums)
+
+
+Produced by: Reiner Kelch, Dieter Kelch
+Engineer: Reinhold Wendel
+Synthesizer Programming: Wolf Arndt
+Choir voice on "Die For": Monika Rose
+Chaos Choir: Wolle, Frank, Gerald, Dieter 
+
+### "Living Death (2 CD Compliation)" 1994, Speed Metal
+
+DISC 1
+
+
+1. Nuclear Greetings (4:38)
+2. Bloody Dance (3:29)
+3. The Way (Your Soul Must Go) (4:34)
+4. Child of Illusion (3:17)
+5. Horrible Solution (3:39)
+6. Manila Terror (3:49)
+7. Natures Death (4:39)
+8. Wood of Necrophiliac (5:18)
+9. Vengeance (4:07)
+10. Intruder (4:50)
+11. The Galley (5:34)
+12. War of Independence (3:31)
+13. Eisbein (2:51)
+
+
+ DISC 2
+
+
+14. Last Birthday (3:51)
+15. Die Young (3:57)
+16. Schizophrenia (4:10)
+17. On the 17th Floor (3:39)
+18. Down (4:30)
+19. Worlds Neuroses (2:29)
+20. Bastard (at the Busstop) (2:44)
+21. The Testament of Mr. George (5:02)
+22. Sacred Chao (3:58)
+23. Tuesday (6:53)
+24. Killing Machine (live) (2:55)
+25. Grippin' a Heart (live) (4:48)
+26. Road of Destiny (live) (4:22)
+27. Screaming from a Chamber (live) (6:36)
+
+ 
+
+* tracks 1-4: Back to the Weapons/ 5-13: Protected From Reality/ 14-23: Worlds Neuroses/ 24-27: Live - EP
+
+### "Vengeance Of Hell (remastered)" 2001, Speed Metal
+
+
+
+### "Metal Revolution (remastered)" 2002, Speed Metal
+
+KILLING MACHINE 
+GRIPPIN' A HEART 
+RULERS MUST COME 
+SCREAMING FROM A SHAMBLES 
+INTRO 
+SHADOW OF A DREAM 
+PANIC & HYSTERIA 
+ROAD OF DESTINY 
+DEEP IN HELL 
+YOU AND ME - live 1984 ( Bonus Track ) 
+LIVING DEATH - live 1984 ( Bonus Track ) 
+BLOODY DANCE - live 1984 ( Bonus Track ) 
+MY VICTIM - live 1984 ( Bonus Track ) 
+NIGHTLINE - live 1984 ( Bonus Track )
+
+Reiner Kelch (Guitar) 
+Dieter Kelch (Bass) 
+Frank Fricke (Guitar) 
+Thorsten Bergmann (Vocals) 
+Andreas Oberhoff (Drums)
+
 
 ## Отношения с другими группами
 

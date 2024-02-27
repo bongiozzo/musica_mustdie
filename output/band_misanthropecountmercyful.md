@@ -1,8 +1,17 @@
 # Misanthrope Count Mercyful
 
-Дискография
-"Life Is Gone" 2005, Techno Death
-"Last Living Man" 2008, Thrash
+
+
+## Дискография
+
+### "Life Is Gone" 2005, Techno Death
+
+
+
+### "Last Living Man" 2008, Thrash
+
+
+
 
 ## Отношения с другими группами
 

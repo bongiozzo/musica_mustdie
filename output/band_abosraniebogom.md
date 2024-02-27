@@ -1,10 +1,104 @@
 # Abosranie Bogom
 
-Дискография
-"Isus Pokritiy Ponosom (Demo)" 1999, Grindcore
-"Coprotherapy" 2001, Grindcore
-"Faecalized (EP)" 2002, Grindcore
-"Anal Eruption (split EP with Decay)" 2002, Grindcore
+Noisy Shitgrind (with Corpsebutcher from INTESTINAL DISGORGE)
+
+## Дискография
+
+### "Isus Pokritiy Ponosom (Demo)" 1999, Grindcore
+
+01. Pauk's Ugly Legs
+02. Shit On Ugly Legs 
+03. Pauk is a Faggot 
+04. Defecated By God 
+05. Jesus Covered With Diarrhoea 
+06. Shit In A Sack 
+07. Gum Stuck Up The Ass 
+08. Anal Lips 
+09. Bump In Cunt 
+10. Malikov Is A Rachitis 
+11. Retarded Mongrel 
+12. Anal Smell 
+13. Goats Green Peas 
+14. Shit Of Polar Bear 
+15. Anus In Fog 
+16. Thick Fresh Diarrhoea 
+17. Unwiped Ass-Hole 
+18. Got Dirty With Shit 
+19. Saulty Cunt 
+20. Faggot In A Cage 
+21. Clit Squezed By A Door 
+22. Bloody Turd 
+23. Face Covered With Hippopotamuses Sperm 
+24. Spermed Eyes 
+25. Blister on The Ass of an Old Lady 
+26. Shit on Rails 
+27. Dirty Cunt of Cow 
+28. Santa Claus Crapped in The Chimney 
+29. Coprophiliac (Shit Fucker) 
+30. Someone Crapped 
+31. Cunt In A Bear's Lair 
+32. Tampax Commercials 
+33. Wounded Turd 
+34. March of The Dead Clowns 
+35. Hacked Partizan in Sewage
+
+(c)&(p) 1999 Selfreleased
+
+### "Coprotherapy" 2001, Grindcore
+
+01. Forced To Swallow Feces 
+02. The Art Of Cum-Farting 
+03. Turd Radar 
+04. Bitch With A Bleeding Rectum 
+05. Taking A Turd From A Baby (Give Me Back My Turd)
+06. Head Trapped In A Pigs Rectum 
+07. Defecate Your Own Vomit 
+08. Scatological Sex School Education 
+09. Satisfaction From Sipping A Glass Of Steaming Stool 
+10. No, That's Not Chocolate, My Dear 
+11. The Fear of Flushing 
+12. Shit Xmas Mince Pies Metal Poser Obliteration 
+13. Shit-Cauterized Infected Wounds 
+14. Excrementhrone 
+15. Anal Miscarriage 
+16. Pregnant With Turds 
+17. Shit-Feast Surprise Party 
+18. Turd Rugby Insanity 
+19. Clinical Death Of An Excrement 
+20. Archaeological Excavations Of Prehistoric Faeces 
+21. Copro-Therapy Treatment 
+22. $10,000,000 Granny Shit Eating Competition 
+23. Castration of an Uncircumsized Excrement 
+24. Anal Dentist 
+25. Turd Impregnation 
+26. Genetic Engeneering of Faecal DNA 
+27. The Anal Bible 
+28. Eternal Constipation 
+29. Lips - The Passage To Pleasure (Gut Cover)
+
+(c)&(p) 2001 Selfreleased
+
+### "Faecalized (EP)" 2002, Grindcore
+
+01. Forced Rotted Faeces Gay Torture 
+02. Stench of Copropsy 
+03. Turdburger 
+04. Coprophobic Cunt 
+05. Fart Collection
+
+(c)&(p) 2002 Selfreleased
+
+### "Anal Eruption (split EP with Decay)" 2002, Grindcore
+
+Abosranie Bogom: 
+1. Shit Xmas Mince Pies Metal Poser Obliteration 
+2. Pregnant With Turds 
+3. Turd Rugby Insanity
+
+Decay: 
+4. Pulsating Regurgitations 
+5. Feeding On The Vulgar Discharge
+
 
 ## Отношения с другими группами
 

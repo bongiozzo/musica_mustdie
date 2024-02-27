@@ -1,9 +1,36 @@
 # Horna
 
-Дискография
-"Kohti Yhdeksan Nousua" 1998, Black Metal
-"Haudankylmyyden Mailla" 1999, Black Metal
-"Envaatnags Eflos Solf Esgantaavne" 2004, Black Metal
+
+
+## Дискография
+
+### "Kohti Yhdeksan Nousua" 1998, Black Metal
+
+1. Orkkivuorilla
+2. Imperial Devastation
+3. Sword Of Darkness
+4. White Aura Buried In Ashes
+5. Sormus Ja Silma
+6. Outro
+
+### "Haudankylmyyden Mailla" 1999, Black Metal
+
+1. Prologi
+2. Yhdeksan Yo
+3. ...Jeesuksen Veresta
+4. Ylle Kuihtuneen Ajan Ajatusten
+5. Kun Jumalan Sydan On Murskattu
+6. (Kaiken) Kristityn Kuolema
+7. Viimeinen Sielu Jumalan Valosta
+8. Haudankylmyyden Maille
+9. Hymni Tuomiopaivana
+10. Peikkomaille
+11. Epilogi 
+
+### "Envaatnags Eflos Solf Esgantaavne" 2004, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

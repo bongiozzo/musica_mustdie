@@ -1,8 +1,17 @@
 # Division Alpha
 
-Дискография
-"Fazium One" 2000, Industrial
-"The Dekta Release" 2001, Industrial
+a-la RAMMSTEIN
+
+## Дискография
+
+### "Fazium One" 2000, Industrial
+
+
+
+### "The Dekta Release" 2001, Industrial
+
+
+
 
 ## Отношения с другими группами
 

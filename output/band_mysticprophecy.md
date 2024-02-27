@@ -1,15 +1,141 @@
 # Mystic Prophecy
 
-Дискография
-"Vengeance" 2001, Power Metal
-"Regressus" 2003, Power Metal
-"Never Ending" 2004, Power Metal
-"Savage Souls" 2006, Power Metal
-"Satanic Curses" 2007, Power Metal
-"Fireangel" 2009, Power Metal
-"Ravenlord" 2011, Power Metal
-"Killhammer" 2013, Power Metal
-"War Brigade" 2016, Power Metal
+
+
+## Дискография
+
+### "Vengeance" 2001, Power Metal
+
+1. 1545 - The Beginning 01:02 
+2. Sky's Burning 06:45
+3. Damnation and Darkness 04:30
+4. Welcome in the Damned Circle 05:29
+5. Dark Side of the Moon 05:13
+6. River of Hate 04:45 
+7. In the Mirror 05:09 
+8. In the Distance 05:02 
+9. When Shadows Fall 04:49
+10. Fallen Angel 08:34 
+
+### "Regressus" 2003, Power Metal
+
+1. Calling From Hell 04:31
+2. Eternal Flame 04:44
+3. Lords Of Pain 04:30
+4. Sign Of The Cross 04:01
+5. Night Of The Storm 04:24
+6. The Traveller [Instrumental] 00:50  
+7. In Your Sins 04:56 
+8. Forgotten Soul 03:36  
+9. When Demons Return 04:44  
+10. Regressus / Lost In Time 05:24  
+11. Mystic Prophecy 04:27 
+12. The Land Of The Dead 04:43 
+
+### "Never Ending" 2004, Power Metal
+
+
+
+### "Savage Souls" 2006, Power Metal
+
+1. Shadows Beyond My Soul; 
+2. Master Of Sins; 
+3. Evil Empires; 
+4. Savage Souls; 
+5. In The Darkness; 
+6. Deception Of Hate; 
+7. Sins And Sorrows; 
+8. Best Days Of My Life; 
+9. Nightmares Of Demons; 
+10. Victim Of Fate; 
+11. Into The Fire
+
+All songs written by MYSTIC PROPHECY
+Produced by R.D. Liapakis
+Engineered by C. Schmid
+Mixed by Fredrik Nordstrom
+Recorded and mixed at the Prophecy and Music Factory Studios
+
+Roberto Dimitri Liapakis - Vocals
+Martin Grimm - Lead Guitars
+Markus Pohl - Guitars
+Martin Albrecht - Bass
+Mathias Straub - Drums
+
+### "Satanic Curses" 2007, Power Metal
+
+1 Back From The Dark (3:47)  
+2 Sacrifice Me (3:59)  
+3 Dark Forces (3:44)  
+4 Satanic Curses (3:40)  
+5 Evil Of Destruction (4:29)  
+6 Demon's Blood (4:45)  
+7 Damnation (4:02)  
+8 Rock The Night (4:14)  
+9 We Will Survive (4:38)  
+10 Grave Of Thousand Lies (3:47)  
+11 Paranoid (2:44)  
+12 We Fly (Bonus Track) 
+
+
+### "Fireangel" 2009, Power Metal
+
+1. Across the Gates of Hell 04:08  
+2. Demons Crown 04:30  
+3. We Kill!! You Die!! 03:39  
+4. Father Save Me 04:34  
+5. To the Devil I Pray 04:10  
+6. Fireangel 04:24  
+7. Fight Back the Light 04:37  
+8. Death Under Control 03:45  
+9. Revolution Evil 04:06  
+10. Gods of War 03:27  
+11. Forever Betrayed 04:43 
+
+### "Ravenlord" 2011, Power Metal
+
+01. Ravenlord 04:07 
+02. Die Now!! 03:35 
+03. Eyes Of The Devil 05:22 
+04. Damned Tonight 03:26 
+05. Hollow 04:33 
+06. Wings Of Destiny 04:26 
+07. Endless Fire 04:31 
+08. Cross Of Lies 03:27 
+09. Reckoning Day 03:43 
+10. Miracle Man (Ozzy Osbourne cover) 03:15
+11. Back With The Storm (bonus track) 03:23
+
+
+### "Killhammer" 2013, Power Metal
+
+1. Killhammer  04:16 
+2. Armies of Hell  04:24
+3. To Hell and Back  04:24
+4. Kill the Beast  03:24
+5. Hate Black  04:54
+6. Children of the Damned  04:41
+7. 300 in Blood  04:22
+8. Angels of Fire  04:07 
+9. Warriors of the Northern Seas  04:21
+10. Set the World on Fire  03:47
+11. Crazy Train (Ozzy Osbourne Cover)  05:19 
+
+### "War Brigade" 2016, Power Metal
+
+01. Follow The Blind
+02. Metal Brigade
+03. Burning Out
+04. The Crucifix
+05. Pray For Hell
+06. 10.000 Miles Away
+07. Good Day To Die
+08. The Devil Is Back
+09. War Panzer
+10. Fight For One Nation
+11. War Of Lies
+12. Sex Bomb (Tom Jones cover - bonus)
+
 
 ## Отношения с другими группами
 

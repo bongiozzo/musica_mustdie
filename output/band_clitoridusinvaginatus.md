@@ -1,7 +1,22 @@
 # Clitoridus Invaginatus
 
-Дискография
-"Putrid Pussy Warehouse" 2008, Death Metal
+
+
+## Дискография
+
+### "Putrid Pussy Warehouse" 2008, Death Metal
+
+1. Clitoridus Invaginatus	 
+2. Real Gushing Orgasms	 
+3. Rectal Fog	 
+4. Menstrual Problems	 
+5. The Smell of Burned Diarrhea	 
+6. Scat Force	 
+7. Cock Aviaria	 
+8. I Will Rape You on a Pallet	 
+9. Vaginal Supremacy	 
+10. Melodic Delirium
+
 
 ## Отношения с другими группами
 

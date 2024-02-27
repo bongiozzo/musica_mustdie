@@ -1,7 +1,25 @@
 # Opposite Sides
 
-Дискография
-"Soul Mechanics" 2006, Black Metal
+
+
+## Дискография
+
+### "Soul Mechanics" 2006, Black Metal
+
+1. Soul Mechanics: Enter 00:40  
+2. The Human Thirst 04:37  
+3. A Grinded Position of Pray 05:00  
+4. Chaotic Order 06:05  
+5. The Mourning Portal 05:46  
+6. Until the End 04:17  
+7. No Faith 04:03  
+8. Infinity 04:28  
+9. Soul Mechanics: Construction 00:48  
+10. Breed Machineries 04:13  
+11. Revenge 04:28  
+12. Loveless 01:44  
+13. Soul Mechanics: Coda 05:43 
+
 
 ## Отношения с другими группами
 

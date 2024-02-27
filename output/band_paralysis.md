@@ -1,7 +1,38 @@
 # Paralysis
 
-Дискография
-"Patrons Of Te Dark" 1994, Grindcore
+
+
+## Дискография
+
+### "Patrons Of Te Dark" 1994, Grindcore
+
+1. The Curse Of Immortality
+2. Torso
+3. Schorched By Demons
+4. Paraplegia
+5. Patrons Of The Dark
+6. Shroud Of Iniquity
+7. Decomposed
+8. Goredawn
+9. Crematorium
+10. Mausoleum
+11. Gates Reflected
+12. The Immortlalist
+13. Descend Into The Pale Hour
+
+ Ben Falgoust - Vocals
+ Anthony White - Guitars
+ Edgardo DaCosta-Comez - Guitars
+ Jan Foley - Bass
+ Alex Johnson - Drums
+
+All Music Written By PARALYSIS
+Produced By PARALYSIS
+Engineered By Chuck Macac
+Mixed By Lenny Richer At Studio 53, Palatine, IL
+
+(p)&(c) 1994 GRINDCORE Records
+
 
 ## Отношения с другими группами
 

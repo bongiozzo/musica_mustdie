@@ -1,17 +1,195 @@
 # Front Line Assembly
 
-Дискография
-"Convergence (Compilation)" 1988, Industrial
-"Gashed Senses & Crossfire" 1989, Industrial
-"Caustic Grip" 1990, Industrial
-"Tactical Neural Implant" 1992, Industrial
-"Millennium" 1994, Industrial
-"Hard Wired" 1995, Industrial
-"Civilization" 2004, Industrial
-"Artificial Soldier" 2006, Industrial
-"Fallout" 2007, Industrial
-"Improvised Electronic Device" 2010, Industrial
-"Echogenetic" 2013, Industrial
+
+
+## Дискография
+
+### "Convergence (Compilation)" 1988, Industrial
+
+1. Lurid Sensation
+2. Obsession
+3. Controversy
+4. Right Hand Of Heaven
+5. Conflict
+6. Solitude Of Confinement
+7. Body Count
+8. Die-Sect
+9. Headcase Fargone
+10. Collision
+11. Concussion
+12. On The Cross
+13. Dark Dreams
+14. Thewrack Part 1
+
+Tracks 1, 3-5, 11-13 from "Corrosion" LP
+Tracks 2, 7, 8 and 14 from "Disorder" Mini-LP
+Tracks 6, 9 and 10 previously unreleased
+
+### "Gashed Senses & Crossfire" 1989, Industrial
+
+01. No Limit
+02. Antisocial
+03. Hypocrisy
+04. Shutdown
+05. Prayer
+06. Digital Tension Dementia
+07. Big Money
+08. Bloodsport
+09. Foolsgame
+10. Sedation
+
+### "Caustic Grip" 1990, Industrial
+
+01. Resist
+02. Victim
+03. Overkill
+04. Forge
+05. Provision
+06. Force Fed
+07. Iceolate
+08. Threshold
+09. Mental Distortion
+10. The Chair
+
+### "Tactical Neural Implant" 1992, Industrial
+
+1. Final Impact
+2. The Blade
+3. Mindphaser
+4. Remorse
+5. Bio-Mechanic
+6. Outcast
+7. Gun
+8. Lifeline
+
+ FRONT LINE ASSEMBLY: Bill Leeb, Rhys Fulber
+
+All Titles Written By Bill Leeb & Rhys Fulber
+Production & Programming: F.L.A.
+Engineered And Additional Production: Greg Reely
+Assistant Engineer: Mike Landolt
+Recorded At Creation Studios, Vancouver
+
+(p)&(c) 1992 THIRD MIND Records
+
+### "Millennium" 1994, Industrial
+
+01. Vigilante
+02. Millennium
+03. Liquid Separation
+04. Search And Destroy
+05. Surface Patterns
+06. Victim Of A Criminal
+07. Division Of Mind
+08. This Faith
+09. Plasma Springs
+10. Sex Offender
+
+ Electronic Executioners - Bill Leeb & Rhys Fulber
+ Guitars On 1, 7, 10 By Devin Townsend
+ Guitars On 4, 9 By Don Harris
+ Rap On 6 By Che The Minister Of Defence From P.O.W.E.R.
+
+All Titles Written & Produced By Bill Leeb & Rhys Fulber Except 6 Written By Bill Leeb, Rhys Fulber & David Hansen
+Engineered & Mixed By Greg Reely
+Recorded & Mixed At The Armoury Studio, Vancouver BC, Jan.-Feb. 1994
+Programmed At Cryogenics Studio, Vancouver BC, Feb.-Nov. 1993
+
+(p)&(c) 1994 ROADRUNNER Records
+
+### "Hard Wired" 1995, Industrial
+
+1. Neologic Spasm
+2. Paralyzed
+3. Re-Birth
+4. Circuitry
+5. Mortal (Instrumental)
+6. Modus Operandi
+7. Transparent
+[8]. Barcode
+[9]. Condemned
+[10].Infra Red Combat
+[11].Destructive Transformation
+[12]. Circuitry (Alien Mix)
+[13].Hydrogen
+
+All Songs By Bill Leeb & Rhys Fulber.
+Electronic Execution By Bill Leeb & Rhys Fulber.
+Engineered & Mixed By Greg Reely.
+Tracks Programmed At Cryogenic.
+Recorded & Mixed At The Warehouse.
+Guitars By Devin Townsend.
+
+(P)&(C) 1995 OFF BEAT Records
+
+### "Civilization" 2004, Industrial
+
+01. Psychosomatic
+02. Maniacal
+03. Transmitter (Come Together)
+04. Vanished
+05. Strategic
+06. Civilization
+07. Fragmented
+08. Parasite
+09. Dissident
+10. Schicksal
+
+### "Artificial Soldier" 2006, Industrial
+
+01. Unleashed
+02. Low Life
+03. Beneath The Rubble
+04. Dissension
+05. Buried Alive
+06. Dopamine
+07. Social Enemy
+08. Future Fail
+09. The Storm
+10. Humanity (World War Three)
+
+### "Fallout" 2007, Industrial
+
+01. Unleashed (Mindless Mix by Sebastian R. Komor)
+02. Buried Alive (DJ Acucrack Mix by Jason Novak)
+03. Beneath The Rubble (Combichrist Mix)
+04. Electric Dreams
+05. Armageddon
+06. Social Enemy (Anti-Social Mix by Jeremy Inkel)
+07. Lowlife (Remix by Portion Control)
+08. Humanity (Kearley Edit Remix by Dan Kearley)
+09. Reprobate (Lowlife Remixed by Greg Reely)
+10. Domination (Unleashed)
+11. The Storm (Covenant Mix)
+12. Unconscious
+
+### "Improvised Electronic Device" 2010, Industrial
+
+01. I. E. D.
+02. Angriff
+03. Hostage
+04. Release
+05. Shifting Through The Lens (Edit)
+06. Laws Of Deception
+07. Pressure Wave
+08. Afterlife
+09. Stupidity (Featuring Al Jourgensen)
+10. Downfall
+
+### "Echogenetic" 2013, Industrial
+
+01. Resonance
+02. Leveled
+03. Killing Grounds
+04. Blood
+05. Deadened
+06. Ghosts
+07. Echogenetic
+08. Exhale
+09. Exo
+10. Prototype
+11. Heartquake
+
 
 ## Отношения с другими группами
 

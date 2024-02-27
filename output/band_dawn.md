@@ -1,9 +1,51 @@
 # Dawn
 
-Дискография
-"Nar Solen Gar Niber For Evogher" 1994, Black Metal
-"Sorgh Pa Svarte Vingar Flogh" 1996, Black Metal
-"Slaughtersun (Crown of the Triarchy)" 1998, Black Metal
+
+
+## Дискография
+
+### "Nar Solen Gar Niber For Evogher" 1994, Black Metal
+
+01. Eyesland 
+02. The Etheral Forest 
+03. Diabolical Beauty 
+04. In the Depths of My Soul 
+05. Ginom Rinande Lughier 
+06. As the Tears Fall 
+07. Svarter Skiner Solen 
+08. Everflaming
+
+### "Sorgh Pa Svarte Vingar Flogh" 1996, Black Metal
+
+1. Vya Kal
+2. Sorrow Flew On Black Wings
+3. Soil Of Dead Earth
+4. Night Of The Living Dead
+
+Recorded and Mixed at Abyss Studio
+Engineered by Peter Tagtgren
+Mixed by DAWN and Peter Tagtgren
+Executive producer Paul Thind
+Band residence: Sweden
+
+Henke Forss - Vampire
+Herr A.Fullmestad - Guitars
+Fredrik Soderberg - Guitars
+Lars Tangmark - Bass
+Karsten Larsson - Drums
+
+(P)(C) 1996 NECROPOLIS Records // NR 6664
+
+### "Slaughtersun (Crown of the Triarchy)" 1998, Black Metal
+
+01. The Knell and the World 
+02. Falcula 
+03. To Achieve the Ancestral Powers 
+04. Ride the wings of Pestilence 
+05. The Aphelion Deserts 
+06. Stalker's Blessing 
+07. Malediction Murder
+
 
 ## Отношения с другими группами
 

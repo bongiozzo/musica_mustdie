@@ -1,7 +1,31 @@
 # Veles
 
-Дискография
-" "Night On The Bare Mountain" 1996, Black Metal
+
+
+## Дискография
+
+### " "Night On The Bare Mountain" 1996, Black Metal
+
+1. Night On The Bare Mountain
+2. The Winter Mourning
+3. A Dart Dream
+4. The Final Battle
+5. Majesty Of War
+6. My Bloodthirst
+7. Born Of Darkness
+8. My Pagan Fatherland
+9. Forest Of The Horrifying
+
+Recorded and mixed in August
+
+Blasphemous - Vocals
+Rob - Drums
+Kris - Guitar
+Tom - Guitar
+Rob Darten - Keys
+
+(p)(c) 1996 NC Records
+
 
 ## Отношения с другими группами
 

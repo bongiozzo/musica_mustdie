@@ -1,9 +1,55 @@
 # Crown Of Autumn
 
-Дискография
-"The Treasures Arcane" 1997, Black Metal
-"The Treasures Arcane - Transfigurated Edition" 2011, Black Metal
-"Splendours From The Dark" 2011, Black Metal
+melodic black-doom-death
+
+## Дискография
+
+### "The Treasures Arcane" 1997, Black Metal
+
+1. Equinox	 
+2. Towers of Doleful Triumph
+3. A Lyre in the Old Vespar's Realm
+4. Nocturnal Gold Part I: In Ageless Slumbur	 
+5. Nocturnal Gold Part II: The Name of Inquietude
+6. The Nettle Path of Grief	
+7. Thou Mayst in Me Behold
+8. The Treasures Arcane
+9. ...And the Cold Came O'er the Feud
+10. 'Neath Celenic Majesty
+11. Forlorn Elven Realms	
+
+### "The Treasures Arcane - Transfigurated Edition" 2011, Black Metal
+
+1. Equinox		 
+2. Towers Of Doleful Triumph		 
+3. A Lyre In The Vesper's Calm		 
+4. Nocturnal Gold Pt I: In Ageless Slumber		 
+5. Nocturnal Gold Pt II: The Name Of Inquietude		 
+6. The Nettle Path Of Grief		 
+7. Thou Mayst In Mee Behold		 
+8. The Treasures Arcane		 
+9. ...And The Cold Came O'er The Feud		 
+10. 'Neath Selenic Majesty		 
+11. Forlorn Elven Realms		 
+12. Awetumn		 
+13. Symphonic Storm		 
+14. Crowned In Twilight		 
+15. Shadow Of The Comet
+
+### "Splendours From The Dark" 2011, Black Metal
+
+1. Templeisen 
+2. Aegis	 
+3. Noble Wolf	 
+4. Forest of Thoughts	 
+5. Ultima Thule	 
+6. At the Crystal Stairs of Winter	 
+7. To Wield the Tempest's Hilt	 
+8. In the Garden of the Wounded King	 
+9. Triumphant	 
+10. Ye Cloude Of Unknowing	 
+11. Spectres From The Sea
+
 
 ## Отношения с другими группами
 

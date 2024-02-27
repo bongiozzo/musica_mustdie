@@ -1,8 +1,38 @@
 # Dagoth
 
-Дискография
-"New Empire" 2006, Power Metal
-"Prophecy" 2008, Power Metal
+
+
+## Дискография
+
+### "New Empire" 2006, Power Metal
+
+1. New Empire
+2. God Of Thunder
+3. King Of Fire
+4. Breathing A Sight
+5. Eternal Travel
+6. In Silence	
+7. Angel Of Darkness
+8. Believe	
+9. Ancient Prophecy
+10. Life
+
+### "Prophecy" 2008, Power Metal
+
+1. Before the Storm		 
+2. The Book		 
+3. Eternal Doom		 
+4. The Seal		 
+5. Dark King		 
+6. Inside		 
+7. Khaled Khelkal		 
+8. Ancient Prophecy		 
+9. Silent Lord		 
+10. Missing You		 
+11. New Empire		 
+12. Predatory States		 
+13. Afraid to Die
+
 
 ## Отношения с другими группами
 

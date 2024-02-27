@@ -1,7 +1,20 @@
 # Stonewall
 
-Дискография
-"Victims of Evil" 2011, Heavy Metal
+
+
+## Дискография
+
+### "Victims of Evil" 2011, Heavy Metal
+
+1. Victims of Evil
+2. Dark Revelations
+3. War of the Worlds
+4. No more Fear
+5. Feel my Blade
+6. Fight to Survive
+7. We can Change the World
+8. F.T.W. (Sword cover)
+
 
 ## Отношения с другими группами
 

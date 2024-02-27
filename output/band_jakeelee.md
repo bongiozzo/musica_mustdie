@@ -1,8 +1,27 @@
 # Jake E. Lee
 
-Дискография
-"Fine Pink Mist" 2000, Instrumental
-"Retraced" 2005, Instrumental
+(guitar virtuoso ex-Ozzy Osbourne and Badlands)
+
+## Дискография
+
+### "Fine Pink Mist" 2000, Instrumental
+
+
+
+### "Retraced" 2005, Instrumental
+
+01. Whiskey Train (Procol Harem)
+02. Evil (Cactus)
+03. Way Back To The Bone (Trapeze)
+04. I'll Be Creepin' (Free)
+05. Guess I'll Go Away (Johnny Winter)
+06. Love Is Worth The Blues (Leslie West)
+07. I Come Tumblin' (Grand Funk)
+08. Woman (James Gang)
+09. A Hard Way To Go (Savoy Brown)
+10. I Can't Stand It (Robin Trower)
+11. Rock Candy (Montrose)
+
 
 ## Отношения с другими группами
 

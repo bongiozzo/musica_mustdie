@@ -1,9 +1,49 @@
 # Mortus
 
-Дискография
-"The Beat Of Greed" 1997, Death Doom
-"Explore New Horizons" 2002, Gothic
-"Leaving The Swamps" 2003, Metal
+Gothic metal
+
+## Дискография
+
+### "The Beat Of Greed" 1997, Death Doom
+
+  1. contact
+  2. hear the call
+  3. trust
+  4. command blacksex
+  5. the unknown
+  6. kiss from the unknown        
+  7. beat of greed
+  8. undead
+  9. ehґ hombre
+ 10. mortacrit
+
+### "Explore New Horizons" 2002, Gothic
+
+1. the last disease
+2. paradise
+3. solace
+4. deus
+5. valhalla                                
+6. fallen love
+7. venus
+8. take it away
+9. traveler 
+
+### "Leaving The Swamps" 2003, Metal
+
+1.The good son
+2.Bleeding works of art
+3.Just what we are
+4.Phyllis & Stanley
+5.If eternity was enough
+6.The cube
+7.Newborne sun
+8.Compact
+9.Why?
+10.Avoid drowning
+11.Workout
+12.Evolution
+
 
 ## Отношения с другими группами
 

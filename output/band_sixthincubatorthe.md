@@ -1,7 +1,13 @@
 # Sixth Incubator, The
 
-Дискография
-"Inphonoir" 2003, Death Metal
+
+
+## Дискография
+
+### "Inphonoir" 2003, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

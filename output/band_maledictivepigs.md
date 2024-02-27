@@ -1,7 +1,13 @@
 # Maledictive Pigs
 
-Дискография
-"Bloodshed" 2002, Grindcore
+grindcore
+
+## Дискография
+
+### "Bloodshed" 2002, Grindcore
+
+
+
 
 ## Отношения с другими группами
 

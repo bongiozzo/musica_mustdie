@@ -1,7 +1,21 @@
 # Mass Madness
 
-Дискография
-"Mass Madness" 2011, Melodic Death Metal
+
+
+## Дискография
+
+### "Mass Madness" 2011, Melodic Death Metal
+
+1. Chaos Is the Lead 03:53  
+2. Taste the Freedom 02:10  
+3. Kingdom of Lie 03:19  
+4. Suffocate 04:06  
+5. Beyond Repair 03:03  
+6. Demons Celebrate 02:18  
+7. Losing Kicks 02:50  
+8. Alcohol 03:19  
+9. G.T.M.R. 03:14 
+
 
 ## Отношения с другими группами
 

@@ -1,9 +1,57 @@
 # Dyslesia
 
-Дискография
-"My Own Revolution" 1999, Power Metal
-"Who Dares Wins" 2001, Power Metal
-"Years Of Secret" 2002, Power Metal
+
+
+## Дискография
+
+### "My Own Revolution" 1999, Power Metal
+
+  1. Intro      
+  2. My last wish     
+  3. Never more     
+  4. My own revolution     
+  5. Lights and dreams     
+  6. Like a prophet     
+  7. Fallen angels     
+  8. Bad memories     
+  9. This is what i am     
+  10. Lost illusions     
+
+
+### "Who Dares Wins" 2001, Power Metal
+
+  1. Beware of life demons     
+  2. Rest in space      
+  3. Unknown fighter    
+  4. Who dares wins    
+  5. Fighting and gone    
+  6. Living in winter    
+  7. Bring the sun light back    
+  8. Just about a dream    
+  9. The one you are    
+  10. Masquerade of life  
+
+
+### "Years Of Secret" 2002, Power Metal
+
+01 - United
+02 - Dawn Of Insanity
+03 - Spirit Of War
+04 - On The Edges
+05 - Trades
+06 - Flew With An Angel
+07 - These Days
+08 - Years Of Secret
+09 - From A Distant Shore
+10 - Fight For Another Day
+11 - Open Your Mind
+
+Vocals : Thierry Lebourg
+Guitar : Fabrice Dutour
+Guitar : Francois Loprete
+Bass : Jo Loprete
+Drums : Francois Brisk
+
 
 ## Отношения с другими группами
 

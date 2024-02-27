@@ -1,12 +1,115 @@
 # Elend
 
-Дискография
-"Lecons De Tenebres" 1994, Ambient
-"Les Tenebres Du Dehors" 1996, Ambient
-"Weeping Nights" 1997, Ambient
-"The Umbersun" 1998, Ambient
-"Winds Devouring Men" 2003, Ambient
-"Sunwar the Dead" 2004, Ambient
+Gothic Dark Symphonic Music
+
+## Дискография
+
+### "Lecons De Tenebres" 1994, Ambient
+
+1. Lecons De Tenebres 3.31
+2. Chanting 6.22
+3. Into Bottomless Perdition 7.07
+4. Deploration 5.41
+5. Infernal  Beauty 5.13
+6. Lucifer 10.05
+7. Eclipse 8.10
+8. The Reign Of Chaos And Old Night 5.00
+9. The Emperor 5.29
+
+ Renaud Tschirner - Vocals,Electric Violin, Orchestral Keyboards & Synths
+ Eve Gabriel Siskind - Soprano
+ Alexander Iskanddr - Screams And Vocals, Electric Violin,Orchestral Keyboards & Synths
+
+All Songs Writeen By ELEND.
+Recorded & Mixed By Didier Chesneau At Melody 
+Studio,Dreux.
+
+
+
+### "Les Tenebres Du Dehors" 1996, Ambient
+
+1. Nocturne
+2. Etherial Journeys
+3. The Luciferian Revolution
+4. Eden (The Angel In The Garden)
+5. The Silence Of Light
+6. Antienne
+7. Dancing Under The Closed Eyes Of Paradise
+8. Len Tenebres Du Dehors
+
+
+
+All music, structures, orchestration, arrangements, vocals, harmonic vocals  and  choirs composed  and
+written by Alexandre Iskandar Hasnaoui and Renaud Tschirner and performed by ELEND.
+Produced by Eiic Lecointe and Alexandre Iskandar Hasnaoui.
+Mixed by Philippe Sassard and Eric Lecointe
+Engineered by Philippe Sassard at R.M.S.  Studio
+
+Renaud Tschirner - Vocals, Electric Violin, Piano, Synths and Keyboard Orchestra
+Eve Gabrielle Siskind - Soprano
+Nathalie Barbary - Soprano
+Alexandre Iskandar Hasnaoui - Screams and Vocals, Violin, Viola, Synths and Keyboard Orchestral
+
+
+
+### "Weeping Nights" 1997, Ambient
+
+1. Weeping Night
+2. O Solitude
+3. The Embrace
+4. Nocturne
+5. Ethereal Journey
+6. The Luciferian Revolution
+7. Eden
+8. Dancing Under The Closed Eyes Of Paradise
+9. Les Tenebres Du Dehors
+
+
+
+
+### "The Umbersun" 1998, Ambient
+
+1. Du Trefonds Des Tenebres
+2. Melpomene
+3. Moon Of Amber
+4. Apocalypse
+5. Umbra
+6. The Umbersun
+7. In The Embrasure Of Heaven
+8. The Wake Of The Angel
+9. Au Trefonds Des Tenebres
+
+
+
+
+### "Winds Devouring Men" 2003, Ambient
+
+1. The poisonous eyes  
+2. Worn out with dreams  
+3. Charis  
+4. Under war-broken trees  
+5. Away from barren stars         
+6. Winds devouring men  
+7. Vision is all that matters  
+8. The newborn sailor  
+9. The plain masks of daylight  
+10. A staggering moon  
+
+
+### "Sunwar the Dead" 2004, Ambient
+
+1. Chaomphalos
+2. Ardour
+3. Sunwar The Dead
+4. Ares In Their Eyes
+5. The Hemlock Sea
+6. La terre n'aime pas le sang
+7. A Song Of Ashes
+8. Laceration
+9. Poliorketika
+10. Blood and Grey Skies Entwined
+11. Threnos
+
 
 ## Отношения с другими группами
 

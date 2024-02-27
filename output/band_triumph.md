@@ -1,8 +1,33 @@
 # Triumph
 
-Дискография
-"Dominium (The Torment to He)" 2002, Black Metal
-"Triumph" 2004, Black Metal
+
+
+## Дискография
+
+### "Dominium (The Torment to He)" 2002, Black Metal
+
+1. Dominum	 
+2. Under The Fire Veil's	 
+3. Landscape Pain (Ode Infernal)	 
+4. Pillars Of My Spirit	 
+5. Flesh And Blood	 
+6. Dead Shall Be Alone (Nevermore Golden)	 
+7. Highest Power Of Shadows	 
+8. In The Essence Of True
+
+### "Triumph" 2004, Black Metal
+
+1. March To The Eternal Domain	 
+2. Question Of Honour	 
+3. Moments Of Battles- Times Of Glory	 
+4. Return 
+5. Pillars Of My Spirits (Termination) 
+6. Hell Majesty	 
+7. Perverse Kingdom	 
+8. In The Ruins Of Clare	 
+9. Triumph...	 
+10. Walking to The Eternal Fire
+
 
 ## Отношения с другими группами
 

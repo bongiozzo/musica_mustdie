@@ -1,7 +1,31 @@
 # Revenant
 
-Дискография
-"Prophecies Of A Dying World" 1991, Thrash
+Original Thrash-Death
+
+## Дискография
+
+### "Prophecies Of A Dying World" 1991, Thrash
+
+1. Prophecy Of A Dying World
+2. Spawn
+3. Ancestral Shadows
+4. The Unearthy (A Quest)
+5. Asphyxiated Time
+6. Distant Eyes
+7. Valedictions
+
+ Dave Jengo - Guitar
+ Tim Scott - Bass
+ Will Corcoran - Drums
+ Henry Veggian - Lead Guitar & Vocals
+
+Produced & Engineered By Bill Klatt.
+Assistant Producers Chris Milnes &
+REVENANT.
+Recorded At Quantum Sound Jersey City,W.T.
+
+(p)&(c) 1991 NUCLEAR BLAST Records
+
 
 ## Отношения с другими группами
 

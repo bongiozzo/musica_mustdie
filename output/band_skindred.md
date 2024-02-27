@@ -1,11 +1,40 @@
 # Skindred
 
-Дискография
-"Babylon" 2002, Alternative
-"Roots Rock Riot" 2007, Alternative
-"Shark Bites And Dog Fights" 2009, Alternative
-"Union Black" 2011, Alternative
-"Kill The Power" 2014, Alternative
+
+
+## Дискография
+
+### "Babylon" 2002, Alternative
+
+
+
+### "Roots Rock Riot" 2007, Alternative
+
+
+
+### "Shark Bites And Dog Fights" 2009, Alternative
+
+
+
+### "Union Black" 2011, Alternative
+
+
+
+### "Kill The Power" 2014, Alternative
+
+01. Kill The Power (4:35)
+02. Ruling Force (3:52)
+03. Playing With The Devil (4:20)
+04. Worlds On Fire (3:31)
+05. Ninja (4:31)
+06. The Kids Are Right Now (4:31)
+07. We Live (4:05)
+08. Open Eyed (4:43)
+09. Dollars And Dimes (3:49)
+10. Saturday (4:00)
+11. Proceed With Caution (3:19)
+12. More Fire (3:23)
+
 
 ## Отношения с другими группами
 

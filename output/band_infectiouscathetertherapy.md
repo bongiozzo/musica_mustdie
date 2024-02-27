@@ -1,7 +1,26 @@
 # Infectious Catheter Therapy
 
-Дискография
-"Incredible Stories from Daily Humans Life" 2010, Grindcore
+
+
+## Дискография
+
+### "Incredible Stories from Daily Humans Life" 2010, Grindcore
+
+1. Intro
+2. Meat Painting	 
+3. Balls Song	 
+4. The Mystery of a Two Nurses	 
+5. LSDrill Suicide	 
+6. A Gird and a Thread	 
+7. Merciless Hammer	 
+8. Fisting with Matryoshka	 
+9. Sea's Bastardly	 
+10. Wanna Sleep! 
+11. Soldier's Gang-Bang	 
+12. Zombie TV	 
+13. Hungry Refrigerator	 
+14. Outro (8 Bit Disco)
+
 
 ## Отношения с другими группами
 

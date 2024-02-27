@@ -1,9 +1,28 @@
 # Power Trip
 
-Дискография
-"Armageddon Blues (EP)" 2009, Crossover
-"Power Trip (EP)" 2011, Crossover
-"Manifest Decimation" 2013, Crossover
+
+
+## Дискография
+
+### "Armageddon Blues (EP)" 2009, Crossover
+
+
+
+### "Power Trip (EP)" 2011, Crossover
+
+
+
+### "Manifest Decimation" 2013, Crossover
+
+1. Manifest Decimation (4:33)
+2. Heretic's Fork (4:02)
+3. Conditioned To Death (3:22)
+4. Murderer's Row (3:52)
+5. Crossbreaker (3:46)
+6. Drown (4:45)
+7. Power Trip (3:52)
+8. The Hammer Of Doubt (6:26)
+
 
 ## Отношения с другими группами
 

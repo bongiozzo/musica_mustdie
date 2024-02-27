@@ -1,7 +1,24 @@
 # Crownear
 
-Дискография
-"Full Moon Fever" 1992, Thrash
+
+
+## Дискография
+
+### "Full Moon Fever" 1992, Thrash
+
+1. Gay Forobundo (88)
+2. Muscle Brains (90)
+3. Crazy Girl (90)
+4. Lucky Winner (89)
+5. Die But Stay Alive (91)
+6. Full Moon Fever (91)
+7. Midnight Leader (89)
+8. My Friend "Borow" (89)
+9. ....Fuhrer...." (90)
+10.Just One Night Stand (90)
+
+(p)&(c) 1992 SNC Records
+
 
 ## Отношения с другими группами
 

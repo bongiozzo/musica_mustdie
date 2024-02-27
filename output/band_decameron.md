@@ -1,8 +1,62 @@
 # Decameron
 
-Дискография
-"My Shadow..." 1996, Death Doom
-"My Shadow..." 1996, Death Doom
+
+
+## Дискография
+
+### "My Shadow..." 1996, Death Doom
+
+1. Morker
+2. Carpe Nocem
+3. Our Time Has Come
+4. Satanized
+5. The Scar Of Damnation
+6. Sexual Immortality
+7. Skabma
+8. Prophecy Of Life To Come
+
+All songs written by DECAMERON
+Produced by Alex Losback
+Co-Produced by Fredrik Larnemo
+Engineered by Fredrik Larnemo and Alex Losback.
+Recorded and mixed at MusikMaffian Studio, Varberg
+
+Alex Losback - Bass, Vocals
+Jonny Lehto - Guitar
+Johannes Losback - Guitar, Vocals
+Tobbe Kellgcen - Drums
+
+(p)(c) 1996 NO FASHION Records
+
+### "My Shadow..." 1996, Death Doom
+
+1. Morker
+2. Carpe Nocem
+3. Our Time Has Come
+4. Satanized
+5. Le Roi Triste
+6. The Scar Of Damnation
+7. Sexual Immortality
+8. Skabma
+9. My Shadow
+[10].Prophecy Of Life To Come
+[11].Mistress Of Sacrifice
+
+[10]-[11] - На стороне A
+
+All songs written by DECAMERON
+Produced by Alex Losback
+Co-Produced by Fredrik Larnemo
+Engineered by Fredrik Larnemo and Alex Losback.
+Recorded and mixed at MusikMaffian Studio, Varberg
+
+Alex Losback - Bass, Vocals
+Jonny Lehto - Guitar
+Johannes Losback - Guitar, Vocals
+Tobbe Kellgcen - Drums
+
+(p)(c) 1996 NO FASHION Records
+
 
 ## Отношения с другими группами
 

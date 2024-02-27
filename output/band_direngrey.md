@@ -1,14 +1,41 @@
 # Dir En Grey
 
-Дискография
-"Gauze" 1999, Metal
-"Macabre" 2000, Metal
-"Kisou" 2002, Metal
-"Vulgar" 2003, Metal
-"Withering To Death" 2005, Metal
-"The Marrow Of A Bone" 2007, Metal
-"Uroboros" 2008, Metal
-"Dum Spiro Spero" 2011, Metal
+
+
+## Дискография
+
+### "Gauze" 1999, Metal
+
+
+
+### "Macabre" 2000, Metal
+
+
+
+### "Kisou" 2002, Metal
+
+
+
+### "Vulgar" 2003, Metal
+
+
+
+### "Withering To Death" 2005, Metal
+
+
+
+### "The Marrow Of A Bone" 2007, Metal
+
+
+
+### "Uroboros" 2008, Metal
+
+
+
+### "Dum Spiro Spero" 2011, Metal
+
+
+
 
 ## Отношения с другими группами
 

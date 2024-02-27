@@ -1,9 +1,48 @@
 # Chamber
 
-Дискография
-"Ghost Stories And Fairy Tales" 2003, Metal
-"Miles Away A Premonition Of Solitude" 2004, Rock
-"Solitude" 2005, Rock
+
+
+## Дискография
+
+### "Ghost Stories And Fairy Tales" 2003, Metal
+
+
+
+### "Miles Away A Premonition Of Solitude" 2004, Rock
+
+01. Miles Away
+02. Wasting My Day
+
+Singer/Songwriter section:
+03. To Others Than You
+04. Let'em Go
+05. Beautiful Betrayal
+06. Waterfall
+
+Enlightened Ghost Stories section:
+07. A Tale Of Real Love (Solitude Version)
+08. In My garden (Bang Ya Head Version)
+
+Song that never made it section:
+09. Three Years
+10. Un Verre De Trop
+11. Conversation Of Prayer
+
+### "Solitude" 2005, Rock
+
+01. The Morning After
+02. Miles Away (album version)
+03. Torn
+04. Desire And Ruin
+05. I Hate Falling In Love
+06. Violets For A Dead Girl
+07. Moonchild
+08. Sleep, Sweet Sleep
+09. Amorous
+10. Set Me Free
+11. Solitude
+12. wasting My Day (…very relaxed)
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,28 @@
 # Odyssey
 
-Дискография
-"Odyssey (EP)" 1999, Progressive
+Dan Swano progressive project
+
+## Дискография
+
+### "Odyssey (EP)" 1999, Progressive
+
+1. I Am Two 05:58 
+2. I Carry A Secret 04:59 
+3. Amon-Ra 07:36 
+
+
+
+Dan Swano: Lead and Backing Vocals, Drums, and Keyboards
+Kenth Philipsson: Rhythm Guitar, Keyboards
+Rick Gustafson: Rhythm Guitar
+
+Created at The Sanctuary, Orebro, Sweden
+June/July 1998 by Dan Swano
+All vocal harmonies written by: Dan Swano
+All lead guitars parts written, performed and recorded by Peter Anderson at
+Citystudion, Orebro
+Visualized by: Tompa, HeadAche Creations
+
 
 ## Отношения с другими группами
 

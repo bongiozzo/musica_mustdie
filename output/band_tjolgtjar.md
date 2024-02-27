@@ -1,11 +1,78 @@
 # Tjolgtjar
 
-Дискография
-"Voices from the Center of Earth" 2005, Black Metal
-"The Tjolgtjarian Mass" 2006, Black Metal
-"Holnijimnjok" 2007, Black Metal
-"Halloween" 2007, Black Metal
-"Ikarikitomidun, Lord of the Forest" 2008, Black Metal
+
+
+## Дискография
+
+### "Voices from the Center of Earth" 2005, Black Metal
+
+1. Introduction 01:32  
+2. Eliminating Worm Hole Corruption 05:30 
+3. Building the Bridge of Time 05:20
+4. The Physics of Dark Magic 04:31
+5. Strong Signals from the Other Side 04:31
+6. Voices from the Center of Earth 02:32  
+7. This Life Which is Infinite 04:21
+8. Satan's Hollow 03:15
+9. The Journey Back from the Crypts of Black Science 04:14
+10. Howls of Viignjouroth 02:12 
+
+### "The Tjolgtjarian Mass" 2006, Black Metal
+
+1. Enter the Halls of the Pororium 03:01  
+2. The Ceremony of Tjolgtjar 03:54  
+3. Exorcism Spell 03:10  
+4. Prayer of the Five Keys 02:09  
+5. Tjolgtjarium Ritual 04:06  
+6. Acts of Communion 02:23  
+7. The Offering 02:48  
+8. Curse Upon Our Enemies 03:07  
+9. Invoking Our Lord Skuulkuun 02:36  
+10. The Black Arts of Vruguun 03:10  
+11. Exit Through the Gate 01:58 
+
+### "Holnijimnjok" 2007, Black Metal
+
+1. Tjar Tjol Grieje Deithe Ajama 02:18  
+2. Cold Bones Rattle Over Graves 03:47  
+3. Sol Moujanamja Holnijimnjok 03:51  
+4. Uuk Aru Tjelminosz 02:53  
+5. Tjolgt Invocation 03:19  
+6. Levitating Among Stakes 03:33  
+7. Tjolgtjarium Eust Waanuuj Uus Ikarik 04:42  
+8. The Return of Tjolgtjarian Antichrist 02:05  
+9. 2001 First Ritual 08:54 
+
+### "Halloween" 2007, Black Metal
+
+1. Night of the Living Dead 03:17  
+2. Judith Myers 02:56  
+3. Mask of Michael Myers 03:11  
+4. The Myers House 02:56  
+5. Laurie Strobe 04:34  
+6. The Night He Came Home 02:47  
+7. The Blackest Eyes 03:18  
+8. The Haddonfield Babysitter Murders 03:46  
+9. The Shape 02:30  
+10. III Silver Shamrock 01:49 
+
+### "Ikarikitomidun, Lord of the Forest" 2008, Black Metal
+
+1. Fjor Tjell Kjingdjam olf Hjoary 03:02  
+2. Lord of the Forest 03:54  
+3. Raptor Map 04:09  
+4. City On Fire 05:19  
+5. They Fall By Gunfire 03:39  
+6. Ode to Dixie 03:36  
+7. Hiking Through the Eastern Trails 02:42  
+8. Nu raagum Skuul, Fjelnjejs 04:09  
+9. Snakebite Cowgirl 05:33  
+10. The Spirit of the Wild 03:01  
+11. No Pride In the Prairie 03:59  
+12. Inside the Devil's Mind 04:00  
+13. Free Flight (Ted Nugent & The Amboy Dukes Cover) 02:26  
+14. Black Bear/Gone Shooting 06:04 
+
 
 ## Отношения с другими группами
 

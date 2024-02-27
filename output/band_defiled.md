@@ -1,11 +1,51 @@
 # Defiled
 
-Дискография
-"Erupted Wrath" 1999, Death Metal
-"Ugliness Revealed" 2001, Death Metal
-"Divination" 2003, Death Metal
-"In Crisis" 2011, Death Metal
-"Towards Inevitable Ruin" 2016, Death Metal
+Hyper-blasting Twisted Death Metal
+
+## Дискография
+
+### "Erupted Wrath" 1999, Death Metal
+
+
+
+### "Ugliness Revealed" 2001, Death Metal
+
+
+
+### "Divination" 2003, Death Metal
+
+
+
+### "In Crisis" 2011, Death Metal
+
+1. From Alpha 00:23  
+2. Lethal Agitator 03:30  
+3. Retrogression 03:33  
+4. Unconscious Slavery 06:04  
+5. Paradoxical Chaos 02:49  
+6. In Crisis 05:07  
+7. Behind You Pray 04:30  
+8. Resentment Without End 05:19  
+9. Intolerant 04:42  
+10. Maze of Nescience 04:10  
+11. Revelation of Doom 04:22  
+12. To Omega 00:10 
+
+### "Towards Inevitable Ruin" 2016, Death Metal
+
+1. Subversion  
+2. Cauterized 
+3. Doomsday 
+4. Conspiracy 
+5. Force and Obedience 
+6. Shadows Hands 
+7. Fear from Above 
+8. Scapegoat 
+9. Debunked 
+10. One World  
+11. Silent but Ongoing 	 
+12. Towards Inevitable Ruin 
+
 
 ## Отношения с другими группами
 

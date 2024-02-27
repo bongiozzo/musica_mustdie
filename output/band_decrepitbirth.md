@@ -1,9 +1,21 @@
 # Decrepit Birth
 
-Дискография
-"...and Time Begins" 2003, Techno Death
-"Diminishing Between Worlds" 2008, Techno Death
-"Polarity" 2010, Techno Death
+
+
+## Дискография
+
+### "...and Time Begins" 2003, Techno Death
+
+
+
+### "Diminishing Between Worlds" 2008, Techno Death
+
+
+
+### "Polarity" 2010, Techno Death
+
+
+
 
 ## Отношения с другими группами
 

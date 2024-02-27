@@ -1,11 +1,29 @@
 # Machinae Supremacy
 
-Дискография
-"Deus Ex Machinae" 2004, Heavy Metal
-"Redeemer" 2006, Heavy Metal
-"Overworld" 2008, Heavy Metal
-"A View From The End Of The World" 2010, Heavy Metal
-"The Beat Of Our Decay (Compilation)" 2011, Heavy Metal
+
+
+## Дискография
+
+### "Deus Ex Machinae" 2004, Heavy Metal
+
+
+
+### "Redeemer" 2006, Heavy Metal
+
+
+
+### "Overworld" 2008, Heavy Metal
+
+
+
+### "A View From The End Of The World" 2010, Heavy Metal
+
+
+
+### "The Beat Of Our Decay (Compilation)" 2011, Heavy Metal
+
+
+
 
 ## Отношения с другими группами
 

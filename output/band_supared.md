@@ -1,7 +1,13 @@
 # Supa Red
 
-Дискография
-"Supa Red" 2003, Heavy Metal
+
+
+## Дискография
+
+### "Supa Red" 2003, Heavy Metal
+
+
+
 
 ## Отношения с другими группами
 

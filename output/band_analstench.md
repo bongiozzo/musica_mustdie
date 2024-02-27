@@ -1,8 +1,35 @@
 # Anal Stench
 
-Дискография
-"Stench Like Six Demons" 2003, Death Metal
-"Red Revolution" 2004, Death Metal
+
+
+## Дискография
+
+### "Stench Like Six Demons" 2003, Death Metal
+
+1. Satan cloned the cookie pig 03:06  
+2. Crucified by vodka 03:57  
+3. Anal Blast 03:31  
+4. Torment in the Shebeen 03:41  
+5. Stripped, raped and strangled (Cannibal Corpse cover) 03:30  
+6. 8 kilograms of meat without bones 04:05  
+7. Koprofuck997 04:03  
+8. Resistance in Malvova 04:38  
+9. Alcoholic suicide 04:16  
+10. Territory (Sepultura cover) 04:11
+
+### "Red Revolution" 2004, Death Metal
+
+1. Hammer & Sickle 03:40  
+2. Charnobyl Hydrogenic Bomb 03:24
+3. War Trip 03:54
+4. Sputnik 03:38 
+5. The 666 Party Congress 02:49  
+6. Civil Unrest 02:48  
+7. Go Gagarin Go 03:45 
+8. Red Light Means Stop 02:56 
+9. Red Revolution 06:06 
+10. Outro (Internationale)
+
 
 ## Отношения с другими группами
 

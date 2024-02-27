@@ -1,7 +1,35 @@
 # Whispering Forest
 
-Дискография
-"Pale Light" 2001, Death Doom
+dark atmospheric metal band from Estonia
+
+## Дискография
+
+### "Pale Light" 2001, Death Doom
+
+1. Curse
+2. On These Endless Autumn Nights
+3. Last Sunset
+4. Winterbird
+5. Shine Of Lethe
+6. Black Orchid
+7. Twined As One
+8. Darkest Side
+9. Of Shadows And Pale Light
+10. Black Orchid (mix) 
+
+
+
+Mart - vocals & Jah' harp
+Katrin - vocals & tambourine
+Kristjan - keyboards
+Tхnis - guitars
+Keijo - guitars
+Raivo - bass
+Ranno - drums
+
+
+
+
 
 ## Отношения с другими группами
 

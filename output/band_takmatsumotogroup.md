@@ -1,7 +1,26 @@
 # Tak Matsumoto Group
 
-Дискография
-"T M G I" 2004, Hard Rock
+Melodic hard rock
+
+## Дискография
+
+### "T M G I" 2004, Hard Rock
+
+01. Oh Japan - Our Time Is Now
+02. Everything Passes Away
+03. Kings For A Day
+04. I Know You By Heart
+05. I Wish You Were Here
+06. The Greatest Show On Earth
+07. Signs Of Life
+08. Red, White And Bullet Blues
+09. Trapped
+10. My Alibi
+11. Wonderland
+12. Train, Train
+13. Two Of A Kind
+14. Never Goodbye
+
 
 ## Отношения с другими группами
 

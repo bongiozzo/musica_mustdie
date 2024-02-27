@@ -1,15 +1,54 @@
 # After All
 
-Дискография
-"Wonder" 1995, Thrash
-"Transcendent" 1997, Thrash
-"Dead Loss" 2000, Thrash
-"Mercury Rising" 2002, Thrash
-"The Vermin Breed" 2005, Thrash
-"This Violent Decline" 2006, Thrash
-"Cult Of Sin" 2009, Thrash
-"Dawn of the Enforcer" 2012, Thrash
-"Waves of Annihilation" 2016, Thrash
+
+
+## Дискография
+
+### "Wonder" 1995, Thrash
+
+
+
+### "Transcendent" 1997, Thrash
+
+
+
+### "Dead Loss" 2000, Thrash
+
+
+
+### "Mercury Rising" 2002, Thrash
+
+
+
+### "The Vermin Breed" 2005, Thrash
+
+
+
+### "This Violent Decline" 2006, Thrash
+
+
+
+### "Cult Of Sin" 2009, Thrash
+
+
+
+### "Dawn of the Enforcer" 2012, Thrash
+
+
+
+### "Waves of Annihilation" 2016, Thrash
+
+“Rejection Overruled”
+“Target Extinction”
+“The Unusual Sin”
+“Fall In Line”
+“None Can Defy”
+“First Class Terror”
+“Restore To Sanity”
+“Lost In The Crowd”
+“After The Hurt Is Gone”
+“Destructive Force”
+
 
 ## Отношения с другими группами
 

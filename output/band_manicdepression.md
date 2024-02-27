@@ -1,14 +1,128 @@
 # Manic Depression
 
-Дискография
-"Who Deals the Pain" 2001, Thrash
-"Who Deals the Pain (re-release)" 2003, Thrash
-"Planned Spiritual Decay" 2006, Thrash
-"You'll Be With Us Again [EP]" 2007, Thrash
-"Impending Collapse" 2010, Thrash
-"Box Of Lies [EP]" 2012, Thrash
-"Technocracy" 2015, Thrash
-"11 Приступов Депрессии" 2017, Thrash
+russian thrash metal band
+
+## Дискография
+
+### "Who Deals the Pain" 2001, Thrash
+
+1. Words of Hate
+2. Neverending Hunt
+3. Tongue of War
+4. To Be a Victor
+5. Who Deals the Pain
+6. Manic Depression
+7. We'll Never Forget
+8. Monsters in Uniform
+9. The Secret Dreams
+10. No Money No Revolution
+11. Paranoia Over the World
+
+Виталий "Fucker" Новожилов  - гитара ,лидер-гитара  
+Макс "С Болтом" Лайко  - вокал, лидер-гитара  
+Илья Зудилов  - бас-гитара  
+Василий "Крот" Казуров  - ударные
+
+### "Who Deals the Pain (re-release)" 2003, Thrash
+
+1. Breed The Fear
+2. Words Of Hate
+3. Neverending Hunt
+4. To Be A Victor
+5. Who Deals The Pain
+6. Tongue Of War
+7. We'll Never Forget
+8. The Endless Extasy
+9. Monsters In Uniform
+10. Secret Dreams
+11. No Money No Revolution
+12. Paranoia Over The World
+
+Manic Depression is:
+Vitalij "Fucker" Novozhilov - guitars
+Max "With Bolt" Laiko - guitars, vocal
+Ilya Zudilov - bass
+Vasilij "The Mole" Kazurov - drums
+
+Produced by Vidadi Mirzoyev and Vitalij Novozhilov
+Co-Produced by Manic Depression
+Recorded in april - may 2003 at Black Obelisk and PowerSkya Studios, Moscow, Russia
+Recorded and Engineered by Dmitry Borisenkov and Vidadi Mirzoyev
+Mixed and Mastered by Vidadi Mirzoyev at VMH Studio
+All Lyrics by Max Laiko
+All Songs Arranged by Manic Depression
+Guest Appearances: Victor Yourov - acoustic guitar
+Official site: http://www.manicdepression.ru
+Executive Producer by Agen Price
+
+(C)&(P) 2003 Концерн Группа СОЮЗ
+(C)&(P) 2003 SOYUZ ENTERTAINMENT HOLDING
+
+### "Planned Spiritual Decay" 2006, Thrash
+
+1. Planned Spiritual Decay
+2. Memories Of Non Forgiveness
+3. New World Disorder
+4. Endless Hollow Beyond
+5. Rebellion Of One
+6. Thousands Years Of Nothing
+7. Wrath Fueled, Hate Driven
+8. Messenger Of God
+9. Stand Of No Consent
+10. As We Raising Inferno
+
+### "You'll Be With Us Again [EP]" 2007, Thrash
+
+1. Intro	02:00	
+2. No Future	04:14	
+3. You'll Be With Us Again	04:29	
+4. Cold Hard Reality	04:04	
+5. Come Out And Play (Twisted Sister cover)	04:45	
+6. Леденящая Вечность	05:47	
+7. Гимн Свободе	04:29	
+8. Леденящая Вечность (Radio edit)	03:51
+
+### "Impending Collapse" 2010, Thrash
+
+1. Nightmareality 03:48  
+2. Afterlife 03:37  
+3. Evil In Disguise 03:14  
+4. Lost In Time 06:08  
+5. Global Collapse 03:42  
+6. Atlantis Fate 05:26  
+7. Legacy Of The Past 05:23  
+8. Buried Alive 04:29  
+9. Phobia 07:47  
+10. Mutual Hate 04:35 
+
+### "Box Of Lies [EP]" 2012, Thrash
+
+Box Of Lies
+Ghetto
+Say, Is It Really True (ELOY Cover)
+Nightmareality
+Lost In Time
+Atlantis’ Fate
+
+### "Technocracy" 2015, Thrash
+
+01. Triumph Of Progress
+02. Technocrazy
+03. Suicide On The Battlefield
+04. Fell So Low
+05. Divided Nation
+06. Ghetto
+07. Box Of Lies
+08. Valour
+09. Mission To Die
+10. In Flames (KRUIZ cover)
+11. Premonition
+12. Uncertainty
+
+### "11 Приступов Депрессии" 2017, Thrash
+
+
+
 
 ## Отношения с другими группами
 

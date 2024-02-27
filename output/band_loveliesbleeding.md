@@ -1,10 +1,65 @@
 # Love Lies Bleeding
 
-Дискография
-"Behold My Vain Sacrifice" 2000, Black Metal
-"S.I.N." 2001, Black Metal
-"Ex Nihilo" 2002, Black Metal
-"Ellipse" 2004, Black Metal
+French atmospheric black-doom
+
+## Дискография
+
+### "Behold My Vain Sacrifice" 2000, Black Metal
+
+THE LADY WHO DIDN'T WANT TO BE
+THE FLOWERS OF NEVERMORE
+VIRTUE'S DUSK
+I DROWN IN EXISTENCE
+        Part I : APORETIC LOVE
+        Part II : GRAVE OF DESIRE
+INCARNATUS
+
+
+
+### "S.I.N." 2001, Black Metal
+
+01 Ante-Persistence
+02 Ante-Persistence Part II
+03 Frygt og Baeven
+04 Bringer of Redemption
+05 I cum Jesus Tears
+06 Beyond the knowledge divine
+07 The Blood of the Prophecy
+ 
+
+
+Adrastis - Guitars, Keyboards
+Emrys - Vocals
+Hydraoth - Drums
+Ereshkigal - Bass
+Jeanne - Female vocals
+
+
+### "Ex Nihilo" 2002, Black Metal
+
+01 Acedia
+02 As chaos ceased to be
+03 Waiting for my end
+04 Surrounded by Infinite Nihilism
+05 Ex
+
+
+
+Adrastis – keys, guitars, bass
+Emrys – vocal 
+Hydraoth – drums 
+Jeanne – vocal
+Nikki – vocal
+
+### "Ellipse" 2004, Black Metal
+
+1. Dead Inside   
+2. In My Fall   
+3. Another Senseless Night   
+4. Revocation   
+5. Reject / Inject / Loaded   
+6. EndoLapsus
+
 
 ## Отношения с другими группами
 

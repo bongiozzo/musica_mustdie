@@ -1,15 +1,148 @@
 # Varathron
 
-Дискография
-"His Majesty At The Swamp" 1993, Black Metal
-"Black Arts Lead To Everlasting Sins" 1994, Black Metal
-"Walpurgisnacht" 1995, Black Metal
-"Genesis Of Apocryphal Desire" 1997, Black Metal
-"The Lament Of Gods" 1998, Black Metal
-"Crowsreign" 2004, Death Metal
-"Stygian Forces of Scorn" 2009, Black Metal
-"Untrodden Corridors of Hades" 2014, Black Metal
-"The Confessional of the Black Penitents (EP)" 2015, Black Metal
+
+
+## Дискография
+
+### "His Majesty At The Swamp" 1993, Black Metal
+
+1. His Majesty At The Swamp *
+2. Son Of Moon (Act III)
+3. Unholy Funeral
+4. Lustful Father
+5. Nightly Kingdoms
+6. Flowers Of My Youth
+7. The River Of My Souls
+8. The Tressrising Of Nyarlathothep (Act I)
+
+ Necroabyssious - Vocals
+ Necroslaughter - Guitars
+ Mutilator - Bass
+ Wolfen - Drums
+
+All Songs Written By VARATHRON. Except * By Morbid
+Produced By VARATHRON & Morbid
+Engineered By George Zaharopoulos
+Recorded & Mixed At Storm Studio, Athens, Greece 1993
+Synthesizer Played By Morbid
+
+(p)&(c) 1993 CYBER Music
+
+### "Black Arts Lead To Everlasting Sins" 1994, Black Metal
+
+1. The Cult Of The Dragon * 
+2. The Tressrising Of Nyarlathothep
+3. La Reinenoir
+4. Outro
+5. Descent Of A Prophetic Vision
+6. Genesis Of Apocryphal Desires
+
+Necroabyssious - Vocals
+Stavros - Guitars
+John - Guitars
+Mutilator - Bass
+Themis - Drums
+
+All Songs Written By VARATHRON. Except * By Magus Wampyr Daoloth
+Recorded & Mixed At Red House Studio In January 1991.
+* Recorded & Mixed At Sin Eha Studio In February 1992.
+Synthesizer Played By Morbid
+
+(p)(c) 1994 UNISOUND Records
+
+### "Walpurgisnacht" 1995, Black Metal
+
+1. Tleilaxu (The Unborn Child)
+2. Cassiopeia's Ode
+3. The Dark Hills
+4. Mestigoth
+5. Birthrise Of The Graven Image
+6. Redeunt Saturnia Regna
+7. Under The Sight Of Horns
+8. Somewhere Beyond Seas
+9. Sic Transit Gloria Mundi
+
+All Songs Written By VARATHRON.
+Produced By M.W.Daoloth & VARATHRON.
+Engineered By George Zaharopoulos.
+Recorded & Mixed At Storm Studio,Athens, Greece.
+
+Necroabyssious - Vocals
+Pyrphoros - Guitars, Bass
+Adrastos - Keyboards, Piano
+Wolfen - Drums
+
+(P)&(C) 1995 UNISOUND Records
+
+### "Genesis Of Apocryphal Desire" 1997, Black Metal
+
+
+
+### "The Lament Of Gods" 1998, Black Metal
+
+
+
+### "Crowsreign" 2004, Death Metal
+
+1. Evil Gets An Upgrade 02:13 
+2. There Is No God 07:34 
+3. The Grim Palace 07:16  
+4. Darkness Falling 03:22
+5. Creation Of Satan 06:27 
+6. The Sign of Eternal Curse 05:49 
+7. A Vision Of A Nameless Soul 07:10  
+8. Emmersing From The Immortals 03:47
+9. The King Of Asine 12:32 
+10. Spirit Of The Tomb 03:29 
+11. Angel Of Revenge 05:05
+
+### "Stygian Forces of Scorn" 2009, Black Metal
+
+1. Behind the Mask  05:20   
+2. Legend of Demusar  07:21  
+3. Legions of Profane Wrath  06:23  
+4. Where the Walls Weep  06:07   
+5. Dismal King  03:28   
+6. Beyond the Darkness  01:58  
+7. Demoniac Abysmal Realms  05:48  
+8. Lord of Illusions  04:50   
+9. Sacred Ahlat  06:43   
+10. The Depths of Gnar  04:55   
+11. Aclo Savaoth Soth (The Final Chapter of Acts)  08:07 
+
+Recorded between March 2007 - February 2008 in Estia Studios and Revolution Sound Studios, Patra, Greece. The drums recorded in Fragile Studios, Athens, Greece. 
+Recorded, produced, mixed and mastered by Alekos Kakaroumpas and Varathron.
+
+
+### "Untrodden Corridors of Hades" 2014, Black Metal
+
+1. Kabalistic Invocation of Solomon  08:43   
+2. Realm of Obscure  07:42   
+3. Arcane Conjuring  06:27   
+4. Leprocious Lord  05:10   
+5. The Bright Trapezium  06:45  
+6. Death Chant  05:51  
+7. Delve into the Past  08:35 
+
+Recorded, mixed and engineered at Infinite Loop Music Studio, Greece, 2013-2014.
+Mastered at Strype Audio, Oslo, Norway, August 2014.
+
+
+### "The Confessional of the Black Penitents (EP)" 2015, Black Metal
+
+1. The Confessional of the Black Penitents  03:34    
+2. Sinister Recollections  07:16   
+3. Utter Blackness  07:50    
+4. Unholy Funeral (Live)  03:33   
+5. Cassiopeia's Ode (Live)  06:25    
+6. Descent of a Prophetic Vision (Live)  03:18  
+7. Kabalistic Invocation of Solomon (Live)  08:12  
+
+
+Songs 2 & 3 recorded and mixed at Infinite Loop Music Studio, Greece.
+Songs 4-7 recorded live in Larisa, Greece, on the 16th of May, 2015.
+Mastered at Strype Audio, Norway.
+
 
 ## Отношения с другими группами
 

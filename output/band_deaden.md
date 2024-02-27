@@ -1,9 +1,47 @@
 # Deaden
 
-Дискография
-"Hymns of the Sick" 1998, Deathcore
-"Feast On The Flesh Of The Dead [Compilation]" 2004, Deathcore
-"Displaying the Art of Carnage" 2006, Deathcore
+
+
+## Дискография
+
+### "Hymns of the Sick" 1998, Deathcore
+
+1. Ejaculation To A Rotting Orifice 04:04
+2. Sculpted In Flesh 03:53
+3. John's List 03:14
+4. Subconscious Holocaust 02:33  
+5. He Wore The Flesh 01:37 
+6. Butchered Whore 03:54
+7. Genocide By Asphyxiation 03:28
+8. Land Of Larvae 04:01
+9. Stretched 08:16 
+
+### "Feast On The Flesh Of The Dead [Compilation]" 2004, Deathcore
+
+1. Skin of Sores 03:57  
+2. Instinct to Kill 05:54  
+3. ...And the Dead Shall Rot 03:26  
+4. Lying in a Ditch 05:49  
+5. Sins of Her Flesh 03:18  
+6. Wallow in Vomit 03:56  
+7. Outro 01:59  
+8. Butchered Whore 03:21  
+9. Stretched 04:18  
+10. Only Genitals Remain 03:51  
+11. Perverted Fecal Embodiment 02:31  
+12. The Mind Of 04:36 
+
+### "Displaying the Art of Carnage" 2006, Deathcore
+
+1. The Abhorring 01:24  
+2. ...The Mind of 05:20  
+3. With The Skin 03:59  
+4. Perverted Fecal Embodiment 02:53  
+5. Open Your Fears 05:43  
+6. Vomiting Felch 04:22  
+7. Blood Came From Sodomy 05:41  
+8. Only Genitals Remain 04:11 
+
 
 ## Отношения с другими группами
 

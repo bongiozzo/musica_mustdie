@@ -1,12 +1,127 @@
 # Scar Symmetry
 
-Дискография
-"Symmetric In Design" 2005, Melodic Death Metal
-"Pitch Black Progress" 2006, Melodic Death Metal
-"Holographic Universe" 2008, Melodic Death Metal
-"Dark Matter Dimensions" 2009, Melodic Death Metal
-"The Unseen Empire" 2011, Melodic Death Metal
-"The Singularity (Phase I: Neohumanity)" 2014, Melodic Death Metal
+
+
+## Дискография
+
+### "Symmetric In Design" 2005, Melodic Death Metal
+
+01. Chaosweaver 
+02. 2012 - The Demise Of The 5th Sun 
+03. Dominion 
+04. Underneath The Surface 
+05. Reborn 
+06. Veil Of Illusion 
+07. Obscure Alliance 
+08. Hybrid Cult 
+09. Orchestrate The Infinite 
+10. Detach From The Outcome 
+11. Seeds Of Rebellion 
+12. The Eleventh Sphere 
+
+Line-up: 
+Christian Alvestam (Lead Vocals) 
+Jonas Kjellgren (Guitars) 
+Per Nilsson (Guitars) 
+Kenneth Seil (Bass) 
+Henrik Ohlsson (Drums)
+
+### "Pitch Black Progress" 2006, Melodic Death Metal
+
+01. The Illusionist
+02. Slaves to the Subliminal
+03. Mind Machine
+04. Pitch Black Progress
+05. Calculate the Apocalypse
+06. Dreaming 24/7
+07. Abstracted
+08. The Kaleidoscopic God
+09. Retaliator
+10. Oscillation Point
+11. The Path of Least Resistance
+
+### "Holographic Universe" 2008, Melodic Death Metal
+
+1. Morphogenesis 03:54  
+2. Timewave Zero 05:13  
+3. Quantumleaper 04:09  
+4. Artificial Sun Projection 04:00  
+5. The Missing Coordinates 04:37  
+6. Ghost Prototype I (Measurement of Thought) 04:31  
+7. Fear Catalyst 05:03  
+8. Trapezoid 04:17  
+9. Prism and Gate 03:46  
+10. Holographic Universe 09:05  
+11. The Three-Dimensional Shadow 03:57  
+12. Ghost Prototype II (Deus Ex Machina) 06:03 
+
+
+### "Dark Matter Dimensions" 2009, Melodic Death Metal
+
+1. The Iconoclast 05:07  
+2. The Consciousness Eaters 04:42  
+3. Noumenon And Phenomenon 04:13  
+4. Ascension Chamber 03:48  
+5. Mechanical Soul Cybernetics 03:27  
+6. Nonhuman Era 04:45  
+7. Dark Matter Dimensions 04:12  
+8. Sculpture Void 05:23  
+9. A Paranthesis In Eternity 04:43  
+10. Frequencyshifter 03:15  
+11. Radiant Strain 04:15 
+
+
+
+Line-up:
+Roberth Karlsson - Harsh Vocals 
+Lars Palmqvist - Clean Vocals
+Jonas Kjellgren - Guitars 
+Per Nilsson - Guitars 
+Kenneth Seil - Bass
+Henrik Ohlsson - Drums
+
+Release dates:
+October 2, 2009 - Europe
+October 10, 2009 - North America
+
+Produced by Jonas Kjellgren.
+All songs written by Jonas Kjellgren, Per Nilsson and Henrik Ohlsson.
+
+Bonus track on the Limited Edition:
+12. Pariah (05:22) 
+
+### "The Unseen Empire" 2011, Melodic Death Metal
+
+1. The Anomaly 03:50  
+2. Illuminoid Dream Sequence 05:00  
+3. Extinction Mantra 05:31  
+4. Seers Of The Schaton 05:51  
+5. Domination Agenda 04:00  
+6. Astronomicon 04:03  
+7. Rise Of The Reptilian Regime 04:24  
+8. The Draconian Arrival 05:25  
+9. Alpha And Omega 05:02 
+
+
+### "The Singularity (Phase I: Neohumanity)" 2014, Melodic Death Metal
+
+1. The Shape of Things to Come 00:52
+2. Neohuman 08:43
+3. Limits to Infinity 04:57
+4. Cryonic Harvest 06:12
+5. The Spiral Timeshift 04:50
+6. Children of the Integrated Circuit 02:25
+7. Neuromancers 05:11
+8. Technocalyptic Cybergeddon 10:12
+
+
+Kenneth Seil - Bass 
+Henrik Ohlsson - Drums 
+Per Nilsson - Guitars, Keyboards (programming) 
+Lars Palmqvist - Vocals (clean) 
+Roberth Karlsson - Vocals (harsh) 
+
+
 
 ## Отношения с другими группами
 

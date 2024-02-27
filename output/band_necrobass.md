@@ -1,7 +1,27 @@
 # Necrobass
 
-Дискография
-"Kings of Grind" 2004, Deathcore
+
+
+## Дискография
+
+### "Kings of Grind" 2004, Deathcore
+
+1. Kings of grind
+2. All inclusive
+3. Lost temple
+4. Public toilets
+5. Chaos in the room
+6. Kimmeria dysenteria
+7. Zoodismember
+8. Minor threat
+9. Talk about life
+10. Master of false
+11. Blind rage
+12. Song 1(2003)
+13. First spring storm
+14. Blues 1
+15. The epic northern cruise
+
 
 ## Отношения с другими группами
 

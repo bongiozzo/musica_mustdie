@@ -1,9 +1,73 @@
 # Collapse 7
 
-Дискография
-"In Deep Silence" 2004, Death Metal
-"Supernova Overdrive" 2007, Death Metal
-"Doomsday Odyssey " 2011, Death Metal
+
+
+## Дискография
+
+### "In Deep Silence" 2004, Death Metal
+
+01. intro
+02. infernal apocalypse
+03. in deep silence
+04. empty as we are
+05. a prophet?s speech
+06. blessed with pain
+07. into obscurity
+08. legions of blackness
+09. tombs of depravity
+10. a suicidal sickness
+11. within the light
+12. faith in flames
+
+Mario: vocals, bass
+Werner: guitars
+Gerry: guitars
+Mike: drums
+
+Recorded and mixed at Vato Loco Studio/Vienna,
+March-July 2003
+Produced by Martin Schirenc
+Mastered by Michael Danner
+Cover artwork by Jacek Wisniewski
+All music & lyrics by Collapse 7
+
+### "Supernova Overdrive" 2007, Death Metal
+
+1. Supernova Overdrive 04:23  
+2. Cold Fact Tomorrow 04:28  
+3. I Proclaim The End 04:54  
+4. A Tragic History 03:38  
+5. Gravitiy Collapsing Theory 05:17  
+6. Hollow Hearts 05:00  
+7. The Shepherds Call 04:26  
+8. King Of Nothing 03:39  
+9. Stagnating Stain 03:38  
+10. The Silence That Remains 05:36 
+
+
+Recorded in Summer/Autumn 2006 with Martin Schirenc in the Vato Loco Studio in Vienna.
+
+CD includes a Secret/Hidden Track:
+11. (3:17) 
+
+### "Doomsday Odyssey " 2011, Death Metal
+
+1. Prologue 01:08  
+2. Slow-Motion Hell 05:13  
+3. Native Devotion 05:20  
+4. 4891 00:46  
+5. Cosmic Grave 04:18  
+6. Doomsday Odyssey 05:03  
+7. Crisis Complete 04:28  
+8. Idols Of Gold 05:33  
+9. Shades Of Death 05:09  
+10. Crawling Hate 04:27  
+11. Dead Cold Triumph 05:48  
+12. Epilogue 01:10 
+
+
+Cover by Jens Reinhold of ZenZ-art 
+
 
 ## Отношения с другими группами
 

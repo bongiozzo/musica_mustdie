@@ -1,15 +1,173 @@
 # Omnium Gatherum
 
-Дискография
-"Steal the Light" 2002, Melodic Death Metal
-"Spirits And August Light" 2003, Melodic Death Metal
-"Years In Waste" 2004, Melodic Death Metal
-"Stuck Here On Snakes Way" 2007, Melodic Death Metal
-"The Redshift " 2008, Melodic Death Metal
-"New World Shadows " 2011, Melodic Death Metal
-"Beyond " 2013, Melodic Death Metal
-"Skyline (single)" 2015, Melodic Death Metal
-"Grey Heavens" 2016, Melodic Death Metal
+Melodic Death Metal from Finland
+
+## Дискография
+
+### "Steal the Light" 2002, Melodic Death Metal
+
+1. Wastrel
+2. Son's Thoughts
+3. Candles For Giordano Bruno
+4. Ammo
+5. Lost & Found
+
+
+Antti Filppu - Vocals
+Markus Vanhala - Guitar
+Harri Pikka - Guitar
+Janne Markkanen- Bass
+Mikko Pennanen - Keyboards
+Jarmo Pikka - Drums 
+
+Recorded at Sonic Pump Studios by Nino Laurenne, December `01.
+Mastered at The Mastering Room, Gцteborg, Sweden by Gцran Finnberg, January `02.
+Art direction / design /photo by Olli Lappalainen.
+
+### "Spirits And August Light" 2003, Melodic Death Metal
+
+1. Writhen
+2. Deathwhite
+3. The Perfumed Garden
+4. Amor Tonight
+5. Cure A Wound
+6. The Emptiness Of Spirit
+7. Wastrel
+8. Son`s Thoughts
+9. It Shines 
+
+
+Antti Filppu - Vocals
+Markus Vanhala - Guitar
+Harri Pikka - Guitar
+Janne Markkanen- Bass
+Mikko Pennanen - Keyboards
+Jarmo Pikka - Drums
+
+Recorded and mixed at Sonic Pump studios by Nino Laurenne, August-September `02.
+Mastered at Finnvox studios by Mika Jussila.
+Art direction / design / photography by Olli Lappalainen. 
+Additional vocals on "Deathwhite" and "Son`s Thoughts" by Jukka Pelkonen.
+Additional guitar solo on "The Perfumed Garden" by Kasperi Heikkinen.
+
+### "Years In Waste" 2004, Melodic Death Metal
+
+01. The Fall Went Right Through Here
+02. Misanthropic (Let the Crown Fall)
+03. Bereavement
+04. No Moon & No Queen
+05. Gravesilence
+06. It's a Long Night
+07. The Nolan's Fati
+08. Black Seas Cry
+09. More Withering
+10. Auguries Gone
+
+### "Stuck Here On Snakes Way" 2007, Melodic Death Metal
+
+01. The Snake And The Way
+02. Into Sea
+03. Dysnomia
+04. A-Part Of God
+05. Undertaker
+06. Bastard-O
+07. The Third Flame
+08. Just Signs
+09. Truth
+10. Drudgery
+11. In Sane World
+12. Spiritual
+
+### "The Redshift " 2008, Melodic Death Metal
+
+1. Nail 03:44 
+2. A Shadowkey 04:29  
+3. Chameleon Skin 04:56  
+4. No Breaking Point 03:47  
+5. The Return 05:28 
+6. Shapes And Shades 04:51  
+7. The Redshifter 03:41  
+8. Greeneyes 04:39  
+9. The Second Flame 04:24  
+10. Song For December 02:19  
+11. Distant Light Highway 05:34 
+
+
+
+"The Redshift", was recorded at Sound Supreme Studios in Hдmeenlinna, Finland
+with Janne Saksa and SouthEastSounds studio in Karhula with Teemu Aalto. The CD
+was mixed at Unisound Studio in Цrebro, Sweden by Dan Swanц 
+
+### "New World Shadows " 2011, Melodic Death Metal
+
+1. Everfields 09:17 
+2. Ego 04:07  
+3. New World Shadows 06:00 
+4. Soul Journeys 04:54  
+5. Nova Flame 04:10  
+6. An Infinite Mind 05:43 
+7. Watcher Of The Skies 04:17  
+8. The Distance 03:59  
+9. Deep Cold 09:29 
+
+
+
+Line-up:
+Jukka Pelkonen - Vocals
+Markus Vanhala - Guitar
+Toni Maki - Bass
+Jarmo Pikka - Drums
+Aapo Koivisto - Keyboards
+
+Guest members:
+Dan Swano - Clean Vocals
+Niilo Sevanen - Growls
+
+The CD was recorded at Astia Studio 2 in Lappeenranta and OmG Studio in Karhula,
+Finland with Teemu Aalto, and was mixed and mastered at Unisound Studio in
+Цrebro, Sweden by Dan Swano. 
+
+### "Beyond " 2013, Melodic Death Metal
+
+01 Luoto   
+02 New Dynamic   
+03 In The Rim  
+04 Nightwalkers  
+05 Formidable  
+06 The Sonic Sign  
+07 Who Could Say  
+08 The Unknowing  
+09 Living In Me  
+10 White Palace 
+
+
+Markus Vanhala -  Guitars
+Jarmo Pikka - Drums
+Aapo Koivisto - Keyboards
+Jukka Pelkonen - Vocals
+Joonas Koto - Guitars
+Erkki Silvennoinen - Bass
+
+### "Skyline (single)" 2015, Melodic Death Metal
+
+1. Skyline  04:34 
+
+### "Grey Heavens" 2016, Melodic Death Metal
+
+1. The Pit  04:34    
+2. Skyline  04:30    
+3. Frontiers  05:09 
+4. Majesty and Silence  08:36    
+5. Rejuvenate!  05:28   
+6. Foundation  05:49   
+7. The Great Liberation  05:15   
+8. Ophidian Sunrise  06:13    
+9. These Grey Heavens  04:25  (instrumental)
+10. Storm Front  06:13  
+
+
+Mix and mastering by Dan Swano
+
 
 ## Отношения с другими группами
 

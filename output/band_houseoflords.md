@@ -1,12 +1,115 @@
 # House Of Lords
 
-Дискография
-"House of Lords" 1988, Metal
-"Sahara" 1990, Metal
-"Demons Down" 1992, Metal
-"The Power and the Myth" 2004, Hard Rock
-"World Upside Down" 2006, Hard Rock
-"Cartesian Dreams" 2009, Hard Rock
+Melodic Hard Rock
+
+## Дискография
+
+### "House of Lords" 1988, Metal
+
+Pleasure Palace
+I Wanna Be Loved 
+Edge of Your Life
+Looking For Strange
+Love Don't Lie 
+Slip of the Tongue
+Hearts of the World
+Under Blue Skies
+Call My Name
+Jealous Heart
+
+James Christian: Vocals
+Lanny Cordola: Guitar
+Gregg Giuffria: Keyboards
+Chuck Wright: Bass
+Ken Mary: Drums
+
+### "Sahara" 1990, Metal
+
+Shoot
+Chains of Love
+Can't Find My Way Home 
+Heart on the Line
+Laydown Staydown
+Sahara
+It Ain't Love
+Remember My Name 
+American Babylon
+Kiss of Fire
+
+James Christian: Vocals
+Michael Guy: Guitar
+Gregg Giuffria: Keyboards
+Chuck Wright: Bass
+Ken Mary: Drums
+
+### "Demons Down" 1992, Metal
+
+Oh Father
+Demons Down
+What's Forever For
+Talkin' Bout Love
+Spirit of Love
+Down Down Down
+Metallic Blue
+Inside You
+Johnny's Got a Mind of His Own
+Can't Fight Love
+
+James Christian: Vocals
+(Dennis) Chick: Guitar
+Gregg Giuffria: Keyboards
+Sean McNabb: Bass
+Tommy Aldridge: Drums
+
+### "The Power and the Myth" 2004, Hard Rock
+
+01. Today
+02. All Is Gone
+03. Am I The Only One
+04. Living In Silence
+05. The Power And The Myth
+06. The Rapture
+07. Man Who I Am
+08. Bitter Sweet Euphoria
+09. Mind Trip
+10. Child Of Rage
+
+James Christian (vocals) 
+Chuck Wright (bass) 
+Larry Cordola (guitar) 
+Ken Mary (drums) 
+Derek Sherinan (keyboards) 
+Alan Okuye (keyboards) 
+Sven Martin (keyboards) 
+Ricky Phillips (keyboards)
+
+### "World Upside Down" 2006, Hard Rock
+
+1. Mask Of Eternity 
+2. These Are The Times 
+3. All The Way To Heaven 
+4. Field Of Shattered Dreams 
+5. I'm Free 
+6. All The Pieces Falling 
+7. Rock Bottom 
+8. Million Miles 
+9. Your Eyes 
+10. Ghost Of Time 
+11. My Generation 
+12. S.O.S. In America 
+13. World Upside Down 
+
+James Christian - lead vocals, acoustic guitar 
+Jeff Kent - bass, keys 
+Jimj Bell - guitar 
+B.J.Zampa - drums 
+
+featuring Gregg Guiffria (keys), Robin Beck, Terry Brock (background vocals)
+
+### "Cartesian Dreams" 2009, Hard Rock
+
+
+
 
 ## Отношения с другими группами
 

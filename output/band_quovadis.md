@@ -1,14 +1,129 @@
 # Quo Vadis
 
-Дискография
-"Quo Vadis" 1991, Thrash
-"Politics" 1993, Thrash
-"Test Draizea" 1995, Thrash
-"Uran" 1997, Thrash
-"Po" 1999, Thrash
-"King" 2002, Thrash
-"Babel" 2007, Thrash
-"Internal Chaos" 2010, Thrash
+Thrash Metal
+
+## Дискография
+
+### "Quo Vadis" 1991, Thrash
+
+1. NKWD  04:33   
+2. Armyphoby  04:33   
+3. Vegetation  03:27   
+4. ...Or Not To Be  02:45   
+5. Kocham Ci&#281;, Kochanie Moje (Maanam cover)  01:19  
+6. Three Little Sixes  04:07   
+7. Red Justice  03:00   
+8. Pain of Existence  02:58 
+9. Quo Vadis  05:46 
+
+### "Politics" 1993, Thrash
+
+1. Ameryka  03:21   
+2. Politics  02:27   
+3. Z Prochu w Proch  02:53 
+4. Pretty Woman  02:23  
+5. Obojetnosc  05:15  
+6. Anomia  03:01   
+7. Mowisz Mi  03:22   
+8. Przyjaciele  04:03 
+9. Zaglaskac na Smierc  02:22  
+10. Przeznaczenie  03:03   
+11. Serce  03:59  
+12. Wave  05:07 
+
+### "Test Draizea" 1995, Thrash
+
+1. Koryto  04:32  
+2. Test Draizea  05:36   
+3. Usuniety  03:49  
+4. The Silly Thing  02:43    
+5. Relax w Weekend  06:24 
+6. Zwykly Dzien  05:19
+7. Ono  04:33   
+8. To, Co Moge Ci Dac  03:52
+9. Powiedz Mi, Dlaczego  03:46   
+10. Grosik  04:55   
+11. Rozgoni Nas Wiatr  04:37   
+12. Wielki Ogien  08:09 
+
+### "Uran" 1997, Thrash
+
+1. Uran  03:52   
+2. Moje Miasto  04:40   
+3. Bojownik  05:30   
+4. Venus  02:23   
+5. Nie Kazdy  03:25   
+6. Nabrani  03:28   
+7. News'y  03:53   
+8. Wolny?  02:40 
+9. Nazajutrz  04:01  
+10. Every Breath You Take  02:45   
+11. Gdzie Jestes?  03:06 
+12. Uran II  04:28   
+13. Czlowiek Swoim Wrogiem  03:22 
+14. Wielki Ogien  08:09
+
+### "Po" 1999, Thrash
+
+1. Krew  03:34  
+2. Droga  05:34   
+3. Skoczek  
+4. Nar&#243;d  05:10   
+5. Niedziela  04:39   
+6. Sen  04:35   
+7. Czarnoksi&#281;&#380;nik  01:22  
+8. Bro&#324;  04:13   
+9. Gracz  04:22   
+10. Nirvana  05:27  
+11. Ikar  03:49   
+12. TV  03:57   
+13. Noc  05:34 
+
+### "King" 2002, Thrash
+
+Dїihad 
+Zegary 
+Umarі krуl 
+Portret 
+Gra 
+Peіnia 
+Siуdmy kr№g 
+Tornado 
+Nie dla mnie... 
+Sodoma 
+Dzieс S№du 
+Ogieс 
+Assassin 
+
+### "Babel" 2007, Thrash
+
+1. 21:37  02:13   
+2. Judasz  04:59  
+3. Dominus  03:31 
+4. I'm the Man  03:57   
+5. Ishrael  05:21 
+6. God  02:27  
+7. Satine  04:09  
+8. Mia  04:11   
+9. Pax  04:11   
+10. Bojownik 2  04:33   
+11. Babel  03:12  
+12. Feniks  05:45 
+
+### "Internal Chaos" 2010, Thrash
+
+1.Caducus 05:59
+2.Blood for Oil 04:38
+3.Bomb & Fire 05:44
+4.Black Horizon 03:56
+5.Chaos 06:56
+6.Dreams 03:39
+7.Cross of Gold 05:15
+8.East vs. West 04:27
+9.Nimue 05:57
+10.Evil Dad 03:02
+11.Russia 04:45
+
 
 ## Отношения с другими группами
 

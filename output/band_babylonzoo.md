@@ -1,7 +1,31 @@
 # Babylon Zoo
 
-Дискография
-"The Boy With X-Ray Eyes" 1996, Alternative
+Chart-Breakers In Alternative
+
+## Дискография
+
+### "The Boy With X-Ray Eyes" 1996, Alternative
+
+1.  Animal Army З
+2.  Spaceman
+3.  Zodiac Sign
+4.  Paris Green
+5.  Confused Art
+6.  Caffeine
+7.  The Boy With The X-Ray Eyes З
+8.  Don't Feed The Animals
+9.  Fire Guided Light
+10.  Is Your Soul For Sale ? З
+11.  I'm Cracking Up I Need A Pill
+
+All Tracks Written By Jas Mann.
+Produced By Jas Mann & Steve Power.
+З - Produced By Jas Mann & Steve Power.
+Mixed By Clive Black & Mike 'Spike' Drake.
+Additional Programming By 'Him'.
+
+(P)c 1996 EMI Records Ltd.
+
 
 ## Отношения с другими группами
 

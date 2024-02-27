@@ -1,12 +1,123 @@
 # Doors, The
 
-Дискография
-"The Doors" 1967, Rock
-"Strange Days" 1967, Rock
-"Waiting for the Sun" 1968, Rock
-"The Soft Parade" 1969, Rock
-"Morrison Hotel" 1970, Rock
-"L.A. Woman" 1971, Rock
+(one of the most influential and controversial rock bands of the 1960s)
+
+## Дискография
+
+### "The Doors" 1967, Rock
+
+1.   Break on Through (To the Other Side) (Doors) - 2:25 
+2.   Soul Kitchen (Doors) - 3:30 
+3.   The Crystal Ship (Doors) - 2:30 
+4.   Twentieth Century Fox (Doors) - 2:30 
+5.   Alabama Song (Whiskey Bar) (Brecht/Weill) - 3:15 
+6.   Light My Fire - 6:30 
+7.   Back Door Man (Burnett/Dixon) - 3:30 
+8.   I Looked at You (Doors) - 2:18 
+9.   End of the Night (Doors) - 2:49 
+10.   Take It as It Comes (Densmore/Krieger/Manzarek/Morrison) - 2:13 
+11.   The End (Doors) - 11:35 
+
+
+Robbie Krieger  -  Guitar 
+Jim Morrison  -  Vocals, Remastering 
+Ray Manzarek  -  Organ, Piano, Keyboards, Remastering 
+John Densmore  -  Drums 
+Bruce Botnick  -  Engineer, Mastering, Remastering 
+Jac Holzman  -  Production Supervisor 
+Paul Rothchild  -  Producer, Mastering, Remastering 
+Guy Webster  -  Photography 
+William S. Harvey  -  Art Direction, Design 
+Joel Brodsky  -  Photography
+
+### "Strange Days" 1967, Rock
+
+1. Strange Days
+2. You're Lost Little Girl
+3. Love Me Two Times
+4. Unhappy Girl
+5. Horse Latitudes
+6. Moonlight Drive
+7. People Are Strange
+8. My Eyes Have Seen You
+9. I Can't See Your Face In My Mind
+10. When The Music's Over
+
+Produced by Paul A. Rothchild
+
+(p) 1967 Elektra
+
+### "Waiting for the Sun" 1968, Rock
+
+1. Hello, I Love You
+2. Love Street
+3. Not To Touch The Earth
+4. Summer's Almost Gone
+5. Wintertime Love
+6. The Unknown Soldier
+7. Spanish Caravan
+8. My Wild Love
+9. We Could Be So Good Together
+10. Yes, The River Knows
+11. Five To One
+
+Produced by Paul A. Rothchild
+
+(p) 1968 Elektra
+
+### "The Soft Parade" 1969, Rock
+
+1. Tell All The People
+2. Touch Me
+3. Shaman's Blues
+4. Do It
+5. Easy Ride
+6. Wild Child
+7. Runnin' Blue
+8. Wishful Sinful
+9. The Soft Parade
+
+Produced by Paul A. Rothchild
+
+(p) 1969 Elektra
+
+### "Morrison Hotel" 1970, Rock
+
+Hard Rock Cafe
+1. Roadhouse Blues
+2. Waiting For The Sun
+3. You Make Me Real
+4. Peace Frog
+5. Blue Sunday
+6. Ship of Fools
+Morrison Hotel
+7. Land Ho!
+8. The Spy
+9. Queen of the Highway
+10. Indian Summer
+11. Maggie M'Gill
+
+Produced by Paul A. Rothchild
+
+(p) 1970 Elektra
+
+### "L.A. Woman" 1971, Rock
+
+1. The Changeling
+2. Love Her Madly
+3. Been Down So Long
+4. Cars Hiss By My Window
+5. L.A. Woman
+6. L'America
+7. Hyacinth House
+8. Crawling King Snake
+9. The Wasp (Texas Radio and the Big Beat)
+10. Riders On The Storm
+
+Produced by Bruce Botnick and the Doors
+
+(p)&(c) 1971 Elektra/Asylum Records
+
 
 ## Отношения с другими группами
 

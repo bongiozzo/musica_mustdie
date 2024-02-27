@@ -1,9 +1,49 @@
 # Crossover
 
-Дискография
-"Debauchery" 2003, Black Metal
-"Dogma" 2004, Black Metal
-"Pythagorized" 2011, Black Metal
+
+
+## Дискография
+
+### "Debauchery" 2003, Black Metal
+
+1.	 Debaucher by the Pilgrimage	03:34	 
+2.	 World Crescendo	02:48
+3.	 Errors	02:52
+4.	 In the Name of Blood	03:38
+5.	 N.M.E.	03:28
+6.	 Mayhem	04:34
+7.	 Abused Icons	03:17
+8.	 Darkness Show in My Face	03:21
+9.	 The Pilgrimage	05:54
+10.	 The Sign of Evil Existence (Rotting Christ cover)	01:43
+11.	 God Possessed	03:32
+12.	 Spiritualized Penetration	03:14	
+
+### "Dogma" 2004, Black Metal
+
+1.	 When Debauchery Ends... (Intro)	03:19	 
+2.	 No Matter	04:17s
+3.	 Martyr of My Pain	05:19
+4.	 Narcotic Love	04:13
+5.	 Hatred Dogma	07:58
+6.	 Acheron&#180;s Walk	04:57
+7.	 Controversial Falsehood	03:52
+8.	 Six, Six, Six	05:21
+9.	 Trapped In Misery	06:15
+10.	 ,,,Begins the Dogma (Outro)	14:21
+
+### "Pythagorized" 2011, Black Metal
+
+1.	 When Dogma Ends Begins Pythagorized	03:56	 
+2.	 Blind	05:07	 
+3.	 Hatred	04:06	 
+4.	 Samos	04:53	 
+5.	 The Secret Room	04:32	 
+6.	 Proplasma of Bow	04:36	 
+7.	 To Amasi of Egypt	04:24	 
+8.	 Патерае Ворае	06:21	 
+9.	 Inside You	05:12	
+
 
 ## Отношения с другими группами
 

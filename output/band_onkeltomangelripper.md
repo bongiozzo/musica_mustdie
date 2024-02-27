@@ -1,15 +1,248 @@
 # Onkel Tom Angelripper
 
-Дискография
-"Ein schoner Tag..." 1997, Thrash
-"Ein Tropfchen voller Gluck..." 1998, Thrash
-"Ein Straus bunter Melodien" 1999, Thrash
-"Das blaueste Album der Welt! - Best of..." 2000, Thrash
-"Ich glaub' nicht an den Weihnachtsmann" 2001, Thrash
-"Lieder Die Das Leben Schriebte DVD" 2004, Thrash
-"Bon Scott hab' ich noch live gesehen (EP)" 2004, Thrash
-"Nunc Est Bibendum" 2011, Thrash
-"H.E.L.D." 2014, Heavy Metal
+Drink thrash-metal from Germany
+
+## Дискография
+
+### "Ein schoner Tag..." 1997, Thrash
+
+01. Kreuzberger Nдchte
+02. Schnaps, das war sein letztes Wort
+03. Diebels Alt
+04. Es gibt kein Bier auf Hawaii
+05. Trink, trink, Brьderlein trink
+06. Delirium
+07. Medley: a.) Bier her  b.) Wir haben
+      Hunger...  c.) Die Musik hat Durst
+      d.) Schon wieder eine Seele vom 
+      Alkohol gerettet  e.) Wir verkaufen
+      unser Oma ihr klein Hдuschen  f.) Jetzt
+      trinkґn ma noch ein Flascherl Wein
+08. Cramba, Caracho, ein Whisky
+09. Ein Prosit der Gemьtlichkeit
+10. When the Beer Goes Marching In
+11. In Mьnchen steht ein Hofbrдuhaus
+12. Der Teufel hat den Schnaps gemacht
+13. Es soll keiner sagen, wer trinkt...
+14. Poppybar
+15. So ein Tag, so wunderschцn wie heute
+
+### "Ein Tropfchen voller Gluck..." 1998, Thrash
+
+01. Medley I  a.) Wenn das so Weitergeht
+      b.) Am 30. Mai ist der Weltuntergang
+      c.) Wer soll das bezahlen  d.) Heute Blau
+      und Morgen Blau  e.) Hell die Glдser
+      klingen  f.) Schenket ein - Schenket ein
+      g.) Wir machen durch bis morgen frьh
+02. Immer wenn ich traurig bin
+03. Nur mit dir
+04. Komm gib mir deine Hand
+05. Ein Trцpfchen voller Glьck
+06. Kampftrinkerlieder
+07. Eins, zwei, drei Bier
+08. Flaschengeist
+09. Sabinchen
+10. Ich leg mein Geld in Bier an
+11. Stammtischweisheit
+12. Der schцnste Platz ist immer an der Theke
+13. Komaclub
+14. Ballermann 666
+15. Feuerwasser
+16. Wochenendalkoholiker
+17. Medley II  a.) Einer geht noch rein
+      b.) StoЯet an  c.) Kornblumenblau
+      d.) Sieben Kisten Bier  e.) Freut euch
+      des Lebens  f.) Oh, wie ist das Schцn
+
+### "Ein Straus bunter Melodien" 1999, Thrash
+
+01. Freundschaftsbund
+02. Medley:  a.) Sieben Tage
+      b.) Wir kommen alle in den Himmel
+      c.) Im Himmel gibtґs kein Bier  d.) Auf
+      der Reeperbahn nachts um halb eins
+      e.) Trinkґn wir nochґn Trцpfchen
+      f.) Prost, Prost Kameraden
+03. Blau blьht der Enzian
+04. Die kleine Kneipe
+05. In Gesellschaft
+06. Einer ist immer...
+07. Ich trink auf Dein Wohl, Marie
+08. Alles hat ein Ende, nur die Wurst...
+09. An der Nordseekьste
+10. Wir machen heutґne Sause
+11. Marmor, Stein & Eisen bricht
+12. Wer hat das Bier erfunden
+13. Der Mann am Klavier
+14. Altbierlied
+15. Johnny Walker
+
+### "Das blaueste Album der Welt! - Best of..." 2000, Thrash
+
+01. Medley  a.) Bier her  b.) Wir haben
+      Hunger...  c.) Die Musik hat Durst
+      d.) Schon wieder eine Seele vom 
+      Alkohol gerettet  e.) Wir verkaufen
+      unser Oma ihr klein Hдuschen  f.) Jetzt
+      trinkґn ma noch ein Flascherl Wein
+02. Medley  a.) Wenn das so Weitergeht
+      b.) Am 30. Mai ist der Weltuntergang
+      c.) Wer soll das bezahlen  d.) Heute Blau
+      und Morgen Blau  e.) Hell die Glдser
+      klingen  f.) Schenket ein - Schenket ein
+      g.) Wir machen durch bis morgen frьh
+03. Medley  a.) Sieben Tage
+      b.) Wir kommen alle in den Himmel
+      c.) Im Himmel gibtґs kein Bier  d.) Auf
+      der Reeperbahn nachts um halb eins
+      e.) Trinkґn wir nochґn Trцpfchen
+      f.) Prost, Prost Kameraden
+04. Medley  a.) Einer geht noch rein
+      b.) StoЯet an  c.) Kornblumenblau
+      d.) Sieben Kisten Bier  e.) Freut euch
+      des Lebens  f.) Oh, wie ist das Schцn
+05. Immer wenn ich traurig bin
+06. Es gibt kein Bier auf Hawaii
+07. So ein Tag, so wunderschцn wie heute
+08. Ich leg mein Geld in Bier an
+09. Kreuzberger Nдchte
+10. Blau blьht der Enzian
+11. Cramba, Caracho, ein Whisky
+12. Trink, trink, Brьderlein trink
+13. Wer hat das Bier erfunden
+14. Der schцnste Platz ist immer an der Theke
+15. Johnny Walker
+
+### "Ich glaub' nicht an den Weihnachtsmann" 2001, Thrash
+
+01. Zuhause bei Onkel Tom
+02. Stille Nacht, heilige Nacht
+03. Ihr Kinderlein kommet
+04. Ich glaub nicht an den Weihnachtsmann
+05. Alle Jahre wieder
+06. O du Frцhliche
+07. Am Weihnachtsbaume
+08. Amerkanisches Weihnachtsmedley:
+      White Christmas
+      Winter Wonderland
+      Let it snow, let it snow, let it snow
+      Santa Claus is coming to town
+      We wish you a merry christmas
+09. Morgen kommt der Weihnachtsmann
+10. Jingle Bells
+11. Frohliche Weihnacht
+12. Kling, Glockchen, Kling
+13. Morgen Kinder wird's was geben
+14. O Tannenbaum
+15. Frohes Fest
+16. Leise rieselt der Schnee 
+
+### "Lieder Die Das Leben Schriebte DVD" 2004, Thrash
+
+01. Guten Tach...!!!
+02. Kampftrinken mit Tom (Wacken 2003)
+03. Immer wenn ich traurig bin (Wacken 2003)
+04. Potpourrie der guten Laune
+a.) Wenn das so weiter geht
+b.) Am 30. Mai ist der Weltuntergang
+c.) Wer soll das bezahlen
+d.) Heute blau und morgen blau
+e.) Wir machen durch bis morgen frьh
+f.) Einer geht noch rein
+g.) Oh wie ist das schцn
+05. Diebels Alt (Wacken 2003)
+06. Alle unter Strom, auЯer die Bьhne (Summer
+Breeze 2001)
+07. Caramba, Caracho ein Whiskey (Wacken 2003)
+08. Bon Scott hab' ich noch live gesehen (Making
+of)
+09. Bon Scott hab' ich noch live gesehen (Das
+Video)
+10. Schnaps das war sein letztes Wort (Wacken
+2003)
+11. Delirium (Wacken 2003)
+12. Kleine Unter"brech"ung mit Tom (Voerde 1999)
+13. In Mьnchen steht ein Hofbrдuhaus (Wacken 2003)
+14. Auf allen Kanдlen (Onkel Tom im TV)
+15. Auf Tour mit Onkel Tom
+16. Im tiefen Keller (Wacken 2003)
+17. Es soll keiner sagen, wer trinkt, der ist
+schlecht (Wacken Roadshow 2003)
+18. Auch Onkel Tom muss proben (Proberaumbesuch)
+19. Medley (Wacken Roadshow 2003)
+a.) Wir haben den Kanal noch lange nicht voll
+b.) Bier her
+c.) Wir haben Hunger
+d.) Die Musik hat Durst
+e.) Jetzt trink'n ma noch ein Flascherl Wein
+f.) Wir versaufen unser Oma ihr klein
+Hдuschen
+g.) Schon wieder eine Seele vom Alkohol
+gerettet
+20. Trink, Brьderlein trink (Wacken Roadshow 2003)
+21. Lagerfeuerromantik mit Onkel Tom
+22. Es gibt kein Bier auf Hawaii (Wacken Roadshow
+2003)
+24. Nach der Show ist vor der Show
+25. .... und Schluss!!!
+
+Bonus
+01. Hauptfilm - Sylvester mit Onkel Tom
+02. Outtakes
+03. Armageddon-Music Past
+04. Armageddon-Music Future
+
+Tom Angelripper - vocals
+Alex Kraft - guitars,vocals
+Sascha 'Motzki' Sattler - bass, vocals
+Sascha Tilger - drums
+
+### "Bon Scott hab' ich noch live gesehen (EP)" 2004, Thrash
+
+
+
+### "Nunc Est Bibendum" 2011, Thrash
+
+1. Nunc Est Bibendum
+2. Wenn Der Zapfhahn Kraeht
+3. Auf Immer Und Ewig 
+4. In Junkers Kneipe 
+5. Format C 
+6. Bier 
+7. Wie Das Glas In Meiner Hand
+8. Lemmy Macht Mir Mut 
+9. Bon Scott Hab Ich Noch Live Gesehen 
+10. Schade Das Man Bier Nicht Ficken Kann 
+11. Ich Hab Dich Zum Fressen Gern 
+12. Ein Heller Und Ein Batzen 
+13. Auf Nach Wacken 
+14. 1516 
+15. Drink Doch Ene Met
+
+
+### "H.E.L.D." 2014, Heavy Metal
+
+01. Flatus Antelucanus (1:03)
+02. Prolligkeit Ist Keine Schande (3:28)
+03. Zu Wahr, Um Scho N Zu Sein (3:50)
+04. Ein Bisschen Alkohol (2:52)
+05. Am Morgen Danach (3:49)
+06. Was Euch Nicht Passt (4:11)
+07. Vom Paradies Gen Su Den (3:52)
+08. Wer Nach Dem Lied Noch Stehen Kann... (3:18)
+09. Der Duft Von Lavendel (4:03)
+10. Im Suff (3:20)
+11. Der Onkel Kommt Zum Hausbesuch (3:04)
+12. Auf Gedeih Und Verderb (3:33)
+13. Ich Bin Noch Am Leben (5:09)
+14. Ruhrpott (Bonus) (4:50)
+15. Die Geister, Die Ich Rief (Bonus) (3:37)
+16. Hidden Track (19:04) 
+
+
+
+
 
 ## Отношения с другими группами
 

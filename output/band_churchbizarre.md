@@ -1,7 +1,33 @@
 # Church Bizarre
 
-Дискография
-"The Closed Chapter" 1996, Death Doom
+
+
+## Дискография
+
+### "The Closed Chapter" 1996, Death Doom
+
+1.  Ephemeral Life 
+2.  My Desire...
+3.  Green Oceans
+4.  Journey Of Sorrow
+5.  Emotions Of Fear
+6.  One Tempting Breeze
+
+Recorded and Mixed at NighLrnare Studi
+Produced by Eckart Erlenbusch & CB
+Mixed and Mastered by Eckart Erlenbusc
+Cover artwork by Stefan Vielsacker
+
+Olaf Langner - Vocals
+Peter Vogel - Guitars
+Chris Fetzner - Guitars
+Jochen Thornas - Bass
+Telat Kambur - Drums, Backing Vocals
+Female Vocals by Jenny Wever
+Keyboards by Mirian Bianconi
+
+(P)c 1996 OTR PROD // OTR 003
+
 
 ## Отношения с другими группами
 

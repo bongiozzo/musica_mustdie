@@ -1,8 +1,42 @@
 # Bethzaida
 
-Дискография
-"Nine Worlds" 1996, Death Doom
-"LXXVIII" 1998, Death Doom
+
+
+## Дискография
+
+### "Nine Worlds" 1996, Death Doom
+
+1.  Dawn (Part II)
+2,  Dividement
+3.  ...And Then I Turned Towards Darkness
+4.  Frozen Wastes
+5.  Nine Worlds
+6.  The Outsider
+7.  The Tranquillity Of My Last Breath
+8.  Burn, Fire For The Ancient Vampire
+9.  Forever Night
+10.1349
+
+Brian III - Guitars, Organ
+Terje Myhre Krabol - Drums
+Lars Ruben Hirsch - Vocals, Flute
+Nils Arve Snadberg - Bass, Upright Bass
+Andre Svee - Guitars
+
+(P)(C) 1996 SEASON OF MIST // SOM 002
+
+### "LXXVIII" 1998, Death Doom
+
+The Blasphemer 
+Wolf's Desire 
+Black Winter 
+The Curtain Falls 
+No Regrets Before Death 
+Lengsel LXXVIII 
+Sumarian Rebirth 
+Brief in the Flame 
+Et Natens Eventyr
+
 
 ## Отношения с другими группами
 

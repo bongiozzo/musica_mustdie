@@ -1,10 +1,44 @@
 # Transatlantic
 
-Дискография
-"SMPTe" 2000, Progressive
-"Bridge Across Forever " 2001, Progressive
-"Live in Europe (2DVD)" 2004, Progressive
-"The Whirlwind" 2009, Progressive
+
+
+## Дискография
+
+### "SMPTe" 2000, Progressive
+
+1. All Of The Above 30:59
+2. We All Need Some Light 05:44
+3. Mystery Train 06:52 
+4. My New World 16:16  
+5. In Held (Twas) In I 17:21 
+
+### "Bridge Across Forever " 2001, Progressive
+
+1. Duel With The Devil 26:43 
+2. Suite Charlotte Pike 14:33
+3. Bridge Across Forever 05:33
+4. Stranger In Your Soul 26:05 
+
+
+### "Live in Europe (2DVD)" 2004, Progressive
+
+
+
+### "The Whirlwind" 2009, Progressive
+
+1. Overture - Whirlwind 09:54
+2. The Wind Blew Them All Away 06:10
+3. On the Prowl 06:03
+4. A Man Can Feel 06:35
+5. Out of the Night 04:22
+6. Rose Colored Glasses 07:54
+7. Evermore 04:10
+8. Set Us Free 05:03
+9. Lay Down Your Life 05:11
+10. Pieces of Heaven 02:17  
+11. Is It Really Happening? 08:11
+12. Dancing with Eternal Glory - Whirlwind 12:04 
+
 
 ## Отношения с другими группами
 

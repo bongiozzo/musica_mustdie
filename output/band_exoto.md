@@ -1,8 +1,62 @@
 # Exoto
 
-Дискография
-"Carnival Of Souls" 1994, Thrash
-"A Thousand Dreams Ago" 1995, Thrash
+
+
+## Дискография
+
+### "Carnival Of Souls" 1994, Thrash
+
+1. Loss Of Identity
+2. Disappearing Silence
+3. Escape The Eternal Sleep
+4. Dignity Of Entrails
+5. Exhume The Beloved
+6. After Death
+7. Immortality As Defence
+8. Necromantic Love-Affair
+9. Ashes From The Past
+10. Final Discorporation
+11. The Visiting Room
+12. Art Of Butchery
+
+ Chris Meynen - Vocals
+ Flip Boonen - Guitars
+ Vic Van Der Steen - Bass
+ Dedier Martens - Drums
+
+All Titles Written By EXOTO
+Produced & Engineered By Tony DeBlock
+Recorded At Midas Studio Lakeren, Dec 1993
+
+(p)&(c) 1994 TESSA Records
+
+### "A Thousand Dreams Ago" 1995, Thrash
+
+1. The World Before You
+2. Behind Your Mind
+3. Screams Inside
+4. Waveyard
+5. She
+6. Spirit Within Me
+7. Anxious For The Light
+8. Deny The Pain
+9. Thoughts
+10.The Fifth Season
+11.Second Murder
+
+All Songs By EXOTO.
+Produced & Engineered By Tony De Block.
+Mixed By Tony De Block.& EXOTO.
+Recorded At Midas Studio, Lokeren, April 1995.
+
+Chris - Vocals
+Flip - Guitar
+Molly - Drums
+Vic - Bass
+Wilek - Guitar
+
+(P)&(C) 1995 BLACK MARK Production
+
 
 ## Отношения с другими группами
 

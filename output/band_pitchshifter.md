@@ -1,7 +1,36 @@
 # Pitchshifter
 
-Дискография
-"P S I Entology Dvd" 2004, Industrial
+
+
+## Дискография
+
+### "P S I Entology Dvd" 2004, Industrial
+
+Live Concert (Nottingham Rock City)
+
+01. Wafer Thin
+02. Chump Change
+03. Genius
+04. Condescension
+05. Virus
+06. Dead Battery
+07. Triad
+08. Hidden Agenda
+09. Microwaved
+10. Please Sir
+11. United Kingdom
+12. What's In It For Me?
+13. W.Y.S.I.W.Y.G.
+
+Remixes:
+
+01. Genius (Shaped Mix)
+02. Keep It Clean (Dirty Mix)
+03. Microwaved (Non-Stick Mix)
+04. Misdirection (Lo-G Mix)
+05. As Seen On TV (Pigface Mix)
+06. Stop Talking So Loud (Quiet Mix)
+
 
 ## Отношения с другими группами
 

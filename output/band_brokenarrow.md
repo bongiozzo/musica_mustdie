@@ -1,7 +1,21 @@
 # Broken Arrow
 
-Дискография
-"Abyss Of Darkness" 2003, Heavy Metal
+
+
+## Дискография
+
+### "Abyss Of Darkness" 2003, Heavy Metal
+
+1. Abyss Of Darkness
+2. Invisible Heroes
+3. The Gothic line
+4. Angels Of Fire
+5. Stalingrad
+6. The Call
+7. Frozen Tears
+8. Isaac Story (Part I)
+9. Isaac Story (Part II)
+
 
 ## Отношения с другими группами
 

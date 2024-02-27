@@ -1,7 +1,13 @@
 # Quick Change
 
-Дискография
-"Circus Of Death" 1988, Thrash
+
+
+## Дискография
+
+### "Circus Of Death" 1988, Thrash
+
+
+
 
 ## Отношения с другими группами
 

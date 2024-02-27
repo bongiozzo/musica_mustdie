@@ -1,7 +1,21 @@
 # Welkin
 
-Дискография
-"The_Origin" 2007, Death Metal
+sonic death-metal from Belgium
+
+## Дискография
+
+### "The_Origin" 2007, Death Metal
+
+1. Loki 
+2. Chapters 
+3. Downfall 
+4. The Weary 
+5. Cynical Breath 
+6. Heartstorm 
+7. Wretched 
+8. Rites 
+9. The Throne
+
 
 ## Отношения с другими группами
 

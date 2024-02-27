@@ -1,7 +1,22 @@
 # Words of Farewell
 
-Дискография
-"Immersion" 2012, Melodic Death Metal
+
+
+## Дискография
+
+### "Immersion" 2012, Melodic Death Metal
+
+01. Project Daybreak
+02. Ever After
+03. End Of Transmission
+04. On Second Thought
+05. Auriga
+06. The Great Escape
+07. Urban Panorama
+08. Sorae
+09. Vagrant Story
+10. Sundown Serenade
+
 
 ## Отношения с другими группами
 

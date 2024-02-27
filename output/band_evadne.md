@@ -1,8 +1,34 @@
 # Evadne
 
-Дискография
-"The 13th Condition" 2007, Death Doom
-"The Shortest Way" 2012, Death Doom
+
+
+## Дискография
+
+### "The 13th Condition" 2007, Death Doom
+
+1. Intro (1:59) 
+2. No One Of Them (6:20) 
+3. Awaiting (8:43) 
+4. Follow In The Loveless (8:33) 
+5. A Decadent Puppet (7:50) 
+6. Wounds That Time Is Unable To Close (8:10) 
+7. Los Temps E Loch (Instrumental) (3:16) 
+8. I Will Place Them (8:08) 
+9. Torn Cry (6:05)
+
+Guest musician: Lady Nott (Narsilion) in vocals and violin 
+
+### "The Shortest Way" 2012, Death Doom
+
+1. No Place for Hope 06:52 
+2. Dreams in Monochrome 07:50 
+3. This Complete Solitude 09:09 
+4. One Last Dress for One Last Journey 08:21 
+5. All I Will Leave Behind 10:54 
+6. The Wanderer 04:26 
+7. Further Away the Light 08:02 
+8. Gloomy Garden 09:28
+
 
 ## Отношения с другими группами
 

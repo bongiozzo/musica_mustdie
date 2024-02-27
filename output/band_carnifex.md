@@ -1,11 +1,38 @@
 # Carnifex
 
-Дискография
-"Dead In My Arms" 2007, Deathcore
-"The Diseased And The Poisoned " 2008, Deathcore
-"Hell Chose Me " 2010, Deathcore
-"Until I Feel Nothing" 2011, Deathcore
-"Die Without Hope" 2014, Deathcore
+
+
+## Дискография
+
+### "Dead In My Arms" 2007, Deathcore
+
+
+
+### "The Diseased And The Poisoned " 2008, Deathcore
+
+
+
+### "Hell Chose Me " 2010, Deathcore
+
+
+
+### "Until I Feel Nothing" 2011, Deathcore
+
+
+
+### "Die Without Hope" 2014, Deathcore
+
+01. Salvation Is Dead
+02. Dark Days
+03. Condemned To Decay
+04. Die Without Hope
+05. Hatred And Slaughter
+06. Dragged Into The Grave
+07. Rotten Souls
+08. Last Words
+09. Reflection Of The Forgotten
+10. Where The Light Dies
+
 
 ## Отношения с другими группами
 

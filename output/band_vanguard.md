@@ -1,7 +1,21 @@
 # Vanguard
 
-Дискография
-"Succumbra" 2005, Gothic
+
+
+## Дискография
+
+### "Succumbra" 2005, Gothic
+
+01. Asylum
+02. Forgive
+03. Amoricide
+04. Excarnation
+05. Ephemeral
+06. Bitheon
+07. Homecoming
+08. Nova
+09. Wurmtod
+
 
 ## Отношения с другими группами
 

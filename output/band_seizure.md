@@ -1,7 +1,31 @@
 # Seizure
 
-Дискография
-"Seriously Delirious" 1991, Thrash
+
+
+## Дискография
+
+### "Seriously Delirious" 1991, Thrash
+
+1. Hand Me Down
+2. Accept Manipulation
+3. Twinge
+4. From Here To Eternity
+5. Fuck It Baby
+6. Extinction
+7. I`m On Fire
+8. Glam Rock Garbage Men
+9. One More Question Please
+10.Anarchy Man
+11.I Don`t Know ?
+12.Chinese Rock
+13.They Look Like Boy Scouts To Me
+14.Jackie
+15.Johnny Too Bad
+16.Kinder Gentler
+17.Winding Down
+
+(p)&(c) 1991 BLACK BOX
+
 
 ## Отношения с другими группами
 

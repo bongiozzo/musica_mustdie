@@ -1,13 +1,163 @@
 # Trail of Tears
 
-Дискография
-"Disclosure in Red" 1999, Death Doom
-"Profoundemonium" 2000, Death Doom
-"A New Dimension of Might" 2002, Death Doom
-"Free Fall Into Fear" 2005, Gothic
-"Existentia" 2007, Gothic
-"Bloodstained Endurance" 2009, Gothic
-"Oscillation" 2013, Gothic
+
+
+## Дискография
+
+### "Disclosure in Red" 1999, Death Doom
+
+When Silence Cries...
+The Daughters Of Innocense
+The Day We Drowned
+Mournful Pigeon
+Swallowed Tears
+Illusion?
+Enigma Of The Absolute
+Words Of The Fly
+Temptress
+The Burden
+
+### "Profoundemonium" 2000, Death Doom
+
+1. Countdown To Ruin
+2. Driven (Through The Ruins)
+3. Fragile Emotional Disorder
+4. Profoundemonium
+5. Sign Of The Shameless
+6. In Frustration's Preludium
+7. In Frustration's Web
+8. Released At Last
+9. Image Of Hope
+10. Disappointment's True Face
+11. The Haunted
+
+### "A New Dimension of Might" 2002, Death Doom
+
+01. Ecstatic
+02. A Fate Sealed in Red
+03. Crashing Down
+04. Obedience in the Abscence of Logic
+05. Liquid View
+06. Denial and Pride
+07. The Call of Lust
+08. Splendid Coma Visions
+09. BloodRed Trance
+10. Caffeine (Faith No More cover)
+
+
+
+Ronny Thorsen - Vocals
+Cathrine Paulsen - Vocals
+Runar Hansen - Lead and acoustic guitars
+Terje Heiseldal - Guitars
+Kjell Rune Hagen - Bass guitar
+Frank Roald Hagen - Synths
+Jonathan Perez - Drums
+
+
+Recorded at Sound suite Studio, France during
+February and March 2002
+Produced by Terje Refsnes and Trail of Tears
+Engineered and mixed by Terje Refsnes
+Mastered by Mika Jussila at Finnvox Studio, Finland
+
+Additional musicians:
+Kjetil Nordhus - clean vocals
+Choirs performed by Damien Surian and Hubert Piazzola
+Cover art credits:
+background art and design by Nieraj Singh;
+foreground art and design by Florian Lacina
+All other art and design by Nieraj Singh
+Photography by Emilie M.E. Ashley
+
+
+
+
+
+### "Free Fall Into Fear" 2005, Gothic
+
+1. The Architect Of My Downfall 04:20  
+2. Joyless Trance Of Winter 05:31  
+3. Drink Away The Demons 05:26  
+4. Point Zero 04:41  
+5. Dry Well Of Life 04:57  
+6. The Face Of Jealousy 03:41  
+7. Carrier Of The Scars Of Life 04:17  
+8. Watch You Fall 03:33  
+9. Frail Expectation 03:39  
+10. Cold Hand Of Retribution 04:56
+
+### "Existentia" 2007, Gothic
+
+1. Deceptive Mirrors
+2. My Comfort
+3. Venom Inside My Veins
+4. Decadence Becomes Me
+5. She Weaves Shadows
+6. The Closing Walls
+7. Empty Room
+8. Poisonous Tongues
+9. As It Penetrates
+10. Shades Of Yesterday
+
+### "Bloodstained Endurance" 2009, Gothic
+
+1. The Feverish Alliance 04:02  
+2. Once Kissed By The Serpent (Twice Bitten By Truth) 03:20  
+3. Bloodstained Endurance 03:35  
+4. Triumphant Gleam 03:40  
+5. In The Valley Of Ashes 03:54  
+6. A Storm At Will 04:00  
+7. Take Aim.Reclaim.Prevail 03:11  
+8. The Desperation Corridors 04:12  
+9. Farewell To Sanity 04:31  
+10. Dead End Gaze 03:57  
+11. Faith Comes Knocking 04:27 
+
+
+Line-up:
+
+Ronny Thorsen - Vocals
+Cathrine Paulsen - Vocals
+Bjшrn Erik Nжss - Guitars
+Pеl Olsen - Guitars
+Endre Moe - Bass
+Cato Jensen - Drums
+
+The CD was recorded and mixed at Sound Suite Studio in Marseille, France with
+producer Terje Refsnes. Mastering duties were handled by Mika Jussila at Finnvox
+Studios in Finland.
+Cover art by Travis Smith.
+
+Release dates:
+May 27 - Finland, Spain
+May 29 - Germany, Austria, Switzerland, Benelux, France, Italy, Sweden
+June 01 - Rest of Europe
+June 02 - USA, Canada
+
+The limited edition digipak contains one bonus song:
+12. Onward March The Merciless (03:08
+
+### "Oscillation" 2013, Gothic
+
+1. Waves Of Existance
+2. Sceam Out Loud
+3. Crimson Leads On The Trail Of Tears
+4. Oscillation
+5. Path Of Destruction
+6. Vultures Guard My Shadow
+7. The Dawning
+8. Room 306
+9. Our Grave Philosophy
+10. Lost In Life
+11. Eradicate
+12. Sleep Forever (bonus)
+13. Quick Fix Of Shame (bonus)
+
+Recorded at Soundsuite Studio, Marseille - France September/October 2011
+Mixed at Mayhem Music Studios, Kristiansand - Norway during various intervals 2012
+Mastered at Finnvox Studios - Finland December 2012
+
 
 ## Отношения с другими группами
 

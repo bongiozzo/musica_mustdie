@@ -1,8 +1,24 @@
 # Pulsar
 
-Дискография
-"Солнце бессмертных" 2003, Heavy Metal
-"Civilization" 2005, Power Metal
+
+
+## Дискография
+
+### "Солнце бессмертных" 2003, Heavy Metal
+
+1. Путь к Фортуне
+2. Солнце Бессмертных
+3. Пегас
+4. Орден Креста
+5. Моя Любовь, Моя Печаль
+
+### "Civilization" 2005, Power Metal
+
+1. The Voice of the Earth
+2. Civilization
+3. Fire and Ice
+4. Eternity
+
 
 ## Отношения с другими группами
 

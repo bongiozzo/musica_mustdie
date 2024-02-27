@@ -1,7 +1,18 @@
 # Soulrelic
 
-Дискография
-"Hollow Craving (promo CD)" 2004, Gothic
+Finnish gothic melodic rock
+
+## Дискография
+
+### "Hollow Craving (promo CD)" 2004, Gothic
+
+Hollow Craving promo CD
+
+1. Hollow Craving 
+2. Kiss of a Saint 
+3. Dying Angels 
+4. Hollow Craving video
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,13 @@
 # Dwergamal
 
-Дискография
-"Battlecraft" 2006, Black Metal
+
+
+## Дискография
+
+### "Battlecraft" 2006, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

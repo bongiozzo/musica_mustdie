@@ -1,7 +1,33 @@
 # Eternal Suffering
 
-Дискография
-"Drowning In Tragedy" 1999, Death Metal
+
+
+## Дискография
+
+### "Drowning In Tragedy" 1999, Death Metal
+
+1. intro :33
+2. my once shadowed desire 3:18
+3. drown in the candles flame 4:06
+4. let the dark waters flow 6:44
+5. the warmth in her torment 5:33
+6. trail of blood to the altar 4:41
+7. love can never conquer hate 4:06
+8. buried under blackend tears 4:12
+9. rise 4:15
+10. to sadness, betrothed 5:49
+11. t.t.p. 3:58
+
+all music written and performed by   Eternal Suffering
+all lyrics by   Wayne Sarantopoulos
+recorded and mixed at   Tritricon Studios, Avon, CT
+recorded on   August 15, 16, 17 - 1998
+recorded by   Jason Suecof
+mixed by   Jason Suecof and Eternal Suffering
+mastered by   Sutton Sound Studios, August 1999
+
+
+
 
 ## Отношения с другими группами
 

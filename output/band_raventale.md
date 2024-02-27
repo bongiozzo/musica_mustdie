@@ -1,11 +1,58 @@
 # Raventale
 
-Дискография
-"На Хрустальных Качелях" 2006, Black Metal
-"Давно Ушедших Дней" 2008, Black Metal
-"Mortal Aspirations" 2009, Black Metal
-"After" 2010, Black Metal
-"Bringer Of Heartsore" 2011, Black Metal
+
+
+## Дискография
+
+### "На Хрустальных Качелях" 2006, Black Metal
+
+1. Пролог
+2. Огнем Кромсая Небеса
+3. Серой Тоской Пораскинулся Лес
+4. Небес Смолистая Чернь
+5. Дождя Колыбель
+6. На Хрустальных Качелях
+
+### "Давно Ушедших Дней" 2008, Black Metal
+
+1. Скрежетом Боли (Ностальгия) / By Gritting of Pain (Nostalgia) 09:13
+2. Давно Ушедших Дней / Of Days Long Past 10:51
+3. Ввысь За Горизонт / Up and Beyond the Horizon (Both Like Birds) 03:27  
+4. Sunset of the Age (Anathema cover) 08:25
+5. Из Времени Черных Колодцев / From the Black Wells of Time 07:11
+6. Вдаль Уходящий Мой Силуэт / My Silhouette Leaving Far Away 05:21 
+
+### "Mortal Aspirations" 2009, Black Metal
+
+1. The Fall of the Mortal Aspirations 09:23
+2. Cosmos Inside 01:10
+3. My Birds of Misfortune 08:11
+4. A Fading Scent of Cinnamon and Naked 09:32 
+5. Watching a Luna Becomes Thy Face 01:11
+6. The Silhouette of Despair 06:33
+7. Escape to the Stars 03:27
+8. Suicide As the Destined End 10:54 
+9. A Ravens Fade 02:11 
+
+### "After" 2010, Black Metal
+
+1. Gone 10:05  
+2. After 05:02  
+3. Youth 05:11  
+4. Flames 06:53  
+5. - 07:20 
+
+### "Bringer Of Heartsore" 2011, Black Metal
+
+1. Anything Is Void
+2. Twilight, The Vernal Dusk
+3. These Days Of Sorrow
+4. Breathing The Scent Of Death
+5. Prologue: Sailing To Further
+6. The Last Afterglow Burned
+7. Detachment And Solitude
+8. Epilogue: Alone With Heartsore
+
 
 ## Отношения с другими группами
 

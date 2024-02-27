@@ -1,8 +1,17 @@
 # Dr.Faust
 
-Дискография
-"Intoxication" 1996, Death Metal
-"Bad Time, Bad Place" 2002, Death Metal
+Death-grind
+
+## Дискография
+
+### "Intoxication" 1996, Death Metal
+
+
+
+### "Bad Time, Bad Place" 2002, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

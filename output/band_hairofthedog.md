@@ -1,7 +1,25 @@
 # Hair Of The Dog
 
-Дискография
-"Rise" 2000, Hard Rock
+
+
+## Дискография
+
+### "Rise" 2000, Hard Rock
+
+Rise 
+Five To Nine 
+Color Me Fire 
+You Are The One 
+Mokur Jahoobees 
+I Can't Fight You 
+Rescue Me 
+Bum Jenkins 
+Twice 
+The Almighty Strut 
+Sometimes Is Enough 
+Hammered 
+I
+
 
 ## Отношения с другими группами
 

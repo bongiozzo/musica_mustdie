@@ -1,8 +1,29 @@
 # King of Asgard
 
-Дискография
-"Fi'mbulvintr" 2010, Viking Metal
-"...to North" 2012, Viking Metal
+
+
+## Дискография
+
+### "Fi'mbulvintr" 2010, Viking Metal
+
+1. Intro
+2. Einharjar
+3. Vamods Tale
+4. The Last Journey
+5. Never Will You Know of Flesh Again
+6. Wrath of the Gods
+7. Snake Tongue
+8. Brethren of the North
+9. Day of Sorrow
+10. Lingering a Sacred Ground
+11. Heroes' Brigade
+12. Strike of the Hammer
+13. Fi'mbulvintr (Outro)
+
+### "...to North" 2012, Viking Metal
+
+
+
 
 ## Отношения с другими группами
 

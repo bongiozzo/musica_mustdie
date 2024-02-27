@@ -1,7 +1,21 @@
 # Berserker
 
-Дискография
-"Dark Worlds Collide" 2016, Gothic
+
+
+## Дискография
+
+### "Dark Worlds Collide" 2016, Gothic
+
+1. Intro 
+2. Dark Worlds Collide
+3. Warhell	 
+4. Madness Machine 
+5. The Day Human Died
+6. Wolf 
+7. Prelude 
+8. Viking Ship	 
+9. Musis uz Zeme
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,40 @@
 # Fullforce
 
-Дискография
-"One" 2011, Heavy Metal
-"Next Level" 2012, Heavy Metal
+
+
+## Дискография
+
+### "One" 2011, Heavy Metal
+
+01. Mythomaniac (4:02)
+02. None Of Your Concern (3:35)
+03. Heart And Soul (3:31)
+04. Oblivion (4:53)
+05. Open Your Eyes (4:25)
+06. Rain (4:33)
+07. Suffering In Silence (3:06)
+08. Walls Of Secrets (4:33)
+09. Father Spirit (4:51)
+10. Bleed (5:07)
+11. Into The Cradle (5:01)
+12. Best Of Times (iTunes bonus track) (3:49)
+
+### "Next Level" 2012, Heavy Metal
+
+1. Broken Dreams 
+2. Break It, Crack It, Destroy It 
+3. Back To Life 
+4. A Night To Remember 
+5. Karma 
+6. Whispers 
+7. Smile At The World 
+8. Hate... Love... Drop It! 
+9. Visions 
+10. Course Of Life 
+11. Awesomeness 
+12. Mysterious Ways 
+13. Strongest Thing Of All
+
 
 ## Отношения с другими группами
 

@@ -1,9 +1,80 @@
 # SSS
 
-Дискография
-"s/t" 2007, Punk
-"The Dividing Line" 2008, Hardcore
-"Problems To The Answer" 2011, Hardcore
+Short Sharp Shock
+
+## Дискография
+
+### "s/t" 2007, Punk
+
+1. Quiet Before the Storm 01:24  
+2. Warhorse 01:50  
+3. New Dogs 01:28  
+4. The Answer is Never 01:33  
+5. Damaged Goods 01:35  
+6. Overload 02:52  
+7. Monster 02:22  
+8. SSS 01:28  
+9. Gearin' Up For Gettin' Down 01:35  
+10. The Beast 02:27  
+11. Last Man Standing 01:59  
+12. Hallowed Grey 01:58  
+13. Oj Skyrkts 02:21  
+14. Lbp 01:10  
+15. Son of a Beast 01:37  
+16. I'm Sick 03:27  
+17. Black Night White Light 06:53 
+
+### "The Dividing Line" 2008, Hardcore
+
+1. The Dividing Line 01:20  
+2. Oil And Water 00:43  
+3. The Bastard Stench 00:57  
+4. Waiting Game 00:29  
+5. Toxic Bee 01:41  
+6. Thrash With A Small Moustache 02:05  
+7. Can't Burst The Bubble 01:49  
+8. Bored 00:21  
+9. Invertebrate 02:02  
+10. Purple Reign 02:34  
+11. Hammerhead 01:50  
+12. Sk8+Destroy 00:49  
+13. Ride The Best - Fuck The Rest 01:40  
+14. Flick The Switch 01:50  
+15. Time's Up 01:37  
+16. Street Leech 02:10  
+17. Cherry Island 01:27  
+18. 3.06 00:56  
+19. Last Defence 02:17  
+20. Unrest In The Northwest 04:03 
+
+### "Problems To The Answer" 2011, Hardcore
+
+01. The Kill Floor 02:15
+02. Out the Loop 00:48
+03. Birdshit 00:15
+04. Laughing Leads to Crying 00:53
+05. White Bread 00:31
+06. Eat Me Drink Me Burn Me 02:13
+07. Foreign Body Plot 01:58
+08. Roar 01:01
+09. Sick Pleasures 01:13
+10. Direct Action 00:00
+11. What Would Cards Do? 00:35
+12. Man Against Man 02:14
+13. Tales out of School 01:41
+14. Rats Nest 01:22
+15. Cathode Control 01:15
+16. Painting by Numbers 00:39
+17. Quick Fix 00:26
+18. Future Primitive 04:10
+19. Trapped Inside Two States of Mind 01:09
+20. Politics of Convenience 01:22
+21. Here Comes the Neighbourhood 01:53
+22. Deep Sleep 01:32
+23. Speed Freaks 01:38
+24. Dismantle the Dream 02:34
+25. Strangenotes 07:50
+
 
 ## Отношения с другими группами
 

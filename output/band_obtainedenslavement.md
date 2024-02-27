@@ -1,8 +1,17 @@
 # Obtained Enslavement
 
-Дискография
-"Soulblight" 1999, Black Metal
-"The Shepherd And The Hounds Of Hell" 2000, Black Metal
+
+
+## Дискография
+
+### "Soulblight" 1999, Black Metal
+
+
+
+### "The Shepherd And The Hounds Of Hell" 2000, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

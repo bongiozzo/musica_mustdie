@@ -1,30 +1,404 @@
 # Vader
 
+Poland's Brutal Death Metal
+
+## Дискография
+
+### "The Ultimate Incantation" 1992, Death Metal
+
+1. Creation (Intro)
+2. Dark Age
+3. Vicious Circle
+4. The Crucified Ones
+5. Final Massacre
+6. Testimony
+7. Reign Carrion
+8. Chaos
+9. One Step To Salvation
+10.Demon`s Wind
+11.Decapitated Saints
+12.Breath Of Centuries
+
+ Peter - Vocals,Guitar
+ China - Guitar
+ Jackie - Bass
+ Doc - Drums
+
+All Music & Lyrics By VADER.
+Produced By Paul Johnson.
+Recorded At Rhythm Studio,England.
+
+(p)&(c) 1992 EARACHE Records
+
+### "De Profundis" 1995, Death Metal
+
+1.  Silent Empire
+2.  An Act Of Darkness
+3.  Blood Of Kings
+4.  Incarnation
+5.  Sothis
+6.  Revolt
+7.  Of Moon, Blood, Dream And Me
+8.  Vision And The Voice
+9.  Reborn In Flames
+
+Produced By VADER & Adam Toczko.
+Engineered By Adam Toczko & Tom Bonarowski.
+Mastered By Grzogorz Piwkowski
+Recorded & mixed At Modern Sound Studio
+Cover Artwork By Wes Benscoter
+
+Doc - Drums
+Shamboi - Bass
+Peter - Guitars, Vocals
+China - Guitars
+
+(P)c 1996 SYSTEM SHOCK Records
+
+### "An Act of Darkness" 1995, Death Metal
+
+1. I Feel You
+2. An Act Of Darkness
+
+(p)(c) 1996 SYSTEM SHOCK IR-C-059
+
+### "Future of the Past" 1996, Death Metal
+
+1. Outbreak Of Evil (SODOM)
+2. Flag Of Hate (KREATOR)
+3. Storm Of Stress (TERRORIZER)
+4. Death Metal (POSSESSED)
+5. Fear Of Napalm (TERRORIZER)
+6. Merciless Death (DARK ANGEL)
+7. Dethroned Emperor (CELTIC FROST)
+8. Silent Scream (SLAYER)
+9. We Are The League (ANTI-NOWHERE LEAGUE)
+10.I.F.Y. (DEPECHE MODE)
+11.Black Sabbath (BLACK SABBATH)
+
+"We'd like to deidcate this album to the bands which inspired us in the very beginning..." Peter
+
+Engineered By Andy Bomba & Tom Bonarowski.
+Mastered By Greg Piwkowski
+Recorded & Mixed At Selani Studio.
+Cover Artwork By Krzystof Iwin.
+
+Doc - Drums
+Shamboi - Bass
+Peter - Guitars, Vocals
+China - Guitars
+
+(P)c 1997 SYSTEM SHOCK Records
+
+### "Black to the Blind" 1997, Death Metal
+
+1.   Heading for Internal Darkness (Frelik/Wiwczarak) 
+2.   The Innermost Ambience (Wasilewski/Wiwczarak) 
+3.   Carnal (Wasilewski/Wiwczarak) 
+4.   Fractal Light (Frelik/Wiwczarak) 
+5.   True Names (Frelik/Wiwczarak) 
+6.   The Beast Raping (Wiasilewski/Wiwczarak) 
+7.   Foetus God (Wiasilewski/Wiwczarak) 
+8.   The Red Passage (Wiasilewski/Wiwczarak) 
+9.   Distant Dream (Krajewski/Wiwczarak) 
+10.   Black to the Blind (Wasilewski/Wiwczarak) 
+
+
+### "Reborn in Chaos" 1997, Death Metal
+
+1.   From Beynond/Intro 
+2.   Chaos 
+3.   Vicious Circle 
+4.   Breath of Centuries 
+5.   Intro 
+6.   The Final Massacre 
+7.   Reign-Carrion 
+8.   Intro 
+9.   Decaptitaded Saints 
+10.   Reborn in Flames 
+11.   The Final Massacre 
+12.   The Wrath 
+
+
+### "Kingdom" 1998, Death Metal
+
+1.   - 24:35 
+2.   Creatures of Light and Darkness (Frelik/Wiwezarek) - 3:21 
+3.   Breath of Centuries (Wasilewski/Wiwezarek) - 4:34 
+4.   Kingdom (Krajewski/Wiwezarek) - 3:05 
+5.   Anamnesis (Wasilewski/Wiwezarek) - 3:05 
+6.   Inhuman Disaster Mix [*] (Frelik/Wiwezarek) - 7:17 
+7.   For Internal Darkness/Quicksilver Blood... (Wasilewski/Wiwezarek) - 7:23 
+
+
+### "Litany" 2000, Death Metal
+
+1.   Wings (Frelik/Wiwczarek) - 3:11 
+2.   The One Made of Dreams (Frelik/Wiwczarek) - 1:49 
+3.   Xeper (Frelik/Wiwczarek) - 4:01 
+4.   Litany (Frelik/Wiwczarek) - 3:01 
+5.   Cold Demons (Wiwczarek) - 3:11 
+6.   The Calling (Frelik/Wiwczarek) - 3:10 
+7.   North (Frelik/Wiwczarek) - 1:36 
+8.   Forwards to Die !!! (Wiwczarek) - 1:38 
+9.   A World of Hurt (Frelik/Wiwczarek) - 1:52 
+10.  Red Dunes [*] (Wiwczarek) - 1:12 
+11.  Lord of Desert [*] (Frelik/Wiwczarek) - 1:59 
+12.  The Word Made Flesh (Frelik/Wiwczarek) - 2:48 
+13.  The Final Massacre (Frelik/Wiwczarek) - 4:32 
+
+
+### "Reign Forever World" 2001, Death Metal
+
+1.   Reign Forever World (Szurminski/Wiwczarek) - 4:01 
+2.   Frozen Paths (Szurminski/Wiwczarek) - 2:13 
+3.   Privilege of Gods (Szurminski/Wiwczarek) - 4:54 
+4.   Total Desaster (Destruction) - 3:10 
+5.   Rapid Fire (Priest) - 3:20 
+6.   Freezing Moon (Mayhem [1]) - 5:42 
+7.   North [live] (Frelik/Wiwczarek) - 2:13 
+8.   Forward to Die! (Wiwmczarek) - 2:11 
+9.   Creature of Light and Darkness [live] (Frelik/Wiwczarek) - 3:09 
+10.   Carnal [live] (Wasilewski/Wiwczarek) - 2:33 
+
+
+### "Revelations" 2002, Death Metal
+
+1. Epitaph
+2. The Nomad
+3. Wolftribe
+4. Whisper
+5. When Darkness Calls
+6. Torch of War
+7. The Code
+8. Lukewarm Race
+9. Revelation of Black Moses
+
+Produced by Piotr Wiwczarek 
+Engineered by Piotr Јukaszewski
+Recorded & mixed at Red Studio, Gdaсsk, February / March 2002
+Premastered & mastered by Bartek Kuџniak at Studio 333, Czкstochowa
+
+Peter (guitars, vocals)
+Doc (drums)
+Mauser (guitars)
+Simon (bass)
+
+### "More Vision And The Voice (dvd)" 2002, Death Metal
+
+Omen (intro)
+Sothis
+Distant Dream
+Silent Empire
+Blood Of Kingu
+Black To The Blind
+Reborn In Flames
+Carnal
+Dark Age
+Kingdom
+Foetus God
+Black Sabbath
+Red Passage
+
+Видео:
+- Incarnated
+- Kingdom
+- Cold Demons
+
+Видеозаписи с No Mercy Festivals 2001:
+Intro / Dark Age
+Crucified Ones
+Carnal
+Wings
+Red Passage
+Intro / Xeper
+Cold Demons
+Blood Of Kingu
+
+Биография
+Интервью с Peter
 Дискография
-"The Ultimate Incantation" 1992, Death Metal
-"De Profundis" 1995, Death Metal
-"An Act of Darkness" 1995, Death Metal
-"Future of the Past" 1996, Death Metal
-"Black to the Blind" 1997, Death Metal
-"Reborn in Chaos" 1997, Death Metal
-"Kingdom" 1998, Death Metal
-"Litany" 2000, Death Metal
-"Reign Forever World" 2001, Death Metal
-"Revelations" 2002, Death Metal
-"More Vision And The Voice (dvd)" 2002, Death Metal
-"Blood [EP]" 2003, Death Metal
-"The Beast" 2004, Death Metal
-"The Art Of War [EP]" 2005, Death Metal
-"Impressions in Blood" 2006, Death Metal
-"And Blood Was Shed In Warsaw (DVD)" 2007, Death Metal
-"XXV" 2008, Death Metal
-"Necropolis" 2009, Death Metal
-"Welcome To The Morbid Reich" 2011, Death Metal
-"Go to Hell (single)" 2014, Death Metal
-"Tibi Et Igni" 2014, Death Metal
-"Future Of The Past II - Hell In The East" 2015, Death Metal
-"Iron Times (EP)" 2016, Death Metal
-"Empire" 2016, Death Metal
+Фотогалерея
+и др.
+
+### "Blood [EP]" 2003, Death Metal
+
+
+
+### "The Beast" 2004, Death Metal
+
+01. Intro
+02. Dark Transmission
+03. Firebringer
+04. The Sea Came In At Last
+05. I Shall Prevail
+06. The Zone
+07. Insomnia
+08. Apopheniac
+09. Choices
+10. Stranger In the Mirror (Japanese bonus track)
+
+### "The Art Of War [EP]" 2005, Death Metal
+
+1. Para Bellum 
+2. This Is The War
+3. Lead Us !!! 
+4. Banners On The Wind
+5. What Colour Is Your Blood?
+6. Death In Silence 
+7. This Is The War (video)
+
+### "Impressions in Blood" 2006, Death Metal
+
+1. Between Day and Night
+2. ShadowsFear
+3. As Heavens Collide...
+4. Helleluyah!!! (God is Dead)
+5. Field of Heads
+6. Predator
+7. Warlords
+8. Red Code
+9. Amongst the Ruins
+10. They Live!!!
+11. The Book
+12. Raining Blood (japan bonus)
+
+### "And Blood Was Shed In Warsaw (DVD)" 2007, Death Metal
+
+
+
+### "XXV" 2008, Death Metal
+
+
+
+### "Necropolis" 2009, Death Metal
+
+1. Devilized 03:19  
+2. Rise of the Undead 03:52  
+3. Never Say My Name 02:01  
+4. Blast 01:50  
+5. The Seal 02:10  
+6. Dark Heart 02:59  
+7. Impure 03:40  
+8. Summoning the Future 01:05  
+9. Anger 02:14  
+10. We Are The Horde 03:10  
+11. When the Sun Drowns in Dark 07:06 
+Bonus:
+12) Black Metal (03:13)
+(Venom cover w/ guest Bart Krysiuk from HERMH)
+13) Fight Fire With Fire (04:05)
+(Metallica cover w/ guest Maciek Taff from ROOTWATER, BLACK RIVER)
+
+Line-up :
+Piotr "Peter" Wiwczarek - Vocals, Guitar
+Wacіaw "Vogg" Kieіtyka - Guitar
+Tomasz "Reyash" Rejek - Bass
+Paweі "Paul" Jaroszewicz - Drums
+
+Recorded at Hertz Studio in Bialystok, Poland with the Wieslawski Bros.
+Mixed by Tue Madsen at Antfarm Studio in Denmark.
+Cover art by Jacek Wisniewski.
+
+Bonus DVD: "To Live!!!"
+Track List:
+1) Crucified Ones
+2) Black To The Blind
+3) The Epitaph
+4) Carnal
+5) Wings
+6) This Is The War
+7) Lead Us!!!
+
+The bonus DVD features a part of a charity show for Covan (Decapitated) the
+band played on April 26 in Krakow. The show recorded by 5 cameras, dynamic
+editing and HD quality - all that made by Inbornmedia Company from Wroclaw. 
+
+
+
+### "Welcome To The Morbid Reich" 2011, Death Metal
+
+1. Ultima Thule  00:49  
+2. Return to the Morbid Reich  03:26   
+3. The Black Eye  04:12    
+4. Come and See My Sacrifice  04:44    
+5. Only Hell Knows  02:13    
+6. I Am Who Feasts Upon Your Soul  04:50
+7. Don't Rip the Beast's Heart Out  03:58   
+8. I Had a Dream…  03:02  
+9. Lord of Thorns  02:38   
+10. Decapitated Saints  02:41 
+11. They Are Coming…  01:46  
+12. Black Velvet and Skulls of Steel  03:19 
+
+Limited edition digipak and iTunes edition have the following two bonus tracks: 
+
+13. Troops Of Tomorrow (The Vibrators cover) [04:56]
+14. Raping The Earth (Extreme Noise Terror cover) [01:54]
+
+### "Go to Hell (single)" 2014, Death Metal
+
+1. Where Angels Weep  02:19  
+2. Triumph of Death  03:55 
+
+
+### "Tibi Et Igni" 2014, Death Metal
+
+1. Go to Hell  04:36    
+2. Where Angels Weep  02:18  3
+3. Armada on Fire  03:50    
+4. Triumph of Death  03:45   
+5. Hexenkessel  05:28    
+6. Abandon All Hope  02:23    
+7. Worms of Eden  03:34    
+8. The Eye of the Abyss  06:45   
+9. Light Reaper  04:28  
+10. The End  04:55    
+
+
+
+Recorded between December 2013 and February 2014 at Hertz Studio in Bialystok, Poland.
+
+ Digipak bonus tracks:
+ 11. Necropolis (4:15)
+ 12. Des Satans neue Kleider (Das Ich cover) (4:44)
+
+ Bonus 7“ vinyl version:
+ Side A: 01. Necropolis
+ Side B: 01. Przeklкty Na Wieki (Cursed Eternally) (6:36) 
+
+### "Future Of The Past II - Hell In The East" 2015, Death Metal
+
+01. Ostatni Diakon (Exorcist cover)
+02. Noc Demona (Ghost cover)
+03. Necronomicon (Imperator cover)
+04. Totalni Destrukce (Krabathor cover)
+05. Sen Schizofrenika (Markiz De Sade cover)
+06. The Beginning Of Darkness (Merciless Death cover)
+07. Ostatni Sakrament (Scarecrow cover)
+08. No Return (Slashing Death cover)
+09. Czas Apokalipsy (Slaughter cover)
+10. Necromaniac (Thanatos cover)
+11. Czarny Anio&#322; (Thrasher Death cover)
+12. Wyrocznia (Kat cover)
+
+### "Iron Times (EP)" 2016, Death Metal
+
+
+
+### "Empire" 2016, Death Metal
+
+01. Angels of Steel
+02. Tempest
+03. Prayer to the God of War
+04. Iron Reign
+05. No Gravity
+06. Genocidius
+07. The Army-Geddon
+08. Feel My Pain
+09. Parabellum
+10. Send Me Back to Hell
+
 
 ## Отношения с другими группами
 

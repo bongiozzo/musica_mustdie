@@ -1,6 +1,9 @@
 # Front Line Assembley
 
-Дискография
+synthpop-industrial
+
+## Дискография
+
 
 ## Отношения с другими группами
 

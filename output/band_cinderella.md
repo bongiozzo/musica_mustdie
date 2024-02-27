@@ -1,13 +1,172 @@
 # Cinderella
 
-Дискография
-"Night Songs" 1986, Glam
-"Long Cold Winter" 1988, Glam
-"Heartbreak Station" 1990, Glam
-"Live Train To Heartbreak Station" 1991, Glam
-"Still Climbing" 1994, Glam
-"Once Upon A..." 1997, Glam
-"Live At The Mohegan Sun (Live)" 2010, Glam
+Hair Metal '80s from Pennsylvania
+
+## Дискография
+
+### "Night Songs" 1986, Glam
+
+1. Night Songs
+2. Shake Me
+3. Nobody's Fool
+4. Nothin' For Nothin'
+5. Once Around We Ride
+6. Hell On Wheels
+7. Somebody Save Me
+8. In From The Outside
+9. Push,Push
+10.Back Home Again
+
+ Fred Coury - Drums
+ Tom Keifer - Lead Vocals,Guitar,Piano
+ Eric Brittingham - Bass,Vocals
+ Jeff Labar - Guitar,Vocals
+
+(p)&(c) 1986 POLYGRAM Records Inc.
+
+Jon Bon Jovi  -  Vocals (bckgr) 
+Jeff Paris  -  Keyboards 
+Eric Brittingham  -  Bass, Vocals 
+Jody Cortez  -  Drums 
+Fred Coury  -  Drums 
+Nick DiDia  -  Assistant Engineer 
+Andy Johns  -  Producer, Engineer 
+Tom Keifer  -  Guitar, Piano, Vocals 
+Jeff LaBar  -  Guitar, Vocals 
+Mark McKenna  -  Assistant Engineer 
+Tony Mills  -  Vocals (bckgr) 
+Paul Wertheimer  -  Assistant Engineer 
+Bill Mattson  -  Vocals (bckgr) 
+Mark Weiss  -  Photography 
+George Corsillo  -  Design 
+Bill Levy  -  Art Direction 
+Joe Hauserman  -  Assistant Engineer 
+Emily Pember  -  Artwork 
+Barry Bennedetta  -  Guitar 
+Dave Glover  -  Assistant Engineer 
+
+
+### "Long Cold Winter" 1988, Glam
+
+1.    Bad Seamstress Blues/Fallin' Apart at the Seams - 5:23
+2.    Gypsy Road - 4:05
+3.    Don't Know What You Got (Till It's Gone) - 5:56
+4.    The Last Mile - 3:25
+5.    Second Wind - 3:57
+6.    Long Cold Winter - 5:22
+7.    If You Don't Like It - 4:13
+8.    Coming Home - 4:55
+9.    Fire and Ice - 3:19
+10.    Take Me Back - 3:16
+
+All music written by Tom Keifer,
+except track 7 written by Eric Brittingham & Tom Keifer
+
+Jeff Labar: Guitar, Vocals
+Tom Keifer: Lead Vocals, Guitar
+Eric Brittingham: Bass, Vocals
+Fred Coury: Drums
+
+Produced & Engineered by Andy Johns
+Mixed by Michael Barbiero & Steve Thompson
+Mixing Assistants: George Cowan, Ryan Dorn
+Assistant Engineer: Tom Cadley
+Self Drums and Percussion: Paulinho Da Costa, Denny Carmassi, Cozy Powell
+Keyboards by Kurt Shore, John Webster
+Synthesizer, Piano, Hammond Organ by Rick Criniti
+Art Directors: Patti Drosins, Patti Drosins
+Pedal Steel by Jay Levin
+Photography by Tim White
+Designed by Mitchell Kanner
+Make-Up by Kelly Quan
+Photo Assistance by Russell Ward
+
+### "Heartbreak Station" 1990, Glam
+
+1.  The More Things Change
+2.  Love's Got Me Doin' Time
+3.  Shelter Me
+4.  Heartbreak Station
+5.  Slick For The Cure
+6.  One For Rock And Roll
+7.  Dead Man's Road
+8.  Make Your Own Way
+9.  Electric Love
+10.  Love Gone Bad
+11.  Winds Of Change
+
+Fred Coury - Drums
+Tom Keifer - Lead Vocals,Guitar,Piano
+Eric Brittingham - Bass,Vocals
+Jeff Labar - Guitar,Vocals
+
+(p)&(c) 1990 POLYGRAM Records Inc.
+
+### "Live Train To Heartbreak Station" 1991, Glam
+
+
+
+### "Still Climbing" 1994, Glam
+
+1. Bad Attitude Shuffle
+2. All Comes Down
+3. Talk Is Cheap
+4. Hard To Find The Words
+5. Blood From A Stone
+6. Still Climbing
+7. Freewheelin'
+8. Through The Rain
+9. Easy Come Easy
+10.The Road's Still Long
+11.Hot & Bothered
+
+(p)&(c) 1994 POLYGRAM Records Inc.
+
+Kenny Aronoff  -  Drums 
+Duane Baron  -  Producer, Engineer, Mixing 
+Carla Benson  -  Vocals (bckgr) 
+Evette Benton  -  Vocals (bckgr) 
+Eric Brittingham  -  Bass 
+Fred Coury  -  Drums 
+Jay Davidson  -  Sax (Baritone), Sax (Tenor) 
+Annette Hardeman  -  Vocals (bckgr) 
+Tom Keifer  -  Guitar (Acoustic), Guitar, Guitar (Electric), Vocals, Vocals (bckgr), Producer 
+Jeff LaBar  -  Guitar 
+Gary Lyons  -  Producer, Engineer, Mixing 
+George Marino  -  Mastering 
+Luana Norman  -  Vocals (bckgr) 
+John Purdell  -  Percussion, Piano, Organ (Hammond), Vocals (bckgr) 
+Brian Stover  -  Assistant 
+Carl Glanville  -  Assistant 
+Gary Corbett  -  Keyboards 
+Margery Greenspan  -  Art Direction 
+Jeffrey Schulz  -  Design 
+Charlene Halloway  -  Vocals (bckgr) 
+Steve Jankowski  -  Trumpet, Trombonium 
+Anthony Artiaga  -  Photography 
+
+
+### "Once Upon A..." 1997, Glam
+
+
+
+### "Live At The Mohegan Sun (Live)" 2010, Glam
+
+01. Intro 1:36
+02. Night Songs 3:16
+03. The Last Mile 3:16
+04. Somebody Save Me 3:40
+05. Heartbreak Station 5:18
+06. Coming Home 5:29
+07. Shelter Me 5:42
+08. Nobody's Fool 6:35
+09. Gypsy Road 4:31
+10. Don't Know What You Got (Till It's Gone) 6:14
+11. Shake Me 6:25
+12. Fallin Apart At The Seams 5:10
+13. Push Push 2:51
+14. Still Climbing 4:27
+
 
 ## Отношения с другими группами
 

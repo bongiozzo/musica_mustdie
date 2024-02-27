@@ -1,8 +1,55 @@
 # Mayan
 
-Дискография
-"Quarterpast (Symphonic Death Metal Opera)" 2011, Metal
-"Antagonise" 2014, Metal
+
+
+## Дискография
+
+### "Quarterpast (Symphonic Death Metal Opera)" 2011, Metal
+
+1. Symphony Of Aggression  07:49  
+2. Mainstay Of Society (In The Eyes Of The Law: Corruption)  05:25  
+3. Quarterpast  01:35  
+4. Course Of Life  06:10   
+5. The Savage Massacre (In The Eyes Of Law: Pizzo)  05:28   
+6. Essenza Di Te  02:06   
+7. Bite The Bullet  05:19   
+8. Drown The Demon  05:00   
+9. Celibate Aphrodite  07:20   
+10. War On Terror (In The Eyes Of The Law: Pentagon Papers)  04:25   
+11. Tithe  00:52   instrumental  
+12. Sinner's Last Retreat (Deed Of Awakening) (Bonus track)  07:39 
+
+
+Rob van der Loo  Bass  
+Arien Van Weesenbeek  Drums, Grunts  
+Frank Schiphorst  Guitars  
+Isaac Delahaye  Guitars  
+Jack Driessen  Keyboards, Grunts  
+Mark Jansen  Vocals  
+ 
+
+
+### "Antagonise" 2014, Metal
+
+1. Bloodline Forfeit  04:15    
+2. Burn Your Witches  05:39    
+3. Redemption - The Democracy Illusion  06:07    
+4. Paladins of Deceit - National Security Extremism part 1  06:16   
+5. Lone Wolf  05:55    
+6. Devil in Disguise  04:59    
+7. Insano  02:57    
+8. Human Sacrifice  06:10    
+9. Enemies of Freedom  07:09   
+10. Capital Punishment  04:41    
+11. Faceless Spies - National Security Extremism part 2  08:09 
+
+
+Recorded at “Sandlane Recording Facilities” studio.
+
+Digipack bonus track:
+Descry (02:14) 
+
+
 
 ## Отношения с другими группами
 

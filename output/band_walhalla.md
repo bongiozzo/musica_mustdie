@@ -1,7 +1,25 @@
 # Walhalla
 
-Дискография
-"Firereich" 2000, Black Metal
+black metal  mixed  with old-school
+thrash
+
+## Дискография
+
+### "Firereich" 2000, Black Metal
+
+Valkyrie                 4.15
+Helldivizion             4.32
+Battlefield genesis      3.09
+Warsong 666              3.50
+Black cross burning      3.13
+Martyrs day              4.05
+Norja Vs. Arabia         0.06
+Winterfuhrer             2.52
+War over Nordland        2.19
+Firereich               12.10
+
+
+
 
 ## Отношения с другими группами
 

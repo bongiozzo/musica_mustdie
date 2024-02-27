@@ -1,7 +1,20 @@
 # Ancestor
 
-Дискография
-"Hell Fuckin' Metal" 2008, Black Metal
+black-metal from Cuba
+
+## Дискография
+
+### "Hell Fuckin' Metal" 2008, Black Metal
+
+1. Blackult 03:45  
+2. Opus Sadicum 03:34  
+3. Iron Hiven 02:39  
+4. Vlad The Impaler 04:01
+5. Refuse To Renounce 03:22  
+6. From The Heights To The Abyss 03:21  
+7. Hymno Te Guerra 6.6.6. 01:06  
+8. The Christians Hunt 04:30 
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,25 @@
 # Dan Swano
 
-Дискография
-"Moontower" 1998, Death Doom
+
+
+## Дискография
+
+### "Moontower" 1998, Death Doom
+
+1. Sun Of The Night. 
+2. Patchworks. 
+3. Uncreation. 
+4. Add Reality. 
+5. Creating Illusions. 
+6. The Big Sleep. 
+7. Encounterparts. 
+8. In Empty Phrases. 
+
+(c)&(p) 1998 BLACK MARK PRODUCTIONS 
+
+Everything on this album was created by Dan Swano. Recorded and mixed in The Sanctuary, April 1998. Mastered by 
+Peter in de Betou. 
+
 
 ## Отношения с другими группами
 

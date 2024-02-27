@@ -1,7 +1,21 @@
 # Horror God
 
-Дискография
-"Cold Shine" 2009, Death Metal
+
+
+## Дискография
+
+### "Cold Shine" 2009, Death Metal
+
+1. Свобода / Freedoom
+2. Не Видим, Не Слышим, Не Знаем / Don't See, Don't Hear, Don't Know
+3. Человек / Human
+4. Слабость / Weakness
+5. Равнодушие / Indifference
+6. Аборт / Abortion
+7. Тиран / Tyrant
+8. Открыть Огонь! / Open Fire!
+9. Похороненная Правда / The Burried Truth
+
 
 ## Отношения с другими группами
 

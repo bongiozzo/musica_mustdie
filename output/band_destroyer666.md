@@ -1,15 +1,131 @@
 # Destroyer 666
 
-Дискография
-"Six Songs with the Devil (demo)" 1994, Black Metal
-"Violence is the Prince of this World (MCD)" 1995, Black Metal
-"Unchain the Wolves" 1997, Black Metal
-"Satanic Speed Metal (EP)" 1998, Black Metal
-"Phoenix Rising" 2000, Black Metal
-"King of Kings/Lord of Wild (EP)" 2000, Black Metal
-"Cold Steel... For an Iron Age" 2002, Black Metal
-"Defiance" 2009, Black Metal
-"Wildfire" 2016, Black Metal
+evil black-metal
+
+## Дискография
+
+### "Six Songs with the Devil (demo)" 1994, Black Metal
+
+1. Hail to Destruction 
+2. An Endless Stream of Bombers 
+3. Long Live Death 
+4. Song for a Devil's Son 
+5. Destroyer 
+6. Like Bloody Rabid Wolves Unleashed from Chains 
+7. Outro: Onward to Arktogaa
+
+### "Violence is the Prince of this World (MCD)" 1995, Black Metal
+
+1. Hail to Destruction 
+2. An Endless Stream of Bombers 
+3. ...true Sons of Satan 
+4. Burning the Veil of Falsehood 
+5. Death Metal Winds (Howl Again) 
+6. Song for a Devils Son 
+7. The Eternal Glory of War
+
+### "Unchain the Wolves" 1997, Black Metal
+
+1.Genesis to Genocide 
+2.Australian and Anti-Christ 
+3.Satans Hammer 
+4.Tyranny of the Inevitable 
+5.Six Curses from a Spiritual Wasteland 
+6.Unchain the Wolves 
+7.Damnations Pride 
+8.Onward to Arktoga 
+
+
+
+K.K. Warslut - Vocals, guitars
+Shrapnel - Guitars
+Bullit Eater - Bass, backing vocals
+Ballistic Howitzer - Drums
+
+
+Recorded at Woodstock Studios by Mark Ingram.
+Evil A-dats & H-bomb drop-ins.
+
+Mixed & Mastered by Tom Dementsci Nesci in Adelaide
+
+### "Satanic Speed Metal (EP)" 1998, Black Metal
+
+1. Satanic Speed Metal 
+2. The Siren's Call
+
+### "Phoenix Rising" 2000, Black Metal
+
+1.Rise of the Predator (4'05) 
+2.The Last Revelation (2'25) 
+3.Phoenix Rising (3'57) 
+4.I am the Wargod (ode to the battle slain) (7'32) 
+5.The Eternal Glory of War (5'20) 
+6.Lone Wolf Winter (6'37) 
+7.Ride the Solar Winds (4'52) 
+8.The Birth of Tragedy (5'49)
+
+
+K.K. Warslut - Vocals, guitars
+Shrapnel - Guitars
+Bullet Eater - Bass
+Deceiver - Drums 
+
+
+### "King of Kings/Lord of Wild (EP)" 2000, Black Metal
+
+1. King of Kings 
+2. Lord of the Wild 
+
+### "Cold Steel... For an Iron Age" 2002, Black Metal
+
+1.Black City - Black Fire
+2. Clenched Fist
+3. Cold Steel...
+4. Sons of Perdition
+5. Raped
+6. The Calling
+7. Savage Pitch
+8. Witch Hunter
+9. Shadow
+
+
+
+K.K. Warslut - Vocals, Guitars
+Shrapnel - Guitars
+S. Berserker - Bass, Vocals
+Mersus - Battery
+
+
+Recorded at Sound Suite Studio, Marseille, 
+6th Jan, to 6th Feb. 2002
+Engineered by Terje Refsnes
+Produced by Destroyer 666 & Terje Refsnes 
+
+
+### "Defiance" 2009, Black Metal
+
+1. Weapons of Conquest 03:03
+2. I Am Not Deceived 04:37
+3. Blood For Blood 05:14
+4. The Barricades Are Breaking 03:38
+5. A Stand Defiant 04:46
+6. The Path to Conflict 04:37 
+7. A Thousand Plagues 04:24 
+8. Human All Too Human 06:04 
+9. A Sermon To The Dead 05:04 
+
+### "Wildfire" 2016, Black Metal
+
+1. Traitor
+2. Live And Burn
+3. Artiglio Del Diavolo
+4. Hounds At Ya Back
+5. Hymn To Dionysus
+6. Wildfire
+7. White Line Fever
+8. Die You Fucking Pig
+9. Tamam Shud
+
 
 ## Отношения с другими группами
 

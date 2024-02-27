@@ -1,20 +1,98 @@
 # D.A.D.
 
-Дискография
-"Call Of The Wild" 1986, Country
-"D.A.D. Draws A Circle" 1987, Hard Rock
-"No Fuel Left For The Pilgrims" 1989, Hard Rock
-"Osaka After Dark (Live EP)" 1990, Hard Rock
-"Riskin' It All" 1991, Hard Rock
-"Helpyourselfish" 1995, Heavy Metal
-"Simpatico" 1997, Hard Rock
-"Psychopatico (Live)" 1998, Hard Rock
-"Everything Glows" 2000, Hard Rock
-"Soft Dogs" 2002, Hard Rock
-"Scare Yourself" 2006, Rock
-"Scare Yourself Alive" 2006, Hard Rock
-"Monster Philosophy" 2008, Rock
-"DIC.NII.LAN.DAFT.ERD.ARK" 2011, Rock
+
+
+## Дискография
+
+### "Call Of The Wild" 1986, Country
+
+
+
+### "D.A.D. Draws A Circle" 1987, Hard Rock
+
+
+
+### "No Fuel Left For The Pilgrims" 1989, Hard Rock
+
+
+
+### "Osaka After Dark (Live EP)" 1990, Hard Rock
+
+
+
+### "Riskin' It All" 1991, Hard Rock
+
+
+
+### "Helpyourselfish" 1995, Heavy Metal
+
+1. Reconstrucdead
+2. Written In Water
+3. Helpyourselfish
+4. Soulbender
+5. Unowned
+6. Candid
+7. Blood In / Out
+8. Prayin' To God
+9. Naked (But Still Stripping)
+10.Are We Alive Here ? *
+11.It's When It's Wrong It's Right
+12.Flat
+
+All Songs By D.A.D,Except Of * By D.A.D. / SKREW.
+Recorded At Studio 'Morin Heights' Canada & 'Medley Studio' Copenhagen,1994.
+Produced,Engineered & Mixed By Paul Northfield.
+
+Peter Lundholm Jensen - Drums
+Jacob Arilb Binzer - Guitar & Backing Vocals
+Jesper Binzer - Vocals & Guitar
+Stig Pedersen - Bass & Back-Back Vocals
+
+(P)&(C) 1995 EMI Records
+
+### "Simpatico" 1997, Hard Rock
+
+
+
+### "Psychopatico (Live)" 1998, Hard Rock
+
+
+
+### "Everything Glows" 2000, Hard Rock
+
+
+
+### "Soft Dogs" 2002, Hard Rock
+
+
+
+### "Scare Yourself" 2006, Rock
+
+
+
+### "Scare Yourself Alive" 2006, Hard Rock
+
+
+
+### "Monster Philosophy" 2008, Rock
+
+
+
+### "DIC.NII.LAN.DAFT.ERD.ARK" 2011, Rock
+
+01. A New Age Moving In
+02. I Want What She's Got
+03. The End
+04. Fast On Wheels
+05. The Place Of The Heart
+06. The Last Time In Neverland
+07. Breaking Them Heart By Heart
+08. We All Fall Down
+09. The Wild Thing In The Woods
+10. Cant' Explain What It Means
+11. Drag Me To The Curb
+12. Your Lips Are Sealed
+
 
 ## Отношения с другими группами
 

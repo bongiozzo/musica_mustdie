@@ -1,16 +1,188 @@
 # Darkseed
 
-Дискография
-"Sharing the Grave (demo)" 1992, Death Doom
-"Darksome Thoughts (demo)" 1993, Death Doom
-"Romantic Tales" 1994, Death Doom
-"Midnight Solemnly Dance" 1996, Death Doom
-"Spellcraft" 1997, Death Doom
-"Give Me Light" 1999, Death Doom
-"Diving Into Darkness" 2000, Death Doom
-"Astral Adventure" 2003, Gothic
-"Ultimate Darkness" 2005, Death Doom
-"Poison Awaits" 2010, Gothic
+
+
+## Дискография
+
+### "Sharing the Grave (demo)" 1992, Death Doom
+
+
+
+### "Darksome Thoughts (demo)" 1993, Death Doom
+
+
+
+### "Romantic Tales" 1994, Death Doom
+
+1. Dream Recalled On Waking
+2. A Charm For Sound Sleeping
+3. In Broken Images
+4. Above The Edge Of Doom
+
+(P)(C) 1994 INVASION Records
+
+### "Midnight Solemnly Dance" 1996, Death Doom
+
+1. Watchful Spirit's Care.
+2. Lysander.
+3. Love's Heavy Burden.
+4. The Sealing Day.
+5. Forgetfulness.
+6. Like To A Silver Bow.
+7. Chariot Wheels.
+8. The Bolt Of Cupid Fell.
+9. Night Mislead.
+10. My Worldly Task Is Done.
+11. Winter Noon.
+
+(c)&(p) 1996 SERENADES RECORDS
+
+RICO GALVAGNO - bass
+THOMAS HERRMANN - lead guitar
+STEFAN HERTRICH - vocals, guitar
+HARALD WINKLER - drums, vocals
+ANDI WECKER - guitar
+
+### "Spellcraft" 1997, Death Doom
+
+1. Craft Her Spell
+2. Fall Whatever Falls
+3. Self Pity Sick
+4. You Will Come
+5. That Kills My Heart
+6. Be Ever Heard
+7. Walk In Me
+8. Spririts
+9. Senca
+
+Recorded & Mixed at Impuls Studio, Oct.-Nov.'96.
+Engineered & produced by Gottfried Koch, Jan Pierre Genkel & DARKSEED.
+Classical appendix by Barmbecker Symphonieorchestra & additional piano-lines by Jan Pierre Genkel.
+All female vocals performed by Catharina Boutai & Christina Mann.
+Additional synth-overdubs by Oli from Impuls.
+
+(P)(C) 1997 NUCLEAR BLAST Records
+
+### "Give Me Light" 1999, Death Doom
+
+1. Dancing With The Lion
+2. Cold
+3. Echoes Of Tomorrow
+4. Cosmic Shining
+5. Journey To The Spirit World
+6. Give Me Light
+7. Fusion
+8. Flying Together
+9. Echoes Of Tomorrow (Acoustic Version)
+10. Spiral Of Mystery
+11. Desire
+
+(p)(c)1999 Nuclear Blast
+
+### "Diving Into Darkness" 2000, Death Doom
+
+1. Forever Darkness
+2. I Deny You
+3. Counting Moments
+4. Can't Find You
+5. Autumn
+6. Rain
+7. Hopelessness
+8. Left Alone
+9. Downwards
+10. Cold Under Water
+11. Many Wills
+
+### "Astral Adventure" 2003, Gothic
+
+1. Dying Land
+2. Fly Into The Night
+3. Where Will I Go
+4. Can't Explain
+5. Life
+6. Hear Me
+7. Souls Unite
+8. Rain Of Revival
+9. Forever Stay
+10. Waiting
+11. Every Day
+12. It Shall End
+
+All songs written by DARKSEED
+Produced by Stefan Hertrich and Thomas Herrmann
+Engineered by Thomas Herrmann
+Recorded and mixed at Helion Studios
+
+Christoph Puhr-Westerheide - Vocals
+Tommy Herrmann - Rhythm and Lead Guitars
+Thomas Gilcher - Lead Guitars
+Martin Motnik - Bass
+Stephan Zandt - Drums
+Armin Dorfler -Keys
+
+drums by Marcus B.
+Female Vocals by Sasema
+
+### "Ultimate Darkness" 2005, Death Doom
+
+1. Desbeliever
+2. My Burden
+3. Ultimate Darkness
+4. Biting Cold
+5. The dark One
+6. Save Me 
+7. Speak Silence
+8. Next To Nothing
+9. Follow Me
+10. The fall
+11. Endless Night
+12. Slep Sleep Sweetheart
+
+
+Part II
+1. Lifetime Alone
+2. alk In Me
+3. Kingdom
+4. I Turn To You
+5. Watchful Spirit’s Care
+6. Like To A Siliver Bow
+7. The Bolt Of Cupid Fell
+8. Give Me Light
+9. Spiral Of Mysery
+10. Hold Me
+11. Not Alone
+12. Wisdom And Magic
+13. Paint It Black
+
+### "Poison Awaits" 2010, Gothic
+
+1. Roads 03:27  
+2. Incinerate 06:18  
+3. Poison Awaits 04:22  
+4. Seeds Of Sorrow 04:40  
+5. All Is Vanity 04:23  
+6. Black Throne 04:42  
+7. A Dual Pact 03:59  
+8. Torn To Shatters 06:00  
+9. No Promise In The Heavens 04:25  
+10. Striving For Fire 05:09  
+11. Timeless Skies 04:18  
+12. King In The Sun 04:29 
+
+13. The Demon Within (Digipak Bonus)
+14. Comptine D Un Autre Ete (Digipak Bonus) 
+
+
+line up:
+Harald Winkler - Vocals 
+Thomas Herrmann - Guitars 
+Tom Gilcher - Guitars 
+Michael Behnke - Bass 
+Maurizio Guolo - Drums
+Armin Dorfler - Keyboards 
+
+
+
 
 ## Отношения с другими группами
 

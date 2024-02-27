@@ -1,12 +1,54 @@
 # Eyehategod
 
-Дискография
-"In the Name of Suffering" 1992, Metal
-"Take as Needed for Pain" 1993, Metal
-"Dopesick" 1996, Metal
-"Southern Discomfort" 2000, Metal
-"Confederacy of Ruined Lives" 2000, Alternative
-"10 Years of Abuse (and Still Broke)" 2001, Metal
+
+
+## Дискография
+
+### "In the Name of Suffering" 1992, Metal
+
+1. Depress
+2. Man Is Too Ignorant To Exist
+3. Shinobi
+4. Pigs
+5. Run It Into The Ground
+6. Godsong
+7. Children Of God
+8. Left To Starve
+9. Hostility Dose
+10.Hit A Girl
+
+ Mike - Vocals
+ Mark - Guitar
+ Jimmy - Guitar
+ Steve - Bass
+ Joey - Drums
+
+Music By James Bower,Steve Dale,Joseph Lacaze,
+Mark Schultz.
+Lyrics Written By Michael Williams.
+
+(p)&(c) 1993 CENTURY MEDIA Records
+
+### "Take as Needed for Pain" 1993, Metal
+
+
+
+### "Dopesick" 1996, Metal
+
+
+
+### "Southern Discomfort" 2000, Metal
+
+
+
+### "Confederacy of Ruined Lives" 2000, Alternative
+
+
+
+### "10 Years of Abuse (and Still Broke)" 2001, Metal
+
+
+
 
 ## Отношения с другими группами
 

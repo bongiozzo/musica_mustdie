@@ -1,8 +1,52 @@
 # Spiha
 
-Дискография
-"Ecoreactor" 2003, Rock and Roll
-"Spiritual Hallucination" 2005, Rock and Roll
+тяжелый rock'n'roll
+
+## Дискография
+
+### "Ecoreactor" 2003, Rock and Roll
+
+1. Egoreactor
+2. Bloodrain
+3. Altamont
+4. If I Ever Let You Go
+5. Samurai Of The Sound
+6. Monster
+7. Scratch
+8. Freedom Fuel
+9. I Ain't The One
+10.If I Fall
+
+### "Spiritual Hallucination" 2005, Rock and Roll
+
+Rock'n'Roll 
+Planet Horse 
+Masterreaper 
+Moondoll 
+King Of Reason 
+Neversleep 
+Icebreaker 
+Wheelie 
+Until The Morning 
+Crazy For My Love
+Бонус-треки:
+Interstellar Overdrive
+Sheaster 
+Enola Gay
+For Rest
+Egoreactor
+Scratch
+Honeymoon in Hell
+New Beginning
+Heaven Demon
+
+Henri Lоnnrot "Henry Lee Rock" - вокал
+Mikko Juntunen "Junza" - гитара
+Timo Paavola "Daemon P.A. Volume" - гитара
+Henri Fagerholm "Bomber" - бас
+Juhana Rantala "Ringo Deathstarr" - барабаны
+Ilkka Pajunen "Ilectric" - клавиши
+
 
 ## Отношения с другими группами
 

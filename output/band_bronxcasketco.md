@@ -1,9 +1,70 @@
 # Bronx Casket Co.
 
-Дискография
-"The Bronx Casket Co." 2000, Metal
-"Sweet Home Transylvania" 2001, Metal
-"Hellectric" 2005, Metal
+vampire-gothic doom metal
+
+## Дискография
+
+### "The Bronx Casket Co." 2000, Metal
+
+(1) Who Lives Forever
+(2) Change The World
+(3) Mercy Ltd.
+(4) No Miracles
+(5) Vampire War
+(6) I Am God Here
+(7) Savior
+(8) Alone
+(9) Jump In The Fire
+(10) The Bad Guy
+
+
+Charlie Calv : Keyboards
+Jack Frost : Guitar
+Tim Mallare : Drums
+Myke Hideous (Spy) : Vocals
+D.D. Verni : 8-String Bass, Bass
+
+
+Jason Arnold : Mixing
+Andy Katz : Engineer, Mixing, Producer
+Roger Lian : Mastering
+Gery Nible : Illustrations
+Alex Perialas : Mixing
+D.D. Verni : Mixing, Producer
+ 
+
+### "Sweet Home Transylvania" 2001, Metal
+
+(1) Jesus Doesnt Live Here Anymore
+(2) The Other Me
+(3) Sewing the Dead
+(4) Sweet Home Transylvania
+(5) Black Valentine
+(6) Killing Maryjane
+(7) Dead For The Moment
+(8) Blue Collar Horror
+(9) Creeperia 
+
+
+Charlie Calv : Keyboards
+Jack Frost : Guitar
+Tim Mallare : Drums
+Myke Hideous (Spy) : Vocals
+D.D. Verni : Bass, Rhythm Guitars, Vocals
+All songs written & prodouced by D.D. Verni
+
+Andy Katz : Mixing, Mastering
+Jason Cantor/John Knoll : Engineer
+Gery Nible : Illustrations
+Alex Perialas : Mixing
+D.D. Verni : Mixing, Producer
+
+
+
+### "Hellectric" 2005, Metal
+
+
+
 
 ## Отношения с другими группами
 

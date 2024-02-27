@@ -1,7 +1,36 @@
 # Purtenance
 
-Дискография
-"Member Of Immortal Damnation" 1993, Death Metal
+
+
+## Дискография
+
+### "Member Of Immortal Damnation" 1993, Death Metal
+
+1. Intro
+2. Black Vision
+3. Deep Blue Darkness
+4. Lacus Somniorum (Instr.)
+5. The Lost Memories
+6. A Dark Cloud Arises
+7. In The Misty Morning
+8. Reality Isn't Disappeared
+9. Misery Of The Rebirth
+10.Crown Waits The Immortal
+11.Joh. 3.16 (Keyboards)
+
+ Timo - Vocals
+ Juha - Guitar
+ Toni - Lead Guitar
+ Pasi - Bass
+ Harri - Drums
+
+All Songs Written By PURTENANCE
+Produced By Erkki Salo & PURTENANCE
+Engineered By Erkki Salo
+Recorded & Mixed At MDM Studios In March 1992
+
+(p)&(c) 1993 DROWNED Productions
+
 
 ## Отношения с другими группами
 

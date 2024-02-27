@@ -1,16 +1,128 @@
 # Centinex
 
-Дискография
-"Subconscious Lobotomy" 1993, Death Metal
-"Reflections" 1997, Death Metal
-"Bloodhunt" 1998, Death Metal
-"Reborn Through Flames" 1998, Death Metal
-"Hellbrigade" 2000, Death Metal
-"Diabolical Desolation" 2002, Death Metal
-"Decadence - Prophecies of Cosmic Chaos" 2004, Death Metal
-"World Declension" 2005, Death Metal
-"Redeeming Filth" 2014, Death Metal
-"Doomsday Rituals" 2016, Death Metal
+Sweden Death Metal
+
+## Дискография
+
+### "Subconscious Lobotomy" 1993, Death Metal
+
+1. Blood On My Skin
+2, Shadows Are Astray
+3. Dreams Of Death
+4. Orgy In Flesh
+5. End Of Life
+6. Bells Of Misery
+7. Inhuman Dissection Of Souls
+8. The Aspiration
+9. Until Death Tear Us Apart*
+
+ Erik  - Vocals,Guitar
+ Andreas - Guitar
+ Mattias - Vocals
+ Martin - Bass
+ Joakim - Drums
+
+Guest Vocals On * By Fred Estby
+All Music By Martin & Andreas
+Produced & Mixed By Tomas Skogsberg & CENTINEX
+Co- Produced By Fred Estby
+Recorded At Studio Sunlight July 1992
+
+(p)&(c) 1993 UNDERGROUNG
+
+### "Reflections" 1997, Death Metal
+
+
+
+### "Bloodhunt" 1998, Death Metal
+
+Under The Pagan Glory
+For Centuries Untold
+Luciferian Moon
+Bloodhunt
+The Conquest Infernal
+Like Darkened Storms
+
+### "Reborn Through Flames" 1998, Death Metal
+
+Embraced By Moonlight
+Resurrected
+Summon The Golden Twilight
+The Beauty Of Malice
+Under The Guillotine
+Through Celestial Gates
+Molested
+In The Arch Of Serenity
+
+### "Hellbrigade" 2000, Death Metal
+
+Towards Devastation
+One With Eternity
+The Eyes Of The Dead
+Emperor Of Death
+Last Redemption
+Bloodconqueror
+Neverending Hell
+Nightbreeder
+Hellbrigade
+
+
+### "Diabolical Desolation" 2002, Death Metal
+
+01. Demonic Warlust 
+02. Forthcoming Terror
+03. Spawned To Destroy
+04. Soulcrusher
+05. Diabolical Desolation
+06. On Violent Soil
+07. Total Misanthropia
+08. The Bloodline
+09. A War Symphony
+10. Hellfire Twilight
+
+
+### "Decadence - Prophecies of Cosmic Chaos" 2004, Death Metal
+
+
+
+### "World Declension" 2005, Death Metal
+
+Victorious Dawn Rising 
+Purgatorial Overdrive 
+The Destroyer 
+As Legions Come 
+Sworn 
+Synthetic Sin Zero 
+Flesh Is Fragile 
+Wretched Cut 
+Deconstruction Macabre
+
+### "Redeeming Filth" 2014, Death Metal
+
+01. When Bodies Are Deformed
+02. Moist Purple Skin
+03. Death Glance
+04. Stone Of Choice
+05. Unrestrained
+06. Bloodraze
+07. Without Motives
+08. Rotting Below
+09. Dead, Buried and Forgotten
+10. Eye Sockets Empty
+
+### "Doomsday Rituals" 2016, Death Metal
+
+1. Flesh Passion
+2. From Intact to Broken
+3. Dismemberment Supreme
+4. Generation of Flies
+5. The Shameful Few
+6. Doomsday
+7. Exist to Feed
+8. Death Decay Murder
+9. Sentenced to Suffer
+10. Faceless
+
 
 ## Отношения с другими группами
 

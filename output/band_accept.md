@@ -1,25 +1,436 @@
 # Accept
 
-Дискография
-"Accept" 1979, Hard Rock
-"I'm a Rebel" 1980, Heavy Metal
-"Breaker" 1981, Heavy Metal
-"Restless & Wild" 1982, Heavy Metal
-"Balls to the Wall" 1984, Heavy Metal
-"Metal Heart" 1985, Heavy Metal
-"Hungry Years (compilation)" 1986, Heavy Metal
-"Russian Roullette" 1986, Heavy Metal
-"Eat the Heat" 1989, Hard Rock
-"Staying a Life [live]" 1990, Heavy Metal
-"Objection Overruled" 1993, Heavy Metal
-"Death Row" 1994, Heavy Metal
-"Predator" 1996, Heavy Metal
-"The Abyss (single)" 2010, Heavy Metal
-"Blood of the Nations" 2010, Heavy Metal
-"Stalingrad" 2012, Heavy Metal
-"Blind Rage" 2014, Heavy Metal
-"The Rise of Chaos (single)" 2017, Heavy Metal
-"The Rise of Chaos" 2017, Heavy Metal
+Great Heavy Metal/Hard Rock Band
+
+## Дискография
+
+### "Accept" 1979, Hard Rock
+
+1. Lady Lou - 3:02 
+2. Tired of Me - 3:15 
+3. Seawinds - 4:32 
+4. Take Him in My Heart - 3:32 
+5. Sounds of War - 4:38 
+6. Free Me Now - 3:02 
+7. Glad to Be Alone - 5:14 
+8. That's Rock'n Roll - 2:53 
+9. Helldriver - 2:42 
+10. Street Fighter - 3:28 
+
+Peter Baltes - Bass/Vocals 
+Udo Dirkschneider - Vocals 
+Jorg Fischer - Rhythm Guitar
+Frank Friedrich - Drums 
+Wolf Hoffmann - Lead Guitar 
+
+Produced by Frank Martin
+Razor Records
+
+### "I'm a Rebel" 1980, Heavy Metal
+
+1.I'm a Rebel - 3:58 
+2.Save Us - 4:35 
+3.No Time to Loose - 4:37 
+4.Thunder and Lightning - 4:03 
+5.China Lady - 3:58 
+6.I Wanna Be No Hero - 4:02 
+7. The King - 4:11 
+8.Do It - 4:11 
+
+Peter Baltes - Bass
+Udo Dirkschneider - Vocals 
+Jorg Fischer - Rhythm Guitar 
+Wolf Hoffmann - Lead Guitar 
+Stefan Kaufmann - Drums 
+
+Produced by Dirk Steffens
+
+Passport Records
+
+### "Breaker" 1981, Heavy Metal
+
+1. Starlight - 3:52 
+2. Breaker - 3:35 
+3. Run If You Can - 4:48 
+4. Can't Stand the Night - 5:23 
+5. Son of a Bitch-  3:53 
+6. Burning - 5:13 
+7. Feelings - 4:48 
+8. Midnight Highway - 3:58 
+9. Breaking Up Again - 4:37 
+10. Down and Out - 3:44 
+
+Peter Baltes - Bass/Vocals 
+Udo Dirkschneider - Vocals 
+Jorg Fischer - Rhytm Guitar 
+Wolf Hoffmann - Lead Guitar 
+Stefan Kaufmann - Drums/Vocals 
+
+Dirk Steffens  - Producer 
+Polydor Records
+
+### "Restless & Wild" 1982, Heavy Metal
+
+1. Fast as a Shark - 3:49 
+2. Restless and Wild - 4:12 
+3. Ahead of the Pack - 3:24 
+4. Shake Your Heads - 4:17 
+5. Neon Nights - 6:01 
+6. Get Ready - 3:41 
+7. Demon's Night  - 4:27 
+8. Flash Rockin' Man - 4:28 
+9. Don't Go Stealing My Soul Away - 3:15 
+10. Princess of the Dawn - 6:15 
+
+Peter Baltes - Bass/Vocals
+Udo Dirkschneider - Vocals
+Hermann Frank - Rhytm Guitar
+Wolf Hoffmann - Lead Guitar
+Stefan Kaufmann - Drums
+
+Produced by Accept
+Portrait Records
+
+### "Balls to the Wall" 1984, Heavy Metal
+
+1. Balls to the Wall - 5:42 
+2. London Leatherboys - 3:51 
+3. Fight It Back - 3:38 
+4. Head Over Heels - 4:25 
+5. Losing More Than You've Ever Had - 5:10 
+6. Love Child - 3:34 
+7. Turn Me On - 5:12 
+8. Losers and Winners - 4:19 
+9. Guardian of the Night - 4:24 
+10. Winterdreams - 4:52 
+
+
+Peter Baltes - Bass 
+Udo Dirkschneider - Vocals 
+Hermann Frank - Rhytm Guitar 
+Wolf Hoffmann - Lead Guitar 
+Stefan Kaufmann - Drums 
+
+Produced by Accept
+Portrait Records
+
+### "Metal Heart" 1985, Heavy Metal
+
+1. Metal Heart - 5:19 
+2. Midnight Mover - 3:05 
+3. Up to the Limit - 3:47 
+4. Wrong Is Right - 3:08 
+5. Screaming for a Love-Bite - 4:06 
+6. Too High to Get It Right - 3:47 
+7. Dogs on Leads - 4:23 
+8. Teach Us to Survive - 3:32 
+9. Living for Tonite - 3:33 
+10. Bound to Fail - 4:58 
+
+
+Udo Dirkschneider - Vocals
+Jorg Fischer - Rhytm Guitars/Vocals
+Wolf Hoffman - Lead Guitars/Vocals, Sitar (Electric) 
+Peter Baltes - Bass Guitars, Keyboards
+Stefan Kaufmann - Drums/Vocals, Tympani
+
+
+Produced by Dieter Dierks
+Portrait Records
+
+### "Hungry Years (compilation)" 1986, Heavy Metal
+
+1. Fast as a Shark
+2. Burning
+3. Son of a Bitch
+4. Princess of the Dawn
+5. I'm a Rebel
+6. Breaker
+7. Restless and Wild
+8. The King
+9. Midnight Highway
+
+Udo Dirkschneider - Vocals
+ Peter Baltes - Bass
+ Wolf Hoffmann - Guitars
+ Jorg Fischer - Guitars
+ Stefan Kaufman - Drums
+
+Castle records
+
+### "Russian Roullette" 1986, Heavy Metal
+
+1. T.V. War - 3:26 
+2. Monsterman - 3:24 
+3. Russian Roulette - 5:23 
+4. It's Hard to Find a Way - 4:19 
+5. Aiming High - 4:25 
+6. Heaven Is Hell - 7:11 
+7. Another Second to Be - 3:16 
+8. Walking in the Shadow - 4:27 
+9. Man Enough to Cry - 3:13 
+10. Stand Tight - 4:10 
+
+
+Udo Dirkschneider - Vocals
+Hermann Frank - Rhytm Guitars
+Wolf Hoffman - Lead Guitars
+Peter Baltes - Bass/Vocals
+Stefan Kaufmann - Drums/Vocals
+
+
+Produced by Accept
+Portrait Records
+
+### "Eat the Heat" 1989, Hard Rock
+
+1. X-T-C - 4:26 
+2. Prisoner - 4:15 
+3. Love Sensation - 4:42 
+4. Chain Reaction - 4:37 
+5. "D" Train - 4:04 
+6. Generation Clash - 4:25 
+7. Turn the Wheel - 6:23 
+8. Mistreated - 4:58 
+9. Stand 4 What U R - 5:29 
+10. Hellhammer - 6:54 
+
+David Reece - Vocals
+Wolf Hoffman - Guitar
+Peter Baltes - Bass
+Stefan Kaufmann - Drums
+
+Produced by Dieter Dierks
+Epic Records
+
+### "Staying a Life [live]" 1990, Heavy Metal
+
+1. Metal Heart - 5.25
+2. Breaker - 3.40
+3. Screaming for a Love-Bite - 4.21
+4. Up to the Limit - 4.25
+5. Living for Tonight - 3.35
+6. Princess of the Dawn - 7.47
+7. Gutar Slo Wolf - 4.30
+8. Restless and Wild - 2.32
+9. Son of a Bitch - 2.34
+10. London Leatherboys - 3.54
+11. Love Child - 5.00
+12. Flash Rockin' Man - 6.31
+13. Dogs on Leads - 5.52
+14. Fast as a Shark - 5.26
+15. Balls to the Wall - 10.28 
+
+Peter Baltes - Bass/Vocals
+Udo Dirkschneider - Vocals
+Wolf Hoffmann - Guitar
+Stefan Kaufmann - Drums, Producer 
+Jorg Fischer - Guitar
+
+Epic Records
+
+### "Objection Overruled" 1993, Heavy Metal
+
+1. Objection Overruled - 3:38 
+2. I Don't Wanna Be Like You - 4:19 
+3. Protectors of Terror - 4:03 
+4. Slaves to Metal - 4:37 
+5. All or Nothing - 4:32 
+6. Bulletproof - 5:05 
+7. Amamos la Vida - 4:39 
+8. Sick, Dirty and Mean - 4:33 
+9. Donation - 4:48 
+10. Just by My Own - 3:29 
+11. This One's for You - 4:10 
+
+Peter Baltes - Bass
+Udo Dirkschneider - Vocals 
+Wolf Hoffmann - Guitar 
+Stefan Kaufmann  -  Drums 
+
+Produced by Accept
+Nuclear Blast
+
+### "Death Row" 1994, Heavy Metal
+
+1. Death Row - 5:17 
+2. Sodom & Gomorra - 6:28 
+3. The Beast Inside - 5:57 
+4. Dead On! - 4:52 
+5. Guns 'R' Us - 4:40 
+6. Like a Loaded Gun - 4:18 
+7. What Else - 4:38 
+8. Stone Evil - 5:22 
+9. Bad Habits Die Hard - 4:41 
+10. Prejudice - 4:14 
+11. Bad Religion - 4:26 
+12. Generation Clash II - 5:04 
+13. Writing on the Wall - 4:25 
+14. Drifting Away [instrumental] - 3:02 
+15. Pomp and Circumstance [instrumental] - 3:44 
+
+Pavement Records
+
+### "Predator" 1996, Heavy Metal
+
+1. Hard Attack
+2. Crossroads
+3. Making Me Scream
+4. Diggin' In The Dirt
+5. Lay It Down *
+6. It Ain't Over Yet *
+7. Predator
+8. Crucified
+9. Take Out The Crime
+10.Don't Give A Damn
+11.Run Through The Night
+[12].Primitive *
+
+[12] На Стороне B
+
+All Songs By ACCEPT & Deaffy.
+Produced, Recorded & Mixed By 
+Michael Wagener.
+Recorded At 16th Ave.Sound Studios, Nashville, TN.
+
+Udo Dirkschneider - Vocals
+Wolf Hoffmann - Guitars
+Peter Baltes - Bass, Vocals On *
+Michael Cartellone - Drums
+
+(P)&(C) 1996 BMG ARIOLA Records
+
+### "The Abyss (single)" 2010, Heavy Metal
+
+1. The Abyss 07:02  
+2. Teutonic Terror 05:32 
+
+
+ 
+7" EP. Released to promote "Blood Of Nations", Accept's comeback album which is
+scheduled to be released in september, 14, 2010.  
+
+
+### "Blood of the Nations" 2010, Heavy Metal
+
+1. Beat the Bastards 05:23 
+2. Teutonic Terror 05:12  
+3. The Abyss 06:52  
+4. Blood of the Nations 05:36  
+5. Shades of Death 07:30
+6. Locked and Loaded 04:27 
+7. Kill the Pain 05:46 
+8. Rolling Thunder 04:53 
+9. Pandemic 05:35
+10. New World Comin' 04:49 
+11. No Shelter 06:02
+12. Bucket Full of Hate 05:11 
+
+
+Mark Tornillo - Vocals
+Wolf Hoffmann - Guitars
+Herman Frank - Guitars
+Peter Baltes - Bass, Vocals
+Stefan Schwarzmann - Drums
+
+This is the first Accept studio album in 14 years, since the release of "Predator", and its first release featuring Mark Tornillo on vocals.
+
+The exclusive North American mail-order digipak edition of the album contains the bonus track "Time Machine". 
+
+### "Stalingrad" 2012, Heavy Metal
+
+01. Hung, Drawn And Quartered 04:35 
+02. Stalingrad 05:59 
+03. Hellfire 06:07 
+04. Flash To Bang Time 04:07 
+05. Shadow Soldiers 05:47 
+06. Revolution 04:08 
+07. Against The World 03:36 
+08. Twist Of Fate 05:30 
+09. The Quick And The Dead 04:27 
+10. Never Forget 04:52
+11. The Galley 07:21
+
+
+Subtitle: "Brothers in Death"
+ 
+Limited edition includes following bonus track:
+ 10. Never Forget
+ 
+DVD contents:
+ 
+Official Bootleg - Live at Bang Your Head!!! 2011
+ 01. Princess of the Dawn
+ 02. Pandemic
+ 03. No Shelter
+ 
+Live at Masters of Rock 2010
+ 04. Teutonic Terror
+ 05. The Abyss
+ 
+Video clips
+ 06. Teutonic Terror
+ 07. Pandemic 
+
+### "Blind Rage" 2014, Heavy Metal
+
+1. Stampede   
+2. Dying Breed     
+3. Dark Side of My Heart  
+4. Fall of the Empire     
+5. Trail of Tears      
+6. Wanna Be Free      
+7. 200 Years   
+8. Bloodbath Mastermind   
+9. From the Ashes We Rise    
+10. The Curse   
+11. Final Journey  
+
+
+Limited, deluxe and mailorder editions includes bonus DVD or Blu-Ray. It features a complete live show, recorded in Chile 2013 during the "Stalingrad" tour. 
+ DVD / Blu-Ray tracklist
+ 1. Intro
+ 2. Hung, Drawn & Quartered
+ 3. Hellfire
+ 4. Restless & Wild
+ 5. Losers & Winners
+ 6. Stalingrad
+ 7. Breaker
+ 8. Bucket Full of Hate
+ 9. Monsterman
+ 10. Shadow Soldier
+ 11. Amamos La Vida
+ 12. Guitar Solo Wolf
+ 13. Neon Nights
+ 14. Bulletproof
+ 15. Aiming High
+ 16. Princess of the Dawn
+ 17. Up to the Limit
+ 18. No Shelter
+ 19. Pandemic
+ 20. Fast as a Shark
+ 21. Metal Heart
+ 22. Teutonic Terror
+ 23. Balls to the Wall
+
+### "The Rise of Chaos (single)" 2017, Heavy Metal
+
+1. The Rise of Chaos
+
+### "The Rise of Chaos" 2017, Heavy Metal
+
+1. Die by the Sword  05:00    
+2. Hole in the Head  04:01   
+3. The Rise of Chaos  05:16    
+4. Koolaid  04:58    
+5. No Regrets  04:20    
+6. Analog Man  04:10    
+7. What’s Done Is Done  04:08  
+8. Worlds Colliding  04:28    
+9. Carry the Weight  04:33    
+10. Race to Extinction  05:24  
+
+
 
 ## Отношения с другими группами
 

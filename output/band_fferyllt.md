@@ -1,7 +1,23 @@
 # Fferyllt
 
-Дискография
-"Dance of Druids" 2009, Folk
+
+
+## Дискография
+
+### "Dance of Druids" 2009, Folk
+
+1. A Celtic Tale	 
+2. Ночь Лесного Бога (Night of the Woodgod)
+3. Following Skadi
+4. Dance of Druids
+5. Autumn's Gold
+6. Warriors of Ireland
+7. Йолль (Jule)
+8. Winds of Trondheimsfjorden
+9. Gjallarhorn
+10. LAI LAI HEI (Ensiferum cover)
+11. Inis Mona (Eluveitie cover)
+
 
 ## Отношения с другими группами
 

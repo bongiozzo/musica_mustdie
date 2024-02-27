@@ -1,11 +1,102 @@
 # Coil
 
-Дискография
-"Scatology" 1984, Hardcore
-"Horse Rotorvator" 1987, Hardcore
-"Hellraiser Themes" 1989, Hardcore
-"Windowplane" 1990, Hardcore
-"Love's Secret Domain" 1991, Hardcore
+
+
+## Дискография
+
+### "Scatology" 1984, Hardcore
+
+1. Ubu Noir
+2. Panic
+3. At The Heart Of It All
+4. Tenderness Of Wolves
+5. The Spoiler
+6. Clap
+7. Aqua Regis
+8. Restless Day
+9. Solar Lodge
+10.The S.W.B.P.
+11.Godhead = Deathhead
+12.Cathedral In Flames
+13.Tainted Love
+
+Produced By Clint Ruin & COIL.
+Engineered By Warne Livesey.
+
+(p)&(c) 1984 SAM BIZARRE Records
+
+### "Horse Rotorvator" 1987, Hardcore
+
+1. The Anal Staircase
+2. Slur
+3. Babylero
+4. Ostia (Death Of Pasolini)
+5. Herald
+6. Penetralia
+7. Circle Of Mania
+8. Blood From The Air
+9. Who By Fire
+10.The Golden Section
+11.The First 5 Minutes After Death
+12.Ravenous
+
+ John Balance
+ Peter Cristopherson
+ Stephen E.Thrower
+
+Produced By COIL.
+Recorded In London By Danny Hyde &
+Tony Harris.
+
+(p)&(c) 1987 SAM BIZARRE Records
+
+### "Hellraiser Themes" 1989, Hardcore
+
+1. Theme
+2. The Hellbound Heart
+3. Box Theme
+4. New World
+5. Attack Of The Sennapods
+6. Main Title
+
+All Music Composed By COIL.
+
+(p)&(c) 1989 THRESHOLD HOUSE Records
+
+### "Windowplane" 1990, Hardcore
+
+1. Windowplane (Minimal Mix)
+2. Windowplane
+3. Windowplane (Astral Mix)
+
+Produced by COIL.
+Mixed By COIL & Danny Hyde.
+
+(p)&(c) 1990 THRESHOLD HOUSE Records
+
+### "Love's Secret Domain" 1991, Hardcore
+
+1. Disco Hospital
+2. Teenage Lightning I
+3. Things Happen
+4. The Snow
+5. Dark River
+6. Where Even The Darkness
+   Is Something To See
+7. Teenage Lightning II
+8. Windowpane
+9. Further Back & Faster
+10.Titan Arch
+11.Chaostrophy
+12.Lorca Not Orca
+13.Love's Secret Domain
+
+Produced By COIL & Danny Hyde.
+Recorded In London Between
+January 1988 And October 1990.
+
+(p)&(c) 1991 THRESHOLD HOUSE Records
+
 
 ## Отношения с другими группами
 

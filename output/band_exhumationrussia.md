@@ -1,13 +1,45 @@
 # Exhumation (Russia)
 
-Дискография
-"Night of Exhumation (demo)" 1994, Thrash
-"Unholy (demo)" 1997, Melodic Death Metal
-"Life in Darkness" 1998, Melodic Death Metal
-"The Wandering" 1998, Melodic Death Metal
-"Best Metal Shits ј4 (Single)" 1999, Melodic Death Metal
-"Symbol of Fear" 1999, Melodic Death Metal
-"City of Decay" 2011, Melodic Death Metal
+Melodic Death Metal band from Russia
+
+## Дискография
+
+### "Night of Exhumation (demo)" 1994, Thrash
+
+
+
+### "Unholy (demo)" 1997, Melodic Death Metal
+
+
+
+### "Life in Darkness" 1998, Melodic Death Metal
+
+
+
+### "The Wandering" 1998, Melodic Death Metal
+
+
+
+### "Best Metal Shits ј4 (Single)" 1999, Melodic Death Metal
+
+
+
+### "Symbol of Fear" 1999, Melodic Death Metal
+
+
+
+### "City of Decay" 2011, Melodic Death Metal
+
+1. Think of Death 04:12  
+2. Here Comes the Hate 04:16  
+3. Turning into Ashes 03:35  
+4. The End 04:15  
+5. City of Decay 04:07  
+6. Cursed World 03:36  
+7. Exploding Sun 04:00  
+8. Life in Darkness 03:54  
+9. Maha Kali (Dissection cover) 05:30 
+
 
 ## Отношения с другими группами
 

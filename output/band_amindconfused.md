@@ -1,6 +1,9 @@
 # A Mind Confused
 
-Дискография
+Death Metal from Sweden
+
+## Дискография
+
 
 ## Отношения с другими группами
 

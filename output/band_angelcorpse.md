@@ -1,8 +1,64 @@
 # Angelcorpse
 
-Дискография
-"Iron, Blood And Blasphemy" 2001, Death Metal
-"Of Lucifer And Lightning" 2007, Death Metal
+
+
+## Дискография
+
+### "Iron, Blood And Blasphemy" 2001, Death Metal
+
+When Abyss Winds Return 
+Desecration Of Virgin (Sarcofago Cover) 
+Demon Seed 
+(Morbid Angel Cover) 
+Kill Again (Slayer Cover) 
+Eat Me Alive (Judas Priest Cover) 
+Wolflust 
+Burning In Hell
+(Possessed Cover) 
+Pleasure To Kill 
+(Kreator Cover) 
+Genghis Kahn 
+(Iron Maiden Cover) 
+Phallelujah (Live) 
+Reap The Whirlwind (Live) 
+Envenomed (Live) 
+Sodomy Curse (Live) 
+Perversion Enthroned 
+The Scapegoat 
+Soulflayer 
+Lord Of The Funeral Pyre When Abyss Winds Return 
+Desecration Of Virgin (Sarcofago Cover) 
+Demon Seed 
+(Morbid Angel Cover) 
+Kill Again (Slayer Cover) 
+Eat Me Alive 
+(Judas Priest Cover) 
+Wolflust 
+Burning In Hell (Possessed Cover) 
+Pleasure To Kill 
+(Kreator Cover) 
+Genghis Kahn (Iron Maiden Cover) 
+Phallelujah (Live) 
+Reap The Whirlwind (Live) 
+Envenomed (Live) 
+Sodomy Curse (Live) 
+Perversion Enthroned 
+The Scapegoat 
+Soulflayer 
+Lord Of The Funeral Pyre
+
+### "Of Lucifer And Lightning" 2007, Death Metal
+
+1. Credo Decimatus 
+2. Antichrist Vanguard 
+3. Machinery of the Cleansing 
+4. Hexensabbat 
+5. Extermination Sworn 
+6. Saints of Blasphemy 
+7. Thrall 
+8. Shining One (Rex Luciferi) 
+9. Lustmord
+
 
 ## Отношения с другими группами
 

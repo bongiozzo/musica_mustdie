@@ -1,11 +1,39 @@
 # Sahg
 
-Дискография
-"I" 2005, Doom
-"II" 2008, Doom
-"III" 2010, Doom
-"Delusions of Grandeur" 2013, Doom
-"Memento Mori" 2016, Doom
+
+
+## Дискография
+
+### "I" 2005, Doom
+
+
+
+### "II" 2008, Doom
+
+
+
+### "III" 2010, Doom
+
+
+
+### "Delusions of Grandeur" 2013, Doom
+
+
+
+### "Memento Mori" 2016, Doom
+
+1. Black Unicorn  06:26 
+2. Devilspeed  03:55
+3. Take It to the Grave  05:59 
+4. Silence the Machines  04:48  
+5. Sanctimony  07:29   
+6. (Praise the) Electric Sun  03:37
+7. Travellers of Space and Light  05:20
+8. Blood of Oceans  06:57 
+
+Recorded at Duper Studio & Solslottet Studio.
+Mixed & mastered at Solslottet Studio.
+
 
 ## Отношения с другими группами
 

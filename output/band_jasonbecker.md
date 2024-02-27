@@ -1,9 +1,78 @@
 # Jason Becker
 
-Дискография
-"PERPETUAL BURN" 1988, Instrumental
-"PERSPECTIVE" 1995, Instrumental
-"THE RASPBERRY JAMS" 1999, Instrumental
+(ex-Cacophony)
+
+## Дискография
+
+### "PERPETUAL BURN" 1988, Instrumental
+
+Altitudes 
+Perpetual Burn 
+Mabel’s Fatal Fable 
+Air 
+Temple of the Absurd 
+Eleven Blue Egyptians 
+Dweller in the Cellar 
+Opus Pocus 
+
+
+Jason Becker plays all lead, rhythm, and bass guitars and keyboards, with guest solos by Marty Friedman and Atma Anur on drums. 
+
+"After recording 'Speed Metal Symphony' I had tons of music in me. 'Air', the clean-toned, counterpoint, multi-layered piece means a lot to me. It is very unique. The rest is interesting, blazing guitar. The tone is really awesome. I got lucky to use one of Marty's student's Marshalls, with my white and black hurricane guitar and a Boss super overdrive pedal. This CD is melodic yet very odd."
+
+Available from Shrapnel Records.
+
+ 
+
+
+### "PERSPECTIVE" 1995, Instrumental
+
+Primal 
+Rain 
+End of the Beginning 
+Higher 
+Blue 
+Life and Death 
+Empire 
+Serrana 
+Meet Me In the Morning 
+
+Featuring Steve Perry, Michael Lee Firkins, Matt and Gregg Bissonette, Steve Hunter, members of Bobby McFerrin’s Voicestra and members of the San Francisco Girls Chorus.
+
+"Perspective was originally released in 1995. When Eddie Van Halen records a never-before-released song of mine that will be added to this CD, Warner Brothers will re-release it in 1999.
+
+
+### "THE RASPBERRY JAMS" 1999, Instrumental
+
+1. Becker-Ola
+2. Mandy's Throbbing Little Heart
+3. Amma
+4. When You Wish Upon A Star
+5. Jasin Street
+6. Beatle Grubs
+7. Grilled Peeps
+8. If You Have To Shoot...Shoot - Don't Talk
+9. Purple Chewable Fern
+10. Black Stallion Jam
+11. Amarnath
+12. Angel Eyes
+13. Throat Hole
+14. Dang Sea Of Samsara
+15. Urmila
+16. Thousand Million Suns
+17. Clean Solo
+18. Too Fast, No Good For You!
+19. Sweet Baboon
+20. Shock Tea
+21. Ghost To The Post
+22. Blood On The Traches
+23. Oddly Enough
+24. Crush
+25. Vocal Silliness
+ 
+
+
+
 
 ## Отношения с другими группами
 

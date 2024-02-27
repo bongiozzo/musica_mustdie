@@ -1,7 +1,22 @@
 # Potentiam
 
-Дискография
-"Balsyn" 1999, Black Metal
+
+
+## Дискография
+
+### "Balsyn" 1999, Black Metal
+
+1.  To Know Is to Die  11:34  
+2.  Pleasures of Suffering, The  6:41  
+3.  Voices Within  5:36  
+4.  In Unity  3:52  
+5.  Alfablo  4:07  
+6.  Latum Oss Biaia  5:37  
+7.  My Journey into Darkness  3:18  
+8.  Sorcery  5:46  
+9.  Flames of Potentiam  5:25  
+
+
 
 ## Отношения с другими группами
 

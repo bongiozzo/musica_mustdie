@@ -1,11 +1,77 @@
 # Lonewolf
 
-Дискография
-"March into The Arena" 2002, Heavy Metal
-"Unholy Paradise" 2003, Heavy Metal
-"Made in Hell" 2008, Heavy Metal
-"The Dark Crusade" 2009, Heavy Metal
-"Army of the Damned" 2012, Heavy Metal
+Heavy Metal
+
+## Дискография
+
+### "March into The Arena" 2002, Heavy Metal
+
+- Morbid Beauty
+- March into the Arena
+- Pagan Glory
+- Curse of the 7 Seas
+- Forgotten Shadows
+- Towards the Light
+- Buried Alive
+- Holy Evil
+- Children of the Unlight (Bonus track)  
+
+Line-up : Felix (Drums) Mark (Lead Guitar) Jens (Guitar/Vocals) Dryss (Bass)
+
+### "Unholy Paradise" 2003, Heavy Metal
+
+-Stronger than Evil (Pagan Glory pt. 2)
+- 1789
+- S.P.Q.R.
+- Wild and Free
+- Snake in Eden
+- Behind the Cross
+- Unholy Paradise
+- Medieval Witchcraft
+- Phantomride
+- Erik The Red
+
+### "Made in Hell" 2008, Heavy Metal
+
+1. Shadowland  05:46   
+2. Divine Art Of Lies  05:10
+3. Host Of The Dark  04:22    
+4. Seawolf  04:00    
+5. Black Heaven  05:24   
+6. Made In Hell  04:52  
+7. Night Peace  03:47    
+8. The Heart Of Hell  03:59   
+9. The New Inquisition  04:54   
+10. Utopia  05:30 
+
+### "The Dark Crusade" 2009, Heavy Metal
+
+1. Dragons of the Night  01:16 
+2. Viktoria  05:11   
+3. Legacy of the Wild  05:24   
+4. The Dark Crusade  04:15   
+5. Hail Victory  07:15  
+6. Warrior Priest  03:53   
+7. The Wolf Division  03:59   
+8. Heathen Horde  05:47   
+9. Words of the Witch  05:12   
+10. Winter Farewell  03:53   
+11. The Hour Zero  10:55 
+
+### "Army of the Damned" 2012, Heavy Metal
+
+1.	 Lonewolf	04:36	 
+2.	 Crawling to Hell	04:56	 
+3.	 Army of the Damned	04:23	 
+4.	 Hellbent for Metal	03:09	 
+5.	 Soulreapers	03:07	 
+6.	 Celtic Heart	05:59	 
+7.	 The Last Defenders	04:12	 
+8.	 Cold	05:49	 
+9.	 The One You Never See	04:58	 
+10.	 Tally Ho	05:50	 
+11.	 One Second in Eternity	03:40
+
 
 ## Отношения с другими группами
 

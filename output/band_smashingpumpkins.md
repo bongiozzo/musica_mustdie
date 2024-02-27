@@ -1,10 +1,93 @@
 # Smashing Pumpkins
 
-Дискография
-"Seamese Dreams" 1993, Grunge
-"Pisces Iscariot" 1994, Grunge
-"Mellon Collie And The Infinite Sadness (Part I)" 1995, Grunge
-"Mellon Collie And The Infinite Sadness (Part II)" 1995, Grunge
+Blues Hard Rock
+
+## Дискография
+
+### "Seamese Dreams" 1993, Grunge
+
+1. Cherub Rock
+2. Quiet
+3. Today
+4. Hummer
+5. Rocket
+6. Disarm
+7. Soma
+8. Geek USA
+9. Mayonaise
+10. Spaceboy
+11. Silverfuck
+12. Sweet, Sweet
+13. Luna
+
+All Songs Written By SMASHING PUMPKINS
+Produced By Butch Vig
+Recorded & Mixed At Trielops Sound Studio, Atlanta JA
+
+(p)&(c) 1993 VIRGIN Records
+
+### "Pisces Iscariot" 1994, Grunge
+
+1. Soothe
+2. Frail And Bedazzled
+3. Whir
+4. Blew Away
+5. Landslight
+6. Blue
+7. Girl Named Sandoz
+8. La Dolly Vita
+
+All Songs By Billy Corgan, Except 4 By James Iha, 5 By Stevie Nicks, 7 By Eric Burdon, John Weider
+Produced By SMASHING PUMPKINS
+
+(p)&(c) 1994 VIRGIN Records
+
+### "Mellon Collie And The Infinite Sadness (Part I)" 1995, Grunge
+
+1. Mellon Collie And The Infinite Sadness
+2. Tonight, Tonight
+3. Jellybelly
+4. Zero
+5. Here Is No Why
+6. Bullet With Butterfly Wings
+7. To Forgive
+8. An Ode To No One
+9. Love
+10.Cupid De Locke
+11.Galapogos
+12.Muzzle
+[13].Porcelina Of The Vast OCeans
+[14].Take Me Down
+[15].Where Boys Fear To Tread
+[16].Bodies
+[17].Thiry-Three
+[18].In The Arms Of Sleep
+[19].1979
+[20].Tales Of A Scorched Earth
+[21].Thru The Eyes Of Ruby
+
+Produced By Flood, Alan Moulder & Billy Corgan.
+Recorded & Mixed At Pumpkinland, Sadlands, Bugg Studios.
+Enginereed By Alan Moulder, Flood & Chris Shepard.
+
+Billy Corgan
+James Iha
+D'arcy
+Jimmy Chamberlin
+
+(P)&(C) 1995 VIRGIN Records
+
+### "Mellon Collie And The Infinite Sadness (Part II)" 1995, Grunge
+
+1. Stumbleine
+2. We Only Come Out At Night
+3. Beautiful
+4. Lily (Me One And Only)
+5. By Starlight
+6. Farewell And Goodnight
+
+(P)&(C) 1995 VIRGIN Records
+
 
 ## Отношения с другими группами
 

@@ -1,11 +1,41 @@
 # Veil Of Maya
 
-Дискография
-"All Things Set Aside" 2006, Deathcore
-"The Common Man's Collapse" 2008, Deathcore
-"[id]" 2010, Deathcore
-"Eclipse" 2012, Deathcore
-"Matriarch" 2015, Deathcore
+
+
+## Дискография
+
+### "All Things Set Aside" 2006, Deathcore
+
+
+
+### "The Common Man's Collapse" 2008, Deathcore
+
+
+
+### "[id]" 2010, Deathcore
+
+
+
+### "Eclipse" 2012, Deathcore
+
+
+
+### "Matriarch" 2015, Deathcore
+
+1. Nyu  01:55    
+2. Leeloo  02:51    
+3. Ellie  03:03    
+4. Lucy  02:55    
+5. Mikasa  03:09   
+6. Aeris  03:47    
+7. Three-Fifty  03:26    
+8. Phoenix  03:16   
+9. Matriarch  01:18  
+10. Teleute  03:00   
+11. Daenerys  03:39  
+12. Lisbeth  03:45  
+
+
 
 ## Отношения с другими группами
 

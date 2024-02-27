@@ -1,14 +1,161 @@
 # Faith No More
 
-Дискография
-"We Care a Lot" 1985, Metal
-"Introduce Yourself" 1987, Hard Rock
-"The Real Thing" 1989, Hard Rock
-"Live At The Brixton Academy" 1991, Metal
-"Angel Dust" 1992, Hard Rock
-"King for a Day, Fool for a Lifetime" 1995, Metal
-"Digging the Grave" 1995, Metal
-"Album of the Year" 1997, Alternative
+fusion of heavy metal, funk, hip-hop, and progressive rock
+
+## Дискография
+
+### "We Care a Lot" 1985, Metal
+
+1. We Care A Lot
+2. The Jungle
+3. Mark Bowen
+4. Jim
+5. Why Do You Bother
+6. Greed
+7. Pills For Breakfast
+8. As The Worm Turns
+9. Arabian Disco
+10.New Beginnings
+
+Chuck Mosely - Vocals
+Billy Gould - Bass
+Roddy Bottum - Keyboards
+Mike Bordin - Drums
+James B.Martin - Guitars
+
+Produced By Matt Wallace & FAITH NO MORE
+Mixed By Andy Wallace
+Recorded At Bearsville Studios, Bearsville, NY
+
+(p)&(c) 1996 SLASH Records
+
+### "Introduce Yourself" 1987, Hard Rock
+
+1.  Faster Disco
+2.  Anne's Song
+3.  Introduce Yourself
+4.  Chinese Arithmetic
+5.  Death March
+6.  We Care A Lot
+7.  R 'n R
+8.  The Crab Song
+9.  Blood
+10.Spirit
+
+(P)c 1987
+
+### "The Real Thing" 1989, Hard Rock
+
+1.  From Out Of Nowhere
+2.  Epic
+3.  Falling To Pieces
+4.  Surprise ! You're Dead !
+5.  Zombie Eaters
+6.  The Real Thing
+7.  Underwater Love
+8.  The Morning After
+9.  Woodpecker From Mars
+10.War Pigs
+11.Edge Of The World
+
+(P)c 1989 SLASH Records
+
+### "Live At The Brixton Academy" 1991, Metal
+
+
+
+### "Angel Dust" 1992, Hard Rock
+
+1. Land Of Sunshine
+2. Caffeine
+3. Midlife Crisis
+4. RV
+5. Smaller And Smaller
+6. Everything's Ruined
+7. Malpractice
+8. Kindergarten
+9. Be Aggressive
+10.A Small Victory
+11.Crack Hitler
+12.Jizzlobber
+13.Midnight Cowboy
+
+(p)&(c) 1992 SLASH Records
+
+### "King for a Day, Fool for a Lifetime" 1995, Metal
+
+1. Get Out
+2. Ricochet
+3. Evidence
+4. The Gentle Art Of Making Enemies
+5. Star A.D.
+6. Cucko For Caca
+7. Caralho Voader
+8. Ugly In The Morning
+9. Digging The Grave
+10. Take This Bottle
+11. King For A Day
+12. What A Day
+13. The Last To Know
+14. Just A Man
+
+ Mike Patton - Vocals
+ Billy Gould - Bass
+ Roddy Bottum - Keyboards
+ Mike Bordin - Drums
+Guitars By Trey Spruance
+
+Produced By Andy Wallace & FAITH NO MORE
+Mixed By Andy Wallace
+Recorded At Bearsville Studios, Bearsville, NY
+
+(p)&(c) 1995 SLASH Records
+
+### "Digging the Grave" 1995, Metal
+
+1. Digging The Grave
+2. Absolute Zero
+3. King For A Day
+4. I Wanna Fuck Myself
+5. Spanish Eyes
+
+All songs written by FAITH NO
+MORE
+Produced By Andy Wallace and FAITH
+NO MORE
+
+Mike Patton - Vocals
+Billy Gou1d - Bass
+Roddy Bottum - Keyboards
+Mike Bordin - Drums
+
+(P)&c 1995 SLASH Records
+
+### "Album of the Year" 1997, Alternative
+
+1. Collision
+2. Stripsearch
+3. Last Cup Of Sorrow
+4. Naked In Front Of The Computer
+5. Helpless
+6. Mouth to Mouth
+7. Ashes To Ashes
+8. She Loves Me Not
+9. Got That Feeling
+10. Paths Of Glory
+11. Home Sick Home
+12. Pristina
+
+Produced By Roli Mosimann and Billy Gould
+
+Mike Patton - vocals
+Jon Hudson - Guitar
+Billy Gould - Bass Guitar
+Roddy Bottum - Keyboards
+Mike Bordin - Drums
+
+(p)(c)1997 Slash Records
+
 
 ## Отношения с другими группами
 

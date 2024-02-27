@@ -1,9 +1,44 @@
 # Paul DiAnno
 
-Дискография
-"The Worlds First Iron Man" 1997, Heavy Metal
-"Nomad" 2001, Heavy Metal
-"The Living Death" 2006, Heavy Metal
+
+
+## Дискография
+
+### "The Worlds First Iron Man" 1997, Heavy Metal
+
+01. Living In America
+02. Play That Funky Music
+03. Forever
+04. What Am I Gonna Do
+05. I Ain't Coming Back No More
+06. I'm All Shook Up
+07. Caught Your Lie
+08. Had Enough
+09. Take These Chains From Me
+10. Show Some Emotion
+11. Remember Tomorrow (Live)
+12. Wrathchild (Live)
+13. Children Of The Revolution (Live)
+14. Phantom Of The Opera (Live)
+15. Sanctuary (Live)
+
+### "Nomad" 2001, Heavy Metal
+
+01. Mad Man In The Attic 04:59 
+02. War Machine 03:09 
+03. Brothers Of The Tomb 04:40 
+04. P.O.V. 2000 03:52 
+05. The Living Dead 05:33 
+06. Nomad 07:11 
+07. S.A.T.A.N. 04:14 
+08. Cold World 03:51 
+09. Do Or Die 03:30 
+10. Dog Dead 04:49
+
+### "The Living Death" 2006, Heavy Metal
+
+
+
 
 ## Отношения с другими группами
 

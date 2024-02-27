@@ -1,8 +1,17 @@
 # Lancer
 
-Дискография
-"Lancer" 2013, Power Metal
-"Second Storm" 2015, Power Metal
+
+
+## Дискография
+
+### "Lancer" 2013, Power Metal
+
+
+
+### "Second Storm" 2015, Power Metal
+
+
+
 
 ## Отношения с другими группами
 

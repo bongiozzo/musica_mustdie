@@ -1,14 +1,193 @@
 # Fleshcrawl
 
-Дискография
-"Descend Into The Absurd" 1992, Death Metal
-"Impurity" 1994, Death Metal
-"Bloodsoul" 1996, Death Metal
-"Bloodred Massacre" 1997, Death Metal
-"As Blood Rains From The Sky - We Walk The Path Of Endless Fire" 2000, Death Metal
-"Soulskinner" 2001, Death Metal
-"Made Of Flesh" 2004, Death Metal
-"Structures of Death" 2007, Death Metal
+
+
+## Дискография
+
+### "Descend Into The Absurd" 1992, Death Metal
+
+1. Between Shadows They Crawl
+2. Phrenetic Tendencies
+3. Perpetual Down  *
+4. Purulent Bowel Erosion
+5. Lost In A Grave
+6. Never To Die Again
+7. Festering Flesh *
+8. Infected Subconscious
+9. Evoke The Excess
+
+ Alex Pretzer - Vocals
+ Markus Amann - Bass
+ Stefan Hanus - Guitar
+ Gero Schmitt - Guitar / Additional Vocals On *
+ Bastian Herzog - Drums / Additional Vocals On *
+
+All Music & Lyrics By FLESHCRAWL.
+Produced By Boss & FLESHCRAWL.
+Engineered,Recorded & Mixed By Rex Gisslen.
+Recorded At Montezuma Studio,Stockholm,June `92.
+
+(p)&(c) 1992 BLACK MARK Productions
+
+### "Impurity" 1994, Death Metal
+
+1. From The Dead To The Living
+2. Withering Life
+3. Reincarnation *
+4. Subordinated
+5. Disfigured
+6. After Obliteration **
+7. Stiffen Souls
+8. Center Of Hate
+9. Inevitable End
+10.Incineration
+
+ Alex Pretzer - Vocals
+ Mike Hanus - Guitars, Harmonized Vocals
+ Stwfan Hanus - Guitars
+ Markus Amann - Bass
+ Bastian Herzog - Drums, Vocals
+ Dan Swano - Additional Vocals, Keyboards
+ Rickard Alriksson(NECRONY) - Vocals On 5
+
+All Music & Lyrics By FLESHCRAWL, Except * By DEMIGOD, ** By Dan Swano
+Produced By FLESHCRAWL & Dan Swano
+Recorded & Mixed At Unisound Studio In Finspang, Sweden, December 1993
+
+(p)&(c) 1994 BLACK MARK Productions
+
+### "Bloodsoul" 1996, Death Metal
+
+1. Bloodsoul
+2. In The Dead Of Night
+3. Embalmed Beauty Sleep *
+4. Cootribution Suicide
+5. The Age Of Chaos
+6. Recycling The Corpses
+7. Nocturnal Funeral
+8. Tomb Of Memories
+
+All songs written by FLESHCRAWL
+except * written by DEMII.ICH
+Produced by FLESHCRAWL and Peter Tagtgren
+Engineered by Peter Tagtgren
+Recorded and mixed at Abyss Studio, Grangarde-Parlby, Sweden
+
+Alex Pretzer - Vocals
+Bastian Herzog - Drums, Vocals
+Mike Hanus - Guitar, Bass
+Stefan Hanus - Guitar
+Guest Vocals by Peter Tagtgren (HYPOCRISY)  in "Blacksoul'
+
+(p)(c) 1996 BLACK MARK Production
+
+### "Bloodred Massacre" 1997, Death Metal
+
+1. Hellspawn
+2. Dark Dimension
+3. Bloodred Massacre
+4. Awaiting the End
+5. The Messenger
+6. Through the Veil of Dawn
+7. Necrophiliac
+8. Beyond Belief
+9. Slaughter at Dawn
+
+Produced by FLESHCRAWL & Peter T&#1076;gtgren
+Recorded and mixed at Abyss Studio, Grang&#1076;rde-P&#1076;rlby, Sweden, 11.8. - 23.8.1997
+Engineered by Peter T&#1076;gtgren and Mikael Hedlund
+Mixed by FLESHCRAWL & Peter T&#1076;gtgren
+Mastered by Peter in de Betou at Cuttingroom, Solna, Sweden
+All music and lyrics by FLESHCRAWL, except "Necrophiliac" by SLAYER
+Cover artwork by Juha Vuorma
+Layout by Stefan & Mike Hanus. Graphic work by Stefan Hanus (ORCA GRAPHICS)
+
+
+### "As Blood Rains From The Sky - We Walk The Path Of Endless Fire" 2000, Death Metal
+
+01. March Of The Dead (intro)
+02. Path Of Endless Fire
+03. Under The Banner Of Death
+04. As Blood Rains From The Sky
+05. Embraced By Evil
+06. The Dark Side Of My Soul
+07. Swords Of Darkness
+08. Impure Massacre Of Bloody Souls
+09. Creation Of Wrath
+10. Graves Of The Tortured
+11. Feed The Demon's Heart
+12. The Day Man Lost
+
+
+
+Sven Gross (vocals)
+Stefan Hanus (guitars)
+Mike Hanus (guitars)
+Tobias Schick (bass)
+Bastian Herzog (drums)
+
+### "Soulskinner" 2001, Death Metal
+
+01. Soulskinner
+02. Dying Blood
+03. Carved In Flesh
+04. Breeding The Dead
+05. The Forthcoming End
+06. Deathvastation
+07. Legions Of Hatred
+08. Forced To Kill
+09. Rotten
+10. Metal Gods
+
+
+Sven Gross (vocals)
+Stefan Hanus (guitars)
+Mike Hanus (guitars)
+Tobias Schick (bass)
+Bastian Herzog (drums)
+
+
+
+
+### "Made Of Flesh" 2004, Death Metal
+
+1. Beneath A Dying Sun
+2. Made Of Flesh
+3. Scourge Of The Bleeding Haunted
+4. Into The Depths Of No Return
+5. Flesh Bloody Flesh
+6. Forged In Blood
+7. Damned in Fire
+8. Demons Of The Dead
+9. Carnal Devourment
+10. When Life Surrenders
+
+### "Structures of Death" 2007, Death Metal
+
+1. Skulls of the Rotten (Intro) 01:21  
+2. Structures of Death 02:40  
+3. Into the Fire of Hell 03:51  
+4. Written in Blood 03:03  
+5. A Spirit Dressed in Black 04:03  
+6. Fleshcult 03:00  
+7. Into the Crypts of Scattered Souls 02:40  
+8. Anthem of Death 04:50  
+9. Nothing But Flesh Remains 03:37  
+10. Rest in Pain (R.I.P.) 03:20  
+11. About Mortality 02:50  
+12. War of the Dead 05:35 
+
+
+The limited first edition will be released in digipack format and will include a bonus track ("Rockin' Is My Business", The Four Horsemen cover).
+
+Recorded at Studio Toninfusion in Ulm with Mark Schmitt. Mixing and mastering done by Pelle Saether. 
+
+Sven Gross - Vocals 
+Oliver Grbavac - Guitar, Vocals 
+Mike Hanus - Guitar, Vocals 
+Bastian Herzog - Drums, Vocals
+Nico Scheffler - Bass
+
 
 ## Отношения с другими группами
 

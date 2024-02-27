@@ -1,10 +1,34 @@
 # Exmortus
 
-Дискография
-"In Hatred's Flame" 2008, Melodic Death Metal
-"Beyond The Fall Of Time" 2011, Melodic Death Metal
-"Slave To The Sword" 2014, Melodic Death Metal
-"Ride Forth" 2016, Melodic Death Metal
+
+
+## Дискография
+
+### "In Hatred's Flame" 2008, Melodic Death Metal
+
+
+
+### "Beyond The Fall Of Time" 2011, Melodic Death Metal
+
+
+
+### "Slave To The Sword" 2014, Melodic Death Metal
+
+
+
+### "Ride Forth" 2016, Melodic Death Metal
+
+1. Speed of the Strike  04:43    
+2. Relentless  03:59 
+3. For the Horde  04:40
+4. Let Us Roam  03:56    
+5. Black Sails  04:54    
+6. Hymn of Hate  05:13    
+7. Appassionata  05:08    
+8. Death to Tyrants  04:43 
+9. Fire and Ice  06:10  
+
+
 
 ## Отношения с другими группами
 

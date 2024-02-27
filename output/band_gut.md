@@ -1,7 +1,63 @@
 # Gut
 
-Дискография
-"Odour Of Torture" 1995, Deathcore
+
+
+## Дискография
+
+### "Odour Of Torture" 1995, Deathcore
+
+1. Wound Fuck
+2. Perpetual Sperm Ejaculation
+3. Cuntshredder
+4. The Taboo Room
+5. Eat My Cum (Choke On It)
+6. Consequence
+7. Dildo Delirium
+8. Cripple Bitch
+9. Triple Penetration
+10.Dissected Homo-Foreskin
+11.Sperm Poisoning
+12.Grotesque Deformities
+13.Cunt Catheter
+14.Twat Amputation
+15.Disgusting Corpse Dissection
+16.Bodyscarper
+17.Vomiturium Of Maggot - Infested Cunts
+18.Drastic Dissection
+19.I'll Make You Dead
+20.Lips - The Passage To Pleasure
+21.She Died With Her Legs
+22.Faggot Colony
+23.Revel In Cunt Slime
+24.Hot Power Shower
+25.Embalmed In Pig Sperm *
+26.Cock Contest
+27.Addicted To Animal Sex
+28.Gorgasmotron
+29.Schwanzlose Amphibie
+30.Caviar Dinner
+31.Art Of Butchery
+32.Dykeslayer
+33.Anal Sushi
+34.Diarrhea Shower
+35.Defaced Slut
+36.Afterburner
+37.Knocked Out Bitch
+38.Confessions Of A Necrophile
+39.Odour Torture
+
+All Songs By GUT.
+Engineered By Roman Schonsee.
+Recorded & Mixed At Factory Of Audio Arts.
+Additional Vocals On * By Roman Schonsee (PYOGENESIS).
+
+Torturer Of Lacerated + Satanic Tits - Guitar
+Organic Masturbator Of 1000 Spalttered Whores - Drums, Vocals
+GG Ollia - The Spermsoaker Consumer Of Pussy Barbecue - Vocals
+Cuntlicking Bitch Killer Of The Anti - Whore Gestapo - Bass
+
+(P)&(C) 1995 MORBID Records
+
 
 ## Отношения с другими группами
 

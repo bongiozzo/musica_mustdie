@@ -1,8 +1,28 @@
 # Nox Mortis
 
-Дискография
-"Im Schatten Des Hasses" 1996, Death Doom
-"7 Lies" 1999, Death Doom
+Atmospheric Dark Death Doom
+
+## Дискография
+
+### "Im Schatten Des Hasses" 1996, Death Doom
+
+1. Intro
+2. Im Schatten Des Hasses
+3. Lost In Selfhate
+4. Horizon Of Shadows
+5. Castle Of Eternity
+6. Choirs In Trance
+7. Outro
+
+Recorded & Mixed At LES Studio.
+Produced & Mixed By Karl-Heinz Schiller & NOX MORTIS.
+
+(P)(C) 1996 PROPHECY Productions // PRO 002
+
+### "7 Lies" 1999, Death Doom
+
+
+
 
 ## Отношения с другими группами
 

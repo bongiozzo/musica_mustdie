@@ -1,20 +1,314 @@
 # Pain of Salvation
 
-Дискография
-"Entropia" 1997, Progressive
-"One  Hour By The Concrete Lake" 1998, Progressive
-"The Perfect Element    Part I" 2000, Progressive
-"Remedy Lane" 2002, Progressive
-"12:5" 2004, Progressive
-"BE" 2004, Progressive
-"Be (DVD+CD)" 2005, Progressive
-"Scarsick" 2007, Progressive
-"Ending Themes (On The Two Deaths Of Pain Of Salvation) [2CD/2DVD]" 2009, Progressive
-"Linoleum" 2009, Progressive
-"Road Salt One" 2010, Progressive
-"Road Salt Two" 2011, Progressive
-"Falling Home (Acoustic album)" 2014, Progressive
-"In the Passing Light of Day" 2017, Progressive
+progressive-art-metal
+
+## Дискография
+
+### "Entropia" 1997, Progressive
+
+! (foreword) 
+   Chapter I:    
+Welcome to Entropia 
+Winning a War 
+People Passing By 
+Oblivion Ocean 
+   Chapter II:    
+Stress 
+Revival  
+Void of Her 
+To The End  
+Never Learn to Fly (Japanese Bonus)
+   Chapter III:    
+Circles 
+Nightmist 
+Plains of Dawn  
+Leaving Entropia (epilogue) 
+
+
+Recorded during spring 1997 at Roasting House Studios.
+Produced by Anders Theo Theander and Pain of Salvation. 
+Mastered by Rockfile Mastering and Pain of Salvation. 
+Artwork by Patrik Larsson/Peel Productions. 
+
+
+
+
+### "One  Hour By The Concrete Lake" 1998, Progressive
+
+Spirit of the Land
+   Part of the Machine:     
+Inside 
+The Big Machine 
+New Year's Eve
+   Spirit of Man:      
+Handful of Nothing 
+Water 
+Home
+   Karachay:       
+Black Hills 
+Pilgrim 
+Shore Serenity 
+Inside Out
+
+
+
+Recorded during spring 1998 at Roasting House Studios. 
+Produced by Anders Theo Theander and Pain of Salvation. 
+Mastered by Rockfile Mastering and Pain of Salvation.
+ Artwork by Patrik Larsson/Peel Productions
+      
+
+### "The Perfect Element    Part I" 2000, Progressive
+
+I: "As these two desolate worlds collide"
+ 1. Used 
+ 2. In the Flesh 
+ 3. Ashes 
+ 4. Morning on Earth 
+II: "It all catches up on you when you slow down"
+ 5. Idioglossia
+ 6. Her Voices
+ 7. Dedication
+ 8. King of Loss
+III: "Far beyond the point of no return"
+ 9. Reconciliation
+10. Song for the Innocent
+11. Falling
+12. The Perfect Element 
+
+
+
+ Recorded during spring 2000 at Roasting House Studios.
+ Produced and mastered at Roasting House
+ by  Anders Theo Theander, Daniel Gildenlow and Pain of Salvation.
+ Artwork and multimedia by Daniel Gildenlow/Entropia Productions. 
+
+
+### "Remedy Lane" 2002, Progressive
+
+01 Of Two Beginnings (2:26)
+     CHAPTER I:
+02 Ending Theme (4:59)
+03 Fandango (5:51)
+04 Trace of Blood (8:17)
+05 This Heart of Mine (I Pledge) (4:01)
+     CHAPTER II:
+06 Undertow (4:47)
+07 Rope Ends (7:02)
+08 Chain Sling (3:58)
+09 Dryad of the Woods (4:55)
+     CHAPTER III:
+10 Remedy Lane (2:18)
+11 Waking Every God (5:19)
+12 Second Love (4:21)
+13 Beyond the Pale (9:56)
+
+
+
+Daniel Gildenlow - Vocals, guitars
+Johan Langell - Drums
+Kristoffer Gildenlow - Bass
+Fredrik Hermansson - Keyboards, samples
+Johan Hallgren - Guitar
+
+
+Produced by: Anders Theo Theander and Daniel Gildenlow
+
+
+
+
+### "12:5" 2004, Progressive
+
+
+
+### "BE" 2004, Progressive
+
+Prologue
+01. Animae Partus ("I am") 
+I. Animae Partus - All in the Image of
+02. Deus Nova (Fabricatio)
+03. Imago (Homines Partus)
+04. Pluvius Aestivus Of Summer Rain (Homines Fabula Initium)
+II. Machinassiah Of Gods & Slaves
+05. Lilium Cruentus (Deus Nova) On the Loss of Innocence
+06. Nauticus (Drifting)
+07. Dea Pecuniae
+- I. Mr. Money
+- II. Permanere
+- III: I Raise My Glass
+III. Machinageddon Nemo Idoneus Aderat Qui Responderet
+08. Vocari Dei Sordes Aetas - Mess Age
+09. Diffidentia (Breaching the Core) Exitus - Drifting II
+10. Nihil Morari (Homines Fabula Finis)
+IV. Machinauticus Of the Ones With no Hope
+11. Latericius Valete
+12. Omni Permanere?
+13. Iter Impius Martigena, son of Mars (Obitus Diutinus)
+14. Martius/Nauticus II
+V. Deus Nova Mobile ...and a God is Born
+15. Animae Partus II
+
+### "Be (DVD+CD)" 2005, Progressive
+
+
+
+### "Scarsick" 2007, Progressive
+
+1. Scarsick
+2. Spitfall
+3. Cribcaged
+4. America
+5. Disco Queen
+6. Kingdom of Loss
+7. Mrs Modern Mother Mary
+8. Idiocracy
+9. Flame to the Moth
+10. Enter Rain
+
+### "Ending Themes (On The Two Deaths Of Pain Of Salvation) [2CD/2DVD]" 2009, Progressive
+
+CD:
+Disc 1 
+1. Scarsick 07:09  
+2. America 05:55  
+3. Nightmist 07:48  
+4. ! (Foreword) 06:47  
+5. Handful of Nothing 07:43  
+6. New Year's Eve 05:47  
+7. Ashes 05:25  
+8. Undertow 05:11  
+Disc 2 
+1. This Heart of Mine / Song for the Innocent 06:25  
+2. Chain Sling 03:59  
+3. Diffidentia 07:35  
+4. Flame To The Moth 06:03  
+5. Disco Queen 08:14  
+6. Hallelujah (Leonard Cohen cover) 09:04  
+7. Cribcaged 06:23  
+8. Used 05:42 
+
+DVD:
+Disc 1 
+1. SixWorlds/EightDays Documentary   
+Disc 2 
+1. Scarsick   
+2. America   
+3. ! (Foreword)   
+4. Nightmist   
+5. Handful Of Nothing   
+6. New Year's Eve   
+7. Ashes   
+8. Undertow   
+9. This Heart Of Mine/Song For The Innocent   
+10. Chain Sling   
+11. Diffidentia   
+12. Flame To The Moth   
+13. Disco Queen   
+14. Hallelujah (Leonard Cohen cover)   
+15. Cribcaged   
+16. Used 
+
+
+### "Linoleum" 2009, Progressive
+
+1. Linoleum 04:54
+2. Mortar Grind 05:51
+3. If You Wait 02:50 
+4. Gone 07:55  
+5. Bonus Track B 02:28  
+6. Yellow Raven 05:39 
+
+
+Line-up:
+Daniel Gildenlow - lead vocals/guitars/bass (except bass on "Mortar Grind")
+Johan Hallgren - guitars/backing vocals
+Fredrik Hermansson - keyboards
+Leo Margarit - drums/backing vocals
+Guest:
+Per Schelander - bass on "Mortar Grind"
+
+All music and lyrics by Daniel Gildenlow (except "Yellow Raven").
+EP cover and artwork by Daniel Gildenlow.
+
+"Yellow Raven" is a Scorpions cover.
+
+
+### "Road Salt One" 2010, Progressive
+
+1. No Way 05:28  
+2. She Likes to Hide 02:57  
+3. Sisters 06:15
+4. Of Dust 02:32  
+5. Tell Me You Don't Know 02:42  
+6. Sleeping Under the Stars 03:35  
+7. Darkness of Mine 04:17  
+8. Linoleum 04:55  
+9. Curiosity 03:33  
+10. Where It Hurts 04:51  
+11. Road Salt 03:00 
+12. Innocence 07:15 
+
+
+Also called "Road Salt - Ivory".
+
+Three versions of the album will be available:
+- standard edition (tracklist below), jewel case with 20-page booklet
+- limited edition, fold-out digipack with 24-page booklet, extended versions of
+"No Way" and "Road Salt", plus a bonus first track "What She Means to Me"
+- vinyl edition 
+
+### "Road Salt Two" 2011, Progressive
+
+1. Road Salt Theme (00:45)
+2. Softly She Cries (04:18)
+3. Conditioned (04:30)
+4. Healing Now (04:34)
+5. To The Shoreline (03:03)
+6. Break Darling Break (02:22) ***
+7. Eleven (02:28)
+8. 1979 (02:53)
+9. Of Salt (02:36) ***
+10. The Deeper Cut (06:14)
+11. Mortar Grind (05:49)
+12. Through The Distance (03:00)
+13. The Physics Of Gridlock (08:43)
+14. End Credits (02:20)
+ 
+*** : Bonus Track
+ 
+
+### "Falling Home (Acoustic album)" 2014, Progressive
+
+1. Stress  05:32   
+2. Linoleum  04:57   
+3. To the Shoreline  03:05  
+4. Holy Diver (Dio cover)  04:34   
+5. 1979  02:50   
+6. She Likes to Hide  02:57   
+7. Chain Sling  04:07   
+8. Perfect Day (Lou Reed cover)  04:51   
+9. Mrs. Modern Mother Mary  04:23   
+10. Flame to the Moth  04:30  
+11. Spitfall  06:42   
+12. King of Loss  07:12   
+13. Falling Home  03:05 
+
+
+### "In the Passing Light of Day" 2017, Progressive
+
+1. On a Tuesday  10:22   
+2. Tongue of God  04:53 
+3. Meaningless  04:47   
+4. Silent Gold  03:23 
+5. Full Throttle Tribe   09:05
+6. Reasons  04:45  
+7. Angels of Broken Things  06:24   
+8. The Taming of a Beast  06:33   
+9. If This Is the End  06:03    
+10. The Passing Light of Day  15:31 
+
+Recorded at Dugout Studio in Uppsala, Sweden.
+
 
 ## Отношения с другими группами
 

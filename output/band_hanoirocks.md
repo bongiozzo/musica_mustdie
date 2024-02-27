@@ -1,7 +1,13 @@
 # Hanoi Rocks
 
-Дискография
-"Street Poetry" 2007, Glam
+
+
+## Дискография
+
+### "Street Poetry" 2007, Glam
+
+
+
 
 ## Отношения с другими группами
 

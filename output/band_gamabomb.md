@@ -1,12 +1,61 @@
 # Gama Bomb
 
-Дискография
-"Survival Of The Fastest" 2005, Thrash
-"Citizen Brain" 2008, Thrash
-"Tales From The Grave In Space" 2009, Thrash
-"Terrorscope (EP)" 2013, Thrash
-"The Terror Tapes" 2013, Thrash
-"Untouchable Glory" 2015, Thrash
+
+
+## Дискография
+
+### "Survival Of The Fastest" 2005, Thrash
+
+
+
+### "Citizen Brain" 2008, Thrash
+
+
+
+### "Tales From The Grave In Space" 2009, Thrash
+
+
+
+### "Terrorscope (EP)" 2013, Thrash
+
+Side A:
+1- Terrorscope
+2 - Metal Idiot
+Side B:
+1 - 666% Insane
+2 - Jaws 4
+3 - Terroscope (Espa&#241;ol)
+
+### "The Terror Tapes" 2013, Thrash
+
+01. The Wrong Stuff
+02. Legend Of Speed
+03. Backwards Bible
+04. Beverly Hills Robocop
+05. Smoke The Blow With Willem Dafoe
+06. We Started The Fire
+07. Terrorscope
+08. The Cannibals Are In The Streets - All Flesh Must Be Eaten
+09. Shitting Yourself To Live
+10. Matrioshka Brain
+11. Metal Idiot
+12. Wrecking Ball
+
+### "Untouchable Glory" 2015, Thrash
+
+01. Ninja Untouchables/Untouchable Glory
+02. Avenge Me!
+03. Drinkers, Inc.
+04. My Evil Eye
+05. Tuck Your T-Shirt In
+06. Ride The Night
+07. She Thing
+08. Witching Mania
+09. James Joints
+10. Raging Skies
+11. I Will Haunt You
+12. After The Fire
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,32 @@
 # Nerve
 
-Дискография
-"Blood & Gold" 1996, Industrial
+
+
+## Дискография
+
+### "Blood & Gold" 1996, Industrial
+
+1. Blood
+2. My Mind
+3. Dirt
+4. Sane Men
+5. Gaia
+6. Exposure
+7. Discouragement
+8. Nihil
+9. Gold
+
+All songs written By Mills/Holkenberg
+except Dirt by Mills / Holkenborg / Longhout
+
+Produced & mixed by Daniel.B. and NERVE.
+Engineered by NERVE and Dirk de Vries.
+Recorded at the Telesound Studios, Liiuwarden, Holland
+
+NERVE is: Phil Mills & Tom Holkenborg
+
+(P)c1996 PLAY IT AGAIN SAM Records
+
 
 ## Отношения с другими группами
 

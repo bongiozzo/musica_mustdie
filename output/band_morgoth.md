@@ -1,12 +1,141 @@
 # Morgoth
 
-Дискография
-"Resurrection Absurd" 1989, Death Metal
-"Resurrection Absurd - The Eternal Fall" 1990, Death Metal
-"Cursed" 1991, Death Metal
-"Odium" 1993, Death Metal
-"Feel Sorry For The Fanatic" 1996, Death Metal
-"Ungod" 2015, Death Metal
+Intense Death Metal
+
+## Дискография
+
+### "Resurrection Absurd" 1989, Death Metal
+
+1. Dictated Deliverance
+2. Travel
+3. The Afterthought
+4. Selected Killing
+5. Lies Of Distrust
+
+ Marc Grewe - Vocals & Bass
+ Carsten Otterbach - Guitars
+ Harry Busse - Guitars
+ Rudiger Hennecke - Drums
+
+All Songs & Lyrics By MORGOTH.
+Produced By Dirk Draeger.
+
+(p)&(c) 1989 CENTURY MEDIA Records
+
+### "Resurrection Absurd - The Eternal Fall" 1990, Death Metal
+
+1. Dictated Deliverance
+2. Travel
+3. The Afterthought
+4. Selected Killing
+5. Lies Of Distrust
+1. Burnt Identity
+2. Female Infanticide
+3. White Gallery
+4. Pits Of
+6. Eternal Sentity
+
+ Mark Grewe - Vocals
+ Carsten Otterbach - Guitar
+ Rudiger Hennecke - Drums
+ Sebastian Swart - Bass
+ Harald Busse - Guitar
+
+(p)&(c) 1990 CENTURY MEDIA Records
+
+### "Cursed" 1991, Death Metal
+
+1. Cursed
+2. Body Count
+3. Exit To Temptation
+4. Unreal Imagination
+5. Isolated
+6. Sold Baptism
+7. Suffer Life
+8. Opportunity Is Gone
+9. Darkness
+
+ Mark Greve - Vocals
+ Carsten Otterbach - Guitar
+ Rudiger Hennecke - Drums
+ Sebastian Swart - Bass
+ Harald Busse - Guitar
+
+Produced By Dirk Draeger.
+Mixed At Music Grinder / L.A. By
+Randy Burns & Dirk Draeger.
+Recorded At Woodhouse Studios,
+Dortmund By Siggi Bemm.
+
+(p)&(c) 1991 CENTURY MEDIA Records
+
+### "Odium" 1993, Death Metal
+
+1. Resistance
+2. The Art Of Sinking
+3. Submission
+4. Under The Surface
+5. Drowning Sun
+6. War Inside
+7. Golden Age
+8. Odium
+
+ Mark Greve - Vocals
+ Carsten Otterbach - Guitar
+ Rudiger Hennecke - Drums
+ Sebastian Swart - Bass
+ Harald Busse - Guitar
+
+All Songs by MORGOTH.
+Produced By Dirk Draeger.
+Engineered & Mixed By Siggi Bemm.
+Recorded & Mixed At Woodhouse Studios.
+
+(p)&(c) 1993 CENTURY MEDIA Records
+
+### "Feel Sorry For The Fanatic" 1996, Death Metal
+
+1. This Fantastic Decade
+2. Last Laugh
+3. Cash...
+4. ...And It's Amazing Consequences
+5. Curiosity
+6. Forgotten Days
+7. Souls On A Pleasuretrip
+8. Graceland
+9. Watch The Fortune Wheel
+10.A New Start
+
+All songs written by MORGOTH.
+Produced by Dirk Draeger.
+Engineered and mixed by Siggy Bemm.
+Recorded and mixed at Woodhouse Studios.
+
+Marc Grewe - Vocals
+Harald Busse - Guitar
+Carsten Otterbash - Guitar
+Sebastian Swart - Bass
+Rudiger Hennecke - Drums
+
+(p)c 1996 CENTURY MEDIA Records
+
+### "Ungod" 2015, Death Metal
+
+01. House of Blood 02:34   
+02. Voice of Slumber 04:52    
+03. Snakestate 04:45
+04. Black Enemy 03:45    
+05. Descent into Hell 03:28   
+06. Ungod 06:13 (instrumental) 
+07. Nemesis 04:20    
+08. God Is Evil 03:57    
+09. Traitor 03:58    
+10. Prison in Flesh 03:31   
+11. The Dark Sleep 05:00 (instrumental)
+12. Die As Deceiver 03:53 (bonus track)
+13. Battalions Of Strangers 04:26 (bonus track)   
+
+
 
 ## Отношения с другими группами
 

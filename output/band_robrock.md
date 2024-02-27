@@ -1,9 +1,56 @@
 # Rob Rock
 
-Дискография
-"Eyes Of Eternity" 2003, Power Metal
-"Holy Hell" 2005, Heavy Metal
-"Garden Of Chaos" 2007, Heavy Metal
+
+
+## Дискография
+
+### "Eyes Of Eternity" 2003, Power Metal
+
+1. Rock The Earth (5.00)
+2. Stranglehold (4.35)
+3. Eyes Of Eternity (4.10)
+4. The Everlasting (4.36)
+5. Rage Of Creation (5.20)
+6. Conqueror's Hymn (4.48)
+7. Fields Of Fire (5.35)
+8. You Know (5.31)
+9. The Hour Of Dawn (12.14)
+
+
+All songs written by Rob Rock and Roy Z
+Produced, arranged and mixed by Roy Z
+Engineered by Roy Z
+Recorded at Mountain View Studios, CA
+
+Rob Rock - Lead and Backing Vocals
+Roy Z - Guitar, Bass
+Reynold Carlson - Drums
+Ray Burke - Bass
+Mistheria - Keyboards
+Rick Renstrom - Guitar
+Bob Rossi - Guitar, Backing Vocals
+Stephen Elder - Bass, Backing Vocals
+Tracy Shell - Drums
+
+
+### "Holy Hell" 2005, Heavy Metal
+
+
+
+### "Garden Of Chaos" 2007, Heavy Metal
+
+Garden of Chaos 
+Satan`s Playground 
+Savior`s Call 
+This Time Is the Last Time 
+Only a Matter of Time 
+Spirit in the Sky 
+Metal Breed 
+Millenial Reign 
+Unconditional 
+Ride the Wind 
+Ode to Alexander
+
 
 ## Отношения с другими группами
 

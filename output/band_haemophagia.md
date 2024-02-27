@@ -1,7 +1,20 @@
 # Haemophagia
 
-Дискография
-"From Sickness to Cult" 2007, Death Metal
+
+
+## Дискография
+
+### "From Sickness to Cult" 2007, Death Metal
+
+1. Appealing Obliteration	 
+2. Vengeance Through Murder	 
+3. War for Black Gold	 
+4. From Sickness to Cult	 
+5. Human Asphyxiation	 
+6. Head Shot		 
+7. Her Body on a Viscera Bath	 
+8. Funeral Inception (Suffocation Cover)
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,21 @@
 # Aether Realm
 
-Дискография
-"One Chosen by the Gods" 2013, Melodic Death Metal
+
+
+## Дискография
+
+### "One Chosen by the Gods" 2013, Melodic Death Metal
+
+1. Journey Of Discovery
+2. Hourglass
+3. Aether Realm
+4. Swampwitch
+5. One Chosen By The Gods
+6. Ravensong
+7. Winter's Grasp
+8. Odin Will Provide
+9. Oak
+
 
 ## Отношения с другими группами
 

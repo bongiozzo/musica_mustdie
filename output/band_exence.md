@@ -1,7 +1,22 @@
 # Exence
 
-Дискография
-"Hystrionic" 2009, Thrash
+
+
+## Дискография
+
+### "Hystrionic" 2009, Thrash
+
+1. We Will Never	 
+2. In Eternal Dynamics	 
+3. Shaman	 
+4. When Words Are Loose	 
+5. Fix From The Ground	 
+6. In Loving Memory	 
+7. Primal Mystic Substance		 
+8. Dream Of Wisdom	 
+9. Symbolic Act	 
+10. Overhate Threshold
+
 
 ## Отношения с другими группами
 

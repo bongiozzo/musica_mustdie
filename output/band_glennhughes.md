@@ -1,12 +1,126 @@
 # Glenn Hughes
 
-Дискография
-"Building The Machine" 2001, Hard Rock
-"Songs In The Key Of Rock" 2003, Hard Rock
-"Soulfully Live In The City Of Angels DVD" 2004, Hard Rock
-"Soulfully Live In The City Of Angels (live)" 2004, Hard Rock
-"Soul Mover" 2005, Hard Rock
-"Music For The Divine" 2006, Hard Rock
+Classic Hard RockГолос Рока!!!
+
+## Дискография
+
+### "Building The Machine" 2001, Hard Rock
+
+Can't Stop The Flood
+Inside
+Out On Me
+I Just Want To Celebrate
+Don't Let It Slip Away
+Feels Like Home
+Highball Shooter
+When You Fall
+I Will Follow You
+Beyond The Numb
+Big Sky
+
+
+### "Songs In The Key Of Rock" 2003, Hard Rock
+
+1. In My Blood
+2. Lost in the Zone
+3. Gasoline 
+4. Higher Places (Song for Bonzo)
+5. Get You Stoned
+6. Written All Over Your Face
+7. Standing On The Rock
+8. Courageous
+9. Change ** Bonus track for Japan
+10. The Truth
+11. Wherever You Go
+
+Glenn Hughes: All vocals & background vocals, all bass, except on "Change" 
+JJ Marsh: Guitar 
+Jeff Kollman: Guitar 
+Gary Ferguson: Drums except on "Get You Stoned" 
+Ed Roth: Keys 
+Alex Ligertwood: Backing vocals 
+Billy Sheehan: Bass on "Change" 
+Chad Smith: Drums on "Get You Stoned"
+ 
+
+
+### "Soulfully Live In The City Of Angels DVD" 2004, Hard Rock
+
+CD1:
+
+01. Can't Stop the Flood
+02. Higher Places
+03. Written All Over Your Face
+04. Medusa
+05. Wherever You Go
+06. Seafull
+
+CD2:
+
+01. Coast to Coast
+02. First Step Of Love
+03. Mistreated
+04. Gettin’ Tighter
+05. You Keep On Moving
+06. The Healer (bonus studio track)
+07. Change (bonus European studio track)
+
+### "Soulfully Live In The City Of Angels (live)" 2004, Hard Rock
+
+CD1
+Can’t Stop the Flood
+Higher Places
+Written All Over Your Face
+Medusa
+Wherever You Go
+Seafull
+CD2
+Coast To Coast
+First Step Of Love
+Mistreated
+Getting’ Tighter
+You Keep On Moving
+The Healer (студийный бонус трек)
+Change (европейский студийный бонус трек) 
+
+Состав группы	
+Glenn Hughes – бас, вокал
+Chad Smith – барабаны
+JJ Marsh – гитара
+Ed Roth – клавиши
+George Nastos – гитара
+Alex Ligertwood – бэк-вокал
+Kevin Dubrow – бэк-вокал
+
+### "Soul Mover" 2005, Hard Rock
+
+1. Soul Mover
+2. She Moves Ghostly
+3. Change Yourself
+4. High Road
+5. Let It Go
+6. Dark Star
+7. Miss Little Insane 
+8. Land of The Living
+9. Isolation
+10. Last Mistake
+11. Orion
+12. Don’t Let Me Bleed
+
+### "Music For The Divine" 2006, Hard Rock
+
+1. The Valliant Denial 
+2. Steppin On 
+3. Monkey Man 
+4. This House 
+5. You Got Soul 
+6. Frail 
+7. Black Light 
+8. Nights In White Satin 
+9. Too High 
+10. This Is How I Feel 
+11. The Divine
+
 
 ## Отношения с другими группами
 

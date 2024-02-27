@@ -1,7 +1,46 @@
 # Accidental Suicide
 
-Дискография
-"Deceased" 1992, Death Metal
+
+
+## Дискография
+
+### "Deceased" 1992, Death Metal
+
+1.  Misery Hunt
+2.  The Life I Hate
+3.  Morbid Indulgence
+4.  Flesh Parade
+5.  Unknown
+6.  Method Of Murder
+7.  Agony Of Rebirth
+8.  Homicidal Entrails
+9.  My Dangling Corpse
+10.To Eat The Heart
+
+ Ed Jackson - Vocals
+ Bill Mears - Guitar
+ Travis Staedtar - Guitar
+ Steve - Bass
+ Chris Kinjerski - Drums
+
+Produced By Eric "Griffy" Grief For Edge
+Entertainment Inc.
+Engineered & Mixed By Griffy And Patrick
+Conningham At Mauer Brothers Recording
+Studios,Milwaukee,Wisconsin.
+Assistant Mix Engineer Don Larsen.
+Arranged By ACCIDENTAL SUICIDE & Griffy.
+Keyboards & Aural Creations By Griffy.
+Mastered By Noel Summerville At Trans-
+fermation,London.
+Front Cover Art By Chris Drew (IMPALER),
+From Original Concept By Ed Jackson.
+Layout By ACCIDENTAL SUICIDE & Dave Pybus.
+Photography By Chris Becker.
+
+(p) 1992 PEACEVILLE Records  Deaf  CD
+(c) 1992 VILE MUSIC Records
+
 
 ## Отношения с другими группами
 

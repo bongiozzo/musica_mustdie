@@ -1,7 +1,27 @@
 # Carnal Lust
 
-Дискография
-"Whore of Violence" 2003, Death Metal
+brutal death metal
+
+## Дискография
+
+### "Whore of Violence" 2003, Death Metal
+
+1. Psychotic Dementia 
+2. Scared
+3. Messiah
+4. Infectious Mind
+5. The Last Soldier
+6. Outlaw
+7. Human Die
+8. Hard Drinker
+9. Lost Into The Chaos
+10. Grind Porc
+
+
+Jerome - drummer and vocalist on many extracts 
+Ludo - guitarist
+Nico - bass and songs
+
 
 ## Отношения с другими группами
 

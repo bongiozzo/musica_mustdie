@@ -1,10 +1,53 @@
 # Winds Of Plague
 
-Дискография
-"A Cold Day in Hell" 2005, Metalcore
-"Decimate The Weak" 2008, Metalcore
-"The Great Stone War" 2009, Metalcore
-"Against The World" 2011, Metalcore
+
+
+## Дискография
+
+### "A Cold Day in Hell" 2005, Metalcore
+
+1. A Cold Day In Hell 01:13  
+2. Anthems Of Apocalypse 05:30 
+3. Legions 03:26
+4. The Day After 04:30
+5. One Body Too Many 03:46
+6. Brotherhood 03:30 
+7. Full Chamber Roulette 06:30 
+8. Pack Of Wolves 03:33
+9. Tomorrow Is Not A Promise 04:11 
+10. Dead On The Dance Floor 07:10 
+
+### "Decimate The Weak" 2008, Metalcore
+
+1. A Cold Day in Hell 
+2. Anthems of the Apocalypse 
+3. The Impaler 
+4. Decimate the Weak 
+5. Origins and Endings 
+6. Angels of Debauchery 
+7. Reloaded 
+8. Unbreakable 
+9. One Body Too Many 
+10. Legions
+
+### "The Great Stone War" 2009, Metalcore
+
+1. Earth 01:30
+2. Forged In Fire 03:35
+3. Soldiers Of Doomsday 04:06 
+4. Approach The Podium 03:40
+5. Battle Scars 03:25 
+6. Chest And Horns 04:00 
+7. Creed Of Tyrants 02:45
+8. Our Requiem 04:14 
+9. Classic Struggle 03:20
+10. The Great Stone War 04:17 
+11. Tides Of Change 02:25 
+
+### "Against The World" 2011, Metalcore
+
+
+
 
 ## Отношения с другими группами
 

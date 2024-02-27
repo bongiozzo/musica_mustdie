@@ -1,29 +1,427 @@
 # Behemoth
 
+Polish Pagan-Black Metal Band
+
+## Дискография
+
+### "Endless Damnation (Demo I)" 1991, Black Metal
+
+
+
+### "The Return of the Northern Moon (Demo II)" 1992, Black Metal
+
+Tracklist:
+
+1. ...of my worship
+2. Summoning of the ancient gods
+3. Dark triumph
+4. Monumentum
+5. Rise of the blackstorm of evil
+6. Aggressor (hellhammer cover)
+7. Dark triumph              
+8. Cursed angel of doom   
+
+
+### "...From the Pagan Vastlands (Demo III)" 1993, Black Metal
+
+1. From Horned Lands To Lindisfarne (6:05)
+2. Thy Winter Kingdom (5:25)
+3. Summoning (Of The Ancient Ones) (5:01)
+4. The Dance Of The Pagan Slaves (4:07)
+5. Black Visions Of The Almighty (4:59)
+6. Fields Of Haar - Meggido (6:41)
+7. Deathcrush (3:25)
+
+ Nergal - Guitars, Vocals, Bass
+ Frost - Lead Guitars
+ Baal - Drums
+
+All Titles By BEHEMOTH
+Produced By Thomasz Krajewski
+Engineered By Kris
+This Album Was Created With The Full Moon In Night Of December Frost 1993 At Studio "8"
+
+(p)&(c) 1994 WILD RAGS Records
+
+### "...And the Forests Dream Eternally" 1994, Black Metal
+
+1. Transylvanian forest     5.37 
+2. Moonspell rites          6.03 
+3. Sventevith - Storming near the Baltic   6.01 
+4. Pure evil and hate       3.10 
+5. Forgotten empire of dark witchcraft     4.11
+
+### "Sventevith - Storming Near the Baltic" 1995, Black Metal
+
+1. Chant Of The Eastern Lands
+2. The Touch Of Nya
+3. From The Pagan Vastlands
+4. Hidden In A Fog
+5. Ancient
+6. Entering The Faustian Soul
+7. Forgotten Cult Of Aldaron
+8. Wolves Guard My Coffin
+9. Hell Dwells In Ice
+10.Transylvanian Forest
+11.Sventevith (Storming Near Baltic)
+
+All Songs By BEHEMOTH.
+Engineered & Mixed By Kris.
+Recorded At Studio "Eight"
+
+Nergal - All Guitars,Bass
+Baal Ravenlock - Drums
+Cezar - Session Keyboards
+
+(P)&(C) 1995 PAGAN Records
+
+### "Grom" 1996, Black Metal
+
+1.  The Dark Forest (Cast Me Your Spell)
+2.  Spellcraft And Heathendom
+3.  Dragon's Lair (Cosmic Names & Four Barbaric Seasons)
+4.  Lazy Pomorza
+5.  Rising Proudly Towards
+6.  Thou Shalt Forever Win
+7.  Grom
+
+Produced by BEHEMOTH
+All music by Nergal.
+Cover artwork by Dark Arts
+
+Nergal - Guitars, Vocals
+Baal Ravenlock - Hellhammer, Shadowvoice
+Les - Bulldozer, Bassaxes
+Guests:
+P.Weltrowski - Synth
+Celitia - Female Vocals
+
+(P)c 1996 SOLISTITIUM Records // SOL 005
+
+### "Pandemonic Incantations" 1997, Black Metal
+
+Diableria (The Great Introduction)
+The Thousend Plaguest Witness
+Satan's Sword (I Have Become)
+In Thy Pandemaeternum
+Driven by the Five-Winged Star
+The Past Is Like a Funeral
+The Entrance to the Spheres of Mars
+Chwara Mordercom Wojctecha
+Outro
+
+
+Recorded during august/september at Selani Studio anno 1997
+Mised by Jacek Gawlowski anno october 1997
+Produced by Nergal and Behemoth.
+Engineered by Andy Bomba.
+All music and lyrics written by Nergal.
+Guest appearrance on synth on this recording by Piotr Weltrowski.
+
+### "Bewitching the Pomerania" 1997, Black Metal
+
+1. With the Spell of Inferno (Mephisto)	 04:40
+2. Hidden in the Fog			 05:14
+3. Sventevith (Storming near the Baltic) 05:15
+
+
+
+Violently performed by:
+Nergal   voices, all guitars
+Les   bassaxes
+Inferno   drums & devastation
+
+All music by Nergal 1993-1997.
+All lyrics by Nergal, except the song  Hidden in a fog  written by Tomasz.
+Session synth by Pietr Weltrowski
+Synth arrangements by Nergal & Pietr Weltrowski
+All guitar arrangements by Nergal
+All bass arrangements by Les
+Drum arrangements by Inrefno & Nergal
+
+Recorded in in P.J. Studio, February anno 1997
+Engineered by Robert Hejduk
+Mixed by Robert Hejduk, Nergal & Inferno
+Mastering at VOX MORTIIS studio
+Nergal uses chris sound research pre-amp
+
+### "Satanica" 1999, Death Metal
+
+1. Decade of Therion 3:19
+2. Lam 4:13
+3. Ceremony of shiva 3:33
+4. Of sephirotic transformation and carnality 4:30
+5. Sermon to the hypocrities 5:04
+6. Starspawn 3:32
+7. The alchemist's dream 5:40
+8. Chant for eschaton 2000 5:21
+
+### "Thelema.6" 2000, Death Metal
+
+Antichristian Phenomenon
+The Act of Rebellion
+Inflamed with Rage
+Nan Eatypoe
+Natural Born Philosopher
+Christians to the Lions
+Inauguration of Scorpio Dome
+In the Garden of Dispersion
+The Universe Illumination (Say 'Hello' to my Demons)
+Vinvm Sabbati
+23 (The Youth Manifesto)
+
+
+NERGAL - lead and rhythm guitars, acoustics, all vocals
+INFERNO - drums and percussion
+HAVOC - lead and rhythm guitars
+NOVY - bass (guest appearance) NOVY appears courtesy of DEVILYN
+
+Lyrics by Nergal, Krzysztof Azarewicz
+Music by Nergal and BEHEMOTH
+Arrangements by BEHEMOTH
+Digital editing/samples by Mr. Jashackh
+Additional synth by Maciej Niedzielski
+Occultwise association, art of Obeah & Wanga by Krzysztof Azarewicz
+Grammatical and poetical consultation with Sharon E. Wennekers
+
+Recorded and mixed in Hendrix studios, Poland, July-August 2000 e.v.
+Produced by Nergal and BEHEMOTH
+Engineered by Arek Malczewski (info@hendrix.Lublin.pl)
+Mixed by Nergal, Inferno and Arek Malczewski
+Mastered by Grzegorz Piwkowski at High-end studio, Warsaw 2000 e.v.
+
+Art direction by Nergal
+All images and sleeve design by GRAAL (graal@webmedia.pl)
+Band photography by Krzysztof Sadowski, Dominik Kulaszewicz
+
+Executive producer: AVANTGARDE MUSIC
+BEHEMOTH uses: Mesa/Boogie, Marshall, jackson, Gibson, Yamaha, D-drum,
+Zildjian, D'addario strings
+
+### "Antichristian Phenomenon (limited edition)" 2001, Death Metal
+
+01. Antichristian Phenomenon
+02. Malice
+03. From The Pagan Vastlands 2000
+04. Sathanas
+05. Hello Spaceboy
+06. Day Of Suffering
+07. Carnage
+
+### "Storms to Unleash" 2001, Black Metal
+
+
+
+### "Thunders to Erupt" 2001, Black Metal
+
+
+
+### "Zos Kia Cultus" 2002, Death Metal
+
+01. horns ov baphomet
+02. modern iconoclasts
+03. here and beyond
+04. as above so below
+05. blackest ov the black
+06. hekau 718
+07. harlot ov the saints
+08. no sympathy for fools
+09. zos kia cultus
+10. fornicatus benefictus
+11. typhonian soul zodiack
+12. heru ra ha: let there be might
+
+Nergal - v.g.b.
+Inferno - drums
+Havoc - guitars
+Novy - session bass guitar
+
+Recorded at Hendrix Studio
+Engineered by Arkadiusz Malczewski
+Mastered by Grzegorz Piwkowski
+Cover & layout by Graal
+
+### "The Art Of Rebellion (DVD)" 2002, Black Metal
+
+Decade Of Therion 
+LAM
+Satan's Sword
+From The Pagan Vastlands
+Driven By The Five Winged Star
+The Entrance To The Spheres Of Mars
+Starspawn
+Carnage
+Chant For Eschaton 2000
+Pure Evil & Hate
+Анимационное меню
+Видеоклипы:
+"Decade Of Therion"
+"Chant For Eschaton 2000"
+Биографии
 Дискография
-"Endless Damnation (Demo I)" 1991, Black Metal
-"The Return of the Northern Moon (Demo II)" 1992, Black Metal
-"...From the Pagan Vastlands (Demo III)" 1993, Black Metal
-"...And the Forests Dream Eternally" 1994, Black Metal
-"Sventevith - Storming Near the Baltic" 1995, Black Metal
-"Grom" 1996, Black Metal
-"Pandemonic Incantations" 1997, Black Metal
-"Bewitching the Pomerania" 1997, Black Metal
-"Satanica" 1999, Death Metal
-"Thelema.6" 2000, Death Metal
-"Antichristian Phenomenon (limited edition)" 2001, Death Metal
-"Storms to Unleash" 2001, Black Metal
-"Thunders to Erupt" 2001, Black Metal
-"Zos Kia Cultus" 2002, Death Metal
-"The Art Of Rebellion (DVD)" 2002, Black Metal
-"Demigod" 2004, Death Metal
-"Crush Fukk Create Dvd" 2004, Death Metal
-"The Apostasy" 2007, Death Metal
-"Evangelion " 2009, Death Metal
-"Evangelia Heretika [2DVD]" 2010, Death Metal
-"Blow Your Trumpets Gabriel (single)" 2013, Death Metal
-"The Satanist" 2014, Death Metal
-"" 2015, Black Metal
+Фотогалерея
+Интернет-ссылки
+
+### "Demigod" 2004, Death Metal
+
+01. Sculpting The Throne Ov Seth
+02. Demigod
+03. Conquer All
+04. The Nephilim Rising
+05. Towards Babylon
+06. Before Aeons Came 
+07. Mysterium Coniunctionis (Hermanubis)
+08. XUL
+09. Slaves Shall Serve
+10. The Reign Ov Shemsu-Hor
+
+### "Crush Fukk Create Dvd" 2004, Death Metal
+
+01. Antichristian Phenomenon
+02. From the Pagan Vastlands
+03. Heru Ra Ha (Let There Be Might)
+04. Christians to the Lions
+05. Hekau 718
+06. No Sympathy for Fools
+07. Decade ov Therion
+08. As Above so Below
+09. Chant for Eskhaton 2000
+10. Pure Evil and Hate
+11. Christians to the Lions
+12. Decade ov Therion
+13. From the Pagan Vastlands
+14. Antichristian Phenomenon
+15. LAM
+16. Satan's Sword
+17. Chant for Eskhaton
+18. As Above as Below (Video)
+19. Christians to the Lions (Video)
+20. Interview and introduction to selected
+episodes by Nergal
+21. The past is like a funeral...
+22. X-Mass festivals
+23. Italian affair
+24. First headlining experience
+25. Poland
+26. Barbarossa east tour
+27. Mexican episode
+28. European crusade
+29. Album production and studio scenes
+30. Conquering US and other stuff...
+
+Tracks 1-10: Live Pandemonium- Live at Party San
+Festival 2003
+Tracks 11-17: Mother Khaoz on Stage - Live at
+Mystic Festival 2001
+Tracks 18-19: Videoclips
+Tracks 20-30: Speak With The Devil – Documentary
+
+### "The Apostasy" 2007, Death Metal
+
+01. Rome 64 C.E.
+02. Slaying The Prophets Ov Isa
+03. Prometherion
+04. At The Left Hand Ov God
+05. Kriegsphilosophie
+06. Be Without Fear
+07. Arcana Hereticae
+08. Libertheme
+09. Inner Sanctum
+10. Pazuzu
+11. Christgrinding Avenue
+
+### "Evangelion " 2009, Death Metal
+
+1. Daimonos 05:16  
+2. Shemhamforash 03:56  
+3. Ov Fire and the Void 04:28  
+4. Transmigrating Beyond Realms Ov Amenti 03:28  
+5. He Who Breeds Pestilence 05:41  
+6. The Seed Ov I 04:58  
+7. Alas, Lord Is Upon Me 03:16  
+8. Defiling Morality Ov Black God 02:50  
+9. Lucifer 08:07 
+
+
+
+Line-up :
+Adam "Nergal" Darski - Vocals, Guitar
+Zbigniew Robert "Inferno" Prominski - Drums, Percussion
+Tomasz "Orion" Wrуblewski - Bass
+
+Patryk Dominik "Seth" Sztyber - Session Guitar
+
+The album was mixed at Miloco Studios in London, England by Colin Richardson.
+
+The digipack edition include a bonus DVD with behind the scenes footage and
+expanded artwork.
+
+Release date in Poland : 07/08/2009.
+Release date in Europe : 09/08/2009.
+Release date in America : 11/08/2009. 
+
+### "Evangelia Heretika [2DVD]" 2010, Death Metal
+
+Disc 1
+1.	 Rome 64 C.E
+2.	 Slaying the Prophets ov Isa
+3.	 Antichristian Phenomenon
+4.	 Demigod
+5.	 From the Pagan Vastland
+6.	 Conquer All
+7.	 Prometherion
+8.	 Drum Solo
+9.	 Slaves Shall Serve
+10.	 As Above So Below
+11.	 At the Left Hand of God
+12.	 Summoning ov the Ancient Ones
+13.	 Christgrinding Avenue
+14.	 Christians to the Lions
+15.	 Sculpting the Throne ov Seth	
+16.	 Decade ov Therion
+17.	 Chant for Ezkaton 2000 E.V.
+18.	 Pure Evil & Hate
+19.	 I Got Erection
+
+Disc 2
+1.	 Evangelia Nova (Documentary)		 
+2.	 De Arte Heretika (Documentary)		 
+3.	 Decade ov Therion (Video)
+4.	 As Above So Below (Video)s
+5.	 Conquer All (Video)	
+6.	 Slaves Shall Serve (Video)
+7.	 Prometherion (Video)
+8.	 At the Left Hand ov God (Video)
+9.	 Inner Sanctum (Video)
+10.	 Ov Fire and the Void (Video)
+11.	 Alas, Lord Is Upon Me (Video)
+
+### "Blow Your Trumpets Gabriel (single)" 2013, Death Metal
+
+1. Blow Your Trumpets Gabriel  
+2. If I Were Cain     
+3. Ludzie Wschodu (Siekiera cover) 
+
+
+### "The Satanist" 2014, Death Metal
+
+1. Blow Your Trumpets Gabriel 04:25
+2. Furor Divinus  03:06    
+3. Messe Noire  04:04   
+4. Ora Pro Nobis Lucifer  05:35   
+5. Amen  03:49    
+6. The Satanist  05:33    
+7. Ben Sahar  05:34    
+8. In the Absence of Light  04:58    
+9. O Father O Satan O Sun!  07:13 
+
+Produced at Hertz Studio.
+Mastered at Sterling Sound.
+
+### "" 2015, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

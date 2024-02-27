@@ -1,8 +1,34 @@
 # To Cast a Shadow
 
-Дискография
-"All Alone" 2007, Gothic
-"In Memory Of" 2011, Gothic
+
+
+## Дискография
+
+### "All Alone" 2007, Gothic
+
+1. Erzsebet
+2. All Alone
+3. The Death Of Me
+4. Agonised
+5. Beast Within
+6. Unjust
+7. A Suicidal Mind
+8. Pretty Dark
+9. The Neverending Decay Of Love
+
+### "In Memory Of" 2011, Gothic
+
+1. Tormented	 
+2. Morose	 
+3. Nightfall	 
+4. Oceans Apart	 
+5. Betula	 
+6. My Misery	 
+7. When You Leave the Room	 
+8. Set Afire	 
+9. The Answer	 
+10. In Memory Of
+
 
 ## Отношения с другими группами
 

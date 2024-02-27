@@ -1,7 +1,13 @@
 # Gate, The
 
-Дискография
-"Earth Cathedral" 2011, Heavy Metal
+Preacher (RUNNING WILD)
+
+## Дискография
+
+### "Earth Cathedral" 2011, Heavy Metal
+
+
+
 
 ## Отношения с другими группами
 

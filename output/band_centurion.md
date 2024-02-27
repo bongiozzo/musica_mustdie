@@ -1,7 +1,22 @@
 # Centurion
 
-Дискография
-"Hyper Martyrium" 2000, Thrash
+"Pure Violence Metal"
+
+## Дискография
+
+### "Hyper Martyrium" 2000, Thrash
+
+Arise of The Empire
+Deflagration Of Violence
+Hyper Martyrium
+Talis Pater
+Katerpillar
+Monolitic Triumphator
+Into The Arena
+Stormfront Vanguard
+Call Of The Blood
+Ridin One The Wind (Judas Priest-cover)
+
 
 ## Отношения с другими группами
 

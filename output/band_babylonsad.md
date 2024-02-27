@@ -1,7 +1,38 @@
 # Babylon Sad
 
-Дискография
-"Kyrie" 1993, Death Doom
+
+
+## Дискография
+
+### "Kyrie" 1993, Death Doom
+
+1. Alma-Tedam Redemptoris
+2. Pictures Of Paradise
+3. Unknown Tribe
+4. Manifest 05
+5. Seance
+6. Gothic Spring
+7. End Title
+8. The Awakening
+9. Wondering Spirit
+
+ Dan M.Raess - Guitars & Vocals
+ Reto Kцhne - Bass & Vocals
+ Christian Muzik - Additional Lead Guitar
+ Nenad Dukic - Lead Vocals
+ Peter Haas - Drums
+ Marco Wolf - Keyboards
+ Priska Gut - Violin
+
+All Songs Written By BABYLON SAD.
+Produced By C.Muzik & D.Raess.
+Tracks 1-7 Engineered By M.Blauenstein,C.Muzik.
+Recorded & Mixed At Fun Box Studios.
+Tracks 8,9 Recorded & Mixed At Fame Rhino Studio,
+Dubendorf.
+
+(p)&(c) 1993 MASSACRE Records
+
 
 ## Отношения с другими группами
 

@@ -1,11 +1,59 @@
 # Wykked Wytch
 
-Дискография
-"Wykked Wytch" 1994, Death Metal
-"Something Wykked This Way Comes" 1996, Death Metal
-"Angelic Vengeance" 2001, Black Metal
-"Nefret" 2003, Black Metal
-"Memories of a Dying Whore" 2007, Black Metal
+
+
+## Дискография
+
+### "Wykked Wytch" 1994, Death Metal
+
+
+
+### "Something Wykked This Way Comes" 1996, Death Metal
+
+
+
+### "Angelic Vengeance" 2001, Black Metal
+
+01. Angelic Vengeance
+02. To Die... Before My Time
+03. Fuck Your Lord
+04. Venomiss
+05. Forgiveness Denied
+06. Rising From The Abyss
+07. Bastards Are Mine
+
+
+Demoness Ipek - Vocals
+David - Bass, All Guitars
+Salvatore - Keyboards
+John Rac - Drums
+
+
+ Recorded and mixed at Damage Studios, Ventimiglia,
+Italy, September - October 2000
+Produced by Kit Woolven
+Engineered and mixed by Kit Woolven
+Assistant Engiheer: Dario Mollo
+Mastered by Jim Morris at Morrisound Recording,
+Tampa, Fl.
+Cover art by Chad Michael Ward/Digital Apocalypse
+Studios
+Back cover art by Joe Petagno
+All songs by David & Ipek
+Lyrics by Ipek
+ 
+
+
+
+
+### "Nefret" 2003, Black Metal
+
+
+
+### "Memories of a Dying Whore" 2007, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,9 +1,60 @@
 # Sturmgeist
 
-Дискография
-"Meister Mephisto" 2005, Viking Metal
-"Uber" 2006, Viking Metal
-"Manifesto Futurista" 2009, Black Metal
+
+
+## Дискография
+
+### "Meister Mephisto" 2005, Viking Metal
+
+I. Ragnarok 
+II. Shock & Awe
+III. Erlkonig
+IV. Army of Odin (Hafrsfjord)
+V. Master Hunter
+VI. Rattenfanger
+VII. Grimmer Than Ugly 
+VIII. Walpurgisnacht 1.Satz - Die Flamme 
+IX. Walpurgisnacht 2. Satz - Meister Mephisto
+
+
+Cornelius Jakhelln : All 
+"Master Hunter" & "Rattenfдnger" : Guest vocals on "Erlkцnig" 
+"Shock and Awe" & "Army of Odin (Hafrsfjord)" : Guest vocals on "Ragnarok"
+
+### "Uber" 2006, Viking Metal
+
+1. Meister 01:36  
+2. Blood-Axe 03:03
+3. Dobermann 03:29
+4. Grimanic Guerillas 03:03 
+5. Iron Hammer 02:40 
+6. Party Uber Alles 03:32 
+7. Ruger 03:43
+8. Mephisto 02:20  
+9. Triumph 03:29
+10. The Unknown Soldier 03:55
+11. London 03:25
+12. Enigma 04:43
+13. Rock Me Amadeus (Falco Cover) 03:09
+14. Hindenburg 04:24 
+
+### "Manifesto Futurista" 2009, Black Metal
+
+1. Monolith   
+2. Himmelen Faller   
+3. The Siegfried Order   
+4. Skyggestrykerne   
+5. Verdun   
+6. Elegie D'Une Modernite Meurtriere   
+7. Ritorno Glorioso   
+8. Manifesto Futurista   
+9. Sturmgeist_89   
+10. Let Us Be The Suns Of Our Time 
+
+
+Cornelius "Sturmgeist" von Jackhelln - Vocals, Guitar, Bass, Keyboards, Programming 
+Vincent - Drums
+
 
 ## Отношения с другими группами
 

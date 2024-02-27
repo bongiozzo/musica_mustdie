@@ -1,8 +1,40 @@
 # Neverland
 
-Дискография
-"Reversing Time" 2008, Power Metal
-"Ophidia" 2010, Power Metal
+DREAMTONE & Iris Mavraki
+
+## Дискография
+
+### "Reversing Time" 2008, Power Metal
+
+1. Shooting Star 04:19
+2. To Lose the Sun 05:53
+3. Mankind is a Lie 04:17
+4. Everlasting Tranquillity 04:04
+5. Reversing Time 04:11
+6. Black Water 06:33
+7. Mountain of Judgement 01:45
+8. Mountain of Joy 04:26
+9. World Beyond These Walls 03:53  
+10. Transcending Miracle 06:16  
+11. Once Again This Life* 04:25  
+12. Who Asked You to Fight** 04:04 
+
+### "Ophidia" 2010, Power Metal
+
+1. This Voice Inside 05:34
+2. Silence the Wolves 05:03 
+3. Ophidia 05:35
+4. Will of God 02:57
+5. Invisible War 05:21 
+6. Places Unknown 04:23
+7. No One Leaves the Hive 04:11
+8. Speak to Me 05:38
+9. Ashes to Fall 04:58
+10. Final Odyssey 04:40
+11. The Forests of Hope (CD bonus track) 01:49
+12. Dying Threads (CD bonus track) 05:28
+13. Into the Horizon 05:11 
+
 
 ## Отношения с другими группами
 

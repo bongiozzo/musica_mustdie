@@ -1,18 +1,322 @@
 # Sentenced
 
-Дискография
-"Shadows Of The Past" 1992, Death Metal
-"North From Here" 1993, Techno Death
-"The Trooper" 1993, Death Metal
-"AMOK" 1995, Death Doom
-"Love And Death" 1995, Death Doom
-"Down" 1996, Death Doom
-"Greatest Kills" 1997, Death Doom
-"Frozen" 1998, Gothic
-"Crimson" 2000, Gothic
-"The Cold White Light" 2002, Gothic
-"The Funeral Album" 2005, Gothic
-"Buried Alive (DVD)" 2006, Gothic
+Intense High Class Metal
+
+## Дискография
+
+### "Shadows Of The Past" 1992, Death Metal
+
+1. When The Moment Of Death Arrives
+2. Rot To Dead
+3. Disengagement
+4. Rotting Ways To Misery
+5. The Truth
+6. Suffocated Beginning Of Life
+7. Beyond The Distant Valleys
+8. Under The Suffer
+
+ Miika Tenkula - Lead Guitar, Vocals
+ Sami Lopakka - Guitar
+ Taneli Jarva - Bass, Back Vocals
+ Vesa Ranta - Drums
+
+All Music & Lyrics By SENTENCED
+Produced By Anti Kortelainen & SENTENCED
+Recorded & Mixed At Tico-Tico Studio, Kemi, Finland,
+In October 1991
+
+(p)&(c) 1992 THRASH Records
+
+### "North From Here" 1993, Techno Death
+
+1. My Sky Is Darker Than Thine
+2. Wings
+3. Fields Of Blood,Harvester Of Hate
+4. Capture Of Fire
+5. Awaiting The Winter Frost
+6. Beyond The Wall Of Sleep
+7. Northern Lights
+8. Epic
+
+ Taneli Jarva - Bass & Vocals
+ Muka Tenkula - Lead Guitars
+ Sami Lopakka - Guitar
+ Vesa Ranta - Drums
+
+Acoustic Guitars & Keyboards By Tenkula & Lopakka.
+All Music & Lyrics By SENTENCED.
+Produced By Ahti Kortelainen & SENTENCED.
+Recorded & Mixed At Tico-Tico Studio,Kemi,Finland 
+In December 1992-February 1993.
+
+(p)&(c) 1993 CENTURY MEDIA Records
+
+### "The Trooper" 1993, Death Metal
+
+1. The Trooper
+2. Desert By Night
+3. In Memoriam
+4. Awaiting The Winter Frost
+
+ Taneli Jarva - Bass & Vocals
+ Muka Tenkula - Lead Guitars
+ Sami Lopakka - Guitar
+ Vesa Ranta - Drums
+
+All Track Written By SENTENCED
+Except 1 Written By Harris of IRON MAIDEN
+Recorded & Mixed At Tico-Tico Studio,
+Kemi, Finland
+Acoustic Guitar & Keyboards By Tenkula & Lopakka
+
+(p)&(c) 1993 SPINEFARM Records
+
+### "AMOK" 1995, Death Doom
+
+1. The War Ain't Over !
+2. Phenix
+3. New Age Messiah
+4. Forever Lost
+5. Funeral Spring
+6. Nepenthe
+7. Dance Of The Graves (Lil' Siztah')
+8. Moon Magick
+9. The Golden Stream Of Lapland
+
+ Taneli Jarva - Vocals, Bass
+ Sami Lopakka - Guitars
+ Mikka Tenkula - Lead Guitars
+ Vesa Ranta - Drums
+
+Additional Backing Vocals By Virpi Rautsiala
+Keyboards By Tenkula, Lopakka, Jarva
+All Songs Written By SENTENCED
+Recorded & Mixed By Ahti Kortelainen
+At Tico-Tico Studio In The Fall Of 1994
+
+(p)&(c) 1995 CENTURY MEDIA Records
+
+### "Love And Death" 1995, Death Doom
+
+1. The Way I Wanna Go
+2. Obsession
+3. Dreamland
+4. White Wedding
+5. Love And Death
+
+All Songs Written By SENTENCED.
+Recorded & Mixed By Ahti Kortelainen At Tico-Tico Studio In The Fall Of 1994.
+
+Taneli Jarva - Vocals,Bass
+Sami Lopakka - Guitars
+Miika Tenkula - Lead Guitars
+Vesa Ranta - Drums
+
+(P)&(C) 1995 CENTURY MEDIA Records
+
+### "Down" 1996, Death Doom
+
+1.  Intro - The Gate
+2.  Noose
+3.  Shadegrown
+4.  Bleed
+5.  Keep My Grave Open
+6.  Crumbling Down (Give Up Hope)
+7.  Sun Won't Shine
+8.  Ode To The End
+9.  0132
+10.Warrior Of Life (Reaper Redeemer)
+11.I'll Throw The First Rock
+
+Ville Laihiala - Vocals
+Sami Lopakka - Guitars
+Miika Tenkula - Lead Guitars
+Vesa Ranta - Drums
+
+Additional Backing Vocals By Vorph (SAMAEL) & SENTENCED.
+Keyboards By Waldemar Sorychta.
+Bass Played By Tenkula.
+All Songs Written By SENTENCED
+Recorded & Mixed At Woodhouse Studios In Autumn 1996.
+Produced By Waldemar Sorychta.
+Engineerd By Siggi Bemm & Waldemar Sorychta.
+Female Vocals By Birgit Zacher.
+
+(p)c 1996 CENTURY MEDIA Records
+
+### "Greatest Kills" 1997, Death Doom
+
+01. Noose 
+02. Nepenthe 
+03. Sun Won't Shine 
+04. Dance On The Graves 
+05. The Way I Wanna Go 
+06. White Wedding 
+07. My Sky Is Darker Than Thine 
+08. The Trooper 
+09. New Age Messiah 
+10. Desert By Night 
+11. No Tomorrow 
+12. The Truth 
+13. Awaiting The Winter Frost 
+14. Crumbling Down (Give Up Hope) 
+15. In Memoriam
+
+### "Frozen" 1998, Gothic
+
+01 : Kaamos
+02 : Farewell
+03 : Dead leaves
+04 : For the love I bear
+05 : One with misery
+06 : The suicider  
+07 : The rain comes falling down
+08 : Grave sweet grave
+09 : Burn
+10 : Drown together
+11 : Let go (the last chapter)
+12 : Mourn (the last chapter)
+
+
+Recorded at Woodhouse studios, Germany, May 1998, Produced by Waldemar Sorychta, All music and lyrics by THE NORTHERNMOST KILLERS themselves 
+
+
+
+### "Crimson" 2000, Gothic
+
+1  Bleed in My Arms
+2  Home in Despair
+3  Fragile
+4  No More Beating as One
+5  Broken
+6  Killing Me Killing You
+7  Dead Moon Rising
+8  River
+9  One More Day
+10  With Bitterness and Joy
+11  My Slowing Heart
+
+ Sami Lopakka  Guitar   
+ Sami Kukkohovi  Bass   
+ Kari Hautalampi  Piano   
+ Vesa Ranta  Drums Drums (Snare)   
+
+ Mika Jussila  Mastering   
+ Niklas Sundin  Artwork Cover Design   
+ Hillesma Hiili  Producer Engineer   
+ Ahti Kortelainen  Engineer
+
+### "The Cold White Light" 2002, Gothic
+
+01 : Konevitsan Kirkonkellot
+02 : Cross My Heart And Hope To Die 
+03 : Blood & Tears
+04 : You Are The One
+05 : Aika Multaa Muistot [Everything Is Nothing]
+06 : Excuse Me While I Kill Myself 
+07 : Brief Is The Light
+08 : Neverlasting 
+09 : Guilt And Regret
+10 : The Luxury Of a Grave
+11 : No One There 
+
+
+
+
+Vocals by VILLE LAIHIALA.
+Lead guitar by MIIKA TENKULA. 
+Guitar by SAMI LOPAKKA. 
+Drums by VESA RANTA. 
+Bass by SAMI KUKKOHOVI. 
+
+All music and lyrics by THE NORTHERNMOST KILLERS THEMSELVES
+ except KONEVITSAN KIRKONKELLOT Finnish traditional. 
+
+Produced, engineered and mixed by HIILI HIILESMAA. 
+
+THE COLD WHITE LIGHT was recorded at FINNVOX and NEO studios in the heart of winter 2001-2002. Mixed and mastered at FINNVOX. Mastered by MIKA JUSSILA. 
+
+Piano in GUILT AND REGRET played by MARCO SNECK. Additional instruments and equipment provided by OULUN MUSIIKKITALO OY. 
+
+Cover and booklet art by VESA RANTA. 
+
+### "The Funeral Album" 2005, Gothic
+
+1. May Today Become the Day (4:00) 
+2. Ever-frost (4:19) 
+3. We Are but Falling Leaves (4:28) 
+4. Her Last 5 Minutes (5:40) 
+5. Where Waters Fall Frozen (0:56) 
+6. Despair-ridden Hearts (3:41) 
+7. Vengeance Is Mine (4:15) 
+8. A Long Way to Nowhere (3:27) 
+9. Consider Us Dead (4:51) 
+10. Lower the Flags (3:34) 
+11. Drain Me (4:34) 
+12. Karu (1:04) 
+13. End of the Road (5:00)
+
+
+Vesa Ranta: Drums
+Miika Tenkula: Guitar
+Sami Kukkohovi: Bass
+Sami Lopakka: Guitar
+Ville Laihiala: Vocals
+
+### "Buried Alive (DVD)" 2006, Gothic
+
+DVD1:
+
+"The Farewell Performance":
+
+01. Intro
+02. Where Waters Fall Frozen
+03. May Today Become The Day
+04. Neverlasting
+05. Bleed
+06. The Rain Comes Falling Down
+07. Everfrost
+08. Sun Won't Shine
+09. Dead Moon Rising
+10. Despair-Ridden Hearts
+11. The Suicider / Excuse Me While I Kill Myself (medley)
+12. The War Ain't Over*
+13. Nepenthe*
+14. Northern Lights*
+15. The Way I Wanna Go*
+16. Dance On The Graves*
+17. Noose
+18. Aika Multaa Muistot (Everything Is Nothing)
+19. Farewell
+20. No One There
+21. Drown Together
+22. Cross My Heart And Hope To Die
+23. Brief Is The Light
+24. Vengeance Is Mine
+25. End Of The Road
+
+* w/ Taneli Jarva
+
+DVD2:
+
+* Animated photo gallery
+* Discography
+* Photo Session 
+* Video Session 
+* Signing Session 
+* Festival Tour 
+* Club Tour 
+* 7 Music Videos
+- Nepenthe
+- Bleed
+- Noose
+- The Suicider
+- Killing Me Killing You
+- No One There
+- Everfrost
+* Brand New Video: "Despair-Ridden Hearts"
+* Band Interviews
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,23 @@
 # Brutart
 
-Дискография
-"Mimic" 2007, Death Doom
+
+
+## Дискография
+
+### "Mimic" 2007, Death Doom
+
+1. Fade   
+2. Termites   
+3. Immigrants   
+4. Delirium   
+5. Fabric Of Illumination   
+6. Rebellion   
+7. Materia   
+8. The Verge   
+9. Marionette   
+10. Fiends Of Sympathy   
+11. Desert 
+
 
 ## Отношения с другими группами
 

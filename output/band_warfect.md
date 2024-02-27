@@ -1,7 +1,22 @@
 # Warfect
 
-Дискография
-"Depicting The Macabre" 2009, Thrash
+melodic thrash-death from Sweden
+
+## Дискография
+
+### "Depicting The Macabre" 2009, Thrash
+
+1. Creation	 
+2. Heathen Reigns	 
+3. Depicting the Macabre	 
+4. Symbol of Submission	 
+5. I Factor	 
+6. Supervised Life	 
+7. Never to Return	 
+8. Harvest of Trinity	 
+9. Truth Untold
+10. Atrocity
+
 
 ## Отношения с другими группами
 

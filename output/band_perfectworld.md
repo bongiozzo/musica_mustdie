@@ -1,7 +1,24 @@
 # Perfect World
 
-Дискография
-"Perfect World" 2003, Hard Rock
+AOR/Melodic Hard Rock
+
+## Дискография
+
+### "Perfect World" 2003, Hard Rock
+
+1. Here With Me
+2. Leaving Lonely
+3. Just Like A Pill
+4. I Believe In You
+5. Between You And Me
+6. Out Of Bounds
+7. You'll Be Gone
+8. Someday Soon
+9. Do You Love
+10. I Need You
+11. Overnight Sensation
+12. Broken
+
 
 ## Отношения с другими группами
 

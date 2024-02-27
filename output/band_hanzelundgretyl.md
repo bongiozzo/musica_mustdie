@@ -1,15 +1,139 @@
 # Hanzel Und Gretyl
 
-Дискография
-"Ausgeflippt" 1995, Industrial
-"Transmissions From Uranus" 1997, Industrial
-"Uber Alles" 2003, Industrial
-"Scheissmessiah" 2004, Industrial
-"Oktotenfest (EP)" 2006, Industrial
-"2012: Zwanzig Zwolf" 2008, Industrial
-"Born To Be Heiled" 2012, Industrial
-"Fur Immer (Remixes)" 2013, Industrial
-"Black Forest Metal" 2014, Industrial
+
+
+## Дискография
+
+### "Ausgeflippt" 1995, Industrial
+
+1. Star System Wolf
+2. 0 Gemini
+3. Galaxia Malakia
+4. Shine 2001
+5. Stress Pill
+6. Dementia Solaris
+7. Meisterfrau
+8. 38 Lashes
+9. L'Experience des Dificultes Technique
+10. Watch TV do Nothing
+11. Essen Scheissen und Geld Machen
+12. Apa Mare
+13. Umbra Penumbra
+
+### "Transmissions From Uranus" 1997, Industrial
+
+1. Black Forest Galaxy
+2. 9D Galactic Center
+3. Pleiadian Agenda
+4. Take Me To Your Leader
+5. Zeta Reticula
+6. Komet Ride
+7. Trance Planet Vortex
+8. Robot Logik
+9. Helium Popsicles
+10. Starfucker
+11. Hyper Erotic Joy Helmet
+12. Mutant Starseed Creation
+13. Fireball X15
+14. Hallo Berlin
+15. Astronafti
+16. Om Zentrale Station
+
+### "Uber Alles" 2003, Industrial
+
+1. Overture
+2. Third Reich from the Sun
+3. Ich Bin ber Alles
+4. Komm Zu Uns
+5. Mach Schnell
+6. SS Deathstar Supergalactik
+7. Let the Planets Burn
+8. Intermission
+9. 11:11
+10. Verbotenland
+11. Transplutonian Annihilation
+12. Mein Kommandant
+13. Aufweidersehen
+
+### "Scheissmessiah" 2004, Industrial
+
+1. Lust
+2. Fikk Dich Mit Fire
+3. Kaiser Von Shizer
+4. Disko Fire Scheiss Messiah
+5. Blut! Zex! Fire!
+6. Burning Bush
+7. Scheissway to Hell
+8. And We Shall Purify
+9. 10th Circle
+10. Hellalujah
+11. Purity
+
+### "Oktotenfest (EP)" 2006, Industrial
+
+1. Prost!
+2. Stern Krieg
+3. Fukken Uber Death Party
+4. Zum Wohl!
+
+### "2012: Zwanzig Zwolf" 2008, Industrial
+
+1. Ubermensch Uberfrau
+2. Fukken Uber Death Party
+3. Loud Und Proud
+4. Kaizerreich
+5. Deathschlager
+6. Number 1 In Deutschland
+7. Hail To The Dark Side
+8. Bavarian Beerhauz Blood
+9. Das Boot
+10. Heil Hizzle Mein Nizzle
+11. Lederhozen Macht Frei
+12. Sternkrieg
+13. Totenhead
+
+### "Born To Be Heiled" 2012, Industrial
+
+01. Hanzel Und Gretyl Fur Immer
+02. Understutzung 87
+03. Blitzkrieger Und Hellriderz
+04. Hammerzeit
+05. Der Furor
+06. Born To Be Heiled
+07. Holy Shiza
+08. Motorschwein
+09. I'm Movin' To Deutschland
+10. Ironstars Outlaws
+11. More German Than German
+
+### "Fur Immer (Remixes)" 2013, Industrial
+
+01. More German Than German (KyzrWolf Remix)
+02. Unterstutzung 87 (KyzrWolf Remix)
+03. Blitzkriegerz und Hellriderz (KyzrWolf Remix)
+04. Hammerzeit (KyzrWolf Remix)
+05. Der Furor (KyzrWolf Remix)
+06. Born to be Heiled (KyzrWolf Remix)
+07. Holy Shiza (KyzrWolf Remix)
+08. Motorschwein (KyzrWolf Remix)
+09. I’m Movin’ to Deutschland (KyzrWolf Remix)
+10. IronStar Outlaws (KyzrWolf Remix)
+11. Hanzel und Gretyl Fur Immer (KyzrWolf Remix)
+
+### "Black Forest Metal" 2014, Industrial
+
+01. Hoia Baciu
+02. Black Forest Metal
+03. Hexenkraft
+04. Blood Of My Horns
+05. More Metal Than The Devil
+06. Burning Witches For Satan
+07. Evil As Fukk
+08. Mavro Metalliko
+09. Big Bad Kyzrwolf
+10. Pentagram Sky
+11. Grimm Ritual 
+
 
 ## Отношения с другими группами
 

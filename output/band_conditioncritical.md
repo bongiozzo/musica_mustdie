@@ -1,8 +1,31 @@
 # Condition Critical
 
-Дискография
-"Operational Hazard" 2013, Thrash
-"Extermination Plan" 2016, Thrash
+
+
+## Дискография
+
+### "Operational Hazard" 2013, Thrash
+
+1. Random Acts Of Killing
+2. Parasitic Torment
+3. Morning Sickness
+4. Sector 16
+5. Shock Therapy
+6. Gravitational Dismemberment
+7. Surgical Malpractice
+8. Dr. Criti-Kill
+
+### "Extermination Plan" 2016, Thrash
+
+1. Interminable Surgery
+2. Fatal Incision
+3. Intravenous Mutilation
+4. Voluntary Disfigurement
+5. Extermination Plan
+6. Ostracized
+7. Vindictive Hostility
+8. Genocidal Void
+
 
 ## Отношения с другими группами
 

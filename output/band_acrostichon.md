@@ -1,9 +1,51 @@
 # Acrostichon
 
-Дискография
-"Dehumanized" 1991, Death Metal
-"Engraved In Black" 1993, Death Metal
-"Sentenced LP" 1995, Death Metal
+Female Vocals
+
+## Дискография
+
+### "Dehumanized" 1991, Death Metal
+
+1. Dehumanized
+2. Thriving On Chaos*
+3. Exasperation*
+4. Lost Remembrance
+
+All Songs (c) 1991 ACROSTICHON
+Produced By Robin, Oscar & ACROSTICHON
+Recorded January 12th-13th At The Oscar
+Holleman Studio
+
+(p)&(c) 1991 SERAPHIC DECAY Records
+
+### "Engraved In Black" 1993, Death Metal
+
+1. Immolation Of The Agnostic
+2. Walker Of Worlds
+3. Dehumanized
+4. Mentally Deficient
+5. Lost Remembrance
+6. Zombies
+7. Havoc
+8. Relics
+9. Engraved In Black
+
+ Corine - Bass/Vocal
+ Jos - Guitar
+ Richard - Guitar
+ Serge - Drums
+
+All Songs By ACROSTICHON.
+Produced By Colin Richardson.
+Engineered By Oscar Holleman.
+Recorded At RS 29,Waalwijk.
+
+(p)&(c) 1993 MODERN PRIMITIVE Records
+
+### "Sentenced LP" 1995, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

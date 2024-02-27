@@ -1,7 +1,38 @@
 # Rondinelli
 
-Дискография
-"Our Cross - Our Sins" 2002, Hard Rock
+Classic Hard Rock
+
+## Дискография
+
+### "Our Cross - Our Sins" 2002, Hard Rock
+
+1. Naughty Dragon (5.38)
+2. Dawn (5.39)
+3. It's A Lie (5.15)
+4. The Meaning Of Evil (6.25)
+5. Midnight Hour (5.29)
+6. Find The One (5.26)
+7. Bulls Eye (6.29)
+8. Time (5.14)
+9. Our Cross - Our Sins (3.58)
+
+All songs written by RONDINELLI
+Produced by Bobby Rondinelli
+Co-Produced by Dennis Feldman
+Engineered by Dennis Feldman
+Recorded at Ice House Studios
+
+Bobby Rondinelli (BLUE OYSTER CULT, RAINBOW) - Drums
+Tony Martin (BLACK SABBATH) - Vocals
+Neil Murray (BLACK SABBATH, WHITESNAKE) - Bass
+Teddy Rondinelli - Guitar and Vocals
+
+Additional Players:
+Dennis Feldman - Background Vocals
+Dorothy Ophals - Keyboards
+Robert Rondinelli - Keyboards
+Bobby Marks - Gong 
+
 
 ## Отношения с другими группами
 

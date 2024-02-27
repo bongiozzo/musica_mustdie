@@ -1,8 +1,26 @@
 # Even
 
-Дискография
-"Think Before Speaking" 2003, Metal
-"To Who Really Cares? (single)" 2005, Metal
+prime Dark-AOR band from Italy
+
+## Дискография
+
+### "Think Before Speaking" 2003, Metal
+
+1) The Abyss; 
+2) IX; 
+3) Fireflies; 
+4) The Storm Is Over; 
+5) Hollow Music; 
+6) Surrender; 
+7) Sickness; 
+8) Deserts Of Light; 
+9) Ice; 
+10) Don't Rely On Me
+
+### "To Who Really Cares? (single)" 2005, Metal
+
+1) To Who Really Cares?
+
 
 ## Отношения с другими группами
 

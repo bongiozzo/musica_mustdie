@@ -1,8 +1,31 @@
 # Poppy Seed Grinder
 
-Дискография
-"Oppressed Reality" 2004, Death Metal
-"Humanophobia" 2008, Death Metal
+
+
+## Дискография
+
+### "Oppressed Reality" 2004, Death Metal
+
+1. Elimination of Evil 03:54
+2. Oppressed Reality 03:01
+3. Delight from Suffering 03:10
+4. Naked Mind 03:29  
+5. Sadistic Corporation 04:06
+6. Rotting Processes in Human Mechanism 02:39
+7. Think of Death 02:57  
+8. Bloody Psychotic Disease 02:51 
+
+### "Humanophobia" 2008, Death Metal
+
+1. Concrete World 04:21  
+2. Fetus Of Hatred 03:12  
+3. Hemoptoe 04:11  
+4. Humanophobia 03:34  
+5. Monkey Syndrome 04:27  
+6. Monument Of Depravity 02:55  
+7. Talk Evolution 04:39  
+8. Maggot Infestant 03:29 
+
 
 ## Отношения с другими группами
 

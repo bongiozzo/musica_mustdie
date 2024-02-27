@@ -1,9 +1,49 @@
 # Thy Majestie
 
-Дискография
-"The Lasting Power" 2000, Power Metal
-"Hastings 1066" 2002, Power Metal
-"Jean D'Arc" 2005, Power Metal
+Epic-sympho-power
+
+## Дискография
+
+### "The Lasting Power" 2000, Power Metal
+
+Thy Majestie Theme 
+Wings of Wind 
+March of the Damned 
+Under Siege 
+Name of Tragedy 
+Durnovaria 
+...at the Village 
+Mystery of Forest 
+Cruenta Pugna 
+The Green Lands 
+Sword of Justice 
+Tears of Sorrow 
+Treachery 
+Nymph's Recall 
+Time to Battle 
+
+(p)(c) 2000 Scarlet
+
+
+### "Hastings 1066" 2002, Power Metal
+
+
+
+### "Jean D'Arc" 2005, Power Metal
+
+1. Revelations 
+2. Maiden of Steel
+3. The Chosen 
+4. Ride to Chinon
+5. ...for Orleans
+6. Up to the Battle!
+7. March of the Brave
+8. The Rise of a King
+9. Siege of Paris
+10. Time to Die
+11. Inquisition 
+12. The Trial
+
 
 ## Отношения с другими группами
 

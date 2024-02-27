@@ -1,8 +1,70 @@
 # Rolling Stones
 
-Дискография
-"The Very Best Of Rolling Stones (I)" 1969, Hard Rock
-"The Very Best Of Rolling Stones (II)" 1994, Hard Rock
+
+
+## Дискография
+
+### "The Very Best Of Rolling Stones (I)" 1969, Hard Rock
+
+1.  Satisfaction (I Can't Get No)
+2.  Paint In Black
+3.  Under My Thumb
+4.  Got Out Of My Cloud
+5.  Angie
+6.  As Tears Go By
+7.  Jumpin' Jack Flash
+8.  Honky Tonk Woman
+9.  Come On
+10.  I Wanna Be Your Man
+11.  Carol
+12.  Heart Of Stone
+13.  Lady Jane
+14.  Route 66 (Get Your Kick On)
+15.  Dance Little Sister
+16.  Card
+17.  Heart Of Stone
+18.  Lady Jane
+19.  Route 66 (Get Your Kick On)
+20.  Dance Little Sister
+21.  It's Only Rock'N'Roll
+22.  Rip This Joint
+23.  Play With Fire
+24.  Ruby Tuesday
+25.  You Can Make It If You Try
+26.  She Said Yeah
+27.  Suzie Q
+28.  Gotta Get Away
+29.  Look What You've Done
+30.  Shake Your Hips
+31.  She's A Rainbow
+
+(P)c 1969
+
+### "The Very Best Of Rolling Stones (II)" 1994, Hard Rock
+
+1.  Harlem Shuffle
+2.  Start Me Up
+3.  Miss You
+4.  Respectable
+5.  Sex Drive
+6.  Love Is A Strong
+7.  Sad Sad Sad
+8.  Manish Boy
+9.  Fool To Cry
+10.  Hang Fire
+11.  Hot Stuff
+12.  Beast Of Burden
+13.  You Got Me Rocking
+14.  Crazy Mama
+15.  Hold On To Your Hat
+16.  Dirty Work
+17.  Mixed Emotion
+18.  It Must Be Hell
+19.  New Faces
+20.  The Worst
+
+(P)c 1994
+
 
 ## Отношения с другими группами
 

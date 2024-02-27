@@ -1,9 +1,44 @@
 # Obduktion
 
-Дискография
-"Encounter in a Dream" 2003, Death Metal
-"II" 2008, Death Metal
-"Pain Chronicles" 2011, Death Metal
+
+
+## Дискография
+
+### "Encounter in a Dream" 2003, Death Metal
+
+1. Six Years	 
+2. Encounter in a Dream	 
+3. Deadly Cause	 
+4. Sadness	 
+5. Divine Shelter	 
+6. Abuse	 
+7. Don't Forget Our Dead	 
+8. Corruption	 
+9. Day of Massacre
+
+### "II" 2008, Death Metal
+
+1. Outcast	 
+2. Born...Not Created	 
+3. A Crossroad of Wisdom		 
+4. Threshold of a New Era	 
+5. Lie of Humanity	 
+6. And He Didn't Say Anything	 
+7. The Lost Angel of Our Soul	 
+8. Eternal Descent	 
+9. Whispers Ode
+
+### "Pain Chronicles" 2011, Death Metal
+
+1. Demonic Methods	 
+2. Morbid Curse	 
+3. Eaten From Inside	 
+4. Pain Chronicles	 
+5. Panic	 
+6. Necrotic Thirst	 
+7. Semi Humans 
+8. Inner Conflict
+
 
 ## Отношения с другими группами
 

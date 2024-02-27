@@ -1,7 +1,20 @@
 # Llvme
 
-Дискография
-"Fogeira de Suenos" 2010, Gothic
+folk-doom-metal from Spain
+
+## Дискография
+
+### "Fogeira de Suenos" 2010, Gothic
+
+1. Llvme	 
+2. Llumeiru De Fueu	 
+3. L’Allumamientu Del Fueu I	 
+4. L’Allumamientu Del Fueu II	 
+5. L’Allumamientu Del Fueu III	 
+6. Vaqueirada	 
+7. Orbayu De Llume	 
+8. Llume D’Augua
+
 
 ## Отношения с другими группами
 

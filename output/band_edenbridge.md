@@ -1,17 +1,475 @@
 # Edenbridge
 
-Дискография
-"Sunrise In Eden" 2000, Power Metal
-"Arcana" 2001, Power Metal
-"Aphelion" 2003, Power Metal
-"Shine" 2004, Power Metal
-"A Livetime In Eden (CD + DVD)" 2004, Power Metal
-"The Grand Design" 2006, Power Metal
-"MyEarthDream" 2008, Gothic
-"Solitaire" 2010, Gothic
-"The Bonding" 2013, Gothic
-"A Decade and a Half... The History So Far (6 DVD Set)" 2015, Gothic
-"The Great Momentum" 2017, Gothic
+melodic power metal with female voice
+
+## Дискография
+
+### "Sunrise In Eden" 2000, Power Metal
+
+1. Cheyenne Spirit
+2. Sunrise In Eden
+3. Forever shine On
+4. Holy Fire
+5. Wings Of The Wind
+6. In The Rain
+7. Midnight At Noon
+8. Take Me Back
+9. My Last Step Beyond
+
+
+Sabine Edelsbacher: Lead and Backing Vocals
+Lanvall: Lead, Rhythm and Acoustic Guitars, Keyboards
+Kurt Bednarsky: Bass
+Roland Navratil: Drums
+Guest Musicians:
+Gandalf: Sitar on "My Last Step Beyond"
+Astrid Stockhammer: Backing Vocals
+
+All music, lyrics and vocal melodies by Lanvall
+Recorded at Seagull Music Studio (Austria) by Gandalf
+Mixed at House Of Audio (Germany) by Dennis Ward
+Mastered at House Of Audio by Jochen Sachse
+Produced by Lanvall
+Cover artwork design by Markus Mayer
+
+
+
+
+### "Arcana" 2001, Power Metal
+
+1 Ascending 1:07
+2 Starlight Reverie 4:12
+3 The Palace 6:55
+4 A Moment Of Time 4:05
+5 Fly On A Rainbow Dream 4:41
+6 Color My Sky 4:33
+BT  Velvet Eyes Of Dawn (Europe ltd. digi-pack, double vinyl) 6:16
+BT  The Whisper Of The Ages (outside of Europe) 6:07
+7  Into The Light 5:21
+8  Suspiria 5:09
+9  Winter Winds 4:41
+10  Arcana 9:48
+
+
+
+Sabine Edelsbacher: Lead and Backing Vocals
+Lanvall: Lead, Rhythm and Acoustic Guitars, Keyboards
+Kurt Bednarsky: Bass
+Roland Navratil: Drums
+Andreas Eibler: Rhythm and Lead Guitars
+
+All music, lyrics and vocal melodies by Lanvall
+Produced by Lanvall 
+Recorded at House Of Audio Studios by Jochen Weyer
+Mixed at House Of Audio Studios by Dennis Ward
+Mastered at House Of Audio Studios by Jochen Sachse
+Cover artwork by Markus Mayer
+Booklet-Design by Alexander Rauser
+Photos by Gaby Lackner-Strauss
+All Songs published by BSE Publishing/BMG-Ufa
+
+   
+
+
+### "Aphelion" 2003, Power Metal
+
+1. The Undiscovered Land (6.08)
+2. Skyward (4.39)
+3. The Final Curtain (4.44)
+4. Perennial Dreams (4.57)
+5. Fly At Higher Game (4.48)
+6. As Far As Eyes Can See (4.35)
+7. The Whispering Gallery (5.17)
+8. Deadend Fire (4.25)
+9. Farpoint Anywhere (4.13)
+10. Where Silence Has Lease (4.43)
+11. Red Ball In Blue Sky (9.11)
+
+Sabine Edelsbacher: Lead and Backing Vocals
+Lanvall: Lead, Rhythm & Acoustic Guitars, Piano & Keyboards, Bouzouki
+Roland Navratil: Drums
+Andreas Eibler: Rhythm and Lead Guitars
+
+Guest musicians:
+Stefan Model: Bass
+D.C. Cooper: Lead & Backing Vocals on "Red Ball In Blue Sky"
+
+All music, lyrics, vocal melodies and orchestrations by Lanvall
+Produced by Lanvall 
+Recorded at House Of Audio Studios by Dennis Ward in Nov. 2002
+Mastered at House Of Audio Studios by Jьrgen Lusky
+Cover artwork by Markus Mayer
+Booklet-Design by Alexander Rauser at Ab.Art Graphix Abstatt
+Photos by wohlschlager.at
+All Songs published by BSE Publishing/BMG-Ufa
+
+
+### "Shine" 2004, Power Metal
+
+1. Shine (8.30); 
+2. Move Along Home (4.41); 
+3. Centennial Legend (5.16); 
+4. Wild Chase (5.32); 
+5. And The Road Goes On (8.10); 
+6. What You Leave Behind (4.41); 
+7. Elsewhere (2.18); 
+8. October Sky (5.11); 
+9. The Canterville Prophecy (1.49); 
+10. The Canterville Ghost (7.45); 
+11. On Sacred Ground (Bonus Track) (6.04)
+
+All songs written by EDENBRIDGE
+Produced by Lanvall
+Engineered by Dennis Ward
+Recorded and mixed at House Of Audio Studios
+
+Guest Musicians:
+Astrid Stockhammer - Solo Violin
+Dennis Ward - Backing Vocals and Choirs
+
+### "A Livetime In Eden (CD + DVD)" 2004, Power Metal
+
+CD        
+1 Ascending (Intro)        
+2  The Undiscovered Land        
+3 Skyward       
+4  Holy Fire        
+5 Fly On A Rainbow Dream        
+6 Forever Shine On        
+7 Starlight Reverie        
+8 Perennial Dreams        
+9 The Final Curtain        
+10 Suspiria       
+11 Arcana       
+12 Medley: Sunrise In Eden / My Last Step Beyond        
+13 Cheyenne Spirit
+       
+All Songs recorded live in concert 2004
+       
+          
+  DVD       
+1 The Undiscovered Land        
+2 Skyward       
+3 Holy Fire        
+4 Fly On A Rainbow Dream        
+5 Starlight Reverie        
+6 Perennial Dreams 
+Tracks 1-6 recorded live in concert 2004          
+  Bonus Videos        
+1 Cheyenne Spirit (Recorded live at Busan Rock Festival, Busan, South Korea, 1.6.2002)    
+2 Suspiria (Recorded live at Club S.H.,Seoul, South Korea, 6.6.2002)    
+3 The Final Curtain (Recorded live at Hirsch, Nuremberg, Germany, 18.5.2003)    
+4 The Undiscovered Land (Recorded live at Z 7, Pratteln, Switzerland, 26,5,2003)    
+5 Perennial Dreams (Recorded live at Z 7, Pratteln, Switzerland, 26,5,2003)
+
+### "The Grand Design" 2006, Power Metal
+
+1. Terra Nova (7.07); 
+2. Flame Of Passion (5.20); 
+3. Evermore (3.43); 
+4. The Most Beautiful Place (3.07); 
+5. See You Fading Afar (4.43); 
+6. On Top Of The World (5.01); 
+7. Taken Away (4.11); 
+8. The Grand Design (10.14); 
+9. Empire Of The Sun (5.22) (Bonus Track)
+
+All music, lyrics, vocal melodies, choirs and orchestration written by Lanvall and Robby Valentine
+Produced by Lanvall
+Engineered by Frank Pitters, Karl Gloom and Robby Valentine
+Recorded and mixed at Farpoint Station, Austria and Thin Ice Studio
+
+Sabine Edelsbacher - Lead and Backing Vocals
+Lanvall - Lead, Rhythm and Acoustic Guitars, Piano and Keyboards, Bouzouki, Mandolin, Pipa
+Frank Binding - Bass
+Roland Navratil - Drums
+
+Guest Musicians:
+Robby Valentine - Backing Vocals and Choirs, Piano
+Dennis Ward - Backing Vocals and Choirs
+Karl Groom - Solo Guitar
+Astrid Stockhammer - Solo violin
+
+### "MyEarthDream" 2008, Gothic
+
+01. The Force Within
+02. Shadowplay
+03. Remember Me
+04. Adamantine
+05. Paramount
+06. Whale Rider
+07. Undying Devotion
+08. Fallen From Grace
+09. Place Of Higher Power
+10. MyEarthDream
+
+Sabine Edelsbacher - vocals
+Lanvall - guitars / keyboards
+Frank Bindig - bass
+Max Pointer - drums
+
+All drums on the album played by SEBASTIAN LANSER
+
+Guest Musicians:
+ROBBY VALENTINE: Backing Vocals & Choirs
+DENNIS WARD: Backing Vocals & Choirs
+KARL GROOM: 3rd Guitar Solo on "Shadowplay"
+
+THE CZECH FILM ORCHESTRA conducted by JAROSLAV
+BRYCH
+
+Produced by LANVALL
+Music, Lyrics and Vocal Melodies by LANVALL
+Orchestral Arrangements by LANVALL
+Orchestral Score by ENRIQUE UGARTE
+Lead Vocals, Guitars, Bass, Keyboards and Acoustic
+Instruments recorded at FARPOINT STATION STUDIO
+(Austria) by FRANK PITTERS
+Drums recorded at WILD ONE STUDIO (Austria) by
+JAKOB GRABMAYR, FRANK PITTERS and KARL GROOM
+Robby Valentine?s Choirs recorded at THE ISOLATION
+CELL (Netherlands) by LANVALL
+Dennis Ward?s Choirs recorded by himself at THE
+TRAKSHAK (Germany)
+Orchestra recorded at Studio A of the Czech
+Television (Czech Republic) by MILAN JILEK
+Orchestra Pro Tools Engineer PAVEL RIDOSKO
+Orchestra Contractor ZDENKA PELIKANOVA
+Orchestra Coordination JAN VACIK
+Mixed by KARL GROOM at THIN ICE STUDIOS (England)
+Mastered by MIKA JUSSILA at FINNVOX STUDIOS
+(Finland)
+Cover Design by ANTHONY CLARKSON
+Layout Design by THOMAS EWERHARD
+Photos and retouching by STEVE BROWN
+Sabine?s outfit designed by ALIKI KOPANAKIS
+
+### "Solitaire" 2010, Gothic
+
+01. Entree Unique
+02. Solitaire
+03. Higher
+04. Skyline's End
+05. Bon Voyage Vagabond
+06. Come Undone
+07. Out Of This World
+08. Further Afield
+09. A Virtual Dream?
+10. Brothers On Diamir
+11. Exit Unique
+
+### "The Bonding" 2013, Gothic
+
+Disc 1  
+1. Mystic River  07:15  
+2. Alight a New Tomorrow  03:55   
+3. Star-Crossed Dreamer  04:02   
+4. The Invisible Force  05:29  
+5. Into a Sea of Souls  05:01   
+6. Far Out of Reach  06:11   
+7. Shadows of My Memory  05:39   
+8. Death Is Not the End  05:47   
+9. The Bonding  15:26   
+
+Disc 2 (instrumental) 
+1. Mystic River   07:15 
+2. Alight a New Tomorrow  03:55  
+3. Star-Crossed Dreamer  04:02  
+4. The Invisible Force  05:29  
+5. Into a Sea of Souls  05:01  
+6. Far Out of Reach  06:11  
+7. Shadows of My Memory  05:39   
+8. Death Is Not the End  05:47   
+9. The Bonding  15:26 
+
+
+### "A Decade and a Half... The History So Far (6 DVD Set)" 2015, Gothic
+
+Disc 1 - 1994-2002  
+1. History Part 1    
+2. Everflowing Stream (Cascade Rehearsal 1994)   
+3. History Part 2   
+4. Steps Towards the Bridge (Cascade Rehearsal 1994) 
+5. History Part 3   
+6. In the Rain (Cascade live in Vienna 1995)    
+7. History Part 4   
+8. History Part 5  
+9. Velvet Eyes of Dawn (Live in Linz 2000)   
+10. Wings of the Wind (Live in Linz 2000)  
+11. History Part 6      
+12. TV Coverage First Show Linz 2000  
+13. History Part 7      
+14. Midnight at Noon (Live in Verviers 2000)  
+15. History Part 8      
+16. History Part 9     
+17. The Palace (Live in Linz 2001)     
+18. History Part 10    
+19. Forever Shine On (Live in Busan, Korea 2002)    
+20. Into the Light (Live in Busan, Korea 2002)  
+21. Cheyenne Spirit (Live in Busan, Korea 2002)  
+22. Offstage Korea Part 1      
+23. Suspiria (Live in Seoul, Korea 2002)    
+24. Offstage Korea Part 2      
+25. Winter Winds (Live in Seoul, Korea 2002)   
+26. Sunrise in Eden/My Last Step Beyond (Live in Seoul, Korea 2002) 
+27. Offstage Korea Part 3      
+28. Cheyenne Spirit (Live in Seoul, Korea 2002)      
+29. End Credits      
+  
+Disc 2 - 2002-2004  
+1. Forever Shine On (Spontaneous Acoustic Performance 2014)  
+2. History Part 11      
+3. Aphelion Studio Documentary 2002    
+4. History Part 12      
+5. The Magic of Angels Tour Documentary 2003  
+6. The Undiscovered Land (Live in Pratteln 2003)   
+7. Perennial Dreams (Live in Pratteln 2003)   
+8. Holy Fire (Live in Pratteln 2003)      
+9. The Final Curtain (Live in Vienna 2003)    
+10. TV Rock Show Nuremberg 2003     
+11. Skyward      
+12. Interview Part 1    
+13. Perennial Dreams    
+14. Interview Part 2     
+15. The Final Curtain      
+16. Starlight Reverie     
+17. Summer Breeze Festival Documentary 2003   
+18. History Part 13      
+19. Moscow Documentary 2004      
+20. History Part 14      
+21. End Credits      
+  
+Disc 3 - 2004-2005  
+1. Ascending (Live in Germany 2004)     
+2. The Undiscovered Land (Live in Germany 2004)    
+3. Skyward (Live in Germany 2004)  
+4. Holy Fire (Live in Germany 2004)  
+5. Fly On a Rainbow Dream (Live in Germany 2004)     
+6. Forever Shine On (Live in Germany 2004)     
+7. Starlight Reverie (Live in Germany 2004)  
+8. Perennial Dreams (Live in Germany 2004)  
+9. The Final Curtain (Live in Germany 2004)   
+10. Suspiria (Live in Germany 2004)      
+11. Arcana (Live in Germany 2004)   
+12. Sunrise in Eden/My Last Step Beyond (Live in Germany 2004)    
+13. Cheyenne Spirit (Live in Germany 2004)      
+14. Shine Studio Documentary 2004     
+15. Shine Tour Documentary 2005      
+16. No Pain for the Dead (Sabine perfoming with Angra)      
+17. History Part 15      
+18. End Credits      
+  
+Disc 4 - 2007  
+1. Intro (Live in Beijing 2007)   
+2. Evermore (Live in Beijing 2007)     
+3. Terra Nova (Live in Beijing 2007)    
+4. Wild Chase (Live in Beijing 2007) 
+5. October Sky (Live in Beijing 2007)     
+6. For Your Eyes Only (Live in Beijing 2007)  
+7. The Undiscovered Land (Live in Beijing 2007) 
+8. Flame of Passion (Live in Beijing 2007)
+9. Move Along Home (Live in Beijing 2007)     
+10. What You Leave Behind (Live in Beijing 2007)  
+11. Starlight Reverie (Live in Beijing 2007)   
+12. See You Fading Afar (Live in Beijing 2007)    
+13. On Top of the World (Live in Beijing 2007)    
+14. The Grand Design (Live in Beijing 2007)      
+15. Shine (Live in Beijing 2007)      
+16. Cheyenne Spirit (Live in Beijing 2007)      
+  
+Disc 5 - 2006-2008  
+1. Asian Tour Documentary 2006/2007     
+2. Orchestra Recordings MyEarthDream 2007    
+3. Drum Recordings MyEarthDream 2007  
+4. Shadowplay (Live in Korea 2008)     
+5. Remember Me (Live in Korea 2008)  
+6. Offstage Korea Part 1      
+7. Undying Devotion (Live in Korea 2008)     
+8. Offstage Part 2      
+9. Paramount (Live in Korea 2008)   
+10. Offstage Part 3      
+11. Centennial Legend (Live in Korea 2008)     
+12. Wild Chase (Live in Korea 2008)    
+13. Shine (Live in Pratteln 2008)      
+14. Evermore (Live in Pratteln 2008)     
+15. Fallen from Grace (Live in Pratteln 2008)  
+16. MyEarthDream (Live in Pratteln 2008)      
+  
+Disc 6 - 2010-2014  
+1. Higher Official Video Clip  
+2. Higher Making Of  
+3. Solitaire Album Trailer     
+4. Indonesian Radio Interview Jakarta 2010   
+5. The Bonding Orchestra Recordings   
+6. The Bonding 1st Album Teaser  
+7. Alight a New Tomorrow Official Video Clip      
+8. The Bonding Album Trailer    
+9. GO TV Interview 2013      
+10. The Force Within (Live in Czech Republic 2014) 
+11. Mystic River (Live in Czech Republic 2014)  
+12. Alight a New Tomorrow (Live in Czech Republic 2014)      
+13. Skyline's End (Live in Czech Republic 2014)     
+14. Shadowplay (Live in Czech Republic 2014)      
+15. The Invisible Force (Live in Czech Republic 2014)    
+16. Remember Me (Live in Czech Republic 2014)  
+17. Solitaire (Live in Czech Republic 2014)   
+18. Higher (Live in Czech Republic 2014)
+19. End Credits      
+20. Fan Chapter  
+
+
+ The 6 disc DVD package has a running time of approx. 9 hours, spanning over their entire career, starting from the very beginnings with the pre-band CASCADE to the present.
+ Apart from a lot of studio/tour documentaries and video clips, 3 full multi cam live concerts are included
+
+ Live in Germany 2004 (70 minutes)
+ Live in Beijing 2007 (90 minutes)
+ Live in Czech Republic 2014 (45 minutes, full HD)
+
+ as well as lengthy live features from
+
+ Busan Rock Festival Korea 2002
+ Seoul Korea 2002
+ Pratteln 2003
+ Jump Guro Festival Korea 2008
+ Pratteln 2008
+
+ and private video footage filmed during their shows and backstage, never seen before!
+
+ As a real special, Sabine and Lanvall reunited with former bass player Kurt Bednarsky and former guitar player Andreas Eibler in August 2014, 
+ to resume the early years of EDENBRIDGE's history. Captured with 3 cameras, the four share their thoughts about the early days and do a spontaneous acoustic performance of "Forever Shine On"!
+
+ Produced, edited, mixed and mastered at Farpoint Station Studio, Austria
+
+ Backstage Scenes filmed by Sabine Edelsbacher, Lanvall, Frank Pitters
+
+ Songs and clips used with kind permission from Steamhammer/SPV, Napalm Records, Angra, Tv3, Linz, Rock Show Nurember, GO TV
+
+
+### "The Great Momentum" 2017, Gothic
+
+Disc 1  
+1. Shiantara  05:51   
+2. The Die Is Not Cast  05:14   
+3. The Moment Is Now  04:23   
+4. Until the End of Time  04:35    
+5. The Visitor  05:53    
+6. Return to Grace  05:13    
+7. Only a Whiff of Life  03:45  
+8. A Turnaround in Art  07:30   
+9. The Greatest Gift of All  12:16   
+
+Disc 2 (instrumental)
+1. Shiantara    
+2. The Die Is Not Cast    
+3. The Moment Is Now    
+4. Until the End of Time    
+5. The Visitor     
+6. Return to Grace     
+7. Only a Whiff of Life    
+8. A Turnaround in Art    
+9. The Greatest Gift of All  
+
+
 
 ## Отношения с другими группами
 

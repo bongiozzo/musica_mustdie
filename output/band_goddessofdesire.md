@@ -1,7 +1,34 @@
 # Goddess Of Desire
 
-Дискография
-"Let Us Win This War" 1997, Black Metal
+War Metal
+
+## Дискография
+
+### "Let Us Win This War" 1997, Black Metal
+
+1.  Intro (Midnight Overture)
+2.  Mistress Of Inferno
+3.  War Of The Crusade
+4.  Glory In Metal
+5.  Goddess Of Desire
+6.  The Battleground
+7.  Metal To The Metals
+8.  Wall Of Terror
+9.  (The Perversity Of) Satan's Ugliest
+10.  Doomsday Warrior
+
+Recorded and Mixed at Studio Ozan
+Produced by Paul van Rijswijk
+Executive producer Michel Bronkhorst
+
+Count August
+Delilah
+Emperor Mark
+Grev Drake
+Lilith
+
+(P)(C) 1997 SHIVADARSHANA Records // SR 014
+
 
 ## Отношения с другими группами
 

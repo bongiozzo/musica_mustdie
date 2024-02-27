@@ -1,9 +1,50 @@
 # Impending Doom
 
-Дискография
-"Nailed. Dead. Risen." 2007, Deathcore
-"The Serpent Servant" 2009, Deathcore
-"There Will Be Violence" 2010, Deathcore
+
+
+## Дискография
+
+### "Nailed. Dead. Risen." 2007, Deathcore
+
+1. Left Behind  00:57   
+2. My Nemesis  02:51   
+3. In Reverance Of  02:57  
+4. The Mark of the Faithful  03:23
+5. Nailed. Dead. Risen.  03:37   
+6. Condemned  02:47  
+7. At the Churches' End  02:51  
+8. Silence the Opressors  03:11   
+9. For All Have Sinned  02:43
+10. Feeding the Decomposing  03:04
+11. He's Coming Back  06:16 
+
+### "The Serpent Servant" 2009, Deathcore
+
+1. When Waters Run Deep  01:01   
+2. The Serpent Servant  03:26
+3. Anything Goes  04:42
+4. Storming the Gates of Hell  03:43   
+5. Welcome to Forever  03:46  
+6. More Than Conquerors  04:27   
+7. Revival: America  02:35 
+8. In the House of Mourning  02:38   
+9. When I Speak  03:52   
+10. City of Refuge  02:42 
+11. Beginnings  02:55 
+
+### "There Will Be Violence" 2010, Deathcore
+
+1. Hell Breaks Loose  01:15  
+2. There Will Be Violence  03:05   
+3. Orphans  03:55  
+4. Peace Illusion  03:11 
+5. The Great Fear  04:38  
+6. Walking Through Fire  02:47   
+7. Love Has Risen  04:43    
+8. The Son is Mine  03:33   
+9. Children of Wrath  03:15   
+10. Sweating Blood  03:47 
+
 
 ## Отношения с другими группами
 

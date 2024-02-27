@@ -1,7 +1,13 @@
 # Death Du Jour
 
-Дискография
-"Gamashinoch" 2003, Death Metal
+death-metal from Finland
+
+## Дискография
+
+### "Gamashinoch" 2003, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

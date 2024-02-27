@@ -1,11 +1,81 @@
 # Soilent Green
 
-Дискография
-"PussySoul" 1995, Death Metal
-"String of Lies" 1998, Death Metal
-"Sewn Mouth Secrets" 1998, Grindcore
-"A Deleted Symphony for the Beaten Down" 2001, Death Metal
-"Devil Wears a Lamb's Skin" 2001, Death Metal
+(Blending elements of grindcore, death metal, black metal, hardcore, and bluesy, groove-oriented Southern rock)
+
+## Дискография
+
+### "PussySoul" 1995, Death Metal
+
+1. Thirteen Days A Weak
+2. Slapfuck
+3. Falling from a 65 Story Building
+4. Lips as so of Blood
+5. The Wrong of Way
+6. Needlescrape
+7. Zebra Zombies
+8. Keep Crawling
+9. Twitch of an Eye
+10. Golfers Just Love Punishment
+11. Love None
+12. Branding of Thieves 
+
+
+
+
+### "String of Lies" 1998, Death Metal
+
+1. Sewn Mouth Secrets   (Soilent Green)  
+2. Cat With Nine Claws   (Soilent Green)  
+3. Felt Nothing   (Soilent Green)  
+
+
+### "Sewn Mouth Secrets" 1998, Grindcore
+
+1. It Was Just an Accident  4:12 (Soilent Green)  
+2. So Hatred  3:48 (Soilent Green)  
+3. Build Fear  2:48 (Soilent Green)  
+4. Looking Through Nails  3:03 (Soilent Green)  
+5. Breed in Weakness  4:13 (Soilent Green)  
+6. Cold-Steel Kiss  3:37 (Soilent Green)  
+7. Openless  0:26 (Soilent Green)  
+8. Her Unsober Ways  4:03 (Soilent Green)  
+9. Sewn Mouth Secrets  5:24 (Soilent Green)  
+10. Walk a Year in My Mind  5:10 (Soilent Green)  
+11. Gagged Whore  4:23 (Soilent Green)  
+12. Emptiness Found  3:42 (Soilent Green)  
+13. Sticks and Stones  0:53 (Soilent Green)  
+ 
+ 
+ 
+ 
+ 
+
+
+### "A Deleted Symphony for the Beaten Down" 2001, Death Metal
+
+1. Hand Me Downs
+2. A Grown Man
+3. Swallowhole
+4. Afterthought of a Genius
+5. An Addicts' Lover
+6. Later Days
+7. Clockwork of Innocence
+8. Daydreaming the Color of Blood
+9. Last One in the Noose
+10. She Cheated on You Twice
+
+
+(Relapse Records RLP6481) 
+Release Date: September 18, 2001 
+Formats: CD, LP 
+
+
+
+
+### "Devil Wears a Lamb's Skin" 2001, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

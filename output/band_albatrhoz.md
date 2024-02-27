@@ -1,7 +1,20 @@
 # Albatrhoz
 
-Дискография
-"La Visi&#1091;n de los Profetas" 2005, Heavy Metal
+
+
+## Дискография
+
+### "La Visi&#1091;n de los Profetas" 2005, Heavy Metal
+
+1. Preludio a la Existencia (Intro)	 
+2. Gйnesis
+3. La visiуn de los profetas
+4. El Mбrtir del Gуlgota
+5. Ancestros
+6. Llorar en el infierno
+7. Crucifixiуn	
+8. La ъltima agonнa
+
 
 ## Отношения с другими группами
 

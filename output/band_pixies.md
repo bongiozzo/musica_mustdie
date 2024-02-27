@@ -1,11 +1,104 @@
 # Pixies
 
-Дискография
-"" 1987, Punk
-"Surfer Rosa" 1988, Punk
-"Doolittle" 1989, Punk
-"Bossa Nova" 1990, Punk
-"Trompe Le Monde" 1991, Punk
+
+
+## Дискография
+
+### "" 1987, Punk
+
+
+
+### "Surfer Rosa" 1988, Punk
+
+1. Bone Machine
+2. Break My Body
+3. Something Against You
+4. Broken Face
+5. Gigantic
+6. River Euphrates
+7. Where Is My Mind ?
+8. Cactus
+9. Tony's Theme
+10.Oh My Golly !
+11.Vamos
+12.Buck Is Red
+
+Black Francis - Vocals
+David Lovering - Drums
+Mrs. John Murphy - Bass,Vocals
+Joey Santiago - Lead Guitars
+
+(P)&(C) 1995
+
+### "Doolittle" 1989, Punk
+
+1.  Debaser
+2.  Tame
+3.  Wave Of Mutilation
+4.  I Bleed
+5.  Here Comes Your Man
+6.  Dead
+7.  Monkey Gone To Heaven
+8.  Mr.Grieves
+9.  Crackity Jones
+10.La La Love You
+11.No.13 Baby
+12.There Goes My Gun
+13.Hey
+14.Silver
+15.Gouge Away
+
+(P)c 1989
+
+### "Bossa Nova" 1990, Punk
+
+1. Cecilia Ann
+2. Rock Music
+3. Velouria
+4. Allison
+5. Is She Weird
+6. Ana
+7. All Over The World
+8. Dig For Fire
+9. Down To The Well
+10.The Happening
+11.Blown Away
+12.Hang Wire
+13.Stormy Weather
+14.Havalina
+
+Black Francis - Vocals
+David Lovering - Drums
+Kim Deal - Bass,Vocals
+Joey Santiago - Lead Guitars
+
+(P)&(C) 1990
+
+### "Trompe Le Monde" 1991, Punk
+
+1.  Trompe Le Monde
+2.  Planet Of Sound
+3.  Alec Eiffel
+4.  The Sad Punk
+5.  Head On
+6.  U - Mass
+7.  Palace Of The Brine
+8.  Letter To Memphis
+9.  Bird Dream Of The Olympus Mons
+10.Space (I Believe In)
+11.Subbacultcha
+12.Distance Equals Rate Times Time
+13.Lovely Day
+14.Motorway To Roswell
+15.The Navajo Know
+
+Black Francis - Vocals
+David Lovering - Drums
+Kim Deal - Bass, Vocals
+Joey Santiago - Lead Guitars
+
+(P)&c 1991
+
 
 ## Отношения с другими группами
 

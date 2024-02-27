@@ -1,12 +1,154 @@
 # Vision Divine
 
-Дискография
-"Vision Divine" 1999, Power Metal
-"Send Me An Angel" 2002, Power Metal
-"Stream of Consciousness" 2004, Power Metal
-"The Perfect Machine" 2005, Power Metal
-"The 25th Hour " 2007, Power Metal
-"9 Degrees West of the Moon" 2009, Power Metal
+
+
+## Дискография
+
+### "Vision Divine" 1999, Power Metal
+
+01. New Eden 4.03 ( Music : Magnani - Tordiglione / Lyrics : Magnani ) 
+02. On the Wings of the Storm 4.40 ( Music : Magnani - Tordiglione / Lyrics : Magnani ) 
+03. Black Mask of Fear 4.38 ( Music : Magnani - Tordiglione / Lyrics : Magnani ) 
+04. Exodus 4.37 ( Music : Magnani - Tordiglione / Lyrics : Magnani ) 
+05. The Whisper 6.03 ( Music : Magnani - Tordiglione / Lyrics : Magnani ) 
+06. Forgotten Worlds 4.18 ( Music : De Paoli) 
+07. Vision Divine 5.03 ( Music : Magnani - Tordiglione / Lyrics : Magnani ) 
+08. The Miracle 6.20 ( Music : Magnani - Tordiglione / Lyrics : Magnani ) 
+09. Forever Young 5.01 ( Music : Magnani - Tordiglione / Lyrics : Magnani ) 
+10. Of Light and Darkness 6.12 ( Music : Magnani - Tordiglione - De Paoli / Lyrics : Magnani ) 
+- Hidden Song -
+11. The Final Countdown 5.08 (J. Tempest) 
+
+
+
+Produced by: Dave Rodgers & Lione / Thorsen for Lith productions
+Executive producer: Fabrizio Giruzzi
+Recorded, mixed and mastered by Dave Rodgers at:
+
+Rodgers Studio
+Via g. Verga 301/281
+Romanore (MN) ITALY 
+
+Cover concept: Vision Divine
+Cover: Simone Bianchi
+Photos by: Giuseppe dґAngelo
+Graphic design: Dimitri Gobbi / Il Laboratorio Grafico
+Arrangements: Thorsen / Mc Pauls
+Female voice on "Of Light And Darkness" by: Ale Gatti
+
+
+### "Send Me An Angel" 2002, Power Metal
+
+01. Incipit 
+02. Send Me An Angel 
+03. Pain 
+04. Away From You 
+05. Black And White 
+06. The Call 
+07. Taste Of a Goodbye 
+08. Apocalypse Coming 
+09. Nemesis 
+10. Flame Of Hate 
+11. Take On Me 
+
+### "Stream of Consciousness" 2004, Power Metal
+
+Chapter I: Stream of Unconsciousness 
+Chapter II: Secret of Life 
+Chapter III: Colours Of My World 
+Chapter IV: In The Light 
+Chapter V: The Fallen Feather
+Chapter VI: La Vita Fugge
+Chapter VII: Versions Of The Same 
+Chapter VIII: Through The Eyes Of God
+Chapter IX: Shades 
+Chapter X: We Are, We Are Not 
+Chapter XI: Fool's Garden 
+Chapter XII: The Fall Of Reason 
+Chapter XIII: Out Of The Maze 
+Chapter XIV: Identities...
+
+### "The Perfect Machine" 2005, Power Metal
+
+1. The Perfect Machine 07:58
+2. First Day of a Never-Ending Day 06:13 
+3. The Ancestor's Blood 05:53
+4. Land of Fear 04:25
+5. God is Dead 05:21
+6. Rising Sun 05:23  
+7. Here in 6048 06:32 
+8. The River 04:29  
+9. Now That You've Gone 05:59
+10. The Needle Lies (Queensryche cover, Bonus Track for Japan only) 05:22 
+
+
+Line-up:
+Michele Luppi - Vocals
+Olaf Thorsen - Guitar
+Federico Puleri - Guitar
+Andrea Torricini - Bass
+Alessio Lucatti - Keyboards
+Ricky Quagliato - Drums
+
+Release date is October the 26th 2005 for Japan.
+November the 7th 2005 for Europe.
+
+Digipak rerelease has 4 bonus tracks:
+
+10. The Needle Lies (Queesnrяche cover)
+11. New Eden (2005 Version)
+12. Send Me An Angel (2005 Version)
+13. Pain (2005 Version) 
+
+
+### "The 25th Hour " 2007, Power Metal
+
+1. My Angel Died 00:53 
+2. The 25th Hour 05:34 
+3. Out of a Distant Night (Voices) 05:29  
+4. Alpha & Omega 05:49  
+5. Eyes of a Child 04:59  
+6. The Daemon you Hide 04:50  
+7. Waiting for the Dawn 01:48  
+8. Essence of Time 04:43  
+9. A Perfect Suicide 05:21 
+10. Heaven Calling 03:39 
+11. Ascension 02:15 
+
+
+Line-up:
+Michele Luppi - Vocals
+Olaf Thorsen - Guitar
+Federico Puleri - Guitar
+Cristiano Bertocchi - Bass
+Alessio Lucatti - Keyboards
+Alessandro Bissa - Drums
+
+Bonus track for Japan:
+12. Another Day (Dream Theater cover) 
+
+### "9 Degrees West of the Moon" 2009, Power Metal
+
+1. Letter to My Child Never Born 08:56  
+2. Violet Loneliness 04:42  
+3. Fading Shadow 05:20  
+4. Angels in Disguise 05:16  
+5. The Killing Speed of Time 04:50  
+6. The Streets of Laudomia 05:50  
+7. Fly 04:53  
+8. Out in Open Space 05:08  
+9. 9 Degrees West of the Moon 03:56  
+10. A Touch of Evil 05:48  
+11. Fading Shadow (demo version) (bonus track) 05:17 
+
+
+Fabio Lione - Vocals 
+Carlo Andrea Magnani (Olaf Thorsen) - Guitars 
+Cristiano Bertocchi - Bass 
+Alessio "Tom" Lucatti - Keyboards 
+Federico Puleri - Guitar 
+Alessandro "Bix" Bissa - Drums
+
 
 ## Отношения с другими группами
 

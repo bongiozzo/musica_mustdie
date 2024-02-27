@@ -1,8 +1,35 @@
 # Rapidforce
 
-Дискография
-"Apotheosis of War" 1993, Thrash
-"Burst Under Pressure" 2008, Thrash
+
+
+## Дискография
+
+### "Apotheosis of War" 1993, Thrash
+
+1. Shame  05:51    
+2. Far from Myself  04:23  
+3. Blindness  03:44  
+4. Breakout  04:08    
+5. Union  04:18   
+6. Sky's Burning Higher  04:43  
+7. Legacy of Pain  05:53    
+8. Real N.M.E.  04:24   
+9. Hero  05:16 
+
+### "Burst Under Pressure" 2008, Thrash
+
+1. Who Wept For Them  04:53    
+2. Strong Enough  04:15  
+3. Hero  04:25    
+4. Eyes For An Eye  03:30  
+5. Worthless  04:19  
+6. Glamoch  04:50   
+7. I Will Stand Alone  03:05    
+8. Apostol of Madness  05:08    
+9. Something to Destroy  03:48    
+10. Curb  03:41    
+11. A Song For Me  02:50 
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,27 @@
 # Scars On Broadway
 
-Дискография
-"Scars on Broadway" 2008, Alternative
+project by SOAD artists: Malakian or Dolmayan
+
+## Дискография
+
+### "Scars on Broadway" 2008, Alternative
+
+1. Serious 
+2. Funny 
+3. Exploding / Reloading 
+4. Stoner Hate 
+5. Insane 
+6. World Long Gone 
+7. Kill Each Other / Live Forever 
+8. Babylon 
+9. Chemicals 
+10. Enemy 
+11. Universe 
+12. 3005 
+13. Cute Machines 
+14. Whoring Streets 
+15. They Say
+
 
 ## Отношения с другими группами
 

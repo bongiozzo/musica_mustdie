@@ -1,9 +1,54 @@
 # Mortal Decay
 
-Дискография
-"Sickening Erotic Fanaticism" 1997, Deathcore
-"A Gathering Of Human Artifacts" 1999, Deathcore
-"Forensic" 2002, Deathcore
+Brutal gore death metal from New Jersey
+
+## Дискография
+
+### "Sickening Erotic Fanaticism" 1997, Deathcore
+
+1. Decomposed With Nitric Acid
+2. Sickening Erotic Fanaticism
+3. Revived Half Dead
+4. Meditating Through Mayhem
+5. Apparitions
+6. Opening The Graves
+7. Columbian Necktie
+8. Soaking In Entrails
+9. Consume The Rancid Gore
+10. Rejoice In Moribund
+
+### "A Gathering Of Human Artifacts" 1999, Deathcore
+
+1. Ars Moriendi
+2. Dawn of Misery
+3. Requiem
+4. Post-Mortem Feast
+5. Mortal Decay
+6. Splendid Decomposition
+7. Bereavement
+8. Rejoice In Moribund
+9. Gruesomely Deceased
+10. Grisly Aftermath
+11. Consume the Rancid Gore
+12. Human Fossils
+13. Apparitions
+14. Revived Half Dead
+15. Opening the Graves
+16. Soaking in Entrails
+17. Delirium
+
+### "Forensic" 2002, Deathcore
+
+1. My Mind Bleeds Tragedies
+2. Insect to Flesh
+3. Chronicles
+4. Monkey Cage
+5. Beyond Forensic Knowledge
+6. Recollections
+7. Razor Slice Decor
+8. Brutalized and Defiled 
+9. Driven into Hysterics
+
 
 ## Отношения с другими группами
 

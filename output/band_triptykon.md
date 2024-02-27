@@ -1,9 +1,41 @@
 # Triptykon
 
-Дискография
-"Eparistera Daimones" 2010, Metal
-"Shatter (EP)" 2010, Metal
-"Melana Chasmata" 2014, Metal
+
+
+## Дискография
+
+### "Eparistera Daimones" 2010, Metal
+
+1. Goetia 
+2. Abyss Within My Soul 
+3. In Shrouds Decayed 
+4. Shrine 
+5. A Thousand Lies
+6. Descendant 
+7. Myopic Empire 
+8. My Pain 
+9. The Prolonging
+
+### "Shatter (EP)" 2010, Metal
+
+1. Shatter 04:48
+2. I Am the Twilight 07:59
+3. Crucifixus 04:18
+4. Circle of the Tyrants (Live) 05:12
+5. Dethroned Emperor (Live) 05:18
+
+### "Melana Chasmata" 2014, Metal
+
+01. Tree Of Suffocating Souls
+02. Boleskine House
+03. Altar Of Deceit
+04. Breathing
+05. Aurorae
+06. Demon Pact
+07. In The Sleep Of Death
+08. Black Snow
+09. Waiting
+
 
 ## Отношения с другими группами
 

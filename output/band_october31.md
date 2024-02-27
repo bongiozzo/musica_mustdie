@@ -1,11 +1,61 @@
 # October 31
 
-Дискография
-"The Fire Awaits You" 1997, Heavy Metal
-"Visions of the End" 1998, Heavy Metal
-"Visions of the End (Re-issued)" 1999, Heavy Metal
-"Meet Thy Maker" 2000, Heavy Metal
-"Visions of the End (Re-issued 2)" 2000, Heavy Metal
+
+
+## Дискография
+
+### "The Fire Awaits You" 1997, Heavy Metal
+
+1. The Warlock
+2. Salem's Curse
+3. The Fire Awaits You
+4. Lost City
+5. Voyage to Infinity
+6. Day of the Saxons
+7. Vindication
+8. A Million Goodbyes
+
+### "Visions of the End" 1998, Heavy Metal
+
+1. Visions of the End
+2. The Chosen One
+3. Servants and Slaves
+4. Give 'Em the Axe
+5. The Legend of the Haunted Sea 
+
+### "Visions of the End (Re-issued)" 1999, Heavy Metal
+
+1. Visions of the End
+2. The Chosen One
+3. Servants and Slaves
+4. Give 'Em the Axe
+5. The Legend of the Haunted Sea
+6. Voyage to Infinity
+7. The Fire Awaits You
+8. Child of the Damned
+9. When Darkness Covers The Sun
+10. Harder Than Steel 
+
+### "Meet Thy Maker" 2000, Heavy Metal
+
+1. Meet Thy Maker
+2. Just An Illusion
+3. For There is War!
+4. Far From Danger Now
+5. Power and the Glory
+6. The Verdict
+7. Behind the Castle Walls
+
+### "Visions of the End (Re-issued 2)" 2000, Heavy Metal
+
+1. The Chosen One
+2. Visions of the End
+3. Servants and Slaves
+4. Give 'Em the Axe
+5. The Legend of the Haunted Sea
+6. Child of the Damned
+7. When Darkness Covers The Sun
+
 
 ## Отношения с другими группами
 

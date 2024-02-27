@@ -1,11 +1,29 @@
 # Malignant Tumour
 
-Дискография
-"Dawn Of A New Age" 2003, Punk
-"Burninhell" 2005, Punk
-"In Full Swing" 2008, Rock and Roll
-"Earthshaker" 2010, Rock and Roll
-"Overdose And Overdrive" 2013, Rock and Roll
+
+
+## Дискография
+
+### "Dawn Of A New Age" 2003, Punk
+
+
+
+### "Burninhell" 2005, Punk
+
+
+
+### "In Full Swing" 2008, Rock and Roll
+
+
+
+### "Earthshaker" 2010, Rock and Roll
+
+
+
+### "Overdose And Overdrive" 2013, Rock and Roll
+
+
+
 
 ## Отношения с другими группами
 

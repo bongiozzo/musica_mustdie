@@ -1,12 +1,77 @@
 # Oblivion Machine
 
-Дискография
-"Demo" 2005, Death Industrial
-"Unnatural & Wrong" 2008, Death Industrial
-"Viewpoint Collector (Ultimate Version 2.13)" 2010, Death Industrial
-"Viewpoint Collector" 2010, Death Industrial
-"Unnatural & Wrong (2008) [Remastered 2011]" 2011, Death Industrial
-"Zero-Gravity" 2012, Death Industrial
+
+
+## Дискография
+
+### "Demo" 2005, Death Industrial
+
+
+
+### "Unnatural & Wrong" 2008, Death Industrial
+
+1. Morbid Fuckin' Death	 
+2. Antigod 
+3. Karma	 
+4. Alternative	 
+5. Machine	 
+6. Blight	 
+7. Epitaph To The Multiplied	 
+8. Absurd	 
+9. Everything Is For Nothing	 
+10. Euthanasia
+
+### "Viewpoint Collector (Ultimate Version 2.13)" 2010, Death Industrial
+
+1. Avidya (Epitaph to the Multiplied) (Peach Suntan Mix by Kerranswell)	 
+2. Samskara (Karma) (Terror Mix by Cryonix)	 
+3. Vijnana (Ego Doctrine)
+4. Namarupa (Blight) (Remix by Michiel Van Den Bos)	 
+5. Sadayatana (Euthanasia) (Remix by Tongue Heavy)		 
+6. Sparsa (Morbid Fuckin' Death) (Remix by Gorrus)	 
+7. Vedana (Alternative) (Remix by Project Death Unit)	 
+8. Trsna (Machine) (Remix by DJ Noiz)	 
+9. Upadana (Antigod) (Remix by Broknwingz)	 
+10. Bhava (Absurd) (Digital Torture Mix by Xe-NONE)	 
+11. Jati (Everything is for Nothing) (Remix by Gorrus)	 
+12. Jara-marana (Exilence)
+
+### "Viewpoint Collector" 2010, Death Industrial
+
+1. Avidya (Epitaph to the Multiplied) (Peach Suntan Mix by Kerranswell)	 
+2. Samskara (Karma) (Terror Mix by Cryonix)	 
+3. Vijnana (Ego Doctrine)
+4. Namarupa (Blight) (Remix by Michiel Van Den Bos)	 
+5. Vedana (Alternative) (Remix by Project Death Unit) 
+6. Trsna (Machine) (Remix by DJ Noiz) 
+7. Jara-marana (Exilence)
+
+### "Unnatural & Wrong (2008) [Remastered 2011]" 2011, Death Industrial
+
+1. Morbid Fuckin' Death	 
+2. Antigod 
+3. Karma	 
+4. Alternative 
+5. Machine	 
+6. Blight 
+7. Epitaph To The Multiplied 
+8. Absurd (feat. Dmitry Orlov from Fetal Decay)	 
+9. Everything Is For Nothing	 
+10. Euthanasia
+
+### "Zero-Gravity" 2012, Death Industrial
+
+1. Shield Mode	 
+2. Hate. Wound. Lick. 
+3. Первая кровь	 
+4. Ритм богов 
+5. Призраки	 
+6. Re-Wake	 
+7. К Земле	 
+8. Surfacing	 
+9. Fallen Boy	 
+10. Окутаны душой
+
 
 ## Отношения с другими группами
 

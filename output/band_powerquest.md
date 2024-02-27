@@ -1,11 +1,124 @@
 # Power Quest
 
-Дискография
-"Wings of Forever" 2002, Power Metal
-"Newerworld" 2004, Power Metal
-"Magic Never Dies" 2005, Power Metal
-"Master Of Illusion" 2008, Power Metal
-"Blood Alliance" 2011, Power Metal
+UK power metal
+
+## Дискография
+
+### "Wings of Forever" 2002, Power Metal
+
+1.	Prelude to Destiny (intro)
+2.	Wings of Forever
+3.	Far Away
+4.	Glory Tonight
+5.	Power Quest
+6.	Beyond the Stars
+7.	Immortal Plains
+8.	Follow your Heart
+9.	Freedom of Thought
+10.                Distant Lands (outro)   
+
+
+
+
+ Steve Williams - Keyboards 
+ Steve Scott - Bass  
+ Sam Totman - Guitars 
+ Adam Bickers - Guitars 
+ Alessio Garavello - Vocals 
+
+
+
+### "Newerworld" 2004, Power Metal
+
+Neverworld (Power Quest II) 
+Temple Of Fire
+Edge Of Time 
+Sacred Land 
+When I'm Gone 
+For Evermore 
+Well Of Souls 
+Into The Light 
+Lost Without You
+
+Alesso Garavello (vocals) 
+Steve Scott (bass) 
+Sam Totman (guitar) 
+Andrea Marongelli (guitar) 
+Steve Williams (keyboards) 
+  
+Produced by: Karl Groom 
+Engineered by: Karl Groom 
+Mixed by : Pete Coleman 
+Mastered by: Graham Woodcock
+
+### "Magic Never Dies" 2005, Power Metal
+
+1. Ascension (intro) 
+2. Find my Heaven 
+3. Galaxies Unknown 
+4. Hold on to Love 
+5. Diamond Sky 
+6. The Message 
+7. Soulfire 
+8. Children of the Dream 
+9. Strike Force 
+10. Another World 
+11. Magic Never Dies 
+12. The Longest Night (Japanese bonus track)
+
+### "Master Of Illusion" 2008, Power Metal
+
+01. Cemetery Gates
+02. Human Machine
+03. Civilised?
+04. Kings of Eternity
+05. Master of Illusion
+06. The Vigil
+07. Save the World
+08. Hearts and Voices
+09. I Don't Believe in Friends Forever
+10. Never Again
+11. Reckoning Day
+
+Produced by Nick Savio, Richard West and Steve
+Williams at Remaster Studios, Italy and Western
+Drive Studios, England. Mixed by Nick Savio and
+Power Quest at Remaster Studios. Italy.
+Drums, guitars and bass recorded by Nick
+Savio at Remaster Studios. Italy.
+Vocals recorded by Richard West at Remaster
+Studios, Italy.
+Post production and keyboards recorded by
+Richard West at Western Drive Studios.
+England.
+Guest vocals recorded by Jon lloare at
+Mercury Studios, Bristol, England.
+Mastering by Rob Aubrey at Aubitt Studios,
+Southampton, England.
+All songs written by Steve Williams.
+First Guitar solo on "The Vigil" - Bill Hudson
+-(Cellador)
+Second Guitar solo on "Never Again" - Join Viggo
+Lofstad (Pagan's Mind) Keyboard solo on "Human
+Machine" - Richard West (Threshold)
+First Keyboard solo on "Save the World" - Bob
+Katsionis (Firewind) Guest Vocals on "Master of
+Illusion" and "The Vigil" - Chris Neighbour
+Keyboards on "Reckoning Day"-Richard West
+
+### "Blood Alliance" 2011, Power Metal
+
+Battle Stations 
+Rising Anew 
+Glorious 
+Sacrifice 
+Survive 
+Better Days 
+Crunching the Numbers 
+Only in my Dreams 
+Blood Alliance 
+City of Lies 
+
 
 ## Отношения с другими группами
 

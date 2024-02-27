@@ -1,11 +1,108 @@
 # Obscura
 
-Дискография
-"Retribution" 2006, Techno Death
-"Cosmogenesis" 2009, Techno Death
-"Omnivium" 2011, Techno Death
-"Illegimitation (Compilation)" 2012, Techno Death
-"Akroasis" 2016, Techno Death
+
+
+## Дискография
+
+### "Retribution" 2006, Techno Death
+
+1. Humankind 02:48  
+2. Nothing 04:57  
+3. Unhinged 02:17  
+4. None Shall Be Spared 05:58  
+5. Alone 03:45 
+6. Hymn to a Nocturnal Visitor 06:33
+7. Intoxicated 02:30 
+8. Exit Life 03:49 
+9. Sentiment 06:11  
+10. Sweet Silence 03:16  
+11. Lack of Comprehension (Death Cover) 03:46 
+
+
+
+Guest:
+V. Santura (Dark Fortress) - vocals
+Matthias Rцderer (Atrocity (Ger), Leaves' Eyes) - guitars on one track
+Thorsten Bauer (Atrocity (Ger), Leaves' Eyes) -guitars on one track 
+Martl Bauer (Profanity (Ger)) - bass on one track
+
+
+Remastered and re-released in 2010 by Relapse Records with two bonus tracks:
+12. Synthetically Revived (Suffocation Cover)
+13. God of Emptiness (Morbid Angel Cover)
+Track “Intoxicated” (#7) on this edition renamed to “Hate Anthem”.
+Also there's a missprint of the tracklist on the 2010 edition – track “Sweet
+Silence” is absent on back cover but exist on the CD.
+Original cover on the left, cover on the right by Orion Landau.
+
+Remastered re-release for Japan with two bonus tracks more :
+14 . Decade ov Therion ( Behemoth Cover )
+15. Wings ( Vader Cover ) 
+
+### "Cosmogenesis" 2009, Techno Death
+
+1. Anticosmic Overload 04:16  
+2. Choir of Spirits 05:31 ] 
+3. Universe Momentum 04:33 
+4. Incarnated 04:53  
+5. Orbital Elements 05:21  
+6. Desolate Spheres 04:01  
+7. Infinite Rotation 04:48 
+8. Noosphere 05:04
+9. Cosmogenesis 04:15  
+10. Centric Flow 07:25 
+
+
+
+Lineup:
+Steffen Kummerer - Vocals, Guitar
+Jeroen Paul Thesseling - 6-String Fretless Bass
+Christian Muenzner - Guitar
+Hannes Grossmann - Drums 
+
+Ron Jarzombek(Watchtower, Spastik Ink, Bottled Science...) makes a guest
+appearance on the track "Cosmogenesis".
+
+Produced by Obscura and V. Santura.
+Recorded, mixed, and mastered by V. Santura at Woodshed Studios, Landshut,
+Germany.
+
+Design by Orion Landau.
+Band photography by Norudos.
+
+Guest vocals on tracks 3,6,8,10 by V. Santura
+
+### "Omnivium" 2011, Techno Death
+
+1. Septuagint 07:18  
+2. Vortex Omnivium 04:14  
+3. Ocean Gateways 05:56 
+4. Euclidean Elements 04:51 
+5. Prismal Dawn 06:20 
+6. Celestial Spheres 05:28 
+7. Velocity 06:04 
+8. A Transcendental Serenade 06:13 
+9. Aevum 07:51 
+
+
+Omnivium was recorded at Woodshed Studio in southern, Germany with engineer V.
+Santura (Triptykon, Dark Fortress)
+
+Cover art for "Omnivium" by Orion Landau
+
+The lyrical concept for "Omnivium" based on Friedrich Schelling's "On Nature's
+Connection to the Spirit World"
+
+Deluxe edition contains a bonus track - Concerto (Cacophony cover)
+
+### "Illegimitation (Compilation)" 2012, Techno Death
+
+
+
+### "Akroasis" 2016, Techno Death
+
+
+
 
 ## Отношения с другими группами
 

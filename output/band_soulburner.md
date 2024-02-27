@@ -1,7 +1,24 @@
 # Soulburner
 
-Дискография
-"When Sanity Is Lost" 2006, Death Metal
+
+
+## Дискография
+
+### "When Sanity Is Lost" 2006, Death Metal
+
+1. Age of murder 02:44 
+2. Devourer 03:41
+3. The day will come 03:53  
+4. Bastard son 03:37 
+5. Embrace my head 04:07  
+6. Forever in blood 02:43  
+7. Lost mankind 03:13
+8. Nine more times 03:31  
+9. Obedience 04:52  
+10. Gleams of force 03:00  
+11. Weakness 03:19 
+
+
 
 ## Отношения с другими группами
 

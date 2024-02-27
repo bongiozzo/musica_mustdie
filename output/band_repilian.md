@@ -1,7 +1,13 @@
 # Repilian
 
-Дискография
-"Thunderblaze" 2002, Heavy Metal
+heavy-power
+
+## Дискография
+
+### "Thunderblaze" 2002, Heavy Metal
+
+
+
 
 ## Отношения с другими группами
 

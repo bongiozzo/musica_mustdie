@@ -1,9 +1,47 @@
 # Neurasthenia
 
-Дискография
-"Possessed" 2007, Thrash
-"Your Omen" 2009, Thrash
-"Possessed By Your Omen" 2012, Thrash
+
+
+## Дискография
+
+### "Possessed" 2007, Thrash
+
+1. Screaming Corpse
+2. Feel Possessed
+3. In Loving of...
+4. Majestic March
+5. Neurasthenia
+6. Assassination
+7. The Last Order of God
+8. Night Under Terror
+
+### "Your Omen" 2009, Thrash
+
+01. Intro (1:04)
+02. Your Omen (4:40)
+03. Go Fuck Themselves (3:48)
+04. Church of Tomorrow (4:19)
+05. Filthy Lucre (4:28)
+06. Liar #1 (5:01)
+07. No Politics (4:45)
+08. Thrash is Back in Town (3:39)
+09. I Hate my Family (5:24)
+10. Outro (0:58)
+
+### "Possessed By Your Omen" 2012, Thrash
+
+01. When Nightmare Comes True
+02. I, Walking With A Zombie
+03. Fell Possessed
+04. No Politics
+05. Screaming Corpse
+06. Go Fuck Themselves
+07. Assassination
+08. T.B.T (Thrash Is Back In Town)
+09. Your Omen
+10. The Last Order Of God
+11. I Love It Loud (Kiss cover)
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,23 @@
 # Barracuda
 
-Дискография
-"In Carna" 2001, Death Metal
+Neo Death metal
+
+## Дискография
+
+### "In Carna" 2001, Death Metal
+
+1. Reptile (intro --instrumental)
+2. Degeneration Next
+3. Fuel Is My Blood
+4. Beyond The Corner
+5. Riot
+6. Fade
+7. into flesh (instrumental)
+8. Semilife (instrumental)
+9. Hook
+10. Neverending March (instrumental -- outro)
+
+
 
 ## Отношения с другими группами
 

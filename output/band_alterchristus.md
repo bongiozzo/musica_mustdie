@@ -1,6 +1,9 @@
 # Alter Christus
 
-Дискография
+brutal death metal from Canada
+
+## Дискография
+
 
 ## Отношения с другими группами
 

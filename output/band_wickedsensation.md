@@ -1,8 +1,40 @@
 # Wicked Sensation
 
-Дискография
-"Reflected" 2002, Hard Rock
-"Exceptional" 2004, Hard Rock
+melodic hard rock
+
+## Дискография
+
+### "Reflected" 2002, Hard Rock
+
+1. Magic Moments 4:55 (mp3)
+2. Someone Strong 6:07
+3. You Are The Answer 4:50
+4. Stand Tall 5:11 (mp3)
+5. High Speed Chase 3:21
+6. The Preacher 4:55
+7. Night On Fire 3:59
+8. Love Is Strange 5:38
+9. Caught In A Fantasy 3:43 (mp3)
+10. Get Down To The Business 4:19
+11. Let It Ride 4:23
+12. Joker In The Pack 4:26
+13. Reflected 1:55
+
+### "Exceptional" 2004, Hard Rock
+
+01. Intro 0:53
+02. Shining Light 4:27 (mp3)
+03. Back To My Bed 5:11 (mp3)
+04. We Arise 4:17
+05. Your Beat Inside My Heart 4:57
+06. The One You Love Ain`t Me 4:39
+07. Exceptional 4:57
+08. Kiss It Away 4:43 (mp3)
+09. Dying With The Wind 5:09
+10 Time Will Pass Me By 4:19
+11. My Own Misery 3:27
+12. Rain On Me 4:05
+
 
 ## Отношения с другими группами
 

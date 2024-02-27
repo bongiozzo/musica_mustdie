@@ -1,7 +1,13 @@
 # Fatal Nunchaku
 
-Дискография
-"Paving Stone Under The Beach" 2011, Grindcore
+
+
+## Дискография
+
+### "Paving Stone Under The Beach" 2011, Grindcore
+
+
+
 
 ## Отношения с другими группами
 

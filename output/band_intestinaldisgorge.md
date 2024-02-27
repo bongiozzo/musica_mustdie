@@ -1,8 +1,71 @@
 # Intestinal Disgorge
 
-Дискография
-"Drowned In Rectal Sludge" 2000, Grindcore
-"Whore Splattered Walls" 2001, Grindcore
+Noisy Coprogoregrind
+
+## Дискография
+
+### "Drowned In Rectal Sludge" 2000, Grindcore
+
+01. Rectum Grinder
+02. Plastered In Runny Filth
+03. Toilet Intercourse
+04. Bathing In Fecal Bathwater
+05. Corrosion Of Green Anal Walls
+06. Gastrointestinal Splatter Spray
+07. Gorging On Fizzing Malignant Entrails
+08. Imbibing Rancid Micturation
+09. Intestinal Collapse And Melting
+10. Extensive Obliteration Of The Rectal Orifice
+11. Exploding Juicy Cancerous Guts
+12. Caked In Grimy Rectal Filth
+13. Vomiting Rancid Grime
+14. Sleeping In Grime-Soaked Bedsheets
+15. Swimming In Child Innards
+16. Torrents Of Disgusting Festering Purulency
+17. Trembling In Torrents Of Diarrhea
+18. Life Story Of A Coprophagiac
+19. Soaking Wet With Urination
+20. Disemboweled And Deliciously Barbecued
+21. Foaming Genital Corpulence
+22. Colonic Eruption
+23. Butchered Rotting Human Carcasses
+24. Soaked With Intestinal Chyme
+25. Cascade Of Gastrointestinal Crap
+26. Bloody Feces Syndrome
+27. Vomiting Fecal Paste
+28. Face Down In A Toilet Full Of Vomit And Feces
+29. Grime
+30. Pictures Of Blistered Genitalia
+
+(c)&(p) 2000 Lofty Storm Records
+
+### "Whore Splattered Walls" 2001, Grindcore
+
+01. The Hooker Butcher
+02. No Use Crying Over Spilled Bitch
+03. Force Fed Diarrheal Slime
+04. Swamped In Liquefied Fecal Matter
+05. Bitch-ka-bob
+06. Bathing In Urine
+07. Dismemberment Of The Bloated Body
+08. Sectioned With A Circular Saw
+09. From Stalking To Killing
+10. Chewing On Coagulated Geriatric Feces
+11. Suffocated With A Used Adult Diaper
+12. Consuming Liquefied Insect-Ridden Feces
+13. Methods Of Disposing Of Bodies
+14. Necrocoprophilia
+15. Rotting In Your Own Excrement
+16. Masturbating In Overflowed Diarrheal Toilet Water
+17. Depraved Beyond All Comprehension
+18. Drenched In Gelatinous Sewage
+19. Intercourse With A Maggot-Infested Emaciated Corpse
+20. Submerged In Festering Bodily Fluids
+21. Dining On Sludgeous Intestinal Contents
+22. Unheard Screams 
+
+(c)&(p) 2001 Lofty Storm Records
+
 
 ## Отношения с другими группами
 

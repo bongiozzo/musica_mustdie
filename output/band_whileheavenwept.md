@@ -1,10 +1,45 @@
 # While Heaven Wept
 
-Дискография
-"Sorrow of the Angels" 1998, Doom
-"Of Empires Forlorn" 2003, Doom
-"Vast Oceans Lachrymose" 2009, Doom
-"Fear Of Infinity" 2011, Doom
+
+
+## Дискография
+
+### "Sorrow of the Angels" 1998, Doom
+
+1. Thus With a Kiss I Die 16:58
+2. Into the Wells of Sorrow 09:44
+3. The Death of Love 09:57 
+4. September 02:21 
+
+### "Of Empires Forlorn" 2003, Doom
+
+1. The Drowning Years 05:41
+2. Of Empires Forlorn 07:49
+3. Voice in the Wind 06:25
+4. Soulsadness 07:24 
+5. Epistle No. 81 (Candlemass cover) 03:24
+6. Sorrow of the Angels 04:47
+7. From Empires to Oceans 07:18 
+
+### "Vast Oceans Lachrymose" 2009, Doom
+
+1. The Furthest Shore 15:51
+2. To Wander the Void 06:28
+3. Living Sepulchre 04:00
+4. Vessel 07:48
+5. Vast Oceans Lachrymose 05:02
+6. Epilogue 03:13 
+
+### "Fear Of Infinity" 2011, Doom
+
+1. Hour of Reprisal (3:47)
+2. Destroyer of Solace (2:40)
+3. Obsessions Now Effigies (4:37)
+4. Unplentitude (3:21)
+5. To Grieve Forever (6:13)
+6. Saturn and Sacrifice (5:25)
+7. Finality (11:08)
+
 
 ## Отношения с другими группами
 

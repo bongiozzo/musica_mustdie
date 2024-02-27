@@ -1,8 +1,53 @@
 # The Wake
 
-Дискография
-"Ode to My Misery" 2003, Melodic Death Metal
-"Death-A-Holic" 2005, Melodic Death Metal
+melodic-death-metal
+
+## Дискография
+
+### "Ode to My Misery" 2003, Melodic Death Metal
+
+01. Murder One
+02. Darkness Of Mine
+03. Souls Encounter
+04. Deep Silent Dead
+05. Forever Nothing
+06. Befouled Galaxy
+07. Failed Generation
+08. The Neverending
+09. Like A Fallen Angel
+10. Whenever I Suffer
+
++ 11. Here In Eternity
+( Japan bonus )
++ 12. Deja-Vu 
+( Japan bonus )
+
+Recorded and mixed between may - june 2003
+by Tuomo Valtonen at SundiCoop Studio, Savonlinna
+
+Mastered at Finnvox Studios, Helsinki by Mika Jussila
+
+Artwork, logo and band photography by Tero @ Terorized.com
+
+### "Death-A-Holic" 2005, Melodic Death Metal
+
+01. Suicide Manual 
+02. rejected 
+03. One More Way 
+04. Downward Groove 
+05. Instrumental 
+06. The Elbow of Zeus 
+07. Good For Nothing 
+08. Mindless Wrecking Progress 
+09. Death-A-Holic 
+10. Nailgun 
+
+Line-Up: 
+Kaj Michelsson - vocals & bass 
+Jani Luttinen - guitar 
+Wellu Helenius - drums 
+Sakari Lempinen - guitars
+
 
 ## Отношения с другими группами
 

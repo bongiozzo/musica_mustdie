@@ -1,16 +1,190 @@
 # Einherjer
 
-Дискография
-"Leve Vikinganden" 1995, Black Metal
-"Aurora Borealis" 1996, Black Metal
-"Dragons Of The North" 1996, Black Metal
-"Far Far North" 1997, Black Metal
-"Odin Owns Ye All" 1998, Black Metal
-"Norwegian Native Art" 2000, Black Metal
-"Blot" 2003, Viking Metal
-"Norron" 2011, Viking Metal
-"Nidstong" 2014, Viking Metal
-"Av Oss, for Oss" 2014, Viking Metal
+The Art of Viking Metal
+
+## Дискография
+
+### "Leve Vikinganden" 1995, Black Metal
+
+1. Nеr Hammeren Heves
+2. Nеr Aftensolen Rinner
+
+Line - up :
+Rune Bjelland - Vocals
+Frode Glesnes - Guitar
+Audun Wold - Bass
+Gerhard Storesund - Drums & Synth
+
+
+### "Aurora Borealis" 1996, Black Metal
+
+1. De Sorte Sjшers Land
+2. Aurora Borealis
+3. Witchking
+4. Einherjer
+
+Aurora Borealis was originally released as
+a demo in 1994.
+
+Line - up:
+Nidhogg - Rune Bjelland - Vocals
+Grimar - Frode Glesnes - Guitar 
+Thonar - Audun Wold - Bass & Synth
+Ulvar - Gerhard Storesund - Drums
+
+### "Dragons Of The North" 1996, Black Metal
+
+1. Dragons Of The North
+2. Dreamstorm
+3. Forever Empire
+4. Conquerer
+5. Fimbul Winter
+6. Storms Of The Elder
+7. Slagel Ved Hatrsjord
+8. The Ballad Of The Swords
+
+Rune Bjelland - Vocals
+Gerhard Storesund - Drums, Synth
+Frode Glesnes - Guitars
+Audun Wold - Guitars, Clean Vocals
+Stein Sund - Bass
+
+
+### "Far Far North" 1997, Black Metal
+
+1. Far Far North
+2. Naar Hammeren Heves
+3. Naar Aftensolen Rinner
+
+* Naar Hammeren Heves & Naar Aftensolen Rinner
+are re-recorded versions from the legendary 7"
+"Leve Vikingеnden"
+
+
+Line - up:
+Rune Bjelland - Lead & Backing Vocals
+Frode Glesnes - Guitar & Backing Vocals
+Audun Wold - Guitar & Backing  Vocals
+Stein Sund - Bass & Backing Vocals
+Gerhard Storesund - Drums, Synth & Backing Vocals
+
+### "Odin Owns Ye All" 1998, Black Metal
+
+1. Leve Vikinganden
+2. Out of Ginnungagap
+3. Clash of the Elder
+4. Odin Owns Ye All
+5. Remember Tokk
+6. Home
+7. The Pathfinder & the Prophetess
+8. Inferno
+9. A New Earth
+
+Line - up :
+Ragnar Vikse - Lead & Backing Vocals
+Frode Glesnes - Guitar & Backing Vocals
+Gerhard Storesund - Drums, Synth & Backing Vocals
+Erik Elden - Bass & Backing Vocals
+
+
+
+### "Norwegian Native Art" 2000, Black Metal
+
+1. Wyrd of the Dead 
+2. Doomfaring 
+3. Hugin's Eyes 
+4. Burning Yggdrasil 
+5. Crimson Rain 
+6. Howl Ravens Come 
+7. Draconian Umpire 
+8. Regicide
+
+Line - up:
+Ragnar Vikse - Vocals
+Frode Glesnes - Guitar & Grim Vocals
+Gerhard Storesund - Drums
+Aksel Herlшe - Guitar
+
+Guest Appearances:
+Stein Sund - Bass
+Hanne E. Andersen - Valkyrian Vocals
+Solo on Doomfaring by Andy LaRocque
+
+
+
+
+### "Blot" 2003, Viking Metal
+
+1. Einherjermarsjen
+2. Ironbound
+3. Dead Knight's Rite
+4. Wolf-Age
+5. The Eternally Damned
+6. Ware Her Venom
+7. Hammar Haus
+8. Starkad
+9. Ride the Gallows
+10. Ingen Grid
+11. Berserkergang
+12. Venomtongue 
+
+
+Frode Glesnes - Guitar & Vocals
+Aksel Herloe - Guitar 
+Gerhard Storesund - Drums
+
+Recorded at Sifa Lydstudio, Kopervik, Norway during June, July & August 2003
+Produced by Frode & Gerhard
+Engineered by Inge Eriksen
+Mixed by Borge Finstad, Frode & Gerhard at Top Room Studio, Hadeland, Norway
+Mastered at Masterhuset, Oslo, Norway
+
+
+All music by Gerhard except
+Einherjermarsjen & Ironbound by Gerhard & Aksel
+Dead Knight's Rite & Hammar Haus by Gerhard & Frode
+All lyrics by Frode except
+Hammar Haus, Starkad & Venomtongue by Gerhard
+Ride The Gallows is based on Runatal (Havamal 140 - 144)
+Starkad is based on the legend of Starkad the Old
+Bass on this recording by Aksel
+Solo on Venomtongue by Jostein Maro
+All keyboard arrangements programmed by Gerhard
+
+### "Norron" 2011, Viking Metal
+
+01. Norron Kraft 12:55 
+02. Naglfar 05:12 
+03. Alu Alu Laukar 02:52 
+04. Varden Brenne 06:19 
+05. Atter Pa Malmtings Blodige Voll 08:13 
+06. Balladen Om Bifrost 05:50
+
+
+
+Ulvar - Drums, Keyboards 
+Grimar - Guitars, Vocals 
+Aksel Herloe - Guitars 
+
+
+
+### "Nidstong" 2014, Viking Metal
+
+1. Nidstong 
+2. Etched 
+
+
+### "Av Oss, for Oss" 2014, Viking Metal
+
+1. Fremad
+2. Hammer I Kors
+3. Nidstong
+4. Hedensk Oppstandelse
+5. Nord Og Ner
+6. Nornene
+7. Trelldom
+8. Av Oss, For Oss 
+
 
 ## Отношения с другими группами
 

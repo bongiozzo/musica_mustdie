@@ -1,27 +1,400 @@
 # Dark Tranquillity
 
-Дискография
-"Trail of Life Decayed (demo)" 1991, Melodic Death Metal
-"A Moonclad Reflection (EP)" 1992, Melodic Death Metal
-"Trail of Life Decayed (EP)" 1992, Melodic Death Metal
-"Tranquillity (MC)" 1992, Melodic Death Metal
-"Skydancer" 1993, Melodic Death Metal
-"Of Chaos And Eternal Night" 1995, Melodic Death Metal
-"The Gallery" 1995, Melodic Death Metal
-"Enter Suicidal Angels" 1996, Melodic Death Metal
-"The Mind's I" 1997, Melodic Death Metal
-"Projector" 1999, Melodic Death Metal
-"Haven" 2000, Melodic Death Metal
-"Skydancer / Of Chaos and Eternal Night" 2000, Melodic Death Metal
-"Damage Done" 2002, Melodic Death Metal
-"Exposures" 2004, Melodic Death Metal
-"Lost To Apathy (EP)" 2004, Melodic Death Metal
-"Character" 2005, Melodic Death Metal
-"Fiction" 2007, Melodic Death Metal
-"Where Death Is Most Alive [2 CD / 2 DVD]" 2009, Melodic Death Metal
-"We Are the Void" 2010, Melodic Death Metal
-"Construct" 2013, Melodic Death Metal
-"Atoma" 2016, Melodic Death Metal
+Scandinavian Melodic Death Metal
+
+## Дискография
+
+### "Trail of Life Decayed (demo)" 1991, Melodic Death Metal
+
+01. Beyond enlightenment
+02. Vernal awakening
+03. Void of tranquillity
+
+### "A Moonclad Reflection (EP)" 1992, Melodic Death Metal
+
+01. Unfurled by dawn
+02. Yesterworld
+
+### "Trail of Life Decayed (EP)" 1992, Melodic Death Metal
+
+
+
+### "Tranquillity (MC)" 1992, Melodic Death Metal
+
+
+
+### "Skydancer" 1993, Melodic Death Metal
+
+1. Nightfall By The Shore Of Time
+2. Crimson Winds
+3. A Bolt Of Blazing Gold
+4. In Tears Bereaved
+5. Skywards
+6. Through Ebony Archways
+7. Shadow Duet
+8. My Faeryland Forgotten
+9. Alone
+
+ Anders Friden - Lead Vocals
+ Niklas Sundin - Lead Guitar
+ Mikael Stanne - Guitar & Back.Vocals
+ Anders Jivarp - Drums
+ Martin Henriksson - Bass
+
+All Music Written & Arranged By DARK TRANQUILLITY 
+(Autumn 1991-Spring 1993).
+Recorded in Studio Soundscape during May and June of 1993.
+Produced by DARK TRANQUILLITY with help of engineers Stefan Lindgren and
+Dragan Tanaskovic.
+Backing vocals by Mikael Stanne and Anders Friden.
+All female vocals by Anna-Kajsa Avehall.
+Additional harmonic vocals on "Shadow Duet" and grunts on 
+"In Tears Bereaved" by Stefan Lindgren.
+Acoustic guitar by Niklas Sundin and Martin Henriksson.
+
+(p)&(c) 1993 SPINEFARM Records
+
+### "Of Chaos And Eternal Night" 1995, Melodic Death Metal
+
+1. Of Chaos And Eternal Night
+2. With The Flaming Shades Of Fall
+3. Away, Delight, Away
+4. Alone
+
+ Niklas Sundin - Lead Guitars
+ Frederik Johansson - Guitars
+ Mikael Stanne - Vocals
+ Anders Jivarp - Drums
+ Martin Henriksson - Bass
+
+(p)&(c) 1995 SPINEFARM Records
+
+### "The Gallery" 1995, Melodic Death Metal
+
+1. Punish My Heaven
+2. Silence, And The Firmament Withdrew
+3. Edenspring
+4. The Dividing Line
+5. The Gallery
+6. The One Brooding Warning
+7. Midway Through Infinity
+8. Lethe
+9. The Emptiness From Which I Fed
+10.The Mine Is Grandeur: 
+11...Of Melancholy Burning
+
+All Songs Written By DARK TRANQUILLITY.
+Produced & Engineered By Fredrik Nordstrom.
+Recorded & Mixed At Studio Fredman, Gothenburg, Sweden.
+
+ Niklas Sundin - Lead Guitars
+ Frederik Johansson - Guitars
+ Mikael Stanne - Vocals
+ Anders Jivarp - Drums
+ Martin Henriksson - Bass
+
+(P)&(C) 1995 OSMOSE Records
+
+### "Enter Suicidal Angels" 1996, Melodic Death Metal
+
+1. Zodijackyl Light
+2. Razorfever
+3. Shadowlit Facade
+4. Archetype
+
+Recorded and Mixed at Studio Friedman.
+Produced and Mixed by Fredrik Nordstrom and DT.
+
+Mikael Stanne - Vocals
+NiklaS Sundin - Guitars
+Anders Jivarp - Drums
+Martin Henriksson - Bass
+Fredrik Johansson - Guitars
+
+(P)(C) 1996 OSMOSE Productions // OPCD 049
+
+### "The Mind's I" 1997, Melodic Death Metal
+
+1. Dreamlore Degenerate
+2. Zodijackyl Light
+3. Hedon
+4. Scythe, Rage And Roses
+5. Constant
+6. Dissolution Factor Red
+7. Insanity's Crescendo
+8. Still Moving Sinews
+9. Atom Heart 243.5
+10. Tidal Tantrum
+11. Tongues
+12. The Mind's Eye
+
+Mikael Stanne - voice
+Anders Jivarp - drums
+Niklas sundin - guitars
+Martin Henriksson - bass
+Frederik Johansson - guitars
+
+Recorded at Studio Fredman summer 1996
+Produced by Dark Tranquillity and Frederik Nordstrom
+
+(p)(c)1997 OSMOSE PRODUCTION
+
+### "Projector" 1999, Melodic Death Metal
+
+1. FreeCard
+2. ThereIn
+3. Undo Control
+4. Auctioned
+5. To a Bitter Halt
+6. The Sun fired Blanks
+7. Nether Novas
+8. Day To End
+9. Dobermann
+10.On your Time
+
+mikael stanne - vocals
+niklas sundin - guitars
+fredrik johansson - guitars
+martin henriksson - bass
+anders jivarp - drums
+
+(P)(C) 1999
+
+### "Haven" 2000, Melodic Death Metal
+
+01.Tthe Wonders At Your Feet  
+02. Not Built To Last   
+03. Indifferent Suns  
+04. Feast Of Burden  
+05. Haven  
+06. The Same  
+07. Fabric  
+08. Ego Drama  
+09. Rundown  
+10. Emptier Still  
+11. At Loss For Words
+
+### "Skydancer / Of Chaos and Eternal Night" 2000, Melodic Death Metal
+
+01. Nightfall By The Shore Of Time
+02. Crimson Winds
+03. A Bolt Of Blazing Gold
+04. In Tears Bereaved
+05. Skywards
+06. Through Ebony Archways
+07. Shadow Duet
+08. My Faeryland Forgotten
+09. Alone 
+10. Of Chaos And Eternal Night
+11. With The Flaming Shades Of Fall
+12. Away, Delight, Away
+13. Alone 
+
+### "Damage Done" 2002, Melodic Death Metal
+
+1. Final Resistance - 3'01
+2. Hours Passed in Exile - 4'46
+3. Monochromatic Stains - 3'38
+4. Single Part of Two - 3'51
+5. The Treason Wall - 3'31
+6. Format C: For Cortex - 4'30
+7. Damage Done - 3'27
+8. Cathode Ray Sunshine - 4'14
+9. The Enemy - 3'56
+10. White Noise/Black Silence - 3'55
+11. Ex Nihilo - 4'09
+
+
+Recorded at Studio Fredman during February and March 2002.
+Engineered by Fredrik Nordstr&ouml;m and Patrik J. Sten.
+Mastered by G&ouml;ran Finnberg at The Mastering Room.
+
+Produced by Dark Tranquillity and Fredrik Nordstr&ouml;m.
+Cover Artwork by Niklas Sundin.
+
+Limited edition digipack also version features the track "I, Deception" as well as the "Monochromatic Stains" video clip.
+Japanese edition relased under licence by Toys Factory with "The Poison Well" as bonus.
+The LP version contains "I, Deception" as a bonus track and also have a totally different cover.
+
+&copy; 2002 Century Media, 8103
+
+### "Exposures" 2004, Melodic Death Metal
+
+CD1: 
+01. Static 
+02. The Poison Well 
+03. Misery In Me 
+04. Cornered 
+05. In Sight 
+06. No-One 
+07. Exposure 
+08. Yesterworld 
+09. Unfurled By Dawn 
+10. Midwinter/Beyond Enlightenment 
+11. Vernal Awakening 
+12. Void Of Tranquillity 
+
+CD2 (Live): 
+01. The Wonders At Your Feet 
+02. The Treason Wall 
+03. Hedon 
+04. White Noise/Black Silence 
+05. Haven 
+06. Punish My Heaven 
+07. Monochromatic Stains 
+08. Indifferent Suns 
+09. Format C: For Cortex 
+10. Insanity's Crescendo 
+11. Hours Passed In Exile 
+12. The Sun Fired Blanks 
+13. Damage Done 
+14. Lethe 
+15. Not Built To Last 
+16. ThereIn 
+17. Zodijackyl Light 
+18. Final Resistance 
+19. Ex Nihilo
+
+### "Lost To Apathy (EP)" 2004, Melodic Death Metal
+
+01. Lost to Apathy
+02. Derivation TNB
+03. The Endless Feed (Chaos Seed Remix)
+04. Undo Control (live)
+05. Lost to Apathy (video clip directed by Roger Johansson)
+06. D.T. Screensaver
+
+### "Character" 2005, Melodic Death Metal
+
+01. The New Build 
+02. Through Smudged Lenses 
+03. Out Of Nothing 
+04. The Endless Feed
+05. Lost To Apathy
+06. Mind Matters 
+07. One Thought
+08. Dry Run 
+09. Am I 1? 
+10. Senses Tied 
+11. My Negation
+
+### "Fiction" 2007, Melodic Death Metal
+
+1. Nothing To No One   
+2. The Lesser Faith   
+3. Terminus (Where Death Is Most Alive)   
+4. Blind At Heart   
+5. Icipher   
+6. Inside The Particle Storm   
+7. Empty Me   
+8. Miseryґs Crown   
+9. Focus Shift 03:35  
+10. The Mundane And The Magic   
+11. A Closer End (Japan bonus track)   
+12. Winter Triangle (Australian bonus track)
+
+### "Where Death Is Most Alive [2 CD / 2 DVD]" 2009, Melodic Death Metal
+
+Disc 1 
+1. Intro 01:47  
+2. The Treason Wall 03:48  
+3. The New Build 04:22  
+4. Focus Shift 04:39  
+5. The Lesser Faith 05:03  
+6. The Wonders At Your Feet 04:21  
+7. Lost To Apathy 05:18  
+8. FreeCard 04:59  
+9. Inside The Particle Storm 05:51  
+10. Nothing To No One 04:47  
+11. Edenspring 05:31  
+12. Insanity's Crescendo 07:33  
+13. Lethe 04:18  
+14. Dreamlore Degenerate 03:26  
+15. Misery's Crown 04:39  
+16. ThereIn 06:27  
+17. My Negation 06:27  
+18. Yesterworld/Punish My Heaven 06:46  
+19. The Mundane And The Magic 06:23  
+20. Final Resistance 04:12  
+21. Terminus (Where Death Is Most Alive) 07:43  
+Disc 2 
+1. Out Of Nothing - The DT Documentary 47:33  
+2. ThereIn (Promo Video) 05:57  
+3. Monochromatic Stains (Promo Video) 03:42  
+4. Lost To Apathy (Promo Video) 04:01  
+5. The New Build (Promo Video) 04:06  
+6. Focus Shift (Promo Video) 03:40  
+7. Terminus (Where Death Is Most Alive) (Promo Video) 05:00  
+8. Misery's Crown (Promo Video) 04:16  
+9. Only Time Can Tell (1991) 06:17  
+10. The Dying Fragment Of An Elderly Dream (1991) 04:06  
+11. Soulbreed (1991) 07:07  
+12. Yesterworld (1992) 07:33  
+13. Alone (1992) 05:53  
+14. My Faeryland Forgotten (1992) 04:35  
+15. Nightfall By The Shore Of Time (1992) 05:19  
+16. Skywards (1992) 04:46  
+17. Shadow Duet (1994) 06:49  
+18. Crimson Winds (1994) 05:33  
+19. Razorfever (1997) 03:10  
+20. Constant (1997) 03:23  
+21. Tongues (1997) 04:53  
+22. Feast Of Burden (2001) 03:53  
+23. Indifferent Suns (2002) 03:52  
+24. The Sun Fired Blanks (2002) 05:30  
+25. Hours Passed In Exile (2002) 04:57  
+26. Damage Done (2004) 03:41  
+27. One Thought (2004) 04:06  
+28. The Endless Feed (2007) 04:54  
+29. Blind At Heart (2007) 05:15 
+
+### "We Are the Void" 2010, Melodic Death Metal
+
+1. Shadow in Our Blood 03:46
+2. Dream Oblivion 03:48
+3. The Fatalist 04:32
+4. In My Absence 04:47
+5. The Grandest Accusation 04:55
+6. At the Point of Ignition 03:52
+7. Her Silent Language 03:33
+8. Arkhangelsk 03:56
+9. I Am the Void 04:00
+10. Surface the Infinite 03:50
+11. Iridium 06:43 
+
+### "Construct" 2013, Melodic Death Metal
+
+01. For Broken Words
+02. The Science Of Noise
+03. Uniformity
+04. The Silence In Between
+05. Apathetic
+06. What Only You Know
+07. Endtime Hearts
+08. State Of Trust
+09. Weight Of The End
+10. None Becoming
+
+### "Atoma" 2016, Melodic Death Metal
+
+1. Encircled  
+2. Atoma   
+3. Forward Momentum 
+4. Neutrality  
+5. Force of Hand 
+6. Faithless by Default   
+7. The Pitiless  
+8. Our Proof of Life
+9. Clearing Skies  
+10. When the World Screams  
+11. Merciless Fate  
+12. Caves and Embers  
+13. The Absolute (bonus) 
+14. Time Out of Place (bonus) 
+
+
+Recorded at Rogue Music in Gothenburg, Sweden.
+
 
 ## Отношения с другими группами
 

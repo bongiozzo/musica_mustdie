@@ -1,8 +1,32 @@
 # Mucopus
 
-Дискография
-"Mulch?!?" 2005, Death Metal
-"Undimensional" 2007, Death Metal
+
+
+## Дискография
+
+### "Mulch?!?" 2005, Death Metal
+
+1. One Is Too Many and a Thousand Is Never Enough 03:04  
+2. Superfluous Anomia 03:31
+3. Pre-Natal Caseation 04:13
+4. Language Unheard 03:33
+5. Cock Blister 03:22
+6. Corporation X 02:40 
+7. Technology Divine 03:02
+8. Borf Snarffle Squirt 02:21
+9. Wasted 02:02 
+
+### "Undimensional" 2007, Death Metal
+
+1. Mucus vs. Them 03:25 
+2. Load Rag 02:58
+3. Undimensional 03:43
+4. Super No Vacancy 02:45
+5. Void 01:56  
+6. Pus Must Flow 03:20 
+7. Pisutoru 03:32  
+8. Feast of Famine 06:51 
+
 
 ## Отношения с другими группами
 

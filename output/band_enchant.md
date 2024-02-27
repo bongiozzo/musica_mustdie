@@ -1,12 +1,33 @@
 # Enchant
 
-Дискография
-"Wounded" 1996, Progressive
-"Time Lost" 1997, Progressive
-"Break" 1998, Progressive
-"Juggling 9 or Dropping 10" 2000, Progressive
-"Blink Of An Eye" 2002, Progressive
-"Tug Of War" 2003, Progressive
+Progressive rock / metal
+
+## Дискография
+
+### "Wounded" 1996, Progressive
+
+
+
+### "Time Lost" 1997, Progressive
+
+
+
+### "Break" 1998, Progressive
+
+
+
+### "Juggling 9 or Dropping 10" 2000, Progressive
+
+
+
+### "Blink Of An Eye" 2002, Progressive
+
+
+
+### "Tug Of War" 2003, Progressive
+
+
+
 
 ## Отношения с другими группами
 

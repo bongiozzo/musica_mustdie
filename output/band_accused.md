@@ -1,14 +1,159 @@
 # Accused
 
-Дискография
-"The Return Of Martha Splatterhead" 1986, Hardcore
-"More Fun Than An Open Casket Funeral" 1987, Hardcore
-"Martha Splatterhead Maddest Stories Ever Told" 1988, Hardcore
-"Grinning Like An Undertaker" 1990, Hardcore
-"Straight Razor (EP)" 1991, Hardcore
-"Splatter Rock" 1992, Hardcore
-"Oh Martha!" 2005, Crossover
-"The Curse Of Martha Splatterhead" 2009, Crossover
+Kings of Hardcore
+
+## Дискография
+
+### "The Return Of Martha Splatterhead" 1986, Hardcore
+
+1.  Martha Splatterhead
+2.  Wrong Side Of The Grave
+3.  Take My Time
+4.  Destructions
+5.  Buried Alive
+6.  Show No Mercy
+7.  Slow Death
+8.  Autopsy
+9.  She's Killer
+10.In A Death Bed
+11.Lonely Place
+12.For 4 Bucks
+13.Martha's Revenge
+
+(p)&(c) 1986 COMBAT Records
+
+### "More Fun Than An Open Casket Funeral" 1987, Hardcore
+
+1.  Halo Of Flies
+2.  W.C.A.L.T.
+3.  Rape (Not A Love Song)
+4.  Lifeless Zone
+5.  Scotty
+6.  Devil Woman
+7.  Bethany Home
+8.  Merchanized Death
+9.  S.H.C.
+10.Judgement Day
+11.Take No Prisoners
+12.Splatter Rock
+13.Septi-Child
+14.I'll Be Glad When You're Dead
+
+ Blaine - Larynx
+ Alex Maggot Brain - Bass
+ Dana - Drums
+ Tom - Guitar
+
+Produced By ACCUSED.
+Engineered By Keith Livingston &
+Michael Lord.
+Recorded At Michael Lord Productions
+Valentines Day 1987.
+
+(p)&(c) 1987 RELATIVITY Records
+
+### "Martha Splatterhead Maddest Stories Ever Told" 1988, Hardcore
+
+1.  Psychomania (She`s Dead)
+2.  The Bag Lady Song
+3.  Inherit The Earth (The Day Of Reckoning)
+4.  Deception (The Imposters)
+5.  Molly`s X`mas `72
+6.  I`d Love To Change The World
+7.  You Only Die Once
+8.  Sick Boy (Life)
+9.  Chicago
+10.Starved To Death (Eating `Yer Bodies)
+11.War = Death `88 (And Beyond)
+12.The Maddest Story Ever Told
+13.Intro (From The Tingler)
+14.Scared Of Dark
+15.Losing Your Mind
+16.Smothered Her Trust
+17.Lights Out
+18.The Hearse (Traditional Nursery Rhyme)
+
+Blaine Fort - Vocals & Lead Guitars
+Alex Maggot Brain - Bass
+Dana Accused - Drums
+Tommy Accused - Guitars
+
+(p)&(c) 1988 COMBAT / RELATIVITY Records
+
+### "Grinning Like An Undertaker" 1990, Hardcore
+
+1.  Pounding Nails (Into The Lid Of Your Coffin)
+2.  Bullet - Ridden Bodies
+3.  The Corpse Walks
+4.  Grinning (Like An Undertaker)
+5.  Down And Out
+6.  Cut And Dried
+7.  Dropping Like Flies
+8.  M Is For Martha
+9.  Room 114
+10.When I Was A Child
+11.The Night
+12.Voices
+13.Boris The Spider
+14.Tapping The Vein
+
+Produced By Jack Endino & ACCUSED.
+Engineered By Jack Endino.
+
+(p)&(c) 1990 NASTYMIX Records
+
+### "Straight Razor (EP)" 1991, Hardcore
+
+
+
+### "Splatter Rock" 1992, Hardcore
+
+1.  Two Hours Till Sunrise
+2.  Stick In A Hole
+3.  No Choice
+4.  Lettin' Go
+5.  Blind Hate/Blind Rage
+6.  Greenwood House Of Medicine/
+   Don't You Have A Women
+7.  She's Back
+8.  Tearing Apart
+9.  Green Eyed Lady
+10.Brutality And Corruption
+11.Living,Dying,Living/
+   In A Zombie World 
+
+ Blaine - Vox
+ Alex Maggot Brain - Bass
+ Devin - Drums
+ Tom - Guitar
+
+Produced By ACCUSED.
+Engineered By Barry & John.
+Recorded At Music Source,Seattle,WA.
+
+(p)&(c) 1992 NASTYMIX Records
+
+### "Oh Martha!" 2005, Crossover
+
+
+
+### "The Curse Of Martha Splatterhead" 2009, Crossover
+
+1.	The Splatterbeast		
+2.	Stomped to Death		
+3.	Bodies are Rising		
+4.	Festival of Flesh		
+5.	Elijah Black		
+6.	Scotty Came Back		
+7.	Hemline		
+8.	Die Violently		
+9.	By the Hook		
+10.	Avenue of the Dead		
+11.	Fuck Sorry		
+12.	Martha's Disciples		
+13.	Seriously Dead		
+14.	Splatter Rock II
+
 
 ## Отношения с другими группами
 

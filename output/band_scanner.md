@@ -1,12 +1,86 @@
 # Scanner
 
-Дискография
-"Hypertrance" 1988, Heavy Metal
-"Terminal Earth" 1990, Heavy Metal
-"Mental Reservations" 1995, Heavy Metal
-"Ball Of The Damned" 1997, Heavy Metal
-"Scantropolis" 2002, Heavy Metal
-"The Judgement" 2015, Power Metal
+
+
+## Дискография
+
+### "Hypertrance" 1988, Heavy Metal
+
+
+
+### "Terminal Earth" 1990, Heavy Metal
+
+
+
+### "Mental Reservations" 1995, Heavy Metal
+
+1. Break The Seal
+2. Upright Liar
+3. After The Storm
+4. Your Infallible Smile
+5. Conception Of A Cure
+6. Into A Brave Man's Mind
+7. Out Of Nowhere
+8. Nightmare
+9. Rubberman
+10. Wrong Lane Society
+11. 20th Century Crusade
+Starring:
+Axel A.J. Julius as The String'tormentor
+Haridon Lee as The Naked Duke
+John A.B.C. Smith as Mr. Basic Instinct
+D.D. Bucco as Lord Of The Drums
+(c)1995 Massacre Records
+
+### "Ball Of The Damned" 1997, Heavy Metal
+
+1.  Puppet On A String
+2.  Frozen Under Sun
+3.  We Start It Tomorrow
+4.  True Stories Teller
+5.  Tollshocked
+6.  Lord Barker's Theme
+7.  Ball Of The Damned
+8.  Judge On The Run
+9.  Innuendo
+
+Recorded and Mixed at KS-Studio.
+Engineered by Andreas Seidler
+Produced by Nigel Boston
+
+Axel Julius - Guitars
+Haridon Lee - Vocals
+Stefan Nicolai - Guitars
+Marc Simon - Bass
+D.D.Bucco - Drums
+Stephan Braun - Keyboards
+
+(P)(C) 1997 MASSACRE Records // MASS 118
+
+### "Scantropolis" 2002, Heavy Metal
+
+
+
+### "The Judgement" 2015, Power Metal
+
+1. Intro  00:50   
+2. F.T.B.  04:02   
+3. Nevermore  05:55  
+4. Warlord  05:20   
+5. Eutopia  06:13   
+6. The Judgement  05:12  
+7. Battle of Poseidon  07:17   
+8. Pirates  04:56  
+9. Known Better  04:41  
+10. The Race  05:12   
+11. The Legionary  05:17 
+
+Andreas Zeidler (guitars)
+Efthimios Ioannidis (vocals)
+Axel A.J. Julius (guitars)
+Jonathan Sell (bass)
+Patrick Klose (drums) 
+
 
 ## Отношения с другими группами
 

@@ -1,14 +1,135 @@
 # Steel Prophet
 
-Дискография
-"The Goddess Principle" 1995, Heavy Metal
-"Into the Void (Hallucinogenic Conception)" 1997, Power Metal
-"Dark Hallucinations" 1999, Power Metal
-"Messiah" 2000, Power Metal
-"Book of the Dead" 2001, Power Metal
-"Unseen" 2002, Power Metal
-"Beware" 2004, Power Metal
-"Omniscient" 2014, Power Metal
+Heavy-Power Metal from USA, Los Angeles, California
+
+## Дискография
+
+### "The Goddess Principle" 1995, Heavy Metal
+
+1. Reign of Christ  07:19   
+2. Souls Without Honor  04:43  
+3. Devoid of Logic  05:13  
+4. Ruby Dreams  01:40  
+5. Prophecy Upon Us  04:33   
+6. The Inner Voice Silenced  05:57   
+7. To Grasp Eternity  05:03   
+8. Fatal Euphoria  06:07   
+9. Penance of Guilt  06:06   
+10. Parthenogenesis  06:57 
+
+
+### "Into the Void (Hallucinogenic Conception)" 1997, Power Metal
+
+1. The Revenant  03:38  
+2. Death of Innocence  05:19  
+3. Trapped in the Trip  06:20   
+4. Your Failure Inscribed in Stone  05:05  
+5. Passage of Time (Amber Leaves...)  07:09   
+6. Of the Dream  04:49  
+7. Ides of March / Purgatory (Iron Maiden cover)  05:29   
+8. What’s Behind the Veils?  06:58   
+9. Idols  06:09 
+10. HateІ  05:20 
+
+
+### "Dark Hallucinations" 1999, Power Metal
+
+1. Montag
+2. New Life 
+3. Strange Encounter
+4. The Secret
+5. We Are Not Alone
+6. Betrayal
+7. Look What You've Done
+8. Scarred For Life
+9. Spectres
+
+
+
+### "Messiah" 2000, Power Metal
+
+1. The Ides of March  03:56   
+2. Messiah  03:58   
+3. Vengeance Attained  06:29  
+4. Mysteries of Iniquity  05:50   
+5. Dawn of Man  04:46   
+6. Earth and Sky  05:13   
+7. Goddess Arise  04:31   
+8. Unseen  05:23  
+9. 07/03/47  05:31  
+10. Rapture  04:49   
+11. Ghosts Once Past  06:34 
+
+
+### "Book of the Dead" 2001, Power Metal
+
+1. When Six Was Nine  03:46  
+2. Tragic Flaws  03:54  
+3. Escaped  04:04   
+4. Soleares  00:37  
+5. Church of Mind  05:48   
+6. Burning into Blackness  06:50   
+7. The Chamber  00:31  
+8. Locked Out  04:00  
+9. Ruby Dreams (Faith and Hope)  01:16 
+10. Phobia  05:13   
+11. Anger Seething  04:25  
+12. Oleander  00:26 
+
+
+### "Unseen" 2002, Power Metal
+
+1. Truth  04:45 
+2. Rainwalker  04:18    
+3. One Way Out  04:15    
+4. Shattered Apart  03:25    
+5. Among the Damned  05:33    
+6. Bolero  02:14  
+7. Mirror, Mirror, Life After Life  05:40 
+8. Magenta  03:55   
+9. Blackest of Hearts  03:47  
+10. Martyred  05:04   
+11. Killer's Confession  06:44  
+12. Magenta (Reprise)  01:35  
+
+
+### "Beware" 2004, Power Metal
+
+1. Heavenly 
+2. Beware 
+3. Transfusion Vamp 
+4. Leatherette 
+5. Angels 
+6. Killing Machines 
+7. You Are My Life (Gypsy Mind) 
+8. Lost My Way 
+9. Political Greed (Petrol Man) 
+10. Moosilaure Cascade
+
+All songs written by STEEL PROPHET
+Produced by Steve Kachinsky and Nadir D'Priest
+Engineered by Steve Kachinsky Recorded and mixed at Morrison Streetiwong Place Studios
+
+### "Omniscient" 2014, Power Metal
+
+1. Trickery of the Scourge  04:17    
+2. When I Remake the World (A Key Flaw)  05:08 
+3. 911  06:04    
+4. Chariots of the Gods  04:18    
+5. The Tree of Knowledge  03:51    
+6. 666 Is Everywhere (The Heavy Metal Blues)  06:05    
+7. Oleander Deux  01:18    
+8. Aliens, Spaceships and Richard M. Nixon  04:57   
+9. Through Time and Space  05:58    
+10. Funeral for Art  06:21    
+11. Call of Katahdin  01:19    
+12. Transformation Staircase  03:54   
+13. Bohemian Rhapsody (Queen cover)  05:59   
+14. 1984 (George Orwell Is Rolling in His Grave)  02:57  
+
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,13 @@
 # Symbolic State
 
-Дискография
-"By Abstract Words" 2002, Melodic Death Metal
+death-metal from Estonia
+
+## Дискография
+
+### "By Abstract Words" 2002, Melodic Death Metal
+
+
+
 
 ## Отношения с другими группами
 

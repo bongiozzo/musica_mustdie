@@ -1,7 +1,24 @@
 # Thrashgrinder
 
-Дискография
-"Seeds of Revolution" 2010, Thrash
+
+
+## Дискография
+
+### "Seeds of Revolution" 2010, Thrash
+
+1. Traffic In Town
+2. N.O.I.S.E
+3. What are you Afraid off ? 
+4. Invisible War
+5. Self Respected
+6. Seeds of Revolution
+7. No Surrender
+8. Lies
+9. Disorder In The Court
+11. Failure Future
+12. We Dont Get It *
+13. Riot Brigade *
+
 
 ## Отношения с другими группами
 

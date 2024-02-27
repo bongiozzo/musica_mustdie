@@ -1,9 +1,60 @@
 # STOA
 
-Дискография
-"Urthona" 1994, Gothic
-"Porta VIII" 1995, Gothic
-"Zal" 2002, Gothic
+
+
+## Дискография
+
+### "Urthona" 1994, Gothic
+
+1.  Candide
+2.  Autumn
+3.  Infant Joy
+4.  Spin
+5.  In Memoriam
+6.  Stoa
+7.  Captivity
+8.  Dust
+9.  [N]Ever
+10.Taumel
+11.Hammaje
+
+Recorded At Ton Studio, Hilpolistein
+
+(p)(c) 1993 HYPERIUM Records
+
+### "Porta VIII" 1995, Gothic
+
+1. Introitus
+2. Partus
+3. Urthona
+4. Luvah
+5. Tharmas
+6. Urizen
+7. Scrupus
+8. Mors
+9. Conclusio
+
+Original Music Composed By O.Parusel
+Based On A Fairy Tale By Maurice Maeterlinck
+Produced, Recorded & Mixed By Bobby Bachinger
+Recorded At Sunhouse Studio, Nuremburg
+
+(p)(c) 1995 HYPERIUM Records
+
+### "Zal" 2002, Gothic
+
+1. I Held The Moon 
+2. Alone 
+3. I Wish You Could Smile 
+4. Think About Eternity 
+5. Maare 
+6. Chanson D'Automne 
+7. Winter 
+8. Ariels Song 
+9. Soft Snow 
+10. Nubibus Atris 
+11. Puisque Tout Passe
+
 
 ## Отношения с другими группами
 

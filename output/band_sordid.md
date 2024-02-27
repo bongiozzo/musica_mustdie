@@ -1,7 +1,13 @@
 # Sordid
 
-Дискография
-"Armed to their grinning teeth" 2004, Death Metal
+
+
+## Дискография
+
+### "Armed to their grinning teeth" 2004, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

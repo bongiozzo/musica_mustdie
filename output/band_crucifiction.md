@@ -1,7 +1,37 @@
 # Cruci-fiction
 
-Дискография
-"On The Verge Of Tears" 2005, Gothic
+
+
+## Дискография
+
+### "On The Verge Of Tears" 2005, Gothic
+
+ON THE VERGE OF TEARS
+
+TRUE OR FALSE
+
+GRACE ME
+
+PRAY BABY [ mp3 ]
+
+BLEEDING (Loose me)
+
+LET HIM CRY [ mp3 ]
+
+BUTTERFLY
+
+ANGEL
+
+SOMEBODY TO LOSE 
+
+BLACK SUICIDE 
+
+LUNATIC (MY B_ANGEL) 
+
+Bonus Track:
+
+PRAY BABY (ambient spring valley rmx by Timooon)
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,37 @@
 # Hostility
 
-Дискография
-"Brick" 1996, Thrash
+
+
+## Дискография
+
+### "Brick" 1996, Thrash
+
+1. Spine
+2. Face To Face
+3. Remember When
+4. Above
+5. Don't Fuck With Me
+6. Goodbye
+7. Chump
+8. More Air
+9. Self Relief
+10.One Wrong Word
+11.Black Diamond *
+
+All songs written by HOSTILITY.
+Except * written by KISS
+Produced by HOSTII.I'TY and Ed Rose
+Engineered and mixed by Ed Rose
+Recorded at Red House Studios,
+Lawrence, KS
+
+Duane Book - Drums
+Todd Herzig - Bass and Backing Vocals
+Jaime Mai - Guitar
+Dean Book - Guitar and Lead Vocals
+
+(p)c 1996 CENTURY MEDIA Records
+
 
 ## Отношения с другими группами
 

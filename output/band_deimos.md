@@ -1,7 +1,20 @@
 # Deimos
 
-Дискография
-"Never Be Awaken" 2004, Death Doom
+
+
+## Дискография
+
+### "Never Be Awaken" 2004, Death Doom
+
+1. Never Be Awaken 
+2. Guardian 
+3. Last Light Flashes 
+4. In Winter 
+5. Run Through 
+6. The Great Flower Of Northern Lands 
+7. The Top 
+8. Golden Horde
+
 
 ## Отношения с другими группами
 

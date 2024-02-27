@@ -1,13 +1,70 @@
 # Drudkh
 
-Дискография
-"Forgotten Legends" 2003, Black Metal
-"Autumn Aurora" 2004, Black Metal
-"The Swan Road" 2005, Black Metal
-"Кров у Наших Криницях" 2006, Black Metal
-"Пісні Скорбти і Самітности" 2006, Black Metal
-"Estrangement" 2007, Black Metal
-"Microcosmos" 2009, Black Metal
+depressive Black Metal
+
+## Дискография
+
+### "Forgotten Legends" 2003, Black Metal
+
+1. False Dawn 15:57  
+2. Forests In Fire And Cold 08:55  
+3. Eternal Turn Of The Wheel 11:44  
+4. Smell Of Rain 02:47
+
+### "Autumn Aurora" 2004, Black Metal
+
+1. Fading 01:30  
+2. Summoning The Rain 05:41  
+3. Glare Of Autumn 05:09  
+4. Sunwheel 08:47  
+5. Wind Of The Night Forests 09:58  
+6. The First Snow 09:10
+
+### "The Swan Road" 2005, Black Metal
+
+1. 1648   
+2. Eternal Sun 09:15  
+3. Blood 08:49  
+4. Glare Of 1768 05:51  
+5. The Price Of Freedom 08:02  
+6. Fate 06:33  
+7. Song Of Sich Destruction 04:19
+
+### "Кров у Наших Криницях" 2006, Black Metal
+
+1. Nav' 02:24  
+2. Furrows of Gods 08:57  
+3. When the Flame Turns to Ashes 10:37  
+4. Solitude 12:24  
+5. Eternity 10:37
+6. Ukrainian Insurgent Army 05:04 
+
+### "Пісні Скорбти і Самітности" 2006, Black Metal
+
+1. Sunset in Carpathians (Захід Сонця в Карпатах) 02:46  
+2. Tears of Gods (Сльози Богів) 08:34  
+3. Archaic Dance (Стародавній Танець) 03:26  
+4. The Milky Way (Чумацький Шлях) 09:52  
+5. Why the Sun Becomes Sad (Чому Буває Сумне Сонце) 05:46  
+6. The Cranes Will Never Return Here (Журавлі Ніколи Не Повернут& 03:25  
+7. Grey-Haired Steppe (Сивий Степ) 02:08 
+
+### "Estrangement" 2007, Black Metal
+
+1. Solitary Endless Path (Самітня Нескінченна Тропа) 10:54
+2. Skies at Our Feet (Небо у Наших Ніг) 10:42 
+3. Where Horizons End (Там, Де Закінчуються Обрії) 10:52
+4. Only the Wind Remembers My Name (Тільки Вітер Пам'ятає Моє Ім' 03:58 
+
+### "Microcosmos" 2009, Black Metal
+
+1. Минулі Дні (Days That Passed)   
+2. Далекий Крик Журавлів (Distant Cries of Cranes)   
+3. Декаданс (Decadence)   
+4. Ars Poetica   
+5. Все, Що Не Сказано Раніше (Everything Unsaid Before)   
+6. Вдовина Скорбота (Widow's Grief) 
+
 
 ## Отношения с другими группами
 

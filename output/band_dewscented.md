@@ -1,16 +1,192 @@
 # Dew-Scented
 
-Дискография
-"Symbolisation" 1994, Thrash
-"Immortelle" 1996, Thrash
-"Innoscent" 1997, Thrash
-"Ill-natured" 2001, Thrash
-"Inwards" 2002, Thrash
-"Impact" 2003, Thrash
-"Issue-VI" 2005, Thrash
-"Incinerate" 2007, Thrash
-"Invocation" 2010, Thrash
-"Icarus" 2012, Thrash
+
+
+## Дискография
+
+### "Symbolisation" 1994, Thrash
+
+1. Poets Of Dirt (2:55) 
+2. Black Is The Day (7:50) 
+3. Immortelle (2:50) 
+4. Unending (5:10) 
+5. Native Soil Venus (4:30) 
+6. Beloved Elysium (3:15) 
+
+
+### "Immortelle" 1996, Thrash
+
+1. In Flames (3:55) 
+2. Silenced (2:56) 
+3. Black Is The Day (7:03) 
+4. Thirst For Sun (4:28) 
+5. Unending (2:36) 
+6. Afterlife / Afterlove (5:09) 
+7. ...Yonder... (2:10) 
+8. Beloved Elysium (3:01) 
+9. For You And Forever (6:14) 
+10.Poets Of Dirt (2:47) 
+11.Native Soil Venus (4:12) 
+12.Theory Of Harmony (3:13) 
+
+
+Tarek Stinshoff - Vocals
+Ralf Klein - Guitars
+Leif Jensen - Vocals
+Jorg Szittnick - Guitars
+Patrick Heims - Bass
+
+(p)(c) 1996 STEAMHAMMER Records
+
+### "Innoscent" 1997, Thrash
+
+1. Shatteredinsanity 
+2. Bereaved 
+3. Burn With Me 
+4. Starspangled 
+5. The Sicker Things 
+6. Everred 
+7 The Grapes Of Wrath 
+8. Aentity 
+9. Underneath 
+10.Fatal If Swallowed 
+ 
+10 Song CD "INNOSCENT" 
+Recorded in July 1997 
+Mixed and mastered by Dan Swanц in Sweden 
+
+Cover and artwork 
+by JuhaVourma 
+
+Features classic 
+OVERKILL-song 
+"Fatal if swallowed" 
+
+
+
+
+
+
+### "Ill-natured" 2001, Thrash
+
+1. embraced by sin 
+2. this grace 
+3. simplicity in chaos 
+4. apocalypse inside 
+5. defiance 
+6. wounds of eternity 
+7. idolized 
+8. skybound 
+9. the endless 
+10. hear see say no.... 
+
+cover photography by "PETA-Deutschland"
+
+### "Inwards" 2002, Thrash
+
+01. Bitter Conflict 
+02. Unconditional 
+03. Life Ending Path 
+04. Inwards 
+05. Blueprints Of Hate 
+06. Locked In Motion 
+07. Degeneration 
+08. Terminal Mindstrip 
+09. Feeling Not 
+10. Reprisal
+
+
+### "Impact" 2003, Thrash
+
+1. Acts Of Rage (4:03)
+2. New Found Pain (3:05)
+3. Destination Hell (2:55)
+4. Soul Poison (4:02)
+5. Cities Of The Dead (4:48)
+6. Down My Neck (5:50)
+7. One By One (3:36)
+8. Agony Designed (3:49)
+9. Slaughtervain (4:27)
+10. Flesh Reborn (4:06)
+11. 18 Hours (3:25)
+
+
+### "Issue-VI" 2005, Thrash
+
+01. Processing Life
+02. Rituals of Time
+03. Turn to Ash
+04. Ruins of Hope
+05. Out of The Self
+06. The Prison of Reason
+07. Bled Dry
+08. In Defeat
+09. Never to Return
+10. Vortex
+11. Conceptual End
+12. Evil Dead (ZEKE cover)
+
+### "Incinerate" 2007, Thrash
+
+1. Exordium [Intro]
+2. Vanish Away 
+3. Final Warning 
+4. That’s Why I Despise You 
+5. The Fraud 
+6. Into The Arms Of Misery 
+7. Perdition For All 
+8. Now Or Never 
+9. Aftermath
+10. Everything Undone 
+11. Contraddictions 
+12. Retain The Scars 
+13. Exitus [Outro]
+
+### "Invocation" 2010, Thrash
+
+01 Downfall 01:47 
+02 Arise From Decay 04:38 
+03 The Invocation 03:38 
+04 Have No Mercy On Us 04:37 
+05 Artificial Life 03:46 
+06 Condemnation 03:06 
+07 Totem 01:07 
+08 Torn To Shreds 03:49 
+09 Revel In Contempt 04:02 
+10 A Critical Mass 04:43 
+11 Global Hysteria 04:29 
+12 Slaves Of Consent 06:19 
+13 On The Brink (Bonus Track) 03:32 
+14 Thrashard (Bonus Track) 03:19
+
+
+### "Icarus" 2012, Thrash
+
+01. Hubris (Intro)
+02. Sworn To Obey
+03. Thrown To The Lions
+04. Storm Within
+05. Gleaming Like Silver
+06. By My Own Hand
+07. The Fall Of Man
+08. Reawakening
+09. Destined To Collapse
+10. A Final Procession
+11. Perpetuated
+
+Additionally, the European version of “Icarus” will be released as Digipak in its limited first edition, including the following 3 bonus tracks:
+
+12. In Dying Mode (bonus track)
+13. Steady Decline (PRONG-cover/bonus track)
+14. No Spiritual Surrender (INSIDE OUT-cover/bonus track)
+
+
+Leif Jensen – Vocals
+Marvin Vriesde – Guitars
+Rory Hansen – Guitars
+Joost van der Graaf – Bass
+Koen Herfst – Drums
+
 
 ## Отношения с другими группами
 

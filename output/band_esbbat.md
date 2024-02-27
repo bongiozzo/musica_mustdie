@@ -1,9 +1,45 @@
 # Esbbat
 
-Дискография
-"Dentro del Esbbat" 2005, Black Metal
-"La Era De La Bestia" 2006, Black Metal
-"El Retorno del Imperio Satanico" 2009, Black Metal
+
+
+## Дискография
+
+### "Dentro del Esbbat" 2005, Black Metal
+
+1. Hail! Mundo Infernal
+2. Maligna Encarnation
+3. Al Acecho
+4. 666
+5. Hijo De Las Sombras
+6. Tormenta
+7. Dentro Del Esbbat
+8. Sacrificios
+9. Evocacion
+10. Matalo
+
+### "La Era De La Bestia" 2006, Black Metal
+
+1. Ave Satanas! Salve Satanas! Reggie Satanas! Hail Lucifer!
+2. La Montana De La Muerte
+3. Oscura Selva
+4. El Palacio De Lucifer
+5. Siniestra Rebelion	
+6. Hordas Negras
+7. Magick
+8. La Era De La Bestia
+
+### "El Retorno del Imperio Satanico" 2009, Black Metal
+
+1. El Amanecer De La Muerte
+2. Eterno Triunfo Del Mal
+3. El Llamado	
+4. Muerte Al Reino De Cristo
+5. Rey De Los Muertos
+6. Oda A Lucifer
+7. Hymn Of The Satanic Empire
+8. Desde El Umbral (Demo 2000)
+9. Abismo Bajo El Mundo (Demo 2002)
+
 
 ## Отношения с другими группами
 

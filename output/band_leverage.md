@@ -1,9 +1,48 @@
 # Leverage
 
-Дискография
-"Tides" 2006, Heavy Metal
-"Blind Fire" 2008, Heavy Metal
-"Circus Colossus" 2009, Heavy Metal
+
+
+## Дискография
+
+### "Tides" 2006, Heavy Metal
+
+1. Fifteen Years 05:31
+2. Superstition 03:49
+3. Horizon 04:24
+4. Dreamworld 05:38
+5. Follow Down That River 04:15
+6. Stranger 05:39
+7. Sails 03:52 
+8. Marching to War 05:06
+9. Twilight Symphony 04:25
+10. Gone 04:50 
+
+### "Blind Fire" 2008, Heavy Metal
+
+1. Shadow In The Rain 05:52
+2. King Of The Night 04:37 
+3. Stormchild 04:59
+4. Sentenced 04:59 
+5. Hellhorn 06:11
+6. Mr. Universe 05:43 
+7. Don't Touch The Sun 05:38 
+8. Run Down 04:57
+9. Heart Of Darkness 05:05
+10. Learn To Live 04:54 
+
+### "Circus Colossus" 2009, Heavy Metal
+
+1. Rise 01:54  
+2. Wolf and the Moon 05:01
+3. Movie Gods 06:09
+4. Worldbeater 04:53
+5. Rider of Storm 05:47 
+6. Legions of Invisible 03:58 
+7. Revelation 05:01
+8. Don''t Keep Me Waiting 02:31
+9. Prisoners 05:52 
+10. Broken Wings 06:51 
+
 
 ## Отношения с другими группами
 

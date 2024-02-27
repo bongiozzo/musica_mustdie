@@ -1,7 +1,22 @@
 # Betray My Secrets
 
-Дискография
-"Betray My Secrets" 1999, Death Doom
+
+
+## Дискография
+
+### "Betray My Secrets" 1999, Death Doom
+
+1. Shahmanic Dream
+2. Ever Expanding Eternity
+3. God And Me
+4. Oh Great Spirit
+5. Of Things Not Seen
+6. Desert Dance
+7. Forgive Them
+8. Little Wanderer
+9. From The Goddess
+10. Save My Belief
+
 
 ## Отношения с другими группами
 

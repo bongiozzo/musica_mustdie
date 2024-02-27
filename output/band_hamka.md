@@ -1,7 +1,33 @@
 # Hamka
 
-Дискография
-"Unearth" 2006, Power Metal
+
+
+## Дискография
+
+### "Unearth" 2006, Power Metal
+
+1. Buried roots   
+2. Ignition   
+3. Ghosts of desert   
+4. Sand glass   
+5. Eyes of twilight part 1   
+6. Eyes of twilight part 2   
+7. Rising atlantis   
+8. Eden garden   
+9. Seven sea's sky   
+10. Legend's empire part 1   
+11. Legend's empire part 2   
+12. An end on earth   
+13. Asian Legends
+
+
+
+Elisa C.Martin - Vocals
+Willdric Lievin - guitars
+Yann Mouhad - guitars
+Damien Rainaud - Drums
+Hugues Lefebvre - Bass
+
 
 ## Отношения с другими группами
 

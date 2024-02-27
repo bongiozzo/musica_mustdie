@@ -1,7 +1,21 @@
 # Gloomy Sunday
 
-Дискография
-"Beyond Good And Evil" 2007, Doom
+
+
+## Дискография
+
+### "Beyond Good And Evil" 2007, Doom
+
+1. Living Dead At The Tradecentre Morgue
+2. Dead Of Season
+3. Xanor
+4. Beyond The Light
+5. Fluoxetin Selena
+6. Burn Out The Sun
+7. End Trip
+8. Sunrise Casualty
+9. Dead Love Autumn
+
 
 ## Отношения с другими группами
 

@@ -1,12 +1,147 @@
 # All That Remains
 
-Дискография
-"Behind Silence and Solitude" 2002, Metalcore
-"This Darkened Heart" 2004, Metalcore
-"The Fall of Ideals" 2006, Metalcore
-"Live " 2007, Metalcore
-"Overcome" 2008, Metalcore
-"...For We Are Many " 2010, Metalcore
+
+
+## Дискография
+
+### "Behind Silence and Solitude" 2002, Metalcore
+
+1. Behind Silence and Solitude 04:19  
+2. From These Wounds... 04:36 
+3. Follow 04:03  
+4. Clarity 05:37  
+5. Erase 06:15  
+6. Shading 03:51 
+7. Home to Me 06:47 
+8. One Belief 04:30 
+
+
+### "This Darkened Heart" 2004, Metalcore
+
+1. And Death in My Arms 04:45  
+2. The Deepest Gray 03:09  
+3. Vicious Betrayal 04:19  
+4. I Die in Degrees 03:30 
+5. Focus Shall Not Fail 06:18  
+6. Regret Not 04:26  
+7. Passion 03:42 
+8. For Salvation 03:51
+9. Tattered on My Sleeve 04:22 
+10. This Darkened Heart 03:14 
+
+
+Produced by Adam Dutkiewicz of Killswitch Engage. 
+
+### "The Fall of Ideals" 2006, Metalcore
+
+1. This Calling 03:38 
+2. Not Alone 03:30 
+3. It Dwells in Me 03:14  
+4. We Stand 03:47 
+5. Whispers (I Hear You) 03:39  
+6. The Weak Willed 04:05  
+7. Six 03:22 
+8. Become the Catalyst 03:06  
+9. The Air That I Breathe 03:34 
+10. Empty Inside 03:22 ] 
+11. Indictment 03:42 
+
+
+Line-up:
+
+Philip Labonte - Vocals
+Mike Martin - Guitar
+Oli Herbert - Guitar
+Jeanne Sagan - Bass, Piano
+Shannon Lucas - Drums
+
+Recorded at Zing Recording Studios in Westfield, Massachusetts with Adam
+Dutkiewicz (Killswitch Engage) and Peter Wichers (Soilwork).
+
+Artwork by Travis Smith (Opeth, Iced Earth).
+
+Note: The band also recorded a 12th track during these sessions; a re-recorded
+version of the song ''Follow'' from their debut album. 
+
+Bonus track for Japan:
+12. This Calling (Demo) (03:34)
+
+"Six" was featured as a playable song in the video game Guitar Hero 3. 
+"This Calling" was featured in the soundtrack for the movie "Saw 3". 
+
+### "Live " 2007, Metalcore
+
+1. Become the Catalyst 03:13 
+2. This Darkened Heart 03:13  
+3. Six 03:20 
+4. Not Alone 03:24 
+5. In Dwells in Me 02:51  
+6. Tattered on My Sleeve 03:39 
+7. The Air That I Breathe 03:50  
+8. For Salvation 03:45
+9. The Weak Willed 03:24 
+10. We Stand 03:26  
+11. This Calling 04:41 
+12. Indictment 04:19 
+
+
+
+Digital live album released through iTunes.
+
+Audio-only version of the same concert in the DVD of the same name. 
+
+### "Overcome" 2008, Metalcore
+
+1. Before the Damned 02:50 
+2. Two Weeks 04:17  
+3. Undone 03:12 
+4. Forever in Your Hands 03:36
+5. Chiron 04:24 
+6. Days Without 03:11
+7. Song for the Hopeless 04:15  
+8. Do Not Obey 03:12  
+9. Relinquish 02:51
+10. Overcome 02:38  
+11. Believe in Nothing (Nevermore cover) 04:23 
+
+
+Line-up:
+
+Philip Labonte – vocals 
+Mike Martin – rhythm guitar 
+Oli Herbert – lead guitar 
+Jeanne Sagan – bass 
+Jason Costa – drums 
+
+Japanese bonus tracks:
+12. Frozen (03:32)
+13. Two Weeks (radio edit) (03:52) 
+
+### "...For We Are Many " 2010, Metalcore
+
+1. Now Let Them Tremble 01:23 
+2. For We Are Many 02:59 
+3. The Last Time 03:58  
+4. Some Of The People, All Of The Time 03:22  
+5. Won't Go Quietly 04:00  
+6. Aggressive Opposition 03:45  
+7. From The Outside 03:34  
+8. Dead Wrong 03:07  
+9. Faithless 03:34  
+10. Hold On 02:57 
+11. Keepers of Fellow Man 03:10  
+12. The Waiting One 04:48 
+
+
+Recorded during spring 2010 at Zing Studios in Massachusetts and produced by
+Adam Dutkiewicz (Killswitch Engage), who previously worked with "The Fall of
+Ideals" (2006) and "This Darkened Heart" (2004) releases.
+
+Artwork by Travis Smith (Opeth, Iced Earth).
+
+iTunes pre-order bonus track:
+13. Of The Deep (02:59) 
+
 
 ## Отношения с другими группами
 

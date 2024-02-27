@@ -1,7 +1,26 @@
 # Ashes Of Ares
 
-Дискография
-"Ashes Of Ares" 2013, Progressive
+
+
+## Дискография
+
+### "Ashes Of Ares" 2013, Progressive
+
+01. The Messenger
+02. Move The Chains
+03. On Warrior's Wings
+04. Punishment
+05. This Is My Hell
+06. Dead Man's Plight
+07. Chalice Of Man
+08. The Answer
+09. What I Am
+10. The One-Eyed King
+
+Matt Barlow (ex ICED EARTH) - vocals
+Freddie Vidales (ex ICED EARTH) - guitar & bass
+Van Williams (ex NEVERMORE) - drums
+
 
 ## Отношения с другими группами
 

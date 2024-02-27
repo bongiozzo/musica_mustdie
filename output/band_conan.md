@@ -1,11 +1,34 @@
 # Conan
 
-Дискография
-"Horseback Battle Hammer (EP)" 2010, Metal
-"Monnos" 2012, Metal
-"Mount Wrath: Live at Roadburn 2012" 2013, Metal
-"Blood Eagle" 2014, Metal
-"Revengeance" 2016, Metal
+
+
+## Дискография
+
+### "Horseback Battle Hammer (EP)" 2010, Metal
+
+
+
+### "Monnos" 2012, Metal
+
+1. Hawk As Weapon 06:20
+2. Battle In The Swamp 04:44
+3. Grim Tormentor 05:54
+4. Golden Axe 05:39
+5. Headless Hunter 07:48	
+6. Invincible Throne 08:56 
+
+### "Mount Wrath: Live at Roadburn 2012" 2013, Metal
+
+
+
+### "Blood Eagle" 2014, Metal
+
+
+
+### "Revengeance" 2016, Metal
+
+
+
 
 ## Отношения с другими группами
 

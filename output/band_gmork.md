@@ -1,7 +1,21 @@
 # Gmork
 
-Дискография
-"Tales of the Midnight Forest" 2011, Black Metal
+
+
+## Дискография
+
+### "Tales of the Midnight Forest" 2011, Black Metal
+
+1. Intro: Cult of Dark Water	 
+2. My Filthy Star
+3. On the Black Wings
+4. Damned
+5. Beyond the Midnight Forest
+6. Empty Scream
+7. Residence of Ancient Powers
+8. Svarte Vann
+9. Outro: Nonhuman Visions From Alien Forest
+
 
 ## Отношения с другими группами
 

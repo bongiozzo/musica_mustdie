@@ -1,8 +1,58 @@
 # Conception
 
-Дискография
-"The Last Sunset" 1993, Progressive
-"Flow" 1997, Progressive
+
+
+## Дискография
+
+### "The Last Sunset" 1993, Progressive
+
+1. Prevision 1:13
+2. Building A Force 4:33
+3. War Of Hate 5:57
+4. Bowed Down With Sorrow 6:29
+5. Fairy's Dance 5:03
+6. Another World 6:25
+7. Elegy 1:55
+8. The Last Sunset 4:38
+9. Live To Survive 5:46
+10. Amoung The Gods 10:39
+
+
+ARVE HEIMDAL - Drums
+INGAR AMLIEN - Bass
+ROY SAETRE KHANTATAT - Vocals
+TORE OUSTBY - Guitar
+
+All Music composed by Tore Ostby except:
+The last sunset, composed by Tore Ostby and Roy S. Khantatat.
+Add. musician:
+Keboards, Hans Cristian Gjestvang and Staffan William-Olsson;
+Harmony vocals Christine Meyer, Werner Skogli, Freddy Sansonstuen, Geir Wentzel, Tom A.Hansen
+
+
+### "Flow" 1997, Progressive
+
+1. Gethsemane 5.00
+2. Angel 4.25
+3. A Virtual Lovestory 3.45
+4. Flow 3.44
+5. Cry 5.02
+6. Reach Out 3.33
+7. Tell Me When I'm Gone 4.20
+8. Hold On 4.09
+9. Cardinal Sin 4.01
+10. Would It Be The Same 5.48
+
+ARVE HEIMDAL - Drums
+INGAR AMLIEN - Bass
+ROY SAETRE KHANTATAT - Vocals
+TORE OUSTBY - Guitar
+
+Produced and engineered by Tommy Newton
+Recorded, mixed and mastered at Stairway to Heaven studio
+Addictional musichan: Trond Nagell-dahl - Keyboards
+
+
 
 ## Отношения с другими группами
 

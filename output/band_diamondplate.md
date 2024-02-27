@@ -1,8 +1,17 @@
 # Diamond Plate
 
-Дискография
-"Relativity (EP)" 2009, Thrash
-"Generation Why?" 2011, Thrash
+
+
+## Дискография
+
+### "Relativity (EP)" 2009, Thrash
+
+
+
+### "Generation Why?" 2011, Thrash
+
+
+
 
 ## Отношения с другими группами
 

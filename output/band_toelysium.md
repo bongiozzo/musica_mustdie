@@ -1,8 +1,17 @@
 # To Elysium
 
-Дискография
-"Dearest Vile" 2002, Gothic
-"Nightmare's Nest" 2004, Gothic
+Gothic-doom from Holland
+
+## Дискография
+
+### "Dearest Vile" 2002, Gothic
+
+
+
+### "Nightmare's Nest" 2004, Gothic
+
+
+
 
 ## Отношения с другими группами
 

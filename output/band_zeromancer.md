@@ -1,9 +1,51 @@
 # Zeromancer
 
-Дискография
-"Clone Your Lover" 2000, Gothic
-"Eurotrash" 2002, Gothic
-"ZZYXZ" 2004, Gothic
+
+
+## Дискография
+
+### "Clone Your Lover" 2000, Gothic
+
+1. Clone Your Lover
+2. Flirt (With Me)
+3. Something For The Pain
+4. Split Seconds
+5. Fade To Black
+6. God Bless The Models
+7. Opelwerk
+8. Flagellation
+9. Die Of A Broken Heart
+10. Houses Of Cards
+
+### "Eurotrash" 2002, Gothic
+
+1. Doctor Online
+2. Eurotrash
+3. Need You Like A Drug
+4. Chrome Bitch
+5. Wannabe
+6. Neo Geisha
+7. Cupola
+8. Send Me An Angel
+9. Plasmatic
+10. Raising Hell
+11. Philharmonic
+12. Germany
+13. Fractured
+
+### "ZZYXZ" 2004, Gothic
+
+1. Teenage Recoil
+2. Hollywood
+3. Famous Last Words
+4. Erotic Saints
+5. Idiot Music
+6. Stop The Noise
+7. Feed You With A Kiss
+8. Lamp Halo
+9. Mosquito Coil
+10. Blood Music
+
 
 ## Отношения с другими группами
 

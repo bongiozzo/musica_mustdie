@@ -1,8 +1,38 @@
 # Antraks
 
-Дискография
-"Nastiest Rotten View" 2005, Death Metal
-"Spewing Wrath Blood" 2010, Death Metal
+
+
+## Дискография
+
+### "Nastiest Rotten View" 2005, Death Metal
+
+1. No Endless	 
+2. Tragedi 261294	 
+3. Human Malefactor (Part 2)	 
+4. The Worst Enemy	 
+5. Master of Decay	 
+6. Never Ending Hatred	 
+7. Forgotten Fears	 
+8. Sharap Otak	 
+9. Terjebak Dimensi Haram	 
+10. Human Malefactor (Part 1)	 
+11. Boaster Monkey	 
+12. Ultimatum	 
+13. Kaleidoskop Kebusukan
+
+### "Spewing Wrath Blood" 2010, Death Metal
+
+1. Unrelenting Carnivore Feast	 
+2. Purulence Flesh Murderer	 
+3. Just Frosted Twisted Existence	 
+4. Consume of Sorrow Defiled	 
+5. Blistering Subconscious Mind	 
+6. Cruelty Whisper Disgorged 
+7. Through a Venomous Carnage	 
+8. Spawned Inhuman Realms	 
+9. Resurgence Beneath the Sundown	 
+10. Bloodbath in Solitude
+
 
 ## Отношения с другими группами
 

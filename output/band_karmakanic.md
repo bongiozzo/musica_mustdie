@@ -1,9 +1,61 @@
 # Karmakanic
 
-Дискография
-"Entering The Spectra" 2002, Progressive
-"Wheel Of Life" 2004, Progressive
-"Who's The Boss In The Factory?" 2008, Progressive
+The Flower Kings family
+
+## Дискография
+
+### "Entering The Spectra" 2002, Progressive
+
+01) The Little Man (01:29)
+02) Entering The Spectra (12:20)
+- Yellow
+- Blue (The Innocent)
+- Red
+- Purple
+- Indigo
+- Green
+- White
+03) The Spirit Remains The Same (05:59)
+04) Cyberdust From Mars (03:33)
+05) Space Race No. 3 (04:35)
+06) The Man In The Moon Cries (03:12)
+07) One Whole Half (05:15)
+08) Is This The End? (07:02)
+- Part 1 (The End)
+- Part 2 (The Light)
+- Part 3 (The Question)
+09) Cello Suite No. 1 In G Major (01:00)
+10) Welcome To Paradise (09:19)
+
+Goeran Edman - vocals, Roine Stolt - acoustic and electric guitars, vocals, Johan Gloessner - acoustic and electric guitars, Tomas Bodin - keyboards, Robert Engstrand - keyboards, Jonas Reingold - keyboards, fretted and fretless bass, background vocals, Zoltan Csoersz - drums, percussion, Jamie Salazar - drums, percussion
+
+Produced by Jonas Reingold
+Recorded at Reingold Recording Studio, additional recordings at Cosmic Lodge, Pama Studios, Roastinghouse Recording Studio, Tomas Bodin Studios
+
+(p)(c) 2002 Regain Records
+
+### "Wheel Of Life" 2004, Progressive
+
+01) Masterplan, Pt. 1 (14:39)
+02) Alex In Paradise (05:07)
+03) At The Speed Of Light (06:28)
+04) Do U Tango? (07:44)
+05) Where Earth Meets The Sky (12:59)
+06) Hindby (04:59)
+07) Wheel Of Life (08:28)
+08) Masterplan, Pt. 2 (05:10)
+
+Goeran Edman - vocals, Krister Jonson - acoustic and electric guitars, Jonas Reingold - fretted and fretless bass, keyboards, Zoltan Csoersz - drums
+
+Alex Reingold - speech (track 02), Inger Ohlen - vocals (track 05), Roine Stolt - guitar (tracks 07, 08), Ola Heden - piano (track 07), Jakob Karlzon - piano (tracks 05, 07), keyboards (tracks 05, 07), Tomas Bodin - Hammond organ (tracks  Richard Anderson - keyboards (tracks 01, 08), Helge Albin - flute (tracks 07), Sal Dibba - congas (tracks 03, 05), yembe (tracks 03, 05), Hans Bruniusson - percussion (tracks 01, 08), Helen Melin - percussion (tracks 02, 04, 05, 07)
+
+Produced by Jonas Reingold
+Recorded May-December 2003 at Reingold Recording Studio, additional recordings at Chez Nanna, Cosmic Lodge, Tomas Bodin Studios
+
+### "Who's The Boss In The Factory?" 2008, Progressive
+
+
+
 
 ## Отношения с другими группами
 

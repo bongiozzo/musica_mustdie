@@ -1,8 +1,40 @@
 # Foo Fighters
 
-Дискография
-"Foo Fighters" 1995, Grunge
-"Big Me" 1996, Grunge
+Ex-Nirvana Member
+
+## Дискография
+
+### "Foo Fighters" 1995, Grunge
+
+1. This Is A Call
+2. I'll Stick Around
+3. Big Me
+4. Alone + Easy Target
+5. Floaty
+6. For All The Cows
+7. Good Grief
+8. Weenie Beenie
+9. Oh George
+10.X-Static
+11.Wattershed
+12.Exhausted
+
+(P)&(C) 1995
+
+### "Big Me" 1996, Grunge
+
+1.  Big Me
+2.  Floaty (BBC Evening Session Recording)
+3.  Gas Chamber (BBC Evening Session Recording)
+4.  Alone And Easy Target (BBC Evening Session Recording)
+
+All Songs Written By FOO FIGHTERS.
+Produced By Barett Jones and FOO FIGHTERS.
+Engineered By Nick Fountain.
+Recorded At Robert Lang's Studio, Seattle.
+
+(P)c 1996 ROSWELL Records
+
 
 ## Отношения с другими группами
 

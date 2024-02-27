@@ -1,9 +1,57 @@
 # Hatework
 
-Дискография
-"Madbent for Disaster " 2002, Thrash
-"Thrash 'n' Roll" 2004, Thrash
-"The Actual Worst Has Come [compilation]" 2007, Thrash
+
+
+## Дискография
+
+### "Madbent for Disaster " 2002, Thrash
+
+1. Madbent for Disaster 03:33  
+2. Tomahawk 03:12  
+3. Hellsquad From the Airways 04:27  
+4. Total War 03:01  
+5. Pleasure of the Blood 03:41  
+6. Deeds of Hate 03:20  
+7. (We Are) Alcoholic Abusers 03:02  
+8. Thrashers' Attack 03:58  
+9. Dawn of the Dead 05:11  
+10. All Hell Breaks Loose (Misfits cover) 02:37 
+
+
+### "Thrash 'n' Roll" 2004, Thrash
+
+1. I.D.T. 02:45
+2. Thrash 'N' Roll 02:47
+3. XXX 02:50
+4. Heaven's on Fire 03:27
+5. Devil Eye 04:28  
+6. I Don't Care 02:23  
+7. War Again 03:26  
+8. Gateway to Hell 04:25  
+9. Radio Madness 04:36  
+10. Get Off 03:35  
+11. Blast from Below 03:17  
+12. Rip The Hush 04:02 
+
+### "The Actual Worst Has Come [compilation]" 2007, Thrash
+
+Disc 1 
+1. Ring Of Fire (Johnny Cash cover) 02:34  
+2. My Way 02:26  
+3. Chevrolet 02:40  
+4. No Authority 03:04  
+5. Tequila B.A. 03:20  
+6. It s War 01:53  
+7. Thrash n Roll 02:47  
+8. I.D.T. 02:44  
+9. I Don t Care 02:22  
+10. Bastard 03:05  
+11. Madbent For Disaster 03:31  
+12. Total War 03:00  
+13. Thrasher's Attack 03:53  
+14. Dirty Noise (live) 02:04  
+15. Tomahawk (live) 03:15 
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,36 @@
 # Stiltskin
 
-Дискография
-"The Mind's Eye" 1994, Grunge
+High-Class British Grundge
+
+## Дискография
+
+### "The Mind's Eye" 1994, Grunge
+
+1.  Intro
+2.  Scared Of Ghosts
+3.  Horse
+4.  Rest In Peace
+5.  Footsteps
+6.  Sunshine And Butterflies
+7.  Inside
+8.  An Illusion
+9.  When My Ship Comes In
+10.Prayer Before Birth
+
+Words & Music By Peter Lawlor.
+Produced & Engineered By Peter Lawlor.
+Assisted  By James Finnigan.
+Recorded & Mixed At Water Music Studios,London.
+
+Ray Wilson - Vocals
+Peter Lawlor - Acoustic & Electric Guitars,
+Mandoline & Back Vocals
+James Finnigan - Bass Guitar,Wurlitzer Piano & 
+Hammond Organ
+Ross McFarlane - Drums & Percussion
+
+(P)(C) 1995 L XAP Ltd / WHITE WATER Records
+
 
 ## Отношения с другими группами
 

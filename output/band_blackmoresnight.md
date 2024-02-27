@@ -1,18 +1,143 @@
 # Blackmore's Night
 
-Дискография
-"Shadow Of The Moon" 1998, Instrumental
-"Under A Violet Moon" 1999, Instrumental
-"Fires at Midnight" 2001, Instrumental
-"Minstrels And Ballads" 2001, Instrumental
-"Past times with good company" 2002, Instrumental
-"All Because Of You - The Romantic Collection" 2004, Instrumental
-"Beyond The Sunset - The Romantic Collection" 2004, Instrumental
-"Beyond The Sunset - The Romantic Collection (DVD + bonus CD)" 2004, Instrumental
-"Castles and dreams (2DVD)" 2005, Instrumental
-"The Village Lanterne" 2006, Folk
-"Winter Carols" 2006, Folk
-"Paris Moon (DVD+CD)" 2007, Folk
+(Ritchie Blackmore's Renaissance Project)
+
+## Дискография
+
+### "Shadow Of The Moon" 1998, Instrumental
+
+1. Shadow Of The Moon   
+2. The Clock Ticks On  
+3. Be Mine Tonight 
+4. Play Minstrel Play 
+5. Ocean Gypsy  
+6. Minstree Hall  
+7. Magical World  
+8. Writing On The Wall  
+9. Renaisance Faire 
+10. Memmingen  
+11. No Second Chance 
+12. Mond Canz  
+13. Spirit Of The Sea  
+14. Greensleeves  
+15. Wish You Were Here  
+16. Minstree Hall Bonus Track 
+  
+
+NOTES     
+   
+
+
+Japanese Release, New Acoustic Solo Project Featuring Vocals By Ritchie Blacmore's Fiancee Candice Knight. Initial Release Will Feature Limited Edition Packaging That Features A Booklet Containg Rare Pictures.
+
+
+
+### "Under A Violet Moon" 1999, Instrumental
+
+1. Under a Violet Moon (Blackmore/Night) - 4:23 
+2. Castles and Dreams (Blackmore/Night) - 3:33 
+3. Past Time With Good Company (Traditional) - 3:24 
+4. Morning Star (Blackmore) - 4:41 
+5. Avalon (Traditional) - 3:02 
+6. Possum Goes to Prague (Blackmore) - 1:13 
+7. Wind in the Willows (Piell) - 4:11 
+8. Gone With the Wind (Traditional) - 5:24 
+9. Beyond the Sunset (Blackmore) - 3:44 
+10.March the Heroes Home (Blackmore/Night) - 4:39 
+11.Spanish Nights (I Remember It Well)(Traditional)- 5:22 
+12.Catherine Howard's Fate (Blackmore/Night) - 2:34 
+13.Fool's Gold (Blackmore/Night) - 3:31 
+14.Durch Den Wald Zum Bach Haus (Blackmore) - 2:31 
+15.Now and Then (Night) - 3:11 
+16.Self Portrait (Blackmore/Dio) - 3:18 
+
+
+Ritchie Blackmore  -  Arranger, Producer 
+John Ford  -  Bass, Vocals, Vocals (bckgr) 
+Jeff Glixman  -  Keyboards, Producer, Engineer 
+Joe James  -  String Arrangements, Pre-Production 
+Jens Johansson  -  Keyboards 
+George Marino  -  Mastering 
+Roy McDonald  -  Keyboards, Producer 
+Mark Pender  -  Trumpet 
+Kevin Dunne  -  Drums 
+Jodie Zalewski  -  Assistant Engineer 
+Thomas Roth  -  Bagpipes, Vocals 
+John Gould  -  Vocals (bckgr) 
+Scott Hazel  -  Vocals (bckgr) 
+Candice Night  -  Vocals, Penny Whistle 
+Mick Cervino  -  Bass 
+Jason Chapman  -  Trumpet, Flugelhorn
+
+### "Fires at Midnight" 2001, Instrumental
+
+- Written In The Stars 
+- The Times They Are A Changin' 
+- I Still Remember 
+- Home Again 
+- Crowning Of The King 
+- Fayre Thee Well (instr) 
+- Fires At Midnight 
+- Hanging Tree 
+- The Storm 
+- Mid-Winter's Night 
+- All Because Of You 
+- Waiting Just For You 
+- Praetorious (instr) 
+- Benzai-ten 
+- Sake Of Song 
+- Village On The Sand 
+- Again Someday 
+
+### "Minstrels And Ballads" 2001, Instrumental
+
+01. The Times They Are A Changin' 
+02. Spirit Of The Sea 
+03. Fool's Gold 
+04. Again Someday 
+05. Fayre Thee Well 
+06. Greensleeves 
+07. Wish You Were Here 
+08. Mid-Winter's Night 
+09. Catherine Howard's Fate 
+10. Durch Den Wald Zum Bach Haus 
+11. Be Mine Tonight 
+12. Ocean Gypsy 
+13. Benzai-Ten 
+14. Now And Then 
+
+### "Past times with good company" 2002, Instrumental
+
+
+
+### "All Because Of You - The Romantic Collection" 2004, Instrumental
+
+
+
+### "Beyond The Sunset - The Romantic Collection" 2004, Instrumental
+
+
+
+### "Beyond The Sunset - The Romantic Collection (DVD + bonus CD)" 2004, Instrumental
+
+
+
+### "Castles and dreams (2DVD)" 2005, Instrumental
+
+
+
+### "The Village Lanterne" 2006, Folk
+
+
+
+### "Winter Carols" 2006, Folk
+
+
+
+### "Paris Moon (DVD+CD)" 2007, Folk
+
+
+
 
 ## Отношения с другими группами
 

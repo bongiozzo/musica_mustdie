@@ -1,7 +1,33 @@
 # Convulse
 
-Дискография
-"Reflections" 1994, Death Metal
+Sweden High Class Band, Techno Death Metal
+
+## Дискография
+
+### "Reflections" 1994, Death Metal
+
+1. Intro
+2. The Rite Of Sunshine
+3. The Green Is Grey
+4. Years Of Decay
+5. Memories
+6. The Nation Cries
+7. Crying Back Yesterday
+8. Lost Equillibrium
+9. The New Arrival
+
+ Rami Jamsa - Vocals & Lead Guitars
+ Toni Hankala - Guitars & Keyboards
+ Juha Telenius - Bass
+ Janne Miikkulainen - Drums
+
+All Songs By CONVULSE
+Produced By Lars Linden & CONVULSE
+Engineered & Mixed By Lars Linden &Thomas Skogsberg 
+Recorded At Sunlight Studios
+
+(p)&(c) 1994 RELAPSE Records
+
 
 ## Отношения с другими группами
 

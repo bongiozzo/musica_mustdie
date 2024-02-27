@@ -1,9 +1,76 @@
 # Malevolence
 
-Дискография
-"Pleasure of Molestation (demo)" 1994, Death Metal
-"Dominium" 1996, Death Metal
-"Martyrialized" 1999, Death Metal
+(Aggressive Death/Black Metal From Portugal)
+
+## Дискография
+
+### "Pleasure of Molestation (demo)" 1994, Death Metal
+
+
+
+### "Dominium" 1996, Death Metal
+
+1.  Desespero
+2.  Dominion Of Hate
+3.  The Burning Picture
+4.  Under Inhuman Touch
+5.  Enchanted Mask
+6.  Swallowed In Black
+7.  My Eyes (throne Of Tears)
+8.  Sweet Bloody Vision
+9.  Erotica
+10.Ceremonial Gallery
+
+Produced by Armando Gloria
+Co-Produced by MALEVOLENCE
+Recorded and Mixed at Digo Dai Studios by Armanda Gloria
+Cover artwork by Cobre de Abel Salazar
+
+Carlos Cariano - Screams & Rhythm Guitar
+Luis Lacerda - Melody-Guitar
+Rui Capitao - Fog Bass
+Nelson - Drums
+
+### "Martyrialized" 1999, Death Metal
+
+I. The brotherhood of Christ 3:19
+II.Diabolical Eve (Chronicles of mother lusitania) 2:52
+III.Hunters of the red moon 3:31
+IV.Les salles obscures de rose noire XVIII 3:36
+V.Thy extremist operetta 4:12
+VI.Insubordination 2:38
+VII.A shinning onslaught of tyranny 4:03
+VIII.Oceans of fire 3:22
+IX.Martyrialized 3:03
+
+
+-Recorded at Fredman Studios in Gothenburg, Sweden.
+
+-Mixed by Fredrik Nordstrom known for his work with the likes of At The
+Gates, Dimmu Borgir, Arch Enemy, In Flames, Dark Tranquillity, Opeth„Ј
+
+-Recording sessions engaged by Anders Frid„In (Vocals on In Flames)
+
+-Mastered at The Mastering Room AB in Gothenburg, Sweden by Goran Finnberg
+(Arch Enemy, In Flames, Opeth...)
+
+-Opulent artwork and design featuring the virtual insane imagery of Cesar,
+33B.
+
+-Second chapter of an adorned onslaught seeped with diabolical passages &
+Machiavellian literature for all those who dare to break the rules of
+morality.
+
+Line-up on this album:
+
+Karlos Kariano Ѓг Dehumanisation & feed back attack
+Fred Ѓг The 20th auditorium melodrama
+Aires Pereira Ѓг Audio stormtrooper bastardisation
+Gustavo Costa Ѓг The synthetic nucleonic command
+Paulo Pereira Ѓг Skinless virtual phenomenon 
+
+
+
 
 ## Отношения с другими группами
 

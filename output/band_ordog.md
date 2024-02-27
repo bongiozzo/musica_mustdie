@@ -1,9 +1,36 @@
 # Ordog
 
-Дискография
-"Crow and the Storm" 2006, Doom
-"Life is too Short for Learning to Live" 2008, Doom
-"Remorse" 2011, Doom
+
+
+## Дискография
+
+### "Crow and the Storm" 2006, Doom
+
+1. In Utter Darkness	 
+2. The Crow and the Storm	 
+3. Scavengers	 
+4. Ordog
+
+### "Life is too Short for Learning to Live" 2008, Doom
+
+1. Death's Cold Embrace	 
+2. Live Fast, Die Slow
+3. Drown in Yourself	 
+4. Chapelle Ardente
+5. Learning to Live 
+6. Pokol
+7. Innocence
+
+### "Remorse" 2011, Doom
+
+1. Human Shell
+2. Betrayed
+3. Shadowland
+4. Abuse
+5. Remorse
+6. Boneyard Horizon
+7. Meant To Be An End
+
 
 ## Отношения с другими группами
 

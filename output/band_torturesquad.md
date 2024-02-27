@@ -1,7 +1,13 @@
 # Torture Squad
 
-Дискография
-"Hellbound" 2008, Thrash
+
+
+## Дискография
+
+### "Hellbound" 2008, Thrash
+
+
+
 
 ## Отношения с другими группами
 

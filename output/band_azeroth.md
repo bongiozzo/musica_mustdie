@@ -1,9 +1,59 @@
 # Azeroth
 
-Дискография
-"Chasma Pelorion" 1997, Death Metal
-"Doctrine of Dark Forest" 1998, Death Metal
-"Gallery of Dreams" 1999, Death Metal
+(russian death metal)
+
+## Дискография
+
+### "Chasma Pelorion" 1997, Death Metal
+
+1. Orphytos
+2. Majestic Indignate
+3. Kalb Al Acrab
+4. Battle of Gods
+5. Ruin of Gods
+6. Chasma Pelorion
+
+Ivan Zhernosekov - bass, keyboards, vocals
+Denis Devichensky - guitars, drum programming
+
+Recorded and mixed in 1997 at E.S.L.Y. studio
+
+
+### "Doctrine of Dark Forest" 1998, Death Metal
+
+1. Dark Ocean of Star Fields 
+2. Museum of Greatness
+3. Great Warriors of Shadows
+4. В кругу дремучих болот (In the Circle of Swamps)
+5. В кругу дремучих болот (часть II) (In the Circle of Swamps (part II))
+6. Doctrine of Dark Forest
+
+Ivan Zhernosekov - bass, keyboards, vocals
+Denis Devichensky - guitars, drum programming
+
+Recorded and mixed in 1997/98 at E.S.L.Y. / ZAPARRAH studios
+
+
+### "Gallery of Dreams" 1999, Death Metal
+
+1. Ветер (Wind)
+2. Мемориал (Memorial)
+3. Шторм (Storm)
+4. Храм теней (Temple of Shadows)
+5. Проказа (Leprosy)
+6. Реквием (Requiem)
+
+Denis Devichensky - guitars, vocals, bass, keyboards, drum programming
+Ivan Zhernosekov - keyboards, bass arrangements 
+
+Recorded and mixed in 1998/99 at E.S.L.Y. studio
+ 
+
+ 
+
+ 
+
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,13 @@
 # Phenomena
 
-Дискография
-"Psycho Fantasy" 2006, Hard Rock
+
+
+## Дискография
+
+### "Psycho Fantasy" 2006, Hard Rock
+
+
+
 
 ## Отношения с другими группами
 

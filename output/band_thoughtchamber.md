@@ -1,7 +1,13 @@
 # Thought Chamber
 
-Дискография
-"Angular Perceptions" 2007, Progressive
+
+
+## Дискография
+
+### "Angular Perceptions" 2007, Progressive
+
+
+
 
 ## Отношения с другими группами
 

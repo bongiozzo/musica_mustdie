@@ -1,8 +1,38 @@
 # Pulse
 
-Дискография
-"Pulse" 2002, Hard Rock
-"Worlds Apart" 2004, Hard Rock
+melodic hard rock
+
+## Дискография
+
+### "Pulse" 2002, Hard Rock
+
+01 > TALK ABOUT LOVE
+02 > ISPIRATION
+03 > DON'T WANNA LOSE YOU
+04 > WAITING
+05 > STAR
+06 > CRAZY
+07 > LADY
+08 > HEARTBEAT
+09 > JUST FOR A MOMENT
+10 > BELIEVE IN ME
+11 > AFTER MIDNIGHT
+12 > WITHOUT YOU
+
+SIMON ABBOTTS - Lead Vocals
+VINCE O'REGAN - Guitars and Vocals
+AL BARROW - Bass
+LYNCH RADINSKY - Drums
+ALAN DAWKINS - Keyboards
+
+with...
+PAUL HODSON - Additional Keyboards
+LEE SMALL - Backing Vocals
+
+### "Worlds Apart" 2004, Hard Rock
+
+
+
 
 ## Отношения с другими группами
 

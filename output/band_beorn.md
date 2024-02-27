@@ -1,7 +1,21 @@
 # Beorn
 
-Дискография
-"Time to Dare" 2015, Power Metal
+
+
+## Дискография
+
+### "Time to Dare" 2015, Power Metal
+
+1. From Here to Eternity  01:54 
+2. Riders of the Sky  03:38
+3. Star Ocean  04:03
+4. In Quest for Planet Eden  04:40
+5. The Chest of Deadman  03:39
+6. Space Invaders  02:55
+7. Galaxy in Flames  04:26
+8. Phantom Ship  04:53
+9. Ray of Hope (Incubus ex Abyssus)  01:46 
+
 
 ## Отношения с другими группами
 

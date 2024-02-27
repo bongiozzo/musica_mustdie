@@ -1,18 +1,416 @@
 # Agathocles
 
-Дискография
-"The LP's: 1989 -1991" 1991, Grindcore
-"88-91 EP`s" 1992, Grindcore
-"Theatric Symbolisation Of Life" 1992, Grindcore
-"Black Clouds Determinate" 1994, Grindcore
-"Razor Sharp Daggers" 1995, Grindcore
-"Thanks For Your Hostility" 1997, Grindcore
-"Mince Core History 1989-1993 (compilation)" 2001, Grindcore
-"Mincemania In Bulgaria" 2004, Grindcore
-"Mincer" 2006, Grindcore
-"Grind Is Protest" 2008, Grindcore
-"Obey Their Rules" 2009, Grindcore
-"This is Not a Threat, It's a Promise" 2010, Grindcore
+Legend of Grindcore (Mincecore Founders)
+
+## Дискография
+
+### "The LP's: 1989 -1991" 1991, Grindcore
+
+LP 1989
+1.  Big One
+2.  Teachers
+3.  Christianity Means Tyranny
+4.  Squeeze Anton
+5.  Introtyl
+6.  Fog
+7.  Majesty Of Fools
+8.  Lay Off Me
+9.  Purified By Death
+10.Deceased
+11.Use The Mincer
+12.Fake Friend
+13.Gorgonised Dorks
+
+LP 1989-I991
+
+1.  Four Walls
+2.  Christianity Means Tyranny
+3.  Like An Iwy (Poem) - Agarchy
+4.  Sentimental Hypocrisy
+5.  Majesty Of Fools
+6.  Fog
+7.  Teachers
+8.  The Accident
+9.  Deceased
+10.Forced Pollutions
+11.Use The Mincer
+
+(P)(C) 1989-1991 MORBID Records // MR 025
+
+### "88-91 EP`s" 1992, Grindcore
+
+1.  Mutilated Regurgitator
+2.  The Accident
+3.  Threshold To Senility
+4.  Forced Pollutions
+5.  Consuming Endoderme Pus
+6.  Playing With Lifes
+7.  Splattered Brains
+8.  Well Of Happiness
+9.  Judged By Appearance
+10.Solitary Minded
+11.Trist ? Not Me
+12.Lay Off Me
+13.Threshold To Senility
+14.Mutilated Regurgitator
+15.Gorgonized Dorks
+16.Lay Off Me
+17.Consuming Endoderme Pus
+18.Let It Be For What It Is
+19.Theatric Symbolisation Of Life
+20.The Tree
+
+ Jan Frederickx - Voice
+ Chris Ons - Guitars
+ Erwin Vandenbergh - Bass
+ Burt Beyens - Drums
+
+Tracks 1-7 Are Taken From The AG /
+Riek Boois 7" EP, 88
+Tracks 8-10 Are Taken From The AG /
+V.N.A. 7" EP, 90
+Tracks 11-12 Are Taken From The 
+`If This Cruel` 7" EP, 90
+Tracks 13-17 Are Taken From The
+`Fascination Of Mutilation` Live
+7" EP, 89
+Tracks 18 Is Taken From The AG /
+Smegma 7" EP, 90
+Tracks 19-20 Are Taken From The AG /
+Blood 7" EP ,90
+All Tracks Arranged By Ted Vreman.
+Re-Recorded For CD By 'Splatter' Ed Wygman.
+
+(p)&(c) 1992 CYBER MUSIC
+
+### "Theatric Symbolisation Of Life" 1992, Grindcore
+
+1. Burning Water * (Intro) /
+    Lack Of Personality
+2. Four Walls
+3. Theatric Symbolisation Of Life
+4. Like An Ivy (Poem) / Suffocation
+5. Kill Your Idols
+6. The Truth Begins Where Man Stops To Think
+7. Train (Poem) / The Tree
+8. What A Nerve
+9. Alternative - Another Trend
+
+ Jan Frederickx - Voice
+ Chris Ons - Guitars
+ Erwin Vandenbergh - Bass
+ Burt Beyens - Drums
+
+* Written & Recorded By LEICHENSCHREI,
+Re-Mixed By AGATHOCLES.
+Recorded On 2nd,9th & 23 November 1991
+At Nightingale Studios In Antwerp,Belgium.
+All Tracks Arranged By Ted Vreman.
+
+(p)&(c) 1992 CYBER MUSIC
+
+### "Black Clouds Determinate" 1994, Grindcore
+
+Studio recordings:
+01. Bastard Breed (Intro)/Scorn Of Humanity
+02. Sentimental Hypocrisy 
+03. Megalomanic Stupidity
+04. Hangman's Dance
+05. Black Clouds Determinate
+06. Ubermensch Hilarity
+07. Triple Murder Flesh
+08. Europe's Fairytale
+09. Musicianship-Musicianshit
+10. Confront Your Image
+11. Mister Hardcore Syndrome
+12. For White Lies
+13. Technological Boom - Technological Doom
+14. Destroy To Create
+15. Bigheaded Bastards
+16. Hatebirth
+
+Live:
+17. Siegshit
+18. Well Of Hapiness
+19. Birds (Poem)/Agarchy
+20. Theatric Symbolisation Of Life
+21. Bigheaded Bastards
+22. Lack Of Personality
+23. Squeeze Anton
+24. What Man Creates
+25. Distrust And Abuse
+26. Teachers
+27. Hideous Headchopping
+28. Mutilated Regurgitator
+29. Get Off Your Ass
+30. Hatebirth
+
+ Jan - Bulldozerbass & Mouth
+ Burt - Sticks & Voice
+ Steve - Mincing 6 Strings & Throat
+
+Recorded & Mixed February-April 1994
+At The Soundshare Studio in Arendong, Belgium
+
+Play This Record Fuckin' LOUD !!!!!!!!
+
+(p)&(c) 1995 CYBER MUSIC
+
+### "Razor Sharp Daggers" 1995, Grindcore
+
+Studio recordings:
+01. A Start At Least
+02. Clean The Scene
+03. A For Arrogance
+04. Thy King Dome Won't Come
+05. Media Creation
+06. All Gone
+07. Swallow Or Choke
+08. Razor Sharp Daggers
+09. Enough
+10. Throwing Away Crap
+11. Cracking Up Solidarity
+12. Lunatic
+13. Didn't Ask
+14. Twisting History
+15. Deserves To Die
+16. Age Of The Mutants
+17. Zero-Ego
+18. Gear-Wheels
+19. Dear Friends
+20. Hormon Mob
+21. Hash-Head, Farmer's Death
+22. Dare To Be Aware
+23. Kiss An Ass
+24. All Love Dead
+25. Fear Not
+
+Live and tracks taken from EPs:
+26. Sieg Shit
+27. Hatronomous
+28. Hideous Headchopping
+29. Bigheaded Bastards
+30. Get Off Your Ass
+31. Distrust And Abuse
+32. Hippie Cult
+33. Provoked Behaviour
+34. Black Ones (Poem)/Systemphobic
+35. Anthropodislogical
+36. Labelisation
+37. What Mankind Creates
+38. No!
+39. Rejected Adaption
+40. An Abstract
+41. Faded Novelty
+42. Senseless Trip
+43. Here And Now
+44. Is It Really Mine?
+
+All Songs Written By AGATHOCLES.
+Recorded & Mixed In May 1995 At Soundshape Studios, Belgium.
+
+Jan AG - Bulldozerbass And Mouth
+Burt AG - Sticks And Voice
+Steve AG - Mincing 6 Strings And Throat
+
+(P)&(C) 1995 CYBER MUSIC Records
+
+### "Thanks For Your Hostility" 1997, Grindcore
+
+1.  Criminalization Of Strange Behaviour
+2.  Life Control
+3.  Until It Bleeds
+4.  End Of The Line
+5.  Doctors Wished Me
+6.  Knockback
+7.  Thanks For Your Hostility
+8.  Hatred Is The Cure
+9.  He Your Own God
+10.  Distraction
+11.  Remember
+12.  Cheers Mankind Cheers
+13.  Strangulation
+14.  Foul
+15.  No Use...Hatred
+16.  My Reason
+17.  No Ones Right
+18.  Sheer Neglect
+19.  Is There A Place ?
+20.  Go Fucking Nihilist
+21.  Progressor Or Stupidity?
+22.  Try !
+23.  He Cared
+24.  Mankind's Not Kind
+25.  Reduced To An Object
+26.  Ego-Generosity
+27.   .....
+
+(P)(C) 1997 MORBID Records // MR 032
+
+### "Mince Core History 1989-1993 (compilation)" 2001, Grindcore
+
+01. The Truth Begins Where Man Stops To Think
+02. Sentimental Hypocrisy
+03. Kill Your Fucking Idols
+04. Birds (Poem)/Agarchy
+05. Go Fucking Nihilist
+06. Hatred Is The Cure
+07. No Use... (Hatred)
+08. An Abstract
+09. Black Ones (Poem)/Systemphobic
+10. Anthropodislogical
+11. Into 'Sheep'/Non-Conformity
+12. Miks Haluat Tapella
+13. Cynical Weirdos
+14. Hippie Cult
+15. Provoked Behavour
+16. Anti-Death (Part 1)
+17. Anti-Death (Part 2)
+18. Anti-Death (Part 3)
+19. Sieg Shit
+20. Hatronomous
+21. Hideous Headchopping
+22. Bigheaded Bastards
+23. Get Off Your Ass
+24. Distrust And Abuse
+25. Throwing Away Crap
+26. Floeren Aap
+27. Bier
+28. Fashion Scene
+29. Intro 'Hail To Japan'
+30. Labelisation
+31. Fake Friend
+32. Splattered Brains
+33. Catch The Fishhook
+34. Faded Novelty
+35. Senseless Trip
+36. Here And Now
+37. Is It Really Mine?
+38. Insane
+39. Television
+40. Bigheaded Bastards
+41. Sieg Shit 
+
+(c)(p) 2001 Self Made God Records
+
+### "Mincemania In Bulgaria" 2004, Grindcore
+
+
+
+### "Mincer" 2006, Grindcore
+
+1. Dethrone the tyrant   
+2. Matadores del livertad   
+3. Maze of papers   
+4. Empty frame   
+5. War fetisjists kill   
+6. Carved face fashion   
+7. Forced to masturbate   
+8. Ergos - Thanatos   
+9. Archives and filed   
+10. Yuppie career freak   
+11. Diary of white trash   
+12. Bass the gabbers   
+13. Kurose   
+14. Expendable goods   
+15. Class war Necessity   
+16. Logical exodus   
+17. Misery = destiny   
+18. Pricks at gigs   
+19. Goredom - boredom   
+20. Where it belongs   
+21. Mincer
+
+### "Grind Is Protest" 2008, Grindcore
+
+1. Grind Is Protest 02:49  
+2. Only Friction 00:19  
+3. Bon Apetit 01:01  
+4. Legions Of Consumption 00:40  
+5. Pathetic 00:44  
+6. Bang Bang 01:09  
+7. Worthless 01:02  
+8. Open The Gates 00:26  
+9. Paula 01:05  
+10. Big Flat Cages 00:28  
+11. Run Whitey Run 00:22  
+12. Ministries Of Arms 02:51  
+13. Contradiction 00:27  
+14. Desk Armada 00:51  
+15. Liberal Cancer 00:43  
+16. Ring Tone Rip Off 00:43  
+17. Porcelain A 01:16  
+18. Hype And Go 00:27  
+19. Bad Ass Farmer 00:56  
+20. Electrifarce 00:20  
+21. Axe The Tax 00:43  
+22. Voor War Het Baat 00:42  
+23. Religious Fucking Dope 00:55  
+24. Hear More 00:56  
+25. VMO 00:19  
+26. Bank(Rupt) Cards 00:44  
+27. Todays Solution 01:24  
+28. Infoverdose 00:27  
+29. Knights Of The Cash 01:32  
+30. Too Fast 00:17  
+31. Tension 00:54  
+32. Horns Up - Fuck Off 01:23  
+33. Not A Bit 00:26  
+34. Monitored And Controlled 01:19  
+35. Abolition 00:25  
+36. Chronic Death 01:22  
+37. Necessity 00:20  
+38. Solution Or Prob 00:39  
+39. Arbeit Macht Krank 00:29  
+40. Arrows Of Death 00:41 
+
+
+### "Obey Their Rules" 2009, Grindcore
+
+1. My Eve Of Destruction 02:18  
+2. Blue Blood Dummies 02:40  
+3. Another Grey Brick 02:50  
+4. Obey Their Rules 01:31  
+5. Copyleft 00:58  
+6. Law And Order 01:47  
+7. A Broken Mess 02:28  
+8. Fed Up & Angry 02:18  
+9. Share Welfare 00:59  
+10. Aside 03:40  
+11. Shooting Metal Up The Sky 02:02 
+
+
+### "This is Not a Threat, It's a Promise" 2010, Grindcore
+
+1. Black Tea   
+2. Houses Of Fraud   
+3. Straight Lane   
+4. Bits And Chips   
+5. Reduce The Pain, Refuse The Gain   
+6. People's Property   
+7. Gaszilla   
+8. Soap And Joke   
+9. Hyvдд Paivдд   
+10. Financial Cris-Ass   
+11. Motherfucker (Swing That Axe)   
+12. Go With A Blow   
+13. Monkey Business   
+14. Troops Of Rhumania   
+15. Cut Off   
+16. God Save The Real Green Crocodile   
+17. Fangs Feasting On Funds   
+18. Cleptocracy   
+19. De Kiezer Heeft Nooit Gelijk   
+20. Aside   
+21. Ulkopuolinen   
+22. Stuck@Dumb.Com   
+23. More Patches Than Brains   
+24. Gallows Eve   
+25. After The Battle   
+26. Will Gone, Lobotomy Done   
+27. Manipulotiek 
+
+
 
 ## Отношения с другими группами
 

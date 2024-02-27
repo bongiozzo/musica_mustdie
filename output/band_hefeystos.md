@@ -1,7 +1,20 @@
 # Hefeystos
 
-Дискография
-"Hefeystos" 1997, Death Doom
+
+
+## Дискография
+
+### "Hefeystos" 1997, Death Doom
+
+1. Urok Samotnozci
+2. Magiczny Strumen
+3. Czarna Lza
+4. Starych Legend Star
+5. Glos Z Ogrodow Niwy
+6. Gdzie Milczy Kazdy Cien
+
+(P)(C) 1997 LAST EPITAPH Records // LEP 009
+
 
 ## Отношения с другими группами
 

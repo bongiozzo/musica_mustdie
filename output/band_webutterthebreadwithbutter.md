@@ -1,8 +1,31 @@
 # We Butter The Bread With Butter
 
-Дискография
-"Das Monster Aus Dem Schrank" 2008, Deathcore
-"Der Tag An Dem Die Welt Unterging" 2010, Deathcore
+
+
+## Дискография
+
+### "Das Monster Aus Dem Schrank" 2008, Deathcore
+
+
+
+### "Der Tag An Dem Die Welt Unterging" 2010, Deathcore
+
+01. Der Anfang Vom Ende
+02. Der Tag An Dem Die Welt Unterging
+03. Oh Mama Mach Kartoffelsalat
+04. Alptraumsong
+05. Superfahn Bananendate
+06. 3008
+07. Glohwormchen
+08. Sabine Die Zeitmaschine
+09. Der Kleine Vampir
+10. 13 Wonsche
+11. Schiff Ahoi
+12. Wir Gehen An Land
+13. Mein Baumhaus
+14. Feueralarm
+15. Das Ende
+
 
 ## Отношения с другими группами
 

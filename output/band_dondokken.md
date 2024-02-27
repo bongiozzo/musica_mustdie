@@ -1,7 +1,24 @@
 # Don Dokken
 
-Дискография
-"Up from the Ashes" 1990, Heavy Metal
+(ex-vocal Dokken)
+
+## Дискография
+
+### "Up from the Ashes" 1990, Heavy Metal
+
+1 Crash 'N' Burn 5:03 (Dokken, Don) 
+2 1000 Miles Away 5:00 (Dokken, Don) 
+3 When Some Nights 4:27 (Dokken, Don) 
+4 Forever 5:16 (Dokken, Don) 
+5 Living a Lie 4:38 (Dokken, Don) 
+6 When Love Finds A Fool 5:34 (Dokken, Don) 
+7 Give It Up 4:11 (Dokken, Don) 
+8 Mirror Mirror 4:36 (Dokken, Don) 
+9 Stay 4:28 (Dokken, Don) 
+10 Down in Flames 5:11 (Dokken, Don) 
+11 Hunger 5:03 (Dokken, Don) 
+
+
 
 ## Отношения с другими группами
 

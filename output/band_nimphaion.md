@@ -1,7 +1,20 @@
 # Nimphaion
 
-Дискография
-"In Darkness" 2011, Black Metal
+
+
+## Дискография
+
+### "In Darkness" 2011, Black Metal
+
+1. Preludium 01:16  
+2. Buried alive 03:22  
+3. In darkness 04:16  
+4. Arachne 04:05  
+5. Solitude 03:21  
+6. Lonely river 05:08  
+7. Carrie 04:23  
+8. The castaway 03:49 
+
 
 ## Отношения с другими группами
 

@@ -1,12 +1,67 @@
 # Mercyless
 
-Дискография
-"Object Offerings" 1992, Death Metal
-"Coloured Funeral" 1993, Death Metal
-"Cold" 1999, Death Metal
-"Shure to be Pure" 2000, Death Metal
-"Unholy Black Splendor" 2013, Death Metal
-"Pathetic Divinity" 2016, Death Metal
+France High Class Death Metal
+
+## Дискография
+
+### "Object Offerings" 1992, Death Metal
+
+
+
+### "Coloured Funeral" 1993, Death Metal
+
+1. Spiral Of Flowers
+2. Mirrors Of Melancholy
+3. Travel Through A Strange Emotion
+4. Forgotten Fragments
+5. Contemplations
+6. Agrazabeth
+7. Serenades... (Into Your Limbs)
+8. Naked Forms
+9. Beyond God
+
+ Max Otero - Guitar,Vocal
+ Stephane Viard - Lead Guitar
+ Rade Radojcic - Bass
+ Gerald Guenzi - Drums
+
+All Songs Written By Max Otero And Composed By MERCYLESS
+Produced By Colin Richardson And MERCYLESS
+Engineered And Mixed By Colin Richardson And Tim Buktu
+Recorded & Mixed At T&T Studio,Germany
+
+(p) 1993 MAGIC ARTS
+(c) 1993 CENTURY MEDIA
+
+
+### "Cold" 1999, Death Metal
+
+
+
+### "Shure to be Pure" 2000, Death Metal
+
+
+
+### "Unholy Black Splendor" 2013, Death Metal
+
+
+
+### "Pathetic Divinity" 2016, Death Metal
+
+Blood of Lambs
+Pathetic Divinity
+A Representation of Darkness
+My Name Is Legion
+Exhort the Heretic
+Left to Rot
+Eucharistic Adoration
+Christianist
+How Deep Is Your Hate?
+Liturgiж
+Bless Me Father [2015 version] *
+Probably Impure [2015 version] *
+Eucharistic Adoration [2015 version] *
+
 
 ## Отношения с другими группами
 

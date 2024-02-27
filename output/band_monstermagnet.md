@@ -1,16 +1,121 @@
 # Monster Magnet
 
-Дискография
-"Monster Magnet" 1990, Stoner
-"Spine Of God" 1991, Stoner
-"Tab" 1992, Stoner
-"Superjudge" 1993, Stoner
-"Dopes To Infinity" 1995, Stoner
-"Powertrip" 1998, Stoner
-"God Says No" 2000, Stoner
-"Monolithic Baby!" 2004, Stoner
-"4-Way Diablo" 2007, Stoner
-"Mastermind" 2010, Stoner
+
+
+## Дискография
+
+### "Monster Magnet" 1990, Stoner
+
+1. SNAKE DANCE
+2. TRACTOR
+3. FREAK SHOP USA
+4. LIZARD JOHNNY
+5. MURDER
+
+### "Spine Of God" 1991, Stoner
+
+1. PILL SHOVEL
+2. MEDICINE
+3. NOD SCENE
+4. BLACK MASTERMIND
+5. ZODIAC LUNG
+6. SPINE OF GOD
+7. SNAKE DANCE
+8. SIN'S A GOOD MAN'S BROTHER
+9. OZIUM
+
+### "Tab" 1992, Stoner
+
+1. TAB…
+2. 25
+3. LONGHAIR
+4. LORD 13
+
+### "Superjudge" 1993, Stoner
+
+1. CYCLOPS REVOLUTION
+2. TWIN EARTH
+3. SUPERJUDGE
+4. CAGE AROUND THE SUN
+5. ELEPHANT BELL
+6. DINOSAUR VACUUM
+7. EVIL (is going on)
+8. STADIUM
+9. FACE DOWN
+10. BRAINSTORM
+11. BLACK BALLOON
+
+### "Dopes To Infinity" 1995, Stoner
+
+1. DOPES TO INFINITY
+2. NEGASONIC TEENAGE WARHEAD
+3. LOOK TO YOUR ORB FOR THE WARNING
+4. ALL FRIENDS AND KINGDOM COME
+5. EGO, THE LIVING PLANET
+6. BLOW 'EM OFF
+7. THIRD ALTERNATIVE
+8. I CONTROL, I FLY
+9. KING OF MARS
+10. DEAD CHRISTMAS
+11. THEME FROM "MASTERBURNER"
+12. VERTIGO
+
+### "Powertrip" 1998, Stoner
+
+1. CROP CIRCLE
+2. POWERTRIP
+3. SPACELORD
+4. TEMPLE OF YOUR DREAMS
+5. BUMMER
+6. BABY GOTTERDAMERUNG
+7. 19 WITCHES
+8. 3RD EYE LANDSLIDE
+9. SEE YOU IN HELL
+10. TRACTOR
+11. ATOMIC CLOCK
+12. GOLIATH AND THE VAMPIRES
+13. YOUR LIES BECOME YOU
+
+### "God Says No" 2000, Stoner
+
+1. MELT
+2. HEADS EXPLODE
+3. DOOSMDAY
+4. GOD SAYS NO
+5. KISS OF THE SCORPION
+6. ALL SHOOOK OUT
+7. GRAVITY WELL
+8. MY LITTLE FRIEND
+9. QUEEN OF YOU
+10. DOWN IN THE JUNGLE
+11. CRY
+12. TAKE IT
+13. SILVER FUTURE – bonus
+14. I WANT MORE – bonus (US version only)
+
+### "Monolithic Baby!" 2004, Stoner
+
+
+
+### "4-Way Diablo" 2007, Stoner
+
+
+
+### "Mastermind" 2010, Stoner
+
+1. Hallucination Bomb 
+2. Bored With Sorcery 
+3. Dig That Hole 
+4. Gods And Punks 
+5. The Titan Who Cried Like A Baby 
+6. Mastermind 
+7. 100 Million Miles 
+8. Perish In Fire 
+9. Time Machine 
+10. When The Planes Fall 
+11. Ghost Story 
+12. All Outta Nothin 
+
 
 ## Отношения с другими группами
 

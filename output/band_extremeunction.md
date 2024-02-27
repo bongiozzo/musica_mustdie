@@ -1,7 +1,37 @@
 # Extreme Unction
 
-Дискография
-"In Limine Mortis" 1996, Death Doom
+
+
+## Дискография
+
+### "In Limine Mortis" 1996, Death Doom
+
+1. When All My Dreams Come True
+2. Forgotten Sorrow
+3. Amorous Tears Of Pain
+4. The Death That I Desire
+5. Through The Clouds
+6. In Nomine...
+7. Where The Flowers Grow
+8. In Limine Mortis
+9. The Weakness In My Shelter
+
+Recorded & Mixed At Rec'N'Roll Studios.
+Produced & Mixed By Luis Barros.
+Cover artwork By Koja.
+
+Pedro - Vocals
+Marco - Guitars
+Sergio - Guitars
+Koja - Bass
+Bruno - Drums
+
+Guests:
+Paulo Barros - Lead On 5
+Luis Barros - Keyboards
+
+(P)(C) 1996 MONASTERIUM Records // MST 003
+
 
 ## Отношения с другими группами
 

@@ -1,13 +1,82 @@
 # Rotten Sound
 
-Дискография
-"Drain" 1998, Grindcore
-"Murderworks" 2002, Grindcore
-"Exit" 2004, Grindcore
-"Cycles" 2008, Grindcore
-"Napalm (EP)" 2010, Grindcore
-"Cursed" 2011, Grindcore
-"Species At War (EP)" 2013, Grindcore
+
+
+## Дискография
+
+### "Drain" 1998, Grindcore
+
+
+
+### "Murderworks" 2002, Grindcore
+
+
+
+### "Exit" 2004, Grindcore
+
+1. Exit 
+02. Burden 
+03. Sell Your Soul 
+04. V.S.A. 
+05. Follow 
+06. Maggots 
+07. Slave 
+08. Mass Suicide 
+09. Soil 
+10. Fail and Fall 
+11. Greed 
+12. Slay 
+13. Western Cancer 
+14. Nation 
+15. Havoc 
+16. Traitor 
+17. XXI 
+18. The Weak 
+
+Line-Up: 
+K-drums 
+Q-Guitars 
+T-Bass 
+G-Vocals
+
+### "Cycles" 2008, Grindcore
+
+01. The Effects 
+02. Prai$Ђ the Јord 
+03. Blind 
+04. Units 
+05. Corponation 
+06. Colonies 
+07. Poor 
+08. Days to Kill 
+09. Deceit 
+10. Caste System 
+11. Alternews 
+12. Simplicity 
+13. Enigma 
+14. Decimate 
+15. Victims 
+16. Sold Out 
+17. Feet First 
+18. Trust
+
+### "Napalm (EP)" 2010, Grindcore
+
+
+
+### "Cursed" 2011, Grindcore
+
+
+
+### "Species At War (EP)" 2013, Grindcore
+
+1. Cause
+2. The Game
+3. War
+4. The Solution
+5. Salvation
+6. Peace
+
 
 ## Отношения с другими группами
 

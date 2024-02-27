@@ -1,7 +1,13 @@
 # 7th Nemesis / Punishment
 
-Дискография
-"Chronicles of a Sickness" 2003, Death Metal
+Death Metal Split
+
+## Дискография
+
+### "Chronicles of a Sickness" 2003, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,9 +1,38 @@
 # Dark Suns
 
-Дискография
-"Swanlike" 2002, Death Doom
-"Existence" 2005, Gothic
-"Swanlike (re-issue)" 2005, Doom
+
+
+## Дискография
+
+### "Swanlike" 2002, Death Doom
+
+1. Swanlike 11:28  
+2. Infiltration 05:32  
+3. The Sun Beyond Your Eden 08:48  
+4. Virtuous Dilemma 04:46  
+5. Inside Final Dreams 08:16  
+6. The Neverending 05:31  
+7. In Silent Harmony II (Instrumental) 03:09  
+8. Suffering (Bonustrack) 14:24
+
+### "Existence" 2005, Gothic
+
+1. Zero 02:09  
+2. A Slumbering Portrait 02:32  
+3. The Euphoric Sense 05:54  
+4. Her And The Element 06:39  
+5. Daydream 04:40  
+6. Anemone 06:27  
+7. You, A Phantom Still 11:17  
+8. Gently Bleeding 07:19  
+9. Abiding Space 07:10  
+10. Patterns Of Oblivion 10:50  
+11. One Endless Childish Day 12:59
+
+### "Swanlike (re-issue)" 2005, Doom
+
+
+
 
 ## Отношения с другими группами
 

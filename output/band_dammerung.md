@@ -1,9 +1,43 @@
 # Dammerung
 
-Дискография
-"Follow Your Own Shadow" 2006, Metal
-"Black Arrows of Hatred" 2007, Metal
-"Dark Poetry" 2011, Metal
+
+
+## Дискография
+
+### "Follow Your Own Shadow" 2006, Metal
+
+1. Intro (It’s Coming)   
+2. Follow Your Own Shadow 07:11  
+3. Rage And Hatred 04:25  
+4. Path Of Nameless 08:38  
+5. Second Limb Fire   
+6. We 
+
+### "Black Arrows of Hatred" 2007, Metal
+
+1. Intro 00:50 
+2. Воля 03:16 
+3. The Guardian 02:28
+4. Amen 03:17
+5. ... of Blood And Honour 01:06
+6. Hand Of Doom 03:44
+7. Эрих Цанн 04:23  
+8. The Last Journey 04:04 
+9. Мы (new edition) 07:13  
+10. Paranoid (Black Sabbath cover) 02:37 
+
+### "Dark Poetry" 2011, Metal
+
+1.Geometry Of Shadows
+2.Bloody  River
+3.The Legaсy
+4.Black Arrows Of Hatred
+5.Enstoned
+6.The Other Side
+7.Ancient Mother
+8.Tomorrow Will Never Begin
+9.From Earth To Heavens
+
 
 ## Отношения с другими группами
 

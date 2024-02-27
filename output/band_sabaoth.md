@@ -1,7 +1,31 @@
 # Sabaoth
 
-Дискография
-"Sabaoth" 1996, Black Metal
+
+
+## Дискография
+
+### "Sabaoth" 1996, Black Metal
+
+1. Martyrium
+2. Labyrinth Of Remembrance
+3. Offering Ritual
+4. Where Everything Is Born (Southern Lands)
+5. Time No Longer Exist
+6. Star Shaped Sky
+7. The Wanderer
+
+Recorded & Mixed At Todi Studios.
+Produced By Stormsouls Productions.
+Mixed By Quigue Calabrese & SABAOTH.
+Engineered By Quigue Calabrese.
+Band Residence: Paraguay
+
+Zethyyas - Guitars, Bass
+Zethineph - Vocals, Keyboards
+Lord Norrack - Drums, Percussion
+
+(P)(C) 1996 SABAOTH & STORMSOULS Productions // S05
+
 
 ## Отношения с другими группами
 

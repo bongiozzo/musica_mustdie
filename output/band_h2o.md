@@ -1,12 +1,33 @@
 # H2O
 
-Дискография
-"H2O" 1996, Hardcore
-"Thicker Than Water" 1997, Hardcore
-"F.T.T.W." 1999, Hardcore
-"Go" 2001, Hardcore
-"Nothing To Prove" 2008, Hardcore
-"Don't Forget Your Roots" 2011, Hardcore
+
+
+## Дискография
+
+### "H2O" 1996, Hardcore
+
+
+
+### "Thicker Than Water" 1997, Hardcore
+
+
+
+### "F.T.T.W." 1999, Hardcore
+
+
+
+### "Go" 2001, Hardcore
+
+
+
+### "Nothing To Prove" 2008, Hardcore
+
+
+
+### "Don't Forget Your Roots" 2011, Hardcore
+
+
+
 
 ## Отношения с другими группами
 

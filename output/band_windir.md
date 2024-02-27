@@ -1,9 +1,34 @@
 # Windir
 
-Дискография
-"Arntor" 1999, Black Metal
-"1184" 2001, Black Metal
-"Likferd" 2003, Black Metal
+Norwegian folk black metal
+
+## Дискография
+
+### "Arntor" 1999, Black Metal
+
+1. The Beginning
+2. Arntor, a Warrior
+3. The burial mound of King Hydnes
+4. The Blacksmith and The Troll of Lundamyri
+5. The Struggle
+6. The Longing
+7. Ending
+
+### "1184" 2001, Black Metal
+
+1. Todeswalser
+2. 1184
+3. Dance of Mortal Lust
+4. The Spiritlord
+5. Heidra
+6. Destroy
+7. Black New Age
+8. Journey To the End
+
+### "Likferd" 2003, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

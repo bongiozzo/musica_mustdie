@@ -1,12 +1,42 @@
 # Marauder
 
-Дискография
-"Sense of Metal" 1997, Heavy Metal
-"1821" 2000, Heavy Metal
-"Life?" 2004, Heavy Metal
-"Face the Mirror" 2008, Heavy Metal
-"Elegy of Blood" 2012, Heavy Metal
-"Bullethead" 2016, Heavy Metal
+Heavy metal
+
+## Дискография
+
+### "Sense of Metal" 1997, Heavy Metal
+
+
+
+### "1821" 2000, Heavy Metal
+
+
+
+### "Life?" 2004, Heavy Metal
+
+
+
+### "Face the Mirror" 2008, Heavy Metal
+
+
+
+### "Elegy of Blood" 2012, Heavy Metal
+
+
+
+### "Bullethead" 2016, Heavy Metal
+
+1. Son of Thunder 
+2. Metal Warriors 
+3. Spread Your Wings 
+4. Tooth n Nail
+5. Dark Legion 
+6. Predators  
+7. The Fall 
+8. Echoes in the Dark 
+9. Shadowman 
+10. Set Me Free 
+
 
 ## Отношения с другими группами
 

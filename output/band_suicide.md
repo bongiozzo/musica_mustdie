@@ -1,7 +1,13 @@
 # Suicide
 
-Дискография
-"One Of Your Neighbours" 2004, Death Metal
+
+
+## Дискография
+
+### "One Of Your Neighbours" 2004, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

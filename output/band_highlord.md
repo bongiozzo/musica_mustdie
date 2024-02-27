@@ -1,14 +1,106 @@
 # Highlord
 
-Дискография
-"Heir Of Power" 1999, Power Metal
-"When The Aurora Falls..." 2000, Power Metal
-"Breath of Eternity" 2002, Power Metal
-"Medusa's Coil" 2004, Power Metal
-"Instant Madness" 2006, Power Metal
-"The Death Of The Artists" 2009, Power Metal
-"The Warning After" 2013, Power Metal
-"Hic Sunt Leones" 2016, Power Metal
+sympho power-speed metal from Italy
+
+## Дискография
+
+### "Heir Of Power" 1999, Power Metal
+
+Ouverture In B Min.
+Through The Wind
+Will Of A King
+Stone Shaped Minds
+The Eclipse
+Burning Desire
+Bloodwar In Heaven
+Land Of Eternal Ice
+Sand In The Wind
+
+### "When The Aurora Falls..." 2000, Power Metal
+
+1. When the Aurora Falls... 
+2. Don't Kill Me Again 
+3. Frozen Heaven 
+4. We are Gods 
+5. All I Want 
+6. Again 
+7. Perpetual Fury 
+8. Le Rouge Et Le Noir(I'm my worst enemy) 
+9. Tears Of Darkness 
+10. You'll Never Be Lonely 
+
+
+
+### "Breath of Eternity" 2002, Power Metal
+
+1. Atlantis Part 1. - Beneath A Silent Sky	 
+2. Atlantis Part 2. - The Dreamer And The Deep Ocean
+3. Stream Of Illusions
+4. Dream Chaser
+5. Back From Hell
+6. Show Me Your Kingdom
+7. Follow Me	
+8. Breath Of Eternity
+9. Phoenix's Fire
+10. Moonlight Romance
+
+### "Medusa's Coil" 2004, Power Metal
+
+01. Medusa's Coil
+02. Far From The Light Of God
+03. Dancing With Destiny
+04. Scarlet Tears
+05. Where My Hero Lies
+06. Moonseas
+07. Your Story Too
+08. The Hand of God
+09. Tough Boy (Japanese bonus track)
+10. Tough Boy - Karaoke version (Japanese bonus track)
+
+### "Instant Madness" 2006, Power Metal
+
+1. Jester's Mask
+2. Orion And Ocean
+3. The Sweetest Drug
+4. God A Price?
+5. Life Lymph
+6. The Trickster
+7. Instant Madness
+8. Which side are you on?	
+9. Cha-la Head cha-la
+
+### "The Death Of The Artists" 2009, Power Metal
+
+1. Simple Man	 
+2. Every Thrash Of Me	 
+3. Canticle Of The Flesh	 
+4. It Takes Some Passion	 
+5. The Death Of The Artists	 
+6. Dance In A Flame	 
+7. The Scream	 
+8. Slave To Darkness	 
+9. A Queen In My Pocket	 
+10. Rebel Yell (BILLY IDOL cover) (bonus track)		 
+11. Zankokuna Tenshi No Te-ze (bonus track)
+
+### "The Warning After" 2013, Power Metal
+
+
+
+### "Hic Sunt Leones" 2016, Power Metal
+
+1. Time for a Change 	 
+2. One World at a Time 
+3. Be King or Be Killed 
+4. Let There Be Fire  
+5. Hic Sunt Leones 
+6. Wrong Side of Sanity 
+7. Feathers to a Bird 
+8. Warmight  
+9. I've Chosen My Poison  
+10. Once Were Immortal 
+11. Full Circle 
+
 
 ## Отношения с другими группами
 

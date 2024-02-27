@@ -1,8 +1,44 @@
 # Painbastard
 
-Дискография
-"Overkill" 2005, Metal
-"No Need To Worry" 2006, Metal
+
+
+## Дискография
+
+### "Overkill" 2005, Metal
+
+01. Eternity
+02. Nervekrieg
+03. Common Wealth
+04. Todesengel
+05. System Failed
+06. The Face Of War
+07. A Short Moment Of Love
+08. Final Day (v.03 2005)
+09. Wenn die Zeit Still Seht (v.04 2005)
+10. Innocence
+11. Victims (They're Dead)
+12. 23-55 uhr
+13. When All Is Said…
+
+### "No Need To Worry" 2006, Metal
+
+01. No Need To Worry
+02. When The Rats Desert The Sinking Ship
+03. Sternentanz
+04. Poison For Your Soul
+05. Lebe Deinen Traum
+06. Self (De)Termination
+07. Kinky Species
+08. The Way
+09. Tear Apart
+10. Mother
+11. Torn (feat. Torben Wendt/Diorama)
+12. The Time Is Ripe!
+13. No Need To Worry?
+14. Sternentanz (remixed by Feindflug)
+15. Poison For Your Soul (remixed by Christer H.
+(Biomekkanik/S.P.O.C.K.)
+
 
 ## Отношения с другими группами
 

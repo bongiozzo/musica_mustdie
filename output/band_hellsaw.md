@@ -1,10 +1,45 @@
 # Hellsaw
 
-Дискография
-"Spiritual Twilight" 2005, Black Metal
-"Phantasm" 2007, Black Metal
-"Cold" 2009, Black Metal
-"Trist" 2012, Black Metal
+
+
+## Дискография
+
+### "Spiritual Twilight" 2005, Black Metal
+
+
+
+### "Phantasm" 2007, Black Metal
+
+1. Silent Landscape 04:58
+2. The Ember Of Your Own 05:23 
+3. Phantasm 05:27
+4. So Far... 04:30  
+5. The Inner Revenge Of Nature 04:34
+6. Omen 04:57
+7. In Memory 02:42
+8. Frozen March 05:57 
+9. Outro 01:54 
+
+### "Cold" 2009, Black Metal
+
+1. A Suicide Journey 08:07  
+2. The Black Death 04:29  
+3. Der Harzwald 06:42  
+4. 1°F 00:49  
+5. Cold Aeon 04:43  
+6. Psycho Pastor 05:09  
+7. Sulphur Prayer 01:35  
+8. I Saw Hell 02:50  
+9. Eyes of Ice 04:00  
+10. Moonrites Diabolicum 06:10  
+11. Ache 06:10  
+12. Subterranean Empire 02:14  
+13. Wounds 02:16 
+
+### "Trist" 2012, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

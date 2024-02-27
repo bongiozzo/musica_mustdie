@@ -1,9 +1,35 @@
 # Bloodthorn
 
-Дискография
-"In the Shadow of Your Black Wings" 1997, Black Metal
-"Onwards Into Battle" 1999, Black Metal
-"Genocide" 2006, Black Metal
+epic black metal
+
+## Дискография
+
+### "In the Shadow of Your Black Wings" 1997, Black Metal
+
+1. The Embodied Core of Darkness
+2. Breeding the Evil Inside
+3. March to War
+4. Scarred Lands
+5. Nightshadow
+6. Clouds of Sadness
+7. With Bloodstained Axe
+
+### "Onwards Into Battle" 1999, Black Metal
+
+
+
+### "Genocide" 2006, Black Metal
+
+01. ...For Those Whose Time Has Come (intro)
+02. Blood and Iron
+03. Invoking the Apocalypse
+04. Nightmare of Violence
+05. They Will Arise
+06. Forced Selfmutilation
+07. Sacrifical Slaughter
+08. Hell on the Eastern Front
+09. Monolith of the Dead
+
 
 ## Отношения с другими группами
 

@@ -1,14 +1,60 @@
 # Tenebrarum
 
-Дискография
-"Visiones del Horror (demo)" 1992, Black Metal
-"El Vuelo De Las Almas" 1994, Black Metal
-"Blood & Tears" 1995, Black Metal
-"Sol Negro" 1996, Black Metal
-"Divine War" 1997, Black Metal
-"X" 2000, Black Metal
-"Voices" 2001, Black Metal
-"Divine War" 2002, Black Metal
+
+
+## Дискография
+
+### "Visiones del Horror (demo)" 1992, Black Metal
+
+
+
+### "El Vuelo De Las Almas" 1994, Black Metal
+
+1.  Prisionera Gotica 
+2.  A Sangre Y Fuego 
+3.  Sol Negro 
+4.  Ilusa 
+5.  El Cristo 
+6.  El Vuelo De Las Almas (Part I) - El Vuelo De Las Almas 
+7.  El Vuelo De Las Almas (Part II) - Retorno
+
+Produced by Hit Musical
+Engineered & mixed by Federico Lopez
+Recorded at Hangar Studios
+
+Mario Aponte - Vocals
+Dora Velez - Female Vocals
+David Rivera - Violin, Lead & Rhythm Guitar
+Walter Tamayo - Bass
+Daniel Builes - Drums & Percussion
+Juan S.Ochhoa - keyboards
+
+(P)c 1995 TENEBRAUM Records
+
+### "Blood & Tears" 1995, Black Metal
+
+
+
+### "Sol Negro" 1996, Black Metal
+
+
+
+### "Divine War" 1997, Black Metal
+
+
+
+### "X" 2000, Black Metal
+
+
+
+### "Voices" 2001, Black Metal
+
+
+
+### "Divine War" 2002, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

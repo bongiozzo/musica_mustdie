@@ -1,7 +1,23 @@
 # Lux Divina
 
-Дискография
-"From the Tomb to Nature's Blood" 2009, Black Metal
+
+
+## Дискография
+
+### "From the Tomb to Nature's Blood" 2009, Black Metal
+
+1. Forgotten Divinity (Deletrix) Part I
+2. Bloody Herbs of Revenge
+3. Praised Hymn to the Horned God
+4. The Mother Nature's Tomb	 
+5. Serpent's Philosophy
+6. The Oracle of the Funeral Trees
+7. On Nature My Existence Disappear	 
+8. Black Goddess' Mountains
+9. To Darkened Catacombs
+10. Naturalistic Cults
+11. Forgotten Divinity (Creatrix) Part II
+
 
 ## Отношения с другими группами
 

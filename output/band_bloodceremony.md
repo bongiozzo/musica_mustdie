@@ -1,10 +1,56 @@
 # Blood Ceremony
 
-Дискография
-"Blood Ceremony" 2008, Rock
-"Living With The Ancients" 2011, Rock
-"The Eldritch Dark" 2013, Rock
-"Lord Of Misrule" 2016, Rock
+
+
+## Дискография
+
+### "Blood Ceremony" 2008, Rock
+
+1. Master of Confusion
+2. I'm Coming with You
+3. Into the Coven
+4. A Wine of Wizardry
+5. Rare Lord  06:22 
+6. Return to Forever 
+7. Hop Toad
+8. Children of the Future
+9. Hymn to Pan
+
+### "Living With The Ancients" 2011, Rock
+
+01. The Great God Pan
+02. Coven Tree
+03. The Hermit
+04. My Demon Brother
+05. Morning of the Magicians
+06. Oliver Haddo
+07. Night of Augury
+08. The Witch's Dance
+09. Daughter of the Sun
+
+### "The Eldritch Dark" 2013, Rock
+
+1. Witchwood
+2. Goodbye Gemini
+3. Lord Summerisle
+4. Ballad Of The Weird Sisters
+5. Eldritch Dark
+6. Drawing Down The Moon
+7. Faunus
+8. The Magician
+
+### "Lord Of Misrule" 2016, Rock
+
+01. The Devil's Widow
+02. Loreley
+03. The Rouge's Lot
+04. Lord Of Misrule
+05. Half Moon Street
+06. The Weird Of Finistиre
+07. Flower Phantoms
+08. Old Fires
+09. Things Present, Things Past
+
 
 ## Отношения с другими группами
 

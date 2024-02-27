@@ -1,7 +1,21 @@
 # Visceral Disgorge
 
-Дискография
-"Ingesting Putridity" 2011, Deathcore
+
+
+## Дискография
+
+### "Ingesting Putridity" 2011, Deathcore
+
+1. Force Fed Shredded Genitalia  04:53 
+2. Sedated and Amputated  05:53 
+3. Strangled and Sodomized  03:38
+4. Ball-Gagged and Gutted  04:28 
+5. Spastic Anal Lacerations  04:53 
+6. Colostomy Bag Asphyxiation  05:01
+7. Necrocoprophagia  05:20 
+8. Maggot Infested Fuck Hole  04:30
+9. Skullfucking Neonatal Necrosis  05:56 
+
 
 ## Отношения с другими группами
 

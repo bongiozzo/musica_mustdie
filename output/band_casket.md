@@ -1,8 +1,25 @@
 # Casket
 
-Дискография
-"Emotions...Dreams Or Reality" 1997, Death Doom
-"Tomorrow" 1998, Death Doom
+Atmospheric-Gothic-Doom-Metal !
+
+## Дискография
+
+### "Emotions...Dreams Or Reality" 1997, Death Doom
+
+1. Way To Happiness
+2. Emotions...
+3. Black Mountain
+4. Confessions
+5. ...Dream Or Reality
+6. Life-Elixir
+7. Near Heaven
+
+(P)(C) 1997 SERENADES Records // SR 009
+
+### "Tomorrow" 1998, Death Doom
+
+
+
 
 ## Отношения с другими группами
 

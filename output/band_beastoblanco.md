@@ -1,7 +1,23 @@
 # Beasto Blanco
 
-Дискография
-"Live Fast Die Loud" 2013, Hard Rock
+
+
+## Дискография
+
+### "Live Fast Die Loud" 2013, Hard Rock
+
+01. Il Nostro Spirito
+02. Beasto Blanco
+03. Blood Shot
+04. California
+05. Breakdown
+06. Vegas
+07. Motor Queen
+08. Freak
+09. Beg to Differ
+10. Live Fast Die Loud
+11. No More Man
+
 
 ## Отношения с другими группами
 

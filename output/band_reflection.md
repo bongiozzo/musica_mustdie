@@ -1,9 +1,54 @@
 # Reflection
 
-Дискография
-"The Fire Still Burns" 1999, Progressive
-"Odyssey" 2003, Progressive
-"When Shadows Fall" 2008, Progressive
+
+
+## Дискография
+
+### "The Fire Still Burns" 1999, Progressive
+
+1. Burn the Witch
+2. Reflection
+3. Wings of Fate
+4. Wheel of Fortune
+5. Before the End
+6. Children of War
+7. Fire and Steel
+8. Fire
+9. When Immortals Die
+
+### "Odyssey" 2003, Progressive
+
+04:58  The Adventure Begins  
+04:48  The Forbidden Seed  
+03:39  Cyclops  
+02:09  Aeolos  
+04:43  Giants (Lestrygon's Land)  
+03:52  The Sorceress  
+07:34  Journey To The Other Side  
+02:53  Sirens  
+05:41  Between Bitch And Charibdis  
+03:59  Slaughter In The Island Of The Sun  
+05:03  Kalypso  
+05:09  Beware Of The Night  
+05:09  Who Will Dare To Bend The Bow?  
+04:35  The Return Of The King  
+02:03  Outro
+
+### "When Shadows Fall" 2008, Progressive
+
+1. Entering The Sea...	 
+2. Mistress of Sea	 
+3. Ghost Ship	 
+4. When Shadows Fall	 
+5. Whispers Of The Lost...	 
+6. Lost	 
+7. Desert Land	 
+8. Soul Salvation	 
+9. Eyes Of The Night	 
+10. Serpent's Eye	 
+11. Kingdom Of Fire	 
+12. Mistess Of Sea (Orchestral Version)
+
 
 ## Отношения с другими группами
 

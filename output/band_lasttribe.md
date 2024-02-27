@@ -1,9 +1,62 @@
 # Last Tribe
 
-Дискография
-"The Ritual" 2000, Progressive
-"Witch Dance" 2002, Progressive
-"The Uncrowned" 2003, Progressive
+power/prog
+
+## Дискография
+
+### "The Ritual" 2000, Progressive
+
+Spellbound
+Tears Of Gold
+Black Widow
+Made Of Stone
+Blood On Your Hands
+Falling
+Flying High
+One Of A Kind
+Ready For The Storm
+The Ritual
+
+
+### "Witch Dance" 2002, Progressive
+
+The Gathering (intro)
+Witch Dance
+Messenger
+Bring Out The Brave
+Wash Your Sins Away
+Behind Your Eyes
+Wake Up The World
+Man Of Peace
+The Eternal curse
+Agadir (instrumental)
+Dreamer
+
+
+### "The Uncrowned" 2003, Progressive
+
+Healer
+
+The Chosen One
+
+Sacrifice
+
+The Uncrownd
+
+Otherword
+
+April Sky
+
+Sound of Kain
+
+Only the Innocent
+
+Full Moon
+
+Call of the Tribe
+
+Blessed by the Dark (Only Japan)
+
 
 ## Отношения с другими группами
 

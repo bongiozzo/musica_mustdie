@@ -1,7 +1,31 @@
 # The Shadow Theory
 
-Дискография
-"Behind the Black Veil" 2010, Progressive
+
+
+## Дискография
+
+### "Behind the Black Veil" 2010, Progressive
+
+1. I Open Up My Eyes 07:04  
+2. The Sound of Flies 04:40  
+3. Ghostride 05:32  
+4. Welcome 05:02  
+5. By the Crossroads 05:34  
+6. Selebrate 03:17  
+7. Snakeskin 03:48  
+8. Sleepwalking 05:17  
+9. The Black Cradle 05:14  
+10. A Candle in the Gallery 03:56  
+11. A Symphony of Shadows 07:54 
+
+
+Line-up:
+Devon Graves - Vocals, Guitar, Flute
+Demi Scott - Keyboards
+Arne Schuppner - Guitar
+Kristoffer Gildenlцw - Bass
+Johanne James - Drums 
+
 
 ## Отношения с другими группами
 

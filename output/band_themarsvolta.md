@@ -1,8 +1,40 @@
 # The Mars Volta
 
-Дискография
-"De-Loused in the Comatorium" 2003, Alternative
-"Frances The Mute" 2005, Alternative
+
+
+## Дискография
+
+### "De-Loused in the Comatorium" 2003, Alternative
+
+1. Son Et Lumiere 1:35
+2. Inertiatic ESP 4:24
+3. Roulette Dares (This is the Haunt) 7:31
+4. Tira Me A Las Aranas 1:28
+5. Drunkship of Lanterns 7:06
+6. Eriatarka 6:21
+7. Cicatriz ESP 12:29
+8. This Apparatus Must  Be Unearthed 4:58
+9. Televators 6:19
+10. Take the Veil Cerpin Taxt 8:42
+
+### "Frances The Mute" 2005, Alternative
+
+1. Cygnus...Vismund Cygnus: Sarcophagi        
+2. Cygnus...Vismund Cygnus: Umbilical Syllables        
+3. Cygnus...Vismund Cygnus: Facilis Descenus Averni        
+4. Cygnus...Vismund Cygnus: Con Safo        
+5. Widow        
+6. Via l'Viaquez        
+7. Miranda That Ghost Just Isn't Holy Anymore: Vade Mecum        
+8. Miranda That Ghost Just Isn't Holy Anymore: Pour Another Icepick        
+9. Miranda That Ghost Just Isn't Holy Anymore: Pisacis (Phra-Men-Ma)        
+10. Miranda That Ghost Just Isn't Holy Anymore: Con Safo        
+11. Cassandra Geminni: Tarantism        
+12. Cassandra Geminni: Plant a Nail in the Navel Stream        
+13. Cassandra Geminni: Faminepulse        
+14. Cassandra Geminni: Multiple Spouse Wounds        
+15. Cassandra Geminni: Sarcophagi
+
 
 ## Отношения с другими группами
 

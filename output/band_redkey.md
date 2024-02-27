@@ -1,7 +1,13 @@
 # Redkey
 
-Дискография
-"Rage Of Fire" 2006, Heavy Metal
+
+
+## Дискография
+
+### "Rage Of Fire" 2006, Heavy Metal
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,23 +1,347 @@
 # Tiamat
 
-Дискография
-"Sumerian Cry" 1990, Death Metal
-"The Astral Sleep" 1991, Death Metal
-"Clouds" 1992, Doom
-"The Sleeping Beauty (live)" 1994, Death Doom
-"Wildhoney" 1994, Gothic
-"Gaia (EP)" 1995, Gothic
-"The Musical History" 1995, Gothic
-"A Deeper Kind Of Slumber" 1997, Gothic
-"Cold Seed (single)" 1997, Gothic
-"Skeleton Skeletron" 1999, Gothic
-"For Her Pleasure (single)" 1999, Gothic
-"Brighter Than The Sun (EP)" 2000, Gothic
-"Judas Christ" 2002, Gothic
-"Prey" 2003, Gothic
-"The Church of Tiamat (DVD)" 2006, Gothic
-"Amanethes" 2008, Gothic
-"The Scarred People" 2012, Gothic
+Sweden Melodic Death-Gothic-Doom
+
+## Дискография
+
+### "Sumerian Cry" 1990, Death Metal
+
+1. Intro.Sumerian Cry (Part I)
+2. In The Shrines Of Kingly Dead
+3. The Malicious Paradise
+4. Necrophagios Shadows
+5. Apothesis Of Morbidity
+6. Nocturnal Funeral
+7. Altar Flame
+8. Evilized
+9. Where The Serpents Ever Dwell
+10.Outro.Sumerian Cry (Part II)
+11 The Sign Of Pentagram
+
+ Hellslaugter - Vocal,Rhythm,Lead Guitars
+ Juck - Bass
++ Emetic - Rhythm,Lead Guitars
++ Najse - Drums
+
+Recorded At Sunlight Studio,9-th & 10-th Of Nov`90.
+
+(p) 1989
+(c) 1990 C.M.F.T. Production
+
+### "The Astral Sleep" 1991, Death Metal
+
+1. Neo Aeon (Intro)
+2. Lady Temptress
+3. Mountain Of Doom
+4. Dead Boys Quire
+5. Sumerian Cry (Part III)
+6. On Golden Wings
+7. Ancient Entity
+8. The Southernmost Voyage
+9. Angels Far Beyond
+10. I Am The King (Of Dreams)
+11. Winter Shadow
+12. The Seal (Outro)
+
+ Johan Edlund - Vocals & Rhythm Guitar
+ Thomas Petersson - Lead & Acoustic Guitar
+ Joroen Thulberg - Bass
+ Niklas Ekstrand - Drums
+
+Produced By Waldemar Sorychta.
+Engineered By Siggi Bemm.
+
+(p)&(c) 1991 CENTURY MEDIA Records
+
+### "Clouds" 1992, Doom
+
+1. In A Dream
+2. Clouds
+3. Smell Of Incense
+4. A Caress Of Stars
+5. Forever Burning Flame
+6. Scapegoat
+7. Undressed
+
+ Johan Edlund - Vocals & Rhythm Guitars
+ Thomas Petersson - Lead & Acoustic Guitars
+ Kenneth Roos - Keyboard
+ Niklas Ekstrand - Drums
+ Johnny Hagel - Bass
+
+Produced By Waldemar Sorychta.
+Engineered By Siggi Bemm.
+
+(p)&(c) 1992 CENTURY MEDIA Records
+
+### "The Sleeping Beauty (live)" 1994, Death Doom
+
+1. In A Dream
+2. Ancient Entity
+3. The Sleeping Beauty
+4. Mountian Of Doom
+5. Angels Far Beyond
+
+This Live Recording is a documentation of a show in Tel-Aviv,Israel,3rd of June 1993
+
+(p)(c) 1994 CENTURY MEDIA Records
+
+### "Wildhoney" 1994, Gothic
+
+1. Wildhoney
+2. Whatever That Hurts
+3. The Ar
+4. 25th Floor
+5. Gara
+6. Visionaire
+7. Kaleidoscope
+8. Do You Dream Of Me
+9. A Pocket Size Sun
+
+ Johan Edlund - Vocals & Guitars
+ Magnus Sahlgren - Sessions Lead Guitars
+ Johnny Hagel - Bass
+ Lars Skld - Drums
+
+Produced By Waldemar Sorychta.
+Engineered By Siggi Bemm & Waldemar Sorychta
+Recorded & Mixed At Woodhouse Stuios In July 1994.
+
+(p) & (c) 1994 CENTURY MEDIA RECORDS
+
+### "Gaia (EP)" 1995, Gothic
+
+1. Gaia (Video Edit)
+2. The Ar (Radio Cut)
+3. Wher You're In
+4. Whatever That  Hurts (Video Edit)
+5. The Ar (Industrial Mix)
+6. Visinaire (Remixed Longform Version)
+
+Johan Edlund - Vocals & Guitars
+ Magnus Sahlgren - Sessions Lead Guitars
+ Johnny Hagel - Bass
+ Lars Skld - Drums
+Keyboards Parts Played By W.Sorychta
+Additional Vocals By Birgit Zacher
+
+All Titles Written By TIAMAT, Except 3 By 
+PINK FLOYD
+Produced By Waldemar Sorychta
+Engineered By Siggi Bemm & Waldemar Sorychta
+Recorded & Mixed At Woodhouse Studios In July 1994
+
+(p)&(c) 1995 CENTURY MEDIA Records
+
+### "The Musical History" 1995, Gothic
+
+
+
+### "A Deeper Kind Of Slumber" 1997, Gothic
+
+1. Cold Seed
+2. Teonanacatl
+3. Trillion Zillion Centipedes
+4. Desolate One
+5. Atlantis As A Lover
+6. Alteration X 10
+7. Four Leary Biscuits
+8. Only In My Tears It Lasts
+9. The Whores Of Babylon
+10.Kite
+11.Phantasma de Luxe
+12.Mount Marilyn
+13.A Deeper Kind Of Slumber
+
+Johan Edlund - Vocals, Guitar, Keyboards, Theremin
+Thomas Petersson - Electric and Acoustic Guitars
+Anders Iwers - Bass
+Lars Skold - Drums
+
+Produced by Dirk Draeger
+Co-Produced by Johan Edlund
+
+(p)&(c) 1997 CENTURY MEDIA
+
+### "Cold Seed (single)" 1997, Gothic
+
+
+
+### "Skeleton Skeletron" 1999, Gothic
+
+1. Church Of Tiamat.
+2. Brighter Than The Sun.
+3. Dust Is Our Fare.
+4. To Have And To Have Not.
+5. For Her Pleasure.
+6. Diyala.
+7. Sympathy For The Devil.
+8. Best Friend Money Can Buy.
+9. As Long As You Are Mine.
+10. Lucy.
+
+(c) 1999 MGIC ARTS PUBLISHING
+(p) 1999 CENTURY MEDIA RECORDS
+
+JOHAN EDLUND – vocals, guitars & keys
+ANDERS IWERS – bass
+LARS SKOLD – drums
+
+Additional vocals by Nicole Bolley, Andrea Schwarz & Jessica Andree. Piano by Stephan Gekbe.
+
+All songs written by Johan Edlund, except "Sympathy For The Devil" music and lyrics by Mick Jagger, Keith Richards 
+published by Westminster Music / EMI Publishing.
+
+Produced by Dirk Draeger & Johan Edlund. Recorded and mixed by Dan Diamond at Woodhouse Studios. Additional 
+recordings at Studio Wildhoney & Element Studios.
+
+### "For Her Pleasure (single)" 1999, Gothic
+
+
+
+### "Brighter Than The Sun (EP)" 2000, Gothic
+
+
+
+### "Judas Christ" 2002, Gothic
+
+(spinae)
+01. The Return Of The Son Of Nothing
+02. So Much For Suicide
+03. Vote For Love
+04. The Truthґs For Sale
+(tropic of venus)
+05. Fireflower
+06. Sumer By Night
+07. Love Is As Good As Soma
+(tropic of capricorn)
+08. Angel Holograms
+09. Spine
+10. I Am In Love With Myself
+(casadores)
+11. Heaven Of High
+12. Too Far Gone
+13. Sixshooter (bonus)
+14. However You Look At It You Loose (bonus)
+
+
+Johan Edlund; vocals, guitars
+Thomas Petersson; guitars
+Anders Iwers; bass 
+Lars Skold; drums
+
+Additional keyboards by Johan Edlund & Lars Nissen.
+Female vocals on Vote for love, Fireflower, Sumer by night, Love is as good as soma and I am in love with myself by Trille.
+Backround vocals on Spine by Lars Nissen.
+Backround vocals on Too far gone by Anders Iwers and Lars Skold.
+Additional guitars on Too far gone by Anders Iwers.
+Piano on Too far gone by Johan Edlund and Anders Iwers.
+Piano on Sumer by night by Lars Skold.
+
+recorded at PUK, Medley and Sun studios, Denmark September- November 2001. 
+Recorded, mixed and Produced by Lars Nissen.
+
+### "Prey" 2003, Gothic
+
+1. Cain
+2. Ten Thousand Tentacles
+3. Wings Of Heaven
+4. Love In Chains
+5. Divided
+6. Carry Your Cross And I'll Carry Mine
+7. Triple Cross
+8. Light In Extension
+9. Prey
+10. The Garden Of Heathen
+11. Clovenhoof
+12. Nihil
+13. The Pentagram
+
+### "The Church of Tiamat (DVD)" 2006, Gothic
+
+Live In Krakow, Poland - January 2005 (mixed in stereo and 5.1 surround): 
+
+01. Vote For Love
+02. Children Of The Underworld
+03. Cain 
+04. Brighter Than The Sun 
+05. To Have And Have Not 
+06. Whatever That Hurts 
+07. I Am In Love With Myself 
+08. In A Dream 
+09. Wings Of Heaven 
+10. Cold Seed 
+11. Clovenhoof 
+12. As Long As You Are Mine 
+13. Love Is As Good As Soma 
+14. The Sleeping Beauty 
+15. Gaia 
+
+Bonus Section: 
+
+01. Where The Serpents Ever Dwell (home video from the first TIAMAT show ever) 
+02. Undressed (home video from the "Wildhoney" tour in 1995) 
+03. Whatever That Hurts (video clip) 
+04. Gaia (videoclip) 
+05. The Ar (home video from the "Wildhoney" tour in 1995) 
+06. Do You Dream Of Me? (animation clip) 
+07. Cold Seed (videoclip) 
+08. Alteration X 10 (making of "A Deeper Kind Of Slumber" studio session)
+09. Phantasma De Luxe (home video from the "Judas Christ" tour 2002) 
+10. Brighter Than The Sun (video clip) 
+11. Vote For Love (video clip) 
+12. Angel Holograms (home video from the "Judas Christ" tour 2002) 
+13. Cain (video clip)
+
+### "Amanethes" 2008, Gothic
+
+1. The Temple of the Crescent Moon 05:33  
+2. Equinox of the Gods 04:35  
+3. Until the Hellhounds Sleep Again 04:07  
+4. Will They Come? 05:13  
+5. Lucienne 04:41  
+6. Summertime Is Gone 03:53  
+7. Katarraktis Apo Aima 02:43  
+8. Raining Dead Angels 04:18  
+9. Misantropolis 04:13  
+10. Amanitis 03:21  
+11. Meliae 06:11  
+12. Via Dolorosa 04:06  
+13. Circles 03:48  
+14. Amanes 05:29 
+15. Thirst Snake (digipak bonus track)  
+
+
+### "The Scarred People" 2012, Gothic
+
+01. The Scarred People 06:49 
+02. Winter Dawn 04:21 
+03. 384ekteis 04:33 
+04. Radiant Star 03:52 
+05. The Sun Also Rises 05:15 
+06. Before Another Wilbury Dies 01:43 
+07. Love Terrorists 05:52 
+08. Messinian Letter 04:27 
+09. Thunder & Lightning 04:40 
+10. Tiznit 03:08 
+11. The Red Of The Morning Sun 04:28
+
+
+The digipack limited edition adds 4 bonus tracks:
+ 
+12. Born To Die (Bonus Track)
+13. Paradise (Bonus Track)
+14. Divided (Live) (Bonus Track)
+15. Cain (Live) (Bonus Track) 
+
+There is also a boxset, containing the digipack plus a Tiamat pendant, lilmited to 1000 copies. 
+
+LP version available on black and cream vinyl, both limited. 
+
+A video was made for the title track. 
+
+"Thunder & Lightning" was originally recorded as a LucyFire song. It appears on their last demo. 
+
 
 ## Отношения с другими группами
 

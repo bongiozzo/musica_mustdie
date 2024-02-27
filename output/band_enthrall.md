@@ -1,8 +1,26 @@
 # Enthrall
 
-Дискография
-"Infernal Horizon" 2006, Progressive
-"Throes of Fire" 2011, Progressive
+
+
+## Дискография
+
+### "Infernal Horizon" 2006, Progressive
+
+
+
+### "Throes of Fire" 2011, Progressive
+
+1.	 Burden		 
+2.	 The Bullying Bull		 
+3.	 Stoned		 
+4.	 Fuzzy		 
+5.	 Lame Sunk Esteem		 
+6.	 Agony Bound		 
+7.	 Retribution		 
+8.	 Throes of Fire		 
+9.	 Spill Cyanide		 
+10.	 Natural Instinct
+
 
 ## Отношения с другими группами
 

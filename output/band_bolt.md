@@ -1,7 +1,34 @@
 # Bolt
 
-Дискография
-"Behind Obstacles Lies Truth" 2009, Hardcore
+
+
+## Дискография
+
+### "Behind Obstacles Lies Truth" 2009, Hardcore
+
+1. Always Outnumbered
+2. Set Ablaze
+3. Through Thick and Thin
+4. Truly Blessed
+5. Chokehold
+6. Stabbing Nation
+7. Tapia
+8. Blood That Boils
+9. Forever Dedicated
+
+Recorded, Engineered and Mixed By Antti Malinen
+Produced by Antti Malinen & BOLT
+Drums Recorded @ Sonic Kitchen Studio
+Guitars, Bass and Vocals Recorded During December 2008 - January 2009 @ BOLT Rehearsal Studios
+Mastered @ Virtalahde Analog Audio by Jaakko Viitalahde
+All Music by BOLT
+All Lyrics by Tom Hamara except Forever Dedicated co-written with L. Louekari
+Additional Vocals on Truly Blessed by J. Virtanen
+Additional Vocals on Blood That Boils by D. Paile
+Additional Vocals on Forever Dedicated by L. Louekari
+All Backing Vocals by the BOLT Choir
+Record Title by Miikka Hietanen
+
 
 ## Отношения с другими группами
 

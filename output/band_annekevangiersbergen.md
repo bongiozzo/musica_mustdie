@@ -1,7 +1,27 @@
 # Anneke Van Giersbergen
 
-Дискография
-"Everything Is Changing" 2012, Rock
+Dutch singer (AGUA DE ANNIQUE, ex-THE GATHERING)
+
+## Дискография
+
+### "Everything Is Changing" 2012, Rock
+
+01. Feel Alive 03:42 
+02. You Want To Be Free 03:29 
+03. Everything Is Changing 03:21 
+04. Take Me Home 03:30 
+05. I Wake Up 03:30 
+06. Circles 04:17 
+07. My Boy 04:17 
+08. Stay 04:15 
+09. Hope, Pray, Dance, Play 03:25 
+10. Slow Me Down 03:04 
+11. Too Late 04:161 
+12. 1000 Miles Away From You 05:01
+
+
+The CD was recorded at Ultrasound Studios in Braga, Portugal with producer Daniel Cardoso.
+
 
 ## Отношения с другими группами
 

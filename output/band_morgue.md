@@ -1,7 +1,32 @@
 # Morgue
 
-Дискография
-"Eroded Thoughts" 1993, Death Metal
+
+
+## Дискография
+
+### "Eroded Thoughts" 1993, Death Metal
+
+1. Coroners Report
+2. Random Decay
+3. Repulsive Death
+4. Plagued Birth*
+5. Severe Psychopathology*
+6. Personality Conflict*
+7. Eroded Thoughts*
+
+ Brad Buldak - Vocals, Bass
+ Ryan Jerzak - Guitars
+ Darrel Moore - Guitars
+ Nick Sebock - Drums
+ Ted Vantilburg - Drums On *
+
+All Songs By MORGUE
+Produced By Martti Payne
+Engineered By Phil Bonnet
+Recorded At Solid Sound Studios, IL, USA
+
+(p)&(c) 1993 GRINDCORE Records
+
 
 ## Отношения с другими группами
 

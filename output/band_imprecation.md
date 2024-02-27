@@ -1,7 +1,30 @@
 # Imprecation
 
-Дискография
-"Theurgia Goetia Summa" 1996, Death Metal
+
+
+## Дискография
+
+### "Theurgia Goetia Summa" 1996, Death Metal
+
+1. Emperor Of The Infernal Spirits
+2. The Throne Is Lost
+3. Nocturnal Feast Of The Luciferians
+4. The Awakening Of Majestic Darkness
+5. Vomit Floods Of Christian Remains
+6. As Blasphemy Reigns
+7. Shrouded In Gore
+8. Of The Underworld
+9. Poltergeist Fathomed
+
+All songs written by IMPRECATION
+Recorded at Hot Dog Studios, Houston, Texas
+
+Marc Beecher - Bass, Vocals
+Ruben Flizondo - Drums, Keyboards
+Wes Weaver - Guitar
+
+(p)(c) 1996 REPRISE Records
+
 
 ## Отношения с другими группами
 

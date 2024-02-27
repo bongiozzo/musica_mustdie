@@ -1,7 +1,23 @@
 # Morning After
 
-Дискография
-"Beneath The Real" 2003, Gothic
+
+
+## Дискография
+
+### "Beneath The Real" 2003, Gothic
+
+1. Free to heal
+2. Day of the moon
+3. Heavy waves
+4. Asthenia
+5. Hell in heaven
+6. Beneath the real
+7. Trains in dust
+8. Burning time
+9. Let myself flow
+10. Instability
+11. Outro (Answers)
+
 
 ## Отношения с другими группами
 

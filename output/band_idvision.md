@@ -1,8 +1,33 @@
 # Id:vision
 
-Дискография
-"The 88 Flak's Attack [demo]" 2006, Black Metal
-"Plazmadkaos" 2008, Black Metal
+
+
+## Дискография
+
+### "The 88 Flak's Attack [demo]" 2006, Black Metal
+
+
+
+### "Plazmadkaos" 2008, Black Metal
+
+1. The Axe Of Wrath
+2. Doden Force Division
+3. Disphenoid`s Equilibrium
+4. The Funeral Of Altruism
+5. Beyond Ice, Beyond Death…
+6. D.T.I.O.G.
+7. Deathcamp Prelude
+8. Decagon Deathcamp
+9. I.N.R.I.
+10. Mel[un]holy
+
+BONUS-EP 
+The 88 Flak's Attack Ltd.100
+1. The Axe Of Wrath (First Mix)
+2. Disphenoid's Equilibrium (First Mix)
+3. D.T.I.O.G.(First Mix)
+4. Decagon Deathcamp (First Mix)
+
 
 ## Отношения с другими группами
 

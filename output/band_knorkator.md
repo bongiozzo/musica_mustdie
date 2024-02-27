@@ -1,8 +1,72 @@
 # Knorkator
 
-Дискография
-"Ich Hasse Musik" 2003, Industrial
-"Das Nachste Album Aller Zeiten" 2007, Industrial
+
+
+## Дискография
+
+### "Ich Hasse Musik" 2003, Industrial
+
+01. der ultimative mann 3:58
+02. ich hasse musik 4:30
+03. try again 3:13
+04. ich bin uberhaupt nicht da 3:58
+05. mai khao djai 3:58
+06. schmutzfink 4:00
+07. schuchtern 2:56
+08. aeger sum 1:46
+09. ma baker 3:50
+10. wie weit ist es bis zum horizont 4:08
+11. makellos 3:50
+12. schweigeminute* 1:00
+13. beating around the bush 4:17
+
+Alf Ator
+Stumpen
+Buzz Dee
+
+* SchweigemFnute zum Ge«l®f3ksn an die guteri
+Batten Zeiten!
+
+Auf der Lahgspielplatte ICH HASSE MUSIK sind
+Oberwiegend ALF ATOR-Werke, mil Ausnahme dieser
+Titel 3. der ist von Timothy Z, Mosley und Stephen
+J, Garrett
+Titel 5, da hat Jens Quandt ein gules Stock Arbeit
+geleistet, er hat mitkomponiert
+Titel 9, der ist von Frank Parian und Fred jay
+und Titel 13 ist von Bon Scott, Malcom Young und
+Angus Young, Andreas Ockert und sein
+Session-Orchestra
+haben diesen verdixilandet, und zwar in Michas
+www.k13.net
+Yupin hat im Obrigen den Text fur Tite! 5
+geschrieben. Dafur verdient sie Anerkennung Kevin
+Schabiner konhje Latein und hat dieses Wissen in
+Titel 8 angewandf
+
+Die Langspielplatte ICH HASSE MUSIK ist von Alf
+Ator, Dirk Burke und Jens Quandt arrangiert und
+produziert worden. Und zwar gut
+Gemischt und gemastert wurde sie von Dirk Burke in
+seinen www.lakesidestudios.de
+Jens Quandt hat in seinen Snowland Studios ebenso
+gemastert, mit Erfolg
+
+### "Das Nachste Album Aller Zeiten" 2007, Industrial
+
+01. Alter Mann
+02. Du bist so still
+03. Lied vom Pferd
+04. Wir werden alle sterben
+05. Nur mal angenommen
+06. Eigentum
+07. Fur meine Fans
+08. www.einliebeslied.com
+09. GV
+10. Geld
+11. Franz Hose
+12. Symphonische Dichtung
+
 
 ## Отношения с другими группами
 

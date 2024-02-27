@@ -1,7 +1,23 @@
 # Down The Drain
 
-Дискография
-"Dying Inside" 2007, Death Metal
+
+
+## Дискография
+
+### "Dying Inside" 2007, Death Metal
+
+1. Dying Inside 02:42  
+2. Over Mastered Desire 04:14  
+3. That Which Will Not Die 03:10  
+4. Deceived 05:48  
+5. Watch Me Die 01:24  
+6. God's End 03:36  
+7. Darker Then 02:51  
+8. Down the Drain 01:57  
+9. Void Revised 05:12  
+10. Arsenal 02:31  
+11. Your Demise 04:05 
+
 
 ## Отношения с другими группами
 

@@ -1,9 +1,31 @@
 # Vex
 
-Дискография
-"Thanatopsis" 2010, Thrash
-"Memorious" 2013, Melodic Death Metal
-"Sky Exile" 2016, Black Metal
+
+
+## Дискография
+
+### "Thanatopsis" 2010, Thrash
+
+
+
+### "Memorious" 2013, Melodic Death Metal
+
+
+
+### "Sky Exile" 2016, Black Metal
+
+1. Dry River Days 
+2. To Anacreon (Strangling the Muse) 
+3. Empyrean 
+4. Antithetical Age 
+5. Nowhere Near 
+6. The Cygnus Light 
+7. Solar Sacrament 
+8. Dark Skies Painted 
+9. 30 Miles from Here 
+10. August 11th 
+11. Astral Burial 
+
 
 ## Отношения с другими группами
 

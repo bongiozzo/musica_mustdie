@@ -1,9 +1,51 @@
 # Warbringer
 
-Дискография
-"War Without End" 2008, Thrash
-"Waking Into Nightmares" 2009, Thrash
-"Worlds Torn Asunder" 2011, Thrash
+
+
+## Дискография
+
+### "War Without End" 2008, Thrash
+
+1. Total War 04:30 
+2. Systematic Genocide 03:49 
+3. Dread Command 02:52 
+4. Hell On Earth 03:17 
+5. At The Crack Of Doom 03:40 
+6. Beneath The Waves 03:49 
+7. Instruments Of Torture 03:36 
+8. Shoot To Kill 03:13 
+9. Born Of The Ruins 03:46 
+10. Combat Shock 03:52 
+11. A Dead Current (outro) 03:02 
+
+### "Waking Into Nightmares" 2009, Thrash
+
+
+
+### "Worlds Torn Asunder" 2011, Thrash
+
+1. Living Weapon 04:21 
+2. Shattered Like Glass 03:22 
+3. Wake Up... Destroy 04:41 
+4. Future Ages Gone 03:55 
+5. Savagery 05:02 
+6. Treacherous Tongue 02:22 
+7. Echoes From The Void 05:36 
+8. Enemies Of The State 03:11 
+9. Behind The Veils Of Night (Instrumental) 03:22 
+10. Demonic Ecstasy 05:33
+
+
+John Kevill - Vocals 
+John Laux - Guitar 
+Adam Carroll - Guitar 
+Andy Laux - Bass 
+Carlos Cruz - Drums 
+
+Produced by Steve Evetts (The Dillinger Escape Plan, Every Time I Die)
+ 
+Digipack version comes with a woven patch and 2 bonus tracks: 'Sacrifice' (Bathory cover) and 'Execute Them All' (Unleashed cover). 
+
 
 ## Отношения с другими группами
 

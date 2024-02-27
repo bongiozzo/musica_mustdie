@@ -1,8 +1,36 @@
 # Blazing Eternity
 
-Дискография
-"Times And Unknown Waters" 2000, Death Doom
-"A World To Drown In" 2003, Gothic
+melodic-depressive gothic metal
+
+## Дискография
+
+### "Times And Unknown Waters" 2000, Death Doom
+
+
+
+### "A World To Drown In" 2003, Gothic
+
+1.Cover Me With Your Eyes  04:22  
+2.To Meet You In Those Dreams  03:40  
+3.A World To Drown In  08:16  
+4.Stars In July  04:22  
+5.(Don't) Tell The World  04:35  
+6.Procession  03:10  
+7.En Nat Bliver Det Sommer  04:53  
+8.White  
+
+
+Peter Mesnickow vocals 
+Anders Irgang Kristiansen bass 
+Lars Korsholm drums, percussion, keys 
+Morten Lybecker guitar, vocals 
+ 
+Kim Larsen guitars (1,3) 
+Niels Ronne keys (1,7) 
+Brian Hansen vocals (3,5,9) 
+Ronit Nissenbaum vocals (3,4) 
+Agnete F cello (1,2)
+
 
 ## Отношения с другими группами
 

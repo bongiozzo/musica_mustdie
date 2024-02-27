@@ -1,7 +1,13 @@
 # Deathguy
 
-Дискография
-"The Legend Of Romancer" 2002, Melodic Death Metal
+
+
+## Дискография
+
+### "The Legend Of Romancer" 2002, Melodic Death Metal
+
+
+
 
 ## Отношения с другими группами
 

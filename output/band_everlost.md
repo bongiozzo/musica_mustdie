@@ -1,12 +1,102 @@
 # Everlost
 
-Дискография
-"Suicidal Instincts (demo)" 2002, Melodic Death Metal
-"Bitterness Of The Triumph" 2003, Melodic Death Metal
-"Noise Factory" 2006, Melodic Death Metal
-"Эклектика" 2008, Metalcore
-"Путь непокорных" 2011, Metalcore
-"V" 2016, Melodic Death Metal
+
+
+## Дискография
+
+### "Suicidal Instincts (demo)" 2002, Melodic Death Metal
+
+1.Mental Control
+2.Imprisoned By Ambition
+3.Parasitical Disease
+4.Thought Inquisition
+5.Destined To Be Shattered
+6.Without Judgement
+
+
+Дмитрий Антонов - вокал
+Андрей Смирнов - гитара
+Павел Чернобай - гитара
+Сергей Волков - бас
+
+### "Bitterness Of The Triumph" 2003, Melodic Death Metal
+
+1.Bitterness Of The Triumph
+2.Humanity Wasted
+3.Servant Of Existence
+4.The Paradox... 
+5.Behind The Reflection 
+6.Heritage Of The Desolated
+7.Driven By The Phantom Pain
+8.Thought Inquisition 
+
+
+Andrew, guitar & vocals
+Pavel, guitar
+Serge, bass
+Marsel, drums 
+Guest musicians:
+Sergey Sergeev, vocals
+Michail Panfilov, keys
+
+
+Recorded at Megaton studio during July-September 2003, 
+engineered and mixed by Ruslan Nasyrov, 
+mastered at FM Division Studio by Alexey Martynov
+
+### "Noise Factory" 2006, Melodic Death Metal
+
+1. Intro 
+2. Demolishing The Ruins 
+3. All Your Virtues 
+4. They Say 
+5. Synthetic Masterpiece 
+6. P.I.G. 
+7. Icons Of The Past 
+8. Noise 
+9. The Ministry Of Truth 
+10. Fabric Of Chronology 
+11. Сто миров
+
+
+Андрей Смирнов - гитара, вокал
+Павел Чернобай - гитара
+Сергей Волков - бас
+Сергей Серебренников - барабаны
+
+Гостевые музыканты:
+Максим Самосват - вокал
+Артём Токмаков - клавиши
+
+Запись:
+Студия DreamPort (январь-июнь 2006)
+Звукоинженеры - Максим Самосват, Артём Токмаков
+
+Мастеринг - Андрей Субботин (Saturday Mastering Studio)
+
+### "Эклектика" 2008, Metalcore
+
+
+
+### "Путь непокорных" 2011, Metalcore
+
+
+
+### "V" 2016, Melodic Death Metal
+
+1. Cut Me Loose  03:10  
+2. A Dream Within a Dream  04:08    
+3. No Justice  04:43  
+4. The Unholy War  03:46  
+5. My Babylon  03:57    
+6. Cargo Cult  03:29    
+7. Birth Machine  04:02   
+8. Broken from the Start  04:22   
+9. Theater of Pain  03:35   
+10. The Machete Season  04:43 
+11. Smoke and Mirrors  04:23  
+
+
 
 ## Отношения с другими группами
 

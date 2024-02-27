@@ -1,7 +1,20 @@
 # Athlantis
 
-Дискография
-"Athlantis" 2002, Progressive
+
+
+## Дискография
+
+### "Athlantis" 2002, Progressive
+
+1. Flying Higher (5:00)
+2. Silver And Gold (5:47)
+3. Voices (6:57)
+4. Surrender (5:06)
+5. Listen To Me (6:46)
+6. King Lear (5:50)
+7. Delian (6:00)
+8. End Of All Days (6:28)
+
 
 ## Отношения с другими группами
 

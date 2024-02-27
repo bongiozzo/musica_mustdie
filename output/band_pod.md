@@ -1,14 +1,140 @@
 # P.O.D.
 
-Дискография
-"Snuff The Punk" 1994, Rap Metal
-"Brown" 1996, Rap Metal
-"The Fundamental Elements Of Southtown" 1999, Rap Metal
-"Satellite" 2001, Rap Metal
-"Payable On Death" 2003, Rap Metal
-"Testify" 2006, Rap Metal
-"When Angels And Serpents Dance" 2008, Rap Metal
-"Murdered Love" 2012, Rap Metal
+Payable On Death
+
+## Дискография
+
+### "Snuff The Punk" 1994, Rap Metal
+
+01. Coming Back – 3:46
+02. Let the Music Do the Talking – 3:44
+03. Draw the Line – 2:52
+04. Who Is Right? – 3:47
+05. Get It Straight – 3:19
+06. Run – 3:16
+07. Snuff the Punk – 3:03
+08. Can You Feel It? – 4:48
+09. Three in the Power of One – 4:15
+10. Every Knee – 4:14
+11. Who’s in This House – 2:35
+12. Abortion Is Murder – 2:42
+
+### "Brown" 1996, Rap Metal
+
+01. Intro – 0:47
+02. Know Me – 4:31
+03. Selah – 4:16
+04. Visions – 3:26
+05. Brown – 3:50
+06. One Day – 4:01
+07. Punks Rock – 1:44
+08. Breathe Babylon – 5:02 (featuring Dirt)
+09. Funk Jam – 3:14
+10. Preach – 2:33
+11. Reggae Jam – 0:54
+12. Full Color – 6:18
+13. Seeking the Wise – 4:34 (featuring Dirt)
+14. Live and Die – 3:25
+15. Outro – 0:43
+
+### "The Fundamental Elements Of Southtown" 1999, Rap Metal
+
+01. Greetings – 1:29
+02. Hollywood – 5:22 (featuring Lisa Papineau)
+03. Southtown – 4:08
+04. Checkin’ Levels – 1:06
+05. Rock the Party (Off the Hook) – 3:24
+06. Lie Down – 5:09
+07. Set Your Eyes to Zion – 4:06
+08. Lo Siento – 0:33
+09. Bullet the Blue Sky – 5:18 (featuring Lisa Papineau)
+10. Psalm 150 – 0:55
+11. Image – 3:32
+12. Shouts – 0:55
+13. Tribal – 4:26
+14. Freestyle – 3:57
+15. Follow Me – 3:43
+16. Outkast – 9:33
+
+### "Satellite" 2001, Rap Metal
+
+01. Set It Off – 4:16
+02. Alive – 3:23
+03. Boom – 3:08
+04. Youth of the Nation – 4:19
+05. Celestial – 1:24
+06. Satellite – 3:30
+07. Ridiculous – 4:17
+08. The Messenjah – 4:19
+09. Guitarras de Amor – 1:14
+10. Anything Right – 4:17 (featuring Christian Lindskog from Blindside)
+11. Ghetto – 3:37
+12. Masterpiece Conspiracy – 3:11
+13. Without Jah, Nothing – 3:42 (featuring H.R. from Bad Brains)
+14. Thinking About Forever – 3:46
+15. Portrait – 4:32
+
+### "Payable On Death" 2003, Rap Metal
+
+01. Wildfire – 3:15
+02. Will You – 3:47
+03. Change the World – 3:03
+04. Execute the Sounds – 3:01
+05. Find My Way – 3:09
+06. Revolution – 3:25 (featuring Phil Keaggy)
+07. The Reasons – 3:44
+08. Freedom Fighters – 4:12
+09. Waiting on Today – 3:06
+10. I and Identify – 3:15
+11. Asthma – 4:01
+12. Eternal – 6:19 (featuring Phil Keaggy)
+
+### "Testify" 2006, Rap Metal
+
+01. Roots in Stereo – 4:42 (featuring Matisyahu)
+02. Lights Out – 2:47
+03. If You Could See Me Now – 3:07
+04. Goodbye for Now – 4:34 (featuring Katy Perry)
+05. Sounds Like War – 3:53
+06. On the Grind – 4:25 (featuring Sick Jacken (Psycho Realm), Boo-Yaa T.R.I.B.E., Amy Terrin)
+07. This Time – 4:41
+08. Mistakes & Glories – 3:38
+09. Let You Down – 4:15
+10. Teachers – 4:21
+11. Strength of My Life – 3:37 (featuring Matisyahu)
+12. Say Hello – 2:32
+13. Mark My Words – 3:43 (featuring Sick Jacken)
+
+### "When Angels And Serpents Dance" 2008, Rap Metal
+
+01. Addicted – 3:32
+02. Shine with Me – 3:32
+03. Condescending – 4:02
+04. It Can’t Rain Everyday – 4:42
+05. Kaliforn-Eye-A (feat. Mike Muir of Suicidal Tendencies – 4:29
+06. I’ll Be Ready (feat. Cedella Marley and Sharon Marley – 4:43
+07. End of the World – 4:34
+08. This Ain’t No Ordinary Love Song – 3:43
+08. God Forbid (feat. Page Hamilton of Helmet – 3:55
+10. Roman Empire – 2:42
+11. When Angels & Serpents Dance – 3:16
+12. Tell Me Why – 3:19
+13. Rise Against – 4:52
+
+### "Murdered Love" 2012, Rap Metal
+
+1. Eyez (ft. Jamey Jasta of Hatebreed)
+2. Murdered Love
+3. Higher
+4. Lost In Forever
+5. West Coast Rock Steady (ft. Sen Dog of Cypress Hill)
+6. Beautiful
+7. Babylon The Murderer
+8. On Fire
+9. Bad Boy
+10. Panic & Run
+11. I Am
+
 
 ## Отношения с другими группами
 

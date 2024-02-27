@@ -1,7 +1,51 @@
 # Cain's Offering
 
-Дискография
-"Gather The Faithful" 2009, Power Metal
+
+
+## Дискография
+
+### "Gather The Faithful" 2009, Power Metal
+
+1. My Queen of Winter 04:15
+2. More Than Friends 05:38 
+3. Oceans of Regret 06:21
+4. Gather the Faithful 03:50  
+5. Into the Blue 04:25 
+6. Dawn of Solace 04:18
+7. Thorn in My Side 04:07
+8. Morpheus in a Masquerade 06:51
+9. Stolen Waters 04:35  
+10. Elegantly Broken 02:46 
+
+
+Line-up:
+Timo Kotipelto - Vocals
+Jani Liimatainen - Guitars, Keyboards, Programming, Backing Vocals, Choirs
+Mikko Harkin - Keyboards
+Jukka Koskinen - Bass
+Jani "Hurtsi" Hurula - Drums
+
+All music and lyrics by Jani Liimatainen.
+
+All arrangements by Cain's Offering except "Gather The Faithful" by Cain's Offering, Ron Fish, and Jimmy Westerlund. Additional arrangements by Jimmy Westerlund and Ron Fish.
+
+Drums recorded at DrumForest Studios by Nikke "Discohylje" Niemispelto.
+Bass recorded at Astia Studio by Anssi Kippo.
+Guitars recorded at Studio 57 by Pasi Kauppinen.
+Keyboards recorded at Cornerstone Studio by Mikko Harkin.
+Vocals recorded in the LappajЉrvi wilderness by Jani Liimatainen.
+Backing vocals recorded at Cave Studio, and Living Room Glory Studio by Jani Liimatainen.
+
+Mixed by Jimmy Westerlund, Los Angeles, Hollywood, in 2009.
+Mastered by Eddy Schreyer at Oasis Mastering, Los Angeles Burbank in 2009.
+
+Produced by Jani Liimatainen.
+
+Artwork, phoenix symbol and booklet by: Alex Yarborough.
+Digital Design by Alex Yarborough.
+Logo by Claus Jensen, Intromental Design Agency.
+
+
 
 ## Отношения с другими группами
 

@@ -1,9 +1,64 @@
 # Guidance Of Sin
 
-Дискография
-"Soulseducer" 1999, Melodic Death Metal
-"Acts (Vinyl EP)" 1999, Melodic Death Metal
-"6106" 2000, Melodic Death Metal
+Death metal, ex- A Canorous Quintet
+
+## Дискография
+
+### "Soulseducer" 1999, Melodic Death Metal
+
+01. Guided By Sin
+02. Soulseducer
+03. Desire / Prosecution Of The True Meaning
+04. Dawn Of The New Religion
+05. Fated...
+06. Goodess Of Lies
+07. Soul Disparity
+08. Turning To Reality
+09. The God Who Didnґt Forgive
+
+### "Acts (Vinyl EP)" 1999, Melodic Death Metal
+
+01. Acts
+02. In The Hour Of Peril
+
+### "6106" 2000, Melodic Death Metal
+
+1. Man's Journey
+2. Don't Let God Come Near
+3. In The Hour Of Peril
+4. Nosferatu's Head
+5. Breaking The Circle
+6. Acts
+7. Rock Of The 20s
+8. 6106
+9. The Primeval Myth Of A Vampyre
+10. Killed By Death*
+
+Leini - Vocals
+Link Nirbrandt - Lead Guitar
+Jepp Lofgren - Electric-Rhythm Guitar
+L-e Limnell - Electric-Bass Guitar
+Tob Sillmann - Drums & Tambourine
+
+Recorded during December 1999 and January 2000 at Sunlight Studio, Sweden.
+Engineered by Jocke Pettersson
+Mixed by Jocke Pettersson & Guidance Of Sin
+Produced by Guidance Of Sin & Jocke Pettersson
+Digitally mastered & edited by Ossian Rynger & Bjarke Ahlstrand
+at Ossisounds, Copenhagen
+Executive producers: Michae H. Andersen & Bjarke Ahlstrand
+
+All songs written, arranged and performed by Guidance Of Sin
+All lyrics written by Leini, except* written by Burston/Kilmister
+Published by Motor Music.
+Originally performed by Motorhead
+
+Original Guidance Of Sin logo by Anders Hedberg
+Band photo by Johan Solscher
+Cover design & lay-out by Bjarke Ahlstrand Karen Hjermind
+
+(p) 2000 Mighty Music
+
 
 ## Отношения с другими группами
 

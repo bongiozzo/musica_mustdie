@@ -1,8 +1,60 @@
 # Defecation
 
-Дискография
-"Purity Dilution" 1989, Grindcore
-"Intention Surpassed" 2003, Death Metal
+Legend Of Grindcore, ex-Napalm Death
+
+## Дискография
+
+### "Purity Dilution" 1989, Grindcore
+
+1. Intro - Megaton
+2. Vestige Of Earthly Remains
+3. Life On Planet Earth Is Fucken Cancerous
+4. Contagion
+5. Predominance
+6. Recovery
+7. Side Effects
+8. Mutual Trust
+9. Focus
+10.Popular Belief
+11.Scrutiny
+12.Under Estimation
+
+ Mitch Harris - Bass,Guitars,Vocals
+ Mick Harris - Drums,Bass,Vocals
+
+Produced By DEFECATION,Danny Lilker & Steve.
+
+(p)&(c) 1989 NUCLEAR BLAST Records
+
+
+### "Intention Surpassed" 2003, Death Metal
+
+01. Continuum
+02. Worldy Why's
+03. Fibre Optical Illusion
+04. Fever Pitch
+05. 2/3 Pure
+06. Under Surveillance
+07. Cryonically Preserved
+08. Overself
+09. Protective Rage
+10. Granted Wish
+11. Shortfall
+12. Incline
+13. Time Folding Machine
+
+Mitch Harris (guitar, drums, bass and vocals)
+
+Produced, engineered & Mastered by Russ Russell in
+July 2002, UK
+on location with roland VS1680 16 track mobile
+studio within the UK
+All music isperformed and arranged by Mitch Harris
+All songs composed by Mitch Harris
+All lyrics composed by Mitch Harris
+Logo by Veronika Hollmannova
+Artwork layout by Jorge C.Nariznis and Mitch.
+
 
 ## Отношения с другими группами
 

@@ -1,11 +1,54 @@
 # Forsaken
 
-Дискография
-"Evermore" 1997, Doom
-"Iconoclast" 2002, Doom
-"Anima Mundi" 2004, Doom
-"Dominaeon" 2005, Doom
-"After the Fall" 2009, Doom
+Doom Metal from Malta
+
+## Дискография
+
+### "Evermore" 1997, Doom
+
+1. The Healer
+2. Rubicon
+3. Moon Dancer
+4. Season's End
+5. Vertigo
+6. Winter Tears
+7. Sufferance
+8. Madrigal
+9. Slipstream
+
+### "Iconoclast" 2002, Doom
+
+1. Where Angels Have Fallen 
+2. Via Crucic (The Way of the Cross) 
+3. A Martyr's Prayer 
+4. Wither The Hour
+
+### "Anima Mundi" 2004, Doom
+
+01. Kindred Veil
+02. Sephiroth
+03. The Poet's Nightmare
+04. Whispering Soul
+05. The Eyes of Pormetheus
+06. Carpe Diem
+07. All is Accomplished
+
+### "Dominaeon" 2005, Doom
+
+
+
+### "After the Fall" 2009, Doom
+
+1. Tenebrarum (Intro)
+2. Aidenn Falls
+3. Sins of the Tempter
+4. The Lord Sayeth
+5. Vanguards of the Void
+6. Armida's Kiss
+7. The Sage
+8. Dies Irae (Day of Wrath)
+9. Metatron and the Mibor Mythos
+
 
 ## Отношения с другими группами
 

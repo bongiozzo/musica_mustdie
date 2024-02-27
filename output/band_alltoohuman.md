@@ -1,7 +1,22 @@
 # All Too Human
 
-Дискография
-"Entropy" 2004, Progressive
+
+
+## Дискография
+
+### "Entropy" 2004, Progressive
+
+The Jester
+E-Killer
+Arrhythmia
+Seven Deadly Sins
+Entropy
+Haunted
+White Stones
+Undone
+What Do You Call Me Now?
+The Limits Of Man
+
 
 ## Отношения с другими группами
 

@@ -1,9 +1,45 @@
 # Dominion
 
-Дискография
-"Interface" 1996, Death Doom
-"Blackout" 1998, Death Doom
-"Threshold - A Retrospective" 2006, Death Doom
+Gothic Death-Doom
+
+## Дискография
+
+### "Interface" 1996, Death Doom
+
+1. Tears From The Stars
+2. Millennium
+3. Silhouettes
+4. Alive ? *
+5. Weaving Fear
+6. The Voyage
+7. Deep Into me
+8. Impulse
+9. Conspire To Be
+
+Michelle Richfield - Vocals
+Mass Firth - Vocals, Guitar
+Arno Cagna - Vocals, Guitar
+Danny North - Bass
+Bill Law - Drums
+Guest vocals on * by AZ (MY DYING
+BRIDE)
+
+Produced by DOMINION and Mags.
+Engineered by Mags.
+Recorded and mixed at Academy
+Studios, Dewsbury, W.Yorks.
+All songs by DOMINION.
+
+(p)(c) 1996 PEACEVILLE Records
+
+### "Blackout" 1998, Death Doom
+
+
+
+### "Threshold - A Retrospective" 2006, Death Doom
+
+
+
 
 ## Отношения с другими группами
 

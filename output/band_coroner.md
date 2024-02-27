@@ -1,12 +1,150 @@
 # Coroner
 
-Дискография
-"R.I.P." 1987, Thrash
-"Punishment For Decadence" 1988, Thrash
-"No More Color" 1989, Thrash
-"Mental Vortex" 1991, Thrash
-"Grin" 1993, Thrash
-"Coroner" 1995, Thrash
+Legend Of European Thrash
+
+## Дискография
+
+### "R.I.P." 1987, Thrash
+
+1. Intro
+2. Reborn Through Hate
+3. When Angels Die
+4. (Intro) Nosferatu
+5. Nosferatu
+6. Suicide Command
+7. R.I.P.
+8. Coma
+9. Fried Alive
+10.Intro (Totentanz)
+11.Totentanz
+
+Produced By Harris Johns & CORONER.
+The Other Side Of Madness (Revenge)
+Engineered & Mixed By Harris Johns.
+Recorded At Music Lab,Berlin In March `87.
+
+(p)&(c) 1987 NOISE International
+
+
+### "Punishment For Decadence" 1988, Thrash
+
+1. Intro
+2. Adsorded
+3. Masked Jackal
+4. Arc-Life
+5. Skeleton On Your Shoulder
+6. Sudden Fall
+7. Shadow Of A Lost Dream
+8. The New Breed
+9. Voyage To Eternity
+
+(p)&(c) 1988 NOISE International
+
+
+
+### "No More Color" 1989, Thrash
+
+1. Die By My Hand
+2. No Need To Be Human
+3. Read My Scars
+4. D.O.A.
+5. Mistress Of Deception
+6. Tunnel Of Pain
+7. Why It Hurts
+8. Last Entertainment
+
+ Tommy T.Baron - Guitars
+ Ron Royce - Bass,Lead Vocals
+ Marquis Marky - Drums
+
+Produced By Pete Hinton & CORONER
+Engineered By Steve Rispin
+Mixed By Dan Johnson & Scott Burns At Morrisound, Tampa, Florida
+Recorded At Sky Track Studio, West Berlin, June 1989
+
+(p)&(c) 1989 NOISE Records
+
+### "Mental Vortex" 1991, Thrash
+
+1. Divine Step (Conspectu Mortis)
+2. Son Of Lilith
+3. Semtex Revolution
+4. Sirens
+5. Metamorphosis
+6. Pale Sister
+7. About Life
+8. I Want You (She's So Heavy)*
+
+Tommy T.Baron - Guitars
+Ron Royce - Bass,Lead Vocals
+Marquis Marky - Drums
+
+Keyboards by Kent Smith
+Background Vocals by Janelle Sadler and Steve Gruden.
+Recorded at Sky Trak Studio,Berlin (April & June 91)
+Mixed at Morrisound,Tampa (Florida)
+Produced,Mixed and Engineered by Tom Morris
+Second Engineer Sven Conquest
+Executive Produced Karl - U.Walterbach
+
+(c) 1991 Dark Wings, except*(c) EMI Music
+(p) 1991 Noise international
+
+
+### "Grin" 1993, Thrash
+
+1. Dream Path
+2. The Lethargical Age
+3. Internal Conflicts
+4. Caveat (To The Comming)
+5. Serpent Moves
+6. Status: Still Thinking
+7. Theme For Silence
+8. Paralized,Mesmerized
+9. Grin (Nails Hurt)
+10.Host
+
+ Ron Royce - Bass & Vocals
+ Tommy T.Baron - Guitars
+ Marquis Marky - Drums
+
+All Songs By CORONER.Produced By CORONER.
+Engineered By Gerhard Wofle.
+Recorded At Greenwood Studios,Switzerland,
+Feb-Apr 1993.
+Mixed By Tom Morris At Morrisound Recording,Tampa,FL.
+
+(p)&(c) 1993 NOISE International
+
+### "Coroner" 1995, Thrash
+
+1. Benways World
+2. The Favorite Game
+3. Shifter
+4. Serpent Moves
+5. Snow Crystal
+6. Divine Step (Conspectu Mortis)
+7. Gliding Above While Being Below
+8. Der Mussolini *
+9. Last Entertainment (T.V. Bizarre)
+10.Reborn Through Hate
+[11].Golden Cashemere Sleeper. Part I
+[12].Golden Cashemere Sleeper. Part II
+[13].Masked Jackal
+[14].I Want You (She's So Heavy) **
+[15].Grin (No Religion Remix)
+[16].Purple Haze (Radio Live Cut)
+
+All Songs Written By CORONER, Except * By Delgado / Gorl & ** By Lennon / McCartney.
+Produced By Paolo Fedrigoli & CORONER.
+Recorded & Engineered By Paolo Fedrigoli At Watermill, Prime Time, Switzerland.
+
+Ron Broder - Vocals, Bass
+Tommy Vetterli - Guitars
+Marky Edelmann - Drums
+
+(P)&(C) 1995 NOISE Records
+
 
 ## Отношения с другими группами
 

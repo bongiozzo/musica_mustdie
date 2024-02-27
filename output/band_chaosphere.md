@@ -1,7 +1,13 @@
 # Chaosphere
 
-Дискография
-"Vortex of Reality (demo)" 2002, Metal
+
+
+## Дискография
+
+### "Vortex of Reality (demo)" 2002, Metal
+
+
+
 
 ## Отношения с другими группами
 

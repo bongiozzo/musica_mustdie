@@ -1,7 +1,13 @@
 # Embrace of Disharmony
 
-Дискография
-"Humananke" 2014, Progressive
+
+
+## Дискография
+
+### "Humananke" 2014, Progressive
+
+
+
 
 ## Отношения с другими группами
 

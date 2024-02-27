@@ -1,8 +1,57 @@
 # Дружина
 
-Дискография
-"Эхо далеких битв" 2008, Metal
-"Космоноэтика" 2009, Metal
+International Pagan Black Metal
+
+## Дискография
+
+### "Эхо далеких битв" 2008, Metal
+
+1. Увертюра 
+2. Колесница Правосудия 
+3. Преданья Старины 
+4. Вечера На Окраине Вязкой Свободы 
+5. Ярость Русов 
+6. Достоинство 
+7. Красота В Уединении
+
+
+
+Echoes of Distant Battles was recorded in Copenhagen, Denmark in June 2007,
+apart from song "Les Nuits au Bord de la Liberte Visqueuse", which was recorded
+in Switzerland in august 2006.
+
+All bass guitars were recorded by Michael Cores apart from "Les Nuits..."
+
+Vocals on "Black Forest Aura" by Kaia Hj§&#234;llund
+Guest vocals on "Beauty in Solitude" by Jimmy Collard with Charles Guillaume
+and choirs by Michael Cores
+
+Violins on "Ancient Tales" and "Beauty in Solitude" by Simon R&#168;&#185;fenacht
+
+Cover artwork by Kristina Tandrup
+
+Mixed and Mastered in Copenhagen - 2007
+Produced by Druzhina and Pavel Ruban  
+
+
+### "Космоноэтика" 2009, Metal
+
+1 Хмель Синевы 
+2 Силуэт Непостижимого 
+3 Без Возврата 
+4 Галопом Через Миры 
+5 Скрябин Прелюдия 
+6 Преддверье Бессонницы 
+7 Денница 
+8 Созвездие
+
+
+
+Alexey Cherniavskiy - Drums, Lead Russian Vocals
+Charles-Guillaume Mela - Keyboard, Grand Piano, Acoustic guitars, French Vocals
+Pavel Ruban - Guitars, Acoustic, Mixing, Mastering and Production
+Michael Cores - Studio Bass
+
 
 ## Отношения с другими группами
 

@@ -1,11 +1,83 @@
 # Demoncy
 
-Дискография
-"Faustian Dawn" 1995, Black Metal
-"Within the Sylvan Realms of Frost" 1999, Black Metal
-"Joined in Darkness" 1999, Black Metal
-"Empire of the Fallen Angel" 2003, Black Metal
-"Enthroned Is the Night" 2011, Black Metal
+
+
+## Дискография
+
+### "Faustian Dawn" 1995, Black Metal
+
+1.  Whispers Of Undesired Destines
+2.  Winter Bliss
+3.  Satanic Psalms
+4.  Descending Clouds Of Immortality
+5.  Denial Of The Holy Paradise
+6.  The Enchanted Woods Of Forgotten Lore
+7.  Hidden Path To The Forest Beyond
+8.  The Chill Winds Of Time
+9.  Fullmoon Twilight
+10.  Departure Of The Dismal
+11.  Impure Blessings (Dark Angel Of The Four Wings)
+
+Recorded & Mixed at Desola Studios On Walpurgis Night, 1993
+
+(P)c 1995 SO IT IS DONE PROD // COS 002-D1
+
+### "Within the Sylvan Realms of Frost" 1999, Black Metal
+
+1. Knighthood of the Moonlit Realm  05:54 
+2. Abysmal Shores of the Dark Lands Beyond the Sun  08:21
+3. In Winter's Ancient Slumber  07:12 
+4. The Final Battle For Our Once Glorious Midgard  06:34 
+5. Within the Sylvan Realms of Frost  09:16
+6. Commencement of the Dark Crusades  07:10 
+7. Ascension of a Star Long Since Fallen  04:37 
+8. The Darkbringer  03:19   Show lyrics  
+9. Hypocrisy of the Accursed Heavens  02:31    
+10. The Eternal Winter Shall Never Fade  04:50
+11. Ascencion of a Star Long Since Fallen  04:47    
+12. The Darkbringer  03:39    
+13. Rebirth by Moonlight  05:36 
+
+### "Joined in Darkness" 1999, Black Metal
+
+1. Hymn to the Ancients 01:21  
+2. Impure Blessings (Dark Angel of the Four Wings) 03:58
+3. Demoncy 03:29
+4. Joined in Darkness 05:02
+5. Winter Bliss 04:16
+6. Hypocrisy of the Accursed Heavens 03:15
+7. Spawn of the Ancient Summoning 04:03
+8. Hidden Path to the Forest Beyond 02:24
+9. (Angel of Dark Shadows) Goddess of the Dark 04:22
+10. The Dawn of Eternal Damnation 04:23
+11. Embraced by the Shadows 00:20 
+
+### "Empire of the Fallen Angel" 2003, Black Metal
+
+1. Enchanted Woods Of Forgotten Lore 01:05
+2. The Obsidian Age of Ice 03:47] 
+3. Empire of the Fallen Angel 03:21
+4. Night Song (Apocalyptic Dawn) 03:22
+5. Sepulchral Whispers 04:22
+6. Shadows of the Moon (The Winter Solstice) 04:42
+7. My Kingdom Enshrouded In Necromantical Fog 04:19
+8. Warmarch Of The Black Hordes 03:28
+9. The Ode To Eternal Darkness 06:36 
+
+### "Enthroned Is the Night" 2011, Black Metal
+
+1. Midnight Veil   
+2. Winds Of Plague 
+3. Opening The Lunar Bloodgate 
+4. Unclean Spirits 
+5. Into The Twilight Mists
+6. The Temple Of Shadows   
+7. Enthroned Is The Night 
+8. The Arcane Aristocracy
+9. Black Vengeance Of The Ancient Hordes
+10. City Of Millennia 
+11. Nocturne 
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,35 @@
 # Dreamlore
 
-Дискография
-"Negative Specter" 2003, Death Metal
-"Black Plague Possessed" 2008, Death Metal
+
+
+## Дискография
+
+### "Negative Specter" 2003, Death Metal
+
+1. Portal of new darkness 01:05  
+2. The enemy 04:41
+3. Future winters 05:08
+4. Dawn of the night 03:57
+5. Phantasmagoria 05:39 
+6. Winter Solstice 05:38
+7. Ritual Denied 05:42
+8. Deathґs Sonnet 02:35  
+9. Negative Specter 05:02 
+
+### "Black Plague Possessed" 2008, Death Metal
+
+1. Black Plague Possessed 03:50
+2. Avatar of Misery 02:36
+3. Silent Assassin 04:25
+4. Eve of Armageddon 03:54
+5. Entropy 02:59
+6. Invoking the dead back to life 03:53
+7. Mindslayer 03:52
+8. Suicide Angel 04:06  
+9. Death by Corrosion 04:05  
+10. The enemy 04:41
+11. Death omen 03:41 
+
 
 ## Отношения с другими группами
 

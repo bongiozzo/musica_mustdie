@@ -1,7 +1,24 @@
 # Headrush
 
-Дискография
-"Headrush" 2005, Hard Rock
+
+
+## Дискография
+
+### "Headrush" 2005, Hard Rock
+
+01. My World
+02. Not Just Anyone
+03. Fooling Myself Again
+04. Ordinary Man
+05. All In A Crime
+06. What`s Yours Is Mine
+07. Catch 22
+08. Silence
+09. Young
+10. Change My Life
+11. Get Off The Dime
+12. `Til I Know
+
 
 ## Отношения с другими группами
 

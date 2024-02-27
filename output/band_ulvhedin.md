@@ -1,7 +1,20 @@
 # Ulvhedin
 
-Дискография
-"Pagan Manifest" 2004, Metal
+
+
+## Дискография
+
+### "Pagan Manifest" 2004, Metal
+
+Element of Sorrow 
+Mеnelys 
+The One Eyed God 
+Where the Spirits Gather 
+The Ungodly Path 
+Pagan Manifest 
+Echo of the Godesses voices 
+Gnipahellir
+
 
 ## Отношения с другими группами
 

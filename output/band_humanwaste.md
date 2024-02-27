@@ -1,7 +1,13 @@
 # Human Waste
 
-Дискография
-"Brothel Of Soul" 1999, Death Metal
+gothic death metal from Catalonia
+
+## Дискография
+
+### "Brothel Of Soul" 1999, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,28 @@
 # Mordor (RUS)
 
-Дискография
-"Glamour, glamour" 2008, Industrial
+
+
+## Дискография
+
+### "Glamour, glamour" 2008, Industrial
+
+Мордор
+Гламур!
+На дне
+D.J.Voorda
+Страх
+Hombre Pajaro
+Суперзвёзды
+Фитнесс - убийца
+Машинист
+Голограмма Пустоты
+Скоты
+
+Orkus - вокал 
+Wolfgun гитары, клавишные 
+Hombre Pajaro - бас
+Boomzen-Boomzen - ударные
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,64 @@
 # Giants Causeway
 
-Дискография
-"Is There Any Way..." 1995, Gothic
-"New Light" 1996, Gothic
+
+
+## Дискография
+
+### "Is There Any Way..." 1995, Gothic
+
+1. Pain
+2. Something
+3. Lost
+4. Careless
+5. Is There Any Way
+6. Falling
+7. View From The Inside
+8. Altered States
+9. Withering
+
+All Songs By GIANTS CAUSEWAY.
+Produced By GIANTS CAUSEWAY.
+Recorded & Mixed By Guido Holzmann 
+At Soundbunker Studio.
+
+Guido - Bass
+Wally - Guitar
+Kalle - Vocals
+Babsi - Vocals & Flute
+Jorsch - Drums
+Erich - Guitar
+
+(P)&(C) 1995 MASSACRE Records
+
+### "New Light" 1996, Gothic
+
+1.  Reversion
+2.  Doubt
+3.  New Light
+4.  Gift Of Life
+5.  Stripped
+6.  Death
+7.  Attraction
+8.  Seven Years
+[9].Forever
+[10].Land's End
+[11].Last Train *
+
+[9] - [11] - На стороне B
+
+All Songs By GIANTS CAUSEWAY, except * By GHOST DANCE.
+Produced By GIANTS CAUSEWAY.
+Recorded By GIANTS CAUSEWAY At Soundbunker Studio.
+
+Guido - Bass
+Wally - Guitar
+Kalle - Vocals
+Babsi - Vocals & Flute
+Jorsch - Drums
+Erich - Guitar
+
+(P)(C) 1996 MASSACRE Records
+
 
 ## Отношения с другими группами
 

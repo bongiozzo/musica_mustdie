@@ -1,7 +1,22 @@
 # Liturgia
 
-Дискография
-"Veritatis Splendor" 2000, Death Doom
+death-doom metal
+
+## Дискография
+
+### "Veritatis Splendor" 2000, Death Doom
+
+Vampire's Return
+Endless
+Veritatis Splendor
+Enigma
+Landscapes Of Souls
+Windfall
+Ethereal Dream
+In Perpetuum
+Wounds Of Sadness
+At The End Of The Storm
+
 
 ## Отношения с другими группами
 

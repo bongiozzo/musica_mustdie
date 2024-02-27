@@ -1,8 +1,64 @@
 # Lost Horizon
 
-Дискография
-"Awakening The World" 2001, Power Metal
-"A Flame To The Ground Beneath" 2003, Power Metal
+
+
+## Дискография
+
+### "Awakening The World" 2001, Power Metal
+
+01. The Quickening
+02. Heart Of Storm
+03. Sworn In The Metal Wind
+04. The Song Of Air
+05. World Through My Fateless Eyes
+06. Perfect Warrior
+07. Denial Of Fate
+08. Welcome Back
+09. The Kingdom Of My Will
+10. The Redintegration
+
+
+All songs, arrangements and lyrics are procreated and revealed to this world by Wojtek Lisicki, except "Welcome Back" – music: Baskim Zuta/Wojtek Lisicki, lyrics: Wojtek Lisicki/Baskim Zuta and "The Kingdom Of My Will" music: Wojtek Lisicki/Baskim Zuta, lyrics: Wojtek Lisicki
+
+Produced by Wojtek Lisicki and Lost Horizon
+
+Artwork- and layout ideas by Lost Horizon
+
+Lost Horizon logo by Martin Furдngen
+
+Artwork and computer graphics realisation by Niklas Sundin
+
+Photos by Daniel Pedersen
+
+Ritual warrior paintings by Gunnar Lundgren
+
+Typesetting by David Kremer
+
+Executive production by Martin Furangen and Baskim Zuta 
+
+
+All the above took place during the aeon of torture, from March through August 2000, which means in the very beginning of the Millennium of Armageddon, in the epicentre of misery, melancholy and trivial emptiness - Gothenburg, Sweden
+
+The once lost horizon is found, but the misery is still burning the souls... 
+ 
+
+ 
+
+
+
+
+### "A Flame To The Ground Beneath" 2003, Power Metal
+
+01. Transdimensional Revelation
+02. Pure
+03. Lost In The Depths Of Me
+04. Again Will The Fire Burn
+05. The Song Of Earth
+06. Cry Of A Restless Soul
+07. Think Not Forever
+08. Highlander (The One)
+09. Deliverance
+
 
 ## Отношения с другими группами
 

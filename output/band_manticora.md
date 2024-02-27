@@ -1,14 +1,162 @@
 # Manticora
 
-Дискография
-"Dead End Solution" 1997, Power Metal
-"Roots of Eternity" 1999, Power Metal
-"Darkness With Tales to Tell" 2001, Progressive
-"Hyperion" 2002, Power Metal
-"8 Deadly Sins" 2004, Power Metal
-"The Black Circus (Part 1 - Letters)" 2006, Power Metal
-"The Black Circus (Part 2 - Disclosure)" 2007, Power Metal
-"Safe" 2010, Progressive
+Progressive Power/Speed Metal
+
+## Дискография
+
+### "Dead End Solution" 1997, Power Metal
+
+1. Dead End Solution 05:51  
+2. How? 03:50 
+3. In Silence 04:12 
+4. The Pain You Offer 04:49 
+5. In Your Face 05:55 
+
+
+Kristian Larsen: lead, rhythm & acoustic guitar and backing vocals
+Lars Larsen: vocals and rhythm guitar
+Rene Nielsen: bass
+Mads Volf: drums
+
+All guitars played by Kristian Larsen
+
+Recorded & Mixed at: El-Sound Studios, Denmark 
+Mastered at: Tocano, Denmark 
+Produced & Mixed by: Morten Bue
+
+### "Roots of Eternity" 1999, Power Metal
+
+1. From Far Beyond (Intro) 00:31  
+2. When Forever Ends 06:49 
+3. The Vision 04:58 
+4. Intoxicated 06:37  
+5. Beyond The Walls of Sleep 03:32  
+6. Nowhere Land 05:00 
+7. The Flood 09:25
+8. Pale Faces 04:32  
+9. Private Hell 03:45  
+10. Roots of Eternity 11:44 
+
+
+Recorded & Mixed at: Aabenraa Studios, Denmark 
+Mastered at: Athens Mastering Studio, Greece 
+Produced & Mixed by: Jacob Hansen 
+Mastered by: Chris Hadjestamou 
+Artwork & Layout by: Robert Sindermann
+
+### "Darkness With Tales to Tell" 2001, Progressive
+
+1. From Far Beyond (Intro) 00:39 
+2. The Chance Of Dying In A Dream 05:29  
+3. Dynasty Of Fear 04:44 
+4. Dragon's Mist 08:57
+5. Felice 06:37  
+6. The Nightfall War 05:28
+7. The Puzzle 06:11 
+8. Critical Mass 05:03  
+9. Lost Souls 06:01 
+10. The Twilight Shadow 05:26
+11. Shadows With Tales To Tell 07:03 
+
+
+Recorded, Mixed & Mastered at: Aabenraa Studios, Denmark 
+Produced, Mixed & Mastered by: Jacob Hansen 
+Artwork & Layout by: Chris Kallias
+
+### "Hyperion" 2002, Power Metal
+
+1. A Gathering Of Pilgrims 02:21  
+2. Filaments Of Armageddon 07:36  
+3. The Old Barge 03:51  
+4. Keeper Of Time - Eternal Champion 07:53 
+5. Cantos 07:00  
+6. On A Sea Of Grass - Night 01:41  
+7. Reversed 07:36
+8. On A Sea Of Grass - Day 03:03 
+9. A Long Farewell 08:44 
+10. At The Keep 04:40  
+11. Swarm Attack 02:09  
+12. Loveternaloveternal... 07:03 
+13. Future World (bonus track Japan)
+
+### "8 Deadly Sins" 2004, Power Metal
+
+1. If? 03:07  
+2. King Of The Absurd 06:06  
+3. Playing God 05:42  
+4. Melancholic 05:30  
+5. Creator Of Failure 07:40  
+6. It Feels Like The End 07:27  
+7. Enigma 06:31  
+8. Fall From Grace 04:20  
+9. Help Me Like No One Can 05:12  
+10. If, Then... 03:18  
+11. Private Hell (Japanese bonus track)
+
+
+Lars F. Larsen - vocals
+Kristian Larsen - guitars
+Kasper Gram - bass 
+Mads Volf - drums
+
+Special Guest : Martin Arendal - guitars
+
+### "The Black Circus (Part 1 - Letters)" 2006, Power Metal
+
+1. Enter The Carnival; 
+2. The Black Circus; 
+3. Intuneric I; 
+4. Enchanted Mind; 
+5. Intuneric II; 
+6. Forever Carousel; 
+7. Freakshow; 
+8. Gypsies Dance pt.1; 
+9. Intuneric III; 
+10. Wisdom; 
+11. Intuneric IV; 
+12. Disciples Of The Entities
+
+All songs written by MANTICORA
+Recorded and mixed by Tommy Hansen and MANTICORA
+Recorded, mixed and engineerd at Jailhouse Studios, Horsens, Denmark
+
+Mads Volf - Drums
+Lars F.Larsen - Vocals
+Larsen - Guitars
+Kasper Gram - Bass
+Martin Arendal - Guitars
+
+Female Vocals by Karin Borum
+Choir by MANTICORA and Tommy Hansen
+
+### "The Black Circus (Part 2 - Disclosure)" 2007, Power Metal
+
+Entrance 
+Beauty Will Fade 
+Gypsies“ Dance Part 2 
+Intuneric V 
+Haita Di Lupi 
+When The Soulreapers Cry 
+Intuneric VI 
+All That Remain 
+Intuneric VII 
+Of Madness In Its Purity 
+
+### "Safe" 2010, Progressive
+
+1. In The Abyss Of Desperation 05:32
+2. Silence The Freedom 07:05  
+3. Complete 05:30 
+4. From The Pain Of Loss ( I Learned About The Truth) 04:37 
+5. A Lake That Drained 06:02
+6. Carrion Eaters 06:35  
+7. Safe 14:10  
+8. Embryonic Man (bonus track Japan)  
+
+
+
+
+
 
 ## Отношения с другими группами
 

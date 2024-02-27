@@ -1,7 +1,34 @@
 # Saturnian
 
-Дискография
-"Dimensions" 2012, Black Metal
+Symphonic Black Metal
+
+## Дискография
+
+### "Dimensions" 2012, Black Metal
+
+01. Construct Illusion 01:36 
+02. Into Etherea 05:55 
+03. Aphotic 05:18 
+04. Eternal Eclipse 07:37 
+05. Shadow Of Prophecy 06:07 
+06. Traces From The Past 02:10 
+07. Dimensions 05:51 
+08. Origins Of The Future 06:05 
+09. The Immaculate Deception 09:46 
+10. Wreathed In Flame (Bonus Track) 06:53
+
+Producer Russ Russell (Dimmu Borgir, Napalm Death, Evile) 
+
+D. Scrivener - Bass, Vocals, Programming, Orchestration
+S. Greenland - Drums
+M. Barber - Guitars, Vocals 
+M. Williams - Guitars, Vocals, Programming
+Wilson - Vocals  
+
+Additional Musicians: 
+J. Scrivener - Keys and Orchestration
+Lydia Bateman - Soprano Vocals
+
 
 ## Отношения с другими группами
 

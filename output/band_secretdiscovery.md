@@ -1,9 +1,76 @@
 # Secret Discovery
 
-Дискография
-"A Question Of Time" 1996, Death Doom
-"Hello Goodbye" 1996, Death Doom
-"Pray" 2004, Gothic
+
+
+## Дискография
+
+### "A Question Of Time" 1996, Death Doom
+
+1. Colour My Life 
+2. One Good Reason 
+3. Hello Goodbye 
+4. Just For You (Again) 
+5. A Question Of Time 
+6. Ask Your God 
+7. War 
+8. Think About 
+9. Wrapped In Black 
+10.What A Light
+11.Society
+                              
+Music - SD
+Lyrics - Kai Hoffman
+
+Produced by Jorg Umbracht and Heri
+Reipoler.
+Recorded At Principal Studios Senden.
+Violin On "War" By Doro Morgner.
+
+(P)&(C) 1996 GREAT UNLIMITED NOISES // GUN O83
+
+### "Hello Goodbye" 1996, Death Doom
+
+1.  Hello Goodbye
+2.  Hello Goodbye (Single-Edit)
+3.  Society
+4.  Give It Back
+
+All Songs Written By SECRET DISCOVERY.
+Produced By Jorg Umbracht & Heri Reipoler.
+Recorded At Principal Studios Senden.
+
+(P)c 1996 GUN Records
+
+### "Pray" 2004, Gothic
+
+1. Down
+2. To The Moon
+3. Some Of This
+4. Sieh Nicht Zuruck
+5. I Turn To You *
+6. New Day
+7. The Tragedy Within
+8. More Than I Love
+9. Une Derniere Fois
+10. Another Exit
+11. Close As You Are
+12. Pray
+
+All songs written by SECRET DISCOVERY
+except * written by Melanie Chrisholm
+Produced by Dirk Riegner and Kai Hoffmann
+Recorded and engineered by Dirk Riegner
+Recorded and mixed at DRP Studios, Koln
+
+Kai Hoffmann - Vocals
+Falk Hoffmann - Guitars
+Ramses - Guitars
+Mathias Glathe - Bass
+Dirk Riegner - Backing Vocals, Keyboards, Programming
+Lars Graebe - Drums
+
+Female Vocals by Lisa (XANDRIA)
+
 
 ## Отношения с другими группами
 

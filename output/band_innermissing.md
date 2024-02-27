@@ -1,8 +1,31 @@
 # Inner Missing
 
-Дискография
-"The Age Of Silence" 2010, Death Doom
-"Escapism" 2011, Death Doom
+
+
+## Дискография
+
+### "The Age Of Silence" 2010, Death Doom
+
+1. Intro 02:41  
+2. Coldness 05:46
+3. My Sickened Hope 07:08
+4. Euphoria 05:02  
+5. For Your Light 06:06
+6. The Essence of Pain 05:27
+7. Raze From Remembrance 07:25
+8. Outro 01:33 
+
+### "Escapism" 2011, Death Doom
+
+1.	 A Note In Her Hands	05:41	 
+2.	 Dreamless Skies (Nightmares Pt.1)	04:37	 
+3.	 Devotion	05:54	 
+4.	 The Distance	04:43	 
+5.	 Narcolepsia (Nightmares Pt.2)	04:37	 
+6.	 Providence	05:43	 
+7.	 Close Your Eyes	06:14	 
+8.	 Heroin Silence	07:28	
+
 
 ## Отношения с другими группами
 

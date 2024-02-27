@@ -1,13 +1,46 @@
 # Angel Dust
 
-Дискография
-"Marching for Revenge (demo)" 1985, Speed Metal
-"Into the Dark Past (LP)" 1986, Speed Metal
-"To Dust You will Decay (LP)" 1988, Speed Metal
-"Border of Reality" 1998, Power Metal
-"Bleed" 1999, Power Metal
-"Enlighten the Darkness" 2000, Power Metal
-"Of Human Bondage" 2002, Power Metal
+German Power Metal
+
+## Дискография
+
+### "Marching for Revenge (demo)" 1985, Speed Metal
+
+
+
+### "Into the Dark Past (LP)" 1986, Speed Metal
+
+
+
+### "To Dust You will Decay (LP)" 1988, Speed Metal
+
+
+
+### "Border of Reality" 1998, Power Metal
+
+
+
+### "Bleed" 1999, Power Metal
+
+
+
+### "Enlighten the Darkness" 2000, Power Metal
+
+
+
+### "Of Human Bondage" 2002, Power Metal
+
+1. The Human Bondage 4:14
+2. Inhuman 4:02
+3. Unreal Soul 4:57
+4. Disbeliever 5:43
+5. Forever 5:22
+6. Unite 4:58
+7. Got This Evil 4:01
+8. The Cultman 6:11
+9. Freedom Awaits 4:25
+10. Killer 3:33
+
 
 ## Отношения с другими группами
 

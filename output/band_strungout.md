@@ -1,7 +1,27 @@
 # Strung Out
 
-Дискография
-"Suburban Teenage Wasteland Blues" 1996, Punk
+
+
+## Дискография
+
+### "Suburban Teenage Wasteland Blues" 1996, Punk
+
+1.  Firecracker
+2.  Better Days
+3.  Solitaire
+4.  Never Good Enough
+5.  Gear Box
+6.  Monster
+7.  Bring Out Your Dead
+8.  Rottin' Apple
+9.  Radio Suicide
+10.Somnobulance
+11.Six Feet
+12.Speed Ball
+13.Wrong Side Of The Tracks
+
+(P)c 1996 FAT WRECK CHORDS // FAT~537
+
 
 ## Отношения с другими группами
 

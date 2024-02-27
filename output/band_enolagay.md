@@ -1,7 +1,13 @@
 # Enola Gay
 
-Дискография
-"Strange Encounter" 1999, Thrash
+
+
+## Дискография
+
+### "Strange Encounter" 1999, Thrash
+
+
+
 
 ## Отношения с другими группами
 

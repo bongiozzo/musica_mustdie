@@ -1,9 +1,64 @@
 # Factory Of Art
 
-Дискография
-"Grasp!!!" 1996, Progressive
-"Point Of No Return" 1997, Progressive
-"The Tempter" 2002, Progressive
+prog-metal
+
+## Дискография
+
+### "Grasp!!!" 1996, Progressive
+
+01. Never Dying Hero (N.D.H.)
+02. No Fixed Adress
+03. Until The End Of Time
+04. Live Fast
+05. Wings Of Destiny
+06. Character Of Society
+07. The Other Side
+08. Queen Of Seduction
+09. Solitary Soldier
+10. Long Way To The Hight
+
+Gunter - vox, keys
+Flecke - guitars
+Joe F. Winter - guitars, backs
+Ron - bass, backs
+Wolf - drums 
+
+
+### "Point Of No Return" 1997, Progressive
+
+01. The Point Of No Return
+02. Crown Of Creation
+03. Silent Crying
+
+
+Gunter - vox, keys
+Flecke - guitars
+Joe F. Winter - guitars, backs
+Ron - bass, backs
+Wolf - drums
+
+### "The Tempter" 2002, Progressive
+
+01. Overture: Adam's Theme
+02. Story Of Pain
+03. No Tears
+04. The Tempter
+05. The Healing: Part I
+06. Streets Of Violence
+07. The Healing: Part II
+08. Temple Of Doom
+09. The Mass
+10. The Ritual
+11. Twilight Zone
+12. Walking On Fire
+
+Petri - vox
+Flecke - guitars
+Joe F. Winter - guitars, backs
+Ekky - keys, backs
+Ron - bass, backs
+Ralph - drums
+
 
 ## Отношения с другими группами
 

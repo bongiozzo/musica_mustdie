@@ -1,7 +1,32 @@
 # Golem
 
-Дискография
-"Eternity: The Weeping Horizons" 1996, Deathcore
+
+
+## Дискография
+
+### "Eternity: The Weeping Horizons" 1996, Deathcore
+
+1.  Throne Of Confinement
+2.  Mental Force
+3.  In My Favorite Darkness
+4.  Dedication
+5.  Emotionally Astray
+6.  Incarnated Beast 
+7.  Message From The Past
+8.  The Fall
+9.  Beyond The Future Skies
+
+All Songs Written By GOLEM.
+Produced By GOLEM.
+Engineered By Dan Swano.
+Recorded & Mixed At Unisound Studio, Orebro.
+
+Andreas Hilbert - Guitars, Vocals
+Michael Marschalk - Drums
+Rico Spiller - Bass
+
+(P)c 1996 INVASION Records
+
 
 ## Отношения с другими группами
 

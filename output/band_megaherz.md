@@ -1,12 +1,89 @@
 # Megaherz
 
-Дискография
-"Wer Bist Du" 1997, Industrial
-"Kopfschuss" 1998, Industrial
-"Himmelfahrt" 2000, Industrial
-"Querschnitt" 2001, Industrial
-"Herzwerk II" 2002, Industrial
-"5" 2005, Industrial
+
+
+## Дискография
+
+### "Wer Bist Du" 1997, Industrial
+
+
+
+### "Kopfschuss" 1998, Industrial
+
+
+
+### "Himmelfahrt" 2000, Industrial
+
+
+
+### "Querschnitt" 2001, Industrial
+
+1 Miststьck  
+2 Gott sein  
+3 Kopf durch die Wand  
+4 Wer bist Du  
+5 Kopfschuss  
+6 Herz aus Stein  
+7 Jordan  
+8 Burn 
+9 Rappunzel  
+10 Himmelfahrt  
+11 Tanz auf dem Vulkan  
+12 Das Licht am Ende der Welt  
+13 Hurra wir leben noch  
+14 Schlag zurьck  
+15 Teufel  
+16 Hдnschenklein  
+17 Freiflug  
+18 Freiflug - Album Version  
+19 Liebestцter (Club Mix)  
+20 Liebestцter (Atomic Mix)  
+21 Rock me Amadeus (Radio Edit)  
+22 Rock me Amadeus (Fieberwahn Mix)  
+23 Gott sein (Blemish's Buss & Bet Mix  
+24 Gott sein (Kerosin Take Off Mix)  
+25 Himmelfahrt (Radio Version)  
+26 Freiflug (CD Extra mit Video, Bio, Photos) 
+ 
+
+
+### "Herzwerk II" 2002, Industrial
+
+1 Herzblut  
+2 Glas und Trдnen  
+3 I.M. Rumpelstilzchen  
+4 5. Mдrz  
+5 F.F.F. Flesh for Fantasy  
+6 Hand auf's Herz  
+7 Zu den Sternen  
+8 Licht II (Instrumental)  
+9 Heute schon gelebt?  
+10 An deinem Grab  
+11 Perfekte Droge  
+12 Spiel nicht ...  
+13 Gold 
+
+2002 Firestarter/BMG 
+
+ 
+
+
+### "5" 2005, Industrial
+
+01. Dein Herz schlдgt
+02. Gцttlich
+03. Ja genau
+04. Gott sein '04
+05. Wann wirst du gehn?
+06. Mach dich frei 
+07. Eigentlich
+08. Zeig mir dein Gesicht
+09. Ebbe & Flut
+10. Komm 'rьber (Schattenland)
+11. Weiter
+12. Es tut weh
+13. Augenblick
+
 
 ## Отношения с другими группами
 

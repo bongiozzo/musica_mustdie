@@ -1,27 +1,507 @@
 # Edguy
 
-Дискография
-"Savage Poetry" 1995, Power Metal
-"Kingdom of Madness" 1997, Power Metal
-"Vain Glory Opera" 1998, Power Metal
-"Theatre of Salvation" 1999, Power Metal
-"The Savage Poetry (Re-Recorded)" 2000, Power Metal
-"Mandrake" 2001, Power Metal
-"Burning Down the Opera (live)" 2003, Power Metal
-"King Of Fools EP" 2004, Power Metal
-"Hellfire Club" 2004, Power Metal
-"Lavatory Love Machine (single)" 2004, Power Metal
-"Hall Of Flames" 2004, Power Metal
-"Superheroes EP" 2005, Power Metal
-"Superheroes DVD" 2005, Power Metal
-"Rocket Ride" 2006, Power Metal
-"Tinnitus Sanctus " 2008, Hard Rock
-"The Singles" 2008, Power Metal
-"Fucking With F*** - Live [CD/DVD]" 2009, Power Metal
-"Age Of The Joker" 2011, Hard Rock
-"Sabre & Torch " 2014, Heavy Metal
-"Space Police - Defenders of the Crown" 2014, Heavy Metal
-"Monuments (compilation+new)" 2017, Heavy Metal
+German Speed-Power
+
+## Дискография
+
+### "Savage Poetry" 1995, Power Metal
+
+
+
+### "Kingdom of Madness" 1997, Power Metal
+
+1. Paradise 
+2. Wings Of A Dream 
+3. Heart Of Twilight 
+4. Dark Symphony 
+5. Deadmaker 
+6. Angel Rebellion 
+7. When A Hero Cries 
+8. Steel Church 
+9. The Kingdom
+
+### "Vain Glory Opera" 1998, Power Metal
+
+1. Overture
+2. Until We Rise Again
+3. How Many Miles
+4. Scarlet Rose
+5. Out Of Control
+6. Vain Glory Opera
+7. Farytale
+8. Walk On Fighting
+9. Tomorrow
+10. No More Foolin'
+11. Hymn
+
+Felix Bohnke - Drums
+Dirk Saver - Guitars
+Tobias Sammet - All Vocals, Bass, Keyboards
+Jens Ludwig - Guitars
+All Drums On This album played by Frank Lindenthal
+
+Produced by EDGUY
+Mixed at Finnvox Studio by Timo Tolkki
+Guest musicians:
+Ralf Zdiarstek - add. choir vocals on 1,2,5,6,8,10
+Norman Meiritz - add. choir vocals on 1,2,5,6,10
+Hansi Kursch - add. lead vocals on 5 and 6
+Timo Tolkki - add. lead guitar on 5
+Andy Allendorter - shouting choir on 10
+
+(p)(c)1998 AFM RECORDS
+
+### "Theatre of Salvation" 1999, Power Metal
+
+1. The Healing Vision
+2. Babylon
+3. The Headless Game
+4. Land Of The Miracle
+5. Wake Up The King
+6. Falling Down
+7. Arrows Fly
+8. Holy Shadows
+9. Another Time
+10. The Unbeliever
+11. Theatre Of Salvation
+12. For A Trace Of Life
+13. Walk On Fighting (Live in Milan)
+
+All Songs written by EDGUY
+Produced by EDGUY
+Engineered by Norman Meiritz
+Recorded and mixed at Rhoen Records Studio, Fulda, Germany
+
+Tobias Sammet - Vocals, Keyboards
+Jens Ludwig - Guitar
+Dirk Sauer - Guitar
+Tobias Exxel - Bass
+Felix Bohnke - Drums
+
+Frank Tischer - Piano
+
+(p)(c)1999 AFM Records
+
+### "The Savage Poetry (Re-Recorded)" 2000, Power Metal
+
+1. Hallowed
+2. Misguiding Your Life
+3. Key To My Fate
+4. Sands Of Time
+5. Sacred Hell
+6. Eyes Of The Tyrant
+7. Frozen Candle
+8. Roses To No One
+9. Power And Majesty
+
+(p) 2000 AFM
+
+### "Mandrake" 2001, Power Metal
+
+Tears Of A Mandrake
+Golden Dawn
+Jerusalem
+All The Clowns
+Nailed To The Wheel
+Pharaoh
+Wash Away The Poison
+Fallen Angels
+Painting On The Wall
+Save Us Now
+The Devil And The Savant *
+Wings Of A Dream 2001*
+
+### "Burning Down the Opera (live)" 2003, Power Metal
+
+Disc I:
+
+01. Intro
+02. Fallen Angels
+03. Tears Of A Mandrake
+04. Babylon
+05. Land Of The Miracle
+06. Painting On The Wall
+07. Wings Of A Dream
+08. The Headless Game
+09. The Pharaoh 
+
+Disc II:
+
+01. Vain Glory Opera
+02. Drum Solo
+03. Save Us Now
+04. How Many Miles
+05. Inside
+06. Avantasia
+07. Out Of Control 
+
+### "King Of Fools EP" 2004, Power Metal
+
+01. King Of Fools (3:30)
+02. New Age Messiah (5:58)
+03. The Savage Union (4:14)
+04. Holy Water (4:13)
+05. Life and Times Of A Bonus Track (3:23)
+
+Recorded by Norman Meritz and Sacha Paeth at Rhoen
+Records Studio, Fulda
+Vox Klangstudio/Hamburg & Gate Studio/Wolfsburg,
+Germany
+Orchestra recorded by Michael Schubert at Scoring
+Stage/Berlin, Germany
+Orchestra conducted by Matthias Suschke
+Orchestra scoring by Michael "Miro" Rosenberg
+Mixed by Mikko Karmila at Finnvox
+Studios/Helsinki, Finland
+Mastered by Mika Jussila at Finnvox
+Studios/Helsinki, Finland
+Life and Times Of A Bonus Track recorded at
+Finnvox Studios by Mikko Karmila
+Cover and layout: Thomas Ewerhard
+Bandphoto: Alex Kuehr
+
+Dirk Sauer - rhythm and lead guitar
+Jens Ludwig - lead- and rhythm guitar
+Tobias Sammet - vocals
+Tobias "Eggi" Exxel - bass
+Felix Bohnke - drums
+
+### "Hellfire Club" 2004, Power Metal
+
+01. Mysteria
+02. The Piper Never Dies
+03. We Don't Need A Hero
+04. Down To The Devil
+05. King Of Fools
+06. Forever
+07. Under The Moon
+08. Lavatory Love Machine
+09. Rise Of The Morning Glory
+10. Lucifer In Love
+11. Navigator
+12. The Spirit Will Remain
+Bonustracks:
+13. Children Of Steel
+14. Mysteria (featuring Mille Petrozza)
+
+Tobias Sammet - vocals
+Jens Ludwig - guitar
+Dirk Sauer - guitar
+Tobias 'Eggi' Exxel - bass
+Felix Bohnke - drums
+
+Produced by Edguy.
+Recorded by Norman Meiritz & Sascha Paeth at Rhoen
+Records
+Studio/Fuida/Germany, Vox
+Klangstudio/Hamburg/Germany &
+Gate-Studio/Wolfsburg/Germany.
+Recording assisted by Daniel Schindler.
+Orchestra recorded by Michael Schubert at Scoring
+Stage/Berlin/Germany.
+Orchestra conducted by Matthias Suschke.
+Orchestra scored by Michael 'Miro' Rodenberg.
+Mixed by Mikko Karmilla at Finnvox
+Studio/Helsinki/Finland.
+Mastered by Mika 'Cunt' Jussila at Finnvox Studio.
+Keyboards played by Michael Rodenberg & Tobias
+Sammet.
+Backing vocals sung by Amanda Somerville, Oliver
+Hartmann,
+Ralf Rambi Roxx Zdiarstek, Thomas Rettke, Daniel
+Schmitt & Edguy.
+Special appearance: Film-orchestra, Babelsberg.
+Cover by JP Fournier & Thomas Ewerhard.
+Layout by Thomas Ewerhard.
+Photography by Alex Kuehr, assisted by: Sabine
+Nania, Markus Bergmann,
+Ronny Schonebaum & Claudia Vaihinger.
+
+### "Lavatory Love Machine (single)" 2004, Power Metal
+
+01. Lavatory Love Machine 
+02. Lavatory Love Machine (acoustic version) * 
+03. I'll Cry For You (EUROPE cover - acoustic version) * 
+04. Reach Out (new ballad) * 
+05. Lavatory Love Machine (video clip) *
+
+*Denotes non-album tracks
+
+### "Hall Of Flames" 2004, Power Metal
+
+Диск 1 
+Tears of a Mandrake (single version) 
+Jerusalem 
+Out of Control 
+The Headless Game 
+Scarlet Rose 
+Nailed to the Wheel 
+Vain Glory Opera 
+Theater of Salvation 
+Key to my Fate 
+Deadmaker 
+Land of the Miracle 
+Until We Rise Again 
+The Unbeliever 
+
+Диск 2 
+The Devil & the Savant 
+Wings of a Dream (2001 version) 
+For a Trace of Life 
+But Here I Am 
+La Marche des Gendarmes 
+Avantasia (live) 
+Walk On Fighting (live) 
+Wake Up the King (live)
+All the Clowns (video)
+The Headless Game (video live)
+
+### "Superheroes EP" 2005, Power Metal
+
+01. Superheroes
+02. Spooks In The Attic
+03. Blessing in Disguise
+04. Judas At The Opera
+05. The Spirit
+06. Superheroes (Epic Version)
+
+Special guest: Michael Kiske
+
+### "Superheroes DVD" 2005, Power Metal
+
+-Superheroes videoclip (5.1 & 2.0 Stereo)
+-Intro - Live in Brazil (5.1 & 2.0 Stereo)
+-Mysteria - Live in Brazil (5.1 & 2.0 Stereo) 
+-Under The Moon - Live in Brazil (5.1 & 2.0 Stereo)
+-Navigator - Live in Brazil (5.1 & 2.0 Stereo)
+-Edguy - The Road Movie (Great Stuff!)
+-Studio Documentary (Even Greater Stuff!)
+-The Making of the Video Clip (Funny Stuff!)
+-Slideshow (Really good stuff!)
+
+Monty Python goes Metal! Contains loads of never before seen photos, interviews, and terribly bad jokes. 77 minutes of pure madness!
+
+### "Rocket Ride" 2006, Power Metal
+
+1. Sacrifice 08:03  
+2. Rocket Ride 04:49  
+3. Wasted Time 05:48  
+4. Matrix 04:10  
+5. Return To The Tribe 06:07  
+6. The Asylum 07:39  
+7. Save Me 03:47  
+8. Catch Of The Century 04:03  
+9. Out Of Vogue 04:36  
+10. Superheroes 03:20  
+11. Trinidad 03:29  
+12. Fucking With Fire (The Hairforce One) 04:23
+
+### "Tinnitus Sanctus " 2008, Hard Rock
+
+All songs written by Tobias Sammet
+Produced by Sascha Paeth
+Tobias Sammet-Vocals
+Jens Ludwig-Guitars
+Dirk Sauer- Guitars
+Tobias "Eggi" Exxel- Bass
+Felix Bohnke- Drums
+All music and POWER METAL lyrics written by Tobias Sammet
+Produced, recorded and mixed by Sascha Paeth at Gatestudios: Wolfsburg from May to September 2008
+Additional engineering by Miro Rodenberg, Olaf Reitmeier and Simon Oberender
+Keyboards played by Miro Rodenberg
+Backing vocals sung by Oliver Hartmann, Thomas Rettke & Claudia Boots- Zimmermann
+Mastered by Sascha Paeth & Miro Rodenberg at Gatestudio in September 2008
+Photos by Alex Kuehr (www.alexkuehr.com)
+Cover artwork and layout by Thomas Ewerhard (www.thomas-ewerhard.com)
+Live photos by Friso Gentsch
+A&R: Andy Siry for Nuclear Blast Records
+Tour management: AC Dreffein & Ju,rg Zaske at All Access info@all-access.de
+Business affairs: Markus Steffen at Musicas
+Webmaster: Harmon Caldwell
+www.edguy.net
+Edguy Thanks: Sascha Paeth, Miro Rodenberg, Оle Reitmeier, Simon Oberender, Oliver Hartmann, Thomas "Fredl" Rettke, Claudia Boots-Zimmermann, Giampiero Lampieri & Granato Rambocco, Robert Hunecke, Yuki & Harmon Caldwell, Marion Haupt & Alex, Thomas Ewerhard, Alex Kuehr, AC Dreffein, Joerg Zaske, Heike Grotelbschen, Markus Steffen, Andy Siry, Markus Staiger, Yorck Eysel, Gerardo Martinez and Mike Ruiz at MB Los
+
+### "The Singles" 2008, Power Metal
+
+01. Superheroes
+02. Spooks In The Attic
+03. Blessing In Disguise
+04. Judas In The Opera Feat. Michael Kiske
+05. The Spirit
+06. Superheroes (Epic Version)
+07. Lavatory Love Machine
+08. Lavatory Love Machine (Accoustic Version)
+09. Ill Cry For You
+10. King Of Fools
+11. New Age Messiah Feat. Film Orchestra Babelsberg
+12. The Savage Union Feat. Film Orchestra Babelsberg
+13. Holy Water Feat. Film Orchestra Babelsberg
+14. Life And Times Of A Feat. Film Orchestra Babelsberg (Bonus Track)
+
+
+### "Fucking With F*** - Live [CD/DVD]" 2009, Power Metal
+
+1. Catch Of The Century   
+2. Sacrifice   
+3. Babylon   
+4. Lavatory Love Machine   
+5. Land Of the Miracle   
+6. Tears Of A Mandrake   
+7. Vain Glory Opera   
+8. Drum Solo   
+9. Superheroes   
+10. Fucking With Fire   
+11. Save Me   
+12. Mysteria   
+13. Out Of Control   
+14. Avantasia   
+15. King Of Fools 
+
+### "Age Of The Joker" 2011, Hard Rock
+
+01. Robin Hood
+02. Nobody's Hero
+03. Rock Of Cashel
+04. Pandora's Box
+05. Breathe
+06. Two Out Of Seven
+07. Faces In The Darkness
+08. The Arcane Guild
+09. Fire On The Downline
+10. Behind The Gates To Midnight World
+11. Every Night Without You
+
+
+The special edition includes a second disc with the following track list: 
+1. God Fallen Silent 
+2. Aleister Crowley Memorial Boogie 
+3. Cum On Feel The Noize (Slade-Cover) 
+4. Standing In The Rain 
+5. Robin Hood (single version) 
+6. Two Out Of Seven (single version) 
+
+Tobias Sammet - Vocals, Keys
+Tobias 'Eggi' Exxel - Bass Guitar
+Jens Ludwig - Lead Guitar
+Dirk Sauer - Rhythm Guitar
+Felix Bohnke - Drums
+
+Produced by Sascha Paeth
+Recorded at Peppermint-Park, Hannover &
+Garcstudio, Wolfsburg in April & May 2011
+Recorded by Sascha Paeth,
+Oiaf Reitmeier & Simon Oberender
+Mixed by Sascha Paeth
+ar Gatesrudiii, Wolfsburg in May 2011
+Mastered by Simon Oberender
+at Gatestudio, Woltsburg
+Keyboards & orchestration by Miro Rodenberg
+Additional keyboards by Sascha Paeth
+Hammond B3 played by Simon Oberender
+Backing vocals sung by Cloudy Yang,
+Gracia Sposito, Thomas Recrke,
+Oliver Hartmann and Tobias Samnict
+Cover artvyork by Dan Frazier
+Bookler layout by Thomas Ewerhard
+Photos by Alex Kuehr
+Camera assistance by Tarek Musleh
+Make Up by Vanessa Hagemann
+
+### "Sabre & Torch " 2014, Heavy Metal
+
+1. Sabre & Torch 
+
+### "Space Police - Defenders of the Crown" 2014, Heavy Metal
+
+1. Sabre & Torch 05:00
+2. Space Police 06:00
+3. Defenders of the Crown 05:39
+4. Love Tyger 04:26
+5. The Realms of Baba Yaga 06:07
+6. Rock Me Amadeus (Falco cover) 03:20
+7. Do Me Like a Caveman 04:09
+8. Shadow Eaters 06:08
+9. Alone in Myself 04:36
+10. The Eternal Wayfarer 08:50
+
+
+Released as regular edition, limited 2 CD digibook edition and strictly limited hardcover earbook collectors' edition (28.5x28.5cm) containing the two discs, a photographic history with more than 130 photos from the band's archive, liner-notes, touring history, etc.
+ 
+Bonus CD:
+ 1. England (04:25)
+ 2. Aychim in Hysteria (04:01)
+ 3. Space Police (progressive version) (06:00)
+ 4. Space Police (instrumental version) (06:00)
+ 5. Love Tyger (instrumental version) (04:27)
+ 6. Defenders of the Crown (instrumental version) (05:38)
+ 7. Do Me Like a Caveman (instrumental version) (04:11) 
+
+### "Monuments (compilation+new)" 2017, Heavy Metal
+
+Disc 1 (CD)  
+1. Ravenblack  05:09  
+2. Wrestle the Devil  04:00  
+3. Open Sesame  05:00    
+4. Landmarks  04:34    
+5. The Mountaineer  03:57    
+6. 9-2-9  03:47    
+7. Defenders of the Crown  05:42    
+8. Save Me  03:46    
+9. The Piper Never Dies  10:09    
+10. Lavatory Love Machine  04:23    
+11. King Of Fools  04:20    
+12. Superheroes  03:19    
+13. Love Tyger  04:27    
+14. Ministry of Saints  05:03    
+15. Tears of a Mandrake  07:14    
+  
+Disc 2 (CD)  
+1. Mysteria  05:46  
+2. Vain Glory Opera  06:09  
+3. Rock of Cashel  06:18    
+4. Judas at the Opera  07:19 
+5. Holy Water  04:13    
+6. Spooks in the Attic  04:03  
+7. Babylon  06:13    
+8. The Eternal Wayfarer  08:49    
+9. Out of Control  05:05    
+10. Land of the Miracle  06:33    
+11. Key to My Fate  04:33   
+12. Space Police  06:03    
+13. Reborn in the Waste  04:19    
+  
+Disc 3 (DVD)  
+1. Mysteria      
+2. Under the Moon      
+3. Navigator 
+4. Wake up the King    
+5. Land of the Miracle  
+6. Lavatory Love Machine   
+7. Vain Glory Opera      
+8. Fallen Angels      
+9. The Piper Never Dies   
+10. Babylon  
+11. King of Fools    
+12. Chalice of Agony (feat. Andre Matos)  
+13. Tears of a Mandrake  
+14. Out of Control   
+15. Love Tyger (Video Clip)   
+16. Robin Hood (Video Clip)  
+17. Two Out of Seven (Video Clip)   
+18. Ministry of Saints (Video Clip)      
+19. Superheroes (Video Clip)  
+20. Lavatory Love Machine (Video Clip)  
+21. King of Fools (Video Clip)     
+22. All the Clowns (Video Clip)  
+
+
+2CD+DVD digibook. 
+First five tracks on CD1 are new songs.
+
+The concert on the DVD was recorded live at Espaco das Americas, Sao Paulo, Brazil , on October 2nd 2004. 
+Tracks 15 to 22 on the DVD are video clips.
+
+
 
 ## Отношения с другими группами
 

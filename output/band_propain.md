@@ -1,24 +1,429 @@
 # Pro-Pain
 
-Дискография
-"Foul Taste Of Freedom" 1993, Hardcore
-"The Truth Hurts" 1994, Hardcore
-"Contents Under Pressure" 1996, Hardcore
-"Pro-Pain" 1998, Hardcore
-"Best Of Pro-Pain" 1998, Hardcore
-"Act Of God" 1999, Hardcore
-"Round 6" 2000, Hardcore
-"Shreds Of Dignity" 2002, Hardcore
-"Run For Cover" 2003, Hardcore
-"Fistful Of Hate" 2004, Hardcore
-"Prophets Of Doom" 2005, Hardcore
-"The Tenth Crusade" 2007, Hardcore
-"No End In Sight" 2008, Hardcore
-"Absolute Power" 2010, Hardcore
-"20 Years Of Hardcore [CD/DVD]" 2011, Hardcore
-"Straight To The Dome" 2012, Hardcore
-"The Final Revolution" 2013, Hardcore
-"Voice Of Rebellion" 2015, Hardcore
+
+
+## Дискография
+
+### "Foul Taste Of Freedom" 1993, Hardcore
+
+1.  Foul Taste Of Freedom
+2.  Death On The Dance Floor
+3.  Murder 101
+4.  Pound For Pound
+5.  Every Good Boy Does Fine
+6.  Death Goes On
+7.  Rawhead
+8.  The Stench Of Piss
+9.  Picture This
+10.Iraqnophobia
+11.Johnny Black
+12.Lesson Learned
+13.God Only Knows
+
+ Gary Meskil - Vocals, Bass
+ Tom Klimchuck - Guitars
+ Dan Richardson - Drums
+
+Produced, Recorded & Mixed By Alex Perialas
+Recorded & Mixed At Pyramid Sound Studios, Ithaca, New York
+Mastered At Hit Factory Masterings, NYC
+
+(p)&(c) 1993 ENERGY Records
+
+### "The Truth Hurts" 1994, Hardcore
+
+1.  Make War (Not Love)
+2.  Bad Blood
+3.  The Truth Hurts
+4.  Put The Lights Out
+5.  Denial
+6.  Let Sleeping Dogs Lie
+7.  One Man Army
+8.  Down In The Dumps
+9.  The Beast  Is Back
+10.Switchblade Knife
+
+ Gary Meskil - Vocals, Bass
+ Nick St. Denis - Lead Guitars
+ Mike Hollman - Rhythm Guitars
+ Dan Richardson - Drums
+ Ice-T - Additional Vocals
+
+Produced By Alex Perialas & Gary Meskil
+Engineered By Rob 'Wacko' Hunter
+Recorded At Pyramid Sound, Ithaca, NY
+
+(p)&(c) 1994 ROADRUNNER Prod.
+
+### "Contents Under Pressure" 1996, Hardcore
+
+1.  Crush
+2.  Shine
+3.  State Of Mind
+4.  Gunya Down
+5.  The Mercy Killings
+6.  Contents Under Pressure
+7.  Against The Grain
+8.  Box City
+9.  Odd Man Out
+10.Political Suicide
+
+All songs written by PRO-PAIN
+Produced by PRO-PAIN
+
+Engineered by Tom Klimchuk and Paul Nieder
+Recorded at Toni and Rob's House
+
+Tom Klimchuck - Lead Guitar
+Rob Moschetti - Rhythm Guitar
+Dan Richardson - Drums
+Gary Meskil - Bass and Vocals
+
+(p)(c) 1996 ENERGY Records
+
+### "Pro-Pain" 1998, Hardcore
+
+01. Get Real
+02. Time
+03. No Love Lost
+04. Don't Kill Yourself To Live
+05. Love/H8
+06. Life's Hard
+07. Mark My Words
+08. My Time Will Come
+09. Smokin' Gun
+10. Godsize
+11. Blood Red
+
+Gary Meskil - vocals and bass
+Rob Moschetti - rhythm guitar
+Tom Klimchuck - lead guitar
+Dave Chavarri - drums
+
+All songs written by Pro-Pain.
+Produced by Pro-Pain.
+Drums and bass recorded by Vincent Wojno at Quad
+Studios NYC.
+Guitars and vocals recorded by Tom Klimchuck at
+Robs house (Pro-Pain Studios).
+Mixed by Vincent Wojno and Pro-pain.
+Assistant engineer: Ben Holt.
+Mixed at Quad Studios NYC.
+Mastered by Dirk Ulrich at J.A.M. Studios in
+Leverkusen (Germany).
+Artwork by Mark Ulrich.
+Photos by Frank White.
+
+### "Best Of Pro-Pain" 1998, Hardcore
+
+01. Take It Back (The Lost Track)
+02. Foul taste Of Freeedom
+03. Death On The Dance Floor
+04. Murder 101
+05. Pound For Pound
+06. Johnny Black
+07. Make War Not Love
+08. The Truth Hurts
+09. Switchblade Knife
+10. Put The Lights Out
+11. Denial
+12. Crush
+13. Shine
+14. State Of Mind
+15. Take It Personal (demo version)
+
+Produced by Alex Perialas, Alex Perialas & Gary
+Meskil, Gary
+Meskil with Eric Klinger & Tom Klimchuck.
+Engineered by Torsten Patzold and Jens Ruthenbeck.
+Recorded and engineered by Eric Klinger & Tom
+Klimchuck.
+Mastered by Dirk Ulrich at J.A.M. Studios in
+Leverkusen (Germany).
+Coordineted by Stan Vincent.
+Artwork by Mark Ulrich.
+
+### "Act Of God" 1999, Hardcore
+
+1. Stand Tall
+2. In For The Kill
+3. Act Of God
+4. On Parade
+5. I Remain
+6. Time Will Tell
+7. Pride
+8. Love And War
+9. Hopeless?
+10. Burn
+11. All Fall Down
+12. F.S.U.
+
+All Songs written by Pro-Pain
+Engineered by Tom Klimchuk and Eric Klinger
+Recorded and mixed at J.A.M. Studios, Leverkusen, Germany
+
+Tom Klimchuk - Guitars
+Eric Klinger - Guitars
+Eric Matthews - Drums
+Gary Meskil - Bass And Vocals
+
+(p)(c)1999 Rawhead Records
+
+### "Round 6" 2000, Hardcore
+
+Fed Up 
+Desensitize 
+Substance 
+All Or None 
+Status Quo 
+Fuck It 
+Psywar 
+Take It Personal 
+Make Some Noise 
+Let Live 
+Thou Shall Not 
+Draw Blood 
+Down In Flames 
+
+
+### "Shreds Of Dignity" 2002, Hardcore
+
+1. The Shape Of Things To Come
+2. Gone Fishin’
+3. Down For The Cause
+4. No Way Out
+5. Shreds Of Dignity
+6. Walk Away
+7. Fuck Off And Die
+8. Lock N’ Load
+9. Casualties Of War
+10. 24/7
+11. Justice Must Be Done
+12. Kill Or Be Killed
+
+
+### "Run For Cover" 2003, Hardcore
+
+Never Again 
+Circle of the Tyrants 
+Crowd 
+Refuse/Resist 
+Iron Fist 
+100% 
+Terpentin 
+Nothing 
+Weeds 
+Just Sit There 
+Damaged, Pt. 
+Your Mistake 
+Knife Edge 
+South of Heaven
+
+### "Fistful Of Hate" 2004, Hardcore
+
+01. Can You Feel It?
+02. Left For Dead
+03. Godspeed
+04. Implode
+05. American Dreams
+06. Cut Throat
+07. Aftermath
+08. Save Face
+09. The Better Half Of Forever
+10. Freedom Rings
+11. Lost Horizons
+12. Fistful Of Hate
+
+Gary Meskil - bass, vox
+Tom Klimchuck - lead guitar
+Eric Klinger - rhythm guitar, vox
+JC Dwyer - drums
+
+Guest vocals: Stephan Weidner (Die Bohse Onkelz)
+on "Godspeed",
+Krazy-K & Drew (Struggle) on "Cut Throat" and "Can
+You Feel It?",
+Nick Warren (Stuck) on "Cut Throat" and "Can You
+Feel It?".
+Keys on "Godspeed": Meskil.
+All songs written by Meskil except: "Implode",
+"Left For Dead", "Fistful Of Hate" by
+Meskil/Klinger and "The Better Half Of Forever" by
+Klimchuck.
+Produced by Pro-Pain.
+Recorded and mixed at Pro-Pain Studios (Crime Lab
+Audio) in
+Sarasota and Klinger Studio in Pittsburgh.
+Recorded and engineered by Tom Klimchuck and Eric
+Klinger.
+Mastered at Pro-Pain Studios by Tom Klimchuck.
+Artwork and design: Eric Klinger & Gary Meskil.
+
+### "Prophets Of Doom" 2005, Hardcore
+
+01. Neocon
+02. Un-American
+03. Hate Marches On
+04. One World Ain’t Enough
+05. Getting Over
+06. Operation Blood for Oil
+07. Torn
+08. Death Toll Rises
+09. The Prisoner
+10. Days of Shame
+
+### "The Tenth Crusade" 2007, Hardcore
+
+1. The New Reality 04:20  
+2. All For King George 04:07  
+3. Pigs In Clover 02:01  
+4. Beyond The Pale 05:00  
+5. Three Minutes Hate 02:57  
+6. Heads Will Rock 03:35  
+7. Company Jerk 03:33  
+8. Impeach Indict Imprision 03:59  
+9. Leveler 02:11  
+10. Iraqnam 03:53  
+11. Live Free (Or Die Trying) 03:49
+
+### "No End In Sight" 2008, Hardcore
+
+01. Let The Blood Run Through The Streets ( 2:18)
+02. Halo ( 3:17)
+03. Hour Of The Time ( 3:54)
+04. To Never Return ( 4:48)
+05. Where We Stand ( 3:37)
+06. Phoenix Rising ( 4:11)
+07. Go It Alone ( 4:12)
+08. All Rise ( 3:01)
+09. God's Will ( 4:10)
+10. The Fight Goes On ( 3:37)
+11. Where We Stand (Ream Mix) ( 3:34)
+
+Gary Meskil: bass, vox
+Tom Klimchuck: lead guitar
+Marshall Stephens: rhythm guitar
+JC Dwyer: drums
+
+Produced by .Gary Meskil and Tom Klimchudk
+Recorded, Engineered, Mixed, and Mastered by
+Tom Klimchuck at The Pickle Jar in Northport Fl.
+Drums Recorded by Jeremy Staska at Studio 13 in
+Deerfield Beach, Fl. Goto
+http://www.studio13.com
+Front Cover Art: Deca Raluca c/o Dreamstime
+Photo, Layout, & Additional Design by Scott White
+Check out Scott's work at
+http://www.visualvortex.com
+Business Affairs: Stan The Man Vincent
+Accounting: Murray Richman at RBM
+Pro-Pain uses Schecter Guitars, DR Strings,
+Tech21 NYC, and Ddrum
+All songs published by Rawhead, Inc.
+European co-publisher: Budde Musikverlag
+Live Sound Engineer: Luc Van den Bossche
+Stage Manager: Peter Hertz
+
+### "Absolute Power" 2010, Hardcore
+
+1. Unrestrained 03:47  
+2. Destroy The Enemy 04:47  
+3. Stand My Ground (feat. Schmier of Destruction) 03:39  
+4. Road To Nowhere 04:43  
+5. AWOL 02:49  
+6. Hell On Earth 04:57  
+7. Divided We Stand 01:49  
+8. Gone Rogue (I Apologize) 04:45  
+9. Rise Of The Antichrist 03:20  
+10. Hate Coalition 02:38 
+
+### "20 Years Of Hardcore [CD/DVD]" 2011, Hardcore
+
+Disc 1
+1. Damnation	 
+2. Hands in the Jar 
+3. Someday Bloody Someday 
+4. True Liberation	 
+5. Foul Taste of Freedom 2011 
+6. Make War (Not Love) 2011 
+7. Denial 2011 
+8. Shine 2011 
+9. Keine Amnestie fьr MTV	 
+10. Unrestrained [Live]	 
+11. Three Minutes Hate [Live]	 
+12. Can You Feel It? [Live]	 
+13. UnAmerican [Live]	 
+14. Neocon [Live]	 
+15. No Way Out [Live] 
+16. Fuck It [Live]	 
+17. Draw Blood [Live]	 
+18. The Shape of Things to Come [Live]	 
+19. In for the Kill [Live]	 
+20. Let the Blood Run Through the Streets [Live] 
+21. Foul Taste of Freedom [Live]	 
+22. All for King George [Live]5	 
+23. Destroy the Enemy [Live]	 
+	 
+Disc 2
+1. Beograd Concert at SKC 1998 [DVD]		 
+2. Pro-Pain with Full Force [DVD]		 
+3. Live at Lausitzring [DVD]		 
+4. Fan Filmed Footage [DVD]		 
+5. Rare Clips from the Vault [DVD]		 
+6. Down for the Cause [Video] [DVD]
+
+### "Straight To The Dome" 2012, Hardcore
+
+01. Straight To The Dome 	
+02. Payback 	
+03. Nothing Left 	
+04. Bitter Pill 	
+05. Pure Hatred 	
+06. Sucks To Be You 	
+07. Bloodlust For War 	
+08. A Good Day To Die 	
+09. Fallen Son 	
+10. Judge 	
+11. Zugabe!
+
+### "The Final Revolution" 2013, Hardcore
+
+01. Deathwish (2:45)
+02. One Shot One Kill (2:55)
+03. Southbound (2:43)
+04. Problem Reaction Solution (3:27)
+05. The Final Revolution (3:05)
+06. Can't Stop The Pain (2:54)
+07. All Systems Fail (3:28)
+08. Want Some? (2:55)
+09. Fall From Grace (2:44)
+10. Emerge (3:38)
+11. Mass Extinction (2:53)
+12. Under The Gun (3:20)
+13. Life's Hard - Live 2010 (Bonus Track) (3:28)
+14. Get Real - Live 2010 (Bonus Track) (2:08)
+15. Party In Paris - UK Subs Cover (Bonus Track) (2:41)
+
+### "Voice Of Rebellion" 2015, Hardcore
+
+01. Voice Of Rebellion
+02. No Fly Zone
+03. Righteous Annihilation
+04. Souls On Fire
+05. Take It To The Grave
+06. Age Of Disgust
+07. Bella Morte
+08. Cognitive Dissonance
+09. Blade Of The Cursed
+10. Crushed To Dust
+11. Enraged
+12. Hellride
+13. DNR (Do Not Resuscitate)
+14. Fuck This Life
+15. Johnny Black 2015 (bonus track)
+16. Stand Tall (live 2013) (bonus track)
+17. Make War (Not Love) (live 2013) (bonus track)
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,13 @@
 # Neotruth
 
-Дискография
-"32'42" Short Infinity" 1999, Death Doom
+
+
+## Дискография
+
+### "32'42" Short Infinity" 1999, Death Doom
+
+
+
 
 ## Отношения с другими группами
 

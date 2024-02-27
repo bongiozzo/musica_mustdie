@@ -1,13 +1,37 @@
 # Filter
 
-Дискография
-"Short Bus" 1995, Alternative
-"Title Of Record" 1999, Alternative
-"The Amalgamut" 2002, Alternative
-"Anthems For The Damned" 2008, Alternative
-"Remixes For The Damned" 2008, Alternative
-"The Very Best Things (1995–2008)" 2009, Alternative
-"The Trouble With Angels" 2010, Alternative
+
+
+## Дискография
+
+### "Short Bus" 1995, Alternative
+
+
+
+### "Title Of Record" 1999, Alternative
+
+
+
+### "The Amalgamut" 2002, Alternative
+
+
+
+### "Anthems For The Damned" 2008, Alternative
+
+
+
+### "Remixes For The Damned" 2008, Alternative
+
+
+
+### "The Very Best Things (1995–2008)" 2009, Alternative
+
+
+
+### "The Trouble With Angels" 2010, Alternative
+
+
+
 
 ## Отношения с другими группами
 

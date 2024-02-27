@@ -1,7 +1,22 @@
 # Territory
 
-Дискография
-"Killer Instinct" 2011, Thrash
+
+
+## Дискография
+
+### "Killer Instinct" 2011, Thrash
+
+1.	 Madness		 
+2.	 Step Down		 
+3.	 Tomb		 
+4.	 Killer Instinct		 
+5.	 Dark Night		 
+6.	 Crazy Abel		 
+7.	 Desire		 
+8.	 Evil Conquer		 
+9.	 Fire Inside		 
+10.	 Firestorm
+
 
 ## Отношения с другими группами
 

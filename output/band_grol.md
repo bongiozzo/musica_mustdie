@@ -1,7 +1,25 @@
 # Grol
 
-Дискография
-"True Stench Never Dies" 2005, Grindcore
+propagandic death/grind metal band warshiping the great Beerkhult
+
+## Дискография
+
+### "True Stench Never Dies" 2005, Grindcore
+
+1. Anal Grinder
+2. Grinding Gremlin
+3. Anal Khult
+4. Anal Khult
+5. Anal Stench of Nocturnal Defecator
+6. Confecal Stench Emission
+7. GROL
+8. Khulth ov 997
+9. 5 o'clock vomit
+10. Nurture of Gore
+11. Regurgitator
+12. Sunken In Putridity
+13. Analinis Parshiukas (soft version)
+
 
 ## Отношения с другими группами
 

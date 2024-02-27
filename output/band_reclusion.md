@@ -1,7 +1,21 @@
 # Reclusion
 
-Дискография
-"Shell Of Pain" 2001, Thrash
+
+
+## Дискография
+
+### "Shell Of Pain" 2001, Thrash
+
+01. Shell Of Pain
+02. Impulsive
+03. Pressure
+04. Reclusion
+05. The Quest
+06. Sacred Ground
+07. Unspoken Fear
+08. A Force Of One
+09. Speak The Truth
+
 
 ## Отношения с другими группами
 

@@ -1,12 +1,146 @@
 # Sex Pistols
 
-Дискография
-"Never Mind The Bollocks Here`s The Sex Pistols" 1977, Punk
-"Flogging The Dead Horse" 1979, Punk
-"The Great Rock'N'Roll Swindle" 1985, Punk
-"Early Daze" 1993, Punk
-"Filthy Lucre Live" 1996, Punk
-"Chaos" 1996, Punk
+
+
+## Дискография
+
+### "Never Mind The Bollocks Here`s The Sex Pistols" 1977, Punk
+
+1.  Holidays In The Sun
+2.  Bodies
+3.  No Feelings
+4.  Liar
+5.  God Save The Queen
+6.  Problems
+7.  Seventeen
+8.  Anarchy In The U.K.
+9.  Submission
+10.Pretty Vacant
+11.New York
+12.E.M.I.
+
+Johnny Rotten - Vocals
+Sid Vicious - Bass
+Steve Johns - Guitars
+Paul Cook - Drums
+
+(p)&(c) 1977 VIRGIN Records
+
+### "Flogging The Dead Horse" 1979, Punk
+
+1.  Anarchy In The U.K.
+2.  I Wanna Be Me
+3.  God Save The Queen
+4.  Did You No Wrong
+5.  Pretty Vacant
+6.  No Fun
+7.  Holidays In The Sun
+8.  No One Is Innocent
+9.  My Way
+10.Something Else
+11.Silly Thing
+12.C'Mon Everybody
+13.(I'm Not Your) Stepping Stone
+
+Johnny Rotten - Vocals
+Sid Vicious - Bass & Vocals
+Steve Johns - Guitars & Vocals
+Paul Cook - Drums & Vocals
+
+Produced By Malcolm McLaren.
+
+6   - By STOOGES.
+8   - By Jones & Biggs
+9   - By Revaux, Francois & Anka
+10 - By Sheerly & Cochran
+12 - By Cape, Hart & Cochran
+13 - By Boyce & Hart
+
+(p)&(c) 1979 VIRGIN Records
+
+### "The Great Rock'N'Roll Swindle" 1985, Punk
+
+1.  God Save The Queen
+2.  Johnny B.Goode
+3.  Road Runner
+4.  Black Arabs
+5.  Anarchy In The U.K.
+6.  Substitute
+7.  Don't Give Me No Lip Child
+8.  (I'm Not Your) Stepping Stone
+9.  L'Anarchie Pour Le U.K.
+10.Belsen Was A Gas
+11.Einmal Belsen War Wirflich Bortrefflich
+    (Belsen Vosa Gassa)
+12.Silly Thing
+13.My Way
+14.I Wanna Be Me
+15.Something Else
+16.Rock Around The Clock
+17.Lonely Boy
+18.Something Else
+19.No One Is Innocent
+20.C'mon Everybody
+21.EMI (Orch.)
+22.The Great Rock'N'Roll Swindle
+23.Friggin' In The Riggin'
+24.You Need Hands
+25.Who Killed Bambi
+
+(p)+(c) 1985 VIRGIN Records
+
+### "Early Daze" 1993, Punk
+
+1.  I Wanna Be Me
+2.  No Feelings
+3.  Anarchy In The U.K.
+4.  Satellite
+5.  Seventeen
+6.  Submission
+7.  Pretty Vacant
+8.  God Save The Queen
+9.  Liar
+10.EMI
+11.New York
+
+(P)c 1993 VIRGIN Records
+
+### "Filthy Lucre Live" 1996, Punk
+
+1.  Bodies
+2.  Seventeen
+3.  New York
+4.  No Feelings
+5.  Dig You No Wrong
+6.  God Save The Queen
+7.  Liar !
+8.  Satellite
+9.  (I'm Not Your) Stepping Stone
+10.Holidays In The Sun
+11.Submission
+12.Pretty Vacant
+13.E.M.I.
+14.Anarchy In The U.K.
+15.Problems
+16.Bodies
+
+(P)c 1996 VIRGIN Records
+
+### "Chaos" 1996, Punk
+
+1.  No Feelings
+2.  Problems
+3.  Substitute
+4.  Don't Give Me No Lip Child
+5.  (I'm Not Your) Stepping Stone
+6.  Roadrunner
+7.  Whatcha' Gonna Do About It ?
+8.  I'm Lazy Sod
+9.  I Wanna Be Me
+10.God Save The Queen
+
+(P)c 1996 VIRGIN Records
+
 
 ## Отношения с другими группами
 

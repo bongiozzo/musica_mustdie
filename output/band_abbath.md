@@ -1,8 +1,33 @@
 # Abbath
 
-Дискография
-"Count the Dead (single)" 2015, Black Metal
-"Abbath" 2016, Black Metal
+
+
+## Дискография
+
+### "Count the Dead (single)" 2015, Black Metal
+
+1. Count the Dead    
+2. Riding on the Wind (Judas Priest cover)  
+
+
+King - Bass 
+Creature - Drums 
+Abbath - Vocals, Guitars 
+
+
+
+### "Abbath" 2016, Black Metal
+
+1. To War      
+2. Winter Bane  
+3. Ashes of the Damned
+4. Ocean of Wounds      
+5. Count the Dead      
+6. Fenrir Hunts      
+7. Root of the Mountain     
+8. Eternal      
+9. Nebular Ravens Winter (Immortal cover) *
+
 
 ## Отношения с другими группами
 

@@ -1,12 +1,120 @@
 # Laibach
 
-Дискография
-"Let It Be" 1988, Industrial
-"Sympathy For The Devil" 1988, Industrial
-"Macbeth" 1989, Industrial
-"Kapital" 1992, Industrial
-"NATO" 1994, Industrial
-"Jesus Christ Superstars" 1996, Industrial
+
+
+## Дискография
+
+### "Let It Be" 1988, Industrial
+
+1. Get Back
+2. Two Of Us
+3. Dig A Pony
+4. I Me Mine
+5. Across The Universe
+6. Dig It
+7. I've Got A Feeling
+8. The Long & Winding Road
+9. One After 909
+10.For You Blue
+11.Maggie Mae
+
+All Songs By BEATLES.
+Produced By LAIBACH.
+
+(p)&(c) 1988 MUTE Records
+
+### "Sympathy For The Devil" 1988, Industrial
+
+1. Time For Change
+2. Dem Teufel Zugereigt
+3. Anastasia *
+4. Who Killed The Kennedys (Part I)
+5. Who Killed The Kennedys (Part II)
+6. Soul To Waste
+7. Sympathy For The Devil
+8. Soul To Waste (Instrumental)
+
+All Songs By Jagger/Richards,
+Except * By LAIBACH.
+Produced By LAIBACH.
+
+(p)&(c) 1988 MUTE Records
+
+### "Macbeth" 1989, Industrial
+
+1. Prelidium
+2. Agnus Dei (Acropolis)
+3. Wutah Sclucht
+4. Die Zeit
+5. Ohne Geld
+6. U.S.A.
+7. 10.05.1941
+8. Expectants Expectavos
+9. Coincidentia Opositorum
+10.Wolf
+11.Agnus Dei (Exil Pund Tod)
+
+Macbeth - Music For Life And
+Theatre.
+Produced By LAIBACH.
+Recorded At Studio Tivolli.
+
+(p)&(c) 1989 MUTE Records
+
+### "Kapital" 1992, Industrial
+
+1. Decade Null
+2. Everlasting In Union
+3. Illumination
+4. Le Privilege Des Morts
+5. Codex Durex
+6. Hymn To The Black Sun
+7. Young Europa Pts 1-10
+8. The Hunter's Funeral Procession (From The "Wunderhorn" Trilogy)
+9. White Law
+10. Wirstchaft Ist Tot
+11. Torso
+12. Entartete Welt (The Discovery Of The North Pole)
+13. Kinderreich
+14. Sponsored By Mars
+15. Regime Of Coincidence, State Of Gravity
+
+ LAIBACH Is Part Of NEUE SLOWENISCHE KUNST.
+
+All Track Written & Programmed At NSK Studio Reichstag, Ljublana, Recorded & Mixed At Worldwide, London
+
+(p)&(c) 1992
+
+### "NATO" 1994, Industrial
+
+1. NATO
+2. War
+3. Final Countdown
+4. In The Army Now
+5. Dogs Of War
+6. Alle Gegen Alle
+7. National Reservation
+8. 2525
+9. Mars On River Drina
+
+Produced By LAIBACH.
+
+(P)&(C) 1994 MUTE Records Stumm 121
+
+### "Jesus Christ Superstars" 1996, Industrial
+
+1. God Is God
+2. Jesus Christ Superstar
+3. Kingdom Of God
+4. Abuse And Confession
+5. Declaration Of Freedom
+6. Message From The Black Star
+7. The Cross
+8. To The New Light
+9. Deus Ex Machina
+
+(P)(C) 1996 MUTE Records
+
 
 ## Отношения с другими группами
 

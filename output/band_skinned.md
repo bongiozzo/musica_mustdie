@@ -1,12 +1,33 @@
 # Skinned
 
-Дискография
-"Grimoires" 2003, Death Metal
-"Spawn Of Insanity" 2005, Death Metal
-"Morbid Tokens Of Perversion And Homicide" 2008, Death Metal
-"Contortion Of Reality (EP)" 2010, Death Metal
-"Isolating The Gene" 2012, Death Metal
-"Create Malevolence" 2015, Death Metal
+
+
+## Дискография
+
+### "Grimoires" 2003, Death Metal
+
+
+
+### "Spawn Of Insanity" 2005, Death Metal
+
+
+
+### "Morbid Tokens Of Perversion And Homicide" 2008, Death Metal
+
+
+
+### "Contortion Of Reality (EP)" 2010, Death Metal
+
+
+
+### "Isolating The Gene" 2012, Death Metal
+
+
+
+### "Create Malevolence" 2015, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

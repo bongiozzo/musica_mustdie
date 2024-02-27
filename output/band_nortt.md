@@ -1,10 +1,50 @@
 # Nortt
 
-Дискография
-"Graven" 1999, Black Metal
-"Gudsforladt" 2003, Black Metal
-"Ligfaerd" 2005, Black Metal
-"Galgenfrist" 2007, Black Metal
+
+
+## Дискография
+
+### "Graven" 1999, Black Metal
+
+1. Graven - Intro 01:43  
+2. Gravfred 09:52
+3. Sшrgesalmen 09:48
+4. Sidste Vers 11:33
+5. De Dшdes Kor 07:14
+6. Graven - Outro 01:52 
+
+### "Gudsforladt" 2003, Black Metal
+
+1. Graven - Intro 02:41  
+2. Dшden 05:05
+3. Glemt 04:55
+4. Gravfred 05:32 
+5. Hinsides 05:41 
+6. Hedengangen 04:52 
+7. Dшd Og Borte 05:35
+8. Nattetale 05:30
+9. De Dшdes Kor 05:21
+10. Dystert Sind - Outro 02:56 
+
+### "Ligfaerd" 2005, Black Metal
+
+1. Gudsforladt 04:04  
+2. Ligprжdike 08:36
+3. Vanhellig 08:07
+4. Tilforn Tid 12:05
+5. Dшdsrune 08:32 
+6. Ligfжrd 03:56 
+
+### "Galgenfrist" 2007, Black Metal
+
+1. Galgenfrist 03:41  
+2. Til Gravens Vi 08:19
+3. Af Dшde 07:11
+4. Kaldet 01:49  
+5. Over Mit Lig 10:22
+6. Havet Hinsides Havet 10:53
+7. Hjemsшgt 04:56 
+
 
 ## Отношения с другими группами
 

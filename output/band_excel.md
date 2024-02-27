@@ -1,14 +1,41 @@
 # Excel
 
-Дискография
-"Personal Onslaught /demo/" 1985, Hardcore
-"Sonic Decapitation /demo/" 1985, Hardcore
-"Refuse To Quit /demo/" 1986, Hardcore
-"Split Image" 1987, Hardcore
-"Message In A Bottle /EP/" 1988, Hardcore
-"Blaze Some Hate /EP/" 1989, Hardcore
-"The Joke's On You" 1989, Hardcore
-"Seeking Refuge" 1995, Hardcore
+
+
+## Дискография
+
+### "Personal Onslaught /demo/" 1985, Hardcore
+
+
+
+### "Sonic Decapitation /demo/" 1985, Hardcore
+
+
+
+### "Refuse To Quit /demo/" 1986, Hardcore
+
+
+
+### "Split Image" 1987, Hardcore
+
+
+
+### "Message In A Bottle /EP/" 1988, Hardcore
+
+
+
+### "Blaze Some Hate /EP/" 1989, Hardcore
+
+
+
+### "The Joke's On You" 1989, Hardcore
+
+
+
+### "Seeking Refuge" 1995, Hardcore
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,22 @@
 # Multiplex
 
-Дискография
-"Uncanny Complex" 1991, Death Metal
+
+
+## Дискография
+
+### "Uncanny Complex" 1991, Death Metal
+
+1. Uncanny Complex
+2. Hypocritical Instinct
+
+Hideki Akama - Guitar
+Noboru Takahashi - Guitar
+Youichiro Natsume - Drums
+Takao Takada - Bass
+Takaaki Ohkuma - Vocals
+
+(p)&(c) 1991 PSYCHOSLAUGHTER Records
+
 
 ## Отношения с другими группами
 

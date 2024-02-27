@@ -1,7 +1,30 @@
 # Artemesia
 
-Дискография
-"Apocryphal" 2003, Melodic Death Metal
+Russian Death Metal Band
+
+## Дискография
+
+### "Apocryphal" 2003, Melodic Death Metal
+
+1. Ascent Downwards
+2. Script For The Play
+3. Sunday Morning
+4. The Outcome
+5. Half Way Down (instrumental)
+6. Reflection Of Sorrow
+7. Wait For A Vile
+8.Cradle-song For The Unborn (instrumental)
+9. Cain
+10. At The Very Bottom (instrumental)
+
+
+
+Сергей "Мэйсон" Мосендз - гитара, вокал
+Евгений "Моргот" Градов - вокал 
+Алексей "Алекс" Рогов - бас 
+Михаил "Алсу" Пономарев - гитара 
+Павел "Клим" Климкин - ударные
+
 
 ## Отношения с другими группами
 

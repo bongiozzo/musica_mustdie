@@ -1,11 +1,29 @@
 # Inter Arma
 
-Дискография
-"Sundown" 2010, Metal
-"Destroyer (EP)" 2012, Metal
-"Sky Burial" 2013, Metal
-"The Cavern (E)" 2014, Metal
-"Paradise Gallows" 2016, Metal
+
+
+## Дискография
+
+### "Sundown" 2010, Metal
+
+
+
+### "Destroyer (EP)" 2012, Metal
+
+
+
+### "Sky Burial" 2013, Metal
+
+
+
+### "The Cavern (E)" 2014, Metal
+
+
+
+### "Paradise Gallows" 2016, Metal
+
+
+
 
 ## Отношения с другими группами
 

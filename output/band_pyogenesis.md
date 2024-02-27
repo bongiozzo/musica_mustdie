@@ -1,15 +1,232 @@
 # Pyogenesis
 
-Дискография
-"Pyogenesis" 1993, Death Doom
-"Waves Of  Erotasia" 1994, Death Doom
-"Sweet X-Rated Nothings" 1994, Death Doom
-"Twinaleblood" 1995, Death Doom
-"Love Nation Sugarhead" 1996, Alternative
-"Unpop" 1997, Alternative
-"Mono ...Or Will It Ever Be The Way It Used To Be" 1998, Alternative
-"She Makes Me Wish I Had A Gun" 2002, Alternative
-"A Century in the Curse of Time" 2015, Heavy Metal
+Legend Of German Melodic Death-Doom. Later, Alternative
+
+## Дискография
+
+### "Pyogenesis" 1993, Death Doom
+
+1. Still Burn In Fire
+2. Like Tears
+3. On Soulwings
+4. Underneath Orion`s Sword
+5. Ignis Creatio
+
+Tim - Vocals & Rhythm Guitar
+Flo - Rhythm, Lead, Acoustic Guitars, Keyboards, Back Vocal
+Joe - Bass
+Pit - Drums
+
+Additional Female Vocals By Martha-Gonzales-Martin.
+All Songs Written By PYOGENESIS.
+Producer Falk Gruber,Asmodeus & Schwarz.
+Engineered By Falk Gruber.
+Recorded At Mainstreet-Studio Fautspach From September To October 1992.
+
+(p)&(c) 1993 OSMOSE Productions
+
+### "Waves Of  Erotasia" 1994, Death Doom
+
+1. Through The Flames
+2. In The End
+3. Down
+4. Lost In Revery (Acoustic)
+
+ Tim - Lead Vocals, Rhythm Guitar, Harmonics
+ Flo Schwarz - Clean Vocals, Lead & Rhythm Guitars, Keyboards
+ Joe Asasel - Bass
+ Viola & additional female vocals by Pra Fruth
+
+Produced by Schwartz & Asmodeus
+Engineered by Falk Gruber
+Recorded at the Mainstreet-Studios in Juli 1993
+
+(p)(c) 1994 NUCLEAR BLAST Records
+
+### "Sweet X-Rated Nothings" 1994, Death Doom
+
+1. Intro
+2. Fade Away
+3. Sweet X-Rated Nothings
+4. H's On Me
+5. I'll Search
+6. Skykiss
+7. These Road
+8. Golden Sins
+9. Masquerade
+10. Through The Flame
+11. Extrasis
+
+ Tim - Vocals,Rhythm Guitar,Harmonies
+ Flo - Vocals,Lead & Rhythm Guitars,Keys
+ Joe - Bass Guitar
+ Wolle - Drums
+
+Produced By Tim,Flo & Markus Staiger
+Recorded & Mixed By Falk Gruber At B!$ Studios, February 1994.
+
+(p)&(c) 1994 NUCLEAR BLAST Records
+
+### "Twinaleblood" 1995, Death Doom
+
+1.  Undead
+2.  Twinaleblood
+3.  Weeping Sun
+4.  Every Single Day
+5.  Abstract Life
+6.  Empty Space
+7.  Sinfeast
+8.  Those Churning Seas
+9.  Snakehole
+10.Addiction Pole
+11.God Complex
+12.Mutz Umst Erben *
+13.Bar Infernale
+14.Supavenus
+15.I'm Coming
+
+
+Tim Eiermann - Vocals, Guitar
+Flo Schwarz - Vocals, Guitar, Samples
+Roman Schonsee - Bass, Keyboards
+Wolle Maier - Drums, Percussion
+Jens Volker - Back Vox On 11
+Pia Fruth - Viola On 6
+H.Schneider - Didgerrydoo On 15
+Mr.Tom - Harp On 3
+Micah Hammon - Female Vocals On 15, 14, 4
+
+Recorded By Roman Schonsee At The Factory Of Audio Arts / Beuren 
+(March - June'95),
+Mixed By Jean-Pierre At Impuls-Tonstudio / Hamburg 
+(July '95),
+Mastered At Chateau Du Pape By Olaf Wampke / Hamburg 
+(July '95),
+Produced By PYOGENESIS And No One Else !
+
+(P)&(C) 1995 NUCLEAR BLAST Records
+
+### "Love Nation Sugarhead" 1996, Alternative
+
+1.  Silver Experience
+2.  Love Nation Sugarhead
+3.  Female Drugthing З
+4.  So Called Sensation
+5.  The Zentury
+6.  Clones
+
+Recorded By Roman Schonsee At The Factory Of Audio Arts.
+Mixed By G.Koch, JP Genkel & Jens Beese.
+Produced By PYOGENESIS.
+
+Tim Eiermann - Vocals, Guitar
+Flo Schwarz - Vocals, Guitar
+Roman Schonsee - Bass, Keyboards
+Wolle Maier - Drums, Percussion
+
+Guest Vocals On З By Martin Walkyier (SKYCLAD).
+Flute By K.Rautnig.
+Violin By K.Eckert, G.Steinberg.
+Piano By W.Schrodl.
+
+(P)c 1996 NUCLEAR BLAST Records
+
+### "Unpop" 1997, Alternative
+
+1.  Blue Smiley's Plan
+2.  Get Up
+3.  Love Nation Sugarhead
+4.  Alternative Girl
+5.  Rhapsody In E
+6.  Junkie On A Cloud
+7.  To Me
+8.  Cheapo Speakers
+9.  All The Pills
+10.Silver Experience
+11.My Style
+12.Ton-Recycling
+13.XXL Ego King
+14.Lower All Your High Standards
+15.Sehnsucht
+
+Recorded By Roman Schonsee At The Factory Of Audio Arts.
+Mixed By G.Koch, JP Genkel & Jens Beese.
+Produced By PYOGENESIS.
+
+Tim Eiermann - Vocals, Guitar
+Flo Schwarz - Vocals, Guitar
+Roman Schonsee - Bass, Keyboards
+Wolle Maier - Drums, Percussion
+
+(P)c 1997 NUCLEAR BLAST Records
+
+### "Mono ...Or Will It Ever Be The Way It Used To Be" 1998, Alternative
+
+1. Fake It
+2. Drive Me Down
+3. She's The Bomb
+4. You Push Me
+5. Will It Ever Be
+6. I Thought
+7. Just Ironoc
+8. Would You Take
+9. The Needs
+10. My Saline Eyes
+11. I Remember
+12. In Spite Of It
+13. Africa
+Flo V. Schwarz - Vocals & Guitar
+Tim Eiermann - Vocals & Guitar
+Wolle Maier - Drums
+
+### "She Makes Me Wish I Had A Gun" 2002, Alternative
+
+01) Intro 
+02) I Don't Know 
+03) Don't You Say Maybe 
+04) I Feel Sexy 
+05) Separate The Boys From Men 
+06) Everyday 
+07) She Cries 
+08) Lunacy 
+09) Punk Rock Is her Life 
+10) The Pain Of Heartache 
+11) Sleep All Day - Rock The Night 
+12) Empathy 
+13) As You Wish  
+Bonus-tracks:
+14) Angels Welcome Us
+15) You And Your Band
+16) Punk Rock Is her Life (unplugged)
+
+
+
+Flo V. Schwarz
+Peter Rutard
+Mirza Kapidzic
+Briefmarke
+
+
+Recorded at Woodhouse Studios
+Produced by Pyogenesis
+Co-produced by S. Bemm
+
+
+
+### "A Century in the Curse of Time" 2015, Heavy Metal
+
+1. Steam Paves Its Way (The Machine)   
+2. A Love Once New Has Now Grown Old      
+3. This Won't Last Forever      
+4. The Best Is Yet to Come      
+5. Lifeless    
+6. Touch the Sky (When Darkest World Reached Dawn)  
+7. The Swan King     
+8. Flesh and Hair    
+9. A Century in the Curse of Time  
+
+
+
 
 ## Отношения с другими группами
 

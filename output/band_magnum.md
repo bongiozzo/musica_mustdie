@@ -1,28 +1,106 @@
 # Magnum
 
-Дискография
-"Kingdom Of Madness" 1978, Hard Rock
-"II" 1979, Hard Rock
-"Marauder (Live)" 1980, Hard Rock
-"Chase The Dragon" 1982, Hard Rock
-"The Eleventh Hour" 1983, Hard Rock
-"On A Storyteller's Night" 1985, Hard Rock
-"Vigilante" 1986, Hard Rock
-"Wings Of Heaven" 1988, Hard Rock
-"Invasion Live" 1989, Hard Rock
-"Goodnight L.A." 1990, Hard Rock
-"The Spirit (Live)" 1991, Hard Rock
-"Sleepwalking" 1992, Hard Rock
-"Keeping The Nite Light Burning" 1993, Hard Rock
-"Rock Art" 1994, Hard Rock
-"The Last Dance (2 CD - Live)" 1996, Hard Rock
-"Days Of Wonder (Live' 76)" 2000, Hard Rock
-"Brand New Morning" 2004, Hard Rock
-"The River Sessions (Live)" 2004, Hard Rock
-"Princess Alice And The Broken Arrow" 2007, Hard Rock
-"Wings Of Heaven Live (2 CD)" 2008, Hard Rock
-"Into The Valley Of The Moon King" 2009, Hard Rock
-"The Visitation" 2011, Hard Rock
+
+
+## Дискография
+
+### "Kingdom Of Madness" 1978, Hard Rock
+
+
+
+### "II" 1979, Hard Rock
+
+
+
+### "Marauder (Live)" 1980, Hard Rock
+
+
+
+### "Chase The Dragon" 1982, Hard Rock
+
+
+
+### "The Eleventh Hour" 1983, Hard Rock
+
+
+
+### "On A Storyteller's Night" 1985, Hard Rock
+
+
+
+### "Vigilante" 1986, Hard Rock
+
+
+
+### "Wings Of Heaven" 1988, Hard Rock
+
+
+
+### "Invasion Live" 1989, Hard Rock
+
+
+
+### "Goodnight L.A." 1990, Hard Rock
+
+
+
+### "The Spirit (Live)" 1991, Hard Rock
+
+
+
+### "Sleepwalking" 1992, Hard Rock
+
+
+
+### "Keeping The Nite Light Burning" 1993, Hard Rock
+
+
+
+### "Rock Art" 1994, Hard Rock
+
+
+
+### "The Last Dance (2 CD - Live)" 1996, Hard Rock
+
+
+
+### "Days Of Wonder (Live' 76)" 2000, Hard Rock
+
+
+
+### "Brand New Morning" 2004, Hard Rock
+
+
+
+### "The River Sessions (Live)" 2004, Hard Rock
+
+
+
+### "Princess Alice And The Broken Arrow" 2007, Hard Rock
+
+
+
+### "Wings Of Heaven Live (2 CD)" 2008, Hard Rock
+
+
+
+### "Into The Valley Of The Moon King" 2009, Hard Rock
+
+
+
+### "The Visitation" 2011, Hard Rock
+
+1. Black Skies
+2. Doors To Nowhere
+3. The Visitation
+4. Wild Angels
+5. Spin Like A Wheel
+6. The Last Frontier
+7. Freedom Day
+8. Mother Nature's Final Dance
+9. Midnight Kings
+10. Tonight's The Night
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,49 @@
 # Apotheosis
 
-Дискография
-"A Shroud Of Belief" 1996, Death Doom
-"Black And Blue Reality" 1997, Death Doom
+
+
+## Дискография
+
+### "A Shroud Of Belief" 1996, Death Doom
+
+1. Apotheosis
+2. As Serenity Fades
+3. A Shround Of Belief
+4. White Angel-Dusty God
+5. A Landslide Called Eternity
+6. Beyond The Grave
+7. Stars Beyond the Skies
+8. No Breeding Ground
+9. Total Silence
+
+Udo Plieninger - Guitars
+Alexander Dallinger - Drums, Keyboards
+Alexander Woydich - Bass, Vocals
+Marcus Rembold - Guitars, Clean Vocals
+All viola by Claudia Hartmann
+
+Produced by APOTHEOSIS.
+
+Recorded and Mixed at Real World Studios.
+Engineered by Alexandros Vlassakakis and APOTHEOSIS.
+Cover artwork by M. Cevlic.
+
+(p)(c) 1996 MDD Records 06
+
+### "Black And Blue Reality" 1997, Death Doom
+
+01        Black & Blue Reality 
+02        Exfarevanity 
+03        Pleasurefall 
+04        Horizon 
+05        Splendid 
+06        Release 
+07        Excuses 
+08        Vergangen 
+09        Innocence For Free 
+10        A Start Inside 
+11        Rain
+
 
 ## Отношения с другими группами
 

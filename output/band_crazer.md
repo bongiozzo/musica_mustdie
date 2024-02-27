@@ -1,8 +1,17 @@
 # Crazer
 
-Дискография
-"Your Cross - Your Death" 1993, Stoner
-"Oderint Dum Metuant" 2001, Techno Death
+Techno-death from Chuvashia, Russia
+
+## Дискография
+
+### "Your Cross - Your Death" 1993, Stoner
+
+
+
+### "Oderint Dum Metuant" 2001, Techno Death
+
+
+
 
 ## Отношения с другими группами
 

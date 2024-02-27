@@ -1,10 +1,33 @@
 # Hooded Menace
 
-Дискография
-"Fulfill The Curse" 2008, Death Doom
-"Never Cross The Dead" 2010, Death Doom
-"Effigies Of Evil" 2012, Death Doom
-"Darkness Drips Forth" 2015, Death Doom
+
+
+## Дискография
+
+### "Fulfill The Curse" 2008, Death Doom
+
+
+
+### "Never Cross The Dead" 2010, Death Doom
+
+
+
+### "Effigies Of Evil" 2012, Death Doom
+
+01. Vortex Macabre
+02. Effigies Of Evil
+03. In The Dead We Dwell
+04. Curses Scribed In Gore
+05. Crumbling Insanity
+06. Summoned Into Euphoric Madness
+07. Evoken Vulgarity
+08. Retribution In Eternity
+
+
+### "Darkness Drips Forth" 2015, Death Doom
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,32 @@
 # Whatever
 
-Дискография
-"Sugarbuzz" 1996, Punk
+
+
+## Дискография
+
+### "Sugarbuzz" 1996, Punk
+
+1. 10 Geed Reason
+2. Scatterbrain
+3. Falling Away
+4. Sam's Creation Bulldeg.44
+5. Stigma
+6. Force Fed U.S.
+7. Hooked On Monday
+8. Crawl
+9. Firefly
+
+All songs written by WHATEVER.
+Recorded and engineered by Andy Sneap at Square Centre, Nottingham.
+Mixed by Pete Coleman at Parr Street Studio, Liverpool
+
+Nick - Guitar, Vocals
+Graham - Bass
+Stidi - Drums, Backing Vocals
+Youngy - Guitar
+
+(p)c 1996 MUSIC FOR NATIONS Records
+
 
 ## Отношения с другими группами
 

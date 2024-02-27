@@ -1,7 +1,34 @@
 # Heed
 
-Дискография
-"The Call" 2006, Heavy Metal
+
+
+## Дискография
+
+### "The Call" 2006, Heavy Metal
+
+1. Heed Hades; 
+2. I Am Alive; 
+3. Last Drop Of Blood; 
+4. Ashes; 
+5. Enemy; 
+6. Salvation; 
+7. Tears Of Prodigy (Fallen Angel); 
+8. The Other Side; 
+9. Hypnosis; 
+10. Moments; 
+11. The Permanent End Celebration; 
+12. Nothing
+
+All songs written by Olsson/Heimann
+Produced by Toby Black
+Engineered by Toby Lindell
+Recorded and mixed at Bohus Sound Studios, Sweden
+
+Daniel Heimann - Vocals, Whispers, Growls, Movie Voices and Primal Screams
+Fredrik Olsson - Guitars and Keyboard arrangements
+Mats Karlsson - Drums
+Jorgen Olsson - Bass
+
 
 ## Отношения с другими группами
 

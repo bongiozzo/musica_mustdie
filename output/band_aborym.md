@@ -1,11 +1,93 @@
 # Aborym
 
-Дискография
-"Kali Yuga Bizarre" 1999, Black Metal
-"Fire Walk With Us!" 2001, Black Metal
-"With No Human Intervention" 2003, Black Metal
-"Generator" 2006, Black Metal
-"Psychogrotesque" 2010, Black Metal
+Black Metal
+
+## Дискография
+
+### "Kali Yuga Bizarre" 1999, Black Metal
+
+1. Wehrmacht Kali Ma
+2. Horrenda Peccata Christi
+3. Hellraiser
+4. Roma Divina Urbs
+5. Darka Mysteria
+6. Tantra Bizarre
+7. Come Thou Long Expected Jesus
+8. Metal Striken Terror Action
+9. The First Four Trumpets
+
+### "Fire Walk With Us!" 2001, Black Metal
+
+01 - Our Sentence
+02 - Love The Death As The Life
+03 - White Space
+04 - Fire Walk With Us!
+05 - Here Is No God S.T.A.
+06 - Total Black
+07 - Sol Sigillum
+08 - Det Som En Gang Var Burzum Cover
+09 - Theta Paranoia
+
+
+### "With No Human Intervention" 2003, Black Metal
+
+1. Antichristian Codec
+2. With No Human Intervention
+3. U.V. Impaler
+4. Humechanics-Virus
+5. Does Not Compute
+6. Faustian Spirit Of The Earth
+7. Digital Goat Masque
+8. The Triumph
+9. Black Hole Spell
+10. Me[n]tal Striken Terror Action 2
+11. Out Of Shell
+12. Chernobyl Generation
+13. The Alienation Of A Blckened Heart
+14. Automatik Rave'olution Satan
+
+
+### "Generator" 2006, Black Metal
+
+1. Armageddon
+2. Disgust and Rage (Sic transit Gloria Mundi)
+3. A Dog-Eat-Dog World
+4. Ruinrama Kolossal S.P.Q.R.
+5. Generator
+6. Suffer Catalyst
+7. Between the Devil and the Deep Blue Sea
+8. Man Bites God
+9. I Reject!
+
+### "Psychogrotesque" 2010, Black Metal
+
+1. Psychogrotesque I 01:56  
+2. Psychogrotesque II 05:03  
+3. Psychogrotesque III 04:05  
+4. Psychogrotesque IV 04:36  
+5. Psychogrotesque V 05:40  
+6. Psychogrotesque VI 06:14  
+7. Psychogrotesque VII 05:12  
+8. Psychogrotesque VIII 02:30  
+9. Psychogrotesque IX 02:48  
+10. Psychogrotesque X 08:43 
+
+Line-up
+Malfeitor Fabban - Vocals, bass, keyboards
+Hell:I0:Kabbalus - Guitars, keyboards
+BпїЅrd G. "Faust" Eithun пїЅ Drums
+
+Guests musicians
+Karyn Crisis пїЅ Vocals
+Davide Tiso - Additional guitars and electronics
+Richard K. Szabo - Additional electronics
+Marc Urselli - Addictional music and beat production
+Giulio Moschini - Guitar solo
+Pete Michael Kolstad Vegem - Guitar solo
+Emiliano Natali - Additional bass and falsettos
+Narchost - Addictional industrial samples
+Marcello Balena пїЅ Saxophone
+
 
 ## Отношения с другими группами
 

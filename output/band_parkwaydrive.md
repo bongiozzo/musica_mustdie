@@ -1,12 +1,54 @@
 # Parkway Drive
 
-Дискография
-"Don't Close Your Eyes (EP)" 2004, Metalcore
-"Killing With A Smile" 2005, Metalcore
-"Horizons" 2007, Metalcore
-"Deep Blue" 2010, Metalcore
-"Atlas" 2012, Metalcore
-"Ire" 2015, Metalcore
+
+
+## Дискография
+
+### "Don't Close Your Eyes (EP)" 2004, Metalcore
+
+
+
+### "Killing With A Smile" 2005, Metalcore
+
+
+
+### "Horizons" 2007, Metalcore
+
+
+
+### "Deep Blue" 2010, Metalcore
+
+
+
+### "Atlas" 2012, Metalcore
+
+01. Sparks (2:18)
+02. Old Ghost / New Regrets (2:50)
+03. Dream Run (4:09)
+04. Wild Eyes (4:19)
+05. Dark Days (4:05)
+06. The River (5:27)
+07. Swing (3:32)
+08. The Slow Surrender (4:14)
+09. Atlas (4:09)
+10. Sleight Of Hand (4:27)
+11. Snake Oil And Holy Water (2:49)
+12. Blue And The Grey (5:47)
+
+### "Ire" 2015, Metalcore
+
+01. Destroyer
+02. Dying To Believe
+03. Vice Grip
+04. Crushed
+05. Fractures
+06. Writings On The Wall
+07. Bottom Feeder
+08. The Sound Of Violence
+09. Vicious
+10. Dedicated
+11. A Deathless Song
+
 
 ## Отношения с другими группами
 

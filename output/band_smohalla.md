@@ -1,7 +1,20 @@
 # Smohalla
 
-Дискография
-"Resilience" 2011, Alternative
+
+
+## Дискография
+
+### "Resilience" 2011, Alternative
+
+1. Quasar	 
+2. Au sol les toges vides	 
+3. Le repos du Lezard	 
+4. Oracle rouge	 
+5. Marche silencieuse	 
+6. L'homme et la Brume	 
+7. Aux mille Dieux	 
+8. Nos sages divisent
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,25 @@
 # Oceano
 
-Дискография
-"Depths" 2009, Deathcore
+
+
+## Дискография
+
+### "Depths" 2009, Deathcore
+
+1. Descent 00:57  
+2. Inhuman Aflication 03:16 
+3. A Mandatory Sacrifice 04:04
+4. Samael the Destroyer 03:52 
+5. Fractured Frames, Scattered Flesh 02:35
+6. Disgust for Your Kind 03:12
+7. Depths 06:24  
+8. District of Misery 03:12 
+9. With Legions... 04:03
+10. Slaughtered Like Swine 03:08
+11. Empathy for Leviathan 02:56
+12. Plague Campaign 04:06
+13. Abysm 02:22 
+
 
 ## Отношения с другими группами
 

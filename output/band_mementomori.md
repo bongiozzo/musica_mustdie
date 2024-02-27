@@ -1,10 +1,82 @@
 # Memento Mori
 
-Дискография
-"Rhymes Of Lunacy" 1993, Doom
-"Life, Death and Other Morbid Tales " 1994, Doom
-"La Dance Macabre" 1996, Doom
-"Songs For The Apocalypse Vol. IV" 1997, Doom
+Power-Doom ex-Candlemass
+
+## Дискография
+
+### "Rhymes Of Lunacy" 1993, Doom
+
+1.  The Rhyme
+2.  The Seeds Of Hatred
+3.  Morbid Fear
+4.  The Caravan Of Souls
+5.  Lost Horizonts
+6.  When Nothing Remain
+7.  Forbidden Dreams
+8.  Little Anne's Not An Angel
+9.  Fear Of God
+10.The Monolith
+
+Messiah Marcolin - Lead Vocals
+Mike Wead - Lead Guitar, Acoustic Guitar, Keyboards
+Nikkey Argento - Rhythm Guitar, B. Vocals
+Marty Marteen - Bass
+Snowy Shap - Drums, B. Vocals
+
+Produced By Mike Wead, Snowy Shap & Rex Gisslen
+Recorded At Montezuma Studio
+
+(p)&(c) 1993 BLACK MARK Productions
+
+### "Life, Death and Other Morbid Tales " 1994, Doom
+
+1. To Travel Within 05:18
+2. The Passage... 02:27 
+3. A Passenger On Psycho's Path 08:53 
+4. I Am 05:09
+5. Misery Song 04:43
+6. Just Another Morbid Tune 04:33
+7. My Secret Garden 05:49 
+8. Crown Of Thorns 01:08  
+9. Heathendom 14:57 
+
+### "La Dance Macabre" 1996, Doom
+
+1. Endlessly
+2. Lost Words
+3. Crown Of Thorns (Part II,III and IV)
+4. La Dance Macabre
+5. Morpheus (My Deadly Friend)
+6. The Loser's Trail
+7. Prelude *
+8. The Beggar's Waltz
+
+All music and lyrics written by Weau
+except  * written by Rachmaninoff
+Produced by Mike Wead and Rex Gisslen.
+Recorded at The Kennel.
+Mixed at SoundTrade by Rex Gisslen.
+
+Nikkey Argento - Guitar
+Billy St.John - Drums
+Miguel Robaina - Keyboards
+Marty Marteen - Bass
+Mike Wead - Lead Guitar
+Kristian Andren - Vocals
+
+(p)(c) 1996 BLACK MARK Production
+
+### "Songs For The Apocalypse Vol. IV" 1997, Doom
+
+1. The Things You See (And the Things You Don't) 04:23
+2. Under My Blackened Sky 04:13
+3. One Sign Too Many 04:20
+4. Burned By Light 06:04
+5. Memento Mori 05:48
+6. I Prayed 05:14
+7. Animal Magnetism (Scorpions cover) 05:25 
+8. Out of Darkness 05:57 
+
 
 ## Отношения с другими группами
 

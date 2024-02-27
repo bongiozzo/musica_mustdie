@@ -1,9 +1,55 @@
 # Charred Walls Of The Damned
 
-Дискография
-"Charred Walls Of The Damned" 2010, Heavy Metal
-"Cold Winds on Timeless Days" 2011, Heavy Metal
-"Creatures Watching over the Dead" 2016, Heavy Metal
+
+
+## Дискография
+
+### "Charred Walls Of The Damned" 2010, Heavy Metal
+
+1. Ghost Town 04:56  
+2. From The Abyss 04:25  
+3. Creating Our Machine 02:53  
+4. Blood on Wood 03:26  
+5. In A World So Cruel 03:31  
+6. Manifestations 03:06  
+7. Voices Within The Walls 03:48  
+8. The Darkest Eyes 03:37  
+9. Fear In The Sky 05:42 
+
+### "Cold Winds on Timeless Days" 2011, Heavy Metal
+
+1. Timeless Days 06:04
+2. Ashes Falling Upon Us 05:27 
+3. Zerospan 05:24 
+4. Cold Winds 03:46 
+5. Lead The Way 05:58
+6. Forever Marching On 04:30 
+7. Guiding Me 04:37
+8. The Beast Outside My Window 05:22 
+9. On Unclean Ground 04:10 
+10. Bloodworm 04:21
+11. Admire The Heroes 04:01
+12. Avoid The Light 04:25
+
+
+Steve DiGiorgio - Bass 
+Richard Christy - Drums
+Jason Suecof - Guitars 
+Tim "Ripper" Owens - Vocals
+
+### "Creatures Watching over the Dead" 2016, Heavy Metal
+
+1. My Eyes  04:30    
+2. The Soulless  04:03    
+3. Afterlife  02:53    
+4. As I Catch My Breath  05:03  
+5. Lies  03:31    
+6. Reach into the Light  02:39  
+7. Tear Me Down  03:50  
+8. Living in the Shadow of Yesterday  03:36  
+9. Time Has Passed  03:16 
+
+
 
 ## Отношения с другими группами
 

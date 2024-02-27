@@ -1,9 +1,51 @@
 # Interitus Dei
 
-Дискография
-"Lonely White Idols" 1998, Gothic
-"The End Of Revelation" 2000, Gothic
-"Unholy" 2002, Gothic
+Sympho-power-doom-metal from Romania
+
+## Дискография
+
+### "Lonely White Idols" 1998, Gothic
+
+1. The Storm 
+2. Lonely white idols
+3. Winter nights
+4. My own hell
+5. Heroes
+6. Seth
+7. The Human God
+8. Shadowland
+
+
+### "The End Of Revelation" 2000, Gothic
+
+1. How low?
+2. The stone athame
+3. Her sins
+4. Inside
+5. My demons
+6. Eclectic heart
+7. Interitus Dei
+8. The previous end
+9. The end of revelation
+10. We rock (Dio cover)
+
+
+### "Unholy" 2002, Gothic
+
+1. Isis enthroned
+2. Queen of the undead
+3. Forbidden epitaph
+4. Berzekir
+5. 1390
+6. Fear
+7. Demonic
+8. Bats in the attic
+9. Estuans interius
+10.Moondust
+11.Glory
+12.In praise of Lilith
+
+
 
 ## Отношения с другими группами
 

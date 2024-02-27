@@ -1,7 +1,43 @@
 # Circle of Pain
 
-Дискография
-"Paradox Of Destitution" 2001, Hard Rock
+
+
+## Дискография
+
+### "Paradox Of Destitution" 2001, Hard Rock
+
+1. Prologue   
+2. Try   
+3. All The Time   
+4. The Way   
+5. Imagine 
+6. Reciprocity   
+7. Adolescence   
+8. Addressee Unknown 
+9. The Cage   
+10. Premonition   
+11. Narration   
+12. Pregnancy   
+13. Fallin' Snow   
+14. Cold December Morning   
+15. Winter Sun   
+16. Lonely Path Narration   
+17. Lonely Path   
+18. The Cliff   
+19. After The Fall 
+
+
+
+Gee Kay (guitar) 
+Sandro Lo Giudice (bass) 
+Uwe Johann (vocals) 
+Dirk Kramer (guitar) 
+Carsten Weisbrod (keyboards) 
+Holdy Wahlig (drums) 
+
+Produced by : Bobby Altvafer  
+
+
 
 ## Отношения с другими группами
 

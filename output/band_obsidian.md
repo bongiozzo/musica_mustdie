@@ -1,7 +1,23 @@
 # Obsidian
 
-Дискография
-"Demo" 2001, Melodic Death Metal
+
+
+## Дискография
+
+### "Demo" 2001, Melodic Death Metal
+
+-Stubborn
+-Martyr
+-Poison dreams
+
+
+
+Simon Lawford: Guitar, Vocals
+Sjaak Kassies: Guitar, Vocals
+Glen Loupias: Bass
+Gertjan Bouman: Drums
+
+
 
 ## Отношения с другими группами
 

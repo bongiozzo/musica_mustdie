@@ -1,13 +1,182 @@
 # The 3rd and the Mortal
 
-Дискография
-"Sorrow" 1994, Ambient
-"Tears Laid In Earth" 1994, Ambient
-"Nightswan" 1995, Ambient
-"Painting On Glass" 1996, Ambient
-"Stream / Horizons" 1997, Ambient
-"In The Room" 1997, Ambient
-"Memories" 2002, Psychedelic
+
+
+## Дискография
+
+### "Sorrow" 1994, Ambient
+
+Grevinnens Bonn
+Sorrow
+Ring Of Fire
+Silently I Surrender
+
+(C) (P) 1994 Head Not Found
+
+### "Tears Laid In Earth" 1994, Ambient
+
+Vandring
+Why So Lonely
+Atupoema
+Death-Hymn
+Shaman
+Trial Of Past
+Lengsel
+Salva Me
+Song
+In Mist Shrouded
+Oceana
+
+~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~
+Recorded at Brygga Studio in july 1994.
+Engineered by Hans Petter Vik & Lars Lien.
+Mixed by Lars Lien, The 3rd and the Mortal & Hans Petter Vik.
+Wave effects on "Oceana" by SFX Robin Stockert.
+Additional voice on "Death-Hymn" by Finn-Olav.
+Synthesizer on "Shaman" & "Song" by Kari.
+All songs by The 3rd and the Mortal.
+
+~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~
+(C) (P) 1994 Voices Of Wonder
+
+### "Nightswan" 1995, Ambient
+
+1. Neurosis
+2. From The Depth Of Memories
+3. The Meadow
+4. Vavonia (Part I)
+
+All The Songs By THE 3RD AND THE MORTAL.
+ 
+Trond Engum - Guitar
+Rune Hoemsnes - Drums
+Finn Olav Holthe - Guitar
+Bernt Rundberget - Bass
+A.M.Edvardsen - Vocals
+
+(P)&(C) 1995 VOICES OF WONDER Records
+
+### "Painting On Glass" 1996, Ambient
+
+1.  Magma (4.25)
+2.  Commemoration (5.41)
+3.  Crystal Orchids (2.59)
+4.  Persistent And Fleeting (5.58)
+5.  White Waters (2.50)
+6.  Aurora Borealis (1.32)
+7.  Dreamscapes (4.31)
+8.  Aurora Australis (2.39)
+9.  Azure (4.00)
+10.Veiled Exposure (5.22)
+11.Stairs (2.27)
+12.Eat The Distance (7.11)
+13.Vavonia part 2 (7.23)
+14.Horizons (7.04)
+
+All songs written by THE 3RD AND THE MORTAL
+Produced and engineered by Lars Lien and THE 3RD AND THE MORTAL.
+Recorded and mixed at Brygga Studio
+
+Trond Engum - Electric and Acoustic Guitars
+Rune Hoemsnes - Drums
+Finn Olav Holthe - Guitars, Keyboards
+Geir Nilssen - Guitars, Keyboards
+Bernt Rundberget - Bass
+Ann-Mari Edvardsen - Vocals, Keyboards
+
+~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~
+Additional Musicians:
+Ola Evensen - Trombone on 1,2
+Lars Lien - Mellotrone and ARP Synth on 2
+Oddrun Solberg - Church Organ on 7
+Aksel Hagen Tjora - Didjeridoo on 12
+Sigurd Engum - Waterbucket on 12
+Oyvind Klungseth Zalsen - Keyboards on 12
+Monika Edvardsen - Additional Vocals on 12
+
+All Lyrics By Ann-Mary Edvardsen
+All Music By The 3Rd And The Mortal
+Produced And Engineered By Lars Lien,
+Tor Breivik & The 3Rd And The Mortal
+Recorded And Mixed At Brygga Studio, Oct-Nov 1995
+
+~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~
+
+(p)(c) 1996 VOICES OF WONDER Records
+
+### "Stream / Horizons" 1997, Ambient
+
+1.  Stream
+2.  Horizons
+
+Recorded and Mixed  at Brygga Studio.
+Engineered and Produced by Tor 'Torsk' Breivik and 3RD&M
+
+Trond Engum - Electric and Acoustic Guitars
+Rune Hoemsnes - Drums
+Finn Olav Holthe - Guitars, Keyboards
+Geir Nilssen - Guitars, Keyboards
+Bernt Rundberget - Bass
+Ann-Mari Edvardsen - Vocals, Keyboards
+                                                           
+~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~
+Recorded at Brygga Studio.
+Engineered and produced by Tor 'Torsk' Breivik
+and The 3rd And The Mortal.
+All songs by 3rd And The Mortal.
+
+~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~
+(C) (P) 1997 Voices Of Wonder
+
+### "In The Room" 1997, Ambient
+
+Stream
+Monody
+So Pure
+The Wooden Lodge
+Sophisticated Vampires
+Harvest
+Did You
+Myriad Of Peep-Holes
+Sort Of Invisible
+A Touch Of...
+Hollow
+The Barge
+Sleep
+
+~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~
+Rune Hoemsnes         Drums And Percussion
+Bernt Rundberget      Bass Guitars
+Ann-Mari Edvardsen    Vocals, Keyboards
+Trond Engum           Electric And Acoustic Guitars
+Geir Nilssen          Guitars, Keyboards
+Finn Olav Holthe      Guitars, Keyboards, Tapes
+~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~
+Additional musicians on this album:
+Rudolv Vassgaier - Vurlitzer
+Stein J&oslash;ring &Oslash;ien - Filtersynth
+
+All lyrics - Ann Marie Edvardsen
+All music - The 3rd and the Mortal
+Produced - Tor Breivik, Lars Lien
+Programming - Jon Marius &Aring;reskjold,
+also programming - Rune Hoemsnes
+
+~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~
+(C) (P) 1997 Voices Of Wonder
+
+### "Memories" 2002, Psychedelic
+
+Zeppoliner 5:44  
+Good Evening Mr. Q 5:22 
+The City 6:00 
+Reflection 4:43 
+Thin Dark Line 6:40 
+Fools Like Us 4:25 
+Those Of My Kind 5:37 
+Simple Minds 6:52 
+Spider 5:05
+
 
 ## Отношения с другими группами
 

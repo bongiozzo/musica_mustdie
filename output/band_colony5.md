@@ -1,9 +1,57 @@
 # Colony 5
 
-Дискография
-"Lifeline" 2002, Synthpop
-"Structures" 2003, Synthpop
-"Fixed" 2005, Synthpop
+
+
+## Дискография
+
+### "Lifeline" 2002, Synthpop
+
+1. Colony 5
+2. Trust you
+3. Suicidal
+4. The bottle
+5. Liquid love
+6. Be my slave
+7. Crackhead
+8. Stay young
+9. Freedom
+10. Before I'll give in
+11. Heal me
+12. Friends
+
+### "Structures" 2003, Synthpop
+
+1. Hate
+2. Synchronized hearts
+3. Black
+4. The zone
+5. God
+6. Is she scared?
+7. It was only a dream
+8. Reinforcements
+9. She's a planet
+10.Unaware
+11.Band of brothers
+12.Future
+видео бонус
+13.Black
+
+### "Fixed" 2005, Synthpop
+
+1. Fix
+2. 20th Century Plague
+3. Big brothel
+4. Fusion
+5. A new world arise
+6. Plastic world
+7. I know
+8. Like leaves
+9. Misery
+10.Fallen star
+11.Symphony of hope
+12.Psycho blonde
+13.Phosphor
+
 
 ## Отношения с другими группами
 

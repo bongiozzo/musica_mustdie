@@ -1,9 +1,21 @@
 # Oranssi Pazuzu
 
-Дискография
-"Muukalainen Puhuu" 2009, Black Metal
-"Kosmonument" 2011, Black Metal
-"Valonielu" 2013, Black Metal
+
+
+## Дискография
+
+### "Muukalainen Puhuu" 2009, Black Metal
+
+
+
+### "Kosmonument" 2011, Black Metal
+
+
+
+### "Valonielu" 2013, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

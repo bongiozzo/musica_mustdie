@@ -1,7 +1,20 @@
 # Moonlight Agony
 
-Дискография
-"Echoes Of A Nightmare" 2004, Progressive
+
+
+## Дискография
+
+### "Echoes Of A Nightmare" 2004, Progressive
+
+1. Into Darkness 
+2. Icy Plains 
+3. Echoes Of A Nightmare 
+4. Ceremony 
+5. Equilibrium 
+6. Ghost 
+7. Moonlight Horizon 
+8. Vanished
+
 
 ## Отношения с другими группами
 

@@ -1,12 +1,42 @@
 # Hocico
 
-Дискография
-"Odio Bajo El Alma" 1997, Electronic
-"Sangre Hirviente" 1999, Electronic
-"Signos de Aberracion" 2002, Electronic
-"Wrack And Ruin" 2004, Industrial
-"Memorias Atras" 2008, Electronic
-"Tiempos de Furia" 2010, Electronic
+dark electro
+
+## Дискография
+
+### "Odio Bajo El Alma" 1997, Electronic
+
+
+
+### "Sangre Hirviente" 1999, Electronic
+
+
+
+### "Signos de Aberracion" 2002, Electronic
+
+
+
+### "Wrack And Ruin" 2004, Industrial
+
+01. El Infierno Que Viene
+02. Tales From The Third World
+03. Bizarre Words
+04. Spirits Of Crime
+05. Born To Be (Hated) - Original Odium
+06. Love Posing As A Prostitute
+07. Ecos
+08. Oracion Nocturna
+09. Death As A Gift
+10. Padre No Nuestro
+
+### "Memorias Atras" 2008, Electronic
+
+
+
+### "Tiempos de Furia" 2010, Electronic
+
+
+
 
 ## Отношения с другими группами
 

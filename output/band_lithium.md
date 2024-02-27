@@ -1,10 +1,54 @@
 # Lithium
 
-Дискография
-"Demo" 1998, Industrial
-"Demo 2" 1999, Industrial
-"Hydro" 2000, Industrial
-"Cold" 2002, Industrial
+Industrial music with futuristic wave
+
+## Дискография
+
+### "Demo" 1998, Industrial
+
+1. Insect
+2. Failure
+3. Ugly Friend
+
+### "Demo 2" 1999, Industrial
+
+1. Anti Anthem
+2. Hero In Paradise
+3. Alone
+
+### "Hydro" 2000, Industrial
+
+1. Failure
+2. Bullet
+3. Ugly Friend
+4. Ribbons
+
+### "Cold" 2002, Industrial
+
+1. Anti Anthem
+2. Isolation
+3. Cold
+4. Hidden Walls
+5. Ugly Friend
+6. Insect
+7. Never Be The Same
+8. Over Again
+9. Hero In Paradise
+10. Failure
+11. Alone
+
+Carl Nilsson (Vocals) 
+Johnny Hagel (Keyboard & sampler) 
+Kristian Niemann (guitar) 
+Johan Niemann (guitar) 
+Sami Karppinen (drums) 
+
+recorded in the Modern Art Studio 
+produced by Johnny Hagel/Carl Nilsson 
+mixed by Sami Karpinen 
+
+
+
 
 ## Отношения с другими группами
 

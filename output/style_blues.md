@@ -32,13 +32,13 @@
 Стиль: Blues
 Год: 1991
 
-Группа: Vaughan, Stevie Ray
-Альбом: "In the Beginning"
+Группа: Moore, Gary
+Альбом: "After Hours"
 Стиль: Blues
 Год: 1992
 
-Группа: Moore, Gary
-Альбом: "After Hours"
+Группа: Vaughan, Stevie Ray
+Альбом: "In the Beginning"
 Стиль: Blues
 Год: 1992
 
@@ -57,6 +57,11 @@
 Стиль: Blues
 Год: 1996
 
+Группа: Double Trouble
+Альбом: "Live at Carnegie Hall"
+Стиль: Blues
+Год: 1997
+
 Группа: Henderson, Scott
 Альбом: "Tore Down House"
 Стиль: Blues
@@ -64,11 +69,6 @@
 
 Группа: Lucifer Was
 Альбом: "Underground And Beyond (reissue 2004)"
-Стиль: Blues
-Год: 1997
-
-Группа: Double Trouble
-Альбом: "Live at Carnegie Hall"
 Стиль: Blues
 Год: 1997
 
@@ -92,13 +92,13 @@
 Стиль: Blues
 Год: 2000
 
-Группа: Moore, Gary
-Альбом: "Back to the Blues"
+Группа: Double Trouble
+Альбом: "Been A Long Time"
 Стиль: Blues
 Год: 2001
 
-Группа: Double Trouble
-Альбом: "Been A Long Time"
+Группа: Moore, Gary
+Альбом: "Back to the Blues"
 Стиль: Blues
 Год: 2001
 
@@ -137,18 +137,8 @@
 Стиль: Blues
 Год: 2005
 
-Группа: Turner, Joe
-Альбом: "Jumpin' Tonight"
-Стиль: Blues
-Год: 2006
-
-Группа: Little Walter
-Альбом: "Blues With A Feeling"
-Стиль: Blues
-Год: 2006
-
-Группа: T Bone Walker
-Альбом: "The Hustle Is On"
+Группа: Black Crowes, The
+Альбом: "Freak 'n 'Roll... Into The Fog (2CD)"
 Стиль: Blues
 Год: 2006
 
@@ -162,8 +152,18 @@
 Стиль: Blues
 Год: 2006
 
-Группа: Black Crowes, The
-Альбом: "Freak 'n 'Roll... Into The Fog (2CD)"
+Группа: Little Walter
+Альбом: "Blues With A Feeling"
+Стиль: Blues
+Год: 2006
+
+Группа: T Bone Walker
+Альбом: "The Hustle Is On"
+Стиль: Blues
+Год: 2006
+
+Группа: Turner, Joe
+Альбом: "Jumpin' Tonight"
 Стиль: Blues
 Год: 2006
 
@@ -172,8 +172,8 @@
 Стиль: Blues
 Год: 2007
 
-Группа: Rodgers, Paul
-Альбом: "Live In Glasgow"
+Группа: Big Bill Broonzy
+Альбом: "Volume 2 - The Post-War Years"
 Стиль: Blues
 Год: 2007
 
@@ -182,13 +182,8 @@
 Стиль: Blues
 Год: 2007
 
-Группа: Reed, Jimmy
-Альбом: "Ain't That Lovin' You Baby"
-Стиль: Blues
-Год: 2007
-
-Группа: Big Bill Broonzy
-Альбом: "Volume 2 - The Post-War Years"
+Группа: Hoochie Coochie Men, The
+Альбом: "Danger: White Men Dancing"
 Стиль: Blues
 Год: 2007
 
@@ -197,18 +192,23 @@
 Стиль: Blues
 Год: 2007
 
-Группа: Screamin' Jay Hawkins
-Альбом: "I Shake My Stick At You (re-issue)"
-Стиль: Blues
-Год: 2007
-
-Группа: Hoochie Coochie Men, The
-Альбом: "Danger: White Men Dancing"
-Стиль: Blues
-Год: 2007
-
 Группа: Moore, Gary
 Альбом: "Close As You Get"
+Стиль: Blues
+Год: 2007
+
+Группа: Reed, Jimmy
+Альбом: "Ain't That Lovin' You Baby"
+Стиль: Blues
+Год: 2007
+
+Группа: Rodgers, Paul
+Альбом: "Live In Glasgow"
+Стиль: Blues
+Год: 2007
+
+Группа: Screamin' Jay Hawkins
+Альбом: "I Shake My Stick At You (re-issue)"
 Стиль: Blues
 Год: 2007
 
@@ -227,13 +227,13 @@
 Стиль: Blues
 Год: 2010
 
-Группа: The Vintage Caravan
-Альбом: "Voyage"
+Группа: Blues Pills
+Альбом: "Bliss (EP)"
 Стиль: Blues
 Год: 2012
 
-Группа: Blues Pills
-Альбом: "Bliss (EP)"
+Группа: The Vintage Caravan
+Альбом: "Voyage"
 Стиль: Blues
 Год: 2012
 
@@ -247,23 +247,23 @@
 Стиль: Blues
 Год: 2014
 
-Группа: The Vintage Caravan
-Альбом: "Voyage (re-issue)"
-Стиль: Blues
-Год: 2014
-
 Группа: Blues Pills
 Альбом: "Live At Rockpalast (EP)"
 Стиль: Blues
 Год: 2014
 
 Группа: The Vintage Caravan
-Альбом: "Arrival"
+Альбом: "Voyage (re-issue)"
 Стиль: Blues
-Год: 2015
+Год: 2014
 
 Группа: Blues Pills
 Альбом: "Blues Pills - Live"
+Стиль: Blues
+Год: 2015
+
+Группа: The Vintage Caravan
+Альбом: "Arrival"
 Стиль: Blues
 Год: 2015
 

@@ -1,9 +1,82 @@
 # Cultus Sanguine
 
-Дискография
-"Cultus Sanguine" 1995, Black Metal
-"Shadow's Blood" 1997, Black Metal
-"The Sum of All Fears" 1999, Black Metal
+
+
+## Дискография
+
+### "Cultus Sanguine" 1995, Black Metal
+
+1. Il Richiamo In Rosso
+2. I Ride The Winds Of Hate
+3. My Journey Is Long But My Time Is Endless
+4. Into The Field Of Screaming Souls
+
+
+Agua Reigs - Guitars & Bass
+Ferghieph - Vocals
+Custos Arcanorum - Drums
+Ouranos - Keyboards
+
+Music by Cultus Sanguine
+Lyrics by Ferghieph
+Logo by Diego
+Back cover photo and layout by Ouranos
+
+Recorded during December 1994 at New Hammil studio, Milano
+Engineered by Marco Allegri
+Produced by Marco Allegri & CS
+
+
+
+
+### "Shadow's Blood" 1997, Black Metal
+
+1. The Calling Illusion  4:42 
+2. Il Sangue  5:55 
+3. Shadow's Blood  4:32 
+4. We Have No Mother  5:09 
+5. The Graves Forgot My Name  4:28 
+6. Lady Of Flies  4:41 
+7. On These Nocturnal Wings  4:11 
+8. Silent Tunes Of Falling Blood  2:06 
+9. Among Shadows  3:38 
+10. ?  2:28 
+
+
+### "The Sum of All Fears" 1999, Black Metal
+
+1. The sun of all fears (6.26) 
+2. Verrа il tempo dei morti (7.38) 
+3. Dominatress (4.56) 
+4. Highest depression (5.19) 
+5. The future unveiled (4.40) 
+6. A grave upon mankind (6.18) 
+7. In the days of sombre (4.12) 
+8. Ultimate madre (2.17) 
+9. As a funeralinside (8.19) 
+
+
+Joe F. - Vocals
+Daniele - Keyboards
+Federico - Guitars
+Fabrizio - Drums
+
+"The Sum of All Fears", composed, performed and suffered by Cultus Sanguine.
+Music by Cultus Sanguine.
+Lyrics by Joe F.
+Bass on this album performed by Luca Dilato.
+Vocals incantations on "Ultima Madre" by Asmod XI Vulgar.
+Recorded at Malibu Studio, MediolanuM, on sombre days of March 1999 A.D.
+Decadently engeneered and mixed by Andrea Ciudici & Cultus Sanguine.
+Darkly mastered at Elettroformati.
+Band photos by Giorgio Uccellini.
+Cultus Sanguine logo by Diego Ferraro.
+Graphics designed and realized by Federico Rebusso.
+
+
+  
+
+
 
 ## Отношения с другими группами
 

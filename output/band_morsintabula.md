@@ -1,7 +1,22 @@
 # Mors in Tabula
 
-Дискография
-"Blemish" 2006, Death Metal
+
+
+## Дискография
+
+### "Blemish" 2006, Death Metal
+
+1.	 Into The Maze	01:34	  instrumental
+2.	 Passion Immured	03:54	 
+3.	 Bloodpath	03:35	 
+4.	 Mk Ultra	04:20	 
+5.	 Behold The Sin	03:56	 
+6.	 The Void	01:56	  instrumental
+7.	 Noctifer	04:38	 
+8.	 Netter Khertet	05:29	 
+9.	 Eye Of The Abyss	03:56	 
+10.	 Sirens Call	04:30	
+
 
 ## Отношения с другими группами
 

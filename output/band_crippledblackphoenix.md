@@ -1,8 +1,17 @@
 # Crippled Black Phoenix
 
-Дискография
-"(Mankind) The Crafty Ape" 2012, Ambient
-"Bronze" 2016, Progressive
+
+
+## Дискография
+
+### "(Mankind) The Crafty Ape" 2012, Ambient
+
+
+
+### "Bronze" 2016, Progressive
+
+
+
 
 ## Отношения с другими группами
 

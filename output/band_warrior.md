@@ -1,11 +1,72 @@
 # Warrior
 
-Дискография
-"Fighting For The Earth (7'' single)" 1985, Heavy Metal
-"Fighting For The Earth (LP)" 1985, Heavy Metal
-"Ancient Future" 1998, Heavy Metal
-"Code Of Life" 2001, Heavy Metal
-"Wars Of Gods & Men" 2004, Heavy Metal
+Heavy metal, USA
+
+## Дискография
+
+### "Fighting For The Earth (7'' single)" 1985, Heavy Metal
+
+1. Fighting For The Earth 
+2. Only The Strong Survive
+
+### "Fighting For The Earth (LP)" 1985, Heavy Metal
+
+1. Fighting For The Earth 
+2. Only The Strong Survive 
+3. Ruler 
+4. Mind Over Matter 
+5. Defenders Of Creation 
+6. Day Of The Evil (Beware) 
+7. Cold Fire 
+8. PTM1 
+9. Welcome Aboard
+
+### "Ancient Future" 1998, Heavy Metal
+
+1 Fight or Fall (4:16)     
+2 Pray (4:11)     
+3 Who Sane? (4:20)     
+4 Learn to Love (4:57)     
+5 Tonight We Ride (5:18)     
+6 Power (4:32)     
+7 White Mansions (4:42)     
+8 Rush (5:13)     
+9 Tear It Down (3:29)     
+10 Ancient Future (3:43) 
+
+ Joe Floyd - Guitar, Vocals (Background), Engineer, Mixing 
+ Sean Kenesie - Engineer 
+ Roy Z - Bass, Guitar 
+ Alex Solca - Photography 
+ Jorge Palacios - Drums
+
+### "Code Of Life" 2001, Heavy Metal
+
+1. Day Of Reckoning 
+2. Kill The Machine 
+3. Standing 
+4. We Are One 
+5. Open Your Eyes 
+6. Pantheon 
+7. Code Of Life 
+8. Soul Survivor 
+9. The Endless Beginning 
+10. The Fools' Theme 
+11. Retribution
+
+### "Wars Of Gods & Men" 2004, Heavy Metal
+
+1. The Wars Of Gods And Men 
+2. Do It Now 
+3. Never Live Your Life Again 
+4. Salvation 
+5. 3 AM Eternal 
+6. Mars 
+7. Unseen Forces 
+8. Hypocrite 
+9. Naked Aggression 
+10. Love Above All
+
 
 ## Отношения с другими группами
 

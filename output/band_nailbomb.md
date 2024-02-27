@@ -1,7 +1,40 @@
 # Nailbomb
 
-Дискография
-"Point Blank" 1994, Industrial
+ex-Sepultura,Fudge Tunnel,Fear Factory
+
+## Дискография
+
+### "Point Blank" 1994, Industrial
+
+1. Wasting Away
+2. Vai Toma No C_
+3. 24 Hour Bullshit
+4. Guerillas
+5. Blind And Lost
+6. Sum Of Your Achievments
+7. Cockroaches
+8. For Fuck's Sake
+9. World Of Shit
+10.Exploitation
+11.Religious Cancer
+12.Shit Pinata
+13.Sick LIfe
+
+ Max Cavalera - Insults, Guitars, Bass, Goner, Samples
+ Alex Newport - Guitars,Bass,Samples
+ Andreas Kisser - Lead Guitar On Tracks 2, 9, 11
+ Igor Cavalera - Drums On Tracks 1, 5, 7, 10, 12, 13
+ Dino Cazares - Guitar On Track 3
+
+All Songs Written By Cavalera - Newport,Except * By DOOM.
+Produced By Alex Newport.
+Co-Produced By Max Cavalera.
+Recorded At Chaton Studios,Scottsdadle,AZ And Theresa's 
+Catholic Bedroom,Phoenix,AZ.
+Engineered By Otto D'Agnolo.
+
+(p)&(c) 1994 ROADRUNNER Records
+
 
 ## Отношения с другими группами
 

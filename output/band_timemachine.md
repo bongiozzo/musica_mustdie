@@ -1,18 +1,290 @@
 # Time Machine
 
-Дискография
-"Project: Time Scanning - EP" 1993, Progressive
-"Dungeons Of The Vatican - EP" 1994, Progressive
-"Act II : Galileo" 1995, Progressive
-"Shades Of Time - EP" 1997, Progressive
-"Secret Oceans pt2 - EP" 1998, Progressive
-"Secret Oceans pt1 - EP" 1998, Progressive
-"Eternity Ends" 1999, Progressive
-"Hidden Secrets (best of) - 2CD" 2000, Progressive
-"Evil (liber primus)" 2001, Progressive
-"Aliger Daemon - EP" 2001, Progressive
-"Reviviscence" 2004, Progressive
-"Evil" 2004, Progressive
+prog-power
+
+## Дискография
+
+### "Project: Time Scanning - EP" 1993, Progressive
+
+1. Back Across The Centuries 
+2. 753 A.C. Ab Urbe Condita 
+3. Holy Man 
+4. Lover's Night In Venice 
+5. Medieval Lady 
+6. Past And Future 
+7. History 
+
+bonus tracks on the 1999 re-release: 
+
+8. 753 A.C. Ab Urbe Condita (instrumental version) 
+9. A Nightmare (gothic edit version) 
+
+Produced by Lorenzo Dehт and Roberto Gramegna
+ 
+    
+Andrea Ruggeri - Vocals 
+Ivan Oggioni - Rhythm Guitar 
+Roberto Gramegna - Keyboards 
+Roberto Pesana - Drums & percussion 
+Lorenzo Dehт - Bass, rhythm guitar & keyboards 
+Tony Priolo - Guitar Solos 
+guest vocals on #3 and #6 by Fabio Pagani  
+
+
+### "Dungeons Of The Vatican - EP" 1994, Progressive
+
+1. Dungeons Of The Vatican 
+2. 753 A.C. Ab Urbe Condita 
+3. Medieval Lady 
+
+Produced by Bob Gramm
+ 
+  
+Jonathan Lavino - Vocals 
+Joe Taccone - Guitars 
+Ivan Oggioni - Guitar 
+Mirko Criscione - Keyboards 
+Fabio Brigliadoro - Drums & percussion 
+Lorenzo Dehт - Bass & keyboards  
+
+
+### "Act II : Galileo" 1995, Progressive
+
+1. A New World 
+2. Guilt 
+3. Regrets 
+4. The Holy Office 
+5. The Old World 
+6. A Nightmare 
+7. Nightly Visions 
+8. The Trial 
+9. Pain 
+
+bonus tracks on the 1998 re-release: 
+
+10. Temple Of The Virgin 
+11. Love Without Sin, pt.1 
+12. Medieval Lady (reprise) 
+
+Produced by Bob Gramm & Lorenzo Dehт
+ 
+  
+Folco Orlandini - Vocals 
+Joe Taccone - Guitars 
+Ivan Oggioni - Guitars 
+Antonio Rotta - Drums 
+Lorenzo Dehт - Bass & keyboards  
+
+
+### "Shades Of Time - EP" 1997, Progressive
+
+1. Silent Revolution 
+2. 1.000 Rainy Nights 
+3. New Religion 
+4. Heaven And Hell (Black Sabbath cover) 
+5. Never-ending Love 
+6. Past And Future (1997 version) 
+
+bonus tracks on the 1999 re-release: 
+
+7. Past And Future (1993 version) 
+8. Never-ending Love (1998 version) 
+
+Produced by Livio Magnini & Lorenzo Dehт
+ 
+  
+Morby - Vocals 
+Joe Taccone - Guitars 
+Ivan Oggioni - Guitars 
+Nick Rossetti - Drums 
+Lorenzo Dehт - Bass & keyboards 
+Stefano Della Giustina -Tenor Sax  
+
+
+### "Secret Oceans pt2 - EP" 1998, Progressive
+
+1. I Believe Again (ocean version w. Andrй Matos) 
+2. Behind The Cross (radio edit) 
+
+Produced by Maurizio Brioschi, Steve Della Guistina & Lorenzo Dehт
+ 
+  
+Nick Fortarezza - Vocals 
+Joe Taccone - Guitars 
+Nick Rossetti - Drums & Percussion 
+Lorenzo Dehт - Bass & keyboards 
+Steve Della Giustina - Keyboards & Tenor Sax 
+guest vocals by Andrй Matos of ANGRA  
+
+
+### "Secret Oceans pt1 - EP" 1998, Progressive
+
+1. Behind The Cross (ocean version) 
+2. Never-ending Love (1998 version) 
+3. Mother (album version - from "Act II") 
+
+Produced by Maurizio Brioschi & Time Machine 
+ 
+  
+Nick Fortarezza - Vocals 
+Joe Taccone - Guitars 
+Nick Rossetty - Drums & Percussion 
+Lorenzo Dehт - Bass & keyboards 
+Steve Della Giustina - Keyboards & Tenor Sax  
+
+
+### "Eternity Ends" 1999, Progressive
+
+1. End Of Darkness 
+2. Falling Star 
+3. I, The Subversive Nazarene 
+4. Hidden Pain 
+5. Eternity Ends 
+6. I Believe Again 
+7. Desert Of Souls 
+8. Behind The Cross 
+9. Sphynx (the witness) 
+10. When The Night Surrounds Me 
+11. Pilatus 
+12. Dark Again 
+
+bonus tracks on the South American version 1998: 
+
+13. Never-ending Love 
+14. I Believe Again (with Andrй Matos) 
+15. Sphynx (the witness) (demo version) 
+
+Produced by Maurizio Brioschi, Stefano Della Guistina & Lorenzo Dehт 
+ 
+  
+Nick Fortarezza - Vocals 
+Joe Taccone - Guitars 
+Nick Rossetti - Drums & Percussion 
+Lorenzo Dehт - Bass & keyboards 
+Steve Della Giustina - Keyboards & Tenor Sax  
+
+
+
+### "Hidden Secrets (best of) - 2CD" 2000, Progressive
+
+CD I: 
+1.Riot In The Colonies 753 A.C. 
+2. Stargazer 
+3. I Hold The Key (into the void) 
+4. Eternity Ends 
+5. Silent Revolution 
+6. Behind The Cross 
+7. I Believe Again 
+8. 1.000 Rainy Nights 
+9. Falling Star ... mixing ... I, The Subversive Nazarene 
+10. Past And Future 
+11. Mother 
+12. Dungeons Of The Vatican 
+13. White Collars 
+
+CD II: 
+1. Will You Remember 
+2. Burning In The Wind 
+3. Desert Of Souls 
+4. Sphynx (the witness) 
+5. New Religion 
+6. I Hold The Key 
+7. Prisoner Of Dreams 
+8. Never-ending Love 
+9. Virgin Of The Temple 
+10. Love Without Sin, pt.1 
+11. Obscure Medieval Lady 
+12. Earth's Dawn (History) 
+13. Hidden Pain 
+
+Produced by Time Machine 
+
+
+### "Evil (liber primus)" 2001, Progressive
+
+1. Gerona 
+2. Where's My Heaven? 
+3. Army Of The Dead 
+4. Eyes Of Fire 
+5. Ecclesia Spiritualis 
+6. Neghentropia 
+7. Evil Lies 
+8. Angel Of Death 
+9. Hailing Souls 
+10. Silent Bells 
+
+Produced by Lorenzo Dehт 
+ 
+  
+Pino Tozzi - Vocals 
+Joe Taccone - Guitars  
+Gianluca Ferro - Guitars         
+Cludio Riotti - Drums         
+Lorenzo Dehт - Bass & keyboards 
+
+Guest musicians: 
+Eddy Antonini - Keyboards (from Skylark) 
+Roberto Gramegna - Keyboards & orchestration      
+Melody Castellari - Female vocals   
+
+
+### "Aliger Daemon - EP" 2001, Progressive
+
+1. Eyes Of Fire (demon mix)
+2. Angel Of Death (demon mix)
+3. Desert Of Souls (2001 remix)
+4. Will You Remember (album version - from "Hidden Secrets)
+5. Silent Revolution (2001 remix)
+
+Produced by Lorenzo Dehт
+ 
+  
+Pino Tozzi - Vocals 
+Joe Taccone - Guitars 
+Gianluca Ferro - Guitars 
+Cludio Riotti - Drums 
+Lorenzo Dehт - Bass & keyboards 
+
+Guest musicians: 
+Eddy Antonini - Keyboards (from Skylark) 
+Roberto Gramegna - Keyboards & orchestration 
+Melody Castellari - Female vocals  
+
+
+### "Reviviscence" 2004, Progressive
+
+1. Obscurity Within 
+2. Rotten Souls 
+3. Reviviscence 
+4. Sator 
+5. Angel Lucifer 
+6. Burning Crosses 
+7. Grains Of Sand 
+8. Alhambra 
+9. Tears Of Jerusalem 
+10. The Calling 
+11. Seeds Of Revolution 
+12. Revelation 
+
+
+Marco Sivo - Lead and Backing Vocals
+Gianluca Ferro - Lead and Rhythm Guitars, Keyboards, Programming
+Gianluca Galli - Lead and Rhythm Guitars, Sitar, Mandolin
+Lorenzo Deho - Bass, Keyboards, Programming
+Sigfrido Percich - Drums, Percussion, Programming
+
+Guest Musicians:
+Kiko Loureiro - Lead Guitars
+Rafael Bittencourt - Lead Guitars
+Fabio Ribeiro - Keyboards
+Mariano Croce - Lead Guitars
+Andrea Mastoianni - Keyboards
+Matteo Giuliani - Backing Vocals
+
+### "Evil" 2004, Progressive
+
+
+
 
 ## Отношения с другими группами
 

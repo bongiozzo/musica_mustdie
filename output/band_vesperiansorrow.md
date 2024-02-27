@@ -1,10 +1,75 @@
 # Vesperian Sorrow
 
-Дискография
-"Beyond the Cursed Eclipse" 1999, Death Metal
-"Psychotic Sculpture" 2001, Death Metal
-"Regenesis Creation" 2006, Black Metal
-"Stormwinds of Ages" 2012, Black Metal
+
+
+## Дискография
+
+### "Beyond the Cursed Eclipse" 1999, Death Metal
+
+1. Intro  2:22 
+2. Beyond the cursed eclipse  8:23 
+3. Twilight of azrael  7:25 
+4. From an ever blackened star  8:15 
+5. Calydon  7:44 
+6. Shadowlord  5:19 
+7. Windswept  8:45 
+8. Saga of the second sign  5:23 
+9. Us  3:46
+
+### "Psychotic Sculpture" 2001, Death Metal
+
+1. Solitude  10:25 
+2. Psychotic sculpture  4:38 
+3. Spiral symphony  7:19 
+4. Into the realm of dreams and haunts  5:12 
+5. Nebula design  7:26 
+6. The singularity  1:06 
+7. Arena unorthodox  7:29 
+8. Astrodramatica  8:40 
+9. Odyssium  5:51 
+
+
+Donn Donni - vocals
+Chris - drums
+William - guitars
+JZD - guitars
+V - keyboards
+Chuck - bass
+
+### "Regenesis Creation" 2006, Black Metal
+
+1. Intro 01:43
+2. Invisible Kingdom 07:32
+3. Imprisoned in Gurdon 04:32
+4. Regenesis Creation 05:54
+5. Quest of the Exiled 07:24
+6. Relinquished 06:39
+7. The Forever Vortex 04:08
+8. Vanquished 09:55
+
+
+### "Stormwinds of Ages" 2012, Black Metal
+
+01. Sanguis Vitam Est 00:58 
+02. Stormwinds Of Ages 05:13 
+03. An Empire To Mourn 06:04 
+04. Casting Dawn Into a Shadow 05:23 
+05. Crown Of Glass 04:13 
+06. Legacies Befallen 04:46 
+07. Eye Of The Clock Tower 07:14 
+08. Oracle From The Ashes 05:42 
+09. Relics Of The Impure 05:10 
+10. Death She Cried 06:10 
+11. Of Opiates And Accolades 06:24
+
+
+Kristoph: Drums, Keyboards, Producer, Engineer
+William: Guitars/Solos 
+JZD: Guitars/Solos 
+Justin M: Bass, Backup Vocals 
+Subverseraph: Keyboards, Backup Vocals 
+Donn Donni: Vocals
+
 
 ## Отношения с другими группами
 

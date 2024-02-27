@@ -1,11 +1,73 @@
 # Altaria
 
-Дискография
-"Sleeping Visions (demo/promo)" 2001, Power Metal
-"Feed The Fire (demo/promo)" 2002, Power Metal
-"Invitation" 2003, Power Metal
-"Divinity" 2004, Power Metal
-"The Fallen Empire" 2006, Heavy Metal
+Finnish Melodic Power Metal
+
+## Дискография
+
+### "Sleeping Visions (demo/promo)" 2001, Power Metal
+
+1.  Fire And Ice  
+2.  Innocent 
+3.  Kingdom Of The Night 
+ 
+
+
+### "Feed The Fire (demo/promo)" 2002, Power Metal
+
+1.  Unicorn  
+2.  History of Times to Come  
+3.  Immortal Disorder  
+4.  Emerald Eye 
+ 
+
+
+### "Invitation" 2003, Power Metal
+
+
+
+### "Divinity" 2004, Power Metal
+
+01. Prophet Of Pestilence 
+02. Unchain The Rain
+03. Darkened Highlight 
+04. Enemy 
+05. Falling Again 
+06. Divine 
+07. Haven 
+08. Try To Remember 
+09. Stain On The Switchblade 
+10. Discovery 
+11. Will To Live 
+12. Final Warning 
+13. Balls To The Wall (ACCEPT cover, bonus track)
+
+### "The Fallen Empire" 2006, Heavy Metal
+
+1. Disciples   
+2. Valley of Rainbows   
+3. Abyss of Twilight   
+4. Frozen Hearts   
+5. Crucifix   
+6. Showdown   
+7. The Lion   
+8. Outlaw Blood   
+9. Chosen One   
+10. Access Denied 
+Bonustracks:
+-The Dying Flame (Europe)
+-Metality (Japan)
+
+
+Line-up:
+Taage Lahio - Vocals
+J-P Alanen - Guitars
+Marko Pukkila - Bass
+Tony Smedjebacka - Drums
+
+Guests:
+Rowan Robertson - Guitar on "The Lion"
+Henrik Klingenberg - Keyboards on "The Dying Flame"
+
 
 ## Отношения с другими группами
 

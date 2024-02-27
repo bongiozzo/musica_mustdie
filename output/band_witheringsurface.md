@@ -1,10 +1,95 @@
 # Withering Surface
 
-Дискография
-"Scarlet Silhouettes" 1997, Melodic Death Metal
-"The Nude Ballet" 1999, Melodic Death Metal
-"Walking On Phantom Ice" 2001, Melodic Death Metal
-"Force The Pace" 2004, Melodic Death Metal
+
+
+## Дискография
+
+### "Scarlet Silhouettes" 1997, Melodic Death Metal
+
+1. Scarlet Silhouettes
+2. Beautybeast
+3. A Lily White Sign
+4. ...And She Blossomed
+5. Majestic Mistress
+6. Farewell
+7. Behind The Other Side
+8. Pitiful Emblems
+9. Your Shadow, My Shelter
+
+Facts:
+Guest appearances:
+Josephine - female vocals on 6.
+Jesper Stromblad (In Flames) - guest solo on 1.
+Nick Vincent (The Preachers) - gothic vocals on 9.
+Bjarke Ahlstrand - guest growls on 2.
+Frederik Nordstrom - falset to scream on 4.
+
+Produced, mixed and engineered by Frederik Nordstrom,
+Alex Losback and Withering Surface.
+Recorded at studio Fredman, October 1996.
+Mastered at Mastering Room by Goran Finnberg.
+
+### "The Nude Ballet" 1999, Melodic Death Metal
+
+1. Wither
+2. Ode For You
+3. Breathing Purple
+4. Will She Defy
+5. Black As I
+6. WhoreBride
+7. The Last One
+8. Nude & Humble
+9. Dancing With Faires
+10. Her Valley And Sea
+11. The Ballet
+
+
+Allan Tvedebrink - Guitars & piano
+Kaspar Boye-Larsen - Bass
+Micheal H. Andersen - Vocals
+Jakob Gundel - Drums
+
+
+
+
+### "Walking On Phantom Ice" 2001, Melodic Death Metal
+
+Walking On Phantom Ice
+Joyless Journey
+Night Of Shame
+Breed What You Kill
+Separation
+Suite 304
+Feed The Wolves
+The Everflow
+Sundive
+
+Recorded at Berno Studio in Malmo, Sweden in June ґ01.
+Produced & engineered by Berno Paulsson & Johan Axelsson.
+Mixed by Berno Paulssen & Withering Surface. 
+All lyrics by Michael H. Andersen
+
+
+Vocals - Michael H. Andersen 
+Guitar - Allan Tvedebrink
+Bass - Kaspar Boye Larsen
+Keyboards - Morten Lybecker
+Guitar - Jacob Krogholt
+Drums - Nikolaj Borg 
+
+### "Force The Pace" 2004, Melodic Death Metal
+
+Gears 
+Exit Sculpture 
+This View 
+Force the Pace 
+Hold the Line 
+Machinery 
+Inhale the Hyper Pulse 
+State of Emergency 
+Anything Goes 
+Urban Glasses
+
 
 ## Отношения с другими группами
 

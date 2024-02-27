@@ -1,20 +1,194 @@
 # Agnostic Front
 
-Дискография
-"Victim In Pain" 1984, Hardcore
-"Cause For Alarm" 1986, Hardcore
-"Victim In Pain - Cause For Alarm" 1986, Hardcore
-"Liberty And Justice For..." 1987, Hardcore
-"Live At CBGB" 1989, Hardcore
-"To Be Continued" 1992, Hardcore
-"One Voice" 1992, Hardcore
-"Last Warning" 1993, Hardcore
-"Something's Gotta Give" 1998, Hardcore
-"Riot, Riot, Upstart" 1999, Hardcore
-"Dead Yuppies" 2001, Hardcore
-"Another Voice" 2004, Hardcore
-"Warriors" 2007, Hardcore
-"My Life My Way" 2011, Hardcore
+
+
+## Дискография
+
+### "Victim In Pain" 1984, Hardcore
+
+1. Victim In Pain
+2. Remind Them
+3. Blind Justice
+4. Last Warning
+5. United & Strong Power
+6. Hiding Inside
+7. Fascist Attitudes
+8. Society Sucker
+9. Your Mistake
+10.With Time
+
+ Roger Miret - Vocals
+ Vinnie Stigma - Guitar
+ Alex Kinon - Guitar
+ Rob Kabula - Bass
+ Louie Beatto - Drums
+
+Produced By Dony Fury.
+Recorded At Demo Studios.
+
+(p)&(c) 1985 COMBAT CORE Records
+
+### "Cause For Alarm" 1986, Hardcore
+
+1. The Eliminator
+2. Existence Of Hate
+3. Time Will Come
+4. Growing Concern
+5. Your Mistake
+6. Out For Blood
+7. Toxic Shock
+8. Bomber Zee
+9. Public Assistance
+
+ Roger Miret - Vocals
+ Vinnie Stigma - Guitar
+ Alex Kinon - Guitar
+ Rob Kabula - Bass
+ Louie Beatto - Drums
+
+Produced By Norman Dunn.
+Recorded & Mixed At System II Studios.
+
+(p)&(c) 1986 MUSIC FOR NATIONS Records
+
+### "Victim In Pain - Cause For Alarm" 1986, Hardcore
+
+1.  Victim In Pain
+2.  Remind Them
+3.  Blind Justice
+4.  Last Warning
+5.  United & Strong Power
+6.  Hiding Inside
+7.  Fascist Attitudes
+8.  Society Sucker
+9.  Your Mistake
+10.With Time
+1. The Eliminator
+2. Existence Of Hate
+3. Time Will Come
+4. Growing Concern
+5. Your Mistake
+6. Out For Blood
+7. Toxic Shock
+8. Bomber Zee
+9. Public Assistance
+
+ Roger Miret - Vocals
+ Vinnie Stigma - Guitar
+ Alex Kinon - Guitar
+ Rob Kabula - Bass
+ Louie Beatto - Drums
+
+Produced By Norman Dunn.
+Recorded & Mixed At System II Studios.
+
+(p)&(c) 1986 MUSIC FOR NATIONS Records
+
+### "Liberty And Justice For..." 1987, Hardcore
+
+
+
+### "Live At CBGB" 1989, Hardcore
+
+
+
+### "To Be Continued" 1992, Hardcore
+
+1.  Victim In Pain
+2.  Your Mistake
+3.  Hypocrisy *
+4.  New Jack
+5.  Liberty & Justice *
+6.  Time Will Come
+7.  Power
+8.  Society Sucker
+9.  Toxic Shock
+10.Public Assistance
+11.Blind Justice
+12.The Eliminator
+13.One Voice
+14.Crucified **
+15.United And Strong
+16.Your Mistake
+17.Fascist Attitudes
+18.Anthem *
+19.Last Warning
+
+All Songs Published By A.F.Publishing
+Except * By Bomber Zee Inc.,
+And ** By Iron Cross
+
+(p)&(c) 1992 RELATIVITY Records
+
+### "One Voice" 1992, Hardcore
+
+1.  New Jack
+2.  One Voice
+3.  Infiltrate
+4.  The Tombs
+5.  Your Fall 
+6.  Over The Edge
+7.  Undertow
+8.  Now & Then
+9.  Crime Without Sin
+10.Retaliate
+11.Force Feed
+12.Bastard
+
+(p)&(c) 1992 RR Records
+
+### "Last Warning" 1993, Hardcore
+
+
+
+### "Something's Gotta Give" 1998, Hardcore
+
+
+
+### "Riot, Riot, Upstart" 1999, Hardcore
+
+
+
+### "Dead Yuppies" 2001, Hardcore
+
+
+
+### "Another Voice" 2004, Hardcore
+
+01. Still Here
+02. All Is Not Forgotten
+03. Fall Of The Paradise
+04. Pride, Faith, Respect
+05. So Pure To Me
+06. Dedication
+07. Peace
+08. Take Me Back
+09. Hardcore! (The Definition)
+10. Casuality Of The Times
+11. I Live It
+12. It's For Life
+13. Another Voice
+
+### "Warriors" 2007, Hardcore
+
+
+
+### "My Life My Way" 2011, Hardcore
+
+01. City Street
+02. More Than A Memory
+03. Us Against The World
+04. My Life My Way
+05. That_s Life
+06. Self Pride
+07. Until The Day I Die
+08. Now And Forever
+09. The Sacrifice
+10. A Mi Manera
+11. Your Worst Enemy
+12. Empty Dreams
+13. Time Has Come
+
 
 ## Отношения с другими группами
 

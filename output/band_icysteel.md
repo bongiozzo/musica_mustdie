@@ -1,10 +1,36 @@
 # Icy Steel
 
-Дискография
-"Icy Steel" 2007, Heavy Metal
-"As the Gods Command" 2010, Heavy Metal
-"Kronothor" 2012, Heavy Metal
-"Through The Ashes" 2016, Heavy Metal
+
+
+## Дискография
+
+### "Icy Steel" 2007, Heavy Metal
+
+
+
+### "As the Gods Command" 2010, Heavy Metal
+
+1.	 Impetuos Fire	06:09	 
+2.	 The Persistance of Time	06:24	  instrumental
+3.	 The Holy Sun	07:40	 
+4.	 Out of your Time	04:39	 
+5.	 Mj&#246;llnir	05:12	 
+6.	 Fallen Heroes	09:37	 
+7.	 Fly without Wings	07:39	 
+8.	 As the Gods Command (Pt. 1)	09:23	 
+9.	 As the Gods Command (Pt. 2)	03:31	 
+10.	 The Hymn of the Brave	01:20	 
+11.	 The Commander	07:41	 
+12.	 There Was Once a Weeping Willow	03:07	
+
+### "Kronothor" 2012, Heavy Metal
+
+
+
+### "Through The Ashes" 2016, Heavy Metal
+
+
+
 
 ## Отношения с другими группами
 

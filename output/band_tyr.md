@@ -1,15 +1,127 @@
 # Tyr
 
-Дискография
-"Demo" 2000, Viking Metal
-"How far to Asgaard" 2002, Viking Metal
-"Olavur Riddararos (single)" 2002, Viking Metal
-"Eric the Red" 2003, Viking Metal
-"Ragnarok" 2006, Viking Metal
-"Land" 2008, Viking Metal
-"By the Light of the Northern Star " 2009, Viking Metal
-"The Lay of Thrym" 2011, Viking Metal
-"Valkyrja" 2013, Viking Metal
+nordic progressive metal rock, based on tales of the vikings and valhalla
+
+## Дискография
+
+### "Demo" 2000, Viking Metal
+
+
+
+### "How far to Asgaard" 2002, Viking Metal
+
+
+
+### "Olavur Riddararos (single)" 2002, Viking Metal
+
+
+
+### "Eric the Red" 2003, Viking Metal
+
+1. The Edge 
+2. Regin Smidur
+3. Dreams 
+4. The Wild Rover 
+5. Styrisvolurin 
+6. Olavur Riddararos 
+7. Rainbow Warrior 
+8. Ramund hin Unge 
+9. Alive
+10. Eric The Red
+
+### "Ragnarok" 2006, Viking Metal
+
+1. The Beginning   
+2. The Hammer of Thor   
+3. Envy   
+4. Brother Bane   
+5. The Burning   
+6. The Ride to Hell   
+7. Torsteins Kvaedi   
+8. Grнmus б Midalnesi   
+9. Wings of Time   
+10. The Rage of the Skullgaffer   
+11. The Hunt   
+12. Victory   
+13. Lord of Lies   
+14. Gjallarhornid   
+15. Ragnarok   
+16. The End
+
+### "Land" 2008, Viking Metal
+
+
+
+### "By the Light of the Northern Star " 2009, Viking Metal
+
+1. Hold the Heathen Hammer High 
+2. Trondur I Gotu   
+3. Into the Storm   
+4. Northern Gate  
+5. Turia Torkilsdottir   
+6. By the Sword in My Hand   
+7. Ride   
+8. Hear the Heathen Call   
+9. By the Light of the Northern Star 
+The limited edition includes two instrumental bonus tracks:
+10. The Northern Lights
+11. Anthem 
+
+
+Line-up:
+Heri Joensen - Vocals, Guitars
+Terji Skibenжs - Guitars
+Gunnar H. Thomsen - Bass
+Kбri Streymoy - Drums
+
+### "The Lay of Thrym" 2011, Viking Metal
+
+1. Flames of the Free  04:17    
+2. Shadow of the Swastika  04:23    
+3. Take Your Tyrant  03:55    
+4. Evening Star  05:04    
+5. Hall of Freedom  04:06    
+6. Fields of the Fallen  04:59    
+7. Konning Hans  04:27    
+8. Ellindur Bondi a Jadri  03:55    
+9. Nine Words of Lore  04:04    
+10. The Lay of Thrym  06:48  
+
+Bonus Tracks on the limited edition:
+11. I (Black Sabbath cover)
+12. Stargazer (Rainbow cover) 
+
+Gunnar Thomsen  Bass  
+Terji Skibenжs  Guitars  
+Kari Streymoy  Drums  
+Heri Joensen  Vocals / Guitars  
+ 
+
+
+
+### "Valkyrja" 2013, Viking Metal
+
+1. Blood of Heroes 03:41
+2. Mare of My Night 03:55
+3. Hel Hath No Fury 03:26
+4. The Lay of Our Love 03:47
+5. Nation 04:04
+6. Another Fallen Brother 04:04
+7. Grindavisan 04:10
+8. Into the Sky 02:56
+9. Fanar Burtur Brandaljoa 03:38
+10. Lady of the Slain 04:32
+11. Valkyrja 07:31
+12. Where Eagles Dare 06:26
+13. Cemetery Gates 07:25
+
+
+
+Gunnar Thomsen - Bass 
+Heri Joensen - Guitars, Vocals 
+Terji Skibenжs - Guitars 
+
+
 
 ## Отношения с другими группами
 

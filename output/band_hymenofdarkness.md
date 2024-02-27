@@ -1,7 +1,23 @@
 # Hymen Of Darkness
 
-Дискография
-"Unholy Total Hate… Fuck You All" 2006, Black Metal
+
+
+## Дискография
+
+### "Unholy Total Hate… Fuck You All" 2006, Black Metal
+
+1. Intro
+2. That Smeall The Whores
+3. Total Hate	
+4. At the Dungeons of Abyss
+5. Black Poetry for the Virgins
+6. A Dream of Blood in Carpathian
+7. Cold
+8. Enthralled at the Hymen of Darkness	
+9. Transilvanian Hunger (Darkthrone cover)
+10. As the Whine of Lucifer	 
+11. Necrobitch (Six Sex Six)
+
 
 ## Отношения с другими группами
 

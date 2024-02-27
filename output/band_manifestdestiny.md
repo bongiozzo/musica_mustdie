@@ -1,10 +1,58 @@
 # Manifest Destiny
 
-Дискография
-"All Life, All minds" 1996, Thrash
-"What You Fear" 1997, Thrash
-"Within" 2001, Thrash
-"Your World Has Died [EP]" 2007, Thrash
+
+
+## Дискография
+
+### "All Life, All minds" 1996, Thrash
+
+1. All Life, All minds
+2. Too Strong for Words
+3. Outcry
+4. Corruption
+5. Paths of Thought
+6. If I Fall
+7. Marks of Insertion
+8. God Watchers
+9. Forceful Parasite
+10. Private Crime
+
+### "What You Fear" 1997, Thrash
+
+1. Screw to Turn	 
+2. Gateway	 
+3. Grip	 
+4. Internal Timebomb	 
+5. Down Time	 
+6. Your Weakness	 
+7. Sandframe	 
+8. Bleed	 
+9. Sink In	 
+10. Truth (Jefferson Airplane Cover)	 
+11. Hole in the Sky (Black Sabbath Cover)
+
+### "Within" 2001, Thrash
+
+1. Storm is forming	 
+2. Dethroned	 
+3. Empty god	 
+4. Lost again	 
+5. Winter within	 
+6. Morbid Conscious	 
+7. As I am	 
+8. Let them drown	 
+9. Flowing over free	 
+10. Broken
+
+### "Your World Has Died [EP]" 2007, Thrash
+
+1. Time of Light	 
+2. Your World has Died	 
+3. Take the Next Step	 
+4. The One	 
+5. Bury the Living	 
+6. Outcry '07
+
 
 ## Отношения с другими группами
 

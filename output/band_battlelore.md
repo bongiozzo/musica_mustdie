@@ -1,15 +1,217 @@
 # Battlelore
 
-Дискография
-"Warrior's Tale [Promo I]" 1999, Doom
-"Dark Fantasy [Promo II]" 2000, Doom
-"...Where the Shadows Lie" 2002, Doom
-"Sword's Song" 2003, Doom
-"The Journey [DVD]" 2004, Doom
-"Third Age Of The Sun" 2005, Metal
-"Evernight" 2007, Metal
-"The Last Alliance" 2008, Gothic
-"Doombound" 2011, Metal
+True Arctic Fantasy Metal / Finnish Epic Metal
+
+## Дискография
+
+### "Warrior's Tale [Promo I]" 1999, Doom
+
+
+
+### "Dark Fantasy [Promo II]" 2000, Doom
+
+
+
+### "...Where the Shadows Lie" 2002, Doom
+
+1. Swordmaster
+2. The Grey Wizard
+3. Raging Goblin
+4. Journey to Undying Lands
+5. Shadowgate
+6. Fangorn
+7. The Green Maid
+8. Khazad-Dum, Pt. 1 (Ages of Mithril)
+9. Ride With the Dragons
++ Bonus Track:
+10. Feast for the Wanderer
+
+Produced by Miitri Aaltonen.
+
+- Jyri Vahvanen, Guitar
+- Miika Kokkola, Bass
+- Henri Vahvanen, Drums
+- Tommi Havo, Raging Vocals, Guitar
+- Patrik Mennander, Clean Male vocals
+- Maria, Synthesizer
+- Kaisa Jouhki, Female Vocals
+
+Guest Musicians:
+- Jyrki Myll&auml;rinen, Classical Guitar
+- Miitri Aaltonen, Background Vocals, Percussion
+
+&copy; 2002 Napalm Records / 02-212
+
+### "Sword's Song" 2003, Doom
+
+01. Sons of Riddermark
+02. Sword's Song
+03. The Mark of the Bear
+04. Buccaneers Inn
+05. Attack of the Orcs
+06. Dragonslayer
+07. Khazad-Dum, Pt. 2 (Silent Caverns)
+08. Horns of Gondor
+09. The War of Wrath
+10. Forket Height
+11. Starlight Kingdom
+12. The Curse of the Kings (Bonus Track)
+
+Jyri Vahvanen, Guitar
+Miika Kokkola, Bass
+Henri Vahvanen, Drums
+Jussi Rautio, Guitar
+Patrik Mennander, Clean Male and Raging Vocals
+Maria, Keyboards
+Kaisa Jouhki, Female Vocals
+
+Guest Musicians:
+Eric Zacharias, Additional Synthesizer
+Tommi Havo, Background Raging Vocals
+Miitri Aaltonen, Background Vocals
+
+Produced by Miitri Aaltonen.
+Cover art by Ted Nasmith.
+Recorded at Music Bros. Studios.
+
+&copy; 2003 Napalm Records / CD 03-576
+
+### "The Journey [DVD]" 2004, Doom
+
+- Live in Tavastia Club
+- Music Videos
+- Behind the Scenes
+- Interviews
+- Photogallery
+
+Jyri Vahvanen, Guitar
+Miika Kokkola, Bass
+Henri Vahvanen, Drums
+Jussi Rautio, Guitar
+Patrik Mennander, Clean Male and Raging Vocals
+Maria, Keyboards
+Kaisa Jouhki, Female Vocals
+
+All songs by Battlelore / Iron Avantgarde Publishing
+Produced by Peter O. Moritz
+
+Format: DVD 5
+Screen: 4:3
+Audio: Dolby Stereo, Dolby 5.1, DTS
+Region: 0 - PAL
+Language: English
+Duration: Approx. 90 min.
+
+&copy; 2004 Napalm Records / DVD 04-15
+
+### "Third Age Of The Sun" 2005, Metal
+
+1. Usvainen Rhыn 01:36  
+2. Storm of the Blades 03:22  
+3. Ghвn of the Woods 04:41  
+4. Gwaith-i-Mнrdain 03:43  
+5. Trollshaws 04:07  
+6. Elves of Lъva 04:39  
+7. Valier - Queens of the Valar 04:19  
+8. Thousand Caves 04:06  
+9. Cloaked In Her Unlight 04:13  
+10. Of Orcs and Elves 04:26  
+11. Touch of Green and Gold 03:59  
+12. Pallando - Forgotten Wizards I 03:31  
+13. Gollum's Cry 03:03
+
+### "Evernight" 2007, Metal
+
+1. House of Heroes
+2. Ocean's Elysium
+3. Summon the Wolves
+4. We Are the Legions
+5. Into the New World
+6. Longing Horizon
+7. Mask of Flies
+8. The Cloak and the Dagger
+9. Beneath the Waves
+
+### "The Last Alliance" 2008, Gothic
+
+01. Third Immortal
+02. Exile the Daystar
+03. The Great Gathering
+04. Guardians
+05. Voice of the Fallen
+06. Daughter of the Sun
+07. Green Dragon
+08. Awakening
+09. Epic Dreams
+10. Moontower
+11. The Star of High Hope
+
+### "Doombound" 2011, Metal
+
+1. Bloodstained 04:34  
+2. Iron of Death 04:42  
+3. Bow and Helm 03:56  
+4. Enchanted 05:40  
+5. Karmessurma 04:23  
+6. Olden Gods 04:21  
+7. Fate of the Betrayed 05:08  
+8. Men as Wolves 04:38  
+9. Last of the Lords 05:43  
+10. Doombound 08:02  
+11. Kielo (instrumental) 02:57 
+
+
+-Line up-
+
+Tomi Mykkдnen : Vocals 
+Kaisa Jouhki : Vocals
+Jussi Rautio : Guitar 
+Jyri "Moredhel" Vahvanen : Guitar 
+Timo Honkanen : Bass 
+Henri Vahvanen : Drums 
+Maria : Keyboards, Flute
+
+The digipack edition comes with a Bonus DVD &#65533;10 Years of
+Battlelore&#65533;:
+Live at Club Nosturi, Helsinki, Finland June 27th 2008:
+- Storm of the Blades
+- Valier &#65533; Queens of the Valar
+- We are the Legions
+- Sons of Riddermark
+- Ghвn of the Woods
+- Raging Goblin
+
+Live at Club Nosturi, Helsinki, Finland January 1st 2009:
+- Green Dragon
+- Swordmaster
+- House of Heroes
+- Moontower
+- The Great Gathering
+
+&#65533;Evernight over Europe&#65533; Tour 2007
+- includes a few live songs filmed during the tour
+- cameras: Eetu Kerдnen, Toni Salminen and Battlelore
+- edited by Toni Salminen and Maria Honkanen
+
+&#65533;The Last Alliance&#65533; Tour in Finland 2008
+- includes a few live clips filmed during the tour
+- cameras: Eetu Kerдnen, Toni Salminen, Enkku and Battlelore
+- edited by Toni Salminen and Maria Honkanen
+
+Photo galleries:
+- 2000-2004
+- 2004-2006
+- 2007-2008
+- 2009-2010
+
+Music videos:
+- Third Immortal
+- House of Heroes
+- Storm of the Blades
+- Journey to Undying Lands
+
+Total running time: 03:47:00
+
 
 ## Отношения с другими группами
 

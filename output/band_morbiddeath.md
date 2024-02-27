@@ -1,8 +1,49 @@
 # Morbid Death
 
-Дискография
-"Echoes Of Solitude" 1997, Gothic
-"Secrets" 2002, Gothic
+
+
+## Дискография
+
+### "Echoes Of Solitude" 1997, Gothic
+
+1. Echoes of Solitude (Intro) 
+2. Judgement Day 
+3. Depressed Mind 
+4. Devastacao 
+5. Empty Soul 
+6. God's of Eternity 
+7. Unequal rights 
+8. ... Silencio Profundo 
+9. One's Will 
+
+### "Secrets" 2002, Gothic
+
+1. Secrets 
+2. Believe 
+3. Mess 
+4. Burned Chest 
+5. Falling 
+6. Gentle Whisper 
+7. God 
+8. Alone 
+9. My Life 
+10. Darkest side of Paradise 
+
+
+
+Recorded, mixed and mastered by: Eduardo Botelho
+Produced by: Eduardo Botelho and Morbid Death
+All photos by: M.J. Santos
+Concept and design by: Paulo Bettencourt
+
+
+Keyboards: Pedro Guerreiro
+Drums: Pedro Andrade
+Bass & Vocals: Ricardo Santos
+Guitars: Rui Frias
+Guitars: Paulo Bettencourt
+ 
+
 
 ## Отношения с другими группами
 

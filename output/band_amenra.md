@@ -1,10 +1,43 @@
 # Amenra
 
-Дискография
-"Mass I: Prayer I - VI" 2003, Metal
-"Mass II: Sermons [EP]" 2005, Metal
-"Mass III" 2005, Metal
-"Mass IIII" 2008, Metal
+
+
+## Дискография
+
+### "Mass I: Prayer I - VI" 2003, Metal
+
+1. Change Is Always  04:23  
+2. Dance Of The Dead  05:49
+3. Discrimen  02:05  
+4. Hibernate  03:59   
+5. Silent Pause  05:31  
+6. Ode To A Broken Doll  04:56 
+
+### "Mass II: Sermons [EP]" 2005, Metal
+
+1. Prayer 8: From Birth To Grave  05:42
+2. Prayer 9: Offerande  03:56 
+3. Prayer 10: Ritual  10:32 
+
+### "Mass III" 2005, Metal
+
+1. The Pain. It Is Shapeless. We Are Your Shapeless Pain.  10:17  
+2. Nemelendelle. Twuhste En Tljiste.  07:28 
+3. Die Strafe. Am Kreuz. Ich Schreibe Eine Bibel In Blut.  07:11  
+4. Le Fils Des Faux. Il Fallait Que Je Parte Pour Que Tu Viennes.  07:59  
+5. From Birth To Grave From Shadow To Light  05:43 
+6. Ritual  08:00 
+
+### "Mass IIII" 2008, Metal
+
+1. Silver Needle/Golden Nail  08:24   
+2. Le Gardien Des Reves  04:26   
+3. De Dodenakker  10:01   
+4. Terziele  02:46  
+5. Razoreater  06:49 
+6. Aorte. Nous Sommes Du Meme Sang  09:01 
+7. Thurifer, Et Clamor Ad Te Veniat  06:43 
+
 
 ## Отношения с другими группами
 

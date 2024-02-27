@@ -1,8 +1,39 @@
 # Dragonlord
 
-Дискография
-"Rapture" 2001, Death Metal
-"Black Wings Of Destiny" 2005, Death Metal
+Black-death metal combo feat. Testament, Sadus, Vicious Rumors and Death ex- and present members
+
+## Дискография
+
+### "Rapture" 2001, Death Metal
+
+1. Vals De La Muerte
+2. Unholy Void
+3. Tradition And Fire
+4. Born To Darkness
+5. Judgement Failed
+6. Wolfhunt
+7. Spirits In The Mist
+8. Rapture
+
+Eric Peterson - vocals, guitars
+Jon Allen - drums
+Lyle Livingston - keyboards
+Steve Smyth - guitars
+Steve DiGiorgio - bass
+
+### "Black Wings Of Destiny" 2005, Death Metal
+
+1. The Becoming Of 01:18  
+2. Curse of Woe 05:40  
+3. Revelations 05:53  
+4. Until the End 06:48  
+5. Sins of Allegiance 04:05  
+6. Mark of Damnation 05:13  
+7. Blood Voyeur 04:34  
+8. Fallen 04:37  
+9. Black Funeral 02:37  
+10. Emerald 03:39
+
 
 ## Отношения с другими группами
 

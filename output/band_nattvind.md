@@ -1,7 +1,20 @@
 # Nattvind
 
-Дискография
-"Subuniverses" 2002, Gothic
+
+
+## Дискография
+
+### "Subuniverses" 2002, Gothic
+
+1. Planets Falling
+2. Thirteen Moons
+3. A Bag Full of Winds
+4. Walk With Me
+5. I Approach the End
+6. The Heart That You Stole
+7. Different Realities
+8. The Future Behind Us 
+
 
 ## Отношения с другими группами
 

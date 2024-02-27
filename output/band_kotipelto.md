@@ -1,9 +1,67 @@
 # Kotipelto
 
-Дискография
-"Waiting For The Dawn" 2002, Power Metal
-"Coldness" 2004, Power Metal
-"Serenity" 2007, Heavy Metal
+(STRATOVARIUS frontman)
+
+## Дискография
+
+### "Waiting For The Dawn" 2002, Power Metal
+
+1. Intro 
+2. Travel Through Time 
+3. Beginning 
+4. Lord of Eternity 
+5. Knowledge and Wisdom 
+6. Battle of the Gods 
+7. Beauty Has Come 
+8. Vizier 
+9. Chosen by Re 
+10. Waiting for the Dawn 
+11. Arise 
+12. Movement of the Nile 
+
++ Secret name (Bonus track in Japan)
++ Book of the Dead (Bonus track in Finland)
+
+
+### "Coldness" 2004, Power Metal
+
+01. Seeds Of Sorrow
+02. Reasons
+03. Around
+04. Can You Hear The Sound
+05. Snowbound
+06. Journey Back
+07. Evening's Fall
+08. Coldness Of My Mind
+09. Take Me Away
+10. Here We Are
+
+Janne Wirman (CHILDREN OF BODOM - keyboards)
+Jari Kainulainen (STRATOVARIUS - bass)
+Mirka Rantanen (THUNDERSTONE, TUNNELVISION - drums)
+Mike Romeo (SYMPHONY X - guitars)
+Juhani Malmberg (TUNNELVISION - guitars)
+
+### "Serenity" 2007, Heavy Metal
+
+1. Once upon a Time   
+2. Sleep Well   
+3. Serenity   
+4. City of Mysteries   
+5. King Anti-Midas   
+6. Angels Will Cry   
+7. After the Rain   
+8. Mr. Know-It-All   
+9. Dreams and Reality   
+10. Last Defender 
+
+
+Timo Kotipelto - Vocals 
+Tuomas Wainala - Guitars
+Lauri Porra - Bass 
+Janne Warman - Keyboards 
+Mirka Rantanen - Drums
+
 
 ## Отношения с другими группами
 

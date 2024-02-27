@@ -1,7 +1,22 @@
 # Moker
 
-Дискография
-"Translating The Pain" 2007, Death Metal
+
+
+## Дискография
+
+### "Translating The Pain" 2007, Death Metal
+
+1. Intro (instrumental) 
+2. Manic Existence 
+3. Your Dark Self 
+4. My World Decays 
+5. Tormented Soul 
+6. False Reality 
+7. Am I Falling Into ... 
+8. Broken Silence 
+9. Stuck In A Pattern 
+10. Last Note
+
 
 ## Отношения с другими группами
 

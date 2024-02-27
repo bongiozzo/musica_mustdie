@@ -1,8 +1,39 @@
 # Bestial Warlust
 
-Дискография
-"" 1994, Black Metal
-"Blood And Valour" 1996, Black Metal
+Satanic-War-Holocaust-Death-Black-Metal
+
+## Дискография
+
+### "" 1994, Black Metal
+
+
+
+### "Blood And Valour" 1996, Black Metal
+
+1.  Blood And Valour
+2.  Death Rides Out
+3.  Prelude: Descention
+4.  Hells Blood
+5.  Barbaric Horde
+6.  :Till The End
+7.  Within The Storm
+8.  Legion Of Wrath
+9.  Orgy Of Souls (Hallowed Night)
+10.  I, The Warrior
+
+Produced By BESTIAL WARLUST.
+Engineered By Mark Ingram.
+Recorded & Mixed at 001 Studio, 1995
+Mastered By Wayne Baptist at Sony, Australia.
+
+Skullfucker - Vocals, Guitars
+Hellcunt - Drums
+Bloodstorm - Vocals
+Battleslaughter - Guitars
+Fiend Of The Deed - Session Bass
+
+(P)&c 1996 MODERN  INVASION //MIM 7321
+
 
 ## Отношения с другими группами
 

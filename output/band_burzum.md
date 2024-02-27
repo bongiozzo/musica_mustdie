@@ -1,22 +1,441 @@
 # Burzum
 
-Дискография
-"Burzum (demo I)" 1991, Black Metal
-"Burzum" 1992, Black Metal
-"Burzum (demo II)" 1992, Black Metal
-"Aske [EP]" 1993, Black Metal
-"Det Som Engang Var" 1993, Black Metal
-"Hvis Lyset Tar Oss" 1994, Black Metal
-"Burzum/Aske" 1995, Black Metal
-"Filosofem" 1996, Black Metal
-"Dunkelheit (video)" 1996, Black Metal
-"Daudi Baldrs" 1997, Ambient
-"Hlidskjalf" 1999, Ambient
-"Ragnarok (A New Beginning)" 2000, Black Metal
-"Visions... A Tribute to Burzum" 2002, Black Metal
-"Belus " 2010, Black Metal
-"Fallen" 2011, Black Metal
-"Umskiptar" 2012, Viking Metal
+Misanthropic Anti-Christian Norwegian Black Metal and Dark Ambient
+
+## Дискография
+
+### "Burzum (demo I)" 1991, Black Metal
+
+1. Lost Wisdom (04:59)
+2. Spell Of Destruction (05:08)
+3. Channeling the Power of Souls Into a New God (04:01)
+
+All music by Varg "Count Grishnackh" Vikernes
+All instruments by Varg "Count Grishnackh" Vikernes
+
+Released: May 17th, 1991
+
+&copy; 1991 Burzum
+
+### "Burzum" 1992, Black Metal
+
+Side "Hate"
+
+1. Feeble Screams from Forests Unknown (07:28)
+2. Ea, Lord of the Depths (04:52)
+3. Black Spell of Destruction (05:39)
+4. Channelling the Power of Souls Into a New God (03:27)
+
+Side "Winter"
+
+1. War (02:30)
+2. The Crying Orc (00:58)
+3. A Lost Forgotten Sad Spirit (09:11)
+4. My Journey to the Stars (08:10)
+5. Dungeons of Darkness (04:50)
+
+
+Count Grishnackh - Vocals, All Instruments
+
+Produced By Putten & Count Grishnackh.
+Co-Producer Euronymous.
+Engineered & Mastered by Putten.
+Recorded Mid-Winter 1992 During Full Moon at Grieghallen.
+All songs by Count Grishnakh.
+
+Released: March 1992
+
+&copy; 1992 Deathlike Silence Records
+
+### "Burzum (demo II)" 1992, Black Metal
+
+1. Lost Wisdom (04:16)
+2. Depressive Visions of the Cursed Warrior (03:16)
+3. Lord of the Depths (04:39)
+4. Spell of Destruction (04:29)
+5. A Lost Forgotten Sad Spirit (07:27)
+6. Lost Wisdom (04:39)
+7. Spell of Destruction (04:45)
+8. Channelling the Power of Souls Into a New God (03:46)
+9. Feeble Screams from Forests Unknown (06:32)
+10. My Key to the Purgatory (05:16)
+11. Rite of Cleansure (06:17)
+12. A Lost Forgotten Sad Spirit (09:27)
+
+Line-up:
+Varg "Count Grishnackh" Vikernes - All instruments
+
+A compilation of early rehearsal- and demo-tracks. Tracks 6-8 are from the first demo.
+
+&copy; 1992 Burzum
+
+### "Aske [EP]" 1993, Black Metal
+
+Side "Hate":
+1. Stemmen Fra T&aring;rnet (6:09)
+2. Dominus Sathanas (3:02)
+
+Side "Winter":
+3. A Lost Forgotten Sad Spirit (10:51)
+
+
+Count Grishnackh - Voice, Guitars, Drums
+
+Recorded August 1992 at Grieghallen Studios.
+Produced by Count Grishnackh and Pytten.
+
+All music and lyrics by Count Grishnackh.
+
+Bass on this mini album played by Samoth.
+"Dominus Sathanas" recorded April 1992.
+
+The English title of track 1 would be "Call from the Tower".
+In English, the album title would mean "Ashes".
+
+The building featured on the cover is the ruins of the Fantoftkirke, a church
+burned by Varg in 1992. Ironically, distributed by Deathlike Silence
+Productions, were lighters with the album cover printed on them.
+
+Long out of print.
+Limited to 1000 units. 
+
+Released: March 1993
+
+&copy; 1993 Deathlike Silence Productions
+
+### "Det Som Engang Var" 1993, Black Metal
+
+1. Den Onde Kysten (The Evil Shore) (02:20)
+2. Key to the Gate (05:15)
+3. En Ring Til &Aring; Herske (One Ring to Rule) (07:10)
+4. Lost Wisdom (04:39)
+5. Han Som Reiste (The One Who Wandered) (04:51)
+6. N&aring;r Himmelen Klarner (When the Sky Clears) (03:50)
+7. Snu Mikrokosmos Tegn (Turning Microcosmos' Sign) (09:37)
+9. Svarte Troner (Black Thrones) (02:17)
+
+English translation of Norwegian titles:
+1. The Evil Shore
+3. One Ring to Rule
+5. He Who Travelled
+6. When the Skies Clear
+7. Turn the Sign of Microcosmos
+8. Black Thrones
+
+
+Det Som Engang Var is Norwegian for "What Once Was".
+
+Recorded in April 1992 (i.e., actually before the 'Aske' EP, although 'Aske' was released first).
+
+Original out-of-print jewelcase edition released by Cymophane in 1993 (shown below.)
+Re-released version (digipak) by Misanthropy, 1994.
+
+Released: August 1993
+
+&copy; 1993 Cymophane Productions
+&copy; 1994 Misanthropy Productions
+
+### "Hvis Lyset Tar Oss" 1994, Black Metal
+
+1. Det Som En Gang Var (Was Einst War, What Once Was) (14:21)
+2. Hvis Lyset Tar Oss (Wenn Das Licht Uns Nimmt, If the Light Takes Us) (08:05)
+3. Inn I Slottet Fra Dr&oslash;mmen (In Das Schloss Der Tr&auml;ume, In the Castle of the Dream) (07:52)
+4. Tomhet (Leere, Emptiness) (14:12)
+
+Song titles in English are:
+1. "That Which Once Was"
+2. "If the Light Takes Us"
+3. "Into the Castle from the Dream"
+4. "Emptiness"
+
+
+Varg "Count Grishnackh" Vikernes - Vocals, All Instruments
+
+Recorded in September 1992. A limited jewelcase pressing also exists (shown here).
+Album cover is artwork from Theodor Kittelsen called "Fattigmannen" (The Pauper).
+
+Released: May 1994
+
+&copy; 1994 Misanthropy Records
+
+### "Burzum/Aske" 1995, Black Metal
+
+<ol>
+ <li style="font-size: 14 px; color: white; font-weight: bold">Feeble Screams from Forests Unknown <small>(07:28)</small>
+ <li style="font-size: 14 px; color: white; font-weight: bold">Ea, Lord of the Depths <small>(04:52)</small>
+ <li style="font-size: 14 px; color: white; font-weight: bold">Black Spell of Destruction <small>(05:39)</small>
+ <li style="font-size: 14 px; color: white; font-weight: bold">Channeling the Power of Souls Into a New God <small>(03:27)</small>
+ <li style="font-size: 14 px; color: white; font-weight: bold">War <small>(02:30)</small>
+ <li style="font-size: 14 px; color: white; font-weight: bold">The Crying Orc <small>(00:58)</small>
+ <li style="font-size: 14 px; color: white; font-weight: bold">My Journey to the Stars <small>(08:10)</small>
+ <li style="font-size: 14 px; color: white; font-weight: bold">Dungeons Of Darkness <small>(04:50)</small>
+ <li style="font-size: 14 px; color: white; font-weight: bold">Stemmen Fra T&aring;rnet <small>(05:45)</small>
+ <li style="font-size: 14 px; color: white; font-weight: bold">Dominus Sathanas <small>(02:52)</small>
+ <li style="font-size: 14 px; color: white; font-weight: bold">A Lost Forgotten Sad Spirit <small>(09:11)</small>
+</ol>
+Varg "Count Grishnackh" Vikernes - Vocals, all instruments
+Samoth - Bass
+
+Spilt inn i Grieghallen Lydstudio i Januar (BURZUM) og August (ASKE) 1992 a.y.p.s.
+Produsert av Pytten og Greifi Grishnackh
+Musikk og tekster laget og fremfoert av Greifi Grishnackh
+
+Re-release of the first two albums ("Burzum" LP and "Aske" EP, which had gone out-of-print). The S/T album is not reproduced in full, though - the track "A Lost Forgotten Sad Spirit" is missing. This song appears here only in its "Aske" version. Only available as a digipack.
+
+Released: October 1995
+
+&copy; 1993 Deathlike Silence Productions
+&copy; 1995 Misanthropy Records
+
+### "Filosofem" 1996, Black Metal
+
+1. Dunkelheit (Burzum) (07:05)
+2. Jesus' Tod (Jesu D&oslash;d) (08:39)
+3. Erblicket Die T&ouml;chter Des Firmaments (07:53)
+4. Gebrechlichkeit I (07:53)
+5. Rundgang Um Die Transzendentale S&auml;ule Der Singularit&auml;t (Rundtg&aring;ing Av Den Transcendentale Egenhetens St&oslash;tte) (25:11)
+6. Gebrechlichkeit II (07:53)
+
+Song titles in English are:
+1. Darkness
+2. The Death of Jesus
+3. Beholding the Daughters of the Firmament
+4. Decrepitude I
+5. Tour Around the Transcendental Pillars of Singularity
+6. Decrepitude II
+
+The original song titles are in German.
+
+All songs written by Burzum.
+Produced by Varg Vikernes.
+Recorded in March 1993.
+
+This is Varg Vikernes' last metal album. The two full-lengths after "Filosofem" are Dark Ambient.
+
+Cover Artwork by Theodor Kittelsen.
+
+"Rundgang Um Die Transzendentale S&auml;ule Der Singularit&auml;t" is part of the soundtrack from "Gummo" (documentation)
+
+Released: January 1st, 1996
+
+&copy; 1996 Misanthropy Records
+
+### "Dunkelheit (video)" 1996, Black Metal
+
+<b>1. Dunkelheit</b> <small>(07:16)</small>
+
+Special promotional video
+
+&copy; 1996 Misanthropy Records
+
+### "Daudi Baldrs" 1997, Ambient
+
+1. Dau&#240;i Baldrs (08:45)
+2. Herm&#243;&#240;r &#193; Helfer&#240; (02:37)
+3. B&#225;lfer&#240; Baldrs (06:01)
+4. &#205; Heimr Heljar (01:59)
+5. Illa Ti&#240;andi (10:52)
+6. M&#243;ti Ragnarokum (08:58)
+
+English translation of the titles:
+1. The Death of Balder
+2. Hermodr on a Journey to Hel
+3. Balder's Burning
+4. In Hel's Home
+5. Ill Tidings
+6. Towards Ragnarok
+
+
+Varg "Count Grishnackh" Vikernes - All Instruments
+
+Recorded late 1994 / early 1995 at Brei&#240;ablik
+
+This instrumental album is basically the soundtrack to the story of Balder.
+
+Album recorded while in prison for church burning and Euronymous jail sentence.
+He wasn't allowed any musical instruments in prision, so he made this album all with MIDI format sound.
+Though there are lyrics in the booklet, the music itself doesn't have any vocals. The text is to inform the reader about what the atmosphere surrounding the songs themselves should be, or rather, what the songs should feel like in general.
+Some copies have a huge typo on the name Burzum with the letter M missing from the cover. Some also come with different cover art than shown here.
+
+Cover Artwork: Tanya Stene
+
+German text from booklet "Dau&#240;i Baldrs" (Translated by Rainer):
+Logic (Loki) led by its desire for reason, unites the blindness in us (Ho&#240;r) with the death religions (the parasitic Mistletoe on the tree of life, Yggdrasill), and kills there with the meaning of our lives (Baldr). The meaning of life is deeply lost in the unconscious of our human psyche (Helheimr). Some people are motivated by the Uranus-energy (&#211;dinn/Hermo&#240;r) and they try to travel within themselves in order to rediscover there the meaning of life. But this is not successful, not this way. When we (&#222;&#243;rr), bitter, bid farewell to our beloved meaning of life, we also bid farewell to any kind of trust (L&#237;tr) and burned it at the stake. The entire humanity suffers, we burn from within, we cry. The Logic (of the modern science) which with its angry scientific drive, its "arrogance" and its contradictions, keeps the Occultists (Hermo&#240;r) from rediscovering the meaning of life.
+Nothing evil is behind that, only cold and calculating logic. Logic in its lack of feeling cries dry tears. This leads to Ragnarok; Beginning, Cause, Symbol, Witness, Destiny and Twilight of the Gods. The battle in the human psyche is fought between the conscious mind (&#198;sir) and the unconsciousness (Jotunn). No Jotun returns alive from Asgard (Consciousness).
+COMMENTARY: Varg appears to imply that Ragnarok, the greatest battle of all, is in fact fought out in our minds... The Gods (Asgardians) are brought down by Loki as prophesied, but Loki takes the form of the cold, calculating logic of modern society, that leaves no room in our minds for spiritual planes of thinking. He implies that Ragnarok will in fact be a battle of the unconscious and the conscious and that it will be cold logic, nurtured in the artificial plastic light of today's society, that will finally spell the twilight of the Gods.
+
+Released: October 14th, 1997 
+
+&copy; 1997 Misanthropy Records
+
+### "Hlidskjalf" 1999, Ambient
+
+1. Tuistos Herz (06:11)
+2. Der Tod Wuotans (06:42)
+3. Ansuzgardaraiw&#244; (04:27)
+4. Die Liebe Ner&#254;us' (02:14)
+5. Das Einsame Trauern Von Frijo/Frij&#244;s Einsames Trauern (06:14)
+6. Die Kraft De Mitgefuehls/Einf&uuml;hlungsverm&ouml;ge (03:55)
+7. Frij&#244;s Goldene Tr&auml;nen (02:38)
+8. Der Weinende Hadnur (01:14)
+
+Song titles in English are:
+1. Tuisto's Heart
+2. The Death of Wotan
+3. Warriors of Ansuzgarda
+4. The Love of Nerthus
+5. Frijo's Lonesome Mourns
+6. The Power of Empathy
+7. Frijo's Golden Tears
+8. The Crying Hadnur
+
+Hli&#240;skj&#225;lf is the name of Odin's throne.
+
+Varg "Count Grishnackh" Vikernes - All Instruments
+Recorded by Varg "Count Grishnackh" Vikernes
+Cover Artwork: Tanya Stene
+Design: Stiven O'Mally
+
+Recorded during summer 1998. Varg used full keyboard sound instead of MIDI this time.
+
+Though there are lyrics in the booklet, the music itself doesn't have any vocals. The text is to inform the reader about what the atmosphere surrounding the songs themselves should be, or rather, what the songs should feel like in general.
+
+Released: April 26th, 1999
+
+&copy; 1999 Misanthropy Records
+
+### "Ragnarok (A New Beginning)" 2000, Black Metal
+
+<ol>
+ <li style="font-size: 14 px; color: white; font-weight: bold">Et Hvitt Lys Over Skogen* <small>(09:12)</small>
+ <li style="font-size: 14 px; color: white; font-weight: bold">Lost Wisdom** <small>(04:51)</small>
+ <li style="font-size: 14 px; color: white; font-weight: bold">Spell of Destruction** <small>(04:57)</small>
+ <li style="font-size: 14 px; color: white; font-weight: bold">Channeling the Power of Souls Into a New God** <small>(03:59)</small>
+ <li style="font-size: 14 px; color: white; font-weight: bold">Outro** <small>(01:57)</small>
+ <li style="font-size: 14 px; color: white; font-weight: bold">A Lost and Forgotten Sad Spirit*** <small>(09:20)</small>
+ <li style="font-size: 14 px; color: white; font-weight: bold">Duet With Mayhem**** <small>(01:05)</small>
+ <li style="font-size: 14 px; color: white; font-weight: bold">H&aring;vam&aring;l***** <small>(12:17)</small>
+</ol>* Recorded in Grieghallen Lydstudio September 1992, previously unreleased
+** Demo 1991/Rehearsal
+*** From Original "Aske" EP Recording
+**** Previously Only on Original "Deathcrush"
+***** Sveinbj&ouml;rn Beinteinsson Sings Words of Odin
+
+Line-up:<ul><li style="font-size: 14 px; color: white; font-weight: bold">Varg "Count Grishnackh" Vikernes - Vocals, all instruments
+<li style="font-size: 14 px; color: white; font-weight: bold">Sveinbj&ouml;rn Beinteinsson - Vocals
+</ul>&copy; 2000 Aske Records - Varg 001 (1000 copies)
+
+### "Visions... A Tribute to Burzum" 2002, Black Metal
+
+CD I<ol>
+<li style="font-size: 14 px; color: white; font-weight: bold">Aborym "Det Som Engang Var"
+<li style="font-size: 14 px; color: white; font-weight: bold">Aegishjalmar "Jesus' Tod"
+<li style="font-size: 14 px; color: white; font-weight: bold">Black Queen "Inn I Slottet Fra Dr&oslash;mmen"
+<li style="font-size: 14 px; color: white; font-weight: bold">Cryogenic "Dunkelheit"
+<li style="font-size: 14 px; color: white; font-weight: bold">Earthcorpse "Lost Wisdom"
+<li style="font-size: 14 px; color: white; font-weight: bold">Ewigkeit "Ea 2000 - Out for the Count"
+<li style="font-size: 14 px; color: white; font-weight: bold">Fornost "Wende Im Zeichen Des Mikrokosmos"
+<li style="font-size: 14 px; color: white; font-weight: bold">Funeral Procession "Der Ruf Aus Dem Turm"
+<li style="font-size: 14 px; color: white; font-weight: bold">Judas Iscariot "War"
+<li style="font-size: 14 px; color: white; font-weight: bold">Krigstrommer "Lost Wisdom"
+<li style="font-size: 14 px; color: white; font-weight: bold">Krystall "B&#225;lfer&#240; Baldrs"
+</ol>
+CD II<ol>
+<li style="font-size: 14 px; color: white; font-weight: bold">Luror "Key to the Gate"
+<li style="font-size: 14 px; color: white; font-weight: bold">Nokturnal Mortum "My Journey to the Stars"
+<li style="font-size: 14 px; color: white; font-weight: bold">Orthaugr "Der Weinende Hadnur"
+<li style="font-size: 14 px; color: white; font-weight: bold">Pagan Hellfire "Frij&#244;s Einsames Trauern"
+<li style="font-size: 14 px; color: white; font-weight: bold">Sarnath "Stemmen Fra T&aring;rnet"
+<li style="font-size: 14 px; color: white; font-weight: bold">Schizoid "En Ring Til &Aring; Herske"
+<li style="font-size: 14 px; color: white; font-weight: bold">Starchamber "Han Som Reiste"
+<li style="font-size: 14 px; color: white; font-weight: bold">The Syre "Black Spell of Destruction"
+<li style="font-size: 14 px; color: white; font-weight: bold">Tronus Abyss "M&#243;ti Ragnarokum"
+<li style="font-size: 14 px; color: white; font-weight: bold">Wolfsburg "Lost Forgotten Sad Spirit"
+<li style="font-size: 14 px; color: white; font-weight: bold">Woods of Fallen "Beholding the Daughters of the Firmament"
+<li style="font-size: 14 px; color: white; font-weight: bold">Herrenfolk "Dau&#240;i Baldrs"
+</ol>
+Design by Klaas.
+
+&copy; 2002 Cymophane Productions
+&copy; 2002 Unholy Records
+
+### "Belus " 2010, Black Metal
+
+1. Leukes Renkespill (Introduksjon) 00:33 [view lyrics] 
+2. Belus' Dod 06:23 
+3. Glemselens Elv 11:54  
+4. Kaimadalthas' Nedstigning 06:43
+5. Sverddans 02:27 
+6. Keliohesten 05:45
+7. Morgenrode 08:54 
+8. Belus' Tilbakekomst (Konklusjon) 09:37 
+
+
+Recorded in Grieghallen Studios, Norway.
+Produced by Pytten and Burzum.
+All songs written and performed by Burzum.
+
+
+Translations:
+1. The Intrigues of Leuke (Introduction) 
+2. The Death of Belus 
+3. The River of Forgetfulness 
+4. The Descent of Kaimadalthas 
+5. Sword Dance 
+6. The Horse of Kelio 
+7. Dawn 
+8. The Return of Belus (Conclusion) 
+
+An earlier working title for the album was "Den Hvite Guden", which in English translates to "The White God". 
+
+### "Fallen" 2011, Black Metal
+
+1. Fra Verdenstreet 01:02  
+2. Jeg Faller 07:49 
+3. Valen 09:21 
+4. Vanvidd 07:06 
+5. Enhver til Sitt 06:16
+6. Budstikken 10:10 
+7. Til Hel og Tilbake Igjen 05:57 
+
+Cover picture is "Elegy" by Adolphe-William Bouguereau. 
+
+### "Umskiptar" 2012, Viking Metal
+
+01. Blodstokkinn 01:22 
+02. Joln 05:53 
+03. Alfadanz 09:22 
+04. Hit Helga Tre 06:52 
+05. Era 03:58 
+06. Heidr 03:01 
+07. Valgaldr 08:05 
+08. Galgvidr 07:19 
+09. Surtr Sunnan 04:16 
+10. Gullaldr 10:21 
+11. Nidhoggr 05:06
+
+
+"Umskiptar" is Norwegian for "Metamorphoses".
+ 
+Artwork presents Peter Nicolai Arbo's painting of the goddess Nуtt, the night is personified. 
+
+English translations of song titles:
+ 1. Soaked in Blood
+ 2. Deities
+ 3. Elven Dance
+ 4. The Sacred Tree
+ 5. Honour
+ 6. Esteem
+ 7. Song of the Fallen
+ 8. Gallow Forest
+ 9. Black from the South
+ 10. Golden Age
+ 11. Attack from Below
+ 
+The lyrics on "Umskiptar" are all taken from a Norse poem, Vцluspб.
+ 
+Recorded in Grieghallen Studio in Bergen in September 2011. 
+
 
 ## Отношения с другими группами
 

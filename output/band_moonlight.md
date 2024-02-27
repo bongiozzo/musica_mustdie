@@ -1,14 +1,124 @@
 # Moonlight
 
-Дискография
-"Moonlight" 1993, Gothic
-"Kalpa Taru" 1996, Gothic
-"Meren Re" 1997, Gothic
-"Inermis" 1999, Gothic
-"Floe" 2000, Gothic
-"Yaishi" 2001, Gothic
-"Koncert w Tr&oacute;jce 1991-2001" 2001, Gothic
-"Candra" 2002, Gothic
+gothic doom from Poland
+
+## Дискография
+
+### "Moonlight" 1993, Gothic
+
+
+
+### "Kalpa Taru" 1996, Gothic
+
+Strach
+Stadium Wiary
+Cisza Przed Burz№
+Extaza Milczenia
+Conquistador
+Modlitwa O Zmiіowanie
+Hexe
+Ananke
+Zmierzch
+Damaisa
+Jak Ryby
+Msza
+Deformis
+Zbrodnia I Kara
+Belibaste
+
+### "Meren Re" 1997, Gothic
+
+
+
+### "Inermis" 1999, Gothic
+
+Inermis
+Szalenstwo
+Do ojca
+Jeszcze raz
+Umbra
+Noc
+Pokuta klamcy
+Flos
+Non umbra
+Nie moge zmienic nic
+Inermis II
+Enjoy The Silence
+Army Of Me
+
+
+### "Floe" 2000, Gothic
+
+Tabu
+Lekarstwo na Sen
+List z Raju
+Taniec ze њmierci№
+Meren Re (Akt Ostatni)
+Meren Re (Dobranoc)
+...
+Obsesja
+Shadizar
+Kiedy Myњli mi Oddasz
+Kochanka
+Nic w zyciu nie zdarza siк przypadkowo
+
+
+
+Maja Konarska - voc.
+Daniel Potasz - keyb.
+Andrzej Kutys - guit.
+Pawe&#322; Got&#322;as - bass
+Maciek Ka&#378;mierski - dr.
+
+
+
+
+### "Yaishi" 2001, Gothic
+
+
+
+### "Koncert w Tr&oacute;jce 1991-2001" 2001, Gothic
+
+
+
+### "Candra" 2002, Gothic
+
+01. Ronaa
+02. Luna II
+03. Meren-Re
+04. Body Dialogue
+05. To See Yourself
+06. Asuu
+07. Luna
+08. Goodnight
+
+Maja Konarska - vocals
+Daniel Potasz - keyboards
+Andrezej Kutys - guitars
+Michal Podciechowski - bass guitar, baritone
+guitar
+Maciej Kazmierski - drums and percussions
+
+Special guest appearance:
+A.Ch. Hejne - vocals in "Ronaa"
+Gienia - keyboards
+Marcin Bors - guitars, baritone guitar, e-bow
+
+Special guest appearance in "Goodnight":
+Malgorzata Kogut - violin
+Pawel Brzychey - viola
+Agnieszka Zigadlo - cello
+
+Lyrics translated by Dominik Rozwadowsky and
+Mateusz Rolik (except "Goodnight" - translated by
+Magdalena Dolinska). Video: Filip Zaluska. Video
+script: Daniel Potasz, Filip Zaluska,. Featuring:
+Maja Konarska, Magda Milewska, Konrad Pawicki.
+Marcin Bors - production, mixing and mastering.
+Michal Podciechowski - good ideas. Cover: Mychal
+Partyka. Band photo: Ryszard Pakieser.
+
+
 
 ## Отношения с другими группами
 

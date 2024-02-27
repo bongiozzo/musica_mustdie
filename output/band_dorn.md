@@ -1,10 +1,50 @@
 # Dorn
 
-Дискография
-"Falschheit" 2000, Black Metal
-"Brennende Kalte" 2001, Black Metal
-"Schatten Der Vergangenheit" 2002, Black Metal
-"Suriel" 2004, Black Metal
+one-man band from Germany (ex-Riger)
+
+## Дискография
+
+### "Falschheit" 2000, Black Metal
+
+Intro                    1.45
+Weibe nacht              4.14
+Rache                    4.04
+Eine art des seins       5.01
+Dunkle tiefen            3.45
+Anfang ohne ende         5.24
+Meer der Verdammnis      5.07
+Dorn                     4.13
+Die idee                 7.43
+
+### "Brennende Kalte" 2001, Black Metal
+
+1. Aggression
+2. Liebe, Hass, Leben und Tod
+3. Todesangst
+4. Brennende Kдlte
+5. Mein Eigenes Blut
+6. Verlockende Falle
+7. Sehnsucht Gegen Trotz
+8. Wahre Worte
+
+
+### "Schatten Der Vergangenheit" 2002, Black Metal
+
+1.) Dorns Geburt
+2.) Ewige Redner
+3.) Seelenfieber
+4.) Dunkelheit
+5.) Dorns Herz
+6.) Schatten der Vergangenheit
+7.) Wahre Macht
+8.) Gerechtigkeit
+9.) Licht der Hoffnung
+
+
+### "Suriel" 2004, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

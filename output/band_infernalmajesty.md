@@ -1,11 +1,29 @@
 # Infernal Majesty
 
-Дискография
-"None Shall Defy" 1987, Thrash
-"Unholier Than Thou" 1998, Thrash
-"Chaos In Copenhagen " 2000, Thrash
-"One Who Points To Death " 2004, Thrash
-"Demon God (EP)" 2007, Thrash
+
+
+## Дискография
+
+### "None Shall Defy" 1987, Thrash
+
+
+
+### "Unholier Than Thou" 1998, Thrash
+
+
+
+### "Chaos In Copenhagen " 2000, Thrash
+
+
+
+### "One Who Points To Death " 2004, Thrash
+
+
+
+### "Demon God (EP)" 2007, Thrash
+
+
+
 
 ## Отношения с другими группами
 

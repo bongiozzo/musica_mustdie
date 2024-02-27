@@ -1,7 +1,21 @@
 # Fleshbomb
 
-Дискография
-"At the First Stage of Perversion" 2004, Deathcore
+
+
+## Дискография
+
+### "At the First Stage of Perversion" 2004, Deathcore
+
+1. Amputatorgasm
+2. The visions of semen and gore
+3. Anal bleeding
+4. Breatstless and Raped
+5. Endless cannibalism
+6. Mass necrosis
+7. Necrophagous child
+8. Killing virtue
+9. Deadbestiaphilia
+
 
 ## Отношения с другими группами
 

@@ -1,9 +1,67 @@
 # Algaion
 
-Дискография
-"Oimai Algeiou" 1995, Death Metal
-"General Enmity" 1997, Death Metal
-"Exthros" 2010, Death Metal
+
+
+## Дискография
+
+### "Oimai Algeiou" 1995, Death Metal
+
+1. Venenum Hominitatis (Intro)
+2. Natrices Educati
+3. Heosphoros
+4. In Aede Dolorium
+5. On The Reach Of Zaphonia
+6. Kratos
+7. The Last Delusion
+
+All Songs By ALGAION.
+Produced By Peter & ALGAION.
+Engineerd & Mixed By Peter Tagtgren.
+Recorded At Studio Abyss.
+
+T.Kamijo - Electric & Acoustic Guitars, Bass,Keyboards
+K.Bjorkman - Vocals
+F.Soderlund - Session Keyboard,Bass
+E.Magnusson - Session Backing Vocals
+M.Osterberg - Session Backing Vocals
+
+(P)&(C) 1995 FULL MOON Production
+
+### "General Enmity" 1997, Death Metal
+
+1. Inductio 01:35  
+2. General Enmity 03:45  
+3. No Will Without Fire 03:51  
+4. Unstained Progress 05:04  
+5. Nature Red in Tooth and Claw 03:20  
+6. An Impending Disaster 06:29  
+7. Mangod Hold the Sceptre 05:49  
+8. Lies of Human Value 03:05  
+9. The Angel of Decease 04:37  
+10. Indifference Beyond Misanthropy 03:33  
+11. It's Darker in the Present 03:39  
+12. The Root of Inhumanity / Conclusio 06:23 
+
+
+This album was unlike the first two recordings from Algaion and not recorded in
+the Abyss studio, but in a studio run by a TV sound engineer who had never
+worked with this kind of music before.
+
+### "Exthros" 2010, Death Metal
+
+1. Alpha 01:09  
+2. That Time Is Nigh 04:13  
+3. Theos Tou Aimatos 04:27  
+4. We Are The Enemy 03:20  
+5. The Last Of Cursed Days 05:55  
+6. Nature Our Slave 05:07  
+7. Ruach Adversi 03:56  
+8. This Is Our Temple 03:54  
+9. Sign Of Evil Existence / The Era Of Satan Rising (Rotting Christ Cover / Thou Art Lord Cover) 03:18  
+10. House Of War 04:42  
+11. Omega 00:50 
+
+
 
 ## Отношения с другими группами
 

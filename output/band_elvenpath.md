@@ -1,10 +1,63 @@
 # Elvenpath
 
-Дискография
-"Gateways" 2004, Power Metal
-"Spyrol" 2008, Power Metal
-"Elvenpath" 2011, Power Metal
-"Pieces of Fate" 2015, Power Metal
+Melodic Power Metal
+
+## Дискография
+
+### "Gateways" 2004, Power Metal
+
+1. The Land That Could Not Be  07:35   
+2. Shade of a Wolf's Face  07:28   
+3. Amazone Queen  07:21   
+4. Winterland  08:54  
+5. The Sacred Talisman  09:41 
+
+
+### "Spyrol" 2008, Power Metal
+
+1. Burning Skies  07:54   
+2. Priests of War  05:45   
+3. The Mask of Sorrow  04:52  
+4. Angel of Fire  09:11  
+5. Late at Night  05:50   
+6. Northern Son  10:11   
+7. Act the Innocent  05:31  
+
+
+### "Elvenpath" 2011, Power Metal
+
+
+1. For Our Liberty  05:11   
+2. Into the Future  05:38  
+3. Guardians of the Underground  06:41   
+4. Moria  06:18   
+5. Enflaming Demands  05:39  
+6. Cellars of Doom  04:53   
+7. Metal Suite I - The Suite of Metal  00:33   instrumental  
+8. Metalwar [The Truelogy - Part One]  07:35   
+9. Metal Suite II - The Suite of Steel  00:31   instrumental  
+10. War of Steel [The Truelogy - Part Two]  08:26   
+11. Metal Suite III - The Suite of Iron  00:43   instrumental  
+12. Metalsteel [The Truelogy - Part Three]  08:22   
+13. Metal Suite IV - The Suite of Heavy Metal Victory  00:19
+
+### "Pieces of Fate" 2015, Power Metal
+
+1. Mountain of Sorrows  07:02   
+2. Battlefield of Heaven  04:54  
+3. Sons of the Blood Cult  07:36   
+4. The Liars' Dance  05:29   
+5. Testament of Tragedy  08:44  
+6. Wild Boars of Steel  05:54  
+7. Coming Home  02:31   instrumental  
+8. Sentinel of the Past  06:06   
+9. Queen Millennia  06:47   
+10. On the Elvenpath  13:21 
+
+
+
+"Wild Boars of Steel" is not the 2013 single version, the song was re-recorded for the album.
+
 
 ## Отношения с другими группами
 

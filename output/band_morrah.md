@@ -1,8 +1,36 @@
 # Morrah
 
-Дискография
-"Experiment in Blood" 2005, Death Metal
-"Sense Of Brutality" 2009, Death Metal
+Brutal death metal from St-Peterburg
+
+## Дискография
+
+### "Experiment in Blood" 2005, Death Metal
+
+Александр Довжиков - вокал 
+Лев Торба (Б. Б. Хоббит) - гитара 
+Александр Алексаничев (Deada) - гитара 
+Михаил Караванов - бас 
+Дмитрий Варламов (DV) - ударные 
+
+
+Recorded IN August-September 2003 AT Fantom Pain Studio ( SPb Russia )
+Engineering & record production By Igor Anokhin
+Mixed at Astia Studio By Anssi Kippo ( Lapenranta Finland )
+Mastered At Fantom Pain Studio ( SPb Russia ) By Igor Anokhin
+
+### "Sense Of Brutality" 2009, Death Metal
+
+01. Sense Of Brutality
+02. Cemetery Feast
+03. Born By Accident
+04. Embodiment Of Mind
+05. Black Light
+06. Treatment Impossible (Suicide Enough)
+07. Torn The Page
+08. Collector
+09. Final Fantasy
+10. Dшd For Fullstendig Alle (Bonus Track)
+
 
 ## Отношения с другими группами
 

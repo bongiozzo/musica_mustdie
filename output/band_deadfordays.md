@@ -1,8 +1,36 @@
 # Dead For Days
 
-Дискография
-"Creating Murderous Domain" 2004, Deathcore
-"Disassociated from Reality" 2008, Deathcore
+
+
+## Дискография
+
+### "Creating Murderous Domain" 2004, Deathcore
+
+1. Burned Crisp Body Bag 05:30  
+2. Swallowing The Barrel 03:47  
+3. Hostage Crisis 03:23  
+4. Face Down In A Pile Of Dog Shit 01:11  
+5. Plague Of The Earth 04:24  
+6. Thoughts Of Systematic Dissection 04:09  
+7. Liquified Then Purified 05:15  
+8. Severed Genital Copulation 04:14  
+9. Screams Gone Unheard 04:51 
+
+### "Disassociated from Reality" 2008, Deathcore
+
+1. Safty in the Hands of a Murderer 00:52  
+2. Prolific Genocide 03:25  
+3. Conforming Through Violence 03:15  
+4. Genetics of Hate 04:37  
+5. Tirad Through Frequency 01:03  
+6. Prolonging the Inevitable 03:23  
+7. Resist Or Serve 03:35  
+8. Bred to Kill 04:02  
+9. World of Disease 03:57  
+10. Swallowing the Barrel 03:53  
+11. The Kindling of Terror (With Treaties) 03:51  
+12. Face Down in a Pile of Dog Shit: Part II 00:06 
+
 
 ## Отношения с другими группами
 

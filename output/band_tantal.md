@@ -1,8 +1,35 @@
 # Tantal
 
-Дискография
-"Emotional Distress" 2007, Death Metal
-"The Beginning of the End" 2009, Techno Death
+
+
+## Дискография
+
+### "Emotional Distress" 2007, Death Metal
+
+1. CONTROLLED BY HATE
+2. CONFESSION
+3. EMOTIONAL DISTRESS   
+4. SUICIDE
+5. CAPRICE#24 by Pagannini
+
+### "The Beginning of the End" 2009, Techno Death
+
+1. Beginning of the End 08:21  
+2. Controlled by Hate 07:31  
+3. Lifeless Existence 08:08  
+4. When Clarity Comes... 04:46  
+5. Suicide 06:55  
+6. In the End Pt.1 (Agony) 05:52  
+7. In the End Pt.2 (Epitaph) 06:44  
+8. Farewell 01:48 
+
+
+Vyacheslav Guravoy - Drums
+Dmitry Ignat'ev - Guitar 
+Sofia Raykova - Vocals
+Mihail Krivulec - Bass
+Alexandr Strelnikov - Guitar 
+
 
 ## Отношения с другими группами
 

@@ -1,19 +1,191 @@
 # Flotsam & Jetsam
 
-Дискография
-"Doomsday For The Deceiver" 1986, Thrash
-"No Place For Disgrace" 1988, Thrash
-"When The Storm Comes Down" 1990, Thrash
-"Cuatro" 1992, Thrash
-"Drift" 1995, Thrash
-"High" 1997, Thrash
-"Unnatural Selection" 1999, Thrash
-"My God" 2001, Thrash
-"Dreams Of Death" 2005, Thrash
-"The Cold" 2011, Thrash
-"Ugly Noise" 2012, Thrash
-"No Place for Disgrace – 2014" 2014, Thrash
-"Flotsam & Jetsam" 2016, Thrash
+
+
+## Дискография
+
+### "Doomsday For The Deceiver" 1986, Thrash
+
+1. Hammerhead
+2. Iron Tears
+3. Desecrator
+4. Fade To Black
+5. Doomsday For The Deceiver
+6. Metalshock
+7. She Took The Axe
+8. U.S.L.W.
+9. Der Fuhrer
+10.Flotzilla
+
+(p)&(c) 1986 ELECTRA
+
+### "No Place For Disgrace" 1988, Thrash
+
+1. No Place For Disgrace 6.11
+2. Dreams Of Death 5.40
+3. N.E. Terror 5.57
+4. Escape From Within 6.47
+5. Saturday Night`s Alright For Fighting * 4.00
+6. Hard On You 4.51
+7. I Live You Die 5.50
+8. Misguided Fortune 5.29
+9. P.A.A.B. 5.33
+10.The Jones 3.57
+
+All Songs By FLOTSAM AND JETSAM,Except Of * By Elton John.
+Produced By Bill Metoyer & FLOTSAM AND JETSAM.
+Recorded At Music Grinder,Hollywood,CA,December`87-February`88.
+
+(p)&(c) 1988 ELECTRA / ASYLUM
+
+### "When The Storm Comes Down" 1990, Thrash
+
+1. The Master Sleeps
+2. Burned Device
+3. Deviation
+4. October Thorns
+5. No More Fun
+6. Suffer The Masses
+7. 6,Six,VI
+8. Greed
+9. E.M.T.E.K.
+10.Scars
+11.K.A.B.
+
+(p)&(c) 1990 ELECTRA
+
+### "Cuatro" 1992, Thrash
+
+1. Natural Enemies
+2. Swafting At Flies
+3. The Massage
+4. Cradle Me Now
+5. Wading Through The Darkness
+6. Double Zero
+7. Never To Reveal
+8. Forget About Heaven
+9. Secret Square
+10.Hypodermic Midnight Snack
+11.Are You Willing
+12.(Ain't Nothing Gonna) Save This World
+
+(p)&(c) 1992
+
+### "Drift" 1995, Thrash
+
+
+
+### "High" 1997, Thrash
+
+1.Final Step
+2. Hallucinational
+3. It's On Me
+4. High Noon
+5. Your Hands
+6. Monster
+7. Lucky Day
+8. Toast
+9. High
+10. Everything
+11. Fork-boy
+
+Eric A.K. - Vocals
+Kelly Smith - Drums
+Jason Ward - Bass
+Ed Carlson - Guitars
+Mike Gilbert - Guitars
+
+Fork-boy written by A.Jourgensen/J.Ward/P.Baker/E.Boucher/
+W. Rieflin
+All Other songs written by F&J and Eric Braverman 
+except Final Step and Everything written by F&J
+Produced By Bill Metoyer and Flotsam&Jetsam
+Recorded and mixed by Bill Metoyer
+Recorded at Vintage Recorders, Phoenix, Arizona 
+
+(p)(c)1997 Metal Blade Records
+
+### "Unnatural Selection" 1999, Thrash
+
+1. Dream Scrape
+2. Chemical Noose
+3. Promise Keepers
+4. Liquid Noose
+5. Falling
+6. F**kers
+7. Brain Dead
+8. Way To Go
+9. Win, Lose or Dead
+10. Welcome To The Bottom
+
+All Songs written by Flotsam & Jetsam
+
+Produced by James Lockyer and Flotsam&Jetsam
+Engineered by James Lockyer
+Recorded and Mixed at The SounLab, USA
+
+Eric A.K. - Vocals
+Mike Simpson - Guitars
+Ed Carlson - Guitars
+Jason Ward - Bass
+Craig Nielsen - Drums
+
+(p)(c)1999 Metal Blade Records
+
+### "My God" 2001, Thrash
+
+1. Dig Me Up to Bury Me 05:46
+2. Keep Breathing 05:08
+3. Nothing to Say 05:19
+4. Weather to Do 05:21
+5. Camera Eye 03:48
+6. Trash 04:34
+7. Praise 02:02  
+8. My God 05:24
+9. Learn to Dance 04:26
+10. Frustrate 03:28
+11. Killing Time 05:27
+12. I.A.M.H. 06:06 
+
+### "Dreams Of Death" 2005, Thrash
+
+1. Requiescal 00:36  
+2. Straight to Hell 04:30
+3. Parasychic, Paranoid 02:52
+4. Bleed 05:19
+5. Look in His Eyes 04:24
+6. Childhood Hero 06:26
+7. Bathing in Red 06:20
+8. Nascentes Morimar 05:02
+9. Out of Mind 11:51 
+
+### "The Cold" 2011, Thrash
+
+01. Hypocrite 4:05
+02. Take 4:19
+03. The Cold 7:19
+04. Black Cloud 4:41
+05. Blackened Eyes Staring 4:38
+06. Better Off Dead 5:43
+07. Falling Short 5:12
+08. Always 3:38
+09. K.Y.A 5:26
+10. Secret Life 7:03
+11. Hammerhead (live)
+12. No Olace For Disgrace (live)
+
+### "Ugly Noise" 2012, Thrash
+
+
+
+### "No Place for Disgrace – 2014" 2014, Thrash
+
+
+
+### "Flotsam & Jetsam" 2016, Thrash
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,17 @@
 # Defiler
 
-Дискография
-"Pangaea" 2010, Deathcore
-"Nematocera" 2012, Deathcore
+
+
+## Дискография
+
+### "Pangaea" 2010, Deathcore
+
+
+
+### "Nematocera" 2012, Deathcore
+
+
+
 
 ## Отношения с другими группами
 

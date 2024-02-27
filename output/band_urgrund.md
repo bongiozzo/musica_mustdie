@@ -1,10 +1,57 @@
 # Urgrund
 
-Дискография
-"The Graven Sign" 2002, Black Metal
-"Unchangeable Fate" 2005, Black Metal
-"Disciples Of Supremacy" 2007, Black Metal
-"Urgrund" 2012, Black Metal
+
+
+## Дискография
+
+### "The Graven Sign" 2002, Black Metal
+
+1.	 Eordscraeft - A Reckoning	01:26	 
+2.	 Crusaders & Destroyers	03:09
+3.	 Scourge (Of God)	04:19
+4.	 Black Death	03:58
+5.	 War Elite	04:22
+6.	 Besieged Cities	04:04	 
+7.	 Oskereien / Wildes Hunt	02:58	
+8.	 On Stones Marked Black	04:38	 
+9.	 Heathen Dionysian	03:27
+
+### "Unchangeable Fate" 2005, Black Metal
+
+1.	 Saga of Redemption
+2.	 Desert Fox
+3.	 Ride the Warstorm
+4.	 Scavengers
+5.	 Colossal Fist
+6.	 Raiding Monasteries
+7.	 Foredoomed
+8.	 Unchangeable Fate
+
+### "Disciples Of Supremacy" 2007, Black Metal
+
+1.	 Disciples of Supremacy	05:59
+2.	 Sea Dogs	06:03	 
+3.	 Inquisition	05:58
+4.	 Raw To The Bone	05:37	 
+5.	 Nightwatch Heresy (De Bokkerijder)	05:24
+6.	 As The Shrapnel Rains	05:37
+7.	 The Days Behind Iron	05:08	 
+8.	 Wretched & Bound	07:17
+
+### "Urgrund" 2012, Black Metal
+
+1.	 Plague Harvest	 
+2.	 Funeral Absolution		 
+3.	 Slavery's Sedition		 
+4.	 Beseiged Cities		 
+5.	 Legion-Heirs 
+6.	 On Voyager Thule		 
+7.	 Heirs to the Godless Dawn		 
+8.	 Believer / Deceiver		 
+9.	 Cremations Declaration		 
+10.	 Drenched in Blood		 
+11.	 Cinder
+
 
 ## Отношения с другими группами
 

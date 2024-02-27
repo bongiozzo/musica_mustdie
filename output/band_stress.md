@@ -1,12 +1,106 @@
 # Stress
 
-Дискография
-"Stress" 1982, Heavy Metal
-"Flor Atomica" 1985, Heavy Metal
-"III" 1996, Heavy Metal
-"Live'n'Memory [compilation]" 2009, Heavy Metal
-"Amazon, First Metal Attack! [compilation]" 2009, Heavy Metal
-"Atomic Flower, Brazilian Metal Explosion [compilation]" 2010, Heavy Metal
+
+
+## Дискография
+
+### "Stress" 1982, Heavy Metal
+
+1. Sodoma e Gomorra
+2. A Chacina
+3. 2031
+4. Oraculo do Judas
+5. Stressencefalodrama
+6. O Viciado
+7. Mate o Reu
+8. O Lixo
+
+### "Flor Atomica" 1985, Heavy Metal
+
+1. Heavy Metal
+2. Nao Desista
+3. Mate o Reu
+4. Flor Atomica
+5. Esperando o Messias
+6. Forcas do Mal
+7. Inferno Nuclear
+8. Sodoma e Gomorra
+9. Tributo ao Prazer
+10. Jennie
+
+### "III" 1996, Heavy Metal
+
+1. Estrela Azul
+2. Sexo Anual
+3. Nada a Perder
+4. Danca do Trem
+5. Folha no Vento
+6. Maria Mentira
+7. Dor e Prazer
+8. Aventura
+9. A Tua Mae e Moca?
+10. Vigilia
+11. Fe em Procissao
+
+### "Live'n'Memory [compilation]" 2009, Heavy Metal
+
+1. Heavy Metal 05:48	
+2. Sodoma e Gomorra 04:26	
+3. A Chacina (A Curra) 04:34	 
+4. Stressencefalodrama 06:03	
+5. Inferno Nuclear 05:03	
+6. Flor Atomica 04:23	
+7. Mate O Reu 04:08	
+8. Folha no Vento 08:22	
+9. O Lixo/Drum Solo 07:47	
+10. Nao Desista 03:17	
+11. A Tua Mae E Moca 08:08	
+12. Vale O que Tem 02:58
+13. Vida e Gloria 02:49
+14. Nossa Vez 03:19
+15. Aventura 03:30
+16. Coracao de Metal
+
+### "Amazon, First Metal Attack! [compilation]" 2009, Heavy Metal
+
+1. Sodoma e Gomorra
+2. A Chacina
+3. 2031
+4. O Oraculo do Judas
+5. Stressencefalodrama
+6. O Viciado
+7. Mate o Reu
+8. O Lixo
+9. Inferno Nuclear*	
+10. Forcas do Mal**
+11. Heavy Metal***
+12. Thunder****
+13. Estrela Azul+	
+14. Nada a Perder++	
+15. Folha no Vento+++
+16. A Tua Mae e Moca+++
+17. Coracao de Metal++++	
+
+### "Atomic Flower, Brazilian Metal Explosion [compilation]" 2010, Heavy Metal
+
+1. Heavy Metal
+2. Nao Desista
+3. Mate o Reu
+4. Flor Atomica
+5. Esperando o Messias
+6. Forcas do Mal
+7. Inferno Nuclear
+8. Sodoma e Gomorra
+9. Tributo ao Prazer
+10. Jennie
+11. Novos Sonhos		 
+12. Danca do Trem
+13. Folha no Vento
+14. Forcas do Mal
+15. Stressencefalodrama
+16. 2031
+17. O Viciado	
+
 
 ## Отношения с другими группами
 

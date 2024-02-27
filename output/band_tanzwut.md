@@ -1,12 +1,127 @@
 # Tanzwut
 
-Дискография
-"Tanzwut" 1999, Folk
-"Labyrinth der Sinne" 2002, Folk
-"Ihr Wolltet Spass" 2003, Folk
-"Live 2cd" 2005, Folk
-"Schattenreiter" 2006, Folk
-"WeiBe Nachte" 2011, Folk
+folk metal
+
+## Дискография
+
+### "Tanzwut" 1999, Folk
+
+1. Exkremento
+2. Im Rausch
+3. Konigreich
+4. Das Schicksal
+5. Verruckt
+6. Augen zu
+7. Auferstehung
+8. Eisenmann
+9. Erinnerung
+10. Die Balz
+11. Komm her
+
+### "Labyrinth der Sinne" 2002, Folk
+
+1. Tanzwut
+2. Ekstase
+3. Luegner
+4. Bitte Bitte
+5. Das Labyrinth
+6. Niemals ohne Dich
+7. Die Drohne
+8. Der Waechter
+9. Daemmerung
+10. Was soll der Teufel im Pararadies?
+11. Gigolo
+12. Ikarus
+13. Goetterfunken
+
+### "Ihr Wolltet Spass" 2003, Folk
+
+1. Wieder da
+2. Nein Nein
+3. Der Traum
+4. Meer
+5. Zaubern
+6. Fuer Immer
+7. Fatue
+8. Erdbeerrot
+9. Ihr wolltet Spass
+10. Der Fluch
+11. Gnade
+12. Caupona
+
+(p) 2003 Pica
+
+### "Live 2cd" 2005, Folk
+
+DISC 1
+01. Intro (03:55)
+02. Wieder da (03:49)
+03. Ihr wolltet Spass (03:53)
+04. Labyrinth (04:39)
+05. Auferstehung (05:39)
+06. Meer (04:55)
+07. Lugner (04:45)
+08. Traum (04:19)
+09. Niemals ohne dich (04:15)
+10. Fatue (04:29)
+11. Balz (03:54)
+12. Komm her (05:43)
+13. Drohne (03:48)
+
+
+DISC 2
+01. Wachter (03:43)
+02. Was soll der Teufel im Paradies (04:23)
+03. Erbeerrot (04:05)
+04. Bitte Bitte (03:29)
+05. Gnade (04:03)
+06. Dammerung (03:34)
+07. Konigreich (04:55)
+08. Nein Nein (03:18)
+09. Caupona (05:01)
+10. Extase (04:41)
+11. Gigolo (03:22)
+12. Gцtterfunken (06:03)
+13. Signum Ignitum (06:32)
+
+### "Schattenreiter" 2006, Folk
+
+01. intro
+02 . toccata
+03. schattenreiter
+04. der arzt
+05. im tiefen gras
+06. endlich
+07. dein zweites gesicht
+08. geisterstunde
+09. spieler
+10. seelenverkaufer
+11. immer noch wach
+12. der bote
+13. versuchung
+14. vulkan
+15. kaltes grauen
+16. du sagst
+17. wieder am riff
+18. gefangen
+19. signum ignitum
+
+### "WeiBe Nachte" 2011, Folk
+
+01. WeiBe Nachte 4:48 
+02. Wie Phonix aus der Asche 4:58 
+03. Gift 3:52 
+04. Bei dir 5:59 
+05. Ein wahrer Spielmann 3:40 
+06. RuckgratreiBer 4:25 
+07. Du bist nicht Gott 4:26 
+08. Wenn der letzte Vorhang fдllt 4:14 
+09. Folge deinem Herzen 3:49 
+10. La filha dau ladre 4:50 
+11. Konigin der Nacht 3:42 
+12. Pest und Teufel 4:33
+
+
 
 ## Отношения с другими группами
 

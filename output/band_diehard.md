@@ -1,8 +1,31 @@
 # Die Hard
 
-Дискография
-"Evil Always Return" 2008, Thrash
-"Nihilistic Vision" 2009, Thrash
+
+
+## Дискография
+
+### "Evil Always Return" 2008, Thrash
+
+1. Evil Always Return 03:39  
+2. Black Mass 02:17  
+3. Emissaries Of The Reaper 02:50  
+4. The Weak Lead The Blind 03:44  
+5. Necromantic Action 03:18  
+6. Beneath Pain And Death 04:41 
+
+### "Nihilistic Vision" 2009, Thrash
+
+1. Into the Desolate Halls of Death 04:17  
+2. Hidden Face 02:47
+3. Bloody War 05:14 
+4. Nihilistic Vision 03:13  
+5. Fed to the Lions 04:39 
+6. Mercenaries of Hell 03:22 
+7. Ride the Incubus 03:19  
+8. I Am Possessed 03:26  
+9. Attack from the Back 02:18  
+10. Death Chasing the Flock of Mortals 08:00 
+
 
 ## Отношения с другими группами
 

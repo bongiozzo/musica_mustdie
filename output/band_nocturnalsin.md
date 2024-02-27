@@ -1,7 +1,18 @@
 # Nocturnal Sin
 
-Дискография
-"Nastier..." 2007, Black Metal
+
+
+## Дискография
+
+### "Nastier..." 2007, Black Metal
+
+1. Soldiers Of Hate 04:40
+2. Queen Of Blackest 03:45
+3. I'm From The Night 03:59 
+4. Energy Of Death 03:23
+5. The Sound Of Our March 06:42 
+6. Nastier Aspects Of Evil 04:12 
+
 
 ## Отношения с другими группами
 

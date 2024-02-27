@@ -1,8 +1,52 @@
 # Quorthon
 
-Дискография
-"Album" 1994, Death Doom
-"Purity Of Essence" 1997, Heavy Metal
+Chief of Bathory
+
+## Дискография
+
+### "Album" 1994, Death Doom
+
+1. No More And Never Again
+2. Oh No No
+3. Boy
+4. Major Snooze
+5. Too Little Much Too Late
+6. Crack In My Mirror
+7. Rain
+8. Feather
+9. Relief
+10.Head Over Hills
+
+All titles written by QUORTHON
+
+(p)(c) 1994 BLACK MARK Production
+
+### "Purity Of Essence" 1997, Heavy Metal
+
+01. Rock 'N Roll
+02. I've Had It Coming My Way
+03. When Our Day Is Through
+04. One Of Those Days
+05. Cherrybutt & Firefly
+06. Television
+07. Hit My Head
+08. Hump For Fun
+09. Outta Space
+10. Fade Away
+11. I Want Out
+12. Daddy's Girl
+13. Coming Down In Pieces
+14. Roller Coaster
+15. It's Ok
+16. All In All I Know
+17. No Life At All
+18. An Inch Above The Ground
+19. The Notforgettin'
+20. Deep
+21. Label On The Wind
+22. Just The Same
+23. You Just Got To Live
+
 
 ## Отношения с другими группами
 

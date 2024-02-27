@@ -1,9 +1,53 @@
 # Stygma IV
 
-Дискография
-"Phobia" 2001, Power Metal
-"The Human Twilightzone" 2002, Power Metal
-"Hell Within" 2004, Power Metal
+
+
+## Дискография
+
+### "Phobia" 2001, Power Metal
+
+Isolation 
+Inhumanity 
+Dying 
+(overture to Jesus Christ Superstar) 
+Gethsemane 
+Ricochet 
+Madness 
+Fool ID 
+Pain 
+22 Acacia Avenue
+
+### "The Human Twilightzone" 2002, Power Metal
+
+1. Calculation Towers
+2. Stygmatized
+3. The Void
+4. Sleep
+5. Earth Children
+6. Omega
+7. Why
+8. The Human Twilightzone
+9. At The End Of My Daze
+10. My Failure Reveals
+11. Scars
+12. The Way To Light
+
+### "Hell Within" 2004, Power Metal
+
+1. Mental Power
+2. Point Of No Return
+3. The Last Stand
+4. Blackhole
+5. Hell Within
+6. March Of The Legions
+7. Legions Of The Damned
+8. Night's Ascending
+9. Another World
+10. Shadowman
+11. Tears
+12. Days Of Doom
+13. Music
+
 
 ## Отношения с другими группами
 

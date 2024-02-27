@@ -1,7 +1,33 @@
 # Helicon
 
-Дискография
-"Helicon" 1993, Alternative
+
+
+## Дискография
+
+### "Helicon" 1993, Alternative
+
+1. The Story About Helicon
+2. Helicon Part II
+3. It`s Rock`n Roll
+4. Junk
+5. Victim Of Love
+6. Come On Rock
+7. Woman *
+8. There Is No Rose Without Thorn *
+
+ Uwe Heepen - Vocals
+ Christian Guth - Guitar
+ Tom Kusters - Guitar
+ Sylvester Wasiliewsky - Bass
+ Andre Ostapeschen - Drums
+
+All Songs Written By Uwe Heepen,Except Of  *
+Music By Uwe Heepen,Lyrics By Andrea Munster.
+Produced By Uwe Heepen.
+Recorded & Mixed At Sunday-Studios,Stolberg,Germany.
+
+(p)&(c) 1993 NOISE International
+
 
 ## Отношения с другими группами
 

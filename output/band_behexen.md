@@ -1,9 +1,45 @@
 # Behexen
 
-Дискография
-"Rituale Satanum" 2004, Black Metal
-"By the Blessing of Satan" 2004, Black Metal
-"Rituale Satanum (remastered)" 2004, Black Metal
+Raw True Black Metal
+
+## Дискография
+
+### "Rituale Satanum" 2004, Black Metal
+
+1. Intro (The Summoning) 01:05  
+2. Sota Valon Jumalaa Vastaan 03:33 
+3. Night of the Blasphemy 04:46 
+4. Christ Forever Die 05:31  
+5. Towards the Father 03:55 
+6. Saatanan Varjon Synkkyydessa 05:55  
+7. Baphomet's Call 05:42 
+8. The Flames of the Blasphemer 05:44  
+9. Blessed be the Darkness 04:21  
+10. Rituale Satanum 04:02
+
+### "By the Blessing of Satan" 2004, Black Metal
+
+1. By the Blessing of Satan 04:25  
+2. Fist of the Satanist 07:43
+3. Sieluni Saatanan Vihasta Roihuten 06:36  
+4. Celebration of Christ's Fall 05:42
+5. Black Metal Baptism 07:16 
+6. Watchers of My Black Temple 08:26
+7. Under the Eye of Lord 07:17
+
+### "Rituale Satanum (remastered)" 2004, Black Metal
+
+1. Intro (The Summoning) 01:05  
+2. Sota Valon Jumalaa Vastaan 03:33 
+3. Night of the Blasphemy 04:46 
+4. Christ Forever Die 05:31  
+5. Towards the Father 03:55 
+6. Saatanan Varjon Synkkyydessa 05:55  
+7. Baphomet's Call 05:42 
+8. The Flames of the Blasphemer 05:44  
+9. Blessed be the Darkness 04:21  
+10. Rituale Satanum 04:02
+
 
 ## Отношения с другими группами
 

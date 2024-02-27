@@ -1,7 +1,21 @@
 # Arrival
 
-Дискография
-"An Abstract Of Inertia" 2002, Death Metal
+Sympho-black-death metal
+
+## Дискография
+
+### "An Abstract Of Inertia" 2002, Death Metal
+
+1)  Prelude  1.35  
+2)  Spacepenetrator  5.36  
+3)  From Behind The Black Rainbow  5.13 
+4)  Under The Cloak Of Darkness  4.53  
+5)  Andor For Euphoria  4.30 
+6)  6th Day  4.47  
+7)  Intermezzo: Channel: 352  3.04  
+8)  An Abstract Of Inertia  5.18  
+
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,40 @@
 # Dire Straits
 
-Дискография
-"Brothers In Arms" 1985, Hard Rock
-"On Every Street" 1991, Hard Rock
+
+
+## Дискография
+
+### "Brothers In Arms" 1985, Hard Rock
+
+1.  So Far Away
+2.  Money For Nothing
+3.  Walk Of Life
+4.  Your Latest Trick
+5.  Why Worry
+6.  Ride Across The River
+7.  The Man's Too Strong
+8.  One World
+9.  Brothers In Arms
+
+(P)c 1985
+
+### "On Every Street" 1991, Hard Rock
+
+1.  Calling Elvis
+2.  On Every Street
+3.  When It Comes To You
+4.  Fade To Black
+5.  The Bug
+6.  You And Your Friend
+7.  Heavy Fuel
+8.  Iron Hand
+9.  Ticket To Heaven
+10.  My Parties
+11.  Planet Of New Orleans
+12.  How Long
+
+(P)c 1991
+
 
 ## Отношения с другими группами
 

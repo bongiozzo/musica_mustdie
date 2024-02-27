@@ -1,10 +1,51 @@
 # Occultus
 
-Дискография
-"Cain & Abel [demo]" 1995, Black Metal
-"Cosmos" 1997, Black Metal
-"Cosmos 2002" 2002, Black Metal
-"Serpent Heart" 2006, Black Metal
+
+
+## Дискография
+
+### "Cain & Abel [demo]" 1995, Black Metal
+
+
+
+### "Cosmos" 1997, Black Metal
+
+1. Voyager
+2. Luto Perpetuo
+3. Gloria Al Ocultismo
+4. Paraddise In The Outer Side	 
+5. Un Grito Un Llanto
+6. Chant Of The Souls	 
+7. Spawn Of Lilith
+8. The Forest...Dream Lover	 
+9. Cosmos... Lagrimas Negras
+
+### "Cosmos 2002" 2002, Black Metal
+
+1. Voyager
+2. Luto Perpetuo
+3. Gloria al Ocultismo
+4. Chant of the Souls
+5. Spawn of Lilith
+6. A Chain of Sorrow
+7. Un Grito un Llanto
+8. Dream Lover
+9. Cosmos
+10. Lagrimas Negras
+11. Stealed Visions
+
+### "Serpent Heart" 2006, Black Metal
+
+1. Serpent Heart
+2. Memorias Paganas
+3. Revenge Is Near
+4. Desde El Sur
+5. Night Breed
+6. Bajo Las Letanias Del Sol
+7. Weep Your Sorrow
+8. Killer Mind
+9. Beside The Garden
+
 
 ## Отношения с другими группами
 

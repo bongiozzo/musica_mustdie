@@ -1,9 +1,52 @@
 # Soul Doctor
 
-Дискография
-"Soul Doctor" 2001, Hard Rock
-"Systems Go Wild!" 2003, Hard Rock
-"For A Fistful Of Dollars" 2005, Hard Rock
+ex-Fair Warning
+
+## Дискография
+
+### "Soul Doctor" 2001, Hard Rock
+
+Tommy Heart - Vocals
+Chris Lyne - Guitars
+J.D. - Bass
+Zacky - Drums
+
+### "Systems Go Wild!" 2003, Hard Rock
+
+Living The Life
+Good Times Slipping Away
+Wrong Or Right
+See You In Heaven
+Get It On
+Just Can't Get Over You
+All Systems Go!
+Our Time
+Waitin'
+Somebody
+
+Tommy Heart - вокал
+Chris Lyne - гитара
+Zacky - ударные
+J.D. - бас
+
+### "For A Fistful Of Dollars" 2005, Hard Rock
+
+1. Eatin' On Me 
+2. Best Way To Fade 
+3. Under The Skin 
+4. remember 
+5. Where Do We Go 
+6. Ten Seconds Of Love 
+7. She's Mine 
+8. The Trigger (The Ride) 
+9. Give Me A Ride 
+10. Cheap Down'n'Heavy
+
+Tommy Heart - vocaks 
+Chris Lyne - guitars 
+Jody Rautenberg - bass 
+Mario B. - drums
+
 
 ## Отношения с другими группами
 

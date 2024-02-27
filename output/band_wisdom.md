@@ -1,7 +1,20 @@
 # Wisdom
 
-Дискография
-"Podre" 2011, Deathcore
+
+
+## Дискография
+
+### "Podre" 2011, Deathcore
+
+1. Bautizado co Oleo dos Defuntos
+2. A Prostituta de Babilonia
+3. A Rolos (o Dia do Patron) 
+4. Minoca 
+5. Empanada de Escarapotes 
+6. O Escuadron de Patexos Pola Ria 
+7. Podre
+8. Sofren os Nenos (Napalm Death)
+
 
 ## Отношения с другими группами
 

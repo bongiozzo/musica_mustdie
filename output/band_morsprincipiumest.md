@@ -1,11 +1,99 @@
 # Mors Principium Est
 
-Дискография
-"Inhumanity" 2003, Melodic Death Metal
-"Unborn" 2005, Melodic Death Metal
-"Liberation = Termination" 2007, Melodic Death Metal
-"...And Death Said Live" 2012, Melodic Death Metal
-"Dawn of the 5th Era" 2014, Melodic Death Metal
+finnish melodic death metal
+
+## Дискография
+
+### "Inhumanity" 2003, Melodic Death Metal
+
+1. Another Creation
+2. Eternity’s Child
+3. In My Words
+4. Inhumanity
+5. D.I.B.
+6. The Lust Called Knowledge
+7. Obilivion
+8. Life in Black
+9. Last Apprentice
+10. Into Illusion 
+ 
+
+
+Jarkko Kokko - Guitar 
+Jori Haukio - Guitar, Backing Vocals 
+Mikko Sipola - Drums 
+Teemu Heinola - Bass 
+Toni Numelin - Keyboard 
+Ville Viljanen - Vocals 
+
+
+### "Unborn" 2005, Melodic Death Metal
+
+1. Pure
+2. The Harmony Remains
+3. Parasites of Paradise 
+4. Two Steps Away
+5. Altered State of Consciousness
+6. Spirit-Conception
+7. The Unborn
+8. Fragile Flesh
+9. Pressure
+10. The Glass Womb
+
+### "Liberation = Termination" 2007, Melodic Death Metal
+
+1. Orsus 00:25  
+2. The Oppressed Will Rise 03:19  
+3. The Animal Within 03:30  
+4. Finality 03:18  
+5. Cleansing Rain 04:20  
+6. Forgotten 01:43  
+7. Sinners Defeat 05:26  
+8. The Distance Between 04:17  
+9. It Is Done 02:49  
+10. Terminal Liberation 04:16  
+11. Lost Beyond Retrieval 04:44
+
+### "...And Death Said Live" 2012, Melodic Death Metal
+
+1. The Awakening  00:55   
+2. Departure  05:44  
+3. I Will Return  04:29   
+4. Birth of the Starchild  04:12   
+5. Bringer of Light  04:16   
+6. Ascension  04:30   
+7. ...and Death Said Live  02:01  
+8. Destroyer of All  03:57   
+9. What the Future Holds?  05:28   
+10. The Meadows of Asphodel  04:24   
+11. Dead Winds of Hope  06:23  
+
+ Japanese/Korean bonus track:
+ 12. The Call (The Backstreet Boys cover) (03:30)
+
+ Drums recorded by Teemu Heinola at Ansa Studio, Ulvila, Finland
+ Guitars recorded by Thomas Johansson at The Panic Room, Skara, Sweden.
+ Bass recorded by Teemu Heinola at Ansa Studio, Ulvila, Finland
+ Vocals recorded by Thomas Johansson at The Panic Room, Skara, Sweden.
+
+### "Dawn of the 5th Era" 2014, Melodic Death Metal
+
+1. Enter the Asylum  01:32    
+2. God Has Fallen  04:27    
+3. Leader of the Titans  05:23   
+4. We Are the Sleep  05:59    
+5. Innocence Lost  03:54    
+6. I Am War  04:35    
+7. Monster in Me  04:38    
+8. Apricity  02:37    
+9. Wrath of Indra  03:59    
+10. The Journey  05:09    
+11. The Forsaken  06:07   
+
+
+
+
+
 
 ## Отношения с другими группами
 

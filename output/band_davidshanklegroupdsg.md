@@ -1,7 +1,13 @@
 # David Shankle Group (DSG)
 
-Дискография
-"Ashes to Ashes" 2003, Heavy Metal
+ex-Manowar
+
+## Дискография
+
+### "Ashes to Ashes" 2003, Heavy Metal
+
+
+
 
 ## Отношения с другими группами
 

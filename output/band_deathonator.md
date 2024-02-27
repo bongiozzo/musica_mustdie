@@ -1,7 +1,13 @@
 # Deathonator
 
-Дискография
-"Endsville" 2006, Death Metal
+death metal from Sahalinsk
+
+## Дискография
+
+### "Endsville" 2006, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

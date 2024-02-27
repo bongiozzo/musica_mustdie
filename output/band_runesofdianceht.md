@@ -1,7 +1,19 @@
 # Runes Of Dianceht
 
-Дискография
-"Runes Of Dianceht" 1996, Black Metal
+
+
+## Дискография
+
+### "Runes Of Dianceht" 1996, Black Metal
+
+1. Evil 02:25  
+2. Altar 02:48  
+3. Unholy Hatred 01:38  
+4. Blasphemy Reign 03:46  
+5. In the War 06:03  
+6. Temple Blood 03:07  
+7. Is to Die 05:09 
+
 
 ## Отношения с другими группами
 

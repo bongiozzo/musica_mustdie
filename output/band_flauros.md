@@ -1,7 +1,13 @@
 # Flauros
 
-Дискография
-"Monuments Of Total Holocaust" 2000, Death Metal
+
+
+## Дискография
+
+### "Monuments Of Total Holocaust" 2000, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

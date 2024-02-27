@@ -1,7 +1,30 @@
 # Svartsyn
 
-Дискография
-"The True Legend..." 1997, Black Metal
+
+
+## Дискография
+
+### "The True Legend..." 1997, Black Metal
+
+1.  Goathrone
+2.  The True Legend
+3.  Tearing Your Soul
+4.  The Snake In The Garden Of Eden
+5.  In the Ghoul-Hunted Forest Where The Winter Was Eternal
+6.  Under The Devil's Moon
+7.  A Cursed Blaze From The Castle
+8.  The Shadows Is Painting My Eyes
+
+Recorded Under The 11th Fullmoon 1996 At Avalon Studio.
+All music and lyrics by Ornias.
+Produced by the true legends, SVARTSYN.
+
+Ornias - Bass, Deathvoice
+Surth - Six Strings Hell Harps
+Draugen - Drums Of Thunder
+
+(P)(C) 1997 FOLTER Records // 007
+
 
 ## Отношения с другими группами
 

@@ -1,11 +1,29 @@
 # Temple Of Baal
 
-Дискография
-"Servants of the Beast" 2003, Black Metal
-"Traitors to Mankind" 2005, Black Metal
-"Lightslaying Rituals" 2009, Death Metal
-"Verses of Fire" 2013, Death Metal
-"Mysterium" 2015, Death Metal
+
+
+## Дискография
+
+### "Servants of the Beast" 2003, Black Metal
+
+
+
+### "Traitors to Mankind" 2005, Black Metal
+
+
+
+### "Lightslaying Rituals" 2009, Death Metal
+
+
+
+### "Verses of Fire" 2013, Death Metal
+
+
+
+### "Mysterium" 2015, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

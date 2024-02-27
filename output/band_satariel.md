@@ -1,8 +1,26 @@
 # Satariel
 
-Дискография
-"Phobos & Deimos" 2002, Death Doom
-"Hydra" 2005, Death Doom
+
+
+## Дискография
+
+### "Phobos & Deimos" 2002, Death Doom
+
+
+
+### "Hydra" 2005, Death Doom
+
+01. The Freedom Fall
+02. Be You Angel, Be You Beast
+03. Claw The Clouds
+04. Vengeance Is Hers
+05. For Galaxies To Clash
+06. The Springrise
+07. Scattering The Timeweb
+08. 300 Years Old
+09. Nihil Juggernaut
+10. No God Loves
+
 
 ## Отношения с другими группами
 

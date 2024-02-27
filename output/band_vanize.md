@@ -1,10 +1,77 @@
 # Vanize
 
-Дискография
-"Twins?" 1995, Heavy Metal
-"Bootlicker" 1999, Heavy Metal
-"Highproof" 2000, Heavy Metal
-"Raw" 2006, Heavy Metal
+heavy metal
+
+## Дискография
+
+### "Twins?" 1995, Heavy Metal
+
+1. Holy War - 03:47
+2. Heading for tomorrow - 04:26
+3. They ґre back - 03:24
+4. Nowhere to hide - 04:15
+5. Evil Eyes - 04:05
+6. Roll the Dice - 03:36
+7. Babyґs on crack - 03:53
+8. Donґt go down - 03:51
+9. We stay loud - 03:38
+10. Hell is back - 04:28
+11. Troublemakers - 05:14
+
+### "Bootlicker" 1999, Heavy Metal
+
+1. Bootlicker - 03:48
+2. Train to Hell - 03:20
+3. Whips and Chains - 03:39
+4. Call of the Hunter - 03:44
+5. One Law For Them - 03:30
+6. Night Hunter - 03:38
+7. No Time For Heroes - 04:02
+8. The Healer - 04:39
+9. R.I.P. - 05:17
+10. Tomorrow - 05:50
+11. In the Eye of the Storm - 05:02
+
+Markus Becker - guit,
+Marcus Bielenberg - bass, 
+Peter Dirkschneider - voc, 
+Pierre Fienhold - drums.
+
+### "Highproof" 2000, Heavy Metal
+
+1. The Final Breath - 05:04
+2. Minute Man - 05:32
+3. Double Dealing - 03:33
+4. Therapy - 03:53
+5. Rolling - 04:18
+6. Master and Servant - 03:53
+7. Break Down the Walls - 03:05
+8. Negative - 03:42
+9. What You Give is What You Get - 04:49
+10. Losing the Ground - 04:27
+11. You Can't Stop Us Now - 03:55
+
+### "Raw" 2006, Heavy Metal
+
+1. Gods of Revenge   
+2. Way Down   
+3. Back to the Gutter   
+4. Land of Desire   
+5. Devil   
+6. The Calling   
+7. I Will Survive   
+8. Exception to the Rule   
+9. Eat U Alive   
+10. One Step to Madness   
+11. Practice What You Preach
+
+
+Vocals : Peter Dirkschneider 
+Guitars : Markus Becker
+Guitars : Carsten Hensel
+Bass : Tom Nendza 
+Drums : Martin "Mattes" Pfeiffer
+
 
 ## Отношения с другими группами
 

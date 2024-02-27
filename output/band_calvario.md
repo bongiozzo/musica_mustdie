@@ -1,7 +1,20 @@
 # Calvario
 
-Дискография
-"IXOYE" 1993, Heavy Metal
+
+
+## Дискография
+
+### "IXOYE" 1993, Heavy Metal
+
+1. Tola Odisseia
+2. Herdeiros do Reino	
+3. Bosques em Coma
+4. Jesus aos que Vivem Perdidos
+5. IXOYE
+6. Pacto
+7. Passaporte ao Paraiso
+8. Tempos de Justica
+
 
 ## Отношения с другими группами
 

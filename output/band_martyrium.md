@@ -1,9 +1,45 @@
 # Martyrium
 
-Дискография
-"Withering in Voluptuous Embrace" 2002, Black Metal
-"The Carnage Lit by Darkness" 2005, Black Metal
-"Awakening the Ancient" 2010, Black Metal
+
+
+## Дискография
+
+### "Withering in Voluptuous Embrace" 2002, Black Metal
+
+1. Insanity dancing with crimson Tides 02:19  
+2. The ebon River Princess 07:46 
+3. Chrysanthemum 07:01
+4. Eden (the divine Entrap) 09:30
+5. The Hatred Cornucopia 05:00
+6. Restrained in demuric Gyves 06:02
+7. Promises 10:46
+8. Tears from the demented Heart 07:25 
+
+### "The Carnage Lit by Darkness" 2005, Black Metal
+
+1. Act I - Evil Manifests: Prologue - The Primeval Reign of Spirit 02:14  
+2. Scene I - Through The Venal Eyes Of The Possessed 08:37
+3. Act II - From Sobriety to Depraved Delusion: Scene I - Deprived of Deliverance By Acumen 02:50
+4. Scene II - The Transition 04:37  
+5. Scene III - Androgynie Somnium 10:43
+6. Act III - Nightmares Ensue Sinister Fantasies: Scene I - Enticement of Divinity's Final Hour 03:49  
+7. Scene II - Mina 10:15
+8. Act IV - Evil Reigns Supreme: Scene I - The Carnage Lit By Darkness 09:30
+9. Epilogue - Eagerly, We Wait... 03:26 
+
+### "Awakening the Ancient" 2010, Black Metal
+
+1. In the Light of the Morning Star 06:50  
+2. Temple of the Unkonw Knowledge 07:03  
+3. Kristus Lag in Totesbagen 07:06  
+4. Incantation of the Gate 04:51  
+5. Into the Labyrinths of the Absu 05:35  
+6. Awakeneing the Ancient 09:08  
+7. Anpu Xent Neter Het 05:01  
+8. Purity Through Enlightenment 08:05  
+9. Manifestum Luna Plenae 07:37  
+10. Before the Throne of Nadir 01:48 
+
 
 ## Отношения с другими группами
 

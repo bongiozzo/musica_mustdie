@@ -1,7 +1,13 @@
 # Product of Hate
 
-Дискография
-"Buried in Violence" 2016, Thrash
+
+
+## Дискография
+
+### "Buried in Violence" 2016, Thrash
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,9 +1,51 @@
 # Hell-Born
 
-Дискография
-"Hell-Born" 1996, Black Metal
-"Hellblast" 2001, Death Metal
-"The Call Of Megiddo" 2002, Death Metal
+
+
+## Дискография
+
+### "Hell-Born" 1996, Black Metal
+
+1. Inverted
+2. Hellraiser
+3. Those Are Dead But Shall Rise
+4. Merciless Onslaught
+5. Antichrist
+
+Produced By HELL-BORN.
+Mastered By A. "Zmora" Rdultowski.
+Executive Producer Tomasz "Kreator" Krajewski & Pagan Records.
+
+Lord Ravenlock - Hell Cavalry, Machine Gun Skullcrush & Daemongrowl
+Les - Lead & Rhythm Frontline Grind, Low Amplitude Background Explosions
+
+(P)(C) 1996 PAGAN Records // MOON 006
+
+### "Hellblast" 2001, Death Metal
+
+1. Intro 
+2. Visions Of Decline 
+3. Raise The Dead 
+4. The Victory 
+5. Follow The Beast 
+6. The Day Of Wrath 
+7. Inverted 
+8. Hellraiser 
+9. Those Are Dead But Shall Rise 
+10. Merciless Onslaught
+
+### "The Call Of Megiddo" 2002, Death Metal
+
+We Bring The Reaper 
+The Call of Megiddo 
+Hell-Born 
+Evil Dawning 
+Down below He dwells 
+Legion is our name 
+Scepter of the Tomblord 
+With the Gleam of the Eyes of Undead 
+The long awaited full-length album by the Warriors from 
+
 
 ## Отношения с другими группами
 

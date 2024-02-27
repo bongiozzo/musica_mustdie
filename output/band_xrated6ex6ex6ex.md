@@ -1,7 +1,13 @@
 # X-Rated 6ex6ex6ex
 
-Дискография
-"Woodland Belt [Deadly trap]" 2008, Death Metal
+
+
+## Дискография
+
+### "Woodland Belt [Deadly trap]" 2008, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

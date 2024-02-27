@@ -1,10 +1,67 @@
 # Darkside
 
-Дискография
-"Melancholia Of A Dying World" 1996, Death Doom
-"Shadowfields" 1997, Death Doom
-"Evolution" 1998, Death Doom
-"Cognitive Dissonance" 2001, Death Metal
+
+
+## Дискография
+
+### "Melancholia Of A Dying World" 1996, Death Doom
+
+1. Deadly (6.57)
+2. To The Deceased (2.45)
+3. Prelude /Melancholia (8.25)
+4. Pictures In Grey (3.32)
+5. Dying World (3.30)
+6. Shades Of Grief (4.41)
+7. Emesis Of The Soul (5.54)
+8. Gedanken (5.00)
+9. A Wintersnight (5.21)
+
+All songs written by DARKSIDE
+Mixed and engineered by Pavel Sonda and Vaclav Vlachy.
+Recorded at Past Studio
+
+Peter Bohm - Bass
+Peter Durst - Guitars, Lead Vocals
+Robert Grogler - Drums and Percussion
+Wolfgang Sussenbeck - Keyboards, Effects and Backing Vocals
+
+Female Vocals by Iva Bilkova
+
+(p)(c) 1996 IMPACT Records
+
+### "Shadowfields" 1997, Death Doom
+
+
+
+### "Evolution" 1998, Death Doom
+
+
+
+### "Cognitive Dissonance" 2001, Death Metal
+
+1. Intro  2:20    
+2. Legend of the gods  3:37  
+3. Hear evil, speak evil, do evil  3:43  
+4. Cognitive dissonance  5:13  
+5. The fallen  4:28  
+6. F.I.F.T.H.  5:16  
+7. Hymn for the chosen ones  4:10  
+8. Mechanical landscape  2:49  
+9. Caress of the sleeping giant  5:51  
+10. Bloodbound  4:04  
+11. S.W.I.H.  1:04  
+12. Pontifex 666  5:31  
+
+
+
+
+Peter Bohm - bass, backing vocals 
+Radek Hajda - guitars (session) 
+Vlastimil Koritar - guitars 
+Bernd Pichlbauer - drums 
+Wolfgang Sussenbeck - lead vocals, keyboards
+
+
 
 ## Отношения с другими группами
 

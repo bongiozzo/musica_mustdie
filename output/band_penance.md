@@ -1,7 +1,33 @@
 # Penance
 
-Дискография
-"The Road Less Travelled" 1994, Doom
+
+
+## Дискография
+
+### "The Road Less Travelled" 1994, Doom
+
+1. Eulogy
+2. The Unseen
+3. A Wayfararer's Tale
+4. If They Would Cut My Throat Out...
+5. Misgivings
+6. Soul Rot
+7. Not What It Seems
+8. Penance
+
+ Brain Lawrence - Rhythm Guitar /Vocals
+ Terry Weston - Lead Guitar
+ Rich Freund - Bass
+ Mike Small - Drums
+
+Recorded At Audiomation Studios, Pittsburgh, March 92. 
+Produced By PENANCE.
+Engineered By Joe West
+
+(p) RISE ABOVE
+(c) RISE ABOVE   Rise 7CD.
+
+
 
 ## Отношения с другими группами
 

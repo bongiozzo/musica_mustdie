@@ -1,7 +1,13 @@
 # Gothica
 
-Дискография
-"The Cliff of Suicide" 2003, Ambient
+dark ambient / ethereal
+
+## Дискография
+
+### "The Cliff of Suicide" 2003, Ambient
+
+
+
 
 ## Отношения с другими группами
 

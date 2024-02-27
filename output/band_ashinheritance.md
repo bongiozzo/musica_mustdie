@@ -1,7 +1,22 @@
 # Ash Inheritance
 
-Дискография
-"Devastated By Fire" 2009, Thrash
+
+
+## Дискография
+
+### "Devastated By Fire" 2009, Thrash
+
+1. March Of The Damned	 
+2. Devastating Fire	 
+3. Next To Die	 
+4. Masters Of Lies	 
+5. Whistle In The Dark	 
+6. Straight To Hell	 
+7. Malicious Seed	 
+8. Enflamed In Anger	 
+9. Mortar Flesh Picasso	 
+10. Killing With Style
+
 
 ## Отношения с другими группами
 

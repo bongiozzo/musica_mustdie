@@ -1,8 +1,25 @@
 # Without God
 
-Дискография
-"Lambs To The Slaughter" 2011, Hard Rock
-"Circus Of Freaks" 2014, Hard Rock
+
+
+## Дискография
+
+### "Lambs To The Slaughter" 2011, Hard Rock
+
+
+
+### "Circus Of Freaks" 2014, Hard Rock
+
+01. Circus Of Freaks 06:12
+02. Where The Sun Doesn't Shine 07:02
+03. Mushroom Man 04:53
+04. Flood 07:05
+05. Seven Sins 05:18
+06. Everything Decays 07:29
+07. Fear 03:41
+08. Helter Skelter 08:08
+09. Good Evil 06:26
+
 
 ## Отношения с другими группами
 

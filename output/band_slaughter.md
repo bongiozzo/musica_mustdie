@@ -1,14 +1,41 @@
 # Slaughter
 
-Дискография
-"Stick It to Ya" 1990, Hard Rock
-"Stick It Live (Live EP)" 1990, Hard Rock
-"The Wild Life" 1992, Hard Rock
-"Mass Slaughter: The Best of Slaughter" 1995, Hard Rock
-"Fear No Evil" 1995, Hard Rock
-"Revolution" 1997, Hard Rock
-"Eternal Live" 1998, Hard Rock
-"Back to Reality" 1999, Hard Rock
+
+
+## Дискография
+
+### "Stick It to Ya" 1990, Hard Rock
+
+
+
+### "Stick It Live (Live EP)" 1990, Hard Rock
+
+
+
+### "The Wild Life" 1992, Hard Rock
+
+
+
+### "Mass Slaughter: The Best of Slaughter" 1995, Hard Rock
+
+
+
+### "Fear No Evil" 1995, Hard Rock
+
+
+
+### "Revolution" 1997, Hard Rock
+
+
+
+### "Eternal Live" 1998, Hard Rock
+
+
+
+### "Back to Reality" 1999, Hard Rock
+
+
+
 
 ## Отношения с другими группами
 

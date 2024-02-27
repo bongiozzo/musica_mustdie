@@ -1,8 +1,36 @@
 # Oathean
 
-Дискография
-"The Last Desperate 10 Years As Ever" 2003, Black Metal
-"Fading Away Into The Grave Of Nothingness" 2004, Black Metal
+sympho-black from Korea
+
+## Дискография
+
+### "The Last Desperate 10 Years As Ever" 2003, Black Metal
+
+1. The Money From Tabbaco Pouch
+2. Beyond The Memories I Lost
+3. The Woodcutting Doll
+4. In fear With Shiver
+5. Punishment Of Being Alone, Its Cruel Strength Breaks Me Away
+6. The Last Elegy For My Sad Soul
+7. A painful reminiscence in notion
+8. When all memories are shattered
+9. Utter Sadness In The Invisible Space	
+10. Frigid Space (Trendkill Extreme Feast 3th Live)
+
+### "Fading Away Into The Grave Of Nothingness" 2004, Black Metal
+
+Distant Requiem Buried Within
+Wandering Soul
+From The Depths Of Despair
+The Origin
+A Life Of Suffering Craving The Darkness
+Voice Of My Soul/Beyond
+The Memories I Lost
+Scent Of Longing
+Road To.
+In Fear With Shiver (Live)
+The Money From The Tobacco Pouch
+
 
 ## Отношения с другими группами
 

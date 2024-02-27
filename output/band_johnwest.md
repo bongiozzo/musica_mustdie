@@ -1,8 +1,45 @@
 # John West
 
-Дискография
-"Mind Journey" 1997, Heavy Metal
-"Long Time... No Sing" 2006, Heavy Metal
+(Royal Hunt vocal)
+
+## Дискография
+
+### "Mind Journey" 1997, Heavy Metal
+
+   1.   Eastern Horizon 
+   2.   Lady Ice 
+   3.   Fair Trade 
+   4.   One Way 
+   5.   Mind Journey 
+   6.   Castle Is Haunted 
+   7.   Veil of the Blind 
+   8.   Dragon's Eye 
+   9.   Hands in the Fire 
+   10.   Lost in Time 
+
+
+Mike Terrana  -  Drums 
+John West  -  Vocals 
+George Bellas  -  Guitar 
+Matt Guillory  -  Keyboards 
+Barry Sparks  -  Bass 
+
+
+
+### "Long Time... No Sing" 2006, Heavy Metal
+
+1. Let Us Pray
+2. Fade: Set Me Free
+3. Give Me A Sign
+4. Highway Roppongi
+5. Over My Head
+6. The One That Got Away
+7. Falling Down 
+8. Slipping Away 
+9. One More Lie
+10. Better Believe 
+11. Puerto Amor
+
 
 ## Отношения с другими группами
 

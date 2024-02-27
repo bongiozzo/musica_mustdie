@@ -1,7 +1,22 @@
 # Mutant
 
-Дискография
-"The Aeonic Majesty" 2000, Black Metal
+death-black-metal
+
+## Дискография
+
+### "The Aeonic Majesty" 2000, Black Metal
+
+The Majestic Twelve 
+Demonworlds 
+Premonition Erupt 
+Beyond Bet Durrabia 
+The Aeonic Majesty 
+Immemorial Lunacy 
+Dark Spheres 
+Eden Burnt to Ashes 
+Abduct to Mutate 
+
+
 
 ## Отношения с другими группами
 

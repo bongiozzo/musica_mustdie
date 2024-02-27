@@ -1,18 +1,125 @@
 # Lynch Mob
 
-Дискография
-"Wicked Sensation" 1990, Heavy Metal
-"Lynch Mob" 1992, Heavy Metal
-"Syzygy (EP)" 1998, Heavy Metal
-"Smoke This" 1999, Heavy Metal
-"REvolution" 2003, Heavy Metal
-"Evil: Live" 2003, Heavy Metal
-"REvolution: Live!" 2006, Heavy Metal
-"Smoke And Mirrors" 2009, Heavy Metal
-"Sound Mountain Sessions (EP)" 2012, Heavy Metal
-"Unplugged: Live From Sugarhill Studios" 2013, Heavy Metal
-"Sun Red Sun" 2014, Heavy Metal
-"Rebel" 2015, Heavy Metal
+(George Lynch project)
+
+## Дискография
+
+### "Wicked Sensation" 1990, Heavy Metal
+
+1 Wicked Sensation 4:40 (Lynch Mob) 
+2 River of Love 4:22 (Lynch Mob) 
+3 Sweet Sister Mercy 3:40 (Lynch Mob) 
+4 All I Want 5:03 (Lynch Mob) 
+5 Hell Child 4:49 (Lynch Mob) 
+6 She's Evil But She's Mine 5:09 (Lynch Mob) 
+7 Dance of the Dogs 3:45 (Lynch Mob) 
+8 Rain 4:52 (Lynch Mob) 
+9 No Bed of Roses 4:20 (Lynch Mob) 
+10 Through These Eyes 5:15 (Lynch Mob) 
+11 For a Million Years 6:17 (Lynch Mob) 
+12 Street Fighting Man 4:48 (Lynch Mob) 
+
+
+### "Lynch Mob" 1992, Heavy Metal
+
+1. Jungle Of Love (3:50)
+2. Tangled In The Web (4:40)
+3. No Good (4:19)
+4. Dream Until Tomorrow (6:07)
+5. Cold Is The Heart (5:27)
+6. Tie Your Mother Down (Queen cover) (3:49)
+7. Heaven Is Waiting (3:56)
+8. I Want It (4:51)
+9. When Darkness Calls (5:27)
+10. The Secret (5:07)
+11. Love Finds A Way (Bonus track for Japan) (3:36)
+12. Love In Your Eyes (Bonus track for Japan) (4:01)
+
+### "Syzygy (EP)" 1998, Heavy Metal
+
+
+
+### "Smoke This" 1999, Heavy Metal
+
+1 World Spinning Away 4:19 (Lynch Mob) 
+2 Hype-O 5:40 (Lynch Mob) 
+3 Chromeplated 5:17 (Lynch Mob) 
+4 Hollow 6:28 (Lynch Mob) 
+5 Playpalistics 4:30 (Lynch Mob) 
+6 Beg 4:45 (Lynch Mob) 
+7 Relaxin' in the Land of Az 6:09 (Lynch Mob) 
+8 Get It Together 5:55 (Lynch Mob) 
+9 Indra's Net 3:57 (Lynch Mob) 
+10 When I Rise 6:16 (Lynch Mob) 
+11 What Do You Want 3:48 (Lynch Mob) 
+12 Smoke This 4:55 (Lynch Mob) 
+
+
+### "REvolution" 2003, Heavy Metal
+
+01. Tooh and Nail (3:27)
+02. Tangled in the Web (4:01)
+03. All I Want (5:15)
+04. Kiss of Death (6:02)
+05. She's Evil But She's Mine (5:22)
+06. Relax (4:35)
+07. Cold Is The Heart (5:06)
+08. Breaking The Chains (3:35)
+09. When Darkness Calls (5:55)
+10. River of Love (4:14)
+11. Wicked Sensation (4:48)
+12. Paris Is Burning (3:45)
+13. The secret (4:29)
+
+Line-Up:
+George Lynch - guitar
+Robert Mason - vocals
+Anthony Esposito - bass
+Michael 'Fro' Frowein - drums
+
+### "Evil: Live" 2003, Heavy Metal
+
+
+
+### "REvolution: Live!" 2006, Heavy Metal
+
+
+
+### "Smoke And Mirrors" 2009, Heavy Metal
+
+
+
+### "Sound Mountain Sessions (EP)" 2012, Heavy Metal
+
+
+
+### "Unplugged: Live From Sugarhill Studios" 2013, Heavy Metal
+
+01 - River Of Love (Acoustic) 4:26
+02 - Where Do You Sleep At Night (Acoustic) 4:31
+03 - All I Want (Acoustic) 5:14
+04 - Wicked Sensation (Acoustic) 6:03
+05 - Bonus Interview Track 14:26
+
+### "Sun Red Sun" 2014, Heavy Metal
+
+
+
+### "Rebel" 2015, Heavy Metal
+
+01. Automatic Fix (05:48)
+02. Between The Truth And A Lie (03:52)
+03. Testify (05:15)
+04. Sanctuary (03:47)
+05. Pinetree Avenue (03:30)
+06. Jelly Roll (03:32)
+07. Dirty Money (03:57)
+08. The Hollow Queen (04:39)
+09. The Ledge (05:22)
+10. Kingdom Of Slaves (05:43)
+11. War (06:00)
+12. Live It Up (03:43) (japan edition bonus)
+
 
 ## Отношения с другими группами
 

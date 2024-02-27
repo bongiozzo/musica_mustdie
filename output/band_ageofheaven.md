@@ -1,8 +1,59 @@
 # Age of Heaven
 
-Дискография
-"Armageddon" 1996, Gothic
-"The Garden Of Love" 1997, Gothic
+
+
+## Дискография
+
+### "Armageddon" 1996, Gothic
+
+1. The Providence (6.24)
+2. Blaek Dust (5.39)
+3. Armageddon (4.06)
+4. Red Roses (5.32)
+5. Twelve O'Clock (2.39)
+6. In The Mirror (6.34)
+7. Fallen Angel (4.34)
+8. Fairy From The Moon (3.30)
+9. Over The Seven Seas (5.28)
+
+All songs written by AGE OF HEAVEN
+Produced by AGE OF HEAVEN
+Recorded by Hendrik Gundlach at
+Apex-Studio.
+
+Jens-Uwe Helmstedt - Vocals
+Torsten Sander - Bass
+Tom Bottcher - Keyboards
+Erik Wolf - Guitars
+
+(p)(c) 1996 DION FORTUNE Records
+
+### "The Garden Of Love" 1997, Gothic
+
+1.  The Secret
+2.  The Garden Of Love
+3.  Broke The Chain
+4.  Time Flies
+5.  No Time To Pray
+6.  Organ
+7.  Carrie
+8.  It Comes The Night
+9.  Echoes
+10.Behind The Walls
+11.The Garden Of Love (Acoustic)
+12.Reprise
+
+All songs written by AGE OF HEAVEN.
+Produced by J.U.Helmstedt & T.Sander.
+Recorded & Mixed by Karsten Schfer & Hendrik Gundlach.
+Recorded & MIxed At Elsterpark Studio, Leipzig.
+
+Jens-Uwe Helmstedt - Vocals
+Torsten Sander - Bass
+Hendrik Gundlach - Guitars
+
+(p)(c) 1997 AGE ONE MUSIC Records
+
 
 ## Отношения с другими группами
 

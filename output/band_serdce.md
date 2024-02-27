@@ -1,9 +1,29 @@
 # Serdce
 
-Дискография
-"Аритмия" 2003, Thrash
-"Cyberly" 2005, Techno Death
-"The Alchemy Of Harmony" 2009, Techno Death
+
+
+## Дискография
+
+### "Аритмия" 2003, Thrash
+
+
+
+### "Cyberly" 2005, Techno Death
+
+
+
+### "The Alchemy Of Harmony" 2009, Techno Death
+
+1. Prologue	 
+2. Life Thoughts Memory	 
+3. The Pathologies Of Existence	 
+4. Inevitability	 
+5. Parallels (Instrumental)	 
+6. Time That Kills	 
+7. Dolls	 
+8. Voices Inside Me	 
+9. Epilogue
+
 
 ## Отношения с другими группами
 

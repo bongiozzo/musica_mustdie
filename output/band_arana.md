@@ -1,7 +1,22 @@
 # Arana
 
-Дискография
-"Teolt" 2009, Thrash
+
+
+## Дискография
+
+### "Teolt" 2009, Thrash
+
+1. Toke de Keda 
+2. Teolt 
+3. La Pijeada 
+4. Cenizas 
+5. Quemados por el Sol 
+6. Luciernagas en el Mozote 
+7. Diente X Diente
+8. Represion 
+9. Resistencia 
+10. Sabia Negra
+
 
 ## Отношения с другими группами
 

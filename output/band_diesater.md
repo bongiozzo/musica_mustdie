@@ -1,10 +1,25 @@
 # Dies Ater
 
-Дискография
-"Rabenflug (EP)" 1996, Black Metal
-"Reign of Tempests" 1998, Black Metal
-"Through Weird Woods..." 2000, Black Metal
-"Chanting Evil" 2002, Black Metal
+
+
+## Дискография
+
+### "Rabenflug (EP)" 1996, Black Metal
+
+
+
+### "Reign of Tempests" 1998, Black Metal
+
+
+
+### "Through Weird Woods..." 2000, Black Metal
+
+
+
+### "Chanting Evil" 2002, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

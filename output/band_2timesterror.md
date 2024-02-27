@@ -1,7 +1,13 @@
 # 2 Times Terror
 
-Дискография
-"Equals One Sudden Death" 2010, Metal
+
+
+## Дискография
+
+### "Equals One Sudden Death" 2010, Metal
+
+
+
 
 ## Отношения с другими группами
 

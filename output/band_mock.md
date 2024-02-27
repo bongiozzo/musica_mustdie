@@ -1,7 +1,19 @@
 # Mock
 
-Дискография
-"Mock [compilation]" 2007, Black Metal
+
+
+## Дискография
+
+### "Mock [compilation]" 2007, Black Metal
+
+1.	 The Waves of &#196;gair	05:24	 
+2.	 Bonded by thy Blood	02:44	 
+3.	 Her af Vikingum, Black	04:39	 
+4.	 Northern Sins	06:47	 
+5.	 Vinterlandet	01:39	 
+6.	 Call thy Eternal Winter	04:08	 
+7.	 Thy Sorrow of &#197;sgard	06:44
+
 
 ## Отношения с другими группами
 

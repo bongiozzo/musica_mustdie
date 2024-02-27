@@ -1,7 +1,13 @@
 # The End (Sweden)
 
-Дискография
-"The End /demo/" 1996, Death Metal
+
+
+## Дискография
+
+### "The End /demo/" 1996, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

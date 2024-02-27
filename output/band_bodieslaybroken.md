@@ -1,6 +1,9 @@
 # Bodies Lay Broken
 
-Дискография
+extreme goregrind from Minneapolis
+
+## Дискография
+
 
 ## Отношения с другими группами
 

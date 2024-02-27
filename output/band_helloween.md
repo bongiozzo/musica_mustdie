@@ -1,34 +1,532 @@
 # Helloween
 
-Дискография
-"Helloween" 1984, Power Metal
-"Walls of Jericho" 1985, Power Metal
-"Keeper of the Seven Keys - Part I" 1987, Power Metal
-"Keeper of the Seven Keys - Part II" 1988, Power Metal
-"Pink Bubbles Go Ape" 1991, Power Metal
-"The Best The Rest The Rare" 1991, Power Metal
-"The Rare" 1992, Power Metal
-"Chameleon" 1993, Power Metal
-"Master of the Rings" 1994, Power Metal
-"The Time of the Oath" 1996, Power Metal
-"Power" 1996, Power Metal
-"High Live" 1997, Power Metal
-"Better Than Raw" 1998, Power Metal
-"Metal Jukebox" 1999, Power Metal
-"The Dark Ride" 2000, Power Metal
-"Treasure Chest" 2002, Power Metal
-"Rabbit Don't Come Easy" 2003, Power Metal
-"Mrs. God (single)" 2005, Power Metal
-"Keeper of the Seven Keys - The Legacy" 2005, Power Metal
-"Keeper Of The Seven Keys - The Legacy - World Tour 2005/2006: Live In Sao Paulo (2CD)" 2007, Power Metal
-"Gambling With The Devil" 2007, Power Metal
-"Unarmed [Best Of 25th Anniversary]" 2010, Power Metal
-"Are You Metal? (single)" 2010, Power Metal
-"7 Sinners" 2010, Power Metal
-"Burning Sun [single] " 2012, Power Metal
-"Straight Out Of Hell " 2013, Power Metal
-"Battle's Won (single)" 2015, Power Metal
-"My God-Given Right" 2015, Power Metal
+Fathers of Power Metal Style
+
+## Дискография
+
+### "Helloween" 1984, Power Metal
+
+1. Starlight
+2. Murderer
+3. Warrior
+4. Victim Of Fate
+5. Cry For Freedom
+6. Judas (Bonus)
+
+ Kai Hansen - Guitars / Vocals
+ Markus Grosskopf - Bass
+ Ingo Schwichtenberg - Drums
+ Michael Weikath - Guitars
+
+(p)&(c) 1984 NOISE International
+
+### "Walls of Jericho" 1985, Power Metal
+
+1. Walls Of Jericho
+2. Ride The Sky
+3. Reptile
+4. Guardians
+5. Phantoms Of Death
+6. Metal Invaders
+7. Gorgar
+8. Heavy Metal (Is The Law)
+9. How Many Tears
+
+ Kai Hansen - Guitars / Vocals
+ Markus Grosskopf - Bass
+ Ingo Schwichtenberg - Drums
+ Michael Weikath - Guitars
+
+(p)&(c) 1985 NOISE International
+
+### "Keeper of the Seven Keys - Part I" 1987, Power Metal
+
+1. Invitation
+2. I'm Alive
+3. A Little Time
+4. Twilight Of The Gods
+5. A Tale That Wasn't Right
+6. Future World
+7. Halloween
+8. Follow The Sign
+
+ Michael Kiske - Vocals
+ Kai Hansen - Guitars 
+ Markus Grosskopf - Bass
+ Ingo Schwichtenberg - Drums
+ Michael Weikath - Guitars
+
+(p)&(c) 1987 NOISE International
+
+### "Keeper of the Seven Keys - Part II" 1988, Power Metal
+
+1. Invitation
+2. Eagle Fly Free
+3. You Always Walk Alone
+4. Rise And Fall
+5. Dr.Stein
+6. We Got The Right
+7. Save Us
+8. March Of Time
+9. I Want Out
+10.Keeper Of The Seven Keys
+
+ Michael Kiske - Vocals
+ Kai Hansen - Guitars 
+ Markus Grosskopf - Bass
+ Ingo Schwichtenberg - Drums
+ Michael Weikath - Guitars
+
+(p)&(c) 1988 NOISE International
+
+### "Pink Bubbles Go Ape" 1991, Power Metal
+
+1. Pink Bubbles Go Ape
+2. Kids Of The Century
+3. Back On The Street
+4. Number One
+5. Heavy Metal Hamsters
+6. Goin' Home
+7. Someone's Crying
+8. Mankind
+9. I'm Doin' Fine,Crazy Man
+10.The Chance
+11.Your Turn
+
+Michael Kiske - Lead Vocals
+Michael Weikath - L.Guitars,Back Vocals
+Ingo Schwichtenberg - Drums
+Roland Grapow - Guitar
+Marcus Grosskopf - Drums
+
+(P)&(C) 1991 NOISE International
+
+### "The Best The Rest The Rare" 1991, Power Metal
+
+1. I want out
+2. Dr. Stein
+3. Future world
+4. Judas
+5. Walls of Jericho
+6. Ride the sky
+7. Halloween
+8. Livin' ain't no crime
+9. Save us
+10. Victim of fate
+11. Savage
+12. Don't run for cover
+13. Keeper of the seven keys
+
+Michael Kiske(vo)
+Kai Hansen(g)
+Michael Weikath(g)
+Markus Grosskopf(b)
+Ingo Schwichtenberg(dr)
+
+### "The Rare" 1992, Power Metal
+
+1. Judas
+2. Living Ain't No Crime
+3. Save Us
+4. Victim Of Fate * (Remix)
+5. Savage
+6. Don't Run For Cover
+
+* Vocals By Michael Kiske.
+All songs written by HELLOWEEN.
+
+(P)(C) 1992 NOISE International
+
+### "Chameleon" 1993, Power Metal
+
+1.  First Time
+2.  When The Sinner
+3.  I Don't Wanna Cry No More
+4.  Crazy Cat
+5.  Giants
+6.  Windmill
+7.  Revolution Now
+8.  In The Night
+9.  Music
+10.  Step Out Of Hell
+11.  I Believe
+12.  Longing
+
+Michael Kiske - Lead Vocals
+Michael Weikath - Lead Guitar, Back Vocals
+Ingo Schwichtenberg - Drums
+Roland Grapow - Guitar
+Marcus Grosskopf - Drums
+
+(P)c 1993
+
+### "Master of the Rings" 1994, Power Metal
+
+1. Irritation
+2. Sole Survivor
+3. Where The Rain Grows
+4. Why ?
+5. Mr. Ego (Take Me Down)
+6. Perfect Gentleman
+7. The Game Is On
+8. Secret Alibi
+9. Take Me HOme
+10.In The Middle Of A Heartbeat
+11.Still We Go
+
+ Michael Weikath - Guitaring
+ Marcus Grosskopf - Bassering
+ Roland Grapow - Guitaring & Singering
+ Andi Deris - Singering
+ Uli Kusch - Drummering
+
+(p)&(c) 1994 RAW POWER/CASTLE COMMUNICATIONS
+
+### "The Time of the Oath" 1996, Power Metal
+
+1. We Burn (3 .04)
+2. Steel Tormentor (5.40)
+3. Wake Up The Mountain (5.01
+4. Power (3.28)
+5. Forever And One (Neverland) (3.54)
+6. Before The War (4.33)
+7. A Million To One (5.11)
+8. Anything My Mama Don't Like (3.46)
+9. Kings Will Be Kings (5.09)
+[10]. Mission Motherland (9.00)
+[11]. If I Knew (5.30)
+[12]. The Time Of The Oath (6.58)
+
+[10]-[12] - на  cтороне B
+
+All songs written by HELLOWEEN
+Produced and mixed by Tommy Hansen.
+Engineered by Michael Tibes
+Recorded and mixed at Chateau Du Pape,  Hamburg.
+
+Michael Weikath - Guitars
+Uli Kusch - Drums
+Andi Deris - Vocals
+Roland Grapow - Guitars
+Marcus Grosskopf - Bass
+
+Keyboards by Jorn Ellerbrock and Tommy  Hansen.
+
+(p)(c) 1996 HELLOWEEN  Limited
+
+### "Power" 1996, Power Metal
+
+1.  Power
+2.  We Burn
+3.  Rain
+4.  Walk Your Way
+
+All Songs By HELLOWEEN.
+Produced & Mixed By Tommy Hansen.
+Engineered By Michael Tibes.
+
+Recorded & Mixed At Chateau Du Pape, Hamburg.
+
+Michael Weikath - Guitars
+Marcus Grosskopf - Bass
+Roland Grapow - Guitars
+Andi Deris - Vocals
+Uli Kusch - Drums
+
+Keyboards By Jorn Ellerbrock & Tommy Hansen.
+
+(P)&c 1996 HELLOWEEN Limited
+
+### "High Live" 1997, Power Metal
+
+1.  We Burn
+2.  Wake Up The Mountain
+3.  Sole Survivor
+4.  You're On Your Way
+5.  Why ?
+6.  Eagle Fly Free
+7.  The Time Of The Oath
+8.  Before The War
+9.  Power
+10.Where The Pain Grows
+11.In The Middle Of The Heartbeat
+12.Perfect Gentleman
+13.Steel Tormentor
+
+Michael Weikath - Guitars
+Uli Kusch - Drums
+Andi Deris - Vocals
+Roland Grapow - Guitars
+Marcus Grosskopf - Bass
+
+Keyboards by Jorn Ellerbrock and Tommy  Hansen.
+
+(p)(c) 1997 HELLOWEEN Limited
+
+### "Better Than Raw" 1998, Power Metal
+
+1. Deliberately Limited Preliminary
+2. Push
+3. Falling Higher
+4. Hey Lord!
+5. Don't Spit On My Mind
+6. Revelation
+7. Time
+8. I Can
+9. A Handful Of Pain
+10. Lavdate Dominium
+11. Back On The Ground
+12. Midnight
+
+### "Metal Jukebox" 1999, Power Metal
+
+
+
+### "The Dark Ride" 2000, Power Metal
+
+1. Behind The Portal (Intro) (Deris)
+2. Mr. Torture (Kusch)
+3. All Over The Nations (Weikath)
+4. Escalation666 (Grapow)
+5. Mirror Mirror (Deris)
+6. If I Could Fly (Deris)
+7. Salvation (Weikath)
+8. The Departed/The Sun Is Going Down (Kusch)
+9. I Live For Your Pain (Deris)
+10. We Damn The Night (Deris)
+11. Immortal (Deris)
+12. The Dark Ride (Grapow)
+13. Madness of The Crowds (Deris) (Japanese Bonus Track)
+
+### "Treasure Chest" 2002, Power Metal
+
+CD 1
+01. Mr. Torture
+02. I Can
+03. Power
+04. Where The Rain Grows
+05. Eagle Fly Free
+06. Future World
+07. Metal Invaders
+08. Murderer
+09. Starlight
+10. How Many Tears
+11. Ride The Sky
+12. A Little Time
+13. A Tale That Wasn't Right
+14. I Want Out
+
+CD 2
+01. Keeper of The Seven Keys
+02. Dr. Stein
+03. The Chance
+04. Windmill
+05. Sole Survivor
+06. Perfect Gentleman
+07. In The Middle of a Heartbeat
+08. Kings Will Be Kings
+09. Time Of The Oath
+10. Forever & One
+11. Midnight Sun
+12. Mr. Ego
+13. Immortal
+14. Mirror Mirror
+
+
+### "Rabbit Don't Come Easy" 2003, Power Metal
+
+1. Just a Little Sign
+ 2. Open Your Life
+ 3. The Tune
+ 4. Never Be a Star
+ 5. Liar
+ 6. Sun 4 the World
+ 7. Don't Stop Being Crazy
+ 8. Do You Feel Good
+ 9. Hell Was Made in Heaven
+10. Back Against the Wall
+11. Listen to the Flies
+12. Nothing to Say
+13. Far Away
+14. Fast as a Shark
+
+Lineup:
+Andreas Deris - vocals
+Michael Weikath - guitars
+Sascha Gerstner - guitars
+Markus Grosskopf - bass
+
+Guests:
+Jorn Ellerbrock - keyboard
+Rolf Kohler, Olaf Senkbeil - bass, vocals
+Mikkey Dee, Mark Cross - drums
+
+### "Mrs. God (single)" 2005, Power Metal
+
+1. Mrs. God (Deris/Deris)
+2. My Life For One More Day - Single Edit Version (Grosskopf,Deris/Grosskopf,Deris)
+3. Run (The Name Of Your Enemy) - Exclusive Single Bonus Track (Gerstner/Deris,Gerstner)
+4. Mrs. God Video
+
+### "Keeper of the Seven Keys - The Legacy" 2005, Power Metal
+
+CD 1
+
+01 The King For A 1000 Years 13:54 
+02 The Invisible Man 07:17 
+03 Born On Judgment Day 06:14 
+04 Pleasure Drone 04:08 
+05 Mrs. God 02:55 
+06 Silent Rain 04:21 
+
+Total Playing Time: 38:56 
+
+CD 2 
+
+01 Occasion Avenue 11:04 
+02 Light The Universe (feat. Candice Night) 05:00 
+03 Do You Know What You`re Fighting For? 04:45 
+04 Come Alive 03:20 
+05 Shade In The Shadow 03:24 
+06 Get It Up 04:13 
+07 My Life For One More Day 06:51 
+
+Total Playing Time: 38:45
+
+### "Keeper Of The Seven Keys - The Legacy - World Tour 2005/2006: Live In Sao Paulo (2CD)" 2007, Power Metal
+
+
+
+### "Gambling With The Devil" 2007, Power Metal
+
+1. Crack The Riddle (Intro) 00:57  
+2. Kill It 04:13  
+3. The Saints 07:06  
+4. As Long As I Fall 03:41  
+5. Paint A New World 04:27  
+6. Final Fortune 04:46  
+7. The Bells Of The Seven Hells 05:22  
+8. Fallen To Pieces 05:52  
+9. I.M.E. 03:46  
+10. Can Do It 04:30  
+11. Dreambound 05:57  
+12. Heaven Tells No Lies 06:56 
+
+Limited digipack version contains a bonus disc.
+
+1. Find My Freedom (Japan Bonus Track) 
+2. We Unite (Bonus track) 
+3. As Long As I Fall - video (enhanced) 
+4. Trailer (enhanced) 
+
+
+Andi Deris - Vocals 
+Michael Weikath - Guitars 
+Sascha Gerstner - Guitars 
+Markus Grosskopf - Bass 
+Dani Loble - Drums
+
+### "Unarmed [Best Of 25th Anniversary]" 2010, Power Metal
+
+01. Dr. Stein (03:59)
+02. Future World (04:13)
+03. If I Could Fly (03:28)
+04. Where The Rain Grows (05:09)
+05. The Keeper's Trilogy (17:06)
+06. Eagle Fly Free (03:50)
+07. Perfect Gentleman (04:18)
+08. Forever & One (04:25)
+09. I Want Out (04:22)
+10. Fallen To Pieces (03:28)
+11. A Tale That Wasn't Right (04:46)
+
+### "Are You Metal? (single)" 2010, Power Metal
+
+1. Are You Metal? 03:35  
+2. Raise The Noise 05:06  
+3. I'm Free 04:12 
+
+
+### "7 Sinners" 2010, Power Metal
+
+1. Where The Sinners Go 03:35  
+2. Are You Metal? 03:38  
+3. Who is Mr. Madman? 05:40  
+4. Raise The Noise 05:06  
+5. World Of Fantasy 05:15  
+6. Long Live The King 04:12  
+7. The Smile Of The Sun 04:37  
+8. You Stupid Mankind 04:05  
+9. If A Mountain Could Talk 06:43  
+10. The Sage, The Fool, The Sinner 04:00  
+11. My Sacrifice 05:00  
+12. Not Yet Today 01:11  
+13. Far In The Future 07:42 
+
+
+The premium version of "7 SINNERS" will include the deluxe digipak, extended
+booklet and an exclusive bonus track! 
+
+Andi Deris - Vocals
+Michael Weikath - Guitars 
+Sascha Gerstner - Guitars 
+Markus Grosskopf - Bass 
+Dani Loble - Drums 
+
+### "Burning Sun [single] " 2012, Power Metal
+
+1. Burning Sun 05:35 
+2. Wanna Be God 02:03 
+3. Another Shot of Life 05:15 
+4. Where the Sinners Go (live) 03:56
+
+### "Straight Out Of Hell " 2013, Power Metal
+
+01. Nabataea (07:02)
+02. World Of War (04:57)
+03. Live Now! (03:11)
+04. Far From The Stars (04:43)
+05. Burning Sun (05:34)
+06. Waiting For The Thunder (03:54)
+07. Hold Me In Your Arms (05:11)
+08. Wanna Be God (02:02)
+09. Straight Out Of Hell (04:35)
+10. Asshole (04:10)
+11. Years (04:24)
+12. Make Fire Catch The Fly (04:24)
+13. Church Breaks Down (06:09)
+14. Another Shot Of Life (Limited Edition Bonus Track) (05:16)
+15. Burning Sun (Hammond Version) (Limited Edition Bonus Track) (05:33)
+
+### "Battle's Won (single)" 2015, Power Metal
+
+1. Battle’s Won  04:53  
+2. Lost in America  03:35  
+
+
+### "My God-Given Right" 2015, Power Metal
+
+Disc 1
+1. Heroes  03:51  
+2. Battle's Won  04:53  
+3. My God-Given Right  03:30   
+4. Stay Crazy  04:05    
+5. Lost in America  03:35   
+6. Russian Roule  03:53    
+7. The Swing of a Fallen World  04:53   
+8. Like Everybody Else  04:04    
+9. Creatures in Heaven  06:36    
+10. If God Loves Rock 'n' Roll  03:21   
+11. Living on the Edge  05:19  
+12. Claws  05:52    
+13. You, Still of War  07:21     
+  
+Disc 2
+1. I Wish I Were There  04:12
+2. Wicked Game  03:56  
+3. Nightmare  04:43  
+4. More Than a Lifetime  03:58 
+
 
 ## Отношения с другими группами
 

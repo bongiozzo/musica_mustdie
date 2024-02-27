@@ -1,11 +1,121 @@
 # Axenstar
 
-Дискография
-"Perpetual Twilight" 2002, Power Metal
-"Far From Heaven" 2003, Power Metal
-"The Inquisition" 2005, Power Metal
-"The Final Requiem" 2006, Power Metal
-"Aftermath" 2011, Power Metal
+
+
+## Дискография
+
+### "Perpetual Twilight" 2002, Power Metal
+
+1. All I Could Ever Be (4.34)  Music & Lyrics: Thomas Eriksson 
+2. The Cross We Bear (5.46) Music & Lyrics: Thomas Eriksson
+3. King of Tragedy (5.34) Music: Thomas Eriksson, Lyrics: Peter Johansson & Thomas Eriksson
+4. Scars (5.06) Music: Axenstar, Lyrics: Magnus Eriksson
+5. Enchantment (4.41) Music & Lyrics: Thomas Eriksson
+6. New Revelations (7.16) Music & Lyrics: Thomas Eriksson
+7. Secrets Revealed (3.12) Music: Thomas Eriksson
+8. Confess Thy Sins (4.08) Music & Lyrics: Thomas Eriksson
+9. Perpetual Twilight (8.31) Music & Lyrics: Thomas Eriksson
+
+
+T. Eriksson - guitar
+M. Eriksson - vocals and keyboards 
+P. Jansson - drums
+M. Ek - bass
+P. Johansson - guitar 
+
+
+
+Recorded and Mixed in Studio Underground, February/Marsh 2002
+Recorded and Engineered by P-O Saether and Lasse Lindйn
+Mixed by P-O Saether
+Mastred by Mika Jussila at Finnvox Studios
+Cover Painting by Travis Smith
+Photos by Jonas Bilberg 
+
+
+### "Far From Heaven" 2003, Power Metal
+
+1-The Descending (Intro) 
+2-Infernal Angel 
+3-Blind Leading The Blind 
+4-Don't Hide Your Eyes 
+5-Far From Heaven 
+6-Abandoned 
+7-Children Forlorn 
+8-Death Denied 
+9-Blackout 
+10-Northen Sky
+11-Twilight Of The Gods
+
+
+Thomas Eriksson - Lead and Rhythm Guitar,Backing vocals
+Magnus Eriksson - Vocals and Keyboards
+Pontus Jansson - Drums
+Magnus Ek - Bass and Backing Vocals
+Peter Johansson - Rhythm and Lead Guitar
+
+Recorded at Studio Underground, mastered by Peter In de Betou
+
+### "The Inquisition" 2005, Power Metal
+
+1. The Fallen One
+2. Under Black Wings
+3. Salvation
+4. Inside Your Mind
+5. Daydreamer
+6. Drifting
+7. The Burning
+8. Run or Hide
+9. The Sands of Time
+10. Imaginary World (Japanese bonus track)
+
+### "The Final Requiem" 2006, Power Metal
+
+1. Final Requiem (3.53); 
+2. Condemnation (4.02); 
+3. The Divine (4.18); 
+4. Edge Of The World (5.19); 
+5. Thirteen (4.41); 
+6. The Hide (4.58); 
+7. Underworld (5.46); 
+8. Spirit (4.06); 
+9. Pagan Ritual (3.55); 
+10. Seeds Of Evil (4.36); 
+11. End Of The Line (3.59); 
+12. Beyond The Lies (4.48)
+
+All songs written by AXENSTAR
+Produced by Pelle Saether and AXENSTAR
+Engineered and mixed by Pelle Saether
+Recorded in Studio Underground
+
+M.Winterwild - Vocals, Guitars and Keyboards
+J.Jonsson - Lead Guitars
+M.Ek - Bass
+P.Jansson - Drums
+
+### "Aftermath" 2011, Power Metal
+
+1. Dogs of War 05:12  
+2. The Escape 03:52  
+3. Tears of the Sun 03:21  
+4. Agony 05:26  
+5. Aftermath 03:49  
+6. The New Breed 04:50  
+7. Dead Kingdom 04:51  
+8. Until Your Dying Breath 05:06  
+9. Signs of a Lie 04:27  
+10. Forever the Pain 05:29  
+11. Bad Blood (Bonus-Track) 
+
+
+
+line up:
+Magnus Winterwild - Vocals , Bass , Keyboards
+Jens Klovegеrd - Guitar
+Joakim Jonsson - Guitar
+Adam Lindberg - Drums 
+
 
 ## Отношения с другими группами
 

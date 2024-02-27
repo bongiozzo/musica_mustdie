@@ -1,8 +1,60 @@
 # Sorg
 
-Дискография
-"Among Sadness" 1997, Death Metal
-"Enigma Grotesque" 2000, Death Metal
+(Innovative death metal)
+
+## Дискография
+
+### "Among Sadness" 1997, Death Metal
+
+Pit Of Obsession 
+Dawn 
+Beyond Death 
+Ghostly Wind Of Sorrow 
+Portal To Darkness 
+Prayers Of The Nazarene 
+Sorg 
+
+
+Line up:
+
+Шyvind Karlsen : Drums
+Aslak Janitz : Guitar & Vocal
+Karl Ш. Langedahl : Vocal
+Bjшrn A. Johansen : Bass
+Knut E. Bakkevold : Guitar & Synth
+Siv R. Kaaby : Vocal 
+
+
+
+### "Enigma Grotesque" 2000, Death Metal
+
+1. Vobiscum
+2. Lock Me Under
+3. ... And Yours Shall Be
+4. Reach Me
+5. A Perilous Quest
+6. Enigma Grotesque
+7. Tears Of Oblivion
+8. The Supreme Below
+9. (hidden track)
+
+Lene Vestrum - Female Vocals
+Karl 0 Langedahl - Male Lead Vocals/Synth
+Aslak Janitz - Guitars/Vocals
+Knut E. Bakkevold - Guitars/Synth
+O yvind Karlsen - Drums and Percussions
+Bjorn A. Johansen - Bass
+Mikal Lundemo - Violin
+
+Guest musican: Mikal Lundemo - violin
+
+Recorded, mixed at Nord-Norsk Filmecenter (Honnigswag , January-February 2000)
+Mastered at Massive Arts, Milano
+Produced and arranged by Sorg
+Engineered and Mixed by Steve Ruse Jensen
+
+(p) 2000 Scarlet
+
 
 ## Отношения с другими группами
 

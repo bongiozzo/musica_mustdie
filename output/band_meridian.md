@@ -1,7 +1,30 @@
 # Meridian
 
-Дискография
-"The Seventh Sun" 2002, Black Metal
+
+
+## Дискография
+
+### "The Seventh Sun" 2002, Black Metal
+
+Fortune 
+Immortal Ancestry  
+Deep Waters  
+Abraham Timecode  
+Dream of the Sun 
+A Time for a War 
+The Last Deception 
+Sol Septem Meridian 
+Absolute Research  
+
+
+Produced by Terje Refsnes 
+Vocals by MORGUL frontman Jack D Ripper
+M.T Random - drums 
+Paris - vocals 
+Drakon - guitars 
+Arwan - keyboards
+
+
 
 ## Отношения с другими группами
 

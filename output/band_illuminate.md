@@ -1,10 +1,50 @@
 # Illuminate
 
-Дискография
-"10X10 Schwarz" 2003, Gothic
-"10X10 Weisser" 2003, Gothic
-"AugenBlicke" 2004, Gothic
-"Zwei Seelen" 2006, Gothic
+
+
+## Дискография
+
+### "10X10 Schwarz" 2003, Gothic
+
+
+
+### "10X10 Weisser" 2003, Gothic
+
+
+
+### "AugenBlicke" 2004, Gothic
+
+01. Intro: "Augenblick… verweile doch!"
+02. Verzelih' mir!
+03. Sonnenkind
+04. Meine Zeit
+05. Am Ufer
+06. Abschied
+07. Ich glaub' an dich!
+08. Ich kenn' die Welt nicht mehr
+09. Augenblick
+10. Outro: "Fur immer fort"
+11. Nacht dem Erwachen - bomus
+12. Nacht dem Erwachen (Kurzfilm) - bonus
+
+Johannes Berthold - Gesang, Piano, Keyboards,
+Programming
+Cornelia Schindler - Gesang
+Jorn Langenfeld - Gitarren
+Johannes Knees - Keyboards
+
+### "Zwei Seelen" 2006, Gothic
+
+01. Gebet aus der Vergangenheit
+02. Wer lieben will
+03. Tore Garten
+04. Es brennt die Welt
+05. Bevor Du gehst
+06. Man sagt
+07. Kein Hauch von Leben
+08. Siehst Du mich in Dir?
+09. Zwei Seelen
+
 
 ## Отношения с другими группами
 

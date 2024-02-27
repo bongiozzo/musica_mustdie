@@ -1,7 +1,32 @@
 # Ripping Corpse
 
-Дискография
-"Dreaming With The Dead" 1991, Death Metal
+
+
+## Дискография
+
+### "Dreaming With The Dead" 1991, Death Metal
+
+1. Sweetness
+2. Dreaming With The Dead
+3. Anti God
+4. Glorious Depravity
+5. Beyond Humanity
+6. Feeling Pleasure Through Pain
+7. Through The Skin To The Soul
+8. Rift Of Hate
+9. Deeper Demons
+10.Sickness Of Will
+11.Chugging Pus
+12.Seduction Of The Innocent
+
+ Scott Ruth - Vocals
+ Shaune Kelley - Guitar
+ Eric Rutan - Guitar
+ Dave Bizzigotti - Bass
+ Brandon Thomas - Drums
+
+(p)&(c) 1991
+
 
 ## Отношения с другими группами
 

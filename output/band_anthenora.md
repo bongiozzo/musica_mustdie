@@ -1,10 +1,36 @@
 # Anthenora
 
-Дискография
-"The General's awakening EP" 2002, Heavy Metal
-"The Last Command" 2004, Heavy Metal
-"Soulgrinder" 2006, Heavy Metal
-"The Ghosts of Iwo Jima" 2010, Heavy Metal
+classic metal from Italy
+
+## Дискография
+
+### "The General's awakening EP" 2002, Heavy Metal
+
+
+
+### "The Last Command" 2004, Heavy Metal
+
+
+
+### "Soulgrinder" 2006, Heavy Metal
+
+
+
+### "The Ghosts of Iwo Jima" 2010, Heavy Metal
+
+1. Machine Gunner
+2. The Sniper
+3. Valkyria
+4. The Old Guard
+5. Enigma
+6. The War Of The Rats
+7. Pathfinders	
+8. Her Eyes
+9. Poseidon
+10. Leningrad
+11. A Bridge too Far
+12. The Ghosts of Iwo Jima
+
 
 ## Отношения с другими группами
 

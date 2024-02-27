@@ -1,7 +1,52 @@
 # Anj
 
-Дискография
-"Russian Roulette" 2008, Metal
+
+
+## Дискография
+
+### "Russian Roulette" 2008, Metal
+
+01. DANCING WITH DEATH
+02. ANOTHER REALITY
+03. GORBACHEV
+04. MY WORLD
+05. THE ETERNAL ARMY
+06. CRUEL TIMES
+07. PROPHECY
+08. POWER TO DESTROY
+09. GORBACHEV (video - directed by Tom Stern)
+10. CRUEL TIMES (video - directed by Anatoly Zhuravlev)
+
+АНАТОЛИЙ ЖУРАВЛЕВ - вокал
+ОЛЕГ ИЗОТОВ - гитара
+НИКИТА СИМОНОВ - бас-гитара
+ВАСИЛИЙ ГОРШКОВ - ударные
+
+CREDITS:
+Guest musicians:
+
+Roy Mayorga - drums (3)
+Levon Sultanyan - guitars/bass (3)
+Artur Arakelyan - keys (except 3,4)
+Ari Shine - back vocals (except 3)
+
+Music and lyrics by Anatoly Zhuravlev
+Recorded, mixed and mastered at Rosenfield Records
+(Moscow, Russia)
+Sound producer - Niklas Vengrzhanovich
+Executive producer - Natalie "Rag Doll" Dybaylo
+Artwork by Anna Repp www.annarepp.com
+Photos by Paul Natkin www.natkin.net
+
+"Gorbachev" is recorded, mixed and mastered at
+Seedy Underbelly Studio (Los Angeles, USA)
+Produced by John Travis
+
+Official websites: http://anjmusic.com /
+http://www.anj.su
+Official MySpace: http://myspace.com/anjkill
+
+
 
 ## Отношения с другими группами
 

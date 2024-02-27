@@ -1,7 +1,13 @@
 # Project: Failing Flesh
 
-Дискография
-"A Beutiful Sickness" 2003, Thrash
+modern progressive-thrash-metal
+
+## Дискография
+
+### "A Beutiful Sickness" 2003, Thrash
+
+
+
 
 ## Отношения с другими группами
 

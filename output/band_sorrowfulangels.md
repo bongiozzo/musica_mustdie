@@ -1,7 +1,22 @@
 # Sorrowful Angels
 
-Дискография
-"Ship In Your Trip" 2009, Gothic
+
+
+## Дискография
+
+### "Ship In Your Trip" 2009, Gothic
+
+1. Second Life 04:29  
+2. Denial 03:49  
+3. A Long Stay 04:25  
+4. Ship In Your Trip 02:40  
+5. Laws Of Deceit 04:06  
+6. Red Sunrise 03:33  
+7. Final Win 03:29  
+8. Suicidal Manners 03:46  
+9. How To Lose A Star 05:08  
+10. I'm Home 07:06 
+
 
 ## Отношения с другими группами
 

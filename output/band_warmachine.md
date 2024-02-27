@@ -1,7 +1,13 @@
 # Warmachine
 
-Дискография
-"The Beginning Of The End " 2005, Thrash
+
+
+## Дискография
+
+### "The Beginning Of The End " 2005, Thrash
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,37 @@
 # Chupacabras
 
-Дискография
-"...Il Tuo Delirio" 2003, Thrash
-"Incivilta" 2011, Metalcore
+
+
+## Дискография
+
+### "...Il Tuo Delirio" 2003, Thrash
+
+1.	 Condanna	02:59	 
+2.	 Guerra Preventiva	03:26	 
+3.	 Il Duo Delirio	03:49	 
+4.	 Chupacabras	02:29	 
+5.	 Vortece Di Polvere	03:25	 
+6.	 Orizzonti Verticali	03:43	 
+7.	 Ragazzo Inutile	03:23	 
+8.	 Non Esisto	02:47	 
+9.	 Bush Kick Ass	01:31	 
+10.	 Naziskin In The USA	02:03	 
+11.	 Lacrime	03:34	
+
+### "Incivilta" 2011, Metalcore
+
+1.	 Incivilta	04:39	 
+2.	 Incubo Catodico	02:49	 
+3.	 Rabbia	03:51	 
+4.	 Rido	04:00	 
+5.	 Affuoco	03:21	 
+6.	 Appesi A Un Filo		 
+7.	 Voracita	03:40	 
+8.	 All'Inferno	04:30	 
+9.	 Maschere	03:28	 
+10.	 God Of War	02:00	 
+11.	 Rabbia Vol. II	01:26	
+
 
 ## Отношения с другими группами
 

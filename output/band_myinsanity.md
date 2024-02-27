@@ -1,9 +1,57 @@
 # My Insanity
 
-Дискография
-"Still Dreams In Violent Areas" 1998, Gothic
-"Solar Child" 2001, Gothic
-"Scattered Soul Puzzle" 2005, Gothic
+German electro-gothic-metal
+
+## Дискография
+
+### "Still Dreams In Violent Areas" 1998, Gothic
+
+
+
+### "Solar Child" 2001, Gothic
+
+Monument (3'44) 
+Cosmic Orgasm (3'24) 
+Bound & Lost (3'53) 
+Failed Experiment I (4'24) 
+Failed Experiment II (4'28) 
+Mirrors (4'10) 
+Solar Child (4'12) 
+Dead Season (4'17) 
+Twin (3'16) 
+Kings of Plush (3'48) 
+Infinity (4'41) 
+Sunday (4'06)
+
+
+
+Recorded at Woodhouse studios Produced by Xy (SAMAEL) 
+Mixed by Siggi Bemm and Waldemar Sorychta 
+Guest gitarist Waldemar Sorychta (GRIP INC.) 
+
+
+Tobias Below bass  
+Renй Jauernik drums 
+Mario Ermisch  Guitar  
+Sascha Shettler Keys + Vox  
+Christian Faust  Vocal 
+
+
+### "Scattered Soul Puzzle" 2005, Gothic
+
+my world 
+cocaine 
+call my name 
+extinct 
+champagne for me 
+wake up... prisoners! 
+monkeys 
+giants little ghost 
+anything to anyone 
+tiefenrausch 
+some days 
+good bye in the bloodred sky
+
 
 ## Отношения с другими группами
 

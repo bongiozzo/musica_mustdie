@@ -1,7 +1,13 @@
 # Accion Mutante
 
-Дискография
-"_" , Grindcore
+political crustcore from Germany
+
+## Дискография
+
+### "_" , Grindcore
+
+
+
 
 ## Отношения с другими группами
 

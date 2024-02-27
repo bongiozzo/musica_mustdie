@@ -1,10 +1,48 @@
 # Drama
 
-Дискография
-"Silver Brilliance Of Nocticula" 2003, Black Metal
-"Winds Choir Opera" 2004, Black Metal
-"Silver Brilliance Of Nocticula (re-release)" 2006, Black Metal
-"As in empty grave" 2010, Black Metal
+
+
+## Дискография
+
+### "Silver Brilliance Of Nocticula" 2003, Black Metal
+
+
+
+### "Winds Choir Opera" 2004, Black Metal
+
+1. Silver Brilliance Of Nocticula
+2. Darkwoods. Embrace
+3. Grand Awakening Of White Witch
+4. Obsessed By Cold Immortality
+5. Wintercrown
+6. Icy Sculptures In The Severe Frostland
+7. Unsilent Storms In The North Abyss*
+
+*-IMMORTAL cover
+
+### "Silver Brilliance Of Nocticula (re-release)" 2006, Black Metal
+
+Wind Of New War
+When Night Falls
+Winter In My Mind
+Satanica
+Wintercrown
+Mother North
+Icy Sculptures In The Severe Frostland
+Echo Of  Madness
+Resurrection
+
+### "As in empty grave" 2010, Black Metal
+
+1. About the Meaning of the Quest 08:37
+2. Around the Flame 07:01  
+3. Irae Nominem Tui 09:34
+4. Possessed by Darkness 04:12
+5. As in Empty Grave 06:41 
+6. In Hands of My Empire 07:11
+7. Assault by Chaos Hysteria 04:45 
+8. Cold has Burst to Me 08:52 
+
 
 ## Отношения с другими группами
 

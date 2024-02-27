@@ -1,8 +1,30 @@
 # Avrigus
 
-Дискография
-"The Final Wish" 1998, Gothic
-"The Secret Kingdom" 2001, Gothic
+gothic melancholic doom from Australia
+
+## Дискография
+
+### "The Final Wish" 1998, Gothic
+
+The Final Wish
+As Ivy Groweth Green
+Desolate
+Flesh
+
+### "The Secret Kingdom" 2001, Gothic
+
+Overture
+Solitude Salvation
+Dark Angels' Ascension
+Veritas
+Qliphoth
+Desolate
+Flesh
+'Til Death Do Us Unite
+Shade of My Heart
+The Grail
+
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,64 @@
 # Missa Mercuria
 
-Дискография
-"Missa Mercuria" 2002, Progressive
+Progressive Rock Opera
+
+## Дискография
+
+### "Missa Mercuria" 2002, Progressive
+
+1. Earth's Destruction
+2. Requiem mortale
+3. Devine Spark (Firegod)
+4. Whisper of the soul (Watergoddess)
+5. Mother Earth (Earth) 
+6. Spirit of Wisdom (Airgod)
+7. Illusion of time
+8. Missa Mercuria
+9. Fairytale of truth
+10. Farewell for Love's sake
+11. Departure to Fear
+12. Strange Desert Walk
+13. Bursting Ego
+14. Down to hell
+15. Rectificando
+16. New Eon arises 
+
+
+
+Story and all rights by Karin Forstner, Mercuria Media Enterprises.
+Produced and engineered by Dennis Ward (Angra, Pink Cream 69, Vanden Plas, D.C. Cooper) at the House of Audio Studios in Karlsdorf/Germany.
+Mixed by Achim Kohler (Primal Fear, Silent Force, Sinner) at the House of Music Studios in Winterbach/Germany.
+Production management by Bottom Row Promotion, Karlsruhe
+
+Songwriting
+All lyrics: D.C. Cooper (SILENT FORCE)
+Music: Gunter Werno (VANDEN PLAS)
+Stephan Lill (VANDEN PLAS)
+Alex Beyrodt (SILENT FORCE)
+Alfred Koffler (PINK CREAM 69)
+
+Recordings 
+Drums: Andreas Lill (VANDEN PLAS)
+Bass: Dennis Ward (PINK CREAM 69)
+Guitars: Stephan Lill (VANDEN PLAS)
+Alfred Koffler (PINK CREAM 69)
+Alex Beyrodt (SILENT FORCE)
+Keyboards: Gunter Werno (VANDEN PLAS)
+Percussion: Pedro Weiss (Session Percussionist)
+
+Vocalists and their characters
+D.C. Cooper: Firegod (SILENT FORCE)
+Sabine Edelsbacher: Watergoddess (EDENBRIDGE)
+Lori Williams: Earthgoddess (Black Session Soul singer)
+Andy Kuntz: Airgod (VANDEN PLAS)
+Isolde Grob: Mercuria (Classical Opera singer, soprano)
+David Readman: Narrator (PINK CREAM 69)
+
+CD cover & Webdesign
+Sandro Klopfstein
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,10 +1,56 @@
 # Magog
 
-Дискография
-"Magog" 2001, Black Metal
-"Weisheit und Ahnenkult " 2003, Black Metal
-"Artglauben" 2004, Black Metal
-"Unholy German Black Metal [Compilation]" 2005, Black Metal
+
+
+## Дискография
+
+### "Magog" 2001, Black Metal
+
+1. Unholy German Black Metal 06:24
+2. Feuer Der Dunkelheit 09:28
+3. Konig Aus Frankenland 02:35
+4. Des Kriegers Zorn 06:03
+5. Orlag 03:29
+6. Todesweihe 06:12 
+
+### "Weisheit und Ahnenkult " 2003, Black Metal
+
+1. Unbekehrbar 05:04  
+2. Freier Glaube 03:07
+3. Der Gesalbte 03:33  
+4. Traum der Wirklichkeit 03:52
+5. Die alten Feuer von Mittgart 04:26  
+6. V.O.D. 03:11  
+7. Ran an den Pfaff ! 03:12 
+8. Wehklagen 00:47 
+9. Seelenschmerz 04:32  
+10. Kraft Sonne Macht Licht 04:37 
+
+### "Artglauben" 2004, Black Metal
+
+1. Racheschwur I 02:53  
+2. Welt in Aufruhr 05:55  
+3. Verdun 782 05:04  
+4. Magog 05:17  
+5. Lebe, kдmpfe, tцte, siege 04:14  
+6. Racheschwur II 04:05  
+7. Lebe deine Wut 02:34  
+8. Ende 01:56 
+
+### "Unholy German Black Metal [Compilation]" 2005, Black Metal
+
+1. Unholy German Black Metal 06:24  
+2. Feuer der Dunkelheit 09:28  
+3. Kцnig aus Frankenland 02:35  
+4. Des Kriegers Zorn 06:03  
+5. Orlog 03:29  
+6. Todesweihe 06:12  
+7. Kдmpfer der Meere 02:41  
+8. Magog 06:11  
+9. Hel 03:11  
+10. Die Pest 04:55  
+11. Wolfsauge 07:37 
+
 
 ## Отношения с другими группами
 

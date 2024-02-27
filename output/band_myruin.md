@@ -1,9 +1,49 @@
 # My Ruin
 
-Дискография
-"Blasphemous Girl (Compilation)" 2002, Alternative
-"The Shape of Things to Come (EP)" 2003, Alternative
-"The Horror Of Beauty" 2003, Alternative
+Grunge-hardcore-alternative-industrial
+
+## Дискография
+
+### "Blasphemous Girl (Compilation)" 2002, Alternative
+
+1. Rockstar
+2. Blasphemous Girl
+3. Stoopid
+4. Terror
+5. Sycophant
+6. Beauty Fiend
+7. Horrible Pain (within my heart)
+8. My War
+9. Masochrist
+10. Tainted Love
+
+### "The Shape of Things to Come (EP)" 2003, Alternative
+
+
+
+### "The Horror Of Beauty" 2003, Alternative
+
+01. Stage Fright 
+02. Made To Measure 
+03. American Psycho 
+04. Spitfire 
+05. Burn The Witch 
+06. Radio Silence 
+07. Hot In The House Of God 
+08. Nazimova 
+09. Stinkface 
+10. Weightless 
+11. Bravenet 
+12. Ten Minutes To Hollywood 
+13. Get Pretty 
+14. Rid Of Me 
+
+Line-Up: 
+Tairrie B. - vocals 
+Meghan Mattox - bass 
+Mick Murphy - guitar 
+Yael - drums
+
 
 ## Отношения с другими группами
 

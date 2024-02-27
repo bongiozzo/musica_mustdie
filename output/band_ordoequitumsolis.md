@@ -1,8 +1,57 @@
 # Ordo Equitum Solis
 
-Дискография
-"Hecate" 1995, Gothic
-"O.E.S." 1995, Gothic
+
+
+## Дискография
+
+### "Hecate" 1995, Gothic
+
+1. La Flamme Perdue
+2. The Secret Hope Of F.
+3. Desiderio
+4. Canto Alla Vita
+5. Argentea Imago
+6. Les Nuits De I'Ame
+7. The Haughtiness Of F.
+8. The Mercury
+9. A Reflection
+10.The Springs And The Stone
+[11].The Cross Roads
+[12].Retour A La Mer
+
+[11],[12] на стороне B
+
+All Songs Written By ORDO 
+EQUITUM SOLIS.
+Recorded At AcquaViva Studio.
+Mixed By Pietro Mantovani.
+Additional Programming By Pietro 
+Mantovani.
+
+(P)&(C) 1995 MUSICA MAXIMA 
+MAGNETICA
+
+### "O.E.S." 1995, Gothic
+
+1. Volontees
+2. Dialogo Su Falsi Pentimenti
+3. Playing With Fire
+4. Stars And Misery
+5. The Road To Babylon
+6. Trivia
+7. Normanno - L
+
+ Leithana - Vocals,Keyboards,Piano
+ Deraclamo - Guitars, Vocals, Percussion
+ Tony Wakeford - Bass
+
+All Music And Lyrics By O.E.S.
+Recorded At Pietro Montovani's Studio.
+Remixed By Colin Plotter.
+
+(p) 1993 MUSICA MAXIMA MAGNETICA
+(c) 1995 MUSICA MAXIMA MAGNETICA
+
 
 ## Отношения с другими группами
 

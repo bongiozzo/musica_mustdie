@@ -1,9 +1,47 @@
 # Andre Andersen
 
-Дискография
-"Changing Skin" 1999, Progressive
-"Black On Black" 2002, Progressive
-"Ocean View" 2004, Instrumental
+(Royal Hunt leader)
+
+## Дискография
+
+### "Changing Skin" 1999, Progressive
+
+   1.   Changing Skin (Andersen) - 9:05 
+   2.   Burning Bridges (Andersen) - 8:22 
+   3.   1000 Miles (Andersen) - 5:14 
+   4.   Never Look Back (Andersen) - 6:22 
+   5.   In My Arms (Andersen) - 7:54 
+   6.   Wings of Tomorrow (Andersen) - 9:17 
+   7.   In the Late Hour [*] (Andersen) - 5:53 
+   8.   Crying in the Rain [*] (Andersen) - 4:32 
+   9.   In My Arms [*] (Andersen) - 4:03 
+
+
+Jan Eliasson  -  Mastering 
+Lars Overgard  -  Mixing 
+Andre Andersen  -  Producer, Mixing 
+Peter Willersted  -  Photography 
+
+
+
+### "Black On Black" 2002, Progressive
+
+01. Coming Home
+02. Tell Me Why
+03. Arena
+04. Desperate Times
+05. Life
+06. Black On Black
+07. Eclipse
+08. Sail Away
+09. Piece Of My Heart
+
+
+
+### "Ocean View" 2004, Instrumental
+
+
+
 
 ## Отношения с другими группами
 

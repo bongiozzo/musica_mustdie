@@ -1,7 +1,45 @@
 # Repentance
 
-Дискография
-"Black Sunday Morning" 2006, Gothic
+
+
+## Дискография
+
+### "Black Sunday Morning" 2006, Gothic
+
+1. The Darkest Hour 1:09  
+2. Feed My Hate 4:09   
+3. Won't Fit Your Heaven 4:42   
+4. Choose Or Loose 3:42  
+5. Cold Denial 3:38  
+6. In Betray 4:51  
+7. Fallen 5:39  
+8. Remembrance 1:02  
+9. Hollow Days 4:04  
+10. Velvet Dream 4:22  
+11. I Have Gone 4:30  
+12. Killing Time 4:55  
+
+
+Vlad Smirnoff - vocals & lyrics 
+Konstantin Alexandroff - lead guitar & music 
+Igor Korolev - rhythm guitar 
+Konstantin "Martyr" Rudenko - bass guitar 
+Victor Konovalov - drums
+
+Recorded by Igor Korolev & Konstantin Alexandroff 
+
+Mixed & mastered by Ivan Krasnov 
+
+All music by Konstantin Alexandroff 
+(except for Velvet Dream by Vladislav Smirnoff/Konstantin Alexandroff and Cold Denial by Igor Korolev) 
+
+All lyrics by Vladislav Smirnoff 
+
+Female vocals in "I Have Gone" performed by Ksenia Markevich 
+
+Designed by Konstantin Alexandroff 
+Band photography by Katrina "Wagner" Grekof
+
 
 ## Отношения с другими группами
 

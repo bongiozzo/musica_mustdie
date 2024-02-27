@@ -1,13 +1,163 @@
 # Arachnes
 
-Дискография
-"THE GODDESS TEMPLE" 1998, Power Metal
-"THE ROCK" 1998, Instrumental
-"METAMORPHOSIS" 2000, Power Metal
-"PARALLEL WORLDS" 2001, Power Metal
-"THE GODDESS TEMPLE (REM. VERSION + BONUS TRACK)" 2001, Power Metal
-"Apocalypse" 2002, Progressive
-"Primary Fear" 2003, Power Metal
+Italian Prog-power-metal
+
+## Дискография
+
+### "THE GODDESS TEMPLE" 1998, Power Metal
+
+BLACK RAIN 
+THE KING 
+THE FOUR ELEMENTS
+     FIRE
+     EARTH 
+     WIND 
+     WATER 
+SHUT THE DOOR 
+FIRST OF ALL
+AGAINST MY HEART
+SOMETIME
+WITH MY FREEDOM
+COLOURED WORLD
+THE BARBER OF SEVILLE 
+
+
+Franco Caruso - guitar and backing vocals 
+Enzo Caruso - lead vocal, keyboards & piano 
+Paolo Casalini - Bass 
+Graziano Rampazzo - Drums
+
+
+### "THE ROCK" 1998, Instrumental
+
+This is a special instrumental version of  "The goddess Temple" for television and broadcasting session.
+
+
+### "METAMORPHOSIS" 2000, Power Metal
+
+ARACHNE
+LADY DEATH
+OPEN YOUR EYES
+FIRST OF ALL (unplugged) 
+
+
+Franco Caruso - guitar and backing vocals 
+Enzo Caruso - lead vocal, keyboards & piano 
+Paolo Casalini - Bass 
+Graziano Rampazzo - Drums
+
+
+
+### "PARALLEL WORLDS" 2001, Power Metal
+
+PRELUDE
+ARACHNE
+NARROW ROAD
+LOBOTOMY
+LOVELESS
+RUNNING NOW
+TEARS
+DECLARATION OF WAR
+WAR
+SUITE IN A MINOR
+      VIVACE
+      MODERATO
+      ADAGIO
+DANGER OF DEATH
+SHEET STEEL
+PARALLEL WORLDS (ouverture)
+PARALLEL WORLDS
+
+
+Franco Caruso - guitar and backing vocals 
+Enzo Caruso - lead vocal, keyboards & piano 
+Max Clementi - Bass 
+Jaco- Drums
+
+
+### "THE GODDESS TEMPLE (REM. VERSION + BONUS TRACK)" 2001, Power Metal
+
+THE DREAMER 
+DECLARATION OF WAR 
+WAR 
+FLASH OF THE BLADE (IRON MAIDEN) 
+BLACK RAIN
+AGAINST MY HEART
+OPEN YOUR EYES
+ SHUT THE DOOR
+THE FOUR ELEMENTS
+          FIRE
+          EARTH
+          AIR
+         WATER
+FIRST OF ALL
+THE KING
+THE BARBER OF SEVILLE 
+
+
+Franco Caruso - guitar and backing vocals 
+Enzo Caruso - lead vocal, keyboards & piano 
+Max Clementi/Paola Casalini - Bass 
+Jaco/Graziano Rampazzo - Drums
+
+
+### "Apocalypse" 2002, Progressive
+
+THE CONCEPT OF TIME AND SPACE
+
+DECISIVE BATTLE
+
+APOCALYPSE
+
+PRAYER (part I)
+
+PRAYER (part 2)
+
+MY DESTINY
+
+A NEW BREATHING
+
+DECISIVE BATTLE (reprise)
+
+TANGO
+
+THE RAIN SONG
+
+FOREVER
+
+THE BLADE OF MY BRAIN
+
+THE DREAMER
+
+THE POWER OF GOD
+
+REALM OF SPRITS 
+
+### "Primary Fear" 2003, Power Metal
+
+1- Osonzes
+2 - Battle To The Victory
+3 - Primary Fear
+4 - The Warning
+5 - Still Waters
+6 - Thriller
+7 - To Escape Death
+8 - Not Fair (prelude)
+9 - Not Fair
+10 - Tota Pulchra
+11 - My Old Refuge
+12 - My Son and I
+13 - Running In The Labyrinth
+14 - Eruption
+15 - Scherzo in E Minor
+
+
+
+Franco Caruso - guitar and backing vocals, some bass 
+Enzo Caruso - lead vocal, keyboards & piano 
+Paolo Giani - Bass 
+Jaco - Drums
+
 
 ## Отношения с другими группами
 

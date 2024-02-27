@@ -1,12 +1,91 @@
 # Bullet For My Valentine
 
-Дискография
-"The Poison" 2005, Metalcore
-"Scream Aim Fire" 2008, Metalcore
-"Fever " 2010, Metalcore
-"Temper Temper (single)" 2012, Metalcore
-"Temper Temper" 2013, Heavy Metal
-"Venom" 2015, Metalcore
+
+
+## Дискография
+
+### "The Poison" 2005, Metalcore
+
+1. Intro
+2. Her Voice Resides
+3. 4 Words
+4. Tears Don't Fall
+5. Suffocating Under The Words Of Sorrow (What Can I Do)
+6. Hit The Floor
+7. All These Things I Hate (Revolve Around Me)
+8. Room 409
+9. The Poison
+10. 10 Years Today
+11. Cries In Vain
+12. Spit You Out
+13. The End
+
+### "Scream Aim Fire" 2008, Metalcore
+
+1. Scream Aim Fire
+2. Eye Of The Storm
+3. Hearts Burst Into Fire
+4. Waking The Demon
+5. Disappear
+6. Deliver Us From Evil
+7. Take It Out On Me
+8. Say Goodbye
+9. End Of Days
+10. Last To Know
+11. Forever And Always
+Bonuses:
+12. Ashes Of The Innocent 
+13. No Easy Way Out 
+
+### "Fever " 2010, Metalcore
+
+1. Your Betrayal 4:52 
+2. Fever 3:56 
+3. The Last Fight 4:17 
+4. A Place Where You Belong 5:06 
+5. Pleasure and Pain 3:52 
+6. Alone 5:55 
+7. Breaking Out Breaking Down 4:03 
+8. Bittersweet Memories 5:07 
+9. Dignity 4:27 
+10. Begging For Mercy 3:55 
+11. Pretty On The Outside 3:54
+12.The Last Fight(Piano Version) 4:38
+
+
+### "Temper Temper (single)" 2012, Metalcore
+
+1. Temper Temper 03:07
+
+### "Temper Temper" 2013, Heavy Metal
+
+1. Breaking Point 3:42 
+2. Truth Hurts 3:36 
+3. Temper Temper 3:13 
+4. P.O.W. 3:53 
+5. Dirty Little Secret 4:55 
+6. Leech 3:59 
+7. Dead to the World 5:15 
+8. Riot 2:49 
+9. Saints & Sinners 3:29 
+10. Tears Don't Fall (Part 2) 5:38 
+11. Livin' Life (On the Edge of a Knife) 4:02 
+
+
+### "Venom" 2015, Metalcore
+
+01. V
+02. No Way Out
+03. Army Of Noise
+04. Worthless
+05. You Want a Battle? (Here's a War)
+06. Broken
+07. Venom
+08. The Harder the Heart (The Harder It Breaks)
+09. Skin
+10. Hell or High Water
+11. Pariah
+
 
 ## Отношения с другими группами
 

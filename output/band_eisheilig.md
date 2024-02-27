@@ -1,10 +1,73 @@
 # Eisheilig
 
-Дискография
-"Eisheilig" 2001, Gothic
-"Die Garten Des Herrn" 2003, Gothic
-"Elysium" 2006, Gothic
-"Auf Dem Weg In Deine Welt" 2007, Gothic
+
+
+## Дискография
+
+### "Eisheilig" 2001, Gothic
+
+
+
+### "Die Garten Des Herrn" 2003, Gothic
+
+01. Wahntrieb
+02. Mein Land
+03. Die Kraft
+04. Hoch Auf
+05. Tief Begraben
+06. Die Sonne Uber Uns
+07. Uber Tausend Sternen
+08. Flieg
+09. Es Kommt Der Tag
+10. Nebelreich
+11. Nordtal
+
+Dennis Mikus - vocals
+Dominik Sapia - drums
+Niklas Peternek - bass
+Till Maiwald - guitar
+
+Recorded & Produced at Tonstudio Mohrmann by
+Henrich Mikus, Dennis Mikus & Detti Mohrmann
+(Bochum. August/September 2003)
+Engineered by Oliver Zulch
+Mastered by Detti Mohrmann & Henrich Mikus
+Photography - studio and PR: Kerstin Schomers,
+landscape: Anja Keli
+Layout - zuckerpixel.com
+
+### "Elysium" 2006, Gothic
+
+1. Sturm 03:51  
+2. Elysium 04:06  
+3. Lucifer 05:46  
+4. Dein Traum 04:18  
+5. Flug der Mцwen 03:19  
+6. Fдhrmann 04:52  
+7. Kцnig der Planeten 03:55  
+8. Mдrchenreich 03:53  
+9. Schrei 04:51  
+10. Morgenrot (Instrumental) 01:29
+
+### "Auf Dem Weg In Deine Welt" 2007, Gothic
+
+1. Wir leben   
+2. Dein Stern   
+3. Auf dem Weg in Deine Welt   
+4. Steht auf!   
+5. Die dunkelste Stunde   
+6. Ich halte Dich   
+7. Gold   
+8. Kein Land in Sicht   
+9. Wird alles gut   
+10. Geh durchs Feuer 
+
+
+Dennis Mikus - Vocals
+Till Maiwald - Guitar
+Markus Vogler - Bass
+Dominik Sapia - Drums
+
 
 ## Отношения с другими группами
 

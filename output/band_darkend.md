@@ -1,8 +1,38 @@
 # Dark End
 
-Дискография
-"Damned Woman and a Carcass" 2006, Black Metal
-"Assassine" 2010, Black Metal
+
+
+## Дискография
+
+### "Damned Woman and a Carcass" 2006, Black Metal
+
+1. Asking for Perfidious Poison (intro)	 
+2. Vampire
+3. Sed Non Satiata
+4. Destruction
+5. Damned Women
+6. De Profundis Clamavi
+7. A Carcass
+8. Obsession
+9. Terrible Pleasures and Frightful Sweetness (interlude)	 
+10. The Two Good Sisters
+11. The Dancing Serpent
+12. Love Will Tears Us Apart (Joy Division Cover)
+
+### "Assassine" 2010, Black Metal
+
+1. Tenebrae I	 
+2. Mater Terribilis
+3. A Bizarre Alchemical Practice
+4. Poisoned Lips Of Lust
+5. Bounded, Sisters By Solitude
+6. Tenebrae II	 
+7. Two Faced Beast
+8. Her Majesty Ogress
+9. The Thorns, The Pain, The Horror
+10. Perinde Ac Cadaver
+11. Tenebrae III
+
 
 ## Отношения с другими группами
 

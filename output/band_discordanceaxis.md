@@ -1,6 +1,9 @@
 # Discordance Axis
 
-Дискография
+math grindcore from New York, now R.I.P.
+
+## Дискография
+
 
 ## Отношения с другими группами
 

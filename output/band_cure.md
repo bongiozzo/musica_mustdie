@@ -1,8 +1,43 @@
 # Cure
 
-Дискография
-"Boy's Don't Cry" 1979, Alternative
-"Three Imaginery Boys" 1979, Alternative
+
+
+## Дискография
+
+### "Boy's Don't Cry" 1979, Alternative
+
+1.  Boy's Don't Cry
+2.  Plastic Passion
+3.  10.15 Saturday Night
+4.  Accuracy
+5.  So What
+6.  Jumping Someone Else's Train
+7.  Subway Song
+8.  Killing An Arab
+9.  Fire In Cairo
+10.  Another Day
+11.  Grinding Halt
+12.  Three Imaginery Boys
+
+(P)c 1979
+
+### "Three Imaginery Boys" 1979, Alternative
+
+1.  10.15 Saturday Night
+2.  Accuracy
+3.  Grinding Halt 
+4.  Another Day
+5.  Object
+6.  Subway Song
+7.  Foxy Lady
+8.  Meat Hook
+9.  So What
+10.  Fire In Cairo
+11.  It's Not You
+12.  Three Imaginery Boys
+
+(P)c 1979
+
 
 ## Отношения с другими группами
 

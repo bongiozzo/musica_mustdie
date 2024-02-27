@@ -1,10 +1,81 @@
 # Desultory
 
-Дискография
-"Into Eternity" 1993, Death Metal
-"Cold Bitterness" 1994, Death Metal
-"Swallow The Snake" 1996, Death Metal
-"Counting Our Scars" 1996, Death Metal
+Brutal Sweden Band
+
+## Дискография
+
+### "Into Eternity" 1993, Death Metal
+
+1. Into Eternity
+2. Depression
+3. Tears
+4. The Chill Within
+5. Visions
+6. Twisted Emotions
+7. Forever Gone
+8. Passed Away
+9. Asleep
+
+ Klas Morberg - Vocals & Guitar
+ Stefan Poge - Lead Guitar
+ Hakan Morberg - Bass
+ Thomas Johnson - Drums
+
+All Music Written By DESULTORY.
+All Lyrics Written By K.Morberg & H.Morberg .
+Produced & Engineered By Thomas Skogsberg & DESULTORY.
+Recorded At Sunlight Studio,August 1992.
+
+(p)&(c) 1993 METAL BLADE Records
+
+### "Cold Bitterness" 1994, Death Metal
+
+
+
+### "Swallow The Snake" 1996, Death Metal
+
+1.  Moshroom Smile
+2.  The Bitter Man
+3.  Before Today, Beyond Tomorrow
+4.  Swallow The Snake
+5.  In My Veins
+6.  Blizzard In My Blood
+7.  Zone Traveller
+8.  Beneath
+9.  King Of The Valley And The Western Sky
+10.Nothing Dies
+11.Silent Suffering
+
+Klas Morberg - Vocals & Guitar
+Hakan Morberg - Bass, Guitars, Vocals
+Thomas Johnson - Drums & Vocals
+
+All Music Written By DESULTORY.
+All Lyrics Written By K.Morberg & H.Morberg .
+Produced & Engineered By Fred Estby, Thomas Skogsberg & DESULTORY.
+Recorded & Mixed At New Sunlight Studio.
+Mastered By Eddy Schreyer In Oasis Mastering.
+Cover Artwork By Jonas Clefstrom.
+
+(p)(c) 1996 METAL BLADE Records
+
+### "Counting Our Scars" 1996, Death Metal
+
+1. In a Cage 05:38  
+2. Counting Our Scars 04:17  
+3. Ready to Bleed 04:08  
+4. This Broken Halo 04:49  
+5. The Moment Is Gone 05:51  
+6. Uneven Numbers 03:30  
+7. Dead Ends 04:57  
+8. Leeching Life 04:27  
+9. A Crippling Heritage 03:58 
+
+
+Produced, recorded, mixed, and mastered by Tore Stjerna at Necromorbus Studio,
+Stockholm, Sweden.
+
+
 
 ## Отношения с другими группами
 

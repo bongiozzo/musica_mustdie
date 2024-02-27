@@ -1,10 +1,74 @@
 # Crimson Glory
 
-Дискография
-"Crimson Glory" 1987, Heavy Metal
-"Trancendence" 1988, Heavy Metal
-"Strange And Beautiful" 1991, Heavy Metal
-"Astronomica" 1999, Heavy Metal
+
+
+## Дискография
+
+### "Crimson Glory" 1987, Heavy Metal
+
+1.  Valhalla
+2.  Dragon Lady
+3.  Heart Of Steel
+4.  Azrael
+5.  Mayday
+6.  Queen Of The Masquerade
+7.  Angels Of War
+8.  Lost Reflection
+
+Midnight - Vocals
+Ben Jacson - Rhythm Guitars
+Jon Drenning - Lead Guitar
+Dana Burnell - Drums
+Jeff Lords - Bass
+
+(P)c 1987
+
+### "Trancendence" 1988, Heavy Metal
+
+1.  Lady Of Winter
+2.  Red Sharks
+3.  Painted Skies
+4.  Masque Of The Red Death
+5.  In Dark Places
+6.  Where Dragons Rule
+7.  Lonely
+8.  Burning Brides
+9.  Eternal World
+10.  Trancendence
+
+Midnight - Vocals
+Ben Jacson - Rhythm Guitars
+Jon Drenning - Lead Guitar
+Dana Burnell - Drums
+Jeff Lords - Bass
+
+(P)c 1988
+
+### "Strange And Beautiful" 1991, Heavy Metal
+
+1.  Strange And Beautiful
+2.  Promise Land
+3.  Love And Dreams
+4.  The Chant
+5.  Dance Of Fire
+6.  Song For Angels
+7.  In The Mood
+8.  Star Chamber
+9.  Deep Inside Your Heart
+10.  Make You Love Me
+11.  Far Away
+
+Midnight - Vocals
+Jon Drenning - Lead Guitar
+Ravi Jakhotia - Drums
+Jeff Lords - Bass
+
+(P)c 1991
+
+### "Astronomica" 1999, Heavy Metal
+
+
+
 
 ## Отношения с другими группами
 

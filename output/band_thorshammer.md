@@ -1,10 +1,52 @@
 # Thor's Hammer
 
-Дискография
-"Fidelity Shall Triumph" 1997, Black Metal
-"May the Hammer Smash the Cross" 2000, Black Metal
-"The Fate Worse Than Death " 2002, Black Metal
-"Three Weeds from the Same Root" 2004, Black Metal
+
+
+## Дискография
+
+### "Fidelity Shall Triumph" 1997, Black Metal
+
+1. Fidelity Shall Triumph 03:18
+2. Don't Let Your Folk Forget 07:38
+3. Atheosophia 06:43
+4. Nine Steps To Eternity 04:43
+5. Apothetai! 04:09
+6. Nothing But Hate 05:52
+7. Surtr Fur Sunnam 05:04 
+
+### "May the Hammer Smash the Cross" 2000, Black Metal
+
+1. Intro 04:14  
+2. May the Hammer Smash the Cross 04:34 
+3. ...In Our Hands Alone 03:23
+4. The(ir) Modern Freedom 04:15
+5. When the Weak Ones Ask for Help 04:12
+6. Might is Right 04:02  
+7. All We Need Is War 08:12
+8. Gates of Heaven (Exclusive Hooligan's Version) (Absurd cover) 01:43 
+
+### "The Fate Worse Than Death " 2002, Black Metal
+
+1. Fuck Off and Die 02:29
+2. When the Towers Fall 03:31
+3. Young Blood 03:38
+4. Grand Isolation 03:55
+5. Endless War 04:08
+6. The Fate Worse Than Death 12:01 
+7. Outro 02:25 
+
+### "Three Weeds from the Same Root" 2004, Black Metal
+
+1. Three Weeds from the Same Root 02:14 
+2. The Law of the Wave 06:44 
+3. J. Ch. 03:34  
+4. Egality Hurts Pride 06:03
+5. The Blind Searchers 11:52 
+6. Via Cruces - 11th Station 02:46  
+7. Serpents Bite Their Allies 03:28
+8. Organized Illusion 03:22
+9. The Day Has Come 03:04 
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,24 @@
 # Earthcorpse
 
-Дискография
-"Born Bleeding" 1996, Death Doom
-"The Taste Of Sin" 1999, Death Doom
+
+
+## Дискография
+
+### "Born Bleeding" 1996, Death Doom
+
+1.  Shine
+2.  On Darkener Shores
+3.  Something More
+4.  Lifeless
+5.  Born Bleeding
+6.  Earthen
+
+(P)c 1996 SHIVER Records //SHR 014
+
+### "The Taste Of Sin" 1999, Death Doom
+
+
+
 
 ## Отношения с другими группами
 

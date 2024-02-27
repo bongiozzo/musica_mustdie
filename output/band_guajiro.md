@@ -1,7 +1,13 @@
 # Guajiro
 
-Дискография
-"Material Subversivo" 2007, Punk
+
+
+## Дискография
+
+### "Material Subversivo" 2007, Punk
+
+
+
 
 ## Отношения с другими группами
 

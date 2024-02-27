@@ -1,7 +1,23 @@
 # Gloryhammer
 
-Дискография
-"Tales from the Kingdom of Fife" 2013, Power Metal
+The band was formed by Christopher Bowes, lead singer and keyboardist of Alestorm.
+
+## Дискография
+
+### "Tales from the Kingdom of Fife" 2013, Power Metal
+
+1. Anstruther's Dark Prophecy
+2. The Unicorn Invasion Of Dundee
+3. Angus McFife
+4. Quest for the Hammer Of Glory
+5. Magic Dragon
+6. Silent Tears Of Frozen Princess
+7. Amulet Of Justice
+8. Hail To Crail
+9. Beneath Cowdenbeath
+10. The Epic Rage Of Furious Thunder
+11. Wizards!
+
 
 ## Отношения с другими группами
 

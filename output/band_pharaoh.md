@@ -1,9 +1,72 @@
 # Pharaoh
 
-Дискография
-"After The Fire" 2003, Heavy Metal
-"The Longest Night" 2006, Heavy Metal
-"Be Gone " 2008, Heavy Metal
+heavy-metal from USA
+
+## Дискография
+
+### "After The Fire" 2003, Heavy Metal
+
+01. Unum
+02. After The Fire
+03. Flash Of The Dark
+04. Forever Free
+05. Heart Of The Enemy
+06. Solar Flight
+07. Now Is The Time
+08. Never, Not Again
+09. Slaves
+
+Tim Aymar (vocals)
+Matt Johnsen (guitars)
+Chris Kerns (bass)
+Chris Black (drums)
+
+Produced by Pharaoh
+Executive producer for Cruz Del Sur Music: Enrico
+Lecccese
+Recorded sporadically between June and May 2002
+Engineered by Bill Filer at Audible iMAGES, pORT
+mATILDA, pa
+Vocals engineered by Chris Zenner at Ice House
+Studios, washington, PA
+Second guitar solo in "Solar Flight" by Jim Dofka
+Guitar solo in "Heart Of The Enemy" and second
+guitar solo in "Flash Of The Dark" by Chris Kerns
+Cover art by Jean-Pascal Fournier
+Mastered at New Sin Studio
+
+### "The Longest Night" 2006, Heavy Metal
+
+1. Sunrise 08:04 
+2. I Am the Hammer 03:01 
+3. In the Violet Fire 05:06  
+4. By the Night Sky 08:13  
+5. Endlessly 05:25  
+6. The Longest Night 04:06  
+7. Fighting 05:03  
+8. Like a Ghost 05:16  
+9. Up the Gates 05:18  
+10. Never Run 03:29 
+
+
+Tim Aymar - vocals
+Matt Johnsen - guitars
+Chris Kerns - bass
+Chris Black - drums 
+
+### "Be Gone " 2008, Heavy Metal
+
+1. Speak To Me 04:42  
+2. Dark New Life 05:10  
+3. No Remains 04:40  
+4. Red Honor 05:24  
+5. Buried At Sea 07:03  
+6. Rats And Rope 04:39  
+7. Cover Your Eyes And Pray 05:08  
+8. Telepath 04:37  
+9. Be Gone 05:37 
+
+
 
 ## Отношения с другими группами
 

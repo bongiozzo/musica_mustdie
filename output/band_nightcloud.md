@@ -1,7 +1,35 @@
 # Nightcloud
 
-Дискография
-"Defeated By The Innocents" 2004, Progressive
+
+
+## Дискография
+
+### "Defeated By The Innocents" 2004, Progressive
+
+1. Prologue   
+2. Damned Night   
+3. Homologation World (Pt. 1)
+4. Homologation World (Pt. 2)   
+5. Legacy Of My Heart   
+Defeated By The Innocents:
+6. a) Existential Disease  
+7. b) Guilty Of Intelligence  
+8. c) Conscience
+9. Death
+The Last Light:
+10. a) The Last Light  
+11. b) God And Man  
+12. c) We Live To Survive
+
+Daniele Baglietto -  Lead and Backing Vocals
+Daniele Ferro -  Lead and Rhythm Guitars
+Massimiliano Seghesio -  Lead and Rhythm Guitars
+Simone Piccolini -  Keyboards and Backing Vocals
+Andrea Torello -  Bass Guitars
+Daniele Rauso -  Drums and percussions
+
+Dario Mollo - Additional lead-guitars
+
 
 ## Отношения с другими группами
 

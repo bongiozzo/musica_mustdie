@@ -1,7 +1,30 @@
 # Monolith
 
-Дискография
-"Tales Of The Macabre" 1993, Death Metal
+
+
+## Дискография
+
+### "Tales Of The Macabre" 1993, Death Metal
+
+1. Morbid Curiosity
+2. Sleep With The Dead
+3. Misery
+4. Undead Burial
+5. Devoured From Within
+6. Locked In Horror
+7. Catalogue Of Carnage
+8. Maceration
+
+ Nick Mathews - Vocals
+ Nick Barker - Drums
+ Mark Madisson - Guitar
+ Colin Box - Guitar
+ Carl Brown - Bass
+
+Produced By Elliot Kennedy.
+
+(p)&(c) 1993 VINYL SOLUTION Records
+
 
 ## Отношения с другими группами
 

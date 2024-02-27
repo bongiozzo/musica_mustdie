@@ -1,27 +1,464 @@
 # Slayer
 
-Дискография
-"Show No Mercy" 1983, Speed Metal
-"Nocturnal Spectre - Rehersal [demo]" 1983, Speed Metal
-"Haunting the Chapel [EP]" 1984, Speed Metal
-"Hell Awaits" 1985, Speed Metal
-"Reign in Blood" 1986, Thrash
-"Live Undead [live]" 1987, Thrash
-"South of Heaven" 1988, Thrash
-"Seasons in the Abyss" 1990, Thrash
-"Decade of Aggression [live]" 1991, Thrash
-"Divine Intervention" 1994, Thrash
-"Undisputed Attitude [covers]" 1996, Thrash
-"Diabolus in Musica" 1998, Thrash
-"God Hates Us All" 2001, Thrash
-"Soundtrack to the Apocalypse" 2003, Thrash
-"Cult (single)" 2006, Thrash
-"Christ Illusion" 2006, Thrash
-"Psychopathy Red " 2009, Thrash
-"World Painted Blood" 2009, Thrash
-"Implode (single)" 2014, Thrash
-"When the Stillness Comes (single)" 2015, Thrash
-"Repentless" 2015, Thrash
+The Best, a REAL Thrash Band
+
+## Дискография
+
+### "Show No Mercy" 1983, Speed Metal
+
+1. Evil Has No Boundaries
+2. The Antichrist
+3. Die By The Sword
+4. Fight Till Death
+5. Metal Storm / Face The Slayer
+6. Black Magic
+7. Tormentor
+8. The Final Command
+9. Crionics
+10.Show No Mercy
+
+ Tom Araya - Bass, Vocals
+ Kerry King - Guitar
+ Jeff Hanneman - Guitar
+ Dave Lombardo - Drums
+
+(p)&(c) 1983 DEF JAM Records
+
+### "Nocturnal Spectre - Rehersal [demo]" 1983, Speed Metal
+
+1. Evil Has No Boundries / Aggressive Perfector
+2. The Antichrist
+3. Black Magic / Die By the Sword
+4. Tormentor
+5. Crionics
+6. Final Command
+7. Metal Storm
+8. Fight Til Death
+9. Show No Mercy
+
+### "Haunting the Chapel [EP]" 1984, Speed Metal
+
+1. Chemical Warfare
+2. Captor Of Sin
+3. Haunting The Chapel
+4. Aggressive perfector     
+
+ Tom Araya - Bass, Vocals
+ Kerry King - Guitar
+ Jeff Hanneman - Guitar
+ Dave Lombardo - Drums
+
+(p)&(c) 1983 DEF JAM Records
+
+### "Hell Awaits" 1985, Speed Metal
+
+1. Hell Awaits
+2. Kill Again
+3. At Dawn They Sleep
+4. Praise Of Death
+5. Necrophiliac
+6. Crypts Of Eternity
+7. Hardening Of The Arteries
+
+ Tom Araya - Vocal & Bass
+ Kerry King - Guitar
+ Jeff Hanneman - Guitar
+ Dave Lombardo - Drums
+
+Produced By Brian Slagel & SLAYER
+
+(p)&(c) 1985 ROADRUNNER Productions B.V.
+
+### "Reign in Blood" 1986, Thrash
+
+1. Angel Of Death
+2. Piece By Piece
+3. Necrophobic
+4. Altar Of Sacrifice
+5. Jesus Saves
+6. Criminally Insane
+7. Reborn
+8. Epidemic
+9. Postmortem
+10.Raining Blood
+
+ Tom Araya - Bass, Vocals
+ Kerry King - Guitar
+ Jeff Hanneman - Guitar
+ Dave Lombardo - Drums
+
+(p)&(c) 1986 DEF JAM Records
+
+### "Live Undead [live]" 1987, Thrash
+
+Black magic '84          4.05
+Die by the sword '84     4.02
+Captor of sin '83        3.27
+The Antichrist '84       3.13
+Evil has no
+  boundaries '84         2.58
+Show no mercy '84        3.05
+Agressive perfector '83  2.30
+Chemical warfare '83     6.06
+
+
+### "South of Heaven" 1988, Thrash
+
+1. South Of Heaven
+2. Silent Scream
+3. Live Undead
+4. Behind The Crooked Cross
+5. Mandatory Suicide
+6. Ghosts Of War
+7. Read Between The Lies
+8. Cleanse The Soul
+9. Dessident Aggressor *
+10.Spill The Blood
+
+ Tom Araya - Vocal & Bass
+ Kerry King - Guitar
+ Jeff Hanneman - Guitar
+ Dave Lombardo - Drums
+
+Produced By Rick Rubin & SLAYER.
+Executive Producer Rick Rubin.
+Mixed By Andy Wallace At Newfresh In N.Y.
+Recorded By Bill Freesh,Peter Kelsey,Andy
+Wallace,Steve Ett.Except * By JUDAS PRIEST.
+Recorded At L.A. CA.
+Mastered By Howie Weinberg.
+
+(p)&(c) 1988 DEF JAM Records
+
+### "Seasons in the Abyss" 1990, Thrash
+
+1. War Ensemble
+2. Blood Red
+3. Spirit In Black
+4. Expendable Youth
+5. Dead Skin Mask
+6. Hallowed Point
+7. Skeletons Of Society
+8. Temptation
+9. Born Of Fire
+10.Seasons In The Abyss
+
+ Tom Araya - Vocal & Bass
+ Kerry King - Guitar
+ Jeff Hanneman - Guitar
+ Dave Lombardo - Drums
+
+Produced By Rick Rubin.
+Co-Produced By Andy Wallace & SLAYER.
+Engineered & Mixed By Andy Wallace.
+Assistant Engineers Chris Rich,David Tobocman,
+Allen Abrahamson.
+Recorded At Hit City West,Hollywood Sound & Record Plant.
+Recorded At L.A. CA.
+Mastered By Howie Weinberg At Masterdisk,New York.
+Design Robert Fisher.Illustration Larry Carroll.
+Logo Illustration Dean Fleming.
+
+(p)&(c) 1990 DEF AMERICAN Recording
+
+### "Decade of Aggression [live]" 1991, Thrash
+
+1. Hell Awaits
+2. The Anti-Christ
+3. War Ensemble
+4. South Of Heaven
+5. Raining Blood
+6. Altar Of Sacrifice
+7. Jesus Saves
+8. Dead Skin Mask
+9. Seasons In The Abyss
+10.Mandatory Suicide
+11.Angel Of Death
+12.Hallowed Point
+13.Blood Red
+14.Die By The Sword
+15.Black Magic
+16.Captor Of Sin
+17.Born Of Fire
+18.Postmortem
+19.Spirit In Black
+20.Expendable Youth
+21.Chemical Warfare
+
+ Tom Araya - Bass, Vocals
+ Kerry King - Guitar
+ Jeff Hanneman - Guitar
+ Dave Lombardo - Drums
+
+(p)&(c) 1991 DEF JAM Records
+
+
+### "Divine Intervention" 1994, Thrash
+
+1. Killing Fields
+2. Sex, Murder, Art
+3. Fictional Reality
+4. Ditthead
+5. Divine Intervention
+6. Circle Of Beliefs
+7. SS-3
+8. Serenity In Murder
+9. 213
+10. Mind Control
+
+ Tom Araya - Bass, Vocals
+ Kerry King - Guitar
+ Jeff Hanneman - Guitar
+ Paul Bostaph - Drums
+
+Produced By SLAYER
+
+(p)&(c) 1994 DEF AMERICAN Records 
+
+
+
+### "Undisputed Attitude [covers]" 1996, Thrash
+
+1.  Disintergration / Free Money
+2.  Verbal Abuse / Leeches
+3.  Abolish Government / Superficial Love
+4.  Can't Stand You
+5.  Ddamm
+6.  Guilty Of Being White
+7.  I Hate You
+8.  Filler / I Don't Want To Hear It
+9.  Spiritual Law
+10. Sick Boy
+11. Mr.Freeze
+12. Violent Pacification
+13. Richard Hung Himself
+14. I'm Gonna Be Your God
+15. Gemini
+
+Tom Araya - Bass, Vocals
+Kerry King - Guitar
+Jeff Hanneman - Guitar
+Paul Bostaph - Drums
+
+Produced By Rick Rubin.
+
+(P)c 1996 AMERICAN Recordings
+
+### "Diabolus in Musica" 1998, Thrash
+
+1. Bitter Peace
+2. Death's Head
+3. Stain Of Mind
+4. Overt Enemy
+5. Perversions Of Pain
+6. Love To Hate
+7. Desire
+8. In The Name Of God
+9. Scrum
+10.Screaming From The Sky
+11.Wicked
+12.Point
+
+Tom Araya - Vocals, Bass
+Jeff Hannemann - Guitars
+Kerry King - Guitars
+Paul Bostaph - Drums
+
+Produced by Rick Rubin
+
+(p)(c)1998 The American Recording Company, LLC
+
+### "God Hates Us All" 2001, Thrash
+
+01. Darkness of Christ 1:30 (Jeff)
+02. Disciple 3:37 (Jeff)
+03. God send death 3:46 (Jeff)
+04. New Faith 3:05 (Kerry)
+05. Cast Down 3:28 (Kerry)
+06. Threshold 2:29
+07. Exile 3:57 (Kerry)
+08. Seven Faces 3:42 (Kerry)
+09. Bloodline 3:36 (Jeff/Kerry)
+10. Deviance 3:09 (Jeff)
+11. War Zone 2:46 (Kerry)
+12. Here comes the pain 4:31 (Kerry)
+13. Payback 3:05 (Kerry)
+
+
+Recorded at Location Mastered at Location
+Warehouse Studios Vancouver, Canada Oasis Mastering Studio City, CA
+Producer Engineer Management
+Matt Hyde Dean Maher Rick Sales
+
+
+### "Soundtrack to the Apocalypse" 2003, Thrash
+
+Disc 1:
+
+01. Angel Of Death
+02. Criminally Insane (Remix)
+03. Postmortem
+04. Raining Blood
+05. Aggressive Perfector
+06. South Of Heaven
+07. Silent Scream
+08. Live Undead
+09. Mandatory Suicide
+10. Spill The Blood
+11. War Ensemble
+12. Dead Skin Mask
+13. Hallowed Point
+14. Born Of Fire
+15. Seasons In The Abyss
+16. Hell Awaits
+17. The Antichrist
+18. Chemical Warfare
+
+Disc 2:
+
+01. Sex. Murder. Art.
+02. Dittohead
+03. Divine Intervention
+04. Serenity In Murder
+05. 213
+06. Can't Stand You
+07. D.D.A.M.M.
+08. Gemini
+09. Bitter Peace
+10. Death's Hand
+11. Stain Of Mind
+12. Disciple
+13. God Send Death
+14. New Faith
+15. In-A-Gadda-Da-Vida
+16. Disorder (Feat. Ice-T)
+17. Memories Of Tomorrow
+18. Human Disease
+19. Unguarded Instinct
+20. Wicked
+21. Addict
+22. Scarstruck
+
+Disc 3:
+
+01. Ice Titan (Live in California 3/83)
+02. The Antichrist (Rehearsal In Tom's Garage 12/82)
+03. Fight Till Death (Rehearsal In Tom's Garage 12/82)
+04. Necrophiliac (Live In California, 9/85)
+05. Piece By Piece (Studio Rough Mix/Outtake)
+06. Raining Blood (Live In Canada 11/86)
+07. Angel Of Death (Live In Canada 11/86)
+08. Raining Blood (Jeff Hanneman Home Recordings)
+09. South Of Heaven (Jeff Hannemann Home Recordings)
+10. Seasons In The Abyss (Live In Michigan, 6/91)
+11. Mandatory Suicide (Live In Michigan, 6/91)
+12. Mind Control (Live in Brazil, 1994)
+13. No Remorse (I Wanna Die) (Feat. ATARI TEENAGE RIOT)
+14. Dittohead (Live In California, 5/98)
+15. Sex. Murder. Art. (Live In California, 5/98)
+16. Bloodline (Live In Sweden, 2002)
+17. Payback (Live In Sweden, 2002)
+
+Disc 4 - DVD:
+
+01. Die By The Sword (Live In California, 3/83)
+02. Aggressive Perfector (Live In California, 1983)
+03. Praise Of Death (Live In California, 1984)
+04. Haunting The Chapel (Live In Sweden 5/95)
+05. Necrophobic (Live In New York, 1986)
+06. Reborn (Live In New York, 1986)
+07. Jesus Saves (Live In New York, 1986)
+08. War Ensemble (Live In Michigan, 1991)
+09. South Of Heaven (Live In Michigan, 1991)
+10. Dead Skin Mask (Live In Michigan, 1991)
+11. Gemini (Live In California, 8/96)
+12. Heaviest Band Award - Kerrang! Magazine Award 1996 (SLAYER Home Footage)
+13. EPK For "Diabolus In Musica"
+14. Stain Of Mind (Live In Japan, 7/98)
+15. Bloodline (Live On ESPN, 7/02)
+16. Disciple (Live In France, 7/03)
+17. God Send Death (Live In France, 7/03)
+
+Disc 5: (Deluxe Edition only!)
+
+(Live At The Grove In Anaheim, CA 5/2/02)
+01. Darkness Of Christ
+02. Disciple
+03. War Ensemble
+04. Stain Of Mind
+05. Postmortem
+06. Raining Blood
+07. Hell Awaits
+08. At Dawn They Sleep
+09. Dead Skin Mask
+10. Seasons In The Abyss
+11. Mandatory Suicide
+12. Chemical Warfare
+13. South Of Heaven
+14. Angel Of Death
+
+### "Cult (single)" 2006, Thrash
+
+1. Cult 04:41
+
+### "Christ Illusion" 2006, Thrash
+
+1. Flesh Storm   
+2. Catalyst   
+3. Eyes of the Insane   
+4. Jihad  
+5. Skeleton Christ   
+6. Consfearacy   
+7. Black Serenade   
+8. Catatonic   
+9. Cult  
+10. Supremist
+
+
+Tom Araya: Vocals/ Bass
+Jeff Hanneman: Guitars
+Kerry King: Guitars
+Dave Lombardo: Drums
+
+### "Psychopathy Red " 2009, Thrash
+
+1. Psychopathy Red 02:31 
+
+Tom Araya - Bass & Vocals 
+Jeff Hanneman - Guitar 
+Kerry King - Guitar 
+Dave Lombardo - Drums
+
+### "World Painted Blood" 2009, Thrash
+
+
+
+### "Implode (single)" 2014, Thrash
+
+1. Implode  03:53 
+
+### "When the Stillness Comes (single)" 2015, Thrash
+
+1. When the Stillness Comes  04:17    
+2. Black Magic (Live at Wacken 2014)  03:50  
+
+
+### "Repentless" 2015, Thrash
+
+1. Delusions of Saviour     
+2. Repentless  03:19  
+3. Take Control   
+4. Vices      
+5. Cast the First Stone     
+6. When the Stillness Comes     
+7. Chasing Death    
+8. Implode      
+9. Piano Wire      
+10. Atrocity Vendor      
+11. You Against You    
+12. Pride In Prejudice 
+
+
 
 ## Отношения с другими группами
 

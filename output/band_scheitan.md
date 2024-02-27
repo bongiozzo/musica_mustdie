@@ -1,8 +1,43 @@
 # Scheitan
 
-Дискография
-"Travelling In Ancient Times" 1996, Black Metal
-"Nemesis" 1999, Death Metal
+Ultra-Fast Black Metal  (Ex Gates Of Ishtar + Throne Of Ahaz)
+
+## Дискография
+
+### "Travelling In Ancient Times" 1996, Black Metal
+
+1.  October Journey
+2.  Autumn Departure
+3.  Riding The Icewinds
+4.  December At Fullmoon
+5.  In Battle With Angels
+6.  Leaving The Mortals
+7.  Devastating Heaven
+8.  Portals Of Might
+
+Recorded and Mixed at Lucichrist Studio.
+Engineered by Goran Norlnan.
+Produced by SCHEITAN and Goran Nornlan.
+All music and lyrics by Pierre Tornkvist.
+
+Pierre Tornkvist - Guitars, Vocals, Bass
+Oskar Karlsson - Drums
+
+(P)c 1996 INVASION Records // IR 024
+
+### "Nemesis" 1999, Death Metal
+
+    Fury flow                2.47
+    Psyched                  2.55
+    Black rain               3.02
+    Marionette               2.40
+    Forgive me               3.25
+    A silent hum             6.05
+    Ways                     3.47
+    My jsle                  6.00
+    Emergency                3.15
+
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,20 @@
 # Brimstone
 
-Дискография
-"Carving a Crimson Career" 1999, Melodic Death Metal
+
+
+## Дискография
+
+### "Carving a Crimson Career" 1999, Melodic Death Metal
+
+Breaking The Waves
+Pagan Sons
+Autumn
+Carving A Crimson Career
+King Of My Kind
+Tunes Of Thunder
+Heavy Metal Kid
+Welcome To The Night
+
 
 ## Отношения с другими группами
 

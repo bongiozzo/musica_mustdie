@@ -1,14 +1,105 @@
 # Dark Lunacy
 
-Дискография
-"Silent Storm" 1998, Melodic Death Metal
-"Serenity" 1999, Melodic Death Metal
-"Devoid" 2001, Melodic Death Metal
-"Forget Me Not" 2003, Melodic Death Metal
-"The Diarist" 2006, Melodic Death Metal
-"Weaver Of Forgotten" 2010, Melodic Death Metal
-"The Day of Victory" 2014, Melodic Death Metal
-"The Rain After the Snow" 2016, Melodic Death Metal
+
+
+## Дискография
+
+### "Silent Storm" 1998, Melodic Death Metal
+
+01) From the blacked soul
+02) Tears of light
+03) Time for decay
+04) Scream on the ice
+05) Take my cry
+
+### "Serenity" 1999, Melodic Death Metal
+
+
+
+### "Devoid" 2001, Melodic Death Metal
+
+1.Dolls 
+2.Stalingrad 
+3.Forlorn 
+4.Frozen Memory 
+5.Cold Embrace 
+6.December 
+7.Devoid 
+8.Varen’ Ka 
+9.Time For Decay 
+10.Fall 
+11.Take My Cry 
+
+Mike- vocals 
+Enomys- guitars 
+Baijkal- drums 
+Harpad- bass 
+
+Label: FUEL Records
+
+### "Forget Me Not" 2003, Melodic Death Metal
+
+1. The dirge
+2. Lunacyrcus
+3. Fragile caress
+4. Through the non-time
+5. Defaced
+6. Serenity
+7. My dying pathway
+8. Fiamm
+9. Lacryma
+10. Die to reborn
+11. Forget-me-not
+
+### "The Diarist" 2006, Melodic Death Metal
+
+1. Aurora 04:43  
+2. Play Dead 05:46  
+3. Pulkovo Meridian 06:03  
+4. The Diarist 02:51  
+5. Snowdrifts 05:08  
+6. Now Is Forever 05:33  
+7. On Memory's White Sleigh 07:02  
+8. Heart Of Leningrad 05:51  
+9. Prospekt 02:30  
+10. Motherland 06:01  
+11. The Farewell Song 06:37
+
+### "Weaver Of Forgotten" 2010, Melodic Death Metal
+
+1. Epitaph
+2. Archangel'sk
+3. Curtains
+4. Epiclesis
+5. Masquerade
+6. Afraid
+7. Mood
+8. Sybir
+9. Snow
+10. Forgotten
+11. Weaver
+
+ 
+
+
+### "The Day of Victory" 2014, Melodic Death Metal
+
+
+
+### "The Rain After the Snow" 2016, Melodic Death Metal
+
+1. Ab Umbra Lumen  04:13    
+2. Howl  03:40 
+3. King with No Throne  04:38  
+4. Gold, Rubies and Diamonds  04:27 
+5. Precious Things  04:57  
+6. Tide of My Heart  03:56 
+7. The Rain After the Snow  04:21 
+8. Life Deep in the Lake  05:21   
+9. The Awareness  04:24    
+10. Fragment of a Broken Dream  02:50 
+
+
 
 ## Отношения с другими группами
 

@@ -1,10 +1,88 @@
 # Celesty
 
-Дискография
-"Reign Of Elements" 2002, Power Metal
-"Legacy Of Hate" 2004, Power Metal
-"Mortal Mind Creation" 2006, Power Metal
-"Vendetta" 2009, Power Metal
+(finnish power-metal)
+
+## Дискография
+
+### "Reign Of Elements" 2002, Power Metal
+
+01. Intro
+02. The Charge
+03. Revenge
+04. Sword Of Salvation
+05. Reign Of Elements
+06. Lost In Deliverance
+07. The Sword And The Shield
+08. Battle Of Oblivion
+09. Kingdom
+bonus
+10. Power Of Stones
+
+Kimmo Peramaki – vocals
+J.-P. Alanen – guitar
+Tapani Kangas- guitar
+Ari Katajamaki - bass
+Jere Luokkamaki – drums
+Juha Maenpaa - keyboards
+
+Recorded and mixed by Samu “Ottakaa omenoita”
+Oittinen at Fantom Studios during August 2002.
+Mastered at Finnvox Studios by Mika Jussila.
+Produced by Kangas, Luokkamaki and Oittinen. Solo
+in “Revenge” by Jani Liimatainen. Acoustic guitar
+in “Kingdom” by J.-P. Alanen. Additional backing
+vocals by Kangas, Luokkamaki, Maenpaa and
+Peramaki. Male voice in “Intro” and “Reign Of
+Elements” by Timo Lewis. Female voice in “Reign Of
+Elements” by Princess Tarine. All music by Kangas
+and Luokkamaki. All lyrics by Kangas and
+Luokkamaki. Story by Kangas and Luokkamaki. Cover
+art by Christian Andersson. Logo by J.Baron. Band
+photo by Anssi Hanhimaki. Booklet design by Vision
+Graphics, Kangas and Luokkamaki. Map drawned by
+Tuukka Hurmerinta.
+
+### "Legacy Of Hate" 2004, Power Metal
+
+I. Intro 
+II. Unbreakable 
+III. Dream 
+IV. Breed from the land unknown 
+V. Army of the universe 
+VI. Settlement 
+VII. Shelter 
+VIII. Legacy of hate 
+Part I - Blood of our enemies - Before the sword - Confused thoughts ­ Betrayal
+IX. Legacy of hate 
+Part II - Battlefield - The departure - Ride of Amardon - Ending
+
+### "Mortal Mind Creation" 2006, Power Metal
+
+01. Lord of Mortals
+02. Unreality
+03. Demon Inside
+04. War Creations
+05. Empty Room
+06. Among The Dreams
+07. Back In Time
+08. Arrival
+09. Last Sacrifice
+10. Final Pray (Japanese bonus)
+
+### "Vendetta" 2009, Power Metal
+
+1. Prelude for Vendetta 01:26  
+2. Euphoric Dream 05:02  
+3. Greed & Vanity 04:16  
+4. Like Warriors 04:44  
+5. Autumn Leaves 04:06  
+6. Feared by Dawn 04:53  
+7. Lord (Of This Kingdom) 05:00  
+8. New Sin 05:27  
+9. Dark Emotions 05:16  
+10. Fading Away 03:59  
+11. Legacy of Hate pt.3 14:06 
+
 
 ## Отношения с другими группами
 

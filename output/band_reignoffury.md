@@ -1,9 +1,31 @@
 # Reign Of Fury
 
-Дискография
-"Psycho Intentions (EP)" 2011, Metal
-"World Detonation" 2012, Metal
-"Death Be Thy Shepherd" 2015, Metal
+
+
+## Дискография
+
+### "Psycho Intentions (EP)" 2011, Metal
+
+1. Disconnect 
+2. Psycho Intentions
+3. Blinding Light of Betrayal
+4. Heaven Waits, Hell Takes
+
+### "World Detonation" 2012, Metal
+
+
+
+### "Death Be Thy Shepherd" 2015, Metal
+
+1. Faustian Mastery
+2. Harbinger Of Decay
+3. Hypnotise The Masses
+4. Gates Of Sanity
+5. All Is Lost
+6. The Love Of A Dying God
+7. Sorrow Made Flesh
+8. Death Be Thy Shepherd
+
 
 ## Отношения с другими группами
 

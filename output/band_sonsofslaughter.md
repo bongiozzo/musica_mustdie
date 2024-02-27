@@ -1,7 +1,23 @@
 # Sons Of Slaughter
 
-Дискография
-"The Extermination Strain" 2005, Death Metal
+
+
+## Дискография
+
+### "The Extermination Strain" 2005, Death Metal
+
+1. Intro	 
+2. Lead Us Not	 
+3. Purify Through Sin	 
+4. The Extermination Strain	 
+5. A Just Prevalence	 
+6. Embedded		 
+7. Unmarked Grave	 
+8. Between Two Suns	 
+9. Scattered to the Four Winds	 
+10. Mechanically Maintained	 
+11. Bloodblind
+
 
 ## Отношения с другими группами
 

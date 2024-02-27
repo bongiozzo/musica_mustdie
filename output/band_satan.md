@@ -1,9 +1,21 @@
 # Satan
 
-Дискография
-"Court In The Act" 1983, Metal
-"Suspended Sentence" 1987, Metal
-"Into The Future (EP)" 1987, Metal
+
+
+## Дискография
+
+### "Court In The Act" 1983, Metal
+
+
+
+### "Suspended Sentence" 1987, Metal
+
+
+
+### "Into The Future (EP)" 1987, Metal
+
+
+
 
 ## Отношения с другими группами
 

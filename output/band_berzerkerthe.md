@@ -1,11 +1,41 @@
 # Berzerker, The
 
-Дискография
-"The Berzerker" 2000, Grindcore
-"Dissimulate" 2002, Grindcore
-"World Of Lies" 2005, Grindcore
-"Animosity" 2006, Grindcore
-"Animosity" 2007, Grindcore
+Grindcore
+
+## Дискография
+
+### "The Berzerker" 2000, Grindcore
+
+
+
+### "Dissimulate" 2002, Grindcore
+
+1. Disregard
+2. Failure
+3. The Principles And Practices of Embalming
+4. No One Wins
+5. Death Reveals
+6. Compromise
+7. Betrayal
+8. Last Mistake
+9. Painless
+10. Pure Hatred
+11. Paradox
+12. Abandonment
+14. Corporal Jigsore Quandary
+
+### "World Of Lies" 2005, Grindcore
+
+
+
+### "Animosity" 2006, Grindcore
+
+
+
+### "Animosity" 2007, Grindcore
+
+
+
 
 ## Отношения с другими группами
 

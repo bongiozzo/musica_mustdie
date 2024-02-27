@@ -1,17 +1,242 @@
 # Nirvana
 
-Дискография
-"Bleach" 1989, Grunge
-"Nevermind" 1991, Grunge
-"Incesticide" 1992, Grunge
-"In Utero" 1993, Grunge
-"LIVE" 1993, Grunge
-"Live Vol.I" 1993, Grunge
-"Unplugged In New York" 1994, Grunge
-"Lithium" 1994, Grunge
-"Negative Creep" 1995, Grunge
-"6 Rary Singles" 1996, Grunge
-"From the Muddy Banks Of The Wishkah" 1996, Grunge
+
+
+## Дискография
+
+### "Bleach" 1989, Grunge
+
+1. Blew
+2. Floyd The Barber
+3. About A Girl
+4. School
+5. Love Buzz
+6. Paper Cutz
+7. Negative Creep
+8. Scoff
+9. Swap Meat
+10.Mr.Moustache
+11.Sifting
+12.Big Cheese
+13.Downer
+
+(p)&(c) 1989 GEFFEN Records
+
+### "Nevermind" 1991, Grunge
+
+1. Smells Like Teen Spirit
+2. In Bloom
+3. Come As You Are
+4. Breed
+5. Lithium
+6. Polly
+7. Territorial Pissings
+8. Drain You
+9. Loung Act
+10.Stay Away
+11.On A Plain
+12.Something In The Way
+
+(p)&(c) 1991 GEFFEN Records
+
+### "Incesticide" 1992, Grunge
+
+1. Dive
+2. Sliver
+3. Stain
+4. Been A Son
+5. Turnaround
+6. Molly's Lips
+7. Son Of A Gun
+8. (New Wave) Polly
+9. Beeswax
+10.Downer
+11.Mexcan Seafood
+12.Hairspray Queen
+13.Aero Zeppelin
+14.Big Long Now
+15.Aneurysm
+
+(p)&(c) 1992 GEFFEN Records
+
+### "In Utero" 1993, Grunge
+
+1. Serve The Servants
+2. Scentless Apprentice
+3. Heart-Shaped Box
+4. Rape Me
+5. Frances Farmer Will Have Her Revenge On Seattle
+6. Dumb
+7. Very Ape
+8. Milk It
+9. Pennyroyal Tea
+10.Radio Friendly Unit Shifter
+11.Tourette's
+12.All Apologies
+
+(p)&(c) 1993 GEFFEN Records
+
+### "LIVE" 1993, Grunge
+
+1. Smells Like Teen Spirit
+2. Drain You
+3. Ameurism
+4. School
+5. Floyd The Barber
+6. About A Girl
+7. Polly
+8. Lithium
+9. Silver
+10. Breed
+11. In Bloom
+12. Negative Creep
+13. Plane
+14. Blue
+15. Love Buzz
+16. School
+17. Scoff
+18. Love Buzz
+19. Floyd The Barber
+20. Dive
+21. Polly
+22. Big Cheese
+23. About A Girl
+24. Make It Big
+25. Mr. Moustache
+26. Breed
+27. She Said
+28. Negative Creep
+29. Stain
+30. Blew
+
+Recorded Live At The L.A. Forum & In Amsterdam
+
+(p)&(c) 1993 GEFFEN Records
+
+### "Live Vol.I" 1993, Grunge
+
+1.  Drain You
+2.  Aneurysm
+3.  School
+4.  Smells Like Teen Spirit
+5.  About A Girl
+6.  Polly
+7.  Sliver
+8.  Breed
+9.  Come As You Are
+10.  Lithium
+11.  Get Together (Powers)
+12.  Territorial Pissings
+
+(P)c 1993 GRAPEFRUIT Records
+
+### "Unplugged In New York" 1994, Grunge
+
+1. About A Girl
+2. Come As You Are
+3. Jesus Doesn't Want Me For A Sunbeam
+4. The Man Who Sold The World
+5. Pennyroyal Tea
+6. Dumb
+7. Polly
+8. On A Plam
+9. Something In The Way
+10.Plateau
+11.Oh Me
+12.Lake Of Fire
+13.All Apologies
+14.Where Did You Sleep Last Night
+
+(p)&(c) 1994 GEFFEN Records
+
+### "Lithium" 1994, Grunge
+
+1.  Drain You
+2.  Aneurysm
+3.  School
+4.  Smells Like Teen Spirit
+5.  About A Girl
+6.  Polly
+7.  Sliver
+8.  Breed
+9.  Come As You Are
+10.  Lithium
+
+(P)c 1994 GRAPEFRUIT Records
+
+### "Negative Creep" 1995, Grunge
+
+1.  Get Together (Powers)
+2.  Territorial Pissings
+3.  Been A Son
+4.  Negative Creep
+5.  On A Plain
+6.  Blew
+
+(P)c 1995 GRAPEFRUIT Records
+
+### "6 Rary Singles" 1996, Grunge
+
+"Smells Like Teen Spirit"
+1.  Smells Like Teen Spirit (Edit)
+2.  Even In His Youth (Unreleased)
+3.  Aneurysm (Unreleased)
+
+"Come As You Are"
+1.  Come As You Are (LP Version)
+2.  Endless, Nameless (Unreleased)
+3.  School (Live)
+4.  Drain You (Live)
+
+"In Bloom"
+1.  In Bloom (LP Version)
+2.  Sliver (Live)
+3.  Polly (Live)
+
+"Lithium"
+1.  Lithium (LP Version)
+2.  Been A Son (Live)
+3.  Curmudgeon (Unreleased)
+
+"Heart-Shaped Box"
+1.  Heart-Shaped Box (LP Version)
+2.  Milk It (LP Version)
+3.  Marigold (Unreleased)
+
+"All Apologies - Rape Me"
+1.  All Apologies
+2.  Rape Me
+3.  Moist Vagina (Unreleased)
+4.  Where Did You Sleep Last Night
+
+(P)c 1996 GEFFEN Records
+
+### "From the Muddy Banks Of The Wishkah" 1996, Grunge
+
+1.  Intro
+2.  School
+3.  Drain You
+4.  Aneurysm
+5.  Smells Like Teen Spirit
+6.  Been A Son
+7.  Lithium
+8.  Sliver
+9.  Spank Thru
+10.Scentless Apprentice
+11.Heart-Shaped Box
+12.Milk It
+13.Negative Creep
+14.Polly
+15.Breed
+16.Tourette's 
+17.Blew
+
+Recorded Live In: Amsterdam (Holland), Springfield (USA), Rome (Italia), Seattle (USA), Los Angeles (USA), London (UK) On: December 5, 1989 - January 5, 1994.
+
+Mixed By Andy Wallace.
+
+(P)c 1996 GEFFEN Records
+
 
 ## Отношения с другими группами
 

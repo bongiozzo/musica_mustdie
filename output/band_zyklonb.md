@@ -1,9 +1,41 @@
 # Zyklon-B
 
-Дискография
-"Blood Must Be Shed" 1995, Black Metal
-"Blood Must Be Shed split w/ SWORDMASTER" 1995, Black Metal
-"Total Warfare split w/ MAYHEM" 1999, Black Metal
+Side project of Norwegian black metal fathers -- Frost, Ihsahn, Samoth, Aldrahn
+
+## Дискография
+
+### "Blood Must Be Shed" 1995, Black Metal
+
+1. Mental Orgasm - 2:54
+2. Bloodsoil - 2:25
+3. Warfare - 5:35
+
+Line-up:
+Samoth - Strangulation strings
+Frost - Drums
+Ihsahn - Keyboards
+Aldrahn - Vocal
+
+### "Blood Must Be Shed split w/ SWORDMASTER" 1995, Black Metal
+
+Zyklon-B: 
+- Mental Orgasm
+- Bloodsoil
+- Warfare
+
+Swordmaster: 
+- Wraths Of Time
+- Upom Blood And Ashes...
+- Conspiracy (preview)
+
+### "Total Warfare split w/ MAYHEM" 1999, Black Metal
+
+Zyklon-B: 
+- Total Warfare (Sea Serpent Remix)
+
+Mayhem: 
+- Necrolust (Unreleased Studio Version)
+
 
 ## Отношения с другими группами
 

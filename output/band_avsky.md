@@ -1,9 +1,42 @@
 # Avsky
 
-Дискография
-"Mass Destruction" 2007, Black Metal
-"Malignant" 2008, Black Metal
-"Scorn" 2010, Black Metal
+
+
+## Дискография
+
+### "Mass Destruction" 2007, Black Metal
+
+1. The Plague  04:43    
+2. Vultures  05:02    
+3. Knowledge And Hate  04:
+4. Like A Tumour That Has To Be Removed  04:04 
+5. Mass Destruction  04:30    
+6. Possessed  02:31  
+7. Mushroom Cloud  04:07  
+8. Vermin  02:51   
+9. Until Nothing Remains  09:00 
+
+### "Malignant" 2008, Black Metal
+
+1. Fuck Your Values, Fuck Your Beliefs  07:56 
+2. Cleanse the World  05:30 
+3. The Filth  05:09    
+4. Like Poison  04:30  
+5. False Heavens  08:06 
+6. In Contempt  03:13   
+7. Malignant  08:25   
+8. Loathe  01:46 
+
+### "Scorn" 2010, Black Metal
+
+1. As the Mountains Collapse  09:52    
+2. No Compassion, No Regrets  
+3. Dead End  08:50   
+4. The Beyond  03:16    
+5. Scorn  07:01   
+6. The Sickness Within  09:42 
+7. Wounds (Digital Only Bonus Track)  
+
 
 ## Отношения с другими группами
 

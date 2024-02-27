@@ -1,10 +1,36 @@
 # Diablo Swing Orchestra
 
-Дискография
-"Borderline Hymns (EP)" 2003, Alternative
-"The Butcher's Ballroom" 2006, Alternative
-"Sing-Along Songs For The Damned And Delirious" 2009, Alternative
-"Pandora's Pinata" 2012, Alternative
+
+
+## Дискография
+
+### "Borderline Hymns (EP)" 2003, Alternative
+
+
+
+### "The Butcher's Ballroom" 2006, Alternative
+
+
+
+### "Sing-Along Songs For The Damned And Delirious" 2009, Alternative
+
+
+
+### "Pandora's Pinata" 2012, Alternative
+
+01. Voodoo Mon Amour 04:39 
+02. Guerilla Laments 05:03 
+03. Kevlar Sweethearts 04:32 
+04. How To Organize A Lynch Mob 00:54 
+05. Black Box Messiah 03:02 
+06. Exit Strategy Of A Wrecking Ball 06:11 
+07. Aurora 05:13 
+08. Mass Rapture 06:11 
+09. Honey Trap Aftermath 04:22 
+10. Of Kali Ma Calibre 04:31 
+11. Justice For Saint Mary 08:30
+
+
 
 ## Отношения с другими группами
 

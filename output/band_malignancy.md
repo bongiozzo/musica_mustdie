@@ -1,10 +1,59 @@
 # Malignancy
 
-Дискография
-"Intrauterine Cannibalism" 1999, Deathcore
-"Motivated By Hunger [EP]" 2000, Deathcore
-"Cross Species Transmutation [EP]" 2003, Deathcore
-"Inhuman Grotesqueries" 2007, Deathcore
+
+
+## Дискография
+
+### "Intrauterine Cannibalism" 1999, Deathcore
+
+1. Rotten Seed 03:16
+2. Intrauterine Cannibalism 01:42
+3. Intestinal Sodomy 02:22
+4. Internal Corruption 01:48
+5. Profitable Extinction 02:54 
+6. Ignorance Is Bliss 03:39
+7. Your Life Is Shit 02:28
+8. Oral Excrement 02:17
+9. Waterlogged Corpse 03:29
+10. Cerebral Tissue Extraction 02:29 
+11. Fried Afterbirth 01:44 
+12. Post Fetal Depression 02:19 
+13. Bag 03:20 
+
+### "Motivated By Hunger [EP]" 2000, Deathcore
+
+1. Motivated By Hunger 02:47  
+2. Vaginal Incisors 02:27
+3. Separated Anxiety 03:02
+4. Atmosphere Of Decay 03:07
+5. Cystic Fibrosis 01:48  
+6. Intrauterine Cannibalism (Live) 02:57 
+
+### "Cross Species Transmutation [EP]" 2003, Deathcore
+
+1. Virulent Contagion 02:39
+2. Cross Species Transmutation 02:08
+3. Fibroid Embolism 02:16
+4. Postmortem Perception 01:47
+5. Congenital Decadence 02:04
+6. Mortality Weakness 03:08 
+7. Ovarian Incubation 02:31 
+
+### "Inhuman Grotesqueries" 2007, Deathcore
+
+1. Inhuman Grotesqueries 02:06 
+2. Neglected Rejection 03:11
+3. Indigenous Pathogen 01:19 
+4. Skeletal Integrity 02:22  
+5. Predicated Malformations 02:03  
+6. Protagonist Complacence 03:41  
+7. Embryological Teratomas 01:55  
+8. Benign Reabsorption 02:20  
+9. Organic Machinery 02:58  
+10. Genital Hemangioma 02:00
+11. Xenotransplantation 02:57  
+12. Pathological Imperative 03:49 
+
 
 ## Отношения с другими группами
 

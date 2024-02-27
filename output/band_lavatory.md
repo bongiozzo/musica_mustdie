@@ -1,9 +1,21 @@
 # Lavatory
 
-Дискография
-"Glasshouse Fools" 1989, Crossover
-"To Protect And To Serve" 1993, Crossover
-"Yes It Hurts" 1996, Crossover
+
+
+## Дискография
+
+### "Glasshouse Fools" 1989, Crossover
+
+
+
+### "To Protect And To Serve" 1993, Crossover
+
+
+
+### "Yes It Hurts" 1996, Crossover
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,13 +1,89 @@
 # Stormlord
 
-Дискография
-"Under The Sign Of The Sword" 1997, Death Metal
-"Where My Spirit Forever Shall Be" 1998, Death Metal
-"Supreme Art Of War" 1999, Death Metal
-"At The Gates Of Utopia" 2001, Death Metal
-"The Curse Of Medusa" 2001, Death Metal
-"The Gorgon Cult" 2004, Death Metal
-"Mare Nostrum" 2008, Black Metal
+melodic death-black metal from Italy
+
+## Дискография
+
+### "Under The Sign Of The Sword" 1997, Death Metal
+
+"Under The Sign Of The Sword"
+"Riding The Sunset"
+"The Scarlet Kingdom"
+
+### "Where My Spirit Forever Shall Be" 1998, Death Metal
+
+"Where My Spirit Forever Shall Be"
+"Sir Lorial"
+"War (The Supreme Art)"
+
+### "Supreme Art Of War" 1999, Death Metal
+
+"Where My Spirit Forever Shall Be"
+"A Descent Into The Kingdom Of The Shadesl"
+"Sir Lorial"
+"Age Of The Dragon"
+"Immortal Heroes"
+"War (The Supreme Art)"
+"Of Steel And Ancient Might"
+
+### "At The Gates Of Utopia" 2001, Death Metal
+
+"Under The Samnites' Spears"
+"I Am Legend"
+"Xanadu"
+"...And Winter Was"
+"At The Gates Of Utopia"
+"The Curse Of Medusa" 
+"The Burning Hope"
+"A Sight Inwards"
+"The Secrets Of The Earth"
+
+
+Produced by Giuseppe Orlando (Novembre) in Outer Sound Studios, Rome. 
+
+
+
+### "The Curse Of Medusa" 2001, Death Metal
+
+"The Curse Of Medusa"
+"Under The Samnites' Spears"
+"Dawn Of Winter Solstice"
+"Baphomet (2001 version)"
+"A Descent Into The Kingdom Of The Shades (live)"
+"Creeping Death (Metallica, live)"
+"The Death Of Medusa"
+
+### "The Gorgon Cult" 2004, Death Metal
+
+1. The Torchbearer 
+2. Dance Of Hecate 
+3. Wurdulak 
+4. Under The Boards (195, M.A.) 
+5. Oath Of The Legion 
+6. The Gorgon Cult 
+7. Memories Of Lemuria 
+8. Medusa’s Coil 
+9. Moonchild (IRON MAIDEN cover) 
+10. Nightbreed
+
+### "Mare Nostrum" 2008, Black Metal
+
+1. Mare Nostrum 06:47  
+2. Neon Karma 03:56  
+3. Legacy of the Snake 05:14  
+4. Emet 05:26  
+5. The Castaway 05:04  
+6. Scorn 04:19  
+7. And The Wind Shall Scream My Name 04:43  
+8. Dimension: Hate 04:49  
+9. Stormlord 06:32 
+
+
+The album was recorded at Giuseppe Orlando’s Outer Sound Studios (Necrodeath,
+Novembre, Klimt 1918 and many more) and mastered at Finnvox Studios by the well
+known Finnish engineer Mika Jussila (HIM, Children of Bodom, Nightwish,
+Sentenced etc.)
+
 
 ## Отношения с другими группами
 

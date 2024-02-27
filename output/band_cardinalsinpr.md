@@ -1,7 +1,25 @@
 # Cardinal Sin (PR)
 
-Дискография
-"Resurrection" 2004, Thrash
+Thrash from Puerto-Rico
+
+## Дискография
+
+### "Resurrection" 2004, Thrash
+
+Edge Of Reality
+Against The Waterfall
+Never Enough
+Request To Rest
+Infanticide
+R.G.S.O.T.
+Hell Turns To Ice
+RESH
+Death Of Pee Wee
+Pinnacle Of Ignorance
+The Great Tribulation
+Infanticide
+Scripts Of A Dead Man
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,28 @@
 # Bodysnatch
 
-Дискография
-"Universe of Gory Tales [EP]" 2009, Death Metal
-"Insights of a Rotten Theatre" 2011, Death Metal
+
+
+## Дискография
+
+### "Universe of Gory Tales [EP]" 2009, Death Metal
+
+1. Crypt of Gore	 
+2. In the Chamber of Anger	 
+3. Universe of Gory Tales
+
+### "Insights of a Rotten Theatre" 2011, Death Metal
+
+1. Slaves of Despondency	 
+2. Spectral Repudiation	 
+3. Resurrected Pugnacity Resists All Logic	 
+4. Inception of Malicious Pregnancy	 
+5. Insights of a Rotten Theatre	 
+6. Shotgun Therapy	 
+7. Phobic Disfigurement	 
+8. Clinical Torturement	 
+9. Projections of Hate 
+10. Bleeding Within Mass Schizophrenia (Bonus Track)
+
 
 ## Отношения с другими группами
 

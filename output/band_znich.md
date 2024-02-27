@@ -1,10 +1,61 @@
 # Znich
 
-Дискография
-"Язычнік Я…" 1997, Folk
-"Zapaviety Aposniaha Starca" 2003, Folk
-"Крыжы-Абярэгі" 2007, Folk
-"Мроя" 2011, Folk
+Folk-metal
+
+## Дискография
+
+### "Язычнік Я…" 1997, Folk
+
+1. Вечная далеч
+2. Спаленая цемра	 
+3. Песьня валхваваньня
+4. Больш ня жыць
+5. Чорны Зьніч
+6. Язычнік я…
+7. Кліч багоў
+8. Ваўкалака
+9. Дажбог, о наш Сварог
+10. Outro
+
+### "Zapaviety Aposniaha Starca" 2003, Folk
+
+intro “ЗАПАВЕТ”
+ВЫПРАЎЛЯЛА МАЦI СЫНА 
+НЕ СЯЧЫ, МОЙ ТАТУЛЬКА 
+ШТО ЗА ЎСЕ ТЛУСЦЕЙШАЕ?
+АЙ, ПАСЕЮ КАНАПЕЛЬКI
+КУПАЛА НА ЙВАНА! 
+СЕМ ТЫСЯЧАЎ ТЫСЯЧ
+ВОЛ БУШУЕ
+СIРАЦIНКА
+
+### "Крыжы-Абярэгі" 2007, Folk
+
+1. Kryva-Kryveyta
+2. Kryzhy-Abyaregi
+3. Pad Chornay Vishnyoy
+4. My Syny Vyalikikh Bagou
+5. Oy Dymna Za Dvarom
+6. Tseni
+7. Belarus'
+8. Khay Palyubits'
+9. Chorny Znich
+10. Paganski Vir
+11. Yak Pushchu Stralu
+
+### "Мроя" 2011, Folk
+
+1. Intro	 
+2. Вечнасць	 
+3. Атрута	 
+4. Мроя	 
+5. Ярыла	 
+6. Гэты Лёс	 
+7. Каляда-Калядзец	 
+8. Шлях 
+9. Бог Вайны	 
+10. Outro
+
 
 ## Отношения с другими группами
 

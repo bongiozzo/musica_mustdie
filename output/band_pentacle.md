@@ -1,7 +1,28 @@
 # Pentacle
 
-Дискография
-"The Fifth Moon" 1997, Black Metal
+
+
+## Дискография
+
+### "The Fifth Moon" 1997, Black Metal
+
+1.  Black Heart
+2.  A Serpent In Blood Red
+3.  The Flames Masquerade (Her Sun Is The Moon)
+4.  Adoring An Endless Dawn
+
+Produced by Harry Wijering and PENTACLE.
+Engineered by Harry Wijering.
+Recorded and Mixed at Harrow Prod.
+Band residence: Holland.
+
+Wannes Gubbels - Bass, Vocals
+Edwin Folsche - Guitars
+Marc Nelisseff - Drums
+Mike Verttoeven - Guitars
+
+(P)(C) 1997 DISPLEASED Records // D 00047
+
 
 ## Отношения с другими группами
 

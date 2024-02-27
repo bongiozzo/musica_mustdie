@@ -1,10 +1,67 @@
 # Racer X
 
-Дискография
-"STREET LETHAL" 1986, Instrumental
-"SECOND HEAT" 1987, Instrumental
-"TECHNICAL DIFFICULTIES" 2000, Instrumental
-"Superheroes" 2001, Instrumental
+(Paul Gilbert project)
+
+## Дискография
+
+### "STREET LETHAL" 1986, Instrumental
+
+1.FRANZY
+2.STREET LETHAL 
+3.INTO THE NIGHT
+4.BLOWIN'UP THE RADIO
+5.HOTTER THAN FIRE
+6.ON THE LOOSE
+7.LOUD AND CLEAR
+8.Y.R.O
+9.DANGEROUS LOVE
+10.GET AWAY
+11.ROCK IT
+
+### "SECOND HEAT" 1987, Instrumental
+
+1.SACRIFICE
+2.GONE TO FAR
+3.SCARIFIED
+4.SUNLIT NIGHTS
+5.HAMMER AWAY
+6.HEART OF A LION
+7.MOTOR MAN
+8.MOONAGE DAYDREAM
+9.LIVING THE HARD WAY
+10.LADY KILLER 
+
+### "TECHNICAL DIFFICULTIES" 2000, Instrumental
+
+1.PHALLIC TRACTOR
+2.FIRE OF ROCK
+3.SNAKEBITE
+4.TECHNICAL DIFFICULTIES
+5.MISS MISTREATER
+6.BOLTS IN MY HEART
+7.17TH MOON
+8.WAITING
+9.POISON EYES
+10.B.R.O.
+11.GOD OF THE SUN
+12.GIVE IT TO ME
+13.THE EXCUTIONER'S SONG
+14.CHILDREN OF THE GRAVE
+
+### "Superheroes" 2001, Instrumental
+
+01.Superheroes
+02.Let the Spirit Fly
+03.Godzilla
+04.Dead Man¦s Shoes
+05.King of The Monsters
+06.Mad At The World
+07.Evil Joe
+08.That Hormone Thing
+09.Viking Kong
+10.Time Before the Sun
+11.O.H.B.
+
 
 ## Отношения с другими группами
 

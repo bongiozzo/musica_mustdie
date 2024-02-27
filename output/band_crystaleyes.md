@@ -1,18 +1,138 @@
 # Crystal Eyes
 
-Дискография
-"Crystal Eyes (demo)" 1994, Heavy Metal
-"The Shadowed Path (demo)" 1996, Heavy Metal
-"The Final Sign (demo)" 1997, Heavy Metal
-"The Dragon's Lair (demo)" 1998, Heavy Metal
-"Gallery of Demos" 1998, Heavy Metal
-"World of Black and Silver" 1999, Power Metal
-"In Silence They March" 2000, Power Metal
-"Vengeance Descending" 2003, Power Metal
-"Confessions of the Maker" 2005, Power Metal
-"Dead City Dreaming" 2006, Heavy Metal
-"Chained" 2008, Heavy Metal
-"Killer" 2014, Power Metal
+Swedish Power (Heavy-Power Metal)
+
+## Дискография
+
+### "Crystal Eyes (demo)" 1994, Heavy Metal
+
+
+
+### "The Shadowed Path (demo)" 1996, Heavy Metal
+
+
+
+### "The Final Sign (demo)" 1997, Heavy Metal
+
+
+
+### "The Dragon's Lair (demo)" 1998, Heavy Metal
+
+
+
+### "Gallery of Demos" 1998, Heavy Metal
+
+
+
+### "World of Black and Silver" 1999, Power Metal
+
+Interstellar war 
+Gods of the world 
+Winds of the free 
+The power behind the throne 
+The dragon's lair 
+Eyes of the forest gloom 
+Rage of the sea 
+Victims of the frozen hate 
+Extreme paranoia 
+Glory ride 
+World of black and silver 
+
+### "In Silence They March" 2000, Power Metal
+
+1. Time Flight 
+2. Cursed And Damned 
+3. Sons Of Odin 
+4. The Grim Reaper's Fate 
+5. The Undead King 
+6. In Silence They March 
+7. Adrian Blackwood 
+8. Witch Hunter 
+9. The Rising 
+10. Knights Of Prey 
+11. Somewhere Over The Sun 
+12. Winternight 
+
+
+
+Mikael Dahl: Vocals, Electric Guitars, Acoustic Guitars and Mad Witch Hunter Voice
+Jonathan Nyberg: Electric Guitars, Aucustic Guitars and Funny Trix
+Claes Wikander: Bass Guitar, Keyboards, Comets, Hells Bells and Toilet Doors
+Kujtim Gashi: Drums, Breaking Pedals and Falling Pukes
+
+Recorded 2000-09-25 to 2000-10-08 at Studio Mohrmann, Bochum, Germany
+Produced by Crystal Eyes and Detlef Mohrmann
+Mixed by Crystal Eyes and Detlef Mohmann
+Cover artwork by Kristian Wahlin
+Design and Layout by DMP Sweden - Tommy Dahl
+
+
+
+
+### "Vengeance Descending" 2003, Power Metal
+
+
+
+### "Confessions of the Maker" 2005, Power Metal
+
+1. Confessions of the Maker
+2. Northern Rage
+3. Panic
+4. Revolution In the Shadowland
+5. Silent Angel
+6. Terminal Voyage
+7. The Burning Vision
+8. The Charioteer
+9. The Fools' Ballet
+10. The Terror
+11. White Wolves
+
+### "Dead City Dreaming" 2006, Heavy Metal
+
+1. Dead City Dreaming 04:43 
+2. Into The Light 03:42
+3. The Narrow Mind 04:06 
+4. Wall Of Stars 04:58
+5. Battlefield 04:14
+6. The Quest Remains 03:28 
+7. Dawn Dancer 04:27
+8. Roads Of Loneliness 03:54
+9. Temple Of Immortal Shame 04:23  
+10. The Halls of Valhalla 07:18 
+
+
+Line-up:
+Nico Adamsen - Vocals
+Mikael Dahl - Guitars, Keyboards, Lead Vocals on 10
+Klaes Wikander - Bass
+Stefan Svantesson - Drums 
+
+### "Chained" 2008, Heavy Metal
+
+1. Ride The Rainbow 04:51  
+2. The Fire Of Hades 05:56  
+3. The Devil Inside 03:35  
+4. Waves Of War 05:08  
+5. Dying In The Rain 04:35  
+6. Fighting 04:25  
+7. Shadow Rider 05:50  
+8. Lonely Ball Of Fate 04:31  
+9. Guardian 03:45 
+
+
+### "Killer" 2014, Power Metal
+
+1. Killer  04:08  
+2. Warrior  04:18   
+3. Hail the Fallen  04:21  
+4. Solar Mariner  04:28   
+5. Forgotten Realms  05:53   
+6. Spotlight Rebel  03:44   
+7. The Lord of Chaos  03:19  
+8. Dreamers on Trial  04:26   
+9. Dogs on Holy Ground  03:52 
+
+
 
 ## Отношения с другими группами
 

@@ -1,9 +1,21 @@
 # Eufobia
 
-Дискография
-"Insemination" 2010, Death Metal
-"Cup of Mud" 2011, Death Metal
-"Eufobia" 2016, Melodic Death Metal
+
+
+## Дискография
+
+### "Insemination" 2010, Death Metal
+
+
+
+### "Cup of Mud" 2011, Death Metal
+
+
+
+### "Eufobia" 2016, Melodic Death Metal
+
+
+
 
 ## Отношения с другими группами
 

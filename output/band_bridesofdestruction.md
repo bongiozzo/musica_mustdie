@@ -1,8 +1,37 @@
 # Brides Of Destruction
 
-Дискография
-"Here Comes The Brides" 2004, Glam
-"Runaway Brides" 2005, Glam
+
+
+## Дискография
+
+### "Here Comes The Brides" 2004, Glam
+
+01. Shut the Fuck Up 3:03 
+02. I Don't Care 3:21 
+03. I Got a Gun 3:48 
+04. 2x Dead 5:38 
+05. Brace Yourself 4:04 
+06. Natural Born Killers :31 
+07. Life 3:32 
+08. Revolution 4:37 
+09. Only Get So Far 5:07
+
+### "Runaway Brides" 2005, Glam
+
+01. Aunt Biente
+02. Lords of the Mind
+03. Deadman's Ruin
+04. Criminal
+05. This Time Around
+06. White Trash
+07. Brothers
+08. Never Say Never
+09. Blown Away
+10. Porcelain Queen
+11. White Horse
+12. Tunnel of Love
+13. Dimes In Heaven
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,32 @@
 # Chandeen
 
-Дискография
-"Light Within Time" 1996, Gothic
+
+
+## Дискография
+
+### "Light Within Time" 1996, Gothic
+
+1. Change
+2. Before Sunrise
+3. Imagination
+4. Fire And Water
+5. Before Sunrise (Edit)
+6. Imagination (Remix)
+7. On Land (Remix)
+
+All Songs Written By CHANDEEN.
+Produced By Harald Loewy.
+Engineered, Mixed & Mastered By Axel Henninger.
+Recorded & Mixed At Darmstadt, Germany.
+
+Antje Schulz - Vocals
+Stefanie Harich - Vocals
+Harald Loewy - All Other Instruments
+Dorothea Hohntedt - German Flutes
+Axel Henninger - Acoustic Guitar
+
+(P)&(C) 1996
+
 
 ## Отношения с другими группами
 

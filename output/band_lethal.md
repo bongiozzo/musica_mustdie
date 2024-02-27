@@ -1,8 +1,55 @@
 # Lethal
 
-Дискография
-"Your Favourite God" 1995, Heavy Metal
-"Poison Seed" 1996, Heavy Metal
+
+
+## Дискография
+
+### "Your Favourite God" 1995, Heavy Metal
+
+1. Swim Or Drown
+2. Hard To Breathe
+3. Waiting On The Kill
+4. The Real
+5. The Page Before
+
+All Songs Written By LETHAL.
+Produced By LETHAL.
+Engineered By Jeff Higgins.
+Recorded At Audio Craft,Cincinnati,Ohio
+
+Eric Cook - Guitars
+David McElfresh - Guitars
+Glen Cook - Bass
+Jerry Hartman - Drums
+Tom Malicoat - Vocals
+
+(P)&(C) 1995 BULLET PROOF Records
+
+### "Poison Seed" 1996, Heavy Metal
+
+1. Down
+2. Bitter Taste
+3. Born
+4. Walking Wounded
+5. Poison Seed
+6. Watch Me Feed
+7. Meaning
+8. Now
+9. Your Favorite God
+
+All songs written by LETHAI.
+Produced by LETHAL
+Engineered and mixed by Jeff Higgins and Jim Turner.
+Recorded at Audio Craft, Cincinnati, OH.
+
+Eric Cook - Guitars
+David McElfresh - Guitars
+Glen Cook - Bass
+Jerry Hartman - Drums
+Tom Malicoat - Vocals
+
+ (p)(c) 1996 MASSACRE Records
+
 
 ## Отношения с другими группами
 

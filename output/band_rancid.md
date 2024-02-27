@@ -1,9 +1,90 @@
 # Rancid
 
-Дискография
-"Rancid" 1993, Punk
-"Let's Go" 1994, Punk
-":And Out Come The Wolves" 1995, Punk
+
+
+## Дискография
+
+### "Rancid" 1993, Punk
+
+1.  Adiva
+2.  Hyena
+3.  Detroit
+4.  Rust In The Hallway
+5.  Another Night
+6.  Animosity
+7.  Outta My Mind
+8.  Whirlwind
+9.  Rejected
+10.Injury
+11.The Bottle
+12.Trenches
+13.Holiday Sunrise
+14.Unwritten Rules
+15.Get Out Of My Way
+
+(P)&c 1993 EPITAPH Records
+
+### "Let's Go" 1994, Punk
+
+1.  Nihilism
+2.  Radio
+3.  Side Kick
+4.  Salvation
+5.  Tenderloin
+6.  Let's Go
+7.  As One
+8.  Burn
+9.  The Ballad Of Jimmy & Johnny
+10.Gunshot
+11.I Am The One
+12.Gave It Away
+13.Ghetto Box
+14.Harry Bridges
+15.Black & Blue
+16.St. Mary
+17.Dope Sick Girl
+18.International Cover - Up
+19.Solidarity
+20.Midnight
+21.Motorcycle Ride
+22.Name
+23.7 Years Down
+
+(P)&c 1994 EPITAPH Records
+
+### ":And Out Come The Wolves" 1995, Punk
+
+1.  Maxwell Murder 
+2.  The 11th Hour 
+3.  Roots Radicals 
+4.  Time Bomb 
+5.  Olympia W.A. 
+6.  Lock, Step & Gone 
+7.  Junkie Man
+8.  Listed Mia 
+9.  Ruby Soho
+10.Daily City Train 
+11.Journey To The End Of The East Bay 
+12.She's  Automatic 
+13.Old Friend  
+14.Disorder And Disarrow
+15.The Wars End 
+16.You Don't Care Nothin'
+17.As Wicked 
+18.Avenues & Alleyways 
+19.The Way I Feel
+
+Mixed at Soundtrack Studio, NY by Andy Wallace.
+Mastered By Howie Weinberg.
+Engineered By Michael Rosen.
+
+Tim Armstrong - Vocals, Guitars
+Lars Fredriksen - Vocals, Guitars
+Brett Reed - Drums
+Matt Freeman - Bass, Backing Vocals
+
+(P)&c 1995 EPITAPH Records
+
 
 ## Отношения с другими группами
 

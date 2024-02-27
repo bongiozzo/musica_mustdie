@@ -1,14 +1,93 @@
 # Grand Magus
 
-Дискография
-"Grand Magus" 2001, Heavy Metal
-"Monument" 2003, Heavy Metal
-"Wolf's Return" 2005, Heavy Metal
-"Iron Will" 2008, Heavy Metal
-"Hammer Of The North" 2010, Heavy Metal
-"The Hunt" 2012, Heavy Metal
-"Triumph And Power" 2014, Heavy Metal
-"Sword Songs" 2016, Heavy Metal
+
+
+## Дискография
+
+### "Grand Magus" 2001, Heavy Metal
+
+1.Gauntlet 
+2. Legion 
+3. Never Learned 
+4. Black Hound of Vengeance 
+5. Coat of Arms 
+6. Generator 
+7. Wheel of Time 
+8. Lodbrok 
+9. Black Hole 
+10. Mountain of Power
+
+### "Monument" 2003, Heavy Metal
+
+1. Ulvaskall (Vargr)
+2. Summer Solstice 
+3. Brotherhood of Sleep 
+4. Baptised In Fire 
+5. Chooser of the Slain (Valfader)
+6. Food of the Gods 
+7. He Who Seeks Shall Find
+
+
+### "Wolf's Return" 2005, Heavy Metal
+
+
+
+### "Iron Will" 2008, Heavy Metal
+
+1. Like the Oar Strikes the Water
+2. Fear Is the Key
+3. Hovding
+4. Iron Will
+5. Silver Into Steel
+6. The Shadow Knows
+7. Self Deceiver
+8. Beyond Good and Evil
+9. I Am the North
+
+### "Hammer Of The North" 2010, Heavy Metal
+
+1. I, the Jury
+2. Hammer of the North 
+3. Black Sails 
+4. Mountains be my Throne 
+5. Northern Star 
+6. The Lord of Lies 
+7. At Midnight They'll Get Wise 
+8. Bond of Blood 
+9. Savage Tales 
+10. Raven's Guide Our Way
+
+### "The Hunt" 2012, Heavy Metal
+
+1.	 Starlight Slaughter	04:19	 
+2.	 Sword of the Ocean	04:28	 
+3.	 Valhalla Rising	04:51	 
+4.	 Storm King	04:23	 
+5.	 Silver Moon	04:43	 
+6.	 The Hunt	05:24
+7.	 Son of the Last Breath Part I: Nattf&#246;dd Part II: Vederg&#228;llning	06:49	 
+8.	 Iron Hand	03:44	 
+9.	 Draks&#229;dd	05:48
+
+### "Triumph And Power" 2014, Heavy Metal
+
+1. On Hooves of Gold  05:24    
+2. Steel Versus Steel  05:19    
+3. Fight  04:06    
+4. Triumph and Power  04:52   
+5. Dominator  04:20    
+6. Arv  01:57   instrumental  
+7. Holmgang  03:38    
+8. The Naked and the Dead  03:02  
+9. Ymer  02:54   instrumental  
+10. The Hammer Will Bite  06:54 
+Bonus track:
+11. Blackmoon (03:45)
+
+### "Sword Songs" 2016, Heavy Metal
+
+
+
 
 ## Отношения с другими группами
 

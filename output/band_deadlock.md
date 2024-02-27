@@ -1,14 +1,128 @@
 # Deadlock
 
-Дискография
-"I'll Wake You...When Spring Awakes (EP)" 2000, Melodic Death Metal
-"The Arrival" 2002, Melodic Death Metal
-"Earth.Revolt" 2005, Melodic Death Metal
-"Wolves" 2007, Melodic Death Metal
-"Manifesto" 2008, Melodic Death Metal
-"Bizarro World" 2011, Melodic Death Metal
-"The Arsonist" 2013, Melodic Death Metal
-"Hybris" 2016, Melodic Death Metal
+
+
+## Дискография
+
+### "I'll Wake You...When Spring Awakes (EP)" 2000, Melodic Death Metal
+
+1. In Fear Of Closing The Eyes 02:21
+2. Fire 02:19  
+3. The Circumstance Of Recognizing You Are Wrong 03:13 
+4. Citocran 01:10 
+5. Find Your Own Light 04:08 
+6. To Be In Love 02:28  
+7. A Song Full Of Abhorrence In A World Witohut Feelings... 03:01 
+8. A World Without Feelings 01:04
+
+### "The Arrival" 2002, Melodic Death Metal
+
+1. Opening The Gates... 02:36  
+2. With A Smile On My Face 06:50 
+3. Killing The Time With Haemoglobin 11:03 
+4. Spring Awoken 04:08 
+5. The More Money They Get, The Colder Their Hearts 05:55 
+6. Menschanhand 05:11 
+7. This Winter Day's Magic 05:11  
+8. Lebe Wohl 05:39  
+9. Prealudium 02:15  
+10. Love, I Think I Had Never Felt It Before, So I Cannot Say That I Have Felt It This Time, But You Were My Everything 04:43  
+11. ... For The New Prophets
+
+### "Earth.Revolt" 2005, Melodic Death Metal
+
+1. Demonic (Tonus Diabolus) 00:31  
+2. 10,000 Generations in Blood 08:04  
+3. The Year of the Crow 04:11  
+4. Everlasting Pain 06:45  
+5. Earth.Revolt 04:35 
+6. More Tragedies to Come 06:03 
+7. Awakened By Sirens 05:25
+8. Kingdom of the Dead 05:36  
+9. May Angels Come 11:12
+10. Harmonic 01:49 
+
+
+Johannes Prem - Vocals
+Sebastian Reichl - Guitar
+Gert Rymen - Guitar
+Thomas Huschka - Bass
+Tobias Graf - Drums
+
+Produced and engineered by D. Richter and S. Reichl. 
+All music written by S.reichl and T. graf. 
+Recorded and mixed by D. Richter at Gaia studios january 2005 - march 2005. 
+Mastered march 2005 by Ziggy at Zigzound denmark. 
+Artworkand design by Peter Hoffmann. 
+Band photography by S. Scherer. 
+All female vocals and keyboards performed by S. Weniger.
+
+### "Wolves" 2007, Melodic Death Metal
+
+1. World Domination; 
+2. We Shall All Bleed; 
+3. Code Of Honor; 
+4. Losers' Ballet; 
+5. Dark Cell; 
+6. Crown Of Creation; 
+7. End Begins; 
+8. As Words To Bullets; 
+9. Praeludium II; 
+10. Bloodpact; 
+11. To Where The Skies Are Blue
+
+All songs written by DEADLOCK
+Recorded, produced and engineered by S.Reichl at Slaughter's Palace
+Mixed by Jacob Hansen
+Recorded at Gaia Studios, Germany
+
+Thomas Huschka - Bass
+Tobias Graf - Drums
+Johannes Prem - Vocals
+Sabine Weniger - Vocals
+Gert Rymen - Guitars
+Sebastian Reichl - Guitars
+
+All keyboards and female vocals performed by S.Reichl
+
+### "Manifesto" 2008, Melodic Death Metal
+
+1. The Moribund Choir vs. The Trumpets Of Armageddon 01:10  
+2. Martyr To Science 05:13  
+3. Slaughter's Palace 04:22  
+4. The Brave / Agony Applause 04:03  
+5. Deathrace 06:46  
+6. Fire At Will 04:53  
+7. Seal Slayer 05:39
+8. Manifesto 02:24  
+9. Dying Breed 05:38  
+10. Altruism 03:24  
+11. Temple Of Love 03:07 
+
+### "Bizarro World" 2011, Melodic Death Metal
+
+
+
+### "The Arsonist" 2013, Melodic Death Metal
+
+
+
+### "Hybris" 2016, Melodic Death Metal
+
+1. Epitaph     
+2. Carbonman   
+3. Berserk    
+4. Blood Ghost  
+5. Hybris      
+6. Wrath / Salvation   
+7. Backstory Wound     
+8. Ein Deutsches Requiem    
+9. Vergebung      
+10. Welcome Deathrow    
+11. Uncivil Hands  (bonus)
+12. Fight Song  (bonus) 
+
+
 
 ## Отношения с другими группами
 

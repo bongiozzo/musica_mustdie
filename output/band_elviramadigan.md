@@ -1,9 +1,68 @@
 # Elvira Madigan
 
-Дискография
-"Black Arts" 2000, Metal
-"Witches - Salem (1692 vs. 2001)" 2001, Metal
-"Angelis Deamonae - Wiccan Aftermath" 2005, Metal
+
+
+## Дискография
+
+### "Black Arts" 2000, Metal
+
+1. Drakens Tarar   
+2. Djдvulen Pa Engsцslott   
+3. Kцttets Makt & Kvinnans Svek   
+4. Gwenhwyear   
+5. Multna Sidor Ur Min Dagbok   
+6. Mab   
+7. Sorgekvдdet   
+8. Svartnatt   
+9. Ulv  
+10. Svartkonst & Tusenskцnor  
+11. Aterbesцk (Repris)   
+12. Venus
+
+### "Witches - Salem (1692 vs. 2001)" 2001, Metal
+
+1. Anno Domini 1232 01:16  
+2. Orroborros and The Pilgrim 02:47  
+3. Lilliannah - Demonologi Fцr Dцmda 07:05  
+4. Nocturne 01:26  
+5. Crestfallen 04:21  
+6. Kvinnorovet 06:12  
+7. Hдxor, Maror, Och Vittror 03:49  
+8. Djдvulens Novis 02:05  
+9. Ecclesia Non Novit Sanguinem? 03:43  
+10. Interludium I 01:23  
+11. The Kindred (Salem 1692) 06:36 
+12. Ritual (Varsel Del 1) 08:18  
+13. Gregory IX 00:56  
+14. Dark is the Seraphim 07:46  
+15. Honeythorne 04:31
+
+### "Angelis Deamonae - Wiccan Aftermath" 2005, Metal
+
+1. Chrono Cross 02:22  
+2. Iieee 03:37  
+3. Alien Nation 05:37 
+4. Under Norrskenet 04:08  
+5. At Zanarkand 01:38  
+6. Jacob's Ladder 01:32  
+7. Spanish Train 05:33  
+8. The Leader 02:33  
+9. The Vision 02:54 
+10. What About Me? 03:52  
+11. Prisoners of Fate 01:43 
+
+
+This is a covers album with songs from various artists, videogames, and movies.
+
+1. by Y. Mitsuda from Chrono Cross
+2. original by Tori Amos
+3. original by the Scorpions
+4. by the swedish band Nordman
+5. by N. Uematsu from Final Fantasy X
+6. from the movie Jacob's Ladder
+7, 8, 9, and 10. by Chris deBurgh
+11. by Y. Mitsuda from Chrono Chross
+
 
 ## Отношения с другими группами
 

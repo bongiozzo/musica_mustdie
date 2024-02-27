@@ -1,7 +1,22 @@
 # Decay
 
-Дискография
-"Gutting" 2001, Grindcore
+Very brutal death metal
+
+## Дискография
+
+### "Gutting" 2001, Grindcore
+
+01. Maggots Consuming Cranial Contents 
+02. Brutally Butchered Carcass 
+03. Swarming Vile 
+04. Larvae 
+05. Morbid Savouring Of The Sadistically Gutted 
+06. Necrocannibalism 
+07. Severe Exhumed Carnal Butchery 
+08. Copulation With The Gutted Corpse 
+09. Sodomized Purulent Devourments 
+10. Colonize The Inhumed
+
 
 ## Отношения с другими группами
 

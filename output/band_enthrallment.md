@@ -1,9 +1,36 @@
 # Enthrallment
 
-Дискография
-"Return To Grave (live)" 2004, Death Metal
-"Smashed Brain Collection" 2005, Death Metal
-"Immerse into Bloody Bliss" 2008, Death Metal
+bulgarian brutal Death
+
+## Дискография
+
+### "Return To Grave (live)" 2004, Death Metal
+
+
+
+### "Smashed Brain Collection" 2005, Death Metal
+
+1. Smashed Brain Collection
+2. Carnal Affection
+3. Experiment with You
+4. Disgruntled
+5. Total Zombie Domination
+6. Mutant
+7. Supporting the Chaos and Hate
+8. Graveyard
+9. Awaiting the Death
+
+### "Immerse into Bloody Bliss" 2008, Death Metal
+
+1. Seeds of Insanity
+2. Replace in the Grave
+3. Distorted Brain Patterns
+4. Bonegrinder
+5. Female Hunting Precede the Feast
+6. Enthrallment
+7. Cane the Messiah with the Crook
+8. Immerse into Bloody Bliss
+
 
 ## Отношения с другими группами
 

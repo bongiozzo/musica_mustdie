@@ -1,11 +1,83 @@
 # Stormwarrior
 
-Дискография
-"Stormwarrior" 2002, Power Metal
-"Northern Rage" 2004, Power Metal
-"Heading Northe" 2008, Power Metal
-"Heathen Warrior" 2011, Power Metal
-"Thunder & Steele" 2014, Power Metal
+
+
+## Дискография
+
+### "Stormwarrior" 2002, Power Metal
+
+01. The Hammer Returneth
+02. Signe Of The Warlorde
+03. Sons Of Steele
+04. Bounde By The Oathe
+05. Deceiver
+06. The Axewielder
+07. Deathe By The Blade
+08. Thunderer
+09. Iron Prayers
+10. Defenders Of Metal
+11. Chains Of Slavery
+12. Heavy Metal (Is The Law)
+
+### "Northern Rage" 2004, Power Metal
+
+01. And The Northewinde Bloweth
+02. Heroic Deathe
+03. Valhalla
+04. Thy Laste Fyre
+05. Welcome Thy Rite
+06. Урinn’s Warriors
+07. Bloode Eagle
+08. Sigrblуt
+09. To Foreign Shores
+10. Lindisfarnel
+
+### "Heading Northe" 2008, Power Metal
+
+1. And The Horde Calleth For Oden 00:38  
+2. Heading Northe 04:19 
+3. Metal Legacy 04:21  
+4. The Holy Cross 07:18  
+5. Iron Gods 04:00  
+6. Ragnarцk 04:15  
+7. The Revenge Of Asa Lande 05:15  
+8. Remember The Oathe 03:33  
+9. Lion Of The Northe 06:38  
+10. Into The Battle 03:49  
+11. And The Valkyries Ride 01:10
+
+### "Heathen Warrior" 2011, Power Metal
+
+1. ...Og Hammeren H?ves Til Slag... 00:44
+2. Heathen Warrior 04:59
+3. The Ride of Asgard 04:39	
+4. Heirs to the Fighte 05:21	
+5. Bloode to Bloode 04:26	
+6. Fyre & Ice 04:11	
+7. The Returne 05:19
+8. Wolven Nights 04:46	
+9. Ravenhearte 03:19
+10. The Valkyries Call 04:46
+11. And Northern Steele Remaineth 06:00
+
+### "Thunder & Steele" 2014, Power Metal
+
+1. Thunder & Steele  03:36   
+2. Metal Avenger  03:41   
+3. Sacred Blade  03:57  
+4. Ironborn  04:48   
+5. Steelcrusader  04:13   
+6. Fyres in the Nighte  03:41  
+7. Die by the Hammer  04:36   
+8. Child of Fyre  04:37    
+9. One Will Survive  06:19    
+10. Servants of Metal  04:55 
+
+Mixed and mastered at Powerhouse Studio, Hamburg.
+
+Limited edition LP bonus track:
+11. The Enforcer (Warrant cover) 
+
 
 ## Отношения с другими группами
 

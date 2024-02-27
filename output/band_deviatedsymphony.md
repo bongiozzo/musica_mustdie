@@ -1,6 +1,9 @@
 # Deviated Symphony
 
-Дискография
+indonesian goregrind
+
+## Дискография
+
 
 ## Отношения с другими группами
 

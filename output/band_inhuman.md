@@ -1,8 +1,42 @@
 # Inhuman
 
-Дискография
-"Strange Desire" 1996, Death Doom
-"Foreshadow" 1998, Death Doom
+
+
+## Дискография
+
+### "Strange Desire" 1996, Death Doom
+
+1. Without My Face
+2. My Blackest Daylight
+3. Fallen Majesty
+4. Angeldom
+5. Frozen Sun
+6. The Eyes Of Goya
+7. Purple Sunset
+8. A Feeling For Beauty
+9. The Winds Of North
+
+Pedro Garcia - Vocals
+Diogo Simoes - Keyboards
+Roger Sequeira - Bass
+Joao Pedro - Guitars
+J.L. Vairinhos - Drums
+
+Produced by INHUMAN and Luis Barros.
+
+Recorded  and Mixed at Rec'N'Roll Studio.
+Engineered and Mixed by Luis Barros.
+Cover artwork by Ricardo Sequeira.
+Band residence: Portugal.
+All music by INHUMAN.
+All lyrics by Pedro Garcia.
+
+(p)(c) 1996 ART MUSIC - APARTADO ART 96008
+
+### "Foreshadow" 1998, Death Doom
+
+
+
 
 ## Отношения с другими группами
 

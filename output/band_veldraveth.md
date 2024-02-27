@@ -1,8 +1,33 @@
 # Veldraveth
 
-Дискография
-"Undefined God" 2007, Black Metal
-"Temples of the Black Flame" 2009, Black Metal
+
+
+## Дискография
+
+### "Undefined God" 2007, Black Metal
+
+1. Hellish Forces of Satan 03:51  
+2. Suffer Jesus Still Suffer 03:22  
+3. Request to the Master 05:24  
+4. For the Glory and the Greatness 04:21  
+5. Consumed by Fire 06:41  
+6. Until Darkness Cover Us... 04:41  
+7. Pagan Church 04:31  
+8. King 666 04:18  
+9. Undefined God 03:57 
+
+### "Temples of the Black Flame" 2009, Black Metal
+
+1. Plague of the Antichrist 04:12  
+2. No Life, No Light 03:04  
+3. Dark Forces Moving 03:10  
+4. Crowned by Sheeps 03:06  
+5. Great Eye of Satan 03:17  
+6. I'm the LIght 02:47  
+7. Blood and Bones 05:52  
+8. Adveniat Regnum Tuum 02:59  
+9. Brighter Flame 03:06 
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,13 @@
 # Stromkern
 
-Дискография
-"Light It Up" 2005, Industrial
+
+
+## Дискография
+
+### "Light It Up" 2005, Industrial
+
+
+
 
 ## Отношения с другими группами
 

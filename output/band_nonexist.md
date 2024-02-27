@@ -1,7 +1,13 @@
 # Nonexist
 
-Дискография
-"Deus Deceptor" 2002, Death Metal
+(new band of former ARCH ENEMY frontman Johan Liiva)
+
+## Дискография
+
+### "Deus Deceptor" 2002, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

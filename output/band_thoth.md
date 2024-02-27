@@ -1,8 +1,33 @@
 # Thoth
 
-Дискография
-"From the Abyss of Dungeons of Darkness" 2008, Black Metal
-"Zamglenie" 2010, Black Metal
+
+
+## Дискография
+
+### "From the Abyss of Dungeons of Darkness" 2008, Black Metal
+
+1. Waiting For You 04:46
+2. ...to kill... 03:37 
+3. Within the Cemetary Crypts 06:43
+4. From the Abyss of Dungeons of Darkness 04:50
+5. The Parasite 03:41  
+6. Time of Solitude 05:08  
+7. Omnipresent Cold 03:43  
+8. Chaos Syndrome 03:49  
+9. Emptiness 04:29 
+
+### "Zamglenie" 2010, Black Metal
+
+1. Neurocosmos 03:46  
+2. Przeklкty 03:03  
+3. Armia Gіupcуw 03:24  
+4. Martwa Noc 04:06  
+5. Zamglenie 05:23  
+6. Moc Czekania 03:10  
+7. Amnezja 04:03  
+8. To Tylko Jesieс 03:34  
+9. Monotonia 04:11 
+
 
 ## Отношения с другими группами
 

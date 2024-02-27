@@ -1,8 +1,60 @@
 # Freternia
 
-Дискография
-"Warchants & Fairytales" 2001, Power Metal
-"A Nightmare Story" 2002, Power Metal
+Swedish power-speed metal
+
+## Дискография
+
+### "Warchants & Fairytales" 2001, Power Metal
+
+01. The Worst Of Enemies
+02. Ride With The Wind 
+03. The War Of The Crown
+04. Mistress Of The Deep Black Sea
+05. Guardians Of The Night 
+06. The Woods Of The Elvenking
+07. Dragonsong
+08. Friends In Enemyland
+09. The Flame
+
+
+
+Line up :
+Tomas W&#1076;ppling: bass
+Pasi Humppi: vocals
+Stefan Svantesson: drums
+Mikael Bakajev: guitar
+Patrik Lund: guitar
+Tommie Johansson: keyboard 
+
+
+
+
+### "A Nightmare Story" 2002, Power Metal
+
+Grimbor The Great
+Arrival
+The Dark Side
+Shadowdancers
+The Saviour
+The Unexpected
+New Hope
+Battle Of Minds
+Requiem
+
+
+Recorded & Mixed at Studio Underground by Pelle Saether
+Mastered at Finnvox by Mika Jussila
+Cover painted by Jean Pascal Fournier
+
+
+Pasi Humppi - Leadvocals 
+Tomas Wдppling - Guitars 
+Martin Tilander - Drums
+Tommie Johansson - Keyboard 
+Peter Wiberg-Bass 
+
+
+
 
 ## Отношения с другими группами
 

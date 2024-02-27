@@ -1,7 +1,26 @@
 # Light?
 
-Дискография
-"Mirrors" 2005, Gothic
+
+
+## Дискография
+
+### "Mirrors" 2005, Gothic
+
+1 ...looking through a prism of inevitability,
+2 Trying to leave from reality,
+3 Feeling the pain of loss
+4 I hear voices of the past.
+5 I am waiting the sunrise.
+6 Faces...
+7 They-tears,
+8 They-pain,
+9 They-time.
+10 Time is face on the water.
+11 Tears of emptiness
+12 ...and She kisses clean rain.
+13 But We'll stay
+14 Beyond the mirrors.
+
 
 ## Отношения с другими группами
 

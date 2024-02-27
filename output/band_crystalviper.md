@@ -1,11 +1,38 @@
 # Crystal Viper
 
-Дискография
-"The Curse of Crystal Viper" 2007, Heavy Metal
-"Metal Nation" 2009, Heavy Metal
-"Legends" 2010, Heavy Metal
-"Crimen Excepta" 2012, Heavy Metal
-"Possession" 2013, Heavy Metal
+
+
+## Дискография
+
+### "The Curse of Crystal Viper" 2007, Heavy Metal
+
+
+
+### "Metal Nation" 2009, Heavy Metal
+
+
+
+### "Legends" 2010, Heavy Metal
+
+
+
+### "Crimen Excepta" 2012, Heavy Metal
+
+01. Witch’s Mark
+03. Child Of The Flame
+05. It’s Your Omen
+07. Crimen Excepta
+09. Medicus Animarum
+11. The Spell Of Death
+13. Hope Is Gone, Here’s New Law
+15. Fire Be My Gates
+17. Tyrani Piekiel (Vader cover)
+18. Ghosts Of Sherwood
+
+### "Possession" 2013, Heavy Metal
+
+
+
 
 ## Отношения с другими группами
 

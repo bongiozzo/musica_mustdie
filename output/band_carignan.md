@@ -1,7 +1,24 @@
 # Carignan
 
-Дискография
-"Masturbatorium" 2009, Deathcore
+
+
+## Дискография
+
+### "Masturbatorium" 2009, Deathcore
+
+1. Intro 00:31  
+2. Masturbatorium 02:31  
+3. The Erotical Devourment Of Sperm Swallowing Whore 01:03  
+4. Bitchslapper 03:13  
+5. Shotgun Penetration 03:41  
+6. Flogged And Punished 02:16  
+7. My Daddy's Bequest 00:48  
+8. Dominated Then Castrated 02:59  
+9. Cadavers And Affairs 03:39  
+10. Cunt-Kiss-Cannibalism 02:43  
+11. SMS 03:25  
+12. Wel(l)Cum-Shot 02:22 
+
 
 ## Отношения с другими группами
 

@@ -1,14 +1,69 @@
 # Orplid
 
-Дискография
-"Orplid" 1997, Folk
-"Heimkehr" 1997, Folk
-"Das Schicksal" 1998, Folk
-"Geheiligt sei der" 1999, Folk
-"Orplid (Re-Edition)" 2000, Folk
-"Barbarossa" 2000, Folk
-"Nachtliche Junger" 2002, Folk
-"Sterbender Satyr" 2006, Folk
+
+
+## Дискография
+
+### "Orplid" 1997, Folk
+
+
+
+### "Heimkehr" 1997, Folk
+
+
+
+### "Das Schicksal" 1998, Folk
+
+
+
+### "Geheiligt sei der" 1999, Folk
+
+
+
+### "Orplid (Re-Edition)" 2000, Folk
+
+
+
+### "Barbarossa" 2000, Folk
+
+
+
+### "Nachtliche Junger" 2002, Folk
+
+  1 -  
+  2 - Erzengel Michael 
+  3 - Auf Unbekanntem Pfade 
+  4 - Spater Tag 
+  5 - Nacthliche Junger 
+  6 - Winternacht 
+  7 - Das Madchen Aus Der Fremode 
+  8 - Im Shatten Der Queste 
+  9 - Stille 
+  10 - Sohnne Des Ares 
+  11 - Abendstern 
+  12 - Maria 
+  13 - Auferstehung 
+  14 - Inners Heer 
+
+
+
+Frank Machau - Vocals, Guitar, Noise
+Uwe Nolte - Vocals, Photography
+
+### "Sterbender Satyr" 2006, Folk
+
+Der Letzte Ikaride 
+Auf Deine Augen Senk Ich Schlummer
+Die Seherin
+Instrumental I
+Amils Abendgebet
+Erster Frost
+Gesang Der Quellnymphe
+Instrumental II
+Sang Am Abend
+Heimkehr
+Sterbender Satyr
+
 
 ## Отношения с другими группами
 

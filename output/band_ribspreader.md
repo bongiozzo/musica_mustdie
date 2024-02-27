@@ -1,12 +1,53 @@
 # Ribspreader
 
-Дискография
-"Bolted To The Cross" 2004, Death Metal
-"Congregating the Sick" 2005, Death Metal
-"Opus Ribcage MMVI" 2009, Death Metal
-"The Van Murders" 2011, Death Metal
-"Meathymns" 2014, Death Metal
-"Suicide Gates - A Bridge to Death" 2016, Death Metal
+
+
+## Дискография
+
+### "Bolted To The Cross" 2004, Death Metal
+
+1. Dead Forever 04:44  
+2. Beneath The Cenotaph 03:47  
+3. Heavenless 03:34  
+4. The Unblessed 03:51  
+5. As You Bleed 03:35  
+6. Hollow Beliefs 04:04  
+7. Morbidity Awoken 03:37  
+8. Sole Sufferer 03:23 
+
+
+Andreas Carlsson - Guitar, Bass 
+Roger Johansson - Guitar, Vocals 
+Dan Swano - Drums, Guitar
+
+### "Congregating the Sick" 2005, Death Metal
+
+1. Autopsy Obsessed   
+2. Morbid Reflections   
+3. Bleeding You Dry   
+4. Breeding Sickness   
+5. Dead To The World   
+6. Maggots (Fucking Maggots)   
+7. Worms Inside Your Coffin   
+8. Not Dead But Buried   
+9. The Crawling
+
+### "Opus Ribcage MMVI" 2009, Death Metal
+
+
+
+### "The Van Murders" 2011, Death Metal
+
+
+
+### "Meathymns" 2014, Death Metal
+
+
+
+### "Suicide Gates - A Bridge to Death" 2016, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

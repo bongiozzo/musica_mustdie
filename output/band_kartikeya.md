@@ -1,10 +1,54 @@
 # Kartikeya
 
-Дискография
-"Oasis (EP)" 2005, Thrash
-"The Battle Begins" 2007, Death Metal
-"Durga Puja (EP)" 2011, Death Metal
-"Mahayuga" 2011, Death Metal
+
+
+## Дискография
+
+### "Oasis (EP)" 2005, Thrash
+
+
+
+### "The Battle Begins" 2007, Death Metal
+
+1. Nemesis pt. 1: Aeons Ago
+2. Nemesis pt. 2: The Game Of Gods
+3. Enter My Dome
+4. Ruins Of Belief
+5. Oasis - Soul's Path
+6. Kailas
+7. Thunders Of Indra
+8. The Battle Begins pt. 1: The War Of One Blood
+9. The Battle Begins pt. 2: Arjuna
+10. Worship The Savior
+11. Unleash Thy Spirit
+12. The Last Night
+
+### "Durga Puja (EP)" 2011, Death Metal
+
+1. Durga Puja
+2. Enter My Dome 2011
+3. Nemesis (Acoustic Version)
+4. The Path (Live)
+5. Triangular Tattvic Fire (Melechesh Cover)
+6. Arise (Sepultura Cover)
+
+### "Mahayuga" 2011, Death Metal
+
+01. Sarva Mangalam 
+02. He Who Carries The Head Of Brahma 
+03. The Path (feat. Marina (AMBEHR)) 
+04. Fields Of Kurukshetra (feat. Kathir (RUDRA)) 
+05. Moksha 
+06. Neverborn (feat. Marina (AMBEHR))
+07. Surya Jayanti
+08. Exile
+09. Choirs Of Oblivion
+10. Utpavana
+11. Satya Yuga
+12. Treta Yuga
+13. Dvapara Yuga (feat. Marina (AMBEHR))
+14. Kali Yuga
+
 
 ## Отношения с другими группами
 

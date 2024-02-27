@@ -1,8 +1,38 @@
 # Magellan
 
-Дискография
-"Impossible Figures" 2003, Progressive
-"Symphony For A Misanthrope" 2005, Progressive
+progressive
+
+## Дискография
+
+### "Impossible Figures" 2003, Progressive
+
+1. Gorilla With A Pitchfork 
+2. Killer Of Hope 
+3. Bach 16 
+4. Late For Church 
+5. Confessor’s Overture 
+6. Hymn For A Heathen 
+7. A World Groove 
+8. Counterpoints 
+9. Feel The Cross
+
+
+Produced By Magellan
+Engineered by Trent Gardner
+
+### "Symphony For A Misanthrope" 2005, Progressive
+
+1. Symphonette
+2. Why Water Weeds?
+3. Wisdom
+4. Cranium Reef Suite
+part one: "Youthful Enthusiasm"
+part two: "Psych 101"
+part three: "Primal Defense"
+5. Pianissimo Intermission
+6. Doctor Concoctor
+7. Every Bullet Needs Blood
+
 
 ## Отношения с другими группами
 

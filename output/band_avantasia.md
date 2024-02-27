@@ -1,18 +1,326 @@
 # Avantasia
 
-Дискография
-"Avantasia (EP)" 2000, Power Metal
-"The Metal Opera" 2001, Power Metal
-"The Metal Opera, Part II" 2002, Power Metal
-"Lost In Space (Part 1)" 2007, Heavy Metal
-"Lost In Space (Part 2)" 2007, Heavy Metal
-"The Scarecrow" 2008, Heavy Metal
-"The Wicked Symphony" 2010, Heavy Metal
-"Angel of Babylon" 2010, Heavy Metal
-"The Flying Opera [DVD]" 2011, Heavy Metal
-"The Mystery of Time" 2013, Heavy Metal
-"Mystery of a Blood Red Rose (single)" 2015, Heavy Metal
-"Ghostlights" 2016, Heavy Metal
+Tobias Sammet's All Stars Epic Power
+
+## Дискография
+
+### "Avantasia (EP)" 2000, Power Metal
+
+one. Reach Out For The Light
+two. Avantasia 
+three. The Final Sacrifice
+four. Avantasia (Album Version)
+
+### "The Metal Opera" 2001, Power Metal
+
+01. Prelude (1:11)
+02. Reach out for the Light (6:33)
+03. Serpents in Paradise (6:15)
+04. Malleus Maleficarum (1:43)
+05. Breaking Away (4:34)
+06. Farewell (6:32)
+07. The Glory of Rome (5:28)
+08. In Nomine Patris (1:04)
+09. Avantasia (5:32)
+10. A New Dimension (1:39)
+11. Inside (2:24)
+12. Sing of the Cross (6:24)
+13. The Tower (9:43)
+14. The Final Sacrifice (5:00) [CD-Bonus]
+
+
+HENJO RICHTER - all rhythm & lead guitars
+MARKUS GROSSKOPF - all basses
+ALEX HOLZWARTH - all drums
+TOBIAS SAMMET - all keys & orchestrations
+NORMAN MEIRITZ - acoustic guitar on 6
+FRANK TISCHER - piano on 11
+JENS LUDWIG - lead guitar on 12, 13 & 14
+DAVID DeFEIS - additional lead vocals on 14
+
+
+produced by Tobias Sammet
+co-produced by Norman Meiritz
+all music composed and lyrics written by Tobias Sammet
+story written by Tobias Sammet in co-operation with Rene Fandrey
+recorded at Rhoen-Studios, Germany
+engineered by Norman Meiritz
+mixed at Finnvox-Studios, Finland by Mikko Karmila
+mastered at Finnvox-Studios, Finland by Mika Jussila
+cover artwork by Jean-Pascal Fournier
+booklet concept and design by Nils Wasko and Tobias Sammet
+published by AFMusic & Publishing
+photos by Alex Kuehr
+
+David DeFeis of Virgin Steele appears courtesy of Modern Music Records
+(recorded at Last Chance Studios, USA, engineered by Ed Warrin)
+
+Rob Rock appears courtesy of JVC Victor Entertainment / Japan
+(recorded at Future Sound Recorders, Orlando-Florida, USA, engineered by
+Angelo Jannotti)
+
+Andre Matos
+(recorded at Gate-Studios, Germany, engineered by Sascha Paeth)
+
+Sharon Den Adel
+(recorded at RS29-Studios, Netherlands, engineered by Oscar Hollemann)
+
+Kai Hansen appears courtesy of Modern Music Records
+(recorded at Hansen-Studios, Germany)
+
+Timo Tolkki appears courtesy of Nuclear Blast Records
+(recorded at Finnvox-Studios, Finland)
+
+
+the avantasians:
+
+TOBIAS SAMMET at novice Gabriel
+(appears on 2, 3, 5, 6, 7, 9, 11, 12 & 13)
+
+ERNIE as druid Lugaid Vandroiy
+(appears on 2, 5, 6, 9 & 13)
+
+DAVID DeFEIS as friar Jakob
+(appears on 3 & 13)
+
+RALF ZDIARSTEK as bailiff von Kronberg
+(appears on 4 & 7)
+
+SHARON DEN ADEL as Anna Held
+(appears on 6)
+
+ROB ROCK as bishop von Bicken
+(appears on 7 & 12)
+
+OLIVER HARTMANN as Pope Clemens IIX
+(appears on 7, 12 & 13)
+
+ANDRE MATOS as Elderane, the elf
+(appears on 11, 12 & 13)
+
+KAI HANSEN as Regrin, the dwarf
+(appears on 11 & 12)
+
+TIMO TOLKKI as voice in the tower
+(appears on 13)
+
+### "The Metal Opera, Part II" 2002, Power Metal
+
+1 – The Seven Angels - 14.17 
+(chant : M. Kiske, O. Hartman, D. Defeis, R. Rock, K. Hansen, A. Matos) 
+2 – No Return - 4.29 
+(chant : M. Kiske, A. Matos) 
+3 – The Looking Glass - 4.52 
+(chant :B. Catley) 
+4 – In Quest For - 3.53 
+(chant : B. Catley) 
+5 – The Final Sacrifice - 5.02 
+(chant : D. Defeis) 
+6 - Neverland - 4.59 
+(chant : R. Rock) 
+7 - Anywhere - 5.29 
+(chant : T. Sammet) 
+8 – Chalice Of Agony - 6.00 
+(chant : K. Hansen, A. Matos) 
+9 - Memory - 5.42 
+(chant : R. Zdiarstek) 
+10 – Into The Unknown - 4.29 
+(chant : S. Den Adel) 
+
+tracks 1-9:
+H. Richter – guitars 
+M. Grosskopf – bass 
+A. Holzwarth – drums 
++ T. Tolkki lead guitar (1) 
+J. Ludwig lead guitar (5 & 9). 
+
+
+track 10:
+N. Meiritz – guitars 
+T. Tolkki - lead guitar 
+T. Sammet – bass 
+Eric Singer – drums
+
+### "Lost In Space (Part 1)" 2007, Heavy Metal
+
+1. Lost In Space   
+2. Lay All Your Love On Me (ABBA cover)   
+3. Another Angel Down (feat. Jorn Lande)   
+4. The Story Ain't Over (feat. Bob Catley & Amanda Somerville)   
+5. Return To Avantasia   
+6. Ride The Sky (feat. Eric Singer on vocals) 
+
+Includes:
+- Lost In Space (video clip)
+- Lost In Space (making of the video clip)
+- Photo Gallery + Poster
+
+### "Lost In Space (Part 2)" 2007, Heavy Metal
+
+1. Lost In Space   
+2. Promised Land   
+3. Dancing With Tears In My Eyes   
+4. Scary Eyes   
+5. In My Defence   
+6. Lost In Space (video)
+
+### "The Scarecrow" 2008, Heavy Metal
+
+1. Twisted Mind   
+2. The Scarecrow   
+3. Shelter From The Rain   
+4. Carry Me Over   
+5. What Kind Of Love   
+6. Another Angel Down   
+7. The Toy Master   
+8. Devil In The Belfry   
+9. Cry Just A Little   
+10. I Don't Believe In Your Love   
+11. Lost In Space 
+
+GUEST APPEARANCES:
+Alice Cooper - vocalist
+Amanda Somerville - vocalist
+Bob Catley - Magnum vocalist
+Jorn Lande - ex-Masterplan vocalist
+Kai Hansen - Gamma Ray vocalist
+Michael Kiske - ex-Helloween vocalist
+Oliver Hartmann - ex-At Vance vocalist
+Roy Khan - Kamelot vocalist
+Rudolf Schenker - Scorpions guitarist
+
+### "The Wicked Symphony" 2010, Heavy Metal
+
+1. The Wicked Symphony 09:28
+2. Wastelands 04:44
+3. Scales Of Justice 05:04 
+4. Dying For An Angel 04:32
+5. Blizzard On A Broken Mirror 06:07 
+6. Runaway Train 08:42  
+7. Crestfallen 04:02
+8. Forever Is A Long Time 05:05 
+9. Black Wings 04:37 
+10. States Of Matter 03:57 
+11. The Edge 04:12 
+
+### "Angel of Babylon" 2010, Heavy Metal
+
+1. Stargazers 09:33
+2. Angel Of Babylon 05:29
+3. Your Love Is Evil 03:53 
+4. Death Is Just A Feeling 05:21
+5. Rat Race 04:07
+6. Down In The Dark 04:23 
+7. Blowing Out The Flame 04:51
+8. Symphony Of Life 04:30
+9. Alone I Remember 04:48
+10. Promised Land 04:47
+11. Journey To Arcadia 07:12 
+
+### "The Flying Opera [DVD]" 2011, Heavy Metal
+
+DVD I
+
+01. Twisted Mind (06:42)
+02. The Scarecrow (11:53)
+03. Another Angel Down (05:25)
+04. Prelude / Reach Out For The Light (07:52)
+05. Inside (07:01)
+06. No Return (05:04)
+07. The Story Ain't Over (05:29)
+08. Shelter From The Rain (07:02)
+09. Lost In Space (03:55)
+10. I Don't Believe In Your Love (06:49)
+11. Avantasia (05:09)
+12. Serpents In Paradise (07:26)
+13. Promised Land (05:37)
+14. The Toy Master (06:26)
+15. Farewell (06:15)
+16. Sign Of The Cross - The Seven Angels (Medley)
+(17:55)
+
+Bonus DVD (2)
+
+17. Overture
+18. From the Сradle to the Stage
+19. Avantasia Live - The Expedition Starts
+20. Sweden Rock Festival 2008
+21. The Birth of Avantasia
+22. A New Era (2006)
+23. Moscow 2008
+24. Avantasians
+25. Tokyo 2008
+26. The Scarecrow
+27. Lost in Space
+28. Mexico & South America
+29. Avantasians
+30. Impressions from Mexico & South America
+31. Soundcheck Avantasians
+32. Back in Europe (Czech Republic-Masters of
+rock)
+33. Avantasians
+34. 150 000 Hands in the Air: Wacken
+35. Where do we Go from Here?
+36. And the Story Goes On...
+37. Epilogue
+38. Lost in Space (Video Clip)
+39. Carry me Over (Video Clip)
+40. Carry me Over (Making Of The Video Clip)
+41. Dying for an Angel (Video Clip)
+
+### "The Mystery of Time" 2013, Heavy Metal
+
+
+
+### "Mystery of a Blood Red Rose (single)" 2015, Heavy Metal
+
+1. Mystery of a Blood Red Rose  03:51 
+
+### "Ghostlights" 2016, Heavy Metal
+
+Disc 1  
+1. Mystery of a Blood Red Rose  03:51    
+2. Let the Storm Descend upon You  12:09   
+3. The Haunting  04:42    
+4. Seduction of Decay  07:18    
+5. Ghostlights  05:43    
+6. Draconian Love  04:58    
+7. Master of the Pendulum  05:01    
+8. Isle of Evermore  04:28   
+9. Babylon Vampyres  07:09   
+10. Lucifer  03:48   
+11. Unchain the Light  05:03   
+12. A Restless Heart and Obsidian Skies  05:53    
+13. Wake Up to the Moon  *     
+  
+Disc 2  
+1. Spectres (live)  * 
+2. Invoke the Machine (live)  * 
+3. The Story Ain't Over (live)  *   
+4. Prelude (live)  *     
+5. Reach Out for the Light (live)  *    
+6. Avantasia (live)  *     
+7. Whats Left of Me (live)  *
+8. Dying for an Angel (live)  *  
+9. Twisted Mind (live)  *     
+10. The Watchmakers' Dream (live)  *     
+11. Another Angel Down (live)  *     
+  
+Disc 3  
+1. Mystery of a Blood Red Rose (karaoke version)  *   
+2. Let the Storm Descend upon You (karaoke version)  *  
+3. The Haunting (karaoke version)  *   
+4. Seduction of Decay (karaoke version)  *  
+5. Ghostlights (karaoke version)  *   
+6. Draconian Love (karaoke version)  *   
+7. Master of the Pendulum (karaoke version)  *   
+8. Isle of Evermore (karaoke version)  *   
+9. Babylon Vampyres (karaoke version)  *   
+10. Lucifer (karaoke version)  *   
+11. Unchain the Light (karaoke version)  *   
+12. A Restless Heart and Obsidian Skies (karaoke version)  *   
+13. Wake Up to the Moon (karaoke version)  *   
+
 
 ## Отношения с другими группами
 

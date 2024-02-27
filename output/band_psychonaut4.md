@@ -1,6 +1,9 @@
 # Psychonaut 4
 
-Дискография
+depressive black-metal from Georgia
+
+## Дискография
+
 
 ## Отношения с другими группами
 

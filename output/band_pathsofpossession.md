@@ -1,7 +1,31 @@
 # Paths Of Possession
 
-Дискография
-"Promises In Blood" 2005, Thrash
+George Fisher (CANNIBAL CORPSE)
+
+## Дискография
+
+### "Promises In Blood" 2005, Thrash
+
+1. Darklands 
+2. Butcher's Bargain 
+3. Bleed the Meek 
+4. The Second Coming 
+5. Where the empty gods lie 
+6. Heart for a Heart 
+7. In My Eyes 
+8. Erzsebet 
+9. Promises in Blood 
+10. Bring me the Head of Christ 
+11. Through the Fiery Halls 
+12. The Icy Flow of Death 
+
+Line-Up: 
+George "Corpsegrinder" Fisher - Vocals 
+Randy Butman - Bass / Backup Vocals 
+Jay Fossen - Guitars 
+Jack Goodwin - Guitars 
+Nick Goodyear – Drums
+
 
 ## Отношения с другими группами
 

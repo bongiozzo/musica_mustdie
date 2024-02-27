@@ -1,7 +1,38 @@
 # Substance for God
 
-Дискография
-"Assembly Of Flowers" 1996, Death Doom
+
+
+## Дискография
+
+### "Assembly Of Flowers" 1996, Death Doom
+
+1. The Love I've Bereaved
+2. The Swan Song
+3. Memorial Prayer
+4. Behind The Wreath
+5. Verse Of Sorrow
+6. Assembly Of Flowers
+7. Crowned Seclusion
+8. The Promise
+
+All songs written by SUBSTANCE FOR
+GOD.
+Produced by SUBSTANCE FOR GOD.
+Engineered by Tamir Muskat.
+Recorded at Muskat Studio.
+
+Alon Moradi - Vocals
+Micha Yossef - Guitars
+Asi Yacobovitch - Guitars
+Noam Roda - Bass
+Dor Caduri - Drums
+
+Additional musicians:
+ Orit - Female Vocals
+ Itzik - Keyboards
+
+(p)(c) 1996 RADIATION Records
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,13 @@
 # Death Wolf
 
-Дискография
-"Death Wolf" 2011, Metal
+formerly known as Devils Whorehouse
+
+## Дискография
+
+### "Death Wolf" 2011, Metal
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,35 @@
 # Quelonio
 
-Дискография
-"Buscando una Luz" 2002, Power Metal
-"Vicio y Virtud" 2009, Power Metal
+
+
+## Дискография
+
+### "Buscando una Luz" 2002, Power Metal
+
+1. Ave FГ©nix 06:10 
+2. Mundo Triste y Gris 03:28 
+3. En el Nombre de Dios 07:23  
+4. La Daga del Odio 05:11
+5. Cabalgando hacia el Sol 05:11 
+6. Castillo de SatanГЎs 07:04  
+7. Buscando una Luz 05:01
+8. Susurrando al Viento 04:17 
+
+### "Vicio y Virtud" 2009, Power Metal
+
+1. Dame Placer   
+2. Juego de Miradas   
+3. Ave Fйnix   
+4. Vicio y Virtud   
+5. V   
+6. El Grito de la Realidad   
+7. Por la Espalda   
+8. Tu Fuego   
+9. Buscando una Luz (pt.II)   
+10. Aquн Estoy   
+11. Cima de la Eternidad   
+12. Susurrando al Viento 
+
 
 ## Отношения с другими группами
 

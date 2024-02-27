@@ -1,8 +1,35 @@
 # Diathra
 
-Дискография
-"Wistful Autumn Dance" 2002, Gothic
-"My Endless Sorrow" 2008, Gothic
+
+
+## Дискография
+
+### "Wistful Autumn Dance" 2002, Gothic
+
+1. Nocturnal Bride
+2. Two Candles
+3. Desperate Cry
+4. Come Back
+5. Part of Soul
+6. Prelude II
+7. Ancient Gods
+8. Wistful Autumn Dance
+9. Winter
+10. The Cold Sunrise
+
+### "My Endless Sorrow" 2008, Gothic
+
+1. Autumn
+2. How Many Times
+3. Dreams of Fire
+4. My Autumnal Images
+5. I Feel...
+6. Mysterious Season
+7. I Am Sorry
+8. My Universe
+9. The Light of the Diamond Theatre
+10. Willow
+
 
 ## Отношения с другими группами
 

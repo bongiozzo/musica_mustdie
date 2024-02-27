@@ -1,7 +1,24 @@
 # Coldseed
 
-Дискография
-"Makes The Tragedy" 2006, Metal
+Speed (SOILWORK) and Thomen (ex-BLIND GUARDIAN)
+
+## Дискография
+
+### "Makes The Tragedy" 2006, Metal
+
+1. My Affliction 
+2. Democracy Lesson   
+3. Nothing but a loser 
+4. Five more to fix   
+5. Burning with a shade   
+6. Low  
+7. On my way   
+8. Reflection   
+9. Completion makes the tragedy   
+10. Hatchet   
+11. Vulture of the throne   
+12. At last
+
 
 ## Отношения с другими группами
 

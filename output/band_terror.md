@@ -1,17 +1,91 @@
 # Terror
 
-Дискография
-"Lowest Of The Low" 2003, Hardcore
-"One With The Underdogs" 2004, Hardcore
-"Dead Man's Hand (EP)" 2004, Hardcore
-"Life And Death: The Demo" 2005, Hardcore
-"Lowest Of The Low (Reissue)" 2005, Hardcore
-"Always The Hard Way" 2006, Hardcore
-"Rhythm Amongst The Chaos (EP)" 2007, Hardcore
-"The Damned, The Shamed" 2008, Hardcore
-"Forever Crossing The Line: 5 Years In The Making" 2008, Hardcore
-"Keepers Of The Faith" 2010, Hardcore
-"The Twenty Fifth Hour" 2015, Hardcore
+
+
+## Дискография
+
+### "Lowest Of The Low" 2003, Hardcore
+
+
+
+### "One With The Underdogs" 2004, Hardcore
+
+
+
+### "Dead Man's Hand (EP)" 2004, Hardcore
+
+
+
+### "Life And Death: The Demo" 2005, Hardcore
+
+
+
+### "Lowest Of The Low (Reissue)" 2005, Hardcore
+
+
+
+### "Always The Hard Way" 2006, Hardcore
+
+
+
+### "Rhythm Amongst The Chaos (EP)" 2007, Hardcore
+
+
+
+### "The Damned, The Shamed" 2008, Hardcore
+
+01. Voice Of The Damned
+02. Relentless Through And Through
+03. Betrayer
+04. Rise Of The Poisoned Youth
+05. Never Alone
+06. What I Despise
+07. Let Me Sink
+08. Feel The Pain
+09. Lost Our Minds
+10. March To Redemption
+11. Crush What's Weak
+12. Still Believe
+13. Suffer To Return Harder
+14. Iron Mind
+
+### "Forever Crossing The Line: 5 Years In The Making" 2008, Hardcore
+
+
+
+### "Keepers Of The Faith" 2010, Hardcore
+
+1. Your Enemies Are Mine
+2. Stick Tight
+3. Return To Strength
+4. The Struggle
+5. Shattered
+6. You’re Caught
+7. Dead Wrong
+8. Keepers Of The Faith
+9. Stay Free
+10. Hell And Back
+11. Only Death
+12. The New Blood
+13. Defiant
+
+### "The Twenty Fifth Hour" 2015, Hardcore
+
+01. The 25th Hour (1:22)
+02. No Time For Fools (1:33)
+03. Bad Signs (1:11)
+04. Feed The Rats (1:08)
+05. The Solution (1:51)
+06. Blinded By The Lights (2:27)
+07. Trust No Face (1:04)
+08. Why? (1:37)
+09. Mind At War (1:30)
+10. Snap (1:14)
+11. Sick And Tired (1:08)
+12. Life Goes On (2:22)
+13. Both Of You (2:07)
+14. Deep Rooted (2:05)
+
 
 ## Отношения с другими группами
 

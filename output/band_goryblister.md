@@ -1,10 +1,107 @@
 # Gory Blister
 
-Дискография
-"Art Bleeds" 1999, Techno Death
-"Skymorphosis" 2006, Techno Death
-"Graveyard of Angels" 2009, Techno Death
-"Earth-Sick" 2012, Techno Death
+Technical Death Metal from Italy
+
+## Дискография
+
+### "Art Bleeds" 1999, Techno Death
+
+1. Primordial Scenery 04:01 
+2. As Blood Moves 03:25 
+3. Art Bleeds 03:09 
+4. Mermaids Beloved 01:21 
+5. Anticlimax 03:13 
+6. Cognitive Sinergy 03:49 
+7. Snowfall 03:03 
+8. A Gout From The Scar 03:25 
+9. Comet ... And Her Trail Of Spiritual Dust 03:54 
+10. Never Let Me Down (Depeche Mode Cover) 03:46 (Re-Recorded 2003 Bonus Track)
+
+
+line up:
+ Daniel - vocals
+ Raff - guitars
+ Bruce Teah - bass
+ Joe - drums
+ 
+Re-issued by Sekhmet Records in November 2003. 
+
+### "Skymorphosis" 2006, Techno Death
+
+1. Procession to Apocalypse (Intro) 01:07 
+2. Asteroid 03:34 
+3. Sailing To Achernar 03:30 
+4. Skymorphosis 03:35 
+5. Skin Legacy 00:29 
+6. Blood Sweating Wall 04:03 
+7. I Shall Hang Myself 06:01 
+8. Quasars 04:08 
+9. Black Canvas 05:49 
+10. The Missing Planet 04:03 
+11. Shader 03:58 ] 
+12. Starfields 01:41 
+13. The Soul-Slitters 04:16 
+14. 1,000 Eyes (Death cover) 04:56 
+
+
+Engineered by Gabriele Ravaglia, Paso & Raff
+ Assistants: Simone Mularoni and Alex Conti
+ 
+Mastered by Stefano Cappelli at Creative Mastering - Forli - Italy
+ 
+Guests: Paso on Synth, Gabriele Ravaglia jamming on "I Shall Hang Myself" final guitar solo
+ 
+All arrangements by GORY BLISTER except:
+ Procession To Apocalypse (music by Raff, arrangements by Simone Mularoni)
+ 
+Starfields (music by Raff) - In memory of Shawn Lane -
+ 1,000 Eyes - In memory of the great Chuck Schuldiner -
+ 
+Cover concept by Joe
+ Artwork and lay-out Design by B-lial @ Hybreed (hybreedart.free.fr)"
+ 
+"1,000 Eyes" was originally recorded for the Tribute to Death released in 2004.
+ 
+Some of the tracks have "sub-titles":
+ 
+ 3. "Self-Brightening Beauty"
+ 4. "Please Gouge My Eyes"
+ 6. "Skymorphosys Pt. 2, Divine Viewpoint"
+ 10. "After The Supernova"
+ 11. "The Awakening Of The Moon"
+ 13. "Shader Pt. 2" 
+
+### "Graveyard of Angels" 2009, Techno Death
+
+01. The Hatch Opens 04:09 
+02. Void Made Flesh 03:45 
+03. Vanishing Ruins 04:52 
+04. The Descent 03:24 
+05. emiT despalE 02:48 
+06. The Slum Of The Wretched Creatures 04:47 
+07. The Shining Hades 03:27 
+08. Graveyard Of Angels 03:34 
+09. emiT despalE remix 3:13
+
+
+### "Earth-Sick" 2012, Techno Death
+
+01. The Breeding (Intro) 00:44 
+02. EarthSick 03:59 
+03. Plague and Pray 03:42 
+04. Decanted Embryos 04:15 
+05. Dominant GenEthics 03:55 
+06. H.I.V. 03:58 
+07. World Damnatomy 04:05 
+08. Soul-Borne Maladies 03:33 
+09. Serpent Verse 03:29 
+10. Voices From the Sea 02:05
+
+
+Joe La Viola - Drums 
+Raff - Guitars 
+John St. John - Vocals 
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,17 @@
 # Cebren-Khal
 
-Дискография
-"A Mass of Despair" 2010, Black Metal
+
+
+## Дискография
+
+### "A Mass of Despair" 2010, Black Metal
+
+1. Mortshaped
+2. The Lunar Tragedy Act 1: The Parcae’s Night is Sleepless
+3. The Lunar Tragedy Act 2: Mouroir, Mouroir, Suis-je le Plus Mort?
+4. The Lunar Tragedy Act 3: Experience of Downfall
+5. Where All Faith is Lost
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,13 @@
 # Dust In Mind
 
-Дискография
-"Never Look Back" 2015, Gothic
+Female-fronted from France
+
+## Дискография
+
+### "Never Look Back" 2015, Gothic
+
+
+
 
 ## Отношения с другими группами
 

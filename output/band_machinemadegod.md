@@ -1,7 +1,32 @@
 # Machinemade God
 
-Дискография
-"The Infinity Complex" 2006, Melodic Death Metal
+
+
+## Дискография
+
+### "The Infinity Complex" 2006, Melodic Death Metal
+
+01. Teeth vs Curb 
+02. Losses To Lessons 
+03. Bleeding From Within 
+04. Downpour Of Emptiness 
+05. Friendster Is Sooo 2 Month Ago 
+06. Kiss Me Now Kill Me Later 
+07. Butterfly Coma 
+08. Your Own Fault 
+09. Forever Gone 
+10. Injected Smiles 
+11. Angel Wings 
+12. Fuck Your Dead Heart 
+13. Snow White 
+
+Line-Up: 
+Flo Velten - vocals 
+Holger Kiparski - guitar 
+Sky Hoff - guitar 
+Sven Luppus- bass 
+Max Kotzmann - drums
+
 
 ## Отношения с другими группами
 

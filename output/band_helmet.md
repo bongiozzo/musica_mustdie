@@ -1,14 +1,56 @@
 # Helmet
 
-Дискография
-"Strap It On" 1990, Alternative
-"Meantime" 1992, Alternative
-"Betty" 1994, Alternative
-"Aftertaste" 1997, Alternative
-"Size Matters" 2004, Alternative
-"Monochrome" 2006, Alternative
-"Seeing Eye Dog" 2010, Alternative
-"Dead to the World" 2016, Alternative
+
+
+## Дискография
+
+### "Strap It On" 1990, Alternative
+
+
+
+### "Meantime" 1992, Alternative
+
+
+
+### "Betty" 1994, Alternative
+
+1.  Wilma's Revenge
+2.  I Know
+3.  Biscuits For Smut
+4.  Milguetoast
+5.  Tic
+6.  Rollo
+7.  Street Crab
+8.  Clean
+9.  Vaccination
+10.  Beautiful Love
+11.  Speechless
+12.  The Silver Hawaiian
+13.  Overroated
+14.  Sam Hell
+
+(P)c 1994
+
+### "Aftertaste" 1997, Alternative
+
+
+
+### "Size Matters" 2004, Alternative
+
+
+
+### "Monochrome" 2006, Alternative
+
+
+
+### "Seeing Eye Dog" 2010, Alternative
+
+
+
+### "Dead to the World" 2016, Alternative
+
+
+
 
 ## Отношения с другими группами
 

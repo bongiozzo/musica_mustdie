@@ -1,7 +1,21 @@
 # Scum Sentinel
 
-Дискография
-"Sentinel of Scum" 2011, Black Metal
+
+
+## Дискография
+
+### "Sentinel of Scum" 2011, Black Metal
+
+1. Dark Primitive Rituals		 
+2. Fucking a Nun With a Fistfull of Anger		 
+3. In Nomine Luciferium		 
+4. Cybersatanic Powered Mastermind		 
+5. Blasphemic Mental Decomposition		 
+6. Nailed on the Altar		 
+7. Black Clouds Made the Sky		 
+8. Christian Pawns		 
+9. Panzer XVI
+
 
 ## Отношения с другими группами
 

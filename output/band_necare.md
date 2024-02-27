@@ -1,7 +1,21 @@
 # Necare
 
-Дискография
-"Ruin" 2004, Death Doom
+
+
+## Дискография
+
+### "Ruin" 2004, Death Doom
+
+Stillborn Twilight 
+Rite Of Shrouds 
+Desire (The Dawn & The Chrysalis) 
+Canto XXXIV 
+Ruin 
+Celia 
+Gethsemane 
+Waters Of Quiet 
+Touching Eternity
+
 
 ## Отношения с другими группами
 

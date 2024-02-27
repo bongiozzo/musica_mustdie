@@ -1,9 +1,59 @@
 # Jeff Scott Soto
 
-Дискография
-"Love Parade" 1994, Hard Rock
-"Prism" 2002, Hard Rock
-"Lost In The Translation" 2004, Hard Rock
+Hard rock
+
+## Дискография
+
+### "Love Parade" 1994, Hard Rock
+
+…A New Salvation 
+Love Parade 
+People 
+Gottit Goin On 
+Listen Up 
+How U Want It 
+United/Divided 
+4 U 
+Monogamy 
+Funk Sandwich 
+Friend [A Song For Jason] 
+Dragon Attack
+
+### "Prism" 2002, Hard Rock
+
+Eyes Of Love 
+Heaven Knows 
+Don’t Come Easy 
+Don’t Wanna Say Goodbye 
+I Want To Take You Higher 
+Holding On 
+2 Late 4 Goodbyes 
+Till The End Of Time 
+How Long 
+By Your Side 
+Don t Walk Away 
+Eyes Of Love (video)
+
+JEFF SCOTT SOTO - vocals 
+Alex Papa - drums 
+Howie Simon - lead guitars 
+Sam Isanogud - keyboards 
+Gary Schutt - bass & guitars
+
+### "Lost In The Translation" 2004, Hard Rock
+
+Believe In Me 
+Soul Divine 
+Drowning 
+If This Is The End 
+Lost In The Translation 
+Doin’ Time 
+High Time 
+Beginning 2 End 
+On My Own 
+Find Our Way 
+Sacred Eyes
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,31 @@
 # Kain
 
-Дискография
-"Lost In Nightmares (Demo)" 2004, Thrash
+Thrash-Death
+
+## Дискография
+
+### "Lost In Nightmares (Demo)" 2004, Thrash
+
+1.Lost In Nightmares (Intro) 2.06
+2.War Of Gods 5.19
+3.Spitalfield 8.28
+4.Lost Souls 4.07
+5.Winter Spell Clan 5.54
+
+Total Time: 25min, 14 sec.
+
+Info:
+Recorded and mixed in home studio, in 2004.
+All music by "Kain".
+All lyrics by "Kain".
+(p)&(c) Copyright "Kain".
+Warning: All rights reserved .
+Contact e-mail: blackem@rambler.ru
+Web Site: http://www.kainmusic.narod.ru/
+
+mp3:
+http://www.kainmusic.narod.ru/Kain_-_War_Of_Gods.mp3
+
 
 ## Отношения с другими группами
 

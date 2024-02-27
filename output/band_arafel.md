@@ -1,9 +1,33 @@
 # Arafel
 
-Дискография
-"The Way of Defender" 2003, Metal
-"The Second Strike: Through The Flames Of The Ages " 2005, Metal
-"For Battles Once Fought" 2011, Metal
+pagan-black
+
+## Дискография
+
+### "The Way of Defender" 2003, Metal
+
+1. The Birth 
+2. 10 Shots 
+3. The First Battle  
+4. On The Dark Way 
+5. The Ice 
+6. The Requiem
+
+
+LESHII - ударные
+GROM - бас
+FELIUS - гитара
+DANIEL - гитара
+DIVERTIGO - клавишные
+
+### "The Second Strike: Through The Flames Of The Ages " 2005, Metal
+
+
+
+### "For Battles Once Fought" 2011, Metal
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,20 +1,163 @@
 # Hellveto
 
-Дискография
-"Autumnal Night" 2002, Black Metal
-"Zemsta" 2003, Black Metal
-"Medieval Scream" 2004, Black Metal
-"In Arms of Kurpian Phantom" 2004, Black Metal
-"Klatwa" 2005, Black Metal
-"Prelude to Dying" 2005, Black Metal
-"Zmierzch" 2006, Black Metal
-"In the Glory of Heroes" 2006, Black Metal
-"Stos" 2006, Black Metal
-"966" 2007, Black Metal
-"Neoheresy" 2008, Black Metal
-"Od Poludnia na Polnoc..." 2009, Black Metal
-"Kry" 2009, Black Metal
-"Wiara, nadzieja..., potepienie" 2010, Black Metal
+
+
+## Дискография
+
+### "Autumnal Night" 2002, Black Metal
+
+1. Intro / Switez	 
+2. About Whispers Of Ancient Truth	 
+3. Escape On Wings Of Evil	 
+4. Death Of White Warrior	 
+5. Dzien Triumfu	 
+6. Blakagir	 
+7. Krzyk Niebios	 
+8. Autumnal Night 
+9. Outro - Tym Co ¦mierж Nad Zdradк Wybrali	 
+10. Steel Of Fathers (Bonus)
+
+### "Zemsta" 2003, Black Metal
+
+1. Wstкp: Poranek Martwego Sіoсca	 
+2. Akt I: Od Halgilibrum Po Blakagir	 
+3. Akt II: Pіon№ce Pos№gi	 
+4. Akt III: Zapomniana Wyrocznia	 
+5. Akt IV: Dni Okupione Јzami	 
+6. Zakoсczenie: Smak Cierpienia
+
+### "Medieval Scream" 2004, Black Metal
+
+1. Intro (Niemy Omen)	 
+2. SЕ‚owiaЕ„ska Wyrocznia
+3. Knell Of Darkness	 
+4. Jesienna Modlitwa	 
+5. In Forgotten... 
+6. W ImiД™ Czarnej ChwaЕ‚y	 
+7. Greater Land	 
+8. Strach Zbudzonych Przestworzy	 
+9. Kurpian Phantom	 
+10. Tears Of War	 
+11. Outro (PogaЕ„ski Zmierzch)
+
+### "In Arms of Kurpian Phantom" 2004, Black Metal
+
+1. Colour of My Blood	 
+2. Corpse of Monolith	 
+3. Warpicture	 
+4. Pleochroism of Black	 
+5. Svantevith Crown	 
+6. Flame And Scream	 
+7. Born In Infanity
+
+### "Klatwa" 2005, Black Metal
+
+1. Odwrуcona Opaczno¶ж	 
+2. Pіon±cy Panteon	 
+3. Raj Zatraconych	 
+4. Kl±twa	 
+5. Pod Znakiem Bіyskawicy	 
+6. Kwintesencja Opaczno¶ci	 
+7. Zapomniany (bonus)	 
+8. Kl±twa (bonus, first unofficial version)
+
+### "Prelude to Dying" 2005, Black Metal
+
+1. Prelude to Dying	 
+2. Laconic Death	 
+3. Our Land of Aphelion	 
+4. I Gave You My Revenge	 
+5. When God Is Me I'm Your Only Hangman 
+6. Tear of Evil 
+7. My Funeral Pyre	 
+8. Winterecho
+
+### "Zmierzch" 2006, Black Metal
+
+1. U Zmierzchu Bram	 
+2. Hrabia Karpackich Szczytow	 
+3. Krwawy Swit	 
+4. Uspione Herezje	 
+5. Szepty Bitewnych Pol	 
+6. W Ramionach Klatwy	 
+7. Daje Wam Potegi Smak	 
+8. Zawsze Trwal Bede...	 
+9. Na Swych Barkach Niose Wam Smierc	 
+10. ....Ktos Ty?
+
+### "In the Glory of Heroes" 2006, Black Metal
+
+1. One Day from Medieval	 
+2. In the Glory of Heroes	 
+3. Baltic Tale	 
+4. Last Moments...	 
+5. In the Depth of Red Sky	 
+6. Thousand Years of Slavery	 
+7. My Hymn From Carpathian Mountains
+
+### "Stos" 2006, Black Metal
+
+1. Dajк Wam Swoj№ Њmierж	 
+2. Zdrada!
+3. W Czarnym Habicie Obіudy	 
+4. Opкtany Przeszіoњci№	 
+5. Przyrzekam Wam...
+6. Skazany Na Prawdк
+
+### "966" 2007, Black Metal
+
+1. Krucjata	 
+2. 966	 
+3. Ostatnia Wola	 
+4. W Blasku Gasnacej Pochodni	 
+5. Krzuk Stali	 
+6. Perunia	 
+7. Zgubna Nowina	 
+8. U Bram Obledu
+
+### "Neoheresy" 2008, Black Metal
+
+1. Taran
+2. Herezja
+3. Gdy Umiera Swit	 
+4. Milczace Sumienie	 
+5. Choragiew Ktora Splonie	 
+6. Sredniowieczna Egzekucja
+
+### "Od Poludnia na Polnoc..." 2009, Black Metal
+
+1. Od Poіudnia na Pуіnoc...
+2. The Day of Sorrow	 
+3. Znak do Bitwy	 
+4. World of Neoheresy	 
+5. Moc odrodzenia	 
+6. Јuna	 
+7. Gaі№џ i sznur
+
+### "Kry" 2009, Black Metal
+
+1. Kry	 
+2. Glуd	 
+3. Powiedz Mi...	 
+4. Kraina Mgiel	 
+5. Rzucone na Wiatr	 
+6. Smak Zniewolenia
+
+### "Wiara, nadzieja..., potepienie" 2010, Black Metal
+
+1. Dramatu won	 
+2. Gdy ogien u bram zaplonal	 
+3. Kto zawisnie dzis	 
+4. Wiara, nadzieja..., potepienie	 
+5. Jam glosem niemych	 
+6. Swit zalamania	 
+7. Od zachodu na wschod	 
+	 
+Disc 2
+1. Kry	 
+2. Od poludnia na polnoc	 
+3. Wiara, nadzieja..., potepienie
+
 
 ## Отношения с другими группами
 

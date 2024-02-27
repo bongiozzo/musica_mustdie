@@ -1,9 +1,59 @@
 # Glittertind
 
-Дискография
-"Evige Asatro" 2004, Folk
-"Til Dovre Faller" 2005, Folk
-"Landkjenning" 2009, Folk
+
+
+## Дискография
+
+### "Evige Asatro" 2004, Folk
+
+1: Lindisfarne - 793
+2: Karl den Store
+3: S¬кnner av Norge
+4: En stille morgen - 1349
+5: Fjellheimen gir meg fred
+6: Olav Digre
+7: Nordmannen
+8: Frostriket
+9: Evige Asatro
+10: Se Norges blomsterdal
+11: Om kvelden n¬Цr det m¬кrkner
+12: Skumring
+13: Norges Skaal
+
+
+"Glittertind - Evige Asatro" was recorded in Studio Jotunheim.
+It was produced, mixed and mastered by Torbj©Єrn Sandvik during
+2001-2002 (exept "Norges Skaal" which was recorded spring-2004) . 
+Thus this album represents his work as a 16 and 17 year old boy spellbound
+by mother nature and Scandinavian art, culture, tales and traditions...
+
+All instruments played by Torbj©Єrn Sandvik.
+
+Coverartwork and bandlogo by Skrymer.
+
+### "Til Dovre Faller" 2005, Folk
+
+1. For Norge, Kjempers Fodeland
+2. Flaumen gar
+3. Rolandskvadet 
+4. Norge i rodt, hvitt og blatt
+5. Per Spelmanns bane
+6. Svart natt
+7. The Battle of Stiklestad
+
+### "Landkjenning" 2009, Folk
+
+1. Landkjenning 05:06
+2. Nordafjells 05:09 
+3. Varder i brann 04:39
+4. Gеr min eigen veg 02:57
+5. Longships and Mead 04:02  
+6. Glittertind 03:09 
+7. Jeg snшrer min sekk 02:38 
+8. Mot myrke vetteren 04:01
+9. Brede seil over Nordsjш gеr 02:49
+10. Overmеte full av nеde 02:01 
+
 
 ## Отношения с другими группами
 

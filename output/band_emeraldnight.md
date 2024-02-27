@@ -1,9 +1,59 @@
 # Emerald Night
 
-Дискография
-"Forestgothic" 2005, Black Metal
-"Magna Voce Per Umbras" 2008, Black Metal
-"Зеркало Троллей" 2011, Black Metal
+
+
+## Дискография
+
+### "Forestgothic" 2005, Black Metal
+
+Part 1. Symphony Shadows 
+1. Intro. The Moon. 1997 
+2. First Shade. 1999 
+3. Second Shade. 2001 
+4. Third Shade. 2003 
+Part 2. Dark Natures 
+5. Vamperos. Traits Of Night Dreaming 
+6. Glimmering Small Fire 
+7. Childhood's End (Iron Maiden Cover) 
+8. Awakening Before The Down 
+9. Vamperos. Dumb Desire
+
+
+Recorded at Scald rec. Studio 2005 
+НОЧНАЯ МГЛА - Lead & rhythm Guitars, Bass, Nocturnal and Tenor Voices 
+ЛЕТНИЙ СВЕТ - Solo Guitar in track 1 
+LUNA LISE - Moonsorrow song 
+ROZIEL - Vampiric screams in Part 1 
+Session performer: KARRY (ex-Scald, ex-Tumulus) - Solo Guitars 
+Первая часть на русском.
+Вторая - на английском.
+
+### "Magna Voce Per Umbras" 2008, Black Metal
+
+1 Intro 
+2 Land Of Eternal Summer 
+3 Treasures Of Lunar Shade 
+4 Blacksmith 
+5 Roads Of Fear In Darkness 
+6 Fog Of Trolls 
+7 Time For Blossom (Opera In Phantom) 
+8 Norna 
+9 Дракон (Мельница Cover)
+
+
+### "Зеркало Троллей" 2011, Black Metal
+
+1. Проклятое Зеркало (Cursed Mirror)
+2. Лесная Песнь (Forest Song)
+3. На Север! (To the North!)
+4. Кузнец (Blacksmith) 
+5. Ледяное Сердце (Icy Heart)
+6. Туман Троллей (Fog of Trolls)
+7. Лучина (В Дорогу!) (Chip for the Way)
+8. Выше Неба (Septic Flesh cover)
+9. Страна Фей (Butterfly Temple cover)
+10. Веда Рода (Ashen Light cover) 
+
 
 ## Отношения с другими группами
 

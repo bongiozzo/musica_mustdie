@@ -1,9 +1,29 @@
 # Rigorism
 
-Дискография
-"Human Fear" 2004, Death Metal
-"Cold & Pain" 2006, Death Metal
-"The Source Of Suffering" 2009, Death Metal
+death-metal
+
+## Дискография
+
+### "Human Fear" 2004, Death Metal
+
+
+
+### "Cold & Pain" 2006, Death Metal
+
+1. Place For Rest (R.I.P.) 04:53  
+2. Nude Is Good 03:14  
+3. Drunker 03:32  
+4. Cold And Pain 03:30  
+5. Numb Existance 03:29
+6. Wash Your Soul! 03:34
+7. On The Threshold 04:58
+8. Blinded By Visions 04:00
+9. Son Of Death 01:33 
+
+### "The Source Of Suffering" 2009, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

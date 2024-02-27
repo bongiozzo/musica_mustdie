@@ -1,7 +1,24 @@
 # Spitfire
 
-Дискография
-"Time and Eternity" 2010, Heavy Metal
+
+
+## Дискография
+
+### "Time and Eternity" 2010, Heavy Metal
+
+1. Spirits of the Mountain
+2. One Night with Mephisto
+3. Time and Eternity
+4. Black Widow
+5. The Challenge
+6. (Un)holy War
+7. Escape from Babylon
+8. Soul Trader
+9. Boys' Riot
+10. Alone in the Rain
+11. Limbo
+12. Rock Commando
+
 
 ## Отношения с другими группами
 

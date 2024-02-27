@@ -1,8 +1,31 @@
 # Black September
 
-Дискография
-"The Forbidden Gates Beyond" 2010, Death Metal
-"Into The Darkness, Into The Void" 2012, Death Metal
+
+
+## Дискография
+
+### "The Forbidden Gates Beyond" 2010, Death Metal
+
+1. The Forbidden Gates Beyond  06:16
+2. Creation Of Chaos  04:32
+3. Hallow Of Decay (instrumental) 01:17
+4. Tyrants  06:42
+5. Tombs  03:55 
+6. The Absence Of Life And Death  06:14
+7. Unleashed  07:09
+
+### "Into The Darkness, Into The Void" 2012, Death Metal
+
+1. Into the Darkness
+2. Solitude
+3. Rabid Hunger
+4. Cursed
+5. Invocation
+6. Beyond the Realms
+7. Defiance
+8. Unhallowed Ground
+9. No Return
+
 
 ## Отношения с другими группами
 

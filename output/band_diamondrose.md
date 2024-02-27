@@ -1,7 +1,13 @@
 # Diamond Rose
 
-Дискография
-"I'm So Tired To Wait [demo]" 2008, Glam
+
+
+## Дискография
+
+### "I'm So Tired To Wait [demo]" 2008, Glam
+
+
+
 
 ## Отношения с другими группами
 

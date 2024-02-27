@@ -1,7 +1,13 @@
 # Maso
 
-Дискография
-"Insanity Over Reality" 2000, Thrash
+
+
+## Дискография
+
+### "Insanity Over Reality" 2000, Thrash
+
+
+
 
 ## Отношения с другими группами
 

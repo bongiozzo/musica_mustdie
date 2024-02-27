@@ -1,7 +1,39 @@
 # Mussorgski
 
-Дискография
-"In Harmony With The Universe" 1996, Death Metal
+
+
+## Дискография
+
+### "In Harmony With The Universe" 1996, Death Metal
+
+1. Aliens - Contact With High
+  Intelligence
+2. Ice In My Heart
+3. Epsilon Civilisation 2013
+4. Spirit Of Unknown Being
+5. To Wisdom Coming From The
+  Cosmic Space
+6. In Harmony With The Universe
+7. New York - Miami
+8. H.H.G. (The Scientific Research)
+9. Lotus Eaters
+10. My Own God
+11. In Fear Of Nonentity
+12. Remembrance Of Dying Planet
+13. Victim (She Lives In A Grave)
+14. Near Encounters With 5th Measure
+15. Aliens
+
+All songs written by MUSSORGSKI
+Engineered by Czacha and
+MUSSORGSKI
+Recorded and mixed at Tuba Studio
+
+MUSSORGSKI is: Korzon, Messiah,
+Lewy
+
+(p)(c) 1996 MORBID MADNESS Production
+
 
 ## Отношения с другими группами
 

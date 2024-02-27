@@ -1,12 +1,62 @@
 # Bad Habit
 
-Дискография
-"Young & Innocent" 1987, Hard Rock
-"After Hours" 1989, Hard Rock
-"Revolution" 1995, Hard Rock
-"Adult Orientation" 1998, Hard Rock
-"[hear-say]" 2005, Hard Rock
-"Atmosphere" 2011, Hard Rock
+melodic hard
+
+## Дискография
+
+### "Young & Innocent" 1987, Hard Rock
+
+
+
+### "After Hours" 1989, Hard Rock
+
+
+
+### "Revolution" 1995, Hard Rock
+
+
+
+### "Adult Orientation" 1998, Hard Rock
+
+
+
+### "[hear-say]" 2005, Hard Rock
+
+1. To Love You 
+2. I Swear 
+3. ALL That I Want 
+4. Walk of Life 
+5. Reason 
+6. Alive 
+7. I Want To Know 
+8. Take Control 
+9. Tell Me Way 
+10. I'll Be The One 
+11. I Can't Help Myself 
+12. The Air That I Breathe 
+
+Bax Fehling - vocals 
+Hal Marabel - guitar and keys 
+Sven Cirncki - guitar 
+Patrick Sodergren - bass 
+Jaime Salazar - drums
+
+### "Atmosphere" 2011, Hard Rock
+
+1. In the Heat of the Night 
+2. Words Are Not Enough 
+3. Everytime You Cry 
+4. I Wanna Be the One 
+5. I'll Die For You 
+6. Angel Of Mine 
+7. Fantasy 
+8. We Are One 
+9. One Time Will Tell 
+10. Break the Silence 
+11. Save Me 
+12. Catch Me Will I Fall 
+13. Without You 
+
 
 ## Отношения с другими группами
 

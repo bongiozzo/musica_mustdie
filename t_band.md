@@ -1,8 +1,14 @@
 # {{{band}}}
 
-Дискография
+{{{description}}}
+
+## Дискография
+
 {{#albums}}
-"{{{album}}}" {{{album_year}}}, {{{style_ai}}}
+### "{{{album}}}" {{{album_year}}}, {{{style_ai}}}
+
+{{{songs}}}
+
 {{/albums}}
 
 ## Отношения с другими группами

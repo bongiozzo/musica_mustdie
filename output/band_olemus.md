@@ -1,11 +1,58 @@
 # Olemus
 
-Дискография
-"Bitter Tears" 1996, Black Metal
-"Psycho-Path" 1998, Black Metal
-"Forever" 2000, Black Metal
-"Passion Fall" 2001, Black Metal
-"EgOd" 2002, Gothic
+austrian black-death-doom metal
+
+## Дискография
+
+### "Bitter Tears" 1996, Black Metal
+
+Innocent And Wretched
+Bitter Tears
+Dreaming
+Forever Gone
+Scared For Live
+Scourge Of Seclution
+Slave Of Arrogance
+Bastards
+Ole-mus
+
+
+### "Psycho-Path" 1998, Black Metal
+
+Soulperish
+Psycho-Path
+Adore
+Cold
+
+
+
+### "Forever" 2000, Black Metal
+
+Forever
+C.U.N.T.
+Discourage
+
+
+
+
+
+
+### "Passion Fall" 2001, Black Metal
+
+
+
+### "EgOd" 2002, Gothic
+
+1. Insane within 
+2. Where we are one 
+3. Es ist ich 
+4. Cursing the light 
+5. Rising 
+6. Adore me 
+7. EgoGod 
+8. Tantalized 
+9. Enter my despair
+
 
 ## Отношения с другими группами
 

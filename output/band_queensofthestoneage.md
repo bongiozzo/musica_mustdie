@@ -1,11 +1,29 @@
 # Queens Of The Stone Age
 
-Дискография
-"Queens Of The Stone Age " 1998, Hard Rock
-"Rated R" 2000, Hard Rock
-"Songs For The Deaf" 2002, Hard Rock
-"Lullabies To Paralyze" 2005, Hard Rock
-"Era Vulgaris" 2007, Hard Rock
+
+
+## Дискография
+
+### "Queens Of The Stone Age " 1998, Hard Rock
+
+
+
+### "Rated R" 2000, Hard Rock
+
+
+
+### "Songs For The Deaf" 2002, Hard Rock
+
+
+
+### "Lullabies To Paralyze" 2005, Hard Rock
+
+
+
+### "Era Vulgaris" 2007, Hard Rock
+
+
+
 
 ## Отношения с другими группами
 

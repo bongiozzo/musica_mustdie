@@ -1,11 +1,29 @@
 # Crossfaith
 
-Дискография
-"The Artificial Theory For The Dramatic Beauty" 2009, Metalcore
-"The Dream, The Space" 2011, Metalcore
-"Zion (EP)" 2012, Metalcore
-"Apocalyze" 2013, Metalcore
-"Xeno" 2015, Metalcore
+
+
+## Дискография
+
+### "The Artificial Theory For The Dramatic Beauty" 2009, Metalcore
+
+
+
+### "The Dream, The Space" 2011, Metalcore
+
+
+
+### "Zion (EP)" 2012, Metalcore
+
+
+
+### "Apocalyze" 2013, Metalcore
+
+
+
+### "Xeno" 2015, Metalcore
+
+
+
 
 ## Отношения с другими группами
 

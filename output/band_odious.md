@@ -1,8 +1,29 @@
 # Odious
 
-Дискография
-"Summoned By Night" 2002, Black Metal
-"Mirror of Vibrations" 2007, Black Metal
+Oriental/Black metal from Egypt
+
+## Дискография
+
+### "Summoned By Night" 2002, Black Metal
+
+1. Silver Sea
+2. Poems Hidden On Black Walls
+3. Invitation To Chaotic Revelation
+4. Upon The Broken Wing
+5. Dilemma
+
+### "Mirror of Vibrations" 2007, Black Metal
+
+1. Silver Sea  01:30   
+2. Poems Hidden On Black Walls  07:35   
+3. Deaf and Blind Witness  06:02  
+4. For the Unknown Is Horrid  07:11   
+5. Invitation to Chaotic Revelation  07:58
+6. Smile In Vacuum Warnings  07:14
+7. Split Punishment  05:11   
+8. Upon the Broken Wings  06:49 
+9. Dilemma  02:06 
+
 
 ## Отношения с другими группами
 

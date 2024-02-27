@@ -1,12 +1,93 @@
 # Severe Torture
 
-Дискография
-"Feasting On Blood" 2000, Death Metal
-"Misanthropic Carnage" 2002, Death Metal
-"Fall Of The Despised" 2005, Death Metal
-"Blood Letting [live]" 2005, Death Metal
-"Sworn Vengeance" 2007, Death Metal
-"Slaughtered" 2010, Death Metal
+
+
+## Дискография
+
+### "Feasting On Blood" 2000, Death Metal
+
+1. Feces For Jesus 03:15
+2. Blood 02:53
+3. Decomposing Bitch 04:49 
+4. Baptized In Virginal Liquid 02:37  
+5. Twist The Cross 03:26  
+6. Butchery Of The Soul 03:42  
+7. Rest In Flames 03:01  
+8. Severe Torture 02:05 
+9. Pray For Nothing 03:38 
+10. Vomiting Christ 04:22 
+
+### "Misanthropic Carnage" 2002, Death Metal
+
+1. Mutilation Of The Flesh 03:14
+2. Meant To Suffer 04:05 
+3. Carnivorous Force 02:48 
+4. Misanthropic Carnage 04:33 
+5. Blinded I Slaughter 03:54 
+6. Impelled To Kill 01:58 
+7. Castrated 04:40 
+8. Forever To Burn 01:42
+9. Your Blood Is Mine 05:25 
+
+### "Fall Of The Despised" 2005, Death Metal
+
+1. Endless Strain Of Cadavers 04:05 
+2. Sawn Off 04:14
+3. Unconditional Annihilation 03:36 
+4. Consuming The Dying 04:27 
+5. Impulsive Mutilation 04:56 
+6. Dead From The Waist Up 03:30 
+7. Decree Of Darkness 03:46 
+8. Enshrined In Madness 05:20 
+9. End Of Christ 05:11] 
+10. Fall Of The Despised 01:14 
+
+### "Blood Letting [live]" 2005, Death Metal
+
+1. Feces for Jesus 03:25
+2. Baptized in Virginal Liquid 02:42 
+3. Decomposing Bitch 05:05 
+4. Impelled to Kill 02:11 
+5. Mutilation of the Flesh 03:14 
+6. Butchery of the Soul 03:48 
+7. Carnivorous Force 02:48
+8. Misanthropic Carnage 04:33
+9. Pray for Nothing 04:08 
+10. Lost Souls (Originally by Pestilence) 03:30  
+11. Till the End 03:03 
+12. Severe Torture 02:12 
+13. Baptized in Virginal Liquid 02:37 
+14. Lambs of a God 02:28
+15. Taking down the Descender 04:02
+
+
+### "Sworn Vengeance" 2007, Death Metal
+
+1. Dismal Perception 02:51
+2. Serenity Torn Asunder 03:27
+3. Fight Something 04:14 
+4. Repeat Offender 03:21
+5. Countless Villans 03:55
+6. Dogmasomatic Nausea 02:50
+7. Redefined Identity 03:29 
+8. Buried Hatchet 03:41 
+9. Sworn Vengeance 05:18
+10. Submerged in Grief 02:52 
+
+
+### "Slaughtered" 2010, Death Metal
+
+1. Grave Condition 04:15
+2. Unholy Misconception 03:39
+3. Deride Jesus 03:43
+4. Defective Fornication 02:53
+5. Slaughtered 03:39
+6. Feeding on Cadavers 04:31
+7. Inferior Divinity 04:36
+8. Incarnation of Impurity 04:12
+9. To Relieve the Mortal Flesh of Pain 01:44  
+10. Swallowing Decay 04:33 
+
 
 ## Отношения с другими группами
 

@@ -1,9 +1,29 @@
 # Neglected Fields
 
-Дискография
-"Synthinity" 1997, Techno Death
-"Mephisto Lettonica" 2003, Techno Death
-"Splenetic" 2006, Techno Death
+techno-death
+
+## Дискография
+
+### "Synthinity" 1997, Techno Death
+
+
+
+### "Mephisto Lettonica" 2003, Techno Death
+
+
+
+### "Splenetic" 2006, Techno Death
+
+1. Intro	 
+2. The Spectator
+3. Teufelswerk
+4. Ov Snake
+5. The Cosm, the Vacuum, the Wave
+6. Splenetic / Confusion
+7. For Those Beneath Me
+8. Triplicity
+9. Khert Neter
+
 
 ## Отношения с другими группами
 

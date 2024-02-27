@@ -1,11 +1,29 @@
 # Motus Tenebrae
 
-Дискография
-"Wayside" 2005, Gothic
-"Soul Expression" 2007, Gothic
-"The Synthetic Bliss" 2009, Gothic
-"Double Black" 2012, Gothic
-"Deathrising" 2016, Gothic
+
+
+## Дискография
+
+### "Wayside" 2005, Gothic
+
+
+
+### "Soul Expression" 2007, Gothic
+
+
+
+### "The Synthetic Bliss" 2009, Gothic
+
+
+
+### "Double Black" 2012, Gothic
+
+
+
+### "Deathrising" 2016, Gothic
+
+
+
 
 ## Отношения с другими группами
 

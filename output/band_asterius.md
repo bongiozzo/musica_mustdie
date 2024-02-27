@@ -1,8 +1,25 @@
 # Asterius
 
-Дискография
-"As Descendants Of Stars..." 2000, Black Metal
-"A Moment of Singularity" 2003, Black Metal
+Avantgarde Symphonic Black Metal
+
+## Дискография
+
+### "As Descendants Of Stars..." 2000, Black Metal
+
+
+
+### "A Moment of Singularity" 2003, Black Metal
+
+Frozen Zodiac
+On Black Tusk 
+A Greater Path 
+Another Me 
+Multiverse 
+The One Perspective 
+Gemini North 
+Continuum 
+One Perspective (A Different Perspective remix)
+
 
 ## Отношения с другими группами
 

@@ -1,12 +1,33 @@
 # Limp Bizkit
 
-Дискография
-"Couterfeit Coutdown (demo)" 1997, Metal
-"Three Dollar Bill, Y'all$" 1997, Metal
-"Significant Other" 1999, Metal
-"Chocolate Starfish And The Hot Dog Flavored Water" 2000, Rap Metal
-"New Old Songs (remixes)" 2001, Alternative
-"Results May Vary" 2003, Alternative
+energetic group in the fusion of metal, punk and hip-hop / rapcore from Jacksonville, FL
+
+## Дискография
+
+### "Couterfeit Coutdown (demo)" 1997, Metal
+
+
+
+### "Three Dollar Bill, Y'all$" 1997, Metal
+
+
+
+### "Significant Other" 1999, Metal
+
+
+
+### "Chocolate Starfish And The Hot Dog Flavored Water" 2000, Rap Metal
+
+
+
+### "New Old Songs (remixes)" 2001, Alternative
+
+
+
+### "Results May Vary" 2003, Alternative
+
+
+
 
 ## Отношения с другими группами
 

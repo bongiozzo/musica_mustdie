@@ -1,9 +1,45 @@
 # Coram Lethe
 
-Дискография
-"Reminiscence" 2000, Melodic Death Metal
-"The Gates of Oblivion" 2005, Melodic Death Metal
-"...A Splendid Chaos" 2009, Melodic Death Metal
+
+
+## Дискография
+
+### "Reminiscence" 2000, Melodic Death Metal
+
+1. Intro
+2. Heeding Your Heroes (Spill Blood)
+3. Your God Also Cries
+4. Immortal
+5. Reminiscence
+6. Trembling Voice
+7. Cold Winter of Fallen Stars
+
+### "The Gates of Oblivion" 2005, Melodic Death Metal
+
+1. The Angels Fell
+2. Shouts of Cowards
+3. Dying Water Walk With Us
+4. Episode	 
+5. Instinct	 
+6. I, Oblivion	 
+7. Hands of Lies	 
+8. Pain Therapy for a Praying Mantis	 
+9. Ruling Emptiness	 
+10. Sleet (Instrumental)
+
+### "...A Splendid Chaos" 2009, Melodic Death Metal
+
+1. Splendid Chaos
+2. Condamned to Darkness
+3. The Gift of Providence
+4. Mystical Pentagram
+5. Half Identity
+6. Ancient Reflections
+7. Circles and Crosses
+8. Passione della Carne
+9. XI Commandment
+10. Textures of Delight
+
 
 ## Отношения с другими группами
 

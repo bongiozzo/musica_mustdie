@@ -1,13 +1,79 @@
 # Hades
 
-Дискография
-"Resisting Success" 1987, Thrash
-"If At First You Don't Succeed" 1988, Thrash
-"Live On Location" 1991, Thrash
-"Exist To Resist" 1995, Thrash
-"$evior$elf" 1999, Thrash
-"The Downside" 2000, Thrash
-"DamNation" 2001, Thrash
+
+
+## Дискография
+
+### "Resisting Success" 1987, Thrash
+
+ Side One:
+1. The Leaders ? 4.31
+2. On To Iliad 2.58
+3. Legal Tender 2.10
+4. Sweet Revenge 3.52
+5. Night Stalker 5.33
+ Side Two:
+1. Resist Success 3.50
+2. Widow's Mite 3.29
+3. The Cross 3.45
+4. Masque Of The Red Death 8.55
+
+Jimmy Schulman - Bass
+Alan Tecchio - Vocals
+Tom Coombs - Drums
+Scott LePage - Guitars
+Dan Lorenzo - Guitars
+
+(p) 1986 TORRID Records
+(c) 1987 ROADRUNNER Records
+
+### "If At First You Don't Succeed" 1988, Thrash
+
+
+
+### "Live On Location" 1991, Thrash
+
+
+
+### "Exist To Resist" 1995, Thrash
+
+
+
+### "$evior$elf" 1999, Thrash
+
+1 Saviorself (Hades) 
+2 Decline & Fall Of The American Empire (Hades) 
+3 Our Father (Hades) 
+4 Active Contrition (Hades) 
+5 To Know One (Hades) 
+6 In The Words Of The Profit (Hades) 
+7 Agnostic (Hades) 
+8 Y2K (Hades) 
+9 End Of The Bargain (Hades) 
+10 Fail (Hades) 
+11 Atheist (Hades) 
+
+
+### "The Downside" 2000, Thrash
+
+1 Gound Zero N.Y.C. 4:14 (Hades) 
+2 Align the Planets 4:02 (Hades) 
+3 Bitter Suite #1 3:12 (Hades) 
+4 Hoax 4:02 (Hades) 
+5 Pay the Price 2:12 (Hades) 
+6 Hail to the Thief 3:01 (Hades) 
+7 Shove It 3:17 (Hades) 
+8 It's a Wonderful Lie 4:08 (Hades) 
+9 Become Dust 3:46 (Hades) 
+10 Responsible 4:25 (Hades) 
+11 Me That Might Have Been 3:32 (Hades) 
+12 Gound Zero (Reprise) 1:22 (Hades) 
+
+
+### "DamNation" 2001, Thrash
+
+
+
 
 ## Отношения с другими группами
 

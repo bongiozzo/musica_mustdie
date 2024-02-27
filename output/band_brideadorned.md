@@ -1,7 +1,13 @@
 # Bride Adorned
 
-Дискография
-"Blessed Stillness?" 2004, Power Metal
+
+
+## Дискография
+
+### "Blessed Stillness?" 2004, Power Metal
+
+
+
 
 ## Отношения с другими группами
 

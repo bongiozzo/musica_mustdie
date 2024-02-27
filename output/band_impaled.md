@@ -1,10 +1,101 @@
 # Impaled
 
-Дискография
-"From Here to Colostomy" 1999, Deathcore
-"The Dead Shall Dead Remain" 2000, Grindcore
-"Death After Life" 2005, Deathcore
-"The Last Gasp" 2007, Deathcore
+(American gore-metal)
+
+## Дискография
+
+### "From Here to Colostomy" 1999, Deathcore
+
+1. The Immaculate Defecation 
+2. Flesh & Blood 
+3. Fecal Rites 
+4. From Here to Colostomy 
+
+Recorded by Mauricio Acevedo at DigitSound Studios. Mastered by Mauricio Acevedo. 
+
+All music and Arrangements by Impaled.  
+
+Line-up: 
+Leon del Muerte: Guitar/Vocals 
+Sean Mcgrath: Guitar/Vocals 
+Ross Sewage: Bass 
+Raul Varela: Drums 
+
+
+  
+ 
+
+### "The Dead Shall Dead Remain" 2000, Grindcore
+
+1. Introduction 
+2. Fжces of Death 
+3. Flesh & Blood 
+4. Trocar 
+5. Spirits of the Dead 
+6. Immaculate Defecation 
+7. Fжcal Rites 
+8. Back to the Grave 
+9. All That Rots 
+10. Gorenography 
+11. Blood Bath 
+ 
+Recorded by Mauricio Acevedo at DigitSound Studios. Mastered by James Murphy at SoundTemple.  
+All music and Arrangements by Impaled.  
+
+Line-up: 
+Leon del Muerte: Guitar/Vocals 
+Sean Mcgrath: Guitar/Vocals 
+Ross Sewage: Bass/Vocals 
+Raul Varela: Drums 
+
+
+
+
+### "Death After Life" 2005, Deathcore
+
+1. Goreverture; 
+2. Mondo Medicale; 
+3. Gutless; 
+4. Theatre Of Operations; 
+5. Preservation Of Death; 
+6. Wrought In Hell; 
+7. Resurrectionists; 
+8. Critical Condition; 
+9. The Dead Shall Dead Remain; 
+10. Medical Waste; 
+11. Dead Alive; 
+12. Coda Morte
+
+All songs written by IMPALED
+Produced by Trey Spruance and IMPALED
+Engineered by Trey Spruance, Billy Anderson and Randall Dunn
+Recorded and mixed at Take Root Studios, San Francisco, CA
+
+Ross Sewage - Registered Nut
+Sean McGrath - Medical Deviant
+Jason Kocol - Emergency Metal Technician
+Raul Varela - Doctor Of Dissolute Science
+
+Additional Personnel:
+Timb Harris - Violin and Viola
+Tim Smolens - Cello
+Trey Spruance - Guitars, Keyboards
+Jerry Neumann - Voice-Over
+
+### "The Last Gasp" 2007, Deathcore
+
+01. G.O.R.E.
+02. Sickness Is Health
+03. The Visible Man
+04. You Are The Dead
+05. All Gut, No Glory
+06. Up The Dose
+07. Torture Of Duty
+08. Masters Of Ordure
+09. Right To Die
+10. Dawn Of The Dread
+11. The Last Gasp
+
 
 ## Отношения с другими группами
 

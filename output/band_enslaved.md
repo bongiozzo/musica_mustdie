@@ -1,25 +1,309 @@
 # Enslaved
 
-Дискография
-"Hordanes Land" 1993, Viking Metal
-"Frost" 1994, Viking Metal
-"Vikingligr Veldi" 1994, Viking Metal
-"Yggdrasil (demo re-issued)" 1996, Viking Metal
-"Eld" 1997, Viking Metal
-"Blodhemn" 1998, Viking Metal
-"Mardraum - Beyond the Within" 2000, Viking Metal
-"Monumension" 2002, Viking Metal
-"Below the Lights" 2003, Viking Metal
-"Isa" 2004, Viking Metal
-"Ruun" 2006, Viking Metal
-"Vertebrae" 2008, Viking Metal
-"Axioma Ethica Odini " 2010, Viking Metal
-"The Sleeping Gods (EP)" 2011, Viking Metal
-"Thorn (single)" 2011, Viking Metal
-"RIITIIR" 2012, Alternative
-"In Times" 2015, Alternative
-"Storm Son (single)" 2017, Alternative
-"E" 2017, Alternative
+Viking Metal from Norway
+
+## Дискография
+
+### "Hordanes Land" 1993, Viking Metal
+
+1. Slaget I Skogen Bortenfor
+2. Epilog
+3. Slaget
+4. Allafqцr Oцinn
+5. Balfqr
+6. Andi Fara
+7. Prologr
+
+ Trym - Drums & Acc. Percussion
+ D. Ymer  - Guitars, Keyboards
+ Earl Grutle - Vocals & Bass
+
+All Songs Written By Peersen
+Produced By K.U., K.B.B., R.T. & ENSLAVED
+Engineered By K. Ulland, K.B. Bjorkhaug & R. Torsen
+Recorded At Lydloflet, Olen, During Week 40/41 1992
+
+(p)&(c) 1993 CANDLE LIGHT Records
+
+### "Frost" 1994, Viking Metal
+
+1. Frost (2:52)
+2. Loke (4:21)
+3. Fenris (7:17)
+4. Svarte Fidder (8:43)
+5. Yggdrasil (5:24)
+6. Jotunblod (4:07)
+7. Gylfaginning (5:32)
+8. Wotan (4:13)
+9. Isцders Dronning (7:45) 
+
+(P)&c 1994 Osmose Productions OPCD 025
+
+### "Vikingligr Veldi" 1994, Viking Metal
+
+1. Lifandi Lif Undir Hamri
+2. Vetranott
+3. Midgards Eldar
+4. Norvegr
+
+ Grutte Kjellson - Vocals, Bass
+ Ivar Bjornson - Guitars, Electronics & Piano
+ Trym Torson - Drums, Percussion
+
+Music & Lyrics by Ivar
+Produced by Erik Hundvin & ENSLAVED
+Engineered by Rytten & Davin
+Recorded During 1993-1994
+
+(p)(c) 1994 VOICES OF WONDER
+
+### "Yggdrasil (demo re-issued)" 1996, Viking Metal
+
+1. Heimdallr
+2. Alfqdr Odinn
+3. Hal Valr
+4. Niunda Heim
+5. "The Winter Kingdom" Opus I: Resound of Gjallarhorn
+6. Enslaved
+
+Recorded and Mixed at Micro Music,1992
+Engineered by S. Sjoen
+Produced by ENSLAVED / S. Sjoen
+Mixed by S. Sjoen and Daimonion
+
+H.M. Daimonion - Chainsaw and Synthetics
+Earl Grotle - Vulcanizing / Vox
+Trym, Lord Of Mayhem - Apocalypse / Perc.
+
+(P)c 1996 MOONFOG PROD // FOG 009
+
+### "Eld" 1997, Viking Metal
+
+1. 793 (Slaget Om Lindisfarne)
+2. Hordalendingen
+3. Alfablot
+4. Kvasirs Blod
+5. For Lenge Siden
+6. Glemt
+7. Eld
+
+
+### "Blodhemn" 1998, Viking Metal
+
+1. Audhumla
+2. I Lenker til Ragnarok
+3. Urtical Gods
+4. Ansuz Astral
+5. Nidingaslakt
+6. Eit Auga til Mimir
+7. Blodhemn
+8. Brisinghamen
+9. Suttungs Mjшd
+10.Perkulator
+
+
+### "Mardraum - Beyond the Within" 2000, Viking Metal
+
+Larger Than Time - Heavier Than Night (Stшrre enn Tid - Tyngre enn Natt)
+Deadhymn (Daudningekvida)
+Entrance - Escape 
+The Hive (Ormgard)
+Aege's Dream (Жges Draum)
+Nightmare (Mardraum)
+The Ending Empire (Det Endelege Riket)
+The Hive II - Strangled by Purity (Ormgard II - kvalt i kysk hшgsong)
+Warrior Unknown (Krigaren eg ikkje kjende)
+StarHome (Stjerneheimen)
+Freya's Necklace (Frшyas Smykke)
+
+
+
+
+### "Monumension" 2002, Viking Metal
+
+1. Convoys to Nothingness 07:57 
+2. The Voices 06:07 
+3. Vision: Sphere of the Elements - A Monument Part II 04:58
+4. Hollow Inside 05:38 
+5. The Cromlech Gate 06:55  
+6. Enemy I 05:16
+7. Smirr 04:26  
+8. The Sleep: Floating Diversity - A Monument Part III 08:12  
+9. Outro: Self-Zero 03:08  
+10. Sigmundskvadet 06:57 
+
+
+Line-up:
+Ivar Bjшrnson: Guitar, Keyboards
+Grutle Kjellson: Bass, Vocals
+Richard Kronheim: Guitar
+Dirge Rep: Drums
+
+Guest musicians:
+Trygve Mathiesen - Lead vocals on "Hollow Inside"
+Dennis Reksten - MiniMoog, Vocoder, synths/effects.
+
+### "Below the Lights" 2003, Viking Metal
+
+1. As Fire Swept Clean the Earth
+2. The Dead Stare
+3. The Crossing
+4. Queen of Night
+5. Havenless
+6. Ridicule Swarm
+7. A Darker Place
+
+
+Ivar P. - Keyboards, Effects
+Grutle Kjellson - Vocals, Bass
+Arve Isdal - Lead-Guitar
+
+Guest Musiciants:
+
+Dirge Rep - Drums
+Dennis Reksten - Effects
+Inge Rypdal - Lead-Guitar on "A Darker Place"
+Gina Torgnes - Cello on "Queen Of Night"
+
+
+### "Isa" 2004, Viking Metal
+
+01. Intro: Green Reflection 
+02. Lunar Force 
+03. Isa 
+04. Ascension 
+05. Bounded By Allegiance 
+06. Violet Dawning 
+07. Return To Yggdrasil 
+08. Secrets Of The Flesh 
+09. Neogenesis 
+10. Outro: Communion
+
+
+
+
+### "Ruun" 2006, Viking Metal
+
+1. Entroper 06:21  
+2. Path to Vanir 04:25
+3. Fusion of Sense and Earth 05:00 
+4. Ruun 06:49  
+5. Tides of Chaos 05:16
+6. Essence 06:18  
+7. Api-Vat 06:57  
+8. Heir to the Cosmic Seed 04:55 
+
+
+Ivar Bjornson: Guitar, Effects
+Grutle Kjellson: Bass, Vocals
+Arve Isdal: Guitar
+Cato Bekkevold: Drums
+Herbrand Larsen: Keyboards, Vocals
+
+### "Vertebrae" 2008, Viking Metal
+
+1. Clouds 06:09  
+2. To the Coast 06:27  
+3. Ground 06:38  
+4. Vertebrae 05:01  
+5. New Dawn 05:23  
+6. Relections 07:45  
+7. Center 07:33  
+8. The Watcher 04:11 
+
+
+### "Axioma Ethica Odini " 2010, Viking Metal
+
+1. Ethica Odini 07:59  
+2. Raidho 06:01  
+3. Waruun 06:42  
+4. The Beacon 05:38  
+5. Axioma 02:20  
+6. Giants 06:37  
+7. Singular 07:43  
+8. Night Sight 07:36  
+9. Lightening 07:51 
+
+
+
+Recorded at three different studios in Bergen, Norway: Duper Studio, Earshot
+Studio and Peersonal Sound Studio.
+
+Cover art by Norwegian artist Truls Espedal.
+
+Available as a special edition in gatefold seven-inch format with the entire
+album on CD and a seven-inch vinyl single as a bonus, as well as a regular jewel
+case and double vinyl. The bonus seven-inch single includes new recordings
+"Jotunblod" and "Migration". 
+
+### "The Sleeping Gods (EP)" 2011, Viking Metal
+
+1. Heimvegen  05:38    
+2. Alu Misyrki  05:02    
+3. Synthesis  06:19    
+4. Nordlys  05:45    
+5. The Sleeping Gods  05:44 
+
+
+Ivar Bjшrnson  Guitars, keyboards  
+Grutle Kjellson  Vocals, bass  
+Arve Isdal  Guitars  
+ato Bekkevold  Drums  
+Herbrand Larsen  Keyboards, vocals, mellotron  
+ 
+
+
+### "Thorn (single)" 2011, Viking Metal
+
+1. Disintegrator 05:21
+2. Striker 05:26
+
+
+### "RIITIIR" 2012, Alternative
+
+01. Thoughts Like Hammers
+02. Death In The Eyes Of Dawn
+03. Veilburner
+04. Roots Of The Mountain
+05. Riitiir
+06. Materal
+07. Storm Of Memories
+08. Forsaken
+
+### "In Times" 2015, Alternative
+
+1. Thurisaz Dreaming  08:13   
+2. Building with Fire  08:49   
+3. One Thousand Years of Rain  08:13   
+4. Nauthir Bleeding  08:10   
+5. In Times  10:44  
+6. Daylight  08:56 
+
+Additional experimentation and sonic exploration appearing on this album was conducted deep in the woods of Valevеg south of Bergen where a mobile studio recorded additional sounds.
+
+Imagined and written from November 2013 to October 2014
+Mixed & Mastered at Fascination Street Studios, Цrebro, Sweden October 2014 
+Recorded at Duper & Solslottet Studios Earshot & Conclave Studios Peersonal Sound in Bergen and Tveita Lydkokeri, Valevеg, Norway September 2014
+
+
+### "Storm Son (single)" 2017, Alternative
+
+1. Storm Son  10:54  
+
+### "E" 2017, Alternative
+
+1. Storm Son  10:54    
+2. The River's Mouth  05:12    
+3. Sacred Horse  08:12    
+4. Axis of the Worlds  07:49   
+5. Feathers of Eolh  08:06  
+6. Hiindsiight  09:32    
+7. Djupet  07:39 
+8. What Else Is There? (Rцyksopp cover) 04:44 
+
+Recorded at Duper & Solslottet Studios in Bergen, Norway.
+Mixed and mastered at Fascination Street Studios in Цrebro, Sweden.
+
 
 ## Отношения с другими группами
 

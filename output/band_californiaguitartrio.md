@@ -1,8 +1,47 @@
 # California Guitar Trio
 
-Дискография
-"California Guitar Trio" 2002, Instrumental
-"A Christmas Album" 2002, Instrumental
+Instrumental
+
+## Дискография
+
+### "California Guitar Trio" 2002, Instrumental
+
+1. Melrose Avenue
+2. Skyline
+3. Dancing Ann
+4. Heart Of The Sunrise
+5. Hanagasa
+6. Zundoko-Bushi
+7. Blockhead
+8. Dance Of Maya
+9. Swampy Space
+10. Swampy Return
+11. Train To Lamy
+12. Eve
+13. What I Am
+14. The Chase
+
+Produced by Bill Munyon & Pat Mastelotto with the CGT & Tony Levin
+
+### "A Christmas Album" 2002, Instrumental
+
+1.	Carol Of The Bells - Traditional
+2.	Oh Christmas Tree - Traditional
+3.	Greensleeves (What Child Is This?) - Traditional
+4.	Jesu, Joy Of Man&acute;s Desiring – J.S. Bach
+5.	God Rest Ye Merry Gentlemen – Traditional
+6.	Unto Us A Child Is Born – G.F. H&auml;ndel
+7.	Jingle Bells – J. Pierpont
+8.	Merry Christmas Mr. Lawrence – Ryuichi Sakamoto
+9.	Happy Xmas (War Is Over) – John Lennon, Yoko Ono
+10.	Silent Night – F. Gruber
+
+Состав:
+Paul Richards (guitar)
+Bert Lams (guitar)
+Hideyo Moriya (guitar)
+
+
 
 ## Отношения с другими группами
 

@@ -1,10 +1,87 @@
 # Snakes in Paradise
 
-Дискография
-"Snakes in Paradise" 1994, Hard Rock
-"Garden Of Eden" 1998, Hard Rock
-"Yesterday & Today" 2001, Hard Rock
-"Dangerous Love" 2002, Hard Rock
+
+
+## Дискография
+
+### "Snakes in Paradise" 1994, Hard Rock
+
+1. Fly Away 4:08    
+2. The Night Goes On 3:40 
+3. Take Me To The River 3:48    
+4. Somebody To Blame 4:17 
+5. Rather Stand The Rain 3:56 
+6. Deep In Your Heart 3:51 
+7. Book Of My Life 3:44 
+8. When The Dream Is Gone 4:11 
+9. Can't Come Home 4:15   
+10. No Easy Way Out 4:17 
+11. Sweet Sixteen 1:56    
+12. Rewrite The Stroy 4:16 
+13. Love Got Wings 3:31    
+14. How Can You Say 4:13 
+
+### "Garden Of Eden" 1998, Hard Rock
+
+1. Seventh Wonder 4:38    
+2. Don't Let Love Turn To Hate 4:15 
+3. Voice Inside 4:03    
+4. Child Of Yesterday 4:10 
+5. Gypsy In Your Blood 3:51    
+6. Key To Your Heart 4:40 
+7. Hard Day Long 4:42 
+8. Vagabond 4:32 
+9. Can't Let Go 3:41 
+10. Without Love 3:16 
+11. I Want It All 3:35 
+12. Garden Of Eden 5:03   
+
+### "Yesterday & Today" 2001, Hard Rock
+
+1. Book Of My Life (Remix) 3:42 
+2. Love Got Wings 3:30 
+3. Hard Day Long 4:42 
+4. Vagabond 4:33 
+5. Voice Inside 4:02 
+6. Child Of Yesterday 4:10 
+7. Don't Let Love Turn To Hate 4:10 
+8. Trail Back Home 4:30 
+9. Deep In Your Heart 3:52 
+10. When The Dream Is Gone 4:12 
+11. Rewrite The Stroy 4:17 
+12. Fly Away 4:09 
+13. Heart In Flame 4:22 
+14. Play With Fire 3:44 
+15. How Can You Say 4:14 
+16. Gypsy In Your Blood 3:50 
+
+
+### "Dangerous Love" 2002, Hard Rock
+
+1. Come On Join The Party
+2. Dangerous Love
+3. Fire And Rain
+4. Calm Before The Storm
+5. There's Something You Hiding
+6. I Should Have Known Better
+7. Give And Take
+8. Let The New World Surround Us
+9. House Of Fire
+10. Devils Fire
+11. Endless Highway
+12. Move On
+
+All songs written by SNAKES IN PARADISE
+Produced, mixed and recorded by Stefan Bergren and Stefan Jonsson
+Recorded and mixed at Snake Pit Studios, Sweden
+
+Stefan Berggren - Vocals, Backing Vocals
+Thomas Jakobsson - Stefan Jonsson
+Stefan Jonsson - Guitars
+Tomas Thorberg - Bass and Additional Vocals
+Thomas Jansson - Keyboards
+Peter Petterson - Drums, Additional Keyboards
+
 
 ## Отношения с другими группами
 

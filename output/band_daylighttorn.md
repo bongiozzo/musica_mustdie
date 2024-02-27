@@ -1,8 +1,37 @@
 # Daylight Torn
 
-Дискография
-"Death Alone From Life Can Save" 1999, Death Doom
-"New Skin" 2001, Gothic
+
+
+## Дискография
+
+### "Death Alone From Life Can Save" 1999, Death Doom
+
+1. Moments
+2. Desinfection
+3. Calling The End
+4. Falling Christ
+5. Your Love
+6. I Despair
+7. Never Really
+8. Mindless Breed
+9. One Last Summer
+10. Somewhere I Fall
+
+(p) 1999 CCP Records / AMP
+
+### "New Skin" 2001, Gothic
+
+Awake
+End Of Dawn
+Broken
+Real As Rain
+To C.
+Lost In Time
+No Escape
+Sebastian
+Won't Get Out Alive
+Goodbye To Yesterday
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,21 @@
 # Refawn
 
-Дискография
-"Lemur of the Nine" 2009, Techno Death
+
+
+## Дискография
+
+### "Lemur of the Nine" 2009, Techno Death
+
+1. Intro 00:19  
+2. Darkness 05:52  
+3. Mirror of Reality 02:46  
+4. Caligula 07:08  
+5. Flame 02:43  
+6. Joseph Curwen 02:49  
+7. Spell 05:18  
+8. Breath of the Canvas 04:55  
+9. Endowment (Root cover) 04:56 
+
 
 ## Отношения с другими группами
 

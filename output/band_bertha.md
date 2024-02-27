@@ -1,7 +1,38 @@
 # Bertha
 
-Дискография
-"Light And Shadows" 2003, Gothic
+ex- Little dead Bertha
+
+## Дискография
+
+### "Light And Shadows" 2003, Gothic
+
+1. Fighter
+2. I'm Free
+3. Tell Me...
+4. Lost Dreams
+5. April In Paris
+6. Morning Light
+7. Voice Of Madness
+8. Hava Nagila
+9. Beers, Girls and Rock'n'Roll
+10. World Of Damned:
+- Crazy Angel
+- In The World Of Damned
+- Smile Of Snake
+11. The Pain In Your Face
+12. Sign Of Fate
+13. Kalina
+14. Day Of Other Life
+
+
+
+Sergey Galushko - guitars
+Dmitriy Paltcev - drums
+Dmitriy Zamaruev - vocal
+Yuriy Sveshnikov - bass
+Tatyana Voytenko - keyboards
+Svetlana Hodyakova - female vocal
+
 
 ## Отношения с другими группами
 

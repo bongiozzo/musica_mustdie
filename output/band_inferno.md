@@ -1,7 +1,25 @@
 # Inferno
 
-Дискография
-"Utter Hell" 1996, Black Metal
+
+
+## Дискография
+
+### "Utter Hell" 1996, Black Metal
+
+1.  Intro From Hell
+2.  Satanic Overkill
+3.  Tormentor
+4.  Ripping Hell
+5.  Storming Metal
+6.  Infernal Invasion
+7.  Sodom (Burning The Flag)
+8.  Necroslut
+9.  Torment Her
+10.Massacre In Hell
+11.Inferno
+
+(P)(C) 1996 OSMOSE Productions // OPCD 044
+
 
 ## Отношения с другими группами
 

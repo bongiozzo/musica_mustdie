@@ -1,7 +1,24 @@
 # Last In Line
 
-Дискография
-"Heavy Crown" 2016, Hard Rock
+
+
+## Дискография
+
+### "Heavy Crown" 2016, Hard Rock
+
+01. Devil In Me
+02. Martyr
+03. Starmaker
+04. Burn The House Down
+05. I Am Revolution
+06. Blame It On Me
+07. In Flames
+08. Already Dead
+09. Curse The Day
+10. Orange Glow
+11. Heavy Crown
+12. The Sickness
+
 
 ## Отношения с другими группами
 

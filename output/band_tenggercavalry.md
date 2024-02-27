@@ -1,7 +1,23 @@
 # Tengger Cavalry
 
-Дискография
-"Ancient Call" 2014, Black Metal
+Pagan Folk Black Metal from China
+
+## Дискография
+
+### "Ancient Call" 2014, Black Metal
+
+1. Dance with Wolf  01:15   
+2. Galloping Towards the Great Land  04:08  
+3. Battle Song from Far Away  05:58   
+4. Hymn of the Earth  05:01  
+5. Echo of the Grassland  02:07    
+6. Brave  06:12   
+7. Summon the Warrior  05:10  
+8. The Battlefront  02:55  
+9. Chant of the Cavalry  03:54 
+10. Legend on the Horseback  05:11 
+
+
 
 ## Отношения с другими группами
 

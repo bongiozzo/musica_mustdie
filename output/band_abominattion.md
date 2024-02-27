@@ -1,8 +1,36 @@
 # Abominattion
 
-Дискография
-"Rites of the Eternal Hate" 2000, Death Metal
-"Doutrine Of False Martyr" 2004, Death Metal
+Death metal from Brasilia
+
+## Дискография
+
+### "Rites of the Eternal Hate" 2000, Death Metal
+
+1. Rites Of The Eternal Hate
+2. Abomination... Of Creation
+3. Real Glory Revealed
+4. Diabolical Redemption
+5. Burn On Behalf Of God
+6. Hated By The Flames
+7. The Emptiness Of The Flesh
+8. Smell Of Death
+
+### "Doutrine Of False Martyr" 2004, Death Metal
+
+1. Purity In Flames
+2. Reigning In The Impure Blood
+3. Doutrine Of False Martyr
+4. Triumph Of The Impure Ones
+5. The Unholy March
+6. Fallen Angel
+7. Empire In Blasphemy
+8. Hatefull Divine Creation
+9. The Emptiness Of The Flesh - Part II
+
+Bonus tracks:
+10. Eternity’s Defy
+11. Devastated World
+
 
 ## Отношения с другими группами
 

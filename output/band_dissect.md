@@ -1,7 +1,34 @@
 # Dissect
 
-Дискография
-"Swallow Swouming Mass" 1993, Deathcore
+
+
+## Дискография
+
+### "Swallow Swouming Mass" 1993, Deathcore
+
+1. Vanished Into The Void
+2. Exterion Tumours
+3. Gals Of The Eternal Solstice
+4. Z.Day
+5. Presage To The Eternity
+6. Swallow Swouming Mass
+7. Pulsation Mass
+8. Growls Of Death
+9. Spontaneous Diarhoea
+
+ Ricardo Etman - Bass
+ Edwin De Waard - Drums
+ Philip Nugteren - Guitar
+ Vincent Scheerman - Guitar & Vocals
+
+All Music By DISSECT.
+All Lyrics By Vincent & Friends.
+Produced By DISSECT & Han Swagerman.
+Engineered & Mixed By Han Swagerman.
+Recorded At Beaufort Recording Studio,Holland.
+
+(p)&)c) 1993 CYBER MUSIC
+
 
 ## Отношения с другими группами
 

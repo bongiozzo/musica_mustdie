@@ -1,11 +1,39 @@
 # Adrenaline Mob
 
-Дискография
-"Adrenaline Mob (EP)" 2011, Heavy Metal
-"Omerta" 2012, Metal
-"Coverta (EP)" 2013, Metal
-"Men Of Honor" 2014, Metal
-"Dearly Departed (EP)" 2015, Metal
+
+
+## Дискография
+
+### "Adrenaline Mob (EP)" 2011, Heavy Metal
+
+1. Psychosane 
+2. Believe Me 
+3. Hit The Wall 
+4. Down To The Floor 
+5. The Mob Rules
+
+ Russell Allen - lead vocals (SYMPHONY X frontman) 
+ Mike Orlando - lead guitar (SONIC STOMP) 
+ Rich Ward - rhythm guitar (STUCK MOJO/FOZZY) 
+ Paul DiLeo - bass guitar, back vocals 
+ Mike Portnoy - drums, percussion (ex-DREAM THEATER, ex-AVENGED SEVENFOLD)
+
+### "Omerta" 2012, Metal
+
+
+
+### "Coverta (EP)" 2013, Metal
+
+
+
+### "Men Of Honor" 2014, Metal
+
+
+
+### "Dearly Departed (EP)" 2015, Metal
+
+
+
 
 ## Отношения с другими группами
 

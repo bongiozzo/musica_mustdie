@@ -1,10 +1,61 @@
 # Insision
 
-Дискография
-"The Dead Live On" 1999, Death Metal
-"Revelation Of The Sadogod" 2001, Death Metal
-"Beneath the Folds of Flesh" 2002, Death Metal
-"Revealed and Worshipped" 2004, Death Metal
+(Sweden's classic death)
+
+## Дискография
+
+### "The Dead Live On" 1999, Death Metal
+
+1 - CORRIDORS OF BLOOD
+2 - PAEDOPHILIA CUM SADISSIMUS
+3 - THE DEAD LIVE ON
+4 - SHE SPEAKS NO MORE
+5 - EXAGGERATED TORMENT
+
+### "Revelation Of The Sadogod" 2001, Death Metal
+
+INTRO
+1 - BEFORE MY ALTAR
+2 - SADOGOD
+3 - TRAPPED WITHIN
+4 - ZOMBIE RITUAL (DEATH cover)
+5 - THE REVELATION (Outro song)
+
+### "Beneath the Folds of Flesh" 2002, Death Metal
+
+01. World Impaled 
+
+02. Trapped Within 
+
+03. Sado God 
+
+04. Temple of Flesh 
+
+05. Rewind into Chaos 
+
+06. Impamiiz Graa 
+
+07. He's My Fever 
+
+08. Before My Altar 
+
+09. Ex Oblivion
+
+
+### "Revealed and Worshipped" 2004, Death Metal
+
+01. No Belief
+02. The Foul Smell Of Humans
+03. Imminent Vision
+04. In the Gallows
+05. The Cleansing
+06. Revealed and Worshipped
+07. The Unrest
+08. Grotesque Plague Mass
+09. We Did Not Come To Heal
+10. Havoc
+11. The Ideas Of Revolution
+
 
 ## Отношения с другими группами
 

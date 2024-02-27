@@ -1,7 +1,13 @@
 # Balance of Power
 
-Дискография
-"Ten More Tales Of Grand Illusion" 2000, Heavy Metal
+
+
+## Дискография
+
+### "Ten More Tales Of Grand Illusion" 2000, Heavy Metal
+
+
+
 
 ## Отношения с другими группами
 

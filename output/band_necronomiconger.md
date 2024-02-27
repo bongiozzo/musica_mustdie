@@ -1,14 +1,71 @@
 # Necronomicon (Ger)
 
-Дискография
-"Necronomicon" 1986, Thrash
-"Apocalyptic Nightmare" 1987, Thrash
-"Escalation" 1988, Thrash
-"Screams" 1994, Thrash
-"Construction Of Evil" 2004, Thrash
-"Revenge Of The Beast" 2008, Thrash
-"Invictus" 2012, Thrash
-"Pathfinder...Between Heaven And Hell" 2015, Thrash
+
+
+## Дискография
+
+### "Necronomicon" 1986, Thrash
+
+
+
+### "Apocalyptic Nightmare" 1987, Thrash
+
+
+
+### "Escalation" 1988, Thrash
+
+
+
+### "Screams" 1994, Thrash
+
+
+
+### "Construction Of Evil" 2004, Thrash
+
+
+
+### "Revenge Of The Beast" 2008, Thrash
+
+01. Magic Forest
+02. Haunted
+03. Warfare
+04. Nightstalker
+05. On Pain of Death
+06. Blood Sky
+07. Who Dies?
+08. Refugee
+09. Skull & Bone
+10. Commit Suicide
+11. War in the Cradle
+12. One Universe
+
+### "Invictus" 2012, Thrash
+
+01. Invictus (6:45)
+02. Unleashed (4:05)
+03. Bloody bastards (4:03)
+04. Thoughts running free (5:49)
+05. Unconquered (5:56)
+06. Upon black wings (4:40)
+07. Face to the wall (5:16)
+08. Pandora s box (4:42)
+09. Before the curtain falls (4:03)
+10. Possessed by evil (2011) (5:01)
+
+### "Pathfinder...Between Heaven And Hell" 2015, Thrash
+
+01. Pathfinder... Between Heaven And Hell
+02. Betrayed
+03. Inside The Fire
+04. Reborn
+05. Under The Gun
+06. We Are The League
+07. Alone In The Dark
+08. Farewell To A Friend
+09. Monster
+10. Out Of Hell
+11. Killing Pain
+
 
 ## Отношения с другими группами
 

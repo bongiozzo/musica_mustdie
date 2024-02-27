@@ -1,9 +1,71 @@
 # Anal Grind
 
-Дискография
-"Cuntripping" 2004, Grindcore
-"Anal Cannibal" 2007, Grindcore
-"Born to Porn" 2010, Grindcore
+
+
+## Дискография
+
+### "Cuntripping" 2004, Grindcore
+
+1. Intro	 
+2. Pedonecroporno	 
+3. Tornado (Fast Tongue)	 
+4. Cuntriping	 
+5. Tits Fucking 
+6. Anal Bleeding After Long Fuck	 
+7. Rape in Morgue	 
+8. Fucked by Fist	 
+9. Chaos of the Masturbation	 
+10. Old Perdun Which Drochit on Max's Magazine	 
+11. Incect	 
+12. Anal&#224; Cunt&#224;	 
+13. Eater of the Clitor	 
+14. Pee Orgy	 
+15. Shiter		 
+16. Gibon's Fucking	 
+17. Anisa Mudak	 
+18. Outro
+
+### "Anal Cannibal" 2007, Grindcore
+
+1. Intro	 
+2. Anal Cannibal	 
+3. Copro-Climax-Anal-Blast	 
+4. Anal Adventure Of Sperm	 
+5. Prick In A Pig	 
+6. Eat My Shit	 
+7. Schizo-Pedo Slaughter	 
+8. Spermmask	 
+9. Vag.Anal Vomiting	 
+10. Kissing-Pissing 
+11. Spermoid Bastard Homer Simpson	 
+12. Anal Vandal	 
+13. Ass-Cream Pie	 
+14. Analo Italiano	 
+15. Crypto-Rotting Cunt-Mutant
+
+### "Born to Porn" 2010, Grindcore
+
+1. Intro (Bizzare Pissing
+2. Assraiser 
+3. Explosive Anal Churge	 
+4. Cosmetic Copro	 
+5. Anal Stigmat	 
+6. N.A.S.A. (National Anal Sex Association)	 
+7. Anal Crusher	 
+8. Cock Brutality	 
+9. Copro Geyser 
+10. Ass Traffic	 
+11. Bullemia Anus Orgasmus	 
+12. Deep Foecal Anal'ysis 
+13. Clit Cooking	 
+14. Anal Academy	 
+15. Fuckthroat	 
+16. Kakaphonia	 
+17. Oral Torture	 
+18. Porn-O-Normal Phenomenon	 
+19. Sperma-Toxic Cock'tail 
+20. Outro
+
 
 ## Отношения с другими группами
 

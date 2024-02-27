@@ -1,18 +1,205 @@
 # Great White
 
-Дискография
-"On Your Knees" 1982, Heavy Metal
-"Great White" 1984, Heavy Metal
-"Once Bitten ..." 1987, Heavy Metal
-"...Twice Shy" 1989, Heavy Metal
-"Hooked" 1991, Heavy Metal
-"Psycho City" 1992, Heavy Metal
-"Sail Away" 1994, Heavy Metal
-"Let It Rock" 1996, Heavy Metal
-"You Can't Get There from Here" 1999, Heavy Metal
-"Gallery" 2001, Heavy Metal
-"Recover" 2002, Heavy Metal
-"Back To The Rhythm" 2007, Heavy Metal
+
+
+## Дискография
+
+### "On Your Knees" 1982, Heavy Metal
+
+
+
+### "Great White" 1984, Heavy Metal
+
+  1.   Out of the Night (Black/Holland [2]/Kendall/Russell) - 3:00 
+  2.   Stick It - 3:58 
+  3.   Substitute - 4:23 
+  4.   Bad Boys (Black/Holland [2]/Kendall/Niven/Russell) - 4:20 
+  5.   On Your Knees (Black/Dok/Holland [2]/Kendall/Russell) - 3:51 
+  6.   Streetkiller - 3:58 
+  7.   No Better Than Hell (Black/Holland [2]/Kendall/Niven/Russell) - 4:06 
+  8.   Hold On - 4:12 
+  9.   Nightmares - 3:17 
+  10.   Dead End - 3:34 
+
+
+### "Once Bitten ..." 1987, Heavy Metal
+
+  1.   Lady Red Light (Kendall/Lardie/Lardie/Niven/Russell) 
+  2.   Gonna Getcha (Kendall/Lardie/Niven) 
+  3.   Rock Me (Kendall/Lardie/Niven/Russell) 
+  4.   All over Now (Kendall/Lardie/Niven) 
+  5.   Mistreater (Black/Kendall/Niven/Russell) 
+  6.   Never Change Heart (Kendall/Niven/Russell) 
+  7.   Fast Road (Black/Desbrow/Kendall/Lardie/Niven/Russell) 
+  8.   On the Edge (Kendall/Niven/Russell) 
+  9.   Save Your Life (Russell/Williams) 
+
+
+Eddie Ashworth  -  Second Engineer 
+Kendall  -  Producer 
+Lardie  -  Producer, Engineer 
+Michael Lardie  -  Engineer 
+George Marino  -  Mastering 
+Niven  -  Producer 
+John O'Brien  -  Artwork, Concept 
+Neil Zlozower  -  Photography 
+Ron Slenzak  -  Photography 
+
+
+
+### "...Twice Shy" 1989, Heavy Metal
+
+  1.   Move It (Kendall/Lardie/Lardie/Niven/Russell) - 5:35 
+  2.   Heart the Hunter (Kendall/Lardie/Lardie/Niven/Russell) - 4:50 
+  3.   Hiway Nights (Kendall/Lardie/Lardie/Niven/Russell) - 6:00 
+  4.   The Angel Song (Kendall/Niven) - 4:51 
+  5.   Mista Bone (Desbrow/Kendall/Montana/Niven) - 5:10 
+  6.   Baby's on Fire (Kendall/Lardie/Montana/Niven/Russell) - 6:11 
+  7.   House of Broken Love (Lardie/Lardie/Niven/Russell) - 5:58 
+  8.   She Only (Kendall/Lardie/Lardie/Niven/Russell) - 5:23 
+  9.   Once Bitten Twice Shy (Hunter) - 5:22 
+
+
+Eddie Ashworth  -  Engineer 
+Audie Desbrow  -  Drums 
+Mark Kendall  -  Guitar 
+Michael Lardie  -  Guitar, Arranger, Keyboards, Producer, Engineer 
+George Marino  -  Mastering 
+Michael  -  Producer 
+Tony Montana  -  Bass 
+Alan Niven  -  Arranger, Producer, Artwork 
+Jack Russell  -  Vocals 
+Melissa Sewell  -  Assistant Engineer 
+Doug Hyun  -  Photography 
+Bacon, O'Brien Design, Inc.  -  Cover Design 
+
+
+### "Hooked" 1991, Heavy Metal
+
+
+
+### "Psycho City" 1992, Heavy Metal
+
+
+
+### "Sail Away" 1994, Heavy Metal
+
+  1.   A Short Overture (Kendall/Lardie/Montana/Niven/Russell) - 0:37 
+  2.   Mother's Eyes (Cook/Niven/Russell) - 3:34 
+  3.   Cryin' (Kendall/Lardie/Niven/Russell) - 4:39 
+  4.   Momma Don't Stop (Cook/Lardie/Niven) - 3:46 
+  5.   Alone (Kendall/Lardie/Niven/Russell) - 5:43 
+  6.   All Right (Lardie/Niven) - 4:33 
+  7.   Sail Away (Kendall/Niven) - 4:47 
+  8.   Gone With the Wind (Lardie/Niven) - 5:01 
+  9.   Livin' in the U.S.A. (Lardie/Niven/Russell) - 5:32 
+  10.   If I Ever Saw a Good Thing (White) - 4:23 
+
+
+Clarence Clemons  -  Saxophone 
+Ken Hensley  -  Equipment Technician 
+Roy Burns  -  Equipment Technician 
+Biff Dawes  -  Engineer 
+Audie Desbrow  -  Drums 
+Mark Kendall  -  Guitar, Harmony Vocals, Gut String Guitar 
+Michael Lardie  -  Banjo, Guitar, Percussion, Arranger, Keyboards, Producer, Engineer, Harmony Vocals, Sitar (Electric), Electric Sitar 
+George Marino  -  Mastering 
+Alan Niven  -  Percussion, Arranger, Guitar (12 String), Producer, Guitar (12 String Electric) 
+Jack Russell  -  Vocals 
+Suzie Katayama  -  Cello 
+Skiles  -  Design 
+K. Lee Hammond  -  Art Direction 
+Phillip Kneebone  -  Engineer 
+Doug Field  -  Engineer 
+Dennis Mays  -  Engineer 
+Joe Wright  -  Equipment Technician 
+Jeff Bender  -  Photography 
+Teddy Cook  -  Bass, Guitar, Harmony Vocals 
+Jared Johnson  -  Engineer 
+Louis Adamo  -  Equipment Technician 
+
+
+### "Let It Rock" 1996, Heavy Metal
+
+
+
+### "You Can't Get There from Here" 1999, Heavy Metal
+
+  1.   Rollin' Stoned (Blades/Lardie) - 4:09 
+  2.   Ain't No Shame - 4:19 
+  3.   Silent Night - 4:50 
+  4.   Saint Lorraine - 4:05 
+  5.   In the Tradition - 2:59 
+  6.   Freedom Song - 4:36 
+  7.   Gone to the Dogs - 2:42 
+  8.   Wooden Jesus - 4:24 
+  9.   Sister Mary - 4:55 
+  10.   Loveless Age - 5:23 
+  11.   Psychedelic Hurricane - 4:15 
+  12.   Hey Mister - 5:08 
+
+
+ 
+Don Dokken  -  Producer 
+Jack Blades  -  Vocals (bckgr), Producer 
+Audie Desbrow  -  Drums 
+Noel Golden  -  Mixing 
+Mark Kendall  -  Guitar, Percussion, Vocals (bckgr) 
+Ken Koroshetz  -  Assistant Engineer 
+Michael Lardie  -  Guitar, Percussion, Keyboards, Vocals (bckgr), Engineer 
+Jack Russell  -  Percussion, Vocals, Vocals (bckgr), Cover Art Concept 
+Jim Warren  -  Cover Art 
+Sean McNabb  -  Guitar (Bass) 
+David Donnelly  -  Mastering 
+Hooshik  -  Art Direction 
+Stephen Stickler  -  Photography 
+Audi Desbrcw  -  Drums (Snare) 
+Rob Easterday  -  Assistant Engineer 
+Paul McPhee  -  Cover Art Concept, Cover Art 
+
+
+### "Gallery" 2001, Heavy Metal
+
+
+
+### "Recover" 2002, Heavy Metal
+
+01. Love Removal Machine
+02. Again And Again
+03. Ready For Love
+04. Bitches And Other Women
+05. Tangled Up In Blue
+06. Burning House Of Love
+07. Sin City
+08. No Matter What
+09. Fire And Water
+10. Down At The Doctor
+11. Lady Love 
+
+### "Back To The Rhythm" 2007, Heavy Metal
+
+1. Back To The Rhythm
+2. Here Goes My Head Again
+3. Take Me Down
+4. Play On
+5. Was It The Night?
+6. I?m Alive
+7. Still Hungry
+8. Standin? On The Edge
+9. How Far Is Heaven?
+10. Neighborhood
+11. 30 Days In The Hole
+12. Just Yesterday
+
+Jack Russell - vocals
+Mark Kendall - guitar
+Michael Lardie - guitar, keys, harmonica,
+percussion
+Audie Desbrow - drums, percussion
+Sean Mcnabb - bass
+
+
+
 
 ## Отношения с другими группами
 

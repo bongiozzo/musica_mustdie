@@ -1,7 +1,13 @@
 # Mangog
 
-Дискография
-"Mangog Awakens" 2017, Doom
+
+
+## Дискография
+
+### "Mangog Awakens" 2017, Doom
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,13 +1,129 @@
 # Solitude Aeturnus
 
-Дискография
-"Into The Depths Of Sorrow" 1991, Doom
-"Beyond The Crimson Horizon" 1992, Doom
-"Through The Darkest Hour" 1994, Doom
-"Downfall" 1996, Doom
-"Adagio" 1999, Doom
-"Alone" 2006, Doom
-"Hour Of Despair (DVD)" 2007, Doom
+
+
+## Дискография
+
+### "Into The Depths Of Sorrow" 1991, Doom
+
+1. Dawn Of Antiquity     1.01
+2. Opaque Divinity     6.24
+3. Transcending Sentinels    7.30
+4. Dream Of Immortality    7.48
+5. Destiny Falls To Ruin    5.03
+6. White Ship     6.10
+7. Mirror Of Sorrow     7.34
+8. Where Angels Dare To Tread    5.56
+
+ Robert Lowe - Vocals, Keyboards
+ John Perez - Guitars
+ Edgar Rivera - Guitars
+ Lyle Steadham - Bass
+ John Covington - Drums
+
+All Songs By SOLITUDE AETURNUS
+Produced By SOLITUDE AETURNUS & Danny Brown
+Engineered By Tim Kimsley
+
+(p)&(c) 1991 ROADRUNNER Records
+
+### "Beyond The Crimson Horizon" 1992, Doom
+
+1.  Seeds Of The Desolate
+2.  Black Castle
+3.  The Final Sin
+4.  It Came Upon One Night
+5.  The Hourglass
+6.  Beneath The Fading Sun
+7.  Plague Of Procreation
+8.  Beyond ...
+
+(P)c 1992 ROADRUNNER Records
+
+### "Through The Darkest Hour" 1994, Doom
+
+1. Falling
+2. Haunting The Obscure
+3. The 8-th Day: Mourning
+4. The 9-th Day: Awakening
+5. Pain
+6. Pawns Of Anger
+7. Eternal (Dreams Part 2)
+8. Perfect Insanity
+9. Shattered My Spirit
+
+ John Perez - Guitars
+ Lyle Steadham - Bass
+ Robert Lowe - Vocals, Keyboards
+ Wolf - Drums
+ Edgar Rivera - Guitars
+
+All Songs By SOLITUDE AETURNUS
+Produced By SOLITUDE AETURNUS & Paul Johnson
+Engineered By Paul Johnson
+Recorded May 1994 At Rhythm Studios, Bitford On Avon, Warwickshire, England
+
+(p)&(c) 1994 PAVEMENT Records
+
+
+### "Downfall" 1996, Doom
+
+1.  Phantoms
+2.  Only This (And Nothing More)
+3.  Midnight Dreams
+4.  Together And Wither
+5.  Elysium
+6.  Deathwish
+7.  These Are The Nameless
+8.  Chapel Of Burning
+9.  Concern
+
+John Perez - Guitars
+Count Lyle - Bass
+Robert Lowe - All Vocals
+Wolf - Percussion
+Edgar Rivera - Guitars
+
+All Songs By SOLITUDE AETURNUS
+Produced By SOLITUDE AETURNUS & Dave Osbourn.
+Engineered By Dave Osbourn.
+Recorded At Regal Studios, Dallas, Texas.
+
+(p)c 1996 PAVEMENT Records
+
+### "Adagio" 1999, Doom
+
+1. My Endtime
+2. Days Of Prayer
+3. Believe
+4. Never
+5. Idis
+6. Personal God
+7. Mental Pictures
+8. Insanity's Circles
+9. The Fall
+10. Lament
+11. Empty Faith
+12. Spiral Descent
+
+
+### "Alone" 2006, Doom
+
+1. Scent Of Death
+2. Waiting For The Light
+3. Blessed Be The Dead
+4. Sightless
+5. Upon Within
+6. Burning
+7. Is There…
+8. Tomorrow’s Dead
+9. Essence Of Black
+10. Embrace
+
+### "Hour Of Despair (DVD)" 2007, Doom
+
+
+
 
 ## Отношения с другими группами
 

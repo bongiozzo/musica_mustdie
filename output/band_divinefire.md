@@ -1,11 +1,126 @@
 # DivineFire
 
-Дискография
-"Glory Thy Name" 2005, Power Metal
-"Hero" 2006, Power Metal
-"Into A New Dimension" 2006, Power Metal
-"Farewell" 2008, Ambient
-"Eye of the Storm" 2011, Power Metal
+neoclassic power-metal
+
+## Дискография
+
+### "Glory Thy Name" 2005, Power Metal
+
+1. From Death To Life; 
+2. The World's On Fire; 
+3. Never Surrender; 
+4. The Sign; 
+5. Out Of The Darkness; 
+6. Pay It Forward; 
+7. Live My Life For You; 
+8. The Spirit; 
+9. The way To Eternity
+
+All songs written by DIVINEFIRE
+Produced by DIVINEFIRE
+Engineered by Torbjorn Weinesjo
+Recorded and mixed at Room Of Doom Studio
+
+Christian Rivel - Lead and Background Vocals
+Jani Stefanovic - Guitars, Keyboards, Drums and Programming
+Andreas Olsson - Bass
+
+Special Guests:
+Torbjorn Weinesjo, Pontus Norgren, Carl Johan Grimmark - Lead Guitars
+Eric Clayton - Spoken Parts
+Fredrik Sjoholm, Thomas Vikstrom, Hubertus Liljegren - Vocals
+
+### "Hero" 2006, Power Metal
+
+1. Resurrection; 
+2. Secret Weapon; 
+3. Divinefire; 
+4. Hero; 
+5. United As One;
+ 6. Leaving The Shadows; 
+7. Open Your Eyes; 
+8. New Beginning; 
+9. Cryptic Passages; 
+10. The Show Must Go On *
+
+All songs written by DIVINEFIRE
+except * written by QUEEN
+Produced by DIVINEFIRE
+Engineered by Erik Martensson
+Recorded and mixed at Blow Out Studios, Stockholm
+
+Christian Rivel - Lead and Backing Vocals
+Jani Stefanovic - Guitars, Keyboards, Growls, Drums and Programming
+Andreas Olsson - Bass
+
+Special Guests:
+Thomas Vikstrom - Backing Vocals
+Carl Johan Grimmark, Patrik Gardberg, Plec - Lead Guitars
+Mikko Harkin - Keyboards
+Maria Radsten - Female Vocals
+
+### "Into A New Dimension" 2006, Power Metal
+
+1. Vision Of The New Dawn  01:44    
+2. Passion & Fire  05:02    
+3. Time's Running Out  03:29    
+4. Into A New Dimension  03:44    
+5. Facing The Liar  04:18   
+6. Live Or Die  04:06    
+7. Alive  04:21   
+8. All For One  04:31   
+9. The Final Victory  05:09   
+10. The Last Encore  03:22 
+
+
+### "Farewell" 2008, Ambient
+
+1. Calling The World  02:12   
+2. Unity  04:27  
+3. You Will Never Walk Away  04:14   
+4. Pass The Flame  04:50   
+5. Grow And Follow  04:46   
+6. My Roots Are Strong In You  04:22   
+7. King Of Kings  04:24   
+8. Heal Me  12:22   
+9. Farewell  02:17 
+
+
+Line-up:
+Christian Rivel – Lead Vocals
+Jani Stefanovic – Drums, Guitars, Growls, Keyboards & Programming
+Andreas Olsson – Bass 
+
+
+### "Eye of the Storm" 2011, Power Metal
+
+1. Time For Salvation  04:34    
+2. Hold On  04:00    
+3. Unchain My Soul  04:02    
+4. Bright Morning Star  04:44    
+5. To Love And Forgive  06:56    
+6. Even At My Lowest Point  04:18    
+7. Send Me Out  03:25    
+8. Masters And Slaves  03:57    
+9. The World's On Fire  04:15    
+10. Never Surrender  06:08    
+11. Masquerade  04:07    
+12. Close To The Fire  03:46 
+
+
+
+Line up:
+Christian Liljegren – Vocals 
+German Pascual – Vocals
+Jani Stefanovic –Guitars, Bass, Drums & Orchestration ,Harsh Vocals
+
+Guests:
+Pontus Norgren 
+CJ Grimmark 
+Thomas Vikstrцm 
+Andreas Passmark 
+Markus Sigfridsson
+
 
 ## Отношения с другими группами
 

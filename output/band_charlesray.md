@@ -1,7 +1,13 @@
 # Charles, Ray
 
-Дискография
-"The Soul Of A Man" 2007, Soul
+
+
+## Дискография
+
+### "The Soul Of A Man" 2007, Soul
+
+
+
 
 ## Отношения с другими группами
 

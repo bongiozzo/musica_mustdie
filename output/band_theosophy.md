@@ -1,7 +1,19 @@
 # Theosophy
 
-Дискография
-"Demo" 2008, Black Metal
+black metal from Siberia
+
+## Дискография
+
+### "Demo" 2008, Black Metal
+
+1. Intro                                                                                     
+2. Damnation of Northern Lands                                            
+3. For Cold                                                                              
+4. Forest Legion                                                                                 
+5. Our Dark Fears                                                                    
+6. Fight in Darkness Sky                                                         
+7. Outro                            
+
 
 ## Отношения с другими группами
 

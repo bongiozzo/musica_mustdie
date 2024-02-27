@@ -1,9 +1,52 @@
 # Wolfshade
 
-Дискография
-"Samhain" 2002, Power Metal
-"Bats In The Belfry" 2002, Power Metal
-"Still Alive" 2008, Power Metal
+
+
+## Дискография
+
+### "Samhain" 2002, Power Metal
+
+1. Sunset
+2. Samhain
+3. Wolfshade
+4. Through The Red Flame
+5. Fairy Night
+6. The Lone Dark Home
+7. Moon Rider
+8. The Mask Of Red Death
+9. ...Where Angels Live
+10. Ascension		 
+11. Future World	 
+12. Win The Enemies
+
+### "Bats In The Belfry" 2002, Power Metal
+
+1. Arising From Neverland
+2. Death Kingdome
+3. Sun Of The Sleepless
+4. Prophecy
+5. Bats In The Belfry
+6. Yellow Dust Castle
+7. Ancient Wisdoms	
+8. Metal Gods
+9. Gladiator
+
+### "Still Alive" 2008, Power Metal
+
+1. Dragon
+2. Truth
+3. High Flight
+4. Merciful Hate
+5. Soundtrack to My Suicide
+6. Divine Wind
+7. Hiroshima
+8. Battlefield
+9. Gladiator Pt. II (Still Alive)
+10. I'm Going Home
+11. Scream of My Soul
+12. K.I.A. (Killed in Action)
+13. Gladiator (Live)
+
 
 ## Отношения с другими группами
 

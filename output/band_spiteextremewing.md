@@ -1,10 +1,59 @@
 # Spite Extreme Wing
 
-Дискография
-"Magnificat" 2003, Black Metal
-"Non Dvcor, Dvco" 2004, Black Metal
-"Kosmokrator" 2005, Black Metal
-"Vltra" 2008, Black Metal
+Fast and Eerie Black Metal
+
+## Дискография
+
+### "Magnificat" 2003, Black Metal
+
+1. L'inizio 00:44  
+2. Acqua di fonte di Gloria 04:53  
+3. La Stirpe Divina 04:20  
+4. Reminescenza di Illusione Lunare... 04:55  
+5. Lotusbluthen I 05:56  
+6. Lotusbluthen II 02:57  
+7. Favola d'Ermafrodito (Parte I) 03:20  
+8. Favola d'Ermafrodito (Parte II E III) 04:53  
+9. In Battle... 04:22  
+10. Renewed Thirst of Blood 04:28  
+11. My Wandering Spirit 04:32  
+12. Upcoming Evil 03:13  
+13. Viaggio di Ritorno: Vittoria, Tra le Desolate Lande, Ritorno a Casa 11:54 
+
+### "Non Dvcor, Dvco" 2004, Black Metal
+
+1. A Chi L'ignoto? (To Whom the Unknown?) 00:48  
+2. Non Dvcor, Dvco 08:44 
+3. In Su La Vetta (Upon the Peak) 08:59 
+4. La Torre Del Silenzio (The Tower of Silence) 07:29
+5. Decadenza (Decadence) 05:47  
+6. Disperazione - Il Ciclo Si Chiude (Despair - the Cycle Closes Up) 09:21
+7. Il Sole Di Notte E La Rivolta (The Sun in the Night and the Revolt) 02:47 
+
+### "Kosmokrator" 2005, Black Metal
+
+1. L'Inizio 00:51  
+2. Il Tempio Ad Est 04:05
+3. Kosmokrator 03:45  
+4. Deo Soli Invicto 05:33  
+5. Vvltvs 03:54  
+6. Monumentvm 05:01  
+7. Clermont 03:21  
+8. Il Volo del Bicorne 13:27 
+
+### "Vltra" 2008, Black Metal
+
+1. I 01:13  
+2. II 08:54
+3. III 05:41 
+4. IV 01:36
+5. V 09:50
+6. VI 04:37 
+7. VII 09:45 
+8. VIII 06:10 
+9. IX 02:53
+10. X 04:15 
+
 
 ## Отношения с другими группами
 

@@ -1,13 +1,97 @@
 # Flowing Tears
 
-Дискография
-"Swansongs" 1996, Alternative
-"Joy Parade" 1998, Alternative
-"Swallow" 1999, Alternative
-"Jade" 2000, Gothic
-"Serpentine" 2002, Gothic
-"Razorbliss" 2004, Gothic
-"Thy Kingdom Gone" 2008, Gothic
+
+
+## Дискография
+
+### "Swansongs" 1996, Alternative
+
+
+
+### "Joy Parade" 1998, Alternative
+
+
+
+### "Swallow" 1999, Alternative
+
+
+
+### "Jade" 2000, Gothic
+
+1. Godless
+2. Sistersun
+3. Swallow
+4. Lovesong for a dead child
+5. Under the red
+6. Turpentine
+7. The one I drowned
+8. Vanity
+9. Radio heroine
+10. Coma garden
+11. Jade
+12. White horses
+
+### "Serpentine" 2002, Gothic
+
+1. Intro (1.14); 
+2. Starfish Ride (For A Million Dollar Handshake) (4.20); 
+3. Serpentine (3.52); 
+4. Children Of The Sun (4.01); 
+5. The Marching Sane (3.17); 
+6. Breach (5.24); 
+7. Portsall (Departure Song) (3.13); 
+8. Justine (3.41); 
+9. The Carnage People (3.01); 
+10. Merlin (3.24); 
+11. Cupid Of The Carrion Kind (3.33); 
+12. For Tonight (3.51)
+
+All songs written by FLOWING TEARS
+Produced by Waldemar Sorychta
+Engineered by Siggi Bemm, Matthias Klinkman and Waldemar Sorychta
+Recorded and mixed at Woodhouse Studios, Hagen
+
+Stefanie Duchene - Vocals
+Benjamin Buss - Guitars and Programming
+Frederic Lesny - Bass
+Stefan Gembala - Drums
+
+### "Razorbliss" 2004, Gothic
+
+1. Razorbliss 
+2. Believe 
+3. Virago 
+4. Undying 
+5. Radium Angel 
+6. Firedream 
+7. Ballad of a Lonely God 
+8. Snakes of Grey 
+9. Mine is the Ocean 
+10. Maladine 
+11. Unspoken 
+12. Pitch Black Water 
+
+Line-Up: 
+Helen Vogt - vocals 
+Benjamin Buss - guitars, programming 
+Frederic Lesny - bass 
+Stefan Gemballa - drums
+
+### "Thy Kingdom Gone" 2008, Gothic
+
+1. Orchidfire
+2. Pain Has Taken Over
+3. Rain of a Thousand Years
+4. Grey
+5. Thy Kingdom Gone
+6. Words Before You Leave
+7. Miss Fortune
+8. Colossal Shaped Despair
+9. Kismet
+10. For My Enemies
+11. Souls of the Neon Reign
+12. The War We Left Behind
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,50 @@
 # Sacrilege
 
-Дискография
-"Lost In The Beauty You Slay" 1996, Melodic Death Metal
-"The Fifth Season" 1997, Melodic Death Metal
+
+
+## Дискография
+
+### "Lost In The Beauty You Slay" 1996, Melodic Death Metal
+
+1. Frozen Thoughts
+2. Beyond The Gates Of Pain
+3. Without Delight
+4. Crying Statues Of Paleness And Ice
+5. Fettered In Shackles Of Light
+6. Lost In The Beauty You Slay
+7. Silence In A Beloved Scream
+8. Torment Of Life
+9. Initio Silentium Noctis
+
+Recorded At Studio Fredman July '96.
+Produced By Fredrik Nordstrom & SACRILEGE.
+Engineered & Mixed By Fredrik Nordstrom.
+Psycological Harassements By Fredrik Nordstrom & SACRILEGE. Intro On 1 By Fredrik Nordstrom & SACRILEGE.
+All Cellos By My Hellgren.
+Vocals On Track 4-8 By Svensson.
+Cover Painting By Kristian Wahlin.
+
+Michael Andersson - Vocals
+Daniel Svensson - Drums, Vocals
+Daniel Dinsdale - Guitars
+Richard Bergholtz - Guitars
+Daniel Kvist - Bass
+
+(P)(C) 1996 BLACK SUN Records
+
+### "The Fifth Season" 1997, Melodic Death Metal
+
+Summon The Masses And Walk Throught The Fire
+Sweet Moment Of Triumph
+Nine Eyes Of Twilight
+Feed The Cold
+Fifth Season
+Moaning Idiot Heart
+Dim With Shame
+Seduction Nocturne
+In Winter Enticed
+Sorg
+
 
 ## Отношения с другими группами
 

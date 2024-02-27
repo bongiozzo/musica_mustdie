@@ -1,16 +1,180 @@
 # Pain
 
-Дискография
-"Pain" 1997, Industrial
-"Rebirth" 2000, Industrial
-"Nothing Remains The Same" 2002, Industrial
-"Same Old Song" 2004, Industrial
-"Dancing With Dead" 2005, Industrial
-"Psalms of Extinction" 2007, Industrial
-"Cynic Paradise " 2008, Industrial
-"You Only Live Twice" 2011, Industrial
-"Coming Home" 2016, Industrial
-"Black Knight Satellite (Single) " 2016, Industrial
+Electronic/Industrial/Techno Metal
+
+## Дискография
+
+### "Pain" 1997, Industrial
+
+1. On Your Knees (Again)
+2. Rope Around My Neck
+3. Learn How To Die
+4. Don't Let Me Down
+5. Breathe
+6. Greed
+7. Choke On Your Lies
+8. The Last Drops Of My Life
+
+The PAIN album was produced, mixed, written by Peter Tagtgren.
+Recorded & mixed at Abyss Studio, Sweden.
+
+All instruments performed by Peter Tagtgren.
+
+(P)(C) 1997 NUCLEAR BLAST Records
+
+### "Rebirth" 2000, Industrial
+
+1. SUPERSONIC BITCH 3.44
+2. END OF THE LINE 4.03
+3. BREATHING IN, BREATHING OUT 3.35
+4. DELUSIONS 4.03
+5. SUICIDE MACHINE 4.16
+6. PARALLEL TO ECSTASY 3.58
+7. ON AND ON 3.55
+8. 12:42 1.52
+9. CRASHED 4.00
+10. DARK FIELDS OF PAIN 5.00
+11. SHE WHIPPED 4.49
++ CD EXTRA: END OF THE LINE VIDEO 
+
+WRITTEN, PRODUCED, MIXED & PERFORMED BY 
+
+PETER TAGTGREN AT THE ABYSS STUDIO 1999.
+
+
+
+### "Nothing Remains The Same" 2002, Industrial
+
+01 IT'S ONLY THEM 4.51
+02 SHUT YOUR MOUTH 3.12
+03 CLOSE MY EYES 3.45
+04 JUST HATE ME 3.55
+05 INJECTED PARADISE 5.10
+06 ELEANOR RIGBY (Beatles Cover) 3.52
+07 EXPELLED 3.43
+08 PULL ME UNDER 4.15
+09 SAVE ME 3.37
+10 THE GAME 4.10
+11 FADE AWAY 4.58
++ CD EXTRA: SHUT YOUR MOUTH VIDEO 
+
+WRITTEN, PRODUCED, MIXED & PERFORMED BY 
+
+PETER TAGTGREN AT THE ABYSS STUDIO 2001.
+
+RELEASED 2002-01-23
+
+AVAILABLE AT STOCKHOLM RECORDS
+
+
+### "Same Old Song" 2004, Industrial
+
+1. Same Old Song   
+2. Trapped   
+3. Not Afraid to Die
+
+### "Dancing With Dead" 2005, Industrial
+
+1. Don't Count Me Out 
+2. Same Old Song
+3. Nothing
+4. Tables Have Turned
+5. Not Afraid To Die
+6. Dancing With The Dead
+7. Tear It Up
+8. Bye / Die
+9. My Misery
+10. Good Day To Die
+11. Stay Away
+12. Third Wave
+
+### "Psalms of Extinction" 2007, Industrial
+
+1. Save Your Prayers 03:43  
+2. Nailed To The Ground 04:11  
+3. Zombie Slam 03:32  
+4. Psalms of Extinction 04:09  
+5. Clouds of Ecstasy 03:16  
+6. Play Dead 04:03  
+7. Does it Really Matter 04:06  
+8. Computer God 03:25  
+9. Just Think Again 06:15  
+10. Walking on Glass 03:51  
+11. Bottle's Nest 03:36  
+12. Bitch 03:47 
+
+
+Peter Tagtgren - Vocals, All Instruments
+
+### "Cynic Paradise " 2008, Industrial
+
+1. I'm Going In 03:16  
+2. Monkey Business 04:05  
+3. Follow Me 04:16  
+4. Have a Drink On Me 03:53  
+5. Don't Care 02:42  
+6. Reach Out (And Regret) 03:55  
+7. Generation X 04:18  
+8. No One Knows 03:50  
+9. Live Fast - Die Young 03:42  
+10. Not Your Kind 04:10  
+11. Feed Us 04:14 
+
+
+Limited edition CD (Digi Pack) has a second CD with the following tracklist:
+
+01. Behind The Wheel (Depeche Mode cover) (04:09)
+02. Here Is The News (Electric Light Orchestra cover) (03:53)
+03. Follow Me (Peter vox version) (04:09)
+04. Clouds Of Ecstasy (bassflow remix) (03:29)
+05. No One Knows (rectifier remix) (03:45)
+
+Tracks 3 and 11 feature guest vocals by Nightwish frontwoman Anette Olzon.
+
+The artwork was created by renowned artist Travis Smith (Amorphis, Opeth, Nevermore). 
+
+### "You Only Live Twice" 2011, Industrial
+
+1. Let Me Out  04:35    
+2. The Dark  03:55   
+3. The Great Pretender  04:05   
+4. You Only Live Twice  04:05   
+5. Dirty Woman  04:18   
+6. We Want More  04:46   
+7. Leave Me Alone  04:10   
+8. Feed The Monster  04:06   
+9. Sleeping With the Dead  06:38 
+
+
+You Only Live Twice bonus CD:
+01. 'Crawling Thru Bitterness' (unreleased bonus track)
+02. 'The Great Pretender' (Millboy & Peka P Remix)
+03. 'Dirty Woman' (MC Raaka Pee Remix)
+04. 'You Only Live Twice' (Rectifier Remix)
+05. 'Leave Me Alone' (Rectifier Remix)
+06. 'Eleanor Rigby' (Live at Sundown Festival, 2008)
+07. 'Follow Me' (Live in Brussels, 2009)
+08. 'I Don’t Care' (Live at Raimsmes Festival, 2009)
+09. 'Bitch' (Live at Raismes Festival, 2009) 
+
+
+### "Coming Home" 2016, Industrial
+
+1. Designed to Piss You Off    
+2. Call Me      
+3. A Wannabe    
+4. Pain in the Ass     
+5. Black Knight Satellite  
+6. Coming Home   
+7. Absinthe-Phoenix Rising    
+8. Final Crusade  
+9. Natural Born Idiot   
+10. Starseed  
+
+### "Black Knight Satellite (Single) " 2016, Industrial
+
+1. Black Knight Satellite  03:41 
+
 
 ## Отношения с другими группами
 

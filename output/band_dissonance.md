@@ -1,7 +1,32 @@
 # Dissonance
 
-Дискография
-"Look To Forget" 1994, Deathcore
+
+
+## Дискография
+
+### "Look To Forget" 1994, Deathcore
+
+1.  Right To Submit
+2.  Invisible
+3.  Mankind
+4.  Candid Condolence
+5.  Feelingless
+6.  Possessed By Desire
+7.  Insane Reality
+8.  The Limited Space
+
+Recorded at Slovak Radio Studios, 1993
+Engineered by Lubos Valky & Richard Szabo.
+Produced By DISSONANCE
+Mixed By Lubos Valky, Pavol Jambor & Marius Kadak.
+
+Pavol Jambor - Bass, Vocals
+Marius Kadak - Guitars
+Vladimir Mutinik - Guitars
+Pavol Jambor - Drums, Viloncello, Synth
+
+(P)c 1994 CSIprague Records
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,19 @@
 # Sadiztik Impaler
 
-Дискография
-"Sadiztik Syonan- to Supremacy" 2006, Black Metal
+
+
+## Дискография
+
+### "Sadiztik Syonan- to Supremacy" 2006, Black Metal
+
+Unholy Vengeance Personification
+Black Fucking Metal
+Conquerer by Evil 
+Warrios ov Satan
+Sarcophagus ov the Undead
+Rides ov Perversion
+Hestial Syonan-to Eastern Predator
+
 
 ## Отношения с другими группами
 

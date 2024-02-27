@@ -1,9 +1,43 @@
 # Grabnebelfursten
 
-Дискография
-"Von Schemen und Trugbildern" 2001, Black Metal
-"Dynastie - oder wie man Herrschaft definiert" 2003, Black Metal
-"Schwarz gegen Weis" 2005, Black Metal
+black-metal
+
+## Дискография
+
+### "Von Schemen und Trugbildern" 2001, Black Metal
+
+1.	 Von Schemen und Trugbildern	03:26
+2.	 Was bleibt	07:40
+3.	 Sturmpropheten	08:52
+4.	 SehnSUCHT	04:27
+5.	 Sakral&#228;sthetik	04:49
+6.	 An den kalten Ufern	06:13
+7.	 Leben mit der Angst	10:52
+8.	 Fluchgeburt	04:34
+9.	 Schw&#228;ne	10:03
+
+### "Dynastie - oder wie man Herrschaft definiert" 2003, Black Metal
+
+1. Abstrakte Wunden verbaler Schwerter
+2. Schicksalsbruder
+3. Dynastie
+4. Briefe and die Toten
+5. Der letzte Konig und sein Architekt
+6. Irgendwie/Irgendwo/Irgendwann
+
+### "Schwarz gegen Weis" 2005, Black Metal
+
+1.	 Der entgleiste K&#246;rper	01:52
+2.	 Schwarz gegen Wei&#223;	05:27
+3.	 Apathie	06:52
+4.	 Der Wanderer Teil 2	00:39
+5.	 Der Teufel	09:56
+6.	 Zwillinge	08:33
+7.	 Grabgewalt	05:27
+8.	 Koryph&#228;e im Spiegelbild	10:17
+9.	 Der Traum	10:17
+10.	 Mein Mondlied	02:35
+
 
 ## Отношения с другими группами
 

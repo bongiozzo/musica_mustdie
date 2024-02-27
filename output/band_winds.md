@@ -1,10 +1,124 @@
 # Winds
 
-Дискография
-"Of Entity And Mind" 2001, Gothic
-"Reflection of the I" 2002, Gothic
-"The Imaginary Direction Of Time" 2004, Gothic
-"Prominence and Demise" 2007, Alternative
+
+
+## Дискография
+
+### "Of Entity And Mind" 2001, Gothic
+
+1. Inception Perspective
+2. In All Reflections
+3. Bloodstained And Sworn
+4. Mirrored In Time
+5. An Eternity Of Dreams
+
+
+
+Lars Eric Si - Vocals
+Carl August Tidemann - Guitars
+Jan Axel von Blomberg - Drums
+Andy Winter - Keys
+
+"Of Entity and Mind" was conceived at the recording facilities Toproom Studio
+in the time period between October 1999 and September 2000
+
+With:
+
+Drajevolitch - Dark Voice
+K. Haugen - Electric & acoustis guitars
+Paul S - Bass & fretless
+Engineered and mixed by borge Finstas & Winds
+
+Produced by Andy Winter
+Mastered at Strype Audio by Tom Kvalsvoll
+Design and layout by Sub-Frequency
+Photography by Lisbeth Nilsen
+ESP guitars & Amplifications acquired from Guitar Workshop exclusively
+Jan Axel von Blomberg uses Sabian Cymbals, Pearl drums and Axis pedals
+
+### "Reflection of the I" 2002, Gothic
+
+01. Clarity 02.15
+02. Realization 04.54
+03. Of Divine Nature 04.37
+04. Transition 01.18
+05. Passion's Quest 04.51
+06. Reason's Desire 05.12
+07. Premonition 02.01
+08. Remnants Of Beauty 05.40
+09. Existence 03.49
+10. Continuance 03.11
+11. Predominance 00.51
+
+Jan Axel Von Blomberg - drums
+Carl August Tidemann - guitars
+Lars Eric Si - vocals
+Andy Winter - keyboards
+
+Reflections Of The I was conceived at the
+recording facilities
+Top-Room Studio during March and April of the year
+2001
+With:
+Drajevolitch - vocals
+Vegard Johnsen - violin
+Stig Ove Ore - violin
+Hans Josef Groh - violin
+Lars Eric Si - bass
+Engineered & Mixed by Borge Finstad and Winds
+Produced bv Andy Winter
+Mastered, at Strype Audio by Tom Kvalsvoll
+Design & Layout by Travis Smith in conjunction
+with Sub-Frequency
+Photography by Lisbeth Nilsen
+Official Website: www.winds.nu
+Jan Axel von Blomberg uses Sabian cymbals, Axis
+pedals, and Pearl drums
+The instrumental "Predominance" is inspired by,
+and could be viewed
+AS an interpretation of Rachmaninov's Piano
+Concerto No. 2 Opus 18
+
+### "The Imaginary Direction Of Time" 2004, Gothic
+
+1. What Is Beauty
+2. Sounds Like Desolation
+3. Theory Of Relativity
+4. Visions Of Perfection
+5. The Fireworks Of Genesis
+6. Under The Stars
+7. A Moment For Reflection
+8. Time Without End
+9. The Final End
+10. Beyond Fate
+11. Silence In Despair
+12. Infinity
+
+
+Lars Eric Si: Vocals And Bass
+Carl August Tidemann: Guitars
+Jan Axel von Blomberg: Drums
+Andy Winter: Keys, Lyrics&Concept
+Henry Leirvoll: Lyrical contributions to "What Is Beauty?"
+
+String Ensemble Feature:
+Andre Orvik: Violin
+Vergard Johnsen: Violin
+Dorther Dreier: Viola
+Hans-Josef Groh: Cello
+
+### "Prominence and Demise" 2007, Alternative
+
+1. Universal Creation Array 08:17  
+2. Distorted Dimensions 04:33  
+3. The Grand Design 06:19  
+4. When the Dream of Paradise Died 05:10  
+5. Fall and Rise 07:17  
+6. The Darkest Path 05:05  
+7. Convictions and Contradictions 03:38  
+8. Where the Cold Winds Blow 06:51  
+9. The Last in Line 08:09
+
 
 ## Отношения с другими группами
 

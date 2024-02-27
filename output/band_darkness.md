@@ -1,11 +1,73 @@
 # Darkness
 
-Дискография
-"Death Squad" 1987, Thrash
-"Defender Of Justice" 1988, Thrash
-"Conclusion And Revival" 1989, Thrash
-"Bocholt Live Squad" 2005, Thrash
-"The Gasoline Solution" 2016, Thrash
+
+
+## Дискография
+
+### "Death Squad" 1987, Thrash
+
+01. Bloodbath
+02. Inverted Minds
+03. Battle to the Last
+04. Caligula
+05. They Need a War
+06. Locked
+07. Defenders of Justice
+08. Predetermined Destiny
+
+### "Defender Of Justice" 1988, Thrash
+
+ Side One:
+1. Intro 1.34
+2. Blood Bath 5.00
+3. Inverted Minds 4.56
+4. Battle To The Last 5.34
+5. Caligula 5.00
+ Side Two:
+1. They Need A War 6.14
+2. Locked 3.51
+3. Defenders Of Justice 5.17
+4. Redetermined Destiny 7.18
+
+Olli - Vocals
+Arnd - Guitars
+Pierre - Guitars
+Thomas - Bass
+Lucky - Drums
+
+(p)&(c) 1988 GAMA MusicVerlags Gmbh
+
+### "Conclusion And Revival" 1989, Thrash
+
+01. Conclusion and Revival (Intro)
+02. Soldiers
+03. The Omniscient
+04. Under Control
+05. Bass
+06. Burial
+07. Predetermined Destiny
+08. Price of Fame
+09. All Left to Say
+10. Beside My Grave
+11. Faded Pictures
+12. Armageddon
+
+### "Bocholt Live Squad" 2005, Thrash
+
+
+
+### "The Gasoline Solution" 2016, Thrash
+
+01 Tinkerbell Must Die
+02 Another Reich
+03 Freedom on Parole
+04 Welcome to Pain
+05 LAW
+06 Pay A Man
+07 The Gasoline Solution
+08 Dressed in Red
+09 This Bullet's for You
+
 
 ## Отношения с другими группами
 

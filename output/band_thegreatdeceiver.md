@@ -1,8 +1,17 @@
 # The Great Deceiver
 
-Дискография
-"A Venom Well Designed" 2002, Hardcore
-"Terra Incognito" 2004, Hardcore
+Death-hardcore-industrial (ex-AT THE GATES)
+
+## Дискография
+
+### "A Venom Well Designed" 2002, Hardcore
+
+
+
+### "Terra Incognito" 2004, Hardcore
+
+
+
 
 ## Отношения с другими группами
 

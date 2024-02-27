@@ -1,9 +1,69 @@
 # Rapture
 
-Дискография
-"Futile" 1999, Death Doom
-"Songs For The Withering" 2002, Doom
-"Silent Stage" 2005, Doom
+
+
+## Дискография
+
+### "Futile" 1999, Death Doom
+
+1. Intro
+2. To Forget
+3. This Is Where I Am
+4. The Fall
+5. While The World Sleeps
+6. Futile
+7. Someone I (Don't) Know
+8. (About) Leaving
+
+Состав:
+Petri Eskelinen - вокал
+Tomi Ullgren - лидер-гитара
+Jarno Salovaara - ритм- и акустическая гитары
+Jani &#214;hman - бас
+Samu Ruotsalainen - ударные
+
+Приглашённые музыканты:
+Sami Karttunen - клавишные
+
+### "Songs For The Withering" 2002, Doom
+
+1. Nameless
+2. Gallows
+3. Two Dead Names
+4. Transfixion (... for the bitterness of joy)
+5. The Vast
+6. Raintracks
+7. Enveloped
+8. The Great Distance
+9. Farewell
+
+Состав:
+Henri Villberg - вокал
+Tomi Ullgren - лидер-гитара
+Samuel Ruotsalainen - ударные
+Aleksi Ahokas - гитара, бас
+Petri Eskelinen - вокал
+
+### "Silent Stage" 2005, Doom
+
+01. Misery 24/7 
+02. The Past Nightmares 
+03. I Am Complete 
+04. For The Ghosts Of Our Time 
+05. Silent Chrysalis Stage 
+06. Dreaming Of Oblivion 
+07. The Times We Bled 
+08. Cold On My Side 
+09. Completion 
+
+Line-Up: 
+Petri Eskelinen - vocals 
+Henri Villberg - vocals 
+Tomi Ullgr?n - guitar 
+Aleksi Ahokas – guitar 
+Sami Hinkka - bass 
+Samuel Ruotsalainen - drums
+
 
 ## Отношения с другими группами
 

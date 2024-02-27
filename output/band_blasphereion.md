@@ -1,7 +1,38 @@
 # Blasphereion
 
-Дискография
-"Rest In Peace" 1991, Deathcore
+Satanic Deathcore
+
+## Дискография
+
+### "Rest In Peace" 1991, Deathcore
+
+1. Church Of Lies
+2. Dells Of Pain
+3. Demon`s Blood
+4. Decadence Within
+5. Apocalyptic Visions
+6. It`s Still There
+7. R.I.P.
+8. Inside My Eyes
+9. At The Bound Of Madness
+10.Futur Earth
+11.Listen To Their Crys
+
+ Dan Vandeplas - Vocals,Bass
+ Eddy Satin - Guitar
+ Patrick Rosa - Guitar
+ Fabrice Depireux - Drums
+
+Produced By BLASPHEREION.
+Cover Art By Van Lancker.
+Logo By Szajdel Cristophe.
+Photo By D`Haeyavaert Daniel.
+Recorded At Tha A.G.S. Studio,November `91.
+Contact Info: Dan 21 Rue,Strimelle 6040 Jumet,
+Belgium.
+
+(p)&(c) 1991 OSMOSE Productions OPCD003
+
 
 ## Отношения с другими группами
 

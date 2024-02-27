@@ -1,7 +1,30 @@
 # The Mob
 
-Дискография
-"The Mob" 2005, Hard Rock
+melodic hard
+
+## Дискография
+
+### "The Mob" 2005, Hard Rock
+
+1. One Track Mind 
+2. Wait A Moment 
+3. The Magic 
+4. I Will Follow 
+5. Guitar Solo 
+6. Never Get Enough 
+7. Love Will Carry On 
+8. Turn To Stone 
+9. No Reason Why 
+10. Spaghetti Western (INSTR.) 
+11. I Want To Live Forever
+
+Состав: 
+Reb Beach - guitars 
+Kip Winger - bass 
+Doug Pinnick - lead vocals 
+Timothy Drury - keys 
+Kelly Keagy - drums
+
 
 ## Отношения с другими группами
 

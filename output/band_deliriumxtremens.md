@@ -1,8 +1,36 @@
 # Delirium X Tremens
 
-Дискография
-"CreHated From No_Thing" 2007, Techno Death
-"Belo Dunum, Echoes from the past" 2011, Techno Death
+
+
+## Дискография
+
+### "CreHated From No_Thing" 2007, Techno Death
+
+1. Liquefied Emotions	 
+2. Trip In Your World	 
+3. Eucharistic Hypnosis	 
+4. DXT Chambers	 
+5. Inverted Re-Logic	 
+6. CyberHuman	 
+7. File 15469 Cyberlife	 
+8. New-Clear File	 
+9. Inside Me	 
+10. Convulsion	 
+11. Crionica
+
+### "Belo Dunum, Echoes from the past" 2011, Techno Death
+
+1. I Was		 
+2. Teverтn, The Sleeping Giant		 
+3. The Legend of Cаzha Selvаrega		 
+4. Artiglieria Alpina		 
+5. The Guardian		 
+6. 33 Days of Pontificate (Vatican Inc)		 
+7. An Old Dusty Dream Vajont, 9 ottobre 1963		 
+8. Life Before Nothing		 
+9. Scream of 2000 Screams		 
+10. The Memory
+
 
 ## Отношения с другими группами
 

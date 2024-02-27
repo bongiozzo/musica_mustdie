@@ -1,10 +1,46 @@
 # Callenish Circle
 
-Дискография
-"Drift Of Empathy" 1996, Death Doom
-"Graceful...Yet Forbidding" 2001, Death Doom
-"Flesh_Power_Dominion" 2002, Melodic Death Metal
-"My Passion // Your Pain" 2003, Melodic Death Metal
+Heavy & Melodic Death-Doom
+later melodic death-metal
+
+## Дискография
+
+### "Drift Of Empathy" 1996, Death Doom
+
+1. Inner Sense
+2. Mental Affection
+3. Slough Of Despond
+4. Solitude
+5. Last Words
+6. The Dreaming Path
+7. Disguised Ignorance
+8. Where The Moon Meets The Sea
+9. Scars
+
+Recorded & Mixed At Beuafort Recording Studio.
+Produced, Engineered & Mixed By Han Swagerman & CALLENISH CIRCLE.
+Band Residence: Netherlands.
+
+Patrick Savelkoul - Vocals
+Jos Evers - Guitars
+Ronny Tyssen - Guitars
+John Gorissen - Bass
+Gavin Harte - Drums
+
+(P)(C) 1996 HAMMERHEART Records // HHR 004
+
+### "Graceful...Yet Forbidding" 2001, Death Doom
+
+
+
+### "Flesh_Power_Dominion" 2002, Melodic Death Metal
+
+
+
+### "My Passion // Your Pain" 2003, Melodic Death Metal
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,10 +1,73 @@
 # Mike Tramp
 
-Дискография
-"Capricorn" 1996, Metal
-"Recovering the Wasted Years" 2002, Metal
-"More To Life Than This" 2003, Metal
-"Songs I Left Behind" 2004, Metal
+AOR
+
+## Дискография
+
+### "Capricorn" 1996, Metal
+
+Already Gone
+If I Live Tomorrow
+Here I Don't Belong
+Heart Of Every Woman
+Have You Ever
+Better Off
+Had I Not Complained
+Running Out Of Life
+Wait Not For Me
+Love Will Come And Go
+Take A Little Time (bonus)
+Fears Of Yesterday (bonus)
+Ain't Ready To Let You Go (bonus)
+Just A Dream (bonus)
+
+### "Recovering the Wasted Years" 2002, Metal
+
+Falling Down
+Living A Lie
+Mr. Death
+If It Ain't Gonna Rock
+All Up To You
+Endless Highway
+Darkness
+Follow Your Dreams
+Do It All Over
+Take It Easy
+Don't Take My Rock N Roll
+Always Tomorrow
+
+### "More To Life Than This" 2003, Metal
+
+More To Life Than This
+Lay Down My Life For You
+Don't Want To Say Goodnight
+Nothing At All
+Day By Day
+Live For Today
+Back From The Dead
+I Won't Let Go
+Goodbye Song
+The Good The Sad And The Ugly
+
+### "Songs I Left Behind" 2004, Metal
+
+01. Sometimes
+02. Do It While You Can
+03. Over And Out
+04. Love Won't Wait On Me
+05. If I Was Real
+06. One For Anger, Two For Pain
+07. Before The Night
+08. I Won't Walk Away
+09. Show Me
+10. I'll Be There
+11. I Don't Believe Anymore
+12. What If I
+13. Love Me Somebody
+14. Think About The Times
+15. Falling Down
+16. Darkness
+
 
 ## Отношения с другими группами
 

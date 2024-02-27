@@ -1,11 +1,95 @@
 # Assassin
 
-Дискография
-"The Upcoming Terror" 1986, Thrash
-"Interstellar Experience" 1988, Thrash
-"The Club" 2005, Thrash
-"Breaking the Silence" 2011, Thrash
-"Combat Cathedral" 2016, Thrash
+
+
+## Дискография
+
+### "The Upcoming Terror" 1986, Thrash
+
+ Side One:
+1. Forbidden Reality
+2. Nemesis
+3. Fight (To Stop The Tyranny)
+4. The Last Man
+ Side Two:
+1. Assassin
+2. Holy Terror
+3. Bullets
+4. Speed Of Light
+
+Robert - Vocals
+Dinko - Guitars
+Scholli - Guitars
+Lulle - Bass
+Psycho - Drums
+
+(p) 1986 STEAMHAMMER Records
+(c) 1987 STEAMHAMMER Records
+
+### "Interstellar Experience" 1988, Thrash
+
+ Side One:
+1. Abstract War 5.14
+2. A.G.D. 4.12
+3. A Message To Survive 3.18
+4. Pipeline 1.24
+ Side Two:
+1. Resolution 588 4.14
+2. Junk Food 3.38
+3. Interstellar Experience 2.30
+4. Baka 2.30
+
+Robert Gonella - Vocals
+Dinco Vekic - Guitars
+Michael Hoffmann - Guitars
+Markus Ludwig - Bass
+Frank Nellen - Drums
+
+(p)&(c) 1988 STEAMHAMMER Records
+
+### "The Club" 2005, Thrash
+
+1. The Club 04:35
+2. No Fear 03:40
+3. Raging Mob 05:54 
+4. Bushwhackers 03:35
+5. Not With Us 05:09
+6. Psycho Terror 06:14
+7. Go Insane 04:18
+8. Real Friends 03:48
+9. The Price of Power 05:21
+10. Thunder and Lightning (Thin Lizzy cover) 04:28
+11. Jintian Shenhuo 03:40  
+12. I Swear 04:05 
+
+### "Breaking the Silence" 2011, Thrash
+
+1. Breaking the Silence 05:00  
+2. Raise in the Dark 03:16  
+3. Judas 03:12  
+4. Turf War 05:23  
+5. Destroy the State 06:10  
+6. No Fear 04:00  
+7. Kill or Be Killed 03:50  
+8. Real Friends 03:27  
+9. Strike Back 04:41  
+10. I Like Cola 04:13 
+
+### "Combat Cathedral" 2016, Thrash
+
+01. Back From The Dead
+02. Frozen Before Impact
+03. Undying Mortality
+04. Servant Of Fear
+05. Slave Of Time
+06. Whoremonger
+07. Cross The Line
+08. What Doesn't Kill Me Makes Me Stronger
+09. Ambush
+10. Word
+11. Sanity From The Insane
+12. Red Alert
+
 
 ## Отношения с другими группами
 

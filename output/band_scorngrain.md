@@ -1,8 +1,17 @@
 # Scorngrain
 
-Дискография
-"Spectral" 2004, Thrash
-"Cyberwarmachine" 2004, Thrash
+
+
+## Дискография
+
+### "Spectral" 2004, Thrash
+
+
+
+### "Cyberwarmachine" 2004, Thrash
+
+
+
 
 ## Отношения с другими группами
 

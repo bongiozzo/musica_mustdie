@@ -1,6 +1,9 @@
 # Сварогъ
 
-Дискография
+(Atmospheric Black Death from Kazahstan)
+
+## Дискография
+
 
 ## Отношения с другими группами
 

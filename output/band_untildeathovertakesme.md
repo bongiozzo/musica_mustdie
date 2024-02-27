@@ -1,9 +1,53 @@
 # Until Death Overtakes Me
 
-Дискография
-"Symphony I - Deep Dark Red" 2001, Doom
-"Symphony II - Absence Of Life" 2001, Doom
-"Prelude to Monolith" 2003, Doom
+
+
+## Дискография
+
+### "Symphony I - Deep Dark Red" 2001, Doom
+
+1. Winter Within (4.02)
+2. Never Again (11.27)
+3. They Never Hope (14.23)
+4. In The Mist (20.31)
+5. Careless, Painless, Far away (11.58)
+6. Towards The Emptiness (4.03)
+
+
+Recorded and mixed at Templa Libitina, all music and lyrics by S. (august 2000 - march 2001). 
+
+
+
+### "Symphony II - Absence Of Life" 2001, Doom
+
+1. This Dark Day (17.04)
+2. In The Mist (16.10)
+3. Absence Of Life (14.50)
+4. And Death Took Her Smile Away (18.35)
+
+
+
+Recorded and mixed at Templa Libitina during august and september, music and lyrics written by S, during oktober 2000 and oktober 2001
+
+
+
+### "Prelude to Monolith" 2003, Doom
+
+1. Prelude To Monolith
+2. Missing
+3. Absence Of Life
+4. Slip Away
+5. March Funebre
+
+
+Stijn - Guitar, Bass, Keyboard, Timpani, Electric Violin and Vocals.
+
+Recorded and mixed at Templa Libitina during April and December 2002
+all music and lyrics written by Stijn Van Cauter, between june 2001 and november 2002, 
+except 'March Funebre' : written by Frederic Chopin. 
+Mastered at CCR studio, Zulte, Belgium. 
+
+
 
 ## Отношения с другими группами
 

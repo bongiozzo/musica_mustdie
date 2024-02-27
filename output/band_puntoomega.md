@@ -1,8 +1,37 @@
 # Punto Omega
 
-Дискография
-"Punto Omega" 2004, Gothic
-"Nostalgias Del Origen" 2006, Metal
+EBM
+
+## Дискография
+
+### "Punto Omega" 2004, Gothic
+
+01. Marcha hacia el Punto Omega
+02. Punto Omega
+03. Guerra en los Cielos
+04. La Caida
+05. Mundo de Robots (feat. "Cenobita")
+06. El Laberinto
+07. La Fusion (feat. "L'ame Immortelle")
+08. Tempestades de Cambio
+09. Peregrino de los Tiempos
+10. Realidad Virtual
+
+### "Nostalgias Del Origen" 2006, Metal
+
+Parte II : El Destierro
+01. Nostalgias Del Origen
+02. El Destierro
+03. El Ojo
+04. Ajenidad
+05. La Vida Es Solo Teatro
+Parte I : El Regreso
+06. Carpe Diem
+07. Fragmentos Del Alma
+08. Falsos Suenos
+09. Alma Gemela
+10. El Regreso
+
 
 ## Отношения с другими группами
 

@@ -1,9 +1,42 @@
 # Dark Avenger
 
-Дискография
-"Dark Avenger" 1995, Heavy Metal
-"Tales of Avalon: The Terror" 2001, Heavy Metal
-"Tales of Avalon: The Lament" 2013, Heavy Metal
+
+
+## Дискография
+
+### "Dark Avenger" 1995, Heavy Metal
+
+Armageddon 
+Die Mermaid! 
+Who Dares to Care 
+Give A Chance 
+Green Blood 
+Rebellion 
+Dark Avenger 
+Half Dead Eyes 
+Madelayne 
+Ghost Divinity 
+Call to Fight 
+Morgana (бонус)
+
+### "Tales of Avalon: The Terror" 2001, Heavy Metal
+
+
+
+### "Tales of Avalon: The Lament" 2013, Heavy Metal
+
+1. From Father to Son
+2. Doomsday Night 
+3. The Knight on the Hill 
+4. Broken Vows 
+5. Stronger than Death	 
+6. Can You Feel It? 
+7. Utter Evil
+8. Sicorax Scream 
+9. Dead yet Alive 
+10. And So Be It... 
+11. The Thousand Ones
+
 
 ## Отношения с другими группами
 

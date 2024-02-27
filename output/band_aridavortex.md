@@ -1,8 +1,29 @@
 # Arida Vortex
 
-Дискография
-"Evil Sorcery" 2003, Power Metal
-"Flames Of Sunset" 2006, Power Metal
+ex-Vortex
+
+## Дискография
+
+### "Evil Sorcery" 2003, Power Metal
+
+1. Invasion
+2. Vortex
+3. Break the Fetters
+4. Revolution Time
+5. Prison for My Soul
+6. Autumn
+7. Facing the Elements
+8. Imagination
+9. When Tomorrow Comes
+10. Evil Sorcery
+11. Abyss of Emptiness
+12. Улетай
+
+
+### "Flames Of Sunset" 2006, Power Metal
+
+
+
 
 ## Отношения с другими группами
 

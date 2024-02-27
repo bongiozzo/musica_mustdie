@@ -1,8 +1,36 @@
 # Thy Nemesis
 
-Дискография
-"Forgotten Dreadful Legends" 2003, Black Metal
-"Christcrushing Anthems" 2005, Black Metal
+
+
+## Дискография
+
+### "Forgotten Dreadful Legends" 2003, Black Metal
+
+1. Dragon Mountain
+2. The Curse
+3. Ratcatcher
+4. Burning Churches
+5. Black Horde
+6. 1679 - Pest in Vienna
+7. The Wolf and the Fallen Angel
+8. Moonlake
+
+
+Christcrusher : Chant, Guitares
+Agrimoth : Basse
+Tharon : Batterie, Claviers
+
+### "Christcrushing Anthems" 2005, Black Metal
+
+An Friedhofsmauern 
+Ravenway 
+From the ashes of purgatory 
+Basilisk 
+Lucifers Tower 
+Worm of fire 
+The Brotherslayer 
+Brenn I Helvete
+
 
 ## Отношения с другими группами
 

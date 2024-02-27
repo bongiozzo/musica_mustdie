@@ -1,7 +1,24 @@
 # Demon Project
 
-Дискография
-"Kara Ora" 2009, Industrial
+
+
+## Дискография
+
+### "Kara Ora" 2009, Industrial
+
+1. Intro 00:58  
+2. Fear (Is My Rage) 04:10  
+3. Loosing the Fate 05:05  
+4. Cradle of Fear 04:34  
+5. Endless Circle 04:35  
+6. Kara Ora 06:24  
+7. Prison of Me 04:29  
+8. Last to Die 04:48  
+9. No Hate 04:36  
+10. Sleep 04:10  
+11. Run 04:40  
+12. Reach the Sky 04:54 
+
 
 ## Отношения с другими группами
 

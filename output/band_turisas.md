@@ -1,10 +1,59 @@
 # Turisas
 
-Дискография
-"Battle Metal" 2004, Folk
-"The Varangian Way" 2007, Folk
-"Stand Up and Fight " 2011, Folk
-"Turisas2013" 2013, Folk
+
+
+## Дискография
+
+### "Battle Metal" 2004, Folk
+
+
+
+### "The Varangian Way" 2007, Folk
+
+1.To Holmgard and Beyond 
+2.A Portage to the Unknown 
+3.Cursed Be Iron 
+4.Fields of Gold 
+5.In the Court of Jarisleif 
+6.Five Hundred And One 
+7.The Dnieper Rapids 
+8.Miklagard Overture
+
+### "Stand Up and Fight " 2011, Folk
+
+1. The March of the Varangian Guard 03:51  
+2. Take the Day! 05:26  
+3. Hunting Pirates 03:43  
+4. Venetoi! - Prasinoi! 03:49  
+5. Stand Up and Fight 05:27 
+6. The Great Escape 04:51  
+7. Fear the Fear 06:14  
+8. End of an Empire 07:16  
+9. The Bosphorus Freezes Over 05:37 
+
+
+
+Bonus tracks for Japan:
+10. Battle Metal (2008 Version)
+11. Rasputin
+12. Supernaut (Black Sabbath cover)
+13. Broadsword 
+
+### "Turisas2013" 2013, Folk
+
+1. For Your Own Good  04:34  
+2. Ten More Miles  04:16    
+3. Piece by Piece  05:37    
+4. Into the Free  03:50    
+5. Run Bhang-Eater, Run!  04:43    
+6. Greek Fire  04:51    
+7. The Days Passed  04:33    
+8. No Good Story Ever Starts with Drinking Tea  02:51    
+9. We Ride Together  06:33  
+
+
+Limited edition digipak comes with alternate cover art and a patch.
+
 
 ## Отношения с другими группами
 

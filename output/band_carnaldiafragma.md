@@ -1,7 +1,48 @@
 # Carnal Diafragma
 
-Дискография
-"Preparation of the Daddy's Steak" 2008, Grindcore
+
+
+## Дискография
+
+### "Preparation of the Daddy's Steak" 2008, Grindcore
+
+1. Ventilace ritniho otvoru 01:50  
+2. Scabies 01:07  
+3. Deformation of anal vice penis and vulva 01:18  
+4. Pulverized testicle 01:42  
+5. Carrie go home 01:05  
+6. A examination by restoscope 01:37  
+7. Esmeralda 00:57  
+8. Fist Fucking 01:16  
+9. Misfortune in love 01:51  
+10. I feel sick of skinheads 00:36  
+11. Bakteriocidni chemoterapeutikum sirokeho spektra 00:46  
+12. Gorgeous diphteria 01:23  
+13. Zapusteni kompresorove hadice do aortalni trubice 01:02  
+14. 3 litres of sperm 01:08  
+15. Repulsion 00:46  
+16. Nechtene urezani penisu rezovou pilkou na zelezo 01:12  
+17. Vomited shits 01:11  
+18. Stench vaginalis 01:22  
+19. Bloody issue of sperm 01:03  
+20. Satiated necrophiliac 01:15  
+21. Mastne vystriky dunajske klobasy v mikrovlne troube pri vysoke teplote 01:43  
+22. Consequence (gut cover) 01:08  
+23. In vitro fertilization 01:39  
+24. Nepochopitelne vysrani mlynku na kavu 01:42  
+25. Deranged menarche injection (regurgitate cover) 00:59  
+26. V hlubinach neuronu 02:55  
+27. Kentus v blekotovem mozku 02:04  
+28. Ucpane dutiny krcni listim nosni chrastim 01:50  
+29. HC hovnocuc 02:11  
+30. Dokonale oplodnena jablon 01:41  
+31. V nouzi je dobra i okorale vysusena kurka chleba 02:30  
+32. Now or never 01:23  
+33. Daddys steak 01:50  
+34. Pourazove ochrnuti zvedace horniho vicka 01:15  
+35. Vzpoura psychopatickych pacientu 01:21  
+36. Hruskovy zavin pozujici v zazivacim traktu 02:00 
+
 
 ## Отношения с другими группами
 

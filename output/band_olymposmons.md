@@ -1,7 +1,13 @@
 # Olympos Mons
 
-Дискография
-"Conquistador" 2004, Power Metal
+power metal from Finnland for fans of Stratovarius and Sonata Arctica
+
+## Дискография
+
+### "Conquistador" 2004, Power Metal
+
+
+
 
 ## Отношения с другими группами
 

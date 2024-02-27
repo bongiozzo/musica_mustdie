@@ -1,10 +1,70 @@
 # Lyriel
 
-Дискография
-"Prisonworld" 2005, Folk
-"Autumntales" 2006, Gothic
-"Paranoid Circus" 2009, Gothic
-"Leverage" 2012, Gothic
+
+
+## Дискография
+
+### "Prisonworld" 2005, Folk
+
+1.	 At The Mindnightsgate	01:31	 
+2.	 Prisonworld	03:44
+3.	 The Crown Of The Twilight	03:22
+4.	 Symmetry Of Disfiguration	03:48
+5.	 The Singing Nightingale	03:22
+6.	 Lind E-huil	05:31
+7.	 There's A Rainbow In The Rain	04:02
+8.	 The Judgement Of My Harvest Heart	04:21
+9.	 Fate Of Knowledge	01:23
+10.	 Day In June	03:47
+11.	 The Spring And The Flight	04:14
+
+### "Autumntales" 2006, Gothic
+
+1.	 First Autumn Days	02:05	 
+2.	 Surrender In Dance	03:44
+3.	 Memoria	03:36
+4.	 My Favourite Dream	03:46
+5.	 The Promised Land	03:18
+6.	 Days Of Yore	04:10
+7.	 Fairyland	03:44
+8.	 Autumntales	04:08
+9.	 Wild Birds	03:13
+10.	 Hijo De La Luna (Mecano cover)	04:08
+11.	 Enchanted Moonlight	04:50
+12.	 Regen	04:04
+13.	 Last Autumn Days	01:26
+
+### "Paranoid Circus" 2009, Gothic
+
+1.	 Opening	00:43
+2.	 Welcome	03:39
+3.	 Like A Feather In The Wind	04:01
+4.	 The Regret	03:03
+5.	 Elderberry And Lavender	03:55
+6.	 Lullaby	04:03
+7.	 Foeman's Bride	03:24
+8.	 The Wolf	05:03
+9.	 So Long, My Love	04:17
+10.	 My Unawakened Soul	00:58
+11.	 Paranoid Circus	04:16
+12.	 The Wheel Of Fortuna	04:34s
+13.	 The Way To Nowhere	00:47
+14.	 Another Time	04:34
+15.	 Conclusion	00:44
+
+### "Leverage" 2012, Gothic
+
+01. When It’s Coming To An End...
+02. Leverage
+03. Parting
+04. Voices In My Head
+05. The Road Not Taken
+06. White Lily
+07. Aus Der Tiefe
+08. Wenn Die Engel Fallen
+09. Side By Side
+10. Repentance
+
 
 ## Отношения с другими группами
 

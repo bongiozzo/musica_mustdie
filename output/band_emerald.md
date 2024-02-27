@@ -1,11 +1,29 @@
 # Emerald
 
-Дискография
-"Rebels of Our Time" 1999, Power Metal
-"Calling the Knights" 2002, Power Metal
-"Forces of Doom" 2004, Power Metal
-"Hymns to Steel" 2007, Power Metal
-"Re-Forged" 2010, Power Metal
+
+
+## Дискография
+
+### "Rebels of Our Time" 1999, Power Metal
+
+
+
+### "Calling the Knights" 2002, Power Metal
+
+
+
+### "Forces of Doom" 2004, Power Metal
+
+
+
+### "Hymns to Steel" 2007, Power Metal
+
+
+
+### "Re-Forged" 2010, Power Metal
+
+
+
 
 ## Отношения с другими группами
 

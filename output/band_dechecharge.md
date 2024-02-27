@@ -1,6 +1,9 @@
 # Deche-Charge
 
-Дискография
+noisecore from Canada (Dahmer, Mesrine members)
+
+## Дискография
+
 
 ## Отношения с другими группами
 

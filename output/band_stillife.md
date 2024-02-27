@@ -1,8 +1,17 @@
 # Stillife
 
-Дискография
-"Remembrance" 2003, Darkwave
-"Memories" 2005, Darkwave
+
+
+## Дискография
+
+### "Remembrance" 2003, Darkwave
+
+
+
+### "Memories" 2005, Darkwave
+
+
+
 
 ## Отношения с другими группами
 

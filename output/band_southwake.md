@@ -1,7 +1,21 @@
 # Southwake
 
-Дискография
-"Southwake" 2005, Rock
+ex-NOR DREAM
+
+## Дискография
+
+### "Southwake" 2005, Rock
+
+01. How Come
+02. Days Away
+03. Easy Babies
+04. Youth Lies Slain
+05. Tsunami
+06. The End
+07. U&U
+08. Mission Failed
+09. Goahead
+
 
 ## Отношения с другими группами
 

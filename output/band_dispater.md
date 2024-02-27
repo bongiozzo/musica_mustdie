@@ -1,7 +1,31 @@
 # Dis Pater
 
-Дискография
-"Princess of the Emerald Garden" 2003, Gothic
+Gothic Doom
+
+## Дискография
+
+### "Princess of the Emerald Garden" 2003, Gothic
+
+1. The Painter 
+2. Emerald Garden 
+3. Coming by the Moonlight 
+4. Game 
+5. A Distant Fluite's Weeping 
+6. Arctururs 
+7. We will touch the sky 
+8. Fire in the Tunnel 
+9. Last Words 
+10. Genesis
+
+
+
+Alexander K. Snap – бас
+Alexander M. Suffer – гитара
+Victoria – флейта, клавиши
+Rodion – вокал
+Vano - гитара
+Kathryn - скрипка
+
 
 ## Отношения с другими группами
 

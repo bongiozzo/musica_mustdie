@@ -1,15 +1,103 @@
 # Gehenna
 
-Дискография
-"Ancestor of the Darkly Sky (demo EP)" 1993, Black Metal
-"The First Spell" 1994, Black Metal
-"Seen Through the Veils f Darkness (The Secod Spell)" 1995, Black Metal
-"Malice (The Third Spell)" 1996, Black Metal
-"Black Seared Heart" 1997, Black Metal
-"Adimiron Black" 1998, Black Metal
-"Deadlights (EP)" 1998, Black Metal
-"Murder" 2000, Black Metal
-"WW" 2005, Black Metal
+Classic Black Metal
+
+## Дискография
+
+### "Ancestor of the Darkly Sky (demo EP)" 1993, Black Metal
+
+
+
+### "The First Spell" 1994, Black Metal
+
+The shivering voice of the ghost
+Uneartly loose palace
+Angelwings and ravenclaws
+The conquering of Hirsir
+Morningstar    
+
+### "Seen Through the Veils f Darkness (The Secod Spell)" 1995, Black Metal
+
+1. Lord Of Flies
+2. Shairak Rinnummh
+3. Vinterriket
+4. A Witch Is Born
+5. Through The Veils Of Darkness
+6. The Mystical Play Of Shadows
+7. The Eyes Of The Sun
+8. A Myth...
+9. Dark Poems Author
+
+
+### "Malice (The Third Spell)" 1996, Black Metal
+
+1. She Who Loves The Flames
+2. Made To Suffer
+3. Touched And Left For Dead
+4. Bleeding The Blue Flame
+5. Manifestation
+6. Ad Arma Ad Arma
+7. The Pentagram
+8. Malice
+9. The Word Became Flesh
+10.Before The Seventh Moon
+
+Recorded and Mixed at Soundsuite Studio
+Produced by GEHENNA and Terje Refnes
+Engineered by Terje Refnes
+Cover artwork by Petter Hegre
+
+Sanrabb - Guitars, Vocals
+Dolgar - Guitars Vocals
+Sarcana - Keyboards
+Dirge Rep - Drums
+Noctifer - Bass
+
+(P)c 1996 CACOPHONOUS Records // NIHIL 16
+
+### "Black Seared Heart" 1997, Black Metal
+
+ 1. Two Demons Eight Spirits
+ 2. Black Seared Heart
+ 3. Angelwings And Ravenclaws
+ 4. The Chariots That Carried Her To The Grave
+ 5. A Witch Is Born
+ 6. Night Of The Serpents Judgement
+ 7. Midwinter Forest
+
+### "Adimiron Black" 1998, Black Metal
+
+1. The Killing Kind
+2. Deadlights
+3. Adimiron Black
+4. Seed of Man's Destruction
+5. Devil's Work
+6. Slowly Being Poisoned
+7. Eater of The Dead 
+
+### "Deadlights (EP)" 1998, Black Metal
+
+1 Deadlights    
+2 In mother's tomb
+3 Master Satan
+
+### "Murder" 2000, Black Metal
+
+    Intro                    1.13 
+    Murder                   2.46 
+    Worthy exit              3.06 
+    Devout dementia          4.12 
+    The crucified one        3.27 
+    Perfect hate             5.04 
+    To the grave             2.42 
+    Trail of blood           2.30 
+    Master satan             3.23 
+    The dead                 3.17 
+
+### "WW" 2005, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

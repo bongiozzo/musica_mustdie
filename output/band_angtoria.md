@@ -1,7 +1,13 @@
 # Angtoria
 
-Дискография
-"God Has A Plan For Us All" 2006, Metal
+Orchestral Metal from Sweden/England
+
+## Дискография
+
+### "God Has A Plan For Us All" 2006, Metal
+
+
+
 
 ## Отношения с другими группами
 

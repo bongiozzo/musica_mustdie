@@ -1,12 +1,117 @@
 # Ancient Wisdom
 
-Дискография
-"In the Eye of the Serpent (demo)" 1993, Black Metal
-"Through Rivers of the Eternal Blackness (demo)" 1994, Black Metal
-"For Snow That Covered The Northland" 1996, Black Metal
-"The Calling" 1997, Black Metal
-"...And The Physical Shape Of Light Bled" 2000, Black Metal
-"Cometh Doom, Cometh Death" 2003, Black Metal
+Black Metal
+
+## Дискография
+
+### "In the Eye of the Serpent (demo)" 1993, Black Metal
+
+1. The Beginning
+2. The Sleep Within
+3. At the Other Side
+4. As the Shadows Dance
+
+### "Through Rivers of the Eternal Blackness (demo)" 1994, Black Metal
+
+1. Pastorale in E-minor
+2. Through Rivers of the Eternal Blackness
+3. They Gather Where Snow Falls Forever
+4. Forest of Summoned Spirits
+5. The Journey of the Ancients
+7. The Serpents Sleep is not Eternal
+
+### "For Snow That Covered The Northland" 1996, Black Metal
+
+1. A Hymn To The Northern Empire
+2. In The Land Of The Crimson Moon
+3. They Gather Where Snow Falls Forever
+4. Through Rivers Of The Eternal Blackness
+5. The Journey Of The Ancients
+6. As Snow Covers The Northland
+7. No Tears At His Funeral
+8. Forest Of Summoned Spirits
+9. A Ravens Reflection Of The Ancient Northland
+10. The Serpents Sleep Is Not Eternal
+11. At The Other Side
+12. The Sleep Within
+
+
+The Guardians Of The Northern Empire:
+Marcus E. Norman: Classic And Electric Leadguitar, Nocturnal Voice
+Fredrik Jacobsson: Electric Bassguitar And Howling
+Andreas Nilsson: Rithmguitar
+Jens Ryden: Piano And Keyboards
+Ulf Andersson: Drums And Percussion
+
+For Snow Covered The Northland
+Was Recorded At The Garageland Studio
+In December, The Year Of MCMXCIV
+Produced by Henrik Kjellberg And Ancient Wisdom
+Drums Programmed By Fredric Thordendal
+All Music And Poetry By Marcus E. Norman
+
+
+
+
+### "The Calling" 1997, Black Metal
+
+1. The Awakening of the Ancient Serpent
+2. The Calling of Nocturnal Demons      
+3. As the Twelve Legions of Angels Died  
+4. In the Profane Domain of the Frostbeast
+5. Spiritual Forces of Evil in the Heavenly Realms
+6. And to the Depths they Discended
+7. At the Stone of Ancient Wisdom 
+8. Of Darkness Spawned Into Eternity
+9. Through the Mist of Dusk They Arose and Clad the Sky with Fire 
+
+
+### "...And The Physical Shape Of Light Bled" 2000, Black Metal
+
+1. Preludium - Lucifer, Aieth Gadol Leolam
+2. And The Physical Shape Of Light Bled
+3. With His Triumph Came Fire
+4. Interludium - The Fall Of Man
+5. As The Morningstar Shineth
+6. The Serpent's Blessing
+7. Postludium - His Creation Reversed
+8. The Spell
+
+
+
+"And the Physical Shape of Light Bled" was written, arranged and
+performed by Marcus E. Norman, except "The Spell" (Music and lyrics by D. Hill / M. Spooner)
+
+"And the Physical Shape of Light Bled" was recorded at the Wolf's Lair
+during different periods of time in 1998 and 1999
+
+Engineered, produced and mixed by Marcus E. Norman
+
+
+
+### "Cometh Doom, Cometh Death" 2003, Black Metal
+
+1. Invocation of the World Destroyers
+2. Arphe de a Londoh de Ialpor Salbrox
+3. Sulphurfields
+4. Cometh Doom, Cometh Death
+5. Procreation Denied
+6. Retaliation of the Rebellious
+7. A Acroodzi de a Galvah
+8. Universal Annihilation
+
+Written, arranged and performed by Marcus E.
+Norman.
+Recorded, produced and mixed at Wolf's Lair by
+Marcus E. Norman.
+Voclas recorded at Dead Silent Studios, engineered
+by Jens Ryden.
+Mastered at Ballerina Audio by Nils Johansson and
+Marcus E. Norman.
+Front cover illustration by Jason Juta.
+Photos by Kristoffer Olivius and Maria Norman.
+Layout by Peter Norman.
+
 
 ## Отношения с другими группами
 

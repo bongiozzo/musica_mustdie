@@ -1,7 +1,32 @@
 # Pavor
 
-Дискография
-"A Pale Debilitating Autumn" 1994, Death Doom
+Brutal Death-Doom
+
+## Дискография
+
+### "A Pale Debilitating Autumn" 1994, Death Doom
+
+1.  A Pale Debilitating Autumn
+2.  Total Warrior
+3.  Corpses
+4.  Careworn
+5.  Pavor
+6.  Imperator Of An Ashen Bane
+7.  Fucked By Darkness
+8.  Symbols Of Depravity
+
+All music and lyrics by PAVOR
+Recorded and Mixed at Bemd Gast Music Tonstudio
+Produced, Engineered and Mixed by Rainer Landfermann and Bernd Gast
+
+Claudius Schwartz - Vocals
+Armin Rave - Guitars
+Holger Seebens - Guitars
+Rainer Landfermann - Bass
+Michael Pelkowsky - Drums
+
+(P)c 1994 IMPERATOR MUSIC // GRIM 001
+
 
 ## Отношения с другими группами
 

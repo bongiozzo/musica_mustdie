@@ -1,9 +1,21 @@
 # Devastation
 
-Дискография
-"Violent Termination" 1987, Thrash
-"Signs Of Life" 1989, Thrash
-"Idolatry" 1991, Thrash
+
+
+## Дискография
+
+### "Violent Termination" 1987, Thrash
+
+
+
+### "Signs Of Life" 1989, Thrash
+
+
+
+### "Idolatry" 1991, Thrash
+
+
+
 
 ## Отношения с другими группами
 

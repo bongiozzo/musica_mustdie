@@ -1,9 +1,42 @@
 # Pure Inc.
 
-Дискография
-"Pure Inc." 2004, Heavy Metal
-"A New Day's Dawn" 2006, Heavy Metal
-"Parasites And Worms" 2008, Grunge
+
+
+## Дискография
+
+### "Pure Inc." 2004, Heavy Metal
+
+Fear My Eyes
+Genius
+Piece Of Mind
+Om The Verge
+Next To You
+Promise
+T.O.T.
+Black Tea
+Believin'
+Falling Season
+
+### "A New Day's Dawn" 2006, Heavy Metal
+
+Saviour
+Break Free
+Blvd. Jam
+I'm A Rolling Stone
+Burst
+Skinflint
+I'll Let You Know
+The Thing You Left On Me
+Sick As I Am
+Where's Your God
+Crawling
+New Day Dawn
+Saviour (bonus videoclip)
+
+### "Parasites And Worms" 2008, Grunge
+
+
+
 
 ## Отношения с другими группами
 

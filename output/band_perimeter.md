@@ -1,7 +1,31 @@
 # Perimeter
 
-Дискография
-"Healing by Festering" 2006, Death Industrial
+
+
+## Дискография
+
+### "Healing by Festering" 2006, Death Industrial
+
+1. Glaciating Blood 03:13  
+2. Sophistication of Torturing People 06:14  
+3. Bloodsucking Parasite of My Soul 03:05  
+4. Felo De Se Guide 04:11  
+5. Disembowel the Mankind 05:42  
+6. Culping Broken Glass 03:07  
+7. Vanilism SS 01:14  
+8. Fear of Fearing 04:24  
+9. Biatch! 00:35  
+10. Baptism of Fire 11:35  
+11. Hoc Age 03:09 
+
+
+Pavel Lokhnin - Drums
+Pavel Assinovskiy - Bass
+Anton Pavlov - Guitars
+Nikolay Yuriev - Guitars
+Denis Simanskiy - Samples, Noise, Keys
+Nikita Shelenkov - Vocals
+
 
 ## Отношения с другими группами
 

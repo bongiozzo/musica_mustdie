@@ -1,9 +1,29 @@
 # Gold
 
-Дискография
-"Interbellum" 2012, Hard Rock
-"No Image" 2015, Hard Rock
-"Optimist" 2016, Hard Rock
+
+
+## Дискография
+
+### "Interbellum" 2012, Hard Rock
+
+01. One Of Us
+02. Antebellum
+03. Love, The Magician
+04. Gone Under
+05. Dreams
+06. North
+07. Medicine Man
+08. The Hunt
+09. Ruby
+
+### "No Image" 2015, Hard Rock
+
+
+
+### "Optimist" 2016, Hard Rock
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,20 +1,275 @@
 # Deicide
 
-Дискография
-"Deicide" 1990, Death Metal
-"Legion" 1992, Death Metal
-"Amon: Feasting the Beast [compilation]" 1993, Death Metal
-"Once Upon the Cross" 1995, Death Metal
-"Serpents of the Light" 1997, Death Metal
-"Insineratehymn" 2000, Death Metal
-"In Torment in Hell" 2001, Death Metal
-"The Best of Deicide [compilation]" 2003, Death Metal
-"Scars of the Crucifix" 2004, Death Metal
-"The Stench of Redemption" 2006, Death Metal
-"Doomsday LA [DVD]" 2007, Death Metal
-"Till Death Do Us Part " 2008, Death Metal
-"To Hell With God" 2011, Death Metal
-"In the Minds Of Evil" 2013, Death Metal
+Legend of Florida's Deathcore
+
+## Дискография
+
+### "Deicide" 1990, Death Metal
+
+1. Lunatic Of God`s Creation
+2. Sacrificial Suicide
+3. Oblivious To Evil
+4. Dead By Dawn
+5. Blaspherereion
+6. Deicide
+7. Carnage In The Temple Of The Damned
+8. Mephistopheles
+9. Day Of Darkness
+10.Crucifixation
+
+ Glen Benton - Vocal & Bass
+ Brian Hoffman - Lead Guitar
+ Eric Hoffman - Lead Guitar
+ Steve Asheim - Drums
+
+All Music By DEICIDE.
+All Lyrics By Glen Benton.
+Produced By DEICIDE & Scott Burns.
+Engineered & Mixed By Scott Burns.
+Recorded At Morrisound Studios,Tampa,Florida,March `90.
+
+(p)&(c) 1990 ROADRUNNER Records
+
+
+### "Legion" 1992, Death Metal
+
+1. Satan Spawn,The Caco-Daemon
+2. Dead But Dreaming
+3. Repent To Die
+4. Trifixion
+5. Behead The Prophet (No Lord Shall Live)
+6. Holy Deception
+7. In Hell I Burn
+8. Revocate The Agitator
+
+ Glen Benton - Vocal & Bass
+ Brian Hoffman - Lead Guitar
+ Eric Hoffman - Lead Guitar
+ Steve Asheim - Drums
+
+All Music By DEICIDE.
+All Lyrics By Glen Benton.
+Produced By DEICIDE & Scott Burns.
+Engineered & Mixed By Scott Burns.
+Recorded At Morrisound Studios,
+Tampa,Florida.
+Mastered By Mike Fuller At Fullersound,
+Miami,Florida.
+Cover And Illustration: Scheffer Computer
+
+(p)&(c) 1992 THE ALL BLACKS B.V.
+
+### "Amon: Feasting the Beast [compilation]" 1993, Death Metal
+
+1. Lunatic Of The God`s Creation
+2. Sacrificial Suicide
+3. Crucifixation
+4. Carnage In The Temple Of The Damned
+5. Dead By Dawn
+6. Blaspherereion
+7. Feasting The Beast (Intro)
+8. Sacrificial Suicide
+9. Day Of Darkness
+10.Oblivious To Nothing
+
+ Glen Benton - Vocal & Bass
+ Brian Hoffman - Lead Guitar
+ Eric Hoffman - Lead Guitar
+ Steve Asheim - Drums
+
+All Music By DEICIDE.
+All Lyrics By Glen Benton.
+Produced By DEICIDE,Sacrificial Demo
+"Feasting The Beast" Demo Recorded On 8 Tracks In
+The Carnage, August 1987
+Recorded & Mixed By Scott Burns At Morrisound
+Studios,Tampa,Florida,December `89.
+Re-Mixed By Scott Burns,August `92.
+
+(p)&(c) 1993 THE ALL BLACKS B.V./ROADRACER Records
+
+
+### "Once Upon the Cross" 1995, Death Metal
+
+1. Once Upon The Cross
+2. Christ Denied
+3. When Satan Rules His World
+4. Kill The Christian
+5. Trick Or Betrayed
+6. They Are The Children Of Underworld
+7. Behind The Light Thou Shall Rise
+8. To Be Dead
+9. Confessional Rape
+
+ Glenn Benton - Vocals & Bass
+ Eric Hoffmann - Guitar
+ Brian Hoffman - Guitar
+ Steve Asheim  - Drums
+
+All Music Written By DEICIDE.
+All Lyrics By Glenn Benton.
+Produced By DEICIDE & Scott Burns.
+Engineered & Mixed By Scott Burns.
+Recorded & Mixed At Morrisound
+Recording,Tampa,FL.
+Mastered By George Marino At Sterling Sound,New York,NY.
+Cover Art By Trevor Brown.
+
+(p) 1995 THE ALL BLACKS B.V. Records
+(c) 1995 THE ALL BLACKS B.V. Records
+
+### "Serpents of the Light" 1997, Death Metal
+
+1. Serpents Of The Light
+2. Bastard Of Christ
+3. Blame It On God
+4. This Is Hell We're In
+5. I Am No One
+6. Slave To The Cross
+7. Creatures Of Habit
+8. Believe The Lie
+9. The Truth Above
+10.Father Baker's
+
+(p) 1997 THE ALL BLACKS B.V. Records
+(c) 1997 THE ALL BLACKS B.V. Records
+
+### "Insineratehymn" 2000, Death Metal
+
+1. Bible Basher 
+2. Forever Hate You 
+3. Standing In The Flames 
+4. Remnant Of A Hopeless Path 
+5. The Gift That Keeps On Giving 
+6. Halls Of Warship 
+7. Suffer Again 
+8. Worst Ememy 
+9. Apocalyptic Fear 
+10.Refusal Of Penance 
+ 
+
+### "In Torment in Hell" 2001, Death Metal
+
+1. Lurking Among Us 
+2. Worry in the House of Thieves 
+3. In Torment In Hell 
+4. Christ Don't Care 
+5. Vengeance Will Be Mine 
+6. Child Of God 
+7. Immanent Doom 
+8. Let It Be Done 
+
+### "The Best of Deicide [compilation]" 2003, Death Metal
+
+
+
+### "Scars of the Crucifix" 2004, Death Metal
+
+1. Scars Of The Crucifix
+2. Mad At God
+3. Conquered By Sodom
+4. Fuck Your God
+5. When Heaven Burns
+6. Enchanted Nightmare
+7. From Darkness
+8. Go Now
+9. Pentecostal
+
+### "The Stench of Redemption" 2006, Death Metal
+
+
+
+### "Doomsday LA [DVD]" 2007, Death Metal
+
+Filmed at the Knitting Factory, L.A. 10 November 2006 
+
+1. Intro
+2. Dead By Dawn
+3. Once Upon The Cross
+4. Scars of the Crucifix
+5. The Stench of Redemption 
+6. Death to Jesus 
+7. When Satan Rules His World 
+8. Serpents of the Light
+9. Dead But Dreaming
+10. They Are The Children Of The Underworld 
+11. Bastards of Christ 
+12. Desecration 
+13. Behind The Light Thou Shall Rise 
+14. When Heaven Burns 
+15. Walk With the Devil in Dreams You Behold 
+16. Homage for Satan 
+17. Lunatic Of Gods Creation 
+18. Kill the Christian 
+19. Sacrificial Suicide 
+
+
+BONUS FEATURES 
+
+In depth Interviews with all the band members
+Promo clip for 'Homage For Satan'
+Promo clip for 'Desecration'
+
+### "Till Death Do Us Part " 2008, Death Metal
+
+1. The Beginning of the End 03:39  
+2. Till Death Do Us Part 04:14 
+3. Hate of All Hatreds 03:53  
+4. In the Eyes of God 04:42  
+5. Worthless Misery 05:00 
+6. Severed Ties 04:01 
+7. Not As Long As We Both Shall Live 05:05 
+8. Angel of Agony 03:29  
+9. Horror in the Halls of Stone 06:23 
+10. The End of the Beginning 01:41 
+
+
+Line-up:
+Glen Benton - Vocals & Bass
+Jack Owen - Rhythm & Lead Guitar
+Steve Asheim - Drums, Rhythm & Lead Guitar
+
+Session musician:
+Ralph Santolla - Lead Guitar
+
+
+### "To Hell With God" 2011, Death Metal
+
+1. To Hell With God 04:21  
+2. Save Your 03:32  
+3. Witness of Death 03:05  
+4. Conviction 03:15  
+5. Empowered by Blasphemy 03:16  
+6. Angels in Hell 03:12  
+7. Hang in Agony Until You're Dead 03:59  
+8. Servant of the Enemy 03:17  
+9. Into the Darkness You Go 03:32  
+10. How Can You Call Yourself a God 04:15 
+
+
+
+Glen Benton - Vocals, Bass 
+Jack Owen - Guitar 
+Ralph Santolla- Guitar 
+Steve Asheim - Drums
+
+### "In the Minds Of Evil" 2013, Death Metal
+
+1. In the Minds of Evil    
+2. Thou Begone        
+3. Godkill        
+4. Beyond Salvation        
+5. Misery of One        
+6. Between the Flesh and the Void       
+7. Even the Gods Can Bleed       
+8. Trample the Cross        
+9. Banished by Evil        
+10. Kill the Light of Christ        
+11. End the Wrath of God  
+
+
+Recorded at AudioHammer Studios in Sanford, Florida. 
+
 
 ## Отношения с другими группами
 

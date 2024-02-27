@@ -1,16 +1,60 @@
 # Pentagram
 
-Дискография
-"Pentagram" 1985, Doom
-"Day Of Reckoning" 1987, Doom
-"Be Forewarned" 1994, Doom
-"Review Your Choices" 1999, Doom
-"Sub-Basement" 2001, Doom
-"First Daze Here (The Vintage Collection)" 2002, Doom
-"Turn To Stone (Compilation)" 2002, Doom
-"A Keg Full Of Dynamite (Live)" 2003, Doom
-"Show 'Em How " 2004, Doom
-"Last Rites" 2011, Doom
+
+
+## Дискография
+
+### "Pentagram" 1985, Doom
+
+
+
+### "Day Of Reckoning" 1987, Doom
+
+
+
+### "Be Forewarned" 1994, Doom
+
+
+
+### "Review Your Choices" 1999, Doom
+
+
+
+### "Sub-Basement" 2001, Doom
+
+
+
+### "First Daze Here (The Vintage Collection)" 2002, Doom
+
+
+
+### "Turn To Stone (Compilation)" 2002, Doom
+
+
+
+### "A Keg Full Of Dynamite (Live)" 2003, Doom
+
+
+
+### "Show 'Em How " 2004, Doom
+
+
+
+### "Last Rites" 2011, Doom
+
+1. Treat Me Right 02:32  
+2. Call the Man 03:49  
+3. Into the Ground 04:21  
+4. 8 05:01  
+5. Everything's Turning to Night 03:18  
+6. Windmills and Chimes 04:32  
+7. American Dream 04:32  
+8. Walk in the Blue Light 04:59  
+9. Horseman 03:38  
+10. Death in 1st Person 04:01  
+11. Nothing Left 03:36  
+12. All Your Sins - Reprise 00:57 
+
 
 ## Отношения с другими группами
 

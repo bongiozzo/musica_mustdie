@@ -1,12 +1,49 @@
 # Barathrum
 
-Дискография
-"Hailstorm" 1994, Black Metal
-"Eerie" 1995, Black Metal
-"Legions Of Perkele" 1998, Black Metal
-"Okkult" 2000, Black Metal
-"Venomous" 2003, Black Metal
-"Anno Aspera 2003 Nears After…" 2005, Black Metal
+
+
+## Дискография
+
+### "Hailstorm" 1994, Black Metal
+
+
+
+### "Eerie" 1995, Black Metal
+
+
+
+### "Legions Of Perkele" 1998, Black Metal
+
+
+
+### "Okkult" 2000, Black Metal
+
+
+
+### "Venomous" 2003, Black Metal
+
+
+
+### "Anno Aspera 2003 Nears After…" 2005, Black Metal
+
+1. Intro: Antikristus Neutronstar 
+2. Corpse Desecration 
+3. Into Maze Of Nightmares 
+4. Angelraper 
+5. G.I.D. 
+6. Sealed By Blood 
+7. Mother Of Christ 
+8. Crucifix Masturbation 
+9. Nailday 
+10. Anno Aspera 
+
+Line-Up: 
+Demonos Sova - Vocal, Bass 
+G'Thaur - Bass 
+Nuklear Tormentorr - Bass 
+Pelcepoop - Guitar 
+Abyssir - Drums
+
 
 ## Отношения с другими группами
 

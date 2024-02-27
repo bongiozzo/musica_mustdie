@@ -1,7 +1,24 @@
 # John Waite
 
-Дискография
-"Downtown, Journey To My Heart" 2006, Metal
+AOR/radio-rock
+
+## Дискография
+
+### "Downtown, Journey To My Heart" 2006, Metal
+
+1. The Hard Way 
+2. In Dreams 
+3. Blue Venus 
+4. Missing You 
+5. Keys To Your Heart 
+6. Highway 61 
+7. Isn't It Time 
+8. St. Patrick's Day 
+9. New York City Girl 
+10. Headfirst 
+11. Downtown 
+12. When I See You Smile
+
 
 ## Отношения с другими группами
 

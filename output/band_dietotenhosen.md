@@ -1,7 +1,40 @@
 # Die Toten Hosen
 
-Дискография
-"Learning English, Lesson One" 1991, Punk
+
+
+## Дискография
+
+### "Learning English, Lesson One" 1991, Punk
+
+1.  Learning English, Step One
+2.  Blitzkrieg Bop (The Ramones)
+3.  Brickfield Nights (Boys)
+4.  No One Is Innocent (Sex Pistols) 
+5.  New Guitar In The Town (The Lurkers)
+6.  If The Kids Are United (Sham 69) 
+7.  Nasty Nasty (999)
+8.  Dirty Pictures (Radio Stars)
+9.  Baby Baby (Vibrators)
+10.Gary Gilmore's Eyes (Adverts)
+11.Diary Of A Lover (Johnny Thunders)
+12.Born To Lose (Johnny Thunders) 13.Do You Remember (Rockafellas) 
+14.Carnival In Rio (Punk Was) (Ronnie Biggs)
+15.Richmond (Pinpoint)
+16.Whole Wide World (Wreckless Eric)
+17.Smash It Up (Damned)
+18.Stranglehold (UK Subs)
+19.Love And A Molotov Cocktail (The Flys)
+20.Do Anything You Wannna Do (Eddie And The Hot Rods)
+21.Goodbye From Janet & John
+
+Andi - Bass
+Breiti - Guitar
+Kuddel - Guitar
+Campino - Preacher
+Kirschwasserkonig M. - Drums
+
+(P)(C) 1991-1994
+
 
 ## Отношения с другими группами
 

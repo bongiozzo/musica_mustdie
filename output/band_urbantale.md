@@ -1,8 +1,48 @@
 # Urban Tale
 
-Дискография
-"Urban Tale" 2001, Hard Rock
-"Signs Of Times" 2003, Hard Rock
+
+
+## Дискография
+
+### "Urban Tale" 2001, Hard Rock
+
+The Devil in Me 
+Passion Takes Over 
+Circus 
+King of Hearts 
+One Day (I'll Make You Mine) 
+Runaway Train 
+Engine 
+Broken Chains 
+On the Edge 
+Doris Day 
+Water 
+
+### "Signs Of Times" 2003, Hard Rock
+
+1. The Starship of Giants 
+2. Hello Light! 
+3. Houdini’s Eyes 
+4. Still Strong 
+5. Son of a Gun (Hero of the World) 
+6. Open Your Heart 
+7. Captain of Clouds 
+8. Don’t You Know? 
+9. Beggar and Thief 
+10. Morning Smoke 
+11. Monsters 
+12. Mary 
+
+
+
+Kimmo Blom – Lead Vocals, 
+Erkka Korhonen – Guitars, Backing Vocals, 
+Tuomo Kovalainen – Bass, Backing Vocals, 
+Timo Pudas – Keyboards, 
+Kari Valimaki – Drums, Backing Vocals
+
+
+
 
 ## Отношения с другими группами
 

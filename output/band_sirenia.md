@@ -1,16 +1,247 @@
 # Sirenia
 
-Дискография
-"At Sixes And Sevens" 2002, Gothic
-"An Elixir For Existence" 2004, Gothic
-"Sirenian Shores" 2004, Gothic
-"Nine Destinies and A Downfall" 2007, Gothic
-"The 13th Floor " 2009, Gothic
-"The End Of It All (single)" 2010, Gothic
-"The Enigma of Life" 2011, Gothic
-"Perils of the Deep Blue" 2013, Gothic
-"The Seventh Life Path" 2015, Gothic
-"Dim Days of Dolor" 2016, Gothic
+
+
+## Дискография
+
+### "At Sixes And Sevens" 2002, Gothic
+
+1. Meridian
+2. Sister Nightfall
+3. On The Wane
+4. In A Manica
+5. At Sixes And Sevens
+6. Lethargica
+7. Manic Aeon
+8. A Shadow Of Your Own Self
+9. In Sumerian Haze
+
+### "An Elixir For Existence" 2004, Gothic
+
+01. Lithium and a lover 6.34
+02. Voices within 6.52
+03. A mental symphony 5.26
+04. Euphoria 6.35
+05. In my darkest hours 6.05
+06. Save me from myself 4.15
+07. The fall within 6.48
+08. Star-crossed 6.29
+09. Seven sirens an a silvertear 4.46
+
+Morten Veland (Vocals, Guitar, Bass, Programming)
+Kristian Gundersen (Guitar)
+Henriette Bordvik (Vocals)
+Jonathan Perez (Drums & percussion)
+
+AN ELIXIR FOR EXISTENCE was written, composed and
+arranged by MORTEN VELAND.
+
+All instruments performed and programmed by MORTEN
+VELAND, except violin, played by ANNE VERDOT.
+
+The voices on this opus belong to:
+MORTEN VELAND: growls
+HENRIETTE BORDVIK: female vocals
+KRISTIAN GUNDERSEN: clean male vocals
+
+The Sirenian choir consisting of:
+SANDRINE GOUTTEBEL, EMMANUELLE ZOLDAN, EMILI
+ELESBROS, DAMIEN SURIAN & MATHIEU LANBRY
+Produced and mixed by TERJE REFSNES and MORTEN
+VELAND
+in Sound Suite Studios, France; during September
+and October 2003
+Engineered by TERJE REFSNES.
+Pre-produced in Stargoth studios at Tau, Norway.
+On-stageon-tour SIRENIA appears with the following
+line-up:
+
+MORTEN VELAND: vocals and guitar
+MSTIANGUNDERSEN: vocals and guitar
+HENRIETTEBORDVK: vocals
+JONATHAN A. PEREZ: drums & percussion
+
++ a marry manic mischievous midi machinery.
+
+Artwork and design: JoachinLuetke for
+InageEye-Lnetke Prod./Vienna/www.luetke.con
+Cover photos: Wolfgang Voglhuber for
+IsageEye-Lnetke Prod.
+Band photos: M. Ashley
+Mastered by Ulf Horelt at BMS-digital mastering
+stndios
+
+### "Sirenian Shores" 2004, Gothic
+
+01. Sirenian Shores 6:02 SAMPLE
+02. Save Me From Myself (remix) 5:05
+03. Meridian (acoustic) 4:05
+04. First We Take Manhattan 3:56
+05. Obire Mortem 2:23
+
+### "Nine Destinies and A Downfall" 2007, Gothic
+
+1. The Last Call 04:45  
+2. My Mind's Eye 03:41 
+3. One By One 05:28  
+4. Sundown 05:05  
+5. Absent Without Leave 04:54  
+6. The Other Side 03:55  
+7. Seven Keys And Nine Doors 04:55  
+8. Downfall 04:44  
+9. Glades Of Summer 05:36 
+
+
+Line-up:
+
+Morten Veland - Harsh Vocals (tracks 4, 7, 8), Clean Vocals (tracks 5, 7),
+Guitars, Bass, Keyboards, Programming
+Monika Pedersen - Female Vocals 
+Jonathan A Perez - Drums, Percussion
+
+Sirenian choir:
+Damien Surian, Mathieu Landry, Emmanuelle Zoldan, Sandrine Gouttebel (all
+tracks)
+
+Recorded between July 17 and October 1, 2006.
+
+The limited edition digipak features one bonus track:
+10. My Mind's Eye (Radio Edit) (03:17) 
+
+### "The 13th Floor " 2009, Gothic
+
+1. The Path To Decay 04:19  
+2. Lost In Life 03:14  
+3. The Mind Maelstrom 04:50  
+4. The Seventh Summer 05:24  
+5. Beyond Life's Scenery 04:35  
+6. The Lucid Door 04:51  
+7. Led Astray 04:37  
+8. Winterborn 77 05:36  
+9. Sirens Of The Seven Seas 05:12 
+
+
+Line-up:
+Pilar Gimйnez Garcнa "Ailyn" - Vocals
+Morten Veland - Vocals, Guitars, Bass, Keyboards
+Michael S. Krumins - Guitars
+Jonathan A. Perez - Drums, Percussion
+
+Guest members:
+Jan Kenneth Barkved - Vocals
+Stephanie Valentin - Violin
+
+The album was recorded at Sound Suite Studios in France and Stargoth Studios in
+Norway and mixed and mastered at the Antfarm Studios in Denmark with Tue
+Madsen.
+
+Artwork by Jan Yrlund
+
+### "The End Of It All (single)" 2010, Gothic
+
+1. The End Of It All (Edit) 03:56 
+2. Fallen Angel (Acoustic) 03:45 
+
+
+### "The Enigma of Life" 2011, Gothic
+
+1. The End Of It All 04:31 
+2. Fallen Angel 03:59  
+3. All My Dreams 04:49  
+4. This Darkness 04:00  
+5. The Twilight In Your Eyes 04:00  
+6. Winter Land 03:55  
+7. A Seaside Serenade 05:53  
+8. Darkened Days To Come 04:22  
+9. Coming Down 04:38  
+10. This Lonely Lake 03:33  
+11. Fading Star 04:46  
+12. The Enigma Of Life 06:12  
+13. Oscura Realidad (Bonus Track) 02:33  
+14. The Enigma Of Life (Acoustic Version) (Bonus Track) 
+
+
+Line-up:
+Ailyn - Vocals
+Morten Veland - Clean/Harsh Vocals, Guitar, Bass, Drums, Keyboards, Programming
+
+Bonus tracks:
+15. El Enigma De La Vida (iTunes bonus track)
+16. El Enigma De La Vida (Acoustic Version) (North American bonus track)
+
+Recorded between July and November 2010 at Sound Suite Studio.
+All songs written by Morten Veland.
+Arranged, produced and engineered by Morten Veland.
+
+Cover artwork by Gustavo Sazes. 
+
+### "Perils of the Deep Blue" 2013, Gothic
+
+1. Ducere Me in Lucem  03:33   
+2. Seven Widows Weep  06:57  
+3. My Destiny Coming to Pass  05:16   
+4. Ditt endelikt  06:10   
+5. Cold Caress  05:57   
+6. Darkling  05:35   
+7. Decadence  04:58   
+8. Stille kom dшden  12:42   
+9. The Funeral March  05:34   
+10. Profound Scars  06:09   
+11. A Blizzard Is Storming  04:53  
+12. Chains  04:25 
+13. Blue Colleen 05:01 
+
+
+The iTunes version has an additional bonus track: 
+14. Once a Star (05:14)
+
+Music videos:
+ -Seven Widows Weep
+
+Recording information:
+
+ Written, composed, and arranged by Morten Veland.
+ Recorded at Audio Avenue Studios, Norway.
+ Additional recordings recorded in Sound Suite Studios, France.
+ Pre-produced at Audio Avenue Studios.
+ Mixed and mastered at Dub Studio, Norway.
+
+
+### "The Seventh Life Path" 2015, Gothic
+
+1. Seti  02:03    
+2. Serpent  06:43    
+3. Once My Light  07:34 
+4. Elixir  05:56    
+5. Sons of the North  08:31  
+6. Earendel  06:25    
+7. Concealed Disdain  06:22   
+8. Insania  06:50   
+9. Contemptuous Quitus  06:40    
+10. The Silver Eye  07:42    
+11. Tragedienne  05:03    
+12. Tragica 
+
+### "Dim Days of Dolor" 2016, Gothic
+
+1. Goddess of the Sea   
+2. Dim Days of Dolor   
+3. The 12th Hour     
+4. Treasure n' Treason     
+5. Cloud Nine   
+6. Veil of Winter   
+7. Ashes to Ashes  
+8. Elusive Sun  
+9. Playing with Fire    
+10. Fifth Column     
+11. Aeon's Embrace   
+12. Aeon's Embrace (French version)  
+
+
+Emmanuelle Zoldan - Vocals (female)  
+Morten Veland - Vocals (harsh, clean), Guitars, Bass, Drums, Keyboards, Programming  
+
+
 
 ## Отношения с другими группами
 

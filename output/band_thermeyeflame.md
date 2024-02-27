@@ -1,10 +1,52 @@
 # Therm.Eye.Flame
 
-Дискография
-"Spherical - demo" 2000, Black Metal
-"Spherical" 2001, Black Metal
-"Solar Nebula" 2002, Black Metal
-"To Evolution?!" 2004, Black Metal
+Modernized Black Metal (M.B.M)
+
+## Дискография
+
+### "Spherical - demo" 2000, Black Metal
+
+1.Between Life And Dream
+2.Threshold
+3.Waking The Creatures
+4.Kind Of A Planet By Eyes Of Souls
+
+
+### "Spherical" 2001, Black Metal
+
+cycle first_Between life and dream
+cycle second_Threshold
+cycle third_Waking the creatures
+cycle fourth_Sphere.T
+cycle fifth_Sphere.S
+cycle sixth_Kind of a planet by eyes of souls
+
++Video clip: cycle fourth_Sphere.T  
+
+### "Solar Nebula" 2002, Black Metal
+
+1.Outlet Of A New Day
+2.Sojourn In...
+3.Sixteen Levels Whip Cord
+4.Organism Of Two Forms
+5.Gates Of The Silent Waters Ravage
+6.Meteor Streams
+7.M.W,M.R
+8.After Damping The Sun
+
+### "To Evolution?!" 2004, Black Metal
+
+01.SECTORS OF MADNESS pt.1 (instrumental)
+02.SECTORS OF MADNESS pt.2
+03.COMPLEX STRUCTURE OF A COLD SPACE
+04.SOCIAL POLARIZATION
+05.THE PLATFORM >>MP3
+06.VACUUM OF THE APRIL'S WAVES
+07.RADAR WITH ARRIVAL ANGEL >>MP3
+08.OUTER DRUG
+09.TO EVOLUTION?! pt.1 (instrumental)
+10.TO EVOLUTION?! pt.2
+
 
 ## Отношения с другими группами
 

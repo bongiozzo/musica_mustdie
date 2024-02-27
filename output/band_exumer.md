@@ -1,11 +1,94 @@
 # Exumer
 
-Дискография
-"Possessed By Fire" 1986, Thrash
-"Rising From The Sea" 1987, Thrash
-"Fire & Damnation" 2012, Thrash
-"Fire Before Possession - The Lost Tapes" 2015, Thrash
-"The Raging Tides" 2016, Thrash
+
+
+## Дискография
+
+### "Possessed By Fire" 1986, Thrash
+
+Possessed by fire        4.56
+Destructive solution     3.48
+Fallen saint             4.03
+A mortal in black        4.03
+Sorrows of the judgement 3.12
+Xiron darkstar           3.13
+Reign of sadness         3.42
+Journey to oblivion      4.18
+Silent death             5.05
+
+
+
+    Mem Von Stein   Vocals & Bass
+    Syke Bornetto           Drums
+    Ray Mensh             Guitars
+    Bernie                Guitars
+
+Recorded at MUSICLAB STUDIOS, Berlin (1986).
+Executive producer Harris Johns. Front cover by Martin Appoldt.
+
+Produced, manufactured & distributed in Brazil by Rock Machine.
+Licensed by SIKA MUSIC, Germany.
+Package concept Matthias Prill. Art by Markatti.
+
+
+### "Rising From The Sea" 1987, Thrash
+
+Winds of death           4.23
+Rising from the sea      5.25
+Decimation               2.42
+The first supper         4.52
+Unearthed                5.12
+Shadows of the past      4.27
+Are you deaf?            2.08
+I dare you               3.46
+Ascension day            3.10
+
+
+
+    Paul Arakari    Vocals & Bass
+    Syke Bornetto           Drums
+    Ray Mensh             Guitars
+    Bernie                Guitars
+
+Recorded and mixed by Tom Kruger at the ZUKERFABRIK STUDIO, Stuttgart (1987).
+Produced by Tommy Ziegler and EXUMER. Front cover by Martin Appoldt.
+
+Produced, manufactured & distributed in Brazil by Rock Machine.
+Licensed by SIKA MUSIC, Germany.
+Package concept Matthias Prill. Art by Markatti.
+
+
+### "Fire & Damnation" 2012, Thrash
+
+
+
+### "Fire Before Possession - The Lost Tapes" 2015, Thrash
+
+01. Possessed By Fire
+02. Journey To Oblivion
+03. Reign Of Sadness
+04. Xiron Darkstar
+05. Fallen Saint
+06. Destructive Solution
+07. A Mortal in Black
+08. Silent Death
+
+### "The Raging Tides" 2016, Thrash
+
+1. The Raging Tides  04:08    
+2. Brand of Evil  03:48 
+3. Catatonic  03:29    
+4. Sacred Defence  03:17    
+5. Welcome to Hellfire  03:16    
+6. Sinister Souls  03:27 
+7. Shadow Walker  04:19    
+8. There Will Always Be Blood  03:26 
+9. Dark Reflections  03:13  
+10. Death Factory  02:57    
+11. Forever My Queen (Pentagram cover)  * 02:19   
+12. Hostage to Heaven (Grip Inc. cover)  * 04:08  
+
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,53 @@
 # Paradigma
 
-Дискография
-"Mare Veris" 1995, Death Doom
-"Skadi" 1996, Death Doom
+
+
+## Дискография
+
+### "Mare Veris" 1995, Death Doom
+
+1. Come Winter
+2. Best Regards
+3. Inner Chanting
+4. One Away From Paradise
+5. Sleep
+6. The Shadow
+[7]. Terra Mater
+[8]. Journey's End
+[9]. When The Storm Comes Down
+
+[7]-[9] на стороне B
+
+All Songs Written & Produced By 
+PARADIGMA.
+
+(P)&(C) 1995 HEAD NOT FOUND Records
+
+### "Skadi" 1996, Death Doom
+
+1. Best Regards (Astral Version)
+2. Half
+3. Witch Hunt
+4. Agonized
+5. Come Winter (The Skadi
+    Interpretation)
+
+All songs written by PARADIGMA
+Produced by PARADIGMA
+Engineered by Erik Valderhaug
+Recorded and mixed on various
+occasions at Lydkjeller'n Studio
+
+Chris Eidskrem - Bass
+KJ Lervag - Drums, Synth
+Zilla - Soprano Vocals
+Tom Kvalsvoll - Bass Vocals and Lead
+Guitars
+Tom Erik Evensen - Tenor Vocals and
+Guitars
+
+(p)(c) 1996 HEAD NOT FOUND Records
+
 
 ## Отношения с другими группами
 

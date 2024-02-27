@@ -1,7 +1,22 @@
 # Ditchcreeper
 
-Дискография
-"Rotting Repugnancy" 2009, Death Metal
+
+
+## Дискография
+
+### "Rotting Repugnancy" 2009, Death Metal
+
+1. Confessions of a Child Killer	 
+2. Cunt Puss 
+3. Malodorous Vaginal Deflagration	 
+4. Vaginal Holocaust	 
+5. Repugnant Ejaculation of Septic Discharge	 
+6. Duodenal Biliary Drainage	 
+7. Castrated for Adultery	 
+8. Adductor Spasmodic Dysphonia	 
+9. Rotting Repugnancy	 
+10. Esophagogastroduodenoscopy
+
 
 ## Отношения с другими группами
 

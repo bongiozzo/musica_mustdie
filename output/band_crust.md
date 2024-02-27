@@ -1,7 +1,35 @@
 # Crust
 
-Дискография
-"Shapes of Inner Urge" 1996, Death Metal
+Brutal Ultra Speed Death Metal
+
+## Дискография
+
+### "Shapes of Inner Urge" 1996, Death Metal
+
+1.  Intro
+2.  The River Will Flow
+3.  Decomposition
+4.  Grass
+5.  Mince My Local Mind
+6.  Land Of Behind
+7.  Color Code: Red
+8.  Drop Dead
+9.  First Breath
+10.Darkside
+
+All music & lyrics by CRUST.
+Produced & mixed by R.Wubbena & CRUST.
+Executive producer A.Docter.
+Cover Artwork by Andree Docter.
+
+Matthias - Guitars
+Marco - Vocals
+Sven - Guitars
+Gunnar - Bass, Backing Vocals
+Sebastian - Drums
+
+(P)(C) 1996 INVASION Records
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,20 @@
 # Who Dies In Siberian Slush
 
-Дискография
-"Bitterness Of The Years That Are Lost" 2010, Death Doom
+
+
+## Дискография
+
+### "Bitterness Of The Years That Are Lost" 2010, Death Doom
+
+1. Leave Me
+2. The Woman We Are Looking For
+3. Mobius Ring
+4. Interlude
+5. Завещание Гумилёва
+6. An Old Road Through The Snow
+7. Вitterness Of The Years That Are Lost
+
+
 
 ## Отношения с другими группами
 

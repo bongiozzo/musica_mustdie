@@ -1,6 +1,9 @@
 # Bodybag Romance
 
-Дискография
+grind/death from Maryland
+
+## Дискография
+
 
 ## Отношения с другими группами
 

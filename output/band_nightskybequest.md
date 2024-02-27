@@ -1,7 +1,32 @@
 # Nightsky Bequest
 
-Дискография
-"Uncounted Stars, Unfounded Dreamlands" 1996, Death Doom
+
+
+## Дискография
+
+### "Uncounted Stars, Unfounded Dreamlands" 1996, Death Doom
+
+1. Sleeping Out Of Time
+2. Blankness
+3. The Promise
+4. Unfounded Dreamland
+
+Recorded & Mixed At Graffiti Studio.
+Produced By Andre Mateev & Emil Saparevski.
+Cover Artwork By Emil Saparevski.
+Band Residence: Bulgaria.
+
+Radoslava Dikanska - Vocals
+Andre Mateev - Bass, Voices
+Emil Goranov - Guitars
+
+Sessions:
+Ivaylo Garamanov - Drums
+Nikolay Grigorov - Keyboards
+Ivan Gizdov - Synth
+
+(P)(C) 1996 POLYPHEMUS Records // POLYPH 004
+
 
 ## Отношения с другими группами
 

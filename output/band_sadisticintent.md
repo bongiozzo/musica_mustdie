@@ -1,9 +1,21 @@
 # Sadistic Intent
 
-Дискография
-"Impending Doom (EP)" 1990, Death Metal
-"Resurrection (EP)" 1994, Death Metal
-"Ancient Black Earth (EP)" 1997, Death Metal
+
+
+## Дискография
+
+### "Impending Doom (EP)" 1990, Death Metal
+
+
+
+### "Resurrection (EP)" 1994, Death Metal
+
+
+
+### "Ancient Black Earth (EP)" 1997, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

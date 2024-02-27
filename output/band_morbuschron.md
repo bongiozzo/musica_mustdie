@@ -1,7 +1,21 @@
 # Morbus Chron
 
-Дискография
-"Sleepers In The Rift" 2011, Death Metal
+
+
+## Дискография
+
+### "Sleepers In The Rift" 2011, Death Metal
+
+1. Through the Gaping Gate / Coughing in a Coffin
+2. Creepy Creeping Creep
+3. Hymns to a Stiff
+4. Red Hook Horror
+5. The Hallucinating Dead
+6. Ways of Torture
+7. Dead Body Pile Necrophile
+8. Lidless Coffin
+9. Deformation of the Dark Matter
+
 
 ## Отношения с другими группами
 

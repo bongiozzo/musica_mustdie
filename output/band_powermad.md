@@ -1,7 +1,22 @@
 # Powermad
 
-Дискография
-"Absolute Power" 1989, Speed Metal
+
+
+## Дискография
+
+### "Absolute Power" 1989, Speed Metal
+
+1. Slaughterhouse  05:21   
+2. Absolute Power  04:28  
+3. Nice Dreams  04:11   
+4. Return from Fear  02:56 
+5. Test the Steel (Powermad)  03:20
+6. Plastic Town  04:58   
+7. B.N.R.  05:17   
+8. Failsafe  03:14   
+9. Brainstorms  03:32  
+10. Final Frontier  05:30 
+
 
 ## Отношения с другими группами
 

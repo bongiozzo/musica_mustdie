@@ -1,9 +1,44 @@
 # Witheria
 
-Дискография
-"Infernal Maze" 2006, Thrash
-"Painful Escape" 2009, Thrash
-"Vanishing Order" 2011, Thrash
+
+
+## Дискография
+
+### "Infernal Maze" 2006, Thrash
+
+1. The Disillusion
+2. Hypnotic Massacre
+3. Thrash the Place
+4. Mental Sadist
+5. Hell is What You Deserve
+6. Purification
+7. Spiral of Madness
+8. Fire and Pain
+
+### "Painful Escape" 2009, Thrash
+
+1. Legions of Evil	 
+2. Raining Steel	 
+3. The Solitarium	 
+4. Hate is All You Need	 
+5. Escaped in Blood	 
+6. Sphere of Death	 
+7. Tortured Spawn	 
+8. Altered Mind	 
+9. Reflections
+
+### "Vanishing Order" 2011, Thrash
+
+1. A.T.D.B.T.S.	 
+2. Obscene Desecrator	 
+3. The Abyss Within	 
+4. The Final Hour	 
+5. The Nameless Beast	 
+6. Perished In Torment	 
+7. Bringer Of Chaos	 
+8. Fire In Black	 
+9. Timeless
+
 
 ## Отношения с другими группами
 

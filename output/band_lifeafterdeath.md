@@ -1,7 +1,31 @@
 # Life After Death
 
-Дискография
-"Life After Death" 1996, Thrash
+Progressive Heavy Thrash
+
+## Дискография
+
+### "Life After Death" 1996, Thrash
+
+1.  Tagger
+2.  Hard Time
+3.  Red Light
+4.  My Life
+5.  Borrowed Time
+6.  Life After Death
+7.  Mother
+8.  Home Grown
+9.  Love And Destruction
+10.  Don't Believe A Word
+11.  Sunshine Of Your Love
+
+Jack Emrick - Vocals
+Ray Burke - Bass
+Terry Williams - Guitars
+Glovanni Santos - Guitars
+Gonzo Sandoval - Drums
+
+(P)c 1996 RISING SUN Productions
+
 
 ## Отношения с другими группами
 

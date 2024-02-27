@@ -1,6 +1,9 @@
 # Tru Smoke Diesel
 
-Дискография
+American Thrash A-la Pantera and Machine Head
+
+## Дискография
+
 
 ## Отношения с другими группами
 

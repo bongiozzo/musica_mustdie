@@ -1,19 +1,99 @@
 # Girlschool
 
-Дискография
-"Demolition" 1980, Hard Rock
-"Hit And Run" 1981, Hard Rock
-"Screaming Blue Murder" 1982, Hard Rock
-"Play Dirty" 1983, Hard Rock
-"Running Wild" 1985, Hard Rock
-"Nightmare At Maple Cross" 1986, Hard Rock
-"Take A Bite" 1988, Hard Rock
-"Girlschool" 1992, Hard Rock
-"Girlschool Live" 1995, Hard Rock
-"Race with the Devil - Live" 1998, Hard Rock
-"21st Anniversary - Not That Innocent" 2002, Hard Rock
-"Believe" 2004, Hard Rock
-"Legacy" 2008, Hard Rock
+
+
+## Дискография
+
+### "Demolition" 1980, Hard Rock
+
+
+
+### "Hit And Run" 1981, Hard Rock
+
+
+
+### "Screaming Blue Murder" 1982, Hard Rock
+
+1.  Screaming Blue Murder
+2.  Live With Me
+3.  Take It From Me
+4.  Wildlife
+5.  I Turns Your Head Around
+6.  Don't Call It Love
+7.  Hellrazor
+8.  When Your Blood Runs Cold
+9.  You Got Me
+10.Flesh And Blood
+
+Produced & Engineered By Nigel Gray.
+Recorded At Surrey Sound Studios, February And March 1982.
+
+Gil Weston - Bass & Vocals
+Kelly Johnsson - Guitar & Vocals
+Denise Dufort - Drums
+Kim McAuliffe - Guitar & Vocals
+
+(P)(C) 1982 BRONZE Records Ltd.
+
+### "Play Dirty" 1983, Hard Rock
+
+1.  Going Under
+2.  High 'N' Dry
+3.  Play Dirty
+4.  20th Century Boy
+5.  Breaking All The Rules
+6.  Burning In The Heat
+7.  Surrender
+8.  Rock Me Shock Me
+9.  Running For Cover
+10.Breakout (Knob In The Media)
+
+Produced By Jimlea & Noddy Holder.
+Mixed By Jimlea.
+
+Gil Weston - Bass & Vocals
+Kelly Johnsson - Guitar & Vocals
+Denise Dufort - Drums
+Kim McAuliffe - Guitar & Vocals
+
+(P)(C) 1983 BRONZE Records Ltd.
+
+### "Running Wild" 1985, Hard Rock
+
+
+
+### "Nightmare At Maple Cross" 1986, Hard Rock
+
+
+
+### "Take A Bite" 1988, Hard Rock
+
+
+
+### "Girlschool" 1992, Hard Rock
+
+
+
+### "Girlschool Live" 1995, Hard Rock
+
+
+
+### "Race with the Devil - Live" 1998, Hard Rock
+
+
+
+### "21st Anniversary - Not That Innocent" 2002, Hard Rock
+
+
+
+### "Believe" 2004, Hard Rock
+
+
+
+### "Legacy" 2008, Hard Rock
+
+
+
 
 ## Отношения с другими группами
 

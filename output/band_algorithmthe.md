@@ -1,9 +1,21 @@
 # Algorithm, The
 
-Дискография
-"Polymorphic Code" 2012, Metal
-"Octopus4" 2014, Metal
-"Brute Force" 2016, Metal
+
+
+## Дискография
+
+### "Polymorphic Code" 2012, Metal
+
+
+
+### "Octopus4" 2014, Metal
+
+
+
+### "Brute Force" 2016, Metal
+
+
+
 
 ## Отношения с другими группами
 

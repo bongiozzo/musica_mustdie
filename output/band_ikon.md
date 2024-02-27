@@ -1,10 +1,109 @@
 # Ikon
 
-Дискография
-"In The Shadow Of The Angel" 1995, Gothic
-"A Moment In Time" 1996, Gothic
-"Life Without End" 1996, Gothic
-"Flowers For The Gathering" 1997, Gothic
+
+
+## Дискография
+
+### "In The Shadow Of The Angel" 1995, Gothic
+
+1. Condemnation
+2. Lord Of Darkness
+3. Secrets Within
+4. Fall Apart *
+5. Hallowed Ground
+6. Black Roses
+7. I've Been
+8. Distant Memory
+9. Truth
+10.Suicide
+11.Love Is Colder Than Death
+12.In The Shadow Of The Angel
+
+All Songs By IKON,Except * Written By DEATH IN JUNE.
+Produced By Chris McCarter.
+Engineered by Adam Calaitzis.
+Recorded & Mixed At Toyland Studios.
+
+Michael Carrodus - Vocals
+Chris McCarter - Guitar, Keyboards, Programming
+Dino Molinaro - Bass
+
+(P)&(C) 1995 APPOLYON Records
+
+### "A Moment In Time" 1996, Gothic
+
+1.  Reality Is Lost
+2.  To Turn Away
+3.  Alone
+4.  As Time Goes By
+5.  Under The Watchful Eye
+6.  A Moment In Time
+7.  Echoes Of Silence
+8.  Dreaming
+9.  Headspin
+10.Why
+[11].So Far Away
+[12].Towards Tomorrow
+[13].So Evil
+[14].The Final Experience
+
+[11]-[I4] - Ha стороне B
+
+All songs written by IKON
+Produced by Chris McCarter
+Engineered by Sandro Barbagalo and Adam Calaitzis
+Recorded and mixed at Frontline Sound Studio
+
+Michael Carrodus - Vocals
+Chris McCarter - Guitar, Programming
+Dino Molinaro - Bass
+Maurice Molella - Drums (On Tracks 1-3)
+
+(p)c 1996 APOLLYON Records
+
+### "Life Without End" 1996, Gothic
+
+1. Life Without End
+2. Sleepless (The Grey Mix)
+3. The Empty World
+4. Answers To Nothing
+
+All songs written by IKON
+Produced by Chris McCarter
+Engineered & Mixed By Adam Calaitzis
+Recorded At Toyland Studios, Melbourne.
+
+Michael Carrodus - Vocals
+Chris McCarter - Guitar, Programming
+Dino Molinaro - Bass
+
+(p)c 1996 APOLLYON Records
+
+### "Flowers For The Gathering" 1997, Gothic
+
+1.  Persuasion
+2.  Somewhere Else
+3.  Life Without End
+4.  Stranger I've Become
+5.  Into Your Madness
+6.  Camouflage Heart
+7.  In Trust I Return
+8.  Beyond Grey Skies
+9.  Call Of Despair
+10.On The Trail Of Tears
+11.For Eternity
+
+All songs written by IKON.
+Produced by Chris McCarter.
+Engineered & Mixed By Adam Calaitzis.
+Recorded and mixed at Toyland Studios, Melbourne.
+
+Michael Carrodus - Vocals
+Chris McCarter - Guitar, Programming, Keyboards, Vocals
+Dino Molinaro - Bass
+
+(p)c 1997 APOLLYON Records
+
 
 ## Отношения с другими группами
 

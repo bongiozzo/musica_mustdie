@@ -1,8 +1,31 @@
 # Cryhavoc
 
-Дискография
-"Sweetbriers" 1998, Death Metal
-"Pitch-black Blues" 1999, Death Metal
+
+
+## Дискография
+
+### "Sweetbriers" 1998, Death Metal
+
+1. Bloodtie
+2. Repent (Whore)
+3. Come With Me
+4. Wolfdance
+5. Pagan Uprise
+6. I Fade Away
+7. Armageddon Y'Know
+8. Misanthrophy
+
+### "Pitch-black Blues" 1999, Death Metal
+
+1. Cryscythe
+2. Metamorphosis
+3. The Wind
+4. Snowsong
+5. Spree
+6. The Serpent and Eve
+7. Wild at Heart
+8. Pitch-Black Ink
+
 
 ## Отношения с другими группами
 

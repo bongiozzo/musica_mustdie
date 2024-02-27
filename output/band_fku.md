@@ -1,10 +1,41 @@
 # F.K.U.
 
-Дискография
-"Metal Moshing Mad" 1999, Thrash
-"Sometimes They Come Back... To Mosh" 2005, Thrash
-"Metal Moshing Mad (Re-release)" 2007, Thrash
-"Where Moshers Dwell" 2009, Thrash
+Thrash Metal
+
+## Дискография
+
+### "Metal Moshing Mad" 1999, Thrash
+
+
+
+### "Sometimes They Come Back... To Mosh" 2005, Thrash
+
+
+
+### "Metal Moshing Mad (Re-release)" 2007, Thrash
+
+
+
+### "Where Moshers Dwell" 2009, Thrash
+
+01.	Welcome To Your Nightmare
+02.	Where Moshers Dwell	
+03.	Twitch Of The Thrash Nerve	
+04.	Faster Than The Shark	
+05.	The Pit And The Poser	
+06.	Dead Coroner	
+07.	Almost Metal	
+08.	Hate Your Guts (Love Your Brain)
+09.	Bedilia - Back For Cake	
+10.	Worms	
+11.	Sleepwalker Texas Ranger	
+12.	He Knows The Drill	
+13.	Six Feet Ьnderwear	
+14.	Phantom Killer Attack		
+15.	Blairsville Blues	
+16.	Horror Metal Moshing Machine
+17.	Highway To Horror
+
 
 ## Отношения с другими группами
 

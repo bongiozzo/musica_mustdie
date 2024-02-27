@@ -1,6 +1,9 @@
 # Domesticide
 
-Дискография
+death-punk (victims of internal decay members)
+
+## Дискография
+
 
 ## Отношения с другими группами
 

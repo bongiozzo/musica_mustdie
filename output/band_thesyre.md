@@ -1,10 +1,53 @@
 # Thesyre
 
-Дискография
-"Thesyre" 2003, Black Metal
-"Duality" 2005, Black Metal
-"Exist!" 2006, Black Metal
-"Resistance" 2009, Black Metal
+
+
+## Дискография
+
+### "Thesyre" 2003, Black Metal
+
+1. Propagandart 02:06
+2. Virus 02:31
+3. Triumphant March 02:56
+4. Ashes 03:04
+5. The Arsonist 01:46
+6. The Cleansing 02:29 
+7. Elitism 03:15
+8. Creed 03:04 
+9. La Grande Finale 02:28
+10. Termination 02:22 
+
+### "Duality" 2005, Black Metal
+
+1. Pyromania 03:08
+2. Terror 01:54 
+3. Hypocritely Correct 02:32
+4. F.O.A.D. 02:20
+5. Stand 03:04
+6. The Eagle in the Wheel 03:47
+7. Discount Planet Earth 02:30
+8. The Cult of Victory 02:53
+9. Witch-Hunt 02:57 
+10. Quatre Lys Noirs 01:44
+11. Outbreak of Evil (Sodom cover) 02:27 
+
+### "Exist!" 2006, Black Metal
+
+1. Exist! 32:44 
+
+### "Resistance" 2009, Black Metal
+
+1. Au prйsent   
+2. Hymne au mйrite   
+3. Par une froide nuit d'octobre   
+4. Laпque et souverain   
+5. De rйalisme et de nihilisme actif   
+6. L'йgalitarisme freine l'excellence   
+7. Matйrialisme consumйriste infectieux   
+8. La grande noirceur   
+9. Pour en finir avec le jugement des dieux   
+10. Rйsistance 
+
 
 ## Отношения с другими группами
 

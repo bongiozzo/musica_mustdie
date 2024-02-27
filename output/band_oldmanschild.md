@@ -1,14 +1,180 @@
 # Old Man's Child
 
-Дискография
-"Born of the Flickering" 1996, Black Metal
-"In the Shades of Life" 1996, Black Metal
-"Pagan Prosperity" 1997, Black Metal
-"Ill-Natured Spiritual Invasion" 1998, Black Metal
-"Revelation 666: The Curse of Damnation" 2000, Black Metal
-"In Defiance of Existence" 2003, Black Metal
-"Vermin" 2005, Black Metal
-"Slaves Of The World" 2009, Black Metal
+Norway Sympho-Black a-la Dimmu Borgir
+
+## Дискография
+
+### "Born of the Flickering" 1996, Black Metal
+
+1. Demons Of The Thorncastle 
+2. Swallowed By A Blinded One 
+3. Born Of The Fuckering 
+4. Ring Of The Dark Ages 
+5. On Through The Desert Storm 
+6. Cristian Death 
+7. Funeral, Swords And Souls
+8. The Last Chapter 
+9. ...Leeds to Utopia - The Old Man's Dream
+
+All Music By Grusom
+Logo By Christophe Szaidel
+Cover By Egolego
+
+Grusom - Vocals, Lead, Rhythm And Acoustic Guitars
+Jardar - Rhythm And Lead Guitars
+Gonde - Bass And Backing Vocals
+Tjodalv - Battery
+
+(P)c 1996 SHAGRATH Records 003
+
+### "In the Shades of Life" 1996, Black Metal
+
+1.  St. Aidens Fall
+2.  Seeds Of The Ancient Gods
+3.  Manet Sorgfull Igjennom Skogen
+4.  The Old Man's Child
+5.  Og Leg Iakttok Dodsrikets Inntog
+
+Recorded and Mixed at Stovner.
+Produced by Bard and OMC.
+Mastered by Vargnatt,inc at Strype Audio.
+Cover artwork by Egolego/Shagrath.
+
+Grysom - Vocals, Guitars, Synths
+Jardar - Guitars
+Tjodah - Drums, Vocals
+Brynjard Tristan - Bass
+
+(P)c 1996  HOT Records // SHAGRATH 005
+
+### "Pagan Prosperity" 1997, Black Metal
+
+1. Millennium King 
+2. Behind the Mask 
+3. Soul Possessed 
+4. My Demonic Figures 
+5. Dommmaker 
+6. My Kingdom Will Come 
+7. Return of the Night Creatures 
+8. What Malice Embrace 
+
+
+### "Ill-Natured Spiritual Invasion" 1998, Black Metal
+
+1. Towards Eternity (Galder) 
+2. Dream Ghost (Galder) 
+3. Demoniacal Possession (Galder) 
+4. Fall of Man (Galder) 
+5. Capitves of Humanity (Galder) 
+6. God of Impiety (Galder) 
+7. My Evil Revelations (Galder) 
+8. Thy Servant (Galder) 
+
+
+### "Revelation 666: The Curse of Damnation" 2000, Black Metal
+
+1. Phantoms Of Mortem Tales (5:35) 
+2. Hominis Nocturna (5:22) 
+3. In Black Endless Void (4:27) 
+4. Unholy Vivid Innocence (5:06) 
+5. Passage To Pandemonium (4:13) 
+6. Obscure Divine Manifestation (4:20) 
+7. World Expiration (6:06) 
+8. Into Silence Embrace (5:02)
+
+Galder - vocals, guitar and synths
+Jardar - guitars
+Memnoch - bass
+Tjodalv - drums
+Grimar - drums
+
+Marielle Anderson - Female guest vocals
+
+Recorded at Abyss Studio November 1999
+Producers: Galder and Peter Tдgtgren
+Engineered by Peter Tдgtgren
+
+
+### "In Defiance of Existence" 2003, Black Metal
+
+01. Felonies of the Christian Art (5:48)
+02. Agony of Fallen Grace (4:28)
+03. Black Seeds on Virgin Soil (4:57)
+04. In Defiance of Existence (4:56)
+05. Sacrifice of vengeance (4:31)
+06. The Soul Receiver (4:31)
+07. In Quest of Enigmatic Dreams (0:52)
+08. The Underworld Domains (4:48)
+09. Life Depreived (4:49)
+
+Release dates:
+Europe: January 20, 2003.
+USA: March 25, 2003.
+
+All music and lyrics written and composed by Galder, except for "In Defiance Of Existence", music by Galder/Jardar and "In Quest of Enigmatic Dreams", music by Galder/Jardar.
+
+
+Line-Up:
+
+Galder
+- vocals, lead & acoustic guitars, bass, keyboards.
+
+Jardar
+- lead & acoustic guitars.
+
+Nicholas Barker
+- drums
+
+
+Guest Musicians:
+
+Guitar leads on "Felonies of the Christian Art" and "Life Depreived" by Gus G.
+
+
+Credits:
+
+Produced by Galder.
+Recorded at Studio Fredman, Gothenburg (Sweden) during the period April–July 2002.
+Engineered and Mixed by Fredrik Nordstr&ouml;m (In Flames, Arch Enemy, At the Gates), Patrik J. and Arnold Lindberg.
+
+Album cover artwork by Shannon Hourigan: www.semperstudio.com
+Typhographic layout by mail@medialogistics.com
+Original Old Man's Child logo by Christophe Szpajdel.
+
+&copy; 2003 Century Media
+
+### "Vermin" 2005, Black Metal
+
+1. Enslaved And Condemned (4:15) 
+2. The Plague Of Sorrow (4:09) 
+3. War Of Fidelity (4:19) 
+4. In Torment's Orbit (5:04) 
+5. Lord Of Command [Bringer Of Hate] (4:51) 
+6. The Flames Of Deceit (4:39) 
+7. Black Marvels Of Death (4:22) 
+8. Twilight Damnation (4:42) 
+9. ...As Evil Descends (1:11)
+
+### "Slaves Of The World" 2009, Black Metal
+
+1. Slaves of the World 04:41  
+2. Saviours of Doom 04:03  
+3. The Crimson Meadows 04:34  
+4. Unholy Foreign Crusade 03:40  
+5. Path of Destruction 05:21  
+6. The Spawn of Lost Creation 04:07  
+7. On the Devil's Throne 04:49  
+8. Ferden Mot Fienden's Land 05:34  
+9. Servants of Satan's Monastery 05:19 
+
+
+Line-up:
+Galder - Vocals, Guitars, Bass, Keyboards
+Peter Wildoer - Drums (Session)
+
+The CD was recorded in the fall of 2008 at the Fredman Studio in Gothenburg,
+Sweden, with producer Fredrik Nordstrцm. 
+
 
 ## Отношения с другими группами
 

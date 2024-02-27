@@ -1,7 +1,13 @@
 # Noisecore Freak
 
-Дискография
-"…Murder By Static…" 1999, Grindcore
+
+
+## Дискография
+
+### "…Murder By Static…" 1999, Grindcore
+
+
+
 
 ## Отношения с другими группами
 

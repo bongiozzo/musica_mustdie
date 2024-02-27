@@ -1,8 +1,89 @@
 # Necrophiliac
 
-Дискография
-"Chaopula. Citadel Of Mirrors" 1992, Deathcore
-"Maze of Forking Paths [comp]" 2016, Deathcore
+
+
+## Дискография
+
+### "Chaopula. Citadel Of Mirrors" 1992, Deathcore
+
+1. Gorefruit Treasure
+2. Childcorpse Malformations
+3. Necrotic Necrosis
+4. A Fragment From Chaopula
+5. Astral Corpse
+6. Cyclic Pathology Of Natura
+7. Depressed In Crimson Climax
+8. Glutting the Guts
+9. Image Control In Biosphere Of Unreal
+
+ Bongo - Vocals
+ Ery - Guitars
+ Miguel - Guitars
+ Uly - Bass
+ Sweick - Drums
+
+All Music By NECROPHILIAC.
+All Lyrics By Bongo.
+Produced By Maguel Zamora.
+Engineered By Alfonso.
+Recorded At Central Studios (Sevilla) On March 1992.
+
+(p) 1992 DROWNED Productions
+(c) 1992 HARD VINYL Records
+
+### "Maze of Forking Paths [comp]" 2016, Deathcore
+
+	- CD1 - 
+"Chaopula - Citadel of Mirrors" [Album '92] 
+01. Gorefruit Treasure 
+02. Childcorpse Malformations 
+03. Necrotic Narcosis 
+04. A Fragment From Chaopula 
+05. Astral Corpse 
+06. Cyclic Pathology of Natura 
+07. Depressed in Crimson Climax 
+08. Glutting the Guts 
+09. Image Control in Biosphere of Unreal 
+"Tombified Sex" [Unreleased 7”EP '91] 
+10. Tombified Sex (Intro) 
+11. Necrotic Narcosis 
+12. Astral Corpse  
+"Bowelfeasted Gorgon" [Unreleased 7”EP ’91] 
+13. Childcorpse Malformation (Intro) 
+14. Gorefruit Treasure 
+15. Anal Death 
+"Live at KGB, Barcelona" [19.07.1991] 
+16. Premature Burial 
+17. Hallucinations from Decomposion * 
+18. Glutting the Guts 
+19. Virgin Blood 
+20. Supposed to Rot (Nihilist cover) 
+(*) Unreleased track 
+
+- CD2 - 
+"Infernal Exorcism" [Demo '89] 
+01. Intro (Flesh Ritual) 
+02. Demonchrist 
+03. Human Casket 
+04. Virgin Blood 
+"Thrashing Till Death" [Comp. 12”LP '90] 
+05. Premature Burial 
+06. Infernal Majesty 
+"Process of Empalement" [Demo-live '90] 
+07. The Deformed Ways 
+08. Human Casket 
+09. Demonchrist 
+10. Premature Burial 
+11. Heretic Witchlust 
+12. Anal Death 
+"Endless Death" [Demo-live '88] 
+13. Necrofucken 
+14. Nuclear Nightmare 
+15. Slayed Sunflower Seeds 
+16. Demoniac Slaughter 
+17. The Omen 
+18. Bombenhagel (Sodom cover)
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,34 @@
 # Deteriorate
 
-Дискография
-"Rotting In Hell" 1993, Deathcore
+Satanic Death Metal
+
+## Дискография
+
+### "Rotting In Hell" 1993, Deathcore
+
+1. Agonized Display
+2. A Thousand Years Of Anguish
+3. Cannibal Autopsy
+4. Devoured
+5. The Sufferance
+6. Rotting In Hell
+7. Aspyxiation Cremation
+8. Shadows Of Death
+9. Beyond The Grave
+10.Decomposed Anatomy
+
+ Mike Trush - Vocals, Bass
+ Joe Gorski - Lead Guitar
+ Frank Ierovante - Guitar
+ Rich Yurgevich - Drums
+
+All Songs Written By Ierovante & Gorski
+Produced By Rich Yurgevich & Frank Ierovante
+Engineered & Mixed By John Lovrich
+Recorded At Snugfit Studios -June 1993
+
+(p)+(c) 1993 JL AMERICA
+
 
 ## Отношения с другими группами
 

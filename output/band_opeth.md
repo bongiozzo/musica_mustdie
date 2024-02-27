@@ -1,20 +1,194 @@
 # Opeth
 
-Дискография
-"Orchid" 1995, Death Doom
-"Morningrise" 1996, Death Doom
-"My Arms, Your Hearse" 1997, Death Doom
-"Still Life" 1999, Death Doom
-"Blackwater Park" 2001, Death Doom
-"Deliverance" 2002, Death Doom
-"Damnation" 2003, Instrumental
-"Ghost Reveries" 2005, Death Doom
-"The Roundhouse Tapes (2 CD)" 2007, Death Doom
-"Watershed" 2008, Progressive
-"Heritage" 2011, Progressive
-"Pale Communion" 2014, Progressive
-"Sorceress (single)" 2016, Progressive
-"Sorceress" 2016, Progressive
+
+
+## Дискография
+
+### "Orchid" 1995, Death Doom
+
+1. In Mist She Was Standing
+2. Under The Weeping Moon
+3. Slhouette
+4. Forest Of October
+[5].The Twilight Is My Robe
+[6].Requiem
+[7].The Apostle In Triumph
+
+[5]-[7] На Стороне B
+
+All Songs Written By OPETH.
+Produced By OPETH.
+Engineered By Dan Swano.
+Recorded At Unisound Studio.
+
+Mikael Akerfeldt - Guitars, Vocals
+Johan De Farfalla - Bass, Back Vocals
+Anders Nordin - Drums, Piano
+Peter Lindgren - Guitars
+
+(P)&(C) 1995 CANDLE LIGHT Records
+
+### "Morningrise" 1996, Death Doom
+
+1.  Advent
+2.  The Night And The Silent Water
+3.  Nectar
+4.  Black Rose Immortal
+5.  To Bid You Farewell
+
+Recorded and Mixed at Unisound Studio
+Mastered at Cutung Room
+Produced by OPETH and Dan Swano
+Engineered by Dan Swano
+
+Mikael Akerfeldt - Vocals, Guitars
+Peter Lindgren - Guitars
+Johan DeFarfalla - Bass
+Anders Nordin - Dnuns, Percussion
+
+(P)c 1996 CANDLELIGHT Records // CANDLE 015
+
+### "My Arms, Your Hearse" 1997, Death Doom
+
+01. Prologue [00:59] 
+02. April Ethereal [08:41] 
+03. When [09:14] 
+04. Madrigal [01:25] 
+05. The Amen Corner [08:43] 
+06. Demon of the Fall [06:13] 
+07. Credence [05:26] 
+08. Karma [07:52] 
+09. Epilogue [03:59] 
+
+
+### "Still Life" 1999, Death Doom
+
+01. The Moor [11:24] 
+02. Godhead's Lament [09:46] 
+03. Benighted [04:59] 
+04. Moonlapse Vertigo [08:59] 
+05. Face of Melinda [07:58] 
+06. Serenity Painted Death [09:12] 
+07. White Cluster [10:01] 
+
+
+### "Blackwater Park" 2001, Death Doom
+
+    The leper affinity      10.23
+    Bleak                    9.15
+    Harvest                  6.01
+    The drapery falls       10.53
+    Dirge for november       7.53
+    The funeral portrait     8.44
+    Pattens in the ivy       1.52
+    Blackwater park         12.06
+
+### "Deliverance" 2002, Death Doom
+
+
+
+### "Damnation" 2003, Instrumental
+
+1. Windowpane
+2. In My Time of Need
+3. Death Whispered A Lullaby
+4. Closure
+5. Hope Leaves
+6. To Rid The Disease
+7. Ending Credits
+8. Weakness
+
+Mikael Akerfeldt – Vocals, guitars
+Martin Lopez – Drums and percussion
+Peter Lindgren – Guitars
+Martin Mendez – Bass guitars
+
+Music and lyrics by M.Akerfeldt, except "Death Whispered A Lullaby", lyrics by Steven Wilson
+
+
+### "Ghost Reveries" 2005, Death Doom
+
+1. Ghost of perdition
+2. The baying of the hounds
+3. Beneath the mire
+4. Atonement
+5. Reverie/Harlequin forest
+6. Hours of wealth
+7. The grand conjuration
+8. Isolation years
+
+### "The Roundhouse Tapes (2 CD)" 2007, Death Doom
+
+
+
+### "Watershed" 2008, Progressive
+
+1. Coil 03:07  
+2. Heir Apparent 08:51  
+3. The Lotus Eater 08:48  
+4. Burden 07:42  
+5. Porcelain Heart 08:01  
+6. Hessian Peel 11:26  
+7. Hex Omega 06:59 
+
+
+
+Lineup:
+
+Mikael Еkerfeldt: vocals, guitar, production
+Fredrik Еkesson: guitar
+Martin Mendez: bass
+Martin Axenrot: drums, percussion
+Per Wiberg: keyboards
+Nathalie Lorichs: guest vocals on "Coil" 
+
+### "Heritage" 2011, Progressive
+
+1. Heritage 02:05 
+2. The Devil's Orchard 06:39 
+3. I Feel the Dark 06:40 
+4. Slither 04:03 
+5. Nepenthe 05:40 
+6. Haxprocess 06:57 
+7. Famine 08:32 
+8. The Lines In My Hand 03:48 
+9. Folklore 08:19 
+10. Marrow Of The Earth 04:18
+
+
+### "Pale Communion" 2014, Progressive
+
+1. Eternal Rains Will Come     
+2. Cusp of Eternity  05:36    
+3. Moon Above, Sun Below     
+4. Elysian Woes   
+5. Goblin      
+6. River      
+7. Voice of Treason 
+8. Faith in Others 
+
+
+### "Sorceress (single)" 2016, Progressive
+
+1. Sorceress  05:49 
+
+### "Sorceress" 2016, Progressive
+
+1. Persephone  01:51  
+2. Sorceress  05:49   
+3. The Wilde Flowers  06:49 
+4. Will o the Wisp  05:07  
+5. Chrysalis  07:16    
+6. Sorceress 2  03:49    
+7. The Seventh Sojourn  05:29  
+8. Strange Brew  08:44    
+9. A Fleeting Glance  05:06   
+10. Era  05:41    
+11. Persephone (Slight Return)  00:54  
+
+
+Recorded at Rockfield Studios in Monmouth, Wales, UK.
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,23 @@
 # Andro Coulton
 
-Дискография
-"Dragonhead" 2006, Heavy Metal
+
+
+## Дискография
+
+### "Dragonhead" 2006, Heavy Metal
+
+1. Dragonhead		 
+2. Dark Angel	 
+3. Sisters Of Fate	 
+4. Nothin's Gonna Stop Us Now		 
+5. Bring Me Down Gently		 
+6. The Archimage	 
+7. They're Lyin'		 
+8. Poor Knlghts		 
+9. Hell's Fire	 
+10. Hit This Town Tonight		 
+11. Ј50 Superstar
+
 
 ## Отношения с другими группами
 

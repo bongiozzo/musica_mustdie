@@ -1,13 +1,97 @@
 # Dementor
 
-Дискография
-"The Church Dies " 1994, Death Metal
-"Kill the Thoughts on Christ" 1997, Death Metal
-"The Art of Blasphemy" 1999, Death Metal
-"Enslave The Weak" 2001, Death Metal
-"God Defamer" 2004, Death Metal
-"Faithless" 2008, Death Metal
-"Damned" 2011, Death Metal
+death metal from Slovacia
+
+## Дискография
+
+### "The Church Dies " 1994, Death Metal
+
+1. Mortal Melody 03:38  
+2. The Law of Karma 05:11  
+3. The Church Dies 03:46  
+4. Robbed After Death 03:20  
+5. Rotting God 03:27  
+6. Darkness 04:18  
+7. Revived for Condemnation 04:13  
+8. Discoveries of Catastrophe 04:05 
+
+
+Recorded in: Exponent (Slovakia)
+Produced by: Dementor & Tomas Kmet
+Mixed by: Tomas Kmet
+Cover artwork: Jan Sakmar
+
+Line up:
+Rene Blahusiak: guitar
+Jaro Kyselica: vocals
+Jancik: hosting bass
+Rasto Krcmarik: help 
+Roman Lukac: guitar
+Roman Thorn: drums
+P. Stankoviansky: help 
+
+### "Kill the Thoughts on Christ" 1997, Death Metal
+
+
+
+### "The Art of Blasphemy" 1999, Death Metal
+
+
+
+### "Enslave The Weak" 2001, Death Metal
+
+
+
+### "God Defamer" 2004, Death Metal
+
+1. Slaying Grace 04:06 
+2. God Defamer 03:17 
+3. The Mighty Evil 03:11 
+4. My Ally Anger 04:04  
+5. Devilish Obsession 03:30
+6. Harvester of Christian Souls 03:41
+7. Power of Crucifixion 04:10 
+8. To Taste Divinity 03:15
+9. Unholy Hordes of Rot 04:01 
+
+
+Recorded at: Stage One (Germany)
+Produced by: Andy Classen
+Mixed & mastered by: Andy Classen 
+Cover artwork: Jacek Wisniewski 
+
+Line up 
+Rene Blahusiak: guitars, vocals 
+Rasto Schmogner: guitars, basses 
+Rasto Petrovic: drums 
+
+### "Faithless" 2008, Death Metal
+
+1. Bones 04:05 
+2. Religion of Blood 03:56  
+3. Hate 03:13  
+4. Seven Demons 04:30  
+5. Cold will Rise 03:49  
+6. Kettle of Evil 03:38  
+7. Your Pride 03:09  
+8. In My Heart 03:17  
+9. Creature of Darkness 03:35 
+
+
+### "Damned" 2011, Death Metal
+
+1. Intro	 
+2. Isolated
+3. Disobedience
+4. The Hunter
+5. Blind Faith		 
+6. Silence	 
+7. Lost Identity	 
+8. Seven Deadly Sins	 
+9. Dead End	 
+10. Self-Torturing	 
+11. Plastic Dolls
+
 
 ## Отношения с другими группами
 

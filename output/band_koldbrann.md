@@ -1,11 +1,38 @@
 # Koldbrann
 
-Дискография
-"Nekrotisk Inkvisition" 2003, Black Metal
-"Atomvinter (EP)" 2006, Black Metal
-"Moribund" 2006, Black Metal
-"Stigma: Pa kant med livet (EP)" 2008, Black Metal
-"Vertigo" 2013, Black Metal
+
+
+## Дискография
+
+### "Nekrotisk Inkvisition" 2003, Black Metal
+
+
+
+### "Atomvinter (EP)" 2006, Black Metal
+
+
+
+### "Moribund" 2006, Black Metal
+
+
+
+### "Stigma: Pa kant med livet (EP)" 2008, Black Metal
+
+
+
+### "Vertigo" 2013, Black Metal
+
+01. IntroVertigo
+02. Totalt Sjelelig Bankerott
+04. Drammen
+05. Stolichnaya Smert
+06. Terminal Transnistrii
+07. Phantom Kosmonaut
+08. Goat Lodge
+09. I Eklipsens Skimmer
+10. Sans Soleil
+11. Inertia Corridors
+
 
 ## Отношения с другими группами
 

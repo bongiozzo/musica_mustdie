@@ -1,7 +1,13 @@
 # Devenir
 
-Дискография
-"Red Hipnotica" 2003, Power Metal
+
+
+## Дискография
+
+### "Red Hipnotica" 2003, Power Metal
+
+
+
 
 ## Отношения с другими группами
 

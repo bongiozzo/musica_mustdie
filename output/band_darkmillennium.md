@@ -1,8 +1,67 @@
 # Dark Millennium
 
-Дискография
-"Ashore The Celestial Burden" 1992, Death Doom
-"Diana Read Peace" 1993, Death Doom
+avantguard-doom-death
+
+## Дискография
+
+### "Ashore The Celestial Burden" 1992, Death Doom
+
+1. Below The Holy Fatherlands
+2. Spiritual
+3. Black Literature
+4. Inside The Sunburnt Thoughts Of Frost
+5. Father Legatus - Of Symbols,Nature & Birth
+6. Beyond The Dragon`s Eye  *
+7. Wizardry Assemblage
+8. Medina`s Spell
+9. Disillusion
+10.The Atmosphere
+
+ Christian Mertens - Vocals
+ Hilton Theissen - Guitar
+ Michael Burmann - Guitar
+ Jorg Dinstuhler - Bass
+ Cristoph Hesse - Drums
+
+All Songs Written By Hilton Theissen.
+All Lyrics By Christian Mertens.
+Except Of * By Cristoph Hesse.
+Produced By Torsten Hartmann.
+Engineered & Mixed By Gerhard Magin.
+Recorded & Mixed At FM - Studios.
+
+(p)&(c) 1992 MASSACRE Records
+
+### "Diana Read Peace" 1993, Death Doom
+
+1. Mission
+2. Dead In Love
+3. Of Sceptre Their Ashes May Be
+4. Brotherhood Sleep...Back To Treasureland
+5. Machanismeffects
+6. Fatehistory
+7. Peace In My Hands
+8. My Repertory Of Grey
+9. The Mindartist
+10.In And For Nothing
+11.Pandemonium
+12.Myth
+
+ Christian Mertens - Vocals
+ Hilton Theissen - Guitar
+ Michael Burmann - Guitar
+ Klaus Pachura - Bass
+ Cristoph Hasse - Drums
+
+Music By Hilton Theissen.
+Lyrics By Christian Mertens.
+Produced By Ingo Vieten & DARK MILLENIUM.
+Engineered By Ingo Vieten.
+Recorded & Mixed At PWS-Studio Kierspe,Germany 
+In July 1993.
+
+(p)&(c) 1993 MASSACRE Records
+
 
 ## Отношения с другими группами
 

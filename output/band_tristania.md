@@ -1,17 +1,204 @@
 # Tristania
 
-Дискография
-"Tristania (demo)" 1997, Gothic
-"Widow's Weeds" 1998, Gothic
-"Beyond the Veil" 1999, Gothic
-"Angina (single)" 1999, Gothic
-"Widow's Tour (video)" 1999, Gothic
-"World of Glass" 2001, Gothic
-"Midwintertears/Angina (compilation)" 2001, Gothic
-"Ashes" 2005, Gothic
-"Illumination" 2007, Gothic
-"Rubicon" 2010, Gothic
-"Darkest White" 2013, Gothic
+Norwegian Goth Metal with Black and Doom Metal Elements from Stavanger
+
+## Дискография
+
+### "Tristania (demo)" 1997, Gothic
+
+1. Sirene
+2. Midwintertears
+3. Pale Enchantress
+4. Cease To Exist
+
+### "Widow's Weeds" 1998, Gothic
+
+1. Preludium.
+2. Evenfall.
+3. Pale Enchantress.
+4. December Elegy.
+5. Midwintertears.
+6. Angellore.
+7. My Lost Lenore.
+8. Wasteland's Caress.
+9. …postludium.
+
+(c) 1998 NAPALM RECORDS
+
+Kenneth Olsson - drums
+Einar Moen - synth & programming
+Vibeke Stene - female vocals
+Morten Veland - vocals & guitars
+Rune Osterhus - bass
+Anders H. Hilde - guitar
+
+Additional musicians: Pete Johansen - violins, Osten Bergoy - clean male vocals on Angellore
+Choir consisting of:
+Vibeke Stene, Hilde Egeland, Marita Herikstad, Hilde T. Bemmen, Osten Bergoy, Morten Veland, Anders H. Hilde, 
+Kenneth Olsson.
+
+Produced by Tristania & T. Refsnes. Engineered by T. Refsnes. 
+Recorded in Sound Suite during Nov/Dec '97.
+All music composed by Tristania. 
+Lyrics written by Morten Veland.
+
+### "Beyond the Veil" 1999, Gothic
+
+01 Beyond The Veil
+02 Aphelion
+03 A Sequel Of Decay
+04 Opus Relinque
+05 Lethean River
+06 ...Of Ruins And A Red Nightfall
+07 Simbelmyne
+08 Angina
+09 Heretique
+10 Dementia
+
+### "Angina (single)" 1999, Gothic
+
+01 Angina
+02 Opus Relinque (Radio Edit)
+03 Saturnine
+
+### "Widow's Tour (video)" 1999, Gothic
+
+1. Midwintertears
+2. My Lost Lenore
+3. December Elegy
+4. Pale Enchantress
+5. Evenfall (video clip)
+6. Wasteland's Caress (tour edit)
+
+
+Produced & Directed by David Beranek.
+Recorded in Oberwart, Austria.
+
+### "World of Glass" 2001, Gothic
+
+The Shining Path
+Wormwood
+Tender Trip on Earth
+Lost
+Deadlocked
+Selling Out 
+Hatred Grows 
+World of Glass 
+Crushed Dreams
+
+
+
+
+Vibeke Stene - vocals 
+Einar Moen - synth 
+Kenneth Olsson - drums 
+Rune Osterhus - bass 
+Anders Hoyvik Hidle - guitar 
+
+Osten Bergoy - clean male vocals
+Ronny Thorsen - extreme vocals
+Jan Kenneth Barkved - clean male vocals
+Pete Johansen - violins
+Choir consisting of: Vibeke Stene, Sandrine Lachapelle, Emile Lesbros, Johanna Giraud, Damien Surian and Hubert Piazzola
+Recorded in Sound Suite Studio, France, during february, March and April 2001
+Engineered, produced and mixd by Terje Refsnes
+Mastered at Matterhuset, Oslo
+All music composed by Einar Moen & Anders Hoyvik Hidle except "The Modern End" composed and recorded by Seigmen and Erik Ljunggren
+All choirs composed & arranged by Einar Moen
+Additional black voice on "Tender Trip On Earth" and "The Shining Path" by Anders Hoyvik Hidle
+Ronny Thosen appears with kind permission of Trail Of Tears
+
+
+### "Midwintertears/Angina (compilation)" 2001, Gothic
+
+1. Sirene - 3:25
+2. Midwintertears - 8:30
+3. Pale Enchantress - 6:29
+4. Cease to Exist - 9:17
+5. Angina - 4:19
+6. Opus Relinque (Radio Edit) - 5:02
+7. Saturnine - 2:02
+
+Contains the tracks from their demo and the "Angina" single. 
+
+Released: April 21st, 2001
+
+### "Ashes" 2005, Gothic
+
+1. Libre
+2. Equilibrium
+3. The Wretched
+4. Cure
+5. Circus
+6. Shadowman
+7. The Gate (Bonus Track)
+8. Endogenisis
+9. Bird
+
+### "Illumination" 2007, Gothic
+
+1. Mercyside 04:39  
+2. Sanguine Sky 03:50  
+3. Open Ground 04:40  
+4. The Ravens 05:06  
+5. Destination Departure 04:35  
+6. Down 04:32  
+7. Fate 04:59  
+8. Lotus 05:09  
+9. Sacrilege 04:15  
+10. Deadlands 06:39
+
+### "Rubicon" 2010, Gothic
+
+1. Year of the Rat 04:35 
+2. Protection 04:15  
+3. Patriot Games 03:27 
+4. The Passing 04:48 
+5. Exile 04:26 
+6. Sirens 04:27
+7. The Emerald Piper 03:09
+8. Vulture 03:43 
+9. Amnesia 04:54 
+10. Magical Fix 04:20
+11. Illumination 08:13 
+
+
+
+Line-up:
+Mariangela "Mary" Demurtas - Lead Vocals
+Kjetil Nordhus - Clean Vocals
+Anders Hoyvik Hidle - Guitars, Harsh Vocals
+Gyri S. Losnegaard - Guitars
+Ole Vistnes - Bass, Backing Vocals
+Einar Moen - Keyboards, Programming
+Tarald Lie - Drums
+
+Guest members:
+Osten Bergoy - Clean Vocals
+Pete Johansen - Violin
+
+Recorded in the first months of 2010 in different studios in Norway.
+Produced by Anders Hшyvik Hidle and Ole Vistnes. Co-produced by Waldemar
+Sorychta.
+Mixed by Waldemar Sorychta and Dennis Koehne in the Flying Pigs Studio. 
+
+"The Emerald Piper" is a bonus track. 
+
+### "Darkest White" 2013, Gothic
+
+1. Number  04:45  
+2. Darkest White  03:25   
+3. Himmelfall  05:47   
+4. Requiem  05:29  
+5. Diagnosis  05:02   
+6. Scarling  05:18   
+7. Night on Earth  03:36   
+8. Cathedral (Bonus Track)  03:31   
+9. Lavender  05:11   
+10. Cypher  05:43   
+11. Arteries  04:11 
+
+
 
 ## Отношения с другими группами
 

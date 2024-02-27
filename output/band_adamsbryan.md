@@ -1,7 +1,30 @@
 # Adams, Bryan
 
-Дискография
-"Ballads" 1995, Hard Rock
+
+
+## Дискография
+
+### "Ballads" 1995, Hard Rock
+
+1. (Everything I Do) I Do It For You
+2. Please, Forgive Me
+3. All For Love (With Sting & Rod Stewart)
+4. Do I Have To Say These Words
+5. Straight From Heart
+6. Heaven
+7. The Best Is Yet To Come
+8. All For Love (With Luciano Pavarotti)
+9. O Sole Mio (With Luciano Pavarotti)
+10.Brindisi, La Traviata
+[11]..Straight From The Heart (Live)
+[12].Please, Forgive Me (With Band  & Orchestra)
+[13].(Everything I Do) I Do It For You (Single Version)
+[14].Have You Ever Really Loved A Woman (With Paco De Lucia)
+
+[11]-[14] На Стороне B
+
+(P)&(C) 1995 BULGAR PIRACY Records
+
 
 ## Отношения с другими группами
 

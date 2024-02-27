@@ -1,9 +1,49 @@
 # Feline Melinda
 
-Дискография
-"The Felines Await You [EP]" 1988, Heavy Metal
-"Feline Melinda" 2004, Heavy Metal
-"Morning Dew" 2008, Heavy Metal
+
+
+## Дискография
+
+### "The Felines Await You [EP]" 1988, Heavy Metal
+
+1. Feline Melinda
+2. You're A Witch
+3. Easy Blood
+4. The Felines Await You
+5. Metal Ladies
+6. If You Need Me
+7. Feline Melinda (Outro)
+
+### "Feline Melinda" 2004, Heavy Metal
+
+1. Wesley's Punch	 
+2. Who's On Your Side
+3. Your Freedom
+4. Sweet Lovin'
+5. Easy Game
+6. Don't Cry
+7. Three One Tree	 
+8. Lillian
+9. If You Need Me
+10. When Love Begins	 
+11. Living In Europe
+12. Feline Melinda Instrumental	 
+13. Stop Loving You (Toto Cover)
+
+### "Morning Dew" 2008, Heavy Metal
+
+1. Feline's Awakening	 
+2. Forever
+3. Skydiver
+4. Women Without Compromises
+5. If You Need Me (Version 2008)
+6. Free Your Mind
+7. Dangerzone
+8. Love and Hate
+9. Turn Me On (Cat Women)
+10. Morning Dew
+11. Heart Of Stone
+
 
 ## Отношения с другими группами
 

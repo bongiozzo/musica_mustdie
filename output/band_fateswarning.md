@@ -1,18 +1,167 @@
 # Fates Warning
 
-Дискография
-"Night on Brocken" 1984, Heavy Metal
-"The Spectre Within" 1985, Progressive
-"Awaken The Guardian" 1986, Progressive
-"No Exit" 1988, Progressive
-"Perfect Symmetry" 1989, Progressive
-"Parallels" 1991, Progressive
-"Inside Out" 1994, Progressive
-"A Pleasant Shade Of Gray" 1997, Progressive
-"Disconnected" 2000, Progressive
-"FWX" 2004, Progressive
-"Darkness in a Different Light" 2013, Progressive
-"Theories Of Flight" 2016, Progressive
+
+
+## Дискография
+
+### "Night on Brocken" 1984, Heavy Metal
+
+Buried Alive 
+The Calling 
+Kiss of Death 
+Night On Brocken 
+S.E.K. 
+Misfit 
+Shadowfax 
+Damnation 
+Soldier Boy
+
+### "The Spectre Within" 1985, Progressive
+
+Traveler in Time 
+Orphan Gypsy 
+Without A Trace 
+Pirates of the Underground 
+The Apparition  
+Kyrie Eleison 
+Epitaph
+
+### "Awaken The Guardian" 1986, Progressive
+
+1. The Sorceress
+2. Valley Of The Dolls
+3. Fata Morgana
+4. Guardina
+5. Prelude To Ruin
+6. Ginats Lore (Heart Of Winter)
+7. 6:00
+8. Time Long Past
+9. Exodus
+
+Jim Matheos - Guitars
+John Arch - Vocals
+Frank "X" Arest - Guitars
+Joe DiBiase - Bass
+Steve Zimmerman - Drums
+
+(P)(C) 1986
+
+### "No Exit" 1988, Progressive
+
+1. No Exit
+2. Anarchy Divine
+3. Silent Crissis
+4. In A Word
+5. Shades Of Heavenly Death
+6. The Ivory Gate Of Dreams
+    I. Innocence
+   II. Cold Daze
+  III. Daylight Dreamers
+  IV. Quietus
+   V. Ivory Tower
+  VI. Whispers On The Wind
+ VII. Aquiesence
+VIII. Retrospect
+
+(P)(C) 1988
+
+### "Perfect Symmetry" 1989, Progressive
+
+1. Part Of The Machine
+2. Through Different Eyes
+3. Static Arts
+4. A World Apart
+5. At Fates Hand
+6. The Arena
+7. Chasing Time
+8. Nothing Left To Say
+
+Jim Matheos - Guitars
+Ray Alder - Vocals
+Frank Arest - Guitars, Vocals
+Joe DiBiase - Bass
+Mark Zonder - Drums
+
+(P)(C) 1989
+
+### "Parallels" 1991, Progressive
+
+Playlist: 
+Leave the Past Behind 
+Life in Still Water 
+Eye to Eye  
+The Eleventh Hour 
+Point of View 
+We Only Say Goodbye 
+Dont Follow Me 
+The Road Goes on Forever
+
+### "Inside Out" 1994, Progressive
+
+Outside Looking In 
+Pale Fire 
+The Strand 
+Shelter Me 
+Island in the Stream 
+Down to the Wire 
+Face the Fear 
+Inward Bound 
+Monument 
+Afterglow
+
+### "A Pleasant Shade Of Gray" 1997, Progressive
+
+PART I     1:53
+PART II    3:25
+PART III   3:53
+PART IV    4:26
+PART V     5:24
+PART VI    7:28
+PART VII   4:51
+PART VIII  3:31
+PART IX    4:45
+PART X     1:19
+PART XI    3:34
+PART XII   7:45
+
+### "Disconnected" 2000, Progressive
+
+Disconnected - Part I 
+One 
+So 
+Pieces Of Me 
+Something From Nothing 
+Still Remains 
+Disconnected - Part II
+
+### "FWX" 2004, Progressive
+
+01. Left Here 
+02. Simple Human 
+03. River Wide Ocean Deep 
+04. Another Perfect Day 
+05. Heal Me 
+06. Sequence #7 
+07. Crawl 
+08. A Handful Of Doubt 
+09. Stranger (With Familiar Face) 
+X. Wish
+
+### "Darkness in a Different Light" 2013, Progressive
+
+
+
+### "Theories Of Flight" 2016, Progressive
+
+1. From The Rooftops
+2. Seven Stars
+3. SOS
+4. The Light And Shade Of Things
+5. White Flag
+6. Like Stars Our Eyes Have Seen
+7. The Ghosts Of Home
+8. Theories Of Flight
+
 
 ## Отношения с другими группами
 

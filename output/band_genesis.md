@@ -1,20 +1,393 @@
 # Genesis
 
-Дискография
-"From Genesis to Revelation" 1969, Instrumental
-"Trespass" 1970, Instrumental
-"Nursery Cryme" 1971, Instrumental
-"Foxtrot" 1972, Instrumental
-"Selling England by the Pound" 1973, Instrumental
-"The Lamb Lies Down on Broadway" 1974, Instrumental
-"Trick of the Tail" 1976, Instrumental
-"Wind & Wuthering" 1976, Instrumental
-"Seconds Out" 1977, Instrumental
-"And Then There Were Three" 1978, Instrumental
-"Duke" 1980, Instrumental
-"Abacab" 1981, Instrumental
-"Genesis" 1983, Instrumental
-"Invisible Touch" 1986, Instrumental
+
+
+## Дискография
+
+### "From Genesis to Revelation" 1969, Instrumental
+
+   1.    Where the Sour Turns to Sweet (Banks/Gabriel) - 3:15 
+   2.    In the Beginning (Gabriel/Phillips) - 3:45 
+   3.    Fireside Song (Banks/Phillips/Rutherford) - 4:18 
+   4.    The Serpent (Banks/Gabriel) - 4:38 
+   5.    Am I Very Wrong? (Banks/Gabriel) - 3:31 
+   6.    In the Wilderness (Banks/Gabriel/Phillips/Rutherford) - 3:28 
+   7.    The Conqueror (Banks/Gabriel) - 3:40 
+   8.    In Hiding (Gabriel/Phillips) - 2:41 
+   9.    One Day (Banks/Gabriel) - 3:21 
+   10.    Window (Phillips/Rutherford) - 3:33 
+   11.    In Limbo (Banks/Gabriel/Phillips/Rutherford) - 3:30 
+   12.    The Silent Sun (Banks/Gabriel) - 2:13 
+   13.    A Place to Call My Own (Gabriel/Phillips) - 1:59 
+   14.    A Winter's Tale (Banks/Gabriel/Phillips/Rutherford) - 3:31 
+   15.    One Eyed Hound (Banks/GabrielRutherford/Phillips) - 2:31 
+   16.    That's Me (Banks/Gabriel/Phillips/Rutherford) - 2:38 
+   17.    The Silent Sun [Single Version] (Banks/Gabriel) - 2:12 
+   18.    Image Blown Out (Banks/Gabriel/Phillips/Rutherford) - 2:11 
+   19.    She Is Beautiful (Banks/Gabriel/Phillips/Rutherford) - 3:46 
+   20.    Try a Little Sadness [demo version] (Banks/Gabriel/Hackett/Phillips/Rutherford) - 3:18 
+   21.    Patricia (Gabriel/Phillips) - 3:05 
+   22.    Interview - 1:03 
+   23.    - 3:51 
+   24.    - 1:54 
+   25.    - 3:57 
+   26.    - 1:03 
+   27.    - 2:19 
+   28.    - :50 
+   29.    - 1:35 
+   30.    - 4:25 
+   31.    - :58 
+
+Peter Gabriel  -  Flute, Percussion, Vocals 
+Anthony Phillips  -  Guitar, Vocals 
+Tony Banks  -  Keyboards, Vocals 
+Arthur Greenslade  -  String Arrangements 
+Jonathan King  -  Producer, Liner Notes 
+John Mayhew  -  Drums, Vocals 
+Ant Philips     
+Arthur Rutherford     
+Mike Rutherford  -  Bass, Guitar, Guitar (Bass), Vocals 
+Chris Stewart  -  Drums 
+David Porter Thomas  -  Vocals (bckgr) 
+John Silver  -  Drums 
+Hugh Fielder  -  Liner Notes 
+Steve Hoffman  -  Engineer 
+
+
+
+### "Trespass" 1970, Instrumental
+
+   1.    Looking for Someone (Genesis [1]) - 7:00 
+   2.    White Mountain - 6:44 
+   3.    Visions of Angels - 6:50 
+   4.    Stagnation - 8:45 
+   5.    Dusk - 4:15 
+   6.    Knife (Genesis [1]) - 8:55 
+
+Peter Gabriel  -  Flute, Percussion, Accordion, Arranger, Drums, Tambourine, Vocals 
+Anthony Phillips  -  Guitar, Arranger, Guitar (Electric), Vocals, Guitar (12 String) 
+John Anthony  -  Producer 
+Tony Banks  -  Organ, Guitar, Piano, Arranger, Keyboards, Vocals, Mellotron 
+Robin Geoffrey Cable  -  Engineer 
+David Hitchcock  -  Producer 
+John Mayhew  -  Drums, Vocals 
+Mike Rutherford  -  Bass, Guitar, Arranger, Bass (Electric), Cello, Vocals, Guitar (12 String) 
+Lewis Lee  -  Photography 
+
+
+
+### "Nursery Cryme" 1971, Instrumental
+
+1.    The Musical Box (Genesis [1]) - 10:24 
+2.    For Absent Friends (Banks/Collins/Gabriel/Hackett/Rutherford) - 1:43 
+3.    The Return of the Giant Hogweed (Genesis [1]) - 8:09 
+4.    Seven Stones (Genesis [1]) - 5:09 
+5.    Harold the Barrel (Genesis [1]) - 3:00 
+6.    Harlequin (Genesis [1]) - 2:53 
+7.    The Fountain of Salmacis (Banks/Collins/Gabriel/Hackett/Rutherford) - 7:54 
+
+
+Phil Collins  -  Percussion, Drums, Vocals, Voices 
+Peter Gabriel  -  Flute, Percussion, Drums (Bass), Tambourine, Vocals, Voices 
+Genesis  -  Arranger 
+Steve Hackett  -  Bass, Guitar, Guitar (Electric), Guitar (12 String) 
+John Anthony  -  Producer 
+Tony Banks  -  Organ, Piano, Keyboards, Piano (Electric), Vocals, Voices, Guitar (12 String), Mellotron 
+Peter Garbriel     
+David Hentschel  -  Engineer 
+Mike Rutherford  -  Bass, Guitar, Voices, Guitar (12 String), Bass Pedals 
+Paul Whitehead  -  Design 
+
+
+
+### "Foxtrot" 1972, Instrumental
+
+1.    Watcher of the Skies (Genesis [1]) - 7:19 
+2.    Time Table (Genesis [1]) - 4:40 
+3.    Get 'Em Out by Friday (Genesis [1]) - 8:35 
+4.    Can-Utility and the Coastliners (Genesis [1]) - 5:43 
+5.    Horizon's (Genesis [1]) - 1:38 
+6.    Supper's Ready (Genesis [1]) - 22:58 
+
+
+Phil Collins  -  Percussion, Drums, Vocals 
+Peter Gabriel  -  Flute, Percussion, Cello, Drums (Bass), Vocals, Voices, Guitar (12 String) 
+Genesis  -  Arranger 
+Steve Hackett  -  Bass, Guitar, Guitar (Electric), Guitar (12 String) 
+Tony Banks  -  Organ, Piano, Keyboards, Piano (Electric), Vocals, Voices, Guitar (12 String), Mellotron 
+John Burns  -  Engineer 
+David Hitchcock  -  Producer 
+Mike Rutherford  -  Bass, Guitar 
+Gruggy Woof  -  Producer 
+Richard MacPhail  -  Engineer 
+
+
+### "Selling England by the Pound" 1973, Instrumental
+
+1.   Dancing With the Moonlit Knight - 8:02 
+2.   I Know What I Like (In Your Wardrobe) - 4:03 
+3.   Firth of Fifth - 9:36 
+4.   More Fool Me - 3:10 
+5.   The Battle of Epping Forest - 11:43 
+6.   After the Ordeal - 4:07 
+7.   The Cinema Show - 11:06 
+8.   Aisle of Plenty - 1:31 
+
+
+Phil Collins  -  Percussion, Drums, Vocals 
+Peter Gabriel  -  Flute, Percussion, Oboe, Vocals 
+Genesis  -  Producer 
+Steve Hackett  -  Bass, Guitar, Guitar (Electric) 
+Tony Banks  -  Keyboards, Vocals, Guitar (12 String) 
+John Burns  -  Producer 
+Rhett Davies  -  Engineer, Assistant Engineer 
+Mike Rutherford  -  Bass, Guitar, Sitar, Guitar (12 String), Sitar (Electric) 
+Betty Swanwick  -  Paintings 
+
+
+### "The Lamb Lies Down on Broadway" 1974, Instrumental
+
+1.   The Lamb Lies Down on Broadway (Genesis [1]) - 4:55 
+2.   Fly on a Windshield (Genesis [1]) - 2:47 
+3.   Broadway Melody of 1974 (Genesis [1]) - 1:58 
+4.   Cuckoo Cocoon (Genesis [1]) - 2:14 
+5.   In the Cage (Genesis [1]) - 8:15 
+6.   The Grand Parade of Lifeless Packaging  performed by Genesis / Brian Eno - 2:45 
+7.   Back in N.Y.C. (Genesis [1]) - 5:49 
+8.   Hairless Heart (Genesis [1]) - 2:25 
+9.   Counting Out Time (Genesis [1]) - 3:45 
+10.   The Carpet Crawlers (Genesis [1]) - 5:16 
+11.   The Chamber of 32 Doors (Genesis [1]) - 5:40 
+12.   Lilywhite Lilith (Genesis [1]) - 2:40 
+13.   The Waiting Room (Genesis [1]) - 5:28 
+14.   Anyway (Genesis [1]) - 3:18 
+15.   The Supernatural Anaesthetist (Genesis [1]) - 2:50 
+16.   The Lamia (Genesis [1]) - 6:57 
+17.   Silent Sorrow in Empty Boats (Genesis [1]) - 3:06 
+18.   Colony of Slippermen: The Arrival/A Visit... (Genesis [1]) - 8:14 
+19.   Ravine (Genesis [1]) - 2:05 
+20.   The Light Dies Down on Broadway (Genesis [1]) - 3:32 
+21.   Riding the Scree (Genesis [1]) - 3:56 
+22.   In the Rapids (Genesis [1]) - 2:24 
+23.   It (Genesis [1]) - 4:58 
+
+
+Phil Collins  -  Percussion, Drums, Vocals, Voices, Vibraphone 
+Peter Gabriel  -  Flute, Percussion, Vocals, Voices, Liner Notes 
+Genesis  -  Arranger, Producer 
+Steve Hackett  -  Bass, Guitar 
+Tony Banks  -  Keyboards, Vocals 
+John Burns  -  Producer 
+Brian Eno  -  Performer 
+Dave Hutchins  -  Engineer 
+Mike Rutherford  -  Bass, Guitar 
+Hipgnosis  -  Design, Photography 
+George Hardie  -  Illustrations 
+
+
+### "Trick of the Tail" 1976, Instrumental
+
+    1.   Dance on a Volcano (Banks/Collins/Hackett/Rutherford) - 5:53 
+    2.   Entangled (Banks/Hackett) - 6:28 
+    3.   Squonk (Banks/Rutherford) - 6:27 
+    4.   Mad Man Moon (Banks) - 7:35 
+    5.   Robbery, Assault & Battery (Banks/Collins) - 6:15 
+    6.   Ripples (Banks/Rutherford) - 8:03 
+    7.   A Trick of the Tail (Banks) - 4:34 
+    8.   Los Endos (Banks/Collins/Hackett/Rutherford) - 5:46 
+
+
+Phil Collins  -  Percussion, Drums, Vocals, Vocals (bckgr) 
+Genesis  -  Arranger, Producer 
+Steve Hackett  -  Bass, Guitar, Guitar (Electric), Guitar (12 String) 
+Tony Banks  -  Organ, Synthesizer, Piano, Keyboards, Vocals, Vocals (bckgr), Guitar (12 String), Mellotron 
+Chris Blair  -  Remastering 
+Nick Bradford  -  Engineer 
+Nick Davis  -  Remastering 
+David Hentschel  -  Producer, Engineer 
+Mike Rutherford  -  Bass, Guitar, Guitar (12 String), Bass Pedals 
+Geoff Callingham  -  Remastering 
+Colin Elgie  -  Design 
+
+
+
+### "Wind & Wuthering" 1976, Instrumental
+
+1.   Eleventh Earl of Mar - 7:39 
+2.   One for the Vine - 9:56 
+3.   Your Own Special Way (Rutherford) - 6:15 
+4.   Wot Gorilla? - 3:12 
+5.   All in a Mouse's Night - 6:35 
+6.   Blood on the Rooftops - 5:20 
+7.   Unquiet Slumbers for the Sleepers...In... - 2:23 
+8.   ...In That Quiet Earth - 4:49 
+9.   Afterglow (Banks) - 4:10 
+
+
+Phil Collins  -  Percussion, Drums, Vocals 
+Steve Hackett  -  Bass, Guitar 
+Tony Banks  -  Keyboards, Vocals 
+Mike Rutherford  -  Bass, Guitar 
+
+
+### "Seconds Out" 1977, Instrumental
+
+    1.   Squonk (Banks/Rutherford) - 6:39 
+    2.   The Carpet Crawl (Banks/Collins/Gabriel/Hackett/Rutherford) - 5:28 
+    3.   Robbery Assault and Battery (Banks/Collins) - 6:04 
+    4.   Afterglow (Banks) - 4:28 
+    5.   Firth of Fifth (Banks/Collins/Gabriel/Hackett/Rutherford) - 8:56 
+    6.   I Know What I Like (Banks/Collins/Gabriel/Hackett/Rutherford) - 8:50 
+    7.   The Lamb Lies Down on Broadway (Banks/Collins/Gabriel/Hackett/Rutherford) - 4:59 
+    8.   The Musical Box (Closing Section) (Banks/Collins/Gabriel/Hackett/Rutherford) - 3:09 
+    9.   Supper's Ready (Banks/Collins/Gabriel/Hackett/Rutherford) - 24:35 
+    10.   Cinema Show (Banks/Collins/Gabriel/Hackett/Rutherford) - 11:00 
+    11.   Dance on a Volcano (Banks/Collins/Hackett/Rutherford) - 4:21 
+    12.   Los Endos (Banks/Collins/Hackett/Rutherford) - 7:14 
+
+
+Bill Bruford  -  Percussion, Drums 
+Phil Collins  -  Percussion, Drums, Keyboards, Vocals, Voices 
+Genesis  -  Producer 
+Steve Hackett  -  Bass, Guitar, Guitar (Electric), Guitar (12 String) 
+Chester Thompson  -  Percussion, Drums 
+Tony Banks  -  Keyboards, Organ (Hammond), Piano (Electric), Vocals, Vocals (bckgr), Mellotron, Arp, Epiphone 
+Chris Blair  -  Remastering 
+Nick Davis  -  Remastering 
+Robert Ellis  -  Photography, Sleeve Photo 
+David Hentschel  -  Producer 
+Dale Newman  -  Guitar 
+Alan Owen  -  Lighting 
+Neil Ross  -  Assistant Engineer, Assistant Producer, Assistant 
+Mike Rutherford  -  Bass, Guitar, Vocals (bckgr), Guitar (12 String), Guitar (8 String), Moog Bass 
+Geoff Callingham  -  Remastering 
+Armando Gallo  -  Photography, Sleeve Photo 
+Frank Sanson  -  Art Direction 
+Craig Schertz  -  Engineer 
+Graham Wood  -  Photography, Sleeve Photo 
+Handsome Harvey Baker  -  Special Effects 
+Tex Yodel Read  -  Tour Manager 
+
+
+
+### "And Then There Were Three" 1978, Instrumental
+
+   1.    Down and Out (Banks/Collins/Rutherford) - 5:25 
+   2.    Undertow (Banks) - 4:47 
+   3.    Ballad of Big (Banks/Collins/Rutherford) - 4:47 
+   4.    Snowbound (Rutherford) - 4:30 
+   5.    Burning Rope (Banks) - 7:07 
+   6.    Deep in the Motherlode (Rutherford) - 5:14 
+   7.    Many Too Many (Banks) - 3:30 
+   8.    Scenes from a Night's Dream (Banks/Collins) - 3:30 
+   9.    Say It's Alright Joe (Rutherford) - 4:18 
+  10.    The Lady Lies (Banks) - 6:05 
+  11.    Follow You, Follow Me (Banks/Collins/Rutherford) - 3:59 
+
+
+Phil Collins  -  Percussion, Drums, Vocals 
+Genesis  -  Producer 
+Tony Banks  -  Keyboards, Vocals 
+David Hentschel  -  Producer, Engineer 
+Mike Rutherford  -  Bass, Guitar 
+Steve Short  -  Mixing Assistant 
+Pierre Geoffroy Chateau  -  Assistant Engineer 
+
+
+
+### "Duke" 1980, Instrumental
+
+1.   Behind the Lines (Banks/Collins/Rutherford) - 5:31 
+2.   Duchess (Banks/Collins/Rutherford) - 6:40 
+3.   Guide Vocal (Banks) - 1:18 
+4.   Man of Our Times (Rutherford) - 5:35 
+5.   Misunderstanding (Collins) - 3:11 
+6.   Heathaze (Banks) - 5:00 
+7.   Turn It on Again (Banks/Collins/Rutherford) - 3:50 
+8.   Alone Tonight (Rutherford) - 3:54 
+9.   Cul de Sac (Banks) - 5:02 
+10.   Please Don't Ask (Collins) - 4:00 
+11.   Duke's Travels (Banks/Collins/Rutherford) - 8:41 
+12.   Duke's End (Banks/Collins/Rutherford) - 2:04 
+
+
+Phil Collins  -  Percussion, Drums, Vocals, Drum Machine 
+Genesis  -  Producer 
+Tony Banks  -  Keyboards, Vocals, Vocals (bckgr), Guitar (12 String) 
+Dave Bascombe  -  Assistant Producer 
+David Hentschel  -  Vocals, Vocals (bckgr), Producer, Engineer 
+Mike Rutherford  -  Bass, Guitar, Vocals (bckgr) 
+Bill Smith  -  Art Direction 
+Ray Staff  -  Mastering 
+Lionel Koechlin  -  Artwork 
+
+
+### "Abacab" 1981, Instrumental
+
+    1.   Abacab (Banks/Collins/Rutherford) - 7:02 
+    2.   No Reply at All (Banks/Collins/Rutherford) - 4:41 
+    3.   Me and Sarah Jane (Banks) - 6:00 
+    4.   Keep It Dark (Banks/Collins/Rutherford) - 4:34 
+    5.   Dodo/Lurker (Banks/Collins/Rutherford) - 7:30 
+    6.   Who Dunnit? (Banks/Collins/Rutherford) - 3:22 
+    7.   Man on the Corner (Collins) - 4:27 
+    8.   Like It or Not (Rutherford) - 4:58 
+    9.   Another Record (Banks/Collins/Rutherford) - 4:30 
+
+
+Phil Collins  -  Percussion, Drums, Vocals 
+Earth, Wind & Fire  -  Horn 
+Genesis  -  Producer 
+Tony Banks  -  Keyboards, Vocals 
+Hugh Padgham  -  Engineer 
+Mike Rutherford  -  Bass, Guitar 
+Tom Tom 84  -  Arranger 
+Bill Smith  -  Artwork 
+
+
+
+### "Genesis" 1983, Instrumental
+
+    1.   Mama 
+    2.   That's All 
+    3.   Home by the Sea 
+    4.   Second Home by the Sea 
+    5.   Illegal Alien 
+    6.   Taking It All Too Hard 
+    7.   Just a Job to Do 
+    8.   Silver Rainbow 
+    9.   It's Gonna Get Better 
+
+
+Phil Collins  -  Percussion, Drums, Vocals 
+Genesis  -  Producer 
+Tony Banks  -  Keyboards, Vocals, Vocals (bckgr) 
+Hugh Padgham  -  Producer, Engineer 
+Mike Rutherford  -  Bass, Guitar, Vocals (bckgr) 
+Geoff Callingham  -  Technical Assistance 
+Bill Smith  -  Cover Design 
+
+
+
+### "Invisible Touch" 1986, Instrumental
+
+1.   Invisible Touch (Banks/Collins/Rutherford) - 3:26 
+2.   Tonight, Tonight, Tonight (Banks/Collins/Rutherford) - 8:50 
+3.   Land of Confusion (Banks/Collins/Rutherford) - 4:44 
+4.   In Too Deep (Banks/Collins/Rutherford) - 4:57 
+5.   Anything She Does (Banks/Collins/Rutherford) - 4:06 
+6.   Domino, Pt. 1 - In the Glow of the Night... (Banks/Collins/Rutherford) - 10:41 
+7.   Throwing It All Away (Banks/Collins/Genesis [1]/Rutherford) - 3:48 
+8.   The Brazilian (Banks/Collins/Genesis [1]/Rutherford) - 4:49 
+
+
+Phil Collins  -  Percussion, Drums, Vocals 
+Genesis  -  Producer 
+Tony Banks  -  Bass, Keyboards, Vocals 
+Hugh Padgham  -  Producer, Engineer 
+Mike Rutherford  -  Bass, Guitar 
+
+
 
 ## Отношения с другими группами
 

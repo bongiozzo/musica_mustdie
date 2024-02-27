@@ -1,7 +1,20 @@
 # Artizan
 
-Дискография
-"Curse of the Artizan" 2011, Progressive
+
+
+## Дискография
+
+### "Curse of the Artizan" 2011, Progressive
+
+1.	 Trade the World
+2.	 Rise	
+3.	 The Man In Black
+4.	 Fire
+5.	 Fading Story
+6.	 Game Within A Game
+7.	 Torment	 
+8.	 Curse Of The Artizan
+
 
 ## Отношения с другими группами
 

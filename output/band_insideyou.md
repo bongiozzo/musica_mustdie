@@ -1,9 +1,63 @@
 # Inside You
 
-Дискография
-"Lost In The Faith" 2005, Death Doom
-"Night Hunt " 2007, Death Doom
-"That Occurs Around Us " 2011, Death Doom
+
+
+## Дискография
+
+### "Lost In The Faith" 2005, Death Doom
+
+Let Me
+Spiritual Thread
+In A Wintre Wood
+It Hurts So Well
+The Direct Opposite
+Lost In The Faith
+In A Winter Wood (video)
+
+### "Night Hunt " 2007, Death Doom
+
+1. Intro 
+2. Night Hunt 
+3. A Scream Of The Broken Dream 
+4. Wonderful Drink 
+5. Wings Of An Angel 
+6. Innocent Girl Like A Pretty Doll 
+7. On A Flying Road 
+8. A Sip Of Freedom 
+9. Under A Lucky Star 
+10. The Grievous One 
+ 
+
+
+### "That Occurs Around Us " 2011, Death Doom
+
+1. Twilight Zone
+2. Vanity Stairway
+3. That Occurs Around Us
+4. On the Other Side of the Parting
+5. Sunny Moon Inside
+6. Strangely Dancing Figure
+7. Roam In Darkness
+8. Vesper
+9. Before The Abyss
+10. Время как нитка
+11. Изменить этот мир
+
+Бонус: Видео Metalmania 2008:
+Let me
+A Scream of the Broken Dream
+On a Flying Road
+Strangely Dancing Figure
+Roam In Darkness
+Before The Abyss
+
+Состав:
+Андрей Зимин - гитары, вокал
+Алексей Васильев - клавишные
+Дмитрий Юдин - ударные
+Сергей Марков – бас
+
+
 
 ## Отношения с другими группами
 

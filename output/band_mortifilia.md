@@ -1,10 +1,56 @@
 # Mortifilia
 
-Дискография
-"Care of Gomorrah" 2000, Techno Death
-"Christ Hunt" 2002, Techno Death
-"Redemption" 2005, Techno Death
-"Embrace" 2008, Techno Death
+
+
+## Дискография
+
+### "Care of Gomorrah" 2000, Techno Death
+
+1. Midnight Hunt (Pulnocni lov) 03:18
+2. Universal Hate (Vseobecna nenavist) 03:20 
+3. Demented ( Dementni) 03:21
+4. ...and Demons own up (Dablova zpoved) 03:34
+5. Care of Gomorrah ( Pro Gomoru) 03:34 
+6. Cycle of Pain ( Kolobeh bolesti) 04:44
+7. Fata Morgana ( bonus track) 04:19 
+
+### "Christ Hunt" 2002, Techno Death
+
+1. ChristHunt 03:43 
+2. War of the Worlds 03:36
+3. Satanized 03:38
+4. Lycanthropy 03:09
+5. Cycle of Pain 04:42 
+6. Sacrificial Gore 03:00
+7. Evil self 03:49 
+
+### "Redemption" 2005, Techno Death
+
+1. Transformation 03:11 
+2. Great Quest 03:27
+3. Just Funny Day 02:54  
+4. Romance Of The Dead 02:55  
+5. Beauty Of Blood 02:39 
+6. Vitiator 04:05  
+7. Lunatics 03:25  
+8. Redemption 04:05  
+9. Christ Hunt 03:17 
+10. Sacrificial Gore 03:07 
+
+### "Embrace" 2008, Techno Death
+
+1. Remorse (Intro) 00:28  
+2. Arrival Of Messiah 02:45  
+3. Illusion 03:04  
+4. ...And Mother Said 04:08  
+5. Embrace (In Cruel Arms) 03:20  
+6. Curces Century 02:52  
+7. Like A Beast 03:01  
+8. You Are My Death 03:34  
+9. Storm, Slaying, Misery, Fear 04:14  
+10. Downfall Up 03:31  
+11. Behind The Glassdoor 03:52 
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,13 @@
 # Wrathrone
 
-Дискография
-"Born Beneath" 2016, Death Metal
+
+
+## Дискография
+
+### "Born Beneath" 2016, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,13 @@
 # Siegrid Ingrid
 
-Дискография
-"Pissed Off" 1996, Thrash
+
+
+## Дискография
+
+### "Pissed Off" 1996, Thrash
+
+
+
 
 ## Отношения с другими группами
 

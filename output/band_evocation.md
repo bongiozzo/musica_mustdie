@@ -1,8 +1,39 @@
 # Evocation
 
-Дискография
-"Tales from the Tomb" 2007, Death Metal
-"Dead Calm Chaos" 2008, Death Metal
+
+
+## Дискография
+
+### "Tales from the Tomb" 2007, Death Metal
+
+1. Eternal Lie 00:47
+2. The Dead 03:35 
+3. Chronic Hell 04:07 
+4. Greed 04:23
+5. From Menace to Mayhem 03:38
+6. Blessed Upon the Altar 04:01
+7. Feed the Fire 05:10
+8. The Symbols of Sins 03:44
+9. Phase of Fear 04:32
+10. Veils Were Blown 04:21
+11. But Life Goes On (Entombed cover) 03:24
+12. The More We Bleed 06:20 
+
+### "Dead Calm Chaos" 2008, Death Metal
+
+1. In the Reign of Chaos 02:49  
+2. Silence Sleep 03:51
+3. Angel of Torment 04:46
+4. Boundead 03:03
+5. Dead Calm Chaos 03:25
+6. Truth Will Come Clear 03:03
+7. Dust 04:51
+8. Protected by What Gods 03:41 
+9. Antidote 03:56
+10. Tomorrow has no Sunrise 02:55 
+11. Astray Masquerade 03:11 
+12. Razored to the Bone 04:46 
+
 
 ## Отношения с другими группами
 

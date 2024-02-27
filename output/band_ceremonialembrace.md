@@ -1,8 +1,37 @@
 # Ceremonial Embrace
 
-Дискография
-"Beyond the Oblivion [promo]" 1999, Black Metal
-"Oblivion" 2001, Black Metal
+Symphonic Black Metal from Finland, Kuhmo
+
+## Дискография
+
+### "Beyond the Oblivion [promo]" 1999, Black Metal
+
+1. Distant Angel in Unholy Cemetery
+2. Bloodshed Stains
+3. Kohti surmaa
+4. Towards the Emptiness
+
+### "Oblivion" 2001, Black Metal
+
+1. Mysterious Fate
+2. Bloodshed Stains
+3. Last Remains of the Pathetic Empire
+4. Nocturnal Wanderer
+5. Kohti surmaa
+6. The Devastation of Paradise(Ruins of Heaven)
+7. Where Emptiness Prevails
+8. Touch of the Dismal Night
+
+
+
+Jani Huotari : Vocals
+Jari Maatta : Synths
+Heikki Kahkonen : Guitars
+Olli Kokkonen : Drums
+Jani Hakli : Guitars, bass 
+
+
+
 
 ## Отношения с другими группами
 

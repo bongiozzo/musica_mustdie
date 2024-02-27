@@ -1,7 +1,20 @@
 # Sickening
 
-Дискография
-"Ignorance Supremacy" 2008, Death Metal
+
+
+## Дискография
+
+### "Ignorance Supremacy" 2008, Death Metal
+
+1. Devouring The Existence 03:55  
+2. Left With No Identity 05:15  
+3. Ignorance Supremacy 04:29  
+4. Biolence 05:05  
+5. Embraced By Hypocrisy 03:02  
+6. Growing In A Dead Flesh 03:58  
+7. In Torment's Pain 03:33  
+8. Quartered Brains (new version) 04:16 
+
 
 ## Отношения с другими группами
 

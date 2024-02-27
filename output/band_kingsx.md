@@ -1,16 +1,142 @@
 # King's X
 
-Дискография
-"Out of the Silent Planet" 1988, Progressive
-"Gretchen Goes to Nebraska" 1989, Progressive
-"Faith Hope Love" 1990, Progressive
-"King's X" 1992, Progressive
-"Dogman" 1994, Progressive
-"Tape Head" 1998, Progressive
-"Please Come Home...Mr. Bulbous" 2000, Progressive
-"Manic Moonlight" 2001, Progressive
-"Ogre Tones" 2005, Progressive
-"XV" 2008, Hard Rock
+
+
+## Дискография
+
+### "Out of the Silent Planet" 1988, Progressive
+
+1. In the New Age  5:23 (King's X)  
+2. Goldilox  4:41 (King's X)  
+3. Power of Love  4:57 (King's X)  
+4. Wonder  4:13 (King's X)  
+5. Sometimes  3:40 (King's X)  
+6. King  3:01 (King's X)  
+7. What Is This?  3:48 (King's X)  
+8. Far, Far Away  4:14 (King's X)  
+9. Shot of Love  3:15 (King's X)  
+10. Visions  5:11 (King's X)  
+
+
+### "Gretchen Goes to Nebraska" 1989, Progressive
+
+1. Out of the Silent Planet  5:44 (King's X)  
+2. Over My Head  4:47 (King's X)  
+3. Summerland  3:17 (King's X)  
+4. Everybody Knows a Little Bit of Something  3:57 (King's X)  
+5. Difference (In the Garden of St. Anne's-On-The-Hill)  3:08 (King's X)  
+6. I'll Never Be the Same  4:57 (King's X)  
+7. Mission  5:00 (King's X)  
+8. Fall on Me  4:03 (King's X)  
+9. Pleiades  4:42 (King's X)  
+10. Don't Believe It (It's Easier Said Than Done)  3:06 (King's X)  
+11. Send a Message  4:02 (King's X)  
+12. Burning Down  5:15 (King's X)  
+
+
+### "Faith Hope Love" 1990, Progressive
+
+1. We Are Finding Who We Are  4:39 (King's X)  
+2. It's Love  4:34 (King's X)  
+3. I'll Never Get Tired of You  3:46 (King's X)  
+4. Fine Art of Friendship  4:21 (King's X)  
+5. Mr. Wilson  3:39 (King's X)  
+6. Moanjam  6:05 (King's X)  
+7. Six Broken Soldiers  3:32 (King's X)  
+8. I Can't Help It  3:53 (King's X)  
+9. Talk to You  4:36 (King's X)  
+10. Everywhere I Go  3:53 (King's X)  
+11. We Were Born to Be Loved  4:52 (King's X)  
+12. Faith Hope Love  9:23 (King's X)  
+13. Legal Kill  4:42 (King's X)  
+
+
+### "King's X" 1992, Progressive
+
+1. World Around Me  2:56 (King's X)  
+2. Prisoner  4:14 (King's X)  
+3. Big Picture  5:03 (King's X)  
+4. Lost in Germany  4:52 (King's X)  
+5. Chariot Song  5:22 (King's X)  
+6. Ooh Song  4:01 (King's X)  
+7. Not Just for the Dead  4:47 (King's X)  
+8. What I Know About Love  5:38 (King's X)  
+9. Black Flag  4:01 (King's X)  
+10. Dream in My Life  4:57 (King's X)  
+11. Silent Wind  4:10 (King's X)  
+
+
+### "Dogman" 1994, Progressive
+
+1. Dogman  4:01 (King's X)  
+2. Shoes  3:29 (King's X)  
+3. Pretend  4:36 (King's X)  
+4. Flies and Blue Skies  5:00 (King's X)  
+5. Black the Sky  4:32 (King's X)  
+6. Fool You  4:31 (King's X)  
+7. Don't Care  4:39 (King's X)  
+8. Sunshine Rain  4:35 (King's X)  
+9. Complain  3:19 (King's X)  
+10. Human Behavior  4:28 (King's X)  
+11. Cigarettes  5:52 (King's X)  
+12. Go to Hell  :51 (King's X)  
+13. Pillow  4:24 (King's X)  
+14. Manic Depression  4:59 (King's X)  
+
+
+### "Tape Head" 1998, Progressive
+
+1. Groove Machine  3:42 (King's X)  
+2. Fade  3:24 (King's X)  
+3. Over and Over  3:23 (King's X)  
+4. Ono  3:55 (King's X)  
+5. Cupid  4:14 (King's X)  
+6. Ocean  3:08 (King's X)  
+7. Little Bit of Soul  4:13 (King's X)  
+8. Hate You  3:01 (King's X)  
+9. Higher Than God  3:00 (King's X)  
+10. Happy  5:38 (King's X)  
+11. Mr. Evil  3:45 (King's X)  
+12. World  3:36 (King's X)  
+13. Walter Bela Farkas (Live Peace in New York)  2:42 (King's X)  
+
+
+### "Please Come Home...Mr. Bulbous" 2000, Progressive
+
+1. Fish Bowl Man  4:28 (King's X)  
+2. Julia  3:39 (King's X)  
+3. She's Gone Away  4:37 (King's X)  
+4. Marsh Mellow Field  5:30 (King's X)  
+5. When You're Scared  4:26 (King's X)  
+6. Charlie Sheen  3:51 (King's X)  
+7. Smudge  3:52 (King's X)  
+8. Bitter Sweet  2:13 (King's X)  
+9. Move Me  4:58 (King's X)  
+10. Move Me, Pt. 2  7:20 (King's X)  
+
+
+### "Manic Moonlight" 2001, Progressive
+
+1. Believe  4:46 (King's X)  
+2. Manic Moonlight  4:32 (King's X)  
+3. Yeah  3:40 (King's X)  
+4. False Alarm  4:36 (King's X)  
+5. Static  4:29 (King's X)  
+6. Skeptical Winds  6:51 (King's X)  
+7. Other Side  4:49 (King's X)  
+8. Vegetable  6:27 (King's X)  
+9. Jenna  5:06 (King's X)  
+10. Water Ceremony  0:18 (King's X)  
+
+
+### "Ogre Tones" 2005, Progressive
+
+
+
+### "XV" 2008, Hard Rock
+
+
+
 
 ## Отношения с другими группами
 

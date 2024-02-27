@@ -1,8 +1,25 @@
 # Darkwater
 
-Дискография
-"Calling The Earth To Witness " 2007, Progressive
-"Where Stories End" 2010, Progressive
+
+
+## Дискография
+
+### "Calling The Earth To Witness " 2007, Progressive
+
+
+
+### "Where Stories End" 2010, Progressive
+
+1.	 Breathe	04:37
+2.	 Why I Bleed	08:15
+3.	 Into the Cold	06:30
+4.	 A Fools Utopia	05:43
+5.	 Queen of the Night	06:11
+6.	 In the Blink of an Eye	06:09
+7.	 Fields of Sorrow	06:38
+8.	 Without a Sound	06:50
+9.	 Walls of Deception	06:51
+
 
 ## Отношения с другими группами
 

@@ -1,21 +1,230 @@
 # Lacuna Coil
 
-Дискография
-"Ethereal (Demo)" 1996, Gothic
-"Lacuna Coil" 1998, Gothic
-"In A Reverie" 1999, Gothic
-"Halflife" 2000, Gothic
-"Unleashed Memories" 2001, Gothic
-"Comalies" 2002, Gothic
-"Swamped (single)" 2002, Gothic
-"The EP's" 2005, Gothic
-"Karmacode" 2006, Gothic
-"Shallow Life" 2009, Gothic
-"Trip the Darkness (single)" 2011, Gothic
-"Dark Adrenaline" 2012, Gothic
-"Broken Crown Halo" 2014, Gothic
-"Delirium" 2016, Gothic
-"Naughty Christmas (single)" 2016, Gothic
+gothic-doom from Italy
+
+## Дискография
+
+### "Ethereal (Demo)" 1996, Gothic
+
+01. Shallow End
+02. Frozen Feeling
+
+### "Lacuna Coil" 1998, Gothic
+
+01. No Need to Explain - 3:39
+02. The Secret... - 4:17
+03. This Is My Dream - 4:08
+04. Soul Into Hades - 4:54
+05. Falling - 5:40
+06. Un Fantasma Tra Noi (A Ghost Between Us) - 5:24 
+
+### "In A Reverie" 1999, Gothic
+
+1. Circle.
+2. Stately Lover.
+3. Honeymoon Suite.
+4. My Wings.
+5. To Myself I Turned.
+6. Cold.
+7. Reverie.
+8. Veins Of Glass.
+9. Falling Again.
+
+(c)1999 MAGIC ARTS PUBLISHING
+(p)1999 CENTURY MEDIA RECORDS
+
+CRISTINA SCABBIA – female vocals
+ANDREA FERRO – male vocals
+CRISTIANO MIGLIORE – all guitars
+MARCO COTI ZELATI – bass guitar
+CRISTIANO MOZATTI – drums
+
+All arrangements by LACUNA COIL. All keyboards by Waldemar Sorychta.
+Produced by Waldemar Sorychta. Engineered by Siggi Bemm and Waldemar Sorychta.
+Recorded at Woodhouse Studios between October/Nivember 1998.
+
+### "Halflife" 2000, Gothic
+
+Halflife 
+Trance Awake 
+Senzafine 
+Hyperfast 
+Stars 
+
+
+### "Unleashed Memories" 2001, Gothic
+
+Heir Of A Dying Day
+To Live Is To Hide
+Purify
+Senzafine
+When A Dead Man Walks
+1:19
+Cold Heritage
+Distant Sun
+A Current Obsession
+Wave Of Anguish
+
+
+### "Comalies" 2002, Gothic
+
+2CD Edition
+
+01. Swamped
+02. Heavens A Lie
+03. Daylight Dancer
+04. Humane
+05. Self Deception
+06. Aeon
+07. Tight Rope
+08. The Ghost Woman And The Hunter
+09. Unspoken
+10. Entwined
+11. The Prophet Said
+12. Angels Punishment
+13. Comalies
+14. Heavens A Lie (Radio Edit)
+15. Swamped (Radio Edit)
+16. Heavens A Lie (Studio Acoustic)
+17. Swamped (Studio Acoustic)
+18. Senzafine (Studio Acoustic)
+19. Unspoken (Studio Acoustic)
+20. Heavens A Lie (WAAF Radio Acoustic)
+21. Senzafine (WAAF Radio Acoustic)
+22. Aeon (WAAF Radio Acoustic)
+
+Engineered and Produced by Waldemar Sorychia
+
+(c) 2002 Magic Arts Publishing
+(p) 2002 Century Media Records Ltd.
+
+### "Swamped (single)" 2002, Gothic
+
+01. Swamped (Radio Edit)
+02. Swamped (Acoustic)
+
+### "The EP's" 2005, Gothic
+
+01. No Need To Explain
+02. The Secret...
+03. This Is My Dream
+04. Soul In To Hades
+05. Falling
+06. Un Fanstasma Tra Noi (A Ghost Between Us)
+07. Halflife
+08. Trance Awake
+09. Senzafine
+10. Hyperfast
+11. Stars
+
+### "Karmacode" 2006, Gothic
+
+
+
+### "Shallow Life" 2009, Gothic
+
+1. Survive 03:34  
+2. I Won't Tell You 03:47
+3. Not Enough 03:40
+4. I'm Not Afraid 03:22
+5. I Like It 03:42
+6. Underdog 03:40
+7. The Pain 04:00
+8. Spellbound 03:20
+9. Wide Awake 03:51
+10. The Maze 03:38 
+11. Unchained 03:22
+12. Shallow Life 04:00
+
+### "Trip the Darkness (single)" 2011, Gothic
+
+1. Trip the Darkness 03:16
+
+### "Dark Adrenaline" 2012, Gothic
+
+1. Trip The Darkness
+2. Against You
+3. Kill the Light
+4. Give Me Something More
+5. Upsidedown
+6. End of Time
+7. I Don't Believe in Tomorrow
+8. Intoxicated
+9. The Army Inside
+10. Losing My Religion
+11. Fire
+12. My Spirit
+
+
+iTunes Bonus tracks:
+ 13. Soul Inmate (Exclusive track)
+ 14. Closer (Live On WCC)
+ 15. Heaven's a Lie (Live On WCC)
+ 16. Within Me (Live On WCC)
+ 17. I Won’t Tell You (Live On KXFX) 
+18. Spellbound (On WBYR Second Visit) 
+19. Trip the Darkness (Video)
+ 20. Digital Booklet
+ 
+Produced by Don Gilmore (producer for acts such as Linkin Park and Bullet For My Valentine).
+ 
+Limited Edition CD+DVD Box Set, contains: Digipack 
+including "Dark Passengers" DVD
+ Additional Content:
+ Calendar 2012/2013
+ Set of 3 Buttons
+ 
+"Dark Passengers" tracklist:
+ 1. Chapter I: The injected
+ 2. Chapter II: While you sleep
+ 3. Chapter III: Carnage euphoria
+ 4. Chapter IV: The human box
+ 5. Chapter V: All you can eat
+ 6. Chapter VI: The sane madness 
+
+### "Broken Crown Halo" 2014, Gothic
+
+1. Nothing Stands in Our Way      
+2. Zombies      
+3. Hostage to the Light     
+4. Victims      
+5. Die & Rise      
+6. I Forgive (But I Won't Forget Your Name)      
+7. Cybersleep      
+8. Infection      
+9. I Burn in You      
+10. In the End I Feel Alive      
+11. One Cold Day  
+
+
+Marco Coti Zelati - Bass, Keyboards  
+Cristina Scabbia - Vocals  
+Andrea Ferro - Vocals  
+Cristiano Mozzati - Drums  
+Marco Biazzi - Guitars  
+Cristiano Migliore - Guitars  
+
+
+### "Delirium" 2016, Gothic
+
+1. The House of Shame  
+2. Broken Things      
+3. Delirium 
+4. Blood, Tears, Dust    
+5. Downfall      
+6. Take Me Home      
+7. You Love Me 'Cause I Hate You   
+8. Ghost in the Mist   
+9. My Demons      
+10. Claustrophobia  
+11. Ultima Ratio  
+
+Recorded at BRX Studio in Milan between December 2015 and February 2016.
+
+### "Naughty Christmas (single)" 2016, Gothic
+
+1. Naughty Christmas  03:20 
+
 
 ## Отношения с другими группами
 

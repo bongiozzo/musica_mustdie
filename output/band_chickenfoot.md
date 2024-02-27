@@ -1,8 +1,17 @@
 # Chickenfoot
 
-Дискография
-"Chickenfoot" 2009, Hard Rock
-"III" 2011, Hard Rock
+
+
+## Дискография
+
+### "Chickenfoot" 2009, Hard Rock
+
+
+
+### "III" 2011, Hard Rock
+
+
+
 
 ## Отношения с другими группами
 

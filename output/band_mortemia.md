@@ -1,7 +1,21 @@
 # Mortemia
 
-Дискография
-"Misere Mortem" 2009, Gothic
+
+
+## Дискография
+
+### "Misere Mortem" 2009, Gothic
+
+01. The One I Once Was
+02. The Pain Infernal And The Fall Eternal
+03. The Eye Of The Storm
+04. The Malice Of Life's Cruel Ways
+05. The Wheel Of Fire
+06. The Chains That Wield My Mind
+07. The New Desire
+08. The Vile Bringer Of Self Destructive Thoughts
+09. The Candle At The Tunnel's End
+
 
 ## Отношения с другими группами
 

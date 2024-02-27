@@ -1,8 +1,27 @@
 # Assailant
 
-Дискография
-"Nemesis Within" 2006, Metal
-"Wicked Dream" 2008, Progressive
+
+
+## Дискография
+
+### "Nemesis Within" 2006, Metal
+
+
+
+### "Wicked Dream" 2008, Progressive
+
+1. A Day Tomorrow 04:06  
+2. Wicked Dream 04:55  
+3. The Sin 04:26  
+4. Fade Away 04:54  
+5. ...From The Hour Of Birth 04:16  
+6. Catch 22 04:43  
+7. Soul Degenerate 04:34  
+8. Evolution Of The Wind 04:32  
+9. The Cell 04:38  
+10. Eternal (Acoustic) 03:20  
+11. Instincts 05:51
+
 
 ## Отношения с другими группами
 

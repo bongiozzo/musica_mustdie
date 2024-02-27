@@ -1,7 +1,13 @@
 # Revelance
 
-Дискография
-"Revelation of Desired Grace (demo)" 2005, Metal
+dark metal
+
+## Дискография
+
+### "Revelation of Desired Grace (demo)" 2005, Metal
+
+
+
 
 ## Отношения с другими группами
 

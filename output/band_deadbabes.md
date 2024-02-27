@@ -1,7 +1,18 @@
 # Deadbabes
 
-Дискография
-"The Drug (EP)" 2004, Gothic
+Finnish love-metal band
+
+## Дискография
+
+### "The Drug (EP)" 2004, Gothic
+
+1. The Drug
+2. Lullaby
+3. My favourite passion
+4. Come to me
+
+Released by Futurecords. Distribution by Playground Music Scandinavia.
+
 
 ## Отношения с другими группами
 

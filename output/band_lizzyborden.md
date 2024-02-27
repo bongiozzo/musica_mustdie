@@ -1,15 +1,76 @@
 # Lizzy Borden
 
-Дискография
-"Give Em The Axe" 1984, Glam
-"Love You To Pieces" 1985, Glam
-"The Murderess Metal Road Show" 1985, Glam
-"Menace To Society" 1986, Glam
-"Terror Rising" 1987, Glam
-"Visual Lies" 1987, Glam
-"Master Of Disguise" 1989, Glam
-"Deal With The Devil" 2000, Glam
-"Appointment With Death" 2007, Glam
+(power metal)
+
+## Дискография
+
+### "Give Em The Axe" 1984, Glam
+
+
+
+### "Love You To Pieces" 1985, Glam
+
+
+
+### "The Murderess Metal Road Show" 1985, Glam
+
+
+
+### "Menace To Society" 1986, Glam
+
+
+
+### "Terror Rising" 1987, Glam
+
+
+
+### "Visual Lies" 1987, Glam
+
+
+
+### "Master Of Disguise" 1989, Glam
+
+
+
+### "Deal With The Devil" 2000, Glam
+
+There Will Be Blood Tonight 
+Hell Is For Heroes 
+Deal With The Devil 
+Zanzibar 
+Loving You Is Murder 
+We Only Come Out At Night 
+Generation Landslide 
+The World Is Mine 
+State Of Pain 
+(This Ain't) The Summer Of Love 
+Believe 
+
+
+
+Lizzy Borden (vocals)
+Alex Nelson (guitar)
+Marten Andersson (bass)
+Joey Scott (drums)
+
+
+
+
+
+### "Appointment With Death" 2007, Glam
+
+1. Abnormal 
+2. Appointment With Death 
+3. Live Forever 
+4. Bloody Tears 
+5. The Death Of Love 
+6. Tomorrow Never Comes 
+7. Under Your Skin 
+8. Perfect World (I Don`t Wanna Live) 
+9. Somethin`s Crawlin 
+10. (We Are) The Only Ones 
+11. The Darker Side
+
 
 ## Отношения с другими группами
 

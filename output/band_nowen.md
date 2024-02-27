@@ -1,9 +1,37 @@
 # Nowen
 
-Дискография
-"Nothing But Hate" 2010, Thrash
-"Essence of Fear" 2012, Thrash
-"Peace with Death" 2016, Thrash
+
+
+## Дискография
+
+### "Nothing But Hate" 2010, Thrash
+
+1. Intro	 
+2. The Sick Weakness	 
+3. Dead Meat	 
+4. Fragile	 
+5. Bleed, Suffer And Die	 
+6. Sofia	 
+7. Nothing But Hate	 
+8. After The Suicide	 
+9. From Time To Eternity
+
+### "Essence of Fear" 2012, Thrash
+
+
+
+### "Peace with Death" 2016, Thrash
+
+1. Intro III
+2. When Death Arrives 
+3. In Death We Shine 
+4. The Lost Fire  
+5. The Gracious Farewell 
+6. Yearning  
+7. Peace with Death
+8. Choices
+8. Nothing to Forgive
+
 
 ## Отношения с другими группами
 

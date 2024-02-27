@@ -1,20 +1,304 @@
 # Rotting Christ
 
-Дискография
-"Passage To Arcturo" 1992, Black Metal
-"Thy Mighty Contract" 1993, Black Metal
-"Non Serviam" 1995, Black Metal
-"Triarchy Of The Lost Lovers" 1996, Black Metal
-"A Dead Poem" 1997, Black Metal
-"Sleep Of The Angels" 1999, Black Metal
-"Khronos" 2000, Black Metal
-"Genesis" 2002, Black Metal
-"Sanctus Diavolos" 2004, Black Metal
-"Theogonia" 2007, Metal
-"Non Serviam - A 20 Year Apocryphal Story [2CD/2DVD]" 2009, Black Metal
-"Aealo" 2010, Metal
-"Kata Ton Daimona Eaytoy (True to His Own Spirit)" 2013, Metal
-"Rituals" 2016, Metal
+
+
+## Дискография
+
+### "Passage To Arcturo" 1992, Black Metal
+
+1. Fgementh,Thy Gift
+2. The Forth Knight Of Revelation (Part I)
+3. The Forth Knight Of Revelation (Part II)
+
+Mutilator
+Necromayhem
+Savron
+Morbid
+
+(p)&(c) 1992 ROTTING CHRIST
+
+### "Thy Mighty Contract" 1993, Black Metal
+
+1. The Sign Of Evil Existence
+2. Transform All Suffering Into Plague
+3. Fgmenth,Thy Gift
+4. His Sleeping Majesty
+5. Exiled Archangels
+6. Dive The Deepest Abyss
+7. The Coronation Of The Serpent
+8. The Fourth Knight Of Revelation
+
+All Music By ROTTING CHRIST.
+Produced By G.Osmak,A.Delaportas &
+ROTTING CHRIST.
+Engineered By Anthony Delaportas.
+Recorded & Mixed At Molon Lave Studio During November - December 1992.
+
+(p)&(c) 1993 OSMOSE Productions
+
+### "Non Serviam" 1995, Black Metal
+
+1. The Filth Illusion
+2. Wolfera The Chacal
+3. Non Serviam
+4. Morallity Of A Dark Age
+5. Where Mortals Have No Pride
+6. Fethroesforia
+7. Mephesis Of Black Crystal
+8. Ice Shaped God
+9. Saturn Unlock Avey's Son
+
+ Necromayhem - Guitars, Vocals
+ Mutilator - Bass
+ Sauron - Drums
+ Magus Wampir Daoloth - Synth, Back Vocals
+
+All Songs By ROTTING CHRIST.
+Produced By ROTTING CHRIST.
+Engineered By George Zaharopoulos.
+Recorded At Storm Studio Sep-Oct 1994.
+
+(P)&(C) 1995 UNISOUND Records
+
+### "Triarchy Of The Lost Lovers" 1996, Black Metal
+
+1. King Of A Stellar War
+2. A Dynasty From The Ice
+3. Archon
+4. Snowing Still
+5. Shadows Follow
+6. One With The Forest
+7. Diastric Alchemy
+8. The Opposite Bank
+9. The First Field Of The Battle
+
+All songs written by ROTTING CHRIST
+Produced and engineered by Andy Classen.
+
+Recorded at Stage One Studio, Buhne, Germany
+
+Necromayhem - Guitar, Vocals
+Mutilator - Bass
+Necrosavron - Drums
+
+(p)(c) I996 CENTURY MEDIA Records
+
+### "A Dead Poem" 1997, Black Metal
+
+1. A Sorrowfull Farewell
+2. Among Two Storms
+3. A Dead Poem
+4. Out of Spirit
+5. As If by Magic
+6. Full Colour is the Night
+7. Semigod
+8. Ten Miles High
+9. Between Times
+10. Ira Incensus
+
+(p) 1997
+
+### "Sleep Of The Angels" 1999, Black Metal
+
+
+
+### "Khronos" 2000, Black Metal
+
+
+
+### "Genesis" 2002, Black Metal
+
+01. Daemons 3:27
+02. Lex Talionis 5:03
+03. Quintessence 4:45
+04. Nightmare 7:08
+05. In Domine Sathana 5:16
+06. Release Me 3:51
+07. The Call Of The Aethyrs 4:32
+08. Dying 4:48
+09. Ad Noctis 6:11
+10. Under The Name Of Legion 6:29
+
+
+Line-Up:
+Sakis - Guitar, vocals
+Andreas - Bass
+Themis - Drums
+Kostas - Guitar
+George - keyboard
+
+
+
+### "Sanctus Diavolos" 2004, Black Metal
+
+1. Visions Of A Blind Order (3:46)
+2. Thy Wings Thy Horns Thy Sin (4:13)
+3. Athanati Este (5:40)
+4. Tyrannical (5:07)
+5. You My Cross (4:19)
+6. Sanctimonius (3:16)
+7. Serve In Heaven (3:55)
+8. Shades Of Evil (5:14)
+9. Doctrine (6:28)
+10. Sanctus Diavolos (6:41)
+
+
+Sakis - Guitars, Vocals, Keyboards
+Andreas - Bass
+Themis - Drums
+
+### "Theogonia" 2007, Metal
+
+1. The Sign of prime Creation
+2. Keravnos Kivernitos 
+3. Enuma Elish 
+4. Gaia Tellus 
+5. Helios Hyperion 
+6. Nemecic 
+7. He, the Aethyr 
+8. Phobos' Synagogue 
+9. Rege Diabolicus 
+10. Threnody
+
+### "Non Serviam - A 20 Year Apocryphal Story [2CD/2DVD]" 2009, Black Metal
+
+Disc 1 
+1. Intro (Logos-Aima-Noima) 02:12  
+2. The Sign Of Prime Creation 03:20
+3. Keravnos Kivernitos 04:37
+4. Athanatoi Este 05:17
+5. Enuma Elish 04:57 
+6. King Of A Stellar War 06:09
+7. The Fifth Illusion 04:11  
+8. Archon 04:06 
+9. The First Field Of The Battle 05:43
+10. Shadows Follow 04:34 
+11. The Sign Of Evil Existence 02:20
+12. Fgmenth Thy Gift 04:09
+13. Coronation Of The Serpent 03:56
+14. The Mystical Meeting 04:35
+15. Thou Art Blind 02:25 
+16. Morality Of A Dark Age 05:00 
+17. Saturn Unlock Avey's Son 05:49  
+18. Exiled Archangels 04:42
+19. Sorrowful Farewell 04:38
+20. Among Two Storms 03:53
+21. After Dark I Feel 04:13
+22. In Domine Sathana 04:56 
+23. Nemecic 04:30
+24. Under The Name Of Legion 05:41
+25. Societas Satanas (Thou Art Lord Cover) 03:50
+26. Non Serviam 05:02 
+Disc 2 
+1. Biography-Bootlegs-Official Video-clips   
+Disc 3 
+1. Intro (Logos-Aima-Noima) 02:12  
+2. The Sign Of Prime Creation 03:20
+3. Keravnos Kivernitos 04:37
+4. Athanatoi Este 05:17
+5. Enuma Elish 04:57
+6. King Of A Stellar War 06:09
+7. The Fifth Illusion 04:11
+8. Archon 04:06
+9. The First Field Of The Battle 05:43
+10. Shadows Follow 04:34
+11. The Sign Of Evil Existence 02:20
+12. Fgmenth Thy Gift 04:09
+13. Coronation Of The Serpent 03:56
+14. The Mystical Meeting 04:35
+15. Thou Art Blind 02:25
+16. Morality Of A Dark Age 05:00
+17. Saturn Unlock Avey's Son 05:49
+Disc 4 
+1. Exiled Archangels 04:42
+2. Sorrowful Farewell 04:38
+3. Among Two Storms 03:53
+4. After Dark I Feel 04:13 
+5. In Domine Sathana 04:56 
+6. Nemecic 04:30
+7. Under The Name Of Legion 05:41
+8. Societas Satanas (Thou Art Lord Cover) 03:50
+9. Non Serviam 05:02
+10. Visions Of A Blind Order 03:53 
+11. Sanctus Diavolos 05:36
+12. Transform All Suffering Into Plagues 04:13
+13. Wolfera The Chacal 06:34
+14. Forest Of N'Gai 04:47 
+15. Feast Of The Grand Whore 02:56
+16. Saturn Unlock Avey's Son 06:25 
+
+### "Aealo" 2010, Metal
+
+1. Aealo 03:40  
+2. Eon Aenaos 03:57  
+3. Demonon Vrosis 04:56  
+4. Noctis Era 04:49  
+5. dub-sag-ta-ke 02:57  
+6. Fire Death And Fear 04:34  
+7. Nekron lahes... 01:08  
+8. ...Pir Threontai 04:48  
+9. Thou Art Lord 04:51  
+10. Santa Muerte 05:28  
+11. Orders From The Dead (Diamanda Galas Cover) 08:57 
+
+
+
+Line-up:
+
+Sakis Tolis - Vocals, Guitars, Keyboards
+George Bokos - Guitars
+Andreas Lagios - Bass
+Themis Tolis - Drums
+
+Guest members:
+Magus (Necromantia) - Vocals
+Alan A. Nemtheanga (Primordial) - Vocals
+Diamanda Galas - Vocals on "Orders From The Dead"
+
+The album also features Pliades (the traditional choir from Ipiros), Daemonia
+Nymphe and Dirty Granny Tales.
+
+The CD was recorded between July and October 2009 at Lunatach Studios in
+Katerini, Greece.
+Produced by Sakis Tolis.
+
+Cover art and layout by Jйrфme.
+
+'Aealo' is the transcription of an ancient Greek word into the Latin alphabet.
+It means thrashing, catastrophe or destruction and reflects the musical and
+lyrical content of the album. 
+
+### "Kata Ton Daimona Eaytoy (True to His Own Spirit)" 2013, Metal
+
+1. In Yumen - Xibalba  06:24   
+2. P'unchaw kachun - Tuta kachun  04:44  
+3. Grandis Spiritus Diavolos  05:52   
+4. Kata Ton Daimona Eaytoy  04:52   
+5. Cine iube&#351;te si lasa  05:58  
+6. Iwa Voodoo  04:36   
+7. Gilgames  04:02   
+8. Русалка  04:33  
+9. Ahura Mazda-Anra Mainiuu  04:44 
+10. XEC  05:46  
+11. Welcome to Hel  * 04:28 
+
+
+### "Rituals" 2016, Metal
+
+1. In Nomine Dei Nostri     
+2. Ze Nigmar    
+3. Elthe Kyrie  04:49  
+4. Les Litanies de Satan (Les Fleurs du Mal)   
+5. Apage Satana 
+6. Tou Thanatou    
+7. For a Voice like Thunder  
+8. Konx om Pax   
+9. Devadevam  
+10. The Four Horsemen
+11. Lok'tar Ogar  * 
+
+Mixed and mastered at Fascination Street Studios.
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,13 @@
 # Mentally Defiled
 
-Дискография
-"The Thrash Brigade" 2009, Thrash
+
+
+## Дискография
+
+### "The Thrash Brigade" 2009, Thrash
+
+
+
 
 ## Отношения с другими группами
 

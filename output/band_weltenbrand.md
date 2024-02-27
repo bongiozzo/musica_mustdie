@@ -1,9 +1,93 @@
 # Weltenbrand
 
-Дискография
-"Das Rabenland" 1996, Gothic
-"Das Nachtvolk" 1997, Gothic
-"The End Of The Wizard" 2006, Darkwave
+
+
+## Дискография
+
+### "Das Rabenland" 1996, Gothic
+
+1. Das Rabenland
+2. Dark Desires
+3. Weltenbrand
+4. Her Poisoned Mind
+5. Night Of The Blade
+6. Malleus Maleficarum
+7. Wizard Of The Lost Kingdom
+[8]. The Ghost Of The Dead Son
+[9]. Sorrow Fog
+[10].Her Poisoned Mind (Black Version)
+[11].Abstrakt
+
+[8]-[11] -  Ha cтopoнe B
+
+All songs written bv WELTENBRAND.
+Produced by O.Falk, WELTENBRAND and Steve Noi.
+Recorded and mixed by Steve Noi at Tonspur Studio, Buchs.
+
+Daniel H. - Keyboard
+0liver F. - Synthesizer
+Rino V. - Keyboard
+Simone S. - Female Vocals
+Richie W. - Vocals
+Lorina V. - Female Vocals 
+
+(p)(c)  1996 WITCHHUNT Records
+
+### "Das Nachtvolk" 1997, Gothic
+
+1.  Intro
+2.  The Thress Sisters
+3.  Magpies
+4.  The Death
+5.  The Golden Boos
+6.  The Bewitched Tears (... The Little Lake Of Sass)
+7.  Gafadura
+8.  People Of The Night
+9.  Forsaken Wisdom
+10.Well Of Pledge
+11.The Saga Of Lichten Stein
+
+Richard L.
+Simone S.
+Ritchie W.
+Oliver F.
+Damela N.
+
+(P)(C) 1997 M.O.S. Records // MOS 003
+
+### "The End Of The Wizard" 2006, Darkwave
+
+02. The Ghost of New Year's Eve
+03. Question by the Night Ghost
+04. The French and the Wine
+05. The End of the Wizard
+06. Among Them
+07. Foal in an Egg
+08. Overheard
+09. Gipsy Magic
+10. Cursed by the Zyprio (limited edition)
+11. A Witch Reveals Herself (limited edition)
+
+Oliver Falk - Keyboards
+Ritchie Wenaweser - Vocals
+Adrian 'Adi' Buechel - Drums
+Daniela Nipp - Violin
+Christian Sele - Bass
+Dina Zambelli - Female vocals
+
+Guest musicians:
+Mario Janke (drums), Sonja Schindele (violine),
+Bianca Riesner (cello), Monika Tarcsay (violine),
+Klemens Mairer (violine)
+Produced by Gunter Slatinski (Pink Studio
+Produktion) and Oliver Falk
+Recorded and mixed by Gunter Slatinski and Oliver
+Falk
+Mastered by Peter Moritz (Radwerk 14 Studios)
+All songs written by Oliver Falk
+Photography by Jens Howorka
+Graphic design by Ingo Romling
+
 
 ## Отношения с другими группами
 

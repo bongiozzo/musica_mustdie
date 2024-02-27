@@ -1,8 +1,43 @@
 # Vampiria
 
-Дискография
-"Among Mortals" 2001, Black Metal
-"Wicked Charm" 2002, Black Metal
+
+
+## Дискография
+
+### "Among Mortals" 2001, Black Metal
+
+1. Prelude / Awake to Eternity / Vampires & Mortals  5:30 
+2. Legacy in Blood  4:19 
+3. Ambassador of Morning (Salve Luxfer)  3:49 
+4. Brother Wolf (The Path of Seventh Moon)  6:46 
+5. The Hand of Death  4:49 
+6. Legend of a Curse  4:38 
+7. Crown of Crows  6:18 
+8. Pagan Celebration (Celtic Evocation)  5:04 
+9. Satan Legion's Comes  4:48 
+10. Requiem For a Vampire (Forest of Agony)  6:32 
+11. Grull Has Arrived
+
+### "Wicked Charm" 2002, Black Metal
+
+1. Trance-Migration  4:32 
+2. Break the Seal  4:46 
+3. Venom of God (Path of Doom)  4:08 
+4. Unholy War  5:58 
+5. Eclipse of Souls  5:59 
+6. Dark Emotions  8:58 
+7. Darkness, Swallows - me!  3:38 
+8. The Gloomy Labyrints of Dementia  5:18 
+9. Ancient Fear  6:21 
+10. Reminiscence of Hell (Vladґs Doinions)  8:00 
+11. Mental Disorder (New recorded version)  
+
+
+Konde - voice
+Ivan - bass
+Oswalth - guitar & keyboards
+Johann V. - drums
+
 
 ## Отношения с другими группами
 

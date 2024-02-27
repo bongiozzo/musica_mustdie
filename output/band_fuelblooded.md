@@ -1,8 +1,34 @@
 # Fuelblooded
 
-Дискография
-"Inflict The Inevitable" 2006, Melodic Death Metal
-"Off the Face of the Earth" 2009, Melodic Death Metal
+melodeath from Netherlands
+
+## Дискография
+
+### "Inflict The Inevitable" 2006, Melodic Death Metal
+
+1. Art Of Life	
+2. Measure Swords
+3. Dream Tech Inc.	 
+4. Constructive Destruction	 
+5. Inflict The Inevitable	 
+6. Hate Of A Thousand Ages	 
+7. The Hangman's Burden		 
+8. Dissector Of Souls	 
+9. Poisonous	 
+10. The Silence
+
+### "Off the Face of the Earth" 2009, Melodic Death Metal
+
+1. The End Starts Here	 
+2. Discounted Dormancy	 
+3. When Passion Dies	 
+4. Recipe for Demise	 
+5. The Cult of Ego	 
+6. Off the Face of the Earth	 
+7. The Wrath of A'ath	 
+8. Pandemic Persecution	 
+9. Demonized
+
 
 ## Отношения с другими группами
 

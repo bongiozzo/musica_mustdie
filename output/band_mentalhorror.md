@@ -1,7 +1,13 @@
 # Mental Horror
 
-Дискография
-"Extreme Evoltutive Trauma" 1998, Grindcore
+
+
+## Дискография
+
+### "Extreme Evoltutive Trauma" 1998, Grindcore
+
+
+
 
 ## Отношения с другими группами
 

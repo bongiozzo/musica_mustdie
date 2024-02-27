@@ -1,7 +1,13 @@
 # Flash
 
-Дискография
-"Pretty Stranger (demo)" 2004, Glam
+glam
+
+## Дискография
+
+### "Pretty Stranger (demo)" 2004, Glam
+
+
+
 
 ## Отношения с другими группами
 

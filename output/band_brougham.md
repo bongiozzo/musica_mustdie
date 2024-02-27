@@ -1,7 +1,13 @@
 # Brougham
 
-Дискография
-"Le Cock Sportif" 2000, Rap Metal
+rap-rock/metal outfit, formed in Palo Alto, CA
+
+## Дискография
+
+### "Le Cock Sportif" 2000, Rap Metal
+
+
+
 
 ## Отношения с другими группами
 

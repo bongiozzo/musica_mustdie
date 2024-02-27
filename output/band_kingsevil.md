@@ -1,8 +1,31 @@
 # King's Evil
 
-Дискография
-"Deletion of Humanoise" 2001, Thrash
-"Sacrosanct" 2011, Thrash
+
+
+## Дискография
+
+### "Deletion of Humanoise" 2001, Thrash
+
+1. Victim and Hate  05:06   
+2. Detonation  03:35   
+3. Web of Lies  03:46   
+4. Fanatical Devotion  05:25   
+5. False Pride  04:41   
+6. Punish with Death  03:57   
+7. Core Dead  04:51   
+8. Scream  04:14 
+
+### "Sacrosanct" 2011, Thrash
+
+1. Trace of Insanity  04:59 
+2. Stab in the Back  04:02   
+3. Bind Torture Kill  03:20    
+4. Retaliation for the Wretch  05:19  
+5. Gaze into the Brain  05:14  
+6. Infected with the Blood  04:41
+7. Leviathan  03:44    
+8. Impudence of Brutality  04:04 
+
 
 ## Отношения с другими группами
 

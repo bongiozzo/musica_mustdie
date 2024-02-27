@@ -1,8 +1,45 @@
 # Wolfcry
 
-Дискография
-"Power Within" 2001, Power Metal
-"Nightbreed" 2003, Heavy Metal
+
+
+## Дискография
+
+### "Power Within" 2001, Power Metal
+
+  1 - Power Within 
+  2 - The Journey 
+  3 - Lonewolfs Destiny 
+  4 - The Fate of a Lonely Bard 
+  5 - Reflections 
+  6 - Part of a Play 
+  7 - Nightriders 
+  8 - Neverending War 
+  9 - Sons of Gods 
+
+
+
+Andreas “The Wizard” Kourtidis – Drums 
+Costas Hatzigeorgiou – Vocals 
+Spiros Triantafillou – Bass 
+Simos Kaggelaris- Guitars 
+
+### "Nightbreed" 2003, Heavy Metal
+
+1. Metamorphosis
+2. Vanguard
+3. Screamin’ Whispers
+4. Endless Circle
+5. The Dying Of Innocence
+6. As Darkness
+7. Saint / Sinner
+8. The Fable Of Agnor
+
+Andreas “The Wizard”: Drums
+Costas Hatzigeorgiou: Vocals
+Simos Kaggelaris: Guitars
+Spiros Triantafillou: Bass
+
+
 
 ## Отношения с другими группами
 

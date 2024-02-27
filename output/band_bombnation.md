@@ -1,7 +1,29 @@
 # Bombnation
 
-Дискография
-"H.A.Z.M.A.T." 2009, Thrash
+
+
+## Дискография
+
+### "H.A.Z.M.A.T." 2009, Thrash
+
+1. Mad Dog 02:42  
+2. Black Holocaust 02:06  
+3. Panterrat 02:40  
+4. Discontent 02:46  
+5. Drunk in Control 02:59  
+6. Nuclear War 02:01  
+7. Tsar Bomba 03:03  
+8. R.I.P. Mankind 02:19  
+9. Predator 02:49  
+10. Economic Meltdown 03:39  
+11. Conspiracy Buried 01:57  
+12. Human Scum 02:38  
+13. War Unlimited 02:41  
+14. Corrupt Democracy 01:33  
+15. Unit 731 02:05  
+16. Pre-Nuclear Moose 01:26  
+17. (POST) Nuclear Moose 01:16 
+
 
 ## Отношения с другими группами
 

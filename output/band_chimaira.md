@@ -1,12 +1,147 @@
 # Chimaira
 
-Дискография
-"This Present Darkness" 2000, Hardcore
-"Chimaira" 2005, Hardcore
-"Resurrection" 2007, Metalcore
-"The Infection" 2009, Metalcore
-"Coming Alive [DVD]" 2010, Metalcore
-"The Age of Hell" 2011, Metalcore
+
+
+## Дискография
+
+### "This Present Darkness" 2000, Hardcore
+
+1.   This Present Darkness 
+2.   Painting the White to Grey 
+3.   Divination 
+4.   Sphere 
+5.   Lend a Hand 
+
+
+### "Chimaira" 2005, Hardcore
+
+01. Nothing Remains
+02. Save Ourselves
+03. Inside The Horror
+04. Salvation
+05. Comatose
+06. Left For Death
+07. Everything You Love
+08. Bloodlust
+09. Pray For All
+10. Lazarus
+
+- Mark Hunter (lead vocals)
+- Rob Arnold (lead guitar)
+- Matt DeVries (lead rhythm guitar)
+- Jim LaMarca (lead bass)
+- Chris Spicuzza (lead electronics)
+- Kevin Talley (lead drums)
+
+Produced and Engineered by Ben Schigel
+Co-Produced by Mark Hunter
+Mixed by Colin Richardson
+Recorded at Anteup Studios, Cleveland, OH and
+Spider Studios, Strongville, OH
+Assisted by Tony Gammalo and Eric Straub
+Mixed at Miloco Studios, London, England
+Assisted by Matt Hyde
+Mastered by Ted Jensen at Sterling Sound, NYC
+
+### "Resurrection" 2007, Metalcore
+
+1. Resurrection 04:37 
+2. Pleasure in Pain 03:05  
+3. Worthless 03:44  
+4. Six 09:45  
+5. No Reason to Live 03:45  
+6. Killing the Beast 03:48
+7. The Flame 05:23
+8. End It All 04:22  
+9. Black Heart 04:34
+10. Needle 03:09 
+11. Empire 05:38 
+The limited edition also contains the following songs:
+12. Kingdom of Heartache 04:11
+13. Paralyzed 03:06
+
+
+### "The Infection" 2009, Metalcore
+
+1. The Venom Inside 04:05  
+2. Frozen In Time 04:05  
+3. Coming Alive 03:04  
+4. Secrets Of The Dead 04:24  
+5. The Disappearing Sun 04:24  
+6. Impending Doom 06:05  
+7. On Broken Glass 03:46  
+8. Destroy And Dominate 04:42  
+9. Try To Survive 04:40  
+10. The Heart Of It All 14:52 
+
+
+Line-up: 
+Mark Hunter - Vocals
+Rob Arnold - Guitars
+Matt Devries - Guitars
+Jim LaMarca - Bass
+Andols Herrick - Drums
+Chris Spicuzza - Keyboards, Samples
+
+The album was mastered at Sterling Sound in New York City with Ted Jensen and
+Chris "Zeuss" Harris (HATEBREED, SHADOWS FALL, AGNOSTIC FRONT, TERROR, THE
+ACACIA STRAIN).
+
+Produced by Ben Schigel. 
+
+### "Coming Alive [DVD]" 2010, Metalcore
+
+01. The Venom Inside
+02. Resurrection
+03. Power Trip
+04. Empire
+05. The Disappearing Sun
+06. Severed
+07. Destroy and Dominate
+08. Six
+09. The Dehumanizing Process
+10. Dead Inside
+11. Painting The White To Grey
+12. Nothing Remains
+13. Salvation
+14. Secrets Of The Dead
+15. The Flame
+16. Pure Hatred
+
+Bonus Features:
+Resurrection Documentary
+Resurrection Jim Reel
+Cleveland Facts
+Brandon From Rochester
+Bus Time
+Director Interview
+Master Pizza
+Six Photos
+Home Videos
+Busses
+
+### "The Age of Hell" 2011, Metalcore
+
+1. The Age of Hell 03:32 
+2. Clockwork 03:44 
+3. Losing My Mind 04:57 
+4. Time Is Running Out 04:13 
+5. Year of the Snake 03:41 
+6. Beyond the Grave 04:55 
+7. Born In Blood 04:09 
+8. Stoma 01:28 
+9. Powerless 04:32 
+10. Trigger Finger 03:54 
+11. Scapegoat 04:33 
+12. Samsara 06:12
+
+Bonus tracks:
+13. Scum of the Earth (Limited Edition/USB/iTunes) (05:05)
+13. Clockwork (Remix) (iTunes) (04:20)
+14. Your Days Are Numbered (Limited Edition/USB/iTunes) (03:02)
+15. Wild Thing (The Troggs cover) (Limited Edition/USB) (02:29)
+ 
+
 
 ## Отношения с другими группами
 

@@ -1,9 +1,56 @@
 # Grom
 
-Дискография
-"Renaissance" 2002, Black Metal
-"We Are True, We Are Hate" 2005, Black Metal
-"March Of Voices Of Dead Souls" 2007, Death Metal
+Black-metal from Russia
+
+## Дискография
+
+### "Renaissance" 2002, Black Metal
+
+1. Scorn Of Life
+2. Phantom Of The Frozen Child
+3. For All
+4. Insane
+5. Обречённый Взгляд
+6. Hatred
+7. Hushed & Grim
+8. The Gates Of Eternal Chaos
+
+
+Helg - guitar & bass
+Volhov - vocals
+Gurd - drums
+
+This album was recorded in CDM records Studio,
+20/04/-12/05/2001
+Engineered & mixed by: Sergey "Lazar"
+Mastered at: CDM records Studio
+All music by Grom
+All lyrics by Grom & Volhov
+Session synth. by U. Malgin
+
+### "We Are True, We Are Hate" 2005, Black Metal
+
+1. Destroy of human race
+2. New era
+3. Worship me
+4. Premanition of death
+5. Blood Violence Terror
+6. Goathrone
+7. Absolute realety
+8. Two thousand years down
+9. Twilight of the world
+10. Im Chaotic earth
+11. eleven
+12. We are true we are hate
+
+### "March Of Voices Of Dead Souls" 2007, Death Metal
+
+1. Мой Марш
+2. The Voices
+3. Дисциплина Ненависти
+4. Master Of Liars
+5. Exodus
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,27 @@
 # Aghora
 
-Дискография
-"Aghora" 2001, Techno Death
-"Formless" 2006, Techno Death
+
+
+## Дискография
+
+### "Aghora" 2001, Techno Death
+
+Immortal Bliss
+Satya
+Transfiguration
+Frames
+Mind's Reality
+Kali Yuga
+Jivatma
+Existence
+Anugraha
+
+
+
+### "Formless" 2006, Techno Death
+
+
+
 
 ## Отношения с другими группами
 

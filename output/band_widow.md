@@ -1,11 +1,77 @@
 # Widow
 
-Дискография
-"Midnight Strikes" 2003, Heavy Metal
-"On Fire" 2005, Heavy Metal
-"Nightlife" 2007, Heavy Metal
-"Life's Blood" 2011, Heavy Metal
-"Carved in Stone" 2016, Heavy Metal
+
+
+## Дискография
+
+### "Midnight Strikes" 2003, Heavy Metal
+
+1 - The Pleasure of Exorcism
+2 - Witch Way
+3 - Angel Sin
+4 - Night Child
+5 - Inside the Sign
+6 - No Stone Unturned
+7 - Empire of Thorns
+8 - Reunion
+
+### "On Fire" 2005, Heavy Metal
+
+1. An American Werewolf in Raleigh   
+2. The Preacher's Daughter   
+3. Here to Stay   
+4. Re-Animate Her   
+5. Sinderella   
+6. Not Alone   
+7. Dead End   
+8. Misstery   
+9. Family Affair   
+10. I'll Bury You Alive
+
+### "Nightlife" 2007, Heavy Metal
+
+1. First Born  03:47    
+2. We Will Meet Again  04:40  
+3. Beware the Night  03:44   
+4. Teachers Pet  03:56 
+5. Cult of Life  04:49  
+6. I’ll Make You a Star  03:30 
+7. At the End  04:07   
+8. Beauty Queen  04:57    
+9. Night Life  04:56    
+10. Ain’t Talkin' 'Bout Love (Van Halen Cover)  
+11. I Stole Your Love (Kiss Cover)  
+
+### "Life's Blood" 2011, Heavy Metal
+
+1.	 Lady Twilight	04:09	 
+2.	 In Dreams	04:49	 
+3.	 Take Hold of the Night	03:39	 
+4.	 Another Fallen Angel	05:10	 
+5.	 Embrace It	04:23	 
+6.	 Behind the Light	03:26	 
+7.	 The Burning Ones	03:12	 
+8.	 Live Beyond	05:01	 
+9.	 Judgment Day	03:46	 
+10.	 I Scream for Ice Queen	04:17	 
+11.	 Remembering	03:45	 
+12.	 The One I Know	02:50
+
+### "Carved in Stone" 2016, Heavy Metal
+
+1. Burning Star		 
+2. Carved in Stone		 
+3. Another Time and Place		 
+4. Wisdom		 
+5. Time on Your Side		 
+6. Borrowed Time		 
+7. And We Are One		 
+8. Anomaly		 
+9. Live by the Flame		 
+10. Of the Blood, We Bind		 
+11. Nighttime Turn		 
+12. Let It Burn
+
 
 ## Отношения с другими группами
 

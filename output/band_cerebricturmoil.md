@@ -1,7 +1,22 @@
 # Cerebric Turmoil
 
-Дискография
-"Neural Net Meltdown" 2015, Techno Death
+
+
+## Дискография
+
+### "Neural Net Meltdown" 2015, Techno Death
+
+1. Introduction  00:48   instrumental  
+2. Twitching Eye Staccato  03:43    
+3. Secluded Out of Touch by Avoiding Mankind  03:07    
+4. Metaphysics (Skit)  00:39    
+5. Discordian Equilibrium  03:21    
+6. Grotesque Dreaming  03:32    
+7. Soul Famine  04:19    
+8. Bitstorm  03:42    
+9. Tangled in Trial and Error Scenarios  03:09    
+10. Vile Effect Momentum  05:10 
+
 
 ## Отношения с другими группами
 

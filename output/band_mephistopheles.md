@@ -1,7 +1,13 @@
 # Mephistopheles
 
-Дискография
-"Landscape Symphonies" 1997, Black Metal
+Black Metal
+
+## Дискография
+
+### "Landscape Symphonies" 1997, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

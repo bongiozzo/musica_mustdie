@@ -1,21 +1,258 @@
 # Hate
 
-Дискография
-"Abhorrence (demo)" 1992, Death Metal
-"Evil Art (demo)" 1994, Death Metal
-"The Unwritten Law (demo)" 1995, Death Metal
-"Daemon Qui Fecit Terram" 1997, Death Metal
-"Lord Is Avenger" 1998, Death Metal
-"Victims (mcd)" 1999, Death Metal
-"Evil Decade Of Hate (cd-box)" 2000, Death Metal
-"Holy Dead Trinity" 2001, Death Metal
-"Cain's Way" 2002, Death Metal
-"Awakening Of The Liar" 2004, Death Metal
-"Anaclasis: A Haunting Gospel Of Malice And Hatred" 2005, Death Metal
-"Morphosis" 2008, Death Metal
-"Erebos" 2010, Death Metal
-"Solarflesh: A Gospel Of Radiant Divinity" 2013, Death Metal
-"Crusade:Zero" 2015, Death Metal
+technical death metal
+
+## Дискография
+
+### "Abhorrence (demo)" 1992, Death Metal
+
+1. Sweet Death
+2. Curse Of Dream
+3. Abhorrence
+4. Psalm Of Suffer
+5. Demigod
+6. The Prayer
+
+Recorded at Powerplay Studio, Warszawa, 1992.
+Engineered by Piotr Szpeniaga
+Hate Production, © 1992
+
+Adam The First Sinner - guitars, vocals
+Mittloff - drums
+Quack - guitars
+Martin - bass
+
+### "Evil Art (demo)" 1994, Death Metal
+
+1. Purificated
+2. Convocation
+3. Evil Art
+4. Living Sacrifice
+
+Recorded at Izabelin Studio, Izabelin, 1993.
+Engineered by Piotr Smialowski
+Loud Out Records, © 1994
+
+Adam The First Sinner - guitars, vocals
+Mittloff - drums
+Quack - guitars
+Daniel - bass, vocals
+
+### "The Unwritten Law (demo)" 1995, Death Metal
+
+1. Performance
+2. The Unwritten Law
+3. Burn With Hatred
+4. Living Sacrifice
+5. Decadance Of The Human Race
+6. Evil Art
+7. Demigod
+8. Convocation
+
+Recorded at Powerplay Studio, Warszawa, 1995.
+Engineered by Tom Kubiak
+Vox Mortiis © 1995
+Partly re-issued by Moral Insanity prods © 2001
+
+Adam The First Sinner - guitars, vocals
+Mittloff - drums
+Daniel - bass, vocals
+Ralph - guitars
+
+### "Daemon Qui Fecit Terram" 1997, Death Metal
+
+1. Animate The Blood
+2. In Satan We Trust
+3. Inflict The Pain
+4. Almost You Are Dead
+5. Merry Christless
+6. Heaven Like A Hole
+7. Lords Of Sin
+8. An Eye For An Eye
+9. Died In Vain
+10. Deamon Qui Fecit Terram
+11. Cadentia
+
+Recorded at Hard Studio, Warszawa, 1996.
+Engineered by Jacek Gawlowski
+Vox Mortiis © 1997
+Moral Insanity prods © 2001
+
+Adam The First Sinner - guitars, vocals
+Mittloff - drums
+Daniel - bass, vocals
+Ralph - guitars
+
+### "Lord Is Avenger" 1998, Death Metal
+
+1. Share Your Blood With Daemon
+2. World Has To Die
+3. Dead And Mystified
+4. Intransigence Of Evil
+5. Enter The Hell
+6. Convocation
+7. Lord Is Avenger
+8. Paradise As Lost
+9. Pagan Triumph
+10. Vexation Of My Spirit
+11. Satan's Horde 
+
+Recorded at Studio Selani, Olsztyn, 1997 г.
+Engineered by Andy Bomba
+Novum Vox Mortis © 1998
+Moral Insanity prods © 2001
+
+Adam The First Sinner - guitars, vocals
+Mittloff - drums
+Daniel - bass, vocals
+Ralph - guitars
+
+### "Victims (mcd)" 1999, Death Metal
+
+1. Holy Dead Trinity
+2. No Life After Death
+3. Victims
+4. God Overslept
+5. The Kill (Napalm Death)
+6. Postmortem (Slayer)
+
+Recorded at Studio Selani (Olsztyn), 1998.
+Engineered by Andy Bomba
+Metal Mind Production © 1999
+Moral Insanity prods © 2001
+
+Adam The First Sinner - гитара, вокал
+Mittloff - ударные
+Cyprian - бас, вокал
+Ralph - гитара 
+
+### "Evil Decade Of Hate (cd-box)" 2000, Death Metal
+
+CD box "Evil Decade of Hate"
+
+Jubileum edition. Features 19 tracks taken off HATE's former works + two live tracks, as well as t-shirt and other gifts. 
+
+Apocalypse Production © 2000
+
+### "Holy Dead Trinity" 2001, Death Metal
+
+1. Holy Dead trinity
+2. No Life After Death
+3. Victims
+4. God Overslept
+5. The Kill
+6. Share Your Blood With Daemon
+7. World Has To Die
+8. Dead And Mistified
+9. Enter The Hell
+10. Convocation
+11. Lord Is Avenger
+12. Paradise As Lost
+13. Pagan Triumph
+14. Satan's Horde
+
+"Victims" and "Lord Is Avenger" put onto one CD and made available for the US market. 
+World War III Records © 2001 
+
+### "Cain's Way" 2002, Death Metal
+
+1. Apocalypse
+2. The Sin Becomes
+3. Sectarian Murder
+4. The Fifth Eternally Despised
+5. Through Hate To Eternity
+6. Shame Of The Creator
+7. Resurrected But Failed
+8. Cain's Way
+9. Holy Dead Trinity
+10. Future Is Mayhem
+11. From Cain To Cadmon
+
+Recorded at Serakos Studio, Warszawa, 2001.
+Engineered by Robert Srzednicki
+Apocalypse Prod / World War III Recs © 2001/2002
+Moral Insanity prods © 2002
+
+Adam the First Sinner - guitars, vocals
+Ralph - guitars
+Cyprian - bass
+Mittloff - drums
+
+### "Awakening Of The Liar" 2004, Death Metal
+
+1. Flagellation
+2. Anti-God Extremity
+3. Close To The Nephilim
+4. Immolate The Pope
+5. The Shround (A Hellish Value)
+6. The Scrolls
+7. Awakening Of The Liar
+8. Serve God, Rely On Me (Hymn Of Asal'el)
+9. Grail In The Flesh
+10. Spirit Of Gospa
+
+### "Anaclasis: A Haunting Gospel Of Malice And Hatred" 2005, Death Metal
+
+1. Anaclasis 04:47  
+2. Necropolis 03:40  
+3. Hex 04:04  
+4. Malediction 04:18  
+5. Euphoria Of The New Breed 04:07  
+6. Empire Of Dirt 03:19  
+7. Immortality 04:41  
+8. Fountains Of Blood To Reach Heaven 06:52
+
+### "Morphosis" 2008, Death Metal
+
+1. Metamorphosis 00:30  
+2. Thredony 05:53  
+3. Immum Coeli (Everlasting World) 04:47  
+4. Catharsis 05:31  
+5. Resurrection Machine 06:19  
+6. The Evangelistic Pain 04:24  
+7. Omega 05:39  
+8. Erased 05:47
+
+### "Erebos" 2010, Death Metal
+
+1. Genesis 01:47  
+2. Lux Aeterna 04:53  
+3. Erebos 04:57  
+4. Quintessence of Higher Suffering 04:45  
+5. Trinity Moons 05:57 
+6. Hero Cults 05:00  
+7. Transsubstance 04:40  
+8. Hexagony 05:25  
+9. Wrists 05:05
+10. Luminous Horizon 05:57 
+
+
+
+Line-up:
+Adam The First Sinner - Guitars, Vocals
+Destroyer - Lead Guitar
+Hexen - Drums
+Mortifer - Bass
+
+Recorded at hertz studio, july and august 2010
+Engineered, mixed and mastered by Wieslawski Bros
+
+Produced by ATF Sinner
+Co-produced by Kris Wawrzak
+
+All music written and arranged by ATF Sinner and Hexen
+Except "Genesis" written and performed by ATF Sinner
+
+All lyrics by ATF Sinner 
+
+### "Solarflesh: A Gospel Of Radiant Divinity" 2013, Death Metal
+
+
+
+### "Crusade:Zero" 2015, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,6 +1,9 @@
 # Outsider
 
-Дискография
+progressive rock band from Krasnodar, Russia
+
+## Дискография
+
 
 ## Отношения с другими группами
 

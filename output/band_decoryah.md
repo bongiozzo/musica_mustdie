@@ -1,9 +1,64 @@
 # Decoryah
 
-Дискография
-"Astral Miracle Of Paradise" 1993, Doom
-"Wisdom Floats" 1994, Doom
-"Fall - Dark Waters" 1996, Doom
+Very Melodic Band
+
+## Дискография
+
+### "Astral Miracle Of Paradise" 1993, Doom
+
+
+
+### "Wisdom Floats" 1994, Doom
+
+1. Astral Mirage Of Paradise
+2. Wisdom Floats
+3. Monolithos
+4. Bryllos
+5. Reaching Melancholian
+6. Circle Immortality
+7. When The Echoes Start to Fade
+9. Cosmos Silence
+10. Ebonies
+11. Infinite Awaits
+
+ Jukka Vuorinen - Vocals, Lead, Rhythm, Bass & Acoustic Guitars
+ Jani Kakko - Lead,Rhythm, Bass guitars
+ Mikko Laine - Drums, Percussion
+ Jonne Valtonen - Keyboards, Grand Piano
+ Sini Koivuniemi - Female vocals
+ Anna Pursiheimo - Cello
+
+All music by DECORYAH
+All lyrics by Jukka Vuorinen
+Produced by DECORYAH
+Engineered by Erkkki Kujala
+Recorded & mixed at ECI-Sound Studio Juli-Sept 1993
+
+(p)(c) 1994 WITCHHUNT Records
+
+### "Fall - Dark Waters" 1996, Doom
+
+1. Fall - Dark Waters
+2. Submerged Seconds
+3. Envisioned (-Waters?)
+4. Some Drops Beyond The Essence
+5. Endless Is The Stream
+6. Gloria Absurdiah
+7. Wintry Fluids (Portal)
+8. She Came To Me In The Form Of Water
+9. She Wept In The Woods
+
+All songs written by DECORYAH
+Produced by DECORYAH
+Engineered by Ari Ainasoja
+Recorded and mixed at Verkatehtaan Studio by Ari Ainasoja
+
+Jukka Vuorinen - Vocals, Rhythm and Acoustic Guitars
+Jani Kakko - Lead and Rhythm Guitars
+Mikko Laine - Drums
+
+(p)(c) 1996 METAL BLADE Records
+
 
 ## Отношения с другими группами
 

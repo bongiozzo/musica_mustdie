@@ -1,9 +1,37 @@
 # Void of Silence
 
-Дискография
-"Toward the Dusk" 2001, Black Metal
-"Criteria ov 666" 2002, Black Metal
-"Human Antithesis" 2004, Black Metal
+
+
+## Дискография
+
+### "Toward the Dusk" 2001, Black Metal
+
+
+
+### "Criteria ov 666" 2002, Black Metal
+
+01. Opus I - Velocity ·Electricity · TV necro
+02. Opus II - With No Half-Measure
+03. Opus III - Anthem For Doomed Youth
+04. Opus IV - Anger
+05. Opus V - The Untimate Supreme Intelligence
+06. Opus VI - Nothing Immortal
+07. Opus VII - Victory!
+08. Opus VIII - Universal Separation
+09. Opus IX - XTC-Elevation-Trip
+
+### "Human Antithesis" 2004, Black Metal
+
+01.Human Antithesis 
+part 1: The Dream Ends 
+part 2: Empty Prayers 
+part 3: Black Propaganda 
+02. Grey Horizons 
+03. Untiteled 
+04. To A Sickly Child 
+05. Dark Static Moments 
+06. CXVIII
+
 
 ## Отношения с другими группами
 

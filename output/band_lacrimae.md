@@ -1,9 +1,43 @@
 # Lacrimae
 
-Дискография
-"Uncommon Sense of Divinity" 1999, Black Metal
-"Course to Arsoning" 2002, Black Metal
-"White Pest" 2009, Black Metal
+
+
+## Дискография
+
+### "Uncommon Sense of Divinity" 1999, Black Metal
+
+1. With a Darkened Spirit 06:26  
+2. More Than a Shadow 05:17  
+3. Thorns 04:08  
+4. The Martyr 05:16  
+5. The Wish 04:41  
+6. Drama 05:27  
+7. When The Night Falls 10:00  
+8. Dark Days Last Nights 06:18  
+9. Godess Vail 03:03 
+
+### "Course to Arsoning" 2002, Black Metal
+
+1. Cosmo Chaos Supremacy 03:15
+2. Uncaning Pleasures 08:01
+3. Black Angels 03:19
+4. Uncommon Sense of Divinity 06:05
+5. Shiver 07:28
+6. Anthems of Coronation 06:47 
+7. Death travels on Me 09:57
+8. The Inner Revelation 08:18 
+
+### "White Pest" 2009, Black Metal
+
+1. Black Euphoria 06:37  
+2. Entropic Rush 07:43  
+3. Zerpente 06:18  
+4. Luciferina 04:45  
+5. Casus Luciferi 06:12  
+6. Gates to Perdition 05:17  
+7. Course to Arsoning 07:57  
+8. Way to Obllivion/Throw 15:52 
+
 
 ## Отношения с другими группами
 

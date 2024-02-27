@@ -1,9 +1,48 @@
 # Woe Of Tyrants
 
-Дискография
-"Behold the Lion" 2007, Thrash
-"Kingdom of Might" 2009, Thrash
-"Threnody" 2010, Thrash
+
+
+## Дискография
+
+### "Behold the Lion" 2007, Thrash
+
+1. Conception 00:50  
+2. Hail the Count 03:47 
+3. Revelations 04:10  
+4. Behold, the Lion 03:28  
+5. Yoke of Slavery 03:42  
+6. Eureka 05:35  
+7. Role of the Brutes 03:56  
+8. The Battle of Borders' Break 04:05  
+9. Fable Thy Destination 04:42 
+
+### "Kingdom of Might" 2009, Thrash
+
+1. Jesu Juva 00:55  
+2. Soli Deo Gloria 05:06 
+3. Break the Fangs of the Wicked 04:15
+4. Pearls Before Swine 03:37
+5. Kingdom of Might (The Eclipse) 04:17
+6. Kingdom of Might (Dawn in the Darkness) 04:23
+7. Sounding Jerusalem 03:42 
+8. Sons of Thunder 03:12  
+9. The Seven Braids of Samson 04:07
+10. Like Jasper and Carnelian 04:34
+11. Golgotha 03:30 
+
+### "Threnody" 2010, Thrash
+
+1. Tetelestai 01:13  
+2. Creatures Of The Mire 04:01 
+3. Venom Eye 04:22
+4. Tempting The Wretch 04:25
+5. Threnody 06:27 
+6. Bloodsmear 04:39
+7. The Venus Orbit 03:34  
+8. Lightning Over Atlantis 04:24
+9. Singing Surrender 03:58 
+10. Descendit Ad Inferos (The Harrowing Of Hell) 03:56 
+
 
 ## Отношения с другими группами
 

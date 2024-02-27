@@ -1,7 +1,13 @@
 # Scratching Soil
 
-Дискография
-"War Experting" 2003, Black Metal
+
+
+## Дискография
+
+### "War Experting" 2003, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

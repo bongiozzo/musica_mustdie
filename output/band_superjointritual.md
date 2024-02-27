@@ -1,8 +1,32 @@
 # Superjoint Ritual
 
-Дискография
-"Use Once And Destroy" 2002, Thrash
-"A lethal dose of american hatred" 2003, Thrash
+(Philip Anselmo Project)
+
+## Дискография
+
+### "Use Once And Destroy" 2002, Thrash
+
+01. Oblivious Maximus 
+02. It Takes No Guts 
+03. Everyone Hates Everyone 
+04. Introvert 
+05. Alcoholik 
+06. Fuck Your Enemy 
+07. 4 Songs 
+08. Message 
+09. All of Our Lives Will Get Tired 
+10. Antifaith 
+11. Ozena 
+12. Drug Your Love 
+13. Haunted/Hated 
+14. Stupid, Stupid Man 
+15. Creepy Crawl 
+16. Use Once And Destroy
+
+### "A lethal dose of american hatred" 2003, Thrash
+
+
+
 
 ## Отношения с другими группами
 

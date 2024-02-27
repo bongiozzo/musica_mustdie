@@ -1,7 +1,19 @@
 # Balrog
 
-Дискография
-"A Dark Passage" 2010, Power Metal
+
+
+## Дискография
+
+### "A Dark Passage" 2010, Power Metal
+
+1. The Wait
+2. At the Black Gates
+3. The Rise
+4. Shadows
+5. Tears
+6. Change Woman for Hell
+7. Perpetual Circle
+
 
 ## Отношения с другими группами
 

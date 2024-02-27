@@ -1,8 +1,17 @@
 # Generation Kill
 
-Дискография
-"Red, White And Blood" 2011, Crossover
-"We're All Gonna Die" 2013, Crossover
+
+
+## Дискография
+
+### "Red, White And Blood" 2011, Crossover
+
+
+
+### "We're All Gonna Die" 2013, Crossover
+
+
+
 
 ## Отношения с другими группами
 

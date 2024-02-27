@@ -1,7 +1,24 @@
 # Wishmaster
 
-Дискография
-"Gift" 2000, Melodic Death Metal
+
+
+## Дискография
+
+### "Gift" 2000, Melodic Death Metal
+
+Hive Of Lost Souls
+Betrayer
+Moonlight Dance
+Wishmaster (live)
+
+
+Motorius - vocals
+Max - guitars
+POL - guitars
+
+Music by Max and POL
+All lyrics by Max
+
 
 ## Отношения с другими группами
 

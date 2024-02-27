@@ -1,9 +1,48 @@
 # Archontes
 
-Дискография
-"Saga Of Eternity" 1997, Power Metal
-"The World Where Shadows Come To Life" 1999, Power Metal
-"Book one: The Child Of Two Worlds" 2004, Power Metal
+russian power-metal
+
+## Дискография
+
+### "Saga Of Eternity" 1997, Power Metal
+
+1. Epigraph
+2. Under Bloody Sun
+3. The Crown Of Spring
+4. Children's Crusade
+5. ...In The Dark
+6. Quest For Glory And Might
+7. Saga Of Eternity
+8. The Glory Anthem
+9. Don't Say Farewell, Say Goodbye
+10. Death's Not The End
+
+### "The World Where Shadows Come To Life" 1999, Power Metal
+
+1. The Opening Incantation
+2. The World Where Shadows Come To Life 
+3. Runaway From Dark 
+4. Whisper Of Time
+5. Fear Is The Conscience Of Villains 
+6. Mother Russia
+7. The Rules Of Real Life
+8. Victory Or Death
+9. Bonus track (not available on russian edition)
+
+
+
+### "Book one: The Child Of Two Worlds" 2004, Power Metal
+
+1. Prologue
+2. Words Of Ashes
+3. Walk On The Edge
+4. All This Time (The Balancer's Song)
+5. My Noteless Blues
+6. Goodbye New World
+7. Return To Inner Self
+8. The Escapist Hymn (author's notes)
+9. Epilogue (My Yellow Brick Road)
+
 
 ## Отношения с другими группами
 

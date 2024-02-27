@@ -1,9 +1,54 @@
 # Stormwitch
 
-Дискография
-"War of the Wizards" 1992, Heavy Metal
-"Shogun" 1994, Heavy Metal
-"Witchcraft" 2004, Power Metal
+german heavy metal
+
+## Дискография
+
+### "War of the Wizards" 1992, Heavy Metal
+
+1. Listen To The Stories 03:58
+2. Theja 04:27 
+3. Magic Mirror 05:01
+4. Wooden Drum 04:06 
+5. War Of The Wizards 05:14
+6. Dragon's Day 03:55 
+7. Time 04:31
+8. Fate's On The Rise 04:21 
+9. A Promise Of Old 04:37 
+10. The Way To Go 03:50
+11. Wanderer 03:16 
+
+### "Shogun" 1994, Heavy Metal
+
+1. Stranded 07:10 
+2. Liar 06:20 
+3. Garden Of Pain 05:54 
+4. Seven Faces (And Two Hearts) 06:44
+5. Forbidden 04:14 
+6. Victory Is Mine 04:39 
+7. Let Lessons Begin 06:26  
+8. The King Of Winds 04:34 
+9. She's The Sun 05:04 
+10. Good Times-Bad Times 09:35 
+11. I'll Never Forgive 08:02
+12. Somewhere 05:10 
+
+### "Witchcraft" 2004, Power Metal
+
+01. The Sinister Child
+02. At The Break Of This Day
+03. Fallen From God
+04. Frankenstein's Brothers
+05. Until The War Will End
+06. Witchcraft
+07. Sleeping Beauty
+08. Puppet In A Play
+09. The Kiss Of Death
+10. Moonfleet
+11. Salome
+12. The Drinking Song
+13. Blood Lies In My Hand (bonus track)
+
 
 ## Отношения с другими группами
 

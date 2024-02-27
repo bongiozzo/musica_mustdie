@@ -1,7 +1,43 @@
 # Hybrid Viscery
 
-Дискография
-"Grindcore Contaminations" 2005, Grindcore
+death-grind from Belgium
+
+## Дискография
+
+### "Grindcore Contaminations" 2005, Grindcore
+
+1. Gang Bang with Laurette Onkelincks 01:03  
+2. Fist Fucking Rules 00:43  
+3. Legalized Murder 00:41  
+4. Horace Pinker 00:23  
+5. Corporation of Bastards 00:41  
+6. Self-Sodomization 00:29  
+7. Chilliclister 00:11  
+8. Cum Shot On Your Big Tits 00:38  
+9. Ed Gein for President 00:52  
+10. Hybrid Viscery Next On MTV 00:45  
+11. When My Mommy Beat My Poppy 01:01  
+12. Fear 00:35  
+13. The Zoo, Necro, Pedo Omophilist Melody 00:41  
+14. Tumor Transplant 00:36  
+15. It's Time for a Beer 00:50  
+16. I Wanna Drink Your Pussyblood 00:58  
+17. Vaginal Psoriasis 00:25  
+18. Piss On Your Grave 01:02  
+19. Nuclear Noise Exctasy 00:11  
+20. School of Cock 01:01  
+21. Give Me Now, Give Me Pain Mon Cul Oui!!! 00:42  
+22. Power Bitch 00:25  
+23. Contamination of Grindcore 00:47  
+24. Melody and Slowsong Fuck Off!! 00:37  
+25. Valhalla 01:36  
+26. Grind Your Head 00:46  
+27. Toxic Pustule 01:49  
+28. Ave 00:49  
+29. Green 00:54  
+30. Fuck the Cripple Cops 00:14  
+31. I'm Feeling to Grow 01:10 
+
 
 ## Отношения с другими группами
 

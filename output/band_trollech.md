@@ -1,7 +1,22 @@
 # Trollech
 
-Дискография
-"Skrti v Mlze (Hidden In The Fog)" 2006, Black Metal
+
+
+## Дискография
+
+### "Skrti v Mlze (Hidden In The Fog)" 2006, Black Metal
+
+1. Skryti v mlze (Hidden in the fog)
+2. Volam do lesu (I call into forests)
+3. Zeme obru (Land of the giants)
+4. Stromy jsou v nas (Trees are in us)
+5. Zelena ruka jara (A green hand of spring)
+6. Mlha nad Peklovskym potokem (Fog over Peklov stream)
+7. Ljesi 
+8. Z kotle popijej (Drink from the cauldron)
+9. Kdyz setka se voda s mrazem (When water meets frost)
+10. Vsem bude skryto tajemstvi (The secret will be hidden to all)
+
 
 ## Отношения с другими группами
 

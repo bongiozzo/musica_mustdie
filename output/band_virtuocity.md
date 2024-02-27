@@ -1,8 +1,36 @@
 # Virtuocity
 
-Дискография
-"Secret Visions" 2002, Power Metal
-"Northern Twilight Symphony" 2004, Metal
+
+
+## Дискография
+
+### "Secret Visions" 2002, Power Metal
+
+
+
+### "Northern Twilight Symphony" 2004, Metal
+
+01. Spell Of Seduction 
+02. Forever Young 
+03. Flames In The Key 
+04. Moonlight Shadows 
+05. Wheels Of Time 
+06. Wings Of Dawn 
+07. Within My Heart 
+08. Light In The Dark 
+09. Winter Nights 
+10. Land Of A Thousand Lakes 
+11. Paradise 
+12. Shaman Beat 
+13. Northern Twilight Symphony 
+
+Line-Up: 
+Jaron Sebastian Raven - Guitar 
+Tom Joens - Bass 
+Peter James Goodman - Vocals 
+Michael Thomas - Keyboards 
+Joey Edith - Drums
+
 
 ## Отношения с другими группами
 

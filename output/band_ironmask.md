@@ -1,12 +1,88 @@
 # Iron Mask
 
-Дискография
-"Revenge Is My Name" 2002, Progressive
-"Hordes Of The Brave" 2005, Progressive
-"Shadow of the Red Baron " 2009, Progressive
-"Black As Death" 2011, Progressive
-"Fifth Son of Winterdoom" 2013, Power Metal
-"Diabolica" 2016, Power Metal
+
+
+## Дискография
+
+### "Revenge Is My Name" 2002, Progressive
+
+1. Enemy Brother Overture 00:57  
+2. Revenge Is My Name 04:42
+3. March of Victory 05:12 
+4. The Witch Burner 04:51 
+5. Alien Pharao 05:06
+6. Dimension X 00:50  
+7. Morgana's Castle 05:11  
+8. You Are My Blood 05:13
+9. The Wolf and the Beast 08:13
+10. Secret Tunnel of the King 02:47  
+11. Hold the Light 04:47
+12. Warchild Requiem 02:51 
+
+### "Hordes Of The Brave" 2005, Progressive
+
+01. Holy war
+02. Freedom's blood - The patriot
+03. The invisible empire
+04. High in the sky
+05. Demon's child
+06. Alexander the great - Hordes of the brave
+(part 1)
+07. Crystal tears
+08. Iced wind of the north
+09. Time
+10. My eternal flame
+11. Troops of Avalon
+
+### "Shadow of the Red Baron " 2009, Progressive
+
+1. Shadow of the Red Baron 07:04
+2. Dreams 04:32
+3. Forever in the Dark 05:11 
+4. Resurrection 05:07
+5. Sahara 04:21  
+6. Black Devil Ship 04:31
+7. We Will Meet Again 04:33
+8. Universe 04:51 
+9. My Angel Is Gone 04:16
+10. Only the Good Die Young 03:56
+11. Ghost of the Tzar 06:54 
+
+### "Black As Death" 2011, Progressive
+
+01. From Light Into The Dark
+02. Black As Death
+03. Broken Hero
+04. Feel The Fire
+05. Genghis Khan
+06. God Punishes, I Kill
+07. Rebel Kid
+08. Blizzard Of Doom
+09. The Absence
+10. Magic Sky Requiem
+11. Nosferatu
+12. When All Braves Fall
+13. Evil Strikes In Silence (Bonus Track)
+
+### "Fifth Son of Winterdoom" 2013, Power Metal
+
+
+
+### "Diabolica" 2016, Power Metal
+
+1. I Don't Forget, I Don't Forgive 
+2. Doctor Faust 
+3. Galileo 
+4. Oliver Twist 
+5. March 666 
+6. All for Metal 
+7. The Rebellion of Lucifer 
+8. Diabolica 
+9. The First and the Last 
+10. Ararat 
+11. Flying Fortress 
+12. Cursed in the Devil's Mill
+
 
 ## Отношения с другими группами
 

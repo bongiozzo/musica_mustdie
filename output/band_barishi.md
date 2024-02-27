@@ -1,8 +1,17 @@
 # Barishi
 
-Дискография
-"Barishi" 2013, Progressive
-"Blood from the Lion's Mouth" 2016, Progressive
+
+
+## Дискография
+
+### "Barishi" 2013, Progressive
+
+
+
+### "Blood from the Lion's Mouth" 2016, Progressive
+
+
+
 
 ## Отношения с другими группами
 

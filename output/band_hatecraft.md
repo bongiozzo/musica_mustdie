@@ -1,9 +1,54 @@
 # Hatecraft
 
-Дискография
-"Rebellious Heart" 2002, Death Metal
-"Finally Free" 2004, Melodic Death Metal
-"Lost Consolation" 2005, Melodic Death Metal
+
+
+## Дискография
+
+### "Rebellious Heart" 2002, Death Metal
+
+1. Rebellious Heart
+2. Despair
+3. Hate
+4. Alone Against The World
+5. Finally Free
+
+All lyrics by Alexander Stepashkin
+All music by Alexander Stepashkin & Alexander Kharavin
+
+Demo recorded at Cyclone Home Studio in March of 2002
+
+Alexander Stepashkin - vocal, bass
+Alexander Kharavin - guitar
+Boris Oreshkin - drums
+Edward Yohim - guitar
+Alexey Tkachyov - keyboards
+
+
+
+### "Finally Free" 2004, Melodic Death Metal
+
+1. Rebellious heart 
+2. Perennial Fight  
+3. Despair    
+4. Hate    
+5. River Of Pain   
+6. Alone against the world   
+7. The End Is Just The Beginning  
+8. Finally Free
+
+### "Lost Consolation" 2005, Melodic Death Metal
+
+1. Lose Your Mind
+2. The Punisher
+3. Demon Of Mine
+4. Generation Of Obscenities
+5. Fear Of Life & Terror Of Death
+6. Sad Short Story
+7. Don't Leave Me Apart
+8. Lost Consolation
+9. Nothing
+10. New Day
+
 
 ## Отношения с другими группами
 

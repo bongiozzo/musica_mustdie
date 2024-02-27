@@ -1,12 +1,109 @@
 # The Black Dahlia Murder
 
-Дискография
-"Unhallowed" 2003, Melodic Death Metal
-"Miasma" 2005, Melodic Death Metal
-"Nocturnal" 2007, Melodic Death Metal
-"Deflorate" 2009, Melodic Death Metal
-"Ritual" 2011, Melodic Death Metal
-"Everblack" 2013, Melodic Death Metal
+
+
+## Дискография
+
+### "Unhallowed" 2003, Melodic Death Metal
+
+1. Unhallowed 
+2. Funeral Thirst 
+3. Elder Misanthropy 
+4. Contagion 
+5. When The Last Grave Has Emptied 
+6. Thy Horror Cosmic 
+7. The Blackest Incarnation 
+8. Hymn For The Wretched 
+9. Closed Casket Requiem 
+10. Apex 
+
+
+
+Cory Grady- drums, 
+David Lock- bass, 
+John Kempainen- guitar, 
+Trevor Strnad- vocals, 
+Brian Eschbach- guitars
+
+### "Miasma" 2005, Melodic Death Metal
+
+1. Built For Sin 01:15 
+2. I'm Charming 02:54 
+3. Flies 03:26 
+4. Statutory Ape 03:42  
+5. A Vulgar Picture 03:37 
+6. Novelty Crosses 03:51 
+7. Dave Goes to Hollywood 03:59  
+8. Miscarriage 03:09  
+9. Spite Suicide 02:52 
+10. Miasma 04:41 
+
+
+Trevor Strnad - Vocals
+John Kempainen - Guitar
+Brian Eschbach - Guitar
+David Lock - Bass
+Zach Gibson - Drums
+
+Mixed by Eric Rachel and Andreas Magnusson at Trax East studios, New Jersey.
+
+### "Nocturnal" 2007, Melodic Death Metal
+
+1. Everything Went Black   
+2. What a Horrible Night to Have a Curse 03:50  
+3. Virally Yours   
+4. I Worship Only What You Bleed   
+5. Nocturnal   
+6. Deathmask Divine   
+7. Of Darkness Spawned   
+8. Climactic Degradation   
+9. To a Breathless Oblivion   
+10. Warborn
+
+### "Deflorate" 2009, Melodic Death Metal
+
+1. Black Valor 03:09
+2. Necropolis 03:30
+3. A Selection Unnatural 02:50
+4. Denounced, Disgraced 03:43
+5. Christ Deformed 03:30
+6. Death Panorama 01:54 
+7. Throne Of Lunacy 03:34
+8. Eyes Of Thousand 03:13 
+9. That Which Erodes The Most Tender Of Thing 03:01
+10. I Will Return 05:34 
+
+### "Ritual" 2011, Melodic Death Metal
+
+1. A Shrine To Madness 
+2. Moonlight Equilibrium 03:30
+3. On Stirring Seas Of Salted Blood 
+4. Conspiring With The Damned 
+5. The Window 
+6. Carbonized In Cruciform 
+7. Den Of The Picquerist 
+8. Malenchanments Of The Necrosphere 
+9. The Grave Robber's Work 
+10. The Raven 
+11. Great Burning Nullifier 
+12. Blood In The Ink 
+
+
+### "Everblack" 2013, Melodic Death Metal
+
+1. In Hell Is Where She Waits for Me
+2. Goat of Departure
+3. Into the Everblack
+4. Raped in Hatred by Vines of Thorn
+5. Phantom Limb Masturbation
+6. Control
+7. Blood Mine
+8. Every Rope a Noose
+9. Their Beloved Absentee
+10. Map of Scars 
+
+Recorded at Audiohammer Studios (lead guitars and vocals), Rustbelt Studios (drums), and Regal Fecal (guitar and bass). 
+
 
 ## Отношения с другими группами
 

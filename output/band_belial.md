@@ -1,7 +1,33 @@
 # Belial
 
-Дискография
-"Never Again" 1994, Black Metal
+Avant-Garde Black Metal
+
+## Дискография
+
+### "Never Again" 1994, Black Metal
+
+1. Firestorm
+2. The Red One
+3. Dragons Kiss/ Swan Song
+4. As Above So Below
+5. The Sun
+6. About Love
+7. Pain-Flood
+8. Clouds
+9. Desires
+10. On You
+
+ Jarno Koskinen - Vocals, Back Vocals
+ Jarno Anttila - Guitar, Back Vocals
+ Jani Lehtosaari - Bass, Acoustic Guitar, Back Vocals
+ Reina Kellokoski - Drums, Back Vocals, Tambourine
+
+All music & lyrics by BELIAL
+Produced by Ahti Kortelainen and BELIAL.
+Recorded & mixed at Tico Tico Studios,Kemi,Finland.
+
+(p)(c) 1994 LETHAL Records
+
 
 ## Отношения с другими группами
 

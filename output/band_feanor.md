@@ -1,8 +1,37 @@
 # Feanor
 
-Дискография
-"Invencible" 2005, Heavy Metal
-"Hellas" 2010, Heavy Metal
+
+
+## Дискография
+
+### "Invencible" 2005, Heavy Metal
+
+1. Intro (Feanor's Oath)	 
+2. Invencible	 
+3. Entre Nosotros	 
+4. Leviathan	 
+5. Mas Sangre	 
+6. Feanor	 
+7. Nerdanel	 
+8. Noble Savage	 
+9. En La Huida	 
+10. Muy Lento Es Tu Sufrir	 
+11. Estrella Del Norte	 
+12. En Alas De Tempestad
+
+### "Hellas" 2010, Heavy Metal
+
+1. Hacia El Abismo	 
+2. Tequila Y Cerveza	 
+3. Llamas	 
+4. Bendita Sangre	 
+5. Las Bolas Suficientes	 
+6. Noches Duras	 
+7. Rebelde Sin Cura 
+8. Kain	 
+9. Mis Cristales	 
+10. Hellas
+
 
 ## Отношения с другими группами
 

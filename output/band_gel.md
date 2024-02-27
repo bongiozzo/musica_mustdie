@@ -1,7 +1,28 @@
 # Gel
 
-Дискография
-"Load Star" 1996, Grunge
+Acoustic Grunge !
+
+## Дискография
+
+### "Load Star" 1996, Grunge
+
+1.  Consume
+2.  Insert
+3.  Vision
+4.  Picasso's Horses
+5.  Hey Bitch
+6.  Mommadespecialdinnerforme
+7.  Obscene
+8.  We Were Great
+9.  Where Are You ?
+10.Lesson One
+11.Maybe Now
+12.Part
+
+All songs by Kurt Dommermuth.
+
+(P)(C) 1996 DELERIUM Records
+
 
 ## Отношения с другими группами
 

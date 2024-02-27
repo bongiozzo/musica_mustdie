@@ -1,8 +1,33 @@
 # Sick Room 7
 
-Дискография
-"Hail Intolerance" 2006, Doom
-"Bottomfeeder Central" 2009, Doom
+
+
+## Дискография
+
+### "Hail Intolerance" 2006, Doom
+
+1.	 Hail Intolerance
+2.	 Beyond Suffering	 
+3.	 Loose Ends
+4.	 It Runs Deep
+5.	 The Ecstasy of Seeing You (Hitting that Wall)
+6.	 The Shadow of Punishment
+7.	 Rejection Act
+
+### "Bottomfeeder Central" 2009, Doom
+
+1.	 Annie the Unfortunate
+2.	 Four Walls and Heavy Air
+3.	 Bottomfeeder Central
+4.	 Your World Imploding
+5.	 Heartless Rule
+6.	 Arms Strapped to Wheels	 
+7.	 From His Shackles
+8.	 Tired Stabs
+9.	 They are Swine
+10.	 7 Knots on the String of Life	 
+11.	 All and Nothing Days
+
 
 ## Отношения с другими группами
 

@@ -1,10 +1,53 @@
 # Pandemonium
 
-Дискография
-"...To Apeiron" 1998, Melodic Death Metal
-"Twilight Symphony" 2000, Melodic Death Metal
-"Insomnia" 2002, Melodic Death Metal
-"The Autumn Enigma" 2006, Melodic Death Metal
+Swedish Melodic Death Metal
+
+## Дискография
+
+### "...To Apeiron" 1998, Melodic Death Metal
+
+1:  Frozen Meadows    (8:00)      
+2:  Silent Tears    (4:45)
+3:  ...To Apeiron    (5:28)    
+
+
+### "Twilight Symphony" 2000, Melodic Death Metal
+
+1:  Promenade Prolusion    (2:13)      
+2:  Fear of Denial    (4:08)      
+3:  Left Behind    (4:48)    
+4:  Twilight Symphony    (5:04)    
+
+
+Recorded and mixed February 13, 14 & 17 of 2000 at Mojo Recordings, this MCD contains 4 songs. The sound of this recording far surpasses the two previous, with a sharper, clearer and heavier sound. 500 copies were pressed and a bunch are still available.
+
+
+### "Insomnia" 2002, Melodic Death Metal
+
+1:  The Hollow Grounds    (4:49)    
+2:  Descending Shadows    (6:47)    
+3:  Insomnia    (1:30)      
+4:  Midnight Phobia    (6:11)    
+5:  Traces of A Midwinter Drama    (8:34)      
+6:  Nightlike Silence    (6:48)      
+7:  Morninglight Revery    (5:43)      
+
+
+Insomnia was recorded and mixed at Berno Studios in Malmц between the 7th and 14th of January 2002, by Berno Paulsson and Johan Axelsson (from Deranged), and was mastered at The Mastering Room by Goran Finnberg.
+
+
+
+### "The Autumn Enigma" 2006, Melodic Death Metal
+
+1. The Fire 
+2. A Journey Through Her Dusk 
+3. The Nameless Season 
+4. Broken Sphere 
+5. Autumn Enigma 
+6. Engender's Palette 
+7. Reflecting Mirrors 
+8. Postludium 
+
 
 ## Отношения с другими группами
 

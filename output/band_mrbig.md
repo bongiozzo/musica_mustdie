@@ -1,13 +1,146 @@
 # Mr. Big
 
-Дискография
-"Mr. Big" 1989, Hard Rock
-"Lean into It" 1991, Hard Rock
-"Bump Ahead" 1993, Hard Rock
-"Hey Man" 1996, Hard Rock
-"Get Over It" 2000, Hard Rock
-"Back To Budokan" 2009, Hard Rock
-"What if..." 2011, Hard Rock
+(Project of Billy Sheehan and Paul Gilbert)
+
+## Дискография
+
+### "Mr. Big" 1989, Hard Rock
+
+1 Addicted to That Rush
+2 Wind Me Up 
+3 Merciless 
+4 Had Enough  
+5 Blame It on My Youth 
+6 Take a Walk  
+7 Big Love 
+8 How Can You Do What You Do 
+9 Anything for You 
+10 Rock & Roll 
+11 Over 30 Days in the Hole 
+
+
+
+### "Lean into It" 1991, Hard Rock
+
+1 Daddy, Brother, Lover, Little Boy (The Electric Drill Song) 3:54 (Mr. Big) 
+2 Alive and Kickin' 5:28 (Mr. Big) 
+3 Green-Tinted Sixties Mind 3:30 (Mr. Big) 
+4 CDFF-Lucky This Time 4:10 (Mr. Big) 
+5 Voodoo Kiss 4:07 (Mr. Big) 
+6 Never Say Never 3:48 (Mr. Big) 
+7 Just Take My Heart 4:21 (Mr. Big) 
+8 My Kinda Woman 4:09 (Mr. Big) 
+9 Little to Loose 5:21 (Mr. Big) 
+10 Road to Ruin 3:54 (Mr. Big) 
+11 To Be with You 3:27 (Mr. Big) 
+
+ 
+
+ 
+ 
+
+
+### "Bump Ahead" 1993, Hard Rock
+
+1. Colorado Bulldog
+2. Prise You Gotta Pay
+3. Promise Her The Moon
+4. What's It Gonna Me
+5. Wild World
+6. Mr.Gone
+7. The Whole World's Gonna Know
+8. Nothing But Love
+9. Temperamental
+10. Ain't Seen Love Like That
+11. Mr. Big
+
+Produced By Kevin Elson.
+
+(P)&(C) 1993 ATLANTIC Rec. Corp.
+
+### "Hey Man" 1996, Hard Rock
+
+1.  Trapped In Toyland
+2.  Take Cover
+3.  Jane Dog
+4.  Goin' Where The Wind Blows
+5.  The Chain
+6.  Where Do I Fit In ?
+7.  If That's What It Takes
+8.  Out Of The Underground
+9.  Dancin' Right Into The Flame
+10.  Mama D
+11.  Fod Us Today
+
+(P)&c 1996
+
+### "Get Over It" 2000, Hard Rock
+
+1 Electrified 4:12 (Mister Big [1]) 
+2 Static 3:07 (Mr Big) 
+3 Hiding Place 4:46 (Mr Big) 
+4 Superfantastic 3:45 (Mr Big) 
+5 Rose Alone 3:52 (Mr Big) 
+6 Hole in the Sun 3:46 (Mr Big) 
+7 How Does It Feel 4:14 (Mr Big) 
+8 Try to Do Without It 4:54 (Mr Big) 
+9 Dancin' with My Devils 3:43 (Mr Big) 
+10 Mr. Never in a Million Years 5:40 (Mr Big) 
+11 My New Religion 3:20 (Mr Big)
+
+### "Back To Budokan" 2009, Hard Rock
+
+CD 1
+1. Daddy, Brother, Lover, Little Boy
+2. Take Cover
+3. Green-Tinted Sixties Mind
+4. Alive And Kickin?
+5. Next Time Around
+6. Hold Your Head Up
+7. Just Take My Heart
+8. Temperamental
+9. It?s For You - Mars
+10. Pat Torpey Drum Solo
+11. Price You Gotta Pay
+12. Stay Together
+13. Wild World
+14. Goin? Where The Wind Blows
+15. Take A Walk
+CD 2
+16. Paul Gilbert Guitar Solo
+17. Paul Gilbert & Billy Sheehan Duo
+18. Double Human Capo
+19. The Whole World?s Gonna Know
+20. Promise Her The Moon
+21. Rock & Roll Over
+22. Billy Sheehan Bass Solo
+23. Addicted To That Rush
+24. Introducing The Band
+25. To Be With You
+26. Colorado Buldog
+27. Smoke On The Water
+28. I Love You Japan
+29. Baba O?Riley
+30. Shy Boy
+31. Next Time Around
+32. Hold Your Head Up
+33. To Be With You
+
+### "What if..." 2011, Hard Rock
+
+1. Undertow 
+2. American Beauty 
+3. Stranger In My Life 
+4. Nobody Left To Blame 
+5. Still Ain't Enough For Me 
+6. Once Upon A Time 
+7. As Far As I Can See 
+8. All the Way Up 
+9. I Won't Get In My Way 
+10. Around the World 
+11. I Get the Feeling 
+12. Unforgiven
+
 
 ## Отношения с другими группами
 

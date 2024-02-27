@@ -1,7 +1,30 @@
 # Agony
 
-Дискография
-"The First Defiance" 1988, Thrash
+Sweden
+
+## Дискография
+
+### "The First Defiance" 1988, Thrash
+
+ Side One:
+1. Storm Of Apocalypse 5.47
+2. The First Defiance 4.35
+3. Execution Of Mankind 7.32
+4. Mass Manipulation 4.50
+ Side Two:
+1. Night Of Emperor 5.44
+2. Shadow Of Fear 5.23
+3. Madness Reigns 5.25
+4. Deadly Legacy 5.27
+
+Tommy Moberg - Drums
+Magnus Sjolin - Lead Guitar
+Pelle Strom - Rhythm Guitar
+Nappe Benchemsi - Bass
+Pete Lundstrom - Vocals
+
+(p)&(c) 1988 UNDER ONE FLAG Records
+
 
 ## Отношения с другими группами
 

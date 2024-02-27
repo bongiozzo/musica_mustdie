@@ -1,13 +1,100 @@
 # Vital Remains
 
-Дискография
-"Let Us Pray" 1992, Death Metal
-"Into Cold Darkness" 1995, Death Metal
-"Forever Underground" 1997, Death Metal
-"Dawn Of The Apocalypse" 1999, Death Metal
-"Dechristianize" 2003, Death Metal
-"Icons Of Evil" 2007, Death Metal
-"Evil - Death - Live (DVD)" 2007, Death Metal
+Satanic Death Black Metal
+
+## Дискография
+
+### "Let Us Pray" 1992, Death Metal
+
+1. War In Paradise
+2. Of Pure Unholiness
+3. Ceremony Of The Seventh Circle
+4. Uncultivated Grave
+5. Malevolent Invocation
+6. Isolated Magick
+7. Cult Of The Dead
+8. Frozen Terror
+9. Amulet Of The Conquering
+
+ Tony Lazaro - Rhythm Guitar
+ Joe Lewis - Bass
+ Jeff Gruslin - Vocals
+ Paul Flynn - Lead Guitar
++ A. Alonzo - Session Drums
+
+All Songs By VITAL REMAINS.
+Recorded At Fat Studios,December 1991,
+Pawtucket,Rhode Island,USA.
+Engineered & Mixed By Tony Ricci For
+Atonal Productions.
+Produced By Tony Ricci & VITAL REMAINS.
+Mastered By Noel Summerville At Transfer-
+mation,London.
+
+(p) 1992 PEACEVILLE
+(c) 1992 VILE MUSIC
+
+### "Into Cold Darkness" 1995, Death Metal
+
+Immortal Crusade 
+Under The Moons Fog 
+Crown Of The Black Hearts 
+Scrolls Of A Millenium Past 
+Into Cold Darkness 
+Descent Into Hell 
+Angels Of Blasphemy 
+Dethroned Emperor
+
+### "Forever Underground" 1997, Death Metal
+
+Forever Underground 
+Battle Ground 
+I Am God 
+Farewell To The Messiah 
+Eastern Journey 
+Divine In Fire
+
+### "Dawn Of The Apocalypse" 1999, Death Metal
+
+Intro 
+Black Magick Curse 
+Dawn Of The Apocalypse 
+Sanctity In Blasphemous Ruin 
+Came No Ray Of Light 
+Flag Of Victory 
+Behold The Throne Of Chaos 
+The Night Has A Thousand Eyes 
+Societe Des Luciferiens
+
+### "Dechristianize" 2003, Death Metal
+
+Let The Killing Begins 
+Dechristianize 
+Infidel 
+Devoured Elysium 
+Saviour To None, Failure For All 
+Unleash Hell 
+Rush Of Deliverance 
+At War With God 
+Entwined By Vengeance
+
+### "Icons Of Evil" 2007, Death Metal
+
+1.Where Is Your God Now 
+2.Icons Of Evil 
+3.Scorned 
+4.Born To Rape The World 
+5.Reborn...The Upheaval Of Nihility 
+6.Hammer Down The Nails 
+7.Shrapnel Embedded Flesh 
+8.'Til Death 
+9.In Infamy 
+10.Disciples Of Hell
+
+### "Evil - Death - Live (DVD)" 2007, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

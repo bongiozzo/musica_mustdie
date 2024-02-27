@@ -1,7 +1,44 @@
 # Madrigal
 
-Дискография
-"I Die, You Soar" 2001, Gothic
+gothic metal from Sweden
+
+## Дискография
+
+### "I Die, You Soar" 2001, Gothic
+
+01. Same Face
+02. Languish
+03. Taint Of Shame
+04. Mind In Disguise
+05. In Debris
+06. Ashen Eyes
+07. Enticed
+08. Moulded Pain
+
+
+
+Martin Karlsson - vocals, rhythm guitar
+Marcus Bergman - drums
+Linda Emanuelsson - keyboards
+Kristoffer Sundberg - guitars
+Lucas Gren - bass
+
+
+Produced and recorded by Anders Friden for Fill in lhe Blanks at Fredman recordings.
+Mixed in Sludio Fredman by Fredrik Nordstrom
+Mastered at the Masieringroom AB by Goran Finnberg.
+
+All music arranged by Madrigal. Vocals arranged by Martin Karlsson.
+
+Additional vocals: Tobias Martinsson on Moulded Pain, appears courtesy of The Provenance (Scarlet records)
+
+Cover art by Nicklas Sundin for Cabin fever media.
+
+Booklet design and artwork by Tobias Martinsson for Provadelic.
+Photos by Bjarne Nielsen
+
+
+
 
 ## Отношения с другими группами
 

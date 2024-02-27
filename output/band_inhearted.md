@@ -1,7 +1,19 @@
 # Inhearted
 
-Дискография
-"Deduced to Purgatory" 2008, Death Metal
+
+
+## Дискография
+
+### "Deduced to Purgatory" 2008, Death Metal
+
+1. Walk the Earth 04:05  
+2. Hell's Damnation 05:30  
+3. Parental Slaughter 06:47  
+4. Aesthetic Existence 04:52  
+5. Deathlike Silence 03:54  
+6. Blackcrowned 01:26  
+7. Revelation 04:26 
+
 
 ## Отношения с другими группами
 

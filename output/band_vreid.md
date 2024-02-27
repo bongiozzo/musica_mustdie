@@ -1,12 +1,74 @@
 # Vreid
 
-Дискография
-"Kraft" 2004, Black Metal
-"Pitch Black Brigade" 2006, Black Metal
-"I Krig " 2007, Black Metal
-"Milorg" 2009, Black Metal
-"V" 2011, Black Metal
-"Welcome Farewell" 2013, Black Metal
+former WINDIR members
+
+## Дискография
+
+### "Kraft" 2004, Black Metal
+
+01. Wrath of Mine
+02. Raped by Light
+03. Helvete
+04. Unholy Water
+05. Eldast, Utan Е Gro
+06. Evig Pine
+07. Empty
+08. Songen Еt Fangen
+
+### "Pitch Black Brigade" 2006, Black Metal
+
+1. Dе Draumen Rakna 05:16  
+2. Left To Hate 04:38 
+3. Pitch Black 04:20
+4. The Red Smell 04:42 
+5. Hengebjшrki 09:21  
+6. Our Battle 03:35  
+7. Hang 'Em All 03:33  
+8. Eit Kapitell For Seg Sjшlv 06:54 
+
+
+### "I Krig " 2007, Black Metal
+
+1. Jarnbyrd 06:30  
+2. Under Isen 03:35  
+3. I Krig 08:40  
+4. Vжpna Lengsel 04:04 
+5. Svart 03:54
+6. Folkefiendar 03:58  
+7. Dei Daude Steig Av Grav 05:13 
+8. Fangegard 03:58 
+9. Millom Hav Og Fjell 05:15 
+
+
+### "Milorg" 2009, Black Metal
+
+1. Alarm 09:11  
+2. Disciplined 04:20  
+3. Speak Goddamnit 05:33  
+4. Blucher 04:48  
+5. Blucher Pt. ll 03:20  
+6. Heroes&Villains 04:14  
+7. Argumentum Ex Silentio 03:21  
+8. Milorg 06:22 
+
+
+### "V" 2011, Black Metal
+
+1. Arche 06:44  
+2. The Blood Eagle 03:56  
+3. Wolverine Bastards 04:27  
+4. The Sound of the River 04:42  
+5. Fire on the Mountain 05:08  
+6. The Others and the Look 10:29  
+7. Slave 03:54  
+8. Welcome to the Asylum 03:22  
+9. Then We Die 05:54 
+
+
+### "Welcome Farewell" 2013, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

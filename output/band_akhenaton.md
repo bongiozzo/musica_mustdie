@@ -1,7 +1,29 @@
 # Akhenaton
 
-Дискография
-"Divine Symphonies" 1995, Ambient
+
+
+## Дискография
+
+### "Divine Symphonies" 1995, Ambient
+
+1.  Raising (Intro)
+2.  Unutterable Verity
+3.  Remissions/The Sign Of Herou
+4.  In The Circle Of Wizards/Ritual
+5.  Chase With The Shadows
+6.  Cross The Styx (Dance With The Souls)
+7.  The Kingdom Of Wisdom
+8.  At The Gates Of Obscurity
+9.  Final Battle (Against Your Dark Side)
+10.Pharao (The Karma Of The Hierophante)
+
+All Music, Lyrics & Ambiences Are Created
+ By Lord V.Akhenaton.
+Produced By AKHENATON.
+Recorded & Mixed At Plaza Studio.
+
+(P)&(C) 1995 ADIPOCERE Records
+
 
 ## Отношения с другими группами
 

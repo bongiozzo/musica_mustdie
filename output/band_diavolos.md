@@ -1,7 +1,22 @@
 # Diavolos
 
-Дискография
-"You Lived Now Die" 2015, Black Metal
+
+
+## Дискография
+
+### "You Lived Now Die" 2015, Black Metal
+
+01. Diavolos Rising
+02. Come To Salem
+03. Hail All Evil
+04. Piss In Holy Water
+05. You Live Now Die
+06. Baptised In Vomit
+07. Demonwhore
+08. Cursed, Bleed, Die
+09. Totencorpse
+10. Death Metal
+
 
 ## Отношения с другими группами
 

@@ -1,9 +1,30 @@
 # Exmortem
 
-Дискография
-"Berzerker Legions" 2000, Death Metal
-"Pest Campaign" 2003, Death Metal
-"Nihilistic Contentment" 2005, Death Metal
+(Denmark)
+
+## Дискография
+
+### "Berzerker Legions" 2000, Death Metal
+
+
+
+### "Pest Campaign" 2003, Death Metal
+
+
+
+### "Nihilistic Contentment" 2005, Death Metal
+
+01. Flesh Havoc 
+02. Bitter Disciplin 
+03. The Human Rape Symphony 
+04. Black Walls of Misery 
+05. Division of Genocide Pleasure 
+06. Swamp of Decadence
+07. Symbols of Inhumanity 
+08. Fix of Negativity 
+09. Graveside Mourning Ritual
+10. Parasite Paradise
+
 
 ## Отношения с другими группами
 

@@ -1,12 +1,33 @@
 # Isis
 
-Дискография
-"Mosquito Control" 1998, Hardcore
-"The Red Sea" 1999, Hardcore
-"Sawblade" 1999, Alternative
-"Celestial" 2000, Alternative
-"Sgnl>05" 2001, Alternative
-"Oceanic" 2002, Alternative
+Neurosis-style band
+
+## Дискография
+
+### "Mosquito Control" 1998, Hardcore
+
+
+
+### "The Red Sea" 1999, Hardcore
+
+
+
+### "Sawblade" 1999, Alternative
+
+
+
+### "Celestial" 2000, Alternative
+
+
+
+### "Sgnl>05" 2001, Alternative
+
+
+
+### "Oceanic" 2002, Alternative
+
+
+
 
 ## Отношения с другими группами
 

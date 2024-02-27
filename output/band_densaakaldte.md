@@ -1,7 +1,22 @@
 # Den Saakaldte
 
-Дискография
-"All Hail Pessimism" 2009, Black Metal
+
+
+## Дискография
+
+### "All Hail Pessimism" 2009, Black Metal
+
+1. Audhumla  01:56    
+2. La Vinteren Vare Evig (Let Winter Last Forever)  08:59  
+3. Vandringen (The Walk/Journey)  08:10   
+4. Satans Synder (The Sins of Satan)  07:30 
+5. Frykten for det Opprinnelige Ode  03:10 
+6. Samma Skrot, Samma Korn (Tarred With the Same Brush)  07:53
+7. Drikke ens Skal (Drink Your Toast)  07:45 
+8. Mesias  08:26  
+9. Den Endelige Tankens Ufravikelige Konsekvens  03:20 
+10. Jag Ar den Fallna (I Am the Fallen)  11:13 
+
 
 ## Отношения с другими группами
 

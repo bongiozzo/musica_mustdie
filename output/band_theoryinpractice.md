@@ -1,10 +1,57 @@
 # Theory in Practice
 
-Дискография
-"Third Eye Function" 1997, Techno Death
-"The Armageddon Theories" 2000, Techno Death
-"Colonizing The Sun" 2002, Techno Death
-"Crescendo Dezign (EP)" 2017, Techno Death
+
+
+## Дискография
+
+### "Third Eye Function" 1997, Techno Death
+
+ 1 - Submissive
+ 4 - Self Alteration
+ 3 - Astral Eyes
+ 7 - Theoretical Conviction
+ 9 - Inexplicable Nature
+ 6 - The Expiring Utopia
+ 2 - The Third-Eye Function
+ 5 - Worlds Within Worlds (The Ethereal Withdrawal)
+ 8 - Void of Origin (Instrumental)
+ 9 - Inexplicable Nature
+
+
+### "The Armageddon Theories" 2000, Techno Death
+
+1.Dehumanized
+2.The Visionare (Angelic Posession)
+3.The Armageddon Theories Phrase I : Prophecies
+4.The Armageddon Theories Phrase II : Carnage
+5.The Armageddon Theories Phrase III : Departure 
+6.The Armageddon Theories Phrase IV : Embryo
+7.The Armageddon Theories Phrase V : Posthuman Era 
+8.Embodied For War
+
+### "Colonizing The Sun" 2002, Techno Death
+
+Colonizing The Sun 
+Conspiracy In Cloning 
+The Psychomantum Litany (Chronicle Excerpt) 
+Shapeshifter 
+Ashen Apocrypha 
+The Clockwork That Counts 
+Aeons 
+Illuminati 
+Replica Dawn 
+This Town Ain`t Big Enough For Both Of Us
+
+### "Crescendo Dezign (EP)" 2017, Techno Death
+
+1. Thermodynamic Process  04:22   
+2. Abstract Entities  04:05   
+3. Journal of a Modified  03:06   
+4. Cryobiological Expansion  04:04   
+5. Synchronized Emptiness  03:46
+
+
+
 
 ## Отношения с другими группами
 

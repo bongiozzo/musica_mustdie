@@ -1,8 +1,37 @@
 # Darkest Hate Warfront
 
-Дискография
-"Satanik Annihilation Kommando" 2005, Black Metal
-"The Aftermath" 2007, Black Metal
+
+
+## Дискография
+
+### "Satanik Annihilation Kommando" 2005, Black Metal
+
+Infernal Baptism [Intro]
+Order Of Battle
+Satanik Annihilation Kommando
+Satan's Kult Of Terror
+Scourge Of Wormkind
+Final Solution
+Duty Fulfillment
+Possessed By Fire
+Purification Of Hatred
+The Aftermath [Outro]
+
+### "The Aftermath" 2007, Black Metal
+
+01. Intro 00:42
+02. No Beliefs 04:35
+03. Triumph of Blood 03:34
+04. Antiyou 03:07
+05. Deadline 04:46
+06. When the Warfront Arises 04:46
+07. Granada 02:58
+08. First Reign 03:57
+09. Suicide Fields 03:44
+10. Chaos inside me 05:38
+11. Sons of Intolerance 03:04
+12. Outro 00:34
+
 
 ## Отношения с другими группами
 

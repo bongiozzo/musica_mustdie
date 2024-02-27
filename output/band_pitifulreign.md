@@ -1,8 +1,30 @@
 # Pitiful Reign
 
-Дискография
-"Toxic Choke" 2006, Thrash
-"Visual Violence" 2008, Thrash
+
+
+## Дискография
+
+### "Toxic Choke" 2006, Thrash
+
+1. Toxic Choke 04:56
+2. Day Of Darkness 05:41
+3. In The Pit 05:06
+4. Cannibal Attack 05:30 
+5. Mark Of The Eagle 03:32
+6. Holding Cells 03:39
+7. Mentally Insane 09:32 
+
+### "Visual Violence" 2008, Thrash
+
+1. Visual Violence 04:28
+2. Human Coleslaw 03:14  
+3. D.I.V.E. 04:53
+4. Fatality 04:38
+5. Malevolence of the Butcher 07:34  
+6. Rapid Deployment 04:31  
+7. Pushed to Prime 04:36
+8. Thrash, Boobs, and Zombies 04:00 
+
 
 ## Отношения с другими группами
 

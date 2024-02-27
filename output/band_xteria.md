@@ -1,7 +1,20 @@
 # Xteria
 
-Дискография
-"Outshine" 2000, Progressive
+progressive-metal
+
+## Дискография
+
+### "Outshine" 2000, Progressive
+
+On the edge 
+Soldiers of fortune 
+Digital conscience 
+Fire 
+Eyes on the world 
+All I need 
+Points of view 
+
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,23 @@
 # Safe Haven
 
-Дискография
-"Safe Haven" 2004, Metal
+West-Coast AOR
+
+## Дискография
+
+### "Safe Haven" 2004, Metal
+
+01. Do You Remember Me 4:17
+02. In Your Heart 5:03
+03. It Could Happen To You 4:03
+04. Sorry Baby 5:11
+05. Nothin’ Like This Feeling 5:18 (mp3)
+06. Fly Me Away 4:43
+07. Have Faith, Believe 3:29 (mp3)
+08. Now That Your Gone 5:60 (mp3)
+09. You’re Movin’ On 5:00
+10. Need A Change 2:31
+11. I Forget The Words 3:26
+
 
 ## Отношения с другими группами
 

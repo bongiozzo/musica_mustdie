@@ -1,11 +1,122 @@
 # Yearning
 
-Дискография
-"With Tragedies Adorned" 1997, Doom
-"Plaintive Scenes" 1999, Doom
-"Frore Meadow" 2001, Doom
-"Evershade" 2004, Doom
-"Merging into Landscapes" 2007, Doom
+
+
+## Дискография
+
+### "With Tragedies Adorned" 1997, Doom
+
+Remnants Of The Only Delight 
+Bleeding For Sinful Crown 
+Flown Away 
+Haze Of Despair 
+The Temple Of Sagal 
+Release 
+In The Hands Of Storm 
+Canticum 
+
+
+### "Plaintive Scenes" 1999, Doom
+
+Naivete 
+Unwritten 
+Grey 
+Soliloquy 
+Plaintive scenes 
+Soliloquy II 
+Eyes of the black flame 
+Nameless 
+
+
+
+Recorded and mixed at Tico-Tico -studios 18th of august- 9th of September 1998
+Engineered by A. Kortelainen
+Produced by YEARNING
+
+J. Palomaki/ vocals, electric & acoustic guitars, keyboards
+T. Kalliomaki/ guitars
+Mr. Woodland/ bass
+T. Kristian/ percussion
+Lady Tiina/ female vocals, flutes
+Session oboe: Hensku
+
+
+
+
+
+
+### "Frore Meadow" 2001, Doom
+
+1. Bleak
+2. Solitary
+3. Autumn
+4. The Fall
+5. Years Of Pain
+6. Forsaken
+7. Frore Meadow
+8. The Race
+9. Elegy of Blood
+10. In Strange Slowfooted Fever
+11. Disappearance
+
+
+Recorded and mixed at Tico-Tico -studios 2nd- 29th of May 2000
+Engineered by A. Kortelainen
+Produced by YEARNING
+
+J. Palomaki - vocals, guitars, keyboards
+T. Kristian - percussion, samples
+
+
+
+
+
+
+
+### "Evershade" 2004, Doom
+
+01. Nocturne
+02. Statues Amidst A Frozen Sand Of Time
+03. Conditio Humana
+04. Aureole
+05. Evershade
+06. Deathbearer
+07. Contemplation
+08. A Day When The World Started To Weep
+
+Juhani Palomaki - vocals, keyboards, electric,
+acoustic & bass guitars
+Kris Tonic - drums & percussion
+
+Recorded and mixed at Astia Studio A, June 9th -
+22nd, 2003.
+Engineered by Anssi Kippo.
+Produced and mixed by Anssi Kippo and Yearning.
+All music and lyrics by J. Palomaki.
+Guitar solo on "Evershade" by Matti Salonen.
+Keyboards recorded with Jani Loikas at Cursed
+Studio.
+Band photos shot by Ville Henttonen.
+Mastered at Top Master by Bruno Gruel.
+Layout and design by Holy Records & Juha Mensola
+
+### "Merging into Landscapes" 2007, Doom
+
+1. Prologue: Nascentes Morimur
+2. Kaleidoscopic Inscape
+3. Sphere of Disgust
+4. Return
+5. Datura Stramonium
+6. October Rain
+7. Lethean Waters
+8. Merging into Landscapes
+9. Dead
+10. The Dying Morn
+11. Epilogue: Nemo Ante Mortem Beatus
+
+Juhani Palomoki - Vocals, Guitars, Bass, Keyboard
+Aki Kuusinen - Session Drums
+
 
 ## Отношения с другими группами
 

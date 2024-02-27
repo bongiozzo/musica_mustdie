@@ -1,9 +1,93 @@
 # Oasis
 
-Дискография
-"Definitely Maybe" 1994, Grunge
-"(What's The Story) Morning Glory" 1995, Grunge
-"Complete Singles Collection - (What's The Story Morning Glory ?)" 1996, Grunge
+
+
+## Дискография
+
+### "Definitely Maybe" 1994, Grunge
+
+1. Rock'N'Roll Star
+2. Shakermaker
+3. Live Forever
+4. Up In The Sky
+5. Columbia
+6. Supersonic З
+7. Bring It On Down
+8. Cigarettes & Alcohol
+9. Digsy's Dinner
+10.Side Away
+11.Married With Children
+
+Liam Galagher - Vocals
+Noel Galagher - Lead Guitars, Backing Vocals
+Paul Arthurs - Rhythm Guitar
+Paul McGuigan - Bass Guitar
+Tommy McCarol - Drums
+
+Produced By OASIS & Mark Coyle.
+Additional Production & Mixing By Owen Morris.
+Engineers: Anjali Dutt, Dave Scott, Roy Spong & Mark Coyle.
+
+Backing Vocals On З By Anthony Griffiths.
+
+(P)c 1994 SONY Music
+
+### "(What's The Story) Morning Glory" 1995, Grunge
+
+1. Hello
+2. Roll With It
+3. Wonderwall
+4. Don't Look Back In Anger
+5. Hey Now !
+6. No Name
+7. Some Might Say
+8. Cast No Shadow
+9. She's Electric
+10.Morning Glory
+11.No Name
+12.Champagne Supernova З
+
+Liam Galagher - Vocals
+Noel Galagher - Lead Guitars, Vocals, Mellotron, Piano & E Bow
+Paul Arthurs - Rhythm Guitar, Mellotron, Piano
+Paul McGuigan - Bass Player
+Alan White - Drums & Percussion
+
+The Producers: Owen Morris & Noel Galagher.
+The Place: Rockfield Studios, Gwent, South Wales.
+Supersub: Paul Weller - Lead Guitar & Back Vocals On З
+
+(P)&(C) 1995 SONY Music
+
+### "Complete Singles Collection - (What's The Story Morning Glory ?)" 1996, Grunge
+
+1.  Some Might Say
+2.  Talk Tonight
+3.  Acquiesce
+4.  Headshrinker
+5.  Roll With It
+6.  It's Better People
+7.  Rockin' Chair
+8.  Live Forever (Live At Glastonbury)
+9.  Wonderwall
+10.Round Are Way
+11.The Swamp Song
+12.The Masterplan
+13.Don't Look Back In Anger
+14.Step Out
+15.Underneath The Sky
+16.Cum On Feel The Noize
+
+WARNING: Rock'N'Roll Can Seriously Damage Your Health
+
+Liam Galagher - Vocals
+Noel Galagher - Lead Guitars, Vocals, Mellotron, Piano & E Bow
+Paul Arthurs - Rhythm Guitar, Mellotron, Piano
+Paul McGuigan - Bass Player
+Alan White - Drums & Percussion
+
+(P)(C) 1996 CREATION Records LTD.
+
 
 ## Отношения с другими группами
 

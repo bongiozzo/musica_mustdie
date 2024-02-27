@@ -1,10 +1,105 @@
 # Cat Rapes Dog
 
-Дискография
-"God,Guns & Gasoline" 1992, Industrial
-"Moosehower Underware" 1993, Industrial
-"Schizaphrenia" 1994, Industrial
-"Biodegradable" 1996, Industrial
+"Fuck Off" Band
+
+## Дискография
+
+### "God,Guns & Gasoline" 1992, Industrial
+
+1. American Dream
+2. Homo Bulldozer
+3. God,Guns & Gasoline
+4. Golden Generation
+5. Allt Jag Har
+6. Mental
+7. Junk Jazz
+8. An Ass For A Brain
+9. Heavenly
+10.Madmen
+
+ Magnus Fransson - Key & Buttonpressing, Vocals
+ Joel Rydstrom - Howling & Chanting, Keyboards
+
+All Music & Lyrics Written By Fransson/Rydstrom.
+Recorded,Mixed & Produced At Holken Ijudstudio By
+CAT RAPES DOG & Bo Paulsson.
+
+(p)&(c) 1992 KK Records
+
+### "Moosehower Underware" 1993, Industrial
+
+1. Moosehower Underware
+2. Aquarius
+3. Countrygods
+4. Godfearing Man
+5. Trojan Whores
+6. Don't Wanna Work
+7. Things I Hate
+8. Nothing But A Bitch
+9. Crusaders In Disneyland
+10.Demigod President
+
+All Tracks Conceived, Written & Performed By
+Annelie Bertilsson, Magnus Fransson, Joel Rydstrom.
+No Animals Were Injured, Raped Or Killed During The Recording Of This Album.
+All Songs By CAT RAPES DOG.
+All Tracks Except 1 & 5 Mixed &
+Produced By THE PEAK TWINS At The Kitchen, Staffanstorp.
+Tracks 1 & 5 Mixed & Produced By Jurgen Engler & 
+Chris Lietz (DIE KRUPPS) At Atom H, Dusseldorf.
+
+(p)&(c) 1993 KK Records / ENERGY Records
+
+### "Schizaphrenia" 1994, Industrial
+
+1. Fundamental
+2. Motordead
+3. Iron Man
+4. Superluminal
+5. One Way To Return
+6. Troyan Whores
+7. Everything's Gone Green
+8. 909 Whores
+9. Moosehair Underwear
+10.Moosewear
+11.Primetime Apocalipse
+12.Motordead
+13.Homobulldozer
+14.Schizophrenia
+15.Mad Man
+16.True Love
+
+(p)(c) 1994
+
+### "Biodegradable" 1996, Industrial
+
+1. There's No Evil
+2. Cannibal Hippies
+3. The World Is Good And Nothing Bad Ever Happens
+4. I'm Ok, You're Ok, But Hey, That's Ok
+5. Hurts Good
+6. Dead Boys Don't Say No
+7. Freedom In Wheels
+8. Event Horizon
+9. Morals Are For Sissies
+
+All songs written by CAT RAPES DOG.
+Engineered by Fredrik Bergengren.
+Decomposed and produced by Chris P.
+Recorded in Studio MRC, Malmo,
+Kingdom of Sweden
+
+Joel Rydshom - Vocals. Music and
+Long-distance Races
+Magnus Fransson - Lyncs, Music and
+Steroids
+Annelie Bertilsson - Vocals, Music,
+Guitars and Weasel
+Ionas Awertoft - Real-time Guitars,
+Stage Support and Corduroy Trousers
+
+(p)(c) 1996 ENERGY Records
+
 
 ## Отношения с другими группами
 

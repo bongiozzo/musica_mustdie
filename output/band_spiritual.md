@@ -1,7 +1,19 @@
 # SpiRitual
 
-Дискография
-"Pulse" 2006, Death Doom
+
+
+## Дискография
+
+### "Pulse" 2006, Death Doom
+
+This Battle Is Yours 
+Symphony Of Life 
+Nahash 
+Pulse 
+Save And Heal 
+Nowhereness 
+Pulse - video clip
+
 
 ## Отношения с другими группами
 

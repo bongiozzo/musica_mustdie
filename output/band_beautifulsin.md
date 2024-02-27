@@ -1,7 +1,24 @@
 # Beautiful Sin
 
-Дискография
-"The Unexpected" 2006, Heavy Metal
+
+
+## Дискография
+
+### "The Unexpected" 2006, Heavy Metal
+
+01. Lost
+02. This is Not the Original Dream
+03. Take Me Home
+04. I'm Real
+05. The Spark of Ignition
+06. Closer to My Herd
+07. Give Up Once for All
+08. Brace for Impact
+09. Pechvogel
+10. Metalwaves
+11. The Beautiful Sin
+12. Le Reve Originel (bonus track)
+
 
 ## Отношения с другими группами
 

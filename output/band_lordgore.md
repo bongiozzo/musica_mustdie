@@ -1,8 +1,17 @@
 # Lord Gore
 
-Дискография
-"The Autophagous Orgy" 2002, Grindcore
-"Resickened" 2004, Grindcore
+
+
+## Дискография
+
+### "The Autophagous Orgy" 2002, Grindcore
+
+
+
+### "Resickened" 2004, Grindcore
+
+
+
 
 ## Отношения с другими группами
 

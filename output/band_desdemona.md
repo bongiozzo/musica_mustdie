@@ -1,7 +1,28 @@
 # Desdemona
 
-Дискография
-"Lady Of The Lore" 2001, Power Metal
+
+
+## Дискография
+
+### "Lady Of The Lore" 2001, Power Metal
+
+1. Black Lady
+2. Shadows Of My Life
+3. Event Horizon
+4. Lancelot
+5. Othello's Crying
+6. Neptune The Mystic
+7. If I Were Fire (S'i' Fosse Foco)
+8. Changing Skin
+
+
+Andrea Marchisio - vocals
+Christian Rosso - guitars 
+Foca Torchia - keyboards
+Alessandro Mussa - bass
+Maurizio Anello - drums 
+
+
 
 ## Отношения с другими группами
 

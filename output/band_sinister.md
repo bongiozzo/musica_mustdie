@@ -1,21 +1,313 @@
 # Sinister
 
-Дискография
-"Cross The Styx" 1992, Deathcore
-"Diabolic Summoning" 1993, Deathcore
-"Hate" 1995, Deathcore
-"Bastard Saints" 1996, Deathcore
-"Aggressive Measures" 1998, Deathcore
-"Creative Killings" 2001, Deathcore
-"Savage Or Grace" 2003, Deathcore
-"Afterburner" 2006, Deathcore
-"Prophecies Denied (DVD)" 2006, Deathcore
-"The Silent Howling" 2008, Death Metal
-"Legacy of Ashes" 2010, Death Metal
-"The Carnage Ending" 2012, Death Metal
-"The Post-Apocalyptic Servant" 2014, Death Metal
-"Dark Memorials" 2015, Death Metal
-"Syncretism" 2017, Death Metal
+Very Intense Satanic Deathcore
+
+## Дискография
+
+### "Cross The Styx" 1992, Deathcore
+
+1. Carnificina Scelesta
+2. Perennial Mourning
+3. Sacramental Carnage
+4. Doomed
+5. Spiritual Immolation
+6. Cross The Styx  1)
+7. Compulsory Resignation
+8. Corridors To Abyss
+9. Putrefying Remains 2)
+10.Epoch Of Denial
+11.Perpetual Damnation
+12.Outro
+
+ Andre - Guitar
+ Aad - Drums
+ Mike - Vocal
+ Ron - Guitar / Bass
+
+Produced By Alex Krull (ATROCITY) &
+Mathias Roderer.
+Guest Lead On 1) By Mathias Roderer.
+ On 2) By Patrick Bolliger.
+Background Vocal:
+ On 1) By Alex Krull (ATROCITY).
+Co-Produced By Falk Gruber & SINISTER.
+Recorded & Mixed By Alex Krull & Falk
+Gruber.
+Engineered By Falk Gruber.
+Mastered At T.T. Mastering, Berlin.
+
+(p)&(c) 1992 NUCLEAR BLAST Records
+
+### "Diabolic Summoning" 1993, Deathcore
+
+1. Sadistic Intent
+2. Magnified Wrath
+3. Diabolic Summoning
+4. Sense Of Demise
+5. Leviathan
+6. Desecrated Flesh
+7. Tribes Of Moon
+8. Mystical Illusion
+
+ Andre - Guitar
+ Aad - Drums
+ Mike - Vocal
+ Ron - Guitar / Bass
+
+Produced By Colin Richardson.
+Recorded At T&T Studio/Germany.
+
+(p)&(c) 1993 NUCLEAR BLAST Records
+
+
+### "Hate" 1995, Deathcore
+
+1.  Intro (1:36)
+2.  Awaiting The Absu (7:06)
+3.  Embodiment Of Chaos (3:55)
+4.  Art Of The Damned (5:18)
+5.  Unseen Darkness (4:21)
+6.  18th Century Hellfire (4:01)
+7.  To Mega Therion (4:33)
+8.  The Cursed Mayhem (3:03)
+9.  The Bloodfeast (5:54)
+
+ Andre - Guitar
+ Aad - Drums
+ Mike - Vocal
+ Ron - Guitar / Bass
+
+Produced By Colin Richardson.
+Recorded At T&T Studio/Germany.
+
+(P)c 1995 NUCLEAR BLAST Records
+
+### "Bastard Saints" 1996, Deathcore
+
+1.  Reborn From Hatred 
+2.  Bastard Saints
+3.  Rebels Dome
+4.  Cross The Styx
+5.  Epoch Of Denial
+
+All Songs By SINISTER.
+Produced By Wolfgang Stach & SINISTER.
+Engineered By Wolfgang Stach.
+Recorded & Mixed At Real Sound Studio, Gelsenkirchen.
+
+Bart - Guitar
+Aad - Drums
+Mike - Vocals
+Michel - Bass
+
+(P)c 1996 NUCLEAR BLAST Records
+
+### "Aggressive Measures" 1998, Deathcore
+
+1. The Upcoming
+2. Aggressive Measures
+3. Beyond The Superstition
+4. Into The Forgotten
+5. Enslave The Weak
+6. Fake Redemption
+7. Chained In Reality
+8. Emerged With Hate
+9. Blood Follows the Blood
+
+### "Creative Killings" 2001, Deathcore
+
+1.relic of possession
+2.bleeding towards the wendigo
+3.creative killing
+4.judicious murder
+5.revivnig the dead
+6.early gothic horror
+7.moralistic suffering
+8.altering the beast
+9.season of the wicked
+10.storm in your mind*
+
+* possessed cover 
+
+
+Alex -Bass
+Rachel - Vocals
+Aad - Drums
+Bart - Guitar
+
+
+
+Produced by Hans Pieters and Sinister 
+Recorded and mixed at Studio Excess,
+Rotterdam, April/May 2001 
+Engineered by Hans Pieters and Dennis Leidelmeyer
+Mixed by Hans Pieters and Sinister
+Cover artwork by Jon Zig
+Layout by Marco Jeurissen
+
+
+
+
+
+### "Savage Or Grace" 2003, Deathcore
+
+01. Rise Of The Predator
+02. Savage Or Grace
+03. Barbaric Order
+04. The Age Of Murder
+05. Conception Of Sin
+06. Chapel Desecration
+07. Dominion
+08. Collapse Rewind
+09. Apocalypse In Time
+10. Sacramental Carnage*
+11. Epoch Of Denial*
+12. Lacivious Desolation*
+13. Perpetual Damnation*
+14. Compulsory Resignation*
+15. Putrefying Remains*
+16. Spiritual Immolation*
+
+* - bonus tracks
+
+### "Afterburner" 2006, Deathcore
+
+1. The Grey Massacre 04:16  
+2. Altruisic Suicide 05:14  
+3. Men Down 06:02  
+4. Afterburner 04:55  
+5. Presage Of The Mindless 07:37  
+6. Into Submission 05:17  
+7. The Riot Crossfire 03:50  
+8. Flesh Of The Servant 07:47
+
+### "Prophecies Denied (DVD)" 2006, Deathcore
+
+
+
+### "The Silent Howling" 2008, Death Metal
+
+01. Republic of the grave 05:29
+02. Summit of sacrifice 06:52
+03. Fortified bravery 06:16
+04. The silent howling 10:16
+05. The kill to come 05:57
+06. Palace of the fates 06:19
+07. If it bleeds 06:37
+
+Adrie Kloosterwaard - вокал
+Alex Paul - гитара
+Bas van den Bogaard - бас
+Edwin van den Eeden - ударные
+
+The Silent Howling was Recorded, mixed and mastered by Jorg Uken at Soundlodge Studio Germany 2008
+Keyboards by Mathias Riebiger
+Band Picture taken by Alesa Sare
+Artwork by Mike Hruboveak
+All music &lyrics by Alex Paul
+
+
+### "Legacy of Ashes" 2010, Death Metal
+
+1. Herd of Damnation (Intro)   
+2. Into the Blind World   
+3. The Enemy of My Enemy   
+4. Anatomie of a Catastrophe   
+5. The Sin of Sodomy   
+6. Legacy of Ashes 
+7. The Hornet's Nest   
+8. Righteous Indignations   
+9. The Living Sacrifice 
+
+
+Line up:
+Aad Kloosterwaard - Vocals 
+Alex Paul - Guitar 
+Bas Van Den Bogaard - Bass 
+Edwin Van Den Eeden - Drums
+
+Cover Artwork by Mike Hrubovcak (Monstrosity (USA) ).
+Recorded at Soundlodge Studios, in Rhauderfehn, Germany.
+
+Also released as a limited edition digipak with 4 bonus tracks. 
+
+### "The Carnage Ending" 2012, Death Metal
+
+1. Gates Of Bloodshed (Intro)
+2. Unheavenly Domain
+3. Transylvania (City Of The Damned)
+4. My Casual Enemy
+5. Crown Of Thorns
+6. The Carnage Ending
+7. Oath Of Rebirth
+8. Regarding The Imagery
+9. Blood Ecstacy
+10. Defamatory Content
+11. Final Destroyer
+ 
+Бонус-диск:
+12. Spit On Your Grave (Whiplash)
+13. Succubus (Massacre)
+14. Swing Of The Axe (Possessed)
+15. Dethroned Emperor (Celtic Frost)
+16. Face Fate (Bloodfeast) 
+
+### "The Post-Apocalyptic Servant" 2014, Death Metal
+
+Disc 1   
+1. The Science of Prophecy  05:06   
+2. The Macabre God  04:06  
+3. The Sculpture of Insanity  03:32  
+4. The End of All That Conquers  04:31  
+5. The Masquerade of an Angel  04:49   
+6. The Dome of Pleasure  04:07   
+7. The Post-Apocalyptic Servant  04:04   
+8. The Art of Skin Decoration  04:15   
+9. The Saviour  05:36   
+10. The Burden of Mayhem  04:47   
+  
+  
+Disc 2  
+1. Fall from Grace (Morbid Angel cover)  05:20   
+2. Deadly Inner Sense (Paradise Lost cover) 04:39   
+3. Unstoppable Force (Agent Steel cover)  03:34 
+
+
+### "Dark Memorials" 2015, Death Metal
+
+Disc 1 (CD) - Dark Memorials  
+1. The Malicious  02:24  (instrumental)  
+2. Beneath the Remains (Sepultura cover)  04:24   
+3. Exhume to Consume (Carcass cover)  03:50  
+4. Unleashed upon Mankind (Bolt Thrower cover)  05:26  
+5. Master Killer (Merauder cover)  03:31   
+6. Beyond the Unholy Grave (Death cover)  02:58   
+7. Under the Guillotine (Kreator cover)  05:02   
+8. Ridden with Disease (Autopsy cover)  04:57   
+9. Necrophiliac (Slayer cover)  03:34   
+10. Radiation Sickness (Repulsion cover)  02:06   
+11. Blasphemies of the Flesh (Carnage cover)  03:49  
+12. Spiritual Immolation (Rerecorded)   03:27   
+13. Compulsory Resignation (Rerecorded)  03:52 
+
+     
+Disc 2 (DVD) - Australian Darkness  
+1. A Road Movie from the Australian Tour 2014   50:00  
+
+
+### "Syncretism" 2017, Death Metal
+
+1. Neurophobic 
+2. Convulsion of Christ  
+3. Blood Soaked Domain  
+4. Dominance by Acquisition 
+5. Syncretism  
+6. Black Slithering Mass 
+7. Rite of the Blood Eagle   
+8. The Canonical Rights
+9. Confession Before Slaughter  
+
+
 
 ## Отношения с другими группами
 

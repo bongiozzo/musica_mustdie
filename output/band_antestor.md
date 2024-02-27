@@ -1,9 +1,54 @@
 # Antestor
 
-Дискография
-"Martyrium" 1994, Black Metal
-"The Return Of The Black Death" 1998, Death Metal
-"The Forsaken" 2005, Death Metal
+
+
+## Дискография
+
+### "Martyrium" 1994, Black Metal
+
+1. Spiritual Disease 
+2. Materalisic Lie 
+3. Depressed 
+4. Thoughts 
+5. Under The Sun 
+6. Inmost Fear 
+7. Searching 
+8. Martyrium 
+9. Mercy Lord
+
+### "The Return Of The Black Death" 1998, Death Metal
+
+1. Vinterferden 
+2. A Sovereign Fortress 
+3. Svartedauens Gjenkomst 
+4. Sorg 
+5. The Bridge Of Death 
+6. Gamlelandet 
+7. Kilden - Lik En Endelos Elv 
+8. Kongsblod 
+9. Battlefield 
+10. Ancient Prophecy 
+11. Ildnatten
+
+### "The Forsaken" 2005, Death Metal
+
+1. Rites Of Death 
+2. Old Times Cruelty 
+3. Via Dolorosa
+4. Raade
+5. The Crown I Carry
+6. Betrayed
+7. Vale Of Tears
+8. The Return 
+9. As I Die
+10. Mitt Hjerte
+
+Vrede – voice
+Gard – bass
+Vemod – guitars
+Sygmoon – keyboards
+Hellhammer – drums
+
 
 ## Отношения с другими группами
 

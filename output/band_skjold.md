@@ -1,7 +1,25 @@
 # Skjold
 
-Дискография
-"Thirteen Years Hell [Compilation]" 2009, Black Metal
+
+
+## Дискография
+
+### "Thirteen Years Hell [Compilation]" 2009, Black Metal
+
+1. Fourteen Years Hell 01:47  
+2. Battlefire 05:25  
+3. Hell Sweet Hell 04:08  
+4. Transilvanian Hunger (Darkthrone cover) 07:51
+5. Valhalla Venter 07:16  
+6. Fucking Killer Knife... My Best Friend in Life 03:03  
+7. Let's Make Hell on Earth 04:58  
+8. Kirkbrand 06:47  
+9. Hvor mennesket maa soke hen 03:59  
+10. Et Skjaldedigt om en nattefaerd 05:15  
+11. Vi Er Faa Sande 05:38  
+12. Servants of the Ancient Path 04:30  
+13. Spit on the Weak 05:27 
+
 
 ## Отношения с другими группами
 

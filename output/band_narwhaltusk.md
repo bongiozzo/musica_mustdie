@@ -1,7 +1,22 @@
 # Narwhal Tusk
 
-Дискография
-"In Despair" 2010, Gothic
+
+
+## Дискография
+
+### "In Despair" 2010, Gothic
+
+01. Waltz (As Autumn Falls)
+02. Mourning Purple
+03. Everfall (the Holy Gardiner of Souls)
+04. Nova
+05. In Despair pt.1
+06. New Dawn, New Day
+07. Remedy
+08. My Angel
+09. Walking over Waters of the Ocean
+10. In Despair pt.2
+
 
 ## Отношения с другими группами
 

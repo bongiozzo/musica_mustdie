@@ -1,7 +1,34 @@
 # Ancient Drive
 
-Дискография
-"Black Orgies" 2000, Gothic
+
+
+## Дискография
+
+### "Black Orgies" 2000, Gothic
+
+01. Black orgies
+02. Karpathian Whore
+03. Mourning Tears
+04. Orgasmic Adores
+05. Rape and Repent
+06. Thorns of Pity
+07. Carnal Perversion
+08. Blood Red Claws
+09. Death Embraces Her
+10. ...
+11. ...
+12. First and last and always (Cover version)
+
+
+
+Tommi Virranta-vocals
+Late Kauppinen-guitars
+Harri Hyvцnen-guitars
+Janne Kankkunen-keyboards
+Mika Jдrvikuona-bass
+Veikka Jokela-Drums
+
+
 
 ## Отношения с другими группами
 

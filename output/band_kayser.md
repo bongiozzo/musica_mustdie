@@ -1,8 +1,37 @@
 # Kayser
 
-Дискография
-"Kaiserhof" 2005, Thrash
-"Frame the World... Hang It On the Wall" 2006, Thrash
+thrash-metal
+
+## Дискография
+
+### "Kaiserhof" 2005, Thrash
+
+1. 1919	 
+2. Lost Cause	 
+3. Good Citizen	 
+4. Noble Is Your Blood	 
+5. 7 Days to Sink	 
+6. Like a Drunk Christ	 
+7. Cemented Lies 
+8. The Waltz	 
+9. Rafflesia	 
+10. Perfect
+
+### "Frame the World... Hang It On the Wall" 2006, Thrash
+
+1. The Cake	 
+2. Lost in the Mud	 
+3. Evolution	 
+4. Not Dead...Yet	 
+5. Absence	 
+6. Turn to Grey	 
+7. Cheap Glue	 
+8. A Note from Your Wicked Son	 
+9. Everlasting	 
+10. Fall	 
+11. Born into This	 
+12. Jake
+
 
 ## Отношения с другими группами
 

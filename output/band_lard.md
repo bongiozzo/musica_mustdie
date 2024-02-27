@@ -1,8 +1,49 @@
 # Lard
 
-Дискография
-"Power Of Lard" 1989, Alternative
-"The Last Temptation" 1990, Alternative
+
+
+## Дискография
+
+### "Power Of Lard" 1989, Alternative
+
+1. Power Of Lard
+2. Hellfudge
+3. Time To Melt
+
+ J.Biafra
+ A.Jorgensen
+ P.Barker
+ J.Ward
+
+Produced By Hypo Luxa.
+Recorded At Chicago Trax Studios.
+
+(p)&(c) 1989 ALTERNATIVE Records
+
+### "The Last Temptation" 1990, Alternative
+
+1. Forkboy
+2. Pineapple Face
+3. Mate Spawn And Die
+4. Drug Raid At 4 A.M.
+5. Can God Fill Teeth ?
+6. Bozo Skeleton
+7. I Am Your Clock
+[8].Sylvestre Matushka
+[9].They`re Coming To Take Me Away
+
+[8],[9] - На стороне B
+
+ J.Biafra
+ A.Jorgensen
+ P.Barker
+ J.Ward
+
+Produced By Hypo Luxa.
+Recorded At Chicago Trax Studios.
+
+(p)&(c) 1992 ALTERNATIVE TENTACLES
+
 
 ## Отношения с другими группами
 

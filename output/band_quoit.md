@@ -1,7 +1,24 @@
 # Quoit
 
-Дискография
-"Lounge" 1996, Industrial
+Created By Mick Harris Trans-Industrial
+
+## Дискография
+
+### "Lounge" 1996, Industrial
+
+1. Phoner
+2. Chase
+3. Wandering
+4. That Way
+5. Stranger
+6. Set Up
+7. Habit
+8. Last Exit
+
+Created by Mick Harris.
+
+(p)(c) 1996 POSSIBLE  Poss 001
+
 
 ## Отношения с другими группами
 

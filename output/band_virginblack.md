@@ -1,12 +1,45 @@
 # Virgin Black
 
-Дискография
-"Virgin Black (demo)" , Black Metal
-"Trance" 1998, Black Metal
-"Sombre Romantic" 2001, Black Metal
-"Elegant... and Dying" 2003, Black Metal
-"Requiem - Mezzo Forte" 2007, Death Doom
-"Requiem - Fortissimo" 2008, Death Doom
+
+
+## Дискография
+
+### "Virgin Black (demo)" , Black Metal
+
+
+
+### "Trance" 1998, Black Metal
+
+
+
+### "Sombre Romantic" 2001, Black Metal
+
+
+
+### "Elegant... and Dying" 2003, Black Metal
+
+
+
+### "Requiem - Mezzo Forte" 2007, Death Doom
+
+1. Requiem, Kyrie 07:42  
+2. In Death 08:00  
+3. Midnight's Hymn 04:57  
+4. …And I Am Suffering 10:56  
+5. Domine 08:06  
+6. Lacrimosa (I Am Blind With Weeping) 09:59  
+7. Rest Eternal 02:29
+
+### "Requiem - Fortissimo" 2008, Death Doom
+
+1. The Fragile Breath 05:49  
+2. In Winters Ash 07:23  
+3. Silent 06:42  
+4. God in Dust 08:39  
+5. Lacrimosa (Gather Me) 02:21  
+6. Darkness 11:45  
+7. Forever 01:14
+
 
 ## Отношения с другими группами
 

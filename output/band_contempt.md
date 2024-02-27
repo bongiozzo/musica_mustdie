@@ -1,8 +1,39 @@
 # Contempt
 
-Дискография
-"The Secret Around Us" 2002, Death Metal
-"When Angels Begin To Cry" 2003, Death Metal
+
+
+## Дискография
+
+### "The Secret Around Us" 2002, Death Metal
+
+Intro 
+Blind Eyes Can't Speak 
+Who Am I? 
+My End 
+Not Any Question 
+A Dead Stone 
+The Nightwind 
+The Secret Around Us 
+Go My Boy Go And Die 
+Choke On Your Shame 
+The Dark Rain 
+You Must Die!!!
+
+### "When Angels Begin To Cry" 2003, Death Metal
+
+Intro / I Shall Rule 
+33 
+Death Is Eternal 
+Hate 
+Holy Lies 
+Once You All Will Die When Our Overcast Day Shall Come 
+Mercy 
+Suicide 
+When Angels Begin To Cry 
+Who Is The Untrue? 
+Fortune Will Be Gone 
+I Am The Truth Of Life
+
 
 ## Отношения с другими группами
 

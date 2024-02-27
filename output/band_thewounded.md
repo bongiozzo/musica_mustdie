@@ -1,10 +1,63 @@
 # The Wounded
 
-Дискография
-"The Art of Grief" 2000, Gothic
-"Monument" 2002, Gothic
-"Atlantic" 2004, Gothic
-"Sunset" 2016, Gothic
+Gothic-metal
+
+## Дискография
+
+### "The Art of Grief" 2000, Gothic
+
+1. Your Roses Will Burn  06:15   
+2. Smalltown Boy (Bronski Beat cover)  04:32  
+3. We Pass Our Bridal Days  08:05   
+4. The Art of Grief  06:01  
+5. Frailty Thy Name Is Woman  06:52   
+6. (Where Are You Now)  01:39    
+7. Against All Gods  07:48   
+8. Billet Doux  03:25  
+9. In Silence...  15:20 
+
+
+### "Monument" 2002, Gothic
+
+1. Dawn  01:51    
+2. Garland  05:30   
+3. The Real  03:13   
+4. Grace, Murder, Divine  06:33  
+5. Billet Doux  03:17   
+6. Chaos Spectacle  03:47   
+7. Red  03:08   
+8. Black Heart  06:35   
+9. Dark Moon Generation  04:33   
+10. Child  05:28   
+11. A Dance with the Insane  05:27   
+12. Monument  19:23 
+
+
+### "Atlantic" 2004, Gothic
+
+Hollow World 
+18. Carat Dust 
+Running On Empty 
+Day Of Joy 
+Northern Lights 
+Prelude 
+Smells Like Teen Spirit (Nirvana cover) 
+We Are Darker 
+Atlantic
+
+### "Sunset" 2016, Gothic
+
+1. Wolves We Raised  07:00    
+2. This Paradise  05:04   
+3. Mr. Faithful  06:41    
+4. The Cold  06:24    
+5. Kings  10:03    
+6. Homeless  05:36   
+7. Sunset  05:40    
+8. The Fallen  05:39   
+9. Ruins  08:32 
+
+
 
 ## Отношения с другими группами
 

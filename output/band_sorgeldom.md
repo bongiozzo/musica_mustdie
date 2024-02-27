@@ -1,10 +1,54 @@
 # Sorgeldom
 
-Дискография
-"Innerlig Formorkelse" 2009, Black Metal
-"Inner Receivings" 2010, Black Metal
-"Vithatten" 2011, Black Metal
-"...from Outer Intelligences" 2011, Black Metal
+
+
+## Дискография
+
+### "Innerlig Formorkelse" 2009, Black Metal
+
+1. Insikter  04:28    
+2. Orov&#228;ckande F&#246;rlust Av Ett F&#246;rlorat F&#246;rst&#229;nd  11:56    
+3. D&#229; Dr&#246;mmen Dog, D&#246;dade Dagen Dig  08:47    
+4. Livslusten For Med Vinden  01:59    
+5. Gev&#228;ret Lades Fram, Processen Blev Kort  13:24  
+6. Innerlig F&#246;rm&#246;rkelse  08:30 
+
+### "Inner Receivings" 2010, Black Metal
+
+1. I Kloaken L&#228;ttar Vi Ankar  10:45    
+2. The Cold Empty Void  08:06    
+3. Vintern Var H&#229;rd  04:42   
+4. D&#229;rskapens Karneval  05:27    
+5. Summer Day (Slowdive cover)  04:25    
+6. Inner Receivings  09:46   
+7. Dr&#246;mmarnas Galax  05:06 
+8. I V&#228;ntan P&#229; Telefonsamtalet  09:10    
+9. Dyk  02:05 
+
+### "Vithatten" 2011, Black Metal
+
+1. Intro  01:05    
+2. Vithatten  06:27    
+3. De g&#229;ngnas skalder  06:28  
+4. Inom bergets salar  03:02  
+5. Av sten  02:03    
+6. Mylingsdimma  04:47    
+7. Vilsna tankars sp&#246;kerier  04:39 
+8. I f&#246;nstret blickar kvinnan  05:24 
+9. Skuggor av bl&#228;ck  05:49 
+
+### "...from Outer Intelligences" 2011, Black Metal
+
+1. A Voice in Orbit  03:13    
+2. Utesluten fran universums koreografi  04:57 
+3. Through Dust into Lostness  06:50 
+4. Mannen vid stugan  02:53    
+5. Hanford av tvangshandlingens synagoga  09:17  
+6. Tragedin skraddarsydde mitt hjartas omma sommar  01:57
+7. ...from Outer Intelligences  09:10 
+8. To Where Your Tracks End  06:13   
+9. Kontakt  01:27 
+
 
 ## Отношения с другими группами
 

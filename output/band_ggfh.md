@@ -1,12 +1,33 @@
 # GGFH
 
-Дискография
-"Eclipse" 1991, Industrial
-"Reality EP" 1992, Industrial
-"Disease" 1993, Industrial
-"Halloween" 1994, Industrial
-"Welcome To The Process 7"EP" 1995, Industrial
-"The Very Beast Of GGFH" 2002, Industrial
+Industrial
+
+## Дискография
+
+### "Eclipse" 1991, Industrial
+
+
+
+### "Reality EP" 1992, Industrial
+
+
+
+### "Disease" 1993, Industrial
+
+
+
+### "Halloween" 1994, Industrial
+
+
+
+### "Welcome To The Process 7"EP" 1995, Industrial
+
+
+
+### "The Very Beast Of GGFH" 2002, Industrial
+
+
+
 
 ## Отношения с другими группами
 

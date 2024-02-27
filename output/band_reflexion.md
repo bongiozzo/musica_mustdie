@@ -1,9 +1,31 @@
 # Reflexion
 
-Дискография
-"Out Of The Dark" 2006, Gothic
-"Dead To The Past, Blind For Tomorrow" 2008, Gothic
-"Edge" 2010, Gothic
+
+
+## Дискография
+
+### "Out Of The Dark" 2006, Gothic
+
+01. Army Of Broken Hearts
+02. Crashing Down
+03. Undying Dreams
+04. Journey To Tragdey
+05. Me & Myself
+06. Feeble Soul
+07. Truth Unveiled (Million Times)
+08. Sleeping With Death
+09. Rainheart
+10. Storm
+11. Child In Dark
+
+### "Dead To The Past, Blind For Tomorrow" 2008, Gothic
+
+
+
+### "Edge" 2010, Gothic
+
+
+
 
 ## Отношения с другими группами
 

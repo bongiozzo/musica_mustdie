@@ -1,11 +1,121 @@
 # Custard
 
-Дискография
-"Kingdoms of Your Life" 1999, Power Metal
-"For My King" 2000, Power Metal
-"Wheels of Time" 2005, Power Metal
-"Forces Remain" 2008, Power Metal
-"Infested by Anger" 2012, Power Metal
+true-power-metal
+
+## Дискография
+
+### "Kingdoms of Your Life" 1999, Power Metal
+
+1. Remember the Storm 01:47 
+2. Imprisoned 05:38 
+3. Promised Land 04:29 
+4. Kingdoms of Your Life 05:51 
+5. Denials 05:05 
+6. Failed Mission 06:40 
+7. Fading Memories 04:46 
+8. The Sea 04:28 
+9. Barricades 05:22
+
+
+Produced by Custard
+ Recorded at Twin Records Studio, Dortmund by Custard and A. Steinmetz
+ Mixed at Twin Records Studio, Dortmund by Custard and A. Steinmetz
+ Mastered at Skywalk Studio Trier by Custard and M. Becker
+ Cover concept by Custard, cover art by Bjorn Lensig, layout & lithographs by DiggyStyle, Duisburg
+ 
+Brazilian version by Megahard Records released with EP "God of Storm" as bonus. 
+
+### "For My King" 2000, Power Metal
+
+1. Rise 00:37
+2. Up to the Sky 06:16
+3. I Know You 03:41
+4. Charon's Call 05:21
+5. Signs 03:38
+6. Freedom for All 05:24
+7. Deliver Me 06:24
+8. Master of the Dice 04:23
+9. Trees of Hope 04:12
+10. Ambrosia 02:56
+11. For My King 05:18
+
+
+Recorded at Twin Records Dortmund by Custard and A. Steinmetz
+Mixed at Twin Records Dortmund by CUSTARD and A. Steinmetz
+Mastered at KRD Studio Dortmund by CUSTARD and A. Steinmetz
+Cover Artwork by T. Ewerhard ; Concept by K-H. Schuster
+Photos by Studio Melchers Herne
+Distributed by Connected (G)
+ 
+track 1.2.5.9 by Michael Marquardt
+track 3.4.6.8.11 by Michael Marquardt & Dirk Wieczorek 
+track 7.10 by Dirk Wieczorek
+ 
+One bonus track on brazillian version by Megahard Records [2001]:
+12 - Blessed By The Light 
+
+### "Wheels of Time" 2005, Power Metal
+
+01.Fragments Of Eternity (Intro)
+02.Wheels Of Time
+03.Escape Reality
+04.Chance
+05.Inner Void
+06.One Step Too Far
+07.Sunrise
+08.Shine on
+09.Fade out
+10.Lost forever
+11.Scared
+
+
+All music by H. Simon except 9 & 10 by A.Steinmetz
+ All lyrics by G.Brieke
+ 
+Recorded and mixed at Twin Records Dortmund, Germany by Custard and A.Steinmetz. 
+
+### "Forces Remain" 2008, Power Metal
+
+1. Ancient Views (Intro) (1:25) 
+2. The Dragonslayer (4:35) 
+3. Creature (4:57) 
+4. Heaven Strikes (4:32) 
+5. Poke the Flames (6:39) 
+6. Enter the World (1:32) 
+7. Warcraft (3:55) 
+8. Kind of Peace (7:13) 
+9. Angel of Sorrow (6:28) 
+10. Final Stand (5:28) 
+11. For the Cross (5:42) 
+12. God of Storm (5:08) 
+13. Forces Remain (Outro) (2:05)
+
+
+Recorded at Tronicarts Studio Radevormwald by CUSTARD and T. Polejowski
+ Mixed at Tronicarts Studio Radevormwald by CUSTARD and T. Polejowski
+ Mastered at EMR Breckerfeld by Eroc
+ Cover Artwork and Layout by Christian Klute/
+ 
+"God of Storm" is a re-recording of a song that originally appeared on the EP of the same name in 1996. 
+
+### "Infested by Anger" 2012, Power Metal
+
+1. Call of Ares 01:26 
+2. Gods of War 04:27 
+3. The Parachute Infantry 00:23 
+4. Death from Above 03:12 
+5. My Last Breath 03:19 
+6. Black Friday 05:25 
+7. Time to Bleed 06:10 
+8. 300 04:36 
+9. Endless Pain 05:41 
+10. By Fire and Sword 05:06 1 
+11. A Knight 04:55 
+12. Dead Shall Rise 05:31 
+13. Hell Heart 05:45 
+14. Only Dust 04:48 
+15. Infested by Anger 04:41
+
 
 ## Отношения с другими группами
 

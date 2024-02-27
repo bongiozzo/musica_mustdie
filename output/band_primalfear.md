@@ -1,21 +1,301 @@
 # Primal Fear
 
-Дискография
-"Primal Fear" 1998, Power Metal
-"Jaws of Death" 1999, Power Metal
-"Nuclear Fire" 2001, Power Metal
-"Black Sun" 2002, Power Metal
-"The History of Fear [DVD]" 2003, Power Metal
-"Devils Ground" 2004, Power Metal
-"Seven Seals" 2005, Power Metal
-"New Religion" 2007, Power Metal
-"16.6 (Before the Devil Knows You're Dead)" 2009, Power Metal
-"Live In The USA" 2010, Power Metal
-"16.6 (All Over The World) [DVD]" 2010, Power Metal
-"Bad Guys Wear Black (single)" 2011, Power Metal
-"Unbreakable" 2012, Power Metal
-"Delivering The Black" 2014, Power Metal
-"Rulebreaker" 2016, Heavy Metal
+
+
+## Дискография
+
+### "Primal Fear" 1998, Power Metal
+
+1. Primal Fear
+2. Chainbreaker
+3. Silver&Gold
+4. Promised Land
+5. Formula One
+6. Dollars
+7. Nine Lives
+8. Tears Of Rage
+9. Speedking
+10. Battalions Of Hate
+11. Running In The Dust
+12. Thunderdome
+Ralf Scheepers - Lead & Backing Vocals
+Tom Naumann - Guitars & Keyboards
+Klaus Sperling - Drums
+Mat Sinner - Bass, Keyboards & Vocals
+Guests:
+Kai Hansen - guitars
+Frank Roessler - Add. Keyboards
+Produced By Mat Sinner
+All Songs written by PRIMAL FEAR, except
+"Speedking" by DEEP PURPLE
+(p)+(c)1998 Nuclear Blast
+
+### "Jaws of Death" 1999, Power Metal
+
+1. Jaws of Death
+2. Final Embrace
+3. Save a Prayer
+4. Church of Blood
+5. Into the Future
+6. Under your Spell
+7. Play to Kill
+8. Nation in Fear
+9. When the Night Comes
+10. Fight to survive
+11. Hatred in my Soul
+12. Kill the King
+
+
+Produced by Matt Sinner
+Mixed by The Hollywood Blasers
+
+Ralf Sheepers - Lead Vocals
+Tom Naumann - Guitars
+Stefan Leibing - guitars
+Klaus Sterling - Drums & Vocals
+Mat Sinner - Bass & Vocals
+
+
+
+### "Nuclear Fire" 2001, Power Metal
+
+1. Angel in Black                (3:58)
+2. Kiss of Death                 (3:49)
+3. Back from Hell                (3:45)
+4. Now Or Never                  (5:33)
+5. Fight the Fire                (4:23)
+6. Eye of an Eagle               (4:27)
+7. Bleed for Me                  (5:04)
+8. Nuclear Fire                  (4:23)
+9. Red Rain                      (4:50)
+10. Iron Fist in a Velvet Glove  (5:17)
+11. Fire on the Horizon          (3:30)
+12. Living for Metal             (3:41)
+
++ Angel in Black (video)
+
+### "Black Sun" 2002, Power Metal
+
+1. Countdown To Insanity (1:43) 
+2. Black Sun (4:01) 
+3. Armageddon (4:05) 
+4. Lightyears From Home (4:40) 
+5. Revolution (4:02) 
+6. Fear (4:19) 
+7. Mind Control (4:58) 
+8. Magic Eye (5:16) 
+9. Mind Machine (5:36) 
+10. Silence (4:39) 
+11. We Go Down (5:52) 
+12. Cold Day In Hell (4:10) 
+13. Controlled (3:36) 
+
+
+Ralf Scheepers - Vocals 
+Mat Sinner - Bass, Vocals 
+Stefan Leibing - Guitars 
+Klaus Sperling - Drums 
+Henny Wolter - Guitars 
+
+
+
+produced by Mat Sinner
+mixed by the Hollywood Blasers
+engineered by Achim Kцhler
+House of Music Studios - Germany & The Sonic Ranch, El Paso/Texas
+
+
+
+### "The History of Fear [DVD]" 2003, Power Metal
+
+
+
+### "Devils Ground" 2004, Power Metal
+
+01. Metal Is Forever (4:46)
+02. Suicide & Mania (4:04)
+03. Visions Of Fate (4:50)
+04. The Healer (6:30)
+05. Sacred Illusion (4:03)
+06. In Metal (5:13)
+07. Soulchaser (4:51)
+08. Sea Of Flames (4:02)
+09. Wings of Desire (6:45)
+10. Heart Of A Brave (4:52)
+11. Colony 13 (3:57)
+12. Devil's Ground (1:52)
+
+Ralf Scheepers - vocals
+Mat Sinner - bass
+Tom Naumann - guitar
+Randy Black - drums
+Stefan Leibing - guitar
+
+Produced by Mat Sinner for Fear Music
+Co-produced by Primal Fear and Achim Kohler
+Engineered, mixed & mastered by Achirn Kobler at
+the House Of Music Studios, Sept-Nov 2003
+Second engineer: Ingmar Schelzei -Published bv
+Warner/Chappeli - Hans Earth
+Ali songs were written by Sinner, Leibing,
+Naumann, and Scheepers, except #5, which was
+written by PRIMAL FEAR and Vinder (www.vinder.de)
+Frontcover by Leo Hao
+Layout bv Thomas Ewerhard
+Photos bv Alex Kuhr
+
+### "Seven Seals" 2005, Power Metal
+
+1. Demons & Angels 05:32  
+2. Rollercoaster 04:28  
+3. Seven Seals 03:54  
+4. Evil Spell 04:32  
+5. The Immortal Ones 04:19  
+6. Diabolus 07:54  
+7. All For One 07:53  
+8. Carniwar 03:17  
+9. Question Of Honour 07:26  
+10. In Memory 05:07
+
+### "New Religion" 2007, Power Metal
+
+1. Sign Of Fear 04:47  
+2. Face The Emptiness 04:36  
+3. Everytime It Rains 03:53  
+4. New Religion 04:04  
+5. Fighting The Darkness 08:45  
+6. Blood On Your Hands 04:02  
+7. The Curse Of Sharon 04:41  
+8. Too Much Time 05:14  
+9. Psycho 03:55  
+10. World On Fire 03:54  
+11. The Man (That I Don't Know) 06:11 
+
+
+Guest vocals by Epica's Simone Simons on song "Every Time It Rains".
+
+Song #5 is made of 3 parts: 1. Fighting the Darkness, 2. The Darkness and 3.
+Reprise. 
+
+
+Ralf Scheepers - Vocals 
+Stefan Leibing - Guitars/Keyboards 
+Hendrik "Henny" Wolter - Guitars 
+Mat Sinner - Bass/Vocals 
+Randy Black - Drums
+
+### "16.6 (Before the Devil Knows You're Dead)" 2009, Power Metal
+
+1. Before the Devil Knows You're Dead 00:51  
+2. Riding the Eagle 05:00
+3. Six Times Dead (16.6) 04:02
+4. Black Rain 06:09 
+5. Under the Radar 05:28
+6. 5.0 / Torn 07:15  
+7. Soar 04:18
+8. Killbound 04:15 
+9. No Smoke Without Fire 04:54
+10. Night After Night 05:03
+11. Smith & Wesson 04:47
+12. The Exorcist 04:49
+13. Hands of Time 04:23 
+
+Limited edition bonus tracks:
+14. Cry Havoc (4:00)
+15. Scream (4:41)
+16. Six Times Dead (16.6) (video)
+
+### "Live In The USA" 2010, Power Metal
+
+1. Before The Devil Knows You're Dead
+2. Under The Radar
+3. Battalions Of Hate
+4. Killbound
+5. Nuclear Fire
+6. Six Times Dead (16.6)
+7. Angel In Black
+8. Sign Of Fear
+9. Fighting The Darkness
+10. Riding The Eagle
+11. Final Embrace
+12. Metal Is Forever
+13. Hands Of Time
+14. Chainbreaker
+
+### "16.6 (All Over The World) [DVD]" 2010, Power Metal
+
+1. Before The Devil Knows You?re Dead
+2. Under The Radar
+3. Battalions Of Hate
+4. Killbound
+5. Nuclear Fire
+6. Six Times Dead (16.6)
+7. Angel in Black
+8. Guitars From Hell
+9. Sign Of Fear
+10. Fighting The Darkness
+11. Riding The Eagle
+12. Final Embrace
+13. Primal Fear
+14. Metal Is Forever
+15. Hands Of Time
+16. Seven Seals
+17. Chainbreaker
+
+### "Bad Guys Wear Black (single)" 2011, Power Metal
+
+1. Bad Guys Wear Black 03:31
+2. Metal Nation (Single Edit) 03:47
+
+
+### "Unbreakable" 2012, Power Metal
+
+1. Unbreakable (Part 1) 
+2. Strike 
+3. Give 'Em Hell 
+4. Bad Guys Wear Black 
+5. And There Was Silence 
+6. Metal Nation 
+7. Where Angels Die 
+8. Unbreakable (Part 2) 
+9. Marching Again 
+10. Born Again 
+11. Blaze of Glory 
+12. Conviction 
+13. Night of the Jumps 
+
+"Night of the Jumps" is a bonus track only available in the first pressing in digipak.
+ 
+Japanese edition includes one additional bonus track:
+ 14. Born Again (acoustic version) 
+
+### "Delivering The Black" 2014, Power Metal
+
+01. King For A Day
+02. Rebel Faction
+03. When Death Comes Knocking
+04. Alive & On Fire
+05. Delivering The Black
+06. Road To Asylum
+07. One Night In December
+08. Never Pray For Justice
+09. Born With A Broken Heart
+10. Inseminoid
+
+### "Rulebreaker" 2016, Heavy Metal
+
+01. Angels Of Mercy
+02. The End Is Near
+03. Bullets & Tears
+04. Rulebreaker
+05. In Metal We Trust
+06. We Walk Without Fear
+07. At War With The World
+08. The Devil In Me
+09. Constant Heart
+10. The Sky Is Burning
+11. Raving Mad
+
 
 ## Отношения с другими группами
 

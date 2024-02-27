@@ -1,7 +1,21 @@
 # Obidil
 
-Дискография
-"The Magic Word" 2003, Heavy Metal
+
+
+## Дискография
+
+### "The Magic Word" 2003, Heavy Metal
+
+1. Burnt Wings 04:17
+2. Obidil - The Magic Word 02:53
+3. Erazem Predjamski 03:11
+4. Pot Spoznanj 04:16
+5. The Parallel World 03:00
+6. The Dragon's Story 04:45 
+7. Ne Iљиi Veи 04:22
+8. Intro The Night 03:07 
+9. Noи 04:33 [ 
+
 
 ## Отношения с другими группами
 

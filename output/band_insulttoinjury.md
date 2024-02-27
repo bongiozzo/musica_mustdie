@@ -1,7 +1,36 @@
 # Insult To Injury
 
-Дискография
-"Point Of This" 1995, Alternative
+
+
+## Дискография
+
+### "Point Of This" 1995, Alternative
+
+1. Point Of This
+2. Self Centered
+3. Freedom
+4. Deadman
+5. Injustice
+6. Shattered In The Head
+7. Ruled By Hatred
+8. Identify Crisis
+9. These Sears
+10.Catalyst
+
+All Songs By INSULT TO  INJURY.
+Produced By INSULT TO INJURY &
+Bobby Gustafson.
+Engineered & Mixed By Joe Carrano.
+Recorded & Mixed At Presence Studios, CT.
+
+James Gibbons - Vocals
+Brian McKean - Bass
+Kenn Braun - Drums
+Kurt Remppel - Guitar
+Steve Scheluchin - Guitar
+
+(P)&(C) 1995 CENTURY MEDIA Records
+
 
 ## Отношения с другими группами
 

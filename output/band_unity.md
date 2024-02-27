@@ -1,7 +1,22 @@
 # Unity
 
-Дискография
-"Reborn" 2011, Heavy Metal
+
+
+## Дискография
+
+### "Reborn" 2011, Heavy Metal
+
+1. Prelude to Rebirth	 
+2. The Curse of the Nile
+3. The Mirror Never Lies
+4. Condemned
+5. A New Horizon
+6. Welcome to the Masquerade
+7. Man of the Sea
+8. Yesterday Is Gone
+9. Afterlife
+10. Arise
+
 
 ## Отношения с другими группами
 

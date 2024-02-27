@@ -1,8 +1,39 @@
 # Dreamland
 
-Дискография
-"Future's Calling" 2005, Power Metal
-"Eye For An Eye" 2007, Power Metal
+
+
+## Дискография
+
+### "Future's Calling" 2005, Power Metal
+
+1. The Chance 01:04  
+2. Hearts Like Lions 04:51  
+3. A New Way 04:25 
+4. Breaking The Chains 05:02 
+5. Destiny 04:40  
+6. Die Slowly 04:35 
+7. Fade Away 05:03 
+8. All For One 04:18  
+9. Dreamland 04:39
+10. Future's Calling 04:12
+11. Blank Mind 01:18 
+12. A New Dimension 04:25  
+13. Repeating Supremacy (outro) 00:59
+
+### "Eye For An Eye" 2007, Power Metal
+
+1. Eye For An Eye 03:16  
+2. Carousel Of Pain 03:33  
+3. Reverse Deny 03:47  
+4. Secret Signs 04:16  
+5. Chosen Ones 04:09  
+6. Spread Your Wings 03:40  
+7. Shadows Of The Night 03:59  
+8. Heavenly Designed 03:15  
+9. Children Of Tomorrow 04:02  
+10. Forever And Ever 03:53  
+11. Revolution In Paradise 05:28
+
 
 ## Отношения с другими группами
 

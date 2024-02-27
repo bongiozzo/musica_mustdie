@@ -1,8 +1,45 @@
 # One Without
 
-Дискография
-"Thoughts Of A Secluded Mind" 2009, Metalcore
-"Sweet Relief" 2011, Metalcore
+
+
+## Дискография
+
+### "Thoughts Of A Secluded Mind" 2009, Metalcore
+
+1. Farewell  04:10 
+2. Your Game  04:35  
+3. Before We All  04:18  
+4. Separation  03:57   
+5. Withered Serenade  04:48   
+6. Reign With Hate  03:44   
+7. Ignorance  04:38   
+8. Distance Between  04:04   
+9. Reachable Existence  05:13 
+10. Once In Silence  03:18   
+11. Lost To Solitude  04:40
+12. Chained  05:43   
+13. Whispers Of The Voiceless (Exclusive Japan Bonustrack)  03:55 
+
+### "Sweet Relief" 2011, Metalcore
+
+1. Hunger  04:17 
+2. Forget Your Pride  03:23 
+3. Persistent  02:31  
+4. Catatonic  04:24 
+5. Accusing Eyes  03:34   
+6. Souls of Thousands  04:12 
+7. Sweet Relief  03:44 
+8. Spit it Out  03:27  
+9. Nothing to You  03:46  
+10. Burned Once Again  03:17 
+11. Pretender  03:44 
+12. A Bright New Insight  04:33
+13. Open Wound  03:09  
+14. Burning with your Hopes and Dreams  03:25  
+15. Leaving Traces  04:05  
+16. Stained with your Words  04:22  
+17. This is War  04:40 
+
 
 ## Отношения с другими группами
 

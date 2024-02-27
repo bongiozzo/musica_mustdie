@@ -1,8 +1,42 @@
 # Frameshift
 
-Дискография
-"Unweaving the Rainbow" 2003, Progressive
-"An Absence Of Empathy" 2005, Progressive
+Progressive orchestral rock
+
+## Дискография
+
+### "Unweaving the Rainbow" 2003, Progressive
+
+1.Above The Grass Part I  0.43  
+2.The Gene Machine  5.32  
+3.Spiders  4.14  
+4.River Out Of Eden  5.40  
+5.Message From The Mountain  9.57  
+6.Your Eyes  2.57  
+7.La Mer  5.55  
+8.Nice Guys Finish First  5.43  
+9.Arms Races  8.33  
+10.Origins And Miracles  5.06  
+11.Off The Ground  5.50  
+12.Walking Through Genetic Space  4.07  
+13.Cultural Genetics  4.24  
+14.Bats  3.58  
+15.Above The Grass Part II  6.51 
+
+
+Henning Pauly - Guitar, Bass, Keyboards, Loop Programming, Percussion, Orchestration, Compositions, Lyrics 
+James LaBrie - Vocals, Compositions, Lyrics 
+Eddie Marvin - Drums 
+Nick Guadagnoli - Bass, Stick, Guitar 
+Matt Cash - Lyrics 
+
+guest musicians:
+Shawn Gordon - Add. Keyboards 
+Steve Katsikas - Sax
+
+### "An Absence Of Empathy" 2005, Progressive
+
+
+
 
 ## Отношения с другими группами
 

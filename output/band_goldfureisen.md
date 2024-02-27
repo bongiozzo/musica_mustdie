@@ -1,7 +1,13 @@
 # Gold Fur Eisen
 
-Дискография
-"Kein Morgen" 1998, Black Metal
+
+
+## Дискография
+
+### "Kein Morgen" 1998, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

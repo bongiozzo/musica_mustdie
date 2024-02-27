@@ -1,12 +1,49 @@
 # Mistress Of The Dead
 
-Дискография
-"Weeping Silence of the Dead" 2006, Doom
-"Cryptic" 2006, Doom
-"Buried" 2006, Doom
-"White Roses, White Coffin" 2008, Doom
-"I Know Her Face from the Tombstone" 2009, Doom
-"Henriette`s Message from the Other Shore" 2011, Doom
+
+
+## Дискография
+
+### "Weeping Silence of the Dead" 2006, Doom
+
+1. Weeping Silence of the Dead 09:21 
+2. I've Brought You Flowers 15:42 
+3. Her Eyes Stopped to Cry 15:22 
+4. Most Torturous Depth of Looks of Cemetary Statues 21:03 
+5. ...and Her Silence Is Telling Me (Outro) 06:11 
+
+### "Cryptic" 2006, Doom
+
+1. Take Away 18:20
+2. Grey Light of the Sentenced 17:13 
+3. The Sadest Autumn 12:53
+4. Cryptic 18:41 
+
+### "Buried" 2006, Doom
+
+1. Buried 19:13
+2. Cinerary Rain 14:27
+3. Vortex 23:44 
+
+### "White Roses, White Coffin" 2008, Doom
+
+1. My Beloveth 13:15
+2. The Fading Light in Her Dying Eyes 18:50
+3. She Gave Me Her All... 20:43
+4. White Roses, White Coffin 23:16 
+
+### "I Know Her Face from the Tombstone" 2009, Doom
+
+1. I Know Her Face from the Tombstone 16:51  
+2. Embracing Silent Death 14:26  
+3. Only Ashes and Remembrance 15:09  
+4. Tragical Smell of Grave Flowers (...is weeping for Your death...) 19:03 
+
+### "Henriette`s Message from the Other Shore" 2011, Doom
+
+1. As I Walk Like a Wraith...	 
+2. Henriette`s Message from the Other Shore
+
 
 ## Отношения с другими группами
 

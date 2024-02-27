@@ -1,8 +1,74 @@
 # Timo Tolkki
 
-Дискография
-"Classical Variations And Themes" 1994, Heavy Metal
-"Hymn To Life" 2002, Heavy Metal
+
+
+## Дискография
+
+### "Classical Variations And Themes" 1994, Heavy Metal
+
+1. Lord Of The Rings
+2. Fire Dance Suite
+3. Guitar Concerto
+4. Northern Lights
+5. Capriccio In A Minor
+6. Back To The Ice Age
+7. Death Of A Swan
+8. Soldiers Prayer
+9. Flying Samir
+10. Sunwinds
+11. Greensleeves
+Timo Tolkki: All guitars, bass, guitar synth
+and vocals
+Tuomo Lassila: Drums
+Antti Ikonen: Keyboards
+All music, words and arrangements by Timo Tolkki,
+except 3. by Aranjuez, 7. theme by Tchaikovsky
+and 11 trad...
+(p)(c) 1994 CLM
+
+### "Hymn To Life" 2002, Heavy Metal
+
+01. Primal
+02. Key to the universe
+03. Now I Understand
+04. Divine
+05. Little boy I miss you
+06. I Believe
+07. Are you the one?
+08. Father
+09. Fresh blue waters
+10. Dear god
+11. It's X-Mas morning
+12. Hymn To Life
+
+
+
+Timo Tolkki - vocals, all guitars, bass
+Anssi Nykanen - drums
+Mika Ervaskari - keyboards
+
+
+
+Produced by Timo Tolkki for Goldenworks
+Recorded at Hastholmen & home between
+April-September
+Mixed at Finnvox Studios
+Engineered and mixed by Timo Tolkki
+
+Timo Tolkki: guitar, bass, keyboards & vocals
+Anssi Nykanen: drums
+Mika Ervaskari: piano & keyboards
+Michael Kiske: vocals on "Key to the universe"
+Sharon Den Adel: vocals on "Are you the one?"
+
+Mastered at Finnvox Studios by Pauli Saastamolnen
+Cover Artwork&concept bv Derek Riggs
+Layout by Rade Puolakka/raDesign
+Photos by Jouko Lehtola
+
+
+
+
 
 ## Отношения с другими группами
 

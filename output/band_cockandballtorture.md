@@ -1,18 +1,182 @@
 # Cock and Ball Torture
 
-Дискография
-"Cocktales (EP)" 1997, Grindcore
-"Veni Vidi Spunky (EP)" 1999, Grindcore
-"Anal Cadaver (EP)" 1999, Grindcore
-"Cocktales (EP) (re-release)" 1999, Grindcore
-"Opus(sy) VI" 2000, Grindcore
-"Zoophilia (EP)" 2000, Grindcore
-"Barefoot & Hungry (EP)" 2001, Grindcore
-"Fisting The Whores (EP)" 2001, Grindcore
-"Big Tits - Big Dicks (EP)" 2001, Grindcore
-"Where Girls Learn To Piss On Command (EP)" 2002, Grindcore
-"Sadochismo" 2002, Grindcore
-"Egoleech" 2004, Grindcore
+High-class porngrind from Germany
+
+## Дискография
+
+### "Cocktales (EP)" 1997, Grindcore
+
+1. The Taste Of Animal Sperm - The Orgasm Of A Hyena 
+2. After Master 
+3. Fresh Ejaculata 
+4. Scrotum Blast 
+5. Horny Hosier 
+6. The Cock And Ball Torture 
+7. Cuntkiller 
+8. Sperm-Orgy 
+9. She Sucks As Hard As She Can 
+10. Hymen 
+11. Phrenetic Pussy Slasher 
+12. Frenzy Lesbians 
+13. Pussy Commando 
+14. Drowned In Sperm 
+15. Randy Rectum Fistfuck 
+16. Colonel Cunt 
+
+(c)(p) 1997 Selfreleased
+
+### "Veni Vidi Spunky (EP)" 1999, Grindcore
+
+1. F.B.I - Funny Butt Injector 
+2. Exhymed (Hymen Part II) 
+3. Anal Intruder 2000 
+4. Dildo Debacle 
+5. Shaven Smooth Snatch
+6. Diarrhea Derby 
+7. Clit-Doris 
+
+(c)&(p) 1999 Bizarre Lerpous Production
+
+### "Anal Cadaver (EP)" 1999, Grindcore
+
+Twat Crack Terror 
+12 Inch Vibro Pleasures 
+Anal-Phabetic Hymenity 
+Filthy Phone Fuck Sluts 
+
+(c)&(p) 1999 No Weak Shit Records (USA)
+
+### "Cocktales (EP) (re-release)" 1999, Grindcore
+
+1. The Taste Of Animal Sperm - The Orgasm Of A Hyena 
+2. After Master 
+3. Fresh Ejaculata 
+4. Scrotum Blast 
+5. Horny Hosier 
+6. The Cock And Ball Torture 
+7. Cuntkiller 
+8. Sperm-Orgy 
+9. She Sucks As Hard As She Can 
+10. Hymen 
+11. Phrenetic Pussy Slasher 
+12. Frenzy Lesbians 
+13. Pussy Commando 
+14. Drowned In Sperm 
+15. Randy Rectum Fistfuck 
+16. Colonel Cunt 
+
+(c)(p) 1999 Shredded Records
+
+### "Opus(sy) VI" 2000, Grindcore
+
+01. Anal Sex Terror 
+02. Candy Teen Pussy Pleasures 
+03. Faekal Fatal 
+04. Anna'n'Ass 
+05. Fat Sex Mama 
+06. Spunky Monkey 
+07. King Anus III 
+08. Big Tit Slappers 
+09. Lesbian Duo Dildo Fuck 
+10. Spank Me - Fuck Me - Fill Me 
+11. Rosetta Twist 
+12. Panda Penis 
+13. Koala Cunt 
+14. Bi-bee 
+15. Anal Lilly Pissing Chick 
+16. Fist Fuck Family 
+17. Torture Line Ball'o'nese 
+18. Important Impotence 
+19. Juicy Lucy 
+20. Vulvurine Cooze Blues 
+21. Whorrorbitch 
+
+(c)&(p) 2000 Shredded Records
+
+### "Zoophilia (EP)" 2000, Grindcore
+
+Tapir Tits 
+Scato Scampi 
+Pingurine 
+Dingo Dong 
+
+(c)&(p) 2000 Bones Brigade
+
+### "Barefoot & Hungry (EP)" 2001, Grindcore
+
+Titty Torture Bondage Boys 
+Poontang Clan 
+Tampon Terrorizer 
+Lesbian Latex Legion 
+
+(c)(p) 2001 Lofty Storm Records
+
+### "Fisting The Whores (EP)" 2001, Grindcore
+
+See The Shit With Your Own Eyes (Nasum cover) 
+Dead Girls Don't Say No (Gut cover) 
+Hasta La Vista Baby (Squash Bowels Cover) 
+Consuming Purulent Sputum (Last Days Of Humanity cover) 
+Doorway To Destruction (Suppository cover) 
+
+(c)&(p) 2001 Bizarre Leprous Productions
+
+### "Big Tits - Big Dicks (EP)" 2001, Grindcore
+
+Cunt Caviar 
+Sexcretion 
+Buttman Goes To Rio 
+Suborbital Ejaculation (cover) 
+
+(c)&(p) 2001 Fleshfeast Production (Spain)/Unmatched Brutality Records (USA)
+
+### "Where Girls Learn To Piss On Command (EP)" 2002, Grindcore
+
+Where Girls Learn To Piss On Command 
+Tampon Removal 
+Barefoot & Hungry 
+Barbaric Teenage Orgasm Simulator 
+Cold Turkey (cover) 
+Zombie Squad 69 (cover) 
+
+(c)&(p) 2002 Stuhlgang Records
+
+### "Sadochismo" 2002, Grindcore
+
+01  Where Girls Learn To Piss On Command 
+02  Heterosexual Testosterone Compressor 
+03  Enema Bulldozer 
+04  Instant Onanizer 
+05  Whoredom Sonata 
+06  Aphrodisianus 
+07  Colon Latino 
+08  Kamikaze Incest 
+09  Caudal Armada 
+10  Multiple Slave Sex 
+11  Klistier Power 
+12  Faggot Filter 
+13  Cellulite Convoy 
+14  G-Spot Gigolo 
+15  Supreme Genital Goddess 
+
+(c)&(p) 2002 Ablated Records (USA)/The Spew Records (Italy)
+
+### "Egoleech" 2004, Grindcore
+
+1. Another Arch Abraded 
+2. Close Your Eyes And Bear It 
+3. Blindfold, Bare, Submissive 
+4. Complex 27 
+5. Be Raped, Bereaved 
+6. She No Longer Cared 
+7. Sharp And Slender 
+8. Sono Sterile Theory 
+9. Thickening 
+10. Six Holes Cut 
+11. Thirty Degrees Backwards 
+12. Contagious 
+13. One Inch Left
+
 
 ## Отношения с другими группами
 

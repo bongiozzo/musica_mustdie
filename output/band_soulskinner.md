@@ -1,8 +1,37 @@
 # Soulskinner
 
-Дискография
-"Breeding the Grotesque" 2003, Death Metal
-"Non Stop Killing" 2007, Death Metal
+
+
+## Дискография
+
+### "Breeding the Grotesque" 2003, Death Metal
+
+1.	 Feeding on Angels	04:17	 
+2.	 The Call of the Daemons	02:58	 
+3.	 Rule by the Bullet	02:56	 
+4.	 Nocturnal Supremacy	02:56	 
+5.	 Soulskinner	02:26	 
+6.	 Testimonial Carnage	03:53	 
+7.	 Inherit the Nightmares	04:16	 
+8.	 Forged in Combat	04:17	 
+9.	 Wolverine Devourment	03:02	 
+10.	 Blood of the Perished	03:35	 
+11.	 Cultivating the Plague	03:33	 
+12.	 Breeding the Grotesque	03:13	
+
+### "Non Stop Killing" 2007, Death Metal
+
+1.	 Echoes Of Sickness	03:24	 
+2.	 Age Of Terror	02:45	 
+3.	 Land Of Gore	03:41	 
+4.	 Non Stop Killing	05:02	 
+5.	 Not My God	03:02	 
+6.	 Absolute Terror	03:20	 
+7.	 The Final Journey	02:44	 
+8.	 Conception Of Fear	03:15	 
+9.	 Circle Of The Impious Mortals	03:51	 
+10.	 Manmade Predators	04:02
+
 
 ## Отношения с другими группами
 

@@ -1,9 +1,71 @@
 # Seance
 
-Дискография
-"Fornever Laid To Rest" 1992, Deathcore
-"Saltrubbed Eyes" 1993, Deathcore
-"Awakening of the Gods " 2009, Deathcore
+
+
+## Дискография
+
+### "Fornever Laid To Rest" 1992, Deathcore
+
+1. Who Will Not Be Dead
+2. Reincarnage
+3. The Blessing Of Death
+4. Sin
+5. Haunted
+6. Fornever Laid To Rest
+7. Necronomicon
+8. Wind Of Gehenna
+9. Inferna Cabbala
+
+ Johan - Vocal
+ Jensen - Guitar
+ Tony - Guitar
+ Bino - Bass
+ Micke - Drums
+
+Produced By SEANCE & Berno Paulsson.
+
+(p)&(c) 1992 BLACK MARK Productions
+
+### "Saltrubbed Eyes" 1993, Deathcore
+
+1. Soulerosion
+2. 13th Moon
+3. Saltrubbed Eyes
+4. Controlled Bleeding
+5. Angelmeat (Part II)
+6. 'Til Death Do Us Join
+7. Sanctum
+8. Skinless
+9. Hidden Under Scars
+
+ Johan - Vocals
+ Jensen - Guitar
+ Tony - Guitar
+ Bino - Bass
+ Micke - Drums
+
+Music & Lyrics By Jensen
+Produced By SEANCE & Berno Paulsson
+Recorded At Berno Studios, Malmo (Sweden)
+In September 1993
+
+(p)&(c) 1993 BLACK MARK Production
+
+### "Awakening of the Gods " 2009, Deathcore
+
+1. Wasted 03:34  
+2. They 04:57  
+3. Your Time Has Come 02:56  
+4. Invocation 03:35  
+5. Flight of The Wicked 00:49  
+6. Murder 03:29  
+7. Choose Your Eternety 04:02  
+8. Forever Haunted 04:30  
+9. Revel In Death 01:47  
+10. Prisoner 666 03:11  
+11. Burn Me 03:54 
+
+
 
 ## Отношения с другими группами
 

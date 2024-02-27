@@ -1,9 +1,31 @@
 # Huntress
 
-Дискография
-"Off With Her Head (EP)" 2010, Metal
-"Spell Eater" 2012, Metal
-"Starbound Beast" 2013, Metal
+
+
+## Дискография
+
+### "Off With Her Head (EP)" 2010, Metal
+
+
+
+### "Spell Eater" 2012, Metal
+
+
+
+### "Starbound Beast" 2013, Metal
+
+01. Enter The Exosphere
+02. Blood Sisters
+03. I Want To Fuck You To Death
+04. Destroy Your Life
+05. Starbound Beast
+06. Zenith
+07. Oracle
+08. Receiver
+09. Spectra Spectral
+10. Alpha Tauri
+11. Running Wild (Judas Priest Cover)
+
 
 ## Отношения с другими группами
 

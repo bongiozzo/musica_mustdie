@@ -1,10 +1,43 @@
 # Aggression
 
-Дискография
-"The Full Treatment" 1987, Thrash
-"Forgotten Skeleton" 2004, Thrash
-"Fractured Psyche Demons" 2015, Thrash
-"Fragmented Spirit Devils" 2016, Thrash
+
+
+## Дискография
+
+### "The Full Treatment" 1987, Thrash
+
+1. Forsaken Survival 03:52
+2. Frozen Aggressor 04:47
+3. Green Goblin 02:41
+4. One for the Woods 03:30
+5. Dripping Flesh 05:22
+6. By the Reaping Hook 05:33
+7. Demolition 04:32
+8. Rotten by Torture 04:02
+9. The Final Massacre 08:09 
+
+### "Forgotten Skeleton" 2004, Thrash
+
+1. Forgotten Skeleton 03:26  
+2. By the Reaping Hook 05:37  
+3. Rotten by Torture 03:59  
+4. Frozen Aggressor 04:32  
+5. Green Goblin 02:39  
+6. Forsaken Survival 03:51  
+7. Mutilator - Beware of the Scarecrow 05:33  
+8. Kachina Dolls 03:54  
+9. Bloody Massacre Carnival 04:03  
+10. Demolition 04:28  
+11. The Final Massacre 08:19 
+
+### "Fractured Psyche Demons" 2015, Thrash
+
+
+
+### "Fragmented Spirit Devils" 2016, Thrash
+
+
+
 
 ## Отношения с другими группами
 

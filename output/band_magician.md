@@ -1,7 +1,13 @@
 # Magician
 
-Дискография
-"Tales Of The Magician" 2008, Power Metal
+
+
+## Дискография
+
+### "Tales Of The Magician" 2008, Power Metal
+
+
+
 
 ## Отношения с другими группами
 

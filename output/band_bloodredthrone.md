@@ -1,14 +1,118 @@
 # Blood Red Throne
 
-Дискография
-"Monument of Death" 2001, Death Metal
-"Affiliated with the Suffering" 2002, Death Metal
-"Altered Genesis" 2005, Death Metal
-"Come Death" 2007, Death Metal
-"Souls Of Damnation" 2009, Death Metal
-"Brutalitarian Regime" 2011, Death Metal
-"Blood Red Throne" 2013, Death Metal
-"Union of Flesh and Machine" 2016, Death Metal
+
+
+## Дискография
+
+### "Monument of Death" 2001, Death Metal
+
+ 
+   1.   Portrait of a Killer (Blood Red Throne/Fx/Kirkesola/Tchort) - 5:32 
+   2.   Souls of Damnation (Blood Red Throne/Fx/Kirkesola/Tchort) - 3:39 
+   3.   The Children Shall Endure (Blood Red Throne/Fx/Kirkesola/Tchort) - 3:15 
+   4.   Dream Controlled Murder (Blood Red Throne/Fx/Kirkesola/Tchort) - 4:25 
+   5.   Mary Whispers of Death (Blood Red Throne/Fx/Kirkesola/Tchort) - 4:52 
+   6.   Ravenous War Machine (Blood Red Throne/Fx/Kirkesola/Tchort) - 5:58 
+   7.   Malignant Nothingness (Blood Red Throne/Fx/Kirkesola/Tchort) - 3:30 
+   8.   Monument of Death (Blood Red Throne/Fx/Kirkesola/Tchort) - 3:05 
+   9.   Path of Flesh (Blood Red Throne/Fx/Kirkesola/Tchort) - 4:21 
+
+
+### "Affiliated with the Suffering" 2002, Death Metal
+
+01. A Dream of Death
+02. Affiliated With the Suffering
+03. Blood Pledge
+04. Chaos Rising!
+05. Unleashing Hell
+06. Razor Jack
+07. Gather the Dead
+
+
+
+### "Altered Genesis" 2005, Death Metal
+
+
+
+### "Come Death" 2007, Death Metal
+
+01. Slaying the Lamb
+02. Deranged Assassin
+03. Rebirth in Blood
+04. Guttural Screams
+05. Taste of God
+06. No New Beginning
+07. Come Death
+08. Considered Dead
+09. Another Kill
+
+### "Souls Of Damnation" 2009, Death Metal
+
+1. The Light, The Hate 04:19  
+2. Harme 04:35  
+3. Your Cold Flesh 03:37  
+4. Human Fraud 04:17  
+5. Demand 03:32  
+6. Throne Of Damnation 03:35  
+7. Prove Yourself Dead 04:36  
+8. Not Turgenjev, But Close 03:32  
+9. Ten Steps Of Purgatory 06:41 
+Bonus tracks on the limited edition:
+10. Manifest Of Lies
+11. Affiliated With The Suffering 
+
+
+
+Line-up:
+
+Vald - Vocals
+Dшd (Daniel Olaisen) - Guitars
+Tchort (Terje Vik Schei) - Guitars
+Erlend Caspersen - Bass
+Anders Haave - Drums
+
+
+### "Brutalitarian Regime" 2011, Death Metal
+
+1. Brutalitarian Regime 02:53
+2. Graveworld 03:30
+3. Trapped Terrified Dead 04:53
+4. Eternal Decay 04:14
+5. Games of Humiliation 04:18
+6. The Burning 04:00
+7. Proliferated Unto Hemophobia 04:24
+8. Melena 04:16
+9. Parnassian Cacoepy 05:10
+10. Twisted Truth (Pestilence Cover) 03:48
+
+
+
+Erlend Caspersen - Bass 
+Dшd - Guitars 
+Vald - Vocals 
+Emil Wiksten - Drums 
+Ivan Gujic -Guitars 
+
+
+
+### "Blood Red Throne" 2013, Death Metal
+
+
+
+### "Union of Flesh and Machine" 2016, Death Metal
+
+1. Revocation of Humankind 
+2. Proselyte Virus 
+3. Patriotic Hatred 
+4. Homicidal Ecstacy 
+5. Martyrized 
+6. Union of Flesh and Machine	 
+7. Legacy of Greed	 
+8. Exposed Mutation	 
+9. Primal Recoil 
+10. Leather Rebel (Judas Priest cover)	 
+11. Mary Whispers of Death
+
 
 ## Отношения с другими группами
 

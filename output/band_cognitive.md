@@ -1,8 +1,17 @@
 # Cognitive
 
-Дискография
-"Cognitive" 2014, Techno Death
-"Deformity" 2016, Techno Death
+
+
+## Дискография
+
+### "Cognitive" 2014, Techno Death
+
+
+
+### "Deformity" 2016, Techno Death
+
+
+
 
 ## Отношения с другими группами
 

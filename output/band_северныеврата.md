@@ -1,11 +1,107 @@
 # Северные Врата
 
-Дискография
-"Отчизна" 2000, Metal
-"На Войну" 2001, Metal
-"Правь" 2003, Metal
-"Равновесие" 2005, Metal
-"Волот" 2009, Metal
+Slavonic Folk & Metal Mix With Russian Lyrics
+
+## Дискография
+
+### "Отчизна" 2000, Metal
+
+1. Ненастье
+2. Былые Времена
+3. Ария Варяжского Гостя (из оперы Римского-Корсакого "Садко")
+4. Угрюм-река
+5. Оберег
+6. Сага о Вяйнемяйнене
+
+
+Александр Невский: гитара, вокал
+Никита Паршиков: бас
+Артем Баграмов: гитара, клавишные
+
+Звукорежиссер: Денис Можин.
+
+Спасибо:
+нашим родителям, Владимиру (волхву невского края),
+Кискину Роману и Лерману Андрею (Great Sorrow), Лене Коненко,
+Денису Петрову, Андрею Морозову, Лене Мусаевой,
+Марине Ивановой, Валерии и Сергею Голубцову..
+
+### "На Войну" 2001, Metal
+
+1. Чернород
+2. На войну
+3. Руна Речь
+4. Сеча
+5. Тризна
+6. Больная кровь
+7. Отчизна
+8. Воин Рось
+9. Клятва
+10. Черный ворон
+11. Былые времена
+
+
+Александр Невский: гитара, вокал
+Никита Паршиков: бас
+Борис Белов: ритм гитара и акустическая гитара
+Роман Кискин: барабаны
+Евгения Гулева: клавиши
+
+### "Правь" 2003, Metal
+
+1. Путь свободы
+2. Коловрат
+3. Былина
+4. Кузница
+5. Human Forest
+6. Яровит
+7. Добыча
+8. Сокол
+9. Стрибог
+10. Полюшко-поле
+11. Утёс
+12. Последний бой
+
+Produced by Anssi Kippo and СЕВЕРНЫЕ ВРАТА
+Recorded, mixed and mastered at Astia Studio “A” in Nov-Dec 2002 by 
+Anssi Kippo
+All lyrics by Nevsky, except 3 by Parshikov, 11 by Kobzev, 10 – lyrics 
+based on a song by V. Gusev, music by an unknown author
+All music and arrangements by Nevsky and СЕВЕРНЫЕ ВРАТА, except 11 by 
+Reload and СЕВЕРНЫЕ ВРАТА
+
+Alexander Nevsky – guitars, vocals
+Boris Belov – guitars
+Nikita Parshikov – bass
+Sergey Kalinin – drums
+Eugenia Guleva – keyboards
+
+Balalaika by Oleg Gafarov (Karusel)
+
+(p)(c) 2003 Fono
+
+### "Равновесие" 2005, Metal
+
+1. Бурелом 
+2. Равновесие 
+3. Небеса 
+4. Карелия 
+5. Судьба Волхва 
+6. Сумерки 
+7. В стременах 
+8. Инструментал 
+
+Line-Up: 
+Alexander Nevsky - Guitars, Vocals 
+Nikita Parshikov - Bass 
+Denis Burihin - Guitar on track 4,6 
+Leonid Verman - Keyboards 
+Vladislav Salcewich - Drums
+
+### "Волот" 2009, Metal
+
+
+
 
 ## Отношения с другими группами
 

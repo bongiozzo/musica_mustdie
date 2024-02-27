@@ -1,14 +1,138 @@
 # Sadist
 
-Дискография
-"Black Screams (Demo)" 1991, Techno Death
-"Above The Light" 1994, Techno Death
-"Tribe" 1996, Techno Death
-"Crust" 1997, Techno Death
-"Lego" 2000, Alternative
-"Sadist" 2007, Techno Death
-"Season In Silence" 2010, Techno Death
-"Hyaena" 2015, Techno Death
+(Italian Techno-Death)
+
+## Дискография
+
+### "Black Screams (Demo)" 1991, Techno Death
+
+
+
+### "Above The Light" 1994, Techno Death
+
+1. Nadir
+2. Breathin' Cancer
+3. Enslaver Of Lies
+4. Sometimes They Come Back
+5. Hell In Myself
+6. Desert Divinities
+7. Sadist
+8. Happiness' n'Sorrow
+
+ Andy - Vocal,Bass
+ Tommy - Lead, Rhythm guitar, Piano, Keyboards, Efects
+ Peso - Drums
+
+All songs written by SADIST
+Produced by Alberto Penzin
+Engineered by Salvo Mazzone
+Recorded at Waterbird Studios, Catania- Jan 1993
+
+(P)&(C) 1994 NOSFERATU Records
+
+### "Tribe" 1996, Techno Death
+
+1. Escogido
+2. India
+3. From Bellatrix To Betelgeuse
+4. Den Siste Kamp
+5. Tribe
+6. Spiral Of Winter Ghosts
+7. The Ninth Wave
+8. The Ninth Wave
+9. The Reign Of Asmat
+
+All songs written by SADIST.
+Produced by Alberto Penzin.
+Engineered by Paul Johnston.
+Mixed by Paul Johnston and Tommy.
+Talamanca.
+Recorded and mixed at Rhythm
+Recording Services, England
+
+Chicco - Bass
+Peso - Drums
+Zanna - Lead Vocals
+Tommy - Guitars, Keyboards
+
+(p)(c) 1996 RISING SUN Production
+
+### "Crust" 1997, Techno Death
+
+Perversion Lust Orgasm
+The Path
+'Fools' and Dolts
+Ovariotomy
+Instinct
+Obsession - Compulsion
+I Rape You
+Christmas Beat
+
+
+
+
+### "Lego" 2000, Alternative
+
+x
+A TENDER FABLE
+IT'S NOT GOOD
+MEAT
+FLIES ON ME
+FOG
+PLASTIC STAR
+FLOWING OUT RED
+I WANT IT
+WELCOME TO MY ZOO
+SMALL GREAT CHILD
+DODGY FUCKIN' COW
+THE LINE
+Dogs Sledge Man
+CAPPUCCETTO GROSSO
+
+
+### "Sadist" 2007, Techno Death
+
+1. Jagriti 02:30  
+2. One Thousand Memories 04:55  
+3. I Feel You Climb 03:59  
+4. Embracing The Form of Life 04:59  
+5. Tearing Away 03:47  
+6. Kopto 03:33  
+7. Excited And Desirous 04:41  
+8. Different Melodies 05:10  
+9. Invisible 03:29  
+10. Hope To Be Deaf 05:19  
+11. Sadist 02:33
+
+### "Season In Silence" 2010, Techno Death
+
+1. Aput 02:10  
+2. Broken and Reborn 04:06  
+3. Season in Silence 05:02  
+4. The Attic and the World of Emotions 04:26
+5. Evil Birds 03:23  
+6. Ogron 03:03  
+7. Night Owl 04:03  
+8. Snowman 04:19 
+9. Bloody Cold Winter 03:26
+10. The Abyss 04:13 
+11. Frozen Hands 05:31 
+12. Hiberna 02:52 
+
+
+### "Hyaena" 2015, Techno Death
+
+01. The Lonely Mountain
+02. Pachycrocuta
+03. Bouki
+04. The Devil Riding The Evil Steed
+05. Scavenger And Thief
+06. Gadawan Kura
+07. Eternal Enemies
+08. African Devourers
+09. Scratching Rocks
+10. Genital Mask
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,23 @@
 # Hysterica
 
-Дискография
-"Metalwar" 2009, Heavy Metal
+
+
+## Дискография
+
+### "Metalwar" 2009, Heavy Metal
+
+01. We Are The Undertakers
+02. Halloween
+03. Bless The Beast
+04. Girls Made Of Heavy Metal
+05. Louder
+06. Metalwar
+07. Wreck Of Society
+08. The Bitch Is Back
+09. Devil In Me
+10. Heavy Metal Man
+11. Pain In The Ass 
+
 
 ## Отношения с другими группами
 

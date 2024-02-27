@@ -1,8 +1,39 @@
 # Dope Stars Inc.
 
-Дискография
-"Neuromance" 2005, Industrial
-"Gigahearts" 2007, Industrial
+
+
+## Дискография
+
+### "Neuromance" 2005, Industrial
+
+01. 10.000 Watts
+02. Infection 13
+03. Platinum Girl
+04. Make A Star
+05. Vyperpunk
+06. Generation Plastic
+07. Rebel Riot
+08. Theta Titanium
+09. Self Destuctive Corp.
+10. Plug 'N' Die
+11. Defcon 5
+12. Trance-Former
+13. C-Beams
+
+### "Gigahearts" 2007, Industrial
+
+01. Multiplatform Paradise 3:06
+02. Beatcrusher 3:32
+03. Braindamage 4:47
+04. Lost 4:23
+05. Can You Imagine 4:13
+06. Play N Kill 4:47
+07. Bang Your Head 2:58
+08. Just the Same for You 4:30
+09. Technologic Age 3:03
+10. Citizen XT99 4:23
+11. Critical World
+
 
 ## Отношения с другими группами
 

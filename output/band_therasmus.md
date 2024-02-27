@@ -1,11 +1,81 @@
 # The Rasmus
 
-Дискография
-"Peep" 1996, Alternative
-"Playboys" 1997, Alternative
-"HELL OF A TESTER" 1998, Alternative
-"Into" 2001, Alternative
-"Dead Letters" 2003, Alternative
+alternative
+
+## Дискография
+
+### "Peep" 1996, Alternative
+
+01. Ghostbusters
+02. Postman
+03. Fool
+04. Shame
+05. P.S
+06. Julen Ar Har Igen
+07. Peep
+08. Frog
+09. Funky Jam
+10. Outflow
+11. Myself
+12. Life 705
+13. Small
+
+### "Playboys" 1997, Alternative
+
+01. Playboys
+02. Blue
+03. Ice
+04. Sophia
+05. Wicked Moments
+06. Wellwell
+07. Sold
+08. Carousel
+09. Jailer
+10. Kola
+11. Raggatip
+12. Violence
+13. Panda
+
+### "HELL OF A TESTER" 1998, Alternative
+
+01. Every Day
+02. Dirty Moose
+03. Swimming With The Kids
+04. Man In The Street
+05. Tonight, Tonight
+06. City Of Dead
+07. Liquid
+08. Pa-Pa
+09. Vibe
+10. Help Me Sing
+11. Tempo
+
+### "Into" 2001, Alternative
+
+01. Madness
+02. Bullet
+03. Chill
+04. F-F-F-Falling
+05. Hearbreaker
+06. Smash
+07. Someone else
+08. Small Town
+09. One & Only
+10. Last Walz
+
+### "Dead Letters" 2003, Alternative
+
+01. First day of my life
+02. In the shadows
+03. Still standing
+04. In my life
+05. Time to burn
+06. Guilty
+07. Not like the other girls
+08. The one i love
+09. Back in the picture
+10. Funeral song.
+
 
 ## Отношения с другими группами
 

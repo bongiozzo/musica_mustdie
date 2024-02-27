@@ -1,7 +1,13 @@
 # Fuck The Facts
 
-Дискография
-"Die Miserable" 2011, Grindcore
+
+
+## Дискография
+
+### "Die Miserable" 2011, Grindcore
+
+
+
 
 ## Отношения с другими группами
 

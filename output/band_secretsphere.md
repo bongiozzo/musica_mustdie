@@ -1,13 +1,138 @@
 # Secret Sphere
 
-Дискография
-"Mistress Of The Shadowlight" 1999, Power Metal
-"A Time Never Come" 2001, Power Metal
-"Scent Of Human Desire" 2003, Power Metal
-"Heart & Anger" 2005, Power Metal
-"Sweet Blood Theory" 2008, Power Metal
-"Archetype" 2010, Power Metal
-"Portrait Of A Dying Heart" 2012, Power Metal
+New Wave Of Italian Power Metal
+
+## Дискография
+
+### "Mistress Of The Shadowlight" 1999, Power Metal
+
+Dawn Of Time
+Age Of Wizard
+Recall Of The Valkyrie   
+On The Wings Of Sun    
+Twilight Of Fairy Tale
+White Lion                     
+Labyrinth Of Glass
+Seren
+Secret Sphere
+Last Moment Of Eternity (bonus track for Japan) 
+
+
+### "A Time Never Come" 2001, Power Metal
+
+Gate Of Wisdom
+Legend
+Under The Flag Of Mary Read     
+The Brave
+Emotions
+Oblivions
+Lady Of Silence
+The Mystery Of Love
+Paganini's Nightmare (theme from Caprice #5)
+Lost Land Of Lyonesse (bonus track for Japan)
+Ascension
+Hamelin
+Dr. Faustus
+
+### "Scent Of Human Desire" 2003, Power Metal
+
+01. Rain
+02. Still Here
+03. 1000 eyes show
+04. More than simple emotions
+05. Surrounding
+06. Desire
+07. Virgin Street 69
+08. Runaway train
+09. Scent of a woman
+10. Life 1 (Walking through the dawn)
+11. Life 2 (Daylight)
+
+Ramon – vocals
+Aldo Lonobile - lead guitars
+Andrea Buratto - bass
+Paolo "paco" Gianotti – guitars
+Antonio Agate - keyboards
+Luca Cartasegna – drums
+
+Recorded at Mirage recording studios (Inverigo,
+CO)/alfa&omega studios (blevio, CO), february 2003
+
+### "Heart & Anger" 2005, Power Metal
+
+01. Endless
+02. Where the sea ends
+03. First snake
+04. Loud & Raw
+05. Dance with the Devil
+06. Set me free
+07. I won't say a word
+08. Lights on
+09. Leonardo da Vinci
+10. You still remain
+11. Bad Blood
+12. No reason why
+13. Faster than the storm
+
+Ramon R Messina – vocals
+Aldo Lonobile - lead guitars
+Andrea Buratto - bass
+Paolo "paco" Gianotti – guitars
+Antonio Agate - keyboards
+Daniel Flores - drums
+
+Recorded on January and February 2005
+Recorded at “One Voice Studio”, Chivasso (Italy)
+by Daniele Giordana, “Night & Day Studio”,
+Alessandria (Italy), by Paolo Facco, “Sheepvalley
+Studio”, Stokholm (Sweden) by Daniel Flores.
+[ Guest singers Roberto Tiranti (Labyrinth
+courtesy), Marco Mesemi (Morgana courtesy), Vera
+Quarleri, Monica Elias.
+Guest musicians “Secret Symphony Orchestra” ]
+
+### "Sweet Blood Theory" 2008, Power Metal
+
+1. Evil or Divine 00:55  
+2. Stranger In Black 05:14 
+3. From a Dream to a Nightmare 06:29 
+4. Bring On 05:31 
+5. The Shadows of the Room of Pleasure 05:08
+6. Welcome to the Circus 05:01
+7. The Butterfly Dance 04:41
+8. Sweet Blood Theory 05:19
+9. Feed My Fire 03:54
+10. All These Words 04:34 
+11. Vampire's Kiss 04:37
+12. The Day at the End of the World (Japanese Bonus Track) 04:00 
+
+### "Archetype" 2010, Power Metal
+
+1. Pattern Of Thought (intro) 01:50  
+2. Line On Fire 03:44  
+3. Death From Above 05:17  
+4. The Scars That You Can't See 05:08  
+5. More Than Myself 04:33  
+6. Future 05:24  
+7. Mr. Sin 04:07  
+8. Into The Void 04:25  
+9. All In A Moment 03:47  
+10. Archetype 05:05 
+
+### "Portrait Of A Dying Heart" 2012, Power Metal
+
+1. Portrait of a Dying Heart  06:00  
+2. X  05:12   
+3. Wish & Steadiness  05:37   
+4. Union  04:12  
+5. The Fall  05:10   
+6. Healing  04:29   
+7. Lie to Me  03:50   
+8. Secrets Fear  05:57  
+9. The Rising of Love  04:28  
+10. Eternity  06:01  
+11. Legend 2012  06:13  (bonus)
+
 
 ## Отношения с другими группами
 

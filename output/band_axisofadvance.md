@@ -1,9 +1,41 @@
 # Axis Of Advance
 
-Дискография
-"Strike" 2000, Death Metal
-"The List" 2002, Death Metal
-"Obey" 2004, Death Metal
+
+
+## Дискография
+
+### "Strike" 2000, Death Metal
+
+1. Evanescent Judgement of the Last Era 8:25
+2. New World Ruin 2:15
+3. Primeval Expansion 5:31
+4. Absolute Conviction in the Accolade 2:48
+5. Structural Interpretation via Superfluous Union 6:22
+6. Curtailing Factors of Interference 8:52
+7. Nix the Sphere 8:13
+
+### "The List" 2002, Death Metal
+
+1.	 Annihilation
+2.	 The Torture
+3.	 Sacrifice
+4.	 Massacrion
+5.	 Namination
+6.	 Supremincer
+7.	 RetAllahttac
+8.	 Shifter
+
+### "Obey" 2004, Death Metal
+
+1.	 Of One to Conflict It
+2.	 Revolution Decimation
+3.	 Veiled Cast of Judgement
+4.	 Wrath Pounding
+5.	 God-Eye Command
+6.	 In Wait Lie
+7.	 Cube of Odium
+8.	 Masterrorder
+
 
 ## Отношения с другими группами
 

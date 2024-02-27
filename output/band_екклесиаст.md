@@ -1,10 +1,77 @@
 # Екклесиаст
 
-Дискография
-"Прикосновение вьюги" 1998, Doom
-"...когда мёртвые ветви воспрянут от снов" 2001, Doom
-"Холод" 2003, Doom
-"Холод (reissue)" 2005, Doom
+Melodic Doom Metal
+
+## Дискография
+
+### "Прикосновение вьюги" 1998, Doom
+
+Забвение 
+Прикосновение вьюги 
+Непонимание 
+Ночь 
+Сладчайшее зловоние 
+Там, где дуют ветра 
+Время увядания 
+Тёмные воды   
+Пропасть 
+
+
+Александр Сенин:гитара, вокал
+Артём Долина:бас
+Алексей Александров:ударные
+
+### "...когда мёртвые ветви воспрянут от снов" 2001, Doom
+
+Грусть этих дней (Долина,Сенин)   
+Пророчество гибели (Сенин, Долина)   
+Точка отсчета (Долина) 
+Осень мира (Долина, Сенин) 
+Укрой меня снегом (Сенин)   
+Город (Сенин, Долина) 
+Звёзды Твоего Неба (Сенин, Долина) 
+Пробуждение среди теплых дней (Долина) 
+Шаг к вечности (Долина) 
+Отблески небес (Сенин)  
+
+
+Александр Сенин  - гитара, вокал 
+Артём Долина  - бас, программинг 
+Алексей Александров  - ударные
+
+### "Холод" 2003, Doom
+
+1. Цветок тревоги (Долина)   
+2. Микрокосм (Сенин)   
+3. Release from Reveries (Долина) 
+4. Превращаясь в лёд (Долина)   
+5. Глаза чужих миров (Сенин)   
+5. Пламя желаний (Сенин) 
+7. Seasons (Долина) 
+8. Destiny's End (Долина) 
+9. Эта земля без нас (Сенин) 
+10. Step to Eternity (Долина)   
+ 
+
+Alexandr Senin  - guitars, vocals 
+Artyom Dolina  - - bass, acoustic & el. guitars 
+Ferki Vidishichi  - drums, percussion 
+
+
+Guests: 
+Luba Medvedeva - vocal (1, 2, 4) 
+Konstantin D. @ Spiral - back vocal (2, 6) 
+Evgeny "John" @ Kmn - keyboards (1) 
+All lyrics by Alexandr Senin, except Destiny's End by Artyom Dolina 
+
+This album was recorded in various moments between May & December, 2003. 
+Recorded, mixed and mastered by Artyom Dolina at "Tone" studio in Veliky Novgorod with the ghostly attention of the bandmates. 
+Produced by EKKLESIAST.
+
+### "Холод (reissue)" 2005, Doom
+
+
+
 
 ## Отношения с другими группами
 

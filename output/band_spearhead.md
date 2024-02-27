@@ -1,9 +1,50 @@
 # Spearhead
 
-Дискография
-"Deathless Steel Command" 2005, Black Metal
-"Decrowning the Irenarch" 2007, Black Metal
-"Theomachia" 2011, Black Metal
+
+
+## Дискография
+
+### "Deathless Steel Command" 2005, Black Metal
+
+1.	 Ornamentum	 
+2.	 Operation Overlord
+3.	 Violated Purity
+4.	 Deathless Steel Command
+5.	 Stormbearer
+6.	 The Glorious Dead
+7.	 Destroying the Law of JHVH
+8.	 Dominion
+9.	 Nuclear Imperator
+10.	 Aftermath
+
+### "Decrowning the Irenarch" 2007, Black Metal
+
+1.	 Prolegomenon	 
+2.	 Decrowning the Irenarch
+3.	 When the Pillars Fall
+4.	 Road to Austerlitz
+5.	 Interregnum
+6.	 Iulianus Augustus Apostata
+7.	 In the Face of the Absolute
+8.	 Thus Always to Tyrants
+9.	 Mors Triumphalis
+10.	 Brotherhood of Arms
+11.	 Aftermath
+
+### "Theomachia" 2011, Black Metal
+
+1.	 Eschatos	01:11	 
+2.	 The Lie of Progression	03:19
+3.	 Kshatriya	03:12
+4.	 Perdition Tide	03:39
+5.	 Polemos Pater Panton	04:34
+6.	 Praesagium	01:08
+7.	 Herald the Lightning	05:00
+8.	 Prey to the Conqueror	03:33
+9.	 Autocrator	03:33
+10.	 To Slake the Thirst of Ages	03:40
+11.	 Aftermath	04:09
+
 
 ## Отношения с другими группами
 

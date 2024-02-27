@@ -1,9 +1,30 @@
 # Repugnant
 
-Дискография
-"Hecatomb (EP)" 1999, Death Metal
-"Premature Burial (EP)" 2004, Death Metal
-"Epitome Of Darkness" 2006, Death Metal
+
+
+## Дискография
+
+### "Hecatomb (EP)" 1999, Death Metal
+
+
+
+### "Premature Burial (EP)" 2004, Death Metal
+
+
+
+### "Epitome Of Darkness" 2006, Death Metal
+
+01. Hungry Are The Damned (4:46)
+02. Premature Burial (4:03)
+03. Voices Of The Dead (3:44)
+04. Draped In Ceracloth (3:44)
+05. Spawn Of Pure Malevolence (3:13)
+06. From Beyond The Grave (4:11)
+07. Sacred Blasphemy (4:38)
+08. Eating From A Coffin (5:05)
+09. Another Vision (5:13)
+10. Mutilated Remains (4:41)
+
 
 ## Отношения с другими группами
 

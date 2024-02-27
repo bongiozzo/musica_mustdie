@@ -1,6 +1,9 @@
 # Dahmer
 
-Дискография
+serial-killer crusty grindcore from Canada
+
+## Дискография
+
 
 ## Отношения с другими группами
 

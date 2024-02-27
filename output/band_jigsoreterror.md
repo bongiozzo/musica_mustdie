@@ -1,7 +1,27 @@
 # Jigsore Terror
 
-Дискография
-"World End Carnage" 2004, Deathcore
+
+
+## Дискография
+
+### "World End Carnage" 2004, Deathcore
+
+Gorging On Exposed Arteries 
+Skeletal Decomposition 
+Slaughtered Existence 
+Death Rattle Cacaphony 
+Senseless Slaughter 
+Rotten Heads 
+Reeking Death 
+Insane Torture 
+Scattered Cranial Remains 
+Violent Molestation 
+Corpses On Fire 
+Feast of Dismembered Limbs 
+Brutally Murdered 
+Bestial Frenzy 
+World End Carnage
+
 
 ## Отношения с другими группами
 

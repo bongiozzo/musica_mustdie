@@ -1,8 +1,27 @@
 # Thornspawn
 
-Дискография
-"  Blood Of The Holy, Taint Thy Steel" 2000, Black Metal
-"Wrath Of War" 2002, Black Metal
+black-metal from America
+
+## Дискография
+
+### "  Blood Of The Holy, Taint Thy Steel" 2000, Black Metal
+
+
+
+### "Wrath Of War" 2002, Black Metal
+
+Intro: Prelude To War
+Vengeance Of The Hellpreacher 
+Bestial Dark Lords Of War 
+Wrath Of War 
+Reapers Of The Battlefield 
+The False Messiah Has Been Shackled In Silence, Forever... 
+Conspirators Of The Graven Image 
+Apokalyptic Hellstrike: Chapter 666 
+- Licking The Virgin Mary`s Cunt 
+- Consecration Of Evil Flesh III. Diabolical Poser Holocaust 
+Outro: Aftermath Of War
+
 
 ## Отношения с другими группами
 

@@ -1,37 +1,721 @@
 # Rage
 
-Дискография
-"Reign Of Fear" 1986, Thrash
-"Execution Guaranteed" 1987, Thrash
-"Perfect Man" 1988, Thrash
-"Secrets In A Weird World" 1989, Thrash
-"Reflections Of A Shadow" 1990, Thrash
-"Extended Power" 1991, Thrash
-"Beyond The Wall" 1992, Thrash
-"Trapped !" 1992, Power Metal
-"The Missing Link" 1993, Power Metal
-"10 Years Of Rage" 1994, Power Metal
-"Live" 1995, Power Metal
-"Black In Mind" 1995, Power Metal
-"Lingua Mortis" 1996, Power Metal
-"End Of All Days" 1996, Power Metal
-"XIII" 1998, Power Metal
-"Ghosts" 1999, Power Metal
-"Welcome To The Other Side" 2001, Power Metal
-"Best Of - All G.U.N. Years" 2001, Power Metal
-"Unity" 2002, Power Metal
-"Soundchaser" 2003, Power Metal
-"From The Cradle To The Stage (2 CD)" 2004, Power Metal
-"Speak Of The Dead" 2006, Power Metal
-"Full Moon in St. Petersburg (DVD/CD)" 2007, Power Metal
-"Carved In Stone" 2008, Power Metal
-"Gib dich nie auf [EP]" 2009, Power Metal
-"Strings To A Web" 2010, Power Metal
-"21" 2012, Power Metal
-"Lingua Mortis Orchestra" 2013, Power Metal
-"The Soundchaser Archives (30th Anniversary)" 2014, Power Metal
-"My Way [EP]" 2016, Power Metal
-"The Devil Strikes Again" 2016, Power Metal
+German Thrash-Power
+
+## Дискография
+
+### "Reign Of Fear" 1986, Thrash
+
+1. Scared To Death
+2. Deceiver
+3. Reign Of Fear
+4. Hand Of Glory
+5. Raw Energy
+6. Echoes Of Evil
+7. Chaste Flesh
+8. Suicide
+9. Machinery
+10.Scaffold
+
+(p)&(c) 1986 NOISE International
+
+### "Execution Guaranteed" 1987, Thrash
+
+1. Down By Law
+2. Execution Guaranteed
+3. Before The Storm (The Secret Affair)
+4. Streetwolf
+5. Deadly Error
+6. Hatred
+7. Grapes Of Wrath
+8. Mental Decay
+9. When You're Dead
+
+Produced By RAGE.
+Engineered By Andi Musolf.
+
+Peter Wagner - Bass, Vocals
+Jorg Michael - Drums
+Jochen Schroeder - Guitar
+Rudy Graf - Guitar
+
+(P)(C) 1987 NOISE Records N0073 2
+
+### "Perfect Man" 1988, Thrash
+
+1. Wasteland
+2. In The Darkest Hour
+3. Criminal Instinct
+4. Perfect Man
+5. Sinister Thinking
+6. Supersonic Hydromatic
+7. Don't Fear The Winter
+8. Death In The Afternoon
+9. A Plgrim's Path
+10.Time & Place
+11.Round Trip
+12.Between The Lines
+13.Symbols Of Our Fear
+14.Neurotic
+
+Produced By Armin Sabol.
+Engineered By Will Reid-Dick.
+
+Peter Wagner - Bass, Vocals
+Chris - Drums
+Manni - Guitar
+
+(P)(C) 1988 NOISE Records N0112 2
+
+### "Secrets In A Weird World" 1989, Thrash
+
+1. Intro (Opus 32 No 3)
+2. Time Waits For None
+3. Make My Day
+4. The Inner Search
+5. Invisible Horizons
+6. She
+7. Light Into The Darkness
+8. Talk To Grandpa
+9. Distant Voices
+10.Without A Trace
+11.Lost Side Of The World
+
+Produced By Armin Sabol.
+Engineered By Will Reid-Dick.
+
+(P)(C) 1989 NOISE Records N0137 2
+
+### "Reflections Of A Shadow" 1990, Thrash
+
+1. Introduction  (A Bit More Of Green)
+2. That's Human Bondage
+3. True Face In Everyone
+4. Flowers That Fade In My Hand
+5. Reflections Of A Shadow
+6. Can't Get Out
+7. Waiting For The Moon
+8. Faith
+9. Saddle The Wind
+10.Dust
+11.Nobody Knows
+12.Wind Seed
+
+(p)&(c) 1990 NOISE International
+
+### "Extended Power" 1991, Thrash
+
+1. Woman
+2. Ashes
+3. Bootlefield
+4. Waiting For The Moon
+5. What's Up ?
+
+Produced By Armin Sabol.
+Engineered By Ralf Krause.
+
+(P)(C) 1991 NOISE Records N0169 2
+
+### "Beyond The Wall" 1992, Thrash
+
+1. Bury All Life
+2, On The Edge
+3. I Want You
+4. (Those Who Got) Nothing To Lose
+5. Last Goodbye
+6. Light Into Darkness (Acoustic Version)
+
+ Peavy Wagner - Vocals, Bass & Acoustic Guitars
+ Manni Schmidt - Electric & Acoustic Guitars, Back. Vocals
+ Chris Efthimiadis - Drums
+
+Produced By Sven Conquest With Peter "Peavy" Wagner
+Engineered & Mixed By Sven Conquest At Rush Studio,
+Gelsenkirchen & Rocktech Studio, Berlin, August, September 1992
+
+(p)&(c) 1992 NOISE Records
+
+### "Trapped !" 1992, Power Metal
+
+1. Shame On You
+2. Solitary Man
+3. Enough Is Enough
+4. Medicine
+5. Questions
+6. Take Me To The Water
+7. Power & Greed
+8. The Body Talks
+9. Not Forever
+10.Beyond The Wall Of Sleep
+11.Baby, I'm Your Nightmare
+12.Fast As A Shark
+13.Difference
+
+Produced By Sven Conquest.
+Engineered By By Sven Conquest.
+
+(P)(C) 1992 NOISE Records N0189 2
+
+### "The Missing Link" 1993, Power Metal
+
+1. Firestorm
+2. Nevermore
+3. Refuge
+4. The Pit & The Pendulum
+5. From The Underworld
+6. Certain Days
+7. Who Dares ?
+8. Wake Me When I'm Dead
+9. Lost In The Ice
+10.Her Diary's Black Pages
+11.The Missing Link
+12.Raw Cares
+
+Produced By Sven Conquest.
+Engineered By By Sven Conquest.
+
+(P)(C) 1993 NOISE Records N0217 2
+
+### "10 Years Of Rage" 1994, Power Metal
+
+1. Vertigo
+2. She Killed And Smiled
+3. Destination Day
+4. Take My Blood
+5. No Sign Of Life
+6. Submission
+7. The Unknown
+8. Dangerous Heritage
+9. Prayers Of Steel' 94
+10. The Blow In A Row
+
+ Peter Wagner - Vocals, Bass
+ Manni Schmidt - Guitars
+ Jorg Michael - Drums
+
+All Songs Written By Rage
+Produced, Ebgineered & Mixed By Sven Conquest
+Recorded June-July 1994 At R.A.S.H. Studio, Gelsenkirchen
+
+(p)&(c) 1994 NOISE Records
+
+### "Live" 1995, Power Metal
+
+1. Shame On You
+2. Don't Fear The Winter
+3. Certain Days
+4. Suicide
+5. Refuge
+6. Baby I Am Your Nightmare
+7. Down By Law
+8. Nevermore
+
+Peter "Peavy" Wagner - Vocals, Bass
+ Sven Fischer - Guitars, Back. Vocals
+ Spiros Efthimiadis - Guitars, Back. Vocals
+ Chris Efthimiadis - Drums, Back. Vocals
+
+All Songs Written By RAGE
+Produced, Engineered & Mixed By Sven Conquest
+
+(p)&(c) 1995 NOISE Records
+
+### "Black In Mind" 1995, Power Metal
+
+1. Black In Mind
+2. The Crawling Chaos
+3. Alive But Dead
+4. Sent By The Devil
+5. Shadow Out Of Time
+6. A Spider's Web
+7. In A Nameless Time
+8. The Icecold Hand Of Destiny
+9. Forever
+10. Until I Die
+11. My Rage
+12. The Price Of War
+13. Start!
+14. Tie The Rope
+15. Forgive But Don't Forget
+16. All This Time
+
+ Peter "Peavy" Wagner - Vocals, Bass
+ Sven Fischer - Guitars, Back. Vocals
+ Spiros Efthimiadis - Guitars, Back. Vocals
+ Chris Efthimiadis - Drums, Back. Vocals
+
+All Songs Written By RAGE
+Produced By Peavy Wagner & Ulli Posselt
+Engineered & Mixed By Ulli Posselt At R.A.S.H. Studio, 
+Gelsenkirchen Between Oct. 1994 & Jan. 1995
+
+(p)&(c) 1995 GUN Records
+
+### "Lingua Mortis" 1996, Power Metal
+
+1.  In A Nameless Time
+2.  Alive But Dead
+3.  Medley
+4.  a. Don't Fear The Winter (Instrumental)
+5.  b. Black In Mind
+6.  c. Firestorm (Instrumental)
+7.  d. Sent By The Devil
+8.  e. Lost In The Ice (Instrumental)
+9.  All This Time (Edited Version)
+10.Alive But Dead (Instrumental)
+
+Peter "Peavy" Wagner - Vocals, Bass
+Sven Fischer - Guitars, Back. Vocals
+Spiros Efthimiadis - Guitars, Back. Vocals
+Chris Efthimiadis - Drums, Back. Vocals
+
+All Songs Written By RAGE
+Produced By Peavy Wagner & Ulli Posselt
+
+(P)c 1996 GUN Records
+
+### "End Of All Days" 1996, Power Metal
+
+1.  Under Control
+2.  Higher Than The Sky
+3.  Deep In The Blackest Hole
+4.  End Of All Days
+5.  Visions
+6.  Desperation
+7.  Voice From The Vault
+8.  Let The Night Begin
+9.  Fortress
+10.Frozen Fire
+11.Talking To The Dead
+12.Face Behind The Mask
+13.Silent Victory
+14.Fading Hours
+15.The Sleep З
+16.The Trooper З
+
+З - Bonus Tracks
+
+Produced By Ulli Posselt & Peavy Wagner.
+
+Peter "Peavy" Wagner - Vocals, Bass
+ Sven Fischer - Guitars, Back. Vocals
+ Spiros Efthimiadis - Guitars, Back. Vocals
+ Chris Efthimiadis - Drums, Back. Vocals
+
+(P)c 1996 GUN Records
+
+### "XIII" 1998, Power Metal
+
+1. Overture
+2. From The Cradle To The Grave
+3. Days Of December
+4. Changes - Sign Of Heaven
+5.         - Incomplete
+6.         - Turn The Page
+7. Heartblood
+8. Over and Over
+9. In Vain (I won't Go Down)
+10. Immortal Sin
+11. Paint It, Black
+12. Just Alone
+13. XIII
+
+
+### "Ghosts" 1999, Power Metal
+
+1. Beginning Of The End
+2. Back In Time
+3. Ghosts
+4. Wash My Sins Away
+5. Fear
+6. Love And Fear Unite
+7. Vanished In Haze
+8. Spiritual Awakening
+9. Love After Death
+10. More Than A Lifetime
+11. Tomorrow's Yesterday
+
+12. End Of Eternity (Bonustrack)
+13. Six Feet Under Ground(Bonustrack) 
+
+### "Welcome To The Other Side" 2001, Power Metal
+
+1 - Trauma
+2 - Paint The Devil On The Wall
+3 - The Mirror in Your Eyes
+4 - R.I.P. (Tribute To Dishonour Part 1)
+5 - One More Time (Tribute To Dishonour Part 2)
+6 - Requiem (Tribute To Dishonhour Part 3)
+7 - I'm Crucified (Tribute To Dishonour Part 4)
+8 - No Lies
+9 - Point Of No Return
+10 - Leave It All Behind
+11 - Deep In The Night
+12 - Welcome To The Other Side
+13 - Lunatic
+14 - Riders On The Moonlight
+15 - Straight To Hell
+16 - After The End
+17 - Sister Demon
+
+
+### "Best Of - All G.U.N. Years" 2001, Power Metal
+
+1. Straight To Hell
+2. Days Of December
+3. Back In Time
+4. Alive But Dead
+5. Deep In The Blackest Hole
+6. The Mirror in Your Eyes
+7. Black In Mind
+8. Higher Than The Sky
+9. Spiritual Awakening
+10. The Crawling Chaos
+11. Six Feet Under Ground (Bonustrack)
+12. Another Wasted Day (Bonustrack)
+13. From The Cradle To The Grave
+14. Medley
+ a) Don't Fear The Winter (Instrumental)
+ b) Black In Mind
+ c) Firestorm (Instrumental)
+ d) Sent By The Devil
+ e) Lost In The Ice (Instrumental)
+
+15. Turn The Page" (acoustic) (бонустрек) 
+
+### "Unity" 2002, Power Metal
+
+1. All I Want
+2. Insanity
+3. Down
+4. Set This World On Fire
+5. Dies Irae
+6. World Of Pain
+7. Shadows
+8. Living My Dream
+9. Seven Deadly Sins
+10. You Want It, You'll Get It
+11. Unity
+
+12. Mystery Trip (Bonustrack)
+13. Down (Videoclip)
+
+### "Soundchaser" 2003, Power Metal
+
+
+
+### "From The Cradle To The Stage (2 CD)" 2004, Power Metal
+
+
+
+### "Speak Of The Dead" 2006, Power Metal
+
+1. Mortituri te salutant 
+2. Prelude of souls 
+3. Innocent 
+4. Depression 
+5. No regrets 
+6. Confusion 
+7. Black 
+8. Beauty 
+9. No Fear 
+10. Soul survivor 
+11. Full moon 
+12. Kill your gods 
+13. Turn my world around 
+14. Be with me or be gone 
+15. Speak of the dead
+
+### "Full Moon in St. Petersburg (DVD/CD)" 2007, Power Metal
+
+CD
+Intro 
+Speak Of The Dead 
+No Fear 
+Sent By The Devil 
+Soul Survivor 
+Enough Is Enough 
+Baby, I'm Your Nightmare 
+Morituri Te Salutant 
+Prelude Of Souls 
+Innocent 
+Depression 
+No Regrets 
+Confusion 
+Black 
+Beauty 
+Don't Fear The Winter 
+Full Moon 
+Higher Than The Sky 
+Guitar Workshop with Victor Smolski (Bonus Track in 13 parts)
+DVD 1
+Live in St. Petersburg 20.05.06:
+Speak Of The Dead
+No Fear
+Sent By The Devil
+Soul Survivor
+Enough Is Enough
+Baby, I’m Your Nightmare
+Morituri Te Salutant
+Prelude Of Souls
+Innocent
+Depression
+No Regrets
+Confusion
+Black
+Beauty
+Don’t Fear The Winter
+Full Moon
+Higher Than The Sky
+BONUSTRACKS:
+Straight To Hell – Video Clip
+No Fear – Video Clip
+Don’t Fear The Winter - Stay Heavy TV Brasil
+RAGE live at Masters of Rock Festival, CZ 2006:
+Depression
+No Regrets
+Confusion
+Black
+Beauty
+Full Moon
+Higher Than The Sky
+DVD 2
+Documentary:
+- Making of St. Petersburg
+- Russia Tour 06, Moscow 
+- Russia Tour 06, Kiev, Ukraine
+- Europe Tour 2006
+Private Documentary Victor:
+- Flying Notes 
+- Tricky Strings
+- Motorsports Documentary
+Private Documentary Peavy:
+- Ice Age Collection Documentary
+- Skull Cast Documentary
+Private Documentary Mike:
+- The Rhythm Beast
+
+### "Carved In Stone" 2008, Power Metal
+
+1. Carved In Stone
+2. Drop Dead
+3. Gentle Murders
+4. Open My Grave
+5. Without You
+6. Long Hard Road
+7. One Step Ahead
+8. Lost In The Void
+9. Mouth Of Greed
+10. Lord Of The Flies 
+
+Bonus DVD (Wacken Open Air)
+
+1. Overture
+2. From The Cradle To The Grave
+3. Alive But dead
+4. Lingua Mortis Medley
+a. Don't Fear The Winter
+b. Black In Mind
+c. Firestorm
+d. Sent By The Devil
+e. Lost In The Ice
+5. Turn The Page
+6. Suite Lingua Mortis
+a. Morituri Te Salutant
+b. Prelude Of Souls
+c. Innocent
+d. Depression
+e. No Regrets
+f. Confusion
+g. Black
+h. Beauty
+7. Higher Than The Sky
+
+### "Gib dich nie auf [EP]" 2009, Power Metal
+
+Gib Dich nie auf (German version of "Never Give Up") 
+Vollmond (German version of "Full Moon") 
+Never Give Up 
+Terrified 
+Lord Of The Flies (Orchestral Version) 
+Home 
+Refuge (Video Clip, live at Wacken Open Air 2007)
+
+### "Strings To A Web" 2010, Power Metal
+
+01. The Edge Of Darkness 4:32
+02. Hunter And Prey 4:33
+03. Into The Light 4:24
+04. The Beggars Last Dime 5:42
+05. Empty Hollow 6:20
+06. Empty Hollow II: Strings To A Web 3:54
+07. Empty Hollow III: Fatal Grace 1:21
+08. Empty Hollow IV: Connected 2:53
+09. Empty Hollow V: Reprise 1:50
+10. Saviour Of The Dead 5:44
+11. Hellgirl 4:13
+12. Purified 3:48
+13. Through Ages 2:05
+14. Tomorrow Never Comes 3:41
+
+
+Limited-edition digibook version with DVD:
+Wacken Open Air Show
+01. Carved In Stone
+02. Higher Than The Sky
+03. Set This World On Fire (featuring Hansi Kьrsch)
+04. All I Want (featuring Hansi Kьrsch)
+05. Invisible Horizons (featuring Hansi Kьrsch)
+06. Lord Of The Flies (featuring Jen Majura)
+07. From The Cradle To The Grave (featuring Jen Majura)
+08. Prayers Of Steel (featuring Schmier)
+09. Suicide (featuring Schmier)
+10. Down (featuring Schmier)
+11. Soundchaser
+
+Four additional live clips: 
+12. Set This World On Fire (Live at the "Masters of Rock 2009") 
+13. All I Want (Live at the "Masters of Rock 2009")
+14. Carved In Stone (Live in Sofia 2009) 
+15. Never Give Up (Rage Race Special) 
+
+### "21" 2012, Power Metal
+
+01. House Wins 01:30 
+02. Twenty One 06:16 
+03. Forever Dead 06:19 
+04. Feel My Pain 05:40 
+05. Serial Killer 05:44 
+06. Psycho Terror 06:57 
+07. Destiny 05:13 
+08. Death Romantic 05:59 
+09. Black And White 05:19 
+10. Concrete Wall 03:50 
+11. Eternally 05:09
+
+
+
+Song "Eternally" before appeared on Nuclear Blast Allstars "Into the Light" album.
+ 
+Produced in Twilight Hall Studios in Krefeld, Germany.
+ Produced by Victor Smolski and Charlie Bauerfeind (Blind Guardian, Gamma Ray, Helloween, HammerFall, Venom, Saxon)
+ Artwork created by Felipe Machado (Blind Guardian, Rhapsody of Fire)
+ 
+Metallic digibook includes bonus CD "Live In Tokyo 2010" and enhanced part (video Rage-race 2011) on first CD.
+ Tracklist of bonus CD:
+ 1. Opening
+ 2. The Edge of Darkness
+ 3. Hunter and Prey
+ 4. Into the Light
+ 5. Drop Dead
+ 6. Empty Hollow
+ 7. Light Into the Darkness
+ 8. Higher than the Sky
+ 9. War of Worlds
+ 10. Carved in Stone
+ 11. Soundchaser
+ 12. Down 
+
+### "Lingua Mortis Orchestra" 2013, Power Metal
+
+
+
+### "The Soundchaser Archives (30th Anniversary)" 2014, Power Metal
+
+CD 1:
+ 01. Anybody Home? (new)
+ 02. Mystery Trip
+ 03. In Union (Demo)
+ 04. Long Hard Road (Studio Live Rehearsal)
+ 05. Full Moon (International Version)
+ 06. Nevermore (Demo)
+ 07. French Bourree
+ 08. A Perfect Day (Demo)
+ 09. Enough Is Enough (Early Demo)
+ 10. Here Comes The Night
+ 11. Spiritual Awakening (Demo)
+ 12. Lost In The Void (Studio Live Rehearsal)
+ 13. The Missing Link (Demo)
+ 14. Another Kind Of Madness (Studio Live Rehearsal)
+ 15. Down To The Bone
+
+CD 2:
+ 16. The Speed Of Sound
+ 17. Darkness Turns To Light
+ 18. Death Is Alive (Demo)
+ 19. Gentle Murders (Studio Live Rehearsal)
+ 20. From The Cradle To The Grave (Demo)
+ 21. Refuge (Demo)
+ 22. Fugue No. 5
+ 23. Last Goodbye (Demo)
+ 24. Dirty Wings (Demo)
+ 25. The Pit And The Pendulum (Demo)
+ 26. Waterfalls
+ 27. Heads Off (Demo)
+ 28. Assorted By Satan (Alternative Version)
+ 29. Shame On You (Demo)
+ 30. Soundchaser (Demo)
+
+Also contains a bonus DVD including Rage's 2013 performance at the Masters of Rock festival. 
+ 01. Cleansed by Fire
+ 02. From the Cradle to the Grave
+ 03. Scapegoat
+ 04. The Devil's Bride
+ 05. Empty Hollow
+ 06. Lament
+ 07. Suite Lingua Mortis:
+ - Prelude of Souls
+ - Innocent
+ - Depression
+ - No Regrets
+ 08. Witches' Judge
+ 09. Straight to Hell
+ + Interviews & Bonus Videos
+
+### "My Way [EP]" 2016, Power Metal
+
+1. My Way  04:19    
+2. Black in Mind  04:10    
+3. Sent By the Devil  04:43    
+4. Apuesto A Ganar  04:21  
+
+
+### "The Devil Strikes Again" 2016, Power Metal
+
+Disc 1  
+1. The Devil Strikes Again  04:25   
+2. My Way  04:23   
+3. War  04:24    
+4. The Final Curtain  04:13    
+5. Ocean Full of Tears  04:04    
+6. Deaf, Dumb and Blind  04:18    
+7. Spirits of the Night  04:52   
+8. Times of Darkness  05:21   
+9. The Dark Side of the Sun  05:56  
+10. Back on Track  04:23    
+
+Disc 2  
+1. Bring Me Down  05:01 
+2. Into the Fire 05:25  
+3. Requiem 03:55  
+4. Bravado (Rush cover) 04:36 
+5. Slave to the Grind (Skid Row cover) 03:24  
+6. Open Fire (Y&T cover)  04:38 
+
+Disc 3  
+1. Black in Mind (live)  
+2. Sent by the Devil (live)
+3. End of All Days (live)  
+4. Back in Time (live)  
+5. Down (live) 
+6. My Way (live) 
+7. Until I Die (live)  
+8. Don't Fear the Winter (live) 
+9. Higher than the Sky (live)  
+
+
+September/October 2015 at Megafon Studios (Burscheid, Germany) at Soundchaser Studios (Zandhoven, Belgium)
+
 
 ## Отношения с другими группами
 

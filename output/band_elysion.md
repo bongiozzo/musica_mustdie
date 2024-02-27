@@ -1,8 +1,17 @@
 # Elysion
 
-Дискография
-"Silent Scream" 2009, Gothic
-"Killing My Dreams (EP)" 2012, Gothic
+Греческие смаковники
+
+## Дискография
+
+### "Silent Scream" 2009, Gothic
+
+
+
+### "Killing My Dreams (EP)" 2012, Gothic
+
+
+
 
 ## Отношения с другими группами
 

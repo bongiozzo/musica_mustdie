@@ -1,7 +1,42 @@
 # Stereolab
 
-Дискография
-"Emperor Tomato Ketchup" 1996, Alternative
+
+
+## Дискография
+
+### "Emperor Tomato Ketchup" 1996, Alternative
+
+1. Metronomic Underground
+2. Cybele's Revenge
+3. Percolator
+4. Les Yper-Sound
+5. Spark Plug
+6. OLV 26
+7. The Noise Of Carpet
+8. Tomorrow Is Already Here
+9. Emperor Tomato Ketchup
+[10].Monstre Sacre
+[11].Motoroller Scalatron
+[12].Slow Fast Hazel
+[13].Anonymous Collective
+
+[10]-[13] - Hа cтopoнe B
+
+All songs written by Gane/Sadier
+Produced by Paul Tipler, John McEntire and The Groop.
+
+All vocals, supercussion, bass, guitars, vox engans, farfisa organs,
+synthesizers and electronics, electric pianos, tambourines, vibes etc. played by:
+
+  Duncan Browa
+  Tim Gane
+  Mary Hansen
+  Morgane Lhote
+  Andy Ramssy
+  Laetitia Sadier
+
+(p)(c) 1996 ELECTRA Ent.
+
 
 ## Отношения с другими группами
 

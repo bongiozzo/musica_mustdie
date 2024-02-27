@@ -1,7 +1,25 @@
 # Gomorrha
 
-Дискография
-"Sexual Perversity By Autopsy" 2003, Deathcore
+
+
+## Дискография
+
+### "Sexual Perversity By Autopsy" 2003, Deathcore
+
+1. Sexual Perversity By Autopsy 
+2. That's Me Gerontophily 
+3. Eating Dead Flesh Of A Grannycunt 
+4. Cry Of Defloration 
+5. Pedophilistic Execution 
+6. Animal Peace 
+7. Love, Peace And Excrements 
+8. Fuck Bizarre 
+9. Perverse Bakerman 
+10. Fatal Agression 
+11. Necrophagous Serial Killer 
+12. The Price Is Your Skin 
+13. The Millwaukee Monster
+
 
 ## Отношения с другими группами
 

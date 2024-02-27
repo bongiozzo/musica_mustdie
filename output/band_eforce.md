@@ -1,10 +1,68 @@
 # E-Force
 
-Дискография
-"Evil Forces" 2003, Thrash
-"Modified Poison" 2008, Thrash
-"The Curse..." 2014, Thrash
-"Demonikhol" 2015, Thrash
+melodic death from Canada
+
+## Дискография
+
+### "Evil Forces" 2003, Thrash
+
+01. Evil Forces
+02. Satanic Rituals
+03. Mayhem
+04. Forest Of The Impaled
+05. Germ Warfare
+06. Belief
+07. Psychopath
+08. Disorder
+09. Crypto-Sporidium
+10. Purgatory
+11. Scarring
+12. Global Warning
+
+### "Modified Poison" 2008, Thrash
+
+01. Deviation
+02. Modified Poison
+03. Lobotomized
+04. Agent 99
+05. Malpractice
+06. La Vie C'est Precieux
+07. Reborn Again
+08. Revolution Riot Act
+09. Disillutioned
+10. Exterminator
+11. Perfexionist
+12. Wired
+13. Victory
+
+### "The Curse..." 2014, Thrash
+
+01. Invitation
+02. Perverse Media
+03. Witch Wrk
+04. Serpent's Kiss
+05. Awakened
+06. Psyclone
+07. Devoured
+08. Mass Deception
+09. Your Beloved Hate
+10. Infexxxous
+11. The Curse Of The Cunt
+
+### "Demonikhol" 2015, Thrash
+
+01. Apero
+02. Grievance
+03. Double Edged Sword
+04. Invasion
+05. Debauchery
+06. The Day After
+07. Ultimatum
+08. Insidious
+09. Demonikhol
+10. State Of Delusion
+11. Last Call
+
 
 ## Отношения с другими группами
 

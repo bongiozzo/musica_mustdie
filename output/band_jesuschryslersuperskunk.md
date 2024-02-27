@@ -1,6 +1,9 @@
 # Jesus Chrysler Superskunk
 
-Дискография
+(Old-school thrash metal with DESTRUCTION members)
+
+## Дискография
+
 
 ## Отношения с другими группами
 

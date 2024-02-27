@@ -1,7 +1,22 @@
 # Odar
 
-Дискография
-"Zavjet Dalekom Snu" 2008, Black Metal
+
+
+## Дискография
+
+### "Zavjet Dalekom Snu" 2008, Black Metal
+
+1. Okamenjen 02:50  
+2. Porodi Noci 04:32  
+3. Polje Smrti 04:58  
+4. Kroz Vrtloge Sna 04:53  
+5. Svjetlost Pomracine 06:33  
+6. Sumrak Svjetlosti 05:00  
+7. Posljednji Poziv 06:09  
+8. Zavjet Dalekom Snu 05:04  
+9. Jalova Zemlja 05:42  
+10. Nespokoj 05:48 
+
 
 ## Отношения с другими группами
 

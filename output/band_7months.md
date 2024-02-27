@@ -1,7 +1,31 @@
 # 7 Months
 
-Дискография
-"7 Months" 2002, Progressive
+
+
+## Дискография
+
+### "7 Months" 2002, Progressive
+
+New Age
+Change
+Stay
+Start It Over
+Say Goodbye
+You & Me
+The Night
+Sometimes
+Seсoritas' Serenade
+
+
+
+Joe Booe- Lead Vocals 
+Chris M. Jacobson- Guitars, Vocals 
+Garegin (Greg) Kalajian- Keyboards, Vocals 
+Barry Magnuson- Drums, Percussion 
+Shawn "The Dude" Richkind- Bass 
+
+
+
 
 ## Отношения с другими группами
 

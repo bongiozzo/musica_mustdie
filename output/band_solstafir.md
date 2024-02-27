@@ -1,10 +1,52 @@
 # Solstafir
 
-Дискография
-"I Blodi og Anda" 2003, Black Metal
-"Masterpiece of Bitterness" 2005, Black Metal
-"Kold" 2009, Black Metal
-"Svartir Sandar" 2011, Black Metal
+Black
+
+## Дискография
+
+### "I Blodi og Anda" 2003, Black Metal
+
+
+
+### "Masterpiece of Bitterness" 2005, Black Metal
+
+1. I Myself the Visionary Head	 
+2. Nature Strutter
+3. Bloodsoaked Velvet
+4. Ljуsfari
+5. Ghosts of Light
+6. Ritual of Fire	 
+7. Nбttfari
+
+### "Kold" 2009, Black Metal
+
+1. 78 Days in the Desert	 
+2. Kцld
+3. Pale Rider
+4. She Destroys Again
+5. Necrologue
+6. World Void of Souls
+7. Love is the Devil (And I Am in Love)
+8. Goddess of the Ages
+
+### "Svartir Sandar" 2011, Black Metal
+
+Disc 1
+1. Ljуs н Stormi
+2. Fjara
+3. Юнn Orр
+4. Sjъki Skugginn
+5. Жra
+6. Kukl
+	 
+Disc 2
+1. Melrakkablъs
+2. Draumfari	 
+3. Stinningskaldi	 
+4. Stormfar
+5. Svartir Sandar
+6. Djбkninn
+
 
 ## Отношения с другими группами
 

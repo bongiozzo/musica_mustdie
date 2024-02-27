@@ -1,7 +1,51 @@
 # Disrupt
 
-Дискография
-"Unrest" 1994, Grindcore
+
+
+## Дискография
+
+### "Unrest" 1994, Grindcore
+
+1. Domestic Prison
+2. Mass Graves
+3. Complant
+4. Pay For ...
+5. Unrest
+6. Reality Distortion
+7. Down My Throat
+8. Tortured In Entirety
+9. Religion Is A Fraud
+10.We Stand Corrected
+11.Faction Disaster
+12.Human Garbage
+13.Without Sincerity
+14.Neglected
+15.Same Old Shit
+16.For What?
+17.Squandered
+18.Mindlock
+19.Green To Grey
+20.Critics
+21.Dog Eat Dog 
+22.Deprived
+23.Give It Back
+24.Victims Of Tradition
+24.Exorbitant Prices Must Diminish
+26.Smash Divisions
+27.No Values
+
+Produced by Bill T. Miller & DISRUPT.
+Recorded At One World Studios, Boston MA
+    
+Joey Stiles - Vocals
+Pete Kamarinos - Vocals
+Jeff Hayward - Guitars
+Terry Savastano - Guitars
+Bob Palumbo - Bass
+Randy Odierno - Drums
+
+(p)(c) 1994 RELAPSE Records
+
 
 ## Отношения с другими группами
 

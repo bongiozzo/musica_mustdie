@@ -1,7 +1,35 @@
 # Belly
 
-Дискография
-"King" 1995, Grunge
+
+
+## Дискография
+
+### "King" 1995, Grunge
+
+1. Puberty
+2. Seal My Fate
+3. Red
+4. Silverfish
+5. Super-Connected
+6. The Bees
+7. King
+8. Now They'll Sleep
+9. Untitled And Unsung
+10. L'il Ennio
+11. Judas My Heart
+
+ Tanya Donelly - Vocals & Guitars
+ Thomas Gorman - Guitars & Piano
+ Gail Greenwood - Bass & Vocals
+ Christopher Gorman - Drums
+
+Produced By Glyn Johns
+Engineered By Jack Joseph Puig
+Mixed By Jack Joseph Puig & Glyn Johns
+Recorded At Compass Point Studios, Nassau, Bahamas
+
+(p)&(c) 1995 4AD
+
 
 ## Отношения с другими группами
 

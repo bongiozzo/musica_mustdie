@@ -1,9 +1,49 @@
 # Obsecration
 
-Дискография
-"The Inheritors Of Pain" 1996, Death Doom
-"Oceanum Oblivione" 2000, Death Metal
-"Sins Of The Putrid Flesh" 2002, Death Metal
+
+
+## Дискография
+
+### "The Inheritors Of Pain" 1996, Death Doom
+
+1. The Inheritors Of Pain (Part I: Intro)
+2. Horror In A Gothic Genre's Grave
+3. From The King Of This World
+4. ...The Usurper Form Darkness
+5. Suffering Under The Unnamabse Shadow
+6. The Serenity Of The Crystal Sentiments
+7. Offsprings Of The Black Dimension:
+    1. The Black Dimension
+    2. Offsprings Arrival
+    3. The Spreading Of Black World
+
+Costas Dead - Vocals
+Bippy - Guitars
+John - Guitars, Keyboards
+Peiteris - Bass, Keyboards
+Berserker - Drums
+Magus Wampyre Daoloth - Special Guest Keyboards on 1, 8
+
+(P)(C) 1996 HAMMERHEART Records // HMR 003
+
+### "Oceanum Oblivione" 2000, Death Metal
+
+01) Black Dahlia From Astral Ocean (Intro)
+02) Closed In The Coffin
+03) The Last Vision Before The Obliteration
+04) From The Depths Of Our Dreams (The Inheritors Of
+Pain part IV)
+05) State Of Grace
+06) Obsecration
+07) Shadows Of Damnation
+08) Terra Tenebrae (outro)
+
+
+
+### "Sins Of The Putrid Flesh" 2002, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

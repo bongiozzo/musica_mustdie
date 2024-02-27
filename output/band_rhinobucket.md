@@ -1,14 +1,49 @@
 # Rhino Bucket
 
-Дискография
-"Rhino Bucket" 1990, Hard Rock
-"Get Used To It" 1992, Hard Rock
-"Pain" 1994, Hard Rock
-"And Then It Got Ugly" 2006, Hard Rock
-"No Song Left Behind (Compilation)" 2007, Hard Rock
-"The Hardest Town" 2009, Hard Rock
-"Who's Got Mine?" 2011, Hard Rock
-"Sunrise On Sunset Blvd. (Live At The Coconut Teaszer)" 2013, Hard Rock
+
+
+## Дискография
+
+### "Rhino Bucket" 1990, Hard Rock
+
+
+
+### "Get Used To It" 1992, Hard Rock
+
+
+
+### "Pain" 1994, Hard Rock
+
+
+
+### "And Then It Got Ugly" 2006, Hard Rock
+
+
+
+### "No Song Left Behind (Compilation)" 2007, Hard Rock
+
+
+
+### "The Hardest Town" 2009, Hard Rock
+
+
+
+### "Who's Got Mine?" 2011, Hard Rock
+
+
+
+### "Sunrise On Sunset Blvd. (Live At The Coconut Teaszer)" 2013, Hard Rock
+
+1. One Night Stand
+2. Inside/outside
+3. Blood On The Cross
+4. Shot Down
+5. Beg For Your Love
+6. Swinging With Sally
+7. Train Ride
+8. Ride The Rhino
+9. Going Down Tonight
+
 
 ## Отношения с другими группами
 

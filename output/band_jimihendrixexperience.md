@@ -1,7 +1,49 @@
 # Jimi Hendrix Experience
 
-Дискография
-"Are You Experienced? [UK]" 1967, Hard Rock
+
+
+## Дискография
+
+### "Are You Experienced? [UK]" 1967, Hard Rock
+
+  1.   Foxey Lady (Hendrix) - 3:19 
+  2.   Manic Depression (Hendrix) - 3:42 
+  3.   Red House (Hendrix) - 3:44 
+  4.   Can You See Me (Hendrix) - 2:32 
+  5.   Love or Confusion (Hendrix) - 3:13 
+  6.   I Don't Live Today (Hendrix) - 3:55 
+  7.   May This Be Love (Hendrix) - 3:11 
+  8.   Fire (Hendrix) - 2:45 
+  9.   Third Stone from Teh Sun (Hendrix) - 6:44 
+  10.   Remember (Hendrix) - 2:48 
+  11.   Are You Experienced? (Hendrix) - 4:14 
+  12.   Hey Joe [*] (Roberts) - 3:30 
+  13.   Stone Free [*] (Hendrix) - 3:36 
+  14.   Purple Haze [*] (Hendrix) - 2:51 
+  15.   51st Anniversary [*] (Hendrix) - 3:16 
+  16.   The Wind Cries Mary [*] (Hendrix) - 3:20 
+  17.   Highway Chile [*] (Hendrix) - 3:32 
+
+
+
+Noel Redding  -  Bass, Bass (Electric), Guitar (Bass), Vocals (bckgr) 
+Chas Chandler  -  Producer, Remastering Producer 
+Harry Goodwin  -  Photography 
+Jimi Hendrix  -  Guitar, Guitar (Electric), Vocals, Writer, Performer 
+Eddie Kramer  -  Engineer, Remastering 
+George Marino  -  Remastering 
+Mitch Mitchell  -  Drums, Vocals (bckgr) 
+Mike Ross  -  Engineer 
+Dave Siddle  -  Engineer 
+Dave Marsh  -  Liner Notes 
+Jimi Hendrix Experience  -  Performer 
+Ed Thrasher  -  Art Direction 
+Karl Ferris  -  Photography, Cover Art 
+Smay Vision  -  Design 
+Janie Hendrix  -  Remastering Supervisor 
+Bruce Fleming  -  Cover Design 
+
+
 
 ## Отношения с другими группами
 

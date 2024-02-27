@@ -1,7 +1,21 @@
 # Tribulation
 
-Дискография
-"The Horror" 2009, Death Metal
+
+
+## Дискография
+
+### "The Horror" 2009, Death Metal
+
+1. Into The Jaws Of Hell 00:16 
+2. Crypt Of Thanatophilia 03:58 
+3. Curse Of Resurrection 03:40 
+4. Beyond The Horror 03:53 
+5. The Vampyre 02:57 
+6. Sacrilegious Darkness 03:33 
+7. Spawn Of The Jackal 04:41 
+8. Seduced By The Smell Of Rotten Flesh 04:47 
+9. Graveyard Ghouls 05:00
+
 
 ## Отношения с другими группами
 

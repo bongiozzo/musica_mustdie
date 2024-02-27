@@ -1,7 +1,13 @@
 # Midas Touch
 
-Дискография
-"Presage of Disaster" 1989, Thrash
+
+
+## Дискография
+
+### "Presage of Disaster" 1989, Thrash
+
+
+
 
 ## Отношения с другими группами
 

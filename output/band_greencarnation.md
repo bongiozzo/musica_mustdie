@@ -1,12 +1,160 @@
 # Green Carnation
 
-Дискография
-"Journey to the End of the Night" 2000, Gothic
-"Light of Day, Day of Darkness" 2001, Gothic
-"A Blessing in Disguise" 2003, Gothic
-"Alive And Well… Who Am I? (Live In Krakow, DVD)" 2004, Gothic
-"The Quiet Offspring" 2005, Gothic
-"The Acoustic Verses" 2006, Gothic
+
+
+## Дискография
+
+### "Journey to the End of the Night" 2000, Gothic
+
+1. Falling into Darkness
+2. In the Realm of the Midnight Sun
+3. My Dark Reflections of Life And Death
+4. Under Eternal Stars
+5. Journey to the end of night (part i)
+6. Echoes of Despair (part II)
+7. End of Journey? (part III)
+8. Shattered (part IV)
+
+Recorded in Jailhouse studio, Kristiansand, July 1999.
+Composed by X Botteri and Tchort. All lyrics by Tchort.
+Mixed by Bjorn Harstad
+Cover by Niklas Sundin
+
+Recording Line-up:
+
+Alf Tore Rasmussen - Drums
+X Botteri - Guitar, effects
+Christopher Botteri - Bass
+Tchort - Guitar
+
+Additional musicians:
+
+Geir Sollied - vocals 
+Synne Soprana - vocals
+Linn Solaas - vocals 
+Vibeke Stene - vocals 
+Atle Dorum - vocals 
+Leif - violins
+
+
+### "Light of Day, Day of Darkness" 2001, Gothic
+
+1. Light Of Day, Day Of Darkness
+
+Recorded in dub studio, Kristiansand, July & August, 2001
+Produced and Engineered by Endre Kirkesola
+Co-produced and assisted engineering by Tchort
+Mixed by Endre Kirkesola and Tchort.
+Mastered by Audun Strype, Strype studio
+Cover by Niklas Sundin
+Composed and written by Tchort
+
+Recording line-up:
+
+Tchort - electric and accoustic guitars
+A. Kobro - drums
+Kjetil Nordhus - vocals
+Stein R - bass
+Bjorn H - slide and ebow
+
+Additional musicians:
+
+Synne Soprana - vocals
+Bernt A Moen - strings and string arrangements
+Endre Kirkesola - synth, sitar, string- and vocal arrangements
+Jan Kenneth T - vocals
+Damien Aleksander - childs voice
+Rabba Koret - childrens choir
+Opera choir (see booklet)
+Arvid Thorsen - saxophone
+Roger Rasmussen - screaming vocals
+
+
+
+### "A Blessing in Disguise" 2003, Gothic
+
+1. Crushed to Dust 
+2. Lullaby in Winter (in 2 parts) 
+3. Writings on the Wall 
+4. Into Deep 
+5. The Boy in the Attic 
+6. Two seconds in Life 
+7. Myron & Cole 
+8. As Life flows by 
+9. Rain  
+
+
+
+Recorded at Bingen and Jailhouse studio, Kristiansand
+Produced by Tchort
+Mixed by Hans K. Eidskard
+Engineered by Hans K. Eidskard
+Mastered by Audun Strype at Strype audio
+Damien Aleksander pictures by Lars Hoen
+Band pictures and portraits by Lars Hoen
+Winter pictures by Jon Tunnessen
+Cover concept by Tchort
+Lay out by 101 images.com 
+Pre-Production recorded at Brown Sound Studio by Stein Roger Sordal & Tchort
+Engineered by Stein Roger Sordal
+
+
+Tchort – guitar
+Kjetil Nordhus – vocals
+Stein Roger Sordal – bass, guitars, harp
+Anders Kobro – drums
+Bernt A Moen – keyboards, piano
+Bjorn Harstad – lead guitar, effects
+
+Additional musicians:
+Christiansand Chamber Ensemble 
+
+Something which was forgotten in the booklet: The piano intro on "The boy in the Attic", was inspired by the intro X Botteri made for the third album that was supposed to be released after "Light of Day, Day of Darkness". With this piece Green Carnation say farewell to X Botteri and his contribution to the band. 
+
+
+### "Alive And Well… Who Am I? (Live In Krakow, DVD)" 2004, Gothic
+
+Into Deep 
+Crushed To Dust 
+Writings On The Wall 
+Light Of Day, Day Of Darkness, pt. 1 
+The Boy In The Attic 
+Myron&Cole 
+Rain 
+As Life Flows By 
+бонусы: 
+Запись барабанов к "Into Deep" 
+"Crushed To Dust" бутлег 
+"Boy In The Attic" бутлег 
+"Writings On The Wall" бутлег
+
+### "The Quiet Offspring" 2005, Gothic
+
+1. The Quiet Offspring  
+2. Between The Gentle Small & The Standing Tall  
+3. Just When You Think It's Safe  
+4. A Place For Me  
+5. The Everlasting Moment  
+6. Purple Door, Pitch Black  
+7. Childsplay Part I  
+8. Dead but Dreaming  
+9. Pile Of Doubt 
+10. When I Was You  
+11. Childsplay Part II
+
+### "The Acoustic Verses" 2006, Gothic
+
+1. Sweet Leaf   
+2. The Burden Is Mine...Alone   
+3. Maybe?   
+4. Alone   
+5. 9-29-045   
+-My Greater Cause
+-Homecoming
+-House of Cards
+6. Childs Play part III   
+7. High Tide Waves
+
 
 ## Отношения с другими группами
 

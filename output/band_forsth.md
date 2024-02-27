@@ -1,7 +1,23 @@
 # Forsth
 
-Дискография
-"Winterfrost" 1997, Black Metal
+Black & Folk Metal !
+
+## Дискография
+
+### "Winterfrost" 1997, Black Metal
+
+1.  Intro
+2.  Waldpfad
+3.  In The Gleam Of The Burning Timeberabstract
+4.  Snowly Mountains
+5.  Mit Den Gedanken In Nordishen Altertum
+6.  Winterfrost
+7.  Horde Of Avengers
+8.  Wolfshowl In The Moonshinelight
+9.  Battles In The Dusk
+
+(P)(C) 1997 M.O.S. Records // MOS 001
+
 
 ## Отношения с другими группами
 

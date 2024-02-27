@@ -1,9 +1,58 @@
 # Gorelord
 
-Дискография
-"Force Fed On Human Flesh" 2001, Death Metal
-"Zombie Suicide Part 666" 2002, Death Metal
-"Norwegian Chainsaw Massacre " 2006, Death Metal
+old school Death Metal
+
+## Дискография
+
+### "Force Fed On Human Flesh" 2001, Death Metal
+
+1  Dismembered Virgin Limbs  
+2  Crushed Skull On Christian Shoulders  
+3  Crucified Goat Drenched In Blasphemic Blood  
+4  Force Fed On Human Flesh  
+5  Necrophilic Orgy In Entrails And Cum  
+6  Chainsaw Ripping Skin  
+7  Alive When Fucking The Dead  
+8  Maggots Impaled  
+9  Hell's Kitchen  
+
+
+### "Zombie Suicide Part 666" 2002, Death Metal
+
+1. The Stench Of Flesh Decomposing
+2. Screams Choked To Silence
+3. Dreams Of The Macabre
+4. Horror Gore & Unreligion
+5. Outback
+6. Shrieks Of The Undead
+7. Cumfucked Face Of Death
+8. Four Ways To Heaven One Way To Hell
+9. I Am Master Here
+10. Alive When Fucking The Dead (bonus track)
+11. Necrophilic Orgy In Entrails And Cum (bonus track)
+
+
+
+Gorelord is Frediablo. 
+ 
+The recording was executed in Fug's 'Pinhead Studio' in Trondheim Norway, July 2002.
+Mixed and engineered by Fug, and mastered in Skansen Studio by Stein 'Evil' Bratland. 
+Artwork was created by the extremely talented Patrick Tremblay. 
+
+### "Norwegian Chainsaw Massacre " 2006, Death Metal
+
+1. Outback Part II 02:09  
+2. Dying or Dreaming 01:32  
+3. All Hail the Gods of Horror 02:10  
+4. Flesh to Feed 01:18  
+5. Man of Shit 03:14  
+6. Deathbreed 02:43  
+7. Hammered 02:26  
+8. The Rising of the Undead 04:29  
+9. Sprayed With Gasoline 03:38  
+10. Glorification of Violence 05:32  
+11. The Final Cut 12:55 
+
 
 ## Отношения с другими группами
 

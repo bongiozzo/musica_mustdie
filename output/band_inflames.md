@@ -1,26 +1,401 @@
 # In Flames
 
-Дискография
-"Lunar Strain" 1994, Melodic Death Metal
-"The Jester Race" 1995, Melodic Death Metal
-"Subterranean" 1995, Melodic Death Metal
-"Whoracle" 1997, Melodic Death Metal
-"Black-Ash Inheritance" 1997, Melodic Death Metal
-"Colony" 1999, Melodic Death Metal
-"Clayman" 2000, Melodic Death Metal
-"The Tokyo Showdown - Live In Japan" 2001, Melodic Death Metal
-"Reroute To Remain" 2002, Melodic Death Metal
-"Trigger" 2003, Melodic Death Metal
-"Soundtrack To Your Escape" 2004, Melodic Death Metal
-"The Quiet Place (single)" 2004, Melodic Death Metal
-"Used & Abused In Live We Trust" 2005, Melodic Death Metal
-"Come Clarity" 2006, Melodic Death Metal
-"A Sense of Purpose" 2008, Metalcore
-"Delight And Angers" 2009, Metalcore
-"Deliver Us (single)" 2011, Melodic Death Metal
-"Sounds of a Playground Fading" 2011, Melodic Death Metal
-"Siren Charms" 2014, Metal
-"Battles" 2016, Metal
+
+
+## Дискография
+
+### "Lunar Strain" 1994, Melodic Death Metal
+
+1. Behind Strain
+2. Lunar Strain
+3. Starforsaken
+4. Dreamscape
+5. Everlost (Part I)
+6. Everlost (Part II)
+7. Hargalaten
+8. In Flames
+9. Upon An Oaken Throne
+10.Clad In Shadows
+
+ Mikael Stanne - Vocals
+ Karl Naslund - Guitars
+ Glenn Ljjungstrom - Guitars
+ Johan Larsson - Bass
+ Jesper Stromblad - Drums, Keyboards
+Violins & Viola Played By Ylva Wahlstedt
+Female Vocals By Jennica Johansson
+
+All Music & Lyrics By IN FLAMES
+Produced By IN FLAMES
+Engineered By H.Bjurkvist
+Recorded In Studio Fredman, Winter 1993
+
+(p)&(c) 1994 WRONG AGAIN Records
+
+### "The Jester Race" 1995, Melodic Death Metal
+
+1. Moonshield
+2. The Jesters Dance
+3. Artifacts Of The Black Rain
+4. Graveland
+5. Lord Hypnos
+6. Dead Eternity
+7. The Jester Race
+8. December Flower
+9. Wayfarer
+10.Dead God In Me
+
+All Songs By IN FLAMES.
+Produced By Fredrik Nordstrom & IN FLAMES.
+Engineered By F.Nordstrom & Patrik Hellgren.
+Recorded In Studio Fredman.
+
+Anders Friden - Vocals
+Glenn Ljunqstrom - Lead Guitars
+Johan Larsson - Bass, Backing Vocals
+Jesper Stromblad - Lead Guitars, Acoustic Guitars, Keyboards
+Bjorn Gelotte - Drums & Lead Guitars
+
+Keyboards By Fredrik Nordstrom.
+
+(P)c 1996 NUCLEAR BLAST Records
+
+### "Subterranean" 1995, Melodic Death Metal
+
+1. Stand Ablaze
+2. Ever Dying
+3. Subterranean
+4. Timeless
+5. Biosphere
+
+All Songs By IN FLAMES.
+Produced By IN FLAMES.
+Engineered By F.Nordstrom.
+Recorded In Studio Fredman,Summer-Winter 1994.
+
+Glenn Ljunqstrom - Guitars
+Johan Larsson - Bass, Backing Vocals
+Jesper Stromblad - Guitars, Keyboards
+Bjorn Gelotte - Drums
+
+(P)&(C) 1995 WRONG AGAIN Records
+
+### "Whoracle" 1997, Melodic Death Metal
+
+1. Jotun
+2. Food For The Gods
+3. Gyroscope
+4. Dialogue With The Stars
+5. The Hive
+6. Jester Script Transfigured
+7. Morphing Into Primal
+8. Worlds within The Margin
+9. Episode 666
+10.Everything Counts
+11.Whoracle
+
+Anders Friden - Vocals, Percussion
+Jesper Stormblad - Lead And Acoustic guitar, keyboards,
+percussion
+Glenn Ljungstrom - Rhytm Guitar
+Johan Larsson - Bass Guitar
+Bjorn Gelotte - Drums, Percussion, Lead and acoustic
+guitars
+Produced By Frederik Norstrom
+All songs By IN FLAMES, except 10 by DEPECHE MODE
+(p)(c)1997 Nuclear Blast
+
+### "Black-Ash Inheritance" 1997, Melodic Death Metal
+
+1. Goliaths Disarm Their Davids 4:56
+2. Gyroscope 3:26   
+3. Acoustic Medley 2:34    
+4. Behind Space (live) 3:36  
+ 
+
+### "Colony" 1999, Melodic Death Metal
+
+1. Embody The Invisible 3:37
+2. Ordinary Story 4:16
+3. Scorn 3:37   
+4. Colony 4:39   
+5. Zombie Inc.  5:05   
+6. Pallar Anders Visa 1:41   
+7. Coerced Coexistence 4:14   
+8. Resin 3:21   
+9. Behind Space ґ99 3:58
+10.Insipid 2000  3:45
+11.The New Word 3:18  
+
+
+### "Clayman" 2000, Melodic Death Metal
+
+1. Bullet Ride 
+2. Pinball Map 
+3. Only For The Weak 
+4. As The Future Repeats Today 
+5. Square Nothing 
+6. Clayman 
+7. Satellites And Astronauts 
+8. Brush The Dust Away 
+9. Swim 
+10.Suburban Me 
+11.Another Day In Quicksand 
+
+### "The Tokyo Showdown - Live In Japan" 2001, Melodic Death Metal
+
+Bullet Ride
+Embody the Invisible
+Jotun
+Food for the Gods
+Moonshield
+Clayman
+Swim
+Behind Space
+Only for the Weak
+Gyroscope
+Scorn
+Ordinary Story
+Pinball Map
+Colony
+Episode 666
+
+
+### "Reroute To Remain" 2002, Melodic Death Metal
+
+01. Reroute To Remain
+02. System
+03. Drifter
+04. Trigger
+05. Cloud Connected
+06. Transparent
+07. Dawn Of A New Day
+08. Egonomic
+09. Minus
+10. Dismiss The Cynics
+11. Free Fall
+12. Dark Signs
+13. Metaphor
+14. Black & White
+
+Album information:
+
+CD Nuclear Blast - 2002
+
+All songs written by Gelotte / Stromblad / Friden.
+Lyrics by Friden except "Reroute to remain" and "Dismiss the cynics" co-written by Helena Lindsjo.
+Produced by Daniel Bergstrand. Mixed by Daniel Bergstrand, Anders Friden and Orjan Ornkloo.
+Art direction, design and photography by Niklas Sundin. 
+
+Additional help provided by: 
+Maria Gauffin - vocals on "Metaphor"
+Fiol-Olof - violin on "Metaphor"
+Orjan Ornkloo - Keyboards/programming
+Teddy Moller - Drum tech
+Cymbal-Simon - Cymbal provider
+
+### "Trigger" 2003, Melodic Death Metal
+
+01. Trigger (single edit)
+02. Watch Them Feed (new song)
+03. Land Of Confusion (Genisis cover)
+04. Cloud Connected (remix)
+05. Moonshield (c64 karaoke version)
+
+"Trigger (video clip)
+Cloud Connected (video clip)
+
+Anders Friden - vocals
+Jesper Stromblad - guitar
+Bjorn Gelotte - guitar
+Peter Iwers - bass
+Daniel Svensson - drums
+
+Trigger" taken from the album "Reroute To Remain"
+Produced by Daniel Bergstrand
+Mixed by Daniel Bergstrand, Anders friden and
+Orjan Ornkloo
+
+"Watch Them Feed", "Land Of Confusion" and
+"Moonshield (c64 karaoke remix)" recorded at Phlat
+Planet
+Produced and mixed by In Flames
+"Cloud Connected (Club Remix)" made by Orjan
+Ornkloo / Dreamworld productions
+Video clips made by Peacemaker Filmproduktion
+
+All songs written and arranged by In Flames,
+except "Land Of Confusion" written by Genesis.
+
+Art direction and design by Cabin Fever Media
+
+### "Soundtrack To Your Escape" 2004, Melodic Death Metal
+
+01. F(r)iend
+02. The Quiet Place
+03. Dead Alone
+04. Touch Of Red
+05. Like You Better Dead
+06. My Sweet Shadow
+07. Evil In A Closet
+08. In Search For I
+09. Borders And Shading
+10. Superhero Of The Computer Rage
+11. Dial 595-escape
+12. Bottled
+
+Anders Friden - vocals
+Jesper Stromblad - guitar
+Bjorn Gelotte - guitar
+Peter Iwers - bass
+Daniel Svensson - drums
+
+Produced by Daniel Bergstrand.
+Recorded somewhere in Denmark, except drums at
+Dug-Out studio.
+Mixed at Galaxy Studios, Belgium by Daniel
+Bergstrand, Orjan Ornkloo and Anders Friden.
+Mastered by Bjorn Engelmann at Cutting Room.
+Guitars and keyboards recorded by Orjan Ornkloo.
+Drums, vocals and bass recorded by Daniel
+Bergstrand.
+All programming and samples by Orjan Ornkloo.
+Artwork and design by Cabin Fever Media.
+Music and lyrics by Bjorn Gelotte, Jesper
+Stromblad and Anders Friden.
+All arrangements by In Flames.
+
+### "The Quiet Place (single)" 2004, Melodic Death Metal
+
+01. The Quiet Place
+02. My Sweet Shadow (Remix)
+03. Varmlandsvisan (live)
+
+CD-Rom bonus:
+04. The Quiet Place (videoclip)
+05. Studio recording session (videoclip)
+06. Screensaver (enhanced part)
+
+### "Used & Abused In Live We Trust" 2005, Melodic Death Metal
+
+CD 1:
+
+01. Pinball Map
+02. System
+03. Behind Space
+04. Cloud Connected
+05. In Search For I
+06. The Quiet Place
+07. Trigger
+08. Touch Of Red
+09. My Sweet Shadow
+
+CD 2:
+
+01. F[r]iend
+02. Dead Alone
+03. Like You Better Dead
+04. Evil In A Closet
+05. Borders And Shading
+06. Superhero Of The Computer Rage
+07. Dial 595 - Escape
+08. Bottled
+09. Artifacts Of The Black Rain
+10. Moonshield
+11. Food For the Gods
+12. Jotun
+13. Colony
+14. Only For The Weak
+
+### "Come Clarity" 2006, Melodic Death Metal
+
+1. Take This Life
+2. Leeches
+3. Reflect The Storm
+4. Dead End
+5. Scream
+6. Come Clarity
+7. Vacuum
+8. Pacing Deathґs Trail
+9. Crawl Through Knives
+10. End Of Things
+11. Our Infinite Struggle
+12. Vanishing Light
+13. Your Bedtime Story Is Scaring Everyone
+
+### "A Sense of Purpose" 2008, Metalcore
+
+1. The Mirror's Truth   
+2. Disconnected   
+3. Sleepless Again   
+4. Alias   
+5. I'm the Highway   
+6. Delight and Angers   
+7. Move Through Me   
+8. The Chosen Pessimist   
+9. Sober and Irrelevant   
+10. Condemned   
+11. Drenched In Fear   
+12. March To The Shore
+
+### "Delight And Angers" 2009, Metalcore
+
+1. Delight And Angers 03:39 
+2. Delight And Angers (Instrumental) 03:39  
+3. Delight And Angers (Video) 
+
+
+### "Deliver Us (single)" 2011, Melodic Death Metal
+
+1. Deliver Us 03:30
+
+  
+
+### "Sounds of a Playground Fading" 2011, Melodic Death Metal
+
+1. Sounds of a Playground Fading  04:44    
+2. Deliver Us  03:30    
+3. All For Me  04:31    
+4. The Puzzle  04:34    
+5. Fear Is the Weakness  04:07    
+6. Where the Dead Ships Dwell  04:27    
+7. The Attic  03:18    
+8. Darker Times  03:25    
+9. Ropes  03:42    
+10. Enter Tragedy  03:59    
+11. Jester's Door  02:38    
+12. A New Dawn  05:52    
+13. Liberation  05:10 
+
+
+Anders Friden  Vocals  
+Bjцrn Gelotte  Guitars  
+Peter Iwers  Bass  
+Daniel Svensson  Drums, Percussion  
+ 
+
+
+### "Siren Charms" 2014, Metal
+
+1. In Plain View    
+2. Everything's Gone    
+3. Paralyzed      
+4. Through Oblivion  
+5. With Eyes Wide Open 
+6. Siren Charms      
+7. When the World Explodes  
+8. Rusted Nail  
+9. Dead Eyes    
+10. Monsters in the Ballroom  
+11. Filtered Truth  
+
+
+
+
+### "Battles" 2016, Metal
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,10 +1,44 @@
 # Barbarity
 
-Дискография
-"The Wish To Bleed" 2004, Death Metal
-"Hell Is Here" 2005, Death Metal
-"Enough Graves For Everybody" 2006, Death Metal
-"Grotesque Contradiction" 2008, Death Metal
+super death-metal from Russia
+
+## Дискография
+
+### "The Wish To Bleed" 2004, Death Metal
+
+
+
+### "Hell Is Here" 2005, Death Metal
+
+
+
+### "Enough Graves For Everybody" 2006, Death Metal
+
+01. Blind Fear (Intro)
+02. Graves For Everybody
+03. Death As Deliverance From Reality
+04. Repository Of Tormented Souls
+05. Mankind - No - A Mere Shadow Of It
+06. Rust In Goreswamp
+07. Moral Depravity
+08. Staph Terrorist (IMPETIGO)
+
+### "Grotesque Contradiction" 2008, Death Metal
+
+1. Porky Gore Blues 00:55  
+2. Grotesque Contradiction 02:15  
+3. World Vomitorium 03:17  
+4. Derogatory 03:19  
+5. Leprosical Disfunction 01:27  
+6. Grotesque Deformities (Gut Cover) 02:37  
+7. Graveyard Whore 01:53  
+8. Splatter Dance 02:04  
+9. Malignant Propagation 03:05  
+10. Reconstructive Surgery 02:52  
+11. Freakology 02:36  
+12. Hope Died First 02:39  
+13. Masters Of Horror / Outro 03:47 
+
 
 ## Отношения с другими группами
 

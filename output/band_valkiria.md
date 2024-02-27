@@ -1,7 +1,30 @@
 # Valkiria
 
-Дискография
-"The Pathway" 2006, Power Metal
+Chilean power metal
+
+## Дискография
+
+### "The Pathway" 2006, Power Metal
+
+1. Arcavias (Star-Log) 03:12 
+2. Only a Dream 04:05 
+3. My Return 04:24
+4. Betray 04:39
+5. I Feel 05:51 
+6. March of the Shades 00:35  
+7. Scepter of Power 04:13
+8. Last Chance 05:52  
+9. Someday 06:34  
+10. El Бngel de la Espada de Fuego 05:13 
+11. En Busca del Talismбn 07:48 
+
+
+Jaime Salva - vocals
+Daniel Romбn - guitars
+Rodrigo Muсoz - guitars
+Javier Ugarte - bass
+Fran Muсoz - drums
+
 
 ## Отношения с другими группами
 

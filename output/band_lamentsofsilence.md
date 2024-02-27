@@ -1,7 +1,21 @@
 # Laments of Silence
 
-Дискография
-"Restart Your Mind" 2010, Metalcore
+
+
+## Дискография
+
+### "Restart Your Mind" 2010, Metalcore
+
+1. Restart Your Mind	 
+2. Sentenced	 
+3. Paper Dolls	 
+4. Homeless On The World Of Solus	 
+5. Doomed 
+6. Scream In The Darkness	 
+7. Solitude	 
+8. Within My Dreams 
+9. Holy Faces
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,23 @@
 # Riul Doamnei
 
-Дискография
-"Apocryphal" 2007, Black Metal
+
+
+## Дискография
+
+### "Apocryphal" 2007, Black Metal
+
+1. Rev. 9:01 01:39  
+2. Nebula 05:22  
+3. Forgiveness Asleep at the Tyrants Palace 04:55  
+4. Hypostasis of the Archons 05:20  
+5. Siege Dawn to the Pillars of Heaven 06:32  
+6. Legacy in Violation 04:34  
+7. Haeretica (18th March 1314) 01:56  
+8. Thy Name is Legion 05:35  
+9. Sindon Consecration Sophisticated 06:18  
+10. Magdalene for Vesper Requiem 00:56  
+11. The Last Supper 08:47 
+
 
 ## Отношения с другими группами
 

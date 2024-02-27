@@ -1,10 +1,49 @@
 # Diabolical
 
-Дискография
-"Deserts Of Desolation (EP)" 2000, Melodic Death Metal
-"Synergy" 2001, Melodic Death Metal
-"A Thousand Deaths" 2002, Melodic Death Metal
-"The Gallery Of Bleeding Art" 2008, Melodic Death Metal
+
+
+## Дискография
+
+### "Deserts Of Desolation (EP)" 2000, Melodic Death Metal
+
+01. Ashes (intro) 
+02. Guidance Of Sin 
+03. Deserts 
+04. The Dreaming Dead 
+
+### "Synergy" 2001, Melodic Death Metal
+
+01. Suicidal Glory  
+02. Ashes II  
+03. Caged Wrath  
+04. Drowned In Blood  
+05. Guidance Of Sin  
+06. Human Contol  
+07. The Passenger  
+08. Haven
+
+### "A Thousand Deaths" 2002, Melodic Death Metal
+
+1 - A thousand death
+2 - Children of the Mushroom cloud
+3 - God of the underworld
+4 - Dead Angel’s choir
+5 - Until the day arrives
+6 - Under my skin
+7 - An opposite law
+8 - Demonic
+9 - Profane Murder
+
+
+M.Odling - lead vocals
+H.Carlsson - lead/rhythm guitar
+Vidar W. - rhythm guitar & vocals
+L.Soderberg - bass & drums
+
+### "The Gallery Of Bleeding Art" 2008, Melodic Death Metal
+
+
+
 
 ## Отношения с другими группами
 

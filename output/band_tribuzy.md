@@ -1,7 +1,13 @@
 # Tribuzy
 
-Дискография
-"Execution" 2006, Heavy Metal
+
+
+## Дискография
+
+### "Execution" 2006, Heavy Metal
+
+
+
 
 ## Отношения с другими группами
 

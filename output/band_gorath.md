@@ -1,11 +1,62 @@
 # Gorath
 
-Дискография
-"Elite" 2005, Black Metal
-"The Fourth Era" 2006, Black Metal
-"Misotheism" 2008, Black Metal
-"MXCII" 2010, Black Metal
-"Apokalypsis - Unveiling the Age that is not to Come" 2011, Black Metal
+
+
+## Дискография
+
+### "Elite" 2005, Black Metal
+
+1. A New Age  04:40   
+2. The Lizard Creature  04:59  
+3. White Deep An Embrace  05:23  
+4. A Pond Without Drops  05:26 
+5. Instrumental Intermezzo  00:54    
+6. The Fall of Winter  06:53 
+7. Suppress My Grief  05:57 
+8. We Are the Elite  06:03 
+9. Aeons Glow in the Sun  05:33 
+
+### "The Fourth Era" 2006, Black Metal
+
+1. Sagittarius  04:52   
+2. Xibalba Be  07:30   
+3. Create & Renew  08:37  
+4. Descending (The Realm)  00:38  
+5. The Fifth Birth  07:40  
+6. Zenith Point  05:22   
+7. Cosmogenesis  05:35 
+8. The Astronaut of Palenque  06:48 
+
+### "Misotheism" 2008, Black Metal
+
+1. Gnosis  08:47   
+2. Apophasis  06:41   
+3. Abufihamet  06:22   
+4. Sophia  02:38   
+5. Metempsychosis  05:52   
+6. Abraxas  09:48   
+7. Sicarii  08:14 
+
+### "MXCII" 2010, Black Metal
+
+1. Tombeveld  09:34   
+2. Thiedenbecke  06:05  
+3. Doed Over't Galgeveld  07:15   
+4. Do Ut Des  03:06
+5. Godsgerecht Geschiedde  06:18  
+6. Heidewake  05:59  
+7. Gesta Sancti Servatii  10:43 
+
+### "Apokalypsis - Unveiling the Age that is not to Come" 2011, Black Metal
+
+1. Before the Throne of the Demiurge     
+2. The Seven Seals  
+3. Wrath of God    
+4. Le Porteur de Lumi&#232;re  
+5. Beasts from the Earth and the Sea
+6. Whore of Babylon   
+7. Millennium (Thousand Years of Darkness)  
+
 
 ## Отношения с другими группами
 

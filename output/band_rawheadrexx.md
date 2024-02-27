@@ -1,8 +1,52 @@
 # Rawhead Rexx
 
-Дискография
-"Rawhead Rexx" 2001, Power Metal
-"Diary In Black" 2003, Power Metal
+Heavy-power
+
+## Дискография
+
+### "Rawhead Rexx" 2001, Power Metal
+
+The Curse 
+Town Of Skulls 
+Opposing Force 
+Mr. Hyde 
+Holy War 
+Sons Of Mayhem 
+Rawhead Rexx 
+Request (Bonus-Track) 
+Blood On My Hands 
+The Wolf (Bonus-Track) 
+Pain 
+Don't Tear Me Down 
+The Scream 
+
+
+### "Diary In Black" 2003, Power Metal
+
+01 Dark Ages
+02 Return Of The Dragon
+03 Diary In Black
+04 Brothers In Arms
+05 Barons Overthrow
+06 The Machine
+07 What If
+08 Evil In Man
+09 Dragon Heart
+10 Metal War
+11 Saint And Sinner
+12 The Resistance
+13 Six Feet From The Edge 
+
+JЬRGEN VOLK - VOCALS / GUITARS
+ 
+RЬDIGER FLECK - GUITARS
+ 
+FACE - BASS
+ 
+DANY LOEBLE - DRUMS
+ 
+
+
 
 ## Отношения с другими группами
 

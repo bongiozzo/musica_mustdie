@@ -1,7 +1,24 @@
 # Burns Blue
 
-Дискография
-"What If..." 2003, Metal
+AOR
+
+## Дискография
+
+### "What If..." 2003, Metal
+
+· Cool Me Down
+· Straight
+· Deadly Sin
+· Don't Wanna Know
+· Lover's Game
+· I'm Gonna Win
+· Crazy
+· She Wrote
+· Tomorrow Never Comes
+· To One Side
+· Hung Out Too Dry
+· Where Are You Now?
+
 
 ## Отношения с другими группами
 

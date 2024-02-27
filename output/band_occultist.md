@@ -1,7 +1,20 @@
 # Occultist
 
-Дискография
-"Death Sigils" 2013, Thrash
+
+
+## Дискография
+
+### "Death Sigils" 2013, Thrash
+
+1. Iron Distort
+2. Devil's Breath
+3. Death Sigils
+4. Ritual Blast
+5. Path Of The Damned
+6. A Hell For The Innocent
+7. Blackest Apotheosis
+8. Towers Of Silence
+
 
 ## Отношения с другими группами
 

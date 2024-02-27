@@ -1,7 +1,28 @@
 # Nobilitas Nigra
 
-Дискография
-"The only true Armageddon" 2000, Black Metal
+
+
+## Дискография
+
+### "The only true Armageddon" 2000, Black Metal
+
+1. Intro
+2. Slow Death
+3. Hell Warriors
+4. Your Corpse is my Life
+5. A Battle to Win
+6. Bloodshed Agony
+7. Calling the Madness
+8. Die Bastard
+9. Electric Escape
+10. Haunted
+11. Decapitation of the Holy Ones
+12. Calm
+13. Half Human Half Demon
+14. World Sarcofago
+15. He Died in the Skies
+16. Sweidal Incantations
+
 
 ## Отношения с другими группами
 

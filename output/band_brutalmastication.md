@@ -1,6 +1,9 @@
 # Brutal Mastication
 
-Дискография
+USA death/hardcore
+
+## Дискография
+
 
 ## Отношения с другими группами
 

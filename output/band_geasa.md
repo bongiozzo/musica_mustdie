@@ -1,8 +1,44 @@
 # Geasa
 
-Дискография
-"Angel's Cry" 1999, Black Metal
-"Fate's Lost Son" 2003, Black Metal
+irish death-black
+
+## Дискография
+
+### "Angel's Cry" 1999, Black Metal
+
+1. Tuatha De Dannan 
+2. Duan Do Mo Bheann Sidhe 
+3. The Last One On Earth 
+4. Dannu 
+5. Frozen Queen 
+6. Rite Of Passage 
+7. Where Shadows Are Borne 
+8. Starside 
+9. Spansill Hill 
+
+### "Fate's Lost Son" 2003, Black Metal
+
+Fate's Last Son
+1. Seas - 6:23
+2. Heavenfall  - 5:46
+3. Divine Reality - 6:28
+4. Eire - 4:40
+5. Crawl (Into the Sun) - 5:21
+
+Starside
+6. Burning the Gates of Rome - 2:15
+7. Empyrea - 4:51
+8. Draiochta/Warrior - 7:16
+9. Starside - 6:11
+10. Rites of Passage - 6:29 
+
+
+
+Draighean - Bass, Vocals 
+Philip White - Guitar 
+Simon O`leary - Drums 
+Steve Maher - Guitar
+
 
 ## Отношения с другими группами
 

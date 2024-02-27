@@ -1,7 +1,32 @@
 # Shade
 
-Дискография
-"Sounds Of Memory: (Chapter...Echo)" 1996, Death Doom
+
+
+## Дискография
+
+### "Sounds Of Memory: (Chapter...Echo)" 1996, Death Doom
+
+1. Intimate Of Eccentric Sleep
+2. Sky And Trees
+3. Stone Flowers
+4. Meanders Of Imagination
+5. ...Light (Part One)
+6. Calm Of Scenery
+7. Birds
+
+All songs written by SHADE
+Produced by SHADE
+Engineered by Bogdan Nowais and Piotr Sitek
+Recorded at Spaart Recording Studio
+
+Konrad - Bass, Vocals
+Goras - Keyboards
+Kula - Guitars, Vocals
+Dominik - Drums, Keyboards
+Stawek - Guitars
+
+(P)(c)  1996 SERENADES Records
+
 
 ## Отношения с другими группами
 

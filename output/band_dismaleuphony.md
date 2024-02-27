@@ -1,12 +1,90 @@
 # Dismal Euphony
 
-Дискография
-"Dismal Euphony" 1995, Black Metal
-"Soria Moria Slott" 1996, Black Metal
-"Autumn Leaves - The Rebellion Of Tides" 1997, Black Metal
-"All Little Devils" 1999, Black Metal
-"Lady Ablaze" 1999, Black Metal
-"Python Zero" 2001, Black Metal
+
+
+## Дискография
+
+### "Dismal Euphony" 1995, Black Metal
+
+1.  A Winter's Tale
+2.  Spellbound
+3.  The Mournful Silence
+
+Recorded at Soundsite Studio.
+Engineered By Terje Refsnes
+
+Keltziva - Female Vocals
+Falkvor - Grim Vocals, Guitar, Bass
+Huldrin - Drums, Guitar, Bass
+Elin - Synth, Keys
+
+(P)c 1996 NAPALM Records
+
+### "Soria Moria Slott" 1996, Black Metal
+
+1. Prolog
+2. Et Vintereventyr
+3. Natten Loftet Sitt Tunge Ansikt...
+4. Alvedans
+5. Troll Bundet
+6. Ekko
+7. Isgrav, Det Siste Hvilested
+8. Epilog
+
+Recorded & Mixed at West Audio By Torojorn Solum.
+Mixed & Mastered By DISMAL EUPHONY & Torojorn Solum.
+
+Keitziva - Female Vocals
+Ole - Grim Vocals, Guitar, Bass
+Austrheim - Battery, Guitars, Bass, War Drums
+Elin - Synth, Piano
+
+(P)c 1996 NAPALM Records // NPR 021
+
+### "Autumn Leaves - The Rebellion Of Tides" 1997, Black Metal
+
+1. An Autumn Leaf in the Circles of Time
+2. Simply Dead
+3. A Thousand Rivers
+4. Mistress Tears
+5. Carven
+6. Spire
+7. In Rememberance of a Shroud
+8. Splendid Horror
+
+### "All Little Devils" 1999, Black Metal
+
+1. Days of Sodom
+2. Rage of Fire
+3. Victory
+4. All Little Devils
+5. Lunatic
+6. Psycho Path
+7. Shine for Me Misery
+8. Scenario
+9. Dead Words
+
+### "Lady Ablaze" 1999, Black Metal
+
+1. Lady Ablaze
+2. Abandon
+3. Cabinet Bizzare
+4. 150 mph
+5. Bortgang
+
+
+### "Python Zero" 2001, Black Metal
+
+01 - Critical Mass
+02 - Python Zero
+03 - Zentinel
+04 - Needle
+05 - Magma
+06 - Birth Reverse
+07 - Plasma Pool
+08 - Flyineye
+
+
 
 ## Отношения с другими группами
 

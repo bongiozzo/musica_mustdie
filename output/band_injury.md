@@ -1,7 +1,21 @@
 # Injury
 
-Дискография
-"Unleash the Violence" 2011, Thrash
+
+
+## Дискография
+
+### "Unleash the Violence" 2011, Thrash
+
+1. Ignorance	 
+2. The Execution	 
+3. Busy Killing	 
+4. Violence Unleashed	 
+5. Messiah of the Undone	 
+6. Food for Voltures	 
+7. Death Routine	 
+8. Fear of Nothing	 
+9. Denying My Soul
+
 
 ## Отношения с другими группами
 

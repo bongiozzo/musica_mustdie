@@ -1,7 +1,21 @@
 # Myrk
 
-Дискография
-"Icons Of The Dark" 2004, Black Metal
+
+
+## Дискография
+
+### "Icons Of The Dark" 2004, Black Metal
+
+Blindfolded By Misery
+Our Age Has Now Begun
+In Silence
+Myrk
+Within The Burning Darkness
+When We Raised The Sign
+I Am The Symbolic Torture
+Nightwinds
+The Spell
+
 
 ## Отношения с другими группами
 

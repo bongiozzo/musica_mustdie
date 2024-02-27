@@ -1,7 +1,23 @@
 # Full Strike
 
-Дискография
-"We Will Rise" 2002, Power Metal
+member of HAMMERFALL
+
+## Дискография
+
+### "We Will Rise" 2002, Power Metal
+
+01 End Of Time 3:54
+02 Enlighten Me 3:29
+03 We Will Rise 3:12
+04 Metal Mind 3:25
+05 Silent Screams 3:55
+06 Master Of My Soul 3:20
+07 Mandrakes Dream 3:28
+08 When Will I Know 4:03
+09 First Strike (Instrumental) 3:50
+10 Created Fantasy 3:40
+11 Force Of The World 5:26
+
 
 ## Отношения с другими группами
 

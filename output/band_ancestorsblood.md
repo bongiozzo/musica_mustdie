@@ -1,8 +1,39 @@
 # Ancestors Blood
 
-Дискография
-"Return of the Ancient Ones" 2008, Black Metal
-"A Dark Passage From The Past [Compilation]" 2009, Black Metal
+
+
+## Дискография
+
+### "Return of the Ancient Ones" 2008, Black Metal
+
+1. Intro 05:03
+2. To War and Glory 05:58  
+3. Wisdom Opens The Gates For The King 04:07
+4. Annihilation of Christianity 06:02  
+5. Shades of Life 07:29  
+6. Ukko 04:21  
+7. Fatherland 04:23
+8. Reign of Terror 04:45  
+9. Rise of the Spirits of Ancient Heroes 07:37  
+10. Outro 
+
+### "A Dark Passage From The Past [Compilation]" 2009, Black Metal
+
+1. Introduction 04:15  
+2. Screams of War 05:09  
+3. Ukko 04:28  
+4. Interlude (Pohjola) 01:58  
+5. God of Evil and Lord of Demons 04:46  
+6. Rise of the Spirits of Ancient Heroes / Outroduction 07:30  
+7. Prelude 03:53  
+8. Declaration of War 04:04  
+9. Ancestors Blood 03:11  
+10. Annihilation of Christianity 06:19  
+11. Prologue 04:32  
+12. Entrance To The Underworld 06:45  
+13. Wisdom Opens The Gates For The King 04:39  
+14. Ravens of the Devoted 01:59 
+
 
 ## Отношения с другими группами
 

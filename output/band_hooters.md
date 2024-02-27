@@ -1,24 +1,240 @@
 # Hooters
 
-Дискография
-"Amore" 1983, Metal
-"Live In Concert (live)" 1985, Metal
-"Nervous Night" 1985, Metal
-"One Way Home" 1987, Metal
-"Zig Zag" 1989, Metal
-"Greatest Hits (compilation)" 1992, Metal
-"Out Of Body" 1993, Metal
-"Greatest Hits, Vol. 2 (compilation)" 1994, Metal
-"Definitive Collection (compilation)" 1995, Metal
-"We Came To Play (compilation)" 1995, Metal
-"Best (compilation)" 1996, Metal
-"Hooterization: A Retrospective (compilation)" 1996, Metal
-"All You Zombies (compilation)" 1997, Metal
-"Johnny B (compilation)" 1997, Metal
-"Simply The Best (compilation)" 1998, Metal
-"Super Hits (compilation)" 2001, Metal
-"Hits 4 Ever: The Best Of Hooters (compilation)" 2002, Metal
-"Definitive Collection: Best Of The Best (compilation)" 2003, Metal
+US AOR
+
+## Дискография
+
+### "Amore" 1983, Metal
+
+01) Amore
+02) Hanging On A Heartbeat
+03) Fightin' On The Same Side
+04) Blood From A Stone
+05) All You Zombies
+06) Don't Wanna Fight
+07) Concubine
+08) Birdman
+
+### "Live In Concert (live)" 1985, Metal
+
+01) Day By Day
+02) Hanging On A Heartbeat
+03) She Comes In Colors
+04) Don't Take My Car Out Tonight
+05) Lucy In The Sky With Diamonds (The Beatles Cover)
+06) Where Do The Children Go
+07) All You Zombies
+08) Time After Time
+09) Trouble In Paradise
+10) Who's That Girl
+11) And We Danced
+
+### "Nervous Night" 1985, Metal
+
+01) And We Danced
+02) Day By Day
+03) All You Zombies
+04) Don't Take My Car Out Tonight
+05) Nervous Night
+06) Hanging On A Heartbeat
+07) Where Do The Children Go
+08) South Ferry Road
+09) She Comes In Colors
+10) Blood From A Stone
+
+### "One Way Home" 1987, Metal
+
+01) Satellite
+02) Karla With AK
+03) Johnny B
+04) Graveyard Waltz
+05) Fightin' On The Same Side
+06) One Way Home
+07) Washington's Day
+08) Hard Rockin' Summer
+09) Engine 999
+
+### "Zig Zag" 1989, Metal
+
+01) Brother, Don't You Walk Away
+02) Deliver Me
+03) 500 Miles
+04) You Never Know Who Your Friends Are
+05) Heaven Laughs
+06) Don't Knock It 'Til You Try It
+07) Give The Music Back
+08) Always A Place
+09) Mr. Big Baboon
+10) Beat Up Guitar
+
+### "Greatest Hits (compilation)" 1992, Metal
+
+
+
+### "Out Of Body" 1993, Metal
+
+
+
+### "Greatest Hits, Vol. 2 (compilation)" 1994, Metal
+
+01) Deliver Me
+02) Hanging On A Heartbeat
+03) Don't Take My Car Out Tonight
+04) You Never Know Who Your Friends Are
+05) Blood From A Stone
+06) Hard Rockin' Summer
+07) One Way Home
+08) Beat Up Guitar
+09) She Comes In Colors
+10) Engine 999
+11) Always A Place
+12) Washington's Day
+13) South Ferry Road
+14) Heaven Laughs
+15) Graveyard Waltz
+
+### "Definitive Collection (compilation)" 1995, Metal
+
+01) Twenty-Five Hours A Day
+02) Satellite
+03) And We Danced
+04) Day By Day
+05) All You Zombies
+06) Where Do The Children Go
+07) Nervous Night
+08) Johnny B
+09) Karla With AK
+10) Fightin' On The Same Side
+11) Brother, Don't You Walk Away
+12) 500 Miles
+13) Don't Knock It 'Til You Try It
+14) Give The Music Back
+15) Mr. Big Baboon
+16) Shadow Of Jesus
+
+### "We Came To Play (compilation)" 1995, Metal
+
+01) Day By Day
+02) All You Zombies
+03) Graveyard Waltz
+04) Hard Rockin' Summer
+05) Give The Music Back
+06) Satellite
+07) Where Do You Children Go
+08) Fightin' On The Same Side
+09) Beat Up Guitar
+10) Brother, Don't You Walk Away
+
+### "Best (compilation)" 1996, Metal
+
+
+
+### "Hooterization: A Retrospective (compilation)" 1996, Metal
+
+01) And We Danced
+02) Nervous Night
+03) All You Zombies
+04) Satellite
+05) Karla With AK
+06) Where Do You Children Go
+07) 500 Miles
+08) Fightin' On The Same Side
+09) Day By Day
+10) Lucy In The Sky With Diamonds (The Beatles Cover)
+11) Heaven Laughs
+12) Brother, Don't You Walk Away
+13) Johnny B
+14) She Comes In Colors
+15) Time After Time
+16) Beat Up Guitar
+
+### "All You Zombies (compilation)" 1997, Metal
+
+01) All You Zombies
+02) 500 Miles
+03) Nervous Night
+04) Satellite
+05) Lucy In The Sky With Diamonds (The Beatles Cover)
+06) Deliver Me
+07) Heaven Laughs
+08) Graveyard Waltz
+09) Day By Day
+10) One Way Home
+11) Beat Up Guitar
+12) South Ferry Road
+13) You Never Know Who Your Friends Are
+14) Where Do The Children Go
+
+### "Johnny B (compilation)" 1997, Metal
+
+
+
+### "Simply The Best (compilation)" 1998, Metal
+
+01) Johnny B
+02) All The Zombies
+03) Karla With AK
+04) And We Danced
+05) Brother, Don't You Walk Away
+06) Nervous Night
+07) Blood From A Stone
+08) Day By Day
+09) South Ferry Road
+10) Fightin' On The Same Side
+11) Give The Music Back
+12) Heaven Laughs
+13) Satellite
+
+### "Super Hits (compilation)" 2001, Metal
+
+01) Satellite
+02) All You Zombies
+03) And We Danced
+04) Nervous Night
+05) Brother, Don't You Walk Away
+06) Johnny B
+07) Day By Day
+08) Washington's Day
+09) 500 Miles
+10) Graveyard Waltz
+
+### "Hits 4 Ever: The Best Of Hooters (compilation)" 2002, Metal
+
+01) Johnny B
+02) All You Zombies
+03) Karla With AK
+04) Mr. Big Baboon
+05) Nervous Night
+06) 500 Miles
+07) And We Danced
+08) Brother, Don't You Walk Away
+09) Where Do The Children Go
+10) Day By Day
+11) Don't Knock It 'Til You Try It
+12) Give The Music Back
+13) Deliver Me
+14) Satellite
+15) You Never Know Who Your Friends Are
+
+### "Definitive Collection: Best Of The Best (compilation)" 2003, Metal
+
+01) Twenty-Five Hours A Day
+02) Satellite
+03) And We Danced
+04) Day By Day
+05) All You Zombies
+06) Where Do The Children Go
+07) Nervous Night
+08) Johnny B
+09) Karla With AK
+10) Fightin' On The Same Side
+11) Brother, Don't You Walk Away
+12) 500 Miles
+13) Don't Knock It 'Til You Try It
+14) Give The Music Back
+15) Mr. Big Baboon
+16) Shadow Of Jesus
+
 
 ## Отношения с другими группами
 

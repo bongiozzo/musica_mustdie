@@ -1,7 +1,13 @@
 # The Dictators
 
-Дискография
-"Viva Dictators!" 2005, Punk
+
+
+## Дискография
+
+### "Viva Dictators!" 2005, Punk
+
+
+
 
 ## Отношения с другими группами
 

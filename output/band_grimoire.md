@@ -1,7 +1,32 @@
 # Grimoire
 
-Дискография
-"A Requiem For The Light" 1996, Black Metal
+
+
+## Дискография
+
+### "A Requiem For The Light" 1996, Black Metal
+
+1. A Requiem For The Light
+2. At Dark
+3. Above The Silvery Fog (The Night Flight)
+4. The Immortal Warrior Spirit
+5. Nevuath Ha Tom
+6. In The Darkwoods Sovereignity
+7. Our Agony (Al Hake'ev)
+8. Vampires
+9. ...And On With Darkness
+
+Engineered & Mixed By Svetta In Gal-Kol Studios.
+Recorded & Mixed At Gal-Kol Studios.
+
+Lord Koder - Drums, Backing Vocals
+Avi - Guitars
+Itai - Bass
+Eden - Keyboards
+Y.Lahav - Vocals, Guitars
+
+(P)(C) 1996 EUPHONIUS Records // PHONI 003
+
 
 ## Отношения с другими группами
 

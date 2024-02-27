@@ -1,7 +1,47 @@
 # War and Peace
 
-Дискография
-"Light at the End of the Tunnel" 2000, Hard Rock
+
+
+## Дискография
+
+### "Light at the End of the Tunnel" 2000, Hard Rock
+
+1. What Cost War - War And Peace
+2. The Night You Walked Away - War And Peace
+3. Wrong Place Wrong Time - War And Peace
+4. Playing God Again - War And Peace
+5. Solitary World - War And Peace
+6. In The Dead Of The Night - War And Peace
+7. Sweet Release - War And Peace
+8. End Of The Tunnel - War And Peace
+9. Stay Out Of My Mind - War And Peace
+10. Cast The Stone - War And Peace
+
+Jeff Pilson - vocals, bass, guitars, keyboards
+
+Drums: James Kottak (Scorpions, Kingdome Come)
+Guitar: Reb Beach (Winger, Alice Cooper, Dokken)
+Guitar: Paul Gilbert (Racer X)
+Guitar: Richie Kotzen (Mr. Big / Poison)
+Guitar: John Norum (Europe)
+Guitar: John Levin (Dokken, Warlock)
+
+Mellotron: Jeff Pilson
+
+Produced by jeff pilson
+mixed by tom fletcher
+primary pro tools engineer - vince cole
+pro-tool technician - albert law
+recorded at pilsonsound studios/van nuys CA
+except recorded at sacred stone studios/ van nuys
+CA
+drums recorded at mastercontrol / burbank CA
+mastered by Brad Vance at DNA mastering studio
+city CA
+grapic design and illustration by chuck wright for
+new age graphic design
+photos by paul taylor&ravinder bassi
+
 
 ## Отношения с другими группами
 

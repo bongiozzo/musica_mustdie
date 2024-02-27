@@ -47,13 +47,13 @@
 Стиль: Death Industrial
 Год: 2000
 
-Группа: Fear Factory
-Альбом: "Concrete (demo)"
+Группа: Darkane
+Альбом: "Expanding Sences"
 Стиль: Death Industrial
 Год: 2002
 
-Группа: Darkane
-Альбом: "Expanding Sences"
+Группа: Fear Factory
+Альбом: "Concrete (demo)"
 Стиль: Death Industrial
 Год: 2002
 
@@ -72,21 +72,6 @@
 Стиль: Death Industrial
 Год: 2004
 
-Группа: Funeral Revolt
-Альбом: "The Perfect Sin"
-Стиль: Death Industrial
-Год: 2005
-
-Группа: Oblivion Machine
-Альбом: "Demo"
-Стиль: Death Industrial
-Год: 2005
-
-Группа: Fear Factory
-Альбом: "Transgression"
-Стиль: Death Industrial
-Год: 2005
-
 Группа: Blut Aus Nord
 Альбом: "Thematic Emanation Of Archetypal Multiplicity"
 Стиль: Death Industrial
@@ -97,18 +82,33 @@
 Стиль: Death Industrial
 Год: 2005
 
+Группа: Fear Factory
+Альбом: "Transgression"
+Стиль: Death Industrial
+Год: 2005
+
+Группа: Funeral Revolt
+Альбом: "The Perfect Sin"
+Стиль: Death Industrial
+Год: 2005
+
+Группа: Oblivion Machine
+Альбом: "Demo"
+Стиль: Death Industrial
+Год: 2005
+
 Группа: Blut Aus Nord
 Альбом: "MoRT"
 Стиль: Death Industrial
 Год: 2006
 
-Группа: Perimeter
-Альбом: "Healing by Festering"
+Группа: Bog~Morok
+Альбом: "Stadiae II"
 Стиль: Death Industrial
 Год: 2006
 
-Группа: Bog~Morok
-Альбом: "Stadiae II"
+Группа: Perimeter
+Альбом: "Healing by Festering"
 Стиль: Death Industrial
 Год: 2006
 
@@ -127,8 +127,8 @@
 Стиль: Death Industrial
 Год: 2009
 
-Группа: Oblivion Machine
-Альбом: "Viewpoint Collector (Ultimate Version 2.13)"
+Группа: Fear Factory
+Альбом: "Mechanize"
 Стиль: Death Industrial
 Год: 2010
 
@@ -137,10 +137,15 @@
 Стиль: Death Industrial
 Год: 2010
 
-Группа: Fear Factory
-Альбом: "Mechanize"
+Группа: Oblivion Machine
+Альбом: "Viewpoint Collector (Ultimate Version 2.13)"
 Стиль: Death Industrial
 Год: 2010
+
+Группа: Anaal Nathrakh
+Альбом: "Passion"
+Стиль: Death Industrial
+Год: 2011
 
 Группа: Fatal Error
 Альбом: "Conglomerate"
@@ -152,18 +157,13 @@
 Стиль: Death Industrial
 Год: 2011
 
-Группа: Anaal Nathrakh
-Альбом: "Passion"
-Стиль: Death Industrial
-Год: 2011
-
 Группа: Fear Factory
-Альбом: "The Industrialist"
+Альбом: "Recharger [single]"
 Стиль: Death Industrial
 Год: 2012
 
 Группа: Fear Factory
-Альбом: "Recharger [single]"
+Альбом: "The Industrialist"
 Стиль: Death Industrial
 Год: 2012
 

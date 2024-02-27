@@ -1,8 +1,69 @@
 # Headcrash
 
-Дискография
-"Direction Of Correctness" 1994, Rap Metal
-"Overdose On Tradition" 1996, Rap Metal
+RAP Style
+
+## Дискография
+
+### "Direction Of Correctness" 1994, Rap Metal
+
+1. Brain Pattern I
+2. Scapegoat
+3. Choke
+4. Freedom
+5. Breathe
+6. 50 Channels
+7. Brain Pattern II
+8. Black Gold
+9. Something To Prove
+10. Know Nothing
+11. Brain Pattern III
+12. Product
+13. Direction Of Correctness
+
+ Alen Wright - Vocals
+ Herwig Meisaner - Guitars, Bass, Back Vox
+ Uli Franke - Keys, Programming, Back Vox
+ Fritz Weber - Keys, Programming, Samples
+
+All Songs Written By U. Franke / H. Meisaner
+Words By A.Wright
+Produced By Tommy Newton & HEADCRASH
+
+(p)&(c) 1994 EAST WEST Records
+
+### "Overdose On Tradition" 1996, Rap Metal
+
+1. Plugged In
+2. Imitation Of Life
+3. Stains
+4. Decapitated
+5. Poaching Clean Water
+6. Intro
+7. Safehouse
+8. Jock Anthem
+9. King Of The Chrome
+10. Seamripper
+11. Nailed
+12. Loyal Customers
+ [13]. The Sell-Out Daze
+ [14]. Tree
+
+[13]-[14] - Ha cторoнe B
+
+All songs written by HEADCRASH
+Produced and engineered by Jonathan Burnside
+Mixed by Jonathan Burnside and Ulrich Franke.
+Recorded at Razor's Edge, San Francisco
+
+Allen Wright - Vocals, Samples
+Shane Cooper - Vocals, Samples
+Herwig Meysner - Guitars, Bass, Background Vocals
+Ultich Franke - Keyboards, Programming, Background Vocals
+Koger Ingenthron - Guitars, Bass, Background Vocals
+Nico Berthold - Drums, Percussion, Programming
+
+ (p)(c) 1996 EAST WEST Records
+
 
 ## Отношения с другими группами
 

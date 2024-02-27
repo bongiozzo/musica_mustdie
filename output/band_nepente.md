@@ -1,7 +1,21 @@
 # Nepente
 
-Дискография
-"Atonements" 2008, Death Metal
+
+
+## Дискография
+
+### "Atonements" 2008, Death Metal
+
+1. Procession	 
+2. Presence	
+3. Infernal Waves	 
+4. Roots of Darkness	 
+5. Red Suns	 
+6. Dying In Red	 
+7. Ascension	 
+8. Veil of Pain	 
+9. The Burning Moon
+
 
 ## Отношения с другими группами
 

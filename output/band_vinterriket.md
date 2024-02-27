@@ -1,13 +1,37 @@
 # Vinterriket
 
-Дискография
-"Gjennom Takete Skogen (demo)" 2000, Ambient
-"Promo 2001" 2001, Black Metal
-"Sturme der Letzten Stille (demo)" 2001, Black Metal
-"Promo 2002" 2002, Black Metal
-"Kalte" 2002, Black Metal
-"… und die Nacht kam Schweren Schrittes" 2002, Black Metal
-"Winterschatten" 2003, Black Metal
+
+
+## Дискография
+
+### "Gjennom Takete Skogen (demo)" 2000, Ambient
+
+
+
+### "Promo 2001" 2001, Black Metal
+
+
+
+### "Sturme der Letzten Stille (demo)" 2001, Black Metal
+
+
+
+### "Promo 2002" 2002, Black Metal
+
+
+
+### "Kalte" 2002, Black Metal
+
+
+
+### "… und die Nacht kam Schweren Schrittes" 2002, Black Metal
+
+
+
+### "Winterschatten" 2003, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

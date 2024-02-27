@@ -1,11 +1,56 @@
 # Hallows Eve
 
-Дискография
-"Tales of Terror" 1985, Thrash
-"Death & Insanity" 1986, Thrash
-"Monument" 1988, Thrash
-"Evil Never Dies" 2006, Thrash
-"The Never-Ending Sleep" 2008, Thrash
+
+
+## Дискография
+
+### "Tales of Terror" 1985, Thrash
+
+ Side One:
+1. Plugging To Megadeth 4.50
+2. Outer Limits 3.45
+3. Horror Show 2.28
+4. The Mansion 3.03
+ Side Two:
+1. There Are No Rules 1.44
+2. Valley Of The Dolls
+3. Metal Merchants * 4.22
+4. Hallow's Eve Including Routine * 8.03
+
+Stacy Anderson - Vocals
+Ronny Appoldt - Drums
+Skellator - Guitars
+Tommy Stewart - Bass
+David Stuart -Guitars
+Tym Helton - Drums On *
+
+(p) 1985 METAL BLADE Records
+(c) 1985 ROADRUNNER Records
+
+### "Death & Insanity" 1986, Thrash
+
+
+
+### "Monument" 1988, Thrash
+
+
+
+### "Evil Never Dies" 2006, Thrash
+
+01. Soldier
+02. Monkey’s Paw
+03. Technicolour Roadkill
+04. Looking Glass
+05. Sweetest Tongue, Sharpest Tooth
+06. Interlude
+07. Vampires Drink Deep
+08. Evil Never Dies (including Black Queen)
+09. the Ballad of Mortuary Harry
+
+### "The Never-Ending Sleep" 2008, Thrash
+
+
+
 
 ## Отношения с другими группами
 

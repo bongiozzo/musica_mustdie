@@ -1,8 +1,44 @@
 # Inquisicao
 
-Дискография
-"One More Battle" 2008, Heavy Metal
-"Reborn" 2010, Heavy Metal
+
+
+## Дискография
+
+### "One More Battle" 2008, Heavy Metal
+
+1. The Exorcist
+2. Going Down the Abyss
+3. The Animal
+4. Long Day Anxiety
+5. Insane Warrior	
+6. Salvation Star
+7. A Touch of Reality
+8. When Faith is Dying
+9. Survive
+10. Heaven is Falling
+11. Scattered Mind
+12. One More Battle
+
+### "Reborn" 2010, Heavy Metal
+
+1. Darkest Dreams
+2. Midnight Wanderer
+3. Bullets Flying	
+4. Break Down The Walls
+5. Reborn	
+6. Burn You Down
+7. Death Of The Sun	
+8. Judgement Day
+9. One Man Revolution
+10. Grey Skies
+11. Brand New Day
+12. Caes Malditos (Bonus)	
+13. Cruz De Ferro (Bonus)	
+14. Tempo Fechado (Bonus)
+15. Insano (Bonus)	
+16. Napalm (Bonus)
+17. O Exorcista (Bonus)
+
 
 ## Отношения с другими группами
 

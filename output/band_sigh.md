@@ -1,14 +1,108 @@
 # Sigh
 
-Дискография
-"Requiem for the Fools" 1992, Black Metal
-"Scorn Defeat" 1994, Black Metal
-"Ghastly Funeral Theatre" 1997, Black Metal
-"Hail Horror Hail" 2000, Black Metal
-"Scenario IV: Dread Dreams" 2000, Black Metal
-"Imaginary Sonicscape" 2001, Black Metal
-"Gallows Gallery" 2005, Black Metal
-"Hangman’s Hymn" 2006, Black Metal
+Experimental Black-Gothic-Avantgarde-Metal !
+
+## Дискография
+
+### "Requiem for the Fools" 1992, Black Metal
+
+
+
+### "Scorn Defeat" 1994, Black Metal
+
+   Side Revenge
+1. A Victory Of Dakini
+2. The Knell
+3. At My Funeral
+4.  Bundali
+   Side Violence
+5. Ready For The Final War
+6. Weakness Within
+7. Taste Defeat
+
+All Songs Written By SIGH.
+Produced By Y. Toyoda.
+Recorded March 1993.
+Front Cover By Anne Marie Brenden.
+To The Memory Of Euronymous (MAYHEM).
+SIGH c/o Mirai Gawashima 1-2-8-401 Mejiro Toshima-Gu, Tokyo 171 Japan.
+
+Shinichi - Electric & Acoustic Genocide
+Mirai - Storming Bass, Chanting Hateful Harmonies
+Satoshi - Volcanic Drums & Percussion
+
+(P)&(C) 1994 DEATHLIKE SILENCE / VOICES OF WONDER Records Anti-Mosh 007
+
+### "Ghastly Funeral Theatre" 1997, Black Metal
+
+1. Intro - Soushiki
+2. Shingontachikawa
+3. Doman Seman
+4. Imiuta
+5. Shikigami
+6. Outro - Higeki
+
+All Songs Written By SIGH.
+Produced, Recorded & Mixed By SIGH.
+
+Shinichi - Electric & Acoustic Assault
+Mirai - Bestial Bass, Curse, Hellish Orchestra
+Satoshi - Barbaric Rhythms
+
+(P)(C) 1997 CACOPHONOUS Records
+
+### "Hail Horror Hail" 2000, Black Metal
+
+1.   Hail Horror Hail - 5:07 
+   2.   42 49 - 7:43 
+   3.   12 Souls - 6:56 
+   4.   Burial - 1:30 
+   5.   The Dead Sing - 7:14 
+   6.   Invitation to Die - 5:17 
+   7.   Pathetic - 2:21 
+   8.   Curse of Izanagi - 6:01 
+   9.   Seed of Eternity - 9:19
+
+### "Scenario IV: Dread Dreams" 2000, Black Metal
+
+  1.   Diabolic Suicide (Kawashima/Sigh) - 7:31 
+   2.   Infernal Cries (Damian/Kawashima/Sigh) - 4:35 
+   3.   Black Curse (Sigh/Taiki) - 8:22 
+   4.   Iconoclasm in the 4th Desert (Kawashima/Sigh) - 7:30 
+   5.   In the Mind of a Lunatic (Fowley/Sigh) - 4:34 
+   6.   Severed Ways (Killjoy/Sigh) - 8:05 
+   7.   Imprisoned (Damian/Sigh) - 5:17 
+   8.   Waltz: Dread Dreams (Kawashima) - 1:22 
+   9.   Divine Graveyard (Kawashima/Sigh) - 5:47 
+
+
+### "Imaginary Sonicscape" 2001, Black Metal
+
+  1.   Corpsecry - Angelfall (Mirai/Sigh) - 6:42 
+   2.   Scarlet Dream (Mirai/Sigh) - 5:11 
+   3.   Nietzschean Conspiracy (Eithun/Mirai) - 5:24 
+   4.   A Sunset Song (Mirai/Sigh) - 6:49 
+   5.   Impromptu (Allegro Maestoso) [instrumental] (Mirai) - 1:24 
+   6.   Dreamsphere (Return to the Chaos) (Mirai/Sigh) - 6:51 
+   7.   Ecstatic Transformation (Mirai/Sigh) - 5:35 
+   8.   Slaughtergarden Suite: I. At Dawn, II. The (Mirai/Sigh) - 10:57 
+   9.   Bring Back the Dead (Mirai/Sigh) - 6:40 
+   10.   Requiem - Nostalgia (Mirai/Sigh) - 7:52 
+
+
+Alan Douches  -  Mastering 
+Satoshi  -  Bongos, Drums, Tambourine, Triangle, Handclapping, Vibraslap, Suspended Cymbals 
+Sigh  -  Producer 
+
+
+### "Gallows Gallery" 2005, Black Metal
+
+
+
+### "Hangman’s Hymn" 2006, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

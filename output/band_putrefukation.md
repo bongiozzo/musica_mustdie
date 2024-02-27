@@ -1,7 +1,22 @@
 # Putrefukation
 
-Дискография
-"Vortex of Zombified Mortuary Procedures" 2006, Deathcore
+
+
+## Дискография
+
+### "Vortex of Zombified Mortuary Procedures" 2006, Deathcore
+
+1. Chainsaw Abortion 02:26  
+2. Wretched Pustulated Disfigurement 02:57  
+3. Slab of Excretion 01:53  
+4. Buried Beneath the Massacred Carnage 04:22  
+5. Cryogenicaly Suspended 01:35  
+6. Frenzied Narcotic Consumption 05:00  
+7. Cranial Drilling Spheres 03:11  
+8. Urinary Retention 02:38  
+9. Gargulating Scarabs 03:32  
+10. Cunnilingual Defilement 02:38 
+
 
 ## Отношения с другими группами
 

@@ -1,18 +1,293 @@
 # Christian Death
 
-Дискография
-"Only Theatre of Pain" 1982, Gothic
-"Catastrophe Ballet" 1984, Gothic
-"Ashes" 1985, Gothic
-"The Wind Kissed Pictures" 1985, Gothic
-"Atrocities" 1986, Gothic
-"Scriptures" 1987, Gothic
-"Sex & Drugs & Jesus Christ" 1988, Gothic
-"The Rage of Angels" 1994, Gothic
-"Sexy Death God" 1994, Gothic
-"Amen" 1995, Gothic
-"The Bible" 2000, Gothic
-"Born Again Anti Christian" 2001, Gothic
+
+
+## Дискография
+
+### "Only Theatre of Pain" 1982, Gothic
+
+   1.    Cavity - First Communion (Agnew/Williams) - 4:06 
+   2.    Figurative Theatre (Williams) - 2:41 
+   3.    Burnt Offerings (Agnew/Rikk/Williams) - 3:43 
+   4.    Mysterium Iniquitatis (Agnew/Rikk/Williams) - 2:46 
+   5.    Dream for Mother (Agnew/McGearty/Williams) - 3:21 
+   6.    Stairs (Uncertain Journey) (James [1]/Williams) - 3:06 
+   7.    Spiritual Cramp (Williams) - 2:55 
+   8.    Romeo's Distress (Agnew/Williams) - 3:15 
+   9.    Resurrection - 6th Communion (Agnew/Rikk/Williams) - 3:45 
+   10.    Prayer (Agnew/Rikk/Williams) - 2:41 
+   11.    Deathwish (Death) - 2:13 
+   12.    Romeo's Distress (Agnew/Williams) - 3:22 
+   13.    Dogs (Death/Williams) - 2:53 
+   14.    Desperate Hell (McGearty/Williams) - 4:24 
+   15.    Spiritual Cramp (Williams) - 3:22 
+   16.    Cavity - First Communion (Agnew/Williams) - 3:44 
+
+
+ 
+Rikk Agnew  -  Guitar (Electric), Vocals 
+Rozz Williams  -  Vocals, Concept, Cover Art Concept, Illustrations, Drawing 
+George Belanger  -  Drums 
+James McGearty  -  Bass 
+Eva O.  -  Vocals (bckgr) 
+Tom Wilson  -  Producer 
+Thom Wilson  -  Producer 
+Ed Colver  -  Photography 
+
+
+
+### "Catastrophe Ballet" 1984, Gothic
+
+    1.   Awake at the Wall (Valor/Williams) 
+    2.   Sleepwalk (Valor/Williams) 
+    3.   The Drowning (Christian Death/Christian Death) 
+    4.   The Blue Hour (Kand/Williams) 
+    5.   As Evening Falls (Valor/Williams) 
+    6.   Androgynous Noise Hand Permeates (Valor/Williams) 
+    7.   Electra Descending (Valor/Williams) 
+    8.   Cervix Couch (Valor/Williams) 
+    9.   This Glass House (Valor/Williams) 
+    10.   The Feeling Somnambulist (Valor/Williams) 
+
+
+ 
+Rozz Williams  -  Vocals 
+Valor Kand  -  Guitar, Arranger, Vocals, Producer, Design 
+Eric Westfall  -  Producer, Engineer 
+Gitane Demone  -  Keyboards, Vocals 
+David Glass  -  Drums 
+Lee Black Childers  -  Photography 
+David Hermon  -  Photography 
+
+
+
+### "Ashes" 1985, Gothic
+
+    1.   Ashes (Kand/Williams) 
+    2.   Ashes, Pt. 2 (Valor/Williams) 
+    3.   When I Was Bed 
+    4.   Lament (Over the Shadows) (Reumschussel/Westfall/Williams) 
+    5.   Face (Kand/Williams) 
+    6.   The Luxury of Tears (Valor/Williams) 
+    7.   Of the Wound (Valor/Williams) 
+
+
+Christian Death  -  Arranger, Producer 
+Rozz Williams  -  Violin, Vocals, Cover Design 
+Valor Kand  -  Guitar, Piano, Arranger, Cello, Vocals, Producer 
+Eric Westfall  -  Synthesizer, Violin, Accordion, Arranger, Producer, Engineer 
+Gitane Demone  -  Keyboards, Vocals 
+Richard Hurwitz  -  Trumpet 
+David Glass  -  Percussion, Drums, Vocals 
+Richard Simpson  -  Mastering 
+Kevin Beauchamp  -  Assistant Engineer 
+Gustave Dore  -  Engraving 
+Sevan Kano     
+Karenn Ohlinder  -  Assistant Engineer 
+Bill Swain  -  Tuba 
+
+
+
+### "The Wind Kissed Pictures" 1985, Gothic
+
+    1.   Believers of the Unpure 
+    2.   Overture 
+    3.   The Wind Kissed Pictures (Galvin) 
+    4.   The Lake of Fire (Kand) 
+    5.   Blast of the Bough 
+    6.   Amaterasu (Kand) 
+    7.   The Absolute 
+
+
+
+### "Atrocities" 1986, Gothic
+
+    1.   Will O' the Wisp (Valor) - 3:15 
+    2.   Tales of Innocence (Galvin/Kand) - 6:27 
+    3.   Strapping Me Down (Galvin/Valor) - 2:37 
+    4.   The Danzig Waltz (Valor) - 3:34 
+    5.   Chimere De-Ci, De-Lа (Valor) - 4:42 
+    6.   Silent Thunder (Valor) - 6:31 
+    7.   Strange Fortune (Valor) - 3:52 
+    8.   Ventriloquist (Kand) - 4:33 
+    9.   Gloomy Sunday (Lewis/Seress) - 3:03 
+    10.   The Death of Josef (Valor) - 4:34 
+
+
+### "Scriptures" 1987, Gothic
+
+    1.   Prelude - 1:57 
+    2.   Songs of Songs - 5:15 
+    3.   Vanity - 2:55 
+    4.   Four Horsemen - 4:48 
+    5.   1983 (C.D.) - 9:58 
+    6.   Omega Dawn - 3:19 
+    7.   A Ringing in Their Ears - 1:37 
+    8.   The Golden Age - 3:29 
+    9.   Alpha Sunset - 2:01 
+    10.   Spilt Blood - :58 
+    11.   Raw War - 6:32 
+    12.   Reflections of the First Sesom Fo Koob 
+
+
+Valor Kand  -  Producer, Translation, Cover Design 
+John Cremer  -  Mastering 
+Paul Cobbolo  -  Engineer 
+
+
+
+### "Sex & Drugs & Jesus Christ" 1988, Gothic
+
+   1.    This Is Heresy 
+   2.    Tragedy 
+   3.    Wretched Mankind 
+   4.    The Third Antichrist 
+   5.    Erection 
+   6.    Ten Thousand Hundred Times 
+   7.    Incendiary Lover 
+   8.    Window Pain 
+
+
+
+### "The Rage of Angels" 1994, Gothic
+
+    1.   Trust (The Sacred and Unclean)  performed by Christian Death / Rozz Williams 
+    2.   Lost Minds  performed by Christian Death / Rozz Williams 
+    3.   Still Born/Still Life, Part I  performed by Christian Death / Rozz Williams 
+    4.   Sex  performed by Christian Death / Rozz Williams 
+    5.   Her Only Sin  performed by Christian Death / Rozz Williams 
+    6.   Bad Year  performed by Christian Death / Rozz Williams 
+    7.   Torch Song  performed by Christian Death / Rozz Williams 
+    8.   Still Born/Still Life, Part II (The...  performed by Christian Death / Rozz Williams 
+    9.   Procession  performed by Christian Death / Rozz Williams 
+    10.   Panic in Detroit  performed by Christian Death / Rozz Williams 
+
+
+Rozz Williams  -  Vocals, Producer, Performer 
+Wayne James  -  Guitar 
+Eva O.  -  Guitar 
+Brian Virtue  -  Mixing 
+Scat Elis  -  Guitar (Bass) 
+Kris Kohls  -  Drums 
+Paris  -  Keyboards 
+William Faith  -  Guitar (Bass) 
+Arman Christoff  -  Guitar (Acoustic) 
+
+
+
+### "Sexy Death God" 1994, Gothic
+
+   1.    At the Threshold (Valor) 
+   2.    Kingdom of the Tainted Kiss (Valor) 
+   3.    Heresy Act 2 (Valor) 
+   4.    Damn You (Kand) 
+   5.    Into Dust (Kand) 
+   6.    Eternal Love (Kand) 
+   7.    The Serpent's Tail (Maitri/Valor) 
+   8.    Kingdom of the Solemn Kiss (Valor) 
+   9.    Temples of Desire (Valor) 
+   10.    Deeply Deeply (Valor) 
+   11.    Drilling the Hole (Valor) 
+   12.    Upon the Sea of Blood (Maitri/Valor) 
+   13.    Eyelids Down (Valor) 
+   14.    Invitation au Suicide (Valor) 
+
+
+Cullen  -  Violin, Cello 
+Fred Danner  -  Engineer 
+Keith Kane  -  Engineer 
+Maitri  -  Bass, Vocals, Engineer 
+Steamer  -  Percussion, Drums, Engineer 
+Marcel Trussel  -  Violin, Cello 
+Valor Kand  -  Guitar, Violin, Cello, Vocals, Producer, Engineer 
+
+
+
+### "Amen" 1995, Gothic
+
+    1.   Prelude 
+    2.   Prologomenon 
+    3.   The Nascent Virion 
+    4.   Damn You (Kand) 
+    5.   Into Dust (Kand) 
+    6.   Sick of Love 
+    7.   Drilling the Hole 
+    8.   The Serpent's Tail 
+    9.   Wretched Mankind 
+    10.   Kingdom of the Tainted Kiss 
+    11.   Children of the Volley 
+    12.   Eternal Love (Kand) 
+    13.   Temples of Desire 
+    14.    
+    15.   Deeply Deeply 
+    16.   Androgynous Noise Hand Permeates (Williams) 
+    17.   Invitation au Suicide 
+    18.   Zero Sex 
+    19.   Heresy Act 2 
+    20.   [live] 
+    21.   Sleepwalk (Williams) 
+    22.   Ashes (Kand/Williams) 
+
+
+Flick  -  Guitar 
+Maitri  -  Bass, Vocals 
+Valor Kand  -  Guitar, Vocals 
+Steve  -  Drums 
+
+
+
+### "The Bible" 2000, Gothic
+
+   1.    Cavity - First Communion [live] (Agnew/Williams) - 3:34 
+   2.    Sleepwalk [live] (Williams) - 4:37 
+   3.    Ashes, Pt. 2 (Williams) - 2:26 
+   4.    Strange Fortune - 3:50 
+   5.    Alpha Sunset - 2:01 
+   6.    This Is Heresy - 4:18 
+   7.    Zero Sex [live] - 3:30 
+   8.    The Nascent Virion - 5:00 
+   9.    Malus Amor - 5:58 
+   10.    The Serpent's Tail [live] - 5:01 
+   11.    Pig Half Man (Christian Death) - 4:01 
+   12.    Washing Machine - 4:34 
+
+
+
+Flick  -  Musician 
+Maitri  -  Musician 
+John Schumann  -  Musician 
+David Glass  -  Musician 
+
+
+
+### "Born Again Anti Christian" 2001, Gothic
+
+    1.   Betrayal - 4:10 
+    2.   Zodiac (He Is Still Out There.....) - 4:58 
+    3.   In Your Eyes - 4:54 
+    4.   The Knife - 3:43 
+    5.   Peek a Boo - 4:14 
+    6.   Superstition and Fear - 5:38 
+    7.   Dead Sorry - 3:32 
+    8.   Malevolent Shrew - 5:12 
+    9.   Blood Dance - 4:06 
+    10.   Fucking in Slow Motion - 5:07 
+    11.   The Painted Aura - 5:39 
+    12.   Kill Me - 6:32 
+    13.   Peek a Boo - 4:24 
+
+
+Sergio Hernandez  -  Drums 
+Cullen  -  Violin 
+Maitri  -  Guitar (Bass), Vocals, Producer 
+Marcel Trussel  -  Violin 
+Tim Fraser  -  Monologue 
+Tim Turan  -  Mastering 
+Adrian Wear  -  Cover Art 
+Gian Pyres  -  Guitar 
+
+
+
 
 ## Отношения с другими группами
 

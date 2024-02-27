@@ -1,9 +1,34 @@
 # Human Race
 
-Дискография
-"Strange Horizons" 1996, Heavy Metal
-"For The Sake Of Your Soul" 1998, Heavy Metal
-"Dirt Eater" 2001, Heavy Metal
+
+
+## Дискография
+
+### "Strange Horizons" 1996, Heavy Metal
+
+
+
+### "For The Sake Of Your Soul" 1998, Heavy Metal
+
+
+
+### "Dirt Eater" 2001, Heavy Metal
+
+1. Paralyzed
+2. Ending Calling
+3. Free Your Mind
+4. One By One
+5. The Web
+6. Some Fall In Summertime
+7. This Is Who We Are
+8. Dont Look Back
+9. Remember When
+10. Lost In The Shadows
+11. Brand New Dawn
+12. Tarot Woman  
+
+
+
 
 ## Отношения с другими группами
 

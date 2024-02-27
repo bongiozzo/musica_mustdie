@@ -1,7 +1,35 @@
 # Wurdulak
 
-Дискография
-"Severed Eyes of Possesion" 2002, Black Metal
+
+
+## Дискография
+
+### "Severed Eyes of Possesion" 2002, Black Metal
+
+1. Rescued By Oblivion 
+2. The Downfall Of Pity 
+3. Unified Global Misanthropy 
+4. Xisnasusania 
+5. Son Of Man 
+6. Sin Eater 
+7. Perpetual Domination 
+8. Revelations 
+9. The Exquisite Taste Of Selfishness 
+10. Severed Eyes Of Possession 
+
+
+
+Maniac (vo-kills)
+Killjoy (vo-kills) 
+Frediablo (Guitar) 
+Iscariah (Bass) 
+Fug (Guitar) 
+Ihizahg (Guitar)
+Jehmod (Drums)
+ 
+
+
+
 
 ## Отношения с другими группами
 

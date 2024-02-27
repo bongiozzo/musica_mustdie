@@ -1,8 +1,37 @@
 # Dol Ammad
 
-Дискография
-"Star Tales" 2004, Metal
-"Ocean Dynamics" 2006, Metal
+
+
+## Дискография
+
+### "Star Tales" 2004, Metal
+
+1. Dreamport	 
+2. Eclipse (Corona Of The Sun)
+3. Weaver's Dance
+4. Boxed Daylight Part 1	 
+5. Boxed Daylight Part 2
+6. The Veil (Seven Face Danger)
+7. Back to the Zone 
+8. Master of All
+9. The Hill of Hope
+10. Birth of Kruug	 
+11. Vortex 3003
+12. Mission Butterfly
+
+### "Ocean Dynamics" 2006, Metal
+
+1. Thalassa Dominion I
+2. Thalassa Dominion II
+3. Thalassa Dominion III
+4. Thalassa Dominion IV
+5. Solarwinds
+6. Descent
+7. Lava
+8. Aquatic Majesty
+9. Liquid Desert
+10. Heart of the Sea
+
 
 ## Отношения с другими группами
 

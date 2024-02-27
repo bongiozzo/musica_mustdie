@@ -1,12 +1,93 @@
 # Jack Frost
 
-Дискография
-"Eden" 1995, Doom
-"Elsewhere" 1996, Doom
-"Glow Dying Sun" 1999, Doom
-"Gloom Rock Asylum" 2000, Doom
-"Self Abusing Uglysex Ungod" 2002, Doom
-"Wannadie Songs" 2005, Doom
+doom metal
+
+## Дискография
+
+### "Eden" 1995, Doom
+
+01 Bleed
+02 Into Oblivion
+03 My Silent Brother
+04 I Descend
+05 Doomride
+06 Room Of Light
+07 False Gods
+08 Exit...To Eden
+
+### "Elsewhere" 1996, Doom
+
+01 Rise
+02 Embedded
+03 Shadowplay
+04 Sentenced
+05 Sleepless
+06 Nightfall
+07 Elsewhere
+08 And Our Faces Wither
+
+### "Glow Dying Sun" 1999, Doom
+
+1. Dark Ages 
+2. Crawl 
+3.Undying 
+4. Black Veil Torn 
+5. Queen 
+6. Dive 
+7. Everstoned 
+8. Lady In Black
+
+### "Gloom Rock Asylum" 2000, Doom
+
+01 Sober
+02 You Are The Cancer
+03 How Will I Sleep
+04 In Gloom
+05 Psychodrome
+06 Sink
+07 California Dreaminґ
+08 Beyond The Rubicon
+
+### "Self Abusing Uglysex Ungod" 2002, Doom
+
+01. Mother Mary Sleeps With Me
+02. One Hundred Percent Pain
+03. Unseen Insane I
+04. The Dance
+05. Some You
+06. Last Monday
+07. It All Means Nothing To Me
+08. El Funeral Del Dictator
+
+All songs written by jack frost
+pc 2002 published by Napalm records
+last Monday written by The Priests
+(Brunner/Seikot) c 1986
+Lyrics of Mother Mary Sleeps With Me written by
+Kevin Rich
+Recorded and mixed at Boom Room studios Austria
+jan/feb 2002
+Produced by Boban Milunovic
+Mastered by Hakan Akesson at Cutting Room Studio,
+Sweden
+Design/photo by Erich Goldmann
+
+Boban Milunovic guitar solo on track 1
+Jorge backing vocals on tracks 2,3,4
+Harry Hoortig (The Priests) additional vocals on
+track 6
+Voislav Ivanovic accordion on track 8
+
+Jack Frost are forced to pay deeply onanistic
+homage to their beloved sound engineer Kevin
+'Deadsoul' Rich who inspired and edited their
+lyrical work
+
+
+### "Wannadie Songs" 2005, Doom
+
+
+
 
 ## Отношения с другими группами
 

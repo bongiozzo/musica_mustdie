@@ -1,8 +1,35 @@
 # Doomstone
 
-Дискография
-"Obsidian" 2000, Thrash
-"Disharmonic" 2003, Thrash
+
+
+## Дискография
+
+### "Obsidian" 2000, Thrash
+
+1. Kneel 
+2. Bleeding Horror
+3. Suicidal Glory
+4. War
+5. Curse
+6. Revenge
+7. Under the Shape
+8. Psycho
+9. Diabolic Evil
+
+
+### "Disharmonic" 2003, Thrash
+
+1. Intro
+2. Hypocrites
+3. Sleepwalker
+4. Killing Ground 
+5. Evolutions wheel 
+6. Extinction
+7. Lost
+8. Infection
+9. Faces
+10.Misanthrope
+
 
 ## Отношения с другими группами
 

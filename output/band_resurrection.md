@@ -1,8 +1,45 @@
 # Resurrection
 
-Дискография
-"Embalmed Existence" 1993, Death Metal
-"Mistaken For Dead" 2008, Death Metal
+
+
+## Дискография
+
+### "Embalmed Existence" 1993, Death Metal
+
+1. Disembodied
+2. Rage Within
+3. Embalmed Existence
+4. Smell Of Blood
+5. Torture Chamber
+6. Eyes Of Blind
+7. Test Of Fate
+8. Pure Be Damned
+9. War Machine  *
+
+ Paul Degoyler - Vocals
+ Charlie Haynes - Guitar
+ John Astl - Guitar
+ Dave Scott - Bass
+ Alex Marquez - Drums
+
+Piano By Kent Smith.
+All Songs By RESSURECTION,
+Except (*) By G.Simmons & P.Stainley.
+Co-Produced By Scott Burns & RESSURECTION.
+Executive Producer Markus Staiger.
+Recorded At Morrisound Studios,Tampa,
+Florida,November 1992.
+Cover Art By Dan SeaGrave.
+Legal Representation By Ralph E.Moon.
+Narration By The Mark Story Teller.
+RESSURECTION Is A Member Of Gema Ascap.
+
+(p)&(c) 1993 NUCLEAR BLAST Records
+
+### "Mistaken For Dead" 2008, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

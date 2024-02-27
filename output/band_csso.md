@@ -1,7 +1,47 @@
 # C.S.S.O.
 
-Дискография
-"Nagro Lauxes VIII" 1996, Deathcore
+
+
+## Дискография
+
+### "Nagro Lauxes VIII" 1996, Deathcore
+
+1. Daddy's Home
+2. Explanatory Notes Of Pilferage
+3. 256
+4. Very Very  Blue Belly
+5. Perversion
+6. Kyoshikanda
+7. Spartan
+8. Intro
+9. Bara Bara Man
+10.Richly Coloured Moist Elegy
+11.I'd Chokyo
+12.Alkanoid
+13.Rolling The Zen
+14.Psycho 65
+15.Boric Acid Dumpling
+16.Penisnatcher
+17.The Song Without Rice
+18.A Trigonometrical Of Mokuba
+19. Intro
+20. Zombie Fuck
+
+All songs written by CLOTTED
+SYMMETRIC SEXUAL ORGAN.
+Produced by CLOTTED SYMMETRIC
+SEXUAL ORGAN.
+Engineered by Hiroshi Seino, Gorepper and
+Driver.
+Recorded and mixed at R.D. Studio.
+
+Super A.F.P. - Guitar
+Popcorn - Drums
+Gorepper - Lead Vocals
+Bizzare Taitei - Bass
+
+(P)c 1996 MORBID Records
+
 
 ## Отношения с другими группами
 

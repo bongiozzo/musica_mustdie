@@ -1,7 +1,23 @@
 # Torture Division
 
-Дискография
-"With Endless Wrath We Bring Upon Thee Our Infernal Torture" 2009, Death Metal
+
+
+## Дискография
+
+### "With Endless Wrath We Bring Upon Thee Our Infernal Torture" 2009, Death Metal
+
+1. Ejaculation of the Wicked 03:32 
+2. Bludgeoning Your Flesh Into Dust 03:00 
+3. We Are Torture Division 03:36 
+4. Invoking the Knifer 02:38
+5. We Bring Upon Thee 02:54
+6. Terroreyes 03:28
+7. Double Barrel Remedy 02:38
+8. Left for Dead 02:54 
+9. End This Rotten World 03:28
+10. The Torture Never Stops (W.A.S.P. cover) 02:33 
+11. The Purifier 03:57 
+
 
 ## Отношения с другими группами
 

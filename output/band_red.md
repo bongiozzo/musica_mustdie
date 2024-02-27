@@ -1,9 +1,50 @@
 # Red
 
-Дискография
-"End Of Silence" 2006, Alternative
-"Innocence & Instinct" 2009, Alternative
-"Until We Have Faces" 2011, Alternative
+
+
+## Дискография
+
+### "End Of Silence" 2006, Alternative
+
+1. Intro (End of Silence)
+2. Breathe Into Me
+3. Let Go
+4. Already Over 
+5. Lost
+6. Pieces
+7. Break Me Down 
+8. Wasting Time
+9. Gave It All Away
+10. Hide
+11. Already Over Pt. 2
+
+### "Innocence & Instinct" 2009, Alternative
+
+1. Fight Inside
+2. Death Of Me
+3. Mystery Of You
+4. Start Again
+5. Never Be The Same
+6. Confession
+7. Shadows
+8. Ordinary World
+9. Out From Under
+10. Take It All Away
+
+### "Until We Have Faces" 2011, Alternative
+
+1. Feed The Machine 
+2. Faceless
+3. Lie To Me (Denial)
+4. Let It Burn
+5. Buried Beneath
+6. Not Alone 
+7. Watch You Crawl
+8. The Outside
+9. Who We Are
+10. Best Is Yet To Come
+11. Hymn For The Missing
+
 
 ## Отношения с другими группами
 

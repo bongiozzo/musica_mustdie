@@ -1,7 +1,22 @@
 # Wildes Heer
 
-Дискография
-"The Beast Takes Flesh" 2008, Black Metal
+
+
+## Дискография
+
+### "The Beast Takes Flesh" 2008, Black Metal
+
+1. Intro	 
+2. Behind The Oblivion Temple	 
+3. The Legend Of The Inverted Horns	 
+4. Wildes Heer	 
+5. Occult Demonology	 
+6. Preludium Trance	 
+7. The Beast Takes Flesh	 
+8. Imbolg
+9. Elemento Vital	 
+10. Cancer Christ
+
 
 ## Отношения с другими группами
 

@@ -1,25 +1,216 @@
 # Abigor
 
-Дискография
-"Ash Nazg [demo]" 1993, Black Metal
-"Lux Devicta [demo]" 1993, Black Metal
-"Verwustung / Invoke The Dark Age" 1994, Black Metal
-"In Hate & Sin [demo]" 1994, Black Metal
-"Promo '94 [demo]" 1994, Black Metal
-"Moonrise [demo]" 1994, Black Metal
-"Nachthymnen" 1995, Black Metal
-"Orkblut - The Retaliation" 1995, Black Metal
-"Opus IV" 1996, Black Metal
-"Blut Aus Aeonen / Horns Luck Beyond The Stars" 1996, Black Metal
-"Apokalypse" 1997, Black Metal
-"Supreme Immortal Art" 1998, Black Metal
-"Structures of Immortality [EP]" 1998, Black Metal
-"Origo Regium 1993-1994" 1998, Black Metal
-"Channeling The Quintessence Of Satan" 1999, Black Metal
-"In Memory [EP]" 2000, Black Metal
-"Satanized (A Journey Through Cosmic Infinity)" 2001, Black Metal
-"Shockwave 666 [EP]" 2004, Black Metal
-"Fractal Possession" 2007, Black Metal
+Black Metal
+
+## Дискография
+
+### "Ash Nazg [demo]" 1993, Black Metal
+
+
+
+### "Lux Devicta [demo]" 1993, Black Metal
+
+
+
+### "Verwustung / Invoke The Dark Age" 1994, Black Metal
+
+1. Universe Of Back Divine
+2. Kingdom Of Darkness
+3. Beneath A Steel Sky
+4. Eye To Eye At Armageddon
+5. In Sin
+6. My Soft Vision In Blood
+7. Wipping Midwintertears
+8. Diabolic Unity
+9. A Spell Of Dark And Evil
+
+All Songs By ABIGOR
+Produced & Mixed By Georg Hrauda & ABIGOR 
+At Ton Studio, Hornix, 1994
+
+(p)&(c) 1994 NAPALM Records
+
+### "In Hate & Sin [demo]" 1994, Black Metal
+
+
+
+### "Promo '94 [demo]" 1994, Black Metal
+
+
+
+### "Moonrise [demo]" 1994, Black Metal
+
+
+
+### "Nachthymnen" 1995, Black Metal
+
+1. Unleashed Axe-Age
+2. Scars In The Landscape Of God
+3. Reborn Through The Gates Of Three Moons
+4. Dornen
+5. As Astral Images Darken Reality
+6. The Dark Kiss
+7. I Face The Eternal Winter
+8. Revealed Secrets Of The Whispering Moon
+9. A Frozen Soul In A Wintershadow
+
+All Songs Written By ABIGOR.
+Produced & Mixed By Georg Hrauda & ABIGOR.
+Recorded  & Mixed At Tonstudio, Hornix.
+
+Female Vocals By Elisabeth Toriser.
+
+(P)&(C) 1995 NAPALM Records
+
+### "Orkblut - The Retaliation" 1995, Black Metal
+
+1. The Prophecy
+2. Bloodsoaked Overture
+3. Remembering Pagan Origins
+4. The Rising Of Our Tribe
+5. Medieval Echoes
+6. Emptiness / Menschenseind / Untaned Devastation
+7. ... To The Final Strike
+8. Battlefield Orphans
+9. The Soft And Last Sleep
+10.Severance
+11.Langsman Verhallte Des Lebens Schmerz
+
+Additional Musicians:
+ Herbert Jandl - Flute & Narration
+ Rune - Keyboards
+ Norbert Mullner - Growls
+
+All Songs Written By ABIGOR
+Produced & Mixed By Georg Hrauda & ABIGOR At Ton Studio, Hornix, Dec 1994
+
+(p)&(c) 1995 NAPALM Records
+
+### "Opus IV" 1996, Black Metal
+
+"Horns Luck Beyond The Stars"
+1. Crimson Horizons And Ashen Stars
+2. Lerie Constellation
+3. Mirages For The Eyes Of The Blind
+4. A Breath From Worlds Beyond
+"Blut Aus Aeonen"
+5. The Elder God (My Dragon Magic)
+6. Dimensions Of Thy Unforgiven Sins / Part I
+7. Dimensions Of Thy Unforgiven Sins / Part II
+8. Spektrale Schattenlichter
+
+All Songs Written By ABIGOR
+Produced & Mixed By Georg Hrauda & ABIGOR At Ton Studio, Hoernix.
+
+(p)&(c) 1996 NAPALM Records
+
+### "Blut Aus Aeonen / Horns Luck Beyond The Stars" 1996, Black Metal
+
+
+
+### "Apokalypse" 1997, Black Metal
+
+Celestial
+Verwestung
+Ein Hauch von Kolte
+Hyperwelt
+Tu Es Diaboli Juna
+Ubique Daemon
+
+### "Supreme Immortal Art" 1998, Black Metal
+
+1. Satan in me
+2. Supreme Immortal art
+3. Soil of souls
+4. Eclipse my heart, crown me king
+5. The spirit of venus
+6. Blood and Soil
+7. Magic Glass Monument
+8. Exhausted remnants
+
+### "Structures of Immortality [EP]" 1998, Black Metal
+
+
+
+### "Origo Regium 1993-1994" 1998, Black Metal
+
+
+
+### "Channeling The Quintessence Of Satan" 1999, Black Metal
+
+01 Dawn of Human Dust 
+02 Pandemonic Revelation 
+03 Equilibrium pass by 
+04 Wildfire and Desire 
+05 Utopia Consumed 
+06 Demon's Vortex 
+07 Towards Beyond 
+08 Pandora's Miasmic Breath
+ 
+Recorded
+Winter 1999
+Black Metal
+ 
+Line-up:
+ 
+Peter K. - guitars, bass 
+Thomas T. - drums 
+Thurisaz - vocals
+
+### "In Memory [EP]" 2000, Black Metal
+
+
+
+### "Satanized (A Journey Through Cosmic Infinity)" 2001, Black Metal
+
+1. The Legacy 5:53
+2. Repulsor 5:11
+3. Battlestar Abigor 4:49
+4. Galaxies and Eons Decline 5:32
+5. Luminescence of Darkness 4:42
+6. Nocturnal Stardust 6:46
+7. Satan's Galaxy 4:29
+8. The Redeemer's Return 3:58
+
+
+
+ Recorded & Producted By Abigor & Georg Hraida At Tonstudio Hoernix (Winter 200/2001)
+Music & Lyrics By Abigor (1998/2000)
+
+Layout Be Freak-Design (freak_design@yahoo.com)
+Logo Re-Design By Raevyn E.R.
+
+Recording Line-Up:
+Virus 666 P.K.   Guitars
+Thurisaz LiD   Sass & Vocals
+Moritz N.   Drums
+Synth Arrangenments By Lucia-M. F.-L.
+Samples By Abigor
+
+
+
+### "Shockwave 666 [EP]" 2004, Black Metal
+
+
+
+### "Fractal Possession" 2007, Black Metal
+
+1. Warning 01:53  
+2. Project: Shadow 05:38  
+3. Cold Void Choir 06:13  
+4. Lairf of Infinite Deparation 06:07  
+5. 3D Blasphemy 05:43  
+6. The Fire Syndrom 05:51  
+7. Injection Satan 04:25  
+8. Libery Rises A Diagonal Flame 05:05  
+9. Vapourzied Tears 05:10  
+10. Heaven Unveiled 06:39 
+
+
+A.R - vocals
+P.K. (aka Virus 666) - guitars, bass 
+T.T - drums, guitars
+
 
 ## Отношения с другими группами
 

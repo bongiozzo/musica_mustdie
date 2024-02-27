@@ -1,10 +1,87 @@
 # Voyager
 
-Дискография
-"Element V" 2004, Progressive
-"uniVers" 2007, Progressive
-"I Am the ReVolution" 2009, Progressive
-"The Meaning of I" 2011, Progressive
+Progressive metal from Australia
+
+## Дискография
+
+### "Element V" 2004, Progressive
+
+1. Sic Transit Gloria Mundi
+2. To the Morning Light
+3. Cosmic Armageddon Pt. I
+4. Towards Uncertainty
+5. The Eleventh Meridian
+6. This Bitter Land
+7. The Ancient Labyrinth
+8. Miseria
+9. Monument
+10. The V Element
+11. Cosmic Armageddon Pt. II
+12. Kingdoms of Control
+13. Time for Change
+14. Echoes of Old Terra
+
+
+Recorded at Soveregin Studios by Aidan Barton.
+
+### "uniVers" 2007, Progressive
+
+1. Higher Existence 
+2. Deep Weeds 
+3. Ever Waiting 
+4. Between the Sheets 
+5. Sober 
+6. Cross the Line 
+7. Pulse 04 
+8. Falling 
+9. What I Need 
+10. One More Time 
+11. White Shadow 
+
++ Videoclip "Sober" 
+
+
+Current line-up: 
+Daniel "'Nephil'" Estrin - Vocals, Keys, Guitar 
+Simone Dow - Guitar
+Mark De Vattimo - Guitar 
+Mark Boeijen - Drums  
+Alex Canon - Bass 
+
+
+### "I Am the ReVolution" 2009, Progressive
+
+1. Land of Lies 04:35 
+2. Common Ground 04:14 
+3. Lost 04:55 
+4. The Devil in Me 04:12 
+5. Close Your Eyes 06:02 
+6. Total Existence Failure 04:40 
+7. Straight to the Other Side 04:28 
+8. In My Arms 03:56 
+9. Times Like These 05:42 
+10. On the Run From the World 04:16 
+11. Without a Sigh 01:46 
+12. I am the ReVolution 05:49
+
+
+### "The Meaning of I" 2011, Progressive
+
+1. Momentary Relapse Of Pain 04:01 
+2. Stare Into The Night 04:18 
+3. Seize The Day 04:48 
+4. Broken 04:45 
+5. The Pensive Disarray (Feat. Daniel Tompkins) 05:56 
+6. He Will Remain 02:45 
+7. The Meaning Of I 04:19 
+8. Iron Dream (In Memoriam: Peter Steele) 04:00 
+9. Feuer Meiner Zeit 00:36 
+10. Fire Of The Times (Feat. DC Cooper) 04:49 
+11. She Takes Me (Into The Morning Light) 04:06 
+12. It's Time To Know 02:17 
+13. Are You Shaded? 05:28
+
+
 
 ## Отношения с другими группами
 

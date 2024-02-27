@@ -1,12 +1,97 @@
 # Norum, John
 
-Дискография
-"Total Control" 1987, Heavy Metal
-"Face the Truth" 1992, Heavy Metal
-"Another Destination" 1995, Heavy Metal
-"Worlds Away" 1997, Heavy Metal
-"Slipped Into Tomorrow" 2000, Heavy Metal
-"Optimus" 2005, Heavy Metal
+(Ex-Europe and Dokken)
+
+## Дискография
+
+### "Total Control" 1987, Heavy Metal
+
+1 Let Me Love You 3:21 (Norum, John) 
+2 Love Is Meant to Last Forever 3:39 (Norum, John) 
+3 Too Many Hearts 3:11 (Norum, John) 
+4 Someone Else Here 4:11 (Norum, John) 
+5 Eternal Flame 3:13 (Norum, John) 
+6 Back on the Streets 4:09 (Norum, John) 
+7 Blind 3:52 (Norum, John) 
+8 Law of Life 4:21 (Norum, John) 
+9 We'll Do What It Takes Together 3:24 (Norum, John) 
+10 In Chase of the Wind 3:00 (Norum, John) 
+11 Wild One [*] 4:18 (Norum, John) 
+
+
+### "Face the Truth" 1992, Heavy Metal
+
+1 Distant Voices (Norum, John) 
+2 Opium Trail (Norum, John) 
+3 Night Buzz (Norum, John) 
+4 Good Man Shining (Norum, John) 
+5 Endica (Norum, John) 
+6 Face the Truth (Norum, John) 
+7 In Your Eves (Norum, John) 
+8 Time Will Find the Answer (Norum, John) 
+9 Counting on Your Love (Norum, John) 
+10 Don't Believe a Word [Live] (Norum, John) 
+11 Free Birds in Flight [Live] (Norum, John) 
+
+
+### "Another Destination" 1995, Heavy Metal
+
+1 Inside (Norum, John) 
+2 Resurrection Time (Norum, John) 
+3 Strange Days (Norum, John) 
+4 Spirit World (Norum, John) 
+5 Shimmering Highs (Norum, John) 
+6 Whose Side Are You On? (Norum, John) 
+7 Sunshine of Your Love (Norum, John) 
+8 Catalina Sunset (Norum, John) 
+9 Half Way Home (Norum, John) 
+10 Healing Rays (Norum, John) 
+11 Jillanna (Norum, John) 
+
+
+### "Worlds Away" 1997, Heavy Metal
+
+1 Manic Distortion (Norum, John) 
+2 Make a Move (Norum, John) 
+3 C.Y.R. (Norum, John) 
+4 Where the Grass Is Green (Norum, John) 
+5 Center of Balance (Norum, John) 
+6 Dogs Are Barking (Norum, John) 
+7 Homeland (Peace of Mind) (Norum, John) 
+8 Wasted Labor (Norum, John) 
+9 Worlds Away (Norum, John) 
+10 Endica (Revisited) (Norum, John) 
+11 From Outside In [*] (Norum, John) 
+
+
+### "Slipped Into Tomorrow" 2000, Heavy Metal
+
+1 Still in the Game 3:47 (Norum, John) 
+2 Waiting on You 3:30 (Norum, John) 
+3 Blackscape 5:13 (Norum, John) 
+4 Tico's Life 4:43 (Norum, John) 
+5 Nobody Answers 4:50 (Norum, John) 
+6 Losing My Mind 5:56 (Norum, John) 
+7 Freedom Is My Truth 4:17 (Norum, John) 
+8 Veda 4:40 (Norum, John) 
+9 Songs of Yesterday 4:41 (Norum, John) 
+10 Killer Without a Cause 4:04 (Norum, John) 
+11 Center of Balance [*] 6:26 (Norum, John) 
+
+
+### "Optimus" 2005, Heavy Metal
+
+01. Chase Down The Moon (03:51)
+02. Nailed To The Cross (03:32)
+03. Better Day (03:56)
+04. One More Time (03:42)
+05. Time To Run (04:14)
+06. Optimus (03:06)
+07. Takin` The Blame (03:56)
+08. Change Will Come (03:36)
+09. Forced (03:38)
+10. Solitude (04:23)
+
 
 ## Отношения с другими группами
 

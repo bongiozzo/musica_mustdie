@@ -1,7 +1,21 @@
 # Orthodox
 
-Дискография
-"Forever Not Yet" 2011, Death Metal
+
+
+## Дискография
+
+### "Forever Not Yet" 2011, Death Metal
+
+1. The Dormant Mind	 
+2. In The Course Of Centuries	 
+3. Filthy Desires of Flesh	 
+4. Express Your Will 
+5. A Huge Cataclysm	 
+6. Dying Race	 
+7. Great Pandemic	 
+8. Morbid Dream	 
+9. Journey Into Nowhere
+
 
 ## Отношения с другими группами
 

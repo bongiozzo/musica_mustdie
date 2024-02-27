@@ -1,7 +1,13 @@
 # Slavior
 
-Дискография
-"s/t" 2007, Progressive
+project of Fates Warning's drummer Mark Zonder
+
+## Дискография
+
+### "s/t" 2007, Progressive
+
+
+
 
 ## Отношения с другими группами
 

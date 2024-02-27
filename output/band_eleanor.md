@@ -1,9 +1,21 @@
 # Eleanor
 
-Дискография
-"A Circle of Lament" 2008, Gothic
-"Breathe Life into the Essence" 2013, Gothic
-"Celestial Nocturne" 2016, Gothic
+female fronted gothic metal from Japan
+
+## Дискография
+
+### "A Circle of Lament" 2008, Gothic
+
+
+
+### "Breathe Life into the Essence" 2013, Gothic
+
+
+
+### "Celestial Nocturne" 2016, Gothic
+
+
+
 
 ## Отношения с другими группами
 

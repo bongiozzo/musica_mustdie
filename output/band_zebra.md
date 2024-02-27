@@ -1,10 +1,69 @@
 # Zebra
 
-Дискография
-"Zebra" 1983, Hard Rock
-"No Tellin' Lies" 1984, Hard Rock
-"3.V" 1986, Hard Rock
-"IV" 2003, Hard Rock
+Hard Rock
+
+## Дискография
+
+### "Zebra" 1983, Hard Rock
+
+1. Tell Me What You Want
+2. One More Chance
+3. Slow Down
+4. As I Said Before
+5. Who's Behind the Door?
+6. When You Get There
+7. Take Your Fingers From My Hair
+8. Don't Walk Away
+9. The La La Song
+
+
+### "No Tellin' Lies" 1984, Hard Rock
+
+1. Wait Until the Summer's Gone
+2. I Don't Like It
+3. Bears
+4. I Don't Care
+5. Lullaby
+6. No Tellin' Lies
+7. Takin' A Stance
+8. But No More
+9. Little Things
+10. Drive Me Crazy
+
+
+### "3.V" 1986, Hard Rock
+
+1. Can't Live Without
+2. He's Making You the Fool
+3. Time
+4. Your Mind's Open
+5. Better Not Call
+6. You'll Never Know
+7. About to Make the Time
+8. Hard Living Without You
+9. Isn't That the Way
+
+
+### "IV" 2003, Hard Rock
+
+- Arabiand Nights
+- Light of My Love
+- Who Am I
+- Angel's Calling
+- KK Is Hiding
+- Free
+- So I Dance
+- Waiting To Die
+- A World That Is Learning
+- My Life Has Changed
+- Why
+
+Randy Jackson Lead Vocals, Guitars, Keyboards 
+Felix Hanemann Bass, Backing Vocals 
+Guy Gelso Drums 
+Chillie Willie Sax (Waiting To Die) 
+
+
 
 ## Отношения с другими группами
 

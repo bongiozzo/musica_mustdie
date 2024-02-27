@@ -1,7 +1,17 @@
 # Nachtvorst
 
-Дискография
-"Stills" 2009, Black Metal
+
+
+## Дискография
+
+### "Stills" 2009, Black Metal
+
+1. Dawn of End 08:12  
+2. Murmurs 04:27  
+3. Stills 13:13  
+4. Wandering 11:07  
+5. Epitaph 10:29 
+
 
 ## Отношения с другими группами
 

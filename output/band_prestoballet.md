@@ -1,10 +1,49 @@
 # Presto Ballet
 
-Дискография
-"Peace Among The Ruins" 2005, Progressive
-"The Lost Art Of Time Travel" 2008, Progressive
-"Invisible Places" 2011, Progressive
-"Relic of the Modern World" 2012, Progressive
+project of Kurdt Vanderhoof (Metal Church)
+
+## Дискография
+
+### "Peace Among The Ruins" 2005, Progressive
+
+1. Peace Among The Ruins 5:47
+2. The Fringes 7:34
+3. Seasons 3:39
+4. Find The Time 7:18
+5. Speed Of Time 5:50
+6. Sunshine 4:51
+7. Slave 5:33
+8. Bringin’ It On 6:43
+
+### "The Lost Art Of Time Travel" 2008, Progressive
+
+
+
+### "Invisible Places" 2011, Progressive
+
+01. Between The Lines Presto Ballet 7:15 
+02. The Puzzle Presto Ballet 7:52 
+03. Sundancer Presto Ballet 8:45 
+04. Of Grand Design Presto Ballet 12:04 
+05. One Perfect Moment Presto Ballet 5:17 
+06. All In All Presto Ballet 8:10 
+07. No End To Begin Presto Ballet 12:27
+
+Line Up: 
+Ronny Munroe - Vocals (Metal Church, Rottweiller, Paladin, Lillian Axe) 
+Kurdt Vanderhoof - Guitars (The Lewd, Metal Church, Hall Aflame) 
+Brian Cokeley - Keyboards (Vanderhoof) 
+Brian Lake - Bass (Vanderhoof) 
+Jeff Wade - Drums (Vanderhoof) 
+
+### "Relic of the Modern World" 2012, Progressive
+
+1. The Chemical Age
+2. Watching The Radio
+3. Broken Toys
+4. Prelude To Farewell
+5. Relic Of The Modern World
+
 
 ## Отношения с другими группами
 

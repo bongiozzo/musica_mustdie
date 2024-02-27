@@ -1,8 +1,36 @@
 # Whourkr
 
-Дискография
-"Naat" 2007, Alternative
-"Concrete" 2008, Alternative
+
+
+## Дискография
+
+### "Naat" 2007, Alternative
+
+1. Kommiu 03:58  
+2. Nrrit 04:23  
+3. Cera 04:16  
+4. Nhosg 06:52  
+5. Yum Nho Naдt 03:14  
+6. W 00:08  
+7. Hackta 01:53 
+
+### "Concrete" 2008, Alternative
+
+1. Mindgerb 01:58  
+2. Antzcrowzing 02:02  
+3. Bore Injektion 01:58  
+4. Santo 02:49  
+5. Skovsnails 02:36  
+6. Slaagt 02:49  
+7. Freugz 02:34  
+8. Squirk 04:02  
+9. Cera Pollutea 02:29  
+10. Gorowatz 02:13  
+11. Groovinbear 01:50  
+12. Tawakitawa 02:28  
+13. Fatrubber 04:43  
+14. Plantea 03:56 
+
 
 ## Отношения с другими группами
 

@@ -1,13 +1,130 @@
 # Wolf
 
-Дискография
-"Wolf" 2000, Heavy Metal
-"Black Wings" 2002, Heavy Metal
-"Evil Star" 2004, Heavy Metal
-"The Black Flame" 2006, Heavy Metal
-"Ravenous" 2009, Heavy Metal
-"Legions Of Bastards" 2011, Heavy Metal
-"Devil Seed" 2014, Heavy Metal
+
+
+## Дискография
+
+### "Wolf" 2000, Heavy Metal
+
+ 1) In The Shadow Of Steel
+ 2) Moonlight
+ 3) The Parasite
+ 4) Electric Raga
+ 5) The Voyage
+ 6) Desert Caravan
+ 7) The Sentinel
+ 8) 245
+ 9) In The Eye Of The Sun 
+
+ Mikael Goding - Bass
+ Daniel Bergkvist - Drums
+ Niklas Olsson - Guitars/Vocals 
+
+ Recorded at Abyss Studios
+ Produced & Mixed by Wolf & Peter Tagtgren
+ Front cover art by: Henrik Walse
+
+### "Black Wings" 2002, Heavy Metal
+
+01. Night Stalker
+02. Demon Bell
+03. I Am The Devil
+04. Venom
+05. A World Bewitched
+06. The Curse
+07. Unholy Night
+08. Genocide
+09. A Dangerous Meeting
+10. Electric Raga (bonus)
+
+
+Mikael Goding - Bass
+Daniel Bergkvist - Drums
+Niklas Olsson - Guitars/Vocals
+Johan Bulow - guitar
+
+
+
+Recorded at studio Abyss, Parlby, Sweden, June
+2001
+Engineered by Peter Tagtgren. Produced by Peter
+Tagtgren
+Mastered by Curt Slefan at Curting Room, MNW,
+STHLM
+Cover Art by Thomas Holm
+Cover Design by Challenge Custom Design Co.
+Photos by Alexander von Sydow
+All songs by WOLF except "A Dangerous Meeting" by
+Shermann/King Diamond
+
+
+
+### "Evil Star" 2004, Heavy Metal
+
+1. Evil Star 06:09 
+2. American Storm 06:06 
+3. The Avenger 05:41  
+4. Wolf's Blood 03:54  
+5. Transylvanian Twilight 01:27  
+6. Devil Moon 06:52 
+7. Out Of Still Midnight 03:59 
+8. The Dark 05:35  
+9. Black Wing Rider 04:28 
+10. (Don't Fear) The Reaper (Blue Oyster Cult cover) 04:57 
+The limited edition CD contains two bonus tracks:
+11. Die By The Sword (4:13)
+12. I'm Not Afraid Of Life (4:05) 
+
+
+Niklas Olsson - vocals/guitars 
+Mikael Goding - bass 
+Daniel Bergkvist - drums
+
+### "The Black Flame" 2006, Heavy Metal
+
+1. I Will Kill Again 04:59 
+2. At the Graveyard 04:25
+3. Black Magic 05:19
+4. The Bite 05:07 [view lyrics] 
+5. Make Friends with Your Nightmares 05:10
+6. Demon 05:03
+7. The Dead 04:23
+8. Seize the Night 04:08
+9. Steelwinged Savage Reaper 03:09
+10. Children of the Black Flame 05:50 
+
+### "Ravenous" 2009, Heavy Metal
+
+1. Speed On 03:46
+2. Curse You Salem 03:54
+3. Voodoo 04:19
+4. Hail Caesar 03:48
+5. Ravenous 03:59
+6. Mr. Twisted 03:54
+7. Whisky Psycho Hellions 04:42 
+8. Hiding in Shadows 04:19
+9. Love at First Bite 03:48
+10. Blood Angel 06:25
+11. Secrets We Keep 04:52 
+
+### "Legions Of Bastards" 2011, Heavy Metal
+
+1. Vicious Companions 03:41  
+2. Skull Crusher 03:47  
+3. Full Moon Possession 04:25  
+4. Jekyll & Hyde 05:41  
+5. Absinthe 04:44  
+6. Tales From The Crypt 05:55  
+7. Nocturnal Rites 05:30  
+8. Road To Hell 04:15  
+9. False Preacher 03:57  
+10. Hope To Die 04:34  
+11. K-141 Kursk 06:03 
+
+### "Devil Seed" 2014, Heavy Metal
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,33 @@
 # Traumatic
 
-Дискография
-"Spasmodic Climax" 1996, Death Metal
+Death Metal a-la Gorefest
+
+## Дискография
+
+### "Spasmodic Climax" 1996, Death Metal
+
+1.  Spasmodic Climax
+2.  Never Return
+3.  The Hole
+4.  The Very First Breeze
+5.  Revival
+6.  The Double - Moon
+7.  Those Nights
+8.  I Experienced Life
+9.  A Cosmic Tornado
+10.Village Beneath
+
+Totte - Drums, Guitars, Eggs,
+Tambourine, Hands, Introbass
+Pekka - Bass, Hands
+Rickard - Guitars
+Larsson - Voice, Eggs, Hands, Spacebox, Entertainer
+
+Recorded at ABF Studio by Jocke Pattersson and TRAUMATIC.
+Mixed at Art Serv Studio by Ola Florhed and TRAUMATIC.
+
+(p)(c) 1996 TE Records 1
+
 
 ## Отношения с другими группами
 

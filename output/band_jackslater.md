@@ -1,7 +1,34 @@
 # Jack Slater
 
-Дискография
-"Metzgore" 2003, Death Metal
+
+
+## Дискография
+
+### "Metzgore" 2003, Death Metal
+
+1. Eisenwichser
+2. Lynchmob
+3. Metzgore
+4. Sensou
+5. Timmy
+6. Fur Elise
+7. Kinderfresser Pt. III
+8. Jack in the Box
+9. Zerschmetterling
+
+Vocals - Horn
+Guitar - Sobo
+Guitar - Nandi
+Bass - Chris
+Drums - Sepp
+
+Recorded autumn 2003 at the Stonehenge Studios (Bonn)
+Engineered by Whitey
+Mastered by Ulf / DMS (Marl)
+Frontcoverartwork by Marian Waibl
+
+(p) 2004 Cudgel Agency
+
 
 ## Отношения с другими группами
 

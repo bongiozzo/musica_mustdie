@@ -1,8 +1,49 @@
 # Dreamtide
 
-Дискография
-""Here Comes The Flood"" 2001, Hard Rock
-""Dreams For The Daring"" 2003, Hard Rock
+Melodic Hard
+
+## Дискография
+
+### ""Here Comes The Flood"" 2001, Hard Rock
+
+What You Believe In
+Ten Years Blind
+Come With Me
+Dreamers
+Crashed
+Your Life
+Moment Of Truth
+Sundance
+Heaven Knows
+Promised Land
+I Take The Weight Off...
+Cross The Line
+Phoenix Tears
+
+### ""Dreams For The Daring"" 2003, Hard Rock
+
+1. Dream Real 
+2. Live And Let Live 
+3. I’ll Be Moving On 
+4. All Of My Dreams 
+5. I’m Not With You 
+6. Man On A Mission 
+7. Eden, Land Without Justice 
+8. Out There 
+9. Dreams Are Free 
+10. Sweet Babylon 
+11. You Can’t Burn My Heart Out 
+12. Eden (bonus track) 
+13. Land Without Justice (bonus track) 
+14. Dreams are Free (bonus track) 
+15. Live and Let Live (bonus track)
+
+Helge Engelke (guitar) 
+C.C. Behrens (drums) 
+Thorsten Lьderwald (keyboards) 
+Olaf Senkbeil (vocals) 
+Ole Hempelmann (bass)
+
 
 ## Отношения с другими группами
 

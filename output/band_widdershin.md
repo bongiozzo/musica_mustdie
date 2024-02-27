@@ -1,7 +1,13 @@
 # Widdershin
 
-Дискография
-"Widdershin" 2001, Industrial
+Gothic Industrial
+
+## Дискография
+
+### "Widdershin" 2001, Industrial
+
+
+
 
 ## Отношения с другими группами
 

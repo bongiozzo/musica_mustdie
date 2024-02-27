@@ -1,7 +1,40 @@
 # Megalith
 
-Дискография
-"Spirit Soldiers" 2003, Gothic
+Ex-Agathodaimon
+
+## Дискография
+
+### "Spirit Soldiers" 2003, Gothic
+
+1. Intro Politically Incorrect (1.08)
+2. Politically Incorrect (4.54)
+3. Rede des toten Christus (6.21)
+4. In Deckung! (3.12)
+5. Der Herdenlenker (5.18)
+6. The Revolutionary (4.30)
+7. Wenn die Haifische Menschen waren (5.15)
+8. Back Into the Shadows (4.51)
+9. Der Krieg (des Georg Heym) (5.09)
+10. Martyrium (6.35)
+11. Der Weg zum Licht (2.11)
+
+Bonustracks:
+
+12. Spendenaufruf (4.54)
+13. Der Revolutionar (4.30)
+14. Intro Der Herdenlenker (0.26)
+15. Der Herdenlenker (Vlad Version) (5.18)
+16. Rede des toten Christus (Endzeit Mix) (4.58)
+
+
+
+Orpheus - Vocals and Vehemence
+Hades - Drums and Discipline
+Karelian - Strings and Speed
+Hyperion - Strings and Sarcasm
+Widukind - Programming and Provocation
+Abraxas - Bass and Bibliography
+
 
 ## Отношения с другими группами
 

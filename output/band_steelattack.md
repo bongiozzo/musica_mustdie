@@ -1,11 +1,99 @@
 # Steel Attack
 
-Дискография
-"Where Mankind Fails" 1999, Heavy Metal
-"Fall Into Madness" 2001, Heavy Metal
-"Predator of Empire" 2003, Power Metal
-"Enslaved" 2004, Power Metal
-"Diabolic Symphony" 2006, Power Metal
+
+
+## Дискография
+
+### "Where Mankind Fails" 1999, Heavy Metal
+
+Dragon'S Skull
+Where Mankind Fails
+Island Of Gods
+Heading For The Lair
+Village Of Agabha
+The Furious Spirit Of Death
+The Creation Of Be-Lou (The Tragic Kingdom Part.1)
+The Awakening (The Tragic Kingdom Part.2)
+Thunder Knight
+Forgotten Land
+
+### "Fall Into Madness" 2001, Heavy Metal
+
+01. Fall Into Madness
+02. The Beast
+03. Guardians
+04. Holy Swordsmen
+05. Judgement Day
+06. Wings Of Faith
+07. Cleaning The Mind
+08. Fireballs
+09. Defender Of The Crown
+
+### "Predator of Empire" 2003, Power Metal
+
+01. Predator Of The Empire
+02. Cursed Land
+03. The Darkness
+04. Point Of No Return
+05. Heavy Metal god
+06. The Holy Sign
+07. Arise
+08. Nightmare
+09. One Way To heaven
+10. Reality Unknown
+11. Dr. Stein (HELLOWEEN cover, bonus track)
+
+Dick Johnson - Lead Vocal
+John Allan - Lead Guitar
+Dennis "Destructor" Westman - Guitar
+Patrick "Psycho Pat" Spath - Bass/Backing vocals
+Mike Stark - Drums
+
+Recorded at Studio Underground Vasteras, Sweden in
+November 02. Produced by Steel Attack & Pelle
+Saether. Additional engineering: Lars Linden.
+Mixed at Studio Underground, Sweden by Steel
+Aattack & Pelle Saether. Mastered by the master
+Peter In de Betou. Cover design by JP Fournier.
+Photos by Jonas Bilberg. All music by Steel Attack
+and lyrics by Steel Attack and Ronny Bengtsson.
+All keyboards played by Petri Kuusisto. Guest lead
+guitar intro on Point of no Return by Fredrik
+Groth from The Storyteller. Second lead guitar
+part on Point of no Return by Petri Kuusisto of
+Carnal Forge. Choirs sung by: Dick Johnson,
+Patrick “Psycho-pat” Spath, L-G Persson from The
+Storyteller, Kakan Andersson, Metal-Glenn and
+Zebulon Olsson from Cryonic Temple.
+
+### "Enslaved" 2004, Power Metal
+
+1. Gates Of Heaven
+2. Out Of The Flames
+3. Forsaken
+4. Bless My Sins
+5. Immortal Hate
+6. Son Of A Thousand Souls
+7. Enslaved 
+8. Voices
+9. When You Dream
+10. Afraid No More
+
+### "Diabolic Symphony" 2006, Power Metal
+
+01. Diabolic Symphony 
+02. Dead Forever 
+03. Shallow Seas Of Hatred 
+04. Dreaming 
+05. Embraced By Fear 
+06. Invisible God 
+07. Sanctimonious 
+08. Haunting 
+09. Show Me The Way 
+10. Winter Hell 
+11. I Bow My Head In Shame 
+12. The Other Side
+
 
 ## Отношения с другими группами
 

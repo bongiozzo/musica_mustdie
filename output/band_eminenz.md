@@ -1,8 +1,56 @@
 # Eminenz
 
-Дискография
-"Exorial" 1994, Black Metal
-"The Heretic" 1996, Black Metal
+
+
+## Дискография
+
+### "Exorial" 1994, Black Metal
+
+1. Introduction Black Thoughts
+2. Jesus Wept Nevermore
+3. Angel Rip Angel
+4. Unholy
+5. Demons Awake
+6. Only Flesh
+7. Exorial
+8. Outro
+
+ Leviathan - Vocals
+ Darkman - Guitar
+ Karsten Breitung - Guitar
+ Butcher - Bass
+ Henry Kuhnert - Drums
+ Benedict Kern - Kyboards
+
+All Songs Written By Eminenz
+Produced By Michi Zastoupil
+Recorded & Mixed At Vienna Power Station
+
+(p) & (c) 1994 LETHAL Records
+
+### "The Heretic" 1996, Black Metal
+
+1. Demons Cross The Fiery Path
+2. Bloodred Nights
+3. Day Of Battle, Night Of Thunder
+4. Lucifers Return
+5. Thousands Blasphemies
+6. The Gate
+7. Necronomicon Exmortis
+8. The Heretic
+9.  Lucifers Return
+
+All songs written by EMINENZ
+Recorded at Digan Ton Studio, Anneberg
+
+Leviathan - Vocals and Demonic Calls
+Darkman - Guitars and Swords
+Black Abyss - Bass and Hellfire
+Iten - Drums and Thunder
+Lorenzo - Keyboards and Dark Voices
+
+ (p)(c) 1996 LETHAL Records
+
 
 ## Отношения с другими группами
 

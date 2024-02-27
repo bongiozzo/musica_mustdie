@@ -1,7 +1,13 @@
 # Withered Beauty
 
-Дискография
-"Withered Beauty" 1998, Melodic Death Metal
+
+
+## Дискография
+
+### "Withered Beauty" 1998, Melodic Death Metal
+
+
+
 
 ## Отношения с другими группами
 

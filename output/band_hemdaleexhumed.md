@@ -1,7 +1,39 @@
 # Hemdale / Exhumed
 
-Дискография
-"" 1996, Deathcore
+Extremal Grindcore
+
+## Дискография
+
+### "" 1996, Deathcore
+
+HEMDALE
+1.  Delicious Gory Fun
+2.  Pus Filled Carcass
+3.  Overflow
+4.  Bathing In Mucus And Bile
+5.  Tasty Hemmorhoiddal Tissue
+6.  Brutally Mauled Human Remains
+7.  Succulent Torso Crescendo
+8.  It Burns...And It Just Plain Smells Bad
+9.  Are You Pornophoric ?
+10.Artificial Masturbation
+11.Licking Mental Patient's Cum Of The Sheets
+12.Curse The Gods
+EXHUMED
+1.  Horrendous Member Dismemberment
+2.  Septicemia (Festering Sphinctral Malignancy, Pt.2)
+3.  Msochistic Copramania
+4.  Necrovores: Decomposing The Inanimate
+5.  Disinterred, Digested, And Debauched
+6.  Bone Fucker
+7.  The Naked And The Dead
+8.  Necro-Transvestite
+9.  Torsos
+10.Dissecting The Causeated Omentum
+11.Death Metal
+
+(P)c 1996 VISCERAL PROD // VP 004
+
 
 ## Отношения с другими группами
 

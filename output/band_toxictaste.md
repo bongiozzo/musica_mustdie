@@ -1,7 +1,27 @@
 # Toxic Taste
 
-Дискография
-"Toxification" 2008, Glam
+
+
+## Дискография
+
+### "Toxification" 2008, Glam
+
+01. Toxic Taste
+02. N.C.R.
+03. Neon Angel
+04. Midnight Rodeo
+05. Nightime's Waiting
+06. She's a Rock
+07. Tonight
+08. Starlight Serenade
+09. Raise Your Glass
+10. T.T.S.G.
+11. Come On Strong
+12. High (R)oc(k)tone
+13. Anytime
+14. Time Of Our Life
+15. Rock'n'Roll
+
 
 ## Отношения с другими группами
 

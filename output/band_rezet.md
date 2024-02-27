@@ -1,8 +1,72 @@
 # Rezet
 
-Дискография
-"Have Gun, Will Travel" 2010, Thrash
-"Civic Nightmares" 2012, Thrash
+
+
+## Дискография
+
+### "Have Gun, Will Travel" 2010, Thrash
+
+1. Red Alert
+2. Toxic Avenger
+3. Metal Rite
+4. Altar Of Satan
+5. Steamrolling Our Society
+6. Have Gun, Will Travel
+7. The Last Breath
+8. Fallen Angels
+
+Ricky Wagner – Lead & rhythm guitar, vocals
+Thorben Schulz – Lead guitar
+Sascha Marth – Bass guitar, back-up vocals
+Bastian Santen – Drums
+
+Produced by Kalli & R. Wagner
+Recorded and mixed in “Massa Ongo Studios” in Schaalby, Germany in winter 2009/2010
+Mastering by Tim Schuldt
+Cover design by Markus Vesper
+
+All tracks written and arranged by R. Wagner except tracks 1 & 8 written by R. Wagner & S. Marth, track 6 written by R. Wagner & T. Schulz
+
+All lyrics written by R. Wagner
+
+Intro taken from Ludwig Van Beethoven’s “March in D Major”
+
+Extra Back-up vocals by Rezet & Lars “Catshit” Funk
+
+### "Civic Nightmares" 2012, Thrash
+
+01. The Quest
+02. Combat Shock
+03. Out For Blood
+04. Charity (The Preacher)
+05. Full Throttle
+06. Visions From Beyond
+07. Gargantua
+08. Rezet To Zero
+09. Black Convent
+10. The Terror Strikes Back
+
+Ricky Wagner – Vocals, Lead, Rhythm and Acoustic Guitars
+Thorben Schulz – Lead and Rhythm Guitars
+Sascha Marth – Bass Guitar and Back-Up Vocals
+Bastian Santen – Drums
+
+Produced by Ricky Wagner & Torben Kall
+Engineered, recorded and mixed by Torben Kall
+Recorded and mixed at “Massa Ongo Studios” in Schaalby, Germany (October 2011 – January 2012)
+Mastered by Tim Schuldt at “4cn-Studios” in Wuppertal, Germany (February 2012)
+Drums engineered by Pharmaboy (www.myspace.com/pharmadrums)
+
+All songs written and arranged by Ricky Wagner
+except “Full Throttle”: written by Ricky Wagner & Thorben Schulz
+“Gargantua”: written by Ricky Wagner, Thorben Schulz & Sascha Marth
+
+All lyrics written by Ricky Wagner
+
+Extra back-up vocals by Andy Daemon, Thorben Schulz, Thore Josten, Lars Funk & Till Stade
+Percussion by Till Stade
+Additional keyboards by Ricky Wagner
+
 
 ## Отношения с другими группами
 

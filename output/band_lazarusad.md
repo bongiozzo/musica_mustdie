@@ -1,7 +1,13 @@
 # Lazarus A. D.
 
-Дискография
-"The Onslaught" 2009, Thrash
+Previously known as Lazarus
+
+## Дискография
+
+### "The Onslaught" 2009, Thrash
+
+
+
 
 ## Отношения с другими группами
 

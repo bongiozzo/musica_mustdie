@@ -1,14 +1,175 @@
 # Autopsy
 
-Дискография
-"Severed Survival" 1990, Death Metal
-"Retribution For The Dead (EP)" 1991, Death Metal
-"Mental Funeral" 1991, Death Metal
-"Fiend For Blood (EP)" 1992, Death Metal
-"Acts Of The Unspeakable" 1992, Death Metal
-"Shit Fun" 1995, Death Metal
-"The Tomb Within" 2010, Death Metal
-"Macabre Eternal" 2011, Death Metal
+Very Brutal Death
+
+## Дискография
+
+### "Severed Survival" 1990, Death Metal
+
+1. Charred Remains
+2. Service For A Vacant Coffin
+3. Disembowel
+4. Gasping For Air
+5. Ridden With Disease
+6. Pagan Saviour
+7. Impending Dread
+8. Severed Survival
+9. Critical Madness
+10.Embalmed
+
+ Chris Reifert - Vocals & Drums
+ Eric Cutler - Guitars
+ Danny Coralles - Guitars
+ Ken Sorvari - Bass
+ Steve DiGiorgio - Bass (Session)
+
+Produced By John Marshall & AUTOPSY.
+Recorded At Starlight Sound January,1989.
+Engineered By John Marshall.
+
+(p) 1990 PEACEVILLE Records
+(c) 1990 VILE MUSIC Records
+
+
+### "Retribution For The Dead (EP)" 1991, Death Metal
+
+
+
+### "Mental Funeral" 1991, Death Metal
+
+1. Twisted Mass Of Burn Decay
+2. In The Grip Of Winter
+3. Fleshcrawl
+4. Torn From The Womb
+5. Slaughter Day *
+6. Dead
+7. Robbing The Grave
+8. Hole In The Head
+9. Destined To Fester
+10.Bonesaw
+11.Dark Crusade
+12.Mental Funeral
+
+ Chris Reifert - Vocals & Drums
+ Eric Cutler - Guitars, Vocal On *
+ Danny Coralles - Guitars
+ Steve Cutler - Bass
+
+All Music By AUTOPSY.
+Produced By Hammy & AUTOPSY.
+Recorded At Different Fur S.F.,C.A. Nov 20-26
+1990 year.
+Engineered By Ron Rigler.
+
+(p) 1991 PEACEVILLE Records
+(c) 1991 VILE MUSIC Records
+
+
+### "Fiend For Blood (EP)" 1992, Death Metal
+
+
+
+### "Acts Of The Unspeakable" 1992, Death Metal
+
+1. Meat
+2. Necrocannibalistic Vomitorium
+3. Your Rotting Face
+4. Blackness Within
+5. An Acts Of The Unspeakable
+6. Frozen With Fear
+7. Spinal Extractions
+8. Death Twitch
+9. Skullptures
+10.Pus / Rot
+11.Battery Acid Enema
+12.Lobotomized
+13.Funereality
+14.Tortured Moans Of Agony
+15.Ugliness And Secretions
+16.Orgy In Excrements
+17.Voices
+18.Walls Of Coffin
+
+ Chris Reifert - Vocals & Drums
+ Eric Cutler - Guitars
+ Danny Coralles - Guitars
+ Josh Barohn - Bass
+
+Produced By AUTOPSY.
+Recorded At Starlight Sound, Richmond, C.A.
+June 1992.
+Engineer: Bill Thompson.
+
+(p) 1992 PEACEVILLE Records
+(c) 1992 VILE MUSIC Records
+
+### "Shit Fun" 1995, Death Metal
+
+1. Deathmask
+2. Humilate Your Corpse
+3. Fuckdog
+4. Praise The Children
+5. The Birthing
+6. Shit Eater
+7. Formaldehigh
+8. I Sodomize Your Corpse
+9. Geek
+10.Brain Damage
+11.Blood Orgy
+12.No More Hate
+13.Grave Violators
+14.Maim Rape Kill Rape
+15.I Shit On Your Grave
+16.An End To The Misery
+17.The 24 Public Mutilations
+18.Bathe In Fire
+19.Bowel Ripper
+20.Burnt To A Fuck
+21.Excremental Ecstasy
+
+ Chris Reifert - Drums, Vocals, Bass
+ Eric Cutler - Guitars, Bass
+ Danny Coralles - Guitars, Bass
+ Freeway Migliore - Bass
+
+All Songs Written By AUTOPSY
+Produced By AUTOPSY, Tim Daly & Jonathan Burnside
+Engineered By Tim Daly
+Recorded & Mixed By Razor's Edge, San Francisco, CA
+
+(p)&(c) 1995 PEACEVILLE Records
+
+### "The Tomb Within" 2010, Death Metal
+
+1. The Tomb Within
+2. My Corpse Shall Rise
+3. Seven Skulls
+4. Human Genocide
+5. Mutant Village
+
+### "Macabre Eternal" 2011, Death Metal
+
+1. Hand of Darkness  05:19    
+2. Dirty Gore Whore  05:45    
+3. Always About to Die  05:15    
+4. Macabre Eternal  04:39    
+5. Deliver Me from Sanity  04:24    
+6. Seeds of the Doomed  05:26    
+7. Bridge of Bones  04:46    
+8. Born Undead  04:00    
+9. Sewn into One  06:31    
+10. Bludgeoned and Brained  04:09    
+11. Sadistic Gratification  11:33    
+12. Spill My Blood  03:40  
+
+
+Chris Reifert  Vocals, Drums  
+Danny Coralles  Guitar  
+Eric Cutler  Guitar  
+Joe Allen  Bass  
+ 
+
+
 
 ## Отношения с другими группами
 

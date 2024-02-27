@@ -1,13 +1,94 @@
 # Trauma
 
-Дискография
-"Comedy Is Over" 1996, Death Metal
-"Daimonion" 1998, Death Metal
-"Suffocated in Slumber" 2000, Death Metal
-"Imperfect Like a God" 2003, Death Metal
-"DetermiNation" 2005, Death Metal
-"Neurotic Mass" 2007, Death Metal
-"Archetype of Chaos" 2010, Death Metal
+Death from Poland
+
+## Дискография
+
+### "Comedy Is Over" 1996, Death Metal
+
+1. Intro
+2. Incertitude
+3. Relief
+4. This Can't Be True
+5. Perfection
+6. Comedy Is Over
+7. Naked Truth
+8. Outro
+
+### "Daimonion" 1998, Death Metal
+
+1. Part I: Daimonion: Intro (Suicide)
+2. Dust (Kill Me)
+3. Contradictions
+4. Possessed	
+5. Name
+6. Outro
+7. Part II: Invisible Reality: Intro
+8. The Dawn/No Way Out
+9. Hidden Instincts
+10. Human Race
+11. No Hope
+12. Escape Into the Shadow
+
+### "Suffocated in Slumber" 2000, Death Metal
+
+1. A Gruesome Display
+2. Unable To React
+3. Suffocated In Slumber
+4. A Deep Scar
+5. Swallow The Murder
+6. Words Of Hate
+7. Tools Of Mutual Harm
+8. Dust (Kill Me)
+9. ...Bloodshot Eyes
+
+### "Imperfect Like a God" 2003, Death Metal
+
+1. Blade Under Your Throat
+2. The Hidden Seed
+3. The Madness Here
+4. Beyond The Perception
+5. Imperfect Like A God
+6. Make Me Blind
+7. Spiritual Disorder
+8. Perplexity Of Truths
+9. Outrage To Fools
+
+### "DetermiNation" 2005, Death Metal
+
+1. The Elegy For Doom
+2. The Solitude Remains
+3. Wings Of Frustration
+4. An Act Of Providence
+5. The Loneliest
+6. As Never Before
+7. Frozen God
+8. Determination
+
+### "Neurotic Mass" 2007, Death Metal
+
+1. Intro Monument
+2. Greed
+3. Altar of Vanity
+4. The Eternal Quest
+5. Unexpected Lie
+6. Neurotic Mass
+7. Immolated
+8. Edge of Vegetation
+9. Dead Macrocosm
+
+### "Archetype of Chaos" 2010, Death Metal
+
+1. Intro (White Architect)
+2. Cortex Deformation	 
+3. A Dying World	 
+4. War Machine	 
+5. The Slime	 
+6. The Truth Murder	 
+7. Tabula Rasa	 
+8. Portrait of the Lies	 
+9. Destruction of the Demented World
+
 
 ## Отношения с другими группами
 

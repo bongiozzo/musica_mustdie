@@ -1,9 +1,84 @@
 # D.O.A.
 
-Дискография
-"Last Scream Of The Missing Neighbors" 1989, Punk
-"13 Flavours Of Doom" 1992, Punk
-"New York City Speedcore" 1997, Punk
+Vocals With Dead Kennedys (Jello Biafra). Legendary Hard Rock/Metal band established in 1969.
+
+## Дискография
+
+### "Last Scream Of The Missing Neighbors" 1989, Punk
+
+1. That's Progress
+2. Attack Of The Peacekeepers
+3. Wish I Was In El Salvador
+4. Power Is Boring
+5. We Gotta Get Out Of This Place
+6. Full Metal Jackoff
+
+ Jello Biafra - Vocals
+ Joe Keithley - Guitar
+ Chris Prohom - Guitar
+ Brian Goble - Bass
+ Jon Cord  - Drums
+
+All Songs By D.O.A.
+Produced By J.Biafra.
+
+(p)&(c) 1989 ALTERNATIVE TENTACLES Records
+
+### "13 Flavours Of Doom" 1992, Punk
+
+1. Already Dead
+2. Death Machine
+3. Bombs Away
+4. The Living Dead
+5. I Played The Fool
+6. Too Fuckin' Heavy
+7. Hole In The Sky
+8. Hey Sister
+9. Use Your Raincoat
+10.Legalized Theft
+11.Rosemary's Baby
+12.Beatin' Rock'n'Roll To Death
+13.Time Of Illusion
+14.Phantom Zone
+
+ Joe "Shithead" Keithley - Guitars,Vocals
+ Brian Roy Goble - Bass,Vocals
+ Ken Jensen - Drums,Vocals
+
+Produced By John Wright.
+Engineered By Brian"Who"Else.
+Recorded At Profile Studios,Vancouver,Canada.
+
+(p)&(c) 1992 ALTERNATIVE TENTACLES Records
+
+### "New York City Speedcore" 1997, Punk
+
+1.  Total Annihilation
+2.  Ya Mutha
+3.  Brooklyn Mob
+4.  NYC Speedcore
+5.  Wannabe A Gangster
+6.  Zu Leiten
+7.  Uncle Bill's Message (Part I)
+8.  Pound Down On Your Breath
+9.  The Kill
+10.Uncle Bill's Message (Part 69)
+11.Minute Madness
+12.Extreme Gangsta
+13.Our Father
+14.Ya  Mutha (Part III)
+15.Noize  Core
+16.I'll Give You Hand
+17.Ya Mutha (Part II)
+18.You're Dead
+19.This Is D.A.O.
+
+Executive producer Lenny Dee.
+Compiled by Lenny Dee and D.O.A.
+Editing: DJ Micalizzi at Studio E.
+
+(P)(C) 1997 EARACHE Records // MOSH 164
+
 
 ## Отношения с другими группами
 

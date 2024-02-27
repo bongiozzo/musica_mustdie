@@ -1,9 +1,50 @@
 # Black Jade
 
-Дискография
-"Forest of Edoras" 2003, Black Metal
-"...Of Forest And Fire..." 2005, Black Metal
-"Helvetica Diabolica" 2007, Black Metal
+
+
+## Дискография
+
+### "Forest of Edoras" 2003, Black Metal
+
+1. Into the Black Gate 02:07  
+2. Black Symphony 05:43  
+3. Make Your Confession 04:41  
+4. Tempus Excpectare 06:45  
+5. Forest of Edoras 06:39  
+6. War of Terrok-Nor 05:07  
+7. Tale of the One Ring 01:15  
+8. Minas Ihthil 10:04 
+
+### "...Of Forest And Fire..." 2005, Black Metal
+
+1. Into The Forest 01:53  
+2. Ar-Pharazфn, 25. "Unlawful" King of The Lands In The West 05:57  
+3. The Fire of Amon Anwar 06:22  
+4. The Dark Legacy of Menegroth 04:10  
+5. ...of Forest And Fire... 03:37  
+6. ...And Night Comes Over Neldoreth 04:51  
+7. As Nargothrond Burn In The Dragons Fire 06:14  
+8. At The Drop Shadow of The Black Iron Mountains 04:33  
+9. Out of The Fire 02:14  
+10. Queen Beyond The Western Seas 06:57  
+11. In Nоn i Turmagwenn 05:04  
+12. Enyare Tal i Tyel 08:37  
+13. ...of Forest And Fire... (Live at ''Ring of Fire'' 2005) 04:32  
+14. Dense Fog Over The Widths Dead Swamps 02:13 
+
+### "Helvetica Diabolica" 2007, Black Metal
+
+1. Anno 1811 02:06  
+2. Schnefall 06:03  
+3. Hail Domina Helvezia 05:23  
+4. Auf alten Pfaden 04:08  
+5. Wiedergeburt der Sonne 03:03  
+6. Winterwald 05:14  
+7. Andacht 03:21  
+8. Des Teufels Br&#252;cke 05:22  
+9. Du k&#228;mpfst, du siegst 04:07  
+10. Anno 1961 17:10 
+
 
 ## Отношения с другими группами
 

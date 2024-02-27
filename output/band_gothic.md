@@ -1,8 +1,17 @@
 # Gothic
 
-Дискография
-"Touch of Eternity" 1997, Death Doom
-"Expect the Worst" 2013, Gothic
+
+
+## Дискография
+
+### "Touch of Eternity" 1997, Death Doom
+
+
+
+### "Expect the Worst" 2013, Gothic
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,11 +1,83 @@
 # Maroon
 
-Дискография
-"Antagonist" 2002, Metalcore
-"Endorsed by Hate" 2004, Metalcore
-"When Worlds Collide" 2006, Metalcore
-"The Cold Heart of the Sun" 2007, Metalcore
-"Order" 2009, Metalcore
+
+
+## Дискография
+
+### "Antagonist" 2002, Metalcore
+
+1. Tempest I 01:58  
+2. The Beginning of the End 04:05
+3. An End Like This 03:57 
+4. Shadow of the Vengeance 03:41
+5. Tempest II 00:19  
+6. Drowning 04:37 
+7. Still Believe In What Has Fallen Apart 05:01
+8. Beneath The Ashes 03:40
+9. Stillborn 05:29
+10. What Remains 02:31  
+11. Declaration 03:15 
+
+### "Endorsed by Hate" 2004, Metalcore
+
+1. Catharsis 00:59  
+2. The World's Havoc 03:19
+3. Endorsed By Hate 04:16
+4. Watch It All Come Down 04:46
+5. Without A Face 03:33
+6. At The Gates Of Demise 03:36
+7. Chosen Fate 04:49
+8. The Omega Suite 03:26  
+9. Human Waste 04:28
+10. Suffer Or Endure 03:55
+11. Gцtterdдmmerung 05:59 
+
+### "When Worlds Collide" 2006, Metalcore
+
+1. 24HourHate 03:45
+2. And If I Lose, Welcome Annihilation 02:19
+3. Sirius 00:54  
+4. Wake Up In Hell 03:55
+5. Annular Eclipse 03:48
+6. Arcturus 00:22  
+7. Confessions Of The Heretic 04:22
+8. There Is Something You Will Never Erase 04:00
+9. The Omega Suite Pt. II 05:03  
+10. Sword And Bullet 05:06
+11. Vermin 04:42 
+12. Koo She 00:27  
+13. Below Existence 04:29 
+
+### "The Cold Heart of the Sun" 2007, Metalcore
+
+1. (Reach) The Sun 04:47 
+2. Only the Sleeper Left the World 04:57
+3. Steelbath Your Heart 03:40
+4. My Funeral Song 04:55
+5. Black Halo! 04:40
+6. The Cold Heart of the Sun 01:23  
+7. For Those Unseen 03:49
+8. As Truth Becomes Vain 04:08
+9. The Iron Council 03:55
+10. Fear the Most them Who Protect 03:53
+11. Some Goodbyes are Farewells 05:06 
+
+
+### "Order" 2009, Metalcore
+
+1. Intro 01:22  
+2. Erode 04:00  
+3. Stay Brutal 03:47  
+4. A New Order 03:26  
+5. Bleak 06:23  
+6. This Ship Is Sinking 04:23  
+7. Leave You Scarred & Broken 04:40  
+8. Children Of The Next Level 03:18  
+9. Bombs Over Ignorance 03:22  
+10. Wolves At The End Of The Street 04:01  
+11. Schatten 07:35 
+
+
 
 ## Отношения с другими группами
 

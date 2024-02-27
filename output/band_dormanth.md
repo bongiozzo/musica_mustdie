@@ -1,7 +1,30 @@
 # Dormanth
 
-Дискография
-"Valley Of Dreams" 1995, Death Doom
+
+
+## Дискография
+
+### "Valley Of Dreams" 1995, Death Doom
+
+1.  Shadow Of A Tear
+2.  Destiny
+3.  Lost In The Sky
+4.  Forlorn Paths
+5.  Desolation
+6.  Ways To Believe
+7.  Remembrances : Behind The Light
+8.  Tomorrow Never Comes
+9.  The Eye
+
+Recorded & Mixed at 292 Fantasy Studios.
+
+Santi G. Mendezona - Lead Guitar
+Jorge Elizalde - Bass & Vocals
+Oscar Del Val - Lead Guitar
+Javi Martinez - Drums
+
+(P)c 1995 ARISE Records //ARCD 001
+
 
 ## Отношения с другими группами
 

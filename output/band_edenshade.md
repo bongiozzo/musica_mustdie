@@ -1,8 +1,35 @@
 # Edenshade
 
-Дискография
-"Ceramic Placebo For A Faint Heart" 2003, Melodic Death Metal
-"The Lesson Betrayed" 2006, Melodic Death Metal
+
+
+## Дискография
+
+### "Ceramic Placebo For A Faint Heart" 2003, Melodic Death Metal
+
+1. The pathology of incest 05:00  
+2. A fact of egoism 05:29
+3. Untitled part 1 (Instrumental) 01:09  
+4. Unreasonable heartbeating diminuendo 04:56] 
+5. The inconstancy of April 07:27
+6. The elegant curse of understanding 05:12 
+7. Some pain we shared 05:14
+8. Untitled part 2 02:18  
+9. Stigma.9 05:39 
+10. Scent of a midsummer dawn 03:44
+
+### "The Lesson Betrayed" 2006, Melodic Death Metal
+
+1. iMesis 04:36  
+2. thatBlind 06:05  
+3. theY 04:28  
+4. the Drop 04:40  
+5. the Lesson Betrayed 05:04  
+6. Contemplate 04:59  
+7. trust In ME 00:29  
+8. as Water 04:34  
+9. Insect 05:03  
+10. day zer0 02:45
+
 
 ## Отношения с другими группами
 

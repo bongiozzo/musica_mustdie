@@ -1,7 +1,25 @@
 # In Blackest Velvet
 
-Дискография
-"Edenflow" 2000, Melodic Death Metal
+ex- Night In Gales
+
+## Дискография
+
+### "Edenflow" 2000, Melodic Death Metal
+
+...containing the following tracks:
+
+01 "Craving For The Dusk" 3' 33"   
+02 "Sylvan Sanctuary" 3' 37" 
+03 "Seeing Is Believing" 3' 56" 
+04 "Veiled In Ambered Sunlight" 3' 57" 
+05 "Unleashed Powers" 3' 32" 
+06 "Losing My Religion" (R.E.M.-Cover) 4' 38" 
+07 "Driven Ashore" 3' 35" 
+08 "Fathomless" 3' 34" 
+09 "The Delightful Temptress" 4' 19" 
+10 "Tears Bleed Sweeter" 4' 34" 
+11 "In Blackest Velvet" 1' 49" 
+
 
 ## Отношения с другими группами
 

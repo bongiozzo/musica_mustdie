@@ -1,7 +1,17 @@
 # Christ Beheaded
 
-Дискография
-"Open the Gates Of Hell" 2009, Black Metal
+
+
+## Дискография
+
+### "Open the Gates Of Hell" 2009, Black Metal
+
+1. Purgatory 04:34  
+2. Open the Gates of Hell 05:09  
+3. Decomposed 04:37  
+4. The Cleansing Ritual 02:47  
+5. Sanguine Moon 05:22 
+
 
 ## Отношения с другими группами
 

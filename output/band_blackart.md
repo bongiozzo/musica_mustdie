@@ -1,7 +1,27 @@
 # Black Art
 
-Дискография
-"The Way" 2013, Death Doom
+Doom/Death Metal from Russia
+
+## Дискография
+
+### "The Way" 2013, Death Doom
+
+1. Pain  04:01     
+2. Labyrinth  04:37     
+3. Mirage  04:46     
+4. See You  03:28     
+5. Human Waste  02:29     
+6. Agony  04:15     
+7. Desolation  01:53     
+8. The Way  08:12 
+
+
+Oleg Gorokhov - Bass  
+Yuriy Bubnov - Drums  
+Kirill Alekseev - Guitars  
+Andrey Shavlak - Guitars, Vocals  
+
+
 
 ## Отношения с другими группами
 

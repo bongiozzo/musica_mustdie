@@ -1,10 +1,59 @@
 # The Project Hate MCMXCIX
 
-Дискография
-"Cybersonic Superchrist" 2000, Death Doom
-"When We Are Done, Your Flesh Will Be Ours" 2001, Death Doom
-"Hate, Dominate, Congregate, Eliminate" 2003, Death Doom
-"Armageddon March Eternal (Symphonies of Slit Wrists)" 2005, Death Doom
+
+
+## Дискография
+
+### "Cybersonic Superchrist" 2000, Death Doom
+
+1 Divine Burning of Angels 6:11 (Project Hate) 
+2 Swarming of Whores 6:52 (Project Hate) 
+3 Selfconstructive Once Again 6:57 (Project Hate) 
+4 Shape, Memory, Murder 6:57 (Project Hate) 
+5 Nine Spectrums of Impurity 3:34 (Project Hate) 
+6 Soul Infliction 7:53 (Project Hate) 
+7 Oceans of Seemingly Endless Bleeding 5:59 (Project Hate) 
+8 Christianity Delete 7:54 (Project Hate) 
+9 With Desperate Hands So Numb 8:30 (Project Hate) 
+
+
+### "When We Are Done, Your Flesh Will Be Ours" 2001, Death Doom
+
+I Smell Like Jesus...Dead  
+Can't Wait  
+Hellucination
+Believing Is Bleeding  
+Hate Incarnate  
+Forsaken By The Naked Light Of Day  
+Blessed Are We To Be Lied Upon  
+Disciples Of The Apocalypse
+In Sickness And In Hell  
+Dividead
+
+
+
+### "Hate, Dominate, Congregate, Eliminate" 2003, Death Doom
+
+1. Hate 
+2. Nailed 
+3. Dominate 
+4. Deviate 
+5. Congregate 
+6. Burn 
+7. Eliminate 
+8. Weep
+
+### "Armageddon March Eternal (Symphonies of Slit Wrists)" 2005, Death Doom
+
+1. At the entrance to hell's unholy fire 
+2. The bleeding eyes of a breeding whore  
+3. I see nothing but flesh  
+4. Resurrected for massive torture 
+5. We couldn't be further from the truce  
+6. Godslaughtering murder machine  
+7. Symphony of the deceived 
+8. Loveless, godless, flawless
+
 
 ## Отношения с другими группами
 

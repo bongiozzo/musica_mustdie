@@ -1,7 +1,13 @@
 # Dominion III
 
-Дискография
-"Life Has Ended Here" 2002, Industrial
+dark wave / industral
+
+## Дискография
+
+### "Life Has Ended Here" 2002, Industrial
+
+
+
 
 ## Отношения с другими группами
 

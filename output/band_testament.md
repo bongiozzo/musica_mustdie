@@ -1,20 +1,284 @@
 # Testament
 
-Дискография
-"The Legacy" 1987, Thrash
-"Live at Eindhoven" 1987, Thrash
-"The New Order" 1988, Thrash
-"Practice What You Preach" 1989, Thrash
-"Souls of Black" 1990, Thrash
-"The Ritual" 1992, Thrash
-"Return to the Apocalyptic City" 1993, Thrash
-"Low" 1994, Thrash
-"Demonic" 1997, Thrash
-"The Gathering" 1999, Thrash
-"First Strike Still Deadly" 2002, Thrash
-"The Formation of Damnation" 2008, Thrash
-"Dark Roots of Earth" 2012, Thrash
-"The Brotherhood Of The Snake" 2016, Thrash
+Classic Thrash band
+
+## Дискография
+
+### "The Legacy" 1987, Thrash
+
+1. Over The Wall
+2. The Haunting
+3. Burnt Offerings
+4. Raging Waters
+5. C.O.T.L.O.D.
+6. First Strike Is  Deadly
+7. Do Or Die
+8. Alone In The Dark
+9. Apocalyptic City
+
+ Eric Peterson - Guitar
+ Alex Skolnick - Guitar
+ Greg Christian - Bass
+ Louie Clemente - Drums
+ Chuck Billy - Vocals
+
+(p)&(c) 1987 MEGAFORCE Records
+
+### "Live at Eindhoven" 1987, Thrash
+
+ Side One:
+1. Over The Wall 5.38
+2. Burnt Offerings 4.52
+3. Do Or Die 5.24
+ Side Two:
+1. Apocalyptic City 5.54
+2. Reign Of Terror 4.31
+
+Eric Peterson - Guitars
+Chuck Billy - Vocals
+Greg Christian - Bass
+Louie Clemente - Drums
+Alex Skolnick - Guitars
+
+Recorded Live June 8th,1987 At The Dynamo 
+Open Air Festival, Eindhoven, Holland.
+
+(p)&(c) 1987 MEGAFORCE /ATLANTIC Records
+
+### "The New Order" 1988, Thrash
+
+1. Eerie Inhabitants
+2. The New Order
+3. Trial By Fire
+4. Into The Pit
+5. Hypnosis
+6. Disciples Of The Watch
+7. The Preacher
+8. A Day Of Reckoning
+9. Musical Death (Adirge)
+
+ Eric Peterson - Guitar
+ Alex Skolnick - Guitar
+ Greg Christian - Bass
+ Louie Clemente - Drums
+ Chuck Billy - Vocals
+
+(p)&(c) 1988 MEGAFORCE Records
+
+### "Practice What You Preach" 1989, Thrash
+
+1. Practice What You Preach
+2. Perilious Nation
+3. Envy Life
+4. Time Is Going
+5. Blessed In Contempt
+6. Greenhouse Effect
+7. Sins Of Omission
+8. The Ballad
+9. Nightmare (Coming Back To You)
+10.Confusion Fusion
+
+ Alex Skolnick - Lead & Rhythm Guitars
+ Eric Peterson - Rhythm & Lead Guitars
+ Chuck Billy - Vocals
+ Louie Clemente - Drums
+ Greg Christian - Bass
+
+Produced,Recorded & Mixed By Alex Perilias.
+                                      
+(p)&(c) 1989 MEGAFORCE Records
+
+### "Souls of Black" 1990, Thrash
+
+1. Beginning Of The End
+2. Face In The Sky
+3. Falling Fast
+4. Souls Of Black
+5. Absence Of Light
+6. Love To Hate
+7. Malpractice
+8. One Man's Fate
+9. The Legacy
+10.Seven Days Of May
+
+ Alex Skolnick - Lead & Rhythm Guitars
+ Eric Peterson - Rhythm & Lead Guitars
+ Chuck Billy - Vocals
+ Louie Clemente - Drums
+ Greg Christian - Bass
+
+Produced,Recorded & Mixed By Alex Perilias.
+ 
+(p)(c) 1990 MEGAFORCE Records Inc.
+
+### "The Ritual" 1992, Thrash
+
+1. Signs Of Chaos
+2. Electric Crown
+3. So Many Lies
+4. Let Go Of My World
+5. The Ritual
+6. Deadline
+7. As The Seasons Grey
+8. Agony
+9. The Sermon
+10.Return To Serenity
+11.Troubled Dreams
+
+ Alex Skolnick - Lead & Rhythm Guitars
+ Eric Peterson - Rhythm & Lead Guitars
+ Chuck Billy - Vocals
+ Louie Clemente - Drums
+ Greg Christian - Bass
+
+Produced & Engineered By Tony Platt
+Mixed By Nigel Green
+Recorded At One To One Recording, Los Angeles
+
+(p)&(c) 1992 ATLANTIC Records
+
+### "Return to the Apocalyptic City" 1993, Thrash
+
+1. Over The Wall
+2. So Many Lies
+3. The Haunting
+4. Disciples Of The Watch
+5. Reign Of Terror
+6. Return To Serenity
+
+ Eric Peterson - Guitars
+ Chuck Billy - Vocals
+ Greg Christian - Bass
+ Glenn Alvelais - Guitars
+ Paul Bostaph - Drums
+
+Tracks 1-4 Recorded Live At Los Angeles Palladium.
+Produced By Michael Rosen & TESTAMENT.
+
+(p)&(c) 1993 ATLANTIC Records
+
+### "Low" 1994, Thrash
+
+1. Low
+2. Legions (In Hiding)
+3. Hail Mary
+4. Trail Of Tears
+5. Shades Of War
+6. P.C.
+7. Dog Faced Gods
+8. All I Could Bleed
+9. Urotsukidoji
+10.Chasing Fear
+11.Ride
+12.Last Call
+
+ James Murphy - Lead Guitars
+ Eric Peterson - Rhythm & Lead Guitars
+ Chuck Billy - Vocals
+ Greg Christian - Bass
+
+Produced By TESTAMENT & Gggarth
+Mixed By Michael Wagener
+
+(p)(c) 1994 MEGAFORCE Recording
+
+### "Demonic" 1997, Thrash
+
+1. Demonic Refusal
+2. The Burning Times
+3. Together As One
+4. Jun-Jun
+5. John Doe
+6. Murky Waters
+7. Hatreds Rise
+8. Distorted Lives
+9. New Eyes Of Old
+10.Ten Thousand Thrones
+11.Nostrovia
+
+This record is dedicated to the memory of
+John Driftwood' Killeen.
+
+(P)(C) 1997 Burnt Offerings
+
+### "The Gathering" 1999, Thrash
+
+1. D.N.R.
+ 2. Down For Life
+ 3. Eyes Of Wrath
+ 4. True Believer
+ 5. Three Days In Darkness
+ 6. Legions Of The Dead
+ 7. Careful What You Wish For
+ 8. Riding The Snake
+ 9. Allegiance
+10. Sewn Shut Eyes
+11. Fall Of Siple Dome
+
+### "First Strike Still Deadly" 2002, Thrash
+
+1. First Strike Is Deadly
+ 2. Into The Pit
+ 3. Trial By Fire
+ 4. Disciples Of The Watch
+ 5. The Preacher
+ 6. Burnt Offerings
+ 7. Over The Wall
+ 8. The New Order
+ 9. The Haunting
+10. Alone In The Dark
+11. Reign Of Terror
+
+### "The Formation of Damnation" 2008, Thrash
+
+1. For The Glory Of   
+2. More Than Meets the Eye  
+3. The Evil Has Landed   
+4. Formation of Damnation   
+5. Dangers of the Faithless   
+6. The Persecuted Won't Forget   
+7. Henchman   
+8. Killing Season   
+9. Afterlife   
+10. F.E.A.R.   
+11. Leave Me Forever 
+
+
+Chuck Billy - Vocals
+Alex Skolnick - Guitar
+Eric Peterson - Guitar
+Greg Christian - Bass
+Paul Bostaph - Drums
+
+### "Dark Roots of Earth" 2012, Thrash
+
+1. Rise Up
+2. Native Blood
+3. Dark Roots Of Earth
+4. True American Hate
+5. A Day In The Death
+6. Cold Embrace
+7. Man Kills Mankind
+8. Throne Of Thorns
+9. Last Stand For Independence
+10. Dragon Attack (Queen cover) (Bonus Track)
+11. Animal Magnetism (Scorpions cover) (Bonus Track)
+12. Powerslave (Iron Maiden cover) (Bonus Track)
+13. Throne Of Thornes (Extended version) (Bonus Track)
+
+### "The Brotherhood Of The Snake" 2016, Thrash
+
+1. Brotherhood of the Snake 
+2. The Pale King 
+3. Stronghold 
+4. Seven Seals 
+5. Born in a Rut 
+6. Centuries of Suffering 
+7. Black Jack 
+8. Neptune's Spear 
+9. Canna-Business 
+10. The Number Game 
+
 
 ## Отношения с другими группами
 

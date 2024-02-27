@@ -1,9 +1,33 @@
 # October Falls
 
-Дискография
-"Marras" 2005, Folk
-"The Womb of Primordial Nature" 2008, Black Metal
-"A Collapse of Faith" 2010, Black Metal
+
+
+## Дискография
+
+### "Marras" 2005, Folk
+
+01. Marras I
+02. Marras II
+03. Marras III
+04. Marras IV
+05. Marras V
+06. Marras VI
+07. Marras VII
+08. Marras VIII
+
+### "The Womb of Primordial Nature" 2008, Black Metal
+
+1. I  10:32 
+2. II  10:21   
+3. III  08:01  
+4. IV  09:17 
+
+### "A Collapse of Faith" 2010, Black Metal
+
+1. A Collapse of Faith Part I  18:49 
+2. A Collapse of Faith Part II  17:42 
+3. A Collapse of Faith Part III  05:28 
+
 
 ## Отношения с другими группами
 

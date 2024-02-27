@@ -1,8 +1,30 @@
 # Vlazhnie Vatrushki
 
-Дискография
-"Children Of The ПТУ" 2005, Grindcore
-"Слоновья Жопа" 2007, Grindcore
+
+
+## Дискография
+
+### "Children Of The ПТУ" 2005, Grindcore
+
+1.  Кавказ
+2.  Зинаида
+3.  Джига-Джига
+4.  Где Же Моя Джессика?
+5.  Эстрадное Говно
+6.  Ватрушки Грабят Банк
+7.  Сюзанна
+8.  Космический Дирижабль
+9.  Der Pizdets
+10.  Медицинский Робот
+11.  It's My Life
+12.  Ватрушки VS Dimmu Borgir
+
+### "Слоновья Жопа" 2007, Grindcore
+
+1.  Овца (Слоновья Жопа) [Original Single Mix]
+2.  Слоновья Жопа [Shining-Шайзе Mix]
+3.  Овца [Orchestral Elephant Mix]
+
 
 ## Отношения с другими группами
 

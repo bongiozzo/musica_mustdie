@@ -1,22 +1,378 @@
 # King Diamond
 
-Дискография
-"Fatal Portrait" 1986, Heavy Metal
-"Abigail" 1987, Heavy Metal
-"Them" 1988, Heavy Metal
-"The Dark Sides" 1988, Heavy Metal
-"Conspiracy" 1989, Heavy Metal
-"The Eye" 1990, Heavy Metal
-"Dangerous Meeting (Part II)" 1992, Heavy Metal
-"The Spider's Lullabye" 1995, Heavy Metal
-"The Graveyard" 1996, Heavy Metal
-"Voodoo" 1998, Heavy Metal
-"House Of God" 2000, Heavy Metal
-"Nightmares In The Nineties (the best of...)" 2001, Heavy Metal
-"Abigail II: The Revenge" 2002, Heavy Metal
-"The Puppet Master" 2003, Heavy Metal
-"Deadly Lullabies Live" 2004, Heavy Metal
-"Give Me Your Soul... Please" 2007, Heavy Metal
+King of Horror Metal
+
+## Дискография
+
+### "Fatal Portrait" 1986, Heavy Metal
+
+1. The Candle
+2. The Johan
+3. The Portrait
+4. Dressed In White
+5. Charion
+6. Lurking In The Dark
+7. Halloween
+8. Voices From The Past
+9. Haunted
+10. No Presents For Christmas (bonus track)
+10. The Lake (bonus track)
+
+ King Diamond - All Vocals
+ Michael Denner - Guitars
+ Andy La Rocque - Guitars
+ Timi Hansen - Bass
+ Mikkey Dee - Drums
+
+(p)&(c) 1986 ROADRUNNER Records
+
+### "Abigail" 1987, Heavy Metal
+
+1. Funeral
+2. Arrival
+3. A Mansion In Darkness
+4. The Family Ghost
+5. The 7th Day Of July 1777
+6. Omens
+7. The Possesion
+8. Abigail
+9. Black Horseman
+
+ King Diamond - All Vocals
+ Michael Denner - Guitars
+ Andy La Rocque - Guitars
+ Timi Hansen - Bass
+ Mikkey Dee - Drums
+
+(p)&(c) 1987 ROADRUNNER Records
+
+### "Them" 1988, Heavy Metal
+
+1. Out From The Asylum
+2. Welcome Home
+3. The Invisible Guests
+4. Tea
+5. Mother's Getting Weaker
+6. Bye, Bye, Missy
+7. A Broken Spell
+8. The Accusation Chair
+9. Them
+10.Twilight Symphony
+11.Coming Home
+
+ King Diamond - All Vocals
+ Michael Denner - Guitars
+ Andy La Rocque - Guitars
+ Timi Hansen - Bass
+ Mikkey Dee - Drums
+
+(P)&(C) 1988 ROADRUNNER Records
+
+### "The Dark Sides" 1988, Heavy Metal
+
+1. Halloween 
+2. Them 
+3. No Presents For Christmas 
+4. Shrine 
+5. The Lake 
+6. Phone Call 
+
+Band Members 
+King Diamond - vocals 
+Michael Denner - guitar 
+Andy La Roque - guitar 
+Timi Hansen - bass 
+Mikky Dee - drums  
+
+Label: Roadrunner
+Produced by: King Diamond & Roberto Falcao
+
+### "Conspiracy" 1989, Heavy Metal
+
+1. At The Graves
+2. Sleepless Nights
+3. Lies
+4. A Visit From The Dead
+5. The Wedding Dream
+6. Amon Belongs To THEM
+7. Something Weird
+8. Victimized
+9. Let It Be Done
+10.Cremation
+
+ King Diamond - All Vocals
+ Michael Denner - Guitars
+ Andy La Rocque - Guitars
+ Timi Hansen - Bass
+ Mikkey Dee - Drums
+
+(P)&(C) 1989 ROADRUNNER Records
+
+### "The Eye" 1990, Heavy Metal
+
+1. Eye Of The Witch
+2. The Trial (Chambre Ardente)
+3. Burn
+4. Two Little Girls
+5. Into The Convent
+6. Father Picard
+7. Behind These Walls
+8. The Meeting
+9. Insanity
+10. 1642 Imprisonment
+11. The Curse
+
+ King Diamond - All Vocals
+ Pete Blakk - Guitars
+ Andy La Rocque - Guitars
+ Hal Patino - Bass
+ Snowy Shaw - Drums
+
+(p)&(c) 1990 ROADRUNNER Records
+
+### "Dangerous Meeting (Part II)" 1992, Heavy Metal
+
+1.  The Candle
+2.  Charon
+3.  Halloween
+4.  No Presents For Christmas
+5.  Arrival
+6.  Abigail
+7.  Welcome Home
+8.  Sleepless Nights
+9.  A Visit From The Dead
+10.  Eye Of The Witch
+
+(P)&c 1992 ROADRUNNER Records
+
+### "The Spider's Lullabye" 1995, Heavy Metal
+
+1. From The Other Side
+2. Killer *
+3. The Poltergeist
+4. Dreams
+5. Moonlight
+6. Six Feet Under *
+7. The Spider's Lullabye
+8. Eastmann's Cure
+9. Room 17
+10. To The Morgue *
+
+ King Diamond - All Vocals, Harpsichord, Keyboards
+ Andy LaRocque - Guitars
+ Herb Simonsen - Guitars
+ Chris Estes - Bass, Keyboards
+ Darryn Anthony - Drums
+
+All Music & Lyrics Written By KING DIAMOND, Except * Music By LaRocque / King Diamond
+Produced & Mixed By King Diamond & Tim Kimsey
+Engineered By Tim Kimsey
+Recorded & Mixed At The Dallas Sound Lab, Sept.-Oct. 1994
+
+(p)&(c) 1995 MASSACRE Records
+
+### "The Graveyard" 1996, Heavy Metal
+
+ 1. The Graveyard 
+ 2. Black Hill Sanitarium З
+ 3. Waiting
+ 4. Heads On The Wall З
+ 5. Whispers З
+ 6. I'm Not A Stranger
+ 7. Digging Graves
+ 8. Meet Me At Midnight З
+ 9. Sleep Tight Little Baby
+10. Daddy
+11. Trick Or Treat
+12. Up From The Grave
+13. I Am
+14. Lucy Forever З
+
+King Diamond - All Vocals, Keyboards
+Andy LaRocque - Guitars
+Herb Simonsen - Guitars
+Chris Estes - Bass, Keyboards
+Darryn Anthony - Drums
+
+All Music & Lyrics Written By King Diamond, except  З by LaRocque / King Diamond.
+Produced & Mixed By King Diamond, Tim Kimsey & Andy LaRocque.
+Engineered By Tim Kimsey
+Recorded & Mixed At The Dallas Sound Lab in Texas, Texas.
+
+(p)&(c) 1996 MASSACRE Records
+
+### "Voodoo" 1998, Heavy Metal
+
+1. Luisiana Darkness.
+2. "LOA" House.
+3. Life After Death.
+4. Voodoo.
+5. A Secret.
+6. Salem.
+7. One Down Two To Go.
+8. Sending Of Dead.
+9. Sarah's Night.
+10. The Exorcist.
+11. Unclean Spirits.
+12. Cross Of Baron Samedy.
+13. If They Only Knew.
+14. Aftermath.
+
+(c)&(p) 1998 MASSACRE RECORDS
+
+KING DIAMOND – vocals, harpsichord, organ & keyboards
+ANDY LA ROCQUE – electric & acoustic guitars, keyboards
+CHRIS ESTES – bass guitar, acoustic guitar, keyboards
+JOHN LUKE HEBERT – drums
+HERB SIMONSEN – electric guitar
+
+Produced by King Diamond, Andy La Rocque and Sterling Winfield. Engineered by Sterling Winfield. Second 
+engineer: Kol Marshal. Mixed by King Diamond & Sterling Winfield. Mix assistant: Chris Estes. Didital editing by: 
+Kol Marshal, Sterling Winfield and King Diamond.
+Recorded at Norman Recording Studio Dallas, Texas. Mastered by Kind Diamond at Nomad Recordings Studio. 
+Additional recordings made at Los Angered Recording Gothenburg, Sweden.
+
+### "House Of God" 2000, Heavy Metal
+
+1. Upon the Cross - 01:44 
+2. The Trees Have Eyes - 04:46
+3. Follow the Wolf - 04:28
+4. House of God - 05:36
+5. Black Devil - 04:28
+6. The Pact - 04:10
+7. Goodbye - 02:00
+8. Just a Shadow - 04:37
+9. Help!!! - 04:22
+10. Passage to Hell - 02:00
+11. Catacomb - 05:01
+12. This Place is Terrible - 05:34
+13. Peace of Mind - 02:32 
+
+Produced by King Diamond and Kol Marshall.
+Engineered by Kol Marshall.
+2nd Engineer: J.T. Longoria
+Mixed by King Diamond and Kol Marshall.
+Recorded, Mixed and Mastered at ''Nomad Recording Studio'', Carrollton, Dallas, Texas.
+
+This album is a concept album of King's opinion of "what really" happened to Jesus Christ.
+
+King Diamond : All vocals, keyboards
+Andy LaRoque : Guitars, keyboards
+Glen Drover : Guitars
+David Harbour : Bass
+John Herbert : Drums
+
+### "Nightmares In The Nineties (the best of...)" 2001, Heavy Metal
+
+From The Other Side 
+Waiting 
+The Exorcist 
+Eastmann's Cure 
+Just A Shadow 
+Cross of Baron Samedi 
+Trick Or Treat 
+One Down Two To Go 
+Catacomb 
+Six Feet Under 
+Lucy Forever 
+The Trees Have Eyes 
+LOA House 
+Peace Of Mind 
+
+
+### "Abigail II: The Revenge" 2002, Heavy Metal
+
+1.  Spare This Life  
+2.  Storm, The  
+3.  Mansion In Sorrow  
+4.  Miriam  
+5.  Little One  
+6.  Slippery Stairs  
+7.  Crypt, The  
+8.  Broken Glass  
+9.  More Than Pain  
+10.  Wheelchair, The  
+11.  Spirits  
+12.  Mommy  
+13.  Sorry Dear  
+ 
+King Diamond (vocals); 
+Andy LaRocque, Mike Wead (guitar); 
+Hal Pinto (bass); 
+Matt Thompson (drums).
+
+Producers: Kol Marshall, King Diamond, Andy LaRocque. 
+
+
+### "The Puppet Master" 2003, Heavy Metal
+
+1. Midnight
+2. The Puppet Master
+3. Magic
+4. Emerencia
+5. Blue Eyes
+6. The Ritual
+7. No More Me
+8. Blood To Walk
+9. Darkness
+10. So Sad
+11. Christmas
+12. Living Dead
+
+King Diamond - Vocals & Keyboards
+Andy La Rocque - Guitars & Keyboards
+Mike Wead - Guitars
+Hal Patino - Bass
+Matt Thompson - Drums
+Additional Vocals by Livia Zita
+
+### "Deadly Lullabies Live" 2004, Heavy Metal
+
+01. Funeral 
+02. A Mansion In Darkness 
+03. The Family Ghost 
+04. Black Horsemen 
+05. Spare This Life 
+06. Mansion In Sorrow 
+07. Spirits 
+08. Sorry Dear 
+09. Eye Of The Witch 
+10. Sleepless Nights 
+11. The Puppet Master 
+12. Blood To Walk 
+13. So Sad 
+14. Living Dead "Outro" 
+15. Welcome Home 
+16. The Invisible Guests 
+17. Burn 
+18. "Introductions" 
+19. Halloween 
+20. No Presents For Christmas
+
+### "Give Me Your Soul... Please" 2007, Heavy Metal
+
+1. The Dead 
+2. Never Ending Hill
+3. Is Anybody Here?
+4. Black Of Night
+5. Mirror, Mirror
+6. The Cellar 
+7. Pictures In Red
+8. Gimme Your Soul
+9. The Floating Head
+10. Cold As Ice
+11. Shapes Of Black
+12. The Girl In The Bloody Dress
+13. Moving On
+
+King Diamond - Vocals, Keyboards 
+Andy LaRocque - Guitar, Keyboards 
+Hal Patino - Bass 
+Matt Thompson - Drums 
+Mike Wead - Guitar 
+
+Additional Vocals by Livia Zita.
+
 
 ## Отношения с другими группами
 

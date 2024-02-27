@@ -1,8 +1,17 @@
 # Dekapitator
 
-Дискография
-"We Will Destroy...You Will Obey!!!" 1999, Black Metal
-"The Storm Before The Calm" 2007, Thrash
+
+
+## Дискография
+
+### "We Will Destroy...You Will Obey!!!" 1999, Black Metal
+
+
+
+### "The Storm Before The Calm" 2007, Thrash
+
+
+
 
 ## Отношения с другими группами
 

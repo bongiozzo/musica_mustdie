@@ -1,9 +1,21 @@
 # Stortregn
 
-Дискография
-"Uncreation" 2011, Death Metal
-"Evocation of Light" 2013, Death Metal
-"Singularity " 2016, Death Metal
+
+
+## Дискография
+
+### "Uncreation" 2011, Death Metal
+
+
+
+### "Evocation of Light" 2013, Death Metal
+
+
+
+### "Singularity " 2016, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

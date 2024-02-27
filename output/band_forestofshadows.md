@@ -1,8 +1,23 @@
 # Forest Of Shadows
 
-Дискография
-"Where Dreams Turn To Dust" 2001, Doom
-"Departure" 2004, Doom
+Doom Metal
+
+## Дискография
+
+### "Where Dreams Turn To Dust" 2001, Doom
+
+1. Eternal Autumn 09:24 
+2. Wish 08:20
+3. Of Sorrow Blue 11:30
+
+### "Departure" 2004, Doom
+
+1. Sleeping Death 16:57  
+2. November Dream 10:44 
+3. Bleak Dormition 05:20  
+4. Open Wound 13:55 
+5. Departure 14:19
+
 
 ## Отношения с другими группами
 

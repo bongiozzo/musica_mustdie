@@ -1,10 +1,58 @@
 # Thy Art Is Murder
 
-Дискография
-"Infinite Death (EP)" 2008, Deathcore
-"The Adversary" 2010, Deathcore
-"Hate" 2012, Deathcore
-"Holy War" 2015, Deathcore
+
+
+## Дискография
+
+### "Infinite Death (EP)" 2008, Deathcore
+
+1. I'll Show You God
+2. Whore To A Chainsaw
+3. Parasitic Autopsy
+4. Breeding Bacteria
+5. Infinite Death
+
+### "The Adversary" 2010, Deathcore
+
+01. Unholy Sermons
+02. Soldiers Of Immortality
+03. Laceration Penetration
+04. Furnace of Hate
+05. Flesh Oracle
+06. The Adversary
+07. Decrepit Putrification
+08. The False Prophet
+09. Engineering The Antichrist
+10. Requiem
+11. Cowards Throne
+
+### "Hate" 2012, Deathcore
+
+01. Reign Of Darkness
+02. The Purest Strain Of Hate
+03. Vile Creations
+04. Shadow Of Eternal Sin
+05. Immolation
+06. Infinite Forms
+07. Dead Sun
+08. Gates Of Misery
+09. Defective Breed
+10. Doomed From Birth
+
+### "Holy War" 2015, Deathcore
+
+01. Absolute Genocide
+02. Light Bearer
+03. Holy War
+04. Coffin Dragger
+05. Fur And Claw
+06. Deliver Us To Evil
+07. Emptiness
+08. Violent Reckoning
+09. Child Of Sorrow
+10. Naked And Cold
+11. Vengeance (bonus)
+
 
 ## Отношения с другими группами
 

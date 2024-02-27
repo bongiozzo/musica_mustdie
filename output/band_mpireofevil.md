@@ -1,8 +1,26 @@
 # M-pire Of Evil
 
-Дискография
-"Hell To The Holy" 2012, Black Metal
-"Crucified" 2013, Black Metal
+ex-VENOM
+
+## Дискография
+
+### "Hell To The Holy" 2012, Black Metal
+
+1.	 Hellspawn	03:58	 
+2.	 Metal Messiah	05:15	 
+3.	 Waking Up Dead	04:21	 
+4.	 Hell to the Holy	08:01	 
+5.	 Snake Pit	04:12	 
+6.	 All Hail	04:12	 
+7.	 Devil	06:16	 
+8.	 Shockwave	04:54	 
+9.	 The 8th Gate	08:14	 
+10.	 M-pire (Prelude)	03:27	
+
+### "Crucified" 2013, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

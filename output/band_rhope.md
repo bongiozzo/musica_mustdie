@@ -1,7 +1,24 @@
 # Rhope
 
-Дискография
-"Turning Maybes Into Reality" 2012, Metalcore
+
+
+## Дискография
+
+### "Turning Maybes Into Reality" 2012, Metalcore
+
+01. Slaves
+02. Into The Box
+03. Parallel
+04. False Needs
+05. Lust
+06. Your Peace
+07. Comedown
+08. Truth Lies
+09. Extinction Is Forever
+10. Entropy Of Brain
+11. Cut The Pressure
+12. Now
+
 
 ## Отношения с другими группами
 

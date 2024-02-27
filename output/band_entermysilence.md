@@ -1,9 +1,58 @@
 # Enter My Silence
 
-Дискография
-"Sophia's Eye" 1999, Melodic Death Metal
-"Remotecontrolled Scythe" 2001, Melodic Death Metal
-"Coordinate: D1SA5T3R" 2006, Melodic Death Metal
+
+
+## Дискография
+
+### "Sophia's Eye" 1999, Melodic Death Metal
+
+1. Neverdawn
+2. Sophia
+3. The Tide Will Turn
+4. Plastic Night 
+
+Recorded, mixed & engineered at Studio Watercastle,
+Finland on December 18th-20th 1998 by Arttu Sarvanne.
+
+
+
+### "Remotecontrolled Scythe" 2001, Melodic Death Metal
+
+1. Six.Nothing
+2. Irrelevant
+3. Inhale / Exhale
+4. Articulate
+5. Split
+6. Nevernity
+7. Filter X
+8. The Loss Of The Leading One
+9. Mindfill Effect
+ 
+Recorded, mixed & engineered at Studio Watercastle,
+Finland in July - August 2000 by Arttu Sarvanne
+Cover artwork by Niklas Sundin / Cabin Fever Media
+Produced by Tuomas Jдppinen & Enter My Silence
+Co-produced by Arttu Sarvanne
+
+### "Coordinate: D1SA5T3R" 2006, Melodic Death Metal
+
+1. Thin Red Line
+2. Spin   
+3. For A Place In The Sun
+4. Silent Treatment
+5. Coordinate: D1SA5T3R
+6. The Paradox of Two
+7. Insignificant
+8. Unspoken Words
+9. 9mms To Deliverance
+
+
+Teemu Hokkanen – drums
+Arto Huttunen – guitars
+Mika Lisitzin – vocals
+Tuomas Jappinen – guitars
+Ville Friman – bass
+
 
 ## Отношения с другими группами
 

@@ -1,9 +1,49 @@
 # Gardenian
 
-Дискография
-"Two Feet Stand" 1997, Melodic Death Metal
-"Soulburner" 1999, Melodic Death Metal
-"Sindustries" 2000, Melodic Death Metal
+
+
+## Дискография
+
+### "Two Feet Stand" 1997, Melodic Death Metal
+
+01. Two Feet Stand
+02. Flipside Of Reality
+03. The Downfall
+04. Awake Of Abuse
+05. Netherworld 
+06. Do Me Now 
+07. Murder
+08. Freedom
+09. Mindless Domination
+10. The Silent Fall
+
+### "Soulburner" 1999, Melodic Death Metal
+
+01. As A True King
+02. Powertool
+03. Deserted
+04. Soulburner 
+05. If Tomorrowґs Gone
+06. Small Electric Space
+07. Chaos In Flesh 
+08. Ecstasy In Life 
+09. Tell The World Iґm Sorry 
+10. Loss 
+11. Black Days 
+
+### "Sindustries" 2000, Melodic Death Metal
+
+01. Self Proclaimed Messiah 
+02. Doom & Gloom 
+03. Long Snap To Zero 
+04. Courageous 
+05. Heartless 
+06. The Suffering 
+07. Scissorfight 
+08. Sonic Death 
+09. Monkey 
+10. Sindustries & Funeral 
+
 
 ## Отношения с другими группами
 

@@ -1,11 +1,89 @@
 # Svarrogh
 
-Дискография
-"Baxas Xebesheth 1883" 2003, Black Metal
-"Lady Vitosha" 2004, Black Metal
-"Kukeri" 2006, Black Metal
-"Balkan Renaissance" 2007, Black Metal
-"Yer Su" 2008, Black Metal
+
+
+## Дискография
+
+### "Baxas Xebesheth 1883" 2003, Black Metal
+
+1. Baxas Xebesheth 01:15 
+2. Welkes Schwarz 06:25 
+3. Breathing Kathaarian Dust 04:54 
+4. Sa Lebedi i Vrani 04:58 
+5. Am Nebelhain... 04:12 
+6. Pro Sledite na Skrezha 07:01
+7. Thracia In Dusk 03:39
+8. Die hamische Pein 05:47 
+9. Potoceta Nemirni ‡T 04:26 
+10. Potoceta Nemirni ‡U 03:41
+11. Potoceta Nemirni ‡V 07:48 
+12. Winterzorn 03:52
+13. Nocturnal Passion 03:10
+14. Tyzhen Dyzhd 07:45
+15. The True Balkan Spirit 04:40
+
+### "Lady Vitosha" 2004, Black Metal
+
+1. Grohnal Pod Edin Dub 07:33 
+2. Siromashkite Izvori 06:19
+3. Ovchari na Bezbogg 03:19  
+4. Nebeto Staro Tiho Pada 03:52
+5. Kum Vihur v Slamenata Gorica 02:03  
+6. Chernomorski, Zaginali Mechti 08:32
+7. Mugla Po Balkana 06:38 
+8. Kruchmata na Murtvija Chorbadzhija 09:31
+
+### "Kukeri" 2006, Black Metal
+
+1. The Pashovi Cliffs 02:46  
+2. Mourning Mill 07:23  
+3. Wind Hunters 04:23  
+4. Kukeri Towards the Sea 01:24  
+5. My Dinasty 08:59  
+6. The Solitude of Stara Planina 10:41  
+7. Rhodopean Winter 07:08  
+8. Kukeri in the Snow 01:26  
+9. Somewhere in the Woods 07:57  
+10. Memories in the Dark of the Ages 07:30  
+11. Sun, I Pray to Thee 08:02  
+12. Kukeri of the Sun 01:28 
+
+### "Balkan Renaissance" 2007, Black Metal
+
+1. Tired Eyes 03:48  
+2. The Gun of Cherry-Tree 03:47  
+3. My Father's Voice 06:15  
+4. The Word Has Been Reborn 03:23  
+5. Balkan Paysages 04:58  
+6. After the Shadows of the Clouds 04:30  
+7. Nostalgia Square 02:35  
+8. Edelweiss 03:20  
+9. A Sea of Black Wine 05:07  
+10. Shepherds Under Birches 03:52  
+11. Sparrow's Marriage 04:16  
+12. The White Apple 04:30  
+13. A Hajduk is Drinking Water from Yantra 03:47  
+14. Ode to Rhodopa 03:31  
+15. Kiss to the Fatherland 04:31  
+16. Yearning 06:09  
+17. A Girl is Braiding Blonde Hair 01:53  
+18. Balkan Comrades (Allerseelen Cover) 03:15 
+
+### "Yer Su" 2008, Black Metal
+
+1. It's getting murk 05:58  
+2. The old mill 09:55  
+3. Holy water, earth 05:47  
+4. Stone 08:26  
+5. Wine of the late winter 05:32  
+6. A quilt of black earth 06:09  
+7. The last pine tree 07:36  
+8. Samodiva 06:04  
+9. I call you from the mountain 04:03  
+10. Water sounds, overcomes 05:10  
+11. Eternal flame 07:23  
+12. A beech in August 06:40 
+
 
 ## Отношения с другими группами
 

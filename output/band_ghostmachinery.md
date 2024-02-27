@@ -1,9 +1,21 @@
 # Ghost Machinery
 
-Дискография
-"Haunting Remains" 2004, Heavy Metal
-"Out for Blood" 2010, Heavy Metal
-"Evil Undertow" 2015, Heavy Metal
+
+
+## Дискография
+
+### "Haunting Remains" 2004, Heavy Metal
+
+
+
+### "Out for Blood" 2010, Heavy Metal
+
+
+
+### "Evil Undertow" 2015, Heavy Metal
+
+
+
 
 ## Отношения с другими группами
 

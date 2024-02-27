@@ -1,12 +1,68 @@
 # L'ame Immortelle
 
-Дискография
-"Lieder die wie Wunden bluten" 1997, Gothic
-"...In Einer Zukunft Aus Tranen Und Stahl" 1999, Gothic
-"Wenn Der Letzte Schatten Fallt" 1999, Gothic
-"Dann habe Ich Umsonst Gelebt" 2001, Gothic
-"Als Die Liebe Starb" 2003, Gothic
-"Gezeiten" 2004, Gothic
+
+
+## Дискография
+
+### "Lieder die wie Wunden bluten" 1997, Gothic
+
+1. Licht t&ouml;tet Schatten  
+2. Figure in the Mirror  
+3. Winter of my Soul  
+4. Into thy Gentle Enbrace  
+5. Life will never be the same again   
+6. Flammenmeer  
+7. Crimson Skies  
+8. The Night is my Shelter  
+9. Lieder die wie Wunden bluten  
+10. These mortal Feelings  
+11. Die Zeit in der die Freundschaft starb  
+12. Brother against Brother  
+13. Life will never be the same again (Klassische Fassung)  
+14. Die tote Kirche (Bonus Track)
+
+### "...In Einer Zukunft Aus Tranen Und Stahl" 1999, Gothic
+
+1. Dusk embraces Loneliness  
+2. Love is Lost  
+3. Innocent Guilt  
+4. Bitterkeit  
+5. Will you ?  
+6. To everlasting Oblivion  
+7. Aus Tr&auml;nen und Stahl  
+8. Place of Refuge  
+9. Beyond your borrowed Dreams  
+10. My Guide  
+11. The immortal Part  
+12. Beyond your borrowed Dreams  
+   (Overloaded Remix by Gerrit Thomas of FUNKERVOGT)
+
+### "Wenn Der Letzte Schatten Fallt" 1999, Gothic
+
+
+
+### "Dann habe Ich Umsonst Gelebt" 2001, Gothic
+
+
+
+### "Als Die Liebe Starb" 2003, Gothic
+
+
+
+### "Gezeiten" 2004, Gothic
+
+01. Es zieht Dich davon
+02. 5 Jahre
+03. Fear
+04. Stumme Schreie
+05. Fallen Angel
+06. Gezeiten
+07. Rain
+08. Masquerade
+09. Kingdom
+10. Calling
+11. Ohne Dich
+
 
 ## Отношения с другими группами
 

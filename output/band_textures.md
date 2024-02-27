@@ -1,12 +1,65 @@
 # Textures
 
-Дискография
-"Polars" 2004, Thrash
-"Drawing Circles" 2006, Thrash
-"Silhouettes" 2008, Thrash
-"Reaching Home (single)" 2011, Progressive
-"Dualism" 2011, Progressive
-"New Horizons (single)" 2015, Progressive
+
+
+## Дискография
+
+### "Polars" 2004, Thrash
+
+1. Swandive 
+2. Ostensibly Impregnable 
+3. Young Man 
+4. Transgression 
+5. The Barrier 
+6. Effluent 
+7. Polars 
+8. Heave
+
+### "Drawing Circles" 2006, Thrash
+
+
+
+### "Silhouettes" 2008, Thrash
+
+
+
+### "Reaching Home (single)" 2011, Progressive
+
+1. Reaching Home  05:16
+2. Singularity  06:50
+3. Reaching Home (Radio Edit) 03:19
+
+
+
+### "Dualism" 2011, Progressive
+
+1. Arms of the Sea 06:33
+2. Black Horses Stampede 03:56
+3. Reaching Home 05:10
+4. Sanguine Draws the Oath 05:51
+5. Consonant Hemispheres 04:20
+6. Burning the Midnight Oil 05:39
+7. Singularity 06:46
+8. Minor Earth, Major Skies 04:40
+9. Stoic Resignation 05:08
+10. Foreclosure 02:56
+11. Sketches from a Motionless Statue 05:21
+
+
+
+Remko Tielemans - Bass 
+Stef Broks - Drums 
+Bart "Bastaerd" Hennephof - Guitars 
+Jochem Jacobs - Guitars, Vocals 
+Uri Dijk - Keyboards 
+Daniel de Jongh - Vocals
+
+
+
+### "New Horizons (single)" 2015, Progressive
+
+1. New Horizons  04:59  
+
 
 ## Отношения с другими группами
 

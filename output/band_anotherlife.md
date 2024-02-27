@@ -1,8 +1,32 @@
 # Another Life
 
-Дискография
-"Another Life (demo)" 2003, Gothic
-"Melancholia (demo)" 2004, Gothic
+
+
+## Дискография
+
+### "Another Life (demo)" 2003, Gothic
+
+1. Concealed by Fright 
+2. Reflections 
+3. Cotton Pines 
+
+
+Andreas Carlsson: All vocals,guitar, bass
+Dan Swano: Drums, keyboards, guitar solo
+
+Mixed by Dan Swano
+
+
+### "Melancholia (demo)" 2004, Gothic
+
+1. Lifetime (intro)
+2. Time
+3. Standing Pale
+
+Andreas Carlsson: All vocals,guitar, bass, drums
+
+Mixed by Andreas Karlsson
+
 
 ## Отношения с другими группами
 

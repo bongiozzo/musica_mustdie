@@ -1,8 +1,59 @@
 # Meduza
 
-Дискография
-"Now And Forever" 2002, Power Metal
-"Upon The World" 2004, Power Metal
+
+
+## Дискография
+
+### "Now And Forever" 2002, Power Metal
+
+1. Shed No Tears
+2. I Will Rise
+3. Now And Forever
+4. Sleep
+5. Touch The Sky
+6. Hounds Of Hell
+7. Twilight Of My Mind
+8. Holy Ground
+9. Curse Of Pharaoh
+10. Land Of Forgotten Dreams
+11. Burn In Hell
+
+All songs written by MEDUZA
+Produced by Stefan Berg
+Engineered by Stefan Berg
+Recorded and mixed at Filadelfia Studio, Alvsbyn
+
+Stefan Berg - Guitars
+Apollo Papathanasio - Vocals
+Jonas Edstrom - Bass
+Ola Gronlund - Drums
+Jan Larsson - Keyboards
+
+### "Upon The World" 2004, Power Metal
+
+1. Divina Comedia
+2. The Vision
+3. Dream On
+4. Upon The World
+5. Face Of A Demon
+6. Can You Tell
+7. Voices
+8. Design For Live
+9. In Death
+
+All songs written by MEDUZA
+Produced by Mike Wead
+Engineered and mixed by Mike Wead
+Recorded and mixed at Solna Sound Studio, Sweden
+
+Stefan Berg - Guitars
+Apollo Papathanasio - Vocals
+Jonas Edstrom - Bass
+Ola Gronlund - Drums
+Joakim Floke - Keyboards
+
+All drums played by Tom Bjorn of MEMORY GARDEN
+
 
 ## Отношения с другими группами
 

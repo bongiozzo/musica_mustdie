@@ -1,7 +1,36 @@
 # Detest
 
-Дискография
-"Dorval" 1994, Death Metal
+Melodic Brutal Death Satanic Metal
+
+## Дискография
+
+### "Dorval" 1994, Death Metal
+
+1. The Assault On Dorval
+2. The Process Of Doom (Preface Of Invasion)
+3. A Black Sea Rose
+4. Inhaled Through The Body
+5. Unavoiadable Encounter
+6. Defiled
+7. Dorval (Revenging Hour)
+8. Bound
+9. (Chapter VI) Legio
+10. Deathbreed (The Description Of Legio)
+11. Gathering Of Darkness
+
+ P.Jorgensen - Vocals
+ O. Christensen - Guitars
+ J. Peterson - Guitars
+ J.Bonnesen - Drums
+ All bass on this album by S.Brygger
+
+All songs written by DETEST 
+Produced by Jan Borsing & DETEST
+Engineered & mixed by Jan Borsing
+Recorded at Borsing Recording Arhus,Denmark, 1993
+
+(p)(c) 1994 NUCLEAR BALAST Records
+
 
 ## Отношения с другими группами
 

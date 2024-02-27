@@ -1,7 +1,35 @@
 # Organic Infest
 
-Дискография
-"Penitence" 1993, Deathcore
+
+
+## Дискография
+
+### "Penitence" 1993, Deathcore
+
+1. Intro
+2. Penitence
+3. Carnal Waste
+4. Suppurative Waste
+5. Execrable Butchery
+6. Dismemberment Malignacy
+7. The Eviscerated
+8. Carnivore Instincts
+9. Horribly Carved
+
+ Chegui - Vocals & Bass
+ Juan - Drums
+ Freddy - Acoustic & Electric Guitars
+
+Keyboards & Other Effects By Alcides Figueroa
+All Music By ORGANIC INFEST
+All Lyrics By Chegui
+Produced By Eduardo Reyes & ORGANIC INFEST
+Engineered By R.Cotto
+Recorded & Mixed At Unicorn Electric Symphony
+Studio, December 1992
+
+(p)&(c) 1993 JL AMERICA
+
 
 ## Отношения с другими группами
 

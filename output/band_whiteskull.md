@@ -1,16 +1,222 @@
 # White Skull
 
-Дискография
-"I Won't Burn Alone" 1995, Heavy Metal
-"Embittered" 1997, Heavy Metal
-"Tales From The North" 1999, Heavy Metal
-"Asgard (EP)" 1999, Heavy Metal
-"Public Glory, Secret Agony" 2000, Power Metal
-"The Dark Ages" 2002, Power Metal
-"The XIII Skull" 2004, Power Metal
-"The Ring Of The Ancients" 2006, Power Metal
-"Forever Fight" 2009, Power Metal
-"Under This Flag" 2012, Power Metal
+
+
+## Дискография
+
+### "I Won't Burn Alone" 1995, Heavy Metal
+
+01. Because I 6:59
+02. Living On The Highway 3:24 
+03. Pray 4:47 
+04. In The Age Of Unreason 5:18 
+05. Mama 4:23 
+06. Someone Call It Love 4:52 
+07. I Won't Burn Alone 4:42 
+08. Nasty 3:27 
+09. Hey Boy 5:02 
+10. White Lady 3:41 
+11. Save The Planet 5:31 
+12. The Train 2:30 
+
+All songs written by Tony 'Mad' Fontт
+Arrangements by White Skull-Diego Ferrarin and Luigi Stefanini
+
+
+
+Federica 'Sister' De Boni - Vocals
+Tony "Mad" Fontт - Rhytm Guitar, Acoustic Guitars & Backing Vocals
+Max Faccio - Lead Guitars
+Fabio Pozzato - Bass Guitars & Backing Vocals
+Alex Mantiero - Drums
+
+Additional background vocals by Mirko Galliazzo and Sergio Vettore
+Keyboards by Luigi Stefanini
+Soprano Sax by Luis Alvarez
+
+
+### "Embittered" 1997, Heavy Metal
+
+01. Embittered 4:29 
+02. Revenge Is Sweet 5:24 
+03. It's My Life 4:34 
+04. Old Friends 7:41 
+05. Love Is 5:25 
+06. Mountain's End 6:22 
+07. What's Up 4:47 
+08. Flesh, Blood And Faith 8:43 
+09. She Won't Wait All The Night 6:13 
+10. I Don't Know About Sex 4:14 
+11. B. T. B. W. North Italy 3:39 
+
+All songs written by T. Fontт
+Except track 7  by L. Perry
+
+Federica "Sister" De Boni - Lead Vocals
+Tony "Mad" Fontт - Rhythm Guitar & Vocals
+Max Faccio - Lead Guitar
+Fabio Pozzato - Bass Guitar & Vocals
+Alex Mantiero - Drums & Vocals
+
+
+### "Tales From The North" 1999, Heavy Metal
+
+01. The Quest (intro) 2:20 
+02. Tales From The North 4:11 
+03. Asgard 6:25 
+04. Gods Of The Sea 7:41 
+05. Viking's Tomb 6:35 
+06. Kriemihild Story 4:11 
+07. The Killing Queen 3:59 
+08. The Terrible Slaughter 6:10 
+09. Horant 3:50 
+10. Fighting And Feasting 5:43 
+11. Here We Are 5:40 
+12. Still Alive (outro) 1:24 
+
+All songs written by F. De Boni - T. Fontт
+Except tracks 1, 12 written by L. Stefanini
+
+
+
+Federica "Sister" De Boni - Vocals
+Tony "Mad" Fontт - Rhythm guitar
+"B.B." Nick Savio - Lead guitar
+Fabio Pozzato - Bass
+Alex Mantiero - Drums
+
+Special guest :  
+CHRIS BOLTENDHAL main vocals on tracks 2, 4 and 11
+
+Keyboards played by Luigi "Tetris" Stefanini
+
+
+### "Asgard (EP)" 1999, Heavy Metal
+
+01. Asgard 6:25 
+02. Hagen The Cruel 3:36 
+03. Tears By The Firelight 3:58 
+04. Adramelch 5:10 
+
+All songs written by Tony "Mad" Fonto except:
+track 3 written by S. Merchant - L. Tarot
+track 4 written by R. Gramegna
+
+
+
+Federica "Sister" De Boni - Vocals
+Tony "Mad" Fonto - Rhythm guitar
+"B.B." Nick Savio - Lead guitar
+Fabio Pozzato - Bass
+Alex Mantiero - Drums
+
+Special guest:
+CHRIS BOLTENDHAL main vocals on "Hagen the cruel"
+
+Keyboards played by Luigi "Tetris" Stefanini
+
+
+### "Public Glory, Secret Agony" 2000, Power Metal
+
+01. Burn Rome, burn! (intro) 2' 01" 
+02. High treason 5' 58" 
+03. The Roman empire 5' 14" 
+04. Greedy Rome 5' 42"
+05. In Caesar we trust 7' 39"
+06. Valley of the Sun 4' 54"
+07. Anubis the Jackal 5' 35"
+08. Mangler 5' 00"
+09. Cleopathra 3' 55"
+10. The field of peace 4' 25"
+11. Time for glory 6' 37" 
+
+### "The Dark Ages" 2002, Power Metal
+
+01. Penitenziagite (intro) 1' 34" 
+02. The Dark Age 4' 46" 
+03. Grand Inquisitor 4' 25" 
+04. Maid Of Orleans 4' 27"
+05. New Crusade 5' 07"
+06. The Edict 5' 09"
+07. Voice from the Heaven 4' 57" 
+08. Devil's Woman 5' 32"
+09. Torture 5' 16"
+10. A New Handbook 4' 19"
+11. Sentence Of Death 4' 33"
+12. Theme For The Innocence 2' 37"
+
+ 
+
+### "The XIII Skull" 2004, Power Metal
+
+Space Invaders (Intro) 
+The Union 
+Top Secret 
+Last Navigator 
+The Skulls 
+Missing Link 
+Creature of the Abyss 
+Power of Blood 
+Perfect Design 
+The Observers 
+Mothman Prophecies 
+I Wanna Fly Away
+
+Gustavo Adrian Gabarro (вокал) 
+Fabio Manrioi (бас) 
+Tony Fonto (гитара) 
+Danio Bar (гитара) 
+Alex Mantiero (барабаны)
+
+### "The Ring Of The Ancients" 2006, Power Metal
+
+01. Ninth Night
+02. Guardians
+03. Head Hunters
+04. The Ring of the Ancients
+05. Half Moon Path
+06. From The Mist
+07. Ogam (Mystic writings on the Stone)
+08. After the Battle (...Bottle)
+09. King with the Silver Hand
+10. Valhalla
+11. Marching to Alesia
+12. Tuatha De Danaan
+Bonus track: 
+13. Ninth Night (video clip)
+
+### "Forever Fight" 2009, Power Metal
+
+1. We Are Coming 01:30 
+2. Escape 05:24 
+3. Fell My Rage 05:55 
+4. Spy 03:50 
+5. Attle And Bleda 06:27 
+6. Forever Fight 03:48 
+7. Boudicca's Speech 04:12 
+8. A Mother's Revenge 05:50 
+9. Heavy Metal Axes 03:52 
+10. Etzel 04:11 
+11. Visions 04:23 
+12. Beer, Cheers (Bonus Track) 04:01
+
+
+### "Under This Flag" 2012, Power Metal
+
+01. Hunted Down 04:29 
+02. Bottled Mind 03:08 
+03. Red Devil 04:57 
+04. Lost Alone 05:17 
+05. Under This Flag 04:27 
+06. A.O.D. 05:06 
+07. Prisoners Of War 05:14 
+08. War After War 05:01 
+09. Nightmares 06:32 
+10. Freedom's Not Here 03:49 
+11. You Choose 03:12 
+12. Redemption 05:07
+
+
 
 ## Отношения с другими группами
 

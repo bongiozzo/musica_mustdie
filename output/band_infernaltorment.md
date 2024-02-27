@@ -1,7 +1,36 @@
 # Infernal Torment
 
-Дискография
-"Man's True Nature" 1996, Death Metal
+
+
+## Дискография
+
+### "Man's True Nature" 1996, Death Metal
+
+1. Taking Advantage Of A Virgin
+2. Motherfuck
+3. Uncontrollable
+4. Perverted
+5. Instincts
+6. The Undertaker
+7. Baby-Battering-Bill
+8. No Longer A Virgin
+9. On The Hunt For Flesh Flesh
+10.When Daddy Comes Home
+
+All songs written by INFERNAL
+TORMENT.
+Produced and mixed by Jan Borsing and
+INFERNAL TORMENT.
+Recorded at Borsing Recording
+
+Martin Boris - Drums
+Jakob Hansen - Guitar
+Scott Iensen - Vocals
+Steffan Larsen - Bass
+Paul Winther - Lead Guitar
+
+(p)(c) 1996 PROGRESS Records
+
 
 ## Отношения с другими группами
 

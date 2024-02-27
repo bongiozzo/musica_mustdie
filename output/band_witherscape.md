@@ -1,8 +1,39 @@
 # Witherscape
 
-Дискография
-"The Inheritance" 2013, Death Metal
-"The Northern Sanctuary" 2016, Progressive
+
+
+## Дискография
+
+### "The Inheritance" 2013, Death Metal
+
+1. Mother of the Soul	 
+2. Astrid Falls	 
+3. Dead for a Day	 
+4. Dying for the Sun 
+5. To the Calling of Blood and Dreams	 
+6. The Math of the Myth
+7. Crawling from Validity	 
+8. The Wedlock Observation	 
+9. The Inheritance 
+
+### "The Northern Sanctuary" 2016, Progressive
+
+1. Wake Of Infinity (04:38)
+2. In The Eyes Of Idols (03:58)
+3. Rapture Ballet (04:25)
+4. The Examiner (05:03)
+5. Marionette (04:37)
+6. Divinity (03:02)
+7. God Of Ruin (05:32)
+8. The Northern Sanctuary (13:44)
+9. Vila I Frid (01:54)
+
+The limited edition Mediabook version includes extended artwork and a bonus disc with a full dynamic mix of the entire album as well as an additional ROM part with instrumental versions of all the songs.
+
+Line-Up:
+Dan Swano - Vocals, Keyboards and Drums 
+Ragnar Widerberg - Guitars and Bass
+
 
 ## Отношения с другими группами
 

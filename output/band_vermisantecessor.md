@@ -1,8 +1,27 @@
 # Vermis Antecessor
 
-Дискография
-"The Origin of Brutality [EP]" 2009, Death Metal
-"The Subliminal Way of Flesh" 2011, Death Metal
+
+
+## Дискография
+
+### "The Origin of Brutality [EP]" 2009, Death Metal
+
+1. Intro	 
+2. Caught Beneath The Agony of Defeat	 
+3. The Origin Of Brutality	 
+4. Repugnant Ecstasy
+
+### "The Subliminal Way of Flesh" 2011, Death Metal
+
+1. The Subliminal Way of Flesh	 
+2. Waiting for Your Suffering	 
+3. When Death Calls	 
+4. Parasitaemia Prolifica	 
+5. Redefine the Depravation	 
+6. Feeling of Decay	 
+7. Repugnant Ecstasy	 
+8. ...And the Redemption
+
 
 ## Отношения с другими группами
 

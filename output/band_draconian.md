@@ -1,7 +1,34 @@
 # Draconian
 
-Дискография
-"To Outlive The War" 2001, Heavy Metal
+
+
+## Дискография
+
+### "To Outlive The War" 2001, Heavy Metal
+
+1.- Intro - To Outlive the War (Inst.)
+2.- Dracon Metal 
+3.- Sirenґs Song 
+4.- Donґt Give Up 
+5.- Words & Memories 
+6.- Out of Control 
+7.- Indecision 
+8.- The Eyes of the Rain
+9.- Iґll Never Leave You 
+10.- Sequences (Inst.) 
+11.- Forever Iґll be Free
+12.- The Mandate of Heaven
+
+
+Guillermo D.Prados (Bass & Lead Vocals,Backing Vocals)
+Francisco J.Ruiz (Lead & Ryhthm Guitars,Backing Vocals)
+Antonio Diaz (Rhythm & Lead Guitars,BackingVocals)
+Jose Antionio Ferrer (Drums)
+Antonio Cano (Keyboards)
+
+Produced by Sergio Cascales & Draconian
+
+
 
 ## Отношения с другими группами
 

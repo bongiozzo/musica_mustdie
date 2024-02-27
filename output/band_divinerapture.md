@@ -1,8 +1,49 @@
 # Divine Rapture
 
-Дискография
-"Divine Rapture" 2000, Death Metal
-"The Burning Passion" 2003, Death Metal
+American death metal
+
+## Дискография
+
+### "Divine Rapture" 2000, Death Metal
+
+     Part1: Original versions
+Desirous Nonsubsistence 
+Purging Thy Torrents 
+Black Moon Harvest 
+Unyielding Presence 
+The Welt Of Enlightenment
+Glimmer From Beneath 
+     Part2: Raw Primal Version
+Black Moon Harvest 
+Desirous Nonsubsistence 
+Purging Thy Torrents 
+Unyielding Presence 
+Glimmer From Beneath 
+
+
+
+### "The Burning Passion" 2003, Death Metal
+
+1. The Kindling
+2. Your Time Has Come
+3. Severed
+4. My Demon, Your Dove
+5. The Deifying, The Sorrow, The Awakwning
+6. Funeral Mist
+7. Affliction Of Faith
+8. Black Moon Harvest
+9. Spirit Storm Serenade
+10. No Future, No Past
+11. The Smothering
+
+
+Mike Hrubovcak : Vocals, 
+J.J. Hrubovcak : Lead Guitars, Guitar Synth, Keys, Drums
+Babak Davodian : Lead Guitars, Keys/Synth
+Ryan Moll : Bass
+
+
+
 
 ## Отношения с другими группами
 

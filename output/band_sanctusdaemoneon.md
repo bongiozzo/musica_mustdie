@@ -1,8 +1,33 @@
 # Sanctus Daemoneon
 
-Дискография
-"Grey Metropolis" 2008, Black Metal
-"the unaVOIDable" 2010, Black Metal
+
+
+## Дискография
+
+### "Grey Metropolis" 2008, Black Metal
+
+1. Fate Arising 02:29  
+2. Underneath the Skin 03:46  
+3. Bleak Clarity 03:09  
+4. Facing the Architect 04:41  
+5. The All-Seeing Enigma 03:38  
+6. Little Black Tongues 04:42  
+7. Grey Metropolis 03:32  
+8. Puzzled 05:05 
+
+### "the unaVOIDable" 2010, Black Metal
+
+1. I 05:52 
+2. II 03:30
+3. III 06:41
+4. IV 04:33
+5. V 04:38
+6. VI 04:57 
+7. VII 04:07 
+8. VIII 04:20 
+9. IX 03:40  
+10. X 05:03 
+
 
 ## Отношения с другими группами
 

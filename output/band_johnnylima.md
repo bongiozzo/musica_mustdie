@@ -1,9 +1,24 @@
 # Johnny Lima
 
-Дискография
-"Johnny Lima" 1996, Metal
-"Shine On" 1999, Metal
-"Made In California" 2003, Metal
+AOR
+
+## Дискография
+
+### "Johnny Lima" 1996, Metal
+
+
+
+### "Shine On" 1999, Metal
+
+
+
+### "Made In California" 2003, Metal
+
+Johnny Lima – Lead & Backing Vocals, Electric & Acoustic Guitars, Keyboards, Bass Guitar, Drum Programing, Lead Guitar on "Best Night Of My Life", "We've Got Tonight", "Something About You", and "Where Are You Now"
+Craig Takeshita – Lead Guitar 
+Jason Granucci - Lead Guitar on "Another Girl"
+Vince Sigala – Lead Guitar on “Welcome To My Paradise”
+
 
 ## Отношения с другими группами
 

@@ -1,14 +1,69 @@
 # Otep
 
-Дискография
-"Sevas Tra" 2002, Nu Metal
-"House Of Secrets" 2004, Nu Metal
-"The Ascension" 2007, Nu Metal
-"Smash The Control Machine" 2009, Nu Metal
-"Atavist" 2011, Nu Metal
-"Sounds Like Armageddon (Live)" 2012, Nu Metal
-"Hydra" 2013, Nu Metal
-"Generation Doom" 2016, Nu Metal
+Nu metal with female vocals
+
+## Дискография
+
+### "Sevas Tra" 2002, Nu Metal
+
+01. Tortured
+02. Blood Pigs
+03. T.R.I.C.
+04. My Confession
+05. Sacrilege
+06. Battle Ready
+07. Emtee
+08. Possession
+09. Thots
+10. Fillthee
+11. Menocide
+12. Jonestown Tea
+13. Hidden track
+
+### "House Of Secrets" 2004, Nu Metal
+
+
+
+### "The Ascension" 2007, Nu Metal
+
+
+
+### "Smash The Control Machine" 2009, Nu Metal
+
+
+
+### "Atavist" 2011, Nu Metal
+
+
+
+### "Sounds Like Armageddon (Live)" 2012, Nu Metal
+
+
+
+### "Hydra" 2013, Nu Metal
+
+
+
+### "Generation Doom" 2016, Nu Metal
+
+01. Zero 03:12
+02. Feeding Frenzy 03:56
+03. Lords Of War 05:06
+04. Royals 03:27
+05. In Cold Blood 03:59
+06. Down 02:54
+07. God Is A Gun 02:47
+08. Equal Rights, Equal Lefts 03:30
+09. No Color 05:42
+10. Lie 03:34
+11. Generation Doom 04:27
+12. On The Shore 04:17
+13. Lie (Acoustic Version - Bonus Track) 03:27
+14. Breathing In The Fire (Spoken Word Poem - Bonus Track) 02:21
+15. Crawling Up (Spoken Word Poem - Deluxe Bonus Track) 02:49
+16. More Fire (Deluxe Bonus Track) 03:28
+17. On The Shore (Remix - Bonus Track) 10:17
+
 
 ## Отношения с другими группами
 

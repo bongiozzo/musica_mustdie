@@ -1,6 +1,9 @@
 # Anal Blast
 
-Дискография
+porno grind/death from Minnesota
+
+## Дискография
+
 
 ## Отношения с другими группами
 

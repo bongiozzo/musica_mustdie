@@ -1,8 +1,52 @@
 # Love Is Colder Than Death
 
-Дискография
-"Oxeia" 1994, Gothic
-"Spellbound" 1996, Gothic
+
+
+## Дискография
+
+### "Oxeia" 1994, Gothic
+
+1. Oxeia
+2. Birds
+3. Orlando
+4. To Be At The Point Of Death
+5. In Silence And Tears
+6. Waves
+7. Kaba Gajda
+8. Piu Bella Donn'al Mondo
+9. Occhi Miei
+10. The City In The Sea
+11. The Surface
+12. Second Life
+13. November Mourning
+14. Mind Station
+
+ Susann Heinrich - Voices
+ Maik Hartung - Guitars, Keyboards
+ Andy Porter - Drums , Keyboards
+
+All Songs Written By LOVE IS COLDER THAN DEATH
+Recorded & Mixed By Bobby Bachinger At Ton Studio
+
+(p)&(c) 1994 HYPERIUM Records
+
+### "Spellbound" 1996, Gothic
+
+1. Spellbound (3.05)
+2. Non Lievi Alchun (1.45)
+3. De Mysteriis Egyptorum (3.24)
+4. In Your Presence (2.23)
+
+All songs written by LOVE IS COLDER
+THAN DEATH.
+Recorded & mixed by Bobby Bachinger at Sunhouse Studio.
+
+Susann Heinrich - Voices
+Maik Hartung - Guitars, Keyboards
+Andy Porter - Drums, Keyboards
+
+(p)(c) 1996 HYPERIUM Records
+
 
 ## Отношения с другими группами
 

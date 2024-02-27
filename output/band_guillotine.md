@@ -1,8 +1,17 @@
 # Guillotine
 
-Дискография
-"Under The Guillotine" 1997, Thrash
-"Blood Money" 2008, Thrash
+
+
+## Дискография
+
+### "Under The Guillotine" 1997, Thrash
+
+
+
+### "Blood Money" 2008, Thrash
+
+
+
 
 ## Отношения с другими группами
 

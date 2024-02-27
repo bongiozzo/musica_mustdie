@@ -1,11 +1,73 @@
 # Tulus
 
-Дискография
-"Pure Black Energy" 1996, Black Metal
-"Mysterion" 1998, Black Metal
-"Evil 1999" 1999, Black Metal
-"Biography obscene" 2007, Black Metal
-"Olm og Bitter" 2012, Black Metal
+
+
+## Дискография
+
+### "Pure Black Energy" 1996, Black Metal
+
+1. Grav 01:40
+2. Samlerens Kammer 01:59
+3. Tjern 03:56
+4. Ulvemelk og Trollsmшr 03:17 
+5. Sostre av Natten 04:27 
+6. Inskripsjon etter Jordferd 02:53
+7. Kaldt 03:41 
+8. Varg 03:00
+9. Midtvintermеne 03:06
+10. De Dшdes Attest 02:54 
+
+### "Mysterion" 1998, Black Metal
+
+1. Dommes Fugl 03:15
+2. Skuggeskip 03:25 
+3. Gravstenskugge 05:28
+4. Mysterion 03:43
+5. Vettevals 02:58  
+6. Dшderhulder 04:25
+7. Skriket fra juvet 04:59
+8. Evighetens port 03:23
+9. Mare 04:43 
+
+### "Evil 1999" 1999, Black Metal
+
+1. Menneskefar 02:59
+2. Tarantulus 04:44  
+3. Draug 03:01
+4. Cyprianus 03:23
+5. Dokkemaker 03:02
+6. Salme 05:55
+7. Blodstrup 02:14
+8. Sjel 03:17
+9. Dеrskap til Visdom 02:37
+10. Kviteheim 03:46 
+
+### "Biography obscene" 2007, Black Metal
+
+1. Prelude 02:50
+2. Natal Day 04:20
+3. Stories Untold 04:58
+4. Victim 04:15
+5. Chamber's Disgust 02:40
+6. Allow no Light 03:23
+7. Morbid Curiousity 03:02
+8. Demise 03:30 
+9. Biography Obscene 03:19
+10. Torches Quenched 02:38 
+
+### "Olm og Bitter" 2012, Black Metal
+
+01. Fornemmelse 02:30 
+02. Frossen Skog 03:01 
+03. Bitt 03:08 
+04. Draugtatt 02:39 
+05. Sorg 02:46 
+06. Nidhevn 01:46 
+07. Angst 03:04 
+08. Tunge Draper fra et Morkt Hjerte 03:19 
+09. Villsti 03:44 
+
+
 
 ## Отношения с другими группами
 

@@ -1,15 +1,194 @@
 # Nevermore
 
-Дискография
-"Nevermore" 1995, Thrash
-"In Memory" 1996, Thrash
-"The Politics of Ecstasy" 1996, Thrash
-"Dreaming Neon Black" 1999, Thrash
-"Dead Heart in a Dead World" 2000, Thrash
-"Enemies of Reality" 2003, Thrash
-"This Godless Endeavor" 2005, Thrash
-"The Year of the Voyager (live)" 2008, Thrash
-"The Obsidian Conspiracy " 2010, Thrash
+
+
+## Дискография
+
+### "Nevermore" 1995, Thrash
+
+1. What Tomorrow Knows
+2. C.B.F.
+3. The Sanity Assassin
+4. Garden Of Gray
+5. Sea Of Possibilities
+6. The Hurting Words
+7. Timothy Leary
+8. Godmoney
+
+ Warrel Dane - Vocals
+ Jeff Loomis - Guitars
+ Jim Sheppard - Bass
+ Van Williams - Drums
+
+All Songs Written By NEVERMORE
+Produced By Neil Kernon
+Recorded & Mixed By Neil Kernon At Robert Lang Studios, Seattle
+
+(p)&(c) 1995 CENTURY MEDIA Records
+
+### "In Memory" 1996, Thrash
+
+1. Optimist Or Pessimist
+2. Matricide
+3. In Memory
+4. Silent Hedges / Double Dare З
+5. The Sorrowed Man
+
+Warrel Dane - Vocals
+Jeff Loomis - Guitars
+Pat O'Brien - Guitars
+Jim Sheppard - Bass
+Van Williams - Drums
+
+All Songs Written By NEVERMORE, except З written by P.Murphy / BAUHAUS.
+Produced By Neil Kernon.
+Recorded & Mixed By Neil Kernon At Village Productions,Tonillo, TX
+
+(p)&(c) 1996 CENTURY MEDIA Records
+
+### "The Politics of Ecstasy" 1996, Thrash
+
+1.  Seven Tongues Of God
+2.  This Sacrament
+3.  Next In Line
+4.  Passenger
+5.  The Politics Of Ecstasy
+6.  Lost
+7.  The Tienanmen Man
+8.  Precognition
+9.  42147
+10.The Learning
+
+Warrel Dane - Vocals
+Jeff Loomis - Guitars
+Pat O'Brien - Guitars
+Jim Sheppard - Bass
+Van Williams - Drums
+
+All Songs Written By NEVERMORE.
+Produced By Neil Kernon.
+Recorded & Mixed By Neil Kernon At Village Productions,Tonillo, TX
+
+(p)&(c) 1996 MAGIC ARTS / CENTURY MEDIA Records
+
+### "Dreaming Neon Black" 1999, Thrash
+
+01. Ophidian
+02. Beyond Within
+03. The Death of Passion
+04. I am the Dog
+05. Dreaming Neon Black
+06. Deconstruction
+07. The Fault of the Flesh
+08. The Lotus Eaters
+09. Poison Godmachine
+10. All Play Dead
+11. Cenotaph
+12. No More Will
+13. Forever
+
+Line-Up: 
+Vocals: Warrel Dane
+Guitars: Jeff loomis
+Bass: Jim Sheppard
+Drums: Van Williams
+Guitars:Tim Calvert 
+ 
+Produced, Recorded and Mixed by Neil Kernon
+All songs by NEVERMORE
+Backing vocals on 5 by C. Rhoades
+Art by Travis Smith
+
+
+### "Dead Heart in a Dead World" 2000, Thrash
+
+1 Narcosynthesis
+2 We disintegrate
+3 Inside four walls
+4 Evolution 169
+5 The river dragon has come
+6 The heart Collector
+7 Engines of hate
+8 The Sound of silence
+9 Insignificant
+10 Believe in nothing
+11 Dead heart in a dead world
+12 Next in line (Video)
+13 What tomorrow knows (Video)
+
+### "Enemies of Reality" 2003, Thrash
+
+
+
+### "This Godless Endeavor" 2005, Thrash
+
+1. Born 05:07  
+2. The Final Product 04:24  
+3. Acid Words 05:43  
+4. Bittersweet Feast 05:03  
+5. Sentient 6 07:00  
+6. Medicated Nation 04:04  
+7. The Holocaust of Thought 01:29  
+8. Sell My Heart For Stones 05:20  
+9. Psalm of Lydia 04:18  
+10. A Future Uncertain 06:10  
+11. This Godless Endeavor 08:55
+
+### "The Year of the Voyager (live)" 2008, Thrash
+
+Disc 1 
+1. Final Product 05:09  
+2. My Acid Words 06:04  
+3. What Tomorrow Knows/Garden of Grey 07:23
+4. Next in Line 05:21  
+5. Enemies of Reality 04:52
+6. I, Voyager 06:14 
+7. The Politics of Ecstasy 07:36  
+8. The River Dragon Has Come 05:16 
+9. I Am the Dog 04:46
+10. Dreaming Neon Black 06:32  
+
+
+
+Disc 2 
+1. Matricide 05:44
+2. Dead Heart in a Dead World 04:41 
+3. Inside Four Walls 05:20 
+4. The Learning 09:50 
+5. Sentient 6 07:01
+6. Narcosynthesis 06:02
+7. The Heart Collector 06:53
+8. Born 05:58 
+9. This Godless Endeavour 09:25
+
+
+### "The Obsidian Conspiracy " 2010, Thrash
+
+1. The Termination Proclamation 03:12  
+2. Your Poison Throne 03:54  
+3. Moonrise (Through Mirrors of Death) 04:03
+4. And the Maiden Spoke 05:00  
+5. Emptiness Unobstructed 04:39
+6. The Blue Marble and the New Soul 04:41
+7. Without Morals 04:19  
+8. The Day You Built the Wall 04:23 
+9. She Comes in Colors 05:34  
+10. The Obsidian Conspiracy 05:16  
+11. Crystal Ship (The Doors cover) 02:46 
+12. Temptation (The Tea Party cover) 03:26 
+
+
+
+The two cover songs are bonus tracks on the digipak version of the album.
+
+In addition to the album's standard edition, a double disc version will be made
+available featuring two cover versions - "The Crystal Ship" (The Doors) and
+"Temptation" (The Tea Party) - and a bonus "Play the Guitar Like Jeff Loomis"
+disc containing "Your Poison Throne" and "The Obsidian Conspiracy" play-along
+videos and guitar tabs for both songs.
+
+Cover art created by Travis Smith (Opeth, Katatonia). 
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,37 @@
 # Vertigo
 
-Дискография
-"Vertigo" 2003, Metal
+Joseph Williams (ex-Toto)
+
+## Дискография
+
+### "Vertigo" 2003, Metal
+
+1 - Not Enough Hours In The Night 
+
+2 - Straight To Your Heart 
+
+3 - More Than Enough 
+
+4 - Never Let You Go 
+
+5 - I Don't Want To Go 
+
+6 - I Want To Be Wanted 
+
+7 - China Sky 
+
+8 - Love Is Blind 
+
+9 - When It Doesn't Matter 
+
+10 - Sarah 
+
+11 - Vertigo
+
+12 - More Than Enough (acoustic version)
+
+12 - Never Let you Go (remix Japon)
+
 
 ## Отношения с другими группами
 

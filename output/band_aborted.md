@@ -1,20 +1,216 @@
 # Aborted
 
-Дискография
-"The Purity of Perversion" 1999, Grindcore
-"The Purity of Perversion (re-release)" 2000, Grindcore
-"Engineering the Dead" 2001, Grindcore
-"The Saw and the Carnage Done" 2003, Grindcore
-"The Haematobic" 2004, Grindcore
-"The Archaic Abattoir" 2005, Death Metal
-"The Auricular Chronicles" 2006, Death Metal
-"Slaughter & Apparatus: A Methodical Overture" 2007, Death Metal
-"Strychnine.213" 2008, Deathcore
-"Global Flatline [single]" 2011, Deathcore
-"Global Flatline" 2012, Deathcore
-"The Necrotic Manifesto" 2014, Deathcore
-"Termination Redux (EP)" 2016, Deathcore
-"Retrogore" 2016, Deathcore
+Gore Death Metal from Belgium
+
+## Дискография
+
+### "The Purity of Perversion" 1999, Grindcore
+
+1. intro
+2. act of supremacy
+3. the lament configuration
+4. the sanctification of fornication
+5. organic puzzle
+6. necro eroticism
+7. highway 1-35
+8. gurgling rotten feces
+9. wrenched carnal ornaments
+
+
+Sven: vox
+Niek: guitars
+Christophe: guitars
+Koen: bass
+Frank: drums
+
+### "The Purity of Perversion (re-release)" 2000, Grindcore
+
+1. intro
+2. act of supremacy
+3. the lament configuration
+4. the sanctification of fornication
+5. organic puzzle
+6. necro eroticism
+7. highway 1-35
+8. gurgling rotten feces
+9. wrenched carnal ornaments
+
+
+Sven: vox
+Niek: guitars
+Christophe: guitars
+Koen: bass
+Frank: drums
+
+### "Engineering the Dead" 2001, Grindcore
+
+1. the holocaust incarnate
+2. nailed through her cunt
+3. to roast & grind
+4. engineering the dead
+5. eructations of carnal artistry
+6. sphinctral enthrallment
+7. skullfuck crescendo
+8. exhuming the infested (necro-eroticism pt 2)
+
+
+Sven: vox
+Niek: guitars
+Thijs: guitars
+Koen: bass
+Frank: drums
+
+### "The Saw and the Carnage Done" 2003, Grindcore
+
+1. Meticulous Invagination
+2. Parasitic Flesh resection
+3. The saw & the carnage done
+4. Ornaments of derision
+5. Sanguine Verses... (of extirpation)
+6. Charted carnal effigy
+7. Clinical Colostomy
+8. Medical Deviance
+9. Sea of cartilage
+10. Nemesis
+11. Carnal Forge (carcass cover)
+
+
+Sven: vox
+Thijs: guitars
+Bart: guitars
+Fre: bass
+Frank: drums
+
+### "The Haematobic" 2004, Grindcore
+
+1. Gestated Rabidity
+2. Drowned (ENTOMBED cover) 
+3. Voracious Haemaglobinic Syndrome
+4. The Sanctification Of Refornication 
+5. Parasitic Flesh Resection (live) 
+6. The Holocaust Incarnate (live) 
+7. Meticulous Invagination (videoclip) 
+8. The Saw & The Carnage Done (videoclip) 
+9. Parasitic Flesh Resection (live video) 
+10. The Holocaust Incarnate (live video) 
+11. Eructations Of Carnal Artistry (live video)
+
+### "The Archaic Abattoir" 2005, Death Metal
+
+1. Dead Wreckoning
+2. Blood Fixing The Bled
+3. Gestated Rabidity
+4. Hecatomb
+5. The Gangrenous Epitaph
+6. The Inertia
+7. A Cold Logistic Slaughter
+8. Voracious Haemoglobinic Syndrome
+9. Threading On Vermillion Deception
+10. Descend To Extirpation
+
+### "The Auricular Chronicles" 2006, Death Metal
+
+Dead Wreckoning 
+Meticulous Invagination 
+Gestated Rabidity 
+The Holocaust Incarnate 
+The Inertia 
+Interlude 
+The Saw & The Carnage Done 
+Sanguine Verses 
+Threading The Prelude 
+The Gangrenous Epitaph 
+Hecatomb 
+The Sanctification Of Fornication 
+Charted Carnal Effigy 
+A Cold Logistic Slaughter
+
+### "Slaughter & Apparatus: A Methodical Overture" 2007, Death Metal
+
+1. The Chondrin Enigma 04:20  
+2. A Methodical Overture 03:25  
+3. Avenious 04:41  
+4. The Spaying Sйance 04:25  
+5. And Carnage Basked In It's Ebullience 03:10  
+6. The Foul Nucleus Of Resurrection 04:13  
+7. Archetype 03:12  
+8. Ingenuity In Genocide 03:42  
+9. Odious Emanation 03:37  
+10. Prolific Murder Contrivance 03:07  
+11. Underneath Rorulent Soil 04:51 
+
+
+
+The album features guest apperances by Jeff Walker (Carcass), Jacob Bredahl &
+Henrik Jacobsen (Hatesphere).
+Drums recorded by David Haley (Psycroptic). 
+
+
+Sven de Caluwe - Vocals 
+Seb Purulator - Guitar 
+Matty Dupont - Guitar 
+Peter Goemaere - Bass
+
+### "Strychnine.213" 2008, Deathcore
+
+
+
+### "Global Flatline [single]" 2011, Deathcore
+
+1. Global Flatline
+
+
+### "Global Flatline" 2012, Deathcore
+
+1. Omega Mortis 00:59
+2. Global Flatline 03:12
+3. The Origin of Disease 03:04
+4. Coronary Reconstruction 04:28
+5. Fecal Forgery 02:45
+6. Of Scabs and Boils 02:53
+7. Vermicular, Obscene, Obese 02:51
+8. Expurgation Euphoria 03:43
+9. From a Tepid Whiff 03:04
+10. The Kallinger Theory 03:43
+11. Our Father, Who Art of Feces 02:43
+12. Grime 03:48
+13. Endstille 06:27
+
+
+### "The Necrotic Manifesto" 2014, Deathcore
+
+
+
+### "Termination Redux (EP)" 2016, Deathcore
+
+
+
+### "Retrogore" 2016, Deathcore
+
+Disc 1 - Retrogore  
+1. Dellamorte Dellamore  00:51    
+2. Retrogore  04:17    
+3. Cadaverous Banquet  04:12   
+4. Whoremageddon  03:29    
+5. Termination Redux (Alternate version)  03:27    
+6. Bit by Bit  04:03   
+7. Divine Impediment  04:18 
+8. Coven of Ignorance  03:42 
+9. The Mephitic Conundrum  03:18    
+10. Forged for Decrepitude  02:41    
+11. From Beyond (The Grave)  04:22    
+12. In Avernus  04:36   
+13. Slasher Hysteria  03:27   
+14. Les Miserables  03:57    
+  
+Disc 2 - Termination Redux  
+1. Liberate Me Ex Inferis  00:31 
+2. Termination Redux  03:27  
+3. Vestal Disfigurement upon the Sacred Chantry  03:45  
+4. Bound In Acrimony  02:12   
+5. The Holocaust Re-Incarnate  05:22  
+
+
 
 ## Отношения с другими группами
 

@@ -1,12 +1,127 @@
 # Therapy?
 
-Дискография
-"Nurse" 1993, Alternative
-"Troublegum" 1994, Alternative
-"Infernal Love" 1995, Alternative
-"Shameless" 2001, Alternative
-"Never Apologise Never Explain" 2004, Alternative
-"One Cure Fits All" 2006, Alternative
+
+
+## Дискография
+
+### "Nurse" 1993, Alternative
+
+1. Nausea
+2. Teethgrinder
+3. Disgracelands
+4. Accelerator
+5. Neck Freack
+6. Perversonality
+7. Gone
+8. Zipless
+9. Deep Sleep
+10. Hypermania
+
+ Fyfe - Drums, Vocals, Samples
+ Andy - Guitars
+ Michael - Bass
+
+Produced & Mixed By Harvey Birrell
+Recorded With Nick Atkins At Loco, Wales
+Mixed At Gooseberry Studios
+
+(p)&(c) 1993 A&M Records Ltd, London
+
+### "Troublegum" 1994, Alternative
+
+1. Knives
+2. Screamger
+3. Hellbelly
+4. Stop It You're Killing Me
+5. Nowhere
+6. Die Laughing
+7. Unbeliever
+8. Trigger Inside
+9. Lunacy Both
+10. Isolation
+11. Turn
+12. Femtex
+13. Unrequited
+14. Brainsaw
+
+ Andrew James Cairns - Vocals, Guitars
+ Fyfe Ewing - Guitars
+ Michael McKeegan - Bass
+
+Produced, Engineered & Mixed By Chris Sheldon
+Recorded At Chipping Norton Studios, Oxford, Rak Studios & The Church Studios, London
+
+(p)&(c) 1994 A&M Records Ltd., London
+
+### "Infernal Love" 1995, Alternative
+
+1. Epilepsy
+2. Stories
+3. A Moment Of Clarity
+4. Jude The Obscene
+5. Misery
+6. Bad Mother
+7. Me Is You
+8. Loose
+9. Diane
+10.30 Seconds
+
+ Andrew James Cairns - Vocals, Guitars
+ Fyfe Ewing - Guitars
+ Michael McKeegan - Bass
+
+All Songs By THERAPY?
+Produced, Engineered & Mixed By Al Clay
+
+(p)&(c) 1995 A&M Records Ltd., London
+
+### "Shameless" 2001, Alternative
+
+Gimme Back My Brain
+Dance
+This One's For You
+I am The Money
+Wicked Man
+Theme For Delorian
+Joey
+Endless Psychology
+Alrite
+Body Back Girl
+Tango Romeo
+Stalk & Slash
+
+
+### "Never Apologise Never Explain" 2004, Alternative
+
+Rise Up (Make Yourself Well) 
+Die Like A Mother Fucker 
+Perish The Thought 
+Be Here Monsters 
+So Called Life 
+Panic 
+Polar Bear 
+Rock You Monkeys 
+Dead 
+Long Distance 
+This Ship Is Sinking 
+Save The Sermon 
+Last One To Heaven's A Loser
+
+### "One Cure Fits All" 2006, Alternative
+
+Sprung 
+Deluded Son
+Into The Light 
+Lose It All 
+Dopamine Seratonin Adrenaline 
+Unconsoled 
+Our White Noise 
+Private Nobody 
+Rain Hits Concrete 
+Fear Of God 
+Heart Beat Hits 
+Walk Through Darkness
+
 
 ## Отношения с другими группами
 

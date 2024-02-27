@@ -1,7 +1,31 @@
 # Murder Delirium
 
-Дискография
-"T.B.O.I.A.H.M. (The birth of intellect and human malice)" 2002, Death Metal
+
+
+## Дискография
+
+### "T.B.O.I.A.H.M. (The birth of intellect and human malice)" 2002, Death Metal
+
+1. The Birth Of Intellect And Human Race
+2. Lethal
+3. Black Cloud's Dance
+4. Last War
+5. Murder Delirium
+6. Prisoner Of The Northern Jail
+7. Prophecy
+8. Infidel Kingdom
+9. Stigmata - Therion Variations
+
+
+Франк – вокал
+Илья Шутов – гитара
+Виктор Силко – гитара
+Петр Горинов – бас
+Светлана Мартынова – клавиши
+Николай Коновалов – барабаны 
+
+
+
 
 ## Отношения с другими группами
 

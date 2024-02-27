@@ -1,7 +1,32 @@
 # Atrophy
 
-Дискография
-"Socialized Hate" 1988, Thrash
+
+
+## Дискография
+
+### "Socialized Hate" 1988, Thrash
+
+ Side One:
+1. Chemical Dependency 4.04
+2. Killing Machine 3.43
+3. Matter Of Attitude 3.25
+4. Preacher,Preacher 4.15
+5. Beer Bong 2.01
+ Side Two:
+1. Socialized Hate 5.01
+2. Best Defence 3.46
+3. Product Of The Past 3.48
+4. Rest In Pieces 4.39
+5. Urban Decay 3.29
+
+Tim Kelly - Drums
+Rick Scowron - Guitar
+Brian Zimmerman -  Vocals
+James Gulota - Bass
+Chris Lykins - Guitar
+
+(p)&(c) 1988 ROARDRACER Records
+
 
 ## Отношения с другими группами
 

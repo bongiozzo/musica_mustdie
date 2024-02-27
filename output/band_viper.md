@@ -1,8 +1,44 @@
 # Viper
 
-Дискография
-"Soldiers Of Sunrise" 1987, Heavy Metal
-"Theatre Of Fate" 1989, Heavy Metal
+
+
+## Дискография
+
+### "Soldiers Of Sunrise" 1987, Heavy Metal
+
+1. Knights Of Destruction
+2. Nightmares
+3. The Whipper
+4. Wings Of the Evil
+5. H.R.
+6. Soldiers Of Sunrise
+7. Sings Of The Night
+8. Killera (Princess Of Hell
+9. Law Of The Sword
+Pit Passarell - bass & vocals
+Andre Matos - lead vocals
+Felipe Machado - guitars
+Yves Passarell - guitars
+Cassio Audi - drums
+(c) 1987 Rock Brigade
+
+### "Theatre Of Fate" 1989, Heavy Metal
+
+1. Illusions
+2. At Least A Chance
+3. To Live Again
+4. A Cry From The Edge
+5. Living For the Night
+6. Prelude To Oblivion
+7. Theatre Of Fate
+8. Moonlight
+Felipo Machado - guitars
+Renato Graccia - drums
+Andre Matos - vocals
+Yves Passarell - guitars
+Pit Passarell - bass
+(c)1989 Rock Brigade
+
 
 ## Отношения с другими группами
 

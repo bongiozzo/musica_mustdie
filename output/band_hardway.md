@@ -1,7 +1,24 @@
 # Hard Way
 
-Дискография
-"The War Without Chances Of Victory" 2007, Thrash
+
+
+## Дискография
+
+### "The War Without Chances Of Victory" 2007, Thrash
+
+1. My Lady The War   
+2. Chances   
+3. Shadows   
+4. Sun Of Mine   
+5. The Frog   
+6. Autumn Wind   
+7. Burning Of The Heretic   
+8. King Of The Idiots   
+9. The Death Rattle   
+10. Everything Is Not That Seems   
+11. A Drop Of Eternity   
+12. Parting Song 
+
 
 ## Отношения с другими группами
 

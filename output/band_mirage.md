@@ -1,7 +1,28 @@
 # Mirage
 
-Дискография
-"...And the Earth Shall Crumble" 2002, Heavy Metal
+
+
+## Дискография
+
+### "...And the Earth Shall Crumble" 2002, Heavy Metal
+
+1.	 Out There (Survivors)	04:04
+2.	 So Many Years Ago	04:54
+3.	 Lords in Space and Time	03:22
+4.	 Apostle of Hell	06:09
+5.	 Heading for The Sun	04:06
+6.	 Killer Dwarf Shorty	05:44
+7.	 Hellbound	03:40
+8.	 Punisher	04:47
+9.	 Shave it All Off	03:39
+10.	 Savin' Love	03:58
+11.	 The Emperor	04:28
+12.	 Guiding Light	03:13
+13.	 Get Down to Love	04:47
+14.	 Searching	04:39
+15.	 Far Away	05:18
+16.	 Turn On The Darkness	04:57
+
 
 ## Отношения с другими группами
 

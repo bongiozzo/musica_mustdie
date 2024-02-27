@@ -1,11 +1,57 @@
 # Abruptum
 
-Дискография
-"Obscurilatem Advoco Amplectere Me" 1993, Black Metal
-"In Umbra Malitiae Ambulabo, In Aeternum In Triumpho Tenebrarum" 1994, Black Metal
-"Vi Sonus Veris Nigrae" 1996, Black Metal
-"Casus Luciferi" 2004, Black Metal
-"Potestates Apocalypsis" 2011, Black Metal
+Black Atmospheric Noise
+
+## Дискография
+
+### "Obscurilatem Advoco Amplectere Me" 1993, Black Metal
+
+1. Obscurilatem Advoco Amplectere Me
+    (Part I)
+2. Obscurilatem Advoco Amplectere Me
+    (Part II)
+
+ Evil - Guitars, Sound, Darkness
+ It - Cries, Screams, Torture
+ ? - Drums
+
+All Songs Written By Sarkka
+Recorded At Abruptum Studios, 1992
+
+(p)&(c) 1993 DEATHLIKE SILENCE Production
+
+### "In Umbra Malitiae Ambulabo, In Aeternum In Triumpho Tenebrarum" 1994, Black Metal
+
+1. In Umbra Malitiae Ambulabo, In Aeternum In Triumpho Tenebrarum
+
+### "Vi Sonus Veris Nigrae" 1996, Black Metal
+
+1. Vi Sonus Veris Nigrae Malitiaes
+
+Recorded & Mixed At Abyss Studio.
+Produced By It.
+Engineered By Peter Tagtgren.
+
+This album is dedicated to Evil, who could not participate in the recording.
+WARNING! Abruptum does not take responsibility for any actions made under the influence of this album.
+Remember that Abruptum is the audial essence of pure black evil and listening to it is on your own risk!
+
+(P)(C) 1996 FULL MOON Productions
+
+### "Casus Luciferi" 2004, Black Metal
+
+Casus Luciferi 
+In Ictu Oculi 
+Ex Inferno Inferiori
+Gehennae Perpetuae Cruciatus
+
+### "Potestates Apocalypsis" 2011, Black Metal
+
+1. Pestilencia 12:30	 
+2. Bellum 10:28	 
+3. Fames 11:57	 
+4. Mort 11:57
+
 
 ## Отношения с другими группами
 

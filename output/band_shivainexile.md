@@ -1,7 +1,39 @@
 # Shiva in Exile
 
-Дискография
-"Ethnic" 2003, Folk
+Dark ethnic/ambient
+
+## Дискография
+
+### "Ethnic" 2003, Folk
+
+1. Odysseia
+   
+2. Breathing
+   
+3. Dragon Dance
+   
+4. Nightheat
+   
+5. Floating
+   
+6. Manju
+   
+7. Shaman Fever
+   
+8. Oriental Distortion
+   
+9. Hollow Earth
+   
+10. Nomad
+   
+11. Ethnosphere
+   
+12. Aldebaran
+   
+13. Akasha
+   
+14. Myingmar (bonus track)
+
 
 ## Отношения с другими группами
 

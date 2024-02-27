@@ -1,43 +1,247 @@
 # Gotthard
 
-Дискография
-"Gotthard" 1992, Hard Rock
-"Firedance (single)" 1992, Hard Rock
-"All I Care For (single)" 1992, Hard Rock
-"Hush (single)" 1992, Hard Rock
-"Dial Hard" 1993, Hard Rock
-"Mountain Mama (single)" 1993, Hard Rock
-"I'm on My Way (single)" 1994, Hard Rock
-"Travellin' Man (single)" 1994, Hard Rock
-"Father Is That Enough? (single)" 1995, Hard Rock
-"G." 1996, Hard Rock
-"He Ain't Heavy, He's My Brother (single)" 1996, Hard Rock
-"The Hamburg Tapes - Special Live Edition" 1996, Hard Rock
-"One Life, One Soul (single)" 1996, Hard Rock
-"Defrosted" 1997, Hard Rock
-"Someday (single)" 1997, Hard Rock
-"Love Soul Matter (single)" 1997, Hard Rock
-"One Life, One Soul (single)" 1997, Hard Rock
-"Fight for Your Life (single)" 1997, Hard Rock
-"Let It Rain (single)" 1998, Hard Rock
-"Open [live]" 1999, Hard Rock
-"Merry X-Mas (single)" 1999, Hard Rock
-"Blackberry Way (single)" 1999, Hard Rock
-"You (single)" 1999, Hard Rock
-"Heaven (single)" 2000, Hard Rock
-"Homerun" 2001, Hard Rock
-"One Life, One Soul" 2001, Hard Rock
-"Human Zoo" 2003, Hard Rock
-"What I Like (single)" 2003, Hard Rock
-"Lift 'U' Up (single)" 2005, Hard Rock
-"Lipservice" 2005, Hard Rock
-"Domino Effect" 2007, Hard Rock
-"Need To Believe" 2009, Hard Rock
-"Heaven Best Of Ballads Part 2" 2010, Hard Rock
-"Homegrown Alive In Lugano (live)" 2011, Hard Rock
-"Firebirth" 2012, Hard Rock
-"Feel What I Feel (single)" 2014, Hard Rock
-"Bang!" 2014, Hard Rock
+Melodic Hard Rock from Switzerland
+
+## Дискография
+
+### "Gotthard" 1992, Hard Rock
+
+
+
+### "Firedance (single)" 1992, Hard Rock
+
+
+
+### "All I Care For (single)" 1992, Hard Rock
+
+
+
+### "Hush (single)" 1992, Hard Rock
+
+
+
+### "Dial Hard" 1993, Hard Rock
+
+
+
+### "Mountain Mama (single)" 1993, Hard Rock
+
+
+
+### "I'm on My Way (single)" 1994, Hard Rock
+
+
+
+### "Travellin' Man (single)" 1994, Hard Rock
+
+
+
+### "Father Is That Enough? (single)" 1995, Hard Rock
+
+
+
+### "G." 1996, Hard Rock
+
+
+
+### "He Ain't Heavy, He's My Brother (single)" 1996, Hard Rock
+
+
+
+### "The Hamburg Tapes - Special Live Edition" 1996, Hard Rock
+
+
+
+### "One Life, One Soul (single)" 1996, Hard Rock
+
+
+
+### "Defrosted" 1997, Hard Rock
+
+
+
+### "Someday (single)" 1997, Hard Rock
+
+
+
+### "Love Soul Matter (single)" 1997, Hard Rock
+
+
+
+### "One Life, One Soul (single)" 1997, Hard Rock
+
+
+
+### "Fight for Your Life (single)" 1997, Hard Rock
+
+
+
+### "Let It Rain (single)" 1998, Hard Rock
+
+
+
+### "Open [live]" 1999, Hard Rock
+
+
+
+### "Merry X-Mas (single)" 1999, Hard Rock
+
+
+
+### "Blackberry Way (single)" 1999, Hard Rock
+
+
+
+### "You (single)" 1999, Hard Rock
+
+
+
+### "Heaven (single)" 2000, Hard Rock
+
+
+
+### "Homerun" 2001, Hard Rock
+
+
+
+### "One Life, One Soul" 2001, Hard Rock
+
+
+
+### "Human Zoo" 2003, Hard Rock
+
+
+
+### "What I Like (single)" 2003, Hard Rock
+
+
+
+### "Lift 'U' Up (single)" 2005, Hard Rock
+
+
+
+### "Lipservice" 2005, Hard Rock
+
+01. All We Are
+02. Dream On
+03. Lift U Up
+04. Everything I Want
+05. Cupid Arrow
+06. I Wonder
+07. I`m Alive
+08. I`ve Seen An Angel Cry
+09. Stay For The Night
+10. Anytime Anywhere
+11. Said & Done
+12. The Other Side Of Me
+13. Nothing Left At All
+14. And Then Goodbye
+
+### "Domino Effect" 2007, Hard Rock
+
+Master Of Illusion
+Gone To Far
+Domino Effect
+Falling
+The Call
+The Oscar Goes To …
+The Cruiser (Judgement Day)
+Heal Me
+Letter To A Friend
+Tomorrowґs Just Begun
+Come Alive
+Bad To The Bone
+Now
+Where Is The Love When Itґs Gone
+
+### "Need To Believe" 2009, Hard Rock
+
+
+
+### "Heaven Best Of Ballads Part 2" 2010, Hard Rock
+
+01. Heaven
+02. What Am I *
+03. Where Is Love When It's Gone
+04. Need To Believe
+05. One Life One Soul
+06. The Call
+07. Don't Let Me Down
+08. Nothing Left At All
+09. Unconditional Faith
+10. Have A Little Faith **
+11. Tears To Cry
+12. Everything I Want
+13. I've Seen An Angel Cry
+14. Tomorrow's Just Begun
+15. Falling ***
+16. And Then Goodbye
+17. Merry Christmas
+
+* previously unreleased
+** special piano version / previously unreleased
+*** special acoustic version / previously
+unreleased
+
+### "Homegrown Alive In Lugano (live)" 2011, Hard Rock
+
+01. Intro 
+02. Unspoken Words 
+03. Gone Too Far 
+04. Top Of The World 
+05. Need To Believe 
+06. Hush 
+07. Unconditional Faith 
+08. Acoustic Medley 2010 
+09. Shangri La 
+10. I Don’t Mind 
+11. Heaven 
+12. The Oscar Goes To… 
+13. Lift U Up 
+14. Leo vs. Steve (guitar- / -vocal solo) 
+15. Sister Moon 
+16. Anytime Anywhere 
+17. The Train (unreleased studio track)
+
+### "Firebirth" 2012, Hard Rock
+
+
+
+### "Feel What I Feel (single)" 2014, Hard Rock
+
+01. Feel What I Feel - Radio Version
+02. Feel What I Feel
+
+
+Leo Leoni - guitar
+Freddy Scherer - guitars
+Marc Lynn - bass guitar
+Hena Habegger - drums
+Nic Maeder - vocals
+
+### "Bang!" 2014, Hard Rock
+
+1. Let Me in Katie 
+2. Bang! 
+3. Get Up 'n' Move On 
+4. Feel What I Feel 
+5. C'Est la Vie 
+6. Jump the Gun 
+7. Spread Your Wings 
+8. I Won't Look Down 
+9. My Belief 
+10. Maybe 
+11. Red on a Sleeve 
+12. What You Get 
+13. Mr. Ticket Man 
+14. Thank You 
+ 
+ 
+Bonustracks (Digipack/LP Edition)  
+15. I Want It All 
+16. You Can't Stop Me 
+
+
 
 ## Отношения с другими группами
 

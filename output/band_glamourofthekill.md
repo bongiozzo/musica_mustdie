@@ -1,10 +1,25 @@
 # Glamour Of The Kill
 
-Дискография
-"Through The Darkness They March (EP)" 2007, Metalcore
-"Glamour Of The Kill (EP)" 2008, Metalcore
-"The Summoning" 2011, Metalcore
-"Savages" 2013, Metalcore
+
+
+## Дискография
+
+### "Through The Darkness They March (EP)" 2007, Metalcore
+
+
+
+### "Glamour Of The Kill (EP)" 2008, Metalcore
+
+
+
+### "The Summoning" 2011, Metalcore
+
+
+
+### "Savages" 2013, Metalcore
+
+
+
 
 ## Отношения с другими группами
 

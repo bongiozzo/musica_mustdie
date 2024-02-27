@@ -1,12 +1,103 @@
 # Disgorge (Mex)
 
-Дискография
-"Chronic Corpora Infest" 1997, Grindcore
-"Forensick" 2000, Grindcore
-"Goremassacre Perversity (EP)" 2001, Grindcore
-"Necroholocaust" 2003, Grindcore
-"Grind Your Fucking Head (split CD with Squash Bowels)" 2003, Grindcore
-"Gore Blessed To The Worms" 2006, Grindcore
+The most sickening rot brutal deathgrind with depraved medical sick gore lyrics (Mexico)
+
+## Дискография
+
+### "Chronic Corpora Infest" 1997, Grindcore
+
+01. The Vile Sores In Urticariothrocisism Goulashed Decrepitance
+02. Stygmatodermuropyanephrosism On Impetiginose Urogenism
+03. Faecalized
+04. Rancid Bowel Sarcoma
+05. In The Acro Cianotyc Post Clonning Ectopysm
+06. Lymphatic Orgy In A Ulcerated Incubation
+07. Viscose Oseal Fibroma
+08. Gribbled Maggotized Pregnant Inside Into A Fetid Renal Sarna
+09. Pedophilamophia Of Excreachollemical Endolapse
+
+(c) 1998 American Line Productions
+
+### "Forensick" 2000, Grindcore
+
+01. Jism Adipose Carbonization
+02. Spasmobliterance Filtrates Scabs
+03. Scid
+04. Urethrive-Decortico-Xanthomatose Muco Gestated Scaffolds
+05. Jaundice Of Hookworm
+06. Haemorph Endarteriectomized Punzed Eozinophile
+07. Purpuric Cytoskeletal Glucid Oxidase
+08. Crevice Flux Warts
+09. Depths Carmesi
+10. Silks Sphincter Anal Lumen
+
+(c) 2000 Repulse Records
+
+### "Goremassacre Perversity (EP)" 2001, Grindcore
+
+01. Goremassacre Perversity
+02. Grotesque Devourment
+03. Inhuman (Grave cover)
+
+(p)(c) 2001 Lofty Storm Records
+
+### "Necroholocaust" 2003, Grindcore
+
+01. Raise The Pestilence
+02. Sodomic Baptism
+03. Macabre Realms Of Inhuman Bestiality
+04. Ravenous Funeral Carnage
+05. Necrholocaust
+06. Goremassacre Perversity
+07. Excremential Lust
+08. Boiling Vomit Through My Veins
+
+Antimo    - vocals/bass
+Edgar     - guitars
+Guillermo - drums
+
+### "Grind Your Fucking Head (split CD with Squash Bowels)" 2003, Grindcore
+
+Squash Bowels:
+01. Fear
+02. Blood Supply
+03. Who Is Gay?
+04. Grind Your Head
+05. Hasta La Vista Baby
+06. Radio Hit (Anal Cunt cover)
+07. Material Under Test
+08. Murder On Street
+09. Wo-Man
+10. Call-Girls
+11. Shit In W.C.
+12. Regulations Peoples Fear
+13. Pussy On Your Face
+14. Human Barbecue
+15. Pseudo Feaces
+16. Vulture Ritual (bonus song)
+
+Disgorge:
+17. Spasmobliterance Filtrates Scabs
+18. Urethrive Decortico Xantomatose Muco Gestated Scallfolds 
+19. Shredded Humans (Cannibal Corpse cover)
+20. Disgorging Foetus (Regurgitate cover)
+21. Pedigree (Anarchus cover)
+
+(c)&(p) 2003 Bizarre Leprous Production
+
+### "Gore Blessed To The Worms" 2006, Grindcore
+
+01. Intro (Deadflesh Everywhere)
+02. I Watch Myself Rot
+03. Next Mortuary Division
+04. Gore Blessed To The Worms!
+05. Cadaveres
+06. Chronic Corpora Infest
+07. Pest.Blood.Metal
+08. Beneath The Lugubre.....
+09. Deepest Blood (Devour)
+10. Necro.March
+
 
 ## Отношения с другими группами
 

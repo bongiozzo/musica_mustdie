@@ -1,9 +1,55 @@
 # Takara
 
-Дискография
-"Eternal Faith" 1993, Heavy Metal
-"Taste Of Heaven" 1995, Heavy Metal
-"Eternity (compilation)" 2004, Heavy Metal
+
+
+## Дискография
+
+### "Eternal Faith" 1993, Heavy Metal
+
+1.  Spotlight
+2.  Two Hearts Together
+3.  Don't Walk Away
+4.  Just Like Yesterday
+5.  Restless Heart
+6.  First Attraction
+7.  I Don't Believe
+8.  Fallen Angel
+9.  Colors Fade
+10.Passion Of The Heart
+
+Jeff Scott Soto - All Vocals, Keyboards
+Neal M. Grusky - All Lead & Rhythm Guitars
+Gary Schutt - Bass
+Robert A Duda - Drums
+
+Produced by Jeff Scott Soto.
+Engineered by Jeffers Dodge, Jeff Scott Soto & Matt Stephens.
+Mastered at Futuredisc.
+Cover artwork by Michael Kneppert.
+
+(p)(c) 1993 LONG ISLAND LIR 00004
+
+### "Taste Of Heaven" 1995, Heavy Metal
+
+1.  When Darkness Falls
+2.  Days Of Dawn
+3.  Your Love 
+4.  December
+5.  Last Mistake
+6.  Taste Of Heaven
+7.  Sacred Pleasure
+8.  2 Late
+9.  Save Me
+10.Lonely Shade Of Blue
+11.Your Love - Acoustic
+12.Restless Heart-Acoustic
+
+(p)(c) 1995 LONG ISLAND LIR 00071
+
+### "Eternity (compilation)" 2004, Heavy Metal
+
+
+
 
 ## Отношения с другими группами
 

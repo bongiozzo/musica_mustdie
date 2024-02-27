@@ -1,9 +1,39 @@
 # Nails
 
-Дискография
-"Unsilent Death" 2010, Grindcore
-"Abandon All Life" 2013, Grindcore
-"You Will Never Be One Of Us" 2016, Grindcore
+
+
+## Дискография
+
+### "Unsilent Death" 2010, Grindcore
+
+1. Conform (0:32)
+2. Scum Will Rise (1:04)
+3. Your God (0:33)
+4. Suffering Soul (1:30)
+5. Unsilent Death (2:41)
+6. Traitor (0:28)
+7. I Will Not Follow (1:26)
+8. No Servant (0:59)
+9. Scapegoat (0:55)
+10. Depths (3:49)
+
+### "Abandon All Life" 2013, Grindcore
+
+
+
+### "You Will Never Be One Of Us" 2016, Grindcore
+
+01. You Will Never Be One Of Us
+02. Friend To All
+03. Made To Make You Fall
+04. Life Is A Death Sentence
+05. Violence Is Forever
+06. Savage Intolerance
+07. In Pain
+08. Parasite
+09. Into Quietus
+10. They Come Crawling Back
+
 
 ## Отношения с другими группами
 

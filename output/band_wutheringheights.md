@@ -1,11 +1,130 @@
 # Wuthering Heights
 
-Дискография
-"Within" 1999, Progressive
-"To Travel For Evermore" 2002, Progressive
-"Far From the Madding Crowd" 2004, Progressive
-"The Shadow Cabinet" 2006, Progressive
-"Salt" 2010, Progressive
+progressive metal
+
+## Дискография
+
+### "Within" 1999, Progressive
+
+01. Enter The Cave 3:08 
+02. Hunter In The Dark 5:57 
+03. Too Great Thy Gift 7:12 
+04. Sorrow In Memoriam 8:31 
+05. Dreamwalker 13:38
+06. The Bird 3:51 
+07. The Wanderer's Farewell 5:20 
+
+
+
+
+Erik Ravn : guitar, vocals
+Kristian "Krille" Andren : vocals
+Rune S. Brink : keyboards
+Kasper Gram : bass
+Morten Nodgaard : drums
+
+ 
+Guest musicians: 
+Troels Liebgott: flute
+Henriette Cordes : violin
+Carsten Kronhoj, Rasmus Reckeweg, Anders Pharnen-Hermund, Claus Jensen, Kenneth Pedersen, Kristian Larsen, Lars F. Larsen, Rene Nielsen, Mads Volf & Kenneth Saandvig : backing vocals
+
+ 
+Music & Lyrics by Erik Ravn
+Except: Sorrow In Memoriam (music by Erik Ravn, Kenneth Saandvig, Tim Christensen & Troels Liebgott), Dreamwalker (music by Erik Ravn, Rune S. Brink & Kenneth Saandvig)
+
+Recorded at Aabenraa Studios, Aabenraa, August 1998
+Produced, mixed & engineered by Jacob Hansen
+Mastered at Digital Domain, Florida by Bob Katz
+Cover art by Kristian W&#1077;hlin
+Graphic design & Layout by Michael Bennet
+Photos by John-son & Martin Pauner
+Logo & poem by Erik Ravn
+ 
+
+
+
+### "To Travel For Evermore" 2002, Progressive
+
+01. Behind Tearstained Ice 2:15 
+02. The Nevershining Stones 6:25 
+03. Dancer In The Light 5:31 
+04. Lost Realms 8:28 
+05. Battle Of The Seasons 8:50 
+06. A Sinner's Confession 9:37 
+07. See Tomorrow Shine 5:13 
+08. Through Within To Beyond 6:50 
+09. River Oblivion 3:51 
+
+
+
+Erik Ravn : guitar, bass, keyboards, vocals
+Kristian "Krille" Andrйn : vocals
+Rune S. Brink : keyboards
+Henrik Flyman : guitar
+Morten Sorensen : drums
+
+ 
+Guest musicians:
+Lorenzo Deho : bass
+Tommy Hansen, Claus Jensen, Finn Zierler & Klaus Lindy : backing vocals
+
+ 
+Music & lyrics by Erik Ravn
+Except Battle Of The Seasons (music by Erik Ravn, Rune S. Brink, Kenneth Saandvig), A Sinnerґs Confession (music by Erik Ravn, Kenneth Saandvig)
+Recorded at Jailhouse Studios, Horsens, May 26th-June 16th 2001
+Keyboards recorded at The Cave, Copenhagen, Winter 2000-Summer 2001
+Henrikґs guitars recorded at Digital Bitch, Copenhagen, April 2001
+Lorenzoґs bass guitars recorded in Milan, April 2001
+Produced, mixed & engineered by Tommy Hansen
+Mastered by Bob Katz at Digital Domain, Florida
+Cover art by David Wyatt
+Photos by Anders C. Nielsen
+All other artwork & graphic design by Michael Bennett
+ 
+
+
+
+
+### "Far From the Madding Crowd" 2004, Progressive
+
+1. Gather Ye Wild	 
+2. The Road Goes Ever On
+3. Tree
+4. Longing for the Woods, Part 1: The Wild Children
+5. Highlands Winds
+6. Longing for the Woods, Part 2: The Ring of Fire
+7. The Bollard
+8. Bad Hobbits Die Hard	 
+9. Longing for the Woods, Part 3: Herne's Prophecy
+10. Land of Olden Glory
+11. Lament for Lorien
+
+### "The Shadow Cabinet" 2006, Progressive
+
+1. Demon Desire
+2. Beautifool	
+3. The Raven
+4. Faith - Apathy Divine Part 1
+5. Envy
+6. Snow - Apathy Divine Part 2
+7. Sleep
+8. I Shall Not Yield
+9. Reason ... ?
+10. Carpe Noctem - Seize the Night
+
+### "Salt" 2010, Progressive
+
+1. Away!
+2. The Desperate Poet
+3. The Mad Sailor
+4. The Last Tribe (Mother Earth)
+5. Tears
+6. Weather the Storm
+7. The Field
+8. Water of Life
+9. Lost at Sea
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,13 @@
 # Attila Csihar
 
-Дискография
-"The Beast of…”" 2003, Black Metal
+black
+
+## Дискография
+
+### "The Beast of…”" 2003, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,6 +1,9 @@
 # Down in Flames
 
-Дискография
+great hardcore from USA
+
+## Дискография
+
 
 ## Отношения с другими группами
 

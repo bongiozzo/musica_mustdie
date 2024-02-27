@@ -1,7 +1,37 @@
 # Baton Rouge
 
-Дискография
-"The Hottest Of Baton Rouge" 2006, Glam
+glam
+
+## Дискография
+
+### "The Hottest Of Baton Rouge" 2006, Glam
+
+1. Walks Like A Woman 
+2. Bad Time Comin' Down 
+3. Doctor 
+4. There Was A Time (The Storm) 
+5. Spread Like Fire 
+6. Young Hearts 
+7. Hot Blood Movin 
+8. Desperate 
+9. Hotter Than Hell 
+10. Tie You Up 
+11. Down By The Torchlight 
+12. Light Of The End Of Tunnel 
+13. Ghost Of You 
+14. Not In The Mood For A Heartache 
+15. Love?s A Loaded Gun 
+16. Love Takes 
+17. Hot In The City 
+18. Walking In My Footsteps 
+19. Free
+
+Kelly Killing - lead vocals, guitars, keys 
+Lance Bulen - lead guitar, vocals 
+Scott Bender - bass, vocals 
+Tony Palmissi - lead guitars, vocals 
+Corky "Nathen Eugene" McClellan - drums, vocals
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,34 @@
 # Enchantment
 
-Дискография
-"Dance The Marble Naked" 1994, Death Doom
+England Death-Doom
+
+## Дискография
+
+### "Dance The Marble Naked" 1994, Death Doom
+
+1. Kneading With Honey
+2. My Oceans Vast
+3. The Touch Of A Crown
+4. Carve Me In Sand
+5. Summer For The Dames
+6. God Send
+7. Of Acorns That Gather
+8. Meadows (Instrumental)
+
+ Paul - Vocals
+ Marc - Guitars
+ Steve - Guitars
+ Mark - Bass
+ Chris - Drums
+
+All lurics by P.Jones
+All music composed & arranged by ENCHANTMENT
+Produced by Hammy
+Engineered by Mags
+Recorded at Academy Studios, W.Yorkshire,Fer.'94
+
+(p)(c) 1994 CENTURY MEDIA
+
 
 ## Отношения с другими группами
 

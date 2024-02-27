@@ -1,9 +1,58 @@
 # Dark Princess
 
-Дискография
-"Without You" 2005, Gothic
-"Stop My Heart" 2006, Gothic
-"Жестокая Игра" 2007, Gothic
+
+
+## Дискография
+
+### "Without You" 2005, Gothic
+
+1.Yearning For The Sun
+2.Living In Me
+3.Lost Sunrise
+4.The Skin Of The Universe
+5.Reach The Sky
+6.Let Me Go
+7.Without You
+8.Taste Of Shame
+9.The Game
+10.My Fragile Winter Dream
+11.My Fragile Winter Dream (acoustic version)
+
+### "Stop My Heart" 2006, Gothic
+
+1. Cry (3:40) 
+2. Stop My Heart (5:07) 
+3. One Last Goodbye (4:31) 
+4. Please Betray Me (3:20) 
+5. Join Me In Life (3:33) 
+6. The Deepest Fall (3:18) 
+7. No Pain (3:17) 
+8. Close To The Sky (4:24) 
+9. Endless Deadtime (3:31) 
+10. The Pyre's Song (4:00) 
+11. Нас Больше Нет (6:12) 
+12. Жестокая Игра (3:26)
+
+
+track 11 is russian version of the song "My Fragile Winter Dream" from first album
+track 12 is russian version of the song "The Game" from first album
+
+### "Жестокая Игра" 2007, Gothic
+
+Время Уйти
+Ожидаю Новый День
+На Самом Дне
+Жестокая
+Когда Проснулось Небо
+Слепая Страсть
+Скорбный Бал
+Реквием Мечтам
+Вершишь Новый Грех
+Яд Любви
+The Key
+Not Of This World
+Жестокая Игра (remix)
+
 
 ## Отношения с другими группами
 

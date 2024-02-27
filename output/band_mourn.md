@@ -1,7 +1,34 @@
 # Mourn
 
-Дискография
-"Mourn" 1995, Death Doom
+
+
+## Дискография
+
+### "Mourn" 1995, Death Doom
+
+1. Awakening
+2. Iron Sky
+3. Children Of The Circle
+4. Drowning
+5. Through These Eyes
+6. Dreamless Sleep
+7. After All
+8. Forever More
+
+All Songs Written By MOURN.
+Produced By Paul Johnson & MOURN.
+Engineered & Mixed By Paul Johnson.
+Recorded & Mixed At Rhythm Studios, 
+Warwickshire, England.
+
+Mark Cronin - Drums & Percussion
+Ali Reza Hakimi Ghazvini - Electric & Acoustic Guitars
+William Palmer - Electric & Acoustic Guitars
+Steve Draysey - Bass
+Caroline Wilson - Vocals
+
+(P)&(C) 1995 RISE ABOVE Records
+
 
 ## Отношения с другими группами
 

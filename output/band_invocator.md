@@ -1,11 +1,63 @@
 # Invocator
 
-Дискография
-"Excursion Demise" 1991, Thrash
-"Weave The Apocalypse" 1993, Thrash
-"Early Years" 1994, Ambient
-"Dying To Live" 1995, Thrash
-"Through The Flesh To The Soul" 2003, Thrash
+Techno Death-Thrash
+
+## Дискография
+
+### "Excursion Demise" 1991, Thrash
+
+
+
+### "Weave The Apocalypse" 1993, Thrash
+
+1. Throught The Nether To The Sun
+2. From My Skull It Rains
+3. Desert Sands
+4. Condition Critical
+5. Breed Of Sin
+6. Doomed To Be
+7. Lost At Birth
+8. Land Of Misery
+9. The Afterbirth
+10. Weave The Apocalypse
+
+ Jacob Hansen - Vocals,Guitar
+ Perle Hansen - Guitar
+ Per. M.Jensen - Bass
+ Per Jakobsen - Drums
+
+Produced By Eric Greif & Invocator
+Engineered By Eric Greif
+Mixed By Jacob Hansen
+Recorded And Mixed At Elsound,Copenhagen February / March '93
+Mastered At The Cutting Room, Stockholm By Boss
+Cover Art & Concept By Dan SeaGrave.
+
+(p) & (c) 1993 Black Mark BMCD 34.
+
+
+### "Early Years" 1994, Ambient
+
+
+
+### "Dying To Live" 1995, Thrash
+
+
+
+### "Through The Flesh To The Soul" 2003, Thrash
+
+1. intro
+2. through the flesh to the soul 
+3. writhe in spit 
+4. on my knees 
+5. flick it on 
+6. infatuated I am (speak to me) 
+7. there is no savior 
+8. the chemistry of restlessness
+9. under the skin 
+10. fire cleanses all 
+11. sand between the teeth
+
 
 ## Отношения с другими группами
 

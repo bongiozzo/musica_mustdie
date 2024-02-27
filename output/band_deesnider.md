@@ -1,7 +1,13 @@
 # Dee Snider
 
-Дискография
-"We Are The Ones" 2016, Hard Rock
+
+
+## Дискография
+
+### "We Are The Ones" 2016, Hard Rock
+
+
+
 
 ## Отношения с другими группами
 

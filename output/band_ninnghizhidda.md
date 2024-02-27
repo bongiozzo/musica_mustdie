@@ -1,8 +1,50 @@
 # Ninnghizhidda
 
-Дискография
-"Blasphemy" 1998, Death Metal
-"Demigod" 2002, Metal
+German Black metal band
+
+## Дискография
+
+### "Blasphemy" 1998, Death Metal
+
+1. Moonlight Serenade
+2. Of Demons And Witches Part I
+3. Baphomet (In The Name Of ...)
+4. Reach The Jewels Gleam
+5. Of Demons And Witches Part II
+6. Dressed In Mourning
+7. The Horned Serpent
+8. Crucify The Lambs Of Christ
+9. Deny Thy Philosophy
+10. Nailed Upon A Cross
+11. Ode To The Horned Majesty
+
+
+Patrick K. vocals, rhythmguitar
+Renи B. lead- & acousticguitar
+Ivan L. bass
+Markus A. drums 
+
+### "Demigod" 2002, Metal
+
+1. Prowling Sin
+2. Fools Of Christ
+3. Rape (The Virgin Mary)
+4. Mistress Of The Night
+5. The Awakening
+6. March Of The Servants
+7. Conquering What Once Was
+8. Demigod
+9. Siesta In A-Minor
+10. Ode II The Horned Majesty
+11.Finale
+
+
+Patrick K. vocals, rhythmguitar
+Renи B. lead & acousticguitar
+Ivan L. bass
+Markus A. drums 
+
+
 
 ## Отношения с другими группами
 

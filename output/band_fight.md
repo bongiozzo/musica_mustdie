@@ -1,9 +1,63 @@
 # Fight
 
-Дискография
-"War Of Words" 1993, Thrash
-"Mutations" 1994, Thrash
-"A Small Deadly Space" 1995, Thrash
+ex-Judas Priest
+
+## Дискография
+
+### "War Of Words" 1993, Thrash
+
+1. Into A Pit
+2. Nailed To The Gun
+3. Life In Black
+4. Immortal Sin
+5. War Of Words
+6. Laid To Rest
+7. For All Eternity
+8. Little Crazy
+9. Contortion
+10.Kill It
+11.Vicious
+12.Reality, A New Beginning
+
+ Rob Halford -Vocals, Guitar
+ Russ Parrish - Guitar, Keuboard, Back Vocals
+ Brian Tilse  - Guitar, Keuboard, Back Vocals
+ Jay Jay  - Bass, Back Vocals
+ Scott Travis - Drums, Back Vocals
+
+All Compositions By Rob Halford
+Produced By Rob Halford
+Mixed By Rob Halford & Attie Bauw
+Co-Produced & Engineered By Attie Bauw
+Recorded At Wisseloord Studios
+
+(p)&(c) 1993
+
+### "Mutations" 1994, Thrash
+
+01. Into The Pit (Live) (4:11)
+02. Nailed To The Gun (Live) (3:35)
+03. Freewheel Burning (Live) (4:45)
+04. Little Crazy (Live) (4:57)
+05. War Of Words (Bloody Tongue Mix) (6:47)
+06. Kill It (Dutch Death Mix) (3:51)
+07. Vicious (Middle Finger Mix) (6:06)
+08. Immortal Sin (Tolerance Mix) (5:49)
+09. Little Crazy (Straight Jacket Mix) (5:56)
+
+### "A Small Deadly Space" 1995, Thrash
+
+01. I Am Alive (4:56)
+02. Mouthpiece (3:22)
+03. Legacy Of Hate (4:34)
+04. Blowout In The Radio Room (4:11)
+05. Never Again (3:51)
+06. Small Deadly Space (5:20)
+07. Gretna Greene (3:53)
+08. Beneath The Violence (4:43)
+09. Human Crate (6:10)
+10. In A World Of My Own Making (13:43)
+
 
 ## Отношения с другими группами
 

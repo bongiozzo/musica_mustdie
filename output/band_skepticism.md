@@ -1,14 +1,90 @@
 # Skepticism
 
-Дискография
-"Stormcrowfleet" 1995, Death Doom
-"Lead & Aether" 1997, Doom
-"Ethere" 1997, Doom
-"Aes" 1999, Doom
-"The Process of Farmakon - Emanating Darkness" 2002, Doom
-"Farmakon" 2003, Doom
-"Alloy" 2008, Doom
-"Ordeal" 2015, Doom
+funeral doom
+
+## Дискография
+
+### "Stormcrowfleet" 1995, Death Doom
+
+1. Sign Of A Storm
+2. Pouring
+[4]. The Rising Of The Flames
+5. The Gallant Crow
+6. The Everdarkgreen
+
+[4] - Ha cтopoнe B
+
+All music and lyrics written by SKEPTICISM
+Produced by SKEPTICISM
+Recorded and mixed at Synergy Studios, Harrisburg
+
+"Seeds being planted, guarded by the Old Ones Below, against the sky they lay roots once to bloom with signs"
+
+(p)(c) 1996 RED STREAM Records
+
+### "Lead & Aether" 1997, Doom
+
+
+
+### "Ethere" 1997, Doom
+
+1. The March and the Stream 12:00 
+2. Aether 10:34  
+3. Chorale 06:40
+
+### "Aes" 1999, Doom
+
+1. Aes 27:52
+
+### "The Process of Farmakon - Emanating Darkness" 2002, Doom
+
+1. Backward Funeral And The Raven 07:48  
+2. The Process Of Farmakon 10:41
+
+### "Farmakon" 2003, Doom
+
+1. The Raven And The Backward Funeral 07:38  
+2. Shred Of Light, Pinch Of Endless 08:19  
+3. Farmakon Process 06:17 
+4. (Untitled) 13:15  
+5. Nowhere 14:09
+6. Nothing 12:40
+
+
+Eero Puyry - Keys
+Jani Kekarainen - Guitars
+Matti - Vocals
+Lasse Pelkonen - Drums
+
+### "Alloy" 2008, Doom
+
+1. The Arrival 06:38  
+2. March October 10:30  
+3. Antimony 08:46  
+4. The Curtain 05:48  
+5. Pendulum 09:13  
+6. Oars in the Dusk 06:22 
+
+
+Lineup:
+
+Matti - Vocals
+Jani Kekarainen - Guitars
+Eero Pцyry - Keys
+Lasse Pelkonen - Drums
+
+### "Ordeal" 2015, Doom
+
+1. You  09:21 
+2. Momentary  07:42   
+3. The Departure  09:53    
+4. March Incomplete  12:00    
+5. The Road  06:58   
+6. Closing Music  10:20    
+7. Pouring  09:03  
+8. The March and the Stream  12:27   
+
+
 
 ## Отношения с другими группами
 

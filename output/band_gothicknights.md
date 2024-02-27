@@ -1,9 +1,34 @@
 # Gothic Knights
 
-Дискография
-"Gothic Knights" 1996, Power Metal
-"Kingdom of the Knights" 1999, Power Metal
-"Up From The Ashes" 2003, Power Metal
+
+
+## Дискография
+
+### "Gothic Knights" 1996, Power Metal
+
+1. Creature of the Dark  05:49    
+2. Bridge Keeper  04:43   
+3. Nightmare of the Witch  04:35  
+4. Heart of Sorrow  06:14  
+5. The Magi  03:26  
+6. War in the Sky  04:14  
+7. Darkest Knight  04:31 
+
+### "Kingdom of the Knights" 1999, Power Metal
+
+1. At Dawn You Die  06:48   
+2. War in the Sky  04:21   
+3. Ring of Souls  05:24   
+4. Song of Roland  07:17   
+5. Demons Buried Within  03:58 
+6. The Evil Wizard  05:32 
+7. Keeper of the Gate  07:40   
+8. The Ripper (Judas Priest cover)  02:52 
+
+### "Up From The Ashes" 2003, Power Metal
+
+
+
 
 ## Отношения с другими группами
 

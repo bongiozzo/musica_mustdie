@@ -1,6 +1,9 @@
 # Opus Draconis
 
-Дискография
+black-metal from Portugal
+
+## Дискография
+
 
 ## Отношения с другими группами
 

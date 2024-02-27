@@ -1,6 +1,9 @@
 # Atrocious Devoured
 
-Дискография
+brutal death from France
+
+## Дискография
+
 
 ## Отношения с другими группами
 

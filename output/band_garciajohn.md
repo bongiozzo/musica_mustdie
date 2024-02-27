@@ -1,7 +1,23 @@
 # Garcia, John
 
-Дискография
-"John Garcia" 2014, Rock
+
+
+## Дискография
+
+### "John Garcia" 2014, Rock
+
+01. My Mind
+02. Rolling Stoned
+03. Flower
+04. The Blvd
+05. 5000 Miles
+06. Confusion
+07. His Bullets Energy
+08. Argleben
+09. Saddleback
+10. All These Walls
+11. Her Bullets Energy
+
 
 ## Отношения с другими группами
 

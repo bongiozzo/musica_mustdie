@@ -1,7 +1,32 @@
 # Lorien
 
-Дискография
-"Secrets of the elder" 2002, Power Metal
+Power Metal
+
+## Дискография
+
+### "Secrets of the elder" 2002, Power Metal
+
+1.Ballad Of The Knight  
+2.Merlin The Wizard  
+3.Don't Be Afraid  
+4.he Silent Mermaid   
+5.The Voice Of Saruman   
+6.The Island Of The Dragon   
+7.Aurora Borealis  
+8.Eternal Life 
+
+
+David Tordera. Lead and rhythm guitars, voice and background vocals
+Jordi Tordera. Voice, bass and background vocals
+Dani Ruнz. Drums
+Jaume Corvera. Keyboards
+Josep Tordera. Rhythm and lead guitar
+
+recorded in Ariadna Records Studios, during August and September 2001.
+produced by Quim Mandado (Sangtraпt), and enginered, mixed and mastered by Jordi Gasull
+
+
+
 
 ## Отношения с другими группами
 

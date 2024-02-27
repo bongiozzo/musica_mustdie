@@ -1,10 +1,63 @@
 # Redrum
 
-Дискография
-"War, Blood & Honour" 2005, Death Metal
-"satis[fuck]tion" 2006, Death Metal
-"Mephisto Opressor" 2007, Death Metal
-"World_De_Termination" 2010, Death Metal
+
+
+## Дискография
+
+### "War, Blood & Honour" 2005, Death Metal
+
+1. Blooddawn (Intro) 02:29  
+2. Slayghterday (The Principle ov Death) 06:20
+3. Murderedroom 02:57 [view lyrics] 
+4. XIII (Modern Crusade) 07:43  
+5. PenetratorII [Revenge In Blood] 04:56  
+6. Nahema (Queentessence of Blood) 05:34
+7. Red Night (Harvest of Souls) 06:53  
+8. Requiem (In Memory ov My Brother) 01:36  
+9. Gates ov Sorrow 05:43
+10. Act ov Rebellion (Behemoth cover) 03:28 
+
+### "satis[fuck]tion" 2006, Death Metal
+
+1. Satisfucktion 04:40  
+2. Eyecloser 04:06  
+3. My Knife 05:50  
+4. Slayghterday 05:54  
+5. Murderedroom 02:55  
+6. PenetratorII 04:42  
+7. War For Territory [Sepultura Cover] 04:19
+8. Fuel For Hatred [Satyricon Cover] 03:53 
+9. Act Ov Rebellion [Behemoth Cover] 03:19
+10. Damage Inc. [Metallica Cover] 03:24 
+
+### "Mephisto Opressor" 2007, Death Metal
+
+1. Sa Astridan Sondiczilless 02:37  
+2. I Am [Atropos Kaa] 06:11  
+3. Eyecloser [suizide version] 04:05  
+4. Satis[fuck]tion 04:40  
+5. Uizilopotchtly [A Bloody Centurion] 01:39  
+6. Mephisto Opressor 05:35  
+7. Silence Ov Dead Lambs 03:22  
+8. Ominous World 04:41  
+9. Nameless War 06:21  
+10. Dominate [Morbid Angel Cover] 02:52 
+
+### "World_De_Termination" 2010, Death Metal
+
+1. Enigma Misanthropia 01:48  
+2. End Ov Life 05:53  
+3. World De Termination 05:06  
+4. Generation Of Dead God 04:46  
+5. Kind Ov Suicide 06:33  
+6. Hellfire Attack 06:54  
+7. Dominion 999 06:43  
+8. Karma Nirvana 01:20  
+9. No Mercy Man 06:00  
+10. Under Dying Sun 04:12  
+11. Final Chaotic Eclipse 04:26  
+12. Deduced to Overkill [Zyklon Cover] 02:47 
+
 
 ## Отношения с другими группами
 

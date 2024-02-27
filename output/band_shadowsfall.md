@@ -1,12 +1,111 @@
 # Shadows Fall
 
-Дискография
-"Somber Eyes to the Sky" 1998, Melodic Death Metal
-"Of One Blood" 2000, Melodic Death Metal
-"The Art of Balance" 2003, Melodic Death Metal
-"The War Within" 2004, Melodic Death Metal
-"Fallout From The War" 2006, Melodic Death Metal
-"Threads of Life" 2007, Metalcore
+
+
+## Дискография
+
+### "Somber Eyes to the Sky" 1998, Melodic Death Metal
+
+
+
+### "Of One Blood" 2000, Melodic Death Metal
+
+1 Plain Glass Vision :48 (Shadows Fall) 
+2 Curshing Belial 5:25 (Shadows Fall) 
+3 Of One Blood 4:45 (Shadows Fall) 
+4 First Noble Truth 4:14 (Shadows Fall) 
+5 Fleshold 3:37 (Shadows Fall) 
+6 Root Bound Apollo 6:19 (Shadows Fall) 
+7 Revel in My Loss 5:27 (Shadows Fall) 
+8 Montauk 4:22 (Shadows Fall) 
+9 To Ashes 6:01 (Shadows Fall) 
+10 Serenity 4:58 (Shadows Fall) 
+
+
+
+### "The Art of Balance" 2003, Melodic Death Metal
+
+Disc 1. 
+01. Idle Hands
+02.Thoughts Without Words
+03. Destroyer Of Senses
+04. Casing Shade
+05. Stepping Outside The Circle
+06. The Art Of Balance
+07. Mystery Of One Spirit
+08. The Idiot Box
+09. Prelude To Disaster
+10. A Fire In Babylon
+11. Welcome To The Machine
++ "Thoughts Without Words" video-clip enhancement. 
+
+Disc 2.
+CD-ROM (Mac/PC compatible): bio, photo gallery (50 images), video interview, links, three live video's: Destroyer Of Senses, Thoughts Without Words, Of One Blood.
+
+Brian Fair - vocals 
+Jonathan Donais - guitar 
+Matthew Bachand - guitar 
+Paul Romanco - bass 
+Jason Bittner - drums
+
+### "The War Within" 2004, Melodic Death Metal
+
+1. The Light That Blinds 
+2. Enlightened By the Cold 
+3. Act of Contrition 
+4. What Drives the Weak Video 
+5. Stillness 
+6. Inspiration on Demand 
+7. The Power of I and I MP3 
+8. Ghosts of Past Failure 
+9. Eternity Within 
+10. Those Who Can Not Speak 
+
+Line-Up: 
+Brian Fair - vocals 
+Jonathan Donais - guitar 
+Matthew Bachand - guitar 
+Paul Romanko - bass 
+Jason Bittner - drums
+
+### "Fallout From The War" 2006, Melodic Death Metal
+
+1. In Effigy; 
+2. Will To Rebuild; 
+3. Haunting Me Endlessly; 
+4. Seize The Calm; 
+5. Carpal Tunnel; 
+6. Going, Going, Gone; 
+7. Deadworld; 
+8. This Is My Own; 
+9. December; 
+10. Mark Of The Squealer; 
+11. Teasn', Pleasn'
+
+All songs written by SHADOWS FALL
+Produced, engineered and mixed by Zeuss and SHADOWS FALL
+Recorded and mixed at Planet Z, Hadley, MA
+
+Brian Fair - Vocals
+Matthew Bachand - Guitars, Vocals
+Jonathan Donais - Lead Guitars, Vocals
+Paul Remanko - Bass
+Jason Bittner - Drums
+
+### "Threads of Life" 2007, Metalcore
+
+1. Redemption   
+2. Burning The Live   
+3. Stormwinds   
+4. Failure Of The Devout   
+5. Venomous   
+6. Another Lost Hero   
+7. Final Call   
+8. Dread Uprising   
+9. The Great Collapse   
+10. Just Another Nightmare   
+11. Forevermore
+
 
 ## Отношения с другими группами
 

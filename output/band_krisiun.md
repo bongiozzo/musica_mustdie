@@ -1,13 +1,111 @@
 # Krisiun
 
-Дискография
-"The Conquerors Of Armageddon" 2000, Deathcore
-"Ageless Venomous" 2001, Deathcore
-"Works Of Carnage" 2003, Deathcore
-"Bloodshed" 2004, Deathcore
-"Assassination" 2006, Deathcore
-"Southern Storm" 2008, Deathcore
-"The Great Execution" 2011, Deathcore
+Brutal death metal
+
+## Дискография
+
+### "The Conquerors Of Armageddon" 2000, Deathcore
+
+Intro (Ravager)
+Abyssal Gates
+Soul Devourer
+Messiah's Abomination
+Cursed Scrolls
+Conquerors of Armageddon
+Hatred Inherit
+Iron Stakes
+Endless Madness Descends
+
+### "Ageless Venomous" 2001, Deathcore
+
+01 - Perpetuation
+02 - Dawn Of Flagellation
+03 - Ageless Venomous
+04 - Evil Gods Havoc
+05 - Eyes Of Eternal Scourge
+06 - Saviours Blood
+07 - Serpents Specters
+08 - Ravenous Hordes
+09 - Diableros
+10 - Sepulchral Oath
+
+### "Works Of Carnage" 2003, Deathcore
+
+
+
+### "Bloodshed" 2004, Deathcore
+
+1. Slain Fate 
+2. Ominous 
+3. Servant Of Emptiness 
+4. Eons 
+5. Hateful Nature 
+6. Visions Beyond 
+7. Voodoo 
+8. They Call Me Death 
+9. Unmerciful Order 
+10. Crosses Toward Hell 
+11. Infected Core 
+12. Outro / MMIV 
+
+Line-Up: 
+Alex Camargo - vocals/bass 
+Moyses Kolesne - guitar 
+Max Kolesne - drums
+
+### "Assassination" 2006, Deathcore
+
+1. Bloodcraft (5.48); 
+2. Natural Genocide (2.29); 
+3. Vicious Wrath (3.54); 
+4. Refusal (4.49); 
+5. H.O.G. (House Of God) (3.21); 
+6. Father's Perversion (4.49); 
+7. Suicidal Savagery (4.23); 
+8. Doomed (1.00); 
+9. United In Deception (4.52); 
+10. Decimated (4.08); 
+11. Summon (0.49); 
+12. Sweet Revenge * (4.04)
+
+All songs written by KRISIUN
+except * written by MOTORHEAD
+Produced and recorded by Andy Classen at Stage One Studios
+
+Alex Camargo - Vocals and Bass
+Moyses Kolesne - Guitars
+Max Kolesne - Drums
+
+### "Southern Storm" 2008, Deathcore
+
+01. Slaying Steel
+02. Sentenced Morning
+03. Twisting Sights
+04. Minotaur
+05. Combustion Inferno
+06. Massacre Under the Sun
+07. Bleeding Offers
+08. Refuse/Resist
+09. Origin of Terror
+10. Contradictions of Decay
+11. Sons of Pest
+12. Black Wind
+13. Whore of the Unlight
+
+### "The Great Execution" 2011, Deathcore
+
+1. The Will To Potency 06:23 
+2. Blood Of Lions 05:06 
+3. The Great Execution 05:18 
+4. Descending Abomination 05:45 
+5. The Extremist 05:57 
+6. The Sword Of Orion 07:59 
+7. Violentia Gladiatore 05:37 
+8. Rise And Confront 05:13 
+9. Extincao Em Massa 06:01 
+10. Shadows Of Betrayal 08:38
+
+
 
 ## Отношения с другими группами
 

@@ -1,20 +1,240 @@
 # Theatre of Tragedy
 
-Дискография
-"Theatre Of Tragedy" 1995, Death Doom
-"Velvet Darkness They Fear" 1996, Death Doom
-"A Rose For The Dead" 1997, Death Doom
-"Aegis" 1998, Death Doom
-"Virago" 1999, Death Doom
-"Musique" 2000, Industrial
-"Inperspective" 2000, Death Doom
-"Machine" 2001, Industrial
-"Assembly" 2002, Industrial
-"Storm" 2006, Gothic
-"Storm (single)" 2006, Gothic
-"Deadland (single)" 2009, Gothic
-"Forever is the World " 2009, Gothic
-"Last Curtain Call [DVD/CD]" 2011, Gothic
+
+
+## Дискография
+
+### "Theatre Of Tragedy" 1995, Death Doom
+
+1. A Hamlet For A Slothful Vassal
+2. Cheerful Dirge
+3. To These Words I Beheld No Tongue
+4. Hollow-Hearted, Heart-Departed
+5. ...A Distance There Is...
+6. Sweet Art Thou
+7. Mire
+8. Dying - I Only Feel Apath
+9. Monotone
+
+All Songs Written By THEATRE OF TRAGEDY.
+Engineered By Dan Swano.Recorded At Unisound,Sweden,1995.
+
+Raymond T.Rohonyi - Vocals
+Liv Kristine Espences - Soprano
+Pal Bjastad - Guitars
+Tommy Lindal - Guitars
+Eirik T.Saltro - Bass
+Hein Frode Hansen - Drums
+Lorentz Aspen - Piano,Synth
+
+(P)&(C) 1995 MASSACRE Records
+
+### "Velvet Darkness They Fear" 1996, Death Doom
+
+1. Velvet Darkness They Fear
+2. Fair And 'Guiling Copesmate Death
+3. Bring Forth Ye Shadow
+4. Seraphic Deviltry
+5. And When He Falleth
+6. Der Tanz Der Schatten
+7. Black As Devil Painteth
+8. On Whom The Doth Shine
+[9].The Masquerader And The Phoenix
+
+[9] - На стороне B
+
+All Songs Written By THEATRE OF TRAGEDY.
+Produced By Pete Coleman.
+Engineered By Gerhard Magin.
+Recorded & Mixed At Commusication Studios, Germany.
+
+Raymond T.Rohonyi - Vocals
+Liv Kristine Espences - Soprano
+Geir Flikkeid - Guitars
+Tommy Lindal - Guitars
+Eirik T.Saltro - Bass
+Hein Frode Hansen - Drums
+Lorentz Aspen - Piano, Synth
+
+(P)(C) 1996 MASSACRE Records
+
+### "A Rose For The Dead" 1997, Death Doom
+
+1. A Rose For The Dead
+2. Der Spiegel
+3. As The Shadows Dance
+4. and When He Falleth
+5. Black As The Devil Painteth
+6. Decades
+
+Raymond I. Rohonyi
+Liv Kristine Espenaes
+Tommy Lindal
+Eirik T. Saltro
+Hein Frode Hansen
+Lorentz Aspen
+
+(p)(c)1997 MASSACRE RECORDS
+
+### "Aegis" 1998, Death Doom
+
+1. Cassandra
+2. Lorelei
+3. Angelique
+4. Aoede
+5. Siren
+6. Samantha
+7. Venus
+8. Poppaea
+9. Bacchante
+Raymond I. Rohonyi - Vocals
+Liv Kristine Espenaes - Vocals
+Lorentz Aspen - Synthesizer
+Frank Claussen - Guitars
+Tommy Olsson - Guitars
+Eirik T. Saltro - Bass
+Hein Frode Hansen - Drums
+(p)(c)1998 Massacre Records
+
+### "Virago" 1999, Death Doom
+
+
+
+### "Musique" 2000, Industrial
+
+Machine 
+City of light 
+Fragment 
+Musique 
+Commute 
+Radio 
+Image 
+Crash / Concrete 
+Retrospect 
+Reverie 
+Space Age 
+The New Man (bonustrack) 
+
+
+### "Inperspective" 2000, Death Doom
+
+01  Samantha                                  04:14
+02  Virago                                    05:23
+03  Lorelei (Icon Of Coil Remix)              05:48
+04  The Masquerader And Phoenix (Phoenix Mix) 05:32
+05  On Whom The Moon Doth Shine (Unhum Mix)   05:17
+06  Der Tanz Der Schatten (Club Mix)          05:15
+
+### "Machine" 2001, Industrial
+
+Machine
+Machine (Vny Nation Remix)
+Machine (Element/Tarsis Remix)
+Radio (Kallisti Remix)
+Reverie (Current@Hill Mix)
+Image (Version Tranqaise)
+
+### "Assembly" 2002, Industrial
+
+1. Automatic Lover
+2. Universal Race
+3. Episode
+4. Play
+5. Superdrive
+6. Let you down
+7. Starlit
+8. Envision
+9. Flickerlight
+10. Liquid Man
+11. Motion
+
+### "Storm" 2006, Gothic
+
+01. Storm
+02. Silence
+03. Ashes and Dreams
+04. Voices
+05. Fade
+06. Begin & End
+07. Senseless
+08. Exile
+09. Disintegration
+10. Debris
+
+### "Storm (single)" 2006, Gothic
+
+01. Storm (album version)
+02. Begin & End (album version)
+03. Beauty in Deconstruction (unreleased track)
+04. Storm (Rustflower Inc. tornado mix)
+
+### "Deadland (single)" 2009, Gothic
+
+1. Deadland 04:40  
+2. Hide And Seek 05:24 
+
+
+### "Forever is the World " 2009, Gothic
+
+1. Hide And Seek 04:27  
+2. A Nine Days Wonder 03:30  
+3. Revolution 03:35  
+4. Transition 03:26  
+5. Hollow 03:48  
+6. Astray 02:57  
+7. Frozen 04:09  
+8. Illusions 03:51  
+9. Deadland 03:46  
+10. Forever Is The World 04:17 
+
+
+Line-up:
+
+Nell Sigland - Vocals
+Raymond Istvбn Rohonyi - Vocals, Programming
+Vegard K. Thorsen - Guitars
+Frank Claussen - Guitars
+Lorentz Aspen - Keyboards, Piano
+Hein Frode Hansen - Drums
+
+Release dates:
+Germany, Switzerland, Austria: September 18
+Rest of Europe: September 21
+Russia: October
+Japan: October 21 (via Marquee/Avalon)
+North America: October 27
+
+The album was recorded at Room 13 studios in Oslo with producer Alexander
+Mшklebust (Zeromancer, Seigmen, Gate, Monomen, Delaware). The mastering was
+handled by Bjшrn Engelmann at the Cutting Room in Sweden.
+
+Cover art by Thomas Ewerhard.
+
+The album will be available in three different versions: a limited digipack
+with one bonus song, a very limited double vinyl version with two bonus tracks,
+and a regular jewelcase. 
+
+### "Last Curtain Call [DVD/CD]" 2011, Gothic
+
+1. Hide and Seek  05:56    
+2. Bring forth Ye Shadow  05:49  
+3. Lorelei  05:04   
+4. Frozen  05:21 
+5. Ashes and Dreams  04:10  
+6. A Rose for the Dead  05:15    
+7. Fragment  03:55    
+8. And when He Falleth  06:40    
+9. Venus  04:37    
+10. Hollow  06:24  
+11. Storm  03:56    
+12. Image  03:17   
+13. Cassandra  03:55    
+14. A Hamlet for a Slothful Vassal  04:27    
+15. Fade  06:10    
+16. Machine  04:59    
+17. Der Tanz der Schatten  07:08 
+18. Forever is the World  07:35 
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,52 @@
 # Incubus
 
-Дискография
-"Serpent Temptation" 1988, Death Metal
-"Beyond The Unknown" 1990, Death Metal
+
+
+## Дискография
+
+### "Serpent Temptation" 1988, Death Metal
+
+1. The Battle  Of Armageddon
+2. Voices From The Grave
+3. Sadistic Sinner
+4. Incubus
+5. Blaspheming Prophets
+6. Hunger For Power
+7. Surpent Temptation
+8. Underground Killers
+
+ Francis M.Howard - Guitar
+ Moyses M.Howard - Drums
+ Scott W.Latous - Vocals, Bass
+
+(p)&(c) 1988 METALWORKS/RADIUM
+
+### "Beyond The Unknown" 1990, Death Metal
+
+1. Certain Accuracy
+2. The Deceived Ones
+3. Curse Of The Damned Cities
+4. Beyond The Unknown
+5. Freezing Torment
+6. Massacre Of The Unborn
+7. On The Burial Ground
+8. Mortify
+
+ Francis M.Howard - Vocal & Guitar
+ Moyses M.Howard - Drums
+ Mark Lavenia - Bass
+
+All Bass In This Album By :Francis M.Howard.
+All Music By: Francis M.Howard.
+All Lyrics By: Francis M.Howard &
+Moyses M.Howard.
+Produced By INCUBUS & Tom Morris.
+Executive Producer: Markus Staiger.
+Recorded & Mixed At Morrisound Recordings,
+Tampa,Florida (June 1990).
+
+(p)&(c) 1990 NUCLEAR BLAST Records NB039
+
 
 ## Отношения с другими группами
 

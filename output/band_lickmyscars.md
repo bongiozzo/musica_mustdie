@@ -1,7 +1,22 @@
 # Lick My Scars
 
-Дискография
-"Отражая Тени" 2008, Metalcore
+
+
+## Дискография
+
+### "Отражая Тени" 2008, Metalcore
+
+1. Otvet (The Answer) 03:04  
+2. Pesochnye Chasy (Sandglass) 04:22  
+3. Vrag Vnutri (The Enemy Inside) 03:19  
+4. Dotla (Burnt to the Ground) 03:58  
+5. Tak Govoril Zaratustra (Thus Spake Zarathustra) 04:17  
+6. Greh (The Sin) 03:14  
+7. On Risoval (He was Painting) 03:39  
+8. Day Mne Pokoy (Give me the Rest) 03:26  
+9. Put (The Way) 03:17  
+10. Otrazhaya Teni (Reflecting the Shadows) 03:33 
+
 
 ## Отношения с другими группами
 

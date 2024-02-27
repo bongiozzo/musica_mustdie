@@ -1,12 +1,73 @@
 # Wolfs Moon
 
-Дискография
-"Solitary Lunacy" 1996, Heavy Metal
-"Eternal Flame" 1997, Heavy Metal
-"Elysium Dreams" 1999, Heavy Metal
-"Black-Knight-Legacy" 2001, Heavy Metal
-"Keep Metal Alive" 2004, Heavy Metal
-"Unholy Darkness" 2008, Heavy Metal
+
+
+## Дискография
+
+### "Solitary Lunacy" 1996, Heavy Metal
+
+1.	 Shades of Moon	06:05	 
+2.	 Paralyzed	07:30	 
+3.	 Reborn	03:42	 
+4.	 Best Moments	05:47	 
+5.	 The Chase	05:39	 
+6.	 Brotherhood of Wolves	05:50	 
+7.	 Candle in the Wind	04:56	 
+8.	 Tears in Little Eyes	04:56	 
+9.	 River into the Unknown	07:38	 
+10.	 Witchblade	05:31	 
+11.	 My Way of Independence	03:13	 
+12.	 Beginning of the End	04:11	
+
+### "Eternal Flame" 1997, Heavy Metal
+
+1.	 Underdog	04:11	 
+2.	 Shadowhawk	06:05	 
+3.	 To Hell and Back	06:14	 
+4.	 Second Sadness	06:01	 
+5.	 Cross of the Crypt	04:22	 
+6.	 Savage Heart	03:50	 
+7.	 Palace of Pain	04:23	 
+8.	 Howls of Silence	06:07	 
+9.	 Firehead	05:25	 
+10.	 Witchblade	08:51	
+
+### "Elysium Dreams" 1999, Heavy Metal
+
+
+
+### "Black-Knight-Legacy" 2001, Heavy Metal
+
+
+
+### "Keep Metal Alive" 2004, Heavy Metal
+
+1.	 I Still Believe in Metal	05:24	 
+2.	 Reborn with a Black Heart	04:13	 
+3.	 Timestream Horrorsphere	05:45	 
+4.	 Temple of Eternity	05:17	 
+5.	 Lonely at the Gates	05:11	 
+6.	 Demon-Skull	04:37	 
+7.	 Vampire Wasteland	04:51	 
+8.	 Bloodstorm On a Nightwing	05:38	 
+9.	 Power and Disaster	04:32	 
+10.	 I Hate this Universe	04:22	 
+11.	 Killing Kayne (bonus track)	02:59	
+
+### "Unholy Darkness" 2008, Heavy Metal
+
+1	Killing Kayne	3:48	
+2	Unholy Darkness	6:55	
+3	Necrocity Of The Damned	5:41	
+4	Underworld Warrior	5:05	 
+5	Paradise Of Immortal Shadows	6:02	 
+6	Prayers For The Storm	5:17	 
+7	Wicked Testimony	5:30	 
+8	Soultaker	5:40	 
+9	Deliver Me From Evil	7:10	 
+10	Hallowed Moonshine	7:07	 
+11	Hell-Headbanger	6:54	 
+
 
 ## Отношения с другими группами
 

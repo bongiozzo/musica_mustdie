@@ -1,10 +1,25 @@
 # Virgin Snatch
 
-Дискография
-"S.U.C.K." 2003, Thrash
-"Art Of Lying " 2005, Thrash
-"In The Name Of Blood" 2006, Thrash
-"Act Of Grace " 2008, Thrash
+
+
+## Дискография
+
+### "S.U.C.K." 2003, Thrash
+
+
+
+### "Art Of Lying " 2005, Thrash
+
+
+
+### "In The Name Of Blood" 2006, Thrash
+
+
+
+### "Act Of Grace " 2008, Thrash
+
+
+
 
 ## Отношения с другими группами
 

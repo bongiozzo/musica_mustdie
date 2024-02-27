@@ -1,11 +1,130 @@
 # Mandragora Scream
 
-Дискография
-"Fairy Tales From Hell's Caves" 2001, Gothic
-"A Whisper of Dew" 2003, Gothic
-"Madhouse" 2006, Gothic
-"Volturna" 2009, Gothic
-"Luciferland" 2012, Gothic
+gothic metal from Italy
+
+## Дискография
+
+### "Fairy Tales From Hell's Caves" 2001, Gothic
+
+Fairy 
+The Time Of Spells 
+Fire Tear Drops 
+Brain Storm 
+Cryin' Clouds 
+Angel Dust 
+Little Zombies 
+Child Of The Moon 
+Starquake 
+Fairy Tales From Hell's Caves (Eva's Stardust) 
+
+
+
+Ideas, conception and lyrics by Morgan Lacroix
+Compositions and arrangements by Terry Horn
+Engineered and mixed by Luigi Stefanini at New Sin Studio(TV) Italy between September and October 2000
+Computer graphics and webdesign by Wizard
+Photos by Guiseppe D`Angelo
+Cover artwork by Guiseppe D`Angelo, Morgan Lacroix & Terry Horn
+
+
+
+
+Morgan Lacroix - Vocals
+Terry Horn - Guitar
+John Peter Morris - Guitar
+Luigi Stefanini - additional guitars and keyboards
+
+
+
+
+### "A Whisper of Dew" 2003, Gothic
+
+01. Isserggia`s Hope
+02. Silent Lullabies
+03. A Vision They Shared
+04. Velvet Eyes
+05. IIaonman Iifbiich Vampires
+06. Labyrinths Of Earth
+07. Lactate Veins
+08. Bloody Ballade
+09. Rainbow Seeker
+10. Close Every Door
+11. Crow`s Love
+12. A Whisper Of A Dew
+
+Morgan Lacroix - Vocals
+Terry Horn - Guitar
+Jack Lowell Halleyn - Keyboards
+Mattia Stancioiu - Drums
+
+Lyrics ideas & concept by Morgan Lacroix
+Inspired by the book A Whisper Of A Dew by Julio
+Angel Olivares Merino
+Music composed & arranged by Terry Horn
+
+Special guests:
+Luigi Stefanini: additional guitar, piano in
+Velvet Eyes.
+Cristina Jurado: additional vocals & Daniel de
+Torres: violin from Chamber Of Nimphs
+Recorded in September 2002 at New Sin Studio
+Mixed by Luigi Stefanini
+Cover art & booklrt by Morgan Lacroix
+Produced by Morgan Lacroix & Terry Horn
+
+### "Madhouse" 2006, Gothic
+
+1 Vlad  
+2 Dark Lantern 
+3 Redeemer  
+4 Frail Midnight  
+5 Blight Thrills  
+6 Frozen Space  
+7 Haunted Heart
+8 Silences  
+9 Omen Reveries 
+10 Ghost Of Swan
+11 Lifeless Haze  
+12 Nightfall
+
+### "Volturna" 2009, Gothic
+
+1. Lui 02:12  
+2. I'm Goin' Alone 04:24
+3. The Circus 04:20
+4. Deceiver 03:38
+5. Breaking Dawn 03:36
+6. Killin' Game 03:21
+7. Blindness 04:22 
+8. Farewell 04:28
+9. A Chance from Him 03:29
+10. The Calling from Isaia 04:33
+11. Bang Bang (Cher cover) 03:12  
+12. The Seagull's Creed 03:39
+13. Fade to Grey (Visage cover) 03:18  
+14. Nails 05:33
+15. Heartbound Eve 05:22 
+
+### "Luciferland" 2012, Gothic
+
+1. The Chant Of Furies 
+2. Hekate - En Erebos Phos 
+3. Persephone 
+4. Anubis 
+5. The Illusionist 
+6. Medusa 
+7. The Veil Of Neith 
+8. Six Grains Of Pomegranate 
+9. Night's Master (Azhrarn & Sivesh) 
+10. Lamia 
+11. Love For Endymion 
+12. Lucifer's Ballade 
+13. Titan - Extraterrestrial Suicide 
+14. Lucifer’s Lullaby
+
+
+The sale of the album will be done thru the official site and gattimusic.com and each album will contain a parchment with Morgan’s autograph and with her kiss, each piece being of course customized by Morgan herself. 
+
 
 ## Отношения с другими группами
 

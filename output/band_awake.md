@@ -1,8 +1,38 @@
 # Awake
 
-Дискография
-"Illumination" 2007, Progressive
-"Forever More" 2011, Progressive
+
+
+## Дискография
+
+### "Illumination" 2007, Progressive
+
+1. Disbelief  03:23  
+2. Retribution  03:29    
+3. Crime of Passion  04:16   
+4. Choices of Time  04:31   
+5. Begin Again  03:56    
+6. The Price You Have to Pay  04:22
+7. Dream Within  04:22    
+8. Illumination  04:12    
+9. Forgive Now Forever  04:28   
+10. My Last Goodbye  06:12    
+11. Shadows  05:33 
+
+### "Forever More" 2011, Progressive
+
+01. Intro - Into The Storm
+02. Out Of Control
+03. Release Me
+04. Drift Away 
+05. Taken
+06. Closing The Doors
+07. Bleed From You
+08. For The Moment
+09. Hold On
+10. One Wish
+11. King
+12. Forever More
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,17 @@
 # The Equinox ov the Gods
 
-Дискография
-"Images Of Forgotten Memories" 1996, Doom
-"Fruits and Flowers of the Spectral Garden" 1997, Doom
+greatest Dark  Doom Metal
+
+## Дискография
+
+### "Images Of Forgotten Memories" 1996, Doom
+
+
+
+### "Fruits and Flowers of the Spectral Garden" 1997, Doom
+
+
+
 
 ## Отношения с другими группами
 

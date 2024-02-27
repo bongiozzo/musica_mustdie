@@ -1,7 +1,22 @@
 # Collide
 
-Дискография
-"All That Oppress" 2008, Thrash
+
+
+## Дискография
+
+### "All That Oppress" 2008, Thrash
+
+1. Declaration Of War 01:56  
+2. Another Man 02:30  
+3. Pull The Trigger 02:04  
+4. Dogma 03:01  
+5. Instrumental 01:47  
+6. Out Of Control 02:39  
+7. Go Insane 02:47  
+8. Thread Of Life 03:39  
+9. Dead-Alive 03:04  
+10. I Don't Care 02:55 
+
 
 ## Отношения с другими группами
 

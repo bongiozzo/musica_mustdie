@@ -1,7 +1,46 @@
 # Ragnarok
 
-Дискография
-"To Mend the Oaken Heart" 1997, Black Metal
+Black Metal Band from the U.K.
+
+## Дискография
+
+### "To Mend the Oaken Heart" 1997, Black Metal
+
+1.  Hoeled Under Heofenum [4:10]
+2.  Rekindling an Old Flame [10:20]
+3.  ...And the Earth Shall Be Holy [8:36]
+4.  Arose by Another Name [3:08]
+5.  Passion to a Golden Dawn [5:20]
+6.  Where Once Ravens... [6:50]
+7.  Fortuna Imperatrix Mundi [5:54]
+8.  Heartfire and Forge [11:26]
+9.  To Mend the Oaken Heart [5:09]
+10.  Samhain [demo] - <i>on Japanese version</i> [5:52]
+
+Heartfire and Forge is for Catherine,
+"Could e'er the heart that burned so true
+Be lost forever from my view!"
+
+Line-up:
+De&ouml;rth - bass/vocals
+Stenf&auml;lt - lead and acoustic guitars
+Senrith - keyboards
+Ashrath - guitar/fiddle
+
+Additional artists:
+Jay Hawk - bodhran
+Ruari Mears - didgeridoo
+Dawn James & Glenn Howes - backing vocals
+
+All music by RAGNAROK and all lyrics by De&ouml;rth
+except 'Fortuna Imperatrix Mundi' - words and music by Carl Orff (1895-1982)
+
+Recorded at Impulse Studios, Tyne & Wear, August/September '96
+Engineered by Keith Nicholl and Peter Carr
+Produced by Keith Nicholl, Peter Carr and RAGNAROK
+Cover artwork and design by De&ouml;rth. Layout by Andy Warwick
+Band photo by Adrian Lee
+
 
 ## Отношения с другими группами
 

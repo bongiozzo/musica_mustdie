@@ -1,12 +1,141 @@
 # Beastie Boys
 
-Дискография
-"Some Old Bullshit 1981-1984" 1984, Rap Metal
-"Licensed To Ill" 1986, Rap Metal
-"Paul's Boutique" 1989, Rap Metal
-"Check Your Head" 1992, Rap Metal
-"Ill Communication" 1994, Rap Metal
-"Root Down" 1995, Rap Metal
+
+
+## Дискография
+
+### "Some Old Bullshit 1981-1984" 1984, Rap Metal
+
+Rare Early Recordings
+1.  Egg Raid On Mojo
+2.  Beastie Boys
+3.  Transit Cop
+4.  Jimi
+5.  Holy Snappers
+6.  Riot Fight
+7.  Ode To:
+8.  Michelle's Farm
+9.  Egg Raid On Mojo (Remix)
+10.Transit Cop (Remix)
+11.Cooky Puss
+12.Beastie Revolution
+13.Cooky Puss (Censored Version)
+
+(P)c 1981-1984 DEF JAM Records
+
+### "Licensed To Ill" 1986, Rap Metal
+
+1.  Rhymin' & Stealin'
+2.  The New Style
+3.  She's Crafty
+4.  Posse In Effect
+5.  Slow Ride
+6.  Girls
+7.  Fight For Your Right
+8.  No Sleep 'Till Brooklyn
+9.  Paul Revere
+10.Hold It Now, Hit It
+11.Brass Monkey
+12.Slow And Low
+13.Time To Get Ill
+
+Produced By Rick Rubin & BEASTIE BOYS.
+Guest Guitar By Kerry King (SLAYER).
+
+Ripper MCA (Adam Yauch)
+Mike D (Michael Diamond)
+King Ad Rock (Adam Horowitz)
+
+(P)(C) 1986 DEF JAM Records
+
+### "Paul's Boutique" 1989, Rap Metal
+
+1.  Shake Your Rump
+2.  Johnny Ryall
+3.  The Rains Drifter
+4.  The Sounds Of Science
+5.  Hey Ladies
+6.  Looking Down The Barrell Of A Gun
+7.  Car Thief
+8.  What Comes Around
+9.  Shadrach
+10.B-Boy Bouillabaisse
+    a) 59 Chrystie Street
+    b) Get On The Mic
+    c) Stop That Train
+    d) A Year And A Day
+    e) Hello Brooklyn
+    f) Dropping Names
+    g) Lay It On Me
+    h) Mike On The Mic
+    i) A.W.O.L. 
+
+(P)(C) 1989 CAPITOL Records
+
+### "Check Your Head" 1992, Rap Metal
+
+1.  Jimmy James
+2.  Funky Boss
+3.  Pass The Mic
+4.  Gratitude
+5.  Lighten Up
+6.  Finger Lickin' Good
+7.  So What'cha Want
+8.  The Biz-Vs-The Nuge
+9.  Time For Livin'
+10.Somethings Got To Give
+11.The Blue Nun
+12.Stand Together
+13.Pow
+14.The Maestro
+15.Groove Holmes
+16.Live At PJ's
+17.Namaste
+18.Professor Booty
+19.In 3's
+
+(P)(C) 1992 CAPITOL Records
+
+### "Ill Communication" 1994, Rap Metal
+
+1.  Sure Shot
+2.  Tough Guy
+3.  B-Boys Makin' With The Freak Freak
+4.  Bobo On The Corner
+5.  Root Down
+6.  Sabotage
+7.  Get It Together
+8.  Sabrosa
+9.  The Update
+10.Futterman's Rule
+11.Alright Hear This
+12.Eugene's Lament
+13.Flute Loop
+14.Do It
+15.Ricky's Theme
+16.Heart Attack Man
+17.The Scoop
+18.Shambala
+19.Bodhisattva Vow
+20.Transitions
+
+(P)c 1994 DEF JAM Records
+
+### "Root Down" 1995, Rap Metal
+
+1.  Root Down (Free Zone Mix)
+2.  Root Down (LP)
+3.  Root Down (PP Ballon Mix)
+4.  Time To Get Ill
+5.  The Maestro
+6.  Heart Attack Man
+7.  Sabrosa
+8.  Flute Loop
+9.  Time For Livin'
+10.Something's Got To Give
+
+(P)(C) 1995 CAPITOL Records
+
 
 ## Отношения с другими группами
 

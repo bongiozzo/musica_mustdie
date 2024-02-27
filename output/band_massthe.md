@@ -1,7 +1,18 @@
 # Mass, The
 
-Дискография
-"Towards Darkness" 2004, Doom
+
+
+## Дискография
+
+### "Towards Darkness" 2004, Doom
+
+01 drifting	8:07.25
+02 abscence	7:01.74
+03 the beacon	8:06.19
+04 despair	6:29.59
+05 vile requiem	8:57.28
+06 towards darkness	7:50.59
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,33 @@
 # Strana Officina
 
-Дискография
-"Rock & Roll Prisoners" 1989, Heavy Metal
-"Rising to the Call" 2010, Heavy Metal
+
+
+## Дискография
+
+### "Rock & Roll Prisoners" 1989, Heavy Metal
+
+1. King Troll
+2. War Games
+3. The Kiss of Death
+4. Black Moon
+5. Rock & Roll Prisoner
+6. Bruning Wings	 
+7. Falling Star
+8. Don't Cry
+
+### "Rising to the Call" 2010, Heavy Metal
+
+1. In Rock We Trust
+2. Boogeyman
+3. Pyramid
+4. Nightflyer
+5. Beat the Hammer
+6. Gone Tomorrow
+7. Life: When Is Gone!
+8. Media Messiah
+9. Amore e Fuoco	 
+10. Non Sei Normale
+
 
 ## Отношения с другими группами
 

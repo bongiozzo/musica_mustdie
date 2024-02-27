@@ -1,7 +1,36 @@
 # Funebre
 
-Дискография
-"Children Of The Scorn" 1991, Deathcore
+
+
+## Дискография
+
+### "Children Of The Scorn" 1991, Deathcore
+
+1. Waiting For The Arrival
+2. Sinner`s Eve
+3. Blood On White
+4. Shiver
+5. Congenital Defeat
+6. Walls That Held Screams
+7. Spirits Bewail
+8. Slumber End
+9. Redeemed From Time
+10.Grip Of Insanity
+
+ Jari Heinonen - Vocals
+ Sami Uusitalo - Lead Guitar
+ Esa Vahasoyrinki - Rhythm Guitar
+ Erkki Hellen - Bass
+ Toni Uusitalo - Drums
+
+All Songs - FUNEBRE 1990-91.
+Produced By FUNEBRE & T.Tolkki.
+Engineered By T.Tolkki.
+Recorded & Mixed At TTT - Music Studio,
+Helsinki - June/July `91.
+
+(p)&(c) 1991 SPINEFARM Records
+
 
 ## Отношения с другими группами
 

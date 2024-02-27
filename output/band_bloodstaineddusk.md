@@ -1,9 +1,38 @@
 # Blood Stained Dusk
 
-Дискография
-"Dirge of Deaths Silence" 2001, Black Metal
-"Continuance of Evil" 2004, Black Metal
-"Black Faith Inquisition" 2008, Black Metal
+
+
+## Дискография
+
+### "Dirge of Deaths Silence" 2001, Black Metal
+
+1. Moon Behind the Storm 08:45
+2. Bringer of Everlasting Damnation 05:38
+3. Renounce the Dawn 07:19 
+4. The Infernal Praise 05:23
+5. Vastland of the Empire Lost 08:07
+6. Sanguinas Path - The Blood I Follow 06:33
+7. Funeral of Lamentation 09:21 
+
+### "Continuance of Evil" 2004, Black Metal
+
+1. Invocation to Baphomet 03:44  
+2. Rentum Tormentum 11:24 
+3. Continuance of Evil 10:13
+4. Purified by Steel and Inquisition 12:32
+5. Rebirth of the Wretched... I Live Again 07:22 
+
+### "Black Faith Inquisition" 2008, Black Metal
+
+1. March to Death (Intro) 04:45  
+2. Of Wolf?s Blood 11:08  
+3. Coven of the Dying Sun 10:00  
+4. Conquering the Avarice of Mortality 09:34  
+5. Eve of Maelstrom 10:22  
+6. Astrum Obscurum 13:41  
+7. Ashes from a Burning Heaven 09:23  
+8. The Knell Resounding (Outro) 02:34 
+
 
 ## Отношения с другими группами
 

@@ -1,11 +1,106 @@
 # Andrew Lloyd Webber
 
-Дискография
-"Jesus Christ Superstar (MCA Original Cast Recording)" 1970, Hard Rock
-"Evita (American)" 1979, Hard Rock
-"Phantom of Opera" 1980, Hard Rock
-"Cats" 1982, Hard Rock
-"Requiem" 1995, Hard Rock
+
+
+## Дискография
+
+### "Jesus Christ Superstar (MCA Original Cast Recording)" 1970, Hard Rock
+
+1. Overture  3:56  
+2. Heaven on Their Minds  4:21  
+3. What's the Buzz/Strange Thing Mystifying  4:13  
+4. Everything's Alright  5:14  
+5. This Jesus Must Die  3:33  
+6. Hosanna  2:08  
+7. Simon Zealotes/Poor Jerusalem  4:47  
+8. Pilate's Dream  1:26  
+9. Temple  4:40  
+10. Everything's Alright  :30  
+11. I Don't Know How to Love Him  4:07  
+12. Damned for All Time/Blood Money  5:07  
+13. Last Supper  7:06  
+14. Gethsemane (I Only Want to Say)  5:32  
+15. Arrest  3:20  
+16. Peter's Denial  1:27  
+17. Pilate and Christ  2:43  
+18. King Herod's Song (Try It and See)  3:00  
+19. Judas' Death  4:14  
+20. Trial Before Pilate (Including the 39 Lashes)  5:12  
+21. Superstar  4:15  
+22. Crucifixion  4:01  
+23. John Nineteen: Forty One  2:04  
+
+
+### "Evita (American)" 1979, Hard Rock
+
+1. Cinema in Buenos Aires, 26 July 1952  1:02  
+2. Requiem for Evita/Oh What a Circus  9:11  
+3. On This Night of a Thousand Stars/Eva and Macaldi/Eva Beware of the C  7:37  
+4. Buenos Aires  4:50  
+5. Goodnight and Thank You  3:06  
+6. Art of the Possible  2:40  
+7. Charity Concert/I'd Be Surprisingly Good for You  5:57  
+8. Another Suitcase in Another Hall  4:42  
+9. Person's Latest Flame  4:25  
+10. New Argentina  6:57  
+11. On the Balcony of the Casa Rosada/Don't Cry for Me Argentina  9:32  
+12. High Flying, Adored  3:45  
+13. Rainbow High  2:16  
+14. Rainbow Tour  4:47  
+15. Actress Hasn't Learned the Lines (You'd Like to Hear)  2:20  
+16. And the Money Kept Rolling (In and Out)  4:19  
+17. Santa Evita  2:01  
+18. Waltz for Eva and Che  3:44  
+19. She Is a Diamond  3:09  
+20. Dice Are Rolling  5:06  
+21. Eva's Final Broadcast  3:09  
+22. Montage  2:40  
+23. Lament  2:49  
+
+
+### "Phantom of Opera" 1980, Hard Rock
+
+1. Phantom of the Opera  2:39 (Roger Williams)  
+2. Miserlou  3:24 (Roger Williams)  
+3. Longest Time  3:19 (Roger Williams)  
+4. Canadian Sunset  3:55 (Roger Williams)  
+5. I Just Called to Say I Love You  5:22 (Roger Williams)  
+6. Careless Whisper  4:13 (Roger Williams)  
+7. What's Love Got to Do With It  3:50 (Roger Williams)  
+8. Too Late for Goodbyes  3:46 (Roger Williams)  
+9. To Bee or Not to Bee  2:58 (Roger Williams)  
+10. Concerto for Chopsticks  4:56 (Roger Williams)  
+
+
+### "Cats" 1982, Hard Rock
+
+1. Overture  2:48  
+2. Prologue: Jellicle Songs for Jellicle Cats  5:18  
+3. Naming of Cats  3:02  
+4. Invitation to the Jellicle Ball  2:10  
+5. Old Gumbie Cat  3:48  
+6. Rum Tum Tugger  3:42  
+7. Grizabella: The Glamour Cat  3:05  
+8. Bustopher Jones  3:07  
+9. Mungojerrie and Rumpelteazer  4:28  
+10. Old Deuteronomy  4:02  
+11. Jellicle Ball  9:34  
+12. Grizabella  4:19  
+13. Moments of Happiness  3:11  
+14. Gus: The Theatre Cat  6:33  
+15. Growltiger's Last Stand/The Ballad of Billy Mccaw  11:43  
+16. Skimbleshanks: The Railway Cat  4:53  
+17. Macavity: The Mystery Cat  8:24  
+18. Mr. Mistoffelees  4:26  
+19. Memory  5:21  
+20. Journey to the Heaviside Layer  2:44  
+21. Ad-Dressing of Cats  4:19  
+
+
+### "Requiem" 1995, Hard Rock
+
+
+
 
 ## Отношения с другими группами
 

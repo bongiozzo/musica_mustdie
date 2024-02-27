@@ -1,11 +1,79 @@
 # Slough Feg
 
-Дискография
-"The Lord Weird Slough Feg" 1996, Heavy Metal
-"Twilight Of The Idols" 1999, Heavy Metal
-"Down Among The Deadmen" 2000, Heavy Metal
-"Traveller" 2003, Heavy Metal
-"Atavism" 2005, Heavy Metal
+ex-The Lord Weird Slough Feg
+
+## Дискография
+
+### "The Lord Weird Slough Feg" 1996, Heavy Metal
+
+1. Shadows Of The Unborn 03:56
+2. 20th Century Wretch 04:20 
+3. The Blarney Stone 02:15 
+4. The Red Branch 03:44 
+5. Why Not 05:41
+6. High Season III 02:10
+7. High Season IV 03:29
+8. Highway Corsair 00:31 
+9. Intro (Instrumental)
+10. The Mask
+11. High Season I
+12. High Season II
+13. The Red Branch (Demo Version)
+14. The Room
+15. Headhunter
+
+### "Twilight Of The Idols" 1999, Heavy Metal
+
+1. Funeral March 01:21  
+2. Highlander 04:10 
+3. High Season II 03:11  
+4. The Pangs of Ulster 04:03  
+5. Brave Connor Mac 02:56 
+6. The Wickerman 04:19 
+7. Slough Feg 04:10
+8. The Great Ice Wars 08:49
+9. Life in the Dark Age 04:23 
+10. Warspasm 02:23  
+11. Bi-Polar Disorder 06:01 
+12. The Wizard's Vengeance (Legend cover) 03:31
+13. We'll Meet Again 03:05 
+14. Untitled 00:22
+
+### "Down Among The Deadmen" 2000, Heavy Metal
+
+1. Sky Chariots 04:50 
+2. Walls Of Shame 04:31
+3. Warriors Dawn 06:03
+4. Beast In The Broch 01:46  
+5. Heavy Metal Monk 02:43  
+6. Fergus Mac Roich 01:35 
+7. Cauldron Of Blood 05:44
+8. Troll Pack 03:02 
+9. Traders And Gunboats 04:09
+10. Psionic Illumination 04:35 
+11. Marauder 03:35 
+12. High Season 03:26  
+13. Death Machine 04:07
+
+### "Traveller" 2003, Heavy Metal
+
+1. The Spinward Marches 01:22 
+2. High Passage/Low Passage 03:42 
+3. Asteroid Belts 02:22
+4. Professor's Theme 02:50 
+5. Vargr Moon 06:07 
+6. Vargr Theme/Confrontation 06:10
+7. Baltech's Lament 04:12 
+8. Gene-ocide 04:26 
+9. Curse of Humaniti 02:26
+10. The Final Gambit 04:35
+11. The Spinward Marches (return) 01:24 
+12. Addendum Galactus 04:34
+
+### "Atavism" 2005, Heavy Metal
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,10 +1,81 @@
 # Hellfueled
 
-Дискография
-"Volume One" 2004, Heavy Metal
-"Born II Rock" 2005, Heavy Metal
-"Memories In Black" 2007, Heavy Metal
-"Emission Of Sins" 2009, Heavy Metal
+
+
+## Дискография
+
+### "Volume One" 2004, Heavy Metal
+
+01. Let Me Out 
+02. Midnight Lady
+03. Second Deal 
+04. Someone Lives Inside 
+05. Eternal
+06. Mindbreaker
+07. Sunrise
+08. Live My Life
+09. Rock N Roll
+10. Break Free
+8. Live My Life; 
+9. Rock'n'Roll; 
+10. Break Free; 
+11. Hunt Me Down
+
+All songs written by HELLFUELED
+Produced and engineered by Fredrik Nordstrom and Patrick J.Sten
+Engineered by Fredrik Nordstrom
+Recorded and mixed at Studio Fredman
+
+Guest Musicians:
+Fredrik Nordstom - Lead Guitars, Hammond
+Patrick J.Sten - Backing Vocals, Percussion
+Anna Bylund, Johanna Stromblad - Backing Vocals
+
+### "Born II Rock" 2005, Heavy Metal
+
+01. Can't Get Enough
+02. Regain Your Crown
+03. Look Out
+04. Friend
+05. Born To Rock
+06. Old
+07. Girls Girls
+08. On The Run
+09. Angel
+10. Make It Home
+11. I Donґt Care
+
+### "Memories In Black" 2007, Heavy Metal
+
+01. Rewinding Time
+02. Monster
+03. Sky Walker
+04. Again
+05. Warzone
+06. Search Goes On
+07. Queen Of Fire
+08. Right Now
+09. Face Your Demon
+10. Down 
+11. Master of Night 
+12. Slow Down
+13. Song For You (Limited Version)
+14. 5 AM (Limited Version)
+
+### "Emission Of Sins" 2009, Heavy Metal
+
+01. Where Angels Die [03:44] 
+02. Am I Blind [03:00] 
+03. I'm The Crucifix [03:50] 
+04. A Remissin Of My Sins [03:42] 
+05. Save Me [03:31] 
+06. Lost Forever [03:29] 
+07. For My Family And Satan [03:32] 
+08. In Anger [04:05] 
+09. End Of The Road [03:24] 
+10. Stone By Stone [03:27] 
+11. Moving On (Instrumental) [03:52]
+
 
 ## Отношения с другими группами
 

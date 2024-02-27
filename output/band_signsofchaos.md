@@ -1,8 +1,17 @@
 # Signs of Chaos
 
-Дискография
-"Rise" 2012, Groove
-"Watch It Burn" 2016, Groove
+
+
+## Дискография
+
+### "Rise" 2012, Groove
+
+
+
+### "Watch It Burn" 2016, Groove
+
+
+
 
 ## Отношения с другими группами
 

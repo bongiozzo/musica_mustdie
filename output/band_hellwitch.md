@@ -1,8 +1,45 @@
 # Hellwitch
 
-Дискография
-"Syzygial Miscreancy" 1990, Thrash
-"Omnipotent Convocation" 2009, Death Metal
+
+
+## Дискография
+
+### "Syzygial Miscreancy" 1990, Thrash
+
+1. The Ascent
+2. Nosferatu
+3. Viral Exogence
+4. Sentient Transmography
+5. Mordirivial Dissemination
+6. Pyrophoric Seizure
+7. Purveyor Of Tear
+
+ Patrick Ranieri - Guitar, Vocals
+ Tommy Mouser - Bass
+ Joe "Witch" Schnessel - Drums
+
+All Lyrics By Patrick Ranieri
+Produced By HELLWITCH
+Engineered By Scott Burns
+Recorded & Mixed At Morrisound Studios,
+Tampa,FL
+
+(p)&(c) 1990 WILD RAGS Records
+
+### "Omnipotent Convocation" 2009, Death Metal
+
+01. Vicious Avidity
+02. Sought to Beguile
+03. Opiatic Luminance
+04. Neolithic Journey
+05. Mysteria
+06. Mythologicalies (Enlightened Paganus)
+07. Irreverent Salvation
+08. Final Approach
+09. Days of Nemesis
+10. Epitome of Disgrace
+11. Infernal Death (Death's cover)
+
 
 ## Отношения с другими группами
 

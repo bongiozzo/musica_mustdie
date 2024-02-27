@@ -1,8 +1,31 @@
 # Skyfall
 
-Дискография
-"The Incarnations of My Sorrow And Rage" 2002, Black Metal
-"Bestiarium Pool" 2011, Black Metal
+russian folk-black metal band from Voronezh
+
+## Дискография
+
+### "The Incarnations of My Sorrow And Rage" 2002, Black Metal
+
+1. Прелюдия Кровавых Песков: Orbis Be Ignis
+2. Autumn. Skyfall
+3. Tears of Her Hypocrisy
+4. Интерлюдия Огненной Купели: Under The Tender Fiery Tongues
+5. The Principle of My Equinox
+6. Infinity: The Circle of Delusions
+7. Постлюдия Лунной Заводи: The Shadows Dancing On The Moonlight Path
+8. Bonus Track: Mourning Palace
+
+### "Bestiarium Pool" 2011, Black Metal
+
+1. Spiral Eugenics Metamorphosis 
+2. Bestiarium Pool (Mother of Future Pandemonium) 
+3. Коронация (The Coronation) 
+4. The Gospel for Iconoclasts (Nigredo In Extremis) 
+5. Carnival of All Nine Days 
+6. The Final Blizzard's Waltz 
+7. Autumn. Skyfall 
+8. Эндура Дольнего (Endura of Worldly)
+
 
 ## Отношения с другими группами
 

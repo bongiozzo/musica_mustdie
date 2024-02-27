@@ -1,8 +1,42 @@
 # Dominici
 
-Дискография
-"O3 A Trilogy: Part One" 2005, Progressive
-"Oз A Trilogy - Part II" 2007, Progressive
+ex-Dream Theater
+
+## Дискография
+
+### "O3 A Trilogy: Part One" 2005, Progressive
+
+1. Introduction   
+2. Unwilling Volunteer   
+3. My New Land   
+4. I Found My Love   
+5. The Dream   
+6. A Day Of Conflict   
+7. The Order Comes   
+8. The Plan   
+9. I Will Return   
+10. The Hand Of God
+
+### "Oз A Trilogy - Part II" 2007, Progressive
+
+1. The Monster 08:28  
+2. Nowhere To Hide 05:06  
+3. Captured 04:16  
+4. Greed, The Evil Seed 07:26  
+5. School Of Pain 07:23  
+6. The Calling 06:39  
+7. The Real Life 03:28  
+8. The Cop 04:48  
+9. A New Hope 06:52 
+
+
+
+Charlie Dominici - Vocals 
+Brian Maillard - Guitar
+Americo Rigoldi - Keyboards
+Riccardo ``eRik`` Atzeni - Bass
+Yan Maillard - Drums
+
 
 ## Отношения с другими группами
 

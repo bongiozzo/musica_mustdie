@@ -1,10 +1,25 @@
 # Carach Angren
 
-Дискография
-"Lammendam" 2008, Black Metal
-"Death Came Through a Phantom Ship" 2010, Black Metal
-"Where the Corpses Sink Forever" 2012, Black Metal
-"This Is No Fairytale" 2015, Black Metal
+
+
+## Дискография
+
+### "Lammendam" 2008, Black Metal
+
+
+
+### "Death Came Through a Phantom Ship" 2010, Black Metal
+
+
+
+### "Where the Corpses Sink Forever" 2012, Black Metal
+
+
+
+### "This Is No Fairytale" 2015, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

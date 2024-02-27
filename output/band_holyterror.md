@@ -1,8 +1,26 @@
 # Holy Terror
 
-Дискография
-"Terror And Submission" 1987, Speed Metal
-"Mind Wars" 1988, Speed Metal
+
+
+## Дискография
+
+### "Terror And Submission" 1987, Speed Metal
+
+
+
+### "Mind Wars" 1988, Speed Metal
+
+1. Judas Reward 4.29
+2. Debt Of Pain 2.33
+3. The Immortal Wasteland 5.18
+4. A Fools Gold (Terminal Humor) Mindwars 7.52
+5. Damned By Judges 6.35
+6. Do Into Others 4.02
+7. No Ressurection 4.02
+8. Christian Resistance 4.37
+
+(p)&(c) 1988 UNDER ONE FLAG Records
+
 
 ## Отношения с другими группами
 

@@ -1,10 +1,35 @@
 # Bring Me The Horizon
 
-Дискография
-"Count Your Blessings" 2006, Deathcore
-"Suicide Season" 2008, Deathcore
-"There Is A Hell, Believe Me I’ve Seen It. There Is a Heaven, Let’s Keep It A Secret" 2010, Metalcore
-"Sempiternal" 2013, Metalcore
+
+
+## Дискография
+
+### "Count Your Blessings" 2006, Deathcore
+
+
+
+### "Suicide Season" 2008, Deathcore
+
+
+
+### "There Is A Hell, Believe Me I’ve Seen It. There Is a Heaven, Let’s Keep It A Secret" 2010, Metalcore
+
+
+
+### "Sempiternal" 2013, Metalcore
+
+01. Can You Feel My Heart (3:47)
+02. The House Of Wolves (3:25)
+03. Empire (Let Them Sing) (3:45)
+04. Sleepwalking (3:50)
+05. Go To Hell, For Heavens Sake (4:03)
+06. Shadow Moses (4:03)
+07. And The Snakes Start To Sing (5:02)
+08. Seen It All Before (4:07)
+09. Antivist (3:13)
+10. Crooked Young (3:35)
+11. Hospital For Souls (6:44)
+
 
 ## Отношения с другими группами
 

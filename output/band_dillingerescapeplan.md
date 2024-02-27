@@ -1,9 +1,31 @@
 # Dillinger Escape Plan
 
-Дискография
-"Calculating Infinity" 1999, Grindcore
-"Miss Machine" 2004, Grindcore
-"Ire Works" 2007, Hardcore
+Chaotic mix of technical hardcore/grindcore/jazz/avantgarde metal and raging intricate screaming prog-metal
+
+## Дискография
+
+### "Calculating Infinity" 1999, Grindcore
+
+01. Sugar Coated Sour 
+02. 43% Burnt 
+03. Jim Fear 
+04. *#.. 
+05. Destro's Secret 
+06. The Running Board 
+07. Clip The Apex... Accept Instruction 
+08. Calculating Infinity 
+09. 4th Grade Dropout 
+10. Weekend Sex Change 
+11. Variations On A Cocktail Dress
+
+### "Miss Machine" 2004, Grindcore
+
+
+
+### "Ire Works" 2007, Hardcore
+
+
+
 
 ## Отношения с другими группами
 

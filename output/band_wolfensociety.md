@@ -1,7 +1,13 @@
 # Wolfen Society
 
-Дискография
-"Conquer Divine" 2002, Black Metal
+(DARK FUNERAL's Lord Ahriman, ACHERON's Vincent Crowley, INCANTANTION's Kyle Severn and THE ELECTRIC HELLFIRE CLUB's Thomas Thorn & Ricktor Ravensbruck project)
+
+## Дискография
+
+### "Conquer Divine" 2002, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

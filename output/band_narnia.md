@@ -1,13 +1,215 @@
 # Narnia
 
-Дискография
-"Awakening" 1998, Heavy Metal
-"Long Live The King" 1999, Heavy Metal
-"Desert Land" 2001, Heavy Metal
-"The Great Fall" 2003, Heavy Metal
-"Enter The Gate" 2006, Heavy Metal
-"Course Of A Generation" 2009, Heavy Metal
-"Narnia" 2016, Heavy Metal
+
+
+## Дискография
+
+### "Awakening" 1998, Heavy Metal
+
+1. Break the Chains
+2. No More Shadows From The Past
+3. The Return Of Aslan
+4. Heavenly Love
+5. Time Of Changes
+6. The Awakening
+7. Touch From You
+8. Sign Of The Time
+Christian Liljengren - Lead & Backing vocals
+Carljohan Grimmark - All Electric&Accoustic Guitars,
+Bass, Keyboards, Background & Lead vocals,
+Drums & Programming
+Guest:
+2- Janne "Metal warrior" Stark - Guitar
+5- Janne Samefors - Background Vocals
+8- Jakob Persson - Bass
+Mart Hallek - Violin
+Produced by Narnia
+(p)(c)1998 Nuclear Blast
+
+### "Long Live The King" 1999, Heavy Metal
+
+1. Gates Of Cair Paravel ( Introduction )
+2. Living Water
+3. Shelter Through The Pain
+4. The Mission
+5. What You Give Is What You Get
+6. The Lost Son
+7. Long Live The King
+8. Dangerous Game
+9. Star Over Bethlehem
+10. Shadowlands ( Outro )
+
+Nuclear Blast
+
+### "Desert Land" 2001, Heavy Metal
+
+1. Inner Sanctum
+2. The Witch and the Lion
+3. Falling from the Throne
+4. Revolution of Mother Earth
+5. The Light at the End of the Tunnel
+6. Angels are Crying
+7. Walking the Wire
+8. Misty Morning
+9. Trapped in this Age
+
+Tracks 5 and 8 are instrumentals.
+
+Guest Appearance:
+Par Hagstrom - Background Vocals and Whispers +
+Additional Lead Vocals on Trapped In This Age
+Produced By Carl Johan Grimmark
+Drums And Rhythm Guitars Recorded At Berghem
+Studio.
+Vocals, Lead Guitars, Bass And Keyboards Recorded
+At The Dream Factory.
+Engineered By Carl Johan Grimrnark And Torbjorn
+Martinsson.
+Mixed At Berghem Studio By Carl Johan Grimmark.
+Assisted By Torbjorn Martinsson And Nick
+Nordstrom.
+Mastered At Cutting Room By Peter In De Betou.
+Recorded, Mixed And Mastered Between March -
+October, 2000
+Photography By Andreas Joakirnsson
+Cover Concept By Namia
+Cover Painting By Kristian Wahlin
+Management: MCM Music
+Leistenstrasse 12
+D-97082 Wuerzburg, Germany
+Fax. +49931 85055;
+www.rncm-music.de
+info@ mcm- music.de
+
+
+### "The Great Fall" 2003, Heavy Metal
+
+The Great Fall - Part I
+
+01. War Preludium
+02. The Countdown Has Begun
+03. Back From Hell
+04. No Time To Lose
+05. Innocent Blood
+
+The Great Fall - Part II
+
+06. Ground Zero
+07. Judgement Day*
+08. Desert Land
+09. The Great Fall Of Man**
+
+
+Christian Rivel (Liljegren) - Lead and Backing
+vocals
+Carljohan Grimmark - All electric and acoustic
+Guitars, Background and Lead vocals, Bass,
+Keyboards programming
+Andreas Johansson - Drums
+Martin Claesson - Keyboards
+Andreas Olsson - Bass on "Sign Of The Time"
+
+Guests:
+Anders Johansson (Hammerfall) Drums on *
+Eric Clayton (Saviour Machine) Additional Lead
+vocals on **
+
+Produced by Carl Johan Grimmark
+Recorded at the Dream Pactory - Jonkoping, Sweden
+by Carl Johan Grimmark
+
+exeept:
+
+Drums reeorded at Berghem Studio - Jonkoping,
+Sweden by Carl Johan Grimmark. Technical
+assistance by Torbjorn Martinsson
+
+Anders Johansson's drums recorded at Der Bunker -
+Malmц. Sweden by Anders Johansson
+Eric Clayton's vocals/speech reeorded at
+Schlachthause tonstudio - Wurzburg, Germany by
+Carl Johan Grimmark and Rainer Mittelstadt.
+Technical assistance by Norman Ort
+Choir recorded at ToneZone Studio - Bromma. Sweden
+by Per Hallman
+Neoplan N 516 on track 5 driven by Goran Grimmark
+
+Mixed and edited at the Dream Factory by Carl
+Johan Grimmark
+Additional editing by Andreas Johansson and Henrik
+Johansson
+Mastered at Tailor Maid production by Peter In de
+Betou
+
+This album wai reeorded, mixed and mastered
+between May - 2002 and January - 2003
+
+Album concept by Rivel/Grimmark
+Cover concept by Rivel/Grimmark/Johansson
+Photos by Fredrik Sandgren except:
+"Wall" photo by Christian Rivel
+"Desert" photos by Carl Johan Grimmark
+"Nuke" and "Crater" photos by U.S Department of
+Energy
+Layout by Jonathan Jansson
+
+
+
+### "Enter The Gate" 2006, Heavy Metal
+
+1. Into This Game (4.36); 
+2. People Of The Bloodred Cross (4.38); 
+3. Another World (6.05); 
+4. Show All The World (5.10); 
+5. Enter The Gate (4.36); 
+6. Take Me Home (6.57); 
+7. This Is My Life (4.18); 
+8. Aiming Higher (5.12); 
+9. The Man From Nazareth (8.40)
+
+All songs written by NARNIA
+Produced and engineered by Carl Johan Grimmark
+Recorded and mixed at The Factory, Matchtown Studios and Stugan, sweden
+
+Christian Rivel - Vocals
+Andreas Johansson - Drums, Triangle
+Andreas Olsson - Bass
+Carl Johan Grimmark - Guitars, Lap Steel, Keyboards
+
+### "Course Of A Generation" 2009, Heavy Metal
+
+1. Sail Around The World 03:40  
+2. When The Stars Are Falling 04:21  
+3. Course Of A Generation 03:55  
+4. Scared 03:35  
+5. Kings Will Come 04:01  
+6. Rain 04:17  
+7. Armageddon 04:11  
+8. One Way To Freedom 04:19  
+9. Miles Away 04:47  
+10. Behind The Curtain 05:04 
+
+
+Album was mixed by Fredrik Nordstrцm and Henrik Udd at Studio Fredman in
+Gothenburg, Sweden.
+
+German Pascual - Vocals
+Carljohan Grimmark - Guitar 
+Andreas Olsson - Bass 
+Andreas Johansson - Drums 
+
+### "Narnia" 2016, Heavy Metal
+
+1. Reaching for the Top 
+2. Still Believe 
+3. Highest Mountain 
+4. Set the World on Fire 
+5. Thank You 
+6. Who Do You Follow 
+7. Moving On 
+8. Messengers  
+9. One Way to the Promised Land  
+
 
 ## Отношения с другими группами
 

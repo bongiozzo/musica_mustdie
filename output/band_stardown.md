@@ -1,8 +1,43 @@
 # Stardown
 
-Дискография
-"Insi Deus" 2006, Nu Metal
-"Venom" 2011, Nu Metal
+
+
+## Дискография
+
+### "Insi Deus" 2006, Nu Metal
+
+1 - Deep Sorrow
+2 - War For Oil
+3 - Can't Disroot
+4 - Shinjitsu
+5 - Such Is Life (The Way)
+6 - Inside Us    
+7 - Emptiness
+8 - Disrespect
+9 - Six Days
+10 - Thanks
+11 - Voice Inside
+
+
+
+Ardentis : голос/гитара 
+Alex : гитара 
+Stas : бас 
+Stewart : барабаны
+
+### "Venom" 2011, Nu Metal
+
+Pray For Nothing 
+Wake Up 
+Omnisilence 
+The Rain Of Millions Stars 
+Earth Venomous 
+In The Dark 
+Blood For Blood 
+Embrace This Beauty 
+Naked Planet 
+Dangerous 
+
 
 ## Отношения с другими группами
 

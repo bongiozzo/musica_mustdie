@@ -1,10 +1,83 @@
 # Nifelheim
 
-Дискография
-"Nifelheim" 1995, Black Metal
-"Devil's Force" 1998, Black Metal
-"Servants Of Darkness" 2000, Black Metal
-"Envoy Of Lucifer" 2007, Black Metal
+
+
+## Дискография
+
+### "Nifelheim" 1995, Black Metal
+
+1. The Devastation
+2. Black Curse
+3. Unholy Death
+4. Possessed By Evil
+5. Sodomizer
+6. Satanic Sacrifice
+7. Storm Of Satans Fire
+8. Witchfuck
+
+All Songs Written By NIFELHEIM.
+Produced By Fredrik Nordstrom & NIFELHEIM.
+Recorded & Mixed At Studio Fredman, Gothenburg, Sweden.
+
+Demon - Pounding Devastator Drums
+Tyrant - Bestial Holocaust Bass
+Hellbutcher - Deathvomit Vocals
+
+(P)&(C) 1995 NECROPOLIS Records
+
+### "Devil's Force" 1998, Black Metal
+
+Deathstrike From Hell
+The Final Slaughter
+Desecration Of The Dead
+Demonic Evil
+Satanic Mass
+Soldier Of Satan
+Devil's Force
+Hellish Blasphemy
+
+Studio: Maestro Music
+Recorded by: Isak Edh and Mattias Lyckhage (Oct.27-Nov.10 -97)
+Produced by: Nifelheim and Onkel Andersson
+Mastered at: The Mastering Room by Gцran Finnberg
+Cover artwork: Kristian Wеhlin a.k.a Necrolord
+
+### "Servants Of Darkness" 2000, Black Metal
+
+Evil Blasphemies
+Sadistic Blood Massacre
+Black Evil
+Bestial Avenger
+War Of Doom (Armageddon)
+Servants Of Darkness
+Infernal Desolation
+Into The Morbid Black
+Sacrifice To The Lord Of Darkness
+
+Studio: Maestro Music (March 11-25 -00)
+Produced by: Isak Edh
+Mastered at: The Mastering Room by Gцran Finnberg
+Cover artwork: Torbjцrn Jцrgensen
+
+### "Envoy Of Lucifer" 2007, Black Metal
+
+Infernal Flame of Destruction 
+Evocation of the End 
+Open the Gates of Damnation 
+Claws of Death 
+Storm of the Reaper 
+Envoy of Lucifer 
+Evil Is Eternal 
+Raging Flames 
+Belial's Prey 
+No More Life
+
+Hellbutcher - вокал
+Vengeance From Beyond (Sebastian Ramstedt) - гитары 
+Apocalyptic Desolator (Johan Bergeback) - гитары
+Tyrant - бас 
+Insulter of Jesus Christ! (Peter Stjarnvind) - ударные
+
 
 ## Отношения с другими группами
 

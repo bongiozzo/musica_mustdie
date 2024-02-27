@@ -1,12 +1,100 @@
 # Kovenant
 
-Дискография
-"In the Times Before the Light" 1994, Black Metal
-"From the Storm of Shadows (demo)" 1994, Black Metal
-"Nexus Polaris" 1998, Black Metal
-"Animatronic" 1999, Black Metal
-"S.E.T.I." 2003, Industrial
-"Aria Galactica" 2006, Industrial
+"Millenium Metal"
+
+## Дискография
+
+### "In the Times Before the Light" 1994, Black Metal
+
+1. Towards The Crown Of Nights 
+2. Dragonstorms 
+3. The Dark Conquest 
+4. From The Storm Of Shadows 
+5. Night Of The Blackwinds 
+6. The Chasm 
+7. Visions Of A Lost Kingdom 
+8. Trough The Eyes Of The Raven 
+9. In Times Before The Light 
+10.Monarc Of The Mighty Darkness
+
+### "From the Storm of Shadows (demo)" 1994, Black Metal
+
+1. In Times Before The Light 
+2. Visions Of The Lost Kingdom
+3. From The Storm Of Shadows
+
+
+### "Nexus Polaris" 1998, Black Metal
+
+1. The Sulphur Feast 
+2. Bizzare Cosmic Industries 
+3. Planetarium 
+4. The Last Of Dragons 
+5. Bringer Of The Sixth Sun 
+6. Dragonheart 
+7. Planetary Black Elements 
+8. Chariots Of Thunder 
+
+### "Animatronic" 1999, Black Metal
+
+1. Mirror's Paradise.
+2. New World Order.
+3. Mannequin.
+4. Sindrom.
+5. Jihad.
+6. The Human Abstract.
+7. Prophecies Of Fire.
+8. In The Name Of The Future.
+9. Spaceman.
+10.The Birth Of Tragedy.
+
+©&(p)1999
+
+### "S.E.T.I." 2003, Industrial
+
+01 - Cybertrash
+02 - Planet Of The Apes
+03 - Star By Star
+04 - Via Negativa
+05 - Stillborn Universe
+06 - Acid Theatre
+07 - Perfect End
+08 - Neon
+09 - Keepers Of The Garden
+10 - Pantomime
+11 - Hollow Earth
+12 - Industrial Twilight
+bonus tracks
+13. Subtopia
+14. The Memory Remains (written by Metallica)
+
+Psy Coma - guitars, keys & programming
+Von Blomberg - drums & percussion
+Lex Icon - vocals & fx
+
+Recorded at Woodhouse Studios during May to
+october 2002
+Produced by Dan Diamond
+Recording engineer Siggi Bemm
+Assistant engineer Dennis Koehne
+Mixed by Siggi Bemm at Woodhouse Studios
+Photos by Espen Tollefsen
+Cover concept and design by Joachim Luetke
+Executive producer: Markus Staiger
+A&R:Yvette Uhlmann
+
+Additional personnel:
+Angel - live guitarist
+Eileen Kupper - sopano vocals
+Jan Kazda - bass
+Erik Ljungren - programming & sound design
+Siggi Bemm - additional bass
+
+
+### "Aria Galactica" 2006, Industrial
+
+
+
 
 ## Отношения с другими группами
 

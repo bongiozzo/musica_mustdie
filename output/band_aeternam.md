@@ -1,7 +1,22 @@
 # Aeternam
 
-Дискография
-"Disciples of the Unseen" 2010, Death Metal
+
+
+## Дискография
+
+### "Disciples of the Unseen" 2010, Death Metal
+
+1. Ars Almadel 01:51  
+2. Angel Horned 03:15
+3. Esoteric Formulae 04:20
+4. The Coronation of Seth 05:16
+5. Hamunaptra 03:58
+6. Iteru 02:42
+7. Goddess of Masr 06:01
+8. Ouroboros 04:53
+9. Circle in Flames 05:17
+10. Through the Eyes of Ea 06:31 
+
 
 ## Отношения с другими группами
 

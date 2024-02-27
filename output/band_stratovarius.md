@@ -1,26 +1,489 @@
 # Stratovarius
 
-Дискография
-"Fright Night" 1989, Power Metal
-"Twilight Time" 1992, Power Metal
-"Dreamspace" 1994, Power Metal
-"Fourth Dimension" 1995, Power Metal
-"Episode" 1996, Power Metal
-"Visions" 1997, Power Metal
-"Destiny" 1998, Power Metal
-"Visions of Europe (2CD) (live)" 1998, Power Metal
-"Infinite" 2000, Power Metal
-"Intermission" 2001, Power Metal
-"Elements Pt. II" 2003, Power Metal
-"Elements Pt. I" 2003, Power Metal
-"Stratovarius" 2005, Power Metal
-"Polaris " 2009, Power Metal
-"Darkest Hours (EP)" 2010, Power Metal
-"Elysium" 2011, Power Metal
-"Unbreakable [ep]" 2013, Power Metal
-"Nemesis" 2013, Power Metal
-"Eternal" 2015, Power Metal
-"Best of (compilation)" 2016, Power Metal
+
+
+## Дискография
+
+### "Fright Night" 1989, Power Metal
+
+1. Future Shock
+2. False Messiah
+3. Black Night
+4. Witch-hunt
+5. Fire Dance
+6. Fright Night
+7. Night Screamer
+8. Darkness
+9. Goodbye
+
+Timo Tolkki - vocals, guitar
+Jyrki Lentonen - bass
+Tuomo Lassila - drums
+Antti Ikonen - add. keyboards
+
+Produced By STRATOVARIUS
+Engineered by Make Torronen at Finnvox Studios
+
+(c)1989 Columbia
+
+### "Twilight Time" 1992, Power Metal
+
+1. Break The Ice
+2. The Hands Of Time
+3. Madness trikes At Midnight
+4. Metal Frenzy
+5. Twilight Time
+6. The Hills Have Eyes
+7. Out Of The Shadows
+8. Lead Us Into The Light
+
+Timo Tolkki - Guitar, Vocals
+Tuomo Lassila - Drums, Percussion
+Antti Ikonen - Keyboards
+Jari Behm - Bass
+
+Produced by Timo Tolkki and STRATOVARIUS
+Recorded and Mixed in Millbrook Studio, Helsinki
+by Juha "the Professor" Heininen
+
+(c)1993 MMT/EMI
+
+### "Dreamspace" 1994, Power Metal
+
+1. Chasing Shadows
+2. 4th Reich
+3. Eyes Of The World
+4. Hold On To Your Dream
+5. Magic Carpet Ride
+6. We Are The Future
+7. Tears Of Ice
+8. Dreamspace
+9. Reign Of Terror
+10. Thin Ice
+11. Atlantis
+12. Abyss
+13. Shattered
+14. Wings Of Tomorrow
+
+Timo Tolkki - Guitars, Vocals
+Tuomo Lassila - Drums, Percussion, Flute
+Antti Ikonen - Keyboards
+Jari Kainulainen - Bass
+
+Produced, Engineered and mixed by Tino Tolkki,
+except 2,8,9 and 12 mixed by Mikko Karmila
+
+(c)1994 Metallian Music
+
+### "Fourth Dimension" 1995, Power Metal
+
+1. Against The Wind
+2. Distant Skies
+3. Galaxies
+4. Winter
+5. tratovarius
+6. Lord Of The Wasteland
+7. 030366
+8. Nightfall
+9. We Hold The Key
+10. Twilight Symphony
+11. Call Of The Wilderness
+
+Timo Tolkki - Guitar, Backing Vocals
+Timo Kotipelto - Vocals
+Tuomo Lassila - Drums
+Jari Kainulainen - Bass
+Antti Ikonen - Keyboards
+
+Produced, Engineered and Mixed By Timo Tolkki
+Recorded at Soundtrack Studios, Helsinki during
+June-October 1994
+Backing Vocals by Timo Tolkki and three tenors:
+Timo Kotipelto, Marko Vaara and Kimmo Blom
+
+(c)1995 MMT EMI
+
+### "Episode" 1996, Power Metal
+
+1.  Father Time
+2.  Will The Sun Rise ?
+3.  Eternity
+4.  Episode
+5.  Speed Of Light
+6.  Uncertainity
+7.  Seasons Of Change
+8.  Stratosphere
+9.  Babylon
+10.Tomorrow
+11.Night Time Eclipse
+12.Forever
+
+Produced By Timo Tolkki.
+
+(P)(C) 1996 MODERN MUSIC Records
+
+### "Visions" 1997, Power Metal
+
+1. The Kiss Of Judas
+2. Black Diamond
+3. Forever Free
+4. Before The Winter
+5. Legions
+6. The Abyss Of Your Eyes
+7. Holy Light
+8. Paradise
+9. Coming Home
+10. Visions (Southern Cross)
+Timo Tolkki - Guitar
+Timo Kotipelto - Vocals
+Jari Kainulainen - Bass
+Jens Johansson - Keyboards
+Jorg Michael - Drums
+Produced By Timo Tolkki
+(c)1997 Dark Wings
+
+### "Destiny" 1998, Power Metal
+
+  1.   Destiny (Tolkki) - 10:15 
+  2.   S.O.S. (Kotipelto/Tolkki) - 4:15 
+  3.   No Turning Back (Kotipelto/Tolkki) - 4:22 
+  4.   4000 Rainy Nights (Tolkki) - 6:00 
+  5.   Rebel (Tolkki) - 4:16 
+  6.   Years Go By (Tolkki) - 5:14 
+  7.   Playing With Fire (Kotipelto/Tolkki) - 4:15 
+  8.   Venus in the Morning (Tolkki) - 5:35 
+  9.   Anthem of the World (Tolkki) - 9:31 
+  10.   Cold Winter Nights (Kotipelto/Tolkki) - 5:12 
+
+
+Jens Johansson  -  Keyboards 
+Mikko Karmila  -  Engineer, Mixing 
+Pauli Saastamoinen  -  Mastering 
+Mika Jussila  -  Mastering 
+Timo Tolkki  -  Guitar, Piano, Producer, Engineer, Amplifiers 
+Eicca Toppinen  -  Strings 
+Jorg Michael  -  Drums 
+Jari Kainulainen  -  Bass 
+
+
+### "Visions of Europe (2CD) (live)" 1998, Power Metal
+
+
+
+### "Infinite" 2000, Power Metal
+
+  1.   Hunting High and Low (Kotipelto/Tolkki) - 4:08 
+  2.   Millennium (Tolkki) - 4:09 
+  3.   Mother Gaia (Tolkki) - 8:18 
+  4.   Phoenix (Tolkki) - 6:13 
+  5.   Glory of the World (Johansson) - 4:53 
+  6.   A Million Light Years Away (Tolkki) - 5:19 
+  7.   Freedom (Tolkki) - 5:03 
+  8.   Infinity (Tolkki) - 9:22 
+  9.   Celestial Dream (Tolkki) - 2:31 
+
+
+Jens Johansson  -  Keyboards 
+Timo Tolkki  -  Guitar 
+Derek Riggs  -  Cover Art 
+Tapio "Mongo" Aaltonen  -  Percussion 
+Jorg Michael  -  Drums 
+Veli-Matti Iijin  -  Violin, Cello 
+Toumas Ikonen  -  Violin 
+Jari Kainulainen  -  Bass 
+Timo Kotipelto  -  Vocals 
+Timo Ojala  -  Organ, Choir, Chorus 
+Jussi Lehtipuu  -  Organ (Hammond), Choir, Chorus 
+Heikki Hamalainen  -  Violin 
+Katriina Jamsa-Pesonen  -  Violin 
+
+
+### "Intermission" 2001, Power Metal
+
+  1.   Will My Soul Ever Rest in Peace? (Tolkki) - 4:56 
+  2.   Falling into Fantasy (Kotipelto/Tolkki) - 5:13 
+  3.   The Curtains Are Falling (Johansson) - 4:24 
+  4.   Requiem (Tolkki) - 2:54 
+  5.   Bloodstone (Downing/Halford/Tipton) - 3:54 
+  6.   Kill the King (Blackmore/Dio) - 4:36 
+  7.   I Surrender [live] (Ballard) - 3:46 
+  8.   Keep the Flame (Johansson) - 2:47 
+  9.   Why Are We Here? (Johansson) - 4:43 
+  10.   What Can I Say (Kotipelto) - 5:12 
+  11.   Dream Wit Me (Kotipelto) - 5:13 
+  12.   When the Night Meets the Day (Tolkki) - 5:26 
+  13.   It's a Mystery (Kotipelto/Tolkki) - 4:04 
+  14.   Cold Winter Nights (Kotipelto/Tolkki) - 5:13 
+  15.   Hunting High and Low [live] (Kotipelto/Tolkki) - 4:55 
+
+
+Jens Johansson  -  Keyboards 
+T.T. Oksala  -  Engineer 
+Mika Jussila  -  Mastering 
+Timo Tolkki  -  Guitar, Vocals, Producer 
+Derek Riggs  -  Paintings 
+Padre Marcelo Rossi  -  Photography 
+Marc Villalonga  -  Photography 
+Jorg Michael  -  Drums 
+Jari Kainulainen  -  Bass 
+Timo Kotipelto  -  Vocals 
+
+
+### "Elements Pt. II" 2003, Power Metal
+
+01. Alpha & Omega
+02. I Walk To My Own Song
+03. Iґm Still Alive
+04. Seasons Of Faithґs Perfection
+05. Awaken The Giant
+06. Know The Difference
+07. Luminous
+08. Dreamweaver
+09. Liberty
+
+Timo Kotipelto - vocals
+Timo Tolkki - guitars
+Jari Kanulainen - bass
+Jens Johansson - keyboards
+Jorg Michael - drums
+
+Recorded and at finnvox studios from April
+to september 2002
+Produced by Timo Tolkki for Goldenworks Ltd.
+Engineered by Mikko Karmila and Timo Tolkki
+Mixed by Timo Tolkki, February 2003
+Mastered by Mika Jussila at Finnvox
+A&R Andy Siri
+All paintings by Derek Riggs
+Photography by Marc Villalonga
+Layout by Sander Sebeling
+Orchestra and choir arranged and produced by Laine
+& Niemi
+Joensuu City Orchestra and Stratovarius singers
+conducted by Riku Niemi
+Leader Juha Ikonen
+Chorus master Hilkka Kangasmiemi
+Orchestral percussion performed by Mungo Vallonen
+and Riku Niemi
+Orchestra engineered by Petri Pvykkonen at Carelia
+Hall Joensuu
+Choir engineered by Juha Heininen at HIP Studios
+
+### "Elements Pt. I" 2003, Power Metal
+
+01. Eagleheart
+02. Soul of a Vagabond 
+03. Find Your Own Voice
+04. Fantasia
+05. Learning To Fly
+06. Papillon
+07. Stratofortress 
+08. Elements
+09. Drop in the Ocean
+
+Timo Kotipelto - vocals
+Timo Tolkki - guitars
+Jari Kanulainen - bass
+Jens Johansson - keyboards
+Jorg Michael - drums
+
+Recorded and mixed at finnvox studios from April
+to september 2002
+Produced by Timo Tolkki for Goldenworks Ltd.
+Engineered by Mikko Karmila and Timo Tolkki
+Mixed by Mikko Karmila and Timo Tolkki
+Mixed by Mikko Karmila
+Mastered by Mika Jussila at Finnvox
+A&R Andy Siri
+All paintings by Derek Riggs
+Photography by Marc Villalonga
+Layout by Sander Sebeling
+Orchestra and choir arranged and produced by Laine
+& Niemi
+Joensuu City Orchestra and Stratovarius singers
+conducted by Riku Niemi
+Leader Juha Ikonen
+Chorus master Hilkka Kangasmiemi
+Orchestral percussion performed by Mungo Vallonen
+and Riku Niemi
+Accordion on "Fantasia" perfirmed by Veijo Laine
+Orchestra engineered by Petri Pvykkonen at Carelia
+Hall Joensuu
+Choir engineered by Juha Heininen at HIP Studios
+Boy voice in "Papillon" by Jonas Ranas Rannila
+"Fantasia" is lovely based on the movie
+"Neverending Story"
+
+### "Stratovarius" 2005, Power Metal
+
+1. Maniac Dance 04:34  
+2. Fight!!! 04:03  
+3. Just Carry On 05:28  
+4. Back To Madness 07:42  
+5. Gypsy In Me 04:27  
+6. Gotterdammerung (Zenith of Power) 07:12  
+7. The Land of Ice and Snow 03:04  
+8. Leave The Tribe 05:42  
+9. United 07:04 
+
+
+The album "Stratovarius" has been produced at Timo Tolkki's personal studios.
+
+The album is recorded with the classic STRATOVARIUS line-up 
+
+Timo Tolkki- GUITAR
+Timo Kotipelto- VOCALS
+Jens Johansson- KEYBOARDS
+Jari Kainulainen- BASS
+Jorg Michael- DRUMS
+
+### "Polaris " 2009, Power Metal
+
+1. Deep Unknown   
+2. Falling Star   
+3. King of Nothing   
+4. Blind   
+5. Winter Skies   
+6. Forever Is Today   
+7. Higher We Go   
+8. Somehow Precious   
+9. Emancipation Suite I: Dusk   
+10. Emancipation Suite II: Dawn   
+11. When Mountains Fall 
+
+
+Line-up:
+Timo Kotipelto - Vocals
+Matias Kupiainen - Guitars
+Jens Johansson - Keyboards
+Lauri Porra - Bass
+Jцrg Michael - Drums
+
+This is the first Stratovarius album featuring Matias Kupianen and Lauri Porra,
+and also not featuring long-time guitarist Timo Tolkki.
+
+The album was recorded in late 2008 and mixed by Mikko Karmila. The cover art
+was done by Gyula Havancsбk.
+
+### "Darkest Hours (EP)" 2010, Power Metal
+
+1. Darkest Hours 04:10
+2. Infernal Maze 05:34  
+3. Darkest Hours (Demo) 04:35  
+4. Against The Wind (Live) 04:02  
+5. Black Diamond (Live) 07:30 
+
+
+### "Elysium" 2011, Power Metal
+
+1. Darkest Hours 04:11  
+2. Under Flaming Skies 03:52  
+3. Infernal Maze 05:33  
+4. Fairness Justified 04:21  
+5. The Game Never Ends 03:54  
+6. Lifetime In A Moment 06:39  
+7. Move The Mountain 05:34  
+8. Event Horizon 04:24  
+9. Elysium 18:07 
+*10 Castaway (04:40 min., Japanese Bonus Track) 
+
+### "Unbreakable [ep]" 2013, Power Metal
+
+01. Unbreakable 04:36 
+02. Falling Star (Remastered 2012) 04:37 
+03. The Game Never Ends (Remastered 2012) 03:45 
+04. Freedom (Remastered 2012) 05:02 
+05. Why Are We Here (Remastered 2012) 04:40
+
+### "Nemesis" 2013, Power Metal
+
+
+
+### "Eternal" 2015, Power Metal
+
+Disc 1 (CD)  
+1. My Eternal Dream  06:04   
+2. Shine in the Dark  05:05  
+3. Rise Above It  04:26  
+4. Lost Without a Trace  05:27  
+5. Feeding the Fire  04:11  
+6. Endless Forest  02:15  
+7. Giants  05:28  
+8. In My Line of Work  04:18  
+9. Man in the Mirror  04:43  
+10. Few Are Those  04:11   
+11. Fire in Your Eyes  04:14   
+12. The Lost Saga  11:38   
+
+Disc 2 (DVD)  
+1. Intro  02:32  
+2. Under Flaming Skies  03:50    
+3. Speed of Light  04:15  
+4. Halycon Days  05:22  
+5. Dragons  04:18 
+6. Fantasy   04:34  
+7. A Million Light Years Away  05:48   
+8. Eagleheart  05:04 
+9. Destiny  10:29 
+10. Keyboard Solo  01:09  
+11. Black Diamond  06:36  
+12. Forever  03:44  
+13. Unbreakable  05:05
+14. Hunting High and Low  08:51 
+
+
+
+### "Best of (compilation)" 2016, Power Metal
+
+Disc 1  
+1. Until the End of Days (NEW SONG!)
+2. My Eternal Dream   
+3. Eagleheart    
+4. Speed of Light     
+5. S.O.S.    
+6. Forever Free      
+7. Wings of Tomorrow 
+8. No Turning Back 
+9. Break the Ice    
+10. Distant Skies      
+11. Will the Sun Rise?    
+12. A Million Light Years Away   
+13. Under Flaming Skies   
+14. Darkest Hours      
+15. Winter Skies     
+16. I Walk to My Own Song  
+17. Maniac Dance      
+  
+Disc 2  
+1. Halcyon Days     
+2. Will My Soul Ever Rest in Peace?     
+3. Destiny     
+4. Paradise      
+5. Deep Unknown    
+6. Elysium     
+7. Black Diamond    
+8. If the Story is Over  
+9. Unbreakable      
+10. Forever    
+11. Shine in the Dark 
+12. Hunting High and Low      
+  
+Disc 3  
+1. Intro    
+2. Black Diamond (Live at Wacken 2015)      
+3. Eagleheart (Live at Wacken 2015)   
+4. Against the Wind (Live at Wacken 2015)     
+5. Dragons (Live at Wacken 2015)    
+6. Legions of the Twilight (Live at Wacken 2015)    
+7. Paradise (Live at Wacken 2015)     
+8. Shine in the Dark (Live at Wacken 2015) 
+9. Speed of Light (Live at Wacken 2015)    
+10. Unbreakable (Live at Wacken 2015)      
+11. Hunting High and Low (Live at Wacken 2015)  
+
+
+
+
 
 ## Отношения с другими группами
 

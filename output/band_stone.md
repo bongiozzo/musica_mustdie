@@ -1,12 +1,44 @@
 # Stone
 
-Дискография
-"No Anaesthesia!" 1986, Thrash
-"Stone" 1988, Thrash
-"Colours" 1990, Thrash
-"Emotional Playground" 1991, Thrash
-"Free (Live)" 1992, Thrash
-"Stone Age (Compilation)" 1998, Thrash
+
+
+## Дискография
+
+### "No Anaesthesia!" 1986, Thrash
+
+
+
+### "Stone" 1988, Thrash
+
+
+
+### "Colours" 1990, Thrash
+
+
+
+### "Emotional Playground" 1991, Thrash
+
+01 Small Tales 
+02 Home Base 
+03 Last Chance 
+04 Above the Grey Sky 
+05 Mad Hatterґs Den 
+06 Dead End 
+07 Adrift 
+08 Haven 
+09 Years After 
+10 Time Dive 
+11 Missionary of Charity 
+12 Emotional Playground
+
+### "Free (Live)" 1992, Thrash
+
+
+
+### "Stone Age (Compilation)" 1998, Thrash
+
+
+
 
 ## Отношения с другими группами
 

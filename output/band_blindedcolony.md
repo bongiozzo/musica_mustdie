@@ -1,7 +1,21 @@
 # Blinded Colony
 
-Дискография
-"Divine" 2003, Melodic Death Metal
+
+
+## Дискография
+
+### "Divine" 2003, Melodic Death Metal
+
+1. Contagious Sin
+2. Thorned & Weak
+3. Legacy (Slaves In The Name Of Christ)
+4. Selfobtained Paranoia
+5. Lefeless Dominion
+6. Discrown The Holy
+7. Kingdom Of Pain
+8. Demoniser DCLXVI
+9. Anno Domini 1224
+
 
 ## Отношения с другими группами
 

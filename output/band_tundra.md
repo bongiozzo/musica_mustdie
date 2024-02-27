@@ -1,8 +1,40 @@
 # Tundra
 
-Дискография
-"Ansia" 2005, Black Metal
-"Primordial" 2008, Black Metal
+
+
+## Дискография
+
+### "Ansia" 2005, Black Metal
+
+1. Enter the World From the Path Below 01:26  
+2. Sfogo 03:53  
+3. Toward the Oniric Fields 05:58  
+4. Morbid Hallucinations 05:24  
+5. As Cerbero 05:47  
+6. Demons of the Inner Self 04:33  
+7. Poisoned Mind 04:26  
+8. Inner Helvete 07:36  
+9. Co Dobre Pro Mne, Dobrym Jest (Maniac Butcher cover) 05:40 
+
+Debut CD and the first release of Long Ago Records (LAR 001)- a continuer of Eclipse Records.
+
+The vocalist on this release is fully the singer of Maniac Butcher
+
+Tape released by Ravenheart, has eleven tracks and a different cover.
+
+Rereleased December 25th 2007 as a 12" on Slava Satan Records limited to 500 copies, 99 with live tape. 
+
+### "Primordial" 2008, Black Metal
+
+1. Through the Pass of Dimness 04:46  
+2. Totally Black 04:54 
+3. Soaring Blackfire 08:00
+4. Utopia 06:11
+5. Sadismus 03:31
+6. Crawling 05:07
+7. 1000 Ravens Will Cry At My Funeral 09:42
+8. Lost Wisdom 04:46 
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,27 @@
 # Harmony
 
-Дискография
-"Dreaming Awake" 2003, Power Metal
-"Chapter II: Aftermath" 2008, Power Metal
+power-metal from Sweden
+
+## Дискография
+
+### "Dreaming Awake" 2003, Power Metal
+
+
+
+### "Chapter II: Aftermath" 2008, Power Metal
+
+1.	 Prevail	05:14
+2.	 Aftermath	04:36
+3.	 Rain	04:50
+4.	 Don't Turn Away	04:59
+5.	 Kingdom	05:44
+6.	 Silently We Fade	04:41
+7.	 Inner Peace	06:07
+8.	 Weak	04:28
+9.	 I Run	05:25
+10.	 Hollow Faces	03:26
+11.	 End of My Road	05:05
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,21 @@
 # Prophanity
 
-Дискография
-"Stronger Than Steel" 1998, Death Metal
+
+
+## Дискография
+
+### "Stronger Than Steel" 1998, Death Metal
+
+Armed To The Teeth 
+Walking Through Fire 
+Beast Of The North 
+Fate Of The Gods 
+The Battleroar 
+...To Hangatyr 
+Towards The Sinister Realms 
+Awaiting Your Valkyries Arrival 
+Swedish Steel (The Metalist)
+
 
 ## Отношения с другими группами
 

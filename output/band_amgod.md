@@ -1,7 +1,33 @@
 # Amgod
 
-Дискография
-"Half Rotten And Decayed" 1995, Industrial
+
+
+## Дискография
+
+### "Half Rotten And Decayed" 1995, Industrial
+
+1.  amGod
+2.  Fall Out
+3.  Fire v.2 (Cover Version By Arthur Brown)
+4.  Silence Besides The Sun
+5.  Braindead
+6.  Pain Laughter
+7.  Leben - Tod
+8.  Overlove
+9.  Deathwill
+10.doGma (Part 2 'Monotheism')
+11.doGma (Part 3 'Gismo')
+12.doGma (Part 4 'Half Rotten & Decayed')
+13.doGma (Part 5 'Dreamscape')
+
+All Tracks Produced, Arranged, Recorded & Mixed Between Dec.3 - Apr.'94 By amGod Music.
+
+AMGOD:
+Dominik Van Reich - Vocals, Lyrics, Sequencing,
+Synthesizing, Rhythm, Program, Radio & Tape.
+
+(P)&(C) 1995 CELTIC CIRCLE Prod.
+
 
 ## Отношения с другими группами
 

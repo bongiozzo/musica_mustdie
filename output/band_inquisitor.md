@@ -1,7 +1,17 @@
 # Inquisitor
 
-Дискография
-"The Quantum Theory of Id" 2010, Black Metal
+
+
+## Дискография
+
+### "The Quantum Theory of Id" 2010, Black Metal
+
+1. Infimum	 
+2. Pricipia Mathematica Philosophiae Naturalis	 
+3. Die Welt als Wille und Vorstellung	 
+4. Corpus Hermeticum	 
+5. The End of Certainty; Supremum
+
 
 ## Отношения с другими группами
 

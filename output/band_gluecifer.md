@@ -1,7 +1,13 @@
 # Gluecifer
 
-Дискография
-"Automatic Thrill" 2004, Rock and Roll
+rock'n'roll
+
+## Дискография
+
+### "Automatic Thrill" 2004, Rock and Roll
+
+
+
 
 ## Отношения с другими группами
 

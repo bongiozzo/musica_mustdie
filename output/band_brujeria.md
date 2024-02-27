@@ -1,14 +1,123 @@
 # Brujeria
 
-Дискография
-"Demoniaco (single)" 1990, Grindcore
-"Machetazos (single)" 1991, Grindcore
-"Matando Gueros" 1993, Grindcore
-"El Patron (single)" 1994, Grindcore
-"Raza Odiada" 1995, Death Metal
-"Brujerizmo" 2000, Death Industrial
-"Mextremist! Greatest Hits" 2001, Death Metal
-"Pocho Aztlan" 2016, Death Metal
+Mexican Satanic Grind (ex-Fear Factory, Faith No More, Dimmu Borgir & Cradle of Filth)
+
+## Дискография
+
+### "Demoniaco (single)" 1990, Grindcore
+
+
+
+### "Machetazos (single)" 1991, Grindcore
+
+1. Molestando Ninos Muertos
+2. Machetazos (Sacrificio II)
+3. Castigo Del Brujo
+4. Cristo De La Roca
+ 
+
+(p)&(c) Independently Released
+
+### "Matando Gueros" 1993, Grindcore
+
+1 Pura de Venta (Brujeria) 
+2 Lleyes Narcos (Brujeria) 
+3 Sacrificio (Brujeria) 
+4 Santa Lucfa (Brujeria) 
+5 Matando Gueros (Brujeria) 
+6 Seis Seis Seis (Brujeria) 
+7 Cruza la Frontera (Brujeria) 
+8 Gre±udos Locos (Brujeria) 
+9 Chingo de Mecos (Brujeria) 
+10 Narcos-SatЯnicos (Brujeria) 
+11 Desperado (Brujeria) 
+12 Culeros (Brujeria) 
+13 Misas Negras (Sacrificio III) (Brujeria) 
+14 Chinga T· Madre (Brujeria) 
+15 Verga del Brujo/Estan Chingados (Brujeria) 
+16 Molestando Ni±os Muertos (Brujeria) 
+17 Machetazos (Sacrificio II) (Brujeria) 
+18 Castigo del Brujo (Brujeria) 
+19 Cristo de la Roca (Brujeria) 
+ 
+
+
+
+### "El Patron (single)" 1994, Grindcore
+
+
+
+### "Raza Odiada" 1995, Death Metal
+
+1 Raza Odiado (Pito Wilson)
+2 Colas de Rata
+3 Hechando Chingasos (Grenudo Locos II)
+4 Migra (Cruza la Frontera II)
+5 Revolucion
+6 Consejos Narcos
+7 Almas de Venta
+8 La Ley de Plomo
+9 Tengo Colgando (Chingo de Mecos II)
+10 Sesos Humanos (Sacrificio IV)
+11 Primer Meco
+12 EL Patron
+13 Hermanos Menendez
+14 Radre Nuestro
+15 Ritmos Santanicos
+
+### "Brujerizmo" 2000, Death Industrial
+
+Brujerizmo 
+Vayad Sin Miedo 
+La Traicion 
+Pititis Te Invoco 
+Laboratorio Cristalitos 
+Division Del Norte 
+Marcha De Odio 
+Anti-Castro 
+Cuiden A Los Ninos 
+El Bajon 
+Mecosario 
+El Desmadre 
+Sida De La Mente
+
+### "Mextremist! Greatest Hits" 2001, Death Metal
+
+1. Seis Seis Seis
+2. Santa Lucia
+3. Sacrificio
+4. Machetazos
+5. Padre Nuestro
+6. Molestando Ninos Muertos
+7. Castigo del Brujo
+8. Matando Gueros '97
+9. Narco-Peda
+10. Brujo Cirujano
+11. Asesino
+12. Hechando Chingasos
+13. Poseido
+14. Cristo de la Roca
+15. Papa Capado
+16. Eran Mios Para Siempre
+17. Marijuana
+18. Bonus Track
+
+### "Pocho Aztlan" 2016, Death Metal
+
+1. Pocho Aztlan 
+2. No aceptan imitaciones 
+3. Profecнa del Anticristo 
+4. Бngel de la frontera 
+5. Plata o plomo 
+6. Satongo 
+7. Isla de la fantasнa 
+8. Bruja 
+9. Mйxico campeуn 
+10. Culpan la mujer 
+11. Cуdigos 
+12. Debilador 
+13. California ьber Aztlan (Dead Kennedys cover)
+
 
 ## Отношения с другими группами
 

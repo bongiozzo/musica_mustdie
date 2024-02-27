@@ -1,13 +1,70 @@
 # Paradox
 
-Дискография
-"Product Of Imagination" 1987, Thrash
-"Heresy" 1989, Thrash
-"Collision Course" 2000, Thrash
-"Electrify" 2008, Power Metal
-"Riot Squad" 2009, Thrash
-"Tales Of The Weird" 2012, Thrash
-"Pangea" 2016, Thrash
+
+
+## Дискография
+
+### "Product Of Imagination" 1987, Thrash
+
+
+
+### "Heresy" 1989, Thrash
+
+
+
+### "Collision Course" 2000, Thrash
+
+
+
+### "Electrify" 2008, Power Metal
+
+Second Over Third By Force 
+Paralyzed 
+Monument 
+Portrait In Grey 
+Hyperspeed Hallucinations 
+Bridge To Silence 
+Infected 
+Disconnected 
+Cyberspace Romance
+Electrify 
+Infected (bonus videoclip)
+
+Charly Steinhauer - Vocals, Guitar
+Kai Pasemann - Guitar
+Olly Keller - Bass
+Roland Jahoda - Drums
+
+### "Riot Squad" 2009, Thrash
+
+1. Suburban Riot Squad 05:07  
+2. Hollow Peace 05:33  
+3. Riptide 04:03  
+4. Rise in Rank 04:26  
+5. Evolution Reset 05:31  
+6. Nothingness 05:24  
+7. No Place to Survive 02:55  
+8. Dream Hero 05:08  
+9. Planet Terror 06:43  
+10. Psychofficial 03:37 
+
+### "Tales Of The Weird" 2012, Thrash
+
+
+
+### "Pangea" 2016, Thrash
+
+01. Apophis
+02. Raptor
+03. The Raging Planet
+04. Ballot Or Bullet
+05. Manhunt
+06. Cheat & Pretend
+07. Pangea
+08. Vale Of Tears
+09. Alien Godz
+10. El Muerte
+
 
 ## Отношения с другими группами
 

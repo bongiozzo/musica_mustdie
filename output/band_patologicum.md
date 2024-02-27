@@ -1,7 +1,13 @@
 # Patologicum
 
-Дискография
-"Hecatomb Of Aberration" 2003, Grindcore
+
+
+## Дискография
+
+### "Hecatomb Of Aberration" 2003, Grindcore
+
+
+
 
 ## Отношения с другими группами
 

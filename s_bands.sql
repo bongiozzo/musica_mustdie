@@ -1,1 +1,1 @@
-select band_id, band from bands;
+select band_id, band, description from bands;

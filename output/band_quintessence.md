@@ -1,7 +1,21 @@
 # Quintessence
 
-Дискография
-"Le Fleau de ton Existence" 2009, Black Metal
+
+
+## Дискография
+
+### "Le Fleau de ton Existence" 2009, Black Metal
+
+1. Veines paпennes 05:32
+2. Misиre et pestilence 05:23 
+3. Hйrйtique frйnйsie 04:57 
+4. Le flйau de ton existence 05:16
+5. Hymne а l'infamie 04:41 
+6. Colиre d'outre-tombe 04:47
+7. L'extinction de mon вme 05:49
+8. Les pleurs de l'agonie 05:49
+9. Errances 02:48 
+
 
 ## Отношения с другими группами
 

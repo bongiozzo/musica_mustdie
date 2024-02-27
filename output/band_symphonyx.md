@@ -1,17 +1,232 @@
 # Symphony X
 
-Дискография
-"Symphony X" 1994, Progressive
-"The Damnation Game" 1995, Progressive
-"Divine Wings of Tragedy" 1996, Progressive
-"Prelude to the Millenium" 1998, Progressive
-"Twilight in Olympus" 1998, Progressive
-"V: The New Mythology Suite" 2000, Progressive
-"The Odyssey" 2002, Progressive
-"Paradise Lost" 2007, Progressive
-"Iconoclast" 2011, Progressive
-"Underworld" 2015, Progressive
-"Without You (single)" 2015, Progressive
+(Progressive-power metal)
+
+## Дискография
+
+### "Symphony X" 1994, Progressive
+
+01. Into the Dementia [00:59] 
+02. The Raging Season [04:59] 
+03. Premonition [05:35] 
+04. Masquerade [04:24] 
+05. Absinthe and Rue [07:13] 
+06. Shades of Grey [05:38] 
+07. Taunting the Notorious [03:17] 
+08. Rapture or Pain [05:04] 
+09. Thorns of Sorrow [03:52] 
+10. A Lesson Before Dying [12:04]
+
+
+
+Michael Romeo - Guitars 
+Rod Tyler - Vocals 
+Michael Pinnella - Keyboards 
+Thomas Miller - Bass 
+Jason Rullo - Drums 
+
+
+
+
+### "The Damnation Game" 1995, Progressive
+
+01. The Damnation Game [04:31] 
+02. Dressed to Kill [04:44] 
+03. The Edge of Forever [08:58] 
+04. Savage Curtain [03:30] 
+05. Whispers [04:48] 
+06. The Haunting [05:21] 
+07. Secrets [05:42] 
+08. A Winter's Dream - Prelude (Part I) [03:03] 
+09. A Winter's Dream - The Ascension (Part II) [05:40] 
+
+
+
+Michael Romeo - Guitars 
+Russel Allen - Vocals 
+Michael Pinnella - Keyboards 
+Thomas Miller - Bass 
+Jason Rullo - Drums 
+
+
+
+
+### "Divine Wings of Tragedy" 1996, Progressive
+
+01. Of Sins and Shadows [04:58] 
+02. Sea and Lies [04:18] 
+03. Out of the Ashes [03:39] 
+04. The Accolade [09:51] 
+05. Pharaoh [05:28] 
+06. Eyes of Medusa [05:26] 
+07. The Witching Hour [04:15] 
+08. The Divine Wings of Tragedy [20:41] 
+09. Candlelight Fantasia [06:45] 
+
+
+
+Michael Romeo - Guitars 
+Russel Allen - Vocals 
+Michael Pinnella - Keyboards 
+Thomas Miller - Bass 
+Jason Rullo - Drums 
+
+
+
+### "Prelude to the Millenium" 1998, Progressive
+
+01. Masquerade'98 [06:01] 
+02. A Winter's Dream - Prelude (Part I) [03:03] 
+03. The Damnation Game [04:31] 
+04. Dressed to Kill [04:43] 
+05. Of Sins and Shadows [04:55] 
+06. Sea of Lies [04:17] 
+07. Out of the Ashes [03:39] 
+08. The Divine Wings of Tragedy [20:40] 
+09. Candlelight Fantasia [06:41] 
+10. Smoke and Mirrors [06:11] 
+11. Through the Looking Glass (Part I, II, III) [13:03] 
+
+
+Michael Romeo - Guitars 
+Russel Allen - Vocals 
+Michael Pinnella - Keyboards 
+Thomas Miller - Bass 
+Jason Rullo; Tom Walling (*) - Drums 
+
+
+
+
+### "Twilight in Olympus" 1998, Progressive
+
+01. Smoke and Mirrors [06:07] 
+02. Church of the Machine [08:57] 
+03. Sonata [01:26] 
+04. In the Dragon's Den [03:58] 
+05. Through the Looking Glass [13:04] 
+06. The Relic [05:03] 
+07. Orion-The Hunter [06:54] 
+08. Lady of the Snow [07:07] 
+
+Russell Allen - vocals
+Michael Romeo - all guitars, sitar, backing vocals
+Michael Pinnella - keyboards, backing vocals
+Thomas Miller - bass, backing vocals
+Tom Walling - drums
+
+
+### "V: The New Mythology Suite" 2000, Progressive
+
+1. Prelude (1:07) 
+2. Evolution (The Grand Design) (5:20) 
+3. Fallen (5:51) 
+4. Transcendence (0:38) 
+5. Communion and the Oracle (7:45) 
+6. The Bird-Serpent War/Cataclysm (3:59) 
+7. On the Breath of Poseidon (3:04) 
+8. Egypt (7:04) 
+9. Death of Balance/Lacrymosa (3:42) 
+10. Absence of Light (4:58) 
+11. A Fool's Paradise (5:48) 
+12. Rediscovery (1:24) 
+13. Rediscovery pt. II - The New Mythology (11:57) 
+
+
+
+Vocals Russel Allen 
+Guitars Michael Romeo 
+Keyboards Michael Pinella 
+Bass Mike Lepond 
+Drums Jason Rullo 
+
+
+
+
+### "The Odyssey" 2002, Progressive
+
+1. Inferno (Unleash The Fire)                                            [5:32] 
+2. Wicked                                                                           [5:30] 
+3. Incantations Of The Apprentice                                    [4:19] 
+4. Accolade II                                                                    [7:04] 
+5. King Of Terrors                                                              [6:16] 
+6. The Turning                                                                    [4:42] 
+7. Awakenings                                                                    [8:18] 
+8. The Odyssey                                                                [24:09]
+   part 1. Odysseus' Theme/ Overture
+   part 2. Journey To Ithaca
+   part 3. The Eye
+   part 4. Circe (Daughter of the Sun)
+   part 5. Sirens
+   part 6. Scylla and Charybdis
+   part 7. The Fate of the Suitors/ Champion of Ithaca
+9. Masquerade*                                                                 [6:01]
+
+*Limited Edition Bonus Track
+
+### "Paradise Lost" 2007, Progressive
+
+1. Oculus ex Inferni 02:34  
+2. Set the World on Fire (The Lie of Lies) 05:55  
+3. Domination 06:29  
+4. The Serpent’s Kiss 05:03  
+5. Paradise Lost 06:32  
+6. Eve of Seduction 05:04  
+7. The Walls of Babylon 08:16  
+8. Seven 07:01  
+9. The Sacrifice 04:49  
+10. Revelation (Divus Pennae ex Tragoedia) 09:17
+
+### "Iconoclast" 2011, Progressive
+
+CD 1:
+ 
+01. Iconoclast (10:53)
+02. The End Of Innocence (05:29)
+03. Dehumanized (06:49)
+04. Bastards Of The Machine (04:58)
+05. Heretic (06:26)
+06. Children Of A Faceless God (06:22)
+07. When All Is Lost (09:10)
+ 
+CD 2:
+ 
+01. Electric Messiah (06:15)
+02. Prometheus (I Am Alive) (06:48)
+03. Light Up The Night (05:05)
+04. The Lords Of Chaos (06:11)
+05. Reign In Madness (08:37) 
+
+
+
+Russell Allen  Vocals 
+Michael Romeo Guitars 
+Michael Pinnella Keyboards 
+Mike LePond Bass 
+Jason Rullo Drums 
+
+
+
+### "Underworld" 2015, Progressive
+
+1. Overture  02:13    
+2. Nevermore  05:28   
+3. Underworld  05:48  
+4. Without You  05:51    
+5. Kiss of Fire  05:09    
+6. Charon  06:06   
+7. Hell and Back  09:23  
+8. In My Darkest Hour  04:22  
+9. Run with the Devil  05:38    
+10. Swansong  07:29    
+11. Legend  06:29 
+
+### "Without You (single)" 2015, Progressive
+
+1. Without You  05:51
+2. Nevermore  05:28   
+
+
+
 
 ## Отношения с другими группами
 

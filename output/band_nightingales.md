@@ -1,11 +1,90 @@
 # Night In Gales
 
-Дискография
-"Sylphlike" 1996, Melodic Death Metal
-"Towards The Twilight" 1997, Melodic Death Metal
-"Thunderbeast" 1998, Melodic Death Metal
-"Nailwork" 2000, Melodic Death Metal
-"Necrodynamic" 2001, Melodic Death Metal
+
+
+## Дискография
+
+### "Sylphlike" 1996, Melodic Death Metal
+
+1. Bleed Afresh
+2. Sylphlike
+3. Avoid Secret Vanity
+4. Mindspawn
+5. When The Lightning Starts
+6. Flowing Spring
+
+Christian Muller - Vocals
+Frank Basten - Guitars
+Tobias Bruchmann - Bass, Backing Vocals
+Jens Basten - Guitars
+Christian Bass - Drums
+
+Piano By Slike Rychlikowski
+
+(P)(C) 1996
+
+### "Towards The Twilight" 1997, Melodic Death Metal
+
+1. Towards A Twilight Kiss
+2. Of Beauty's Embrace
+3. Razor
+4. From Ebony Skies
+5. Autumn Water
+6. Slavesun
+7. Through Ashen Meadows
+8. Avoid Secret Vanity
+9. Tragedians
+
+Music by Night In Gales.
+Lyrics by Bjorn Goosses and Christian Bass
+Additional vocals by Tobias Bruchmann
+Keyboard played by Silke Rychlikowski
+
+Recorded and mixed at the Real Sound Studio/Gelsenkirchen, Jan '97.
+Produced and engineered by Wolfgang Stach.
+Add. engineering by Thomas Erkelenz.
+Mastered by Ansgar Ballborn and Wolfgang Stach.
+
+(p) 1997 Nuclear Blast
+
+### "Thunderbeast" 1998, Melodic Death Metal
+
+1. Intruder
+2. Darkzone Anthemn
+3. Perihelion
+4. Crystalthorns' Call
+5. Feverfeast
+6. The Shadowchamber
+7. Thunderbeast
+8. I am The Dungeongod
+9. Blackfleshed
+10. The Dustcrown
+11. Stormchild
+12. Heralds Of Starfall
+13. From Ebony Skies
+
+(p) 1998 Nuclear Blast
+
+### "Nailwork" 2000, Melodic Death Metal
+
+1. Nailwork
+2. Blades To Laughter
+3. Wormsong
+4. All Scissors Smile
+5. How To Eat A Scythe
+6. Black Velvet
+7. Filthfinger
+8. The Tenmiletongue
+9. Hearselights
+10. Down The Throat
+11. Quicksilverspine
+
+(p) 2000 Nuclear Blast
+
+### "Necrodynamic" 2001, Melodic Death Metal
+
+
+
 
 ## Отношения с другими группами
 

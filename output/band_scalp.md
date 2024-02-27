@@ -1,12 +1,61 @@
 # S.C.A.L.P.
 
-Дискография
-"Madness Cannibalism (demo)" 1994, Deathcore
-"C.I.A. (demo)" 1994, Deathcore
-"Memory (demo)" 1995, Death Metal
-"Through Eternity" 1997, Gothic
-"Tears And Blood" 2004, Death Doom
-"Чужая Война" 2009, Death Doom
+
+
+## Дискография
+
+### "Madness Cannibalism (demo)" 1994, Deathcore
+
+1. Intro 
+2. The Industry 
+3. Flying Dutchman 
+4. Rotting Being 
+5. B.A.T.S.O.L. 
+6. Doomed Hopes 
+7. Profanation Of Saints 
+8. Madness Cannibalism
+
+### "C.I.A. (demo)" 1994, Deathcore
+
+1. D.V.O.R.C.
+2. Scum
+3. C.I.A.
+4. The American Jesus
+
+### "Memory (demo)" 1995, Death Metal
+
+1. A Vicious Circle
+2. Next Morning Without Me
+3. Doomed Hopes
+4. What For?
+
+### "Through Eternity" 1997, Gothic
+
+1. Cry Of The Ocean
+2. Till The Clouds Fly
+3. Silentium
+4. The Fate Will Never Repeat
+5. Who Dared To Say
+6. Removal
+7. Fly Through Eternity
+
+(p)(c) 1998 R.I.P. Prods/LEVIATHAN Records
+
+### "Tears And Blood" 2004, Death Doom
+
+1. Out Of Madness 
+2. A Heart Was Beating
+3. A Heart.../continue/ 
+4. Broken Pines
+5. Tears And Blood 
+6. Tears.../continue/
+7. Removal /re-mastering/
+8. Who Dared To Say /re-mastering/
+
+### "Чужая Война" 2009, Death Doom
+
+
+
 
 ## Отношения с другими группами
 

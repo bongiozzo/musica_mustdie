@@ -1,11 +1,71 @@
 # Mar De Grises
 
-Дискография
-"Demo" 2002, Death Doom
-"The Tatterdemalion Express" 2004, Death Doom
-"Draining The Waterheart" 2008, Death Doom
-"First River Regards (EP)" 2009, Death Doom
-"Streams Inwards" 2010, Death Doom
+doom from Chile
+
+## Дискография
+
+### "Demo" 2002, Death Doom
+
+1. Storm
+2. Recklessness
+3. Mar De Grises
+4. For Just An Eternity
+
+### "The Tatterdemalion Express" 2004, Death Doom
+
+El otro
+To see Saturn fall
+Storm
+Recklessness
+Self portrait no 1
+Be welcome oh hideous hell
+Onirica
+
+### "Draining The Waterheart" 2008, Death Doom
+
+1. Sleep Just One Dawn 08:24 
+2. Kilometros de Nada 10:53 
+3. Deep-Seeded Hope Avant-Garde 08:29 
+4. Fantasia 03:10  
+5. Wooden Woodpecker Conversion 06:13  
+6. One Possessed 07:08  
+7. Summon Me 06:23  
+8. Liturgia: Convite y Prefiguraciуn/Purgatorio/Diбlogo Infierno 13:35 
+
+
+
+ consists in two editions: a quite simple one and a luxus limited edition,
+specially designed fo the fans. Tuomo Lethonen (Swallow the Sun, Grave Flowers)
+has done the artwork; there will be a digipack-A5 format that will include a
+mini CD entitled "UNCONSCIOS PASSENGER" as bonus material.
+
+Album Lineup:
+
+Alejandro Arce - Drums
+Rodrigo G. - Bass 
+Rodrigo M. - Guitar
+Sergio A. - Guitar
+Juan Escobar - Vocals, Keys, Synth 
+
+### "First River Regards (EP)" 2009, Death Doom
+
+
+
+### "Streams Inwards" 2010, Death Doom
+
+1. Starmaker 05:56  
+2. Shining Human Skin 05:45  
+3. The Bell and the Solar Gust 05:44  
+4. Spectral Ocean 03:03  
+5. Sensing the New Orbit 04:50  
+6. Catatonic North 06:36  
+7. Knotted Delirium 07:17  
+8. A Sea of Dead Comets 07:56 
+
+
+The limited digipak edition will include the bonus song "Aphelion Aura" (09:01).
+
+
 
 ## Отношения с другими группами
 

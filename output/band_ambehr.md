@@ -1,9 +1,57 @@
 # Ambehr
 
-Дискография
-"Spider's Web" 2005, Thrash
-"Sword's Song" 2006, Thrash
-"Amber Dreamland" 2011, Thrash
+
+
+## Дискография
+
+### "Spider's Web" 2005, Thrash
+
+1 - Holy Ecstasy 
+2 - The Countdown 
+3 - Fear 
+4 - Spider's Web 
+5 - Knights of Apocalypse 
+6 - In the Name of God 
+7 - Evil's Garden 
+8 - Black Star 
+9 - Fire Dance (Komitas) 
+10 - Counting Rhymes 
+11 - Metal Meltdown (Judas Priest cover) 
+
+
+Арт - вокал, бас 
+Марина - вокал 
+Виталий - гитара 
+Зураб - гитара 
+Грант - ударные
+
+### "Sword's Song" 2006, Thrash
+
+1. Raven 
+2. Gone Away 
+3. Sword's Song 
+4. Beast Inside 
+5. Janiman 
+6. Lyrical 
+7. Guiding Star 
+8. Mess 
+9. Abyss of Hungry Eyes 
+10. Alone
+
+### "Amber Dreamland" 2011, Thrash
+
+1. Proud Heart
+2. Prince
+3. Love Story
+4. Amber Dreamland 
+5. Oriental
+6. All Goes
+7. Let's Go Down
+8. Nothing to Die for
+9. A Day in Gehard
+10. Garnan Aravot
+11. Magic Wand
+
 
 ## Отношения с другими группами
 

@@ -1,11 +1,74 @@
 # In Battle
 
-Дискография
-"In Battle" 1997, Black Metal
-"The Rage of the Northmen" 1999, Black Metal
-"Soul Metamorphosis  [EP]" 2003, Black Metal
-"Welcome to the Battlefield" 2004, Black Metal
-"Kingdom Of Fear" 2007, Black Metal
+Evil Black Metal
+
+## Дискография
+
+### "In Battle" 1997, Black Metal
+
+1. Ruler of the Northern Sphere
+7. I Ofred vi Drar Fram
+8. The Nocturnal Moon
+2. Enchant Me
+3. Еr av Kцld
+4. Doom of the Unbeloved
+5. Odhinn
+6. A Sign of Northern Triumph and Glory
+9. De Hдngdas Furste
+10. Lokes Дtt
+11. Helhorde
+12. In Battle
+
+### "The Rage of the Northmen" 1999, Black Metal
+
+1. From the Flesh and Bones of Our Enemies
+2. The Rage of the Northmen
+3. The Spectre of Hate
+4. The Conqueror
+5. The Destroyer of Souls
+6. Muspelheim the Dominion of the Flame
+7. Storms of War
+8. Armies of the Northern Realms
+9. Endless War
+
+
+
+### "Soul Metamorphosis  [EP]" 2003, Black Metal
+
+1. Pioneers of a Dead Future 03:50
+2. Dawn of Darkness 03:38
+3. Soul Metamorphosis 03:24
+4. King God 04:15 
+
+### "Welcome to the Battlefield" 2004, Black Metal
+
+1. Shunned by Life 03:45
+2. Madness in the Realm of War 03:18
+3. Eldjдttar 05:29
+4. Scorched World 03:56 
+5. Soul Metamorphosis 03:27
+6. Despoter 03:54
+7. Serpents 03:55 
+8. The Blood Divine 03:22
+9. Stonefaced Mountains 03:35 
+10. King God 04:18
+11. Mass Produced Hybrid Humans 03:25 
+
+### "Kingdom Of Fear" 2007, Black Metal
+
+1. Kingdom of Fear; 
+2. The Multitude; 
+3. The Wandering One; 
+4. Follow the Allfather; 
+5. Tyr; 
+6. The Dead Shall See; 
+7. The Curse; 
+8. I Kamp; 
+9. Terrorkings; 
+10. Path of Power; 
+11. Raven Calls
+
+
 
 ## Отношения с другими группами
 

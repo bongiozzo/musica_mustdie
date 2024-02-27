@@ -1,8 +1,28 @@
 # 11th Hour
 
-Дискография
-"Burden of Grief" 2009, Death Doom
-"Lacrima Mortis" 2012, Death Doom
+
+
+## Дискография
+
+### "Burden of Grief" 2009, Death Doom
+
+1. One Last Smoke 06:44  
+2. In The Silent Grave 08:22  
+3. Origins Of Mourning 11:13  
+4. Weep For Me 08:52  
+5. Atonement 07:44  
+6. Longing For Oblivion 09:40 
+
+### "Lacrima Mortis" 2012, Death Doom
+
+1.	 We All Die Alone	07:23
+2.	 Rain on Me	08:24
+3.	 The Death of Life	07:15
+4.	 Tears of the Bereaved	08:45
+5.	 Reunion Illusion	08:07
+6.	 Nothing but Pain	07:37
+7.	 Bury Me	04:47
+
 
 ## Отношения с другими группами
 

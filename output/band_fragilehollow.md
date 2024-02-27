@@ -1,7 +1,13 @@
 # Fragile Hollow
 
-Дискография
-"Effette Mind" 2003, Gothic
+Finnish gothic
+
+## Дискография
+
+### "Effette Mind" 2003, Gothic
+
+
+
 
 ## Отношения с другими группами
 

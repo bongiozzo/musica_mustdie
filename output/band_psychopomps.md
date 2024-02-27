@@ -1,8 +1,36 @@
 # Psychopomps
 
-Дискография
-"" 1994, Industrial
-"In The Skin" 1995, Industrial
+
+
+## Дискография
+
+### "" 1994, Industrial
+
+
+
+### "In The Skin" 1995, Industrial
+
+1. Torso
+2. Doggy Style (X-Rated)
+3. Pissed Of
+4. Drunk City (Claustrophobia Edit)
+5. Godshit
+6. Pub Ban (Trash Can Dance)
+7. Drunk City
+
+"In The Skin" Also Featuring Previous Released 12"/MCD More DK (Track 4-7)
+Track 1, 2 & 3 Written By J. Schmidt & F. Larsen
+Produced & Mixed By PSYCHOPOMPS
+Engineered By Longhorn
+Recorded, Mixed & Mastered At Hidcat, Denmark, Aug. 1992 (X-Rated By Jean-Claude Colort & Pierre Pissoir)
+Track 4-7 Written By J. Schmidt & F. Larsen
+Produced & Mixed By PSYCHOPOMPS & C.Larsen
+Recorded, Mixed & Mastered At Strip Studio, April-May 1991
+Re-Mastered At Strip Studio, Aug. 1993
+Claustrophobia Edit By C. Larsen
+
+(p)&(c) 1995 CLEOPATRA
+
 
 ## Отношения с другими группами
 

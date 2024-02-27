@@ -1,7 +1,13 @@
 # Total Dunkelheit
 
-Дискография
-"Total Dunkelheit" 2002, Metal
+power electronics
+
+## Дискография
+
+### "Total Dunkelheit" 2002, Metal
+
+
+
 
 ## Отношения с другими группами
 

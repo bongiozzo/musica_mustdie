@@ -1,7 +1,22 @@
 # Stahlmann
 
-Дискография
-"Quecksilber" 2012, Industrial
+
+
+## Дискография
+
+### "Quecksilber" 2012, Industrial
+
+01. Engel Der Dunkelheit
+02. Spring Nicht
+03. Tanzmaschine
+04. Asche
+05. Mein Leib
+06. Am Grunde
+07. Goetter
+08. Schmerz
+09. Diener
+10. Tanzmaschine (Club Remix) 
+
 
 ## Отношения с другими группами
 

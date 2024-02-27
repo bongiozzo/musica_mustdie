@@ -1,7 +1,33 @@
 # Molested
 
-Дискография
-"Blod-Draum" 1995, Death Metal
+
+
+## Дискография
+
+### "Blod-Draum" 1995, Death Metal
+
+1. A Strife Won At Wraith
+2. Along The Misty Morass
+3. Unborn Woods In Doom
+4. Following The Growels
+5. Blod-Draum
+6. The Hate From Miasma Storms
+7. Carved By Raven Claws
+8. A Glade Of Ingrown Blood
+9. Forlorn As A Mist Of Gries
+
+ Oystein J.Brun - Vocals, Guitars
+ Trond Furnes - Guitars
+ Kenneth Lian - Bass
+ Erlend Erichsen - Drums
+
+All Songs Written By MOLESTED
+Produced By Cato Langnes & MOLESTED
+Engineered & Mixed By Cato Langnes
+Recorded At Electro Lyd During Oct 1994
+
+(p)&(c) 1995 EFFIGYRecords
+
 
 ## Отношения с другими группами
 

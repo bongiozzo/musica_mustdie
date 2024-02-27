@@ -1,15 +1,213 @@
 # Soundgarden
 
-Дискография
-"Ultramega OK" 1988, Thrash
-"Louder Than Love" 1989, Thrash
-"Screaming Life / Fopp" 1990, Thrash
-"Badmotorfinger" 1991, Thrash
-"Badmotorfinger / Satanoscillatemymetallicsonatas" 1992, Thrash
-"Mindriot" 1993, Thrash
-"Superunknown" 1994, Thrash
-"Fell On Black Days" 1995, Thrash
-"Down On The Upside" 1996, Grunge
+(Very innovative thrash + grunge)
+
+## Дискография
+
+### "Ultramega OK" 1988, Thrash
+
+01. Flower [03:27] 
+02. All Your Lies [03:49] 
+03. 665 [01:36] 
+04. Beyond The Wheel [04:20] 
+05. 667 [01:02] 
+06. Mood for Trouble [04:23] 
+07. Circle of Power [02:04] 
+08. He Didn't [02:49] 
+09. Smokestack Lightning [05:06] 
+10. Nazi Driver [03:56] 
+11. Head Injury [02:24] 
+12. Incessant Mace [06:25] 
+13. One Minute of Silence [01:00] 
+
+
+### "Louder Than Love" 1989, Thrash
+
+1.  Ugly Truth
+2.  Hands All Over
+3.  Gun
+4.  Power Trip
+5.  Get On The Snake
+6.  Full On Kevin's Mom
+7.  Loud Love
+8.  I Awake
+9.  No Wrong, No Right
+10.Uncovered
+11.Big Dumb Sex
+12.Full On (Reprise)
+
+(P)c 1989
+
+### "Screaming Life / Fopp" 1990, Thrash
+
+SCREAMING LIFE 
+
+01. Hunted Down [02:42] 
+02. Entering [04:36] 
+03. Tears to Forget [02:00] 
+04. Nothing to Say [03:59] 
+05. Little Joe [04:30] 
+06. Hand of God [04:26] 
+
+FOPP 
+
+07. Kingdom of Come [02:17] 
+08. Swallow My Pride [02:35] 
+09. Fopp [03:36] 
+10. Fopp (DUB) [06:24] 
+
+
+### "Badmotorfinger" 1991, Thrash
+
+01. Rusty Cage [04:25] 
+02. Outshined [05:09] 
+03. Slaves & Bulldozers [06:55] 
+04. Jesus Christ Pose [05:50] 
+05. Face Pollution [02:23] 
+06. Somewhere [04:20] 
+07. Searching with My Good Eye Closed [06:30] 
+08. Room a Thousand Years Wide [04:05] 
+09. Mind Riot [04:48] 
+10. Drawing Flies [02:25] 
+11. Holy Water [05:06] 
+12. New Damage [05:39] 
+
+Credits 
+
+Chris Cornell : vocal, guitar
+Kim Thayil : guitar
+Matt Cameron : drums
+Ben Shepherd : bass
+Scott Granlund : sax
+Ernst Long : trumpet
+Damon Stewart : narration
+
+
+### "Badmotorfinger / Satanoscillatemymetallicsonatas" 1992, Thrash
+
+01. Into the Void (Sealth)   
+02. Girl U Want   
+03. Stray Cat Blues   
+04. She's a Politician   
+05. Slaves & Bulldozers (Live)   
+
+Notes 
+
+This is a 2nd Badmotorfinger disc (A&M, 75021 5401 2) titled as Satanoscillatemymetallicsonatas, and is commonly referred to as SOMMS.
+Track 1: Was originally done by Black Sabbath.
+Track 2: Was originally recorded by Devo and released in 1980. Devo and Soundgarden both played at five Lollapalooza shows in the summer of 1996.
+Track 3: Was originally recorded by the Rolling Stones.
+Track 4: This song appeared on a free double-sided flexi with the December 1991 issue of Reflex magazine. The b-side was "Christmas with the Devil" by Rights of the Accused. It also appears on the "Burden In My Hand" single (European disc #2), 1996.
+Track 5: Published by Noyes Inneroutter/You Make Me Sick I Make Music (ASCAP) 
+
+
+### "Mindriot" 1993, Thrash
+
+1.  Somewhere
+2.  Slaves & Bulldozers
+3.  Gun
+4.  Mindriot
+5.  Jesus Christ Pose
+6.  Searching With My Good Eye Closed
+7.  Hands All Over
+8.  Flower
+9.  Big Dumb Sex
+10.Incessant Male
+11.Rusty Lage
+12.Face Pollution
+13.Room A Thousand Years Wide
+14.Drawing Files
+
+All Songs Written By SOUNDGARDEN.
+Recorded Live In The Netherlands.
+
+(P)c 1993 LIVE LINE Records
+
+### "Superunknown" 1994, Thrash
+
+01. Let Me Drown [03:49] 
+02. My Wave [05:10] 
+03. Fell on Black Days [04:41] 
+04. Mailman [04:24] 
+05. Super Unknown [05:05] 
+06. Head Down [06:08] 
+07. Black Hole Sun [05:17] 
+08. Spoonman [04:05] 
+09. Limo Wreck [05:46] 
+10. The Day I Tried to Live [05:18] 
+11. Kickstand [01:33] 
+12. Fresh Tendrils [04:15] 
+13. 4th of July [05:07] 
+14. Half [02:13] 
+15. Like Suicide [07:00] 
+BONUSTRACKS: 
+16. She Likes Surprises [03:17] 
+
+
+Credits 
+
+Chris Cornell : vocal, guitar
+Kim Thayil : guitar
+Matt Cameron : drums
+Ben Shepherd : bass 
+
+Notes 
+
+Bonustrack is available only on non-US releases of Superunknown. It was recently made available in the US on the Songs from the Superunknown EP and the Alive in the Superunknown CD+. 
+
+
+### "Fell On Black Days" 1995, Thrash
+
+1. Fell On Black Days
+2. Kyle Petty, Son Of Richard
+3. Fell On Black A Days (Video Version)
+4. Motorcycle Loop (Short Version)
+5. Girl U Want
+6. Fell On Black Days (Demo Version)
+
+All songs written by SOUNDGARDEN
+Produced by Michael Beinhorn & SOUNDGARDEN.
+
+Chris Coraall - Vocals & Guitar
+Chris Thayil - Lead Guitar
+Ben Shepherd - Bass, Vocals
+Matt Camerom - Drums, Percussion
+
+(p)(c) 1995 A&M Records
+
+### "Down On The Upside" 1996, Grunge
+
+1.  Pretty Noose
+2.  Rhinosaur
+3.  Zero Chance
+4.  Dusty
+5.  Ty Cobb
+6.  Blow Up The Outside World
+7.  Burden In My Hand
+8.  Never Named
+9.  Applebite
+10.Never The Machine Forever
+[11].Tighter And Tighter
+[12].No Attention
+[13].Switch Opens
+[14].Overfloater
+[15].An Unkind
+[16].Boot Camp
+
+[11]-[16] на стороне B
+
+All songs written by SOUNDGARDEN
+Produced By SOUNDGARDEN.
+Co-Produced & Engineered by Adam Kasper.
+Recorded at Studio Litho and Bad Animals, Seattle, WA.
+
+Chris Coraall - Vocals & Guitar
+Chris Thayil - Lead Guitar
+Ben Shepherd - Bass, Vocals
+Matt Cameron - Drums, Percussion
+
+(p)(c) 1996 A&M Records
+
 
 ## Отношения с другими группами
 

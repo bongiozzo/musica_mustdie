@@ -1,11 +1,105 @@
 # Disharmonic Orchestra
 
-Дискография
-"Expositions Prophylaxe" 1990, Death Metal
-"Not To Be Undimensional Conscious" 1992, Death Metal
-"Pleasuredome" 1994, Death Metal
-"Ahead" 2002, Death Metal
-"Fear Of Angst" 2016, Death Metal
+Very Original Death Metal
+
+## Дискография
+
+### "Expositions Prophylaxe" 1990, Death Metal
+
+1. Introphylaxe
+2. Inexorable Logic
+3. Life Disintegrating
+4. Sick Dishonourableness
+5. Successive Subtitution
+6. Accelerated Evolution  *
+7. Psychoanalysis
+8. Quintessentially Unnecessary Institution
+9. Hypophysis
+10.Disappeared With Hermaphrodite Choirs
+11.Disharmonisation
+12.The Unequalled Visual Response Mechanism
+
+ Patrick K. - Guitar & Vocals
+ Herwig Z. - Bass
+ Martin M. - Drums,Guitar On *
+
+All Lyrics By Patrick Klopf.
+Recorded & Mixed At Dust-Productions In
+Hilchenbach,Germany.
+
+(p)&(c) 1990 NUCLEAR BLAST Records NB037
+
+### "Not To Be Undimensional Conscious" 1992, Death Metal
+
+1. Perishing Passion
+2. A Mental Sequence
+3. Addicted Seas With Missing Pleasure
+4. The Return Of The Living Beat
+5. Groove  1)
+6. Idiosyncrasy 2)
+7. Like A Madness From Above
+8. Time Frame 3)
+9. Mind Seduction
+
+ Patrick K. - Guitar & Vocals
+ Herwig Z. - Bass
+ Martin M. - Drums
+
+All Music By DISHARMONIC ORCHESTRA.
+All Lyrics By Patrick Klopf.
+Except 1) By Martin Messner & 2) By Patrick Klopf
+& Martin Messner.
+Recorded & Mixed At Sunlight Studio,Stockholm
+In Jan. 1992 By Thomas Skogsberg.
+Produced By Thomas Skogsberg & DISHARMONIC ORCHESTRA.
+Executive Producer: Markus Staiger.
+Technical Assistence On 3) By Helmut Wiederschwinger.
+
+(p)&(c) 1992 NUCLEAR BLAST Records NB062
+
+### "Pleasuredome" 1994, Death Metal
+
+1. I Hyperact
+2. Recommended Suicide
+3. The Silence I Observe
+4. Feel Like Fever Now
+5. The Sick Deepunder
+6. Getting Me Nowhere
+7. Pleasuredome
+8. Stuck In Something
+9. Fall Colours' Fall
+10. Overhelming Tranquillity
+11. Where Can I Park My Horse
+12. Off Of The Ground
+13. Sunday Mood
+
+All songs written by DISHARMONIC ORCHESTRA
+Produced by O.L.A.F. Wozniak & DISHARMONIC ORCHESTRA
+Recorded, mixed by O.L.A.F. Wozniak
+Recorded at Def Mohrmann Studio, Witten
+
+ Patrick Klopf - Vocals,guiyar
+ Herwig Zamernik - Bass
+ Martin Messner - Drums
+
+(p)(c) 1994 STEAMHAMMER
+
+### "Ahead" 2002, Death Metal
+
+
+
+### "Fear Of Angst" 2016, Death Metal
+
+1. Fear Of Angst
+2. Flushing The Primary
+3. Innamorato
+4. Aura
+5. Protone Radius
+6. The Venus Between Us
+7. Rascal In Me
+8. Flambition
+9. Down To Earth
+
 
 ## Отношения с другими группами
 

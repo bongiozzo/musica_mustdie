@@ -1,9 +1,48 @@
 # Darkwell
 
-Дискография
-"Suspiria" 2000, Gothic
-"Metat[r]on" 2004, Gothic
-"Moloch" 2016, Gothic
+
+
+## Дискография
+
+### "Suspiria" 2000, Gothic
+
+01. pictures of strive
+02. blackheart
+03. ladies' choice
+04. path to salvation
+05. the beginning
+06. the salvation
+07. the rejuvination
+08. suspiria
+09. realm of darkness
+10. armageddon
+
+### "Metat[r]on" 2004, Gothic
+
+01. Fate Prisoner
+02. Strange
+03. Metatron
+04. Crown of Thorn
+05. The Machine
+06. Hope Unborn
+07. Nothingness
+08. Far Cry
+09. Last Glance
+
+### "Moloch" 2016, Gothic
+
+1. Moloch 	 
+2. In Nomine Serpentis 
+3. Yoshiwara 
+4. Fall of Ishtar  
+5. Save My Sight 
+6. Bow Down 
+7. Clandestine 
+8. Loss of Reason 
+9. Im Lichte 
+10. Golem  
+11. Awakening 
+
 
 ## Отношения с другими группами
 

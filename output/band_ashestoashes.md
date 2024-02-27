@@ -1,8 +1,100 @@
 # Ashes to Ashes
 
-Дискография
-"Shapes of Spirits" 1999, Progressive
-"Cardinal VII" 2002, Progressive
+Gregorian Metal from Norway
+
+## Дискография
+
+### "Shapes of Spirits" 1999, Progressive
+
+Michael Stenberg - guitars
+Bjцrn Luna - bass guitars
+Kristian Johansen - drums
+Kenneth Brastad - vocals
+
+
+Produced by Michael Stenberg, co-produced by Bjцrn Luna
+
+Recorded at Gordon Studio
+Engineered by Thomas Sцrlie
+Mixed by Thomas Sцrlie assisted by M. Stenberg and B. Luna
+Mastered at Strype Audio by Tom Kvaalsvoll
+All music by M. Stenberg except "Ad Infinitum" by B. Luna
+All arrangements by M. Stenberg and B. Luna
+
+Lyrics by:
+
+B. Luna - "Gabriel" and "Sacrilege"
+M. Stenberg - "Castle in the Air" and "The Mourning"
+B. Torbo - "Dying Room"
+Additional lyrics by M. Stenberg
+
+All keyboards performed by T. Sцrlie
+The "Sacrilege" narration performed by Astennu
+Female vocals performed by Randi Hoftvedt
+
+Cover design by B. Luna assisted by Shagrath
+Cover concept idea by M. Stenberg
+Back cover concept idea by B. Luna
+
+B. Luna would like to express his appreciation to Erik Lunde for "The Ripper".
+
+
+### "Cardinal VII" 2002, Progressive
+
+1. New World Obscure 
+2. Embraced In Black 
+3. Among Mortals 
+4. Truth On Scaffold 
+5. Iben 
+6. Dualism 
+7. Sic Transit Gloria Mundi 
+8. Ravenous Unleashed 
+9. Behind Closed Eyes 
+10. Cardinal VII 
+11. Iben II
+
+Michael Stenberg - Guitars 
+Bjorn Luna - Bass 
+Ronny Kaasa - Drums 
+Kenneth Brastad - Vocals
+
+
+"Cardinal VII" was produced by Michael Stenberg and Bjцrn Luna
+Mixed by Per Amundsen with Michael Stenberg and Bjцrn Luna
+
+Recorded at EarAttack
+Engineered by Per Amundsen
+
+All music by Michael Stenberg
+except "Among Mortals" by Bjцrn Luna
+
+Vocal melodies by Michael Stenberg
+Additional vocal melodies by Kenneth Brastad
+
+Lyrics by Michael Stenberg:
+"Sic Transit Gloria Mundi","Behind Closed Eyes" and "Cardinal VII"
+
+Lyrics by Bjцrn Luna:
+"New World Obscure", "Embraced in Black", "Among Mortals" and "Truth on Scaffold"
+
+Additional lyrics by Michael Stenberg
+
+Arranged by Michael Stenberg and Bjцrn Luna
+
+Keyboards, piano and flute: Per Amundsen
+Cello: Karoline Rising Naess
+Additional drums: Cato Bekkevold
+Additional backing vocals: Jostein Sjцhaug
+"Among Mortals" narration: Michael Demmitt
+
+Mastered at Strype Audio by Tom Kvaalsvoll
+
+Cover design and photos by: B. Torbo for ProntoGraphics
+Art direction: B. Torbo with Michael Stenberg and Bjцrn Luna
+
+
+
+
 
 ## Отношения с другими группами
 

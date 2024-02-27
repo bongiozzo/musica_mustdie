@@ -1,14 +1,144 @@
 # Summoning
 
-Дискография
-"Lugburz" 1995, Black Metal
-"Minas Morgul" 1995, Black Metal
-"Dol Guldur" 1996, Black Metal
-"Nightshade Forests" 1997, Black Metal
-"Stronghold" 1999, Black Metal
-"Let Mortal Heroes Sing Your Fame" 2001, Black Metal
-"Oath Bound" 2006, Black Metal
-"Old Mornings Dawn" 2013, Black Metal
+Majestic fantasy black metal
+
+## Дискография
+
+### "Lugburz" 1995, Black Metal
+
+1. Grey Heavens
+2. Beyond Bloodred Horizons
+3. Flight Of The Nazgul
+4. Where Winters Forever Cry
+5. Through The Walley Of The Frozen Kingdom
+6. Raising With The Battle-Orcs
+7. Master Of The Old Lure
+8. Between Light And Darkness
+9. The Eternal Lands Of Fire
+10.Dragons Of Time
+
+ Protector - Vocals, Guitars, Keyboards
+ Silenius - Bass, Vocals, Keyboards
+ Trifixion - Drums
+
+All Songs Written By SUMMONING
+Produced By SUMMONING
+Recorded & Mixed At Beowuls Studio
+
+(p)(c) 1995 NAPALM Records
+
+### "Minas Morgul" 1995, Black Metal
+
+1. Soul Wandering
+2. Lugburz
+3. The Passing Of The Grey Company
+4. Morthond
+5. Marching Homewards
+6. Orthane
+7. Ungolianth
+[8].Dagor Vragollach
+[9].Through The Forest Of Dol Guldur
+[10].The Legend Of The Master-Ring
+[11].Dor Daedeloth
+
+[8]-[11] На стороне B
+
+All Songs Written By SUMMONING.
+Produced & Mixed By Georg Hrauda & SUMMONING.
+Recorded & Mixed At Tonstudio, Hornix.
+
+Protector - Vocals, Guitars, Keyboards
+Silenius - Bass, Keyboards, Vocals
+
+(P)&(C) 1995 NAPALM Records
+
+### "Dol Guldur" 1996, Black Metal
+
+1.  Angbands Schmieden
+2.  Nightshade Forests
+3.  Elfstone
+4.  Khazad Dum
+5.  Kor
+6.  Wyrmvater Glaurung
+7.  Unto A Long Glory
+8.  Over Old Hills
+
+Recorded and Mixed at Tonstudio Hoernix by Georg Hrauda
+
+Morn
+Silenius
+Protector
+Rienna Fui
+
+(P)(C) 1997 NAPALM Records // NPR 024
+
+### "Nightshade Forests" 1997, Black Metal
+
+1. Mirkwood  9:45 
+2. Kortirion Among The Trees  8:51 
+3. Flesh And Blood  7:55 
+4. Habbanan Beneath The Stars  7:14
+
+### "Stronghold" 1999, Black Metal
+
+1. Rhыn  3:25 
+2. Long Lost To Where No Pathway Goes  7:23 
+3. The Glory Disappears  7:50 
+4. Like Some Snow-white Marble Eyes  7:20 
+5. Where Hope And Daylight Die  6:29 
+6. The Rotting Horse On The Deadly Ground  8:26 
+7. The Shadow Lies Frozen On The Hills  7:01 
+8. The Loud Music Of The Sky  6:48 
+9. A Distant Flame Before The Sun  9:43 
+
+Produced and mixed by Protector and Silenius at Nachtschatten Studio
+
+### "Let Mortal Heroes Sing Your Fame" 2001, Black Metal
+
+A new power is rising
+South Away
+In Hollow Halls Beneath The Fells
+Our Foes Shall Fall
+The Mountain King`s Return
+Runes Of Power
+Ashen Gold
+Farewell
+
+
+
+Recorded and mixed at Nachtschattenstudio by Protector
+Bookletlayout by Silenius and Protector
+Central image is detail of artwork (c) Mark Harrison 
+Samples taken from the British "Lord of the Rings" broadcast
+
+
+Protector: all guitars, keyboards, drum sounds, vocals on song 3,4,6,7
+Silenius: keyboards, vocals on song 2,5,8 
+
+
+
+### "Oath Bound" 2006, Black Metal
+
+01. Bauglir
+02. Across the Streaming Tide
+03. Mirdautas Vras
+04. Might and Glory
+05. Beleriand 
+06. Northward 
+07. Menegroth 
+08. Land of the Dead
+
+### "Old Mornings Dawn" 2013, Black Metal
+
+1. Evernight	02:48
+2. Flammifer	07:07
+3. Old Mornings Dawn	09:29
+4. The White Tower	09:35
+5. Caradhras	09:32
+6. Of Pale White Morns and Darkened Eves	08:22
+7. The Wandering Fire	08:02
+8. Earthshine	09:32
+
 
 ## Отношения с другими группами
 

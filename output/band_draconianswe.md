@@ -1,12 +1,146 @@
 # Draconian (SWE)
 
-Дискография
-"Where Lovers Mourn" 2003, Gothic
-"Arcane Rain Fell" 2005, Gothic
-"The Burning Halo" 2007, Gothic
-"Turning Season Within" 2008, Gothic
-"A Rose For The Apocalypse" 2011, Gothic
-"Sovran" 2015, Gothic
+
+
+## Дискография
+
+### "Where Lovers Mourn" 2003, Gothic
+
+1. The Cry Of Silence
+2. Silent Winter
+3. A Slumber Did My Spirit Seal
+4. The Solitude
+5. Reversio ad Seccessum
+6. The Amaranth
+7. Akherousia
+8. It Grieves My Heart
+
+Johan Ericson - lead and rhythm guitars
+Anders Jacobsson - vocals
+Lisa Johansson - vocals
+Jerry Torstenson - percussion
+Magnus Bergstrom - rhythm guitars
+Thomas Jager - bass
+Andreas Karlsson - synthesizer and programming
+
+This album was recorded at Studio Mega by Chris
+Silver and Draconian in June 2003.
+Assisted by Manne Engstrom & Henrik Lyknert.
+Mastered at Digitalfabriken by Thomas Farngren and
+Chris Silver.
+Songs composed by Johan Ericson and Draconian
+between years 2000 - 2003,
+except "A Slumber Did My Spirit Seal" which was
+made by Bergis and Thomas.
+Guitar on "Aukherosia" written and performed by
+Jerry Torstenson.
+All songs arranged by Draconian.
+Lyrics written by Anders Jacobsson, except "The
+Solitude", written by Susanne Arvidsson
+and "A Slumber Did My Spirit Seal" written by poet
+William Wordsworth (1770 - 1850).
+Violins performed by Olof Gotlin.
+Coverart & layout by Travis Smith.
+Bandphoto by Maya Hallstrom.
+Bandlogo by Cristophe Szpajdel.
+
+### "Arcane Rain Fell" 2005, Gothic
+
+1. A Scenery of Loss
+2. Daylight Misery
+3. The Apostasy Canticle
+4. Expostulation
+5. Heaven Laid in Tears (Angel's Lament)
+6. The Abhorrent Rays
+7. The Everlasting Scar
+8. Death, Come Near Me
+
+
+Anders Jacobsson (Vocals)
+Lisa Johansson (Vocals)
+Johan Ericson (Lead- & Rhythm Guitars)
+Magnus Bergstrom (Rhythm Guitars)
+Jesper Stolpe (Bass)
+Andreas Karlsson (Synthezizer & Programming)
+Jerry Torstensson (Percussion)
+
+
+Recorded and produced at Studio Underground in
+September 2004 by Pelle Saether and Draconian.
+Mastered at Talor Maid by Peter in de Betou.
+
+Musical compositions created by Johan Ericson.
+Lyrical concept and achievements by Anders
+Jacobsson & Erik Arvidsson
+except "Expostulation", written by Ryan Henry.
+Vocal arrangements by Anders Jacobsson and Johan
+Ericson.
+All songs arranged by Johan Ericson and Draconian
+2003 - 2004.
+
+### "The Burning Halo" 2007, Gothic
+
+1. She Dies  07:28   
+2. Through Infectious Waters (A Sickness Elegy)  08:04   
+3. The Dying  09:48   
+4. Serenade of Sorrow (2006 version)  05:00   
+5. The Morningstar (2006 version)  08:01   
+6. The Gothic Embrace (2006 version)  08:34   
+7. On Sunday They Will Kill the World (Ekseption cover)  04:12   
+8. Forever My Queen (Pentagram cover)  02:49  
+
+### "Turning Season Within" 2008, Gothic
+
+01. Seasons Apart
+02. When I Wake
+03. Earthbound
+04. Not Breathing
+05. The Failure Epiphany
+06. Morphine Cloud
+07. Bloodflower
+08. The Empty Stare
+09. September Ashes
+
+the DRACONIAN horde Anders Jacobsson - Vocals Lisa
+Johansson - Vocals Johan Ericson - Guitar Daniel
+Arvidsson - Guitar Fredrik Johansson - Bass Jerry
+Torstensson - Drums
+
+TURNING SEASON WITHIN
+Was recorded and engineered at Fascination Street studios by David Castillo and Johan Ornborg Produced by DRACONIAN and Fascination Street crew Mixed and mastered at Fascination Street by Jens Bogren
+Keyboards and programming by Andreas Karlsson Narrative vocals by Paul Ruhr Music composed by Johan Ericson except "September Ashes" music by Andreas Karlsson 
+Lyrics written by Anders Jacobsson with adaptations from poetry of Theres Bjork.
+Lyrics for chorus in "The Empty Stare" written by Mina Eltaieb
+Bandphoto by Theres Bjork
+Artwork and layout by Dennis Sibeijn
+
+### "A Rose For The Apocalypse" 2011, Gothic
+
+1. The Drowning Age  07:18  
+2. The Last Hour of Ancient Sunlight  05:26  
+3. End of the Rope  06:34  
+4. Elysian Night  07:52   
+5. Deadlight  06:32   
+6. Dead World Assembly  05:52   
+7. A Phantom Dissonance  05:39   
+8. The Quiet Storm  06:37   
+9. The Death of Hours  07:48  
+10. Wall of Sighs  * 05:14
+
+### "Sovran" 2015, Gothic
+
+1. Heavy Lies the Crown     
+2. The Wretched Tide    
+3. Pale Tortured Blue      
+4. Stellar Tombs      
+5. No Lonelier Star      
+6. Dusk Mariner    
+7. Dishearten     
+8. Rivers Between Us     
+9. The Marriage of Attaris   
+10. With Love and Defiance * 
+
+
 
 ## Отношения с другими группами
 

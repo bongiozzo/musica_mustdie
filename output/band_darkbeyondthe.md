@@ -1,8 +1,35 @@
 # Dark Beyond, The
 
-Дискография
-"The Sea of Grey" 2008, Melodic Death Metal
-"The Fire Within" 2009, Melodic Death Metal
+
+
+## Дискография
+
+### "The Sea of Grey" 2008, Melodic Death Metal
+
+1. Anymore 04:52  
+2. Born In A Cosmic Chaos 04:18  
+3. The Fire Within 08:01  
+4. Holy Flesh Wicked Souls 04:35  
+5. Finishing The Misery 06:07  
+6. Worth Dying 06:15  
+7. The Clouds Are Gone 04:21  
+8. The Fields Of Thorns 04:36  
+9. Living Forever 06:34 
+
+### "The Fire Within" 2009, Melodic Death Metal
+
+1. Finishing the Misery   
+2. The Path of Rottenfulness   
+3. Among the Flames....I see   
+4. Entering Astral Perceptions   
+5. Born in a Cosmic Chaos   
+6. Clouds Gone   
+7. The Fiels of Thorns   
+8. Worth Dying   
+9. The Fire Within   
+10. Blinded by Fear (Bonus)   
+11. I ..The Temple of Hate (Bonus)   
+
 
 ## Отношения с другими группами
 

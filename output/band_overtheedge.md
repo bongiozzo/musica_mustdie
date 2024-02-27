@@ -1,7 +1,25 @@
 # Over The Edge
 
-Дискография
-"Over The Edge" 2004, Metal
+AOR
+
+## Дискография
+
+### "Over The Edge" 2004, Metal
+
+Over The Edge 
+One World 
+Thief 
+Surrender 
+Eyes Wide Open 
+Forest For The Trees 
+The Man In Between 
+Cover Me 
+Turn Away 
+Glory Day 
+Бонусы: 
+One World (Video) 
+Mickey Thomas video interview
+
 
 ## Отношения с другими группами
 

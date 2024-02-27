@@ -1,12 +1,95 @@
 # Silent Stream of Godless Elegy
 
-Дискография
-"Iron" 1997, Death Doom
-"Behind The Shadows" 1998, Death Doom
-"...Amber Sea" 2000, Death Doom
-"Themes" 2000, Death Doom
-"Relic Dances" 2004, Death Doom
-"Novaz" 2011, Death Doom
+
+
+## Дискография
+
+### "Iron" 1997, Death Doom
+
+1.  Ugly Jewel
+2.  Passion & Desire
+3.  Iron Mask
+4.  Last...
+5.  Desolated Remain
+6.  Only Stream
+7.  Crying Heaven
+8.  Buried By Love To Christ
+9.  Bittery Sweet
+10.Naked Susane
+11.Amber Sea 
+12.Apotheosis
+
+Recorded and Mixed at Shaark Studio.
+Engineered and Mixed by P. Nejezchleba & P.Hlavica & SSGE.
+Produced by Petr Stanek and SSGE.
+Band residence: Czech Republic.
+
+Petr Stanek - Guitars, Vocals
+Filip Chudy - Bass
+Zuzana Zamazalova - Violin, Vocals
+Michal Hajda - Drums
+Radek Hajda - Guitars
+
+(P)(C) 1997 LEVIATHAN Records // LVR 002
+
+### "Behind The Shadows" 1998, Death Doom
+
+Wizard 
+Garden 
+The Last Place 
+Old Women's Dance 
+When Sun Rises For The Last Time 
+Summoning Of The Muse 
+Ghost 
+Embrace Beyond 
+Black Tunnel 
+Shadow 
+Cantara 
+I Come And Stand At Every Door
+
+### "...Amber Sea" 2000, Death Doom
+
+
+
+### "Themes" 2000, Death Doom
+
+Lovin' on the Earth 
+We shall go 
+My friend... 
+Theme I 
+In Bone Frames 
+Theme II 
+Flowers fade away 
+Eternal cry of glory 
+Theme III 
+II TSOHG 
+Winter Queen 
+Hrob (The Grave) 
+
+
+### "Relic Dances" 2004, Death Doom
+
+1. Look 04:33  
+2. To Face The End 06:52  
+3. I Would Dance 04:53  
+4. Together 08:13  
+5. You Loved The Only Blood 03:24  
+6. Lonely 07:39  
+7. Gigula 03:04  
+8. Trinity 06:34
+
+### "Novaz" 2011, Death Doom
+
+1. Mokoљ 06:21
+2. Zlatohlav 04:50
+3. Skryj Hlavu Do Dlanн 07:32
+4. P&#345;нsahбm 05:16
+5. Slava 04:02
+6. Sudice 03:40 
+7. Dva Stнny Mбm 04:19  
+8. Pramen, Co Vн 06:47
+9. Samodiva 05:52 
+
 
 ## Отношения с другими группами
 

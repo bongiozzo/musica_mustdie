@@ -1,10 +1,25 @@
 # Looking For An Answer
 
-Дискография
-"Looking For An Answer" 2000, Grindcore
-"Buscando Una Respuesta" 2003, Grindcore
-"Extincion" 2007, Grindcore
-"La Caceria (EP)" 2009, Grindcore
+
+
+## Дискография
+
+### "Looking For An Answer" 2000, Grindcore
+
+
+
+### "Buscando Una Respuesta" 2003, Grindcore
+
+
+
+### "Extincion" 2007, Grindcore
+
+
+
+### "La Caceria (EP)" 2009, Grindcore
+
+
+
 
 ## Отношения с другими группами
 

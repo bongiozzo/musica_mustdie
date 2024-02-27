@@ -1,7 +1,13 @@
 # Molly Hatchet
 
-Дискография
-"Warriors of the Rainbow Bridge" 2005, Rock
+
+
+## Дискография
+
+### "Warriors of the Rainbow Bridge" 2005, Rock
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,27 @@
 # Karma
 
-Дискография
-"KARMA" 1993, Heavy Metal
+(Valeriy Gaina project)
+
+## Дискография
+
+### "KARMA" 1993, Heavy Metal
+
+1. FLY 3.56
+2. CRACKS 4.32
+3. IN BETWEEN 5.59
+4. PUSSTCAT 4.03
+5. PROGRESS 4.01
+6. MERRY MARY 6.04
+7. GET IT ON 3.38
+8. MARGINAL 5.59
+9. MAGGOT SONG 6.00
+10. AMERICANA 4.06
+11. BURN BY BLUE 3.19
+12. SHE WANTS 7.13
+
+
+1993 Frozen Hound Music
+
 
 ## Отношения с другими группами
 

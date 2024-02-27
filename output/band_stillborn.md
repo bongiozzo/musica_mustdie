@@ -1,7 +1,27 @@
 # Stillborn
 
-Дискография
-"Permanent Solution" 1991, Death Metal
+
+
+## Дискография
+
+### "Permanent Solution" 1991, Death Metal
+
+1.  Father Of Lies
+2.  Tears In The Rain
+3.  Don`t Box Me In
+4.  Maximizer
+5.  Flexible Bullet
+6.  The Evil That You Do
+7.  Children Of God
+8.  Dark Eternity
+9.  Permanent Solutions
+10.Intoxication *
+11.The Remains Of Silence *
+
+* CD`s Bonus Tracks.
+
+(p)(c) 1991 ROADRUNNER Records
+
 
 ## Отношения с другими группами
 

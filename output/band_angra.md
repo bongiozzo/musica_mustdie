@@ -1,24 +1,282 @@
 # Angra
 
-Дискография
-"Reaching Horizons (demo)" 1992, Heavy Metal
-"Angels Cry" 1993, Progressive
-"Evil Warning EP" 1994, Progressive
-"Holy Land" 1996, Progressive
-"Freedom Call" 1996, Progressive
-"Holy Live" 1997, Progressive
-"Fireworks" 1998, Progressive
-"Lisbon (single)" 1998, Progressive
-"Rainy Nights" 1999, Progressive
-"Rebirth" 2001, Progressive
-"Hunters And Prey" 2002, Progressive
-"Temple Of Shadows" 2004, Progressive
-"Aurora Consurgens" 2006, Progressive
-"Arising Thunder (single)" 2010, Power Metal
-"Aqua" 2010, Power Metal
-"Best Reached Horizons (Compilation, 2CD)" 2012, Progressive
-"Angels Cry: 20th Anniversary Tour (Live)" 2013, Progressive
-"Secret Garden" 2015, Progressive
+(Prog-power-metal from Brasil)
+
+
+## Дискография
+
+### "Reaching Horizons (demo)" 1992, Heavy Metal
+
+01. Evil Warning   
+02. Time   
+03. Reaching Horizons   
+04. Carry On   
+05. Queen of the Night   
+06. Angels Cry   
+07. Don't Despair   
+08. Wuthering Heights   
+
+
+### "Angels Cry" 1993, Progressive
+
+1. Unfinished Allegro
+2. Carry On
+3. Time
+4. Angels Cry
+5. Stand Away
+6. ever Understand
+7. Wuthering Heights
+8. Streets Of Tomorrow
+9. Evil Warning
+10. Lasting Child
+   I. The Parting Words
+   II. Renaissance
+Andre Matos - Vocals
+Kiko Loureiro - Guitars
+Rafael Bittencourt - Guitars
+Luis Mariutti - Bass
+Ricardo Confessori - Drums
+Produced And Engineered by Charlie Bauerleind
+and Sascha Paeth.
+All songs written by ANGRA, except 7 written 
+by Kate Bush.
+Recorded At Kai Hansen Studios, Hamburg.
+(p)(c) 1995 Lucretia Records International SRL
+
+### "Evil Warning EP" 1994, Progressive
+
+01. Evil Warning ('94 version)   
+02. Angels Cry ('94 version)   
+03. Carry On ('94 version)   
+04. Wuthering Heights (edit)   
+
+
+### "Holy Land" 1996, Progressive
+
+1. Crossing
+2. Nothing To Say
+3. Silence And Distance
+4. Carolina IV
+5. Holy Land
+6. The Shaman
+7. Make Believe
+8. Z.I.T.O.
+9. Deep Blue
+10. Lullaby For Lucifer
+
+
+
+Andre Matos - Vocals
+Kiko Loureiro - Guitars
+Rafael Bittencourt - Guitars
+Luis Mariutti - Bass
+Ricardo Confessori - Drums
+
+### "Freedom Call" 1996, Progressive
+
+01. Freedom Call   
+02. Queen of the Night   
+03. Reaching Horizons   
+04. Stand Away   
+05. Painkiller   
+06. Deep Blue   
+07. Angels Cry (acoustic)   
+08. Never Understand (acoustic)   
+
+
+### "Holy Live" 1997, Progressive
+
+01. Crossing [02:23] 
+02. Nothing to Say [06:26] 
+03. Z.I.T.O. [06:46] 
+04. Carolina IV [13:11] 
+05. Unfinished Allegro [01:15] 
+06. Carry On [05:20] 
+
+
+### "Fireworks" 1998, Progressive
+
+1. Wings Of Reality
+2. Petrified Eyes
+3. Lisbon
+4. Metal Icarus
+5. Paradise
+6. Mystery Machine
+7. Fireworks
+8.Extreme Dream
+9. Gentle Change
+10. Speed
+11. Rainy Nights
+
+
+
+Luis Mariutti - Bass
+Ricardo Confessori - Drums
+Andre Matos - Vocals
+Kiko Loureiro - Guitars
+Rafael Bittencourt - Guitars
+
+
+Produced & Engineered By Chris Tsangarides
+(p)(c)Victor Entertainment
+
+### "Lisbon (single)" 1998, Progressive
+
+01. Lisbon   
+02. Make Believe (acoustic)   
+03. Angels Cry (demo) 
+
+
+### "Rainy Nights" 1999, Progressive
+
+01. Rainy Nights (original)   
+02. Rainy Nights (instrumental)   
+03. Rainy Nights (edit)   
+
+
+### "Rebirth" 2001, Progressive
+
+Produced by Dennis Ward
+
+
+1 - In Excelsis (Loureiro)
+2 - Nova Era (Falaschi/Loureiro)
+3 - Millennium Sun (Loureiro/Bittencourt)
+4 - Acid Rain (Bittencourt)
+5 - Heroes of Sand (Falaschi)
+6 - Unholy Wars (Loureiro/Bittencourt)
+            Part I - Imperial Crown
+            Part II - The Forgiven Return
+7 - Rebirth (Loureiro/Bittencourt)
+8 - Judgement Day (Loureiro/Falaschi/Priester)
+9 - Running Alone (Bittencourt)
+10 - Visions Prelude (Loureiro (Adapted from Chopin, Opus 24 in C minor)) 
+
+
+
+### "Hunters And Prey" 2002, Progressive
+
+01. Live And Learn
+02. Bleeding Heart
+03. Hunters And Play
+04. Eyes Of Christ
+05. Reverse (acoustic version)
+06. Heroes Of Sand (acoustic version)
+07. Momma (GENESIS cover)
+08. Hunters And Play (Portuguese version)
+
+
+### "Temple Of Shadows" 2004, Progressive
+
+CD:
+
+01. Deus Le Volt!
+02. Spread Your Fire
+03. Angels And Demons
+04. Waiting Silence
+05. Wishing Well
+06. Temple Of Hate
+07. Shadow Hunter
+08. No Pain For The Dead
+09. Winds Of Destination
+10. Sprouts Of Time
+11. Morning Star
+12. Late Redemption
+
+INHALT Bonus DVD
+"Rebirth World Tour - Live In Sao Paulo"
+
+01 In Excelsis
+02 Nova Era
+03 Acid Rain
+04 Angels Cry
+05 Heroes Of Sand
+06 Metal Icarus
+07 Millenium Sun
+08 Make Believe
+09 Drum - Solo
+10 Unholy Wars
+11 Rebirth
+12 Time
+13 Running Alone
+14 Crossing
+15 Nothing To Say
+16 Unfinished Allegro
+17 Carry On
+18 The Number Of The Beast 
+
+plus special features:
+- Backstage Scenes
+- Rebirth World Tour in Brasilien, Japan, Taiwan und Eiropa
+- Photo Gallery
+- Videoclips
+
+- approx. running time: 160 min.
+- PAL
+- FSK 12
+- Dolby Digital / Dolby Surround Sound
+
+### "Aurora Consurgens" 2006, Progressive
+
+1. The Course Of Nature
+2. The Voice Commanding You
+3. Ego Painted Grey
+4. Breaking Ties
+5. Salvation: Suicide
+6. Window To Nowhere
+7. So Near So Far
+8. Passing By
+9. Scream Your Heart Out
+10. Abandoned Fate
+
+### "Arising Thunder (single)" 2010, Power Metal
+
+1. Arising Thunder 04:52 
+
+### "Aqua" 2010, Power Metal
+
+1. Viderunt Te Aquae   
+2. Arising Thunder 04:52
+3. Awake From Darkness   
+4. Lease Of Life   
+5. The Rage Of The Waters   
+6. Spirit Of The Air   
+7. Hollow   
+8. A Monster In Her Eyes   
+9. Weakness Of A Man   
+10. Ashes 
+Bonus track: 
+11. 'Lease Of Life (Remix)  
+
+
+Edu Falaschi - Vocals 
+Kiko Loureiro - Guitars
+Rafael Bittencourt - Guitars 
+Felipe Andreoli - Bass 
+Ricardo Confessori - Drums
+
+### "Best Reached Horizons (Compilation, 2CD)" 2012, Progressive
+
+
+
+### "Angels Cry: 20th Anniversary Tour (Live)" 2013, Progressive
+
+
+
+### "Secret Garden" 2015, Progressive
+
+01. Newborn Me
+02. Black Hearted Soul
+03. Final Light
+04. Storm of Emotions
+05. Synchronicity II
+06. Violet Sky
+07. Secret Garden (feat. Simone Simons)
+08. Upper Levels
+09. Crushing Room (feat. Doro Pesch)
+10. Perfect Symmetry
+11. Silent Call
+
 
 ## Отношения с другими группами
 

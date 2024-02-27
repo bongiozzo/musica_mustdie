@@ -1,8 +1,35 @@
 # Winterborn
 
-Дискография
-"Cold Reality" 2006, Power Metal
-"Farewell to Saints" 2009, Power Metal
+
+
+## Дискография
+
+### "Cold Reality" 2006, Power Metal
+
+1. Wildheart 05:10
+2. Last Train To Hell 05:04
+3. On The Edge Of Eternity 10:18 
+4. The Real Me 05:25
+5. Lovehunter 04:18
+6. New Dawn 05:06 
+7. In My Dreams 04:08  
+8. The King And The God 07:07 
+9. Coming Home 07:02 
+
+### "Farewell to Saints" 2009, Power Metal
+
+1. Black Rain 04:54
+2. Chaos Dwells Within 04:25
+3. Seven Deadly Sins 05:09
+4. Overture 1939 03:16
+5. The Winter War 05:29
+6. Land Of The Free 06:09 
+7. Emptiness Inside 06:48
+8. Nightfall Symphony 05:28
+9. Another World 10:22  
+10. Last Man Standing 03:45
+11. Forever Gone 03:16 
+
 
 ## Отношения с другими группами
 

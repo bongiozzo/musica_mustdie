@@ -1,7 +1,23 @@
 # Beyond The Bridge
 
-Дискография
-"The Old Man and the Spirit" 2012, Progressive
+
+
+## Дискография
+
+### "The Old Man and the Spirit" 2012, Progressive
+
+1.	 The Call	06:34
+2.	 The Apparition	08:04
+3.	 Triumph of Irreality	06:11
+4.	 The Spring of It All	01:48
+5.	 World of Wonders	05:03
+6.	 The Primal Demand	02:07
+7.	 Doorway to Salvation	07:54
+8.	 The Struggle	05:23
+9.	 The Difference Is Human	07:56
+10.	 Where the Earth and Sky Meet	06:57
+11.	 All a Man Can Do	09:33
+
 
 ## Отношения с другими группами
 

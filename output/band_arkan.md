@@ -1,9 +1,90 @@
 # Arkan
 
-Дискография
-"Burning Flesh (EP)" 2006, Gothic
-"Hilal" 2008, Gothic
-"Salam" 2011, Gothic
+Gothic/Melodic Death Metal with Middle Eastern Influences
+
+## Дискография
+
+### "Burning Flesh (EP)" 2006, Gothic
+
+1. Burning Flesh  04:50    
+2. Roots of Despair  04:35   
+3. Desert Lament  01:38   
+4. The Way of the Cross  03:45   
+5. Fateful Night  00:55   
+6. Ray of Hope  04:51 
+
+
+Line-up:
+
+Florent Jannier - Growls
+Abderrahmane Abdallahoum - Guitars, Clean Vocals
+Mus El Kamal - Guitars
+Samir Remila - Bass
+Foued Moukid - Drums, Percussion 
+
+
+### "Hilal" 2008, Gothic
+
+1. Groans of the Abyss  06:59    
+2. Lords Decline  06:09   
+3. Mistress of the Damned Souls  06:07   
+4. Lamma Bada (Under the Spell of Haughtiness)  03:15    
+5. Tied Fates  05:58   
+6. The Seven Gates  05:55   
+7. Athaoura (Shaped by the Hands of Gods)  03:47   
+8. Chaos Cypher  05:31    
+9. Defying the Idols  06:09    
+10. El Houdou  01:09    
+11. Native Order  07:21   
+12. Amaloun Jadid  03:41 
+
+
+Line-up:
+
+Florent Jannier - Growls
+Abderrahmane Abdallahoum - Guitars, Oud, Mandola, Bouzouki, Keyboards, Clean Vocals
+Mus El Kamal - Guitars, Oud, Acoustic Guitars 
+Samir Remila - Bass
+Foued Moukid - Drums, Percussion, Bendir, Derbouka, Tablas, Cajon
+
+Tracks "Lamma Bada" and "Athaoura" feature guest vocals by Adel Abdellaoui, a professional Tunisian singer.
+Female vocals by Sarah Layssac.
+
+Recorded at Studio Fredman, and produced by Fredrik Nordstrцm. Mastered at Hansen Studio by Jacob Hansen. 
+
+
+
+### "Salam" 2011, Gothic
+
+1. Origins  04:34    
+2. Inner Slaves  05:29    
+3. Deus Vult  05:00    
+4. Blind Devotion  04:41    
+5. Jerusalem - Sufferpolis  03:02    
+6. Beyond Sacred Rules  05:54    
+7. Common Ground  00:37    
+8. Sweet Opium  02:58    
+9. Salam  00:33    
+10. Call From Within  04:46    
+11. Lightened Heart  00:58    
+12. The Eight Doors of Jannah  04:19    
+13. Amaloun Jadid II  16:58 
+
+
+Line-up:
+Florent Jannier - Growls
+Sarah Layssac - Female Vocals
+Abderrahmane Abdallahoum - Guitar, Oud, Mandola, Bouzouki, Keyboards, Clean Vocals
+Mus El Kamal - Guitar, Oud, Acoustic Guitar
+Samir Remila - Bass
+Foued Moukid - Drums, Percussion, Bendir, Derbouka, Tablas, Cajon
+
+Guest members:
+Kobi Farhi - Vocals on "Deus Vult"
+
+Artwork by Evil Campbell. 
+
+
 
 ## Отношения с другими группами
 

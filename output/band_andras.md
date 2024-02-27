@@ -1,12 +1,153 @@
 # Andras
 
-Дискография
-"Die Ruckkehr Der Dunklen Krieger" 1997, Black Metal
-"Sword Of Revenge" 1999, Black Metal
-"Quest Of Deliverance" 2000, Black Metal
-"...Of Old Wisdom" 2005, Metal
-"Iron Way" 2008, Metal
-"Warlord" 2010, Metal
+Black-Doom
+
+## Дискография
+
+### "Die Ruckkehr Der Dunklen Krieger" 1997, Black Metal
+
+1. Wenn Die Sterne Fallen 03:06  
+2. Nacht Des Todes 05:38  
+3. Die Erste Schlacht 05:14  
+4. The True Darkness 04:59  
+5. Das Licht Ist Nun Erloschen 02:25  
+6. Vollkommene Einsamkeit 04:04  
+7. Die Vorboten 03:26  
+8. Funeral March 02:45  
+9. Diabolical Christening 04:32  
+10. Vor Sehr Langer Zeit 02:18  
+11. Armageddon 08:07  
+12. Die Letzte Schlacht 01:45 
+
+
+
+Album title means "The Return of the Dark Warriors".
+
+Track title translations:
+
+1. When the Stars Fall
+2. Night of Death
+3. The First Battle
+5. The Light Has Now Gone Out
+6. Utter Loneliness
+7. The Harbingers
+10. A Very Long Time Ago
+12. The Last Battle
+
+also released as picture LP
+
+### "Sword Of Revenge" 1999, Black Metal
+
+1. Andras 04:08  
+2. Listen to the Cry of the Banshee 04:09  
+3. Banished in Hell 03:59  
+4. Conquering the Iron Scepter 03:55  
+5. Kingdom of Mourning Souls 02:16  
+6. Graveyard of Souls 04:05  
+7. Reaching for the Throne 04:50  
+8. Black Wings of Death 03:47  
+9. Spiritually 01:35  
+10. Burning Graves of Dunwich 05:19  
+11. Fleisch und Blut 04:14  
+12. Damnation 04:15  
+13. Sword of Revenge 05:01  
+14. Chalice of Dragons Blood 04:18  
+15. Outro 03:23 
+
+
+### "Quest Of Deliverance" 2000, Black Metal
+
+1. Intro 01:24  
+2. Soldiers of Twilight 05:48  
+3. Blasphemer (Sodom cover) 02:39
+4. Quest of Deliverance 04:31  
+5. Return of Satans Night 04:22  
+6. In the Shadow of the Light 05:40  
+7. Flames of Hate 03:42  
+8. Das Klagelied 03:42  
+9. Outro 00:46 
+
+
+### "...Of Old Wisdom" 2005, Metal
+
+1. Intro 01:12  
+2. Of Ravens & Crows 04:04
+3. Swords of Divine Hate 04:29 
+4. In the Mines 00:35  
+5. The Pillory 04:34 
+6. Warrior's Hill 07:40 
+7. Twilight 01:20  
+8. Passing the Portal 06:45 
+9. Haamit 06:39 
+10. Chosen One 05:47 
+11. Gravedigger 04:57  
+12. Ore Mountains 01:51  
+13. The Beloved 07:03 
+
+
+
+The tracklisting on the backcover lists:
+9. Chosen One
+10. Haamit
+which is wrong.
+
+Lineup:
+Nightsky - Guitars
+Verun - Drums
+Adversarius - Synths
+Ecthelion - Vocals
+Occulta Mors - Bass 
+
+### "Iron Way" 2008, Metal
+
+1. Intro 01:18  
+2. Miasma Track 05:14  
+3. Spellbreaker 05:30  
+4. Across those Highlands 05:59 
+5. Return to Black Hill 07:10 
+6. Infested 02:06
+7. Dunkelwald 05:08  
+8. Pagan Path 05:04  
+9. Kreuzweg 06:32] 
+10. Outro 00:52 
+
+
+### "Warlord" 2010, Metal
+
+1. Eye of the Seer 07:24  
+2. Heathen Vengeance 05:18  
+3. Flag of Decline 07:18  
+4. Warlord 06:45  
+5. Bastards forward 03:40  
+6. Schwertgenossen 04:33  
+7. In Oblivion 07:43  
+8. Bastion Felsenheim 03:52  
+9. Portrait 03:17  
+10. Nemesis 04:48 
+
+
+Available as als regluar CD in Jewel-Case and as limitied Digipak-Version incl.
+exclusive DVD + Band-Poster!!! 
+Also as Download.
+DVD (incl. Trailer, Slideshow & Discographie as Bonus) also includes Live-Gig at
+Chronical Moshers Open Air 2010!!! 
+
+DVD:
+Live at Chronical Moshers Open Air 2010:
+1. Intro 1:50
+2. Miasma Track 5:18
+3. Warlord 7:13
+4. Spellbreaker 5:02
+5. Warriors Hill 6:18
+6. Infested 2:12
+7. Eye of the Seer 7:38
+8. Heavy Metal Breakdown 5:36
+9. Haamit 5:23
+
+DVD Bonus:
+Trailer 2:17
+Slideshow 7:02 
+
 
 ## Отношения с другими группами
 

@@ -1,10 +1,67 @@
 # Vhaldemar
 
-Дискография
-"Fight To The End" 2002, Power Metal
-"I Made My Own Hell" 2003, Heavy Metal
-"Metal of the World " 2011, Power Metal
-"Shadows of Combat " 2013, Power Metal
+Spanish Power Metal
+
+## Дискография
+
+### "Fight To The End" 2002, Power Metal
+
+
+
+### "I Made My Own Hell" 2003, Heavy Metal
+
+1- I Made My Own Hell 
+2- Breaking All The Rules 
+3- No Return 
+4- Steam-Roller 
+5-Old King's Visions (Part II) 
+6-Mystery 
+7-House Of War 
+8-Moonlight 
+9-Dreamer 
+10- Death Comes Tonight 
+11- I Will Rise My Fist 
+12- March Of Dooms
+13-Gorgar (bonus)
+
+
+
+Pedro J. Monge - Guitar
+Carlos Escudero - Vocals / Guitar 
+Oscar Cuadrado - Bass
+Edu Martinez - Drums
+
+### "Metal of the World " 2011, Power Metal
+
+1. Light and Darkness 04:43  
+2. Action 03:38  
+3. My Nightmare 03:39  
+4. Metal of the World 03:49  
+5. Wartime 03:39  
+6. Saints of Hell 03:51  
+7. Arrows Flying High 04:15  
+8. Bastard 03:35  
+9. River of Blood 04:09  
+10. Dusty Road 03:58  
+11. Wild Hearts 04:02  
+12. Old King's Visions (III) 04:18 
+
+
+### "Shadows of Combat " 2013, Power Metal
+
+01. Rock City
+02. Black Thunder
+03. Danger Street
+04. The Rest of my Life
+05. Begining 
+06. Shadows of Combat
+07. The Old Man
+08. Old King s Visions (Part IV)
+09. Power of the Night
+10. End of the World
+11. Metal and Roll
+12. Oblivion
+
 
 ## Отношения с другими группами
 

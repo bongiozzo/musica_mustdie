@@ -1,9 +1,45 @@
 # Dragonheart
 
-Дискография
-"The Gods Of Ice" 1998, Heavy Metal
-"Underdark" 1999, Heavy Metal
-"Throne Of The Alliance" 2002, Heavy Metal
+Heavy/power
+
+## Дискография
+
+### "The Gods Of Ice" 1998, Heavy Metal
+
+Line Up :
+Eduardo Marques - guitar and vocal
+Marco Caporasso - guitar and vocal
+Mauricio Taborda - bass and vocal
+Marcelo Caporasso - drums
+
+### "Underdark" 1999, Heavy Metal
+
+Line Up: 
+Marco Caporasso - guitar and vocal
+Mauricio Taborda - bass and vocal 
+Marcelo Caporasso - drums
+Eduardo Marques - guitar and vocal 
+
+The Choir Company : 
+Dragonheart (no softwares!!!) 
+Guest musicians:
+Rodrigo Canetti - keyboards
+
+### "Throne Of The Alliance" 2002, Heavy Metal
+
+1. The Beginning
+2. Throne Of The Alliance
+3. The Blacksmith
+4. Ghost Galleon
+5. Facing The Mountain
+6. Mountain Of Rising Storm
+7. Mystical Forest
+8. Into The Hall
+9. Hall Of The Dead Knights
+10. Betrayal In The Coast Of Raven
+11. ...And Dark Valley Burns
+12. Sunrise In The Akronis Sky
+
 
 ## Отношения с другими группами
 

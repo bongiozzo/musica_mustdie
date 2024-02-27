@@ -1,8 +1,25 @@
 # Deviant Syndrome
 
-Дискография
-"Pictures Of Declared Extinction [demo]" 2008, Melodic Death Metal
-"Inflicted Deviations" 2011, Melodic Death Metal
+
+
+## Дискография
+
+### "Pictures Of Declared Extinction [demo]" 2008, Melodic Death Metal
+
+
+
+### "Inflicted Deviations" 2011, Melodic Death Metal
+
+1. Harbingers of Extinction 00:41  
+2. Blessing the Emptiness 03:38  
+3. Entire Cosmic Elements 04:38  
+4. Seal of a Star Dweller 03:00  
+5. The Wicked 05:17  
+6. A Day to Fall 04:56  
+7. Consequence 05:03  
+8. Liberation 08:43  
+9. Drowned in the Frozen Sun 05:20 
+
 
 ## Отношения с другими группами
 

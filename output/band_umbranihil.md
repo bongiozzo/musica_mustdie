@@ -1,9 +1,35 @@
 # Umbra Nihil
 
-Дискография
-"Aarni/Umbra Nihil" 2002, Doom
-"Gnoia" 2005, Doom
-"The Borderland Rituals" 2008, Doom
+
+
+## Дискография
+
+### "Aarni/Umbra Nihil" 2002, Doom
+
+7. Follow And Believe/Fall Without Relief 09:12  
+8. A Mere Shell 08:25 
+9. My Way To The Lakeshore 02:04  
+10. Determination 07:09  
+11. Water In Lungs 08:31
+
+### "Gnoia" 2005, Doom
+
+1. Nocturnal Occurences 08:36  
+2. Fear Of The Void 07:40  
+3. Gnoia 06:36  
+4. Shields Down 09:31  
+5. Words Left Unspoken 06:47  
+6. The Dreams In The Witch-House 11:05  
+7. Fade Out 09:54
+
+### "The Borderland Rituals" 2008, Doom
+
+1. Welcome to the Borderland 09:24
+2. Open the Gate 09:06 
+3. Leaving the Body 03:02 
+4. Sea of Sleep 07:12  
+5. The Sign of Death 14:17 
+
 
 ## Отношения с другими группами
 

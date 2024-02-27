@@ -1,8 +1,36 @@
 # Shiva
 
-Дискография
-"Shiva" 2002, Hard Rock
-"Desert Dreams" 2004, Hard Rock
+Hard rock
+
+## Дискография
+
+### "Shiva" 2002, Hard Rock
+
+Marilyn 
+Stay Out
+Dow Jones Index 
+Another Mans Wife
+Would You Lie To Me 
+Free My Soul
+Shame On You 
+One More Day
+Lead You On 
+Right On Time
+No Place For The Living
+
+### "Desert Dreams" 2004, Hard Rock
+
+Mystery Of Mind
+Desert Dreams 
+Unjustify The Truth
+Completely
+ Strangers Losing My Child
+Passenger Of Life 
+Crucified 
+Porno Star 
+Dawning Of A New Horizon 
+The Preacher
+
 
 ## Отношения с другими группами
 

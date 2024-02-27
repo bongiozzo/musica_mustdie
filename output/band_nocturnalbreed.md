@@ -1,10 +1,67 @@
 # Nocturnal Breed
 
-Дискография
-"Aggressor" 1997, Black Metal
-"No Retreat... No Surrender" 1998, Black Metal
-"The Tools of the Trade" 2000, Black Metal
-"Fields Of Rot" 2007, Black Metal
+
+
+## Дискография
+
+### "Aggressor" 1997, Black Metal
+
+1.	 Rape The Angels
+2.	 Frantic Aggressor
+3.	 Maggot Master
+4.	 Nocturnal Breed
+5.	 Evil Dead (DEATH cover)
+6.	 Metal Storm Rebels
+7.	 Dead Dominions
+8.	 Alcoholic Rites
+9.	 Revelation 666
+10.	 Blaster
+11.	 Locomotive Death
+
+### "No Retreat... No Surrender" 1998, Black Metal
+
+1.	 The Artillery Command
+2.	 Thrash the Redeemer
+3.	 Warhorse
+4.	 Killernecro
+5.	 No Retreat... No Surrender
+6.	 Beyond Control
+7.	 Sodomite	
+8.	 Fist of Fury
+9.	 Under the Blade
+10.	 Roadkill Maze
+11.	 Possessed
+12.	 Armageddon Nights
+13.	 Insane Tyrant
+
+### "The Tools of the Trade" 2000, Black Metal
+
+1.	 Give 'em Hell
+2.	 Slaughter Division
+3.	 Resistance is Futile
+4.	 The Tools of the Trade
+5.	 Down by Law
+6.	 The Sabbath Man
+7.	 Skeletor of Sin
+8.	 Black Tooth Grin
+9.	 Silvertongue Devil
+10.	 Ballcrusher (W.A.S.P. cover)
+11.	 Knuckledust
+12.	 Scarred
+
+### "Fields Of Rot" 2007, Black Metal
+
+1.	 Wicked, Vicious and Violent
+2.	 Fields of Rot
+3.	 Too Damned to Conquer
+4.	 Manskinner
+5.	 In Sickness and in Hell
+6.	 Invasion of the Body-Thrashers
+7.	 Iron Bitch
+8.	 Code of Conduct
+9.	 The Dead
+10.	 Scything Harrow
+
 
 ## Отношения с другими группами
 

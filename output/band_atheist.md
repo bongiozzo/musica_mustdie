@@ -1,10 +1,114 @@
 # Atheist
 
-Дискография
-"Piece Of Time" 1990, Techno Death
-"Unquestionable Presence" 1991, Techno Death
-"Elements" 1993, Techno Death
-"Jupiter" 2010, Techno Death
+Legend of Florida's Death Metal, Techno Death Metal, Jazz-Death
+
+## Дискография
+
+### "Piece Of Time" 1990, Techno Death
+
+1. Piece Of Time
+2. Unholy War
+3. Room With A View
+4. On The Slay
+5. Beyond
+6. I Deny
+7. Why Bother?
+8. Life
+9. No Truth
+
+ Kelly Shaefer - Vocals & Guitars
+ Rand Burkey - Guitars
+ Roger Patterson - Bass
+ Steve Flynn - Drums
+
+Produced By ATHEIST And Scott Burns.
+Engineered By Scott Burns.
+Recorded And Mixed At Morrisound Recording,
+Tampa, Florida November - December 1988.
+Mastered By Mike Fuller At Fullersound,
+Miami, Florida.
+
+(p) 1990 ACTIVE Records
+(c) 1990 THREE CHERRIES Records Inc.
+
+
+### "Unquestionable Presence" 1991, Techno Death
+
+1. Mother Man *
+2. Unquestionable Presence
+3. Your Life`s Retribution
+4. Enthrallen In Essence
+5. An Incarnation`s Dream
+6. The Formative Years
+7. Brains
+8. And The Psychic Saw *
+
+ Patterson
+ Burkey
+ Choy
+ Shaffer
+ Flynn
+
+All Songs Written By Patterson/Burkey/Shaffer/Flynn,
+Except * By Patterson/Burkey/Choy/Shaffer/Flynn.
+Produced By Scott Burns & ATHEIST.
+Recorded At Morrisound Records,Tampa,FL.
+
+(p)&(c) 1991 ACTIVE Records
+
+### "Elements" 1993, Techno Death
+
+1. Green
+2. Water
+3. Samba Brisa
+4. Air
+5. Displagement
+6. Animal
+7. Mineral
+8. Fire
+9. Fractal Point
+10.Earth
+11.See You Again
+12.Elements
+
+ Kelly Shaefer - Vocals & Rhythm Guitars
+ Rand Burkey - Lead Guitar
+ Frank Emmi - Lead Guitar
+ Tony Choi - Bass
+ Marcell Dissantos - Drums
+
+All Lyrics Written By Kelly Shaefer.
+Produced By ATHEIST & Mark Pinske.
+Mixed By Mark Pinske & Kelly Shaefer.
+Recorded And Mixed At Pro Media Studios
+In Gainsville,Florida,May 1993.
+
+(p)&(c) 1993 MUSIC FOR NATIONS
+
+### "Jupiter" 2010, Techno Death
+
+1. Second to Sun 04:04  
+2. Fictitious Glide 04:53  
+3. Fraudulent Cloth 03:24  
+4. Live and Live Again 03:39  
+5. Faux King Christ 04:02  
+6. Tortoise the Titan 03:40  
+7. When the Beast 04:57  
+8. Third Person 04:08 
+
+
+Line-up:
+Kelly Shaefer - Vocals, Guitars
+Jonathan Thompson - Guitars, Bass
+Chris Baker - Guitars
+Steve Flynn - Drums
+
+The CD was recorded at LedBelly studios in Atlanta, Georgia with engineer Matt
+Washburn and was mixed by Jason Suecof (Trivium, Chimaira, DevilDriver).
+
+The cover artwork was created by Eliran Kantor (Testament, Sigh, Anacrusis and
+GWAR). 
+
 
 ## Отношения с другими группами
 

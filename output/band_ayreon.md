@@ -1,18 +1,870 @@
 # Ayreon
 
-Дискография
-"The Final Experiment" 1995, Progressive
-"Sail Away To Avalon" 1995, Progressive
-"Actual Fantasy" 1996, Progressive
-"The Stranger From Within" 1996, Progressive
-"Into The Electric Castle" 1998, Progressive
-"The Universal Migrator part one: The Dream Sequencer" 2000, Progressive
-"Temple of the Cat" 2000, Progressive
-"The Universal Migrator part two: Flight of the Migrator" 2000, Progressive
-"Ayreonauts Only" 2000, Progressive
-"Ayreon: The Human Equation" 2004, Progressive
-"01011001" 2008, Progressive
-"Elected (single)" 2008, Progressive
+Arjen A. Lucassen super project
+
+## Дискография
+
+### "The Final Experiment" 1995, Progressive
+
+1. Prologue (3:17)
+    A The time telepathy experiment
+    B Overture
+    C Ayreon's quest
+Act I 'The dawning'
+2. The awareness (6:36)
+    A The premonition
+    B Dreamtime (words
+    become a song)
+    C The awakening
+3. Eyes of time (5:06)
+    A Eyes of time
+    B Brainwaves
+4. The banishment (11:08)
+    A A new dawn
+    B The gathering
+    C The accusation
+    D The banishment
+    E Oblivion 
+ Act II 'King Arthur's court'
+5. Ye courtyard minstrel boy (2:46)
+6. Sail away to Avalon (4:02)
+7. Nature's dance (2:28)
+Act III 'Visual echoes'
+8. Computer-reign (game over) (3:25)
+9. Waracle (6:44)
+10. Listen to the waves (4:59)
+11. Magic ride (3:36)
+Act IV 'Merlin's will and Ayreon's fate'
+12. Merlin's will (3:20)
+13. The charm of the seer (4:12)
+14. Swan song (2:44)
+15. Ayreon's fate (6:56)
+    A Ayreon's fate
+    B Merlin's prophecy
+    C Epilogue
+
+
+                 The Singers
+Edward Reekers
+Lead vocals on:
+The time telepathy experiment, Ayreon's quest, Dreamtime (words become a song), Epilogue
+
+Lenny Wolf
+Lead vocals on:
+Eyes of time
+
+Robert Soeterboek
+Lead vocals on:
+The accusation, Ayreon's fate (chorus), Merlin's prophecy (1st singer)
+
+Jan-Chris de Koeijer
+Lead vocals on:
+Oblivion
+
+Ian Parry
+Lead vocals on:
+Ye courtyard minstrel boy, Computer-reign (game over), Merlin's prophecy (2nd singer)
+
+Barry Hay
+Lead vocals on:
+Sail Away to Avalon
+
+Arjen Lucassen
+Lead vocals on:
+Nature's dance, Listen to the waves, Magic ride
+
+Jay van Feggelen
+Lead vocals on:
+Waracle, Merlin's prophecy (4th singer)
+
+
+
+  Leon Goewie
+Lead vocals on:
+Merlin's will, Ayreon's fate (verses), Merlin's prophecy (5th singer)
+
+Ruud Houweling
+Lead vocals on:
+The charm of the seer
+
+Lucie Hillen
+Lead vocals on:
+The charm of the seer
+
+Mirjam van Doorn
+Lead vocals on:
+Merlin's prophecy (3rd singer)
+
+Debby Schreuder
+Lead vocals on:
+Merlin's prophecy (6th singer)
+
+Backing Vocals
+Mirjam van Doorn & Debby Schreuder on:
+Dreamtime (words become a song), Eyes of time, The accusation, The banishment, Sail away to Avalon, Computer-reign (game over), Waracle, Magic ride, Merlin's will, Ayreon's fate
+Rene Merkelbach on:
+Eyes of time, The accusation, Sail away to Avalon, Nature's dance, Magic ride, Merlin's will
+Arjen Lucassen on:
+Eyes of time, The accusation, Sail away to Avalon, Nature's dance, Listen to the waves, Magic ride, Merlin's will, The charm of the seer
+Jolanda Verduijn, Lucie Hillen, Ruud Houweling on:
+The charm of the seer
+
+                   The Musicians
+Arjen Lucassen
+All guitars, keyboards and bass on Dreamtime (Words Become a Song), Waracle, Listen to the Waves, Merlin's Will, The Charm of the Seer
+
+Cleem Determeijer
+Hammond, minimoog, mellotron, vocoder, oberheim, juno, harpsichord, piano and keyboards
+
+Ernst van Ee
+All drums 
+  Jolanda Verduijn
+Bass on The Gathering, The Accusation, Sail Away to Avalon, Ayreon's Fate, Merlin's Prophecy
+
+Peter Vink
+Bass on Eyes of Time, Brainwaves, The Banishment, Oblivion, Computer-reign (Game Over)
+
+Barry Hay
+Alto flute on Sail Away to Avalon
+
+
+
+ Screenplay and all songs written and composed by Arjen Anthony Lucassen except 'Ye Courtyard Minstrel Boy' lyrics by I. Parry and 'A New Dawn' arranged by C. Determeijer 
+
+
+Produced and mixed by A.A. Lucassen and O. Holleman, Engineered by Oscar Holleman, Recorded and Mixed in 1994/95 at Studio "RS29", Mastered by Peter Brussee at Q Point 
+
+
+
+
+### "Sail Away To Avalon" 1995, Progressive
+
+1. Sail away to Avalon (3:45)
+    (radio edit)
+2. Charm of the seer (3:50)
+3. Nature's dance (2:33)
+    (previously unreleased
+    home-demo)
+4. Eyes of time (5:09)
+    (lead vocals by Leon Goewie)
+
+### "Actual Fantasy" 1996, Progressive
+
+1. Actual Fantasy (1:35)
+2. Abbey of Synn (9:34)
+3. The Stranger from Within (7:36)
+4. Computer Eyes (7:31)
+5. Beyond the Last Horizon (7:34)
+6. Farside of the world (6:21)
+7. Back on planet Earth (7:01)
+8. Forevermore (7:15)
+9. The dawn of man (7:30)
+10. The stranger from within (3:40)
+    (single version)
+
+
+
+                The Singers 
+ Robert Soeterboek
+Vocals on:
+Abbey of synn: (chorus)
+The stranger from within (verses & ad libs)
+Computer eyes (chorus)
+Beyond the last horizon (verses & bridges)
+Farside of the world (verses)
+Back on planet Earth (bridges)
+Forevermore (1st & 2nd chorus)
+
+Edward Reekers
+Vocals on:
+Actual fantasy, Abbey of synn (verses)
+Computer eyes (1st chorus, verses & bridges)
+Beyond the last horizon (chorus)
+Farside of the world (chorus & bridges)
+Back on planet Earth (verses)
+Forevermore (verses)
+
+Okkie Huysdens
+Vocals on:
+Abbey of synn (bridges)
+The stranger from within (bridges)
+Computer eyes (2nd chorus & bridges)
+Beyond the last horizon (bridges)
+Farside of the world (chorus)
+Back on planet Earth (chorus)
+Forevermore (3rd chorus)
+
+  
+
+                 The Musicians
+Cleem Determeijer
+Synth solo on The Stranger from Within & Computer Eyes
+
+Rene Merkelbach
+Hammond, synth solo on Abbey of Synn
+
+Arjen Anthony Lucassen
+All other instruments
+
+
+Floortje Schilt
+Violin
+
+David Bauchwitz
+Little boy on 'Actual Fantasy'
+
+Kiki Holleman
+Baby on 'Forevermore'
+
+
+All songs written and composed by A.A. Lucassen, Original screenplay by Arjen Anthony Lucassen, Orchestral string and violin arrangements on Actual Fantasy, The stranger from within, Back on planet Earth, Forevermore by Cleem Determeijer, Animation and art direction video clip 'The Stranger from Within' by Leon van Rooy, Erik-Jan Maalderink and Alejandro Gasch-Kuhne 
+
+Produced and mixed by A.A. Lucassen and O. Holleman, Engineered by O. Holleman assisted by R. Merkelbach 'Slave 5', Recorded at "The Electric Castle" and "RS29" studios, Mixed at "RS29" Waalwijk, The Netherlands (Tel. +31 416 65 00 93), Mastered by Peter Brussee at Q 
+
+
+ 
+ 
+
+### "The Stranger From Within" 1996, Progressive
+
+1. The stranger from within (3:40)
+    (single version)
+2. The dawn of man (7:42)
+3. The stranger from within (7:36)
+    (long version)
+
+
+
+### "Into The Electric Castle" 1998, Progressive
+
+Disc 1
+I) Welcome to the new dimension (3:05)
+II) Isis and Osiris (11:11)
+    a) Let the journey begin
+    b) The hall of Isis and Osiris
+    c)Strange constellations
+III) Amazing flight (10:15)
+    a) Amazing flight in space
+    b) Stardance
+    c) Flying colours
+IV) Time beyond time (6:05)
+V) The decision tree (we're alive) (6:24)
+VI) Tunnel of light (4:05)
+VII) Across the rainbow bridge (6:20)  
+ 
+
+ 
+Disc 2
+I) The garden of emotions (9:40)
+    a) In the garden of emotions
+    b) Voices in the sky
+    c) The aggression factor
+II) Valley of the queens (2:25)
+III) The castle hall (5:49)
+IV) Tower of hope (4:54)
+V) Cosmic fusion (7:27)
+    a) I soar on the breeze
+    b) Death's grunt
+    c) The passing of an eagle
+VI) The mirror maze (6:34)
+    a) Inside the mirror maze
+    b) Through the mirror
+VII) Evil devolution (6:31)
+VIII) The two gates (6:28)
+IX) "Forever" of the stars (2:02)
+X) Another time, another space (5:20)  
+
+
+
+Fish
+Highlander: Is weary of fighting and thinks he's in hell, paying for his numerous sins.
+   
+Damian Wilson
+Knight: Is chivalrous and thinks he's in Avalon in search of the Holy Grail.
+
+Sharon den Adel
+Indian Girl: Thinks it's an old indian legend come true and wants to become one with the universe.
+
+Anneke van Giersbergen
+Egyptian girl: Thinks she has been recieved in the 'next world'.
+
+Edwin Balogh
+Roman: Thinks he's in the underworld and wants to lead them all to freedom.
+
+Arjen Lucassen
+Hippie: Doesn't really notice the difference at first and enjoys the 'groovy' trip.
+
+Jay van Feggelen
+Barbarian: Is 'high & mighty' and wants to conquer this new land.
+
+Edward Reekers
+Future Man: Is well educated and thinks he's in cyberspace.
+
+Robert Westerholt Death (grunts)
+
+George Oosthoek Death (grunts)
+
+Peter Daltrey Narration
+
+
+
+Roland Bakker
+All Hammonds.
+
+Jack Pisters
+Sitar.
+
+Robby Valentine
+All pianos, synth solos on IIa, IIIa (disc 1) and IV (disc 2), mellotron on VIa (disc 2).
+
+Ernц Olah
+Violins.
+
+Clive Nolan
+Synth solos on Vc (disc one).
+
+Rene Merkelbach
+Synth solos on V (disc one) and VII (disc 2), harpsichord on II (disc 2).
+
+Ton Scherpenzeel
+Synth solos on Vc (disc 2).
+
+Ed Warby
+All drums.
+
+Arjen Lucassen
+Electric & Acoustic Guitars, Mandoline, Bassguitar, Minimoog, Mellotron & Keyboards.
+
+Taco Kooistra
+Celli.
+
+Thijs van Leer
+Flute on IIIc, IV (disc 1) and II & III (disc 2).
+
+
+ 
+All songs written and composed by A.A. Lucassen except: Fish wrote lyrics for the 'Highlander' on II, V & VII (disc 1), J. van Feggelen wrote lyrics for the 'Barbarian' on III (disc 1), A. van Giersbergen wrote the melody line for the 'Egyptian' on VI (disc 1), P. Daltrey wrote the lyrics for I (disc 1) and IX (disc 2) and all narration
+
+
+Produced by Arjen Anthony Lucassen, Mixing in July '98 at 'RS29' by Oscar Holleman & Arjen Anthony Lucassen, Recorded at "The Electric Castle", Drums recorded at "RS29" studios, Vocals FISH Recorded at "The Farm", Scotland
+
+
+
+### "The Universal Migrator part one: The Dream Sequencer" 2000, Progressive
+
+1. The Dream Sequencer
+2. My House on Mars
+3. 2084
+4. One Small Step
+5. The Shooting Company of Captain Frans B. Cocq 
+6. Dragon on the Sea
+7. Temple of the Cat
+8. Carried by the Wind
+9. And the Druids turn to Stone
+10. The First Man on Earth 
+11. The Dream Sequencer Reprise
+
+
+
+                 The Singers
+Johan Edlund (Tiamat)
+'My House On Mars'
+
+Floor Jansen (After Forever)
+'My House On Mars'
+
+Lana Lane (Lana Lane, Ritual Symphony)
+'2084', 'Dragon On The Sea'
+Backing vocals on 'One Small Step', 'The Shooting Company Of Captain Frans B. Cocq'
+
+Edward Reekers (Kayak, Ayreon)
+'One Small Step'
+
+Mouse (Tuesday Child)
+'The Shooting Company Of Captain Frans B. Cocq'
+
+Jacqueline (Krezip)
+'Temple Of The Cat'
+
+Arjen Lucassen
+'Carried By The Wind'
+
+Damian Wilson (Landmarq, Threshold, Ayreon)
+'And The Druids Turn To Stone'
+
+Neal Morse (Spock's Beard)
+'The First Man On Earth'
+
+Mark McCrite (Rocket Scientists)
+Backing vocals on 'The First Man On Earth''
+
+                   The Musicians
+Arjen Lucassen
+Electric and acoustic guitars, bassguitar, analog synthesisers and keyboards. All guitar solos and synth melodies.
+
+Erik Norlander (Ritual Symphony, Rocket Scientist, Lana Lane)
+Analog synthesisers, keyboards, piano, vocoder voice and Hammon
+
+Rob Snijders (Celestion Season)
+Drums
+
+Synth solos by:
+Erik Norlander on 1, 4, 6
+Clive Nolan (Arena, Pendragon) on 3
+
+All songs written and composed by Arjen Anthony Lucassen except 'My House on Mars' vocal melody by J. Edlund, 'Dragon on the Sea' lyrics by E. Norlander, 'The First Man on Earth' lyrics by N.Morse/E.Norlander/A.A.Lucassen 
+
+Produced and mixed by A.A. Lucassen and O. Holleman
+
+
+
+
+### "Temple of the Cat" 2000, Progressive
+
+1. Temple of the Cat (3:14) Single version
+    (vocals by Jacqueline Govaert)
+2. Temple of the Cat (3:59) Previously unreleased version
+    (vocals by Lana Lane)
+3. My house on Mars (8:21)
+    (vocals by Johan Edlund & Floor Jansen)
+4. Valley of the Queens (2:27) Taken from Into The Electric Castle (vocals Anneke van Giersbergen) 
+
+### "The Universal Migrator part two: Flight of the Migrator" 2000, Progressive
+
+1. Chaos
+2. Dawn of a Million Souls
+3. Journey on the Waves of Time
+4. To the Quasar
+    a) The Taurus Pulsar
+    b) Quasar 3c273
+5. Into the Black Hole 
+    a) The Eye of the Universe
+    b) Halo of Darkness
+    c) The Final Door
+6. Through the Wormhole
+7. Out of the White Hole 
+    a) M31
+    b) Planet Y
+    c) The Search Continues
+8. To the Solar System 
+    a) Planet of Blue
+    b) System Alert
+9. The New Migrator 
+    a) Metamorphosis
+    b) Sleeper Awake
+
+
+
+                The Singers
+Russel Allen (Symphony X)
+'Dawn Of A Million Souls'
+
+Ralf Scheepers (ex-Gamma Ray, Primal Fear)
+'Journey on the Waves of Time'
+
+Andi Deris (Helloween)
+'To the Quasar'
+
+Bruce Dickinson (Iron Maiden)
+'Into the Black Hole'
+
+Fabio Lione (Rhapsody)
+'Through the Wormhole'
+
+Timo Kotipelto (Stratovarius)
+'Out of the White Hole'
+
+Robert Soeterboek (Ayreon)
+'To the Solar System'
+
+Ian Parry (Elegy, Vengeance)
+'Sleeper Awake'
+
+Damian Wilson (ex-Landmarq, ex-Threshold)
+Backing vocals on 'Dawn Of A Million Souls'
+
+Lana Lane
+Backing vocals on 'To the Quasar', 'Into the Black Hole', 'Through the Wormhole' and 'Sleeper Awake'
+
+                The Musicians
+Arjen Lucassen
+Electric and acoustic guitars, bassguitar, analog synthesisers and keyboards.
+
+Erik Norlander (Ritual Symphony, Rocket Scientist, Lana Lane)
+Analog synthesisers, keyboards, vocoder voice and Hammond
+
+Ed Warby (Gorefest, Ayreon, ex-Elegy)
+Drums
+
+Synth solos by:
+Erik Norlander on 1, 3 (Hammondsolo), 4, 5, 7
+Rene Merkelbach (Ayreon) last solo on 4
+Clive Nolan on 2nd synth solo on 5
+Gary Wehrkamp on 6
+Keiko Kumagai (Ars Nova) on 9
+
+Guitar solos by:
+Arjen Lucassen on 1, 4, 5, 7, 8, 9
+Michael Romeo (Symphony X) on 2
+Gary Wehrkamp (Shadow Gallery) on 6
+
+All songs written and composed by Arjen Anthony Lucassen except 'Sleeper Awake' lyrics by Ian Parry, 'To the Planet of Blue' vocal melody by R.Soeterboek/A.A.Lucassen 
+
+Produced and mixed by A.A. Lucassen and O. Holleman. 
+
+
+
+
+### "Ayreonauts Only" 2000, Progressive
+
+Previously unreleased versions from the album 'Flight Of The Migrator' 
+ 
+
+1. INTO THE BLACK HOLE 10.45 (10.25 album)
+
+(Lucassen/Lucassen)
+
+a) The Eye of the Universe
+
+b) Halo of Darkness
+
+c) The Final Door
+
+Vocals by Damian Wilson & Lana Lane
+
+Backing vocals by Bruce Dickinson and Lana Lane
+
+Drums: Ed Warby
+
+1st synth solo: Erik Norlander
+
+2nd synth solo: Clive Nolan
+
+All other instruments: Arjen Lucassen
+
+ 
+
+When I was in Los Angeles Lana Lane was kind enough to sing guide vocals for (amongst other songs) ‘Into the Black Hole’. I sent this version to Bruce Dickinson and he really liked the song and Lana’s vocals. But Bruce was extremely busy recording with Maiden so until the very last moment he wasn’t sure if he could find the time to come to my place and sing it.
+
+So when Damian flew in from England to sing ‘And the Druids turn to Stone’ he was finished within the hour as usual. Then I had him do backing vocals to ‘Dawn of a Million Souls’ but there was still a lot of time left! So then I had the spontaneous idea to have him sing ‘Black Hole’ too and if Bruce couldn’t make it I would have a great version for the album anyway. But obviously Bruce did make it (and a fabulous job he did!) and so I had two other great versions of the song lying around. I then decided to make a mix of Lana’s and Damian’s vocals. I’m sure you will like the result, I know I do!
+
+ 
+
+ 
+
+2. OUT OF THE WHITE HOLE 7.11 (7.11 album)
+
+(Lucassen/Lucassen)
+
+a) M31
+
+b) Planet Y
+
+c) The Search Continues
+
+Vocals by Robert Soeterboek
+
+Drums: Ed Warby
+
+Synth solos: Erik Norlander
+
+All other instruments: Arjen Lucassen
+
+ 
+
+Robert Soeterboek, my good friend and musical companion for many years now who sang on almost all of my Ayreon albums sang guide vocals for ‘White Hole’. I still remember Timo’s reaction when he heard Robert’s version I sent him: "Perkele (Finnish curse)! This guy sounds more like Coverdale than Coverdale himself!". And Timo was concerned that he was supposed to sing it exactly like Robert, but of course Timo has got an entirely different voice and did a marvelous job as I’m sure you will agree in his own distinctive way. So the great thing about this version is that it is sung so different from the album version you know, but just as good in my opinion.
+
+ 
+
+ 
+
+3. THROUGH THE WORMHOLE 6.13 (6.05 album)
+
+(Lucassen/Lucassen)
+
+Vocals by Ian Parry
+
+Backing vocals: Fabio Lione and Lana Lane
+
+Drums: Ed Warby
+
+Amazing Guitar and Synth solo: Garyeon Wehrkamp
+
+All other instruments: Arjen Lucassen
+
+ 
+
+Ian Parry, another friend of mine (from the Vengeance days) really helped me out by doing guide vocals to a couple of songs of the Flight album. What a true professional this guy is. He raged into the studio like a whirlwind and a couple of hours later he was finished. Out of the three songs he did I like his version of ‘Wormhole’ best, and you’ll find that again it is quite different from Fabio’s version. Now here it is for all to hear.
+
+ 
+
+ 
+
+CARPE DIEM (Chaos) 4.10 (5.10 album)
+
+(Lucassen)
+
+Previously unreleased 1992 Home demo
+
+All instruments: Arjen Lucassen
+
+After Vengeance stopped in 1992 I formed this band called Plan Nine (later Planet Nine, because there was already a band called Plan Nine). We had Robert Soeterboek on vocals, Peter Vink (Q65, Finch, Ayreon) on bass and Cleem Determeyer (Finch, Ayreon) on keyboards. Unfortunately we never managed to get a deal because those were tough days for "our kind of music".
+
+The instrumental song ‘Carpe Diem’ was meant for this band. This version is a 4 track home demo I recorded in 1992 with a drum computer. I still remember I had to play all the guitar parts from start to end in one take because I couldn’t punch in on this old fashioned tape recorder.
+
+I had this track lying around for 8 years and I never used it because in my eyes, er…ears it was a bit too heavy for Ayreon. But when I decided to do the heavy ‘Flight’ album I re-recorded this song and changed the title to ‘Chaos’ to fit the Universal Migrator concept. Of course the quality of this simple home recording is way below Ayreon standards but I just thought it would be interesting for you to hear the original demo version. Of course it doesn’t have that brilliant drum solo by Ed Warby…
+
+Previously unreleased version from the album 'The Dream Sequencer'
+
+ 
+
+5. TEMPLE OF THE CAT
+
+(Lucassen/Lucassen)
+
+Previously unreleased Acoustic Version
+
+Vocals by Astrid v/d Veen
+
+All instruments: Arjen Lucassen
+
+ 
+
+This newly recorded version of Temple of the Cat is sung by that prodigious young talent Astrid van der Veen of my new band Ambeon, for details please read the notes to song 11: Cold Metal. When you are used to the version on the Dream Sequencer you will probably have to get used to this version, because you’ll find that Astrid sung it in her own special way. I know I should not compare these two versions, but in my opinion this acoustic version is even better than the original. This is the way I wanted this song to sound.
+
+ 
+
+Previously unreleased version from the album ‘Into the Electric castle'
+
+ORIGINAL HIPPIE’S AMAZING TRIP
+
+(Lucassen/Lucassen)
+
+A] Amazing Flight in Space
+
+B] In the Garden of Emotions
+
+C] Inside the Mirror Maze
+
+Vocals by Mouse, Anneke van Giersbergen, Edward Reekers
+
+Piano: Robby Valentine
+
+Hammond: Roland bakker
+
+All other instruments: Arjen Lucassen
+
+The part of the Hippie on the Electric castle was originally sung by Mouse, who later sang on the Dream Sequencer album also. Due to unforeseen problems his vocals weren’t used on ITEC and I sung the part of the Hippie myself. These problems have now been solved and luckily I still found some of his vocals on tape. I personally think they are far too good never to see the light of day, so I turned them into a nice Hippie medley. Dammit, listening back to it I feel he did a better job than me!
+
+Oh, and by the way, if you are wondering who that raving madman at the end is, well…’there can only be one!’
+
+Previously unreleased version from the album 'Actual Fantasy'
+
+ 
+
+BEYOND THE LAST HORIZON
+
+(Lucassen/Lucassen)
+
+Newly recorded 2000 version
+
+Vocals by Gary Hughes
+
+Backing vocals: Robert Soeterboek, Okkie Huysdens
+
+Drums: Stephen van Heastregt
+
+All other instruments: Arjen Lucassen
+
+ 
+
+I did a small promotion tour in Germany and had a great time there with Gary Hughes, the singer of the popular British band Ten. We even did a very spontaneous acoustic live gig together and I really liked his voice. I will never forget he made the lyrics of a Thin Lizzy song up as he went along!
+
+Now I never really liked the instrumental side of Beyond the Last Horizon on Actual Fantasy and always felt that the song needed a different, warmer approach. So now I recorded a more guitar-orientated new version with a real drummer (Stephen van Haestregt who also plays on the Ambeon album). And of course I immediately thought of Gary as the singer. I sent him a tape and got it back very quickly, only to find he did a great job! Only the guitar and synth solo remain from the old version, I re-recorded all the other instruments.
+
+ 
+
+Previously unreleased versions from the album 'The Final Experiment'
+
+ 
+
+8. THE CHARM OF THE SEER 3.30 (4.12 album)
+
+(Lucassen/Lucassen)
+
+Previously unreleased 1994 Home demo
+
+Vocals by Arjen Lucassen
+
+All instruments: Arjen Lucassen
+
+ 
+
+I browsed through all my old tapes to find some interesting recordings for this CD and I came across this 8 track 1994 home demo of ‘Charm of the Seer’ with drum computer. Ruud Houweling sang this song on the Final Experiment album. Maybe it’s not as good as Ruud’s version but I quite liked my own guide vocals on this demo.
+
+ 
+
+ 9. EYES OF TIME   5.09 (5.06 album)
+
+(Lucassen,Lucassen)
+
+Previously unreleased Studio Version
+
+Vocals by Leon Goewie
+
+Backing vocals: Mirjam van Doorn, Debbie Schreuder, Rene Merkelbach and Arjen Lucassen
+
+Drums: Ernst van Ee
+
+Bass: Peter Vink
+
+Hammond and Minimoog: Cleem Determeyer
+
+All other instruments: Arjen Lucassen
+
+ 
+
+The song ‘Eyes of Time’ was a real problem song. I just couldn’t find the right singer for it. I tried out 6 different singers until I finally found the right one in Kingdom Come’s Lenny Wolf. However I also like the version of my former Vengeance band member Leon Goewie. I just felt that this version and mix was a bit too much over the top, being the second song on the Final Experiment album. This version was also featured on the rare ‘Sail away to Avalon’ single, but here it is now for everyone to hear.
+
+ 
+
+NATURE'S DANCE 2.33 (2.28 album)
+
+(Lucassen,Lucassen)
+
+Previously unreleased 1994 Home-demo
+
+Vocals and all other instruments: Arjen Lucassen.
+
+ 
+
+This song was also featured on the ‘Sail Away to Avalon’ single. It’s an 8 track demo version of the acoustic ‘Nature’s Dance’ song. On the album version my voice was processed through the rotating (Leslie) speaker of a Hammond organ. In this version there are no effects on my voice.
+
+ 
+
+AMBEON preview!
+
+ 
+
+AMBEON: COLD METAL
+
+(Lucassen/van der Veen)
+
+New yet unreleased track
+
+ 
+
+Vocals: Astrid van der Veen
+
+Drums: Stephen van Haestregt
+
+Bass: Jolanda Verduijn
+
+All other instruments: Arjen Lucassen
+
+ 
+
+I got an email from a guy who wrote me he recorded a 14 year old...er...young female singer called Astrid van der Veen, and someone suggested him to send an MP3 of some of her songs to me by email. Tears welled up in my eyes as I heard it, this was *exactly* the voice I was looking for! I could hardly believe such an amazing talent came from my own country Holland, so I called her up immediately. I sent her some Ayreon albums and she liked them, and also the idea of working with me on a new album.
+
+As it happens I was just looking for a female singer for a project called Ambeon. I loaded some songs of all Ayreon albums into my new recording system. I've transformed them into new songs and added new sounds, instruments and vocals.
+
+The name Ambeon is a combination of 'ambient' and 'Ayreon'. I was planning to make this a soft atmospheric album but I just can't seem to do it! So there will also be some big songs on the album. Don't expect a happy commercial album you can sing along with, it will be quite dark and mysterious, as you can hear on the preview track I’ve included here.
+
+Stephen van Haestregt plays the drums.
+
+Jolanda Verduijn plays the bass (she also played on The Final Experiment).
+
+Astrid provides the vocals and she will write all the lyrics on the album.
+
+Actually this is a departure from the Ayreon-concept with many musicians. I'm hoping it will be released at the beginning of 2001. We hope you will like it as much as we do!
+
+ 
+
+All songs except 9 produced by A.A. Lucassen 
+Song 9 produced by A.A.Lucassen and O. Holleman 
+Song 4, 5, 6, 7, 8 & 10 mixed by A.A. Lucassen 
+Song 1,2,3 and 9 mixed by O. Holleman and A.A. Lucassen at RS 29 
+Song 11 mixed by A.A. Lucassen and Stephen van Haestregt 
+ 
+
+
+### "Ayreon: The Human Equation" 2004, Progressive
+
+
+
+### "01011001" 2008, Progressive
+
+Disc 1 
+1. Age of Shadows 10:47  
+2. Comatose 04:26  
+3. Liquid Eternity 08:10  
+4. Connect the Dots 04:13 
+5. Beneath the Waves (Beneath the Waves - Face the Facts - But a Memory... - World Without Walls - Reality Bleeds) 08:26  
+6. Newborn Race (The Incentive - The Vision - The Procedure - Another Life - Newborn Race - The Conclusion) 07:49 
+7. Ride the Comet 03:29 
+8. Web of Lies 02:50 
+Disc 2 
+1. The Fifth Extinction (Glimmer of Hope - World of Tomorrow Dreams - Collision Course - From the Ashes - Glimmer of Hope (Reprise)) 10:29  
+2. Waking Dreams 06:31  
+3. The Truth is in Here 05:12 
+4. Unnatural Selection 07:15  
+5. River of Time 04:24 
+6. E=MC2 05:50  
+7. The Sixth Extinction (Echoes on the Wind - Radioactive Grave - 2085 - To the Planet of Red - Spirit on the Wind - Complete the Circle) 12:18 
+
+
+Vocals - Forever:
+Hansi Kursch (Blind Guardian)
+Daniel Gildenlow (Pain of Salvation)
+Thomas Englund (Evergrey)
+Jonas Renkse (Katatonia)
+Jorn Lande (ex-Masterplan, Ark)
+Anneke van Giersbergen (ex-The Gathering, Agua de Annique)
+Steve Lee (Gotthard)
+Bob Catley (Magnum)
+Floor Jansen (After Forever)
+Magali Luyten (Virus IV)
+
+Vocals - Man:
+Simone Simons (Epica)
+Phideaux Xavier
+Wudstik
+Marjan Welman (Elister)
+Liselotte Hegt (Dial)
+Arjen Anthony Lucassen
+Ty Tabor (King's X)
+
+All instruments by Arjen Anthony Lucassen, plus guests:
+
+Guitar:
+Lori Linstruth (Stream of Passion)
+Michael Romeo (Symphony X)
+
+Keyboards:
+Derek Sherinian (ex-Dream Theater, Planet X)
+Thomas Bodin (The Flower Kings)
+Joost van den Broek (After Forever, ex-Sun Caged)
+
+Drums:
+Ed Warby (Gorefest)
+
+Other instruments:
+Flutes - Jeroen Goossens (Flairck)
+Violin - Ben Mathot (Dis)
+Cello - David Faber
+
+### "Elected (single)" 2008, Progressive
+
+1. Elected 03:37  
+2. E=MC2 03:32  
+3. Ride the Comet 03:33  
+4. Day Six: Childhood 03:04 
+
+Elected is an Alice Cooper cover featuring Tobias Sammet (Edguy, Avantasia)
+E=MC2 is an acoustic live radio session
+Day Six: Childhood is a piano-only version featuring Joost van den Broek (After
+Forever) and Marjan Elister (Autumn) 
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,23 @@
 # Extirpated
 
-Дискография
-"Decomposition & Decay" 2011, Death Metal
+
+
+## Дискография
+
+### "Decomposition & Decay" 2011, Death Metal
+
+1. Captain Syphilis	 
+2. Clit Commander	 
+3. Decomposition & Decay	 
+4. Genetic Anomalies	 
+5. Disfigured	 
+6. Kill Your Mother, Rape Your Dog (Dying Fetus Cover)	 
+7. The Art of Stabbing	 
+8. Gagged	 
+9. Deforminty	 
+10. Fetus Grinder	 
+11. Extirpation of the Human Race
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,26 @@
 # P.J. Harvey
 
-Дискография
-"Down By The Water" 1995, Alternative
+
+
+## Дискография
+
+### "Down By The Water" 1995, Alternative
+
+1. Down By The Water
+2. Lying In The Sun
+3. Somebody's Down, Somebody's Name
+
+All Songs Written By Polly Jean Harvey.
+All Tracks Produced By Flood, 
+Polly Jean Harvey & John Parish..
+
+Polly Jean Harvey - Vocal, Guitar, Organ, Cello
+John Parish - Drums, Guitar
+Joe Gore - Guitar
+Sonia Slany - Violin
+
+(P)&(C) 1995 ISLAND Records Ltd.
+
 
 ## Отношения с другими группами
 

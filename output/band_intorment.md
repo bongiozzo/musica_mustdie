@@ -1,8 +1,33 @@
 # In Torment
 
-Дискография
-"Diabolical Mutilation of Tormented Souls" 2006, Death Metal
-"Paradoxical Visions of Emptiness" 2011, Death Metal
+
+
+## Дискография
+
+### "Diabolical Mutilation of Tormented Souls" 2006, Death Metal
+
+1. Grotesque Defacement
+2. Everlasting Spiritual Anguish
+3. Insane Perceptions
+4. Enigmatical Resurrection
+5. Celebration of the Flesh
+6. Horrors of a Perverse Existence
+7. Wrapped in the Perversity of Chaos
+8. Inhuman Genetic Deformations
+9. The Curse
+
+### "Paradoxical Visions of Emptiness" 2011, Death Metal
+
+1. The Flesh and the Spirit	 
+2. Illogical Revelations	 
+3. Labyrinth of Depravity	 
+4. Elements of Sadistic Cruelty	 
+5. Smashed into Oblivion	 
+6. Beyond the Consciousness	 
+7. Paradoxical Visions of Emptiness	 
+8. Homicidal Cognitive States	 
+9. Timeless Murderer
+
 
 ## Отношения с другими группами
 

@@ -1,23 +1,337 @@
 # Cathedral
 
-Дискография
-"Forest Of Equilibrum" 1991, Doom
-"Soul Sacrifice" 1992, Doom
-"The Ethereal Mirror" 1993, Doom
-"In Memorium" 1994, Doom
-"Static Majik" 1994, Doom
-"The Carnival Bizarre" 1995, Doom
-"Hopkins (The Witchfinder General)" 1996, Doom
-"Supernatural Birth Machine" 1996, Doom
-"Caravan Beyond Redemption" 1999, Doom
-"Soul Sacrifice / Statik Majik" 1999, Doom
-"Endtyme" 2001, Doom
-"The VIIth Coming " 2002, Doom
-"The Serpent's Gold (2 CD)" 2004, Doom
-"The Garden Of Unearthly Delights" 2005, Doom
-"The Guessing Game" 2010, Doom
-"A New Ice Age (single)" 2011, Doom
-"The Last Spire" 2012, Doom
+Vocals Lee Dorian(ex-Napalm Death)
+
+## Дискография
+
+### "Forest Of Equilibrum" 1991, Doom
+
+1. Picture Of Beauty & Innocense (Intro)
+   Commiserating The Celebration
+2. Ebony Tears
+3. Serpent Eve
+4. Soul Sacrifice
+5. Funeral Request
+6. Equilibrium
+7. Reaching Happiness ,Touching Pain
+
+ Lee Dorrian - Screams
+ Gary Jennings - Guitars
+ Adam Lehan - Guitars & Acoustics
+ Mark Griffits - Bass Guitar
+ Mike Smail - Drums
++ Helen Acreman - Flute
++ Reverend Wolski - Keyboards
+
+Produced & Mixed By PBL,Assisted By Lee
+Dorrian & Gary Jennings.
+Engineered By Mark Tempest.
+Recorded At Workshop Studios,Redditch,
+July-August `91.
+Sleeve Artist: Dave Patchett
+
+(p)&(c) 1991 EARACHE Records Mosh 043
+
+### "Soul Sacrifice" 1992, Doom
+
+1. Soul Sacrifice 4.35
+2. Golden Blood / Flooding 8.10
+3. Autumn Twilight 5.45
+4. Frozen Rapture 6.03
+
+(p)&(c) 1992 EARACHE Records
+
+### "The Ethereal Mirror" 1993, Doom
+
+1. Violet Vortex (Intro)
+2. Ride
+3. Enter The Worms
+4. Midnight Mountain
+5. Fountain Of Innocense
+6. Grim Luxuria
+7. Jaded Entity
+8. Ashes You Leave
+9. Phantasmogoria
+10.Imprisoned In Flesh
+
+ Lee Dorrian - Vocals
+ Gary Jennings - Guitars,Bass
+ Adam Lehan - Guitars
+ Mark Ramsey Wharton - Drums
+
+Recorded,Produced & Mixed By David Bianco.
+Engineered by Shaun Defo.
+Cover Painting By Dave Patchett
+
+(p)&(c) 1993 EARACHE Records Mosh 077
+
+
+### "In Memorium" 1994, Doom
+
+1. Mourning Of A New Day
+2. All Your Sins*
+3. Ebony Tears
+4. March!**
+
+ Lee Dorrian - Vocals
+ Adam Lehan - Guitars
+ Garry Jennings - Guitars
+ Mark Griffiths - Bass
+ Ben Mochrie - Drums
+
+All songs written by Jennings Dorrian except* by Liebling Griffin ** by Jennings
+Produced by CATHEDRAL
+Engineered by Paul Johnson
+Recorded at Rhuthm Studios,Oct. 1990
+
+(p)(c) 1994 RISE ABOVE Records
+
+### "Static Majik" 1994, Doom
+
+1. Midnight Mountain
+2. Hypnos 164
+3. Cosmic Funeral
+4. The Voyage Of The Homeless Sapien
+
+ Lee Dorrian - Vocals
+ Adam Lehan - Guitars
+ Garry Jennings - Guitar,bass guitar
+ Mark Ramsey Wharton - Drums
+
+All songs written by CATHEDRAL
+
+(p)(c) 1994 EARACHE Records
+
+### "The Carnival Bizarre" 1995, Doom
+
+1. Vampire Sun
+2. Hopkins (Witchfinder General)
+3. Utopian Blaster
+4. Night Of The Seagulls
+5. Carnival Bizarre
+6. Inertias Cave
+7. Fangalactic Supergoria
+8. Blue Light
+9. Palace Of Fallen Majesty
+10.Electric Grave
+
+All Songs By CATHEDRAL.
+Produced By Kit Woolven And CATHEDRAL.
+
+Lee Dorian - Vocals
+Adam Lehan - Guitars
+Garry Jennings - Guitar,Bass Guitar
+Mark Ramsey Wharton  - Drums
+
+(P)&(C) 1995 EARACHE Records
+
+### "Hopkins (The Witchfinder General)" 1996, Doom
+
+1. Spoken Intro/Hopkins (The Witchfinder General)
+2. Fire З
+3. Cooper Sunset
+4. Purple Wonderland
+5. The Devils Summit
+
+All songs written by CATHEDRAL, except З Written by Brown/ Crane/ Ker/ Finesilver.
+Produced by CATHEDRAL
+Engineered by Paul Johnston
+Recorded and mixed at Rhythm Studio, Bidford.
+
+Lee Dorrian - Vocals
+Leo Smee - Bass
+Garry Jennings - Guitar, Keyboards, Mellotron
+Brian Dixon - Drums, Percussion
+Paul Johnston - Hammond Organ
+Brian Love Bucket - Saxophone
+
+ (p)c 1996 EARACHE Records
+
+### "Supernatural Birth Machine" 1996, Doom
+
+1.  Cyberton 71 / Eternal Countdown (Intro)
+2.  Uako's Conquest
+3.  Stained Glass Horizons
+4.  Cyclops Revolution
+5.  Birth Machine 2000
+6.  Nightmare Castle
+7.  Fireball Demon
+8.  Phaser Quest
+9.  Suicide Asteroid
+[10].Dragon Ryder 13
+[11].Magnetic Hole
+
+[10]-[11] - На стороне B
+
+All songs written by CATHEDRAL, Produced & Engineered by Kit Woolven & Doug Cook.
+Recorded and Mixed At Parkgate Studios, Nr.Battle.
+
+Lee Dorrian - Vocals
+Leo Smee - Bass
+Garry Jennings - Guitar
+Brian Dixon - Drums
+
+(p)c 1996 EARACHE Records
+
+### "Caravan Beyond Redemption" 1999, Doom
+
+1. Voodoo Fire
+2. The Unnatural World
+3. Satanikus Robotikus
+4. Freedom
+5. Captain Clegg
+6. Earth Messiah
+7. The Caravan
+8. Revolution
+9. Kaleidoscope Of Desire
+10.Heavy Load
+11.The Omega Man
+
+### "Soul Sacrifice / Statik Majik" 1999, Doom
+
+
+
+### "Endtyme" 2001, Doom
+
+01 - Cathedral Flames
+02 - Melancholy Emperor
+03 - Requiem For The Sun
+04 - Whores To Oblivion
+05 - Alchemist Of Sorrows
+06 - Ultra Earth
+07 - Astral Queen
+08 - Sea Serpent
+09 - Templars Arise (The Return)
+10 - Gargoylian*
+
+*Toy's Factory Japanese release and Southern Lord 7" only.
+
+(c)(p) 2001 Earache
+
+Production Info:
+
+Endtyme was recorded and mixed at Chapel Studios, South Thoresby, England:
+17th July - 6th August 2000.
+Master of ceremonies: Billy Anderson.
+Assistant Engineer Ewan Davies, assisted by Will Keaton.
+Visual Aggression: Stephen O'Malley (apologies to Beardsley, Hertzog and
+Davis).
+Band Photography: Sam Scott Hunter.
+DV Stills: Tony Atkinson
+
+Lineup:
+
+Lee Dorrian - Mouth
+Gary Jennings - Guitar
+Leo Smee - Bass
+Brian Dixon - Drums
+
+Special Guest, Russell Haswell - noise on 'Whores To Oblivion'.
+
+
+### "The VIIth Coming " 2002, Doom
+
+1. Phoenix Rising 03:52  
+2. Resisting the Ghost 02:37  
+3. Skullflower 05:44 
+4. Aphrodite's Winter 05:04 
+5. The Empty Mirror 08:38 
+6. Nocturnal Fist 03:20 
+7. Iconoclast 05:19  
+8. Black Robed Avenger 06:46 
+9. Congregation of Sorcerers 04:39 
+10. Halo of Fire 07:21 
+11. Texting (Instrumental) (6:03) - Bonus track for Japan
+
+
+Lee Dorrian : Vocals 
+Garry Jennings : Guitars
+Leo Smee : Bass 
+Brian Dixon : Drums 
+
+### "The Serpent's Gold (2 CD)" 2004, Doom
+
+01. "Ride"
+02. "Hopkins (Witchfinder General)"
+03. "Autumn Twilight"
+04. "Midnight Mountain"
+05. "Soul Sacrifice"
+06. "Enter The Worms"
+07. "Stained Glass Horizon"
+08. "Vampire Sun"
+09. "Cosmic Funeral"
+10. "Ebony Tears"
+11. "Melancholy Emperor"
+12. "Equilibrium"
+13. "Utopian Blaster"
+14. "Voodoo Fire"
+15. "Imprisoned In Flesh"
+
+01. "Hide And Seek"
+02. "Neophytes For Serpent Eve (demo)"
+03. "Violet Breath"
+04. "Night Of The Seagulls (demo)"
+05. "Magic Mountain"
+06. "A Funeral Request (live, feat. Victor Griffin/Joe Hasselvander of Pentagram)"
+07. "The Olde Oak Tree"
+08. "Schizoid Puppeteer"
+09. "The Carnival Bizarre (demo)"
+10. "Rabies (Witchfinder Genenral cover)"
+11. "Blue Light (live)"
+12. "Commiserating The Celebration (of life) (demo)"
+
+### "The Garden Of Unearthly Delights" 2005, Doom
+
+01. Death AD 2005
+02. Tree Of Life & Death
+03. North Berwick Witch Trials
+04. Upon Azrael's Wings
+05. Corpsecycle
+06. Fields Of Zagara
+07. Oro The Manslayer
+08. Beneath A Funeral Sun
+09. The Garden
+10. Proga-Europa
+
+### "The Guessing Game" 2010, Doom
+
+Disc 1 
+1. Immaculate Misconception 02:24  
+2. Funeral of Dreams 08:28
+3. Painting in the Dark 06:18
+4. Death of an Anarchist 07:12
+5. The Guessing Game 03:08  
+6. Edwige's Eyes 07:08 
+7. Cats, Incense, Candles & Wine 06:01
+Disc 2 
+1. One Dimensional People 02:30  
+2. The Casket Chasers 06:41 
+3. La Noche del Buque Maldito (aka Ghost Ship of the Blind Dead) 05:46
+4. The Running Man 08:46 
+5. Requiem for the Voiceless 09:50 
+6. Journeys into Jade 10:36 
+
+### "A New Ice Age (single)" 2011, Doom
+
+1. Open Mind Surgery 
+2. Sabbadaius Sabbatum 
+
+
+### "The Last Spire" 2012, Doom
+
+1. Entrance To Hell 
+2. Pallbearer 
+3. Cathedral Of the Damned 
+4. Tower Of Silence 
+5. Infestation Of Grey Death 
+6. An Observation 
+7. The Last Laugh 
+8. This Body, Thy Tomb
+
+The final studio album ever released by Cathedral. Recorded before the farewell tour. 
+
+A video was made for "Tower of Silence", featuring Rosalie Cunningham of Purson. 
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,31 @@
 # Meathook Seed
 
-Дискография
-"Embedded" 1993, Industrial
+member Napalm Death, Obituary
+
+## Дискография
+
+### "Embedded" 1993, Industrial
+
+1. Famine Sector
+2. A Furred Grave
+3. My Infinty
+4. Day Of Conceiving
+5. Cling To An Image
+6. A Wilted Remnant
+7. Forgive
+8. Focal Point Blurr
+9. Embedded
+10.Visible Shallow Self
+11.Sea Of Tranquility
+
+ Trevor Peres - Vocals
+ Mitch Harris - Guitars
+ Donald Tardy - Drums
+
+Special Guest Shane Embury - Bass.
+
+(p)&(c) 1993 EARACHE Records
+
 
 ## Отношения с другими группами
 

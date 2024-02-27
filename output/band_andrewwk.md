@@ -1,7 +1,24 @@
 # Andrew W.K.
 
-Дискография
-"I Get Wet" 2002, Hard Rock
+
+
+## Дискография
+
+### "I Get Wet" 2002, Hard Rock
+
+01 - It's Time To Party
+02 - Party Hard
+03 - Girls Own Love
+04 - Ready To Die
+05 - Take it Off
+06 - I Love NYC 
+07 - "She is Beautiful
+08 - Party Till You Puke
+09 - Fun Night
+10 - Got to Do It
+11 - I Get Wet
+12 - Don't Stop Living in The Red
+
 
 ## Отношения с другими группами
 

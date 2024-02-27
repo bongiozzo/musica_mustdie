@@ -32,6 +32,11 @@
 Стиль: Stoner
 Год: 1994
 
+Группа: Down
+Альбом: "Nola"
+Стиль: Stoner
+Год: 1995
+
 Группа: Electric Wizard
 Альбом: "Electric Wizard"
 Стиль: Stoner
@@ -39,11 +44,6 @@
 
 Группа: Monster Magnet
 Альбом: "Dopes To Infinity"
-Стиль: Stoner
-Год: 1995
-
-Группа: Down
-Альбом: "Nola"
 Стиль: Stoner
 Год: 1995
 
@@ -57,13 +57,13 @@
 Стиль: Stoner
 Год: 1996
 
-Группа: Karma To Burn
-Альбом: "Karma To Burn"
+Группа: Electric Wizard
+Альбом: "Come My Fanatics..."
 Стиль: Stoner
 Год: 1997
 
-Группа: Electric Wizard
-Альбом: "Come My Fanatics..."
+Группа: Karma To Burn
+Альбом: "Karma To Burn"
 Стиль: Stoner
 Год: 1997
 
@@ -72,8 +72,8 @@
 Стиль: Stoner
 Год: 1997
 
-Группа: Spiritual Beggars
-Альбом: "Mantra III"
+Группа: Bongzilla
+Альбом: "Hemp For Victory (EP)"
 Стиль: Stoner
 Год: 1998
 
@@ -82,18 +82,18 @@
 Стиль: Stoner
 Год: 1998
 
-Группа: Orange Goblin
-Альбом: "Time Travelling Blues"
-Стиль: Stoner
-Год: 1998
-
 Группа: Monster Magnet
 Альбом: "Powertrip"
 Стиль: Stoner
 Год: 1998
 
-Группа: Bongzilla
-Альбом: "Hemp For Victory (EP)"
+Группа: Orange Goblin
+Альбом: "Time Travelling Blues"
+Стиль: Stoner
+Год: 1998
+
+Группа: Spiritual Beggars
+Альбом: "Mantra III"
 Стиль: Stoner
 Год: 1998
 
@@ -102,8 +102,8 @@
 Стиль: Stoner
 Год: 1999
 
-Группа: Karma To Burn
-Альбом: "Wild, Wonderful… Purgatory"
+Группа: Duster69
+Альбом: "Interstellar Burst"
 Стиль: Stoner
 Год: 1999
 
@@ -112,33 +112,13 @@
 Стиль: Stoner
 Год: 1999
 
-Группа: Duster69
-Альбом: "Interstellar Burst"
+Группа: Karma To Burn
+Альбом: "Wild, Wonderful… Purgatory"
 Стиль: Stoner
 Год: 1999
 
-Группа: The Black League
-Альбом: "Ichor"
-Стиль: Stoner
-Год: 2000
-
-Группа: Orange Goblin
-Альбом: "The Big Black"
-Стиль: Stoner
-Год: 2000
-
-Группа: High On Fire
-Альбом: "The Art Of Self Defense"
-Стиль: Stoner
-Год: 2000
-
-Группа: Mushroom River Band, The
-Альбом: "Music For The World Beyond"
-Стиль: Stoner
-Год: 2000
-
-Группа: Quill
-Альбом: "The Quill"
+Группа: Bongzilla
+Альбом: "Apogee"
 Стиль: Stoner
 Год: 2000
 
@@ -147,8 +127,8 @@
 Стиль: Stoner
 Год: 2000
 
-Группа: Bongzilla
-Альбом: "Apogee"
+Группа: High On Fire
+Альбом: "The Art Of Self Defense"
 Стиль: Stoner
 Год: 2000
 
@@ -157,18 +137,48 @@
 Стиль: Stoner
 Год: 2000
 
-Группа: Spiritual Beggars
-Альбом: "Ad Astra"
-Стиль: Stoner
-Год: 2000
-
 Группа: Monster Magnet
 Альбом: "God Says No"
 Стиль: Stoner
 Год: 2000
 
+Группа: Mushroom River Band, The
+Альбом: "Music For The World Beyond"
+Стиль: Stoner
+Год: 2000
+
+Группа: Orange Goblin
+Альбом: "The Big Black"
+Стиль: Stoner
+Год: 2000
+
+Группа: Quill
+Альбом: "The Quill"
+Стиль: Stoner
+Год: 2000
+
+Группа: Spiritual Beggars
+Альбом: "Ad Astra"
+Стиль: Stoner
+Год: 2000
+
 Группа: The Black League
-Альбом: "Utopia A.D."
+Альбом: "Ichor"
+Стиль: Stoner
+Год: 2000
+
+Группа: 5IVE
+Альбом: "5ive"
+Стиль: Stoner
+Год: 2001
+
+Группа: 5IVE
+Альбом: "Telestic Disfracture"
+Стиль: Stoner
+Год: 2001
+
+Группа: Daniel Lioneye
+Альбом: "The King of Rock'n Roll"
 Стиль: Stoner
 Год: 2001
 
@@ -182,13 +192,8 @@
 Стиль: Stoner
 Год: 2001
 
-Группа: Daniel Lioneye
-Альбом: "The King of Rock'n Roll"
-Стиль: Stoner
-Год: 2001
-
-Группа: 5IVE
-Альбом: "5ive"
+Группа: Karma To Burn
+Альбом: "Almost Heathen"
 Стиль: Stoner
 Год: 2001
 
@@ -197,8 +202,8 @@
 Стиль: Stoner
 Год: 2001
 
-Группа: Karma To Burn
-Альбом: "Almost Heathen"
+Группа: The Black League
+Альбом: "Utopia A.D."
 Стиль: Stoner
 Год: 2001
 
@@ -213,67 +218,7 @@
 Год: 2001
 
 Группа: 5IVE
-Альбом: "Telestic Disfracture"
-Стиль: Stoner
-Год: 2001
-
-Группа: 5IVE
 Альбом: "The Hemopheliac Dream"
-Стиль: Stoner
-Год: 2002
-
-Группа: Electric Wizard
-Альбом: "Let Us Prey"
-Стиль: Stoner
-Год: 2002
-
-Группа: Stoner Kings
-Альбом: "Brimstone Blues"
-Стиль: Stoner
-Год: 2002
-
-Группа: Bongzilla
-Альбом: "Shake: The Singles (Compilation)"
-Стиль: Stoner
-Год: 2002
-
-Группа: Quill
-Альбом: "Voodoo Caravan"
-Стиль: Stoner
-Год: 2002
-
-Группа: Devilcake
-Альбом: "I Can't Believe It's not Satan"
-Стиль: Stoner
-Год: 2002
-
-Группа: Spiritu
-Альбом: "Spiritu"
-Стиль: Stoner
-Год: 2002
-
-Группа: High On Fire
-Альбом: "Surrounded By Thieves"
-Стиль: Stoner
-Год: 2002
-
-Группа: Bongzilla
-Альбом: "Gateway"
-Стиль: Stoner
-Год: 2002
-
-Группа: Orange Goblin
-Альбом: "Coup De Grace"
-Стиль: Stoner
-Год: 2002
-
-Группа: Spiritu
-Альбом: "Shhu Evy"
-Стиль: Stoner
-Год: 2002
-
-Группа: Spiritual Beggars
-Альбом: "On Fire"
 Стиль: Stoner
 Год: 2002
 
@@ -282,18 +227,68 @@
 Стиль: Stoner
 Год: 2002
 
+Группа: Bongzilla
+Альбом: "Gateway"
+Стиль: Stoner
+Год: 2002
+
+Группа: Bongzilla
+Альбом: "Shake: The Singles (Compilation)"
+Стиль: Stoner
+Год: 2002
+
+Группа: Devilcake
+Альбом: "I Can't Believe It's not Satan"
+Стиль: Stoner
+Год: 2002
+
+Группа: Electric Wizard
+Альбом: "Let Us Prey"
+Стиль: Stoner
+Год: 2002
+
+Группа: High On Fire
+Альбом: "Surrounded By Thieves"
+Стиль: Stoner
+Год: 2002
+
 Группа: Mushroom River Band, The
 Альбом: "Simsalabim"
 Стиль: Stoner
 Год: 2002
 
-Группа: Mutants, The
-Альбом: "Voodoo Blues"
+Группа: Orange Goblin
+Альбом: "Coup De Grace"
 Стиль: Stoner
-Год: 2003
+Год: 2002
 
-Группа: Weedeater
-Альбом: "Sixteen Tons"
+Группа: Quill
+Альбом: "Voodoo Caravan"
+Стиль: Stoner
+Год: 2002
+
+Группа: Spiritu
+Альбом: "Shhu Evy"
+Стиль: Stoner
+Год: 2002
+
+Группа: Spiritu
+Альбом: "Spiritu"
+Стиль: Stoner
+Год: 2002
+
+Группа: Spiritual Beggars
+Альбом: "On Fire"
+Стиль: Stoner
+Год: 2002
+
+Группа: Stoner Kings
+Альбом: "Brimstone Blues"
+Стиль: Stoner
+Год: 2002
+
+Группа: Fireball Ministry
+Альбом: "The Second Great Awakening"
 Стиль: Stoner
 Год: 2003
 
@@ -302,13 +297,8 @@
 Стиль: Stoner
 Год: 2003
 
-Группа: Fireball Ministry
-Альбом: "The Second Great Awakening"
-Стиль: Stoner
-Год: 2003
-
-Группа: Suma
-Альбом: "Suma"
+Группа: Mutants, The
+Альбом: "Voodoo Blues"
 Стиль: Stoner
 Год: 2003
 
@@ -317,18 +307,23 @@
 Стиль: Stoner
 Год: 2003
 
-Группа: Monster Magnet
-Альбом: "Monolithic Baby!"
+Группа: Suma
+Альбом: "Suma"
+Стиль: Stoner
+Год: 2003
+
+Группа: Weedeater
+Альбом: "Sixteen Tons"
+Стиль: Stoner
+Год: 2003
+
+Группа: Blake
+Альбом: "Starbringer"
 Стиль: Stoner
 Год: 2004
 
-Группа: Witchcraft [Swe]
-Альбом: "Witchcraft"
-Стиль: Stoner
-Год: 2004
-
-Группа: The Black League
-Альбом: "Man's Ruin Revisited"
+Группа: Bongzilla
+Альбом: "Contamination Festival 2003"
 Стиль: Stoner
 Год: 2004
 
@@ -337,18 +332,13 @@
 Стиль: Stoner
 Год: 2004
 
-Группа: Blake
-Альбом: "Starbringer"
-Стиль: Stoner
-Год: 2004
-
 Группа: Electric Wizard
 Альбом: "We Live"
 Стиль: Stoner
 Год: 2004
 
-Группа: Bongzilla
-Альбом: "Contamination Festival 2003"
+Группа: Monster Magnet
+Альбом: "Monolithic Baby!"
 Стиль: Stoner
 Год: 2004
 
@@ -358,19 +348,14 @@
 Год: 2004
 
 Группа: The Black League
-Альбом: "A Place Called Bad"
+Альбом: "Man's Ruin Revisited"
 Стиль: Stoner
-Год: 2005
+Год: 2004
 
-Группа: High On Fire
-Альбом: "Blessed Black Wings"
+Группа: Witchcraft [Swe]
+Альбом: "Witchcraft"
 Стиль: Stoner
-Год: 2005
-
-Группа: Spiritual Beggars
-Альбом: "Demons"
-Стиль: Stoner
-Год: 2005
+Год: 2004
 
 Группа: Blake
 Альбом: "Planetizer"
@@ -387,13 +372,13 @@
 Стиль: Stoner
 Год: 2005
 
-Группа: Witchcraft [Swe]
-Альбом: "Firewood"
+Группа: Fireball Ministry
+Альбом: "Their Rock Is Not Our Rock"
 Стиль: Stoner
 Год: 2005
 
-Группа: Truckfighters
-Альбом: "Gravity X"
+Группа: High On Fire
+Альбом: "Blessed Black Wings"
 Стиль: Stoner
 Год: 2005
 
@@ -402,13 +387,28 @@
 Стиль: Stoner
 Год: 2005
 
-Группа: Fireball Ministry
-Альбом: "Their Rock Is Not Our Rock"
+Группа: Spiritual Beggars
+Альбом: "Demons"
 Стиль: Stoner
 Год: 2005
 
-Группа: Suma
-Альбом: "Let the Churches Burn"
+Группа: The Black League
+Альбом: "A Place Called Bad"
+Стиль: Stoner
+Год: 2005
+
+Группа: Truckfighters
+Альбом: "Gravity X"
+Стиль: Stoner
+Год: 2005
+
+Группа: Witchcraft [Swe]
+Альбом: "Firewood"
+Стиль: Stoner
+Год: 2005
+
+Группа: Lazarus Complex
+Альбом: "The Cleansing Demo"
 Стиль: Stoner
 Год: 2006
 
@@ -417,18 +417,38 @@
 Стиль: Stoner
 Год: 2006
 
-Группа: Lazarus Complex
-Альбом: "The Cleansing Demo"
-Стиль: Stoner
-Год: 2006
-
 Группа: Quill
 Альбом: "In Triumph"
 Стиль: Stoner
 Год: 2006
 
+Группа: Suma
+Альбом: "Let the Churches Burn"
+Стиль: Stoner
+Год: 2006
+
+Группа: Bison B.C.
+Альбом: "Earthbound (EP)"
+Стиль: Stoner
+Год: 2007
+
 Группа: Bongzilla
 Альбом: "Nuggets (Compilation)"
+Стиль: Stoner
+Год: 2007
+
+Группа: Duster69
+Альбом: "Angel King"
+Стиль: Stoner
+Год: 2007
+
+Группа: Electric Wizard
+Альбом: "Witchcult Today"
+Стиль: Stoner
+Год: 2007
+
+Группа: Fucking Wrath, The
+Альбом: "Season of Evil"
 Стиль: Stoner
 Год: 2007
 
@@ -437,18 +457,8 @@
 Стиль: Stoner
 Год: 2007
 
-Группа: Bison B.C.
-Альбом: "Earthbound (EP)"
-Стиль: Stoner
-Год: 2007
-
-Группа: Witchcraft [Swe]
-Альбом: "The Alchemist"
-Стиль: Stoner
-Год: 2007
-
-Группа: Pistons
-Альбом: "We're Pistons"
+Группа: Monster Magnet
+Альбом: "4-Way Diablo"
 Стиль: Stoner
 Год: 2007
 
@@ -457,8 +467,8 @@
 Стиль: Stoner
 Год: 2007
 
-Группа: Electric Wizard
-Альбом: "Witchcult Today"
+Группа: Pistons
+Альбом: "We're Pistons"
 Стиль: Stoner
 Год: 2007
 
@@ -472,43 +482,13 @@
 Стиль: Stoner
 Год: 2007
 
-Группа: Monster Magnet
-Альбом: "4-Way Diablo"
+Группа: Witchcraft [Swe]
+Альбом: "The Alchemist"
 Стиль: Stoner
 Год: 2007
-
-Группа: Fucking Wrath, The
-Альбом: "Season of Evil"
-Стиль: Stoner
-Год: 2007
-
-Группа: Duster69
-Альбом: "Angel King"
-Стиль: Stoner
-Год: 2007
-
-Группа: Gospel Of The Future
-Альбом: "Gospel Of The Future"
-Стиль: Stoner
-Год: 2008
 
 Группа: Bison B.C.
 Альбом: "Quiet Earth"
-Стиль: Stoner
-Год: 2008
-
-Группа: Mammoth Mammoth
-Альбом: "Mammoth Mammoth (EP)"
-Стиль: Stoner
-Год: 2008
-
-Группа: Hostal Handshake
-Альбом: "Hellish"
-Стиль: Stoner
-Год: 2008
-
-Группа: Elder
-Альбом: "Elder"
 Стиль: Stoner
 Год: 2008
 
@@ -522,18 +502,28 @@
 Стиль: Stoner
 Год: 2008
 
-Группа: Truckfighters
-Альбом: "Mania"
+Группа: Elder
+Альбом: "Elder"
 Стиль: Stoner
-Год: 2009
+Год: 2008
 
-Группа: Red Fang
-Альбом: "Red Fang"
+Группа: Gospel Of The Future
+Альбом: "Gospel Of The Future"
 Стиль: Stoner
-Год: 2009
+Год: 2008
+
+Группа: Hostal Handshake
+Альбом: "Hellish"
+Стиль: Stoner
+Год: 2008
 
 Группа: Mammoth Mammoth
-Альбом: "Mammoth"
+Альбом: "Mammoth Mammoth (EP)"
+Стиль: Stoner
+Год: 2008
+
+Группа: Flight Of Sleipnir, The
+Альбом: "Algiz + Berkanan"
 Стиль: Stoner
 Год: 2009
 
@@ -542,13 +532,23 @@
 Стиль: Stoner
 Год: 2009
 
+Группа: Guilty as Sin
+Альбом: "Led To The Slaughter"
+Стиль: Stoner
+Год: 2009
+
 Группа: Lord Of The Grave
 Альбом: "Raunacht"
 Стиль: Stoner
 Год: 2009
 
-Группа: Flight Of Sleipnir, The
-Альбом: "Algiz + Berkanan"
+Группа: Mammoth Mammoth
+Альбом: "Mammoth"
+Стиль: Stoner
+Год: 2009
+
+Группа: Red Fang
+Альбом: "Red Fang"
 Стиль: Stoner
 Год: 2009
 
@@ -557,28 +557,38 @@
 Стиль: Stoner
 Год: 2009
 
-Группа: Guilty as Sin
-Альбом: "Led To The Slaughter"
+Группа: Truckfighters
+Альбом: "Mania"
 Стиль: Stoner
 Год: 2009
+
+Группа: Barn Burner
+Альбом: "Bangers"
+Стиль: Stoner
+Год: 2010
+
+Группа: Bison B.C.
+Альбом: "Dark Ages"
+Стиль: Stoner
+Год: 2010
+
+Группа: Blake
+Альбом: "Haze Parade"
+Стиль: Stoner
+Год: 2010
 
 Группа: Daniel Lioneye
 Альбом: "Vol. II"
 Стиль: Stoner
 Год: 2010
 
-Группа: Spiritual Beggars
-Альбом: "Return To Zero"
+Группа: Down
+Альбом: "Diary Of A Mad Band (Live)"
 Стиль: Stoner
 Год: 2010
 
-Группа: Karma To Burn
-Альбом: "Incantation's Ingredients"
-Стиль: Stoner
-Год: 2010
-
-Группа: Barn Burner
-Альбом: "Bangers"
+Группа: Electric Wizard
+Альбом: "Black Masses"
 Стиль: Stoner
 Год: 2010
 
@@ -592,18 +602,8 @@
 Стиль: Stoner
 Год: 2010
 
-Группа: Monster Magnet
-Альбом: "Mastermind"
-Стиль: Stoner
-Год: 2010
-
-Группа: Down
-Альбом: "Diary Of A Mad Band (Live)"
-Стиль: Stoner
-Год: 2010
-
-Группа: Blake
-Альбом: "Haze Parade"
+Группа: Guilty as Sin
+Альбом: "III"
 Стиль: Stoner
 Год: 2010
 
@@ -612,18 +612,23 @@
 Стиль: Stoner
 Год: 2010
 
-Группа: Electric Wizard
-Альбом: "Black Masses"
-Стиль: Stoner
-Год: 2010
-
-Группа: Guilty as Sin
-Альбом: "III"
+Группа: Karma To Burn
+Альбом: "Appalachian Incantation"
 Стиль: Stoner
 Год: 2010
 
 Группа: Karma To Burn
-Альбом: "Appalachian Incantation"
+Альбом: "Incantation's Ingredients"
+Стиль: Stoner
+Год: 2010
+
+Группа: Monster Magnet
+Альбом: "Mastermind"
+Стиль: Stoner
+Год: 2010
+
+Группа: Spiritual Beggars
+Альбом: "Return To Zero"
 Стиль: Stoner
 Год: 2010
 
@@ -632,23 +637,8 @@
 Стиль: Stoner
 Год: 2010
 
-Группа: Bison B.C.
-Альбом: "Dark Ages"
-Стиль: Stoner
-Год: 2010
-
 Группа: Barn Burner
 Альбом: "Bangers II: Scum Of The Earth"
-Стиль: Stoner
-Год: 2011
-
-Группа: Svolk
-Альбом: "Svolk 'em All"
-Стиль: Stoner
-Год: 2011
-
-Группа: Twitching Tongues
-Альбом: "Sleep Therapy"
 Стиль: Stoner
 Год: 2011
 
@@ -657,8 +647,8 @@
 Стиль: Stoner
 Год: 2011
 
-Группа: Weedeater
-Альбом: "Jason...The Dragon"
+Группа: Flight Of Sleipnir, The
+Альбом: "Essence Of Nine"
 Стиль: Stoner
 Год: 2011
 
@@ -677,8 +667,18 @@
 Стиль: Stoner
 Год: 2011
 
-Группа: Flight Of Sleipnir, The
-Альбом: "Essence Of Nine"
+Группа: Svolk
+Альбом: "Svolk 'em All"
+Стиль: Stoner
+Год: 2011
+
+Группа: Twitching Tongues
+Альбом: "Sleep Therapy"
+Стиль: Stoner
+Год: 2011
+
+Группа: Weedeater
+Альбом: "Jason...The Dragon"
 Стиль: Stoner
 Год: 2011
 
@@ -687,23 +687,13 @@
 Стиль: Stoner
 Год: 2012
 
-Группа: High On Fire
-Альбом: "De Vermis Mysteriis"
-Стиль: Stoner
-Год: 2012
-
-Группа: Mammoth Mammoth
-Альбом: "Volume III - Hell's Likely"
-Стиль: Stoner
-Год: 2012
-
-Группа: Witchcraft [Swe]
-Альбом: "Legend"
-Стиль: Stoner
-Год: 2012
-
 Группа: Elder
 Альбом: "Spires Burn / Release (EP)"
+Стиль: Stoner
+Год: 2012
+
+Группа: High On Fire
+Альбом: "De Vermis Mysteriis"
 Стиль: Stoner
 Год: 2012
 
@@ -712,15 +702,20 @@
 Стиль: Stoner
 Год: 2012
 
+Группа: Mammoth Mammoth
+Альбом: "Volume III - Hell's Likely"
+Стиль: Stoner
+Год: 2012
+
 Группа: Orange Goblin
 Альбом: "A Eulogy For The Damned"
 Стиль: Stoner
 Год: 2012
 
-Группа: Spiritual Beggars
-Альбом: "Earth Blues"
+Группа: Witchcraft [Swe]
+Альбом: "Legend"
 Стиль: Stoner
-Год: 2013
+Год: 2012
 
 Группа: Elder
 Альбом: "Live At Roadburn 2013"
@@ -732,13 +727,18 @@
 Стиль: Stoner
 Год: 2013
 
-Группа: Twitching Tongues
-Альбом: "In Love There Is No Law"
+Группа: Red Fang
+Альбом: "Whales and Leeches"
 Стиль: Stoner
 Год: 2013
 
-Группа: Red Fang
-Альбом: "Whales and Leeches"
+Группа: Spiritual Beggars
+Альбом: "Earth Blues"
+Стиль: Stoner
+Год: 2013
+
+Группа: Twitching Tongues
+Альбом: "In Love There Is No Law"
 Стиль: Stoner
 Год: 2013
 
@@ -752,6 +752,11 @@
 Стиль: Stoner
 Год: 2014
 
+Группа: Elder
+Альбом: "Lore"
+Стиль: Stoner
+Год: 2015
+
 Группа: High On Fire
 Альбом: "Luminiferous"
 Стиль: Stoner
@@ -762,43 +767,13 @@
 Стиль: Stoner
 Год: 2015
 
-Группа: Elder
-Альбом: "Lore"
-Стиль: Stoner
-Год: 2015
-
-Группа: Komatsu
-Альбом: "Recipe For Murder One"
-Стиль: Stoner
-Год: 2016
-
-Группа: Motorowl
-Альбом: "Om Generator"
-Стиль: Stoner
-Год: 2016
-
 Группа: Brant Bjork and the Low Desert Punk Band
 Альбом: "Tao Of The Devil"
 Стиль: Stoner
 Год: 2016
 
-Группа: Truckfighters
-Альбом: "V"
-Стиль: Stoner
-Год: 2016
-
-Группа: Witchcraft [Swe]
-Альбом: "Nucleus"
-Стиль: Stoner
-Год: 2016
-
-Группа: Red Fang
-Альбом: "Only Ghosts"
-Стиль: Stoner
-Год: 2016
-
-Группа: Suma
-Альбом: "The Order Of Things"
+Группа: Daniel Lioneye
+Альбом: "Vol. III"
 Стиль: Stoner
 Год: 2016
 
@@ -812,13 +787,38 @@
 Стиль: Stoner
 Год: 2016
 
+Группа: Komatsu
+Альбом: "Recipe For Murder One"
+Стиль: Stoner
+Год: 2016
+
+Группа: Motorowl
+Альбом: "Om Generator"
+Стиль: Stoner
+Год: 2016
+
+Группа: Red Fang
+Альбом: "Only Ghosts"
+Стиль: Stoner
+Год: 2016
+
 Группа: Spiritual Beggars
 Альбом: "Sunrise To Sundown"
 Стиль: Stoner
 Год: 2016
 
-Группа: Daniel Lioneye
-Альбом: "Vol. III"
+Группа: Suma
+Альбом: "The Order Of Things"
+Стиль: Stoner
+Год: 2016
+
+Группа: Truckfighters
+Альбом: "V"
+Стиль: Stoner
+Год: 2016
+
+Группа: Witchcraft [Swe]
+Альбом: "Nucleus"
 Стиль: Stoner
 Год: 2016
 

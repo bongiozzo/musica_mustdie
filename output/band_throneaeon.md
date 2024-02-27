@@ -1,9 +1,35 @@
 # Throneaeon
 
-Дискография
-"With Sardonic Wrath" 1999, Death Metal
-"Neither Of Gods" 2001, Death Metal
-"Godhate" 2003, Death Metal
+
+
+## Дискография
+
+### "With Sardonic Wrath" 1999, Death Metal
+
+01. Despise For God
+02. Sardonic Wrath
+03. Blasphemous Prediction
+04. Entwined To The Lies Of The Light
+
+### "Neither Of Gods" 2001, Death Metal
+
+01. Neither Of Gods
+02. Thru Sinfulness
+03. Above The Aware
+04. In All And Nothing
+05. Seven In Heaven Seven On Earth
+06. Blackened To Be
+07. The Serpent Unfolds
+08. Strenght On The Flesh
+09. From On High
+10. Enemys Of Thy God
+11. 5211131103
+12. As It Has Come To End..
+
+### "Godhate" 2003, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

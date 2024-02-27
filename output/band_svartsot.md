@@ -1,9 +1,76 @@
 # Svartsot
 
-Дискография
-"Ravnenes Saga " 2007, Viking Metal
-"Mulmets Viser" 2010, Viking Metal
-"Maledictus Eris" 2011, Viking Metal
+
+
+## Дискография
+
+### "Ravnenes Saga " 2007, Viking Metal
+
+1. GravпїЅllet 04:36  
+2. Tvende Ravne 04:14 
+3. Nidvisen 04:35
+4. JotunheimsfпїЅrden 04:03  
+5. BersпїЅrkergang 04:42 
+6. Hedens DпїЅtre 04:13 
+7. Festen 03:14  
+8. Spillemandens DпїЅse 03:40  
+9. Skovens KпїЅlling 03:03  
+10. SkпїЅnne MпїЅer 04:21  
+11. Havets Plage 02:15 
+
+
+
+Recorded and mixed by:
+Jacob Hansen at Hansen Studios, Denmark.
+Assistent engineer: Michael Hansen.
+Mastered by: Peter in de Betou.
+Tailormaide, Sweden.
+
+The title means пїЅSaga of the RavensпїЅ, suggesting OdinпїЅs two ravens, Hugin
+and Munin (Thought and Memory). These two ravens would fly out over the world
+each day to return every evening and tell what they had seen.
+
+Digipak Edition features two bonus tracks:
+13. Drekar (4:12)
+14. HпїЅvnen (3:43)
+
+
+
+Claus B. Gnudtzmann - Vocals
+Cris J.S. Frederiksen - Lead guitar
+Stewart Lewis - Flutes, bodhran
+Michael L. Andersen - Rhythm guitar
+Niels P. Thшgersen - Drums 
+Martin Kielland-Brandt - Bass
+
+Some versions also come with a re-recording of the track 'Brages BпїЅger' from
+the band's "Tvende Ravne" demo as extra track. On those versions, 'Brages
+BпїЅger' is track #11, with 'Havets Plage' moving to #12.
+
+Tracks # 4 and 11 (aswell as the bonus track 'HГ¦vnen') are re-recordings of
+tracks from the 'Svundne Tider' demo.
+Tracks # 2 and 10 (aswell as the bonus track 'Brages BпїЅger') are
+re-recordings of tracks from the 'Tvende Ravne' demo. 
+
+### "Mulmets Viser" 2010, Viking Metal
+
+1. Жthelred 03:33  
+2. Lokkevisen 03:45  
+3. Havfruens Kvжd 04:06  
+4. Hшjen pе glшdende Pжle 03:59  
+5. Pе Odden af hans hedenske Svжrd 05:08  
+6. Laster og Tarv 03:38  
+7. Den svarte Sot 06:17  
+8. Kromandens Datter 03:55  
+9. Grendel 02:52  
+10. Jagten 04:29  
+11. Lindisfarne 03:52  
+12. I Salens varme Glшd 05:11 
+
+### "Maledictus Eris" 2011, Viking Metal
+
+
+
 
 ## Отношения с другими группами
 

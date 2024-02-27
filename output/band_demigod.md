@@ -1,8 +1,35 @@
 # Demigod
 
-Дискография
-"" 1992, Death Metal
-"Shadow Mechanics" 2002, Death Metal
+
+
+## Дискография
+
+### "" 1992, Death Metal
+
+
+
+### "Shadow Mechanics" 2002, Death Metal
+
+1. My Blood Your Blood 
+2. In The Mirrors 
+3. Lost Within 
+4. Where The Shadows Clash 
+5. Trail Of Guilt 
+6. Gates Of Lamentation 
+7. Silent With Earth 
+8. Derailed 
+9. Crimson Tears 
+10. Drifting 
+11. Burning 
+
+Line-Up: 
+Tuomas Ala-Nissi - vocals 
+Mika Haapasalo - vocals 
+Jussi Kiiski - guitar 
+Tero Laitinen - guitar 
+Sami Vesanto - bass 
+Tuomo Latvala - drums
+
 
 ## Отношения с другими группами
 

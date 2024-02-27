@@ -1,9 +1,21 @@
 # Hateplow
 
-Дискография
-"Everybody Dies" 1998, Death Metal
-"The Only Law Is Survival" 2000, Death Metal
-"Moshpit Murder" 2004, Death Metal
+
+
+## Дискография
+
+### "Everybody Dies" 1998, Death Metal
+
+
+
+### "The Only Law Is Survival" 2000, Death Metal
+
+
+
+### "Moshpit Murder" 2004, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

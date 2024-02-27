@@ -1,7 +1,21 @@
 # Profound
 
-Дискография
-"Deep & Sincere" 2003, Progressive
+Prog-metal
+
+## Дискография
+
+### "Deep & Sincere" 2003, Progressive
+
+Countless Court   - - 
+Futile Reality     
+Inner Dungeons      
+Transparent Borders      
+The Song of Loss   -   
+Liquid Memories     
+The Ghost of Despair      
+Agony Falling 
+
+
 
 ## Отношения с другими группами
 

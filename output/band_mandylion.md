@@ -1,7 +1,23 @@
 # Mandylion
 
-Дискография
-"Exorcise (demo)" 2003, Gothic
+
+
+## Дискография
+
+### "Exorcise (demo)" 2003, Gothic
+
+01 - Nina 
+02 - Rejuvenation 
+03 - Spiritually Dead 
+04 - Used You 
+
+
+Audun Aulie: Guitars 
+Nadja Alexandra Popp: Bass 
+Anette Gulbrandsen: Vocals
+Jan Roger Halvorsen: Drums 
+Tommy Strand: Guitars
+
 
 ## Отношения с другими группами
 

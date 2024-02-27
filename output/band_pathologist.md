@@ -1,8 +1,59 @@
 # Pathologist
 
-Дискография
-"Putrefactive And Cadaverous Odes About Necroticism" 1993, Grindcore
-"Grinding Opus Of Forensic Medical Problems" 1995, Grindcore
+
+
+## Дискография
+
+### "Putrefactive And Cadaverous Odes About Necroticism" 1993, Grindcore
+
+1. Malignant Introduction
+2. Open The Dissection Ward
+3. Reek With Suppuration
+4. Cadaveric Metamorphoses
+5. Genital Pathological Perversity
+6. Tumorous Defect And Diseases
+7. Anatomical Necropsy
+8. Progression Of Putrefaction ( Part II)
+9. Decomposition Of Corpses
+10.Carcass Dismemberment
+11.Vomitory Corporal Disfunction
+12.Rotten Outrodiction
+
+ Martin Cvilink - Voices
+ Daniel Hary - Guitars & Bass
+ Stanislav Mazur - Drums
+
+All Songs Written By PATHOLOGIST
+Produced By Pavel Zym
+Engineered By Pavel Zym & Jiri Krejci
+Recorded & Mixed At Studio Barbarella, Ostrava 1992
+
+(p)&(c) 1993 M.A.B. Records
+
+
+### "Grinding Opus Of Forensic Medical Problems" 1995, Grindcore
+
+1. Paroxysmal Prelude
+2. Cannibalistic Disfigurement
+3. Putrescence
+4. Cadavers In Medical Jurisprudence
+5. Uterogestation To Abortion
+6. Exhumed Dead Body
+7. Infectious Agonizing Parasitism
+8. Gynaecological Sickness
+9. Secretions Of Ejaculate
+
+All Songs By PATHOLOGIST.
+Produced By Pavel Zym.
+Engineered By Pavel Zym & George Krejci.
+
+Martin Cvilink - Voices
+Daniel Harok - Guitars
+Tom K.Miller - Bass
+Stanislav Mazur - Drums
+
+(P)&(C) 1995 M.A.B.Records
+
 
 ## Отношения с другими группами
 

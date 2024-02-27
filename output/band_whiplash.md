@@ -1,14 +1,81 @@
 # Whiplash
 
-Дискография
-"Power And Pain" 1985, Thrash
-"Ticket To Mayhem" 1987, Thrash
-"Insult To Injury" 1990, Thrash
-"Cult Of One" 1996, Thrash
-"Sit Stand Kneel Prey" 1997, Thrash
-"Thrashback" 1998, Thrash
-"Messages In Blood (Compilation)" 1999, Thrash
-"Unborn Again" 2009, Thrash
+Ex-Slayer,M.O.D.,Pro-Pain
+
+## Дискография
+
+### "Power And Pain" 1985, Thrash
+
+1. Stage Dive
+2. Red Bomb
+3. Last Man Alive
+4. Message In Blood
+5. War Monger
+6. Power Thrashing Death
+7. Stirring The Cauldron
+8. Spit On Your Grave
+9. Nailed To The Cross
+
+Tony Portaro - Vocals & Guitars
+Tony Bono - Bass
+Tony Scagline - Drums
+
+(p) 1985 ROADRUNNER Records
+(c) 1986 ROADRUNNER Records
+
+### "Ticket To Mayhem" 1987, Thrash
+
+
+
+### "Insult To Injury" 1990, Thrash
+
+
+
+### "Cult Of One" 1996, Thrash
+
+1. Such Is The Will
+2. No One's Idol
+3. No Fear To Tread
+4. 1.000 Times
+5. Wheel Of Misfortune
+6. Heavenaut
+7. Lost World
+[8].Cult Of One
+[9].Enemy
+[10].Apostle Of Truth
+
+[8]-[l0] - на стороне B
+
+All songs written by WHIPLASH.
+Produced by Steve Evetts.
+Engineered by Steve Evetts.
+Recorded at Trax East Studios, South
+River, New Jersey
+
+Tony Portaro - Guitars
+Tony Scaglione - Drums
+Rob Gonzo - Vocals
+Warren Conditi - Guitars
+Jimmy Preziosa - Bass
+
+(p)(c) 1996 MASSACRE Records
+
+### "Sit Stand Kneel Prey" 1997, Thrash
+
+
+
+### "Thrashback" 1998, Thrash
+
+
+
+### "Messages In Blood (Compilation)" 1999, Thrash
+
+
+
+### "Unborn Again" 2009, Thrash
+
+
+
 
 ## Отношения с другими группами
 

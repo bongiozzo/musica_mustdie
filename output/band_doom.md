@@ -1,17 +1,144 @@
 # Doom
 
-Дискография
-"War Crimes - Inhuman Beings" 1988, Punk
-"Total Doom" 1989, Punk
-"Bury The Debt - Not The Dead (split LP w/ No Security)" 1989, Punk
-"Doomed From The Start" 1992, Punk
-"The Greatest Invention" 1992, Punk
-"Fuck Peaceville" 1995, Punk
-"Monarchy Zoo (EP)" 1996, Punk
-"Rush Hour Of The Gods" 1996, Punk
-"Peel Sessions " 1996, Punk
-"World Of Shit" 2001, Punk
-"Corrupt Fucking System" 2013, Punk
+
+
+## Дискография
+
+### "War Crimes - Inhuman Beings" 1988, Punk
+
+1. Confusion (Intro)
+2. Life Lock
+3. Slave To Convention
+4. A Dream To Come True
+5. Drowning In The Mainstream
+6. Same Mind
+7. Relief
+8. After The Bomb
+9. Stop - Gap
+10.Scared
+11.Sick Joke
+12.Natural Abuse
+13.Exploitation
+14.Beat The Boss
+15.Money Drug
+16.Fear Of The Future
+17.No Religion
+18.Phobia For Change
+19.Multinationals
+20.Obscenity
+21.War Crimes
+
+Recorded At Rich Bitch 16-18.2.88.
+
+(p)&(c) 1990 PEACEVILLE Records
+
+### "Total Doom" 1989, Punk
+
+1. Confusion (Intro)
+2. Life Lock
+3. Slave To Convention
+4. A Dream To Come True
+5. Drowning In The Mainstream
+6. Same Mind
+7. Relief
+8. After The Bomb
+9. Stop-Gop
+10.Scared
+11.Sick Joke
+12.Natural Abuse
+13.Exploitation
+14.Beat The Boss
+15.Money Drug
+16.Fear Of The Future
+17.No Religion
+18.Phobia For Change
+19.Multinationals
+20.Obscenity
+21.War Crimes
+22.No Thought
+23.Black Monday
+24.No Die
+25.Agree To Differ
+26.War On Our Doorstep
+27.Bury The Dept (Not The Dead)
+28.Life In Freedom,Governed By
+   Equality
+29.Days Go By
+30.Sold Out Scene
+31.Free Yourself
+32.Relief, Pt.2
+33.Police Bastard
+34.Diseased
+35.Circles
+36.A Means To An End
+37.Sick Joke *
+
+* CD's Bonus Track.
+Tracks 1-21 Recorded At Rich Bitch
+Studio In 16-18 Of December,1988.
+Tracks 22-37 Recorded At Birdsound
+Studio In 3,4,10 Of January,1989.
+
+(p)&(c) 1989 PEACEVILLE Records
+
+### "Bury The Debt - Not The Dead (split LP w/ No Security)" 1989, Punk
+
+
+
+### "Doomed From The Start" 1992, Punk
+
+
+
+### "The Greatest Invention" 1992, Punk
+
+
+
+### "Fuck Peaceville" 1995, Punk
+
+
+
+### "Monarchy Zoo (EP)" 1996, Punk
+
+
+
+### "Rush Hour Of The Gods" 1996, Punk
+
+
+
+### "Peel Sessions " 1996, Punk
+
+Symptom Of The Universe / Multinationals
+Exploitation
+Circles
+No Religion
+Relief
+Sold Out / War Crimes
+Means To An End / A Dream To Come True
+Natural Abuse / Days Go By
+Life Lock / Bury The Debt
+Life In Freedom / Money Drug / Fear Of The Future
+
+### "World Of Shit" 2001, Punk
+
+
+
+### "Corrupt Fucking System" 2013, Punk
+
+01. Stripped, Whipped & Crucified (03:26)
+02. Prey for Our Souls (01:51)
+03. Human Meat (00:53)
+04. Yes, They Still Test on Dogs (02:28)
+05. Suffering in Silence (02:08)
+06. Eat Shit & Buy (02:56)
+07. Corrupt Fucking System (03:29)
+08. Apostasy (02:40)
+09. Own Worst Enemy (02:22)
+10. Final Hour (for Golden Shower) (02:02)
+11. Con Dem Nation (01:39)
+12. Better Off Dead (02:59)
+13. Thatchercide (01:09)
+14. Cults of Human Sacrifice (04:49)
+
 
 ## Отношения с другими группами
 

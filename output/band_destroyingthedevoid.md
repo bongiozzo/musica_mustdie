@@ -1,7 +1,20 @@
 # Destroying the Devoid
 
-Дискография
-"Paramnesia" 2016, Techno Death
+
+
+## Дискография
+
+### "Paramnesia" 2016, Techno Death
+
+1. Chasm of Existence  06:13    
+2. The Endless Cycles of Lunacy  05:08   
+3. Carnivale Nocturno  06:15   
+4. Paramnesia  07:18   
+5. Beyond the Dark Veil Part I: The Co-Existing Gaze  03:34    
+6. Beyond the Dark Veil Part Ii: Into the Darkness Beyond  07:31    
+7. Beyond the Dark Veil Part Iii: Beneath the Boughs  10:27 
+
+
 
 ## Отношения с другими группами
 

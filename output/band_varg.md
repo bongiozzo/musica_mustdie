@@ -1,11 +1,98 @@
 # Varg
 
-Дискография
-"Wolfszeit" 2007, Metal
-"Blutaar" 2010, Metal
-"Wolfskult" 2011, Metal
-"Guten Tag" 2012, Metal
-"Das Ende aller Lugen" 2016, Metal
+Pagan Metal
+
+## Дискография
+
+### "Wolfszeit" 2007, Metal
+
+1. Windzeit 01:40  
+2. Wolfszeit 06:53 
+3. Asatru 04:10 
+4. Skеl 05:06 
+5. Donareiche 05:51 
+6. Schlachtgebet 01:36
+7. Heldentod 06:43  
+8. Blutdienst 04:02  
+9. Das alte Feuer 06:26 
+10. Weltenbrand 02:43 
+
+
+
+Recorded at Helion Studios.
+
+Additonal vocals on tracks 2, 5 and 8 by Ingo Tauer of Riger.
+
+Digipak limited to 1000 handnumbered copies released by Heiden Klangwerke in
+2007
+
+Keyboards in song 1 by Renй Berthiaume of Equilibrium
+female voices in song 10 by Gaby KГ¶Гџ (Haggard) 
+
+### "Blutaar" 2010, Metal
+
+1. Wolfsmond 00:41  
+2. Viel Feind Viel Ehr 04:54  
+3. Invictus 05:04 
+4. Sieg oder Niedergang 04:35  
+5. Blutaar 05:24  
+6. Seele 06:38  
+7. Nebelleben 01:55  
+8. Zeichen der Zeit 04:06
+9. Wilde Jagd 03:56  
+10. Alter Feind 05:36 
+11. Blutdienst II 05:35 
+
+
+
+
+### "Wolfskult" 2011, Metal
+
+1. Jagd 01:36 
+2. Wir Sind Die Wцlfe 04:40 
+3. Schwertzeit 04:50 
+4. Wolfskult 04:11 
+5. Naglfar 04:38 
+6. Glorreiche Tage 04:09 
+7. Phцnix 04:51 
+8. Blutdienst III 05:27 
+9. Sehnsucht 09:53 
+10. Glutsturm 05:20
+
+
+Artwork created by Thomas Ewerhard.
+ Produced by Andy Classen.
+ 
+Limited edition two-CD digipak version bonustracks:
+ 1. Rotkдppchen (ft. Anna Murphy of Eluveitie) (04:24)
+ 2. Aus der Asche Ins Licht (04:07)
+ 3. Helden der Nacht (04:07)
+ 4. Nichts zu Fьrchten (03:41)
+ 5. Urd (Acoustic version) (02:55)
+ 6. Verdandi (Wolfszeit acoustic version ft. Masha of Arkona) (02:38)
+ 7. Skuld (Skеl acoustic version) (03:37)
+ 8. Die Nacht War Lang [Hidden Track] (ft. Robse of Equilibrium) (02:44) 
+
+### "Guten Tag" 2012, Metal
+
+01. Willkommen 00:25 
+02. Guten Tag 03:44 
+03. Frei Wie Der Wind 03:34 
+04. Was Nicht Darf 03:37 
+05. Blut Und Feuer 04:07 
+06. Angriff 04:29 
+07. Horizont 03:36 
+08. A Thousand Eyes 04:03 
+09. Wieder Mal Verloren 03:28 
+10. Gedanke Und Erinnerung 03:11 
+11. Leben 03:24 
+12. Anti 03:28 
+13. Apokalypse 05:21
+
+### "Das Ende aller Lugen" 2016, Metal
+
+
+
 
 ## Отношения с другими группами
 

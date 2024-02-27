@@ -1,10 +1,55 @@
 # Miasthenia
 
-Дискография
-"XVI" 2000, Black Metal
-"Batalha Ritual" 2004, Black Metal
-"Supremacia Ancestral" 2008, Black Metal
-"Legados do Inframundo" 2014, Black Metal
+Brazilian Black Metal
+
+## Дискография
+
+### "XVI" 2000, Black Metal
+
+1. Preludio
+2. XVI
+3. Lagrimones Do Falcao
+4. De Volta Ao Reino De Paa-zuma
+5. Rituais De Rebeliao
+6. Onde Sangram Pagas Memorias
+7. Brumas Xamanicas
+8. Malquis Imortais
+
+### "Batalha Ritual" 2004, Black Metal
+
+1. Necromanticos Ritos De Guerra
+2. Soturna Selvageria
+3. Dimensao Totemica Ancestral
+4. De Natureza Infernal
+5. Sacrificio Final
+6. Nos Dominios De Ca
+7. Zoster
+8. Mitica Escuridao Do Eldorado
+9. Essencia Canibalistica
+
+### "Supremacia Ancestral" 2008, Black Metal
+
+1. Deuses Da Aurora Ancestral
+2. Exortacoes De Oceloti
+3. Taqui Ongo
+4. Tawantinsuyo
+5. Tzompantli
+6. Guerra Do Mixton
+7. Idolatrias
+8. Kayanerehn Kowa
+
+### "Legados do Inframundo" 2014, Black Metal
+
+1. Deusas Funebres
+2. Saga Ao Xibalba
+3. Entronizados Na Morte
+4. Sacerdote – Jaguar
+5. Tokyah
+6. 13 Ahau Katun
+7. Senhores Do Mitnal
+8. Legados Do Inframundo
+9. Onde Sangram Pagas Memorias
+
 
 ## Отношения с другими группами
 

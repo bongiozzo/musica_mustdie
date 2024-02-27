@@ -1,18 +1,182 @@
 # Arena
 
-Дискография
-"Songs From The Lions Cage" 1995, Progressive
-"Pride" 1997, Progressive
-"Welcome To The Stage" 1997, Progressive
-"The Cry EP" 1997, Progressive
-"The Visitor" 1998, Progressive
-"Immortal" 2001, Progressive
-"Breakfast In Biarritz" 2001, Progressive
-"Contagious EP" 2003, Progressive
-"Contagium EP" 2003, Progressive
-"Contagion" 2003, Progressive
-"Pepper's Ghost" 2005, Progressive
-"Live 2CD" 2005, Progressive
+progressive (feat. Clive Nolan)
+
+## Дискография
+
+### "Songs From The Lions Cage" 1995, Progressive
+
+01. Out Of The Wilderness
+02. Crying For Help I
+03. Valley Of The Kings
+04. Crying For Help II
+05. Jericho
+06. Crying For Help III
+07. Midas Vision
+08. Crying For Help IV
+09. Solomon
+
+Bonus tracks:
+
+10. Chosen
+11. Elea
+12. Friday's Dream
+
+### "Pride" 1997, Progressive
+
+01. Welcome To The Cage…
+02. Crying For Help V
+03. Empire Of A Thousand Days
+04. Crying For Help VI
+05. Medusa
+06. Crying For Help VII
+07. Fool's Gold
+08. Crying For Help VIII
+09. Sirens
+
+### "Welcome To The Stage" 1997, Progressive
+
+01. William Tell Overture
+02. Valley Of The Kings
+03. Out Of The Wilderness
+04. Midas Vision
+05. The Healer
+06. Sirens
+07. Medusa
+08. Welcome To The Cage
+09. Jericho
+10. Solomon
+
+### "The Cry EP" 1997, Progressive
+
+01. Theme
+02. The Cry
+03. The Offering
+04. Problem Line
+05. Isolation
+06. Fallen Idols
+07. Guidance
+08. Only Child
+09. Stolen Promise
+10. The Healer
+
+### "The Visitor" 1998, Progressive
+
+01. A Crack In The Ice
+02. Pins And Needles
+03. Double Vision
+04. Elea
+05. The Hanging Tree
+06. A State Of Grace
+07. Blood Red Room
+08. In The Blink Of An Eye
+09. (Don't Forget To) Breathe
+10. Serenity
+11. Tears In The Rain
+12. Enemy Without
+13. Running From Damascus
+14. The Visitor
+
+### "Immortal" 2001, Progressive
+
+01. Chosen
+02. Waiting For The Flood
+03. The Butterfly Man
+04. Ghost In The Firewall
+05. Climbing The Net
+06. Moviedrome
+07. Friday's Dream
+
+### "Breakfast In Biarritz" 2001, Progressive
+
+01. Moveidrome
+02. Crack In The Ice
+03. Double Vision
+04. Midas Vision
+05. Serenity
+06. The Butterfly Man
+07. The Hanging Tree
+08. A State Of Grace
+09. Enemy Without
+10. Crying For Help VII
+
+### "Contagious EP" 2003, Progressive
+
+Vanishing Act
+The Hour Glass
+Contagious
+I Spy
+
+### "Contagium EP" 2003, Progressive
+
+On the edge of dispair
+The March Of Time
+Confrontation
+
+### "Contagion" 2003, Progressive
+
+01. Witch Hunt
+02. An Angel Falls
+03. Painted Man
+04. This Way Madness Lies (instrumental)
+05. Spectre At The Feast
+06. Never Ending Night
+07. Skin Game
+08. Salamander
+09. On The Box (instrumental)
+10. Tsunami
+11. Bitter Harvest
+12. The City Of Lanterns
+13. Riding The Tide (instrumental)
+14. Mea Culpa
+15. Cutting The Cards
+16. Ascension
+
+Bonus tracks:
+
+17. Witch Hunt (Remix by Richard West)
+18. Salamander (special remix)
+
+### "Pepper's Ghost" 2005, Progressive
+
+01. Bedlam Fayre
+02. Smoke And Mirrors
+03. The Shattered Room
+04. The Eyes Of Lara Moon
+05. Tantalus
+06. Purgatory Road
+07. Opera Fanatica
+
+### "Live 2CD" 2005, Progressive
+
+Disc 1:
+
+01. Witch Hunt
+02. An Angel Falls
+03. Painted Man
+04. This Way Madness Lies
+05. Spectre At The Feast
+06. Skin Game
+07. Salamander
+08. Bitter Harvest
+09. City Of Lanterns
+10. Riding The Tide
+11. Cutting The Cards
+12. Ascension
+
+Disc 2:
+
+01. Serenity
+02. Chosen
+03. Double Vision
+04. Hanging Tree
+05. (Don't Forget To) Breathe
+06. The Butterfly Man
+07. Enemy Without
+08. Solomon
+09. Jericho
+10. Crying For Help VII
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,40 @@
 # Sapremia
 
-Дискография
-"Hollow" 2007, Death Metal
-"With Winter Comes Despair" 2008, Death Metal
+
+
+## Дискография
+
+### "Hollow" 2007, Death Metal
+
+1. Life of Fantasy
+2. Scattered Ash
+3. Existence of Torture
+4. Cold War
+5. Fragmented Remains
+6. Spawn of Desolation	 
+7. Dead Eternal	 
+8. Ambitious Suffering	 
+9. Existence of Torture	 
+10. Fragmented Remains	 
+11. Plague of Minds	 
+12. Infectional Withdrawl	 
+13. In Lifeless Form	 
+14. Strategical Sickness	 
+15. Disintergration of Your Soul
+
+### "With Winter Comes Despair" 2008, Death Metal
+
+1. Open Grave
+2. Forgotten Paradise
+3. The Despair of Winter
+4. Ambitious Suffering
+5. Life of Fantasy
+6. Truth
+7. Cold War
+8. Through Sight Beyond
+9. Hollow
+10. Ascension
+
 
 ## Отношения с другими группами
 

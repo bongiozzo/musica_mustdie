@@ -1,9 +1,36 @@
 # Ibridoma
 
-Дискография
-"Page 26 [EP]" 2008, Heavy Metal
-"Ibridoma" 2009, Heavy Metal
-"Night Club" 2012, Heavy Metal
+
+
+## Дискография
+
+### "Page 26 [EP]" 2008, Heavy Metal
+
+
+
+### "Ibridoma" 2009, Heavy Metal
+
+1. Red  03:33    
+2. I’m Not Sorry  04:05  
+3. Ibrido  04:07   
+4. Alone In The Wind  06:15
+5. Jenny  03:42   
+6. Night Falling  03:43   
+7. Night Of Crow  04:54   
+8. Page 26  06:09    
+9. Lady Of Darkness  13:42 
+
+### "Night Club" 2012, Heavy Metal
+
+1.	 Eagles From The Sky	03:45	 
+2.	 Cold Light Of Moon	05:32	 
+3.	 Night Club	03:16	 
+4.	 7 Days of Death	04:26	 
+5.	 Why Do You Feel Alone	04:21	 
+6.	 Last Supper	03:37	 
+7.	 Businessmen	03:50	 
+8.	 Face To Face	03:24
+
 
 ## Отношения с другими группами
 

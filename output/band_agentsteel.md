@@ -1,13 +1,140 @@
 # Agent Steel
 
-Дискография
-"Skeptics Apocalypse" 1985, Speed Metal
-"Mad Locust Rising (EP)" 1985, Speed Metal
-"Unstoppable Force" 1987, Thrash
-"Omega Conspiracy" 1999, Thrash
-"Order Of The Illuminati" 2003, Speed Metal
-"Earth Under Lucifer (mini-CD)" 2003, Speed Metal
-"Alienigma" 2007, Thrash
+Speed/thrash
+
+## Дискография
+
+### "Skeptics Apocalypse" 1985, Speed Metal
+
+1. (The Calling)
+2. Agents of Steel
+3. Taken by Force
+4. Evil Eye / Evil Minds
+5. Bleed for the Godz
+6. Children of the Sun
+7. 144,000 Gone
+8. Guilty as Charged
+9. Back to Reign
+10. Calling 98 for Skeptics
+11. The Unexpected (live)
+
+
+
+John Cyriis - Communicative Channel
+Juan Garsia - Lead & Rhythm Guitar
+Chuck Profus - Drums
+George Robb - Bass
+Kurt Colfelt - Guitar
+
+
+
+### "Mad Locust Rising (EP)" 1985, Speed Metal
+
+1. (The Swarm is Upon Us)
+2. Mad Locust Rising
+3. The Ripper
+4. Let It Be Done / The Day at Guyana
+
+
+Juan Garcia: guitars
+Bernie Versailles: guitars
+Chuck Profus: drums
+George Robb: bass
+John Cyriss: vocals
+
+
+
+### "Unstoppable Force" 1987, Thrash
+
+1. Unstoppable Force
+2. Never Surrender
+3. Indestructive
+4. Chosen to Stay
+5. Still Searchin'
+6. Rager
+7. The Day at Guyana
+8. Nothin' Left
+9. Traveler
+
+
+
+Juan Garcia: guitars
+Bernie Versailles: guitars
+Chuck Profus: drums
+Michael Zaputil: bass
+John Cyriss: vocals
+
+
+
+### "Omega Conspiracy" 1999, Thrash
+
+1.   Destroy the Hush - 4:17 
+2.   Illuminatti Is Machine - 5:01 
+3.   Fighting Backwards - 4:56 
+4.   New Godz - 3:11 
+5.   Know Your Master - 4:49 
+6.   Infinty - 5:10 
+7.   Awaken the Swarm - 6:58 
+8.   Into the Nowhere - 5:11 
+9.   Bleed Forever - 5:41 
+10.  It's Not What You Think - 6:12 
+11.  Beyond the Realms of Death - 6:40 
+
+
+Agent Steel  -  Producer 
+Juan Garcia  -  Guitar, Guitar (Rhythm) 
+Bruce Hall  -  Vocals 
+Robert Hill  -  Engineer, Assistant 
+Bernie Versailles  -  Guitar (Acoustic), Guitar, Guitar (Rhythm), Producer, Engineer, Mixing 
+
+
+
+### "Order Of The Illuminati" 2003, Speed Metal
+
+1. AVENGER
+2. TEN FISTS OF NATIONS 
+3. EARTH UNDER LUCIFER 
+4. ENSLAVED
+5. INSURRECTION
+6. APOCALYPSE 
+7. FOREVER BLACK 
+8. DANCE OF ST. VITUS (bass solo) 
+9. DEAD EYES 
+10. KONTROL (instrumental) 
+11. HUMAN BULLET BRAINWASHED
+
+
+
+Juan Garcia: guitars
+Bernie Versailles: guitars
+Rigo Amezcua: drums
+Karlos Medina: bass
+Bruce Hall: vocals 
+
+
+### "Earth Under Lucifer (mini-CD)" 2003, Speed Metal
+
+EARTH UNDER LUCIFER (taken from Order of the Illuminati) 
+MAD LOCUST RISING (live 2003)
+UNSTOPPABLE FORCE (live 2003) 
+AGENTS OF STEEL (live 2003)
+
+Produced by: AGENT STEEL & Bernie Versailles 
+Mixed by: Rudy "psychopain"
+
+### "Alienigma" 2007, Thrash
+
+1. Fashioned From Dust 04:44  
+2. Wash the Planet Clean 05:25  
+3. Hail to the Chief 06:37  
+4. Wormwod 06:08  
+5. Liberty Lying Bleeding 04:59  
+6. Hybridized 06:06  
+7. Tiamats Fall 05:37  
+8. WPD 05:23  
+9. Lamb to the Slaughter 04:08  
+10. Extinct 03:53
+
 
 ## Отношения с другими группами
 

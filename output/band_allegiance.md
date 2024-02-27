@@ -1,8 +1,35 @@
 # Allegiance
 
-Дискография
-"Torn Between Two Worlds" 1992, Black Metal
-"Hymn Till Hangagud" 1996, Black Metal
+
+
+## Дискография
+
+### "Torn Between Two Worlds" 1992, Black Metal
+
+
+
+### "Hymn Till Hangagud" 1996, Black Metal
+
+1.  Hofdingadrapa
+2.  De Nordiska Lagren
+3.  The Third Raven
+4.  Himmelen Ramnar
+5.  The March Of Warlike Damned
+6.  Stridsfard
+7.  Spjutsangen
+
+All Songs Written By ALLEGIANCE.
+Produced By ALLEGIANCE & Dan Swano.
+Engineered By Dan Swano.
+Recorded At Unisound Studios.
+
+Par Thornell - Guitars, Vocals
+Bogge - Vocals, Guitars
+Mikael Almgren - Bass
+Fredrik Andersson - Drums
+
+(P)c 1996 NO FASHION Records
+
 
 ## Отношения с другими группами
 

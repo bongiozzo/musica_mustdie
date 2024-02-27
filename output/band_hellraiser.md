@@ -1,9 +1,29 @@
 # Hellraiser
 
-Дискография
-"We'll Bury You" 1990, Thrash
-"No Brain No Pain" 1994, Thrash
-"03" 1997, Heavy Metal
+
+
+## Дискография
+
+### "We'll Bury You" 1990, Thrash
+
+1.  Rockets In The Air
+2.  I Got A Power
+3.  Dark Side Of You
+4.  I Wanna Be Free
+5.  Danger Zone
+6.  Win The Battle
+7.  Snakes In The Kitchen
+
+(P)c 1990
+
+### "No Brain No Pain" 1994, Thrash
+
+
+
+### "03" 1997, Heavy Metal
+
+
+
 
 ## Отношения с другими группами
 

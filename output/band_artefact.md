@@ -1,7 +1,27 @@
 # Artefact
 
-Дискография
-"Son of Solstice" 2004, Death Metal
+
+
+## Дискография
+
+### "Son of Solstice" 2004, Death Metal
+
+1. Menhir 07:34  
+2. Antares / Son of Solstice 08:19  
+3. Oracle 01:36  
+4. Onslaught 04:11  
+5. Omen 05:59  
+6. Codex 01:12  
+7. Allegiance 08:22  
+8. Towers of Equinox 03:59
+
+
+Guillaume - guitar 
+Pascal - guitar
+Sebopathe - vocals
+Nicolas : drums
+Alexis : bass
+
 
 ## Отношения с другими группами
 

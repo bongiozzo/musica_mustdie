@@ -1,13 +1,46 @@
 # Firehouse
 
-Дискография
-"Firehouse" 1990, Glam
-"Hold You Fire" 1992, Glam
-"3" 1995, Glam
-"Good Acoustics" 1995, Glam
-"Category 5" 1998, Glam
-"O2" 2000, Glam
-"Prime Time" 2003, Glam
+Glam
+
+## Дискография
+
+### "Firehouse" 1990, Glam
+
+
+
+### "Hold You Fire" 1992, Glam
+
+
+
+### "3" 1995, Glam
+
+
+
+### "Good Acoustics" 1995, Glam
+
+
+
+### "Category 5" 1998, Glam
+
+
+
+### "O2" 2000, Glam
+
+1. Jumpin'
+2. Take It Off
+3. The Dark
+4. Don't Fade On Me
+5. I'd Rather Be Making Love
+6. What You Can Do
+7. I'm In Love This Time
+8. Unbelievable
+9. Loving You Is Paradise
+10. Call of the Night
+
+### "Prime Time" 2003, Glam
+
+
+
 
 ## Отношения с другими группами
 

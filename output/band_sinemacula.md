@@ -1,7 +1,13 @@
 # Sine Macula
 
-Дискография
-"Dark Idols" 2003, Gothic
+
+
+## Дискография
+
+### "Dark Idols" 2003, Gothic
+
+
+
 
 ## Отношения с другими группами
 

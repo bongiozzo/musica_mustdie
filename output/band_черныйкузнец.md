@@ -1,7 +1,17 @@
 # Черный Кузнец
 
-Дискография
-"Demo 05-06" 2006, Heavy Metal
+
+
+## Дискография
+
+### "Demo 05-06" 2006, Heavy Metal
+
+Preludia H-moll, op.5, ed.2    
+Иуда    
+Звезда    
+Черный Кузнец    
+Highway Star (live Deep Purple cover)
+
 
 ## Отношения с другими группами
 

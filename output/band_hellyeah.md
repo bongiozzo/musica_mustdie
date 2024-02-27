@@ -1,11 +1,39 @@
 # Hellyeah
 
-Дискография
-"Hellyeah" 2007, Nu Metal
-"Stampede" 2010, Nu Metal
-"Band Of Brothers " 2012, Nu Metal
-"Blood For Blood" 2014, Nu Metal
-"Undeniable" 2016, Nu Metal
+
+
+## Дискография
+
+### "Hellyeah" 2007, Nu Metal
+
+
+
+### "Stampede" 2010, Nu Metal
+
+
+
+### "Band Of Brothers " 2012, Nu Metal
+
+01. War In Me
+02. Band Of Brothers 
+03. Rage/Burn 
+04. Drink Drank Drunk
+05. Bigger God 
+06. Between You And Nowhere
+07. Call It
+08. Why Does It Always
+09. WM Free
+10. Dig Myself A Hole
+11. What It Takes To Be Me
+
+### "Blood For Blood" 2014, Nu Metal
+
+
+
+### "Undeniable" 2016, Nu Metal
+
+
+
 
 ## Отношения с другими группами
 

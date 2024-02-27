@@ -1,7 +1,24 @@
 # Balance Interruption
 
-Дискография
-"Era I: Nuclear War for Rescue" 2007, Black Metal
+
+
+## Дискография
+
+### "Era I: Nuclear War for Rescue" 2007, Black Metal
+
+1. Chornobyl	 
+2. Burn, Three-Faced	 
+3. Cold Front		 
+4. Formula	 
+5. Destroy it All	 
+6. Trade of Slaves	 
+7. Vital Mechanism	 
+8. Virus in System	 
+9. Space of Time	 
+10. Programming "G.O.D."		 
+11. Nucler War for Rescue	 
+12. Time of New Epoch
+
 
 ## Отношения с другими группами
 

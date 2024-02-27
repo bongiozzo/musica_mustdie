@@ -1,9 +1,62 @@
 # Bifrost
 
-Дискография
-"Pagan Reality" 1995, Death Doom
-"The Wildest Fire" 1996, Death Doom
-"Mythistory" 1998, Death Doom
+Pagan Death-Doom
+
+## Дискография
+
+### "Pagan Reality" 1995, Death Doom
+
+1. Fimbulwinter: A Tale of Hate 04:42 
+2. Bird of Prey 05:06
+3. My Ancestor, Now a Dark Woodspirit 03:07
+4. Pagan Reality 06:05
+5. Children of the Black Hill 03:19 
+6. My Lady of Winterfire 03:53 
+7. Battlelord Odinn (Father of Victories) 06:24 
+8. Choosers of the Slain 05:05 
+9. Lost Times, in Darkness Forgotten? 05:30 
+
+### "The Wildest Fire" 1996, Death Doom
+
+1.  The Dark In The Past
+2.  Heathen Apotheosis
+3.  I suffer In Silence
+4.  Blood In My Veins
+5.  Do I Decide Dreams ?
+6.  Beyond The Border Of Solitude...
+7.  Midwinter Celebration
+8.  The Midgard Drama
+9.  Eburonic Pride
+10.My Wicked Smile
+11.The Wildest Fire !
+12.The Bright In The Future
+
+Recorded and Mixed at Tercel Studio
+Produced and Engineered by BIFROST & John Bartels
+Band residence: Holland
+
+Guido Heijnens - Vocals
+Roger Hermans - Guitars
+Jean Winants - Guitars
+Rob Wendler - Bass, Backing vocals
+Sjoerd Rokx - Drums
+
+(P)c 1996 NAZGUL'S EYRIE PROD 011
+
+### "Mythistory" 1998, Death Doom
+
+1. Sacrifice (Intro) 01:42
+2. The Gods Lament 03:23
+3. You Fear My Kind (The Truth Divine) 04:21
+4. All Creation Wept... 05:17
+5. Soulbound Eternity 04:09
+6. The Dark Woodspirit 02:49
+7. In Nocturno Silencio 04:32
+8. Come...Burn with Me! 03:48
+9. We Dance 'till Dawn 04:35 
+10. Dreaming the Dark 04:47 
+11. Without Soulcontrol... 02:11 
+
 
 ## Отношения с другими группами
 

@@ -1,9 +1,52 @@
 # Xerath
 
-Дискография
-"I" 2009, Progressive
-"II" 2011, Progressive
-"III" 2014, Progressive
+
+
+## Дискография
+
+### "I" 2009, Progressive
+
+1. Intrenity  03:32   
+2. Alterra  02:48   
+3. Nocturnum  03:46   
+4. Consequences  04:28 
+5. Interlude  01:40  
+6. False History  03:47  
+7. Abiogenesis  05:54 
+8. Reform Part I  03:21 
+9. Reform Part II  04:35  
+10. Right to Exist  05:40 
+
+### "II" 2011, Progressive
+
+1. Unite to Defy  05:24   
+2. God of the Frontlines  04:37    
+3. Reform III  04:36    
+4. The Call to Arms  05:52    
+5. Machine Insurgency  04:55    
+6. Sworn to Sacrifice  04:44  
+7. Enemy Incited Armageddon  07:24    
+8. Nuclear Self Eradication  05:29
+9. Numbered Among the Dead  04:36    
+10. The Glorious Death  08:34 
+
+### "III" 2014, Progressive
+
+01. 2053
+02. Autonomous
+03. Bleed This Body Clean
+04. Death Defiant
+05. Demigod Doctrine
+06. I Hold Dominion
+07. I Hunt For The Weak
+08. Ironclad
+09. Passenger
+10. Sentinels
+11. The Chaos Reign
+12. Veil, Pt. 1
+13. Veil, Pt. 2
+14. Witness
+
 
 ## Отношения с другими группами
 

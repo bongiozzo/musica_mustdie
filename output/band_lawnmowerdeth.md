@@ -1,9 +1,113 @@
 # Lawnmower Deth
 
-Дискография
-"Ooh Crikey It's ... + LIVE'91" 1991, Hardcore
-"Return Of The Fabulous Metal Bozo Clowns" 1992, Hardcore
-"Billy" 1993, Hardcore
+High Class Hardcore
+
+## Дискография
+
+### "Ooh Crikey It's ... + LIVE'91" 1991, Hardcore
+
+1. Spook Perv Happening In The Snooker Hall
+2. Betty Ford's Clinic
+3. Weebles Wobble But They Don't Fall Down
+4. Sheepdip
+5. Lancer With Your Zancer
+6. Can I Cultivate Your Groinal Garden ?
+7. Flying Killer Cobs From The Planet Bob
+8. Did You Spill My Pint ?
+9. Seventh Church Of The Apocalyptic Lawnmower
+10.Rad Dude
+11.Sumo Rabbit And His Inescarable Trap Of Doom
+12.Maim Mower Maim
+13.Cobwoman Of Deth Meets
+14.Go No Legs ? Don't Come Crawling To Me
+15.Icky Ficky
+16.Judgement Day (Assume The Position)
+17.Ooh Crikey
+18.Satan's Trampoline
+19.Dodo Doe
+20.Duck Off
+21.F.A.T. (Facist And Tubby)
+22.Punk As Fuck
+23.Sharp Fucka Blades Of Hades
+24.Motorhead*
+25.Stress
+
+ Qualcast Mutilator - Vocals
+ Concorde Face Ripper - Guitars
+ Scitzophrenic Rotary Sprintmaster - Guitars
+ Mightymo Destructimo - Bass
+ Mr. Flymo - Drums
+
+Produced By LAWNMOWER DETH, Harris
+Engineered By Steve "Stilly" Harris
+All Music By LAWNMOWER DETH, Except * By MOTORHEAD
+
+(p)&(c) 1990 EARACHE Records
+
+### "Return Of The Fabulous Metal Bozo Clowns" 1992, Hardcore
+
+1. Return Of The Fabulous Metal Bozo Clowns
+2. Jaggered Wedge
+3. Bad Toad
+4. Feetcleaner
+5. Drunk In Charge Of An Ugly Face
+6. Paranoid Polaroid
+7. Frash For Cash
+8. Crazy Horses
+9. Enter Mr. Formica (Icky Ficky Pt. II)
+10.Lawnmowers For Heroes, Comics For Zeros
+11.Urban Suffer 125
+12.A Is For Asswipe
+13.Sorrow (So Dark, So Scared)
+14.Goldfish Podge
+15.R.F. Potts
+16.Wormy Eyes
+17.Be Scene, Not Heard
+18.Egg Sandwich
+19.Anyone For Tinnies
+20.King Of The Pharaons
+21.Illinois Enema Bandit
+22. Fookin' Moo Vit
+
+ Qualcast "Koffee"Mutilator - Vocals
+ Concord Face Ripper  - Guitar
+ Baron Kev Von Thrash Meister Silo Stench Chisel Marbels - Guitar
+ Mightymo Destructimo - Bass
+ Explodin' Dr. Jaggers Flymo - Drums
+
+Produced By Steve Harris & LAWNMOWER DETH
+Engineered By Steve Harris
+Recorded At Sawmills Studio, Cornwall
+
+(p)&(c) 1992 EARACHE Records
+
+### "Billy" 1993, Hardcore
+
+1. Somebody, Call Me A Taxi
+2. Billy
+3. I Need To Be Your Main Squeeze
+4. Do You Wanna Be A Chuffed Core
+5. Buddy Holly Never Wrote A Song Called We're Too Punk
+6. Up The Junction
+7. If It Was Black You'd Say It's Black
+8. Stomachgout
+9. I Narcissus
+10.Kids In America (93)
+11.March Of The Dweebs
+12.A Funny Thing About It Is
+13.Purple Haze
+
+ Christ - Drums
+ Steve - Guitar
+ Pete - Vocals
+ Kev - Guitar
+ Chris - Bass
+
+Produced & Engineered By Steve Harris
+Recorded & Mixed At Windings Studio, Wales In July 1993
+
+(p)&(c) 1993 EARACHE Records
+
 
 ## Отношения с другими группами
 

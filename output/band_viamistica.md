@@ -1,8 +1,40 @@
 # Via Mistica
 
-Дискография
-"Testamentum (In Hora Mortis Nostre)" 2003, Gothic
-"Fallen Angels" 2004, Gothic
+
+
+## Дискография
+
+### "Testamentum (In Hora Mortis Nostre)" 2003, Gothic
+
+1. In Hora Mortis Nostre (intro)
+2. I Would Die - trilogy
+- The Deepest Sadness
+- Ocean of Tears
+- Endless Sorrow 
+3. Sacred Whisper 
+4. Valley of Fear 
+5. Lost Desires
+6. Blaze
+7. Eternal
+8.When I Die
+9. One Bridge Too Far
+10. Gold Dust 
+11. In Hora Mortis Nostre (outro) 
+
+### "Fallen Angels" 2004, Gothic
+
+Angel Of Destiny 
+Aristea 
+Edge Of Darkness 
+Fallen Angels 
+Deadly Lullaby 
+Two Voices 
+Poison 
+Pray For Strength 
+The Miracle 
+Rise Of Resurrection 
+Upadіe Anioіy (polish version)
+
 
 ## Отношения с другими группами
 

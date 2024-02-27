@@ -1,8 +1,51 @@
 # Inishmore
 
-Дискография
-"The Final Dance" 2000, Power Metal
-"Theatre Of My Life" 2001, Power Metal
+power-metal
+
+## Дискография
+
+### "The Final Dance" 2000, Power Metal
+
+
+
+### "Theatre Of My Life" 2001, Power Metal
+
+01. WELCOME TO THE THEATRE
+02. THE RAVENS EYE
+03. BURN IT DOWN
+04. REVOLUTION
+05. I CANT CRY
+06. LOST
+07. WHEN HEAVEN'S CALLING YOU
+08. GONE
+09. FAREWELL
+
+THE TEATRE OF MY LIFE:
+
+10. ACT I : THE SIGN
+11. ACT II: THEATRE OF MY LIFE
+12. ACT III: FALLING DOWN
+
+Ramin Danzer - Vocals
+Fabian Niggemeier - Guitars
+Pascal Gysi - Keyboards
+Daniel Novosel - Bass
+Jonas Danzer - Drums
+
+Additional guitars on Track 3,6 and 7 by Reto
+Mohler
+Female vocals on "Gone" by: Linda Kratky
+The idea to the lyrics of "The Ravens Eye" and
+"Lost" by Elia Itin
+Recorded mixed and mastered at: Gallus tonstudio
+St. gallen March and April 2001
+Recorded and mixed by Gogs Andrighetto
+Mastered by: Jowi Widmer
+Cover artwork by: Jean-Jacques Graf
+Drawings in booklet by: Daniela Holdener
+Logo and written character by: Ramin Danzer
+Pictures by Ronald Rutishauser
+
 
 ## Отношения с другими группами
 

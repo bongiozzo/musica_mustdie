@@ -1,7 +1,29 @@
 # Lavra
 
-Дискография
-"Bluenothing" 1996, Gothic
+Atmospheric-Gothic-Doom a-la Decoryah
+
+## Дискография
+
+### "Bluenothing" 1996, Gothic
+
+1. Strange Lands
+2. To Elide Something
+3. Yesterday It Was Silent
+4. From The Suction Of Blue
+5. E Minor
+6. Never
+
+All songs written by LAVRA
+Produced and mixed by J.Sillanpaa and J.Sukanen
+Recorded at S'Hole and U96
+
+Joonas Sukanen - Guitar, Keyboards, Vocals
+Jukka Sillanpaa - Guitar, Voices
+Mikko Lappalainen - Drums
+Toni Rakkolainen - Bass
+
+ (p)(c) 1996 DEMONOSOUND Records
+
 
 ## Отношения с другими группами
 

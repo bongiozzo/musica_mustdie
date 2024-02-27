@@ -1,9 +1,50 @@
 # Hidden
 
-Дискография
-"Spectral Magnitude" 2002, Death Metal
-"Alexisstar Morphalite" 2005, Death Metal
-"Dead Land Energy" 2011, Death Metal
+
+
+## Дискография
+
+### "Spectral Magnitude" 2002, Death Metal
+
+1.	 Hidden (Unknown and Nameless)
+2.	 Formation of the Universe
+3.	 Ice Crust of Yek
+4.	 Geochemical Primates
+5.	 Time As Eternity in the Cosmos
+6.	 A Bounded Span of Time
+7.	 Macronucleus Chromosome	 
+8.	 Spectral Magnitude
+9.	 Supercluster
+
+### "Alexisstar Morphalite" 2005, Death Metal
+
+1.	 Introduction	02:03	 
+2.	 Interferometer	04:40	 
+3.	 Hydrodynamic Physics	02:37	 
+4.	 Infinity Express	03:27	 
+5.	 Deathstar Omega	03:43	 
+6.	 The Search for Where Life May Have Existed	01:59	 
+7.	 Interplanetary Space Physics and Climatology	02:56	 
+8.	 Ripples in Time	04:44	 
+9.	 Planets of Metal	04:16	 
+10.	 Extraterrestrial Illusions	04:38
+
+### "Dead Land Energy" 2011, Death Metal
+
+1.	 Out of Control	02:38	 
+2.	 Dead Land Energy	03:26	 
+3.	 Humanjunk	03:04	 
+4.	 Archaic Wasteland	02:51	 
+5.	 Starboard Pandemic	02:43	 
+6.	 Giganormous	03:58	 
+7.	 Hydrazine Plasma	02:42	 
+8.	 Shorelines Pound	03:12	 
+9.	 Prehistoric Impact	03:20	 
+10.	 No Purpose	02:48	 
+11.	 Gone South	04:20	 
+12.	 Enormous Hazardous	05:21	 
+13.	 Vaporization of the Behemoth	03:15	
+
 
 ## Отношения с другими группами
 

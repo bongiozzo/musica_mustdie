@@ -1,7 +1,30 @@
 # Demonaz
 
-Дискография
-"March Of The Norse" 2011, Black Metal
+
+
+## Дискография
+
+### "March Of The Norse" 2011, Black Metal
+
+01. Northern Hymn 00:50 
+02. All Blackened Sky 04:27 
+03. March of the Norse 03:40 
+04. A Son of the Sword 04:35 
+05. Where Gods Once Rode 05:11 
+06. Under the Great Fires 06:33 
+07. Over the Mountains 05:06 
+08. Ode to Battle 00:39 
+09. Legends of Fire and Ice 04:23 
+10. Dying Sun (Bonus Track) 04:03
+
+
+Music and Lyrics by Demonaz
+
+Demonaz - Vocals (Immortal (Nor))
+Abbath - Bass (Amputation (Nor), Immortal (Nor), Det Hedenske Folk, Old Funeral, I, Satanel (Nor))
+Ice Dale - Guitars (Enslaved (Nor), Trinacria, Malignant Eternal, Audrey Horne, I, Bourbon Flame, Ov Hell)
+Armagedda - Drums (Amputation (Nor), I, Immortal (Nor)) 
+
 
 ## Отношения с другими группами
 

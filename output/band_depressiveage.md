@@ -1,10 +1,113 @@
 # Depressive Age
 
-Дискография
-"First Depression" 1992, Thrash
-"Lying In Wait" 1993, Thrash
-"Symbols For The Blue Times" 1994, Thrash
-"Electric Scum" 1996, Thrash
+
+
+## Дискография
+
+### "First Depression" 1992, Thrash
+
+1. Awaits 
+2. Beyond Illusions 
+3. The Light 
+4. No Risk 
+5. Autumn Times 
+6. Transition 
+7. Innocent In Detention 
+8. Never Be Blind 
+9. Circles Colour Red
+
+Recorded & Mixed at 2Music Lab
+Studios.
+Produced by Harris Johns.
+
+Jan Lubitzki - Vocals
+Jochen Klemp - Guitars
+Ingo Grigoleit - Guitars
+Tim Schallenberg - Bass
+Norbert Drescher - Drums
+
+(P)&(C) 1992 GUN Rec / GUN 011
+
+### "Lying In Wait" 1993, Thrash
+
+1. Lying In Wait 
+2. Where 
+3. Way Out 
+4. Berlin 
+5. Psycho Circle Game 
+6. The Story (Autumn Times II)
+8. My Wine 
+9. From Out Of Future 
+10.Hateful Pride 
+11.Eternal Twins
+
+Recorded & Mixed At Music Lab Studios.
+Produced by Harris Johns and
+DEPRESSIVE AGE
+
+Jan Lubitzlki - Vocals
+Jochen Klemp - Guitars
+Ingo Grigoleit - Guitars
+Tim Schallenberg - Bass
+Norbert Drescher - Drums
+
+(P)&(C) 1993 GUN Rec // GUN 020
+
+### "Symbols For The Blue Times" 1994, Thrash
+
+1. Hills Of The Thrills 
+2. World In Veins 
+3. Garbage Canyons 
+4. Hut 
+5. Subway Tree 
+6. Port Graveyard 
+7. We Hate Happy Ends 
+8. Friend Within 
+9. Neptune Roars 
+10.Sorry Mr.Pain 
+11.Rusty Cells 
+12.Mother Salvation
+
+Recorded and Mixed at Preussenton
+Studios.
+Produced by DEPRESSIVE AGE and
+Gerdi Gerhardt.
+Engineered by Gerdi Gerhardt.
+
+Jan Lubitzki - Vocal
+Jochen Klemp - Guitars
+Ingo Grigoleit - Guitars
+Tim Schallenberg - Bass
+Norbert Drescher - Drums
+
+(P)&(C) 1994 GUN Records / GUN 047
+
+### "Electric Scum" 1996, Thrash
+
+1.  Electric Scum
+2.  Cairo Crabat
+3.  Remember 
+4.  Teenage Temples 
+5.  Small Town Boy  
+6.  Featherflute
+7.  Toyland Hills
+8.  Companero Song
+9.  New Machine Wisdom
+10.Polar Athletic Son
+11.Weird Boy
+12.Sport Yells
+
+Produced by DA and Ronald Prent.
+Engineered by Peter "Sobi" Sobisiak.
+Mixed by Ronald Prent.
+
+Jan Lubitzki - Vocals
+Jochen Klemp - Guitars
+Tim Schallenberg - Bass
+Norbert Drescher - Drums
+
+(P)(C) 1996 GUN Records // GUN  111
+
 
 ## Отношения с другими группами
 

@@ -1,9 +1,44 @@
 # Dictator
 
-Дискография
-"Birth of Virgin Feelings" 2003, Black Metal
-"Moving Inward Us" 2007, Black Metal
-"Stay Brutal, Baby" 2012, Black Metal
+
+
+## Дискография
+
+### "Birth of Virgin Feelings" 2003, Black Metal
+
+1. The Light of Lost Souls
+2. Guimplen
+3. Impat
+4. Volt
+5. Funeral of Vait
+6. Silent Loneless	 
+7. Fataly
+
+### "Moving Inward Us" 2007, Black Metal
+
+1. Dictator	04:55	 
+2. Satan Firewall	03:39	 
+3. Blasphemy War	01:28	 
+4. Helen	03:23	 
+5. Anhell	05:49	 
+6. Hate Front	05:17	 
+7. Darkthrone	04:57	 
+8. Mysanthropic Star	04:47	
+
+### "Stay Brutal, Baby" 2012, Black Metal
+
+1. Intro	02:04	 
+2. Ba’al	02:52	 
+3. Underground	03:59	 
+4. Evil	04:39	 
+5. My Little Pride	04:01	 
+6. Hymn of Golden Sun	04:05	 
+7. I Beseech You To Die	02:28	 
+8. Stay Brutal, Baby	05:02	 
+9. In Hell	04:24	 
+10. Cold	04:27	 
+11. I Hate You All	02:26
+
 
 ## Отношения с другими группами
 

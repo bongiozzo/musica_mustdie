@@ -1,7 +1,13 @@
 # Mucubelching Beats
 
-Дискография
-"The allstarproject…" 2002, Thrash
+
+
+## Дискография
+
+### "The allstarproject…" 2002, Thrash
+
+
+
 
 ## Отношения с другими группами
 

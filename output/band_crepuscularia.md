@@ -1,7 +1,18 @@
 # Crepuscularia
 
-Дискография
-"Buried And Forgotten" 2005, Doom
+raw doom
+
+## Дискография
+
+### "Buried And Forgotten" 2005, Doom
+
+1. Empty World
+2. Dirge
+3. Listopad
+4. Enthroned Silence
+5. Buried And Forgotten
+6. Lovelorn Rhapsody / They Die
+
 
 ## Отношения с другими группами
 

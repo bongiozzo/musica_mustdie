@@ -1,11 +1,127 @@
 # Gary Hughes
 
-Дискография
-"Gary Hughes" 1992, Hard Rock
-"Gary Hughes (remastered)" 1997, Hard Rock
-"Precious Ones" 1998, Hard Rock
-"Once And Future King - Part 1" 2003, Hard Rock
-"Once And Future King - Part 2" 2003, Hard Rock
+Melodic Hard/AOR
+
+## Дискография
+
+### "Gary Hughes" 1992, Hard Rock
+
+1. THIS THING OF BEAUTY
+2. SEDUCER
+3. I WON'T BREAK YOUR HEART
+4. BLONDE ANGEL
+5. SUSPENDERED ANIMATION
+6. IT MUST BE LOVE
+7. TILL THE RIVER RUNS DRY
+8. WRECKING MACHINE
+9. CRIMINAL
+10. WE WALK WITH ANGELS
+11. RENEGADE
+
+
+### "Gary Hughes (remastered)" 1997, Hard Rock
+
+1. THIS THING OF BEAUTY
+2. SEDUCER
+3. I WON'T BREAK YOUR HEART
+4. BLONDE ANGEL '93
+5. SUSPENDERED ANIMATION
+6. IT MUST BE LOVE
+7. TILL THE RIVER RUNS DRY
+8. WRECKING MACHINE
+9. CRIMINAL
+10. WE WALK WITH ANGELS
+11. RENEGADE
+12. LOVE AT THE RAIN (BONUS TRACK)
+
+
+### "Precious Ones" 1998, Hard Rock
+
+1. IN YOUR EYES
+2. DON'T EVER SAY GOODBYE
+3. THE COLOURS OF MY LIFE
+4. GIVE MY LOVE A TRY
+5. DIVIDED WE FALL
+6. THE NIGHT THE LOVE DIED
+7. FIRST LIGHT (INSTRUMENTAL)
+8. WRECKING MACHINE
+9. PERFECT TEN
+10. THIS TIME
+11. HEART OF A WOMAN
+12. PRECIOUS ONES
+
+
+### "Once And Future King - Part 1" 2003, Hard Rock
+
+1. Excalibur 
+2. Dragon Island Cathedral 
+3. At The End Of The Day 
+4. The Reason Why 
+5. Shapeshifter 
+6. King For A Day 
+7. Avalon 
+8. Sinner 
+9. In Flames 
+10. Lies  
+
+
+
+Damian Wilson (Prologue Narrator)
+Gary Hughes (Arthur)
+Lana Lane (Guinevere)
+Danny Vaughn (Lancelot)
+Irene Jansen (Morgana)
+Bob Catley (Merlin)
+Sean Harris (Galahad)
+
+  
+Produced by Gary Hughes
+
+Gary Hughes: Guitar, Piano, Keyboards
+Arjen Lucassen: Keyboards intro "Excalibur"
+Chris Francis: lead guitars
+John Halliwell: guitars
+Greg Morgan: drums
+Steve McKenna: bass
+Paul Hodson: keyboards
+Graham Woodcock (The Quest): additional keyboards
+ 
+
+### "Once And Future King - Part 2" 2003, Hard Rock
+
+1. Kill The King 
+2. There By The Grace Of The Gods 
+3. I Still Love You 
+4. Oceans Of Tears 
+5. Rise From The Shadows 
+6. Believe Enough To Fight 
+7. The Hard Way 
+8. The Pagan Dream 
+9. Demon Down 
+10. Deius 
+11. Without You 
+12. Once And Future King 
+
+
+DC Cooper (King Aelle)
+Sabine Edelsbacher (Nimue)
+Dougie White (Mordred)
+Harry Hess (Epilogue Narrator)
+Gary Hughes (Arthur)
+Lana Lane (Guinevere)
+Irene Jansen (Morgana)
+Bob Catley (Merlin)
+Sean Harris (Galahad)
+
+
+Gary Hughes: Guitar, Piano, Keyboards
+Chris Francis: lead guitars
+John Halliwell: guitars
+Greg Morgan: drums
+Steve McKenna: bass
+Paul Hodson: keyboards
+
+
 
 ## Отношения с другими группами
 

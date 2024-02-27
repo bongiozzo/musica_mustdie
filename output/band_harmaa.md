@@ -1,7 +1,21 @@
 # Harmaa
 
-Дискография
-"Airut Aamujen" 2005, Folk
+post-doom
+
+## Дискография
+
+### "Airut Aamujen" 2005, Folk
+
+01. Saapuminen
+02. Seitsensarvi
+03. Lavitseni Kaikkeen
+04. Luopumisen Laulu
+05. Kuvajainen
+06. Oikea Sointi
+07. Kahluu
+08. Hiensynty
+09. Lahelta
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,22 @@
 # Seven Seraphim
 
-Дискография
-"Believe In Angels" 2003, Progressive
+
+
+## Дискография
+
+### "Believe In Angels" 2003, Progressive
+
+1. Atmosphere Collide
+2. Anastasia
+3. Lady Jade
+4. Song Blaque
+5.Dance In The Red 
+6. The Discordant
+7. The Rain Keeps Falling (Thru Rose Coloured Glass)
+8. Cyanide By Moonlight
+9. The Hand That Feeds
+10.  A Prayer For The Innocents
+
 
 ## Отношения с другими группами
 

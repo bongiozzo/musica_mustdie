@@ -1,14 +1,170 @@
 # Mercenary
 
-Дискография
-"Supremacy" 1996, Melodic Death Metal
-"First Breath" 1998, Melodic Death Metal
-"Everblack" 2002, Melodic Death Metal
-"11 Dreams" 2004, Melodic Death Metal
-"The Hours That Remain" 2006, Melodic Death Metal
-"Architect of Lies" 2008, Melodic Death Metal
-"Metamorphosis" 2011, Melodic Death Metal
-"Through Our Darkest Days" 2013, Melodic Death Metal
+
+
+## Дискография
+
+### "Supremacy" 1996, Melodic Death Metal
+
+1. Supremacy 05:21 
+2. Hour of Grief / Majestic Virtue of Silence 05:14
+3. One-Eyed Beast 05:03  
+4. Premature Burial 05:09 
+
+
+1-2 recorded & mixed at Darkside Studio, January 1996.
+Produced, engineered and mixed by Jacob Hansen
+
+3-4 recorded & mixed at Borsing Recordings, sometime in the 90's
+Pruduced and engineered by Bo Sommer
+
+
+Rasmus Jakobsen: drum-artilley
+Nikolai Brinkmann: lead-uzi
+Kral: pumpgun & death commands
+Jakob Mшlbjerg: rhythm-cannon
+
+### "First Breath" 1998, Melodic Death Metal
+
+1. Symbiotic 04:11
+2. World Wide Weep 04:41 
+3. Horizon 08:00
+4. Master Game 05:06  
+5. Perceptive 06:26 
+6. Graveart 04:24
+7. Next to Nothing 03:45  
+8. Demon8 06:48 
+9. Watching Me 04:38
+10. Alternative Ways 03:52
+11. Sister Jane 05:54 
+12. Supremacy (Bonus Track) 05:21 
+
+
+
+Nikolai Brinkmann: leadguitar
+Jakob Mшlbjerg: guitar
+Henrik "Kral" Andersen: vocals & bass
+Rasmus Jakobsen: drums & percussion
+
+Irene Poulsen: vocals on 3 & 11
+Jakob Sivsgеrd: keyboards on 3 & 8
+
+Recorded at Aabenraa Studio, Denmark
+Produced by Jacob Hansen & Mercenary
+Engineered by Jacob Hansen
+Mixed by Jacob Hansen & Krжn Meier
+
+### "Everblack" 2002, Melodic Death Metal
+
+1. Intro 00:32  
+2. Everblack 04:50 
+3. Seize the Night 06:39
+4. Screaming from the Heavens 06:55 
+5. Dead.com 05:42
+6. Darkspeed 04:50 
+7. Bloodrush 06:30 
+8. A Darker Shade of Black 05:02
+9. Bulletblues 02:48 
+10. Rescue Me 05:05 
+11. Alliance 03:05 
+12. Nothing's What It Seems (Outro) 01:41 
+
+
+
+Jakob: guitars
+Mikkel: high-pitch vocals
+Kral: shouts, growls 'n' scream, bass
+Morten: keyboards
+Rasmus drums
+Signar: leadguitar
+
+Recorded at Aabenraa Studio, denmark. 2000-2001
+Produce, engineered, mixed and mastered by Jacob Hansen
+
+### "11 Dreams" 2004, Melodic Death Metal
+
+01. Into the Sea of Dark Desires (1:05)
+02. World Hate Center (4:59)
+03. 11 Dreams (6:51)
+04. reDestructDead (5:47)
+05. Firesoul (7:36)
+06. Sharpen the Edges (5:35)
+07. Supremacy v2.0 (8:12)
+08. Music Non Stop (4:12)
+09. Falling (6:56)
+10. Times without Changes (2:58)
+11. Loneliness (7:38)
+
+
+Recorded at Lund and Hansen Studios
+Produced, engineered & mixed by Jacob Hansen
+
+Mikkel Sandager: vocals
+Kral: vocals & bass
+Jakob Mшlbjerg: guitars
+Martin Buus:lead guitars
+Morten Sandager: keys
+Mike Park: drums
+
+Monika Pedersen: additional vocals on 5 and 9
+Jacob Hansen: backing vocals on 6
+Ziggy: backing vocals on 6
+
+Bonus tracks on US version:
+12: 11 Dreams [3-D mix] (6:51)
+13: 11 Dreams [radio edit] (3:37
+
+### "The Hours That Remain" 2006, Melodic Death Metal
+
+1. Redefine Me 06:06  
+2. Year Of The Plague 05:29  
+3. My World Is Ending 05:26  
+4. This Eternal Instant 06:10  
+5. Lost Reality 08:02  
+6. Soul Decision 05:03  
+7. Simplicity Demand 06:35  
+8. Obscure Indiscretion 04:46  
+9. My Secret Window 06:29  
+10. The Hours That Remain 08:07
+
+### "Architect of Lies" 2008, Melodic Death Metal
+
+1. New Desire 04:57  
+2. Bloodsong 04:47  
+3. Embrace The Nothing 04:51  
+4. This Black And Endless Never 05:40  
+5. Isolation (The Loneliness in December) 06:03  
+6. The Endless Fall 05:08  
+7. Black and Hollow 04:50  
+8. Execution Style 05:50  
+9. I Am Lies 05:43  
+10. Public Failure Number One 05:00
+
+### "Metamorphosis" 2011, Melodic Death Metal
+
+1. Through the Eyes of the Devil 05:11  
+2. The Follower 04:37  
+3. In a River of Madness 05:59  
+4. Memoria 05:42  
+5. Velvet Lies 06:52  
+6. In Bloodred Shades 04:39  
+7. Shades of Grey 05:34  
+8. On the Edge of Sanity 04:22  
+9. The Black Brigade 05:44 
+
+
+### "Through Our Darkest Days" 2013, Melodic Death Metal
+
+1. A New Dawn	05:14
+2. Welcome the Sickness	05:17
+3. Through Our Darkest Days	04:39
+4. Dreamstate Machine	05:34
+5. A Moment of Clarity	05:01
+6. Beyond This Night	05:44
+7. Starving Eyes	05:13
+8. Generation Hate	04:50
+9. Forever the Unknown	06:31
+
 
 ## Отношения с другими группами
 

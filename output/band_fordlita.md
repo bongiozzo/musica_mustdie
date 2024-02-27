@@ -1,10 +1,78 @@
 # Ford, Lita
 
-Дискография
-"Out For The Blood" 1983, Hard Rock
-"Stiletto" 1990, Hard Rock
-"Dangerous Curves" 1991, Hard Rock
-"Black" 1995, Hard Rock
+
+
+## Дискография
+
+### "Out For The Blood" 1983, Hard Rock
+
+1.  Out For The Blood
+2.  Stay With Me Baby
+3.  Just A Feeling
+4.  Ready, Willing And Able
+5.  Die For Me Only (Black Window)
+6.  Rock'N'Roll Made Me What I Am Today
+7.  If You Can't Live With It
+8.  On The Run
+9.  Any Way That You Want Me
+10.  I Can't Stand It
+
+Neil Merryweather - Bass, Vocals
+Lita Ford - Guitars, Vocals
+Dusty Watson - Drums, Vocals
+
+(P)c 1983
+
+### "Stiletto" 1990, Hard Rock
+
+1.  You Wake Up Call
+2.  Hungry
+3.  Dediction
+4.  Stiletto
+5.  Lisa
+6.  The Ripper
+7.  Big Gun
+8.  Only Women Bleed
+9.  Bad Boy
+10.  Aces & Eights
+11.  Cherry Red
+12.  Outro
+
+(P)c1990
+
+### "Dangerous Curves" 1991, Hard Rock
+
+1.  Larger Than Life
+2.  What Do Ya Know About Love
+3.  Shot Of Poison
+4.  Bad Love
+5.  Playin' With Fire
+6.  Hellbound Train
+7.  Black Widow
+8.  Little Too Early
+9.  Holy Man
+10.  Tambourine Dream
+11.  Little Black Spider
+
+(P)c 1991
+
+### "Black" 1995, Hard Rock
+
+1.  Black
+2.  Fall
+3.  Loverman
+4.  Killin' Kind
+5.  Hammerhead
+6.  Boilin' Point
+7.  Where Will I Find My Tonight
+8.  War Of The Angels
+9.  Joe
+10.  White Lightnin'
+11.  Smokin' Toads
+12.  Spider Monkey
+
+(P)c 1995
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,27 @@
 # (Sic)monic
 
-Дискография
-"Look To The Skies" 2006, Progressive
-"Somnambulist" 2009, Progressive
+
+
+## Дискография
+
+### "Look To The Skies" 2006, Progressive
+
+
+
+### "Somnambulist" 2009, Progressive
+
+1. To the Fiendz...
+2. Till the Morning Light
+3. Somnambulist
+4. Illumination
+5. Of Blood and Grace
+6. Requiem
+7. Oxygen
+8 . No Conscience
+9. Just How Far Down Do You Want to Go?
+10. Paradiseum
+11. Acidic Epiphanies
+
 
 ## Отношения с другими группами
 

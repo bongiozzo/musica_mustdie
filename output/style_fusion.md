@@ -57,20 +57,15 @@
 Стиль: Fusion
 Год: 1986
 
-Группа: Richie Kotzen
-Альбом: "The Inner Galactic Fusion Experience"
-Стиль: Fusion
-Год: 1995
-
 Группа: Matalex
 Альбом: "Wild Indian Summer"
 Стиль: Fusion
 Год: 1995
 
-Группа: Without Face
-Альбом: "Deep Inside"
+Группа: Richie Kotzen
+Альбом: "The Inner Galactic Fusion Experience"
 Стиль: Fusion
-Год: 2000
+Год: 1995
 
 Группа: Richie Kotzen
 Альбом: "Wave of Emotion"
@@ -78,9 +73,9 @@
 Год: 2000
 
 Группа: Without Face
-Альбом: "Astronomicon"
+Альбом: "Deep Inside"
 Стиль: Fusion
-Год: 2002
+Год: 2000
 
 Группа: Bowes & Morley
 Альбом: "Moving Swiftly Along"
@@ -92,18 +87,23 @@
 Стиль: Fusion
 Год: 2002
 
+Группа: Without Face
+Альбом: "Astronomicon"
+Стиль: Fusion
+Год: 2002
+
 Группа: Alexander Kostarev Group
 Альбом: "Live@InProg"
 Стиль: Fusion
 Год: 2003
 
-Группа: OHM
-Альбом: "Live On The K P F K"
+Группа: Bowes & Morley
+Альбом: "Mo's Barbeque"
 Стиль: Fusion
 Год: 2004
 
-Группа: Bowes & Morley
-Альбом: "Mo's Barbeque"
+Группа: OHM
+Альбом: "Live On The K P F K"
 Стиль: Fusion
 Год: 2004
 

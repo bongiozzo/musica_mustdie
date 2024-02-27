@@ -1,8 +1,42 @@
 # Voodoo Hill
 
-Дискография
-"Voodoo Hill" 2000, Hard Rock
-"Wild Seed Of Mother Earth" 2004, Hard Rock
+hard rock
+
+## Дискография
+
+### "Voodoo Hill" 2000, Hard Rock
+
+Disconnected 
+Golden One
+Spun In Lost Wages
+24 
+Keep It To Yourself
+Sensitive
+Voodoo Hill
+Black Leather
+Just Another Monday
+The Gypsy
+
+### "Wild Seed Of Mother Earth" 2004, Hard Rock
+
+1. Make believe
+2. Dying to live
+3. Still evergreen
+4. Atmosphere
+5. Wild seed of mother earth
+6. My eyes don’t see it
+7. Can’t stop falling
+8. Nothing stays the same
+9. Soul protector
+10. She cast no shadow
+11. 16 guns
+
+Dario Mollo (guitar) 
+Glenn Hughes (vocals) 
+Roberto Gualdi (drums) 
+Dario Patti (keyboards) 
+Fulvio Gaslini (bass)
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,39 @@
 # Callejon
 
-Дискография
-"Zombieactionhauptquartier" 2008, Metalcore
+
+
+## Дискография
+
+### "Zombieactionhauptquartier" 2008, Metalcore
+
+01. ZAHQ (Intro)
+02. Zombiefied
+03. Spiel Mir Das Lied Vom Sterben
+04. Und wenn der Schnee…
+05. Mein Puls = 0
+06. Tanz Der Teufel
+07. Phantomschmerz
+08. Quarantane
+09. Infiziert
+10. Der Tag an dem die Schwarze blieb
+11. Fremdkorper
+12. Das Ende von John Wayne
+13. Porn From Spain
+
+Bastian Sobtzick - vocals
+Bernhard Horn - Guitar
+Bodo Stricker - Drums
+Thomas Buschhausen - Guitar
+Thorsten Becker - Bass
+
+Written and composed by Callejon
+Lyrics by Bastian Sobrickand, Nico Seyfrid
+Produced & mixed by Eike Freese & Callejon at Eikey-Studios Hamburg.
+Additional keyboards programming arrangements by Eike Freese & Callejon
+Additional vocals on "Tanz Der Teufel" by Eike Freese
+Artdirection & illustrations by Bastian Sobrick
+Photos by Bastian Sobrick & Amelie Scheibling
+
 
 ## Отношения с другими группами
 

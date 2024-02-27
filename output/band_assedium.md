@@ -1,8 +1,35 @@
 # Assedium
 
-Дискография
-"Rise of the Warlords" 2006, Heavy Metal
-"Fighting for the Flame" 2008, Heavy Metal
+
+
+## Дискография
+
+### "Rise of the Warlords" 2006, Heavy Metal
+
+1. Ancestral
+2. Sacred Vengeance
+3. Messenger of Chaos
+4. Cimmerian Steel
+5. Under the Black Stars
+6. Swordance	 
+7. March of the Hoplite
+8. Imperial Dream
+9. Thirst for Glory
+10. Legions of the Underworld
+
+### "Fighting for the Flame" 2008, Heavy Metal
+
+1. Winter Is Coming	 
+2. The Flame	 
+3. Ivanhoe - The Knight Errant	 
+4. Primal Rage	 
+5. White Godess	 
+6. Desecration	 
+7. Romanitas	 
+8. Achaean Glory	 
+9. Osiris	 
+10. Where Seawolves Dare
+
 
 ## Отношения с другими группами
 

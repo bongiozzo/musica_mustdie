@@ -1,7 +1,13 @@
 # Imperious Malevolence
 
-Дискография
-"Hatecrowded" 2002, Death Metal
+brutal death from Brazil
+
+## Дискография
+
+### "Hatecrowded" 2002, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

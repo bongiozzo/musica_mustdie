@@ -1,8 +1,50 @@
 # Misteltein
 
-Дискография
-"Rape the Rapture" 2000, Black Metal
-"Divine. Desecrate. Complete" 2001, Black Metal
+black metal from sweden
+
+## Дискография
+
+### "Rape the Rapture" 2000, Black Metal
+
+1. Darkness Scars My Soul
+2. Twilight's Sigh
+3. Autumns Misty Might
+4. Nevercoming
+5. The Fire in My Eyes
+6. Inquisition of the Bleeding God
+7. Hymn of a Timeless Being
+8. Dusk Rising 
+9. Silvertears
+
+
+LINE-UP
+Seron - Deflowered Angelcries,
+Nagrinn - Lead Abominatio & Acoustic Abysstunes,
+Baalzephon - Rhythm Sodomy & Infested Lungs,
+Hel - Orchestral Demonsummoning,
+Nirag - Torturehythm & Chords Of Condamnation,
+Karagat - Necropulse.
+
+### "Divine. Desecrate. Complete" 2001, Black Metal
+
+1. Bloodline Desires
+2. Thy Kingdom Cum
+3. Where Angels No More Roam...
+4. Completion
+5. Forsaken Emperor
+6. Excruciate the Virgin Dream
+7. Eye of the Shadowden
+8. Entwined
+9. Ascending Through Decending
+
+LINE-UP
+Seron - Vocals
+Nagrinn - Guitars
+Mishrack - Guitars
+Hel - Keyboards
+Karagat - Bass & Vocals
+Nirag - Drums
+
 
 ## Отношения с другими группами
 

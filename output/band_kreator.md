@@ -1,25 +1,410 @@
 # Kreator
 
-Дискография
-"Endless Pain" 1985, Speed Metal
-"Pleasure To Kill" 1986, Speed Metal
-"Flag Of Hate (EP)" 1986, Speed Metal
-"Terrible Certainty" 1987, Thrash
-"Out Of The Dark... Into The Light (EP)" 1988, Thrash
-"Extreme Aggression" 1989, Thrash
-"Coma Of Souls" 1990, Thrash
-"Renewal" 1992, Thrash
-"Cause For Conflict" 1995, Thrash
-"Scenarios Of Violence (Compilation)" 1996, Thrash
-"Outcast" 1997, Thrash
-"Endorama" 1999, Thrash
-"Violent Revolution" 2001, Thrash
-"Live Kreation (live)" 2003, Thrash
-"Enemy Of God" 2005, Thrash
-"Enemy Of God Revisited (DVD)" 2006, Thrash
-"Hordes Of Chaos" 2009, Thrash
-"Phantom Antichrist" 2012, Thrash
-"Gods Of Violence" 2017, Thrash
+Classic Thrash
+
+## Дискография
+
+### "Endless Pain" 1985, Speed Metal
+
+1. Endless Pain
+2. Total Pain 
+3. Storm Of The Beast 
+4. Tormentor 
+5. Son Of Evil
+6. Flag Of Hate
+7. Cry War 
+8. Bonebreaker 
+9. Living In Fear 
+10.Dying Victims
+
+ Mille - Lead Guitars,Vocals
+ Rob - Bass
+ Ventor - Drums
+
+(p)&(c) 1985 NOISE Intl.
+
+### "Pleasure To Kill" 1986, Speed Metal
+
+1. Choir Of The Damned
+2. Ripping Corpse
+3. Death Is Your Saviour
+4. Pleasure To Kill
+5. Riot Of Violence
+6. The Pestilence
+7. Carrion
+8. Command Of The Blade 
+9. Under The Guillotine 
+
+ Mille - Lead Guitars,Vocals
+ Rob - Bass
+ Ventor - Drums
+ Wulf - Guitars
+
+(p)&(c) 1986 NOISE International
+
+### "Flag Of Hate (EP)" 1986, Speed Metal
+
+1. Flag Of Hate
+2. Take Their Lives
+3. Awakening Of The Gods
+
+ Mille - Lead Guitars, Vocals
+ Wulf - Guitars
+ Rob - Bass
+ Ventor - Drums
+
+Produced By Ralf Hubert
+Recorded At Phoenix Studio, Bochum, 1986
+Executive Producer Karl-U. Walterbach
+
+(p)&(c) 1986 NOISE Intl.
+
+### "Terrible Certainty" 1987, Thrash
+
+1. Blind Faith
+2. Storming With Menace
+3. Terrible Certainty
+4. As The World Burns
+5. Toxic Trace
+6. No Escape 
+7. One Of Us
+8. Behind The Mirror
+
+ Tritze - Guitars
+ Rob - Bass
+ Ventor - Drums
+ Mille - Vocals & Guitars
+
+Produced By Roy Rowland.
+Recorded & Mixed At Horus Studio,Hannover.
+Mastered At Studio Nord,Bremen.
+Pics By Buffo Schnadelbach.
+Cover Painting By Phil Lawvere.
+Backcover Design By L+Z Grafik & Design.
+
+(p)&(c) 1987 NOISE International
+
+### "Out Of The Dark... Into The Light (EP)" 1988, Thrash
+
+    Impossible to cure       2.41   
+    Lambs to slaughter       3.34
+    Terrible
+      certainty (Live)       5.19   
+    Riot of violence (Live)  5.48   
+    Awakening
+      of the Gods (Live)     7.13   
+    Flag of hate (Live)      3.52   
+    Love us
+      or hate us (Live)      4.36   
+    Behind the mirror (Live) 4.45 
+
+### "Extreme Aggression" 1989, Thrash
+
+1. Extreme Aggression
+2. No Reason To Exist   
+3. Love Us Or Hate Us
+4. Stream Of Consciousness
+5. Some Pain Will Last
+6. Betrayer
+7. Don't Trust
+8. Bringer Of Torture
+9. Fatal Energy
+
+ Mille Petrozza - Guitars & Vocals
+ Joerg Tritze - Guitars
+ Rob Fioretti - Bass
+ Ventor  - Drums
+
+(p)&(c) 1989 NOISE Intl.
+
+### "Coma Of Souls" 1990, Thrash
+
+1. When The Sun Burns Red
+2. Coma Of Souls
+3. People Of The Lie
+4. World Beyond
+5. Terror Zone
+6. Agents Of Brutality
+7. Material World Paranoia
+8. Twisted Urges
+9. Hidden Dictator
+10.Mantal Slavery
+
+ Mille Petrozza - Guitars & Vocals
+ Frank Blackfire - Guitars
+ Rob Fioretti - Bass
+ Ventor  - Drums
+
+Produced By Randy Burns
+Engineered By Randy Burns, Steve Heinke,
+Jason Roberts
+Mixed By Randy Burns & Steve Heinke
+Recorded At Eldorado And Image Studios
+
+(p)&(c) 1990 NOISE Intl.
+
+### "Renewal" 1992, Thrash
+
+1. Winter Martyrium
+2. Renewal
+3. Reflection
+4. Brainseed
+5. Karmic Wheel
+6. Realitatskontrolle
+7. Zero To None
+8. Europe After The Rain
+9. Depression Unrest
+
+ Mille Petrozza - Guitars & Vocals
+ Frank Gosdzik - Guitars
+ Rob Fioretti - Bass
+ Jurgen "Ventor" Reil - Drums & Programming
+
+All Songs By KREATOR.
+All Lyrics By Mille Petrozza.
+Produced By KREATOR & Tom Morris.
+Tom Morris Produces For D.U.A.F. Productions Inc.
+Engineered By Tom Morris,Mark Prator Und Brian
+Bonscotter.
+Executive Producer: K.-U. Walterbach.
+Recorded At Morrisound Studios,Tampa,Florida,
+August & September 1992.
+Artworks: Hourglas;Graphics: Headquarters.
+
+(c) 1992 DARK WINGS / DRAKKAR
+(p) 1992 NOISE INTERNATIONAL
+
+### "Cause For Conflict" 1995, Thrash
+
+1. Prevail
+2. Catholic Despot
+3. Progressive Proletarians
+4. Crisis Of Disorder
+5. Hate Inside Your Head
+6. Bomb Threat
+7. Men Without God
+8. Lost
+9. Dogmatic
+10.Sculpture Of Regret
+11.Celestial Deliverance
+12.Isolation
+
+All Songs Composed By KREATOR.
+All Lyrics Written By Mille Petrozza.
+Produced & Mixed By Vincent Wojno.
+
+(P)&(C) 1995 GUN Records
+
+### "Scenarios Of Violence (Compilation)" 1996, Thrash
+
+1. Suicide In Swamps
+2. Renewal
+3. Extreme Aggressions
+4. Brainseed
+5. Terrorzone
+6. Pipping Corpse
+7. Tormentor
+8. Some Pain Will Last
+9. Toxic Trace
+10. People Of he Lie
+11. Depression Unrest
+12. Coma Of Souls
+13. Europe After The Rain
+14. Limits f Liberty
+15. Terrible Certainity
+16. Karmic Wheel
+A Collection Of KREATOR's greatest songs
+containing 2 new songs, 9 remixes and 5 classics
+Mille Petrozza - Guitars + V ocals
+Joe Cangelosi - Drums + Percussion
+Christian Giesler - Bass
+Frank Gosdzik - Guitars
+Also Appearing:
+Drums By Jurgen "Ventor" Reil, except 1 and 14
+Bass By Rob Fioretti, except 1 and 14
+Guitar on 6+7 by Jorg Trzebiatowski
+All Songs Written By KREATOR
+All Lyrics By Mille Petrozza
+(c)1996 Dark Wings
+
+### "Outcast" 1997, Thrash
+
+1. Leave This World Behind
+2. Phobia
+3. Forever
+4. Black Sunrise
+5. Nonconformist
+6. Enemy Unseen
+7. Outcast
+8. Stronger Than Before
+9. Ruin Of Life
+10. Whatever It May Take
+11. Alive Again
+12. Against The rest
+13. A Better Tomorrow
+Mille Petrozza - Guitars + vocals
+Tommy Vetterli - Guitars
+Christian Giesler - Bass
+Jurgen Reil - Drums
+Produced By Vincent Wojno and Kreator
+(p)(c)1997 GUN Records
+
+### "Endorama" 1999, Thrash
+
+1. Golden Age
+2. Endorama
+3. Shadowland
+4. Chosen Few
+5. Everlasting Flame
+6. Passage To Babylon
+7. Future King
+8. Entry
+9. Soul Eraser
+10.Willing Spirit
+11.Pandemonium
+12.Tyranny
+
+
+### "Violent Revolution" 2001, Thrash
+
+1, Reconquering The Throne
+2, The Patriarch [instumental]
+3, Violent Revolution
+4, All Of The Same Blood (Unity)
+5, Servant In Heaven/King In Hell
+6, Second Awakening
+7, Ghetto War
+8, Replicas Of Life
+9, Slave Machinery
+10, Bitter Sweet Revenge
+11, Mind On Fire
+12, System Decay
+
+### "Live Kreation (live)" 2003, Thrash
+
+CD I 
+1. The Patriarch 
+2. Violent Revolution 
+3. Reconquering The Throne 
+4. Extreme Aggression 
+5. People Of The Lie 
+6. All Of The Same Blood 
+7. Phobia 
+8. Pleasure To Kill 
+9. Renewal 
+10. Servant In Heaven - King In Hell 
+11. Black Sunrise 
+12. Terrible Certainty 
+13. Riot Of Violence 
+
+CD II 
+1. Lost 
+2. Coma Of Souls 
+3. Second Awakening 
+4. Terrorzone 
+5. Betrayer 
+6. Leave this World Behind 
+7. Under The Guillotine 
+8. Awakewning The Gods 
+9. Golden Age 
+10. Flag Of Hate 
+11. Tormentor
+
+### "Enemy Of God" 2005, Thrash
+
+01. Enemy Of God
+02. Impossible Brutality
+03. Sucide Terrorist
+04. World Anarchy
+05. Dystopia
+06. Voices Of The Dead
+07. Murder Fantasies
+08. When Death Takes It's Dominion
+09. One Evil Comes - A Million Follow
+10. Dying Race Apocalypse
+11. Under A Total Blackened Sky
+12. The Ancient Plague
+
+### "Enemy Of God Revisited (DVD)" 2006, Thrash
+
+
+
+### "Hordes Of Chaos" 2009, Thrash
+
+1. Hordes of Chaos (A Necrologue for the Elite) 05:04  
+2. Warcurse 04:10  
+3. Escalation 03:24  
+4. Amok Run 04:12  
+5. Destroy What Destroys You 03:13  
+6. Radical Resistance 03:43  
+7. Absolute Misanthropy 03:37  
+8. To the Afterborn 04:53  
+9. Corpses of Liberty 00:55  
+10. Demon Prince 05:16 
+
+
+
+Bonus DVD
+
+* The Making of "Hordes Of Chaos" directed by Stephanie von Beauvais
+* "Awakening Of The Gods" live at Summer Breeze Open Air Germany 2006
+* "Coma Of Souls" live at Summer Breeze Open Air Germany 2006
+* "Hordes Of Chaos" video
+
+### "Phantom Antichrist" 2012, Thrash
+
+01. Mars Mantra 
+02. Phantom Antichrist 
+03. Death To The World 
+04. From Flood Into Fire 
+05. Civilisation Collapse 
+06. United In Hate 
+07. The Few, The Proud, The Broken 
+08. Your Heaven In My Hell 
+09. Victory Will Come 
+10. Until Our Paths Cross Again
+
+
+Bonus track for Japan:
+ 11. Iron Destiny
+ 
+Also released as limited edition with a different artwork (right cover) and bonus DVD.
+ 
+Bonus DVD:
+ * Conquerers Of The Ice – The Making of Phantom Antichrist.
+ * Harvesting the Grapes of Horror.
+ * Live at Wacken Open Air in 2011 and 2008 (mixed by Klaus Scheuermann, edited by Marcel Schleif and Stephan Lier)
+ 
+Wacken Open Air 2011:
+ 01. Choir of the Damned
+ 02. Hordes of Chaos
+ 03. War Curse
+ 04. Coma of Souls / Endless Pain
+ 05. Pleasure to Kill
+ 06. Destroy What Destroys You
+ 07. Phobia
+ 08. Terrible Certainity / Reconquering the Throne
+ 09. Flag of Hate / Tormentor
+ 
+Wacken Open Air 2008:
+ 10. The Patriarch
+ 11. Violent Revolution
+ 12. People of the Lie
+ 13. Europe After the Rain 
+
+### "Gods Of Violence" 2017, Thrash
+
+01. Apocalypticon
+02. World War Now
+03. Satan Is Real
+04. Totalitarian Terror
+05. Gods Of Violence
+06. Army Of Storms
+07. Hail To The Hordes
+08. Lion With Eagle Wings
+09. Fallen Brother
+10. Side By Side
+
 
 ## Отношения с другими группами
 

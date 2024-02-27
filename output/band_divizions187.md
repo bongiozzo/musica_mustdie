@@ -1,8 +1,20 @@
 # Divizion S-187
 
-Дискография
-"Blood And Fire" 2006, Black Metal
-"В Милосердии отказано" 2008, Black Metal
+ASHEN LIGHT project
+
+## Дискография
+
+### "Blood And Fire" 2006, Black Metal
+
+1. Total Destruction 06:34 
+2. No One Alive - No Fucking Religion 03:48
+3. Danse Of Light & Death 04:30
+4. Blood & Fire 03:03 
+
+### "В Милосердии отказано" 2008, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

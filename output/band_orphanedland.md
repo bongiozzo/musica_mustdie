@@ -1,11 +1,161 @@
 # Orphaned Land
 
-Дискография
-"Sahara" 1994, Death Doom
-"El Norra Alila" 1996, Death Doom
-"Mabool" 2004, Death Doom
-"The Never Ending Way of ORwarriOR " 2010, Folk
-"All Is One" 2013, Folk
+Death-Doom from Israel
+
+## Дискография
+
+### "Sahara" 1994, Death Doom
+
+1. The Sahara's Storm
+2. Blessed Be Thy Hate
+3. Ornaments Of Gold
+4. The Beloved's Cry
+5. Aldiar Al Mukadisa The Holy Land Of Israel
+6. Seasons Unite
+7. My Requiem
+8. Orphaned Land, The Storm Still Rages Inside...
+
+All Tracks Written By ORPHANED LAND.
+Produced By ORPHANED LAND.
+Engineered By Tamir Muskat.
+Recorded In 'Sigma' Studios, Tel-Aviv, Israel, June 1994.
+
+Kobi Fahri - Vocals
+Yossi Sassi - Lead Guitars 
+Matti Svatitzki - Rhythm Guitars
+Uri Zelcha - Bass
+Sami Bachar - Drums
+Itzik Levi - Keyboards, Samples, Piano
++Hadas Sassi - Female Vocals
++Albert Dodon - Farbuka
++Abraham Salman - Kannun
+
+(P)&(C) 1995 HOLY Records
+
+### "El Norra Alila" 1996, Death Doom
+
+1. Find Yourself, Discover God
+2. Like Fire To Water
+3. The Truth Within
+4. The Path Ahead, A Neverending Way
+5. Takasim
+6. Thee By The Father I Pray
+7. Flawless Belief
+8. Joy
+9. Whisper My Name When You Dream
+10.Shir Hama'alot
+11.El Meod Na'ala
+12.Of Temptation Born
+13.The Evil Urge
+14.Shir Hashirim
+
+All Tracks Written By ORPHANED LAND.
+Produced By Kobi Farhi & Yossi Sassi.
+Executive Producer: Holy Records.
+Engineered By Udi Koomran.
+Mixed By Udi Koomran, Kobi Fahri & Yossi Sassi.
+Recorded & Mixed In 'Sigma' Studios, Tel-Aviv, Israel.
+
+Kobi Fahri - Vocals
+Yossi Sassi - Lead Guitars 
+Matti Svatitzki - Rhythm Guitars
+Uri Zelcha - Bass
+Sami Bachar - Drums
+Itzik Levi - Keyboards, Samples, Piano
++Hadas Sassi - Female Vocals
++Albert Dodon - Farbuka
++Abraham Salman - Kannun
+
+(P)&(C) 1996 HOLY Records // Holy 18
+
+### "Mabool" 2004, Death Doom
+
+1. Birth Of The Three (The Unification) 
+2. Ocean Land (The Revelation) 
+3. The Kiss Of Babylon (The Sins) 
+4. A'salk 
+5. Halo Dies (The Wrath Of God) 
+6. A Call To Awake (The Quest) 
+7. Building The Ark 
+8. Norra El Norra (Entering The Ark) 
+9. The Calm Before The Flood 
+10. Mabool (The Flood) 
+11. The Storm Still Rages 
+12. Rainbow (The Resurrection)
+
+### "The Never Ending Way of ORwarriOR " 2010, Folk
+
+1. Sapari 04:04  
+2. From Broken Vessels 07:36
+3. Bereft in the Abyss 02:45 
+4. The Path (Pt. 1) - Treading Through Darkness 07:27
+5. The Path (Pt. 2) - The Pilgrimage to Or Shalem 07:45 
+6. Olat Ha'tamid 02:38  
+7. The Warrior 07:11
+8. His Leaf Shall Not Wither 02:31 
+9. Disciples of the Sacred Oath, Pt. 2 08:31
+10. New Jerusalem 06:59
+11. Vayehi Or 02:41  
+12. M I ? 03:27 
+13. Barakah 04:13 
+14. Codeword: Uprising 05:25
+15. In Thy Never Ending Way (Epilogue) 05:09 
+
+
+
+Line-up:
+Kobi Farhi - Vocals, Leading Chants, Growls, Narrations, Choirs, Backing Vocals
+Yossi Sassi Sa'aron - Lead Guitars, Acoustic Guitars, Saz, Bouzouki, Oud,
+Chumbush, Choir Vocals, Piano
+Matti Svatizky - Rhythm Guitars, Acoustic Guitars
+Uri Zelcha - Bass, Fretless Bass, Acoustic Bass
+
+Guests and session members:
+Avi Diamond - Drums
+Shlomit Levi - Female Vocals
+Steven Wilson - Keyboards
+Avi Agababa - Percussions
+Avner Gavriell - Piano (on track 15)
+Nizar Radwan - Violins
+Srur Saliba - Violins
+Alfred Hagar - Nay and Kawala Flutes
+Yonatan Danino - Shofar
+Shmuel Ruzbahan - Santur 
+
+Produced by Steven Wilson and Orphaned Land.
+Mixed by Steven Wilson (Porcupine Tree, Opeth).
+
+The album is divided into three parts:
+Part I: Godfrey''s Cordial – An ORphan''s Life (tracks 1-6)
+Part II: Lips Acquire stains – The WarriOR Awakens (tracks 7-12)
+Part III: Barakah – Enlightening the Cimmerian (tracks 13-15)
+
+OrWarrior means "light warrior" or "warrior of light", representing a conceptual
+hero of the battle of light versus darkness.
+
+Along with the original and limited editions, the album is sold along with an
+Orphaned Land t-shirt or along with postcards, posters, magnets, 28-page
+Mediabook or a special "Disciples Package" that includes collectible items along
+with a brand new "Disciples t-shirt".
+
+DVD tracklist:
+01. A Heaven You May Create (Band Documentary) (42:17)
+02. Estarabim (Bonus Audio Track) (05:12) 
+
+### "All Is One" 2013, Folk
+
+1. All Is One
+2. The Simple Man
+3. Brother
+4. Let The Truce Be Known
+5. Through Fire And Water
+6. Fail
+7. Freedom
+8. Shama'im
+9. Ya Benaye
+10. Our Own Messiah
+11. Children 
+
 
 ## Отношения с другими группами
 

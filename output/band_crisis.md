@@ -1,10 +1,25 @@
 # Crisis
 
-Дискография
-"8 Convulsions" 1994, Nu Metal
-"Deathshead Extermination" 1996, Nu Metal
-"The Hollowing" 1997, Nu Metal
-"Like Sheep Led To Slaughter" 2004, Nu Metal
+
+
+## Дискография
+
+### "8 Convulsions" 1994, Nu Metal
+
+
+
+### "Deathshead Extermination" 1996, Nu Metal
+
+
+
+### "The Hollowing" 1997, Nu Metal
+
+
+
+### "Like Sheep Led To Slaughter" 2004, Nu Metal
+
+
+
 
 ## Отношения с другими группами
 

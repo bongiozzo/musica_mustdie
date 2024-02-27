@@ -1,9 +1,52 @@
 # Thirdmoon
 
-Дискография
-"Grotesque Autumnal Weepings" 1997, Melodic Death Metal
-"Aquis Submersus" 1999, Melodic Death Metal
-"Bloodforsaken" 2000, Melodic Death Metal
+(somewhere in between of "in flames", "samael", "hypocrisy" and
+old "sentenced")
+
+## Дискография
+
+### "Grotesque Autumnal Weepings" 1997, Melodic Death Metal
+
+Label: CCP-Records
+01 - Grotesque Autumnal Weepings
+02 - Supreme Ancient Sanctum
+03 - Moonlight
+04 - Timeless Dissent
+05 - Mondbluttauer
+06 - Frozen Lunar Autumn
+07 - Velvet Thorns
+08 - Crimson Crescent
+
+### "Aquis Submersus" 1999, Melodic Death Metal
+
+Label: Napalm Records
+01 - Atlantis
+02 - Scargod
+03 - The Spirits Wept
+04 - Aquis Submersus (Prologue) 
+05 - Aquis Submersus
+06 - Farewell... in Welking Dust
+07 - Carrion
+08 - Transcend the Second Twilight
+09 - Transcend (Instrumental)
+10 - Shadow
+11 - De Profundi (Instrumental) 
+
+### "Bloodforsaken" 2000, Melodic Death Metal
+
+Label: Napalm Records
+01 - Spiritual Icons
+02 - Catharsis in Azure
+03 - Fractured Abandonment
+04 - Fallen Skin Dimension
+05 - Buried Awakening
+06 - Costal Angels
+07 - Thirdmoon
+08 - Obsolete Scars
+09 - Captured
+10 - Grotesque Chapter II
+11 - Thirdmoon - outro
+
 
 ## Отношения с другими группами
 

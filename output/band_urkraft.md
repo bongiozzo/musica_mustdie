@@ -1,9 +1,46 @@
 # Urkraft
 
-Дискография
-"Eternal Cosmic Slaughter " 2004, Death Metal
-"The Inhuman Aberration" 2006, Death Metal
-"A Scornful Death" 2008, Death Metal
+
+
+## Дискография
+
+### "Eternal Cosmic Slaughter " 2004, Death Metal
+
+1. Blessed Be The Human Beast 04:35
+2. Paint The City Black 04:25 
+3. Soulless 04:51
+4. Unleash The Will 04:08 
+5. Eternal Cosmic Slaughter 04:18
+6. At The Border Of The Known World 04:39
+7. Cannibal Melancholy 05:22
+8. Through Your Senses 04:43 
+9. The Scarlet Burning 05:04 
+
+### "The Inhuman Aberration" 2006, Death Metal
+
+1. Too Strong for the Strongest Lord 04:13
+2. This Great Summer 04:02
+3. The Only Gods 04:15
+4. The Inhuman Aberration 04:41
+5. Open the Gate 03:52
+6. Come No Tomorrow 05:03
+7. Watch Your Own Eyes 03:43
+8. Liberation 03:46
+9. Forsaken 03:51
+10. The Pressure of Our Jaws 03:35 
+
+### "A Scornful Death" 2008, Death Metal
+
+1. The Power to Crucify   
+2. Intermezzo   
+3. Eternity’s Chamber   
+4. A Miracle Grotesque   
+5. The Murderer In All Men   
+6. Fed To Dogs   
+7. Ghost 08   
+8. Shrieking Of The Mad   
+9. The Prophet & The Rose   
+
 
 ## Отношения с другими группами
 

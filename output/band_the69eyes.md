@@ -1,20 +1,162 @@
 # The 69 Eyes
 
-Дискография
-"Bump'n'Grind" 1992, Glam
-"Motor City Resurrection" 1994, Glam
-"Savage Garden" 1995, Glam
-"Wrap Your Troubles In Dreams" 1997, Glam
-"Wasting the Dawn" 1999, Gothic
-"Blessed Be" 2000, Gothic
-"Paris Kills" 2002, Gothic
-"Framed In Blood" 2003, Gothic
-"Helsinki Vampires (DVD)" 2003, Gothic
-"Devils" 2004, Gothic
-"Angels" 2007, Gothic
-"Back In Blood" 2009, Gothic
-"Red [single]" 2012, Gothic
-"X" 2012, Gothic
+
+
+## Дискография
+
+### "Bump'n'Grind" 1992, Glam
+
+
+
+### "Motor City Resurrection" 1994, Glam
+
+
+
+### "Savage Garden" 1995, Glam
+
+1. 1-800-Sleazorama
+2. Tang
+3. Smashed'n'Trashed
+4. Velvet Touch
+5. Mr. Pain
+6. Lady Luck
+7. Motor City Resurrection
+8. Ghettoway Car
+9. Wild Talk
+10. Get It Off
+11. Always
+12. Demolition Derby
+13. Savage Garden
+69. 1-800-Sleazorama (Reprise)
+
+### "Wrap Your Troubles In Dreams" 1997, Glam
+
+1. Call Me
+2. D.I.D.
+3. Broken Man
+4. Get Around
+5. Too Much To Loose
+6. Sore Loser
+7. Skanky Man
+8. Wrap Your Troubles In
+9. Dreams
+10. Hellcity 1999
+11. Turbobitch
+12. L8R S8N
+
+
+
+
+### "Wasting the Dawn" 1999, Gothic
+
+1. Truck On
+2. Lay Down Your Arms, Girl
+3. Wasting The Dawn
+4. You Ain't The Reason
+5. Lazarus Heart
+6. Who's Gonna Pay The Bail?
+7. All-American Dream
+8. Be My Speed
+9. Hand Of God
+10. Next Stop Paradise
+11. Starshine
+
+### "Blessed Be" 2000, Gothic
+
+01. Framed In Blood 
+02. Gothic Girl 
+03. The Chair 
+04. Brandon Lee 
+05. Velvet Touch 
+06. Sleeping With Lions 
+07. Angel On My Shoulder 
+08. Stolen Season 
+09. Wages Of Sin 
+10. Graveland 
+11. 30 
+
+
+### "Paris Kills" 2002, Gothic
+
+01. Crashing High
+02. Dance d'Amour
+03. Betty Blue
+04. Grey
+05. Radical
+06. Donґt Turn Your Back On Fear
+07. Stigmata
+08. Forever More
+09. Still Waters Run Deep
+10. Dawnґs Highway
+
+### "Framed In Blood" 2003, Gothic
+
+
+
+### "Helsinki Vampires (DVD)" 2003, Gothic
+
+
+
+### "Devils" 2004, Gothic
+
+01. Devils
+02. Feel Berlin
+03. Nothing on You
+04. Sister of Charity
+05. Lost Boys
+06. Jimmy
+07. August Moon
+08. Beneath the Blue
+09. Christina Death
+10. Hevioso
+11. Only You Can Save Me
+
+### "Angels" 2007, Gothic
+
+1. Angels
+2. Never Say Die
+3. Rocker
+4. Ghost
+5. Perfect Skin
+6. Wings & Hearts
+7. Star Of Fate
+8. Los Angeles
+9. In My Name
+10. Shadow Of Your Love
+11. Frankenhooker
+
+### "Back In Blood" 2009, Gothic
+
+01. Back In Blood (4:30)
+02. We Own The Night (4:02)
+03. Dead N' Gone (3:40)
+04. The Good, The Bad, & The Undead (3:28)
+05. Kiss Me Undead (3:57)
+06. Lips Of Blood (4:21)
+07. Dead Girls Are Easy (3:55)
+08. Night Watch (4:32)
+09. Some Kind Of Magick (3:43)
+10. Hunger (4:33)
+11. Suspiria Snow White (3:33)
+12. Eternal (4:19)
+
+### "Red [single]" 2012, Gothic
+
+1. Red 03:12
+
+### "X" 2012, Gothic
+
+01. Love Runs Away (4:23)
+02. Tonight (3:44)
+03. Black (4:39)
+04. If You Love Me The Morning After (4:22)
+05. Red (3:46)
+06. I Love The Darkness In You (3:19)
+07. Borderline (3:54)
+08. I'm Ready (4:11)
+09. I Know What You Did Last Summer (5:06)
+10. When A Love Comes To An End (3:51)
+
 
 ## Отношения с другими группами
 

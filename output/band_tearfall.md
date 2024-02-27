@@ -1,7 +1,17 @@
 # Tearfall
 
-Дискография
-"Wasted Days demo-EP" 2005, Gothic
+gothic-rock from Russia
+
+## Дискография
+
+### "Wasted Days demo-EP" 2005, Gothic
+
+Wasted days 
+Dance 
+13 
+Seduction
+Last song
+
 
 ## Отношения с другими группами
 

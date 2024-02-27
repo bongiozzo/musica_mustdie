@@ -1,9 +1,76 @@
 # Dionysus
 
-Дискография
-"Sign Of Truth" 2002, Power Metal
-"Anima Mundi" 2004, Power Metal
-"Fairytales And Reality" 2006, Power Metal
+Swedish power-metal
+
+## Дискография
+
+### "Sign Of Truth" 2002, Power Metal
+
+1. TIME WILL TELL
+2. SIGN OF TRUTH
+3. BRINGER OF SALVATION
+4. POURING RAIN
+5. ANTHEM FOR THE CHILDREN
+6. HOLY WAR
+7. DON'T FORGET
+8. WALK ON FIRE
+9. NEVER WAIT
+10. LOADED GUN
+
+
+
+JOHNNY OHLIN - guitars
+NOBBY - bass
+RONNY MILIANOWICZ - drums
+OLAF HAYER - vocals
+KASPAR DAHLQVIST - keyboards
+
+
+
+### "Anima Mundi" 2004, Power Metal
+
+1. Divine
+2. Bringer of War
+3. Anima Mundi
+4. Heart Is Crying
+5. What
+6. Eyes of The World
+7. March For Freedom
+8. Closer To The Sun
+9. Forever More
+10. Paradise Land
+
+
+
+Ronny Milianowicz : drums
+Olaf Hayer : vocals
+Kaspar Dahlqvist : keyboards
+Johnny Ohlin : guitars
+Nobby Noberg : bass
+
+### "Fairytales And Reality" 2006, Power Metal
+
+1. Illusion of Life   
+2. The Orb   
+3. Blinded   
+4. The World   
+5. Spirit   
+6. Queen of Madness   
+7. The Game   
+8. True At Heart   
+9. Tides Will Turn   
+10. Dreamchaser   
+11. The End   
+12. Time Will Tell (Demo)   
+13. Bringer Of Salvation (Demo) 
+
+
+Olaf Hayer - vocals
+Johnny Ahlin - guitar
+Kaspar Dahlqvist - keyboards 
+Nobby Noberg - bass
+Ronny Milianowicz - drums
+
 
 ## Отношения с другими группами
 

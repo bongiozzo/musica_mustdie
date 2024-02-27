@@ -1,7 +1,31 @@
 # Stentorian
 
-Дискография
-"Gentle Push To Paradise" 1996, Death Doom
+Alternative Melodic Death-Doom !
+
+## Дискография
+
+### "Gentle Push To Paradise" 1996, Death Doom
+
+1. This Jericho Dance
+2. Collapsed At The Crossing Path
+3. Man From The Forest
+4. July The 24th
+5. Into The Deep
+6. The Loss
+7. Weltschmerz
+8. Romancing The Lost Love
+
+Recorded At Eurosound Studio's, The Netherlands.
+Produced By Jos Haagmans & STENTORIAN.
+
+Arne Sunter - Vocals
+Jeffrey Brugman - Guitars
+Paul Hendriksen - Guitars
+Paul Noomen - Bass
+Martijn Peters - Drums
+
+(P)(C) 1996 DISPLEASED Records
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,30 @@
 # Aboriorth
 
-Дискография
-"Far Away from Hateful Mankind Plague" 2007, Black Metal
-"The Austere Perpetuity of Nothingess" 2011, Black Metal
+
+
+## Дискография
+
+### "Far Away from Hateful Mankind Plague" 2007, Black Metal
+
+1. Prelude to Extinction	 
+2. Bullets of Hate	 
+3. Destructive Thoughts	 
+4. My Spawned Supremacy	 
+5. Sons of Nihilism, Bastards of Destruction 
+6. Mankind Failure	 
+7. Annihilation of an Emtpy Kingdom	 
+8. Aboriortholocaust*	 
+9. Denial of the Mankind (Panzerfrost cover)+
+
+### "The Austere Perpetuity of Nothingess" 2011, Black Metal
+
+1. The Truth Given in Gold Vessels and Beggar Hands	 
+2. Hope Drunk and Faith Moribund	 
+3. The Shortest Doom for the Hanged in a Silk Thread	 
+4. While the Children are Rotting in their Tombs	 
+5. The Place where the Night was Born and the Soul Died	 
+6. Hurt
+
 
 ## Отношения с другими группами
 

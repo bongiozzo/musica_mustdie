@@ -1,9 +1,66 @@
 # Stone Temple Pilots
 
-Дискография
-"Core" 1992, Alternative
-"Purple" 1994, Alternative
-"Tiny Music... Songs From The Vatican Gift Shop" 1996, Alternative
+
+
+## Дискография
+
+### "Core" 1992, Alternative
+
+
+
+### "Purple" 1994, Alternative
+
+1. Meat Plow
+2. Vasoline
+3. Lounge Fly
+4. Interstate Love Song
+5. Still Remains
+6. Pretty Penny
+7. Silvergun Superman
+8. Big Empty
+9. "Ungived"
+10.Army Ants
+11.Kitchen Ware & Canoybars
+
+All Lyrics By Scott Weiland.
+Produced By Brendan O'Brien.
+
+Scott Weiland - All Vocals,Guitars
+Dean Deleo - Electric & Acoustic Guitars
+Robert Deleo - Bass,Guitars
+Eric Kreitxz - Drums,Percussion
+
+(P)&(C) 1994 ATLANTIC Records
+
+### "Tiny Music... Songs From The Vatican Gift Shop" 1996, Alternative
+
+1. Press Play (1.08)
+2. Pop's Love Suicide (3.40)
+3. Tumble In The Rough (3.18j
+4. Big Bang Baby (3.21)
+5. Lady Picture Show (4.06)
+6. End So I Know (3.56)
+7. Trippin' On A Hole In A Paper Heart
+  (2.54)
+8. An School Girl (3.32)
+9. Adhesive (5.31)
+10.Ride The Cliche (3.15)
+11.Daisy (2.13)
+12.Seven Caged Tigers (4.17)
+                                  
+Produccd & mixed by Brendan O' Brien.
+Recorded by Nick DiDia at Wersterly
+Ranch, Sant Ynez, CA.
+
+Scon Weiland - All Vocals, Guitars
+Dean Deleo - Electric & Acoustic
+Guitars
+Robert Deleo - Bass, Guitars
+Eric Kreitz - Drums, Percussion
+
+(p)(c) 1996 ATLANTIC Recording
+Corporation
+
 
 ## Отношения с другими группами
 

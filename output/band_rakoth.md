@@ -1,10 +1,76 @@
 # Rakoth
 
-Дискография
-"Superstatic Equilubrium" 1998, Black Metal
-"Planeshift" 2000, Black Metal
-"Jabberworks" 2001, Black Metal
-"Tiny Deaths" 2003, Black Metal
+(Bombastic metal from Russia with elements of Black)
+
+## Дискография
+
+### "Superstatic Equilubrium" 1998, Black Metal
+
+Side A (The Gods):
+1. ... of Chaos
+2. Story of the Nameless
+3. Dying Realm
+4. The Insurgent One
+5. Return of the Nameless
+6. Descent (Into the Crystal Caves)
+Side B (The Mortals):
+1. Farewell (The Bloodstained Flowers)
+2. A Pass in the Ethereal Woods
+3. Beyond
+4. Before the Abyss
+5. Vision
+6. Dreaming
+7. The Summoning
+
+
+
+### "Planeshift" 2000, Black Metal
+
+Planeshift (introduction) 
+Fear (wasn't in the design) 
+Noldor exodus 
+The dark heart of Uukrul 
+Og'elend 
+Planeshift 
+Gothaur aulendil 
+Mountain god 
+The unquiet grave 
+Outro 
+
+
+### "Jabberworks" 2001, Black Metal
+
+Dying Realm 
+A Passing in the Ethereal 
+Insurgent One 
+Story of the Nameless 
+Farewell 
+Brightless 
+Return Of The Nameless 
+Diamond Angel 
+Der Jammerwoch 
+
+
+
+Rustam - Voices, Keyboards, Programming
+P.Noir - Voices, Flutes
+Dy - Guitars
+
+
+### "Tiny Deaths" 2003, Black Metal
+
+1. Into
+2. Planekeep - The Crypt
+3. Fevered
+4. Dawn
+5. Trust This
+6. Edge
+7. Horizon
+8. Vicious Life
+9. June 3
+10. Just Another Lament
+11. Tiny Deaths
+
 
 ## Отношения с другими группами
 

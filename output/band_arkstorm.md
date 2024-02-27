@@ -1,7 +1,30 @@
 # Ark Storm
 
-Дискография
-"Beginning Of The New Legend" 2003, Metal
+Japan neoclassical power
+
+## Дискография
+
+### "Beginning Of The New Legend" 2003, Metal
+
+1. Ark Storm
+2. Message in DNA
+3. Only time Will Last
+4. The Burning Flame
+5. Brainless Traitor
+6. Evolution
+7. Sudden Madness
+8. Soldiers Drift
+9. Rood
+10. War Game
+11. Voyage of The New Legend
+
+
+Yasuo Sasai-Vocals
+Katsu Ohta-guitar
+Isamu Takita-Bass
+Yuhki-Keys
+Ichoro Nagai-Drums
+
 
 ## Отношения с другими группами
 

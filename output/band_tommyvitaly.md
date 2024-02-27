@@ -1,7 +1,23 @@
 # Tommy Vitaly
 
-Дискография
-"Just Me" 2010, Hardcore
+
+
+## Дискография
+
+### "Just Me" 2010, Hardcore
+
+1. Just Me	 
+2. The Raven Attack	 
+3. Fly High, Touch the Sky	 
+4. Air (theme by J. S. Bach)
+5. Storm of Fire	 
+6. Passion	 
+7. Ready to Die	 
+8. Finally Free	 
+9. The Fury	 
+10. Eternal	 
+11. Just Me (orchestral version)
+
 
 ## Отношения с другими группами
 

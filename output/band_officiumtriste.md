@@ -1,13 +1,37 @@
 # Officium Triste
 
-Дискография
-"Mountains Of Depressiveness (EP)" 1996, Doom
-"Ne Vivam" 1997, Doom
-"Roses On My Grave (EP)" 1999, Doom
-"The Pathway" 2001, Doom
-"Reason" 2004, Doom
-"Ne Vivam (re-release)" 2005, Doom
-"Giving Yourself Away" 2007, Doom
+
+
+## Дискография
+
+### "Mountains Of Depressiveness (EP)" 1996, Doom
+
+
+
+### "Ne Vivam" 1997, Doom
+
+
+
+### "Roses On My Grave (EP)" 1999, Doom
+
+
+
+### "The Pathway" 2001, Doom
+
+
+
+### "Reason" 2004, Doom
+
+
+
+### "Ne Vivam (re-release)" 2005, Doom
+
+
+
+### "Giving Yourself Away" 2007, Doom
+
+
+
 
 ## Отношения с другими группами
 

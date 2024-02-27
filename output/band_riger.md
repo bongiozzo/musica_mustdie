@@ -1,11 +1,66 @@
 # Riger
 
-Дискография
-"Der Wanderer" 1998, Black Metal
-"Hamingja" 1999, Black Metal
-"Des Blutes Stimme" 2002, Death Metal
-"Gjallar" 2004, Death Metal
-"Streyf" 2009, Black Metal
+
+
+## Дискография
+
+### "Der Wanderer" 1998, Black Metal
+
+
+
+### "Hamingja" 1999, Black Metal
+
+Prolog                   2.29
+Krieg                    4.31
+Mit gottlicher hand      6.41
+Hamingja                 4.18
+Welf                     4.50
+<Runes>                  5.05
+Herenhammer              5.36
+Othala                   4.22
+Totenfonett              5.38
+Grendel                  5.00
+
+### "Des Blutes Stimme" 2002, Death Metal
+
+1. Des Blutes Stimme
+2. Irminsul
+3. Auf die Ahnen!
+4. Wjerewulf
+5. Homo Decadencia
+6. Im Grauen der Nдchte
+7. Teutonenzorn
+8. Woutes Heer
+9. Im Gedenken...
+
+### "Gjallar" 2004, Death Metal
+
+Zunft der Lьgner 
+Eisenhagel 
+Bцser Glaube 
+Brandschiff 
+Angriff 
+Siechtum im Glanze 
+Sold der Inbrunst (Einherjer) 
+Schцpfer der Hetze 
+Spiegellos 
+Outro
+
+### "Streyf" 2009, Black Metal
+
+1. Allbrandopfer   
+2. Ehr im Sieg, Ehr im Fallen   
+3. Nachtmahr   
+4. Hinter Mauern aus Stein   
+5. Metall   
+6. Geliebte Wut   
+7. Gier   
+8. Stammesbaum   
+9. Wenn das Licht uns nimmt   
+10. Zweites Gesicht   
+11. Streyf 
+
+
 
 ## Отношения с другими группами
 

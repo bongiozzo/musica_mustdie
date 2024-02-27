@@ -1,7 +1,31 @@
 # Chum
 
-Дискография
-"Dead To The World" 1996, Alternative
+Alternative Doom with Female Vocals
+
+## Дискография
+
+### "Dead To The World" 1996, Alternative
+
+1. Stepping On Cracks
+2. Halfway Home
+3. Kindling Kind
+4. Live In A Circle
+5. Untouchable
+6. Dead To The World
+7. Angels In The Snow
+8. Greetings (From The Inner Self)
+9. Darling Nikki
+
+Recorded & Mixed At Barrick Studio.
+Produced By David Barrick & CHUM.
+
+John Lancaster - Vocals, Guitars
+Mac Walker - Guitars
+Chris Tackett - Bass
+Chuck Nicholas - Drums, Percussion
+
+(P)(C) 1996 CENTURY MEDIA Records
+
 
 ## Отношения с другими группами
 

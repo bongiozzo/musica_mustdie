@@ -1,7 +1,25 @@
 # Eidyllion
 
-Дискография
-"Gymnopaydia del Letheo" 2002, Black Metal
+Black/Folkloric Argentinian band
+
+## Дискография
+
+### "Gymnopaydia del Letheo" 2002, Black Metal
+
+1 Exordio (facas del trafago)
+2 Tears over Bayeaux
+3 Euphone Perennia
+4 Intermezzo (dentro de los calidos sueсos)
+5 Fuego Fatuo
+6 Cuando los oceaons fueron todos los elementos
+7 Circulo
+8 Tarasca (la muerte de una quimera)
+9 Epitafio de ilusiones
+10 Catarsis
+11 Epilogo (infulas de la muerte)
+Bonus Track
+12 Catarsis (version de ensueсo)
+
 
 ## Отношения с другими группами
 

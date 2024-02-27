@@ -1,20 +1,257 @@
 # Kingdom Come
 
-Дискография
-"Kingdom Come" 1988, Hard Rock
-"In Your Face" 1989, Hard Rock
-"Hands Of Time" 1991, Hard Rock
-"Bad Image" 1993, Hard Rock
-"Twilight Cruiser" 1995, Hard Rock
-"Live" 1996, Hard Rock
-"Unplugged" 1996, Hard Rock
-"Too" 2000, Hard Rock
-"Independent" 2002, Hard Rock
-"Perpetual" 2004, Hard Rock
-"Ain't Crying For The Moon" 2006, Hard Rock
-"Magnified" 2009, Hard Rock
-"Rendered Waters" 2011, Hard Rock
-"Outlier" 2013, Hard Rock
+
+
+## Дискография
+
+### "Kingdom Come" 1988, Hard Rock
+
+1.  Living Out Of Touch
+2.  Pushin' Hard
+3.  What Love Can Be
+4.  17
+5.  The Shuffle
+6.  Get It On
+7.  Now Forever And After
+8.  Hideaway
+9.  Lovin' You
+10.  Shout It Out
+
+Danny Stag - Lead Guitar
+James Kottak - Drums
+Rick Steier - Rhythm Guitar
+Lenny Wolf - Vocals
+Johnny B.Frank - Bass
+
+
+(P)c 1988
+
+### "In Your Face" 1989, Hard Rock
+
+1.  Do You Like It
+2.  Who Do You Love
+3.  The Wind
+4.  Gotta Go (Can't Wage A War)
+5.  Highway
+6.  Perfect 'O'
+7.  Just Like A Wild Rose
+8.  Overrated
+9.  Mean Dirty Joe
+10.  Stargazer
+
+James Kottak - Drums
+Rick Steier - Rhythm Guitar
+Lenny Wolf - Vocals
+Johnny B.Frank - Bass
+Danny Stag - Drums
+
+(P)c 1989
+
+### "Hands Of Time" 1991, Hard Rock
+
+1.  I've Been Trying $
+2.  Should I *
+3.  You'll Never Know $
+4.  Both Of Us *
+5.  Stay $ 
+6.  Blood On The Land $
+7.  SHOT DOWN *
+8.  You're Not The Only...I Know $
+9.  Do I Belong $
+10.  Can't Deny *
+11.  Hands Of Time *
+
+Vocals and Guitar: Lenny Wolf
+Guitar Solos: Blues Saraceno - "Can't Deny," "You'll Never Know," "Do I Belong"
+Marco Moir - "Should I"
+Bert Meulendijk - "You're Not The Only...I Know"
+Lenny Wolf - "Stay," "I've Been Trying"
+Keyboards: Koen van Baal
+Bass Guitar: Lenny Wolf
+Drums: Jimmy Bralower, Steve Burke
+
+All music by Lenny Wolf, lyrics by Lenny Wolf and Carol Tatum
+except "Can't Deny" lyrics by Lenny Wolf and Marty Wolff
+"I've Been Trying" music and lyrics by Lenny Wolf.
+Thanks to: Jimmy Crespo, Carmine Appice, Stephan Galfas, Gerd Kromholz, Stan Diamond,
+Michael Miller, Bart Sloothaak, Marcel Celderblom and everyone at Wisseloord Studios.
+Special thanks to: Nigel Thomas, Jim Lewis, Davitt Sigerson, Rick Dobbis, Chris Roberts,
+Goetz Kiso, Jerry Gieseking, Thomas Starckjohann and everyone at Polydor Records around the world.
+Cover Concept: Marianna Asprey
+Photography: Howard Berman
+Art Direction: Margery Greenspan / Design: Alli
+Kingdom Come model by George Sal
+Stylist: Lisa Hammond
+Hair & Makeup: Robert Occhipinti
+
+Recorded at: Wisseloord Studios, Holland and The Hit Factory, New York
+Recorded by: Cary Lyons ("Don't Make A Scene")
+Assistant: Albert Boekholt
+
+* Mixed by: Lenny Wolf a Cary Lyons at Wisseloord
+$ Mixed by: Lenny Wolf a Dave Bianco at The Hit Factory
+Mix assisted by: Joe Pirrera
+
+Management: Nigel Thomas
+Produced by Lenny Wolf
+
+(P)c 1991
+
+### "Bad Image" 1993, Hard Rock
+
+1.Passion Departed
+ 2.You're The One
+ 3.Fake Believer
+ 4.Friends
+ 5.Mad Queen
+ 6.Pardon The Difference (But I Like It)
+ 7.Little Wild Thing
+ 8.Can't Resist
+ 9.Talked Too Much
+10.Glove Of Stone
+11.Outsider
+
+### "Twilight Cruiser" 1995, Hard Rock
+
+1. Always On The Run 
+2. Law of Emotions 
+3. Twilight Cruiser 
+4. Janine 
+5. Hope Is On Fire 
+6. Thank You All 
+7. Rather Be On My Own 
+8. Can't Put Out and Not Take Back 
+9. Cold Ground 
+10.I Don't Care 
+11.Gonna Change 
+12.Should Have Known
+
+The Band:
+
+Lenny Wolf - Lead Vocals, Rhythm Guitar
+Markus Deml - Lead Guitar, Rhythm Guitar
+Oliver KieЯner - Bass Guitar, Rhythm Guitar
+Kai Fricke - Drums
+Bernd Fintzen - Keyboards
+
+Album Credits:
+
+Produced by Lenny Wolf and Kingdom Come
+Engineered and Recorded by whoever had time and others at Elbdeich 23 Studio, Hamburg, Germany and Cornerstone Studio, L.A., CA
+Mixed by Eric "Hectic" Greedy with Lenny Wolf and Kai Fricke
+All music composed by Lenny Wolf
+
+
+Lyrics written by Lenny Wolf, Galen Walker, and Luca Marie 
+
+(P)(C) 1995
+
+### "Live" 1996, Hard Rock
+
+1.  Living Out Of Touch
+2.  Blood On The Land
+3.  I Don't Care
+4.  What Love Can Be
+5.  Always On The Run
+6.  Do You Like It
+7.  Thank You All
+8.  Hope Is On Fire
+
+(P)c 1996 VICEROY MUSIC Europe Is A Division Of Dogondke Media Gmbh.
+
+### "Unplugged" 1996, Hard Rock
+
+1.  Friends
+2.  And I Love Her З
+3.  You'll Never Know
+4.  Rather Be On My Own
+5.  Janine
+6.  You're Not The Only (Part I)
+7.  You're Not The Only (Part II)
+
+З - Song By THE BEATLES.
+
+(P)c 1996 VICEROY MUSIC Europe Is A Division Of Dogondke Media Gmbh.
+
+### "Too" 2000, Hard Rock
+
+1. It Ain't So Bad 
+2. Free Your Mind 
+3. Waiting 
+4. Too Late 
+5. You're My Secret 
+6. Hey Man 
+7. Tease 
+8. Mighty Old Man 
+9. Tell Me What I've Done 
+10. Should Have Told You 
+11. Joe English
+
+### "Independent" 2002, Hard Rock
+
+1. I can Feel It
+2. Mother
+3. Tears
+4. Didn'd Understand
+5. Forever
+6. Need A Free Mind
+7. America   
+8. Religion Needs No Winner
+9. Darling
+10. Do You Dare
+11. Easy Talking Hardline
+
+### "Perpetual" 2004, Hard Rock
+
+01. Gotta Move Now
+02. Hang 'em High
+03. Crown of Moscow
+04. Time to Realign
+05. Silhouette Paintings
+06. With the Sun in Mind
+07. King of Nothing
+08. Borrowed Time
+09. Connecting Pain
+10. Watch the Dragon Fly
+11. Inhaling the Silence
+
+### "Ain't Crying For The Moon" 2006, Hard Rock
+
+
+
+### "Magnified" 2009, Hard Rock
+
+Living Dynamite
+No Murderer I Kiss
+24 Hours
+So Unreal
+When I Was
+Over You
+Sweet Killing
+Unwritten Language
+Hey Mama
+The Machine Inside
+Feeding The Flame
++ track special for Russia
+
+### "Rendered Waters" 2011, Hard Rock
+
+01. Can't Deny (newly recorded version)
+02. The Wind (newly recorded version)
+03. Blue Trees (brand new song)
+04. Should I (newly recorded version)
+05. I've Been Trying (newly recorded version)
+06. Pushing Hard (newly recorded version)
+07. Seventeen (newly recorded version)
+08. Is It Fair Enough (brand new song)
+09. Living Out Of Touch (newly recorded version)
+10. Don't Remember (brand new song)
+11. Break Down The Wall (newly recorded version) 
+
+### "Outlier" 2013, Hard Rock
+
+
+
 
 ## Отношения с другими группами
 

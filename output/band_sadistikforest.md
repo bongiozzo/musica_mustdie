@@ -1,7 +1,20 @@
 # Sadistik Forest
 
-Дискография
-"Sadistik Forest" 2010, Death Metal
+
+
+## Дискография
+
+### "Sadistik Forest" 2010, Death Metal
+
+1. In the Mazed Pits of the Underworld 
+2. Dying Work of Art	 
+3. The Thrashed Fate 
+4. Relentless Torment 
+5. The Attempt 
+6. Hopeless, Merciless
+7. Apara
+8. Withered
+
 
 ## Отношения с другими группами
 

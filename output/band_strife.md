@@ -1,11 +1,49 @@
 # Strife
 
-Дискография
-"One Truth" 1994, Hardcore
-"In This Defiance" 1997, Hardcore
-"Truth Through Defiance (Compilation)" 1999, Hardcore
-"Angermeans" 2001, Hardcore
-"Witness A Rebirth" 2012, Hardcore
+
+
+## Дискография
+
+### "One Truth" 1994, Hardcore
+
+
+
+### "In This Defiance" 1997, Hardcore
+
+
+
+### "Truth Through Defiance (Compilation)" 1999, Hardcore
+
+
+
+### "Angermeans" 2001, Hardcore
+
+01. Rise again 	
+02. Life Stained Red 	
+03. Spill No Blood 	
+04. Angel Wings 	
+05. Angermeans 	
+06. From These Graves 	
+07. Staring At the Sky 	
+08. Mine Alone 	
+09. Everything Stripped Away 	
+10. Mon Bel Ami
+
+### "Witness A Rebirth" 2012, Hardcore
+
+01. Torn Apart | 01:54
+02. Carry The Torch | 02:53
+03. Show No Mercy | 02:33
+04. No Apologies | 01:54
+05. The Distance | 02:18
+06. Never Look Back | 02:24
+07. In This Defiance | 02:57
+08. The Burden | 02:43
+09. Look Away | 00:59
+10. Face Your Failures | 01:49
+11. End Of Days |  03:00
+12. Life Or Death | 03:03
+
 
 ## Отношения с другими группами
 

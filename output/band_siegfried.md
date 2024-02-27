@@ -1,9 +1,106 @@
 # Siegfried
 
-Дискография
-"Drachenherz" 2001, Folk
-"Eisenwinter" 2003, Folk
-"Nibelung " 2009, Gothic
+German Folk Metal
+
+## Дискография
+
+### "Drachenherz" 2001, Folk
+
+1 - Balmung
+2 - Rheingold
+3 - Jerusalem
+4 - Flagellum Dei
+5 - Walpurgisnacht
+6 - Hexenblut
+7 - Der K&#1094;nig und die Eiche
+8 - Die Rabenschlacht
+9 - Siegfried
+10 - Schwarzer Engel
+11 - Drachenherz
+
+Bruder Cle: Alle Lyrics und Shouts
+Ortwin: Instrumentation und Arrangements
+Sandra Schleret: Gesang
+Moritz Neuner: Drums
+Werner: Gesang
+Roland Wurzer: Bass
+
+Recorded in Mirror Productions Studio, Innsbruck, during Summer 2001.
+Produced by Roland Wurzer
+Drachenherz wurde in den mirror-productions tonstudios
+im juli/august 2001 aufgenommen
+Produziert von Roland Wurzer, Stefan Graf und Siegfried
+Co-produced by Lem Enzinger
+Engineered von Roland Wurzer, Stefan Graf
+Kompositionen von Daniel Bachmaier
+Texte von Bruder Cle auber Schwarzer Engel - Sandra Schleret
+Fotographien von Joachim Gergauer
+Cover artwork von Stefan Lechner
+Design von Martin "Dino" Glotz, Sandra Schleret und Georg Hrauda
+
+(p) 2001 Napalm Records
+
+### "Eisenwinter" 2003, Folk
+
+01. Eisenwinter
+02. Nachtgebet
+03. Rauhnacht
+04. Die Treuewacht
+05. Am Isenstein
+06. Eckesachs
+07. Winterblut
+08. Untot
+09. Hagen von Tronje
+10. Du und ich (bonus)
+
+Sandra Schleret: - All female vocals
+Bruder Cle alias Hagen - All lyrics and aggressive
+shouts
+Werner Bialek - Epic vocals
+Daniel 'Ortwin' Bachmaier - All songwriting und
+arrangements, guitar
+Hannes 'Schattwan' Krause - Keyboards
+Roland Wurzer - Bass
+Moritz Neuner - Drums
+
+Eisenwinter wurde im Februar/Marz 2003 im Mirror
+Studio aufgenommen Produziert von Stefan Graf,
+Roland Wurzer und Siegfried
+Engineered von Stefan Graf, Roland Wurzer
+Alle songs und arrangements von Daniel Bachmaier
+Alle texte von Bruder Cle
+Eisenwinter - Intro von Stefan Graf
+
+Fotographien von Michael Putzlocher
+Coverartwork von Stefan Lechner
+Booklet-design von Wilhelm Steiner
+
+
+### "Nibelung " 2009, Gothic
+
+1. Der Ring der Nibelungen 05:58  
+2. Fafnir 04:44  
+3. Die Eisenfaust (Alberich) 03:54  
+4. Die Prophezeihung 04:07  
+5. Brunhild 04:41  
+6. Sachsensturm 04:04  
+7. Totenwacht 05:02  
+8. Der Todesmarsch 04:52  
+9. Die Gцtterdдmmerung 05:55 
+
+
+
+Last chapter of Siegried's trilogy
+
+Line-up:
+Sandra Schleret - Vocals
+Werner Bialek - Vocals
+Hagen - Harsh Vocals
+Ortwin - Guitars
+Schattwan - Keyboards
+Johannes Leierer - Bass
+Patrick Schrittwieser - Drums 
+
 
 ## Отношения с другими группами
 

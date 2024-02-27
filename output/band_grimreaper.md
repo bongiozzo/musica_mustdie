@@ -1,10 +1,59 @@
 # Grim Reaper
 
-Дискография
-"See You in Hell" 1983, Heavy Metal
-"Fear No Evil" 1985, Heavy Metal
-"Rock You to Hell" 1987, Heavy Metal
-"Walking in the Shadows" 2016, Heavy Metal
+
+
+## Дискография
+
+### "See You in Hell" 1983, Heavy Metal
+
+1. See You in Hell  04:18  
+2. Dead on Arrival  04:33  
+3. Liar  02:48  
+4. Wrath of the Ripper  03:13
+5. Now or Never  02:52  
+6. Run For Your Life  03:41   
+7. The Show Must Go On  06:53  
+8. All Hell Let Loose  04:24 
+
+### "Fear No Evil" 1985, Heavy Metal
+
+1. Fear No Evil  03:59 
+2. Never Coming Back  03:32   
+3. Lord of Darkness (Your Living Hell)  02:59  
+4. Matter of Time  04:14
+5. Rock and Roll Tonight  04:03  
+6. Let the Thunder Roar  04:05   
+7. Lay it on the Line  04:08   
+8. Fight for the Last  02:59   
+9. Final Scream  05:28 
+
+### "Rock You to Hell" 1987, Heavy Metal
+
+1. Rock You To Hell  04:01   
+2. Night of the Vampire  03:45 
+3. Lust for Freedom  04:26   
+4. When Heaven Comes Down  04:23   
+5. Suck It And See  02:34 
+6. Rock Me 'Till I Die  04:43   
+7. You'll Wish That You Were Never Born  04:06 
+8. Waysted Love  04:18 
+9. I Want More  04:52 
+
+### "Walking in the Shadows" 2016, Heavy Metal
+
+“Wings Of Angels”
+“Walking In The Shadows”
+“Reach Out”
+“I’m Coming For You”
+“From Hell”
+“Call Me In The Morning”
+“Rock Will Never Die”
+“Temptation”
+“Thunder”
+“Now You See Me”
+“Blue Murder”
+“Come Hell Or High Water”
+
 
 ## Отношения с другими группами
 

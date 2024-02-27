@@ -1,7 +1,37 @@
 # RAHOWA
 
-Дискография
-"Cult Of The Holy War" 1995, Death Doom
+
+
+## Дискография
+
+### "Cult Of The Holy War" 1995, Death Doom
+
+1.  Preludium In G
+2.  Man Against Time
+3.  When America Goes Down
+4.  March Of The Dead
+5.  Hall Of The Heroes
+6.  In The Fires Of 1945
+7.  The Last Battalion
+8.  Anvil Of Crom
+9.  Might Is Right
+10.RAHOWA
+11.God Is Dead
+12.The Snow Fell *
+13.Ode To A Dying People
+
+All Songs By RAHOWA, except * By SKREWDRIVER.
+Produced By Corrado / Latvis / Hawthorne.
+
+George Eric Hawthorne - Lead Vocals, Backing Vocals, Guitar
+Jim Jones - Live Bass
+Jon Latvis - Lead Guitar, Keyboards, Piano, Backing Vocals, Studio Bass, Cello
+Graham Stolz - Rhythm Guitar
+Carl Alexander - Keyboards
+Wolfgang Mortuus - Drums
+
+(P)(C) 1995 RESISTANCE Records
+
 
 ## Отношения с другими группами
 

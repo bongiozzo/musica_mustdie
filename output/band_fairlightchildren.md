@@ -1,7 +1,13 @@
 # Fairlight Children
 
-Дискография
-"808bit" 2003, Metal
+electro lounge
+
+## Дискография
+
+### "808bit" 2003, Metal
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,19 @@
 # Spellcraft
 
-Дискография
-"Stirpe Obscura" 2008, Black Metal
+
+
+## Дискография
+
+### "Stirpe Obscura" 2008, Black Metal
+
+1. The Souldevourer	 
+2. Stirpe Obscura	 
+3. Sons of the Dying Sun	 
+4. Beyond the Lost Forest	 
+5. Adaegia	 
+6. Crossing the Seventh Gate	 
+7. Kiss Me From the Darkness
+
 
 ## Отношения с другими группами
 

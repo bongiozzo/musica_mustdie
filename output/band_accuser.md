@@ -1,18 +1,104 @@
 # Accuser
 
-Дискография
-"The Conviction" 1987, Thrash
-"Experimental Error (EP)" 1988, Thrash
-"Who Dominates Who?" 1989, Thrash
-"Double Talk" 1991, Thrash
-"Repent" 1992, Metal
-"Confusion/Romance (EP)" 1994, Metal
-"Reflections" 1994, Metal
-"Take By The Throat" 1995, Thrash
-"Agitation" 2010, Thrash
-"Dependent Domination" 2011, Metal
-"Diabolic" 2013, Metal
-"The Forlorn Divide" 2016, Thrash
+
+
+## Дискография
+
+### "The Conviction" 1987, Thrash
+
+
+
+### "Experimental Error (EP)" 1988, Thrash
+
+
+
+### "Who Dominates Who?" 1989, Thrash
+
+
+
+### "Double Talk" 1991, Thrash
+
+
+
+### "Repent" 1992, Metal
+
+
+
+### "Confusion/Romance (EP)" 1994, Metal
+
+
+
+### "Reflections" 1994, Metal
+
+
+
+### "Take By The Throat" 1995, Thrash
+
+1.  Healium
+2.  Take By The Throat
+3.  Fatal Vision
+4.  Fire Ignities
+5.  Obey !
+6.  Condemnation
+7.  Blasting In Progress
+8.  The Slug
+9.  Stonefaced
+10.Amnesia
+
+Frank Thoms - Vocals, Guitars
+Guido Venzlauff - Bass
+Rene Shultz - Guitars
+Volker Borchert - Drums
+
+Recorded & Mixed At Pyramid Sound Studio.
+Produced, Recorded & Mixed By Alex Perialas.
+Engineered By Alex Perialas & Rob 'Wacko' Hunter.
+Mastered By Tom Coyne At Sterling Sound.
+
+(P)(C) 1995 KOCH INTERNATIONAL / NO BULL Records
+
+### "Agitation" 2010, Thrash
+
+1. No Feats  04:56    
+2. Chaincrusher  04:16   
+3. Century of the Fall  04:07    
+4. King of South  05:59  
+5. Agitation  02:52 
+6. Prophecies  05:14  
+7. The Eye of the Truth  04:52 
+8. Strength for All  05:55    
+9. Criminal Solution  06:42 
+
+### "Dependent Domination" 2011, Metal
+
+
+
+### "Diabolic" 2013, Metal
+
+01. Apocalyptic Decay
+02. Diabolic
+03. Cannibal Insanity
+04. Deification
+05. Dethroned
+06. Beyond The Blackness
+07. Save Your Legend
+08. Immortal Aggression
+09. Remains Of Chaos
+10. World Wide Violence
+
+### "The Forlorn Divide" 2016, Thrash
+
+01. Predawn
+02. Lust For Vengeance
+03. Unreal Perception
+04. Arbitary Law
+05. Impending Doom
+06. Tribulation
+07. Perish By Oblivion
+08. Fifth Column
+09. Sulfur Rain
+10. Flow Of Dying
+
 
 ## Отношения с другими группами
 

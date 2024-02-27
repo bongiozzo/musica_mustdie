@@ -1,8 +1,28 @@
 # Depressive Reality
 
-Дискография
-"Growling Death" 2004, Death Metal
-"Las Sombras" 2007, Death Metal
+
+
+## Дискография
+
+### "Growling Death" 2004, Death Metal
+
+
+
+### "Las Sombras" 2007, Death Metal
+
+1. It is too late
+2. (Paranoic) FEAR (1st version)
+3. Marcha fonebre
+4. A poison tree
+5. Song for Deatd
+6. Insomnia
+7. I don't feel well
+8. After the Storm
+9. (Paranoic) FEAR (2nd version)
+10. Picture of a lost soul
+11. Brain Aliens
+12. Boneyard
+
 
 ## Отношения с другими группами
 

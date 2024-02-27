@@ -1,28 +1,460 @@
 # Sodom
 
-Дискография
-"In the Sign of Evil" 1984, Speed Metal
-"Obsessed by Cruelty" 1986, Thrash
-"Persecution Mania" 1987, Thrash
-"Expurse of Sodomy" 1987, Thrash
-"Mortal Way of Live" 1988, Thrash
-"Ausgebombt" 1989, Thrash
-"Agent Orange" 1989, Thrash
-"Better Off Dead" 1990, Thrash
-"Tapping the Vein" 1992, Thrash
-"Get What You Deserve" 1994, Thrash
-"Marooned Live" 1994, Thrash
-"Masquerade in Blood" 1995, Thrash
-"'Til Death Do Us Unite" 1997, Thrash
-"Code Red" 1999, Thrash
-"M-16" 2001, Thrash
-"One Night in Bangkok (live)" 2003, Thrash
-"Sodom" 2006, Thrash
-"The Final Sign Of Evil" 2007, Thrash
-"In War and Pieces " 2010, Thrash
-"Epitome of Torture" 2013, Thrash
-"Decision Day" 2016, Thrash
-"Days of Retribution (EP)" 2016, Thrash
+Legend of Heavy Thrash
+
+## Дискография
+
+### "In the Sign of Evil" 1984, Speed Metal
+
+1. Outbreak Of Evil
+2. Sepulchral Voice
+3. Blasphemer
+4. Witching Metal
+5. Burst Command Til War
+
+ Angel Ripper - Exploder Black & Red Bass And Bestial Disaster Vocals
+ Witchhunter - Atomic Drum Invasion
+ Grave Violator - Dynamic Power Plant Guitars
+
+Produced By Wolfgang Eichholz
+Engineered By Horst MБller
+Cover Painting By Joachim Pieczulski
+Design: Detlef Schmidt
+
+(p)+(c) 1985 STEAMHAMMER
+
+### "Obsessed by Cruelty" 1986, Thrash
+
+1. Deathlike Silence
+2. Brandish The Sceptre
+3. Proseltytism Realm
+4. Equinox
+5. After The Deluge
+6. Obsessed By Cruelty
+7. Fall Of Majesty Town
+8. Nuctemeron
+9. Pretenders To The Throne
+10.Withhammer
+11.Volcanic Slut
+
+ Angel Ripper - Vocals & Bass
+ Witchhunter - Drums & Percussion
+ Destructor - Guitar
+
+Recorded At Studio Hilpoltstein
+Engineered By Bobby Bachinger
+
+(p)+(c) 1986 STEAMHAMMER
+
+
+### "Persecution Mania" 1987, Thrash
+
+1. Nuclear Winter     5.22
+2. Electrocution     3.11
+3. Iron Fist      2.42
+4. Persecution Mania     3.36
+5. Enchanted Land     3.56
+6. Procession To Golgotha    2.00
+7. Christ Passion     6.10
+8. Conjuration     3.40
+9. Bombenhagel     5.04
+
+ Tom Angelripper - Bass & Voice
+ Chris Witchhunter - Drums & Percussion
+ Frank Blackfire - Lead Guitar
+
+(p)&(c) 1987 STEAMHAMMER Records
+
+### "Expurse of Sodomy" 1987, Thrash
+
+1. Sodomy And Lust
+2. The Conqueror
+3. My Atonement
+
+(p)&(c) 1987 STEAMHAMMER Records
+
+
+### "Mortal Way of Live" 1988, Thrash
+
+1. Persecution Mania
+2. Outbreak Of Evil
+3. Conqueror
+4. Iron Fist
+5. Obsessed By Cruelty
+6. Nuclear Winter
+7. Electrocution 
+8. Blasphemer
+9. Enchanted Land
+10.Sodomy & Lust
+11.Christ Passion
+12.Bombenhagel
+13.My Atonement
+
+All Music By SODOM
+All Lyrics By Angelripper
+
+(p)&(c) 1988 STEAMHAMMER Records
+
+
+### "Ausgebombt" 1989, Thrash
+
+ Part One:
+1. Ausgebombt /German Version/ 3.03
+ Part Two:
+1. Don't Walk Away 2.55
+2. Incest 4.29
+
+Tom Angelripper - Voice & Bass
+Frank Blackfire - Guitars & Vocals
+Chris Witchhunter - Drums & Vocals
+
+(p)&(c) 1989 STEAMHAMMER Records
+
+### "Agent Orange" 1989, Thrash
+
+1. Agent Orange
+2. Tired And Red
+3. Incest
+4. Remember The Fallen
+5. Magic Dragon
+6. Exhibition Bout
+7. Ausgemombt
+8. Baptism Of Fire
+
+ Tom Angelripper - Bass & Voice
+ Chris Witchhunter - Drums & Percussion
+ Frank Blackfire - Lead Guitar
+
+(p)&(c) 1989 STEAMHAMMER 
+
+
+### "Better Off Dead" 1990, Thrash
+
+An Eye For An Eye
+Shellfire Defense
+The Saw Is The Law
+Turn Your Head Around
+Capture The Flag
+Cold Sweat
+Bloodtrails
+Never Healing Wound
+Better Off Dead
+Resurrection
+Tarred And Feathered
+Stalinorgel
+
+
+ Tom Angelripper - Bass & Voice
+ Chris Witchhunter - Drums & Percussion
+ Michael Hoffmann - Lead Guitar
+
+Produced & Mixed By Harris Johns During
+Aug / Sept 1990
+
+(p)&(c) 1990 STEAMHAMMER Records
+
+### "Tapping the Vein" 1992, Thrash
+
+1. Body Parts
+2. Skinned Alive
+3. One Step Over The Line
+4. Deadline
+5. Bulled In The Head
+6. The Crippler
+7. Wachturm
+8. Tapping The Vein
+9. Back To War
+10.Hunting Season
+11.Reincarnation
+
+(p)&(c) 1992 STEAMHAMMER Records
+
+
+### "Get What You Deserve" 1994, Thrash
+
+1. Get What You Deserve
+2. Jabba The Hut
+3. Jesus Screamer
+4. Delight In Slaying
+5. Die Stumme Ursel
+6. Freaks Of Nature
+7. Eat Me !
+8. Unbury The Hatchet
+9. Into Perdition
+10.Sodomized
+11.Fellows In Misery
+12.Tribute To Moby Dick
+13.Erwachet !
+14.Gomorrah
+15.Angel Dust *
+
+Produced By SODOM & Wolf G.Stach.
+Engineered By Wolf G.Stach.
+Recorded In Autumn 1993 At T&T Studio.
+All Songs By SODOM, Except * By VENOM.
+
+Tom Angelripper - Bass & Vocals
+Andy Brings - Guitars & Backing Vocals
+Atomic Steif - Schlagzeug
+
+(P)&c 1994 STEAMHAMMER Productions
+
+### "Marooned Live" 1994, Thrash
+
+1.  Intro
+2.  Outbreak Of Evil
+3.  Jabba The Hut
+4.  Agent Orange
+5.  Jesus Screamer
+6.  Ausgebombt
+7.  Tarred And Feathered
+8.  Abuse
+9.  Remember The Fallen
+10.  An Eye For An Eye
+11.  Tired And Red
+12.  Eat Me !
+13.  Die Stumme Ursel
+14.  Sodomized
+15.  Gomorrah
+16.  One Step Over The Line
+17.  Freaks Of Nature
+18.  Aber Bitte Mit Sahne
+19.  Silence Is Consent
+20.  Wachturm / Erwachet
+21.  Stalinhagel
+22.  Fratricide
+23.  Gone To Glory
+
+(P)c 1994 STEAMHAMMER Records
+
+### "Masquerade in Blood" 1995, Thrash
+
+1.  Masquerade In Blood
+2.  Gathering Of Minds
+3.  Fields Of Honour
+4.  Braindead
+5.  Verrecke !
+6.  Shadow Of Damnation
+7.  Peacemaker's Law
+8.  Murder In My Eyes
+9.  Unwanted Youth
+10.Mantelmann
+11.Scum
+12.Hydrophobia
+13.Let's Break The Law *
+
+All Songs Written By SODOM,Except Of * Written By ANTI NOWHERE LEAGUE.
+Produced By Ulli Posselt & Tom Angelripper.
+Engineered By Ulli Posselt.
+Recorded & Mixed At  RA.SH Studio,Gelsenkirchen 1995.
+
+Tom Angelripper - Bass,Vocals
+Atomic Steif - Drums
+Dirk Strahlmeier - Guitars
+
+(P)&(C) 1995 STEAMHAMMER Productions
+
+### "'Til Death Do Us Unite" 1997, Thrash
+
+1.  Frozen Screams
+2.  Fuck The Police
+3.  Gisela
+4.  That's What An Unknown Killer Diarized
+5.  Hanging Judge
+6.  No Way Out
+7.  Polytoximaniac
+8.  'Til Death Do Us Unite
+9.  Hazy Shade Of Winter
+10.Social Justice
+11.Wander In The Valley
+12.Sow The Seeds Of Discord
+13.Master Of Disguise
+14.Schwerter Zu Pflugscharen
+15.Hey, Hey Rock'N'Roll Star
+
+Recorded, Produced, Mixed By Harris Johns.
+
+Bernemann - Guitars
+Tom Angelripper - Vocals & Bass
+Bobby - Drums
+
+(P)(C) 1997 GUN Records
+
+### "Code Red" 1999, Thrash
+
+   Intro                    0.43
+   Code red                 3.55
+   What Hell can create     3.38
+   Tombstone                3.55
+   Liquidation              2.44
+   Spiritual demise         2.51
+   Warlike conspiracy       2.48
+   Cowardice                4.15
+   The vice of killing      4.20
+   Visual buggery           3.13
+   Book burning             2.33
+   The wolf & The lamb      3.18
+   Addicted to abstinence   2.35
+
+   Tom Angelripper  Bass, Vocals
+   Bernemann              Guitar
+   Bobby      Drums & Percussion
+
+### "M-16" 2001, Thrash
+
+1. Among the Weirdcong  5:07
+2. I Am the War  4:06
+3. Napalm in the Morning  5:56
+4. Minejumper  3:11
+5. Genocide  4:49
+6. Little Boy  4:08
+7. M-16  4:49
+8. Lead Injection  6:24
+9. Cannon Fodder  3:53
+10. Marines  3:55
+11. Surfin' Bird  2:39
+
+
+### "One Night in Bangkok (live)" 2003, Thrash
+
+Disc I: 
+Among The Weirdcong 
+The Vice Of Killing 
+Der Wachturm 
+The Saw Is The Law 
+Blasphemer 
+Sodomized 
+Remember The Fallen 
+I Am The War 
+Eat Me! 
+Masquerade In Blood 
+M-16 
+Agent Orange 
+Outbreak OF Evil 
+
+Disc II: 
+Sodomy & Lust 
+Napalm In The Morning 
+Fuck The Police 
+Tombstone 
+Witching Metal 
+The Enemy Inside (New Track) 
+Die Stumme Ursel 
+Ausgebombt 
+Code Red 
+Ace Of Spades 
+Stalinhagel 
+Video Track: Among The Weirdcong
+
+### "Sodom" 2006, Thrash
+
+01. Blood On Your Lips
+02. Wanted Dead
+03. Buried In The Justice Ground
+04. City Of God
+05. Bibles And Guns
+06. Axis Of Evil
+07. Lords Of Depravity
+08. No Captures
+09. Lay Down The Law
+11. Nothing To Regret
+12. The Enemy Inside
+Bonus track for Japan:
+13. Kamikaze Terrorizer
+
+### "The Final Sign Of Evil" 2007, Thrash
+
+
+
+### "In War and Pieces " 2010, Thrash
+
+1. In War and Pieces 04:11  
+2. Hellfire 03:07  
+3. Through Toxic Veins 04:43  
+4. Nothing Counts More Than Blood 03:49  
+5. Storm Raging Up 05:08  
+6. Feigned Death Throes 03:59  
+7. Soul Contraband 03:50  
+8. God Bless You 05:10  
+9. The Art of Killing Poetry 04:38  
+10. Knarrenheinz 03:37  
+11. Styptic Parasite 05:13 
+
+
+It'll come in a Limited Edition Digipak containing a bonus CD Live
+in Wacken 2007. The track listing is as it follows:
+
+CD 2 (Bonus Live At Wacken Open Air 2007)
+1. Blood On Your Lips
+2. City Of God
+3. Proselytism Real
+4. Christ Passion
+5. One Step Over The Line
+6. Abuse
+7. Sodomy And Lust
+8. Ausgebombt
+9. The Saw Is The Law
+10. Outbreak Of Evil
+
+Also it will be available in double 2 blood red coloured LP containing a bonus
+track: 
+Murder One
+
+Released including the "Wacken, 25th Anniversary show 2007" live + the "Ten
+Black Years" 2CD compilation, this edition exclusive to the Nuclear Blast
+mailorder only. 
+
+Tom Angelripper (Thomas Such) - Vocals, Bass 
+Konrad "Bobby" Schottkowski - Drums 
+Bernemann (Bernd Kost) - Guitar
+
+### "Epitome of Torture" 2013, Thrash
+
+
+
+### "Decision Day" 2016, Thrash
+
+Disc 1
+01. In Retribution
+02. Rolling Thunder
+03. Decision Day
+04. Caligula
+05. Who Is God?
+06. Strange Lost World
+07. Vaginal Born Evil
+08. Belligerence
+09. Blood Lions
+10. Sacred Warpath
+11. Refused To Die
+12. Predatory Instinct (bonus) 04:44 
+
+Disc 2 (DVD)  
+1. My Final Bullet  
+2. Outbreak of Evil 
+3. Surfin' Bird / The Saw Is the Law  
+4. M-16  
+5. Nuclear Winter  
+
+Recorded and mixed at Rambado Recordings in Essen, Germany.
+Mastered at Flying Pigs Studio in Schwerte, Germany.
+
+### "Days of Retribution (EP)" 2016, Thrash
+
+01. In Retribution (Neuer Track) 06:16
+02. Murder One 03:30
+03. Ace Of Spades (Motцrhead cover) 02:38
+04. Kamikaze Terrorizer 03:45
+05. Waterboarding 05:08
+06. Wachturm (Live) 04:07
+07. The Saw Is The Law (Live) 05:00
+
+
+ Physically released with Legacy Magazine number 103, 04/16
+ Track 1 taken from Decision Day
+ Track 2 taken from In War and Pieces
+ Tracks 3, 5 taken from Epitome of Torture
+ Track 4 taken from Sodom
+
 
 ## Отношения с другими группами
 

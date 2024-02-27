@@ -1,12 +1,102 @@
 # Cianide
 
-Дискография
-"The Dying Truth" 1992, Death Metal
-"A Descent To Hell" 1994, Death Metal
-"Death, Doom And Destruction" 1997, Death Metal
-"Divide And Conquer" 2000, Death Metal
-"Hell's Rebirth" 2005, Death Metal
-"Gods Of Death" 2011, Death Metal
+
+
+## Дискография
+
+### "The Dying Truth" 1992, Death Metal
+
+1. Mindscrape
+2. Human Cesspool
+3. The Suffering
+4. Scourging At The Pillar
+5. Crawling Chaos
+6. The Dying Truth
+7. Funeral
+8. Second Life
+
+ Mike Perun - Vocals & Bass
+ Scott Carroll - Guitars
+ Jeff Kabella - Drums
+
+All Songs Written By CIANIDE.
+Produced By Bob Pucci,Steve Mueller & CIANIDE.
+Engineered By Bob Pucci & Steve Mueller.
+Recorded At Studio 53,Palafine,Illinois.
+Mixed At Studio 53 By Bob Blom,Mark Nawara & CIANIDE.
+
+(p)&(c) 1992 RED LIGHT ENTERTAINMENT GROUP Inc.
+                       GRINDCORE Records
+
+
+### "A Descent To Hell" 1994, Death Metal
+
+1. Gates Of Slumber
+2. Eulogy
+3. The Undead March
+4. The Luciferian Twilight
+5. Beyond The Fallen Horizon
+6. Darkness
+7. Death Dealer
+8. Mountains In Thunder
+
+ Scott - Guitars
+ Mike - Bass, Vocals
+ Jeff - Drums
+
+All Songs Written By CIANIDE
+Produced & Engineered By Lord Hrothgar
+Recorded At Chicago Trax
+
+(p)&(c) 1994 RED LIGHT Records
+
+### "Death, Doom And Destruction" 1997, Death Metal
+
+1. Rage War
+2. This World Will Burn
+3. Metal Never Bends
+4. Envy and Hatred
+5. The Power to Destroy
+6. Salvation
+7. Deadly Spawn
+8. (We Are the) Doomed
+
+### "Divide And Conquer" 2000, Death Metal
+
+1. Divide and Conquer
+2. Throne of Blood
+3. Death Machine
+4. Armed to the Teeth
+5. Apocalyptic Fears
+6. Filled with Hate
+7. One-Thousand Ways to Die
+8. Battle - Scarred
+9. Bastardized
+10. Remain in Hell
+
+### "Hell's Rebirth" 2005, Death Metal
+
+1. The Age of Hell's Rebirth
+2. Death Metal Maniac
+3. Trust No One
+4. Curse of the Dead
+5. Fires That Consume
+6. World Abyss
+7. Powerhead
+8. Sickened to Behold
+9. Wormfeast
+
+### "Gods Of Death" 2011, Death Metal
+
+1. Desecration Storm
+2. Forsaken Doom
+3. Rising of the Beast
+4. Dead and Rotting
+5. Idolator
+6. Terrorstrikes
+7. The One True Death
+8. Contained and Controlled
+
 
 ## Отношения с другими группами
 

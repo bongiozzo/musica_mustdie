@@ -1,7 +1,13 @@
 # Kardia
 
-Дискография
-"Frammenti di Violenza Controllata" 2002, Gothic
+
+
+## Дискография
+
+### "Frammenti di Violenza Controllata" 2002, Gothic
+
+
+
 
 ## Отношения с другими группами
 

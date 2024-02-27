@@ -1,7 +1,30 @@
 # Hardware
 
-Дискография
-"Race Religion And Hate" 1996, Gothic
+
+
+## Дискография
+
+### "Race Religion And Hate" 1996, Gothic
+
+1.  What Race ?
+2.  Piece Of Mind
+3.  Back To You
+4.  Faith Fall Down
+5.  Military Hardware
+
+All song written by HARDWARE.
+Produced By Simon Effemey.
+Engineered By Simon Effemey & Simon Morris.
+Recorded & Mixed At Windings Studio, Wales.
+
+Greg David - Vocals
+Paul Solynskyj - Guitar
+Martin Hawthorn - Bass
+Andrew Hoult - Keyboards, Samples
+Aynsley Dickinson - Drums
+
+(P)(C) 1996 BULLET PROOF Records
+
 
 ## Отношения с другими группами
 

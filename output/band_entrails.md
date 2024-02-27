@@ -1,9 +1,41 @@
 # Entrails
 
-Дискография
-"Tales From The Morgue" 2010, Death Metal
-"The Tomb Awaits" 2011, Death Metal
-"Raging Death" 2013, Death Metal
+
+
+## Дискография
+
+### "Tales From The Morgue" 2010, Death Metal
+
+1.Intro: Tales from the morgue 01:08
+2.Blood red 03:29
+3.Voices 04:10
+4.Breath of blood 03:30
+5.Entrails 04:34
+6.Stormy death 03:32
+7.Euthanasia 04:40
+8.Evil obsession 02:37
+9.Triumph of the sinners 07:04
+10.The morgue 04:15
+11.The curse of death 05:31
+
+### "The Tomb Awaits" 2011, Death Metal
+
+
+
+### "Raging Death" 2013, Death Metal
+
+01. In Pieces
+02. Carved To The Bone
+03. Bloodhammer
+04. Headless Dawn
+05. Cadaverous Stench
+06. Descend To The Beyond
+07. Death League
+08. Chained And Dragged
+09. Defleshed
+10. Cemetery Horrors
+
+
 
 ## Отношения с другими группами
 

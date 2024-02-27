@@ -1,10 +1,68 @@
 # The Elysian Fields
 
-Дискография
-"Adelain" 1995, Black Metal
-"We...The Enlightened" 1999, Melodic Death Metal
-"12 Ablaze" 2002, Melodic Death Metal
-"Suffering GOD Almighty" 2005, Melodic Death Metal
+
+
+## Дискография
+
+### "Adelain" 1995, Black Metal
+
+1. I Of Forever
+2. As One
+3. Un Sentiment / I Was Dying Once Again
+4. Of Purity And Black
+5. Foredoomed Elegy
+6. Father Forgive Them (For They Do Not Know)
+7. Elysian Fields
+8. Deicide / The Auspice
+
+All Songs By ELYSIAN FIELDS.
+Produced By M.W.Daoloth & ELYSIAN FIELDS.
+Engineered By George Zaharopoulos.
+Recorded & Mixed At Storm Studio.
+
+ Bill - Vocals,Guitars
+ Michael - Guitars,Bass, Grand Piano
++John - Violin, Keyboards (Session)
++Jim - Drums (Session)
+
+(P)&(C) 1995 UNISOUND Records
+
+### "We...The Enlightened" 1999, Melodic Death Metal
+
+1. Their Blood Be on Us
+2. I Am the Unknown Sky
+3. Until the Night Crise Rise in the Heart 
+4. ...And the Everdawn Faded Away 
+5. Shall They Come Forth Unto Us 
+6. Arcana Caelestia 
+7. The End Shall Be Tragically Fulfilled 
+8. The Last Star of Heven Falls
+9. Wither, Oh Divine, Wither
+
+### "12 Ablaze" 2002, Melodic Death Metal
+
+1. Enshield My Hate Eternal
+2. Of Dawns, Perished Tranquillity
+3. Rapture And The Mourning Virtue
+4. Weak We Stand Before Them
+5. Ablazing 12
+6. A Serenade Like Blood Caress
+7. Even If I Could Forgive
+8. The Entreaty Unsung
+9. As The Light Dissapears
+
+### "Suffering GOD Almighty" 2005, Melodic Death Metal
+
+1. Aeon's Unlight 01:35  
+2. I Am Your Willing Darkness 04:34  
+3. Suffering GOD Almighty 04:59  
+4. Ravished With Thee Light 04:47  
+5. Unleashing The Propaganda 04:03  
+6. I See The Lie Behind All The Truths 04:48  
+7. An Overture Of Sorrows Unfolding 03:33  
+8. All Those Tristful Winters 04:23  
+9. Anathema Unveiled 05:04
+
 
 ## Отношения с другими группами
 

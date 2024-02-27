@@ -1,8 +1,37 @@
 # Pain Confessor
 
-Дискография
-"Turmoil" 2004, Melodic Death Metal
-"Fearrage" 2006, Melodic Death Metal
+
+
+## Дискография
+
+### "Turmoil" 2004, Melodic Death Metal
+
+1. Fiery Thorns 
+2. Hollow Souls 
+3. Whenever Dark Draws Near 
+4. Erased of Empathy 
+5. Poor Mans Crown 
+6. Underworld 
+7. Waste of Good Suffering 
+8. Soul Eraser 
+9. Instinct to Resist 
+10. Lake of Regret 
+11. Just Names Remain
+
+### "Fearrage" 2006, Melodic Death Metal
+
+01. Path to... 
+02. Ruin 
+03. Nemesis 
+04. Fall on Evil Days 
+05. Feardom 
+06. Life Keeps Bleeding 
+07. Another Door 
+08. Pathetic Little Soul 
+09. Butterfly 
+10. Powderburns 
+11. DNA of a God
+
 
 ## Отношения с другими группами
 

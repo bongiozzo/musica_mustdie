@@ -1,7 +1,13 @@
 # Ultraviolence
 
-Дискография
-"Blown Away 94 - 04 (2 CD)" 2004, Metal
+hardcore techno dance
+
+## Дискография
+
+### "Blown Away 94 - 04 (2 CD)" 2004, Metal
+
+
+
 
 ## Отношения с другими группами
 

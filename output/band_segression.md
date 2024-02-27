@@ -1,9 +1,92 @@
 # Segression
 
-Дискография
-"05.05....." , Death Metal
-"L.I.A." , Death Metal
-"Smile" , Death Metal
+
+
+## Дискография
+
+### "05.05....." , Death Metal
+
+ANTI-VIOLENCE INDICATOR
+
+FUSED MIND OFFENCE
+
+FIFTH OF THE FIFTH
+
+CHAMBER OF MASSES
+
+HIGH SPEED CHANGER
+
+BIOMECHANICAL
+
+RAMROD
+
+DE SPIES
+
+TO STAND TO DIE
+
+6/5
+
+ 
+
+
+### "L.I.A." , Death Metal
+
+CAGE OF NAILS
+
+K.R.K
+
+HOME KILLING
+
+PRIORITY OF VENGEANCE
+
+BLACK SCARRED SOUL
+
+TRIBAL BLOOD
+
+INTERNAL THOUGHT  FLOW
+
+SON OF CAIN
+
+JUDICIAL SELF
+
+CRANIAL PATCH
+
+ 
+
+
+### "Smile" , Death Metal
+
+DR A. HYPE
+
+GONE
+
+CRANIAL PATCH II
+
+THE THICKENING
+
+EXTERNAL - ACTION - RETRACTION
+
+DISEASE ME
+
+JUNKWORLD
+
+SMILE
+
+TANN HAUSERS GATE
+
+BRAIN PINCH
+
+FLESH WRECK
+
+AXILLISM
+
+WHIPPING COLLAR
+ 
+
+ 
+
+
+
 
 ## Отношения с другими группами
 

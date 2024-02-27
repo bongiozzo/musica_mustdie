@@ -1,8 +1,30 @@
 # Cenotaph
 
-Дискография
-"Riding Our Black Ocean" 1995, Death Metal
-"Epic Rites (9 Epic Tales & Death Rites)" 1998, Death Metal
+
+
+## Дискография
+
+### "Riding Our Black Ocean" 1995, Death Metal
+
+1. The Solitude
+2. Severance
+3. Grief To Obscuro
+4. Macabre Locous Celesta
+5. Among The Abrupt
+6. Infinitum Valet
+7. Soul Profundis
+8. Ectasia Tenebrae
+9. The Silence Of Our Black Oceans
+
+Produced By Julian Nuzen & CENOTAPH
+Recorded & Mixed At OIGO Studios, July 1994
+
+(p)&(c) 1995 CYBER Music
+
+### "Epic Rites (9 Epic Tales & Death Rites)" 1998, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

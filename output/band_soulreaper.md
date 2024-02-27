@@ -1,7 +1,19 @@
 # Soulreaper
 
-Дискография
-"Written In Blood" 2000, Death Metal
+swedish death metal band
+
+## Дискография
+
+### "Written In Blood" 2000, Death Metal
+
+1. Darken The Sign
+2. Written In Blood
+3. Satanized
+4. The Seal Of Degradation
+5. Ungodly
+6. Subterranean Might
+7. Labyrinth Of The Death Lord
+
 
 ## Отношения с другими группами
 

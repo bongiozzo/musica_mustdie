@@ -1,18 +1,209 @@
 # Dio
 
-Дискография
-"Holy Diver" 1983, Heavy Metal
-"The Last In Line" 1984, Heavy Metal
-"Sacred Heart" 1985, Heavy Metal
-"Dream Evil" 1987, Heavy Metal
-"Lock Up The Wolves" 1990, Heavy Metal
-"Strange Highways" 1993, Heavy Metal
-"Angry Machines" 1996, Heavy Metal
-"Magica" 2000, Heavy Metal
-"Killing The Dragon" 2002, Heavy Metal
-"Master of the Moon" 2004, Heavy Metal
-"Evil or Divine: Live in New York City" 2005, Heavy Metal
-"Holy Diver Live (2CD)" 2006, Heavy Metal
+
+
+## Дискография
+
+### "Holy Diver" 1983, Heavy Metal
+
+1.  Stand Up And Shout
+2.  Holy Diver
+3.  Gypsy
+4.  Caught In The Middle
+5.  Don't Talk To Strangers
+6.  Straight Through The Heart
+7.  Invisible
+8.  Rainbow In The Dark
+9.  Shame On The Night
+
+Ronnie James Dio - Vocals, Keyboards
+Vinny Appice - Drums
+Jimmy Bain - Bass, Keyboards
+Vivian Campbell - Guitar
+
+(P)c 1983
+
+### "The Last In Line" 1984, Heavy Metal
+
+1.  We Rock
+2.  The Last In Line
+3.  Breathless
+4.  I Speed At Night
+5.  One Night In The City
+6.  Evil Eyes
+7.  Mystery
+8.  Eat Your Heart Out
+9.  Egypt (The Chains Are On)
+
+Ronnie James Dio - Vocals, Keyboards
+Vinny Appice - Drums
+Jimmy Bain - Bass, Keyboards
+Vivian Campbell - Guitar
+Claude Schnell - Keyboards
+
+(P)c 1984
+
+### "Sacred Heart" 1985, Heavy Metal
+
+1.  King Of Rock'N'Roll
+2.  Sacred Heart
+3.  Another Lie
+4.  Rock'N'Roll Children
+5.  Hungry For Heaven
+6.  Like The Beat Of A Heart
+7.  Just Another Day
+8.  Fallen Angels
+9.  Shoot Shoot
+
+Ronnie James Dio - Vocals, Keyboards
+Vinny Appice - Drums
+Jimmy Bain - Bass, Keyboards
+Vivian Campbell - Guitar
+Claude Schnell - Keyboards
+
+(P)c 1985
+
+### "Dream Evil" 1987, Heavy Metal
+
+1.  Night People
+2.  Dream Evil
+3.  Sunset Superman
+4.  All The Fools Sailed Away
+5.  Naked In The Rain
+6.  Overlove
+7.  I Could Have Been A Dreamer
+8.  Faces In The Window
+9.  When A Women Cries
+
+Ronnie James Dio - Vocals, Keyboards
+Vinny Appice - Drums
+Jimmy Bain - Bass, Keyboards
+Craig Goldie - Guitar
+Claude Schnell - Keyboards
+
+(P)c 1987
+
+### "Lock Up The Wolves" 1990, Heavy Metal
+
+1.  Wild One
+2.  Born On The Sun
+3.  Hey Angel
+4.  Between Two Hearts
+5.  Night Music
+6.  Lock Up The Wolves
+7.  Evil On Queen Street
+8.  Walk On Water
+9.  Twisted
+10.  Why Are They Watching Me
+11.  My Eyes
+
+Ronnie James Dio - Vocals, Keyboards
+Simon Wright - Drums
+Teddy Cook - Bass
+Rowan Robertson - Guitars
+Jens Johansson - Keyboards
+
+(P)c 1990
+
+### "Strange Highways" 1993, Heavy Metal
+
+1.  Jesus, Mary & The Holy Ghost
+2.  Firehead
+3.  Strange Highways
+4.  Hollywood Black
+5.  Evilution
+6.  Pain
+7.  One Foot In The Grave
+8.  Give Her The Gun
+9.  Blood From A Stone
+10.Here's To You
+11.Bring Down The Rain
+
+(P)c 1993
+
+### "Angry Machines" 1996, Heavy Metal
+
+1.  Institutional Man
+2.  Don't Tell The Kids
+3.  Black
+4.  Hunter Of The Heart
+5.  Stay Out Of My Mind
+6.  Big Sister
+7.  Double Monday
+8.  Golden Rules
+9.  Dying In America
+10.This Is Your Life
+
+(P)(C) 1996 CBH Records / STEAMHAMMER Records
+
+### "Magica" 2000, Heavy Metal
+
+1 Discovery :54 (Dio) 
+2 Magica Theme 1:16 (Dio) 
+3 Lord of the Last Day 4:04 (Dio) 
+4 Fever Dreams 4:37 (Dio) 
+5 Turn to Stone 5:19 (Dio) 
+6 Feed My Head 5:39 (Dio) 
+7 Ebeil 7:22 (Dio) 
+8 Challis 4:01 (Dio) 
+9 As Long as It's Not About Love 6:28 (Dio) 
+10 Losing My Insanity 5:04 (Dio) 
+11 Otherworld 4:56 (Dio) 
+12 Magica (Reprise) 1:53 (Dio) 
+13 Lord of the Last Day (Reprise) 1:44 (Dio) 
+14 Magica Story 18:26 (Dio)
+
+### "Killing The Dragon" 2002, Heavy Metal
+
+
+
+### "Master of the Moon" 2004, Heavy Metal
+
+
+
+### "Evil or Divine: Live in New York City" 2005, Heavy Metal
+
+Killing the Dragon
+Egypt/Children of the Sea
+Push
+Stand Up and Shout
+Rock and Roll
+Don’t Talk to Strangers
+Man on the Silver Mountain
+Guitar Solo
+Long Live Rock and Roll
+Fever Dreams
+Holy Diver
+Heaven and Hell
+The Last In Line
+Rainbow In The Dark
+We Rock
+
+### "Holy Diver Live (2CD)" 2006, Heavy Metal
+
+CD1:
+
+01. Stand Up and Shout
+02. Holy Diver
+03. Gypsy
+04. Caught in the Middle
+05. Don't Talk to Strangers
+06. Straight Through the Heart
+07. Invisible
+08. Rainbow in the Dark
+09. Shame on the Night
+
+CD2:
+
+01. Tarot Woman
+02. Sign of the Southern Cross
+03. One Night in the City
+04. Gates of Babylon
+05. Heaven & Hell
+06. Man on the Silver Mountain
+07. Long Live Rock ‘N’ Roll
+08. We Rock
+
 
 ## Отношения с другими группами
 

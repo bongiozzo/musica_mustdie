@@ -1,6 +1,9 @@
 # Angry Kakashka
 
-Дискография
+crust/grind from Ukraine
+
+## Дискография
+
 
 ## Отношения с другими группами
 

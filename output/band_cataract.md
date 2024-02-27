@@ -1,8 +1,34 @@
 # Cataract
 
-Дискография
-"With Triumph Comes Loss" 2004, Thrash
-"Cataract" 2008, Hardcore
+
+
+## Дискография
+
+### "With Triumph Comes Loss" 2004, Thrash
+
+1. Killing Tool 
+2. Nothingґs Left 
+3. Vanished In The Dark 
+4. Skies Grow Black 
+5. As We Speak 
+6. Godevil 
+7. Fuel 
+8. Reborn From Fire 
+9. Saving Shelter 
+10. Hallow Horns 
+11. With Triumph Comes Loss 
+
+Line-Up: 
+Greg - Guitar 
+Simon - Guitar 
+Fedi - Vocals 
+Michi - Bass 
+Ricky - Drums
+
+### "Cataract" 2008, Hardcore
+
+
+
 
 ## Отношения с другими группами
 

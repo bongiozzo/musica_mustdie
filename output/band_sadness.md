@@ -1,8 +1,65 @@
 # Sadness
 
-Дискография
-"Ames De Marbre" 1993, Death Doom
-"Danteferno" 1996, Death Doom
+Very Melodic Band
+
+## Дискография
+
+### "Ames De Marbre" 1993, Death Doom
+
+1. Ames De Marbre
+2. Lueurs
+3. Tristessa
+4. Opal Vault
+5. Tears Of Sorrow
+6. Red Script
+7. Antofagasta
+
+ Gradel - All Percussion
+ Andy - Bass Effect & German Voice
+ Chiva - Guitars & Piano
+ Steff - Guitars & Voices
+Additional Musicians:
+ Christine - Female Voice
+ Don Caceres - Sacunachi & Oriental Flute
+ Corinne - Violin & Cello
+
+All Lyrics By Grabel.
+Musical Art By SADNESS.
+Produced & Arranged By SADNESS.
+Engineered By Bernard Amodruz.
+Recorded & Mixed At Studio Syxty,
+Lausanne,Switzerland.
+
+(p)&(c) 1993 WITCHHUNT Records
+
+### "Danteferno" 1996, Death Doom
+
+1. Danteferno (5.20)
+2. The Mark Of The Eldest Son (6.38)
+3. Tribal (3.52)
+4. Delia (4.32)
+5. Below The Shadows (6.11)
+6. Shaman (4.05)
+7. Aphrodite's Thorns (7.27)
+8. Talisman (3.52)
+
+All songs written by SADNESS
+Produced by Martin Eric Ain and Voco
+Faux-Pas
+Engineered by Voco Faux-Pas
+Recorded at Artag Studio, Zurich
+Switzerland
+
+Gradel - Drums and Percussion
+Andy - Bass Guitar
+Chiva - Lead Guitars
+Steff Terry - Guitars and Lead Voc
+Lloyd -Keyboards and Sampler
+Christina Chiistine - Female Voice
+Piano
+
+ (p)(c) 1996 GODHEAD Records
+
 
 ## Отношения с другими группами
 

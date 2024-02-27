@@ -1,7 +1,35 @@
 # Dead Meat
 
-Дискография
-"Stench of Rotten Years" 2009, Deathcore
+
+
+## Дискография
+
+### "Stench of Rotten Years" 2009, Deathcore
+
+1.	 Good Clean Cut	02:47	 
+2.	 Body Naked Mutilated	02:40	 
+3.	 Fisting Open Ass	03:05	 
+4.	 Smell Over the Rotten Pussy	02:06	 
+5.	 Flesh Rotting Fast	03:10	 
+6.	 Cannibalism	02:33	 
+7.	 Kill your Mother, Rape your Dog (Dying Fetus Cover)	01:14	 
+8.	 Just Mutilated…	02:29	 
+9.	 Invared by Worms	03:11	 
+10.	 Fasciitis Necrotizing	04:55	 
+11.	 Human Flesh to Consume	04:55	 
+12.	 Body Naked Mutilated	02:41	 
+13.	 Thanatophilus Rugosus	02:17	 
+14.	 Invared by Worms	03:15	 
+15.	 Slaughterhouse (Mortician Cover)	01:58	 
+16.	 Dead Meat	02:30	 
+17.	 Fasciitis Necrotizing	02:22	 
+18.	 Flesh Rotting Fast	03:06	 
+19.	 Kill your Mother, Rape your Dog (Dying Fetus Cover)	01:29	 
+20.	 Fisting Open Ass	03:12	 
+21.	 Smell Over the Rotten Pussy	02:19	 
+22.	 Suffer the Children (Napalm Death Cover)	04:42	 
+23.	 Cannibalism	03:10
+
 
 ## Отношения с другими группами
 

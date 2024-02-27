@@ -1,7 +1,13 @@
 # North Side Kings
 
-Дискография
-"Suburban Royalty" 2008, Hardcore
+
+
+## Дискография
+
+### "Suburban Royalty" 2008, Hardcore
+
+
+
 
 ## Отношения с другими группами
 

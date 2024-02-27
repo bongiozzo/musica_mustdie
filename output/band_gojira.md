@@ -1,15 +1,198 @@
 # Gojira
 
-Дискография
-"Terra Incognita" 2001, Thrash
-"The Link" 2003, Groove
-"The Link Alive" 2004, Groove
-"From Mars To Sirius" 2005, Groove
-"The Way Of All Flesh" 2008, Groove
-"L'Enfant Sauvage (single)" 2012, Groove
-"L'Enfant Sauvage" 2012, Groove
-"Les Enfants Sauvages" 2014, Groove
-"Magma" 2016, Groove
+
+
+## Дискография
+
+### "Terra Incognita" 2001, Thrash
+
+1. Clone 4:58
+2. Lizard Skin 4:30
+3. Satan Is A Lawyer 4:23
+4. 04 2:09 
+5. Blows Me Away You ( Niverse ) 5:10
+6. 5988 Trillions De Tonnes 1:18
+7. Deliverance 4:54
+8. Space Time 5:21
+9. On The B.O.T.A. 2:47
+10. Rise 5:10
+11. Fire Is Everything 4:57
+12. Love 4:20
+13. 1990 Quatrillions De Tonnes 4:20
+14. In The Forest 12:16
+
+
+
+Self-produced in a Belgian Studio.
+ 
+The last song is followed by a couple of minutes of silence, followed by a hidden instrumental track.
+ 
+Some of these songs are re-recordings of old demo tracks:
+ Tracks 2, 3, 11 and 12 are re-recordings of old songs from the "Wisdom Comes" demo (2000).
+ Tracks 1, 7 and 9 are re-recordings of old songs from the Godzilla (pre-Gojira) "Saturate" demo (1999).
+ 
+Re-released on August 24 2009 by Listenable Records in Europe and October 15 in North America as a limited-edition digipack with three bonus tracks:
+ 15. Clone (Live)
+ 16. Love (Live)
+ 17. Space Time (Live)
+ Total running time: 1:17:25
+ The bonus live tracks were recorded in 2006, at a gig in Antwerpen, Belgium. 
+
+### "The Link" 2003, Groove
+
+1. The link 5:08
+2. Death Of Me 5:46
+3. Connected 1:20 
+4. Remembrance 4:59
+5. Torri 1:49
+6. Indians 3:57
+7. Embrace the World 4:40
+8. Inward Movement 5:51
+9. Over the Flows 3:05
+10. Wisdom Comes 2:26
+11. Dawn 8:01
+
+
+Re-released on Listenable Records 2005 as a remastered version. The music on the remastered version is slightly different in some spots; different tracklenghts due to altered intros/outros etc.
+ 
+Track 10 is a re-recording from the title track of the 2000 "Wisdom Comes" demo.
+ 
+Listed the original tracks lengths, here are the ones for the remastered version:
+ 01. The link 5:00
+ 02. Death of me 5:47
+ 03. Connected 1:18
+ 04. Remembrance 4:35
+ 05. Torii 1:43
+ 06. Indians 3:58
+ 07. Embrace the world 4:39
+ 08. Inward movement 5:53
+ 09. Over the flows 3:05
+ 10. Wisdom comes 2:25
+ 11. Dawn 8:39
+ 
+
+### "The Link Alive" 2004, Groove
+
+01 - Gojira - Connected {1:14} 
+02 - Gojira - Remembrance {4:15} 
+03 - Gojira - Death Of Me {6:01} 
+04 - Gojira - Love {4:10} 
+05 - Gojira - Embrace The World {5:46} 
+06 - Gojira - Drums Solo I {1:47} 
+07 - Gojira - Space Time {5:11} 
+08 - Gojira - Terra Inc. {3:39} 
+09 - Gojira - Indians {3:49} 
+10 - Gojira - (Keep On Listening) {1:25} 
+11 - Gojira - Wisdom Comes {2:59} 
+12 - Gojira - Blow Me Away You (Niverse) {11:46} 
+13 - Gojira - Lizard Skin {4:01} 
+14 - Gojira - Inward Movement {7:27} 
+15 - Gojira - The Link {4:56} 
+16 - Gojira - Drums Solo II {1:26} 
+17 - Gojira - Clone {4:34} 
+18 - Gojira - In The Forest {6:30}
+
+Bonus:
+ Live In Edit, Music Videos, Documentary, History, Photos, etc...
+ 
+Re-released in 2007 on Listenable Records. 
+
+### "From Mars To Sirius" 2005, Groove
+
+1. Ocean Planet 5:32
+2. Backbone 4:18
+3. From the Sky 5:48
+4. Unicorn 2:09
+5. Where Dragons Fall 6:54
+6. The Heaviest Matter Of The Universe 3:57
+7. Flying Whales 7:44
+8. In The Wilderness 7:47
+9. World To Come 6:52
+10. From Mars 2:24
+11. To Sirius 5:37
+12. Global Warming 7:50
+Japanese bonus track:
+13. Escape (Metallica Cover) (05:08) 
+
+### "The Way Of All Flesh" 2008, Groove
+
+01. Oroborus 
+02. Toxic Garbage Island 
+03. A Sight To Behold 
+04. Yama's Messengers 
+05. The Silver Cord 
+06. Adoration For None 
+07. All The Tears 
+08. The Art Of Dying 
+09. Esoteric Surgery 
+10. Vacuity 
+11. Wolf Down The Earth 
+12. The Way Of All Flesh
+
+
+Line-up :
+ Joe Duplantier - Vocals, Guitar 
+Mario Duplantier - Drums 
+Christian Andreu - Guitar 
+Jean-Michel Labadie - Bass 
+
+Guest vocals on "Adoration for None" by Randy Blythe.
+ 
+Produced by Joe Duplantier.
+ Mixed and mastered by Logan Mader for Dirty Icon Productions.
+ Executive Producer - Gabriel Editions
+ Production Manager - Emma Salzard
+ Drums engineered by Logan Mader at Undercity Recordings.
+ Guitars, bass, and vocals engineered by Laurentx Etxemendi at Studio des Milans.
+ Music composed and arranged by Joe Duplantier and Mario Duplantier, except "Oroborus" by Christian Andreu, Joe Duplantier, and Mario Duplantier.
+ All lyrics by Joe Duplantier, except "Adoration for None" by Randy Blythe and Joe Duplantier.
+ Cover illustration by Joe Duplantier.
+ Artwork by Fred Collinet for posedesign.
+ 
+All songs published by Universal Music Publishing.
+ 
+Released on October 14, 2008, in North America by Prosthetic Records.
+ 
+The last song is followed by a couple of minutes of silence, followed by a hidden instrumental track.
+
+### "L'Enfant Sauvage (single)" 2012, Groove
+
+1. L'Enfant Sauvage 04:18
+
+
+### "L'Enfant Sauvage" 2012, Groove
+
+1. Explosia
+2. L'Enfant Sauvage
+3. The Axe
+4. Liquid Fire
+5. The Wild Healer
+6. Planned Obsolescence
+7. Mouth Of Kala
+8. The Gift Of Guilt
+9. Pain Is A Master
+10. Born In Winter 
+11. The Fall
+
+Recorded at Spin Recording Studios in Long Island City, New York 
+
+### "Les Enfants Sauvages" 2014, Groove
+
+
+
+### "Magma" 2016, Groove
+
+01. The Shooting Star
+02. Silvera
+03. The Cell
+04. Stranded
+05. Yellow Stone
+06. Magma
+07. Pray
+08. Only Pain
+09. Low Lands
+10. Liberation
+
 
 ## Отношения с другими группами
 

@@ -1,16 +1,86 @@
 # Mago De Oz
 
-Дискография
-"Mago De Oz" 1994, Folk
-"Jesus de Chamberi" 1996, Folk
-"La Leyenda de la Mancha" 1998, Folk
-"Finisterra" 2000, Power Metal
-"Gaia" 2003, Folk
-"Belfast" 2004, Folk
-"Gaia II: La voz dormida" 2005, Folk
-"La Ciudad De Los Arboles" 2007, Folk
-"Gaia: Epilogo " 2010, Folk
-"Hechizos, Pocimas y Brujeria" 2012, Folk
+Spain folk-power
+
+## Дискография
+
+### "Mago De Oz" 1994, Folk
+
+
+
+### "Jesus de Chamberi" 1996, Folk
+
+
+
+### "La Leyenda de la Mancha" 1998, Folk
+
+
+
+### "Finisterra" 2000, Power Metal
+
+
+
+### "Gaia" 2003, Folk
+
+
+
+### "Belfast" 2004, Folk
+
+
+
+### "Gaia II: La voz dormida" 2005, Folk
+
+
+
+### "La Ciudad De Los Arboles" 2007, Folk
+
+1. Intro: El EspпїЅritu Del Bosque   
+2. La Ciudad De Los пїЅrboles   
+3. Mi Nombre Es Rock & Roll   
+4. El RincпїЅn De Los Sentidos   
+5. Deja De Llorar (Y VuпїЅlvete A Levantar)   
+6. La CanciпїЅn De Los Deseos   
+7. Y Ahora Voy A Salir (Ranxeira)  
+8. Runa Llena (Instrumental)   
+9. Resacosix En La Barra   
+10. No Queda Sino Batirnos   
+11. Sin Ti SerпїЅa Silencio (Parte II)   
+12. Si Molesto Me Quedo   
+13. Outro: El EspпїЅritu Del Bosque
+
+### "Gaia: Epilogo " 2010, Folk
+
+1. Madre Tierra (Intro) 01:39 
+2. El Lider 04:32 
+3. Para que no Muera de Frнo una Canciуn, Llunala de Rock'N'Roll 05:22 
+4. Y Seros Canciуn (2010) 06:03  
+5. In Memorian (15/4/83 - 25/4/10) 05:29  
+6. Las Lбgrimas de Gaia 05:22  
+7. Puedes Contar Conmigo (Remasterizado) 04:04  
+8. Cuбnto Cabe en un Adiуs 04:24  
+9. Adiуs Dulcinea (Remasterizado) 07:07 
+10. Epilogo 04:32 
+
+
+### "Hechizos, Pocimas y Brujeria" 2012, Folk
+
+01. El Libro De Las Sombras (05:30)
+02. H2Oz (03:53)
+03. Xanandra (04:23)
+04. Sacale Brillo A Una Pena (04:12)
+05. Satanael (05:40)
+06. No Pares (De Oir Rock & Roll) (05:51)
+07. A Marcha Das Meigas (01:43)
+08. Quiero Morirme En Ti (04:19)
+09. Sigue La Luz (05:20)
+10. El Mercado De Las Brujas (04:23)
+11. Celtian (04:10)
+12. Brujas (05:34)
+13. Hechizos, Pocimas Y Brujeria (08:22)
+14. Piratas (Bonus Track) (03:39)
+15. Desde Mi Cielo (Orquestral) (Bonus Track) (02:44)
+16. Obertura Xanandra (Bonus Track) (03:39)
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,33 @@
 # Absolute Defiance
 
-Дискография
-"Systematic Terror Decimation" 2001, Grindcore
+
+
+## Дискография
+
+### "Systematic Terror Decimation" 2001, Grindcore
+
+1. Butchered Human Corpse
+2. Maggot Infestator
+3. Carnal Dissection
+4. Anonymity of the Mass Death
+5. Obscure of Disfigured
+6. Deranged Epidemic
+7. Dehumanized
+8. Feeding the Famished Zombie
+9. Kaleidoskop Pembantaian
+10.Neraka di Bumi (Final Holokaust)
+     Bonus Tracks:
+11.Exhuming the Truth
+12.Self Fulfilled Prophecy
+13.Heinous Oppressor 
+
+
+Nino Aspiranta - Vocals
+Bimo Morbid - Guitars
+Edwin Haikal - Bass
+Andyan Gorust - Drums
+
+
 
 ## Отношения с другими группами
 

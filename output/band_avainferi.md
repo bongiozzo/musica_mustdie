@@ -1,9 +1,48 @@
 # Ava Inferi
 
-Дискография
-"Burdens" 2006, Gothic
-"The Silhouette" 2007, Gothic
-"Blood Of Bacchus" 2009, Gothic
+
+
+## Дискография
+
+### "Burdens" 2006, Gothic
+
+Ava Inferi 
+The Shrine 
+A Glimpse Of Sanity 
+Wings Of Emptiness 
+Sinisters 
+Vultos 
+Fate Of Mountains
+
+### "The Silhouette" 2007, Gothic
+
+A Danca das Ondas 
+Viola 
+The Abandoned 
+Oathbound 
+The Dual Keys 
+Wonders of Dusk 
+La Stanza Nera 
+Grin of Winter 
+Pulse of the Earth
+
+Carmen Susana Simoes - вокал
+Rune Eriksen - гитары
+Jaime S. Ferreira - бас
+Joгo Samora - ударные
+
+### "Blood Of Bacchus" 2009, Gothic
+
+01. Truce
+02. Last Sign Of Summer
+03. Colours Of The Dark
+04. Black Wings
+05. Appeler Les Loups
+06. Be Damned
+07. Tempestade
+08. Blood Of Bacchus
+09. Memoirs
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,23 @@
 # Death In June
 
-Дискография
-"Rose Clouds of Holocaust" 1995, Gothic
+
+
+## Дискография
+
+### "Rose Clouds of Holocaust" 1995, Gothic
+
+1. Lord Winter
+2. God's Golden Sperm
+3. Omen-filled Season
+4. Symbols of the Sun
+5. Jerusalem the Black 
+1. Luther's Army
+2. 13 Years of Carrion
+3. The Accidental Protйgй
+4. Rose Clouds of Holocaust
+5. Lifebooks 
+
+
 
 ## Отношения с другими группами
 

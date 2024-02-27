@@ -1,7 +1,22 @@
 # Corpset
 
-Дискография
-"Ruins" 2011, Melodic Death Metal
+
+
+## Дискография
+
+### "Ruins" 2011, Melodic Death Metal
+
+1. The Light Divine	 
+2. Castrate	 
+3. Blair	 
+4. Moment of Clarity	 
+5. Into The Light	 
+6. Give & Go	 
+7. World Hate Center	 
+8. Behind the Sauna	 
+9. V.P.O.	 
+10. Ceasar's Palace
+
 
 ## Отношения с другими группами
 

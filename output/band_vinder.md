@@ -1,8 +1,34 @@
 # Vinder
 
-Дискография
-"Visions of Time" 2006, Thrash
-"Vertigo" 2011, Thrash
+
+
+## Дискография
+
+### "Visions of Time" 2006, Thrash
+
+1. Dust to Dust  04:37    
+2. Demon's Hate  04:03    
+3. Trash of Society  03:57   
+4. F.U.C.K. This  04:46  
+5. Mr. Knowitall  04:13  
+6. Slave  03:55    
+7. Pandora's Box  03:46  
+8. TV Kid  04:55   
+9. Visions of Time  03:45   
+10. Whore Babylon  04:52 
+
+### "Vertigo" 2011, Thrash
+
+1. The Letter / Dark Horizon  08:11    
+2. Where Evil Dwells  05:14 
+3. Face In The Mirror  05:02  
+4. In My Head  05:03  
+5. Vertigo  03:08  
+6. Funny Games  04:00    
+7. Secret Door  05:02   
+8. Diary Of A Child  04:38 
+9. The Reckoning / It's Me  07:13 
+
 
 ## Отношения с другими группами
 

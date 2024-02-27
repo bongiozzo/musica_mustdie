@@ -1,7 +1,13 @@
 # Fatalist
 
-Дискография
-"The Bitter End" 2016, Death Metal
+
+
+## Дискография
+
+### "The Bitter End" 2016, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

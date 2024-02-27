@@ -1,7 +1,35 @@
 # Non
 
-Дискография
-"Easy Listening For Iron Youth" 1991, Hardcore
+
+
+## Дискография
+
+### "Easy Listening For Iron Youth" 1991, Hardcore
+
+1. Iron Destiny
+2. Conflagration
+3. Rise
+4. Carnis Vale
+5. Crunta Voluptas
+6. Tourist Trap
+7. Fire In The Organism
+8. Father Day
+9. Scorched Earth
+10.Predator/Prey *
+11.There Was Never A Moment 
+   When Evil Was Real
+12.Eternal Ice
+13.Sunset
+14.Clenliness & Order
+15.Defenestration
+16.Embers
+
+Produced By Boyd Rice.
+All Songs Written By B.Rice,
+Except * By B.Rice + COIL.
+
+(p)&(c) 1991 MUTE Records
+
 
 ## Отношения с другими группами
 

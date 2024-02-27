@@ -1,12 +1,98 @@
 # Cult of Luna
 
-Дискография
-"Cult Of Luna" 2001, Metal
-"The Beyond " 2003, Metal
-"Salvation" 2004, Metal
-"Somewhere Along The Highway" 2006, Metal
-"Eternal Kingdom " 2008, Metal
-"Vertikal" 2013, Metal
+Post-hardcore
+
+## Дискография
+
+### "Cult Of Luna" 2001, Metal
+
+
+
+### "The Beyond " 2003, Metal
+
+1. Inside Fort Meade 00:44  
+2. Receiver 08:08 
+3. Genesis 11:36
+4. The Watchtower 06:20  
+5. Circle 08:10 
+6. Arrival 09:32  
+7. Leash 07:48 
+8. Clones 02:20
+9. Deliverance 08:47  
+10. Further 11:22 
+
+
+A video clip was made for "The Watchtower".
+
+Additional electronics by Insomniac Convention
+Additional musicians:
+Thomas Hedlund: Percussion
+Ola Klьft: Vocals
+Jonas Rosйn: Vocals
+Anders Pettersson: Pedal steel guitar
+Johanna Hedlund: Cello
+
+The Noam Chomsky sample during Arrival is from "Propaganda and Control of the
+Public Mind", and the album's closing sample is by Oren Lyons, chief of the
+Onondaga nation, from the documentary "Native American Wisdom". 
+
+### "Salvation" 2004, Metal
+
+
+
+### "Somewhere Along The Highway" 2006, Metal
+
+
+
+### "Eternal Kingdom " 2008, Metal
+
+1. Owlwood 07:40 
+2. Eternal Kingdom 06:41  
+3. Ghost Trail 11:50 
+4. The Lure (Interlude) 02:34  
+5. Mire Deep 05:11  
+6. The Great Migration 06:32  
+7. Цsterbotten 02:20  
+8. Curse 06:31  
+9. Ugнn 02:44  
+10. Following Betulas 08:56 
+
+
+The album concept is based on a book the band found in their rehearsal space (an old mental institution) called 'Tales From The Eternal Kingdom', written by a
+mental patient who was convicted for the murder of his wife. Both the music and the lyrics reflect the stories in the book. 
+
+Klas Rydberg - Vocals 
+Erik Olofsson - Guitars
+Johannes Persson - Guitar, Vocals 
+Fredrik Kihlberg - Guitar, Vocals
+Andreas Johansson - Bass
+Thomas Hedlund - Drums 
+Magnus Lindberg - Sound Engineering, Percussion, Guitar
+Anders Teglund - Sampler, Syntheziser
+
+### "Vertikal" 2013, Metal
+
+1. The One 02:19 
+2. I: The Weapon 09:40 
+3. Vicarious Redemption 19:25 
+4. The Sweep 03:14 
+5. Synchronicity 07:26 
+6. Mute Departure 08:40 
+7. Disharmonia 00:45 
+8. In Awe Of 10:14 
+9. Passing Through 06:13
+10. The Flow Reversed (limited-edition bonus track) 
+
+
+Johannes Persson - Guitars and Vocals 
+Klas Rydberg - Vocals 
+Magnus Lindberg - Drums and Studio-Engineering 
+Erik Olofsson - Guitars 
+Andreas Johansson - Bass 
+Anders Teglund - Keyboards and Electronics 
+Fredrik Kihlberg - Guitars and Vocals 
+Thomas Hedlund - Drums and Percussion
+
 
 ## Отношения с другими группами
 

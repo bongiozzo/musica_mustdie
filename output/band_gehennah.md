@@ -1,11 +1,61 @@
 # Gehennah
 
-Дискография
-"Hardrocker" 1995, Black Metal
-"King Of The Sidewalk" 1996, Black Metal
-"Decibel Rebel" 1997, Black Metal
-"Metal Police (EP)" 2014, Black Metal
-"Too Loud to Live, Too Drunk to Die" 2016, Black Metal
+
+
+## Дискография
+
+### "Hardrocker" 1995, Black Metal
+
+
+
+### "King Of The Sidewalk" 1996, Black Metal
+
+01. Rock'N'Roll Patrol
+02. Hellstorm
+03. Bitch With A Bulletbelt
+04. King Of The Sidewalk
+05. (You're The) Devil In Disguise
+06. Bang Your Heads For Satan
+07. Chickenrace
+08. Tough Guys Don't Look Good
+09. Saturdaynight Blasphemer
+10. Bulldozer
+11. Demolition Team
+
+Recorded & Mixed At Prima Volta.
+Produced & MIxed By Living Skull & GEHENNAH.
+
+Mr.Violence - Haircutting Wino - Vocals
+Rob Stringbringer - Electrocutioning Hack Saw Thrill
+Ronnie Ripper - Four-Knuckle Facebreaker
+Hellcop - The Strongest Drummer In The Universe
+
+(P)(C) 1996 OSMOSE Productions // OPCD 046
+
+### "Decibel Rebel" 1997, Black Metal
+
+
+
+### "Metal Police (EP)" 2014, Black Metal
+
+
+
+### "Too Loud to Live, Too Drunk to Die" 2016, Black Metal
+
+1. Still The Elite
+2. Life Metal Must Die
+3. Too Loud To Live, Too Drunk To Die
+4. Scumbag
+5. Gehennah Will Destroy Your Life
+6. Let’s Fall Off The Wagon
+7. ‘Cause We’re A Street Metal Band
+8. Tonight We Fight
+9. When All Else Fails – Destroy!
+10. Low On Cash, High On Speed
+11. We Stole Your Song
+12. Unholy & Unpleasant
+13. All Of The Decadence, None Of The Success
+
 
 ## Отношения с другими группами
 

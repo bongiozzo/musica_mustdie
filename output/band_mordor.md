@@ -1,8 +1,45 @@
 # Mordor
 
-Дискография
-"Prayer To..." 1996, Death Doom
-"The Earth" 1997, Death Doom
+Poland
+
+## Дискография
+
+### "Prayer To..." 1996, Death Doom
+
+1. False Prayer (6.19)
+2. Why Me? (5.58)
+3. There's Nothing Left (4.50)
+4. Ice Bound (5.58)
+5. Nothing Makes Any Sense (8.12)
+6. Wind - Storm Song (5.59)
+7. The First One Will Be The Last One (6.25)
+
+ All songs written by MORDOR.
+ Produced by Jacek Chamela and  MORDOR.
+ Engineered by Jacek Chamela.
+ Recorded at Izabelin Studio.
+
+Bartek Kuzniak - Bass
+Pawel Zielinski - Vocals
+Darek Boral - Keyboards
+Gererd Niemczyk - Drums
+Pawel Midera - Guitar
+Jacek Woszczyna - Guitar
+
+(p)c 1996 ARCTIC SERENADES
+
+### "The Earth" 1997, Death Doom
+
+1. The Earth 08:16
+2. Cienie 04:33 
+3. Higher & Higher 04:13
+4. The Rain 06:02
+5. The Colours of the Night 05:44
+6. Flowers 04:20 [view lyrics] 
+7. The Last of the Mohicans 07:54
+8. No More Suffer 03:13 
+9. Visions of Life 05:58
+
 
 ## Отношения с другими группами
 

@@ -1,9 +1,50 @@
 # DC4
 
-Дискография
-"Volume One" 2002, Hard Rock
-"Explode" 2007, Hard Rock
-"Electric Ministry" 2011, Hard Rock
+
+
+## Дискография
+
+### "Volume One" 2002, Hard Rock
+
+1. Playing House  04:20    
+2. Pound Of Flesh  04:45  
+3. Lover Of Misery  05:06   
+4. .44  04:15    
+5. Naive Bree  05:16    
+6. Eyes On You  05:27   
+7. Blind  03:56    
+8. Jack And Jill  03:58  
+9. Marianne  04:58   
+10. Freak Show  03:37    
+11. 4196  03:04 
+
+### "Explode" 2007, Hard Rock
+
+1. Explode  04:00  
+2. Rock N' Roll Disease  03:46    
+3. Long Hard Road  04:56  
+4. Experiment  03:57   
+5. Cabin Fever  03:39  
+6. This Is What You Wanted  05:54  
+7. Hate Parade  03:57   
+8. God Compex  03:57    
+9. Candy Caine  04:16    
+10. Disturbed  03:35 
+
+### "Electric Ministry" 2011, Hard Rock
+
+1. Wrecktory  01:31   
+2. Electric Ministry  03:54    
+3. XXX  04:04    
+4. Rock God  05:09   
+5. 25 To Life  04:40    
+6. Broken Soul  08:31    
+7. People  04:17   
+8. The Ballad Of Rock And Roll  05:25    
+9. Glitter Girl  04:34    
+10. Sociopath  03:24   
+11. Dirty Hands  05:25 
+
 
 ## Отношения с другими группами
 

@@ -1,21 +1,265 @@
 # Epica
 
-Дискография
-"The Phantom Agony" 2003, Gothic
-"The Phantom Agony (single)" 2003, Gothic
-"Cry For the Moon (single)" 2004, Gothic
-"Consign to Oblivion" 2005, Gothic
-"The Score - An Epic Journey" 2005, Gothic
-"The Divine Conspiracy" 2007, Gothic
-"The Classical Conspiracy" 2009, Gothic
-"Design Your Universe" 2009, Gothic
-"Storm the Sorrow (single)" 2012, Gothic
-"Requiem for the Indifferent" 2012, Gothic
-"The Essence of Silence (single)" 2014, Gothic
-"The Quantum Enigma" 2014, Gothic
-"The Holographic Principle" 2016, Gothic
-"Universal Death Squad (single)" 2016, Gothic
-"The Solace System (EP)" 2017, Gothic
+Dutch epic-metal
+
+## Дискография
+
+### "The Phantom Agony" 2003, Gothic
+
+
+
+### "The Phantom Agony (single)" 2003, Gothic
+
+01. The Phantom Agony (4:35) (single version)
+02. Veniality (4:36) (prev. unreleased track)
+03. Fa&ccedil;ade of Reality (8:12) 
+04. Veniality (4:37) (prev. unreleased orchestral version)
+
+### "Cry For the Moon (single)" 2004, Gothic
+
+
+
+### "Consign to Oblivion" 2005, Gothic
+
+1. Hunab K’u ”a new age dawns” - prologue 01:43 
+2. Dance of Fate 05:13 
+3. The Last Crusade “a new age dawns” - Part I 04:22 
+4. Solitary Ground 04:24
+5. Blank Infinity 04:01 
+6. Force of the Shore 04:02
+7. Quietus 03:47  
+8. Mother of Light ”a new age dawns” Part II 05:56 
+9. Trois Vierges 04:42
+10. Another Me “In Lack’ech” 04:40  
+11. Consign to Oblivion ”a new age dawns” Part III 09:45
+
+### "The Score - An Epic Journey" 2005, Gothic
+
+1. Vengeance is Mine 01:55  
+2. Unholy Trinity 03:10  
+3. The Valley 02:10  
+4. Caught in a Web 04:28  
+5. Insomnia 02:09  
+6. Under the Aegis 02:50  
+7. Trois Vierges (Solo Version) 04:43
+8. Mystica 02:48  
+9. Valley of Sins 05:41  
+10. Empty Gaze 02:11  
+11. The Alleged Paradigm 02:26  
+12. Supremacy 03:22  
+13. Beyond the Depth 01:58  
+14. Epitome 01:19  
+15. Inevitable Embrace 03:53  
+16. Angel of Death 03:30  
+17. The Ultimate Return 04:50  
+18. Trois Vierges (Reprise) 02:07  
+19. Solitary Ground (Single Version) 04:09
+20. Quietus (Score Version) 03:55 
+
+### "The Divine Conspiracy" 2007, Gothic
+
+1. Indigo (Prologue) 02:05
+2. The Obsessive Devotion 07:13 
+3. Menace of Vanity 04:13
+4. Chasing the Dragon 07:40
+5. Never Enough 04:47
+6. LaпїЅpetach Chatat Rovetz (The Final Embrace) 01:46  
+7. Death Of A Dream (The Embrace That Smothers Part VII) 06:03
+8. Living A Lie (The Embrace That Smothers - Part VIII) 04:56
+9. Fools of Damnation (The Embrace That Smothers - Part IX) 08:42 
+10. Beyond Belief 05:25
+11. Safeguard to Paradise 03:46
+12. Sancta Terra 04:57 
+13. The Divine Conspiracy 13:56 
+
+Album to be released in Europe on September 12.
+
+Line-up:
+Simone Simons - Vocals
+Mark Jansen - Guitar & Harsh Vocals
+Ad Sluijter - Guitar
+Coen Janssen - Keys
+Yves Huts - Bass
+
+AriГ«n van Weesenbeek - Session Drums
+
+Mixed by Sascha Paeth.
+
+"The Embrace That Smothers" concept actually began on the After Forever album
+"Prison of Desire" ends on this album.
+
+Nuclear Blast Records will release a limited deluxe CD edition of this album
+featuring the bonus tracks:
+14. Higher High (05:26)
+15. Replica (Fear Factory Cover) (04:09)
+Plus video clips and a "making-of" enhanced section. 
+
+DLP picture vinyls limited to 1000 numbered copies with the 2 bonus tracks.
+
+Also released as a Limited Edition Digibook (NB 1956-8) with Bonus CD, with the
+same bonus material as on the limited edition. 
+
+### "The Classical Conspiracy" 2009, Gothic
+
+Disc 1 
+1. Palladium (by Yves Huts) 03:46  
+2. Dies Irae (from Giuseppe Verdi: "Requiem") 02:15  
+3. Ombra Mai Fu (from George Frideric Handel: "Xerxes") 03:06  
+4. Adagio (from Antonнn Dvo&#345;бk: "New World Symphony") 09:02  
+5. Spider-Man Medley (from Danny Elfman: "Spider-Man") 04:16  
+6. Presto (from Antonio Vivaldi: "The Four Seasons") 03:06  
+7. Montagues and Capulets (from Sergei Prokofiev: "Romeo and Juliet") 02:11  
+8. The Imperial March (from John Williams: "Star Wars Episode V") 03:25  
+9. Stabat Mater Dolorosa (from Giovanni Battista Pergolesi: "Stabat Mater") 04:31  
+10. Unholy Trinity (by Yves Huts) 03:11  
+11. In the Hall of the Mountain King (from Edvard Grieg: "Peer Gynt") 03:11  
+12. Pirates of the Caribbean Medley (from Hans Zimmer/Klaus Badelt: "Pirates of the Caribbean") (European release only) 06:44  
+13. Indigo 02:04  
+14. The Last Crusade 04:18  
+15. Sensorium 05:06  
+16. Quietus 04:22  
+17. Chasing the Dragon 08:03  
+18. Feint 04:34  
+Disc 2 
+1. Never Enough 05:37  
+2. Beyond Belief 05:28  
+3. Cry for the Moon 07:44  
+4. Safeguard to Paradise 03:59  
+5. Blank Infinity 04:45  
+6. Living a Lie 05:24  
+7. The Phantom Agony 10:30  
+8. Sancta Terra 05:11  
+9. Illusive Consensus 05:45  
+10. Consign to Oblivion 
+
+### "Design Your Universe" 2009, Gothic
+
+1. Samadhi (Prelude) 01:27 
+2. Resign to Surrender (A New Age Dawns Part IV) 06:19
+3. Unleashed 05:48 
+4. Martyr of the Free Word 05:03
+5. Our Destiny 06:00 
+6. Kingdom of Heaven (A New Age Dawns Part V) 13:35
+7. The Price of Freedom (Interlude) 01:14  
+8. Burn to a Cinder 05:41
+9. Tides of Time 05:34 
+10. Deconstruct 04:14
+11. Semblance of Liberty 05:42
+12. White Waters 04:44
+13. Design Your Universe (A New Age Dawns Part VI) 09:29 
+
+### "Storm the Sorrow (single)" 2012, Gothic
+
+1. Storm the Sorrow 05:11
+
+### "Requiem for the Indifferent" 2012, Gothic
+
+1. Karma 
+2. Monopoly on Truth 
+3. Storm the Sorrow 
+4. Delirium 
+5. Internal Warfare 
+6. Requiem for the Indifferent 
+7. Anima 
+8. Guilty Demeanor 
+9. Deep Water Horizon 
+10. Stay the Course 
+11. Deter the Tyrant 
+12. Avalanche 
+13. Serenade of Self-Destruction 
+
+Digipack bonus tracks:
+ 14. Twin Flames
+ 15. Nostalgia 
+
+### "The Essence of Silence (single)" 2014, Gothic
+
+1. The Essence of Silence 04:47
+
+### "The Quantum Enigma" 2014, Gothic
+
+1. Originem 00:45
+2. The Second Stone 05:10
+3. The Essence of Silence 04:47 
+4. Victims of Contingency 03:31
+5. Sense Without Sanity - The Impervious Code 07:42
+6. Unchain Utopia 04:47
+7. The Fifth Guardian - Interlude 03:04
+8. Chemical Insomnia 05:12
+9. Reverence - Living in the Heart 05:02
+10. Omen - The Ghoulish Malady 05:28
+11. Canvas of Life 05:28
+12. Natural Corruption 05:24
+13. The Quantum Enigma - Kingdom of Heaven Part II 11:53
+
+
+Recorded in the Sandlane Recording Facilities in The Netherlands between September 2013 and January 2014.
+ 
+The album will be released in 5 different configurations: 
+1 - regular Jewel Case
+ 2 - 2CD Digipack
+ 3 - 3CD Earbook
+ 4 - double Vinyl
+ 5 - Digital Download
+ 
+Digipack additional track: In All Conscience
+ Earbook additional track: Dreamscape
+ Vinyl additional track: Memento
+ iTunes additional track: Banish Your Illusion
+ 
+Digipack and Earbook feature the following tracks:
+ 
+Disc 2 (Digipack and Earbook only):
+ 1. Canvas of Life [acoustic version]
+ 2. In All Conscience [acoustic version]
+ 3. Dreamscape [acoustic version]
+ 4. Natural Corruption [acoustic version]
+ 
+Disc 3 (Earbook Only):
+ 1. Originem [instrumental]
+ 2. The Second Stone [instrumental]
+ 3. The Essence of Silence [instrumental]
+ 4. Victims of Contingency [instrumental]
+ 5. Sense Without Sanity [instrumental]
+ 6. Unchain Utopia [instrumental]
+ 7. The Fifth Guardian [instrumental]
+ 8. Chemical Insomnia [instrumental]
+ 9. Reverence [instrumental]
+ 10. Omen [instrumental]
+ 11. Canvas of Life [instrumental]
+ 12. Natural Corruption [instrumental]
+ 13. The Quantum Enigma [instrumental]
+ 
+
+### "The Holographic Principle" 2016, Gothic
+
+“Eidola”
+ “Edge Of The Blade”
+ “A Phantasmic Parade”
+ “Universal Death Squad”
+ “Divide And Conquer”
+ “Beyond The Matrix”
+ “Once Upon A Nightmare”
+ “The Cosmic Algorithm”
+ “Ascension - Dream State Armageddon”
+ “Dancing In A Hurricane”
+ “Tear Down Your Walls”
+ “The Holographic Principle - A Profound Understanding Of Reality”
+
+### "Universal Death Squad (single)" 2016, Gothic
+
+1. Universal Death Squad  06:39
+
+### "The Solace System (EP)" 2017, Gothic
+
+1. The Solace System  04:39    
+2. Fight Your Demons  04:29 
+3. Architect of Light  05:21    
+4. Wheel of Destiny  05:51    
+5. Immortal Melancholy  03:09
+6. Decoded Poetry  06:25 
+
+
 
 ## Отношения с другими группами
 

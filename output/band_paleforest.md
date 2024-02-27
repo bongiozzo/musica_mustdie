@@ -1,10 +1,25 @@
 # Pale Forest
 
-Дискография
-"Layer One EP" 1998, Gothic
-"Transformation Hymns" 1998, Gothic
-"Of Machines And Men" 2000, Gothic
-"Exit Mould" 2001, Gothic
+
+
+## Дискография
+
+### "Layer One EP" 1998, Gothic
+
+
+
+### "Transformation Hymns" 1998, Gothic
+
+
+
+### "Of Machines And Men" 2000, Gothic
+
+
+
+### "Exit Mould" 2001, Gothic
+
+
+
 
 ## Отношения с другими группами
 

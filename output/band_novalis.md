@@ -1,8 +1,40 @@
 # Novalis
 
-Дискография
-"Last Years Calling" 2002, Folk
-"Paradise?" 2005, Folk
+Dark Folk
+
+## Дискография
+
+### "Last Years Calling" 2002, Folk
+
+01. Intro
+02. Human
+03. Courage
+04. What If
+05. Of the Golden Future Time
+06. Vom Traum
+07. Hey God
+08. Dying Source
+09. Bloody
+10. Drowning
+11. Soul Flight
+
+### "Paradise?" 2005, Folk
+
+01. Part I
+02. Last Summers Rose
+03. Where Is The Paradise
+04. Never Ending Lie
+05. When Darkness Falls
+06. Humans Front
+07. In Her Arms
+08. Suddenly
+09. Jonas
+10. September Day
+11. Wild Horses
+12. Part II - incl.
+Bonus: PC/MAC Multimedia-Track
+(MPEG Video) "Of The Golden Future Time" 5:23 min
+
 
 ## Отношения с другими группами
 

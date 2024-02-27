@@ -1,7 +1,19 @@
 # Kalisia
 
-Дискография
-"Skies" 2001, Techno Death
+(French techno-death with melodic and prog influences)
+
+## Дискография
+
+### "Skies" 2001, Techno Death
+
+• Tower of Vanities
+• Chimera
+• Lost Soul
+• The Mental Frames - Part I
+
+
+
+
 
 ## Отношения с другими группами
 

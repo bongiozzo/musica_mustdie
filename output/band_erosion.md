@@ -1,7 +1,33 @@
 # Erosion
 
-Дискография
-"Mortal Agony" 1988, Thrash
+
+
+## Дискография
+
+### "Mortal Agony" 1988, Thrash
+
+ Side One:
+1. Erosion
+2. Way Of Force
+3. The Unborn
+4. Bilharzia
+5. Aftermath
+6. False Prophets
+ Side Two:
+1. Paralyzed
+2. Mortal Agony
+3. Nuclear Frost
+4. Into The Void
+5. Humanity
+
+Chris Zenk - Vocals
+Stefan R"mhild - Guitars & Vocals
+Ulf Kaiser - Guitars & Vocals
+Jan B_nning - Bass
+Klaus Nowakowski - Drums
+
+(p)&(c) 1988 WE BITE Records
+
 
 ## Отношения с другими группами
 

@@ -1,6 +1,9 @@
 # Catastrophic
 
-Дискография
+death metal (Obituary, Pyrexia members)
+
+## Дискография
+
 
 ## Отношения с другими группами
 

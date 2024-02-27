@@ -1,11 +1,105 @@
 # Finsterforst
 
-Дискография
-"Weltenkraft" 2007, Black Metal
-"...zum Tode hin" 2009, Black Metal
-"Rastlos" 2012, Metal
-"Mach dich frei" 2015, Metal
-"#YOLO [EP]" 2016, Metal
+
+
+## Дискография
+
+### "Weltenkraft" 2007, Black Metal
+
+01. Des Waldes Macht
+02. Die Suche nach dem Licht
+03. Lauf der Welt
+04. Traumwald
+05. Spiegelscherben
+06. Von glorreichem Schmerz
+07. Rauschende Nachte
+08. Weinende Ruinen
+09. Weltenpilger
+10. Verlorene Seelen
+
+musicians:
+Tobias Weinreich: bass
+Johannes Joseph: accordion and choir vocals
+Marco Schomas: vocals, choir vocals and acoustic
+12-strings
+Simon Schillinger: lead and rhythm guitars,
+acoustic guitars, choir vocals
+Cornelius "Wombo" Heck: live drums and choir
+vocals
+AlleyJazz: keyboards and choir vocals
+David Schuldis: rhythm guitars
+
+guest musicians:
+Christoph Schuster: oboe
+Sevan Kirder: tin whistle and german flute, choir
+vocals
+Jonas Mayer: choir vocals
+
+recorded by Christoph Brandes at the mighty halls
+of
+"The Iguana Studios" March-Buchheim during the
+coldest and iciest
+weeks of February and March 2007.
+
+mixed and mastered by Christoph Brandes during
+thunderstorms in May
+with the help of lots of Haxen and Schweinebauch
+
+produced by Christoph Brandes & Simon Schillinger
+
+### "...zum Tode hin" 2009, Black Metal
+
+1. Urquell 11:45
+2. Das groЯe Erwachen 12:14
+3. Seines Glьckes Schmied 11:24
+4. Sturmes Ernte 13:36
+5. Untergang 21:37 
+
+### "Rastlos" 2012, Metal
+
+1. Nichts als Asche
+2. Fremd
+3. Am Scheideweg
+4. Stirbt Zulezt
+5. Ein Lichtschein
+6. Rast
+7. Flammenrausch
+
+
+Translations of the song-titles:
+ 1. Nothing but ash
+ 2. Foreign/Strange
+ 3. At a crossroad
+ 4. Dies at last
+ 5. A flare
+ 6. Rest
+ 7. Inebriation of flames 
+
+### "Mach dich frei" 2015, Metal
+
+1. Abfahrt  00:58   
+2. Schicksals End'  14:48  
+3. Zeit fur Hass  09:43   
+4. Im Auge des Sturms  01:38   
+5. Mach dich frei!  07:49    
+6. Mann gegen Mensch  09:32    
+7. Reise zum...  05:32  
+8. Finsterforst  23:53 
+
+
+### "#YOLO [EP]" 2016, Metal
+
+1. Bottle Gods	 
+2. Auf die Zwцlf	 
+3. #YOLO  
+4. Hangover  
+5. Wrecking Ball (Miley Cyrus cover) 
+6. Beat It (Michael Jackson cover) 
+7. Der durch die Scheibeboxxxer (K.I.Z. cover) 
+8. Flasche Leer 
+9. Das schlimmste ist wenn das Bier alle ist (Die Kassierer cover)  
+10. Wild Rover
+
 
 ## Отношения с другими группами
 

@@ -1,9 +1,49 @@
 # Messenger
 
-Дискография
-"Titanic suicide" 1990, Heavy Metal
-"Asylum X-T-C" 1994, Heavy Metal
-"Under The Sign" 2006, Heavy Metal
+
+
+## Дискография
+
+### "Titanic suicide" 1990, Heavy Metal
+
+1. Intro / On the run   
+2. Falcon age    
+3. Scared heart   
+4. Why are you tellin&#180; me lies   
+5. Dead end    
+6. Titanic suicide    
+7. Broken mirror
+8. Demoney / The last bird song  
+
+### "Asylum X-T-C" 1994, Heavy Metal
+
+1. Modern day communication      
+2. Asylum X-T-C  
+3. Revolution    
+4. Broken home     
+5. Difference      
+6. Make it right    
+7. No more cryin&#180;  
+8. Why      
+9. Hurricane     
+10. Enola Gay   
+11. My hope shatters
+12. Impression  
+
+### "Under The Sign" 2006, Heavy Metal
+
+1. Firegate  00:57  
+2. Under The Sign  04:25  
+3. Titans  04:05   
+4. New Hope  04:49 
+5. Kill The DJ  04:39 
+6. Intruders  04:03 
+7. Hymn To Aton  02:05   
+8. Pharaoh  03:39
+9. Pray To Odin  04:18    
+10. Feel The Fire  04:32 
+11. Metal Day  04:29 
+
 
 ## Отношения с другими группами
 

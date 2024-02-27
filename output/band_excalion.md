@@ -1,7 +1,22 @@
 # Excalion
 
-Дискография
-"Primal Exhale" 2005, Power Metal
+
+
+## Дискография
+
+### "Primal Exhale" 2005, Power Metal
+
+1. Temptation Wasteland 04:57 
+2. A Moment in the Spotlight 04:13 
+3. Reality Bends 06:32 
+4. Dire Waters 05:13  
+5. Stage of Lies 05:35 
+6. Heart & Home 04:17 
+7. Megalomania 05:53  
+8. My Legacy 05:58  
+9. Obsession to Prosper 07:56 
+10. Luopio
+
 
 ## Отношения с другими группами
 

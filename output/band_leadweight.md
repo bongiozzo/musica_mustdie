@@ -1,15 +1,148 @@
 # Lead Weight
 
-Дискография
-"Iron Balls" 1992, Heavy Metal
-"Apokalypsis" 1993, Instrumental
-"Omen" 1995, Instrumental
-"Anthology" 1997, Instrumental
-"For Thine Is The Kingdome" 1999, Death Metal
-"MUSICA (compilation)" 2001, Heavy Metal
-"Penetrator" 2002, Techno Death
-"Ally" 2004, Techno Death
-"UNDERGROUND KZ (compilation)" 2004, Heavy Metal
+(Techno Death Metal Kazakhstan)
+
+## Дискография
+
+### "Iron Balls" 1992, Heavy Metal
+
+1. Master
+2. Livin' At Break-Neck Speed
+3. Young Lady
+4. Evil Town
+5. White Men Summons
+6. Till The Day I Day
+7. Flying Man
+8. That's All Right Mamma If I'll Rock Tonight
+9. All Right Boogie
+10. If I Ever Had A Dollar
+
+### "Apokalypsis" 1993, Instrumental
+
+1. For Thine Is The Kingdome...
+2. Miserere
+3. Wizzard
+4. Don Benefactor
+5. Adagio
+6. Penetrator
+7. Exorcist
+8. Suite #2 H-moll BWV 1067 (I.S.Bach)
+
+### "Omen" 1995, Instrumental
+
+1. Thanatopsis
+2. Omen
+3. Elegy
+4. Sin Alieno
+5. Abbaddon's Look
+6. Sanatana-Dharna
+7. Ally
+8. Praeludium #2 C-minor (I.S.Bach)
+
+### "Anthology" 1997, Instrumental
+
+1. For Thine Is The Kingdome  
+2. Miserere  
+3. Wizzard  
+4. Don Benefactor 
+5. Adagio  
+6. Penetrator 
+7. Exorcist 
+8. Suite #2 BWV 1067 I.S.Bach 
+9. Thanatopsis  
+10.Omen  
+11.Elegy   
+12.Eyes Of Abbadon  
+13.Ally   
+14.Praeludium #2 I.S.Bach 
+
+### "For Thine Is The Kingdome" 1999, Death Metal
+
+1. Intro 
+2. Miserere (Instr.) 
+3. Enemy 
+4. Exorcist (Instr.) 
+5. Helltown 
+6. Thanatopsis (Instr.) 
+7. For Thine Is The Kingdome 
+8. War 
+9. Eyes Of Abbadon (Instr.) 
+10.Wizzard (Instr.) 
+11.Back In Black (AC/DC cover)
+Record Label: Grom Sound Base (Kazakhstan) 
+
+### "MUSICA (compilation)" 2001, Heavy Metal
+
+MUSICA.MUSTDIE Productions presents the «MUSICA» compilation, introducing new wave of metal music from Moscow, St. Petersburg, Alma-Ata and Koenigsberg (Kaliningrad). 
+
+Tracklist: 
+
+Glazemaker "Burning Coast" [progressive intro] 
+Seducer's Embrace "As The Forest Weeps..." [melodic death] 
+Samhain "Herimos" [doom] 
+Wishmaster "Betrayer" [melodic death] 
+Lead Weight "For Thine Is The Kingdome" [techno death] 
+Radigost "In The Heart of Battle" [melodic black] 
+Hostile Breed "Paper Law" [modern angry thrash] 
+Exhumation "Cursed World" [melodic death] 
+Vortex "Break The Fetters" [power] 
+Requiem "Your Dreams" [techno death] 
+Elisium "Shadow" [power] 
+Tvangeste "Damnation Of Regiomontum" [sympho-black] 
+Rossomahaar "Quarite Lux In Tenebris" [black] 
+Absurd "Where Time Has Died Away" [melodic death] 
+Forrest Gump and Jamilya Serkebaeva "Sarjaylau" [folk hard rock]
+
+### "Penetrator" 2002, Techno Death
+
+1. Ally (Intro). 
+2. 1000000 Ways. 
+3. Omen.  
+4. Last Dance. 
+5. Don Benefactor (Death Is An Adviser). 
+6. Useless.  
+7. Elegy (Instrumental). 
+8. Stalker. 
+9. Penetrator. 
+10. Disangelist (Bad Religion). 
+
+
+
+Music on 1,3,5,7,9 songs - Yermola,
+on 2,4,6,8,10 by Grom.
+Lyrics on 3,5,9 songs - Yermola, 
+on 2,4,6,8,10 - Grom & Yermola. 
+Guitars - Yermola, 
+Vocal, guitars - Grom, 
+Bass - Blum,
+Drums - Hellpash
+Design and cover conception - Grom. 
+Record, mix and mastering - "GromSoundBase".
+Producer - Yermola. 
+
+
+### "Ally" 2004, Techno Death
+
+
+
+### "UNDERGROUND KZ (compilation)" 2004, Heavy Metal
+
+0.1 INTRO 
+0.2 HOLY DRAGONS - Кровь Эльфов 
+0.3 HOLY DRAGONS - Тамплиеры 
+0.4 PHOENIX - Нифельхейм 
+0.5 BLACK FOX - Кельтский Крест 
+0.6 THRENETIC GODDES - Last Autumn Night 
+0.7 LEAD WEIGHT - Useless 
+0.8 NEFORMAT - Philosophy Of Pain 
+0.9 REQUIEM - Апокалипсис 
+1.0 МЕРТВЫЕ ДУШИ - Иуда 
+1.1 ТЕРЕМ - BLack being 
+1.2 DARK LIGHT - Панки в городе 
+1.3 INKARNA - Мир без тебя 
+1.4 VALLAR - Ведьма 
+1.5 ХОЛОД - Любовь Ангелов
+
 
 ## Отношения с другими группами
 

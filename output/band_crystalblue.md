@@ -1,9 +1,46 @@
 # Crystal Blue
 
-Дискография
-"Out From The Blue At Last" 1993, Hard Rock
-"Caught In The Game" 1994, Hard Rock
-"Detour" 2003, Metal
+AOR
+
+## Дискография
+
+### "Out From The Blue At Last" 1993, Hard Rock
+
+Ove Lundqvist guitars
+Thomas Lassar keyboards
+David Persson bass
+Mikael Palmstrom drums 
+Morgan J Johansson vocals
+
+### "Caught In The Game" 1994, Hard Rock
+
+Ove Lundqvist guitars
+Thomas Lassar keyboards
+David Persson bass
+Mikael Palmstrom drums 
+Stefan Nykvist vocals
+
+### "Detour" 2003, Metal
+
+     1. Damage 4:48
+     2. Back on track 4:58
+     3. Someone 4:07
+     4. Move on 4:13
+     5. Second Chance 3:27
+     6. Belive me 3:37
+     7. You and I 4:17
+     8. Never say surrender 3:36
+     9. Why 4:42
+     10. This is the time 4:48
+     11. Sylvia 5:19
+
+
+     Ove Lundqvist - электрогитара, акустическая гитара
+     Thomas Lassar - клавишные, ведущий вокал и бэк-вокал
+     David Persson - бас
+     Fredrik Larsson - ударные и бэк-вокал
+
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,33 @@
 # Thulcandra
 
-Дискография
-"Fallen Angels Dominion" 2010, Death Metal
-"Under a Frozen Sun" 2011, Death Metal
+
+
+## Дискография
+
+### "Fallen Angels Dominion" 2010, Death Metal
+
+01. In The Realm Of Thousand Deaths 01:30
+02. Night Eternal 07:29
+03. Fallen Angel's Dominion 04:57
+04. Frozen Kingdom 06:20
+05. Everlasting Fire 05:05
+06. Spirit Of The Night 06:45
+07. Legions Of Darkness 05:15
+08. In Silence We Eternally Sleep 01:11
+09. The Somberlain (Dissection cover) 07:07
+
+### "Under a Frozen Sun" 2011, Death Metal
+
+1. In Blood And Fire 08:35 
+2. Black Flags Of Hate 03:25 
+3. Ritual Of Sight 05:50 
+4. Under A Frozen Sun 05:02 
+5. Aeon Of Darkness 05:05 
+6. Echoing Voices (A Cold Breeze Of Death) 03:51 
+7. Gates Of Eden 09:22 
+8. Life Demise (Unanimated Cover) 04:07
+
+
 
 ## Отношения с другими группами
 

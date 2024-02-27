@@ -1,6 +1,9 @@
 # Deadbodieseverywhere
 
-Дискография
+grind/sludge/hc
+
+## Дискография
+
 
 ## Отношения с другими группами
 

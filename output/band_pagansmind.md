@@ -1,12 +1,116 @@
 # Pagan's Mind
 
-Дискография
-"Celestial Entrance" 2002, Progressive
-"Infinity Divine" 2004, Power Metal
-"Enigmatic : Calling" 2005, Progressive
-"God's Equation" 2007, Progressive
-"Live Equation [DVD]" 2009, Progressive
-"Heavenly Ecstasy" 2011, Progressive
+power from Norway
+
+## Дискография
+
+### "Celestial Entrance" 2002, Progressive
+
+1. Approaching 02:48  
+2. Through Osiris' Eyes 06:09
+3. Entrance: Stargate 06:01 
+4. ...of Epic Questions 06:10 
+5. Dimensions of Fire 07:29 
+6. Dreamscape Lucidity 06:40
+7. The Seven Sacred Promises 06:29
+8. Back to the Magic of Childhood, Part 1: Conception 02:46  
+9. Back to the Magic of Childhood, Part 2: Exploring Life 09:18  
+10. In Brilliant White Light 02:45 
+11. Aegean Shores 05:14 
+12. The Prophecy of Pleiades 09:53 
+
+### "Infinity Divine" 2004, Power Metal
+
+1. Prelude to Paganism 01:02  
+2. Caught in a Dream 06:02  
+3. Infinity Divine 06:12  
+4. Embracing Fear 05:56  
+5. Astral Projection 05:41  
+6. Angles' Serenity 04:20  
+7. Dawning of the Nemesis 05:09  
+8. King's Quest 05:39  
+9. Twilight Arise 04:35  
+10. A New Beginning 08:08  
+11. Embracing Fear 2004 06:17  
+12. At the Graves (King Diamond cover) 09:34 
+
+### "Enigmatic : Calling" 2005, Progressive
+
+1. The Celestine Prophecy 07:37
+2. Enigmatic Mission 05:17 
+3. Supremacy, Our Kind 06:01
+4. Entrance to Infinity 07:49
+5. Coming Home 02:36  
+6. Celestial Calling 07:00
+7. Taken 07:35
+8. Resurrection (Back in Time) 06:37 
+9. Appearance 01:52  
+10. Search for Life 05:01
+11. New World Order 08:13 
+
+### "God's Equation" 2007, Progressive
+
+1. The Conception 02:03  
+2. God's Equation 07:57
+3. United Alliance 05:04
+4. Atomic Firelight 05:19
+5. Hallo Spaceboy (David Bowie cover) 05:30
+6. Evolution Exceed 06:08 
+7. Alien Kamikaze 04:37 
+8. Painted Skies 06:33 
+9. Spirit Starcruiser 06:02 
+10. Farewell 02:10  
+11. Osiris' Triumphant Return 08:45 
+
+### "Live Equation [DVD]" 2009, Progressive
+
+1. The Conceptions 02:09  
+2. Gods Equation 08:09  
+3. United Audience 05:33  
+4. Atomic Firelight 05:48  
+5. The Prophecy of Pleiades 06:32  
+6. Search for Life 02:35  
+7. Coming Home Exploring Life 05:59  
+8. Hallo Spaceboy 06:03  
+9. Enigmatic Mission 05:43  
+10. Through Osiris Eyes 09:15  
+11. Alien Kamikaze 08:46  
+12. New World Order (Live Progpower USA) 08:16  
+13. Aegean Shores (Live Progpower USA) 05:27  
+14. Supremacy, Our Kind (Live Progpower USA) 07:41  
+15. Farewell (Live Skien Norway) 02:54  
+16. Osiris Triumphant Return (Live Skien Norway) 09:48  
+17. Of Epic Questions (The Reharsal Tapes) 06:33  
+18. Resurrection (Back in Time) (The Reharsal Tapes) 06:48  
+19. The Celestine Prophecy (The Reharsal Tapes) 06:53  
+20. The Seven Sacred Promise (The Reharsal Tapes) 07:07 
+
+### "Heavenly Ecstasy" 2011, Progressive
+
+1. Contact  00:48    
+2. Eyes of Fire  05:48    
+3. Intermission  05:41    
+4. Into the Aftermath  05:18    
+5. Walk Away in Silence  05:08    
+6. Revelation to the End  08:32    
+7. Follow Your Way  05:18    
+8. Live Your Life Like a Dream  05:55    
+9. The Master's Voice  05:16    
+10. Never Walk Alone  02:03    
+11. When Angels Unite  06:09 
+
+The limited edition contains 2 bonus tracks:
+12. Create Your Destiny
+13. Power of Mindscape 
+
+Nils K. Rue  Vocals  
+Jorn Lofstad  Guitars  
+Steinar Krokmo  Bass  
+Ronny Tegner  Keyboards  
+Stian Kristoffersen  Drums  
+ 
+
+
 
 ## Отношения с другими группами
 

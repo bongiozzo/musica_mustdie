@@ -1,16 +1,68 @@
 # Vitamin X
 
-Дискография
-"Straight Edge Crew (EP)" 1998, Hardcore
-"Once Upon a Time... (EP)" 1999, Hardcore
-"See Thru Their Lies" 2000, Hardcore
-"We Came Here For Fun (EP)" 2001, Hardcore
-"People That Bleed (EP)" 2001, Hardcore
-"Down The Drain" 2002, Hardcore
-"Bad Trip" 2004, Hardcore
-"Rip It Out (EP)" 2005, Hardcore
-"Full Scale Assault" 2008, Hardcore
-"About To Crack" 2012, Hardcore
+
+
+## Дискография
+
+### "Straight Edge Crew (EP)" 1998, Hardcore
+
+
+
+### "Once Upon a Time... (EP)" 1999, Hardcore
+
+
+
+### "See Thru Their Lies" 2000, Hardcore
+
+
+
+### "We Came Here For Fun (EP)" 2001, Hardcore
+
+
+
+### "People That Bleed (EP)" 2001, Hardcore
+
+
+
+### "Down The Drain" 2002, Hardcore
+
+
+
+### "Bad Trip" 2004, Hardcore
+
+
+
+### "Rip It Out (EP)" 2005, Hardcore
+
+
+
+### "Full Scale Assault" 2008, Hardcore
+
+1. Full Scale Assault 1:42
+2. Deal With It (ft. John Brannon Of Negative Approach) 1:21
+3. Get In The Pit 1:09
+4. Pull No Punches 1:15
+5. Better Get Away 1:06
+6. Time Has Come 1:32
+7. You Suck 1:20
+8. Grim Reaper 1:01
+9. Take It Or Leave It 1:19
+10. Head Full Of Demons 2:03
+11. Pressure Release (ft. John Brannon Of Negative Approach) 1:16
+12. Big Black Hole 1:15
+13. Slam Dunk 1:11
+14. Disintegration/Civilisation 1:56
+15. Blown Away 1:10
+16. Watcha Gonna Do 1:22
+17. Wake Up 1:02
+18. Block Bust 1:20
+19. Suburban Nightmare 1:34
+20. Yes Sir, No Sir 1:01
+
+### "About To Crack" 2012, Hardcore
+
+
+
 
 ## Отношения с другими группами
 

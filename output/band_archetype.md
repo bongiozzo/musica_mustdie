@@ -1,7 +1,23 @@
 # Archetype
 
-Дискография
-"Dawning" 2002, Progressive
+
+
+## Дискография
+
+### "Dawning" 2002, Progressive
+
+Final Day
+Hands Of Time
+Dawning
+Dissension's Wake
+Inside Your Dreams
+Premonitions
+Visionary
+Arisen
+The Mind's Eye
+Years Ago
+Reflection (bonus track)
+
 
 ## Отношения с другими группами
 

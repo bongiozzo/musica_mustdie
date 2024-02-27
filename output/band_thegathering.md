@@ -1,22 +1,335 @@
 # The Gathering
 
-Дискография
-"Always ..." 1992, Death Doom
-"Almost A Dance" 1993, Death Doom
-"Mandylion" 1995, Death Doom
-"Strange Machines" 1996, Death Doom
-"Nighttime Birds" 1997, Gothic
-"The May Song" 1997, Gothic
-"How To Measure a Planet?" 1998, Gothic
-"If_Then_Else" 2000, Gothic
-"Souvenirs" 2003, Metal
-"Sleepy Buildings" 2004, Metal
-"Accessories - Rarities And B-Sides" 2005, Gothic
-"Home" 2006, Metal
-"The West Pole" 2009, Metal
-"Heroes for Ghosts (single)" 2011, Rock
-"Meltdown (single)" 2012, Gothic
-"Disclosure" 2012, Gothic
+Very Innovative Band
+
+## Дискография
+
+### "Always ..." 1992, Death Doom
+
+1. The Mirror Waters
+2. Subzero
+3. Sickness & Health
+4. King For A Day
+5. Second Sunrise
+6. Stonegarden
+7. Always ...
+8. Gaya`s Dream
+
+Bart Smiths - Vocal
+Rene Rutten - Guitar
+Jelmer Wiersma - Guitar
+Hugo Prinsen Geerligs - Bass,Slute
+Frank Boeijen - Piano
+Hans Rutten - Drums
+
+Produced & Mixed By Han Swagerman & THE GATHERING.
+Engineered By Han Swagerman.
+Recorded & Mixed At The Peauford Studio,Holland 28.02.92 - 7.03.92.
+
+(p)&(c) 1992 FOUNDATION 2000 Records
+
+### "Almost A Dance" 1993, Death Doom
+
+1. On A Wave
+2. The Blue Vessel
+3. Her Last Flight
+4. The Sky People
+5. Nobody Dares
+6. Like Fountains
+7. Proof
+8. Heartbeat Amplifier
+9. A Passage To Desire
+
+ Niels Duffhues - Vocals, Acoustic Guitar
+ Frank Boeijen -Keyboards, Synthesizers, Samples
+ Rene Rutten - Electric & Acoustic Guitars
+ Jelmer Wiersma  - Electric & Acoustic Guitars
+ Hugo Prinsen Geerligs - Bass, Flute
+ Hans Rutten - Drums
+ Martine Van Loon - Female Vocals
+
+All Songs Written By THE GATHERING
+Produced, Engineered & Mixed By Tom Halkenborg.
+Recorded Live And Mixed At "Spitsbergen" Studio,September 1993
+
+(p)&(c) 1993 FOUNDATION 2000
+
+### "Mandylion" 1995, Death Doom
+
+1. Strange Machines
+2. Eleanor
+3. In Motion #1
+4. Leaves
+5. Fear The Sea
+6. Mandylion
+7. Sand And Mercury
+8. In Motion #2
+
+All Music By THE GATHERING.
+All Lyrics By Anneke van Giersbergen.
+Produced By Siggi Bemm And Waldemar Sorychta & THE GATHERING.
+Recorded & Mixed June 1st- June 16th '95 At Woodhouse Studios, Hagen, Germany.
+Engineered By Siggi Bemm And Waldemar Sorychta.Mastered At DMS.
+
+Anneke van Giersbergen - Vocals
+Rene Rutten - Guitars,Flute
+Jelmer Wiersma -  Guitar
+Frank Boeijen - Synthesizers
+Hugo Prinsen Geerligs - Bass
+Hans Rutten - Drums
+
+(P)&(C) 1995 CENTURY MEDIA Records
+
+### "Strange Machines" 1996, Death Doom
+
+1. Strange Machines (Single Edit)
+2. Strange Machines (Album Version)
+3. In Motion #1 (Live)
+4. Leaves
+
+All Songs By THE GATHERING.
+Produced By Siggi Bemm And Waldemar Sorychta.
+Recorded & Mixed At Woodhouse Studios, Hagen, Germany.
+Tracks 3,4 Recorded Live At KRO's Leidsekade.
+Engineered By Hans Bunt.
+
+Anneke van Giersbergen - Vocals
+Rene Rutten - Guitars,Flute
+Jelmer Wiersma -  Guitar
+Frank Boeijen - Synthesizers
+Hugo Prinsen Geerligs - Bass
+Hans Rutten - Drums
+
+(P)&(C) 1996 CENTURY MEDIA Records
+
+### "Nighttime Birds" 1997, Gothic
+
+1. On Most Surfaces
+2. Confusion
+3. The May Song
+4. The Earth Is My Witness
+5. New Moon Different Day
+6. Third Chance
+7. Kevin's Telescope
+8. Nighttime Birds
+9. Shrink
+
+All Music By The Gathering
+All lyrics by Anneke van Giersbergen
+Produced by Siggi Bemm & the Gatering
+
+Anneke van Giersbergen - vocals
+Rene Rutten - guitars
+Jelmer Wiersma - guitars
+Frank Boeijen - synthesizer, grand piano
+Hugo Prinsen Geerligs - bass
+Hans Rutten - drums
+
+(p)1997 Century Media
+
+### "The May Song" 1997, Gothic
+
+
+
+### "How To Measure a Planet?" 1998, Gothic
+
+1. Frail (you might as well be me)
+2. Great Ocean Road
+3. Rescue Me
+4. My Electricity
+5. Liberty Bell
+6. Red Is a Slow Color
+7. The Big Sleep
+8. Marooned
+9. Travel
+10.South American Ghost Ride
+11.Illuminating
+12.Locked Away
+
+Produced by Attie Bauw
+
+### "If_Then_Else" 2000, Gothic
+
+Rollercoaster 
+Shot to pieces 
+Amity 
+Bad movie scene 
+Colorado incident 
+Beautiful war 
+Analog park 
+Herbal movement 
+Saturnine 
+Morphia's waltz 
+Pathfinder
+
+### "Souvenirs" 2003, Metal
+
+1.These good people 
+2. Even the spirits are afraid 
+3. Broken glass 
+4. You learn about it 
+5. Souvenirs 
+6. We’ve just stopped breathing 
+7. Monsters 
+8. Golden grounds 
+9. Jelena 
+10. A life all mine
+
+Anneke van Giersbergen - vocals
+Hans Rutten - drums & percussion
+Rene Rutten - guitars
+Hugo Prinsen Geerligs - bass
+Frank Boeijen - keyboards & programming
+
+(p) 2003 Psychonaut Records
+
+### "Sleepy Buildings" 2004, Metal
+
+1. Locked Away
+2. Saturnine
+3. Amity
+4. The Mirror Waters
+5. Red Is A Slow Colour
+6. Sleepy Buildings
+7. Travel
+8. Shrink
+9. In Motion Part II
+10. Stonegarden
+11. My Electricity
+12. Marooned
+13. Like Fountains
+
+### "Accessories - Rarities And B-Sides" 2005, Gothic
+
+CD one – the b-sides: 
+1. In Motion #1 (live) 
+Taken from Strange Machines CD-Single 
+2. Leaves (live) 
+Taken from Strange Machines CD-Single 
+3. Adrenaline 
+Taken from Adrenaline/Leaves CD-Single 
+4. Third Chance 
+Taken from Adrenaline/Leaves CD-Single 
+5. Strange Machines (live w/Orchestra) 
+Taken from The May Song CD-Single 
+6. In Power We Trust The Love Advocated (Dead Can Dance cover version) 
+Taken from Kevin’s Telescope CD-Single 
+7. When The Sun Hits (Slowdive cover version) 
+Taken from Adrenaline/Leaves CD-Single 
+8. Confusion (demo/ Eroc session) 
+Taken from Adrenaline/Leaves CD-Single 
+9. Shrink 
+Taken from Liberty Bell CD-Single 
+10. Frail (live) 
+Taken from Liberty Bell CD-Single 
+11. Theme From ”The Cyclist” 
+Taken from Rollercoaster CD-Single 
+12. Leaves (live w/Orchestra) 
+Taken from Rollercoaster CD-Single 
+13. Life Is What You Make It (Talk Talk cover version) 
+Taken from Amity CD-Single 
+14. Amity (live at Isabelle) 
+Taken from Amity CD-Single 
+
+CD two – the rarities: 
+1. New Moon, Different Day * 
+2. Kevin’s Telescope (instrumental) * 
+3. Shrink * 
+4. The Earth Is My Witness * 
+5. Diamond Box (previously unreleased instrumental) * 
+6. Nighttime Birds * 
+7. On Most Surfaces * 
+8. Hjelmar’s (previously unreleased instrumental) * 
+9. My Electricity ** 
+10. Probably Built In The Fifties ** 
+11. Illuminating ** 
+12. Red Is A Slow Colour ** 
+13. Travel ** 
+
+* Demo session for Nighttime Birds, recorded at Woodhouse Studios, Germany. Mixed by Eroc November 1996. 
+** Demo session for How To Measure A Planet?, recorded at Texel, the Netherlands, February 1998.
+
+### "Home" 2006, Metal
+
+01. Shortest Day
+02. In Between 
+03. Alone
+04. Waking Hour 
+05. Fatigue
+06. A Noise Severe 
+07. Forgotten
+08. Solace 
+09. Your Troubles Are Over
+10. Box 
+11. The Quiet One
+12. Home 
+13. Forgotten Reprise
+
+### "The West Pole" 2009, Metal
+
+1. When Trust Becomes Sound 03:53  
+2. Treasure 04:08
+3. All You Are 04:34
+4. The West Pole 06:35
+5. No Bird Call 05:38
+6. Capital of Nowhere 06:35
+7. You Promised Me a Symphony 02:54
+8. Pale Traces 07:46
+9. No One Spoke 04:32
+10. Constant Run 07:44 
+
+### "Heroes for Ghosts (single)" 2011, Rock
+
+1. Heroes for Ghost 10:57
+
+"A brand new The Gathering track just for free! 'Heroes For Ghost' is a song which will appear on our new album, title and release date t.b.a.
+ We hope you will like it as much as we do. We think we made something really special. And yes, it's for free! :)
+ Enjoy! TG" 
+
+You can listen and download the track here:
+ http://thegathering.bandcamp.com/track/heroes-for-ghosts
+ 
+The Gathering: 
+Frank Boeijen - Keyboards 
+Marjolein Kooijman - Bass 
+Hans Rutten - Drums 
+Renй Rutten - Guitars 
+Silje Wergeland - Vocals
+ 
+Guests musicians: 
+Jos van den Dungen - Violin and Viola
+ Noel Hoffman - Trumpet
+ 
+Music by R. Rutten/F. Boeijen
+ Lyrics by Silje Wergeland
+ 
+Produced by Renй Rutten
+ Drums recorded at SoundVision studio
+ Engineered by George Konings
+ Additional recordings at Studio 2
+ Engineered by Renй Rutten
+ Mixed by Guido Aalbers at GieSound
+ Mastered by Paul Matthijs Lombert at The Mastering Factory
+ 
+
+### "Meltdown (single)" 2012, Gothic
+
+1. Meltdown 08:23
+
+A brand new The Gathering track. ‘Meltdown’ is a song which will appear on the new album 'Disclosure'. Male vocals were done by Frank Boeijen. 
+
+### "Disclosure" 2012, Gothic
+
+1. Paper Waves 
+2. Meltdown  
+3. Gemini I 
+4. Heroes For Ghosts 
+5. Missing Seasons 
+6. See For Miles 
+7. Paralyzed 
+8. Gemini II 
+
+
 
 ## Отношения с другими группами
 

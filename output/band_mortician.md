@@ -1,14 +1,193 @@
 # Mortician
 
-Дискография
-"Mortal Massacre (EP)" 1993, Death Metal
-"House By The Cemetery (EP)" 1995, Death Metal
-"Hacked Up For Barbecue" 1997, Death Metal
-"Zombie Apocalypse (EP)" 1998, Deathcore
-"Chainsaw Dismemberment" 1999, Deathcore
-"Domain Of Death" 2001, Deathcore
-"Darkest Day Of Horror" 2003, Deathcore
-"Re-Animated Dead Flesh" 2004, Deathcore
+American grind/death metal
+
+## Дискография
+
+### "Mortal Massacre (EP)" 1993, Death Metal
+
+1. Intro / Mortal Massacre
+2. Drilling For Brains
+3. Redrum / Outro
+4. Intro / Mortician
+5. Brutally Mutilated
+6. Necrocannibal / Outro
+7. Mortal Massacre
+8. Brutally Mutilated
+9. Necrocannibal
+10. Drilling For Brains
+11. Hacked Up For Barbecue
+12. Redrum
+13. Bloodcraving
+14. Cremated
+15. Mortician
+16. Brutally Mutilated
+17. Drilling For Brains
+18. Bloodcraving
+19. Scum
+20. Mortician
+
+
+Tracks 1-3 recorded at D-D Studios. Engineered and produced by Roger Beaujard,
+Will Rahmer (MORTICIAN).
+Tracks 4-6 recorded at Sleepyhollow Studios. Engineered and produced by
+MORTICIAN.
+Tracks 7-15 recorded live at the Michigan Metal Fest 2, Detroit, Michigan
+November 16th, 1992.
+Track 16-20 recorded live at the Buffalo Death Fest, Buffalo, NY, October
+20th, 1990.
+
+
+Will Rahmer - bass/vocals,
+Matt Sicher - drums,
+Roger Beaujard - guitar tracks 1-3, 7-15,
+John McEntee - guitar on tracks 4-6, 16-20
+
+All songs by MORTICIAN except 19 by NAPALM DEATH
+
+
+
+### "House By The Cemetery (EP)" 1995, Death Metal
+
+1. Intro / Defiler Of The Dead
+2. Barbaric Cruelties
+3. World Domination
+4. Driller Killer
+5. House By The Cemetery / Outro
+6. Procreation (Of The Wicked)
+7. Scum
+8. Intro / Gateway To Beyond
+9. Flesheaters
+10. Noturam Demondo / Outro
+
+
+### "Hacked Up For Barbecue" 1997, Death Metal
+
+1. Bloodcraving
+2. Embalmed Alive
+3. Cremated
+4. Three On A Meathook
+5. Brutally Mutilated
+6. Deranged Insanity
+7. Cannibal feast
+8. Blown To Pieces
+9. Fog Of Death
+10. Brutal Disfigurement
+11. Apocalyptic Devastation
+12. Inquisition
+13. Hacked Up For barbecue
+14. Abolition
+15. Necrocannibal
+16. Ripped In Half
+17. Morbid Butchery
+18. Decapitated
+19. Drilling For Brains
+20. Eaten Alive By Maggots
+21. Witches' Coven
+22. Worms
+23. Annihilation
+24. Mortician
+
+
+### "Zombie Apocalypse (EP)" 1998, Deathcore
+
+1. Devoured Alive
+2. Incinerated
+3. Zombie Apocalypse
+4. Slaughterhouse
+5. Hell on Earth
+6. F.O.D. (Fuck of Death)
+7. Horrified
+8. Charred Corpses
+9. Dissected
+10. Blood Harvest
+
+
+Will Rahmer: bass guitar & vocals
+Roger J. Beaujard: guitars & drum programming
+Desmond Tolhurst: guitars
+
+### "Chainsaw Dismemberment" 1999, Deathcore
+
+1. Stab
+2. Fleshripper
+3. Drowned In Your Blood
+4. Mass Mutilation
+5. Mauled Beyond Recognition
+6. Rabid
+7. Bloodshed
+8. Decayed
+9. Final Bloodbath
+10. Island Of The Dead
+11. Brutalized
+12. Slaughtered
+13. The Crazies
+14. Silent Night, Bloody Night
+15. Chainsaw Dismemberment
+16. Psychotic Rage
+17. Funeral Feast
+18. Wolfen
+19. Dark Sanity
+20. Camp Blood
+21. Tormented
+22. Slaughterhouse (Part II)
+23. Barbarian
+24. Rats
+25. Master Yenebarum
+26. Splattered
+27. Obliteration
+28. Lord Of The Dead (Mortician Part II)
+
+### "Domain Of Death" 2001, Deathcore
+
+1. Brood Of Evil
+2. Maimed And Mutilated
+3. Bone Crusher
+4. The Hatchet Murders
+5. Extinction Of Mankind
+6. Domain Of Death
+7. Cannibalized
+8. Pulsating Protoplasma
+9. Martin (The Vampire)
+10. Telepathic Terror
+11. Mutilation Of The Human Race
+12. Wasteland Of Death
+13. Dr. Gore
+14. Extra Uterine Pregnancy
+15. Tenebrae
+16. Devastation
+17. Necronomicon Ex Mortis
+
+
+### "Darkest Day Of Horror" 2003, Deathcore
+
+1. Audra 
+2. Slowly Eaten 
+3. The Bloodseekers 
+4. Voodoo Curse 
+5. Massacred 
+6. Human Puzzle 
+7. Chopped to Pieces 
+8. Revenge 
+9. Mangled 
+10. Dead and Buried 
+11. Darkest Day of Horror 
+12. Rampage 
+13. Cannabalistic Fiends 
+14. Carving Flesh 
+15. Ghost House 
+16. Vaporized 
+17. Pledge Night of Death 
+18. Taste For Blood 
+19. Disintegrated 
+20. The Final Sacrifice
+ 
+
+
+### "Re-Animated Dead Flesh" 2004, Deathcore
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,29 @@
 # Summon
 
-Дискография
-"Baptized In Fire" 2000, Black Metal
-"And The Blood Runs Black" 2002, Black Metal
+black-metal from America
+
+## Дискография
+
+### "Baptized In Fire" 2000, Black Metal
+
+Intro
+Sons Of Wrath 
+Visions Of Apocalyptic Grace 
+Baptized By Fire 
+The Silence Of Chaos 
+Dark Descent Of Fallen Souls 
+Ream Of No Return 
+Burning Black Desire 
+Beyond The Gates Of Scora 
+Eve Of Anti-Creation 
+Eternal Darkness 
+Outro
+
+
+### "And The Blood Runs Black" 2002, Black Metal
+
+
+
 
 ## Отношения с другими группами
 

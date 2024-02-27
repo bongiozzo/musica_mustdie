@@ -1,9 +1,74 @@
 # Salacious Gods
 
-Дискография
-"Askengris" 1999, Black Metal
-"Sunnevot" 2001, Black Metal
-"Piene" 2005, Black Metal
+Fast Melodic Black Metal from Holland
+
+## Дискография
+
+### "Askengris" 1999, Black Metal
+
+01. My Effigy Unfurled and Withered
+02. Blazeheart
+03. Firestorm
+04. The Draft That Scourges The Innocense Of Ages
+05. Everlasting Winterbreeze
+06. Mellow Dance Within The Wicked Circle
+07. Salacious Gods
+08. Askengris
+
+
+
+Steakelhorn - Vocals
+Iezelzweard - Guitars
+Gra Blacksvamp - Drums
+Dnaleor - Keys
+Nevhelnoaste - Bass
+
+
+Askengris was recorded at "Franky's Recording Kitchen"
+Executive producer: The Satanic Twins
+Engineered & mastered by Berthus Westerhuys
+All music and lyrics by Salacious Gods
+Band photography: Mello Holsheimer
+Artworks by Coldblood Industries
+Logo design: Bjorn Ruvingh
+Additional guitars - Olga Blacksvamp
+ 
+
+### "Sunnevot" 2001, Black Metal
+
+1. Nebel... (Intro)
+2. Manifest Of The Phantoms Fasade
+3. At The Sound Of The Midwinterhorn
+4. Twaeduster Night
+5. Spirits Of The Eldergods Domain
+6. Soulbite
+7. Testify My Vanity
+8. Dead, Spectral Wolfmoon
+9. Prolongation...
+10. Sunnevot
+
+
+
+Steakelhorn - Vocals
+Iezelzweard - Guitars
+Gra Blacksvamp - Drums
+Dnaleor - Keys
+Nevhelnoaste - Bass
+
+
+### "Piene" 2005, Black Metal
+
+1. Knekelvoeste 03:57  
+2. Black Bile Deserration 04:10  
+3. Leskaold In Piene 04:52  
+4. Annexation To The Pentagram 03:27  
+5. Scars On My Wrists 03:03  
+6. Hexenkult 04:10  
+7. Sarin Attack 04:15  
+8. Slaughtering Blasphemic Hellforce 05:25  
+9. Striem Op De Pokkel 1226 05:55  
+10. Das Todestal 02:37
+
 
 ## Отношения с другими группами
 

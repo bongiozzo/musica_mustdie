@@ -1,7 +1,37 @@
 # On The Rise
 
-Дискография
-"On The Rise" 2003, Hard Rock
+
+
+## Дискография
+
+### "On The Rise" 2003, Hard Rock
+
+ 1: Beat Of Your Heart    
+ 2: Lift You Up    
+ 3: The World Of Change    
+ 4: Memories Forever    
+ 5: Pride    
+ 6: Leaps & Bounds    
+ 7: Running In The Night    
+ 8: Keep Our Love Alive    
+ 9: Stay Away    
+ 10: Sadness Hits Like A Stone    
+ 11: Two Young Hearts    
+ 12: Could Have Been The Last Time    
+ 13: Stranded    
+ 14: The Moment 
+
+
+Terje Eide (lead & background vocals, guitars)
+Bennech Lyngboe (lead & background vocals)
+
+Guest musicians:
+Zsolt Meszaros (drums)
+Jan Martin Kleveland (Bass)
+Asbjorn Vie (Keyboards)
+Roy Bjorge (additional Keyboards) 
+
+
 
 ## Отношения с другими группами
 

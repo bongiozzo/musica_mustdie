@@ -1,7 +1,21 @@
 # Sirs
 
-Дискография
-"Existential nihilism" 2010, Ambient
+dark ambient
+
+## Дискография
+
+### "Existential nihilism" 2010, Ambient
+
+01. Intro
+02. Immersion In Nothingness
+03. Agony
+04. Total Destruction
+05. Rottenness
+06. Hatred Of Degenerate Humanity
+07. Existential Nihilism
+08. Death Breath
+09. Outro
+
 
 ## Отношения с другими группами
 

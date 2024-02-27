@@ -1,10 +1,25 @@
 # Lich King
 
-Дискография
-"Necromantic Maelstrom" 2007, Thrash
-"Toxic Zombie Onslaught" 2008, Thrash
-"World Gone Dead" 2010, Thrash
-"Born Of The Bomb" 2012, Thrash
+
+
+## Дискография
+
+### "Necromantic Maelstrom" 2007, Thrash
+
+
+
+### "Toxic Zombie Onslaught" 2008, Thrash
+
+
+
+### "World Gone Dead" 2010, Thrash
+
+
+
+### "Born Of The Bomb" 2012, Thrash
+
+
+
 
 ## Отношения с другими группами
 

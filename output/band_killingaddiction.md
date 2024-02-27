@@ -1,8 +1,39 @@
 # Killing Addiction
 
-Дискография
-"Omega Factor" 1993, Deathcore
-"Fall of the Archetypes" 2010, Death Metal
+Very Brutal
+
+## Дискография
+
+### "Omega Factor" 1993, Deathcore
+
+1. Omega Factor
+2. Equating The Trinity
+3. Nothing Remains
+4. Dehumanized
+5. Altered At Birth
+6. Necrosphere
+7. Global Freezing
+8. Impaled
+
+ Pat Bailey - Bass & Vocals
+ Chad Bailey - Guitar
+ Chris Wicklein - Guitar
+ Chris York - Percussion
+
+All Music By KILLING ADDICTION.
+All Lyrics By Pat Bailey.
+Produced By KILLING ADDICTION.
+Engineered By Buddy Ray.
+Recorded At Mirror Image Studio,
+Gainesville,FL.
+No Vocal Effects Are Used On This Album.
+
+(p)&(c) 1993 JL AMERICA Inc
+
+### "Fall of the Archetypes" 2010, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,13 +1,105 @@
 # Abscess
 
-Дискография
-"Urine Junkies" 1995, Death Metal
-"Seminal Vampires And Maggot Man" 1996, Death Metal
-"Tormented" 2000, Death Metal
-"Through The Cracks Of Death" 2002, Death Metal
-"Damned And Mummified" 2004, Death Metal
-"Horrorhammer" 2007, Death Metal
-"Dawn Of Inhumanity" 2010, Death Metal
+
+
+## Дискография
+
+### "Urine Junkies" 1995, Death Metal
+
+1.  Aching Meat
+2.  Urine Junkies *
+3.  Crawled Up From The Sewer
+4.  29th Lobotomy
+5.  Horny Hag
+6.  Depopulation
+7.  Zombification
+8.  Blacktooth Beast
+9.  The Scent Of Shit
+10.Altar Toy
+11.Suicide Fuck
+12.Raw Sewage
+13.Die Pig Die
+14.Inbred Abomination
+15.Unquenchable Thirst *
+16.Abscess
+17.Bloodsucker *
+18.Anally Impaled
+
+All Songs By ABSCESS.
+Recorded & Mixed At Spectrum.
+
+Chris Reifert - Drums, Oral Defecation
+Clint Bower - Guitars, Screams
+Danny Coralles - Guitars, Howls, Bass On *
+Freeway Migliore - Bass, Pukes, Drums On *
+
+(P)&(C) 1995 RELAPSE Records
+
+### "Seminal Vampires And Maggot Man" 1996, Death Metal
+
+1.  Naked Freak Show
+2.  Freak Fuck Fest (Naked Freak Show II: Orgy Of The Gaffed)
+3.  Patient Zero
+4.  Zombie Ward
+5.  Mud
+6.  Stiff And Ditched
+7.  Fatfire
+8.  I Don't Give A Fuck
+9.  Burn, Die And Fucking Fry
+10.Global Doom
+11.Remowing The Leech
+12.Pinworms
+13.Gonna Mow You Down
+14.Disgruntled
+15.Tunnel Of Horrors
+16.Worm Sty Infection
+17.Dirty Little Brats
+18.The Scent Of Shit
+
+Recorded and Mixed at Razors Edge
+Engineered by Atom
+Produced by ABSCESS
+Cover artwork by Spike Milliken
+Band residence: USA
+
+Clint Bower - Chainsaw Lust, Screeching Nerve Damage
+Danny Coralles - Extreme Head Severence, Deep Infestinal Bloodsaw, Howls From The Sewer
+Freeway M - Steamroller, Skull Bludgeoning, Lower Abdominal Rumblings
+Chris Reifert - Vocal Atrocities, Skin Abuse, Spitar
+
+(P)c 1996 RELAPSE Records // RR 6945
+
+### "Tormented" 2000, Death Metal
+
+
+
+### "Through The Cracks Of Death" 2002, Death Metal
+
+
+
+### "Damned And Mummified" 2004, Death Metal
+
+1  Through the Trash Darkly 
+2  Empty Horizon 
+3  Swallow the Venom  
+4  Caverns of Hades   
+5  The Dead are Smiling at Me  
+6  Twilight Bleeds  
+7  Lust for the Grave  
+8  The Dream is Dead  
+9  Damned and Mummified  
+10  Inferno of Perverse Creation  
+11  Tattoo Collector   
+12  Tirade of Hallucinations
+
+### "Horrorhammer" 2007, Death Metal
+
+
+
+### "Dawn Of Inhumanity" 2010, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

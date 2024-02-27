@@ -1,13 +1,37 @@
 # Elixir
 
-Дискография
-"The Son Of Odin" 1986, Heavy Metal
-"Lethal Potion" 1990, Heavy Metal
-"The Idol" 2003, Heavy Metal
-"Sovereign Remedy" 2004, Heavy Metal
-"Elixir Live" 2005, Heavy Metal
-"Mindcreeper" 2006, Heavy Metal
-"All Hallows Eve" 2010, Heavy Metal
+
+
+## Дискография
+
+### "The Son Of Odin" 1986, Heavy Metal
+
+
+
+### "Lethal Potion" 1990, Heavy Metal
+
+
+
+### "The Idol" 2003, Heavy Metal
+
+
+
+### "Sovereign Remedy" 2004, Heavy Metal
+
+
+
+### "Elixir Live" 2005, Heavy Metal
+
+
+
+### "Mindcreeper" 2006, Heavy Metal
+
+
+
+### "All Hallows Eve" 2010, Heavy Metal
+
+
+
 
 ## Отношения с другими группами
 

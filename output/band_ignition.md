@@ -1,7 +1,29 @@
 # Ignition
 
-Дискография
-"Ignition" 2003, Hard Rock
+Melodic Hard Rock
+
+## Дискография
+
+### "Ignition" 2003, Hard Rock
+
+01. Down On My Luck 
+02. Tell me Your Mine
+03. Father (Save Me)
+04. Fire With Fire 
+05. You Can’t Fool Me Nomore
+06. Babylon
+07. Night After Night
+08. Goodbye To A Good Times
+09. Should Have Done You Right 
+10. First To Cry
+11. Time Is Running Out
+
+
+PETER SODERSTROM - guitars, keyboards 
+JAN JOHANSEN - lead vocals 
+PONTUS EGBERG - bass 
+JOHAN KULLBERG - drums
+
 
 ## Отношения с другими группами
 

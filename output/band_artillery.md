@@ -1,15 +1,109 @@
 # Artillery
 
-Дискография
-"Fear Of Tomorrow" 1985, Thrash
-"Terror Squad" 1987, Thrash
-"By Inheritance" 1990, Thrash
-"Deadly Relics" 1998, Thrash
-"B.A.C.K." 1999, Thrash
-"When Death Comes" 2009, Thrash
-"My Blood" 2011, Thrash
-"Legions" 2013, Thrash
-"Penalty By Perception" 2016, Thrash
+
+
+## Дискография
+
+### "Fear Of Tomorrow" 1985, Thrash
+
+
+
+### "Terror Squad" 1987, Thrash
+
+ Side One:
+1. The Challenge
+2. In The Thrash
+3. Terror Squad
+4. Let There Be Sin
+ Side Two:
+1. Hunger And Greed
+2. Therapy
+3. At War With Science
+4. Decapitation Of Deviants
+
+(p)&(c) 1987 NEAT / ROADRUNNER Records
+
+### "By Inheritance" 1990, Thrash
+
+
+
+### "Deadly Relics" 1998, Thrash
+
+
+
+### "B.A.C.K." 1999, Thrash
+
+
+
+### "When Death Comes" 2009, Thrash
+
+1. When Death Comes 05:56  
+2. Upon My Cross I Crawl 05:28  
+3. 10.000 Devils 05:22  
+4. Rise Above It All 05:32  
+5. Sandbox Philosophy 04:44 
+6. Delusions Of Grandeur 05:10  
+7. Not A Nightmare 05:30 
+8. Damned Religion 05:10 
+9. Uniform 05:00  
+10. The End 05:22 
+
+
+Lineup:
+Sшren Nico Adamsen - Vocals
+Michael Stьtzer - Guitars 
+Morten Stьtzer - Guitars 
+Peter Thorslund - Bass 
+Carsten Nielsen - Drums 
+
+The CD was recorded at Medley Studios in Copenhagen with producer Sшren
+Andersen at Medley Studios in Copenhagen.
+
+Digipak bonus tracks:
+11. Refuse To Live, Part 2 (4:07)
+12. Warhead (4:53)
+
+The Japanese release contains an extra song:
+13. Chaos Ride 
+
+### "My Blood" 2011, Thrash
+
+1. Mi Sangre (The Blood Song)   
+2. Monster   
+3. Dark Days   
+4. Death is an Illusion   
+5. Ain't Giving In   
+6. Prelude to Madness   
+7. Thrasher   
+8. Warrior Blood   
+9. Concealed in the Dark   
+10. End of Eternity   
+11. The Great 
+  
+Digipak version has two bonus tracks:
+12. Show Your Hate 2011
+13. Eternal War 2011 
+
+### "Legions" 2013, Thrash
+
+
+
+### "Penalty By Perception" 2016, Thrash
+
+1. In Defiance of Conformity  05:45  
+2. Live by the Scythe  05:03    
+3. Penalty by Perception  04:58   
+4. Mercy of Ignorance  03:48    
+5. Rites of War  04:20    
+6. Sin of Innocence  05:14  
+7. When the Magic Is Gone  04:32  
+8. Cosmic Brain  04:34   
+9. Deity Machine  04:55   
+10. Path of the Atheist  04:47  
+11. Welcome to the Mindfactory  05:44  
+12. Liberty of Defeat (bonus)
+
+
 
 ## Отношения с другими группами
 

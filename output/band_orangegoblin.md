@@ -1,13 +1,101 @@
 # Orange Goblin
 
-Дискография
-"Frequencies From Planet Ten" 1997, Stoner
-"Time Travelling Blues" 1998, Stoner
-"The Big Black" 2000, Stoner
-"Coup De Grace" 2002, Stoner
-"Thieving From The House Of God" 2004, Stoner
-"Healing Through Fire" 2007, Stoner
-"A Eulogy For The Damned" 2012, Stoner
+
+
+## Дискография
+
+### "Frequencies From Planet Ten" 1997, Stoner
+
+1. The Astral Project (Class A)
+2. Magic Carpet
+3. Saruman's Wish
+4. Song of the Purple Mushroom Fish
+5. Aquatic Fanatic
+6. Lothlorian
+7. Land of Secret Dreams
+8. Orange Goblin
+9. Star Shaped Cloud
+
+### "Time Travelling Blues" 1998, Stoner
+
+1. Blue Snow
+2. Solarisphere
+3. Shine
+4. The Man Who Invented Time
+5. Diesel (Phunt)
+6. Snail Hook
+7. Nuclear Guru
+8. Lunarville 7, Airlock 3
+9. Time Travelling Blues
+
+### "The Big Black" 2000, Stoner
+
+1. Scorpionica
+2. Quincy The Pigboy
+3. Hot Magic Red Planet
+4. Cozmo Bozo
+5. 298 kg
+6. Turbo Effalunt (Elephant)
+7. King Of The Hornets
+8. You'll Never Get To The Moon In That
+9. Alco Fuel
+10. The Big Black
+11. Into The Void (Japan Bonus Track Only)
+
+### "Coup De Grace" 2002, Stoner
+
+1. Your World Will Hate This
+2. Monkey Panic
+3. Rage Of Angels
+4. Made Of Rats
+5. Whiskey Leech
+6. Getting High On The Bad Times
+7. Graviton
+8. Red Web
+9. Born With Big Hands
+10. Jesus Beater
+11. We Bite (Misfits Cover)
+12. Stinkin' O' Gin
+
+### "Thieving From The House Of God" 2004, Stoner
+
+1. Some You Win, Some You Lose
+2. One Room, One Axe, One Outcome
+3. Hard Luck
+4. Black Egg
+5. You're Not The One (Who Can Save Rock'n'Roll)
+6. If It Aint Broke, Break It
+7. Lazy Mary
+8. Round Up The Horses
+9. Tosh Lines
+10. Just Got Paid (ZZ Top Cover)
+11. Crown Of Locusts
+
+### "Healing Through Fire" 2007, Stoner
+
+1. The Ballad Of Solomon Eagle
+2. Vagrant Stomp
+3. The Ale House Braves
+4. Cities Of Frost
+5. Hot Knives & Open Sores
+6. Hounds Ditch
+7. Mortlake (Dead Water)
+8. They Come Back (Harvest Of Skulls)
+9. Beginners Guide To Suicide
+
+### "A Eulogy For The Damned" 2012, Stoner
+
+01. Red Tide Rising
+02. Stand For Something
+03. Acid Trial
+04. The Filthy & The Few
+05. Save Me From Myself
+06. The Fog
+07. Return To Mars
+08. Death Of Aquarius
+09. The Bishops Wolf
+10. A Eulogy For The Damned
+
 
 ## Отношения с другими группами
 

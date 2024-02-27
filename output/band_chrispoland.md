@@ -1,8 +1,29 @@
 # Chris Poland
 
-Дискография
-"Return to Metalopolis" 1990, Instrumental
-"Chasing the Sun" 2000, Instrumental
+former lead guitarist for Megadeth
+
+## Дискография
+
+### "Return to Metalopolis" 1990, Instrumental
+
+
+
+### "Chasing the Sun" 2000, Instrumental
+
+1. Chasing The Sun
+2. Hip hop karma
+3. Wendell's place
+4. Robo stomp
+5. Straight jacket
+6. Cosmo's thumb
+7. Lu lu's dream
+8. Salvador
+9. Interference blues
+10. Alphabet city
+11. Mercy
+12. Song for Paul
+13. Alexandria 99
+
 
 ## Отношения с другими группами
 

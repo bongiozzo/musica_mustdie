@@ -1,7 +1,24 @@
 # Crimson Falls
 
-Дискография
-"The True Face Of Human Nature" 2006, Death Metal
+
+
+## Дискография
+
+### "The True Face Of Human Nature" 2006, Death Metal
+
+01. Abort Every Weakness 
+02. Erase All Fear 
+03. Architecture Disavowed 
+04. Controle Alt Delete 
+05. Prelude To The Cataclysm 
+06. Four Slaves, Four Struggels 
+07. Martyr vs. Terrorist 
+08. Poetry For The Scum 
+09. In Flanders Fields 
+10. We Are The Dead 
+11. Book Of Memories 
+12. The True Face Of Human Nature
+
 
 ## Отношения с другими группами
 

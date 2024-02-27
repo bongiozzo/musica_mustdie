@@ -1,12 +1,99 @@
 # Falkenbach
 
-Дискография
-"...En Their Medh Riki Fara..." 1996, Black Metal
-"...Magni Blandinn Ok Megintiri..." 1998, Black Metal
-"Or Nefna Tysvar Ty" 2003, Black Metal
-"Heralding The Fireblade" 2005, Viking Metal
-"Tiurida" 2011, Viking Metal
-"Eweroun (single)" 2013, Viking Metal
+Atmospheric Gothic Black Doom Folk
+
+## Дискография
+
+### "...En Their Medh Riki Fara..." 1996, Black Metal
+
+1. Galdralag
+2. Deathenpride
+3. Lacknishendr
+4. Ultima Thule
+5. Asum Ok Alfum Naer...
+6. Winternight
+7. ...Into The Ardent Awaited Land...
+
+(P)(C) 1996 NO COLORS Records // NC 008
+
+### "...Magni Blandinn Ok Megintiri..." 1998, Black Metal
+
+1. ...When Gjallarhorn Will Sound...
+2. ...Where lood Will Soon Be Shed...
+3. ...Towards The Hall Of Bronzen Shields...
+4. The Heathenish Foray
+5. Walhall
+6. Baldurs Tod
+
+
+### "Or Nefna Tysvar Ty" 2003, Black Metal
+
+
+
+### "Heralding The Fireblade" 2005, Viking Metal
+
+01. Heathen Foray
+02. ...Of Forests Unknown...
+03. Havamal
+04. Roman Land
+05. Heralder
+06. Laeknishendr
+07. Walkiesjar
+08. Skirnir
+
+Vratyas Vakyas - clean vocals, choirs, guitars, keys
+Hagalaz - guitars, acoustic guitars, keys
+Tyrann - screams, spoken parts
+Boltthorn - drums, percussions
+
+All music & lyrics written by Vratyas Vakyas
+
+Finally re-recorded and mixed during August /
+September 2005
+at at TidalWave Studio, Karlsruhe, Germany,
+by Vratyas Vakyas and Patrick Damiani.
+
+Mastered at 29-96-Mastering Karlsruhe, Germany,
+by Robin Schmidt and Patrick Damiani.
+
+Layout by Philip Breuer
+
+### "Tiurida" 2011, Viking Metal
+
+1. Intro 01:38  
+2. ...Where His Ravens Fly... 07:25  
+3. Time Between Dog and Wolf 06:01  
+4. Tanfana 05:32  
+5. Runes Shall You Know 05:59  
+6. In Flames 07:53  
+7. Sunnavend 05:51  
+8. Asaland (Bonus Track) 04:06 
+
+
+
+Tiurida means "Glory"
+
+Recorded by Patrick Damiani at Tidalwave Studio
+
+Vratyas Vakyas (Markus Timmers) - Vocals, Instruments 
+
+Session musicians:
+Tyrann
+Hagalaz
+Boltthorn
+Alboin
+
+Released as: 
+- Jewelcase
+- Limited Digipak incl. Bonus track (Asaland)
+- LP limited to 350 Gatefold copies in black heavy Vinyl & 100 Gatefold copies
+in golden heavy Vinyl incl. Bonustrack (Asaland)
+- Deluxe Box incl. Limited Digipak & logo pendant 
+
+### "Eweroun (single)" 2013, Viking Metal
+
+1. Eweroun 05:50
+
 
 ## Отношения с другими группами
 

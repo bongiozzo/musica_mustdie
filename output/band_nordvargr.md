@@ -1,7 +1,20 @@
 # Nordvargr
 
-Дискография
-"Awaken" 2002, Ambient
+
+
+## Дискография
+
+### "Awaken" 2002, Ambient
+
+1 Awaken 04:24
+2 Cellardweller 05:00
+3 Kretslopp 08:14
+4 Lament 02:46
+5 Natt 06:16
+6 Hascimh 04:04
+7 Sulphur Mist 07:01
+8 Seeds of Blood (Acts I-4) 16:51
+
 
 ## Отношения с другими группами
 

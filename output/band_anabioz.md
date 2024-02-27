@@ -1,8 +1,35 @@
 # Anabioz
 
-Дискография
-"Through Darkness" 2008, Folk
-"...To Light" 2010, Folk
+
+
+## Дискография
+
+### "Through Darkness" 2008, Folk
+
+Through Darkness 
+Clouds 
+Mag Sleht 
+Рассвет 
+Lay His Sword By His Side 
+Рати две на бой сходились 
+The Earth's Blood 
+Sudden Agressor 
+My Enemy
+
+### "...To Light" 2010, Folk
+
+1. ...To Light 02:58  
+2. Good Ale, Srong Ale 04:50  
+3. There the River Sings 03:16  
+4. Brotherhearts 06:32  
+5. Fires of War 08:45  
+6. Зa стеной снегов 06:26  
+7. Hunt for Hunter 05:24  
+8. Demon's Circle 06:20  
+9. Voice of the North 07:54  
+10. Родная сторона 06:53  
+11. Feeling the Rain... 03:01 
+
 
 ## Отношения с другими группами
 

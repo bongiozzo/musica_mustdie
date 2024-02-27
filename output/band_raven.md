@@ -1,24 +1,115 @@
 # Raven
 
-Дискография
-"Rock Until You Drop" 1981, Heavy Metal
-"Wiped Out" 1982, Heavy Metal
-"All For One" 1983, Heavy Metal
-"Live At The Inferno" 1984, Heavy Metal
-"Stay Hard" 1985, Heavy Metal
-"The Pack Is Back" 1986, Heavy Metal
-"Mad (EP)" 1986, Heavy Metal
-"Life's A Bitch" 1987, Heavy Metal
-"Nothing Exceeds Like Excess" 1988, Heavy Metal
-"Architect Of Fear" 1991, Heavy Metal
-"Heads Up! (EP)" 1991, Heavy Metal
-"Mind Over Metal (Compilation)" 1993, Heavy Metal
-"Glow" 1994, Heavy Metal
-"Destroy All Monsters (Live)" 1996, Heavy Metal
-"Everything Louder" 1997, Heavy Metal
-"One For All" 2000, Heavy Metal
-"Walk Through Fire" 2009, Heavy Metal
-"ExtermiNation" 2015, Heavy Metal
+
+
+## Дискография
+
+### "Rock Until You Drop" 1981, Heavy Metal
+
+
+
+### "Wiped Out" 1982, Heavy Metal
+
+
+
+### "All For One" 1983, Heavy Metal
+
+
+
+### "Live At The Inferno" 1984, Heavy Metal
+
+
+
+### "Stay Hard" 1985, Heavy Metal
+
+
+
+### "The Pack Is Back" 1986, Heavy Metal
+
+
+
+### "Mad (EP)" 1986, Heavy Metal
+
+
+
+### "Life's A Bitch" 1987, Heavy Metal
+
+
+
+### "Nothing Exceeds Like Excess" 1988, Heavy Metal
+
+
+
+### "Architect Of Fear" 1991, Heavy Metal
+
+
+
+### "Heads Up! (EP)" 1991, Heavy Metal
+
+
+
+### "Mind Over Metal (Compilation)" 1993, Heavy Metal
+
+1.  Mind Over Metal
+2.  Faster Than The Speed Of Light
+3.  Take Control
+4.  All For One
+5.  To The Limit
+     To The Top
+6.  Hell Patrol
+7.  Rock Until You Drop
+8.  Hell Raiser
+     Action
+9.  Break The Chain
+10.Live At The Inferno
+11.Bring The Hammer Down
+12.Star Wars
+13.Fire Power
+14.Don't Need Your Money
+15.Run Silent Sun Deep
+16.Tyrant Of The Airways
+
+(P)c 1993 SUCCESS Records
+
+### "Glow" 1994, Heavy Metal
+
+
+
+### "Destroy All Monsters (Live)" 1996, Heavy Metal
+
+
+
+### "Everything Louder" 1997, Heavy Metal
+
+
+
+### "One For All" 2000, Heavy Metal
+
+
+
+### "Walk Through Fire" 2009, Heavy Metal
+
+
+
+### "ExtermiNation" 2015, Heavy Metal
+
+01. Intro / Destroy All Monsters
+02. Tomorrow
+03. Its Not What You Got
+04. Fight
+05. Battle March / Tank Treads (The Blood Runs Red)
+06. Feeding The Monster
+07. Fire Burns Within
+08. Scream
+09. One More Day
+10. Thunder Down Under
+11. No Surrender
+12. Golden Dawn
+13. Silver Bullet
+14. River Of No Return
+15. Bad Reputation (Japan Bonus Track)
+16. He's A Whore (Japan Bonus Track)
+
 
 ## Отношения с другими группами
 

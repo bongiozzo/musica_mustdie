@@ -1,13 +1,76 @@
 # Maniac Butcher
 
-Дискография
-"Barbarians" 1995, Black Metal
-"Lucan-Antikrist" 1996, Black Metal
-"Krvestreb" 1997, Black Metal
-"Cerna Krev" 1998, Black Metal
-"Invaze" 1999, Black Metal
-"Epitaph" 2000, Black Metal
-"Masakr" 2010, Black Metal
+
+
+## Дискография
+
+### "Barbarians" 1995, Black Metal
+
+1. Barbarians 
+2. Catheclasm 
+3. Sbaty Oter - Holy Father 
+4. Peklo - Hell 
+5. Second Creation 
+6. The End Of Messiah
+
+Vlad Blasphemer - Guitars
+Michael - Drums
+Forgotten - Guitars, Bass
+Barbarud Horn - Summoning
+
+(P)&(C) 1996 PUSSY GOD Records
+
+### "Lucan-Antikrist" 1996, Black Metal
+
+1. Zrada 04:51
+2. Pulnoeni Шнљe 03:35
+3. Luиanй 04:49 
+4. Ћatecky Hrad 05:41 
+5. Poslednн Bitva 04:24 
+6. Soudnэ Den 14:41 
+
+### "Krvestreb" 1997, Black Metal
+
+1. Vlбdce Modrй Oblohy 07:04
+2. Oиi Obмti 04:28
+3. Pнseт Жernэch Vran 05:12
+4. Smrt Nepravэm 04:00 
+5. Poslednн Varovбnн 04:24 
+6. Krvestшeb 06:11 
+
+### "Cerna Krev" 1998, Black Metal
+
+1. Lщza Okolnн, Chбtra Vљeobecnб, Jakoћ I Veљkerб Chamraп Nepotшebnб 03:39
+2. Rada Uћiteиnб, Kterak Stбшн Doћнti, A Taktйћ Doporuиenн Vhodnй Pro Ћivot A Pшeћitн 03:44 
+3. Sнlenэ Шeznнk, Rovnмћ Znбm Jako Maniac Butcher V Jazyce Englickйm 04:09
+4. Intermezzo 06:40  
+5. Zнznмnн Po Krvi, Vљak Vљeobecnм Znбmйmu Vampyrismu Ne Zcela Podobnй 06:45
+6. Pшбnн Nezvyklй Aћ Prapodivnй, Jehoћ Naplnмnнm Nбsledkщch Neobvyklэch Lze Docнliti 06:09
+7. Nesmrtelnost I Vмиnost, Zpщsobeny Prolitнm I Nбslednэm Poћitнm Znaиnйho Mnoћstvн Lidskй Krve 05:52 
+
+### "Invaze" 1999, Black Metal
+
+1. Vљehomнr Veљkerэ, Шнљн Smrti I Polem Bitevnнm Od Samэch Vмkщch Poибtkщch 04:42
+2. Bнdnб Smrt Neslavnб Иi Slбva Nesmrtelnб, Volba To&#65533; Jest Veskrze Jednoznaиnб 04:47
+3. Myљlenky Krvelaиnй, I Jinй Potшebnosti Vљelikй, Pro Zdбrnэ Prщbмh Bitvy Vэhodnй 03:42
+4. Bмsnмnн Bitevnн Prбvм Poинnб, Neb V Tomto Okamћenн Hodina Pщlnoиnн Odbэvб 05:44
+5. Шemeslo Vбleиnй, To Jest Mi Chlebem Vљednнm I Taktйћ Kratochvнlн Svбteиnн 05:06 
+6. Invaze Vљeniинcн, Pшinбљejнcн Slбvu Nehynoucн Vнtмzщm I Smrt Nezvratnou Poraћenэm 05:07
+7. Invaze (Assesor cover) 02:54 
+
+### "Epitaph" 2000, Black Metal
+
+
+
+### "Masakr" 2010, Black Metal
+
+1. Desatero krutэch zim pшeћitэch v teple ћhnoucн zбшe slбvy minulй 06:55
+2. Projнћпka hvozdem hlubokэm za ouиelem sинtбnн stavщch vlkщch a vlkodlakщch 04:24 
+3. Rozhodnutн nezvratnй vљecken mнr rozhodnм rozvracejнcн 04:31
+4. Bezboћnй rouhбnн zpovмdnн pшed taћenн vojnovйho zapoиetнm 03:48
+5. Masakr krvavэ pro plnмnн zбjmщch vyљљнch i шezniиenн nadbyteиnй pro kojenн pudщch nнzkэch 04:32 
+6. Zakonиenн oudмsnй bezpoиtщm krutou jistotu slibujнcн, vљak mne bezpoиet slibnэch nejistot skэtajнcн 05:34 
+
 
 ## Отношения с другими группами
 

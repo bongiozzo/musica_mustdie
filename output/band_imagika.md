@@ -1,13 +1,83 @@
 # Imagika
 
-Дискография
-"Imagika" 1995, Power Metal
-"Worship" 1998, Power Metal
-"And So It Burns" 2000, Power Metal
-"Devils On Both Sides" 2005, Power Metal
-"My Bloodied Wings" 2006, Power Metal
-"Feast For The Hated" 2008, Power Metal
-"Portrait of a Hanged Man" 2010, Power Metal
+Power Thrash from San Francisco
+
+## Дискография
+
+### "Imagika" 1995, Power Metal
+
+
+
+### "Worship" 1998, Power Metal
+
+
+
+### "And So It Burns" 2000, Power Metal
+
+1. Intro 
+2. Chaos to murder 
+3. Fallen one 
+4. My dominion 
+5. Atrocity 
+6. Hell 
+7. It burns 
+8. Annihilate 
+9. Darkness has come 
+10. Fade away 
+ 
+  
+David Michael - Vocals
+Steven D. Rice - Guitars
+Michael Dargis - Bass
+Henry Moreno - Drums 
+
+Produced by Uwe Lulis (Grave Digger). 
+Guest vocals by Chris Boltendahl (Grave Digger).
+
+### "Devils On Both Sides" 2005, Power Metal
+
+1. In Your Shadow 04:00
+2. Hexed 03:21
+3. Evils Rising 05:05
+4. Devils On Both Sides 04:12
+5. Last Battalion 04:15
+6. Back To The Beginning 06:53
+7. Voice Of Prejudice 04:29
+8. Dead Eye-Stare 03:26
+9. Spellbound 05:02 
+10. Vigilante 06:32 
+
+### "My Bloodied Wings" 2006, Power Metal
+
+1. The Tongue of Nyx 01:00  
+2. Hunter's Moon 04:01
+3. Second Coming 03:45
+4. Throw the Horns 04:14
+5. Heart of Icarus 05:15
+6. Weaken 03:46
+7. The Darkest of All Secrets 05:20
+8. Inhuman 04:19
+9. One More Day 05:15
+10. Forever Darkened 03:40
+11. My Bloodied Wings 06:46 
+
+### "Feast For The Hated" 2008, Power Metal
+
+1. Waking a Dead Man 04:01  
+2. Your Creator 03:39  
+3. Bleed as One... Appease the Gods 05:16  
+4. Behind Immortal Eyes 04:17  
+5. Feast for the Hated 04:44  
+6. Thinning out the Herd 05:00  
+7. The Sick Sense 05:22  
+8. New Power Rises 04:41  
+9. Held Beneath 04:18  
+10. Succubus 07:16 
+
+### "Portrait of a Hanged Man" 2010, Power Metal
+
+
+
 
 ## Отношения с другими группами
 

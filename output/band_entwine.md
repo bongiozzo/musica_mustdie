@@ -1,15 +1,104 @@
 # Entwine
 
-Дискография
-"Divine Infinity (demo)" 1997, Gothic
-"The Treasures within Hearts" 1999, Gothic
-"New Dawn (single)" 2000, Gothic
-"Gone" 2001, Gothic
-"Time of Despair" 2002, Gothic
-"The Pit (single)" 2002, Gothic
-"BitterSweet (single)" 2004, Gothic
-"diEversity" 2004, Gothic
-"Silver EP" 2005, Gothic
+
+
+## Дискография
+
+### "Divine Infinity (demo)" 1997, Gothic
+
+1. In the frame of wilderness
+2. My mistress
+3. Passion Flower
+4. Divine Infinity
+
+### "The Treasures within Hearts" 1999, Gothic
+
+1. Thy guiding light
+2. Deliverance
+3. In the frame of wilderness
+4. My mistress
+5. Enjoy the silence
+6. Veiled woman
+7. Don't let this night be over
+
+### "New Dawn (single)" 2000, Gothic
+
+1. New Dawn
+2. Closer (my love) - single edit
+
+### "Gone" 2001, Gothic
+
+1. Losing the ground
+2. Snow white suicide
+3. Closer (my love)
+4. New Dawn
+5. Grace
+6. Silence is killing me
+7. Thru the darkness
+8. Blood of your soul
+
+### "Time of Despair" 2002, Gothic
+
+1. Stream of Life
+2. The Pit
+3. Nothing left to say
+4. Safe in a dream
+5. Burden
+6. Falling apart
+7. Until the end
+8. Learn to let go
+9. Time of despair
+Ltd. ed. bonustracks: 
+- Tonight
+- Tears are falling
+
+### "The Pit (single)" 2002, Gothic
+
+1. The Pit
+2. Tears are falling
+
+### "BitterSweet (single)" 2004, Gothic
+
+
+
+### "diEversity" 2004, Gothic
+
+01. 2141943 
+02. Bitter Sweet 
+03. Someone To Blame 
+04. Bleeding For The Cure 
+05. Still Remains 
+06. Frozen By The Sun 
+07. Six Feet Down Below 
+08. Refill My Soul 
+09. Everything For You 
+10. Nothing’s Forever 
+11. Lost Within 
+
+Line-Up: 
+Mika Tauriainen: vocals 
+Tom Mikkola: guitars 
+Jaani Kahkonen: guitars 
+Joni Miettinen: bass 
+Aksu Hanttu: drums 
+Riitta Heikkonen: keyboards
+
+### "Silver EP" 2005, Gothic
+
+01. Break Me 
+02. Carry On Dancing 
+03. Still Waiting 
+04. Still Remains - live 
+05. The Pit - live 
+
+Line-Up: 
+Mika Tauriainen - vocals 
+Tom Mikkola - guitars 
+Jaani Kдhkцnen - guitars 
+Joni Miettinen - bass 
+Aksu Hanttu - drums 
+Riitta Heikkonen - keyboards
+
 
 ## Отношения с другими группами
 

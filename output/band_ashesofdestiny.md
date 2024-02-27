@@ -1,7 +1,23 @@
 # Ashes Of Destiny
 
-Дискография
-"Desolate Figures" 2007, Death Doom
+
+
+## Дискография
+
+### "Desolate Figures" 2007, Death Doom
+
+1. Decline  04:42  
+2. The arcane Light of Hecate  03:39
+3. A Wolf ripped a Sheep  05:38
+4. Desolate Figures  05:50    
+5. The Witch & the Devil  03:58  
+6. Rivers of Fire (Morrigan)  06:31    
+7. Tthe World dies  03:59  
+8. Shadow torward my Sky  04:21    
+9. Sadistic Fantasy  04:19  
+10. Outro  03:10    
+11. Hopeless (hidden track)  02:41 
+
 
 ## Отношения с другими группами
 

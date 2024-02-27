@@ -1,7 +1,22 @@
 # Aglarond
 
-Дискография
-"The Journey's End" 2001, Gothic
+
+
+## Дискография
+
+### "The Journey's End" 2001, Gothic
+
+1. Preludium
+2. The Portal
+3. The Gift of Darkness
+4. Lady of the Valley
+5. God's Stone
+6. Dark Stream
+7. Ease My Pain
+8. Blackened Rain
+9. The Journey's End (Promised Land pt. II)
+10. The Lonely Mountain
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,69 @@
 # Naked City
 
-Дискография
-"Torture Garden" 1991, Grindcore
+Jazz Noise Band
+
+## Дискография
+
+### "Torture Garden" 1991, Grindcore
+
+1. Blood Is Thin
+2. Demon Sanctuary
+3. Thrash Jazz Assassin
+4. Dead Spot 
+5. Bonehead
+6. Speedball
+7. Blood Duster
+8. Pile Driver
+9. Shangkuan Ling-Feng
+10.Numbskull
+11.Perfume Of A Critic's Burning Flesh
+12.Jazz Snob Eat Shit 
+13.The Prestidigitator
+14.No Reason To Believe
+15.Hellraiser
+16.Torture Garden
+17.Slan
+18.Hammerhead
+19.The Ways Of Pain
+20.The Noose
+21.Sack Of Shit
+22.Blunt Instrument
+23.Osaka Bondage
+24.Igneous Ejaculation
+25.Shallow Grave
+26.Ujaku
+27.Kaoru
+28.Dead Dread
+29.Billy Lier
+30.Victims Of Torture
+31.Speedfreaks
+32.New Jersey Scum Swamp
+33.S & M Sniper
+34.Pigfucker
+35.Cairo Chop Shop
+36.Fuck The Facts
+37.Obeah Man
+38.Facelifter
+39.N.Y.Flat Top Box
+40.Whiplash
+41.The Blade
+42.Gob Of Spit
+
+ John Zorn - Alto Sax,Vocals
+ Bill Frisell - Guitar
+ Wayne Norvitz - Keyboard
+ Fred Frith - Bass
+ Joey Baron - Drums
+ Yamatsuka Eye - Vocals (Guest)
+
+Recorded Martin Bisi (Brooklyn),Roger Moutenot(NYC)
+And Seigen Ono (Tokyo) 1989-1990
+Mixed By Roger Moutenot
+Mastering By Bob Ludwig
+Produced By John Zorn
+
+(p)&(c) 1991 SHIMMY 039
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,35 @@
 # Black Funeral
 
-Дискография
-"Vampyr - Throne Of The Beast" 1996, Black Metal
+
+
+## Дискография
+
+### "Vampyr - Throne Of The Beast" 1996, Black Metal
+
+1.  Ex Sanguini Draculae 
+2.  The Floating Blue Witchlight 
+3.  Valley Of The Shadow 
+4.  Spectral Agony Of Pain And Loneliness 
+5.  Vampyr - Throne Of The Beast 
+6.  Spirit Of The Werewolf
+7.  Rising From A Dishonored Grave 
+8.  Of Dark And Crimson Spheres
+
+Recorded & Mixed at Dungeons Of  Cachtice Castle.
+Produced by BLACK FUNERAL
+All music by Tavernier at York
+All lyrics by Baron Von Abaddlon
+Cover painting grimly done by Nachzehrer
+Logo by Equitant
+
+Baron Von Abaddon - Wolf Spirit Howlings
+Nocturnal - Jim Hensly - Lycanthropic Guitars, Bass,
+Asmoderic - J.B.York - Drums and Tribal Rike Percussion,
+Blackangel - Dean Tabernier - Lycanthropic Guitars, Bass,
+Desolate WinGs - Session synth
+
+(P)c 1996 FULLMOON PROD // FMP 005
+
 
 ## Отношения с другими группами
 

@@ -1,16 +1,364 @@
 # Catharsis
 
-Дискография
-"Proles  Florum" 1998, Death Doom
-"Febris Erotica" 1999, Progressive
-"Dea" 2001, Progressive
-"Imago" 2002, Power Metal
-"Имаго" 2003, Power Metal
-"Призрачный Свет EP" 2004, Heavy Metal
-"Крылья" 2005, Heavy Metal
-"Верни Им Небо DVD" 2005, Heavy Metal
-"Баллада Земли" 2007, Heavy Metal
-"Светлый Альбомъ" 2010, Heavy Metal
+neoclassic power metal
+
+## Дискография
+
+### "Proles  Florum" 1998, Death Doom
+
+CATHARSIS (intro)
+CHILD OF THE FLOWERS
+INNER DEVOTION
+WITHOUT YOU
+GATES TO NOWHERE
+THREE ROADS OF DOOM
+TEARS OF MY SOUL (outro)
+
+
+
+
+All music by Anthony & Jeff
+except Intro & Outro by Julia
+All lyrics by Bendrikov
+Recorded & mixed at TEF Studio,
+Moscow in December 1997
+Sound Engineered by Max Lebedev
+Female vocal on Outro by Abramova Lyudmila
+Cover design by Jeff
+
+Sergey "Immortal" Bendrikov - vocal
+Anthony Arikh - lead guitar
+Igor "Jeff" Polyakov - rhythm guitars
+Julia "Red" Egorova - keys / sound effects
+Alexandra Abanina - keys / vocals
+Vladimir Moochnov - drums
+Alexey "Cry" Kraev - bass
+
+
+
+
+### "Febris Erotica" 1999, Progressive
+
+SILENTIUM
+FEBRIS EROTICA
+TOWARDS THE ACME
+TAEDIUM VITAE (part I)
+TAEDIUM VITAE (part II)
+
+
+All music and lyrics by Anthony
+All songs arranged by CATHARSIS
+Recorded and mixed at SNC Studios
+in June-August 1999
+Sound Engineered by Evgeny Trushin
+Mastered at SBI records in September 1999
+Cover design by Jeff
+
+Anthony" Arikh - lead guitar,
+acoustic guitar
+Igor "Jeff" Polyakov - rhythm guitars,
+acoustic guitar
+Julia "Red" Egorova - keyboards,
+sound effects
+Vladimir Moochnov - drums
+Roman Senkin - bass (ex End Zone)
+Andrey Kapachov - vocals (I.N.R.I.)
+
+
+
+### "Dea" 2001, Progressive
+
+1/ Igni et Ferro - 6'53
+2/ A Trip Into Elysium - 4'58
+3/ My Love, the Phiery - 7'54
+4/ Etude No. 1 A-moll for Piano, Op. 1 - 2'46
+5/ Pro Memoria - 5'26
+6/ Silent Tears - 5'11
+7/ ...Into Oblivion - 2'57
+
+
+Oleg Zhilyakov - vocals
+Anthony Arikh - lead guitar, acoustic guitars
+Igor "Jeff" Polyakov - rhythm guitars, acoustic guitars
+Julia "Red" Egorova - keyboards, sound effects
+Vladimir Moochnov - drums
+Vadim Bystrov - bass
+
+Produced by 'Catharsis'
+Recorded, Engineered and Mixed by Evgeny Trushin at 'SNC' Studio, Moscow,
+Russia, December 2000
+Remixed by Evgeny Trushin at 'SNC' Studio, January 2001
+Mastered by Sergey Rybin at 'R-Sound Mastering', Moscow, Russia, January
+2001
+
+All music and lyrics written by Anthony
+except the text for 'My Love, the Phiery' (original version by Sergey
+Bendricov, translated into english by Maryann Kornilova, performed by
+Anthony)
+All tracks arranged by 'Catharsis'
+All bass on this recording by Roman Senkin ('End Zone')
+Photo by Maryann Kornilova
+Computer design by Jeff
+
+'Catharsis' contact:
+23/16-45, Stromynka, 107076, Moscow, Russia
+Business contact tel.: (095) 269-8665
+Official website: www.cea.ru/~catharsis
+E-mail: jeff@glasnet.ru, catharsis@cea.ru
+
+
+
+### "Imago" 2002, Power Metal
+
+1’33’’ UNTIL …
+IMAGO
+HEART OF THE WORLD
+SHATTER MY DREAMS
+SILENCE FLOWS …
+CHOSEN BY HEAVEN
+SUNRISE BEAST
+TARANTUL
+DANCING IN THE FIRE
+STAR WATERFALL
+CRUSADER
+FOLLOW THE SUN (BONUS TRACK)
+
+OLEG ZHILYAKOV – VOCALS, BACK VOCALS
+OLEG MISSION – LEAD GUITARS, ACOUSTIC GUITARS, FLUTE
+IGOR ‘JEFF’ POLYAKOV – RHYTHM GUITARS, ACOUSTIC GUITARS
+JULIA ‘RED’ – KEYS
+ANDREY ISCHENKO – DRUMS, PERCUSSION
+ALEXANDER TIMONIN - BASS
+
+PRODUCED BY JEFF & MISSION
+RECORDED, ENGINEERED AND MIXED BY EUGENY VINOGRADOV
+AT ‘DIE RECORDS’, MOSCOW, RUSSIA, JULY-SEPTEMBER 2002
+MASTERED BY EUGENY VINOGRADOV AT ‘DIE RECORDS’, MOSCOW, RUSSIA, SEPTEMBER 2002
+ALL TRACKS ARRANGED BY ‘CATHARSIS’
+LYRICS 2, 4, 6, 9 IDEA BY MISSION 
+ALL ENGLISH TEXTS BY ANDREW ‘ACE’ KRAVTSOV (TEL. (095) 711-79-24)
+PHOTOS BY ANTON PAVLOV (STUDIO UP) & VADIM SAVITSKY
+COVER CONCEPT AND ARTWORK BY JEFF
+EXECUTIVE PRODUCER : ANDY KORUKHIN 
+
+### "Имаго" 2003, Power Metal
+
+1'33' ДО ... (РЕМИКС) ( Mission )
+ИМАГО ( Mission / Авласенко )
+СЕРДЦЕ МИРА ( Mission / Пушкина )
+ВЗОРВИ МОИ СНЫ ( Mission / Авласенко, Jeff )
+ДАЛЬШЕ - ТИШИНА ... ( Mission / Пушкина )
+ИЗБРАННЫЙ НЕБОМ ( Mission / Авласенко, Jeff )
+РАССВЕТНЫЙ ЗВЕРЬ ( Mission / Пушкина )
+ТАРАНТУЛ (РЕМИКС) ( Mission )
+ТАНЦУЙ В ОГНЕ ( Mission / Авласенко, Jeff )
+ЗВЕЗДОПАД ( Mission / Ищенко, Авласенко, Jeff )
+ВОИН СВЕТА ( Mission / Пушкина )
+ИДИ ЗА СОЛНЦЕМ (БОНУС) ( Mission / Авласенко )
+
+
+ОЛЕГ ЖИЛЯКОВ - ВОКАЛ, БЭК ВОКАЛ
+ОЛЕГ MISSION - СОЛО ГИТАРА, АКУСТИЧЕСКАЯ ГИТАРА
+ИГОРЬ 'JEFF' ПОЛЯКОВ - РИТМ ГИТАРА, АКУСТИЧЕСКАЯ ГИТАРА
+JULIA RED - КЛАВИШНЫЕ
+АНДРЕЙ ИЩЕНКО - УДАРНЫЕ
+АЛЕКСАНДР ТИМОНИН - БАС ГИТАРА
+
+ПРОДЮСИРОВАНИЕ : ИГОРЬ 'JEFF' ПОЛЯКОВ, ОЛЕГ MISSION.
+ЗАПИСЬ И СВЕДЕНИЕ : ЕВГЕНИЙ ВИНОГРАДОВ, СТУДИЯ 'ДАЙ RECORDS', МОСКВА, РОССИЯ, ИЮЛЬ - СЕНТЯБРЬ, ДЕКАБРЬ '2002.
+ЗАПИСЬ УДАРНЫХ : СТУДИЯ "ЛЫТКАРИНО", ИЮЛЬ '2002.
+МАСТЕРИНГ : ЕВГЕНИЙ ВИНОГРАДОВ, СТУДИЯ 'ДАЙ RECORDS', ЯНВАРЬ '2003.
+РЕМИКС 'ТАРАНТУЛ' И '1'33'ДО ...' : ИГОРЬ ЛОБАНОВ, ДЕКАБРЬ '2002.
+АРАНЖИРОВКА ВСЕХ КОМПОЗИЦИЙ : ГРУППА 'CATHARSIS'.
+ИДЕЯ ТЕКСТОВ ПЕСЕН 2, 4, 6, 9 : ОЛЕГ MISSION.
+АВТОР АНГЛИЙСКИХ ТЕКСТОВ : АНДРЕЙ 'ACE' КРАВЦОВ (A44-KAG@YANDEX.RU).
+ФОТО : АНТОН ПАВЛОВ (STUDIO UP), ВАДИМ САВИЦКИЙ.
+ОФОРМЛЕНИЕ АЛЬБОМА И МУЛЬТИМЕДИА : ИГОРЬ 'JEFF' ПОЛЯКОВ.
+ОПЕРАТОР : АЛЕКСЕЙ МИРОНОВ ( MUSIC INFECTION TV ).
+ИСПОЛНИТЕЛЬНЫЙ ПРОДЮСЕР : АНДРЕЙ КОРЮХИН.
+ 
+
+
+### "Призрачный Свет EP" 2004, Heavy Metal
+
+01. кто ты?
+02. помни меня
+03. призрачный свет
+04. сердце мира (stillife remix)
+05. dancing in the fire (necromancer remix)
+06. eerie light
+
+олег жиляков - вокал
+олег mission - соло и акустическая гитара, флейта,
+клавишные
+игорь 'jeff' поляков - ритм и акустическая гитара
+александр тимонин - бас
+julia red - клавишные
+андрей ищенко - ударные
+
+бэк-вокал: ольга дзусова
+
+продюсирование: игорь'jeff'поляков,
+олег'mission'мишин
+запись и сведение: евгений виноградов, студия 'дай
+records', ноябрь 2003 - март 2004
+запись ударных: андрей ненадышин, студия '2
+барабанщика', лыткарино, июнь 2003
+продюсирование ударных: андрей ненадышин, андрей
+ищенко
+мастеринг: евгений виноградов, студия 'дай
+records', март 2004
+испольнительное продюсирование: андрей корюхин
+концепция и дизайн обложки: игорь'jeff'поляков
+фото: эмика (emika@mail33.com)
+мультимедиа: максим'raven'лазарев
+контакт: 117525 россия, москва, а/я 55
+www.catharsis.ru
+e-mail: jeff@irond.ru, jeff1@rol.ru
+официальный фан-клуб: www.our-catharsis.ru
+организация концертов: www.jcsound.ru
+тел. 8 910 4143197, 8 916 5543869
+
+сердце мира (stillife remix)
+ремикс: stan_i & m.s. / stillife, студия 'swanse',
+ростов-на-дону
+звукорежиссер: игорь короповский
+альт: мариам хатламаджиян
+
+dancing in the fire (cover sympho-black remix by
+necromancer)
+vocal recording and tracks remixed on
+axlrecords (axlrecords@inbox.ru)
+vocal by necromancer. (V.V.Sector, "OblikaMorale")
+www.oblikamorale@nm.ru
+
+### "Крылья" 2005, Heavy Metal
+
+01. Увертюра (музыка: Олег ‘Mission’ Мишин;
+аранжировка: Олег ‘Mission’ Мишин, Игорь ‘Jeff’
+Поляков)
+02. Кто ты? (музыка: Олег ‘Mission’ Мишин; текст:
+Вадим Авласенко, редакция: Игорь ‘Jeff’ Поляков;
+аранжировка: Олег ‘Mission’ Мишин, Игорь ‘Jeff’
+Поляков, Андрей Ищенко)
+03. Hold Fast (музыка: Олег ‘Mission’ Мишин;
+текст: Маргарита Пушкина; аранжировка: Олег
+‘Mission’ Мишин, Игорь ‘Jeff’ Поляков)
+04. Крылья (музыка: Олег ‘Mission’ Мишин; текст:
+Маргарита Пушкина; аранжировка: Олег ‘Mission’
+Мишин, Игорь ‘Jeff’ Поляков)
+05. Наш Путь (музыка: Олег ‘Mission’ Мишин; текст:
+Георгий Арустамьян; аранжировка: Олег ‘Mission’
+Мишин, Игорь ‘Jeff’ Поляков)
+06. Зов Зверя (музыка: Олег ‘Mission’ Мишин;
+текст: Игорь ‘Jeff’ Поляков; аранжировка: Олег
+‘Mission’ Мишин, Игорь ‘Jeff’ Поляков)
+07. Талисман (музыка: Олег ‘Mission’ Мишин; текст:
+Вадим Авласенко; аранжировка: Олег ‘Mission’
+Мишин, Игорь ‘Jeff’ Поляков)
+08. Madre (музыка: Олег ‘Mission’ Мишин; текст:
+Маргарита Пушкина; аранжировка: Олег ‘Mission’
+Мишин, Игорь ‘Jeff’ Поляков)
+09. Страж Времен (музыка: Олег ‘Mission’ Мишин;
+текст: Игорь ‘Jeff’ Поляков; аранжировка: Олег
+‘Mission’ Мишин, Игорь ‘Jeff’ Поляков)
+10. Помни Меня (музыка: Олег ‘Mission’ Мишин;
+текст: Маргарита Пушкина; аранжировка: Олег
+‘Mission’ Мишин, Игорь ‘Jeff’ Поляков, Андрей
+Ищенко, Александр Тимонин)
+11. Симфония Огня (музыка: Олег ‘Mission’ Мишин;
+текст: Георгий Арустамьян; аранжировка: Олег
+‘Mission’ Мишин, Игорь ‘Jeff’ Поляков)
+12. Песнь Луны (музыка: Олег ‘Mission’ Мишин;
+аранжировка: Олег ‘Mission’ Мишин)
+
+### "Верни Им Небо DVD" 2005, Heavy Metal
+
+КОНЦЕРТ В ДКГ 26.03.05
+
+01. УВЕРТЮРА (mission) КТО ТЫ?
+(mission/авласенко,jeff)
+02. СЕРДЦЕ МИРА (mission/пушкина)
+03. КРЫЛЬЯ (mission/пушкина)
+04. ДАЛЬШЕ-ТИШИНА... (mission/пушкина)
+05. ЗОВ ЗВЕРЯ (mission/jeff)
+06. СОЛО НА ФЛЕЙТЕ (mission)
+07. HOLD FAST (mission/пушкина)
+08. MADRE (mission/пушкина)
+09. СИМФОНИЯ ОГНЯ (mission/арустамьян)
+10. СОЛО НА УДАРНЫХ (ищенко)
+11. ПРИЗРАЧНЫЙ СВЕТ (mission/jeff)
+12. ВЗОРВИ МОИ СНЫ (mission/авласенко, jeff)
+13. НАШ ПУТЬ (mission/арустамьян)
+14. РАССВЕТНЫЙ ЗВЕРЬ (mission/пушкина)
+15. ПОМНИ МЕНЯ (mission/пушкина)
+16. ТАНЦУЙ В ОГНЕ (mission/авласенко)
+17. ИМАГО (mission/авласенко)
+18. ВОИН СВЕТА (mission/пушкина)
+
+БОНУС-МАТЕРИАЛЫ:
+
+- КРЫЛЬЯ-ТУР 2005
+- UNPLUGGED В 'ТОЧКЕ'
+- ФЕСТИВАЛЬ 'КРЫЛЬЯ-2005'
+
+### "Баллада Земли" 2007, Heavy Metal
+
+01. ВОЗЬМИ МЕНЯ К ВОРОТАМ ВАВИЛОНА ( музыка -
+Mission, текст - Пушкина )
+02. БАЛЛАДА ЗЕМЛИ ( музыка - Mission, текст -
+Пушкина )
+03. МЫ ПОБЕДИМ! ( музыка - Mission, текст - Jeff )
+04. БАЛЛАДА ЗЕМЛИ (piano version) ( музыка -
+Mission, текст - Пушкина,
+аранжировка и партия фортепиано - Жиляков )
+05. КРЫЛЬЯ ( [AMATORY] version )
+
++ bonus video 10 GRESSUS AD VERTEX
+
+### "Светлый Альбомъ" 2010, Heavy Metal
+
+1. A[O]Men
+2. Иной (album version)
+3. Триста лет полета
+4. Детям вольного ветра (album version)
+5. Catharsis
+6. Верный ангел мой
+7. Вечный странник
+8. Мы победим! (dark version)
+9. Семь дорог
+10. Выше кубки!
+11. Спасибо, друзья!
+
+
+
+олег жиляков – вокал, бэк-вокал
+игорь ‘jeff’ поляков – ритм и акустическая гитара
+олег ‘mission’ мишин – соло и акустическая гитара, флейта, клавишные
+александр тимонин – бас-гитара
+julia red – клавишные
+
+в записи принимали участие:
+алексей барзилович – ударные
+александр дронов - клавишные
+владимир лицов – соло и акустическая гитара
+
+продюсирование: игорь ‘jeff’ поляков
+саунд-продюсирование: sascha paeth
+запись гитар, вокала, ударных, флейты, трекинг: андрей ненадышин, студия ‘2 барабанщика’, август-октябрь 2010
+запись ритм-гитар: игорь ‘jeff’ поляков, home studio, август-сентябрь 2010 
+запись бас-гитары: александр тимонин, pulsarsound studio, август-сентябрь 2010
+сведение: sascha paeth, gates studio, октябрь-ноябрь 2010
+продюсирование клавишных: александр дронов
+мастеринг: евгений виноградов, студия ‘дай records’, ноябрь 2010
+аранжировка всех песен: catharsis
+концепция и дизайн обложки и буклета: игорь ‘jeff’ поляков
+менеджмент группы: андрей максимкин
+фото группы: павел чистяков
+модель на обложке: koshka, фото: kostas
+консультант по вокалу: радионова галина
+
+
 
 ## Отношения с другими группами
 

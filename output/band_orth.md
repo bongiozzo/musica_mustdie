@@ -1,7 +1,31 @@
 # Orth
 
-Дискография
-"Ano Kato" 1996, Deathcore
+Killer Grind-Death Core A-la Suffocation
+
+## Дискография
+
+### "Ano Kato" 1996, Deathcore
+
+1.  To Much Is Not Enough
+2.  Blast Of Silence
+3.  Care Company
+4.  Beyond Reality
+5.  United
+6.  Trace In Trance
+7.  Disqualitiziert
+8.  Metamorphosis
+9.  Terror Parasites
+10.Punishment Bizarre
+
+Recorded and Mixed at Music Lab by Harris Johns and Simon Fuhrmann
+Produced by ORTH and Harris Johns
+
+Hannes - Vocals, Guitars
+Hans - Chr, Bass
+Steffen - Drums
+
+(P)c 1996 CD AK '95
+
 
 ## Отношения с другими группами
 

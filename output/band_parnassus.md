@@ -1,7 +1,32 @@
 # Parnassus
 
-Дискография
-"In Doloriam Gloria" 1996, Black Metal
+
+
+## Дискография
+
+### "In Doloriam Gloria" 1996, Black Metal
+
+1. In Doloriam Gloria
+2. Void Of All Desires
+3. To The Wither And Die
+4. The First Of Seraphs
+5. Cum Trist Issimo Dolore
+6. Receive My Dying Spirit
+7. In The Purlieus Of Light
+8. The End Of Time Am I
+
+All Music & Lyrics By F.Soderlund.
+Produced & Mixed By F.Soderlund.
+Recorded By F.Soderlund At Octinomos Studios.
+
+F.Soderlund - Guitars
+F.Soderlund - Bass
+F.Soderlund - Drums
+F.Soderlund - Keyboards
+F.Soderlund - Vocals
+
+(P)&(C) 1996 SECULA DELENDA Records
+
 
 ## Отношения с другими группами
 

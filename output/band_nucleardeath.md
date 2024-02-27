@@ -1,8 +1,39 @@
 # Nuclear Death
 
-Дискография
-"Bride Of Insect" 1990, Grindcore
-"... For Our Dead ..." 1992, Grindcore
+
+
+## Дискография
+
+### "Bride Of Insect" 1990, Grindcore
+
+1. Necrobestiality
+2. Corpse Of Allegiance
+3. Feral Viscera
+4. Stygian Tranquilty
+5. Place Of Skulls
+6. Cremation
+7. The Colour Of Blood
+8. The Beloved Whore Celebration
+9. Fetal Lament: Homesick
+10.Bride Of Insect
+11.The Misshapen Horror
+12.Vultures Feeding
+
+Lari Bravo - Voice,Bass
+Phil Hampson - Guitar
+Joel Whitfield - Drums
+
+(p)&(c) 1990 WILD RAGS Records
+
+### "... For Our Dead ..." 1992, Grindcore
+
+1. The Corpse Tree
+2. Days Of The Week
+3. The Third Antichrist
+4. The Church Of Evil Minds Of Splatterday Saints
+
+(p)&(c) 1992 WILD RAGS Records
+
 
 ## Отношения с другими группами
 

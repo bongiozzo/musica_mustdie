@@ -1,8 +1,17 @@
 # Bolin, Tommy
 
-Дискография
-"Whips And Roses 1" 2006, Hard Rock
-"Whips And Roses II" 2006, Hard Rock
+(ex-Deep Purple)
+
+## Дискография
+
+### "Whips And Roses 1" 2006, Hard Rock
+
+
+
+### "Whips And Roses II" 2006, Hard Rock
+
+
+
 
 ## Отношения с другими группами
 

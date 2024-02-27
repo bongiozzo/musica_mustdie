@@ -1,7 +1,29 @@
 # No Emotions
 
-Дискография
-"My Will" 2008, Death Metal
+
+
+## Дискография
+
+### "My Will" 2008, Death Metal
+
+1. Millions...Цель и суть; 
+2. My Will; 
+3. The Useless Flesh; 
+4. Truth And Convention; 
+5. Purity; 
+6. Light Of Divinity; 
+7. River Of Lie (Truth Is Inside You); 
+8. Infected Within
+
+All songs written by NO EMOTIONS
+Recorded in Zaglada Studio
+Mixed and mastered in Hertz Studio by Wieslawski Brothers
+
+Sirius - Guitars, Bass
+Max - Drums
+Pastr - Vocals
+
+
 
 ## Отношения с другими группами
 

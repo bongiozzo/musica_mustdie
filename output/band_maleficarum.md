@@ -1,7 +1,37 @@
 # Maleficarum
 
-Дискография
-"Across The Heavens" 1996, Death Metal
+
+
+## Дискография
+
+### "Across The Heavens" 1996, Death Metal
+
+1. The Raping Of Life
+2. Season Of Black
+3. Time I Am
+4. Fallen Worlds
+5. Spirit Magnified
+6. Kingdom Of Lost
+7. Under My Scars
+8. Across The Heavens
+9. Exalted Being
+10.The Forgotten
+11.Unfolded Dimensions
+
+All songs written by MALEFICARUM
+Produced by Danny Cinicolo and Nieraj Singh.
+Engineered by Matteo Di Marcoberardino.
+Recorded and mixed at Mastersound Recording Studio
+
+Andrea Zanetti - Vocals
+Gianni Caralla - Bass
+Danny Cinicolo - Guitar
+Giovanni Gcifoni - Drums
+
+Female Voice by Francesca Brancone
+
+(p)(c) 1996 DEFILED Records
+
 
 ## Отношения с другими группами
 

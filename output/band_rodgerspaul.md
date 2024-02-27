@@ -1,7 +1,13 @@
 # Rodgers, Paul
 
-Дискография
-"Live In Glasgow" 2007, Blues
+
+
+## Дискография
+
+### "Live In Glasgow" 2007, Blues
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,25 @@
 # Season's End
 
-Дискография
-"The Failing Light" 2005, Gothic
+
+
+## Дискография
+
+### "The Failing Light" 2005, Gothic
+
+1. Touch 08:31 
+2. Ghost in my Emotion 06:29  
+3. One Sadness 07:12  
+4. Innocence 05:15 
+5. Nothing After All 07:51  
+6. Celestia 09:43 
++ Ghost In My Emotion (video)
+
+
+Becki - Voice, 'Cello, Viola
+Dave - Keyboards
+David - Guitars, Voice, Bass, Keyboards
+Paul - Drums and Percussion
+
 
 ## Отношения с другими группами
 

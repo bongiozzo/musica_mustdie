@@ -1,7 +1,22 @@
 # Dreamsteel
 
-Дискография
-"You" 2008, Power Metal
+
+
+## Дискография
+
+### "You" 2008, Power Metal
+
+1. Frantic (Intro)	 
+2. The Flight Of A Butterfly	 
+3. Behind...	 
+4. You	 
+5. Lost	 
+6. Thin Line	 
+7. Dancing In The Fate 
+8. Black Gift 
+9. Nevrstar 
+10. The Flight Of A Butterfly
+
 
 ## Отношения с другими группами
 

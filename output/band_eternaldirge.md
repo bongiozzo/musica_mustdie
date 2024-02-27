@@ -1,8 +1,57 @@
 # Eternal Dirge
 
-Дискография
-"Morbus Ascendit" 1992, Death Metal
-"Khaos Magick" 1996, Death Metal
+
+
+## Дискография
+
+### "Morbus Ascendit" 1992, Death Metal
+
+1. Out Of the Eons
+2. The Crawling Chaos
+3. Exploring The Depths
+4. Blind Idiot God
+5. The Decadence Within
+6. We Are The Dead
+7. Sinusitis Maxillaris
+8. Evolved Mutations
+
+
+Recorded at Tonstudio Mohrmann, July 1992
+Engineered by Heimi Mikus & D. Mohrmann
+Published by NIWO - Music
+Lyricks, Musick and Magick by ETERNAL DIRGE
+
+Line-up: 
+Timo : Lead guitar & Lead Vocals
+Ralf : Drums & Cymbals
+Pethe: Guitar & Vocals
+Boehni: Bass Guitar & Backing Vocals
+
+### "Khaos Magick" 1996, Death Metal
+
+1. Unnamable
+2. The Thresholds Of Sensation
+3. Anthem To The Seeds (Of Pure Demise)
+4. Feaster From The Stars
+5. Rending The Veils
+6. Kallisti
+7. Like Roses In A Garden Of Weed
+8. In Praise Of Biocide
+9. Hymn To Pan
+10. My Sweet Satan
+
+Lyrics, Musik and Magick by ETERNAL DIRGE.
+Recorded and mixed by Norbert Arbeiter and ETERNAL DIRGE.
+Recorded at Lippeland Tonstudio
+
+Timo K - Vocals and Guitars
+Patrick K - Guitar and Vocals
+Karsten B - Bass
+Ralf S - Drums and Cymbals
+Sascha R - Keyboards
+
+(p)c 1996 MORBID Records
+
 
 ## Отношения с другими группами
 

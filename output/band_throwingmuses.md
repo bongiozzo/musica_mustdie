@@ -1,7 +1,36 @@
 # Throwing Muses
 
-Дискография
-"University" 1995, Grunge
+
+
+## Дискография
+
+### "University" 1995, Grunge
+
+1. Bright Yellow Gun
+2. Start
+3. Hazing
+4. Shimmer
+5. Crahtown
+6. No Way In Hell
+7. Surf Cowboy
+8. What's All You Wanted
+9. Teller
+10. Snakeface
+11. Flood
+12. Fever Few
+
+ Christen Hersh
+ David Narcizo
+ Bernard Georges
+
+All Songs Written By Christen Hersh
+Produced By THROWING MUSES
+All Tracks Engineered By Trina Shoemaker
+Basic Tracks Co-Produced & Engineered By Phil Brown
+Recorded At Kingsway Studio, New Orleans, LA
+
+(p)&(c) 1995 4AD Records
+
 
 ## Отношения с другими группами
 

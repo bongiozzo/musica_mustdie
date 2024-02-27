@@ -1,10 +1,51 @@
 # Defiance
 
-Дискография
-"Product Of Society" 1989, Thrash
-"Void Terra Firma" 1990, Thrash
-"Beyond Recognition" 1992, Thrash
-"The Prophecy" 2009, Thrash
+
+
+## Дискография
+
+### "Product Of Society" 1989, Thrash
+
+1. The Fault 03:09  
+2. Death Machine 03:54  
+3. Product of Society 03:27  
+4. Forgotten 03:43  
+5. Lock Jaw 03:40  
+6. Insomnia 03:55  
+7. Deadly Intentions 02:53  
+8. Aftermath 01:27  
+9. Tribulation 05:04  
+10. Hypothermia 05:18 
+
+### "Void Terra Firma" 1990, Thrash
+
+1. Void Terra Firma 05:25 
+2. Deception Of Faith 04:28 
+3. Questions 04:58
+4. Skitz-Illusions 03:26 
+5. Slayground 03:30 
+6. Killers 04:42 
+7. Steamroller 03:23 
+8. Checkmate 03:39
+9. Buried Or Burned 03:22
+10. Last Resort (Welcome To Poverty) 03:16 
+
+### "Beyond Recognition" 1992, Thrash
+
+1. Killing Floor 03:45 
+2. Step Back 05:01 
+3. Perfect Nothing 05:38 
+4. No Compromise 04:14 
+5. Dead Silence 04:10 
+6. Inside Looking Out 05:19 
+7. The Chosen 04:16 
+8. Powertrip 04:22
+9. Promised Afterlife 04:50 
+
+### "The Prophecy" 2009, Thrash
+
+
+
 
 ## Отношения с другими группами
 

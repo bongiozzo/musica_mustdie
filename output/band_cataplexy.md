@@ -1,7 +1,21 @@
 # Cataplexy
 
-Дискография
-"...Lunar Eclipse, Chaos to the Ruin..." 2008, Black Metal
+
+
+## Дискография
+
+### "...Lunar Eclipse, Chaos to the Ruin..." 2008, Black Metal
+
+1. Dawn of the black sun 05:17
+2. Hideous path of hate from the abyss 07:14
+3. Under the moonlight of sorrow 06:50
+4. Graces of infidel blood 04:42
+5. Blazing choir under the secrets of hell 04:12
+6. Burn the false idols 05:39
+7. Elegy of the rotten angel 04:53 
+8. Desolate winds from the devastated souls 01:01  
+9. Groan of eternal hate 06:05 
+
 
 ## Отношения с другими группами
 

@@ -1,12 +1,128 @@
 # Mind's Eye
 
-Дискография
-"Into the unknown" 1998, Instrumental
-"...waiting for the tide" 2000, Instrumental
-"Warning: Minds of a raging empire" 2001, Progressive
-"A Work Of Art" 2002, Instrumental
-"Walking on h2o" 2006, Progressive
-"A gentleman’s hurricane" 2007, Progressive
+prog-metal
+
+## Дискография
+
+### "Into the unknown" 1998, Instrumental
+
+The other side of me
+In chace of time 
+Almost there 
+Wishes in the wind 
+Questions 
+Am I waiting? 
+Light waves 
+Without the sun 
+ 
+Produced by Mind's eye
+Recorded Mind's Eye at sheep Valley studio,July 97 
+Mixed by Jan"baby"Jane karlsson at the SMK studio,Jan 98 
+Mastered by BobKatz, Digital Domain
+
+All music written by Grunberger, Niemann and Flores
+
+
+### "...waiting for the tide" 2000, Instrumental
+
+Frozen Tears
+Calling (father to son)
+A pond of thoughts
+Closer (spirits in the room part 1)
+In my mind (spirits in the room part 2)
+Primitive light
+Jealousy in disguise
+Fall on trust
+Circles in the sand
+...fade out 
+ 
+Produced by Mind's Eye
+Recorded by Mind's Eye at Sheep Valley studios and SMK studios with assistance by Jan "baby Jane" Karlsson, June 1999
+
+Mixed by Mind's Eye assisted by Gцran "Ernie" Ernlund at Little Big Room Studios, September 1999
+
+Mastered by Mats Lindfors at Little Big Room Studios
+
+Project management by Hеkan Kaneberg at Round Records
+
+All music written by Fredrik Grunberger, Daniel Flores and Johan Niemann
+Except: Calling (father to son) Fredrik Grunberger and Daniel Flores
+
+
+### "Warning: Minds of a raging empire" 2001, Progressive
+
+
+
+### "A Work Of Art" 2002, Instrumental
+
+Prologue - Lullaby
+Courage within
+A Moment of honor
+Roll the dice
+Room with a view
+Shallow water
+My kindred sould
+The shape of salvation
+These open arms
+Hands of time
+Your world
+Epilogue - Domino  
+
+
+
+Produced and arranged by Daniel Flores and Fredrik Grunberger
+Recorded and mixed by Daniel Flores and Fredrik Grunberger at Sheep Valley studios, July - August 2001
+Mastered by Mats Lindfors at Little Big Room Studios, October 2001
+
+All music written by Fredrik Grunberger, Daniel Flores and Andreas Novak
+Except: "An eye for an eye" writen by Johan Niemann, Daniel Flores and Fredrik Grunberger
+
+Andreas Novak/vocals
+Fredrik Grьnberger/Guitars
+Johan Niemann/Bass
+Daniel Flores/Drums and keys
+
+
+### "Walking on h2o" 2006, Progressive
+
+1. Earth - The Movie
+2. A Rabbit In The hat
+3. Equally Immortal
+4. Mrs. Clair Voyance
+5. Sahara In An Hourglass
+6. Out Of My System
+7. Umbrellas Under The Sun
+8. Sacred Rules
+9. The Nazca Lines
+10. Flight Of The An.unna.ki
+11. Heal My Karma
+12. When I Whisper
+13. Poseidon Says
+
+Andreas Novak - lead vocals
+Johan Niemann - bass and guitars
+Daniel Flores - drums, percussionn and keys
+
+### "A gentleman’s hurricane" 2007, Progressive
+
+.Praying For Confession
+2.Seven Days
+3.Assassination
+4.Chaos Unleashed
+5.Hells Invitation
+6.Feed My Revolver
+7.Ashes To Ashes (In Land Lullaby)
+8.The Hour Of Need
+9.Red Winter Sirens
+10.Skin Crawl
+11.Graveyard Hands
+12.Say Goodnight
+13.Pandora?s Musical Box
+
+Johan Niemann - bass and all guitars
+Andreas Novak - lead vocals
+Daniel Flores - drums, keys
+
 
 ## Отношения с другими группами
 

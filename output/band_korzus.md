@@ -1,13 +1,102 @@
 # Korzus
 
-Дискография
-"Korzus ao vivo" 1985, Thrash
-"Sonho Maniaco" 1987, Thrash
-"Mass Illusion" 1991, Thrash
-"K.Z.S." 1995, Thrash
-"Live at Monsters of Rock" 2000, Thrash
-"Ties of Blood" 2004, Thrash
-"Discipline of Hate" 2010, Thrash
+
+
+## Дискография
+
+### "Korzus ao vivo" 1985, Thrash
+
+
+
+### "Sonho Maniaco" 1987, Thrash
+
+1. Anjo do Mal	04:40
+2. Juнzo Final	04:14
+3. Suнcidio	05:35
+4. Caminhando nas Trevas	05:30
+5. Sonho Manнaco	03:37
+6. Guerra Nuclear	08:45
+7. Paraнso da Morte	08:21
+
+### "Mass Illusion" 1991, Thrash
+
+1. Agony	03:35
+2. Victim of Progress	03:03
+3. P.F.Y.L.	03:32
+4. Beyond the Limits of Insanity	02:47
+5. Unpredictable Disease	04:16	
+6. Mass Illusion	04:44
+7. Kids of the Streets	03:32
+8. Blood for Blood	02:48
+9. Living in Pain	03:13
+10. Raise your Head	02:28
+11. Midnight Madness (bonus)	03:00
+12. The Illuminated (bonus)	02:10
+13. Inъtil (bonus, Ultraje a Rigor cover)	01:31
+
+### "K.Z.S." 1995, Thrash
+
+1. Internally	03:18	
+2. Sadness	02:23	
+3. Lost Man	03:01	
+4. What a Pain!	01:00	
+5. Shame	02:24	
+6. BS ( A Hole in the Head )	01:28	
+7. Short Lived	02:45	
+8. Beware	05:09	
+9. Cumbacore (R.I.P.)	01:59	
+10. Namesake	02:08	
+11. Last Meal	03:28	
+12. The Boss	01:32
+
+### "Live at Monsters of Rock" 2000, Thrash
+
+1. The World is a Stage (Live)	01:12
+2. Pay for your Lies (Live)	02:06
+3. Lost Man (Live)	03:22	
+4. Victim of Progress (Live)	03:45
+5. What a Pain (Live)	01:15	
+6. Last Memories	03:16	
+7. Catimba	03:07
+8. Lutar, Matar (Olho Seco cover)	02:26	
+9. Desperate Cry (Sepultura cover)	06:37
+
+### "Ties of Blood" 2004, Thrash
+
+1. Guilty Silence	04:09
+2. Respect	02:52
+3. What are You Looking For	03:24
+4. Screaming For Death	01:36
+5. Never Get Me Down	02:57
+6. Punisher	03:44
+7. Evil Sight	03:58
+8. Correria	02:12
+9. Cruelty	03:17
+10. Ties Of Blood	02:47
+11. It Wasn't Me	02:40
+12. The Sadist	03:45
+13. Who Is Going To Be The Next	01:37
+
+### "Discipline of Hate" 2010, Thrash
+
+1. Intro (Path to Discipline)		
+2. Discipline of Hate	03:55	
+3. Truth	03:38	
+4. 2012	02:43	
+5. Raise Your Soul	03:05	
+6. My Enemy	03:36	
+7. Revolution	03:06	
+8. Never Die	03:44	
+9. Slavery	03:52	
+10. Last Memories	02:57	
+11. Under His Command	03:31	
+12. Reap What You Sow	03:50	
+13. Hell	03:32	
+14. Hipocrisia (bфnus - Brazil)		
+15. Power Drunk (bфnus - USA)		
+16. I Am Your God (bфnus - Japan)		
+17. We Are Just The Same (bфnus - Europe)	04:57
+
 
 ## Отношения с другими группами
 

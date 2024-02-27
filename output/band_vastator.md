@@ -1,9 +1,47 @@
 # Vastator
 
-Дискография
-"The Night of San Juan" 2001, Speed Metal
-"Hell Only Knows" 2007, Speed Metal
-"Machine Hell" 2010, Speed Metal
+
+
+## Дискография
+
+### "The Night of San Juan" 2001, Speed Metal
+
+1. Cybernetic Heartbeat
+2. I Love You
+3. Levantamuertos
+4. The Night of San Juan
+5. The Undertaker
+6. Mongolian Meat
+7. The Flight of Tue Tue
+
+### "Hell Only Knows" 2007, Speed Metal
+
+1. Hellish Clown	 
+2. Hell Only Knows
+3. Inner Fury
+4. Soul of Heroes
+5. Unbreakable
+6. Bloodline
+7. Pounding Hearts
+8. Evilution (The New Step)
+9. Mansiуn En Llamas
+10. Mбxima Entropia 07
+11. Monseсor
+
+### "Machine Hell" 2010, Speed Metal
+
+1. Machine Hell	 
+2. 8.8	 
+3. The Gods Give No Reply	 
+4. Fiend	 
+5. X-Terminate	 
+6. Hawker Hunter	 
+7. Reminiscense	 
+8. Combustible en la Sangre	 
+9. Puсado de Almas	 
+10. El Ultimo Grito en el Infierno	 
+11. Caleuche
+
 
 ## Отношения с другими группами
 

@@ -1,10 +1,69 @@
 # Re-Vision
 
-Дискография
-"Debut" 1997, Gothic
-"Whore Venus" 2000, Gothic
-"Longevity" 2002, Gothic
-"Chapter IV: All For The Sake Of Love" 2009, Power Metal
+
+
+## Дискография
+
+### "Debut" 1997, Gothic
+
+1. Exhale The Sick  06:48    
+2. Dead Roses  08:31    
+3. No More Truths  05:42    
+4. Dust  09:08     
+5. Questions...  01:10 
+6. Ask Your God  05:38 
+7. ...And The Beast Dies  05:04
+
+### "Whore Venus" 2000, Gothic
+
+1. Beyond the veil  05:05  
+2. Barricade exit  04:13    
+3. Whore venus  05:00  
+4. Black earth  03:28
+5. Wake  05:57  
+6. Whispering  04:40    
+7. Clouds  05:44  
+8. Vampyr  04:01    
+9. Fortune lying  05:17 
+10. Silence  04:53   
+11. Drowning  05:27    
+12. The bleeding  04:04 
+
+### "Longevity" 2002, Gothic
+
+1. Longevity  04:43  
+2. Downfall  05:31    
+3. Veil Off  00:40 
+4. Thorns  06:04 
+5. Larvae  05:27  
+6. Charlene  00:32  
+7. Storm  04:46  
+8. Moonflash  04:50  
+9. The Blood Of The Sun  05:41    
+10. Embraced  04:49    
+11. Nair  04:52   
+12. Beauty (reprise)  02:19   
+13. The Return  04:57   
+14. Her Sleep  05:06    
+15. Sweetwater Chain  07:08 
+
+### "Chapter IV: All For The Sake Of Love" 2009, Power Metal
+
+1. Deconstructed    
+2. Scream    
+3. Colours      
+4. Shapeless     
+5. Chew 'em Through  
+6. Don't Wake Me Up
+7. Awake My Soul   
+8. Tomorrow May Come  
+9. Tantalized      
+10. Lights on Me      
+11. Deep Fovea      
+12. For the Sake of Love   
+13. Strange World (Iron Maiden cover)  
+14. While We Sleep  
+
 
 ## Отношения с другими группами
 

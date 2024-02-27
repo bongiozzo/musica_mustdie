@@ -1,6 +1,9 @@
 # Authority
 
-Дискография
+death/grind from Indonesia
+
+## Дискография
+
 
 ## Отношения с другими группами
 

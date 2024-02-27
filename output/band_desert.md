@@ -1,9 +1,34 @@
 # Desert
 
-Дискография
-"The Way To Honor" 2004, Power Metal
-"Prophecy Of The Madman [EP]" 2006, Heavy Metal
-"Star of Delusive Hopes" 2011, Power Metal
+
+
+## Дискография
+
+### "The Way To Honor" 2004, Power Metal
+
+
+
+### "Prophecy Of The Madman [EP]" 2006, Heavy Metal
+
+1. Dawn Of The New World [intro]
+2. Prophecy Of The Madman
+3. Lion And Hawk
+4. The Desert (In Your Soul)
+5. Sacred Throne
+6. More Than My Life (New Version)
+
+### "Star of Delusive Hopes" 2011, Power Metal
+
+1. The Unsubdued  04:56   
+2. Massada Will Never Fall  04:40 
+3. Letter Of Marque  05:33  
+4. Victim Of The Light  05:32    
+5. Release Me  04:16  
+6. Soul Of A Wanderer  05:36   
+7. Whispers  04:24  
+8. Lament For Soldier's Glory (Order 227)  04:36  
+9. Star Of Delusive Hopes  04:33 
+
 
 ## Отношения с другими группами
 

@@ -1,12 +1,148 @@
 # Obscenity
 
-Дискография
-"Perversion Mankind" 1994, Deathcore
-"The 3rd Chapter" 1996, Deathcore
-"Human Barbecue" 1998, Deathcore
-"Demo-niac" 1999, Deathcore
-"Intense" 2000, Deathcore
-"Cold Blooded Murder" 2002, Deathcore
+
+
+## Дискография
+
+### "Perversion Mankind" 1994, Deathcore
+
+1. REALM OF THE DEAD
+2. LOST IDENTITY
+3. AMPUTATED SOULS
+4. PERVERSION MANKIND
+5. REMOVAL OF POVERTY
+6. PARA-DIES
+7. EMBRYONIC EXECUTION
+8. GENEUTOPIA
+9. THE REVENGE
+10. MENTAL DEATH
+11. PROPHECY II 
+
+
+
+Oliver Jauch - Vocals
+Sascha Knust - Drums
+Thimo Gerhardt - Bass
+Jens Finger - Guitars
+Hendrik Bruns - Guitars 
+
+
+
+### "The 3rd Chapter" 1996, Deathcore
+
+1.  Intro
+2.  Disgrace Over You
+3.  Nuclear Holocaust
+4.  Sensation Mongering
+5.  Disengaged
+6.  I'm Your God
+7.  Abducted And Gutted
+8.  Still Alive
+9.  Tarot
+10.Schattenspiele
+
+
+
+Jens Finger - Guitars
+Sascha Knust - Drums
+Oliver Jauch - Vocals
+Hendrik Bruns - Guitars 
+
+
+
+### "Human Barbecue" 1998, Deathcore
+
+1. EATEN FROM INSIDE
+2. HUMAN BARBECUE
+3. ETERNAL LIFE
+4. INFANTICE
+5. SOULRIPPER
+6. LYCANTHROPY
+7. UTTER DISGUST 
+8. DRESS OF SKIN
+9. LIFE BEYOND
+10. OBSCENITY
+11.RAINING BLOOD
+12. STECK IHN MIR REIN (only on japanese edition) 
+
+
+Hendrik Bruns - Guitars
+Jens Claussen - Bass
+Jens Finger - Guitars
+Sascha Knust - Drums
+Oliver Jauch - Vocals 
+
+
+
+### "Demo-niac" 1999, Deathcore
+
+1. EMBRYONIC EXECUTION
+2. AMPUTATED SOULS
+3. MENTAL DEATH
+4. PARA-DIES
+5. GENE-UTOPIA
+6. PROPHECY
+7. PORTAL TO OBSCENITY / FATAL CURIOSITY
+8. AGE OF BRUTALITY
+9. UTTER DISGUST
+10. CORRUPTED MINDS 
+
+
+
+Alexander Pahl - Bass
+Hendrik Bruns - Guitars
+Oliver Jauch - Vocals
+Jens Finger - Guitars
+Sascha Knust - Drums 
+
+
+The 10th anniversary album.
+Contains the Demos 1992 - 1993
+
+
+
+### "Intense" 2000, Deathcore
+
+1. BLEED FOR ME
+2. PRIDE OF CREATION
+3. GOLDEN CAGE
+4. SUCK MY VOMIT
+5. RIPPING YOUR TORSO
+6. FINAL BRAETH
+7. PHENOMENON TIME
+8. MENTAL EMPTINESS
+9. RETURN OF THE CROWS 
+
+
+
+Hendrik Bruns - Guitars
+Alexander Pahl - Bass
+Sascha Knust - Drums
+Jens Finger - Guitars
+Oliver Jauch - Vocals
+
+
+
+### "Cold Blooded Murder" 2002, Deathcore
+
+1. Intro 
+2. The Arrival  
+3. Caught in Life 
+4. My dark One 
+5. Alien hand Syndrome 
+6. Sleepwalker 
+7. Blessed by Nature 
+8. Soulpain 
+9. Cold blooded Murder 
+
+
+Hendrik Bruns - Guitars
+Alexander Pahl - Bass
+Marc-Andree Dieken - Drums
+Jens Finger - Guitars
+Oliver Jauch - Vocals
+
+
 
 ## Отношения с другими группами
 

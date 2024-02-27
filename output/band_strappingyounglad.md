@@ -1,12 +1,130 @@
 # Strapping Young Lad
 
-Дискография
-"Heavy As A Really Heavy Thing" 1995, Death Metal
-"City" 1997, Death Metal
-"No Sleep 'Till Bedtime (Live in Australia)" 1998, Metal
-"SYL" 2003, Metal
-"Alien" 2005, Metal
-"The New Black" 2006, Metal
+Ultramind Fucking-Heavy-Grinding-Machinery-Mega-Metal !
+
+## Дискография
+
+### "Heavy As A Really Heavy Thing" 1995, Death Metal
+
+1. Velvet Kevorkian 
+2. All Hail The New Flesh 
+3. Home Nucleonics 
+4. Oh My Fucking God 
+5. SYL 
+6. In The Rainy Season 
+7. Far Beyond Metal 
+8. Japan (Studio Recording) 
+9. Centipede (Studio Recording)
+
+### "City" 1997, Death Metal
+
+1. Velvet Kevorkian
+2. All Hail The New Flesh
+3. Oh My Fucking God
+4. Detox
+5. Home Nucleonics
+6. AAA
+7. Underneath The Waves
+8. Room 429
+9. Spiritually
+
+Produced By Devin & his pet Brain.
+Engineered By Daniel Bergstrand.
+Recorded & Mixed At Teh Mothership, LA, California.
+
+Devy Metal - L'il Brown Jug
+Gene Hoglan - Drums
+Jed Simon - Guitars
+Byron Shroud - Bass
+
+(P)(C) 1997 CENTURY MEDIA Records
+
+### "No Sleep 'Till Bedtime (Live in Australia)" 1998, Metal
+
+1. S.Y.L. 
+2. In The Rainy Season 
+3. Goat 
+4. Cod Metal King 
+5. Happy Camper (Carpe B.U.M.) 
+6. Critic 
+7. Filler/Sweet City Jesus 
+8. Skin Me 
+9. Drizzlehell 
+10. Exciter 
+11. Satan's Ice Cream Truck (hidden track) 
+
+Line-up: 
+Devin Townsend - vocals, guitars, programming 
+Jed Simon - guitars 
+Byron Stroud - bass 
+Gene Hoglan - drums 
+Munash - keyboards
+
+### "SYL" 2003, Metal
+
+1. Dire
+2. Consequence
+3. Relentless
+4. Rape Song
+5. Aftermath
+6. Devour
+7. Last Minute
+8. Force Fed
+9. Dirt Pride
+10. Bring on the Young
+
+Devin Townsend - vocals, guitar
+Jed Simon - guitars
+Byron Stroud - bass
+Gene Hoglan - drums
+
+### "Alien" 2005, Metal
+
+1. Imperial
+2. Skeksis
+3. Shitstorm
+4. Love? 
+5. Shine
+6. We Ride
+7. Possessions
+8. Two Weeks
+9. Thalamus
+10. Zen
+11. Info Dump (Instrumental)
+
+### "The New Black" 2006, Metal
+
+1. Decimator 02:54
+2. You Suck 02:40 
+3. The Antiproduct 03:56
+4. Monument 04:12  
+5. Wrong Side (of the Head) 03:35  
+6. Hope 05:02 
+7. Far Beyond Metal 04:36 
+8. Fucker 03:54  
+9. Almost Again 03:44  
+10. Polyphony 01:55  
+11. The New Black 06:16  
+12. The Long Pig (bonus track)   
+13. C:enter:### (bonus track) 
+
+
+Devin Townsend - Vocals, Guitars, Keyboards 
+Jed Simon - Guitars 
+Byron Stroud - Bass 
+Gene Hoglan - Drums 
+
+Guests:
+Oderus Urungus (GWAR) - Guest Vocals on "Far Beyond Metal"
+Bif Naked - Guest Vocals on "Fucker"
+Cam Kroetsch (THE ALMIGHTY PUNCHDRUNK) - Guest Vocals on "You Suck" 
+
+Recorded at the Armoury and Profile studios in Vancouver, BC
+Mixed by Mike Fraser
+
+The bonus track "C:enter:###" means "See colon, enter colon, pound pound
+pound." so says drummer Gene Hoglan.
+
 
 ## Отношения с другими группами
 

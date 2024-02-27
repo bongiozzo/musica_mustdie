@@ -1,10 +1,33 @@
 # Weedeater
 
-Дискография
-"...And Justice For Y'All" 2001, Stoner
-"Sixteen Tons" 2003, Stoner
-"God Luck And Good Speed" 2007, Stoner
-"Jason...The Dragon" 2011, Stoner
+
+
+## Дискография
+
+### "...And Justice For Y'All" 2001, Stoner
+
+1.   Tuesday Night - 3:37
+2.   Monkey Junction - 4:28
+3.   Free - 2:12
+4.   Hungry Jack - 3:09
+5.   Shitfire - 4:35
+6.   Calico - 3:11
+7.   Truck Drivin Man - 3:28
+8.   Southern Cross - 4:31
+9.   #86 - 2:16
+
+### "Sixteen Tons" 2003, Stoner
+
+
+
+### "God Luck And Good Speed" 2007, Stoner
+
+
+
+### "Jason...The Dragon" 2011, Stoner
+
+
+
 
 ## Отношения с другими группами
 

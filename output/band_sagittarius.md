@@ -1,7 +1,38 @@
 # Sagittarius
 
-Дискография
-"Sanity Of Madness" 1995, Heavy Metal
+
+
+## Дискография
+
+### "Sanity Of Madness" 1995, Heavy Metal
+
+1. Explorer
+2. Elements
+3. Child Molestor
+4. The Tale
+5. Believe Me
+6. T.T - S.T.
+7. Nameless Man
+[8].Silvertear
+9.Sanity Of Madness
+
+[8] на стороне B
+
+All Songs Written By SAGGITARIUS.
+Produced By SAGGITARIUS.
+Co-Produced By Ken Ingwersen & Trond Nilsen.
+Engineered By Ken Ingwersen & Trond Nilsen.
+Recorded & Mixed At Panser Studio.
+
+Per Williams - Keyboards,Tambourine
+Roy A.L. - Drums
+Mosen - Bass
+Kurt E. - Guitars
+Nicko - Vocals
+Ronny - Guitars
+
+(P)&(C) 1995 VOICES OF WONDER Records
+
 
 ## Отношения с другими группами
 

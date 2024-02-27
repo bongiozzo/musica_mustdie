@@ -1,6 +1,9 @@
 # Cadaver Removal Technician
 
-Дискография
+holocaust grindgore
+
+## Дискография
+
 
 ## Отношения с другими группами
 

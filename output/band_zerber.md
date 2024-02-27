@@ -1,7 +1,22 @@
 # Zerber
 
-Дискография
-"Hart - Fest" 2003, Industrial
+
+
+## Дискография
+
+### "Hart - Fest" 2003, Industrial
+
+1. Intro
+2. Achtung!
+3. Du Bist Meine Grobe
+4. Mannschaft
+5. Gute Nacht...
+6. Das Ist Launenhaft Kind
+7. Nimm! Da Hast Du!
+8. Zwei Bis Drei...
+9. Hart - Fest
+10. Arbeiten Schneller!
+
 
 ## Отношения с другими группами
 

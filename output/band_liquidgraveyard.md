@@ -1,8 +1,36 @@
 # Liquid Graveyard
 
-Дискография
-"On Evil Days" 2009, Progressive
-"The Fifth Time I Died" 2011, Progressive
+
+
+## Дискография
+
+### "On Evil Days" 2009, Progressive
+
+1. Rumours Are Black Like Machine Guns	 
+2. Criministers	 
+3. On Evil Days	 
+4. Them Greeds	 
+5. Their Words Grow Thin	 
+6. From the Tower	 
+7. 1760	 
+8. The Blood Inside	 
+9. We Live Dangerously	 
+10. Anthead Grotesque
+
+### "The Fifth Time I Died" 2011, Progressive
+
+1. I Colossus 
+2. Violent Skies	 
+3. Attractor	 
+4. Reflections	 
+5. The Fifth Time I Died	 
+6. Expendable	 
+7. The Glorious Bitter Seeds	 
+8. Beholder	 
+9. Invisible Names	 
+10. Interlude		 
+11. Liquid Graveyard
+
 
 ## Отношения с другими группами
 

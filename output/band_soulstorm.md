@@ -1,7 +1,13 @@
 # Soul Storm
 
-Дискография
-"" 1993, Industrial
+Very Brutal Industrial
+
+## Дискография
+
+### "" 1993, Industrial
+
+
+
 
 ## Отношения с другими группами
 

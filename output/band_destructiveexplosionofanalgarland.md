@@ -1,8 +1,17 @@
 # Destructive Explosion Of Anal Garland
 
-Дискография
-"Sealing Off The Vagina By Sewer Lid" 2006, Grindcore
-"Cutterclit" 2008, Grindcore
+CZ
+
+## Дискография
+
+### "Sealing Off The Vagina By Sewer Lid" 2006, Grindcore
+
+
+
+### "Cutterclit" 2008, Grindcore
+
+
+
 
 ## Отношения с другими группами
 

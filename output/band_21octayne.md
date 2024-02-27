@@ -1,8 +1,17 @@
 # 21Octayne
 
-Дискография
-"Into The Open" 2014, Hard Rock
-"2.0" 2015, Hard Rock
+
+
+## Дискография
+
+### "Into The Open" 2014, Hard Rock
+
+
+
+### "2.0" 2015, Hard Rock
+
+
+
 
 ## Отношения с другими группами
 

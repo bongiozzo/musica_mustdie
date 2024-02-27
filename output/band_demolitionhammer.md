@@ -1,9 +1,61 @@
 # Demolition Hammer
 
-Дискография
-"Tortured Existence" 1990, Thrash
-"Epidemic Of Violence" 1992, Thrash
-"Time Bomb" 1994, Thrash
+
+
+## Дискография
+
+### "Tortured Existence" 1990, Thrash
+
+1. 44-Caliber Brain Surgery 4.26
+2. Neanderthal  5.01
+3. Gelid Remains  5.24
+4. Crippling Velocity  5.34
+5. Infectious Hospital Waste 5.00
+6. Hydrophobia  3.07
+7. Paracidal Epitaph  5.26
+8. Mercenary Aggression 3.28
+9. Cataclysm  5.00
+
+ Steve Reynolds - Bass, Lead & Riot Vocals
+ James Reilly - Guitar, Riot Vocals
+ Derek Sykes - Guitar, Riot Vocals
+ Vinny Daze - Drums, Riot Vocals
+
+Produced & Engineered By Scott Burns
+Mixed By Scott Burns & Steve Reynolds
+Recorded At Morrisound Recording, Tampa, Florida
+
+(p)&(c) 1990 CENTURY MEDIA Records
+
+### "Epidemic Of Violence" 1992, Thrash
+
+1. Skull Fracturing Nightmare
+2. Human Dissection
+3. Pyroclastic Annihilation
+4. Envenomed
+5. Carnevorous Obsession
+6. Orgy Of Destruction
+7. Epidemic Of Violence
+8. Omnivore
+9. Aborticide
+
+ Steve Reynolds - Bass, Lead & Riot Vocals
+ James Reilly - Guitar, Riot Vocals
+ Derek Sykes - Guitar, Riot Vocals
+ Vinny Daze - Drums, Riot Vocals
+
+All Songs By DEMOLITION HAMMER
+Produced & Mixed By Tom Soares & DEMOLITION HAMMER
+Recorded & Engineered By Tom Soares
+Recorded At Normandy Sound, January'92,
+Warren, RI
+
+(p)&(c) 1992 CENTURY MEDIA Records
+
+### "Time Bomb" 1994, Thrash
+
+
+
 
 ## Отношения с другими группами
 

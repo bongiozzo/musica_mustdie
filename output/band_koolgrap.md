@@ -1,7 +1,25 @@
 # Kool G Rap
 
-Дискография
-"4, 5, 6" 1995, Rap Metal
+
+
+## Дискография
+
+### "4, 5, 6" 1995, Rap Metal
+
+1.  Intro
+2.  4, 5, 6
+3.  It's A Shame
+4.  Take'Em To War
+5.  Executioner Style
+6.  For Da Brothaz
+7.  Blowin'Up In The World
+8.  Fast Life
+9.  Ghetto Knows
+10.  It's A Shame (Remix)
+11.  Money On My Brain
+
+(P)&c 1995
+
 
 ## Отношения с другими группами
 

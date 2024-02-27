@@ -1,18 +1,239 @@
 # Waltari
 
-Дискография
-"Monk Punk" 1991, Alternative
-"Torcha!" 1992, Alternative
-"So Fine" 1994, Alternative
-"Big Bang" 1995, Alternative
-"Yeah! Yeah! Die! Die! (Death Metal Symphony In Deep C)" 1996, Death Metal
-"Space Avenue" 1997, Alternative
-"Decade" 1998, Alternative
-"Radium Round" 1999, Alternative
-"Rare Species" 2004, Alternative
-"Blood Sample" 2005, Alternative
-"Release Date" 2007, Alternative
-"Below Zero" 2009, Alternative
+
+
+## Дискография
+
+### "Monk Punk" 1991, Alternative
+
+1. Good God
+2. Rap Your Body Beat
+3. Curiosity
+4. Ride
+5. Hello
+6. Sad Song
+7. Same old story
+8. I was born in the wrong decade
+9. Universal song
+10. Tired (F.U.C.K. Rap)
+11. Help
+12. Hevosenkuva
+13. Isolated
+
+### "Torcha!" 1992, Alternative
+
+1. Lights On
+2. The Lie Of The Zombie
+3. I Held You So Long
+4. Dedicated to the Flyers
+5. Lust of Life
+6. Vogue
+7. Till the Music Nation
+8. Fool's Gold
+9. You Know Better
+10. Dance Electric
+11. Jukolauta
+12. Death Party
+13. I'm a Believer
+14. Fuckadelican Garden
+15. Waltari-lapio
+
+### "So Fine" 1994, Alternative
+
+1. The Beginning Song
+2. Mad Boy
+3. So Fine
+4. A Forest
+5. 4S 
+6. Celtic Funk
+7. (Your) Nature is Wild
+8. To Give 
+9. Piggy in the Middle
+10. Freddie Laker
+11. Autumn
+12. Rhytm is a cancer
+13. Misty Man
+14. Mysterious
+
+### "Big Bang" 1995, Alternative
+
+1. Big Bang (Dream Avenue)
+2. Atmosfear
+3. Follow Me Inside
+4. Sensitive Touch
+5. On My Eyes
+6. Showtime
+7. Color TV
+8. The Stage
+9. Jungha
+10.One In The Line
+11.Feel !
+12.Connection
+13.Real One
+14.Let's Get Crucified
+15.Slow Sinking Street
+
+All Lyrics By Kartsy Hatakka.
+All Music by WALTARI.
+Engineered & Mixed By Mikko Karmila.
+Recorded On Mansila Farm, Finland, 20.10-23.11.94
+
+Karsy Hatakka - Vocals, Bass & Keyboards
+Jariot Lehtinen - Guitar & Four Words
+Sami Yli-Sirnio - Guitars & Some Vocals, Keyboards
+Janne Parvainen - Drums & Head Phones 
+
+(P)(C) 1995 EMI Electrola
+
+### "Yeah! Yeah! Die! Die! (Death Metal Symphony In Deep C)" 1996, Death Metal
+
+Part 1. Misty Dreariness
+Part 2. A Sign
+Part 3. Deeper Into The Mud
+Part 4. The Struggle For Life And Death Of "Knowledge"
+Part 5. Completely Alone
+Part 6. Move
+Part 7. Time, Irrelevant
+Part 8. The Top
+
+
+
+All Songs Written By Kartsy Hatakka.
+Arranged by WALTARI & Rike Niemi.
+Engineered & Mixed By Mikko Karmila.
+Recorded On Finnvox Studios.
+
+Kartsy Hatakka - Vocals, Bass & Keyboards
+Jariot Lehtinen - Guitar
+Sami Yli-Sirnio - Guitars & Vocals, Keyboards
+Janne Parvainen - Drums
+
+Additional Musicians:
+Tomi Koivusaari (AMORPHIS) - Vocals
+Eeva-Kaarina Vilke - Female Vocals
+
+
+
+### "Space Avenue" 1997, Alternative
+
+1. External
+2. Far Away
+3. Wolves On The Street
+4. Progression
+5. Blind Zone
+6. Purify Yourself (feat. Apocalyptica)
+7. Stars
+8. Prime Time
+9. Main Stream
+10.Look Out Tonite (feat. Apocalyptica)
+11.Walkin' In The Neon (feat. Anita Davis)
+12.Mad Luxury
+
+### "Decade" 1998, Alternative
+
+1. Atmosfear
+2. Walkin' In The Neon (remix -98)
+3. Anybody
+4. So Fine
+5. Follow Me Inside
+6. Far Away
+7. The Stage
+8. Jungle Rats
+9. Astronaut
+10. Misty Man (mix -98)
+11. Move (remix -98)
+12. Vogue
+13. Lights On
+14. The Dawning Of Doom (live at Arabia Hall, Helsinki -97)
+15. Brats
+16. Rap Your Body Beat (mix -98)
+17. Feel! (live at Arabia Hall, Helsinki -97)
+
+### "Radium Round" 1999, Alternative
+
+1. Back To The Bottom
+2. Every Bad Day
+3. Broken Bizarre
+4. Power Of Thoughts
+5. Atom Angel
+6. Number None
+7. Radium Round
+8. Love Rocket
+9. The Plan
+10. City Neurotic
+11. Scum
+12. 4000 Years
+
+### "Rare Species" 2004, Alternative
+
+01. One Day (4'09)
+02. Life Without Love (3'57)
+03. Megacity Rain (4'49)
+04. Dreamworld (4'09)
+05. What I Really Know (4'40)
+06. My Pain (5'16)
+07. Quick As A Day (4'53)
+08. Dream (5'13)
+09. Alone (5'47)
+10. Live This! (5'19)
+11. Wasting My Mind (4'29)
+12. No Limit / Your Funky Rhythm / Symphony Of Destruction (6'51)
+
+Music by Hatakka-Waltari
+Lyrics by Hatakka
+Arrangements by Waltari except "No Limit" by Wilde-Coster-Slijngaard-Dels "Symphony Of Destruction" by Mustaine
+Produced by Waltari, Sami Koivisto & Martin Kantola. 
+Recorded and mixed by Sami Koivisto & Martin Kantola @ Martin Kantola Audio, deep in theforests of Black Island, Finland. 
+Mastered by
+Thomas Eberger @ Cutting Room, Stockholm, Sweden.
+
+### "Blood Sample" 2005, Alternative
+
+01. Helsinki
+02. Not Enough
+03. Too Much Emptiness
+04. Never
+05. New York
+06. I'm In Pain
+07. All Roads Will Lead To Rome
+08. Digging Inside
+09. Fly Into The Light
+10. Shades To Grace
+11. Aching Eyes
+12. Back To The Audio
+13. Pigeons
+14. Exterminator Warheads
+15. Darling Boy
+16. Wide Awake
+17. Julia
+
+Karsty - lead vocals, bass, programming, keys
+Sami - guitars, vocals
+Jari - guitars
+Ville - drums
+Janne Immonen - keyboards, programming, backing
+vocals etc.
+
+### "Release Date" 2007, Alternative
+
+1. Get Stamped 04:44  
+2. Big Sleep 03:55  
+3. Let's Puke Together 04:07  
+4. Cityshamaani 07:46  
+5. Night Flight 03:25  
+6. Morning 04:43  
+7. Colgate Country Showdown 07:17  
+8. The Incarnation Party 13:01  
+9. Sympathy 03:29  
+10. Hype 01:52  
+11. THD (Lethinen) 04:13  
+12. Sex In The Beergarden 07:38  
+13. Wish I Could Heal 04:45
+
+### "Below Zero" 2009, Alternative
+
+
+
 
 ## Отношения с другими группами
 

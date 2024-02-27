@@ -1,8 +1,43 @@
 # Penitent
 
-Дискография
-"Melancholia" 1996, Ambient
-"Deserted Dreams" 2004, Ambient
+Like Mortiis, Vond, Neptune Towers
+
+## Дискография
+
+### "Melancholia" 1996, Ambient
+
+1. Prolog
+2. I Det Uennelige
+3. Stille
+4. Vei En
+5. The Dance Of Demons
+6. The Undertaker
+7. Possessive Thought
+8. Det Sorte Tjern
+
+All songs written by PENITENT
+Produced by J.Kopren, A.Hovda & PENITENT.
+Engineered by J.Kopren and A. Hovda.
+
+Recorded at Sans Og Samling, Stavanger, Norway.
+
+PENITENT are: Beastus Rex and Azgoth
+ 
+(p)c 1996 COLD MEAT INDUSTRY Records
+
+### "Deserted Dreams" 2004, Ambient
+
+01 Behind The Mirror 5:09.20
+02 Transfiguration 5:24.21
+03 Salutatuions Of Our Dreams 3:49.55
+04 Beyond The Sun 6:57.05
+05 Meeting Our Fate 6:54.49
+06 The Resurrection Of Nativity 4:28.21
+07 A Blessing In The Desert 4:40.25
+08 The Final Decision 5:37.04
+09 Abandoned 5:07.43
+10 Epitaph For The Lost Ones 5:31.64
+
 
 ## Отношения с другими группами
 

@@ -1,6 +1,9 @@
 # Frosen Soul
 
-Дискография
+(Deadly Kristin project - ANCIENT, DREAMLIKE HORROR)
+
+## Дискография
+
 
 ## Отношения с другими группами
 

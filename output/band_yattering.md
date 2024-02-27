@@ -1,11 +1,110 @@
 # Yattering
 
+(Polish Death Metal)
+
+## Дискография
+
+### "Murder's Concept" 2000, Death Metal
+
+  1.   The Art Of The 20th Century - 4:12 
+  2.   The Murderer - 4:17 
+  3.   The Species - 3:02 
+  4.   Life For Life - 2:48 
+  5.   Exterminate - 4:00 
+  6.   ...An Inanimate - 4:57 
+  7.   Pleasure - 4:24 
+  8.   Anal Narcotic - 3:58 
+  9.   Damaged - 2:21 
+  10.   Rescue - 7:32 
+
+
+
+
+### "Human's Pain" 2001, Death Metal
+
+1. Intro (Yattering) - 1:52 
+2. The Feeling (Yattering) - 4:05 
+3. Unnormally Zone (Yattering) - 5:13 
+4. Annihilation of Fellow Creatures (Yattering) - 3:58 
+5. Demon's Inoculate (Fourfold Change) (Yattering) - 5:21 
+6. Chase of Thoughts (Yattering) - 3:43 
+7. Sexual Trauma (Yattering) - 4:09 
+8. Lost Within (Yattering) - 2:09 
+9. Escape from the Scheme (Yattering) - 5:02 
+10. Eyes Can See.. Yattering) - 4:01 
+11. Taken Due (Yattering) - 5:04 
+12. I'll Neglect (Yattering) - 2:11 
+13. Dittohead (Yattering) - 2:31 
+14. Exterminate [*] (Yattering) - 5:00
+
+### "Genocide" 2002, Death Metal
+
+"Rapist's Victim" 
+"Non-typical Homo" 
+"666 (non-adapted socially)" 
+"III" 
+"Inflow (thought from outside)" 
+"Temptation of a Crime" 
+"Sentence (to die)" 
+"Murder (you are)" 
+"Panic in Sea of Blood" 
+"Living Bomb"
+
+### "Creative Chaos DVD" 2002, Death Metal
+
+Anal Narcotic
+Life For Life
+The Feeling
+Unnormally Zone
+Lost Within
+The Murderer
+The Art of the 20th Century
+Exterminate
+Eyes Can See
+Dittohead
+Chase of Thoughts
+I'll Neglect
+
+Видео:
+Anal Narcotic
+Unnormally Zone
+
+Биографии
+
+Аудиотреки:
+Annihilation
+The Species
+
 Дискография
-"Murder's Concept" 2000, Death Metal
-"Human's Pain" 2001, Death Metal
-"Genocide" 2002, Death Metal
-"Creative Chaos DVD" 2002, Death Metal
-"III" 2005, Industrial
+Арт-галеря
+Интернет-ссылки
+
+### "III" 2005, Industrial
+
+1. Human's clones store(3:12)
+2. Progress(3:22)
+3. Trip(2:49)
+4. I see the circle(5:35)
+5. Stinking story(4:20)
+6. Old man(4:37)
+7. Pleasure of a dead body(3:37)
+8. Ghastly(3:06)
+9. Kill me(1:36)
+10. Mushrooms journey(17:12)
+
+Line up:
+
+Svierszcz - bass & vocal
+Hudy - guitars & backing vocals
+Zombek - drums & percussion programming & backing vocals
+Thrufel - guitars
+
+Recorded , mixed & mastered at Red sStudio o7.2001- o1.2002
+Produced by Piotr Lukaszewski
+Engineered by Piotr Lukaszewski & Bartek Jasnoch
+Band photos by Miva
+Cover artwork & layout by Krzysztof Iwin
+
 
 ## Отношения с другими группами
 

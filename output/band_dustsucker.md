@@ -1,7 +1,13 @@
 # Dustsucker
 
-Дискография
-"Rock'n'Roll Sniper" 2004, Rock and Roll
+it's only rock'n'roll
+
+## Дискография
+
+### "Rock'n'Roll Sniper" 2004, Rock and Roll
+
+
+
 
 ## Отношения с другими группами
 

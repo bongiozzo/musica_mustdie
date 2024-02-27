@@ -1,7 +1,24 @@
 # Elimination
 
-Дискография
-"Destroyed By Creation" 2010, Thrash
+
+
+## Дискография
+
+### "Destroyed By Creation" 2010, Thrash
+
+1. Straight To Hell	 
+2. The Rage Within	 
+3. Slaves To A Tyrants Reign	 
+4. Wargames	 
+5. Nightmare Asylum	 
+6. Nostromo	 
+7. The End Of Days 
+8. The Eliminator	 
+9. Rising From The Grave	 
+10. Release The Anger 
+11. Hell's Battlefield	 
+12. Destroyed By Creation
+
 
 ## Отношения с другими группами
 

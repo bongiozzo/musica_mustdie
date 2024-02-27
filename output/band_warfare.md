@@ -1,14 +1,58 @@
 # Warfare
 
-Дискография
-"Pure Filth" 1984, Speed Metal
-"Noise, Filth And Fury (EP)" 1984, Speed Metal
-"Metal Anarchy" 1985, Speed Metal
-"Mayhem, Fuckin' Mayhem" 1986, Speed Metal
-"A Conflict Of Hatred" 1988, Thrash
-"Hammer Horror" 1990, Heavy Metal
-"Deathcharge" 1991, Heavy Metal
-"A Crescendo Of Reflections (Compilation)" 1992, Speed Metal
+
+
+## Дискография
+
+### "Pure Filth" 1984, Speed Metal
+
+
+
+### "Noise, Filth And Fury (EP)" 1984, Speed Metal
+
+
+
+### "Metal Anarchy" 1985, Speed Metal
+
+
+
+### "Mayhem, Fuckin' Mayhem" 1986, Speed Metal
+
+
+
+### "A Conflict Of Hatred" 1988, Thrash
+
+ Side One: "Dancing"
+1. Wax Works
+2. Hate To Create
+3. Revolution
+4. Dancing In The Flames Of Insanity
+5. Fatal Vision
+ Side Two: "Fire"
+1. Deathcharge / Doomsday
+2. Order Of The Dragons
+3. Elite Forces
+4. Rejoice The Feast Of Quarantine
+5. Noise, Filth And Fury Requiem
+
+Evo - Drums & Vocals
+Gunner - Guitar
+Slaughter - Bass
+
+(p)&(c) 1988
+
+### "Hammer Horror" 1990, Heavy Metal
+
+
+
+### "Deathcharge" 1991, Heavy Metal
+
+
+
+### "A Crescendo Of Reflections (Compilation)" 1992, Speed Metal
+
+
+
 
 ## Отношения с другими группами
 

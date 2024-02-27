@@ -1,7 +1,13 @@
 # Sero.Overdose
 
-Дискография
-"No Time For Silence" 2005, Synthpop
+
+
+## Дискография
+
+### "No Time For Silence" 2005, Synthpop
+
+
+
 
 ## Отношения с другими группами
 

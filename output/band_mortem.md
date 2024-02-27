@@ -1,11 +1,41 @@
 # Mortem
 
-Дискография
-"Born By Evil" 1991, Thrash
-"Amputator" 1993, Death Metal
-"Filicide" 2000, Death Metal
-"Death Is My Name" 2002, Deathcore
-"Corpsophagia" 2005, Death Metal
+Russian brutal death metal
+
+## Дискография
+
+### "Born By Evil" 1991, Thrash
+
+
+
+### "Amputator" 1993, Death Metal
+
+
+
+### "Filicide" 2000, Death Metal
+
+Виталий Глушко - вокал, 
+Юра Ом - барабаны, 
+Федор Пояркин - гитара, 
+Михаил Расчетнов - бас, 
+Александр Васильев - гитара.
+
+### "Death Is My Name" 2002, Deathcore
+
+1- Have You Ever Killed?
+2- Fresh Human Meat
+3- My Name is Death
+4- Coroner's Report
+5- Oozing Yellow Slime
+6- Just Blood (Is it a Crime?)
+7- Bifurcation of the Person
+8- Confession of the Serial Killer
+9- Death
+
+### "Corpsophagia" 2005, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

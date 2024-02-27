@@ -1,7 +1,25 @@
 # Lamia
 
-Дискография
-"Dark Angel" 2003, Darkwave
+
+
+## Дискография
+
+### "Dark Angel" 2003, Darkwave
+
+1. Prelude In C (J.S. Bach) - 2:01 
+2. Dark Angel - 4:48 
+3. You'll Die - 5:37 
+4. Dunkel Leben - 4:20 
+5. Prelude Nr. 4 In Em Op 28 (F. Chopin) - 1:52 
+6. Agnus Dei - 1:19 
+7. Deep Hurt - 4:24 
+8. O Domine Jesu Christe - 4:33 
+9. Der Damon - 4:50 
+10. Preccator - 5:45 
+11. Prelude Nr. 20 In C (F. Chopin) - 1:23 
+12. You'll Die (Instrumental Mix) - 5:44 
+13. Dark Angel (Psycho Mix) - 5:58
+
 
 ## Отношения с другими группами
 

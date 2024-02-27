@@ -1,7 +1,25 @@
 # Styx
 
-Дискография
-"One With Everything" 2006, Rock
+
+
+## Дискография
+
+### "One With Everything" 2006, Rock
+
+1. Blue Collar Man
+2. One With Everything
+3. It Don't Make Sense
+4. Everything, All The Time
+5. I Am The Walrus
+6. Just Be
+7. Fooling Yourself
+8. Boat On The River
+9. I Don't Need No Doctor
+10. Crystal Ball
+11. Too Much Time On My Hands
+12. Miss America
+13. Renegade
+
 
 ## Отношения с другими группами
 

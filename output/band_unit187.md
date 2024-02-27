@@ -1,7 +1,32 @@
 # Unit : 187
 
-Дискография
-"Unit : 187" 1996, Industrial
+Electronic-Disharmonic-Cyber-Trance
+
+## Дискография
+
+### "Unit : 187" 1996, Industrial
+
+1.  F.O.A.D. З
+2.  Burn
+3.  Waiting For Jesus
+4.  Lardass
+5.  Pointless З
+6.  Crackhead
+7.  Shitlist
+8.  Lifosuction
+9.  Agnostic
+10.Crackhead (Tensor-Vision Remix)
+
+Recorded, mixed & edited at Red Stripe Studios, Vancouver, B.C. By MC2.
+Produced by Rex Cobol & MC2.
+
+Tod Law - Vocals
+John Morgan - Electronix & Programming
+Ashly Scribner - Guitars & Sampling
+Byron Stroud  -Bass On Tracks З
+
+(P)c 1996 21st CIRCUITRY Records
+
 
 ## Отношения с другими группами
 

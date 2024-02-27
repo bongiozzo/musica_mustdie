@@ -1,14 +1,154 @@
 # Tad Morose
 
-Дискография
-"Leaving the Past Behind" 1993, Progressive
-"Sender of Thoughts" 1995, Progressive
-"Paradigma" 1996, Progressive
-"Mended Rhyme" 1997, Progressive
-"Reflections" 2000, Progressive
-"Undead" 2001, Progressive
-"Matters of the Dark" 2002, Progressive
-"Modus Vivendi" 2003, Heavy Metal
+Swedish Heavy/Progressive Metal Band
+
+## Дискография
+
+### "Leaving the Past Behind" 1993, Progressive
+
+Eternal Lies (6.15) 
+Miracle (3.40) 
+Voices Are Calling (4.48) 
+Reach For The Sky (4.45) 
+Eyes Of A Stranger (4.45) 
+Save Me (5.22) 
+1388 (0.18) 
+Leaving The Past Behind (4.25) 
+Reflections (4.25) 
+Way Of History (5.06) 
+
+
+Recorded and mixed at The Wave Station Studio, Ljusne, Sweden, in September 1993. 
+Recorded and mixed by Uffe Pettersson. 
+Executive Producer Bцrje Forsberg. 
+Photography by Marie Larsson. 
+Artwork by Kristian Wahlin. 
+Layout by Maren Lotz, Berlin. 
+
+
+### "Sender of Thoughts" 1995, Progressive
+
+   1.    Fading Pictures 
+   2.    Sender of Thoughts 
+   3.    Morning Sun 
+   4.    Lost in Time 
+   5.    Different Eyes 
+   6.    Time of Silence 
+   7.    Forever Gone 
+   8.    Circle of Souls 
+   9.    Here After 
+   10.    Gates of Babylon 
+   11.    Netherworld 
+
+
+### "Paradigma" 1996, Progressive
+
+Stories Around A Tale (6.44) 
+Eyes So Tires (5.28) 
+Where Dreams Collide (6.02) 
+Absent Illusion (5.28) 
+Another Paradigm (5.02) 
+
+
+Recorded and mixed at The Wave Station Studio, Ljusne, Sweden, in September 1995. 
+Produced by Mike Wead & Tad Morose. 
+Recorded and mixed by Uffe Pettersson. 
+
+
+### "Mended Rhyme" 1997, Progressive
+
+1 Circuit Vision (Tad Morose) 
+2 But Angels Shine (Tad Morose) 
+3 Mended Rhyme (Tad Morose) 
+4 Trader of Souls (Tad Morose) 
+5 Time of No Sun (Tad Morose) 
+6 Dragon Tide (Tad Morose) 
+7 Goddess of Chaos (Tad Morose) 
+8 Vacant Lot (Tad Morose) 
+9 Guest of Inquisition (Tad Morose) 
+
+
+### "Reflections" 2000, Progressive
+
+1
+2
+3
+4 Fading Pictures
+5 Morning Sun
+6 Narrow Minded
+7 Stories Around a Tale
+8 Where Dreams Collide
+9 A Mended Rhyme
+10 But Angels Shine
+11 Trader of Souls
+12 Power of the Night
+
+
+
+
+
+### "Undead" 2001, Progressive
+
+1 Intro 0:52 () 
+2 Servant of the Bones 4:54 () 
+3 Another Time Around 4:06 () 
+4 Where the Sun Never Shines 4:01 () 
+5 Order of the Seven Poles 4:45 () 
+6 Undead 3:40 () 
+7 No Tears in the Rain 4:28 () 
+8 Intro/Lord on High 5:51 () 
+9 Corporate Masters 3:20 () 
+10 No Wings to Burn 3:47 () 
+11 Dead and His Son 5:40 () 
+
+
+### "Matters of the Dark" 2002, Progressive
+
+    1.   Sword of Retribution (Tad Morose/Urban Breed) - 4:41 
+    2.   Matters of the Dark (Tad Morose/Urban Breed) - 3:31 
+    3.   Ethereal Soul (Tad Morose/Urban Breed) - 4:44 
+    4.   I Know Your Name (Tad Morose/Urban Breed) - 4:02 
+    5.   In the Shadows (Tad Morose/Urban Breed) - 4:35 
+    6.   Another Way (Tad Morose/Urban Breed) - 4:01 
+    7.   New Clear Skies (Tad Morose/Urban Breed) - 4:33 
+    8.   Riding the Beast (Tad Morose/Urban Breed) - 5:02 
+    9.   Reason of the Ghost (Tad Morose/Urban Breed) - 4:41 
+    10.   The Devil's Finger (Tad Morose/Urban Breed) - 4:15 
+    11.   Don't Pray for Me (Tad Morose/Urban Breed) - 4:48 
+    12.   Jack - 4:16 
+    13.   Take to the Sky - 5:30 
+    14.   The Human Bondage - 4:14 
+    15.   Eye of the Nightmare - 5:03 
+    16.   Nuclear Skies - 4:35 
+    17.   The Mission - 5:52 
+    18.   Wolf and Raven - 4:17 
+    19.   The River Dragon Has Come - 5:07 
+    20.   Trip to... - 3:09 
+    21.   The Prophecy - 4:17 
+    22.   Wake Up Dead - 3:50 
+    23.   The Words Unspoken - 5:30 
+    24.   Mirror, Mirror - 5:06 
+
+
+### "Modus Vivendi" 2003, Heavy Metal
+
+01. Anubis 3:53 
+02. No Mercy 4:14 
+03. Afraid to Die 5:27 
+04. Clearly Insane 3:49 
+05. Cyberdome 4:37 
+06. Take on the World 5:20 
+07. Mother Shipton's Words 4:02 
+08. Unwelcome Guest 4:02 
+09. Life in a Lonely Grave 7:15 
+10. When the Spirit Rules the World 4:41
+
+Urban Breed - vocals 
+Christer "Krunt" Andersson - guitars 
+Daniel Olsson - guitars 
+Anders Modd - bass 
+Peter Moren - drums
+
 
 ## Отношения с другими группами
 

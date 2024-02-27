@@ -1,16 +1,49 @@
 # White Lion
 
-Дискография
-"Fight to Survive" 1984, Hard Rock
-"Pride" 1987, Hard Rock
-"Big Game" 1989, Hard Rock
-"Wait (single)" 1989, Hard Rock
-"When the Children Cry (single)" 1991, Hard Rock
-"Love Don't Come Easy (single)" 1991, Hard Rock
-"Mane Attraction" 1991, Hard Rock
-"The Best of White Lion (compilation)" 1992, Hard Rock
-"Remembering White Lion: Greatest Hits (compilation)" 1999, Hard Rock
-"The Essentials (compilation)" 2002, Hard Rock
+
+
+## Дискография
+
+### "Fight to Survive" 1984, Hard Rock
+
+
+
+### "Pride" 1987, Hard Rock
+
+
+
+### "Big Game" 1989, Hard Rock
+
+
+
+### "Wait (single)" 1989, Hard Rock
+
+
+
+### "When the Children Cry (single)" 1991, Hard Rock
+
+
+
+### "Love Don't Come Easy (single)" 1991, Hard Rock
+
+
+
+### "Mane Attraction" 1991, Hard Rock
+
+
+
+### "The Best of White Lion (compilation)" 1992, Hard Rock
+
+
+
+### "Remembering White Lion: Greatest Hits (compilation)" 1999, Hard Rock
+
+
+
+### "The Essentials (compilation)" 2002, Hard Rock
+
+
+
 
 ## Отношения с другими группами
 

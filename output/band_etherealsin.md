@@ -1,7 +1,23 @@
 # Ethereal Sin
 
-Дискография
-"...The Abyss will also gaze into thee" 2009, Black Metal
+
+
+## Дискография
+
+### "...The Abyss will also gaze into thee" 2009, Black Metal
+
+1. Forest Of Macabre 02:04  
+2. Autumn Dusk 08:26  
+3. Lost Destination 05:54  
+4. At The Gate Of Bloody Ruins 01:06  
+5. Demon Remains 06:17  
+6. Mist And The Pagan's Castle 04:23  
+7. Dawn Of Crystal Lake 01:44  
+8. Spirits Of Samurai 06:29  
+9. Far East Gate 02:53 
+10. War Remembrance (08:22)
+11. Time When My Requiem Blow The Mourning Winds (04:34) 
+
 
 ## Отношения с другими группами
 

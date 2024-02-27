@@ -1,11 +1,91 @@
 # Neaera
 
-Дискография
-"The Rising Tide Of Oblivion" 2005, Melodic Death Metal
-"Let The Tempest Come" 2006, Melodic Death Metal
-"Armamentarium" 2007, Melodic Death Metal
-"Omnicide - Creation Unleashed" 2009, Melodic Death Metal
-"Forging The Eclipse " 2010, Melodic Death Metal
+
+
+## Дискография
+
+### "The Rising Tide Of Oblivion" 2005, Melodic Death Metal
+
+01. The World Devourers
+02. Broken Spine
+03. Anthem Of Despair
+04. Walls Instead Of Bridges
+05. Where Submission Reigns
+06. From Grief...
+07. ...To Oblivion
+08. Hibernating Reason
+09. Definition Of Love
+10. Save The Drowning Child
+11. Beyond The Gates
+12. No Coming Home
+13. The Last Silence
+
+### "Let The Tempest Come" 2006, Melodic Death Metal
+
+01. Mechanisms of Standstill
+02. Let the Tempest Come
+03. Plagueheritage
+04. God Forsaken Soil
+05. HeavenHell
+06. Desecrators
+07. The Crimson Void
+08. I Love the World
+09. Paradigm Lost
+10. Life Damages the Living
+11. Scars of Gray
+
+### "Armamentarium" 2007, Melodic Death Metal
+
+01. Spearheading the spawn
+02. Tools of greed
+03. Armamentarium
+04. Synergy
+05. Harbinger
+06. In loss
+07. The orphaning
+08. The escape from escapism
+09. Mutiny of untamed minds
+10. The need for pain
+11. Liberation
+
+### "Omnicide - Creation Unleashed" 2009, Melodic Death Metal
+
+1. I Loathe 04:34 
+2. Prey to Anguish 04:36  
+3. The Wretched of The Earth 03:49  
+4. Grave New World 04:01 
+5. Age of Hunger 04:57  
+6. Caesura 04:20 
+7. Omnicide 04:21  
+8. In Near Ruins 04:46  
+9. The Nothing Doctrine 04:38 
+10. I am The Rape 04:00 
+
+
+The limited first edition will be released as a double digipack, including a
+bonus DVD with a band documentary and an exclusive cover version of Crowbar's
+"The Lasting Dose":
+11. The Lasting Dose (04:05)
+
+The album was recorded at the Rape Of Harmonies Studio with producer Alexander
+Dietz. The artwork was created by Terje Johnsen. 
+
+### "Forging The Eclipse " 2010, Melodic Death Metal
+
+1. The Forging 00:59  
+2. Heaven's Descent 03:41  
+3. In Defiance 03:14  
+4. Eight Thousand Sorrows Deep 04:14  
+5. Arise Black Vengeance 03:02  
+6. Rubikon 02:50  
+7. Sirens of Black 04:31  
+8. Certitude 02:50  
+9. Exaltation 03:26  
+10. Tyranny of Want 03:33  
+11. The Prophecy 03:37  
+12. And to Posterity a Plague 03:43 
+
+
 
 ## Отношения с другими группами
 

@@ -1,9 +1,63 @@
 # Beecher
 
-Дискография
-"Resention Is A Big Word In A Small Town" 2002, Hardcore
-"Breaking The Fourth Wall" 2003, Hardcore
-"This Elegy, His Autopsy" 2005, Hardcore
+
+
+## Дискография
+
+### "Resention Is A Big Word In A Small Town" 2002, Hardcore
+
+1:You've got Seven weeks 
+2:Megadrive Vs SNES 
+3:Rise above grace 
+4:Resention 
+5:Artistic roll call 
+6:Circus de lobos 
+7:KAR 120C
+
+### "Breaking The Fourth Wall" 2003, Hardcore
+
+1:Let them drown 
+2:Dead for weeks * 
+3:Burning surface * 
+4:Arrow flies 
+5:Mercury Switch 
+6:Floating Point ** 
+7:The only One I know 
+8:Red Diesel*** 
+9:Cabin boy jumped ship 
+10:An important letter * 
+11:Ladder theory 
+
+Recorded & Mixed by Kurt Ballou @ Outpost & Godcity studios - Boston, USA February 2003. 
+Drum tech - Carl Plaster. 
+Additional musicians: Additional vocals on * by Daniel Plant.
+Vocals on ** by DJ Speedranch, Martin Ives & Ethan Corrigan.
+Additional vocal on *** by Jamie Farrell.
+
+Art & Construction by Aaron Turner for Hydra Head Industries
+
+### "This Elegy, His Autopsy" 2005, Hardcore
+
+1:Its good weather for black leather
+2:Function! Function!
+3:The womanizer and the alcoholic
+4:Knight the arsonist
+5:Not guilty
+6:And on the day that he became a human plumb-line
+7:Psycho galvanic skin response
+8:Man the traps
+9:Brown eyes (no name)
+10:The biting cold
+11:I won't miss, or be missed
+12:Happiness
+13:Reach up to the gods
+
+Produced by Kurt Ballou at Godcity -, Salem Massachusetts, USA.
+April - May 2005
+Mixed By Matt Ellard
+Drum Tech - Alex Garcia Rivera
+Mastered at New Alliance East By Nick Zampiello
+
 
 ## Отношения с другими группами
 

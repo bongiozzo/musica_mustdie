@@ -1,7 +1,13 @@
 # Goretorture
 
-Дискография
-"Promised To Kill You Last I Lied!" 2004, Grindcore
+
+
+## Дискография
+
+### "Promised To Kill You Last I Lied!" 2004, Grindcore
+
+
+
 
 ## Отношения с другими группами
 

@@ -1,8 +1,59 @@
 # Oppressor
 
-Дискография
-"Solstice Of Oppression" 1994, Deathcore
-"Agony" 1996, Deathcore
+Melodic Deathcore
+
+## Дискография
+
+### "Solstice Of Oppression" 1994, Deathcore
+
+1. Season
+2. Eclipse Into 
+3. Devour The Soul
+4. And The Angels Fell (The Suffering)
+5. Prelude To Death
+6. Genocide
+7. Rotted Paradise
+8. As Blood Flows
+9. Dying Inside
+
+ Tim King - Vocals,bass,keyboard
+ Adam Zadel - Lead guitar & acoustic guitar
+ Jim Stooper - Guitars
+ Tom Schofield - Drums
+
+All songs written by OPPRESSOR
+Produced,mixed & engineered by Ron Reid & Jim Harvery
+Recorded at Break Through Audio,Chicago
+
+(p)(c) 1994 RED LIGHT Records
+
+
+### "Agony" 1996, Deathcore
+
+1. Gone
+2. Suffersystem
+3. In Exile
+4. Passage
+5. Valley Of Thorns
+6. Redefine
+7. Sea Of Tears
+8. I Am Darkness
+9. Carnal Voyage
+
+Tim King - Bass, Vocals, Keyboards
+Adam Zadel - Guitars
+Tom Schifield - Drums
+Jim Stopper - Guitars
+
+Produced, Engineered and Mixed by Brian Griffin.
+
+Recorded and Mixed at Choice Studios.
+Mastered by Jim Morris.
+Cover artwork by SV Bell.
+Band residence: USA.
+
+(p)(c) 1996 DIEHARD MUSIC RRS 958
+
 
 ## Отношения с другими группами
 

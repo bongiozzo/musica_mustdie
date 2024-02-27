@@ -1,8 +1,48 @@
 # Sunterra
 
-Дискография
-"Lost Time" 2002, Gothic
-"Graceful Tunes" 2005, Gothic
+gothic-metal with flute
+
+## Дискография
+
+### "Lost Time" 2002, Gothic
+
+01. Fields Of Pain
+02. Lost Time
+03. To A Friend
+04. Out Of The Dark
+05. Symbiose
+06. Metamorphose
+07. Silent Observer
+08. Living Death
+09. Thank You
+
+Carlos - Karl Heinz Krug (vocals)
+Lilly - Libuscha Hruska (vocals)
+Edga - Elmar Schoen (keyboards)
+Friedl - Friedrich Schuetz (guitars)
+Chris - Christian Schoen (bass)
+Mick - Martin Mayer (drums)
+
+
+
+recorded in april 2002 at the Exponet Studios,
+Hlohovec/Slovakia
+music by sunterra, words by libusa hruska
+to a friend: words by liarl-heini krug
+out of the dark: words by faico, musk by thorsien
+boerger
+
+### "Graceful Tunes" 2005, Gothic
+
+1. Confusion 05:22
+2. Graceful Tunes 03:40 
+3. Hidden 03:29 
+4. Spirit of the Light 04:53 
+5. Somewhere 05:22  
+6. Quid Est Libertas? 06:36 
+7. Veil Of Darkness 05:34 
+8. Charon's Pond 03:23
+
 
 ## Отношения с другими группами
 

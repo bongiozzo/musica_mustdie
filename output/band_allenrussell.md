@@ -1,7 +1,13 @@
 # Allen, Russell
 
-Дискография
-"Russell Allen's Atomic Soul" 2005, Progressive
+singer of SYMPHONY X
+
+## Дискография
+
+### "Russell Allen's Atomic Soul" 2005, Progressive
+
+
+
 
 ## Отношения с другими группами
 

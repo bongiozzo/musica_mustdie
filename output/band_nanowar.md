@@ -1,8 +1,47 @@
 # Nanowar
 
-Дискография
-"Other Bands Play Nanowar Gay!" 2006, Metal
-"Into Gay Pride Ride" 2010, Metal
+
+
+## Дискография
+
+### "Other Bands Play Nanowar Gay!" 2006, Metal
+
+1. Intrue
+2. Tricycles Of Steel
+3. True Metal Of The World
+4. Burger
+5. King
+6. Introducing The Power
+7. Power Of The Power Of The Power The Power (Of Great Sword)
+8. Pino
+9. Metal-La-La-La *
+10. Gioca True (Other Bands Play Nanowar Gay)
+11. The Number Of The Bitch **
+12. Entra L'uomo Di Sabbia
+13. Triumphant March Of The Nanowarrior +
+14. Outrue
+
+All music and lyrics written by NANOWAR
+except * written by MANOWAR
+** written by IRON MAIDEN
++ written by METALLICA
+Recorded and mixed at 16th Cellar Studios and Storx Studios
+Engineered by NANOWAR and Stefano Morabito
+
+GattoPanceri 666 - Bass and Choirs
+UinonaRaider (Milino) - Drums
+Mohammed Abdul - Guitars, Backing Vocals, Keys and Choirs
+
+Guest Musicians:
+Michele, Alessandro Beato, Alberto, Daniele Carbonera - Drums
+Raffaello Venditti - Voices
+Fiorella Mannoia - Female Vocals
+Prado Longhi - Violin
+
+### "Into Gay Pride Ride" 2010, Metal
+
+
+
 
 ## Отношения с другими группами
 

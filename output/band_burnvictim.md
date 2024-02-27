@@ -1,6 +1,9 @@
 # Burn Victim
 
-Дискография
+sick vomitcore from Arizona
+
+## Дискография
+
 
 ## Отношения с другими группами
 

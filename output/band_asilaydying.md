@@ -1,12 +1,138 @@
 # As I Lay Dying
 
-Дискография
-"Beneath the Encasing of Ashes" 2001, Melodic Death Metal
-"Frail Words Collapse" 2003, Metalcore
-"Shadows Are Security" 2005, Melodic Death Metal
-"A Long March: The First Recordings" 2006, Metalcore
-"An Ocean Between Us" 2007, Metalcore
-"The Powerless Rise" 2010, Metalcore
+
+
+## Дискография
+
+### "Beneath the Encasing of Ashes" 2001, Melodic Death Metal
+
+1. Beneath the Encasing of Ashes 03:03 
+2. Torn Within 01:46 
+3. Forced to Die 02:43  
+4. A Breath in the Eyes of Eternity 02:58  
+5. Blood Turned to Tears 01:38  
+6. The Voices That Betray Me 02:58  
+7. When this World Fades 02:32
+8. A Long March 01:56 
+9. Surrounded 00:50
+10. Refined By Your Embrace 01:44
+11. The Innocence Spilled 03:36  
+12. Behind Me Lies Another Fallen Soldier 04:13
+
+### "Frail Words Collapse" 2003, Metalcore
+
+1. 94 Hours 03:10 
+2. Falling Upon Deaf Ears 02:31  
+3. Forever 04:42  
+4. Collision 03:11  
+5. Distance Is Darkness 02:38
+6. Behind Me Lies Another Fallen Soldier 03:03 
+7. Undefined 02:16 
+8. A Thousand Steps 01:45  
+9. The Beginning 03:29  
+10. Song 10 04:16  
+11. The Pain of Separation 02:57 
+12. Elegy 04:47
+
+### "Shadows Are Security" 2005, Melodic Death Metal
+
+1. meaning in tragedy 
+2. confined 
+3. losing sight 
+4. the darkest nights 
+5. empty hearts 
+6. reflection 
+7. repeating yesterday 
+8. through struggle 
+9. the truth of my perception 
+10. control is dead 
+11. morning waits 
+12. illusions 
+
+Line-Up: 
+Tim Lambesis: Vocals 
+Phil Sgrosso: Guitar 
+Nick Hipa: Guitar 
+Jordan Mancino: Drums 
+Clint Norris: Bass
+
+### "A Long March: The First Recordings" 2006, Metalcore
+
+1. Illusions 04:06 
+2. The Beginning 03:28  
+3. Reinvention 04:58  
+4. The Pain of Separation 02:56  
+5. Forever 04:42 
+6. Beneath the Encasing of Ashes 02:47  
+7. Torn Within 01:46  
+8. Forced to Die 02:41  
+9. A Breath in the Eyes of Eternity 02:56 
+10. Blood Turned to Tears 01:35  
+11. The Voices that Betray Me 02:56 
+12. When This World Fades 02:30 
+13. A Long March 01:55  
+14. Surrounded 00:51  
+15. Refined by Your Embrace 01:43  
+16. The Innocence Spilled 03:37 
+17. Behind Me Lies Another Fallen Soldier 04:09
+18. Illusions 03:54 
+19. The Beginning 02:46 
+20. Reinvention 04:54  
+21. The Pain of Separation 02:48
+22. Forever 04:10
+
+### "An Ocean Between Us" 2007, Metalcore
+
+1. Separation   
+2. Nothing Left   
+3. An Ocean Between Us   
+4. Within Destruction   
+5. Forsaken   
+6. Comfort Betrays   
+7. I Never Wanted   
+8. Bury Us All   
+9. The Sound Of Truth   
+10. Departed   
+11. Wrath Upon Ourselves   
+12. This Is Who We Are 
+
+
+Tim Lambesis: Vocals (ex-Societyґs Finest) 
+Jordan Mancino: Drums (ex-Edge of Morality)
+Josh Gilbert: Bass (ex-All In)
+Phil Sgrosso: Guitar (ex-Tomra, Double Whammy, Saber Tooth)
+Nick Hipa: Guitar (ex-Evelynn, Double Whammy, Master Originator)
+
+### "The Powerless Rise" 2010, Metalcore
+
+1. Beyond Our Suffering 02:49
+2. Anodyne Sea 04:34 
+3. Without Conclusion 03:15
+4. Parallels 04:57 
+5. The Plague 03:42
+6. Anger and Apathy 04:25  
+7. Condemned 02:49  
+8. Upside Down Kingdom 04:00  
+9. Vacancy 04:26 
+10. The Only Constant Is Change 04:07 
+11. The Blinding of False Light 05:10 
+
+
+Produced by Adam Dutkiewicz & As I Lay Dying
+Engineered by Adam Dutkiewicz & Daniel Castleman
+Additional vocal engineering and editing by Joseph McQueen
+Mixed by Colin Richardson
+Mix Engineer: Martyn “Ginge” Ford
+Mixed at Lambesis Studios
+Mastered by Ted Jensen at Sterling Sound
+
+Guitars, Bass, and Vocals recorded at Lambesis Studios in San Diego, CA
+Drums recorded at Signature Sound in San Diego, CA
+Pre-production done by As I Lay Dying, Daniel Castleman, and Kelly Cairns
+Guitar tech: Joey St. Lucas
+Drum tech: Mike Catalano
+Artwork by Converge vocalist Jacob Bannon
+
 
 ## Отношения с другими группами
 

@@ -1,12 +1,42 @@
 # Baroness
 
-Дискография
-"First (EP)" 2004, Metal
-"Second (EP)" 2005, Metal
-"Red Album" 2007, Metal
-"Blue Record" 2009, Metal
-"Yellow & Green" 2012, Metal
-"Purple" 2015, Metal
+
+
+## Дискография
+
+### "First (EP)" 2004, Metal
+
+
+
+### "Second (EP)" 2005, Metal
+
+
+
+### "Red Album" 2007, Metal
+
+
+
+### "Blue Record" 2009, Metal
+
+
+
+### "Yellow & Green" 2012, Metal
+
+
+
+### "Purple" 2015, Metal
+
+01. Morningstar
+02. Shock Me
+03. Try To Disappear
+04. Kerosene
+05. Fugue
+06. Chlorine & Wine
+07. The Iron Bell
+08. Desperation Burns
+09. If I Have To Wake Up (Would You Stop the Rain)
+10. Crossroads Of Infinity
+
 
 ## Отношения с другими группами
 

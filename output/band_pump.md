@@ -1,7 +1,32 @@
 # Pump
 
-Дискография
-"Breakdown To Breakthrough" 2006, Hard Rock
+
+
+## Дискография
+
+### "Breakdown To Breakthrough" 2006, Hard Rock
+
+1. Revolution On My Mind; 
+2. Blood On The Blade; 
+3. Higher; 
+4. Save Me; 
+5. I Can't Deny; 
+6. How Does It Feel?; 
+7. Alright Now; 
+8. Headstrong; 
+9. Bulletride; 
+10. Heaven High; 
+11. Who Made You A Madman?
+
+All songs written by PUMP
+Produced, engineered and mixed by Tommy Newton at Area 51 Studios, Germany
+
+Marcus Jurgens - All Vocals
+Aki Reissmann - Guitars
+Ullrich Simon Hauff - Guitars
+Burk - Bass
+Achim Keller - Drums
+
 
 ## Отношения с другими группами
 

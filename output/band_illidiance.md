@@ -1,9 +1,38 @@
 # Illidiance
 
-Дискография
-"Insane Mytheries To Demise" 2005, Black Metal
-"Nexaeon" 2009, Black Metal
-"Damage Theory" 2010, Black Metal
+sympho black from Taganrog (Russia)
+
+## Дискография
+
+### "Insane Mytheries To Demise" 2005, Black Metal
+
+
+
+### "Nexaeon" 2009, Black Metal
+
+1. Nexaeon 04:52  
+2. Bleed for Deliverance 04:41  
+3. ...A Cold Day in Hell 04:14  
+4. Chaoticon Nomads 05:21  
+5. Paranormel Activity 04:28  
+6. In Thousands Gales I Dwell 03:58  
+7. Countdown to Annihilation 03:45  
+8. Spiral Galaxy NGC 1309 02:46 
+
+### "Damage Theory" 2010, Black Metal
+
+Hi-Tech Terror 
+Critical Damage 
+Breaking The Limit 
+New Millenium Crushers 
+I Want To Believe 
+CyberGore Generation 
+Cybernesis 
+Infected 
+Fading Away 
+Mind Hunters 
+Razor To The Skin 
+
 
 ## Отношения с другими группами
 

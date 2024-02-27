@@ -1,11 +1,118 @@
 # Shaman
 
-Дискография
-"Ritual" 2002, Progressive
-"Ritualive" 2004, Power Metal
-"Reason" 2005, Progressive
-"Immortal" 2007, Progressive
-"Origins" 2010, Progressive
+Power metal (also SHAAMAN)
+
+## Дискография
+
+### "Ritual" 2002, Progressive
+
+01. Ancient Winds
+02. Here I Am
+03. Distant Thunder
+04. For Tomorrow
+05. Time Will Come
+06. Over Your Head
+07. Fairy Tale
+08. Blind Spell
+09. Ritual
+10. Pride
+
+
+
+Andre Matos - vocals, keyboards
+Hugo Mariutti – guitars
+Luis Mariutti – bass
+Ricardo Confessori – drums
+
+
+### "Ritualive" 2004, Power Metal
+
+1 - Ancient Winds 
+  2 - Here I am 
+  3 - Distant thunder 
+  4 - For tomorrow 
+  5 - Time will come 
+  6 - Over your head 
+  7 - Fairy tale 
+  8 - Blind spell 
+  9 - Ritual 
+  10 - Sign of the cross 
+  11 - Pride 
+  12 - Eagle fly free
+
+### "Reason" 2005, Progressive
+
+1. Turn Away 04:25 
+2. Reason 04:42
+3. More (Sisters of Mercy Cover) 04:06 
+4. Innocence 04:39  
+5. Scarred Forever 05:23
+6. In the Night 05:56
+7. Rough Stone 05:00 
+8. Iron Soul 05:28 
+9. Trail of Tears 03:52 
+10. Born to Be 06:00 
+
+
+Andre Matos - vocals, keyboards
+Hugo Mariutti - guitars
+Luis Mariutti - bass
+Ricardo Confessori - drums
+Fabio Ribeiro - keyboards (as guest)
+Leandro Ricardo - classic piano (as guest)
+
+### "Immortal" 2007, Progressive
+
+1. Renovatti 02:59  
+2. Inside Chains 04:23  
+3. Tribal By Blood 04:17 
+4. Immortal 05:53 
+5. One Life 05:03  
+6. In The Dark 04:17 
+7. Strenght 04:17
+8. Freedom 04:43  
+9. Never Yield 04:47 
+10. The Yellow Brick Road 08:18 
+
+
+Line-up:
+
+Thiago Bianchi - Vocals
+Lйo Mancini - Guitars
+Fernando Quesada - Bass
+Ricardo Confessori - Drums 
+
+### "Origins" 2010, Progressive
+
+1. Origins (The Day I Died) 00:59  
+2. Lethal Awakening 03:38  
+3. Inferno Veil 05:20  
+4. Ego 02:19  
+5. Ego, Pt. 2 04:59  
+6. Finnaly Home 05:50  
+7. Rising Up Your Life 03:36  
+8. No Mind 04:10  
+9. Blind Messiah 05:40  
+10. Signed, Sealed And Delivered 05:50  
+11. Kurenai (X Japan Cover) 04:18 
+
+
+SYNOPSIS
+This is the story of a little boy called Amagat, from a tribe in the far land of
+Siberia, home of the first Shamans that history ever heard of. His story begins
+at the moment he reaches the "age of the warrior" - the age that his tribe
+believes to be the "age of transition" from a child to an adult, a warrior.
+Amagat then runs away believing he's not part of all that. And during his
+journey into the unknown, he passes through ten stages that will lead him to
+enlightenment, and finally will bring him back to his tribe, where he will be
+received as a 'spiritual leader'. 
+
+
+Thiago Bianchi - Vocals 
+Lйo Mancini - Guitar
+Fernando Quesada - Bass 
+Ricardo Confessori - Drums 
+
 
 ## Отношения с другими группами
 

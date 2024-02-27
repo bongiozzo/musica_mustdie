@@ -1,7 +1,36 @@
 # Runic
 
-Дискография
-"Liar Flags" 2006, Viking Metal
+
+
+## Дискография
+
+### "Liar Flags" 2006, Viking Metal
+
+1. ...When The Demons Ride; 
+2. Liar Flags; 
+3. Last Days Of Aghrapur (Pt.1 Ambush); 
+4. Last Days Of Aghrapur (Pt.2 Lost Empire); 
+5. Predecessor; 
+6. To The Fallen Ones; 
+7. Vs Myself; 
+8. Nau; 
+9. And A New Journey Begins
+
+All songs written by RUNIC
+Recorded and mixed by Alberto sales and RUNIC at Rocketes Studio, Spain
+
+Juan - Vocals
+Iban-Pirri - Guitars
+Jose - Guitars
+David - Bass
+Eneas - Keys
+Rivas - Drums
+
+Guest Appearances:
+Pascual Gimeno - Orchestral Arrangements
+Francisco martinez - Flutes, Pipe and Zanfona
+Ana - Vocals
+
 
 ## Отношения с другими группами
 

@@ -1,7 +1,36 @@
 # Silencer
 
-Дискография
-"Death - Pierce Me" 2001, Black Metal
+
+
+## Дискография
+
+### "Death - Pierce Me" 2001, Black Metal
+
+Side Kill
+
+01. Death - Pierce Me
+02. Sterile Nails And Thunderhowels
+03. Taklamakan
+
+Side Yourself
+
+04. The Slow Kill In The Cold
+05. I Shall Lead, You Shall Follow
+06. Feeble Are You - Sons Of Sion
+
+
+Recorded and Mixed at Klangschmiede Studio E. July2000
+Engineered and Mastered by Markus Stock
+Produced by Markus Stock and Silencer
+Sessiondrums by Steve Wolz
+Music Written Between 1995 - 2000
+Lyrics Written Between 1998 - 2000
+Logotype and Artwork by Olaf Eckhardt
+Art Direction and Design by
+Christian Soderholm and Nattramn
+
+ 
+
 
 ## Отношения с другими группами
 

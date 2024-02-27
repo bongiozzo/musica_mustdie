@@ -1,8 +1,17 @@
 # Hellbringer
 
-Дискография
-"Hellbringer (EP)" 2011, Thrash
-"Dominion Of Darkness" 2012, Thrash
+
+
+## Дискография
+
+### "Hellbringer (EP)" 2011, Thrash
+
+
+
+### "Dominion Of Darkness" 2012, Thrash
+
+
+
 
 ## Отношения с другими группами
 

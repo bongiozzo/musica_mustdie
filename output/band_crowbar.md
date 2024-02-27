@@ -1,16 +1,238 @@
 # Crowbar
 
-Дискография
-"Obedience Thru Suffering" 1991, Metal
-"Crowbar" 1993, Metal
-"Time Heals Nothing" 1995, Metal
-"Broken Glass" 1996, Metal
-"Odd Fellows Rest" 1998, Metal
-"Equillibrium" 2000, Metal
-"Sonic Excess In Its Purest Form " 2001, Metal
-"Lifesblood for the Downtrodden" 2005, Metal
-"Sever the Wicked Hand" 2011, Metal
-"Symmetry In Black" 2014, Metal
+
+
+## Дискография
+
+### "Obedience Thru Suffering" 1991, Metal
+
+1. Waiting in Silence 04:26  
+2. I Despise 04:17
+3. A Breed Apart 05:32
+4. Obedience Thru Suffering 04:59 
+5. Vacuum 04:16  
+6. 4 Walls 04:41  
+7. Subversion 03:08 
+8. Feeding Fear 03:35  
+9. My Agony 04:21 
+10. The Innocent 03:45 
+
+
+Kirk Windstein - Vocals/Guitar
+Kevin Noonan - Guitar
+Todd Strange - Bass
+Craig Nunenmacher - Drums
+
+
+The 1995 re-release contains 2 bonus tracks:
+11. Fixation (live) (04:06)
+12. Four Walls (live) (04:06) 
+
+
+### "Crowbar" 1993, Metal
+
+1. High Rate Extinction 02:42
+2. All I Had (I Gave) 03:10 
+3. Will That Never Dies 03:55 
+4. Fixation 03:44 
+5. No Quarter (Led Zeppelin cover) 04:29  
+6. Self-Inflicted 02:44 
+7. Negative Pollution 03:10 
+8. Existence Is Punishment 04:27  
+9. Holding Nothing 03:11 
+10. I Have Failed 04:22 
+
+
+Kirk Windstein - Vocals/Guitar
+Matt Thomas - Guitar
+Todd Strange - Bass
+Craig Nunenmacher - Drums
+
+Produced by Phil Anselmo
+
+
+### "Time Heals Nothing" 1995, Metal
+
+1.  The Only Factor
+2.  No More Can We Crawl
+3.  Time Heals Nothing
+4.  Leave It Behind
+5.  Through A Wall Of Tears
+6.  Lack Of Tolerance
+7.  Still I Reach
+8.  Embracing Emptiness
+9.  A Perpetual Need
+10.Numb Sensitive
+
+All Songs Written By CROWBAR.
+Produced By CROWBAR.
+Engineered By David Farell.
+Recorded & Mixed At Ultrasonic Studios In New Orlean.
+
+Kirk Windstein - Vocals, Guitars
+Matt Thomas - Guitars
+Todd Strange - Bass
+Craig Nunenmacher - Drums
+
+(P)&(C) 1995 BULLET PROOF Records
+
+### "Broken Glass" 1996, Metal
+
+1.  Conquering
+2.  Like Broken Glass
+3.  (Can't) Turn Away From Dying
+4.  Wrath Of Time
+5.  Nothing
+6.  Burn Your World
+7.  I Am Forever
+8.  Above, Below And Inbetween
+9.  You Know (I'll Live Again)
+10.Reborn Thru Me
+
+All Songs Written By CROWBAR.
+Produced By Simon Effemey & Philip Anselmo.
+Engineered & Mixed By Simon Effemey.
+Recorded & Mixed At Ultrasonic Studios In New Orlean.
+
+Kirk Windstein - Vocals, Guitars
+Matt Thomas - Guitars
+Todd Strange - Bass
+Craig Nunenmacher - Drums
+
+(P)(C) 1996 BULLET PROOF Records
+
+### "Odd Fellows Rest" 1998, Metal
+
+1. Intro 01:24  
+2. Planets Collide 04:38 
+3. ...and Suffer as One 04:12  
+4. 1,000 Years Internal War 04:02 
+5. To Carry the Load 04:03  
+6. December's Spawn 05:11
+7. It's All in the Gravity 04:14
+8. Behind the Black Horizon 06:02  
+9. New Man Born 04:47 
+10. Scattered Pieces Lay 05:23  
+11. Odd Fellows Rest 06:08  
+12. On Frozen Ground 04:00 
+13. Remember Tomorrow 07:00
+
+
+Kirk Windstein - Vocals/Guitar
+Sammy Pierre Duet - Guitar
+Todd Strange - Bass
+Jimmy Bower - Drums
+
+
+### "Equillibrium" 2000, Metal
+
+1. I Feel the Burning Sun 03:37  
+2. Equilibrium 04:41
+3. Glass Full of Liquid Pain 03:28 
+4. Command of Myself 03:16  
+5. Down into the Rotting Earth 05:16
+6. To Touch the Hand of God 05:07  
+7. Uncovering 04:21
+8. Buried Once Again 04:05 
+9. Things You Can't Understand 03:29 
+10. Euphoria Minus One 03:25 
+11. Dream Weaver 
+
+
+
+Kirk Windstein - Vocals/Guitar
+Sammy Pierre Duet - Guitar
+Todd Strange - Bass
+Sid Montz - Drums
+
+
+### "Sonic Excess In Its Purest Form " 2001, Metal
+
+1. The Lasting Dose 04:12 
+2. To Build a Mountain 03:58
+3. Thru the Ashes (I've Watched You Burn) 04:43  
+4. Awakening 03:36
+5. Repulsion in Its Splendid Beauty 03:58  
+6. Counting Daze 03:54  
+7. In Times of Sorrow 02:38  
+8. It Pours from Me 05:05 
+9. Suffering Brings Wisdom 05:27 
+10. Failure to Delay Gratification 03:07 
+11. Empty Room 04:52 
+
+
+
+Kirk Windstein - Vocals/Guitar
+Sammy Pierre Duet - Guitar
+Jeff Okoneski - Bass
+Tony Costanza - Drums
+
+
+
+### "Lifesblood for the Downtrodden" 2005, Metal
+
+01. New Dawn
+02. Slave No More
+03. Angels Wings
+04. Coming Down
+05. Fall Back To Zero
+06. Underworld
+07. Dead Sun
+08. Holding Something
+09. Moon
+10. The Violet Reaction
+11. Lifesblood
+
+Kirk Windstein - vocals & guitar
+Steve Gibb - guitar
+Pat Bruders - bass guitar
+Tommy Buckley - drums
+
+On this recording:
+Kirk Windstein - all guitars (1-10), all vocals (1-11)
+Rex Brown - 4&8-string bass, 6&12-string guitars, keyboards
+Craig Nunenmacher - all drums
+Steve Gibb - electric & slide guitars (11)
+Sid Montz - piano (11)
+
+Executive production: Popknot Productions.
+Produced by Rex Brown & Warren Riker.
+Except track 11: produced & engineered by Scott Campbell.
+All tracks recorded at Noizelab (New Orleans), except "Lifesblood" - recorded at Piety Studios (New Orleans) and Middle Ear Studios (Miami Beach).
+Mastered by Brad Thorngren at Middle Ear Studios (Miami Beach).
+Inside booklet layout: Praxis Studios.
+
+### "Sever the Wicked Hand" 2011, Metal
+
+1. Isolation (Desperation) 04:14  
+2. Sever the Wicked Hand 03:15  
+3. Liquid Sky and Cold Black Earth 06:24  
+4. Let Me Mourn 04:50  
+5. The Cemetery Angels 04:01  
+6. As I Become One 04:55  
+7. A Farewell to Misery 03:43  
+8. Protectors of the Shrine 03:28  
+9. I Only Deal in Truth 03:20  
+10. Echo an Eternity 05:03  
+11. Cleanse Me, Heal Me 03:42  
+12. Symbiosis 05:05 
+
+
+### "Symmetry In Black" 2014, Metal
+
+01. Walk With Knowledge Wisely
+02. Symmetry In White
+03. The Taste Of Dying
+04. Reflection Of Deceit
+05. Ageless Decay
+06. Amaranthine
+07. The Foreboding
+08. Shaman Of Belief
+09. Teach The Blind To See
+10. A Wealth Of Empathy
+11. Symbolic Suicide
+12. The Piety Of Self-Loathing
+
 
 ## Отношения с другими группами
 

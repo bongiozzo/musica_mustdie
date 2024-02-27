@@ -1,8 +1,65 @@
 # Wolf Hoffmann
 
-Дискография
-"Classical" 1997, Heavy Metal
-"Headbangers Symphony" 2016, Heavy Metal
+
+
+## Дискография
+
+### "Classical" 1997, Heavy Metal
+
+1. Prelude
+Georges Bizet 
+Carmen Suite No.1
+2. In The Hall Of The Mountain King
+Edvard Grieg 
+Peer Gynt Suite No.1, Op.46
+3. Habanera
+Georges Bizet
+Carmen Suite No.2
+4. Arabian Dance
+Peter I. Tchaikovsky
+The Nutcracker Suite, Op.71a
+5. The Moldau
+Bedrich Smetana
+My Country
+6. Bolero
+Maurice Ravel
+7. Blues For lise
+Ludwig Van Beethoven
+Fur Elise
+8. Aragonaise
+Georges Bizet
+Carmen Suite No.1
+9. Solveig's Song
+Edvard Grieg
+Peer Gynt Suite No.2
+10. Western Sky
+Wolf Hoffman
+11. Pomp & Circumstance
+Edward Elgar
+Wolf Hoffman - guitar
+Peter Baltes - bass on 11
+Mike Brignardello - bass on 2,3,5,7 and 9
+Michael Cartellone - drums and percussion
+Larry Hall - piano on 11
+W. Anthony Joyner - bass on 10
+Dr. Al Kooper - B3 on 7
+Produced by Michael Wagener
+(p)(c)1997 Victor Entertainment
+
+### "Headbangers Symphony" 2016, Heavy Metal
+
+01. Scherzo (L. v. Beethoven)
+02. Night On Bald Mountain (M. Mussorgsky)
+03. Je Crois Entendre Encore (G. Bizet)
+04. Double Cello Concerto in G Minor (A. Vivaldi)
+05. Adagio (T. Albinoni)
+06. Symphony No. 40 (W. A. Mozart)
+07. Swan Lake (P. Tchaikovsky)
+08. Madame Butterfly (G. Puccini)
+09. Path&#233;tique (L. v. Beethoven)
+10. Meditation (J. Massenet)
+11. Air On The G String (J. S. Bach)
+
 
 ## Отношения с другими группами
 

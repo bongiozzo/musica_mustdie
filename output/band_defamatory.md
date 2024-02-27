@@ -1,7 +1,13 @@
 # Defamatory
 
-Дискография
-"Promo" 2001, Death Metal
+Death-Metal from Novosibirsk
+
+## Дискография
+
+### "Promo" 2001, Death Metal
+
+
+
 
 ## Отношения с другими группами
 

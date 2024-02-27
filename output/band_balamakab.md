@@ -1,7 +1,19 @@
 # Balam-Akab
 
-Дискография
-"Xibalba" 2009, Black Metal
+
+
+## Дискография
+
+### "Xibalba" 2009, Black Metal
+
+1. Intro 01:30  
+2. Xibalba 05:41 
+3. EK 05:07 
+4. La Ъltima Batalla 04:50 
+5. Ixquik 05:10
+6. Conquista 04:34
+7. Balam 05:47 
+
 
 ## Отношения с другими группами
 
