@@ -462,10 +462,10 @@ Dave Lombardo - Drums
 
 ## Отношения с другими группами
 
-C группой "Grip Inc." Dave Lombardo перешел в Grip, Inc
-C группой "Testament" Paul Bostaph (drums)
-C группой "Exodus" Paul Bostaph (drums)
-C группой "Forbidden" Paul Bostaph (drums)
+* C группой "Grip Inc." Dave Lombardo перешел в Grip, Inc
+* C группой "Testament" Paul Bostaph (drums)
+* C группой "Exodus" Paul Bostaph (drums)
+* C группой "Forbidden" Paul Bostaph (drums)
 
 ## Обсуждения
 
