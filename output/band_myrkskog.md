@@ -23,8 +23,8 @@
 
 ## Отношения с другими группами
 
-C группой "Zyklon" Destructhor
-C группой "Zyklon" Secthodamon
+* C группой "Zyklon" Destructhor
+* C группой "Zyklon" Secthodamon
 
 ## Обсуждения
 

@@ -30,10 +30,10 @@ The Period  11/92 - 7/93
 
 ## Отношения с другими группами
 
-C группой "Necrophagia" Mirai Kawashima
-C группой "Gorelord" Mirai Kawashima
-C группой "Sigh" Mirai Kawashima
-C группой "Meads Of Asphodel, The" Mirai Kawashima
+* C группой "Necrophagia" Mirai Kawashima
+* C группой "Gorelord" Mirai Kawashima
+* C группой "Sigh" Mirai Kawashima
+* C группой "Meads Of Asphodel, The" Mirai Kawashima
 
 ## Обсуждения
 

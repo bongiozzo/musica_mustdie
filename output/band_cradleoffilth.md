@@ -553,17 +553,17 @@ Recorded at Grindstone Studios in Suffolk, UK.
 
 ## Отношения с другими группами
 
-C группой "Theatres des Vampires" Gian Pyras
-C группой "Benediction" Nick Barker (drums)
-C группой "Dimmu Borgir" Nick Barker (drums)
-C группой "Lock Up" Nick Barker (drums)
-C группой "Brujeria" Nick Barker (drums)
-C группой "Therion" Sarah Jezebel Deva
-C группой "Mortiis" Sarah Jezebel Deva
-C группой "Angtoria" Sarah Jezebel Deva
-C группой "Sarah Jezebel Deva" Sarah Jezebel Deva
-C группой "My Dying Bride" Martin Powell
-C группой "Anathema" Martin Powell
+* C группой "Theatres des Vampires" Gian Pyras
+* C группой "Benediction" Nick Barker (drums)
+* C группой "Dimmu Borgir" Nick Barker (drums)
+* C группой "Lock Up" Nick Barker (drums)
+* C группой "Brujeria" Nick Barker (drums)
+* C группой "Therion" Sarah Jezebel Deva
+* C группой "Mortiis" Sarah Jezebel Deva
+* C группой "Angtoria" Sarah Jezebel Deva
+* C группой "Sarah Jezebel Deva" Sarah Jezebel Deva
+* C группой "My Dying Bride" Martin Powell
+* C группой "Anathema" Martin Powell
 
 ## Обсуждения
 

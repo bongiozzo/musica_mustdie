@@ -45,9 +45,9 @@ Henry Ranta: Drums
 
 ## Отношения с другими группами
 
-C группой "Soilwork" Henry Ranta
-C группой "Darkane" Klas Ideberg
-C группой "Terror 2000" Klas Ideberg
+* C группой "Soilwork" Henry Ranta
+* C группой "Darkane" Klas Ideberg
+* C группой "Terror 2000" Klas Ideberg
 
 ## Обсуждения
 

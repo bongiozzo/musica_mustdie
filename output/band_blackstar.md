@@ -28,8 +28,8 @@ All lyrics are aimed on you
 
 ## Отношения с другими группами
 
-C группой "Carcass" Carlo Regadas (guitar)
-C группой "Monstrance" Carlo Regadas (guitar)
+* C группой "Carcass" Carlo Regadas (guitar)
+* C группой "Monstrance" Carlo Regadas (guitar)
 
 ## Обсуждения
 

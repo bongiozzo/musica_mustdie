@@ -67,11 +67,11 @@ Steven Jacobs - Drums
 
 ## Отношения с другими группами
 
-C группой "Vio-Lence" guitarist Robb Flynn
-C группой "Manmadegod" guitarist Craig Locicero
-C группой "Slayer" Paul Bostaph (drums)
-C группой "Testament" Paul Bostaph (drums)
-C группой "Exodus" Paul Bostaph (drums)
+* C группой "Vio-Lence" guitarist Robb Flynn
+* C группой "Manmadegod" guitarist Craig Locicero
+* C группой "Slayer" Paul Bostaph (drums)
+* C группой "Testament" Paul Bostaph (drums)
+* C группой "Exodus" Paul Bostaph (drums)
 
 ## Обсуждения
 

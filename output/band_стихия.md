@@ -11,7 +11,7 @@ progressive rock from Irkutsk, Russia
 
 ## Отношения с другими группами
 
-C группой "Extrovert" EXTROVERT (ex-Стихия)
+* C группой "Extrovert" EXTROVERT (ex-Стихия)
 
 ## Обсуждения
 

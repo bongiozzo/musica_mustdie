@@ -92,8 +92,8 @@ GRIFFIN MUSIC MC Release:
 
 ## Отношения с другими группами
 
-C группой "Christ Agony" Reyash (bass/vocal)
-C группой "Supreme Lord" Reyash (bass/vocal)
+* C группой "Christ Agony" Reyash (bass/vocal)
+* C группой "Supreme Lord" Reyash (bass/vocal)
 
 ## Обсуждения
 

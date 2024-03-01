@@ -65,7 +65,7 @@ Recorded at Music Maffian,Varberg 1993
 
 ## Отношения с другими группами
 
-C группой "The End (Sweden)" Matti Almsenius, Daniel Erlandsson, Tobias Gustafsson
+* C группой "The End (Sweden)" Matti Almsenius, Daniel Erlandsson, Tobias Gustafsson
 
 ## Обсуждения
 

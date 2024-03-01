@@ -29,7 +29,7 @@ Robert Lundin - drums
 
 ## Отношения с другими группами
 
-C группой "Dark Funeral" 
+* C группой "Dark Funeral" 
 
 ## Обсуждения
 

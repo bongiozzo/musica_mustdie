@@ -59,7 +59,7 @@ CD2:
 
 ## Отношения с другими группами
 
-C группой "Tool" Maynard James Keenan (vocal)
+* C группой "Tool" Maynard James Keenan (vocal)
 
 ## Обсуждения
 

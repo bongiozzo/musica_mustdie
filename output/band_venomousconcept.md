@@ -15,8 +15,8 @@
 
 ## Отношения с другими группами
 
-C группой "Brutal Truth" Danny Lilker, Kevin Sharp
-C группой "Napalm Death" Danny Herrera, Shane Embury
+* C группой "Brutal Truth" Danny Lilker, Kevin Sharp
+* C группой "Napalm Death" Danny Herrera, Shane Embury
 
 ## Обсуждения
 

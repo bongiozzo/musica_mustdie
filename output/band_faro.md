@@ -21,15 +21,15 @@ AOR/Melodic Hard rock
 
 ## Отношения с другими группами
 
-C группой "Avalon" Chity Somapala (vocal)
-C группой "Firewind" Chity Somapala (vocal)
-C группой "Powerworld" Chity Somapala (vocal)
-C группой "Moonlight Agony" Chity Somapala (vocal)
-C группой "Domain" Chity Somapala (vocal)
-C группой "Power Quest" Chity Somapala (vocal)
-C группой "Mind's Eye" Daniel Flores
-C группой "Tears of Anger" Daniel Flores
-C группой "Hubi Meisel" Daniel Flores
+* C группой "Avalon" Chity Somapala (vocal)
+* C группой "Firewind" Chity Somapala (vocal)
+* C группой "Powerworld" Chity Somapala (vocal)
+* C группой "Moonlight Agony" Chity Somapala (vocal)
+* C группой "Domain" Chity Somapala (vocal)
+* C группой "Power Quest" Chity Somapala (vocal)
+* C группой "Mind's Eye" Daniel Flores
+* C группой "Tears of Anger" Daniel Flores
+* C группой "Hubi Meisel" Daniel Flores
 
 ## Обсуждения
 

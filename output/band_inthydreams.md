@@ -43,10 +43,10 @@ Melodic death metal
 
 ## Отношения с другими группами
 
-C группой "Carnal Forge" Stefan Westerberg
-C группой "Asperity" Stefan Westerberg
-C группой "Carnal Forge" Petri Kuusisto
-C группой "Asperity" Petri Kuusisto
+* C группой "Carnal Forge" Stefan Westerberg
+* C группой "Asperity" Stefan Westerberg
+* C группой "Carnal Forge" Petri Kuusisto
+* C группой "Asperity" Petri Kuusisto
 
 ## Обсуждения
 

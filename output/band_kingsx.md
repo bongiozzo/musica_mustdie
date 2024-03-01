@@ -140,7 +140,7 @@
 
 ## Отношения с другими группами
 
-C группой "The Jelly Jam" guitarist Ty Tabor
+* C группой "The Jelly Jam" guitarist Ty Tabor
 
 ## Обсуждения
 

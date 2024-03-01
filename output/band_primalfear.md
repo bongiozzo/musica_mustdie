@@ -299,12 +299,12 @@ Japanese edition includes one additional bonus track:
 
 ## Отношения с другими группами
 
-C группой "Gamma Ray" Ralf Scheepers
-C группой "Annihilator" Randy Black (drums)
-C группой "Rebellion" Randy Black (drums)
-C группой "Sinner" Mat Sinner
-C группой "Cans" Mat Sinner
-C группой "My Darkest Hate" Klaus Sperling (drums)
+* C группой "Gamma Ray" Ralf Scheepers
+* C группой "Annihilator" Randy Black (drums)
+* C группой "Rebellion" Randy Black (drums)
+* C группой "Sinner" Mat Sinner
+* C группой "Cans" Mat Sinner
+* C группой "My Darkest Hate" Klaus Sperling (drums)
 
 ## Обсуждения
 

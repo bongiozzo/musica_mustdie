@@ -54,11 +54,11 @@ Black-death-metal from Alma-Ata
 
 ## Отношения с другими группами
 
-C группой "MUSICA (compilation)" Requiem
-C группой "UNDERGROUND KZ (compilation)" 
-C группой "Voodoo" Новый проект музыкантов REQUIEM
-C группой "Inhumanity" 
-C группой "Lead Weight" Басс гитарист
+* C группой "MUSICA (compilation)" Requiem
+* C группой "UNDERGROUND KZ (compilation)" 
+* C группой "Voodoo" Новый проект музыкантов REQUIEM
+* C группой "Inhumanity" 
+* C группой "Lead Weight" Басс гитарист
 
 ## Обсуждения
 

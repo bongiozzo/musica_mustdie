@@ -7,7 +7,7 @@ Melodic death from St.Peterburg (Rus)
 
 ## Отношения с другими группами
 
-C группой "Exhumation (Russia)" 
+* C группой "Exhumation (Russia)" 
 
 ## Обсуждения
 

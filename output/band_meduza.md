@@ -57,7 +57,7 @@ All drums played by Tom Bjorn of MEMORY GARDEN
 
 ## Отношения с другими группами
 
-C группой "Majestic" Apollo Papathanasio (vocal)
+* C группой "Majestic" Apollo Papathanasio (vocal)
 
 ## Обсуждения
 

@@ -7,7 +7,7 @@
 
 ## Отношения с другими группами
 
-C группой "Manowar" Carl Canedy (drums)
+* C группой "Manowar" Carl Canedy (drums)
 
 ## Обсуждения
 

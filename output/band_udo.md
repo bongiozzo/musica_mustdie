@@ -439,10 +439,10 @@ CD2:
 
 ## Отношения с другими группами
 
-C группой "Accept" Udo Dirkschneider
-C группой "Helloween" Udo Dirkschneider
-C группой "Accept" Stefan Schwarzmann
-C группой "Krokus" Stefan Schwarzmann
+* C группой "Accept" Udo Dirkschneider
+* C группой "Helloween" Udo Dirkschneider
+* C группой "Accept" Stefan Schwarzmann
+* C группой "Krokus" Stefan Schwarzmann
 
 ## Обсуждения
 

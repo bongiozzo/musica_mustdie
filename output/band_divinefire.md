@@ -124,14 +124,14 @@ Markus Sigfridsson
 
 ## Отношения с другими группами
 
-C группой "Narnia" Christian Rivel (vocal)
-C группой "Narnia" Christian Rivel (vocal)
-C группой "Audiovision" Christian Rivel (vocal)
-C группой "Miseration" Jani Stefanovic
-C группой "Sins of Omission" Jani Stefanovic
-C группой "Crimson Moonlight" Jani Stefanovic
-C группой "Mehida" Jani Stefanovic
-C группой "Solution .45" Jani Stefanovic
+* C группой "Narnia" Christian Rivel (vocal)
+* C группой "Narnia" Christian Rivel (vocal)
+* C группой "Audiovision" Christian Rivel (vocal)
+* C группой "Miseration" Jani Stefanovic
+* C группой "Sins of Omission" Jani Stefanovic
+* C группой "Crimson Moonlight" Jani Stefanovic
+* C группой "Mehida" Jani Stefanovic
+* C группой "Solution .45" Jani Stefanovic
 
 ## Обсуждения
 

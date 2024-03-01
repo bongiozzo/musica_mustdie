@@ -132,8 +132,8 @@ Deathchain
 
 ## Отношения с другими группами
 
-C группой "Ancient Drive" Tommi Virranta (vocal)
-C группой "Survivors Zero" Tommi Virranta (vocal)
+* C группой "Ancient Drive" Tommi Virranta (vocal)
+* C группой "Survivors Zero" Tommi Virranta (vocal)
 
 ## Обсуждения
 

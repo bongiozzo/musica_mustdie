@@ -46,7 +46,7 @@ Cover & Layout by Mattias Norйn. www.progart.com
 
 ## Отношения с другими группами
 
-C группой "Aeon" Daniel Dlimi (guitar), Markus Edvardsson (bass), Nils Fjellstrom (drums), Arttu Malkki (drums)
+* C группой "Aeon" Daniel Dlimi (guitar), Markus Edvardsson (bass), Nils Fjellstrom (drums), Arttu Malkki (drums)
 
 ## Обсуждения
 

@@ -21,7 +21,7 @@ ex-FORGIVE-ME-NOT
 
 ## Отношения с другими группами
 
-C группой "Forgive-Me-Not" Mikhail Guz (guitar)
+* C группой "Forgive-Me-Not" Mikhail Guz (guitar)
 
 ## Обсуждения
 

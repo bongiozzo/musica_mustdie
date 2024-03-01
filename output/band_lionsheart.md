@@ -23,7 +23,7 @@ SCREAMING/NIGHTMARE/ALL I GOT/I NEED LOVE/HOW CAN I TELL YOU?/I'M ALIVE/DON'T WA
 
 ## Отношения с другими группами
 
-C группой "Grimmett, Steve" 
+* C группой "Grimmett, Steve" 
 
 ## Обсуждения
 

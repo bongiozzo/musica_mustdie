@@ -56,7 +56,7 @@
 
 ## Отношения с другими группами
 
-C группой "Deferum Sacrum" Athamas, Astaroth
+* C группой "Deferum Sacrum" Athamas, Astaroth
 
 ## Обсуждения
 

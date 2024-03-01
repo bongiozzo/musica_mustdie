@@ -87,14 +87,14 @@ Mr. Hellhammer
 
 ## Отношения с другими группами
 
-C группой "Dimmu Borgir" Nagash
-C группой "Kovenant" Nagash
-C группой "Carpe Tenebrum" Nagash
-C группой "Mayhem" HellHammer
-C группой "Arcturus" HellHammer
-C группой "Kovenant" HellHammer
-C группой "Thorns" HellHammer
-C группой "Winds" HellHammer
+* C группой "Dimmu Borgir" Nagash
+* C группой "Kovenant" Nagash
+* C группой "Carpe Tenebrum" Nagash
+* C группой "Mayhem" HellHammer
+* C группой "Arcturus" HellHammer
+* C группой "Kovenant" HellHammer
+* C группой "Thorns" HellHammer
+* C группой "Winds" HellHammer
 
 ## Обсуждения
 

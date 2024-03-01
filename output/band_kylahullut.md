@@ -14,11 +14,11 @@ Children Of Bodom, Sinergy members
 
 ## Отношения с другими группами
 
-C группой "Impaled Nazarene" Alexi Laiho
-C группой "Children of Bodom" Alexi Laiho
-C группой "Sinergy" Alexi Laiho
-C группой "Sinergy" Tonmi Lillman
-C группой "To/Die/For" Tonmi Lillman
+* C группой "Impaled Nazarene" Alexi Laiho
+* C группой "Children of Bodom" Alexi Laiho
+* C группой "Sinergy" Alexi Laiho
+* C группой "Sinergy" Tonmi Lillman
+* C группой "To/Die/For" Tonmi Lillman
 
 ## Обсуждения
 

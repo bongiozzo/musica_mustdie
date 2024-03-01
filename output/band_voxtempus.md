@@ -11,7 +11,7 @@ progressive rock band
 
 ## Отношения с другими группами
 
-C группой "Takara" Eric Ragno
+* C группой "Takara" Eric Ragno
 
 ## Обсуждения
 

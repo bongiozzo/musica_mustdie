@@ -83,8 +83,8 @@ Reaper - Drums Of Doom
 
 ## Отношения с другими группами
 
-C группой "Ancient Wisdom" M. Norman
-C группой "Havayoth" M. Norman
+* C группой "Ancient Wisdom" M. Norman
+* C группой "Havayoth" M. Norman
 
 ## Обсуждения
 

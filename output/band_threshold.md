@@ -254,11 +254,11 @@ CD 2:
 
 ## Отношения с другими группами
 
-C группой "Powerworld" Andrew "Mac" McDermott (vocal)
-C группой "Galloglass" Andrew "Mac" McDermott (vocal)
-C группой "Wilson, Damian" Damien Wilson (vocal)
-C группой "Ayreon" Damien Wilson (vocal)
-C группой "Star One" Damien Wilson (vocal)
+* C группой "Powerworld" Andrew "Mac" McDermott (vocal)
+* C группой "Galloglass" Andrew "Mac" McDermott (vocal)
+* C группой "Wilson, Damian" Damien Wilson (vocal)
+* C группой "Ayreon" Damien Wilson (vocal)
+* C группой "Star One" Damien Wilson (vocal)
 
 ## Обсуждения
 

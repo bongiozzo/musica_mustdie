@@ -204,8 +204,8 @@ Released November 19, 1982
 
 ## Отношения с другими группами
 
-C группой "Plant, Robert" Vocal
-C группой "Page, Jimmy" Guitar Player
+* C группой "Plant, Robert" Vocal
+* C группой "Page, Jimmy" Guitar Player
 
 ## Обсуждения
 

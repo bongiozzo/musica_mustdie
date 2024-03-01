@@ -72,9 +72,9 @@ and a bonus CD featuring the following songs:
 
 ## Отношения с другими группами
 
-C группой "Angra" 
-C группой "Shaman" 
-C группой "Symfonia" 
+* C группой "Angra" 
+* C группой "Shaman" 
+* C группой "Symfonia" 
 
 ## Обсуждения
 

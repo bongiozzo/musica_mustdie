@@ -245,10 +245,10 @@ Morten Veland - Vocals (harsh, clean), Guitars, Bass, Drums, Keyboards, Programm
 
 ## Отношения с другими группами
 
-C группой "Tristania" Morten Veland (guitar)
-C группой "Elusive" Morten Veland (guitar)
-C группой "Mortemia" Morten Veland
-C группой "Tristania" Morten Veland
+* C группой "Tristania" Morten Veland (guitar)
+* C группой "Elusive" Morten Veland (guitar)
+* C группой "Mortemia" Morten Veland
+* C группой "Tristania" Morten Veland
 
 ## Обсуждения
 

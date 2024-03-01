@@ -145,18 +145,18 @@ Engineered, mixed and mastered by Mollarn and Arcturus.
 
 ## Отношения с другими группами
 
-C группой "Mayhem" HellHammer
-C группой "Troll" HellHammer
-C группой "Kovenant" HellHammer
-C группой "Thorns" HellHammer
-C группой "Winds" HellHammer
-C группой "Ulver" Sverd (keys)
-C группой "Kovenant" Sverd (keys)
-C группой "Winds" Carl August Tidemann
-C группой "Dimmu Borgir" ICS Vortex (bass, vocals)
-C группой "Artisan" ICS Vortex (bass, vocals)
-C группой "ICS Vortex" ICS Vortex (bass, vocals)
-C группой "Borknagar" ICS Vortex (bass, vocals)
+* C группой "Mayhem" HellHammer
+* C группой "Troll" HellHammer
+* C группой "Kovenant" HellHammer
+* C группой "Thorns" HellHammer
+* C группой "Winds" HellHammer
+* C группой "Ulver" Sverd (keys)
+* C группой "Kovenant" Sverd (keys)
+* C группой "Winds" Carl August Tidemann
+* C группой "Dimmu Borgir" ICS Vortex (bass, vocals)
+* C группой "Artisan" ICS Vortex (bass, vocals)
+* C группой "ICS Vortex" ICS Vortex (bass, vocals)
+* C группой "Borknagar" ICS Vortex (bass, vocals)
 
 ## Обсуждения
 

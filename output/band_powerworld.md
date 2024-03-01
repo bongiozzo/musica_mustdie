@@ -38,20 +38,20 @@
 
 ## Отношения с другими группами
 
-C группой "Avalon" Chity Somapala (vocal)
-C группой "Faro" Chity Somapala (vocal)
-C группой "Firewind" Chity Somapala (vocal)
-C группой "Moonlight Agony" Chity Somapala (vocal)
-C группой "Domain" Chity Somapala (vocal)
-C группой "Power Quest" Chity Somapala (vocal)
-C группой "Threshold" Andrew "Mac" McDermott (vocal)
-C группой "Galloglass" Andrew "Mac" McDermott (vocal)
-C группой "Evidence One" Barish Kepic (guitars)
-C группой "Jaded Heart" Barish Kepic (guitars)
-C группой "Freedom Call" Ilker Ersin (bass)
-C группой "Freedom Call" Nils Neumann (keyboards)
-C группой "Gamma Ray" Nils Neumann (keyboards)
-C группой "Victory" Achim Keller (drums)
+* C группой "Avalon" Chity Somapala (vocal)
+* C группой "Faro" Chity Somapala (vocal)
+* C группой "Firewind" Chity Somapala (vocal)
+* C группой "Moonlight Agony" Chity Somapala (vocal)
+* C группой "Domain" Chity Somapala (vocal)
+* C группой "Power Quest" Chity Somapala (vocal)
+* C группой "Threshold" Andrew "Mac" McDermott (vocal)
+* C группой "Galloglass" Andrew "Mac" McDermott (vocal)
+* C группой "Evidence One" Barish Kepic (guitars)
+* C группой "Jaded Heart" Barish Kepic (guitars)
+* C группой "Freedom Call" Ilker Ersin (bass)
+* C группой "Freedom Call" Nils Neumann (keyboards)
+* C группой "Gamma Ray" Nils Neumann (keyboards)
+* C группой "Victory" Achim Keller (drums)
 
 ## Обсуждения
 

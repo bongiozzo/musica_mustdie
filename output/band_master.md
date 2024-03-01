@@ -129,9 +129,9 @@ November 1992.
 
 ## Отношения с другими группами
 
-C группой "Cynic" Paul Masvidal (guitar, vocal)
-C группой "Gordian Knot" Paul Masvidal (guitar, vocal)
-C группой "Death" Paul Masvidal (guitar, vocal)
+* C группой "Cynic" Paul Masvidal (guitar, vocal)
+* C группой "Gordian Knot" Paul Masvidal (guitar, vocal)
+* C группой "Death" Paul Masvidal (guitar, vocal)
 
 ## Обсуждения
 

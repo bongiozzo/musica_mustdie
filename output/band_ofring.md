@@ -18,7 +18,7 @@ Released: May 1st, 1999
 
 ## Отношения с другими группами
 
-C группой "Illnath" Simon Thorsback-Hansen (vocals)
+* C группой "Illnath" Simon Thorsback-Hansen (vocals)
 
 ## Обсуждения
 

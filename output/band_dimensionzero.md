@@ -108,8 +108,8 @@ Niclas Andersson - Session Bass
 
 ## Отношения с другими группами
 
-C группой "In Flames" Jesper Stormblad
-C группой "HammerFall" Jesper Stormblad
+* C группой "In Flames" Jesper Stormblad
+* C группой "HammerFall" Jesper Stormblad
 
 ## Обсуждения
 

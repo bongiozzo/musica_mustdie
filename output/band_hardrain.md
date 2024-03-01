@@ -15,7 +15,7 @@ MAGNUM members
 
 ## Отношения с другими группами
 
-C группой "Bob Catley" Bob Catley
+* C группой "Bob Catley" Bob Catley
 
 ## Обсуждения
 

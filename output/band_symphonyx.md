@@ -230,10 +230,10 @@ Jason Rullo Drums
 
 ## Отношения с другими группами
 
-C группой "Romeo, Michael" Guitar player
-C группой "Kotipelto" Guitar player
-C группой "Allen, Russell" singer
-C группой "Waken Eyes" Mike Lepond (bass)
+* C группой "Romeo, Michael" Guitar player
+* C группой "Kotipelto" Guitar player
+* C группой "Allen, Russell" singer
+* C группой "Waken Eyes" Mike Lepond (bass)
 
 ## Обсуждения
 

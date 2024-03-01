@@ -95,13 +95,13 @@
 
 ## Отношения с другими группами
 
-C группой "Ashen Light" Alex
-C группой "Crystal Abyss" Alex
-C группой "Stigmatic Chorus" Alex
-C группой "Divizion S-187" Alex
-C группой "Stigmatic Chorus" Belf
-C группой "Путь Солнца" Belf
-C группой "Ashen Light" Belf
+* C группой "Ashen Light" Alex
+* C группой "Crystal Abyss" Alex
+* C группой "Stigmatic Chorus" Alex
+* C группой "Divizion S-187" Alex
+* C группой "Stigmatic Chorus" Belf
+* C группой "Путь Солнца" Belf
+* C группой "Ashen Light" Belf
 
 ## Обсуждения
 

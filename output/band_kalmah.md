@@ -125,8 +125,8 @@ Band photography: Mika Vuoto
 
 ## Отношения с другими группами
 
-C группой "Eternal Tears of Sorrow" Eternal Tears Of Sorrow
-C группой "Poisonblack" Marco Sneck (keyboard)
+* C группой "Eternal Tears of Sorrow" Eternal Tears Of Sorrow
+* C группой "Poisonblack" Marco Sneck (keyboard)
 
 ## Обсуждения
 

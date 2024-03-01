@@ -204,22 +204,22 @@ Mixed and mastered at Fascination Street Studios in Orebro, Sweden.
 
 ## Отношения с другими группами
 
-C группой "Vintersorg" A. Hedlund
-C группой "Otyg" A. Hedlund
-C группой "Havayoth" A. Hedlund
-C группой "Fission" A. Hedlund
-C группой "Vintersorg" Asgeir Mickelson (drums)
-C группой "Spiral Architect" Asgeir Mickelson (drums)
-C группой "ICS Vortex" Asgeir Mickelson (drums)
-C группой "Artisan" Asgeir Mickelson (drums)
-C группой "Sarke" Asgeir Mickelson (drums)
-C группой "Testament" Asgeir Mickelson (drums)
-C группой "Dimmu Borgir" ICS Vortex (bass, vocals)
-C группой "Artisan" ICS Vortex (bass, vocals)
-C группой "ICS Vortex" ICS Vortex (bass, vocals)
-C группой "Arcturus" ICS Vortex (bass, vocals)
-C группой "ICS Vortex" Jens F. Ryland (guitar)
-C группой "Artisan" Jens F. Ryland (guitar)
+* C группой "Vintersorg" A. Hedlund
+* C группой "Otyg" A. Hedlund
+* C группой "Havayoth" A. Hedlund
+* C группой "Fission" A. Hedlund
+* C группой "Vintersorg" Asgeir Mickelson (drums)
+* C группой "Spiral Architect" Asgeir Mickelson (drums)
+* C группой "ICS Vortex" Asgeir Mickelson (drums)
+* C группой "Artisan" Asgeir Mickelson (drums)
+* C группой "Sarke" Asgeir Mickelson (drums)
+* C группой "Testament" Asgeir Mickelson (drums)
+* C группой "Dimmu Borgir" ICS Vortex (bass, vocals)
+* C группой "Artisan" ICS Vortex (bass, vocals)
+* C группой "ICS Vortex" ICS Vortex (bass, vocals)
+* C группой "Arcturus" ICS Vortex (bass, vocals)
+* C группой "ICS Vortex" Jens F. Ryland (guitar)
+* C группой "Artisan" Jens F. Ryland (guitar)
 
 ## Обсуждения
 

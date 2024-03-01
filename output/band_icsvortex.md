@@ -45,18 +45,18 @@ Written and performed by ICS Vortex.
 
 ## Отношения с другими группами
 
-C группой "Borknagar" Asgeir Mickelson (drums)
-C группой "Vintersorg" Asgeir Mickelson (drums)
-C группой "Spiral Architect" Asgeir Mickelson (drums)
-C группой "Artisan" Asgeir Mickelson (drums)
-C группой "Sarke" Asgeir Mickelson (drums)
-C группой "Testament" Asgeir Mickelson (drums)
-C группой "Dimmu Borgir" ICS Vortex (bass, vocals)
-C группой "Artisan" ICS Vortex (bass, vocals)
-C группой "Borknagar" ICS Vortex (bass, vocals)
-C группой "Arcturus" ICS Vortex (bass, vocals)
-C группой "Borknagar" Jens F. Ryland (guitar)
-C группой "Artisan" Jens F. Ryland (guitar)
+* C группой "Borknagar" Asgeir Mickelson (drums)
+* C группой "Vintersorg" Asgeir Mickelson (drums)
+* C группой "Spiral Architect" Asgeir Mickelson (drums)
+* C группой "Artisan" Asgeir Mickelson (drums)
+* C группой "Sarke" Asgeir Mickelson (drums)
+* C группой "Testament" Asgeir Mickelson (drums)
+* C группой "Dimmu Borgir" ICS Vortex (bass, vocals)
+* C группой "Artisan" ICS Vortex (bass, vocals)
+* C группой "Borknagar" ICS Vortex (bass, vocals)
+* C группой "Arcturus" ICS Vortex (bass, vocals)
+* C группой "Borknagar" Jens F. Ryland (guitar)
+* C группой "Artisan" Jens F. Ryland (guitar)
 
 ## Обсуждения
 

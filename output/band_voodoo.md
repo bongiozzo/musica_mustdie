@@ -7,8 +7,8 @@
 
 ## Отношения с другими группами
 
-C группой "Requiem (Kazakhstan)" Новый проект музыкантов REQUIEM
-C группой "Inhumanity" 
+* C группой "Requiem (Kazakhstan)" Новый проект музыкантов REQUIEM
+* C группой "Inhumanity" 
 
 ## Обсуждения
 

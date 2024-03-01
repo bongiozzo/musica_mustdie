@@ -49,10 +49,10 @@ Wolfenhirt (Сварга) - Вокал
 
 ## Отношения с другими группами
 
-C группой "Butterfly Temple" Lesiar (vocal)
-C группой "Невидь" Lesiar (vocal)
-C группой "Kartikeya" Arsafes (guitar)
-C группой "Сварга" 
+* C группой "Butterfly Temple" Lesiar (vocal)
+* C группой "Невидь" Lesiar (vocal)
+* C группой "Kartikeya" Arsafes (guitar)
+* C группой "Сварга" 
 
 ## Обсуждения
 

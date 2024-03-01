@@ -120,8 +120,8 @@ All 3D Images was created by ANDREW LOBANOV.
 
 ## Отношения с другими группами
 
-C группой "Catharsis" 
-C группой "Олег Мишин" 
+* C группой "Catharsis" 
+* C группой "Олег Мишин" 
 
 ## Обсуждения
 

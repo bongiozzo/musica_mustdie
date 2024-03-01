@@ -51,7 +51,7 @@ Sakari Lempinen - guitars
 
 ## Отношения с другими группами
 
-C группой "Survivors Zero" Jani Luttinen (lead guitar)
+* C группой "Survivors Zero" Jani Luttinen (lead guitar)
 
 ## Обсуждения
 

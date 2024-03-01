@@ -98,14 +98,14 @@ Produced at Fredrik Nordstrцm's Studio Fredman, Sweden.
 
 ## Отношения с другими группами
 
-C группой "Nightrage" Gus G. (guitar)
-C группой "Firewind" Gus G. (guitar)
-C группой "Memento Mori" Snowy Shaw (drums)
-C группой "King Diamond" Snowy Shaw (drums)
-C группой "Mercyful Fate" Snowy Shaw (drums)
-C группой "Notre Dame" Snowy Shaw (drums)
-C группой "Denner / Shermann" Snowy Shaw (drums)
-C группой "Therion" Snowy Shaw (drums)
+* C группой "Nightrage" Gus G. (guitar)
+* C группой "Firewind" Gus G. (guitar)
+* C группой "Memento Mori" Snowy Shaw (drums)
+* C группой "King Diamond" Snowy Shaw (drums)
+* C группой "Mercyful Fate" Snowy Shaw (drums)
+* C группой "Notre Dame" Snowy Shaw (drums)
+* C группой "Denner / Shermann" Snowy Shaw (drums)
+* C группой "Therion" Snowy Shaw (drums)
 
 ## Обсуждения
 

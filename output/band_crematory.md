@@ -388,9 +388,9 @@ Disc 2
 
 ## Отношения с другими группами
 
-C группой "Sculpture" Lotte
-C группой "Century" 
-C группой "Ab:norm" Felix
+* C группой "Sculpture" Lotte
+* C группой "Century" 
+* C группой "Ab:norm" Felix
 
 ## Обсуждения
 

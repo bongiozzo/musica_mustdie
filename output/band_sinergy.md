@@ -62,16 +62,16 @@ Make-up by Sanna Haapoja
 
 ## Отношения с другими группами
 
-C группой "Dimmu Borgir" Kimberly Goss
-C группой "Impaled Nazarene" Alexi Laiho
-C группой "Children of Bodom" Alexi Laiho
-C группой "Kylahullut" Alexi Laiho
-C группой "Nightwish" Marco Hietala
-C группой "Tarot" Marco Hietala
-C группой "To/Die/For" Tonmi Lillman
-C группой "Kylahullut" Tonmi Lillman
-C группой "Saint Deamon" Ronny Milianowicz (Drums)
-C группой "Dionysus" Ronny Milianowicz (Drums)
+* C группой "Dimmu Borgir" Kimberly Goss
+* C группой "Impaled Nazarene" Alexi Laiho
+* C группой "Children of Bodom" Alexi Laiho
+* C группой "Kylahullut" Alexi Laiho
+* C группой "Nightwish" Marco Hietala
+* C группой "Tarot" Marco Hietala
+* C группой "To/Die/For" Tonmi Lillman
+* C группой "Kylahullut" Tonmi Lillman
+* C группой "Saint Deamon" Ronny Milianowicz (Drums)
+* C группой "Dionysus" Ronny Milianowicz (Drums)
 
 ## Обсуждения
 

@@ -124,9 +124,9 @@ Kevin Dubrow – бэк-вокал
 
 ## Отношения с другими группами
 
-C группой "Black Sabbath" vocalist Glenn Hughes
-C группой "Deep Purple" vocalist Glenn Hughes
-C группой "Hughes Turner Project" vocalist Glenn Hughes
+* C группой "Black Sabbath" vocalist Glenn Hughes
+* C группой "Deep Purple" vocalist Glenn Hughes
+* C группой "Hughes Turner Project" vocalist Glenn Hughes
 
 ## Обсуждения
 

@@ -20,7 +20,7 @@
 
 ## Отношения с другими группами
 
-C группой "Infamy" Alex (vocals)
+* C группой "Infamy" Alex (vocals)
 
 ## Обсуждения
 

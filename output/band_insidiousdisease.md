@@ -30,13 +30,13 @@ Frank "Killjoy" Pucci of Necrophagia co-wrote and performed guest vocals on "Rit
 
 ## Отношения с другими группами
 
-C группой "Morgoth" Marc "Groo" Grewe
-C группой "Dimmu Borgir" Sven Atle Kopperud (a.k.a. Silenoz)
-C группой "Napalm Death" Shane Embury
-C группой "Dimmu Borgir" Tony Laureano 
-C группой "Nile" Tony Laureano 
-C группой "Angelcorpse" Tony Laureano 
-C группой "Old Man's Child" Jon Шyvind Andersen (a.k.a. Jardar) 
+* C группой "Morgoth" Marc "Groo" Grewe
+* C группой "Dimmu Borgir" Sven Atle Kopperud (a.k.a. Silenoz)
+* C группой "Napalm Death" Shane Embury
+* C группой "Dimmu Borgir" Tony Laureano 
+* C группой "Nile" Tony Laureano 
+* C группой "Angelcorpse" Tony Laureano 
+* C группой "Old Man's Child" Jon Шyvind Andersen (a.k.a. Jardar) 
 
 ## Обсуждения
 

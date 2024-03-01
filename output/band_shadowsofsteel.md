@@ -157,7 +157,7 @@ Frank Andiver - Drums
 
 ## Отношения с другими группами
 
-C группой "Athlantis" 
+* C группой "Athlantis" 
 
 ## Обсуждения
 

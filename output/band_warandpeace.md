@@ -45,8 +45,8 @@ photos by paul taylor&ravinder bassi
 
 ## Отношения с другими группами
 
-C группой "Dio" Jeff Pilson
-C группой "Dokken" Jeff Pilson
+* C группой "Dio" Jeff Pilson
+* C группой "Dokken" Jeff Pilson
 
 ## Обсуждения
 

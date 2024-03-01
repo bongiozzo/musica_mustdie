@@ -86,9 +86,9 @@
 
 ## Отношения с другими группами
 
-C группой "Deep Purple" Deep Purple
-C группой "Morse, Steve" Dixie Dregs
-C группой "The Jelly Jam" drummer Rod Morgenstein
+* C группой "Deep Purple" Deep Purple
+* C группой "Morse, Steve" Dixie Dregs
+* C группой "The Jelly Jam" drummer Rod Morgenstein
 
 ## Обсуждения
 

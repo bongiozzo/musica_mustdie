@@ -530,30 +530,30 @@ Disc 2
 
 ## Отношения с другими группами
 
-C группой "Iron Savior" 
-C группой "Gamma Ray" Kai Hansen
-C группой "Iron Savior" Kai Hansen
-C группой "Unisonic" Kai Hansen
-C группой "Accept" Udo Dirkschneider
-C группой "U.D.O." Udo Dirkschneider
-C группой "Kiske, Michael" Michael Kiske
-C группой "Unisonic" Michael Kiske
-C группой "Kickhunter" Markus Grosskopf
-C группой "Deris, Andi" Andi Deris, vocalist
-C группой "Grapow, Roland" Roland Grapow
-C группой "Masterplan" Roland Grapow
-C группой "Michael Vescera Project" Roland Grapow
-C группой "Masterplan" Uli Kusch
-C группой "Beautiful Sin" Uli Kusch
-C группой "Symfonia" Uli Kusch
-C группой "Rawhead Rexx" Dani Loble
-C группой "Markus Grosskopf's Bassinvaders" 
-C группой "Outloud" Mark Cross (Drums)
-C группой "Metalium" Mark Cross (Drums)
-C группой "Firewind" Mark Cross (Drums)
-C группой "Kingdom Come" Mark Cross (Drums)
-C группой "At Vance" Mark Cross (Drums)
-C группой "Nightfall" Mark Cross (Drums)
+* C группой "Iron Savior" 
+* C группой "Gamma Ray" Kai Hansen
+* C группой "Iron Savior" Kai Hansen
+* C группой "Unisonic" Kai Hansen
+* C группой "Accept" Udo Dirkschneider
+* C группой "U.D.O." Udo Dirkschneider
+* C группой "Kiske, Michael" Michael Kiske
+* C группой "Unisonic" Michael Kiske
+* C группой "Kickhunter" Markus Grosskopf
+* C группой "Deris, Andi" Andi Deris, vocalist
+* C группой "Grapow, Roland" Roland Grapow
+* C группой "Masterplan" Roland Grapow
+* C группой "Michael Vescera Project" Roland Grapow
+* C группой "Masterplan" Uli Kusch
+* C группой "Beautiful Sin" Uli Kusch
+* C группой "Symfonia" Uli Kusch
+* C группой "Rawhead Rexx" Dani Loble
+* C группой "Markus Grosskopf's Bassinvaders" 
+* C группой "Outloud" Mark Cross (Drums)
+* C группой "Metalium" Mark Cross (Drums)
+* C группой "Firewind" Mark Cross (Drums)
+* C группой "Kingdom Come" Mark Cross (Drums)
+* C группой "At Vance" Mark Cross (Drums)
+* C группой "Nightfall" Mark Cross (Drums)
 
 ## Обсуждения
 

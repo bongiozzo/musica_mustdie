@@ -55,7 +55,7 @@ Scott Kelly
 
 ## Отношения с другими группами
 
-C группой "Neurosis" Dave Edwardson, Scott Kelly, Noah Landis, Steve Von Till
+* C группой "Neurosis" Dave Edwardson, Scott Kelly, Noah Landis, Steve Von Till
 
 ## Обсуждения
 

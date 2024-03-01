@@ -656,10 +656,10 @@ Disc 2
 
 ## Отношения с другими группами
 
-C группой "Almah" Casey Grillo (drums)
-C группой "Epica" Simone Simons (vocal)
-C группой "Mayan" Simone Simons (vocal)
-C группой "Sons Of Seasons" Simone Simons (vocal)
+* C группой "Almah" Casey Grillo (drums)
+* C группой "Epica" Simone Simons (vocal)
+* C группой "Mayan" Simone Simons (vocal)
+* C группой "Sons Of Seasons" Simone Simons (vocal)
 
 ## Обсуждения
 

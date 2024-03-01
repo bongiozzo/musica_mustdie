@@ -197,14 +197,14 @@ Christian Jungelbuth and Lars Ratz.
 
 ## Отношения с другими группами
 
-C группой "Savatage" Jack Frost
-C группой "Seven Witches" Jack Frost
-C группой "Helloween" Mark Cross (Drums)
-C группой "Outloud" Mark Cross (Drums)
-C группой "Firewind" Mark Cross (Drums)
-C группой "Kingdom Come" Mark Cross (Drums)
-C группой "At Vance" Mark Cross (Drums)
-C группой "Nightfall" Mark Cross (Drums)
+* C группой "Savatage" Jack Frost
+* C группой "Seven Witches" Jack Frost
+* C группой "Helloween" Mark Cross (Drums)
+* C группой "Outloud" Mark Cross (Drums)
+* C группой "Firewind" Mark Cross (Drums)
+* C группой "Kingdom Come" Mark Cross (Drums)
+* C группой "At Vance" Mark Cross (Drums)
+* C группой "Nightfall" Mark Cross (Drums)
 
 ## Обсуждения
 

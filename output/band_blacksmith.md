@@ -7,7 +7,7 @@
 
 ## Отношения с другими группами
 
-C группой "Dedication" Per Englund (vocal)
+* C группой "Dedication" Per Englund (vocal)
 
 ## Обсуждения
 

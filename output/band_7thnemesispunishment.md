@@ -11,7 +11,7 @@ Death Metal Split
 
 ## Отношения с другими группами
 
-C группой "7th Nemesis" 
+* C группой "7th Nemesis" 
 
 ## Обсуждения
 

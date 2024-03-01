@@ -15,9 +15,9 @@ Steve Smyth project
 
 ## Отношения с другими группами
 
-C группой "Testament" Steve Smyth (guitar)
-C группой "Nevermore" Steve Smyth (guitar)
-C группой "Dragonlord" Steve Smyth (guitar)
+* C группой "Testament" Steve Smyth (guitar)
+* C группой "Nevermore" Steve Smyth (guitar)
+* C группой "Dragonlord" Steve Smyth (guitar)
 
 ## Обсуждения
 

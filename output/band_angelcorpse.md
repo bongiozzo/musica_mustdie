@@ -62,9 +62,9 @@ Lord Of The Funeral Pyre
 
 ## Отношения с другими группами
 
-C группой "Insidious Disease" Tony Laureano 
-C группой "Dimmu Borgir" Tony Laureano 
-C группой "Nile" Tony Laureano 
+* C группой "Insidious Disease" Tony Laureano 
+* C группой "Dimmu Borgir" Tony Laureano 
+* C группой "Nile" Tony Laureano 
 
 ## Обсуждения
 

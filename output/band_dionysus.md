@@ -74,11 +74,11 @@ Ronny Milianowicz - drums
 
 ## Отношения с другими группами
 
-C группой "Rhapsody Of Fire" Luca Turilli
-C группой "Luca Turilli's Rhapsody" Luca Turilli
-C группой "Saint Deamon" Magnus "Nobby" Norberg (Bass)
-C группой "Saint Deamon" Ronny Milianowicz (Drums)
-C группой "Sinergy" Ronny Milianowicz (Drums)
+* C группой "Rhapsody Of Fire" Luca Turilli
+* C группой "Luca Turilli's Rhapsody" Luca Turilli
+* C группой "Saint Deamon" Magnus "Nobby" Norberg (Bass)
+* C группой "Saint Deamon" Ronny Milianowicz (Drums)
+* C группой "Sinergy" Ronny Milianowicz (Drums)
 
 ## Обсуждения
 

@@ -25,8 +25,8 @@
 
 ## Отношения с другими группами
 
-C группой "Running Wild" Rolf "Rock'n'Rolf" Kasparek (T. T. Poison)
-C группой "Giant X" Rolf "Rock'n'Rolf" Kasparek (T. T. Poison)
+* C группой "Running Wild" Rolf "Rock'n'Rolf" Kasparek (T. T. Poison)
+* C группой "Giant X" Rolf "Rock'n'Rolf" Kasparek (T. T. Poison)
 
 ## Обсуждения
 

@@ -33,12 +33,12 @@ July 1993.
 
 ## Отношения с другими группами
 
-C группой "Enslaved" Trym
-C группой "Emperor" Trym
-C группой "Old Man's Child" Trym
-C группой "Zyklon" Trym
-C группой "Shadow Season" Trym
-C группой "Hagalaz Runedance" Trym
+* C группой "Enslaved" Trym
+* C группой "Emperor" Trym
+* C группой "Old Man's Child" Trym
+* C группой "Zyklon" Trym
+* C группой "Shadow Season" Trym
+* C группой "Hagalaz Runedance" Trym
 
 ## Обсуждения
 

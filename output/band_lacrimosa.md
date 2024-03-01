@@ -382,11 +382,11 @@ Bonus Material:
 
 ## Отношения с другими группами
 
-C группой "Snakeskin" Tilo Wolf
-C группой "Imperia" Jan Yrlund (guitar)
-C группой "Angel" Jan Yrlund (guitar)
-C группой "Danse Macabre" Jan Yrlund (guitar)
-C группой "Ancient Rites" Jan Yrlund (guitar)
+* C группой "Snakeskin" Tilo Wolf
+* C группой "Imperia" Jan Yrlund (guitar)
+* C группой "Angel" Jan Yrlund (guitar)
+* C группой "Danse Macabre" Jan Yrlund (guitar)
+* C группой "Ancient Rites" Jan Yrlund (guitar)
 
 ## Обсуждения
 

@@ -22,7 +22,7 @@ VANDEN PLAS singer
 
 ## Отношения с другими группами
 
-C группой "Vanden Plas" Andy Kuntz
+* C группой "Vanden Plas" Andy Kuntz
 
 ## Обсуждения
 

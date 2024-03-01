@@ -196,10 +196,10 @@ Parviainen (Amberian Dawn).
 
 ## Отношения с другими группами
 
-C группой "Kalmah" Eternal Tears Of Sorrow
-C группой "For My Pain" Altti Vetelainen
-C группой "For My Pain" Olli-Pekka Torro
-C группой "For My Pain" Petri Sankala
+* C группой "Kalmah" Eternal Tears Of Sorrow
+* C группой "For My Pain" Altti Vetelainen
+* C группой "For My Pain" Olli-Pekka Torro
+* C группой "For My Pain" Petri Sankala
 
 ## Обсуждения
 

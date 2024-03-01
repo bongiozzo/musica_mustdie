@@ -60,8 +60,8 @@ Blessed by the Dark (Only Japan)
 
 ## Отношения с другими группами
 
-C группой "Starbreaker" Magnus Karlsson
-C группой "Codex, The" Magnus Karlsson (guitar)
+* C группой "Starbreaker" Magnus Karlsson
+* C группой "Codex, The" Magnus Karlsson (guitar)
 
 ## Обсуждения
 

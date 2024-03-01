@@ -23,9 +23,9 @@ produced by Erik Rutan
 
 ## Отношения с другими группами
 
-C группой "Morbid Angel" guitarist Erik Rutan
-C группой "Hate Eternal" guitarist Erik Rutan
-C группой "Therion" singer Martina Hornbacher
+* C группой "Morbid Angel" guitarist Erik Rutan
+* C группой "Hate Eternal" guitarist Erik Rutan
+* C группой "Therion" singer Martina Hornbacher
 
 ## Обсуждения
 

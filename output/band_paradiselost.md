@@ -689,7 +689,7 @@ Recorded at Orgone Studios in Woburn, England from March to April 2017.
 
 ## Отношения с другими группами
 
-C группой "Blaze " Jeff Singer (drums)
+* C группой "Blaze " Jeff Singer (drums)
 
 ## Обсуждения
 

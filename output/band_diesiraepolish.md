@@ -38,9 +38,9 @@ Sculpture of Stone
 
 ## Отношения с другими группами
 
-C группой "Unsun" Maurycy "Mauser" Stefanowicz
-C группой "Vader" Maurycy "Mauser" Stefanowicz
-C группой "Christ Agony" Maurycy "Mauser" Stefanowicz
+* C группой "Unsun" Maurycy "Mauser" Stefanowicz
+* C группой "Vader" Maurycy "Mauser" Stefanowicz
+* C группой "Christ Agony" Maurycy "Mauser" Stefanowicz
 
 ## Обсуждения
 

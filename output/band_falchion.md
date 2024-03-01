@@ -71,7 +71,7 @@ Janne Kielinen: bass
 
 ## Отношения с другими группами
 
-C группой "Korpiklaani" 
+* C группой "Korpiklaani" 
 
 ## Обсуждения
 

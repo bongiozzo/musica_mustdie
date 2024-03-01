@@ -137,13 +137,13 @@ bonus tracks:
 
 ## Отношения с другими группами
 
-C группой "MUSICA (compilation)" Rossomahaar
-C группой "Nargathrond" Lazar
-C группой "Katar" Lazar
-C группой "Аркона" Lazar
-C группой "Nargathrond" Kniaz
-C группой "Katar" Kniaz
-C группой "Аркона" Kniaz
+* C группой "MUSICA (compilation)" Rossomahaar
+* C группой "Nargathrond" Lazar
+* C группой "Katar" Lazar
+* C группой "Аркона" Lazar
+* C группой "Nargathrond" Kniaz
+* C группой "Katar" Kniaz
+* C группой "Аркона" Kniaz
 
 ## Обсуждения
 

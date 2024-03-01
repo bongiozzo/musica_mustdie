@@ -11,8 +11,8 @@
 
 ## Отношения с другими группами
 
-C группой "TNT" Tony Harnell
-C группой "Last Tribe" Magnus Karlsson
+* C группой "TNT" Tony Harnell
+* C группой "Last Tribe" Magnus Karlsson
 
 ## Обсуждения
 

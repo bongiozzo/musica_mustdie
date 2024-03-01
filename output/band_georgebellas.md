@@ -56,7 +56,7 @@ Christopher Ash  -  Mastering
 
 ## Отношения с другими группами
 
-C группой "Куприй, Виталий" Extreme Measures (1998)
+* C группой "Куприй, Виталий" Extreme Measures (1998)
 
 ## Обсуждения
 

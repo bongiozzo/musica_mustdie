@@ -11,10 +11,10 @@ power a-la Stratovarius
 
 ## Отношения с другими группами
 
-C группой "Meduza" Apollo Papathanasio (vocal)
-C группой "Time Requiem" Richard Andersson
-C группой "Space Odyssey" Richard Andersson
-C группой "Andersson, Richard" Richard Andersson
+* C группой "Meduza" Apollo Papathanasio (vocal)
+* C группой "Time Requiem" Richard Andersson
+* C группой "Space Odyssey" Richard Andersson
+* C группой "Andersson, Richard" Richard Andersson
 
 ## Обсуждения
 

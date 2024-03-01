@@ -325,8 +325,8 @@ Mastered at Enormous Door Mastering, Austin, TX.
 
 ## Отношения с другими группами
 
-C группой "Sarke" Nocturno Culto
-C группой "Fenriz' Red Planet" Fenriz
+* C группой "Sarke" Nocturno Culto
+* C группой "Fenriz' Red Planet" Fenriz
 
 ## Обсуждения
 

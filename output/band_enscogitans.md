@@ -70,10 +70,10 @@ Design and layout by Konstantin 'Bonez' Viktorov
 
 ## Отношения с другими группами
 
-C группой "Catharsis" Vladimir Moochnov (drums)
-C группой "Southwake" Vladimir Moochnov (drums)
-C группой "Nordream" Ruben (guitar)
-C группой "Southwake" Ruben (guitar)
+* C группой "Catharsis" Vladimir Moochnov (drums)
+* C группой "Southwake" Vladimir Moochnov (drums)
+* C группой "Nordream" Ruben (guitar)
+* C группой "Southwake" Ruben (guitar)
 
 ## Обсуждения
 

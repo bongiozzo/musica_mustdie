@@ -65,7 +65,7 @@ Comes as CD, LP and limited Digipack with a bonus track.
 
 ## Отношения с другими группами
 
-C группой "Manowar" Ross The Boss (guitar)
+* C группой "Manowar" Ross The Boss (guitar)
 
 ## Обсуждения
 

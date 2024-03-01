@@ -11,10 +11,10 @@ pop-gothic-rock
 
 ## Отношения с другими группами
 
-C группой "Imperia" Jan Yrlund (guitar)
-C группой "Lacrimosa" Jan Yrlund (guitar)
-C группой "Angel" Jan Yrlund (guitar)
-C группой "Ancient Rites" Jan Yrlund (guitar)
+* C группой "Imperia" Jan Yrlund (guitar)
+* C группой "Lacrimosa" Jan Yrlund (guitar)
+* C группой "Angel" Jan Yrlund (guitar)
+* C группой "Ancient Rites" Jan Yrlund (guitar)
 
 ## Обсуждения
 

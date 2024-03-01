@@ -75,14 +75,14 @@ Japanese bonus track:
 
 ## Отношения с другими группами
 
-C группой "Cosmic Sphere" Antti Wirman
-C группой "Children of Bodom" Janne Wirman (keyboards)
-C группой "Kotipelto" Janne Wirman (keyboards)
-C группой "Stratovarius" Jari Kainulainen
-C группой "Kotipelto" Jari Kainulainen
-C группой "Evergrey" Jari Kainulainen
-C группой "Elias Viljanen" Jari Kainulainen
-C группой "Symfonia" Jari Kainulainen
+* C группой "Cosmic Sphere" Antti Wirman
+* C группой "Children of Bodom" Janne Wirman (keyboards)
+* C группой "Kotipelto" Janne Wirman (keyboards)
+* C группой "Stratovarius" Jari Kainulainen
+* C группой "Kotipelto" Jari Kainulainen
+* C группой "Evergrey" Jari Kainulainen
+* C группой "Elias Viljanen" Jari Kainulainen
+* C группой "Symfonia" Jari Kainulainen
 
 ## Обсуждения
 

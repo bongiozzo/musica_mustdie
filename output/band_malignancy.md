@@ -57,10 +57,10 @@
 
 ## Отношения с другими группами
 
-C группой "Mortician" Roger J. Beaujard (guitar)
-C группой "Mortician" Ron Kachnic (guitar)
-C группой "Incantation" Kevin Hughes (bass)
-C группой "Mortician" Desmond Tolhurst (bass)
+* C группой "Mortician" Roger J. Beaujard (guitar)
+* C группой "Mortician" Ron Kachnic (guitar)
+* C группой "Incantation" Kevin Hughes (bass)
+* C группой "Mortician" Desmond Tolhurst (bass)
 
 ## Обсуждения
 

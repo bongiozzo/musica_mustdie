@@ -70,10 +70,10 @@ Johan Niemann (Therion) - bass
 
 ## Отношения с другими группами
 
-C группой "Mind's Eye" Daniel Flores
-C группой "Faro" Daniel Flores
-C группой "Tears of Anger" Daniel Flores
-C группой "Sun Caged" Marcel Coenen
+* C группой "Mind's Eye" Daniel Flores
+* C группой "Faro" Daniel Flores
+* C группой "Tears of Anger" Daniel Flores
+* C группой "Sun Caged" Marcel Coenen
 
 ## Обсуждения
 

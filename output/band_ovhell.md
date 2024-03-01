@@ -18,21 +18,21 @@
 
 ## Отношения с другими группами
 
-C группой "Satyricon" Frost (drums)
-C группой "Gorgoroth" Frost (drums)
-C группой "Zyklon-B" Frost (drums)
-C группой "1349" Frost (drums)
-C группой "Keep Of Kalessin" Frost (drums)
-C группой "Gehenna" Frost (drums)
-C группой "Dimmu Borgir" Shagrath
-C группой "Chrome Division" Shagrath
-C группой "Ragnarok (NOR)" Shagrath
-C группой "Gorgoroth" King Ov Hell (bass)
-C группой "Sahg" King Ov Hell (bass)
-C группой "I" King Ov Hell (bass)
-C группой "Gorgoroth" Teloch (guitar)
-C группой "1349" Teloch (guitar)
-C группой "Enslaved" Ice dale (guitar)
+* C группой "Satyricon" Frost (drums)
+* C группой "Gorgoroth" Frost (drums)
+* C группой "Zyklon-B" Frost (drums)
+* C группой "1349" Frost (drums)
+* C группой "Keep Of Kalessin" Frost (drums)
+* C группой "Gehenna" Frost (drums)
+* C группой "Dimmu Borgir" Shagrath
+* C группой "Chrome Division" Shagrath
+* C группой "Ragnarok (NOR)" Shagrath
+* C группой "Gorgoroth" King Ov Hell (bass)
+* C группой "Sahg" King Ov Hell (bass)
+* C группой "I" King Ov Hell (bass)
+* C группой "Gorgoroth" Teloch (guitar)
+* C группой "1349" Teloch (guitar)
+* C группой "Enslaved" Ice dale (guitar)
 
 ## Обсуждения
 

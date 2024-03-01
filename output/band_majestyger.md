@@ -71,8 +71,8 @@ Piano by Tom Graber
 
 ## Отношения с другими группами
 
-C группой "Razorback" Rolf Munkes (guitar)
-C группой "Vanize" Rolf Munkes (guitar)
+* C группой "Razorback" Rolf Munkes (guitar)
+* C группой "Vanize" Rolf Munkes (guitar)
 
 ## Обсуждения
 

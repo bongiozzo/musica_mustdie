@@ -54,10 +54,10 @@ The vinyl release contains two bonus tracks:
 
 ## Отношения с другими группами
 
-C группой "Penetralia" Christian Hector
-C группой "Midnattsol" Christian Hector
-C группой "Penetralia" Daniel Droste
-C группой "Midnattsol" Daniel Droste
+* C группой "Penetralia" Christian Hector
+* C группой "Midnattsol" Christian Hector
+* C группой "Penetralia" Daniel Droste
+* C группой "Midnattsol" Daniel Droste
 
 ## Обсуждения
 

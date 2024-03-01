@@ -26,16 +26,16 @@
 
 ## Отношения с другими группами
 
-C группой "Gorefest" Ed Warby
-C группой "Demiurg (SWE)" Ed Warby
-C группой "Hail Of Bullets" Ed Warby
-C группой "Ayreon" Ed Warby
-C группой "Star One" Ed Warby
-C группой "Demiurg (SWE)" Rogga Johansson
-C группой "Paganizer [RUS]" Rogga Johansson
-C группой "Edge Of Sanity" Rogga Johansson
-C группой "Deranged" Rogga Johansson
-C группой "Ribspreader" Rogga Johansson
+* C группой "Gorefest" Ed Warby
+* C группой "Demiurg (SWE)" Ed Warby
+* C группой "Hail Of Bullets" Ed Warby
+* C группой "Ayreon" Ed Warby
+* C группой "Star One" Ed Warby
+* C группой "Demiurg (SWE)" Rogga Johansson
+* C группой "Paganizer [RUS]" Rogga Johansson
+* C группой "Edge Of Sanity" Rogga Johansson
+* C группой "Deranged" Rogga Johansson
+* C группой "Ribspreader" Rogga Johansson
 
 ## Обсуждения
 

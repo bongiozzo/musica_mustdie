@@ -50,8 +50,8 @@ Tracks:
 
 ## Отношения с другими группами
 
-C группой "Machine Head" guitarist Robb Flynn
-C группой "Forbidden" guitarist Robb Flynn
+* C группой "Machine Head" guitarist Robb Flynn
+* C группой "Forbidden" guitarist Robb Flynn
 
 ## Обсуждения
 

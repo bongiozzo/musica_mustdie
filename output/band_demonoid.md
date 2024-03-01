@@ -31,7 +31,7 @@ Illustration & layout: Gyula Havancsak.
 
 ## Отношения с другими группами
 
-C группой "Therion" All members of THERION 2004
+* C группой "Therion" All members of THERION 2004
 
 ## Обсуждения
 

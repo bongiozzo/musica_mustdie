@@ -104,7 +104,7 @@
 
 ## Отношения с другими группами
 
-C группой "Jesus Christ Superstar" 
+* C группой "Jesus Christ Superstar" 
 
 ## Обсуждения
 

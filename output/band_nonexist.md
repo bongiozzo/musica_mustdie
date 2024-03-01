@@ -11,7 +11,7 @@
 
 ## Отношения с другими группами
 
-C группой "Arch Enemy" frontman Johan Liiva
+* C группой "Arch Enemy" frontman Johan Liiva
 
 ## Обсуждения
 

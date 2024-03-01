@@ -32,10 +32,10 @@ Nexus (Multiple Personality Psyhoid Version)
 
 ## Отношения с другими группами
 
-C группой "Impaled Nazarene" Mika Luttinen
-C группой "Diabolos Rising" Mika Luttinen
-C группой "Necromantia" Magus Wampyr Daoloth
-C группой "Diabolos Rising" Magus Wampyr Daoloth
+* C группой "Impaled Nazarene" Mika Luttinen
+* C группой "Diabolos Rising" Mika Luttinen
+* C группой "Necromantia" Magus Wampyr Daoloth
+* C группой "Diabolos Rising" Magus Wampyr Daoloth
 
 ## Обсуждения
 

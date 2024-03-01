@@ -82,14 +82,14 @@ The artwork was designed by Robert Venosa.
 
 ## Отношения с другими группами
 
-C группой "Gordian Knot" Paul Masvidal (guitar, vocal)
-C группой "Death" Paul Masvidal (guitar, vocal)
-C группой "Master" Paul Masvidal (guitar, vocal)
-C группой "Exivious" Tymon Kruidenier (guitar)
-C группой "Exivious" Robin Zielhorst (bass)
-C группой "Death" Sean Reinert (drums)
-C группой "Gordian Knot" Sean Reinert (drums)
-C группой "Aghora" Sean Reinert (drums)
+* C группой "Gordian Knot" Paul Masvidal (guitar, vocal)
+* C группой "Death" Paul Masvidal (guitar, vocal)
+* C группой "Master" Paul Masvidal (guitar, vocal)
+* C группой "Exivious" Tymon Kruidenier (guitar)
+* C группой "Exivious" Robin Zielhorst (bass)
+* C группой "Death" Sean Reinert (drums)
+* C группой "Gordian Knot" Sean Reinert (drums)
+* C группой "Aghora" Sean Reinert (drums)
 
 ## Обсуждения
 

@@ -112,7 +112,7 @@ Johan Larsson - Keyboards
 
 ## Отношения с другими группами
 
-C группой "Eternal Oath" Kimera (vocal/guitar)
+* C группой "Eternal Oath" Kimera (vocal/guitar)
 
 ## Обсуждения
 

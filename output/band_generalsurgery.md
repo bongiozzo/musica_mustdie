@@ -33,8 +33,8 @@ ex-Dismember, Afflicted
 
 ## Отношения с другими группами
 
-C группой "Afflicted" Joacim Carlsson
-C группой "Dismember" Matti K&#228;rki
+* C группой "Afflicted" Joacim Carlsson
+* C группой "Dismember" Matti K&#228;rki
 
 ## Обсуждения
 

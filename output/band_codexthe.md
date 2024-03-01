@@ -27,8 +27,8 @@ Daniel Flores - Drums
 
 ## Отношения с другими группами
 
-C группой "Boals, Mark" M. Boals (vocal)
-C группой "Last Tribe" Magnus Karlsson (guitar)
+* C группой "Boals, Mark" M. Boals (vocal)
+* C группой "Last Tribe" Magnus Karlsson (guitar)
 
 ## Обсуждения
 

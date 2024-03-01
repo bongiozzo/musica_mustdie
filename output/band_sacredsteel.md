@@ -155,7 +155,7 @@ XI. Invocation Of The Nameless 9:17
 
 ## Отношения с другими группами
 
-C группой "My Darkest Hate" members of Sacred Steel play in MY DARKEST HATE
+* C группой "My Darkest Hate" members of Sacred Steel play in MY DARKEST HATE
 
 ## Обсуждения
 

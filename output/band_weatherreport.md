@@ -207,7 +207,7 @@ Colleen Coil  -  Vocals
 
 ## Отношения с другими группами
 
-C группой "Pastorius, Jaco" Bass player
+* C группой "Pastorius, Jaco" Bass player
 
 ## Обсуждения
 

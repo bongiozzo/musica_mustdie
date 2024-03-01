@@ -179,12 +179,12 @@ Stefan K&#246;llner (Drums)
 
 ## Отношения с другими группами
 
-C группой "Avalon" Chity Somapala (vocal)
-C группой "Faro" Chity Somapala (vocal)
-C группой "Firewind" Chity Somapala (vocal)
-C группой "Powerworld" Chity Somapala (vocal)
-C группой "Moonlight Agony" Chity Somapala (vocal)
-C группой "Power Quest" Chity Somapala (vocal)
+* C группой "Avalon" Chity Somapala (vocal)
+* C группой "Faro" Chity Somapala (vocal)
+* C группой "Firewind" Chity Somapala (vocal)
+* C группой "Powerworld" Chity Somapala (vocal)
+* C группой "Moonlight Agony" Chity Somapala (vocal)
+* C группой "Power Quest" Chity Somapala (vocal)
 
 ## Обсуждения
 

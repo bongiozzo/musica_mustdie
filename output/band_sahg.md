@@ -37,9 +37,9 @@ Mixed & mastered at Solslottet Studio.
 
 ## Отношения с другими группами
 
-C группой "Gorgoroth" King Ov Hell (bass)
-C группой "Ov Hell" King Ov Hell (bass)
-C группой "I" King Ov Hell (bass)
+* C группой "Gorgoroth" King Ov Hell (bass)
+* C группой "Ov Hell" King Ov Hell (bass)
+* C группой "I" King Ov Hell (bass)
 
 ## Обсуждения
 

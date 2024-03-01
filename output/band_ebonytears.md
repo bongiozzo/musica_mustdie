@@ -41,8 +41,8 @@
 
 ## Отношения с другими группами
 
-C группой "Therion" Richard Evensand (drums)
-C группой "Soilwork" Richard Evensand (drums)
+* C группой "Therion" Richard Evensand (drums)
+* C группой "Soilwork" Richard Evensand (drums)
 
 ## Обсуждения
 

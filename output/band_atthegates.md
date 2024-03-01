@@ -273,7 +273,7 @@ the band playing in locations around the globe from 1991 - 2008.
 
 ## Отношения с другими группами
 
-C группой "Haunted, The" 
+* C группой "Haunted, The" 
 
 ## Обсуждения
 

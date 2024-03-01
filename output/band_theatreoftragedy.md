@@ -238,10 +238,10 @@ and a regular jewelcase.
 
 ## Отношения с другими группами
 
-C группой "Liv Kristine" Liv Kristine
-C группой "Leaves' Eyes" Liv Kristine
-C группой "Elusive" Tommy Olsson
-C группой "Scars Of Lis" Tommy Lindal
+* C группой "Liv Kristine" Liv Kristine
+* C группой "Leaves' Eyes" Liv Kristine
+* C группой "Elusive" Tommy Olsson
+* C группой "Scars Of Lis" Tommy Lindal
 
 ## Обсуждения
 

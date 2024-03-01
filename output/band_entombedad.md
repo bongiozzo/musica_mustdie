@@ -31,12 +31,12 @@ Victor Brandt (Bass)
 
 ## Отношения с другими группами
 
-C группой "Entombed" LG Petrov (vocal)
-C группой "Firespawn" LG Petrov (vocal)
-C группой "Comecon" LG Petrov (vocal)
-C группой "Entombed" Victor Brandt (guitar)
-C группой "Firespawn" Victor Brandt (guitar)
-C группой "Aeon" Victor Brandt (guitar)
+* C группой "Entombed" LG Petrov (vocal)
+* C группой "Firespawn" LG Petrov (vocal)
+* C группой "Comecon" LG Petrov (vocal)
+* C группой "Entombed" Victor Brandt (guitar)
+* C группой "Firespawn" Victor Brandt (guitar)
+* C группой "Aeon" Victor Brandt (guitar)
 
 ## Обсуждения
 

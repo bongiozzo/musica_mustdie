@@ -111,7 +111,7 @@ Juho Raiha - Guitar
 
 ## Отношения с другими группами
 
-C группой "Black Sun Aeon" Tuomas Saukkonen
+* C группой "Black Sun Aeon" Tuomas Saukkonen
 
 ## Обсуждения
 

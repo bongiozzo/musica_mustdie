@@ -123,23 +123,23 @@ Digipack bonus tracks:
 
 ## Отношения с другими группами
 
-C группой "Impellitteri" Rob Rock
-C группой "Rob Rock" Rob Rock
-C группой "Nightrage" Gus G. (guitar)
-C группой "Dream Evil" Gus G. (guitar)
-C группой "Avalon" Chity Somapala (vocal)
-C группой "Faro" Chity Somapala (vocal)
-C группой "Powerworld" Chity Somapala (vocal)
-C группой "Moonlight Agony" Chity Somapala (vocal)
-C группой "Domain" Chity Somapala (vocal)
-C группой "Power Quest" Chity Somapala (vocal)
-C группой "Outloud" Bob Katsionis (guitar & Keyboards)
-C группой "Helloween" Mark Cross (Drums)
-C группой "Outloud" Mark Cross (Drums)
-C группой "Metalium" Mark Cross (Drums)
-C группой "Kingdom Come" Mark Cross (Drums)
-C группой "At Vance" Mark Cross (Drums)
-C группой "Nightfall" Mark Cross (Drums)
+* C группой "Impellitteri" Rob Rock
+* C группой "Rob Rock" Rob Rock
+* C группой "Nightrage" Gus G. (guitar)
+* C группой "Dream Evil" Gus G. (guitar)
+* C группой "Avalon" Chity Somapala (vocal)
+* C группой "Faro" Chity Somapala (vocal)
+* C группой "Powerworld" Chity Somapala (vocal)
+* C группой "Moonlight Agony" Chity Somapala (vocal)
+* C группой "Domain" Chity Somapala (vocal)
+* C группой "Power Quest" Chity Somapala (vocal)
+* C группой "Outloud" Bob Katsionis (guitar & Keyboards)
+* C группой "Helloween" Mark Cross (Drums)
+* C группой "Outloud" Mark Cross (Drums)
+* C группой "Metalium" Mark Cross (Drums)
+* C группой "Kingdom Come" Mark Cross (Drums)
+* C группой "At Vance" Mark Cross (Drums)
+* C группой "Nightfall" Mark Cross (Drums)
 
 ## Обсуждения
 

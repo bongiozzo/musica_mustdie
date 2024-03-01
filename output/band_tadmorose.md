@@ -152,12 +152,12 @@ Peter Moren - drums
 
 ## Отношения с другими группами
 
-C группой "Inmoria" Christer Andersson (guitar)
-C группой "Inmoria" Danne Eriksson (keyboards)
-C группой "Inmoria" Tommi Karppannen (bass)
-C группой "Morgana Lefay" Tommi Karppannen (bass)
-C группой "Inmoria" Peter Moren (drums)
-C группой "Steel Attack" Peter Moren (drums)
+* C группой "Inmoria" Christer Andersson (guitar)
+* C группой "Inmoria" Danne Eriksson (keyboards)
+* C группой "Inmoria" Tommi Karppannen (bass)
+* C группой "Morgana Lefay" Tommi Karppannen (bass)
+* C группой "Inmoria" Peter Moren (drums)
+* C группой "Steel Attack" Peter Moren (drums)
 
 ## Обсуждения
 

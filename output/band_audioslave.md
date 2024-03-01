@@ -25,8 +25,8 @@
 
 ## Отношения с другими группами
 
-C группой "Soundgarden" Chris Cornell
-C группой "Rage Against The Machine" members
+* C группой "Soundgarden" Chris Cornell
+* C группой "Rage Against The Machine" members
 
 ## Обсуждения
 

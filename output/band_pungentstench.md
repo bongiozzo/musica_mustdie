@@ -183,8 +183,8 @@ Cover art & layout by Martin Schirenc
 
 ## Отношения с другими группами
 
-C группой "Hollenthon" 
-C группой "Collapse 7" Mario Klausner
+* C группой "Hollenthon" 
+* C группой "Collapse 7" Mario Klausner
 
 ## Обсуждения
 

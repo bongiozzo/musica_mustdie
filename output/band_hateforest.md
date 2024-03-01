@@ -7,8 +7,8 @@
 
 ## Отношения с другими группами
 
-C группой "Khors" Khaoth
-C группой "Nokturnal Mortum" Khaoth
+* C группой "Khors" Khaoth
+* C группой "Nokturnal Mortum" Khaoth
 
 ## Обсуждения
 

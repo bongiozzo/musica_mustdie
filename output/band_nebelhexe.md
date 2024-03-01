@@ -20,7 +20,7 @@ Touch Of Morpheus
 
 ## Отношения с другими группами
 
-C группой "Hagalaz Runedance" new name of the band HAGALAZ RUNEDANCE
+* C группой "Hagalaz Runedance" new name of the band HAGALAZ RUNEDANCE
 
 ## Обсуждения
 

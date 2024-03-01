@@ -78,7 +78,7 @@ All music & lyrics written & performed by Ilya
 
 ## Отношения с другими группами
 
-C группой "Splav" Ilya
+* C группой "Splav" Ilya
 
 ## Обсуждения
 

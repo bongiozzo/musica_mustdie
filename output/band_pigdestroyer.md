@@ -58,7 +58,7 @@ Crazy deathgrind
 
 ## Отношения с другими группами
 
-C группой "Agoraphobic Nosebleed" J.R.Hayes, Scott Hull
+* C группой "Agoraphobic Nosebleed" J.R.Hayes, Scott Hull
 
 ## Обсуждения
 

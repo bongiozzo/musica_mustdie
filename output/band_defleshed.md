@@ -81,8 +81,8 @@ Recorded and mixed at Unisound Studio
 
 ## Отношения с другими группами
 
-C группой "Dark Funeral" Matte Modin (drums)
-C группой "Firespawn" Matte Modin (drums)
+* C группой "Dark Funeral" Matte Modin (drums)
+* C группой "Firespawn" Matte Modin (drums)
 
 ## Обсуждения
 

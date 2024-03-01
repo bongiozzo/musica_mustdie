@@ -255,12 +255,12 @@ Agner  -  Drum Sticks
 
 ## Отношения с другими группами
 
-C группой "Accept" Stefan Schwarzmann
-C группой "U.D.O." Stefan Schwarzmann
-C группой "Biss" Mark Storace
-C группой "Gotthard" Mandy Meyer (guitar)
-C группой "Unisonic" Mandy Meyer (guitar)
-C группой "Asia" Mandy Meyer (guitar)
+* C группой "Accept" Stefan Schwarzmann
+* C группой "U.D.O." Stefan Schwarzmann
+* C группой "Biss" Mark Storace
+* C группой "Gotthard" Mandy Meyer (guitar)
+* C группой "Unisonic" Mandy Meyer (guitar)
+* C группой "Asia" Mandy Meyer (guitar)
 
 ## Обсуждения
 

@@ -417,16 +417,16 @@ Disc 2
 
 ## Отношения с другими группами
 
-C группой "Primal Fear" Mat Sinner
-C группой "Cans" Mat Sinner
-C группой "Bonfire" Angel Schleifer
-C группой "Pretty Maids" Angel Schleifer
-C группой "Charade" Angel Schleifer
-C группой "Frank, Herman" Herman Frank (guitar)
-C группой "Accept" Herman Frank (guitar)
-C группой "Victory" Herman Frank (guitar)
-C группой "Poison Sun" Herman Frank (guitar)
-C группой "Voodoo Circle" Alex Beyrodt, Mat Sinner
+* C группой "Primal Fear" Mat Sinner
+* C группой "Cans" Mat Sinner
+* C группой "Bonfire" Angel Schleifer
+* C группой "Pretty Maids" Angel Schleifer
+* C группой "Charade" Angel Schleifer
+* C группой "Frank, Herman" Herman Frank (guitar)
+* C группой "Accept" Herman Frank (guitar)
+* C группой "Victory" Herman Frank (guitar)
+* C группой "Poison Sun" Herman Frank (guitar)
+* C группой "Voodoo Circle" Alex Beyrodt, Mat Sinner
 
 ## Обсуждения
 

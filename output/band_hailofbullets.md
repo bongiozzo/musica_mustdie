@@ -39,11 +39,11 @@ Old School Death Metal
 
 ## Отношения с другими группами
 
-C группой "Gorefest" Ed Warby
-C группой "11th Hour" Ed Warby
-C группой "Demiurg (SWE)" Ed Warby
-C группой "Ayreon" Ed Warby
-C группой "Star One" Ed Warby
+* C группой "Gorefest" Ed Warby
+* C группой "11th Hour" Ed Warby
+* C группой "Demiurg (SWE)" Ed Warby
+* C группой "Ayreon" Ed Warby
+* C группой "Star One" Ed Warby
 
 ## Обсуждения
 

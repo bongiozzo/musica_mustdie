@@ -42,8 +42,8 @@ Tuomo Latvala-Drums
 
 ## Отношения с другими группами
 
-C группой "Cannibal Corpse" Chris Barnes moved to Six Feet Under at 1995.
-C группой "Six Feet Under" Chris Barnes moved to Six Feet Under at 1995.
+* C группой "Cannibal Corpse" Chris Barnes moved to Six Feet Under at 1995.
+* C группой "Six Feet Under" Chris Barnes moved to Six Feet Under at 1995.
 
 ## Обсуждения
 

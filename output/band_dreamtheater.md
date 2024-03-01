@@ -389,13 +389,13 @@ Disc 2
 
 ## Отношения с другими группами
 
-C группой "Petrucci, John" Guitar player
-C группой "Mullmuzzler" (Dream Theater)
-C группой "The Jelly Jam" bassist John Myung
-C группой "John Arch" Mike Portnoy (Drums)
-C группой "OSI" Kevin Moore
-C группой "Chroma Key" Kevin Moore
-C группой "James LaBrie" Vocal
+* C группой "Petrucci, John" Guitar player
+* C группой "Mullmuzzler" (Dream Theater)
+* C группой "The Jelly Jam" bassist John Myung
+* C группой "John Arch" Mike Portnoy (Drums)
+* C группой "OSI" Kevin Moore
+* C группой "Chroma Key" Kevin Moore
+* C группой "James LaBrie" Vocal
 
 ## Обсуждения
 

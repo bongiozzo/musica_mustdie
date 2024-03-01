@@ -53,18 +53,18 @@ Descry (02:14)
 
 ## Отношения с другими группами
 
-C группой "After Forever" Mark Jansen (guitar)
-C группой "Epica" Mark Jansen (guitar)
-C группой "After Forever" Jack Driessen (keyboards)
-C группой "Epica" Isaac Delahaye (guitar)
-C группой "God Dethroned" Isaac Delahaye (guitar)
-C группой "Epica" Arien van Weesenbeek (drums)
-C группой "God Dethroned" Arien van Weesenbeek (drums)
-C группой "Epica" Simone Simons (vocal)
-C группой "Sons Of Seasons" Simone Simons (vocal)
-C группой "Kamelot" Simone Simons (vocal)
-C группой "Obscura" Jeroen Paul Thesseling (bass)
-C группой "Pestilence" Jeroen Paul Thesseling (bass)
+* C группой "After Forever" Mark Jansen (guitar)
+* C группой "Epica" Mark Jansen (guitar)
+* C группой "After Forever" Jack Driessen (keyboards)
+* C группой "Epica" Isaac Delahaye (guitar)
+* C группой "God Dethroned" Isaac Delahaye (guitar)
+* C группой "Epica" Arien van Weesenbeek (drums)
+* C группой "God Dethroned" Arien van Weesenbeek (drums)
+* C группой "Epica" Simone Simons (vocal)
+* C группой "Sons Of Seasons" Simone Simons (vocal)
+* C группой "Kamelot" Simone Simons (vocal)
+* C группой "Obscura" Jeroen Paul Thesseling (bass)
+* C группой "Pestilence" Jeroen Paul Thesseling (bass)
 
 ## Обсуждения
 

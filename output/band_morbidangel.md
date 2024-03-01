@@ -301,16 +301,16 @@ Artwork by Gustavo Sazes.
 
 ## Отношения с другими группами
 
-C группой "Nocturnus" Drummer Mike Browning (member of CoS) played in every band
-C группой "Acheron" Drummer Mike Browning (member of CoS) played in every band
-C группой "After Death" Mike Browning
-C группой "Alas" guitarist Erik Rutan
-C группой "Hate Eternal" guitarist Erik Rutan
-C группой "World Under Blood" Tim Yeung (drums)
-C группой "Divine Heresy" Tim Yeung (drums)
-C группой "Aurora Borealis" Tim Yeung (drums)
-C группой "Vital Remains" Tim Yeung (drums)
-C группой "Council of the Fallen" Tim Yeung (drums)
+* C группой "Nocturnus" Drummer Mike Browning (member of CoS) played in every band
+* C группой "Acheron" Drummer Mike Browning (member of CoS) played in every band
+* C группой "After Death" Mike Browning
+* C группой "Alas" guitarist Erik Rutan
+* C группой "Hate Eternal" guitarist Erik Rutan
+* C группой "World Under Blood" Tim Yeung (drums)
+* C группой "Divine Heresy" Tim Yeung (drums)
+* C группой "Aurora Borealis" Tim Yeung (drums)
+* C группой "Vital Remains" Tim Yeung (drums)
+* C группой "Council of the Fallen" Tim Yeung (drums)
 
 ## Обсуждения
 

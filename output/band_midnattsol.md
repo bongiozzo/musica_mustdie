@@ -70,10 +70,10 @@ The Special Edition version of the CD has one bonus track, "A Predatorґs Prey" 
 
 ## Отношения с другими группами
 
-C группой "Penetralia" Christian Hector
-C группой "Ahab" Christian Hector
-C группой "Penetralia" Daniel Droste
-C группой "Ahab" Daniel Droste
+* C группой "Penetralia" Christian Hector
+* C группой "Ahab" Christian Hector
+* C группой "Penetralia" Daniel Droste
+* C группой "Ahab" Daniel Droste
 
 ## Обсуждения
 

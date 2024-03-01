@@ -477,13 +477,13 @@ Jeff Plate Drums
 
 ## Отношения с другими группами
 
-C группой "Alex Skolnick" Guitar
-C группой "Metalium" Jack Frost
-C группой "Seven Witches" Jack Frost
-C группой "Circle II Circle" Zak Stevens (vocal)
-C группой "The Neglected" Damond Jiniya (vocal)
-C группой "Jon Oliva's Pain" Jon Oliva
-C группой "Trans-Siberian Orchestra" Jeff Plate (drums)
+* C группой "Alex Skolnick" Guitar
+* C группой "Metalium" Jack Frost
+* C группой "Seven Witches" Jack Frost
+* C группой "Circle II Circle" Zak Stevens (vocal)
+* C группой "The Neglected" Damond Jiniya (vocal)
+* C группой "Jon Oliva's Pain" Jon Oliva
+* C группой "Trans-Siberian Orchestra" Jeff Plate (drums)
 
 ## Обсуждения
 

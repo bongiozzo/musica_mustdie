@@ -76,10 +76,10 @@ The Making Of Trust (video)
 
 ## Отношения с другими группами
 
-C группой "Bonfire" Michael Bormann
-C группой "Charade" Michael Bormann
-C группой "Evidence One" Barish Kepic (guitars)
-C группой "Powerworld" Barish Kepic (guitars)
+* C группой "Bonfire" Michael Bormann
+* C группой "Charade" Michael Bormann
+* C группой "Evidence One" Barish Kepic (guitars)
+* C группой "Powerworld" Barish Kepic (guitars)
 
 ## Обсуждения
 

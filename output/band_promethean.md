@@ -42,7 +42,7 @@ Engineered & Mixed By Pauli Ruuskanen.
 
 ## Отношения с другими группами
 
-C группой "Black Crucifixion" Fornicator (Timo Iivari), Blacksoul (Esa Juuj&auml;rvi)
+* C группой "Black Crucifixion" Fornicator (Timo Iivari), Blacksoul (Esa Juuj&auml;rvi)
 
 ## Обсуждения
 

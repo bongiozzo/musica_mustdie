@@ -122,12 +122,12 @@ Hans-Josef Groh: Cello
 
 ## Отношения с другими группами
 
-C группой "Mayhem" HellHammer
-C группой "Arcturus" HellHammer
-C группой "Troll" HellHammer
-C группой "Kovenant" HellHammer
-C группой "Thorns" HellHammer
-C группой "Arcturus" Carl August Tidemann
+* C группой "Mayhem" HellHammer
+* C группой "Arcturus" HellHammer
+* C группой "Troll" HellHammer
+* C группой "Kovenant" HellHammer
+* C группой "Thorns" HellHammer
+* C группой "Arcturus" Carl August Tidemann
 
 ## Обсуждения
 

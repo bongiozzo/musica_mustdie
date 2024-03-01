@@ -7,7 +7,7 @@ Finnish Dark Metal
 
 ## Отношения с другими группами
 
-C группой "Children of Bodom" Jaska Raatikainen (drums)
+* C группой "Children of Bodom" Jaska Raatikainen (drums)
 
 ## Обсуждения
 

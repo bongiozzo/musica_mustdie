@@ -21,7 +21,7 @@
 
 ## Отношения с другими группами
 
-C группой "Leverage" Valtteri Revonkorpi (drums)
+* C группой "Leverage" Valtteri Revonkorpi (drums)
 
 ## Обсуждения
 

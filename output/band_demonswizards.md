@@ -46,19 +46,19 @@ Recorded during July and August of 1999 at Morrisound Studios
 
 ## Отношения с другими группами
 
-C группой "Therion" Hansi K&uuml;rsch
-C группой "Grave Digger" Hansi K&uuml;rsch
-C группой "Blind Guardian" Hansi K&uuml;rsch
-C группой "Gamma Ray" Hansi K&uuml;rsch
-C группой "Iron Savior" Hansi K&uuml;rsch
-C группой "Edguy" Hansi K&uuml;rsch
-C группой "Lucifer's Heritage" Hansi K&uuml;rsch
-C группой "Iced Earth" Jon Schaffer
-C группой "Sieges Even" Oliver Holzwarth
-C группой "Blind Guardian" Oliver Holzwarth
-C группой "Power Quest" Oliver Holzwarth
-C группой "Paradox" Oliver Holzwarth
-C группой "Tarja Turunen" Oliver Holzwarth
+* C группой "Therion" Hansi K&uuml;rsch
+* C группой "Grave Digger" Hansi K&uuml;rsch
+* C группой "Blind Guardian" Hansi K&uuml;rsch
+* C группой "Gamma Ray" Hansi K&uuml;rsch
+* C группой "Iron Savior" Hansi K&uuml;rsch
+* C группой "Edguy" Hansi K&uuml;rsch
+* C группой "Lucifer's Heritage" Hansi K&uuml;rsch
+* C группой "Iced Earth" Jon Schaffer
+* C группой "Sieges Even" Oliver Holzwarth
+* C группой "Blind Guardian" Oliver Holzwarth
+* C группой "Power Quest" Oliver Holzwarth
+* C группой "Paradox" Oliver Holzwarth
+* C группой "Tarja Turunen" Oliver Holzwarth
 
 ## Обсуждения
 

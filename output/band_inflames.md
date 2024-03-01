@@ -399,14 +399,14 @@ Daniel Svensson  Drums, Percussion
 
 ## Отношения с другими группами
 
-C группой "HammerFall" Jesper Stormblad
-C группой "Dimension Zero" Jesper Stormblad
-C группой "Dark Tranquillity" Michael Stanne
-C группой "Meshuggah" Dick Lovgren (bass)
-C группой "Arch Enemy" Dick Lovgren (bass)
-C группой "Gardenian" Niclas Engelin (guitar)
-C группой "Engel" Niclas Engelin (guitar)
-C группой "The End (Sweden)" Daniel Erlandsson
+* C группой "HammerFall" Jesper Stormblad
+* C группой "Dimension Zero" Jesper Stormblad
+* C группой "Dark Tranquillity" Michael Stanne
+* C группой "Meshuggah" Dick Lovgren (bass)
+* C группой "Arch Enemy" Dick Lovgren (bass)
+* C группой "Gardenian" Niclas Engelin (guitar)
+* C группой "Engel" Niclas Engelin (guitar)
+* C группой "The End (Sweden)" Daniel Erlandsson
 
 ## Обсуждения
 

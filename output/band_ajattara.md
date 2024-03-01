@@ -121,7 +121,7 @@ The title means "Murders".
 
 ## Отношения с другими группами
 
-C группой "Amorphis" Pasi Koskinen (vocal)
+* C группой "Amorphis" Pasi Koskinen (vocal)
 
 ## Обсуждения
 

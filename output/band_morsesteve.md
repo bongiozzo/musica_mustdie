@@ -92,8 +92,8 @@
 
 ## Отношения с другими группами
 
-C группой "Dixie Dregs" Dixie Dregs
-C группой "Deep Purple" Steve Morse (guitar)
+* C группой "Dixie Dregs" Dixie Dregs
+* C группой "Deep Purple" Steve Morse (guitar)
 
 ## Обсуждения
 

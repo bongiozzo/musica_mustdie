@@ -479,9 +479,9 @@ DVD 3: Bonus Chunks
 
 ## Отношения с другими группами
 
-C группой "Six Feet Under" Chris Barnes moved to Six Feet Under at 1995.
-C группой "Torture Killer" Chris Barnes moved to Six Feet Under at 1995.
-C группой "Monstrosity" George Fisher replaces Chris Barnes at 1996
+* C группой "Six Feet Under" Chris Barnes moved to Six Feet Under at 1995.
+* C группой "Torture Killer" Chris Barnes moved to Six Feet Under at 1995.
+* C группой "Monstrosity" George Fisher replaces Chris Barnes at 1996
 
 ## Обсуждения
 

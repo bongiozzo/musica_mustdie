@@ -161,7 +161,7 @@ Limited edition digipak contains 4 bonus tracks:
 
 ## Отношения с другими группами
 
-C группой "Mithotyn" 
+* C группой "Mithotyn" 
 
 ## Обсуждения
 

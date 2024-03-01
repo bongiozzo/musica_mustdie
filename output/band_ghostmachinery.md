@@ -19,7 +19,7 @@
 
 ## Отношения с другими группами
 
-C группой "Burning Point" Pete Ahonen
+* C группой "Burning Point" Pete Ahonen
 
 ## Обсуждения
 

@@ -353,8 +353,8 @@ Bonus:
 
 ## Отношения с другими группами
 
-C группой "In Flames" Dick Lovgren (bass)
-C группой "Arch Enemy" Dick Lovgren (bass)
+* C группой "In Flames" Dick Lovgren (bass)
+* C группой "Arch Enemy" Dick Lovgren (bass)
 
 ## Обсуждения
 

@@ -85,7 +85,7 @@ Cool Black-Death-Doom Metal
 
 ## Отношения с другими группами
 
-C группой "Enochian Crescent" Jani Martikkala (drums in Enochian Crescent [1999-2001] & in Throes of Dawn)
+* C группой "Enochian Crescent" Jani Martikkala (drums in Enochian Crescent [1999-2001] & in Throes of Dawn)
 
 ## Обсуждения
 

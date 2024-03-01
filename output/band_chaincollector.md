@@ -65,12 +65,12 @@ Lyrics by Svenn-Aksel Henriksen & Gшran Bomann
 
 ## Отношения с другими группами
 
-C группой "In the Woods" Kobro
-C группой "Carpathian Forest" Kobro
-C группой "Green Carnation" Kobro
-C группой "Trail of Tears" Kjetil Nordhus
-C группой "Green Carnation" Kjetil Nordhus
-C группой "Carpathian Forest" G. Bomann
+* C группой "In the Woods" Kobro
+* C группой "Carpathian Forest" Kobro
+* C группой "Green Carnation" Kobro
+* C группой "Trail of Tears" Kjetil Nordhus
+* C группой "Green Carnation" Kjetil Nordhus
+* C группой "Carpathian Forest" G. Bomann
 
 ## Обсуждения
 

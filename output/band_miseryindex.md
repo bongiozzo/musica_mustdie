@@ -98,8 +98,8 @@ Matt Byers - drums
 
 ## Отношения с другими группами
 
-C группой "Dying Fetus" Sparky Voyles (guitars)
-C группой "Dying Fetus" Jason Northerton (vocals/bass)
+* C группой "Dying Fetus" Sparky Voyles (guitars)
+* C группой "Dying Fetus" Jason Northerton (vocals/bass)
 
 ## Обсуждения
 

@@ -122,17 +122,17 @@ City of Lies
 
 ## Отношения с другими группами
 
-C группой "Avalon" Chity Somapala (vocal)
-C группой "Faro" Chity Somapala (vocal)
-C группой "Firewind" Chity Somapala (vocal)
-C группой "Powerworld" Chity Somapala (vocal)
-C группой "Moonlight Agony" Chity Somapala (vocal)
-C группой "Domain" Chity Somapala (vocal)
-C группой "Sieges Even" Oliver Holzwarth
-C группой "Blind Guardian" Oliver Holzwarth
-C группой "Paradox" Oliver Holzwarth
-C группой "Tarja Turunen" Oliver Holzwarth
-C группой "Demons & Wizards" Oliver Holzwarth
+* C группой "Avalon" Chity Somapala (vocal)
+* C группой "Faro" Chity Somapala (vocal)
+* C группой "Firewind" Chity Somapala (vocal)
+* C группой "Powerworld" Chity Somapala (vocal)
+* C группой "Moonlight Agony" Chity Somapala (vocal)
+* C группой "Domain" Chity Somapala (vocal)
+* C группой "Sieges Even" Oliver Holzwarth
+* C группой "Blind Guardian" Oliver Holzwarth
+* C группой "Paradox" Oliver Holzwarth
+* C группой "Tarja Turunen" Oliver Holzwarth
+* C группой "Demons & Wizards" Oliver Holzwarth
 
 ## Обсуждения
 

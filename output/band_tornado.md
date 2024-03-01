@@ -11,7 +11,7 @@ Heavy-progressive from Yugoslavia
 
 ## Отношения с другими группами
 
-C группой "Neformat" Экс-группа Николая "Tornado"
+* C группой "Neformat" Экс-группа Николая "Tornado"
 
 ## Обсуждения
 

@@ -15,7 +15,7 @@
 
 ## Отношения с другими группами
 
-C группой "Agathodaimon" Vlad Dracula
+* C группой "Agathodaimon" Vlad Dracula
 
 ## Обсуждения
 

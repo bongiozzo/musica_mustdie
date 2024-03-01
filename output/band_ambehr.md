@@ -55,7 +55,7 @@
 
 ## Отношения с другими группами
 
-C группой "Амбер" Russian project of AMBEHR
+* C группой "Амбер" Russian project of AMBEHR
 
 ## Обсуждения
 

@@ -62,7 +62,7 @@ Roger Sjunnesson - Lead Guitar, Keyboards
 
 ## Отношения с другими группами
 
-C группой "Sonic Syndicate" 
+* C группой "Sonic Syndicate" 
 
 ## Обсуждения
 

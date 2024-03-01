@@ -20,12 +20,12 @@
 
 ## Отношения с другими группами
 
-C группой "Majesty (Ger)" Rolf Munkes (guitar)
-C группой "Vanize" Rolf Munkes (guitar)
-C группой "Snakes in Paradise" Stefan Berggren (vocal)
-C группой "Vanize" Pierre Fienhold (drums)
-C группой "Axxis" Andre Hilgers (drums)
-C группой "Silent Force" Andre Hilgers (drums)
+* C группой "Majesty (Ger)" Rolf Munkes (guitar)
+* C группой "Vanize" Rolf Munkes (guitar)
+* C группой "Snakes in Paradise" Stefan Berggren (vocal)
+* C группой "Vanize" Pierre Fienhold (drums)
+* C группой "Axxis" Andre Hilgers (drums)
+* C группой "Silent Force" Andre Hilgers (drums)
 
 ## Обсуждения
 

@@ -161,11 +161,11 @@ Mastered at Finnvox Studios - Finland December 2012
 
 ## Отношения с другими группами
 
-C группой "Green Carnation" Kjetil Nordhus
-C группой "Chain Collector" Kjetil Nordhus
-C группой "Tristania" Ronnie Thorsen (vocal)
-C группой "Imperia" Helena Michaelsen and Jan Yrlund
-C группой "Angel" Helena Michaelsen and Jan Yrlund
+* C группой "Green Carnation" Kjetil Nordhus
+* C группой "Chain Collector" Kjetil Nordhus
+* C группой "Tristania" Ronnie Thorsen (vocal)
+* C группой "Imperia" Helena Michaelsen and Jan Yrlund
+* C группой "Angel" Helena Michaelsen and Jan Yrlund
 
 ## Обсуждения
 

@@ -32,9 +32,9 @@ F.W.T.B.T
 
 ## Отношения с другими группами
 
-C группой "Thorr's Hammer" Stephen O'Malley
-C группой "Burning Witch" Stephen O'Malley
-C группой "Khanate" Stephen O`Malley
+* C группой "Thorr's Hammer" Stephen O'Malley
+* C группой "Burning Witch" Stephen O'Malley
+* C группой "Khanate" Stephen O`Malley
 
 ## Обсуждения
 

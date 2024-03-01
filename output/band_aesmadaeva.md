@@ -38,7 +38,7 @@ Darkness (Stromkern)
 
 ## Отношения с другими группами
 
-C группой "Visions of Atlantis" Melissa Forlaak (female vocal)
+* C группой "Visions of Atlantis" Melissa Forlaak (female vocal)
 
 ## Обсуждения
 

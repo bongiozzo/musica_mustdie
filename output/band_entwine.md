@@ -102,7 +102,7 @@ Riitta Heikkonen - keyboards
 
 ## Отношения с другими группами
 
-C группой "ShamRain" Mika Tauriainen
+* C группой "ShamRain" Mika Tauriainen
 
 ## Обсуждения
 

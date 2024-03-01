@@ -54,7 +54,7 @@
 
 ## Отношения с другими группами
 
-C группой "Project Creation" Hugo Flores
+* C группой "Project Creation" Hugo Flores
 
 ## Обсуждения
 

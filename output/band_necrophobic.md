@@ -123,12 +123,12 @@ Martin Halfdahn - Guitars
 
 ## Отношения с другими группами
 
-C группой "Trident" Tobias Sidegеrd
-C группой "Firespawn" Alex Friberg (bass)
-C группой "Trident" Alex Friberg (bass)
-C группой "Unleashed" Fredrik Folkare (guitar)
-C группой "Firespawn" Fredrik Folkare (guitar)
-C группой "Siebenburgen" Fredrik Folkare (guitar)
+* C группой "Trident" Tobias Sidegеrd
+* C группой "Firespawn" Alex Friberg (bass)
+* C группой "Trident" Alex Friberg (bass)
+* C группой "Unleashed" Fredrik Folkare (guitar)
+* C группой "Firespawn" Fredrik Folkare (guitar)
+* C группой "Siebenburgen" Fredrik Folkare (guitar)
 
 ## Обсуждения
 

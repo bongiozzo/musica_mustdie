@@ -32,7 +32,7 @@ SKEPTICISM members
 
 ## Отношения с другими группами
 
-C группой "Skepticism" 
+* C группой "Skepticism" 
 
 ## Обсуждения
 

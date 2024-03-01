@@ -95,10 +95,10 @@ Carl Stokes - Drums
 
 ## Отношения с другими группами
 
-C группой "Obituary" James Murphy played in Death, Obituary, Testament, Cancer, Disincarnate.
-C группой "Death" James Murphy played in Death, Obituary, Testament, Cancer, Disincarnate.
-C группой "Testament" James Murphy played in Death, Obituary, Testament, Cancer, Disincarnate.
-C группой "Disincarnate" James Murphy played in Death, Obituary, Testament, Cancer, Disincarnate.
+* C группой "Obituary" James Murphy played in Death, Obituary, Testament, Cancer, Disincarnate.
+* C группой "Death" James Murphy played in Death, Obituary, Testament, Cancer, Disincarnate.
+* C группой "Testament" James Murphy played in Death, Obituary, Testament, Cancer, Disincarnate.
+* C группой "Disincarnate" James Murphy played in Death, Obituary, Testament, Cancer, Disincarnate.
 
 ## Обсуждения
 

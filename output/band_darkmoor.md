@@ -240,10 +240,10 @@ Arrangements by Dark Moor
 
 ## Отношения с другими группами
 
-C группой "Fairyland" Elisa
-C группой "Dreamaker" Elisa
-C группой "Dreamaker" Albert Maroto (guitar)
-C группой "Dreamaker" Jorge Saez (drums)
+* C группой "Fairyland" Elisa
+* C группой "Dreamaker" Elisa
+* C группой "Dreamaker" Albert Maroto (guitar)
+* C группой "Dreamaker" Jorge Saez (drums)
 
 ## Обсуждения
 

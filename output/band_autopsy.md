@@ -173,15 +173,15 @@ Joe Allen  Bass
 
 ## Отношения с другими группами
 
-C группой "Sadus" Steve DiGiorgio (bass)
-C группой "Death" Steve DiGiorgio (bass)
-C группой "Artension" Steve DiGiorgio (bass)
-C группой "Control Denied" Steve DiGiorgio (bass)
-C группой "Testament" Steve DiGiorgio (bass)
-C группой "Iced Earth" Steve DiGiorgio (bass)
-C группой "Charred Walls Of The Damned" Steve DiGiorgio (bass)
-C группой "Faust [ITA]" Steve DiGiorgio (bass)
-C группой "Dragonlord" Steve DiGiorgio (bass)
+* C группой "Sadus" Steve DiGiorgio (bass)
+* C группой "Death" Steve DiGiorgio (bass)
+* C группой "Artension" Steve DiGiorgio (bass)
+* C группой "Control Denied" Steve DiGiorgio (bass)
+* C группой "Testament" Steve DiGiorgio (bass)
+* C группой "Iced Earth" Steve DiGiorgio (bass)
+* C группой "Charred Walls Of The Damned" Steve DiGiorgio (bass)
+* C группой "Faust [ITA]" Steve DiGiorgio (bass)
+* C группой "Dragonlord" Steve DiGiorgio (bass)
 
 ## Обсуждения
 

@@ -11,10 +11,10 @@
 
 ## Отношения с другими группами
 
-C группой "Arch Enemy" Daniel Erlandsson
-C группой "Armageddon" Daniel Erlandsson, Tobias Gustafsson
-C группой "Eucharist" Matti Almsenius, Daniel Erlandsson, Tobias Gustafsson
-C группой "In Flames" Daniel Erlandsson
+* C группой "Arch Enemy" Daniel Erlandsson
+* C группой "Armageddon" Daniel Erlandsson, Tobias Gustafsson
+* C группой "Eucharist" Matti Almsenius, Daniel Erlandsson, Tobias Gustafsson
+* C группой "In Flames" Daniel Erlandsson
 
 ## Обсуждения
 

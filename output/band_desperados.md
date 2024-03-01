@@ -24,7 +24,7 @@
 
 ## Отношения с другими группами
 
-C группой "Onkel Tom Angelripper" 
+* C группой "Onkel Tom Angelripper" 
 
 ## Обсуждения
 

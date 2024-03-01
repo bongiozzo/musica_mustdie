@@ -21,7 +21,7 @@ Felix from Crematory
 
 ## Отношения с другими группами
 
-C группой "Crematory" Felix
+* C группой "Crematory" Felix
 
 ## Обсуждения
 

@@ -76,7 +76,7 @@ Terry O'Neill  -  Photography
 
 ## Отношения с другими группами
 
-C группой "Queen" Vocal, composer
+* C группой "Queen" Vocal, composer
 
 ## Обсуждения
 

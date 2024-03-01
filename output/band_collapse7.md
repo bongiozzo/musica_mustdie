@@ -71,7 +71,7 @@ Cover by Jens Reinhold of ZenZ-art
 
 ## Отношения с другими группами
 
-C группой "Pungent Stench" Mario Klausner
+* C группой "Pungent Stench" Mario Klausner
 
 ## Обсуждения
 

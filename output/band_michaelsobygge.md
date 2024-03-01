@@ -56,7 +56,7 @@ Traffic Jam
 
 ## Отношения с другими группами
 
-C группой "Melodic Meltdown" Sobygge, Michael - guitar player
+* C группой "Melodic Meltdown" Sobygge, Michael - guitar player
 
 ## Обсуждения
 

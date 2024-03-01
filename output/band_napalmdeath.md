@@ -453,12 +453,12 @@ Bonus tracks:
 
 ## Отношения с другими группами
 
-C группой "Carcass" guitarist Bill Steer
-C группой "Firebird" guitarist Bill Steer
-C группой "Benediction" Barney Greenway (vocal)
-C группой "Brujeria" Shane Embury
-C группой "Venomous Concept" Danny Herrera, Shane Embury
-C группой "Insidious Disease" Shane Embury
+* C группой "Carcass" guitarist Bill Steer
+* C группой "Firebird" guitarist Bill Steer
+* C группой "Benediction" Barney Greenway (vocal)
+* C группой "Brujeria" Shane Embury
+* C группой "Venomous Concept" Danny Herrera, Shane Embury
+* C группой "Insidious Disease" Shane Embury
 
 ## Обсуждения
 

@@ -31,8 +31,8 @@ pre-NEVERMORE
 
 ## Отношения с другими группами
 
-C группой "Nevermore" Jim Sheppard (bass)
-C группой "Nevermore" Warrel Dane (vocal)
+* C группой "Nevermore" Jim Sheppard (bass)
+* C группой "Nevermore" Warrel Dane (vocal)
 
 ## Обсуждения
 

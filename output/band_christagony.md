@@ -138,12 +138,12 @@ Inferno - Drums
 
 ## Отношения с другими группами
 
-C группой "Witchmaster" Reyash (bass/vocal)
-C группой "Supreme Lord" Reyash (bass/vocal)
-C группой "Union (POL)" 
-C группой "Unsun" Maurycy "Mauser" Stefanowicz
-C группой "Vader" Maurycy "Mauser" Stefanowicz
-C группой "Dies Irae (Polish)" Maurycy "Mauser" Stefanowicz
+* C группой "Witchmaster" Reyash (bass/vocal)
+* C группой "Supreme Lord" Reyash (bass/vocal)
+* C группой "Union (POL)" 
+* C группой "Unsun" Maurycy "Mauser" Stefanowicz
+* C группой "Vader" Maurycy "Mauser" Stefanowicz
+* C группой "Dies Irae (Polish)" Maurycy "Mauser" Stefanowicz
 
 ## Обсуждения
 

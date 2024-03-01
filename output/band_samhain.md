@@ -71,8 +71,8 @@ Art direction by Jeff.
 
 ## Отношения с другими группами
 
-C группой "Catharsis" 
-C группой "MUSICA (compilation)" Samhain
+* C группой "Catharsis" 
+* C группой "MUSICA (compilation)" Samhain
 
 ## Обсуждения
 

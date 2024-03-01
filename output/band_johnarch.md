@@ -7,17 +7,17 @@ ex- fates Warning
 
 ## Отношения с другими группами
 
-C группой "Fates Warning" John Arch (Vocal)
-C группой "Arch/Matheos" John Arch (Vocal)
-C группой "Fates Warning" Jim Matheos (guitar)
-C группой "Arch/Matheos" Jim Matheos (guitar)
-C группой "OSI" Jim Matheos (guitar)
-C группой "Fates Warning" Joey Vera (bass)
-C группой "Armored Saint" Joey Vera (bass)
-C группой "Arch/Matheos" Joey Vera (bass)
-C группой "Anthrax" Joey Vera (bass)
-C группой "Seven Witches" Joey Vera (bass)
-C группой "Dream Theater" Mike Portnoy (Drums)
+* C группой "Fates Warning" John Arch (Vocal)
+* C группой "Arch/Matheos" John Arch (Vocal)
+* C группой "Fates Warning" Jim Matheos (guitar)
+* C группой "Arch/Matheos" Jim Matheos (guitar)
+* C группой "OSI" Jim Matheos (guitar)
+* C группой "Fates Warning" Joey Vera (bass)
+* C группой "Armored Saint" Joey Vera (bass)
+* C группой "Arch/Matheos" Joey Vera (bass)
+* C группой "Anthrax" Joey Vera (bass)
+* C группой "Seven Witches" Joey Vera (bass)
+* C группой "Dream Theater" Mike Portnoy (Drums)
 
 ## Обсуждения
 

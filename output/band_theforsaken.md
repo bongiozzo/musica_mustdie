@@ -64,8 +64,8 @@ Inseminated by the beast
 
 ## Отношения с другими группами
 
-C группой "Evergrey" Michael Hеkansson
-C группой "Feared Creation" Anders Sjцholm (vocal)
+* C группой "Evergrey" Michael Hеkansson
+* C группой "Feared Creation" Anders Sjцholm (vocal)
 
 ## Обсуждения
 

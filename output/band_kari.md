@@ -61,7 +61,7 @@ Butterfly-Milk
 
 ## Отношения с другими группами
 
-C группой "Kari Rueslatten" 
+* C группой "Kari Rueslatten" 
 
 ## Обсуждения
 

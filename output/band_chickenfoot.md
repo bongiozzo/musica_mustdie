@@ -15,9 +15,9 @@
 
 ## Отношения с другими группами
 
-C группой "Satriani, Joe" Joe Satriani
-C группой "Van Halen" Sammy Hagar, Michael Anthony
-C группой "The Red Hot Chili Peppers" Chad Smith
+* C группой "Satriani, Joe" Joe Satriani
+* C группой "Van Halen" Sammy Hagar, Michael Anthony
+* C группой "The Red Hot Chili Peppers" Chad Smith
 
 ## Обсуждения
 

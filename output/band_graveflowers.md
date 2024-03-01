@@ -35,7 +35,7 @@ Elena Andersson: Keyboards
 
 ## Отношения с другими группами
 
-C группой "Godgory" Matte
+* C группой "Godgory" Matte
 
 ## Обсуждения
 

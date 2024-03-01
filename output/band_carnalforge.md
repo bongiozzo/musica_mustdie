@@ -121,11 +121,11 @@ Lars Lindйn - Bass
 
 ## Отношения с другими группами
 
-C группой "In Thy Dreams" Stefan Westerberg
-C группой "Asperity" Stefan Westerberg
-C группой "In Thy Dreams" Petri Kuusisto
-C группой "Asperity" Petri Kuusisto
-C группой "Construcdead" Johan Magnusson
+* C группой "In Thy Dreams" Stefan Westerberg
+* C группой "Asperity" Stefan Westerberg
+* C группой "In Thy Dreams" Petri Kuusisto
+* C группой "Asperity" Petri Kuusisto
+* C группой "Construcdead" Johan Magnusson
 
 ## Обсуждения
 

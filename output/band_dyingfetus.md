@@ -151,8 +151,8 @@ Design by Johnathan Canady
 
 ## Отношения с другими группами
 
-C группой "Misery Index" Sparky Voyles (guitars)
-C группой "Misery Index" Jason Northerton (vocals/bass)
+* C группой "Misery Index" Sparky Voyles (guitars)
+* C группой "Misery Index" Jason Northerton (vocals/bass)
 
 ## Обсуждения
 

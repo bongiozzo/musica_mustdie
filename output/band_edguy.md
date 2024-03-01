@@ -505,14 +505,14 @@ Tracks 15 to 22 on the DVD are video clips.
 
 ## Отношения с другими группами
 
-C группой "Therion" Hansi K&uuml;rsch
-C группой "Grave Digger" Hansi K&uuml;rsch
-C группой "Blind Guardian" Hansi K&uuml;rsch
-C группой "Gamma Ray" Hansi K&uuml;rsch
-C группой "Iron Savior" Hansi K&uuml;rsch
-C группой "Demons & Wizards" Hansi K&uuml;rsch
-C группой "Lucifer's Heritage" Hansi K&uuml;rsch
-C группой "Avantasia" Tobias Sammet
+* C группой "Therion" Hansi K&uuml;rsch
+* C группой "Grave Digger" Hansi K&uuml;rsch
+* C группой "Blind Guardian" Hansi K&uuml;rsch
+* C группой "Gamma Ray" Hansi K&uuml;rsch
+* C группой "Iron Savior" Hansi K&uuml;rsch
+* C группой "Demons & Wizards" Hansi K&uuml;rsch
+* C группой "Lucifer's Heritage" Hansi K&uuml;rsch
+* C группой "Avantasia" Tobias Sammet
 
 ## Обсуждения
 

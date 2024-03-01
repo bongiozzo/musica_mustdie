@@ -11,7 +11,7 @@ black-power from Portugal
 
 ## Отношения с другими группами
 
-C группой "Firstborn Evil" 
+* C группой "Firstborn Evil" 
 
 ## Обсуждения
 

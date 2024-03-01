@@ -322,7 +322,7 @@ Gered Mankowitz  -  Photography
 
 ## Отношения с другими группами
 
-C группой "Thin Lizzy" Gary Moore
+* C группой "Thin Lizzy" Gary Moore
 
 ## Обсуждения
 

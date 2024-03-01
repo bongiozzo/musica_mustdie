@@ -81,7 +81,7 @@ Thanateros band photos by Peter Dubro
 
 ## Отношения с другими группами
 
-C группой "Dreadful Shadows" Jenne Riediger
+* C группой "Dreadful Shadows" Jenne Riediger
 
 ## Обсуждения
 

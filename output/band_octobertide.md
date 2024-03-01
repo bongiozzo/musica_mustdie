@@ -87,9 +87,9 @@ Recorded, mixed and mastered at Wing Studios.
 
 ## Отношения с другими группами
 
-C группой "Katatonia" Jonas Renkse
-C группой "Bloodbath" Jonas Renkse
-C группой "Trees of Eternity" 
+* C группой "Katatonia" Jonas Renkse
+* C группой "Bloodbath" Jonas Renkse
+* C группой "Trees of Eternity" 
 
 ## Обсуждения
 

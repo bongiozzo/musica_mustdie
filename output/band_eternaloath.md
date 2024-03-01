@@ -61,7 +61,7 @@ Female Vocals by Helene
 
 ## Отношения с другими группами
 
-C группой "Mork Gryning" Kimera (vocal/guitar)
+* C группой "Mork Gryning" Kimera (vocal/guitar)
 
 ## Обсуждения
 

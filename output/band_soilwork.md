@@ -307,10 +307,10 @@ Mixed and mastered at Fascination Street Studios in Orebro, Sweden.
 
 ## Отношения с другими группами
 
-C группой "The Defaced" Henry Ranta
-C группой "Therion" Richard Evensand (drums)
-C группой "Ebony Tears" Richard Evensand (drums)
-C группой "Terror 2000" Bjorn Speed Strid
+* C группой "The Defaced" Henry Ranta
+* C группой "Therion" Richard Evensand (drums)
+* C группой "Ebony Tears" Richard Evensand (drums)
+* C группой "Terror 2000" Bjorn Speed Strid
 
 ## Обсуждения
 

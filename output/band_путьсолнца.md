@@ -38,9 +38,9 @@
 
 ## Отношения с другими группами
 
-C группой "Stigmatic Chorus" Belf
-C группой "Изморозь" Belf
-C группой "Ashen Light" Belf
+* C группой "Stigmatic Chorus" Belf
+* C группой "Изморозь" Belf
+* C группой "Ashen Light" Belf
 
 ## Обсуждения
 

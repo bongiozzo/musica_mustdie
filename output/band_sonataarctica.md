@@ -293,16 +293,16 @@ A music video was shot for 'The Wolves Die Young'.
 
 ## Отношения с другими группами
 
-C группой "Altaria" Jani Liimatainen
-C группой "Cain's Offering" Jani Liimatainen
-C группой "Cain's Offering" Mikko Harkin (keyboards)
-C группой "Kotipelto" Mikko Harkin (keyboards)
-C группой "Kenziner" Mikko Harkin (keyboards)
-C группой "Wingdom" Mikko Harkin (keyboards)
-C группой "Mehida" Mikko Harkin (keyboards)
-C группой "Solution .45" Mikko Harkin (keyboards)
-C группой "Symfonia" Mikko Harkin (keyboards)
-C группой "Elias Viljanen" Elias "E.Vil" Viljanen
+* C группой "Altaria" Jani Liimatainen
+* C группой "Cain's Offering" Jani Liimatainen
+* C группой "Cain's Offering" Mikko Harkin (keyboards)
+* C группой "Kotipelto" Mikko Harkin (keyboards)
+* C группой "Kenziner" Mikko Harkin (keyboards)
+* C группой "Wingdom" Mikko Harkin (keyboards)
+* C группой "Mehida" Mikko Harkin (keyboards)
+* C группой "Solution .45" Mikko Harkin (keyboards)
+* C группой "Symfonia" Mikko Harkin (keyboards)
+* C группой "Elias Viljanen" Elias "E.Vil" Viljanen
 
 ## Обсуждения
 

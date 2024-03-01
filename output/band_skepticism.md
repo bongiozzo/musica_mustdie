@@ -88,7 +88,7 @@ Lasse Pelkonen - Drums
 
 ## Отношения с другими группами
 
-C группой "Thromdarr" 
+* C группой "Thromdarr" 
 
 ## Обсуждения
 

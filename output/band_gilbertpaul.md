@@ -114,8 +114,8 @@
 
 ## Отношения с другими группами
 
-C группой "Sheehan, Billy" Bass Player
-C группой "Hughes Turner Project" Paul Gilbert (guitars)
+* C группой "Sheehan, Billy" Bass Player
+* C группой "Hughes Turner Project" Paul Gilbert (guitars)
 
 ## Обсуждения
 

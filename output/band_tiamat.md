@@ -345,10 +345,10 @@ A video was made for the title track.
 
 ## Отношения с другими группами
 
-C группой "Sundown" Johnny Hagel
-C группой "Lithium" Johnny Hagel
-C группой "Sorcerer" Johnny Hagel
-C группой "Lucyfire" Edlund
+* C группой "Sundown" Johnny Hagel
+* C группой "Lithium" Johnny Hagel
+* C группой "Sorcerer" Johnny Hagel
+* C группой "Lucyfire" Edlund
 
 ## Обсуждения
 

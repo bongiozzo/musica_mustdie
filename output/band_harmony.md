@@ -25,9 +25,9 @@ power-metal from Sweden
 
 ## Отношения с другими группами
 
-C группой "Narnia" Andreas Olsson
-C группой "Wisdom Call" Andreas Olsson
-C группой "Stormwind" Andreas Olsson
+* C группой "Narnia" Andreas Olsson
+* C группой "Wisdom Call" Andreas Olsson
+* C группой "Stormwind" Andreas Olsson
 
 ## Обсуждения
 

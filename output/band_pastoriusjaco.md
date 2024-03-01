@@ -212,7 +212,7 @@ Rick Smith  -  Saxophone, Drum Programming
 
 ## Отношения с другими группами
 
-C группой "Weather Report" Bass player
+* C группой "Weather Report" Bass player
 
 ## Обсуждения
 

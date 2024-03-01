@@ -719,11 +719,11 @@ September/October 2015 at Megafon Studios (Burscheid, Germany) at Soundchaser St
 
 ## Отношения с другими группами
 
-C группой "Victor Smolski" Victor Smolski
-C группой "Running Wild" Jorg Michael
-C группой "Stratovarius" Jorg Michael
-C группой "Grave Digger" guiter player Manni Schmidt (ex-Rage)
-C группой "Terrana, Mike" Mike Terrana (drums)
+* C группой "Victor Smolski" Victor Smolski
+* C группой "Running Wild" Jorg Michael
+* C группой "Stratovarius" Jorg Michael
+* C группой "Grave Digger" guiter player Manni Schmidt (ex-Rage)
+* C группой "Terrana, Mike" Mike Terrana (drums)
 
 ## Обсуждения
 

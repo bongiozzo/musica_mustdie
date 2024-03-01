@@ -7,8 +7,8 @@
 
 ## Отношения с другими группами
 
-C группой "Testament" Guitar
-C группой "Savatage" Guitar
+* C группой "Testament" Guitar
+* C группой "Savatage" Guitar
 
 ## Обсуждения
 

@@ -333,9 +333,9 @@ Recorded at Little Sun Creek Lounge Studio, Germany.
 
 ## Отношения с другими группами
 
-C группой "Powerworld" Ilker Ersin (bass)
-C группой "Powerworld" Nils Neumann (keyboards)
-C группой "Gamma Ray" Nils Neumann (keyboards)
+* C группой "Powerworld" Ilker Ersin (bass)
+* C группой "Powerworld" Nils Neumann (keyboards)
+* C группой "Gamma Ray" Nils Neumann (keyboards)
 
 ## Обсуждения
 

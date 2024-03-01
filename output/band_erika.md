@@ -48,9 +48,9 @@ Fredrik Lundfeldt (drums)
 
 ## Отношения с другими группами
 
-C группой "Talisman" Jansson Brothers
-C группой "Snakes in Paradise" Jansson Brothers
-C группой "Tears of Anger" Jansson Brothers
+* C группой "Talisman" Jansson Brothers
+* C группой "Snakes in Paradise" Jansson Brothers
+* C группой "Tears of Anger" Jansson Brothers
 
 ## Обсуждения
 

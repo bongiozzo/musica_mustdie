@@ -396,10 +396,10 @@ Mastered at Eroc’s Mastering Ranch.
 
 ## Отношения с другими группами
 
-C группой "Imperia" Jan Yrlund (guitar)
-C группой "Lacrimosa" Jan Yrlund (guitar)
-C группой "Angel" Jan Yrlund (guitar)
-C группой "Danse Macabre" Jan Yrlund (guitar)
+* C группой "Imperia" Jan Yrlund (guitar)
+* C группой "Lacrimosa" Jan Yrlund (guitar)
+* C группой "Angel" Jan Yrlund (guitar)
+* C группой "Danse Macabre" Jan Yrlund (guitar)
 
 ## Обсуждения
 

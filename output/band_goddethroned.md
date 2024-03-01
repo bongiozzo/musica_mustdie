@@ -157,10 +157,10 @@ Ariлn Van Weesenbeek - drums
 
 ## Отношения с другими группами
 
-C группой "Mayan" Isaac Delahaye (guitar)
-C группой "Epica" Isaac Delahaye (guitar)
-C группой "Epica" Arien van Weesenbeek (drums)
-C группой "Mayan" Arien van Weesenbeek (drums)
+* C группой "Mayan" Isaac Delahaye (guitar)
+* C группой "Epica" Isaac Delahaye (guitar)
+* C группой "Epica" Arien van Weesenbeek (drums)
+* C группой "Mayan" Arien van Weesenbeek (drums)
 
 ## Обсуждения
 

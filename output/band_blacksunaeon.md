@@ -51,7 +51,7 @@ Mikko Heikkilд - Clean Vocals (studio), Guitars (rhythm)
 
 ## Отношения с другими группами
 
-C группой "Before The Dawn" Tuomas Saukkonen
+* C группой "Before The Dawn" Tuomas Saukkonen
 
 ## Обсуждения
 

@@ -22,8 +22,8 @@ Poison Roses
 
 ## Отношения с другими группами
 
-C группой "Black Sabbath" 
-C группой "Tony Martin" 
+* C группой "Black Sabbath" 
+* C группой "Tony Martin" 
 
 ## Обсуждения
 

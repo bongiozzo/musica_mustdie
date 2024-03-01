@@ -129,11 +129,11 @@
 
 ## Отношения с другими группами
 
-C группой "Fates Warning" Joey Vera (bass)
-C группой "John Arch" Joey Vera (bass)
-C группой "Arch/Matheos" Joey Vera (bass)
-C группой "Anthrax" Joey Vera (bass)
-C группой "Seven Witches" Joey Vera (bass)
+* C группой "Fates Warning" Joey Vera (bass)
+* C группой "John Arch" Joey Vera (bass)
+* C группой "Arch/Matheos" Joey Vera (bass)
+* C группой "Anthrax" Joey Vera (bass)
+* C группой "Seven Witches" Joey Vera (bass)
 
 ## Обсуждения
 

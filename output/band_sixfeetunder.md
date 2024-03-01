@@ -314,12 +314,12 @@ Jeff Hughell - Bass
 
 ## Отношения с другими группами
 
-C группой "Massacre" Terry Butler played in Massacre
-C группой "Obituary" Allen West from Obituary plays in Six Feet Under
-C группой "Lowbrow" Allen West from Obituary plays in Six Feet Under
-C группой "Cannibal Corpse" Chris Barnes moved to Six Feet Under at 1995.
-C группой "Torture Killer" Chris Barnes moved to Six Feet Under at 1995.
-C группой "Death" Terry Butler was a drummer at Death's "Leprosy"
+* C группой "Massacre" Terry Butler played in Massacre
+* C группой "Obituary" Allen West from Obituary plays in Six Feet Under
+* C группой "Lowbrow" Allen West from Obituary plays in Six Feet Under
+* C группой "Cannibal Corpse" Chris Barnes moved to Six Feet Under at 1995.
+* C группой "Torture Killer" Chris Barnes moved to Six Feet Under at 1995.
+* C группой "Death" Terry Butler was a drummer at Death's "Leprosy"
 
 ## Обсуждения
 

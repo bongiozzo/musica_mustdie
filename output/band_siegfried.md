@@ -104,14 +104,14 @@ Patrick Schrittwieser - Drums
 
 ## Отношения с другими группами
 
-C группой "Dreams of Sanity" Sandra Schleret
-C группой "Atrocity (Germany)" Moritz Neuner
-C группой "Abigor" Moritz Neuner
-C группой "Graveworm" Moritz Neuner
-C группой "Darkwell" Moritz Neuner
-C группой "Shadowcast" Moritz Neuner
-C группой "Leaves' Eyes" Moritz Neuner
-C группой "Darkwell" Roland Wurzer
+* C группой "Dreams of Sanity" Sandra Schleret
+* C группой "Atrocity (Germany)" Moritz Neuner
+* C группой "Abigor" Moritz Neuner
+* C группой "Graveworm" Moritz Neuner
+* C группой "Darkwell" Moritz Neuner
+* C группой "Shadowcast" Moritz Neuner
+* C группой "Leaves' Eyes" Moritz Neuner
+* C группой "Darkwell" Roland Wurzer
 
 ## Обсуждения
 

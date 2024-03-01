@@ -106,8 +106,8 @@ Deluxe edition contains a bonus track - Concerto (Cacophony cover)
 
 ## Отношения с другими группами
 
-C группой "Mayan" Jeroen Paul Thesseling (bass)
-C группой "Pestilence" Jeroen Paul Thesseling (bass)
+* C группой "Mayan" Jeroen Paul Thesseling (bass)
+* C группой "Pestilence" Jeroen Paul Thesseling (bass)
 
 ## Обсуждения
 

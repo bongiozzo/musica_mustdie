@@ -47,7 +47,7 @@ Jeff Wade - Drums (Vanderhoof)
 
 ## Отношения с другими группами
 
-C группой "Metal Church" Kurdt Vanderhoof
+* C группой "Metal Church" Kurdt Vanderhoof
 
 ## Обсуждения
 

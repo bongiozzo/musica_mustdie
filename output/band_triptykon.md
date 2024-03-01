@@ -39,8 +39,8 @@
 
 ## Отношения с другими группами
 
-C группой "Celtic Frost" Tom Gabriel Fischer
-C группой "Hellhammer" 
+* C группой "Celtic Frost" Tom Gabriel Fischer
+* C группой "Hellhammer" 
 
 ## Обсуждения
 

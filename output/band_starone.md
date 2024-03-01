@@ -65,14 +65,14 @@ Limited edition contains a bonus CD with following tracklist.
 
 ## Отношения с другими группами
 
-C группой "Gorefest" Ed Warby
-C группой "11th Hour" Ed Warby
-C группой "Demiurg (SWE)" Ed Warby
-C группой "Hail Of Bullets" Ed Warby
-C группой "Ayreon" Ed Warby
-C группой "Threshold" Damien Wilson (vocal)
-C группой "Wilson, Damian" Damien Wilson (vocal)
-C группой "Ayreon" Damien Wilson (vocal)
+* C группой "Gorefest" Ed Warby
+* C группой "11th Hour" Ed Warby
+* C группой "Demiurg (SWE)" Ed Warby
+* C группой "Hail Of Bullets" Ed Warby
+* C группой "Ayreon" Ed Warby
+* C группой "Threshold" Damien Wilson (vocal)
+* C группой "Wilson, Damian" Damien Wilson (vocal)
+* C группой "Ayreon" Damien Wilson (vocal)
 
 ## Обсуждения
 

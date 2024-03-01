@@ -69,7 +69,7 @@ DIGITAL TREATMENTS BY Gerolamo Lucisano
 
 ## Отношения с другими группами
 
-C группой "Ensoph" Mahavira
+* C группой "Ensoph" Mahavira
 
 ## Обсуждения
 

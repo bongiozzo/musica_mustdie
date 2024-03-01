@@ -28,8 +28,8 @@ All songs by Matt Moliti
 
 ## Отношения с другими группами
 
-C группой "Persuader" 
-C группой "Savage Circus" 
+* C группой "Persuader" 
+* C группой "Savage Circus" 
 
 ## Обсуждения
 

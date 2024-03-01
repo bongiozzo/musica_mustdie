@@ -388,8 +388,8 @@ Exclusive song that will not appear on the Feel the Misery album
 
 ## Отношения с другими группами
 
-C группой "Anathema" Martin Powell
-C группой "Cradle of Filth" Martin Powell
+* C группой "Anathema" Martin Powell
+* C группой "Cradle of Filth" Martin Powell
 
 ## Обсуждения
 

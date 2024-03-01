@@ -147,11 +147,11 @@
 
 ## Отношения с другими группами
 
-C группой "Norum, John" Dokken
-C группой "Don Dokken" Dokken
-C группой "Lynch, George" Guitar player
-C группой "Dio" Jeff Pilson
-C группой "War and Peace" Jeff Pilson
+* C группой "Norum, John" Dokken
+* C группой "Don Dokken" Dokken
+* C группой "Lynch, George" Guitar player
+* C группой "Dio" Jeff Pilson
+* C группой "War and Peace" Jeff Pilson
 
 ## Обсуждения
 

@@ -24,7 +24,7 @@ Bridges Burning
 
 ## Отношения с другими группами
 
-C группой "Urban Tale" Kimmo Blom
+* C группой "Urban Tale" Kimmo Blom
 
 ## Обсуждения
 

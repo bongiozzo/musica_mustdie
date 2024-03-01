@@ -178,18 +178,18 @@ Sweden, with producer Fredrik Nordstrцm.
 
 ## Отношения с другими группами
 
-C группой "Susperia" сессионный музыкант Cyrus
-C группой "Susperia" drummer Tjodalv
-C группой "Ceremony" Trym
-C группой "Enslaved" Trym
-C группой "Emperor" Trym
-C группой "Zyklon" Trym
-C группой "Shadow Season" Trym
-C группой "Hagalaz Runedance" Trym
-C группой "Insidious Disease" Jon Шyvind Andersen (a.k.a. Jardar) 
-C группой "Sarke" Sarke
-C группой "Khold" Sarke
-C группой "Tulus" Sarke
+* C группой "Susperia" сессионный музыкант Cyrus
+* C группой "Susperia" drummer Tjodalv
+* C группой "Ceremony" Trym
+* C группой "Enslaved" Trym
+* C группой "Emperor" Trym
+* C группой "Zyklon" Trym
+* C группой "Shadow Season" Trym
+* C группой "Hagalaz Runedance" Trym
+* C группой "Insidious Disease" Jon Шyvind Andersen (a.k.a. Jardar) 
+* C группой "Sarke" Sarke
+* C группой "Khold" Sarke
+* C группой "Tulus" Sarke
 
 ## Обсуждения
 

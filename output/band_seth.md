@@ -66,7 +66,7 @@ French Black Metal band
 
 ## Отношения с другими группами
 
-C группой "Ad Inferna" 
+* C группой "Ad Inferna" 
 
 ## Обсуждения
 

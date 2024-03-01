@@ -51,7 +51,7 @@
 
 ## Отношения с другими группами
 
-C группой "Arkaea" Pat Kavanagh and Jon Howard 
+* C группой "Arkaea" Pat Kavanagh and Jon Howard 
 
 ## Обсуждения
 

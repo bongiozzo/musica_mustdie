@@ -22,18 +22,18 @@ Mercyful Fate guitarists
 
 ## Отношения с другими группами
 
-C группой "Memento Mori" Snowy Shaw (drums)
-C группой "King Diamond" Snowy Shaw (drums)
-C группой "Mercyful Fate" Snowy Shaw (drums)
-C группой "Dream Evil" Snowy Shaw (drums)
-C группой "Notre Dame" Snowy Shaw (drums)
-C группой "Therion" Snowy Shaw (drums)
-C группой "Mercyful Fate" Michael Denner (guitar)
-C группой "King Diamond" Michael Denner (guitar)
-C группой "Mercyful Fate" Hank Shermann (guitar)
-C группой "Demonica" Hank Shermann (guitar)
-C группой "Demonica" Marc Grabowski (bass)
-C группой "Cage " Sean Peck (vocal)
+* C группой "Memento Mori" Snowy Shaw (drums)
+* C группой "King Diamond" Snowy Shaw (drums)
+* C группой "Mercyful Fate" Snowy Shaw (drums)
+* C группой "Dream Evil" Snowy Shaw (drums)
+* C группой "Notre Dame" Snowy Shaw (drums)
+* C группой "Therion" Snowy Shaw (drums)
+* C группой "Mercyful Fate" Michael Denner (guitar)
+* C группой "King Diamond" Michael Denner (guitar)
+* C группой "Mercyful Fate" Hank Shermann (guitar)
+* C группой "Demonica" Hank Shermann (guitar)
+* C группой "Demonica" Marc Grabowski (bass)
+* C группой "Cage " Sean Peck (vocal)
 
 ## Обсуждения
 

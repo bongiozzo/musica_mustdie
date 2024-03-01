@@ -11,7 +11,7 @@
 
 ## Отношения с другими группами
 
-C группой "Putrefukation" Alex (vocals)
+* C группой "Putrefukation" Alex (vocals)
 
 ## Обсуждения
 

@@ -423,25 +423,25 @@ Freddie Vidales - Bass
 
 ## Отношения с другими группами
 
-C группой "Sadus" Steve DiGiorgio (bass)
-C группой "Death" Steve DiGiorgio (bass)
-C группой "Artension" Steve DiGiorgio (bass)
-C группой "Control Denied" Steve DiGiorgio (bass)
-C группой "Testament" Steve DiGiorgio (bass)
-C группой "Autopsy" Steve DiGiorgio (bass)
-C группой "Charred Walls Of The Damned" Steve DiGiorgio (bass)
-C группой "Faust [ITA]" Steve DiGiorgio (bass)
-C группой "Dragonlord" Steve DiGiorgio (bass)
-C группой "Demons & Wizards" Jon Schaffer
-C группой "Judas Priest" Tim Owens
-C группой "Death" Richard Christy (drums)
-C группой "Control Denied" Richard Christy (drums)
-C группой "Death" Ralph Santolla (guitar)
-C группой "Halford" Bobby Jarzombek (drums)
-C группой "Riot" Bobby Jarzombek (drums)
-C группой "Megadeth" James MacDonough
-C группой "Sons Of Liberty" 
-C группой "Ashes Of Ares" 
+* C группой "Sadus" Steve DiGiorgio (bass)
+* C группой "Death" Steve DiGiorgio (bass)
+* C группой "Artension" Steve DiGiorgio (bass)
+* C группой "Control Denied" Steve DiGiorgio (bass)
+* C группой "Testament" Steve DiGiorgio (bass)
+* C группой "Autopsy" Steve DiGiorgio (bass)
+* C группой "Charred Walls Of The Damned" Steve DiGiorgio (bass)
+* C группой "Faust [ITA]" Steve DiGiorgio (bass)
+* C группой "Dragonlord" Steve DiGiorgio (bass)
+* C группой "Demons & Wizards" Jon Schaffer
+* C группой "Judas Priest" Tim Owens
+* C группой "Death" Richard Christy (drums)
+* C группой "Control Denied" Richard Christy (drums)
+* C группой "Death" Ralph Santolla (guitar)
+* C группой "Halford" Bobby Jarzombek (drums)
+* C группой "Riot" Bobby Jarzombek (drums)
+* C группой "Megadeth" James MacDonough
+* C группой "Sons Of Liberty" 
+* C группой "Ashes Of Ares" 
 
 ## Обсуждения
 

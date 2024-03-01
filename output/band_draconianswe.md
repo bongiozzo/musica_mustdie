@@ -144,7 +144,7 @@ Artwork and layout by Dennis Sibeijn
 
 ## Отношения с другими группами
 
-C группой "Doom: VS" Johan Ericson
+* C группой "Doom: VS" Johan Ericson
 
 ## Обсуждения
 

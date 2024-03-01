@@ -434,14 +434,14 @@ Limited, deluxe and mailorder editions includes bonus DVD or Blu-Ray. It feature
 
 ## Отношения с другими группами
 
-C группой "Helloween" Udo Dirkschneider
-C группой "U.D.O." Udo Dirkschneider
-C группой "U.D.O." Stefan Schwarzmann
-C группой "Krokus" Stefan Schwarzmann
-C группой "Frank, Herman" Herman Frank (guitar)
-C группой "Sinner" Herman Frank (guitar)
-C группой "Victory" Herman Frank (guitar)
-C группой "Poison Sun" Herman Frank (guitar)
+* C группой "Helloween" Udo Dirkschneider
+* C группой "U.D.O." Udo Dirkschneider
+* C группой "U.D.O." Stefan Schwarzmann
+* C группой "Krokus" Stefan Schwarzmann
+* C группой "Frank, Herman" Herman Frank (guitar)
+* C группой "Sinner" Herman Frank (guitar)
+* C группой "Victory" Herman Frank (guitar)
+* C группой "Poison Sun" Herman Frank (guitar)
 
 ## Обсуждения
 

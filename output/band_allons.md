@@ -15,8 +15,8 @@ Thrash-death from Almaty Kazakhstan
 
 ## Отношения с другими группами
 
-C группой "Neformat" 
-C группой "Lead Weight" Басс гитарист
+* C группой "Neformat" 
+* C группой "Lead Weight" Басс гитарист
 
 ## Обсуждения
 

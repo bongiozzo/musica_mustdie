@@ -76,7 +76,7 @@ Tom Bagshaw  -  Cover Art
 
 ## Отношения с другими группами
 
-C группой "13" Liz Buckingham
+* C группой "13" Liz Buckingham
 
 ## Обсуждения
 

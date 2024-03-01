@@ -58,7 +58,7 @@ Booklet Layout by Redblack
 
 ## Отношения с другими группами
 
-C группой "Root" Peter "Blackie" Hosek
+* C группой "Root" Peter "Blackie" Hosek
 
 ## Обсуждения
 

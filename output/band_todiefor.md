@@ -145,11 +145,11 @@ Recorded, mixed and mastered by Juho Rдihд in SoundSpiral Audio
 
 ## Отношения с другими группами
 
-C группой "Tiaga" Juppe "J.P." Sutela (guitar)
-C группой "Tiaga" Jape Peratalo (vocal)
-C группой "Tiaga" Mika "Alli" Ahtiainen (guitar)
-C группой "Sinergy" Tonmi Lillman
-C группой "Kylahullut" Tonmi Lillman
+* C группой "Tiaga" Juppe "J.P." Sutela (guitar)
+* C группой "Tiaga" Jape Peratalo (vocal)
+* C группой "Tiaga" Mika "Alli" Ahtiainen (guitar)
+* C группой "Sinergy" Tonmi Lillman
+* C группой "Kylahullut" Tonmi Lillman
 
 ## Обсуждения
 

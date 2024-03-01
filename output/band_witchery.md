@@ -94,7 +94,7 @@ Martin Axe - Drums
 
 ## Отношения с другими группами
 
-C группой "King Diamond" Sharlee d'Angelo
+* C группой "King Diamond" Sharlee d'Angelo
 
 ## Обсуждения
 

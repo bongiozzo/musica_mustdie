@@ -24,7 +24,7 @@
 
 ## Отношения с другими группами
 
-C группой "Blacksmith" Per Englund (vocal)
+* C группой "Blacksmith" Per Englund (vocal)
 
 ## Обсуждения
 

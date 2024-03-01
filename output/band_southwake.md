@@ -19,10 +19,10 @@ ex-NOR DREAM
 
 ## Отношения с другими группами
 
-C группой "Ens Cogitans" Vladimir Moochnov (drums)
-C группой "Catharsis" Vladimir Moochnov (drums)
-C группой "Nordream" Ruben (guitar)
-C группой "Ens Cogitans" Ruben (guitar)
+* C группой "Ens Cogitans" Vladimir Moochnov (drums)
+* C группой "Catharsis" Vladimir Moochnov (drums)
+* C группой "Nordream" Ruben (guitar)
+* C группой "Ens Cogitans" Ruben (guitar)
 
 ## Обсуждения
 

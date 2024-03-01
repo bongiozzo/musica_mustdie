@@ -103,7 +103,7 @@ Peter Lof - Synthesizers
 
 ## Отношения с другими группами
 
-C группой "Rutthna" 
+* C группой "Rutthna" 
 
 ## Обсуждения
 

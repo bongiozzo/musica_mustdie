@@ -32,10 +32,10 @@
 
 ## Отношения с другими группами
 
-C группой "Cradle of Filth" Sarah Jezebel Deva
-C группой "Therion" Sarah Jezebel Deva
-C группой "Mortiis" Sarah Jezebel Deva
-C группой "Angtoria" Sarah Jezebel Deva
+* C группой "Cradle of Filth" Sarah Jezebel Deva
+* C группой "Therion" Sarah Jezebel Deva
+* C группой "Mortiis" Sarah Jezebel Deva
+* C группой "Angtoria" Sarah Jezebel Deva
 
 ## Обсуждения
 

@@ -79,10 +79,10 @@ Vitalij Kuprij  -  Piano, Producer
 
 ## Отношения с другими группами
 
-C группой "Artension" Artension keyboardist
-C группой "Ring of Fire" Keyboardist
-C группой "George Bellas" Extreme Measures (1998)
-C группой "Boals, Mark" Keyboardist
+* C группой "Artension" Artension keyboardist
+* C группой "Ring of Fire" Keyboardist
+* C группой "George Bellas" Extreme Measures (1998)
+* C группой "Boals, Mark" Keyboardist
 
 ## Обсуждения
 

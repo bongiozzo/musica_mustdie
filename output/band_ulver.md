@@ -144,8 +144,8 @@ Subtopia.
 
 ## Отношения с другими группами
 
-C группой "Arcturus" Sverd (keys)
-C группой "Kovenant" Sverd (keys)
+* C группой "Arcturus" Sverd (keys)
+* C группой "Kovenant" Sverd (keys)
 
 ## Обсуждения
 

@@ -150,7 +150,7 @@ Digipack bonus tracks:
 
 ## Отношения с другими группами
 
-C группой "The Unguided" 
+* C группой "The Unguided" 
 
 ## Обсуждения
 

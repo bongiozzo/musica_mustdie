@@ -36,7 +36,7 @@ Svetlana Hodyakova - female vocal
 
 ## Отношения с другими группами
 
-C группой "Little Dead Bertha" Sergey, Dmitriy P.
+* C группой "Little Dead Bertha" Sergey, Dmitriy P.
 
 ## Обсуждения
 

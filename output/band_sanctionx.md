@@ -31,9 +31,9 @@ Cover Artwork by Oliver Lehmahn
 
 ## Отношения с другими группами
 
-C группой "Evidence One" Robby Bobel (guitars)
-C группой "Frontline" Robby Bobel (guitars)
-C группой "Talon" Robby Bobel (guitars)
+* C группой "Evidence One" Robby Bobel (guitars)
+* C группой "Frontline" Robby Bobel (guitars)
+* C группой "Talon" Robby Bobel (guitars)
 
 ## Обсуждения
 

@@ -31,7 +31,7 @@
 
 ## Отношения с другими группами
 
-C группой "Cephalic Carnage" Steve Goldberg, Zac Joe
+* C группой "Cephalic Carnage" Steve Goldberg, Zac Joe
 
 ## Обсуждения
 

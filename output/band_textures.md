@@ -63,7 +63,7 @@ Daniel de Jongh - Vocals
 
 ## Отношения с другими группами
 
-C группой "Exivious" Stef Broks (drums)
+* C группой "Exivious" Stef Broks (drums)
 
 ## Обсуждения
 

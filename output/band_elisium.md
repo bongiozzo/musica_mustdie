@@ -7,7 +7,7 @@ russian power-heavy
 
 ## Отношения с другими группами
 
-C группой "MUSICA (compilation)" Elisium
+* C группой "MUSICA (compilation)" Elisium
 
 ## Обсуждения
 

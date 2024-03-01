@@ -63,7 +63,7 @@ Paul Adrian Villarreal Vocals
 
 ## Отношения с другими группами
 
-C группой "Hubi Meisel" Marcel Coenen
+* C группой "Hubi Meisel" Marcel Coenen
 
 ## Обсуждения
 

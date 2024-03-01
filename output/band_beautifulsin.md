@@ -22,9 +22,9 @@
 
 ## Отношения с другими группами
 
-C группой "Helloween" Uli Kusch
-C группой "Masterplan" Uli Kusch
-C группой "Symfonia" Uli Kusch
+* C группой "Helloween" Uli Kusch
+* C группой "Masterplan" Uli Kusch
+* C группой "Symfonia" Uli Kusch
 
 ## Обсуждения
 

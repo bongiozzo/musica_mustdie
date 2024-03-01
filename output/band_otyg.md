@@ -38,11 +38,11 @@ Gygralock
 
 ## Отношения с другими группами
 
-C группой "Borknagar" A. Hedlund
-C группой "Vintersorg" A. Hedlund
-C группой "Havayoth" A. Hedlund
-C группой "Fission" A. Hedlund
-C группой "Vintersorg" Mattias Marklund (guitar)
+* C группой "Borknagar" A. Hedlund
+* C группой "Vintersorg" A. Hedlund
+* C группой "Havayoth" A. Hedlund
+* C группой "Fission" A. Hedlund
+* C группой "Vintersorg" Mattias Marklund (guitar)
 
 ## Обсуждения
 

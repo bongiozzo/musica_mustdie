@@ -78,8 +78,8 @@ Grey
 
 ## Отношения с другими группами
 
-C группой "Nightwish" Marco Hietala
-C группой "Sinergy" Marco Hietala
+* C группой "Nightwish" Marco Hietala
+* C группой "Sinergy" Marco Hietala
 
 ## Обсуждения
 

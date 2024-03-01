@@ -101,7 +101,7 @@ Brian Lee  -  Mastering
 
 ## Отношения с другими группами
 
-C группой "Vaughan, Stevie Ray" Stevie Ray Vaughan
+* C группой "Vaughan, Stevie Ray" Stevie Ray Vaughan
 
 ## Обсуждения
 

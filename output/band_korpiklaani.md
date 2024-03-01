@@ -249,8 +249,8 @@ The song describes part of the Kalevala story, the national epic of Finland.
 
 ## Отношения с другими группами
 
-C группой "Shaman (Finland)" Jonne
-C группой "Falchion" 
+* C группой "Shaman (Finland)" Jonne
+* C группой "Falchion" 
 
 ## Обсуждения
 

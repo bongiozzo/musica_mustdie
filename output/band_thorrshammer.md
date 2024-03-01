@@ -15,8 +15,8 @@
 
 ## Отношения с другими группами
 
-C группой "Sunn O)))" Stephen O'Malley
-C группой "Burning Witch" Stephen O'Malley
+* C группой "Sunn O)))" Stephen O'Malley
+* C группой "Burning Witch" Stephen O'Malley
 
 ## Обсуждения
 

@@ -38,12 +38,12 @@ Electro/Synth metal
 
 ## Отношения с другими группами
 
-C группой "Atrocity (Germany)" Moritz Neuner
-C группой "Abigor" Moritz Neuner
-C группой "Graveworm" Moritz Neuner
-C группой "Siegfried" Moritz Neuner
-C группой "Darkwell" Moritz Neuner
-C группой "Leaves' Eyes" Moritz Neuner
+* C группой "Atrocity (Germany)" Moritz Neuner
+* C группой "Abigor" Moritz Neuner
+* C группой "Graveworm" Moritz Neuner
+* C группой "Siegfried" Moritz Neuner
+* C группой "Darkwell" Moritz Neuner
+* C группой "Leaves' Eyes" Moritz Neuner
 
 ## Обсуждения
 

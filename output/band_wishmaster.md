@@ -22,7 +22,7 @@ All lyrics by Max
 
 ## Отношения с другими группами
 
-C группой "MUSICA (compilation)" Wishmaster
+* C группой "MUSICA (compilation)" Wishmaster
 
 ## Обсуждения
 

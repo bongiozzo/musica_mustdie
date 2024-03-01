@@ -15,8 +15,8 @@
 
 ## Отношения с другими группами
 
-C группой "Gorgoroth" Pest (vocal)
-C группой "Blood Stained Dusk" Pest (vocal)
+* C группой "Gorgoroth" Pest (vocal)
+* C группой "Blood Stained Dusk" Pest (vocal)
 
 ## Обсуждения
 

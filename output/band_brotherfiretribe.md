@@ -7,7 +7,7 @@
 
 ## Отношения с другими группами
 
-C группой "Leverage" Pekka Heino (vocal)
+* C группой "Leverage" Pekka Heino (vocal)
 
 ## Обсуждения
 

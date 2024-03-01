@@ -33,7 +33,7 @@ Stephen Pursey - Guest Solo
 
 ## Отношения с другими группами
 
-C группой "After Forever" Sander Gommans
+* C группой "After Forever" Sander Gommans
 
 ## Обсуждения
 

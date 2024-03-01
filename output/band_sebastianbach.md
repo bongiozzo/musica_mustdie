@@ -49,11 +49,11 @@ Youth Gone Wild [Live]
 
 ## Отношения с другими группами
 
-C группой "Skid Row" Sebastian Bach (vocal)
-C группой "Fates Warning" Bobby Jarzombek  (drums)
-C группой "Halford" Bobby Jarzombek  (drums)
-C группой "Arch/Matheos" Bobby Jarzombek  (drums)
-C группой "Riot" Bobby Jarzombek  (drums)
+* C группой "Skid Row" Sebastian Bach (vocal)
+* C группой "Fates Warning" Bobby Jarzombek  (drums)
+* C группой "Halford" Bobby Jarzombek  (drums)
+* C группой "Arch/Matheos" Bobby Jarzombek  (drums)
+* C группой "Riot" Bobby Jarzombek  (drums)
 
 ## Обсуждения
 

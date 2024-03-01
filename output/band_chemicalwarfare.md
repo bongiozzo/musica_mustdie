@@ -7,7 +7,7 @@ Gods Tower roots
 
 ## Отношения с другими группами
 
-C группой "Gods Tower" 
+* C группой "Gods Tower" 
 
 ## Обсуждения
 

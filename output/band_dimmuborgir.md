@@ -496,27 +496,27 @@ Cover artwork by Joachim Luetke.
 
 ## Отношения с другими группами
 
-C группой "Sinergy" Kimberly Goss
-C группой "Troll" Nagash
-C группой "Kovenant" Nagash
-C группой "Carpe Tenebrum" Nagash
-C группой "Susperia" Tjodalv (drums)
-C группой "Benediction" Nick Barker (drums)
-C группой "Cradle of Filth" Nick Barker (drums)
-C группой "Lock Up" Nick Barker (drums)
-C группой "Brujeria" Nick Barker (drums)
-C группой "Chrome Division" Shagrath
-C группой "Ov Hell" Shagrath
-C группой "Ragnarok (NOR)" Shagrath
-C группой "Insidious Disease" Sven Atle Kopperud (a.k.a. Silenoz)
-C группой "Insidious Disease" Tony Laureano 
-C группой "Nile" Tony Laureano 
-C группой "Angelcorpse" Tony Laureano 
-C группой "Artisan" ICS Vortex (bass, vocals)
-C группой "ICS Vortex" ICS Vortex (bass, vocals)
-C группой "Borknagar" ICS Vortex (bass, vocals)
-C группой "Arcturus" ICS Vortex (bass, vocals)
-C группой "Artisan" Mustis (keyboards)
+* C группой "Sinergy" Kimberly Goss
+* C группой "Troll" Nagash
+* C группой "Kovenant" Nagash
+* C группой "Carpe Tenebrum" Nagash
+* C группой "Susperia" Tjodalv (drums)
+* C группой "Benediction" Nick Barker (drums)
+* C группой "Cradle of Filth" Nick Barker (drums)
+* C группой "Lock Up" Nick Barker (drums)
+* C группой "Brujeria" Nick Barker (drums)
+* C группой "Chrome Division" Shagrath
+* C группой "Ov Hell" Shagrath
+* C группой "Ragnarok (NOR)" Shagrath
+* C группой "Insidious Disease" Sven Atle Kopperud (a.k.a. Silenoz)
+* C группой "Insidious Disease" Tony Laureano 
+* C группой "Nile" Tony Laureano 
+* C группой "Angelcorpse" Tony Laureano 
+* C группой "Artisan" ICS Vortex (bass, vocals)
+* C группой "ICS Vortex" ICS Vortex (bass, vocals)
+* C группой "Borknagar" ICS Vortex (bass, vocals)
+* C группой "Arcturus" ICS Vortex (bass, vocals)
+* C группой "Artisan" Mustis (keyboards)
 
 ## Обсуждения
 

@@ -20,9 +20,9 @@
 
 ## Отношения с другими группами
 
-C группой "Mercyful Fate" Hank Shermann (guitar)
-C группой "Denner / Shermann" Hank Shermann (guitar)
-C группой "Denner / Shermann" Marc Grabowski (bass)
+* C группой "Mercyful Fate" Hank Shermann (guitar)
+* C группой "Denner / Shermann" Hank Shermann (guitar)
+* C группой "Denner / Shermann" Marc Grabowski (bass)
 
 ## Обсуждения
 

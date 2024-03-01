@@ -46,17 +46,17 @@
 
 ## Отношения с другими группами
 
-C группой "DivineFire" Jani Stefanovic
-C группой "Sins of Omission" Jani Stefanovic
-C группой "Crimson Moonlight" Jani Stefanovic
-C группой "Mehida" Jani Stefanovic
-C группой "Solution .45" Jani Stefanovic
-C группой "Scar Symmetry" Christian Alvestam
-C группой "Solar Dawn" Christian Alvestam
-C группой "Incapacity" Christian Alvestam
-C группой "Torchbearer" Christian Alvestam
-C группой "Unmoored" Christian Alvestam
-C группой "Solution .45" Christian Alvestam
+* C группой "DivineFire" Jani Stefanovic
+* C группой "Sins of Omission" Jani Stefanovic
+* C группой "Crimson Moonlight" Jani Stefanovic
+* C группой "Mehida" Jani Stefanovic
+* C группой "Solution .45" Jani Stefanovic
+* C группой "Scar Symmetry" Christian Alvestam
+* C группой "Solar Dawn" Christian Alvestam
+* C группой "Incapacity" Christian Alvestam
+* C группой "Torchbearer" Christian Alvestam
+* C группой "Unmoored" Christian Alvestam
+* C группой "Solution .45" Christian Alvestam
 
 ## Обсуждения
 

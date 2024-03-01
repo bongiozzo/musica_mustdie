@@ -38,17 +38,17 @@ Hans-Peter Frey - Drums
 
 ## Отношения с другими группами
 
-C группой "Therion" Hansi K&uuml;rsch
-C группой "Grave Digger" Hansi K&uuml;rsch
-C группой "Blind Guardian" Hansi K&uuml;rsch
-C группой "Gamma Ray" Hansi K&uuml;rsch
-C группой "Iron Savior" Hansi K&uuml;rsch
-C группой "Edguy" Hansi K&uuml;rsch
-C группой "Demons & Wizards" Hansi K&uuml;rsch
-C группой "Blind Guardian" Tomas Stauch
-C группой "Gamma Ray" Tomas Stauch
-C группой "Iron Savior" Tomas Stauch
-C группой "Blind Guardian" Andr&eacute; Olbrich
+* C группой "Therion" Hansi K&uuml;rsch
+* C группой "Grave Digger" Hansi K&uuml;rsch
+* C группой "Blind Guardian" Hansi K&uuml;rsch
+* C группой "Gamma Ray" Hansi K&uuml;rsch
+* C группой "Iron Savior" Hansi K&uuml;rsch
+* C группой "Edguy" Hansi K&uuml;rsch
+* C группой "Demons & Wizards" Hansi K&uuml;rsch
+* C группой "Blind Guardian" Tomas Stauch
+* C группой "Gamma Ray" Tomas Stauch
+* C группой "Iron Savior" Tomas Stauch
+* C группой "Blind Guardian" Andr&eacute; Olbrich
 
 ## Обсуждения
 

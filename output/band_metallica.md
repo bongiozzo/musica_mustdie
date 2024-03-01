@@ -737,13 +737,13 @@ Disc 2
 
 ## Отношения с другими группами
 
-C группой "Voivod" Jason Newsted
-C группой "Flotsam & Jetsam" Jason Newsted
-C группой "EchoBrain" Jason Newsted
-C группой "Papa Wheelie" Jason Newsted
-C группой "Megadeth" Dave Mustain
-C группой "MD '45 (Dave Mustaine)" Dave Mustain
-C группой "Exodus" Kirk Hammett (guitar)
+* C группой "Voivod" Jason Newsted
+* C группой "Flotsam & Jetsam" Jason Newsted
+* C группой "EchoBrain" Jason Newsted
+* C группой "Papa Wheelie" Jason Newsted
+* C группой "Megadeth" Dave Mustain
+* C группой "MD '45 (Dave Mustaine)" Dave Mustain
+* C группой "Exodus" Kirk Hammett (guitar)
 
 ## Обсуждения
 

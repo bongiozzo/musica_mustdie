@@ -31,8 +31,8 @@
 
 ## Отношения с другими группами
 
-C группой "Gehenna" S. Winter (drums)
-C группой "Aeternus" S. Winter (drums)
+* C группой "Gehenna" S. Winter (drums)
+* C группой "Aeternus" S. Winter (drums)
 
 ## Обсуждения
 

@@ -77,16 +77,16 @@ Widows And Orphans
 
 ## Отношения с другими группами
 
-C группой "Savatage" Jack Frost
-C группой "Metalium" Jack Frost
-C группой "Crimson Glory" Wade Black
-C группой "Black Reign" Wade Black
-C группой "Leatherwolf" Wade Black
-C группой "Fates Warning" Joey Vera (bass)
-C группой "Armored Saint" Joey Vera (bass)
-C группой "John Arch" Joey Vera (bass)
-C группой "Arch/Matheos" Joey Vera (bass)
-C группой "Anthrax" Joey Vera (bass)
+* C группой "Savatage" Jack Frost
+* C группой "Metalium" Jack Frost
+* C группой "Crimson Glory" Wade Black
+* C группой "Black Reign" Wade Black
+* C группой "Leatherwolf" Wade Black
+* C группой "Fates Warning" Joey Vera (bass)
+* C группой "Armored Saint" Joey Vera (bass)
+* C группой "John Arch" Joey Vera (bass)
+* C группой "Arch/Matheos" Joey Vera (bass)
+* C группой "Anthrax" Joey Vera (bass)
 
 ## Обсуждения
 

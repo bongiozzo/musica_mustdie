@@ -20,12 +20,12 @@ doom
 
 ## Отношения с другими группами
 
-C группой "Sea Of Desperation" Lefthander
-C группой "Lefthander" Lefthander
-C группой "Groves In Mist" Lefthander
-C группой "Raxa" Lefthander
-C группой "Harmahis" Lefthander
-C группой "Harmahis" Senmuth
+* C группой "Sea Of Desperation" Lefthander
+* C группой "Lefthander" Lefthander
+* C группой "Groves In Mist" Lefthander
+* C группой "Raxa" Lefthander
+* C группой "Harmahis" Lefthander
+* C группой "Harmahis" Senmuth
 
 ## Обсуждения
 

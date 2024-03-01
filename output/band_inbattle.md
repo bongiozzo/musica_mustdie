@@ -72,10 +72,10 @@ Evil Black Metal
 
 ## Отношения с другими группами
 
-C группой "Odhinn" Frln, John Sandin и Wiklund 
-C группой "Setherial" Sjdin (a.k.a. Mysteriis)
-C группой "Aeon" Markus Edvardsson (bass), Nils Fjellstrom (drums)
-C группой "Chastisement" Markus Edvardsson (bass), Nils Fjellstrom (drums)
+* C группой "Odhinn" Frln, John Sandin и Wiklund 
+* C группой "Setherial" Sjdin (a.k.a. Mysteriis)
+* C группой "Aeon" Markus Edvardsson (bass), Nils Fjellstrom (drums)
+* C группой "Chastisement" Markus Edvardsson (bass), Nils Fjellstrom (drums)
 
 ## Обсуждения
 

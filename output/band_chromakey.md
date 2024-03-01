@@ -11,8 +11,8 @@
 
 ## Отношения с другими группами
 
-C группой "Dream Theater" Kevin Moore
-C группой "OSI" Kevin Moore
+* C группой "Dream Theater" Kevin Moore
+* C группой "OSI" Kevin Moore
 
 ## Обсуждения
 

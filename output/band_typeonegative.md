@@ -149,10 +149,10 @@ Recorded At SystemTwo / Brooklyn, NY.
 
 ## Отношения с другими группами
 
-C группой "Seventh Void" Kenny Hickey
-C группой "Danzig" Kenny Hickey
-C группой "Danzig" Johnny Kelly
-C группой "Seventh Void" Johnny Kelly
+* C группой "Seventh Void" Kenny Hickey
+* C группой "Danzig" Kenny Hickey
+* C группой "Danzig" Johnny Kelly
+* C группой "Seventh Void" Johnny Kelly
 
 ## Обсуждения
 

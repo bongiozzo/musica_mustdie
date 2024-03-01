@@ -215,8 +215,8 @@ Disc 2
 
 ## Отношения с другими группами
 
-C группой "Presto Ballet" Kurdt Vanderhoof
-C группой "Munroe, Ronny" Vocal in METAL CHURCH (2004-2009)
+* C группой "Presto Ballet" Kurdt Vanderhoof
+* C группой "Munroe, Ronny" Vocal in METAL CHURCH (2004-2009)
 
 ## Обсуждения
 

@@ -50,10 +50,10 @@ Pedro Howse - Guitar
 
 ## Отношения с другими группами
 
-C группой "Black Sabbath" Former bass player, mr. "Geezer" Butler co-project
-C группой "Kiss" Bruce Kulick
-C группой "Union" Bruce Kulick
-C группой "Fear Factory" Burton C. Bell
+* C группой "Black Sabbath" Former bass player, mr. "Geezer" Butler co-project
+* C группой "Kiss" Bruce Kulick
+* C группой "Union" Bruce Kulick
+* C группой "Fear Factory" Burton C. Bell
 
 ## Обсуждения
 

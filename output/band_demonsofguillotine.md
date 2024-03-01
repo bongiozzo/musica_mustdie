@@ -55,7 +55,7 @@ Krock - Drums
 
 ## Отношения с другими группами
 
-C группой "Demons" DEMONS OF GUILLOTINE (ex-Demons)
+* C группой "Demons" DEMONS OF GUILLOTINE (ex-Demons)
 
 ## Обсуждения
 

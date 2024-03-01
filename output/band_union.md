@@ -40,8 +40,8 @@ No More
 
 ## Отношения с другими группами
 
-C группой "G/Z/R" Bruce Kulick
-C группой "Kiss" Bruce Kulick
+* C группой "G/Z/R" Bruce Kulick
+* C группой "Kiss" Bruce Kulick
 
 ## Обсуждения
 

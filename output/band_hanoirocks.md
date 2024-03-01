@@ -11,7 +11,7 @@
 
 ## Отношения с другими группами
 
-C группой "Michael Monroe" Michael Monroe (vocal)
+* C группой "Michael Monroe" Michael Monroe (vocal)
 
 ## Обсуждения
 

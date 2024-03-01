@@ -188,7 +188,7 @@ Aksel Herloe - Guitars
 
 ## Отношения с другими группами
 
-C группой "Blood Red Throne" bassist-turned-guitarist Tchort
+* C группой "Blood Red Throne" bassist-turned-guitarist Tchort
 
 ## Обсуждения
 

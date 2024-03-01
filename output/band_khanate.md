@@ -22,10 +22,10 @@ Tim Wyskida - drums
 
 ## Отношения с другими группами
 
-C группой "O.L.D." James Plotkin
-C группой "Burning Witch" 
-C группой "Sunn O)))" Stephen O`Malley
-C группой "Teeth of Lions Rule the Divine" Stephen O`Malley
+* C группой "O.L.D." James Plotkin
+* C группой "Burning Witch" 
+* C группой "Sunn O)))" Stephen O`Malley
+* C группой "Teeth of Lions Rule the Divine" Stephen O`Malley
 
 ## Обсуждения
 

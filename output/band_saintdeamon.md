@@ -36,10 +36,10 @@
 
 ## Отношения с другими группами
 
-C группой "Highland Glory" Jan Thore Grefstad (Vocals)
-C группой "Dionysus" Magnus "Nobby" Norberg (Bass)
-C группой "Dionysus" Ronny Milianowicz (Drums)
-C группой "Sinergy" Ronny Milianowicz (Drums)
+* C группой "Highland Glory" Jan Thore Grefstad (Vocals)
+* C группой "Dionysus" Magnus "Nobby" Norberg (Bass)
+* C группой "Dionysus" Ronny Milianowicz (Drums)
+* C группой "Sinergy" Ronny Milianowicz (Drums)
 
 ## Обсуждения
 

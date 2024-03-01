@@ -378,7 +378,7 @@ Frank "The Animal/The Baron/The Kraken" Gilchriest - Drums
 
 ## Отношения с другими группами
 
-C группой "Riot" Frank Gilchriest (drums)
+* C группой "Riot" Frank Gilchriest (drums)
 
 ## Обсуждения
 

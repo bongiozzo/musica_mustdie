@@ -124,8 +124,8 @@ Produced by: ALEX MASI, ALEX WOLFMAN
 
 ## Отношения с другими группами
 
-C группой "Holdsworth, Allan" Alex Masi
-C группой "MCM" Alex Masi
+* C группой "Holdsworth, Allan" Alex Masi
+* C группой "MCM" Alex Masi
 
 ## Обсуждения
 

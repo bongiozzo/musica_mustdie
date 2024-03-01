@@ -26,10 +26,10 @@
 
 ## Отношения с другими группами
 
-C группой "Drama" R. Vind
-C группой "Ulvdalir" R. Vind
-C группой "Drama" D. Nox
-C группой "Ulvdalir" D. Nox
+* C группой "Drama" R. Vind
+* C группой "Ulvdalir" R. Vind
+* C группой "Drama" D. Nox
+* C группой "Ulvdalir" D. Nox
 
 ## Обсуждения
 

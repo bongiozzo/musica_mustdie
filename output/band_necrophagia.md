@@ -104,17 +104,17 @@ Shawn Slusarek: drums
 
 ## Отношения с другими группами
 
-C группой "Gorelord" Frediablo
-C группой "Wurdulak" Frediablo
-C группой "Grimfist" Frediablo
-C группой "Svartpest" Frediablo
-C группой "Soul Forsaken" Frediablo
-C группой "Gorelord" Mirai Kawashima
-C группой "Sigh" Mirai Kawashima
-C группой "Blood From the Soul" Mirai Kawashima
-C группой "Meads Of Asphodel, The" Mirai Kawashima
-C группой "Soul Forsaken" Fug
-C группой "Wurdulak" Fug
+* C группой "Gorelord" Frediablo
+* C группой "Wurdulak" Frediablo
+* C группой "Grimfist" Frediablo
+* C группой "Svartpest" Frediablo
+* C группой "Soul Forsaken" Frediablo
+* C группой "Gorelord" Mirai Kawashima
+* C группой "Sigh" Mirai Kawashima
+* C группой "Blood From the Soul" Mirai Kawashima
+* C группой "Meads Of Asphodel, The" Mirai Kawashima
+* C группой "Soul Forsaken" Fug
+* C группой "Wurdulak" Fug
 
 ## Обсуждения
 

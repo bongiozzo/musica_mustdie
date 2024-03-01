@@ -21,7 +21,7 @@ Dennis Ekdahl - Drums
 
 ## Отношения с другими группами
 
-C группой "Thyrfing" 
+* C группой "Thyrfing" 
 
 ## Обсуждения
 

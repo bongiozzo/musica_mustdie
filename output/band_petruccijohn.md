@@ -17,7 +17,7 @@ Black Ice (11:01)
 
 ## Отношения с другими группами
 
-C группой "Dream Theater" Guitar player
+* C группой "Dream Theater" Guitar player
 
 ## Обсуждения
 

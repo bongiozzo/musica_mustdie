@@ -162,9 +162,9 @@ Disc 2
 
 ## Отношения с другими группами
 
-C группой "Zakk Wylde" Zakk Wylde's project
-C группой "Megadeth" James Lomenzo (bass)
-C группой "White Lion" James Lomenzo (bass)
+* C группой "Zakk Wylde" Zakk Wylde's project
+* C группой "Megadeth" James Lomenzo (bass)
+* C группой "White Lion" James Lomenzo (bass)
 
 ## Обсуждения
 

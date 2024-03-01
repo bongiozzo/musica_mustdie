@@ -52,11 +52,11 @@ Recorded and mixed in autumn 2002 by Lefthander
 
 ## Отношения с другими группами
 
-C группой "Lefthander" Lefthander
-C группой "Tenochtitlan" Lefthander
-C группой "Groves In Mist" Lefthander
-C группой "Raxa" Lefthander
-C группой "Harmahis" Lefthander
+* C группой "Lefthander" Lefthander
+* C группой "Tenochtitlan" Lefthander
+* C группой "Groves In Mist" Lefthander
+* C группой "Raxa" Lefthander
+* C группой "Harmahis" Lefthander
 
 ## Обсуждения
 

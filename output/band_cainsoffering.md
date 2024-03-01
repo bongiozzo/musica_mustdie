@@ -49,20 +49,20 @@ Logo by Claus Jensen, Intromental Design Agency.
 
 ## Отношения с другими группами
 
-C группой "Stratovarius" Timo Kotipelto
-C группой "Kotipelto" Timo Kotipelto
-C группой "Infinity" Timo Kotipelto
-C группой "Sonata Arctica" Jani Liimatainen
-C группой "Altaria" Jani Liimatainen
-C группой "Sonata Arctica" Mikko Harkin (keyboards)
-C группой "Kotipelto" Mikko Harkin (keyboards)
-C группой "Kenziner" Mikko Harkin (keyboards)
-C группой "Wingdom" Mikko Harkin (keyboards)
-C группой "Mehida" Mikko Harkin (keyboards)
-C группой "Solution .45" Mikko Harkin (keyboards)
-C группой "Symfonia" Mikko Harkin (keyboards)
-C группой "Norther" Jukka Koskinen (bass)
-C группой "Wintersun" Jukka Koskinen (bass)
+* C группой "Stratovarius" Timo Kotipelto
+* C группой "Kotipelto" Timo Kotipelto
+* C группой "Infinity" Timo Kotipelto
+* C группой "Sonata Arctica" Jani Liimatainen
+* C группой "Altaria" Jani Liimatainen
+* C группой "Sonata Arctica" Mikko Harkin (keyboards)
+* C группой "Kotipelto" Mikko Harkin (keyboards)
+* C группой "Kenziner" Mikko Harkin (keyboards)
+* C группой "Wingdom" Mikko Harkin (keyboards)
+* C группой "Mehida" Mikko Harkin (keyboards)
+* C группой "Solution .45" Mikko Harkin (keyboards)
+* C группой "Symfonia" Mikko Harkin (keyboards)
+* C группой "Norther" Jukka Koskinen (bass)
+* C группой "Wintersun" Jukka Koskinen (bass)
 
 ## Обсуждения
 

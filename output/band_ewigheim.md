@@ -55,10 +55,10 @@ Limited Edition Bonus CD:
 
 ## Отношения с другими группами
 
-C группой "Empyrium" 
-C группой "The Vision Bleak" 
-C группой "Eisregen" 
-C группой "Transilvanian Beat Club" 
+* C группой "Empyrium" 
+* C группой "The Vision Bleak" 
+* C группой "Eisregen" 
+* C группой "Transilvanian Beat Club" 
 
 ## Обсуждения
 

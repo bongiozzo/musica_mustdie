@@ -84,7 +84,7 @@ Layouts by Andreas Katsambas
 
 ## Отношения с другими группами
 
-C группой "Эшелон" Mikhail 'Maiden' Smirnov
+* C группой "Эшелон" Mikhail 'Maiden' Smirnov
 
 ## Обсуждения
 

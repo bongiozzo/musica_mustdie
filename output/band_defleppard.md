@@ -288,9 +288,9 @@ Tim McGraw - vocals on "Nine Lives"
 
 ## Отношения с другими группами
 
-C группой "Dio" Vivian Campbell (guitar)
-C группой "Whitesnake" Vivian Campbell (guitar)
-C группой "Girl" Phil Collen (guitar)
+* C группой "Dio" Vivian Campbell (guitar)
+* C группой "Whitesnake" Vivian Campbell (guitar)
+* C группой "Girl" Phil Collen (guitar)
 
 ## Обсуждения
 

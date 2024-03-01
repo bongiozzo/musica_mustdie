@@ -71,9 +71,9 @@
 
 ## Отношения с другими группами
 
-C группой "Sarke" Sarke
-C группой "Khold" Sarke
-C группой "Old Man's Child" Sarke
+* C группой "Sarke" Sarke
+* C группой "Khold" Sarke
+* C группой "Old Man's Child" Sarke
 
 ## Обсуждения
 

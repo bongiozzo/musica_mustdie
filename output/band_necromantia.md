@@ -169,8 +169,8 @@ All music and lyrics by NECROMANTIA except:
 
 ## Отношения с другими группами
 
-C группой "Diabolos Rising" Magus Wampyr Daoloth
-C группой "Raism" Magus Wampyr Daoloth
+* C группой "Diabolos Rising" Magus Wampyr Daoloth
+* C группой "Raism" Magus Wampyr Daoloth
 
 ## Обсуждения
 

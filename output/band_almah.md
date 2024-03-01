@@ -101,10 +101,10 @@ Felipe Andreoli - Bass
 
 ## Отношения с другими группами
 
-C группой "Angra" Edu Falaschi (vocal)
-C группой "Nightwish" Emppu Vuorinen (guitar)
-C группой "Stratovarius" Laurri Porra (bass)
-C группой "Kamelot" Casey Grillo (drums)
+* C группой "Angra" Edu Falaschi (vocal)
+* C группой "Nightwish" Emppu Vuorinen (guitar)
+* C группой "Stratovarius" Laurri Porra (bass)
+* C группой "Kamelot" Casey Grillo (drums)
 
 ## Обсуждения
 

@@ -50,10 +50,10 @@ Emil Norberg - guitars
 
 ## Отношения с другими группами
 
-C группой "Blind Guardian" Thomen
-C группой "Iron Savior" Thomen & Piet
-C группой "Persuader" 
-C группой "Dark Empire" 
+* C группой "Blind Guardian" Thomen
+* C группой "Iron Savior" Thomen & Piet
+* C группой "Persuader" 
+* C группой "Dark Empire" 
 
 ## Обсуждения
 

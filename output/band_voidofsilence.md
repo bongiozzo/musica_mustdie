@@ -35,7 +35,7 @@ part 3: Black Propaganda
 
 ## Отношения с другими группами
 
-C группой "Aborym" Malfeitor Fabban
+* C группой "Aborym" Malfeitor Fabban
 
 ## Обсуждения
 

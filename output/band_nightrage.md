@@ -111,9 +111,9 @@ Vinyl version will be released by Floga Records.
 
 ## Отношения с другими группами
 
-C группой "Exhumation" Mario
-C группой "Dream Evil" Gus G. (guitar)
-C группой "Firewind" Gus G. (guitar)
+* C группой "Exhumation" Mario
+* C группой "Dream Evil" Gus G. (guitar)
+* C группой "Firewind" Gus G. (guitar)
 
 ## Обсуждения
 

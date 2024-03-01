@@ -220,14 +220,14 @@ Cover artwork by Travis Smith (Nevermore, Opeth, Katatonia, Death).
 
 ## Отношения с другими группами
 
-C группой "Snowblind" Mike G. (guitar)
-C группой "Rotting Christ" George Bokos (guitar)
-C группой "Helloween" Mark Cross (Drums)
-C группой "Outloud" Mark Cross (Drums)
-C группой "Metalium" Mark Cross (Drums)
-C группой "Firewind" Mark Cross (Drums)
-C группой "Kingdom Come" Mark Cross (Drums)
-C группой "At Vance" Mark Cross (Drums)
+* C группой "Snowblind" Mike G. (guitar)
+* C группой "Rotting Christ" George Bokos (guitar)
+* C группой "Helloween" Mark Cross (Drums)
+* C группой "Outloud" Mark Cross (Drums)
+* C группой "Metalium" Mark Cross (Drums)
+* C группой "Firewind" Mark Cross (Drums)
+* C группой "Kingdom Come" Mark Cross (Drums)
+* C группой "At Vance" Mark Cross (Drums)
 
 ## Обсуждения
 

@@ -54,7 +54,7 @@ Rick Duncan  -  Engineer
 
 ## Отношения с другими группами
 
-C группой "Atheist" Atheist
+* C группой "Atheist" Atheist
 
 ## Обсуждения
 

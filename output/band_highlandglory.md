@@ -59,7 +59,7 @@ Female Vocals by Adriana
 
 ## Отношения с другими группами
 
-C группой "Saint Deamon" Jan Thore Grefstad (Vocals)
+* C группой "Saint Deamon" Jan Thore Grefstad (Vocals)
 
 ## Обсуждения
 

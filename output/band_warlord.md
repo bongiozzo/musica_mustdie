@@ -19,7 +19,7 @@
 
 ## Отношения с другими группами
 
-C группой "HammerFall" Joachim Cans
+* C группой "HammerFall" Joachim Cans
 
 ## Обсуждения
 

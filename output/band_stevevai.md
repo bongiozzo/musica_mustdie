@@ -144,7 +144,7 @@ Produced, arranged & engineered by Steve Vai & John Kalodner.
 
 ## Отношения с другими группами
 
-C группой "Malmsteen, Yngwie" Randy Coven
+* C группой "Malmsteen, Yngwie" Randy Coven
 
 ## Обсуждения
 

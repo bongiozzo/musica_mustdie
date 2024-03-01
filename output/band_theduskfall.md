@@ -106,7 +106,7 @@ Magnus Klavborn - Vocals
 
 ## Отношения с другими группами
 
-C группой "Gates Of Ishtar" 
+* C группой "Gates Of Ishtar" 
 
 ## Обсуждения
 

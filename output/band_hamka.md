@@ -31,8 +31,8 @@ Hugues Lefebvre - Bass
 
 ## Отношения с другими группами
 
-C группой "Dreamaker" Elisa C.Martin
-C группой "Fairyland" 
+* C группой "Dreamaker" Elisa C.Martin
+* C группой "Fairyland" 
 
 ## Обсуждения
 

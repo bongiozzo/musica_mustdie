@@ -57,7 +57,7 @@ NGHTFALL members
 
 ## Отношения с другими группами
 
-C группой "Nightfall" Mike G. (guitar)
+* C группой "Nightfall" Mike G. (guitar)
 
 ## Обсуждения
 

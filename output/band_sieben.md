@@ -62,7 +62,7 @@ neo folk
 
 ## Отношения с другими группами
 
-C группой "Pilori" Matt Howden
+* C группой "Pilori" Matt Howden
 
 ## Обсуждения
 

@@ -11,7 +11,7 @@ ex-Manowar
 
 ## Отношения с другими группами
 
-C группой "Manowar" David Shankle (guitar)
+* C группой "Manowar" David Shankle (guitar)
 
 ## Обсуждения
 

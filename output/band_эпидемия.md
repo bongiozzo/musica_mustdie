@@ -215,9 +215,9 @@ Bonus:
 
 ## Отношения с другими группами
 
-C группой "Mechanical Poet" Max Samosvat : [ vocals ]
-C группой "Lady Prowler" Макс Самосват
-C группой "Lady Prowler" Роман Захаров
+* C группой "Mechanical Poet" Max Samosvat : [ vocals ]
+* C группой "Lady Prowler" Макс Самосват
+* C группой "Lady Prowler" Роман Захаров
 
 ## Обсуждения
 

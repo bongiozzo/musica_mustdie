@@ -43,7 +43,7 @@ Mastered at SDC, supervised by Lars Nissen
 
 ## Отношения с другими группами
 
-C группой "Tiamat" Edlund
+* C группой "Tiamat" Edlund
 
 ## Обсуждения
 

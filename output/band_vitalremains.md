@@ -98,11 +98,11 @@ Entwined By Vengeance
 
 ## Отношения с другими группами
 
-C группой "Morbid Angel" Tim Yeung (drums)
-C группой "World Under Blood" Tim Yeung (drums)
-C группой "Divine Heresy" Tim Yeung (drums)
-C группой "Aurora Borealis" Tim Yeung (drums)
-C группой "Council of the Fallen" Tim Yeung (drums)
+* C группой "Morbid Angel" Tim Yeung (drums)
+* C группой "World Under Blood" Tim Yeung (drums)
+* C группой "Divine Heresy" Tim Yeung (drums)
+* C группой "Aurora Borealis" Tim Yeung (drums)
+* C группой "Council of the Fallen" Tim Yeung (drums)
 
 ## Обсуждения
 

@@ -56,7 +56,7 @@ The Evil Beside You (edit version - bonus)
 
 ## Отношения с другими группами
 
-C группой "Savatage" Jon Oliva
+* C группой "Savatage" Jon Oliva
 
 ## Обсуждения
 

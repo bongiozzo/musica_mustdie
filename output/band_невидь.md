@@ -84,8 +84,8 @@ ex-Butterfly Temple
 
 ## Отношения с другими группами
 
-C группой "Крамола" Lesiar (vocal)
-C группой "Butterfly Temple" Lesiar (vocal)
+* C группой "Крамола" Lesiar (vocal)
+* C группой "Butterfly Temple" Lesiar (vocal)
 
 ## Обсуждения
 

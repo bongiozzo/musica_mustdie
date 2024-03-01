@@ -178,8 +178,8 @@ You Only Live Twice bonus CD:
 
 ## Отношения с другими группами
 
-C группой "Hypocrisy" Peter Tagtgren
-C группой "Bloodbath" Peter Tagtgren
+* C группой "Hypocrisy" Peter Tagtgren
+* C группой "Bloodbath" Peter Tagtgren
 
 ## Обсуждения
 

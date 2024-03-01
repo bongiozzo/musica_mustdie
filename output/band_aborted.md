@@ -214,7 +214,7 @@ Disc 2 - Termination Redux
 
 ## Отношения с другими группами
 
-C группой "Yyrkoon" 
+* C группой "Yyrkoon" 
 
 ## Обсуждения
 

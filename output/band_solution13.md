@@ -31,7 +31,7 @@ Tape Kanerva - Drums
 
 ## Отношения с другими группами
 
-C группой "Sentenced" Sami Kukkohovi
+* C группой "Sentenced" Sami Kukkohovi
 
 ## Обсуждения
 

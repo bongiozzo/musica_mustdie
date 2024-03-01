@@ -104,11 +104,11 @@ Release date  26th May 2000, Endless Journey is the European version of Intense
 
 ## Отношения с другими группами
 
-C группой "Charon" Lauri Tuohimaa
-C группой "For My Pain" Lauri Tuohimaa
-C группой "Haavat" Lauri Tuohimaa
-C группой "Haavat" Janne Regelin (guitar)
-C группой "Haavat" Olli-Pekka Karvonen (bass)
+* C группой "Charon" Lauri Tuohimaa
+* C группой "For My Pain" Lauri Tuohimaa
+* C группой "Haavat" Lauri Tuohimaa
+* C группой "Haavat" Janne Regelin (guitar)
+* C группой "Haavat" Olli-Pekka Karvonen (bass)
 
 ## Обсуждения
 

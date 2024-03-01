@@ -121,13 +121,13 @@ Sida De La Mente
 
 ## Отношения с другими группами
 
-C группой "Benediction" Nick Barker (drums)
-C группой "Cradle of Filth" Nick Barker (drums)
-C группой "Dimmu Borgir" Nick Barker (drums)
-C группой "Lock Up" Nick Barker (drums)
-C группой "Napalm Death" Shane Embury
-C группой "Fear Factory" Dino Cazares
-C группой "Fear Factory" Raymond Herrera
+* C группой "Benediction" Nick Barker (drums)
+* C группой "Cradle of Filth" Nick Barker (drums)
+* C группой "Dimmu Borgir" Nick Barker (drums)
+* C группой "Lock Up" Nick Barker (drums)
+* C группой "Napalm Death" Shane Embury
+* C группой "Fear Factory" Dino Cazares
+* C группой "Fear Factory" Raymond Herrera
 
 ## Обсуждения
 

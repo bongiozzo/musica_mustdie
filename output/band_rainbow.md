@@ -215,17 +215,17 @@ Paul Morris - keyboards
 
 ## Отношения с другими группами
 
-C группой "Deep Purple" J-L Turner
-C группой "Joe Lynn Turner" J-L Turner
-C группой "Hughes Turner Project" J-L Turner
-C группой "Brazen Abbot" J-L Turner
-C группой "Sunstorm" J-L Turner
-C группой "Cornerstone" vocalist Doogie White
-C группой "Deep Purple" Ritchie Blackmore
-C группой "Blackmore's Night" Ritchie Blackmore
-C группой "Black Sabbath" Vocalist, Ronnie James Dio
-C группой "Dio" Vocalist, Ronnie James Dio
-C группой "Faith And Fire" John Miceli (drums)
+* C группой "Deep Purple" J-L Turner
+* C группой "Joe Lynn Turner" J-L Turner
+* C группой "Hughes Turner Project" J-L Turner
+* C группой "Brazen Abbot" J-L Turner
+* C группой "Sunstorm" J-L Turner
+* C группой "Cornerstone" vocalist Doogie White
+* C группой "Deep Purple" Ritchie Blackmore
+* C группой "Blackmore's Night" Ritchie Blackmore
+* C группой "Black Sabbath" Vocalist, Ronnie James Dio
+* C группой "Dio" Vocalist, Ronnie James Dio
+* C группой "Faith And Fire" John Miceli (drums)
 
 ## Обсуждения
 

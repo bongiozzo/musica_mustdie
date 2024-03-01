@@ -272,12 +272,12 @@ Daniel Erlandsson - Drums
 
 ## Отношения с другими группами
 
-C группой "Carcass" Michael Amott
-C группой "Nonexist" frontman Johan Liiva
-C группой "In Flames" Dick Lovgren (bass)
-C группой "Meshuggah" Dick Lovgren (bass)
-C группой "Hearse" Johan Liiva (vocal)
-C группой "The End (Sweden)" Daniel Erlandsson
+* C группой "Carcass" Michael Amott
+* C группой "Nonexist" frontman Johan Liiva
+* C группой "In Flames" Dick Lovgren (bass)
+* C группой "Meshuggah" Dick Lovgren (bass)
+* C группой "Hearse" Johan Liiva (vocal)
+* C группой "The End (Sweden)" Daniel Erlandsson
 
 ## Обсуждения
 

@@ -162,10 +162,10 @@ Pelle Еkerlind - Drums
 
 ## Отношения с другими группами
 
-C группой "Lefay" 
-C группой "Inmoria" Charles Rytkonen (vocal)
-C группой "Tad Morose" Tommi Karppannen (bass)
-C группой "Inmoria" Tommi Karppannen (bass)
+* C группой "Lefay" 
+* C группой "Inmoria" Charles Rytkonen (vocal)
+* C группой "Tad Morose" Tommi Karppannen (bass)
+* C группой "Inmoria" Tommi Karppannen (bass)
 
 ## Обсуждения
 

@@ -37,7 +37,7 @@ Kat  -  Vocals
 
 ## Отношения с другими группами
 
-C группой "Celtic Frost" mainman Tom Gabriel Fischer
+* C группой "Celtic Frost" mainman Tom Gabriel Fischer
 
 ## Обсуждения
 

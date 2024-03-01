@@ -60,7 +60,7 @@ gothic rock band from Finland
 
 ## Отношения с другими группами
 
-C группой "Entwine" Mika Tauriainen
+* C группой "Entwine" Mika Tauriainen
 
 ## Обсуждения
 

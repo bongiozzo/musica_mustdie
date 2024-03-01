@@ -28,7 +28,7 @@ Rob Johnson (Saddleback Shark), vocalist Corey Brown (Psyco Drama), bassist Kevi
 
 ## Отношения с другими группами
 
-C группой "Artension" 
+* C группой "Artension" 
 
 ## Обсуждения
 

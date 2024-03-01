@@ -82,9 +82,9 @@ Greatest Hard Rock band from England
 
 ## Отношения с другими группами
 
-C группой "Def Leppard" Vivian Campbell (guitar)
-C группой "Dio" Vivian Campbell (guitar)
-C группой "Deep Purple" David Coverdale (vocal)
+* C группой "Def Leppard" Vivian Campbell (guitar)
+* C группой "Dio" Vivian Campbell (guitar)
+* C группой "Deep Purple" David Coverdale (vocal)
 
 ## Обсуждения
 

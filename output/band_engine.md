@@ -19,11 +19,11 @@
 
 ## Отношения с другими группами
 
-C группой "Fates Warning" Ray Alder (vocal)
-C группой "Redemption" Ray Alder (vocal)
-C группой "Agent Steel" Bernie Versailles  (guitar)
-C группой "Fates Warning" Bernie Versailles  (guitar)
-C группой "Redemption" Bernie Versailles  (guitar)
+* C группой "Fates Warning" Ray Alder (vocal)
+* C группой "Redemption" Ray Alder (vocal)
+* C группой "Agent Steel" Bernie Versailles  (guitar)
+* C группой "Fates Warning" Bernie Versailles  (guitar)
+* C группой "Redemption" Bernie Versailles  (guitar)
 
 ## Обсуждения
 

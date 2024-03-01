@@ -29,27 +29,27 @@ Uli Kusch - Drums (Gamma Ray, Masterplan, Helloween)
 
 ## Отношения с другими группами
 
-C группой "Stratovarius" Jari Kainulainen
-C группой "Kotipelto" Jari Kainulainen
-C группой "Evergrey" Jari Kainulainen
-C группой "Elias Viljanen" Jari Kainulainen
-C группой "Warmen" Jari Kainulainen
-C группой "Helloween" Uli Kusch
-C группой "Masterplan" Uli Kusch
-C группой "Beautiful Sin" Uli Kusch
-C группой "Angra" 
-C группой "Shaman" 
-C группой "Matos, Andre" 
-C группой "Revolution Renaissance" NEW STRATOVARIUS (Timo Tolkki)
-C группой "Stratovarius" NEW STRATOVARIUS (Timo Tolkki)
-C группой "Timo Tolkki" NEW STRATOVARIUS (Timo Tolkki)
-C группой "Sonata Arctica" Mikko Harkin (keyboards)
-C группой "Cain's Offering" Mikko Harkin (keyboards)
-C группой "Kotipelto" Mikko Harkin (keyboards)
-C группой "Kenziner" Mikko Harkin (keyboards)
-C группой "Wingdom" Mikko Harkin (keyboards)
-C группой "Mehida" Mikko Harkin (keyboards)
-C группой "Solution .45" Mikko Harkin (keyboards)
+* C группой "Stratovarius" Jari Kainulainen
+* C группой "Kotipelto" Jari Kainulainen
+* C группой "Evergrey" Jari Kainulainen
+* C группой "Elias Viljanen" Jari Kainulainen
+* C группой "Warmen" Jari Kainulainen
+* C группой "Helloween" Uli Kusch
+* C группой "Masterplan" Uli Kusch
+* C группой "Beautiful Sin" Uli Kusch
+* C группой "Angra" 
+* C группой "Shaman" 
+* C группой "Matos, Andre" 
+* C группой "Revolution Renaissance" NEW STRATOVARIUS (Timo Tolkki)
+* C группой "Stratovarius" NEW STRATOVARIUS (Timo Tolkki)
+* C группой "Timo Tolkki" NEW STRATOVARIUS (Timo Tolkki)
+* C группой "Sonata Arctica" Mikko Harkin (keyboards)
+* C группой "Cain's Offering" Mikko Harkin (keyboards)
+* C группой "Kotipelto" Mikko Harkin (keyboards)
+* C группой "Kenziner" Mikko Harkin (keyboards)
+* C группой "Wingdom" Mikko Harkin (keyboards)
+* C группой "Mehida" Mikko Harkin (keyboards)
+* C группой "Solution .45" Mikko Harkin (keyboards)
 
 ## Обсуждения
 

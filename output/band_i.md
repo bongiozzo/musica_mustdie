@@ -20,10 +20,10 @@ Abbath (ex-IMMORTAL)
 
 ## Отношения с другими группами
 
-C группой "Immortal" Abbath
-C группой "Gorgoroth" King Ov Hell (bass)
-C группой "Ov Hell" King Ov Hell (bass)
-C группой "Sahg" King Ov Hell (bass)
+* C группой "Immortal" Abbath
+* C группой "Gorgoroth" King Ov Hell (bass)
+* C группой "Ov Hell" King Ov Hell (bass)
+* C группой "Sahg" King Ov Hell (bass)
 
 ## Обсуждения
 

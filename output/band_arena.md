@@ -180,7 +180,7 @@ Disc 2:
 
 ## Отношения с другими группами
 
-C группой "Shadowland" Clive Nolan
+* C группой "Shadowland" Clive Nolan
 
 ## Обсуждения
 

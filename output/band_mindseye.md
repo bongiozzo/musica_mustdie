@@ -126,11 +126,11 @@ Daniel Flores - drums, keys
 
 ## Отношения с другими группами
 
-C группой "Faro" Daniel Flores
-C группой "Tears of Anger" Daniel Flores
-C группой "Hubi Meisel" Daniel Flores
-C группой "Therion" Johan Niemann
-C группой "Tears of Anger" Johan Niemann
+* C группой "Faro" Daniel Flores
+* C группой "Tears of Anger" Daniel Flores
+* C группой "Hubi Meisel" Daniel Flores
+* C группой "Therion" Johan Niemann
+* C группой "Tears of Anger" Johan Niemann
 
 ## Обсуждения
 

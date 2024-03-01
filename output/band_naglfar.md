@@ -110,7 +110,7 @@ The Dying Flame of Existence
 
 ## Отношения с другими группами
 
-C группой "Havayoth" M. Hansson
+* C группой "Havayoth" M. Hansson
 
 ## Обсуждения
 

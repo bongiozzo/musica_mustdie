@@ -32,20 +32,20 @@ Forrest Gump and Jamilya Serkebaeva "Sarjaylau" [folk hard rock]
 
 ## Отношения с другими группами
 
-C группой "Seducer's Embrace" Seducer's Embrace
-C группой "Samhain" Samhain
-C группой "Wishmaster" Wishmaster
-C группой "Lead Weight" Lead Weight
-C группой "Radigost" Radigost
-C группой "Hostile Breed" Hostile Breed
-C группой "Exhumation (Russia)" Exhumation
-C группой "Arida Vortex" Vortex
-C группой "Requiem (Kazakhstan)" Requiem
-C группой "Elisium" Elisium
-C группой "Tvangeste" Tvangeste
-C группой "Rossomahaar" Rossomahaar
-C группой "Absurd" Absurd
-C группой "Forrest Gump" Forrest Gump
+* C группой "Seducer's Embrace" Seducer's Embrace
+* C группой "Samhain" Samhain
+* C группой "Wishmaster" Wishmaster
+* C группой "Lead Weight" Lead Weight
+* C группой "Radigost" Radigost
+* C группой "Hostile Breed" Hostile Breed
+* C группой "Exhumation (Russia)" Exhumation
+* C группой "Arida Vortex" Vortex
+* C группой "Requiem (Kazakhstan)" Requiem
+* C группой "Elisium" Elisium
+* C группой "Tvangeste" Tvangeste
+* C группой "Rossomahaar" Rossomahaar
+* C группой "Absurd" Absurd
+* C группой "Forrest Gump" Forrest Gump
 
 ## Обсуждения
 

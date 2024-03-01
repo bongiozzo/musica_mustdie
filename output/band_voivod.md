@@ -263,11 +263,11 @@ Produced By Voivod & Rob Sanzo
 
 ## Отношения с другими группами
 
-C группой "Metallica" Jason Newsted
-C группой "Flotsam & Jetsam" Jason Newsted
-C группой "EchoBrain" Jason Newsted
-C группой "Papa Wheelie" Jason Newsted
-C группой "Project: Failing Flesh" Eric Forrest
+* C группой "Metallica" Jason Newsted
+* C группой "Flotsam & Jetsam" Jason Newsted
+* C группой "EchoBrain" Jason Newsted
+* C группой "Papa Wheelie" Jason Newsted
+* C группой "Project: Failing Flesh" Eric Forrest
 
 ## Обсуждения
 

@@ -126,8 +126,8 @@ Bonus DVD track listing:
 
 ## Отношения с другими группами
 
-C группой "Erben Der Schopfung" Sabine Dunser (Vocal), Pete Streit (Guitar)
-C группой "Erben Der Schopfung" Franky Koller (Drums)
+* C группой "Erben Der Schopfung" Sabine Dunser (Vocal), Pete Streit (Guitar)
+* C группой "Erben Der Schopfung" Franky Koller (Drums)
 
 ## Обсуждения
 

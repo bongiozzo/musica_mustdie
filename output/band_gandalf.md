@@ -32,7 +32,7 @@ Castle Of The Stars
 
 ## Отношения с другими группами
 
-C группой "Chaosbreed" Nalle Osterman
+* C группой "Chaosbreed" Nalle Osterman
 
 ## Обсуждения
 

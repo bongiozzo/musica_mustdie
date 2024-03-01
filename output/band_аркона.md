@@ -183,13 +183,13 @@ Cosmin "Hultanu" Duduc (гр. Ashaena) – tulnic («Гой, Роде, Гой!!!
 
 ## Отношения с другими группами
 
-C группой "Rossomahaar" Lazar
-C группой "Nargathrond" Lazar
-C группой "Katar" Lazar
-C группой "Rossomahaar" Kniaz
-C группой "Nargathrond" Kniaz
-C группой "Katar" Kniaz
-C группой "Butterfly Temple" Лесьяр (вокал)
+* C группой "Rossomahaar" Lazar
+* C группой "Nargathrond" Lazar
+* C группой "Katar" Lazar
+* C группой "Rossomahaar" Kniaz
+* C группой "Nargathrond" Kniaz
+* C группой "Katar" Kniaz
+* C группой "Butterfly Temple" Лесьяр (вокал)
 
 ## Обсуждения
 

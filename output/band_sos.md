@@ -18,9 +18,9 @@
 
 ## Отношения с другими группами
 
-C группой "Terror" Scott Vogel - vocals
-C группой "Hatebreed" Chris Beattie - bass
-C группой "Terror" Nick Jett - drums
+* C группой "Terror" Scott Vogel - vocals
+* C группой "Hatebreed" Chris Beattie - bass
+* C группой "Terror" Nick Jett - drums
 
 ## Обсуждения
 

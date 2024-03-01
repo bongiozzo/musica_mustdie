@@ -198,12 +198,12 @@ credits (featuring "Eating My BLT 2004")
 
 ## Отношения с другими группами
 
-C группой "Malmsteen, Yngwie" Jeff Scott Soto (vocals) and Marcel Jacob (bass)
-C группой "Snakes in Paradise" Jansson Brothers
-C группой "Erika" Jansson Brothers
-C группой "Tears of Anger" Jansson Brothers
-C группой "HammerFall" Pontus Norgren
-C группой "Ring, The" Pontus Norgren
+* C группой "Malmsteen, Yngwie" Jeff Scott Soto (vocals) and Marcel Jacob (bass)
+* C группой "Snakes in Paradise" Jansson Brothers
+* C группой "Erika" Jansson Brothers
+* C группой "Tears of Anger" Jansson Brothers
+* C группой "HammerFall" Pontus Norgren
+* C группой "Ring, The" Pontus Norgren
 
 ## Обсуждения
 

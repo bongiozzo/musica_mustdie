@@ -249,7 +249,7 @@
 
 ## Отношения с другими группами
 
-C группой "Karma" Valeriy Gaina
+* C группой "Karma" Valeriy Gaina
 
 ## Обсуждения
 

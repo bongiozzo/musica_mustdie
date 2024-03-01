@@ -32,9 +32,9 @@ Jorgen Olsson - Bass
 
 ## Отношения с другими группами
 
-C группой "Lost Horizon" Daniel Heiman
-C группой "Lost Horizon" Fredrik Olsson
-C группой "Fullforce" Tommy Larsson
+* C группой "Lost Horizon" Daniel Heiman
+* C группой "Lost Horizon" Fredrik Olsson
+* C группой "Fullforce" Tommy Larsson
 
 ## Обсуждения
 

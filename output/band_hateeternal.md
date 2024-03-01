@@ -105,8 +105,8 @@ Behind the Scenes at Mana Studios (30 mins)
 
 ## Отношения с другими группами
 
-C группой "Morbid Angel" guitarist Erik Rutan
-C группой "Alas" guitarist Erik Rutan
+* C группой "Morbid Angel" guitarist Erik Rutan
+* C группой "Alas" guitarist Erik Rutan
 
 ## Обсуждения
 

@@ -85,7 +85,7 @@ Ron Thiele - Drums
 
 ## Отношения с другими группами
 
-C группой "Thanateros" Jenne Riediger
+* C группой "Thanateros" Jenne Riediger
 
 ## Обсуждения
 

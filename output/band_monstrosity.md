@@ -89,7 +89,7 @@ Mike Poggione - Bass.
 
 ## Отношения с другими группами
 
-C группой "Cannibal Corpse" George Fisher replaces Chris Barnes at 1996
+* C группой "Cannibal Corpse" George Fisher replaces Chris Barnes at 1996
 
 ## Обсуждения
 

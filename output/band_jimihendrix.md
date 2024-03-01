@@ -208,7 +208,7 @@ Chris Wood  -  Wind
 
 ## Отношения с другими группами
 
-C группой "Jimi Hendrix Experience" Jimi Hendrix
+* C группой "Jimi Hendrix Experience" Jimi Hendrix
 
 ## Обсуждения
 

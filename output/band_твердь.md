@@ -11,7 +11,7 @@ ex-PAGAN REIGN
 
 ## Отношения с другими группами
 
-C группой "Pagan Reign" ex-PAGAN REIGN
+* C группой "Pagan Reign" ex-PAGAN REIGN
 
 ## Обсуждения
 

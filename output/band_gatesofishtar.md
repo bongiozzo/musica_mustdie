@@ -56,7 +56,7 @@ Oscar Karlsson - Drums
 
 ## Отношения с другими группами
 
-C группой "The Duskfall" 
+* C группой "The Duskfall" 
 
 ## Обсуждения
 

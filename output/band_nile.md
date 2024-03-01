@@ -248,10 +248,10 @@ The North American/European digipack contains two bonus tracks:
 
 ## Отношения с другими группами
 
-C группой "Karl Sanders" 
-C группой "Insidious Disease" Tony Laureano 
-C группой "Dimmu Borgir" Tony Laureano 
-C группой "Angelcorpse" Tony Laureano 
+* C группой "Karl Sanders" 
+* C группой "Insidious Disease" Tony Laureano 
+* C группой "Dimmu Borgir" Tony Laureano 
+* C группой "Angelcorpse" Tony Laureano 
 
 ## Обсуждения
 

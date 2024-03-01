@@ -184,7 +184,7 @@ Designed by Ivan S. Bragin
 
 ## Отношения с другими группами
 
-C группой "Heavenside" Mikhail Guz (guitar)
+* C группой "Heavenside" Mikhail Guz (guitar)
 
 ## Обсуждения
 

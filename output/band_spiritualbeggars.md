@@ -172,7 +172,7 @@ Ludwig Witt  -  Cymbals, Drums, Tambourine
 
 ## Отношения с другими группами
 
-C группой "Kayser" Spice (Vocal, Bass)
+* C группой "Kayser" Spice (Vocal, Bass)
 
 ## Обсуждения
 

@@ -41,7 +41,7 @@ Johan Ericson - Everything
 
 ## Отношения с другими группами
 
-C группой "Draconian (SWE)" Johan Ericson
+* C группой "Draconian (SWE)" Johan Ericson
 
 ## Обсуждения
 

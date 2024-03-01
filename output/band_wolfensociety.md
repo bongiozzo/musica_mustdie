@@ -11,9 +11,9 @@
 
 ## Отношения с другими группами
 
-C группой "Dark Funeral" Lord Ahriman
-C группой "Acheron" Vincent Crowley
-C группой "Incantation" Kyle Severn
+* C группой "Dark Funeral" Lord Ahriman
+* C группой "Acheron" Vincent Crowley
+* C группой "Incantation" Kyle Severn
 
 ## Обсуждения
 

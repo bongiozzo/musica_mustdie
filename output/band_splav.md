@@ -11,7 +11,7 @@ ex-BLACK COUNTESS
 
 ## Отношения с другими группами
 
-C группой "Black Countess" Ilya
+* C группой "Black Countess" Ilya
 
 ## Обсуждения
 

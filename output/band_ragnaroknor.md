@@ -113,9 +113,9 @@ All keyboards arrangements by Pal E.Johannessen.
 
 ## Отношения с другими группами
 
-C группой "Dimmu Borgir" Shagrath
-C группой "Chrome Division" Shagrath
-C группой "Ov Hell" Shagrath
+* C группой "Dimmu Borgir" Shagrath
+* C группой "Chrome Division" Shagrath
+* C группой "Ov Hell" Shagrath
 
 ## Обсуждения
 

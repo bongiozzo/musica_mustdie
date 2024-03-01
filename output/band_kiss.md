@@ -374,8 +374,8 @@ Produced by Bob Ezrin
 
 ## Отношения с другими группами
 
-C группой "G/Z/R" Bruce Kulick
-C группой "Union" Bruce Kulick
+* C группой "G/Z/R" Bruce Kulick
+* C группой "Union" Bruce Kulick
 
 ## Обсуждения
 

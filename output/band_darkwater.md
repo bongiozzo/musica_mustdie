@@ -23,7 +23,7 @@
 
 ## Отношения с другими группами
 
-C группой "Waken Eyes" Henrik Bath (vocal)
+* C группой "Waken Eyes" Henrik Bath (vocal)
 
 ## Обсуждения
 

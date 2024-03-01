@@ -7,8 +7,8 @@ Mike (ex-Sinister)
 
 ## Отношения с другими группами
 
-C группой "Sinister" Mike
-C группой "Houwitser" Mike
+* C группой "Sinister" Mike
+* C группой "Houwitser" Mike
 
 ## Обсуждения
 

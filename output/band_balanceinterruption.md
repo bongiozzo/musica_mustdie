@@ -22,7 +22,7 @@
 
 ## Отношения с другими группами
 
-C группой "Deferum Sacrum" Morthvarg, Yar
+* C группой "Deferum Sacrum" Morthvarg, Yar
 
 ## Обсуждения
 

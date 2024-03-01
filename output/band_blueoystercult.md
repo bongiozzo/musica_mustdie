@@ -55,7 +55,7 @@ Donald Roeser  -  Synthesizer, Guitar, Keyboards, Vocals
 
 ## Отношения с другими группами
 
-C группой "Faith And Fire" Danny Miranda
+* C группой "Faith And Fire" Danny Miranda
 
 ## Обсуждения
 

@@ -84,21 +84,21 @@ Anders "Blakkheim" Nystrцm - Guitars, Vocals (backing)
 
 ## Отношения с другими группами
 
-C группой "Hypocrisy" Peter Tagtgren
-C группой "Pain" Peter Tagtgren
-C группой "Pan.Thy.Monium" Dan Swano
-C группой "Edge Of Sanity" Dan Swano
-C группой "Ophthalamia" Dan Swano
-C группой "Nightingale" Dan Swano
-C группой "Dan Swano" Dan Swano
-C группой "Overflash" Dan Swano
-C группой "Second Sky" Dan Swano
-C группой "Ribspreader" Dan Swano
-C группой "Opeth" Mikael Akerfeldt
-C группой "Katatonia" Jonas Renkse
-C группой "October Tide" Jonas Renkse
-C группой "Katatonia" Anders Nystrom
-C группой "Diabolical Masquerade" Anders Nystrom
+* C группой "Hypocrisy" Peter Tagtgren
+* C группой "Pain" Peter Tagtgren
+* C группой "Pan.Thy.Monium" Dan Swano
+* C группой "Edge Of Sanity" Dan Swano
+* C группой "Ophthalamia" Dan Swano
+* C группой "Nightingale" Dan Swano
+* C группой "Dan Swano" Dan Swano
+* C группой "Overflash" Dan Swano
+* C группой "Second Sky" Dan Swano
+* C группой "Ribspreader" Dan Swano
+* C группой "Opeth" Mikael Akerfeldt
+* C группой "Katatonia" Jonas Renkse
+* C группой "October Tide" Jonas Renkse
+* C группой "Katatonia" Anders Nystrom
+* C группой "Diabolical Masquerade" Anders Nystrom
 
 ## Обсуждения
 

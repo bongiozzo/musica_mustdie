@@ -46,8 +46,8 @@ Scott Carino - bass
 
 ## Отношения с другими группами
 
-C группой "Obituary" Allen West from Obituary plays in Six Feet Under
-C группой "Six Feet Under" Allen West from Obituary plays in Six Feet Under
+* C группой "Obituary" Allen West from Obituary plays in Six Feet Under
+* C группой "Six Feet Under" Allen West from Obituary plays in Six Feet Under
 
 ## Обсуждения
 

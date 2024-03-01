@@ -64,8 +64,8 @@ CD2:
 
 ## Отношения с другими группами
 
-C группой "Iron Maiden" Blaze Bayley
-C группой "Paradise Lost" Jeff Singer (drums)
+* C группой "Iron Maiden" Blaze Bayley
+* C группой "Paradise Lost" Jeff Singer (drums)
 
 ## Обсуждения
 

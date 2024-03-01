@@ -21,7 +21,7 @@ ex-Crematory
 
 ## Отношения с другими группами
 
-C группой "Crematory" Lotte
+* C группой "Crematory" Lotte
 
 ## Обсуждения
 

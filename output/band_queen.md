@@ -542,7 +542,7 @@ CD2
 
 ## Отношения с другими группами
 
-C группой "Mercury, Freddie" Vocal, composer
+* C группой "Mercury, Freddie" Vocal, composer
 
 ## Обсуждения
 

@@ -108,8 +108,8 @@ Klaus Sperling - Drums
 
 ## Отношения с другими группами
 
-C группой "Primal Fear" Klaus Sperling (drums)
-C группой "Sacred Steel" members of Sacred Steel play in MY DARKEST HATE
+* C группой "Primal Fear" Klaus Sperling (drums)
+* C группой "Sacred Steel" members of Sacred Steel play in MY DARKEST HATE
 
 ## Обсуждения
 

@@ -125,8 +125,8 @@ Bonus Tracks:
 
 ## Отношения с другими группами
 
-C группой "Silent Force" Andre Hilgers (drums)
-C группой "Razorback" Andre Hilgers (drums)
+* C группой "Silent Force" Andre Hilgers (drums)
+* C группой "Razorback" Andre Hilgers (drums)
 
 ## Обсуждения
 

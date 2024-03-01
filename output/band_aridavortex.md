@@ -27,8 +27,8 @@ ex-Vortex
 
 ## Отношения с другими группами
 
-C группой "MUSICA (compilation)" Vortex
-C группой "Ольви" Andy (vocal)
+* C группой "MUSICA (compilation)" Vortex
+* C группой "Ольви" Andy (vocal)
 
 ## Обсуждения
 

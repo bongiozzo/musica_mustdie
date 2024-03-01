@@ -246,7 +246,7 @@ Sascha Tilger - drums
 
 ## Отношения с другими группами
 
-C группой "Desperados" 
+* C группой "Desperados" 
 
 ## Обсуждения
 

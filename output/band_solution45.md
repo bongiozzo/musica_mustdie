@@ -51,24 +51,24 @@
 
 ## Отношения с другими группами
 
-C группой "Miseration" Jani Stefanovic
-C группой "DivineFire" Jani Stefanovic
-C группой "Sins of Omission" Jani Stefanovic
-C группой "Crimson Moonlight" Jani Stefanovic
-C группой "Mehida" Jani Stefanovic
-C группой "Miseration" Christian Alvestam
-C группой "Scar Symmetry" Christian Alvestam
-C группой "Solar Dawn" Christian Alvestam
-C группой "Incapacity" Christian Alvestam
-C группой "Torchbearer" Christian Alvestam
-C группой "Unmoored" Christian Alvestam
-C группой "Sonata Arctica" Mikko Harkin (keyboards)
-C группой "Cain's Offering" Mikko Harkin (keyboards)
-C группой "Kotipelto" Mikko Harkin (keyboards)
-C группой "Kenziner" Mikko Harkin (keyboards)
-C группой "Wingdom" Mikko Harkin (keyboards)
-C группой "Mehida" Mikko Harkin (keyboards)
-C группой "Symfonia" Mikko Harkin (keyboards)
+* C группой "Miseration" Jani Stefanovic
+* C группой "DivineFire" Jani Stefanovic
+* C группой "Sins of Omission" Jani Stefanovic
+* C группой "Crimson Moonlight" Jani Stefanovic
+* C группой "Mehida" Jani Stefanovic
+* C группой "Miseration" Christian Alvestam
+* C группой "Scar Symmetry" Christian Alvestam
+* C группой "Solar Dawn" Christian Alvestam
+* C группой "Incapacity" Christian Alvestam
+* C группой "Torchbearer" Christian Alvestam
+* C группой "Unmoored" Christian Alvestam
+* C группой "Sonata Arctica" Mikko Harkin (keyboards)
+* C группой "Cain's Offering" Mikko Harkin (keyboards)
+* C группой "Kotipelto" Mikko Harkin (keyboards)
+* C группой "Kenziner" Mikko Harkin (keyboards)
+* C группой "Wingdom" Mikko Harkin (keyboards)
+* C группой "Mehida" Mikko Harkin (keyboards)
+* C группой "Symfonia" Mikko Harkin (keyboards)
 
 ## Обсуждения
 

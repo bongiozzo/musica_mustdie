@@ -119,8 +119,8 @@ Exiling Righteousness (bonus track)
 
 ## Отношения с другими группами
 
-C группой "Wolfen Society" Kyle Severn
-C группой "Malignancy" Kevin Hughes (bass)
+* C группой "Wolfen Society" Kyle Severn
+* C группой "Malignancy" Kevin Hughes (bass)
 
 ## Обсуждения
 

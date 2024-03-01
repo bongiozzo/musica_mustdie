@@ -56,7 +56,7 @@ Rob - Bass
 
 ## Отношения с другими группами
 
-C группой "Arma Gathas" Che Snelting (vocal)
+* C группой "Arma Gathas" Che Snelting (vocal)
 
 ## Обсуждения
 

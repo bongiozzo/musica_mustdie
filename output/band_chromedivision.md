@@ -106,9 +106,9 @@ Line-up:
 
 ## Отношения с другими группами
 
-C группой "Dimmu Borgir" Shagrath
-C группой "Ov Hell" Shagrath
-C группой "Ragnarok (NOR)" Shagrath
+* C группой "Dimmu Borgir" Shagrath
+* C группой "Ov Hell" Shagrath
+* C группой "Ragnarok (NOR)" Shagrath
 
 ## Обсуждения
 

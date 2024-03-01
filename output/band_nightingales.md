@@ -88,8 +88,8 @@ Mastered by Ansgar Ballborn and Wolfgang Stach.
 
 ## Отношения с другими группами
 
-C группой "In Blackest Velvet" 
-C группой "Very End, The" Bjorn (vocal)
+* C группой "In Blackest Velvet" 
+* C группой "Very End, The" Bjorn (vocal)
 
 ## Обсуждения
 

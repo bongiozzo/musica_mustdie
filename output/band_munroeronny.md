@@ -22,7 +22,7 @@ METAL CHURCH singer's solo
 
 ## Отношения с другими группами
 
-C группой "Metal Church" Vocal in METAL CHURCH (2004-2009)
+* C группой "Metal Church" Vocal in METAL CHURCH (2004-2009)
 
 ## Обсуждения
 

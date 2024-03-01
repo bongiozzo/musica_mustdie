@@ -27,10 +27,10 @@
 
 ## Отношения с другими группами
 
-C группой "Drama" R. Vind
-C группой "Ragor" R. Vind
-C группой "Drama" D. Nox
-C группой "Ragor" D. Nox
+* C группой "Drama" R. Vind
+* C группой "Ragor" R. Vind
+* C группой "Drama" D. Nox
+* C группой "Ragor" D. Nox
 
 ## Обсуждения
 

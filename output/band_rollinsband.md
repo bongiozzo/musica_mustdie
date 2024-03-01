@@ -213,7 +213,7 @@ Jason Mackenroth: Drums, Sax
 
 ## Отношения с другими группами
 
-C группой "Black Flag" Henry Rollins
+* C группой "Black Flag" Henry Rollins
 
 ## Обсуждения
 

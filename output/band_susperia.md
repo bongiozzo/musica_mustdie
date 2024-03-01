@@ -116,10 +116,10 @@ Elvorn: Guitar
 
 ## Отношения с другими группами
 
-C группой "Dimmu Borgir" Tjodalv (drums)
-C группой "Satyricon" сессионный музыкант Cyrus
-C группой "Old Man's Child" сессионный музыкант Cyrus
-C группой "Old Man's Child" drummer Tjodalv
+* C группой "Dimmu Borgir" Tjodalv (drums)
+* C группой "Satyricon" сессионный музыкант Cyrus
+* C группой "Old Man's Child" сессионный музыкант Cyrus
+* C группой "Old Man's Child" drummer Tjodalv
 
 ## Обсуждения
 

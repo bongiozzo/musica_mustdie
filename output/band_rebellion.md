@@ -144,8 +144,8 @@ Gerd Lьcking – Drums
 
 ## Отношения с другими группами
 
-C группой "Annihilator" Randy Black (drums)
-C группой "Primal Fear" Randy Black (drums)
+* C группой "Annihilator" Randy Black (drums)
+* C группой "Primal Fear" Randy Black (drums)
 
 ## Обсуждения
 

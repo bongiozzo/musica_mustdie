@@ -375,7 +375,7 @@ Ronan Chris Murphy  -  Mixing
 
 ## Отношения с другими группами
 
-C группой "Fripp, Robert" guitarist
+* C группой "Fripp, Robert" guitarist
 
 ## Обсуждения
 

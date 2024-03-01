@@ -89,9 +89,9 @@ Recorded, mixed & mastered at Klangschmiede Studio E during several occasions be
 
 ## Отношения с другими группами
 
-C группой "Ewigheim" 
-C группой "The Vision Bleak" 
-C группой "Noekk" EMPYRIUM Successor
+* C группой "Ewigheim" 
+* C группой "The Vision Bleak" 
+* C группой "Noekk" EMPYRIUM Successor
 
 ## Обсуждения
 

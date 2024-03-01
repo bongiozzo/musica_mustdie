@@ -52,12 +52,12 @@
 
 ## Отношения с другими группами
 
-C группой "Stratovarius" Jari Kainulainen
-C группой "Kotipelto" Jari Kainulainen
-C группой "Evergrey" Jari Kainulainen
-C группой "Warmen" Jari Kainulainen
-C группой "Symfonia" Jari Kainulainen
-C группой "Sonata Arctica" Elias "E.Vil" Viljanen
+* C группой "Stratovarius" Jari Kainulainen
+* C группой "Kotipelto" Jari Kainulainen
+* C группой "Evergrey" Jari Kainulainen
+* C группой "Warmen" Jari Kainulainen
+* C группой "Symfonia" Jari Kainulainen
+* C группой "Sonata Arctica" Elias "E.Vil" Viljanen
 
 ## Обсуждения
 

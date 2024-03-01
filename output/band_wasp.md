@@ -553,7 +553,7 @@ Mike Dupke - Drums
 
 ## Отношения с другими группами
 
-C группой "L.A. Guns" Steve Riley (drums)
+* C группой "L.A. Guns" Steve Riley (drums)
 
 ## Обсуждения
 

@@ -55,7 +55,7 @@
 
 ## Отношения с другими группами
 
-C группой "Extreme" ex-guitar player
+* C группой "Extreme" ex-guitar player
 
 ## Обсуждения
 

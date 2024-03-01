@@ -18,10 +18,10 @@ ASHEN LIGHT project
 
 ## Отношения с другими группами
 
-C группой "Ashen Light" Alex
-C группой "Crystal Abyss" Alex
-C группой "Stigmatic Chorus" Alex
-C группой "Изморозь" Alex
+* C группой "Ashen Light" Alex
+* C группой "Crystal Abyss" Alex
+* C группой "Stigmatic Chorus" Alex
+* C группой "Изморозь" Alex
 
 ## Обсуждения
 

@@ -117,10 +117,10 @@ CD Two
 
 ## Отношения с другими группами
 
-C группой "Carpathian Forest" Kobro
-C группой "Green Carnation" Kobro
-C группой "Chain Collector" Kobro
-C группой "Green Carnation" Jan Kenneth Transit
+* C группой "Carpathian Forest" Kobro
+* C группой "Green Carnation" Kobro
+* C группой "Chain Collector" Kobro
+* C группой "Green Carnation" Jan Kenneth Transit
 
 ## Обсуждения
 

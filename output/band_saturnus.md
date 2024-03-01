@@ -68,7 +68,7 @@ In Your Shining Eyes
 
 ## Отношения с другими группами
 
-C группой "Loveless, The" Kim Larsen
+* C группой "Loveless, The" Kim Larsen
 
 ## Обсуждения
 

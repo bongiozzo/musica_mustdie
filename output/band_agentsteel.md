@@ -138,9 +138,9 @@ Mixed by: Rudy "psychopain"
 
 ## Отношения с другими группами
 
-C группой "Fates Warning" Bernie Versailles  (guitar)
-C группой "Engine" Bernie Versailles  (guitar)
-C группой "Redemption" Bernie Versailles  (guitar)
+* C группой "Fates Warning" Bernie Versailles  (guitar)
+* C группой "Engine" Bernie Versailles  (guitar)
+* C группой "Redemption" Bernie Versailles  (guitar)
 
 ## Обсуждения
 

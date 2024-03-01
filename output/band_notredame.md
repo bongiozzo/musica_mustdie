@@ -36,12 +36,12 @@ Horror metal (feat. Snowy Shaw (Dream Evil, ex-King Diamond)
 
 ## Отношения с другими группами
 
-C группой "Memento Mori" Snowy Shaw (drums)
-C группой "King Diamond" Snowy Shaw (drums)
-C группой "Mercyful Fate" Snowy Shaw (drums)
-C группой "Dream Evil" Snowy Shaw (drums)
-C группой "Denner / Shermann" Snowy Shaw (drums)
-C группой "Therion" Snowy Shaw (drums)
+* C группой "Memento Mori" Snowy Shaw (drums)
+* C группой "King Diamond" Snowy Shaw (drums)
+* C группой "Mercyful Fate" Snowy Shaw (drums)
+* C группой "Dream Evil" Snowy Shaw (drums)
+* C группой "Denner / Shermann" Snowy Shaw (drums)
+* C группой "Therion" Snowy Shaw (drums)
 
 ## Обсуждения
 

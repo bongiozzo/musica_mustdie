@@ -15,12 +15,12 @@
 
 ## Отношения с другими группами
 
-C группой "Sentenced" Taneli Jarva
-C группой "The Black League" Taneli Jarva
-C группой "Gandalf" Nalle Osterman
-C группой "Amorphis" 3025
-C группой "Moonsorrow" Marko Tarvonen
-C группой "Amorphis" Esa Holopainen
+* C группой "Sentenced" Taneli Jarva
+* C группой "The Black League" Taneli Jarva
+* C группой "Gandalf" Nalle Osterman
+* C группой "Amorphis" 3025
+* C группой "Moonsorrow" Marko Tarvonen
+* C группой "Amorphis" Esa Holopainen
 
 ## Обсуждения
 

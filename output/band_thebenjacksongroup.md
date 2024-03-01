@@ -7,7 +7,7 @@ ex-Crimson Glory
 
 ## Отношения с другими группами
 
-C группой "Crimson Glory" Ben Jackson (guitar)
+* C группой "Crimson Glory" Ben Jackson (guitar)
 
 ## Обсуждения
 

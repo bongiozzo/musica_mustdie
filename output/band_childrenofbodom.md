@@ -294,12 +294,12 @@ Mixed and mastered at Finnvox Studios in Helsinki, Finland.
 
 ## Отношения с другими группами
 
-C группой "Impaled Nazarene" Alexi Laiho
-C группой "Sinergy" Alexi Laiho
-C группой "Kylahullut" Alexi Laiho
-C группой "Evemaster" Jaska Raatikainen (drums)
-C группой "Warmen" Janne Wirman (keyboards)
-C группой "Kotipelto" Janne Wirman (keyboards)
+* C группой "Impaled Nazarene" Alexi Laiho
+* C группой "Sinergy" Alexi Laiho
+* C группой "Kylahullut" Alexi Laiho
+* C группой "Evemaster" Jaska Raatikainen (drums)
+* C группой "Warmen" Janne Wirman (keyboards)
+* C группой "Kotipelto" Janne Wirman (keyboards)
 
 ## Обсуждения
 

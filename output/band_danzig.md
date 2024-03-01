@@ -227,10 +227,10 @@ Mark Chaussee: extra guitar on tracks 4 and 6.
 
 ## Отношения с другими группами
 
-C группой "Type O Negative" Kenny Hickey
-C группой "Seventh Void" Kenny Hickey
-C группой "Type O Negative" Johnny Kelly
-C группой "Seventh Void" Johnny Kelly
+* C группой "Type O Negative" Kenny Hickey
+* C группой "Seventh Void" Kenny Hickey
+* C группой "Type O Negative" Johnny Kelly
+* C группой "Seventh Void" Johnny Kelly
 
 ## Обсуждения
 

@@ -7,9 +7,9 @@
 
 ## Отношения с другими группами
 
-C группой "Narnia" Andreas Olsson
-C группой "Wisdom Call" Andreas Olsson
-C группой "Harmony" Andreas Olsson
+* C группой "Narnia" Andreas Olsson
+* C группой "Wisdom Call" Andreas Olsson
+* C группой "Harmony" Andreas Olsson
 
 ## Обсуждения
 

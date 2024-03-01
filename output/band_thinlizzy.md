@@ -404,7 +404,7 @@ Marco Mendoza  -  Bass, Vocals
 
 ## Отношения с другими группами
 
-C группой "Moore, Gary" Gary Moore
+* C группой "Moore, Gary" Gary Moore
 
 ## Обсуждения
 

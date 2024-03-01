@@ -26,7 +26,7 @@ Pete Newdeck - drums
 
 ## Отношения с другими группами
 
-C группой "Lionsheart" 
+* C группой "Lionsheart" 
 
 ## Обсуждения
 

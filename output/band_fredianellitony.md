@@ -30,7 +30,7 @@ Chopped Suey
 
 ## Отношения с другими группами
 
-C группой "Apocrypha" Guitar player
+* C группой "Apocrypha" Guitar player
 
 ## Обсуждения
 

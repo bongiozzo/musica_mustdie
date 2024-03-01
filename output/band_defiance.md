@@ -49,7 +49,7 @@
 
 ## Отношения с другими группами
 
-C группой "Skinlab" Steve Esquivel (aka Steev)
+* C группой "Skinlab" Steve Esquivel (aka Steev)
 
 ## Обсуждения
 

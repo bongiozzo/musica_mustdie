@@ -145,7 +145,7 @@ Drums and percussion by Knut Aalefj&aelig;r on tracks 2, 3, 4 and 5 / Additional
 
 ## Отношения с другими группами
 
-C группой "Emperor" Ihsahn
+* C группой "Emperor" Ihsahn
 
 ## Обсуждения
 

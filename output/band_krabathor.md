@@ -33,8 +33,8 @@ Bruno - Bass, Vocals
 
 ## Отношения с другими группами
 
-C группой "Hypnos" Bruno
-C группой "Hypnos" Pegas
+* C группой "Hypnos" Bruno
+* C группой "Hypnos" Pegas
 
 ## Обсуждения
 

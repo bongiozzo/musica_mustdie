@@ -29,7 +29,7 @@ Martijn Peters - Drums
 
 ## Отношения с другими группами
 
-C группой "Morgana-X" Stentorian
+* C группой "Morgana-X" Stentorian
 
 ## Обсуждения
 

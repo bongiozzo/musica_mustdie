@@ -40,7 +40,7 @@ Rafat Salmanowicz - Acoustic Guitar
 
 ## Отношения с другими группами
 
-C группой "Asgaard" Wojciech Kostrzewa (keyboards)
+* C группой "Asgaard" Wojciech Kostrzewa (keyboards)
 
 ## Обсуждения
 

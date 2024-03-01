@@ -175,13 +175,13 @@ Karsten "Jagger" Jдger (Disbelief)
 
 ## Отношения с другими группами
 
-C группой "Atrocity (Germany)" Moritz Neuner
-C группой "Abigor" Moritz Neuner
-C группой "Siegfried" Moritz Neuner
-C группой "Darkwell" Moritz Neuner
-C группой "Shadowcast" Moritz Neuner
-C группой "Leaves' Eyes" Moritz Neuner
-C группой "Abigor" Stefan F.
+* C группой "Atrocity (Germany)" Moritz Neuner
+* C группой "Abigor" Moritz Neuner
+* C группой "Siegfried" Moritz Neuner
+* C группой "Darkwell" Moritz Neuner
+* C группой "Shadowcast" Moritz Neuner
+* C группой "Leaves' Eyes" Moritz Neuner
+* C группой "Abigor" Stefan F.
 
 ## Обсуждения
 

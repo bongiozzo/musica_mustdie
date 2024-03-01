@@ -98,10 +98,10 @@ Produced by Charon and Juha Matinheikki, Additional production by Mikko Karmila,
 
 ## Отношения с другими группами
 
-C группой "Poisonblack" J.P. Leppaluoto
-C группой "For My Pain" Lauri Tuohimaa
-C группой "Embraze" Lauri Tuohimaa
-C группой "Haavat" Lauri Tuohimaa
+* C группой "Poisonblack" J.P. Leppaluoto
+* C группой "For My Pain" Lauri Tuohimaa
+* C группой "Embraze" Lauri Tuohimaa
+* C группой "Haavat" Lauri Tuohimaa
 
 ## Обсуждения
 

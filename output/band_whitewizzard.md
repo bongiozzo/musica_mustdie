@@ -29,7 +29,7 @@
 
 ## Отношения с другими группами
 
-C группой "Monument" Peter Ellis (vocal)
+* C группой "Monument" Peter Ellis (vocal)
 
 ## Обсуждения
 

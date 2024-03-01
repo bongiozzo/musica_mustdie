@@ -47,7 +47,7 @@ Dukedoom Black
 
 ## Отношения с другими группами
 
-C группой "Unsun" Filip "Heinrich" Haіucha 
+* C группой "Unsun" Filip "Heinrich" Haіucha 
 
 ## Обсуждения
 

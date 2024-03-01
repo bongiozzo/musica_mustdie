@@ -26,8 +26,8 @@ Rob McReddin - вокал
 
 ## Отношения с другими группами
 
-C группой "Llanfair P. G." Dmitry Petras
-C группой "Wolfmare" 
+* C группой "Llanfair P. G." Dmitry Petras
+* C группой "Wolfmare" 
 
 ## Обсуждения
 

@@ -99,9 +99,9 @@ Marco Sneck - Keyboards
 
 ## Отношения с другими группами
 
-C группой "Sentenced" Ville Laihiala
-C группой "Charon" J.P. Leppaluoto
-C группой "Kalmah" Marco Sneck (keyboard)
+* C группой "Sentenced" Ville Laihiala
+* C группой "Charon" J.P. Leppaluoto
+* C группой "Kalmah" Marco Sneck (keyboard)
 
 ## Обсуждения
 

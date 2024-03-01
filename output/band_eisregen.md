@@ -140,8 +140,8 @@ Dr. Franzenstein - Keyboards
 
 ## Отношения с другими группами
 
-C группой "Ewigheim" 
-C группой "Transilvanian Beat Club" 
+* C группой "Ewigheim" 
+* C группой "Transilvanian Beat Club" 
 
 ## Обсуждения
 

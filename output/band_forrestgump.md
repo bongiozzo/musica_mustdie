@@ -27,7 +27,7 @@ Danger
 
 ## Отношения с другими группами
 
-C группой "MUSICA (compilation)" Forrest Gump
+* C группой "MUSICA (compilation)" Forrest Gump
 
 ## Обсуждения
 

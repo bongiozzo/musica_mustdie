@@ -158,15 +158,15 @@ As Life Flows By
 
 ## Отношения с другими группами
 
-C группой "In the Woods" Kobro
-C группой "Carpathian Forest" Kobro
-C группой "Chain Collector" Kobro
-C группой "Satyricon" Tchort
-C группой "Emperor" Tchort
-C группой "Carpathian Forest" Tchort
-C группой "In the Woods" Jan Kenneth Transit
-C группой "Trail of Tears" Kjetil Nordhus
-C группой "Chain Collector" Kjetil Nordhus
+* C группой "In the Woods" Kobro
+* C группой "Carpathian Forest" Kobro
+* C группой "Chain Collector" Kobro
+* C группой "Satyricon" Tchort
+* C группой "Emperor" Tchort
+* C группой "Carpathian Forest" Tchort
+* C группой "In the Woods" Jan Kenneth Transit
+* C группой "Trail of Tears" Kjetil Nordhus
+* C группой "Chain Collector" Kjetil Nordhus
 
 ## Обсуждения
 

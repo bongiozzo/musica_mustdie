@@ -270,8 +270,8 @@ Ambient samples courtesy of "Distorted Reality" / Spectrasonics
 
 ## Отношения с другими группами
 
-C группой "Katatonia" Anders Nystrom
-C группой "Bloodbath" Anders Nystrom
+* C группой "Katatonia" Anders Nystrom
+* C группой "Bloodbath" Anders Nystrom
 
 ## Обсуждения
 

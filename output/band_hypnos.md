@@ -111,8 +111,8 @@ E-mail: pedro.dvt@post.cz
 
 ## Отношения с другими группами
 
-C группой "Krabathor" Bruno
-C группой "Krabathor" Pegas
+* C группой "Krabathor" Bruno
+* C группой "Krabathor" Pegas
 
 ## Обсуждения
 

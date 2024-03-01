@@ -278,7 +278,7 @@ Intro
 
 ## Отношения с другими группами
 
-C группой "MDFMK" Sasha Konietzko
+* C группой "MDFMK" Sasha Konietzko
 
 ## Обсуждения
 

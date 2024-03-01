@@ -83,9 +83,9 @@ Relax Club, Moscow, Russia, 02.02.2008
 
 ## Отношения с другими группами
 
-C группой "Nokturnal Mortum" Khaoth
-C группой "Hate Forest" Khaoth
-C группой "Nokturnal Mortum" Wortherax
+* C группой "Nokturnal Mortum" Khaoth
+* C группой "Hate Forest" Khaoth
+* C группой "Nokturnal Mortum" Wortherax
 
 ## Обсуждения
 

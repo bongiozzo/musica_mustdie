@@ -35,7 +35,7 @@ Evil but Melodic Black Metal
 
 ## Отношения с другими группами
 
-C группой "Angtoria" Chris Rehn
+* C группой "Angtoria" Chris Rehn
 
 ## Обсуждения
 

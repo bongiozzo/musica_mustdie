@@ -111,8 +111,8 @@ Torsten Rohre - Keyboards
 
 ## Отношения с другими группами
 
-C группой "Axxis" Andre Hilgers (drums)
-C группой "Razorback" Andre Hilgers (drums)
+* C группой "Axxis" Andre Hilgers (drums)
+* C группой "Razorback" Andre Hilgers (drums)
 
 ## Обсуждения
 

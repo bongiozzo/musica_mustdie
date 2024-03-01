@@ -28,7 +28,7 @@ prog-rock
 
 ## Отношения с другими группами
 
-C группой "Flower Kings, The" Roine Stolt
+* C группой "Flower Kings, The" Roine Stolt
 
 ## Обсуждения
 

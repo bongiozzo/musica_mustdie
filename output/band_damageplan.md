@@ -24,9 +24,9 @@ PANTERA members
 
 ## Отношения с другими группами
 
-C группой "Pantera" Dimebag Darrell (guitar)
-C группой "Pantera" Vinnie Paul (drums)
-C группой "Halford" Patrick Lachmann (guitar, vocal)
+* C группой "Pantera" Dimebag Darrell (guitar)
+* C группой "Pantera" Vinnie Paul (drums)
+* C группой "Halford" Patrick Lachmann (guitar, vocal)
 
 ## Обсуждения
 

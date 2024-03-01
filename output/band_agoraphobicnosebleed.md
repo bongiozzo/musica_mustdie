@@ -219,8 +219,8 @@ Japan bonus tracks
 
 ## Отношения с другими группами
 
-C группой "Anal Cunt" Scott Hull
-C группой "Pig Destroyer" J.R.Hayes, Scott Hull
+* C группой "Anal Cunt" Scott Hull
+* C группой "Pig Destroyer" J.R.Hayes, Scott Hull
 
 ## Обсуждения
 

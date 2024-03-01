@@ -123,7 +123,7 @@
 
 ## Отношения с другими группами
 
-C группой "Denner / Shermann" Sean Peck (vocal)
+* C группой "Denner / Shermann" Sean Peck (vocal)
 
 ## Обсуждения
 

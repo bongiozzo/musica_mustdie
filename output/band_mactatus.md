@@ -144,8 +144,8 @@ Trine Mikkelsen - Photography
 
 ## Отношения с другими группами
 
-C группой "Svartahrid" Forn (keys in Mact&auml;tus, drums in Svartahrid)
-C группой "Svartahrid" Istar (bass in Mact&auml;tus 1998-1999, vocals and guitar in Svartahrid)
+* C группой "Svartahrid" Forn (keys in Mact&auml;tus, drums in Svartahrid)
+* C группой "Svartahrid" Istar (bass in Mact&auml;tus 1998-1999, vocals and guitar in Svartahrid)
 
 ## Обсуждения
 

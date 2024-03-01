@@ -110,9 +110,9 @@ Disc 2
 
 ## Отношения с другими группами
 
-C группой "Royal Hunt" Steen Mogensen
-C группой "Malmsteen, Yngwie" vocalist Doogie White
-C группой "Rainbow" vocalist Doogie White
+* C группой "Royal Hunt" Steen Mogensen
+* C группой "Malmsteen, Yngwie" vocalist Doogie White
+* C группой "Rainbow" vocalist Doogie White
 
 ## Обсуждения
 

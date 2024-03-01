@@ -52,7 +52,7 @@ Mixed and mastered by Alexei Martynov
 
 ## Отношения с другими группами
 
-C группой "MUSICA (compilation)" Seducer's Embrace
+* C группой "MUSICA (compilation)" Seducer's Embrace
 
 ## Обсуждения
 

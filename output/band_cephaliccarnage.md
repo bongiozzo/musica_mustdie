@@ -99,7 +99,7 @@
 
 ## Отношения с другими группами
 
-C группой "Adnauseam" Steve Goldberg, Zac Joe
+* C группой "Adnauseam" Steve Goldberg, Zac Joe
 
 ## Обсуждения
 

@@ -228,7 +228,7 @@ Darren Smith: Background Vocals
 
 ## Отношения с другими группами
 
-C группой "Hess" 
+* C группой "Hess" 
 
 ## Обсуждения
 

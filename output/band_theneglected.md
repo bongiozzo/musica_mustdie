@@ -7,7 +7,7 @@
 
 ## Отношения с другими группами
 
-C группой "Savatage" Damond Jiniya (vocal)
+* C группой "Savatage" Damond Jiniya (vocal)
 
 ## Обсуждения
 

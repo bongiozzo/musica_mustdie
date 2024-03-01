@@ -143,8 +143,8 @@ Vince Neil - Vocals
 
 ## Отношения с другими группами
 
-C группой "Methods of Mayhem" Tommy Lee
-C группой "Brides Of Destruction" Nikki Sixx
+* C группой "Methods of Mayhem" Tommy Lee
+* C группой "Brides Of Destruction" Nikki Sixx
 
 ## Обсуждения
 

@@ -86,7 +86,7 @@ Chris Larson — bass, back vocal
 
 ## Отношения с другими группами
 
-C группой "UNDERGROUND KZ (compilation)" 
+* C группой "UNDERGROUND KZ (compilation)" 
 
 ## Обсуждения
 

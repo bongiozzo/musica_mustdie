@@ -98,7 +98,7 @@ All music and lyrics by Martin Wiese.
 
 ## Отношения с другими группами
 
-C группой "Summoning" Martin Wiese
+* C группой "Summoning" Martin Wiese
 
 ## Обсуждения
 

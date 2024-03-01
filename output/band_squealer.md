@@ -90,7 +90,7 @@ This Album is Dedicated to Andreas "Henner" Allendorfer (R.I.P.)
 
 ## Отношения с другими группами
 
-C группой "Grip Inc." Gus Chambers (vocal)
+* C группой "Grip Inc." Gus Chambers (vocal)
 
 ## Обсуждения
 

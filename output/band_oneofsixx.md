@@ -7,7 +7,7 @@
 
 ## Отношения с другими группами
 
-C группой "Byfist" Vikk Real (vocal)
+* C группой "Byfist" Vikk Real (vocal)
 
 ## Обсуждения
 

@@ -21,7 +21,7 @@ ex-EMPYRIUM
 
 ## Отношения с другими группами
 
-C группой "Empyrium" EMPYRIUM Successor
+* C группой "Empyrium" EMPYRIUM Successor
 
 ## Обсуждения
 

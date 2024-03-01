@@ -213,14 +213,14 @@ Andreas Johansson - Drums
 
 ## Отношения с другими группами
 
-C группой "Wisdom Call" Andreas Olsson
-C группой "Stormwind" Andreas Olsson
-C группой "Harmony" Andreas Olsson
-C группой "Christian Rivel's Audiovision" Christian Rivel (vocal)
-C группой "DivineFire" Christian Rivel (vocal)
-C группой "DivineFire" Christian Rivel (vocal)
-C группой "Audiovision" Christian Rivel (vocal)
-C группой "Fullforce" Carl-Johan Grimmark (guitar)
+* C группой "Wisdom Call" Andreas Olsson
+* C группой "Stormwind" Andreas Olsson
+* C группой "Harmony" Andreas Olsson
+* C группой "Christian Rivel's Audiovision" Christian Rivel (vocal)
+* C группой "DivineFire" Christian Rivel (vocal)
+* C группой "DivineFire" Christian Rivel (vocal)
+* C группой "Audiovision" Christian Rivel (vocal)
+* C группой "Fullforce" Carl-Johan Grimmark (guitar)
 
 ## Обсуждения
 

@@ -84,7 +84,7 @@ Cover layout: Marco Jeurissen.
 
 ## Отношения с другими группами
 
-C группой "Arch Enemy" Johan Liiva (vocal)
+* C группой "Arch Enemy" Johan Liiva (vocal)
 
 ## Обсуждения
 

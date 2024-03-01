@@ -76,7 +76,7 @@ Tom Morelo - Guitars
 
 ## Отношения с другими группами
 
-C группой "Audioslave" members
+* C группой "Audioslave" members
 
 ## Обсуждения
 

@@ -167,21 +167,21 @@ Japanese edition comes with following bonus track:
 
 ## Отношения с другими группами
 
-C группой "Helloween" 
-C группой "Helloween" Kai Hansen
-C группой "Gamma Ray" Kai Hansen
-C группой "Unisonic" Kai Hansen
-C группой "Therion" Hansi K&uuml;rsch
-C группой "Grave Digger" Hansi K&uuml;rsch
-C группой "Blind Guardian" Hansi K&uuml;rsch
-C группой "Gamma Ray" Hansi K&uuml;rsch
-C группой "Edguy" Hansi K&uuml;rsch
-C группой "Demons & Wizards" Hansi K&uuml;rsch
-C группой "Lucifer's Heritage" Hansi K&uuml;rsch
-C группой "Blind Guardian" Tomas Stauch
-C группой "Gamma Ray" Tomas Stauch
-C группой "Lucifer's Heritage" Tomas Stauch
-C группой "Savage Circus" Thomen & Piet
+* C группой "Helloween" 
+* C группой "Helloween" Kai Hansen
+* C группой "Gamma Ray" Kai Hansen
+* C группой "Unisonic" Kai Hansen
+* C группой "Therion" Hansi K&uuml;rsch
+* C группой "Grave Digger" Hansi K&uuml;rsch
+* C группой "Blind Guardian" Hansi K&uuml;rsch
+* C группой "Gamma Ray" Hansi K&uuml;rsch
+* C группой "Edguy" Hansi K&uuml;rsch
+* C группой "Demons & Wizards" Hansi K&uuml;rsch
+* C группой "Lucifer's Heritage" Hansi K&uuml;rsch
+* C группой "Blind Guardian" Tomas Stauch
+* C группой "Gamma Ray" Tomas Stauch
+* C группой "Lucifer's Heritage" Tomas Stauch
+* C группой "Savage Circus" Thomen & Piet
 
 ## Обсуждения
 

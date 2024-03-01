@@ -11,13 +11,13 @@
 
 ## Отношения с другими группами
 
-C группой "Sonata Arctica" Mikko Harkin (keyboards)
-C группой "Cain's Offering" Mikko Harkin (keyboards)
-C группой "Kotipelto" Mikko Harkin (keyboards)
-C группой "Kenziner" Mikko Harkin (keyboards)
-C группой "Mehida" Mikko Harkin (keyboards)
-C группой "Solution .45" Mikko Harkin (keyboards)
-C группой "Symfonia" Mikko Harkin (keyboards)
+* C группой "Sonata Arctica" Mikko Harkin (keyboards)
+* C группой "Cain's Offering" Mikko Harkin (keyboards)
+* C группой "Kotipelto" Mikko Harkin (keyboards)
+* C группой "Kenziner" Mikko Harkin (keyboards)
+* C группой "Mehida" Mikko Harkin (keyboards)
+* C группой "Solution .45" Mikko Harkin (keyboards)
+* C группой "Symfonia" Mikko Harkin (keyboards)
 
 ## Обсуждения
 

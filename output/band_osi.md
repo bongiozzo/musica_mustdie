@@ -61,11 +61,11 @@ Bass on OSI by Matheos
 
 ## Отношения с другими группами
 
-C группой "Fates Warning" Jim Matheos (guitar)
-C группой "John Arch" Jim Matheos (guitar)
-C группой "Arch/Matheos" Jim Matheos (guitar)
-C группой "Dream Theater" Kevin Moore
-C группой "Chroma Key" Kevin Moore
+* C группой "Fates Warning" Jim Matheos (guitar)
+* C группой "John Arch" Jim Matheos (guitar)
+* C группой "Arch/Matheos" Jim Matheos (guitar)
+* C группой "Dream Theater" Kevin Moore
+* C группой "Chroma Key" Kevin Moore
 
 ## Обсуждения
 

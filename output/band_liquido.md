@@ -29,7 +29,7 @@ Wolle - drums
 
 ## Отношения с другими группами
 
-C группой "Pyogenesis" Wolle, Tim
+* C группой "Pyogenesis" Wolle, Tim
 
 ## Обсуждения
 

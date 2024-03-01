@@ -320,10 +320,10 @@ DVD2:
 
 ## Отношения с другими группами
 
-C группой "The Black League" Taneli Jarva
-C группой "Chaosbreed" Taneli Jarva
-C группой "Solution 13" Sami Kukkohovi
-C группой "Poisonblack" Ville Laihiala
+* C группой "The Black League" Taneli Jarva
+* C группой "Chaosbreed" Taneli Jarva
+* C группой "Solution 13" Sami Kukkohovi
+* C группой "Poisonblack" Ville Laihiala
 
 ## Обсуждения
 

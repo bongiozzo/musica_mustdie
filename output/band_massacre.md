@@ -72,8 +72,8 @@ Syrus Peters - Drums
 
 ## Отношения с другими группами
 
-C группой "Death" Terry Butler and Rick Rozz played in Death's "Leprosy"
-C группой "Six Feet Under" Terry Butler played in Massacre
+* C группой "Death" Terry Butler and Rick Rozz played in Death's "Leprosy"
+* C группой "Six Feet Under" Terry Butler played in Massacre
 
 ## Обсуждения
 

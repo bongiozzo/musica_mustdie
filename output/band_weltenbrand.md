@@ -91,9 +91,9 @@ Graphic design by Ingo Romling
 
 ## Отношения с другими группами
 
-C группой "Erben Der Schopfung" Oliver Falk (Keyboards)
-C группой "Erben Der Schopfung" Dina Falk-Zambelli (Vocal)
-C группой "Erben Der Schopfung" Rino Vetsch (Guitar)
+* C группой "Erben Der Schopfung" Oliver Falk (Keyboards)
+* C группой "Erben Der Schopfung" Dina Falk-Zambelli (Vocal)
+* C группой "Erben Der Schopfung" Rino Vetsch (Guitar)
 
 ## Обсуждения
 

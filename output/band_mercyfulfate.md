@@ -158,16 +158,16 @@ Bjarne T.Holm - Drums
 
 ## Отношения с другими группами
 
-C группой "Memento Mori" Snowy Shaw (drums)
-C группой "King Diamond" Snowy Shaw (drums)
-C группой "Dream Evil" Snowy Shaw (drums)
-C группой "Notre Dame" Snowy Shaw (drums)
-C группой "Denner / Shermann" Snowy Shaw (drums)
-C группой "Therion" Snowy Shaw (drums)
-C группой "Denner / Shermann" Michael Denner (guitar)
-C группой "King Diamond" Michael Denner (guitar)
-C группой "Demonica" Hank Shermann (guitar)
-C группой "Denner / Shermann" Hank Shermann (guitar)
+* C группой "Memento Mori" Snowy Shaw (drums)
+* C группой "King Diamond" Snowy Shaw (drums)
+* C группой "Dream Evil" Snowy Shaw (drums)
+* C группой "Notre Dame" Snowy Shaw (drums)
+* C группой "Denner / Shermann" Snowy Shaw (drums)
+* C группой "Therion" Snowy Shaw (drums)
+* C группой "Denner / Shermann" Michael Denner (guitar)
+* C группой "King Diamond" Michael Denner (guitar)
+* C группой "Demonica" Hank Shermann (guitar)
+* C группой "Denner / Shermann" Hank Shermann (guitar)
 
 ## Обсуждения
 

@@ -68,7 +68,7 @@ Elena Schirenc - Female Vocals
 
 ## Отношения с другими группами
 
-C группой "Pungent Stench" 
+* C группой "Pungent Stench" 
 
 ## Обсуждения
 

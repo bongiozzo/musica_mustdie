@@ -257,12 +257,12 @@ Tracks 8-12 Pre-production tracks from Grand Declaration Of War sessions
 
 ## Отношения с другими группами
 
-C группой "Arcturus" HellHammer
-C группой "Troll" HellHammer
-C группой "Kovenant" HellHammer
-C группой "Thorns" HellHammer
-C группой "Winds" HellHammer
-C группой "Burzum" Varg Vikernes (bass)
+* C группой "Arcturus" HellHammer
+* C группой "Troll" HellHammer
+* C группой "Kovenant" HellHammer
+* C группой "Thorns" HellHammer
+* C группой "Winds" HellHammer
+* C группой "Burzum" Varg Vikernes (bass)
 
 ## Обсуждения
 

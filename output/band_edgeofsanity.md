@@ -201,20 +201,20 @@ Produced By Rony Lahti and dge Of Sanity
 
 ## Отношения с другими группами
 
-C группой "Pan.Thy.Monium" Dan Swano
-C группой "Ophthalamia" Dan Swano
-C группой "Nightingale" Dan Swano
-C группой "Dan Swano" Dan Swano
-C группой "Bloodbath" Dan Swano
-C группой "Overflash" Dan Swano
-C группой "Second Sky" Dan Swano
-C группой "Ribspreader" Dan Swano
-C группой "Demiurg (SWE)" Rogga Johansson
-C группой "11th Hour" Rogga Johansson
-C группой "Paganizer [RUS]" Rogga Johansson
-C группой "Deranged" Rogga Johansson
-C группой "Ribspreader" Rogga Johansson
-C группой "Witherscape" 
+* C группой "Pan.Thy.Monium" Dan Swano
+* C группой "Ophthalamia" Dan Swano
+* C группой "Nightingale" Dan Swano
+* C группой "Dan Swano" Dan Swano
+* C группой "Bloodbath" Dan Swano
+* C группой "Overflash" Dan Swano
+* C группой "Second Sky" Dan Swano
+* C группой "Ribspreader" Dan Swano
+* C группой "Demiurg (SWE)" Rogga Johansson
+* C группой "11th Hour" Rogga Johansson
+* C группой "Paganizer [RUS]" Rogga Johansson
+* C группой "Deranged" Rogga Johansson
+* C группой "Ribspreader" Rogga Johansson
+* C группой "Witherscape" 
 
 ## Обсуждения
 

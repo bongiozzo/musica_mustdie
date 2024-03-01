@@ -304,11 +304,11 @@ Lars Johansson - Guitars (lead)
 
 ## Отношения с другими группами
 
-C группой "Memento Mori" Messiah Marcolin
-C группой "Creozoth" Lars Johansson (guitar)
-C группой "Creozoth" Jan Lindh (drums)
-C группой "Krux" 
-C группой "Solitude Aeturnus" Rober Lowe (vocal)
+* C группой "Memento Mori" Messiah Marcolin
+* C группой "Creozoth" Lars Johansson (guitar)
+* C группой "Creozoth" Jan Lindh (drums)
+* C группой "Krux" 
+* C группой "Solitude Aeturnus" Rober Lowe (vocal)
 
 ## Обсуждения
 

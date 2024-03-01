@@ -219,7 +219,7 @@ Release date: October 25th, 2004
 
 ## Отношения с другими группами
 
-C группой "Hermh" Wojciech Kostrzewa (keyboards)
+* C группой "Hermh" Wojciech Kostrzewa (keyboards)
 
 ## Обсуждения
 

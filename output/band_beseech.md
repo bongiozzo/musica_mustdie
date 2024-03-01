@@ -103,9 +103,9 @@ The DIGIPACK version of "SUNLESS DAYS" will also include:
 
 ## Отношения с другими группами
 
-C группой "Cemetary" Manne Engstrцm
-C группой "Sundown" Manne Engstrцm
-C группой "Fatal Embrace" Manne Engstrцm
+* C группой "Cemetary" Manne Engstrцm
+* C группой "Sundown" Manne Engstrцm
+* C группой "Fatal Embrace" Manne Engstrцm
 
 ## Обсуждения
 

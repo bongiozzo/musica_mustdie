@@ -72,7 +72,7 @@ HOLY WAR
 
 ## Отношения с другими группами
 
-C группой "Grave Flowers" Matte
+* C группой "Grave Flowers" Matte
 
 ## Обсуждения
 

@@ -59,12 +59,12 @@ Recorded May-December 2003 at Reingold Recording Studio, additional recordings a
 
 ## Отношения с другими группами
 
-C группой "Flower Kings, The" Zoltan Choersz
-C группой "Flower Kings, The" Jonas Reingold
-C группой "Malmsteen, Yngwie" Goeran Edman
-C группой "Bodin Tomas" Tomas Bodin
-C группой "Flower Kings, The" Tomas Bodin
-C группой "Flower Kings, The" Roine Stolt
+* C группой "Flower Kings, The" Zoltan Choersz
+* C группой "Flower Kings, The" Jonas Reingold
+* C группой "Malmsteen, Yngwie" Goeran Edman
+* C группой "Bodin Tomas" Tomas Bodin
+* C группой "Flower Kings, The" Tomas Bodin
+* C группой "Flower Kings, The" Roine Stolt
 
 ## Обсуждения
 

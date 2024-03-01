@@ -11,9 +11,9 @@
 
 ## Отношения с другими группами
 
-C группой "Nattvindens Grat" Wilska
-C группой "Finntroll" Wilska
-C группой "Survivors Zero" Wilska
+* C группой "Nattvindens Grat" Wilska
+* C группой "Finntroll" Wilska
+* C группой "Survivors Zero" Wilska
 
 ## Обсуждения
 

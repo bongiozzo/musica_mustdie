@@ -42,7 +42,7 @@ Death/Grind
 
 ## Отношения с другими группами
 
-C группой "Exodus" Jack Gibson
+* C группой "Exodus" Jack Gibson
 
 ## Обсуждения
 

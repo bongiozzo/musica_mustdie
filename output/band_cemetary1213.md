@@ -21,8 +21,8 @@ Anthem Apocalypse
 
 ## Отношения с другими группами
 
-C группой "Cemetary" Mathias Lodmalm
-C группой "Sundown" Mathias Lodmalm
+* C группой "Cemetary" Mathias Lodmalm
+* C группой "Sundown" Mathias Lodmalm
 
 ## Обсуждения
 

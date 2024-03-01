@@ -486,23 +486,23 @@ Nick Marinovich - Keyboards (additional)
 
 ## Отношения с другими группами
 
-C группой "Cornerstone" vocalist Doogie White
-C группой "Stratovarius" Jens Johansson
-C группой "Barilari" Jens Johansson
-C группой "Boals, Mark" Mark Boals
-C группой "Ring of Fire" Mark Boals
-C группой "Talisman" Jeff Scott Soto (vocals) and Marcel Jacob (bass)
-C группой "Edge of Time" Michael Von Knorring
-C группой "Ark" drummer John Macaluso and bassist Randy Coven
-C группой "MCM" drummer John Macaluso and bassist Randy Coven
-C группой "Karmakanic" Goeran Edman
-C группой "Riot" John Macaluso
-C группой "TNT" John Macaluso
-C группой "Steve Vai" Randy Coven
-C группой "Grapow, Roland" Michael Vescera
-C группой "Michael Vescera Project" Michael Vescera
-C группой "HammerFall" Anders Johansson (drums)
-C группой "Fullforce" Anders Johansson (drums)
+* C группой "Cornerstone" vocalist Doogie White
+* C группой "Stratovarius" Jens Johansson
+* C группой "Barilari" Jens Johansson
+* C группой "Boals, Mark" Mark Boals
+* C группой "Ring of Fire" Mark Boals
+* C группой "Talisman" Jeff Scott Soto (vocals) and Marcel Jacob (bass)
+* C группой "Edge of Time" Michael Von Knorring
+* C группой "Ark" drummer John Macaluso and bassist Randy Coven
+* C группой "MCM" drummer John Macaluso and bassist Randy Coven
+* C группой "Karmakanic" Goeran Edman
+* C группой "Riot" John Macaluso
+* C группой "TNT" John Macaluso
+* C группой "Steve Vai" Randy Coven
+* C группой "Grapow, Roland" Michael Vescera
+* C группой "Michael Vescera Project" Michael Vescera
+* C группой "HammerFall" Anders Johansson (drums)
+* C группой "Fullforce" Anders Johansson (drums)
 
 ## Обсуждения
 

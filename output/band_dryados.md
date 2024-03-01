@@ -31,7 +31,7 @@ L'amour N'enleve Pas Vraiment La Depression...
 
 ## Отношения с другими группами
 
-C группой "Bizarrekult" 
+* C группой "Bizarrekult" 
 
 ## Обсуждения
 

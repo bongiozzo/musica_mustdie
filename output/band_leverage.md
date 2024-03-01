@@ -46,8 +46,8 @@
 
 ## Отношения с другими группами
 
-C группой "Brother Firetribe" Pekka Heino (vocal)
-C группой "Purity" Valtteri Revonkorpi (drums)
+* C группой "Brother Firetribe" Pekka Heino (vocal)
+* C группой "Purity" Valtteri Revonkorpi (drums)
 
 ## Обсуждения
 

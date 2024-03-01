@@ -47,7 +47,7 @@ Bruce Fleming  -  Cover Design
 
 ## Отношения с другими группами
 
-C группой "Jimi Hendrix" Jimi Hendrix
+* C группой "Jimi Hendrix" Jimi Hendrix
 
 ## Обсуждения
 

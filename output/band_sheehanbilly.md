@@ -24,8 +24,8 @@
 
 ## Отношения с другими группами
 
-C группой "Mr. Big" Bass Player
-C группой "Gilbert, Paul" Bass Player
+* C группой "Mr. Big" Bass Player
+* C группой "Gilbert, Paul" Bass Player
 
 ## Обсуждения
 

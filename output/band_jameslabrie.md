@@ -48,7 +48,7 @@ Jens Borgen.
 
 ## Отношения с другими группами
 
-C группой "Dream Theater" Vocal
+* C группой "Dream Theater" Vocal
 
 ## Обсуждения
 

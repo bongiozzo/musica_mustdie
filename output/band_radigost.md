@@ -78,8 +78,8 @@ Pit Lord - ударные
 
 ## Отношения с другими группами
 
-C группой "Crystal Abyss" Valafar
-C группой "MUSICA (compilation)" Radigost
+* C группой "Crystal Abyss" Valafar
+* C группой "MUSICA (compilation)" Radigost
 
 ## Обсуждения
 

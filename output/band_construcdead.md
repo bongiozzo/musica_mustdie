@@ -73,8 +73,8 @@ Model On Front Cover: Lucky Mangarda
 
 ## Отношения с другими группами
 
-C группой "Terror 2000" Erik Thyselius (drummer)
-C группой "Carnal Forge" Johan Magnusson
+* C группой "Terror 2000" Erik Thyselius (drummer)
+* C группой "Carnal Forge" Johan Magnusson
 
 ## Обсуждения
 

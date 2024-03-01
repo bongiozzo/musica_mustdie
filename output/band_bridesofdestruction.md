@@ -35,8 +35,8 @@
 
 ## Отношения с другими группами
 
-C группой "Motley Crue" Nikki Sixx
-C группой "L.A. Guns" Tracii Guns
+* C группой "Motley Crue" Nikki Sixx
+* C группой "L.A. Guns" Tracii Guns
 
 ## Обсуждения
 

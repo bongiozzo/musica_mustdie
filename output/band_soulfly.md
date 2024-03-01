@@ -142,9 +142,9 @@ Mixer: Andy Sneap
 
 ## Отношения с другими группами
 
-C группой "Sepultura" Max Cavalera
-C группой "Megadeth" David Ellefson
-C группой "F5" David Ellefson
+* C группой "Sepultura" Max Cavalera
+* C группой "Megadeth" David Ellefson
+* C группой "F5" David Ellefson
 
 ## Обсуждения
 

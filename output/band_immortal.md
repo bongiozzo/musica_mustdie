@@ -252,10 +252,10 @@ Recorded in Grieghallen and Abyss studios, Sweden, in April 2009.
 
 ## Отношения с другими группами
 
-C группой "Hypocrisy" Horgh (drums)
-C группой "Grimfist" Horgh (drums)
-C группой "Clan Destined, The" Iscariah
-C группой "I" Abbath
+* C группой "Hypocrisy" Horgh (drums)
+* C группой "Grimfist" Horgh (drums)
+* C группой "Clan Destined, The" Iscariah
+* C группой "I" Abbath
 
 ## Обсуждения
 

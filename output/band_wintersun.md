@@ -30,10 +30,10 @@ Viking Folk/Black Metal from Finland
 
 ## Отношения с другими группами
 
-C группой "Enochian Crescent" Kai Hahto (drums in Enochian Crescent [1995-1999] & in Wintersun)
-C группой "Norther" Jukka Koskinen (bass)
-C группой "Cain's Offering" Jukka Koskinen (bass)
-C группой "Trees of Eternity" 
+* C группой "Enochian Crescent" Kai Hahto (drums in Enochian Crescent [1995-1999] & in Wintersun)
+* C группой "Norther" Jukka Koskinen (bass)
+* C группой "Cain's Offering" Jukka Koskinen (bass)
+* C группой "Trees of Eternity" 
 
 ## Обсуждения
 

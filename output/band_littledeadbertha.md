@@ -71,7 +71,7 @@
 
 ## Отношения с другими группами
 
-C группой "Bertha" Sergey, Dmitriy P.
+* C группой "Bertha" Sergey, Dmitriy P.
 
 ## Обсуждения
 

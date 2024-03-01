@@ -25,9 +25,9 @@ Anugraha
 
 ## Отношения с другими группами
 
-C группой "Death" Sean Reinert (drums)
-C группой "Cynic" Sean Reinert (drums)
-C группой "Gordian Knot" Sean Reinert (drums)
+* C группой "Death" Sean Reinert (drums)
+* C группой "Cynic" Sean Reinert (drums)
+* C группой "Gordian Knot" Sean Reinert (drums)
 
 ## Обсуждения
 

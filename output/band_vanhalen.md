@@ -173,7 +173,7 @@ Engineered by Donn Landee
 
 ## Отношения с другими группами
 
-C группой "Chickenfoot" Sammy Hagar, Michael Anthony
+* C группой "Chickenfoot" Sammy Hagar, Michael Anthony
 
 ## Обсуждения
 

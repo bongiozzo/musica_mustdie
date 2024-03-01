@@ -273,10 +273,10 @@ D.C. Cooper - Vocals
 
 ## Отношения с другими группами
 
-C группой "Cornerstone" Steen Mogensen
-C группой "Andre Andersen" Guitar, Keyboards, Producer
-C группой "Kingdom Come" Allan Tschicaja
-C группой "Pretty Maids" Allan Tschicaja
+* C группой "Cornerstone" Steen Mogensen
+* C группой "Andre Andersen" Guitar, Keyboards, Producer
+* C группой "Kingdom Come" Allan Tschicaja
+* C группой "Pretty Maids" Allan Tschicaja
 
 ## Обсуждения
 

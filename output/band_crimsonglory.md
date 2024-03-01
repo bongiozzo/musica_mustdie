@@ -72,10 +72,10 @@ Jeff Lords - Bass
 
 ## Отношения с другими группами
 
-C группой "Seven Witches" Wade Black
-C группой "Black Reign" Wade Black
-C группой "Leatherwolf" Wade Black
-C группой "The Ben Jackson Group" Ben Jackson (guitar)
+* C группой "Seven Witches" Wade Black
+* C группой "Black Reign" Wade Black
+* C группой "Leatherwolf" Wade Black
+* C группой "The Ben Jackson Group" Ben Jackson (guitar)
 
 ## Обсуждения
 

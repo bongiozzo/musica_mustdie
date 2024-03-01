@@ -947,7 +947,7 @@ Disc 2
 
 ## Отношения с другими группами
 
-C группой "Blaze " Blaze Bayley
+* C группой "Blaze " Blaze Bayley
 
 ## Обсуждения
 

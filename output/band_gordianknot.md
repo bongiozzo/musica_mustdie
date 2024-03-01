@@ -53,12 +53,12 @@ Paul Masvidal - guitar (Cynic)
 
 ## Отношения с другими группами
 
-C группой "Cynic" Paul Masvidal (guitar, vocal)
-C группой "Death" Paul Masvidal (guitar, vocal)
-C группой "Master" Paul Masvidal (guitar, vocal)
-C группой "Death" Sean Reinert (drums)
-C группой "Cynic" Sean Reinert (drums)
-C группой "Aghora" Sean Reinert (drums)
+* C группой "Cynic" Paul Masvidal (guitar, vocal)
+* C группой "Death" Paul Masvidal (guitar, vocal)
+* C группой "Master" Paul Masvidal (guitar, vocal)
+* C группой "Death" Sean Reinert (drums)
+* C группой "Cynic" Sean Reinert (drums)
+* C группой "Aghora" Sean Reinert (drums)
 
 ## Обсуждения
 

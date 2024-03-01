@@ -33,13 +33,13 @@ Jehmod (Drums)
 
 ## Отношения с другими группами
 
-C группой "Necrophagia" Frediablo
-C группой "Gorelord" Frediablo
-C группой "Grimfist" Frediablo
-C группой "Svartpest" Frediablo
-C группой "Soul Forsaken" Frediablo
-C группой "Necrophagia" Fug
-C группой "Soul Forsaken" Fug
+* C группой "Necrophagia" Frediablo
+* C группой "Gorelord" Frediablo
+* C группой "Grimfist" Frediablo
+* C группой "Svartpest" Frediablo
+* C группой "Soul Forsaken" Frediablo
+* C группой "Necrophagia" Fug
+* C группой "Soul Forsaken" Fug
 
 ## Обсуждения
 

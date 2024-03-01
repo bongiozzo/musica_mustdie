@@ -192,7 +192,7 @@ Recorded at Rockfield Studios in Monmouth, Wales, UK.
 
 ## Отношения с другими группами
 
-C группой "Bloodbath" Mikael Akerfeldt
+* C группой "Bloodbath" Mikael Akerfeldt
 
 ## Обсуждения
 

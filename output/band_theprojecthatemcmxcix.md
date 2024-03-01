@@ -57,9 +57,9 @@ Dividead
 
 ## Отношения с другими группами
 
-C группой "Grave" Jorgen Sandstrom  (bass)
-C группой "Entombed" Jorgen Sandstrom  (bass)
-C группой "Krux" 
+* C группой "Grave" Jorgen Sandstrom  (bass)
+* C группой "Entombed" Jorgen Sandstrom  (bass)
+* C группой "Krux" 
 
 ## Обсуждения
 

@@ -144,7 +144,7 @@ CD 2
 
 ## Отношения с другими группами
 
-C группой "Sheehan, Billy" Bass Player
+* C группой "Sheehan, Billy" Bass Player
 
 ## Обсуждения
 

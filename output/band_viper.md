@@ -42,8 +42,8 @@ Pit Passarell - bass
 
 ## Отношения с другими группами
 
-C группой "Angra" Andre Matos
-C группой "Virgo" Andre Matos
+* C группой "Angra" Andre Matos
+* C группой "Virgo" Andre Matos
 
 ## Обсуждения
 

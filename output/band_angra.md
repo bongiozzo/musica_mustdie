@@ -280,12 +280,12 @@ Ricardo Confessori - Drums
 
 ## Отношения с другими группами
 
-C группой "Viper" Andre Matos
-C группой "Virgo" Andre Matos
-C группой "Almah" Edu Falaschi (vocal)
-C группой "Shaman" 
-C группой "Matos, Andre" 
-C группой "Symfonia" 
+* C группой "Viper" Andre Matos
+* C группой "Virgo" Andre Matos
+* C группой "Almah" Edu Falaschi (vocal)
+* C группой "Shaman" 
+* C группой "Matos, Andre" 
+* C группой "Symfonia" 
 
 ## Обсуждения
 

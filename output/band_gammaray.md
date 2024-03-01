@@ -779,22 +779,22 @@ European (on CD and digital editions) bonus track:
 
 ## Отношения с другими группами
 
-C группой "Primal Fear" Ralf Scheepers
-C группой "Helloween" Kai Hansen
-C группой "Iron Savior" Kai Hansen
-C группой "Unisonic" Kai Hansen
-C группой "Therion" Hansi K&uuml;rsch
-C группой "Grave Digger" Hansi K&uuml;rsch
-C группой "Blind Guardian" Hansi K&uuml;rsch
-C группой "Iron Savior" Hansi K&uuml;rsch
-C группой "Edguy" Hansi K&uuml;rsch
-C группой "Demons & Wizards" Hansi K&uuml;rsch
-C группой "Lucifer's Heritage" Hansi K&uuml;rsch
-C группой "Blind Guardian" Tomas Stauch
-C группой "Iron Savior" Tomas Stauch
-C группой "Lucifer's Heritage" Tomas Stauch
-C группой "Freedom Call" Nils Neumann (keyboards)
-C группой "Powerworld" Nils Neumann (keyboards)
+* C группой "Primal Fear" Ralf Scheepers
+* C группой "Helloween" Kai Hansen
+* C группой "Iron Savior" Kai Hansen
+* C группой "Unisonic" Kai Hansen
+* C группой "Therion" Hansi K&uuml;rsch
+* C группой "Grave Digger" Hansi K&uuml;rsch
+* C группой "Blind Guardian" Hansi K&uuml;rsch
+* C группой "Iron Savior" Hansi K&uuml;rsch
+* C группой "Edguy" Hansi K&uuml;rsch
+* C группой "Demons & Wizards" Hansi K&uuml;rsch
+* C группой "Lucifer's Heritage" Hansi K&uuml;rsch
+* C группой "Blind Guardian" Tomas Stauch
+* C группой "Iron Savior" Tomas Stauch
+* C группой "Lucifer's Heritage" Tomas Stauch
+* C группой "Freedom Call" Nils Neumann (keyboards)
+* C группой "Powerworld" Nils Neumann (keyboards)
 
 ## Обсуждения
 

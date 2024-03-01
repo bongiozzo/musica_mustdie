@@ -35,9 +35,9 @@ The album is produced by Wisdom Call except 2 tracks produced by Mick Nordstrцm
 
 ## Отношения с другими группами
 
-C группой "Narnia" Andreas Olsson
-C группой "Stormwind" Andreas Olsson
-C группой "Harmony" Andreas Olsson
+* C группой "Narnia" Andreas Olsson
+* C группой "Stormwind" Andreas Olsson
+* C группой "Harmony" Andreas Olsson
 
 ## Обсуждения
 

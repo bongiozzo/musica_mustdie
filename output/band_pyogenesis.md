@@ -230,7 +230,7 @@ Co-produced by S. Bemm
 
 ## Отношения с другими группами
 
-C группой "Liquido" Wolle, Tim
+* C группой "Liquido" Wolle, Tim
 
 ## Обсуждения
 

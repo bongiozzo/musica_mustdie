@@ -124,11 +124,11 @@ tenth anniversary.
 
 ## Отношения с другими группами
 
-C группой "Stratovarius" Timo Kotipelto
-C группой "Kotipelto" Timo Kotipelto
-C группой "Cain's Offering" Timo Kotipelto
-C группой "Blackmore's Night" C. Night
-C группой "Nightwish" Tarja Turunen
+* C группой "Stratovarius" Timo Kotipelto
+* C группой "Kotipelto" Timo Kotipelto
+* C группой "Cain's Offering" Timo Kotipelto
+* C группой "Blackmore's Night" C. Night
+* C группой "Nightwish" Tarja Turunen
 
 ## Обсуждения
 

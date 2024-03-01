@@ -348,9 +348,9 @@ Disc 2 - Raven Street Sessions
 
 ## Отношения с другими группами
 
-C группой "Aggression Core" Curran Murphy
-C группой "Primal Fear" Randy Black (drums)
-C группой "Rebellion" Randy Black (drums)
+* C группой "Aggression Core" Curran Murphy
+* C группой "Primal Fear" Randy Black (drums)
+* C группой "Rebellion" Randy Black (drums)
 
 ## Обсуждения
 

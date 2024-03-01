@@ -152,9 +152,9 @@ Alessandro "Bix" Bissa - Drums
 
 ## Отношения с другими группами
 
-C группой "Rhapsody Of Fire" Fabio Lione
-C группой "Labyrinth" Fabio Lione
-C группой "Athena" Fabio Lione
+* C группой "Rhapsody Of Fire" Fabio Lione
+* C группой "Labyrinth" Fabio Lione
+* C группой "Athena" Fabio Lione
 
 ## Обсуждения
 

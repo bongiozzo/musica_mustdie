@@ -169,7 +169,7 @@ Steffen Theurer - Drums
 
 ## Отношения с другими группами
 
-C группой "Brainstorm" Andy B. Franck
+* C группой "Brainstorm" Andy B. Franck
 
 ## Обсуждения
 

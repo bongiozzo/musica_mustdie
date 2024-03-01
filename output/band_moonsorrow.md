@@ -162,7 +162,7 @@ The Metalica cover 'For Whom The Bell Tolls' was recorded in 2005.
 
 ## Отношения с другими группами
 
-C группой "Chaosbreed" Marko Tarvonen
+* C группой "Chaosbreed" Marko Tarvonen
 
 ## Обсуждения
 

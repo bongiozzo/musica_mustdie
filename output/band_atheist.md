@@ -112,8 +112,8 @@ GWAR).
 
 ## Отношения с другими группами
 
-C группой "Neurotica" Atheist
-C группой "Gnostic" 
+* C группой "Neurotica" Atheist
+* C группой "Gnostic" 
 
 ## Обсуждения
 

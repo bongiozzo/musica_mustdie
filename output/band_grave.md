@@ -280,8 +280,8 @@ Double vinyl version in gatefold sleeve includes the bonus tracks:
 
 ## Отношения с другими группами
 
-C группой "Entombed" Jorgen Sandstrom  (bass)
-C группой "The Project Hate MCMXCIX" Jorgen Sandstrom  (bass)
+* C группой "Entombed" Jorgen Sandstrom  (bass)
+* C группой "The Project Hate MCMXCIX" Jorgen Sandstrom  (bass)
 
 ## Обсуждения
 

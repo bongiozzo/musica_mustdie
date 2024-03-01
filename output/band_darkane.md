@@ -122,8 +122,8 @@ Jens Broman - Vocals
 
 ## Отношения с другими группами
 
-C группой "The Defaced" Klas Ideberg
-C группой "Terror 2000" Klas Ideberg
+* C группой "The Defaced" Klas Ideberg
+* C группой "Terror 2000" Klas Ideberg
 
 ## Обсуждения
 

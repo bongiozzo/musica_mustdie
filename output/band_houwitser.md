@@ -82,8 +82,8 @@
 
 ## Отношения с другими группами
 
-C группой "Sinister" Mike
-C группой "Death Squad" Mike
+* C группой "Sinister" Mike
+* C группой "Death Squad" Mike
 
 ## Обсуждения
 

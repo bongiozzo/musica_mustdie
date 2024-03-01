@@ -245,9 +245,9 @@ Bonustracks (Digipack/LP Edition)
 
 ## Отношения с другими группами
 
-C группой "Unisonic" Mandy Meyer (guitar)
-C группой "Krokus" Mandy Meyer (guitar)
-C группой "Asia" Mandy Meyer (guitar)
+* C группой "Unisonic" Mandy Meyer (guitar)
+* C группой "Krokus" Mandy Meyer (guitar)
+* C группой "Asia" Mandy Meyer (guitar)
 
 ## Обсуждения
 

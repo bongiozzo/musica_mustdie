@@ -11,12 +11,12 @@ industrial-black (Rossomahaar members)
 
 ## Отношения с другими группами
 
-C группой "Rossomahaar" Lazar
-C группой "Nargathrond" Lazar
-C группой "Аркона" Lazar
-C группой "Rossomahaar" Kniaz
-C группой "Nargathrond" Kniaz
-C группой "Аркона" Kniaz
+* C группой "Rossomahaar" Lazar
+* C группой "Nargathrond" Lazar
+* C группой "Аркона" Lazar
+* C группой "Rossomahaar" Kniaz
+* C группой "Nargathrond" Kniaz
+* C группой "Аркона" Kniaz
 
 ## Обсуждения
 

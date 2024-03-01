@@ -276,7 +276,7 @@ Josh Cheuse  -  Art Direction, Design
 
 ## Отношения с другими группами
 
-C группой "Double Trouble" Stevie Ray Vaughan
+* C группой "Double Trouble" Stevie Ray Vaughan
 
 ## Обсуждения
 

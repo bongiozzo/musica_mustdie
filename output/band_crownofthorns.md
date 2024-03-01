@@ -59,7 +59,7 @@ Marcus Sunesson - Guitars
 
 ## Отношения с другими группами
 
-C группой "The Crown" 
+* C группой "The Crown" 
 
 ## Обсуждения
 

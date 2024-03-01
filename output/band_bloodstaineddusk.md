@@ -36,9 +36,9 @@
 
 ## Отношения с другими группами
 
-C группой "Gorgoroth" Pest (vocal)
-C группой "Obtained Enslavement" Pest (vocal)
-C группой "Ancient" Profana (drums)
+* C группой "Gorgoroth" Pest (vocal)
+* C группой "Obtained Enslavement" Pest (vocal)
+* C группой "Ancient" Profana (drums)
 
 ## Обсуждения
 

@@ -113,7 +113,7 @@ featuring Gregg Guiffria (keys), Robin Beck, Terry Brock (background vocals)
 
 ## Отношения с другими группами
 
-C группой "James Christian" James Christian
+* C группой "James Christian" James Christian
 
 ## Обсуждения
 

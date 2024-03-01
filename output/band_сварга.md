@@ -83,9 +83,9 @@ Alexander Kosjakov - brass section
 
 ## Отношения с другими группами
 
-C группой "Intra Spelaeum" 
-C группой "Лешак" 
-C группой "Крамола" 
+* C группой "Intra Spelaeum" 
+* C группой "Лешак" 
+* C группой "Крамола" 
 
 ## Обсуждения
 

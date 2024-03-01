@@ -313,10 +313,10 @@ Boxset:
 
 ## Отношения с другими группами
 
-C группой "Rage" Jorg Michael
-C группой "Stratovarius" Jorg Michael
-C группой "Toxic Taste" Rolf "Rock'n'Rolf" Kasparek (T. T. Poison)
-C группой "Giant X" Rolf "Rock'n'Rolf" Kasparek (T. T. Poison)
+* C группой "Rage" Jorg Michael
+* C группой "Stratovarius" Jorg Michael
+* C группой "Toxic Taste" Rolf "Rock'n'Rolf" Kasparek (T. T. Poison)
+* C группой "Giant X" Rolf "Rock'n'Rolf" Kasparek (T. T. Poison)
 
 ## Обсуждения
 

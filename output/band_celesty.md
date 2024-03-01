@@ -86,7 +86,7 @@ Part II - Battlefield - The departure - Ride of Amardon - Ending
 
 ## Отношения с другими группами
 
-C группой "Altaria" J.-P. Alanen (guitar)
+* C группой "Altaria" J.-P. Alanen (guitar)
 
 ## Обсуждения
 

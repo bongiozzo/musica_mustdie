@@ -225,7 +225,7 @@ Ludwig Witt - Drums (Grand Magus, Spiritual Beggars, ex-Sandalinas (live), ex-Fi
 
 ## Отношения с другими группами
 
-C группой "Kovenant" Hellhammer
+* C группой "Kovenant" Hellhammer
 
 ## Обсуждения
 

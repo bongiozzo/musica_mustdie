@@ -24,8 +24,8 @@ Van Williams (ex NEVERMORE) - drums
 
 ## Отношения с другими группами
 
-C группой "Iced Earth" 
-C группой "Nevermore" 
+* C группой "Iced Earth" 
+* C группой "Nevermore" 
 
 ## Обсуждения
 

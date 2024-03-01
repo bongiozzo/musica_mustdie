@@ -116,9 +116,9 @@ Mixing and mastering at Priory Recording Studios.
 
 ## Отношения с другими группами
 
-C группой "Khors" Khaoth
-C группой "Hate Forest" Khaoth
-C группой "Khors" Wortherax
+* C группой "Khors" Khaoth
+* C группой "Hate Forest" Khaoth
+* C группой "Khors" Wortherax
 
 ## Обсуждения
 

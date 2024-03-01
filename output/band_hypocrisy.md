@@ -375,10 +375,10 @@ Digipak bonus track:
 
 ## Отношения с другими группами
 
-C группой "Pain" Peter Tagtgren
-C группой "Bloodbath" Peter Tagtgren
-C группой "Immortal" Horgh (drums)
-C группой "Grimfist" Horgh (drums)
+* C группой "Pain" Peter Tagtgren
+* C группой "Bloodbath" Peter Tagtgren
+* C группой "Immortal" Horgh (drums)
+* C группой "Grimfist" Horgh (drums)
 
 ## Обсуждения
 

@@ -48,9 +48,9 @@
 
 ## Отношения с другими группами
 
-C группой "Dream Theater" bassist John Myung
-C группой "Dixie Dregs" drummer Rod Morgenstein
-C группой "King's X" guitarist Ty Tabor
+* C группой "Dream Theater" bassist John Myung
+* C группой "Dixie Dregs" drummer Rod Morgenstein
+* C группой "King's X" guitarist Ty Tabor
 
 ## Обсуждения
 

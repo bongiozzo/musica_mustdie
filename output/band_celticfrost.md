@@ -182,8 +182,8 @@ Triptych:
 
 ## Отношения с другими группами
 
-C группой "Apollyon Sun" mainman Tom Gabriel Fischer
-C группой "Triptykon" Tom Gabriel Fischer
+* C группой "Apollyon Sun" mainman Tom Gabriel Fischer
+* C группой "Triptykon" Tom Gabriel Fischer
 
 ## Обсуждения
 

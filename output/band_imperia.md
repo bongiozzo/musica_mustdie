@@ -68,12 +68,12 @@ Audun Gronnestad - Orchestration
 
 ## Отношения с другими группами
 
-C группой "Angel" Helena Michaelsen and Jan Yrlund
-C группой "Trail of Tears" Helena Michaelsen and Jan Yrlund
-C группой "Lacrimosa" Jan Yrlund (guitar)
-C группой "Angel" Jan Yrlund (guitar)
-C группой "Danse Macabre" Jan Yrlund (guitar)
-C группой "Ancient Rites" Jan Yrlund (guitar)
+* C группой "Angel" Helena Michaelsen and Jan Yrlund
+* C группой "Trail of Tears" Helena Michaelsen and Jan Yrlund
+* C группой "Lacrimosa" Jan Yrlund (guitar)
+* C группой "Angel" Jan Yrlund (guitar)
+* C группой "Danse Macabre" Jan Yrlund (guitar)
+* C группой "Ancient Rites" Jan Yrlund (guitar)
 
 ## Обсуждения
 

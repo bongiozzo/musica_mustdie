@@ -137,11 +137,11 @@ Lonely (Digi Bonus)
 
 ## Отношения с другими группами
 
-C группой "Epica" Mark Jansen (guitar)
-C группой "Mayan" Mark Jansen (guitar)
-C группой "HDK" Sander Gommans
-C группой "ReVamp" Floor Jansen (vocal) and Joost Van Den Broek (keyboards)
-C группой "Mayan" Jack Driessen (keyboards)
+* C группой "Epica" Mark Jansen (guitar)
+* C группой "Mayan" Mark Jansen (guitar)
+* C группой "HDK" Sander Gommans
+* C группой "ReVamp" Floor Jansen (vocal) and Joost Van Den Broek (keyboards)
+* C группой "Mayan" Jack Driessen (keyboards)
 
 ## Обсуждения
 

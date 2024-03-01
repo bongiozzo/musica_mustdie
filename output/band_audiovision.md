@@ -53,8 +53,8 @@ Eric Clayton - Speaker Voice
 
 ## Отношения с другими группами
 
-C группой "Narnia" Christian Rivel (vocal)
-C группой "DivineFire" Christian Rivel (vocal)
+* C группой "Narnia" Christian Rivel (vocal)
+* C группой "DivineFire" Christian Rivel (vocal)
 
 ## Обсуждения
 

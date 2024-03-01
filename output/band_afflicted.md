@@ -60,7 +60,7 @@ Front Cover Artwork By Art Attack.
 
 ## Отношения с другими группами
 
-C группой "General Surgery" Joacim Carlsson
+* C группой "General Surgery" Joacim Carlsson
 
 ## Обсуждения
 

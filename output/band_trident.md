@@ -11,12 +11,12 @@
 
 ## Отношения с другими группами
 
-C группой "Dissection" Johan Norman
-C группой "Soulreaper" Johan Norman
-C группой "Necrophobic" Tobias Sidegеrd
-C группой "Grief Of Emerald" Jonas Blom
-C группой "Necrophobic" Alex Friberg (bass)
-C группой "Firespawn" Alex Friberg (bass)
+* C группой "Dissection" Johan Norman
+* C группой "Soulreaper" Johan Norman
+* C группой "Necrophobic" Tobias Sidegеrd
+* C группой "Grief Of Emerald" Jonas Blom
+* C группой "Necrophobic" Alex Friberg (bass)
+* C группой "Firespawn" Alex Friberg (bass)
 
 ## Обсуждения
 

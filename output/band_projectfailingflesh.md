@@ -11,7 +11,7 @@ modern progressive-thrash-metal
 
 ## Отношения с другими группами
 
-C группой "Voivod" Eric Forrest
+* C группой "Voivod" Eric Forrest
 
 ## Обсуждения
 

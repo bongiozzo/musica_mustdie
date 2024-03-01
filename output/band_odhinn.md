@@ -11,9 +11,9 @@
 
 ## Отношения с другими группами
 
-C группой "In Battle" Frln, John Sandin и Wiklund 
-C группой "Aeon" Nils Fjellstrom (drums)
-C группой "Dark Funeral" Nils Fjellstrom (drums)
+* C группой "In Battle" Frln, John Sandin и Wiklund 
+* C группой "Aeon" Nils Fjellstrom (drums)
+* C группой "Dark Funeral" Nils Fjellstrom (drums)
 
 ## Обсуждения
 

@@ -79,7 +79,7 @@ Nigel Molden  -  Executive Producer
 
 ## Отношения с другими группами
 
-C группой "Led Zeppelin" Guitar Player
+* C группой "Led Zeppelin" Guitar Player
 
 ## Обсуждения
 

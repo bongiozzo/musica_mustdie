@@ -55,7 +55,7 @@ JAPANESE {13 AND 14} AUSTRALIA {14}
 
 ## Отношения с другими группами
 
-C группой "Guns N' Roses" Lead Guitar, Slash
+* C группой "Guns N' Roses" Lead Guitar, Slash
 
 ## Обсуждения
 

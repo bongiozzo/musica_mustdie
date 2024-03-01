@@ -75,8 +75,8 @@ In the Darkest Circles of Time [05:39]
 
 ## Отношения с другими группами
 
-C группой "Gehenna" S. Winter (drums)
-C группой "Forlorn" S. Winter (drums)
+* C группой "Gehenna" S. Winter (drums)
+* C группой "Forlorn" S. Winter (drums)
 
 ## Обсуждения
 

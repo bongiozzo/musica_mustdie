@@ -144,15 +144,15 @@ Live at the MFVF VIII 2010
 
 ## Отношения с другими группами
 
-C группой "Theatre of Tragedy" Liv Kristine
-C группой "Liv Kristine" Liv Kristine
-C группой "Atrocity (Germany)" Moritz Neuner
-C группой "Abigor" Moritz Neuner
-C группой "Graveworm" Moritz Neuner
-C группой "Siegfried" Moritz Neuner
-C группой "Darkwell" Moritz Neuner
-C группой "Shadowcast" Moritz Neuner
-C группой "Atrocity (Germany)" Alex Krull
+* C группой "Theatre of Tragedy" Liv Kristine
+* C группой "Liv Kristine" Liv Kristine
+* C группой "Atrocity (Germany)" Moritz Neuner
+* C группой "Abigor" Moritz Neuner
+* C группой "Graveworm" Moritz Neuner
+* C группой "Siegfried" Moritz Neuner
+* C группой "Darkwell" Moritz Neuner
+* C группой "Shadowcast" Moritz Neuner
+* C группой "Atrocity (Germany)" Alex Krull
 
 ## Обсуждения
 

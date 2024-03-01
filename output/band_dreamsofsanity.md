@@ -89,7 +89,7 @@ Cover artwork and layout by Andreas Seebacher
 
 ## Отношения с другими группами
 
-C группой "Siegfried" Sandra Schleret
+* C группой "Siegfried" Sandra Schleret
 
 ## Обсуждения
 

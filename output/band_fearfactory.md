@@ -306,12 +306,12 @@ Christian Olde Wolbers
 
 ## Отношения с другими группами
 
-C группой "Brujeria" Dino Cazares
-C группой "Brujeria" Raymond Herrera
-C группой "G/Z/R" Burton C. Bell
-C группой "Strapping Young Lad" Byron Stroud (bass)
-C группой "Asesino" Dino Cazares
-C группой "Arkaea" Christian Olde Wolbers and Raymond Herrera
+* C группой "Brujeria" Dino Cazares
+* C группой "Brujeria" Raymond Herrera
+* C группой "G/Z/R" Burton C. Bell
+* C группой "Strapping Young Lad" Byron Stroud (bass)
+* C группой "Asesino" Dino Cazares
+* C группой "Arkaea" Christian Olde Wolbers and Raymond Herrera
 
 ## Обсуждения
 

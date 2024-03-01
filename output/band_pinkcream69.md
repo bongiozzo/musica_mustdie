@@ -209,8 +209,8 @@ Disc 2
 
 ## Отношения с другими группами
 
-C группой "Unisonic" Dennis Ward (bass)
-C группой "Unisonic" Kosta Zafiriou (drums)
+* C группой "Unisonic" Dennis Ward (bass)
+* C группой "Unisonic" Kosta Zafiriou (drums)
 
 ## Обсуждения
 

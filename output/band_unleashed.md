@@ -310,9 +310,9 @@ Composition Rickard Albinsson
 
 ## Отношения с другими группами
 
-C группой "Necrophobic" Fredrik Folkare (guitar)
-C группой "Firespawn" Fredrik Folkare (guitar)
-C группой "Siebenburgen" Fredrik Folkare (guitar)
+* C группой "Necrophobic" Fredrik Folkare (guitar)
+* C группой "Firespawn" Fredrik Folkare (guitar)
+* C группой "Siebenburgen" Fredrik Folkare (guitar)
 
 ## Обсуждения
 

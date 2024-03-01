@@ -21,7 +21,7 @@ Finnish melodic thrash-metal
 
 ## Отношения с другими группами
 
-C группой "Thyrane" Avather (guitar)
+* C группой "Thyrane" Avather (guitar)
 
 ## Обсуждения
 

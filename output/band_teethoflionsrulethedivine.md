@@ -11,7 +11,7 @@ Stephen O'Malley (Burning Witch, Khanate, Sunn O))) & Lee Dorrian (Cathedral, Na
 
 ## Отношения с другими группами
 
-C группой "Khanate" Stephen O`Malley
+* C группой "Khanate" Stephen O`Malley
 
 ## Обсуждения
 

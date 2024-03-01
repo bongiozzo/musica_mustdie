@@ -11,7 +11,7 @@ Death/Black Metal from France
 
 ## Отношения с другими группами
 
-C группой "7th Nemesis / Punishment" 
+* C группой "7th Nemesis / Punishment" 
 
 ## Обсуждения
 

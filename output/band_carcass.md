@@ -252,12 +252,12 @@ Track 17 - From The 'Grindcrusher' Compilation
 
 ## Отношения с другими группами
 
-C группой "Arch Enemy" Michael Amott
-C группой "Firebird" guitarist Bill Steer
-C группой "Napalm Death" guitarist Bill Steer
-C группой "Firebird" guitarist Bill Steer
-C группой "Blackstar" Carlo Regadas (guitar)
-C группой "Monstrance" Carlo Regadas (guitar)
+* C группой "Arch Enemy" Michael Amott
+* C группой "Firebird" guitarist Bill Steer
+* C группой "Napalm Death" guitarist Bill Steer
+* C группой "Firebird" guitarist Bill Steer
+* C группой "Blackstar" Carlo Regadas (guitar)
+* C группой "Monstrance" Carlo Regadas (guitar)
 
 ## Обсуждения
 

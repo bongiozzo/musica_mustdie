@@ -172,22 +172,22 @@ Urv?dersf?ngen
 
 ## Отношения с другими группами
 
-C группой "Borknagar" A. Hedlund
-C группой "Otyg" A. Hedlund
-C группой "Havayoth" A. Hedlund
-C группой "Fission" A. Hedlund
-C группой "Death" Steve DiGiorgio
-C группой "Testament" Steve DiGiorgio
-C группой "Control Denied" Steve DiGiorgio
-C группой "Dragonlord" Steve DiGiorgio
-C группой "Fission" Benny Hagglund (drums)
-C группой "Borknagar" Asgeir Mickelson (drums)
-C группой "Spiral Architect" Asgeir Mickelson (drums)
-C группой "ICS Vortex" Asgeir Mickelson (drums)
-C группой "Artisan" Asgeir Mickelson (drums)
-C группой "Sarke" Asgeir Mickelson (drums)
-C группой "Testament" Asgeir Mickelson (drums)
-C группой "Otyg" Mattias Marklund (guitar)
+* C группой "Borknagar" A. Hedlund
+* C группой "Otyg" A. Hedlund
+* C группой "Havayoth" A. Hedlund
+* C группой "Fission" A. Hedlund
+* C группой "Death" Steve DiGiorgio
+* C группой "Testament" Steve DiGiorgio
+* C группой "Control Denied" Steve DiGiorgio
+* C группой "Dragonlord" Steve DiGiorgio
+* C группой "Fission" Benny Hagglund (drums)
+* C группой "Borknagar" Asgeir Mickelson (drums)
+* C группой "Spiral Architect" Asgeir Mickelson (drums)
+* C группой "ICS Vortex" Asgeir Mickelson (drums)
+* C группой "Artisan" Asgeir Mickelson (drums)
+* C группой "Sarke" Asgeir Mickelson (drums)
+* C группой "Testament" Asgeir Mickelson (drums)
+* C группой "Otyg" Mattias Marklund (guitar)
 
 ## Обсуждения
 

@@ -121,7 +121,7 @@ Rob Affuso - Drums
 
 ## Отношения с другими группами
 
-C группой "Sebastian Bach" Sebastian Bach (vocal)
+* C группой "Sebastian Bach" Sebastian Bach (vocal)
 
 ## Обсуждения
 

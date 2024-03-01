@@ -25,7 +25,7 @@
 
 ## Отношения с другими группами
 
-C группой "Fear Factory" Dino Cazares
+* C группой "Fear Factory" Dino Cazares
 
 ## Обсуждения
 

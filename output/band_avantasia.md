@@ -324,7 +324,7 @@ Disc 3
 
 ## Отношения с другими группами
 
-C группой "Edguy" Tobias Sammet
+* C группой "Edguy" Tobias Sammet
 
 ## Обсуждения
 

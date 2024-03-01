@@ -44,7 +44,7 @@ LaChapelle's works
 
 ## Отношения с другими группами
 
-C группой "Demons Of Guillotine" DEMONS OF GUILLOTINE (ex-Demons)
+* C группой "Demons Of Guillotine" DEMONS OF GUILLOTINE (ex-Demons)
 
 ## Обсуждения
 

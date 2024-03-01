@@ -198,16 +198,16 @@ Bobby Jarzombek - Drums
 
 ## Отношения с другими группами
 
-C группой "Judas Priest" Rob Halford
-C группой "Damageplan" Patrick Lachmann (guitar, vocal)
-C группой "Testament" "Metal" Mike Chlasciak (guitar)
-C группой "Cans" "Metal" Mike Chlasciak (guitar)
-C группой "Iced Earth" Bobby Jarzombek (drums)
-C группой "Riot" Bobby Jarzombek (drums)
-C группой "Fates Warning" Bobby Jarzombek  (drums)
-C группой "Arch/Matheos" Bobby Jarzombek  (drums)
-C группой "Riot" Bobby Jarzombek  (drums)
-C группой "Sebastian Bach" Bobby Jarzombek  (drums)
+* C группой "Judas Priest" Rob Halford
+* C группой "Damageplan" Patrick Lachmann (guitar, vocal)
+* C группой "Testament" "Metal" Mike Chlasciak (guitar)
+* C группой "Cans" "Metal" Mike Chlasciak (guitar)
+* C группой "Iced Earth" Bobby Jarzombek (drums)
+* C группой "Riot" Bobby Jarzombek (drums)
+* C группой "Fates Warning" Bobby Jarzombek  (drums)
+* C группой "Arch/Matheos" Bobby Jarzombek  (drums)
+* C группой "Riot" Bobby Jarzombek  (drums)
+* C группой "Sebastian Bach" Bobby Jarzombek  (drums)
 
 ## Обсуждения
 

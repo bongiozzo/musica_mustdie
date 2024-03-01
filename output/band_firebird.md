@@ -7,9 +7,9 @@
 
 ## Отношения с другими группами
 
-C группой "Carcass" guitarist Bill Steer
-C группой "Carcass" guitarist Bill Steer
-C группой "Napalm Death" guitarist Bill Steer
+* C группой "Carcass" guitarist Bill Steer
+* C группой "Carcass" guitarist Bill Steer
+* C группой "Napalm Death" guitarist Bill Steer
 
 ## Обсуждения
 

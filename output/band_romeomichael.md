@@ -28,8 +28,8 @@ Produced by Michael Romeo
 
 ## Отношения с другими группами
 
-C группой "Symphony X" Guitar player
-C группой "Kotipelto" Guitar player
+* C группой "Symphony X" Guitar player
+* C группой "Kotipelto" Guitar player
 
 ## Обсуждения
 

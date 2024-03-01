@@ -7,8 +7,8 @@ Satanic Metal
 
 ## Отношения с другими группами
 
-C группой "Nocturnus" Mike Browning
-C группой "Morbid Angel" Mike Browning
+* C группой "Nocturnus" Mike Browning
+* C группой "Morbid Angel" Mike Browning
 
 ## Обсуждения
 

@@ -394,8 +394,8 @@ Deluxe edition bonus CD track list:
 
 ## Отношения с другими группами
 
-C группой "Halford" Rob Halford
-C группой "Iced Earth" Tim Owens
+* C группой "Halford" Rob Halford
+* C группой "Iced Earth" Tim Owens
 
 ## Обсуждения
 

@@ -128,17 +128,17 @@ Josh Pincus - keyboards (9)
 
 ## Отношения с другими группами
 
-C группой "Faith And Fire" Tony Moore
-C группой "Faith And Fire" Mike Flyntz
-C группой "Virgin Steele" Frank Gilchriest (drums)
-C группой "Iced Earth" Bobby Jarzombek (drums)
-C группой "Halford" Bobby Jarzombek (drums)
-C группой "Malmsteen, Yngwie" John Macaluso
-C группой "TNT" John Macaluso
-C группой "Fates Warning" Bobby Jarzombek  (drums)
-C группой "Halford" Bobby Jarzombek  (drums)
-C группой "Arch/Matheos" Bobby Jarzombek  (drums)
-C группой "Sebastian Bach" Bobby Jarzombek  (drums)
+* C группой "Faith And Fire" Tony Moore
+* C группой "Faith And Fire" Mike Flyntz
+* C группой "Virgin Steele" Frank Gilchriest (drums)
+* C группой "Iced Earth" Bobby Jarzombek (drums)
+* C группой "Halford" Bobby Jarzombek (drums)
+* C группой "Malmsteen, Yngwie" John Macaluso
+* C группой "TNT" John Macaluso
+* C группой "Fates Warning" Bobby Jarzombek  (drums)
+* C группой "Halford" Bobby Jarzombek  (drums)
+* C группой "Arch/Matheos" Bobby Jarzombek  (drums)
+* C группой "Sebastian Bach" Bobby Jarzombek  (drums)
 
 ## Обсуждения
 

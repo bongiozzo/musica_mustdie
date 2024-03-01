@@ -47,7 +47,7 @@ Features a guest appearance by KING DIAMOND guitarist Andy LaRocque on the song
 
 ## Отношения с другими группами
 
-C группой "Aborted" 
+* C группой "Aborted" 
 
 ## Обсуждения
 

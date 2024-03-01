@@ -116,9 +116,9 @@ Ivan Gujic -Guitars
 
 ## Отношения с другими группами
 
-C группой "Emperor" bassist-turned-guitarist Tchort
-C группой "Satyricon" bassist-turned-guitarist Tchort
-C группой "Einherjer" bassist-turned-guitarist Tchort
+* C группой "Emperor" bassist-turned-guitarist Tchort
+* C группой "Satyricon" bassist-turned-guitarist Tchort
+* C группой "Einherjer" bassist-turned-guitarist Tchort
 
 ## Обсуждения
 

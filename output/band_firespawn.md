@@ -11,19 +11,19 @@
 
 ## Отношения с другими группами
 
-C группой "Entombed" LG Petrov (vocal)
-C группой "Entombed A.D." LG Petrov (vocal)
-C группой "Comecon" LG Petrov (vocal)
-C группой "Defleshed" Matte Modin (drums)
-C группой "Dark Funeral" Matte Modin (drums)
-C группой "Necrophobic" Alex Friberg (bass)
-C группой "Trident" Alex Friberg (bass)
-C группой "Entombed" Victor Brandt (guitar)
-C группой "Entombed A.D." Victor Brandt (guitar)
-C группой "Aeon" Victor Brandt (guitar)
-C группой "Unleashed" Fredrik Folkare (guitar)
-C группой "Necrophobic" Fredrik Folkare (guitar)
-C группой "Siebenburgen" Fredrik Folkare (guitar)
+* C группой "Entombed" LG Petrov (vocal)
+* C группой "Entombed A.D." LG Petrov (vocal)
+* C группой "Comecon" LG Petrov (vocal)
+* C группой "Defleshed" Matte Modin (drums)
+* C группой "Dark Funeral" Matte Modin (drums)
+* C группой "Necrophobic" Alex Friberg (bass)
+* C группой "Trident" Alex Friberg (bass)
+* C группой "Entombed" Victor Brandt (guitar)
+* C группой "Entombed A.D." Victor Brandt (guitar)
+* C группой "Aeon" Victor Brandt (guitar)
+* C группой "Unleashed" Fredrik Folkare (guitar)
+* C группой "Necrophobic" Fredrik Folkare (guitar)
+* C группой "Siebenburgen" Fredrik Folkare (guitar)
 
 ## Обсуждения
 

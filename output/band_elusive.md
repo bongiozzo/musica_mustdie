@@ -34,9 +34,9 @@ Shadow Dance
 
 ## Отношения с другими группами
 
-C группой "Tristania" Morten Veland (guitar)
-C группой "Sirenia" Morten Veland (guitar)
-C группой "Theatre of Tragedy" Tommy Olsson
+* C группой "Tristania" Morten Veland (guitar)
+* C группой "Sirenia" Morten Veland (guitar)
+* C группой "Theatre of Tragedy" Tommy Olsson
 
 ## Обсуждения
 

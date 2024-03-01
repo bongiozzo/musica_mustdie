@@ -7,19 +7,19 @@ Vortex, Mustis etc
 
 ## Отношения с другими группами
 
-C группой "Borknagar" Asgeir Mickelson (drums)
-C группой "Vintersorg" Asgeir Mickelson (drums)
-C группой "Spiral Architect" Asgeir Mickelson (drums)
-C группой "ICS Vortex" Asgeir Mickelson (drums)
-C группой "Sarke" Asgeir Mickelson (drums)
-C группой "Testament" Asgeir Mickelson (drums)
-C группой "Dimmu Borgir" ICS Vortex (bass, vocals)
-C группой "ICS Vortex" ICS Vortex (bass, vocals)
-C группой "Borknagar" ICS Vortex (bass, vocals)
-C группой "Arcturus" ICS Vortex (bass, vocals)
-C группой "Dimmu Borgir" Mustis (keyboards)
-C группой "Borknagar" Jens F. Ryland (guitar)
-C группой "ICS Vortex" Jens F. Ryland (guitar)
+* C группой "Borknagar" Asgeir Mickelson (drums)
+* C группой "Vintersorg" Asgeir Mickelson (drums)
+* C группой "Spiral Architect" Asgeir Mickelson (drums)
+* C группой "ICS Vortex" Asgeir Mickelson (drums)
+* C группой "Sarke" Asgeir Mickelson (drums)
+* C группой "Testament" Asgeir Mickelson (drums)
+* C группой "Dimmu Borgir" ICS Vortex (bass, vocals)
+* C группой "ICS Vortex" ICS Vortex (bass, vocals)
+* C группой "Borknagar" ICS Vortex (bass, vocals)
+* C группой "Arcturus" ICS Vortex (bass, vocals)
+* C группой "Dimmu Borgir" Mustis (keyboards)
+* C группой "Borknagar" Jens F. Ryland (guitar)
+* C группой "ICS Vortex" Jens F. Ryland (guitar)
 
 ## Обсуждения
 

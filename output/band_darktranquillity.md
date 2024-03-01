@@ -398,7 +398,7 @@ Recorded at Rogue Music in Gothenburg, Sweden.
 
 ## Отношения с другими группами
 
-C группой "In Flames" Michael Stanne
+* C группой "In Flames" Michael Stanne
 
 ## Обсуждения
 

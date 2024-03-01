@@ -251,12 +251,12 @@ Live performance, recorded at the Stadsteater, Upsalla, Sweden on 10th February,
 
 ## Отношения с другими группами
 
-C группой "Karmakanic" Zoltan Choersz
-C группой "Karmakanic" Jonas Reingold
-C группой "Kaipa" Roine Stolt
-C группой "Bodin Tomas" Tomas Bodin
-C группой "Karmakanic" Tomas Bodin
-C группой "Karmakanic" Roine Stolt
+* C группой "Karmakanic" Zoltan Choersz
+* C группой "Karmakanic" Jonas Reingold
+* C группой "Kaipa" Roine Stolt
+* C группой "Bodin Tomas" Tomas Bodin
+* C группой "Karmakanic" Tomas Bodin
+* C группой "Karmakanic" Roine Stolt
 
 ## Обсуждения
 

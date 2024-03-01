@@ -11,11 +11,11 @@ Orchestral Metal from Sweden/England
 
 ## Отношения с другими группами
 
-C группой "Cradle of Filth" Sarah Jezebel Deva
-C группой "Therion" Sarah Jezebel Deva
-C группой "Mortiis" Sarah Jezebel Deva
-C группой "Sarah Jezebel Deva" Sarah Jezebel Deva
-C группой "Abyssos" Chris Rehn
+* C группой "Cradle of Filth" Sarah Jezebel Deva
+* C группой "Therion" Sarah Jezebel Deva
+* C группой "Mortiis" Sarah Jezebel Deva
+* C группой "Sarah Jezebel Deva" Sarah Jezebel Deva
+* C группой "Abyssos" Chris Rehn
 
 ## Обсуждения
 

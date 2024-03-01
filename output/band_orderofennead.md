@@ -33,8 +33,8 @@
 
 ## Отношения с другими группами
 
-C группой "Council of the Fallen" Steve Asheim, Kevin Quirion,Scott Patrick
-C группой "Deicide" Steve Asheim, Kevin Quirion
+* C группой "Council of the Fallen" Steve Asheim, Kevin Quirion,Scott Patrick
+* C группой "Deicide" Steve Asheim, Kevin Quirion
 
 ## Обсуждения
 

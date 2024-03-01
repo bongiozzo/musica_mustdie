@@ -11,11 +11,11 @@ melodic thrash from VINTERSORG
 
 ## Отношения с другими группами
 
-C группой "Borknagar" A. Hedlund
-C группой "Vintersorg" A. Hedlund
-C группой "Otyg" A. Hedlund
-C группой "Havayoth" A. Hedlund
-C группой "Vintersorg" Benny Hagglund (drums)
+* C группой "Borknagar" A. Hedlund
+* C группой "Vintersorg" A. Hedlund
+* C группой "Otyg" A. Hedlund
+* C группой "Havayoth" A. Hedlund
+* C группой "Vintersorg" Benny Hagglund (drums)
 
 ## Обсуждения
 

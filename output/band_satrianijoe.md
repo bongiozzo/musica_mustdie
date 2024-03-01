@@ -241,7 +241,7 @@ Pat Thrall - bass
 
 ## Отношения с другими группами
 
-C группой "Chickenfoot" Joe Satriani
+* C группой "Chickenfoot" Joe Satriani
 
 ## Обсуждения
 

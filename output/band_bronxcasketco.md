@@ -68,7 +68,7 @@ D.D. Verni : Mixing, Producer
 
 ## Отношения с другими группами
 
-C группой "Overkill" 
+* C группой "Overkill" 
 
 ## Обсуждения
 

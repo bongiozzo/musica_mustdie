@@ -36,7 +36,7 @@ Born to be King of Innerself
 
 ## Отношения с другими группами
 
-C группой "MUSICA (compilation)" Tvangeste
+* C группой "MUSICA (compilation)" Tvangeste
 
 ## Обсуждения
 

@@ -86,8 +86,8 @@ Produced by Alexander Krull at Mastersound Studio
 
 ## Отношения с другими группами
 
-C группой "Theatre of Tragedy" Liv Kristine
-C группой "Leaves' Eyes" Liv Kristine
+* C группой "Theatre of Tragedy" Liv Kristine
+* C группой "Leaves' Eyes" Liv Kristine
 
 ## Обсуждения
 

@@ -232,7 +232,7 @@ Metal Hammer special fan pack bonus track
 
 ## Отношения с другими группами
 
-C группой "Vio-Lence" guitarist Robb Flynn
+* C группой "Vio-Lence" guitarist Robb Flynn
 
 ## Обсуждения
 

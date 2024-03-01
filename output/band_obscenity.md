@@ -146,7 +146,7 @@ Oliver Jauch - Vocals
 
 ## Отношения с другими группами
 
-C группой "Dew-Scented" Alexander Pahl (bass)
+* C группой "Dew-Scented" Alexander Pahl (bass)
 
 ## Обсуждения
 

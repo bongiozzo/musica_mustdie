@@ -11,7 +11,7 @@ singer of SYMPHONY X
 
 ## Отношения с другими группами
 
-C группой "Symphony X" singer
+* C группой "Symphony X" singer
 
 ## Обсуждения
 

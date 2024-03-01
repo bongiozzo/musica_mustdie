@@ -82,8 +82,8 @@ Helene Schцnning - vocals
 
 ## Отношения с другими группами
 
-C группой "Karmakanic" Tomas Bodin
-C группой "Flower Kings, The" Tomas Bodin
+* C группой "Karmakanic" Tomas Bodin
+* C группой "Flower Kings, The" Tomas Bodin
 
 ## Обсуждения
 

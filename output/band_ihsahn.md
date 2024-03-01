@@ -98,7 +98,7 @@ Track 11 is a bonus track and not listed on the back of the release.
 
 ## Отношения с другими группами
 
-C группой "Emperor" 
+* C группой "Emperor" 
 
 ## Обсуждения
 

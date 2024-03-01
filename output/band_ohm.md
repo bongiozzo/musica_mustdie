@@ -55,8 +55,8 @@ Daugherty, Scott Menzies.
 
 ## Отношения с другими группами
 
-C группой "Megadeth" Chris Poland
-C группой "Chris Poland" Chris Poland
+* C группой "Megadeth" Chris Poland
+* C группой "Chris Poland" Chris Poland
 
 ## Обсуждения
 

@@ -48,7 +48,7 @@ Nirag - Drums
 
 ## Отношения с другими группами
 
-C группой "Feared Creation" Magnus Gillberg (bass)
+* C группой "Feared Creation" Magnus Gillberg (bass)
 
 ## Обсуждения
 

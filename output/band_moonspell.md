@@ -278,7 +278,7 @@ The double album's first cd is called Alpha Noir, the second one is Omega White.
 
 ## Отношения с другими группами
 
-C группой "Daemonarch" 
+* C группой "Daemonarch" 
 
 ## Обсуждения
 

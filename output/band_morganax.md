@@ -11,7 +11,7 @@
 
 ## Отношения с другими группами
 
-C группой "Stentorian" Stentorian
+* C группой "Stentorian" Stentorian
 
 ## Обсуждения
 

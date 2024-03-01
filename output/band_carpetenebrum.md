@@ -44,9 +44,9 @@ Blood dance              7.03
 
 ## Отношения с другими группами
 
-C группой "Dimmu Borgir" Nagash
-C группой "Troll" Nagash
-C группой "Kovenant" Nagash
+* C группой "Dimmu Borgir" Nagash
+* C группой "Troll" Nagash
+* C группой "Kovenant" Nagash
 
 ## Обсуждения
 

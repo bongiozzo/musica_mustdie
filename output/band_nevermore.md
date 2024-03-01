@@ -192,13 +192,13 @@ Cover art created by Travis Smith (Opeth, Katatonia).
 
 ## Отношения с другими группами
 
-C группой "Aggression Core" Curran Murphy
-C группой "Testament" Steve Smyth (guitar)
-C группой "Dragonlord" Steve Smyth (guitar)
-C группой "One Machine" Steve Smyth (guitar)
-C группой "Sanctuary" Jim Sheppard (bass)
-C группой "Sanctuary" Warrel Dane (vocal)
-C группой "Ashes Of Ares" 
+* C группой "Aggression Core" Curran Murphy
+* C группой "Testament" Steve Smyth (guitar)
+* C группой "Dragonlord" Steve Smyth (guitar)
+* C группой "One Machine" Steve Smyth (guitar)
+* C группой "Sanctuary" Jim Sheppard (bass)
+* C группой "Sanctuary" Warrel Dane (vocal)
+* C группой "Ashes Of Ares" 
 
 ## Обсуждения
 

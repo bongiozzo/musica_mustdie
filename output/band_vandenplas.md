@@ -142,7 +142,7 @@ The Bonus-Track is taken from the Rock-Oratorium "Ludus Danielis"
 
 ## Отношения с другими группами
 
-C группой "Abydos" Andy Kuntz
+* C группой "Abydos" Andy Kuntz
 
 ## Обсуждения
 

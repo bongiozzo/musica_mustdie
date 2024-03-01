@@ -7,7 +7,7 @@
 
 ## Отношения с другими группами
 
-C группой "Wolfsangel" Dmitry Petras
+* C группой "Wolfsangel" Dmitry Petras
 
 ## Обсуждения
 

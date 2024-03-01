@@ -27,8 +27,8 @@ former lead guitarist for Megadeth
 
 ## Отношения с другими группами
 
-C группой "Megadeth" Chris Poland
-C группой "OHM" Chris Poland
+* C группой "Megadeth" Chris Poland
+* C группой "OHM" Chris Poland
 
 ## Обсуждения
 

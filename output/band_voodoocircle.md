@@ -26,7 +26,7 @@
 
 ## Отношения с другими группами
 
-C группой "Sinner" Alex Beyrodt, Mat Sinner
+* C группой "Sinner" Alex Beyrodt, Mat Sinner
 
 ## Обсуждения
 

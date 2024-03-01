@@ -27,8 +27,8 @@ High Class Death-Doom a-la Lake Of Tears
 
 ## Отношения с другими группами
 
-C группой "Aeon" Daniel Dlimi (guitar), Arttu Malkki (drums)
-C группой "The Equinox ov the Gods" Daniel Dlimi (guitar), Arttu Malkki (drums)
+* C группой "Aeon" Daniel Dlimi (guitar), Arttu Malkki (drums)
+* C группой "The Equinox ov the Gods" Daniel Dlimi (guitar), Arttu Malkki (drums)
 
 ## Обсуждения
 

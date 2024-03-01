@@ -832,9 +832,9 @@ Steve Riley - drums, percussion and vocals
 
 ## Отношения с другими группами
 
-C группой "W.A.S.P." Steve Riley (drums)
-C группой "Guns N' Roses" Tracii Guns
-C группой "Brides Of Destruction" Tracii Guns
+* C группой "W.A.S.P." Steve Riley (drums)
+* C группой "Guns N' Roses" Tracii Guns
+* C группой "Brides Of Destruction" Tracii Guns
 
 ## Обсуждения
 

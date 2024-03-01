@@ -54,8 +54,8 @@ Mixed By Bob Clearmountain.
 
 ## Отношения с другими группами
 
-C группой "Osbourne, Ozzy" Ozzy Osbourne's guitar 1988-1996
-C группой "Black Label Society" Zakk Wylde's project
+* C группой "Osbourne, Ozzy" Ozzy Osbourne's guitar 1988-1996
+* C группой "Black Label Society" Zakk Wylde's project
 
 ## Обсуждения
 

@@ -331,13 +331,13 @@ bonus track.
 
 ## Отношения с другими группами
 
-C группой "Abigor" Moritz Neuner
-C группой "Graveworm" Moritz Neuner
-C группой "Siegfried" Moritz Neuner
-C группой "Darkwell" Moritz Neuner
-C группой "Shadowcast" Moritz Neuner
-C группой "Leaves' Eyes" Moritz Neuner
-C группой "Leaves' Eyes" Alex Krull
+* C группой "Abigor" Moritz Neuner
+* C группой "Graveworm" Moritz Neuner
+* C группой "Siegfried" Moritz Neuner
+* C группой "Darkwell" Moritz Neuner
+* C группой "Shadowcast" Moritz Neuner
+* C группой "Leaves' Eyes" Moritz Neuner
+* C группой "Leaves' Eyes" Alex Krull
 
 ## Обсуждения
 

@@ -36,9 +36,9 @@ The Seventh Star Fantasy
 
 ## Отношения с другими группами
 
-C группой "Majestic" Richard Andersson
-C группой "Time Requiem" Richard Andersson
-C группой "Andersson, Richard" Richard Andersson
+* C группой "Majestic" Richard Andersson
+* C группой "Time Requiem" Richard Andersson
+* C группой "Andersson, Richard" Richard Andersson
 
 ## Обсуждения
 

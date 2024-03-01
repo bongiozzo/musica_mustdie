@@ -11,7 +11,7 @@ formerly known as Devils Whorehouse
 
 ## Отношения с другими группами
 
-C группой "Devils Whorehouse" 
+* C группой "Devils Whorehouse" 
 
 ## Обсуждения
 

@@ -24,9 +24,9 @@ Data Track
 
 ## Отношения с другими группами
 
-C группой "Angra" Andre Matos
-C группой "Viper" Andre Matos
-C группой "Heavens Gate" Sacha Paeth
+* C группой "Angra" Andre Matos
+* C группой "Viper" Andre Matos
+* C группой "Heavens Gate" Sacha Paeth
 
 ## Обсуждения
 

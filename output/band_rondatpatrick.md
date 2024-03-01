@@ -104,7 +104,7 @@ Our Paths Crossed
 
 ## Отношения с другими группами
 
-C группой "Elegy" Guitar player
+* C группой "Elegy" Guitar player
 
 ## Обсуждения
 

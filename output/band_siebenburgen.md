@@ -115,10 +115,10 @@ Lisa Bohwalli Simonsson - Vocals
 
 ## Отношения с другими группами
 
-C группой "Devlin" Marcus Ehlin
-C группой "Unleashed" Fredrik Folkare (guitar)
-C группой "Necrophobic" Fredrik Folkare (guitar)
-C группой "Firespawn" Fredrik Folkare (guitar)
+* C группой "Devlin" Marcus Ehlin
+* C группой "Unleashed" Fredrik Folkare (guitar)
+* C группой "Necrophobic" Fredrik Folkare (guitar)
+* C группой "Firespawn" Fredrik Folkare (guitar)
 
 ## Обсуждения
 

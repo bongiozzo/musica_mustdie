@@ -427,8 +427,8 @@ Thrash Domination 2015 at Club Citta, Kawasaki, Japan on March 21 and 22, 2015:
 
 ## Отношения с другими группами
 
-C группой "Bronx Casket Co." 
-C группой "/Speed\Kill/Hate\" Dave Linsk (guitar), Derek Tailer (guitar), and Tim Mallare (drums)
+* C группой "Bronx Casket Co." 
+* C группой "/Speed\Kill/Hate\" Dave Linsk (guitar), Derek Tailer (guitar), and Tim Mallare (drums)
 
 ## Обсуждения
 

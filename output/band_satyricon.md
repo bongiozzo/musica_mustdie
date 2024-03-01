@@ -206,17 +206,17 @@ Frost - drums
 
 ## Отношения с другими группами
 
-C группой "Susperia" сессионный музыкант Cyrus
-C группой "Emperor" Tchort
-C группой "Carpathian Forest" Tchort
-C группой "Green Carnation" Tchort
-C группой "Blood Red Throne" bassist-turned-guitarist Tchort
-C группой "Gorgoroth" Frost (drums)
-C группой "Zyklon-B" Frost (drums)
-C группой "1349" Frost (drums)
-C группой "Ov Hell" Frost (drums)
-C группой "Keep Of Kalessin" Frost (drums)
-C группой "Gehenna" Frost (drums)
+* C группой "Susperia" сессионный музыкант Cyrus
+* C группой "Emperor" Tchort
+* C группой "Carpathian Forest" Tchort
+* C группой "Green Carnation" Tchort
+* C группой "Blood Red Throne" bassist-turned-guitarist Tchort
+* C группой "Gorgoroth" Frost (drums)
+* C группой "Zyklon-B" Frost (drums)
+* C группой "1349" Frost (drums)
+* C группой "Ov Hell" Frost (drums)
+* C группой "Keep Of Kalessin" Frost (drums)
+* C группой "Gehenna" Frost (drums)
 
 ## Обсуждения
 

@@ -141,9 +141,9 @@ Jason Chapman  -  Trumpet, Flugelhorn
 
 ## Отношения с другими группами
 
-C группой "Rainbow" Ritchie Blackmore
-C группой "Deep Purple" Ritchie Blackmore
-C группой "Infinity" C. Night
+* C группой "Rainbow" Ritchie Blackmore
+* C группой "Deep Purple" Ritchie Blackmore
+* C группой "Infinity" C. Night
 
 ## Обсуждения
 

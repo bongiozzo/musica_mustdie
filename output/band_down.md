@@ -70,9 +70,9 @@ Jim Bower - Drums
 
 ## Отношения с другими группами
 
-C группой "Pantera" Phil Anselmo
-C группой "Southern Isolation" Phil Anselmo
-C группой "Superjoint Ritual" Phil Anselmo
+* C группой "Pantera" Phil Anselmo
+* C группой "Southern Isolation" Phil Anselmo
+* C группой "Superjoint Ritual" Phil Anselmo
 
 ## Обсуждения
 

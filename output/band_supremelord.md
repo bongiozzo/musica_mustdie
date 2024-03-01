@@ -18,8 +18,8 @@
 
 ## Отношения с другими группами
 
-C группой "Christ Agony" Reyash (bass/vocal)
-C группой "Witchmaster" Reyash (bass/vocal)
+* C группой "Christ Agony" Reyash (bass/vocal)
+* C группой "Witchmaster" Reyash (bass/vocal)
 
 ## Обсуждения
 

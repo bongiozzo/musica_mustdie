@@ -173,8 +173,8 @@ Janne Saarenpaa - Drums
 
 ## Отношения с другими группами
 
-C группой "Crown of Thorns" 
-C группой "Engel" Marcus Sunesson (guitar)
+* C группой "Crown of Thorns" 
+* C группой "Engel" Marcus Sunesson (guitar)
 
 ## Обсуждения
 

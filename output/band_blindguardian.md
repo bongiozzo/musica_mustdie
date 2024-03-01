@@ -789,23 +789,23 @@ Frederik Ehmke - Drums
 
 ## Отношения с другими группами
 
-C группой "Therion" Hansi K&uuml;rsch
-C группой "Grave Digger" Hansi K&uuml;rsch
-C группой "Gamma Ray" Hansi K&uuml;rsch
-C группой "Iron Savior" Hansi K&uuml;rsch
-C группой "Edguy" Hansi K&uuml;rsch
-C группой "Demons & Wizards" Hansi K&uuml;rsch
-C группой "Lucifer's Heritage" Hansi K&uuml;rsch
-C группой "Gamma Ray" Tomas Stauch
-C группой "Iron Savior" Tomas Stauch
-C группой "Lucifer's Heritage" Tomas Stauch
-C группой "Lucifer's Heritage" Andr&eacute; Olbrich
-C группой "Savage Circus" Thomen
-C группой "Sieges Even" Oliver Holzwarth
-C группой "Power Quest" Oliver Holzwarth
-C группой "Paradox" Oliver Holzwarth
-C группой "Tarja Turunen" Oliver Holzwarth
-C группой "Demons & Wizards" Oliver Holzwarth
+* C группой "Therion" Hansi K&uuml;rsch
+* C группой "Grave Digger" Hansi K&uuml;rsch
+* C группой "Gamma Ray" Hansi K&uuml;rsch
+* C группой "Iron Savior" Hansi K&uuml;rsch
+* C группой "Edguy" Hansi K&uuml;rsch
+* C группой "Demons & Wizards" Hansi K&uuml;rsch
+* C группой "Lucifer's Heritage" Hansi K&uuml;rsch
+* C группой "Gamma Ray" Tomas Stauch
+* C группой "Iron Savior" Tomas Stauch
+* C группой "Lucifer's Heritage" Tomas Stauch
+* C группой "Lucifer's Heritage" Andr&eacute; Olbrich
+* C группой "Savage Circus" Thomen
+* C группой "Sieges Even" Oliver Holzwarth
+* C группой "Power Quest" Oliver Holzwarth
+* C группой "Paradox" Oliver Holzwarth
+* C группой "Tarja Turunen" Oliver Holzwarth
+* C группой "Demons & Wizards" Oliver Holzwarth
 
 ## Обсуждения
 

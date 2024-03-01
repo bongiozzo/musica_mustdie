@@ -11,7 +11,7 @@ a-la MOTORHEAD from Finland
 
 ## Отношения с другими группами
 
-C группой "Enochian Crescent" Terrorwheel - Jani Martikkala (drums in Enochian Crescent [1999-2001]; drums & backing vocals in Terrorwheel)
+* C группой "Enochian Crescent" Terrorwheel - Jani Martikkala (drums in Enochian Crescent [1999-2001]; drums & backing vocals in Terrorwheel)
 
 ## Обсуждения
 

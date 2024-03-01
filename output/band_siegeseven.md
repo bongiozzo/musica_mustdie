@@ -79,13 +79,13 @@ Sequence 8: Styx 08:55
 
 ## Отношения с другими группами
 
-C группой "Blind Guardian" Oliver Holzwarth
-C группой "Power Quest" Oliver Holzwarth
-C группой "Paradox" Oliver Holzwarth
-C группой "Tarja Turunen" Oliver Holzwarth
-C группой "Demons & Wizards" Oliver Holzwarth
-C группой "Subsignal" Arno Menses (vocal)
-C группой "Subsignal" Markus Steffen (guitar)
+* C группой "Blind Guardian" Oliver Holzwarth
+* C группой "Power Quest" Oliver Holzwarth
+* C группой "Paradox" Oliver Holzwarth
+* C группой "Tarja Turunen" Oliver Holzwarth
+* C группой "Demons & Wizards" Oliver Holzwarth
+* C группой "Subsignal" Arno Menses (vocal)
+* C группой "Subsignal" Markus Steffen (guitar)
 
 ## Обсуждения
 

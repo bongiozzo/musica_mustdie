@@ -72,7 +72,7 @@ Bonus:
 
 ## Отношения с другими группами
 
-C группой "MUSICA (compilation)" Hostile Breed
+* C группой "MUSICA (compilation)" Hostile Breed
 
 ## Обсуждения
 

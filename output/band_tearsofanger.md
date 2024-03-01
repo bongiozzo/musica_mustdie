@@ -65,14 +65,14 @@ Johan Niemann(THERION, MIND'S EYE): : bass
 
 ## Отношения с другими группами
 
-C группой "Talisman" Jansson Brothers
-C группой "Snakes in Paradise" Jansson Brothers
-C группой "Erika" Jansson Brothers
-C группой "Mind's Eye" Daniel Flores
-C группой "Faro" Daniel Flores
-C группой "Hubi Meisel" Daniel Flores
-C группой "Therion" Johan Niemann
-C группой "Mind's Eye" Johan Niemann
+* C группой "Talisman" Jansson Brothers
+* C группой "Snakes in Paradise" Jansson Brothers
+* C группой "Erika" Jansson Brothers
+* C группой "Mind's Eye" Daniel Flores
+* C группой "Faro" Daniel Flores
+* C группой "Hubi Meisel" Daniel Flores
+* C группой "Therion" Johan Niemann
+* C группой "Mind's Eye" Johan Niemann
 
 ## Обсуждения
 

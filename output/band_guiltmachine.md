@@ -7,7 +7,7 @@ Arjen Lucassen project
 
 ## Отношения с другими группами
 
-C группой "Ayreon" Arjen Lucassen 
+* C группой "Ayreon" Arjen Lucassen 
 
 ## Обсуждения
 

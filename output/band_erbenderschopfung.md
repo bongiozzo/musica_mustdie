@@ -34,11 +34,11 @@ Doch sie wartet vergebens...
 
 ## Отношения с другими группами
 
-C группой "Elis" Sabine Dunser (Vocal), Pete Streit (Guitar)
-C группой "Weltenbrand" Oliver Falk (Keyboards)
-C группой "Weltenbrand" Dina Falk-Zambelli (Vocal)
-C группой "Weltenbrand" Rino Vetsch (Guitar)
-C группой "Elis" Franky Koller (Drums)
+* C группой "Elis" Sabine Dunser (Vocal), Pete Streit (Guitar)
+* C группой "Weltenbrand" Oliver Falk (Keyboards)
+* C группой "Weltenbrand" Dina Falk-Zambelli (Vocal)
+* C группой "Weltenbrand" Rino Vetsch (Guitar)
+* C группой "Elis" Franky Koller (Drums)
 
 ## Обсуждения
 

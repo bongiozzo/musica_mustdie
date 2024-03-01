@@ -104,7 +104,7 @@
 
 ## Отношения с другими группами
 
-C группой "Jag Panzer" Harry Conklin (vocal)
+* C группой "Jag Panzer" Harry Conklin (vocal)
 
 ## Обсуждения
 

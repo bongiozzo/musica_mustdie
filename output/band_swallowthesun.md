@@ -154,7 +154,7 @@ Songs from the North is:
 
 ## Отношения с другими группами
 
-C группой "Trees of Eternity" 
+* C группой "Trees of Eternity" 
 
 ## Обсуждения
 

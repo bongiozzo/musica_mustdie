@@ -11,13 +11,13 @@
 
 ## Отношения с другими группами
 
-C группой "Naglfar" M. Hansson
-C группой "Ancient Wisdom" M. Norman
-C группой "Bewitched" M. Norman
-C группой "Borknagar" A. Hedlund
-C группой "Vintersorg" A. Hedlund
-C группой "Otyg" A. Hedlund
-C группой "Fission" A. Hedlund
+* C группой "Naglfar" M. Hansson
+* C группой "Ancient Wisdom" M. Norman
+* C группой "Bewitched" M. Norman
+* C группой "Borknagar" A. Hedlund
+* C группой "Vintersorg" A. Hedlund
+* C группой "Otyg" A. Hedlund
+* C группой "Fission" A. Hedlund
 
 ## Обсуждения
 

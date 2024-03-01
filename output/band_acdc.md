@@ -360,7 +360,7 @@ Give It Up
 
 ## Отношения с другими группами
 
-C группой "Geordie" Brian Johnson
+* C группой "Geordie" Brian Johnson
 
 ## Обсуждения
 

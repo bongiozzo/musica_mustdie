@@ -40,12 +40,12 @@ Artwork by Abian
 
 ## Отношения с другими группами
 
-C группой "Rossomahaar" Lazar
-C группой "Katar" Lazar
-C группой "Аркона" Lazar
-C группой "Rossomahaar" Kniaz
-C группой "Katar" Kniaz
-C группой "Аркона" Kniaz
+* C группой "Rossomahaar" Lazar
+* C группой "Katar" Lazar
+* C группой "Аркона" Lazar
+* C группой "Rossomahaar" Kniaz
+* C группой "Katar" Kniaz
+* C группой "Аркона" Kniaz
 
 ## Обсуждения
 

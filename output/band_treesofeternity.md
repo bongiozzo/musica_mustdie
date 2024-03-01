@@ -24,9 +24,9 @@ Produced, recorded, mixed and mastered at Fascination Street Studios 1 in Цrebr
 
 ## Отношения с другими группами
 
-C группой "Swallow the Sun" 
-C группой "October Tide" 
-C группой "Wintersun" 
+* C группой "Swallow the Sun" 
+* C группой "October Tide" 
+* C группой "Wintersun" 
 
 ## Обсуждения
 

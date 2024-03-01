@@ -7,8 +7,8 @@
 
 ## Отношения с другими группами
 
-C группой "Toxic Taste" Rolf "Rock'n'Rolf" Kasparek (T. T. Poison)
-C группой "Running Wild" Rolf "Rock'n'Rolf" Kasparek (T. T. Poison)
+* C группой "Toxic Taste" Rolf "Rock'n'Rolf" Kasparek (T. T. Poison)
+* C группой "Running Wild" Rolf "Rock'n'Rolf" Kasparek (T. T. Poison)
 
 ## Обсуждения
 

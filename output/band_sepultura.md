@@ -513,7 +513,7 @@ Jean Dolabella  Drums
 
 ## Отношения с другими группами
 
-C группой "Soulfly" Max Cavalera
+* C группой "Soulfly" Max Cavalera
 
 ## Обсуждения
 

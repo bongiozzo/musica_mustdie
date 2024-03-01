@@ -634,30 +634,30 @@ On the edition sold at the concerts of the "Flowers of Evil" tour there is a bon
 
 ## Отношения с другими группами
 
-C группой "Messiah" Therion's leader sing on last Messiah albums
-C группой "Grave Digger" Hansi K&uuml;rsch
-C группой "Blind Guardian" Hansi K&uuml;rsch
-C группой "Gamma Ray" Hansi K&uuml;rsch
-C группой "Iron Savior" Hansi K&uuml;rsch
-C группой "Edguy" Hansi K&uuml;rsch
-C группой "Demons & Wizards" Hansi K&uuml;rsch
-C группой "Lucifer's Heritage" Hansi K&uuml;rsch
-C группой "Alas" singer Martina Hornbacher
-C группой "Ebony Tears" Richard Evensand (drums)
-C группой "Soilwork" Richard Evensand (drums)
-C группой "Memento Mori" Snowy Shaw (drums)
-C группой "King Diamond" Snowy Shaw (drums)
-C группой "Mercyful Fate" Snowy Shaw (drums)
-C группой "Dream Evil" Snowy Shaw (drums)
-C группой "Notre Dame" Snowy Shaw (drums)
-C группой "Denner / Shermann" Snowy Shaw (drums)
-C группой "Demonoid" All members of THERION 2004
-C группой "Mind's Eye" Johan Niemann
-C группой "Tears of Anger" Johan Niemann
-C группой "Cradle of Filth" Sarah Jezebel Deva
-C группой "Mortiis" Sarah Jezebel Deva
-C группой "Angtoria" Sarah Jezebel Deva
-C группой "Sarah Jezebel Deva" Sarah Jezebel Deva
+* C группой "Messiah" Therion's leader sing on last Messiah albums
+* C группой "Grave Digger" Hansi K&uuml;rsch
+* C группой "Blind Guardian" Hansi K&uuml;rsch
+* C группой "Gamma Ray" Hansi K&uuml;rsch
+* C группой "Iron Savior" Hansi K&uuml;rsch
+* C группой "Edguy" Hansi K&uuml;rsch
+* C группой "Demons & Wizards" Hansi K&uuml;rsch
+* C группой "Lucifer's Heritage" Hansi K&uuml;rsch
+* C группой "Alas" singer Martina Hornbacher
+* C группой "Ebony Tears" Richard Evensand (drums)
+* C группой "Soilwork" Richard Evensand (drums)
+* C группой "Memento Mori" Snowy Shaw (drums)
+* C группой "King Diamond" Snowy Shaw (drums)
+* C группой "Mercyful Fate" Snowy Shaw (drums)
+* C группой "Dream Evil" Snowy Shaw (drums)
+* C группой "Notre Dame" Snowy Shaw (drums)
+* C группой "Denner / Shermann" Snowy Shaw (drums)
+* C группой "Demonoid" All members of THERION 2004
+* C группой "Mind's Eye" Johan Niemann
+* C группой "Tears of Anger" Johan Niemann
+* C группой "Cradle of Filth" Sarah Jezebel Deva
+* C группой "Mortiis" Sarah Jezebel Deva
+* C группой "Angtoria" Sarah Jezebel Deva
+* C группой "Sarah Jezebel Deva" Sarah Jezebel Deva
 
 ## Обсуждения
 

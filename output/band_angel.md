@@ -38,12 +38,12 @@ Acoustic guitar on “Mother” by Jan "Цrkki" Yrlund. Cello by Rupert Gillet a
 
 ## Отношения с другими группами
 
-C группой "Imperia" Helena Michaelsen and Jan Yrlund
-C группой "Trail of Tears" Helena Michaelsen and Jan Yrlund
-C группой "Imperia" Jan Yrlund (guitar)
-C группой "Lacrimosa" Jan Yrlund (guitar)
-C группой "Danse Macabre" Jan Yrlund (guitar)
-C группой "Ancient Rites" Jan Yrlund (guitar)
+* C группой "Imperia" Helena Michaelsen and Jan Yrlund
+* C группой "Trail of Tears" Helena Michaelsen and Jan Yrlund
+* C группой "Imperia" Jan Yrlund (guitar)
+* C группой "Lacrimosa" Jan Yrlund (guitar)
+* C группой "Danse Macabre" Jan Yrlund (guitar)
+* C группой "Ancient Rites" Jan Yrlund (guitar)
 
 ## Обсуждения
 

@@ -360,7 +360,7 @@ Arron Walton - Drums
 
 ## Отношения с другими группами
 
-C группой "Clan Destined, The" Martin Walkyier
+* C группой "Clan Destined, The" Martin Walkyier
 
 ## Обсуждения
 

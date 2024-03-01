@@ -7,9 +7,9 @@
 
 ## Отношения с другими группами
 
-C группой "Enochian Crescent" Janne Kuru (vocals)
-C группой "The True Black Dawn" Janne Kuru (vocals)
-C группой "Enochian Crescent" Jani Martikkala (drums in Enochian Crescent [1999-2001] & in Black Dawn)
+* C группой "Enochian Crescent" Janne Kuru (vocals)
+* C группой "The True Black Dawn" Janne Kuru (vocals)
+* C группой "Enochian Crescent" Jani Martikkala (drums in Enochian Crescent [1999-2001] & in Black Dawn)
 
 ## Обсуждения
 

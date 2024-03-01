@@ -53,9 +53,9 @@ Bob Katsionis - Keyboards
 
 ## Отношения с другими группами
 
-C группой "Stratovarius" NEW STRATOVARIUS (Timo Tolkki)
-C группой "Timo Tolkki" NEW STRATOVARIUS (Timo Tolkki)
-C группой "Symfonia" NEW STRATOVARIUS (Timo Tolkki)
+* C группой "Stratovarius" NEW STRATOVARIUS (Timo Tolkki)
+* C группой "Timo Tolkki" NEW STRATOVARIUS (Timo Tolkki)
+* C группой "Symfonia" NEW STRATOVARIUS (Timo Tolkki)
 
 ## Обсуждения
 

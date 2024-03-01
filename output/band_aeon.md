@@ -84,17 +84,17 @@ All rhythm guitars on this record are played by Zeb Nilsson
 
 ## Отношения с другими группами
 
-C группой "Diabolicum" Tommy Dahlstrom (vocal), Zeb Nilsson (guitar)
-C группой "Equinox Ov The Gods" Daniel Dlimi (guitar), Arttu Malkki (drums)
-C группой "The Equinox ov the Gods" Daniel Dlimi (guitar), Arttu Malkki (drums)
-C группой "Souldrainer" Daniel Dlimi (guitar), Markus Edvardsson (bass), Nils Fjellstrom (drums), Arttu Malkki (drums)
-C группой "In Battle" Markus Edvardsson (bass), Nils Fjellstrom (drums)
-C группой "Chastisement" Markus Edvardsson (bass), Nils Fjellstrom (drums)
-C группой "Odhinn" Nils Fjellstrom (drums)
-C группой "Dark Funeral" Nils Fjellstrom (drums)
-C группой "Entombed" Victor Brandt (guitar)
-C группой "Entombed A.D." Victor Brandt (guitar)
-C группой "Firespawn" Victor Brandt (guitar)
+* C группой "Diabolicum" Tommy Dahlstrom (vocal), Zeb Nilsson (guitar)
+* C группой "Equinox Ov The Gods" Daniel Dlimi (guitar), Arttu Malkki (drums)
+* C группой "The Equinox ov the Gods" Daniel Dlimi (guitar), Arttu Malkki (drums)
+* C группой "Souldrainer" Daniel Dlimi (guitar), Markus Edvardsson (bass), Nils Fjellstrom (drums), Arttu Malkki (drums)
+* C группой "In Battle" Markus Edvardsson (bass), Nils Fjellstrom (drums)
+* C группой "Chastisement" Markus Edvardsson (bass), Nils Fjellstrom (drums)
+* C группой "Odhinn" Nils Fjellstrom (drums)
+* C группой "Dark Funeral" Nils Fjellstrom (drums)
+* C группой "Entombed" Victor Brandt (guitar)
+* C группой "Entombed A.D." Victor Brandt (guitar)
+* C группой "Firespawn" Victor Brandt (guitar)
 
 ## Обсуждения
 

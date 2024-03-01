@@ -15,12 +15,12 @@
 
 ## Отношения с другими группами
 
-C группой "Morbid Angel" Tim Yeung (drums)
-C группой "World Under Blood" Tim Yeung (drums)
-C группой "Aurora Borealis" Tim Yeung (drums)
-C группой "Vital Remains" Tim Yeung (drums)
-C группой "Council of the Fallen" Tim Yeung (drums)
-C группой "World Under Blood" Risha Eryavec (bass)
+* C группой "Morbid Angel" Tim Yeung (drums)
+* C группой "World Under Blood" Tim Yeung (drums)
+* C группой "Aurora Borealis" Tim Yeung (drums)
+* C группой "Vital Remains" Tim Yeung (drums)
+* C группой "Council of the Fallen" Tim Yeung (drums)
+* C группой "World Under Blood" Risha Eryavec (bass)
 
 ## Обсуждения
 

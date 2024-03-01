@@ -11,8 +11,8 @@ power
 
 ## Отношения с другими группами
 
-C группой "Threshold" Andrew "Mac" McDermott (vocal)
-C группой "Powerworld" Andrew "Mac" McDermott (vocal)
+* C группой "Threshold" Andrew "Mac" McDermott (vocal)
+* C группой "Powerworld" Andrew "Mac" McDermott (vocal)
 
 ## Обсуждения
 

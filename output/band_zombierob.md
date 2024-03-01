@@ -136,11 +136,11 @@ Steve Duda  -  Mixing
 
 ## Отношения с другими группами
 
-C группой "White Zombie" Frontman
-C группой "Testament" John Tempesta (drums)
-C группой "Anthrax" John Tempesta (drums)
-C группой "White Zombie" John Tempesta (drums)
-C группой "Osbourne, Ozzy" Rob Nicholson (bass)
+* C группой "White Zombie" Frontman
+* C группой "Testament" John Tempesta (drums)
+* C группой "Anthrax" John Tempesta (drums)
+* C группой "White Zombie" John Tempesta (drums)
+* C группой "Osbourne, Ozzy" Rob Nicholson (bass)
 
 ## Обсуждения
 

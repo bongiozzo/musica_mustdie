@@ -101,14 +101,14 @@ Noctifer - Bass
 
 ## Отношения с другими группами
 
-C группой "Satyricon" Frost (drums)
-C группой "Gorgoroth" Frost (drums)
-C группой "Zyklon-B" Frost (drums)
-C группой "1349" Frost (drums)
-C группой "Ov Hell" Frost (drums)
-C группой "Keep Of Kalessin" Frost (drums)
-C группой "Aeternus" S. Winter (drums)
-C группой "Forlorn" S. Winter (drums)
+* C группой "Satyricon" Frost (drums)
+* C группой "Gorgoroth" Frost (drums)
+* C группой "Zyklon-B" Frost (drums)
+* C группой "1349" Frost (drums)
+* C группой "Ov Hell" Frost (drums)
+* C группой "Keep Of Kalessin" Frost (drums)
+* C группой "Aeternus" S. Winter (drums)
+* C группой "Forlorn" S. Winter (drums)
 
 ## Обсуждения
 

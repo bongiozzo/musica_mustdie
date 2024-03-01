@@ -55,16 +55,16 @@
 
 ## Отношения с другими группами
 
-C группой "Borknagar" Asgeir Mickelson (drums)
-C группой "Vintersorg" Asgeir Mickelson (drums)
-C группой "Spiral Architect" Asgeir Mickelson (drums)
-C группой "ICS Vortex" Asgeir Mickelson (drums)
-C группой "Artisan" Asgeir Mickelson (drums)
-C группой "Testament" Asgeir Mickelson (drums)
-C группой "Khold" Sarke
-C группой "Old Man's Child" Sarke
-C группой "Tulus" Sarke
-C группой "Darkthrone" Nocturno Culto
+* C группой "Borknagar" Asgeir Mickelson (drums)
+* C группой "Vintersorg" Asgeir Mickelson (drums)
+* C группой "Spiral Architect" Asgeir Mickelson (drums)
+* C группой "ICS Vortex" Asgeir Mickelson (drums)
+* C группой "Artisan" Asgeir Mickelson (drums)
+* C группой "Testament" Asgeir Mickelson (drums)
+* C группой "Khold" Sarke
+* C группой "Old Man's Child" Sarke
+* C группой "Tulus" Sarke
+* C группой "Darkthrone" Nocturno Culto
 
 ## Обсуждения
 

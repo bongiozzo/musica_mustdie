@@ -202,11 +202,11 @@ Mixed by Waldemar Sorychta and Dennis Koehne in the Flying Pigs Studio.
 
 ## Отношения с другими группами
 
-C группой "Sirenia" Morten Veland (guitar)
-C группой "Elusive" Morten Veland (guitar)
-C группой "Trail of Tears" Ronnie Thorsen (vocal)
-C группой "Mortemia" Morten Veland
-C группой "Sirenia" Morten Veland
+* C группой "Sirenia" Morten Veland (guitar)
+* C группой "Elusive" Morten Veland (guitar)
+* C группой "Trail of Tears" Ronnie Thorsen (vocal)
+* C группой "Mortemia" Morten Veland
+* C группой "Sirenia" Morten Veland
 
 ## Обсуждения
 

@@ -212,7 +212,7 @@ People in the Swamp
 
 ## Отношения с другими группами
 
-C группой "Chemical Warfare" 
+* C группой "Chemical Warfare" 
 
 ## Обсуждения
 

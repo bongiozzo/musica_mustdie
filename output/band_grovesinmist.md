@@ -35,11 +35,11 @@ P.M
 
 ## Отношения с другими группами
 
-C группой "Sea Of Desperation" Lefthander
-C группой "Lefthander" Lefthander
-C группой "Tenochtitlan" Lefthander
-C группой "Raxa" Lefthander
-C группой "Harmahis" Lefthander
+* C группой "Sea Of Desperation" Lefthander
+* C группой "Lefthander" Lefthander
+* C группой "Tenochtitlan" Lefthander
+* C группой "Raxa" Lefthander
+* C группой "Harmahis" Lefthander
 
 ## Обсуждения
 

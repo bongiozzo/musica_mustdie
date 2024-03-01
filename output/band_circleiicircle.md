@@ -109,7 +109,7 @@ Johnny Osborn (drums)
 
 ## Отношения с другими группами
 
-C группой "Savatage" Zak Stevens (vocal)
+* C группой "Savatage" Zak Stevens (vocal)
 
 ## Обсуждения
 

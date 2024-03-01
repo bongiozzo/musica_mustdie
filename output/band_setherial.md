@@ -117,7 +117,7 @@ Official compliation with rare & demo-tracks.
 
 ## Отношения с другими группами
 
-C группой "In Battle" Sjdin (a.k.a. Mysteriis)
+* C группой "In Battle" Sjdin (a.k.a. Mysteriis)
 
 ## Обсуждения
 

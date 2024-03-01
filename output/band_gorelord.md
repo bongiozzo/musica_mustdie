@@ -56,15 +56,15 @@ Artwork was created by the extremely talented Patrick Tremblay.
 
 ## Отношения с другими группами
 
-C группой "Necrophagia" Frediablo
-C группой "Wurdulak" Frediablo
-C группой "Grimfist" Frediablo
-C группой "Svartpest" Frediablo
-C группой "Soul Forsaken" Frediablo
-C группой "Necrophagia" Mirai Kawashima
-C группой "Sigh" Mirai Kawashima
-C группой "Blood From the Soul" Mirai Kawashima
-C группой "Meads Of Asphodel, The" Mirai Kawashima
+* C группой "Necrophagia" Frediablo
+* C группой "Wurdulak" Frediablo
+* C группой "Grimfist" Frediablo
+* C группой "Svartpest" Frediablo
+* C группой "Soul Forsaken" Frediablo
+* C группой "Necrophagia" Mirai Kawashima
+* C группой "Sigh" Mirai Kawashima
+* C группой "Blood From the Soul" Mirai Kawashima
+* C группой "Meads Of Asphodel, The" Mirai Kawashima
 
 ## Обсуждения
 

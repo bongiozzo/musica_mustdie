@@ -263,15 +263,15 @@ Disc 3 (Earbook Only):
 
 ## Отношения с другими группами
 
-C группой "After Forever" Mark Jansen (guitar)
-C группой "Mayan" Mark Jansen (guitar)
-C группой "Mayan" Isaac Delahaye (guitar)
-C группой "God Dethroned" Isaac Delahaye (guitar)
-C группой "Mayan" Arien van Weesenbeek (drums)
-C группой "God Dethroned" Arien van Weesenbeek (drums)
-C группой "Mayan" Simone Simons (vocal)
-C группой "Sons Of Seasons" Simone Simons (vocal)
-C группой "Kamelot" Simone Simons (vocal)
+* C группой "After Forever" Mark Jansen (guitar)
+* C группой "Mayan" Mark Jansen (guitar)
+* C группой "Mayan" Isaac Delahaye (guitar)
+* C группой "God Dethroned" Isaac Delahaye (guitar)
+* C группой "Mayan" Arien van Weesenbeek (drums)
+* C группой "God Dethroned" Arien van Weesenbeek (drums)
+* C группой "Mayan" Simone Simons (vocal)
+* C группой "Sons Of Seasons" Simone Simons (vocal)
+* C группой "Kamelot" Simone Simons (vocal)
 
 ## Обсуждения
 

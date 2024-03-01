@@ -23,7 +23,7 @@
 
 ## Отношения с другими группами
 
-C группой "Ambehr" Russian project of AMBEHR
+* C группой "Ambehr" Russian project of AMBEHR
 
 ## Обсуждения
 

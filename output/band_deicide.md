@@ -273,7 +273,7 @@ Recorded at AudioHammer Studios in Sanford, Florida.
 
 ## Отношения с другими группами
 
-C группой "Order Of Ennead" Steve Asheim, Kevin Quirion
+* C группой "Order Of Ennead" Steve Asheim, Kevin Quirion
 
 ## Обсуждения
 

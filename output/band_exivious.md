@@ -19,9 +19,9 @@
 
 ## Отношения с другими группами
 
-C группой "Cynic" Tymon Kruidenier (guitar)
-C группой "Cynic" Robin Zielhorst (bass)
-C группой "Textures" Stef Broks (drums)
+* C группой "Cynic" Tymon Kruidenier (guitar)
+* C группой "Cynic" Robin Zielhorst (bass)
+* C группой "Textures" Stef Broks (drums)
 
 ## Обсуждения
 

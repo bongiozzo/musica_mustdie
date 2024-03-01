@@ -271,9 +271,9 @@ Can You Hear Them
 
 ## Отношения с другими группами
 
-C группой "Zakk Wylde" Ozzy Osbourne's guitar 1988-1996
-C группой "Black Sabbath" Former vocalist, mr. Osbourne's band
-C группой "Zombie, Rob" Rob Nicholson (bass)
+* C группой "Zakk Wylde" Ozzy Osbourne's guitar 1988-1996
+* C группой "Black Sabbath" Former vocalist, mr. Osbourne's band
+* C группой "Zombie, Rob" Rob Nicholson (bass)
 
 ## Обсуждения
 

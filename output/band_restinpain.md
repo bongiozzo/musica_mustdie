@@ -33,8 +33,8 @@ Engineered by Andrew Subbotin at SATURDAY Mastering
 
 ## Отношения с другими группами
 
-C группой "Fatal Band" Сhristophor Moleskin
-C группой "Fatal Band" Дмитрий Игнатьев
+* C группой "Fatal Band" Сhristophor Moleskin
+* C группой "Fatal Band" Дмитрий Игнатьев
 
 ## Обсуждения
 

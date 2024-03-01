@@ -61,9 +61,9 @@ Mastered by Goran Finnberg at The Mastering Room.
 
 ## Отношения с другими группами
 
-C группой "Horresco Referens" Foued Moukid
-C группой "Ommatidia" Nicolas Chevrollier (guitar)
-C группой "Ommatidia" Vincent Danhier (bass)
+* C группой "Horresco Referens" Foued Moukid
+* C группой "Ommatidia" Nicolas Chevrollier (guitar)
+* C группой "Ommatidia" Vincent Danhier (bass)
 
 ## Обсуждения
 

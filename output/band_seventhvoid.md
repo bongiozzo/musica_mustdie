@@ -20,10 +20,10 @@
 
 ## Отношения с другими группами
 
-C группой "Type O Negative" Kenny Hickey
-C группой "Danzig" Kenny Hickey
-C группой "Type O Negative" Johnny Kelly
-C группой "Danzig" Johnny Kelly
+* C группой "Type O Negative" Kenny Hickey
+* C группой "Danzig" Kenny Hickey
+* C группой "Type O Negative" Johnny Kelly
+* C группой "Danzig" Johnny Kelly
 
 ## Обсуждения
 

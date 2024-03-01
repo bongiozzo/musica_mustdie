@@ -171,7 +171,7 @@ Jamie Pushbutton  -  Drums
 
 ## Отношения с другими группами
 
-C группой "S.O.S." Chris Beattie - bass
+* C группой "S.O.S." Chris Beattie - bass
 
 ## Обсуждения
 

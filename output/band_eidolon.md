@@ -46,9 +46,9 @@ dreamscape
 
 ## Отношения с другими группами
 
-C группой "Megadeth" Glen Drover
-C группой "King Diamond" Glen Drover
-C группой "Megadeth" Shawn Drover
+* C группой "Megadeth" Glen Drover
+* C группой "King Diamond" Glen Drover
+* C группой "Megadeth" Shawn Drover
 
 ## Обсуждения
 

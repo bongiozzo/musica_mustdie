@@ -208,9 +208,9 @@ The Entity
 
 ## Отношения с другими группами
 
-C группой "Nocturnus" Drummer Mike Browning (member of CoS) played in every band
-C группой "Morbid Angel" Drummer Mike Browning (member of CoS) played in every band
-C группой "Wolfen Society" Vincent Crowley
+* C группой "Nocturnus" Drummer Mike Browning (member of CoS) played in every band
+* C группой "Morbid Angel" Drummer Mike Browning (member of CoS) played in every band
+* C группой "Wolfen Society" Vincent Crowley
 
 ## Обсуждения
 

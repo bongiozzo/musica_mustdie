@@ -101,18 +101,18 @@ Trym - Drums
 
 ## Отношения с другими группами
 
-C группой "Limbonic Art" Daemon (vocals)
-C группой "Sirius" Daemon (vocals)
-C группой "Emperor" Samoth (guest bass)
-C группой "Sirius" Samoth (guest bass)
-C группой "Ceremony" Trym
-C группой "Enslaved" Trym
-C группой "Emperor" Trym
-C группой "Old Man's Child" Trym
-C группой "Shadow Season" Trym
-C группой "Hagalaz Runedance" Trym
-C группой "Myrkskog" Destructhor
-C группой "Myrkskog" Secthodamon
+* C группой "Limbonic Art" Daemon (vocals)
+* C группой "Sirius" Daemon (vocals)
+* C группой "Emperor" Samoth (guest bass)
+* C группой "Sirius" Samoth (guest bass)
+* C группой "Ceremony" Trym
+* C группой "Enslaved" Trym
+* C группой "Emperor" Trym
+* C группой "Old Man's Child" Trym
+* C группой "Shadow Season" Trym
+* C группой "Hagalaz Runedance" Trym
+* C группой "Myrkskog" Destructhor
+* C группой "Myrkskog" Secthodamon
 
 ## Обсуждения
 

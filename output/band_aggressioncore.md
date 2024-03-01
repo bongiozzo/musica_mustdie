@@ -36,8 +36,8 @@ Released in March 2000
 
 ## Отношения с другими группами
 
-C группой "Annihilator" Curran Murphy
-C группой "Nevermore" Curran Murphy
+* C группой "Annihilator" Curran Murphy
+* C группой "Nevermore" Curran Murphy
 
 ## Обсуждения
 

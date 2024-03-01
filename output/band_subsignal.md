@@ -20,8 +20,8 @@ SIEGES EVEN members
 
 ## Отношения с другими группами
 
-C группой "Sieges Even" Arno Menses (vocal)
-C группой "Sieges Even" Markus Steffen (guitar)
+* C группой "Sieges Even" Arno Menses (vocal)
+* C группой "Sieges Even" Markus Steffen (guitar)
 
 ## Обсуждения
 

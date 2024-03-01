@@ -78,7 +78,7 @@ Texte von Chris Kamper
 
 ## Отношения с другими группами
 
-C группой "Aesma Daeva" Melissa Forlaak (female vocal)
+* C группой "Aesma Daeva" Melissa Forlaak (female vocal)
 
 ## Обсуждения
 

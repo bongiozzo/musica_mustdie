@@ -13,7 +13,7 @@
 
 ## Отношения с другими группами
 
-C группой "Darkthrone" Fenriz
+* C группой "Darkthrone" Fenriz
 
 ## Обсуждения
 

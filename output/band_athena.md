@@ -38,9 +38,9 @@ Making the History
 
 ## Отношения с другими группами
 
-C группой "Rhapsody Of Fire" Fabio Lione
-C группой "Labyrinth" Fabio Lione
-C группой "Vision Divine" Fabio Lione
+* C группой "Rhapsody Of Fire" Fabio Lione
+* C группой "Labyrinth" Fabio Lione
+* C группой "Vision Divine" Fabio Lione
 
 ## Обсуждения
 

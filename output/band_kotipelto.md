@@ -65,26 +65,26 @@ Mirka Rantanen - Drums
 
 ## Отношения с другими группами
 
-C группой "Symphony X" Guitar player
-C группой "Romeo, Michael" Guitar player
-C группой "Stratovarius" Timo Kotipelto
-C группой "Infinity" Timo Kotipelto
-C группой "Cain's Offering" Timo Kotipelto
-C группой "Children of Bodom" Janne Wirman (keyboards)
-C группой "Warmen" Janne Wirman (keyboards)
-C группой "Stratovarius" Jari Kainulainen
-C группой "Evergrey" Jari Kainulainen
-C группой "Elias Viljanen" Jari Kainulainen
-C группой "Warmen" Jari Kainulainen
-C группой "Symfonia" Jari Kainulainen
-C группой "Thunderstone" Mirka Rantanen
-C группой "Sonata Arctica" Mikko Harkin (keyboards)
-C группой "Cain's Offering" Mikko Harkin (keyboards)
-C группой "Kenziner" Mikko Harkin (keyboards)
-C группой "Wingdom" Mikko Harkin (keyboards)
-C группой "Mehida" Mikko Harkin (keyboards)
-C группой "Solution .45" Mikko Harkin (keyboards)
-C группой "Symfonia" Mikko Harkin (keyboards)
+* C группой "Symphony X" Guitar player
+* C группой "Romeo, Michael" Guitar player
+* C группой "Stratovarius" Timo Kotipelto
+* C группой "Infinity" Timo Kotipelto
+* C группой "Cain's Offering" Timo Kotipelto
+* C группой "Children of Bodom" Janne Wirman (keyboards)
+* C группой "Warmen" Janne Wirman (keyboards)
+* C группой "Stratovarius" Jari Kainulainen
+* C группой "Evergrey" Jari Kainulainen
+* C группой "Elias Viljanen" Jari Kainulainen
+* C группой "Warmen" Jari Kainulainen
+* C группой "Symfonia" Jari Kainulainen
+* C группой "Thunderstone" Mirka Rantanen
+* C группой "Sonata Arctica" Mikko Harkin (keyboards)
+* C группой "Cain's Offering" Mikko Harkin (keyboards)
+* C группой "Kenziner" Mikko Harkin (keyboards)
+* C группой "Wingdom" Mikko Harkin (keyboards)
+* C группой "Mehida" Mikko Harkin (keyboards)
+* C группой "Solution .45" Mikko Harkin (keyboards)
+* C группой "Symfonia" Mikko Harkin (keyboards)
 
 ## Обсуждения
 

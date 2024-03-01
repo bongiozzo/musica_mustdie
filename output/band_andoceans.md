@@ -136,7 +136,7 @@ Kenny on vocals, Q on bass, Pete on guitar, T on guitar, Sami on drums, and Anti
 
 ## Отношения с другими группами
 
-C группой "Enochian Crescent" Jani Martikkala (drums in Enochian Crescent [1999-2001] & ex in And Oceans)
+* C группой "Enochian Crescent" Jani Martikkala (drums in Enochian Crescent [1999-2001] & ex in And Oceans)
 
 ## Обсуждения
 

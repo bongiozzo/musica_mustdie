@@ -11,9 +11,9 @@
 
 ## Отношения с другими группами
 
-C группой "Tiamat" Johnny Hagel
-C группой "Sundown" Johnny Hagel
-C группой "Lithium" Johnny Hagel
+* C группой "Tiamat" Johnny Hagel
+* C группой "Sundown" Johnny Hagel
+* C группой "Lithium" Johnny Hagel
 
 ## Обсуждения
 

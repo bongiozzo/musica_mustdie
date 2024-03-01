@@ -91,7 +91,7 @@ Marcello Balena пїЅ Saxophone
 
 ## Отношения с другими группами
 
-C группой "Void of Silence" Malfeitor Fabban
+* C группой "Void of Silence" Malfeitor Fabban
 
 ## Обсуждения
 

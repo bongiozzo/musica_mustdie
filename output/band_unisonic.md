@@ -87,16 +87,16 @@ Credits:
 
 ## Отношения с другими группами
 
-C группой "Helloween" Kai Hansen
-C группой "Gamma Ray" Kai Hansen
-C группой "Iron Savior" Kai Hansen
-C группой "Helloween" Michael Kiske
-C группой "Kiske, Michael" Michael Kiske
-C группой "Pink Cream 69" Dennis Ward (bass)
-C группой "Pink Cream 69" Kosta Zafiriou (drums)
-C группой "Gotthard" Mandy Meyer (guitar)
-C группой "Krokus" Mandy Meyer (guitar)
-C группой "Asia" Mandy Meyer (guitar)
+* C группой "Helloween" Kai Hansen
+* C группой "Gamma Ray" Kai Hansen
+* C группой "Iron Savior" Kai Hansen
+* C группой "Helloween" Michael Kiske
+* C группой "Kiske, Michael" Michael Kiske
+* C группой "Pink Cream 69" Dennis Ward (bass)
+* C группой "Pink Cream 69" Kosta Zafiriou (drums)
+* C группой "Gotthard" Mandy Meyer (guitar)
+* C группой "Krokus" Mandy Meyer (guitar)
+* C группой "Asia" Mandy Meyer (guitar)
 
 ## Обсуждения
 

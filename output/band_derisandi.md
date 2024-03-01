@@ -15,7 +15,7 @@
 
 ## Отношения с другими группами
 
-C группой "Helloween" Andi Deris, vocalist
+* C группой "Helloween" Andi Deris, vocalist
 
 ## Обсуждения
 

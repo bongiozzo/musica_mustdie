@@ -27,7 +27,7 @@ No return
 
 ## Отношения с другими группами
 
-C группой "MUSICA (compilation)" Absurd
+* C группой "MUSICA (compilation)" Absurd
 
 ## Обсуждения
 

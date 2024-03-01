@@ -78,9 +78,9 @@ Tilo Rockstroh: brass, saxophone, piano & organ on "Night Train"
 
 ## Отношения с другими группами
 
-C группой "Dargaard" Elisabeth Toriser
-C группой "Dominion III" Elisabeth Toriser
-C группой "Dargaard" Elisabeth Toriser
+* C группой "Dargaard" Elisabeth Toriser
+* C группой "Dominion III" Elisabeth Toriser
+* C группой "Dargaard" Elisabeth Toriser
 
 ## Обсуждения
 

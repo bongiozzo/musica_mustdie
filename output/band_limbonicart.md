@@ -89,8 +89,8 @@ The yawning abyss of madness
 
 ## Отношения с другими группами
 
-C группой "Sirius" Daemon (vocals)
-C группой "Zyklon" Daemon (vocals)
+* C группой "Sirius" Daemon (vocals)
+* C группой "Zyklon" Daemon (vocals)
 
 ## Обсуждения
 

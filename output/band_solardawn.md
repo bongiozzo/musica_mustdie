@@ -39,12 +39,12 @@ Additional visualisation by Bjarke Ahlstrand.
 
 ## Отношения с другими группами
 
-C группой "Miseration" Christian Alvestam
-C группой "Scar Symmetry" Christian Alvestam
-C группой "Incapacity" Christian Alvestam
-C группой "Torchbearer" Christian Alvestam
-C группой "Unmoored" Christian Alvestam
-C группой "Solution .45" Christian Alvestam
+* C группой "Miseration" Christian Alvestam
+* C группой "Scar Symmetry" Christian Alvestam
+* C группой "Incapacity" Christian Alvestam
+* C группой "Torchbearer" Christian Alvestam
+* C группой "Unmoored" Christian Alvestam
+* C группой "Solution .45" Christian Alvestam
 
 ## Обсуждения
 

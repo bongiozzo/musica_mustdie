@@ -38,7 +38,7 @@ Tony Ochoa - Drums
 
 ## Отношения с другими группами
 
-C группой "Overkill" Dave Linsk (guitar), Derek Tailer (guitar), and Tim Mallare (drums)
+* C группой "Overkill" Dave Linsk (guitar), Derek Tailer (guitar), and Tim Mallare (drums)
 
 ## Обсуждения
 

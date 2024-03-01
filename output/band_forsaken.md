@@ -52,7 +52,7 @@ Doom Metal from Malta
 
 ## Отношения с другими группами
 
-C группой "Weeping Silence" Mario Ellul (keyboard)
+* C группой "Weeping Silence" Mario Ellul (keyboard)
 
 ## Обсуждения
 

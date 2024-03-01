@@ -89,7 +89,7 @@ Steiphen Swegwam  - Drums
 
 ## Отношения с другими группами
 
-C группой "Enochian Crescent" Kai Hahto (drums in Enochian Crescent [1995-1999] & in Agressor on tour 1999)
+* C группой "Enochian Crescent" Kai Hahto (drums in Enochian Crescent [1995-1999] & in Agressor on tour 1999)
 
 ## Обсуждения
 

@@ -7,7 +7,7 @@ Maltese, atmospheric, power/doom metal
 
 ## Отношения с другими группами
 
-C группой "Forsaken" Mario Ellul (keyboard)
+* C группой "Forsaken" Mario Ellul (keyboard)
 
 ## Обсуждения
 

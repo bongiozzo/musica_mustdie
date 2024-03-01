@@ -47,9 +47,9 @@
 
 ## Отношения с другими группами
 
-C группой "Mike Tramp" Mike Tramp
-C группой "Megadeth" James Lomenzo (bass)
-C группой "Black Label Society" James Lomenzo (bass)
+* C группой "Mike Tramp" Mike Tramp
+* C группой "Megadeth" James Lomenzo (bass)
+* C группой "Black Label Society" James Lomenzo (bass)
 
 ## Обсуждения
 

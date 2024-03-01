@@ -21,9 +21,9 @@ member of HAMMERFALL
 
 ## Отношения с другими группами
 
-C группой "HammerFall" Stefan Elmgren (guitar)
-C группой "Cans" Stefan Elmgren (guitar)
-C группой "Fullforce" Stefan Elmgren (guitar)
+* C группой "HammerFall" Stefan Elmgren (guitar)
+* C группой "Cans" Stefan Elmgren (guitar)
+* C группой "Fullforce" Stefan Elmgren (guitar)
 
 ## Обсуждения
 

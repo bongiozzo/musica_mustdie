@@ -192,7 +192,7 @@ Stones From The Sky
 
 ## Отношения с другими группами
 
-C группой "Tribes Of Neurot" Dave Edwardson, Scott Kelly, Noah Landis, Steve Von Till
+* C группой "Tribes Of Neurot" Dave Edwardson, Scott Kelly, Noah Landis, Steve Von Till
 
 ## Обсуждения
 

@@ -41,8 +41,8 @@ Drums on "Ugly Face" by Andrei Ischenko (End Zone)
 
 ## Отношения с другими группами
 
-C группой "Ens Cogitans" Ruben (guitar)
-C группой "Southwake" Ruben (guitar)
+* C группой "Ens Cogitans" Ruben (guitar)
+* C группой "Southwake" Ruben (guitar)
 
 ## Обсуждения
 

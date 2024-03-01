@@ -53,7 +53,7 @@ Cover artwork by Michael Kneppert.
 
 ## Отношения с другими группами
 
-C группой "Vox Tempus" Eric Ragno
+* C группой "Vox Tempus" Eric Ragno
 
 ## Обсуждения
 

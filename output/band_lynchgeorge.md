@@ -24,7 +24,7 @@
 
 ## Отношения с другими группами
 
-C группой "Dokken" Guitar player
+* C группой "Dokken" Guitar player
 
 ## Обсуждения
 

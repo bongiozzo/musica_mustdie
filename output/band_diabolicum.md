@@ -7,7 +7,7 @@
 
 ## Отношения с другими группами
 
-C группой "Aeon" Tommy Dahlstrom (vocal), Zeb Nilsson (guitar)
+* C группой "Aeon" Tommy Dahlstrom (vocal), Zeb Nilsson (guitar)
 
 ## Обсуждения
 

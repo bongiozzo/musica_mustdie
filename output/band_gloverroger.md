@@ -136,7 +136,7 @@ Jean Roussel  -  Keyboards
 
 ## Отношения с другими группами
 
-C группой "Deep Purple" Roger Glover (bass)
+* C группой "Deep Purple" Roger Glover (bass)
 
 ## Обсуждения
 

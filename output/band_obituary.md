@@ -325,12 +325,12 @@ Recorded at Obituary's home studio in Tampa, Florida, USA in end of 2016.
 
 ## Отношения с другими группами
 
-C группой "Six Feet Under" Allen West from Obituary plays in Six Feet Under
-C группой "Lowbrow" Allen West from Obituary plays in Six Feet Under
-C группой "Death" James Murphy played in Death, Obituary, Testament, Cancer, Disincarnate.
-C группой "Testament" James Murphy played in Death, Obituary, Testament, Cancer, Disincarnate.
-C группой "Cancer" James Murphy played in Death, Obituary, Testament, Cancer, Disincarnate.
-C группой "Disincarnate" James Murphy played in Death, Obituary, Testament, Cancer, Disincarnate.
+* C группой "Six Feet Under" Allen West from Obituary plays in Six Feet Under
+* C группой "Lowbrow" Allen West from Obituary plays in Six Feet Under
+* C группой "Death" James Murphy played in Death, Obituary, Testament, Cancer, Disincarnate.
+* C группой "Testament" James Murphy played in Death, Obituary, Testament, Cancer, Disincarnate.
+* C группой "Cancer" James Murphy played in Death, Obituary, Testament, Cancer, Disincarnate.
+* C группой "Disincarnate" James Murphy played in Death, Obituary, Testament, Cancer, Disincarnate.
 
 ## Обсуждения
 

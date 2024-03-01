@@ -7,7 +7,7 @@
 
 ## Отношения с другими группами
 
-C группой "Warmen" Antti Wirman
+* C группой "Warmen" Antti Wirman
 
 ## Обсуждения
 

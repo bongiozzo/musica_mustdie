@@ -85,7 +85,7 @@ Eternity pt24
 
 ## Отношения с другими группами
 
-C группой "Anathema" Duncan Patterson
+* C группой "Anathema" Duncan Patterson
 
 ## Обсуждения
 

@@ -62,11 +62,11 @@ Cover design & lay-out by Bjarke Ahlstrand Karen Hjermind
 
 ## Отношения с другими группами
 
-C группой "A Canorous Quintet" Drummer Fredrik Andersson
-C группой "Amon Amarth" Drummer Fredrik Andersson
-C группой "Curriculum Mortis" Drummer Fredrik Andersson
-C группой "A Canorous Quintet" Split up of A Canorous Quintet
-C группой "Curriculum Mortis" Mattias Leinikka (vocal)
+* C группой "A Canorous Quintet" Drummer Fredrik Andersson
+* C группой "Amon Amarth" Drummer Fredrik Andersson
+* C группой "Curriculum Mortis" Drummer Fredrik Andersson
+* C группой "A Canorous Quintet" Split up of A Canorous Quintet
+* C группой "Curriculum Mortis" Mattias Leinikka (vocal)
 
 ## Обсуждения
 

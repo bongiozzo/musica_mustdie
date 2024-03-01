@@ -311,8 +311,8 @@ Disc 2 (DVD) - Australian Darkness
 
 ## Отношения с другими группами
 
-C группой "Houwitser" Mike
-C группой "Death Squad" Mike
+* C группой "Houwitser" Mike
+* C группой "Death Squad" Mike
 
 ## Обсуждения
 

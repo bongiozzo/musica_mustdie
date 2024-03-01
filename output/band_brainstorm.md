@@ -196,7 +196,7 @@ Produced by Axel Heckert in Studio 22.
 
 ## Отношения с другими группами
 
-C группой "Symphorce" Andy B. Franck
+* C группой "Symphorce" Andy B. Franck
 
 ## Обсуждения
 

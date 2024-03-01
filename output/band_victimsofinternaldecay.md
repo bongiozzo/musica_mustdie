@@ -33,7 +33,7 @@ Recorded At Dog Fish Sound (Newburg,OR) In June 1992.
 
 ## Отношения с другими группами
 
-C группой "Domesticide" 
+* C группой "Domesticide" 
 
 ## Обсуждения
 

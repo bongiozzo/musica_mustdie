@@ -31,7 +31,7 @@ Lyrics by Alex Barton
 
 ## Отношения с другими группами
 
-C группой "Neotruth" 
+* C группой "Neotruth" 
 
 ## Обсуждения
 

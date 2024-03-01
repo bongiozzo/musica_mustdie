@@ -487,23 +487,23 @@ Disc 3
 
 ## Отношения с другими группами
 
-C группой "Rage" Jorg Michael
-C группой "Running Wild" Jorg Michael
-C группой "Malmsteen, Yngwie" Jens Johansson
-C группой "Barilari" Jens Johansson
-C группой "Kotipelto" Timo Kotipelto
-C группой "Infinity" Timo Kotipelto
-C группой "Cain's Offering" Timo Kotipelto
-C группой "Timo Tolkki" Timo Tolkki
-C группой "Kotipelto" Jari Kainulainen
-C группой "Evergrey" Jari Kainulainen
-C группой "Elias Viljanen" Jari Kainulainen
-C группой "Warmen" Jari Kainulainen
-C группой "Symfonia" Jari Kainulainen
-C группой "Almah" Laurri Porra (bass)
-C группой "Revolution Renaissance" NEW STRATOVARIUS (Timo Tolkki)
-C группой "Timo Tolkki" NEW STRATOVARIUS (Timo Tolkki)
-C группой "Symfonia" NEW STRATOVARIUS (Timo Tolkki)
+* C группой "Rage" Jorg Michael
+* C группой "Running Wild" Jorg Michael
+* C группой "Malmsteen, Yngwie" Jens Johansson
+* C группой "Barilari" Jens Johansson
+* C группой "Kotipelto" Timo Kotipelto
+* C группой "Infinity" Timo Kotipelto
+* C группой "Cain's Offering" Timo Kotipelto
+* C группой "Timo Tolkki" Timo Tolkki
+* C группой "Kotipelto" Jari Kainulainen
+* C группой "Evergrey" Jari Kainulainen
+* C группой "Elias Viljanen" Jari Kainulainen
+* C группой "Warmen" Jari Kainulainen
+* C группой "Symfonia" Jari Kainulainen
+* C группой "Almah" Laurri Porra (bass)
+* C группой "Revolution Renaissance" NEW STRATOVARIUS (Timo Tolkki)
+* C группой "Timo Tolkki" NEW STRATOVARIUS (Timo Tolkki)
+* C группой "Symfonia" NEW STRATOVARIUS (Timo Tolkki)
 
 ## Обсуждения
 

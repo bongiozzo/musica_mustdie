@@ -11,10 +11,10 @@ dark wave / industral
 
 ## Отношения с другими группами
 
-C группой "Abigor" Tharen
-C группой "Dargaard" Tharen
-C группой "Antichrisis" Elisabeth Toriser
-C группой "Dargaard" Elisabeth Toriser
+* C группой "Abigor" Tharen
+* C группой "Dargaard" Tharen
+* C группой "Antichrisis" Elisabeth Toriser
+* C группой "Dargaard" Elisabeth Toriser
 
 ## Обсуждения
 

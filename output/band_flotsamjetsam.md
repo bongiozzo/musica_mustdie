@@ -189,10 +189,10 @@ Craig Nielsen - Drums
 
 ## Отношения с другими группами
 
-C группой "Metallica" Jason Newsted
-C группой "Voivod" Jason Newsted
-C группой "EchoBrain" Jason Newsted
-C группой "Papa Wheelie" Jason Newsted
+* C группой "Metallica" Jason Newsted
+* C группой "Voivod" Jason Newsted
+* C группой "EchoBrain" Jason Newsted
+* C группой "Papa Wheelie" Jason Newsted
 
 ## Обсуждения
 

@@ -42,7 +42,7 @@ Photos by Jan & Marcus Ehlin
 
 ## Отношения с другими группами
 
-C группой "Siebenburgen" Marcus Ehlin
+* C группой "Siebenburgen" Marcus Ehlin
 
 ## Обсуждения
 

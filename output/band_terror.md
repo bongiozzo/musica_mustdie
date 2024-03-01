@@ -89,8 +89,8 @@
 
 ## Отношения с другими группами
 
-C группой "S.O.S." Scott Vogel - vocals
-C группой "S.O.S." Nick Jett - drums
+* C группой "S.O.S." Scott Vogel - vocals
+* C группой "S.O.S." Nick Jett - drums
 
 ## Обсуждения
 

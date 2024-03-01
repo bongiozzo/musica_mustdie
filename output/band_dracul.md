@@ -68,7 +68,7 @@ OF THE DAY AND NIGHT!
 
 ## Отношения с другими группами
 
-C группой "Umbra Et Imago" Mozart
+* C группой "Umbra Et Imago" Mozart
 
 ## Обсуждения
 

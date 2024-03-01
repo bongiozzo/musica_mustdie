@@ -32,7 +32,7 @@ Ricky - Drums
 
 ## Отношения с другими группами
 
-C группой "Arma Gathas" Simon Fuellemann (guitar)
+* C группой "Arma Gathas" Simon Fuellemann (guitar)
 
 ## Обсуждения
 

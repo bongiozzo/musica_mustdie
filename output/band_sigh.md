@@ -106,10 +106,10 @@ Sigh  -  Producer
 
 ## Отношения с другими группами
 
-C группой "Necrophagia" Mirai Kawashima
-C группой "Gorelord" Mirai Kawashima
-C группой "Blood From the Soul" Mirai Kawashima
-C группой "Meads Of Asphodel, The" Mirai Kawashima
+* C группой "Necrophagia" Mirai Kawashima
+* C группой "Gorelord" Mirai Kawashima
+* C группой "Blood From the Soul" Mirai Kawashima
+* C группой "Meads Of Asphodel, The" Mirai Kawashima
 
 ## Обсуждения
 

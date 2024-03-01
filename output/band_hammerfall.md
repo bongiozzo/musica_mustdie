@@ -561,17 +561,17 @@ Disc 2 (DVD)
 
 ## Отношения с другими группами
 
-C группой "In Flames" Jesper Stormblad
-C группой "Dimension Zero" Jesper Stormblad
-C группой "Cans" Joachim Cans (vocal)
-C группой "Full Strike" Stefan Elmgren (guitar)
-C группой "Cans" Stefan Elmgren (guitar)
-C группой "Fullforce" Stefan Elmgren (guitar)
-C группой "Warlord" Joachim Cans
-C группой "Talisman" Pontus Norgren
-C группой "Ring, The" Pontus Norgren
-C группой "Fullforce" Anders Johansson (drums)
-C группой "Malmsteen, Yngwie" Anders Johansson (drums)
+* C группой "In Flames" Jesper Stormblad
+* C группой "Dimension Zero" Jesper Stormblad
+* C группой "Cans" Joachim Cans (vocal)
+* C группой "Full Strike" Stefan Elmgren (guitar)
+* C группой "Cans" Stefan Elmgren (guitar)
+* C группой "Fullforce" Stefan Elmgren (guitar)
+* C группой "Warlord" Joachim Cans
+* C группой "Talisman" Pontus Norgren
+* C группой "Ring, The" Pontus Norgren
+* C группой "Fullforce" Anders Johansson (drums)
+* C группой "Malmsteen, Yngwie" Anders Johansson (drums)
 
 ## Обсуждения
 

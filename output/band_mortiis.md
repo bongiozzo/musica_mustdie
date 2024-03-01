@@ -97,12 +97,12 @@ Anna Kallberg  -  Photography
 
 ## Отношения с другими группами
 
-C группой "Vond" Mortiis = Vond
-C группой "Cradle of Filth" Sarah Jezebel Deva
-C группой "Therion" Sarah Jezebel Deva
-C группой "Angtoria" Sarah Jezebel Deva
-C группой "Sarah Jezebel Deva" Sarah Jezebel Deva
-C группой "Fata Morgana" Mortiis (keyboards)
+* C группой "Vond" Mortiis = Vond
+* C группой "Cradle of Filth" Sarah Jezebel Deva
+* C группой "Therion" Sarah Jezebel Deva
+* C группой "Angtoria" Sarah Jezebel Deva
+* C группой "Sarah Jezebel Deva" Sarah Jezebel Deva
+* C группой "Fata Morgana" Mortiis (keyboards)
 
 ## Обсуждения
 

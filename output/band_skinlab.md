@@ -48,7 +48,7 @@
 
 ## Отношения с другими группами
 
-C группой "Defiance" Steve Esquivel (aka Steev)
+* C группой "Defiance" Steve Esquivel (aka Steev)
 
 ## Обсуждения
 

@@ -35,7 +35,7 @@ Engineered By E. Virkkula
 
 ## Отношения с другими группами
 
-C группой "Promethean" Fornicator (Timo Iivari), Blacksoul (Esa Juuj&auml;rvi)
+* C группой "Promethean" Fornicator (Timo Iivari), Blacksoul (Esa Juuj&auml;rvi)
 
 ## Обсуждения
 

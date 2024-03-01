@@ -47,9 +47,9 @@
 
 ## Отношения с другими группами
 
-C группой "In Flames" Niclas Engelin (guitar)
-C группой "Engel" Niclas Engelin (guitar)
-C группой "Engel" Robert Hakemo (bass)
+* C группой "In Flames" Niclas Engelin (guitar)
+* C группой "Engel" Niclas Engelin (guitar)
+* C группой "Engel" Robert Hakemo (bass)
 
 ## Обсуждения
 

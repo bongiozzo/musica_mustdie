@@ -190,7 +190,7 @@ Koen Herfst – Drums
 
 ## Отношения с другими группами
 
-C группой "Obscenity" Alexander Pahl (bass)
+* C группой "Obscenity" Alexander Pahl (bass)
 
 ## Обсуждения
 

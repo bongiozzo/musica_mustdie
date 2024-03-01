@@ -139,7 +139,7 @@ Rudiger Hennecke - Drums
 
 ## Отношения с другими группами
 
-C группой "Insidious Disease" Marc "Groo" Grewe
+* C группой "Insidious Disease" Marc "Groo" Grewe
 
 ## Обсуждения
 

@@ -43,11 +43,11 @@ Perfumer - abyss heartbeat
 
 ## Отношения с другими группами
 
-C группой "Ashen Light" Alex
-C группой "Stigmatic Chorus" Alex
-C группой "Изморозь" Alex
-C группой "Divizion S-187" Alex
-C группой "Radigost" Valafar
+* C группой "Ashen Light" Alex
+* C группой "Stigmatic Chorus" Alex
+* C группой "Изморозь" Alex
+* C группой "Divizion S-187" Alex
+* C группой "Radigost" Valafar
 
 ## Обсуждения
 

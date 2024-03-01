@@ -282,44 +282,44 @@ Paul Bostaph - Drums
 
 ## Отношения с другими группами
 
-C группой "Sadus" Steve DiGiorgio (bass)
-C группой "Death" Steve DiGiorgio (bass)
-C группой "Artension" Steve DiGiorgio (bass)
-C группой "Control Denied" Steve DiGiorgio (bass)
-C группой "Autopsy" Steve DiGiorgio (bass)
-C группой "Iced Earth" Steve DiGiorgio (bass)
-C группой "Charred Walls Of The Damned" Steve DiGiorgio (bass)
-C группой "Faust [ITA]" Steve DiGiorgio (bass)
-C группой "Dragonlord" Steve DiGiorgio (bass)
-C группой "Obituary" James Murphy played in Death, Obituary, Testament, Cancer, Disincarnate.
-C группой "Death" James Murphy played in Death, Obituary, Testament, Cancer, Disincarnate.
-C группой "Cancer" James Murphy played in Death, Obituary, Testament, Cancer, Disincarnate.
-C группой "Disincarnate" James Murphy played in Death, Obituary, Testament, Cancer, Disincarnate.
-C группой "Alex Skolnick" Guitar
-C группой "Death" Steve DiGiorgio
-C группой "Vintersorg" Steve DiGiorgio
-C группой "Control Denied" Steve DiGiorgio
-C группой "Dragonlord" Steve DiGiorgio
-C группой "Anthrax" John Tempesta (drums)
-C группой "White Zombie" John Tempesta (drums)
-C группой "Zombie, Rob" John Tempesta (drums)
-C группой "Slayer" Paul Bostaph (drums)
-C группой "Exodus" Paul Bostaph (drums)
-C группой "Forbidden" Paul Bostaph (drums)
-C группой "Halford" "Metal" Mike Chlasciak (guitar)
-C группой "Cans" "Metal" Mike Chlasciak (guitar)
-C группой "Nevermore" Steve Smyth (guitar)
-C группой "Dragonlord" Steve Smyth (guitar)
-C группой "One Machine" Steve Smyth (guitar)
-C группой "Borknagar" Asgeir Mickelson (drums)
-C группой "Vintersorg" Asgeir Mickelson (drums)
-C группой "Spiral Architect" Asgeir Mickelson (drums)
-C группой "ICS Vortex" Asgeir Mickelson (drums)
-C группой "Artisan" Asgeir Mickelson (drums)
-C группой "Sarke" Asgeir Mickelson (drums)
-C группой "Exodus" Steve 'Zetro' Souza (vocal)
-C группой "Hatriot" Steve 'Zetro' Souza (vocal)
-C группой "Tenet" Steve 'Zetro' Souza (vocal)
+* C группой "Sadus" Steve DiGiorgio (bass)
+* C группой "Death" Steve DiGiorgio (bass)
+* C группой "Artension" Steve DiGiorgio (bass)
+* C группой "Control Denied" Steve DiGiorgio (bass)
+* C группой "Autopsy" Steve DiGiorgio (bass)
+* C группой "Iced Earth" Steve DiGiorgio (bass)
+* C группой "Charred Walls Of The Damned" Steve DiGiorgio (bass)
+* C группой "Faust [ITA]" Steve DiGiorgio (bass)
+* C группой "Dragonlord" Steve DiGiorgio (bass)
+* C группой "Obituary" James Murphy played in Death, Obituary, Testament, Cancer, Disincarnate.
+* C группой "Death" James Murphy played in Death, Obituary, Testament, Cancer, Disincarnate.
+* C группой "Cancer" James Murphy played in Death, Obituary, Testament, Cancer, Disincarnate.
+* C группой "Disincarnate" James Murphy played in Death, Obituary, Testament, Cancer, Disincarnate.
+* C группой "Alex Skolnick" Guitar
+* C группой "Death" Steve DiGiorgio
+* C группой "Vintersorg" Steve DiGiorgio
+* C группой "Control Denied" Steve DiGiorgio
+* C группой "Dragonlord" Steve DiGiorgio
+* C группой "Anthrax" John Tempesta (drums)
+* C группой "White Zombie" John Tempesta (drums)
+* C группой "Zombie, Rob" John Tempesta (drums)
+* C группой "Slayer" Paul Bostaph (drums)
+* C группой "Exodus" Paul Bostaph (drums)
+* C группой "Forbidden" Paul Bostaph (drums)
+* C группой "Halford" "Metal" Mike Chlasciak (guitar)
+* C группой "Cans" "Metal" Mike Chlasciak (guitar)
+* C группой "Nevermore" Steve Smyth (guitar)
+* C группой "Dragonlord" Steve Smyth (guitar)
+* C группой "One Machine" Steve Smyth (guitar)
+* C группой "Borknagar" Asgeir Mickelson (drums)
+* C группой "Vintersorg" Asgeir Mickelson (drums)
+* C группой "Spiral Architect" Asgeir Mickelson (drums)
+* C группой "ICS Vortex" Asgeir Mickelson (drums)
+* C группой "Artisan" Asgeir Mickelson (drums)
+* C группой "Sarke" Asgeir Mickelson (drums)
+* C группой "Exodus" Steve 'Zetro' Souza (vocal)
+* C группой "Hatriot" Steve 'Zetro' Souza (vocal)
+* C группой "Tenet" Steve 'Zetro' Souza (vocal)
 
 ## Обсуждения
 

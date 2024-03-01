@@ -65,7 +65,7 @@ Female Choirs by Anette Blyckert
 
 ## Отношения с другими группами
 
-C группой "Fullforce" Mike Andersson (vocal)
+* C группой "Fullforce" Mike Andersson (vocal)
 
 ## Обсуждения
 

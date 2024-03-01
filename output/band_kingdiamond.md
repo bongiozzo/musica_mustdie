@@ -376,18 +376,18 @@ Additional Vocals by Livia Zita.
 
 ## Отношения с другими группами
 
-C группой "Death" Andy LaRocque played in King Diamond
-C группой "Witchery" Sharlee d'Angelo
-C группой "Memento Mori" Snowy Shaw (drums)
-C группой "Mercyful Fate" Snowy Shaw (drums)
-C группой "Dream Evil" Snowy Shaw (drums)
-C группой "Notre Dame" Snowy Shaw (drums)
-C группой "Denner / Shermann" Snowy Shaw (drums)
-C группой "Therion" Snowy Shaw (drums)
-C группой "Megadeth" Glen Drover
-C группой "Eidolon" Glen Drover
-C группой "Mercyful Fate" Michael Denner (guitar)
-C группой "Denner / Shermann" Michael Denner (guitar)
+* C группой "Death" Andy LaRocque played in King Diamond
+* C группой "Witchery" Sharlee d'Angelo
+* C группой "Memento Mori" Snowy Shaw (drums)
+* C группой "Mercyful Fate" Snowy Shaw (drums)
+* C группой "Dream Evil" Snowy Shaw (drums)
+* C группой "Notre Dame" Snowy Shaw (drums)
+* C группой "Denner / Shermann" Snowy Shaw (drums)
+* C группой "Therion" Snowy Shaw (drums)
+* C группой "Megadeth" Glen Drover
+* C группой "Eidolon" Glen Drover
+* C группой "Mercyful Fate" Michael Denner (guitar)
+* C группой "Denner / Shermann" Michael Denner (guitar)
 
 ## Обсуждения
 

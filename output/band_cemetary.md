@@ -138,11 +138,11 @@ Produced by Mathias Lodmalm
 
 ## Отношения с другими группами
 
-C группой "Sundown" Mathias Lodmalm
-C группой "Cemetary 1213" Mathias Lodmalm
-C группой "Sundown" Manne Engstrцm
-C группой "Beseech" Manne Engstrцm
-C группой "Fatal Embrace" Manne Engstrцm
+* C группой "Sundown" Mathias Lodmalm
+* C группой "Cemetary 1213" Mathias Lodmalm
+* C группой "Sundown" Manne Engstrцm
+* C группой "Beseech" Manne Engstrцm
+* C группой "Fatal Embrace" Manne Engstrцm
 
 ## Обсуждения
 

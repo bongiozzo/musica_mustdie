@@ -211,7 +211,7 @@ Matt Cameron - Drums, Percussion
 
 ## Отношения с другими группами
 
-C группой "Audioslave" Chris Cornell
+* C группой "Audioslave" Chris Cornell
 
 ## Обсуждения
 

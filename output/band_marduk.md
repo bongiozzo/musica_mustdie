@@ -403,7 +403,7 @@ Recorded at Endarker Studios in NorrkпїЅping with engineer/producer Magnus
 
 ## Отношения с другими группами
 
-C группой "Overflash" Devo Andersson
+* C группой "Overflash" Devo Andersson
 
 ## Обсуждения
 

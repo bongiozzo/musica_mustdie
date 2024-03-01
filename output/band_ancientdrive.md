@@ -32,8 +32,8 @@ Veikka Jokela-Drums
 
 ## Отношения с другими группами
 
-C группой "Survivors Zero" Tommi Virranta (vocal)
-C группой "Deathchain" Tommi Virranta (vocal)
+* C группой "Survivors Zero" Tommi Virranta (vocal)
+* C группой "Deathchain" Tommi Virranta (vocal)
 
 ## Обсуждения
 

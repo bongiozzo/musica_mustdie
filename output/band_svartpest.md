@@ -22,11 +22,11 @@
 
 ## Отношения с другими группами
 
-C группой "Necrophagia" Frediablo
-C группой "Gorelord" Frediablo
-C группой "Wurdulak" Frediablo
-C группой "Grimfist" Frediablo
-C группой "Soul Forsaken" Frediablo
+* C группой "Necrophagia" Frediablo
+* C группой "Gorelord" Frediablo
+* C группой "Wurdulak" Frediablo
+* C группой "Grimfist" Frediablo
+* C группой "Soul Forsaken" Frediablo
 
 ## Обсуждения
 

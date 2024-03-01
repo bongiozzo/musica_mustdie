@@ -146,8 +146,8 @@ CHRIS DE GARNO
 
 ## Отношения с другими группами
 
-C группой "Tate, Geoff" Frontman
-C группой "Operation: Mindcrime" Frontman
+* C группой "Tate, Geoff" Frontman
+* C группой "Operation: Mindcrime" Frontman
 
 ## Обсуждения
 

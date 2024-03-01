@@ -387,12 +387,12 @@ DVD 2
 
 ## Отношения с другими группами
 
-C группой "The Rods" Carl Canedy (drums)
-C группой "Shakin' Street" Ross the Boss (guitar)
-C группой "The Dictators" Ross the Boss (guitar)
-C группой "David Shankle Group (DSG)" David Shankle (guitar)
-C группой "Chicago" Ross the Boss (guitar)
-C группой "Ross The Boss" Ross The Boss (guitar)
+* C группой "The Rods" Carl Canedy (drums)
+* C группой "Shakin' Street" Ross the Boss (guitar)
+* C группой "The Dictators" Ross the Boss (guitar)
+* C группой "David Shankle Group (DSG)" David Shankle (guitar)
+* C группой "Chicago" Ross the Boss (guitar)
+* C группой "Ross The Boss" Ross The Boss (guitar)
 
 ## Обсуждения
 

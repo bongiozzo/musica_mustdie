@@ -67,9 +67,9 @@ Mastered at Finnvox by Mika Jussila
 
 ## Отношения с другими группами
 
-C группой "Finntroll" Wilska
-C группой "Sethian" Wilska
-C группой "Survivors Zero" Wilska
+* C группой "Finntroll" Wilska
+* C группой "Sethian" Wilska
+* C группой "Survivors Zero" Wilska
 
 ## Обсуждения
 

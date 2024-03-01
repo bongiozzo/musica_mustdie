@@ -56,7 +56,7 @@ Addictional musichan: Trond Nagell-dahl - Keyboards
 
 ## Отношения с другими группами
 
-C группой "Ark" guitarist Tore Ostby
+* C группой "Ark" guitarist Tore Ostby
 
 ## Обсуждения
 

@@ -97,8 +97,8 @@ Zebulon Olsson from Cryonic Temple.
 
 ## Отношения с другими группами
 
-C группой "Tad Morose" Peter Moren (drums)
-C группой "Inmoria" Peter Moren (drums)
+* C группой "Tad Morose" Peter Moren (drums)
+* C группой "Inmoria" Peter Moren (drums)
 
 ## Обсуждения
 

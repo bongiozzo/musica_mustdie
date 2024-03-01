@@ -36,7 +36,7 @@ Finnish Folk-Metal
 
 ## Отношения с другими группами
 
-C группой "Korpiklaani" Jonne
+* C группой "Korpiklaani" Jonne
 
 ## Обсуждения
 

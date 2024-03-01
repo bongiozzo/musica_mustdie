@@ -27,7 +27,7 @@
 
 ## Отношения с другими группами
 
-C группой "AC/DC" Brian Johnson
+* C группой "AC/DC" Brian Johnson
 
 ## Обсуждения
 

@@ -43,8 +43,8 @@ Melodic Death Metal band from Russia
 
 ## Отношения с другими группами
 
-C группой "Ascendancy" 
-C группой "MUSICA (compilation)" Exhumation
+* C группой "Ascendancy" 
+* C группой "MUSICA (compilation)" Exhumation
 
 ## Обсуждения
 

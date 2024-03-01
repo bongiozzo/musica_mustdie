@@ -17,13 +17,13 @@ Side-project of Tuomas Holopainen (Nightwish) and musicians of Eternal Tears of 
 
 ## Отношения с другими группами
 
-C группой "Nightwish" Tuomas Holopainen
-C группой "Eternal Tears of Sorrow" Altti Vetelainen
-C группой "Eternal Tears of Sorrow" Olli-Pekka Torro
-C группой "Eternal Tears of Sorrow" Petri Sankala
-C группой "Charon" Lauri Tuohimaa
-C группой "Embraze" Lauri Tuohimaa
-C группой "Haavat" Lauri Tuohimaa
+* C группой "Nightwish" Tuomas Holopainen
+* C группой "Eternal Tears of Sorrow" Altti Vetelainen
+* C группой "Eternal Tears of Sorrow" Olli-Pekka Torro
+* C группой "Eternal Tears of Sorrow" Petri Sankala
+* C группой "Charon" Lauri Tuohimaa
+* C группой "Embraze" Lauri Tuohimaa
+* C группой "Haavat" Lauri Tuohimaa
 
 ## Обсуждения
 

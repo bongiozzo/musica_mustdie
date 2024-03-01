@@ -45,15 +45,15 @@ The musicians appearing on the CD are: Joe Lynn Turner (vocals) Glenn Hughes (vo
 
 ## Отношения с другими группами
 
-C группой "Rainbow" J-L Turner
-C группой "Deep Purple" J-L Turner
-C группой "Joe Lynn Turner" J-L Turner
-C группой "Brazen Abbot" J-L Turner
-C группой "Sunstorm" J-L Turner
-C группой "Black Sabbath" vocalist Glenn Hughes
-C группой "Deep Purple" vocalist Glenn Hughes
-C группой "Glenn Hughes" vocalist Glenn Hughes
-C группой "Gilbert, Paul" Paul Gilbert (guitars)
+* C группой "Rainbow" J-L Turner
+* C группой "Deep Purple" J-L Turner
+* C группой "Joe Lynn Turner" J-L Turner
+* C группой "Brazen Abbot" J-L Turner
+* C группой "Sunstorm" J-L Turner
+* C группой "Black Sabbath" vocalist Glenn Hughes
+* C группой "Deep Purple" vocalist Glenn Hughes
+* C группой "Glenn Hughes" vocalist Glenn Hughes
+* C группой "Gilbert, Paul" Paul Gilbert (guitars)
 
 ## Обсуждения
 

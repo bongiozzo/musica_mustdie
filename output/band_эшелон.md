@@ -11,7 +11,7 @@
 
 ## Отношения с другими группами
 
-C группой "Mental Home" Mikhail 'Maiden' Smirnov
+* C группой "Mental Home" Mikhail 'Maiden' Smirnov
 
 ## Обсуждения
 

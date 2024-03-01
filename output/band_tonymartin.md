@@ -23,8 +23,8 @@ ex-BLACK SABBATH singer
 
 ## Отношения с другими группами
 
-C группой "Black Sabbath" 
-C группой "Mollo/Martin" 
+* C группой "Black Sabbath" 
+* C группой "Mollo/Martin" 
 
 ## Обсуждения
 

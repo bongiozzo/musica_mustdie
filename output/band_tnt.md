@@ -213,9 +213,9 @@ Diesel Dahl Drums
 
 ## Отношения с другими группами
 
-C группой "Malmsteen, Yngwie" John Macaluso
-C группой "Riot" John Macaluso
-C группой "Starbreaker" Tony Harnell
+* C группой "Malmsteen, Yngwie" John Macaluso
+* C группой "Riot" John Macaluso
+* C группой "Starbreaker" Tony Harnell
 
 ## Обсуждения
 

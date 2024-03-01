@@ -34,7 +34,7 @@ Steve Duda  -  Programming
 
 ## Отношения с другими группами
 
-C группой "Motley Crue" Tommy Lee
+* C группой "Motley Crue" Tommy Lee
 
 ## Обсуждения
 

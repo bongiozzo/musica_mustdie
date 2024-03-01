@@ -207,7 +207,7 @@ Bonus Track:
 
 ## Отношения с другими группами
 
-C группой "Dracul" Mozart
+* C группой "Dracul" Mozart
 
 ## Обсуждения
 

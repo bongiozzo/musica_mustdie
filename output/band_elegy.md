@@ -127,8 +127,8 @@
 
 ## Отношения с другими группами
 
-C группой "Rondat, Patrick" Guitar player
-C группой "Ian Perry" 
+* C группой "Rondat, Patrick" Guitar player
+* C группой "Ian Perry" 
 
 ## Обсуждения
 

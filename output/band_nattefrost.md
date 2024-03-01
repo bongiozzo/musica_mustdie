@@ -45,7 +45,7 @@ The Death of Nettefrost (Still Reaching for Hell Part II)
 
 ## Отношения с другими группами
 
-C группой "Carpathian Forest" 
+* C группой "Carpathian Forest" 
 
 ## Обсуждения
 

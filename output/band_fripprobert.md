@@ -190,7 +190,7 @@ Hideyo Moriya  -  Guitar
 
 ## Отношения с другими группами
 
-C группой "King Crimson" guitarist
+* C группой "King Crimson" guitarist
 
 ## Обсуждения
 

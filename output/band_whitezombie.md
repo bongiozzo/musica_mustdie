@@ -168,10 +168,10 @@ Track 12 Remixed by DJ Lethal
 
 ## Отношения с другими группами
 
-C группой "Zombie, Rob" Frontman
-C группой "Testament" John Tempesta (drums)
-C группой "Anthrax" John Tempesta (drums)
-C группой "Zombie, Rob" John Tempesta (drums)
+* C группой "Zombie, Rob" Frontman
+* C группой "Testament" John Tempesta (drums)
+* C группой "Anthrax" John Tempesta (drums)
+* C группой "Zombie, Rob" John Tempesta (drums)
 
 ## Обсуждения
 

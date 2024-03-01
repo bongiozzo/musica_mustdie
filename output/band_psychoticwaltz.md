@@ -78,7 +78,7 @@ I Of The Storm
 
 ## Отношения с другими группами
 
-C группой "Dead Soul Tribe" Buddy Lackey
+* C группой "Dead Soul Tribe" Buddy Lackey
 
 ## Обсуждения
 

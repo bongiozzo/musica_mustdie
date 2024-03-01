@@ -178,12 +178,12 @@ CD 2:
 
 ## Отношения с другими группами
 
-C группой "The Forsaken" Michael Hеkansson
-C группой "Stratovarius" Jari Kainulainen
-C группой "Kotipelto" Jari Kainulainen
-C группой "Elias Viljanen" Jari Kainulainen
-C группой "Warmen" Jari Kainulainen
-C группой "Symfonia" Jari Kainulainen
+* C группой "The Forsaken" Michael Hеkansson
+* C группой "Stratovarius" Jari Kainulainen
+* C группой "Kotipelto" Jari Kainulainen
+* C группой "Elias Viljanen" Jari Kainulainen
+* C группой "Warmen" Jari Kainulainen
+* C группой "Symfonia" Jari Kainulainen
 
 ## Обсуждения
 

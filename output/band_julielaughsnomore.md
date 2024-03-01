@@ -30,8 +30,8 @@
 
 ## Отношения с другими группами
 
-C группой "Centinex" Ronnie Bergerstahl (drums)
-C группой "Amaran" 
+* C группой "Centinex" Ronnie Bergerstahl (drums)
+* C группой "Amaran" 
 
 ## Обсуждения
 

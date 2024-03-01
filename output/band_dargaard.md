@@ -35,11 +35,11 @@ Co-produced by Tomas Pure
 
 ## Отношения с другими группами
 
-C группой "Abigor" Tharen
-C группой "Dominion III" Tharen
-C группой "Antichrisis" Elisabeth Toriser
-C группой "Dominion III" Elisabeth Toriser
-C группой "Antichrisis" Elisabeth Toriser
+* C группой "Abigor" Tharen
+* C группой "Dominion III" Tharen
+* C группой "Antichrisis" Elisabeth Toriser
+* C группой "Dominion III" Elisabeth Toriser
+* C группой "Antichrisis" Elisabeth Toriser
 
 ## Обсуждения
 

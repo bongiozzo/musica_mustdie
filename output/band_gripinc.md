@@ -96,10 +96,10 @@ Dave Lombardo - Drums, Percussion
 
 ## Отношения с другими группами
 
-C группой "Slayer" Dave Lombardo перешел в Grip, Inc
-C группой "Squealer" Gus Chambers (vocal)
-C группой "Eyes Of Eden" Waldemar Sorychta (guitar)
-C группой "ReVamp" Waldemar Sorychta (guitar)
+* C группой "Slayer" Dave Lombardo перешел в Grip, Inc
+* C группой "Squealer" Gus Chambers (vocal)
+* C группой "Eyes Of Eden" Waldemar Sorychta (guitar)
+* C группой "ReVamp" Waldemar Sorychta (guitar)
 
 ## Обсуждения
 

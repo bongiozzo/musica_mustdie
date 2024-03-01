@@ -33,7 +33,7 @@
 
 ## Отношения с другими группами
 
-C группой "Godhate" Band changed name
+* C группой "Godhate" Band changed name
 
 ## Обсуждения
 

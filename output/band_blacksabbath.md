@@ -370,15 +370,15 @@ Deluxe edition bonus tracks:
 
 ## Отношения с другими группами
 
-C группой "Osbourne, Ozzy" Former vocalist, mr. Osbourne's band
-C группой "G/Z/R" Former bass player, mr. "Geezer" Butler co-project
-C группой "Deep Purple" vocalist Glenn Hughes
-C группой "Glenn Hughes" vocalist Glenn Hughes
-C группой "Hughes Turner Project" vocalist Glenn Hughes
-C группой "Dio" Vocalist, Ronnie James Dio
-C группой "Rainbow" Vocalist, Ronnie James Dio
-C группой "Mollo/Martin" 
-C группой "Tony Martin" 
+* C группой "Osbourne, Ozzy" Former vocalist, mr. Osbourne's band
+* C группой "G/Z/R" Former bass player, mr. "Geezer" Butler co-project
+* C группой "Deep Purple" vocalist Glenn Hughes
+* C группой "Glenn Hughes" vocalist Glenn Hughes
+* C группой "Hughes Turner Project" vocalist Glenn Hughes
+* C группой "Dio" Vocalist, Ronnie James Dio
+* C группой "Rainbow" Vocalist, Ronnie James Dio
+* C группой "Mollo/Martin" 
+* C группой "Tony Martin" 
 
 ## Обсуждения
 

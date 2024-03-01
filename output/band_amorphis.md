@@ -480,9 +480,9 @@ Additional percussion engineered at Johtoaani in Helsinki, Sweden.
 
 ## Отношения с другими группами
 
-C группой "Chaosbreed" 3025
-C группой "Chaosbreed" Esa Holopainen
-C группой "Ajattara" Pasi Koskinen (vocal)
+* C группой "Chaosbreed" 3025
+* C группой "Chaosbreed" Esa Holopainen
+* C группой "Ajattara" Pasi Koskinen (vocal)
 
 ## Обсуждения
 

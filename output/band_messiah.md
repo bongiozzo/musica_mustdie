@@ -152,7 +152,7 @@ Produced & Mixed By A-Team.
 
 ## Отношения с другими группами
 
-C группой "Therion" Therion's leader sing on last Messiah albums
+* C группой "Therion" Therion's leader sing on last Messiah albums
 
 ## Обсуждения
 

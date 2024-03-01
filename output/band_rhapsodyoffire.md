@@ -351,11 +351,11 @@ V. The Splendour of Angels' Glory (A Final Reveletion)
 
 ## Отношения с другими группами
 
-C группой "Luca Turilli's Rhapsody" Luca Turilli
-C группой "Dionysus" Luca Turilli
-C группой "Labyrinth" Fabio Lione
-C группой "Athena" Fabio Lione
-C группой "Vision Divine" Fabio Lione
+* C группой "Luca Turilli's Rhapsody" Luca Turilli
+* C группой "Dionysus" Luca Turilli
+* C группой "Labyrinth" Fabio Lione
+* C группой "Athena" Fabio Lione
+* C группой "Vision Divine" Fabio Lione
 
 ## Обсуждения
 

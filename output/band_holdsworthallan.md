@@ -40,8 +40,8 @@
 
 ## Отношения с другими группами
 
-C группой "Masi, Alex" Alex Masi
-C группой "MCM" Alex Masi
+* C группой "Masi, Alex" Alex Masi
+* C группой "MCM" Alex Masi
 
 ## Обсуждения
 

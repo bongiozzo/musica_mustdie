@@ -68,11 +68,11 @@ Roland Jahoda - Drums
 
 ## Отношения с другими группами
 
-C группой "Sieges Even" Oliver Holzwarth
-C группой "Blind Guardian" Oliver Holzwarth
-C группой "Power Quest" Oliver Holzwarth
-C группой "Tarja Turunen" Oliver Holzwarth
-C группой "Demons & Wizards" Oliver Holzwarth
+* C группой "Sieges Even" Oliver Holzwarth
+* C группой "Blind Guardian" Oliver Holzwarth
+* C группой "Power Quest" Oliver Holzwarth
+* C группой "Tarja Turunen" Oliver Holzwarth
+* C группой "Demons & Wizards" Oliver Holzwarth
 
 ## Обсуждения
 

@@ -125,8 +125,8 @@ Recorded and produced by Anssi Kippo at Astia Studios.
 
 ## Отношения с другими группами
 
-C группой "Cain's Offering" Jukka Koskinen (bass)
-C группой "Wintersun" Jukka Koskinen (bass)
+* C группой "Cain's Offering" Jukka Koskinen (bass)
+* C группой "Wintersun" Jukka Koskinen (bass)
 
 ## Обсуждения
 

@@ -51,7 +51,7 @@ Insomnia was recorded and mixed at Berno Studios in Malmц between the 7th and 1
 
 ## Отношения с другими группами
 
-C группой "End" Thomas Ahlgren, Oskar Westesson
+* C группой "End" Thomas Ahlgren, Oskar Westesson
 
 ## Обсуждения
 

@@ -172,8 +172,8 @@ Recorded: live at Wacken open Air, Germany, Aug 8 1997
 
 ## Отношения с другими группами
 
-C группой "Trident" Johan Norman
-C группой "Soulreaper" Johan Norman
+* C группой "Trident" Johan Norman
+* C группой "Soulreaper" Johan Norman
 
 ## Обсуждения
 

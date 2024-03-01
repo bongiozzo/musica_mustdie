@@ -87,7 +87,7 @@ Mбrton Veress - Drums
 
 ## Отношения с другими группами
 
-C группой "The End (Sweden)" Daniel Erlandsson, Tobias Gustafsson
+* C группой "The End (Sweden)" Daniel Erlandsson, Tobias Gustafsson
 
 ## Обсуждения
 

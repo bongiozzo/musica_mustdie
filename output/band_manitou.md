@@ -46,7 +46,7 @@ Matti Suhonen - Drums
 
 ## Отношения с другими группами
 
-C группой "Omnium Gatherum" 
+* C группой "Omnium Gatherum" 
 
 ## Обсуждения
 

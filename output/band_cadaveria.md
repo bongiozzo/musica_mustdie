@@ -52,7 +52,7 @@ Hypnotic Psychosis
 
 ## Отношения с другими группами
 
-C группой "Opera IX" Cadaveria
+* C группой "Opera IX" Cadaveria
 
 ## Обсуждения
 

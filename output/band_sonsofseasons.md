@@ -76,9 +76,9 @@ Photography by Stefan Heilemann, Simone Simons, John Simons and Rudy DeDoncker.
 
 ## Отношения с другими группами
 
-C группой "Epica" Simone Simons (vocal)
-C группой "Mayan" Simone Simons (vocal)
-C группой "Kamelot" Simone Simons (vocal)
+* C группой "Epica" Simone Simons (vocal)
+* C группой "Mayan" Simone Simons (vocal)
+* C группой "Kamelot" Simone Simons (vocal)
 
 ## Обсуждения
 

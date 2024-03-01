@@ -50,7 +50,7 @@ DANY LOEBLE - DRUMS
 
 ## Отношения с другими группами
 
-C группой "Helloween" Dani Loble
+* C группой "Helloween" Dani Loble
 
 ## Обсуждения
 

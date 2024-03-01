@@ -384,13 +384,13 @@ First 2000 copies are in transparent red jewel cases.
 
 ## Отношения с другими группами
 
-C группой "Children of Bodom" Alexi Laiho
-C группой "Sinergy" Alexi Laiho
-C группой "Kylahullut" Alexi Laiho
-C группой "The Black League" Sir Luttinen
-C группой "Finntroll" Somnium
-C группой "Diabolos Rising" Mika Luttinen
-C группой "Raism" Mika Luttinen
+* C группой "Children of Bodom" Alexi Laiho
+* C группой "Sinergy" Alexi Laiho
+* C группой "Kylahullut" Alexi Laiho
+* C группой "The Black League" Sir Luttinen
+* C группой "Finntroll" Somnium
+* C группой "Diabolos Rising" Mika Luttinen
+* C группой "Raism" Mika Luttinen
 
 ## Обсуждения
 

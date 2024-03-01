@@ -16,21 +16,21 @@
 
 ## Отношения с другими группами
 
-C группой "Fates Warning" John Arch (Vocal)
-C группой "John Arch" John Arch (Vocal)
-C группой "Fates Warning" Jim Matheos (guitar)
-C группой "John Arch" Jim Matheos (guitar)
-C группой "OSI" Jim Matheos (guitar)
-C группой "Fates Warning" Joey Vera (bass)
-C группой "Armored Saint" Joey Vera (bass)
-C группой "John Arch" Joey Vera (bass)
-C группой "Anthrax" Joey Vera (bass)
-C группой "Seven Witches" Joey Vera (bass)
-C группой "Fates Warning" Bobby Jarzombek  (drums)
-C группой "Halford" Bobby Jarzombek  (drums)
-C группой "Riot" Bobby Jarzombek  (drums)
-C группой "Sebastian Bach" Bobby Jarzombek  (drums)
-C группой "Fates Warning" Frank Aresti (guitar)
+* C группой "Fates Warning" John Arch (Vocal)
+* C группой "John Arch" John Arch (Vocal)
+* C группой "Fates Warning" Jim Matheos (guitar)
+* C группой "John Arch" Jim Matheos (guitar)
+* C группой "OSI" Jim Matheos (guitar)
+* C группой "Fates Warning" Joey Vera (bass)
+* C группой "Armored Saint" Joey Vera (bass)
+* C группой "John Arch" Joey Vera (bass)
+* C группой "Anthrax" Joey Vera (bass)
+* C группой "Seven Witches" Joey Vera (bass)
+* C группой "Fates Warning" Bobby Jarzombek  (drums)
+* C группой "Halford" Bobby Jarzombek  (drums)
+* C группой "Riot" Bobby Jarzombek  (drums)
+* C группой "Sebastian Bach" Bobby Jarzombek  (drums)
+* C группой "Fates Warning" Frank Aresti (guitar)
 
 ## Обсуждения
 

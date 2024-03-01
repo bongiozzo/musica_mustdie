@@ -20,7 +20,7 @@
 
 ## Отношения с другими группами
 
-C группой "Dream Theater" (Dream Theater)
+* C группой "Dream Theater" (Dream Theater)
 
 ## Обсуждения
 

@@ -179,20 +179,20 @@ Samoth  -  Guitar
 
 ## Отношения с другими группами
 
-C группой "Peccatum" Ihsahn
-C группой "Sirius" Samoth (guest bass)
-C группой "Zyklon" Samoth (guest bass)
-C группой "Satyricon" Tchort
-C группой "Carpathian Forest" Tchort
-C группой "Green Carnation" Tchort
-C группой "Blood Red Throne" bassist-turned-guitarist Tchort
-C группой "Ceremony" Trym
-C группой "Enslaved" Trym
-C группой "Old Man's Child" Trym
-C группой "Zyklon" Trym
-C группой "Shadow Season" Trym
-C группой "Hagalaz Runedance" Trym
-C группой "Ihsahn" 
+* C группой "Peccatum" Ihsahn
+* C группой "Sirius" Samoth (guest bass)
+* C группой "Zyklon" Samoth (guest bass)
+* C группой "Satyricon" Tchort
+* C группой "Carpathian Forest" Tchort
+* C группой "Green Carnation" Tchort
+* C группой "Blood Red Throne" bassist-turned-guitarist Tchort
+* C группой "Ceremony" Trym
+* C группой "Enslaved" Trym
+* C группой "Old Man's Child" Trym
+* C группой "Zyklon" Trym
+* C группой "Shadow Season" Trym
+* C группой "Hagalaz Runedance" Trym
+* C группой "Ihsahn" 
 
 ## Обсуждения
 

@@ -11,7 +11,7 @@
 
 ## Отношения с другими группами
 
-C группой "White Skull" Tony 'Mad' Fonto (guitar)
+* C группой "White Skull" Tony 'Mad' Fonto (guitar)
 
 ## Обсуждения
 

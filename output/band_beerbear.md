@@ -11,7 +11,7 @@
 
 ## Отношения с другими группами
 
-C группой "Топь" Musicians of BEER BEAR
+* C группой "Топь" Musicians of BEER BEAR
 
 ## Обсуждения
 

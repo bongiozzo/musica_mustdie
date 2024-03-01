@@ -110,7 +110,7 @@ Released: June 23rd, 2003
 
 ## Отношения с другими группами
 
-C группой "Ofring" Simon Thorsback-Hansen (vocals)
+* C группой "Ofring" Simon Thorsback-Hansen (vocals)
 
 ## Обсуждения
 

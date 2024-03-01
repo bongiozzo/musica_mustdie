@@ -475,10 +475,10 @@ Dante - Drums
 
 ## Отношения с другими группами
 
-C группой "PrimEvil" Jeff "Mantas" Dunn (guitar)
-C группой "Warfare" Jeff "Mantas" Dunn (guitar)
-C группой "PrimEvil" Antony "Antton" Lant (drums)
-C группой "PrimEvil" Tony "Demolition Man" Dolan (bass, vocal)
+* C группой "PrimEvil" Jeff "Mantas" Dunn (guitar)
+* C группой "Warfare" Jeff "Mantas" Dunn (guitar)
+* C группой "PrimEvil" Antony "Antton" Lant (drums)
+* C группой "PrimEvil" Tony "Demolition Man" Dolan (bass, vocal)
 
 ## Обсуждения
 

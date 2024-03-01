@@ -439,8 +439,8 @@ Recorded in Grieghallen Studio in Bergen in September 2011.
 
 ## Отношения с другими группами
 
-C группой "Old Funeral" Varg Vikernes (guitar)
-C группой "Mayhem" Varg Vikernes (bass)
+* C группой "Old Funeral" Varg Vikernes (guitar)
+* C группой "Mayhem" Varg Vikernes (bass)
 
 ## Обсуждения
 

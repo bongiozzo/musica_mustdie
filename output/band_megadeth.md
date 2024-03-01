@@ -491,18 +491,18 @@ Recorded in Nashville, Tennessee in early 2015.
 
 ## Отношения с другими группами
 
-C группой "Metallica" Dave Mustain
-C группой "MD '45 (Dave Mustaine)" Dave Mustain
-C группой "Soulfly" David Ellefson
-C группой "F5" David Ellefson
-C группой "King Diamond" Glen Drover
-C группой "Eidolon" Glen Drover
-C группой "Chris Poland" Chris Poland
-C группой "OHM" Chris Poland
-C группой "Iced Earth" James MacDonough
-C группой "Eidolon" Shawn Drover
-C группой "White Lion" James Lomenzo (bass)
-C группой "Black Label Society" James Lomenzo (bass)
+* C группой "Metallica" Dave Mustain
+* C группой "MD '45 (Dave Mustaine)" Dave Mustain
+* C группой "Soulfly" David Ellefson
+* C группой "F5" David Ellefson
+* C группой "King Diamond" Glen Drover
+* C группой "Eidolon" Glen Drover
+* C группой "Chris Poland" Chris Poland
+* C группой "OHM" Chris Poland
+* C группой "Iced Earth" James MacDonough
+* C группой "Eidolon" Shawn Drover
+* C группой "White Lion" James Lomenzo (bass)
+* C группой "Black Label Society" James Lomenzo (bass)
 
 ## Обсуждения
 

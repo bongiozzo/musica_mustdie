@@ -162,7 +162,7 @@ The Monks from The Order of Saint Hubbins - Gregorian chants
 
 ## Отношения с другими группами
 
-C группой "Satan's Host" Harry Conklin (vocal)
+* C группой "Satan's Host" Harry Conklin (vocal)
 
 ## Обсуждения
 

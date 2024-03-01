@@ -269,7 +269,7 @@ Oozin' Aahs Jay, Brett and Greg
 
 ## Отношения с другими группами
 
-C группой "No FX" Bad Religion's musician produces No FX
+* C группой "No FX" Bad Religion's musician produces No FX
 
 ## Обсуждения
 

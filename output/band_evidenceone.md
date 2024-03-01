@@ -46,11 +46,11 @@ Roger Tanner (drums / SHAKRA)
 
 ## Отношения с другими группами
 
-C группой "Sanction-X" Robby Bobel (guitars)
-C группой "Frontline" Robby Bobel (guitars)
-C группой "Talon" Robby Bobel (guitars)
-C группой "Powerworld" Barish Kepic (guitars)
-C группой "Jaded Heart" Barish Kepic (guitars)
+* C группой "Sanction-X" Robby Bobel (guitars)
+* C группой "Frontline" Robby Bobel (guitars)
+* C группой "Talon" Robby Bobel (guitars)
+* C группой "Powerworld" Barish Kepic (guitars)
+* C группой "Jaded Heart" Barish Kepic (guitars)
 
 ## Обсуждения
 

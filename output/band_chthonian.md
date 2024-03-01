@@ -29,7 +29,7 @@
 
 ## Отношения с другими группами
 
-C группой "Finntroll" Mathias Lillmеns (vocal)
+* C группой "Finntroll" Mathias Lillmеns (vocal)
 
 ## Обсуждения
 

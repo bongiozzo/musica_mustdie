@@ -33,7 +33,7 @@ Recorded At Studio S,Norway.
 
 ## Отношения с другими группами
 
-C группой "Mortiis" Mortiis = Vond
+* C группой "Mortiis" Mortiis = Vond
 
 ## Обсуждения
 

@@ -11,7 +11,7 @@
 
 ## Отношения с другими группами
 
-C группой "KMFDM" Sasha Konietzko
+* C группой "KMFDM" Sasha Konietzko
 
 ## Обсуждения
 

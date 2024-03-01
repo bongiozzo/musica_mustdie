@@ -66,9 +66,9 @@ Night On Earth
 
 ## Отношения с другими группами
 
-C группой "Sentenced" Taneli Jarva
-C группой "Chaosbreed" Taneli Jarva
-C группой "Impaled Nazarene" Sir Luttinen
+* C группой "Sentenced" Taneli Jarva
+* C группой "Chaosbreed" Taneli Jarva
+* C группой "Impaled Nazarene" Sir Luttinen
 
 ## Обсуждения
 

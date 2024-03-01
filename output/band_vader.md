@@ -402,9 +402,9 @@ Recorded between December 2013 and February 2014 at Hertz Studio in Bialystok, P
 
 ## Отношения с другими группами
 
-C группой "Unsun" Maurycy "Mauser" Stefanowicz
-C группой "Christ Agony" Maurycy "Mauser" Stefanowicz
-C группой "Dies Irae (Polish)" Maurycy "Mauser" Stefanowicz
+* C группой "Unsun" Maurycy "Mauser" Stefanowicz
+* C группой "Christ Agony" Maurycy "Mauser" Stefanowicz
+* C группой "Dies Irae (Polish)" Maurycy "Mauser" Stefanowicz
 
 ## Обсуждения
 

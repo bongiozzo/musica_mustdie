@@ -55,7 +55,7 @@ Stefan Arnold (GRAVE DIGGER)
 
 ## Отношения с другими группами
 
-C группой "Helloween" 
+* C группой "Helloween" 
 
 ## Обсуждения
 

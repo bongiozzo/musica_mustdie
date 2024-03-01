@@ -78,11 +78,11 @@ Jami Huovinen - Drums
 
 ## Отношения с другими группами
 
-C группой "Куприй, Виталий" Keyboardist
-C группой "Artension" Keyboardist
-C группой "Malmsteen, Yngwie" Mark Boals
-C группой "Boals, Mark" Mark Boals
-C группой "Boals, Mark" Boals, Mark
+* C группой "Куприй, Виталий" Keyboardist
+* C группой "Artension" Keyboardist
+* C группой "Malmsteen, Yngwie" Mark Boals
+* C группой "Boals, Mark" Mark Boals
+* C группой "Boals, Mark" Boals, Mark
 
 ## Обсуждения
 

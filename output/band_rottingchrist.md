@@ -302,7 +302,7 @@ Mixed and mastered at Fascination Street Studios.
 
 ## Отношения с другими группами
 
-C группой "Nightfall" George Bokos (guitar)
+* C группой "Nightfall" George Bokos (guitar)
 
 ## Обсуждения
 

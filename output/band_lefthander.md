@@ -22,11 +22,11 @@ Alex Lefthander - всё
 
 ## Отношения с другими группами
 
-C группой "Sea Of Desperation" Lefthander
-C группой "Tenochtitlan" Lefthander
-C группой "Groves In Mist" Lefthander
-C группой "Raxa" Lefthander
-C группой "Harmahis" Lefthander
+* C группой "Sea Of Desperation" Lefthander
+* C группой "Tenochtitlan" Lefthander
+* C группой "Groves In Mist" Lefthander
+* C группой "Raxa" Lefthander
+* C группой "Harmahis" Lefthander
 
 ## Обсуждения
 

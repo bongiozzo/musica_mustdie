@@ -78,7 +78,7 @@ Kristonic - Drums
 
 ## Отношения с другими группами
 
-C группой "Maple Cross" Avather (guitar)
+* C группой "Maple Cross" Avather (guitar)
 
 ## Обсуждения
 

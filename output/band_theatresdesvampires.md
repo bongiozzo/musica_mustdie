@@ -214,7 +214,7 @@ was changed to "Le Grand Guignol".
 
 ## Отношения с другими группами
 
-C группой "Cradle of Filth" Gian Pyras
+* C группой "Cradle of Filth" Gian Pyras
 
 ## Обсуждения
 

@@ -80,13 +80,13 @@ Kristian Andren - Vocals
 
 ## Отношения с другими группами
 
-C группой "King Diamond" Snowy Shaw (drums)
-C группой "Mercyful Fate" Snowy Shaw (drums)
-C группой "Dream Evil" Snowy Shaw (drums)
-C группой "Notre Dame" Snowy Shaw (drums)
-C группой "Denner / Shermann" Snowy Shaw (drums)
-C группой "Therion" Snowy Shaw (drums)
-C группой "Candlemass" Messiah Marcolin
+* C группой "King Diamond" Snowy Shaw (drums)
+* C группой "Mercyful Fate" Snowy Shaw (drums)
+* C группой "Dream Evil" Snowy Shaw (drums)
+* C группой "Notre Dame" Snowy Shaw (drums)
+* C группой "Denner / Shermann" Snowy Shaw (drums)
+* C группой "Therion" Snowy Shaw (drums)
+* C группой "Candlemass" Messiah Marcolin
 
 ## Обсуждения
 

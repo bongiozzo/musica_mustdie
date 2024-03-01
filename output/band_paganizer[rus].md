@@ -20,11 +20,11 @@ band from Nizhniy Tagil
 
 ## Отношения с другими группами
 
-C группой "Demiurg (SWE)" Rogga Johansson
-C группой "11th Hour" Rogga Johansson
-C группой "Edge Of Sanity" Rogga Johansson
-C группой "Deranged" Rogga Johansson
-C группой "Ribspreader" Rogga Johansson
+* C группой "Demiurg (SWE)" Rogga Johansson
+* C группой "11th Hour" Rogga Johansson
+* C группой "Edge Of Sanity" Rogga Johansson
+* C группой "Deranged" Rogga Johansson
+* C группой "Ribspreader" Rogga Johansson
 
 ## Обсуждения
 

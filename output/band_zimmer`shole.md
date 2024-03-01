@@ -36,7 +36,7 @@ Drums - Steve Wheeler
 
 ## Отношения с другими группами
 
-C группой "Strapping Young Lad" Jed Simon, Byron Stroud
+* C группой "Strapping Young Lad" Jed Simon, Byron Stroud
 
 ## Обсуждения
 

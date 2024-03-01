@@ -20,8 +20,8 @@
 
 ## Отношения с другими группами
 
-C группой "Grip Inc." Waldemar Sorychta (guitar)
-C группой "ReVamp" Waldemar Sorychta (guitar)
+* C группой "Grip Inc." Waldemar Sorychta (guitar)
+* C группой "ReVamp" Waldemar Sorychta (guitar)
 
 ## Обсуждения
 

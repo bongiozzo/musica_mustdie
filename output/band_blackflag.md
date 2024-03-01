@@ -104,7 +104,7 @@ Raymond Pettibon  -  Illustrations
 
 ## Отношения с другими группами
 
-C группой "Rollins Band" Henry Rollins
+* C группой "Rollins Band" Henry Rollins
 
 ## Обсуждения
 

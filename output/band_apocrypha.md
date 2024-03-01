@@ -50,7 +50,7 @@ Born To This World
 
 ## Отношения с другими группами
 
-C группой "Fredianelli, Tony" Guitar player
+* C группой "Fredianelli, Tony" Guitar player
 
 ## Обсуждения
 

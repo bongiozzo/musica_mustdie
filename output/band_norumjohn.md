@@ -95,9 +95,9 @@
 
 ## Отношения с другими группами
 
-C группой "Dokken" Dokken
-C группой "Europe" Europe
-C группой "Don Dokken" Norum, John
+* C группой "Dokken" Dokken
+* C группой "Europe" Europe
+* C группой "Don Dokken" Norum, John
 
 ## Обсуждения
 

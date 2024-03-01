@@ -220,7 +220,7 @@ Bonus track:
 
 ## Отношения с другими группами
 
-C группой "Jackhammer" Tony 'Mad' Fonto (guitar)
+* C группой "Jackhammer" Tony 'Mad' Fonto (guitar)
 
 ## Обсуждения
 

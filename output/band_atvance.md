@@ -244,12 +244,12 @@ Japanese Edition has the following bonuses:
 
 ## Отношения с другими группами
 
-C группой "Helloween" Mark Cross (Drums)
-C группой "Outloud" Mark Cross (Drums)
-C группой "Metalium" Mark Cross (Drums)
-C группой "Firewind" Mark Cross (Drums)
-C группой "Kingdom Come" Mark Cross (Drums)
-C группой "Nightfall" Mark Cross (Drums)
+* C группой "Helloween" Mark Cross (Drums)
+* C группой "Outloud" Mark Cross (Drums)
+* C группой "Metalium" Mark Cross (Drums)
+* C группой "Firewind" Mark Cross (Drums)
+* C группой "Kingdom Come" Mark Cross (Drums)
+* C группой "Nightfall" Mark Cross (Drums)
 
 ## Обсуждения
 

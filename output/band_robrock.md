@@ -54,8 +54,8 @@ Ode to Alexander
 
 ## Отношения с другими группами
 
-C группой "Impellitteri" Rob Rock
-C группой "Firewind" Rob Rock
+* C группой "Impellitteri" Rob Rock
+* C группой "Firewind" Rob Rock
 
 ## Обсуждения
 

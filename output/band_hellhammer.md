@@ -42,7 +42,7 @@ Slayed Necros - Deadly Bassdose, Backin' Howling
 
 ## Отношения с другими группами
 
-C группой "Triptykon" 
+* C группой "Triptykon" 
 
 ## Обсуждения
 

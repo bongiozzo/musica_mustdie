@@ -82,7 +82,7 @@
 
 ## Отношения с другими группами
 
-C группой "A Perfect Circle" Maynard James Keenan (vocal)
+* C группой "A Perfect Circle" Maynard James Keenan (vocal)
 
 ## Обсуждения
 

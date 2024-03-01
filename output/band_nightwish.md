@@ -529,15 +529,15 @@ DVD (running time - 49:52)
 
 ## Отношения с другими группами
 
-C группой "Infinity" Tarja Turunen
-C группой "For My Pain" Tuomas Holopainen
-C группой "Sinergy" Marco Hietala
-C группой "Tarot" Marco Hietala
-C группой "Barilari" Sami
-C группой "Altaria" Emppu
-C группой "Barilari" Emppu
-C группой "Barilari" Jukka
-C группой "Almah" Emppu Vuorinen (guitar)
+* C группой "Infinity" Tarja Turunen
+* C группой "For My Pain" Tuomas Holopainen
+* C группой "Sinergy" Marco Hietala
+* C группой "Tarot" Marco Hietala
+* C группой "Barilari" Sami
+* C группой "Altaria" Emppu
+* C группой "Barilari" Emppu
+* C группой "Barilari" Jukka
+* C группой "Almah" Emppu Vuorinen (guitar)
 
 ## Обсуждения
 

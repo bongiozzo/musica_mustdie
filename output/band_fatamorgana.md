@@ -41,7 +41,7 @@ All music by Mortiis.
 
 ## Отношения с другими группами
 
-C группой "Mortiis" Mortiis (keyboards)
+* C группой "Mortiis" Mortiis (keyboards)
 
 ## Обсуждения
 

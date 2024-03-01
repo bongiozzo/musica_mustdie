@@ -75,9 +75,9 @@ Drums : Martin "Mattes" Pfeiffer
 
 ## Отношения с другими группами
 
-C группой "Majesty (Ger)" Rolf Munkes (guitar)
-C группой "Razorback" Rolf Munkes (guitar)
-C группой "Razorback" Pierre Fienhold (drums)
+* C группой "Majesty (Ger)" Rolf Munkes (guitar)
+* C группой "Razorback" Rolf Munkes (guitar)
+* C группой "Razorback" Pierre Fienhold (drums)
 
 ## Обсуждения
 

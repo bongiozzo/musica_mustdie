@@ -207,11 +207,11 @@ Engineered by Paul 'PJ' Johnson
 
 ## Отношения с другими группами
 
-C группой "Napalm Death" Barney Greenway (vocal)
-C группой "Cradle of Filth" Nick Barker (drums)
-C группой "Dimmu Borgir" Nick Barker (drums)
-C группой "Lock Up" Nick Barker (drums)
-C группой "Brujeria" Nick Barker (drums)
+* C группой "Napalm Death" Barney Greenway (vocal)
+* C группой "Cradle of Filth" Nick Barker (drums)
+* C группой "Dimmu Borgir" Nick Barker (drums)
+* C группой "Lock Up" Nick Barker (drums)
+* C группой "Brujeria" Nick Barker (drums)
 
 ## Обсуждения
 

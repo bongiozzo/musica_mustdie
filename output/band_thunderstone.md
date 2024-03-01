@@ -145,7 +145,7 @@ Will also be released via Sakara Records/Sony Music in Finland and via Marquee I
 
 ## Отношения с другими группами
 
-C группой "Kotipelto" Mirka Rantanen
+* C группой "Kotipelto" Mirka Rantanen
 
 ## Обсуждения
 

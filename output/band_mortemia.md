@@ -19,8 +19,8 @@
 
 ## Отношения с другими группами
 
-C группой "Sirenia" Morten Veland
-C группой "Tristania" Morten Veland
+* C группой "Sirenia" Morten Veland
+* C группой "Tristania" Morten Veland
 
 ## Обсуждения
 

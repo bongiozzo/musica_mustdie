@@ -33,10 +33,10 @@ Kai Hahto - Drums
 
 ## Отношения с другими группами
 
-C группой "Enochian Crescent" Karri Suoraniemi (guitars, vocals in Wings; guitars & additional vocals in Enochian Crescent)
-C группой "Enochian Crescent" Anssi Hyv&auml;rinen (guitar, keyboards in Wings; guitars in Enochian Crescent [1995-1996])
-C группой "Enochian Crescent" Kai Hahto (drums in Enochian Crescent [1995-1999] & in Wings)
-C группой "Enochian Crescent" Harry Kessunmaa (bass in Enochian Crescent [1995-2000] & in Wings)
+* C группой "Enochian Crescent" Karri Suoraniemi (guitars, vocals in Wings; guitars & additional vocals in Enochian Crescent)
+* C группой "Enochian Crescent" Anssi Hyv&auml;rinen (guitar, keyboards in Wings; guitars in Enochian Crescent [1995-1996])
+* C группой "Enochian Crescent" Kai Hahto (drums in Enochian Crescent [1995-1999] & in Wings)
+* C группой "Enochian Crescent" Harry Kessunmaa (bass in Enochian Crescent [1995-2000] & in Wings)
 
 ## Обсуждения
 

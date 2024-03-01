@@ -193,14 +193,14 @@ Born In The Hands Of Doom
 
 ## Отношения с другими группами
 
-C группой "In the Woods" Kobro
-C группой "Green Carnation" Kobro
-C группой "Chain Collector" Kobro
-C группой "Satyricon" Tchort
-C группой "Emperor" Tchort
-C группой "Green Carnation" Tchort
-C группой "Nattefrost" 
-C группой "Chain Collector" G. Bomann
+* C группой "In the Woods" Kobro
+* C группой "Green Carnation" Kobro
+* C группой "Chain Collector" Kobro
+* C группой "Satyricon" Tchort
+* C группой "Emperor" Tchort
+* C группой "Green Carnation" Tchort
+* C группой "Nattefrost" 
+* C группой "Chain Collector" G. Bomann
 
 ## Обсуждения
 

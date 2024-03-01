@@ -236,11 +236,11 @@ Co-Produced By PANTERA.
 
 ## Отношения с другими группами
 
-C группой "Down" Phil Anselmo
-C группой "Southern Isolation" Phil Anselmo
-C группой "Superjoint Ritual" Phil Anselmo
-C группой "Damageplan" Dimebag Darrell (guitar)
-C группой "Damageplan" Vinnie Paul (drums)
+* C группой "Down" Phil Anselmo
+* C группой "Southern Isolation" Phil Anselmo
+* C группой "Superjoint Ritual" Phil Anselmo
+* C группой "Damageplan" Dimebag Darrell (guitar)
+* C группой "Damageplan" Vinnie Paul (drums)
 
 ## Обсуждения
 

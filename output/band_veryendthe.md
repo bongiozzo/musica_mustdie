@@ -22,7 +22,7 @@
 
 ## Отношения с другими группами
 
-C группой "Night In Gales" Bjorn (vocal)
+* C группой "Night In Gales" Bjorn (vocal)
 
 ## Обсуждения
 

@@ -11,9 +11,9 @@
 
 ## Отношения с другими группами
 
-C группой "Cemetary" Manne Engstrцm
-C группой "Sundown" Manne Engstrцm
-C группой "Beseech" Manne Engstrцm
+* C группой "Cemetary" Manne Engstrцm
+* C группой "Sundown" Manne Engstrцm
+* C группой "Beseech" Manne Engstrцm
 
 ## Обсуждения
 

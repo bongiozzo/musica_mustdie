@@ -33,15 +33,15 @@ Jenny Gustafsson - Backing Vocals
 
 ## Отношения с другими группами
 
-C группой "HammerFall" Joachim Cans (vocal)
-C группой "HammerFall" Stefan Elmgren (guitar)
-C группой "Full Strike" Stefan Elmgren (guitar)
-C группой "Fullforce" Stefan Elmgren (guitar)
-C группой "Sinner" Mat Sinner
-C группой "Primal Fear" Mat Sinner
-C группой "Testament" "Metal" Mike Chlasciak (guitar)
-C группой "Halford" "Metal" Mike Chlasciak (guitar)
-C группой "Fates Warning" Mark Zonder (drums)
+* C группой "HammerFall" Joachim Cans (vocal)
+* C группой "HammerFall" Stefan Elmgren (guitar)
+* C группой "Full Strike" Stefan Elmgren (guitar)
+* C группой "Fullforce" Stefan Elmgren (guitar)
+* C группой "Sinner" Mat Sinner
+* C группой "Primal Fear" Mat Sinner
+* C группой "Testament" "Metal" Mike Chlasciak (guitar)
+* C группой "Halford" "Metal" Mike Chlasciak (guitar)
+* C группой "Fates Warning" Mark Zonder (drums)
 
 ## Обсуждения
 

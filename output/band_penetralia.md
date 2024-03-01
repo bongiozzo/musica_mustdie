@@ -11,10 +11,10 @@ atmospheric black-metal
 
 ## Отношения с другими группами
 
-C группой "Midnattsol" Christian Hector
-C группой "Ahab" Christian Hector
-C группой "Midnattsol" Daniel Droste
-C группой "Ahab" Daniel Droste
+* C группой "Midnattsol" Christian Hector
+* C группой "Ahab" Christian Hector
+* C группой "Midnattsol" Daniel Droste
+* C группой "Ahab" Daniel Droste
 
 ## Обсуждения
 

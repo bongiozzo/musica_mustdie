@@ -68,9 +68,9 @@ Outland
 
 ## Отношения с другими группами
 
-C группой "Morbid Angel" Drummer Mike Browning (member of CoS) played in every band
-C группой "Acheron" Drummer Mike Browning (member of CoS) played in every band
-C группой "After Death" Mike Browning
+* C группой "Morbid Angel" Drummer Mike Browning (member of CoS) played in every band
+* C группой "Acheron" Drummer Mike Browning (member of CoS) played in every band
+* C группой "After Death" Mike Browning
 
 ## Обсуждения
 

@@ -71,11 +71,11 @@ Henrik Klingenberg - Keyboards on "The Dying Flame"
 
 ## Отношения с другими группами
 
-C группой "Sonata Arctica" Jani Liimatainen
-C группой "Cain's Offering" Jani Liimatainen
-C группой "Nightwish" Emppu
-C группой "Barilari" Emppu
-C группой "Celesty" J.-P. Alanen (guitar)
+* C группой "Sonata Arctica" Jani Liimatainen
+* C группой "Cain's Offering" Jani Liimatainen
+* C группой "Nightwish" Emppu
+* C группой "Barilari" Emppu
+* C группой "Celesty" J.-P. Alanen (guitar)
 
 ## Обсуждения
 

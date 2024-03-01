@@ -35,7 +35,7 @@ indie rock
 
 ## Отношения с другими группами
 
-C группой "Def Leppard" Phil Collen (guitar)
+* C группой "Def Leppard" Phil Collen (guitar)
 
 ## Обсуждения
 

@@ -105,9 +105,9 @@ Jamie Little - drums
 
 ## Отношения с другими группами
 
-C группой "Hard Rain" Bob Catley
-C группой "Ten" Paul Hodson
-C группой "Hodson" Paul Hodson
+* C группой "Hard Rain" Bob Catley
+* C группой "Ten" Paul Hodson
+* C группой "Hodson" Paul Hodson
 
 ## Обсуждения
 

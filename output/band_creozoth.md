@@ -7,8 +7,8 @@ Candlemass side project
 
 ## Отношения с другими группами
 
-C группой "Candlemass" Lars Johansson (guitar)
-C группой "Candlemass" Jan Lindh (drums)
+* C группой "Candlemass" Lars Johansson (guitar)
+* C группой "Candlemass" Jan Lindh (drums)
 
 ## Обсуждения
 

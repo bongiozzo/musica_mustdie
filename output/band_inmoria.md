@@ -36,13 +36,13 @@
 
 ## Отношения с другими группами
 
-C группой "Morgana Lefay" Charles Rytkonen (vocal)
-C группой "Tad Morose" Christer Andersson (guitar)
-C группой "Tad Morose" Danne Eriksson (keyboards)
-C группой "Tad Morose" Tommi Karppannen (bass)
-C группой "Morgana Lefay" Tommi Karppannen (bass)
-C группой "Tad Morose" Peter Moren (drums)
-C группой "Steel Attack" Peter Moren (drums)
+* C группой "Morgana Lefay" Charles Rytkonen (vocal)
+* C группой "Tad Morose" Christer Andersson (guitar)
+* C группой "Tad Morose" Danne Eriksson (keyboards)
+* C группой "Tad Morose" Tommi Karppannen (bass)
+* C группой "Morgana Lefay" Tommi Karppannen (bass)
+* C группой "Tad Morose" Peter Moren (drums)
+* C группой "Steel Attack" Peter Moren (drums)
 
 ## Обсуждения
 

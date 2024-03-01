@@ -68,9 +68,9 @@ Bass Guitar: Thomas Cesario
 
 ## Отношения с другими группами
 
-C группой "Dark Moor" Elisa
-C группой "Dreamaker" Elisa
-C группой "Hamka" 
+* C группой "Dark Moor" Elisa
+* C группой "Dreamaker" Elisa
+* C группой "Hamka" 
 
 ## Обсуждения
 

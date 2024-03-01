@@ -258,7 +258,7 @@ Chad Smith - Drums
 
 ## Отношения с другими группами
 
-C группой "Chickenfoot" Chad Smith
+* C группой "Chickenfoot" Chad Smith
 
 ## Обсуждения
 

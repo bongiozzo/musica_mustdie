@@ -38,14 +38,14 @@
 
 ## Отношения с другими группами
 
-C группой "HammerFall" Stefan Elmgren (guitar)
-C группой "Full Strike" Stefan Elmgren (guitar)
-C группой "Cans" Stefan Elmgren (guitar)
-C группой "Cloudscape" Mike Andersson (vocal)
-C группой "HammerFall" Anders Johansson (drums)
-C группой "Malmsteen, Yngwie" Anders Johansson (drums)
-C группой "Narnia" Carl-Johan Grimmark (guitar)
-C группой "Heed" Tommy Larsson
+* C группой "HammerFall" Stefan Elmgren (guitar)
+* C группой "Full Strike" Stefan Elmgren (guitar)
+* C группой "Cans" Stefan Elmgren (guitar)
+* C группой "Cloudscape" Mike Andersson (vocal)
+* C группой "HammerFall" Anders Johansson (drums)
+* C группой "Malmsteen, Yngwie" Anders Johansson (drums)
+* C группой "Narnia" Carl-Johan Grimmark (guitar)
+* C группой "Heed" Tommy Larsson
 
 ## Обсуждения
 

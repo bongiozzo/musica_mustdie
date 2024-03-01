@@ -30,9 +30,9 @@
 
 ## Отношения с другими группами
 
-C группой "Pantera" Phil Anselmo
-C группой "Down" Phil Anselmo
-C группой "Southern Isolation" Phil Anselmo
+* C группой "Pantera" Phil Anselmo
+* C группой "Down" Phil Anselmo
+* C группой "Southern Isolation" Phil Anselmo
 
 ## Обсуждения
 

@@ -182,7 +182,7 @@ Chris Blackwell  -  Guitar, Drums
 
 ## Отношения с другими группами
 
-C группой "Led Zeppelin" Vocal
+* C группой "Led Zeppelin" Vocal
 
 ## Обсуждения
 

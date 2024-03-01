@@ -55,8 +55,8 @@ Layout & logos by Yantit
 
 ## Отношения с другими группами
 
-C группой "Eisregen" 
-C группой "Ewigheim" 
+* C группой "Eisregen" 
+* C группой "Ewigheim" 
 
 ## Обсуждения
 

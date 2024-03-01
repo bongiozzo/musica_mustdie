@@ -37,10 +37,10 @@ New York.
 
 ## Отношения с другими группами
 
-C группой "Masi, Alex" Alex Masi
-C группой "Holdsworth, Allan" Alex Masi
-C группой "Malmsteen, Yngwie" drummer John Macaluso and bassist Randy Coven
-C группой "Ark" drummer John Macaluso and bassist Randy Coven
+* C группой "Masi, Alex" Alex Masi
+* C группой "Holdsworth, Allan" Alex Masi
+* C группой "Malmsteen, Yngwie" drummer John Macaluso and bassist Randy Coven
+* C группой "Ark" drummer John Macaluso and bassist Randy Coven
 
 ## Обсуждения
 

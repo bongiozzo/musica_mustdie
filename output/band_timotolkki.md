@@ -72,10 +72,10 @@ Photos by Jouko Lehtola
 
 ## Отношения с другими группами
 
-C группой "Stratovarius" Timo Tolkki
-C группой "Revolution Renaissance" NEW STRATOVARIUS (Timo Tolkki)
-C группой "Stratovarius" NEW STRATOVARIUS (Timo Tolkki)
-C группой "Symfonia" NEW STRATOVARIUS (Timo Tolkki)
+* C группой "Stratovarius" Timo Tolkki
+* C группой "Revolution Renaissance" NEW STRATOVARIUS (Timo Tolkki)
+* C группой "Stratovarius" NEW STRATOVARIUS (Timo Tolkki)
+* C группой "Symfonia" NEW STRATOVARIUS (Timo Tolkki)
 
 ## Обсуждения
 

@@ -377,14 +377,14 @@ Frank Bello - Bass
 
 ## Отношения с другими группами
 
-C группой "Fates Warning" Joey Vera (bass)
-C группой "Armored Saint" Joey Vera (bass)
-C группой "John Arch" Joey Vera (bass)
-C группой "Arch/Matheos" Joey Vera (bass)
-C группой "Seven Witches" Joey Vera (bass)
-C группой "Testament" John Tempesta (drums)
-C группой "White Zombie" John Tempesta (drums)
-C группой "Zombie, Rob" John Tempesta (drums)
+* C группой "Fates Warning" Joey Vera (bass)
+* C группой "Armored Saint" Joey Vera (bass)
+* C группой "John Arch" Joey Vera (bass)
+* C группой "Arch/Matheos" Joey Vera (bass)
+* C группой "Seven Witches" Joey Vera (bass)
+* C группой "Testament" John Tempesta (drums)
+* C группой "White Zombie" John Tempesta (drums)
+* C группой "Zombie, Rob" John Tempesta (drums)
 
 ## Обсуждения
 

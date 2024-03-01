@@ -23,7 +23,7 @@ Tilo Wolf (Lacrimosa)
 
 ## Отношения с другими группами
 
-C группой "Lacrimosa" Tilo Wolf
+* C группой "Lacrimosa" Tilo Wolf
 
 ## Обсуждения
 

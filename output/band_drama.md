@@ -46,10 +46,10 @@ Resurrection
 
 ## Отношения с другими группами
 
-C группой "Ragor" R. Vind
-C группой "Ulvdalir" R. Vind
-C группой "Ulvdalir" D. Nox
-C группой "Ragor" D. Nox
+* C группой "Ragor" R. Vind
+* C группой "Ulvdalir" R. Vind
+* C группой "Ulvdalir" D. Nox
+* C группой "Ragor" D. Nox
 
 ## Обсуждения
 

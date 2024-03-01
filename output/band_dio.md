@@ -207,12 +207,12 @@ CD2:
 
 ## Отношения с другими группами
 
-C группой "Black Sabbath" Vocalist, Ronnie James Dio
-C группой "Rainbow" Vocalist, Ronnie James Dio
-C группой "Def Leppard" Vivian Campbell (guitar)
-C группой "Whitesnake" Vivian Campbell (guitar)
-C группой "Dokken" Jeff Pilson
-C группой "War and Peace" Jeff Pilson
+* C группой "Black Sabbath" Vocalist, Ronnie James Dio
+* C группой "Rainbow" Vocalist, Ronnie James Dio
+* C группой "Def Leppard" Vivian Campbell (guitar)
+* C группой "Whitesnake" Vivian Campbell (guitar)
+* C группой "Dokken" Jeff Pilson
+* C группой "War and Peace" Jeff Pilson
 
 ## Обсуждения
 

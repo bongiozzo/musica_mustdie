@@ -98,17 +98,17 @@ Siggi Bemm - additional bass
 
 ## Отношения с другими группами
 
-C группой "Dimmu Borgir" Nagash
-C группой "Troll" Nagash
-C группой "Carpe Tenebrum" Nagash
-C группой "Mayhem" HellHammer
-C группой "Arcturus" HellHammer
-C группой "Troll" HellHammer
-C группой "Thorns" HellHammer
-C группой "Winds" HellHammer
-C группой "Ulver" Sverd (keys)
-C группой "Arcturus" Sverd (keys)
-C группой "Shining" Hellhammer
+* C группой "Dimmu Borgir" Nagash
+* C группой "Troll" Nagash
+* C группой "Carpe Tenebrum" Nagash
+* C группой "Mayhem" HellHammer
+* C группой "Arcturus" HellHammer
+* C группой "Troll" HellHammer
+* C группой "Thorns" HellHammer
+* C группой "Winds" HellHammer
+* C группой "Ulver" Sverd (keys)
+* C группой "Arcturus" Sverd (keys)
+* C группой "Shining" Hellhammer
 
 ## Обсуждения
 

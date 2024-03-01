@@ -29,9 +29,9 @@ Rami Ali - Drums
 
 ## Отношения с другими группами
 
-C группой "Sanction-X" Robby Bobel (guitars)
-C группой "Evidence One" Robby Bobel (guitars)
-C группой "Talon" Robby Bobel (guitars)
+* C группой "Sanction-X" Robby Bobel (guitars)
+* C группой "Evidence One" Robby Bobel (guitars)
+* C группой "Talon" Robby Bobel (guitars)
 
 ## Обсуждения
 

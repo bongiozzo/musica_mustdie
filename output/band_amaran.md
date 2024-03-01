@@ -49,7 +49,7 @@ Mastered at 'Tailor Maid' (Sweden) by Peter In Debetou.
 
 ## Отношения с другими группами
 
-C группой "Julie Laughs Nomore" 
+* C группой "Julie Laughs Nomore" 
 
 ## Обсуждения
 

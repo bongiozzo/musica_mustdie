@@ -19,10 +19,10 @@
 
 ## Отношения с другими группами
 
-C группой "The Crown" Marcus Sunesson (guitar)
-C группой "In Flames" Niclas Engelin (guitar)
-C группой "Gardenian" Niclas Engelin (guitar)
-C группой "Gardenian" Robert Hakemo (bass)
+* C группой "The Crown" Marcus Sunesson (guitar)
+* C группой "In Flames" Niclas Engelin (guitar)
+* C группой "Gardenian" Niclas Engelin (guitar)
+* C группой "Gardenian" Robert Hakemo (bass)
 
 ## Обсуждения
 

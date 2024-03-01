@@ -218,7 +218,7 @@ Where No Ghost Is Holy
 
 ## Отношения с другими группами
 
-C группой "General Surgery" Matti K&#228;rki
+* C группой "General Surgery" Matti K&#228;rki
 
 ## Обсуждения
 

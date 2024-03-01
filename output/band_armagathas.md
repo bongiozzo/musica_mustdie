@@ -23,8 +23,8 @@
 
 ## Отношения с другими группами
 
-C группой "Born From Pain" Che Snelting (vocal)
-C группой "Cataract" Simon Fuellemann (guitar)
+* C группой "Born From Pain" Che Snelting (vocal)
+* C группой "Cataract" Simon Fuellemann (guitar)
 
 ## Обсуждения
 

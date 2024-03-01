@@ -25,7 +25,7 @@ Melodic hard rock
 
 ## Отношения с другими группами
 
-C группой "House Of Lords" James Christian
+* C группой "House Of Lords" James Christian
 
 ## Обсуждения
 

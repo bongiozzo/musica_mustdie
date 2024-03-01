@@ -197,8 +197,8 @@ Artwork designed by Marko Saarelainen.
 
 ## Отношения с другими группами
 
-C группой "Mayan" Jeroen Paul Thesseling (bass)
-C группой "Obscura" Jeroen Paul Thesseling (bass)
+* C группой "Mayan" Jeroen Paul Thesseling (bass)
+* C группой "Obscura" Jeroen Paul Thesseling (bass)
 
 ## Обсуждения
 

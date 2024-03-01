@@ -121,7 +121,7 @@ Guest Backing Vocals by Philip Anselmo(PANTERA)
 
 ## Отношения с другими группами
 
-C группой "Agoraphobic Nosebleed" Scott Hull
+* C группой "Agoraphobic Nosebleed" Scott Hull
 
 ## Обсуждения
 

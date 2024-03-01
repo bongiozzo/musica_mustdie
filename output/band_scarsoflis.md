@@ -7,7 +7,7 @@ ex-Thetre of Tragedy member
 
 ## Отношения с другими группами
 
-C группой "Theatre of Tragedy" Tommy Lindal
+* C группой "Theatre of Tragedy" Tommy Lindal
 
 ## Обсуждения
 

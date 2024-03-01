@@ -7,8 +7,8 @@
 
 ## Отношения с другими группами
 
-C группой "Queensryche" Frontman
-C группой "Tate, Geoff" Frontman
+* C группой "Queensryche" Frontman
+* C группой "Tate, Geoff" Frontman
 
 ## Обсуждения
 

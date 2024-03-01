@@ -34,7 +34,7 @@ Darren Smith - backgr. vocals
 
 ## Отношения с другими группами
 
-C группой "Harem Scarem" 
+* C группой "Harem Scarem" 
 
 ## Обсуждения
 

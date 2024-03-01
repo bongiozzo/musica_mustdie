@@ -178,7 +178,7 @@ Black Gothic Death Doom
 
 ## Отношения с другими группами
 
-C группой "Cales" Peter "Blackie" Hosek
+* C группой "Cales" Peter "Blackie" Hosek
 
 ## Обсуждения
 

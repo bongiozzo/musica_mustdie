@@ -11,7 +11,7 @@
 
 ## Отношения с другими группами
 
-C группой "Saturnus" Kim Larsen
+* C группой "Saturnus" Kim Larsen
 
 ## Обсуждения
 

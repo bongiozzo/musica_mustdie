@@ -11,7 +11,7 @@ dark-gotic-folk
 
 ## Отношения с другими группами
 
-C группой "Sieben" Matt Howden
+* C группой "Sieben" Matt Howden
 
 ## Обсуждения
 

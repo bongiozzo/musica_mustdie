@@ -91,7 +91,7 @@
 
 ## Отношения с другими группами
 
-C группой "Cadaveria" Cadaveria
+* C группой "Cadaveria" Cadaveria
 
 ## Обсуждения
 

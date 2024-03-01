@@ -196,12 +196,12 @@ Recorded at the Dugout Studios in Uppsala.
 
 ## Отношения с другими группами
 
-C группой "Dominion Caligula" 
-C группой "Wolfen Society" Lord Ahriman
-C группой "Aeon" Nils Fjellstrom (drums)
-C группой "Odhinn" Nils Fjellstrom (drums)
-C группой "Defleshed" Matte Modin (drums)
-C группой "Firespawn" Matte Modin (drums)
+* C группой "Dominion Caligula" 
+* C группой "Wolfen Society" Lord Ahriman
+* C группой "Aeon" Nils Fjellstrom (drums)
+* C группой "Odhinn" Nils Fjellstrom (drums)
+* C группой "Defleshed" Matte Modin (drums)
+* C группой "Firespawn" Matte Modin (drums)
 
 ## Обсуждения
 

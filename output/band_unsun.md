@@ -42,10 +42,10 @@ Japanese bonus track :
 
 ## Отношения с другими группами
 
-C группой "Vader" Maurycy "Mauser" Stefanowicz
-C группой "Christ Agony" Maurycy "Mauser" Stefanowicz
-C группой "Dies Irae (Polish)" Maurycy "Mauser" Stefanowicz
-C группой "Vesania" Filip "Heinrich" Haіucha 
+* C группой "Vader" Maurycy "Mauser" Stefanowicz
+* C группой "Christ Agony" Maurycy "Mauser" Stefanowicz
+* C группой "Dies Irae (Polish)" Maurycy "Mauser" Stefanowicz
+* C группой "Vesania" Filip "Heinrich" Haіucha 
 
 ## Обсуждения
 

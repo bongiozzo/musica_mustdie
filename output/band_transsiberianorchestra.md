@@ -32,7 +32,7 @@ A Final Dream
 
 ## Отношения с другими группами
 
-C группой "Savatage" Jeff Plate (drums)
+* C группой "Savatage" Jeff Plate (drums)
 
 ## Обсуждения
 

@@ -62,8 +62,8 @@ The once lost horizon is found, but the misery is still burning the souls...
 
 ## Отношения с другими группами
 
-C группой "Heed" Daniel Heiman
-C группой "Heed" Fredrik Olsson
+* C группой "Heed" Daniel Heiman
+* C группой "Heed" Fredrik Olsson
 
 ## Обсуждения
 

@@ -93,7 +93,7 @@ Ian Haugland
 
 ## Отношения с другими группами
 
-C группой "Norum, John" Europe
+* C группой "Norum, John" Europe
 
 ## Обсуждения
 

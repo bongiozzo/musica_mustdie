@@ -47,14 +47,14 @@ All guitars on this recording & additional keyboards - Lodmalm.
 
 ## Отношения с другими группами
 
-C группой "Cemetary" Mathias Lodmalm
-C группой "Cemetary 1213" Mathias Lodmalm
-C группой "Tiamat" Johnny Hagel
-C группой "Lithium" Johnny Hagel
-C группой "Sorcerer" Johnny Hagel
-C группой "Cemetary" Manne Engstrцm
-C группой "Beseech" Manne Engstrцm
-C группой "Fatal Embrace" Manne Engstrцm
+* C группой "Cemetary" Mathias Lodmalm
+* C группой "Cemetary 1213" Mathias Lodmalm
+* C группой "Tiamat" Johnny Hagel
+* C группой "Lithium" Johnny Hagel
+* C группой "Sorcerer" Johnny Hagel
+* C группой "Cemetary" Manne Engstrцm
+* C группой "Beseech" Manne Engstrцm
+* C группой "Fatal Embrace" Manne Engstrцm
 
 ## Обсуждения
 

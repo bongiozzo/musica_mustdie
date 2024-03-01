@@ -84,9 +84,9 @@ Grimd (Thomas Arnesen) - Bass
 
 ## Отношения с другими группами
 
-C группой "Sarke" Sarke
-C группой "Old Man's Child" Sarke
-C группой "Tulus" Sarke
+* C группой "Sarke" Sarke
+* C группой "Old Man's Child" Sarke
+* C группой "Tulus" Sarke
 
 ## Обсуждения
 

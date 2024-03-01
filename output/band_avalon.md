@@ -69,12 +69,12 @@ Power metal
 
 ## Отношения с другими группами
 
-C группой "Faro" Chity Somapala (vocal)
-C группой "Firewind" Chity Somapala (vocal)
-C группой "Powerworld" Chity Somapala (vocal)
-C группой "Moonlight Agony" Chity Somapala (vocal)
-C группой "Domain" Chity Somapala (vocal)
-C группой "Power Quest" Chity Somapala (vocal)
+* C группой "Faro" Chity Somapala (vocal)
+* C группой "Firewind" Chity Somapala (vocal)
+* C группой "Powerworld" Chity Somapala (vocal)
+* C группой "Moonlight Agony" Chity Somapala (vocal)
+* C группой "Domain" Chity Somapala (vocal)
+* C группой "Power Quest" Chity Somapala (vocal)
 
 ## Обсуждения
 

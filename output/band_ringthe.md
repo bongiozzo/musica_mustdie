@@ -20,8 +20,8 @@ Escape
 
 ## Отношения с другими группами
 
-C группой "HammerFall" Pontus Norgren
-C группой "Talisman" Pontus Norgren
+* C группой "HammerFall" Pontus Norgren
+* C группой "Talisman" Pontus Norgren
 
 ## Обсуждения
 

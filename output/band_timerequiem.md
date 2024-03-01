@@ -26,9 +26,9 @@ Bach prelude variations (J.S. Bach)
 
 ## Отношения с другими группами
 
-C группой "Majestic" Richard Andersson
-C группой "Space Odyssey" Richard Andersson
-C группой "Andersson, Richard" Richard Andersson
+* C группой "Majestic" Richard Andersson
+* C группой "Space Odyssey" Richard Andersson
+* C группой "Andersson, Richard" Richard Andersson
 
 ## Обсуждения
 

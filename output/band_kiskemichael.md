@@ -67,8 +67,8 @@ Sandro Giampietro - overdub-solo guitars
 
 ## Отношения с другими группами
 
-C группой "Helloween" Michael Kiske
-C группой "Unisonic" Michael Kiske
+* C группой "Helloween" Michael Kiske
+* C группой "Unisonic" Michael Kiske
 
 ## Обсуждения
 

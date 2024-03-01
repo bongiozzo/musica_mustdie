@@ -22,7 +22,7 @@
 
 ## Отношения с другими группами
 
-C группой "Trident" Jonas Blom
+* C группой "Trident" Jonas Blom
 
 ## Обсуждения
 

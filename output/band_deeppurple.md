@@ -468,20 +468,20 @@ Fools (bonus)
 
 ## Отношения с другими группами
 
-C группой "Dixie Dregs" Deep Purple
-C группой "Morse, Steve" Steve Morse (guitar)
-C группой "Rainbow" J-L Turner
-C группой "Joe Lynn Turner" J-L Turner
-C группой "Hughes Turner Project" J-L Turner
-C группой "Brazen Abbot" J-L Turner
-C группой "Sunstorm" J-L Turner
-C группой "Rainbow" Ritchie Blackmore
-C группой "Blackmore's Night" Ritchie Blackmore
-C группой "Black Sabbath" vocalist Glenn Hughes
-C группой "Glenn Hughes" vocalist Glenn Hughes
-C группой "Hughes Turner Project" vocalist Glenn Hughes
-C группой "Glover, Roger" Roger Glover (bass)
-C группой "Whitesnake" David Coverdale (vocal)
+* C группой "Dixie Dregs" Deep Purple
+* C группой "Morse, Steve" Steve Morse (guitar)
+* C группой "Rainbow" J-L Turner
+* C группой "Joe Lynn Turner" J-L Turner
+* C группой "Hughes Turner Project" J-L Turner
+* C группой "Brazen Abbot" J-L Turner
+* C группой "Sunstorm" J-L Turner
+* C группой "Rainbow" Ritchie Blackmore
+* C группой "Blackmore's Night" Ritchie Blackmore
+* C группой "Black Sabbath" vocalist Glenn Hughes
+* C группой "Glenn Hughes" vocalist Glenn Hughes
+* C группой "Hughes Turner Project" vocalist Glenn Hughes
+* C группой "Glover, Roger" Roger Glover (bass)
+* C группой "Whitesnake" David Coverdale (vocal)
 
 ## Обсуждения
 

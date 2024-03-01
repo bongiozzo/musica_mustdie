@@ -48,9 +48,9 @@ Open Your Eyes
 
 ## Отношения с другими группами
 
-C группой "Gotthard" Mandy Meyer (guitar)
-C группой "Unisonic" Mandy Meyer (guitar)
-C группой "Krokus" Mandy Meyer (guitar)
+* C группой "Gotthard" Mandy Meyer (guitar)
+* C группой "Unisonic" Mandy Meyer (guitar)
+* C группой "Krokus" Mandy Meyer (guitar)
 
 ## Обсуждения
 

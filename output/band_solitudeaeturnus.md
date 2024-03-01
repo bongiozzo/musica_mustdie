@@ -127,7 +127,7 @@ Recorded At Regal Studios, Dallas, Texas.
 
 ## Отношения с другими группами
 
-C группой "Candlemass" Rober Lowe (vocal)
+* C группой "Candlemass" Rober Lowe (vocal)
 
 ## Обсуждения
 

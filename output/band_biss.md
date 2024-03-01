@@ -27,7 +27,7 @@ Lars Bilke - Bass
 
 ## Отношения с другими группами
 
-C группой "Krokus" Mark Storace
+* C группой "Krokus" Mark Storace
 
 ## Обсуждения
 

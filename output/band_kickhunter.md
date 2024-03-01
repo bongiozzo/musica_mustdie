@@ -46,7 +46,7 @@ Mallorca)
 
 ## Отношения с другими группами
 
-C группой "Helloween" Markus Grosskopf
+* C группой "Helloween" Markus Grosskopf
 
 ## Обсуждения
 

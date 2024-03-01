@@ -46,11 +46,11 @@ Jorge Soez - ударные (ex-Dark Moor)
 
 ## Отношения с другими группами
 
-C группой "Dark Moor" Elisa
-C группой "Fairyland" Elisa
-C группой "Dark Moor" Albert Maroto (guitar)
-C группой "Dark Moor" Jorge Saez (drums)
-C группой "Hamka" Elisa C.Martin
+* C группой "Dark Moor" Elisa
+* C группой "Fairyland" Elisa
+* C группой "Dark Moor" Albert Maroto (guitar)
+* C группой "Dark Moor" Jorge Saez (drums)
+* C группой "Hamka" Elisa C.Martin
 
 ## Обсуждения
 

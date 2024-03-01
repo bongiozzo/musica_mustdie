@@ -37,9 +37,9 @@ Ragnar Widerberg - Guitars and Bass
 
 ## Отношения с другими группами
 
-C группой "Edge Of Sanity" 
-C группой "Nightingale" 
-C группой "Dan Swano" 
+* C группой "Edge Of Sanity" 
+* C группой "Nightingale" 
+* C группой "Dan Swano" 
 
 ## Обсуждения
 

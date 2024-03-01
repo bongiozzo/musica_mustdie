@@ -94,11 +94,11 @@ Mark Boals - bass&rythm guitars
 
 ## Отношения с другими группами
 
-C группой "Malmsteen, Yngwie" Mark Boals
-C группой "Ring of Fire" Mark Boals
-C группой "Ring of Fire" Boals, Mark
-C группой "Куприй, Виталий" Keyboardist
-C группой "Codex, The" M. Boals (vocal)
+* C группой "Malmsteen, Yngwie" Mark Boals
+* C группой "Ring of Fire" Mark Boals
+* C группой "Ring of Fire" Boals, Mark
+* C группой "Куприй, Виталий" Keyboardist
+* C группой "Codex, The" M. Boals (vocal)
 
 ## Обсуждения
 

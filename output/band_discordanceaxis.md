@@ -7,7 +7,7 @@ math grindcore from New York, now R.I.P.
 
 ## Отношения с другими группами
 
-C группой "Burnt By The Sun" David Witte
+* C группой "Burnt By The Sun" David Witte
 
 ## Обсуждения
 

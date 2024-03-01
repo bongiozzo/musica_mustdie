@@ -15,8 +15,8 @@ greatest Dark  Doom Metal
 
 ## Отношения с другими группами
 
-C группой "Aeon" Daniel Dlimi (guitar), Arttu Malkki (drums)
-C группой "Equinox Ov The Gods" Daniel Dlimi (guitar), Arttu Malkki (drums)
+* C группой "Aeon" Daniel Dlimi (guitar), Arttu Malkki (drums)
+* C группой "Equinox Ov The Gods" Daniel Dlimi (guitar), Arttu Malkki (drums)
 
 ## Обсуждения
 

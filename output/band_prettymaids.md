@@ -306,11 +306,11 @@ DVD:
 
 ## Отношения с другими группами
 
-C группой "Bonfire" Angel Schleifer
-C группой "Sinner" Angel Schleifer
-C группой "Charade" Angel Schleifer
-C группой "Kingdom Come" Allan Tschicaja
-C группой "Royal Hunt" Allan Tschicaja
+* C группой "Bonfire" Angel Schleifer
+* C группой "Sinner" Angel Schleifer
+* C группой "Charade" Angel Schleifer
+* C группой "Kingdom Come" Allan Tschicaja
+* C группой "Royal Hunt" Allan Tschicaja
 
 ## Обсуждения
 

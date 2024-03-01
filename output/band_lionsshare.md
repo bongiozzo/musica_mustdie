@@ -79,7 +79,7 @@ Richard Evensand - ударные
 
 ## Отношения с другими группами
 
-C группой "Christian Rivel's Audiovision" Lars Chriss (guitar)
+* C группой "Christian Rivel's Audiovision" Lars Chriss (guitar)
 
 ## Обсуждения
 

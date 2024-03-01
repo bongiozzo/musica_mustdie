@@ -563,10 +563,10 @@ Lee Douglas - Vocals (additional)
 
 ## Отношения с другими группами
 
-C группой "Cavanagh, Danny" 
-C группой "My Dying Bride" Martin Powell
-C группой "Cradle of Filth" Martin Powell
-C группой "Antimatter" Duncan Patterson
+* C группой "Cavanagh, Danny" 
+* C группой "My Dying Bride" Martin Powell
+* C группой "Cradle of Filth" Martin Powell
+* C группой "Antimatter" Duncan Patterson
 
 ## Обсуждения
 

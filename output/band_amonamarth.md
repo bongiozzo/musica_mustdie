@@ -269,9 +269,9 @@ The Jomsvikings were a semi-legendary order of Viking mercenaries or brigands of
 
 ## Отношения с другими группами
 
-C группой "A Canorous Quintet" Drummer Fredrik Andersson
-C группой "Guidance Of Sin" Drummer Fredrik Andersson
-C группой "Curriculum Mortis" Drummer Fredrik Andersson
+* C группой "A Canorous Quintet" Drummer Fredrik Andersson
+* C группой "Guidance Of Sin" Drummer Fredrik Andersson
+* C группой "Curriculum Mortis" Drummer Fredrik Andersson
 
 ## Обсуждения
 

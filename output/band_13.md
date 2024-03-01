@@ -43,7 +43,7 @@
 
 ## Отношения с другими группами
 
-C группой "Electric Wizard" Liz Buckingham
+* C группой "Electric Wizard" Liz Buckingham
 
 ## Обсуждения
 

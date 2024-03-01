@@ -69,7 +69,7 @@ Time (Bonus)
 
 ## Отношения с другими группами
 
-C группой "Psychotic Waltz" Buddy Lackey
+* C группой "Psychotic Waltz" Buddy Lackey
 
 ## Обсуждения
 

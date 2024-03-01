@@ -28,7 +28,7 @@
 
 ## Отношения с другими группами
 
-C группой "Forbidden" guitarist Craig Locicero
+* C группой "Forbidden" guitarist Craig Locicero
 
 ## Обсуждения
 

@@ -57,7 +57,7 @@ for Sephiroth Graphix: awf@aruba.it
 
 ## Отношения с другими группами
 
-C группой "Drastique" Mahavira
+* C группой "Drastique" Mahavira
 
 ## Обсуждения
 

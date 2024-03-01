@@ -44,10 +44,10 @@ Sympho-Black Metal from Portugal
 
 ## Отношения с другими группами
 
-C группой "Limbonic Art" Daemon (vocals)
-C группой "Zyklon" Daemon (vocals)
-C группой "Emperor" Samoth (guest bass)
-C группой "Zyklon" Samoth (guest bass)
+* C группой "Limbonic Art" Daemon (vocals)
+* C группой "Zyklon" Daemon (vocals)
+* C группой "Emperor" Samoth (guest bass)
+* C группой "Zyklon" Samoth (guest bass)
 
 ## Обсуждения
 

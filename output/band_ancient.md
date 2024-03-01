@@ -193,8 +193,8 @@ Mastered by Mika Jussila at Finnvox Studios, Helsinki
 
 ## Отношения с другими группами
 
-C группой "Frosen Soul" Deadly Kristin
-C группой "Blood Stained Dusk" Profana (drums)
+* C группой "Frosen Soul" Deadly Kristin
+* C группой "Blood Stained Dusk" Profana (drums)
 
 ## Обсуждения
 

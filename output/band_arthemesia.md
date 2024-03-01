@@ -11,7 +11,7 @@
 
 ## Отношения с другими группами
 
-C группой "Enochian Crescent" Kai Hahto (drums in Enochian Crescent [1995-1999] & in Arthemesia)
+* C группой "Enochian Crescent" Kai Hahto (drums in Enochian Crescent [1995-1999] & in Arthemesia)
 
 ## Обсуждения
 

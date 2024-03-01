@@ -262,12 +262,12 @@ A collection of songs originally performed by Helloween written, or co-written, 
 
 ## Отношения с другими группами
 
-C группой "Helloween" Roland Grapow
-C группой "Grapow, Roland" Roland Grapow
-C группой "Michael Vescera Project" Roland Grapow
-C группой "Helloween" Uli Kusch
-C группой "Beautiful Sin" Uli Kusch
-C группой "Symfonia" Uli Kusch
+* C группой "Helloween" Roland Grapow
+* C группой "Grapow, Roland" Roland Grapow
+* C группой "Michael Vescera Project" Roland Grapow
+* C группой "Helloween" Uli Kusch
+* C группой "Beautiful Sin" Uli Kusch
+* C группой "Symfonia" Uli Kusch
 
 ## Обсуждения
 

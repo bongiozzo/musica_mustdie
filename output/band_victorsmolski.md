@@ -42,7 +42,7 @@ Concert for 2 Violins with Orchestra:
 
 ## Отношения с другими группами
 
-C группой "Rage" Victor Smolski
+* C группой "Rage" Victor Smolski
 
 ## Обсуждения
 

@@ -71,7 +71,7 @@ The Good The Sad And The Ugly
 
 ## Отношения с другими группами
 
-C группой "White Lion" Mike Tramp
+* C группой "White Lion" Mike Tramp
 
 ## Обсуждения
 

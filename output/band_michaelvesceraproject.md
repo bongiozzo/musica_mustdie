@@ -28,11 +28,11 @@
 
 ## Отношения с другими группами
 
-C группой "Malmsteen, Yngwie" Michael Vescera
-C группой "Grapow, Roland" Michael Vescera
-C группой "Helloween" Roland Grapow
-C группой "Grapow, Roland" Roland Grapow
-C группой "Masterplan" Roland Grapow
+* C группой "Malmsteen, Yngwie" Michael Vescera
+* C группой "Grapow, Roland" Michael Vescera
+* C группой "Helloween" Roland Grapow
+* C группой "Grapow, Roland" Roland Grapow
+* C группой "Masterplan" Roland Grapow
 
 ## Обсуждения
 

@@ -403,10 +403,10 @@ Deluxe 12” Hardbook featuring:
 
 ## Отношения с другими группами
 
-C группой "October Tide" Jonas Renkse
-C группой "Bloodbath" Jonas Renkse
-C группой "Diabolical Masquerade" Anders Nystrom
-C группой "Bloodbath" Anders Nystrom
+* C группой "October Tide" Jonas Renkse
+* C группой "Bloodbath" Jonas Renkse
+* C группой "Diabolical Masquerade" Anders Nystrom
+* C группой "Bloodbath" Anders Nystrom
 
 ## Обсуждения
 

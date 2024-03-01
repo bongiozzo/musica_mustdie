@@ -307,13 +307,13 @@ Mixed and mastered at Fascination Street Studios in Цrebro, Sweden.
 
 ## Отношения с другими группами
 
-C группой "Ceremony" Trym
-C группой "Emperor" Trym
-C группой "Old Man's Child" Trym
-C группой "Zyklon" Trym
-C группой "Shadow Season" Trym
-C группой "Hagalaz Runedance" Trym
-C группой "Ov Hell" Ice dale (guitar)
+* C группой "Ceremony" Trym
+* C группой "Emperor" Trym
+* C группой "Old Man's Child" Trym
+* C группой "Zyklon" Trym
+* C группой "Shadow Season" Trym
+* C группой "Hagalaz Runedance" Trym
+* C группой "Ov Hell" Ice dale (guitar)
 
 ## Обсуждения
 

@@ -18,8 +18,8 @@
 
 ## Отношения с другими группами
 
-C группой "Raventale" Athamas, Astaroth
-C группой "Balance Interruption" Morthvarg, Yar
+* C группой "Raventale" Athamas, Astaroth
+* C группой "Balance Interruption" Morthvarg, Yar
 
 ## Обсуждения
 

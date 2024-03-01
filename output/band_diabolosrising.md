@@ -52,10 +52,10 @@ Guitars Played By Divad (NECROMANTIA).
 
 ## Отношения с другими группами
 
-C группой "Impaled Nazarene" Mika Luttinen
-C группой "Raism" Mika Luttinen
-C группой "Necromantia" Magus Wampyr Daoloth
-C группой "Raism" Magus Wampyr Daoloth
+* C группой "Impaled Nazarene" Mika Luttinen
+* C группой "Raism" Mika Luttinen
+* C группой "Necromantia" Magus Wampyr Daoloth
+* C группой "Raism" Magus Wampyr Daoloth
 
 ## Обсуждения
 

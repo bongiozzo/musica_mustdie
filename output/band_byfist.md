@@ -7,7 +7,7 @@
 
 ## Отношения с другими группами
 
-C группой "One Of Sixx" Vikk Real (vocal)
+* C группой "One Of Sixx" Vikk Real (vocal)
 
 ## Обсуждения
 

@@ -181,7 +181,7 @@ Features 3 brand new songs, and marks the comeback of former vocalist Marco Aro.
 
 ## Отношения с другими группами
 
-C группой "At the Gates" 
+* C группой "At the Gates" 
 
 ## Обсуждения
 

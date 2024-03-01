@@ -56,11 +56,11 @@ Ferdy Doernberg - Keyboards
 
 ## Отношения с другими группами
 
-C группой "Malmsteen, Yngwie" Michael Vescera
-C группой "Michael Vescera Project" Michael Vescera
-C группой "Helloween" Roland Grapow
-C группой "Masterplan" Roland Grapow
-C группой "Michael Vescera Project" Roland Grapow
+* C группой "Malmsteen, Yngwie" Michael Vescera
+* C группой "Michael Vescera Project" Michael Vescera
+* C группой "Helloween" Roland Grapow
+* C группой "Masterplan" Roland Grapow
+* C группой "Michael Vescera Project" Roland Grapow
 
 ## Обсуждения
 

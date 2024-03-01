@@ -45,7 +45,7 @@ Peter Willersted  -  Photography
 
 ## Отношения с другими группами
 
-C группой "Royal Hunt" Guitar, Keyboards, Producer
+* C группой "Royal Hunt" Guitar, Keyboards, Producer
 
 ## Обсуждения
 

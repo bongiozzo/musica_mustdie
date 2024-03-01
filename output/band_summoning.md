@@ -142,7 +142,7 @@ Silenius: keyboards, vocals on song 2,5,8
 
 ## Отношения с другими группами
 
-C группой "Enid" Martin Wiese
+* C группой "Enid" Martin Wiese
 
 ## Обсуждения
 

@@ -98,13 +98,13 @@ Russian Black - Pagan
 
 ## Отношения с другими группами
 
-C группой "Crystal Abyss" Alex
-C группой "Stigmatic Chorus" Alex
-C группой "Изморозь" Alex
-C группой "Divizion S-187" Alex
-C группой "Stigmatic Chorus" Belf
-C группой "Изморозь" Belf
-C группой "Путь Солнца" Belf
+* C группой "Crystal Abyss" Alex
+* C группой "Stigmatic Chorus" Alex
+* C группой "Изморозь" Alex
+* C группой "Divizion S-187" Alex
+* C группой "Stigmatic Chorus" Belf
+* C группой "Изморозь" Belf
+* C группой "Путь Солнца" Belf
 
 ## Обсуждения
 

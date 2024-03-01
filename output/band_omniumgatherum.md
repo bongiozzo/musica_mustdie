@@ -171,7 +171,7 @@ Mix and mastering by Dan Swano
 
 ## Отношения с другими группами
 
-C группой "Manitou" 
+* C группой "Manitou" 
 
 ## Обсуждения
 

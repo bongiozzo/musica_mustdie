@@ -72,11 +72,11 @@ No Fashion Records
 
 ## Отношения с другими группами
 
-C группой "Amon Amarth" Drummer Fredrik Andersson
-C группой "Guidance Of Sin" Drummer Fredrik Andersson
-C группой "Curriculum Mortis" Drummer Fredrik Andersson
-C группой "Guidance Of Sin" Split up of A Canorous Quintet
-C группой "Curriculum Mortis" Leo Pignon (guitar)
+* C группой "Amon Amarth" Drummer Fredrik Andersson
+* C группой "Guidance Of Sin" Drummer Fredrik Andersson
+* C группой "Curriculum Mortis" Drummer Fredrik Andersson
+* C группой "Guidance Of Sin" Split up of A Canorous Quintet
+* C группой "Curriculum Mortis" Leo Pignon (guitar)
 
 ## Обсуждения
 

@@ -128,8 +128,8 @@ pound." so says drummer Gene Hoglan.
 
 ## Отношения с другими группами
 
-C группой "Zimmer`s Hole" Jed Simon, Byron Stroud
-C группой "Fear Factory" Byron Stroud (bass)
+* C группой "Zimmer`s Hole" Jed Simon, Byron Stroud
+* C группой "Fear Factory" Byron Stroud (bass)
 
 ## Обсуждения
 

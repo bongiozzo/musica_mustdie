@@ -17,8 +17,8 @@ swedish death metal band
 
 ## Отношения с другими группами
 
-C группой "Trident" Johan Norman
-C группой "Dissection" Johan Norman
+* C группой "Trident" Johan Norman
+* C группой "Dissection" Johan Norman
 
 ## Обсуждения
 

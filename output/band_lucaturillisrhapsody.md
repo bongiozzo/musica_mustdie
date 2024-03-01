@@ -239,8 +239,8 @@ III. IGNIS DIVINUS
 
 ## Отношения с другими группами
 
-C группой "Rhapsody Of Fire" Luca Turilli
-C группой "Dionysus" Luca Turilli
+* C группой "Rhapsody Of Fire" Luca Turilli
+* C группой "Dionysus" Luca Turilli
 
 ## Обсуждения
 

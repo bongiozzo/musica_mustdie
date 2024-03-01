@@ -208,8 +208,8 @@ Recorded Live In USA.
 
 ## Отношения с другими группами
 
-C группой "Slash's Snakepit" Lead Guitar, Slash
-C группой "L.A. Guns" Tracii Guns
+* C группой "Slash's Snakepit" Lead Guitar, Slash
+* C группой "L.A. Guns" Tracii Guns
 
 ## Обсуждения
 

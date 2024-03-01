@@ -11,9 +11,9 @@
 
 ## Отношения с другими группами
 
-C группой "Rest in Pain" Сhristophor Moleskin
-C группой "Rest in Pain" Дмитрий Игнатьев
-C группой "Butterfly Temple" Алексей Миронов
+* C группой "Rest in Pain" Сhristophor Moleskin
+* C группой "Rest in Pain" Дмитрий Игнатьев
+* C группой "Butterfly Temple" Алексей Миронов
 
 ## Обсуждения
 

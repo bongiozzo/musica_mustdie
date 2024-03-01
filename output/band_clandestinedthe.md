@@ -7,8 +7,8 @@
 
 ## Отношения с другими группами
 
-C группой "Skyclad" Martin Walkyier
-C группой "Immortal" Iscariah
+* C группой "Skyclad" Martin Walkyier
+* C группой "Immortal" Iscariah
 
 ## Обсуждения
 

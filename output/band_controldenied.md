@@ -26,24 +26,24 @@ Produced by Jim Morris and Chuck Schuldiner
 
 ## Отношения с другими группами
 
-C группой "Sadus" Steve DiGiorgio (bass)
-C группой "Death" Steve DiGiorgio (bass)
-C группой "Artension" Steve DiGiorgio (bass)
-C группой "Testament" Steve DiGiorgio (bass)
-C группой "Autopsy" Steve DiGiorgio (bass)
-C группой "Iced Earth" Steve DiGiorgio (bass)
-C группой "Charred Walls Of The Damned" Steve DiGiorgio (bass)
-C группой "Faust [ITA]" Steve DiGiorgio (bass)
-C группой "Dragonlord" Steve DiGiorgio (bass)
-C группой "Death" Project of Chuck Schuldiner - leader of Death
-C группой "Chuck Sсhuldiner" Project of Chuck Schuldiner - leader of Death
-C группой "Pharaoh" Tim Aymar (vocals)
-C группой "Death" Richard Christy (drums)
-C группой "Iced Earth" Richard Christy (drums)
-C группой "Death" Steve DiGiorgio
-C группой "Testament" Steve DiGiorgio
-C группой "Vintersorg" Steve DiGiorgio
-C группой "Dragonlord" Steve DiGiorgio
+* C группой "Sadus" Steve DiGiorgio (bass)
+* C группой "Death" Steve DiGiorgio (bass)
+* C группой "Artension" Steve DiGiorgio (bass)
+* C группой "Testament" Steve DiGiorgio (bass)
+* C группой "Autopsy" Steve DiGiorgio (bass)
+* C группой "Iced Earth" Steve DiGiorgio (bass)
+* C группой "Charred Walls Of The Damned" Steve DiGiorgio (bass)
+* C группой "Faust [ITA]" Steve DiGiorgio (bass)
+* C группой "Dragonlord" Steve DiGiorgio (bass)
+* C группой "Death" Project of Chuck Schuldiner - leader of Death
+* C группой "Chuck Sсhuldiner" Project of Chuck Schuldiner - leader of Death
+* C группой "Pharaoh" Tim Aymar (vocals)
+* C группой "Death" Richard Christy (drums)
+* C группой "Iced Earth" Richard Christy (drums)
+* C группой "Death" Steve DiGiorgio
+* C группой "Testament" Steve DiGiorgio
+* C группой "Vintersorg" Steve DiGiorgio
+* C группой "Dragonlord" Steve DiGiorgio
 
 ## Обсуждения
 

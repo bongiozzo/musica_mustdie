@@ -37,13 +37,13 @@ Cover art by are Voldsund Pettersen and Frediablo.
 
 ## Отношения с другими группами
 
-C группой "Hypocrisy" Horgh (drums)
-C группой "Immortal" Horgh (drums)
-C группой "Necrophagia" Frediablo
-C группой "Gorelord" Frediablo
-C группой "Wurdulak" Frediablo
-C группой "Svartpest" Frediablo
-C группой "Soul Forsaken" Frediablo
+* C группой "Hypocrisy" Horgh (drums)
+* C группой "Immortal" Horgh (drums)
+* C группой "Necrophagia" Frediablo
+* C группой "Gorelord" Frediablo
+* C группой "Wurdulak" Frediablo
+* C группой "Svartpest" Frediablo
+* C группой "Soul Forsaken" Frediablo
 
 ## Обсуждения
 

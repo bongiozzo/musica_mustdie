@@ -120,7 +120,7 @@ Mike Mangini
 
 ## Отношения с другими группами
 
-C группой "Nuno Bettencourt" ex-guitar player
+* C группой "Nuno Bettencourt" ex-guitar player
 
 ## Обсуждения
 

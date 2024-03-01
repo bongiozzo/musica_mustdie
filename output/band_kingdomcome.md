@@ -255,14 +255,14 @@ Feeding The Flame
 
 ## Отношения с другими группами
 
-C группой "Pretty Maids" Allan Tschicaja
-C группой "Royal Hunt" Allan Tschicaja
-C группой "Helloween" Mark Cross (Drums)
-C группой "Outloud" Mark Cross (Drums)
-C группой "Metalium" Mark Cross (Drums)
-C группой "Firewind" Mark Cross (Drums)
-C группой "At Vance" Mark Cross (Drums)
-C группой "Nightfall" Mark Cross (Drums)
+* C группой "Pretty Maids" Allan Tschicaja
+* C группой "Royal Hunt" Allan Tschicaja
+* C группой "Helloween" Mark Cross (Drums)
+* C группой "Outloud" Mark Cross (Drums)
+* C группой "Metalium" Mark Cross (Drums)
+* C группой "Firewind" Mark Cross (Drums)
+* C группой "At Vance" Mark Cross (Drums)
+* C группой "Nightfall" Mark Cross (Drums)
 
 ## Обсуждения
 

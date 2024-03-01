@@ -31,8 +31,8 @@ All rights Reserved © INHUMANITY
 
 ## Отношения с другими группами
 
-C группой "Requiem (Kazakhstan)" 
-C группой "Voodoo" 
+* C группой "Requiem (Kazakhstan)" 
+* C группой "Voodoo" 
 
 ## Обсуждения
 

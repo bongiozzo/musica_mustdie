@@ -85,10 +85,10 @@ Peter Petterson - Drums, Additional Keyboards
 
 ## Отношения с другими группами
 
-C группой "Talisman" Jansson Brothers
-C группой "Erika" Jansson Brothers
-C группой "Tears of Anger" Jansson Brothers
-C группой "Razorback" Stefan Berggren (vocal)
+* C группой "Talisman" Jansson Brothers
+* C группой "Erika" Jansson Brothers
+* C группой "Tears of Anger" Jansson Brothers
+* C группой "Razorback" Stefan Berggren (vocal)
 
 ## Обсуждения
 

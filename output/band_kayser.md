@@ -35,7 +35,7 @@ thrash-metal
 
 ## Отношения с другими группами
 
-C группой "Spiritual Beggars" Spice (Vocal, Bass)
+* C группой "Spiritual Beggars" Spice (Vocal, Bass)
 
 ## Обсуждения
 

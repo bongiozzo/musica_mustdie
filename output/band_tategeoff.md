@@ -21,8 +21,8 @@
 
 ## Отношения с другими группами
 
-C группой "Queensryche" Frontman
-C группой "Operation: Mindcrime" Frontman
+* C группой "Queensryche" Frontman
+* C группой "Operation: Mindcrime" Frontman
 
 ## Обсуждения
 

@@ -14,7 +14,7 @@
 ## Отношения с другими группами
 
 {{#relations}}
-C группой "{{{band}}}" {{{description}}}
+* C группой "{{{band}}}" {{{description}}}
 {{/relations}}
 
 ## Обсуждения

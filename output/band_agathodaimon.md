@@ -140,7 +140,7 @@ version with Ruth "Ophelia" Knepel on vocals).
 
 ## Отношения с другими группами
 
-C группой "Ra" Vlad Dracula
+* C группой "Ra" Vlad Dracula
 
 ## Обсуждения
 

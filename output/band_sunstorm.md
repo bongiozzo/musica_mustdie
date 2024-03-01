@@ -22,11 +22,11 @@
 
 ## Отношения с другими группами
 
-C группой "Rainbow" J-L Turner
-C группой "Deep Purple" J-L Turner
-C группой "Joe Lynn Turner" J-L Turner
-C группой "Hughes Turner Project" J-L Turner
-C группой "Brazen Abbot" J-L Turner
+* C группой "Rainbow" J-L Turner
+* C группой "Deep Purple" J-L Turner
+* C группой "Joe Lynn Turner" J-L Turner
+* C группой "Hughes Turner Project" J-L Turner
+* C группой "Brazen Abbot" J-L Turner
 
 ## Обсуждения
 

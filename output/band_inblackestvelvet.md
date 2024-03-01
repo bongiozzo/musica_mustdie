@@ -23,7 +23,7 @@ ex- Night In Gales
 
 ## Отношения с другими группами
 
-C группой "Night In Gales" 
+* C группой "Night In Gales" 
 
 ## Обсуждения
 

@@ -221,14 +221,14 @@ Japanese bonus track:
 
 ## Отношения с другими группами
 
-C группой "Metallica" Kirk Hammett (guitar)
-C группой "Slayer" Paul Bostaph (drums)
-C группой "Testament" Paul Bostaph (drums)
-C группой "Forbidden" Paul Bostaph (drums)
-C группой "Vile" Jack Gibson
-C группой "Hatriot" Steve 'Zetro' Souza (vocal)
-C группой "Testament" Steve 'Zetro' Souza (vocal)
-C группой "Tenet" Steve 'Zetro' Souza (vocal)
+* C группой "Metallica" Kirk Hammett (guitar)
+* C группой "Slayer" Paul Bostaph (drums)
+* C группой "Testament" Paul Bostaph (drums)
+* C группой "Forbidden" Paul Bostaph (drums)
+* C группой "Vile" Jack Gibson
+* C группой "Hatriot" Steve 'Zetro' Souza (vocal)
+* C группой "Testament" Steve 'Zetro' Souza (vocal)
+* C группой "Tenet" Steve 'Zetro' Souza (vocal)
 
 ## Обсуждения
 

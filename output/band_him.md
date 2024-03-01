@@ -109,7 +109,7 @@
 
 ## Отношения с другими группами
 
-C группой "Tiaga" Juska Salminen (keyboard)
+* C группой "Tiaga" Juska Salminen (keyboard)
 
 ## Обсуждения
 

@@ -11,9 +11,9 @@
 
 ## Отношения с другими группами
 
-C группой "Exodus" Steve 'Zetro' Souza (vocal)
-C группой "Hatriot" Steve 'Zetro' Souza (vocal)
-C группой "Testament" Steve 'Zetro' Souza (vocal)
+* C группой "Exodus" Steve 'Zetro' Souza (vocal)
+* C группой "Hatriot" Steve 'Zetro' Souza (vocal)
+* C группой "Testament" Steve 'Zetro' Souza (vocal)
 
 ## Обсуждения
 

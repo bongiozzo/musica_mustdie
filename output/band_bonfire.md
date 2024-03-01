@@ -168,11 +168,11 @@ Jurgen Wiehler - drums
 
 ## Отношения с другими группами
 
-C группой "Pretty Maids" Angel Schleifer
-C группой "Sinner" Angel Schleifer
-C группой "Charade" Angel Schleifer
-C группой "Jaded Heart" Michael Bormann
-C группой "Charade" Michael Bormann
+* C группой "Pretty Maids" Angel Schleifer
+* C группой "Sinner" Angel Schleifer
+* C группой "Charade" Angel Schleifer
+* C группой "Jaded Heart" Michael Bormann
+* C группой "Charade" Michael Bormann
 
 ## Обсуждения
 

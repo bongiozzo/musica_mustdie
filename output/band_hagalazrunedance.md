@@ -15,13 +15,13 @@
 
 ## Отношения с другими группами
 
-C группой "Ceremony" Trym
-C группой "Enslaved" Trym
-C группой "Emperor" Trym
-C группой "Old Man's Child" Trym
-C группой "Zyklon" Trym
-C группой "Shadow Season" Trym
-C группой "Nebelhexe" new name of the band HAGALAZ RUNEDANCE
+* C группой "Ceremony" Trym
+* C группой "Enslaved" Trym
+* C группой "Emperor" Trym
+* C группой "Old Man's Child" Trym
+* C группой "Zyklon" Trym
+* C группой "Shadow Season" Trym
+* C группой "Nebelhexe" new name of the band HAGALAZ RUNEDANCE
 
 ## Обсуждения
 

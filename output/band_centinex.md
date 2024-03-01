@@ -126,7 +126,7 @@ Deconstruction Macabre
 
 ## Отношения с другими группами
 
-C группой "Julie Laughs Nomore" Ronnie Bergerstahl (drums)
+* C группой "Julie Laughs Nomore" Ronnie Bergerstahl (drums)
 
 ## Обсуждения
 

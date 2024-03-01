@@ -34,12 +34,12 @@ Lena Zizanic  -  Photography
 
 ## Отношения с другими группами
 
-C группой "Borknagar" Asgeir Mickelson (drums)
-C группой "Vintersorg" Asgeir Mickelson (drums)
-C группой "ICS Vortex" Asgeir Mickelson (drums)
-C группой "Artisan" Asgeir Mickelson (drums)
-C группой "Sarke" Asgeir Mickelson (drums)
-C группой "Testament" Asgeir Mickelson (drums)
+* C группой "Borknagar" Asgeir Mickelson (drums)
+* C группой "Vintersorg" Asgeir Mickelson (drums)
+* C группой "ICS Vortex" Asgeir Mickelson (drums)
+* C группой "Artisan" Asgeir Mickelson (drums)
+* C группой "Sarke" Asgeir Mickelson (drums)
+* C группой "Testament" Asgeir Mickelson (drums)
 
 ## Обсуждения
 

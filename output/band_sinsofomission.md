@@ -45,11 +45,11 @@ Produced by Pelle "Let's take a five hour lunch break" Sдter and Lasse "Let's n
 
 ## Отношения с другими группами
 
-C группой "Miseration" Jani Stefanovic
-C группой "DivineFire" Jani Stefanovic
-C группой "Crimson Moonlight" Jani Stefanovic
-C группой "Mehida" Jani Stefanovic
-C группой "Solution .45" Jani Stefanovic
+* C группой "Miseration" Jani Stefanovic
+* C группой "DivineFire" Jani Stefanovic
+* C группой "Crimson Moonlight" Jani Stefanovic
+* C группой "Mehida" Jani Stefanovic
+* C группой "Solution .45" Jani Stefanovic
 
 ## Обсуждения
 

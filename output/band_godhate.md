@@ -14,7 +14,7 @@ ex.Throneaeon
 
 ## Отношения с другими группами
 
-C группой "Throneaeon" Band changed name
+* C группой "Throneaeon" Band changed name
 
 ## Обсуждения
 

@@ -44,7 +44,7 @@ New-school grindcore/mathcore (Discordance Axis, Endeavor, Human Remains, Time's
 
 ## Отношения с другими группами
 
-C группой "Discordance Axis" David Witte
+* C группой "Discordance Axis" David Witte
 
 ## Обсуждения
 

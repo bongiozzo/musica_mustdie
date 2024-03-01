@@ -132,19 +132,19 @@ Recorded between March and June 2009.
 
 ## Отношения с другими группами
 
-C группой "Satyricon" Frost (drums)
-C группой "Zyklon-B" Frost (drums)
-C группой "1349" Frost (drums)
-C группой "Ov Hell" Frost (drums)
-C группой "Keep Of Kalessin" Frost (drums)
-C группой "Gehenna" Frost (drums)
-C группой "Ov Hell" King Ov Hell (bass)
-C группой "Sahg" King Ov Hell (bass)
-C группой "I" King Ov Hell (bass)
-C группой "Ov Hell" Teloch (guitar)
-C группой "1349" Teloch (guitar)
-C группой "Blood Stained Dusk" Pest (vocal)
-C группой "Obtained Enslavement" Pest (vocal)
+* C группой "Satyricon" Frost (drums)
+* C группой "Zyklon-B" Frost (drums)
+* C группой "1349" Frost (drums)
+* C группой "Ov Hell" Frost (drums)
+* C группой "Keep Of Kalessin" Frost (drums)
+* C группой "Gehenna" Frost (drums)
+* C группой "Ov Hell" King Ov Hell (bass)
+* C группой "Sahg" King Ov Hell (bass)
+* C группой "I" King Ov Hell (bass)
+* C группой "Ov Hell" Teloch (guitar)
+* C группой "1349" Teloch (guitar)
+* C группой "Blood Stained Dusk" Pest (vocal)
+* C группой "Obtained Enslavement" Pest (vocal)
 
 ## Обсуждения
 

@@ -17,7 +17,7 @@ old school thrash/black metal with Tatar lyrics
 
 ## Отношения с другими группами
 
-C группой "Dryados" 
+* C группой "Dryados" 
 
 ## Обсуждения
 

@@ -37,7 +37,7 @@
 
 ## Отношения с другими группами
 
-C группой "Factory Of Dreams" Hugo Flores
+* C группой "Factory Of Dreams" Hugo Flores
 
 ## Обсуждения
 

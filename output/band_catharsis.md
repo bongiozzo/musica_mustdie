@@ -362,12 +362,12 @@ julia red – клавишные
 
 ## Отношения с другими группами
 
-C группой "Samhain" 
-C группой "Dea" Arikh
-C группой "Ens Cogitans" Vladimir Moochnov (drums)
-C группой "Southwake" Vladimir Moochnov (drums)
-C группой "End Zone" 
-C группой "Олег Мишин" 
+* C группой "Samhain" 
+* C группой "Dea" Arikh
+* C группой "Ens Cogitans" Vladimir Moochnov (drums)
+* C группой "Southwake" Vladimir Moochnov (drums)
+* C группой "End Zone" 
+* C группой "Олег Мишин" 
 
 ## Обсуждения
 

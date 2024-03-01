@@ -210,8 +210,8 @@ Glen Sobel-Drums
 
 ## Отношения с другими группами
 
-C группой "Rob Rock" Rob Rock
-C группой "Firewind" Rob Rock
+* C группой "Rob Rock" Rob Rock
+* C группой "Firewind" Rob Rock
 
 ## Обсуждения
 

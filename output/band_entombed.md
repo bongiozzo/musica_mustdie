@@ -296,14 +296,14 @@ Jorgen Sandstrom - Bass
 
 ## Отношения с другими группами
 
-C группой "Grave" Jorgen Sandstrom  (bass)
-C группой "The Project Hate MCMXCIX" Jorgen Sandstrom  (bass)
-C группой "Entombed A.D." LG Petrov (vocal)
-C группой "Firespawn" LG Petrov (vocal)
-C группой "Comecon" LG Petrov (vocal)
-C группой "Entombed A.D." Victor Brandt (guitar)
-C группой "Firespawn" Victor Brandt (guitar)
-C группой "Aeon" Victor Brandt (guitar)
+* C группой "Grave" Jorgen Sandstrom  (bass)
+* C группой "The Project Hate MCMXCIX" Jorgen Sandstrom  (bass)
+* C группой "Entombed A.D." LG Petrov (vocal)
+* C группой "Firespawn" LG Petrov (vocal)
+* C группой "Comecon" LG Petrov (vocal)
+* C группой "Entombed A.D." Victor Brandt (guitar)
+* C группой "Firespawn" Victor Brandt (guitar)
+* C группой "Aeon" Victor Brandt (guitar)
 
 ## Обсуждения
 

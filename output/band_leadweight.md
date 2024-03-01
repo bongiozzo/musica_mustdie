@@ -146,11 +146,11 @@ Producer - Yermola.
 
 ## Отношения с другими группами
 
-C группой "MUSICA (compilation)" Lead Weight
-C группой "UNDERGROUND KZ (compilation)" Lead Weight
-C группой "Neformat" Басс гитарист
-C группой "Allons" Басс гитарист
-C группой "Requiem (Kazakhstan)" Басс гитарист
+* C группой "MUSICA (compilation)" Lead Weight
+* C группой "UNDERGROUND KZ (compilation)" Lead Weight
+* C группой "Neformat" Басс гитарист
+* C группой "Allons" Басс гитарист
+* C группой "Requiem (Kazakhstan)" Басс гитарист
 
 ## Обсуждения
 

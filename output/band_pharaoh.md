@@ -70,7 +70,7 @@ Chris Black - drums
 
 ## Отношения с другими группами
 
-C группой "Control Denied" Tim Aymar (vocals)
+* C группой "Control Denied" Tim Aymar (vocals)
 
 ## Обсуждения
 

@@ -36,8 +36,8 @@
 
 ## Отношения с другими группами
 
-C группой "Savage Circus" 
-C группой "Dark Empire" 
+* C группой "Savage Circus" 
+* C группой "Dark Empire" 
 
 ## Обсуждения
 

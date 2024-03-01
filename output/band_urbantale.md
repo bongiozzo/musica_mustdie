@@ -46,7 +46,7 @@ Kari Valimaki – Drums, Backing Vocals
 
 ## Отношения с другими группами
 
-C группой "Heartplay" Kimmo Blom
+* C группой "Heartplay" Kimmo Blom
 
 ## Обсуждения
 

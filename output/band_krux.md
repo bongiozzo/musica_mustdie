@@ -49,8 +49,8 @@ Per Wiberg - Keyboards
 
 ## Отношения с другими группами
 
-C группой "Candlemass" 
-C группой "The Project Hate MCMXCIX" 
+* C группой "Candlemass" 
+* C группой "The Project Hate MCMXCIX" 
 
 ## Обсуждения
 

@@ -66,10 +66,10 @@ Nick Sword: Rhythm/Lead Guitar
 
 ## Отношения с другими группами
 
-C группой "Darkane" Klas Ideberg
-C группой "The Defaced" Klas Ideberg
-C группой "Construcdead" Erik Thyselius (drummer)
-C группой "Soilwork" Bjorn Speed Strid
+* C группой "Darkane" Klas Ideberg
+* C группой "The Defaced" Klas Ideberg
+* C группой "Construcdead" Erik Thyselius (drummer)
+* C группой "Soilwork" Bjorn Speed Strid
 
 ## Обсуждения
 

@@ -868,15 +868,15 @@ Forever) and Marjan Elister (Autumn)
 
 ## Отношения с другими группами
 
-C группой "Guilt Machine" Arjen Lucassen 
-C группой "Gorefest" Ed Warby
-C группой "11th Hour" Ed Warby
-C группой "Demiurg (SWE)" Ed Warby
-C группой "Hail Of Bullets" Ed Warby
-C группой "Star One" Ed Warby
-C группой "Threshold" Damien Wilson (vocal)
-C группой "Wilson, Damian" Damien Wilson (vocal)
-C группой "Star One" Damien Wilson (vocal)
+* C группой "Guilt Machine" Arjen Lucassen 
+* C группой "Gorefest" Ed Warby
+* C группой "11th Hour" Ed Warby
+* C группой "Demiurg (SWE)" Ed Warby
+* C группой "Hail Of Bullets" Ed Warby
+* C группой "Star One" Ed Warby
+* C группой "Threshold" Damien Wilson (vocal)
+* C группой "Wilson, Damian" Damien Wilson (vocal)
+* C группой "Star One" Damien Wilson (vocal)
 
 ## Обсуждения
 

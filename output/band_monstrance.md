@@ -7,8 +7,8 @@
 
 ## Отношения с другими группами
 
-C группой "Carcass" Carlo Regadas (guitar)
-C группой "Blackstar" Carlo Regadas (guitar)
+* C группой "Carcass" Carlo Regadas (guitar)
+* C группой "Blackstar" Carlo Regadas (guitar)
 
 ## Обсуждения
 

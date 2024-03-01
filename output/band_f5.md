@@ -7,8 +7,8 @@
 
 ## Отношения с другими группами
 
-C группой "Megadeth" David Ellefson
-C группой "Soulfly" David Ellefson
+* C группой "Megadeth" David Ellefson
+* C группой "Soulfly" David Ellefson
 
 ## Обсуждения
 

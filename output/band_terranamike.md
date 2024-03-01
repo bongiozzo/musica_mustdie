@@ -21,7 +21,7 @@
 
 ## Отношения с другими группами
 
-C группой "Rage" Mike Terrana (drums)
+* C группой "Rage" Mike Terrana (drums)
 
 ## Обсуждения
 

@@ -35,7 +35,7 @@ John 19:41
 
 ## Отношения с другими группами
 
-C группой "Andrew Lloyd Webber" 
+* C группой "Andrew Lloyd Webber" 
 
 ## Обсуждения
 

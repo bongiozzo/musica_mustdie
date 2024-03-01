@@ -115,8 +115,8 @@ Layout by Peter Norman.
 
 ## Отношения с другими группами
 
-C группой "Bewitched" M. Norman
-C группой "Havayoth" M. Norman
+* C группой "Bewitched" M. Norman
+* C группой "Havayoth" M. Norman
 
 ## Обсуждения
 

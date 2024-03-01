@@ -38,13 +38,13 @@ bonus-tracks:
 
 ## Отношения с другими группами
 
-C группой "Ashen Light" Alex
-C группой "Crystal Abyss" Alex
-C группой "Изморозь" Alex
-C группой "Divizion S-187" Alex
-C группой "Изморозь" Belf
-C группой "Путь Солнца" Belf
-C группой "Ashen Light" Belf
+* C группой "Ashen Light" Alex
+* C группой "Crystal Abyss" Alex
+* C группой "Изморозь" Alex
+* C группой "Divizion S-187" Alex
+* C группой "Изморозь" Belf
+* C группой "Путь Солнца" Belf
+* C группой "Ashen Light" Belf
 
 ## Обсуждения
 

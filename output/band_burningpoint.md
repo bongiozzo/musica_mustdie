@@ -128,7 +128,7 @@ Features five new songs and six re-recorded tracks.
 
 ## Отношения с другими группами
 
-C группой "Ghost Machinery" Pete Ahonen
+* C группой "Ghost Machinery" Pete Ahonen
 
 ## Обсуждения
 

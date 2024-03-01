@@ -15,11 +15,11 @@ Black Metal
 
 ## Отношения с другими группами
 
-C группой "Miseration" Jani Stefanovic
-C группой "DivineFire" Jani Stefanovic
-C группой "Sins of Omission" Jani Stefanovic
-C группой "Mehida" Jani Stefanovic
-C группой "Solution .45" Jani Stefanovic
+* C группой "Miseration" Jani Stefanovic
+* C группой "DivineFire" Jani Stefanovic
+* C группой "Sins of Omission" Jani Stefanovic
+* C группой "Mehida" Jani Stefanovic
+* C группой "Solution .45" Jani Stefanovic
 
 ## Обсуждения
 

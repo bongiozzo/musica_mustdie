@@ -116,9 +116,9 @@ Ricardo Confessori - Drums
 
 ## Отношения с другими группами
 
-C группой "Angra" 
-C группой "Matos, Andre" 
-C группой "Symfonia" 
+* C группой "Angra" 
+* C группой "Matos, Andre" 
+* C группой "Symfonia" 
 
 ## Обсуждения
 

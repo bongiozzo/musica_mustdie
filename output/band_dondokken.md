@@ -22,8 +22,8 @@
 
 ## Отношения с другими группами
 
-C группой "Dokken" Dokken
-C группой "Norum, John" Norum, John
+* C группой "Dokken" Dokken
+* C группой "Norum, John" Norum, John
 
 ## Обсуждения
 

@@ -7,7 +7,7 @@ hard rock/ neo-classic
 
 ## Отношения с другими группами
 
-C группой "Malmsteen, Yngwie" Michael Von Knorring
+* C группой "Malmsteen, Yngwie" Michael Von Knorring
 
 ## Обсуждения
 

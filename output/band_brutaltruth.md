@@ -139,7 +139,7 @@ Band residence: USA.
 
 ## Отношения с другими группами
 
-C группой "Venomous Concept" Danny Lilker, Kevin Sharp
+* C группой "Venomous Concept" Danny Lilker, Kevin Sharp
 
 ## Обсуждения
 

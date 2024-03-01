@@ -130,12 +130,12 @@ booklet art / layout: Sven for dirge design
 
 ## Отношения с другими группами
 
-C группой "Feared Creation" Calle Fдldt (guitar)
-C группой "Demiurg (SWE)" Rogga Johansson
-C группой "11th Hour" Rogga Johansson
-C группой "Paganizer [RUS]" Rogga Johansson
-C группой "Edge Of Sanity" Rogga Johansson
-C группой "Ribspreader" Rogga Johansson
+* C группой "Feared Creation" Calle Fдldt (guitar)
+* C группой "Demiurg (SWE)" Rogga Johansson
+* C группой "11th Hour" Rogga Johansson
+* C группой "Paganizer [RUS]" Rogga Johansson
+* C группой "Edge Of Sanity" Rogga Johansson
+* C группой "Ribspreader" Rogga Johansson
 
 ## Обсуждения
 

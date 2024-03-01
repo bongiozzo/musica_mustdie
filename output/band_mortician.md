@@ -191,9 +191,9 @@ Desmond Tolhurst: guitars
 
 ## Отношения с другими группами
 
-C группой "Malignancy" Roger J. Beaujard (guitar)
-C группой "Malignancy" Ron Kachnic (guitar)
-C группой "Malignancy" Desmond Tolhurst (bass)
+* C группой "Malignancy" Roger J. Beaujard (guitar)
+* C группой "Malignancy" Ron Kachnic (guitar)
+* C группой "Malignancy" Desmond Tolhurst (bass)
 
 ## Обсуждения
 

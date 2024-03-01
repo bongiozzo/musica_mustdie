@@ -41,7 +41,7 @@
 
 ## Отношения с другими группами
 
-C группой "Arida Vortex" Andy (vocal)
+* C группой "Arida Vortex" Andy (vocal)
 
 ## Обсуждения
 

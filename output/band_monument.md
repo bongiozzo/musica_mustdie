@@ -7,7 +7,7 @@ Second new wave of British Heavy Metal
 
 ## Отношения с другими группами
 
-C группой "White Wizzard" Peter Ellis (vocal)
+* C группой "White Wizzard" Peter Ellis (vocal)
 
 ## Обсуждения
 

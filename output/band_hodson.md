@@ -21,8 +21,8 @@ This Foolish World – видео
 
 ## Отношения с другими группами
 
-C группой "Ten" Paul Hodson
-C группой "Bob Catley" Paul Hodson
+* C группой "Ten" Paul Hodson
+* C группой "Bob Catley" Paul Hodson
 
 ## Обсуждения
 

@@ -43,9 +43,9 @@ Bonus track:
 
 ## Отношения с другими группами
 
-C группой "Grip Inc." Waldemar Sorychta (guitar)
-C группой "Eyes Of Eden" Waldemar Sorychta (guitar)
-C группой "After Forever" Floor Jansen (vocal) and Joost Van Den Broek (keyboards)
+* C группой "Grip Inc." Waldemar Sorychta (guitar)
+* C группой "Eyes Of Eden" Waldemar Sorychta (guitar)
+* C группой "After Forever" Floor Jansen (vocal) and Joost Van Den Broek (keyboards)
 
 ## Обсуждения
 
